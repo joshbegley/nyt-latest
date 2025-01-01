@@ -1,3 +1,7 @@
+**Anderson Cooper and Andy Cohen Dish About Their New Year’s Eve Show**\
+`The morning after the two were live on CNN, they talked about tequila shots, Diplo and Cohen’s dancing skills.`\
+https://nytimes.com/2025/01/01/arts/television/anderson-cooper-andy-cohen-nye-show.html
+
 **Wild's Jared Spurgeon to get MRI after slew foot — Predators' Zach L'Heureux gets phone hearing**\
 `Even though he is not deemed a "repeat offender" by the NHL, at only 21 years old, L'Heureux has been suspended 11 times at lower levels.`\
 https://nytimes.com/athletic/6031502/2025/01/01/wilds-jared-spurgeon-slew-foot-injury/
