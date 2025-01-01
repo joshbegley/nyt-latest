@@ -1,3 +1,7 @@
+**Scenes From New Orleans After Attack on New Year’s Day**\
+`A man drove a pickup truck into the crowds on Bourbon Street early Wednesday morning, killing at least 10 people.`\
+https://nytimes.com/2025/01/01/us/new-orleans-vehicle-attack-photos.html
+
 **Seko Fofana leaves Al Nassr to join Rennes**\
 `Ligue 1 side Rennes have completed the signing of midfielder Seko Fofana from Al Nassr.`\
 https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-rennes/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-re
 `The bollards that prevent traffic from entering some streets in the French Quarter, where a man drove a truck into crowds of people, were being replaced, according to a city website.`\
 https://nytimes.com/2025/01/01/us/new-orleans-security-bollards-construction-bourbon-street.html
 
-**The French Quarter is New Orleans’s most famous tourist attraction.**\
+**The French Quarter Is New Orleans’s Most Famous Tourist Attraction**\
 `The six-by-13 block area, on the curving bank of the Mississippi River, is known for vibrant festivals and parties that attract revelers from across the United States and abroad.`\
 https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/dining/my-one-pan-orzo-with-spinach-for-jan-1.htm
 **Democrats’ Battleground Leader, Exiting Congress, Reflects on What She Learned**\
 `Representative Abigail Spanberger of Virginia, the only Democrat in a leadership position to leave Congress this year, talked about her party, her competitive district, and what the Trump era has in store.`\
 https://nytimes.com/2025/01/01/us/spanberger-congress.html
-
-**Police work to ensure Sugar Bowl safety after man rams truck into New Orleans crowd**\
-`The crash happened around 4:15 a.m. ET about a mile from the Superdome, the site for the Sugar Bowl between Georgia and Notre Dame.`\
-https://nytimes.com/athletic/6031324/2025/01/01/new-orleans-truck-attack-sugar-bowl/
 
