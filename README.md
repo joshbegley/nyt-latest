@@ -1,3 +1,7 @@
+**Barcelona remain hopeful on Olmo registration despite missing La Liga deadline**\
+`Barcelona have not given up hope that Dani Olmo will be able to play for them in the second half of the season despite missing the January 1 deadline to register him with La Liga.`\
+https://nytimes.com/athletic/6029414/2025/01/01/barcelona-dani-olmo-registration-la-liga/
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears take a 10-game losing streak into their finale. The coaching search and the 2025 roster are now the focus. What's on your mind?`\
 https://nytimes.com/athletic/6030624/2025/01/01/bears-mailbag-questions-43/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/new-orleans-security-bollards-construction-bou
 **The French Quarter Is New Orleans’s Most Famous Tourist Attraction**\
 `The area is the historic colonial heart of the city and the center of its tourism industry. Bourbon Street, where the attack occurred, is the Quarter’s most recognizable address and a focus for revelers.`\
 https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
-
-**The Acid Comedy of Thomas Schütte, the Man in the Mud**\
-`In a MoMA retrospective filled with humorous angst, the German sculptor offers a prime 2025 resolution: Don’t run from failure.`\
-https://nytimes.com/2025/01/01/arts/design/thomas-schutte-art-humor-moma-sculpture.html
 
