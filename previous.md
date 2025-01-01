@@ -1,3 +1,7 @@
+**Suspect in New Orleans Attack Is Identified as a Texan and Had an ISIS Flag With Him**\
+`In a YouTube video from 2020, the man identified as the suspect said he had been born and raised in Beaumont, Texas, and had served in the U.S. military.`\
+https://nytimes.com/2025/01/01/us/suspect-new-orleans-texan-isis-flag.html
+
 **Sirianni 'probably' resting Barkley despite being within shot of rushing record**\
 `Barkley will likely end his season 101 yards shy of breaking Eric Dickerson's single-season rushing record`\
 https://nytimes.com/athletic/6031553/2025/01/01/eagles-saquon-barkley-rest-rushing-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
 **Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
 `A New Year’s Day attack in New Orleans killed at least 10 people.`\
 https://nytimes.com/2025/01/01/world/americas/vehicle-ramming-attacks.html
-
-**Dick Capri, Catskills Comic Who Took His Shtick to Broadway, Dies at 93**\
-`He was a regular at the mountain resorts where many comedians honed their acts, then had a star turn in the long-running revue “Catskills on Broadway.”`\
-https://nytimes.com/2025/01/01/theater/dick-capri-dead.html
 

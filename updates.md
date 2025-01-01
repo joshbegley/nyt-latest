@@ -1,3 +1,7 @@
+**Suspect in New Orleans Attack Is Identified as a Texan and Had an ISIS Flag With Him**\
+`In a YouTube video from 2020, the man identified as the suspect said he had been born and raised in Beaumont, Texas, and had served in the U.S. military.`\
+https://nytimes.com/2025/01/01/us/suspect-new-orleans-texan-isis-flag.html
+
 **Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
 `A New Year’s Day attack in New Orleans killed at least 10 people.`\
 https://nytimes.com/2025/01/01/world/americas/vehicle-ramming-attacks.html
