@@ -1,3 +1,7 @@
+**Bryce James, younger son of LeBron, commits to Arizona**\
+`Bryce James would be the second James kid to play college basketball in recent years, following Bronny James' one year at USC.`\
+https://nytimes.com/athletic/6031659/2025/01/01/bryce-james-lebron-arizona-college-basketball/
+
 **Plymouth director of football Dewsnip to leave following Rooney sacking**\
 `Plymouth Argyle director of football Neil Dewsnip is set to leave his role at the club following head coach Wayne Rooney&#8217;s exit.`\
 https://nytimes.com/athletic/6031440/2025/01/01/neil-dewsnip-plymouth-exit/
