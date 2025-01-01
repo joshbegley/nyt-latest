@@ -1,3 +1,7 @@
+**Corrections: Jan. 1, 2025**\
+`Corrections that appeared in print on Wednesday, Jan. 1, 2025.`\
+https://nytimes.com/2024/12/31/pageoneplus/corrections-jan-1-2025.html
+
 **Cam Fowler shines in 1,000th game, Blackhawks and Blues get physical: Winter Classic takeaways**\
 `Fowler celebrated his 1,000th game with two goals as the Blues beat the Blackhawks 6-2 at Wrigley Field.`\
 https://nytimes.com/athletic/6030613/2024/12/31/nhl-winter-classic-fowler-blues-blackhawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/arts/television/population-11-amazon-prime-video.
 **Chief Justice Roberts Condemns Threats to Judicial Independence**\
 `In his year-end report on the federal judiciary, the chief justice decried violence, intimidation and disinformation and warned against defiance of court rulings.`\
 https://nytimes.com/2024/12/31/us/politics/chief-justice-roberts-report.html
-
-**Week 18 N.F.L. Playoff Picture: Mapping the Paths for Each Team**\
-`With a week to go in the N.F.L. season, these detailed trees and scenarios explain every contender’s paths to the playoffs — and to better seeding.`\
-https://nytimes.com/interactive/2024/12/31/upshot/nfl-playoff-picture-week-18.html
 
