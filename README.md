@@ -1,3 +1,7 @@
+**The Briefing: Brentford 1 Arsenal 3 - Jesus scores again, Nwaneri's full debut and midfield balance**\
+`Amy Lawrence and Anantaajith Raghuraman analyse the main talking points from Arsenal's victory at Brentford`\
+https://nytimes.com/athletic/6017914/2025/01/01/brentford-arsenal-analysis/
+
 **Electric Vehicle Catches Fire Outside the Trump Hotel in Las Vegas**\
 `Videos posted to social media appeared to show a vehicle engulfed in flames outside a lobby’s entrance. It was not immediately clear if anyone was injured.`\
 https://nytimes.com/2025/01/01/us/car-fire-trump-hotel-las-vegas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/witnesses-french-quarter-attack.html
 **Barcelona remain hopeful on Olmo registration despite missing La Liga deadline**\
 `Barcelona have not given up hope that Dani Olmo will be able to play for them in the second half of the season despite missing the January 1 deadline to register him with La Liga.`\
 https://nytimes.com/athletic/6029414/2025/01/01/barcelona-dani-olmo-registration-la-liga/
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears take a 10-game losing streak into their finale. The coaching search and the 2025 roster are now the focus. What's on your mind?`\
-https://nytimes.com/athletic/6030624/2025/01/01/bears-mailbag-questions-43/
 
