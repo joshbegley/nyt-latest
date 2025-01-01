@@ -1,3 +1,11 @@
+**McVay: Jimmy Garoppolo to start for Rams in Week 18, Stetson Bennett will be backup**\
+`Matthew Stafford will get the Week 18 matchup vs. the Seahawks off and some rest in front of the Rams' playoff game.`\
+https://nytimes.com/athletic/6031869/2025/01/01/rams-matthew-stafford-out-jimmy-garoppolo-starting-seahawks/
+
+**What to Know About the Islamic State**\
+`The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
+https://nytimes.com/2025/01/01/world/isis-islamic-state.html
+
 **Justin Thomas: Presidents Cup snub has him ready 'to play a little pissed off'**\
 `Thomas was left off the Presidents Cup team. He hopes to be able to make it an easy call for Ryder Cup captain Keegan Bradley.`\
 https://nytimes.com/athletic/6032136/2025/01/01/justin-thomas-golf-presidents-cup-ryder-cup/

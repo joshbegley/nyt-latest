@@ -1,3 +1,7 @@
+**McVay: Jimmy Garoppolo to start for Rams in Week 18, Stetson Bennett will be backup**\
+`Matthew Stafford will get the Week 18 matchup vs. the Seahawks off and some rest in front of the Rams' playoff game.`\
+https://nytimes.com/athletic/6031869/2025/01/01/rams-matthew-stafford-out-jimmy-garoppolo-starting-seahawks/
+
 **Justin Thomas: Presidents Cup snub has him ready 'to play a little pissed off'**\
 `Thomas was left off the Presidents Cup team. He hopes to be able to make it an easy call for Ryder Cup captain Keegan Bradley.`\
 https://nytimes.com/athletic/6032136/2025/01/01/justin-thomas-golf-presidents-cup-ryder-cup/
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6032059/2025/01/01/nfl-draft-2025-cam-skattebo-scou
 
 **What to Know About the Islamic State**\
 `The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
-https://nytimes.com/2025/01/01/world/what-to-know-about-the-islamic-state.html
+https://nytimes.com/2025/01/01/world/isis-islamic-state.html
 
 **The attack was the deadliest in the U.S. in more than a year.**\
 `Less than a month ago, New York State authorities charged Luigi Mangione with an act of terrorism in the killing of a health care executive in a shooting in Midtown Manhattan.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/politics/trump-new-orleans.html
 **With Jaire Alexander likely out for season, how will the Packers adjust?**\
 `The two-time All-Pro cornerback has been dealing with a knee injury since Week 8.`\
 https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-injury/
-
-**New Orleans Attacker Evaded a Security System Under Repair**\
-`Bollards that normally protect pedestrians from vehicles were to be replaced as part of the city’s preparations for the Super Bowl next month. The attacker drove his pickup around a police vehicle parked to block traffic from the street he struck.`\
-https://nytimes.com/2025/01/01/us/new-orleans-attack-security-system-under-repair.html
 
