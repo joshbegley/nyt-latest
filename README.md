@@ -1,3 +1,7 @@
+**Fowler shines in 1,000th game, Blackhawks and Blues get physical: Winter Classic takeaways**\
+`Cam Fowler celebrated his 1,000th game with two goals as the Blues beat the Blackhawks 6-2 at Wrigley Field.`\
+https://nytimes.com/athletic/6030613/2024/12/31/nhl-winter-classic-fowler-blues-blackhawks/
+
 **Michigan suddenly looks like it knows where it's going after upsets of Alabama, Ohio State**\
 `Michigan pulled off its second consecutive big upset in the ReliaQuest Bowl, taking down Alabama a month after stunning Ohio State.`\
 https://nytimes.com/athletic/6030632/2024/12/31/michigan-alabama-reliaquest-bowl-sherrone-moore/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/us/politics/chief-justice-roberts-report.html
 **Week 18 N.F.L. Playoff Picture: Mapping the Paths for Each Team**\
 `With a week to go in the N.F.L. season, these detailed trees and scenarios explain every contender’s paths to the playoffs — and to better seeding.`\
 https://nytimes.com/interactive/2024/12/31/upshot/nfl-playoff-picture-week-18.html
-
-**The Best Movies and TV Shows Coming to Netflix in January**\
-`January will see a deluge of new titles to the streamer for U.S. subscribers. Here’s a roundup of the best and most promising.`\
-https://nytimes.com/2024/12/31/arts/television/netflix-new-january.html
 
