@@ -1,3 +1,7 @@
+**Why the F.B.I. Is Investigating the Bourbon Street Attack as Terrorism**\
+`The F.B.I. defines international terrorism as violence inspired by foreign terrorist groups. Domestic terrorism is defined as violence meant to further ideological goals or intimidate civilians.`\
+https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
+
 **Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
 `A New Year’s Day attack in New Orleans killed at least 10 people.`\
 https://nytimes.com/2025/01/01/world/vehicle-ramming-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/arts/design/thomas-schutte-art-humor-moma-sculptu
 **How Do I Discourage My Remote Colleagues from Taking Secret Second Jobs?**\
 `The magazine’s Ethicist columnist on employees who pull double duty at different companies.`\
 https://nytimes.com/2025/01/01/magazine/remote-work-second-jobs-ethics.html
-
-**Victim in Subway Shoving Suffered a Broken Skull and Other Injuries**\
-`The suspect, Kamel Hawkins, has been charged with attempted murder and was arraigned on Wednesday morning.`\
-https://nytimes.com/2025/01/01/nyregion/subway-shoving-victim-injuries.html
 
