@@ -1,3 +1,11 @@
+**What to Know About the Islamic State**\
+`The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
+https://nytimes.com/2025/01/01/world/what-to-know-about-the-islamic-state.html
+
+**The attack was the deadliest in the U.S. in more than a year.**\
+`Less than a month ago, New York State authorities charged Luigi Mangione with an act of terrorism in the killing of a health care executive in a shooting in Midtown Manhattan.`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/terror-attacks
+
 **Stream These 11 Titles Before They Leave Netflix in January**\
 `A bunch of great titles depart this month for U.S. subscribers, including a few beloved TV series and several acclaimed comedy and horror movies.`\
 https://nytimes.com/2025/01/01/arts/television/netflix-leaving-movies-tv-january.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
 **Officials Trying to Determine if New Orleans Suspect Had Ties to Terrorist Groups**\
 `U.S. officials have warned that the conflict in Gaza and Lebanon could spill into the United States, most likely in the form of small radicalized groups acting on their own initiative or lone-wolf terrorists.`\
 https://nytimes.com/2025/01/01/us/politics/new-orleans-attack-terrorism.html
-
-**Barnsley 2 Wrexham 1: A glaring defensive weakness and a remarkable record preserved**\
-`The big talking points after Wrexham dropped three points in the race for promotion `\
-https://nytimes.com/athletic/6029256/2025/01/01/wrexham-barnsley-defensive-weakness-remarkable-record/
-
-**Outspoken N.Y.P.D. Chief Is Tapped for Top Uniformed Position**\
-`Chief John Chell, a 30-year veteran of the Police Department, has publicly sparred with members of the media and liberal politicians.`\
-https://nytimes.com/2025/01/01/nyregion/outspoken-nypd-chief-is-tapped-for-top-uniformed-position.html
 
