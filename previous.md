@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6030632/2024/12/31/michigan-alabama-reliaquest-bowl
 `Bielema said postgame he did the "T-bar" motion to "to the whole damn sideline" and not just Beamer.`\
 https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illinois-bret-bielema-cheez-it-citrus-bowl/
 
-**‘He Saved Our Lives.’ Former Hostages Recall Carter’s Quest to Free Them**\
-`The Iran hostage crisis became a symbol of a failed presidency, but for some of those who lived it, Jimmy Carter was the one who brought them home at the expense of his own political career.`\
+**‘He Saved Our Lives’: Former Hostages Recall Carter’s Quest to Free Them**\
+`The Iran hostage crisis became a symbol of a failed presidency, but for some of those who lived it, Jimmy Carter was the one who brought them home at the expense of his political career.`\
 https://nytimes.com/2024/12/31/us/politics/jimmy-carter-hostages.html
 
 **Dartmouth College Basketball Players Halt Effort to Unionize**\

@@ -1,3 +1,7 @@
+**‘He Saved Our Lives’: Former Hostages Recall Carter’s Quest to Free Them**\
+`The Iran hostage crisis became a symbol of a failed presidency, but for some of those who lived it, Jimmy Carter was the one who brought them home at the expense of his political career.`\
+https://nytimes.com/2024/12/31/us/politics/jimmy-carter-hostages.html
+
 **Corrections: Jan. 1, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 1, 2025.`\
 https://nytimes.com/2024/12/31/pageoneplus/corrections-jan-1-2025.html
