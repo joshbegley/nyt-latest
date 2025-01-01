@@ -1,3 +1,7 @@
+**Ivory Coast Says French Forces Will Withdraw**\
+`The troops are expected to leave this month as France, a former colonial power in West Africa, fast loses influence there.`\
+https://nytimes.com/2025/01/01/world/africa/ivory-coast-france-troop-withdrawal.html
+
 **Murders Plunge**\
 `We have good news to start your 2025.`\
 https://nytimes.com/2025/01/01/briefing/murders-plunge.html

@@ -1,3 +1,7 @@
+**Ivory Coast Says French Forces Will Withdraw**\
+`The troops are expected to leave this month as France, a former colonial power in West Africa, fast loses influence there.`\
+https://nytimes.com/2025/01/01/world/africa/ivory-coast-france-troop-withdrawal.html
+
 **Murders Plunge**\
 `We have good news to start your 2025.`\
 https://nytimes.com/2025/01/01/briefing/murders-plunge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026943/2025/01/01/ny-knicks-mikal-bridges-josh-har
 **Wordle Review No. 1,293**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
 https://nytimes.com/2025/01/01/crosswords/wordle-review-1293.html
-
-**The Connections Companion No. 571**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
-https://nytimes.com/2025/01/01/crosswords/connections-companion-571.html
 
