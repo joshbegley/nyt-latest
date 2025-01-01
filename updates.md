@@ -1,3 +1,7 @@
+**Live Updates: At Least 10 Killed as Vehicle Drives Into New Orleans Crowd**\
+`At least 30 more people were injured when a vehicle drove into a large crowd on Bourbon Street in the early hours of New Year’s Day, the city said.`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash
+
 **Man City Women sign defender Knaak from Rosengard**\
 `Manchester City have completed the signing of defender Rebecca Knaak from FC Rosengard.`\
 https://nytimes.com/athletic/6031175/2025/01/01/rebecca-knaak-manchester-city-transfer/
