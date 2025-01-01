@@ -1,3 +1,11 @@
+**Seko Fofana leaves Al Nassr to join Rennes**\
+`Ligue 1 side Rennes have completed the signing of midfielder Seko Fofana from Al Nassr.`\
+https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-rennes/
+
+**A Street Security System in New Orleans Was Under Construction**\
+`The bollards that prevent traffic from entering some streets in the French Quarter, where a man drove a truck into crowds of people, were being replaced, according to a city website.`\
+https://nytimes.com/2025/01/01/us/new-orleans-security-bollards-construction-bourbon-street.html
+
 **The French Quarter is New Orleans’s most famous tourist attraction.**\
 `The six-by-13 block area, on the curving bank of the Mississippi River, is known for vibrant festivals and parties that attract revelers from across the United States and abroad.`\
 https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
