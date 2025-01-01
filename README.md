@@ -1,3 +1,15 @@
+**Slot has brought control and consistency to Liverpool - the proven recipe for success**\
+`Liverpool’s boss understands that teams win leagues when their ‘average’ performance is good enough to consistently pick up points`\
+https://nytimes.com/athletic/6026932/2025/01/01/arne-slot-liverpool-title-race-flawless/
+
+**What will Thomas Tuchel do on his first day as England manager?**\
+`Thomas Tuchel officially starts as England manager today. So what will he be doing?`\
+https://nytimes.com/athletic/6021619/2025/01/01/thomas-tuchel-first-day-england-manager/
+
+**Best of 2024 from The Athletic UK: our staff pick their favourite pieces (by their colleagues)**\
+`We didn't expect to write about flowery wallpapers in 2024. We did expect to write about Erik ten Hag, and Jurgen Klopp, and Lamine Yamal...`\
+https://nytimes.com/athletic/6029726/2025/01/01/athletic-best-work-2024-football-tennis-athletics/
+
 **Yohe's 10 observations: Erik Karlsson penalty leads to Detroit game-winner**\
 `Drew O'Connor scored both Penguins goals to end his 32-game scoreless streak in a 4-2 loss to Detroit on Tuesday.`\
 https://nytimes.com/athletic/6028947/2025/01/01/penguins-karlsson-penalty-oconnor-red-wings/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/01/world/americas/mexico-mayor-cartels-deportations.
 **Quote of the Day: Syria Refugees in Germany Fear Having to Leave Home Yet Again**\
 `Quotation of the Day for Wednesday, January 1, 2025.`\
 https://nytimes.com/2025/01/01/pageoneplus/quote-of-the-day-syria-refugees-in-germany-fear-having-to-leave-home-yet-again.html
-
-**Week 18 fantasy football rankings: Waivers, projections, starts, Ricky Pearsall, Ameer Abdullah**\
-`Jake Ciely helps you make sense of your lineup for the final time of 2024, ranking players and offering key insights for Week 18.`\
-https://nytimes.com/athletic/6030230/2025/01/01/week-18-fantasy-football-rankings-waivers-projections-starts-rikcy-pearsall-ameer-abdullah/
-
-**How an Old Laptop Is Transformed Into 9-Karat Gold Earrings   **\
-`After 1,000 years of making coins, Britain’s Royal Mint has a new focus: turning electronic waste into jewelry.`\
-https://nytimes.com/card/2025/01/01/business/uk-royal-mint-jewelry
-
-**Trump Says He Plans to Attend Carter’s Funeral**\
-`In wide-ranging remarks at a New Year’s Eve party at Mar-a-Lago, the president-elect also predicted that Mike Johnson would secure enough votes to be re-elected as House speaker.`\
-https://nytimes.com/2024/12/31/us/politics/trump-carter-funeral.html
 
