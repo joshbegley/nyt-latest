@@ -1,5 +1,5 @@
 **Fowler shines in 1,000th game, Blackhawks and Blues get physical: Winter Classic takeaways**\
-`Cam Fowler celebrated his 1,000th game with two goals as the Blues beat the Blackhawks 6-2 at Wrigley Field.`\
+`Fowler celebrated his 1,000th game with two goals as the Blues beat the Blackhawks 6-2 at Wrigley Field.`\
 https://nytimes.com/athletic/6030613/2024/12/31/nhl-winter-classic-fowler-blues-blackhawks/
 
 **Michigan suddenly looks like it knows where it's going after upsets of Alabama, Ohio State**\
