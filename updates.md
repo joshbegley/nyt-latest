@@ -1,3 +1,11 @@
+**A Certain Tankful**\
+`Seth Bisen-Hersh and Jeff Chen take it from the top.`\
+https://nytimes.com/2024/12/31/crosswords/daily-puzzle-2025-01-01.html
+
+**Outdoors, indoors, it's all the same: Blackhawks let down themselves and their fans again**\
+`Even under the bright lights of the Winter Classic at Wrigley Field, it was the same old story for the Blackhawks.`\
+https://nytimes.com/athletic/6030726/2024/12/31/blackhawks-nhl-winter-classic-blues/
+
 **‘He Saved Our Lives’: Former Hostages Recall Carter’s Quest to Free Them**\
 `The Iran hostage crisis became a symbol of a failed presidency, but for some of those who lived it, Jimmy Carter was the one who brought them home at the expense of his political career.`\
 https://nytimes.com/2024/12/31/us/politics/jimmy-carter-hostages.html

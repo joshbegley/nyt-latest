@@ -1,3 +1,11 @@
+**A Certain Tankful**\
+`Seth Bisen-Hersh and Jeff Chen take it from the top.`\
+https://nytimes.com/2024/12/31/crosswords/daily-puzzle-2025-01-01.html
+
+**Outdoors, indoors, it's all the same: Blackhawks let down themselves and their fans again**\
+`Even under the bright lights of the Winter Classic at Wrigley Field, it was the same old story for the Blackhawks.`\
+https://nytimes.com/athletic/6030726/2024/12/31/blackhawks-nhl-winter-classic-blues/
+
 **Corrections: Jan. 1, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 1, 2025.`\
 https://nytimes.com/2024/12/31/pageoneplus/corrections-jan-1-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6030491/2024/12/31/49ers-jake-moody-jauan-jennings/
 **Congestion Pricing to Start Sunday, After Last-Minute Meeting With Judge**\
 `New Jersey had sued in an attempt to halt New York’s plan to charge motorists entering Manhattan’s busiest roadways.`\
 https://nytimes.com/2024/12/31/nyregion/congestion-pricing-new-york-new-jersey.html
-
-**‘Population 11’ Is a Peppy Small-Town Outback Mystery**\
-`The new Amazon series isn’t reinventing the TV mystery, but it is a fun and clever watch, buoyed by a few well-timed and energetic twists`\
-https://nytimes.com/2024/12/31/arts/television/population-11-amazon-prime-video.html
-
-**Chief Justice Roberts Condemns Threats to Judicial Independence**\
-`In his year-end report on the federal judiciary, the chief justice decried violence, intimidation and disinformation and warned against defiance of court rulings.`\
-https://nytimes.com/2024/12/31/us/politics/chief-justice-roberts-report.html
 
