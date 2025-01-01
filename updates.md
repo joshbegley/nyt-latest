@@ -1,3 +1,19 @@
+**Live Updates: At Least 10 Killed as Vehicle Drives Into New Orleans Crowd**\
+`At least 30 more people were injured when a vehicle drove into a large crowd on Bourbon Street overnight, the city said.`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash
+
+**Lowetide: Why Adam Henrique's struggles a troubling development for the Oilers**\
+`Henrique's season for the Oilers has been uneven, and the underlying numbers don't look any better.`\
+https://nytimes.com/athletic/6029703/2025/01/01/adam-henrique-edmonton-oilers-stats/
+
+**Whether it's via a trade, free agency or the draft, the Raiders need an upgrade at QB**\
+`Aidan O'Connell might compete for the starting job again in 2025, but the Raiders are likely hoping to make a move to improve their QB unit.`\
+https://nytimes.com/athletic/6027938/2025/01/01/raiders-quarterback-future-trade-free-agency-draft/
+
+**Here’s the latest on the deaths in New Orleans.**\
+`At least 30 more were injured after a vehicle drove into a large crowd on Bourbon Street early Wednesday, the city said.`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/new-orleans-vehicle-crash
+
 **Mandel: Penn State powers into CFP semis to carry Big Ten flag, while SEC no longer looks untouchable**\
 `Penn State trucked Boise State on New Year's Eve to ensure its conference will claim half of next week’s CFP semifinal field.`\
 https://nytimes.com/athletic/6031122/2025/01/01/penn-state-boise-state-big-ten-sec/
