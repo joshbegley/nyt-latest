@@ -1,3 +1,7 @@
+**Trump Says He Plans to Attend Carter’s Funeral**\
+`In wide-ranging remarks at a New Year’s Eve party at Mar-a-Lago, the president-elect also predicted that Mike Johnson would secure enough votes to be re-elected as House speaker.`\
+https://nytimes.com/2024/12/31/us/politics/trump-carter-funeral.html
+
 **How Penn State stuffed Ashton Jeanty, kept Playoff run rolling: Fiesta Bowl takeaways**\
 `Penn State pulled away from Boise State 31-14 in Tuesday's Fiesta Bowl, earning the first spot in the semifinals. Here's how it happened.`\
 https://nytimes.com/athletic/6030782/2024/12/31/penn-state-boise-state-fiesta-bowl-score/

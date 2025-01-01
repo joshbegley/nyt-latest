@@ -1,3 +1,7 @@
+**Trump Says He Plans to Attend Carter’s Funeral**\
+`In wide-ranging remarks at a New Year’s Eve party at Mar-a-Lago, the president-elect also predicted that Mike Johnson would secure enough votes to be re-elected as House speaker.`\
+https://nytimes.com/2024/12/31/us/politics/trump-carter-funeral.html
+
 **How Penn State stuffed Ashton Jeanty, kept Playoff run rolling: Fiesta Bowl takeaways**\
 `Penn State pulled away from Boise State 31-14 in Tuesday's Fiesta Bowl, earning the first spot in the semifinals. Here's how it happened.`\
 https://nytimes.com/athletic/6030782/2024/12/31/penn-state-boise-state-fiesta-bowl-score/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/pageoneplus/corrections-jan-1-2025.html
 **Cam Fowler shines in 1,000th game, Blackhawks and Blues get physical: Winter Classic takeaways**\
 `Fowler celebrated his 1,000th game with two goals as the Blues beat the Blackhawks 6-2 at Wrigley Field.`\
 https://nytimes.com/athletic/6030613/2024/12/31/nhl-winter-classic-fowler-blues-blackhawks/
-
-**Michigan suddenly looks like it knows where it's going after upsets of Alabama, Ohio State**\
-`Michigan pulled off its second consecutive big upset in the ReliaQuest Bowl, taking down Alabama a month after stunning Ohio State.`\
-https://nytimes.com/athletic/6030632/2024/12/31/michigan-alabama-reliaquest-bowl-sherrone-moore/
 
