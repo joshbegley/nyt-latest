@@ -1,3 +1,7 @@
+**She’s a Famous Author With a Secret Identity. Now She’s Ready to Emerge.**\
+`In Kate Fagan’s novel, “The Three Lives of Cate Kay,” a best-selling writer decides to reveal the tragedy behind her success.`\
+https://nytimes.com/2025/01/01/books/review/the-three-lives-of-cate-kay-kate-fagan.html
+
 **Giannis Antetokounmpo’s midrange mastery highlights Bucks trends**\
 `As Giannis and Lillard return, let's take a closer look at the micro and macro trends that have affected the Bucks over the last week.`\
 https://nytimes.com/athletic/6029478/2025/01/01/giannis-antetokounmpo-return-bucks-trends-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/april-2
 **Spring: The Axiom-4 mission may carry Indian, Polish and Hungarian astronauts to the International Space Station.**\
 `By Michael Roston`\
 https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/spring-the-axiom-4-mission-may-carry-indian-polish-and-hungarian-astronauts-to-the-international-space-station
-
-**March: NASA and India’s space agency could launch the NISAR spacecraft to map Earth’s surface.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/march-nasa-and-indias-space-agency-could-launch-the-nisar-spacecraft-to-map-earths-surface
 
