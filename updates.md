@@ -1,3 +1,7 @@
+**The French Quarter is New Orleans’s most famous tourist attraction.**\
+`The six-by-13 block area, on the curving bank of the Mississippi River, is known for vibrant festivals and parties that attract revelers from across the United States and abroad.`\
+https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
+
 **The Acid Comedy of Thomas Schütte, the Man in the Mud**\
 `In a MoMA retrospective filled with humorous angst, the German sculptor offers a prime 2025 resolution: Don’t run from failure.`\
 https://nytimes.com/2025/01/01/arts/design/thomas-schutte-art-humor-moma-sculpture.html
