@@ -1,3 +1,11 @@
+**Seko Fofana leaves Al Nassr to join Rennes**\
+`Ligue 1 side Rennes have completed the signing of midfielder Seko Fofana from Al Nassr.`\
+https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-rennes/
+
+**A Street Security System in New Orleans Was Under Construction**\
+`The bollards that prevent traffic from entering some streets in the French Quarter, where a man drove a truck into crowds of people, were being replaced, according to a city website.`\
+https://nytimes.com/2025/01/01/us/new-orleans-security-bollards-construction-bourbon-street.html
+
 **The French Quarter is New Orleans’s most famous tourist attraction.**\
 `The six-by-13 block area, on the curving bank of the Mississippi River, is known for vibrant festivals and parties that attract revelers from across the United States and abroad.`\
 https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/01/us/spanberger-congress.html
 **Police work to ensure Sugar Bowl safety after man rams truck into New Orleans crowd**\
 `The crash happened around 4:15 a.m. ET about a mile from the Superdome, the site for the Sugar Bowl between Georgia and Notre Dame.`\
 https://nytimes.com/athletic/6031324/2025/01/01/new-orleans-truck-attack-sugar-bowl/
-
-**What’s in Our Queue? ‘Homicide’ and More **\
-`Text by Andrés R. Martínez`\
-https://nytimes.com/card/2025/01/01/arts/editors-recommendations-homocide
-
-**What We Know About the Attack in the French Quarter of New Orleans**\
-`A man drove a pickup truck into crowds celebrating the New Year on Bourbon Street in the early morning, killing at least 10 people and injuring dozens.`\
-https://nytimes.com/2025/01/01/us/new-orleans-attack-what-we-know.html
 
