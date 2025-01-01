@@ -1,3 +1,11 @@
+**With three letters, Jalen Johnson is helping to mold Hawks' new identity**\
+`Atlanta is no longer just the Trae Young show on offense, and the guard has found a qualified co-star to orchestrate things.`\
+https://nytimes.com/athletic/6028892/2025/01/01/trae-young-jalen-johnson-hawks-offense/
+
+**Three Notre Dame keys and a prediction: Can Riley Leonard's legs beat Georgia?**\
+`Georgia's talent and Notre Dame's injuries present hurdles, but there's reason to believe the Irish can get over the hump Wednesday.`\
+https://nytimes.com/athletic/6030284/2025/01/01/notre-dame-georgia-sugar-bowl-prediction/
+
 **Tensions Escalate After Pakistan Pounds Afghanistan With Airstrikes**\
 `Pakistani leaders were once friends of the Taliban in Afghanistan. Now, cross-border violence has become alarmingly frequent.`\
 https://nytimes.com/2025/01/01/world/asia/pakistan-afghanistan-taliban.html
