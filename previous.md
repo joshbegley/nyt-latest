@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6030613/2024/12/31/nhl-winter-classic-fowler-blues-
 https://nytimes.com/athletic/6030632/2024/12/31/michigan-alabama-reliaquest-bowl-sherrone-moore/
 
 **Beamer never saw anything like Bielema's Citrus Bowl taunt 'in all my years of football'**\
-`Emotions flared at Tuesday's bowl game as staff held back the South Carolina and Illinois coach on the field.`\
+`Bielema said postgame he did the "T-bar" motion to "to the whole damn sideline" and not just Beamer.`\
 https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illinois-bret-bielema-cheez-it-citrus-bowl/
 
 **‘He Saved Our Lives.’ Former Hostages Recall Carter’s Quest to Free Them**\
