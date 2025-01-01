@@ -1,3 +1,7 @@
+**Corrections: Jan. 1, 2025**\
+`Corrections that appeared in print on Wednesday, Jan. 1, 2025.`\
+https://nytimes.com/2024/12/31/pageoneplus/corrections-jan-1-2025.html
+
 **Beamer never saw anything like Bielema's Citrus Bowl taunt 'in all my years of football'**\
 `Bielema said postgame he did the "T-bar" motion to "to the whole damn sideline" and not just Beamer.`\
 https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illinois-bret-bielema-cheez-it-citrus-bowl/
