@@ -1,3 +1,15 @@
+**Justin Thomas: Presidents Cup snub has him ready 'to play a little pissed off'**\
+`Thomas was left off the Presidents Cup team. He hopes to be able to make it an easy call for Ryder Cup captain Keegan Bradley.`\
+https://nytimes.com/athletic/6032136/2025/01/01/justin-thomas-golf-presidents-cup-ryder-cup/
+
+**Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
+`A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
+https://nytimes.com/athletic/6032129/2025/01/01/asu-texas-targeting-peach-bowl-playoff/
+
+**What is Cam Skattebo's potential as a 2025 NFL Draft prospect?**\
+`Skattebo barely registered on the 2025 draft radar heading into the season. How high is his stock now?`\
+https://nytimes.com/athletic/6032059/2025/01/01/nfl-draft-2025-cam-skattebo-scouting-report/
+
 **Deadly New Year’s Day Attack in New Orleans**\
 `At least 15 people were killed in the early hours of New Year’s Day when a man plowed a truck into crowds on Bourbon Street.`\
 https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html

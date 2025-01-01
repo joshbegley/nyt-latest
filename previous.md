@@ -1,3 +1,15 @@
+**Justin Thomas: Presidents Cup snub has him ready 'to play a little pissed off'**\
+`Thomas was left off the Presidents Cup team. He hopes to be able to make it an easy call for Ryder Cup captain Keegan Bradley.`\
+https://nytimes.com/athletic/6032136/2025/01/01/justin-thomas-golf-presidents-cup-ryder-cup/
+
+**Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
+`A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
+https://nytimes.com/athletic/6032129/2025/01/01/asu-texas-targeting-peach-bowl-playoff/
+
+**What is Cam Skattebo's potential as a 2025 NFL Draft prospect?**\
+`Skattebo barely registered on the 2025 draft radar heading into the season. How high is his stock now?`\
+https://nytimes.com/athletic/6032059/2025/01/01/nfl-draft-2025-cam-skattebo-scouting-report/
+
 **What to Know About the Islamic State**\
 `The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
 https://nytimes.com/2025/01/01/world/what-to-know-about-the-islamic-state.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-inj
 **New Orleans Attacker Evaded a Security System Under Repair**\
 `Bollards that normally protect pedestrians from vehicles were to be replaced as part of the city’s preparations for the Super Bowl next month. The attacker drove his pickup around a police vehicle parked to block traffic from the street he struck.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-security-system-under-repair.html
-
-**Cybertruck Explodes Outside Trump Hotel in Las Vegas**\
-`A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
-https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
-
-**Deadly New Year’s Day Attack in New Orleans**\
-`At least 15 people were killed in the early hours of New Year’s Day when a man plowed a truck into crowds on Bourbon Street.`\
-https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
-
-**Officials Trying to Determine if New Orleans Suspect Had Ties to Terrorist Groups**\
-`U.S. officials have warned that the conflict in Gaza and Lebanon could spill into the United States, most likely in the form of small radicalized groups acting on their own initiative or lone-wolf terrorists.`\
-https://nytimes.com/2025/01/01/us/politics/new-orleans-attack-terrorism.html
 
