@@ -1,3 +1,7 @@
+**What We Know About the Attack in the French Quarter of New Orleans**\
+`A man drove a pickup truck into crowds celebrating the New Year on Bourbon Street in the early morning, killing at least 10 people and injuring dozens.`\
+https://nytimes.com/2025/01/01/us/new-orleans-attack-what-we-know.html
+
 **Rooney's Plymouth exit: Sinking morale, off-field criticism - and regret**\
 `Plymouth's executives wanted to back ex-England striker but his position became untenable`\
 https://nytimes.com/athletic/6030096/2025/01/01/wayne-rooney-plymouth-sack-inside-story/
@@ -33,8 +37,4 @@ https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/dec-12-
 **Sept. 22: Autumn is here.**\
 `By Michael Roston`\
 https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-22-autumn-is-here
-
-**Aug. 12-13: The Perseids meteor shower will reach its peak.**\
-`By Katrina Miller`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/aug-12-13-the-perseids-meteor-shower-will-reach-its-peak
 
