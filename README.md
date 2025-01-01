@@ -1,3 +1,11 @@
+**Partisan Judges and Public Disrespect**\
+`Readers discuss the plummeting respect for the judicial system. Also: Syria sanctions; religion and Democrats; medical uses of psychedelics.`\
+https://nytimes.com/2025/01/01/opinion/letters/partisan-judges-public-disrespect.html
+
+**My One-Pan Orzo With Spinach for Jan. 1**\
+`With five stars and more than 11,000 reviews, it’s a very green (and very easy) recipe to kick off the new year.`\
+https://nytimes.com/2025/01/01/dining/my-one-pan-orzo-with-spinach-for-jan-1.html
+
 **Democrats’ Battleground Leader, Exiting Congress, Reflects on What She Learned**\
 `Representative Abigail Spanberger of Virginia, the only Democrat in a leadership position to leave Congress this year, talked about her party, her competitive district, and what the Trump era has in store.`\
 https://nytimes.com/2025/01/01/us/spanberger-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/01/opinion/joy-solitude.html
 **My Two Best Friends Started Dating Each Other. I’m Livid!**\
 `Feeling slighted after a former flame paired up with an old friend she met through him, a middle-aged reader cut off contact with both. So why does he feel so bad?`\
 https://nytimes.com/2025/01/01/style/ex-new-relationship-with-friend.html
-
-**She’s a Famous Author With a Secret Identity. Now She’s Ready to Emerge.**\
-`In Kate Fagan’s novel, “The Three Lives of Cate Kay,” a best-selling writer decides to reveal the tragedy behind her success.`\
-https://nytimes.com/2025/01/01/books/review/the-three-lives-of-cate-kay-kate-fagan.html
-
-**Giannis Antetokounmpo’s midrange mastery highlights Bucks trends**\
-`As Giannis and Lillard return, let's take a closer look at the micro and macro trends that have affected the Bucks over the last week.`\
-https://nytimes.com/athletic/6029478/2025/01/01/giannis-antetokounmpo-return-bucks-trends-nba/
 
