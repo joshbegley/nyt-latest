@@ -1,3 +1,7 @@
+**Anderson Cooper and Andy Cohen Dish About Their New Year’s Eve Show**\
+`The morning after the two were live on CNN, they talked about tequila shots, Diplo and Cohen’s dancing skills.`\
+https://nytimes.com/2025/01/01/arts/television/anderson-cooper-andy-cohen-nye-show.html
+
 **Wild's Jared Spurgeon to get MRI after slew foot — Predators' Zach L'Heureux gets phone hearing**\
 `Even though he is not deemed a "repeat offender" by the NHL, at only 21 years old, L'Heureux has been suspended 11 times at lower levels.`\
 https://nytimes.com/athletic/6031502/2025/01/01/wilds-jared-spurgeon-slew-foot-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/theater/dick-capri-dead.html
 **Review: The Met’s New ‘Aida’ Stages Spectacle Without Horses**\
 `Michael Mayer directs Verdi’s classic as an archaeologist’s discovery, featuring the shining soprano Angel Blue.`\
 https://nytimes.com/2025/01/01/arts/music/review-met-opera-verdi-aida.html
-
-**Scenes From New Orleans After Attack on New Year’s Day**\
-`A man drove a pickup truck into the crowds on Bourbon Street early Wednesday morning, killing at least 10 people.`\
-https://nytimes.com/2025/01/01/us/new-orleans-vehicle-attack-photos.html
 
