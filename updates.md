@@ -1,3 +1,11 @@
+**Dick Capri, Catskills Comic Who Took His Shtick to Broadway, Dies at 93**\
+`He was a regular at the mountain resorts where many comedians honed their acts, then had a star turn in the long-running revue “Catskills on Broadway.”`\
+https://nytimes.com/2025/01/01/theater/dick-capri-dead.html
+
+**Review: The Met’s New ‘Aida’ Stages Spectacle Without Horses**\
+`Michael Mayer directs Verdi’s classic as an archaeologist’s discovery, featuring the shining soprano Angel Blue.`\
+https://nytimes.com/2025/01/01/arts/music/review-met-opera-verdi-aida.html
+
 **Scenes From New Orleans After Attack on New Year’s Day**\
 `A man drove a pickup truck into the crowds on Bourbon Street early Wednesday morning, killing at least 10 people.`\
 https://nytimes.com/2025/01/01/us/new-orleans-vehicle-attack-photos.html
