@@ -1,3 +1,23 @@
+**Yohe's 10 observations: Erik Karlsson penalty leads to Detroit game-winner**\
+`Drew O'Connor scored both Penguins goals to end his 32-game scoreless streak in a 4-2 loss to Detroit on Tuesday.`\
+https://nytimes.com/athletic/6028947/2025/01/01/penguins-karlsson-penalty-oconnor-red-wings/
+
+**De Bruyne, Kimmich, Van Dijk and more: The top out-of-contract players available as free agents**\
+`There are a number of elite players set to be available as free agents in the summer - and negotiations with other clubs can now begin`\
+https://nytimes.com/athletic/6026877/2025/01/01/free-agents-out-of-contract-transfer-latest/
+
+**Wednesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/01/briefing/new-year-2025.html
+
+**WSL and UWCL players to watch in 2025: Who will become a household name?**\
+`With a European Championship taking place in Switzerland in the summer, there will be even more of a rush for youngsters to prove themselves`\
+https://nytimes.com/athletic/6029195/2025/01/01/2025-players-to-watch-wsl-uwcl/
+
+**The player at each Premier League club who needs a move this transfer window**\
+`With the January transfer window open, we asked our writers which players, for various reasons, might be looking for a move.`\
+https://nytimes.com/athletic/6014938/2025/01/01/premier-league-transfer-players-needing-move/
+
 **A Mayor’s Odyssey: From Undocumented Migrant to Cartel Target**\
 `A former undocumented resident of California who now runs a town in Mexico, Crispín Agustín Mendoza has survived one assassination attempt. But he says, “I have to learn how to survive.”`\
 https://nytimes.com/2025/01/01/world/americas/mexico-mayor-cartels-deportations.html
@@ -17,24 +37,4 @@ https://nytimes.com/card/2025/01/01/business/uk-royal-mint-jewelry
 **Trump Says He Plans to Attend Carter’s Funeral**\
 `In wide-ranging remarks at a New Year’s Eve party at Mar-a-Lago, the president-elect also predicted that Mike Johnson would secure enough votes to be re-elected as House speaker.`\
 https://nytimes.com/2024/12/31/us/politics/trump-carter-funeral.html
-
-**How Penn State stuffed Ashton Jeanty, kept Playoff run rolling: Fiesta Bowl takeaways**\
-`Penn State pulled away from Boise State 31-14 in Tuesday's Fiesta Bowl, earning the first spot in the semifinals. Here's how it happened.`\
-https://nytimes.com/athletic/6030782/2024/12/31/penn-state-boise-state-fiesta-bowl-score/
-
-**Canada lacks discipline, USA's secondary scoring continues on New Year's Eve at World Juniors**\
-`The results of Canada-USA and Sweden-Czechia on Tuesday decided first place in the two groups.`\
-https://nytimes.com/athletic/6006903/2024/12/31/canada-usa-world-juniors-2025/
-
-**USA beats Canada at World Juniors on New Year's Eve**\
-`Hutson and Eiserman each scored a goal and an assist in a 4-1 United States victory over Canada on Tuesday night.`\
-https://nytimes.com/athletic/6027632/2024/12/31/usa-canada-world-juniors-2025-nye/
-
-**Blues improve to 3-0 in Winter Classics, making memories for themselves and fans**\
-`The Blues won their third Winter Classic 6-2 over the Blackhawks, following victories over Chicago in 2017 and Minnesota in 2022.`\
-https://nytimes.com/athletic/6030412/2024/12/31/blues-winter-classic-memories-fight/
-
-**China’s Leader Nods to Economic Challenges**\
-`In a New Year’s address, Xi Jinping made a rare acknowledgment of the flagging economy while reiterating the government’s growth targets.`\
-https://nytimes.com/2024/12/31/business/xi-jinping-china-economy.html
 
