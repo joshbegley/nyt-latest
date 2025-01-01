@@ -1,3 +1,7 @@
+**Michigan suddenly looks like it knows where it's going after upsets of Alabama, Ohio State**\
+`Michigan pulled off its second consecutive big upset in the ReliaQuest Bowl, taking down Alabama a month after stunning Ohio State.`\
+https://nytimes.com/athletic/6030632/2024/12/31/michigan-alabama-reliaquest-bowl-sherrone-moore/
+
 **Beamer never saw anything like Bielema's Citrus Bowl taunt 'in all my years of football'**\
 `Emotions flared at Tuesday's bowl game as staff held back the South Carolina and Illinois coach on the field.`\
 https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illinois-bret-bielema-cheez-it-citrus-bowl/

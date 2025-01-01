@@ -1,3 +1,7 @@
+**Michigan suddenly looks like it knows where it's going after upsets of Alabama, Ohio State**\
+`Michigan pulled off its second consecutive big upset in the ReliaQuest Bowl, taking down Alabama a month after stunning Ohio State.`\
+https://nytimes.com/athletic/6030632/2024/12/31/michigan-alabama-reliaquest-bowl-sherrone-moore/
+
 **Beamer never saw anything like Bielema's Citrus Bowl taunt 'in all my years of football'**\
 `Emotions flared at Tuesday's bowl game as staff held back the South Carolina and Illinois coach on the field.`\
 https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illinois-bret-bielema-cheez-it-citrus-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/31/upshot/nfl-playoff-picture-week-18.ht
 **The Best Movies and TV Shows Coming to Netflix in January**\
 `January will see a deluge of new titles to the streamer for U.S. subscribers. Here’s a roundup of the best and most promising.`\
 https://nytimes.com/2024/12/31/arts/television/netflix-new-january.html
-
-**Man Is Pushed in Front of Subway Train in Manhattan and Survives**\
-`On the afternoon of New Year’s Eve, a man waiting for a No. 1 train at the 18th Street station was shoved in front of an arriving train.`\
-https://nytimes.com/2024/12/31/nyregion/nyc-subway-tracks-man-shoved.html
 
