@@ -1,3 +1,7 @@
+**China’s Leader Nods to Economic Challenges**\
+`In a New Year’s address, Xi Jinping made a rare acknowledgment of the flagging economy while reiterating the government’s growth targets.`\
+https://nytimes.com/2024/12/31/business/xi-jinping-china-economy.html
+
 **A Certain Tankful**\
 `Seth Bisen-Hersh and Jeff Chen take it from the top.`\
 https://nytimes.com/2024/12/31/crosswords/daily-puzzle-2025-01-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/us/dartmouth-basketball-unionize.html
 **Minutia minute: 49ers sticking with Jake Moody; Jauan Jennings brought the fire**\
 `Nick Bosa took all but 10 of his snaps against the Lions' Penei Sewell because he wanted to see how he matched up against the right tackle.`\
 https://nytimes.com/athletic/6030491/2024/12/31/49ers-jake-moody-jauan-jennings/
-
-**Congestion Pricing to Start Sunday, After Last-Minute Meeting With Judge**\
-`New Jersey had sued in an attempt to halt New York’s plan to charge motorists entering Manhattan’s busiest roadways.`\
-https://nytimes.com/2024/12/31/nyregion/congestion-pricing-new-york-new-jersey.html
 
