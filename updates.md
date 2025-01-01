@@ -1,3 +1,7 @@
+**Kris Knoblauch's line juggling worked well against Utah but is likely a short-lived trial**\
+`It turns out a little tinkering — OK, a lot of tinkering — by Knoblauch was just what the doctor ordered Tuesday. `\
+https://nytimes.com/athletic/6031026/2025/01/01/oilers-utah-kris-knoblauch-line-juggling/
+
 **Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
 `Spurgeon left the game after getting slew-footed by Predators rookie Zach L'Heureux.`\
 https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/

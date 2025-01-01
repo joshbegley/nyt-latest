@@ -1,3 +1,7 @@
+**What relegation would cost Manchester United - Adidas cut, no player clauses, huge TV and prize money dips**\
+`Ruben Amorim says the prospect of United being relegated this season is real - here's why that would be a huge problem for the club`\
+https://nytimes.com/athletic/6029647/2025/01/01/manchester-united-relegated-cost/
+
 **Kris Knoblauch's line juggling worked well against Utah but is likely a short-lived trial**\
 `It turns out a little tinkering — OK, a lot of tinkering — by Knoblauch was just what the doctor ordered Tuesday. `\
 https://nytimes.com/athletic/6031026/2025/01/01/oilers-utah-kris-knoblauch-line-juggling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954731/2025/01/01/leeds-2024-farke-tanaka-red-bull
 **Kenny Dillingham, Arizona State agree to 5-year extension**\
 `In his second season, Dillingham led Arizona State to a Big 12 championship and into the College Football Playoff.`\
 https://nytimes.com/athletic/6030937/2025/01/01/kenny-dillingham-ariona-state-football-extension/
-
-**Times Square Revelers Ring in a Soggy New Year After Thunderstorm**\
-`People lined up in ponchos to see the New Year’s Eve ball-drop in New York.`\
-https://nytimes.com/2025/01/01/nyregion/new-years-eve-rain-nyc.html
 
