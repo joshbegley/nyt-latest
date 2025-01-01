@@ -1,3 +1,11 @@
+**Dick Capri, Catskills Comic Who Took His Shtick to Broadway, Dies at 93**\
+`He was a regular at the mountain resorts where many comedians honed their acts, then had a star turn in the long-running revue “Catskills on Broadway.”`\
+https://nytimes.com/2025/01/01/theater/dick-capri-dead.html
+
+**Review: The Met’s New ‘Aida’ Stages Spectacle Without Horses**\
+`Michael Mayer directs Verdi’s classic as an archaeologist’s discovery, featuring the shining soprano Angel Blue.`\
+https://nytimes.com/2025/01/01/arts/music/review-met-opera-verdi-aida.html
+
 **Scenes From New Orleans After Attack on New Year’s Day**\
 `A man drove a pickup truck into the crowds on Bourbon Street early Wednesday morning, killing at least 10 people.`\
 https://nytimes.com/2025/01/01/us/new-orleans-vehicle-attack-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/01/nyregion/subway-shoving-victim-injuries.html
 **Partisan Judges and Public Disrespect**\
 `Readers discuss the plummeting respect for the judicial system. Also: Syria sanctions; religion and Democrats; medical uses of psychedelics.`\
 https://nytimes.com/2025/01/01/opinion/letters/partisan-judges-public-disrespect.html
-
-**My One-Pan Orzo With Spinach for Jan. 1**\
-`With five stars and more than 11,000 reviews, it’s a very green (and very easy) recipe to kick off the new year.`\
-https://nytimes.com/2025/01/01/dining/my-one-pan-orzo-with-spinach-for-jan-1.html
-
-**Democrats’ Battleground Leader, Exiting Congress, Reflects on What She Learned**\
-`Representative Abigail Spanberger of Virginia, the only Democrat in a leadership position to leave Congress this year, talked about her party, her competitive district, and what the Trump era has in store.`\
-https://nytimes.com/2025/01/01/us/spanberger-congress.html
 
