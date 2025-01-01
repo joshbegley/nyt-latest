@@ -1,3 +1,7 @@
+**Deadly Strike Hits Northern Gaza, Palestinian Officials Say**\
+`Several people were killed in an attack on the city of Jabaliya, according to the Palestinian Civil Defense. Israel’s military did not immediately comment.`\
+https://nytimes.com/2025/01/01/world/middleeast/israel-gaza-strike.html
+
 **Ivory Coast Says French Forces Will Withdraw**\
 `The troops are expected to leave this month as France, a former colonial power in West Africa, fast loses influence there.`\
 https://nytimes.com/2025/01/01/world/africa/ivory-coast-france-troop-withdrawal.html

@@ -1,3 +1,7 @@
+**Deadly Strike Hits Northern Gaza, Palestinian Officials Say**\
+`Several people were killed in an attack on the city of Jabaliya, according to the Palestinian Civil Defense. Israel’s military did not immediately comment.`\
+https://nytimes.com/2025/01/01/world/middleeast/israel-gaza-strike.html
+
 **Ivory Coast Says French Forces Will Withdraw**\
 `The troops are expected to leave this month as France, a former colonial power in West Africa, fast loses influence there.`\
 https://nytimes.com/2025/01/01/world/africa/ivory-coast-france-troop-withdrawal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030410/2025/01/01/lions-vikings-brian-flores-ben-j
 **Inside the Mikal Bridges-Josh Hart brotherhood forged by competition: 'He didn't like me'**\
 `The two Knicks used to go at it as Villanova teammates. Now they're giving NBA teams problems together.`\
 https://nytimes.com/athletic/6026943/2025/01/01/ny-knicks-mikal-bridges-josh-hart-villanova/
-
-**Wordle Review No. 1,293**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
-https://nytimes.com/2025/01/01/crosswords/wordle-review-1293.html
 
