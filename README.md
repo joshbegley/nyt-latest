@@ -1,3 +1,7 @@
+**Arsenal can trust Nwaneri in Saka's absence - this is how he's developed since debut**\
+`Ethan Nwaneri made his first Arsenal start in the game against Brentford on Wednesday night`\
+https://nytimes.com/athletic/6031919/2025/01/02/arsenal-ethan-nwaneri-brentford-analysis/
+
 **America, Afghanistan and the Price of Self-Delusion**\
 `Greed and self-delusion kept the money flowing, and hid the truth from the public.`\
 https://nytimes.com/2025/01/02/opinion/afghanistan-audit-reconstruction-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974157/2025/01/02/messi-xavi-lampard-scanning-foot
 **Tonali, team meetings and tweaks - how Newcastle turned their season around**\
 `Less than a month ago Newcastle looked stale and their season seemed to be drifting - but they are now a team transformed`\
 https://nytimes.com/athletic/6031315/2025/01/02/newcastle-season-turnaround-tonali/
-
-**Thursday Briefing**\
-`A deadly attack in New Orleans.`\
-https://nytimes.com/2025/01/02/briefing/new-orleans-attack-syria.html
 
