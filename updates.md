@@ -1,3 +1,11 @@
+**Elena Rybakina's former coach Stefano Vukov suspended by WTA under code of conduct investigation**\
+`Stefano Vukov is barred from obtaining Grand Slam credentials or coaching. Rybakina wants him back on her team`\
+https://nytimes.com/athletic/6034236/2025/01/02/rybakina-vukov-coach-suspended-wta-investigation/
+
+**Letter Carrier Is Fatally Stabbed at a Bodega in Harlem**\
+`The police had a person of interest in custody, but no charges had been filed. Investigators did not identify the victim.`\
+https://nytimes.com/2025/01/02/nyregion/postal-worker-stabbed-harlem-bodega.html
+
 **Elena Rybakina's former coach suspended by WTA while under investigation for breaching code of conduct**\
 `Stefano Vukov is barred from obtaining Grand Slam credentials or coaching. Rybakina wants him back on her team`\
 https://nytimes.com/athletic/6034236/2025/01/02/rybakina-vukov-coach-suspended-wta-investigation/
