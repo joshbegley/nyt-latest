@@ -1,3 +1,11 @@
+**'Quinn's a G, man': Texas' roller-coaster quarterback has done it again**\
+`Ewers took a massive step toward cementing his Texas legacy by leading the Longhorns’ season away from the brink of collapse.`\
+https://nytimes.com/athletic/6032491/2025/01/01/quinn-ewers-texas-college-football-playoff/
+
+**Ohio State looks like Playoff's best team after ousting Oregon: Rose Bowl takeaways**\
+`Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
+https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
+
 **Texas vs. Ohio State: How to watch, picks, odds for CFP semifinal at Cotton Bowl**\
 `Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
 https://nytimes.com/athletic/6032404/2025/01/01/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
