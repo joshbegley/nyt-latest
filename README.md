@@ -1,3 +1,15 @@
+**The Briefing - Leeds United 1 Blackburn 1: A bruising start to 2025 as winning home run ends**\
+`Leeds' long winning run at Elland Road comes to an end but a point is enough to keep them top of the Championship`\
+https://nytimes.com/athletic/6031307/2025/01/02/leeds-blackburn-injuries-struijk/
+
+**West Ham's 2024: The European run, a bold appointment as manager, and Michail Antonio's crash**\
+`Over the last 12 months West Ham got rid of Moyes, brought in Lopetegui, and boosted their squad - but has it paid off?`\
+https://nytimes.com/athletic/5971971/2025/01/02/west-ham-2024-review/
+
+**Fantasy Premier League in 2025: Differentials, traps to avoid and strategy for the new year**\
+`Holly Shand and Abdul Rehman share their plans and hopes for the rest of the 2024-25 Fantasy Premier League season`\
+https://nytimes.com/athletic/6026666/2025/01/02/fantasy-premier-league-2025-strategy-tips/
+
 **The art of scanning in football**\
 `Scanning masters include Xavi, Messi and Lampard. But what exactly is it and how does it help players? Is it something that can be learnt?`\
 https://nytimes.com/athletic/5974157/2025/01/02/messi-xavi-lampard-scanning-football/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/01/pageoneplus/quote-of-the-day-how-to-detect-stoned
 **Ohio State defense gets its revenge by shutting down Oregon in Rose Bowl**\
 `The Buckeyes downed Oregon 41-21 in the Rose Bowl and will advance to the Playoff semifinals.`\
 https://nytimes.com/athletic/6032761/2025/01/01/ohio-state-defense-oregon-rose-bowl-college-football/
-
-**Immanuel Quickley gives Raptors the space to function**\
-`In his return from an elbow injury, the Raptors point guard showed how crucial he is to the team's attack.`\
-https://nytimes.com/athletic/6032723/2025/01/01/immanuel-quickley-raptors-return/
-
-**Oregon's crushing Rose Bowl defeat once again leaves Ducks on the outside looking in**\
-`For decades, the Ducks have knocked at the door of becoming a desired member of college football's elite. All they're missing is the trophy.`\
-https://nytimes.com/athletic/6032737/2025/01/01/oregon-loss-rose-bowl-dan-lanning-college-football-playoff/
-
-**Arizona State's remarkable season sets it up for program's biggest task — sustaining success**\
-`Great stories are often more about the journey than the finish. Arizona State's will be remembered in such a way. But it might take time.`\
-https://nytimes.com/athletic/6032590/2025/01/01/arizona-state-texas-cam-skattebo/
 
