@@ -1,3 +1,7 @@
+**'Quinn's a G, man': Texas' roller-coaster quarterback has done it again**\
+`Ewers took a massive step toward cementing his Texas legacy by leading the Longhorns’ season away from the brink of collapse.`\
+https://nytimes.com/athletic/6032491/2025/01/01/quinn-ewers-texas-college-football-playoff/
+
 **Palestinian Authority Suspends Al Jazeera, in Latest Blow to Channel**\
 `The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
 https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
