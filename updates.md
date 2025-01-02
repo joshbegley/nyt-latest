@@ -1,3 +1,7 @@
+**Aston Villa considering Philogene January loan**\
+`Aston Villa are considering allowing winger Jaden Philogene to depart the club on loan in January.`\
+https://nytimes.com/athletic/6031853/2025/01/02/jaden-philogene-loan-transfer-aston-villa/
+
 **The Bull and Bear Case for 2025**\
 `The stock market has been on a blistering two-year rally. But Wall Street is warning that a number of factors, including Donald Trump’s policies, could slow or derail that momentum`\
 https://nytimes.com/2025/01/02/business/dealbook/bull-bear-case-markets-2025.html

@@ -1,3 +1,7 @@
+**Aston Villa considering Philogene January loan**\
+`Aston Villa are considering allowing winger Jaden Philogene to depart the club on loan in January.`\
+https://nytimes.com/athletic/6031853/2025/01/02/jaden-philogene-loan-transfer-aston-villa/
+
 **The Bull and Bear Case for 2025**\
 `The stock market has been on a blistering two-year rally. But Wall Street is warning that a number of factors, including Donald Trump’s policies, could slow or derail that momentum`\
 https://nytimes.com/2025/01/02/business/dealbook/bull-bear-case-markets-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032331/2025/01/02/falcons-bijan-robinson-allen-ive
 **China Hits Dozens of U.S. Companies With Trade Controls**\
 `The move was the latest escalation in the back and forth between Beijing and Washington over products considered vital to national security.`\
 https://nytimes.com/2025/01/02/business/china-us-companies-entity-list.html
-
-**Diego Gomez to Brighton & Hove Albion: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Diego Gomez's move from Inter Miami to Brighton`\
-https://nytimes.com/athletic/6029646/2025/01/02/diego-gomez-brighton-the-athletic-500-rating/
 
