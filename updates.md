@@ -1,3 +1,7 @@
+**New Orleans Prepares to Reopen Bourbon Street After Truck Attack**\
+`Street cleaning trucks were called in as law enforcement agencies appeared to have wrapped up most of their initial investigative work at the site of the attack.`\
+https://nytimes.com/2025/01/02/us/new-orleans-attack-bourbon-street.html
+
 **Costumes, Beers and Cheers: How Darts Became London’s Rowdiest Winter Party**\
 `The professional darts championships draw tens of thousands of raucous fans. The beer flows freely in the stands, but the competition is serious.`\
 https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html

@@ -1,3 +1,7 @@
+**New Orleans Prepares to Reopen Bourbon Street After Truck Attack**\
+`Street cleaning trucks were called in as law enforcement agencies appeared to have wrapped up most of their initial investigative work at the site of the attack.`\
+https://nytimes.com/2025/01/02/us/new-orleans-attack-bourbon-street.html
+
 **Costumes, Beers and Cheers: How Darts Became London’s Rowdiest Winter Party**\
 `The professional darts championships draw tens of thousands of raucous fans. The beer flows freely in the stands, but the competition is serious.`\
 https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033008/2025/01/02/david-alaba-injury-update-real-m
 **An Ohio State vs. Penn State finale? Big Ten powers proving that identity still matters**\
 `The Buckeyes and Nittany Lions have the right pieces and schedule to keep advancing. `\
 https://nytimes.com/athletic/6032959/2025/01/02/ohio-state-penn-state-big-ten-playoff-championship/
-
-**Aston Villa considering Philogene January loan**\
-`Aston Villa are considering allowing winger Jaden Philogene to depart the club on loan in January.`\
-https://nytimes.com/athletic/6031853/2025/01/02/jaden-philogene-loan-transfer-aston-villa/
 
