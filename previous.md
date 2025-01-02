@@ -1,3 +1,11 @@
+**What to See in N.Y.C. Galleries in January**\
+`This week in Newly Reviewed, Martha Schwendener covers Sylvia Plimack Mangold’s photorealistic paintings, Jack Goldstein’s audio works and Pippa Garner’s gadgets.`\
+https://nytimes.com/2025/01/02/arts/nyc-galleries-january.html
+
+**Biden Expected to Permanently Ban Oil Drilling in Some Federal Waters**\
+`The move, expected as early as Monday, relies on a 70-year-old law that could make it difficult for the Trump administration to reverse it.`\
+https://nytimes.com/2025/01/02/climate/federal-waters-oil-drilling-ban.html
+
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in January**\
 `“On Call,” “The Traitors” Season 3 and “Star Trek: Section 31” are arriving.`\
 https://nytimes.com/2025/01/02/arts/television/january-streaming-movies-shows.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/dining/vegetarian-soups-nyc.html
 **Car Rental App Turo Grew Quietly Before Ties to Wednesday’s Incidents**\
 `Turo, which investigators say was used to acquire the vehicles involved in the attack in New Orleans and explosion in Las Vegas, was emerging as an alternative car-rental service.`\
 https://nytimes.com/2025/01/02/technology/turo-rental-app-new-orleans-las-vegas.html
-
-**Alabama QB Milroe, LB Campbell enter NFL Draft**\
-`Milroe was 21-6 as Alabama's starting QB, winning an SEC championship in 2023.`\
-https://nytimes.com/athletic/6034057/2025/01/02/jalen-milroe-nfl-draft-alabama/
-
-**Browns name Bailey Zappe starting QB for season finale vs. Ravens**\
-`Zappe will become the 40th starting quarterback of the Browns' post-1999 era.`\
-https://nytimes.com/athletic/6034053/2025/01/02/browns-bailey-zappe-starting-quarterback/
 

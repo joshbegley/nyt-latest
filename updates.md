@@ -1,3 +1,11 @@
+**What to See in N.Y.C. Galleries in January**\
+`This week in Newly Reviewed, Martha Schwendener covers Sylvia Plimack Mangold’s photorealistic paintings, Jack Goldstein’s audio works and Pippa Garner’s gadgets.`\
+https://nytimes.com/2025/01/02/arts/nyc-galleries-january.html
+
+**Biden Expected to Permanently Ban Oil Drilling in Some Federal Waters**\
+`The move, expected as early as Monday, relies on a 70-year-old law that could make it difficult for the Trump administration to reverse it.`\
+https://nytimes.com/2025/01/02/climate/federal-waters-oil-drilling-ban.html
+
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in January**\
 `“On Call,” “The Traitors” Season 3 and “Star Trek: Section 31” are arriving.`\
 https://nytimes.com/2025/01/02/arts/television/january-streaming-movies-shows.html
