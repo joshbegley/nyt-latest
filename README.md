@@ -1,3 +1,15 @@
+**Mets mailbag: What's the holdup with Pete Alonso? Are the Mets done in the rotation?**\
+`What's the plan if the Mets don't sign Alonso? Which prospect has a chance to make an impact in 2025? Will the Mets add one more starter?`\
+https://nytimes.com/athletic/6033255/2025/01/02/mets-pete-alonso-free-agency-rotation/
+
+**The Failures of the Health Insurance System**\
+`Readers discuss for-profit health insurers and how to reform U.S. health care. Also: A police failure in New Orleans; making polluters pay.`\
+https://nytimes.com/2025/01/02/opinion/letters/health-insurance-failures.html
+
+**Patriots to start QB Drake Maye in Week 18 vs. Buffalo**\
+`The Patriots (3-13) are slotted as the No. 1 pick in the 2025 NFL Draft heading into their season finale.`\
+https://nytimes.com/athletic/6033580/2025/01/02/patriots-drake-maye-starter-week-18/
+
 **'He's playing at an ultimate level right now': Jared Goff keeping depleted Lions' hopes high**\
 `The quarterback is having the best season of his career, just when the Lions need it most.`\
 https://nytimes.com/athletic/6033329/2025/01/02/lions-jared-goff-quarterback-stats-career/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6033393/2025/01/02/seven-nfl-records-to-watch-in-we
 **A Half-Ton Piece of Space Junk Falls Onto a Village in Kenya**\
 `No one was hurt by the object, believed to be part of a launch rocket. Experts say the frequency of such incidents is increasing as the amount of debris in orbit around the Earth increases dramatically.`\
 https://nytimes.com/2025/01/02/world/africa/kenya-space-debris-rocket.html
-
-**NFL Week 18 fantasy football, betting cheat sheet: Healthy Ravens eye AFC North crown**\
-`Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
-https://nytimes.com/athletic/6027968/2025/01/02/nfl-week-18-fantasy-football-betting-cheat-sheet/
-
-**Which NFL stars are starting, sitting or injured in Week 18?**\
-`The hub for NFL playoff scenarios, analysis, injuries and fantasy insights for the final week of the regular season.`\
-https://nytimes.com/athletic/6027696/2025/01/02/nfl-week-18-injuries-start-sit/
-
-**Liverpool extend Williams Morecambe loan until end of the season**\
-`Liverpool have extended defender Rhys Williams&#8217; loan spell at Morecambe until the end of the season.`\
-https://nytimes.com/athletic/6033408/2025/01/02/liverpool-williams-morecambe-loan/
 
