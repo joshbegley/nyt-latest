@@ -1,3 +1,7 @@
+**Wild's Jared Spurgeon expected to miss 2-3 weeks with injury, plus Kirill Kaprizov update**\
+`Bill Guerin told reporters Spurgeon’s injury isn’t as bad as the team originally thought and provided an update on the captain.`\
+https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kirill-kaprizov-update/
+
 **Could Better Security Have Stopped the New Orleans Attack?**\
 `Other cities use dump trucks, fire engines and other barriers to protect their streets. But a lone-wolf attack is hard to stop, security experts say.`\
 https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6034199/2025/01/02/nwsl-expansion-denver-record-pri
 **Mary Anne Krupsak, Trailblazing New York Politician, Dies at 92**\
 `She was the first woman elected lieutenant governor in the state after defying party leaders and her eventual running mate to win the nomination.`\
 https://nytimes.com/2025/01/02/nyregion/mary-anne-krupsak-dead.html
-
-**N.Y. Attorney General Recuses Herself in Case of Fatal Prison Beating**\
-`Letitia James, the attorney general, said a special prosecutor would lead an investigation into the deadly attack on Robert Brooks because her office had a possible conflict of interest.`\
-https://nytimes.com/2025/01/02/nyregion/robert-brooks-prison-death-letitia-james.html
 
