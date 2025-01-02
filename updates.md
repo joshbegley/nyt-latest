@@ -1,3 +1,7 @@
+**Palestinian Authority Suspends Al-Jazeera, in Latest Blow to Channel**\
+`The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
+https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
+
 **Rodgers unsure of playing in 2025, says he could be 'part of change' in N.Y.**\
 `"So I just need a break mentally to just kind of refresh, put my feet in the sand and see where I'm at after that," Rodgers said.`\
 https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-decision/
