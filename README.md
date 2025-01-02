@@ -1,3 +1,19 @@
+**Liverpool extend Williams Morecambe loan until end of the season**\
+`Liverpool have extended defender Rhys Williams&#8217; loan spell at Morecambe until the end of the season.`\
+https://nytimes.com/athletic/6033408/2025/01/02/liverpool-williams-morecambe-loan/
+
+**Do Fewer Dishes in 2025**\
+`Sheet-pan paprika chicken with tomatoes and Parmesan, plus more one-pan dinners, do-ahead breakfasts and craveable nonalcoholic cocktails.`\
+https://nytimes.com/2025/01/02/dining/do-fewer-dishes-in-2025.html
+
+**Huge Piece of Space Debris Falls in Kenya**\
+`The Kenya Space Agency identified the metal ring that fell in the country as a separation ring from a launch rocket.`\
+https://nytimes.com/video/world/africa/100000009904660/rocket-space-debris-kenya.html
+
+**Submit your Astros questions for Chandler Rome's mailbag**\
+`The Houston Astros authored a transformative winter before the holiday season, sending Kyle Tucker to the Cubs, signing Christian Walker and signaling the end of Alex Bregman&#8217;s tenure.`\
+https://nytimes.com/athletic/6033418/2025/01/02/houston-astros-mailbag-questions-rome/
+
 **Cowboys Today: Mike McCarthy's thoughts on Ezekiel Elliott release, Dallas gets 5 Pro Bowlers**\
 `Pro Bowl rosters were announced Thursday and the Cowboys totaled five selections, down from the 10 they had last season.`\
 https://nytimes.com/athletic/6033213/2025/01/02/cowboys-today-ezekiel-elliott-rico-dowdle-pro-bowl-rosters/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6033154/2025/01/02/nfl-pro-bowl-games-roster-2025/
 **Promoter Warren opens legal proceedings against Eubank Jr for defamation**\
 `Queensberry promoter Frank Warren has opened legal proceedings against Chris Eubank Jr for defamation.`\
 https://nytimes.com/athletic/6027745/2025/01/02/frank-warren-chris-eubank-jr-lawsuit/
-
-**Submit your trade proposals for Eric Koreen’s ‘Who says no?’ mailbag**\
-`The Toronto Raptors are losing — a lot.`\
-https://nytimes.com/athletic/6029925/2025/01/02/nba-trade-deadline-raptors-mailbag/
-
-**Shooting Outside Queens Event Space Injures 10**\
-`Three or four people fired into a crowd in the Jamaica neighborhood, the police said.`\
-https://nytimes.com/2025/01/02/nyregion/queens-shooting-new-york.html
-
-**Federal Agents Search the Home of Former Top N.Y.P.D. Official**\
-`Jeffrey Maddrey, who had been chief of department, resigned on Dec. 20 after a lieutenant accused him of coercing her into sex.`\
-https://nytimes.com/2025/01/02/nyregion/nypd-jeffrey-maddrey-home-search.html
-
-**Ohio State showed in Rose Bowl it's best team in country — and only gaining steam**\
-`In CFP games against Tennessee and Oregon, Ohio State outscored them 83-38 and outgained them 973-532.`\
-https://nytimes.com/athletic/6033139/2025/01/02/ohio-state-oregon-rose-bowl-best-team/
 
