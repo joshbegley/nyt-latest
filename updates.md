@@ -1,3 +1,7 @@
+**Pistons' Jaden Ivey stretchered off court with apparent leg injury**\
+`The 22-year-old is on pace for career highs in points, rebounds, steals, field goal percentage, 3-point percentage and 3-point attempts.`\
+https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretcher/
+
 **Immanuel Quickley gives Raptors the space to function**\
 `In his return from an elbow injury, the Raptors point guard showed how crucial he is to the team's attack.`\
 https://nytimes.com/athletic/6032723/2025/01/01/immanuel-quickley-raptors-return/
