@@ -1,3 +1,11 @@
+**Costumes, Beers and Cheers: How Darts Became London’s Rowdiest Winter Party**\
+`The professional darts championships draw tens of thousands of raucous fans. The beer flows freely in the stands, but the competition is serious.`\
+https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html
+
+**Gaza Truce Looks Unlikely Before Trump’s Inauguration**\
+`Despite a recent Biden administration push, talks between Israel and Hamas to end the war appear increasingly deadlocked, according to officials familiar with the discussions.`\
+https://nytimes.com/2025/01/02/world/middleeast/israel-gaza-hamas-cease-fire-trump.html
+
 **‘War Zone Injuries’: New Year’s Fireworks Explosions Kill 3 in Honolulu**\
 `A series of explosions caused by fireworks in a residential area left more than two dozen people with burns and other injuries, officials said.`\
 https://nytimes.com/2025/01/02/us/hawaii-fireworks-explosion-deaths.html
