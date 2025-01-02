@@ -1,3 +1,7 @@
+**Tesla Annual Sales Slip for First Time as Competition Grows**\
+`The electric-car company led by Elon Musk no longer has the market to itself. Investors are focusing on autonomous driving and other new technologies.`\
+https://nytimes.com/2025/01/02/business/tesla-sales-elon-musk.html
+
 **The Bounce: Are the Celtics OK?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6032467/2025/01/02/celtics-jaylen-brown-jayson-tatum-donovan-mitchell-cavaliers-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/us/new-orleans-attack-bourbon-street.html
 **Costumes, Beers and Cheers: How Darts Became London’s Rowdiest Winter Party**\
 `The professional darts championships draw tens of thousands of raucous fans. The beer flows freely in the stands, but the competition is serious.`\
 https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html
-
-**Gaza Truce Looks Unlikely Before Trump’s Inauguration**\
-`Despite a recent Biden administration push, talks between Israel and Hamas to end the war appear increasingly deadlocked, according to officials familiar with the discussions.`\
-https://nytimes.com/2025/01/02/world/middleeast/israel-gaza-hamas-cease-fire-trump.html
 

@@ -1,3 +1,7 @@
+**Tesla Annual Sales Slip for First Time as Competition Grows**\
+`The electric-car company led by Elon Musk no longer has the market to itself. Investors are focusing on autonomous driving and other new technologies.`\
+https://nytimes.com/2025/01/02/business/tesla-sales-elon-musk.html
+
 **The Bounce: Are the Celtics OK?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6032467/2025/01/02/celtics-jaylen-brown-jayson-tatum-donovan-mitchell-cavaliers-nba-the-bounce/
