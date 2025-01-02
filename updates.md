@@ -1,3 +1,19 @@
+**Richard A. Easterlin, ‘Father of Happiness Economics,’ Dies at 98**\
+`He put forth the so-called Easterlin paradox, finding that the richer you are doesn’t mean the more satisfied you’ll be with your life.`\
+https://nytimes.com/2025/01/02/business/economy/richard-a-easterlin-dead.html
+
+**How the Canadiens caught fire and found their identity**\
+`The Canadiens are on their best seven-game stretch since one week after Martin St. Louis took over as coach, but is it real?`\
+https://nytimes.com/athletic/6033834/2025/01/02/canadiens-nhl-standings-identity/
+
+**Here’s How Mike Johnson’s Speakership Bid Could Come Undone**\
+`The House must choose a speaker before it can swear in new members and certify Donald J. Trump as the winner of the 2024 presidential election. Last time, it took four days and 15 votes.`\
+https://nytimes.com/2025/01/02/us/politics/mike-johnson-speakership-vote-explainer.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/01/02/opinion/thepoint
+
 **After starting strong, the Giants' offseason could use a momentum boost**\
 `The Adames signing was a great start for the Giants this offseason, but it has been quiet since then as other NL West teams have re-loaded.`\
 https://nytimes.com/athletic/6032480/2025/01/02/sf-giants-offseason-check-in/
