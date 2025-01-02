@@ -1,3 +1,15 @@
+**Investigators Said the New Orleans Attacker Acted Alone**\
+`Also, Speaker Johnson is trying to unite Republicans behind him. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/02/briefing/new-orleans-attack-speaker-johnson-vote.html
+
+**What to watch in college basketball this weekend: A top-10 matchup in a chock-full slate**\
+`The 2025 calendar year starts with captivating conference matchups, headlined by Florida-Kentucky and Tennessee's bid to stay undefeated.`\
+https://nytimes.com/athletic/6033434/2025/01/02/college-basketball-what-to-watch-tennessee-arkansas-florida-kentucky/
+
+**Ten notable snubs from the NFL's 2025 Pro Bowl roster**\
+`The NFL's interception leader, a 42-touchdown QB and a pair of star rookie WRs didn't make the cut this season.`\
+https://nytimes.com/athletic/6033718/2025/01/02/2025-nfl-pro-bowl-games-snubs/
+
 **Biden Celebrates a Milestone on Judicial Confirmations After a Major Push by Democrats**\
 `In remarks on Thursday, the president praised Senate Democrats for helping him confirm 235 federal judges, surpassing Donald J. Trump’s first-term total.`\
 https://nytimes.com/2025/01/02/us/politics/biden-judicial-confirmations.html
