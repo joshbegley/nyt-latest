@@ -1,41 +1,40 @@
-**NBA Lookahead: New Year's resolutions & reliving Donovan Mitchell's 71-point gem**\
-`What should each team set its mind to in 2025? Let's explore.`\
-https://nytimes.com/athletic/6023850/2025/01/02/nba-new-years-resolution-cavaliers-celtics-lakers-lebron-james-nba/
+**20 Years of ‘Places to Go’**\
+`The list made its debut in 2005, when world travel was about half of today’s 1.3 billion arrivals and phones were for making calls. Here’s how The Times’s annual travel list — and travel itself — has changed in the last two decades.`\
+https://nytimes.com/interactive/2025/01/02/travel/travel-52-places-to-go-anniversary.html
 
-**Good Advice**\
-`What advice have you received in the past that you’d like to apply to your life in 2025?`\
-https://nytimes.com/2025/01/02/learning/good-advice.html
+**Something Surprising Happens When Kids Have to Set Their Own Goals**\
+`Letting them take some responsibility for their choices is what prepares them for adult life.`\
+https://nytimes.com/2025/01/02/opinion/children-choices-goal-setting.html
 
-**Who Is New York’s ‘Affordability’ Candidate? Nearly Everyone.**\
-`With voters anxious about the cost of living, politicians are eager to show how they are trying to help alleviate the crisis.`\
-https://nytimes.com/2025/01/02/nyregion/new-york-politicians-affordability.html
+**Life in the Tudor Industrial Complex: Sex, Beheadings, Fur**\
+`In “The Waiting Game,” the historian Nicola Clark tells a lively and vivid story of the women who served Henry VIII’s queens.`\
+https://nytimes.com/2025/01/02/books/review/the-waiting-game-nicola-clark.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/02/crosswords/spelling-bee-forum.html
+**How Saffron, a Precious Import, Became an American Cash Crop**\
+`It’s hard work to harvest, but a growing cadre of small farmers and home gardeners are cultivating the spice for profit, or simply pleasure.`\
+https://nytimes.com/2025/01/02/dining/saffron-farming-crop.html
 
-**25 Things to See and Do at Osaka’s World Expo 2025**\
-`From April 13, Osaka will play host to the quinquennial exposition that will bring together breakthrough technologies and sustainable solutions.`\
-https://nytimes.com/paidpost/world-expo-2025/25-things-to-see-and-do-at-osakas-world-expo-2025.html
+**27 Shows to Watch This Winter**\
+`A ton of intriguing shows are coming, including the gruesome frontier drama “American Primeval” and Robert De Niro’s first American regular-series role.`\
+https://nytimes.com/2025/01/02/arts/television/27-shows-to-watch-this-winter.html
 
-**How a Towering Icon in Japanese Hospitality Is Building a New Legacy**\
-`In transforming a historic Kyoto theater for its new site, the pioneering Imperial Hotel is poised for modern renewal.`\
-https://nytimes.com/paidpost/the-imperial-hotel/how-a-towering-icon-in-japanese-hospitality-is-building-a-new-legacy.html
+**Are Russian Sanctions Working? Debate Takes New Urgency With Trump.**\
+`The president-elect has said he will use sanctions sparingly while vowing to end the war in Ukraine, renewing questions over their efficacy.`\
+https://nytimes.com/2025/01/02/business/economy/russia-sanctions-ukraine.html
 
-**A Sacred Journey: Making the Shikoku Pilgrimage With a Sendatsu**\
-`A certified spiritual guide explains the appeal of Japan’s ancient 750-mile, 88-temple pilgrimage as an immersive cultural experience and a popular spiritual journey. 
-`\
-https://nytimes.com/paidpost/tourism-shikoku/a-sacred-journey-making-the-shikoku-pilgrimage-with-a-sendatsu.html
+**The Plagiarism Plot Is Having a Moment. Copy That.**\
+`You could assemble an entire library of contemporary work fixated on literary imitation, appropriation and theft.`\
+https://nytimes.com/2025/01/02/books/review/plagiarism-plot.html
 
-**In Japan’s Hot Spring Valley, Legend Meets Luxury**\
-`For more than a millennium, Japan’s hot springs have brought solace to samurai warriors, itinerant monks and traveling merchants. Now, a new luxury onsen in the historic resort region of Hakone offers a new level of exclusive access.`\
-https://nytimes.com/paidpost/espacio-hakone/in-japans-hot-spring-valley-legend-meets-luxury.html
+**Yes, You Can Get a Workout in 10 Minutes**\
+`This full-body routine fits into even the busiest schedule.`\
+https://nytimes.com/2025/01/02/well/10-minute-hiit-workout.html
 
-**The Guardians of Japan’s Keyhole Tombs**\
-`A look inside the mystery of giant tombs steeped in ancient history and at the story of the dedicated volunteers who preserve them for future generations.`\
-https://nytimes.com/paidpost/mozu-furuichi-kofun-group/the-guardians-of-japans-keyhole-tombs.html
+**What if You Just Don’t Like Breakfast?**\
+`Maybe you’re an egg hater. A coffee-only person. Whatever the reason you skip the first meal of the day, it’s worth considering the health implications.`\
+https://nytimes.com/2025/01/02/well/eat/skipping-breakfast-health-risks.html
 
-**Word of the Day: faddish**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/02/learning/word-of-the-day-faddish.html
+**Israeli Threat to Banish Aid Agency Looms Over Gaza**\
+`The U.N. agency known as UNRWA has been the backbone of aid to Gaza. Now, Israel is moving to ban it over accusations that it shielded Hamas militants.`\
+https://nytimes.com/2025/01/02/world/americas/israel-unrwa-gaza-threat.html
 
