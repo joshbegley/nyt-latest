@@ -1,3 +1,11 @@
+**Gracie Mansion Intruder Films Himself During New Year’s Break-In**\
+`A man jumped a fence early on New Year’s Day, entered the New York mayor’s official residence and stole a Christmas ornament, the police said. The mayor, Eric Adams, was not there.`\
+https://nytimes.com/2025/01/02/nyregion/nyc-gracie-mansion-intruder.html
+
+**What 15 Very Different People Hope to See in 2025**\
+`A Pulitzer Prize-winning novelist, a hand surgeon in India and others share their expectations.`\
+https://nytimes.com/2025/01/02/opinion/2025-new-years-hopes.html
+
 **Friday Briefing: F.B.I. Said the New Orleans Attacker Acted Alone**\
 `Plus, eat better in 2025.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-gaza-hamas-israel-kenya-space-junk.html
