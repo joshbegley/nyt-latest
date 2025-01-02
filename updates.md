@@ -1,3 +1,7 @@
+**Knicks' Kolek pulls off rare G League/NBA doubleheader Wednesday**\
+`After scoring 36 points in a G League matinee, Kolek was called up due to injuries to Knicks guards Jalen Brunson and Miles McBride.`\
+https://nytimes.com/athletic/6033390/2025/01/02/knicks-tyler-kolek-double-points-assists/
+
 **What We Know About the Cybertruck Explosion in Las Vegas**\
 `The F.B.I. says no connection has been found between the truck explosion outside of a Trump Hotel and the truck attack that killed 14 people in New Orleans.`\
 https://nytimes.com/2025/01/02/us/tesla-cybertruck-explosion-las-vegas.html
