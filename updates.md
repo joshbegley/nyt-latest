@@ -1,3 +1,20 @@
+**How a Towering Icon in Japanese Hospitality Is Building a New Legacy**\
+`In transforming a historic Kyoto theater for its new site, the pioneering Imperial Hotel is poised for modern renewal.`\
+https://nytimes.com/paidpost/the-imperial-hotel/how-a-towering-icon-in-japanese-hospitality-is-building-a-new-legacy.html
+
+**A Sacred Journey: Making the Shikoku Pilgrimage With a Sendatsu**\
+`A certified spiritual guide explains the appeal of Japan’s ancient 750-mile, 88-temple pilgrimage as an immersive cultural experience and a popular spiritual journey. 
+`\
+https://nytimes.com/paidpost/tourism-shikoku/a-sacred-journey-making-the-shikoku-pilgrimage-with-a-sendatsu.html
+
+**In Japan’s Hot Spring Valley, Legend Meets Luxury**\
+`For more than a millennium, Japan’s hot springs have brought solace to samurai warriors, itinerant monks and traveling merchants. Now, a new luxury onsen in the historic resort region of Hakone offers a new level of exclusive access.`\
+https://nytimes.com/paidpost/espacio-hakone/in-japans-hot-spring-valley-legend-meets-luxury.html
+
+**The Guardians of Japan’s Keyhole Tombs**\
+`A look inside the mystery of giant tombs steeped in ancient history and at the story of the dedicated volunteers who preserve them for future generations.`\
+https://nytimes.com/paidpost/mozu-furuichi-kofun-group/the-guardians-of-japans-keyhole-tombs.html
+
 **Word of the Day: faddish**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/02/learning/word-of-the-day-faddish.html
