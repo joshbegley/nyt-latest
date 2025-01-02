@@ -1,3 +1,7 @@
+**The Pulse: Why the 12-team Playoff is perfect this year**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6032552/2025/01/02/cfp-new-orleans-ohio-state-oregon-the-pulse/
+
 **Terror in New Orleans**\
 `What we know, and don’t know, about the New Year’s attack.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-new-year-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032572/2025/01/02/rams-puka-nacua-emotions-star-re
 **Taking stock of Spurs' Stephon Castle, Rockets' Reed Sheppard and other NBA rookies**\
 `Kelly Iko and Sam Vecenie discuss how the rookies on the Spurs, Rockets and Grizzlies have performed so far this season. `\
 https://nytimes.com/athletic/6027396/2025/01/02/nba-draft-2024-rookies-spurs-rockets-grizzlies/
-
-**Justin Jefferson's Vikings teammates gush about his impact: 'You feel his joy'**\
-`Some top wideouts are prima donnas, but Jefferson's teammates see him as a "down to earth" superstar who "is doing it the right way."`\
-https://nytimes.com/athletic/6032385/2025/01/02/justin-jefferson-vikings-teammates-joy/
 

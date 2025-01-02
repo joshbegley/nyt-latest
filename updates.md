@@ -1,3 +1,7 @@
+**The Pulse: Why the 12-team Playoff is perfect this year**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6032552/2025/01/02/cfp-new-orleans-ohio-state-oregon-the-pulse/
+
 **Terror in New Orleans**\
 `What we know, and don’t know, about the New Year’s attack.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-new-year-attack.html
