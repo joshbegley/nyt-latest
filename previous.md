@@ -8,7 +8,7 @@ https://nytimes.com/2025/01/02/us/politics/drone-ban-china-security.html
 
 **After starting strong, the Giants' offseason could use a momentum boost**\
 `The Adames signing was a great start for the Giants this offseason, but it has been quiet since then as other NL West teams have re-loaded.`\
-https://nytimes.com/athletic/6032480/2025/01/02/after-starting-strong-the-giants-offseason-could-use-a-momentum-boost/
+https://nytimes.com/athletic/6032480/2025/01/02/sf-giants-offseason-check-in/
 
 **The Growth in Homelessness Is an American Moral Failure**\
 `Homelessness is a crisis borne of several compounded crises, a symptom of the varied ways our country is failing the most vulnerable.`\

@@ -1,3 +1,7 @@
+**After starting strong, the Giants' offseason could use a momentum boost**\
+`The Adames signing was a great start for the Giants this offseason, but it has been quiet since then as other NL West teams have re-loaded.`\
+https://nytimes.com/athletic/6032480/2025/01/02/sf-giants-offseason-check-in/
+
 **Bedford set to become Calgary Wild head coach**\
 `Lydia Bedford is set to leave her role with Brentford Under-18s to become the new head coach of Calgary Wild.`\
 https://nytimes.com/athletic/6033141/2025/01/02/lydia-bedford-calgary-wild-coach/
