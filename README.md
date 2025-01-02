@@ -1,3 +1,15 @@
+**Giants NFL Draft order scenarios: Can New York still land the No. 1 pick?**\
+`The Giants' odds of securing the No. 1 overall pick are slim, but they still have a great chance of landing a pick inside the top three. `\
+https://nytimes.com/athletic/6033361/2025/01/02/giants-2025-nfl-draft-top-pick-scenarios/
+
+**‘St. Denis Medical’ Is a Cozy Mockumentary Hospital Comedy**\
+`Less antic than “Scrubs,” less cynical than “The Office,” this NBC sitcom is one of the few network comedies with any promise right now.`\
+https://nytimes.com/2025/01/02/arts/television/st-denis-medical-nbc-peacock-streaming.html
+
+**Net Neutrality Rules Struck Down by Appeals Court**\
+`After nearly two decades of fighting, the battle over regulations that treat broadband providers like utilities came to an end on Thursday.`\
+https://nytimes.com/2025/01/02/technology/net-neutrality-rules-fcc.html
+
 **Richard A. Easterlin, ‘Father of Happiness Economics,’ Dies at 98**\
 `He put forth the so-called Easterlin paradox, finding that the richer you are doesn’t mean the more satisfied you’ll be with your life.`\
 https://nytimes.com/2025/01/02/business/economy/richard-a-easterlin-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/02/us/politics/drone-ban-china-security.html
 **After starting strong, the Giants' offseason could use a momentum boost**\
 `The Adames signing was a great start for the Giants this offseason, but it has been quiet since then as other NL West teams have re-loaded.`\
 https://nytimes.com/athletic/6032480/2025/01/02/sf-giants-offseason-check-in/
-
-**The Growth in Homelessness Is an American Moral Failure**\
-`Homelessness is a crisis borne of several compounded crises, a symptom of the varied ways our country is failing the most vulnerable.`\
-https://nytimes.com/2025/01/02/opinion/homelessness-surge-crisis.html
-
-**England head coach Tuchel to attend Tottenham vs Newcastle**\
-`Thomas Tuchel is set to attend his first Premier League matches this weekend since beginning work as England manager.`\
-https://nytimes.com/athletic/6033739/2025/01/02/thomas-tuchel-england-tottenham-newcastle/
-
-**Rosita Missoni, Who Turned Zigzag Sweaters Into High Fashion, Dies at 93**\
-`With colorful knitwear, she and her husband, Ottavio, built one of the world’s most recognizable brands, helping to make Milan a capital of “alta moda.”`\
-https://nytimes.com/2025/01/02/fashion/rosita-missoni-dead.html
 
