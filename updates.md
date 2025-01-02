@@ -1,3 +1,15 @@
+**Zirkzee, Manchester United and the thorny issue of booing your own players**\
+`Fans at Old Trafford have jeered their own players before and the Dutch forward was the latest to suffer that kind of ignominy`\
+https://nytimes.com/athletic/6031519/2025/01/02/joshua-zirkzee-manchester-united-fans/
+
+**Leicester fans: How do you feel about Ruud van Nistelrooy's start as manager?**\
+`What positives and negatives have you seen under the new manager and what are you expectations for the rest of the season?`\
+https://nytimes.com/athletic/6031080/2025/01/02/leicester-fans-ruud-van-nistelrooy-start/
+
+**Who is Nottingham Forest's new CEO Lina Souloukou?**\
+`From her time at Olympiacos to her exit from Roma, we take a look at the 41-year-old who is joining Evangelos Marinakis' setup`\
+https://nytimes.com/athletic/5983884/2025/01/02/nottingham-forests-ceo-lina-souloukou/
+
 **The Briefing - Leeds United 1 Blackburn 1: A bruising start to 2025 as winning home run ends**\
 `Leeds' long winning run at Elland Road comes to an end but a point is enough to keep them top of the Championship`\
 https://nytimes.com/athletic/6031307/2025/01/02/leeds-blackburn-injuries-struijk/
