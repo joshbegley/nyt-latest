@@ -2,8 +2,8 @@
 `A string of attacks has riders devising their own strategies to stay safe, even after years of official efforts to make New York’s vital transportation system secure.`\
 https://nytimes.com/2025/01/01/nyregion/subway-violence-stubbornly-defies-all-efforts-to-quell-it.html
 
-**Investigators Search for Links Between New Orleans and Las Vegas Attacks**\
-`The two episodes have superficial similarities, including that both attackers used the same car rental app.`\
+**Investigators Search for Links Between New Orleans Attack and Las Vegas Blast**\
+`The two episodes have superficial similarities, including that both suspects used the same car rental app.`\
 https://nytimes.com/2025/01/01/us/politics/new-orleans-las-vegas-attacks-similarities.html
 
 **Map: 4.7-Magnitude Earthquake Strikes Northern California**\
