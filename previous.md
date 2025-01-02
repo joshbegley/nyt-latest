@@ -1,3 +1,7 @@
+**Real Madrid target January return for Alaba after 13-month absence**\
+`Real Madrid are targeting a return for David Alaba in January following the serious knee injury that has kept him out for the last 13 months.`\
+https://nytimes.com/athletic/6033008/2025/01/02/david-alaba-injury-update-real-madrid/
+
 **An Ohio State vs. Penn State finale? Big Ten powers proving that identity still matters**\
 `The Buckeyes and Nittany Lions have the right pieces and schedule to keep advancing. `\
 https://nytimes.com/athletic/6032959/2025/01/02/ohio-state-penn-state-big-ten-playoff-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032552/2025/01/02/cfp-new-orleans-ohio-state-orego
 **Terror in New Orleans**\
 `What we know, and don’t know, about the New Year’s attack.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-new-year-attack.html
-
-**How does Falcons star Bijan Robinson do that on the football field? Look to basketball**\
-`Robinson's influences include Hall of Famers LaDainian Tomlinson and Barry Sanders but also a former NBA star. `\
-https://nytimes.com/athletic/6032331/2025/01/02/falcons-bijan-robinson-allen-iverson-influence/
 
