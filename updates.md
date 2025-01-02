@@ -1,3 +1,7 @@
+**The Growth in Homelessness Is an American Moral Failure**\
+`Homelessness is a crisis borne of several compounded crises, a symptom of the varied ways our country is failing the most vulnerable.`\
+https://nytimes.com/2025/01/02/opinion/homelessness-surge-crisis.html
+
 **England head coach Tuchel to attend Tottenham vs Newcastle**\
 `Thomas Tuchel is set to attend his first Premier League matches this weekend since beginning work as England manager.`\
 https://nytimes.com/athletic/6033739/2025/01/02/thomas-tuchel-england-tottenham-newcastle/
