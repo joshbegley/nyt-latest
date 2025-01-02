@@ -1,3 +1,7 @@
+**An Ohio State vs. Penn State finale? Big Ten powers proving that identity still matters**\
+`The Buckeyes and Nittany Lions have the right pieces and schedule to keep advancing. `\
+https://nytimes.com/athletic/6032959/2025/01/02/ohio-state-penn-state-big-ten-playoff-championship/
+
 **Aston Villa considering Philogene January loan**\
 `Aston Villa are considering allowing winger Jaden Philogene to depart the club on loan in January.`\
 https://nytimes.com/athletic/6031853/2025/01/02/jaden-philogene-loan-transfer-aston-villa/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6032859/2025/01/02/deaaron-fox-kings-mike-brown-fir
 https://nytimes.com/athletic/6032073/2025/01/02/chiefs-carson-wentz-broncos-season-finale/
 
 **Heat Today: With or without a trade, the Heat and Jimmy Butler need to work together**\
-`Jimmy Butler's candid remarks reignited rumors about his future in Miami, but both parties must work together no matter what`\
+`Butler's candid remarks reignited rumors about his future in Miami, but both parties need to focus on the immediate task ahead.`\
 https://nytimes.com/athletic/6032669/2025/01/02/jimmy-butler-trade-bam-adebay-tyler-herro-heat-nba/
 
 **History says Broncos can't underestimate Chiefs, starters or not, in must-win game**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/briefing/new-orleans-new-year-attack.html
 **How does Falcons star Bijan Robinson do that on the football field? Look to basketball**\
 `Robinson's influences include Hall of Famers LaDainian Tomlinson and Barry Sanders but also a former NBA star. `\
 https://nytimes.com/athletic/6032331/2025/01/02/falcons-bijan-robinson-allen-iverson-influence/
-
-**China Hits Dozens of U.S. Companies With Trade Controls**\
-`The move was the latest escalation in the back and forth between Beijing and Washington over products considered vital to national security.`\
-https://nytimes.com/2025/01/02/business/china-us-companies-entity-list.html
 
