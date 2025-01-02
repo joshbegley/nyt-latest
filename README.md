@@ -1,3 +1,7 @@
+**Oregon's crushing Rose Bowl defeat once again leaves Ducks on the outside looking in**\
+`For decades, the Ducks have knocked at the door of becoming a desired member of the college football elite. All their missing is the trophy.`\
+https://nytimes.com/athletic/6032737/2025/01/01/oregon-loss-rose-bowl-dan-lanning-college-football-playoff/
+
 **Arizona State's remarkable season sets it up for program's biggest task — sustaining success**\
 `Great stories are often more about the journey than the finish. Arizona State's will be remembered in such a way. But it might take time.`\
 https://nytimes.com/athletic/6032590/2025/01/01/arizona-state-texas-cam-skattebo/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-new-orleans
 **Pistons' Jaden Ivey stretchered off court with apparent leg injury**\
 `The 22-year-old is on pace for career highs in points, rebounds, steals, field goal percentage, 3-point percentage and 3-point attempts.`\
 https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretcher/
-
-**The F.B.I. released a photo of the suspect, asking for information on him.**\
-`By Adam Goldman and Devlin Barrett`\
-https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-fbi-released-a-passport-photo-of-the-suspect
 
