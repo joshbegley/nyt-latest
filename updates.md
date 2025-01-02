@@ -1,3 +1,7 @@
+**Trucks in New Orleans Attack and Las Vegas Explosion Were Rented Using the Same App**\
+`Renters of both vehicles had used Turo, a peer-to-peer app. Officials are investigating possible connections between the two cases.`\
+https://nytimes.com/2025/01/01/us/turo-new-orleans-attack-vegas-explosion.html
+
 **The attacker told his college paper that he struggled to adjust to life after the military.**\
 `By Sean Keenan`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-attacker-told-his-college-paper-that-he-struggled-to-adjust-to-life-after-the-military

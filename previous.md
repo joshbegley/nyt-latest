@@ -1,3 +1,7 @@
+**Trucks in New Orleans Attack and Las Vegas Explosion Were Rented Using the Same App**\
+`Renters of both vehicles had used Turo, a peer-to-peer app. Officials are investigating possible connections between the two cases.`\
+https://nytimes.com/2025/01/01/us/turo-new-orleans-attack-vegas-explosion.html
+
 **The attacker told his college paper that he struggled to adjust to life after the military.**\
 `By Sean Keenan`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-attacker-told-his-college-paper-that-he-struggled-to-adjust-to-life-after-the-military
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/world/europe/montenegro-shooting.html
 **McVay: Jimmy Garoppolo to start for Rams in Week 18, Stetson Bennett will be backup**\
 `Matthew Stafford will get the Week 18 matchup vs. the Seahawks off and some rest in front of the Rams' playoff game.`\
 https://nytimes.com/athletic/6031869/2025/01/01/rams-matthew-stafford-out-jimmy-garoppolo-starting-seahawks/
-
-**Justin Thomas: Presidents Cup snub has him ready 'to play a little pissed off'**\
-`Thomas was left off the Presidents Cup team. He hopes to be able to make it an easy call for Ryder Cup captain Keegan Bradley.`\
-https://nytimes.com/athletic/6032136/2025/01/01/justin-thomas-golf-presidents-cup-ryder-cup/
 
