@@ -1,3 +1,15 @@
+**Who Is New York’s ‘Affordability’ Candidate? Nearly Everyone.**\
+`With voters anxious about the cost of living, politicians are eager to show how they are trying to help alleviate the crisis.`\
+https://nytimes.com/2025/01/02/nyregion/new-york-politicians-affordability.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/02/crosswords/spelling-bee-forum.html
+
+**25 Things to See and Do at Osaka’s World Expo 2025**\
+`From April 13, Osaka will play host to the quinquennial exposition that will bring together breakthrough technologies and sustainable solutions.`\
+https://nytimes.com/paidpost/world-expo-2025/25-things-to-see-and-do-at-osakas-world-expo-2025.html
+
 **How a Towering Icon in Japanese Hospitality Is Building a New Legacy**\
 `In transforming a historic Kyoto theater for its new site, the pioneering Imperial Hotel is poised for modern renewal.`\
 https://nytimes.com/paidpost/the-imperial-hotel/how-a-towering-icon-in-japanese-hospitality-is-building-a-new-legacy.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6031919/2025/01/02/arsenal-ethan-nwaneri-brentford-
 **America, Afghanistan and the Price of Self-Delusion**\
 `Greed and self-delusion kept the money flowing, and hid the truth from the public.`\
 https://nytimes.com/2025/01/02/opinion/afghanistan-audit-reconstruction-us.html
-
-**Zirkzee, Manchester United and the thorny issue of booing your own players**\
-`Fans at Old Trafford have jeered their own players before and the Dutch forward was the latest to suffer that kind of ignominy`\
-https://nytimes.com/athletic/6031519/2025/01/02/joshua-zirkzee-manchester-united-fans/
-
-**Leicester fans: How do you feel about Ruud van Nistelrooy's start as manager?**\
-`What positives and negatives have you seen under the new manager and what are you expectations for the rest of the season?`\
-https://nytimes.com/athletic/6031080/2025/01/02/leicester-fans-ruud-van-nistelrooy-start/
-
-**Who is Nottingham Forest's new CEO Lina Souloukou?**\
-`From her time at Olympiacos to her exit from Roma, we take a look at the 41-year-old who is joining Evangelos Marinakis' setup`\
-https://nytimes.com/athletic/5983884/2025/01/02/nottingham-forests-ceo-lina-souloukou/
 

@@ -1,3 +1,15 @@
+**Who Is New York’s ‘Affordability’ Candidate? Nearly Everyone.**\
+`With voters anxious about the cost of living, politicians are eager to show how they are trying to help alleviate the crisis.`\
+https://nytimes.com/2025/01/02/nyregion/new-york-politicians-affordability.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/02/crosswords/spelling-bee-forum.html
+
+**25 Things to See and Do at Osaka’s World Expo 2025**\
+`From April 13, Osaka will play host to the quinquennial exposition that will bring together breakthrough technologies and sustainable solutions.`\
+https://nytimes.com/paidpost/world-expo-2025/25-things-to-see-and-do-at-osakas-world-expo-2025.html
+
 **How a Towering Icon in Japanese Hospitality Is Building a New Legacy**\
 `In transforming a historic Kyoto theater for its new site, the pioneering Imperial Hotel is poised for modern renewal.`\
 https://nytimes.com/paidpost/the-imperial-hotel/how-a-towering-icon-in-japanese-hospitality-is-building-a-new-legacy.html
