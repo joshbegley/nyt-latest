@@ -1,3 +1,7 @@
+**To Understand Trump and Biden, Look to Reagan and Carter**\
+`Forty-four years ago, Ronald Reagan took aim at Jimmy Carter’s environmental legacy. President Biden’s climate initiatives could face a similar fate.`\
+https://nytimes.com/2025/01/02/climate/jimmy-carter-joe-biden-environmental-policy.html
+
 **Meta Appoints Executive With Republican Ties to Lead Global Policy**\
 `Joel Kaplan, who was a former senior adviser to George W. Bush, replaces Nick Clegg, who was a former deputy prime minister of Britain, as Meta’s head of policy.`\
 https://nytimes.com/2025/01/02/technology/meta-joel-kaplan-nick-clegg.html

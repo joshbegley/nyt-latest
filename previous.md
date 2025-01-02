@@ -1,3 +1,7 @@
+**To Understand Trump and Biden, Look to Reagan and Carter**\
+`Forty-four years ago, Ronald Reagan took aim at Jimmy Carter’s environmental legacy. President Biden’s climate initiatives could face a similar fate.`\
+https://nytimes.com/2025/01/02/climate/jimmy-carter-joe-biden-environmental-policy.html
+
 **Meta Appoints Executive With Republican Ties to Lead Global Policy**\
 `Joel Kaplan, who was a former senior adviser to George W. Bush, replaces Nick Clegg, who was a former deputy prime minister of Britain, as Meta’s head of policy.`\
 https://nytimes.com/2025/01/02/technology/meta-joel-kaplan-nick-clegg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/business/economy/richard-a-easterlin-dead.html
 **How the Canadiens caught fire and found their identity**\
 `The Canadiens are on their best seven-game stretch since one week after Martin St. Louis took over as coach, but is it real?`\
 https://nytimes.com/athletic/6033834/2025/01/02/canadiens-nhl-standings-identity/
-
-**Here’s How Mike Johnson’s Speakership Bid Could Come Undone**\
-`The House must choose a speaker before it can swear in new members and certify Donald J. Trump as the winner of the 2024 presidential election. Last time, it took four days and 15 votes.`\
-https://nytimes.com/2025/01/02/us/politics/mike-johnson-speakership-vote-explainer.html
 
