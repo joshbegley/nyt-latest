@@ -1,3 +1,11 @@
+**Here’s the latest on the attack.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news/heres-the-latest-on-the-attack
+
+**Live Updates: Investigators Look Into Whether New Orleans Attacker Acted Alone**\
+`Devices that could be homemade bombs were found after a man drove a pickup truck into a crowd in the French Quarter, raising suspicions that he had co-conspirators. At least 15 people were killed in the attack.`\
+https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news
+
 **Phillies notes: Rotation plans, outfield scenarios, roster talk, and is the bullpen 'set'?**\
 `By adding Jesús Luzardo and Joe Ross, the Phillies feel less pressure to alter their 2025 plan for Andrew Painter.`\
 https://nytimes.com/athletic/6029828/2025/01/02/phillies-rotation-outfield-bullpen-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/arts/design/lorna-simpson-hauser-wirth-meteorite-
 **The Classical Music Our Critics Can’t Stop Thinking About**\
 `Watch and listen to five recent highlights, including the “Brutalist” soundtrack, the soprano Barbara Hannigan and Strauss singers at the Met Opera.`\
 https://nytimes.com/2025/01/02/arts/music/best-classical-music-december-2024.html
-
-**What Are Your New Year’s Resolutions?**\
-`Tell us what changes, big or small, you want to make in 2025.`\
-https://nytimes.com/2025/01/02/learning/what-are-your-new-years-resolutions.html
-
-**The Sacrifices of Zoe Saldaña**\
-`The actress is known for big franchises. “Emilia Pérez” is a big shift: “I was doing it for me, and for a long time, I stopped doing things for me.”`\
-https://nytimes.com/2025/01/02/movies/zoe-saldana-emilia-perez-avatar.html
 
