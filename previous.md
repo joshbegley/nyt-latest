@@ -1,3 +1,7 @@
+**Rodgers unsure of playing in 2025, says he could be 'part of change' in N.Y.**\
+`"So I just need a break mentally to just kind of refresh, put my feet in the sand and see where I'm at after that," Rodgers said.`\
+https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-decision/
+
 **Who Were the People Killed in the New Orleans Attack on New Year’s?**\
 `This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032129/2025/01/01/asu-texas-targeting-peach-bowl-p
 **What is Cam Skattebo's potential as a 2025 NFL Draft prospect?**\
 `Skattebo barely registered on the 2025 draft radar heading into the season. How high is his stock now?`\
 https://nytimes.com/athletic/6032059/2025/01/01/nfl-draft-2025-cam-skattebo-scouting-report/
-
-**What to Know About the Islamic State**\
-`The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
-https://nytimes.com/2025/01/01/world/middleeast/isis-islamic-state.html
 

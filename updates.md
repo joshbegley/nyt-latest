@@ -1,3 +1,7 @@
+**Rodgers unsure of playing in 2025, says he could be 'part of change' in N.Y.**\
+`"So I just need a break mentally to just kind of refresh, put my feet in the sand and see where I'm at after that," Rodgers said.`\
+https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-decision/
+
 **Who Were the People Killed in the New Orleans Attack on New Year’s?**\
 `This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
