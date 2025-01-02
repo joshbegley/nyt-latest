@@ -1,3 +1,11 @@
+**Man Who Killed 3 on New Year’s Day Robbery in Mississippi Is Sought**\
+`A manhunt was underway near the border between Mississippi and Alabama after three people were fatally shot during a gas station robbery, the authorities said.`\
+https://nytimes.com/2025/01/02/us/gas-station-shooting-mississipppi.html
+
+**For football fans visiting New Orleans, a festive atmosphere turned dark overnight.**\
+`By Isabelle Taft, Keith Bradsher and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news/for-football-fans-visiting-new-orleans-a-festive-atmosphere-turned-dark-overnight
+
 **2025: Whimsy More, Waste Less**\
 `And dare to prepare, with big batches of beans and soothing soups.`\
 https://nytimes.com/2025/01/02/dining/2025-whimsy-more-waste-less.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/opinion/letters/health-insurance-failures.html
 **Patriots to start QB Drake Maye in Week 18 vs. Buffalo**\
 `The Patriots (3-13) are slotted as the No. 1 pick in the 2025 NFL Draft heading into their season finale.`\
 https://nytimes.com/athletic/6033580/2025/01/02/patriots-drake-maye-starter-week-18/
-
-**'He's playing at an ultimate level right now': Jared Goff keeping depleted Lions' hopes high**\
-`The quarterback is having the best season of his career, just when the Lions need it most.`\
-https://nytimes.com/athletic/6033329/2025/01/02/lions-jared-goff-quarterback-stats-career/
-
-**Premier League chief concerned by lack of consultation on Club World Cup**\
-`Premier League chief executive Richard Masters has expressed his concern regarding the decisions being taken around the upcoming FIFA Club World Cup.`\
-https://nytimes.com/athletic/6033283/2025/01/02/club-world-cup-premier-league-richard-masters/
 

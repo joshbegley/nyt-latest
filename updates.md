@@ -1,3 +1,11 @@
+**Man Who Killed 3 on New Year’s Day Robbery in Mississippi Is Sought**\
+`A manhunt was underway near the border between Mississippi and Alabama after three people were fatally shot during a gas station robbery, the authorities said.`\
+https://nytimes.com/2025/01/02/us/gas-station-shooting-mississipppi.html
+
+**For football fans visiting New Orleans, a festive atmosphere turned dark overnight.**\
+`By Isabelle Taft, Keith Bradsher and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news/for-football-fans-visiting-new-orleans-a-festive-atmosphere-turned-dark-overnight
+
 **2025: Whimsy More, Waste Less**\
 `And dare to prepare, with big batches of beans and soothing soups.`\
 https://nytimes.com/2025/01/02/dining/2025-whimsy-more-waste-less.html
