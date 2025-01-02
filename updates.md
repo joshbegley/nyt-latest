@@ -1,3 +1,7 @@
+**Fans Observe Moment of Silence Before Sugar Bowl Kickoff in New Orleans**\
+`Those who stuck around for the game said they were not worried about another attack. “You’ve just got to be smart and keep moving forward,” one fan said.`\
+https://nytimes.com/2025/01/02/us/sugar-bowl-new-orleans-attack.html
+
 **What to See in N.Y.C. Galleries in January**\
 `This week in Newly Reviewed, Martha Schwendener covers Sylvia Plimack Mangold’s photorealistic paintings, Jack Goldstein’s audio works and Pippa Garner’s gadgets.`\
 https://nytimes.com/2025/01/02/arts/nyc-galleries-january.html

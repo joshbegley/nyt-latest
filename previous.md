@@ -1,3 +1,7 @@
+**Fans Observe Moment of Silence Before Sugar Bowl Kickoff in New Orleans**\
+`Those who stuck around for the game said they were not worried about another attack. “You’ve just got to be smart and keep moving forward,” one fan said.`\
+https://nytimes.com/2025/01/02/us/sugar-bowl-new-orleans-attack.html
+
 **What to See in N.Y.C. Galleries in January**\
 `This week in Newly Reviewed, Martha Schwendener covers Sylvia Plimack Mangold’s photorealistic paintings, Jack Goldstein’s audio works and Pippa Garner’s gadgets.`\
 https://nytimes.com/2025/01/02/arts/nyc-galleries-january.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/briefing/new-orleans-gaza-hamas-israel-kenya-spac
 **Three Vegetarian Soups to Greet the New Year**\
 `Recover from heavy holiday eating with rich ramen, garlicky immunity broth and sopa de tortilla with salty cheese.`\
 https://nytimes.com/2025/01/02/dining/vegetarian-soups-nyc.html
-
-**Car Rental App Turo Grew Quietly Before Ties to Wednesday’s Incidents**\
-`Turo, which investigators say was used to acquire the vehicles involved in the attack in New Orleans and explosion in Las Vegas, was emerging as an alternative car-rental service.`\
-https://nytimes.com/2025/01/02/technology/turo-rental-app-new-orleans-las-vegas.html
 
