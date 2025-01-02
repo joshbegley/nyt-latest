@@ -1,3 +1,7 @@
+**Word of the Day: faddish**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/02/learning/word-of-the-day-faddish.html
+
 **Arsenal can trust Nwaneri in Saka's absence - this is how he's developed since debut**\
 `Ethan Nwaneri made his first Arsenal start in the game against Brentford on Wednesday night`\
 https://nytimes.com/athletic/6031919/2025/01/02/arsenal-ethan-nwaneri-brentford-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026666/2025/01/02/fantasy-premier-league-2025-stra
 **The art of scanning in football**\
 `Scanning masters include Xavi, Messi and Lampard. But what exactly is it and how does it help players? Is it something that can be learnt?`\
 https://nytimes.com/athletic/5974157/2025/01/02/messi-xavi-lampard-scanning-football/
-
-**Tonali, team meetings and tweaks - how Newcastle turned their season around**\
-`Less than a month ago Newcastle looked stale and their season seemed to be drifting - but they are now a team transformed`\
-https://nytimes.com/athletic/6031315/2025/01/02/newcastle-season-turnaround-tonali/
 

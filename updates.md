@@ -1,3 +1,7 @@
+**Word of the Day: faddish**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/02/learning/word-of-the-day-faddish.html
+
 **Arsenal can trust Nwaneri in Saka's absence - this is how he's developed since debut**\
 `Ethan Nwaneri made his first Arsenal start in the game against Brentford on Wednesday night`\
 https://nytimes.com/athletic/6031919/2025/01/02/arsenal-ethan-nwaneri-brentford-analysis/
