@@ -1,3 +1,11 @@
+**Postal Worker Is Fatally Stabbed at a Bodega in Harlem**\
+`The police had a person of interest in custody, but no charges had been filed. Investigators did not identify the victim.`\
+https://nytimes.com/2025/01/02/nyregion/postal-worker-stabbed-harlem-bodega.html
+
+**New Orleans Attacker Most Likely Acted Alone, Officials Say**\
+`They also said they did not see a “definitive link” between the attack and an explosion at a Trump hotel in Las Vegas, but cautioned that it’s too early to be sure.`\
+https://nytimes.com/2025/01/02/us/new-orleans-terror-truck-attack.html
+
 **Investigators Said the New Orleans Attacker Acted Alone**\
 `Also, Speaker Johnson is trying to unite Republicans behind him. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-attack-speaker-johnson-vote.html

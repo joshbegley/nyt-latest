@@ -1,3 +1,11 @@
+**Postal Worker Is Fatally Stabbed at a Bodega in Harlem**\
+`The police had a person of interest in custody, but no charges had been filed. Investigators did not identify the victim.`\
+https://nytimes.com/2025/01/02/nyregion/postal-worker-stabbed-harlem-bodega.html
+
+**New Orleans Attacker Most Likely Acted Alone, Officials Say**\
+`They also said they did not see a “definitive link” between the attack and an explosion at a Trump hotel in Las Vegas, but cautioned that it’s too early to be sure.`\
+https://nytimes.com/2025/01/02/us/new-orleans-terror-truck-attack.html
+
 **Investigators Said the New Orleans Attacker Acted Alone**\
 `Also, Speaker Johnson is trying to unite Republicans behind him. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-attack-speaker-johnson-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/climate/federal-waters-oil-drilling-ban.html
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in January**\
 `“On Call,” “The Traitors” Season 3 and “Star Trek: Section 31” are arriving.`\
 https://nytimes.com/2025/01/02/arts/television/january-streaming-movies-shows.html
-
-**Trump’s Falsehoods Aside, China’s Influence Over Global Ports Raises Concerns**\
-`The president-elect inaccurately said that Chinese soldiers operate the Panama Canal. But China’s strategic positions in shipping worry Washington officials.`\
-https://nytimes.com/2025/01/02/us/politics/trump-panama-canal-china.html
-
-**Why Yankees' Paul Goldschmidt says he can still play at a 'really high level'**\
-`The Yankees' new first baseman spoke to the media for the first time since signing with the team in late December. `\
-https://nytimes.com/athletic/6034055/2025/01/02/why-yankees-paul-goldschmidt-says-he-can-still-play-at-a-really-high-level/
 
