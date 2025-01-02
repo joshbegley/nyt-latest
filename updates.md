@@ -1,3 +1,7 @@
+**The F.B.I. released a passport photo of the suspect.**\
+`By Adam Goldman and Devlin Barrett`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-fbi-released-a-passport-photo-of-the-suspect
+
 **'Quinn's a G, man': Texas' roller-coaster quarterback has done it again**\
 `Ewers took a massive step toward cementing his Texas legacy by leading the Longhorns’ season away from the brink of collapse.`\
 https://nytimes.com/athletic/6032491/2025/01/01/quinn-ewers-texas-college-football-playoff/

@@ -1,3 +1,7 @@
+**The F.B.I. released a passport photo of the suspect.**\
+`By Adam Goldman and Devlin Barrett`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-fbi-released-a-passport-photo-of-the-suspect
+
 **'Quinn's a G, man': Texas' roller-coaster quarterback has done it again**\
 `Ewers took a massive step toward cementing his Texas legacy by leading the Longhorns’ season away from the brink of collapse.`\
 https://nytimes.com/athletic/6032491/2025/01/01/quinn-ewers-texas-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
 **Palestinian Authority Suspends Al Jazeera, in Latest Blow to Channel**\
 `The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
 https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
-
-**American Teenager Fighting for His Life After Ambush in Mexico Kills 3**\
-`Jason Peña, now 14, was shot in the head on a highway in the city of Durango, a family spokeswoman said. His father and uncle, both U.S. citizens, and a Mexican relative were also killed.`\
-https://nytimes.com/2025/01/01/world/americas/americans-killed-durango-mexico.html
 

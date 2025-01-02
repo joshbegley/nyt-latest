@@ -1,4 +1,4 @@
-**The F.B.I. released a passport photo of the suspect.**\
+**The F.B.I. released a photo of the suspect, asking for information on him.**\
 `By Adam Goldman and Devlin Barrett`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-fbi-released-a-passport-photo-of-the-suspect
 
