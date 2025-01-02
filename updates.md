@@ -1,3 +1,15 @@
+**Friday Briefing: F.B.I. Said the New Orleans Attacker Acted Alone**\
+`Plus, eat better in 2025.`\
+https://nytimes.com/2025/01/02/briefing/new-orleans-gaza-hamas-israel-kenya-space-junk.html
+
+**Three Vegetarian Soups to Greet the New Year**\
+`Recover from heavy holiday eating with rich ramen, garlicky immunity broth and sopa de tortilla with salty cheese.`\
+https://nytimes.com/2025/01/02/dining/three-vegetarian-soups-to-greet-the-new-year.html
+
+**Alabama QB Milroe, LB Campbell enter NFL Draft**\
+`Milroe was 21-6 as Alabama's starting QB, winning an SEC championship in 2023.`\
+https://nytimes.com/athletic/6034057/2025/01/02/jalen-milroe-nfl-draft-alabama/
+
 **Car Rental App Turo Grew Quietly Before Ties to Wednesday’s Incidents**\
 `Turo, which investigators say was used to acquire the vehicles involved in the attack in New Orleans and explosion in Las Vegas, was emerging as an alternative car-rental service.`\
 https://nytimes.com/2025/01/02/technology/turo-rental-app-new-orleans-las-vegas.html
