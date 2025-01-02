@@ -1,3 +1,11 @@
+**Car Rental App Turo Grew Quietly Before Ties to Wednesday’s Incidents**\
+`Turo, which investigators say was used to acquire the vehicles involved in the attack in New Orleans and explosion in Las Vegas, was emerging as an alternative car-rental service.`\
+https://nytimes.com/2025/01/02/technology/turo-rental-app-new-orleans-las-vegas.html
+
+**Alabama QB Milroe, LB Campbell enter NFL Draft**\
+`Milroe was 20-5 as Alabama's starting QB, winning an SEC championship in 2023.`\
+https://nytimes.com/athletic/6034057/2025/01/02/jalen-milroe-nfl-draft-alabama/
+
 **Browns name Bailey Zappe starting QB for season finale vs. Ravens**\
 `Zappe will become the 40th starting quarterback of the Browns' post-1999 era.`\
 https://nytimes.com/athletic/6034053/2025/01/02/browns-bailey-zappe-starting-quarterback/
