@@ -1,3 +1,11 @@
+**Arizona State's remarkable season sets it up for the program's biggest task — sustaining success**\
+`Great stories are often more about the journey than the finish. Arizona State's will be remembered in such a way. But it might take time.`\
+https://nytimes.com/athletic/6032590/2025/01/01/arizona-state-texas-cam-skattebo/
+
+**Lenny Randle, ‘Most Interesting’ Major Leaguer, Is Dead at 75**\
+`His career was defined by bizarre episodes — blowing a rolling ball foul, knocking down a pitcher and being at bat when the lights went out in New York City.`\
+https://nytimes.com/2025/01/01/sports/baseball/lenny-randle-dead.html
+
 **Subway Violence Stubbornly Defies All Efforts to Quell It**\
 `A string of attacks has riders devising their own strategies to stay safe, even after years of official efforts to make New York’s vital transportation system secure.`\
 https://nytimes.com/2025/01/01/nyregion/subway-violence-stubbornly-defies-all-efforts-to-quell-it.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretc
 **The F.B.I. released a photo of the suspect, asking for information on him.**\
 `By Adam Goldman and Devlin Barrett`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-fbi-released-a-passport-photo-of-the-suspect
-
-**'Quinn's a G, man': Texas' roller-coaster quarterback has done it again**\
-`Ewers took a massive step toward cementing his Texas legacy by leading the Longhorns’ season away from the brink of collapse.`\
-https://nytimes.com/athletic/6032491/2025/01/01/quinn-ewers-texas-college-football-playoff/
-
-**Ohio State looks like Playoff's best team after ousting Oregon: Rose Bowl takeaways**\
-`Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
-https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
 
