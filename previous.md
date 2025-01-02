@@ -1,3 +1,11 @@
+**Promoter Warren opens legal proceedings against Eubank Jr for defamation**\
+`Queensberry promoter Frank Warren has opened legal proceedings against Chris Eubank Jr for defamation.`\
+https://nytimes.com/athletic/6027745/2025/01/02/frank-warren-chris-eubank-jr-lawsuit/
+
+**Submit your trade proposals for Eric Koreen’s ‘Who says no?’ mailbag**\
+`The Toronto Raptors are losing — a lot.`\
+https://nytimes.com/athletic/6029925/2025/01/02/nba-trade-deadline-raptors-mailbag/
+
 **Shooting Outside Queens Event Space Injures 10**\
 `Three or four people fired into a crowd in the Jamaica neighborhood, the police said.`\
 https://nytimes.com/2025/01/02/nyregion/queens-shooting-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/us/hawaii-fireworks-explosion-deaths.html
 **Wizards' Alex Sarr had a rough start, but No. 2 pick is showing signs of potential**\
 `As they have with their other rookies, the Wizards have thrown the 7-foot Sarr into the fire in hopes of speeding his development. `\
 https://nytimes.com/athletic/6030581/2025/01/02/alex-sarr-potential-wizards-nba/
-
-**Cowboys' disjointed approach to coaching staff for 2024 makes future harder to predict**\
-`“It’s been a challenging year, based on the contract situations for the coaches,” Mike McCarthy said.`\
-https://nytimes.com/athletic/6032797/2025/01/02/cowboys-coaches-future-mike-mccarthy-zimmer-fassel/
-
-**World Juniors Today: Previewing every 2025 quarterfinals matchup**\
-`Entering Thursday's games, eight teams still have a chance at leaving Ottawa with a gold medal.`\
-https://nytimes.com/athletic/6029897/2025/01/02/world-juniors-today-2025-quarterfinals-preview/
 

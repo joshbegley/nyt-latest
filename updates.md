@@ -1,3 +1,11 @@
+**Promoter Warren opens legal proceedings against Eubank Jr for defamation**\
+`Queensberry promoter Frank Warren has opened legal proceedings against Chris Eubank Jr for defamation.`\
+https://nytimes.com/athletic/6027745/2025/01/02/frank-warren-chris-eubank-jr-lawsuit/
+
+**Submit your trade proposals for Eric Koreen’s ‘Who says no?’ mailbag**\
+`The Toronto Raptors are losing — a lot.`\
+https://nytimes.com/athletic/6029925/2025/01/02/nba-trade-deadline-raptors-mailbag/
+
 **Shooting Outside Queens Event Space Injures 10**\
 `Three or four people fired into a crowd in the Jamaica neighborhood, the police said.`\
 https://nytimes.com/2025/01/02/nyregion/queens-shooting-new-york.html
