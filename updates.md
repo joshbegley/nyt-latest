@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`A deadly attack in New Orleans.`\
+https://nytimes.com/2025/01/02/briefing/new-orleans-attack-syria.html
+
 **The Song, and Rapper, Inspiring Mozambique’s Youth Uprising**\
 `“Povo no Poder,” or “People in Power,” by the rap star Azagaia, has become the unofficial anthem of the protests over a disputed election.`\
 https://nytimes.com/2025/01/02/world/africa/mozambique-protest-song-azagaia.html
