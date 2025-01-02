@@ -1,3 +1,7 @@
+**NBA Lookahead: New Year's resolutions & reliving Donovan Mitchell's 71-point gem**\
+`What should each team set its mind to in 2025? Let's explore.`\
+https://nytimes.com/athletic/6023850/2025/01/02/nba-new-years-resolution-cavaliers-celtics-lakers-lebron-james-nba/
+
 **Good Advice**\
 `What advice have you received in the past that you’d like to apply to your life in 2025?`\
 https://nytimes.com/2025/01/02/learning/good-advice.html
@@ -34,8 +38,4 @@ https://nytimes.com/paidpost/mozu-furuichi-kofun-group/the-guardians-of-japans-k
 **Word of the Day: faddish**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/02/learning/word-of-the-day-faddish.html
-
-**Arsenal can trust Nwaneri in Saka's absence - this is how he's developed since debut**\
-`Ethan Nwaneri made his first Arsenal start in the game against Brentford on Wednesday night`\
-https://nytimes.com/athletic/6031919/2025/01/02/arsenal-ethan-nwaneri-brentford-analysis/
 
