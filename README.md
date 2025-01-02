@@ -10,7 +10,7 @@ https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
 `Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
 
-**Palestinian Authority Bans Al-Jazeera, in Latest Blow to Channel**\
+**Palestinian Authority Suspends Al-Jazeera, in Latest Blow to Channel**\
 `The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
 https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
 
