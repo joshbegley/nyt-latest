@@ -1,3 +1,7 @@
+**10 notable snubs from the NFL's 2025 Pro Bowl roster**\
+`The NFL's interception leader, a 42-touchdown QB and a pair of star rookie WRs didn't make the cut this season.`\
+https://nytimes.com/athletic/6033718/2025/01/02/2025-nfl-pro-bowl-games-snubs/
+
 **Fans Observe Moment of Silence Before Sugar Bowl Kickoff in New Orleans**\
 `Those who stuck around for the game said they were not worried about another attack. “You’ve just got to be smart and keep moving forward,” one fan said.`\
 https://nytimes.com/2025/01/02/us/sugar-bowl-new-orleans-attack.html
