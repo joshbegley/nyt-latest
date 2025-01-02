@@ -1,3 +1,7 @@
+**Elena Rybakina's former coach suspended by WTA while under investigation for breaching code of conduct**\
+`Stefano Vukov is barred from obtaining Grand Slam credentials or coaching. Rybakina wants him back on her team`\
+https://nytimes.com/athletic/6034236/2025/01/02/rybakina-vukov-coach-suspended-wta-investigation/
+
 **Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
 `Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/6034385/2025/01/02/ask-cj-submit-your-nhl-questions-for-chris-johnstons-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033718/2025/01/02/2025-nfl-pro-bowl-games-snubs/
 **Fans Observe Moment of Silence Before Sugar Bowl Kickoff in New Orleans**\
 `Those who stuck around for the game said they were not worried about another attack. “You’ve just got to be smart and keep moving forward,” one fan said.`\
 https://nytimes.com/2025/01/02/us/sugar-bowl-new-orleans-attack.html
-
-**What to See in N.Y.C. Galleries in January**\
-`This week in Newly Reviewed, Martha Schwendener covers Sylvia Plimack Mangold’s photorealistic paintings, Jack Goldstein’s audio works and Pippa Garner’s gadgets.`\
-https://nytimes.com/2025/01/02/arts/nyc-galleries-january.html
 
