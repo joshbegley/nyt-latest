@@ -1,3 +1,11 @@
+**Investigators Said the New Orleans Attacker Acted Alone**\
+`Also, Speaker Johnson is trying to unite Republicans behind him. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/02/briefing/new-orleans-attack-speaker-johnson-vote.html
+
+**What to watch in college basketball this weekend: A top-10 matchup in a chock-full slate**\
+`The 2025 calendar year starts with captivating conference matchups, headlined by Florida-Kentucky and Tennessee's bid to stay undefeated.`\
+https://nytimes.com/athletic/6033434/2025/01/02/college-basketball-what-to-watch-tennessee-arkansas-florida-kentucky/
+
 **Biden Celebrates a Milestone on Judicial Confirmations After a Major Push by Democrats**\
 `In remarks on Thursday, the president praised Senate Democrats for helping him confirm 235 federal judges, surpassing Donald J. Trump’s first-term total.`\
 https://nytimes.com/2025/01/02/us/politics/biden-judicial-confirmations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/us/politics/trump-panama-canal-china.html
 **Why Yankees' Paul Goldschmidt says he can still play at a 'really high level'**\
 `The Yankees' new first baseman spoke to the media for the first time since signing with the team in late December. `\
 https://nytimes.com/athletic/6034055/2025/01/02/why-yankees-paul-goldschmidt-says-he-can-still-play-at-a-really-high-level/
-
-**What Happened to Carter’s White House Solar Panels? They Lived On.**\
-`The panels, removed under Ronald Reagan, found new homes from Maine to China. And their legacy still reverberates.`\
-https://nytimes.com/2025/01/02/climate/jimmy-carter-solar-panels.html
-
-**How to Improve Your Life**\
-`From home organizing ideas to beauty advice to travel hacks, here’s a roundup of practical guides for the New Year.`\
-https://nytimes.com/2025/01/02/t-magazine/life-improvements-new-year.html
 
