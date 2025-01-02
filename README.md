@@ -1,3 +1,19 @@
+**Richard A. Easterlin, ‘Father of Happiness Economics,’ Dies at 98**\
+`He put forth the so-called Easterlin paradox, finding that the richer you are doesn’t mean the more satisfied you’ll be with your life.`\
+https://nytimes.com/2025/01/02/business/economy/richard-a-easterlin-dead.html
+
+**How the Canadiens caught fire and found their identity**\
+`The Canadiens are on their best seven-game stretch since one week after Martin St. Louis took over as coach, but is it real?`\
+https://nytimes.com/athletic/6033834/2025/01/02/canadiens-nhl-standings-identity/
+
+**Here’s How Mike Johnson’s Speakership Bid Could Come Undone**\
+`The House must choose a speaker before it can swear in new members and certify Donald J. Trump as the winner of the 2024 presidential election. Last time, it took four days and 15 votes.`\
+https://nytimes.com/2025/01/02/us/politics/mike-johnson-speakership-vote-explainer.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/01/02/opinion/thepoint
+
 **Bedford set to become Calgary Wild head coach**\
 `Lydia Bedford is set to leave her role with Brentford Under-18s to become the new head coach of Calgary Wild.`\
 https://nytimes.com/athletic/6033141/2025/01/02/lydia-bedford-calgary-wild-coach/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6033739/2025/01/02/thomas-tuchel-england-tottenham-
 **Rosita Missoni, Who Turned Zigzag Sweaters Into High Fashion, Dies at 93**\
 `With colorful knitwear, she and her husband, Ottavio, built one of the world’s most recognizable brands, helping to make Milan a capital of “alta moda.”`\
 https://nytimes.com/2025/01/02/fashion/rosita-missoni-dead.html
-
-**What We Know About the Cybertruck Explosion in Las Vegas**\
-`The F.B.I. says no connection has been found between the truck explosion outside of a Trump Hotel and the truck attack that killed 14 people in New Orleans.`\
-https://nytimes.com/2025/01/02/us/tesla-cybertruck-explosion-las-vegas.html
-
-**Man Who Killed 3 in New Year’s Day Robbery in Mississippi Is Sought**\
-`A manhunt was underway near the border between Mississippi and Alabama after three people were fatally shot during a gas station robbery, the authorities said.`\
-https://nytimes.com/2025/01/02/us/gas-station-shooting-mississipppi.html
-
-**For football fans visiting New Orleans, a festive atmosphere turned dark overnight.**\
-`By Isabelle Taft, Keith Bradsher and Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news/for-football-fans-visiting-new-orleans-a-festive-atmosphere-turned-dark-overnight
-
-**2025: Whimsy More, Waste Less**\
-`And dare to prepare, with big batches of beans and soothing soups.`\
-https://nytimes.com/2025/01/02/dining/2025-whimsy-more-waste-less.html
 
