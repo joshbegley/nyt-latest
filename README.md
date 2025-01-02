@@ -1,3 +1,7 @@
+**How Michigan beat Alabama and what it means for 2025: Final thoughts**\
+`The Wolverines rewrote their narrative with two improbable wins to end the season. Here's what we learned at the ReliaQuest Bowl.`\
+https://nytimes.com/athletic/6032034/2025/01/02/michigan-alabama-reliaquest-bowl-2025/
+
 **Liz Cheney Is Among 20 Chosen to Receive Presidential Citizens Medal**\
 `Two close advisers to President Biden will also be honored, in addition to career lawmakers who have worked across the aisle and advocates for liberal causes.`\
 https://nytimes.com/2025/01/02/us/politics/presidential-citizens-medal-liz-cheney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/movies/zoe-saldana-emilia-perez-avatar.html
 **Long flying under the radar, Kaytron Allen gets his moment in Penn State Fiesta Bowl win**\
 `Penn State's balancing act between star running backs Allen and Nick Singleton is paying off in the College Football Playoff. `\
 https://nytimes.com/athletic/6032268/2025/01/02/kaytron-allen-penn-state-college-football-playoff/
-
-**What’s the No. 1 Complaint Among New Yorkers?**\
-`A look at service requests filed with the city reveals the biggest sources of vexation.`\
-https://nytimes.com/2025/01/02/realestate/311-complaints-new-york-city.html
 
