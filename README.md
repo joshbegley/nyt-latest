@@ -1,3 +1,11 @@
+**The Bounce: Are the Celtics OK?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6032467/2025/01/02/celtics-jaylen-brown-jayson-tatum-donovan-mitchell-cavaliers-nba-the-bounce/
+
+**Pro Bowl Games rosters: Jayden Daniels, Sam Darnold headline first timers**\
+`The festivities will be capped off by a flag football game at Camping World Stadium in Orlando, Florida on Feb. 2.`\
+https://nytimes.com/athletic/6033154/2025/01/02/nfl-pro-bowl-games-roster-2025/
+
 **Promoter Warren opens legal proceedings against Eubank Jr for defamation**\
 `Queensberry promoter Frank Warren has opened legal proceedings against Chris Eubank Jr for defamation.`\
 https://nytimes.com/athletic/6027745/2025/01/02/frank-warren-chris-eubank-jr-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html
 **Gaza Truce Looks Unlikely Before Trump’s Inauguration**\
 `Despite a recent Biden administration push, talks between Israel and Hamas to end the war appear increasingly deadlocked, according to officials familiar with the discussions.`\
 https://nytimes.com/2025/01/02/world/middleeast/israel-gaza-hamas-cease-fire-trump.html
-
-**‘War Zone Injuries’: New Year’s Fireworks Explosions Kill 3 in Honolulu**\
-`A series of explosions caused by fireworks in a residential area left more than two dozen people with burns and other injuries, officials said.`\
-https://nytimes.com/2025/01/02/us/hawaii-fireworks-explosion-deaths.html
-
-**Wizards' Alex Sarr had a rough start, but No. 2 pick is showing signs of potential**\
-`As they have with their other rookies, the Wizards have thrown the 7-foot Sarr into the fire in hopes of speeding his development. `\
-https://nytimes.com/athletic/6030581/2025/01/02/alex-sarr-potential-wizards-nba/
 
