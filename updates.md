@@ -1,3 +1,7 @@
+**A Half-Ton Piece of Space Junk Falls Onto a Village in Kenya**\
+`No one was hurt by the object, believed to be part of a launch rocket. Experts say the frequency of such incidents is increasing as the amount of debris in orbit around the Earth increases dramatically.`\
+https://nytimes.com/2025/01/02/world/africa/kenya-space-debris-rocket.html
+
 **NFL Week 18 fantasy football, betting cheat sheet: Healthy Ravens eye AFC North crown**\
 `Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
 https://nytimes.com/athletic/6027968/2025/01/02/nfl-week-18-fantasy-football-betting-cheat-sheet/
