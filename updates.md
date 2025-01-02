@@ -1,3 +1,7 @@
+**Ohio State showed in Rose Bowl it's best team in country — and only gaining steam**\
+`In CFP games against Tennessee and Oregon, Ohio State outscored them 83-38 and outgained them 973-532.`\
+https://nytimes.com/athletic/6033139/2025/01/02/ohio-state-oregon-rose-bowl-best-team/
+
 **New Orleans Prepares to Reopen Bourbon Street After Truck Attack**\
 `Street cleaning trucks were called in as law enforcement agencies appeared to have wrapped up most of their initial investigative work at the site of the attack.`\
 https://nytimes.com/2025/01/02/us/new-orleans-attack-bourbon-street.html

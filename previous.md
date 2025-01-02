@@ -1,3 +1,7 @@
+**Ohio State showed in Rose Bowl it's best team in country — and only gaining steam**\
+`In CFP games against Tennessee and Oregon, Ohio State outscored them 83-38 and outgained them 973-532.`\
+https://nytimes.com/athletic/6033139/2025/01/02/ohio-state-oregon-rose-bowl-best-team/
+
 **New Orleans Prepares to Reopen Bourbon Street After Truck Attack**\
 `Street cleaning trucks were called in as law enforcement agencies appeared to have wrapped up most of their initial investigative work at the site of the attack.`\
 https://nytimes.com/2025/01/02/us/new-orleans-attack-bourbon-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/02/us/trump-news
 **Real Madrid target January return for Alaba after 13-month absence**\
 `Real Madrid are targeting a return for David Alaba in January following the serious knee injury that has kept him out for the last 13 months.`\
 https://nytimes.com/athletic/6033008/2025/01/02/david-alaba-injury-update-real-madrid/
-
-**An Ohio State vs. Penn State finale? Big Ten powers proving that identity still matters**\
-`The Buckeyes and Nittany Lions have the right pieces and schedule to keep advancing. `\
-https://nytimes.com/athletic/6032959/2025/01/02/ohio-state-penn-state-big-ten-playoff-championship/
 
