@@ -1,3 +1,7 @@
+**Cowboys Today: Mike McCarthy's thoughts on Ezekiel Elliott release, Dallas gets 5 Pro Bowlers**\
+`Pro Bowl rosters were announced Thursday and the Cowboys totaled five selections, down from the 10 they had last season.`\
+https://nytimes.com/athletic/6033213/2025/01/02/cowboys-today-ezekiel-elliott-rico-dowdle-pro-bowl-rosters/
+
 **Several Injured in Shooting Outside Queens Event Space**\
 `The police said the suspects escaped in a vehicle after the shooting Wednesday evening.`\
 https://nytimes.com/video/us/100000009904554/queens-shooting-jamaica-nyc.html

@@ -1,3 +1,7 @@
+**Cowboys Today: Mike McCarthy's thoughts on Ezekiel Elliott release, Dallas gets 5 Pro Bowlers**\
+`Pro Bowl rosters were announced Thursday and the Cowboys totaled five selections, down from the 10 they had last season.`\
+https://nytimes.com/athletic/6033213/2025/01/02/cowboys-today-ezekiel-elliott-rico-dowdle-pro-bowl-rosters/
+
 **Several Injured in Shooting Outside Queens Event Space**\
 `The police said the suspects escaped in a vehicle after the shooting Wednesday evening.`\
 https://nytimes.com/video/us/100000009904554/queens-shooting-jamaica-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/nyregion/nypd-jeffrey-maddrey-home-search.html
 **Ohio State showed in Rose Bowl it's best team in country — and only gaining steam**\
 `In CFP games against Tennessee and Oregon, Ohio State outscored them 83-38 and outgained them 973-532.`\
 https://nytimes.com/athletic/6033139/2025/01/02/ohio-state-oregon-rose-bowl-best-team/
-
-**New Orleans Prepares to Reopen Bourbon Street After Truck Attack**\
-`Street cleaning trucks were called in as law enforcement agencies appeared to have wrapped up most of their initial investigative work at the site of the attack.`\
-https://nytimes.com/2025/01/02/us/new-orleans-attack-bourbon-street.html
 
