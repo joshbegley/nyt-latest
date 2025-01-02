@@ -1,3 +1,7 @@
+**Montenegro Shooting Kills 10, Including 2 Children, Officials Say**\
+`The authorities in the small Balkan country reported after a search that the gunman, whose rampage followed a bar fight, had been found dead.`\
+https://nytimes.com/2025/01/01/world/europe/montenegro-shooting.html
+
 **'Quinn's a G, man': Texas' roller-coaster quarterback has done it again**\
 `Ewers took a massive step toward cementing his Texas legacy by leading the Longhorns’ season away from the brink of collapse.`\
 https://nytimes.com/athletic/6032491/2025/01/01/quinn-ewers-texas-college-football-playoff/
