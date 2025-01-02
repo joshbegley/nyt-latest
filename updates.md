@@ -1,3 +1,11 @@
+**Bedford set to become Calgary Wild head coach**\
+`Lydia Bedford is set to leave her role with Brentford Under-18s to become the new head coach of Calgary Wild.`\
+https://nytimes.com/athletic/6033141/2025/01/02/lydia-bedford-calgary-wild-coach/
+
+**Man Who Killed 3 in New Year’s Day Robbery in Mississippi Is Sought**\
+`A manhunt was underway near the border between Mississippi and Alabama after three people were fatally shot during a gas station robbery, the authorities said.`\
+https://nytimes.com/2025/01/02/us/gas-station-shooting-mississipppi.html
+
 **U.S. Weighs Ban on Chinese Drones, Citing National Security Concerns**\
 `The Commerce Department requested that private companies comment on the implications of the rule by March. The final decision will fall to the Trump administration.`\
 https://nytimes.com/2025/01/02/us/politics/drone-ban-china-security.html
