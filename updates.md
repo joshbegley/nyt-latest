@@ -1,3 +1,7 @@
+**Cold Snap Is Forecast to Grip Much of the United States**\
+`The Arctic air arrives this weekend and could linger into mid-January.`\
+https://nytimes.com/2025/01/02/weather/winter-storm-cold-forecast-snow.html
+
 **Sabres trade tiers: Is anyone on Buffalo's roster untouchable ahead of deadline?**\
 `This exercise serves as a starting point for what the value of each Sabres player might be if a team comes calling.`\
 https://nytimes.com/athletic/6033442/2025/01/02/buffalo-sabres-trade-tiers-deadline-2025/
