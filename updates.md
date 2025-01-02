@@ -1,3 +1,19 @@
+**Wizards' Alex Sarr had a rough start, but No. 2 pick is showing signs of potential**\
+`As they have with their other rookies, the Wizards have thrown the 7-foot Sarr into the fire in hopes of speeding his development. `\
+https://nytimes.com/athletic/6030581/2025/01/02/alex-sarr-potential-wizards-nba/
+
+**Cowboys' disjointed approach to coaching staff for 2024 makes future harder to predict**\
+`“It’s been a challenging year, based on the contract situations for the coaches,” Mike McCarthy said.`\
+https://nytimes.com/athletic/6032797/2025/01/02/cowboys-coaches-future-mike-mccarthy-zimmer-fassel/
+
+**World Juniors Today: Previewing every 2025 quarterfinals matchup**\
+`Entering Thursday's games, eight teams still have a chance at leaving Ottawa with a gold medal.`\
+https://nytimes.com/athletic/6029897/2025/01/02/world-juniors-today-2025-quarterfinals-preview/
+
+**Trump Transition Live Updates: Biden to Award Presidential Medal to Liz Cheney**\
+``\
+https://nytimes.com/live/2025/01/02/us/trump-news
+
 **Real Madrid target January return for Alaba after 13-month absence**\
 `Real Madrid are targeting a return for David Alaba in January following the serious knee injury that has kept him out for the last 13 months.`\
 https://nytimes.com/athletic/6033008/2025/01/02/david-alaba-injury-update-real-madrid/

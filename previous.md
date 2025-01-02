@@ -1,3 +1,19 @@
+**Wizards' Alex Sarr had a rough start, but No. 2 pick is showing signs of potential**\
+`As they have with their other rookies, the Wizards have thrown the 7-foot Sarr into the fire in hopes of speeding his development. `\
+https://nytimes.com/athletic/6030581/2025/01/02/alex-sarr-potential-wizards-nba/
+
+**Cowboys' disjointed approach to coaching staff for 2024 makes future harder to predict**\
+`“It’s been a challenging year, based on the contract situations for the coaches,” Mike McCarthy said.`\
+https://nytimes.com/athletic/6032797/2025/01/02/cowboys-coaches-future-mike-mccarthy-zimmer-fassel/
+
+**World Juniors Today: Previewing every 2025 quarterfinals matchup**\
+`Entering Thursday's games, eight teams still have a chance at leaving Ottawa with a gold medal.`\
+https://nytimes.com/athletic/6029897/2025/01/02/world-juniors-today-2025-quarterfinals-preview/
+
+**Trump Transition Live Updates: Biden to Award Presidential Medal to Liz Cheney**\
+``\
+https://nytimes.com/live/2025/01/02/us/trump-news
+
 **Real Madrid target January return for Alaba after 13-month absence**\
 `Real Madrid are targeting a return for David Alaba in January following the serious knee injury that has kept him out for the last 13 months.`\
 https://nytimes.com/athletic/6033008/2025/01/02/david-alaba-injury-update-real-madrid/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6032859/2025/01/02/deaaron-fox-kings-mike-brown-fir
 **Why the Chiefs' regular-season finale is far from meaningless for Carson Wentz**\
 `With Patrick Mahomes resting, Wentz will make his first start as a Chief, an audition for teams seeking a veteran QB option this offseason.`\
 https://nytimes.com/athletic/6032073/2025/01/02/chiefs-carson-wentz-broncos-season-finale/
-
-**Heat Today: With or without a trade, the Heat and Jimmy Butler need to work together**\
-`Butler's candid remarks reignited rumors about his future in Miami, but both parties need to focus on the immediate task ahead.`\
-https://nytimes.com/athletic/6032669/2025/01/02/jimmy-butler-trade-bam-adebay-tyler-herro-heat-nba/
-
-**History says Broncos can't underestimate Chiefs, starters or not, in must-win game**\
-`Andy Reid nearly crushed the playoff dreams of a division rival while leading a team of reserves in 2013, a cautionary tale for Denver.`\
-https://nytimes.com/athletic/6031578/2025/01/02/broncos-playoffs-week-18-chiefs/
-
-**The Pulse: Why the 12-team Playoff is perfect this year**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6032552/2025/01/02/cfp-new-orleans-ohio-state-oregon-the-pulse/
-
-**Terror in New Orleans**\
-`What we know, and don’t know, about the New Year’s attack.`\
-https://nytimes.com/2025/01/02/briefing/new-orleans-new-year-attack.html
 
