@@ -1,3 +1,7 @@
+**History says Broncos can't underestimate Chiefs, starters or not, in must-win game**\
+`Andy Reid nearly crushed the playoff dreams of a division rival while leading a team of reserves in 2013, a cautionary tale for Denver.`\
+https://nytimes.com/athletic/6031578/2025/01/02/broncos-playoffs-week-18-chiefs/
+
 **The Pulse: Why the 12-team Playoff is perfect this year**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6032552/2025/01/02/cfp-new-orleans-ohio-state-oregon-the-pulse/

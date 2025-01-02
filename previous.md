@@ -1,3 +1,7 @@
+**History says Broncos can't underestimate Chiefs, starters or not, in must-win game**\
+`Andy Reid nearly crushed the playoff dreams of a division rival while leading a team of reserves in 2013, a cautionary tale for Denver.`\
+https://nytimes.com/athletic/6031578/2025/01/02/broncos-playoffs-week-18-chiefs/
+
 **The Pulse: Why the 12-team Playoff is perfect this year**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6032552/2025/01/02/cfp-new-orleans-ohio-state-oregon-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030244/2025/01/02/bears-mock-draft-offensive-linem
 **For Rams star WR Puka Nacua, big games start by channeling big emotions**\
 `Rams star receiver Puka Nacua practices breathing techniques when he's in the huddle between plays to settle his mind.`\
 https://nytimes.com/athletic/6032572/2025/01/02/rams-puka-nacua-emotions-star-receiver-seahawks/
-
-**Taking stock of Spurs' Stephon Castle, Rockets' Reed Sheppard and other NBA rookies**\
-`Kelly Iko and Sam Vecenie discuss how the rookies on the Spurs, Rockets and Grizzlies have performed so far this season. `\
-https://nytimes.com/athletic/6027396/2025/01/02/nba-draft-2024-rookies-spurs-rockets-grizzlies/
 
