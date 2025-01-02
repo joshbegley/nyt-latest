@@ -1,3 +1,7 @@
+**Heat Today: With or without a trade, the Heat and Jimmy Butler need to work together**\
+`Jimmy Butler's candid remarks reignited rumors about his future in Miami, but both parties must work together no matter what`\
+https://nytimes.com/athletic/6032669/2025/01/02/jimmy-butler-trade-bam-adebay-tyler-herro-heat-nba/
+
 **History says Broncos can't underestimate Chiefs, starters or not, in must-win game**\
 `Andy Reid nearly crushed the playoff dreams of a division rival while leading a team of reserves in 2013, a cautionary tale for Denver.`\
 https://nytimes.com/athletic/6031578/2025/01/02/broncos-playoffs-week-18-chiefs/
