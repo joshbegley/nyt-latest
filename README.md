@@ -1,9 +1,13 @@
+**Agnes Keleti, World’s Oldest Olympic Champion, Dies at 103**\
+`Ms. Keleti turned to gymnastics after surviving World War II, and won 10 Olympic medals competing against far younger athletes.`\
+https://nytimes.com/2025/01/02/obituaries/agnes-keleti-dead.html
+
 **Here’s the latest on the attack.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news/heres-the-latest-on-the-attack
 
 **Live Updates: Investigators Look Into Whether New Orleans Attacker Acted Alone**\
-`Devices that could be homemade bombs were found after a man drove a pickup truck into a crowd in the French Quarter, raising suspicions that he had co-conspirators. At least 15 people were killed in the attack.`\
+`Devices that could be homemade bombs were found after a man drove a pickup truck into a crowd in the French Quarter, raising suspicions that he had accomplices. At least 15 people were killed in the attack.`\
 https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news
 
 **Phillies notes: Rotation plans, outfield scenarios, roster talk, and is the bullpen 'set'?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/style/carter-vail.html
 **At Lorna Simpson’s Show, a Constellation of Galactic and Human History**\
 `In celestial hues the artist’s turn to the cosmos, and abstraction, bring us back to vital matters on earth.`\
 https://nytimes.com/2025/01/02/arts/design/lorna-simpson-hauser-wirth-meteorite-paintings-cosmos-art.html
-
-**The Classical Music Our Critics Can’t Stop Thinking About**\
-`Watch and listen to five recent highlights, including the “Brutalist” soundtrack, the soprano Barbara Hannigan and Strauss singers at the Met Opera.`\
-https://nytimes.com/2025/01/02/arts/music/best-classical-music-december-2024.html
 
