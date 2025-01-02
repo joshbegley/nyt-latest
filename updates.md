@@ -1,3 +1,11 @@
+**Eyeing Potential Bird Flu Outbreak, Biden Administration Ramps Up Preparedness**\
+`The administration is committing an additional $306 million toward battling the virus, and will distribute the money before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2025/01/02/us/politics/bird-flu-biden-trump.html
+
+**Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
+`A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
+https://nytimes.com/athletic/6032129/2025/01/02/asu-texas-targeting-peach-bowl-playoff/
+
 **South Korean Officials Move on President’s Home, With Warrant in Hand**\
 `The authorities are seeking to detain President Yoon Suk Yeol for questioning over his declaration of martial law, which plunged the country into a political crisis.`\
 https://nytimes.com/2025/01/02/world/asia/south-korea-president-yoon-suk-yeol.html
