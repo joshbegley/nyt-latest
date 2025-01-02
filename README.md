@@ -1,6 +1,14 @@
+**Eyeing Potential Bird Flu Outbreak, Biden Administration Ramps Up Preparedness**\
+`The administration is committing an additional $306 million toward battling the virus, and will distribute the money before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2025/01/02/us/politics/bird-flu-biden-trump.html
+
 **South Korean Officials Move on President’s Home, With Warrant in Hand**\
 `The authorities are seeking to detain President Yoon Suk Yeol for questioning over his declaration of martial law, which plunged the country into a political crisis.`\
 https://nytimes.com/2025/01/02/world/asia/south-korea-president-yoon-suk-yeol.html
+
+**Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
+`A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
+https://nytimes.com/athletic/6032129/2025/01/02/asu-texas-targeting-peach-bowl-playoff/
 
 **NWSL expansion adds Denver as 16th team, $110 million fee smashes record: source**\
 `The expansion fee totals $110 million and the first payment has already been made, according to the source`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/us/politics/fbi-capitol-riot-pipe-bomb-suspect.ht
 **Letter Carrier Is Fatally Stabbed at a Bodega in Harlem**\
 `The police had a person of interest in custody, but no charges had been filed. Investigators did not identify the victim.`\
 https://nytimes.com/2025/01/02/nyregion/postal-worker-stabbed-harlem-bodega.html
-
-**New Orleans Attacker Most Likely Acted Alone, Officials Say**\
-`They also said they did not see a “definitive link” between the attack and an explosion at a Trump hotel in Las Vegas, but cautioned that it’s too early to be sure.`\
-https://nytimes.com/2025/01/02/us/new-orleans-terror-truck-attack.html
-
-**Investigators Said the New Orleans Attacker Acted Alone**\
-`Also, Speaker Johnson is trying to unite Republicans behind him. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/01/02/briefing/new-orleans-attack-speaker-johnson-vote.html
 
