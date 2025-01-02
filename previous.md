@@ -1,3 +1,19 @@
+**Meta Appoints Executive With Republican Ties to Lead Global Policy**\
+`Joel Kaplan, who was a former senior adviser to George W. Bush, replaces Nick Clegg, who was a former deputy prime minister of Britain, as Meta’s head of policy.`\
+https://nytimes.com/2025/01/02/technology/meta-joel-kaplan-nick-clegg.html
+
+**Gracie Mansion Intruder Films Himself During New Year’s Break-In**\
+`A man jumped a fence early on New Year’s Day, entered the New York mayor’s official residence and stole a Christmas ornament, the police said. The mayor, Eric Adams, was not there.`\
+https://nytimes.com/2025/01/02/nyregion/nyc-gracie-mansion-intruder.html
+
+**What 15 Very Different People Hope to See in 2025**\
+`A Pulitzer Prize-winning novelist, a hand surgeon in India and others share their expectations.`\
+https://nytimes.com/2025/01/02/opinion/2025-new-years-hopes.html
+
+**How good was Texas-ASU? Ranking the 10 best College Football Playoff games ever**\
+`In a 12-team bracket full of blowouts, Texas and Arizona State delivered an instant classic that stacks up with the best Playoff games.`\
+https://nytimes.com/athletic/6033647/2025/01/02/peach-bowl-college-football-playoff-best-games/
+
 **Giants NFL Draft order scenarios: Can New York still land the No. 1 pick?**\
 `The Giants' odds of securing the No. 1 overall pick are slim, but they still have a great chance of landing a pick inside the top three. `\
 https://nytimes.com/athletic/6033361/2025/01/02/giants-2025-nfl-draft-top-pick-scenarios/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6033834/2025/01/02/canadiens-nhl-standings-identity
 **Here’s How Mike Johnson’s Speakership Bid Could Come Undone**\
 `The House must choose a speaker before it can swear in new members and certify Donald J. Trump as the winner of the 2024 presidential election. Last time, it took four days and 15 votes.`\
 https://nytimes.com/2025/01/02/us/politics/mike-johnson-speakership-vote-explainer.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/01/02/opinion/thepoint
-
-**Bedford set to become Calgary Wild head coach**\
-`Lydia Bedford is set to leave her role with Brentford Under-18s to become the new head coach of Calgary Wild.`\
-https://nytimes.com/athletic/6033141/2025/01/02/lydia-bedford-calgary-wild-coach/
-
-**U.S. Weighs Ban on Chinese Drones, Citing National Security Concerns**\
-`The Commerce Department requested that private companies comment on the implications of the rule by March. The final decision will fall to the Trump administration.`\
-https://nytimes.com/2025/01/02/us/politics/drone-ban-china-security.html
-
-**After starting strong, the Giants' offseason could use a momentum boost**\
-`The Adames signing was a great start for the Giants this offseason, but it has been quiet since then as other NL West teams have re-loaded.`\
-https://nytimes.com/athletic/6032480/2025/01/02/sf-giants-offseason-check-in/
 
