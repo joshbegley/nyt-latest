@@ -1,3 +1,7 @@
+**Johnson wages a precarious bid for re-election.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2025/01/02/us/trump-news/johnson-wages-a-precarious-bid-for-re-election
+
 **Forest owner Marinakis turns £82m of loans into shares to cut club debt**\
 `Nottingham Forest owner Evangelos Marinakis has reduced the club’s debt by converting another £82million of loans into share capital.`\
 https://nytimes.com/athletic/6033521/2025/01/02/forest-owner-marinakis-shares/
