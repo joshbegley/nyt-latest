@@ -1,3 +1,11 @@
+**Costumes, Beers and Cheers: How Darts Became London’s Rowdiest Winter Party**\
+`The professional darts championships draw tens of thousands of raucous fans. The beer flows freely in the stands, but the competition is serious.`\
+https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html
+
+**Gaza Truce Looks Unlikely Before Trump’s Inauguration**\
+`Despite a recent Biden administration push, talks between Israel and Hamas to end the war appear increasingly deadlocked, according to officials familiar with the discussions.`\
+https://nytimes.com/2025/01/02/world/middleeast/israel-gaza-hamas-cease-fire-trump.html
+
 **‘War Zone Injuries’: New Year’s Fireworks Explosions Kill 3 in Honolulu**\
 `A series of explosions caused by fireworks in a residential area left more than two dozen people with burns and other injuries, officials said.`\
 https://nytimes.com/2025/01/02/us/hawaii-fireworks-explosion-deaths.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6032959/2025/01/02/ohio-state-penn-state-big-ten-pl
 **Aston Villa considering Philogene January loan**\
 `Aston Villa are considering allowing winger Jaden Philogene to depart the club on loan in January.`\
 https://nytimes.com/athletic/6031853/2025/01/02/jaden-philogene-loan-transfer-aston-villa/
-
-**The Bull and Bear Case for 2025**\
-`The stock market has been on a blistering two-year rally. But Wall Street is warning that a number of factors, including Donald Trump’s policies, could slow or derail that momentum`\
-https://nytimes.com/2025/01/02/business/dealbook/bull-bear-case-markets-2025.html
-
-**Amick: De'Aaron Fox shouldn't bear the blame for the Kings firing Mike Brown**\
-`Sacramento's handling of its well-respected ex-coach should make Fox a sympathetic figure — and could pave the way for his eventual exit`\
-https://nytimes.com/athletic/6032859/2025/01/02/deaaron-fox-kings-mike-brown-firing/
 
