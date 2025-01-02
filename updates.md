@@ -1,3 +1,11 @@
+**South Korean Officials Move on President’s Home, With Warrant in Hand**\
+`The authorities are seeking to detain President Yoon Suk Yeol for questioning over his declaration of martial law, which plunged the country into a political crisis.`\
+https://nytimes.com/2025/01/02/world/asia/south-korea-president-yoon-suk-yeol.html
+
+**NWSL expansion adds Denver as 16th team, $110 million fee smashes record: source**\
+`The expansion fee totals $110 million and the first payment has already been made, according to the source`\
+https://nytimes.com/athletic/6034199/2025/01/02/nwsl-expansion-denver-record-price/
+
 **NWSL expansion adds Denver as 16th team, $110 million fee smashes record**\
 `The expansion fee totals $110 million and the first payment has already been made, according to the source`\
 https://nytimes.com/athletic/6034199/2025/01/02/nwsl-expansion-denver-record-price/
