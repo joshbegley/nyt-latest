@@ -1,3 +1,7 @@
+**Immanuel Quickley gives Raptors the space to function**\
+`In his return from an elbow injury, the Raptors point guard showed how crucial he is to the team's attack.`\
+https://nytimes.com/athletic/6032723/2025/01/01/immanuel-quickley-raptors-return/
+
 **Oregon's crushing Rose Bowl defeat once again leaves Ducks on the outside looking in**\
 `For decades, the Ducks have knocked at the door of becoming a desired member of college football's elite. All they're missing is the trophy.`\
 https://nytimes.com/athletic/6032737/2025/01/01/oregon-loss-rose-bowl-dan-lanning-college-football-playoff/
