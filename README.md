@@ -1,3 +1,7 @@
+**Pistons' Jaden Ivey stretchered off court with apparent leg injury**\
+`The 22-year-old is on pace for career highs in points, rebounds, steals, field goal percentage, 3-point percentage and 3-point attempts.`\
+https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretcher/
+
 **The F.B.I. released a photo of the suspect, asking for information on him.**\
 `By Adam Goldman and Devlin Barrett`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-fbi-released-a-passport-photo-of-the-suspect
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-de
 **Who Were the People Killed in the New Orleans Attack on New Year’s?**\
 `This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
-
-**Palestinian Authority Suspends Al Jazeera, in Latest Blow to Channel**\
-`The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
-https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
 
