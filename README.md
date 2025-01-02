@@ -1,3 +1,7 @@
+**Biden Celebrates a Milestone on Judicial Confirmations After a Major Push by Democrats**\
+`In remarks on Thursday, the president praised Senate Democrats for helping him confirm 235 federal judges, surpassing Donald J. Trump’s first-term total.`\
+https://nytimes.com/2025/01/02/us/politics/biden-judicial-confirmations.html
+
 **10 notable snubs from the NFL's 2025 Pro Bowl roster**\
 `The NFL's interception leader, a 42-touchdown QB and a pair of star rookie WRs didn't make the cut this season.`\
 https://nytimes.com/athletic/6033718/2025/01/02/2025-nfl-pro-bowl-games-snubs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/climate/jimmy-carter-solar-panels.html
 **How to Improve Your Life**\
 `From home organizing ideas to beauty advice to travel hacks, here’s a roundup of practical guides for the New Year.`\
 https://nytimes.com/2025/01/02/t-magazine/life-improvements-new-year.html
-
-**Friday Briefing: F.B.I. Said the New Orleans Attacker Acted Alone**\
-`Plus, eat better in 2025.`\
-https://nytimes.com/2025/01/02/briefing/new-orleans-gaza-hamas-israel-kenya-space-junk.html
 
