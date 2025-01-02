@@ -1,3 +1,11 @@
+**Car Rental App Turo Grew Quietly Before Ties to Wednesday’s Incidents**\
+`Turo, which investigators say was used to acquire the vehicles involved in the attack in New Orleans and explosion in Las Vegas, was emerging as an alternative car-rental service.`\
+https://nytimes.com/2025/01/02/technology/turo-rental-app-new-orleans-las-vegas.html
+
+**Alabama QB Milroe, LB Campbell enter NFL Draft**\
+`Milroe was 20-5 as Alabama's starting QB, winning an SEC championship in 2023.`\
+https://nytimes.com/athletic/6034057/2025/01/02/jalen-milroe-nfl-draft-alabama/
+
 **Browns name Bailey Zappe starting QB for season finale vs. Ravens**\
 `Zappe will become the 40th starting quarterback of the Browns' post-1999 era.`\
 https://nytimes.com/athletic/6034053/2025/01/02/browns-bailey-zappe-starting-quarterback/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/nyregion/nyc-gracie-mansion-intruder.html
 **What 15 Very Different People Hope to See in 2025**\
 `A Pulitzer Prize-winning novelist, a hand surgeon in India and others share their expectations.`\
 https://nytimes.com/2025/01/02/opinion/2025-new-years-hopes.html
-
-**How good was Texas-ASU? Ranking the 10 best College Football Playoff games ever**\
-`In a 12-team bracket full of blowouts, Texas and Arizona State delivered an instant classic that stacks up with the best Playoff games.`\
-https://nytimes.com/athletic/6033647/2025/01/02/peach-bowl-college-football-playoff-best-games/
-
-**Giants NFL Draft order scenarios: Can New York still land the No. 1 pick?**\
-`The Giants' odds of securing the No. 1 overall pick are slim, but they still have a great chance of landing a pick inside the top three. `\
-https://nytimes.com/athletic/6033361/2025/01/02/giants-2025-nfl-draft-top-pick-scenarios/
 
