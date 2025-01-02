@@ -2,10 +2,6 @@
 `Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
 https://nytimes.com/athletic/6032404/2025/01/01/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
 
-**How Ohio State gave Oregon its first loss in a Playoff blowout: Rose Bowl takeaways**\
-`Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
-https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
-
 **Trucks in New Orleans Attack and Las Vegas Explosion Were Rented Using the Same App**\
 `Renters of both vehicles had used Turo, a peer-to-peer app. Officials are investigating possible connections between the two cases.`\
 https://nytimes.com/2025/01/01/us/turo-new-orleans-attack-vegas-explosion.html
@@ -25,6 +21,10 @@ https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-de
 **Who Were the People Killed in the New Orleans Attack on New Year’s?**\
 `This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
+
+**How Ohio State gave Oregon its first loss in a Playoff blowout: Rose Bowl takeaways**\
+`Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
+https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
 
 **Palestinian Authority Suspends Al-Jazeera, in Latest Blow to Channel**\
 `The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
