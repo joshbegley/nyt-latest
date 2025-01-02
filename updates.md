@@ -1,3 +1,7 @@
+**America, Afghanistan and the Price of Self-Delusion**\
+`Greed and self-delusion kept the money flowing, and hid the truth from the public.`\
+https://nytimes.com/2025/01/02/opinion/afghanistan-audit-reconstruction-us.html
+
 **Zirkzee, Manchester United and the thorny issue of booing your own players**\
 `Fans at Old Trafford have jeered their own players before and the Dutch forward was the latest to suffer that kind of ignominy`\
 https://nytimes.com/athletic/6031519/2025/01/02/joshua-zirkzee-manchester-united-fans/
