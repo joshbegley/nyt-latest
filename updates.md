@@ -1,3 +1,7 @@
+**Scoop City: Seven NFL records to track this weekend**\
+`A quick look at significant records to watch for in the final week of the 2024 regular season`\
+https://nytimes.com/athletic/6033393/2025/01/02/seven-nfl-records-to-watch-in-week-18-scoop-city/
+
 **A Half-Ton Piece of Space Junk Falls Onto a Village in Kenya**\
 `No one was hurt by the object, believed to be part of a launch rocket. Experts say the frequency of such incidents is increasing as the amount of debris in orbit around the Earth increases dramatically.`\
 https://nytimes.com/2025/01/02/world/africa/kenya-space-debris-rocket.html
