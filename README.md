@@ -2,7 +2,7 @@
 `Bill Guerin told reporters Spurgeon’s injury isn’t as bad as the team originally thought and provided an update on the captain.`\
 https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kirill-kaprizov-update/
 
-**Could Better Security Have Stopped the New Orleans Attack?**\
+**Could Better Security Have Stopped the New Orleans Terror Attack?**\
 `Other cities use dump trucks, fire engines and other barriers to protect their streets. But a lone-wolf attack is hard to stop, security experts say.`\
 https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
 
