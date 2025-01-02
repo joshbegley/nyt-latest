@@ -1,3 +1,11 @@
+**England head coach Tuchel to attend Tottenham vs Newcastle**\
+`Thomas Tuchel is set to attend his first Premier League matches this weekend since beginning work as England manager.`\
+https://nytimes.com/athletic/6033739/2025/01/02/thomas-tuchel-england-tottenham-newcastle/
+
+**Rosita Missoni, Who Turned Zigzag Sweaters Into High Fashion, Dies at 93**\
+`With colorful knitwear, she and her husband, Ottavio, built one of the world’s most recognizable brands, helping to make Milan a capital of “alta moda.”`\
+https://nytimes.com/2025/01/02/fashion/rosita-missoni-dead.html
+
 **Knicks' Kolek pulls off rare G League/NBA doubleheader Wednesday**\
 `After scoring 36 points in a G League matinee, Kolek was called up due to injuries to Knicks guards Jalen Brunson and Miles McBride.`\
 https://nytimes.com/athletic/6033390/2025/01/02/knicks-tyler-kolek-double-points-assists/
