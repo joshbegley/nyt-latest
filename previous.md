@@ -1,3 +1,7 @@
+**Texas vs. Ohio State: How to watch, picks, odds for CFP semifinal at Cotton Bowl**\
+`Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
+https://nytimes.com/athletic/6032404/2025/01/01/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
+
 **Trucks in New Orleans Attack and Las Vegas Explosion Were Rented Using the Same App**\
 `Renters of both vehicles had used Turo, a peer-to-peer app. Officials are investigating possible connections between the two cases.`\
 https://nytimes.com/2025/01/01/us/turo-new-orleans-attack-vegas-explosion.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-de
 `This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
 
-**Ohio State jumps to 34-8 halftime lead over No. 1 Oregon in Rose Bowl**\
+**How Ohio State gave Oregon its first loss in a Playoff blowout: Rose Bowl takeaways**\
 `Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/world/americas/americans-killed-durango-mexico.ht
 **Montenegro Shooting Kills 10, Including 2 Children, Officials Say**\
 `The authorities in the small Balkan country reported after a search that the gunman, whose rampage followed a bar fight, had been found dead.`\
 https://nytimes.com/2025/01/01/world/europe/montenegro-shooting.html
-
-**McVay: Jimmy Garoppolo to start for Rams in Week 18, Stetson Bennett will be backup**\
-`Matthew Stafford will get the Week 18 matchup vs. the Seahawks off and some rest in front of the Rams' playoff game.`\
-https://nytimes.com/athletic/6031869/2025/01/01/rams-matthew-stafford-out-jimmy-garoppolo-starting-seahawks/
 
