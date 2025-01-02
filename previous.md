@@ -1,3 +1,7 @@
+**A neighborhood in New Orleans wakes up to SWAT teams after attack.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/a-neighborhood-in-new-orleans-wakes-up-to-swat-teams-after-attack
+
 **The New Orleans attacker’s military record includes a deployment to Afghanistan.**\
 `By Dave Philipps`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-new-orleans-attackers-military-record-includes-a-deployment-to-afghanistan
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-attacker-to
 **In New Orleans, Celebration Is Followed By Terror in the French Quarter**\
 `The attack that left 15 dead and about three dozen injured followed a distressingly familiar pattern of assailants turning vehicles into weapons.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-nye-bourbon-street.html
-
-**Rodgers unsure of playing in 2025, says he could be 'part of change' in N.Y.**\
-`"So I just need a break mentally to just kind of refresh, put my feet in the sand and see where I'm at after that," Rodgers said.`\
-https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-decision/
 

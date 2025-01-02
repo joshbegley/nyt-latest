@@ -1,3 +1,7 @@
+**A neighborhood in New Orleans wakes up to SWAT teams after attack.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/a-neighborhood-in-new-orleans-wakes-up-to-swat-teams-after-attack
+
 **The New Orleans attacker’s military record includes a deployment to Afghanistan.**\
 `By Dave Philipps`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-new-orleans-attackers-military-record-includes-a-deployment-to-afghanistan
