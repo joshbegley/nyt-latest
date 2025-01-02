@@ -1,4 +1,4 @@
-**Elena Rybakina's former coach suspended by WTA while under investigation for breaching code of conduct**\
+**Elena Rybakina's former coach Stefano Vukov suspended by WTA under code of conduct investigation**\
 `Stefano Vukov is barred from obtaining Grand Slam credentials or coaching. Rybakina wants him back on her team`\
 https://nytimes.com/athletic/6034236/2025/01/02/rybakina-vukov-coach-suspended-wta-investigation/
 
@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6034385/2025/01/02/ask-cj-submit-your-nhl-questions
 `Four years later, the largest lingering mystery of the Capitol riot remains unsolved.`\
 https://nytimes.com/2025/01/02/us/politics/fbi-capitol-riot-pipe-bomb-suspect.html
 
-**Postal Worker Is Fatally Stabbed at a Bodega in Harlem**\
+**Letter Carrier Is Fatally Stabbed at a Bodega in Harlem**\
 `The police had a person of interest in custody, but no charges had been filed. Investigators did not identify the victim.`\
 https://nytimes.com/2025/01/02/nyregion/postal-worker-stabbed-harlem-bodega.html
 
