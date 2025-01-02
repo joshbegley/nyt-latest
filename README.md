@@ -1,3 +1,7 @@
+**Diego Gomez to Brighton & Hove Albion: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Diego Gomez's move from Inter Miami to Brighton`\
+https://nytimes.com/athletic/6029646/2025/01/02/diego-gomez-brighton-the-athletic-500-rating/
+
 **Gomez will not make his Brighton debut against Arsenal**\
 `Brighton &amp; Hove Albion&#8217;s new midfielder Diego Gomez will not make his debut in Saturday&#8217;s home game against Arsenal.`\
 https://nytimes.com/athletic/6032916/2025/01/02/diego-gomez-brighton-debut-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031084/2025/01/02/manchester-united-andy-mitten-an
 **Dana White, Donald Trump and the Rise of Cage-Match Politics**\
 `How U.F.C. was transformed into a cultural powerhouse with the help of the president-elect.`\
 https://nytimes.com/2025/01/02/podcasts/the-daily/dana-white-donald-trump-ufc.html
-
-**Our most meaningful women's soccer memorabilia**\
-`The Athletic's women's soccer writers have acquired some interesting items over the years — these are some personal favorites `\
-https://nytimes.com/athletic/6010370/2025/01/02/uswnt-nwsl-memorabilia/
 

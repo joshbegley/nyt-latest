@@ -1,3 +1,7 @@
+**Entering 'Derrick Rose Night' in Chicago, peers fondly remember the former NBA MVP**\
+`Saturday's tribute to Rose is expected to show how dynamic of a player and person he was. He has plenty of NBA voices to cosign for him.`\
+https://nytimes.com/athletic/6031702/2025/01/02/derrick-rose-night-chicago-bulls/
+
 **Gomez will not make his Brighton debut against Arsenal**\
 `Brighton &amp; Hove Albion&#8217;s new midfielder Diego Gomez will not make his debut in Saturday&#8217;s home game against Arsenal.`\
 https://nytimes.com/athletic/6032916/2025/01/02/diego-gomez-brighton-debut-arsenal/
