@@ -1,3 +1,7 @@
+**Investigators Search for Links Between New Orleans and Las Vegas Attacks**\
+`The two episodes have superficial similarities, including that both attackers used the same car rental app.`\
+https://nytimes.com/2025/01/01/us/politics/new-orleans-las-vegas-attacks-similarities.html
+
 **Map: 4.7-Magnitude Earthquake Strikes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/01/weather/northern-california-quake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-scor
 **Texas vs. Ohio State: How to watch, picks, odds for CFP semifinal at Cotton Bowl**\
 `Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
 https://nytimes.com/athletic/6032404/2025/01/01/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
-
-**Trucks in New Orleans Attack and Las Vegas Explosion Were Rented Using the Same App**\
-`Renters of both vehicles had used Turo, a peer-to-peer app. Officials are investigating possible connections between the two cases.`\
-https://nytimes.com/2025/01/01/us/turo-new-orleans-attack-vegas-explosion.html
 
