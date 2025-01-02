@@ -2,6 +2,10 @@
 `Brighton &amp; Hove Albion&#8217;s new midfielder Diego Gomez will not make his debut in Saturday&#8217;s home game against Arsenal.`\
 https://nytimes.com/athletic/6032916/2025/01/02/diego-gomez-brighton-debut-arsenal/
 
+**Entering 'Derrick Rose Night' in Chicago, peers fondly remember the former NBA MVP**\
+`Saturday's tribute to Rose is expected to show how dynamic of a player and person he was. He has plenty of NBA voices to cosign for him.`\
+https://nytimes.com/athletic/6031702/2025/01/02/derrick-rose-night-chicago-bulls/
+
 **Bears mock draft: Finding O-linemen and pass rushers in Rounds 1-2**\
 `It's 2025, so we can start Mock Draft Season. Here's a look at who the Bears could consider with their first three picks in April's draft.`\
 https://nytimes.com/athletic/6030244/2025/01/02/bears-mock-draft-offensive-linemen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/podcasts/the-daily/dana-white-donald-trump-ufc.ht
 **Our most meaningful women's soccer memorabilia**\
 `The Athletic's women's soccer writers have acquired some interesting items over the years — these are some personal favorites `\
 https://nytimes.com/athletic/6010370/2025/01/02/uswnt-nwsl-memorabilia/
-
-**New Orleans Attack ‘Inspired by ISIS’, and a Cybertruck Explosion in Las Vegas**\
-`Plus, a breathalyzer test for marijuana?`\
-https://nytimes.com/2025/01/02/podcasts/new-orleans-attack-isis-cybertruck-explosion-las-vegas.html
 
