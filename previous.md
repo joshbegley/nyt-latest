@@ -1,3 +1,7 @@
+**Subway Violence Stubbornly Defies All Efforts to Quell It**\
+`A string of attacks has riders devising their own strategies to stay safe, even after years of official efforts to make New York’s vital transportation system secure.`\
+https://nytimes.com/2025/01/01/nyregion/subway-violence-stubbornly-defies-all-efforts-to-quell-it.html
+
 **Investigators Search for Links Between New Orleans and Las Vegas Attacks**\
 `The two episodes have superficial similarities, including that both attackers used the same car rental app.`\
 https://nytimes.com/2025/01/01/us/politics/new-orleans-las-vegas-attacks-similarities.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032491/2025/01/01/quinn-ewers-texas-college-footba
 **Ohio State looks like Playoff's best team after ousting Oregon: Rose Bowl takeaways**\
 `Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
-
-**Texas vs. Ohio State: How to watch, picks, odds for CFP semifinal at Cotton Bowl**\
-`Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
-https://nytimes.com/athletic/6032404/2025/01/01/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
 
