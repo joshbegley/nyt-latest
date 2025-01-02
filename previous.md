@@ -1,3 +1,7 @@
+**In New Orleans, Celebration Is Followed By Terror in the French Quarter**\
+`The attack that left 15 dead and about three dozen injured followed a distressingly familiar pattern of assailants turning vehicles into weapons.`\
+https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-nye-bourbon-street.html
+
 **Rodgers unsure of playing in 2025, says he could be 'part of change' in N.Y.**\
 `"So I just need a break mentally to just kind of refresh, put my feet in the sand and see where I'm at after that," Rodgers said.`\
 https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032136/2025/01/01/justin-thomas-golf-presidents-cu
 **Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
 `A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
 https://nytimes.com/athletic/6032129/2025/01/01/asu-texas-targeting-peach-bowl-playoff/
-
-**What is Cam Skattebo's potential as a 2025 NFL Draft prospect?**\
-`Skattebo barely registered on the 2025 draft radar heading into the season. How high is his stock now?`\
-https://nytimes.com/athletic/6032059/2025/01/01/nfl-draft-2025-cam-skattebo-scouting-report/
 

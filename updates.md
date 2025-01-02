@@ -1,3 +1,7 @@
+**In New Orleans, Celebration Is Followed By Terror in the French Quarter**\
+`The attack that left 15 dead and about three dozen injured followed a distressingly familiar pattern of assailants turning vehicles into weapons.`\
+https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-nye-bourbon-street.html
+
 **Palestinian Authority Suspends Al-Jazeera, in Latest Blow to Channel**\
 `The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
 https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
