@@ -1,3 +1,31 @@
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in January**\
+`“On Call,” “The Traitors” Season 3 and “Star Trek: Section 31” are arriving.`\
+https://nytimes.com/2025/01/02/arts/television/january-streaming-movies-shows.html
+
+**Trump’s Falsehoods Aside, China’s Influence Over Global Ports Raises Concerns**\
+`The president-elect inaccurately said that Chinese soldiers operate the Panama Canal. But China’s strategic positions in shipping worry Washington officials.`\
+https://nytimes.com/2025/01/02/us/politics/trump-panama-canal-china.html
+
+**Why Yankees' Paul Goldschmidt says he can still play at a 'really high level'**\
+`The Yankees' new first baseman spoke to the media for the first time since signing with the team in late December. `\
+https://nytimes.com/athletic/6034055/2025/01/02/why-yankees-paul-goldschmidt-says-he-can-still-play-at-a-really-high-level/
+
+**What Happened to Carter’s White House Solar Panels? They Lived On.**\
+`The panels, removed under Ronald Reagan, found new homes from Maine to China. And their legacy still reverberates.`\
+https://nytimes.com/2025/01/02/climate/jimmy-carter-solar-panels.html
+
+**How to Improve Your Life**\
+`From home organizing ideas to beauty advice to travel hacks, here’s a roundup of practical guides for the New Year.`\
+https://nytimes.com/2025/01/02/t-magazine/life-improvements-new-year.html
+
+**Friday Briefing: F.B.I. Said the New Orleans Attacker Acted Alone**\
+`Plus, eat better in 2025.`\
+https://nytimes.com/2025/01/02/briefing/new-orleans-gaza-hamas-israel-kenya-space-junk.html
+
+**Three Vegetarian Soups to Greet the New Year**\
+`Recover from heavy holiday eating with rich ramen, garlicky immunity broth and sopa de tortilla with salty cheese.`\
+https://nytimes.com/2025/01/02/dining/vegetarian-soups-nyc.html
+
 **Gracie Mansion Intruder Films Himself During New Year’s Break-In**\
 `A man jumped a fence early on New Year’s Day, entered the New York mayor’s official residence and stole a Christmas ornament, the police said. The mayor, Eric Adams, was not there.`\
 https://nytimes.com/2025/01/02/nyregion/nyc-gracie-mansion-intruder.html
