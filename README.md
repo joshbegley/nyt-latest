@@ -1,3 +1,7 @@
+**The New Orleans attacker’s military record includes a deployment to Afghanistan.**\
+`By Dave Philipps`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-new-orleans-attackers-military-record-includes-a-deployment-to-afghanistan
+
 **Pistons' Jaden Ivey stretchered off court with apparent leg injury**\
 `The 22-year-old is on pace for career highs in points, rebounds, steals, field goal percentage, 3-point percentage and 3-point attempts.`\
 https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretcher/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-nye-bourbon-street.ht
 **Rodgers unsure of playing in 2025, says he could be 'part of change' in N.Y.**\
 `"So I just need a break mentally to just kind of refresh, put my feet in the sand and see where I'm at after that," Rodgers said.`\
 https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-decision/
-
-**Who Were the People Killed in the New Orleans Attack on New Year’s?**\
-`This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
-https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
 
