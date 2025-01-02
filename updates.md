@@ -1,3 +1,11 @@
+**Browns name Bailey Zappe starting QB for season finale vs. Ravens**\
+`Zappe will become the 40th starting quarterback of the Browns' post-1999 era.`\
+https://nytimes.com/athletic/6034053/2025/01/02/browns-bailey-zappe-starting-quarterback/
+
+**Sankey 'absolutely' interested in CFP format changes for '25**\
+`Sankey, who was attending the Sugar Bowl, made clear he’s ready for such discussions about changes to the CFP format before 2026.`\
+https://nytimes.com/athletic/6033992/2025/01/02/greg-sankey-college-football-playoff-changes/
+
 **Trump’s Choices Know Little About Domestic Terrorism**\
 `The Senate needs to ensure the next cabinet is full of real professionals.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/trump-fbi-director-terrorism
