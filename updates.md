@@ -1,3 +1,11 @@
+**Arizona State's remarkable season sets it up for the program's biggest task — sustaining success**\
+`Great stories are often more about the journey than the finish. Arizona State's will be remembered in such a way. But it might take time.`\
+https://nytimes.com/athletic/6032590/2025/01/01/arizona-state-texas-cam-skattebo/
+
+**Lenny Randle, ‘Most Interesting’ Major Leaguer, Is Dead at 75**\
+`His career was defined by bizarre episodes — blowing a rolling ball foul, knocking down a pitcher and being at bat when the lights went out in New York City.`\
+https://nytimes.com/2025/01/01/sports/baseball/lenny-randle-dead.html
+
 **Investigators Search for Links Between New Orleans Attack and Las Vegas Blast**\
 `The two episodes have superficial similarities, including that both suspects used the same car rental app.`\
 https://nytimes.com/2025/01/01/us/politics/new-orleans-las-vegas-attacks-similarities.html
