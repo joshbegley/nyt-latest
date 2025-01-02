@@ -1,3 +1,7 @@
+**The attacker told his college paper that he struggled to adjust to life after the military.**\
+`By Sean Keenan`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-attacker-told-his-college-paper-that-he-struggled-to-adjust-to-life-after-the-military
+
 **In New Orleans, Celebration Is Followed By Terror in the French Quarter**\
 `The attack that left 15 dead and about three dozen injured followed a distressingly familiar pattern of assailants turning vehicles into weapons.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-nye-bourbon-street.html
