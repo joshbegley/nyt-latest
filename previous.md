@@ -1,3 +1,7 @@
+**Tonali, team meetings and tweaks - how Newcastle turned their season around**\
+`Less than a month ago Newcastle looked stale and their season seemed to be drifting - but they are now a team transformed`\
+https://nytimes.com/athletic/6031315/2025/01/02/newcastle-season-turnaround-tonali/
+
 **Thursday Briefing**\
 `A deadly attack in New Orleans.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-attack-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032590/2025/01/01/arizona-state-texas-cam-skattebo
 **Lenny Randle, ‘Most Interesting’ Major Leaguer, Is Dead at 75**\
 `His career was defined by bizarre episodes — blowing a rolling ball foul, knocking down a pitcher and being at bat when the lights went out in New York City.`\
 https://nytimes.com/2025/01/01/sports/baseball/lenny-randle-dead.html
-
-**Subway Violence Stubbornly Defies All Efforts to Quell It**\
-`A string of attacks has riders devising their own strategies to stay safe, even after years of official efforts to make New York’s vital transportation system secure.`\
-https://nytimes.com/2025/01/01/nyregion/subway-violence-stubbornly-defies-all-efforts-to-quell-it.html
 

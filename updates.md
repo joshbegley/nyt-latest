@@ -1,3 +1,7 @@
+**Tonali, team meetings and tweaks - how Newcastle turned their season around**\
+`Less than a month ago Newcastle looked stale and their season seemed to be drifting - but they are now a team transformed`\
+https://nytimes.com/athletic/6031315/2025/01/02/newcastle-season-turnaround-tonali/
+
 **Thursday Briefing**\
 `A deadly attack in New Orleans.`\
 https://nytimes.com/2025/01/02/briefing/new-orleans-attack-syria.html
