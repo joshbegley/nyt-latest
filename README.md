@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2025/01/01/weather/northern-california-quake.htm
 `Robert Charlton’s second effort for The New York Times defies expectations.`\
 https://nytimes.com/2025/01/01/crosswords/daily-puzzle-2025-01-02.html
 
-**A neighborhood in New Orleans wakes up to SWAT teams after attack.**\
+**A New Orleans neighborhood describes an unnerving day in the hours after the attack.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/a-neighborhood-in-new-orleans-wakes-up-to-swat-teams-after-attack
 
