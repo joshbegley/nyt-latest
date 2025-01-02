@@ -1,3 +1,11 @@
+**Trump’s Choices Know Little About Domestic Terrorism**\
+`The Senate needs to ensure the next cabinet is full of real professionals.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/trump-fbi-director-terrorism
+
+**Until Saturday: Thank you, Arizona State**\
+`Welcome to Until Saturday, The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6033845/2025/01/02/arizona-state-texas-cam-skattebo-cfp-until-saturday/
+
 **To Understand Trump and Biden, Look to Reagan and Carter**\
 `Forty-four years ago, Ronald Reagan took aim at Jimmy Carter’s environmental legacy. President Biden’s climate initiatives could face a similar fate.`\
 https://nytimes.com/2025/01/02/climate/jimmy-carter-joe-biden-environmental-policy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/arts/television/st-denis-medical-nbc-peacock-stre
 **Net Neutrality Rules Struck Down by Appeals Court**\
 `After nearly two decades of fighting, the battle over regulations that treat broadband providers like utilities came to an end on Thursday.`\
 https://nytimes.com/2025/01/02/technology/net-neutrality-rules-fcc.html
-
-**Richard A. Easterlin, ‘Father of Happiness Economics,’ Dies at 98**\
-`He put forth the so-called Easterlin paradox, finding that the richer you are doesn’t mean the more satisfied you’ll be with your life.`\
-https://nytimes.com/2025/01/02/business/economy/richard-a-easterlin-dead.html
-
-**How the Canadiens caught fire and found their identity**\
-`The Canadiens are on their best seven-game stretch since one week after Martin St. Louis took over as coach, but is it real?`\
-https://nytimes.com/athletic/6033834/2025/01/02/canadiens-nhl-standings-identity/
 
