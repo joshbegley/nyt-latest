@@ -1,3 +1,11 @@
+**'He's playing at an ultimate level right now': Jared Goff keeping depleted Lions' hopes high**\
+`The quarterback is having the best season of his career, just when the Lions need it most.`\
+https://nytimes.com/athletic/6033329/2025/01/02/lions-jared-goff-quarterback-stats-career/
+
+**Premier League chief concerned by lack of consultation on Club World Cup**\
+`Premier League chief executive Richard Masters has expressed his concern regarding the decisions being taken around the upcoming FIFA Club World Cup.`\
+https://nytimes.com/athletic/6033283/2025/01/02/club-world-cup-premier-league-richard-masters/
+
 **Cold Snap Is Forecast to Grip Much of the United States**\
 `The Arctic air arrives this weekend and could linger into mid-January.`\
 https://nytimes.com/2025/01/02/weather/winter-storm-cold-forecast-snow.html
