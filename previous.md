@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6032330/2025/01/01/aaron-rodgers-jets-retirement-de
 `This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
 
-**Palestinian Authority Suspends Al-Jazeera, in Latest Blow to Channel**\
+**Palestinian Authority Suspends Al Jazeera, in Latest Blow to Channel**\
 `The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
 https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
 

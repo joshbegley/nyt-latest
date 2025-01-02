@@ -1,3 +1,7 @@
+**Palestinian Authority Suspends Al Jazeera, in Latest Blow to Channel**\
+`The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
+https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
+
 **Montenegro Shooting Kills 10, Including 2 Children, Officials Say**\
 `The authorities in the small Balkan country reported after a search that the gunman, whose rampage followed a bar fight, had been found dead.`\
 https://nytimes.com/2025/01/01/world/europe/montenegro-shooting.html
