@@ -1,3 +1,7 @@
+**What We Know About the Cybertruck Explosion in Las Vegas**\
+`The F.B.I. says no connection has been found between the truck explosion outside of a Trump Hotel and the truck attack that killed 14 people in New Orleans.`\
+https://nytimes.com/2025/01/02/us/tesla-cybertruck-explosion-las-vegas.html
+
 **Man Who Killed 3 on New Year’s Day Robbery in Mississippi Is Sought**\
 `A manhunt was underway near the border between Mississippi and Alabama after three people were fatally shot during a gas station robbery, the authorities said.`\
 https://nytimes.com/2025/01/02/us/gas-station-shooting-mississipppi.html

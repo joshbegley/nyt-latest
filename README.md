@@ -1,3 +1,7 @@
+**Rosita Missoni, Who Turned Zigzag Sweaters Into High Fashion, Dies at 93**\
+`With colorful knitwear, she and her husband, Ottavio, built one of the world’s most recognizable brands, helping to make Milan a capital of “alta moda.”`\
+https://nytimes.com/2025/01/02/fashion/rosita-missoni-dead.html
+
 **What We Know About the Cybertruck Explosion in Las Vegas**\
 `The F.B.I. says no connection has been found between the truck explosion outside of a Trump Hotel and the truck attack that killed 14 people in New Orleans.`\
 https://nytimes.com/2025/01/02/us/tesla-cybertruck-explosion-las-vegas.html
@@ -18,7 +22,7 @@ https://nytimes.com/2025/01/02/dining/2025-whimsy-more-waste-less.html
 `With the football season finished, what questions do you have about the Huskers?`\
 https://nytimes.com/athletic/6033733/2025/01/02/submit-your-questions-for-mitch-shermans-nebraska-mailbag-6/
 
-**Knicks' Kolek pulls of rare G League/NBA doubleheader Wednesday**\
+**Knicks' Kolek pulls off rare G League/NBA doubleheader Wednesday**\
 `After scoring 36 points in a G League matinee, Kolek was called up due to injuries to Knicks guards Jalen Brunson and Miles McBride.`\
 https://nytimes.com/athletic/6033390/2025/01/02/knicks-tyler-kolek-double-points-assists/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033521/2025/01/02/forest-owner-marinakis-shares/
 **Mets mailbag: What's the holdup with Pete Alonso? Are the Mets done in the rotation?**\
 `What's the plan if the Mets don't sign Alonso? Which prospect has a chance to make an impact in 2025? Will the Mets add one more starter?`\
 https://nytimes.com/athletic/6033255/2025/01/02/mets-pete-alonso-free-agency-rotation/
-
-**The Failures of the Health Insurance System**\
-`Readers discuss for-profit health insurers and how to reform U.S. health care. Also: A police failure in New Orleans; making polluters pay.`\
-https://nytimes.com/2025/01/02/opinion/letters/health-insurance-failures.html
 
