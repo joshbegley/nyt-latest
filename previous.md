@@ -1,3 +1,7 @@
+**Sabres trade tiers: Is anyone on Buffalo's roster untouchable ahead of deadline?**\
+`This exercise serves as a starting point for what the value of each Sabres player might be if a team comes calling.`\
+https://nytimes.com/athletic/6033442/2025/01/02/buffalo-sabres-trade-tiers-deadline-2025/
+
 **Scoop City: Seven NFL records to track this weekend**\
 `A quick look at significant records to watch for in the final week of the 2024 regular season`\
 https://nytimes.com/athletic/6033393/2025/01/02/seven-nfl-records-to-watch-in-week-18-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033418/2025/01/02/houston-astros-mailbag-questions
 **Cowboys Today: Mike McCarthy's thoughts on Ezekiel Elliott release, Dallas gets 5 Pro Bowlers**\
 `Pro Bowl rosters were announced Thursday and the Cowboys totaled five selections, down from the 10 they had last season.`\
 https://nytimes.com/athletic/6033213/2025/01/02/cowboys-today-ezekiel-elliott-rico-dowdle-pro-bowl-rosters/
-
-**Several Injured in Shooting Outside Queens Event Space**\
-`The police said the suspects escaped in a vehicle after the shooting Wednesday evening.`\
-https://nytimes.com/video/us/100000009904554/queens-shooting-jamaica-nyc.html
 

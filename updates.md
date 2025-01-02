@@ -1,3 +1,7 @@
+**Sabres trade tiers: Is anyone on Buffalo's roster untouchable ahead of deadline?**\
+`This exercise serves as a starting point for what the value of each Sabres player might be if a team comes calling.`\
+https://nytimes.com/athletic/6033442/2025/01/02/buffalo-sabres-trade-tiers-deadline-2025/
+
 **Scoop City: Seven NFL records to track this weekend**\
 `A quick look at significant records to watch for in the final week of the 2024 regular season`\
 https://nytimes.com/athletic/6033393/2025/01/02/seven-nfl-records-to-watch-in-week-18-scoop-city/
