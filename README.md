@@ -1,11 +1,3 @@
-**Ohio State defense gets its revenge by shutting down Oregon in Rose Bowl**\
-`The Buckeyes downed Oregon 41-21 in the Rose Bowl and will advance to the Playoff semifinals.`\
-https://nytimes.com/athletic/6032761/2025/01/01/ohio-state-defense-oregon-rose-bowl-college-football/
-
-**Immanuel Quickley gives Raptors the space to function**\
-`In his return from an elbow injury, the Raptors point guard showed how crucial he is to the team's attack.`\
-https://nytimes.com/athletic/6032723/2025/01/01/immanuel-quickley-raptors-return/
-
 **Oregon's crushing Rose Bowl defeat once again leaves Ducks on the outside looking in**\
 `For decades, the Ducks have knocked at the door of becoming a desired member of college football's elite. All they're missing is the trophy.`\
 https://nytimes.com/athletic/6032737/2025/01/01/oregon-loss-rose-bowl-dan-lanning-college-football-playoff/
@@ -37,4 +29,12 @@ https://nytimes.com/2025/01/01/crosswords/daily-puzzle-2025-01-02.html
 **A New Orleans neighborhood describes an unnerving day in the hours after the attack.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/a-neighborhood-in-new-orleans-wakes-up-to-swat-teams-after-attack
+
+**The New Orleans attacker’s military record includes a deployment to Afghanistan.**\
+`By Dave Philipps`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-new-orleans-attackers-military-record-includes-a-deployment-to-afghanistan
+
+**Pistons' Jaden Ivey stretchered off court with apparent leg injury**\
+`The 22-year-old is on pace for career highs in points, rebounds, steals, field goal percentage, 3-point percentage and 3-point attempts.`\
+https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretcher/
 
