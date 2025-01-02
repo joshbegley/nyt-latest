@@ -1,3 +1,7 @@
+**The art of scanning in football**\
+`Scanning masters include Xavi, Messi and Lampard. But what exactly is it and how does it help players? Is it something that can be learnt?`\
+https://nytimes.com/athletic/5974157/2025/01/02/messi-xavi-lampard-scanning-football/
+
 **Tonali, team meetings and tweaks - how Newcastle turned their season around**\
 `Less than a month ago Newcastle looked stale and their season seemed to be drifting - but they are now a team transformed`\
 https://nytimes.com/athletic/6031315/2025/01/02/newcastle-season-turnaround-tonali/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032737/2025/01/01/oregon-loss-rose-bowl-dan-lannin
 **Arizona State's remarkable season sets it up for program's biggest task — sustaining success**\
 `Great stories are often more about the journey than the finish. Arizona State's will be remembered in such a way. But it might take time.`\
 https://nytimes.com/athletic/6032590/2025/01/01/arizona-state-texas-cam-skattebo/
-
-**Lenny Randle, ‘Most Interesting’ Major Leaguer, Is Dead at 75**\
-`His career was defined by bizarre episodes — blowing a rolling ball foul, knocking down a pitcher and being at bat when the lights went out in New York City.`\
-https://nytimes.com/2025/01/01/sports/baseball/lenny-randle-dead.html
 
