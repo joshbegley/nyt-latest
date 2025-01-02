@@ -1,3 +1,11 @@
+**The New Orleans attacker’s military record includes a deployment to Afghanistan.**\
+`By Dave Philipps`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-new-orleans-attackers-military-record-includes-a-deployment-to-afghanistan
+
+**Pistons' Jaden Ivey stretchered off court with apparent leg injury**\
+`The 22-year-old is on pace for career highs in points, rebounds, steals, field goal percentage, 3-point percentage and 3-point attempts.`\
+https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretcher/
+
 **The F.B.I. released a photo of the suspect, asking for information on him.**\
 `By Adam Goldman and Devlin Barrett`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-fbi-released-a-passport-photo-of-the-suspect
