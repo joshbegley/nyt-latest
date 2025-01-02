@@ -1,3 +1,11 @@
+**NFL Week 18 fantasy football, betting cheat sheet: Healthy Ravens eye AFC North crown**\
+`Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
+https://nytimes.com/athletic/6027968/2025/01/02/nfl-week-18-fantasy-football-betting-cheat-sheet/
+
+**Which NFL stars are starting, sitting or injured in Week 18?**\
+`The hub for NFL playoff scenarios, analysis, injuries and fantasy insights for the final week of the regular season.`\
+https://nytimes.com/athletic/6027696/2025/01/02/nfl-week-18-injuries-start-sit/
+
 **Liverpool extend Williams Morecambe loan until end of the season**\
 `Liverpool have extended defender Rhys Williams&#8217; loan spell at Morecambe until the end of the season.`\
 https://nytimes.com/athletic/6033408/2025/01/02/liverpool-williams-morecambe-loan/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/business/tesla-sales-elon-musk.html
 **The Bounce: Are the Celtics OK?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6032467/2025/01/02/celtics-jaylen-brown-jayson-tatum-donovan-mitchell-cavaliers-nba-the-bounce/
-
-**Pro Bowl Games rosters: Jayden Daniels, Sam Darnold headline first timers**\
-`The festivities will be capped off by a flag football game at Camping World Stadium in Orlando, Florida on Feb. 2.`\
-https://nytimes.com/athletic/6033154/2025/01/02/nfl-pro-bowl-games-roster-2025/
-
-**Promoter Warren opens legal proceedings against Eubank Jr for defamation**\
-`Queensberry promoter Frank Warren has opened legal proceedings against Chris Eubank Jr for defamation.`\
-https://nytimes.com/athletic/6027745/2025/01/02/frank-warren-chris-eubank-jr-lawsuit/
 

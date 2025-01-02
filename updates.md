@@ -1,3 +1,11 @@
+**NFL Week 18 fantasy football, betting cheat sheet: Healthy Ravens eye AFC North crown**\
+`Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
+https://nytimes.com/athletic/6027968/2025/01/02/nfl-week-18-fantasy-football-betting-cheat-sheet/
+
+**Which NFL stars are starting, sitting or injured in Week 18?**\
+`The hub for NFL playoff scenarios, analysis, injuries and fantasy insights for the final week of the regular season.`\
+https://nytimes.com/athletic/6027696/2025/01/02/nfl-week-18-injuries-start-sit/
+
 **Liverpool extend Williams Morecambe loan until end of the season**\
 `Liverpool have extended defender Rhys Williams&#8217; loan spell at Morecambe until the end of the season.`\
 https://nytimes.com/athletic/6033408/2025/01/02/liverpool-williams-morecambe-loan/
