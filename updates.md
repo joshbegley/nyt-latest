@@ -1,3 +1,7 @@
+**‘War Zone Injuries’: New Year’s Fireworks Explosions Kill 3 in Honolulu**\
+`A series of explosions caused by fireworks in a residential area left more than two dozen people with burns and other injuries, officials said.`\
+https://nytimes.com/2025/01/02/us/hawaii-fireworks-explosion-deaths.html
+
 **Wizards' Alex Sarr had a rough start, but No. 2 pick is showing signs of potential**\
 `As they have with their other rookies, the Wizards have thrown the 7-foot Sarr into the fire in hopes of speeding his development. `\
 https://nytimes.com/athletic/6030581/2025/01/02/alex-sarr-potential-wizards-nba/

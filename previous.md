@@ -1,3 +1,7 @@
+**‘War Zone Injuries’: New Year’s Fireworks Explosions Kill 3 in Honolulu**\
+`A series of explosions caused by fireworks in a residential area left more than two dozen people with burns and other injuries, officials said.`\
+https://nytimes.com/2025/01/02/us/hawaii-fireworks-explosion-deaths.html
+
 **Wizards' Alex Sarr had a rough start, but No. 2 pick is showing signs of potential**\
 `As they have with their other rookies, the Wizards have thrown the 7-foot Sarr into the fire in hopes of speeding his development. `\
 https://nytimes.com/athletic/6030581/2025/01/02/alex-sarr-potential-wizards-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/business/dealbook/bull-bear-case-markets-2025.htm
 **Amick: De'Aaron Fox shouldn't bear the blame for the Kings firing Mike Brown**\
 `Sacramento's handling of its well-respected ex-coach should make Fox a sympathetic figure — and could pave the way for his eventual exit`\
 https://nytimes.com/athletic/6032859/2025/01/02/deaaron-fox-kings-mike-brown-firing/
-
-**Why the Chiefs' regular-season finale is far from meaningless for Carson Wentz**\
-`With Patrick Mahomes resting, Wentz will make his first start as a Chief, an audition for teams seeking a veteran QB option this offseason.`\
-https://nytimes.com/athletic/6032073/2025/01/02/chiefs-carson-wentz-broncos-season-finale/
 
