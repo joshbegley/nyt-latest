@@ -1,3 +1,7 @@
+**Arsenal can trust Nwaneri in Saka's absence - this is how he's developed since debut**\
+`Ethan Nwaneri made his first Arsenal start in the game against Brentford on Wednesday night`\
+https://nytimes.com/athletic/6031919/2025/01/02/arsenal-ethan-nwaneri-brentford-analysis/
+
 **America, Afghanistan and the Price of Self-Delusion**\
 `Greed and self-delusion kept the money flowing, and hid the truth from the public.`\
 https://nytimes.com/2025/01/02/opinion/afghanistan-audit-reconstruction-us.html
