@@ -1,3 +1,11 @@
+**Trump’s Choices Know Little About Domestic Terrorism**\
+`The Senate needs to ensure the next cabinet is full of real professionals.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/trump-fbi-director-terrorism
+
+**Until Saturday: Thank you, Arizona State**\
+`Welcome to Until Saturday, The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6033845/2025/01/02/arizona-state-texas-cam-skattebo-cfp-until-saturday/
+
 **To Understand Trump and Biden, Look to Reagan and Carter**\
 `Forty-four years ago, Ronald Reagan took aim at Jimmy Carter’s environmental legacy. President Biden’s climate initiatives could face a similar fate.`\
 https://nytimes.com/2025/01/02/climate/jimmy-carter-joe-biden-environmental-policy.html
