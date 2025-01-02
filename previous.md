@@ -1,3 +1,23 @@
+**The Song, and Rapper, Inspiring Mozambique’s Youth Uprising**\
+`“Povo no Poder,” or “People in Power,” by the rap star Azagaia, has become the unofficial anthem of the protests over a disputed election.`\
+https://nytimes.com/2025/01/02/world/africa/mozambique-protest-song-azagaia.html
+
+**Watch the First Meteor Shower of 2025 Reach Its Peak**\
+`The Quadrantids might be one of the strongest showers this year, but poor weather could make them difficult to see.`\
+https://nytimes.com/2025/01/02/science/space/meteor-shower-quadrantids.html
+
+**Quote of the Day: How to Detect Stoned Driving? Scientists Are Trying to Find Out.**\
+`Quotation of the Day for Thursday, January 2, 2024.`\
+https://nytimes.com/2025/01/01/pageoneplus/quote-of-the-day-how-to-detect-stoned-driving-scientists-are-trying-to-find-out.html
+
+**Ohio State defense gets its revenge by shutting down Oregon in Rose Bowl**\
+`The Buckeyes downed Oregon 41-21 in the Rose Bowl and will advance to the Playoff semifinals.`\
+https://nytimes.com/athletic/6032761/2025/01/01/ohio-state-defense-oregon-rose-bowl-college-football/
+
+**Immanuel Quickley gives Raptors the space to function**\
+`In his return from an elbow injury, the Raptors point guard showed how crucial he is to the team's attack.`\
+https://nytimes.com/athletic/6032723/2025/01/01/immanuel-quickley-raptors-return/
+
 **Oregon's crushing Rose Bowl defeat once again leaves Ducks on the outside looking in**\
 `For decades, the Ducks have knocked at the door of becoming a desired member of college football's elite. All they're missing is the trophy.`\
 https://nytimes.com/athletic/6032737/2025/01/01/oregon-loss-rose-bowl-dan-lanning-college-football-playoff/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/01/nyregion/subway-violence-stubbornly-defies-all-ef
 **Investigators Search for Links Between New Orleans Attack and Las Vegas Blast**\
 `The two episodes have superficial similarities, including that both suspects used the same car rental app.`\
 https://nytimes.com/2025/01/01/us/politics/new-orleans-las-vegas-attacks-similarities.html
-
-**Map: 4.7-Magnitude Earthquake Strikes Northern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/01/01/weather/northern-california-quake.html
-
-**Worn at the Edges**\
-`Robert Charlton’s second effort for The New York Times defies expectations.`\
-https://nytimes.com/2025/01/01/crosswords/daily-puzzle-2025-01-02.html
-
-**A New Orleans neighborhood describes an unnerving day in the hours after the attack.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/a-neighborhood-in-new-orleans-wakes-up-to-swat-teams-after-attack
-
-**The New Orleans attacker’s military record includes a deployment to Afghanistan.**\
-`By Dave Philipps`\
-https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-new-orleans-attackers-military-record-includes-a-deployment-to-afghanistan
-
-**Pistons' Jaden Ivey stretchered off court with apparent leg injury**\
-`The 22-year-old is on pace for career highs in points, rebounds, steals, field goal percentage, 3-point percentage and 3-point attempts.`\
-https://nytimes.com/athletic/6032575/2025/01/01/jaden-ivey-pistons-injury-stretcher/
 
