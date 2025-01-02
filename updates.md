@@ -1,3 +1,7 @@
+**Gomez will not make his Brighton debut against Arsenal**\
+`Brighton &amp; Hove Albion&#8217;s new midfielder Diego Gomez will not make his debut in Saturday&#8217;s home game against Arsenal.`\
+https://nytimes.com/athletic/6032916/2025/01/02/diego-gomez-brighton-debut-arsenal/
+
 **Bears mock draft: Finding O-linemen and pass rushers in Rounds 1-2**\
 `It's 2025, so we can start Mock Draft Season. Here's a look at who the Bears could consider with their first three picks in April's draft.`\
 https://nytimes.com/athletic/6030244/2025/01/02/bears-mock-draft-offensive-linemen/
