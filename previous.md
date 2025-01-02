@@ -1,3 +1,7 @@
+**Federal Agents Search the Home of Former Top N.Y.P.D. Official**\
+`Jeffrey Maddrey, who had been chief of department, resigned on Dec. 20 after a lieutenant accused him of coercing her into sex.`\
+https://nytimes.com/2025/01/02/nyregion/nypd-jeffrey-maddrey-home-search.html
+
 **Ohio State showed in Rose Bowl it's best team in country — and only gaining steam**\
 `In CFP games against Tennessee and Oregon, Ohio State outscored them 83-38 and outgained them 973-532.`\
 https://nytimes.com/athletic/6033139/2025/01/02/ohio-state-oregon-rose-bowl-best-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029897/2025/01/02/world-juniors-today-2025-quarter
 **Trump Transition Live Updates: Biden to Award Presidential Medal to Liz Cheney**\
 ``\
 https://nytimes.com/live/2025/01/02/us/trump-news
-
-**Real Madrid target January return for Alaba after 13-month absence**\
-`Real Madrid are targeting a return for David Alaba in January following the serious knee injury that has kept him out for the last 13 months.`\
-https://nytimes.com/athletic/6033008/2025/01/02/david-alaba-injury-update-real-madrid/
 
