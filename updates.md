@@ -1,3 +1,7 @@
+**Good Advice**\
+`What advice have you received in the past that you’d like to apply to your life in 2025?`\
+https://nytimes.com/2025/01/02/learning/good-advice.html
+
 **Who Is New York’s ‘Affordability’ Candidate? Nearly Everyone.**\
 `With voters anxious about the cost of living, politicians are eager to show how they are trying to help alleviate the crisis.`\
 https://nytimes.com/2025/01/02/nyregion/new-york-politicians-affordability.html
