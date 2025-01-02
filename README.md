@@ -1,3 +1,7 @@
+**Scoop City: Seven NFL records to track this weekend**\
+`A quick look at significant records to watch for in the final week of the 2024 regular season`\
+https://nytimes.com/athletic/6033393/2025/01/02/seven-nfl-records-to-watch-in-week-18-scoop-city/
+
 **A Half-Ton Piece of Space Junk Falls Onto a Village in Kenya**\
 `No one was hurt by the object, believed to be part of a launch rocket. Experts say the frequency of such incidents is increasing as the amount of debris in orbit around the Earth increases dramatically.`\
 https://nytimes.com/2025/01/02/world/africa/kenya-space-debris-rocket.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033213/2025/01/02/cowboys-today-ezekiel-elliott-ri
 **Several Injured in Shooting Outside Queens Event Space**\
 `The police said the suspects escaped in a vehicle after the shooting Wednesday evening.`\
 https://nytimes.com/video/us/100000009904554/queens-shooting-jamaica-nyc.html
-
-**Tesla Annual Sales Slip for First Time as Competition Grows**\
-`The electric-car company led by Elon Musk no longer has the market to itself. Investors are focusing on autonomous driving and other new technologies.`\
-https://nytimes.com/2025/01/02/business/tesla-sales-elon-musk.html
 
