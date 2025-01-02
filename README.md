@@ -1,3 +1,7 @@
+**The attacker told his college paper that he struggled to adjust to life after the military.**\
+`By Sean Keenan`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-attacker-told-his-college-paper-that-he-struggled-to-adjust-to-life-after-the-military
+
 **In New Orleans, Celebration Is Followed By Terror in the French Quarter**\
 `The attack that left 15 dead and about three dozen injured followed a distressingly familiar pattern of assailants turning vehicles into weapons.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-nye-bourbon-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031869/2025/01/01/rams-matthew-stafford-out-jimmy-
 **Justin Thomas: Presidents Cup snub has him ready 'to play a little pissed off'**\
 `Thomas was left off the Presidents Cup team. He hopes to be able to make it an easy call for Ryder Cup captain Keegan Bradley.`\
 https://nytimes.com/athletic/6032136/2025/01/01/justin-thomas-golf-presidents-cup-ryder-cup/
-
-**Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
-`A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
-https://nytimes.com/athletic/6032129/2025/01/01/asu-texas-targeting-peach-bowl-playoff/
 
