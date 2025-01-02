@@ -1,3 +1,7 @@
+**Forest owner Marinakis turns £82m of loans into shares to cut club debt**\
+`Nottingham Forest owner Evangelos Marinakis has reduced the club’s debt by converting another £82million of loans into share capital.`\
+https://nytimes.com/athletic/6033521/2025/01/02/forest-owner-marinakis-shares/
+
 **Mets mailbag: What's the holdup with Pete Alonso? Are the Mets done in the rotation?**\
 `What's the plan if the Mets don't sign Alonso? Which prospect has a chance to make an impact in 2025? Will the Mets add one more starter?`\
 https://nytimes.com/athletic/6033255/2025/01/02/mets-pete-alonso-free-agency-rotation/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6033442/2025/01/02/buffalo-sabres-trade-tiers-deadl
 **Scoop City: Seven NFL records to track this weekend**\
 `A quick look at significant records to watch for in the final week of the 2024 regular season`\
 https://nytimes.com/athletic/6033393/2025/01/02/seven-nfl-records-to-watch-in-week-18-scoop-city/
-
-**A Half-Ton Piece of Space Junk Falls Onto a Village in Kenya**\
-`No one was hurt by the object, believed to be part of a launch rocket. Experts say the frequency of such incidents is increasing as the amount of debris in orbit around the Earth increases dramatically.`\
-https://nytimes.com/2025/01/02/world/africa/kenya-space-debris-rocket.html
 
