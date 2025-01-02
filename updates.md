@@ -1,3 +1,7 @@
+**Forest owner Marinakis turns £82m of loans into shares to cut club debt**\
+`Nottingham Forest owner Evangelos Marinakis has reduced the club’s debt by converting another £82million of loans into share capital.`\
+https://nytimes.com/athletic/6033521/2025/01/02/forest-owner-marinakis-shares/
+
 **Mets mailbag: What's the holdup with Pete Alonso? Are the Mets done in the rotation?**\
 `What's the plan if the Mets don't sign Alonso? Which prospect has a chance to make an impact in 2025? Will the Mets add one more starter?`\
 https://nytimes.com/athletic/6033255/2025/01/02/mets-pete-alonso-free-agency-rotation/
