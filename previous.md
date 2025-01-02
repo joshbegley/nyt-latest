@@ -1,3 +1,19 @@
+**Could Better Security Have Stopped the New Orleans Attack?**\
+`Other cities use dump trucks, fire engines and other barriers to protect their streets. But a lone-wolf attack is hard to stop, security experts say.`\
+https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
+
+**New Details Emerge in Cybertruck Explosion, but Motive Is Still Unclear**\
+`Officials said they used data from Tesla charging stations to chart the driver’s dayslong journey from Colorado to the Trump Hotel in Las Vegas.`\
+https://nytimes.com/2025/01/02/us/las-vegas-cybertruck-explosion-details.html
+
+**Wayne Osmond, Singer and Guitarist With the Osmonds, Dies at 73**\
+`Mr. Osmond was a founding member of the family pop group, which had a slew of hits in the 1970s, including “One Bad Apple” and “Yo-Yo.”`\
+https://nytimes.com/2025/01/02/arts/music/wayne-osmond-dead.html
+
+**Carter’s Panama Canal Treaties Symbolize How Much Washington Has Changed**\
+`To return the canal to Panama, President Jimmy Carter worked to change minds and build a bipartisan coalition that put aside short-term political considerations.`\
+https://nytimes.com/2025/01/02/us/politics/carter-panama-canal.html
+
 **Eyeing Potential Bird Flu Outbreak, Biden Administration Ramps Up Preparedness**\
 `The administration is committing an additional $306 million toward battling the virus, and will distribute the money before President-elect Donald J. Trump takes office.`\
 https://nytimes.com/2025/01/02/us/politics/bird-flu-biden-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/02/nyregion/mary-anne-krupsak-dead.html
 **N.Y. Attorney General Recuses Herself in Case of Fatal Prison Beating**\
 `Letitia James, the attorney general, said a special prosecutor would lead an investigation into the deadly attack on Robert Brooks because her office had a possible conflict of interest.`\
 https://nytimes.com/2025/01/02/nyregion/robert-brooks-prison-death-letitia-james.html
-
-**Elena Rybakina's former coach Stefano Vukov suspended by WTA under code of conduct investigation**\
-`Vukov is barred from obtaining coaching or Grand Slam credentials, but Rybakina wants him back on her team — and could boycott the WTA.`\
-https://nytimes.com/athletic/6034236/2025/01/02/rybakina-vukov-coach-suspended-wta-investigation/
-
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6034385/2025/01/02/ask-cj-submit-your-nhl-questions-for-chris-johnstons-mailbag/
-
-**F.B.I. Offers New Details in Hunt for Jan. 6 Pipe Bomb Suspect**\
-`Four years later, the largest lingering mystery of the Capitol riot remains unsolved.`\
-https://nytimes.com/2025/01/02/us/politics/fbi-capitol-riot-pipe-bomb-suspect.html
-
-**Letter Carrier Is Fatally Stabbed at a Bodega in Harlem**\
-`The police had a person of interest in custody, but no charges had been filed. Investigators did not identify the victim.`\
-https://nytimes.com/2025/01/02/nyregion/postal-worker-stabbed-harlem-bodega.html
 
