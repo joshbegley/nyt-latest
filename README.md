@@ -1,3 +1,11 @@
+**U.S. Weighs Ban on Chinese Drones, Citing National Security Concerns**\
+`The Commerce Department requested that private companies comment on the implications of the rule by March. The final decision will fall to the Trump administration.`\
+https://nytimes.com/2025/01/02/us/politics/drone-ban-china-security.html
+
+**After starting strong, the Giants' offseason could use a momentum boost**\
+`The Adames signing was a great start for the Giants this offseason, but it has been quiet since then as other NL West teams have re-loaded.`\
+https://nytimes.com/athletic/6032480/2025/01/02/after-starting-strong-the-giants-offseason-could-use-a-momentum-boost/
+
 **The Growth in Homelessness Is an American Moral Failure**\
 `Homelessness is a crisis borne of several compounded crises, a symptom of the varied ways our country is failing the most vulnerable.`\
 https://nytimes.com/2025/01/02/opinion/homelessness-surge-crisis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/dining/2025-whimsy-more-waste-less.html
 **Submit your questions for Mitch Sherman's Nebraska mailbag**\
 `With the football season finished, what questions do you have about the Huskers?`\
 https://nytimes.com/athletic/6033733/2025/01/02/submit-your-questions-for-mitch-shermans-nebraska-mailbag-6/
-
-**Knicks' Kolek pulls off rare G League/NBA doubleheader Wednesday**\
-`After scoring 36 points in a G League matinee, Kolek was called up due to injuries to Knicks guards Jalen Brunson and Miles McBride.`\
-https://nytimes.com/athletic/6033390/2025/01/02/knicks-tyler-kolek-double-points-assists/
-
-**Johnson wages a precarious bid for re-election.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2025/01/02/us/trump-news/johnson-wages-a-precarious-bid-for-re-election
 
