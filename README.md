@@ -1,3 +1,11 @@
+**Map: 4.7-Magnitude Earthquake Strikes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/01/weather/northern-california-quake.html
+
+**Worn at the Edges**\
+`Robert Charlton’s second effort for The New York Times defies expectations.`\
+https://nytimes.com/2025/01/01/crosswords/daily-puzzle-2025-01-02.html
+
 **A neighborhood in New Orleans wakes up to SWAT teams after attack.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/a-neighborhood-in-new-orleans-wakes-up-to-swat-teams-after-attack
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6032404/2025/01/01/texas-ohio-state-picks-odds-coll
 **Trucks in New Orleans Attack and Las Vegas Explosion Were Rented Using the Same App**\
 `Renters of both vehicles had used Turo, a peer-to-peer app. Officials are investigating possible connections between the two cases.`\
 https://nytimes.com/2025/01/01/us/turo-new-orleans-attack-vegas-explosion.html
-
-**The attacker told his college paper that he struggled to adjust to life after the military.**\
-`By Sean Keenan`\
-https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/the-attacker-told-his-college-paper-that-he-struggled-to-adjust-to-life-after-the-military
-
-**In New Orleans, Celebration Is Followed By Terror in the French Quarter**\
-`The attack that left 15 dead and about three dozen injured followed a distressingly familiar pattern of assailants turning vehicles into weapons.`\
-https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-nye-bourbon-street.html
 
