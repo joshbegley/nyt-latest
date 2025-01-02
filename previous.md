@@ -1,3 +1,15 @@
+**2025: Whimsy More, Waste Less**\
+`And dare to prepare, with big batches of beans and soothing soups.`\
+https://nytimes.com/2025/01/02/dining/2025-whimsy-more-waste-less.html
+
+**Submit your questions for Mitch Sherman's Nebraska mailbag**\
+`With the football season finished, what questions do you have about the Huskers?`\
+https://nytimes.com/athletic/6033733/2025/01/02/submit-your-questions-for-mitch-shermans-nebraska-mailbag-6/
+
+**Knicks' Kolek pulls of rare G League/NBA doubleheader Wednesday**\
+`After scoring 36 points in a G League matinee, Kolek was called up due to injuries to Knicks guards Jalen Brunson and Miles McBride.`\
+https://nytimes.com/athletic/6033390/2025/01/02/knicks-tyler-kolek-double-points-assists/
+
 **Johnson wages a precarious bid for re-election.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2025/01/02/us/trump-news/johnson-wages-a-precarious-bid-for-re-election
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6033329/2025/01/02/lions-jared-goff-quarterback-sta
 **Premier League chief concerned by lack of consultation on Club World Cup**\
 `Premier League chief executive Richard Masters has expressed his concern regarding the decisions being taken around the upcoming FIFA Club World Cup.`\
 https://nytimes.com/athletic/6033283/2025/01/02/club-world-cup-premier-league-richard-masters/
-
-**Cold Snap Is Forecast to Grip Much of the United States**\
-`The Arctic air arrives this weekend and could linger into mid-January.`\
-https://nytimes.com/2025/01/02/weather/winter-storm-cold-forecast-snow.html
-
-**Sabres trade tiers: Is anyone on Buffalo's roster untouchable ahead of deadline?**\
-`This exercise serves as a starting point for what the value of each Sabres player might be if a team comes calling.`\
-https://nytimes.com/athletic/6033442/2025/01/02/buffalo-sabres-trade-tiers-deadline-2025/
 
