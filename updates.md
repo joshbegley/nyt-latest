@@ -1,3 +1,7 @@
+**Bears mock draft: Finding O-linemen and pass rushers in Rounds 1-2**\
+`It's 2025, so we can start Mock Draft Season. Here's a look at who the Bears could consider with their first three picks in April's draft.`\
+https://nytimes.com/athletic/6030244/2025/01/02/bears-mock-draft-offensive-linemen/
+
 **For Rams star WR Puka Nacua, big games start by channeling big emotions**\
 `Rams star receiver Puka Nacua practices breathing techniques when he's in the huddle between plays to settle his mind.`\
 https://nytimes.com/athletic/6032572/2025/01/02/rams-puka-nacua-emotions-star-receiver-seahawks/

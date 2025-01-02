@@ -1,3 +1,7 @@
+**Bears mock draft: Finding O-linemen and pass rushers in Rounds 1-2**\
+`It's 2025, so we can start Mock Draft Season. Here's a look at who the Bears could consider with their first three picks in April's draft.`\
+https://nytimes.com/athletic/6030244/2025/01/02/bears-mock-draft-offensive-linemen/
+
 **For Rams star WR Puka Nacua, big games start by channeling big emotions**\
 `Rams star receiver Puka Nacua practices breathing techniques when he's in the huddle between plays to settle his mind.`\
 https://nytimes.com/athletic/6032572/2025/01/02/rams-puka-nacua-emotions-star-receiver-seahawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/podcasts/new-orleans-attack-isis-cybertruck-explo
 **The Connections Companion No. 572**\
 `Scroll down for hints and conversation about the puzzle for Friday, Jan. 3, 2025.`\
 https://nytimes.com/2025/01/02/crosswords/connections-companion-572.html
-
-**Dissecting the NFL MVP race: Allen, Jackson or Burrow? Plus, the case for Saquon Barkley**\
-`Voters have no shortage of viable MVP candidates this season.`\
-https://nytimes.com/athletic/6026114/2025/01/02/nfl-mvp-allen-jackson-burrow-barkley/
 
