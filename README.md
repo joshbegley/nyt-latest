@@ -1,3 +1,7 @@
+**Good Advice**\
+`What advice have you received in the past that you’d like to apply to your life in 2025?`\
+https://nytimes.com/2025/01/02/learning/good-advice.html
+
 **Who Is New York’s ‘Affordability’ Candidate? Nearly Everyone.**\
 `With voters anxious about the cost of living, politicians are eager to show how they are trying to help alleviate the crisis.`\
 https://nytimes.com/2025/01/02/nyregion/new-york-politicians-affordability.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/02/learning/word-of-the-day-faddish.html
 **Arsenal can trust Nwaneri in Saka's absence - this is how he's developed since debut**\
 `Ethan Nwaneri made his first Arsenal start in the game against Brentford on Wednesday night`\
 https://nytimes.com/athletic/6031919/2025/01/02/arsenal-ethan-nwaneri-brentford-analysis/
-
-**America, Afghanistan and the Price of Self-Delusion**\
-`Greed and self-delusion kept the money flowing, and hid the truth from the public.`\
-https://nytimes.com/2025/01/02/opinion/afghanistan-audit-reconstruction-us.html
 
