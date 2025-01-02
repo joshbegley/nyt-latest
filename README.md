@@ -1,7 +1,3 @@
-**Cold Snap Is Forecast to Grip Much of the United States**\
-`The Arctic air arrives this weekend and could linger into mid-January.`\
-https://nytimes.com/2025/01/02/weather/winter-storm-cold-forecast-snow.html
-
 **Sabres trade tiers: Is anyone on Buffalo's roster untouchable ahead of deadline?**\
 `This exercise serves as a starting point for what the value of each Sabres player might be if a team comes calling.`\
 https://nytimes.com/athletic/6033442/2025/01/02/buffalo-sabres-trade-tiers-deadline-2025/
@@ -37,4 +33,8 @@ https://nytimes.com/video/world/africa/100000009904660/rocket-space-debris-kenya
 **Submit your Astros questions for Chandler Rome's mailbag**\
 `The Houston Astros authored a transformative winter before the holiday season, sending Kyle Tucker to the Cubs, signing Christian Walker and signaling the end of Alex Bregman&#8217;s tenure.`\
 https://nytimes.com/athletic/6033418/2025/01/02/houston-astros-mailbag-questions-rome/
+
+**Cowboys Today: Mike McCarthy's thoughts on Ezekiel Elliott release, Dallas gets 5 Pro Bowlers**\
+`Pro Bowl rosters were announced Thursday and the Cowboys totaled five selections, down from the 10 they had last season.`\
+https://nytimes.com/athletic/6033213/2025/01/02/cowboys-today-ezekiel-elliott-rico-dowdle-pro-bowl-rosters/
 
