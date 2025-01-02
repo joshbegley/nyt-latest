@@ -1,40 +1,40 @@
-**Agnes Keleti, World’s Oldest Olympic Champion, Dies at 103**\
-`Ms. Keleti turned to gymnastics after surviving World War II, and won 10 Olympic medals competing against far younger athletes.`\
-https://nytimes.com/2025/01/02/obituaries/agnes-keleti-dead.html
+**For Rams star WR Puka Nacua, big games start by channeling big emotions**\
+`Rams star receiver Puka Nacua practices breathing techniques when he's in the huddle between plays to settle his mind.`\
+https://nytimes.com/athletic/6032572/2025/01/02/rams-puka-nacua-emotions-star-receiver-seahawks/
 
-**Here’s the latest on the attack.**\
-`By Yan Zhuang`\
-https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news/heres-the-latest-on-the-attack
+**Taking stock of Spurs' Stephon Castle, Rockets' Reed Sheppard and other NBA rookies**\
+`Kelly Iko and Sam Vecenie discuss how the rookies on the Spurs, Rockets and Grizzlies have performed so far this season. `\
+https://nytimes.com/athletic/6027396/2025/01/02/nba-draft-2024-rookies-spurs-rockets-grizzlies/
 
-**Live Updates: Investigators Look Into Whether New Orleans Attacker Acted Alone**\
-`Devices that could be homemade bombs were found after a man drove a pickup truck into a crowd in the French Quarter, raising suspicions that he had accomplices. At least 15 people were killed in the attack.`\
-https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news
+**Justin Jefferson's Vikings teammates gush about his impact: 'You feel his joy'**\
+`Some top wideouts are prima donnas, but Jefferson's teammates see him as a "down to earth" superstar who "is doing it the right way."`\
+https://nytimes.com/athletic/6032385/2025/01/02/justin-jefferson-vikings-teammates-joy/
 
-**Phillies notes: Rotation plans, outfield scenarios, roster talk, and is the bullpen 'set'?**\
-`By adding Jesús Luzardo and Joe Ross, the Phillies feel less pressure to alter their 2025 plan for Andrew Painter.`\
-https://nytimes.com/athletic/6029828/2025/01/02/phillies-rotation-outfield-bullpen-2025/
+**What Blackhawks fans can look forward to in 2025: Linemate for Connor Bedard? Top-3 pick?**\
+`Let's pull the lens out from the current state of the Blackhawks and focus on what the calendar year could bring for the team.`\
+https://nytimes.com/athletic/6031597/2025/01/02/blackhawks-2025-connor-bedard-nhl-draft/
 
-**How Michigan beat Alabama and what it means for 2025: Final thoughts**\
-`The Wolverines rewrote their narrative with two improbable wins to end the season. Here's what we learned at the ReliaQuest Bowl.`\
-https://nytimes.com/athletic/6032034/2025/01/02/michigan-alabama-reliaquest-bowl-2025/
+**Manchester United live Q&A: Andy Mitten answers your questions**\
+`What do you want to know about United's current situation? Pose your questions and Andy Mitten will answer as many as possible`\
+https://nytimes.com/athletic/6031084/2025/01/02/manchester-united-andy-mitten-answers-questions/
 
-**Liz Cheney Is Among 20 Chosen to Receive Presidential Citizens Medal**\
-`Two close advisers to President Biden will also be honored, in addition to career lawmakers who have worked across the aisle and advocates for liberal causes.`\
-https://nytimes.com/2025/01/02/us/politics/presidential-citizens-medal-liz-cheney.html
+**Dana White, Donald Trump and the Rise of Cage-Match Politics**\
+`How U.F.C. was transformed into a cultural powerhouse with the help of the president-elect.`\
+https://nytimes.com/2025/01/02/podcasts/the-daily/dana-white-donald-trump-ufc.html
 
-**Eyes on the Panthers roster: 1 thought on every defender and specialist**\
-`Carolina's defense has been historically bad this season. The verdict on whether every defensive player should stay or go. `\
-https://nytimes.com/athletic/6032042/2025/01/02/panthers-roster-defense-stay-or-go/
+**Our most meaningful women's soccer memorabilia**\
+`The Athletic's women's soccer writers have acquired some interesting items over the years — these are some personal favorites `\
+https://nytimes.com/athletic/6010370/2025/01/02/uswnt-nwsl-memorabilia/
 
-**In Harlem, Two Friends Joined Forces to Buy a Rowhouse. Which Was the Right Fit?**\
-`Aiming to live ‘as neighbors, not roommates,’ two New Yorkers devised a plan to combine their budgets and become the co-owners of a two-family or three-family house.`\
-https://nytimes.com/interactive/2025/01/02/realestate/harlem-rowhouse-friends-sale.html
+**New Orleans Attack ‘Inspired by ISIS’, and a Cybertruck Explosion in Las Vegas**\
+`Plus, a breathalyzer test for marijuana?`\
+https://nytimes.com/2025/01/02/podcasts/new-orleans-attack-isis-cybertruck-explosion-las-vegas.html
 
-**Internet Star? Rock Star? Carter Vail Would Like to Be Both.**\
-`He built a huge audience with ridiculous (and catchy) songs on social media. Despite negotiating a record deal and landing a European tour, he has no plans to change.`\
-https://nytimes.com/2025/01/02/style/carter-vail.html
+**The Connections Companion No. 572**\
+`Scroll down for hints and conversation about the puzzle for Friday, Jan. 3, 2025.`\
+https://nytimes.com/2025/01/02/crosswords/connections-companion-572.html
 
-**At Lorna Simpson’s Show, a Constellation of Galactic and Human History**\
-`In celestial hues the artist’s turn to the cosmos, and abstraction, bring us back to vital matters on earth.`\
-https://nytimes.com/2025/01/02/arts/design/lorna-simpson-hauser-wirth-meteorite-paintings-cosmos-art.html
+**Dissecting the NFL MVP race: Allen, Jackson or Burrow? Plus, the case for Saquon Barkley**\
+`Voters have no shortage of viable MVP candidates this season.`\
+https://nytimes.com/athletic/6026114/2025/01/02/nfl-mvp-allen-jackson-burrow-barkley/
 

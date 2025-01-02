@@ -1,3 +1,43 @@
+**For Rams star WR Puka Nacua, big games start by channeling big emotions**\
+`Rams star receiver Puka Nacua practices breathing techniques when he's in the huddle between plays to settle his mind.`\
+https://nytimes.com/athletic/6032572/2025/01/02/rams-puka-nacua-emotions-star-receiver-seahawks/
+
+**Taking stock of Spurs' Stephon Castle, Rockets' Reed Sheppard and other NBA rookies**\
+`Kelly Iko and Sam Vecenie discuss how the rookies on the Spurs, Rockets and Grizzlies have performed so far this season. `\
+https://nytimes.com/athletic/6027396/2025/01/02/nba-draft-2024-rookies-spurs-rockets-grizzlies/
+
+**Justin Jefferson's Vikings teammates gush about his impact: 'You feel his joy'**\
+`Some top wideouts are prima donnas, but Jefferson's teammates see him as a "down to earth" superstar who "is doing it the right way."`\
+https://nytimes.com/athletic/6032385/2025/01/02/justin-jefferson-vikings-teammates-joy/
+
+**What Blackhawks fans can look forward to in 2025: Linemate for Connor Bedard? Top-3 pick?**\
+`Let's pull the lens out from the current state of the Blackhawks and focus on what the calendar year could bring for the team.`\
+https://nytimes.com/athletic/6031597/2025/01/02/blackhawks-2025-connor-bedard-nhl-draft/
+
+**Manchester United live Q&A: Andy Mitten answers your questions**\
+`What do you want to know about United's current situation? Pose your questions and Andy Mitten will answer as many as possible`\
+https://nytimes.com/athletic/6031084/2025/01/02/manchester-united-andy-mitten-answers-questions/
+
+**Dana White, Donald Trump and the Rise of Cage-Match Politics**\
+`How U.F.C. was transformed into a cultural powerhouse with the help of the president-elect.`\
+https://nytimes.com/2025/01/02/podcasts/the-daily/dana-white-donald-trump-ufc.html
+
+**Our most meaningful women's soccer memorabilia**\
+`The Athletic's women's soccer writers have acquired some interesting items over the years — these are some personal favorites `\
+https://nytimes.com/athletic/6010370/2025/01/02/uswnt-nwsl-memorabilia/
+
+**New Orleans Attack ‘Inspired by ISIS’, and a Cybertruck Explosion in Las Vegas**\
+`Plus, a breathalyzer test for marijuana?`\
+https://nytimes.com/2025/01/02/podcasts/new-orleans-attack-isis-cybertruck-explosion-las-vegas.html
+
+**The Connections Companion No. 572**\
+`Scroll down for hints and conversation about the puzzle for Friday, Jan. 3, 2025.`\
+https://nytimes.com/2025/01/02/crosswords/connections-companion-572.html
+
+**Dissecting the NFL MVP race: Allen, Jackson or Burrow? Plus, the case for Saquon Barkley**\
+`Voters have no shortage of viable MVP candidates this season.`\
+https://nytimes.com/athletic/6026114/2025/01/02/nfl-mvp-allen-jackson-burrow-barkley/
+
 **Agnes Keleti, World’s Oldest Olympic Champion, Dies at 103**\
 `Ms. Keleti turned to gymnastics after surviving World War II, and won 10 Olympic medals competing against far younger athletes.`\
 https://nytimes.com/2025/01/02/obituaries/agnes-keleti-dead.html
