@@ -2,7 +2,7 @@
 `In remarks on Thursday, the president praised Senate Democrats for helping him confirm 235 federal judges, surpassing Donald J. Trump’s first-term total.`\
 https://nytimes.com/2025/01/02/us/politics/biden-judicial-confirmations.html
 
-**10 notable snubs from the NFL's 2025 Pro Bowl roster**\
+**Ten notable snubs from the NFL's 2025 Pro Bowl roster**\
 `The NFL's interception leader, a 42-touchdown QB and a pair of star rookie WRs didn't make the cut this season.`\
 https://nytimes.com/athletic/6033718/2025/01/02/2025-nfl-pro-bowl-games-snubs/
 
