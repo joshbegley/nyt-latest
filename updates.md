@@ -1,3 +1,7 @@
+**Several Injured in Shooting Outside Queens Event Space**\
+`The police said the suspects escaped in a vehicle after the shooting Wednesday evening.`\
+https://nytimes.com/video/us/100000009904554/queens-shooting-jamaica-nyc.html
+
 **Tesla Annual Sales Slip for First Time as Competition Grows**\
 `The electric-car company led by Elon Musk no longer has the market to itself. Investors are focusing on autonomous driving and other new technologies.`\
 https://nytimes.com/2025/01/02/business/tesla-sales-elon-musk.html
