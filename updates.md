@@ -1,3 +1,11 @@
+**Agnes Keleti, World’s Oldest Olympic Champion, Dies at 103**\
+`Ms. Keleti turned to gymnastics after surviving World War II, and won 10 Olympic medals competing against far younger athletes.`\
+https://nytimes.com/2025/01/02/obituaries/agnes-keleti-dead.html
+
+**Live Updates: Investigators Look Into Whether New Orleans Attacker Acted Alone**\
+`Devices that could be homemade bombs were found after a man drove a pickup truck into a crowd in the French Quarter, raising suspicions that he had accomplices. At least 15 people were killed in the attack.`\
+https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news
+
 **Here’s the latest on the attack.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2025/01/02/us/new-orleans-attack-news/heres-the-latest-on-the-attack
