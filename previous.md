@@ -1,3 +1,7 @@
+**F.B.I. Offers New Details in Hunt for Jan. 6 Pipe Bomb Suspect**\
+`Four years later, the largest lingering mystery of the Capitol riot remains unsolved.`\
+https://nytimes.com/2025/01/02/us/politics/fbi-capitol-riot-pipe-bomb-suspect.html
+
 **Postal Worker Is Fatally Stabbed at a Bodega in Harlem**\
 `The police had a person of interest in custody, but no charges had been filed. Investigators did not identify the victim.`\
 https://nytimes.com/2025/01/02/nyregion/postal-worker-stabbed-harlem-bodega.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/arts/nyc-galleries-january.html
 **Biden Expected to Permanently Ban Oil Drilling in Some Federal Waters**\
 `The move, expected as early as Monday, relies on a 70-year-old law that could make it difficult for the Trump administration to reverse it.`\
 https://nytimes.com/2025/01/02/climate/federal-waters-oil-drilling-ban.html
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in January**\
-`“On Call,” “The Traitors” Season 3 and “Star Trek: Section 31” are arriving.`\
-https://nytimes.com/2025/01/02/arts/television/january-streaming-movies-shows.html
 
