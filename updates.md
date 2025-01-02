@@ -1,3 +1,7 @@
+**NBA Lookahead: New Year's resolutions & reliving Donovan Mitchell's 71-point gem**\
+`What should each team set its mind to in 2025? Let's explore.`\
+https://nytimes.com/athletic/6023850/2025/01/02/nba-new-years-resolution-cavaliers-celtics-lakers-lebron-james-nba/
+
 **Good Advice**\
 `What advice have you received in the past that you’d like to apply to your life in 2025?`\
 https://nytimes.com/2025/01/02/learning/good-advice.html
