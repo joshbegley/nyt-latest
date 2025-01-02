@@ -1,3 +1,7 @@
+**Several Injured in Shooting Outside Queens Event Space**\
+`The police said the suspects escaped in a vehicle after the shooting Wednesday evening.`\
+https://nytimes.com/video/us/100000009904554/queens-shooting-jamaica-nyc.html
+
 **Costumes, Beers and Cheers: How Darts Became London’s Rowdiest Winter Party**\
 `The professional darts championships draw tens of thousands of raucous fans. The beer flows freely in the stands, but the competition is serious.`\
 https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html

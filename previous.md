@@ -1,3 +1,7 @@
+**Several Injured in Shooting Outside Queens Event Space**\
+`The police said the suspects escaped in a vehicle after the shooting Wednesday evening.`\
+https://nytimes.com/video/us/100000009904554/queens-shooting-jamaica-nyc.html
+
 **Tesla Annual Sales Slip for First Time as Competition Grows**\
 `The electric-car company led by Elon Musk no longer has the market to itself. Investors are focusing on autonomous driving and other new technologies.`\
 https://nytimes.com/2025/01/02/business/tesla-sales-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033139/2025/01/02/ohio-state-oregon-rose-bowl-best
 **New Orleans Prepares to Reopen Bourbon Street After Truck Attack**\
 `Street cleaning trucks were called in as law enforcement agencies appeared to have wrapped up most of their initial investigative work at the site of the attack.`\
 https://nytimes.com/2025/01/02/us/new-orleans-attack-bourbon-street.html
-
-**Costumes, Beers and Cheers: How Darts Became London’s Rowdiest Winter Party**\
-`The professional darts championships draw tens of thousands of raucous fans. The beer flows freely in the stands, but the competition is serious.`\
-https://nytimes.com/2025/01/02/world/europe/darts-championship-pdc-london.html
 
