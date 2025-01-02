@@ -1,5 +1,5 @@
 **Oregon's crushing Rose Bowl defeat once again leaves Ducks on the outside looking in**\
-`For decades, the Ducks have knocked at the door of becoming a desired member of the college football elite. All their missing is the trophy.`\
+`For decades, the Ducks have knocked at the door of becoming a desired member of college football's elite. All they're missing is the trophy.`\
 https://nytimes.com/athletic/6032737/2025/01/01/oregon-loss-rose-bowl-dan-lanning-college-football-playoff/
 
 **Arizona State's remarkable season sets it up for program's biggest task — sustaining success**\
