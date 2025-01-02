@@ -1,3 +1,7 @@
+**How Michigan beat Alabama and what it means for 2025: Final thoughts**\
+`The Wolverines rewrote their narrative with two improbable wins to end the season. Here's what we learned at the ReliaQuest Bowl.`\
+https://nytimes.com/athletic/6032034/2025/01/02/michigan-alabama-reliaquest-bowl-2025/
+
 **Liz Cheney Is Among 20 Chosen to Receive Presidential Citizens Medal**\
 `Two close advisers to President Biden will also be honored, in addition to career lawmakers who have worked across the aisle and advocates for liberal causes.`\
 https://nytimes.com/2025/01/02/us/politics/presidential-citizens-medal-liz-cheney.html
