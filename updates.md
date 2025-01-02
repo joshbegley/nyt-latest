@@ -1,3 +1,11 @@
+**U.S. Weighs Ban on Chinese Drones, Citing National Security Concerns**\
+`The Commerce Department requested that private companies comment on the implications of the rule by March. The final decision will fall to the Trump administration.`\
+https://nytimes.com/2025/01/02/us/politics/drone-ban-china-security.html
+
+**After starting strong, the Giants' offseason could use a momentum boost**\
+`The Adames signing was a great start for the Giants this offseason, but it has been quiet since then as other NL West teams have re-loaded.`\
+https://nytimes.com/athletic/6032480/2025/01/02/after-starting-strong-the-giants-offseason-could-use-a-momentum-boost/
+
 **The Growth in Homelessness Is an American Moral Failure**\
 `Homelessness is a crisis borne of several compounded crises, a symptom of the varied ways our country is failing the most vulnerable.`\
 https://nytimes.com/2025/01/02/opinion/homelessness-surge-crisis.html
