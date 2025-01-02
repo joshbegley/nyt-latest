@@ -1,3 +1,11 @@
+**An Ohio State vs. Penn State finale? Big Ten powers proving that identity still matters**\
+`The Buckeyes and Nittany Lions have the right pieces and schedule to keep advancing. `\
+https://nytimes.com/athletic/6032959/2025/01/02/ohio-state-penn-state-big-ten-playoff-championship/
+
+**Heat Today: With or without a trade, the Heat and Jimmy Butler need to work together**\
+`Butler's candid remarks reignited rumors about his future in Miami, but both parties need to focus on the immediate task ahead.`\
+https://nytimes.com/athletic/6032669/2025/01/02/jimmy-butler-trade-bam-adebay-tyler-herro-heat-nba/
+
 **Aston Villa considering Philogene January loan**\
 `Aston Villa are considering allowing winger Jaden Philogene to depart the club on loan in January.`\
 https://nytimes.com/athletic/6031853/2025/01/02/jaden-philogene-loan-transfer-aston-villa/
