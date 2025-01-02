@@ -1,4 +1,4 @@
-**Arizona State's remarkable season sets it up for the program's biggest task — sustaining success**\
+**Arizona State's remarkable season sets it up for program's biggest task — sustaining success**\
 `Great stories are often more about the journey than the finish. Arizona State's will be remembered in such a way. But it might take time.`\
 https://nytimes.com/athletic/6032590/2025/01/01/arizona-state-texas-cam-skattebo/
 
