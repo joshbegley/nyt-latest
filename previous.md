@@ -1,3 +1,7 @@
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6034385/2025/01/02/ask-cj-submit-your-nhl-questions-for-chris-johnstons-mailbag/
+
 **F.B.I. Offers New Details in Hunt for Jan. 6 Pipe Bomb Suspect**\
 `Four years later, the largest lingering mystery of the Capitol riot remains unsolved.`\
 https://nytimes.com/2025/01/02/us/politics/fbi-capitol-riot-pipe-bomb-suspect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/us/sugar-bowl-new-orleans-attack.html
 **What to See in N.Y.C. Galleries in January**\
 `This week in Newly Reviewed, Martha Schwendener covers Sylvia Plimack Mangold’s photorealistic paintings, Jack Goldstein’s audio works and Pippa Garner’s gadgets.`\
 https://nytimes.com/2025/01/02/arts/nyc-galleries-january.html
-
-**Biden Expected to Permanently Ban Oil Drilling in Some Federal Waters**\
-`The move, expected as early as Monday, relies on a 70-year-old law that could make it difficult for the Trump administration to reverse it.`\
-https://nytimes.com/2025/01/02/climate/federal-waters-oil-drilling-ban.html
 

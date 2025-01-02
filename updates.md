@@ -1,3 +1,7 @@
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6034385/2025/01/02/ask-cj-submit-your-nhl-questions-for-chris-johnstons-mailbag/
+
 **F.B.I. Offers New Details in Hunt for Jan. 6 Pipe Bomb Suspect**\
 `Four years later, the largest lingering mystery of the Capitol riot remains unsolved.`\
 https://nytimes.com/2025/01/02/us/politics/fbi-capitol-riot-pipe-bomb-suspect.html
