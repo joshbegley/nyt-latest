@@ -1,3 +1,7 @@
+**Investigators Search for Links Between New Orleans and Las Vegas Attacks**\
+`The two episodes have superficial similarities, including that both attackers used the same car rental app.`\
+https://nytimes.com/2025/01/01/us/politics/new-orleans-las-vegas-attacks-similarities.html
+
 **Map: 4.7-Magnitude Earthquake Strikes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/01/weather/northern-california-quake.html
