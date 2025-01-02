@@ -34,7 +34,3 @@ https://nytimes.com/2025/01/02/dining/do-fewer-dishes-in-2025.html
 `The Kenya Space Agency identified the metal ring that fell in the country as a separation ring from a launch rocket.`\
 https://nytimes.com/video/world/africa/100000009904660/rocket-space-debris-kenya.html
 
-**Submit your Astros questions for Chandler Rome's mailbag**\
-`The Houston Astros authored a transformative winter before the holiday season, sending Kyle Tucker to the Cubs, signing Christian Walker and signaling the end of Alex Bregman&#8217;s tenure.`\
-https://nytimes.com/athletic/6033418/2025/01/02/houston-astros-mailbag-questions-rome/
-
