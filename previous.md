@@ -1,3 +1,7 @@
+**Shooting Outside Queens Event Space Injures 10**\
+`Three or four people fired into a crowd in the Jamaica neighborhood, the police said.`\
+https://nytimes.com/2025/01/02/nyregion/queens-shooting-new-york.html
+
 **Federal Agents Search the Home of Former Top N.Y.P.D. Official**\
 `Jeffrey Maddrey, who had been chief of department, resigned on Dec. 20 after a lieutenant accused him of coercing her into sex.`\
 https://nytimes.com/2025/01/02/nyregion/nypd-jeffrey-maddrey-home-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032797/2025/01/02/cowboys-coaches-future-mike-mcca
 **World Juniors Today: Previewing every 2025 quarterfinals matchup**\
 `Entering Thursday's games, eight teams still have a chance at leaving Ottawa with a gold medal.`\
 https://nytimes.com/athletic/6029897/2025/01/02/world-juniors-today-2025-quarterfinals-preview/
-
-**Trump Transition Live Updates: Biden to Award Presidential Medal to Liz Cheney**\
-``\
-https://nytimes.com/live/2025/01/02/us/trump-news
 

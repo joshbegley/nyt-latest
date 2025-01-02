@@ -1,3 +1,7 @@
+**Shooting Outside Queens Event Space Injures 10**\
+`Three or four people fired into a crowd in the Jamaica neighborhood, the police said.`\
+https://nytimes.com/2025/01/02/nyregion/queens-shooting-new-york.html
+
 **Federal Agents Search the Home of Former Top N.Y.P.D. Official**\
 `Jeffrey Maddrey, who had been chief of department, resigned on Dec. 20 after a lieutenant accused him of coercing her into sex.`\
 https://nytimes.com/2025/01/02/nyregion/nypd-jeffrey-maddrey-home-search.html
