@@ -1,3 +1,7 @@
+**Phillies notes: Rotation plans, outfield scenarios, roster talk, and is the bullpen 'set'?**\
+`By adding Jesús Luzardo and Joe Ross, the Phillies feel less pressure to alter their 2025 plan for Andrew Painter.`\
+https://nytimes.com/athletic/6029828/2025/01/02/phillies-rotation-outfield-bullpen-2025/
+
 **How Michigan beat Alabama and what it means for 2025: Final thoughts**\
 `The Wolverines rewrote their narrative with two improbable wins to end the season. Here's what we learned at the ReliaQuest Bowl.`\
 https://nytimes.com/athletic/6032034/2025/01/02/michigan-alabama-reliaquest-bowl-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/learning/what-are-your-new-years-resolutions.html
 **The Sacrifices of Zoe Saldaña**\
 `The actress is known for big franchises. “Emilia Pérez” is a big shift: “I was doing it for me, and for a long time, I stopped doing things for me.”`\
 https://nytimes.com/2025/01/02/movies/zoe-saldana-emilia-perez-avatar.html
-
-**Long flying under the radar, Kaytron Allen gets his moment in Penn State Fiesta Bowl win**\
-`Penn State's balancing act between star running backs Allen and Nick Singleton is paying off in the College Football Playoff. `\
-https://nytimes.com/athletic/6032268/2025/01/02/kaytron-allen-penn-state-college-football-playoff/
 
