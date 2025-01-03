@@ -1,40 +1,40 @@
-**Liverpool’s Gomez 'not in a good place' with hamstring injury, out for 'a few weeks'**\
-`Arne Slot has said Liverpool&#8217;s Joe Gomez is &#8220;not in a good place&#8221; with a hamstring injury with the head coach believing the defender will be unavailable &#8220;for a few weeks&#8221;.`\
-https://nytimes.com/athletic/6033194/2025/01/03/joe-gomez-injury-how-long-liverpool/
+**Four things I'm watching as Panthers prepare for an important offseason**\
+`What happens with the defensive staff? What can GM Dan Morgan do to get Bryce Young and company more help?`\
+https://nytimes.com/athletic/6034370/2025/01/03/panthers-offseason-decisions-free-agency/
 
-**Giuliani, Slow to Give Up His Belongings, Tests Patience of Court**\
-`The former mayor of New York City could be held in contempt of court after failing to fully comply with orders to surrender millions of dollars in assets to election workers he defamed.`\
-https://nytimes.com/2025/01/03/nyregion/rudy-giuliani-assets-court-contempt.html
+**Projecting Wisconsin's 2025 depth chart: Quarterback overhaul, questions at receiver**\
+`The Badgers will have a one-year transfer quarterback starter under Luke Fickell for the third consecutive season in 2025.`\
+https://nytimes.com/athletic/6033956/2025/01/03/wisconsin-depth-chart-college-football-offense/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/03/crosswords/spelling-bee-forum.html
+**The Duke’s Mayo Bowl is Gross and Weird. That’s Why People Love It.**\
+`The game is one of more than 40 bowl games. But the corporate sponsor has made it an internet sensation. Warning: sickening content.`\
+https://nytimes.com/2025/01/03/sports/dukes-mayo-bowl.html
 
-**Celebration**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/01/03/learning/celebration.html
+**How to Future-Proof Your Happiness in the New Year**\
+`Entering the new year pushes people into punishment mode. Instead, focus on what feeds you.`\
+https://nytimes.com/2025/01/03/well/new-year-happiness-resolutions.html
 
-**Kurz: Flyers' Aleksei Kolosov isn't an NHL goalie. It's time to pull the plug**\
-`Kolosov is dead last in the league in save percentage among the 56 goalies who have played at least 600 minutes this season.`\
-https://nytimes.com/athletic/6035177/2025/01/03/flyers-golden-knights-aleksei-kolosov/
+**Musk’s Misinformation About Tech Visas**\
+`Companies’ use of foreign workers frequently leads to American layoffs.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/musk-h1b-visas
 
-**Derrick White energized, Jayson Tatum asks for Anthony Edwards in Celtics win**\
-`After an unusually turbulent December, Boston sure did seem to enjoy finding ways to overcome a sharp performance from Minnesota.`\
-https://nytimes.com/athletic/6035169/2025/01/03/derrick-white-jayson-tatum-anthony-edwards-celtics-win/
+**The New York Times News Quiz, Jan. 3, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/01/03/briefing/jimmy-carter-new-orleans-las-vegas-attacks-news-quiz.html
 
-**Word of the Day: neologism**\
-`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/03/learning/word-of-the-day-neologism.html
+**Nikki Glaser Wants to Kill as Host of the Globes. Is She Overthinking It?**\
+`To refine her monologue for Sunday’s show, she relied on two writers’ rooms and 91 test runs. Then came the fickle audiences and a crisis of confidence.`\
+https://nytimes.com/2025/01/03/arts/television/nikki-glaser-golden-globes-host.html
 
-**How Canucks hung on to defeat Kraken in shootout: 3 takeaways**\
-`A lot was stacked against the Canucks on Thursday night in Seattle, but they came away with a victory.`\
-https://nytimes.com/athletic/6035046/2025/01/03/canucks-kraken-shootout-thatcher-demko-jt-miller/
+**A Long Fight to Keep a Closer Eye on Madrasas Unravels in Pakistan**\
+`In a deal with Islamist parties, Pakistan is abandoning a requirement that religious seminaries, long seen by Western officials as a potential threat, register with the government.`\
+https://nytimes.com/2025/01/03/world/asia/pakistan-madrasas.html
 
-**Plane Crashes Into Furniture Factory in California**\
-`The small aircraft burst into flames after hitting a sprawling furniture manufacturing facility in Fullerton, Calif.`\
-https://nytimes.com/video/us/100000009906271/california-plane-crash.html
+**Vivek Ramaswamy Leaves Something Out of His Story of South Asian Success**\
+`It’s a culture not of success but of survival.`\
+https://nytimes.com/2025/01/03/opinion/vivek-ramaswamy-immigrants.html
 
-**Sabres blow multiple leads against Avalanche in another painful loss: Takeaways**\
-`Despite leads of 3-0, 4-2 and 5-3, the Sabres still found a way to lose. That's been the story of their season. "Just another painful loss."`\
-https://nytimes.com/athletic/6035110/2025/01/03/sabres-avalanche-blown-leads-takeaways/
+**Could Monkeys Really Type All of Shakespeare?**\
+`Not in this universe, a new study concludes.`\
+https://nytimes.com/2025/01/03/science/monkeys-typewriter-shakespeare.html
 
