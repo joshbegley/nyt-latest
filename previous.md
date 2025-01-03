@@ -1,3 +1,7 @@
+**Johnson Is Re-Elected as House Speaker**\
+`After two last-minute vote changes by Republican holdouts, Representative Mike Johnson of Louisiana secured a majority of votes.`\
+https://nytimes.com/video/us/politics/100000009907397/mike-johnson-speaker-reelection.html
+
 **Pulisic returns from injury for Milan win over Juventus**\
 `Christian Pulisic returned from injury to lead the fightback as Milan came from behind to beat Juventus and reach the Italian Super Cup final.`\
 https://nytimes.com/athletic/6035243/2025/01/03/christian-pulisic-injury-milan-super-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/realestate/alexander-brothers-hearing-miami.html
 **Treasury Dept. Hits Chinese Tech Company With Sanctions After Breach**\
 `The agency imposed penalties on a company it blamed for supporting the Chinese hacking group Flax Typhoon in a 2022-23 infiltration.`\
 https://nytimes.com/2025/01/03/us/politics/treasury-chinese-sanctions.html
-
-**Dodgers reach deal with Korean infielder Hyeseong Kim: sources**\
-`Kim is a second baseman who hit .326/.383/.458 with 11 home runs, 75 RBIs and 30 stolen bases last year in the KBO. `\
-https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
 
