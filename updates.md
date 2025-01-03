@@ -1,3 +1,7 @@
+**Marc-Andre Fleury, shorthanded Wild pull off comeback shootout win: Takeaways**\
+`Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
+https://nytimes.com/athletic/6034635/2025/01/02/wild-fleury-shootout-ovechkin-capitals/
+
 **Two Killed and 18 Injured in Southern California Plane Crash**\
 `A single-engine aircraft collided into a building near a small airport in Fullerton, Calif., prompting hundreds of people to evacuate, officials said.`\
 https://nytimes.com/2025/01/02/us/california-plane-crash.html
