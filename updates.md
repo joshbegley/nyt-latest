@@ -1,3 +1,7 @@
+**The speaker vote is a test of Trump’s influence.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-speaker-vote-is-a-test-of-trumps-influence
+
 **Villa defender Torres out for two months with broken metatarsal**\
 `Aston Villa manager Unai Emery has confirmed Pau Torres has suffered a broken metatarsal, ruling the defender out for two months.`\
 https://nytimes.com/athletic/6029135/2025/01/03/aston-villa-pau-torres-injury/
