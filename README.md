@@ -1,3 +1,11 @@
+**Nine-darters to golden sets: What's the most perfect achievement in sport?**\
+`Every sport has an individual achievement which is deemed the holy grail for competitors`\
+https://nytimes.com/athletic/6032894/2025/01/03/sport-perfect-thing/
+
+**Arteta's squad-building has had a defensive focus - is it now time for that to change?**\
+`Analysing where the Arsenal manager has spent money during his five years in charge – and whether that now needs to change`\
+https://nytimes.com/athletic/6006310/2025/01/03/mikel-artetas-squad-building-has-had-a-defensive-focus-is-it-time-for-that-to-change/
+
 **Near-post weakness and exposing Onana: Why Manchester United are so bad at defending corners**\
 `A analytical and tactical breakdown of Ruben Amorim's side's inability to deal with corners `\
 https://nytimes.com/athletic/6031108/2025/01/03/why-manchester-united-cant-defend-corners/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/style/veronica-fitzpatrick-kevin-fay-wedding.html
 **Quote of the Day: Seductive Image of Naples Belies the Reality of a Struggling City**\
 `Quotation of the Day for Friday, January 3, 2025.`\
 https://nytimes.com/2025/01/02/pageoneplus/quote-of-the-day-seductive-image-of-naples-belies-the-reality-of-a-struggling-city.html
-
-**Besieged with injuries to big players, Wild keep winning: 'It’s what good teams do, I think'**\
-`The Wild played one of their most impressive games this season against the Capitals despite a long list of injured stars.`\
-https://nytimes.com/athletic/6034989/2025/01/02/wild-injuries-fleury-rossi-capitals/
-
-**Wheeler: Hockey Canada has big questions to answer after another disappointing World Juniors**\
-`If there’s truly a high standard at Hockey Canada, then not playing in a medal game for two straight years shouldn’t meet it.`\
-https://nytimes.com/athletic/6034832/2025/01/02/canada-world-juniors-loss-czechia/
 
