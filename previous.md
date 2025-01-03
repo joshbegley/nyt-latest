@@ -1,3 +1,7 @@
+**Bucks once again can't solve the feisty Nets' puzzle: 'Gotta be better'**\
+`For the third time this season, Milwaukee wasn't "locked in" against Brooklyn, a team in the middle of a season-long tanking effort.`\
+https://nytimes.com/athletic/6035364/2025/01/03/giannis-bucks-nets-recap/
+
 **Forest duo Murillo, Hudson-Odoi set to return for Wolves game**\
 `Nuno Espirito Santo expects Nottingham Forest duo Murillo and Callum Hudson-Odoi to be fit to face his former club Wolverhampton Wanderers on Monday.`\
 https://nytimes.com/athletic/6035669/2025/01/03/nottingham-forest-murillo-hudson-odoi-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029135/2025/01/03/aston-villa-pau-torres-injury/
 **Thompson: Stephen Curry's 3-point perfection caps an anomalous win the Warriors needed**\
 `Thursday's 139-point night against Philadelphia was a refreshing reminder of what was, and what was supposed to be, for this Warriors team.`\
 https://nytimes.com/athletic/6035422/2025/01/03/stephen-curry-warriors-8-for-8-3-pointers-76ers/
-
-**Anselmino to train with Chelsea first-team after Boca Juniors recall**\
-`Enzo Maresca has said Chelsea plan for Aaron Anselmino to train with the first-team squad before making a decision on his immediate future.`\
-https://nytimes.com/athletic/6035294/2025/01/03/chelsea-aaron-anselmino-squad/
 

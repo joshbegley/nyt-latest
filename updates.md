@@ -1,3 +1,7 @@
+**Bucks once again can't solve the feisty Nets' puzzle: 'Gotta be better'**\
+`For the third time this season, Milwaukee wasn't "locked in" against Brooklyn, a team in the middle of a season-long tanking effort.`\
+https://nytimes.com/athletic/6035364/2025/01/03/giannis-bucks-nets-recap/
+
 **Forest duo Murillo, Hudson-Odoi set to return for Wolves game**\
 `Nuno Espirito Santo expects Nottingham Forest duo Murillo and Callum Hudson-Odoi to be fit to face his former club Wolverhampton Wanderers on Monday.`\
 https://nytimes.com/athletic/6035669/2025/01/03/nottingham-forest-murillo-hudson-odoi-wolves/
