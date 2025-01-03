@@ -1,3 +1,11 @@
+**Which Countries Warn That Alcohol May Cause Cancer?**\
+`A quarter of nations worldwide have health risk labels on alcohol. But only South Korea has a warning about liver cancer.`\
+https://nytimes.com/2025/01/03/world/alcohol-warnings-countries.html
+
+**Hockey Canada brass stand by choices after second straight World Juniors 'disaster'**\
+`Canada's quarterfinal exit at the World Juniors boiled down to too many penalties and not enough goals.`\
+https://nytimes.com/athletic/6036168/2025/01/03/hockey-canada-world-juniors-2025/
+
 **Should a 13-Year-Old Be Pressured Into Having an Abortion?**\
 `The magazine’s Ethicist columnist on bodily autonomy and medical consent.`\
 https://nytimes.com/2025/01/03/magazine/adolescent-pregnancy-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/pelosi-r
 **West Virginia, Rodriguez bringing Noel Devine on staff as offensive analyst**\
 `Devine, who played four years at WVU, was one of the first high school football recruits to have his highlights go viral.`\
 https://nytimes.com/athletic/6036094/2025/01/03/west-virginia-hiring-noel-devine-richrod-staff/
-
-**Listen to the Dawn of Rock ’n’ Roll, Captured at Sun Studio**\
-`The Memphis landmark where Elvis Presley, Johnny Cash, Jerry Lee Lewis and Howlin’ Wolf recorded turns 75 on Friday.`\
-https://nytimes.com/2025/01/03/arts/music/amplifier-newsletter-sun-studio.html
-
-**Jocelyne Wildenstein, Socialite and Tabloid ‘Catwoman,’ Dies at 79**\
-`Her lurid divorce from the wealthy scion of an art-world dynasty earned headlines. Her elaborate plastic surgeries brought even more attention.`\
-https://nytimes.com/2025/01/03/nyregion/jocelyne-wildenstein-dead.html
 
