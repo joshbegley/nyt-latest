@@ -1,3 +1,11 @@
+**Boise State's Ashton Jeanty took full advantage of stage provided by 12-team Playoff**\
+`A special player significantly raised the level of his team, making the most of every eyeball and opportunity that came with it.`\
+https://nytimes.com/athletic/6033438/2025/01/03/ashton-jeanty-boise-state-cfp-season/
+
+**Court Vision: Jim Larrañaga’s retirement, NIL lawsuit for FSU's Hamilton come amid ACC decline**\
+`There's a player you need to know about. Plus, settle in for a great Saturday of conference basketball. `\
+https://nytimes.com/athletic/6034103/2025/01/03/miami-jim-larranaga-hamilton-fsu-nil-lawsuit/
+
 **How Nikola Jokić channeled Larry Bird to become even more dominant**\
 `Jokić felt something was wrong with his shooting mechanics and wanted to fix it. Now he's playing at maybe his highest level ever.`\
 https://nytimes.com/athletic/6028410/2025/01/03/nikola-jokic-shooting-nuggets-nba-larry-bird/

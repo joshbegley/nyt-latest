@@ -1,3 +1,11 @@
+**Boise State's Ashton Jeanty took full advantage of stage provided by 12-team Playoff**\
+`A special player significantly raised the level of his team, making the most of every eyeball and opportunity that came with it.`\
+https://nytimes.com/athletic/6033438/2025/01/03/ashton-jeanty-boise-state-cfp-season/
+
+**Court Vision: Jim Larrañaga’s retirement, NIL lawsuit for FSU's Hamilton come amid ACC decline**\
+`There's a player you need to know about. Plus, settle in for a great Saturday of conference basketball. `\
+https://nytimes.com/athletic/6034103/2025/01/03/miami-jim-larranaga-hamilton-fsu-nil-lawsuit/
+
 **How Nikola Jokić channeled Larry Bird to become even more dominant**\
 `Jokić felt something was wrong with his shooting mechanics and wanted to fix it. Now he's playing at maybe his highest level ever.`\
 https://nytimes.com/athletic/6028410/2025/01/03/nikola-jokic-shooting-nuggets-nba-larry-bird/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6034244/2025/01/03/joe-hortiz-chargers-gm-top-execu
 **Should Seahawks' Ryan Grubb be in the crosshairs? Assessing Seattle OC's first year**\
 `O-line issues and the lack of a clear offensive identity led to an underwhelming season for Seattle's first-year play caller.`\
 https://nytimes.com/athletic/6034557/2025/01/03/seahawks-offense-assessing-ryan-grubb-year-one/
-
-**Victor Wembanyama prepares for 100th NBA game. Let's break down his historic start**\
-`Wembanyama also turns 21 on Saturday. The numbers he has put up already for the Spurs are mind-blowing.`\
-https://nytimes.com/athletic/6025977/2025/01/03/victory-wembanyama-spurs-nba-100th-game/
-
-**Inside Mike Vrabel’s year off: His season with the Browns and what he wants next**\
-`The former Titans coach spent the 2024 season preparing for his next opportunity.`\
-https://nytimes.com/athletic/6034054/2025/01/03/mike-vrabel-nfl-coaching-browns-year-off/
 
