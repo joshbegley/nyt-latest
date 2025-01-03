@@ -1,3 +1,11 @@
+**Nine-darters to golden sets: What's the most perfect achievement in sport?**\
+`Every sport has an individual achievement which is deemed the holy grail for competitors`\
+https://nytimes.com/athletic/6032894/2025/01/03/sport-perfect-thing/
+
+**Arteta's squad-building has had a defensive focus - is it now time for that to change?**\
+`Analysing where the Arsenal manager has spent money during his five years in charge – and whether that now needs to change`\
+https://nytimes.com/athletic/6006310/2025/01/03/mikel-artetas-squad-building-has-had-a-defensive-focus-is-it-time-for-that-to-change/
+
 **Near-post weakness and exposing Onana: Why Manchester United are so bad at defending corners**\
 `A analytical and tactical breakdown of Ruben Amorim's side's inability to deal with corners `\
 https://nytimes.com/athletic/6031108/2025/01/03/why-manchester-united-cant-defend-corners/
