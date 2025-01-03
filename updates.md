@@ -1,3 +1,11 @@
+**David Lodge, British Novelist Who Satirized Academic Life, Dies at 89**\
+`His 15 well-plotted novels teemed with romance and strange coincidence. An erudite literary critic with an ear for language, he also wrote a raft of nonfiction books.`\
+https://nytimes.com/2025/01/03/books/david-lodge-dead.html
+
+**Lewis-Potter close to new long-term contract at Brentford**\
+`Keane Lewis-Potter is close to agreeing a new long-term contract with Brentford.`\
+https://nytimes.com/athletic/6036032/2025/01/03/brentford-lewis-potter-contract-new/
+
 **Bevo's back: Texas' live mascot to attend Cotton Bowl vs. Ohio State**\
 `Texas' live mascot, which weighs more than 1,700 pounds and has a horn span of more than 58 inches, is set to attend the CFP semifinal.`\
 https://nytimes.com/athletic/6035961/2025/01/03/bevo-texas-live-mascot-cotton-bowl-semifinal-ohio-state/

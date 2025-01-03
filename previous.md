@@ -1,3 +1,11 @@
+**David Lodge, British Novelist Who Satirized Academic Life, Dies at 89**\
+`His 15 well-plotted novels teemed with romance and strange coincidence. An erudite literary critic with an ear for language, he also wrote a raft of nonfiction books.`\
+https://nytimes.com/2025/01/03/books/david-lodge-dead.html
+
+**Lewis-Potter close to new long-term contract at Brentford**\
+`Keane Lewis-Potter is close to agreeing a new long-term contract with Brentford.`\
+https://nytimes.com/athletic/6036032/2025/01/03/brentford-lewis-potter-contract-new/
+
 **Bevo's back: Texas' live mascot to attend Cotton Bowl vs. Ohio State**\
 `Texas' live mascot, which weighs more than 1,700 pounds and has a horn span of more than 58 inches, is set to attend the CFP semifinal.`\
 https://nytimes.com/athletic/6035961/2025/01/03/bevo-texas-live-mascot-cotton-bowl-semifinal-ohio-state/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/business/ford-gm-vehicle-sales.html
 **Salah says 'last year' at Liverpool is fuelling title ambition**\
 `Mohamed Salah says he is getting extra motivation to win the Premier League from believing this is his “last year” at Liverpool and wanting to finally celebrate a title win with the club&#8217;s fans.`\
 https://nytimes.com/athletic/6035862/2025/01/03/mohamed-salah-liverpool-last-year/
-
-**If no speaker is chosen, Trump’s certification could be delayed.**\
-`By Maya C. Miller`\
-https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-no-speaker-is-chosen-trumps-certification-could-be-delayed
-
-**South Korea Fails to Arrest Impeached President**\
-`Corruption investigators seeking to arrest President Yoon Suk Yeol at his official residence in Seoul were in a standoff with the Presidential Security Service that lasted hours.`\
-https://nytimes.com/video/world/asia/100000009906441/officials-fail-to-arrest-south-korean-president.html
 
