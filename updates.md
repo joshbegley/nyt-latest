@@ -1,3 +1,7 @@
+**Bevo's back: Texas' live mascot to attend Cotton Bowl vs. Ohio State**\
+`Texas' live mascot, which weighs more than 1,700 pounds and has a horn span of more than 58 inches, is set to attend the CFP semifinal.`\
+https://nytimes.com/athletic/6035961/2025/01/03/bevo-texas-live-mascot-cotton-bowl-semifinal-ohio-state/
+
 **Heat Today: How did Jimmy Butler, Pat Riley and Miami reach this point?**\
 `Butler and Riley once shared dreams of winning a championship together in South Florida. How did things get this bad?`\
 https://nytimes.com/athletic/6035886/2025/01/03/jimmy-butler-pat-riley-heat-trade-rockets-warriors-mavericks-suns-nba/
