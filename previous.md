@@ -1,3 +1,11 @@
+**9 Plays to Warm Up Winter in New York**\
+`Several festivals, including Under the Radar, are bringing a tantalizing breadth of new work to stages across New York.`\
+https://nytimes.com/2025/01/03/theater/january-theater-roundup.html
+
+**JetBlue Fined $2 Million for Chronic Delays**\
+`The Transportation Department’s first ever penalty for chronic delays takes aim at four routes that consistently arrived late for five consecutive months.`\
+https://nytimes.com/2025/01/03/travel/jetblue-fined-chronic-delays-east-coast.html
+
 **Palace's Hughes to miss Chelsea clash with foot injury**\
 `Crystal Palace will be without Will Hughes for Saturday’s Premier League match with Chelsea after the midfielder sustained an injury during Sunday’s 2-1 win over Southampton.`\
 https://nytimes.com/athletic/6035554/2025/01/03/will-hughes-injury-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035437/2025/01/03/sec-college-football-playoff-con
 **If a speaker is not chosen on the first ballot, the House must keep voting.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-a-speaker-is-not-chosen-on-the-first-ballot-the-house-must-keep-voting
-
-**After Fierce Lobbying, Treasury Sets Rules for Billions in Hydrogen Subsidies**\
-`With a lucrative tax credit, the Biden administration is hoping to establish a new industry that might help fight climate change.`\
-https://nytimes.com/2025/01/03/climate/hydrogen-subsidies-biden-treasury.html
-
-**Rashford set to miss Liverpool trip due to illness - Amorim**\
-`Ruben Amorim says Marcus Rashford is set to miss Manchester United&#8217;s Premier League match against Liverpool on Sunday through illness.`\
-https://nytimes.com/athletic/6035270/2025/01/03/marcus-rashford-man-utd-liverpool/
 
