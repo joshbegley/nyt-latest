@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6033849/2025/01/02/jauan-jennings-joshua-dobbs-49er
 https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kirill-kaprizov-update/
 
 **Could Better Security Have Stopped the New Orleans Terror Attack?**\
-`Other cities use dump trucks, fire engines and other barriers to protect their streets. But a lone-wolf attack is hard to stop, security experts say.`\
+`City officials were warned in 2019 that the bollards designed to block vehicles did “not appear to work.” They were being fixed when a truck rammed through Bourbon Street on Wednesday.`\
 https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
 
 **New Details Emerge in Cybertruck Explosion, but Motive Is Still Unclear**\
