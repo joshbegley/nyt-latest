@@ -1,3 +1,11 @@
+**Near-post weakness and exposing Onana: Why Manchester United are so bad at defending corners**\
+`A analytical and tactical breakdown of Ruben Amorim's side's inability to deal with corners `\
+https://nytimes.com/athletic/6031108/2025/01/03/why-manchester-united-cant-defend-corners/
+
+**Olmo affair has raised questions over Laporta's quick fixes - are Barcelona running out of road?**\
+`Barca are in a position where they cannot register Dani Olmo for the second half of the season - it speaks for wider issues at the club`\
+https://nytimes.com/athletic/6033285/2025/01/03/dani-olmo-barcelona-joan-laporta/
+
 **I Still Don’t Know Why I Said Yes**\
 `In the language of physics, we were a quantum entanglement event.`\
 https://nytimes.com/2025/01/03/style/modern-love-why-did-he-want-to-be-with-me.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6034989/2025/01/02/wild-injuries-fleury-rossi-capit
 **Wheeler: Hockey Canada has big questions to answer after another disappointing World Juniors**\
 `If there’s truly a high standard at Hockey Canada, then not playing in a medal game for two straight years shouldn’t meet it.`\
 https://nytimes.com/athletic/6034832/2025/01/02/canada-world-juniors-loss-czechia/
-
-**Why Canada's World Juniors struggles shouldn't have been a surprise**\
-`It’s natural given Canada's difficult effort on home ice to want explanations and look for scapegoats.`\
-https://nytimes.com/athletic/6034848/2025/01/02/canada-world-juniors-2025-struggles/
-
-**How Blue Jackets' crucial last-minute mistake led to gut-wrenching loss to Red Wings**\
-`Detroit's Jonatan Berggren scored the go-ahead goal with 36 seconds remaining in the third period to hand Columbus a 5-4 loss.`\
-https://nytimes.com/athletic/6034833/2025/01/02/blue-jackets-red-wings-jonatan-berggren/
 
