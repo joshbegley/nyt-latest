@@ -1,3 +1,19 @@
+**Marie Winn, Who Wrote of a Famous Central Park Hawk, Dies at 88**\
+`She chronicled the melodrama of Pale Male, a red-tailed hawk who became an avian sensation as it took up residence atop a Manhattan apartment building.`\
+https://nytimes.com/2025/01/03/nyregion/marie-winn-dead.html
+
+**Michigan signs Alabama transfer RB Justice Haynes**\
+`Michigan confirmed the addition of Haynes, a former five-star recruit, from Alabama on Friday.`\
+https://nytimes.com/athletic/6018617/2025/01/03/michigan-alabama-transfer-justice-haynes/
+
+**Vinicius Junior sent off after pushing Valencia goalkeeper Dimitrievski**\
+`Vinicius Junior was sent off in the second half of Real Madrid&#8217;s La Liga fixture against Valencia after an off-the-ball push on opposition goalkeeper Stole Dimitrievski.`\
+https://nytimes.com/athletic/6036445/2025/01/03/vinicius-junior-red-card-valencia/
+
+**A Judge Upheld Trump’s Felony Conviction, but Signaled No Jail Time**\
+`Also, Mike Johnson was re-elected as House speaker. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/03/briefing/judge-sentencing-donald-trump-warnings-alcohol.html
+
 **Security Heightened in D.C. After New Year’s Day Attacks**\
 `Metropolitan Police say they will be ready for upcoming events at the Capitol.`\
 https://nytimes.com/2025/01/03/us/politics/trump-inauguration-jimmy-carter-funeral-security.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/01/03/nyregion/people-v-djt-clayton-decisio
 **Wolves hopeful of completing Agbadou signing from Reims**\
 `Wolverhampton Wanderers are hopeful of completing the signing of Stade de Reims centre-back Emmanuel Agbadou.`\
 https://nytimes.com/athletic/6036290/2025/01/03/wolves-hopeful-of-completing-emmanuel-agbadou-signing-from-reims/
-
-**Judge John Hodgman on Proper Mad Libs Etiquette**\
-`Is your obligation to make it random? Or funny?`\
-https://nytimes.com/2025/01/03/magazine/judge-john-hodgman-on-proper-mad-libs-etiquette.html
-
-**Johnson Is Re-elected as House Speaker**\
-`After two last-minute vote changes by Republican holdouts, Representative Mike Johnson of Louisiana secured a majority of votes.`\
-https://nytimes.com/video/us/politics/100000009907397/mike-johnson-speaker-reelection.html
-
-**Pulisic returns from injury for Milan win over Juventus**\
-`Christian Pulisic returned from injury to lead the fightback as Milan came from behind to beat Juventus and reach the Italian Super Cup final.`\
-https://nytimes.com/athletic/6035243/2025/01/03/christian-pulisic-injury-milan-super-cup/
-
-**Judge Upholds Trump’s Conviction but Signals No Jail Time**\
-`The New York judge who oversaw President-elect Donald J. Trump’s hush-money trial scheduled his sentencing for Jan. 10. Mr. Trump is expected to appeal his conviction.`\
-https://nytimes.com/2025/01/03/nyregion/trump-sentencing-hush-money-case-ny.html
 

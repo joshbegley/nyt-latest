@@ -1,3 +1,19 @@
+**Marie Winn, Who Wrote of a Famous Central Park Hawk, Dies at 88**\
+`She chronicled the melodrama of Pale Male, a red-tailed hawk who became an avian sensation as it took up residence atop a Manhattan apartment building.`\
+https://nytimes.com/2025/01/03/nyregion/marie-winn-dead.html
+
+**Michigan signs Alabama transfer RB Justice Haynes**\
+`Michigan confirmed the addition of Haynes, a former five-star recruit, from Alabama on Friday.`\
+https://nytimes.com/athletic/6018617/2025/01/03/michigan-alabama-transfer-justice-haynes/
+
+**Vinicius Junior sent off after pushing Valencia goalkeeper Dimitrievski**\
+`Vinicius Junior was sent off in the second half of Real Madrid&#8217;s La Liga fixture against Valencia after an off-the-ball push on opposition goalkeeper Stole Dimitrievski.`\
+https://nytimes.com/athletic/6036445/2025/01/03/vinicius-junior-red-card-valencia/
+
+**A Judge Upheld Trump’s Felony Conviction, but Signaled No Jail Time**\
+`Also, Mike Johnson was re-elected as House speaker. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/03/briefing/judge-sentencing-donald-trump-warnings-alcohol.html
+
 **Security Heightened in D.C. After New Year’s Day Attacks**\
 `Metropolitan Police say they will be ready for upcoming events at the Capitol.`\
 https://nytimes.com/2025/01/03/us/politics/trump-inauguration-jimmy-carter-funeral-security.html
