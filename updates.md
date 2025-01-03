@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
 `\
 https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
 
+**'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
+`The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
+`\
+https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
+
 **Maple Leafs report cards: Strong individual performances but weak team effort**\
 `Bobby McMann scored Toronto's only goals and Joseph Woll made quality saves, but despite the win, the overall team effort wasn't impressive.`\
 https://nytimes.com/athletic/6034851/2025/01/02/maple-leafs-islanders-bobby-mcmann-grades/
