@@ -1,3 +1,11 @@
+**Justice Dept. Reaches Deal to Monitor Troubled Atlanta Jail**\
+`The facility in Fulton County, Georgia, has long had problems with assaults, drugs and pests.`\
+https://nytimes.com/2025/01/03/us/politics/justice-dept-fulton-county-jail.html
+
+**How Much Alcohol Does It Take to Raise Your Cancer Risk?**\
+`The surgeon general cautioned the public on Friday that even light or moderate drinking is harmful.`\
+https://nytimes.com/2025/01/03/well/alcohol-cancer-risk.html
+
 **Postecoglou has 'no problem' with Maddison's darts trip**\
 `Ange Postecoglou says he has “no problem” with James Maddison watching the PDC World Darts Championship at Alexandra Palace on the same day he could not start Tottenham Hotspur’s draw with Wolverhampton Wanderers because of illness.`\
 https://nytimes.com/athletic/6035704/2025/01/03/james-maddison-darts-tottenham-postecoglou/
