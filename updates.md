@@ -1,3 +1,7 @@
+**New Orleans Releases Most Names of Victims Killed in Attack**\
+`Those who died after a man drove a pickup through the French Quarter highlighted the diverse mix of people who are drawn to the city.`\
+https://nytimes.com/2025/01/03/us/new-orleans-victims-truck-attack.html
+
 **With Speaker Drama and Family Photos, New Congress Gets Off to a Wobbly Start**\
 `There was a first-day-of-school energy on Capitol Hill as members of Congress took their oaths and Speaker Mike Johnson fought for his job.`\
 https://nytimes.com/2025/01/03/us/politics/119th-congress-scene.html
