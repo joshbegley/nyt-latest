@@ -1,3 +1,15 @@
+**Alon Alexander Is Denied Bail in Sex Trafficking Case**\
+`Mr. Alexander’s brother, Oren Alexander, was granted a hearing extension by a judge in Miami. A third brother, Tal Alexander, was denied bail on related charges in December.`\
+https://nytimes.com/2025/01/03/realestate/alexander-brothers-hearing-miami.html
+
+**Treasury Dept. Hits Chinese Tech Company With Sanctions After Breach**\
+`The agency imposed penalties on a company it blamed for supporting the Chinese hacking group Flax Typhoon in a 2022-23 infiltration.`\
+https://nytimes.com/2025/01/03/us/politics/treasury-chinese-sanctions.html
+
+**Which Countries Warn That Alcohol May Cause Cancer?**\
+`A quarter of nations worldwide have health risk labels on alcohol. But only South Korea has a warning about liver cancer.`\
+https://nytimes.com/2025/01/03/world/alcohol-cancer-warnings-countries.html
+
 **Dodgers reach deal with Korean infielder Hyeseong Kim: sources**\
 `The Los Angeles Dodgers have an agreement in place with Korean infielder Hyeseong Kim, a league source told The Athletic shortly before his posting window from the Korean Baseball Organization’s Kiwoom Heroes was set to expire Friday afternoon.`\
 https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
