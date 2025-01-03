@@ -1,3 +1,11 @@
+**Palace's Hughes to miss Chelsea clash with foot injury**\
+`Crystal Palace will be without Will Hughes for Saturday’s Premier League match with Chelsea after the midfielder sustained an injury during Sunday’s 2-1 win over Southampton.`\
+https://nytimes.com/athletic/6035554/2025/01/03/will-hughes-injury-crystal-palace/
+
+**Chelsea's Fofana could miss rest of season with torn hamstring**\
+`Chelsea defender Wesley Fofana could miss the rest of the season with the hamstring injury he sustained in December head coach Enzo Maresca has confirmed.`\
+https://nytimes.com/athletic/6035480/2025/01/03/chelsea-wesley-fofana-hamstring-injury/
+
 **The speaker vote is a test of Trump’s influence.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-speaker-vote-is-a-test-of-trumps-influence
