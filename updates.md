@@ -1,3 +1,11 @@
+**Here’s how the process to pick a speaker works.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-house-is-set-to-choose-a-speaker-heres-how-the-process-works
+
+**Man United to trigger one-year option in Maguire contract**\
+`Manchester United are set to trigger the one-year option in Harry Maguire&#8217;s contract with the club &#8220;starving for leaders on the pitch&#8221; according to head coach Ruben Amorim.`\
+https://nytimes.com/athletic/6035495/2025/01/03/manchester-united-harry-maguire-contract-option/
+
 **Jets to interview Vrabel for head-coaching job: Source**\
 `Vrabel, 49, is considered the top coaching candidate available in this year's cycle.`\
 https://nytimes.com/athletic/6035457/2025/01/03/mike-vrabel-jets-head-coach-interview/

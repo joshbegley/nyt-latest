@@ -1,3 +1,11 @@
+**Here’s how the process to pick a speaker works.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-house-is-set-to-choose-a-speaker-heres-how-the-process-works
+
+**Man United to trigger one-year option in Maguire contract**\
+`Manchester United are set to trigger the one-year option in Harry Maguire&#8217;s contract with the club &#8220;starving for leaders on the pitch&#8221; according to head coach Ruben Amorim.`\
+https://nytimes.com/athletic/6035495/2025/01/03/manchester-united-harry-maguire-contract-option/
+
 **Jets to interview Vrabel for head-coaching job: Source**\
 `Vrabel, 49, is considered the top coaching candidate available in this year's cycle.`\
 https://nytimes.com/athletic/6035457/2025/01/03/mike-vrabel-jets-head-coach-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/world/asia/south-korea-president-yoon-arrest-fail
 **Row Z: Ronaldo and Mendes are recognised at last and Rooney's calendar calamity**\
 `Our weekly round-up of soccer's sillier side, featuring the oh-so prestigious Globe Soccer Awards — and Stoke City`\
 https://nytimes.com/athletic/6035272/2025/01/03/cristiano-ronaldo-jorge-mendes-wayne-rooney/
-
-**The Fallout From the End of the U.S. Steel Deal**\
-`Nippon Steel’s $14 billion takeover bid for the steelmaker appears doomed, with President Biden expected to reject it. Litigation and diplomatic turmoil could follow.`\
-https://nytimes.com/2025/01/03/business/dealbook/nippon-us-steel-biden.html
-
-**Fire Engulfs Eight-Story Building South of Seoul**\
-`Fire officials responded to the blaze Friday afternoon at a commercial building in Seongnam, Gyeonggi Province.`\
-https://nytimes.com/video/world/asia/100000009906391/fire-building-south-korea-seongnam-seoul.html
 
