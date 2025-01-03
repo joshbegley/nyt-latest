@@ -1,3 +1,11 @@
+**Biden Plans to Block Takeover Bid of U.S. Steel by Japan’s Nippon**\
+`The president’s announcement of the fate of the iconic Pennsylvania-based company, which became a contentious political issue in an election year, is expected as soon as Friday.`\
+https://nytimes.com/2025/01/03/us/politics/us-steel-nippon-biden.html
+
+**Why Levy, not Postecoglou, is feeling the snap of Spurs' winter of discontent**\
+`Spurs are on course for their worst season in 20 years, but it is not the head coach bearing the brunt of the fans' anger`\
+https://nytimes.com/athletic/6029357/2025/01/03/tottenham-atmosphere-fans-levy-postecoglou/
+
 **Baleba is highly-rated - Brighton's strength in depth means they can plan for an exit**\
 `Brighton have exceptional depth in midfield, which can only impact plans for Baleba`\
 https://nytimes.com/athletic/6021587/2025/01/03/brighton-carlos-baleba-transfer-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6031108/2025/01/03/why-manchester-united-cant-defen
 **Olmo affair has raised questions over Laporta's quick fixes - are Barcelona running out of road?**\
 `Barca are in a position where they cannot register Dani Olmo for the second half of the season - it speaks for wider issues at the club`\
 https://nytimes.com/athletic/6033285/2025/01/03/dani-olmo-barcelona-joan-laporta/
-
-**I Still Don’t Know Why I Said Yes**\
-`In the language of physics, we were a quantum entanglement event.`\
-https://nytimes.com/2025/01/03/style/modern-love-why-did-he-want-to-be-with-me.html
-
-**By the Fourth Date, Certain About Forever**\
-`Jasmine Bolton and Junior West, who met on the dating app Hinge, spent their fourth date at a friend’s wedding. The event sparked a desire for their own future nuptials.`\
-https://nytimes.com/2025/01/03/style/jasmine-bolton-junior-west-wedding.html
 
