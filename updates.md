@@ -1,3 +1,19 @@
+**Maple Leafs report cards: Strong individual performances, but weak team effort**\
+`Bobby McMann scored Toronto's only goals and Joseph Woll made quality saves, but despite the win, the overall team effort wasn't impressive.`\
+https://nytimes.com/athletic/6034851/2025/01/02/maple-leafs-islanders-bobby-mcmann-grades/
+
+**Canada loses in World Juniors quarters again while USA's top players shine**\
+`Team USA's top line finally had the explosive game they've been waiting for, while Czechia held on to send Canada packing.`\
+https://nytimes.com/athletic/6006898/2025/01/02/canada-world-juniors-usa-2025/
+
+**Houston Dash to appoint Fabrice Gautrat as head coach: Source**\
+`Houston hopes new coach Fabrice Gautrat will revive their fortunes`\
+https://nytimes.com/athletic/6034813/2025/01/02/houston-dash-fabrice-gautrat-nwsl/
+
+**Emerson: Georgia was not elite this season, but what about the future?**\
+`The Bulldogs lost 23-10 to Notre Dame in the Sugar Bowl, ending their season in the CFP quarterfinals. `\
+https://nytimes.com/athletic/6034843/2025/01/02/georgia-wasnt-elite-this-season-but-was-cfp-loss-a-sign-of-the-program-slipping/
+
 **Live Updates: South Korean Officials Move to Detain President Yoon Suk Yeol**\
 `Officials are locked in a standoff with the president’s security team as they try to bring him in for questioning about his declaration of martial law last month.`\
 https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol

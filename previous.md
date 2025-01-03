@@ -1,3 +1,19 @@
+**Maple Leafs report cards: Strong individual performances, but weak team effort**\
+`Bobby McMann scored Toronto's only goals and Joseph Woll made quality saves, but despite the win, the overall team effort wasn't impressive.`\
+https://nytimes.com/athletic/6034851/2025/01/02/maple-leafs-islanders-bobby-mcmann-grades/
+
+**Canada loses in World Juniors quarters again while USA's top players shine**\
+`Team USA's top line finally had the explosive game they've been waiting for, while Czechia held on to send Canada packing.`\
+https://nytimes.com/athletic/6006898/2025/01/02/canada-world-juniors-usa-2025/
+
+**Houston Dash to appoint Fabrice Gautrat as head coach: Source**\
+`Houston hopes new coach Fabrice Gautrat will revive their fortunes`\
+https://nytimes.com/athletic/6034813/2025/01/02/houston-dash-fabrice-gautrat-nwsl/
+
+**Emerson: Georgia was not elite this season, but what about the future?**\
+`The Bulldogs lost 23-10 to Notre Dame in the Sugar Bowl, ending their season in the CFP quarterfinals. `\
+https://nytimes.com/athletic/6034843/2025/01/02/georgia-wasnt-elite-this-season-but-was-cfp-loss-a-sign-of-the-program-slipping/
+
 **Marc-Andre Fleury, short-handed Wild pull off comeback shootout win: Takeaways**\
 `Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
 https://nytimes.com/athletic/6034635/2025/01/02/wild-fleury-shootout-ovechkin-capitals/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
 **Jets interview Ron Rivera for coaching job, Louis Riddick for GM role**\
 `The Jets previously announced interviews with Thomas Dimitroff, Jon Robinson and Jim Nagy for the GM role.`\
 https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-interviews/
-
-**Live Updates: South Korean Officials Move to Detain President Yoon Suk Yeol**\
-`Officials are locked in a standoff with the president’s security team as they try to bring him in for questioning about his declaration of martial law last month.`\
-https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol
-
-**Two Killed and 18 Injured in Southern California Plane Crash**\
-`A single-engine aircraft collided into a building near a small airport in Fullerton, Calif., prompting hundreds of people to evacuate, officials said.`\
-https://nytimes.com/2025/01/02/us/california-plane-crash.html
-
-**Orca That Carried Dead Calf for Weeks Is Mourning Again**\
-`Researchers say that the killer whale’s newborn calf in Puget Sound has also died and she’s unable to let go.`\
-https://nytimes.com/2025/01/02/us/mother-orca-tahlequah-calf-dead.html
-
-**Notre Dame vs. Penn State: Picks, odds for CFP semifinal at Orange Bowl with Irish favored**\
-`Notre Dame opened as a small favorite against Penn State for the CFP semifinal at the Orange Bowl.`\
-https://nytimes.com/athletic/6034358/2025/01/02/notre-dame-penn-state-picks-odds-college-football-playoff-orange-bowl/
 
