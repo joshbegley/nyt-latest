@@ -1,3 +1,11 @@
+**Ford and General Motors Report a Sales Surge, Especially for E.V.s**\
+`The two big automakers said 2024 sales were up by 4 percent thanks to big increases in the final quarter.`\
+https://nytimes.com/2025/01/03/business/ford-gm-vehicle-sales.html
+
+**Salah says 'last year' at Liverpool is fuelling title ambition**\
+`Mohamed Salah says he is getting extra motivation to win the Premier League from believing this is his “last year” at Liverpool and wanting to finally celebrate a title win with the club&#8217;s fans.`\
+https://nytimes.com/athletic/6035862/2025/01/03/mohamed-salah-liverpool-last-year/
+
 **If no speaker is chosen, Trump’s certification could be delayed.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-no-speaker-is-chosen-trumps-certification-could-be-delayed
@@ -28,13 +36,5 @@ https://nytimes.com/athletic/6035057/2025/01/03/week-14-fantasy-trends-and-hidde
 
 **Here are the possible G.O.P. holdouts to watch.**\
 `By Catie Edmondson`\
-https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/here-are-the-possible-gop-holdouts-to-watch
-
-**Liverpool reject Palace bid for Doak**\
-`Crystal Palace have had an offer worth £15million for Ben Doak rejected by Liverpool.`\
-https://nytimes.com/athletic/6035710/2025/01/03/ben-doak-crystal-palace-transfer-liverpool/
-
-**Awaiting Sentencing, Menendez Pleads for Leniency and Blames His Wife**\
-`As they did during his trial, lawyers for the former senator argued in a court filing that he had been led astray by his wife, Nadine Menendez.`\
-https://nytimes.com/2025/01/03/nyregion/robert-menendez-bribery-sentencing.html
+https://nytimes.com/2025/01/03/us/politics/gop-house-speaker-vote-holdouts.html
 
