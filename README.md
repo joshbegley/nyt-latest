@@ -1,3 +1,7 @@
+**Jets to interview Vrabel for head-coaching job: Source**\
+`Vrabel, 49, is considered the top coaching candidate available in this year's cycle.`\
+https://nytimes.com/athletic/6035457/2025/01/03/mike-vrabel-jets-head-coach-interview/
+
 **South Korea’s Political Drama Plays Out in a Day of Dueling Protests**\
 `A standoff between the impeached president’s security team and officials seeking to detain him was echoed on the streets outside the presidential residence.`\
 https://nytimes.com/2025/01/03/world/asia/south-korea-protest-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/business/dealbook/nippon-us-steel-biden.html
 **Fire Engulfs Eight-Story Building South of Seoul**\
 `Fire officials responded to the blaze Friday afternoon at a commercial building in Seongnam, Gyeonggi Province.`\
 https://nytimes.com/video/world/asia/100000009906391/fire-building-south-korea-seongnam-seoul.html
-
-**What's next for Pistons in the wake of Jaden Ivey's leg injury?**\
-`Malik Beasley and Ausar Thompson could see their roles increase. Detroit could also look to add at the trade deadline.`\
-https://nytimes.com/athletic/6035079/2025/01/03/jaden-ivey-injury-pistons-malik-beasley-ausar-thompson/
 
