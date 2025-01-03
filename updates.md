@@ -1,3 +1,11 @@
+**Bears' biggest disappointments, Ryan Poles choosing head coach, mailbag, Week 18 picks**\
+`Answering your questions about possible free-agent targets on the lines, the key to "culture" and Braxton Jones' future. `\
+https://nytimes.com/athletic/6034431/2025/01/03/bears-mailbag-ryan-poles-biggest-disappointments/
+
+**Pelicans trade tiers: There are 3 untouchables, and none of them are Zion Williamson**\
+`Ranking the Pelicans roster, from the guys who aren't going anywhere to the ones who could be moved to save money.`\
+https://nytimes.com/athletic/6034805/2025/01/03/pelicans-trade-tiers-zion-williamson-deadline/
+
 **Can the Vikings go into Detroit and snatch the No. 1 seed from the Lions?**\
 `Can the Minnesota defense keep Detroit's high-scoring offense in check with the NFC North title and the No. 1 seed on the line?`\
 https://nytimes.com/athletic/6034428/2025/01/03/vikings-lions-preview-predictions-playoffs-no-1-seed/
