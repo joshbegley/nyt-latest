@@ -1,3 +1,15 @@
+**House Republicans Pledge Drilling and Make It Easier to Shed Federal Land**\
+`The newly elected Speaker said the party would make it a priority to “restore America’s energy dominance.”`\
+https://nytimes.com/2025/01/03/climate/republicans-federal-land-drilling.html
+
+**Walker Buehler, poised for bounce-back year, adds veteran presence to Red Sox rotation**\
+`Buehler felt his mechanics click back into place towards the end of last season and feels ready for a rebound season with the Red Sox.`\
+https://nytimes.com/athletic/6036495/2025/01/03/walker-buehler-red-sox-introduction/
+
+**TikTok and Government Clash in Last Round of Supreme Court Briefs**\
+`The briefs, filed a week before oral arguments, offered sharply differing accounts of China’s influence over the site and the role of the First Amendment.`\
+https://nytimes.com/2025/01/03/us/politics/tiktok-ban-supreme-court.html
+
 **Justice Dept. Reaches Deal to Monitor Troubled Atlanta Jail**\
 `The facility in Fulton County, Georgia, has long had problems with assaults, drugs and pests.`\
 https://nytimes.com/2025/01/03/us/politics/justice-dept-fulton-county-jail.html
