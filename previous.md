@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-in
 `The authorities are seeking to compel the impeached leader to answer questions about his declaration of martial law, which plunged the country into a political crisis.`\
 https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol
 
-**Two Killed and 18 Injured in California Plane Crash**\
-`A single-engine aircraft crashed into a commercial building in Fullerton, Calif., and prompted an evacuation, officials said.`\
+**Two Killed and 18 Injured in Southern California Plane Crash**\
+`A single-engine aircraft collided into a building near a small airport in Fullerton, Calif., prompting hundreds of people to evacuate, officials said.`\
 https://nytimes.com/2025/01/02/us/california-plane-crash.html
 
 **Orca That Carried Dead Calf for Weeks Is Mourning Again**\

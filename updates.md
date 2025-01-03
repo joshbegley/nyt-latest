@@ -1,3 +1,7 @@
+**Two Killed and 18 Injured in Southern California Plane Crash**\
+`A single-engine aircraft collided into a building near a small airport in Fullerton, Calif., prompting hundreds of people to evacuate, officials said.`\
+https://nytimes.com/2025/01/02/us/california-plane-crash.html
+
 **Mandel's Final Thoughts: Rust Belt schools get their CFP revenge in quarterfinals**\
 `Texas, Penn State, Ohio State and Notre Dame advanced in the CFP after beating teams seeded higher than them in the quarterfinals.`\
 https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarterfinals-recap-mandel/
