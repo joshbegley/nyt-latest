@@ -1,3 +1,15 @@
+**If no speaker is chosen, Trump’s certification could be delayed.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-no-speaker-is-chosen-trumps-certification-could-be-delayed
+
+**South Korea Fails to Arrest Impeached President**\
+`Corruption investigators seeking to arrest President Yoon Suk Yeol at his official residence in Seoul were in a standoff with the Presidential Security Service that lasted hours.`\
+https://nytimes.com/video/world/asia/100000009906441/officials-fail-to-arrest-south-korean-president.html
+
+**Quarry Workers Find Dinosaur Footprints in ‘Snapshot’ of Jurassic Britain**\
+`The prints were made by both long-necked sauropods and a predator, megalosaurus, and were found in one of the largest discoveries in decades.`\
+https://nytimes.com/2025/01/03/world/europe/dinosaur-footprints-quarry-uk.html
+
 **Harper: 4 key questions about the Jimmy Butler trade chatter**\
 `Things are getting messy with Butler in Miami. What comes next?`\
 https://nytimes.com/athletic/6035701/2025/01/03/jimmy-butler-trade-rumors-heat/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6035710/2025/01/03/ben-doak-crystal-palace-transfer
 **Awaiting Sentencing, Menendez Pleads for Leniency and Blames His Wife**\
 `As they did during his trial, lawyers for the former senator argued in a court filing that he had been led astray by his wife, Nadine Menendez.`\
 https://nytimes.com/2025/01/03/nyregion/robert-menendez-bribery-sentencing.html
-
-**Fantasy football and reality align. Vikings should sign Sam Darnold, trade J.J. McCarthy**\
-`Michael Salfino lays out his reasoning for who the Minnesota Vikings should choose as their QB of the future and who they should trade away.`\
-https://nytimes.com/athletic/6034521/2025/01/03/fantasy-football-vikings-trade-sam-darnold-jj-mccarthy/
-
-**Ipswich close to completing Godfrey loan signing from Atalanta**\
-`Ipswich Town are close to completing the loan signing of defender Ben Godfrey from Atalanta.`\
-https://nytimes.com/athletic/6033110/2025/01/03/ben-godfrey-ipswich-loan/
-
-**Dorian Finney-Smith buys Lakers time and three other NBA trends that caught my eye**\
-`Plus, a Detroit connection, the boxout of the year (courtesy of the Knicks) and a reigning conference finalist is caught in the middle.`\
-https://nytimes.com/athletic/6035664/2025/01/03/dorian-finney-smith-lakers-cade-cunningham-pistons-nba-trends/
 

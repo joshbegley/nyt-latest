@@ -1,3 +1,15 @@
+**If no speaker is chosen, Trump’s certification could be delayed.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-no-speaker-is-chosen-trumps-certification-could-be-delayed
+
+**South Korea Fails to Arrest Impeached President**\
+`Corruption investigators seeking to arrest President Yoon Suk Yeol at his official residence in Seoul were in a standoff with the Presidential Security Service that lasted hours.`\
+https://nytimes.com/video/world/asia/100000009906441/officials-fail-to-arrest-south-korean-president.html
+
+**Quarry Workers Find Dinosaur Footprints in ‘Snapshot’ of Jurassic Britain**\
+`The prints were made by both long-necked sauropods and a predator, megalosaurus, and were found in one of the largest discoveries in decades.`\
+https://nytimes.com/2025/01/03/world/europe/dinosaur-footprints-quarry-uk.html
+
 **Harper: 4 key questions about the Jimmy Butler trade chatter**\
 `Things are getting messy with Butler in Miami. What comes next?`\
 https://nytimes.com/athletic/6035701/2025/01/03/jimmy-butler-trade-rumors-heat/
