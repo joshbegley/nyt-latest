@@ -1,3 +1,7 @@
+**Pelosi returns to Congress after hip surgery, without her signature stilettos.**\
+`By Annie Karni`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/pelosi-returns-to-congress-after-hip-surgery-without-her-signature-stilettos
+
 **West Virginia, Rodriguez bringing Noel Devine on staff as offensive analyst**\
 `Devine, who played four years at WVU, was one of the first high school football recruits to have his highlights go viral.`\
 https://nytimes.com/athletic/6036094/2025/01/03/west-virginia-hiring-noel-devine-richrod-staff/
