@@ -1,3 +1,7 @@
+**Fable, a Book App, Makes Changes After Offensive A.I. Messages**\
+`The company introduced safeguards after readers flagged “bigoted” language in an artificial intelligence feature that crafts summaries.`\
+https://nytimes.com/2025/01/03/us/fable-ai-books-racism.html
+
 **This Movie Is Not Just About My Family**\
 `If there’s one film that’s worth your precious time, it’s this one.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/real-pain-film-golden-globe
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/world/alcohol-cancer-warnings-countries.html
 **Hockey Canada brass stand by choices after second straight World Juniors 'disaster'**\
 `Canada's quarterfinal exit at the World Juniors boiled down to too many penalties and not enough goals.`\
 https://nytimes.com/athletic/6036168/2025/01/03/hockey-canada-world-juniors-2025/
-
-**Should a 13-Year-Old Be Pressured Into Having an Abortion?**\
-`The magazine’s Ethicist columnist on bodily autonomy and medical consent.`\
-https://nytimes.com/2025/01/03/magazine/adolescent-pregnancy-ethics.html
 
