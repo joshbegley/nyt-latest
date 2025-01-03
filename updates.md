@@ -1,3 +1,7 @@
+**Sabres blow multiple leads against Avalanche in another painful loss: Takeaways**\
+`Despite leads of 3-0, 4-2 and 5-3, the Sabres still found a way to lose. That's been the story of their season. "Just another painful loss."`\
+https://nytimes.com/athletic/6035110/2025/01/03/sabres-avalanche-blown-leads-takeaways/
+
 **Friday Briefing**\
 `The aftermath of a New Year’s attack in New Orleans.`\
 https://nytimes.com/2025/01/03/briefing/new-orleans-south-korea.html
