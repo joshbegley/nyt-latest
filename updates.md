@@ -1,3 +1,19 @@
+**Here are the possible G.O.P. holdouts to watch.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/here-are-the-possible-gop-holdouts-to-watch
+
+**Liverpool reject Palace bid for Doak**\
+`Crystal Palace have had an offer worth £15million for Ben Doak rejected by Liverpool.`\
+https://nytimes.com/athletic/6035710/2025/01/03/ben-doak-crystal-palace-transfer-liverpool/
+
+**Awaiting Sentencing, Menendez Pleads for Leniency and Blames His Wife**\
+`As they did during his trial, lawyers for the former senator argued in a court filing that he had been led astray by his wife, Nadine Menendez.`\
+https://nytimes.com/2025/01/03/nyregion/robert-menendez-bribery-sentencing.html
+
+**Fantasy football and reality align. Vikings should sign Sam Darnold, trade J.J. McCarthy**\
+`Michael Salfino lays out his reasoning for who the Minnesota Vikings should choose as their QB of the future and who they should trade away.`\
+https://nytimes.com/athletic/6034521/2025/01/03/fantasy-football-vikings-trade-sam-darnold-jj-mccarthy/
+
 **Ipswich close to completing Godfrey loan signing from Atalanta**\
 `Ipswich Town are close to completing the loan signing of defender Ben Godfrey from Atalanta.`\
 https://nytimes.com/athletic/6033110/2025/01/03/ben-godfrey-ipswich-loan/

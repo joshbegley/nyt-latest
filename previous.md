@@ -1,3 +1,19 @@
+**Here are the possible G.O.P. holdouts to watch.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/here-are-the-possible-gop-holdouts-to-watch
+
+**Liverpool reject Palace bid for Doak**\
+`Crystal Palace have had an offer worth £15million for Ben Doak rejected by Liverpool.`\
+https://nytimes.com/athletic/6035710/2025/01/03/ben-doak-crystal-palace-transfer-liverpool/
+
+**Awaiting Sentencing, Menendez Pleads for Leniency and Blames His Wife**\
+`As they did during his trial, lawyers for the former senator argued in a court filing that he had been led astray by his wife, Nadine Menendez.`\
+https://nytimes.com/2025/01/03/nyregion/robert-menendez-bribery-sentencing.html
+
+**Fantasy football and reality align. Vikings should sign Sam Darnold, trade J.J. McCarthy**\
+`Michael Salfino lays out his reasoning for who the Minnesota Vikings should choose as their QB of the future and who they should trade away.`\
+https://nytimes.com/athletic/6034521/2025/01/03/fantasy-football-vikings-trade-sam-darnold-jj-mccarthy/
+
 **Ipswich close to completing Godfrey loan signing from Atalanta**\
 `Ipswich Town are close to completing the loan signing of defender Ben Godfrey from Atalanta.`\
 https://nytimes.com/athletic/6033110/2025/01/03/ben-godfrey-ipswich-loan/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6035578/2025/01/03/brighton-transfer-vitor-reis/
 **DeBoer refines Alabama DC Kane Wommack's role, elevates Chuck Morrell**\
 `Wommack, who doubled as the inside linebackers coach, will only serve as a coordinator in 2025 overseeing the defense.`\
 https://nytimes.com/athletic/6035775/2025/01/03/alabama-defensive-staff-kalen-deboer-kane-wommack/
-
-**This Tiny Fish’s Mistaken Identity Halted a Dam’s Construction**\
-`Scientists say the snail darter, whose endangered species status delayed the building of a dam in Tennessee in the 1970s, is a genetic match of a different fish.`\
-https://nytimes.com/2025/01/03/science/snail-darter-fish-tellico-dam.html
-
-**Chicken Marbella, Hold the Chicken**\
-`Beans Marbella applies the same tangy, sharp flavors of the iconic chicken dish to creamy white beans, and it’s delicious.`\
-https://nytimes.com/2025/01/03/dining/chicken-marbella-hold-the-chicken.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include a killer in a Mickey Mouse mask and a thriller that goes to extremes.`\
-https://nytimes.com/2025/01/03/movies/horror-movies-streaming.html
-
-**Do You Believe in Life After Death? These Scientists Study It.**\
-`Is reincarnation real? Is communication from the “beyond” possible? A small set of academics are trying to find out, case by case.`\
-https://nytimes.com/2025/01/03/style/virginia-dops-reincarnation.html
 
