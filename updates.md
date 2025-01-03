@@ -1,3 +1,7 @@
+**Britt Allcroft, Who Brought Thomas the Tank Engine to TV, Dies at 81**\
+`She adapted the children’s book series to TV, creating a lasting cultural behemoth that spawned movies, merchandise and theme parks.`\
+https://nytimes.com/2025/01/03/arts/britt-allcroft-thomas-tank-engine-dead.html
+
 **Pelosi returns to Congress after hip surgery, without her signature stilettos.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/pelosi-returns-to-congress-after-hip-surgery-without-her-signature-stilettos

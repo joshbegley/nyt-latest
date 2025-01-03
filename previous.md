@@ -1,3 +1,7 @@
+**Britt Allcroft, Who Brought Thomas the Tank Engine to TV, Dies at 81**\
+`She adapted the children’s book series to TV, creating a lasting cultural behemoth that spawned movies, merchandise and theme parks.`\
+https://nytimes.com/2025/01/03/arts/britt-allcroft-thomas-tank-engine-dead.html
+
 **Pelosi returns to Congress after hip surgery, without her signature stilettos.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/pelosi-returns-to-congress-after-hip-surgery-without-her-signature-stilettos
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/books/david-lodge-dead.html
 **Lewis-Potter close to new long-term contract at Brentford**\
 `Keane Lewis-Potter is close to agreeing a new long-term contract with Brentford.`\
 https://nytimes.com/athletic/6036032/2025/01/03/brentford-lewis-potter-contract-new/
-
-**Bevo's back: Texas' live mascot to attend Cotton Bowl vs. Ohio State**\
-`Texas' live mascot, which weighs more than 1,700 pounds and has a horn span of more than 58 inches, is set to attend the CFP semifinal.`\
-https://nytimes.com/athletic/6035961/2025/01/03/bevo-texas-live-mascot-cotton-bowl-semifinal-ohio-state/
 
