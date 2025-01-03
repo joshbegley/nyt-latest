@@ -1,3 +1,7 @@
+**Security Heightened in D.C. After New Year’s Day Attacks**\
+`Metropolitan Police say they will be ready for upcoming events at the Capitol.`\
+https://nytimes.com/2025/01/03/us/politics/trump-inauguration-jimmy-carter-funeral-security.html
+
 **Mika Zibanejad tunes out trade 'noise,' says his focus is on Rangers**\
 `With his name surfacing in the rumor mill, the Rangers center is more focused on turning his team's season around and improving his play.`\
 https://nytimes.com/athletic/6036195/2025/01/03/mika-zibanejad-rangers-nhl-trade/

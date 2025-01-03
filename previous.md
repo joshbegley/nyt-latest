@@ -1,3 +1,7 @@
+**Security Heightened in D.C. After New Year’s Day Attacks**\
+`Metropolitan Police say they will be ready for upcoming events at the Capitol.`\
+https://nytimes.com/2025/01/03/us/politics/trump-inauguration-jimmy-carter-funeral-security.html
+
 **Mika Zibanejad tunes out trade 'noise,' says his focus is on Rangers**\
 `With his name surfacing in the rumor mill, the Rangers center is more focused on turning his team's season around and improving his play.`\
 https://nytimes.com/athletic/6036195/2025/01/03/mika-zibanejad-rangers-nhl-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035243/2025/01/03/christian-pulisic-injury-milan-s
 **Judge Upholds Trump’s Conviction but Signals No Jail Time**\
 `The New York judge who oversaw President-elect Donald J. Trump’s hush-money trial scheduled his sentencing for Jan. 10. Mr. Trump is expected to appeal his conviction.`\
 https://nytimes.com/2025/01/03/nyregion/trump-sentencing-hush-money-case-ny.html
-
-**Fable, a Book App, Makes Changes After Offensive A.I. Messages**\
-`The company introduced safeguards after readers flagged “bigoted” language in an artificial intelligence feature that crafts summaries.`\
-https://nytimes.com/2025/01/03/us/fable-ai-books-racism.html
 
