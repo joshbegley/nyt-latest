@@ -1,3 +1,8 @@
+**'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
+`The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
+`\
+https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
+
 **Maple Leafs report cards: Strong individual performances but weak team effort**\
 `Bobby McMann scored Toronto's only goals and Joseph Woll made quality saves, but despite the win, the overall team effort wasn't impressive.`\
 https://nytimes.com/athletic/6034851/2025/01/02/maple-leafs-islanders-bobby-mcmann-grades/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarter
 **Corrections: Jan. 3, 2025**\
 `Corrections that appeared in print on Friday, Jan. 3, 2025.`\
 https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
-
-**Jets interview Ron Rivera for coaching job, Louis Riddick for GM role**\
-`The Jets previously announced interviews with Thomas Dimitroff, Jon Robinson and Jim Nagy for the GM role.`\
-https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-interviews/
 
