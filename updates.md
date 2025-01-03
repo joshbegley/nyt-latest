@@ -1,3 +1,7 @@
+**European Ministers Visit Syria to Strengthen Ties With New Government**\
+`Germany and France’s top diplomats went to Damascus on behalf of the European Union. It’s the first such trip in years, and part of a flurry of Western outreach.`\
+https://nytimes.com/2025/01/03/world/middleeast/syria-damascus-visit-foreign-ministers.html
+
 **The Pulse: The first time in 31 years**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6034759/2025/01/03/notre-dame-cfp-georgia-jimmy-butler-the-pulse/
