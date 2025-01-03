@@ -1,3 +1,15 @@
+**Mika Zibanejad tunes out trade 'noise,' says his focus is on Rangers**\
+`With his name surfacing in the rumor mill, the Rangers center is more focused on turning his team's season around and improving his play.`\
+https://nytimes.com/athletic/6036195/2025/01/03/mika-zibanejad-rangers-nhl-trade/
+
+**Luke Littler, 17, becomes youngest darts world champion**\
+`Luke Littler, 17, defeated Michael van Gerwen 7&#8211;3 at Alexandra Palace, London, to win his first PDC World Darts Championship title.`\
+https://nytimes.com/athletic/6035252/2025/01/03/luke-littler-darts-world-champion/
+
+**Read the Ruling That Upholds Trump’s Criminal Conviction**\
+`The full text of Justice Juan M. Merchan’s decision.`\
+https://nytimes.com/interactive/2025/01/03/nyregion/people-v-djt-clayton-decision.html
+
 **Soldier Who Blew Up Tesla Had PTSD, Said U.S. Headed for ‘Collapse,’ Police Say**\
 `The police shared notes recovered from one of the phones of Master Sgt. Matthew Alan Livelsberger, who fatally shot himself inside the vehicle in Las Vegas.`\
 https://nytimes.com/2025/01/03/us/soldier-who-blew-up-tesla-had-ptsd-said-us-headed-for-collapse-police-say.html
