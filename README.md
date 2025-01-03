@@ -1,3 +1,7 @@
+**Baleba is highly-rated - Brighton's strength in depth means they can plan for an exit**\
+`Brighton have exceptional depth in midfield, which can only impact plans for Baleba`\
+https://nytimes.com/athletic/6021587/2025/01/03/brighton-carlos-baleba-transfer-analysis/
+
 **Organised crime, burners and cyber attacks: Inside Liverpool's fight with ticket touts**\
 `Illegal selling of tickets has become a multi-million pound industry in the digital age - but the fightback has started `\
 https://nytimes.com/athletic/6031174/2025/01/03/liverpool-tickets-touts-crime/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/style/modern-love-why-did-he-want-to-be-with-me.h
 **By the Fourth Date, Certain About Forever**\
 `Jasmine Bolton and Junior West, who met on the dating app Hinge, spent their fourth date at a friend’s wedding. The event sparked a desire for their own future nuptials.`\
 https://nytimes.com/2025/01/03/style/jasmine-bolton-junior-west-wedding.html
-
-**The Electron That Softened Her View on Marriage**\
-`Laurie Stone, a feminist and writer, has always believed that the institution of marriage “has not been a good thing for women.” Then she met Richard Toon.`\
-https://nytimes.com/2025/01/03/style/laurie-stone-richard-toon-wedding.html
 
