@@ -1,3 +1,15 @@
+**Organised crime, burners and cyber attacks: Inside Liverpool's fight with ticket touts**\
+`Illegal selling of tickets has become a multi-million pound industry in the digital age - but the fightback has started `\
+https://nytimes.com/athletic/6031174/2025/01/03/liverpool-tickets-touts-crime/
+
+**The making of Morgan Gibbs-White - from mischievous schoolboy to 'special' footballer**\
+`The Nottingham Forest star's biggest influences - from the scout who discovered him to his first PE teacher - share their memories`\
+https://nytimes.com/athletic/6024505/2025/01/03/morgan-gibbs-white-profile/
+
+**Celine Haidar, the Lebanon player struck by shrapnel, has loved ones ‘waiting for her to come back to life’**\
+`The 19-year-old's family and friends tell the story of the promising player who cannot move or speak after being caught up in the war`\
+https://nytimes.com/athletic/6026689/2025/01/03/celine-haidar-lebanon-football/
+
 **Nine-darters to golden sets: What's the most perfect achievement in sport?**\
 `Every sport has an individual achievement which is deemed the holy grail for competitors`\
 https://nytimes.com/athletic/6032894/2025/01/03/sport-perfect-thing/
