@@ -1,3 +1,11 @@
+**Impeached President Faces Down Detention Bid, Stoking South Korea’s Crisis**\
+`Blocked by bodyguards in an hourslong standoff, officials retreated without serving a court warrant to hold President Yoon Suk Yeol for questioning on insurrection charges.`\
+https://nytimes.com/2025/01/03/world/asia/south-korea-president-yoon-arrest-fail.html
+
+**Row Z: Ronaldo and Mendes are recognised at last and Rooney's calendar calamity**\
+`Our weekly round-up of soccer's sillier side, featuring the oh-so prestigious Globe Soccer Awards — and Stoke City`\
+https://nytimes.com/athletic/6035272/2025/01/03/cristiano-ronaldo-jorge-mendes-wayne-rooney/
+
 **The Fallout From the End of the U.S. Steel Deal**\
 `Nippon Steel’s $14 billion takeover bid for the steelmaker appears doomed, with President Biden expected to reject it. Litigation and diplomatic turmoil could follow.`\
 https://nytimes.com/2025/01/03/business/dealbook/nippon-us-steel-biden.html
