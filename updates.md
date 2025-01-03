@@ -1,3 +1,7 @@
+**Dodgers reach deal with Korean infielder Hyeseong Kim: sources**\
+`Kim is a second baseman who hit .326/.383/.458 with 11 home runs, 75 RBIs and 30 stolen bases last year in the KBO. `\
+https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
+
 **Alon Alexander Is Denied Bail in Sex Trafficking Case**\
 `Mr. Alexander’s brother, Oren Alexander, was granted a hearing extension by a judge in Miami. A third brother, Tal Alexander, was denied bail on related charges in December.`\
 https://nytimes.com/2025/01/03/realestate/alexander-brothers-hearing-miami.html

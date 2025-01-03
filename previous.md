@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/03/realestate/alexander-brothers-hearing-miami.html
 https://nytimes.com/2025/01/03/us/politics/treasury-chinese-sanctions.html
 
 **Dodgers reach deal with Korean infielder Hyeseong Kim: sources**\
-`The Los Angeles Dodgers have an agreement in place with Korean infielder Hyeseong Kim, a league source told The Athletic shortly before his posting window from the Korean Baseball Organization’s Kiwoom Heroes was set to expire Friday afternoon.`\
+`Kim is a second baseman who hit .326/.383/.458 with 11 home runs, 75 RBIs and 30 stolen bases last year in the KBO. `\
 https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
 
 **Which Countries Warn That Alcohol May Cause Cancer?**\
