@@ -1,3 +1,7 @@
+**Here are the possible G.O.P. holdouts to watch.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/here-are-the-possible-gop-holdouts-to-watch
+
 **Liverpool reject Palace bid for Doak**\
 `Crystal Palace have had an offer worth £15million for Ben Doak rejected by Liverpool.`\
 https://nytimes.com/athletic/6035710/2025/01/03/ben-doak-crystal-palace-transfer-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035578/2025/01/03/brighton-transfer-vitor-reis/
 **DeBoer refines Alabama DC Kane Wommack's role, elevates Chuck Morrell**\
 `Wommack, who doubled as the inside linebackers coach, will only serve as a coordinator in 2025 overseeing the defense.`\
 https://nytimes.com/athletic/6035775/2025/01/03/alabama-defensive-staff-kalen-deboer-kane-wommack/
-
-**This Tiny Fish’s Mistaken Identity Halted a Dam’s Construction**\
-`Scientists say the snail darter, whose endangered species status delayed the building of a dam in Tennessee in the 1970s, is a genetic match of a different fish.`\
-https://nytimes.com/2025/01/03/science/snail-darter-fish-tellico-dam.html
 
