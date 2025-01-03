@@ -1,3 +1,7 @@
+**College football national title odds: Ohio State nearly an even-money favorite**\
+`Ohio State is the clear favorite to win the national title and has looked the part in two Playoff games. Will the Buckeyes get the job done?`\
+https://nytimes.com/athletic/6036092/2025/01/03/college-football-national-title-odds-ohio-state/
+
 **Read the Report on Security in New Orleans**\
 `These are pages from a 2019 security assessment of the French Quarter in New Orleans. The report makes a number of recommendations regarding policing and physical security.`\
 https://nytimes.com/interactive/2025/01/03/us/new-orleans-security-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035983/2025/01/03/anthony-richardson-out-colts-sea
 **Elon Musk Has a Strange Fixation With Trolling Britain**\
 `In a barrage of posts rife with misinformation, he revived questions about a child sex abuse scandal, vilified the prime minister and defended a jailed far-right agitator.`\
 https://nytimes.com/2025/01/03/world/europe/elon-musk-britain-social-media.html
-
-**Steph Curry on Steve Kerr's trimmed rotation: 'Narrowing ... (it) helps everybody'**\
-`At 17-16, the Warriors are still searching for some traction. But Steve Kerr's desire for a smaller rotation has reaped some benefits.`\
-https://nytimes.com/athletic/6035103/2025/01/03/steph-curry-steve-kerr-warriors-rotation/
 
