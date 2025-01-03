@@ -1,3 +1,15 @@
+**Ipswich close to completing Godfrey loan signing from Atalanta**\
+`Ipswich Town are close to completing the loan signing of defender Ben Godfrey from Atalanta.`\
+https://nytimes.com/athletic/6033110/2025/01/03/ben-godfrey-ipswich-loan/
+
+**Dorian Finney-Smith buys Lakers time and three other NBA trends that caught my eye**\
+`Plus, a Detroit connection, the boxout of the year (courtesy of the Knicks) and a reigning conference finalist is caught in the middle.`\
+https://nytimes.com/athletic/6035664/2025/01/03/dorian-finney-smith-lakers-cade-cunningham-pistons-nba-trends/
+
+**Sporting director Berta to leave Atletico, prepare for possible Premier League move**\
+`Sporting director Andrea Berta will prepare for a possible move to the Premier League by studying English in London when he leaves Atletico Madrid.`\
+https://nytimes.com/athletic/5922826/2025/01/03/atletico-madrid-sporting-director-who/
+
 **Why nobody can stop this version of Ohio State: Final thoughts from the Rose Bowl**\
 `After all the Michigan angst, Ohio State is suddenly doing everything right in the Playoff. Here's why the Buckeyes are peaking now.`\
 https://nytimes.com/athletic/6035667/2025/01/03/ohio-state-oregon-rose-bowl-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/03/movies/horror-movies-streaming.html
 **Do You Believe in Life After Death? These Scientists Study It.**\
 `Is reincarnation real? Is communication from the “beyond” possible? A small set of academics are trying to find out, case by case.`\
 https://nytimes.com/2025/01/03/style/virginia-dops-reincarnation.html
-
-**The Fitness Trends That Experts Hate**\
-`If you want to get fitter this year, here’s what to focus on instead.`\
-https://nytimes.com/2025/01/03/well/move/fitness-trends-tiktok-instagram.html
-
-**Anthony Edwards' frustration is rising as the Timberwolves search for answers**\
-`It requires patience and perspective, and that is not always easy for a player as young and ambitious as Edwards.`\
-https://nytimes.com/athletic/6034568/2025/01/03/anthony-edwards-frustration-timberwolves-search-answers/
-
-**New Orleans Was Called Resilient After Attack. It Didn’t Need the Reminder.**\
-`The city was seeing glimmers of optimism for what the new year might bring before the horrendous attack on the French Quarter.`\
-https://nytimes.com/2025/01/03/us/new-orleans-attack-recovery.html
 
