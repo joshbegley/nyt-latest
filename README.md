@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Speaker Johnson Faces Crucial Vote**\
+`Mike Johnson has President-elect Donald J. Trump’s support to retain his role but only a razor-thin margin — and several Republican votes remain in question.`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump
+
 **Impeached President Faces Down Detention Bid, Stoking South Korea’s Crisis**\
 `Blocked by bodyguards in an hourslong standoff, officials retreated without serving a court warrant to hold President Yoon Suk Yeol for questioning on insurrection charges.`\
 https://nytimes.com/2025/01/03/world/asia/south-korea-president-yoon-arrest-fail.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032684/2025/01/03/edmonton-oilers-trade-glen-sathe
 **Live Q&A: FPL Gameweek 20 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 20 Q&A between 4pm and 5pm UK time `\
 https://nytimes.com/athletic/6033245/2025/01/03/fantasy-premier-league-advice-gw20-tips/
-
-**What I'm seeing with the Broncos ahead of their biggest game in 9 years**\
-`The team's Pro Bowl results were a nod to George Paton's drafting acumen while also illustrating the need for more offensive talent.`\
-https://nytimes.com/athletic/6024541/2025/01/03/broncos-playoff-hopes-chiefs/
 
