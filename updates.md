@@ -1,3 +1,11 @@
+**How Canucks hung on to defeat Kraken in shootout: 3 takeaways**\
+`A lot was stacked against the Canucks on Thursday night in Seattle, but they came away with a victory.`\
+https://nytimes.com/athletic/6035046/2025/01/03/canucks-kraken-shootout-thatcher-demko-jt-miller/
+
+**Plane Crashes Into Furniture Factory in California**\
+`The small aircraft burst into flames after hitting a sprawling furniture manufacturing facility in Fullerton, Calif.`\
+https://nytimes.com/video/us/100000009906271/california-plane-crash.html
+
 **Sabres blow multiple leads against Avalanche in another painful loss: Takeaways**\
 `Despite leads of 3-0, 4-2 and 5-3, the Sabres still found a way to lose. That's been the story of their season. "Just another painful loss."`\
 https://nytimes.com/athletic/6035110/2025/01/03/sabres-avalanche-blown-leads-takeaways/
