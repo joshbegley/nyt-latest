@@ -1,3 +1,11 @@
+**Michael Penix Jr.'s production hasn't been great, but Falcons believe his poise bodes well**\
+`Falcons coach Raheem Morris says he's seen enough from Penix to know he's the right guy.`\
+https://nytimes.com/athletic/6033998/2025/01/03/falcons-michael-penix-jr-future/
+
+**Botman in line for Newcastle return after 10-month injury absence**\
+`Sven Botman is in line to return to Newcastle United&#8217;s squad for the first time since March — and Eddie Howe insists the Dutchman is even &#8220;in and around my thoughts&#8221; to start.`\
+https://nytimes.com/athletic/6035276/2025/01/03/sven-botman-newcastle-return/
+
 **Four things I'm watching as Panthers prepare for an important offseason**\
 `What happens with the defensive staff? What can GM Dan Morgan do to get Bryce Young and company more help?`\
 https://nytimes.com/athletic/6034370/2025/01/03/panthers-offseason-decisions-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/arts/television/nikki-glaser-golden-globes-host.h
 **A Long Fight to Keep a Closer Eye on Madrasas Unravels in Pakistan**\
 `In a deal with Islamist parties, Pakistan is abandoning a requirement that religious seminaries, long seen by Western officials as a potential threat, register with the government.`\
 https://nytimes.com/2025/01/03/world/asia/pakistan-madrasas.html
-
-**Vivek Ramaswamy Leaves Something Out of His Story of South Asian Success**\
-`It’s a culture not of success but of survival.`\
-https://nytimes.com/2025/01/03/opinion/vivek-ramaswamy-immigrants.html
-
-**Could Monkeys Really Type All of Shakespeare?**\
-`Not in this universe, a new study concludes.`\
-https://nytimes.com/2025/01/03/science/monkeys-typewriter-shakespeare.html
 
