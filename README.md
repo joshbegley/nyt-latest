@@ -1,3 +1,7 @@
+**Bevo's back: Texas' live mascot to attend Cotton Bowl vs. Ohio State**\
+`Texas' live mascot, which weighs more than 1,700 pounds and has a horn span of more than 58 inches, is set to attend the CFP semifinal.`\
+https://nytimes.com/athletic/6035961/2025/01/03/bevo-texas-live-mascot-cotton-bowl-semifinal-ohio-state/
+
 **Heat Today: How did Jimmy Butler, Pat Riley and Miami reach this point?**\
 `Butler and Riley once shared dreams of winning a championship together in South Florida. How did things get this bad?`\
 https://nytimes.com/athletic/6035886/2025/01/03/jimmy-butler-pat-riley-heat-trade-rockets-warriors-mavericks-suns-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-no-sp
 **South Korea Fails to Arrest Impeached President**\
 `Corruption investigators seeking to arrest President Yoon Suk Yeol at his official residence in Seoul were in a standoff with the Presidential Security Service that lasted hours.`\
 https://nytimes.com/video/world/asia/100000009906441/officials-fail-to-arrest-south-korean-president.html
-
-**Quarry Workers Find Dinosaur Footprints in ‘Snapshot’ of Jurassic Britain**\
-`The prints were made by both long-necked sauropods and a predator, megalosaurus, and were found in one of the largest discoveries in decades.`\
-https://nytimes.com/2025/01/03/world/europe/dinosaur-footprints-quarry-uk.html
 
