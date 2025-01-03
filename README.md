@@ -1,3 +1,15 @@
+**Soldier Who Blew Up Tesla Had PTSD, Said U.S. Headed for ‘Collapse,’ Police Say**\
+`The police shared notes recovered from one of the phones of Master Sgt. Matthew Alan Livelsberger, who fatally shot himself inside the vehicle in Las Vegas.`\
+https://nytimes.com/2025/01/03/us/soldier-who-blew-up-tesla-had-ptsd-said-us-headed-for-collapse-police-say.html
+
+**Luke Littler, 17, becomes youngest-ever darts world champion**\
+`Luke Littler, 17, defeated Michael van Gerwen 7&#8211;3 at Alexandra Palace, London, to win his first PDC World Darts Championship title.`\
+https://nytimes.com/athletic/6035252/2025/01/03/luke-littler-darts-world-champion/
+
+**Read the document**\
+`The full text of Justice Juan M. Merchan’s decision in President-elect Donald J. Trump’s criminal conviction.`\
+https://nytimes.com/interactive/2025/01/03/nyregion/people-v-djt-clayton-decision.html
+
 **Wolves hopeful of completing Agbadou signing from Reims**\
 `Wolverhampton Wanderers are hopeful of completing the signing of Stade de Reims centre-back Emmanuel Agbadou.`\
 https://nytimes.com/athletic/6036290/2025/01/03/wolves-hopeful-of-completing-emmanuel-agbadou-signing-from-reims/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/03/us/fable-ai-books-racism.html
 **This Movie Is Not Just About My Family**\
 `If there’s one film that’s worth your precious time, it’s this one.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/real-pain-film-golden-globe
-
-**Notre Dame vs. Penn State: Picks, odds for CFP semifinal at Orange Bowl with Irish favored**\
-`Notre Dame opened as a small favorite against Penn State for the CFP semifinal at the Orange Bowl.`\
-https://nytimes.com/athletic/6034358/2025/01/03/notre-dame-penn-state-picks-odds-college-football-playoff-orange-bowl/
-
-**Platonic Romances and A.I. Clones: 2025 Dating Predictions**\
-`Ten experts share what they think will happen in the world of dating, relationships and romance in the new year.`\
-https://nytimes.com/2025/01/03/style/dating-predictions.html
-
-**Charles Shyer, Filmmaker Who Focused on Women, Dies at 83**\
-`His long collaboration with Nancy Meyers produced a string of hit movies, including “Baby Boom” and “Father of the Bride,” that spoke to the moment.`\
-https://nytimes.com/2025/01/03/movies/charles-shyer-dead.html
 
