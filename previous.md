@@ -1,3 +1,7 @@
+**How Nikola Jokić channeled Larry Bird to become even more dominant**\
+`Jokić felt something was wrong with his shooting mechanics and wanted to fix it. Now he's playing at maybe his highest level ever.`\
+https://nytimes.com/athletic/6028410/2025/01/03/nikola-jokic-shooting-nuggets-nba-larry-bird/
+
 **When History Rhymes**\
 `We cover the surprising parallels between Donald Trump and a president from the past.`\
 https://nytimes.com/2025/01/03/briefing/donald-trump-grover-cleveland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025977/2025/01/03/victory-wembanyama-spurs-nba-100
 **Inside Mike Vrabel’s year off: His season with the Browns and what he wants next**\
 `The former Titans coach spent the 2024 season preparing for his next opportunity.`\
 https://nytimes.com/athletic/6034054/2025/01/03/mike-vrabel-nfl-coaching-browns-year-off/
-
-**Dach family reunion at center ice: Colton's NHL debut comes against brother Kirby**\
-`The Dachs have faced a lot of ups and downs over recent years, but sharing NHL ice for the first time will be "definitely memorable."`\
-https://nytimes.com/athletic/6034317/2025/01/03/colton-dach-kirby-brothers-debut-blackhawks-canadiens/
 

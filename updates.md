@@ -1,3 +1,7 @@
+**How Nikola Jokić channeled Larry Bird to become even more dominant**\
+`Jokić felt something was wrong with his shooting mechanics and wanted to fix it. Now he's playing at maybe his highest level ever.`\
+https://nytimes.com/athletic/6028410/2025/01/03/nikola-jokic-shooting-nuggets-nba-larry-bird/
+
 **When History Rhymes**\
 `We cover the surprising parallels between Donald Trump and a president from the past.`\
 https://nytimes.com/2025/01/03/briefing/donald-trump-grover-cleveland.html
