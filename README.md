@@ -1,3 +1,11 @@
+**Justice Dept. Reaches Deal to Monitor Atlanta Jail**\
+`The facility in Fulton County, Georgia, has long had problems with assaults, drugs and pests.`\
+https://nytimes.com/2025/01/03/us/politics/justice-dept-fulton-county-jail.html
+
+**How Much Alcohol Does It Take to Raise Your Cancer Risk?**\
+`The surgeon general cautioned the public on Friday that even light or moderate drinking is harmful.`\
+https://nytimes.com/2025/01/03/well/alcohol-cancer-risk.html
+
 **Postecoglou has 'no problem' with Maddison's darts trip**\
 `Ange Postecoglou says he has “no problem” with James Maddison watching the PDC World Darts Championship at Alexandra Palace on the same day he could not start Tottenham Hotspur’s draw with Wolverhampton Wanderers because of illness.`\
 https://nytimes.com/athletic/6035704/2025/01/03/james-maddison-darts-tottenham-postecoglou/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/us/politics/trump-inauguration-jimmy-carter-funer
 **Mika Zibanejad tunes out trade 'noise,' says his focus is on Rangers**\
 `With his name surfacing in the rumor mill, the Rangers center is more focused on turning his team's season around and improving his play.`\
 https://nytimes.com/athletic/6036195/2025/01/03/mika-zibanejad-rangers-nhl-trade/
-
-**Soldier Who Blew Up Tesla Had PTSD, Said U.S. Headed for ‘Collapse,’ Police Say**\
-`The police shared notes recovered from one of the phones of Master Sgt. Matthew Alan Livelsberger, who fatally shot himself inside the vehicle in Las Vegas.`\
-https://nytimes.com/2025/01/03/us/las-vegas-tesla-explosion-soldier-ptsd-notes.html
-
-**Luke Littler, 17, becomes youngest darts world champion**\
-`Luke Littler, 17, defeated Michael van Gerwen 7&#8211;3 at Alexandra Palace, London, to win his first PDC World Darts Championship title.`\
-https://nytimes.com/athletic/6035252/2025/01/03/luke-littler-darts-world-champion/
 
