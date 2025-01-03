@@ -1,3 +1,15 @@
+**The Pulse: The first time in 31 years**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6034759/2025/01/03/notre-dame-cfp-georgia-jimmy-butler-the-pulse/
+
+**European Ministers Visit Syria to Strengthen Ties With New Government**\
+`Germany and France’s top diplomats went to Damascus on behalf on the European Union. It’s the first such trip in years, and part of a flurry of Western outreach.`\
+https://nytimes.com/2025/01/03/world/middleeast/syria-damascus-visit-foreign-ministers.html
+
+**Browns end-of-season checklist: What's at stake in finale, and what to expect in 2025**\
+`How will the outcome vs. Baltimore affect Cleveland's draft positioning? And what are some big decisions the team will have to make soon?`\
+https://nytimes.com/athletic/6034381/2025/01/03/browns-season-finale-checklist-2025/
+
 **Boise State's Ashton Jeanty took full advantage of stage provided by 12-team Playoff**\
 `A special player significantly raised the level of his team, making the most of every eyeball and opportunity that came with it.`\
 https://nytimes.com/athletic/6033438/2025/01/03/ashton-jeanty-boise-state-cfp-season/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6034805/2025/01/03/pelicans-trade-tiers-zion-willia
 **Can the Vikings go into Detroit and snatch the No. 1 seed from the Lions?**\
 `Can the Minnesota defense keep Detroit's high-scoring offense in check with the NFC North title and the No. 1 seed on the line?`\
 https://nytimes.com/athletic/6034428/2025/01/03/vikings-lions-preview-predictions-playoffs-no-1-seed/
-
-**Yohe: The Penguins still suffer from letting Evan Rodrigues walk**\
-`The Penguins certainly could use Evan Rodrigues' services these days. `\
-https://nytimes.com/athletic/6032712/2025/01/03/penguins-evan-rodrigues/
-
-**How Chargers GM Joe Hortiz's moves make his case for Executive of the Year**\
-`From value signings to nailing the draft and building depth, here's how the first-year GM has shaped L.A.'s playoff-bound roster.`\
-https://nytimes.com/athletic/6034244/2025/01/03/joe-hortiz-chargers-gm-top-executive-case/
-
-**Should Seahawks' Ryan Grubb be in the crosshairs? Assessing Seattle OC's first year**\
-`O-line issues and the lack of a clear offensive identity led to an underwhelming season for Seattle's first-year play caller.`\
-https://nytimes.com/athletic/6034557/2025/01/03/seahawks-offense-assessing-ryan-grubb-year-one/
 

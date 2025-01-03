@@ -1,3 +1,15 @@
+**The Pulse: The first time in 31 years**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6034759/2025/01/03/notre-dame-cfp-georgia-jimmy-butler-the-pulse/
+
+**European Ministers Visit Syria to Strengthen Ties With New Government**\
+`Germany and France’s top diplomats went to Damascus on behalf on the European Union. It’s the first such trip in years, and part of a flurry of Western outreach.`\
+https://nytimes.com/2025/01/03/world/middleeast/syria-damascus-visit-foreign-ministers.html
+
+**Browns end-of-season checklist: What's at stake in finale, and what to expect in 2025**\
+`How will the outcome vs. Baltimore affect Cleveland's draft positioning? And what are some big decisions the team will have to make soon?`\
+https://nytimes.com/athletic/6034381/2025/01/03/browns-season-finale-checklist-2025/
+
 **Boise State's Ashton Jeanty took full advantage of stage provided by 12-team Playoff**\
 `A special player significantly raised the level of his team, making the most of every eyeball and opportunity that came with it.`\
 https://nytimes.com/athletic/6033438/2025/01/03/ashton-jeanty-boise-state-cfp-season/
