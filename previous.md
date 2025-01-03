@@ -1,3 +1,23 @@
+**Heat Today: How did Jimmy Butler, Pat Riley and Miami reach this point?**\
+`Butler and Riley once shared dreams of winning a championship together in South Florida. How did things get this bad?`\
+https://nytimes.com/athletic/6035886/2025/01/03/jimmy-butler-pat-riley-heat-trade-rockets-warriors-mavericks-suns-nba/
+
+**Should Democrats Try to Work With Trump?**\
+`Responses to a column by Jamelle Bouie. Also: Trade with China; rising autism rates; in awe of Schubert; games as a common bond; Local Call’s work.`\
+https://nytimes.com/2025/01/03/opinion/letters/democrats-trump.html
+
+**PGA Tour may change Tour Championship to bracket-style event: Sources**\
+`Advanced discussions are happening with the possibility for changes as soon as this year's Tour Championship.`\
+https://nytimes.com/athletic/6035751/2025/01/03/pga-tour-tour-championship-bracket-golf/
+
+**Plea Hearing in Sept. 11 Case Postponed to Jan. 10**\
+`A judge cited winter weather and a federal holiday for Jimmy Carter’s funeral as reasons for the delay. Government lawyers may also try again to overturn the plea deal.`\
+https://nytimes.com/2025/01/03/us/politics/plea-deal-sept-11-postponed.html
+
+**Live Vote Count: Tracking the House Speaker Votes**\
+`Follow the House speaker vote as Representative Mike Johnson seeks re-election.`\
+https://nytimes.com/interactive/2025/01/03/us/house-speaker-vote.html
+
 **Ford and General Motors Report a Sales Surge, Especially for E.V.s**\
 `The two big automakers said 2024 sales were up by 4 percent thanks to big increases in the final quarter.`\
 https://nytimes.com/2025/01/03/business/ford-gm-vehicle-sales.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/world/asia/100000009906441/officials-fail-to-arrest-so
 **Quarry Workers Find Dinosaur Footprints in ‘Snapshot’ of Jurassic Britain**\
 `The prints were made by both long-necked sauropods and a predator, megalosaurus, and were found in one of the largest discoveries in decades.`\
 https://nytimes.com/2025/01/03/world/europe/dinosaur-footprints-quarry-uk.html
-
-**Harper: 4 key questions about the Jimmy Butler trade chatter**\
-`Things are getting messy with Butler in Miami. What comes next?`\
-https://nytimes.com/athletic/6035701/2025/01/03/jimmy-butler-trade-rumors-heat/
-
-**The officiating blunder your club's fans are still going on about**\
-`From European scandals to cup final disappointments, we look back on decisions by officials that left a lasting impact of fanbases.`\
-https://nytimes.com/athletic/6032908/2025/01/03/referee-decisions-you-cannot-forget/
-
-**Maple Leafs sign Philippe Myers to 2-year contract extension**\
-`Toronto locks up the defenceman for two additional seasons on deal that carries $850,000 AAV.`\
-https://nytimes.com/athletic/6035887/2025/01/03/maple-leafs-philippe-myers-contract-nhl/
-
-**Fantasy trends and hidden gems: Manifesting championships with Thompson and Byfield**\
-`Shayna Goldman says to buy Logan Thompson while you still can. Quinton Byfield offers versatility with Kings; his slow start has ended. `\
-https://nytimes.com/athletic/6035057/2025/01/03/week-14-fantasy-trends-and-hidden-gems/
-
-**These Are the Possible GOP Holdouts in the House Speaker Vote**\
-`Only one Republican representative has confirmed that he will oppose Mike Johnson’s return as House speaker, but a few other conservatives have remained undecided.`\
-https://nytimes.com/2025/01/03/us/politics/gop-house-speaker-vote-holdouts.html
 

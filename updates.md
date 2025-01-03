@@ -1,3 +1,23 @@
+**Heat Today: How did Jimmy Butler, Pat Riley and Miami reach this point?**\
+`Butler and Riley once shared dreams of winning a championship together in South Florida. How did things get this bad?`\
+https://nytimes.com/athletic/6035886/2025/01/03/jimmy-butler-pat-riley-heat-trade-rockets-warriors-mavericks-suns-nba/
+
+**Should Democrats Try to Work With Trump?**\
+`Responses to a column by Jamelle Bouie. Also: Trade with China; rising autism rates; in awe of Schubert; games as a common bond; Local Call’s work.`\
+https://nytimes.com/2025/01/03/opinion/letters/democrats-trump.html
+
+**PGA Tour may change Tour Championship to bracket-style event: Sources**\
+`Advanced discussions are happening with the possibility for changes as soon as this year's Tour Championship.`\
+https://nytimes.com/athletic/6035751/2025/01/03/pga-tour-tour-championship-bracket-golf/
+
+**Plea Hearing in Sept. 11 Case Postponed to Jan. 10**\
+`A judge cited winter weather and a federal holiday for Jimmy Carter’s funeral as reasons for the delay. Government lawyers may also try again to overturn the plea deal.`\
+https://nytimes.com/2025/01/03/us/politics/plea-deal-sept-11-postponed.html
+
+**Live Vote Count: Tracking the House Speaker Votes**\
+`Follow the House speaker vote as Representative Mike Johnson seeks re-election.`\
+https://nytimes.com/interactive/2025/01/03/us/house-speaker-vote.html
+
 **These Are the Possible GOP Holdouts in the House Speaker Vote**\
 `Only one Republican representative has confirmed that he will oppose Mike Johnson’s return as House speaker, but a few other conservatives have remained undecided.`\
 https://nytimes.com/2025/01/03/us/politics/gop-house-speaker-vote-holdouts.html
