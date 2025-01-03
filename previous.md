@@ -1,4 +1,4 @@
-**Johnson Is Re-Elected as House Speaker**\
+**Johnson Is Re-elected as House Speaker**\
 `After two last-minute vote changes by Republican holdouts, Representative Mike Johnson of Louisiana secured a majority of votes.`\
 https://nytimes.com/video/us/politics/100000009907397/mike-johnson-speaker-reelection.html
 
@@ -7,7 +7,7 @@ https://nytimes.com/video/us/politics/100000009907397/mike-johnson-speaker-reele
 https://nytimes.com/athletic/6035243/2025/01/03/christian-pulisic-injury-milan-super-cup/
 
 **Judge Upholds Trump’s Conviction but Signals No Jail Time**\
-`The New York judge who oversaw President-elect Donald J. Trump’s hush-money trial scheduled his sentencing for Jan. 10. Mr. Trump is expected to appeal.`\
+`The New York judge who oversaw President-elect Donald J. Trump’s hush-money trial scheduled his sentencing for Jan. 10. Mr. Trump is expected to appeal his conviction.`\
 https://nytimes.com/2025/01/03/nyregion/trump-sentencing-hush-money-case-ny.html
 
 **Fable, a Book App, Makes Changes After Offensive A.I. Messages**\
