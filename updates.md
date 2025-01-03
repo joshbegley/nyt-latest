@@ -1,3 +1,7 @@
+**Derrick White energized, Jayson Tatum asks for Anthony Edwards in Celtics win**\
+`After an unusually turbulent December, Boston sure did seem to enjoy finding ways to overcome a sharp performance from Minnesota.`\
+https://nytimes.com/athletic/6035169/2025/01/03/derrick-white-jayson-tatum-anthony-edwards-celtics-win/
+
 **Word of the Day: neologism**\
 `This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/03/learning/word-of-the-day-neologism.html
