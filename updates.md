@@ -1,3 +1,7 @@
+**This Movie Is Not Just About My Family**\
+`If there’s one film that’s worth your precious time, it’s this one.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/real-pain-film-golden-globe
+
 **Notre Dame vs. Penn State: Picks, odds for CFP semifinal at Orange Bowl with Irish favored**\
 `Notre Dame opened as a small favorite against Penn State for the CFP semifinal at the Orange Bowl.`\
 https://nytimes.com/athletic/6034358/2025/01/03/notre-dame-penn-state-picks-odds-college-football-playoff-orange-bowl/
