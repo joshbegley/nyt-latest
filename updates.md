@@ -1,3 +1,7 @@
+**Jets interview Ron Rivera for coaching job, Louis Riddick for GM role**\
+`The Jets previously announced interviews with Thomas Dimitroff, Jon Robinson and Jim Nagy for the GM role.`\
+https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-interviews/
+
 **Live Updates: South Korean Officials Move to Detain President Yoon Suk Yeol**\
 `The authorities are seeking to compel the impeached leader to answer questions about his declaration of martial law, which plunged the country into a political crisis.`\
 https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol

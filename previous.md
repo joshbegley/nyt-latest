@@ -1,3 +1,7 @@
+**Jets interview Ron Rivera for coaching job, Louis Riddick for GM role**\
+`The Jets previously announced interviews with Thomas Dimitroff, Jon Robinson and Jim Nagy for the GM role.`\
+https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-interviews/
+
 **Live Updates: South Korean Officials Move to Detain President Yoon Suk Yeol**\
 `The authorities are seeking to compel the impeached leader to answer questions about his declaration of martial law, which plunged the country into a political crisis.`\
 https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6034510/2025/01/02/notre-dame-georgia-sugar-bowl-ne
 **Jauan Jennings needs 77 yards for first 1,000-yard season. Good thing he's buds with 49ers QB**\
 `Joshua Dobbs is well aware of the receiver's milestone. "Hopefully, we can take care of that early," he said Thursday.`\
 https://nytimes.com/athletic/6033849/2025/01/02/jauan-jennings-joshua-dobbs-49ers-friendship-tennessee/
-
-**Jared Spurgeon expected to miss 2-3 weeks with injury, plus Kirill Kaprizov update**\
-`Bill Guerin told reporters Spurgeon's injury isn't as bad as the team originally thought and provided an update on the captain.`\
-https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kirill-kaprizov-update/
 
