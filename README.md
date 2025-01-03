@@ -1,3 +1,11 @@
+**Wolves hopeful of completing Agbadou signing from Reims**\
+`Wolverhampton Wanderers are hopeful of completing the signing of Stade de Reims centre-back Emmanuel Agbadou.`\
+https://nytimes.com/athletic/6036290/2025/01/03/wolves-hopeful-of-completing-emmanuel-agbadou-signing-from-reims/
+
+**Judge John Hodgman on Proper Mad Libs Etiquette**\
+`Is your obligation to make it random? Or funny?`\
+https://nytimes.com/2025/01/03/magazine/judge-john-hodgman-on-proper-mad-libs-etiquette.html
+
 **Johnson Is Re-elected as House Speaker**\
 `After two last-minute vote changes by Republican holdouts, Representative Mike Johnson of Louisiana secured a majority of votes.`\
 https://nytimes.com/video/us/politics/100000009907397/mike-johnson-speaker-reelection.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/style/dating-predictions.html
 **Charles Shyer, Filmmaker Who Focused on Women, Dies at 83**\
 `His long collaboration with Nancy Meyers produced a string of hit movies, including “Baby Boom” and “Father of the Bride,” that spoke to the moment.`\
 https://nytimes.com/2025/01/03/movies/charles-shyer-dead.html
-
-**Alon Alexander Is Denied Bail in Sex Trafficking Case**\
-`Mr. Alexander’s brother, Oren Alexander, was granted a hearing extension by a judge in Miami. A third brother, Tal Alexander, was denied bail on related charges in December.`\
-https://nytimes.com/2025/01/03/realestate/alexander-brothers-hearing-miami.html
-
-**Treasury Dept. Hits Chinese Tech Company With Sanctions After Breach**\
-`The agency imposed penalties on a company it blamed for supporting the Chinese hacking group Flax Typhoon in a 2022-23 infiltration.`\
-https://nytimes.com/2025/01/03/us/politics/treasury-chinese-sanctions.html
 
