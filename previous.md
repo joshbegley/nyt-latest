@@ -1,3 +1,11 @@
+**After Fierce Lobbying, Treasury Sets Rules for Billions in Hydrogen Subsidies**\
+`With a lucrative tax credit, the Biden administration is hoping to establish a new industry that might help fight climate change.`\
+https://nytimes.com/2025/01/03/climate/after-fierce-lobbying-treasury-sets-rules-for-billions-in-hydrogen-subsidies.html
+
+**Rashford set to miss Liverpool trip due to illness - Amorim**\
+`Ruben Amorim says Marcus Rashford is set to miss Manchester United&#8217;s Premier League match against Liverpool on Sunday through illness.`\
+https://nytimes.com/athletic/6035270/2025/01/03/marcus-rashford-man-utd-liverpool/
+
 **Here’s how the process to pick a speaker works.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-house-is-set-to-choose-a-speaker-heres-how-the-process-works
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035360/2025/01/03/djokovic-brisbane-reilly-opelka-
 **Trump Transition Live Updates: Speaker Johnson Faces Crucial Vote**\
 `Mike Johnson has President-elect Donald J. Trump’s support to retain his role but only a razor-thin margin — and several Republican votes remain in question.`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump
-
-**Impeached President Faces Down Detention Bid, Stoking South Korea’s Crisis**\
-`Blocked by bodyguards in an hourslong standoff, officials retreated without serving a court warrant to hold President Yoon Suk Yeol for questioning on insurrection charges.`\
-https://nytimes.com/2025/01/03/world/asia/south-korea-president-yoon-arrest-fail.html
-
-**Row Z: Ronaldo and Mendes are recognised at last and Rooney's calendar calamity**\
-`Our weekly round-up of soccer's sillier side, featuring the oh-so prestigious Globe Soccer Awards — and Stoke City`\
-https://nytimes.com/athletic/6035272/2025/01/03/cristiano-ronaldo-jorge-mendes-wayne-rooney/
 

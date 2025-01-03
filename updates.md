@@ -1,3 +1,11 @@
+**After Fierce Lobbying, Treasury Sets Rules for Billions in Hydrogen Subsidies**\
+`With a lucrative tax credit, the Biden administration is hoping to establish a new industry that might help fight climate change.`\
+https://nytimes.com/2025/01/03/climate/after-fierce-lobbying-treasury-sets-rules-for-billions-in-hydrogen-subsidies.html
+
+**Rashford set to miss Liverpool trip due to illness - Amorim**\
+`Ruben Amorim says Marcus Rashford is set to miss Manchester United&#8217;s Premier League match against Liverpool on Sunday through illness.`\
+https://nytimes.com/athletic/6035270/2025/01/03/marcus-rashford-man-utd-liverpool/
+
 **Here’s how the process to pick a speaker works.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-house-is-set-to-choose-a-speaker-heres-how-the-process-works
