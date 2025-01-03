@@ -1,3 +1,7 @@
+**A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
+`The system is forecast to bring a dreadful mix of sleet, snow and freezing rain from Kansas to Virginia this weekend.`\
+https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html
+
 **Rockets' Jabari Smith Jr. fractures hand, out 4 to 8 weeks**\
 `Losing him at a time when the Rockets are already quietly dealing with a Tari Eason absence is a huge blow.`\
 https://nytimes.com/athletic/6036583/2025/01/03/houston-rockets-jabari-smith-jr-injury/
