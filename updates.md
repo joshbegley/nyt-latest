@@ -1,3 +1,15 @@
+**Villa defender Torres out for two months with broken metatarsal**\
+`Aston Villa manager Unai Emery has confirmed Pau Torres has suffered a broken metatarsal, ruling the defender out for two months.`\
+https://nytimes.com/athletic/6029135/2025/01/03/aston-villa-pau-torres-injury/
+
+**Thompson: Stephen Curry's 3-point perfection caps an anomalous win the Warriors needed**\
+`Thursday's 139-point night against Philadelphia was a refreshing reminder of what was, and what was supposed to be, for this Warriors team.`\
+https://nytimes.com/athletic/6035422/2025/01/03/stephen-curry-warriors-8-for-8-3-pointers-76ers/
+
+**Anselmino to train with Chelsea first-team after Boca Juniors recall**\
+`Enzo Maresca has said Chelsea plan for Aaron Anselmino to train with the first-team squad before making a decision on his immediate future.`\
+https://nytimes.com/athletic/6035294/2025/01/03/chelsea-aaron-anselmino-squad/
+
 **Chelsea's Fofana could miss rest of the season with torn hamstring - Maresca**\
 `Chelsea defender Wesley Fofana could miss the rest of the season with the hamstring injury he sustained in December head coach Enzo Maresca has confirmed.`\
 https://nytimes.com/athletic/6035480/2025/01/03/chelsea-wesley-fofana-hamstring-injury/
