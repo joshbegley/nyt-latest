@@ -1,3 +1,7 @@
+**Platonic Romances and A.I. Clones: 2025 Dating Predictions**\
+`Ten experts share what they think will happen in the world of dating, relationships and romance in the new year.`\
+https://nytimes.com/2025/01/03/style/dating-predictions.html
+
 **Charles Shyer, Filmmaker Who Focused on Women, Dies at 83**\
 `His long collaboration with Nancy Meyers produced a string of hit movies, including “Baby Boom” and “Father of the Bride,” that spoke to the moment.`\
 https://nytimes.com/2025/01/03/movies/charles-shyer-dead.html
