@@ -1,3 +1,19 @@
+**Why the NFL has seen a running back renaissance led by Saquon Barkley, Derrick Henry**\
+`Teams have devalued the position in recent years, but the best offenses this season have elite backs as their catalysts.`\
+https://nytimes.com/athletic/6030708/2025/01/03/nfl-running-backs-saquon-barkley-derrick-henry/
+
+**AFC North Whiparound: Divisional doubleheader sets the tone for Week 18**\
+`Plus, could Myles Garrett win another Defensive Player of the Year award despite the Browns' struggles this season?`\
+https://nytimes.com/athletic/6034061/2025/01/03/ravens-steelers-bengals-browns-afc-north/
+
+**Inside Ohio State's unlikeliest budding dynasty under Nadine Muzerall**\
+`Muzerall almost turned down a chance to coach Ohio State women's hockey team. Now she's turned the Buckeyes into a surprise national power.`\
+https://nytimes.com/athletic/6034147/2025/01/03/ohio-state-nadine-muzerall-womens-hockey/
+
+**More Than 300 People Flee Burning Building in South Korea**\
+`An eight-story commercial complex caught fire south of the nation’s capital, fire officials said.`\
+https://nytimes.com/2025/01/03/world/asia/south-korea-fire-seongnam.html
+
 **Bengals defense has looked better, but how much progress has it actually made?**\
 `The unit has forced turnovers and contributed to a playoff push but will have to show it can keep it up in a must-win game vs. the Steelers.`\
 https://nytimes.com/athletic/6034271/2025/01/03/bengals-defense-progress-steelers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6034233/2025/01/03/sec-basketball-predictions-ncaa-
 **Michael Penix Jr.'s production hasn't been great, but Falcons believe his poise bodes well**\
 `Falcons coach Raheem Morris says he's seen enough from Penix to know he's the right guy.`\
 https://nytimes.com/athletic/6033998/2025/01/03/falcons-michael-penix-jr-future/
-
-**Botman in line for Newcastle return after 10-month injury absence**\
-`Sven Botman is in line to return to Newcastle United&#8217;s squad for the first time since March — and Eddie Howe insists the Dutchman is even &#8220;in and around my thoughts&#8221; to start.`\
-https://nytimes.com/athletic/6035276/2025/01/03/sven-botman-newcastle-return/
-
-**Four things I'm watching as Panthers prepare for an important offseason**\
-`What happens with the defensive staff? What can GM Dan Morgan do to get Bryce Young and company more help?`\
-https://nytimes.com/athletic/6034370/2025/01/03/panthers-offseason-decisions-free-agency/
-
-**Projecting Wisconsin's 2025 depth chart: Quarterback overhaul, questions at receiver**\
-`The Badgers will have a one-year transfer quarterback starter under Luke Fickell for the third consecutive season in 2025.`\
-https://nytimes.com/athletic/6033956/2025/01/03/wisconsin-depth-chart-college-football-offense/
-
-**The Duke’s Mayo Bowl is Gross and Weird. That’s Why People Love It.**\
-`The game is one of more than 40 bowl games. But the corporate sponsor has made it an internet sensation. Warning: sickening content.`\
-https://nytimes.com/2025/01/03/sports/dukes-mayo-bowl.html
 

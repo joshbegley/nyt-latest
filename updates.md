@@ -1,3 +1,19 @@
+**Why the NFL has seen a running back renaissance led by Saquon Barkley, Derrick Henry**\
+`Teams have devalued the position in recent years, but the best offenses this season have elite backs as their catalysts.`\
+https://nytimes.com/athletic/6030708/2025/01/03/nfl-running-backs-saquon-barkley-derrick-henry/
+
+**AFC North Whiparound: Divisional doubleheader sets the tone for Week 18**\
+`Plus, could Myles Garrett win another Defensive Player of the Year award despite the Browns' struggles this season?`\
+https://nytimes.com/athletic/6034061/2025/01/03/ravens-steelers-bengals-browns-afc-north/
+
+**Inside Ohio State's unlikeliest budding dynasty under Nadine Muzerall**\
+`Muzerall almost turned down a chance to coach Ohio State women's hockey team. Now she's turned the Buckeyes into a surprise national power.`\
+https://nytimes.com/athletic/6034147/2025/01/03/ohio-state-nadine-muzerall-womens-hockey/
+
+**More Than 300 People Flee Burning Building in South Korea**\
+`An eight-story commercial complex caught fire south of the nation’s capital, fire officials said.`\
+https://nytimes.com/2025/01/03/world/asia/south-korea-fire-seongnam.html
+
 **Bengals defense has looked better, but how much progress has it actually made?**\
 `The unit has forced turnovers and contributed to a playoff push but will have to show it can keep it up in a must-win game vs. the Steelers.`\
 https://nytimes.com/athletic/6034271/2025/01/03/bengals-defense-progress-steelers/
