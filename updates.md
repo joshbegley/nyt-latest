@@ -1,3 +1,15 @@
+**Soldier Who Blew Up Tesla Had PTSD, Said U.S. Headed for ‘Collapse,’ Police Say**\
+`The police shared notes recovered from one of the phones of Master Sgt. Matthew Alan Livelsberger, who fatally shot himself inside the vehicle in Las Vegas.`\
+https://nytimes.com/2025/01/03/us/soldier-who-blew-up-tesla-had-ptsd-said-us-headed-for-collapse-police-say.html
+
+**Luke Littler, 17, becomes youngest-ever darts world champion**\
+`Luke Littler, 17, defeated Michael van Gerwen 7&#8211;3 at Alexandra Palace, London, to win his first PDC World Darts Championship title.`\
+https://nytimes.com/athletic/6035252/2025/01/03/luke-littler-darts-world-champion/
+
+**Read the document**\
+`The full text of Justice Juan M. Merchan’s decision in President-elect Donald J. Trump’s criminal conviction.`\
+https://nytimes.com/interactive/2025/01/03/nyregion/people-v-djt-clayton-decision.html
+
 **Wolves hopeful of completing Agbadou signing from Reims**\
 `Wolverhampton Wanderers are hopeful of completing the signing of Stade de Reims centre-back Emmanuel Agbadou.`\
 https://nytimes.com/athletic/6036290/2025/01/03/wolves-hopeful-of-completing-emmanuel-agbadou-signing-from-reims/
