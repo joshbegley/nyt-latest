@@ -1,3 +1,7 @@
+**Read the Report on Security in New Orleans**\
+`These are pages from a 2019 security assessment of the French Quarter in New Orleans. The report makes a number of recommendations regarding policing and physical security.`\
+https://nytimes.com/interactive/2025/01/03/us/new-orleans-security-report.html
+
 **Los Angeles Is Living Its ‘Y2K’ in 2025 as Sheriff’s Dispatch System Fails**\
 `The Los Angeles Sheriff’s Department is in the third day of an outage of its computer-aided dispatch system in its vehicles, leaving deputies to resort to old methods as they respond to calls.`\
 https://nytimes.com/2025/01/03/us/la-county-sheriff-dispatch-system-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/world/europe/elon-musk-britain-social-media.html
 **Steph Curry on Steve Kerr's trimmed rotation: 'Narrowing ... (it) helps everybody'**\
 `At 17-16, the Warriors are still searching for some traction. But Steve Kerr's desire for a smaller rotation has reaped some benefits.`\
 https://nytimes.com/athletic/6035103/2025/01/03/steph-curry-steve-kerr-warriors-rotation/
-
-**David Lodge, British Novelist Who Satirized Academic Life, Dies at 89**\
-`His 15 well-plotted novels teemed with romance and strange coincidence. An erudite literary critic with an ear for language, he also wrote a raft of nonfiction books.`\
-https://nytimes.com/2025/01/03/books/david-lodge-dead.html
 
