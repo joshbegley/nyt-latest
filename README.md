@@ -7,8 +7,7 @@ https://nytimes.com/athletic/6034832/2025/01/02/canada-world-juniors-loss-czechi
 https://nytimes.com/athletic/6034848/2025/01/02/canada-world-juniors-2025-struggles/
 
 **How Blue Jackets' crucial last-minute mistake led to gut-wrenching loss to Red Wings**\
-`Detroit's Jonatan Berggren scored the go-ahead goal with 36 seconds remaining in the third period to hand Columbus a 5-4 loss.
-`\
+`Detroit's Jonatan Berggren scored the go-ahead goal with 36 seconds remaining in the third period to hand Columbus a 5-4 loss.`\
 https://nytimes.com/athletic/6034833/2025/01/02/blue-jackets-red-wings-jonatan-berggren/
 
 **Sampson: This Notre Dame team is different. There should be no doubt about it now**\
