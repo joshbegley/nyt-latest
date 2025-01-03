@@ -1,3 +1,15 @@
+**Bourbon Street Returns to Life After Deadly Attack**\
+`With crowds, live music and a makeshift memorial to the victims who died in the New Year’s attack, the New Orleans street was bustling again.`\
+https://nytimes.com/2025/01/02/us/bourbon-street-new-orleans-attack.html
+
+**Soldier’s Bomb in Tesla Outside Trump Hotel Could Have Been More Lethal**\
+`Fellow soldiers say the Army sergeant who set off the explosion could have done far more harm. Investigators are trying to figure out why he didn’t.`\
+https://nytimes.com/2025/01/02/us/cybertruck-trump-las-vegas-bomb-livelsberger.html
+
+**CFP semifinals first look: Previewing Notre Dame-Penn State, Ohio State-Texas**\
+`It will be a final four filled with blue-blood programs playing for a shot at the national championship on Jan. 20 in Atlanta.`\
+https://nytimes.com/athletic/6033036/2025/01/02/college-football-playoff-semifinals-ohio-state-texas-notre-dame-penn-state/
+
 **Notre Dame advances in Playoff with win over Georgia in delayed Sugar Bowl**\
 `Notre Dame won a major bowl for the first time in 31 years, beating Georgia 23-10 to move on to the College Football Playoff semifinals.`\
 https://nytimes.com/athletic/6034510/2025/01/02/notre-dame-georgia-sugar-bowl-new-orleans-attack/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/02/arts/music/wayne-osmond-dead.html
 **Carter’s Panama Canal Treaties Symbolize How Much Washington Has Changed**\
 `To return the canal to Panama, President Jimmy Carter worked to change minds and build a bipartisan coalition that put aside short-term political considerations.`\
 https://nytimes.com/2025/01/02/us/politics/carter-panama-canal.html
-
-**Eyeing Potential Bird Flu Outbreak, Biden Administration Ramps Up Preparedness**\
-`The administration is committing an additional $306 million toward battling the virus, and will distribute the money before President-elect Donald J. Trump takes office.`\
-https://nytimes.com/2025/01/02/us/politics/bird-flu-biden-trump.html
-
-**South Korean Officials Move on President’s Home, With Warrant in Hand**\
-`The authorities are seeking to detain President Yoon Suk Yeol for questioning over his declaration of martial law, which plunged the country into a political crisis.`\
-https://nytimes.com/2025/01/02/world/asia/south-korea-president-yoon-suk-yeol.html
-
-**Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
-`A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
-https://nytimes.com/athletic/6032129/2025/01/02/asu-texas-targeting-peach-bowl-playoff/
 

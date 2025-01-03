@@ -1,3 +1,15 @@
+**Bourbon Street Returns to Life After Deadly Attack**\
+`With crowds, live music and a makeshift memorial to the victims who died in the New Year’s attack, the New Orleans street was bustling again.`\
+https://nytimes.com/2025/01/02/us/bourbon-street-new-orleans-attack.html
+
+**Soldier’s Bomb in Tesla Outside Trump Hotel Could Have Been More Lethal**\
+`Fellow soldiers say the Army sergeant who set off the explosion could have done far more harm. Investigators are trying to figure out why he didn’t.`\
+https://nytimes.com/2025/01/02/us/cybertruck-trump-las-vegas-bomb-livelsberger.html
+
+**CFP semifinals first look: Previewing Notre Dame-Penn State, Ohio State-Texas**\
+`It will be a final four filled with blue-blood programs playing for a shot at the national championship on Jan. 20 in Atlanta.`\
+https://nytimes.com/athletic/6033036/2025/01/02/college-football-playoff-semifinals-ohio-state-texas-notre-dame-penn-state/
+
 **Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
 `A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
 https://nytimes.com/athletic/6032129/2025/01/02/asu-texas-targeting-peach-bowl-playoff/
