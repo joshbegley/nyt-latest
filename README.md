@@ -1,3 +1,7 @@
+**Orioles agree to terms with Charlie Morton on 1-year deal**\
+`Morton, 41, will earn $15 million in 2025. He spent the past four seasons pitching for the Braves.`\
+https://nytimes.com/athletic/6036480/2025/01/03/orioles-charlie-morton-deal/
+
 **House Republicans Pledge Drilling and Make It Easier to Shed Federal Land**\
 `The newly elected Speaker said the party would make it a priority to “restore America’s energy dominance.”`\
 https://nytimes.com/2025/01/03/climate/republicans-federal-land-drilling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/nyregion/marie-winn-dead.html
 **Michigan signs Alabama transfer RB Justice Haynes**\
 `Michigan confirmed the addition of Haynes, a former five-star recruit, from Alabama on Friday.`\
 https://nytimes.com/athletic/6018617/2025/01/03/michigan-alabama-transfer-justice-haynes/
-
-**Vinicius Junior sent off after pushing Valencia goalkeeper Dimitrievski**\
-`Vinicius Junior was sent off in the second half of Real Madrid&#8217;s La Liga fixture against Valencia after an off-the-ball push on opposition goalkeeper Stole Dimitrievski.`\
-https://nytimes.com/athletic/6036445/2025/01/03/vinicius-junior-red-card-valencia/
 
