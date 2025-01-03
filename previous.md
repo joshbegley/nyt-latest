@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Conference champions take early out in CFP quarterfinals**\
+`Texas, Penn State, Ohio State and Notre Dame advanced in the CFP after beating teams seeded higher than them in the quarterfinals.`\
+https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarterfinals-recap-mandel/
+
 **Corrections: Jan. 3, 2025**\
 `Corrections that appeared in print on Friday, Jan. 3, 2025.`\
 https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/us/cybertruck-trump-las-vegas-bomb-livelsberger.h
 **CFP semifinals first look: Previewing Notre Dame-Penn State, Ohio State-Texas**\
 `It will be a final four filled with blue-blood programs playing for a shot at the national championship on Jan. 20 in Atlanta.`\
 https://nytimes.com/athletic/6033036/2025/01/02/college-football-playoff-semifinals-ohio-state-texas-notre-dame-penn-state/
-
-**Notre Dame advances in Playoff with win over Georgia in delayed Sugar Bowl**\
-`Notre Dame won a major bowl for the first time in 31 years, beating Georgia 23-10 to move on to the College Football Playoff semifinals.`\
-https://nytimes.com/athletic/6034510/2025/01/02/notre-dame-georgia-sugar-bowl-new-orleans-attack/
 

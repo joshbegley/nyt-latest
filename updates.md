@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Conference champions take early out in CFP quarterfinals**\
+`Texas, Penn State, Ohio State and Notre Dame advanced in the CFP after beating teams seeded higher than them in the quarterfinals.`\
+https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarterfinals-recap-mandel/
+
 **Corrections: Jan. 3, 2025**\
 `Corrections that appeared in print on Friday, Jan. 3, 2025.`\
 https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
