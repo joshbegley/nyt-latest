@@ -1,3 +1,15 @@
+**South Korea’s Political Drama Plays Out in a Day of Dueling Protests**\
+`A standoff between the impeached president’s security team and officials seeking to detain him was echoed on the streets outside the presidential residence.`\
+https://nytimes.com/2025/01/03/world/asia/south-korea-protest-scene.html
+
+**Tottenham's Udogie out for six weeks with hamstring injury**\
+`Ange Postecoglou says Tottenham Hotspur defender Destiny Udogie will miss six weeks with a hamstring injury, while other members of the first-team squad have been hit by an illness bug.`\
+https://nytimes.com/athletic/6031537/2025/01/03/destiny-udogie-injury-update-tottenham/
+
+**Max Homa's search for joy in an offseason of change**\
+`New coach. New shirt. New shoes. New clubs. Temporary caddie change. Just don't call it a reset for Homa. This is something else.`\
+https://nytimes.com/athletic/6035438/2025/01/03/max-homa-golf-lululemon-cobra-greller-caddie/
+
 **Djokovic out of Brisbane International after Opelka defeat**\
 `Djokovic is in search of his 25th Grand Slam title at the Australian Open, but fell short of the semifinals at his warm-up event.`\
 https://nytimes.com/athletic/6035360/2025/01/03/djokovic-brisbane-reilly-opelka-defeat/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/asia/100000009906391/fire-building-south-korea-s
 **What's next for Pistons in the wake of Jaden Ivey's leg injury?**\
 `Malik Beasley and Ausar Thompson could see their roles increase. Detroit could also look to add at the trade deadline.`\
 https://nytimes.com/athletic/6035079/2025/01/03/jaden-ivey-injury-pistons-malik-beasley-ausar-thompson/
-
-**The Athletic FC: Story of Lebanon prodigy hit by shrapnel, Liverpool's ticket tout crackdown**\
-`Today in TAFC: How Celine Haidar, 19, was hit by shrapnel and became a symbol of war's terrible destruction`\
-https://nytimes.com/athletic/6035291/2025/01/03/haidar-lebanon-shrapnel-liverpools-ticket-tout/
-
-**The Athletic’s Friday football quiz question #36**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6031242/2025/01/03/the-athletics-friday-football-quiz-question-36/
-
-**Lowetide: Oilers need an old-fashioned Sather-style fleecing at trade deadline**\
-`The Sather magic came in acquiring a perfect-fit solution for low cost where others might not have looked.`\
-https://nytimes.com/athletic/6032684/2025/01/03/edmonton-oilers-trade-glen-sather/
 

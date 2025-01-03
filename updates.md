@@ -1,3 +1,15 @@
+**South Korea’s Political Drama Plays Out in a Day of Dueling Protests**\
+`A standoff between the impeached president’s security team and officials seeking to detain him was echoed on the streets outside the presidential residence.`\
+https://nytimes.com/2025/01/03/world/asia/south-korea-protest-scene.html
+
+**Tottenham's Udogie out for six weeks with hamstring injury**\
+`Ange Postecoglou says Tottenham Hotspur defender Destiny Udogie will miss six weeks with a hamstring injury, while other members of the first-team squad have been hit by an illness bug.`\
+https://nytimes.com/athletic/6031537/2025/01/03/destiny-udogie-injury-update-tottenham/
+
+**Max Homa's search for joy in an offseason of change**\
+`New coach. New shirt. New shoes. New clubs. Temporary caddie change. Just don't call it a reset for Homa. This is something else.`\
+https://nytimes.com/athletic/6035438/2025/01/03/max-homa-golf-lululemon-cobra-greller-caddie/
+
 **Djokovic out of Brisbane International after Opelka defeat**\
 `Djokovic is in search of his 25th Grand Slam title at the Australian Open, but fell short of the semifinals at his warm-up event.`\
 https://nytimes.com/athletic/6035360/2025/01/03/djokovic-brisbane-reilly-opelka-defeat/
