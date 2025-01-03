@@ -1,3 +1,7 @@
+**Wheeler: Hockey Canada has big questions to answer after another disappointing World Juniors**\
+`If there’s truly a high standard at Hockey Canada, then not playing in a medal game for two straight years shouldn’t meet it.`\
+https://nytimes.com/athletic/6034832/2025/01/02/canada-world-juniors-loss-czechia/
+
 **Why Canada's World Juniors struggles shouldn't have been a surprise**\
 `It’s natural given Canada's difficult effort on home ice to want explanations and look for scapegoats.`\
 https://nytimes.com/athletic/6034848/2025/01/02/canada-world-juniors-2025-struggles/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6006898/2025/01/02/canada-world-juniors-usa-2025/
 **Houston Dash to appoint Fabrice Gautrat as head coach: Source**\
 `Houston hopes new coach Fabrice Gautrat will revive their fortunes`\
 https://nytimes.com/athletic/6034813/2025/01/02/houston-dash-fabrice-gautrat-nwsl/
-
-**Emerson: Georgia was not elite this season, but what about the future?**\
-`The Bulldogs lost 23-10 to Notre Dame in the Sugar Bowl, ending their season in the CFP quarterfinals. `\
-https://nytimes.com/athletic/6034843/2025/01/02/georgia-college-football-sugar-bowl-loss/
 
