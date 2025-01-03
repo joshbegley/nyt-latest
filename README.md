@@ -1,3 +1,7 @@
+**Farm to Table**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2025/01/02/crosswords/daily-puzzle-2025-01-03.html
+
 **Mandel's Final Thoughts: Conference champions take early out in CFP quarterfinals**\
 `Texas, Penn State, Ohio State and Notre Dame advanced in the CFP after beating teams seeded higher than them in the quarterfinals.`\
 https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarterfinals-recap-mandel/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/us/bourbon-street-new-orleans-attack.html
 **Soldier’s Bomb in Tesla Outside Trump Hotel Could Have Been More Lethal**\
 `Fellow soldiers say the Army sergeant who set off the explosion could have done far more harm. Investigators are trying to figure out why he didn’t.`\
 https://nytimes.com/2025/01/02/us/cybertruck-trump-las-vegas-bomb-livelsberger.html
-
-**CFP semifinals first look: Previewing Notre Dame-Penn State, Ohio State-Texas**\
-`It will be a final four filled with blue-blood programs playing for a shot at the national championship on Jan. 20 in Atlanta.`\
-https://nytimes.com/athletic/6033036/2025/01/02/college-football-playoff-semifinals-ohio-state-texas-notre-dame-penn-state/
 
