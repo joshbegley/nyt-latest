@@ -2,7 +2,7 @@
 `Christian Pulisic returned from injury to lead the fightback as Milan came from behind to beat Juventus and reach the Italian Super Cup final.`\
 https://nytimes.com/athletic/6035243/2025/01/03/christian-pulisic-injury-milan-super-cup/
 
-**Judge Upholds Trump’s Conviction but Signals Plan to Spare Jail Time**\
+**Judge Upholds Trump’s Conviction but Signals No Jail Time**\
 `The New York judge who oversaw President-elect Donald J. Trump’s hush-money trial scheduled his sentencing for Jan. 10. Mr. Trump is expected to appeal.`\
 https://nytimes.com/2025/01/03/nyregion/trump-sentencing-hush-money-case-ny.html
 
