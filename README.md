@@ -31,8 +31,8 @@ https://nytimes.com/2025/01/03/us/la-county-sheriff-dispatch-system-crash.html
 https://nytimes.com/2025/01/03/arts/britt-allcroft-thomas-tank-engine-dead.html
 
 **Pelosi returns to Congress after hip surgery, without her signature stilettos.**\
-`By Annie Karni`\
-https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/pelosi-returns-to-congress-after-hip-surgery-without-her-signature-stilettos
+`A recent fall on a marble staircase at a palace in Luxembourg required Nancy Pelosi to have emergency hip replacement surgery.`\
+https://nytimes.com/2025/01/03/us/politics/nancy-pelosi-congress.html
 
 **West Virginia, Rodriguez bringing Noel Devine on staff as offensive analyst**\
 `Devine, who played four years at WVU, was one of the first high school football recruits to have his highlights go viral.`\
