@@ -1,3 +1,7 @@
+**Word of the Day: neologism**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/03/learning/word-of-the-day-neologism.html
+
 **How Canucks hung on to defeat Kraken in shootout: 3 takeaways**\
 `A lot was stacked against the Canucks on Thursday night in Seattle, but they came away with a victory.`\
 https://nytimes.com/athletic/6035046/2025/01/03/canucks-kraken-shootout-thatcher-demko-jt-miller/
