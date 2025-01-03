@@ -1,3 +1,19 @@
+**Bengals defense has looked better, but how much progress has it actually made?**\
+`The unit has forced turnovers and contributed to a playoff push but will have to show it can keep it up in a must-win game vs. the Steelers.`\
+https://nytimes.com/athletic/6034271/2025/01/03/bengals-defense-progress-steelers/
+
+**NFL MVP debate: Both Josh Allen and Lamar Jackson are deserving, but what separates them?**\
+`There's much nuance and context to explore beyond the stats as it pertains to the case for Allen or Jackson to be named league MVP. `\
+https://nytimes.com/athletic/6032719/2025/01/03/nfl-mvp-josh-allen-lamar-jackson/
+
+**NBA 2024-25 bold predictions: Revisiting our preseason prognostications**\
+`Three months into the season, let's check in on the progress of our bold claims.`\
+https://nytimes.com/athletic/6032449/2025/01/03/nba-season-bold-predictions-analysis-outlook/
+
+**'My size is my biggest strength': Rookie CB Mike Sainristil brings a bite to Commanders**\
+`The 5-foot-9 college receiver-turned-starting NFL cornerback has learned to embrace his size and use it to his advantage. `\
+https://nytimes.com/athletic/6032413/2025/01/03/mike-sainristil-commanders-nfl-rookie/
+
 **SEC’s historically good men’s basketball race is on — predicting 2 months of hoops ecstasy**\
 `The SEC, clearly the nation's top conference is destined to break the Big East’s 2011 record of 11 teams with NCAA Tournament bids.`\
 https://nytimes.com/athletic/6034233/2025/01/03/sec-basketball-predictions-ncaa-tournament/
