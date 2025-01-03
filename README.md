@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6036195/2025/01/03/mika-zibanejad-rangers-nhl-trade
 
 **Soldier Who Blew Up Tesla Had PTSD, Said U.S. Headed for ‘Collapse,’ Police Say**\
 `The police shared notes recovered from one of the phones of Master Sgt. Matthew Alan Livelsberger, who fatally shot himself inside the vehicle in Las Vegas.`\
-https://nytimes.com/2025/01/03/us/soldier-who-blew-up-tesla-had-ptsd-said-us-headed-for-collapse-police-say.html
+https://nytimes.com/2025/01/03/us/las-vegas-tesla-explosion-soldier-ptsd-notes.html
 
 **Luke Littler, 17, becomes youngest darts world champion**\
 `Luke Littler, 17, defeated Michael van Gerwen 7&#8211;3 at Alexandra Palace, London, to win his first PDC World Darts Championship title.`\
