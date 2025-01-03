@@ -1,3 +1,7 @@
+**Judge Upholds Trump’s Conviction but Signals Plan to Spare Jail Time**\
+`The New York judge who oversaw President-elect Donald J. Trump’s hush-money trial scheduled his sentencing for Jan. 10. Mr. Trump is expected to appeal.`\
+https://nytimes.com/2025/01/03/nyregion/trump-sentencing-hush-money-case-ny.html
+
 **Fable, a Book App, Makes Changes After Offensive A.I. Messages**\
 `The company introduced safeguards after readers flagged “bigoted” language in an artificial intelligence feature that crafts summaries.`\
 https://nytimes.com/2025/01/03/us/fable-ai-books-racism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
 **Which Countries Warn That Alcohol May Cause Cancer?**\
 `A quarter of nations worldwide have health risk labels on alcohol. But only South Korea has a warning about liver cancer.`\
 https://nytimes.com/2025/01/03/world/alcohol-cancer-warnings-countries.html
-
-**Hockey Canada brass stand by choices after second straight World Juniors 'disaster'**\
-`Canada's quarterfinal exit at the World Juniors boiled down to too many penalties and not enough goals.`\
-https://nytimes.com/athletic/6036168/2025/01/03/hockey-canada-world-juniors-2025/
 
