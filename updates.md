@@ -1,3 +1,11 @@
+**Which Countries Warn That Alcohol May Cause Cancer?**\
+`A quarter of nations worldwide have health risk labels on alcohol. But only South Korea has a warning about liver cancer.`\
+https://nytimes.com/2025/01/03/world/alcohol-warnings-countries.html
+
+**Hockey Canada brass stand by choices after second straight World Juniors 'disaster'**\
+`Canada's quarterfinal exit at the World Juniors boiled down to too many penalties and not enough goals.`\
+https://nytimes.com/athletic/6036168/2025/01/03/hockey-canada-world-juniors-2025/
+
 **Should a 13-Year-Old Be Pressured Into Having an Abortion?**\
 `The magazine’s Ethicist columnist on bodily autonomy and medical consent.`\
 https://nytimes.com/2025/01/03/magazine/adolescent-pregnancy-ethics.html
