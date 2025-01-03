@@ -1,3 +1,7 @@
+**Djokovic out of Brisbane International after Opelka defeat**\
+`Djokovic is in search of his 25th Grand Slam title at the Australian Open, but fell short of the semifinals at his warm-up event.`\
+https://nytimes.com/athletic/6035360/2025/01/03/djokovic-brisbane-reilly-opelka-defeat/
+
 **Trump Transition Live Updates: Speaker Johnson Faces Crucial Vote**\
 `Mike Johnson has President-elect Donald J. Trump’s support to retain his role but only a razor-thin margin — and several Republican votes remain in question.`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump

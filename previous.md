@@ -1,3 +1,7 @@
+**Djokovic out of Brisbane International after Opelka defeat**\
+`Djokovic is in search of his 25th Grand Slam title at the Australian Open, but fell short of the semifinals at his warm-up event.`\
+https://nytimes.com/athletic/6035360/2025/01/03/djokovic-brisbane-reilly-opelka-defeat/
+
 **Trump Transition Live Updates: Speaker Johnson Faces Crucial Vote**\
 `Mike Johnson has President-elect Donald J. Trump’s support to retain his role but only a razor-thin margin — and several Republican votes remain in question.`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031242/2025/01/03/the-athletics-friday-football-qu
 **Lowetide: Oilers need an old-fashioned Sather-style fleecing at trade deadline**\
 `The Sather magic came in acquiring a perfect-fit solution for low cost where others might not have looked.`\
 https://nytimes.com/athletic/6032684/2025/01/03/edmonton-oilers-trade-glen-sather/
-
-**Live Q&A: FPL Gameweek 20 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 20 Q&A between 4pm and 5pm UK time `\
-https://nytimes.com/athletic/6033245/2025/01/03/fantasy-premier-league-advice-gw20-tips/
 
