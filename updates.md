@@ -1,3 +1,7 @@
+**Anfernee Simons in 'hardest mental battle' amid Blazers' losing, but won't ask for trade**\
+`Once an up-and-coming star, Simons’ ascent has stalled this season. And he admits his struggle is getting harder to hide.`\
+https://nytimes.com/athletic/6034414/2025/01/03/anfernee-simons-trail-blazers-chauncey-billups-nba/
+
 **Why the NFL has seen a running back renaissance led by Saquon Barkley, Derrick Henry**\
 `Teams have devalued the position in recent years, but the best offenses this season have elite backs as their catalysts.`\
 https://nytimes.com/athletic/6030708/2025/01/03/nfl-running-backs-saquon-barkley-derrick-henry/

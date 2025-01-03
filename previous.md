@@ -1,3 +1,7 @@
+**Anfernee Simons in 'hardest mental battle' amid Blazers' losing, but won't ask for trade**\
+`Once an up-and-coming star, Simons’ ascent has stalled this season. And he admits his struggle is getting harder to hide.`\
+https://nytimes.com/athletic/6034414/2025/01/03/anfernee-simons-trail-blazers-chauncey-billups-nba/
+
 **Why the NFL has seen a running back renaissance led by Saquon Barkley, Derrick Henry**\
 `Teams have devalued the position in recent years, but the best offenses this season have elite backs as their catalysts.`\
 https://nytimes.com/athletic/6030708/2025/01/03/nfl-running-backs-saquon-barkley-derrick-henry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032413/2025/01/03/mike-sainristil-commanders-nfl-r
 **SEC’s historically good men’s basketball race is on — predicting 2 months of hoops ecstasy**\
 `The SEC, clearly the nation's top conference is destined to break the Big East’s 2011 record of 11 teams with NCAA Tournament bids.`\
 https://nytimes.com/athletic/6034233/2025/01/03/sec-basketball-predictions-ncaa-tournament/
-
-**Michael Penix Jr.'s production hasn't been great, but Falcons believe his poise bodes well**\
-`Falcons coach Raheem Morris says he's seen enough from Penix to know he's the right guy.`\
-https://nytimes.com/athletic/6033998/2025/01/03/falcons-michael-penix-jr-future/
 
