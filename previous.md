@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Manifesting championships with Thompson and Byfield**\
+`Shayna Goldman says to buy Logan Thompson while you still can. Quinton Byfield offers versatility with Kings; his slow start has ended. `\
+https://nytimes.com/athletic/6035057/2025/01/03/week-14-fantasy-trends-and-hidden-gems/
+
 **Here are the possible G.O.P. holdouts to watch.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/here-are-the-possible-gop-holdouts-to-watch
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035667/2025/01/03/ohio-state-oregon-rose-bowl-take
 **Brighton trying to sign Palmeiras defender Vitor Reis**\
 `Brighton &amp; Hove Albion are trying to conclude a deal to buy teenage central defender Vitor Reis from Palmeiras.`\
 https://nytimes.com/athletic/6035578/2025/01/03/brighton-transfer-vitor-reis/
-
-**DeBoer refines Alabama DC Kane Wommack's role, elevates Chuck Morrell**\
-`Wommack, who doubled as the inside linebackers coach, will only serve as a coordinator in 2025 overseeing the defense.`\
-https://nytimes.com/athletic/6035775/2025/01/03/alabama-defensive-staff-kalen-deboer-kane-wommack/
 
