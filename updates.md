@@ -1,3 +1,7 @@
+**Anthony Edwards' frustration is rising as the Timberwolves search for answers**\
+`It requires patience and perspective, and that is not always easy for a player as young and ambitious as Edwards.`\
+https://nytimes.com/athletic/6034568/2025/01/03/anthony-edwards-frustration-timberwolves-search-answers/
+
 **New Orleans Was Called Resilient After Attack. It Didn’t Need the Reminder.**\
 `The city was seeing glimmers of optimism for what the new year might bring before the horrendous attack on the French Quarter.`\
 https://nytimes.com/2025/01/03/us/new-orleans-attack-recovery.html
