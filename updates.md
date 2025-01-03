@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Strong individual performances but weak team effort**\
+`Bobby McMann scored Toronto's only goals and Joseph Woll made quality saves, but despite the win, the overall team effort wasn't impressive.`\
+https://nytimes.com/athletic/6034851/2025/01/02/maple-leafs-islanders-bobby-mcmann-grades/
+
 **Maple Leafs report cards: Strong individual performances, but weak team effort**\
 `Bobby McMann scored Toronto's only goals and Joseph Woll made quality saves, but despite the win, the overall team effort wasn't impressive.`\
 https://nytimes.com/athletic/6034851/2025/01/02/maple-leafs-islanders-bobby-mcmann-grades/
