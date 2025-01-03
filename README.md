@@ -1,3 +1,7 @@
+**Marc-Andre Fleury, shorthanded Wild pull off comeback shootout win: Takeaways**\
+`Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
+https://nytimes.com/athletic/6034635/2025/01/02/wild-fleury-shootout-ovechkin-capitals/
+
 **Yoon’s supporters have camped out near his home to try to shield him.**\
 `By Choe Sang-Hun`\
 https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol/yoons-supporters-have-camped-out-near-his-home-to-try-to-shield-him
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/us/mother-orca-tahlequah-calf-dead.html
 **Notre Dame vs. Penn State: Picks, odds for CFP semifinal at Orange Bowl with Irish favored**\
 `Notre Dame opened as a small favorite against Penn State for the CFP semifinal at the Orange Bowl.`\
 https://nytimes.com/athletic/6034358/2025/01/02/notre-dame-penn-state-picks-odds-college-football-playoff-orange-bowl/
-
-**Bourbon Street Returns to Life After Deadly Attack**\
-`With crowds, live music and a makeshift memorial to the victims who died in the New Year’s attack, the New Orleans street was bustling again.`\
-https://nytimes.com/2025/01/02/us/bourbon-street-new-orleans-attack.html
 
