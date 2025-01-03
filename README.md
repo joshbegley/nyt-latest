@@ -1,3 +1,27 @@
+**The Athletic’s Friday football quiz question #36**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6031242/2025/01/03/the-athletics-friday-football-quiz-question-36/
+
+**Lowetide: Oilers need an old-fashioned Sather-style fleecing at trade deadline**\
+`The Sather magic came in acquiring a perfect-fit solution for low cost where others might not have looked.`\
+https://nytimes.com/athletic/6032684/2025/01/03/edmonton-oilers-trade-glen-sather/
+
+**Live Q&A: FPL Gameweek 20 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 20 Q&A between 4pm and 5pm UK time `\
+https://nytimes.com/athletic/6033245/2025/01/03/fantasy-premier-league-advice-gw20-tips/
+
+**Kosmider: What I'm seeing with the Broncos ahead of their biggest game in 9 years**\
+`The team's Pro Bowl results were a nod to George Paton's drafting acumen while also illustrating the need for more offensive talent.`\
+https://nytimes.com/athletic/6024541/2025/01/03/broncos-playoff-hopes-chiefs/
+
+**Our 2025 Tech Predictions and Resolutions + We Answer Your Questions​​**\
+`Next year is going to be different: good and bad, but just different.`\
+https://nytimes.com/2025/01/03/podcasts/hardfork-predictions-resolutions.html
+
+**Surgeon General Calls for Cancer Warnings on Alcohol**\
+`Dr. Vivek Murthy’s report cites studies linking alcoholic beverages to at least seven malignancies, including breast cancer. But to add warning labels, Congress would have to act.`\
+https://nytimes.com/2025/01/03/health/alcohol-surgeon-general-warning.html
+
 **The Pulse: The first time in 31 years**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6034759/2025/01/03/notre-dame-cfp-georgia-jimmy-butler-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6034381/2025/01/03/browns-season-finale-checklist-2
 **Boise State's Ashton Jeanty took full advantage of stage provided by 12-team Playoff**\
 `A special player significantly raised the level of his team, making the most of every eyeball and opportunity that came with it.`\
 https://nytimes.com/athletic/6033438/2025/01/03/ashton-jeanty-boise-state-cfp-season/
-
-**Court Vision: Jim Larrañaga’s retirement, NIL lawsuit for FSU's Hamilton come amid ACC decline**\
-`There's a player you need to know about. Plus, settle in for a great Saturday of conference basketball. `\
-https://nytimes.com/athletic/6034103/2025/01/03/miami-jim-larranaga-hamilton-fsu-nil-lawsuit/
-
-**How Nikola Jokić channeled Larry Bird to become even more dominant**\
-`Jokić felt something was wrong with his shooting mechanics and wanted to fix it. Now he's playing at maybe his highest level ever.`\
-https://nytimes.com/athletic/6028410/2025/01/03/nikola-jokic-shooting-nuggets-nba-larry-bird/
-
-**When History Rhymes**\
-`We cover the surprising parallels between Donald Trump and a president from the past.`\
-https://nytimes.com/2025/01/03/briefing/donald-trump-grover-cleveland.html
-
-**Bears' biggest disappointments, Ryan Poles choosing head coach, mailbag, Week 18 picks**\
-`Answering your questions about possible free-agent targets on the lines, the key to "culture" and Braxton Jones' future. `\
-https://nytimes.com/athletic/6034431/2025/01/03/bears-mailbag-ryan-poles-biggest-disappointments/
-
-**Pelicans trade tiers: There are 3 untouchables, and none of them are Zion Williamson**\
-`Ranking the Pelicans roster, from the guys who aren't going anywhere to the ones who could be moved to save money.`\
-https://nytimes.com/athletic/6034805/2025/01/03/pelicans-trade-tiers-zion-williamson-deadline/
-
-**Can the Vikings go into Detroit and snatch the No. 1 seed from the Lions?**\
-`Can the Minnesota defense keep Detroit's high-scoring offense in check with the NFC North title and the No. 1 seed on the line?`\
-https://nytimes.com/athletic/6034428/2025/01/03/vikings-lions-preview-predictions-playoffs-no-1-seed/
 
