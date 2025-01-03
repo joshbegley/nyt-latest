@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6032684/2025/01/03/edmonton-oilers-trade-glen-sathe
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 20 Q&A between 4pm and 5pm UK time `\
 https://nytimes.com/athletic/6033245/2025/01/03/fantasy-premier-league-advice-gw20-tips/
 
-**Kosmider: What I'm seeing with the Broncos ahead of their biggest game in 9 years**\
+**What I'm seeing with the Broncos ahead of their biggest game in 9 years**\
 `The team's Pro Bowl results were a nod to George Paton's drafting acumen while also illustrating the need for more offensive talent.`\
 https://nytimes.com/athletic/6024541/2025/01/03/broncos-playoff-hopes-chiefs/
 

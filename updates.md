@@ -1,3 +1,7 @@
+**What I'm seeing with the Broncos ahead of their biggest game in 9 years**\
+`The team's Pro Bowl results were a nod to George Paton's drafting acumen while also illustrating the need for more offensive talent.`\
+https://nytimes.com/athletic/6024541/2025/01/03/broncos-playoff-hopes-chiefs/
+
 **The Athletic FC: Story of Lebanon prodigy hit by shrapnel, Liverpool's ticket tout crackdown**\
 `Today in TAFC: How Celine Haidar, 19, was hit by shrapnel and became a symbol of war's terrible destruction`\
 https://nytimes.com/athletic/6035291/2025/01/03/haidar-lebanon-shrapnel-liverpools-ticket-tout/
