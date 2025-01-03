@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Rust Belt schools get their CFP revenge in quarterfinals**\
+`Texas, Penn State, Ohio State and Notre Dame advanced in the CFP after beating teams seeded higher than them in the quarterfinals.`\
+https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarterfinals-recap-mandel/
+
 **Yoon’s supporters have camped out near his home to try to shield him.**\
 `By Choe Sang-Hun`\
 https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol/yoons-supporters-have-camped-out-near-his-home-to-try-to-shield-him
