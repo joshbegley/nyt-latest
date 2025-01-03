@@ -1,3 +1,7 @@
+**NIU to vote Tuesday on football-only Mountain West invite**\
+`The move would give the Mountain West 11 total members and nine football-playing members in 2026.`\
+https://nytimes.com/athletic/6036142/2025/01/03/northern-illinois-mountain-west-invitation/
+
 **College football national title odds: Ohio State nearly an even-money favorite**\
 `Ohio State is the clear favorite to win the national title and has looked the part in two Playoff games. Will the Buckeyes get the job done?`\
 https://nytimes.com/athletic/6036092/2025/01/03/college-football-national-title-odds-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/nyregion/jocelyne-wildenstein-dead.html
 **Colts QB Anthony Richardson ruled out for season finale vs. Jaguars**\
 `Richardson will miss a second straight game due to a back injury, ending his season.`\
 https://nytimes.com/athletic/6035983/2025/01/03/anthony-richardson-out-colts-season-finale/
-
-**Elon Musk Has a Strange Fixation With Trolling Britain**\
-`In a barrage of posts rife with misinformation, he revived questions about a child sex abuse scandal, vilified the prime minister and defended a jailed far-right agitator.`\
-https://nytimes.com/2025/01/03/world/europe/elon-musk-britain-social-media.html
 
