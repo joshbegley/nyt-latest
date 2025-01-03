@@ -1,3 +1,7 @@
+**Biden Honors Police Officers and Veterans With Medals at White House**\
+`The president recognized five officers who responded to a 2023 school shooting at a private Christian school in Tennessee, and veterans of the Korean and Vietnam wars.`\
+https://nytimes.com/2025/01/03/us/politics/biden-presidential-medals-officers.html
+
 **New Orleans Releases Most Names of Victims Killed in Attack**\
 `Those who died after a man drove a pickup through the French Quarter highlighted the diverse mix of people who are drawn to the city.`\
 https://nytimes.com/2025/01/03/us/new-orleans-victims-truck-attack.html
