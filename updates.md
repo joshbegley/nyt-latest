@@ -1,3 +1,11 @@
+**Wolves hopeful of completing Agbadou signing from Reims**\
+`Wolverhampton Wanderers are hopeful of completing the signing of Stade de Reims centre-back Emmanuel Agbadou.`\
+https://nytimes.com/athletic/6036290/2025/01/03/wolves-hopeful-of-completing-emmanuel-agbadou-signing-from-reims/
+
+**Judge John Hodgman on Proper Mad Libs Etiquette**\
+`Is your obligation to make it random? Or funny?`\
+https://nytimes.com/2025/01/03/magazine/judge-john-hodgman-on-proper-mad-libs-etiquette.html
+
 **Johnson Is Re-elected as House Speaker**\
 `After two last-minute vote changes by Republican holdouts, Representative Mike Johnson of Louisiana secured a majority of votes.`\
 https://nytimes.com/video/us/politics/100000009907397/mike-johnson-speaker-reelection.html
