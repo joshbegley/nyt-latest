@@ -1,3 +1,7 @@
+**Jocelyne Wildenstein, Socialite and Tabloid ‘Catwoman,’ Dies at 79**\
+`Her lurid divorce from the wealthy scion of an art-world dynasty earned headlines. Her elaborate plastic surgeries brought even more attention.`\
+https://nytimes.com/2025/01/03/nyregion/jocelyne-wildenstein-dead.html
+
 **Colts QB Anthony Richardson ruled out for season finale vs. Jaguars**\
 `Richardson will miss a second straight game due to a back injury, ending his season.`\
 https://nytimes.com/athletic/6035983/2025/01/03/anthony-richardson-out-colts-season-finale/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/opinion/letters/democrats-trump.html
 **PGA Tour may change Tour Championship to bracket-style event: Sources**\
 `Advanced discussions are happening with the possibility for changes as soon as this year's Tour Championship.`\
 https://nytimes.com/athletic/6035751/2025/01/03/pga-tour-tour-championship-bracket-golf/
-
-**Plea Hearing in Sept. 11 Case Postponed to Jan. 10**\
-`A judge cited winter weather and a federal holiday for Jimmy Carter’s funeral as reasons for the delay. Government lawyers may also try again to overturn the plea deal.`\
-https://nytimes.com/2025/01/03/us/politics/plea-deal-sept-11-postponed.html
 
