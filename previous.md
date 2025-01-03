@@ -1,3 +1,7 @@
+**Two Killed and 18 Injured in California Plane Crash**\
+`A single-engine aircraft crashed into a commercial building in Fullerton, Calif., and prompted an evacuation, officials said.`\
+https://nytimes.com/2025/01/02/us/california-plane-crash.html
+
 **Orca That Carried Dead Calf for Weeks Is Mourning Again**\
 `Researchers say that the killer whale’s newborn calf in Puget Sound has also died and she’s unable to let go.`\
 https://nytimes.com/2025/01/02/us/mother-orca-tahlequah-calf-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kiril
 **Could Better Security Have Stopped the New Orleans Terror Attack?**\
 `City officials were warned in 2019 that the bollards designed to block vehicles did “not appear to work.” They were being fixed when a truck rammed through Bourbon Street on Wednesday.`\
 https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
-
-**New Details Emerge in Cybertruck Explosion, but Motive Is Still Unclear**\
-`Officials said they used data from Tesla charging stations to chart the driver’s dayslong journey from Colorado to the Trump Hotel in Las Vegas.`\
-https://nytimes.com/2025/01/02/us/las-vegas-cybertruck-explosion-details.html
 

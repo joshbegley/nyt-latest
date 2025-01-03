@@ -1,3 +1,7 @@
+**Two Killed and 18 Injured in California Plane Crash**\
+`A single-engine aircraft crashed into a commercial building in Fullerton, Calif., and prompted an evacuation, officials said.`\
+https://nytimes.com/2025/01/02/us/california-plane-crash.html
+
 **Orca That Carried Dead Calf for Weeks Is Mourning Again**\
 `Researchers say that the killer whale’s newborn calf in Puget Sound has also died and she’s unable to let go.`\
 https://nytimes.com/2025/01/02/us/mother-orca-tahlequah-calf-dead.html
