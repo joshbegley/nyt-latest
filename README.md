@@ -1,3 +1,7 @@
+**Word of the Day: neologism**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/03/learning/word-of-the-day-neologism.html
+
 **How Canucks hung on to defeat Kraken in shootout: 3 takeaways**\
 `A lot was stacked against the Canucks on Thursday night in Seattle, but they came away with a victory.`\
 https://nytimes.com/athletic/6035046/2025/01/03/canucks-kraken-shootout-thatcher-demko-jt-miller/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021587/2025/01/03/brighton-carlos-baleba-transfer-
 **Organised crime, burners and cyber attacks: Inside Liverpool's fight with ticket touts**\
 `Illegal selling of tickets has become a multi-million pound industry in the digital age - but the fightback has started `\
 https://nytimes.com/athletic/6031174/2025/01/03/liverpool-tickets-touts-crime/
-
-**The making of Morgan Gibbs-White - from mischievous schoolboy to 'special' footballer**\
-`The Nottingham Forest star's biggest influences - from the scout who discovered him to his first PE teacher - share their memories`\
-https://nytimes.com/athletic/6024505/2025/01/03/morgan-gibbs-white-profile/
 
