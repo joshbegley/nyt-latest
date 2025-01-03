@@ -1,4 +1,4 @@
-**Marc-Andre Fleury, shorthanded Wild pull off comeback shootout win: Takeaways**\
+**Marc-Andre Fleury, short-handed Wild pull off comeback shootout win: Takeaways**\
 `Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
 https://nytimes.com/athletic/6034635/2025/01/02/wild-fleury-shootout-ovechkin-capitals/
 
