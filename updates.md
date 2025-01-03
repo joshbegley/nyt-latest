@@ -1,3 +1,7 @@
+**Fable, a Book App, Makes Changes After Offensive A.I. Messages**\
+`The company introduced safeguards after readers flagged “bigoted” language in an artificial intelligence feature that crafts summaries.`\
+https://nytimes.com/2025/01/03/us/fable-ai-books-racism.html
+
 **This Movie Is Not Just About My Family**\
 `If there’s one film that’s worth your precious time, it’s this one.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/real-pain-film-golden-globe
