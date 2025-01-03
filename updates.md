@@ -1,3 +1,7 @@
+**SEC’s historically good men’s basketball race is on — predicting 2 months of hoops ecstasy**\
+`The SEC, clearly the nation's top conference is destined to break the Big East’s 2011 record of 11 teams with NCAA Tournament bids.`\
+https://nytimes.com/athletic/6034233/2025/01/03/sec-basketball-predictions-ncaa-tournament/
+
 **Michael Penix Jr.'s production hasn't been great, but Falcons believe his poise bodes well**\
 `Falcons coach Raheem Morris says he's seen enough from Penix to know he's the right guy.`\
 https://nytimes.com/athletic/6033998/2025/01/03/falcons-michael-penix-jr-future/
