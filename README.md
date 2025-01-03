@@ -1,3 +1,15 @@
+**House Republicans Pledge Drilling and Make It Easier to Shed Federal Land**\
+`The newly elected Speaker said the party would make it a priority to “restore America’s energy dominance.”`\
+https://nytimes.com/2025/01/03/climate/republicans-federal-land-drilling.html
+
+**Walker Buehler, poised for bounce-back year, adds veteran presence to Red Sox rotation**\
+`Buehler felt his mechanics click back into place towards the end of last season and feels ready for a rebound season with the Red Sox.`\
+https://nytimes.com/athletic/6036495/2025/01/03/walker-buehler-red-sox-introduction/
+
+**TikTok and Government Clash in Last Round of Supreme Court Briefs**\
+`The briefs, filed a week before oral arguments, offered sharply differing accounts of China’s influence over the site and the role of the First Amendment.`\
+https://nytimes.com/2025/01/03/us/politics/tiktok-ban-supreme-court.html
+
 **Justice Dept. Reaches Deal to Monitor Troubled Atlanta Jail**\
 `The facility in Fulton County, Georgia, has long had problems with assaults, drugs and pests.`\
 https://nytimes.com/2025/01/03/us/politics/justice-dept-fulton-county-jail.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6018617/2025/01/03/michigan-alabama-transfer-justic
 **Vinicius Junior sent off after pushing Valencia goalkeeper Dimitrievski**\
 `Vinicius Junior was sent off in the second half of Real Madrid&#8217;s La Liga fixture against Valencia after an off-the-ball push on opposition goalkeeper Stole Dimitrievski.`\
 https://nytimes.com/athletic/6036445/2025/01/03/vinicius-junior-red-card-valencia/
-
-**A Judge Upheld Trump’s Felony Conviction, but Signaled No Jail Time**\
-`Also, Mike Johnson was re-elected as House speaker. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/01/03/briefing/judge-sentencing-donald-trump-warnings-alcohol.html
-
-**Security Heightened in D.C. After New Year’s Day Attacks**\
-`Metropolitan Police say they will be ready for upcoming events at the Capitol.`\
-https://nytimes.com/2025/01/03/us/politics/trump-inauguration-jimmy-carter-funeral-security.html
-
-**Mika Zibanejad tunes out trade 'noise,' says his focus is on Rangers**\
-`With his name surfacing in the rumor mill, the Rangers center is more focused on turning his team's season around and improving his play.`\
-https://nytimes.com/athletic/6036195/2025/01/03/mika-zibanejad-rangers-nhl-trade/
 
