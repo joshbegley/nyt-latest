@@ -1,3 +1,7 @@
+**The speaker vote is a test of Trump’s influence.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-speaker-vote-is-a-test-of-trumps-influence
+
 **Villa defender Torres out for two months with broken metatarsal**\
 `Aston Villa manager Unai Emery has confirmed Pau Torres has suffered a broken metatarsal, ruling the defender out for two months.`\
 https://nytimes.com/athletic/6029135/2025/01/03/aston-villa-pau-torres-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035270/2025/01/03/marcus-rashford-man-utd-liverpoo
 **Here’s how the process to pick a speaker works.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-house-is-set-to-choose-a-speaker-heres-how-the-process-works
-
-**Man United to trigger one-year option in Maguire contract**\
-`Manchester United are set to trigger the one-year option in Harry Maguire&#8217;s contract with the club &#8220;starving for leaders on the pitch&#8221; according to head coach Ruben Amorim.`\
-https://nytimes.com/athletic/6035495/2025/01/03/manchester-united-harry-maguire-contract-option/
 
