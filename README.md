@@ -1,3 +1,7 @@
+**Yoon’s supporters have camped out near his home to try to shield him.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol/yoons-supporters-have-camped-out-near-his-home-to-try-to-shield-him
+
 **Farm to Table**\
 `Colin Adams opens our solving weekend.`\
 https://nytimes.com/2025/01/02/crosswords/daily-puzzle-2025-01-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6034358/2025/01/02/notre-dame-penn-state-picks-odds
 **Bourbon Street Returns to Life After Deadly Attack**\
 `With crowds, live music and a makeshift memorial to the victims who died in the New Year’s attack, the New Orleans street was bustling again.`\
 https://nytimes.com/2025/01/02/us/bourbon-street-new-orleans-attack.html
-
-**Soldier’s Bomb in Tesla Outside Trump Hotel Could Have Been More Lethal**\
-`Fellow soldiers say the Army sergeant who set off the explosion could have done far more harm. Investigators are trying to figure out why he didn’t.`\
-https://nytimes.com/2025/01/02/us/cybertruck-trump-las-vegas-bomb-livelsberger.html
 
