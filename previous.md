@@ -1,3 +1,11 @@
+**The Bounce: Does Jimmy Butler officially want a trade?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6035633/2025/01/03/jimmy-butler-heat-trade-knicks-thunder-victor-wembanyama-spurs-100th-game-nba-the-bounce/
+
+**Wolves to be without Lemina for Forest clash but Andre available**\
+`Wolves midfielder Mario Lemina will miss Monday’s clash with Nottingham Forest through injury but Andre is expected to be available despite returning to Brazil for the birth of his son.`\
+https://nytimes.com/athletic/6035652/2025/01/03/wolves-lemina-andre-forest-team-news/
+
 **9 Plays to Warm Up Winter in New York**\
 `Several festivals, including Under the Radar, are bringing a tantalizing breadth of new work to stages across New York.`\
 https://nytimes.com/2025/01/03/theater/january-theater-roundup.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035294/2025/01/03/chelsea-aaron-anselmino-squad/
 **Chelsea's Fofana could miss rest of season with torn hamstring**\
 `Chelsea defender Wesley Fofana could miss the rest of the season with the hamstring injury he sustained in December head coach Enzo Maresca has confirmed.`\
 https://nytimes.com/athletic/6035480/2025/01/03/chelsea-wesley-fofana-hamstring-injury/
-
-**Woe is the SEC: Playoff shows the rest of the country has caught up**\
-`The SEC can still be the best conference in college football. It will just have to go back to earning it.`\
-https://nytimes.com/athletic/6035437/2025/01/03/sec-college-football-playoff-conference-record/
-
-**If a speaker is not chosen on the first ballot, the House must keep voting.**\
-`By Maya C. Miller`\
-https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-a-speaker-is-not-chosen-on-the-first-ballot-the-house-must-keep-voting
 
