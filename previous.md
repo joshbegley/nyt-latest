@@ -1,3 +1,11 @@
+**Postecoglou has 'no problem' with Maddison's darts trip**\
+`Ange Postecoglou says he has “no problem” with James Maddison watching the PDC World Darts Championship at Alexandra Palace on the same day he could not start Tottenham Hotspur’s draw with Wolverhampton Wanderers because of illness.`\
+https://nytimes.com/athletic/6035704/2025/01/03/james-maddison-darts-tottenham-postecoglou/
+
+**Forest players 'did not ski' during Alps trip - Nuno**\
+`Nuno Espirito Santo says he trusts his Nottingham Forest players to behave responsibly after insisting the group that went on a trip to the Alps have assured him that they did not go skiing.`\
+https://nytimes.com/athletic/6035859/2025/01/03/nuno-nottingham-forest-ski-trip/
+
 **Marie Winn, Who Wrote of a Famous Central Park Hawk, Dies at 88**\
 `She chronicled the melodrama of Pale Male, a red-tailed hawk who became an avian sensation as it took up residence atop a Manhattan apartment building.`\
 https://nytimes.com/2025/01/03/nyregion/marie-winn-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/us/las-vegas-tesla-explosion-soldier-ptsd-notes.h
 **Luke Littler, 17, becomes youngest darts world champion**\
 `Luke Littler, 17, defeated Michael van Gerwen 7&#8211;3 at Alexandra Palace, London, to win his first PDC World Darts Championship title.`\
 https://nytimes.com/athletic/6035252/2025/01/03/luke-littler-darts-world-champion/
-
-**Read the Ruling That Upholds Trump’s Criminal Conviction**\
-`The full text of Justice Juan M. Merchan’s decision.`\
-https://nytimes.com/interactive/2025/01/03/nyregion/people-v-djt-clayton-decision.html
-
-**Wolves hopeful of completing Agbadou signing from Reims**\
-`Wolverhampton Wanderers are hopeful of completing the signing of Stade de Reims centre-back Emmanuel Agbadou.`\
-https://nytimes.com/athletic/6036290/2025/01/03/wolves-hopeful-of-completing-emmanuel-agbadou-signing-from-reims/
 

@@ -1,3 +1,11 @@
+**Postecoglou has 'no problem' with Maddison's darts trip**\
+`Ange Postecoglou says he has “no problem” with James Maddison watching the PDC World Darts Championship at Alexandra Palace on the same day he could not start Tottenham Hotspur’s draw with Wolverhampton Wanderers because of illness.`\
+https://nytimes.com/athletic/6035704/2025/01/03/james-maddison-darts-tottenham-postecoglou/
+
+**Forest players 'did not ski' during Alps trip - Nuno**\
+`Nuno Espirito Santo says he trusts his Nottingham Forest players to behave responsibly after insisting the group that went on a trip to the Alps have assured him that they did not go skiing.`\
+https://nytimes.com/athletic/6035859/2025/01/03/nuno-nottingham-forest-ski-trip/
+
 **Soldier Who Blew Up Tesla Had PTSD, Said U.S. Headed for ‘Collapse,’ Police Say**\
 `The police shared notes recovered from one of the phones of Master Sgt. Matthew Alan Livelsberger, who fatally shot himself inside the vehicle in Las Vegas.`\
 https://nytimes.com/2025/01/03/us/las-vegas-tesla-explosion-soldier-ptsd-notes.html
