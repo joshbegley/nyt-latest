@@ -1,3 +1,7 @@
+**Liverpool’s Gomez 'not in a good place' with hamstring injury, out for 'a few weeks'**\
+`Arne Slot has said Liverpool&#8217;s Joe Gomez is &#8220;not in a good place&#8221; with a hamstring injury with the head coach believing the defender will be unavailable &#8220;for a few weeks&#8221;.`\
+https://nytimes.com/athletic/6033194/2025/01/03/joe-gomez-injury-how-long-liverpool/
+
 **Giuliani, Slow to Give Up His Belongings, Tests Patience of Court**\
 `The former mayor of New York City could be held in contempt of court after failing to fully comply with orders to surrender millions of dollars in assets to election workers he defamed.`\
 https://nytimes.com/2025/01/03/nyregion/rudy-giuliani-assets-court-contempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009906271/california-plane-crash.html
 **Sabres blow multiple leads against Avalanche in another painful loss: Takeaways**\
 `Despite leads of 3-0, 4-2 and 5-3, the Sabres still found a way to lose. That's been the story of their season. "Just another painful loss."`\
 https://nytimes.com/athletic/6035110/2025/01/03/sabres-avalanche-blown-leads-takeaways/
-
-**Friday Briefing**\
-`The aftermath of a New Year’s attack in New Orleans.`\
-https://nytimes.com/2025/01/03/briefing/new-orleans-south-korea.html
 
