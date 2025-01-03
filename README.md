@@ -1,3 +1,7 @@
+**Forest duo Murillo, Hudson-Odoi set to return for Wolves game**\
+`Nuno Espirito Santo expects Nottingham Forest duo Murillo and Callum Hudson-Odoi to be fit to face his former club Wolverhampton Wanderers on Monday.`\
+https://nytimes.com/athletic/6035669/2025/01/03/nottingham-forest-murillo-hudson-odoi-wolves/
+
 **The Bounce: Does Jimmy Butler officially want a trade?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6035633/2025/01/03/jimmy-butler-heat-trade-knicks-thunder-victor-wembanyama-spurs-100th-game-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035422/2025/01/03/stephen-curry-warriors-8-for-8-3
 **Anselmino to train with Chelsea first-team after Boca Juniors recall**\
 `Enzo Maresca has said Chelsea plan for Aaron Anselmino to train with the first-team squad before making a decision on his immediate future.`\
 https://nytimes.com/athletic/6035294/2025/01/03/chelsea-aaron-anselmino-squad/
-
-**Chelsea's Fofana could miss rest of season with torn hamstring**\
-`Chelsea defender Wesley Fofana could miss the rest of the season with the hamstring injury he sustained in December head coach Enzo Maresca has confirmed.`\
-https://nytimes.com/athletic/6035480/2025/01/03/chelsea-wesley-fofana-hamstring-injury/
 
