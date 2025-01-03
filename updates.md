@@ -1,3 +1,7 @@
+**Live Updates: South Korean Officials Move to Detain President Yoon Suk Yeol**\
+`Officials are locked in a standoff with the president’s security team as they try to bring him in for questioning about his declaration of martial law last month.`\
+https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol
+
 **Marc-Andre Fleury, short-handed Wild pull off comeback shootout win: Takeaways**\
 `Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
 https://nytimes.com/athletic/6034635/2025/01/02/wild-fleury-shootout-ovechkin-capitals/

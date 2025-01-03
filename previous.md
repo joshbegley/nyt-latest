@@ -23,7 +23,7 @@ https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
 https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-interviews/
 
 **Live Updates: South Korean Officials Move to Detain President Yoon Suk Yeol**\
-`The authorities are seeking to compel the impeached leader to answer questions about his declaration of martial law, which plunged the country into a political crisis.`\
+`Officials are locked in a standoff with the president’s security team as they try to bring him in for questioning about his declaration of martial law last month.`\
 https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol
 
 **Two Killed and 18 Injured in Southern California Plane Crash**\
