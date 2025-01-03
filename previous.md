@@ -1,3 +1,31 @@
+**I Still Don’t Know Why I Said Yes**\
+`In the language of physics, we were a quantum entanglement event.`\
+https://nytimes.com/2025/01/03/style/modern-love-why-did-he-want-to-be-with-me.html
+
+**By the Fourth Date, Certain About Forever**\
+`Jasmine Bolton and Junior West, who met on the dating app Hinge, spent their fourth date at a friend’s wedding. The event sparked a desire for their own future nuptials.`\
+https://nytimes.com/2025/01/03/style/jasmine-bolton-junior-west-wedding.html
+
+**The Electron That Softened Her View on Marriage**\
+`Laurie Stone, a feminist and writer, has always believed that the institution of marriage “has not been a good thing for women.” Then she met Richard Toon.`\
+https://nytimes.com/2025/01/03/style/laurie-stone-richard-toon-wedding.html
+
+**A Flight Seatmate Turned Soul Mate**\
+`When Venkata Datta met PV Sindhu, a champion badminton player, on a plane, there was a spark, but her popularity concerned him. “She’s like the LeBron James of this side of the world,” he said.`\
+https://nytimes.com/2025/01/03/style/pv-sindhu-venkata-datta-wedding.html
+
+**He Wasn’t a ‘Bot,’ but Quickly Became Her Partner**\
+`Veronica Fitzpatrick and Kevin Fay met through the dating app Hinge in November 2022, and less than a year later, they became engaged.`\
+https://nytimes.com/2025/01/03/style/veronica-fitzpatrick-kevin-fay-wedding.html
+
+**Quote of the Day: Seductive Image of Naples Belies the Reality of a Struggling City**\
+`Quotation of the Day for Friday, January 3, 2025.`\
+https://nytimes.com/2025/01/02/pageoneplus/quote-of-the-day-seductive-image-of-naples-belies-the-reality-of-a-struggling-city.html
+
+**Besieged with injuries to big players, Wild keep winning: 'It’s what good teams do, I think'**\
+`The Wild played one of their most impressive games this season against the Capitals despite a long list of injured stars.`\
+https://nytimes.com/athletic/6034989/2025/01/02/wild-injuries-fleury-rossi-capitals/
+
 **Wheeler: Hockey Canada has big questions to answer after another disappointing World Juniors**\
 `If there’s truly a high standard at Hockey Canada, then not playing in a medal game for two straight years shouldn’t meet it.`\
 https://nytimes.com/athletic/6034832/2025/01/02/canada-world-juniors-loss-czechia/
@@ -9,33 +37,4 @@ https://nytimes.com/athletic/6034848/2025/01/02/canada-world-juniors-2025-strugg
 **How Blue Jackets' crucial last-minute mistake led to gut-wrenching loss to Red Wings**\
 `Detroit's Jonatan Berggren scored the go-ahead goal with 36 seconds remaining in the third period to hand Columbus a 5-4 loss.`\
 https://nytimes.com/athletic/6034833/2025/01/02/blue-jackets-red-wings-jonatan-berggren/
-
-**Sampson: This Notre Dame team is different. There should be no doubt about it now**\
-`Notre Dame beating Georgia in the Sugar Bowl to earn a spot in the College Football Playoff semifinals is a program-defining result.`\
-https://nytimes.com/athletic/6034864/2025/01/02/notre-dame-sugar-bowl-playoff-georgia/
-
-**Jonathan Quick proves why he's 'a legend in this game' vs. Bruins: Rangers takeaways**\
-`The Rangers badly needed a win. Quick made sure they got one with an excellent performance against the Bruins.`\
-https://nytimes.com/athletic/6034923/2025/01/02/rangers-jonathan-quick-berard-bruins/
-
-**Jimmy Butler wants to find his joy again; can he do it with Heat? 'Probably not'**\
-`Since last summer, Butler and the Miami have been at odds over his future with the team.`\
-https://nytimes.com/athletic/6034873/2025/01/02/jimmy-butler-heat-future/
-
-**'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
-`The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
-`\
-https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
-
-**Maple Leafs report cards: Strong individual performances but weak team effort**\
-`Bobby McMann scored Toronto's only goals and Joseph Woll made quality saves, but despite the win, the overall team effort wasn't impressive.`\
-https://nytimes.com/athletic/6034851/2025/01/02/maple-leafs-islanders-bobby-mcmann-grades/
-
-**Canada loses in World Juniors quarters again while USA's top players shine**\
-`Team USA's top line finally had the explosive game they've been waiting for, while Czechia held on to send Canada packing.`\
-https://nytimes.com/athletic/6006898/2025/01/02/canada-world-juniors-usa-2025/
-
-**Houston Dash to appoint Fabrice Gautrat as head coach: Source**\
-`Houston hopes new coach Fabrice Gautrat will revive their fortunes`\
-https://nytimes.com/athletic/6034813/2025/01/02/houston-dash-fabrice-gautrat-nwsl/
 

@@ -1,3 +1,31 @@
+**I Still Don’t Know Why I Said Yes**\
+`In the language of physics, we were a quantum entanglement event.`\
+https://nytimes.com/2025/01/03/style/modern-love-why-did-he-want-to-be-with-me.html
+
+**By the Fourth Date, Certain About Forever**\
+`Jasmine Bolton and Junior West, who met on the dating app Hinge, spent their fourth date at a friend’s wedding. The event sparked a desire for their own future nuptials.`\
+https://nytimes.com/2025/01/03/style/jasmine-bolton-junior-west-wedding.html
+
+**The Electron That Softened Her View on Marriage**\
+`Laurie Stone, a feminist and writer, has always believed that the institution of marriage “has not been a good thing for women.” Then she met Richard Toon.`\
+https://nytimes.com/2025/01/03/style/laurie-stone-richard-toon-wedding.html
+
+**A Flight Seatmate Turned Soul Mate**\
+`When Venkata Datta met PV Sindhu, a champion badminton player, on a plane, there was a spark, but her popularity concerned him. “She’s like the LeBron James of this side of the world,” he said.`\
+https://nytimes.com/2025/01/03/style/pv-sindhu-venkata-datta-wedding.html
+
+**He Wasn’t a ‘Bot,’ but Quickly Became Her Partner**\
+`Veronica Fitzpatrick and Kevin Fay met through the dating app Hinge in November 2022, and less than a year later, they became engaged.`\
+https://nytimes.com/2025/01/03/style/veronica-fitzpatrick-kevin-fay-wedding.html
+
+**Quote of the Day: Seductive Image of Naples Belies the Reality of a Struggling City**\
+`Quotation of the Day for Friday, January 3, 2025.`\
+https://nytimes.com/2025/01/02/pageoneplus/quote-of-the-day-seductive-image-of-naples-belies-the-reality-of-a-struggling-city.html
+
+**Besieged with injuries to big players, Wild keep winning: 'It’s what good teams do, I think'**\
+`The Wild played one of their most impressive games this season against the Capitals despite a long list of injured stars.`\
+https://nytimes.com/athletic/6034989/2025/01/02/wild-injuries-fleury-rossi-capitals/
+
 **'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
 `The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
 `\
