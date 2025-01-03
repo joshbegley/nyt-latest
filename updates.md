@@ -1,3 +1,11 @@
+**Elon Musk Has a Strange Fixation With Trolling Britain**\
+`In a barrage of posts rife with misinformation, he revived questions about a child sex abuse scandal, vilified the prime minister and defended a jailed far-right agitator.`\
+https://nytimes.com/2025/01/03/world/europe/elon-musk-britain-social-media.html
+
+**Steph Curry on Steve Kerr's trimmed rotation: 'Narrowing ... (it) helps everybody'**\
+`At 17-16, the Warriors are still searching for some traction. But Steve Kerr's desire for a smaller rotation has reaped some benefits.`\
+https://nytimes.com/athletic/6035103/2025/01/03/steph-curry-steve-kerr-warriors-rotation/
+
 **David Lodge, British Novelist Who Satirized Academic Life, Dies at 89**\
 `His 15 well-plotted novels teemed with romance and strange coincidence. An erudite literary critic with an ear for language, he also wrote a raft of nonfiction books.`\
 https://nytimes.com/2025/01/03/books/david-lodge-dead.html
