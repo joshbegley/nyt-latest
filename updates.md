@@ -1,3 +1,7 @@
+**Colts QB Anthony Richardson ruled out for season finale vs. Jaguars**\
+`Richardson will miss a second straight game due to a back injury, ending his season.`\
+https://nytimes.com/athletic/6035983/2025/01/03/anthony-richardson-out-colts-season-finale/
+
 **Elon Musk Has a Strange Fixation With Trolling Britain**\
 `In a barrage of posts rife with misinformation, he revived questions about a child sex abuse scandal, vilified the prime minister and defended a jailed far-right agitator.`\
 https://nytimes.com/2025/01/03/world/europe/elon-musk-britain-social-media.html

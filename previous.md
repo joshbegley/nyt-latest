@@ -1,3 +1,7 @@
+**Colts QB Anthony Richardson ruled out for season finale vs. Jaguars**\
+`Richardson will miss a second straight game due to a back injury, ending his season.`\
+https://nytimes.com/athletic/6035983/2025/01/03/anthony-richardson-out-colts-season-finale/
+
 **Elon Musk Has a Strange Fixation With Trolling Britain**\
 `In a barrage of posts rife with misinformation, he revived questions about a child sex abuse scandal, vilified the prime minister and defended a jailed far-right agitator.`\
 https://nytimes.com/2025/01/03/world/europe/elon-musk-britain-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035751/2025/01/03/pga-tour-tour-championship-brack
 **Plea Hearing in Sept. 11 Case Postponed to Jan. 10**\
 `A judge cited winter weather and a federal holiday for Jimmy Carter’s funeral as reasons for the delay. Government lawyers may also try again to overturn the plea deal.`\
 https://nytimes.com/2025/01/03/us/politics/plea-deal-sept-11-postponed.html
-
-**Live Vote Count: Tracking the House Speaker Votes**\
-`Follow the House speaker vote as Representative Mike Johnson seeks re-election.`\
-https://nytimes.com/interactive/2025/01/03/us/house-speaker-vote.html
 
