@@ -1,3 +1,7 @@
+**Anthony Edwards' frustration is rising as the Timberwolves search for answers**\
+`It requires patience and perspective, and that is not always easy for a player as young and ambitious as Edwards.`\
+https://nytimes.com/athletic/6034568/2025/01/03/anthony-edwards-frustration-timberwolves-search-answers/
+
 **New Orleans Was Called Resilient After Attack. It Didn’t Need the Reminder.**\
 `The city was seeing glimmers of optimism for what the new year might bring before the horrendous attack on the French Quarter.`\
 https://nytimes.com/2025/01/03/us/new-orleans-attack-recovery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035633/2025/01/03/jimmy-butler-heat-trade-knicks-t
 **Wolves to be without Lemina for Forest clash but Andre available**\
 `Wolves midfielder Mario Lemina will miss Monday’s clash with Nottingham Forest through injury but Andre is expected to be available despite returning to Brazil for the birth of his son.`\
 https://nytimes.com/athletic/6035652/2025/01/03/wolves-lemina-andre-forest-team-news/
-
-**9 Plays to Warm Up Winter in New York**\
-`Several festivals, including Under the Radar, are bringing a tantalizing breadth of new work to stages across New York.`\
-https://nytimes.com/2025/01/03/theater/january-theater-roundup.html
 

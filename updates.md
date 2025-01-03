@@ -1,3 +1,7 @@
+**New Orleans Was Called Resilient After Attack. It Didn’t Need the Reminder.**\
+`The city was seeing glimmers of optimism for what the new year might bring before the horrendous attack on the French Quarter.`\
+https://nytimes.com/2025/01/03/us/new-orleans-attack-recovery.html
+
 **After Trump vs. Harris, He Turns to the Washington Commanders**\
 `The NBC correspondent Steve Kornacki developed a following for his touch-screen analysis during elections. He also untangles playoff projections for N.F.L. teams.`\
 https://nytimes.com/2025/01/03/arts/television/steve-kornacki-nbc-election-football.html

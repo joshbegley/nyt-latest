@@ -1,3 +1,7 @@
+**New Orleans Was Called Resilient After Attack. It Didn’t Need the Reminder.**\
+`The city was seeing glimmers of optimism for what the new year might bring before the horrendous attack on the French Quarter.`\
+https://nytimes.com/2025/01/03/us/new-orleans-attack-recovery.html
+
 **After Trump vs. Harris, He Turns to the Washington Commanders**\
 `The NBC correspondent Steve Kornacki developed a following for his touch-screen analysis during elections. He also untangles playoff projections for N.F.L. teams.`\
 https://nytimes.com/2025/01/03/arts/television/steve-kornacki-nbc-election-football.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035652/2025/01/03/wolves-lemina-andre-forest-team-
 **9 Plays to Warm Up Winter in New York**\
 `Several festivals, including Under the Radar, are bringing a tantalizing breadth of new work to stages across New York.`\
 https://nytimes.com/2025/01/03/theater/january-theater-roundup.html
-
-**JetBlue Fined $2 Million for Chronic Delays**\
-`The Transportation Department’s first ever penalty for chronic delays takes aim at four routes that consistently arrived late for five consecutive months.`\
-https://nytimes.com/2025/01/03/travel/jetblue-fined-chronic-delays-east-coast.html
 
