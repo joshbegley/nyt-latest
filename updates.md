@@ -1,3 +1,7 @@
+**Los Angeles Is Living Its ‘Y2K’ in 2025 as Sheriff’s Dispatch System Fails**\
+`The Los Angeles Sheriff’s Department is in the third day of an outage of its computer-aided dispatch system in its vehicles, leaving deputies to resort to old methods as they respond to calls.`\
+https://nytimes.com/2025/01/03/us/la-county-sheriff-dispatch-system-crash.html
+
 **Britt Allcroft, Who Brought Thomas the Tank Engine to TV, Dies at 81**\
 `She adapted the children’s book series to TV, creating a lasting cultural behemoth that spawned movies, merchandise and theme parks.`\
 https://nytimes.com/2025/01/03/arts/britt-allcroft-thomas-tank-engine-dead.html

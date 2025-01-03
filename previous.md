@@ -1,3 +1,7 @@
+**Los Angeles Is Living Its ‘Y2K’ in 2025 as Sheriff’s Dispatch System Fails**\
+`The Los Angeles Sheriff’s Department is in the third day of an outage of its computer-aided dispatch system in its vehicles, leaving deputies to resort to old methods as they respond to calls.`\
+https://nytimes.com/2025/01/03/us/la-county-sheriff-dispatch-system-crash.html
+
 **Britt Allcroft, Who Brought Thomas the Tank Engine to TV, Dies at 81**\
 `She adapted the children’s book series to TV, creating a lasting cultural behemoth that spawned movies, merchandise and theme parks.`\
 https://nytimes.com/2025/01/03/arts/britt-allcroft-thomas-tank-engine-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035103/2025/01/03/steph-curry-steve-kerr-warriors-
 **David Lodge, British Novelist Who Satirized Academic Life, Dies at 89**\
 `His 15 well-plotted novels teemed with romance and strange coincidence. An erudite literary critic with an ear for language, he also wrote a raft of nonfiction books.`\
 https://nytimes.com/2025/01/03/books/david-lodge-dead.html
-
-**Lewis-Potter close to new long-term contract at Brentford**\
-`Keane Lewis-Potter is close to agreeing a new long-term contract with Brentford.`\
-https://nytimes.com/athletic/6036032/2025/01/03/brentford-lewis-potter-contract-new/
 
