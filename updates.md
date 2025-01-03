@@ -1,3 +1,7 @@
+**Mary Anne Krupsak, Trailblazing New York Politician, Dies at 92**\
+`She was the first woman elected lieutenant governor in the state after defying party leaders and her eventual running mate to win the nomination.`\
+https://nytimes.com/2025/01/02/nyregion/mary-anne-krupsak-dead.html
+
 **Jauan Jennings needs 77 yards for first 1,000-yard season. Good thing he's buds with 49ers QB**\
 `Joshua Dobbs is well aware of the receiver's milestone. "Hopefully, we can take care of that early," he said Thursday.`\
 https://nytimes.com/athletic/6033849/2025/01/02/jauan-jennings-joshua-dobbs-49ers-friendship-tennessee/
