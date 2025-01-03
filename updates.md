@@ -1,3 +1,16 @@
+**Jonathan Quick proves why he's 'a legend in this game' vs. Bruins: Rangers takeaways**\
+`The Rangers badly needed a win. Quick made sure they got one with an excellent performance against the Bruins.`\
+https://nytimes.com/athletic/6034923/2025/01/02/rangers-jonathan-quick-berard-bruins/
+
+**'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
+`The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
+`\
+https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
+
+**South Korean President’s Supporters Camp Out Near His Home**\
+`For days, thousands have been outside the house in central Seoul, trying to shield President Yoon Suk Yeol.`\
+https://nytimes.com/2025/01/02/world/asia/yoons-supporters-house.html
+
 **'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
 `The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
 `\
