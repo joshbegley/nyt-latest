@@ -1,3 +1,7 @@
+**Soldier Who Blew Up Tesla Had PTSD, Said U.S. Headed for ‘Collapse,’ Police Say**\
+`The police shared notes recovered from one of the phones of Master Sgt. Matthew Alan Livelsberger, who fatally shot himself inside the vehicle in Las Vegas.`\
+https://nytimes.com/2025/01/03/us/las-vegas-tesla-explosion-soldier-ptsd-notes.html
+
 **Marie Winn, Who Wrote of a Famous Central Park Hawk, Dies at 88**\
 `She chronicled the melodrama of Pale Male, a red-tailed hawk who became an avian sensation as it took up residence atop a Manhattan apartment building.`\
 https://nytimes.com/2025/01/03/nyregion/marie-winn-dead.html
