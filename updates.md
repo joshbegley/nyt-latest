@@ -1,3 +1,7 @@
+**The Case for Hope for Palestinians**\
+`Israeli accountability, a powerful protest movement and an emerging generation of leaders could bring a better future for Palestinians.`\
+https://nytimes.com/2025/01/03/opinion/palestinians-israel-gaza.html
+
 **Biden Plans to Block Takeover Bid of U.S. Steel by Japan’s Nippon**\
 `The president’s announcement of the fate of the iconic Pennsylvania-based company, which became a contentious political issue in an election year, is expected as soon as Friday.`\
 https://nytimes.com/2025/01/03/us/politics/us-steel-nippon-biden.html
