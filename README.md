@@ -1,3 +1,7 @@
+**Sabres blow multiple leads against Avalanche in another painful loss: Takeaways**\
+`Despite leads of 3-0, 4-2 and 5-3, the Sabres still found a way to lose. That's been the story of their season. "Just another painful loss."`\
+https://nytimes.com/athletic/6035110/2025/01/03/sabres-avalanche-blown-leads-takeaways/
+
 **Friday Briefing**\
 `The aftermath of a New Year’s attack in New Orleans.`\
 https://nytimes.com/2025/01/03/briefing/new-orleans-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026689/2025/01/03/celine-haidar-lebanon-football/
 **Nine-darters to golden sets: What's the most perfect achievement in sport?**\
 `Every sport has an individual achievement which is deemed the holy grail for competitors`\
 https://nytimes.com/athletic/6032894/2025/01/03/sport-perfect-thing/
-
-**Arteta's squad-building has had a defensive focus - is it now time for that to change?**\
-`Analysing where the Arsenal manager has spent money during his five years in charge – and whether that now needs to change`\
-https://nytimes.com/athletic/6006310/2025/01/03/mikel-artetas-squad-building-has-had-a-defensive-focus-is-it-time-for-that-to-change/
 
