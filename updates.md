@@ -1,3 +1,11 @@
+**The officiating blunder your club's fans are still going on about**\
+`From European scandals to cup final disappointments, we look back on decisions by officials that left a lasting impact of fanbases.`\
+https://nytimes.com/athletic/6032908/2025/01/03/referee-decisions-you-cannot-forget/
+
+**Maple Leafs sign Philippe Myers to two-year contract extension**\
+`Toronto locks up defenceman for two additional seasons on deal that carries $850,000 AAV.`\
+https://nytimes.com/athletic/6035887/2025/01/03/maple-leafs-philippe-myers-contract-nhl/
+
 **Fantasy trends and hidden gems: Manifesting championships with Thompson and Byfield**\
 `Shayna Goldman says to buy Logan Thompson while you still can. Quinton Byfield offers versatility with Kings; his slow start has ended. `\
 https://nytimes.com/athletic/6035057/2025/01/03/week-14-fantasy-trends-and-hidden-gems/

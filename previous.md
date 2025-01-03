@@ -1,3 +1,11 @@
+**The officiating blunder your club's fans are still going on about**\
+`From European scandals to cup final disappointments, we look back on decisions by officials that left a lasting impact of fanbases.`\
+https://nytimes.com/athletic/6032908/2025/01/03/referee-decisions-you-cannot-forget/
+
+**Maple Leafs sign Philippe Myers to two-year contract extension**\
+`Toronto locks up defenceman for two additional seasons on deal that carries $850,000 AAV.`\
+https://nytimes.com/athletic/6035887/2025/01/03/maple-leafs-philippe-myers-contract-nhl/
+
 **Fantasy trends and hidden gems: Manifesting championships with Thompson and Byfield**\
 `Shayna Goldman says to buy Logan Thompson while you still can. Quinton Byfield offers versatility with Kings; his slow start has ended. `\
 https://nytimes.com/athletic/6035057/2025/01/03/week-14-fantasy-trends-and-hidden-gems/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035664/2025/01/03/dorian-finney-smith-lakers-cade-
 **Sporting director Berta to leave Atletico, prepare for possible Premier League move**\
 `Sporting director Andrea Berta will prepare for a possible move to the Premier League by studying English in London when he leaves Atletico Madrid.`\
 https://nytimes.com/athletic/5922826/2025/01/03/atletico-madrid-sporting-director-who/
-
-**Why nobody can stop this version of Ohio State: Final thoughts from the Rose Bowl**\
-`After all the Michigan angst, Ohio State is suddenly doing everything right in the Playoff. Here's why the Buckeyes are peaking now.`\
-https://nytimes.com/athletic/6035667/2025/01/03/ohio-state-oregon-rose-bowl-takeaways/
-
-**Brighton trying to sign Palmeiras defender Vitor Reis**\
-`Brighton &amp; Hove Albion are trying to conclude a deal to buy teenage central defender Vitor Reis from Palmeiras.`\
-https://nytimes.com/athletic/6035578/2025/01/03/brighton-transfer-vitor-reis/
 
