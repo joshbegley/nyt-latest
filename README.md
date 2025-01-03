@@ -29,7 +29,7 @@ https://nytimes.com/athletic/6034813/2025/01/02/houston-dash-fabrice-gautrat-nws
 
 **Emerson: Georgia was not elite this season, but what about the future?**\
 `The Bulldogs lost 23-10 to Notre Dame in the Sugar Bowl, ending their season in the CFP quarterfinals. `\
-https://nytimes.com/athletic/6034843/2025/01/02/georgia-wasnt-elite-this-season-but-was-cfp-loss-a-sign-of-the-program-slipping/
+https://nytimes.com/athletic/6034843/2025/01/02/georgia-college-football-sugar-bowl-loss/
 
 **Marc-Andre Fleury, short-handed Wild pull off comeback shootout win: Takeaways**\
 `Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
