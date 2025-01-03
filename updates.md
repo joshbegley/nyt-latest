@@ -1,3 +1,7 @@
+**Arsenal's White could make return from injury in January**\
+`Mikel Arteta has said that a January return “might be a possibility” for Ben White as the defender has progressed well after undergoing a procedure on his knee in the November international break.`\
+https://nytimes.com/athletic/6035278/2025/01/03/arsenal-team-news-ben-white/
+
 **Anfernee Simons in 'hardest mental battle' amid Blazers' losing, but won't ask for trade**\
 `Once an up-and-coming star, Simons’ ascent has stalled this season. And he admits his struggle is getting harder to hide.`\
 https://nytimes.com/athletic/6034414/2025/01/03/anfernee-simons-trail-blazers-chauncey-billups-nba/
