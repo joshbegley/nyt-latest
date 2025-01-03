@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`The aftermath of a New Year’s attack in New Orleans.`\
+https://nytimes.com/2025/01/03/briefing/new-orleans-south-korea.html
+
 **The Case for Hope for Palestinians**\
 `Israeli accountability, a powerful protest movement and an emerging generation of leaders could bring a better future for Palestinians.`\
 https://nytimes.com/2025/01/03/opinion/palestinians-israel-gaza.html

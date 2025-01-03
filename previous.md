@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`The aftermath of a New Year’s attack in New Orleans.`\
+https://nytimes.com/2025/01/03/briefing/new-orleans-south-korea.html
+
 **The Case for Hope for Palestinians**\
 `Israeli accountability, a powerful protest movement and an emerging generation of leaders could bring a better future for Palestinians.`\
 https://nytimes.com/2025/01/03/opinion/palestinians-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032894/2025/01/03/sport-perfect-thing/
 **Arteta's squad-building has had a defensive focus - is it now time for that to change?**\
 `Analysing where the Arsenal manager has spent money during his five years in charge – and whether that now needs to change`\
 https://nytimes.com/athletic/6006310/2025/01/03/mikel-artetas-squad-building-has-had-a-defensive-focus-is-it-time-for-that-to-change/
-
-**Near-post weakness and exposing Onana: Why Manchester United are so bad at defending corners**\
-`A analytical and tactical breakdown of Ruben Amorim's side's inability to deal with corners `\
-https://nytimes.com/athletic/6031108/2025/01/03/why-manchester-united-cant-defend-corners/
 
