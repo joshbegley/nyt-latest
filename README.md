@@ -1,3 +1,11 @@
+**Notre Dame tops Georgia in Sugar Bowl delayed a day by New Orleans attack**\
+`Notre Dame won a major bowl for the first time in 31 years, beating Georgia 23-10 to move on to the College Football Playoff semifinals.`\
+https://nytimes.com/athletic/6034510/2025/01/02/notre-dame-georgia-sugar-bowl-new-orleans-attack/
+
+**Jauan Jennings needs 77 yards for first 1,000-yard season. Good thing he's buds with 49ers QB**\
+`Joshua Dobbs is well aware of the receiver's milestone. "Hopefully, we can take care of that early," he said Thursday.`\
+https://nytimes.com/athletic/6033849/2025/01/02/jauan-jennings-joshua-dobbs-49ers-friendship-tennessee/
+
 **Jared Spurgeon expected to miss 2-3 weeks with injury, plus Kirill Kaprizov update**\
 `Bill Guerin told reporters Spurgeon's injury isn't as bad as the team originally thought and provided an update on the captain.`\
 https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kirill-kaprizov-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/02/world/asia/south-korea-president-yoon-suk-yeol.ht
 **Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
 `A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
 https://nytimes.com/athletic/6032129/2025/01/02/asu-texas-targeting-peach-bowl-playoff/
-
-**NWSL expansion adds Denver as 16th team, $110 million fee smashes record: source**\
-`The expansion fee totals $110 million and the first payment has already been made, according to the source`\
-https://nytimes.com/athletic/6034199/2025/01/02/nwsl-expansion-denver-record-price/
-
-**Mary Anne Krupsak, Trailblazing New York Politician, Dies at 92**\
-`She was the first woman elected lieutenant governor in the state after defying party leaders and her eventual running mate to win the nomination.`\
-https://nytimes.com/2025/01/02/nyregion/mary-anne-krupsak-dead.html
 
