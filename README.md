@@ -1,3 +1,7 @@
+**Pelosi returns to Congress after hip surgery, without her signature stilettos.**\
+`By Annie Karni`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/pelosi-returns-to-congress-after-hip-surgery-without-her-signature-stilettos
+
 **West Virginia, Rodriguez bringing Noel Devine on staff as offensive analyst**\
 `Devine, who played four years at WVU, was one of the first high school football recruits to have his highlights go viral.`\
 https://nytimes.com/athletic/6036094/2025/01/03/west-virginia-hiring-noel-devine-richrod-staff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036032/2025/01/03/brentford-lewis-potter-contract-
 **Bevo's back: Texas' live mascot to attend Cotton Bowl vs. Ohio State**\
 `Texas' live mascot, which weighs more than 1,700 pounds and has a horn span of more than 58 inches, is set to attend the CFP semifinal.`\
 https://nytimes.com/athletic/6035961/2025/01/03/bevo-texas-live-mascot-cotton-bowl-semifinal-ohio-state/
-
-**Heat Today: How did Jimmy Butler, Pat Riley and Miami reach this point?**\
-`Butler and Riley once shared dreams of winning a championship together in South Florida. How did things get this bad?`\
-https://nytimes.com/athletic/6035886/2025/01/03/jimmy-butler-pat-riley-heat-trade-rockets-warriors-mavericks-suns-nba/
 
