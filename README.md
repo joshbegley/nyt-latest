@@ -1,3 +1,7 @@
+**Heat Today: How did Jimmy Butler, Pat Riley and Miami reach this point?**\
+`Butler and Riley once shared dreams of winning a championship together in South Florida. How did things get this bad?`\
+https://nytimes.com/athletic/6035886/2025/01/03/jimmy-butler-pat-riley-heat-trade-rockets-warriors-mavericks-suns-nba/
+
 **Should Democrats Try to Work With Trump?**\
 `Responses to a column by Jamelle Bouie. Also: Trade with China; rising autism rates; in awe of Schubert; games as a common bond; Local Call’s work.`\
 https://nytimes.com/2025/01/03/opinion/letters/democrats-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009906441/officials-fail-to-arrest-so
 **Quarry Workers Find Dinosaur Footprints in ‘Snapshot’ of Jurassic Britain**\
 `The prints were made by both long-necked sauropods and a predator, megalosaurus, and were found in one of the largest discoveries in decades.`\
 https://nytimes.com/2025/01/03/world/europe/dinosaur-footprints-quarry-uk.html
-
-**Harper: 4 key questions about the Jimmy Butler trade chatter**\
-`Things are getting messy with Butler in Miami. What comes next?`\
-https://nytimes.com/athletic/6035701/2025/01/03/jimmy-butler-trade-rumors-heat/
 
