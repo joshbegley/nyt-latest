@@ -1,3 +1,7 @@
+**Kurz: Flyers' Aleksei Kolosov isn't an NHL goalie. It's time to pull the plug**\
+`Kolosov is dead last in the league in save percentage among the 56 goalies who have played at least 600 minutes this season.`\
+https://nytimes.com/athletic/6035177/2025/01/03/flyers-golden-knights-aleksei-kolosov/
+
 **Derrick White energized, Jayson Tatum asks for Anthony Edwards in Celtics win**\
 `After an unusually turbulent December, Boston sure did seem to enjoy finding ways to overcome a sharp performance from Minnesota.`\
 https://nytimes.com/athletic/6035169/2025/01/03/derrick-white-jayson-tatum-anthony-edwards-celtics-win/

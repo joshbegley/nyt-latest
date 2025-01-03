@@ -1,3 +1,7 @@
+**Kurz: Flyers' Aleksei Kolosov isn't an NHL goalie. It's time to pull the plug**\
+`Kolosov is dead last in the league in save percentage among the 56 goalies who have played at least 600 minutes this season.`\
+https://nytimes.com/athletic/6035177/2025/01/03/flyers-golden-knights-aleksei-kolosov/
+
 **Derrick White energized, Jayson Tatum asks for Anthony Edwards in Celtics win**\
 `After an unusually turbulent December, Boston sure did seem to enjoy finding ways to overcome a sharp performance from Minnesota.`\
 https://nytimes.com/athletic/6035169/2025/01/03/derrick-white-jayson-tatum-anthony-edwards-celtics-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/us/politics/us-steel-nippon-biden.html
 **Why Levy, not Postecoglou, is feeling the snap of Spurs' winter of discontent**\
 `Spurs are on course for their worst season in 20 years, but it is not the head coach bearing the brunt of the fans' anger`\
 https://nytimes.com/athletic/6029357/2025/01/03/tottenham-atmosphere-fans-levy-postecoglou/
-
-**Baleba is highly-rated - Brighton's strength in depth means they can plan for an exit**\
-`Brighton have exceptional depth in midfield, which can only impact plans for Baleba`\
-https://nytimes.com/athletic/6021587/2025/01/03/brighton-carlos-baleba-transfer-analysis/
 
