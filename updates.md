@@ -1,3 +1,7 @@
+**When History Rhymes**\
+`We cover the surprising parallels between Donald Trump and a president from the past.`\
+https://nytimes.com/2025/01/03/briefing/donald-trump-grover-cleveland.html
+
 **Bears' biggest disappointments, Ryan Poles choosing head coach, mailbag, Week 18 picks**\
 `Answering your questions about possible free-agent targets on the lines, the key to "culture" and Braxton Jones' future. `\
 https://nytimes.com/athletic/6034431/2025/01/03/bears-mailbag-ryan-poles-biggest-disappointments/

@@ -1,3 +1,7 @@
+**When History Rhymes**\
+`We cover the surprising parallels between Donald Trump and a president from the past.`\
+https://nytimes.com/2025/01/03/briefing/donald-trump-grover-cleveland.html
+
 **Bears' biggest disappointments, Ryan Poles choosing head coach, mailbag, Week 18 picks**\
 `Answering your questions about possible free-agent targets on the lines, the key to "culture" and Braxton Jones' future. `\
 https://nytimes.com/athletic/6034431/2025/01/03/bears-mailbag-ryan-poles-biggest-disappointments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6034054/2025/01/03/mike-vrabel-nfl-coaching-browns-
 **Dach family reunion at center ice: Colton's NHL debut comes against brother Kirby**\
 `The Dachs have faced a lot of ups and downs over recent years, but sharing NHL ice for the first time will be "definitely memorable."`\
 https://nytimes.com/athletic/6034317/2025/01/03/colton-dach-kirby-brothers-debut-blackhawks-canadiens/
-
-**How will the Packers approach regular-season finale against Bears?**\
-`Don't expect any healthy players to rest for the Packers despite a playoff spot already being clinched.`\
-https://nytimes.com/athletic/6033920/2025/01/03/packers-regular-season-finale-bears/
 
