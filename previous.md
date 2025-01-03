@@ -2,7 +2,7 @@
 `Notre Dame beating Georgia in the Sugar Bowl to earn a spot in the College Football Playoff semifinals is a program-defining result.`\
 https://nytimes.com/athletic/6034864/2025/01/02/notre-dame-sugar-bowl-playoff-georgia/
 
-**Jonathan Quick proves why 'he's a legend in this game' vs. Bruins: Rangers takeaways**\
+**Jonathan Quick proves why he's 'a legend in this game' vs. Bruins: Rangers takeaways**\
 `The Rangers badly needed a win. Jonathan Quick made sure they got one with an excellent performance against the Bruins.`\
 https://nytimes.com/athletic/6034923/2025/01/02/rangers-jonathan-quick-berard-bruins/
 
