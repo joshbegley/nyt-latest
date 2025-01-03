@@ -1,3 +1,15 @@
+**Sampson: This Notre Dame team is different. There should be no doubt about it now**\
+`Notre Dame beating Georgia in the Sugar Bowl to earn a spot in the College Football Playoff semifinals is a program-defining result.`\
+https://nytimes.com/athletic/6034864/2025/01/02/notre-dame-sugar-bowl-playoff-georgia/
+
+**Jonathan Quick proves why 'he's a legend in this game' vs. Bruins: Rangers takeaways**\
+`The Rangers badly needed a win. Jonathan Quick made sure they got one with an excellent performance against the Bruins.`\
+https://nytimes.com/athletic/6034923/2025/01/02/rangers-jonathan-quick-berard-bruins/
+
+**Jimmy Butler wants to find his joy again; can he do it with Heat? 'Probably not'**\
+`Since last summer, Butler and the Miami have been at odds over his future with the team.`\
+https://nytimes.com/athletic/6034873/2025/01/02/jimmy-butler-heat-future/
+
 **'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
 `The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
 `\
@@ -17,7 +29,7 @@ https://nytimes.com/athletic/6034813/2025/01/02/houston-dash-fabrice-gautrat-nws
 
 **Emerson: Georgia was not elite this season, but what about the future?**\
 `The Bulldogs lost 23-10 to Notre Dame in the Sugar Bowl, ending their season in the CFP quarterfinals. `\
-https://nytimes.com/athletic/6034843/2025/01/02/georgia-wasnt-elite-this-season-but-was-cfp-loss-a-sign-of-the-program-slipping/
+https://nytimes.com/athletic/6034843/2025/01/02/georgia-college-football-sugar-bowl-loss/
 
 **Marc-Andre Fleury, short-handed Wild pull off comeback shootout win: Takeaways**\
 `Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
@@ -25,17 +37,5 @@ https://nytimes.com/athletic/6034635/2025/01/02/wild-fleury-shootout-ovechkin-ca
 
 **Yoon’s supporters have camped out near his home to try to shield him.**\
 `By Choe Sang-Hun`\
-https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol/yoons-supporters-have-camped-out-near-his-home-to-try-to-shield-him
-
-**Farm to Table**\
-`Colin Adams opens our solving weekend.`\
-https://nytimes.com/2025/01/02/crosswords/daily-puzzle-2025-01-03.html
-
-**Mandel's Final Thoughts: Rust Belt schools get their CFP revenge in quarterfinals**\
-`Texas, Penn State, Ohio State and Notre Dame advanced in the CFP after beating teams seeded higher than them in the quarterfinals.`\
-https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarterfinals-recap-mandel/
-
-**Corrections: Jan. 3, 2025**\
-`Corrections that appeared in print on Friday, Jan. 3, 2025.`\
-https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
+https://nytimes.com/2025/01/02/world/asia/yoons-supporters-have-camped-out-near-his-home-to-try-to-shield-him.html
 
