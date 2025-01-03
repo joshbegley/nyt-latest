@@ -1,3 +1,7 @@
+**Jets to interview Vrabel for head-coaching job: Source**\
+`Vrabel, 49, is considered the top coaching candidate available in this year's cycle.`\
+https://nytimes.com/athletic/6035457/2025/01/03/mike-vrabel-jets-head-coach-interview/
+
 **South Korea’s Political Drama Plays Out in a Day of Dueling Protests**\
 `A standoff between the impeached president’s security team and officials seeking to detain him was echoed on the streets outside the presidential residence.`\
 https://nytimes.com/2025/01/03/world/asia/south-korea-protest-scene.html
