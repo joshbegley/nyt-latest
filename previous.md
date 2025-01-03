@@ -1,3 +1,7 @@
+**Orca That Carried Dead Calf for Weeks Is Mourning Again**\
+`Researchers say that the killer whale’s newborn calf in Puget Sound has also died and she’s unable to let go.`\
+https://nytimes.com/2025/01/02/us/mother-orca-tahlequah-calf-dead.html
+
 **Notre Dame vs. Penn State: Picks, odds for CFP semifinal at Orange Bowl with Irish favored**\
 `Notre Dame opened as a small favorite against Penn State for the CFP semifinal at the Orange Bowl.`\
 https://nytimes.com/athletic/6034358/2025/01/02/notre-dame-penn-state-picks-odds-college-football-playoff-orange-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
 **New Details Emerge in Cybertruck Explosion, but Motive Is Still Unclear**\
 `Officials said they used data from Tesla charging stations to chart the driver’s dayslong journey from Colorado to the Trump Hotel in Las Vegas.`\
 https://nytimes.com/2025/01/02/us/las-vegas-cybertruck-explosion-details.html
-
-**Wayne Osmond, Singer and Guitarist With the Osmonds, Dies at 73**\
-`Mr. Osmond was a founding member of the family pop group, which had a slew of hits in the 1970s, including “One Bad Apple” and “Yo-Yo.”`\
-https://nytimes.com/2025/01/02/arts/music/wayne-osmond-dead.html
 
