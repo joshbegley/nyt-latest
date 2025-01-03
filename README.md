@@ -1,3 +1,12 @@
+**Why Canada's World Juniors struggles shouldn't have been a surprise**\
+`It’s natural given Canada's difficult effort on home ice to want explanations and look for scapegoats.`\
+https://nytimes.com/athletic/6034848/2025/01/02/canada-world-juniors-2025-struggles/
+
+**How Blue Jackets' crucial last-minute mistake led to gut-wrenching loss to Red Wings**\
+`Detroit's Jonatan Berggren scored the go-ahead goal with 36 seconds remaining in the third period to hand Columbus a 5-4 loss.
+`\
+https://nytimes.com/athletic/6034833/2025/01/02/blue-jackets-red-wings-jonatan-berggren/
+
 **Sampson: This Notre Dame team is different. There should be no doubt about it now**\
 `Notre Dame beating Georgia in the Sugar Bowl to earn a spot in the College Football Playoff semifinals is a program-defining result.`\
 https://nytimes.com/athletic/6034864/2025/01/02/notre-dame-sugar-bowl-playoff-georgia/
@@ -30,12 +39,4 @@ https://nytimes.com/athletic/6034813/2025/01/02/houston-dash-fabrice-gautrat-nws
 **Emerson: Georgia was not elite this season, but what about the future?**\
 `The Bulldogs lost 23-10 to Notre Dame in the Sugar Bowl, ending their season in the CFP quarterfinals. `\
 https://nytimes.com/athletic/6034843/2025/01/02/georgia-college-football-sugar-bowl-loss/
-
-**Marc-Andre Fleury, short-handed Wild pull off comeback shootout win: Takeaways**\
-`Ryan Hartman scored for the first time since Nov. 19 to help the Wild beat the top team in the East.`\
-https://nytimes.com/athletic/6034635/2025/01/02/wild-fleury-shootout-ovechkin-capitals/
-
-**Yoon’s supporters have camped out near his home to try to shield him.**\
-`By Choe Sang-Hun`\
-https://nytimes.com/2025/01/02/world/asia/yoons-supporters-have-camped-out-near-his-home-to-try-to-shield-him.html
 
