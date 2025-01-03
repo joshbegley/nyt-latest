@@ -1,3 +1,7 @@
+**Jocelyne Wildenstein, Socialite and Tabloid ‘Catwoman,’ Dies at 79**\
+`Her lurid divorce from the wealthy scion of an art-world dynasty earned headlines. Her elaborate plastic surgeries brought even more attention.`\
+https://nytimes.com/2025/01/03/nyregion/jocelyne-wildenstein-dead.html
+
 **Colts QB Anthony Richardson ruled out for season finale vs. Jaguars**\
 `Richardson will miss a second straight game due to a back injury, ending his season.`\
 https://nytimes.com/athletic/6035983/2025/01/03/anthony-richardson-out-colts-season-finale/
