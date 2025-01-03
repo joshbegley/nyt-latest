@@ -1,3 +1,7 @@
+**Will Matt Gaetz Try to Participate in the House Speaker Vote?**\
+`The Florida Republican, who resigned his House seat during his short-lived bid for attorney general, has publicly flirted with the idea of showing up in Congress on Friday.`\
+https://nytimes.com/2025/01/03/us/politics/matt-gaetz-house-speaker-vote-congress.html
+
 **Bucks once again can't solve the feisty Nets' puzzle: 'Gotta be better'**\
 `For the third time this season, Milwaukee wasn't "locked in" against Brooklyn, a team in the middle of a season-long tanking effort.`\
 https://nytimes.com/athletic/6035364/2025/01/03/giannis-bucks-nets-recap/
