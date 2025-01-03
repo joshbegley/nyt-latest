@@ -1,3 +1,7 @@
+**Biden Honors Police Officers and Veterans With Medals at White House**\
+`The president recognized five officers who responded to a 2023 school shooting at a private Christian school in Tennessee, and veterans of the Korean and Vietnam wars.`\
+https://nytimes.com/2025/01/03/us/politics/biden-presidential-medals-officers.html
+
 **New Orleans Releases Most Names of Victims Killed in Attack**\
 `Those who died after a man drove a pickup through the French Quarter highlighted the diverse mix of people who are drawn to the city.`\
 https://nytimes.com/2025/01/03/us/new-orleans-victims-truck-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/us/politics/justice-dept-fulton-county-jail.html
 **How Much Alcohol Does It Take to Raise Your Cancer Risk?**\
 `The surgeon general cautioned the public on Friday that even light or moderate drinking is harmful.`\
 https://nytimes.com/2025/01/03/well/alcohol-cancer-risk.html
-
-**Postecoglou has 'no problem' with Maddison's darts trip**\
-`Ange Postecoglou says he has “no problem” with James Maddison watching the PDC World Darts Championship at Alexandra Palace on the same day he could not start Tottenham Hotspur’s draw with Wolverhampton Wanderers because of illness.`\
-https://nytimes.com/athletic/6035704/2025/01/03/james-maddison-darts-tottenham-postecoglou/
 
