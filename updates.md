@@ -1,3 +1,7 @@
+**Should a 13-Year-Old Be Pressured Into Having an Abortion?**\
+`The magazine’s Ethicist columnist on bodily autonomy and medical consent.`\
+https://nytimes.com/2025/01/03/magazine/adolescent-pregnancy-ethics.html
+
 **NIU to vote Tuesday on football-only Mountain West invite**\
 `The move would give the Mountain West 11 total members and nine football-playing members in 2026.`\
 https://nytimes.com/athletic/6036142/2025/01/03/northern-illinois-mountain-west-invitation/
