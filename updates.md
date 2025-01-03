@@ -1,3 +1,15 @@
+**Woe is the SEC: Playoff shows the rest of the country has caught up**\
+`The SEC can still be the best conference in college football. It will just have to go back to earning it.`\
+https://nytimes.com/athletic/6035437/2025/01/03/sec-college-football-playoff-conference-record/
+
+**If a speaker is not chosen on the first ballot, the House must keep voting.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-a-speaker-is-not-chosen-on-the-first-ballot-the-house-must-keep-voting
+
+**After Fierce Lobbying, Treasury Sets Rules for Billions in Hydrogen Subsidies**\
+`With a lucrative tax credit, the Biden administration is hoping to establish a new industry that might help fight climate change.`\
+https://nytimes.com/2025/01/03/climate/hydrogen-subsidies-biden-treasury.html
+
 **After Fierce Lobbying, Treasury Sets Rules for Billions in Hydrogen Subsidies**\
 `With a lucrative tax credit, the Biden administration is hoping to establish a new industry that might help fight climate change.`\
 https://nytimes.com/2025/01/03/climate/after-fierce-lobbying-treasury-sets-rules-for-billions-in-hydrogen-subsidies.html

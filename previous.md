@@ -1,6 +1,14 @@
+**Woe is the SEC: Playoff shows the rest of the country has caught up**\
+`The SEC can still be the best conference in college football. It will just have to go back to earning it.`\
+https://nytimes.com/athletic/6035437/2025/01/03/sec-college-football-playoff-conference-record/
+
+**If a speaker is not chosen on the first ballot, the House must keep voting.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/if-a-speaker-is-not-chosen-on-the-first-ballot-the-house-must-keep-voting
+
 **After Fierce Lobbying, Treasury Sets Rules for Billions in Hydrogen Subsidies**\
 `With a lucrative tax credit, the Biden administration is hoping to establish a new industry that might help fight climate change.`\
-https://nytimes.com/2025/01/03/climate/after-fierce-lobbying-treasury-sets-rules-for-billions-in-hydrogen-subsidies.html
+https://nytimes.com/2025/01/03/climate/hydrogen-subsidies-biden-treasury.html
 
 **Rashford set to miss Liverpool trip due to illness - Amorim**\
 `Ruben Amorim says Marcus Rashford is set to miss Manchester United&#8217;s Premier League match against Liverpool on Sunday through illness.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6031537/2025/01/03/destiny-udogie-injury-update-tot
 **Max Homa's search for joy in an offseason of change**\
 `New coach. New shirt. New shoes. New clubs. Temporary caddie change. Just don't call it a reset for Homa. This is something else.`\
 https://nytimes.com/athletic/6035438/2025/01/03/max-homa-golf-lululemon-cobra-greller-caddie/
-
-**Djokovic out of Brisbane International after Opelka defeat**\
-`Djokovic is in search of his 25th Grand Slam title at the Australian Open, but fell short of the semifinals at his warm-up event.`\
-https://nytimes.com/athletic/6035360/2025/01/03/djokovic-brisbane-reilly-opelka-defeat/
-
-**Trump Transition Live Updates: Speaker Johnson Faces Crucial Vote**\
-`Mike Johnson has President-elect Donald J. Trump’s support to retain his role but only a razor-thin margin — and several Republican votes remain in question.`\
-https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump
 
