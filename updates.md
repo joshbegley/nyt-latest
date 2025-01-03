@@ -1,3 +1,7 @@
+**Charles Shyer, Filmmaker Who Focused on Women, Dies at 83**\
+`His long collaboration with Nancy Meyers produced a string of hit movies, including “Baby Boom” and “Father of the Bride,” that spoke to the moment.`\
+https://nytimes.com/2025/01/03/movies/charles-shyer-dead.html
+
 **Dodgers reach deal with Korean infielder Hyeseong Kim: sources**\
 `Kim is a second baseman who hit .326/.383/.458 with 11 home runs, 75 RBIs and 30 stolen bases last year in the KBO. `\
 https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
