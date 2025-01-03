@@ -1,3 +1,15 @@
+**After Trump vs. Harris, He Turns to the Washington Commanders**\
+`The NBC correspondent Steve Kornacki developed a following for his touch-screen analysis during elections. He also untangles playoff projections for N.F.L. teams.`\
+https://nytimes.com/2025/01/03/arts/television/steve-kornacki-nbc-election-football.html
+
+**Chelsea hit with FA charge following Delap penalty decision protests**\
+`Chelsea have been charged by the Football Association (FA) for allegedly failing to control their players during Monday&#8217;s 2-0 defeat at Ipswich Town.`\
+https://nytimes.com/athletic/6035646/2025/01/03/chelsea-fa-charge-ipswich/
+
+**Penguins Today: A new year, another Evgeni Malkin snub**\
+`Evgeni Malkin is the 19th best player this century? Think again. Plus: Lineup updates, betting odds and how to watch Penguins-Panthers`\
+https://nytimes.com/athletic/6035661/2025/01/03/penguins-today-malkin-nhl-ranking/
+
 **Will Matt Gaetz Try to Participate in the House Speaker Vote?**\
 `The Florida Republican, who resigned his House seat during his short-lived bid for attorney general, has publicly flirted with the idea of showing up in Congress on Friday.`\
 https://nytimes.com/2025/01/03/us/politics/matt-gaetz-house-speaker-vote-congress.html
