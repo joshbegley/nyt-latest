@@ -1,3 +1,11 @@
+**How Canucks hung on to defeat Kraken in shootout: 3 takeaways**\
+`A lot was stacked against the Canucks on Thursday night in Seattle, but they came away with a victory.`\
+https://nytimes.com/athletic/6035046/2025/01/03/canucks-kraken-shootout-thatcher-demko-jt-miller/
+
+**Plane Crashes Into Furniture Factory in California**\
+`The small aircraft burst into flames after hitting a sprawling furniture manufacturing facility in Fullerton, Calif.`\
+https://nytimes.com/video/us/100000009906271/california-plane-crash.html
+
 **Sabres blow multiple leads against Avalanche in another painful loss: Takeaways**\
 `Despite leads of 3-0, 4-2 and 5-3, the Sabres still found a way to lose. That's been the story of their season. "Just another painful loss."`\
 https://nytimes.com/athletic/6035110/2025/01/03/sabres-avalanche-blown-leads-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6031174/2025/01/03/liverpool-tickets-touts-crime/
 **The making of Morgan Gibbs-White - from mischievous schoolboy to 'special' footballer**\
 `The Nottingham Forest star's biggest influences - from the scout who discovered him to his first PE teacher - share their memories`\
 https://nytimes.com/athletic/6024505/2025/01/03/morgan-gibbs-white-profile/
-
-**Celine Haidar, the Lebanon player struck by shrapnel, has loved ones ‘waiting for her to come back to life’**\
-`The 19-year-old's family and friends tell the story of the promising player who cannot move or speak after being caught up in the war`\
-https://nytimes.com/athletic/6026689/2025/01/03/celine-haidar-lebanon-football/
-
-**Nine-darters to golden sets: What's the most perfect achievement in sport?**\
-`Every sport has an individual achievement which is deemed the holy grail for competitors`\
-https://nytimes.com/athletic/6032894/2025/01/03/sport-perfect-thing/
 
