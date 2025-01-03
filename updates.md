@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
 `\
 https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
 
+**'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
+`The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
+`\
+https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
+
 **Sampson: This Notre Dame team is different. There should be no doubt about it now**\
 `Notre Dame beating Georgia in the Sugar Bowl to earn a spot in the College Football Playoff semifinals is a program-defining result.`\
 https://nytimes.com/athletic/6034864/2025/01/02/notre-dame-sugar-bowl-playoff-georgia/
