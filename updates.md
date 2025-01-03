@@ -1,3 +1,7 @@
+**Did targeting non-call cost Arizona State in Peach Bowl vs. Texas? What to know about rule**\
+`A thrilling Texas win over Arizona State in the College Football Playoff quarterfinal at the Peach Bowl raised more targeting questions.`\
+https://nytimes.com/athletic/6032129/2025/01/02/asu-texas-targeting-peach-bowl-playoff/
+
 **CFP semifinals first look: Previewing Notre Dame-Penn State, Ohio State-Texas**\
 `It will be a final four filled with blue-blood programs playing for a shot at the national championship on Jan. 20 in Atlanta.`\
 https://nytimes.com/athletic/6033036/2025/01/02/college-football-playoff-semifinals-ohio-state-texas-notre-dame-penn-state/
