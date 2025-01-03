@@ -1,3 +1,7 @@
+**Corrections: Jan. 3, 2025**\
+`Corrections that appeared in print on Friday, Jan. 3, 2025.`\
+https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
+
 **Jets interview Ron Rivera for coaching job, Louis Riddick for GM role**\
 `The Jets previously announced interviews with Thomas Dimitroff, Jon Robinson and Jim Nagy for the GM role.`\
 https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-interviews/

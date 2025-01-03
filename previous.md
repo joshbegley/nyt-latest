@@ -1,3 +1,7 @@
+**Corrections: Jan. 3, 2025**\
+`Corrections that appeared in print on Friday, Jan. 3, 2025.`\
+https://nytimes.com/2025/01/02/pageoneplus/corrections-jan-3-2025.html
+
 **Jets interview Ron Rivera for coaching job, Louis Riddick for GM role**\
 `The Jets previously announced interviews with Thomas Dimitroff, Jon Robinson and Jim Nagy for the GM role.`\
 https://nytimes.com/athletic/6034629/2025/01/02/jets-ron-rivera-louis-riddick-interviews/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033036/2025/01/02/college-football-playoff-semifin
 **Notre Dame advances in Playoff with win over Georgia in delayed Sugar Bowl**\
 `Notre Dame won a major bowl for the first time in 31 years, beating Georgia 23-10 to move on to the College Football Playoff semifinals.`\
 https://nytimes.com/athletic/6034510/2025/01/02/notre-dame-georgia-sugar-bowl-new-orleans-attack/
-
-**Jauan Jennings needs 77 yards for first 1,000-yard season. Good thing he's buds with 49ers QB**\
-`Joshua Dobbs is well aware of the receiver's milestone. "Hopefully, we can take care of that early," he said Thursday.`\
-https://nytimes.com/athletic/6033849/2025/01/02/jauan-jennings-joshua-dobbs-49ers-friendship-tennessee/
 
