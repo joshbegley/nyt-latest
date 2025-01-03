@@ -1,3 +1,11 @@
+**With Speaker Drama and Family Photos, New Congress Gets Off to a Wobbly Start**\
+`There was a first-day-of-school energy on Capitol Hill as members of Congress took their oaths and Speaker Mike Johnson fought for his job.`\
+https://nytimes.com/2025/01/03/us/politics/119th-congress-scene.html
+
+**Honduras Threatens to Expel U.S. Military as Latin America Gears Up for Trump Deportations**\
+`In pushing back against President-elect Donald J. Trump’s plan, President Xiomara Castro threatened that bases hosting U.S. troops could “lose all reason to exist in Honduras.”`\
+https://nytimes.com/2025/01/03/world/americas/honduras-trump-mass-deportations.html
+
 **Orioles agree to terms with Charlie Morton on 1-year deal**\
 `Morton, 41, will earn $15 million in 2025. He spent the past four seasons pitching for the Braves.`\
 https://nytimes.com/athletic/6036480/2025/01/03/orioles-charlie-morton-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035704/2025/01/03/james-maddison-darts-tottenham-p
 **Forest players 'did not ski' during Alps trip - Nuno**\
 `Nuno Espirito Santo says he trusts his Nottingham Forest players to behave responsibly after insisting the group that went on a trip to the Alps have assured him that they did not go skiing.`\
 https://nytimes.com/athletic/6035859/2025/01/03/nuno-nottingham-forest-ski-trip/
-
-**Marie Winn, Who Wrote of a Famous Central Park Hawk, Dies at 88**\
-`She chronicled the melodrama of Pale Male, a red-tailed hawk who became an avian sensation as it took up residence atop a Manhattan apartment building.`\
-https://nytimes.com/2025/01/03/nyregion/marie-winn-dead.html
-
-**Michigan signs Alabama transfer RB Justice Haynes**\
-`Michigan confirmed the addition of Haynes, a former five-star recruit, from Alabama on Friday.`\
-https://nytimes.com/athletic/6018617/2025/01/03/michigan-alabama-transfer-justice-haynes/
 
