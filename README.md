@@ -1,4 +1,4 @@
-**Notre Dame tops Georgia in Sugar Bowl delayed a day by New Orleans attack**\
+**Notre Dame advances in Playoff with win over Georgia in delayed Sugar Bowl**\
 `Notre Dame won a major bowl for the first time in 31 years, beating Georgia 23-10 to move on to the College Football Playoff semifinals.`\
 https://nytimes.com/athletic/6034510/2025/01/02/notre-dame-georgia-sugar-bowl-new-orleans-attack/
 
