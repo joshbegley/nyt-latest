@@ -1,3 +1,7 @@
+**Why nobody can stop this version of Ohio State: Final thoughts from the Rose Bowl**\
+`After all the Michigan angst, Ohio State is suddenly doing everything right in the Playoff. Here's why the Buckeyes are peaking now.`\
+https://nytimes.com/athletic/6035667/2025/01/03/ohio-state-oregon-rose-bowl-takeaways/
+
 **Brighton trying to sign Palmeiras defender Vitor Reis**\
 `Brighton &amp; Hove Albion are trying to conclude a deal to buy teenage central defender Vitor Reis from Palmeiras.`\
 https://nytimes.com/athletic/6035578/2025/01/03/brighton-transfer-vitor-reis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6034568/2025/01/03/anthony-edwards-frustration-timb
 **New Orleans Was Called Resilient After Attack. It Didn’t Need the Reminder.**\
 `The city was seeing glimmers of optimism for what the new year might bring before the horrendous attack on the French Quarter.`\
 https://nytimes.com/2025/01/03/us/new-orleans-attack-recovery.html
-
-**After Trump vs. Harris, He Turns to the Washington Commanders**\
-`The NBC correspondent Steve Kornacki developed a following for his touch-screen analysis during elections. He also untangles playoff projections for N.F.L. teams.`\
-https://nytimes.com/2025/01/03/arts/television/steve-kornacki-nbc-election-football.html
 

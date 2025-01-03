@@ -1,3 +1,7 @@
+**Why nobody can stop this version of Ohio State: Final thoughts from the Rose Bowl**\
+`After all the Michigan angst, Ohio State is suddenly doing everything right in the Playoff. Here's why the Buckeyes are peaking now.`\
+https://nytimes.com/athletic/6035667/2025/01/03/ohio-state-oregon-rose-bowl-takeaways/
+
 **Brighton trying to sign Palmeiras defender Vitor Reis**\
 `Brighton &amp; Hove Albion are trying to conclude a deal to buy teenage central defender Vitor Reis from Palmeiras.`\
 https://nytimes.com/athletic/6035578/2025/01/03/brighton-transfer-vitor-reis/
