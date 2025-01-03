@@ -1,3 +1,7 @@
+**Chelsea's Fofana could miss rest of the season with torn hamstring - Maresca**\
+`Chelsea defender Wesley Fofana could miss the rest of the season with the hamstring injury he sustained in December head coach Enzo Maresca has confirmed.`\
+https://nytimes.com/athletic/6035480/2025/01/03/chelsea-wesley-fofana-hamstring-injury/
+
 **Woe is the SEC: Playoff shows the rest of the country has caught up**\
 `The SEC can still be the best conference in college football. It will just have to go back to earning it.`\
 https://nytimes.com/athletic/6035437/2025/01/03/sec-college-football-playoff-conference-record/
