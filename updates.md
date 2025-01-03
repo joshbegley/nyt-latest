@@ -1,3 +1,7 @@
+**Farm to Table**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2025/01/02/crosswords/daily-puzzle-2025-01-03.html
+
 **Mandel's Final Thoughts: Conference champions take early out in CFP quarterfinals**\
 `Texas, Penn State, Ohio State and Notre Dame advanced in the CFP after beating teams seeded higher than them in the quarterfinals.`\
 https://nytimes.com/athletic/6034752/2025/01/02/college-football-playoff-quarterfinals-recap-mandel/
