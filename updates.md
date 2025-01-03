@@ -1,3 +1,7 @@
+**Forest duo Murillo, Hudson-Odoi set to return for Wolves game**\
+`Nuno Espirito Santo expects Nottingham Forest duo Murillo and Callum Hudson-Odoi to be fit to face his former club Wolverhampton Wanderers on Monday.`\
+https://nytimes.com/athletic/6035669/2025/01/03/nottingham-forest-murillo-hudson-odoi-wolves/
+
 **The Bounce: Does Jimmy Butler officially want a trade?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6035633/2025/01/03/jimmy-butler-heat-trade-knicks-thunder-victor-wembanyama-spurs-100th-game-nba-the-bounce/
