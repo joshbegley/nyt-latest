@@ -1,3 +1,7 @@
+**The Athletic FC: Story of Lebanon prodigy hit by shrapnel, Liverpool's ticket tout crackdown**\
+`Today in TAFC: How Celine Haidar, 19, was hit by shrapnel and became a symbol of war's terrible destruction`\
+https://nytimes.com/athletic/6035291/2025/01/03/haidar-lebanon-shrapnel-liverpools-ticket-tout/
+
 **The Athletic’s Friday football quiz question #36**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6031242/2025/01/03/the-athletics-friday-football-quiz-question-36/

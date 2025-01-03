@@ -1,3 +1,7 @@
+**The Athletic FC: Story of Lebanon prodigy hit by shrapnel, Liverpool's ticket tout crackdown**\
+`Today in TAFC: How Celine Haidar, 19, was hit by shrapnel and became a symbol of war's terrible destruction`\
+https://nytimes.com/athletic/6035291/2025/01/03/haidar-lebanon-shrapnel-liverpools-ticket-tout/
+
 **The Athletic’s Friday football quiz question #36**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6031242/2025/01/03/the-athletics-friday-football-quiz-question-36/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/world/middleeast/syria-damascus-visit-foreign-min
 **Browns end-of-season checklist: What's at stake in finale, and what to expect in 2025**\
 `How will the outcome vs. Baltimore affect Cleveland's draft positioning? And what are some big decisions the team will have to make soon?`\
 https://nytimes.com/athletic/6034381/2025/01/03/browns-season-finale-checklist-2025/
-
-**Boise State's Ashton Jeanty took full advantage of stage provided by 12-team Playoff**\
-`A special player significantly raised the level of his team, making the most of every eyeball and opportunity that came with it.`\
-https://nytimes.com/athletic/6033438/2025/01/03/ashton-jeanty-boise-state-cfp-season/
 
