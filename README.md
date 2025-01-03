@@ -1,3 +1,15 @@
+**After Trump vs. Harris, He Turns to the Washington Commanders**\
+`The NBC correspondent Steve Kornacki developed a following for his touch-screen analysis during elections. He also untangles playoff projections for N.F.L. teams.`\
+https://nytimes.com/2025/01/03/arts/television/steve-kornacki-nbc-election-football.html
+
+**Chelsea hit with FA charge following Delap penalty decision protests**\
+`Chelsea have been charged by the Football Association (FA) for allegedly failing to control their players during Monday&#8217;s 2-0 defeat at Ipswich Town.`\
+https://nytimes.com/athletic/6035646/2025/01/03/chelsea-fa-charge-ipswich/
+
+**Penguins Today: A new year, another Evgeni Malkin snub**\
+`Evgeni Malkin is the 19th best player this century? Think again. Plus: Lineup updates, betting odds and how to watch Penguins-Panthers`\
+https://nytimes.com/athletic/6035661/2025/01/03/penguins-today-malkin-nhl-ranking/
+
 **Will Matt Gaetz Try to Participate in the House Speaker Vote?**\
 `The Florida Republican, who resigned his House seat during his short-lived bid for attorney general, has publicly flirted with the idea of showing up in Congress on Friday.`\
 https://nytimes.com/2025/01/03/us/politics/matt-gaetz-house-speaker-vote-congress.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/03/theater/january-theater-roundup.html
 **JetBlue Fined $2 Million for Chronic Delays**\
 `The Transportation Department’s first ever penalty for chronic delays takes aim at four routes that consistently arrived late for five consecutive months.`\
 https://nytimes.com/2025/01/03/travel/jetblue-fined-chronic-delays-east-coast.html
-
-**Palace's Hughes to miss Chelsea clash with foot injury**\
-`Crystal Palace will be without Will Hughes for Saturday’s Premier League match with Chelsea after the midfielder sustained an injury during Sunday’s 2-1 win over Southampton.`\
-https://nytimes.com/athletic/6035554/2025/01/03/will-hughes-injury-crystal-palace/
-
-**The speaker vote is a test of Trump’s influence.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/the-speaker-vote-is-a-test-of-trumps-influence
-
-**Villa defender Torres out for two months with broken metatarsal**\
-`Aston Villa manager Unai Emery has confirmed Pau Torres has suffered a broken metatarsal, ruling the defender out for two months.`\
-https://nytimes.com/athletic/6029135/2025/01/03/aston-villa-pau-torres-injury/
 
