@@ -1,3 +1,15 @@
+**Ipswich close to completing Godfrey loan signing from Atalanta**\
+`Ipswich Town are close to completing the loan signing of defender Ben Godfrey from Atalanta.`\
+https://nytimes.com/athletic/6033110/2025/01/03/ben-godfrey-ipswich-loan/
+
+**Dorian Finney-Smith buys Lakers time and three other NBA trends that caught my eye**\
+`Plus, a Detroit connection, the boxout of the year (courtesy of the Knicks) and a reigning conference finalist is caught in the middle.`\
+https://nytimes.com/athletic/6035664/2025/01/03/dorian-finney-smith-lakers-cade-cunningham-pistons-nba-trends/
+
+**Sporting director Berta to leave Atletico, prepare for possible Premier League move**\
+`Sporting director Andrea Berta will prepare for a possible move to the Premier League by studying English in London when he leaves Atletico Madrid.`\
+https://nytimes.com/athletic/5922826/2025/01/03/atletico-madrid-sporting-director-who/
+
 **Why nobody can stop this version of Ohio State: Final thoughts from the Rose Bowl**\
 `After all the Michigan angst, Ohio State is suddenly doing everything right in the Playoff. Here's why the Buckeyes are peaking now.`\
 https://nytimes.com/athletic/6035667/2025/01/03/ohio-state-oregon-rose-bowl-takeaways/
