@@ -1,3 +1,7 @@
+**A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
+`The system is forecast to bring a dreadful mix of sleet, snow and freezing rain from Kansas to Virginia this weekend.`\
+https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html
+
 **Rockets' Jabari Smith Jr. fractures hand, out 4 to 8 weeks**\
 `Losing him at a time when the Rockets are already quietly dealing with a Tari Eason absence is a huge blow.`\
 https://nytimes.com/athletic/6036583/2025/01/03/houston-rockets-jabari-smith-jr-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036495/2025/01/03/walker-buehler-red-sox-introduct
 **TikTok and Government Clash in Last Round of Supreme Court Briefs**\
 `The briefs, filed a week before oral arguments, offered sharply differing accounts of China’s influence over the site and the role of the First Amendment.`\
 https://nytimes.com/2025/01/03/us/politics/tiktok-ban-supreme-court.html
-
-**Justice Dept. Reaches Deal to Monitor Troubled Atlanta Jail**\
-`The facility in Fulton County, Georgia, has long had problems with assaults, drugs and pests.`\
-https://nytimes.com/2025/01/03/us/politics/justice-dept-fulton-county-jail.html
 
