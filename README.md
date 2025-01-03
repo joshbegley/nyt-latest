@@ -1,40 +1,40 @@
-**Arsenal's White could make return from injury in January**\
-`Mikel Arteta has said that a January return “might be a possibility” for Ben White as the defender has progressed well after undergoing a procedure on his knee in the November international break.`\
-https://nytimes.com/athletic/6035278/2025/01/03/arsenal-team-news-ben-white/
+**Can the Vikings go into Detroit and snatch the No. 1 seed from the Lions?**\
+`Can the Minnesota defense keep Detroit's high-scoring offense in check with the NFC North title and the No. 1 seed on the line?`\
+https://nytimes.com/athletic/6034428/2025/01/03/vikings-lions-preview-predictions-playoffs-no-1-seed/
 
-**Anfernee Simons in 'hardest mental battle' amid Blazers' losing, but won't ask for trade**\
-`Once an up-and-coming star, Simons’ ascent has stalled this season. And he admits his struggle is getting harder to hide.`\
-https://nytimes.com/athletic/6034414/2025/01/03/anfernee-simons-trail-blazers-chauncey-billups-nba/
+**Yohe: The Penguins still suffer from letting Evan Rodrigues walk**\
+`The Penguins certainly could use Evan Rodrigues' services these days. `\
+https://nytimes.com/athletic/6032712/2025/01/03/penguins-evan-rodrigues/
 
-**Why the NFL has seen a running back renaissance led by Saquon Barkley, Derrick Henry**\
-`Teams have devalued the position in recent years, but the best offenses this season have elite backs as their catalysts.`\
-https://nytimes.com/athletic/6030708/2025/01/03/nfl-running-backs-saquon-barkley-derrick-henry/
+**How Chargers GM Joe Hortiz's moves make his case for Executive of the Year**\
+`From value signings to nailing the draft and building depth, here's how the first-year GM has shaped L.A.'s playoff-bound roster.`\
+https://nytimes.com/athletic/6034244/2025/01/03/joe-hortiz-chargers-gm-top-executive-case/
 
-**AFC North Whiparound: Divisional doubleheader sets the tone for Week 18**\
-`Plus, could Myles Garrett win another Defensive Player of the Year award despite the Browns' struggles this season?`\
-https://nytimes.com/athletic/6034061/2025/01/03/ravens-steelers-bengals-browns-afc-north/
+**Should Seahawks' Ryan Grubb be in the crosshairs? Assessing Seattle OC's first year**\
+`O-line issues and the lack of a clear offensive identity led to an underwhelming season for Seattle's first-year play caller.`\
+https://nytimes.com/athletic/6034557/2025/01/03/seahawks-offense-assessing-ryan-grubb-year-one/
 
-**Inside Ohio State's unlikeliest budding dynasty under Nadine Muzerall**\
-`Muzerall almost turned down a chance to coach Ohio State women's hockey team. Now she's turned the Buckeyes into a surprise national power.`\
-https://nytimes.com/athletic/6034147/2025/01/03/ohio-state-nadine-muzerall-womens-hockey/
+**Victor Wembanyama prepares for 100th NBA game. Let's break down his historic start**\
+`Wembanyama also turns 21 on Saturday. The numbers he has put up already for the Spurs are mind-blowing.`\
+https://nytimes.com/athletic/6025977/2025/01/03/victory-wembanyama-spurs-nba-100th-game/
 
-**More Than 300 People Flee Burning Building in South Korea**\
-`An eight-story commercial complex caught fire south of the nation’s capital, fire officials said.`\
-https://nytimes.com/2025/01/03/world/asia/south-korea-fire-seongnam.html
+**Inside Mike Vrabel’s year off: His season with the Browns and what he wants next**\
+`The former Titans coach spent the 2024 season preparing for his next opportunity.`\
+https://nytimes.com/athletic/6034054/2025/01/03/mike-vrabel-nfl-coaching-browns-year-off/
 
-**Bengals defense has looked better, but how much progress has it actually made?**\
-`The unit has forced turnovers and contributed to a playoff push but will have to show it can keep it up in a must-win game vs. the Steelers.`\
-https://nytimes.com/athletic/6034271/2025/01/03/bengals-defense-progress-steelers/
+**Dach family reunion at center ice: Colton's NHL debut comes against brother Kirby**\
+`The Dachs have faced a lot of ups and downs over recent years, but sharing NHL ice for the first time will be "definitely memorable."`\
+https://nytimes.com/athletic/6034317/2025/01/03/colton-dach-kirby-brothers-debut-blackhawks-canadiens/
 
-**NFL MVP debate: Both Josh Allen and Lamar Jackson are deserving, but what separates them?**\
-`There's much nuance and context to explore beyond the stats as it pertains to the case for Allen or Jackson to be named league MVP. `\
-https://nytimes.com/athletic/6032719/2025/01/03/nfl-mvp-josh-allen-lamar-jackson/
+**How will the Packers approach regular-season finale against Bears?**\
+`Don't expect any healthy players to rest for the Packers despite a playoff spot already being clinched.`\
+https://nytimes.com/athletic/6033920/2025/01/03/packers-regular-season-finale-bears/
 
-**NBA 2024-25 bold predictions: Revisiting our preseason prognostications**\
-`Three months into the season, let's check in on the progress of our bold claims.`\
-https://nytimes.com/athletic/6032449/2025/01/03/nba-season-bold-predictions-analysis-outlook/
+**Terror in New Orleans**\
+`What we know about the attack on New Year’s Day.`\
+https://nytimes.com/2025/01/03/podcasts/the-daily/new-orleans-terror-attack.html
 
-**'My size is my biggest strength': Rookie CB Mike Sainristil brings a bite to Commanders**\
-`The 5-foot-9 college receiver-turned-starting NFL cornerback has learned to embrace his size and use it to his advantage. `\
-https://nytimes.com/athletic/6032413/2025/01/03/mike-sainristil-commanders-nfl-rookie/
+**How Congress Could Find Itself Paralyzed, and New Orleans Attack Update**\
+`Plus, Kenyan villagers get a scare from space.`\
+https://nytimes.com/2025/01/03/podcasts/congress-speaker-vote-new-orleans-attack.html
 
