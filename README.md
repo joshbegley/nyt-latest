@@ -1,3 +1,7 @@
+**Brighton trying to sign Palmeiras defender Vitor Reis**\
+`Brighton &amp; Hove Albion are trying to conclude a deal to buy teenage central defender Vitor Reis from Palmeiras.`\
+https://nytimes.com/athletic/6035578/2025/01/03/brighton-transfer-vitor-reis/
+
 **DeBoer refines Alabama DC Kane Wommack's role, elevates Chuck Morrell**\
 `Wommack, who doubled as the inside linebackers coach, will only serve as a coordinator in 2025 overseeing the defense.`\
 https://nytimes.com/athletic/6035775/2025/01/03/alabama-defensive-staff-kalen-deboer-kane-wommack/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/us/new-orleans-attack-recovery.html
 **After Trump vs. Harris, He Turns to the Washington Commanders**\
 `The NBC correspondent Steve Kornacki developed a following for his touch-screen analysis during elections. He also untangles playoff projections for N.F.L. teams.`\
 https://nytimes.com/2025/01/03/arts/television/steve-kornacki-nbc-election-football.html
-
-**Chelsea hit with FA charge following Delap penalty decision protests**\
-`Chelsea have been charged by the Football Association (FA) for allegedly failing to control their players during Monday&#8217;s 2-0 defeat at Ipswich Town.`\
-https://nytimes.com/athletic/6035646/2025/01/03/chelsea-fa-charge-ipswich/
 

@@ -1,3 +1,27 @@
+**DeBoer refines Alabama DC Kane Wommack's role, elevates Chuck Morrell**\
+`Wommack, who doubled as the inside linebackers coach, will only serve as a coordinator in 2025 overseeing the defense.`\
+https://nytimes.com/athletic/6035775/2025/01/03/alabama-defensive-staff-kalen-deboer-kane-wommack/
+
+**This Tiny Fish’s Mistaken Identity Halted a Dam’s Construction**\
+`Scientists say the snail darter, whose endangered species status delayed the building of a dam in Tennessee in the 1970s, is a genetic match of a different fish.`\
+https://nytimes.com/2025/01/03/science/snail-darter-fish-tellico-dam.html
+
+**Chicken Marbella, Hold the Chicken**\
+`Beans Marbella applies the same tangy, sharp flavors of the iconic chicken dish to creamy white beans, and it’s delicious.`\
+https://nytimes.com/2025/01/03/dining/chicken-marbella-hold-the-chicken.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include a killer in a Mickey Mouse mask and a thriller that goes to extremes.`\
+https://nytimes.com/2025/01/03/movies/horror-movies-streaming.html
+
+**Do You Believe in Life After Death? These Scientists Study It.**\
+`Is reincarnation real? Is communication from the “beyond” possible? A small set of academics are trying to find out, case by case.`\
+https://nytimes.com/2025/01/03/style/virginia-dops-reincarnation.html
+
+**The Fitness Trends That Experts Hate**\
+`If you want to get fitter this year, here’s what to focus on instead.`\
+https://nytimes.com/2025/01/03/well/move/fitness-trends-tiktok-instagram.html
+
 **Anthony Edwards' frustration is rising as the Timberwolves search for answers**\
 `It requires patience and perspective, and that is not always easy for a player as young and ambitious as Edwards.`\
 https://nytimes.com/athletic/6034568/2025/01/03/anthony-edwards-frustration-timberwolves-search-answers/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/03/arts/television/steve-kornacki-nbc-election-footb
 **Chelsea hit with FA charge following Delap penalty decision protests**\
 `Chelsea have been charged by the Football Association (FA) for allegedly failing to control their players during Monday&#8217;s 2-0 defeat at Ipswich Town.`\
 https://nytimes.com/athletic/6035646/2025/01/03/chelsea-fa-charge-ipswich/
-
-**Penguins Today: A new year, another Evgeni Malkin snub**\
-`Evgeni Malkin is the 19th best player this century? Think again. Plus: Lineup updates, betting odds and how to watch Penguins-Panthers`\
-https://nytimes.com/athletic/6035661/2025/01/03/penguins-today-malkin-nhl-ranking/
-
-**Will Matt Gaetz Try to Participate in the House Speaker Vote?**\
-`The Florida Republican, who resigned his House seat during his short-lived bid for attorney general, has publicly flirted with the idea of showing up in Congress on Friday.`\
-https://nytimes.com/2025/01/03/us/politics/matt-gaetz-house-speaker-vote-congress.html
-
-**Bucks once again can't solve the feisty Nets' puzzle: 'Gotta be better'**\
-`For the third time this season, Milwaukee wasn't "locked in" against Brooklyn, a team in the middle of a season-long tanking effort.`\
-https://nytimes.com/athletic/6035364/2025/01/03/giannis-bucks-nets-recap/
-
-**Forest duo Murillo, Hudson-Odoi set to return for Wolves game**\
-`Nuno Espirito Santo expects Nottingham Forest duo Murillo and Callum Hudson-Odoi to be fit to face his former club Wolverhampton Wanderers on Monday.`\
-https://nytimes.com/athletic/6035669/2025/01/03/nottingham-forest-murillo-hudson-odoi-wolves/
-
-**The Bounce: Does Jimmy Butler officially want a trade?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6035633/2025/01/03/jimmy-butler-heat-trade-knicks-thunder-victor-wembanyama-spurs-100th-game-nba-the-bounce/
-
-**Wolves to be without Lemina for Forest clash but Andre available**\
-`Wolves midfielder Mario Lemina will miss Monday’s clash with Nottingham Forest through injury but Andre is expected to be available despite returning to Brazil for the birth of his son.`\
-https://nytimes.com/athletic/6035652/2025/01/03/wolves-lemina-andre-forest-team-news/
 
