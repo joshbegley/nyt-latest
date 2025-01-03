@@ -1,3 +1,15 @@
+**Giuliani, Slow to Give Up His Belongings, Tests Patience of Court**\
+`The former mayor of New York City could be held in contempt of court after failing to fully comply with orders to surrender millions of dollars in assets to election workers he defamed.`\
+https://nytimes.com/2025/01/03/nyregion/rudy-giuliani-assets-court-contempt.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/03/crosswords/spelling-bee-forum.html
+
+**Celebration**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/01/03/learning/celebration.html
+
 **Kurz: Flyers' Aleksei Kolosov isn't an NHL goalie. It's time to pull the plug**\
 `Kolosov is dead last in the league in save percentage among the 56 goalies who have played at least 600 minutes this season.`\
 https://nytimes.com/athletic/6035177/2025/01/03/flyers-golden-knights-aleksei-kolosov/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6035110/2025/01/03/sabres-avalanche-blown-leads-tak
 **Friday Briefing**\
 `The aftermath of a New Year’s attack in New Orleans.`\
 https://nytimes.com/2025/01/03/briefing/new-orleans-south-korea.html
-
-**The Case for Hope for Palestinians**\
-`Israeli accountability, a powerful protest movement and an emerging generation of leaders could bring a better future for Palestinians.`\
-https://nytimes.com/2025/01/03/opinion/palestinians-israel-gaza.html
-
-**Biden Plans to Block Takeover Bid of U.S. Steel by Japan’s Nippon**\
-`The president’s announcement of the fate of the iconic Pennsylvania-based company, which became a contentious political issue in an election year, is expected as soon as Friday.`\
-https://nytimes.com/2025/01/03/us/politics/us-steel-nippon-biden.html
-
-**Why Levy, not Postecoglou, is feeling the snap of Spurs' winter of discontent**\
-`Spurs are on course for their worst season in 20 years, but it is not the head coach bearing the brunt of the fans' anger`\
-https://nytimes.com/athletic/6029357/2025/01/03/tottenham-atmosphere-fans-levy-postecoglou/
 

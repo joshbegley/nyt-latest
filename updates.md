@@ -1,3 +1,15 @@
+**Giuliani, Slow to Give Up His Belongings, Tests Patience of Court**\
+`The former mayor of New York City could be held in contempt of court after failing to fully comply with orders to surrender millions of dollars in assets to election workers he defamed.`\
+https://nytimes.com/2025/01/03/nyregion/rudy-giuliani-assets-court-contempt.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/03/crosswords/spelling-bee-forum.html
+
+**Celebration**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/01/03/learning/celebration.html
+
 **Kurz: Flyers' Aleksei Kolosov isn't an NHL goalie. It's time to pull the plug**\
 `Kolosov is dead last in the league in save percentage among the 56 goalies who have played at least 600 minutes this season.`\
 https://nytimes.com/athletic/6035177/2025/01/03/flyers-golden-knights-aleksei-kolosov/
