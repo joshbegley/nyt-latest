@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6035422/2025/01/03/stephen-curry-warriors-8-for-8-3
 `Enzo Maresca has said Chelsea plan for Aaron Anselmino to train with the first-team squad before making a decision on his immediate future.`\
 https://nytimes.com/athletic/6035294/2025/01/03/chelsea-aaron-anselmino-squad/
 
-**Chelsea's Fofana could miss rest of the season with torn hamstring - Maresca**\
+**Chelsea's Fofana could miss rest of season with torn hamstring**\
 `Chelsea defender Wesley Fofana could miss the rest of the season with the hamstring injury he sustained in December head coach Enzo Maresca has confirmed.`\
 https://nytimes.com/athletic/6035480/2025/01/03/chelsea-wesley-fofana-hamstring-injury/
 
