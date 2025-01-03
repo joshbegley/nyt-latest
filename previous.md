@@ -1,3 +1,7 @@
+**Live Updates: South Korean Officials Move to Detain President Yoon Suk Yeol**\
+`The authorities are seeking to compel the impeached leader to answer questions about his declaration of martial law, which plunged the country into a political crisis.`\
+https://nytimes.com/live/2025/01/02/world/south-korea-president-yoon-suk-yeol
+
 **Two Killed and 18 Injured in California Plane Crash**\
 `A single-engine aircraft crashed into a commercial building in Fullerton, Calif., and prompted an evacuation, officials said.`\
 https://nytimes.com/2025/01/02/us/california-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033849/2025/01/02/jauan-jennings-joshua-dobbs-49er
 **Jared Spurgeon expected to miss 2-3 weeks with injury, plus Kirill Kaprizov update**\
 `Bill Guerin told reporters Spurgeon's injury isn't as bad as the team originally thought and provided an update on the captain.`\
 https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kirill-kaprizov-update/
-
-**Could Better Security Have Stopped the New Orleans Terror Attack?**\
-`City officials were warned in 2019 that the bollards designed to block vehicles did “not appear to work.” They were being fixed when a truck rammed through Bourbon Street on Wednesday.`\
-https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
 
