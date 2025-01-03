@@ -1,3 +1,15 @@
+**The Fallout From the End of the U.S. Steel Deal**\
+`Nippon Steel’s $14 billion takeover bid for the steelmaker appears doomed, with President Biden expected to reject it. Litigation and diplomatic turmoil could follow.`\
+https://nytimes.com/2025/01/03/business/dealbook/nippon-us-steel-biden.html
+
+**Fire Engulfs Eight-Story Building South of Seoul**\
+`Fire officials responded to the blaze Friday afternoon at a commercial building in Seongnam, Gyeonggi Province.`\
+https://nytimes.com/video/world/asia/100000009906391/fire-building-south-korea-seongnam-seoul.html
+
+**What's next for Pistons in the wake of Jaden Ivey's leg injury?**\
+`Malik Beasley and Ausar Thompson could see their roles increase. Detroit could also look to add at the trade deadline.`\
+https://nytimes.com/athletic/6035079/2025/01/03/jaden-ivey-injury-pistons-malik-beasley-ausar-thompson/
+
 **What I'm seeing with the Broncos ahead of their biggest game in 9 years**\
 `The team's Pro Bowl results were a nod to George Paton's drafting acumen while also illustrating the need for more offensive talent.`\
 https://nytimes.com/athletic/6024541/2025/01/03/broncos-playoff-hopes-chiefs/

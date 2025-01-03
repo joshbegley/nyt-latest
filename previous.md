@@ -1,3 +1,15 @@
+**The Fallout From the End of the U.S. Steel Deal**\
+`Nippon Steel’s $14 billion takeover bid for the steelmaker appears doomed, with President Biden expected to reject it. Litigation and diplomatic turmoil could follow.`\
+https://nytimes.com/2025/01/03/business/dealbook/nippon-us-steel-biden.html
+
+**Fire Engulfs Eight-Story Building South of Seoul**\
+`Fire officials responded to the blaze Friday afternoon at a commercial building in Seongnam, Gyeonggi Province.`\
+https://nytimes.com/video/world/asia/100000009906391/fire-building-south-korea-seongnam-seoul.html
+
+**What's next for Pistons in the wake of Jaden Ivey's leg injury?**\
+`Malik Beasley and Ausar Thompson could see their roles increase. Detroit could also look to add at the trade deadline.`\
+https://nytimes.com/athletic/6035079/2025/01/03/jaden-ivey-injury-pistons-malik-beasley-ausar-thompson/
+
 **The Athletic FC: Story of Lebanon prodigy hit by shrapnel, Liverpool's ticket tout crackdown**\
 `Today in TAFC: How Celine Haidar, 19, was hit by shrapnel and became a symbol of war's terrible destruction`\
 https://nytimes.com/athletic/6035291/2025/01/03/haidar-lebanon-shrapnel-liverpools-ticket-tout/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/03/podcasts/hardfork-predictions-resolutions.html
 **Surgeon General Calls for Cancer Warnings on Alcohol**\
 `Dr. Vivek Murthy’s report cites studies linking alcoholic beverages to at least seven malignancies, including breast cancer. But to add warning labels, Congress would have to act.`\
 https://nytimes.com/2025/01/03/health/alcohol-surgeon-general-warning.html
-
-**The Pulse: The first time in 31 years**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6034759/2025/01/03/notre-dame-cfp-georgia-jimmy-butler-the-pulse/
-
-**European Ministers Visit Syria to Strengthen Ties With New Government**\
-`Germany and France’s top diplomats went to Damascus on behalf of the European Union. It’s the first such trip in years, and part of a flurry of Western outreach.`\
-https://nytimes.com/2025/01/03/world/middleeast/syria-damascus-visit-foreign-ministers.html
-
-**Browns end-of-season checklist: What's at stake in finale, and what to expect in 2025**\
-`How will the outcome vs. Baltimore affect Cleveland's draft positioning? And what are some big decisions the team will have to make soon?`\
-https://nytimes.com/athletic/6034381/2025/01/03/browns-season-finale-checklist-2025/
 
