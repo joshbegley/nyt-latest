@@ -1,3 +1,7 @@
+**New Orleans Releases Most Names of Victims Killed in Attack**\
+`Those who died after a man drove a pickup through the French Quarter highlighted the diverse mix of people who are drawn to the city.`\
+https://nytimes.com/2025/01/03/us/new-orleans-victims-truck-attack.html
+
 **With Speaker Drama and Family Photos, New Congress Gets Off to a Wobbly Start**\
 `There was a first-day-of-school energy on Capitol Hill as members of Congress took their oaths and Speaker Mike Johnson fought for his job.`\
 https://nytimes.com/2025/01/03/us/politics/119th-congress-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/well/alcohol-cancer-risk.html
 **Postecoglou has 'no problem' with Maddison's darts trip**\
 `Ange Postecoglou says he has “no problem” with James Maddison watching the PDC World Darts Championship at Alexandra Palace on the same day he could not start Tottenham Hotspur’s draw with Wolverhampton Wanderers because of illness.`\
 https://nytimes.com/athletic/6035704/2025/01/03/james-maddison-darts-tottenham-postecoglou/
-
-**Forest players 'did not ski' during Alps trip - Nuno**\
-`Nuno Espirito Santo says he trusts his Nottingham Forest players to behave responsibly after insisting the group that went on a trip to the Alps have assured him that they did not go skiing.`\
-https://nytimes.com/athletic/6035859/2025/01/03/nuno-nottingham-forest-ski-trip/
 
