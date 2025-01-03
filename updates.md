@@ -1,3 +1,11 @@
+**Jauan Jennings needs 77 yards for first 1,000-yard season. Good thing he's buds with 49ers QB**\
+`Joshua Dobbs is well aware of the receiver's milestone. "Hopefully, we can take care of that early," he said Thursday.`\
+https://nytimes.com/athletic/6033849/2025/01/02/jauan-jennings-joshua-dobbs-49ers-friendship-tennessee/
+
+**Jared Spurgeon expected to miss 2-3 weeks with injury, plus Kirill Kaprizov update**\
+`Bill Guerin told reporters Spurgeon's injury isn't as bad as the team originally thought and provided an update on the captain.`\
+https://nytimes.com/athletic/6033372/2025/01/02/wild-jared-spurgeon-injury-kirill-kaprizov-update/
+
 **Could Better Security Have Stopped the New Orleans Terror Attack?**\
 `Other cities use dump trucks, fire engines and other barriers to protect their streets. But a lone-wolf attack is hard to stop, security experts say.`\
 https://nytimes.com/2025/01/02/us/new-orleans-security-truck-attack.html
