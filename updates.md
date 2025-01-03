@@ -1,3 +1,7 @@
+**These Are the Possible GOP Holdouts in the House Speaker Vote**\
+`Only one Republican representative has confirmed that he will oppose Mike Johnson’s return as House speaker, but a few other conservatives have remained undecided.`\
+https://nytimes.com/2025/01/03/us/politics/gop-house-speaker-vote-holdouts.html
+
 **Ford and General Motors Report a Sales Surge, Especially for E.V.s**\
 `The two big automakers said 2024 sales were up by 4 percent thanks to big increases in the final quarter.`\
 https://nytimes.com/2025/01/03/business/ford-gm-vehicle-sales.html

@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6035887/2025/01/03/maple-leafs-philippe-myers-contr
 `Shayna Goldman says to buy Logan Thompson while you still can. Quinton Byfield offers versatility with Kings; his slow start has ended. `\
 https://nytimes.com/athletic/6035057/2025/01/03/week-14-fantasy-trends-and-hidden-gems/
 
-**Here are the possible G.O.P. holdouts to watch.**\
-`By Catie Edmondson`\
+**These Are the Possible GOP Holdouts in the House Speaker Vote**\
+`Only one Republican representative has confirmed that he will oppose Mike Johnson’s return as House speaker, but a few other conservatives have remained undecided.`\
 https://nytimes.com/2025/01/03/us/politics/gop-house-speaker-vote-holdouts.html
 
