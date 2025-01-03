@@ -1,3 +1,7 @@
+**Listen to the Dawn of Rock ’n’ Roll, Captured at Sun Studio**\
+`The Memphis landmark where Elvis Presley, Johnny Cash, Jerry Lee Lewis and Howlin’ Wolf recorded turns 75 on Friday.`\
+https://nytimes.com/2025/01/03/arts/music/amplifier-newsletter-sun-studio.html
+
 **Jocelyne Wildenstein, Socialite and Tabloid ‘Catwoman,’ Dies at 79**\
 `Her lurid divorce from the wealthy scion of an art-world dynasty earned headlines. Her elaborate plastic surgeries brought even more attention.`\
 https://nytimes.com/2025/01/03/nyregion/jocelyne-wildenstein-dead.html

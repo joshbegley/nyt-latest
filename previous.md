@@ -1,3 +1,7 @@
+**Listen to the Dawn of Rock ’n’ Roll, Captured at Sun Studio**\
+`The Memphis landmark where Elvis Presley, Johnny Cash, Jerry Lee Lewis and Howlin’ Wolf recorded turns 75 on Friday.`\
+https://nytimes.com/2025/01/03/arts/music/amplifier-newsletter-sun-studio.html
+
 **Jocelyne Wildenstein, Socialite and Tabloid ‘Catwoman,’ Dies at 79**\
 `Her lurid divorce from the wealthy scion of an art-world dynasty earned headlines. Her elaborate plastic surgeries brought even more attention.`\
 https://nytimes.com/2025/01/03/nyregion/jocelyne-wildenstein-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035886/2025/01/03/jimmy-butler-pat-riley-heat-trad
 **Should Democrats Try to Work With Trump?**\
 `Responses to a column by Jamelle Bouie. Also: Trade with China; rising autism rates; in awe of Schubert; games as a common bond; Local Call’s work.`\
 https://nytimes.com/2025/01/03/opinion/letters/democrats-trump.html
-
-**PGA Tour may change Tour Championship to bracket-style event: Sources**\
-`Advanced discussions are happening with the possibility for changes as soon as this year's Tour Championship.`\
-https://nytimes.com/athletic/6035751/2025/01/03/pga-tour-tour-championship-bracket-golf/
 
