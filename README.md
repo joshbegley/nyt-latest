@@ -1,3 +1,7 @@
+**South Korea’s Political Drama Plays Out in a Day of Dueling Protests**\
+`A standoff between the impeached president’s security team and officials seeking to detain him was echoed on the streets outside the presidential residence.`\
+https://nytimes.com/2025/01/03/world/asia/south-korea-protest-scene.html
+
 **Tottenham's Udogie out for six weeks with hamstring injury**\
 `Ange Postecoglou says Tottenham Hotspur defender Destiny Udogie will miss six weeks with a hamstring injury, while other members of the first-team squad have been hit by an illness bug.`\
 https://nytimes.com/athletic/6031537/2025/01/03/destiny-udogie-injury-update-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009906391/fire-building-south-korea-s
 **What's next for Pistons in the wake of Jaden Ivey's leg injury?**\
 `Malik Beasley and Ausar Thompson could see their roles increase. Detroit could also look to add at the trade deadline.`\
 https://nytimes.com/athletic/6035079/2025/01/03/jaden-ivey-injury-pistons-malik-beasley-ausar-thompson/
-
-**The Athletic FC: Story of Lebanon prodigy hit by shrapnel, Liverpool's ticket tout crackdown**\
-`Today in TAFC: How Celine Haidar, 19, was hit by shrapnel and became a symbol of war's terrible destruction`\
-https://nytimes.com/athletic/6035291/2025/01/03/haidar-lebanon-shrapnel-liverpools-ticket-tout/
 
