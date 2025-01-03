@@ -1,3 +1,11 @@
+**Harper: 4 key questions about the Jimmy Butler trade chatter**\
+`Things are getting messy with Butler in Miami. What comes next?`\
+https://nytimes.com/athletic/6035701/2025/01/03/jimmy-butler-trade-rumors-heat/
+
+**Maple Leafs sign Philippe Myers to 2-year contract extension**\
+`Toronto locks up the defenceman for two additional seasons on deal that carries $850,000 AAV.`\
+https://nytimes.com/athletic/6035887/2025/01/03/maple-leafs-philippe-myers-contract-nhl/
+
 **The officiating blunder your club's fans are still going on about**\
 `From European scandals to cup final disappointments, we look back on decisions by officials that left a lasting impact of fanbases.`\
 https://nytimes.com/athletic/6032908/2025/01/03/referee-decisions-you-cannot-forget/

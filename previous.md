@@ -1,9 +1,13 @@
+**Harper: 4 key questions about the Jimmy Butler trade chatter**\
+`Things are getting messy with Butler in Miami. What comes next?`\
+https://nytimes.com/athletic/6035701/2025/01/03/jimmy-butler-trade-rumors-heat/
+
 **The officiating blunder your club's fans are still going on about**\
 `From European scandals to cup final disappointments, we look back on decisions by officials that left a lasting impact of fanbases.`\
 https://nytimes.com/athletic/6032908/2025/01/03/referee-decisions-you-cannot-forget/
 
-**Maple Leafs sign Philippe Myers to two-year contract extension**\
-`Toronto locks up defenceman for two additional seasons on deal that carries $850,000 AAV.`\
+**Maple Leafs sign Philippe Myers to 2-year contract extension**\
+`Toronto locks up the defenceman for two additional seasons on deal that carries $850,000 AAV.`\
 https://nytimes.com/athletic/6035887/2025/01/03/maple-leafs-philippe-myers-contract-nhl/
 
 **Fantasy trends and hidden gems: Manifesting championships with Thompson and Byfield**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033110/2025/01/03/ben-godfrey-ipswich-loan/
 **Dorian Finney-Smith buys Lakers time and three other NBA trends that caught my eye**\
 `Plus, a Detroit connection, the boxout of the year (courtesy of the Knicks) and a reigning conference finalist is caught in the middle.`\
 https://nytimes.com/athletic/6035664/2025/01/03/dorian-finney-smith-lakers-cade-cunningham-pistons-nba-trends/
-
-**Sporting director Berta to leave Atletico, prepare for possible Premier League move**\
-`Sporting director Andrea Berta will prepare for a possible move to the Premier League by studying English in London when he leaves Atletico Madrid.`\
-https://nytimes.com/athletic/5922826/2025/01/03/atletico-madrid-sporting-director-who/
 
