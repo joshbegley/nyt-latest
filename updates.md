@@ -1,3 +1,17 @@
+**Why Canada's World Juniors struggles shouldn't have been a surprise**\
+`It’s natural given Canada's difficult effort on home ice to want explanations and look for scapegoats.`\
+https://nytimes.com/athletic/6034848/2025/01/02/canada-world-juniors-2025-struggles/
+
+**How Blue Jackets' crucial last-minute mistake led to gut-wrenching loss to Red Wings**\
+`Detroit's Jonatan Berggren scored the go-ahead goal with 36 seconds remaining in the third period to hand Columbus a 5-4 loss.
+`\
+https://nytimes.com/athletic/6034833/2025/01/02/blue-jackets-red-wings-jonatan-berggren/
+
+**'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
+`The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
+`\
+https://nytimes.com/athletic/6034911/2025/01/02/bruins-rangers-offense-losses/
+
 **'Just not finishing right now': 2 Bruins losses, 2 goals and a missing offense**\
 `The Bruins know they need to find a way to score more than one goal in a game to have a chance to win.
 `\
