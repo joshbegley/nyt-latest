@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Speaker Johnson Faces Crucial Vote**\
+`Mike Johnson has President-elect Donald J. Trump’s support to retain his role but only a razor-thin margin — and several Republican votes remain in question.`\
+https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump
+
 **Impeached President Faces Down Detention Bid, Stoking South Korea’s Crisis**\
 `Blocked by bodyguards in an hourslong standoff, officials retreated without serving a court warrant to hold President Yoon Suk Yeol for questioning on insurrection charges.`\
 https://nytimes.com/2025/01/03/world/asia/south-korea-president-yoon-arrest-fail.html
