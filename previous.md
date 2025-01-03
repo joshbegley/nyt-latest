@@ -1,3 +1,7 @@
+**Dodgers reach deal with Korean infielder Hyeseong Kim: sources**\
+`The Los Angeles Dodgers have an agreement in place with Korean infielder Hyeseong Kim, a league source told The Athletic shortly before his posting window from the Korean Baseball Organization’s Kiwoom Heroes was set to expire Friday afternoon.`\
+https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
+
 **Which Countries Warn That Alcohol May Cause Cancer?**\
 `A quarter of nations worldwide have health risk labels on alcohol. But only South Korea has a warning about liver cancer.`\
 https://nytimes.com/2025/01/03/world/alcohol-warnings-countries.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/01/03/us/la-county-sheriff-dispatch-system-crash.html
 `She adapted the children’s book series to TV, creating a lasting cultural behemoth that spawned movies, merchandise and theme parks.`\
 https://nytimes.com/2025/01/03/arts/britt-allcroft-thomas-tank-engine-dead.html
 
-**Pelosi returns to Congress after hip surgery, without her signature stilettos.**\
-`By Annie Karni`\
-https://nytimes.com/live/2025/01/03/us/house-speaker-vote-johnson-trump/pelosi-returns-to-congress-after-hip-surgery-without-her-signature-stilettos
-
-**West Virginia, Rodriguez bringing Noel Devine on staff as offensive analyst**\
-`Devine, who played four years at WVU, was one of the first high school football recruits to have his highlights go viral.`\
-https://nytimes.com/athletic/6036094/2025/01/03/west-virginia-hiring-noel-devine-richrod-staff/
+**Pelosi Returns to Congress After Hip Surgery, Without Her Signature Stilettos**\
+`A recent fall on a marble staircase at a palace in Luxembourg required the former speaker to have emergency hip replacement surgery.`\
+https://nytimes.com/2025/01/03/us/politics/nancy-pelosi-congress.html
 

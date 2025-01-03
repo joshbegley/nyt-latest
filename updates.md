@@ -1,3 +1,11 @@
+**Dodgers reach deal with Korean infielder Hyeseong Kim: sources**\
+`The Los Angeles Dodgers have an agreement in place with Korean infielder Hyeseong Kim, a league source told The Athletic shortly before his posting window from the Korean Baseball Organization’s Kiwoom Heroes was set to expire Friday afternoon.`\
+https://nytimes.com/athletic/6036208/2025/01/03/dodgers-hyeseong-kim/
+
+**Pelosi Returns to Congress After Hip Surgery, Without Her Signature Stilettos**\
+`A recent fall on a marble staircase at a palace in Luxembourg required the former speaker to have emergency hip replacement surgery.`\
+https://nytimes.com/2025/01/03/us/politics/nancy-pelosi-congress.html
+
 **Which Countries Warn That Alcohol May Cause Cancer?**\
 `A quarter of nations worldwide have health risk labels on alcohol. But only South Korea has a warning about liver cancer.`\
 https://nytimes.com/2025/01/03/world/alcohol-warnings-countries.html
