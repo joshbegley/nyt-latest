@@ -1,3 +1,7 @@
+**CJ McCollum shines with 50-point night amid tragedy of New Orleans terror attack**\
+`The Pelicans shooting guard gave Pelicans a night to remember at a significant time.`\
+https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orleans/
+
 **Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
 `Plus, GMs stack up this year’s top draft QBs versus last year’s class of passers.`\
 https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/opinion/climate-change-storms-rural-communties-er
 **Kenny Guiton taking over as Wisconsin's QB coach, shifting from WR duties: Source**\
 `Former Ohio State quarterback joined Wisconsin's staff as the wide receivers coach in 2024.`\
 https://nytimes.com/athletic/6037091/2025/01/04/kenny-guiton-wisconsin-quarterback-coach/
-
-**World Juniors Today: Previewing the 2025 semifinal matchups**\
-`Each team will have a chance to play for a medal this weekend. The Athletic breaks down the two semifinal matchups at the World Juniors.`\
-https://nytimes.com/athletic/6029903/2025/01/04/world-juniors-semifinal-matchups-preview-2025/
 
