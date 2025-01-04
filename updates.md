@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **The Briefing: Brighton 1 Arsenal 1 - A title blow, an unusual penalty call and Nwaneri's cameo**\
 `Jordan Campbell and Anantaajith Raghuraman break down the main talking points from Arsenal's 1-1 draw with Brighton & Hove Albion`\
 https://nytimes.com/athletic/6033118/2025/01/04/brighton-1-arsenal-1-saliba-penalty-nwaneri/
