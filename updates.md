@@ -1,3 +1,7 @@
+**State Dept. Tells Congress It Plans to Send $8 Billion in Arms to Israel**\
+`The arms transfer could be the final one the Biden administration provides to Israel. President Biden has largely ignored critics of Israel’s war in Gaza who have urged a halt to weapons aid.`\
+https://nytimes.com/2025/01/03/us/politics/us-weapons-israel.html
+
 **Winter Storm Spawns Tornado in Northern California**\
 `A warning covering an area with about 2,200 residents told people to take shelter because flying debris was expected.`\
 https://nytimes.com/2025/01/03/us/tornado-warning-california-tehama-shasta-county.html
