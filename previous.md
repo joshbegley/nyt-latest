@@ -1,3 +1,7 @@
+**Offense awakens, defense sags and Mark Messier calls out Rangers: 3 takeaways vs. Capitals**\
+`After a disheartening 7-4 loss to Washington, New York has now lost 16 of its last 21 games.`\
+https://nytimes.com/athletic/6037670/2025/01/04/rangers-capitals-mark-messier-comments/
+
 **Brighton's Joao Pedro praised as 'role model' by Hurzeler after captaincy role**\
 `Head coach Fabian Hurzeler says Joao Pedro was a &#8220;role model&#8221; as captain for Brighton &amp; Hove Albion in their 1-1 home draw with Arsenal.`\
 https://nytimes.com/athletic/6037728/2025/01/04/brighton-captain-joao-pedro-hurzeler/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6037502/2025/01/04/liverpool-transfers-marcelo-pita
 **Acheampong Chelsea's 'best player' in Palace draw - Maresca**\
 `Enzo Maresca praised Cobham graduate Josh Acheampong as Chelsea’s best performer in a 1-1 draw with Crystal Palace at Selhurst Park on Saturday.`\
 https://nytimes.com/athletic/6037441/2025/01/04/josh-acheampong-chelsea-enzo-maresca/
-
-**Villa's McGinn could miss up to 'five weeks' with hamstring injury - Emery**\
-`John McGinn suffered a hamstring injury and could be unavailable for several weeks, Aston Villa head coach Unai Emery has said.`\
-https://nytimes.com/athletic/6037321/2025/01/04/john-mcginn-hamstring-injury-aston-villa/
 
