@@ -1,3 +1,7 @@
+**How Fear and Conspiracy Theories Fuel South Korea’s Political Crisis**\
+`Right-wing YouTube​rs helped President Yoon Suk Yeol​ win his election. They are now his allies in the wake of his botched imposition of martial law.`\
+https://nytimes.com/2025/01/04/world/asia/south-korea-yoon-conspiracy-theories.html
+
 **Rockets' dismal showing against Celtics highlights yet another offensive void to fill**\
 `"It's tough with Jabari (Smith Jr.) going down," veteran Jeff Green said. "He's a vital piece of what we do."`\
 https://nytimes.com/athletic/6036812/2025/01/04/rockets-celtics-jabari-smith-jr-out/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036733/2025/01/04/blackhawks-goalie-arvid-soderblo
 **Have Liverpool really benefited from 'easy fixtures' in the Premier League this season?**\
 `Both scheduling and opposition form seem to have favoured Arne Slot's side in the first half of the season - but is that actually the case?`\
 https://nytimes.com/athletic/6035323/2025/01/04/liverpool-easy-fixture-list-premier-league/
-
-**How the Islamic State Radicalizes People Today**\
-`A man who pledged allegiance to the terrorist group carried out a deadly attack in New Orleans on New Year’s Day.`\
-https://nytimes.com/2025/01/04/world/middleeast/isis-propaganda-new-orleans-attack.html
 
