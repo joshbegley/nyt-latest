@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins earn hard-fought point against champs in Florida**\
+`The Penguins lost 3-2 in a shootout to the Panthers but continued to play the respectable brand of hockey we've seen as of late.`\
+https://nytimes.com/athletic/6032718/2025/01/03/penguins-panthers-kris-letang-injury/
+
 **State Dept. Tells Congress It Plans to Send $8 Billion in Arms to Israel**\
 `The arms transfer could be the final one the Biden administration provides to Israel. President Biden has largely ignored critics of Israel’s war in Gaza who have urged a halt to weapons aid.`\
 https://nytimes.com/2025/01/03/us/politics/us-weapons-israel.html
