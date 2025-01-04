@@ -1,3 +1,7 @@
+**Ravens' leading receiver Zay Flowers ruled out with knee injury vs. Browns**\
+`Since being drafted by the Ravens in the first round of 2023, Flowers leads all Ravens players in targets.`\
+https://nytimes.com/athletic/6037847/2025/01/04/ravens-zay-flowers-knee-injury/
+
 **Jimmy Carter’s Funeral Events Begin in Georgia**\
 `A motorcade carrying the remains of Jimmy Carter passed through the former president’s hometown and the Georgia State Capitol before ending at the Carter Center for a memorial service.`\
 https://nytimes.com/video/us/100000009908238/jimmy-carter-funeral-procession.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037675/2025/01/04/ethan-nwaneri-injury-arsenal/
 **West Ham's Lopetegui 'not optimistic' on Todibo injury**\
 `West Ham United head coach Julen Lopetegui has admitted he is “not optimistic” about the nature of Jean-Clair Todibo&#8217;s injury.`\
 https://nytimes.com/athletic/6037603/2025/01/04/west-ham-jean-clair-todibo-injury/
-
-**Tom Johnson, Minimalist Composer and Village Voice Critic, Dies at 85**\
-`He charted the rise of musical minimalism on New York’s downtown scene in the 1970s. He later gained notice for abstract works of his own.`\
-https://nytimes.com/2025/01/04/arts/music/tom-johnson-dead.html
 

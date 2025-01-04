@@ -1,3 +1,7 @@
+**Ravens' leading receiver Zay Flowers ruled out with knee injury vs. Browns**\
+`Since being drafted by the Ravens in the first round of 2023, Flowers leads all Ravens players in targets.`\
+https://nytimes.com/athletic/6037847/2025/01/04/ravens-zay-flowers-knee-injury/
+
 **Jimmy Carter’s Funeral Events Begin in Georgia**\
 `A motorcade carrying the remains of Jimmy Carter passed through the former president’s hometown and the Georgia State Capitol before ending at the Carter Center for a memorial service.`\
 https://nytimes.com/video/us/100000009908238/jimmy-carter-funeral-procession.html
