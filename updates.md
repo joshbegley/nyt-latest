@@ -193,6 +193,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Offense awakens, defense sags and Mark Messier calls out Rangers: 3 takeaways vs. Capitals**\
 `After a disheartening 7-4 loss to Washington, New York has now lost 16 of its last 21 games.`\
 https://nytimes.com/athletic/6037670/2025/01/04/rangers-capitals-mark-messier-comments/
