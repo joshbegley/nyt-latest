@@ -1,3 +1,7 @@
+**Liverpool's Pitaluga returning to Fluminense in permanent deal**\
+`Liverpool goalkeeper Marcelo Pitaluga is returning to Brazil to sign for former club Fluminense on a permanent deal.`\
+https://nytimes.com/athletic/6037502/2025/01/04/liverpool-transfers-marcelo-pitaluga-fluminense/
+
 **Acheampong Chelsea's 'best player' in Palace draw - Maresca**\
 `Enzo Maresca praised Cobham graduate Josh Acheampong as Chelsea’s best performer in a 1-1 draw with Crystal Palace at Selhurst Park on Saturday.`\
 https://nytimes.com/athletic/6037441/2025/01/04/josh-acheampong-chelsea-enzo-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/world/middleeast/hamas-israel-gaza-hostage.html
 **The Briefing: Manchester City 4 West Ham 1 - Haaland strikes twice and Savinho stars, but defence still looks fragile**\
 `Haaland struck either side of half-time and Savinho set up three of the goals as Guardiola's side brushed West Ham aside at the Etihad`\
 https://nytimes.com/athletic/6029670/2025/01/04/manchester-city-haaland-savinho-west-ham-analysis/
-
-**Sonny Smart, father of Georgia coach Kirby Smart, dies after fall**\
-`Sonny Smart was a longtime high school coach, with stops in Alabama, South Georgia and finally at Rabun County High School in the mid-2010s.`\
-https://nytimes.com/athletic/6037290/2025/01/04/sonny-smart-death-kirby-father/
 
