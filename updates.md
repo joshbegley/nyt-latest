@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 4 West Ham 1 - Haaland strikes twice and Savinho stars, but defence still looks fragile**\
+`Haaland struck either side of half-time and Savinho set up three of the goals as Guardiola's side brushed West Ham aside at the Etihad`\
+https://nytimes.com/athletic/6029670/2025/01/04/manchester-city-haaland-savinho-west-ham-analysis/
+
 **The secrets behind Phil Parkinson's 1,000 games as a manager**\
 `Wrexham's boss has reached 1,000 competitive games as a manager by mixing motivational skills with fury at the right times`\
 https://nytimes.com/athletic/5955098/2025/01/04/phil-parkinson-1000-wrexham-manager/
