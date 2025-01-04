@@ -1,3 +1,23 @@
+**Mayor Adams’s Inner Circle Has Changed. Two New Year’s Photos Show How.**\
+`A lot has happened since Eric Adams was sworn into office in Times Square in 2022 flanked by allies who would join his administration.`\
+https://nytimes.com/2025/01/04/nyregion/eric-adams-new-years-eve.html
+
+**Welcome to the Congestion Zone: New York Toll Program Is Set to Begin**\
+`After twists and turns, a contentious plan meant to reduce traffic and pay for transit improvements is scheduled to take effect at midnight Sunday.`\
+https://nytimes.com/2025/01/04/nyregion/congestion-pricing-nyc.html
+
+**Subway Victim’s Fiery End Stuns Friends From Her Happy Past**\
+`Debbie Kawam, as she was known in high school, was a cheerleader and a sunny presence. As the decades went on, she fell into an abyss.`\
+https://nytimes.com/2025/01/04/nyregion/woman-set-on-fire-debrina-kawam.html
+
+**How a Maker of Weighted Stuffed Animals Spends Her Sundays**\
+`Marina Khidekel founded Hugimals World as an answer to her own anxiety. She spends her Sundays watching “Hacks,” hanging out with other female founders and dropping in at a factory.`\
+https://nytimes.com/2025/01/04/nyregion/marina-khidekel-hugimals.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/04/crosswords/spelling-bee-forum.html
+
 **How Fear and Conspiracy Theories Fuel South Korea’s Political Crisis**\
 `Right-wing YouTube​rs helped President Yoon Suk Yeol​ win his election. They are now his allies in the wake of his botched imposition of martial law.`\
 https://nytimes.com/2025/01/04/world/asia/south-korea-yoon-conspiracy-theories.html
