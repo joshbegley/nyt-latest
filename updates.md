@@ -1,3 +1,7 @@
+**Liverpool's Pitaluga returning to Fluminense in permanent deal**\
+`Liverpool goalkeeper Marcelo Pitaluga is returning to Brazil to sign for former club Fluminense on a permanent deal.`\
+https://nytimes.com/athletic/6037502/2025/01/04/liverpool-transfers-marcelo-pitaluga-fluminense/
+
 **Acheampong Chelsea's 'best player' in Palace draw - Maresca**\
 `Enzo Maresca praised Cobham graduate Josh Acheampong as Chelsea’s best performer in a 1-1 draw with Crystal Palace at Selhurst Park on Saturday.`\
 https://nytimes.com/athletic/6037441/2025/01/04/josh-acheampong-chelsea-enzo-maresca/
