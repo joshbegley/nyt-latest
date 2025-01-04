@@ -1,3 +1,7 @@
+**Auston Matthews returning vs. Bruins after missing last 6 games**\
+`“It’s exciting,” Matthews said Saturday morning. "It’s never fun watching."`\
+https://nytimes.com/athletic/6037304/2025/01/04/auston-matthews-maple-leafs-return/
+
 **Jason Kelce's new late-night show needs more Kelce, less comedy**\
 `The debut of Jason Kelce's new ESPN late-night talk show highlighted the host's affability and the challenge of making late-night TV.`\
 https://nytimes.com/athletic/6037233/2025/01/04/jason-kelce-late-night-show-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-m
 **'Becoming a Rose': The story behind Derrick Rose's retirement film, a tribute to Chicago**\
 `On "Derrick Rose Night," his directorial film debut will be an ode to his Bulls career and the city he loves.`\
 https://nytimes.com/athletic/6036936/2025/01/04/derrick-rose-bulls-retirement-nba/
-
-**Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
-`Despite speculation around Butler, the Warriors are more likely to target two other names on the trade market in Chicago and Brooklyn.`\
-https://nytimes.com/athletic/6036974/2025/01/04/warriors-jimmy-butler-nba-trade-deadline/
 
