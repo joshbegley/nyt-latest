@@ -1,3 +1,15 @@
+**Notre Dame beat Georgia with better coaching, physicality and smart play: Final thoughts**\
+`Eleven final thoughts on Notre Dame’s historic 23-10 victory over Georgia in the Sugar Bowl, a win the Irish had long been waiting for.`\
+https://nytimes.com/athletic/6036361/2025/01/04/notre-dame-georgia-sugar-bowl-takeaways/
+
+**Antony Blinken Insists He and Biden Made the Right Calls**\
+`At the end of a tenure marked by war and division, the outgoing secretary of state defends his legacy on Gaza and Ukraine and says he’s made America stronger.`\
+https://nytimes.com/2025/01/04/magazine/antony-blinken-interview.html
+
+**Antony Blinken Insists He and Biden Made the Right Calls**\
+`At the end of a tenure marked by war and division, the outgoing Secretary of State defends his legacy on Gaza and Ukraine, and says he’s made America stronger.`\
+https://nytimes.com/video/podcasts/100000009893254/antony-blinken-insists-he-and-biden-made-the-right-calls.html
+
 **NFL Week 18 roundtable: Should league's playoff format change? Is Burrow's MVP case legit?**\
 `All will be decided in Week 18. Our writers discuss the ins and outs of key games this weekend and more.`\
 https://nytimes.com/athletic/6036670/2025/01/04/nfl-week-18-preview-playoff-format-joe-burrow-mvp/
