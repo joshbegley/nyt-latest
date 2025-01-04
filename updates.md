@@ -1,3 +1,7 @@
+**Why the Canucks’ shutout loss revealed big offensive concerns: 3 takeaways**\
+`The Canucks were shut out 3-0 by the Predators in another disappointing loss this season at Rogers Arena.`\
+https://nytimes.com/athletic/6036761/2025/01/04/canucks-shutout-loss-predators-takeaways/
+
 **'It was good stuff': Celtics go big and bold to defuse Rockets offense**\
 `With Kristaps Porziņģis and Luke Kornet guarding the rim, Houston and coach Ime Udoka had a rough time in Boston's 109-86 win.`\
 https://nytimes.com/athletic/6036870/2025/01/04/celtics-bigs-defense-porzingis-kornet-sengun/
