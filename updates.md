@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Newcastle 2 - Where were Maddison and Son? Can Isak keep scoring?**\
+`Goals from Anthony Gordon and Alexander Isak extended Newcastle's brilliant run and made it six league games at home without a win for Spurs`\
+https://nytimes.com/athletic/6029668/2025/01/04/tottenham-newcastle-isak-analysis-maddison-son/
+
 **Striking Patrollers Disrupt Season at Largest Ski Resort in U.S.**\
 `Long lift lines, limited terrain and frustration among skiers and snowboarders are downstream impacts of a wage dispute between union workers at Park City Mountain in Utah and its owner, Vail Resorts.`\
 https://nytimes.com/2025/01/04/travel/park-city-strike-ski-patrol.html

@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Newcastle 2 - Where were Maddison and Son? Can Isak keep scoring?**\
+`Goals from Anthony Gordon and Alexander Isak extended Newcastle's brilliant run and made it six league games at home without a win for Spurs`\
+https://nytimes.com/athletic/6029668/2025/01/04/tottenham-newcastle-isak-analysis-maddison-son/
+
 **Striking Patrollers Disrupt Season at Largest Ski Resort in U.S.**\
 `Long lift lines, limited terrain and frustration among skiers and snowboarders are downstream impacts of a wage dispute between union workers at Park City Mountain in Utah and its owner, Vail Resorts.`\
 https://nytimes.com/2025/01/04/travel/park-city-strike-ski-patrol.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033635/2025/01/04/dani-olmo-barcelona-la-liga-regi
 **Syria’s International Airport to Reopen as Government Presses for Stability**\
 `Tensions are high on Syria’s border with Lebanon. The ouster of President Bashar al-Assad led to worry that violence could spill over into neighboring countries.`\
 https://nytimes.com/2025/01/04/world/middleeast/syria-lebanon-israel-gaza.html
-
-**Grading every NHL team's season as we approach the midway point**\
-`From F to A+ to everything in between, The Athletic's NHL staff hands out grades to every team based on their season so far.`\
-https://nytimes.com/athletic/6030146/2025/01/04/nhl-grades-teams-midway-season/
 
