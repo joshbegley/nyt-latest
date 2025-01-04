@@ -1,3 +1,7 @@
+**The Year Ahead**\
+`There’s an empty calendar spread out before us. What meaning will we give to it?`\
+https://nytimes.com/2025/01/04/briefing/the-year-ahead.html
+
 **Tottenham close to signing goalkeeper Kinsky from Slavia Prague**\
 `Tottenham Hotspur are close to signing Czech goalkeeper Antonin Kinsky to a long-term deal.`\
 https://nytimes.com/athletic/6037030/2025/01/04/antonin-kinsky-tottenham-transfer/
