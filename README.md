@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6037235/2025/01/04/ange-postecoglou-tottenham-newca
 https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orleans/
 
 **Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
-`Plus, GMs stack up this year’s top draft QBs versus last year’s class of passers.`\
+`Plus, GMs stack up the top QBs in this year's draft versus last year’s class of passers.`\
 https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
 
 **'Becoming a Rose': The story behind Derrick Rose's retirement film, a tribute to Chicago**\
