@@ -1,3 +1,11 @@
+**Just *Done* With Something**\
+`Sam Ezersky’s Saturday puzzle gives us a lot to chew on.`\
+https://nytimes.com/2025/01/03/crosswords/daily-puzzle-2025-01-04.html
+
+**Lakers coach JJ Redick responds to Charles Barkley's criticism: "Literally don't care"**\
+`"My resting heart rate is probably 64," Redick said ahead of Friday's game against the Hawks.`\
+https://nytimes.com/athletic/6036707/2025/01/03/jj-redick-charles-barkley-lakers-criticism/
+
 **Texas Teen Killed Goat at School Barn Used for Livestock Contests, Police Say**\
 `A 17-year-old said that she had poisoned the animal with pesticide because she thought its keeper was a cheater, the authorities said.`\
 https://nytimes.com/2025/01/03/us/texas-teen-poisons-goat.html
