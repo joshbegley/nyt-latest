@@ -1,3 +1,7 @@
+**Why the Canucks’ shutout loss revealed big offensive concerns: 3 takeaways**\
+`The Canucks were shut out 3-0 by the Predators in another disappointing loss this season at Rogers Arena.`\
+https://nytimes.com/athletic/6036761/2025/01/04/canucks-shutout-loss-predators-takeaways/
+
 **'It was good stuff': Celtics go big and bold to defuse Rockets offense**\
 `With Kristaps Porziņģis and Luke Kornet guarding the rim, Houston and coach Ime Udoka had a rough time in Boston's 109-86 win.`\
 https://nytimes.com/athletic/6036870/2025/01/04/celtics-bigs-defense-porzingis-kornet-sengun/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/world/europe/kosovo-albanians-christianity-islam.
 **In France, Drug Traffic Spreads to New Territory: Small Towns**\
 `Even quaint corners of the country are seeing a rise in drug violence and crime. Just ask the mayor of Morlaix, which has a population of about 15,000.`\
 https://nytimes.com/2025/01/04/world/europe/france-drugs-small-towns.html
-
-**Manchester City vs West Ham: Storylines, odds, prediction as City try to climb table**\
-`Manchester City host West Ham in a meeting of teams struggling to get wins recently. Will Man City make it two in a row?`\
-https://nytimes.com/athletic/6036061/2025/01/04/manchester-city-west-ham-preview-odds-prediction/
 
