@@ -1,3 +1,7 @@
+**Judge Rejects New Jersey’s Bid to Halt Congestion Pricing**\
+`Starting Sunday, most drivers who enter Manhattan south of 60th Street during peak travel times will be charged a $9 fee.`\
+https://nytimes.com/2025/01/03/nyregion/congestion-pricing-hearing-new-jersey.html
+
 **3 Ex-Deputies Face Murder Charges in Virginia Inmate’s Death**\
 `The deputies restrained the man after he was “uncooperative and combative” while being booked into the jail, officials said. He was hospitalized after a “medical emergency” and died days later.`\
 https://nytimes.com/2025/01/03/us/virginia-beach-deputies-indictment-inmate-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036583/2025/01/03/houston-rockets-jabari-smith-jr-
 **Biden Honors Police Officers and Veterans With Medals at White House**\
 `The president recognized five officers who responded to a 2023 school shooting at a private Christian school in Tennessee, and veterans of the Korean and Vietnam wars.`\
 https://nytimes.com/2025/01/03/us/politics/biden-presidential-medals-officers.html
-
-**New Orleans Releases Most Names of Victims Killed in Attack**\
-`Those who died after a man drove a pickup through the French Quarter highlighted the diverse mix of people who are drawn to the city.`\
-https://nytimes.com/2025/01/03/us/new-orleans-victims-truck-attack.html
 
