@@ -1,3 +1,11 @@
+**Washington Post Cartoonist Quits After Jeff Bezos Cartoon Is Killed**\
+`The cartoon, by Ann Telnaes, depicted the owner of The Post, Jeff Bezos, and other billionaires genuflecting toward a statue of President-elect Donald Trump.`\
+https://nytimes.com/2025/01/03/business/media/washington-post-cartoonist-quits-after-jeff-bezos-cartoon-is-killed.html
+
+**Yohe's 10 observations: Penguins earn hard-fought point against champs in Florida**\
+`The Penguins lost 3-2 in shootout to the Panthers but continued to play the respectable brand of hockey we've seen of late.`\
+https://nytimes.com/athletic/6032718/2025/01/03/penguins-panthers-kris-letang-injury/
+
 **Magic's Jalen Suggs leaves game in wheelchair, diagnosed with 'back spasms'**\
 `The Magic have already been ravaged by injuries this season, including to stars Paolo Banchero and Franz Wagner. `\
 https://nytimes.com/athletic/6036715/2025/01/03/jalen-suggs-injury-back-magic/

@@ -1,3 +1,11 @@
+**Washington Post Cartoonist Quits After Jeff Bezos Cartoon Is Killed**\
+`The cartoon, by Ann Telnaes, depicted the owner of The Post, Jeff Bezos, and other billionaires genuflecting toward a statue of President-elect Donald Trump.`\
+https://nytimes.com/2025/01/03/business/media/washington-post-cartoonist-quits-after-jeff-bezos-cartoon-is-killed.html
+
+**Yohe's 10 observations: Penguins earn hard-fought point against champs in Florida**\
+`The Penguins lost 3-2 in shootout to the Panthers but continued to play the respectable brand of hockey we've seen of late.`\
+https://nytimes.com/athletic/6032718/2025/01/03/penguins-panthers-kris-letang-injury/
+
 **Magic's Jalen Suggs leaves game in wheelchair, diagnosed with 'back spasms'**\
 `The Magic have already been ravaged by injuries this season, including to stars Paolo Banchero and Franz Wagner. `\
 https://nytimes.com/athletic/6036715/2025/01/03/jalen-suggs-injury-back-magic/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/us/virginia-beach-deputies-indictment-inmate-murd
 **Guantánamo Convict Sues to Stop U.S. Plan to Send Him to Prison in Iraq**\
 `A court filing said the prisoner was at risk for abuse and might not be able to get adequate health care if transferred.`\
 https://nytimes.com/2025/01/03/us/politics/guantanamo-prisoner-iraq-lawsuit.html
-
-**Dodgers' roster taking shape after Teoscar Hernández, Hyeseong Kim signings**\
-`GM Brandon Gomes declined to say whether the organization has been granted a second meeting with Roki Sasaki.`\
-https://nytimes.com/athletic/6036621/2025/01/03/dodgers-still-looking-to-add-after-teoscar-hernandez-hyeseong-kim-signings/
-
-**New Orleans Attacker Had Transmitter to Set Off Explosives, F.B.I. Says**\
-`Bomb-making materials were found at a short-term rental house, and the authorities said they had recovered a transmitter intended to set off explosives on the city’s famous Bourbon Street.`\
-https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
 
