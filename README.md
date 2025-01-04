@@ -1,3 +1,7 @@
+**Bears tight end Marcedes Lewis on Caleb Williams, qualities of a good coach and Year 20**\
+`Lewis is wrapping up his 19th NFL season Sunday. He discussed his plans to keep playing, his rookie quarterback and more.`\
+https://nytimes.com/athletic/6036364/2025/01/04/bears-marcedes-lewis-caleb-williams/
+
 **Vikings LB Blake Cashman's return home has surpassed even his wildest expectations**\
 `The native of nearby Eden Prairie, Minn., is living the dream during a magical season for his hometown team.`\
 https://nytimes.com/athletic/6035799/2025/01/04/blake-cashman-vikings-home-eden-prairie-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/magazine/antony-blinken-interview.html
 **Antony Blinken Insists He and Biden Made the Right Calls**\
 `At the end of a tenure marked by war and division, the outgoing Secretary of State defends his legacy on Gaza and Ukraine, and says he’s made America stronger.`\
 https://nytimes.com/video/podcasts/100000009893254/antony-blinken-insists-he-and-biden-made-the-right-calls.html
-
-**NFL Week 18 roundtable: Should league's playoff format change? Is Burrow's MVP case legit?**\
-`All will be decided in Week 18. Our writers discuss the ins and outs of key games this weekend and more.`\
-https://nytimes.com/athletic/6036670/2025/01/04/nfl-week-18-preview-playoff-format-joe-burrow-mvp/
 
