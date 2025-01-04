@@ -1,3 +1,15 @@
+**World Juniors Today: Previewing the 2025 semifinal matchups**\
+`Each team will have a chance to play for a medal this weekend. The Athletic breaks down the two semifinal matchups at the World Juniors.`\
+https://nytimes.com/athletic/6029903/2025/01/04/world-juniors-semifinal-matchups-preview-2025/
+
+**Court says Angels owner Arte Moreno has not complied with subpoena in Tyler Skaggs case**\
+`A court referee wrote that a further ruling on financial sanctions against the Angels could become appropriate.`\
+https://nytimes.com/athletic/6036537/2025/01/04/angels-moreno-owner-skaggs-subpoena/
+
+**What We’re Watching in 2025**\
+`These big questions will define business and policy in the year ahead.`\
+https://nytimes.com/2025/01/04/business/dealbook/what-were-watching-in-2025.html
+
 **2 Books About the Moneyed Class**\
 `A novel of British nobility; a memoir of American aristocracy.`\
 https://nytimes.com/2025/01/04/books/read-like-wind-recommendations.html
