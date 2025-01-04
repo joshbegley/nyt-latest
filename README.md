@@ -1,3 +1,7 @@
+**All Things Change**\
+`Kareem Ayas rolls up with a sparkling Sunday puzzle.`\
+https://nytimes.com/2025/01/04/crosswords/daily-puzzle-2025-01-05.html
+
 **Ralph Lauren Makes Fashion History With Top Civilian Honor**\
 `After decades of being nearly synonymous with American fashion, the 85-year-old became the first fashion designer to win the Presidential Medal of Freedom.`\
 https://nytimes.com/2025/01/04/style/ralph-lauren-presidential-medal-freedom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/arts/music/tom-johnson-dead.html
 **The Briefing: Brighton 1 Arsenal 1 - A title blow, an unusual penalty call and Nwaneri's cameo**\
 `Jordan Campbell and Anantaajith Raghuraman break down the main talking points from Arsenal's 1-1 draw with Brighton & Hove Albion`\
 https://nytimes.com/athletic/6033118/2025/01/04/brighton-1-arsenal-1-saliba-penalty-nwaneri/
-
-**Notre Dame, Penn State set for Orange Bowl clash. What are keys to the game?**\
-`The Athletic beat writers Pete Sampson (Notre Dame) and Audrey Snyder (Penn State) share their thoughts on the CFP semifinal.`\
-https://nytimes.com/athletic/6037333/2025/01/04/cfp-notre-dame-penn-state-orange-bowl/
 
