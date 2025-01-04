@@ -1,3 +1,7 @@
+**Postecoglou 'angriest I have ever been in my career' after Tottenham's defeat to Newcastle**\
+`Ange Postecoglou said that he was “the angriest I have ever been in my career” following Tottenham Hotspur’s defeat to Newcastle United on Saturday.`\
+https://nytimes.com/athletic/6037235/2025/01/04/ange-postecoglou-tottenham-newcastle-defeat/
+
 **CJ McCollum shines with 50-point night amid tragedy of New Orleans terror attack**\
 `The Pelicans shooting guard gave Pelicans a night to remember at a significant time.`\
 https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orleans/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orlean
 https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
 
 **'Becoming a Rose': The story behind Derrick Rose's retirement film, a tribute to Chicago**\
-`On 'Derrick Rose Night,' his directorial film debut will be an ode to his Bulls career and the city he loves.`\
+`On "Derrick Rose Night," his directorial film debut will be an ode to his Bulls career and the city he loves.`\
 https://nytimes.com/athletic/6036936/2025/01/04/derrick-rose-bulls-retirement-nba/
 
 **Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/travel/park-city-strike-ski-patrol.html
 **Is America Just Going to Abandon Its Towns Falling Into the Ocean?**\
 `Communities must be able to move to solid ground while remaining whole.`\
 https://nytimes.com/2025/01/04/opinion/climate-change-storms-rural-communties-erosion.html
-
-**Kenny Guiton taking over as Wisconsin's QB coach, shifting from WR duties: Source**\
-`Former Ohio State quarterback joined Wisconsin's staff as the wide receivers coach in 2024.`\
-https://nytimes.com/athletic/6037091/2025/01/04/kenny-guiton-wisconsin-quarterback-coach/
 
