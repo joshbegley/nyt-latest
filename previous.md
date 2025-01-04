@@ -1,3 +1,7 @@
+**Arsenal's Nwaneri suffers muscular injury, says Arteta: 'We've lost him'**\
+`Arsenal goalscorer Ethan Nwaneri was substituted at half-time against Brighton &amp; Hove Albion because of a muscular injury, Mikel Arteta has said.`\
+https://nytimes.com/athletic/6037675/2025/01/04/ethan-nwaneri-injury-arsenal/
+
 **West Ham's Lopetegui 'not optimistic' on Todibo injury**\
 `West Ham United head coach Julen Lopetegui has admitted he is “not optimistic” about the nature of Jean-Clair Todibo&#8217;s injury.`\
 https://nytimes.com/athletic/6037603/2025/01/04/west-ham-jean-clair-todibo-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6037321/2025/01/04/john-mcginn-hamstring-injury-ast
 **Bulls to honor Derrick Rose with jersey retirement next season**\
 `Rose spent eight seasons with the franchise and became the youngest MVP in league history in 2011.`\
 https://nytimes.com/athletic/6037421/2025/01/04/derrick-rose-chicago-bulls-retired-numbers-jerseys/
-
-**Abdul Carter's status for Orange Bowl remains in limbo: 'Too early to say'**\
-`Carter, the Big Ten’s reigning defensive player of the year, exited the Fiesta Bowl in the first half with an apparent left shoulder injury.`\
-https://nytimes.com/athletic/6037274/2025/01/04/abdul-carter-injury-penn-state-orange-bowl/
 
