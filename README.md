@@ -1,3 +1,7 @@
+**Is America Just Going to Abandon Its Towns Falling Into the Ocean?**\
+`Communities must be able to move to solid ground while remaining whole.`\
+https://nytimes.com/2025/01/04/opinion/climate-change-storms-rural-communties-erosion.html
+
 **Kenny Guiton taking over as Wisconsin's QB coach, shifting from WR duties: Source**\
 `Former Ohio State quarterback joined Wisconsin's staff as the wide receivers coach in 2024.`\
 https://nytimes.com/athletic/6037091/2025/01/04/kenny-guiton-wisconsin-quarterback-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030146/2025/01/04/nhl-grades-teams-midway-season/
 **This Essential Twist in ‘Squid Game’ Season 2 Perfectly Mirrors Our Moment**\
 `On ‘Squid Game,’ the game is cruel but life is crueler. In Season 2, a new twist introduces a kind of cruelty that feels uncomfortably close to real life.`\
 https://nytimes.com/2025/01/04/opinion/squid-game-season-2-essential-twist.html
-
-**What Linda Lavin Whispered to Me About Love and Need**\
-`She was a radiant star who played things her own way.`\
-https://nytimes.com/2025/01/04/opinion/linda-lavin-appreciation-theater.html
 
