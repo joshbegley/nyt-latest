@@ -1,3 +1,7 @@
+**Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
+`Despite speculation around Butler, the Warriors are more likely to target two other names on the trade market in Chicago and Brooklyn.`\
+https://nytimes.com/athletic/6036974/2025/01/04/warriors-jimmy-butler-nba-trade-deadline/
+
 **After allowing 29 second-half points, is Detroit's defense turning the corner?**\
 `The Pistons put on a defensive master class in the second half of Friday's win. Can they make it routine?`\
 https://nytimes.com/athletic/6036904/2025/01/04/pistons-defense-hornets/

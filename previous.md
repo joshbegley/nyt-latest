@@ -1,3 +1,7 @@
+**Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
+`Despite speculation around Butler, the Warriors are more likely to target two other names on the trade market in Chicago and Brooklyn.`\
+https://nytimes.com/athletic/6036974/2025/01/04/warriors-jimmy-butler-nba-trade-deadline/
+
 **After allowing 29 second-half points, is Detroit's defense turning the corner?**\
 `The Pistons put on a defensive master class in the second half of Friday's win. Can they make it routine?`\
 https://nytimes.com/athletic/6036904/2025/01/04/pistons-defense-hornets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036537/2025/01/04/angels-moreno-owner-skaggs-subpo
 **What We’re Watching in 2025**\
 `These big questions will define business and policy in the year ahead.`\
 https://nytimes.com/2025/01/04/business/dealbook/what-were-watching-in-2025.html
-
-**2 Books About the Moneyed Class**\
-`A novel of British nobility; a memoir of American aristocracy.`\
-https://nytimes.com/2025/01/04/books/read-like-wind-recommendations.html
 
