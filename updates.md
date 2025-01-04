@@ -1,3 +1,7 @@
+**'It was good stuff': Celtics go big and bold to defuse Rockets offense**\
+`With Kristaps Porziņģis and Luke Kornet guarding the rim, Houston and coach Ime Udoka had a rough time in Boston's 109-86 win.`\
+https://nytimes.com/athletic/6036870/2025/01/04/celtics-bigs-defense-porzingis-kornet-sengun/
+
 **Edwards: Knicks can't grab signature win vs. Thunder but are heading in right direction**\
 `The Knicks still can't be the league's best, but they're pushing themselves closer to the conversation.`\
 https://nytimes.com/athletic/6036808/2025/01/04/knicks-lose-to-thunder-right-direction/
