@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Arsenal's Nwaneri suffers muscular injury, says Arteta: 'We've lost him'**\
 `Arsenal goalscorer Ethan Nwaneri was substituted at half-time against Brighton &amp; Hove Albion because of a muscular injury, Mikel Arteta has said.`\
 https://nytimes.com/athletic/6037675/2025/01/04/ethan-nwaneri-injury-arsenal/
