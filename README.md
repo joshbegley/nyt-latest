@@ -1,3 +1,7 @@
+**Corrections: Jan. 4, 2025**\
+`Corrections that appeared in print on Saturday, Jan. 4, 2025.`\
+https://nytimes.com/2025/01/03/pageoneplus/corrections-jan-4-2025.html
+
 **Judge Rejects New Jersey’s Bid to Halt Congestion Pricing**\
 `Starting Sunday, most drivers who enter Manhattan south of 60th Street during peak travel times will be charged a $9 fee.`\
 https://nytimes.com/2025/01/03/nyregion/congestion-pricing-hearing-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html
 **Rockets' Jabari Smith Jr. fractures hand, out 4 to 8 weeks**\
 `Losing him at a time when the Rockets are already quietly dealing with a Tari Eason absence is a huge blow.`\
 https://nytimes.com/athletic/6036583/2025/01/03/houston-rockets-jabari-smith-jr-injury/
-
-**Biden Honors Police Officers and Veterans With Medals at White House**\
-`The president recognized five officers who responded to a 2023 school shooting at a private Christian school in Tennessee, and veterans of the Korean and Vietnam wars.`\
-https://nytimes.com/2025/01/03/us/politics/biden-presidential-medals-officers.html
 
