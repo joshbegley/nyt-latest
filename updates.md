@@ -1,3 +1,7 @@
+**Is America Just Going to Abandon Its Towns Falling Into the Ocean?**\
+`Communities must be able to move to solid ground while remaining whole.`\
+https://nytimes.com/2025/01/04/opinion/climate-change-storms-rural-communties-erosion.html
+
 **Kenny Guiton taking over as Wisconsin's QB coach, shifting from WR duties: Source**\
 `Former Ohio State quarterback joined Wisconsin's staff as the wide receivers coach in 2024.`\
 https://nytimes.com/athletic/6037091/2025/01/04/kenny-guiton-wisconsin-quarterback-coach/
