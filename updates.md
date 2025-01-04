@@ -68,6 +68,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Tom Johnson, Minimalist Composer and Village Voice Critic, Dies at 85**\
 `He charted the rise of musical minimalism on New York’s downtown scene in the 1970s. He later gained notice for abstract works of his own.`\
 https://nytimes.com/2025/01/04/arts/music/tom-johnson-dead.html
