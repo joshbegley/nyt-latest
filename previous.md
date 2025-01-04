@@ -1,3 +1,7 @@
+**Bulls to honor Derrick Rose with jersey retirement next season**\
+`Rose spent eight seasons with the franchise and became the youngest MVP in league history in 2011.`\
+https://nytimes.com/athletic/6037421/2025/01/04/derrick-rose-chicago-bulls-retired-numbers-jerseys/
+
 **Abdul Carter's status for Orange Bowl remains in limbo: 'Too early to say'**\
 `Carter, the Big Ten’s reigning defensive player of the year, exited the Fiesta Bowl in the first half with an apparent left shoulder injury.`\
 https://nytimes.com/athletic/6037274/2025/01/04/abdul-carter-injury-penn-state-orange-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029669/2025/01/04/chelsea-palace-acheampong-sancho
 **Soldier’s Struggles Began Long Before Las Vegas Blast, Nurse Says**\
 `A Green Beret who had served several combat tours fatally shot himself in a Cybertruck that exploded outside a Trump hotel on New Year’s Day.`\
 https://nytimes.com/2025/01/04/us/matthew-livelsberger-las-vegas-cybertruck.html
-
-**Auston Matthews returning vs. Bruins after missing last 6 games**\
-`“It’s exciting,” Matthews said Saturday morning. "It’s never fun watching."`\
-https://nytimes.com/athletic/6037304/2025/01/04/auston-matthews-maple-leafs-return/
 

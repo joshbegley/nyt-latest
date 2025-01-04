@@ -1,3 +1,7 @@
+**Bulls to honor Derrick Rose with jersey retirement next season**\
+`Rose spent eight seasons with the franchise and became the youngest MVP in league history in 2011.`\
+https://nytimes.com/athletic/6037421/2025/01/04/derrick-rose-chicago-bulls-retired-numbers-jerseys/
+
 **Abdul Carter's status for Orange Bowl remains in limbo: 'Too early to say'**\
 `Carter, the Big Ten’s reigning defensive player of the year, exited the Fiesta Bowl in the first half with an apparent left shoulder injury.`\
 https://nytimes.com/athletic/6037274/2025/01/04/abdul-carter-injury-penn-state-orange-bowl/
