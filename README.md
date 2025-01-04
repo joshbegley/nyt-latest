@@ -1,3 +1,8 @@
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Liverpool's Pitaluga returning to Fluminense in permanent deal**\
 `Liverpool goalkeeper Marcelo Pitaluga is returning to Brazil to sign for former club Fluminense on a permanent deal.`\
 https://nytimes.com/athletic/6037502/2025/01/04/liverpool-transfers-marcelo-pitaluga-fluminense/
@@ -33,8 +38,4 @@ https://nytimes.com/live/2025/01/02/opinion/thepoint/trump-merchan-sentence-tria
 **Hamas Releases Video of Teenage Israeli Soldier Held Hostage in Gaza**\
 `Liri Albag, 19, is one of about 100 hostages believed to remain held in the enclave nearly 15 months after the Hamas-led attacks on Israel.`\
 https://nytimes.com/2025/01/04/world/middleeast/hamas-israel-gaza-hostage.html
-
-**The Briefing: Manchester City 4 West Ham 1 - Haaland strikes twice and Savinho stars, but defence still looks fragile**\
-`Haaland struck either side of half-time and Savinho set up three of the goals as Guardiola's side brushed West Ham aside at the Etihad`\
-https://nytimes.com/athletic/6029670/2025/01/04/manchester-city-haaland-savinho-west-ham-analysis/
 
