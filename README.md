@@ -11,7 +11,7 @@ https://nytimes.com/2025/01/03/us/tornado-warning-california-tehama-shasta-count
 https://nytimes.com/2025/01/03/business/media/washington-post-cartoonist-quits-after-jeff-bezos-cartoon-is-killed.html
 
 **Yohe's 10 observations: Penguins earn hard-fought point against champs in Florida**\
-`The Penguins lost 3-2 in shootout to the Panthers but continued to play the respectable brand of hockey we've seen as of late.`\
+`The Penguins lost 3-2 in a shootout to the Panthers but continued to play the respectable brand of hockey we've seen as of late.`\
 https://nytimes.com/athletic/6032718/2025/01/03/penguins-panthers-kris-letang-injury/
 
 **Magic's Jalen Suggs leaves game in wheelchair, diagnosed with 'back spasms'**\
