@@ -1,3 +1,7 @@
+**Brighton's Joao Pedro praised as 'role model' by Hurzeler after captaincy role**\
+`Head coach Fabian Hurzeler says Joao Pedro was a &#8220;role model&#8221; as captain for Brighton &amp; Hove Albion in their 1-1 home draw with Arsenal.`\
+https://nytimes.com/athletic/6037728/2025/01/04/brighton-captain-joao-pedro-hurzeler/
+
 **Arsenal's Nwaneri suffers muscular injury, says Arteta: 'We've lost him'**\
 `Arsenal goalscorer Ethan Nwaneri was substituted at half-time against Brighton &amp; Hove Albion because of a muscular injury, Mikel Arteta has said.`\
 https://nytimes.com/athletic/6037675/2025/01/04/ethan-nwaneri-injury-arsenal/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6037441/2025/01/04/josh-acheampong-chelsea-enzo-mar
 **Villa's McGinn could miss up to 'five weeks' with hamstring injury - Emery**\
 `John McGinn suffered a hamstring injury and could be unavailable for several weeks, Aston Villa head coach Unai Emery has said.`\
 https://nytimes.com/athletic/6037321/2025/01/04/john-mcginn-hamstring-injury-aston-villa/
-
-**Bulls to honor Derrick Rose with jersey retirement next season**\
-`Rose spent eight seasons with the franchise and became the youngest MVP in league history in 2011.`\
-https://nytimes.com/athletic/6037421/2025/01/04/derrick-rose-chicago-bulls-retired-numbers-jerseys/
 
