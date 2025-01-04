@@ -1,3 +1,7 @@
+**Lakers coach JJ Redick responds to Charles Barkley's criticism: 'Literally don't care'**\
+`"My resting heart rate is probably 64," Redick said ahead of Friday's game against the Hawks.`\
+https://nytimes.com/athletic/6036707/2025/01/03/jj-redick-charles-barkley-lakers-criticism/
+
 **Just *Done* With Something**\
 `Sam Ezersky’s Saturday puzzle gives us a lot to chew on.`\
 https://nytimes.com/2025/01/03/crosswords/daily-puzzle-2025-01-04.html
