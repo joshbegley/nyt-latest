@@ -1,3 +1,7 @@
+**How Fear and Conspiracy Theories Fuel South Korea’s Political Crisis**\
+`Right-wing YouTube​rs helped President Yoon Suk Yeol​ win his election. They are now his allies in the wake of his botched imposition of martial law.`\
+https://nytimes.com/2025/01/04/world/asia/south-korea-yoon-conspiracy-theories.html
+
 **Rockets' dismal showing against Celtics highlights yet another offensive void to fill**\
 `"It's tough with Jabari (Smith Jr.) going down," veteran Jeff Green said. "He's a vital piece of what we do."`\
 https://nytimes.com/athletic/6036812/2025/01/04/rockets-celtics-jabari-smith-jr-out/
