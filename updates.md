@@ -1,3 +1,19 @@
+**Vikings LB Blake Cashman's return home has surpassed even his wildest expectations**\
+`The native of nearby Eden Prairie, Minn., is living the dream during a magical season for his hometown team.`\
+https://nytimes.com/athletic/6035799/2025/01/04/blake-cashman-vikings-home-eden-prairie-playoffs/
+
+**The Connections Companion No. 574**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 5, 2025.`\
+https://nytimes.com/2025/01/04/crosswords/connections-companion-574.html
+
+**Wordle Review No. 1,296**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 5, 2025.`\
+https://nytimes.com/2025/01/04/crosswords/wordle-review-1296.html
+
+**Jimmy Carter and Canada’s Worst Nuclear Reactor Accident**\
+`The former American president, who died this week at 100, was among those who came to clean up a partial meltdown at Chalk River, Ontario.`\
+https://nytimes.com/2025/01/04/world/canada/jimmy-carter-nuclear-canada-chalk-river.html
+
 **Drones, Exploding Parcels and Sabotage: How Hybrid Tactics Target the West**\
 `Russia and other hostile states have become increasingly brazen in adopting “gray zone” attacks against Europe and the United States, leaving defense officials with a dilemma: How to respond?`\
 https://nytimes.com/2025/01/04/world/europe/nato-attacks-drones-exploding-parcels-hybrid.html

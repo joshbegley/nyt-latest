@@ -1,3 +1,19 @@
+**Vikings LB Blake Cashman's return home has surpassed even his wildest expectations**\
+`The native of nearby Eden Prairie, Minn., is living the dream during a magical season for his hometown team.`\
+https://nytimes.com/athletic/6035799/2025/01/04/blake-cashman-vikings-home-eden-prairie-playoffs/
+
+**The Connections Companion No. 574**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 5, 2025.`\
+https://nytimes.com/2025/01/04/crosswords/connections-companion-574.html
+
+**Wordle Review No. 1,296**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 5, 2025.`\
+https://nytimes.com/2025/01/04/crosswords/wordle-review-1296.html
+
+**Jimmy Carter and Canada’s Worst Nuclear Reactor Accident**\
+`The former American president, who died this week at 100, was among those who came to clean up a partial meltdown at Chalk River, Ontario.`\
+https://nytimes.com/2025/01/04/world/canada/jimmy-carter-nuclear-canada-chalk-river.html
+
 **Drones, Exploding Parcels and Sabotage: How Hybrid Tactics Target the West**\
 `Russia and other hostile states have become increasingly brazen in adopting “gray zone” attacks against Europe and the United States, leaving defense officials with a dilemma: How to respond?`\
 https://nytimes.com/2025/01/04/world/europe/nato-attacks-drones-exploding-parcels-hybrid.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/podcasts/100000009893254/antony-blinken-insists-he-and
 **NFL Week 18 roundtable: Should league's playoff format change? Is Burrow's MVP case legit?**\
 `All will be decided in Week 18. Our writers discuss the ins and outs of key games this weekend and more.`\
 https://nytimes.com/athletic/6036670/2025/01/04/nfl-week-18-preview-playoff-format-joe-burrow-mvp/
-
-**Who Are the 19 Recipients of the Presidential Medal of Freedom?**\
-`The honorees include high-profile figures like Hillary Clinton, the singer Bono, the philanthropist and donor George Soros, and Lionel Messi.`\
-https://nytimes.com/2025/01/04/us/politics/presidential-medal-of-freedom-honorees.html
-
-**Biden to Dole Out 19 Medals of Freedom, and One Unmistakable Message**\
-`With a recipient list stocked with old-guard icons and political backers, the president is signaling support for the establishment his successor wants to tear down.`\
-https://nytimes.com/2025/01/04/us/politics/biden-to-dole-out-19-medals-of-freedom-and-one-unmistakable-message.html
-
-**Here’s the Schedule of Funeral Events Honoring Jimmy Carter This Week**\
-`The gestures of remembrance have all been selected to reflect the 39th president’s rural roots and political career in Georgia and Washington, and his legacy of global advocacy.`\
-https://nytimes.com/2025/01/04/us/jimmy-carter-funeral-schedule.html
-
-**Trump Has Reeled in More Than $200 Million Since Election Day**\
-`The president-elect has boasted about the donations for his inauguration, library and political activities from those seeking favor or perhaps in some cases, atonement.`\
-https://nytimes.com/2025/01/04/us/politics/trump-inaugural-donations.html
 
