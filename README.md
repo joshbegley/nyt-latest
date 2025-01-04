@@ -1,3 +1,7 @@
+**State Dept. Tells Congress It Plans to Send $8 Billion in Arms to Israel**\
+`The arms transfer could be the final one the Biden administration provides to Israel. President Biden has largely ignored critics of Israel’s war in Gaza who have urged a halt to weapons aid.`\
+https://nytimes.com/2025/01/03/us/politics/us-weapons-israel.html
+
 **Winter Storm Spawns Tornado in Northern California**\
 `A warning covering an area with about 2,200 residents told people to take shelter because flying debris was expected.`\
 https://nytimes.com/2025/01/03/us/tornado-warning-california-tehama-shasta-county.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/pageoneplus/corrections-jan-4-2025.html
 **Judge Rejects New Jersey’s Bid to Halt Congestion Pricing**\
 `Starting Sunday, most drivers who enter Manhattan south of 60th Street during peak travel times will be charged a $9 fee.`\
 https://nytimes.com/2025/01/03/nyregion/congestion-pricing-hearing-new-jersey.html
-
-**3 Ex-Deputies Face Murder Charges in Virginia Inmate’s Death**\
-`The deputies restrained the man after he was “uncooperative and combative” while being booked into the jail, officials said. He was hospitalized after a “medical emergency” and died days later.`\
-https://nytimes.com/2025/01/03/us/virginia-beach-deputies-indictment-inmate-murder.html
 
