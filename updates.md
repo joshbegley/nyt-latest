@@ -1,3 +1,11 @@
+**Drones, Exploding Parcels and Sabotage: How Hybrid Tactics Target the West**\
+`Russia and other hostile states have become increasingly brazen in adopting “gray zone” attacks against Europe and the United States, leaving defense officials with a dilemma: How to respond?`\
+https://nytimes.com/2025/01/04/world/europe/nato-attacks-drones-exploding-parcels-hybrid.html
+
+**Tomiko Itooka of Japan, World’s Oldest Person, Dies at 116**\
+`Born in 1908, she raised four children, ran a family textile factory during World War II, and remained an avid hiker into her 80s.`\
+https://nytimes.com/2025/01/04/world/asia/oldest-person-dies-japan.html
+
 **Notre Dame beat Georgia with better coaching, physicality and smart play: Final thoughts**\
 `Eleven final thoughts on Notre Dame’s historic 23-10 victory over Georgia in the Sugar Bowl, a win the Irish had long been waiting for.`\
 https://nytimes.com/athletic/6036361/2025/01/04/notre-dame-georgia-sugar-bowl-takeaways/

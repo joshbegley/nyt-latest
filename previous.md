@@ -1,3 +1,11 @@
+**Drones, Exploding Parcels and Sabotage: How Hybrid Tactics Target the West**\
+`Russia and other hostile states have become increasingly brazen in adopting “gray zone” attacks against Europe and the United States, leaving defense officials with a dilemma: How to respond?`\
+https://nytimes.com/2025/01/04/world/europe/nato-attacks-drones-exploding-parcels-hybrid.html
+
+**Tomiko Itooka of Japan, World’s Oldest Person, Dies at 116**\
+`Born in 1908, she raised four children, ran a family textile factory during World War II, and remained an avid hiker into her 80s.`\
+https://nytimes.com/2025/01/04/world/asia/oldest-person-dies-japan.html
+
 **Notre Dame beat Georgia with better coaching, physicality and smart play: Final thoughts**\
 `Eleven final thoughts on Notre Dame’s historic 23-10 victory over Georgia in the Sugar Bowl, a win the Irish had long been waiting for.`\
 https://nytimes.com/athletic/6036361/2025/01/04/notre-dame-georgia-sugar-bowl-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/04/us/jimmy-carter-funeral-schedule.html
 **Trump Has Reeled in More Than $200 Million Since Election Day**\
 `The president-elect has boasted about the donations for his inauguration, library and political activities from those seeking favor or perhaps in some cases, atonement.`\
 https://nytimes.com/2025/01/04/us/politics/trump-inaugural-donations.html
-
-**‘I Joined ISIS’: The New Orleans Attacker’s Secret Radicalization**\
-`Recordings and interviews detail Shamsud-Din Jabbar’s growing discontent with American society and increasing isolation even within his local Muslim community.`\
-https://nytimes.com/2025/01/04/us/new-orleans-attack-shamsud-din-jabbar-isis.html
-
-**Ailing Ex-Deputy Admitted to Killing Store Clerk in 1979, Officials Say**\
-`Less than a year before his death, a former deputy with the Charlotte County Sheriff’s Office in Florida told detectives that he had fatally shot the clerk, a 25-year-old woman.`\
-https://nytimes.com/2025/01/04/us/charlotte-county-deputy-murder-cold-case.html
 
