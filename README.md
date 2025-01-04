@@ -1,3 +1,7 @@
+**2 Books About the Moneyed Class**\
+`A novel of British nobility; a memoir of American aristocracy.`\
+https://nytimes.com/2025/01/04/books/read-like-wind-recommendations.html
+
 **Barcelona to file complaint to government over Olmo registration**\
 `Barcelona are planning to file a complaint to the Spanish government in their final attempt to register Dani Olmo and Pau Victor.`\
 https://nytimes.com/athletic/6033635/2025/01/04/dani-olmo-barcelona-la-liga-registration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/opinion/biden-trump-government-dei-diversity.html
 **Win a Reporting Trip With Me in 2025**\
 `I hope to get more young people interested in neglected topics and writing about them.`\
 https://nytimes.com/2025/01/04/opinion/kristof-win-a-trip.html
-
-**The Year Ahead**\
-`There’s an empty calendar spread out before us. What meaning will we give to it?`\
-https://nytimes.com/2025/01/04/briefing/the-year-ahead.html
 
