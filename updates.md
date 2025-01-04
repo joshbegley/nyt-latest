@@ -1,3 +1,7 @@
+**Striking Patrollers Disrupt Season at Largest Ski Resort in U.S.**\
+`Long lift lines, limited terrain and frustration among skiers and snowboarders are downstream impacts of a wage dispute between union workers at Park City Mountain in Utah and its owner, Vail Resorts.`\
+https://nytimes.com/2025/01/04/travel/park-city-strike-ski-patrol.html
+
 **Is America Just Going to Abandon Its Towns Falling Into the Ocean?**\
 `Communities must be able to move to solid ground while remaining whole.`\
 https://nytimes.com/2025/01/04/opinion/climate-change-storms-rural-communties-erosion.html
