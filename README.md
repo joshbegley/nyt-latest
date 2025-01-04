@@ -1,3 +1,7 @@
+**West Ham's Lopetegui 'not optimistic' on Todibo injury**\
+`West Ham United head coach Julen Lopetegui has admitted he is “not optimistic” about the nature of Jean-Clair Todibo&#8217;s injury.`\
+https://nytimes.com/athletic/6037603/2025/01/04/west-ham-jean-clair-todibo-injury/
+
 **Tom Johnson, Minimalist Composer and Village Voice Critic, Dies at 85**\
 `He charted the rise of musical minimalism on New York’s downtown scene in the 1970s. He later gained notice for abstract works of his own.`\
 https://nytimes.com/2025/01/04/arts/music/tom-johnson-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6037421/2025/01/04/derrick-rose-chicago-bulls-retir
 **Abdul Carter's status for Orange Bowl remains in limbo: 'Too early to say'**\
 `Carter, the Big Ten’s reigning defensive player of the year, exited the Fiesta Bowl in the first half with an apparent left shoulder injury.`\
 https://nytimes.com/athletic/6037274/2025/01/04/abdul-carter-injury-penn-state-orange-bowl/
-
-**Jeff Baena, Film Director and Screenwriter, Dies at 47**\
-`Mr. Baena, who was married to the actress Aubrey Plaza, co-wrote the existential comedy “I Heart Huckabees,” and wrote and directed films including “Life After Beth” and “The Little Hours.”`\
-https://nytimes.com/2025/01/04/arts/jeff-baena-dead.html
 
