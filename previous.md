@@ -1,3 +1,7 @@
+**Jason Kelce's new late-night show needs more Kelce, less comedy**\
+`The debut of Jason Kelce's new ESPN late-night talk show highlighted the host's affability and the challenge of making late-night TV.`\
+https://nytimes.com/athletic/6037233/2025/01/04/jason-kelce-late-night-show-takeaways/
+
 **Pick-Me-Up Poke Bowls**\
 `And more easy, breezy recipes, reminders that cooking is equally joyful when it’s just for you as when it’s for a home full of holiday revelers.`\
 https://nytimes.com/2025/01/04/dining/poke-bowls.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036936/2025/01/04/derrick-rose-bulls-retirement-nb
 **Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
 `Despite speculation around Butler, the Warriors are more likely to target two other names on the trade market in Chicago and Brooklyn.`\
 https://nytimes.com/athletic/6036974/2025/01/04/warriors-jimmy-butler-nba-trade-deadline/
-
-**After allowing 29 second-half points, is Detroit's defense turning the corner?**\
-`The Pistons put on a defensive master class in the second half of Friday's win. Can they make it routine?`\
-https://nytimes.com/athletic/6036904/2025/01/04/pistons-defense-hornets/
 

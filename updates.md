@@ -1,3 +1,7 @@
+**Jason Kelce's new late-night show needs more Kelce, less comedy**\
+`The debut of Jason Kelce's new ESPN late-night talk show highlighted the host's affability and the challenge of making late-night TV.`\
+https://nytimes.com/athletic/6037233/2025/01/04/jason-kelce-late-night-show-takeaways/
+
 **Pick-Me-Up Poke Bowls**\
 `And more easy, breezy recipes, reminders that cooking is equally joyful when it’s just for you as when it’s for a home full of holiday revelers.`\
 https://nytimes.com/2025/01/04/dining/poke-bowls.html
