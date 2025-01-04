@@ -1,3 +1,11 @@
+**The secrets behind Phil Parkinson's 1,000 games as a manager**\
+`Wrexham's boss has reached 1,000 competitive games as a manager by mixing motivational skills with fury at the right times`\
+https://nytimes.com/athletic/5955098/2025/01/04/phil-parkinson-1000-wrexham-manager/
+
+**A New York Judge Forces Trump to Live With His Disgrace**\
+`There will be no sentence, except for a permanent stain.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/trump-merchan-sentence-trial
+
 **Hamas Releases Video of Teenage Israeli Soldier Held Hostage in Gaza**\
 `Liri Albag, 19, is one of about 100 hostages believed to remain held in the enclave nearly 15 months after the Hamas-led attacks on Israel.`\
 https://nytimes.com/2025/01/04/world/middleeast/hamas-israel-gaza-hostage.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6037233/2025/01/04/jason-kelce-late-night-show-take
 **Pick-Me-Up Poke Bowls**\
 `And more easy, breezy recipes, reminders that cooking is equally joyful when it’s just for you as when it’s for a home full of holiday revelers.`\
 https://nytimes.com/2025/01/04/dining/poke-bowls.html
-
-**Changing How We Grow Our Food**\
-`Readers disagree with an essay about factory farms.`\
-https://nytimes.com/2025/01/04/opinion/letters/factory-farms.html
-
-**From Georgia to Washington, Memorials Trace Jimmy Carter’s Life**\
-`Days of tribute for the 39th president began on Saturday with stops at his childhood farm, the Georgia State Capitol and the Carter Center.`\
-https://nytimes.com/2025/01/04/us/jimmy-carter-memorial-georgia-washington.html
 

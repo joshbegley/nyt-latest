@@ -1,3 +1,11 @@
+**The secrets behind Phil Parkinson's 1,000 games as a manager**\
+`Wrexham's boss has reached 1,000 competitive games as a manager by mixing motivational skills with fury at the right times`\
+https://nytimes.com/athletic/5955098/2025/01/04/phil-parkinson-1000-wrexham-manager/
+
+**A New York Judge Forces Trump to Live With His Disgrace**\
+`There will be no sentence, except for a permanent stain.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/trump-merchan-sentence-trial
+
 **Hamas Releases Video of Teenage Israeli Soldier Held Hostage in Gaza**\
 `Liri Albag, 19, is one of about 100 hostages believed to remain held in the enclave nearly 15 months after the Hamas-led attacks on Israel.`\
 https://nytimes.com/2025/01/04/world/middleeast/hamas-israel-gaza-hostage.html
