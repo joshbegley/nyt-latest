@@ -1,3 +1,7 @@
+**Dodgers roster taking shape after Teoscar Hernández, Hyeseong Kim signings**\
+`GM Brandon Gomes declined to say whether the organization has been granted a second meeting with Roki Sasaki.`\
+https://nytimes.com/athletic/6036621/2025/01/03/dodgers-still-looking-to-add-after-teoscar-hernandez-hyeseong-kim-signings/
+
 **Jimmy Butler suspended for 7 games by Heat for 'conduct detrimental to the team'**\
 `The decision marks the latest turning point in an obviously eroding relationship.`\
 https://nytimes.com/athletic/6036606/2025/01/03/jimmy-butler-suspended-heat-trade-request/
