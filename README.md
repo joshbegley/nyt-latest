@@ -1,3 +1,15 @@
+**World Juniors Today: Previewing the 2025 semifinal matchups**\
+`Each team will have a chance to play for a medal this weekend. The Athletic breaks down the two semifinal matchups at the World Juniors.`\
+https://nytimes.com/athletic/6029903/2025/01/04/world-juniors-semifinal-matchups-preview-2025/
+
+**Court says Angels owner Arte Moreno has not complied with subpoena in Tyler Skaggs case**\
+`A court referee wrote that a further ruling on financial sanctions against the Angels could become appropriate.`\
+https://nytimes.com/athletic/6036537/2025/01/04/angels-moreno-owner-skaggs-subpoena/
+
+**What We’re Watching in 2025**\
+`These big questions will define business and policy in the year ahead.`\
+https://nytimes.com/2025/01/04/business/dealbook/what-were-watching-in-2025.html
+
 **2 Books About the Moneyed Class**\
 `A novel of British nobility; a memoir of American aristocracy.`\
 https://nytimes.com/2025/01/04/books/read-like-wind-recommendations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/04/opinion/linda-lavin-appreciation-theater.html
 **The Shame That Keeps Millions of Girls Out of School**\
 `Because of a lack of access to menstruation products, girls across Africa and Asia often stay home from school when they have their periods.`\
 https://nytimes.com/2025/01/04/opinion/girls-school-menstruation.html
-
-**For Football Purists, the Return of the Running Back Is Sweet Vindication**\
-`It’s not a miracle, but it seems like one.`\
-https://nytimes.com/2025/01/04/opinion/football-running-backs.html
-
-**Diversity Can Be the Superpower’s Superpower**\
-`Diversity was a virtue in the Biden administration. The Trump administration may discover the same thing.`\
-https://nytimes.com/2025/01/04/opinion/biden-trump-government-dei-diversity.html
-
-**Win a Reporting Trip With Me in 2025**\
-`I hope to get more young people interested in neglected topics and writing about them.`\
-https://nytimes.com/2025/01/04/opinion/kristof-win-a-trip.html
 
