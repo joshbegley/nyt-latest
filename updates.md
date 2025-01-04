@@ -1,3 +1,7 @@
+**CJ McCollum shines with 50-point night amid tragedy of New Orleans terror attack**\
+`The Pelicans shooting guard gave Pelicans a night to remember at a significant time.`\
+https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orleans/
+
 **Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
 `Plus, GMs stack up this year’s top draft QBs versus last year’s class of passers.`\
 https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
