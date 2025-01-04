@@ -1,3 +1,11 @@
+**Tottenham close to signing goalkeeper Kinsky from Slavia Prague**\
+`Tottenham Hotspur are close to signing Czech goalkeeper Antonin Kinsky to a long-term deal.`\
+https://nytimes.com/athletic/6037030/2025/01/04/antonin-kinsky-tottenham-transfer/
+
+**Elena Rybakina says Stefano Vukov 'never mistreated' her amid WTA investigation**\
+`Vukov cannot coach while under investigation and Tennis Australia will not issue him with an accreditation for the upcoming Australian Open.`\
+https://nytimes.com/athletic/6037022/2025/01/04/elena-rybakina-stefano-vukov-wta-suspension/
+
 **Bears tight end Marcedes Lewis on Caleb Williams, qualities of a good coach and Year 20**\
 `Lewis is wrapping up his 19th NFL season Sunday. He discussed his plans to keep playing, his rookie quarterback and more.`\
 https://nytimes.com/athletic/6036364/2025/01/04/bears-marcedes-lewis-caleb-williams/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/04/world/asia/oldest-person-dies-japan.html
 **Notre Dame beat Georgia with better coaching, physicality and smart play: Final thoughts**\
 `Eleven final thoughts on Notre Dame’s historic 23-10 victory over Georgia in the Sugar Bowl, a win the Irish had long been waiting for.`\
 https://nytimes.com/athletic/6036361/2025/01/04/notre-dame-georgia-sugar-bowl-takeaways/
-
-**Antony Blinken Insists He and Biden Made the Right Calls**\
-`At the end of a tenure marked by war and division, the outgoing secretary of state defends his legacy on Gaza and Ukraine and says he’s made America stronger.`\
-https://nytimes.com/2025/01/04/magazine/antony-blinken-interview.html
-
-**Antony Blinken Insists He and Biden Made the Right Calls**\
-`At the end of a tenure marked by war and division, the outgoing Secretary of State defends his legacy on Gaza and Ukraine, and says he’s made America stronger.`\
-https://nytimes.com/video/podcasts/100000009893254/antony-blinken-insists-he-and-biden-made-the-right-calls.html
 
