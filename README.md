@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/03/pageoneplus/corrections-jan-4-2025.html
 `Starting Sunday, most drivers who enter Manhattan south of 60th Street during peak travel times will be charged a $9 fee.`\
 https://nytimes.com/2025/01/03/nyregion/congestion-pricing-hearing-new-jersey.html
 
-**In 3 Ex-Deputies Face Murder Charges in Virginia Inmate’s Death**\
+**3 Ex-Deputies Face Murder Charges in Virginia Inmate’s Death**\
 `The deputies restrained the man after he was “uncooperative and combative” while being booked into the jail, officials said. He was hospitalized after a “medical emergency” and died days later.`\
 https://nytimes.com/2025/01/03/us/virginia-beach-deputies-indictment-inmate-murder.html
 
