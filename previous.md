@@ -1,3 +1,7 @@
+**Winter Storm Spawns Tornado in Northern California**\
+`A warning covering an area with about 2,200 residents told people to take shelter because flying debris was expected.`\
+https://nytimes.com/2025/01/03/us/tornado-warning-california-tehama-shasta-county.html
+
 **Washington Post Cartoonist Quits After Jeff Bezos Cartoon Is Killed**\
 `The cartoon, by Ann Telnaes, depicted the owner of The Post, Jeff Bezos, and other billionaires genuflecting toward a statue of President-elect Donald Trump.`\
 https://nytimes.com/2025/01/03/business/media/washington-post-cartoonist-quits-after-jeff-bezos-cartoon-is-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/nyregion/congestion-pricing-hearing-new-jersey.ht
 **3 Ex-Deputies Face Murder Charges in Virginia Inmate’s Death**\
 `The deputies restrained the man after he was “uncooperative and combative” while being booked into the jail, officials said. He was hospitalized after a “medical emergency” and died days later.`\
 https://nytimes.com/2025/01/03/us/virginia-beach-deputies-indictment-inmate-murder.html
-
-**Guantánamo Convict Sues to Stop U.S. Plan to Send Him to Prison in Iraq**\
-`A court filing said the prisoner was at risk for abuse and might not be able to get adequate health care if transferred.`\
-https://nytimes.com/2025/01/03/us/politics/guantanamo-prisoner-iraq-lawsuit.html
 
