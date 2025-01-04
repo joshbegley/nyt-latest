@@ -1,3 +1,7 @@
+**Magic's Jalen Suggs leaves game in wheelchair, diagnosed with 'back spasms'**\
+`The Magic have already been ravaged by injuries this season, including to stars Paolo Banchero and Franz Wagner. `\
+https://nytimes.com/athletic/6036715/2025/01/03/jalen-suggs-injury-back-magic/
+
 **Lakers coach JJ Redick responds to Charles Barkley's criticism: 'Literally don't care'**\
 `"My resting heart rate is probably 64," Redick said ahead of Friday's game against the Hawks.`\
 https://nytimes.com/athletic/6036707/2025/01/03/jj-redick-charles-barkley-lakers-criticism/
