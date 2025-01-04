@@ -1,3 +1,7 @@
+**'It was good stuff': Celtics go big and bold to defuse Rockets offense**\
+`With Kristaps Porziņģis and Luke Kornet guarding the rim, Houston and coach Ime Udoka had a rough time in Boston's 109-86 win.`\
+https://nytimes.com/athletic/6036870/2025/01/04/celtics-bigs-defense-porzingis-kornet-sengun/
+
 **Edwards: Knicks can't grab signature win vs. Thunder but are heading in right direction**\
 `The Knicks still can't be the league's best, but they're pushing themselves closer to the conversation.`\
 https://nytimes.com/athletic/6036808/2025/01/04/knicks-lose-to-thunder-right-direction/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/world/europe/france-drugs-small-towns.html
 **Manchester City vs West Ham: Storylines, odds, prediction as City try to climb table**\
 `Manchester City host West Ham in a meeting of teams struggling to get wins recently. Will Man City make it two in a row?`\
 https://nytimes.com/athletic/6036061/2025/01/04/manchester-city-west-ham-preview-odds-prediction/
-
-**Brighton vs Arsenal: Storylines, odds, prediction as Gunners try to stay in title race**\
-`Arsenal head to Brighton, seeking to keep pace with Liverpool at the top of the Premier League table.`\
-https://nytimes.com/athletic/6033901/2025/01/04/brighton-arsenal-preview-odds-prediction/
 
