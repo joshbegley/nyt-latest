@@ -1,3 +1,7 @@
+**New Orleans Attacker Had Transmitter to Set Off Explosives, F.B.I. Says**\
+`Bomb-making materials were found at a short-term rental house, and the authorities said they had recovered a transmitter intended to set off explosives on the city’s famous Bourbon Street.`\
+https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
+
 **Johnson’s Reward for Keeping His Gavel: An Impossible Job Delivering for Trump**\
 `Speaker Mike Johnson narrowly avoided a painful and prolonged fight to keep his post, but his messy victory showed how difficult his job will be in the new all-Republican Congress.`\
 https://nytimes.com/2025/01/03/us/politics/johnson-speaker-trump-republicans.html
