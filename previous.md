@@ -1,3 +1,11 @@
+**Sonny Smart, father of Georgia coach Kirby Smart, dies after fall**\
+`Sonny Smart was a longtime high school coach, with stops in Alabama, South Georgia and finally at Rabun County High School in the mid-2010s.`\
+https://nytimes.com/athletic/6037290/2025/01/04/sonny-smart-death-kirby-father/
+
+**The Briefing: Crystal Palace 1 Chelsea 1 - Blip prolonged, Acheampong's first start and what of that left flank?**\
+`Enzo Maresca's side dropped more points late on to put their 'title challenge' into proper perspective`\
+https://nytimes.com/athletic/6029669/2025/01/04/chelsea-palace-acheampong-sancho/
+
 **Soldier’s Struggles Began Long Before Las Vegas Blast, Nurse Says**\
 `A Green Beret who had served several combat tours fatally shot himself in a Cybertruck that exploded outside a Trump hotel on New Year’s Day.`\
 https://nytimes.com/2025/01/04/us/matthew-livelsberger-las-vegas-cybertruck.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6036344/2025/01/04/fred-kerley-arrest-police-miami/
 **Postecoglou 'angriest I have ever been in my career' after Tottenham's defeat to Newcastle**\
 `Ange Postecoglou said that he was “the angriest I have ever been in my career” following Tottenham Hotspur’s defeat to Newcastle United on Saturday.`\
 https://nytimes.com/athletic/6037235/2025/01/04/ange-postecoglou-tottenham-newcastle-defeat/
-
-**CJ McCollum shines with 50-point night amid tragedy of New Orleans terror attack**\
-`The Pelicans shooting guard gave Pelicans a night to remember at a significant time.`\
-https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orleans/
-
-**Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
-`Plus, GMs stack up the top QBs in this year's draft versus last year’s class of passers.`\
-https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
 

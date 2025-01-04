@@ -1,3 +1,11 @@
+**Sonny Smart, father of Georgia coach Kirby Smart, dies after fall**\
+`Sonny Smart was a longtime high school coach, with stops in Alabama, South Georgia and finally at Rabun County High School in the mid-2010s.`\
+https://nytimes.com/athletic/6037290/2025/01/04/sonny-smart-death-kirby-father/
+
+**The Briefing: Crystal Palace 1 Chelsea 1 - Blip prolonged, Acheampong's first start and what of that left flank?**\
+`Enzo Maresca's side dropped more points late on to put their 'title challenge' into proper perspective`\
+https://nytimes.com/athletic/6029669/2025/01/04/chelsea-palace-acheampong-sancho/
+
 **Soldier’s Struggles Began Long Before Las Vegas Blast, Nurse Says**\
 `A Green Beret who had served several combat tours fatally shot himself in a Cybertruck that exploded outside a Trump hotel on New Year’s Day.`\
 https://nytimes.com/2025/01/04/us/matthew-livelsberger-las-vegas-cybertruck.html
