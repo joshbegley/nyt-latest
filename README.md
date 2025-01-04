@@ -1,3 +1,11 @@
+**Just *Done* With Something**\
+`Sam Ezersky’s Saturday puzzle gives us a lot to chew on.`\
+https://nytimes.com/2025/01/03/crosswords/daily-puzzle-2025-01-04.html
+
+**Lakers coach JJ Redick responds to Charles Barkley's criticism: "Literally don't care"**\
+`"My resting heart rate is probably 64," Redick said ahead of Friday's game against the Hawks.`\
+https://nytimes.com/athletic/6036707/2025/01/03/jj-redick-charles-barkley-lakers-criticism/
+
 **Texas Teen Killed Goat at School Barn Used for Livestock Contests, Police Say**\
 `A 17-year-old said that she had poisoned the animal with pesticide because she thought its keeper was a cheater, the authorities said.`\
 https://nytimes.com/2025/01/03/us/texas-teen-poisons-goat.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
 **Johnson’s Reward for Keeping His Gavel: An Impossible Job Delivering for Trump**\
 `Speaker Mike Johnson narrowly avoided a painful and prolonged fight to keep his post, but his messy victory showed how difficult his job will be in the new all-Republican Congress.`\
 https://nytimes.com/2025/01/03/us/politics/johnson-speaker-trump-republicans.html
-
-**Jimmy Butler suspended for 7 games by Heat for 'conduct detrimental to the team'**\
-`The decision marks the latest turning point in an obviously eroding relationship.`\
-https://nytimes.com/athletic/6036606/2025/01/03/jimmy-butler-suspended-heat-trade-request/
-
-**A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
-`The system is forecast to bring a dreadful mix of sleet, snow and freezing rain from Kansas to Virginia this weekend.`\
-https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html
 
