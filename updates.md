@@ -1,3 +1,7 @@
+**U.S. sprinter Kerley arrested in Miami Beach after police confrontation**\
+`Kerley faces charges of battery, resisting an officer without violence and disorderly conduct.`\
+https://nytimes.com/athletic/6036344/2025/01/04/fred-kerley-arrest-police-miami/
+
 **Postecoglou 'angriest I have ever been in my career' after Tottenham's defeat to Newcastle**\
 `Ange Postecoglou said that he was “the angriest I have ever been in my career” following Tottenham Hotspur’s defeat to Newcastle United on Saturday.`\
 https://nytimes.com/athletic/6037235/2025/01/04/ange-postecoglou-tottenham-newcastle-defeat/
