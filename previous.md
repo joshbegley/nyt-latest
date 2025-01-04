@@ -1,3 +1,15 @@
+**Pick-Me-Up Poke Bowls**\
+`And more easy, breezy recipes, reminders that cooking is equally joyful when it’s just for you as when it’s for a home full of holiday revelers.`\
+https://nytimes.com/2025/01/04/dining/poke-bowls.html
+
+**Changing How We Grow Our Food**\
+`Readers disagree with an essay about factory farms.`\
+https://nytimes.com/2025/01/04/opinion/letters/factory-farms.html
+
+**From Georgia to Washington, Memorials Trace Jimmy Carter’s Life**\
+`Days of tribute for the 39th president began on Saturday with stops at his childhood farm, the Georgia State Capitol and the Carter Center.`\
+https://nytimes.com/2025/01/04/us/jimmy-carter-memorial-georgia-washington.html
+
 **U.S. sprinter Kerley arrested in Miami Beach after police confrontation**\
 `Kerley faces charges of battery, resisting an officer without violence and disorderly conduct.`\
 https://nytimes.com/athletic/6036344/2025/01/04/fred-kerley-arrest-police-miami/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6036974/2025/01/04/warriors-jimmy-butler-nba-trade-
 **After allowing 29 second-half points, is Detroit's defense turning the corner?**\
 `The Pistons put on a defensive master class in the second half of Friday's win. Can they make it routine?`\
 https://nytimes.com/athletic/6036904/2025/01/04/pistons-defense-hornets/
-
-**With a refreshed LeBron James, Lakers' improved defense has turned around their season**\
-`After a slow start to the season, the Lakers' improved defense has quietly carried them up the West standings.`\
-https://nytimes.com/athletic/6036756/2025/01/04/lebron-james-jj-redick-anthony-davis-defense-lakers-nba/
-
-**The Briefing: Tottenham 1 Newcastle 2 - Where were Maddison and Son? Can Isak keep scoring?**\
-`Goals from Anthony Gordon and Alexander Isak extended Newcastle's brilliant run and made it six league games at home without a win for Spurs`\
-https://nytimes.com/athletic/6029668/2025/01/04/tottenham-newcastle-isak-analysis-maddison-son/
-
-**Striking Patrollers Disrupt Season at Largest Ski Resort in U.S.**\
-`Long lift lines, limited terrain and frustration among skiers and snowboarders are downstream impacts of a wage dispute between union workers at Park City Mountain in Utah and its owner, Vail Resorts.`\
-https://nytimes.com/2025/01/04/travel/park-city-strike-ski-patrol.html
 

@@ -1,3 +1,15 @@
+**Pick-Me-Up Poke Bowls**\
+`And more easy, breezy recipes, reminders that cooking is equally joyful when it’s just for you as when it’s for a home full of holiday revelers.`\
+https://nytimes.com/2025/01/04/dining/poke-bowls.html
+
+**Changing How We Grow Our Food**\
+`Readers disagree with an essay about factory farms.`\
+https://nytimes.com/2025/01/04/opinion/letters/factory-farms.html
+
+**From Georgia to Washington, Memorials Trace Jimmy Carter’s Life**\
+`Days of tribute for the 39th president began on Saturday with stops at his childhood farm, the Georgia State Capitol and the Carter Center.`\
+https://nytimes.com/2025/01/04/us/jimmy-carter-memorial-georgia-washington.html
+
 **U.S. sprinter Kerley arrested in Miami Beach after police confrontation**\
 `Kerley faces charges of battery, resisting an officer without violence and disorderly conduct.`\
 https://nytimes.com/athletic/6036344/2025/01/04/fred-kerley-arrest-police-miami/
