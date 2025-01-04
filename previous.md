@@ -1,3 +1,7 @@
+**Jimmy Carter’s Funeral Events Begin in Georgia**\
+`A motorcade carrying the remains of Jimmy Carter passed through the former president’s hometown and the Georgia State Capitol before ending at the Carter Center for a memorial service.`\
+https://nytimes.com/video/us/100000009908238/jimmy-carter-funeral-procession.html
+
 **All Things Change**\
 `Kareem Ayas rolls up with a sparkling Sunday puzzle.`\
 https://nytimes.com/2025/01/04/crosswords/daily-puzzle-2025-01-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037603/2025/01/04/west-ham-jean-clair-todibo-injur
 **Tom Johnson, Minimalist Composer and Village Voice Critic, Dies at 85**\
 `He charted the rise of musical minimalism on New York’s downtown scene in the 1970s. He later gained notice for abstract works of his own.`\
 https://nytimes.com/2025/01/04/arts/music/tom-johnson-dead.html
-
-**The Briefing: Brighton 1 Arsenal 1 - A title blow, an unusual penalty call and Nwaneri's cameo**\
-`Jordan Campbell and Anantaajith Raghuraman break down the main talking points from Arsenal's 1-1 draw with Brighton & Hove Albion`\
-https://nytimes.com/athletic/6033118/2025/01/04/brighton-1-arsenal-1-saliba-penalty-nwaneri/
 

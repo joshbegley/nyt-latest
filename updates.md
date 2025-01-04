@@ -1,3 +1,7 @@
+**Jimmy Carter’s Funeral Events Begin in Georgia**\
+`A motorcade carrying the remains of Jimmy Carter passed through the former president’s hometown and the Georgia State Capitol before ending at the Carter Center for a memorial service.`\
+https://nytimes.com/video/us/100000009908238/jimmy-carter-funeral-procession.html
+
 **All Things Change**\
 `Kareem Ayas rolls up with a sparkling Sunday puzzle.`\
 https://nytimes.com/2025/01/04/crosswords/daily-puzzle-2025-01-05.html
