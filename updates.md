@@ -1,3 +1,11 @@
+**Marcus Rashford has missed five Manchester United games. What's going on?**\
+`The England striker is one of United's highest earners but is absent during a crucial period for his club. Why?`\
+https://nytimes.com/athletic/6035672/2025/01/04/marcus-rashford-manchester-united-missing/
+
+**Ruben Amorim, Ange Postecoglou and the death of the pragmatist**\
+`When a manager's philosophy becomes all-consuming, weaknesses can end up masquerading as strengths`\
+https://nytimes.com/athletic/6034305/2025/01/04/ruben-amorim-ange-postecoglou-manager/
+
 **It's time for the Blackhawks to give Arvid Söderblom a chance as No. 1 goalie**\
 `In arguably one of the most important starts of his NHL career, the 25-year-old Söderblom gave the Blackhawks a chance at winning.`\
 https://nytimes.com/athletic/6036733/2025/01/04/blackhawks-goalie-arvid-soderblom/

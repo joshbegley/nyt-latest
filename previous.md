@@ -1,3 +1,11 @@
+**Marcus Rashford has missed five Manchester United games. What's going on?**\
+`The England striker is one of United's highest earners but is absent during a crucial period for his club. Why?`\
+https://nytimes.com/athletic/6035672/2025/01/04/marcus-rashford-manchester-united-missing/
+
+**Ruben Amorim, Ange Postecoglou and the death of the pragmatist**\
+`When a manager's philosophy becomes all-consuming, weaknesses can end up masquerading as strengths`\
+https://nytimes.com/athletic/6034305/2025/01/04/ruben-amorim-ange-postecoglou-manager/
+
 **It's time for the Blackhawks to give Arvid Söderblom a chance as No. 1 goalie**\
 `In arguably one of the most important starts of his NHL career, the 25-year-old Söderblom gave the Blackhawks a chance at winning.`\
 https://nytimes.com/athletic/6036733/2025/01/04/blackhawks-goalie-arvid-soderblom/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6033901/2025/01/04/brighton-arsenal-preview-odds-pr
 **Why Japan Won’t Stop Trying to Invest in the U.S.**\
 `Japanese companies needing to grow have sought out American deals. Experts say that will not change even after Biden’s rejection of Nippon Steel’s takeover attempt.`\
 https://nytimes.com/2025/01/04/business/us-steel-nippon-japan-takeover.html
-
-**Tottenham vs Newcastle: Storylines, odds, prediction as Magpies continue top-four chase**\
-`Struggling Tottenham host Newcastle, which have won five matches in a row across all competitions.`\
-https://nytimes.com/athletic/6035967/2025/01/04/tottenham-newcastle-preview-odds-prediction/
-
-**Quote of the Day: Bouncing Back Is a Part of Life In New Orleans**\
-`Quotation of the Day for Saturday, January 4, 2025.`\
-https://nytimes.com/2025/01/03/pageoneplus/quote-of-the-day-bouncing-back-is-a-part-of-life-in-new-orleans.html
 
