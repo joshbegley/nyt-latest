@@ -1,3 +1,11 @@
+**Ralph Lauren Makes Fashion History With Top Civilian Honor**\
+`After decades of being nearly synonymous with American fashion, the 85-year-old became the first fashion designer to win the Presidential Medal of Freedom.`\
+https://nytimes.com/2025/01/04/style/ralph-lauren-presidential-medal-freedom.html
+
+**Bucs' Jordan Whitehead involved in car crash, placed on NFI list**\
+`The crash occurred as Whitehead was traveling to the team's practice facility Saturday morning, the Buccaneers said in a statement.`\
+https://nytimes.com/athletic/6037773/2025/01/04/buccaneers-jordan-whitehead-car-crash-injury/
+
 **Bond remains between Penguins and Jordan Staal, who still makes life miserable for his old team**\
 `Staal and the Hurricanes have made life miserable for the Penguins in recent seasons — a team he has fond memories with.`\
 https://nytimes.com/athletic/6032721/2025/01/04/penguins-hurricanes-jordan-staal/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6033118/2025/01/04/brighton-1-arsenal-1-saliba-pena
 **Notre Dame, Penn State set for Orange Bowl clash. What are keys to the game?**\
 `The Athletic beat writers Pete Sampson (Notre Dame) and Audrey Snyder (Penn State) share their thoughts on the CFP semifinal.`\
 https://nytimes.com/athletic/6037333/2025/01/04/cfp-notre-dame-penn-state-orange-bowl/
-
-**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
-`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
-`\
-https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
-
-**Liverpool's Pitaluga returning to Fluminense in permanent deal**\
-`Liverpool goalkeeper Marcelo Pitaluga is returning to Brazil to sign for former club Fluminense on a permanent deal.`\
-https://nytimes.com/athletic/6037502/2025/01/04/liverpool-transfers-marcelo-pitaluga-fluminense/
 
