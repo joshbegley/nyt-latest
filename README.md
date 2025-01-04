@@ -1,3 +1,11 @@
+**Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
+`Plus, GMs stack up this year’s top draft QBs versus last year’s class of passers.`\
+https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
+
+**'Becoming a Rose': The story behind Derrick Rose's retirement film, a tribute to Chicago**\
+`On 'Derrick Rose Night,' his directorial film debut will be an ode to his Bulls career and the city he loves.`\
+https://nytimes.com/athletic/6036936/2025/01/04/derrick-rose-bulls-retirement-nba/
+
 **Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
 `Despite speculation around Butler, the Warriors are more likely to target two other names on the trade market in Chicago and Brooklyn.`\
 https://nytimes.com/athletic/6036974/2025/01/04/warriors-jimmy-butler-nba-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6037091/2025/01/04/kenny-guiton-wisconsin-quarterba
 **World Juniors Today: Previewing the 2025 semifinal matchups**\
 `Each team will have a chance to play for a medal this weekend. The Athletic breaks down the two semifinal matchups at the World Juniors.`\
 https://nytimes.com/athletic/6029903/2025/01/04/world-juniors-semifinal-matchups-preview-2025/
-
-**Court says Angels owner Arte Moreno has not complied with subpoena in Tyler Skaggs case**\
-`A court referee wrote that a further ruling on financial sanctions against the Angels could become appropriate.`\
-https://nytimes.com/athletic/6036537/2025/01/04/angels-moreno-owner-skaggs-subpoena/
-
-**What We’re Watching in 2025**\
-`These big questions will define business and policy in the year ahead.`\
-https://nytimes.com/2025/01/04/business/dealbook/what-were-watching-in-2025.html
 
