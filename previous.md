@@ -1,3 +1,7 @@
+**The Briefing: Brighton 1 Arsenal 1 - A title blow, an unusual penalty call and Nwaneri's cameo**\
+`Jordan Campbell and Anantaajith Raghuraman break down the main talking points from Arsenal's 1-1 draw with Brighton & Hove Albion`\
+https://nytimes.com/athletic/6033118/2025/01/04/brighton-1-arsenal-1-saliba-penalty-nwaneri/
+
 **Notre Dame, Penn State set for Orange Bowl clash. What are keys to the game?**\
 `The Athletic beat writers Pete Sampson (Notre Dame) and Audrey Snyder (Penn State) share their thoughts on the CFP semifinal.`\
 https://nytimes.com/athletic/6037333/2025/01/04/cfp-notre-dame-penn-state-orange-bowl/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/04/arts/jeff-baena-dead.html
 **The secrets behind Phil Parkinson's 1,000 games as a manager**\
 `Wrexham's boss has reached 1,000 competitive games as a manager by mixing motivational skills with fury at the right times`\
 https://nytimes.com/athletic/5955098/2025/01/04/phil-parkinson-1000-wrexham-manager/
-
-**A New York Judge Forces Trump to Live With His Disgrace**\
-`There will be no sentence, except for a permanent stain.`\
-https://nytimes.com/live/2025/01/02/opinion/thepoint/trump-merchan-sentence-trial
 
