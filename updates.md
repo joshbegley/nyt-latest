@@ -1,3 +1,7 @@
+**Acheampong Chelsea's 'best player' in Palace draw - Maresca**\
+`Enzo Maresca praised Cobham graduate Josh Acheampong as Chelsea’s best performer in a 1-1 draw with Crystal Palace at Selhurst Park on Saturday.`\
+https://nytimes.com/athletic/6037441/2025/01/04/josh-acheampong-chelsea-enzo-maresca/
+
 **Villa's McGinn could miss up to 'five weeks' with hamstring injury - Emery**\
 `John McGinn suffered a hamstring injury and could be unavailable for several weeks, Aston Villa head coach Unai Emery has said.`\
 https://nytimes.com/athletic/6037321/2025/01/04/john-mcginn-hamstring-injury-aston-villa/
