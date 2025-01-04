@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Bond remains between Penguins and Jordan Staal, who still makes life miserable for his old team**\
 `Staal and the Hurricanes have made life miserable for the Penguins in recent seasons — a team he has fond memories with.`\
 https://nytimes.com/athletic/6032721/2025/01/04/penguins-hurricanes-jordan-staal/
