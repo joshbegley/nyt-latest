@@ -1,5 +1,5 @@
 **Hamas Releases Video of Teenage Israeli Soldier Held Hostage in Gaza**\
-`Liri Albag, 19, is one of about 100 hostages believed to still be held in the enclave nearly 15 months after the Hamas-led attacks on Israel.`\
+`Liri Albag, 19, is one of about 100 hostages believed to remain held in the enclave nearly 15 months after the Hamas-led attacks on Israel.`\
 https://nytimes.com/2025/01/04/world/middleeast/hamas-israel-gaza-hostage.html
 
 **The Briefing: Manchester City 4 West Ham 1 - Haaland strikes twice and Savinho stars but defence still looks fragile**\
