@@ -1,3 +1,7 @@
+**Soldier’s Struggles Began Long Before Las Vegas Blast, Nurse Says**\
+`A Green Beret who had served several combat tours fatally shot himself in a Cybertruck that exploded outside a Trump hotel on New Year’s Day.`\
+https://nytimes.com/2025/01/04/us/matthew-livelsberger-las-vegas-cybertruck.html
+
 **Auston Matthews returning vs. Bruins after missing last 6 games**\
 `“It’s exciting,” Matthews said Saturday morning. "It’s never fun watching."`\
 https://nytimes.com/athletic/6037304/2025/01/04/auston-matthews-maple-leafs-return/
