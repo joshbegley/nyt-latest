@@ -1,3 +1,7 @@
+**After allowing 29 second-half points, is Detroit's defense turning the corner?**\
+`The Pistons put on a defensive master class in the second half of Friday's win. Can they make it routine?`\
+https://nytimes.com/athletic/6036904/2025/01/04/pistons-defense-hornets/
+
 **With a refreshed LeBron James, Lakers' improved defense has turned around their season**\
 `After a slow start to the season, the Lakers' improved defense has quietly carried them up the West standings.`\
 https://nytimes.com/athletic/6036756/2025/01/04/lebron-james-jj-redick-anthony-davis-defense-lakers-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/business/dealbook/what-were-watching-in-2025.html
 **2 Books About the Moneyed Class**\
 `A novel of British nobility; a memoir of American aristocracy.`\
 https://nytimes.com/2025/01/04/books/read-like-wind-recommendations.html
-
-**Barcelona to file complaint to government over Olmo registration**\
-`Barcelona are planning to file a complaint to the Spanish government in their final attempt to register Dani Olmo and Pau Victor.`\
-https://nytimes.com/athletic/6033635/2025/01/04/dani-olmo-barcelona-la-liga-registration/
 
