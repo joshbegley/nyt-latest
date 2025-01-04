@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/04/opinion/squid-game-season-2-essential-twist.html
 
 **What Linda Lavin Whispered to Me About Love and Need**\
 `She was a radiant star who played things her own way.`\
-https://nytimes.com/live/2025/01/02/opinion/thepoint/linda-lavin-appreciation-theater
+https://nytimes.com/2025/01/04/opinion/linda-lavin-appreciation-theater.html
 
 **The Shame That Keeps Millions of Girls Out of School**\
 `Because of a lack of access to menstruation products, girls across Africa and Asia often stay home from school when they have their periods.`\
@@ -22,13 +22,13 @@ https://nytimes.com/2025/01/04/opinion/girls-school-menstruation.html
 `It’s not a miracle, but it seems like one.`\
 https://nytimes.com/2025/01/04/opinion/football-running-backs.html
 
-**Win a Reporting Trip With Me in 2025**\
-`I hope to get more young people interested in neglected topics and writing about them.`\
-https://nytimes.com/2025/01/04/opinion/kristof-win-a-trip.html
-
 **Diversity Can Be the Superpower’s Superpower**\
 `Diversity was a virtue in the Biden administration. The Trump administration may discover the same thing.`\
 https://nytimes.com/2025/01/04/opinion/biden-trump-government-dei-diversity.html
+
+**Win a Reporting Trip With Me in 2025**\
+`I hope to get more young people interested in neglected topics and writing about them.`\
+https://nytimes.com/2025/01/04/opinion/kristof-win-a-trip.html
 
 **The Year Ahead**\
 `There’s an empty calendar spread out before us. What meaning will we give to it?`\

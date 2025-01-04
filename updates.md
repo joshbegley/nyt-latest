@@ -1,3 +1,7 @@
+**What Linda Lavin Whispered to Me About Love and Need**\
+`She was a radiant star who played things her own way.`\
+https://nytimes.com/2025/01/04/opinion/linda-lavin-appreciation-theater.html
+
 **Syria’s International Airport to Reopen as Government Presses for Stability**\
 `Tensions are high on Syria’s border with Lebanon. The ouster of President Bashar al-Assad led to worry that violence could spill over into neighboring countries.`\
 https://nytimes.com/2025/01/04/world/middleeast/syria-lebanon-israel-gaza.html
