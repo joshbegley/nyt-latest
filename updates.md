@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 4 West Ham 1 - Haaland strikes twice and Savinho stars but defence still looks fragile**\
+`Haaland struck either side of half-time and Savinho set up three of the goals as Guardiola's side brushed West Ham aside at the Etihad`\
+https://nytimes.com/athletic/6029670/2025/01/04/manchester-city-haaland-savinho-west-ham-analysis/
+
 **Sonny Smart, father of Georgia coach Kirby Smart, dies after fall**\
 `Sonny Smart was a longtime high school coach, with stops in Alabama, South Georgia and finally at Rabun County High School in the mid-2010s.`\
 https://nytimes.com/athletic/6037290/2025/01/04/sonny-smart-death-kirby-father/
