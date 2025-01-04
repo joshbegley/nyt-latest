@@ -1,3 +1,7 @@
+**3 Ex-Deputies Face Murder Charges in Virginia Inmate’s Death**\
+`The deputies restrained the man after he was “uncooperative and combative” while being booked into the jail, officials said. He was hospitalized after a “medical emergency” and died days later.`\
+https://nytimes.com/2025/01/03/us/virginia-beach-deputies-indictment-inmate-murder.html
+
 **Guantánamo Convict Sues to Stop U.S. Plan to Send Him to Prison in Iraq**\
 `A court filing said the prisoner was at risk for abuse and might not be able to get adequate health care if transferred.`\
 https://nytimes.com/2025/01/03/us/politics/guantanamo-prisoner-iraq-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/us/politics/biden-presidential-medals-officers.ht
 **New Orleans Releases Most Names of Victims Killed in Attack**\
 `Those who died after a man drove a pickup through the French Quarter highlighted the diverse mix of people who are drawn to the city.`\
 https://nytimes.com/2025/01/03/us/new-orleans-victims-truck-attack.html
-
-**With Speaker Drama and Family Photos, New Congress Gets Off to a Wobbly Start**\
-`There was a first-day-of-school energy on Capitol Hill as members of Congress took their oaths and Speaker Mike Johnson fought for his job.`\
-https://nytimes.com/2025/01/03/us/politics/119th-congress-scene.html
 
