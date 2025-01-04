@@ -63,6 +63,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Brighton's Joao Pedro praised as 'role model' by Hurzeler after captaincy role**\
 `Head coach Fabian Hurzeler says Joao Pedro was a &#8220;role model&#8221; as captain for Brighton &amp; Hove Albion in their 1-1 home draw with Arsenal.`\
 https://nytimes.com/athletic/6037728/2025/01/04/brighton-captain-joao-pedro-hurzeler/
