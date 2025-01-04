@@ -1,3 +1,15 @@
+**Notre Dame beat Georgia with better coaching, physicality and smart play: Final thoughts**\
+`Eleven final thoughts on Notre Dame’s historic 23-10 victory over Georgia in the Sugar Bowl, a win the Irish had long been waiting for.`\
+https://nytimes.com/athletic/6036361/2025/01/04/notre-dame-georgia-sugar-bowl-takeaways/
+
+**Antony Blinken Insists He and Biden Made the Right Calls**\
+`At the end of a tenure marked by war and division, the outgoing secretary of state defends his legacy on Gaza and Ukraine and says he’s made America stronger.`\
+https://nytimes.com/2025/01/04/magazine/antony-blinken-interview.html
+
+**Antony Blinken Insists He and Biden Made the Right Calls**\
+`At the end of a tenure marked by war and division, the outgoing Secretary of State defends his legacy on Gaza and Ukraine, and says he’s made America stronger.`\
+https://nytimes.com/video/podcasts/100000009893254/antony-blinken-insists-he-and-biden-made-the-right-calls.html
+
 **NFL Week 18 roundtable: Should league's playoff format change? Is Burrow's MVP case legit?**\
 `All will be decided in Week 18. Our writers discuss the ins and outs of key games this weekend and more.`\
 https://nytimes.com/athletic/6036670/2025/01/04/nfl-week-18-preview-playoff-format-joe-burrow-mvp/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/04/us/new-orleans-attack-shamsud-din-jabbar-isis.htm
 **Ailing Ex-Deputy Admitted to Killing Store Clerk in 1979, Officials Say**\
 `Less than a year before his death, a former deputy with the Charlotte County Sheriff’s Office in Florida told detectives that he had fatally shot the clerk, a 25-year-old woman.`\
 https://nytimes.com/2025/01/04/us/charlotte-county-deputy-murder-cold-case.html
-
-**The Church Fixer**\
-`Thousands of churches around the country close every year. In Brooklyn, one pastor is trying to help struggling parishes keep their doors open.`\
-https://nytimes.com/2025/01/04/business/church-turnaround-fundraising-outreach.html
-
-**Hollywood Is Having a Hot Flash**\
-`In “Babygirl” and other recent movies, popular culture is finally getting comfortable with the sexual lives of 50-something women.`\
-https://nytimes.com/2025/01/04/movies/menopause-sex-movies-babygirl.html
-
-**The USMNT players who could be in line for a January transfer**\
-`As the transfer window opens, there are situations developing for some members of the U.S. men's team`\
-https://nytimes.com/athletic/6030811/2025/01/04/which-usmnt-players-could-be-in-line-for-a-january-transfer/
 
