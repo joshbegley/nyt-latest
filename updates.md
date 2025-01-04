@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **West Ham's Lopetegui 'not optimistic' on Todibo injury**\
 `West Ham United head coach Julen Lopetegui has admitted he is “not optimistic” about the nature of Jean-Clair Todibo&#8217;s injury.`\
 https://nytimes.com/athletic/6037603/2025/01/04/west-ham-jean-clair-todibo-injury/
