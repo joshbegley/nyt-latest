@@ -1,3 +1,7 @@
+**Bond remains between Penguins and Jordan Staal, who still makes life miserable for his old team**\
+`Staal and the Hurricanes have made life miserable for the Penguins in recent seasons — a team he has fond memories with.`\
+https://nytimes.com/athletic/6032721/2025/01/04/penguins-hurricanes-jordan-staal/
+
 **Offense awakens, defense sags and Mark Messier calls out Rangers: 3 takeaways vs. Capitals**\
 `After a disheartening 7-4 loss to Washington, New York has now lost 16 of its last 21 games.`\
 https://nytimes.com/athletic/6037670/2025/01/04/rangers-capitals-mark-messier-comments/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 **Liverpool's Pitaluga returning to Fluminense in permanent deal**\
 `Liverpool goalkeeper Marcelo Pitaluga is returning to Brazil to sign for former club Fluminense on a permanent deal.`\
 https://nytimes.com/athletic/6037502/2025/01/04/liverpool-transfers-marcelo-pitaluga-fluminense/
-
-**Acheampong Chelsea's 'best player' in Palace draw - Maresca**\
-`Enzo Maresca praised Cobham graduate Josh Acheampong as Chelsea’s best performer in a 1-1 draw with Crystal Palace at Selhurst Park on Saturday.`\
-https://nytimes.com/athletic/6037441/2025/01/04/josh-acheampong-chelsea-enzo-maresca/
 
