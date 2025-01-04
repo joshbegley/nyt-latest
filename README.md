@@ -1,3 +1,7 @@
+**With a refreshed LeBron James, Lakers' improved defense has turned around their season**\
+`After a slow start to the season, the Lakers' improved defense has quietly carried them up the West standings.`\
+https://nytimes.com/athletic/6036756/2025/01/04/lebron-james-jj-redick-anthony-davis-defense-lakers-nba/
+
 **The Briefing: Tottenham 1 Newcastle 2 - Where were Maddison and Son? Can Isak keep scoring?**\
 `Goals from Anthony Gordon and Alexander Isak extended Newcastle's brilliant run and made it six league games at home without a win for Spurs`\
 https://nytimes.com/athletic/6029668/2025/01/04/tottenham-newcastle-isak-analysis-maddison-son/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/books/read-like-wind-recommendations.html
 **Barcelona to file complaint to government over Olmo registration**\
 `Barcelona are planning to file a complaint to the Spanish government in their final attempt to register Dani Olmo and Pau Victor.`\
 https://nytimes.com/athletic/6033635/2025/01/04/dani-olmo-barcelona-la-liga-registration/
-
-**Syria’s International Airport to Reopen as Government Presses for Stability**\
-`Tensions are high on Syria’s border with Lebanon. The ouster of President Bashar al-Assad led to worry that violence could spill over into neighboring countries.`\
-https://nytimes.com/2025/01/04/world/middleeast/syria-lebanon-israel-gaza.html
 
