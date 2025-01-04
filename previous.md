@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
 https://nytimes.com/2025/01/03/us/politics/johnson-speaker-trump-republicans.html
 
 **Jimmy Butler suspended for 7 games by Heat for 'conduct detrimental to the team'**\
-`Miami Heat suspend Jimmy Butler for 7 games for 'conduct detrimental to the team'.`\
+`The decision marks the latest turning point in an obviously eroding relationship.`\
 https://nytimes.com/athletic/6036606/2025/01/03/jimmy-butler-suspended-heat-trade-request/
 
 **A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
