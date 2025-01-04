@@ -1,3 +1,7 @@
+**Dodgers roster taking shape after Teoscar Hernández, Hyeseong Kim signings**\
+`GM Brandon Gomes declined to say whether the organization has been granted a second meeting with Roki Sasaki.`\
+https://nytimes.com/athletic/6036621/2025/01/03/dodgers-still-looking-to-add-after-teoscar-hernandez-hyeseong-kim-signings/
+
 **New Orleans Attacker Had Transmitter to Set Off Explosives, F.B.I. Says**\
 `Bomb-making materials were found at a short-term rental house, and the authorities said they had recovered a transmitter intended to set off explosives on the city’s famous Bourbon Street.`\
 https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/us/politics/119th-congress-scene.html
 **Honduras Threatens to Expel U.S. Military as Latin America Gears Up for Trump Deportations**\
 `In pushing back against President-elect Donald J. Trump’s plan, President Xiomara Castro threatened that bases hosting U.S. troops could “lose all reason to exist in Honduras.”`\
 https://nytimes.com/2025/01/03/world/americas/honduras-trump-mass-deportations.html
-
-**Orioles agree to terms with Charlie Morton on 1-year deal**\
-`Morton, 41, will earn $15 million in 2025. He spent the past four seasons pitching for the Braves.`\
-https://nytimes.com/athletic/6036480/2025/01/03/orioles-charlie-morton-deal/
 
