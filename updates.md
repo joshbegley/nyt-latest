@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Notre Dame, Penn State set for Orange Bowl clash. What are keys to the game?**\
 `The Athletic beat writers Pete Sampson (Notre Dame) and Audrey Snyder (Penn State) share their thoughts on the CFP semifinal.`\
 https://nytimes.com/athletic/6037333/2025/01/04/cfp-notre-dame-penn-state-orange-bowl/
