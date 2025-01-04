@@ -1,3 +1,11 @@
+**Guantánamo Convict Sues to Stop U.S. Plan to Send Him to Prison in Iraq**\
+`A court filing said the prisoner was at risk for abuse and might not be able to get adequate health care if transferred.`\
+https://nytimes.com/2025/01/03/us/politics/guantanamo-prisoner-iraq-lawsuit.html
+
+**Dodgers' roster taking shape after Teoscar Hernández, Hyeseong Kim signings**\
+`GM Brandon Gomes declined to say whether the organization has been granted a second meeting with Roki Sasaki.`\
+https://nytimes.com/athletic/6036621/2025/01/03/dodgers-still-looking-to-add-after-teoscar-hernandez-hyeseong-kim-signings/
+
 **Dodgers roster taking shape after Teoscar Hernández, Hyeseong Kim signings**\
 `GM Brandon Gomes declined to say whether the organization has been granted a second meeting with Roki Sasaki.`\
 https://nytimes.com/athletic/6036621/2025/01/03/dodgers-still-looking-to-add-after-teoscar-hernandez-hyeseong-kim-signings/

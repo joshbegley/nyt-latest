@@ -1,4 +1,8 @@
-**Dodgers roster taking shape after Teoscar Hernández, Hyeseong Kim signings**\
+**Guantánamo Convict Sues to Stop U.S. Plan to Send Him to Prison in Iraq**\
+`A court filing said the prisoner was at risk for abuse and might not be able to get adequate health care if transferred.`\
+https://nytimes.com/2025/01/03/us/politics/guantanamo-prisoner-iraq-lawsuit.html
+
+**Dodgers' roster taking shape after Teoscar Hernández, Hyeseong Kim signings**\
 `GM Brandon Gomes declined to say whether the organization has been granted a second meeting with Roki Sasaki.`\
 https://nytimes.com/athletic/6036621/2025/01/03/dodgers-still-looking-to-add-after-teoscar-hernandez-hyeseong-kim-signings/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/us/new-orleans-victims-truck-attack.html
 **With Speaker Drama and Family Photos, New Congress Gets Off to a Wobbly Start**\
 `There was a first-day-of-school energy on Capitol Hill as members of Congress took their oaths and Speaker Mike Johnson fought for his job.`\
 https://nytimes.com/2025/01/03/us/politics/119th-congress-scene.html
-
-**Honduras Threatens to Expel U.S. Military as Latin America Gears Up for Trump Deportations**\
-`In pushing back against President-elect Donald J. Trump’s plan, President Xiomara Castro threatened that bases hosting U.S. troops could “lose all reason to exist in Honduras.”`\
-https://nytimes.com/2025/01/03/world/americas/honduras-trump-mass-deportations.html
 
