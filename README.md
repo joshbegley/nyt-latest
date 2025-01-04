@@ -1,3 +1,11 @@
+**Rockets' dismal showing against Celtics highlights yet another offensive void to fill**\
+`"It's tough with Jabari (Smith Jr.) going down," veteran Jeff Green said. "He's a vital piece of what we do."`\
+https://nytimes.com/athletic/6036812/2025/01/04/rockets-celtics-jabari-smith-jr-out/
+
+**What's the story behind Blues' recent success? Less defense brings more offense**\
+`The Blues are 4-1 in their last five games, and they've gotten 23 goals from 12 scorers.`\
+https://nytimes.com/athletic/6036701/2025/01/04/st-louis-blues-offense-brandon-saad-trick/
+
 **Why the Canucks’ shutout loss revealed big offensive concerns: 3 takeaways**\
 `The Canucks were shut out 3-0 by the Predators in another disappointing loss this season at Rogers Arena.`\
 https://nytimes.com/athletic/6036761/2025/01/04/canucks-shutout-loss-predators-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035323/2025/01/04/liverpool-easy-fixture-list-prem
 **How the Islamic State Radicalizes People Today**\
 `A man who pledged allegiance to the terrorist group carried out a deadly attack in New Orleans on New Year’s Day.`\
 https://nytimes.com/2025/01/04/world/middleeast/isis-propaganda-new-orleans-attack.html
-
-**A Move Toward Christianity Stirs in a Muslim Land**\
-`Christian converts in Kosovo, where the vast majority of people are Muslim, hope to revive a pre-Islamic past they see as a key to their European identity.`\
-https://nytimes.com/2025/01/04/world/europe/kosovo-albanians-christianity-islam.html
-
-**In France, Drug Traffic Spreads to New Territory: Small Towns**\
-`Even quaint corners of the country are seeing a rise in drug violence and crime. Just ask the mayor of Morlaix, which has a population of about 15,000.`\
-https://nytimes.com/2025/01/04/world/europe/france-drugs-small-towns.html
 
