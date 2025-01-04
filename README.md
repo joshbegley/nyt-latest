@@ -1,3 +1,7 @@
+**Magic's Jalen Suggs leaves game in wheelchair, diagnosed with 'back spasms'**\
+`The Magic have already been ravaged by injuries this season, including to stars Paolo Banchero and Franz Wagner. `\
+https://nytimes.com/athletic/6036715/2025/01/03/jalen-suggs-injury-back-magic/
+
 **Just *Done* With Something**\
 `Sam Ezersky’s Saturday puzzle gives us a lot to chew on.`\
 https://nytimes.com/2025/01/03/crosswords/daily-puzzle-2025-01-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036621/2025/01/03/dodgers-still-looking-to-add-aft
 **New Orleans Attacker Had Transmitter to Set Off Explosives, F.B.I. Says**\
 `Bomb-making materials were found at a short-term rental house, and the authorities said they had recovered a transmitter intended to set off explosives on the city’s famous Bourbon Street.`\
 https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
-
-**Johnson’s Reward for Keeping His Gavel: An Impossible Job Delivering for Trump**\
-`Speaker Mike Johnson narrowly avoided a painful and prolonged fight to keep his post, but his messy victory showed how difficult his job will be in the new all-Republican Congress.`\
-https://nytimes.com/2025/01/03/us/politics/johnson-speaker-trump-republicans.html
 
