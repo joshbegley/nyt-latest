@@ -1,3 +1,11 @@
+**Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
+`Plus, GMs stack up this year’s top draft QBs versus last year’s class of passers.`\
+https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
+
+**'Becoming a Rose': The story behind Derrick Rose's retirement film, a tribute to Chicago**\
+`On 'Derrick Rose Night,' his directorial film debut will be an ode to his Bulls career and the city he loves.`\
+https://nytimes.com/athletic/6036936/2025/01/04/derrick-rose-bulls-retirement-nba/
+
 **Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
 `Despite speculation around Butler, the Warriors are more likely to target two other names on the trade market in Chicago and Brooklyn.`\
 https://nytimes.com/athletic/6036974/2025/01/04/warriors-jimmy-butler-nba-trade-deadline/
