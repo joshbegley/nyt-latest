@@ -1,3 +1,7 @@
+**Johnson’s Reward for Keeping His Gavel: An Impossible Job Delivering for Trump**\
+`Speaker Mike Johnson narrowly avoided a painful and prolonged fight to keep his post, but his messy victory showed how difficult his job will be in the new all-Republican Congress.`\
+https://nytimes.com/2025/01/03/us/politics/johnson-speaker-trump-republicans.html
+
 **A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
 `The system is forecast to bring a dreadful mix of sleet, snow and freezing rain from Kansas to Virginia this weekend.`\
 https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html

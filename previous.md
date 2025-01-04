@@ -1,3 +1,7 @@
+**Johnson’s Reward for Keeping His Gavel: An Impossible Job Delivering for Trump**\
+`Speaker Mike Johnson narrowly avoided a painful and prolonged fight to keep his post, but his messy victory showed how difficult his job will be in the new all-Republican Congress.`\
+https://nytimes.com/2025/01/03/us/politics/johnson-speaker-trump-republicans.html
+
 **A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
 `The system is forecast to bring a dreadful mix of sleet, snow and freezing rain from Kansas to Virginia this weekend.`\
 https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/climate/republicans-federal-land-drilling.html
 **Walker Buehler, poised for bounce-back year, adds veteran presence to Red Sox rotation**\
 `Buehler felt his mechanics click back into place towards the end of last season and feels ready for a rebound season with the Red Sox.`\
 https://nytimes.com/athletic/6036495/2025/01/03/walker-buehler-red-sox-introduction/
-
-**TikTok and Government Clash in Last Round of Supreme Court Briefs**\
-`The briefs, filed a week before oral arguments, offered sharply differing accounts of China’s influence over the site and the role of the First Amendment.`\
-https://nytimes.com/2025/01/03/us/politics/tiktok-ban-supreme-court.html
 
