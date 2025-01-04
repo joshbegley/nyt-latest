@@ -1,3 +1,11 @@
+**Abdul Carter's status for Orange Bowl remains in limbo: 'Too early to say'**\
+`Carter, the Big Ten’s reigning defensive player of the year, exited the Fiesta Bowl in the first half with an apparent left shoulder injury.`\
+https://nytimes.com/athletic/6037274/2025/01/04/abdul-carter-injury-penn-state-orange-bowl/
+
+**Jeff Baena, Film Director and Screenwriter, Dies at 47**\
+`Mr. Baena, who was married to the actress Aubrey Plaza, co-wrote the existential comedy “I Heart Huckabees,” and wrote and directed films including “Life After Beth” and “The Little Hours.”`\
+https://nytimes.com/2025/01/04/arts/jeff-baena-dead.html
+
 **The secrets behind Phil Parkinson's 1,000 games as a manager**\
 `Wrexham's boss has reached 1,000 competitive games as a manager by mixing motivational skills with fury at the right times`\
 https://nytimes.com/athletic/5955098/2025/01/04/phil-parkinson-1000-wrexham-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/04/us/matthew-livelsberger-las-vegas-cybertruck.html
 **Auston Matthews returning vs. Bruins after missing last 6 games**\
 `“It’s exciting,” Matthews said Saturday morning. "It’s never fun watching."`\
 https://nytimes.com/athletic/6037304/2025/01/04/auston-matthews-maple-leafs-return/
-
-**Jason Kelce's new late-night show needs more Kelce, less comedy**\
-`The debut of Jason Kelce's new ESPN late-night talk show highlighted the host's affability and the challenge of making late-night TV.`\
-https://nytimes.com/athletic/6037233/2025/01/04/jason-kelce-late-night-show-takeaways/
-
-**Pick-Me-Up Poke Bowls**\
-`And more easy, breezy recipes, reminders that cooking is equally joyful when it’s just for you as when it’s for a home full of holiday revelers.`\
-https://nytimes.com/2025/01/04/dining/poke-bowls.html
 

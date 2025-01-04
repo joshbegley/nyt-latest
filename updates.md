@@ -1,3 +1,11 @@
+**Abdul Carter's status for Orange Bowl remains in limbo: 'Too early to say'**\
+`Carter, the Big Ten’s reigning defensive player of the year, exited the Fiesta Bowl in the first half with an apparent left shoulder injury.`\
+https://nytimes.com/athletic/6037274/2025/01/04/abdul-carter-injury-penn-state-orange-bowl/
+
+**Jeff Baena, Film Director and Screenwriter, Dies at 47**\
+`Mr. Baena, who was married to the actress Aubrey Plaza, co-wrote the existential comedy “I Heart Huckabees,” and wrote and directed films including “Life After Beth” and “The Little Hours.”`\
+https://nytimes.com/2025/01/04/arts/jeff-baena-dead.html
+
 **The Briefing: Manchester City 4 West Ham 1 - Haaland strikes twice and Savinho stars, but defence still looks fragile**\
 `Haaland struck either side of half-time and Savinho set up three of the goals as Guardiola's side brushed West Ham aside at the Etihad`\
 https://nytimes.com/athletic/6029670/2025/01/04/manchester-city-haaland-savinho-west-ham-analysis/
