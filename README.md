@@ -6,6 +6,10 @@ https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
 `Speaker Mike Johnson narrowly avoided a painful and prolonged fight to keep his post, but his messy victory showed how difficult his job will be in the new all-Republican Congress.`\
 https://nytimes.com/2025/01/03/us/politics/johnson-speaker-trump-republicans.html
 
+**Jimmy Butler suspended for 7 games by Heat for 'conduct detrimental to the team'**\
+`Miami Heat suspend Jimmy Butler for 7 games for 'conduct detrimental to the team'.`\
+https://nytimes.com/athletic/6036606/2025/01/03/jimmy-butler-suspended-heat-trade-request/
+
 **A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
 `The system is forecast to bring a dreadful mix of sleet, snow and freezing rain from Kansas to Virginia this weekend.`\
 https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/03/world/americas/honduras-trump-mass-deportations.h
 **Orioles agree to terms with Charlie Morton on 1-year deal**\
 `Morton, 41, will earn $15 million in 2025. He spent the past four seasons pitching for the Braves.`\
 https://nytimes.com/athletic/6036480/2025/01/03/orioles-charlie-morton-deal/
-
-**House Republicans Pledge Drilling and Make It Easier to Shed Federal Land**\
-`The newly elected Speaker said the party would make it a priority to “restore America’s energy dominance.”`\
-https://nytimes.com/2025/01/03/climate/republicans-federal-land-drilling.html
 
