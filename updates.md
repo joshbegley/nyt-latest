@@ -1,3 +1,7 @@
+**Texas Teen Killed Goat at School Barn Used for Livestock Contests, Police Say**\
+`A 17-year-old said that she had poisoned the animal with pesticide because she thought its keeper was a cheater, the authorities said.`\
+https://nytimes.com/2025/01/03/us/texas-teen-poisons-goat.html
+
 **Corrections: Jan. 4, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 4, 2025.`\
 https://nytimes.com/2025/01/03/pageoneplus/corrections-jan-4-2025.html

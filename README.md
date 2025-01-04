@@ -1,7 +1,3 @@
-**Texas Teen Killed Goat at School Barn Used for Livestock Contests, Police Say**\
-`A 17-year-old said that she had poisoned the animal with pesticide because she thought its keeper was a cheater, the authorities said.`\
-https://nytimes.com/2025/01/03/us/texas-teen-poisons-goat.html
-
 **Corrections: Jan. 4, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 4, 2025.`\
 https://nytimes.com/2025/01/03/pageoneplus/corrections-jan-4-2025.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6036606/2025/01/03/jimmy-butler-suspended-heat-trad
 **A Powerful Winter Storm Is Poised to Move Through the Middle of the U.S.**\
 `The system is forecast to bring a dreadful mix of sleet, snow and freezing rain from Kansas to Virginia this weekend.`\
 https://nytimes.com/2025/01/03/weather/winter-snow-storm-forecast.html
+
+**Rockets' Jabari Smith Jr. fractures hand, out 4 to 8 weeks**\
+`Losing him at a time when the Rockets are already quietly dealing with a Tari Eason absence is a huge blow.`\
+https://nytimes.com/athletic/6036583/2025/01/03/houston-rockets-jabari-smith-jr-injury/
 
