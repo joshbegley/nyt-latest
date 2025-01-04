@@ -1,3 +1,7 @@
+**3 Ex-Deputies Face Murder Charges in Virginia Inmate’s Death**\
+`The deputies restrained the man after he was “uncooperative and combative” while being booked into the jail, officials said. He was hospitalized after a “medical emergency” and died days later.`\
+https://nytimes.com/2025/01/03/us/virginia-beach-deputies-indictment-inmate-murder.html
+
 **Guantánamo Convict Sues to Stop U.S. Plan to Send Him to Prison in Iraq**\
 `A court filing said the prisoner was at risk for abuse and might not be able to get adequate health care if transferred.`\
 https://nytimes.com/2025/01/03/us/politics/guantanamo-prisoner-iraq-lawsuit.html
