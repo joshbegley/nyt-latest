@@ -1,3 +1,11 @@
+**It's time for the Blackhawks to give Arvid Söderblom a chance as No. 1 goalie**\
+`In arguably one of the most important starts of his NHL career, the 25-year-old Söderblom gave the Blackhawks a chance at winning.`\
+https://nytimes.com/athletic/6036733/2025/01/04/blackhawks-goalie-arvid-soderblom/
+
+**Have Liverpool really benefited from 'easy fixtures' in the Premier League this season?**\
+`Both scheduling and opposition form seem to have favoured Arne Slot's side in the first half of the season - but is that actually the case?`\
+https://nytimes.com/athletic/6035323/2025/01/04/liverpool-easy-fixture-list-premier-league/
+
 **How the Islamic State Radicalizes People Today**\
 `A man who pledged allegiance to the terrorist group carried out a deadly attack in New Orleans on New Year’s Day.`\
 https://nytimes.com/2025/01/04/world/middleeast/isis-propaganda-new-orleans-attack.html

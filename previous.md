@@ -1,3 +1,11 @@
+**It's time for the Blackhawks to give Arvid Söderblom a chance as No. 1 goalie**\
+`In arguably one of the most important starts of his NHL career, the 25-year-old Söderblom gave the Blackhawks a chance at winning.`\
+https://nytimes.com/athletic/6036733/2025/01/04/blackhawks-goalie-arvid-soderblom/
+
+**Have Liverpool really benefited from 'easy fixtures' in the Premier League this season?**\
+`Both scheduling and opposition form seem to have favoured Arne Slot's side in the first half of the season - but is that actually the case?`\
+https://nytimes.com/athletic/6035323/2025/01/04/liverpool-easy-fixture-list-premier-league/
+
 **How the Islamic State Radicalizes People Today**\
 `A man who pledged allegiance to the terrorist group carried out a deadly attack in New Orleans on New Year’s Day.`\
 https://nytimes.com/2025/01/04/world/middleeast/isis-propaganda-new-orleans-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035967/2025/01/04/tottenham-newcastle-preview-odds
 **Quote of the Day: Bouncing Back Is a Part of Life In New Orleans**\
 `Quotation of the Day for Saturday, January 4, 2025.`\
 https://nytimes.com/2025/01/03/pageoneplus/quote-of-the-day-bouncing-back-is-a-part-of-life-in-new-orleans.html
-
-**State Dept. Tells Congress It Plans to Send $8 Billion in Arms to Israel**\
-`The arms transfer could be the final one the Biden administration provides to Israel. President Biden has largely ignored critics of Israel’s war in Gaza who have urged a halt to weapons aid.`\
-https://nytimes.com/2025/01/03/us/politics/us-weapons-israel.html
-
-**Winter Storm Spawns Tornado in Northern California**\
-`A warning covering an area with about 2,200 residents told people to take shelter because flying debris was expected.`\
-https://nytimes.com/2025/01/03/us/tornado-warning-california-tehama-shasta-county.html
 
