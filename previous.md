@@ -1,3 +1,7 @@
+**Barcelona to file complaint to government over Olmo registration**\
+`Barcelona are planning to file a complaint to the Spanish government in their final attempt to register Dani Olmo and Pau Victor.`\
+https://nytimes.com/athletic/6033635/2025/01/04/dani-olmo-barcelona-la-liga-registration/
+
 **Syria’s International Airport to Reopen as Government Presses for Stability**\
 `Tensions are high on Syria’s border with Lebanon. The ouster of President Bashar al-Assad led to worry that violence could spill over into neighboring countries.`\
 https://nytimes.com/2025/01/04/world/middleeast/syria-lebanon-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/opinion/kristof-win-a-trip.html
 **The Year Ahead**\
 `There’s an empty calendar spread out before us. What meaning will we give to it?`\
 https://nytimes.com/2025/01/04/briefing/the-year-ahead.html
-
-**Tottenham close to signing goalkeeper Kinsky from Slavia Prague**\
-`Tottenham Hotspur are close to signing Czech goalkeeper Antonin Kinsky to a long-term deal.`\
-https://nytimes.com/athletic/6037030/2025/01/04/antonin-kinsky-tottenham-transfer/
 

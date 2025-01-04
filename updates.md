@@ -1,3 +1,7 @@
+**Barcelona to file complaint to government over Olmo registration**\
+`Barcelona are planning to file a complaint to the Spanish government in their final attempt to register Dani Olmo and Pau Victor.`\
+https://nytimes.com/athletic/6033635/2025/01/04/dani-olmo-barcelona-la-liga-registration/
+
 **What Linda Lavin Whispered to Me About Love and Need**\
 `She was a radiant star who played things her own way.`\
 https://nytimes.com/2025/01/04/opinion/linda-lavin-appreciation-theater.html
