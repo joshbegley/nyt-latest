@@ -1,3 +1,7 @@
+**The Year Ahead**\
+`There’s an empty calendar spread out before us. What meaning will we give to it?`\
+https://nytimes.com/2025/01/04/briefing/the-year-ahead.html
+
 **Tottenham close to signing goalkeeper Kinsky from Slavia Prague**\
 `Tottenham Hotspur are close to signing Czech goalkeeper Antonin Kinsky to a long-term deal.`\
 https://nytimes.com/athletic/6037030/2025/01/04/antonin-kinsky-tottenham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/world/europe/nato-attacks-drones-exploding-parcel
 **Tomiko Itooka of Japan, World’s Oldest Person, Dies at 116**\
 `Born in 1908, she raised four children, ran a family textile factory during World War II, and remained an avid hiker into her 80s.`\
 https://nytimes.com/2025/01/04/world/asia/oldest-person-dies-japan.html
-
-**Notre Dame beat Georgia with better coaching, physicality and smart play: Final thoughts**\
-`Eleven final thoughts on Notre Dame’s historic 23-10 victory over Georgia in the Sugar Bowl, a win the Irish had long been waiting for.`\
-https://nytimes.com/athletic/6036361/2025/01/04/notre-dame-georgia-sugar-bowl-takeaways/
 
