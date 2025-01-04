@@ -1,3 +1,7 @@
+**Jimmy Butler suspended for 7 games by Heat for 'conduct detrimental to the team'**\
+`Miami Heat suspend Jimmy Butler for 7 games for 'conduct detrimental to the team'.`\
+https://nytimes.com/athletic/6036606/2025/01/03/jimmy-butler-suspended-heat-trade-request/
+
 **New Orleans Attacker Had Transmitter to Set Off Explosives, F.B.I. Says**\
 `Bomb-making materials were found at a short-term rental house, and the authorities said they had recovered a transmitter intended to set off explosives on the city’s famous Bourbon Street.`\
 https://nytimes.com/2025/01/03/us/new-orleans-attack-airbnb-fire.html
