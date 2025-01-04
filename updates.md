@@ -1,3 +1,7 @@
+**Corrections: Jan. 4, 2025**\
+`Corrections that appeared in print on Saturday, Jan. 4, 2025.`\
+https://nytimes.com/2025/01/03/pageoneplus/corrections-jan-4-2025.html
+
 **Judge Rejects New Jersey’s Bid to Halt Congestion Pricing**\
 `Starting Sunday, most drivers who enter Manhattan south of 60th Street during peak travel times will be charged a $9 fee.`\
 https://nytimes.com/2025/01/03/nyregion/congestion-pricing-hearing-new-jersey.html
