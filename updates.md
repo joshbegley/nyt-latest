@@ -1,3 +1,15 @@
+**Tottenham close to signing goalkeeper Kinsky from Slavia Prague**\
+`Tottenham Hotspur are close to signing Czech goalkeeper Antonin Kinsky to a long-term deal.`\
+https://nytimes.com/athletic/6037030/2025/01/04/antonin-kinsky-tottenham-transfer/
+
+**Elena Rybakina says Stefano Vukov 'never mistreated' her amid WTA investigation**\
+`Vukov cannot coach while under investigation and Tennis Australia will not issue him with an accreditation for the upcoming Australian Open.`\
+https://nytimes.com/athletic/6037022/2025/01/04/elena-rybakina-stefano-vukov-wta-suspension/
+
+**Bears tight end Marcedes Lewis on Caleb Williams, qualities of a good coach and Year 20**\
+`Lewis is wrapping up his 19th NFL season Sunday. He discussed his plans to keep playing, his rookie quarterback and more.`\
+https://nytimes.com/athletic/6036364/2025/01/04/bears-marcedes-lewis-caleb-williams/
+
 **Vikings LB Blake Cashman's return home has surpassed even his wildest expectations**\
 `The native of nearby Eden Prairie, Minn., is living the dream during a magical season for his hometown team.`\
 https://nytimes.com/athletic/6035799/2025/01/04/blake-cashman-vikings-home-eden-prairie-playoffs/
