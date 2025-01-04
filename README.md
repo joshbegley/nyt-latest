@@ -1,3 +1,7 @@
+**Tom Johnson, Minimalist Composer and Village Voice Critic, Dies at 85**\
+`He charted the rise of musical minimalism on New York’s downtown scene in the 1970s. He later gained notice for abstract works of his own.`\
+https://nytimes.com/2025/01/04/arts/music/tom-johnson-dead.html
+
 **The Briefing: Brighton 1 Arsenal 1 - A title blow, an unusual penalty call and Nwaneri's cameo**\
 `Jordan Campbell and Anantaajith Raghuraman break down the main talking points from Arsenal's 1-1 draw with Brighton & Hove Albion`\
 https://nytimes.com/athletic/6033118/2025/01/04/brighton-1-arsenal-1-saliba-penalty-nwaneri/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6037274/2025/01/04/abdul-carter-injury-penn-state-o
 **Jeff Baena, Film Director and Screenwriter, Dies at 47**\
 `Mr. Baena, who was married to the actress Aubrey Plaza, co-wrote the existential comedy “I Heart Huckabees,” and wrote and directed films including “Life After Beth” and “The Little Hours.”`\
 https://nytimes.com/2025/01/04/arts/jeff-baena-dead.html
-
-**The secrets behind Phil Parkinson's 1,000 games as a manager**\
-`Wrexham's boss has reached 1,000 competitive games as a manager by mixing motivational skills with fury at the right times`\
-https://nytimes.com/athletic/5955098/2025/01/04/phil-parkinson-1000-wrexham-manager/
 
