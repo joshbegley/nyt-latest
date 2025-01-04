@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orlean
 https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
 
 **'Becoming a Rose': The story behind Derrick Rose's retirement film, a tribute to Chicago**\
-`On 'Derrick Rose Night,' his directorial film debut will be an ode to his Bulls career and the city he loves.`\
+`On "Derrick Rose Night," his directorial film debut will be an ode to his Bulls career and the city he loves.`\
 https://nytimes.com/athletic/6036936/2025/01/04/derrick-rose-bulls-retirement-nba/
 
 **Why Warriors aren’t likely to pursue Jimmy Butler before NBA trade deadline**\
