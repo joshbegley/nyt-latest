@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-ba
 `\
 https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
 
+**No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
+`Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
+`\
+https://nytimes.com/athletic/6037471/2025/01/04/florida-kentucky-mens-college-basketball-takeaways/
+
 **Liverpool's Pitaluga returning to Fluminense in permanent deal**\
 `Liverpool goalkeeper Marcelo Pitaluga is returning to Brazil to sign for former club Fluminense on a permanent deal.`\
 https://nytimes.com/athletic/6037502/2025/01/04/liverpool-transfers-marcelo-pitaluga-fluminense/
