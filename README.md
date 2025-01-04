@@ -1,3 +1,7 @@
+**Striking Patrollers Disrupt Season at Largest Ski Resort in U.S.**\
+`Long lift lines, limited terrain and frustration among skiers and snowboarders are downstream impacts of a wage dispute between union workers at Park City Mountain in Utah and its owner, Vail Resorts.`\
+https://nytimes.com/2025/01/04/travel/park-city-strike-ski-patrol.html
+
 **Is America Just Going to Abandon Its Towns Falling Into the Ocean?**\
 `Communities must be able to move to solid ground while remaining whole.`\
 https://nytimes.com/2025/01/04/opinion/climate-change-storms-rural-communties-erosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/world/middleeast/syria-lebanon-israel-gaza.html
 **Grading every NHL team's season as we approach the midway point**\
 `From F to A+ to everything in between, The Athletic's NHL staff hands out grades to every team based on their season so far.`\
 https://nytimes.com/athletic/6030146/2025/01/04/nhl-grades-teams-midway-season/
-
-**This Essential Twist in ‘Squid Game’ Season 2 Perfectly Mirrors Our Moment**\
-`On ‘Squid Game,’ the game is cruel but life is crueler. In Season 2, a new twist introduces a kind of cruelty that feels uncomfortably close to real life.`\
-https://nytimes.com/2025/01/04/opinion/squid-game-season-2-essential-twist.html
 
