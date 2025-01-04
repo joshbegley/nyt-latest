@@ -1,3 +1,7 @@
+**Edwards: Knicks can't grab signature win vs. Thunder but are heading in right direction**\
+`The Knicks still can't be the league's best, but they're pushing themselves closer to the conversation.`\
+https://nytimes.com/athletic/6036808/2025/01/04/knicks-lose-to-thunder-right-direction/
+
 **Marcus Rashford has missed five Manchester United games. What's going on?**\
 `The England striker is one of United's highest earners but is absent during a crucial period for his club. Why?`\
 https://nytimes.com/athletic/6035672/2025/01/04/marcus-rashford-manchester-united-missing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036061/2025/01/04/manchester-city-west-ham-preview
 **Brighton vs Arsenal: Storylines, odds, prediction as Gunners try to stay in title race**\
 `Arsenal head to Brighton, seeking to keep pace with Liverpool at the top of the Premier League table.`\
 https://nytimes.com/athletic/6033901/2025/01/04/brighton-arsenal-preview-odds-prediction/
-
-**Why Japan Won’t Stop Trying to Invest in the U.S.**\
-`Japanese companies needing to grow have sought out American deals. Experts say that will not change even after Biden’s rejection of Nippon Steel’s takeover attempt.`\
-https://nytimes.com/2025/01/04/business/us-steel-nippon-japan-takeover.html
 
