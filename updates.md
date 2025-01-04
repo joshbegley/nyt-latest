@@ -1,3 +1,11 @@
+**Ralph Lauren Makes Fashion History With Top Civilian Honor**\
+`After decades of being nearly synonymous with American fashion, the 85-year-old became the first fashion designer to win the Presidential Medal of Freedom.`\
+https://nytimes.com/2025/01/04/style/ralph-lauren-presidential-medal-freedom.html
+
+**Bucs' Jordan Whitehead involved in car crash, placed on NFI list**\
+`The crash occurred as Whitehead was traveling to the team's practice facility Saturday morning, the Buccaneers said in a statement.`\
+https://nytimes.com/athletic/6037773/2025/01/04/buccaneers-jordan-whitehead-car-crash-injury/
+
 **No. 6 Florida drops first game to No. 10 Kentucky: Takeaways**\
 `Kentucky continued to be at its best against the elite, improving to 3-0 in games against top-10 teams this season.
 `\
