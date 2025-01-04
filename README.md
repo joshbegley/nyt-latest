@@ -1,3 +1,7 @@
+**Villa's McGinn could miss up to 'five weeks' with hamstring injury - Emery**\
+`John McGinn suffered a hamstring injury and could be unavailable for several weeks, Aston Villa head coach Unai Emery has said.`\
+https://nytimes.com/athletic/6037321/2025/01/04/john-mcginn-hamstring-injury-aston-villa/
+
 **Bulls to honor Derrick Rose with jersey retirement next season**\
 `Rose spent eight seasons with the franchise and became the youngest MVP in league history in 2011.`\
 https://nytimes.com/athletic/6037421/2025/01/04/derrick-rose-chicago-bulls-retired-numbers-jerseys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037290/2025/01/04/sonny-smart-death-kirby-father/
 **The Briefing: Crystal Palace 1 Chelsea 1 - Blip prolonged, Acheampong's first start and what of that left flank?**\
 `Enzo Maresca's side dropped more points late on to put their 'title challenge' into proper perspective`\
 https://nytimes.com/athletic/6029669/2025/01/04/chelsea-palace-acheampong-sancho/
-
-**Soldier’s Struggles Began Long Before Las Vegas Blast, Nurse Says**\
-`A Green Beret who had served several combat tours fatally shot himself in a Cybertruck that exploded outside a Trump hotel on New Year’s Day.`\
-https://nytimes.com/2025/01/04/us/matthew-livelsberger-las-vegas-cybertruck.html
 
