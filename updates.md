@@ -1,3 +1,7 @@
+**Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
+`Plus, GMs stack up the top QBs in this year's draft versus last year’s class of passers.`\
+https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
+
 **Jason Kelce's new late-night show needs more Kelce, less comedy**\
 `The debut of Jason Kelce's new ESPN late-night talk show highlighted the host's affability and the challenge of making late-night TV.`\
 https://nytimes.com/athletic/6037233/2025/01/04/jason-kelce-late-night-show-takeaways/
