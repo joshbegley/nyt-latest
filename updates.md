@@ -1,3 +1,7 @@
+**Kenny Guiton taking over as Wisconsin's QB coach, shifting from WR duties: Source**\
+`Former Ohio State quarterback joined Wisconsin's staff as the wide receivers coach in 2024.`\
+https://nytimes.com/athletic/6037091/2025/01/04/kenny-guiton-wisconsin-quarterback-coach/
+
 **World Juniors Today: Previewing the 2025 semifinal matchups**\
 `Each team will have a chance to play for a medal this weekend. The Athletic breaks down the two semifinal matchups at the World Juniors.`\
 https://nytimes.com/athletic/6029903/2025/01/04/world-juniors-semifinal-matchups-preview-2025/

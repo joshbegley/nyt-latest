@@ -1,3 +1,7 @@
+**Kenny Guiton taking over as Wisconsin's QB coach, shifting from WR duties: Source**\
+`Former Ohio State quarterback joined Wisconsin's staff as the wide receivers coach in 2024.`\
+https://nytimes.com/athletic/6037091/2025/01/04/kenny-guiton-wisconsin-quarterback-coach/
+
 **World Juniors Today: Previewing the 2025 semifinal matchups**\
 `Each team will have a chance to play for a medal this weekend. The Athletic breaks down the two semifinal matchups at the World Juniors.`\
 https://nytimes.com/athletic/6029903/2025/01/04/world-juniors-semifinal-matchups-preview-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/opinion/squid-game-season-2-essential-twist.html
 **What Linda Lavin Whispered to Me About Love and Need**\
 `She was a radiant star who played things her own way.`\
 https://nytimes.com/2025/01/04/opinion/linda-lavin-appreciation-theater.html
-
-**The Shame That Keeps Millions of Girls Out of School**\
-`Because of a lack of access to menstruation products, girls across Africa and Asia often stay home from school when they have their periods.`\
-https://nytimes.com/2025/01/04/opinion/girls-school-menstruation.html
 
