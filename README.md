@@ -1,3 +1,7 @@
+**Soldier’s Struggles Began Long Before Las Vegas Blast, Nurse Says**\
+`A Green Beret who had served several combat tours fatally shot himself in a Cybertruck that exploded outside a Trump hotel on New Year’s Day.`\
+https://nytimes.com/2025/01/04/us/matthew-livelsberger-las-vegas-cybertruck.html
+
 **Auston Matthews returning vs. Bruins after missing last 6 games**\
 `“It’s exciting,” Matthews said Saturday morning. "It’s never fun watching."`\
 https://nytimes.com/athletic/6037304/2025/01/04/auston-matthews-maple-leafs-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037001/2025/01/04/cj-mccollum-50-points-new-orlean
 **Russini’s what I’m hearing: All the coaching buzz, from Pierce to Vrabel, McCarthy to Mayo**\
 `Plus, GMs stack up the top QBs in this year's draft versus last year’s class of passers.`\
 https://nytimes.com/athletic/6037081/2025/01/04/nfl-news-coaching-rumors-black-monday/
-
-**'Becoming a Rose': The story behind Derrick Rose's retirement film, a tribute to Chicago**\
-`On "Derrick Rose Night," his directorial film debut will be an ode to his Bulls career and the city he loves.`\
-https://nytimes.com/athletic/6036936/2025/01/04/derrick-rose-bulls-retirement-nba/
 
