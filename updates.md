@@ -1,3 +1,7 @@
+**All Things Change**\
+`Kareem Ayas rolls up with a sparkling Sunday puzzle.`\
+https://nytimes.com/2025/01/04/crosswords/daily-puzzle-2025-01-05.html
+
 **Ralph Lauren Makes Fashion History With Top Civilian Honor**\
 `After decades of being nearly synonymous with American fashion, the 85-year-old became the first fashion designer to win the Presidential Medal of Freedom.`\
 https://nytimes.com/2025/01/04/style/ralph-lauren-presidential-medal-freedom.html
