@@ -1,3 +1,7 @@
+**Should TV Ads for Drugs Be Banned?**\
+`Readers discuss a proposal by some Trump allies. Also: The abuses inside prisons; stories of miracles.`\
+https://nytimes.com/2025/01/05/opinion/tv-ads-for-drugs.html
+
 **Congestion pricing is a New York idea.**\
 `A Columbia University economist, William Vickrey, proposed charging varying tolls for roads and subways in the 1950s.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/congestion-pricing-is-a-new-york-idea
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037283/2025/01/05/edmonton-oilers-ahl-team-2025/
 **Cowboys Today: Top priority in Sunday's game, predictions for season finale**\
 `Will this be Mike McCarthy's final game as the Cowboys play their finale at home against the Commanders?`\
 https://nytimes.com/athletic/6038091/2025/01/05/cowboys-commanders-prediction-mike-mccarthy/
-
-**Gauff beats Swiatek to help USA to United Cup title in Australia**\
-`Coco Gauff's reworked forehand helped her overcome Iga Swiatek in a match of at times extraordinary quality.`\
-https://nytimes.com/athletic/6038413/2025/01/05/gauff-swiatek-united-cup-usa-poland/
 
