@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6038873/2025/01/05/raul-jimenez-mexico-premier-leag
 
 **Hailing a car in Midtown Manhattan is becoming more expensive.**\
 `Transportation officials want to reduce the number of taxis, Ubers and Lyfts that idle in heavy traffic. To do that, they will charge riders new fees.`\
-https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/hailing-a-car-in-midtown-manhattan-is-becoming-more-expensive
+https://nytimes.com/2025/01/05/nyregion/congestion-pricing-uber-lyft.html
 
 **California Police Department Agrees to Reforms After Federal Inquiry**\
 `The Antioch Police Department was under investigation by the Justice Department after racist text messages between its officers were released in 2023.`\
