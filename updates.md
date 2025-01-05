@@ -1,3 +1,7 @@
+**UD Barbastro 0-4 Barcelona: A distraction from off-field chaos, Araujo's contract and two debuts**\
+`Barcelona avoided a Copa del Rey slip-up against fourth-tier opposition to ease some of the pressure weighing down on them`\
+https://nytimes.com/athletic/6038129/2025/01/05/barcelona-barbastro-olmo-victor-araujo/
+
 **‘A Day of Love’: How Trump Inverted the Violent History of Jan. 6**\
 `The president-elect and his allies have spent four years reinventing the Capitol attack — spreading conspiracy theories and weaving a tale of martyrdom to their ultimate political gain.`\
 https://nytimes.com/2025/01/05/us/politics/january-6-capitol-riot-trump.html
