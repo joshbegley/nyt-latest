@@ -1,3 +1,7 @@
+**Driver in Ramming Attack Made Trips to New Orleans and Abroad**\
+`Shamsud-Din Jabbar visited New Orleans twice, and traveled to Egypt and Canada, before a burst of violence early on New Year’s Day that killed 14 people.`\
+https://nytimes.com/2025/01/05/us/new-orleans-attack-travel.html
+
 **Alexander-Arnold not affected by Real Madrid talk, says Slot**\
 `Arne Slot insists speculation over Trent Alexander-Arnold’s future did not impact his performance against Manchester United.`\
 https://nytimes.com/athletic/6039170/2025/01/05/liverpool-alexander-arnold-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/us/bourbon-street-attack-safety-tourism.html
 **The Briefing: Liverpool 2 Manchester United 2 - Something for everyone in incredible rollercoaster game at Anfield**\
 `Our writers break down the action from a four-goal thriller at Anfield`\
 https://nytimes.com/athletic/6033290/2025/01/05/liverpool-manchester-united-amorim-slot/
-
-**Blue Jackets Sunday Gathering: Luca Del Bel Belluz becoming a bona fide NHL prospect**\
-`In his second AHL season, the Blue Jackets' second-round pick (No. 44) in 2022 leads the league in scoring with 17-19-36 in 33 games.`\
-https://nytimes.com/athletic/6038557/2025/01/05/blue-jackets-nhl-prospect-del-bel-belluz/
 
