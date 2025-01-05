@@ -1,3 +1,11 @@
+**Jimmy Carter’s Heart Was in Plains. But His Launchpad Was in Atlanta.**\
+`While his home was always in the small Georgia town, Atlanta gave him the opportunities to cement a political and humanitarian legacy.`\
+https://nytimes.com/2025/01/05/us/jimmy-carter-atlanta-georgia.html
+
+**Pop Stars Inc.**\
+`When art becomes a multimedia global brand.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/pop-stars-inc
+
 **Monday Briefing: How Trump Re-Wrote Jan. 6**\
 `Plus, the end of an era for Hong Kong’s cabbies`\
 https://nytimes.com/2025/01/05/briefing/trump-jan6-russia-syria.html

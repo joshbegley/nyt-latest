@@ -1,3 +1,11 @@
+**Jimmy Carter’s Heart Was in Plains. But His Launchpad Was in Atlanta.**\
+`While his home was always in the small Georgia town, Atlanta gave him the opportunities to cement a political and humanitarian legacy.`\
+https://nytimes.com/2025/01/05/us/jimmy-carter-atlanta-georgia.html
+
+**Pop Stars Inc.**\
+`When art becomes a multimedia global brand.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/pop-stars-inc
+
 **Monday Briefing: How Trump Re-Wrote Jan. 6**\
 `Plus, the end of an era for Hong Kong’s cabbies`\
 https://nytimes.com/2025/01/05/briefing/trump-jan6-russia-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/05/world/europe/musk-farage-starmer-uk.html
 **Georgia QB Jaden Rashada entering transfer portal for second time: Source**\
 `Rashada played his freshman season at Arizona State before transferring to Georgia last spring. `\
 https://nytimes.com/athletic/6039017/2025/01/05/jaden-rashada-transfer-college-football-georgia/
-
-**USMNT's Robinson voted U.S. Soccer Male Player of the Year**\
-`Antonee Robinson, the USMNT and Fulham defender, has been voted as the 2024 U.`\
-https://nytimes.com/athletic/6038980/2025/01/05/antonee-robinson-usmnt-player-of-the-year/
-
-**The Uneasy Relationship Between New Orleans and Its Most Famous Street**\
-`Bourbon Street is the lifeblood of the New Orleans tourist industry. But after an attack that killed 14, along with other recent violence, some people who work and live there wish for change.`\
-https://nytimes.com/2025/01/05/us/bourbon-street-attack-safety-tourism.html
 
