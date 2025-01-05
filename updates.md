@@ -1,3 +1,7 @@
+**Italy’s Prime Minister to Visit Trump in Mar-a-Lago**\
+`Giorgia Meloni, the Italian prime minister, will join just a handful of other world leaders who have visited the president-elect’s Florida estate since his victory.`\
+https://nytimes.com/2025/01/04/world/europe/italy-donald-trump-meloni-visit.html
+
 **Ravens' leading receiver Zay Flowers ruled out with knee injury vs. Browns**\
 `Since being drafted by the Ravens in the first round of 2023, Flowers leads all Ravens players in targets.`\
 https://nytimes.com/athletic/6037847/2025/01/04/ravens-zay-flowers-knee-injury/
