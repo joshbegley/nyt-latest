@@ -1,4 +1,12 @@
-**McLaurin's late TD propels Commanders win over Cowboys, No. 6 seed: Takeaways**\
+**Should Giants fire Brian Daboll and Joe Schoen? Bring both back? Breaking down every option**\
+`The Giants have gotten worse under this regime, but ownership doesn't want to start over again. What will John Mara and Steve Tisch do?`\
+https://nytimes.com/athletic/6037633/2025/01/05/giants-brian-daboll-joe-schoen-front-office-options/
+
+**Falcons miss playoffs, Bryce Young has career day in Panthers win: Takeaways**\
+`Atlanta will miss the postseason for the seventh consecutive year, while Young gave Carolina plenty to be optimistic about.`\
+https://nytimes.com/athletic/6038660/2025/01/05/panthers-falcons-score-result-takeaways/
+
+**McLaurin's late TD propels Commanders to win over Cowboys, No. 6 seed: Takeaways**\
 `Commanders cap off 12-win season with five-game winning streak heading into the postseason. `\
 https://nytimes.com/athletic/6038664/2025/01/05/commanders-cowboys-result-score-takeaways/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6039301/2025/01/05/frank-vatrano-contract-extension
 **Students Charged in ‘To Catch a Predator’ TikTok Scheme**\
 `Five students at Assumption University in Worcester, Mass., are accused of luring a man to campus, where he was chased by a group of about 25 people.`\
 https://nytimes.com/2025/01/05/us/assumption-university-students-catch-a-predator-tiktok.html
-
-**Titans land No. 1 pick in 2025 NFL Draft after Patriots' win in Week 18**\
-`The Browns and Giants will pick second and third, respectively. The Patriots will have the No. 4 selection.`\
-https://nytimes.com/athletic/6039227/2025/01/05/titans-no-1-pick-2025-draft/
-
-**Jimmy Carter’s Heart Was in Plains. But His Launchpad Was in Atlanta.**\
-`While his home was always in the small Georgia town, Atlanta gave him the opportunities to cement a political and humanitarian legacy.`\
-https://nytimes.com/2025/01/05/us/jimmy-carter-atlanta-georgia.html
 
