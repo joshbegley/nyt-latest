@@ -1,3 +1,7 @@
+**Richard Foreman, Iconoclastic Playwright and Impresario, Dies at 87**\
+`The Ontological-Hysteric Theater, which he founded in 1968, presented more than 50 of his plays, among them “My Head Was a Sledgehammer” and “Permanent Brain Damage.”`\
+https://nytimes.com/2025/01/04/theater/richard-foreman-dead.html
+
 **USA, Finland advance to World Juniors gold medal game**\
 `USA and Finland will meet on Sunday in the gold medal game. Czechia and Sweden will play for bronze.`\
 https://nytimes.com/athletic/6029869/2025/01/04/usa-finland-world-juniors-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-cit
 **Ed Foley out as Nebraska's special teams coordinator after 2 seasons of struggles**\
 `Matt Rhule said after the Dec. 28 Pinstripe Bowl victory over Boston College that the special teams needed a “complete and total overhaul."`\
 https://nytimes.com/athletic/6037967/2025/01/04/nebraska-special-teams-ed-foley-matt-rhule/
-
-**A Frigid First: Chile’s President Visits Antarctica to Bolster Claims**\
-`Chile’s president traveled to the South Pole, the first visit of any sitting Latin American president, according to his office.`\
-https://nytimes.com/2025/01/04/world/americas/chile-antarctica-boric-competition.html
 

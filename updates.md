@@ -1,3 +1,7 @@
+**Richard Foreman, Iconoclastic Playwright and Impresario, Dies at 87**\
+`The Ontological-Hysteric Theater, which he founded in 1968, presented more than 50 of his plays, among them “My Head Was a Sledgehammer” and “Permanent Brain Damage.”`\
+https://nytimes.com/2025/01/04/theater/richard-foreman-dead.html
+
 **Kawhi Leonard returns to court after missing season's first 34 games**\
 `The two-time NBA Finals MVP and two-time Defensive Player of the Year hasn't played in an NBA game since April.`\
 https://nytimes.com/athletic/6037870/2025/01/04/kawhi-leonard-clippers-return/
