@@ -1,3 +1,11 @@
+**NFL Week 18 fantasy football, betting cheat sheet: Amari Cooper out, Philly stars doubtful**\
+`Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
+https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-betting-cheat-sheet/
+
+**Godfrey completes loan move to Ipswich from Atalanta**\
+`Ipswich Town have completed the signing of Ben Godfrey on loan until the end of the season.`\
+https://nytimes.com/athletic/6035941/2025/01/05/ipswich-transfers-ben-godfrey/
+
 **Costas Simitis, 2-Time Prime Minister of Greece, Dies at 88**\
 `Mr. Simitis imposed financial measures to prepare for Greece’s entry into the eurozone and laid the groundwork for the Olympic Games’ return to Athens.`\
 https://nytimes.com/2025/01/05/world/europe/costas-simitis-dead.html
