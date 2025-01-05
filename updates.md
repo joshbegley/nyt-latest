@@ -1,3 +1,7 @@
+**Hailing a Car in Midtown Manhattan is Becoming More Expensive**\
+`Transportation officials want to reduce the number of taxis, Ubers and Lyfts that idle in heavy traffic. To do that, they will charge riders new fees.`\
+https://nytimes.com/2025/01/05/nyregion/congestion-pricing-uber-lyft.html
+
 **Blue Jackets Sunday Gathering: Luca Del Bel Belluz becoming a bona fide NHL prospect**\
 `In his second AHL season, the Blue Jackets' second-round pick (No. 44) in 2022 leads the league in scoring with 17-19-36 in 33 games.`\
 https://nytimes.com/athletic/6038557/2025/01/05/blue-jackets-nhl-prospect-del-bel-belluz/
