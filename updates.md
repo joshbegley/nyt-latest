@@ -1,3 +1,11 @@
+**Go deeper on the six films vying to win best picture in the musical or comedy category.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-musical-comedy
+
+**Go deeper on the dramas that were nominated for best motion picture.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-drama
+
 **Jerod Mayo firing was as much about his command off the field as the Patriots' play on it**\
 `Pats fans were rooting for him. But as verbal missteps continued, it became obvious Mayo lacked the proper amount of head-coach training.`\
 https://nytimes.com/athletic/6039200/2025/01/05/jerod-mayo-fired-patriots-column-failures/
