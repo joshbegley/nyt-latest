@@ -1,3 +1,7 @@
+**Why New York’s congestion pricing tolls started at midnight Sunday.**\
+`The program was eased into place in the middle of a weekend night in case of unexpected kinks.`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday
+
 **For Many of Us, Jan. 6 Never Ended**\
 `Donald Trump is promising to pardon Jan. 6 rioters. But we can’t let him rewrite history.`\
 https://nytimes.com/2025/01/05/opinion/jan-6-pardons.html
