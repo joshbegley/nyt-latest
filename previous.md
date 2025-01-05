@@ -1,3 +1,7 @@
+**Gauff beats Swiatek to help USA to United Cup title in Australia**\
+`Coco Gauff's reworked forehand helped her overcome Iga Swiatek in a match of at times extraordinary quality.`\
+https://nytimes.com/athletic/6038413/2025/01/05/gauff-swiatek-united-cup-usa-poland/
+
 **World Juniors Today: Previewing USA-Finland and Sweden-Czechia**\
 `It's the final day of the 2025 World Juniors in Ottawa. By day's end, we'll have a champion.`\
 https://nytimes.com/athletic/6029910/2025/01/05/world-juniors-2025-usa-finland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033728/2025/01/05/nfl-week-18-storylines-lions-vik
 **Jaguars at Colts: How to watch, odds, expert picks with Indianapolis as home favorite**\
 `Two AFC South teams completing disappointing seasons and facing uncertain futures meet when the Colts welcome the Jaguars. `\
 https://nytimes.com/athletic/6034663/2025/01/05/jaguars-colts-how-to-watch-odds-picks-betting/
-
-**Rosenthal: Orioles' tepid offseason makes them unlikely to unseat Yankees as AL favorites**\
-`Baltimore has only signed one player to a multiyear deal since Orioles GM Mike Elias took over in November 2018.`\
-https://nytimes.com/athletic/6037958/2025/01/05/orioles-offseason-spending-roki-sasaki-timeline/
 
