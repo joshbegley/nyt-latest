@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6037633/2025/01/05/giants-brian-daboll-joe-schoen-front-office-options/
 
 **Falcons miss playoffs, Bryce Young has career day in Panthers win: Takeaways**\
-`Young tied his career high with three passing touchdowns, and tied a team record with five touchdowns accounted for.`\
+`Atlanta will miss the postseason for the seventh consecutive year, while Young gave Carolina plenty to be optimistic about.`\
 https://nytimes.com/athletic/6038660/2025/01/05/panthers-falcons-score-result-takeaways/
 
 **McLaurin's late TD propels Commanders to win over Cowboys, No. 6 seed: Takeaways**\
