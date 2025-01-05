@@ -1,3 +1,15 @@
+**Bad Bunny on His ‘Most Puerto Rican’ Album Yet**\
+`In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
+https://nytimes.com/video/podcasts/100000009905944/bad-bunny-popcast.html
+
+**The Pulse: A great NFL MVP debate**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6038773/2025/01/05/nfl-mvp-jackson-allen-watch-guide-the-pulse/
+
+**Ukraine Launches Fresh Attack in Kursk Region of Western Russia**\
+`Ukrainian forces’ assault was in the Russian region where they made a surprise incursion last summer.`\
+https://nytimes.com/2025/01/05/world/europe/ukraine-attack-kursk-russia.html
+
 **Demi Moore, Nicole Kidman and Colman Domingo Party Before the Golden Globes**\
 `Celebrities packed into a suite at the Chateau Marmont in Los Angeles for the W Magazine party on Saturday night.`\
 https://nytimes.com/2025/01/05/fashion/w-magazine-golden-globes-party-photos.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/05/dining/easy-kale-pasta-recipe.html
 **Can BAM Be a Trailblazer Again Through A. I.?**\
 `The Brooklyn organization, seeking new audiences and pushing boundaries, debuts Techne, four digital installations from the Onassis Foundation’s ONX Studio.`\
 https://nytimes.com/2025/01/05/arts/design/brooklyn-academy-of-music-onassis-onyx-ai-computer.html
-
-**Bucks tired of losing to teams with poor records: 'We've gotta turn it around right now'**\
-`For the sixth time this season, the Bucks dropped a game to a sub-.500 team on Saturday, their fourth loss in the last five games. `\
-https://nytimes.com/athletic/6038529/2025/01/05/bucks-nba-giannis-lillard-losses/
-
-**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
-`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the overall title.`\
-https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
-
-**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
-`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
-https://nytimes.com/athletic/6037272/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
 
