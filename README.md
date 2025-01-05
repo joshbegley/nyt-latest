@@ -1,3 +1,7 @@
+**In About-Face, Musk Trashes Farage, U.K.’s Anti-Immigrant Populist**\
+`Elon Musk, the billionaire backer of Donald J. Trump, had been promoting Nigel Farage. But on Sunday Mr. Musk said Mr. Farage “doesn’t have what it takes.”`\
+https://nytimes.com/2025/01/05/world/europe/musk-criticizes-farage.html
+
 **Georgia QB Jaden Rashada entering transfer portal for second time: Source**\
 `Rashada played his freshman season at Arizona State before transferring to Georgia last spring. `\
 https://nytimes.com/athletic/6039017/2025/01/05/jaden-rashada-transfer-college-football-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/us/california-antioch-police-department-racism.ht
 **Bad Bunny on His ‘Most Puerto Rican’ Album Yet**\
 `In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
 https://nytimes.com/video/podcasts/100000009905944/bad-bunny-popcast.html
-
-**The Pulse: A great NFL MVP debate**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6038773/2025/01/05/nfl-mvp-jackson-allen-watch-guide-the-pulse/
 
