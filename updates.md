@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Matthew Knies dazzles in back-and-forth battle**\
+`Knies scored the first hat trick of his NHL career in a 6-4 win over Boston.`\
+https://nytimes.com/athletic/6037930/2025/01/04/maple-leafs-bruins-matthew-knies-grades/
+
 **Richard Foreman, Iconoclastic Playwright and Impresario, Dies at 87**\
 `The Ontological-Hysteric Theater, which he founded in 1968, presented more than 50 of his plays, among them “My Head Was a Sledgehammer” and “Permanent Brain Damage.”`\
 https://nytimes.com/2025/01/04/theater/richard-foreman-dead.html
