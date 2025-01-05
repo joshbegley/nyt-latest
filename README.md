@@ -1,3 +1,7 @@
+**How Kawhi Leonard's return felt at Intuit Dome, and how he resets the LA Clippers**\
+`Clippers staff and fans almost couldn't believe Kawhi was making his Intuit Dome debut, even as he operated like a role player.`\
+https://nytimes.com/athletic/6038382/2025/01/05/kawhi-leonard-return-intuit-dome-expectations-nba/
+
 **Eating Healthy**\
 `The science behind Well’s ultraprocessed foods challenge.`\
 https://nytimes.com/2025/01/05/briefing/healthy-eating-ultraprocessed-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/opinion/indigenous-people-land-acknowledgments.ht
 **Wordle Review No. 1,297**\
 `Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2025.`\
 https://nytimes.com/2025/01/05/crosswords/wordle-review-1297.html
-
-**Israel’s Military Pounds Gaza as Pressure Mounts for Cease-fire**\
-`Gaza’s health ministry said that 88 people had been killed over the past day. Israeli and Hamas officials have been holding indirect cease-fire talks via mediators in Qatar.`\
-https://nytimes.com/2025/01/05/world/middleeast/israels-military-pounds-gaza-as-pressure-mounts-for-cease-fire.html
 
