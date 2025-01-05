@@ -1,3 +1,11 @@
+**Eagles top Giants 20-13; Philly to host Green Bay in NFC wild card: Takeaways**\
+`The Eagles flexed their reserves in Sunday's win, as rookies Ainias Smith and  E.J. Jenkins both caught their first career TDs.`\
+https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takeaways/
+
+**Israel Conducts Raids in Syria Amid Accusations of Cease-Fire Violations**\
+`Four weeks after the fall of the Assad regime, Israel is pressing on with a military campaign on Syrian soil.`\
+https://nytimes.com/2025/01/05/world/middleeast/israel-raids-syria.html
+
 **Jerod Mayo firing was as much about his command off the field as the Patriots' play on it**\
 `Pats fans were rooting for him. But as verbal missteps continued, it became obvious Mayo lacked the proper amount of head-coach training.`\
 https://nytimes.com/athletic/6039200/2025/01/05/jerod-mayo-fired-patriots-column-failures/

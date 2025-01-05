@@ -1,7 +1,3 @@
-**Jerod Mayo firing was as much about his command off the field as the Patriots' play on it**\
-`Pats fans were rooting for him. But as verbal missteps continued, it became obvious Mayo lacked the proper amount of head-coach training.`\
-https://nytimes.com/athletic/6039200/2025/01/05/jerod-mayo-fired-patriots-column-failures/
-
 **Golden Globes Photos: See All the Looks From the Red Carpet**\
 `Stars have begun arriving for the 82nd Golden Globes, an awards season opener of sorts celebrating the biggest stars in film and television.`\
 https://nytimes.com/2025/01/05/style/golden-globes-red-carpet-2025-photos.html
@@ -22,7 +18,7 @@ https://nytimes.com/athletic/6037622/2025/01/05/patriots-head-coach-candidates-m
 `By Brooks Barnes`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/the-hollywood-foreign-press-association-is-gone-its-scandals-will-live-on
 
-**Eagles end regular season with 14 wins with victory over Giants: Takeaways**\
+**Eagles top Giants 20-13; Philly to host Green Bay in NFC wild card: Takeaways**\
 `The Eagles flexed their reserves in Sunday's win, as rookies Ainias Smith and  E.J. Jenkins both caught their first career TDs.`\
 https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takeaways/
 
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-how-to-watch-the-ce
 **The Globes have fixed old problems. But now there are new ones.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/the-globes-have-fixed-old-problems-but-now-there-are-new-ones
+
+**Israel Conducts Raids in Syria Amid Accusations of Cease-Fire Violations**\
+`Four weeks after the fall of the Assad regime, Israel is pressing on with a military campaign on Syrian soil.`\
+https://nytimes.com/2025/01/05/world/middleeast/israel-raids-syria.html
 
