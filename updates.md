@@ -1,3 +1,7 @@
+**Alexander-Arnold not affected by Real Madrid talk, says Slot**\
+`Arne Slot insists speculation over Trent Alexander-Arnold’s future did not impact his performance against Manchester United.`\
+https://nytimes.com/athletic/6039170/2025/01/05/liverpool-alexander-arnold-slot/
+
 **N.Y. Judge’s Ruling Shows How Legal Issues Will Follow Trump Into Office**\
 `Donald Trump may not face a penalty for his conviction in the hush money case, but he could still be the first felon to be president — and civil proceedings against him continue.`\
 https://nytimes.com/2025/01/05/us/politics/new-york-case-trump-merchan-inauguration.html

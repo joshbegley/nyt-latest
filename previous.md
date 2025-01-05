@@ -1,3 +1,7 @@
+**Alexander-Arnold not affected by Real Madrid talk, says Slot**\
+`Arne Slot insists speculation over Trent Alexander-Arnold’s future did not impact his performance against Manchester United.`\
+https://nytimes.com/athletic/6039170/2025/01/05/liverpool-alexander-arnold-slot/
+
 **N.Y. Judge’s Ruling Shows How Legal Issues Will Follow Trump Into Office**\
 `Donald Trump may not face a penalty for his conviction in the hush money case, but he could still be the first felon to be president — and civil proceedings against him continue.`\
 https://nytimes.com/2025/01/05/us/politics/new-york-case-trump-merchan-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033290/2025/01/05/liverpool-manchester-united-amor
 **Blue Jackets Sunday Gathering: Luca Del Bel Belluz becoming a bona fide NHL prospect**\
 `In his second AHL season, the Blue Jackets' second-round pick (No. 44) in 2022 leads the league in scoring with 17-19-36 in 33 games.`\
 https://nytimes.com/athletic/6038557/2025/01/05/blue-jackets-nhl-prospect-del-bel-belluz/
-
-**Jimenez becomes highest-scoring Mexican in Premier League history**\
-`Fulham head coach Marco Silva hailed Raul Jimenez’s “incredible achievement” after the striker became Mexico’s highest-scoring Premier League footballer with 55 goals.`\
-https://nytimes.com/athletic/6038873/2025/01/05/raul-jimenez-mexico-premier-league-goals/
 
