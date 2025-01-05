@@ -1,3 +1,11 @@
+**N.Y. Judge’s Ruling Shows How Legal Issues Will Follow Trump Into Office**\
+`Donald Trump may not face a penalty for his conviction in the hush money case, but he could still be the first felon to be president — and civil proceedings against him continue.`\
+https://nytimes.com/2025/01/05/us/politics/new-york-case-trump-merchan-inauguration.html
+
+**Tottenham are in limbo, but sacking Postecoglou now would render them Eighteen Months FC**\
+`The Australian will become Spurs' longest-serving manager of the post-Mauricio Pochettino era next week, but how long can this go on?`\
+https://nytimes.com/athletic/6033724/2025/01/05/tottenham-postecoglou-mourinho-conte-pochettino/
+
 **Packers' Jordan Love exits vs. Bears with right elbow injury**\
 `Love and Watson are questionable to return after getting injured on the same series.`\
 https://nytimes.com/athletic/6039089/2025/01/05/jordan-love-elbow-injury-packers-bears/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6038557/2025/01/05/blue-jackets-nhl-prospect-del-be
 **Jimenez becomes highest-scoring Mexican in Premier League history**\
 `Fulham head coach Marco Silva hailed Raul Jimenez’s “incredible achievement” after the striker became Mexico’s highest-scoring Premier League footballer with 55 goals.`\
 https://nytimes.com/athletic/6038873/2025/01/05/raul-jimenez-mexico-premier-league-goals/
-
-**Hailing a Car in Midtown Manhattan is Becoming More Expensive**\
-`Transportation officials want to reduce the number of taxis, Ubers and Lyfts that idle in heavy traffic. To do that, they will charge riders new fees.`\
-https://nytimes.com/2025/01/05/nyregion/congestion-pricing-uber-lyft.html
-
-**California Police Department Agrees to Reforms After Federal Inquiry**\
-`The Antioch Police Department was under investigation by the Justice Department after racist text messages between its officers were released in 2023.`\
-https://nytimes.com/2025/01/05/us/california-antioch-police-department-racism.html
 
