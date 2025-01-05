@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi
 `\
 https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
 
+**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
+`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
+`\
+https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
+
 **Hong Kong’s Cabbies, Long Scorned and Frustrated, Face the End of an Era**\
 `A government push to modernize taxi services comes up against the habits of drivers known for driving fast and accepting only cash.`\
 https://nytimes.com/2025/01/05/world/asia/hong-kong-taxicabs.html
