@@ -1,3 +1,11 @@
+**Ravens take AFC North with win over Browns, but celebration is muted by what's next**\
+`Baltimore checked off its first goal of winning the division, but its season was always going to be judged by what happens in the playoffs.`\
+https://nytimes.com/athletic/6038144/2025/01/05/ravens-win-afc-north-browns/
+
+**Liverpool vs Man Utd: The mood, rivalry, tactics - and our experts' predictions**\
+`How does each club really feel about the other - and how can struggling United pull off a shock at Anfield on Sunday? `\
+https://nytimes.com/athletic/6035519/2025/01/05/liverpool-manchester-united-premier-league-prediction/
+
 **A breath of fresh air? Why so many Americans are investing in English football clubs**\
 `The Athletic visited U.S.-owned clubs around the country to find out...`\
 https://nytimes.com/athletic/6004266/2025/01/05/american-owner-investment-efl/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/01/05/world/asia/hong-kong-taxicabs.html
 **Jeju Air’s Problems Mount After Crash That Killed 179 People**\
 `South Korea’s leading low-cost carrier, heavy with debt and its stock already near record lows, is now facing intense public and government scrutiny.`\
 https://nytimes.com/2025/01/05/business/jeju-air-south-korea-crash.html
-
-**Congestion Pricing Has Begun in New York City. Here’s How It Works.**\
-`The tolling program, the first of its kind in the nation, will charge most drivers who enter Manhattan south of 60th Street during peak hours a $9 fee.`\
-https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-tolls.html
-
-**Liverpool vs Manchester United: Storylines, odds, prediction as Reds look to maintain lead**\
-`Liverpool host Manchester United in one of the biggest derbies in the Premier League. Has it lost luster with United so far down the table?`\
-https://nytimes.com/athletic/6033989/2025/01/05/liverpool-manchester-united-preview-odds-prediction/
 
