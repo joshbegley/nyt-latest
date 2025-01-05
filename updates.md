@@ -1,3 +1,23 @@
+**‘A Day of Love’: How Trump Inverted the Violent History of Jan. 6**\
+`The president-elect and his allies have spent four years reinventing the Capitol attack — spreading conspiracy theories and weaving a tale of martyrdom to their ultimate political gain.`\
+https://nytimes.com/2025/01/05/us/politics/january-6-capitol-riot-trump.html
+
+**Potent Storm Blasts Parts of U.S. With Sleet, Snow and Freezing Rain**\
+`“Brutally cold” air is expected to settle in behind the storm that will affect a dozen states, from eastern Colorado to Maryland.`\
+https://nytimes.com/2025/01/05/weather/winter-storm-forecast-snow-ice.html
+
+**The First Day of Panama’s Canal**\
+`Recalling the day in 1999 when former President Jimmy Carter completed a historic handoff.`\
+https://nytimes.com/2025/01/05/reader-center/the-first-day-of-panamas-canal.html
+
+**‘I’ve Been to All the Popular Tourist Sites at Least Once’**\
+`Taking pictures of standpipes, a dancer on the subway in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/01/05/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/05/crosswords/spelling-bee-forum.html
+
 **Warriors beat Grizzlies but lose Jonathan Kuminga to 'significant' ankle sprain**\
 `“It’s not going to be a day-to-day thing,” Steve Kerr said. “It was a significant sprain.”`\
 https://nytimes.com/athletic/6038131/2025/01/05/warriors-grizzlies-jonathan-kuminga-ankle-sprain/
