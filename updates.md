@@ -73,6 +73,11 @@ https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi
 `\
 https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
 
+**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
+`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
+`\
+https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
+
 **Dmitri Voronkov scores twice, Blue Jackets survive wild third for bounce-back win**\
 `Voronkov continued his torrid scoring pace to help the Blue Jackets to a 6-4 win over the Blues.`\
 https://nytimes.com/athletic/6038077/2025/01/05/dmitri-voronkov-blue-jackets-win/
