@@ -1,3 +1,7 @@
+**Should TV Ads for Drugs Be Banned?**\
+`Readers discuss a proposal by some Trump allies. Also: The abuses inside prisons; stories of miracles.`\
+https://nytimes.com/2025/01/05/opinion/tv-ads-for-drugs.html
+
 **Congestion pricing is a New York idea.**\
 `A Columbia University economist, William Vickrey, proposed charging varying tolls for roads and subways in the 1950s.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/congestion-pricing-is-a-new-york-idea
