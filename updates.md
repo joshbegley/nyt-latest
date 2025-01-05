@@ -1,3 +1,7 @@
+**Monday Briefing: How Trump Re-Wrote Jan. 6**\
+`Plus, the end of an era for Hong Kong’s cabbies`\
+https://nytimes.com/2025/01/05/briefing/trump-jan6-russia-syria.html
+
 **Driver in Ramming Attack Made Trips to New Orleans and Abroad**\
 `Shamsud-Din Jabbar visited New Orleans twice, and traveled to Egypt and Canada, before a burst of violence early on New Year’s Day that killed 14 people.`\
 https://nytimes.com/2025/01/05/us/new-orleans-attack-travel.html

@@ -1,3 +1,7 @@
+**Monday Briefing: How Trump Re-Wrote Jan. 6**\
+`Plus, the end of an era for Hong Kong’s cabbies`\
+https://nytimes.com/2025/01/05/briefing/trump-jan6-russia-syria.html
+
 **Driver in Ramming Attack Made Trips to New Orleans and Abroad**\
 `Shamsud-Din Jabbar visited New Orleans twice, and traveled to Egypt and Canada, before a burst of violence early on New Year’s Day that killed 14 people.`\
 https://nytimes.com/2025/01/05/us/new-orleans-attack-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6038980/2025/01/05/antonee-robinson-usmnt-player-of
 **The Uneasy Relationship Between New Orleans and Its Most Famous Street**\
 `Bourbon Street is the lifeblood of the New Orleans tourist industry. But after an attack that killed 14, along with other recent violence, some people who work and live there wish for change.`\
 https://nytimes.com/2025/01/05/us/bourbon-street-attack-safety-tourism.html
-
-**The Briefing: Liverpool 2 Manchester United 2 - Something for everyone in incredible rollercoaster game at Anfield**\
-`Our writers break down the action from a four-goal thriller at Anfield`\
-https://nytimes.com/athletic/6033290/2025/01/05/liverpool-manchester-united-amorim-slot/
 
