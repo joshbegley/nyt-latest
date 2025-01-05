@@ -1,3 +1,7 @@
+**Patriots fire Jerod Mayo after one season, expected to pursue Mike Vrabel**\
+`Bill Belichick's successor becomes the first one-and-done coach under Robert Kraft's ownership. The team is expected to target Vrabel.`\
+https://nytimes.com/athletic/5990877/2025/01/05/patriots-jerod-mayo-fired-mike-vrabel/
+
 **Should Giants fire Brian Daboll and Joe Schoen? Bring both back? Breaking down every option**\
 `The Giants have gotten worse under this regime, but ownership doesn't want to start over again. What will John Mara and Steve Tisch do?`\
 https://nytimes.com/athletic/6037633/2025/01/05/giants-brian-daboll-joe-schoen-front-office-options/

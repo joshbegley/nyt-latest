@@ -1,3 +1,7 @@
+**Patriots fire Jerod Mayo after one season, expected to pursue Mike Vrabel**\
+`Bill Belichick's successor becomes the first one-and-done coach under Robert Kraft's ownership. The team is expected to target Vrabel.`\
+https://nytimes.com/athletic/5990877/2025/01/05/patriots-jerod-mayo-fired-mike-vrabel/
+
 **Should Giants fire Brian Daboll and Joe Schoen? Bring both back? Breaking down every option**\
 `The Giants have gotten worse under this regime, but ownership doesn't want to start over again. What will John Mara and Steve Tisch do?`\
 https://nytimes.com/athletic/6037633/2025/01/05/giants-brian-daboll-joe-schoen-front-office-options/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/world/europe/austria-coalition-talks-collapse-far
 **Ducks sign Frank Vatrano to 3-year extension worth $18 million**\
 `Vatrano ranks second on the Ducks in goals with nine and third in points with 20 after getting his first All-Star selection last season.`\
 https://nytimes.com/athletic/6039301/2025/01/05/frank-vatrano-contract-extension-ducks/
-
-**Students Charged in ‘To Catch a Predator’ TikTok Scheme**\
-`Five students at Assumption University in Worcester, Mass., are accused of luring a man to campus, where he was chased by a group of about 25 people.`\
-https://nytimes.com/2025/01/05/us/assumption-university-students-catch-a-predator-tiktok.html
 
