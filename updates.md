@@ -1,3 +1,7 @@
+**Netflix's WWE investment and the future of live events on the platform: 'We're learning as we go'**\
+`Netflix has bought the rights to WWE's flagship TV show, Raw, for the next 10 years`\
+https://nytimes.com/athletic/6035603/2025/01/05/netflix-wwe-raw-interview/
+
 **It’s a ‘Succession’ reunion (kind of).**\
 `By Stephanie Goodman`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/its-a-succession-reunion-kind-of

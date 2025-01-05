@@ -1,3 +1,7 @@
+**Netflix's WWE investment and the future of live events on the platform: 'We're learning as we go'**\
+`Netflix has bought the rights to WWE's flagship TV show, Raw, for the next 10 years`\
+https://nytimes.com/athletic/6035603/2025/01/05/netflix-wwe-raw-interview/
+
 **It’s a ‘Succession’ reunion (kind of).**\
 `By Stephanie Goodman`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/its-a-succession-reunion-kind-of
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/05/arts/golden-globes/the-golden-globe-swag-bag
 **Recovered From a Fall**\
 `Rena Cohen’s crossword is best solved in pencil.`\
 https://nytimes.com/2025/01/05/crosswords/daily-puzzle-2025-01-06.html
-
-**Mike Vrabel, Brian Flores and the top candidates to be the Patriots’ next head coach**\
-`Vrabel may be the top candidate, but here are some of the other options the Patriots are likely to consider after parting with Mayo.`\
-https://nytimes.com/athletic/6037622/2025/01/05/patriots-head-coach-candidates-mike-vrabel-brian-flores/
 
