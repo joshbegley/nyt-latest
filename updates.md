@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi
 `\
 https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
 
+**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
+`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
+`\
+https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
+
 **A breath of fresh air? Why so many Americans are investing in English football clubs**\
 `The Athletic visited U.S.-owned clubs around the country to find out...`\
 https://nytimes.com/athletic/6004266/2025/01/05/american-owner-investment-efl/
