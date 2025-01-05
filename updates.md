@@ -1,3 +1,7 @@
+**It's soul searching time for the Falcons as their playoff drive ends with a thud**\
+`The Falcons lost six of their final eight games to miss the playoffs for the seventh straight season. `\
+https://nytimes.com/athletic/6039728/2025/01/05/falcons-miss-playoffs-panthers/
+
 **Netflix's WWE investment and the future of live events on the platform: 'We're learning as we go'**\
 `Netflix has bought the rights to WWE's flagship TV show, Raw, for the next 10 years`\
 https://nytimes.com/athletic/6035603/2025/01/05/netflix-wwe-raw-interview/
