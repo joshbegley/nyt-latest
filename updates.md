@@ -1,3 +1,7 @@
+**Eating Healthy**\
+`The science behind Well’s ultraprocessed foods challenge.`\
+https://nytimes.com/2025/01/05/briefing/healthy-eating-ultraprocessed-food.html
+
 **Lowetide: Why the Oilers' AHL team has been a curious procurement experiment**\
 `Each Edmonton general manager involved had a different strategy, and some seasons worked out better than others.`\
 https://nytimes.com/athletic/6037283/2025/01/05/edmonton-oilers-ahl-team-2025/
