@@ -1,3 +1,11 @@
+**Hailing a car in Midtown Manhattan is becoming more expensive.**\
+`Transportation officials want to reduce the number of taxis, Ubers and Lyfts that idle in heavy traffic. To do that, they will charge riders new fees.`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/hailing-a-car-in-midtown-manhattan-is-becoming-more-expensive
+
+**NFL Week 18 fantasy football, betting cheat sheet: Eagles stars ruled out**\
+`Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
+https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-betting-cheat-sheet/
+
 **California Police Department Agrees to Reforms After Federal Inquiry**\
 `The Antioch Police Department was under investigation by the Justice Department after racist text messages between its officers were released in 2023.`\
 https://nytimes.com/2025/01/05/us/california-antioch-police-department-racism.html
