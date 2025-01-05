@@ -1,3 +1,11 @@
+**Companies could pass on the cost of congestion pricing tolls to consumers.**\
+`Trucks entering the congestion pricing zone will pay up to $21.60, with no cap on the number of tolls per day.`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/companies-could-pass-on-the-cost-of-congestion-pricing-tolls-to-consumers
+
+**Why New York’s Congestion Pricing Tolls Started at Midnight Sunday**\
+`The program was eased into place in the middle of a weekend night in case of unexpected kinks.`\
+https://nytimes.com/2025/01/05/nyregion/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday.html
+
 **Amazon adds Dirk Nowitzki, Blake Griffin to NBA studio coverage**\
 `Griffin and Nowitzki will join host Taylor Rooks when Amazon begins its NBA package in the 2025-26 season.`\
 https://nytimes.com/athletic/6038635/2025/01/05/amazon-nba-coverage-blake-griffin-dirk-nowitzki/
