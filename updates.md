@@ -1,3 +1,7 @@
+**A Frigid First: Chile’s President Visits Antarctica to Bolster Claims**\
+`Chile’s president traveled to the South Pole, the first visit of any sitting Latin American president, according to his office.`\
+https://nytimes.com/2025/01/04/world/americas/chile-antarctica-boric-competition.html
+
 **Italy’s Prime Minister to Visit Trump in Mar-a-Lago**\
 `Giorgia Meloni, the Italian prime minister, will join just a handful of other world leaders who have visited the president-elect’s Florida estate since his victory.`\
 https://nytimes.com/2025/01/04/world/europe/italy-donald-trump-meloni-visit.html
