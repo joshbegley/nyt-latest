@@ -1,3 +1,7 @@
+**Jerod Mayo firing was as much about his command off the field as the Patriots' play on it**\
+`Pats fans were rooting for him. But as verbal missteps continued, it became obvious Mayo lacked the proper amount of head-coach training.`\
+https://nytimes.com/athletic/6039200/2025/01/05/jerod-mayo-fired-patriots-column-failures/
+
 **Golden Globes Live Updates: Red Carpet Begins as Stars Head to Ceremony**\
 `The event, which honors work in both film and television, will begin at 8 p.m. Eastern time, 5 p.m. Pacific time, at the Beverly Hilton in Beverly Hills, Calif.`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes
