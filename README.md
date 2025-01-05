@@ -1,3 +1,19 @@
+**It’s a ‘Succession’ reunion (kind of).**\
+`By Stephanie Goodman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/its-a-succession-reunion-kind-of
+
+**Jerod Mayo becomes the latest one-and-done NFL head coach after Patriots firing**\
+`Mayo is the 13th head coach in 14 years to be fired after just one season in charge.`\
+https://nytimes.com/athletic/6034286/2025/01/05/jerod-mayo-one-and-done-nfl-head-coach-firings/
+
+**Where have you gone, Andrew Shaw? Lifeless Blackhawks in dire need of a sparkplug**\
+`In Colton Dach's debut, he played with energy and determination despite lack of NHL experience. The Blackhawks need more of that attitude.`\
+https://nytimes.com/athletic/6039745/2025/01/05/blackhawks-sparkplug-energy-rangers/
+
+**Go deeper on the six films vying to win best picture in the musical or comedy category.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-musical-comedy
+
 **Go deeper on the dramas that were nominated for best motion picture.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-drama
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/05/crosswords/daily-puzzle-2025-01-06.html
 **Mike Vrabel, Brian Flores and the top candidates to be the Patriots’ next head coach**\
 `Vrabel may be the top candidate, but here are some of the other options the Patriots are likely to consider after parting with Mayo.`\
 https://nytimes.com/athletic/6037622/2025/01/05/patriots-head-coach-candidates-mike-vrabel-brian-flores/
-
-**The Hollywood Foreign Press Association is gone. Its scandals will live on.**\
-`By Brooks Barnes`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/the-hollywood-foreign-press-association-is-gone-its-scandals-will-live-on
-
-**Eagles top Giants 20-13; Philly to host Green Bay in NFC wild card: Takeaways**\
-`The Eagles flexed their reserves in Sunday's win, as rookies Ainias Smith and  E.J. Jenkins both caught their first career TDs.`\
-https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takeaways/
-
-**Golden Globes Live Updates: Red Carpet Begins as Stars Head to Ceremony**\
-`The event, which honors work in both film and television, will begin at 8 p.m. Eastern time, 5 p.m. Pacific time, at the Beverly Hilton in Beverly Hills, Calif.`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes
-
-**Here’s how to watch the red carpet and the ceremony.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-how-to-watch-the-ceremony-and-the-red-carpet
 
