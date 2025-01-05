@@ -1,3 +1,7 @@
+**Go deeper on the dramas that were nominated for best motion picture.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-drama
+
 **Jerod Mayo firing was as much about his command off the field as the Patriots' play on it**\
 `Pats fans were rooting for him. But as verbal missteps continued, it became obvious Mayo lacked the proper amount of head-coach training.`\
 https://nytimes.com/athletic/6039200/2025/01/05/jerod-mayo-fired-patriots-column-failures/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takea
 `The event, which honors work in both film and television, will begin at 8 p.m. Eastern time, 5 p.m. Pacific time, at the Beverly Hilton in Beverly Hills, Calif.`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes
 
-**Here’s how to watch the ceremony and the red carpet.**\
+**Here’s how to watch the red carpet and the ceremony.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-how-to-watch-the-ceremony-and-the-red-carpet
-
-**The Globes have fixed old problems. But now there are new ones.**\
-`By Brooks Barnes`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/the-globes-have-fixed-old-problems-but-now-there-are-new-ones
 
