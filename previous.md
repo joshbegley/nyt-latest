@@ -1,3 +1,7 @@
+**Titans land No. 1 pick in 2025 NFL Draft after Patriots' win in Week 18**\
+`The Browns and Giants will pick second and third, respectively. The Patriots will have the No. 4 selection.`\
+https://nytimes.com/athletic/6039227/2025/01/05/titans-no-1-pick-2025-draft/
+
 **Jimmy Carter’s Heart Was in Plains. But His Launchpad Was in Atlanta.**\
 `While his home was always in the small Georgia town, Atlanta gave him the opportunities to cement a political and humanitarian legacy.`\
 https://nytimes.com/2025/01/05/us/jimmy-carter-atlanta-georgia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6039089/2025/01/05/jordan-love-elbow-injury-packers
 **In About-Face, Musk Trashes Farage, U.K.’s Anti-Immigrant Populist**\
 `Elon Musk, the billionaire backer of Donald J. Trump, had been promoting Nigel Farage. But on Sunday Mr. Musk said Mr. Farage “doesn’t have what it takes.”`\
 https://nytimes.com/2025/01/05/world/europe/musk-farage-starmer-uk.html
-
-**Georgia QB Jaden Rashada entering transfer portal for second time: Source**\
-`Rashada played his freshman season at Arizona State before transferring to Georgia last spring. `\
-https://nytimes.com/athletic/6039017/2025/01/05/jaden-rashada-transfer-college-football-georgia/
 

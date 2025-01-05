@@ -1,3 +1,7 @@
+**Titans land No. 1 pick in 2025 NFL Draft after Patriots' win in Week 18**\
+`The Browns and Giants will pick second and third, respectively. The Patriots will have the No. 4 selection.`\
+https://nytimes.com/athletic/6039227/2025/01/05/titans-no-1-pick-2025-draft/
+
 **Jimmy Carter’s Heart Was in Plains. But His Launchpad Was in Atlanta.**\
 `While his home was always in the small Georgia town, Atlanta gave him the opportunities to cement a political and humanitarian legacy.`\
 https://nytimes.com/2025/01/05/us/jimmy-carter-atlanta-georgia.html
