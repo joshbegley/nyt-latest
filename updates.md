@@ -1,3 +1,7 @@
+**Jimenez becomes highest-scoring Mexican in Premier League history**\
+`Fulham head coach Marco Silva hailed Raul Jimenez’s “incredible achievement” after the striker became Mexico’s highest-scoring Premier League footballer with 55 goals.`\
+https://nytimes.com/athletic/6038873/2025/01/05/raul-jimenez-mexico-premier-league-goals/
+
 **Hailing a car in Midtown Manhattan is becoming more expensive.**\
 `Transportation officials want to reduce the number of taxis, Ubers and Lyfts that idle in heavy traffic. To do that, they will charge riders new fees.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/hailing-a-car-in-midtown-manhattan-is-becoming-more-expensive
