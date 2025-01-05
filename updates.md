@@ -1,3 +1,7 @@
+**Students Charged in ‘To Catch a Predator’ TikTok Scheme**\
+`Five students at Assumption University in Worcester, Mass., are accused of luring a man to campus, where he was chased by a group of about 25 people.`\
+https://nytimes.com/2025/01/05/us/assumption-university-students-catch-a-predator-tiktok.html
+
 **Titans land No. 1 pick in 2025 NFL Draft after Patriots' win in Week 18**\
 `The Browns and Giants will pick second and third, respectively. The Patriots will have the No. 4 selection.`\
 https://nytimes.com/athletic/6039227/2025/01/05/titans-no-1-pick-2025-draft/
