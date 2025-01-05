@@ -1,3 +1,11 @@
+**Scammers could cheat their way out of congestion pricing tolls.**\
+`The Metrop`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/scammers-could-cheat-their-way-out-of-congestion-pricing-tolls
+
+**This Might Just Be the Best Way to Eat Kale**\
+`Kale sauce pasta, a recipe I adapted from the chef Joshua McFadden, is still one of my most favorite things to cook.`\
+https://nytimes.com/2025/01/05/dining/easy-kale-pasta-recipe.html
+
 **Can BAM Be a Trailblazer Again Through A. I.?**\
 `The Brooklyn organization, seeking new audiences and pushing boundaries, debuts Techne, four digital installations from the Onassis Foundation’s ONX Studio.`\
 https://nytimes.com/2025/01/05/arts/design/brooklyn-academy-of-music-onassis-onyx-ai-computer.html
