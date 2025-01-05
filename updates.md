@@ -1,3 +1,7 @@
+**In About-Face, Musk Trashes Farage, U.K.’s Anti-Immigrant Populist**\
+`Elon Musk, the billionaire backer of Donald J. Trump, had been promoting Nigel Farage. But on Sunday Mr. Musk said Mr. Farage “doesn’t have what it takes.”`\
+https://nytimes.com/2025/01/05/world/europe/musk-farage-starmer-uk.html
+
 **The Briefing: Liverpool 2 Manchester United 2 - Something for everyone in incredible rollercoaster game at Anfield**\
 `Our writers break down the action from a four-goal thriller at Anfield`\
 https://nytimes.com/athletic/6033290/2025/01/05/liverpool-manchester-united-amorim-slot/

@@ -1,6 +1,6 @@
 **In About-Face, Musk Trashes Farage, U.K.’s Anti-Immigrant Populist**\
 `Elon Musk, the billionaire backer of Donald J. Trump, had been promoting Nigel Farage. But on Sunday Mr. Musk said Mr. Farage “doesn’t have what it takes.”`\
-https://nytimes.com/2025/01/05/world/europe/musk-criticizes-farage.html
+https://nytimes.com/2025/01/05/world/europe/musk-farage-starmer-uk.html
 
 **Georgia QB Jaden Rashada entering transfer portal for second time: Source**\
 `Rashada played his freshman season at Arizona State before transferring to Georgia last spring. `\
