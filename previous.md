@@ -1,4 +1,4 @@
-**It's soul searching time for the Falcons as their playoff drive ends with a thud**\
+**It's soul-searching time for the Falcons as their playoff drive ends with a thud**\
 `The Falcons lost six of their final eight games to miss the playoffs for the seventh straight season. `\
 https://nytimes.com/athletic/6039728/2025/01/05/falcons-miss-playoffs-panthers/
 
