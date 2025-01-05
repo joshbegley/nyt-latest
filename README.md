@@ -1,3 +1,11 @@
+**Browns fire OC Dorsey, OL coach Dickerson after 1 season in Cleveland**\
+`Cleveland’s’ offense floundered in 2024, leading the unit to finishing last in the league in numerous categories.`\
+https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dickerson/
+
+**Why New York’s congestion pricing tolls started at midnight Sunday.**\
+`The program was eased into place in the middle of a weekend night in case of unexpected kinks.`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday
+
 **Live Updates: Congestion Pricing Begins After Long Delay**\
 `The New York City tolling plan, the first of its kind in the country, finally debuts after being halted just weeks before its original start date last summer.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6038413/2025/01/05/gauff-swiatek-united-cup-usa-pol
 **World Juniors Today: Previewing USA-Finland and Sweden-Czechia**\
 `It's the final day of the 2025 World Juniors in Ottawa. By day's end, we'll have a champion.`\
 https://nytimes.com/athletic/6029910/2025/01/05/world-juniors-2025-usa-finland/
-
-**For Many of Us, Jan. 6 Never Ended**\
-`Donald Trump is promising to pardon Jan. 6 rioters. But we can’t let him rewrite history.`\
-https://nytimes.com/2025/01/05/opinion/jan-6-pardons.html
-
-**The Connections Companion No. 575**\
-`Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2024.`\
-https://nytimes.com/2025/01/05/crosswords/connections-companion-575.html
 
