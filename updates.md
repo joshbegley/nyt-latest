@@ -1,3 +1,7 @@
+**Ravens beat Browns 35-10 to clinch AFC North, Jackson makes history: Takeaways**\
+`Jackson became the first quarterback in NFL history to surpass 4,000 passing yards and 800 rushing yards in a season.`\
+https://nytimes.com/athletic/6037947/2025/01/04/browns-ravens-score-result-takeaways/
+
 **Chiefs depart for Denver after multi-hour delay on tarmac due to ice**\
 `The Chiefs' chartered jet was the first flight out of the airport once operations resumed, per the source.`\
 https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-city-international-airport/
