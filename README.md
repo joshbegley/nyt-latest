@@ -1,3 +1,7 @@
+**A Browns season filled with disappointment finally comes to an end**\
+`After falling to the AFC North division-winning Ravens, Cleveland finishes 3-14 and now enters an offseason full of uncertainty.  `\
+https://nytimes.com/athletic/6038067/2025/01/04/browns-season-finale-loss-ravens/
+
 **Maple Leafs report cards: Matthew Knies dazzles in back-and-forth battle**\
 `Knies scored the first hat trick of his NHL career in a 6-4 win over Boston.`\
 https://nytimes.com/athletic/6037930/2025/01/04/maple-leafs-bruins-matthew-knies-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/us/olympian-arrested-miami-beach.html
 **Ravens beat Browns 35-10 to clinch AFC North, Jackson makes history: Takeaways**\
 `Jackson became the first quarterback in NFL history to surpass 4,000 passing yards and 800 rushing yards in a season.`\
 https://nytimes.com/athletic/6037947/2025/01/04/browns-ravens-score-result-takeaways/
-
-**Chiefs arrive in Denver after multi-hour delay on tarmac due to ice**\
-`The Chiefs' chartered jet was the first flight out of the airport once operations resumed, per the source.`\
-https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-city-international-airport/
 
