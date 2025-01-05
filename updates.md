@@ -1,3 +1,7 @@
+**Tottenham confirm signing of goalkeeper Kinsky**\
+`Tottenham Hotspur have confirmed the signing of goalkeeper Antonin Kinsky from Slavia Prague.`\
+https://nytimes.com/athletic/6037110/2025/01/05/antonin-kinsky-transfer-tottenham/
+
 **UD Barbastro 0-4 Barcelona: A distraction from off-field chaos, Araujo's contract and two debuts**\
 `Barcelona avoided a Copa del Rey slip-up against fourth-tier opposition to ease some of the pressure weighing down on them`\
 https://nytimes.com/athletic/6038129/2025/01/05/barcelona-barbastro-olmo-victor-araujo/
