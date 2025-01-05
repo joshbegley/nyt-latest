@@ -6,9 +6,9 @@ https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-bet
 `Ipswich Town have completed the signing of Ben Godfrey on loan until the end of the season.`\
 https://nytimes.com/athletic/6035941/2025/01/05/ipswich-transfers-ben-godfrey/
 
-**Scammers could cheat their way out of congestion pricing tolls.**\
-`The Metrop`\
-https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/scammers-could-cheat-their-way-out-of-congestion-pricing-tolls
+**Scammers Could Cheat New York’s New Congestion Pricing Tolls**\
+`Drivers who obscure their plates or otherwise circumvent paying tolls already cost the city’s mass transit system millions of dollars.`\
+https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-ghost-cars-scams.html
 
 **This Might Just Be the Best Way to Eat Kale**\
 `Kale sauce pasta, a recipe I adapted from the chef Joshua McFadden, is still one of my most favorite things to cook.`\

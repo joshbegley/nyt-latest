@@ -1,3 +1,7 @@
+**Scammers Could Cheat New York’s New Congestion Pricing Tolls**\
+`Drivers who obscure their plates or otherwise circumvent paying tolls already cost the city’s mass transit system millions of dollars.`\
+https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-ghost-cars-scams.html
+
 **American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
 `Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the overall title.`\
 https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
