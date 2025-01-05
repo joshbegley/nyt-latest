@@ -1,3 +1,7 @@
+**Corrections: Jan. 5, 2025**\
+`Corrections that appeared in print on Sunday, Jan. 5, 2025.`\
+https://nytimes.com/2025/01/04/pageoneplus/corrections-jan-5-2025.html
+
 **No. 5 Alabama trounces No. 12 Oklahoma in SEC opener: Key takeaways**\
 `SEC Preseason Player of the Year Mark Sears was his normal self, scoring 22 points with 10 assists and most impressively: zero turnovers.`\
 https://nytimes.com/athletic/6037994/2025/01/04/alabama-oklahoma-ncaa-basketball-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/world/europe/italy-donald-trump-meloni-visit.html
 **Ravens' leading receiver Zay Flowers ruled out with knee injury vs. Browns**\
 `Since being drafted by the Ravens in the first round of 2023, Flowers leads all Ravens players in targets.`\
 https://nytimes.com/athletic/6037847/2025/01/04/ravens-zay-flowers-knee-injury/
-
-**Jimmy Carter’s Funeral Events Begin in Georgia**\
-`A motorcade carrying the remains of Jimmy Carter passed through the former president’s hometown and the Georgia State Capitol before ending at the Carter Center for a memorial service.`\
-https://nytimes.com/video/us/100000009908238/jimmy-carter-funeral-procession.html
 
