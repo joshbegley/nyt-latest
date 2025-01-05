@@ -1,3 +1,7 @@
+**Chiefs arrive in Denver after multi-hour delay on tarmac due to ice**\
+`The Chiefs' chartered jet was the first flight out of the airport once operations resumed, per the source.`\
+https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-city-international-airport/
+
 **USA, Finland advance to World Juniors gold medal game**\
 `USA and Finland will meet on Sunday in the gold medal game. Czechia and Sweden will play for bronze.`\
 https://nytimes.com/athletic/6029869/2025/01/04/usa-finland-world-juniors-2025/
