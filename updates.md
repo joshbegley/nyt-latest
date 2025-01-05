@@ -1,3 +1,7 @@
+**Costas Simitis, 2-Time Prime Minister of Greece, Dies at 88**\
+`Mr. Simitis imposed financial measures to prepare for Greece’s entry into the eurozone and laid the groundwork for the Olympic Games’ return to Athens.`\
+https://nytimes.com/2025/01/05/obituaries/costas-simitis-dead.html
+
 **Cade Cunningham shows another dimension for Pistons with offensive aggression**\
 `Cunningham dropped a season-high 40 against Minnesota on Saturday, looking for his shot early and often.`\
 https://nytimes.com/athletic/6038290/2025/01/05/cade-cunningham-pistons-timberwolves/
