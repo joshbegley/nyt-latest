@@ -1,3 +1,7 @@
+**Driver in Ramming Attack Made Trips to New Orleans and Abroad**\
+`Shamsud-Din Jabbar visited New Orleans twice, and traveled to Egypt and Canada, before a burst of violence early on New Year’s Day that killed 14 people.`\
+https://nytimes.com/2025/01/05/us/new-orleans-attack-travel.html
+
 **N.Y. Judge’s Ruling Shows How Legal Issues Will Follow Trump Into Office**\
 `Donald Trump may not face a penalty for his conviction in the hush-money case, but he could still be the first felon to be president — and civil proceedings against him continue.`\
 https://nytimes.com/2025/01/05/us/politics/new-york-case-trump-merchan-inauguration.html
