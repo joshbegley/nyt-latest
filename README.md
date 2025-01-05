@@ -1,3 +1,7 @@
+**USA, Finland advance to World Juniors gold medal game**\
+`USA and Finland will meet on Sunday in the gold medal game. Czechia and Sweden will play for bronze.`\
+https://nytimes.com/athletic/6029869/2025/01/04/usa-finland-world-juniors-2025/
+
 **Wild win special teams battle against the NHL's elite: 3 takeaways vs. Hurricanes**\
 `Despite some titans out of their lineup, the Wild defeated the Hurricanes 4-0 and have now won five of their past six games.`\
 https://nytimes.com/athletic/6037961/2025/01/04/wild-hurricanes-takeaways-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037967/2025/01/04/nebraska-special-teams-ed-foley-
 **A Frigid First: Chile’s President Visits Antarctica to Bolster Claims**\
 `Chile’s president traveled to the South Pole, the first visit of any sitting Latin American president, according to his office.`\
 https://nytimes.com/2025/01/04/world/americas/chile-antarctica-boric-competition.html
-
-**Italy’s Prime Minister Visits Trump in Mar-a-Lago**\
-`Giorgia Meloni, the Italian prime minister, joins just a handful of other world leaders who have been to the president-elect’s Florida estate since his victory.`\
-https://nytimes.com/2025/01/04/world/europe/italy-donald-trump-meloni-visit.html
 
