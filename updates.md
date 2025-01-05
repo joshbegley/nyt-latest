@@ -1,3 +1,11 @@
+**Mike Vrabel, Brian Flores and the top candidates to be the Patriots’ next head coach**\
+`Vrabel may be the top candidate, but here are some of the other options the Patriots are likely to consider after parting with Mayo.`\
+https://nytimes.com/athletic/6037622/2025/01/05/patriots-head-coach-candidates-mike-vrabel-brian-flores/
+
+**The Hollywood Foreign Press Association is gone. Its scandals will live on.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/the-hollywood-foreign-press-association-is-gone-its-scandals-will-live-on
+
 **Eagles end regular season with 14 wins with victory over Giants: Takeaways**\
 `The Eagles flexed their reserves in Sunday's win, as rookies Ainias Smith and  E.J. Jenkins both caught their first career TDs.`\
 https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takeaways/
