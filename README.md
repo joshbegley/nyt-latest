@@ -1,3 +1,11 @@
+**Scammers could cheat their way out of congestion pricing tolls.**\
+`The Metrop`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/scammers-could-cheat-their-way-out-of-congestion-pricing-tolls
+
+**This Might Just Be the Best Way to Eat Kale**\
+`Kale sauce pasta, a recipe I adapted from the chef Joshua McFadden, is still one of my most favorite things to cook.`\
+https://nytimes.com/2025/01/05/dining/easy-kale-pasta-recipe.html
+
 **Can BAM Be a Trailblazer Again Through A. I.?**\
 `The Brooklyn organization, seeking new audiences and pushing boundaries, debuts Techne, four digital installations from the Onassis Foundation’s ONX Studio.`\
 https://nytimes.com/2025/01/05/arts/design/brooklyn-academy-of-music-onassis-onyx-ai-computer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/05/obituaries/costas-simitis-dead.html
 **Cade Cunningham shows another dimension for Pistons with offensive aggression**\
 `Cunningham dropped a season-high 40 against Minnesota on Saturday, looking for his shot early and often.`\
 https://nytimes.com/athletic/6038290/2025/01/05/cade-cunningham-pistons-timberwolves/
-
-**Even as congestion pricing gets underway, debate over the program goes on.**\
-`By Bernard Mokam`\
-https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/even-as-congestion-pricing-gets-underway-debate-over-the-program-goes-on
-
-**Former Nurse Is Charged After Newborn Is Found With Fractures**\
-`Erin Strotman was charged in one case of child abuse, but detectives were also examining other episodes with similar injuries at a Virginia neonatal intensive care unit.`\
-https://nytimes.com/2025/01/05/us/virginia-babies-icu-nurse-charged.html
 
