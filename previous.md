@@ -1,3 +1,7 @@
+**Cade Cunningham shows another dimension for Pistons with offensive aggression**\
+`Cunningham dropped a season-high 40 against Minnesota on Saturday, looking for his shot early and often.`\
+https://nytimes.com/athletic/6038290/2025/01/05/cade-cunningham-pistons-timberwolves/
+
 **Even as congestion pricing gets underway, debate over the program goes on.**\
 `By Bernard Mokam`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/even-as-congestion-pricing-gets-underway-debate-over-the-program-goes-on
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dick
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday
 
 **Live Updates: Congestion Pricing Begins After Long Delay**\
-`The New York City tolling plan, the first of its kind in the country, finally debuts after being halted just weeks before its original start date last summer.`\
+`The New York City tolling plan, the first of its kind in the country, finally debuted after being halted just weeks before its original start date last summer. Officials started it on a Sunday to work out the kinks before rush hour traffic Monday morning.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey
 
 **Chris Finch backs struggling Wolves starters, says there are no plans to change course**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037997/2025/01/05/chris-finch-anthony-edwards-rudy
 **How Kawhi Leonard's return felt at Intuit Dome, and how he resets the LA Clippers**\
 `Clippers staff and fans almost couldn't believe Kawhi was making his Intuit Dome debut, even as he operated like a role player.`\
 https://nytimes.com/athletic/6038382/2025/01/05/kawhi-leonard-return-intuit-dome-expectations-nba/
-
-**Eating Healthy**\
-`The science behind Well’s ultraprocessed foods challenge.`\
-https://nytimes.com/2025/01/05/briefing/healthy-eating-ultraprocessed-food.html
 
