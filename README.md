@@ -1,5 +1,5 @@
 **Chiefs depart for Denver after multi-hour delay on tarmac due to ice**\
-`They spent about four hours on the tarmac before departing, according to multiple reports.`\
+`The Chiefs' chartered jet was the first flight out of the airport once operations resumed, per the source.`\
 https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-city-international-airport/
 
 **Ed Foley out as Nebraska's special teams coordinator after 2 seasons of struggles**\
