@@ -3,6 +3,19 @@
 `\
 https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
 
+**Hong Kong’s Cabbies, Long Scorned and Frustrated, Face the End of an Era**\
+`A government push to modernize taxi services comes up against the habits of drivers known for driving fast and accepting only cash.`\
+https://nytimes.com/2025/01/05/world/asia/hong-kong-taxicabs.html
+
+**Jeju Air’s Problems Mount After Crash That Killed 179 People**\
+`South Korea’s leading low-cost carrier, heavy with debt and its stock already near record lows, is now facing intense public and government scrutiny.`\
+https://nytimes.com/2025/01/05/business/jeju-air-south-korea-crash.html
+
+**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
+`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
+`\
+https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
+
 **Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
 `“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
 `\
