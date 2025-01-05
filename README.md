@@ -26,7 +26,7 @@ https://nytimes.com/live/2025/01/05/arts/golden-globes/the-hollywood-foreign-pre
 `The Eagles flexed their reserves in Sunday's win, as rookies Ainias Smith and  E.J. Jenkins both caught their first career TDs.`\
 https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takeaways/
 
-**Golden Globes Live Updates: Red Carpet Being Readied as Stars Head to Ceremony**\
+**Golden Globes Live Updates: Red Carpet Begins as Stars Head to Ceremony**\
 `The event, which honors work in both film and television, will begin at 8 p.m. Eastern time, 5 p.m. Pacific time, at the Beverly Hilton in Beverly Hills, Calif.`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes
 
