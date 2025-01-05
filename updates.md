@@ -1,3 +1,7 @@
+**Corrections: Jan. 5, 2025**\
+`Corrections that appeared in print on Sunday, Jan. 5, 2025.`\
+https://nytimes.com/2025/01/04/pageoneplus/corrections-jan-5-2025.html
+
 **No. 5 Alabama trounces No. 12 Oklahoma in SEC opener: Key takeaways**\
 `SEC Preseason Player of the Year Mark Sears was his normal self, scoring 22 points with 10 assists and most impressively: zero turnovers.`\
 https://nytimes.com/athletic/6037994/2025/01/04/alabama-oklahoma-ncaa-basketball-score-takeaways/
