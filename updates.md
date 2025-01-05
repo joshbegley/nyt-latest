@@ -1,3 +1,20 @@
+**Dmitri Voronkov scores twice, Blue Jackets survive wild third for bounce-back win**\
+`Voronkov continued his torrid scoring pace to help the Blue Jackets to a 6-4 win over the Blues.`\
+https://nytimes.com/athletic/6038077/2025/01/05/dmitri-voronkov-blue-jackets-win/
+
+**Newcastle were confronted by uproar but still found a way - the chaos is behind them**\
+`Eddie Howe's side have won five consecutive Premier League games, are fifth and are a team completely at ease with themselves`\
+https://nytimes.com/athletic/6037463/2025/01/05/newcastle-howe-isak-tottenham-chaos/
+
+**What Italian Super Cup success would mean for Christian Pulisic and AC Milan**\
+`City rivals Inter stand in the way of a potentially season-altering triumph for Milan and USMNT star Pulisic`\
+https://nytimes.com/athletic/6037051/2025/01/05/italian-super-cup-supercoppa-pulisic-milan/
+
+**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
+`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
+`\
+https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
+
 **Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
 `“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
 `\

@@ -1,3 +1,15 @@
+**Dmitri Voronkov scores twice, Blue Jackets survive wild third for bounce-back win**\
+`Voronkov continued his torrid scoring pace to help the Blue Jackets to a 6-4 win over the Blues.`\
+https://nytimes.com/athletic/6038077/2025/01/05/dmitri-voronkov-blue-jackets-win/
+
+**Newcastle were confronted by uproar but still found a way - the chaos is behind them**\
+`Eddie Howe's side have won five consecutive Premier League games, are fifth and are a team completely at ease with themselves`\
+https://nytimes.com/athletic/6037463/2025/01/05/newcastle-howe-isak-tottenham-chaos/
+
+**What Italian Super Cup success would mean for Christian Pulisic and AC Milan**\
+`City rivals Inter stand in the way of a potentially season-altering triumph for Milan and USMNT star Pulisic`\
+https://nytimes.com/athletic/6037051/2025/01/05/italian-super-cup-supercoppa-pulisic-milan/
+
 **Ravens take AFC North with win over Browns, but celebration is muted by what's next**\
 `Baltimore checked off its first goal of winning the division, but its season was always going to be judged by what happens in the playoffs.`\
 https://nytimes.com/athletic/6038144/2025/01/05/ravens-win-afc-north-browns/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6037570/2025/01/05/tottenham-postecoglou-newcastle-
 **Leeds have been warned - this kind of sloppiness can cost a team promotion**\
 `Daniel Farke admitted his side are not 'the finished product', but lessons must be learned from the damaging late capitulation at Hull`\
 https://nytimes.com/athletic/6037087/2025/01/05/leeds-hull-promotion-farke/
-
-**Bengals fan playoff hopes with 19-17 win over sputtering Steelers: Takeaways**\
-`The Bengals held Pittsburgh to a season-low 193 total yards, the fewest allowed by Cincinnati since Week 16 of 2017.`\
-https://nytimes.com/athletic/6038052/2025/01/05/bengals-steelers-score-result-takeaways/
-
-**Hong Kong’s Cabbies, Long Scorned and Frustrated, Face the End of an Era**\
-`A government push to modernize taxi services comes up against the habits of drivers known for driving fast and accepting only cash.`\
-https://nytimes.com/2025/01/05/world/asia/hong-kong-taxicabs.html
-
-**Jeju Air’s Problems Mount After Crash That Killed 179 People**\
-`South Korea’s leading low-cost carrier, heavy with debt and its stock already near record lows, is now facing intense public and government scrutiny.`\
-https://nytimes.com/2025/01/05/business/jeju-air-south-korea-crash.html
 
