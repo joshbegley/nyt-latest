@@ -1,3 +1,7 @@
+**Packers' Jordan Love exits vs. Bears with right elbow injury**\
+`Love and Watson are questionable to return after getting injured on the same series.`\
+https://nytimes.com/athletic/6039089/2025/01/05/jordan-love-elbow-injury-packers-bears/
+
 **In About-Face, Musk Trashes Farage, U.K.’s Anti-Immigrant Populist**\
 `Elon Musk, the billionaire backer of Donald J. Trump, had been promoting Nigel Farage. But on Sunday Mr. Musk said Mr. Farage “doesn’t have what it takes.”`\
 https://nytimes.com/2025/01/05/world/europe/musk-farage-starmer-uk.html
