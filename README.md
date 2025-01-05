@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6035941/2025/01/05/ipswich-transfers-ben-godfrey/
 
 **Scammers could cheat their way out of congestion pricing tolls.**\
 `The Metrop`\
-https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/scammers-could-cheat-their-way-out-of-congestion-pricing-tolls
+https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-ghost-cars-scams.html
 
 **This Might Just Be the Best Way to Eat Kale**\
 `Kale sauce pasta, a recipe I adapted from the chef Joshua McFadden, is still one of my most favorite things to cook.`\
