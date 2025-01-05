@@ -1,5 +1,5 @@
 **A Browns season filled with disappointment finally comes to an end**\
-`After falling to the AFC North division-winning Ravens, Cleveland finishes 3-14 and now enters an offseason full of uncertainty.  `\
+`After falling to the AFC North division-winning Ravens, Cleveland finishes 3-14 and enters an offseason full of uncertainty.  `\
 https://nytimes.com/athletic/6038067/2025/01/04/browns-season-finale-loss-ravens/
 
 **Maple Leafs report cards: Matthew Knies dazzles in back-and-forth battle**\
