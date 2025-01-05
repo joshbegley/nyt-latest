@@ -1,3 +1,11 @@
+**Demi Moore, Nicole Kidman and Colman Domingo Party Before the Golden Globes**\
+`Celebrities packed into a suite at the Chateau Marmont in Los Angeles for the W Magazine party on Saturday night.`\
+https://nytimes.com/2025/01/05/fashion/w-magazine-golden-globes-party-photos.html
+
+**Bad Bunny Talks Coming Back Home on His ‘Most Puerto Rican’ Album Yet**\
+`In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
+https://nytimes.com/2025/01/05/arts/music/bad-bunny-album-debi-tirar-mas-fotos.html
+
 **Scammers Could Cheat New York’s New Congestion Pricing Tolls**\
 `Drivers who obscure their plates or otherwise circumvent paying tolls already cost the city’s mass transit system millions of dollars.`\
 https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-ghost-cars-scams.html
