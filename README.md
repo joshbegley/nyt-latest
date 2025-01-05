@@ -1,3 +1,7 @@
+**How will Oregon respond — and retool — after humbling Rose Bowl loss to Ohio State?**\
+`The Ducks will once again be expected to contend for a Big Ten title in 2025, but Dan Lanning has plenty of holes to fill in the offseason.`\
+https://nytimes.com/athletic/6037601/2025/01/05/oregon-football-rose-bowl-transfer-dan-lanning/
+
 **NFL Week 18 top storylines: Lions-Vikings fight for NFC No. 1; do Broncos, Bucs make playoffs?**\
 `The regular season closes Sunday night with a clash of two 14-2 teams. Also: Is Sunday Aaron Rodgers' last NFL game?`\
 https://nytimes.com/athletic/6033728/2025/01/05/nfl-week-18-storylines-lions-vikings-broncos-bucs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/us/politics/dnc-race-ben-wikler-ken-martin.html
 **Chiefs at Broncos: How to watch, odds, expert picks with Denver trying to clinch postseason**\
 `Facing a win-and-in scenario to make the playoffs, the Denver Broncos host the Kansas City Chiefs.`\
 https://nytimes.com/athletic/6035782/2025/01/05/chiefs-broncos-how-to-watch-odds-picks-betting/
-
-**Texans at Titans: How to watch, odds, expert picks with Tennessee holding No. 2 draft pick**\
-`The Tennessee Titans are among the teams with enough losses to make a bid for the top pick in next spring's draft.`\
-https://nytimes.com/athletic/6034639/2025/01/05/texans-titans-how-to-watch-odds-picks-betting/
 
