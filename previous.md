@@ -1,3 +1,15 @@
+**Golden Globes Photos: See All the Looks From the Red Carpet**\
+`Stars have begun arriving for the 82nd Golden Globes, an awards season opener of sorts celebrating the biggest stars in film and television.`\
+https://nytimes.com/2025/01/05/style/golden-globes-red-carpet-2025-photos.html
+
+**The Golden Globe swag bags have no shame.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/the-golden-globe-swag-bags-have-no-shame
+
+**Recovered From a Fall**\
+`Rena Cohen’s crossword is best solved in pencil.`\
+https://nytimes.com/2025/01/05/crosswords/daily-puzzle-2025-01-06.html
+
 **Mike Vrabel, Brian Flores and the top candidates to be the Patriots’ next head coach**\
 `Vrabel may be the top candidate, but here are some of the other options the Patriots are likely to consider after parting with Mayo.`\
 https://nytimes.com/athletic/6037622/2025/01/05/patriots-head-coach-candidates-mike-vrabel-brian-flores/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/05/arts/golden-globes/the-globes-have-fixed-old
 **Israel Conducts Raids in Syria Amid Accusations of Cease-Fire Violations**\
 `Four weeks after the fall of the Assad regime, Israel is pressing on with a military campaign on Syrian soil.`\
 https://nytimes.com/2025/01/05/world/middleeast/israel-raids-syria.html
-
-**Bucs comes back on Saints in 27-19 as Mike Evans makes history: Takeaways**\
-`The Buccaneers (10-7) will now await the result of the Seattle Seahawks-Los Angeles Rams game to determine their seeding in the playoffs.`\
-https://nytimes.com/athletic/6038692/2025/01/05/saints-buccaneers-score-result-takeaways/
-
-**Aaron Rodgers throws 500th TD as his Jets future remains uncertain**\
-`Rodgers' milestone comes as the four-time MVP's future with the Jets and in the NFL has been the subject of much speculation. `\
-https://nytimes.com/athletic/6038994/2025/01/05/aaron-rodgers-500-touchdown-jets/
-
-**Patriots fire Jerod Mayo after one season, expected to pursue Mike Vrabel**\
-`Bill Belichick's successor becomes the first one-and-done coach under Robert Kraft's ownership. The team is expected to target Vrabel.`\
-https://nytimes.com/athletic/5990877/2025/01/05/patriots-jerod-mayo-fired-mike-vrabel/
 

@@ -1,3 +1,15 @@
+**Golden Globes Photos: See All the Looks From the Red Carpet**\
+`Stars have begun arriving for the 82nd Golden Globes, an awards season opener of sorts celebrating the biggest stars in film and television.`\
+https://nytimes.com/2025/01/05/style/golden-globes-red-carpet-2025-photos.html
+
+**The Golden Globe swag bags have no shame.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/the-golden-globe-swag-bags-have-no-shame
+
+**Recovered From a Fall**\
+`Rena Cohen’s crossword is best solved in pencil.`\
+https://nytimes.com/2025/01/05/crosswords/daily-puzzle-2025-01-06.html
+
 **Mike Vrabel, Brian Flores and the top candidates to be the Patriots’ next head coach**\
 `Vrabel may be the top candidate, but here are some of the other options the Patriots are likely to consider after parting with Mayo.`\
 https://nytimes.com/athletic/6037622/2025/01/05/patriots-head-coach-candidates-mike-vrabel-brian-flores/
