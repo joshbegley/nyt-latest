@@ -1,3 +1,11 @@
+**Austria Coalition Talks Collapse, Raising Prospects for the Far-Right**\
+`The leader of the anti-immigrant Freedom Party of Austria, founded by former Nazis in the 1950s, was expected to be asked to enter into talks to form a new government.`\
+https://nytimes.com/2025/01/05/world/europe/austria-coalition-talks-collapse-raising-prospects-for-the-far-right.html
+
+**Ducks sign Frank Vatrano to 3-year extension worth $18 million**\
+`Vatrano ranks second on the Ducks in goals with nine and third in points with 20 after getting his first All-Star selection last season.`\
+https://nytimes.com/athletic/6039301/2025/01/05/frank-vatrano-contract-extension-ducks/
+
 **Students Charged in ‘To Catch a Predator’ TikTok Scheme**\
 `Five students at Assumption University in Worcester, Mass., are accused of luring a man to campus, where he was chased by a group of about 25 people.`\
 https://nytimes.com/2025/01/05/us/assumption-university-students-catch-a-predator-tiktok.html
