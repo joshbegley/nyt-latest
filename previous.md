@@ -1,3 +1,7 @@
+**Amazon adds Dirk Nowitzki, Blake Griffin to NBA studio coverage**\
+`Griffin and Nowitzki will join host Taylor Rooks when Amazon begins its NBA package in the 2025-26 season.`\
+https://nytimes.com/athletic/6038635/2025/01/05/amazon-nba-coverage-blake-griffin-dirk-nowitzki/
+
 **Costas Simitis, 2-Time Prime Minister of Greece, Dies at 88**\
 `Mr. Simitis imposed financial measures to prepare for Greece’s entry into the eurozone and laid the groundwork for the Olympic Games’ return to Athens.`\
 https://nytimes.com/2025/01/05/obituaries/costas-simitis-dead.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dick
 `The program was eased into place in the middle of a weekend night in case of unexpected kinks.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday
 
-**Live Updates: Congestion Pricing Begins After Long Delay**\
-`The New York City tolling plan, the first of its kind in the country, finally debuted after being halted just weeks before its original start date last summer. Officials started it on a Sunday to work out the kinks before rush hour traffic Monday morning.`\
+**Live Updates: New York Begins Congestion Pricing Without Hiccups**\
+`The tolling plan, the first of its kind in the country, started on a Sunday to work out the kinks before rush hour traffic Monday morning. It appeared to be running smoothly as drivers adjusted to the new fee.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey
-
-**Chris Finch backs struggling Wolves starters, says there are no plans to change course**\
-`A low-energy performance in Detroit was just the latest example of Minnesota's lack of cohesion and chemistry.`\
-https://nytimes.com/athletic/6037997/2025/01/05/chris-finch-anthony-edwards-rudy-gobert-julius-randle-timberwolves-pistons-nba/
 
