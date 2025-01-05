@@ -1,4 +1,4 @@
-**Austria Coalition Talks Collapse, Raising Prospects for the Far-Right**\
+**Austria Coalition Talks Collapse, Raising Prospects for the Far Right**\
 `The leader of the anti-immigrant Freedom Party of Austria, founded by former Nazis in the 1950s, was expected to be asked to enter into talks to form a new government.`\
 https://nytimes.com/2025/01/05/world/europe/austria-coalition-talks-collapse-far-right.html
 
