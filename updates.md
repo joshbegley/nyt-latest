@@ -1,3 +1,7 @@
+**Israel’s Military Pounds Gaza as Pressure Mounts for Cease-fire**\
+`The Israeli military said it struck more than 100 targets across the enclave over the weekend. Israeli and Hamas officials have been holding indirect cease-fire talks via mediators in Qatar.`\
+https://nytimes.com/2025/01/05/world/middleeast/israels-military-pounds-gaza-as-pressure-mounts-for-cease-fire.html
+
 **How will Oregon respond — and retool — after humbling Rose Bowl loss to Ohio State?**\
 `The Ducks will once again be expected to contend for a Big Ten title in 2025, but Dan Lanning has plenty of holes to fill in the offseason.`\
 https://nytimes.com/athletic/6037601/2025/01/05/oregon-football-rose-bowl-transfer-dan-lanning/
