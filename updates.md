@@ -1,3 +1,7 @@
+**How will Oregon respond — and retool — after humbling Rose Bowl loss to Ohio State?**\
+`The Ducks will once again be expected to contend for a Big Ten title in 2025, but Dan Lanning has plenty of holes to fill in the offseason.`\
+https://nytimes.com/athletic/6037601/2025/01/05/oregon-football-rose-bowl-transfer-dan-lanning/
+
 **NFL Week 18 top storylines: Lions-Vikings fight for NFC No. 1; do Broncos, Bucs make playoffs?**\
 `The regular season closes Sunday night with a clash of two 14-2 teams. Also: Is Sunday Aaron Rodgers' last NFL game?`\
 https://nytimes.com/athletic/6033728/2025/01/05/nfl-week-18-storylines-lions-vikings-broncos-bucs/
