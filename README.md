@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Matthew Knies dazzles in back-and-forth battle**\
+`Knies scored the first hat trick of his NHL career in a 6-4 win over Boston.`\
+https://nytimes.com/athletic/6037930/2025/01/04/maple-leafs-bruins-matthew-knies-grades/
+
 **Richard Foreman, Iconoclastic Playwright and Impresario, Dies at 87**\
 `The Ontological-Hysteric Theater, which he founded in 1968, presented more than 50 of his plays, among them “My Head Was a Sledgehammer” and “Permanent Brain Damage.”`\
 https://nytimes.com/2025/01/04/theater/richard-foreman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037947/2025/01/04/browns-ravens-score-result-takea
 **Chiefs arrive in Denver after multi-hour delay on tarmac due to ice**\
 `The Chiefs' chartered jet was the first flight out of the airport once operations resumed, per the source.`\
 https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-city-international-airport/
-
-**Ed Foley out as Nebraska's special teams coordinator after 2 seasons of struggles**\
-`Matt Rhule said after the Dec. 28 Pinstripe Bowl victory over Boston College that the special teams needed a “complete and total overhaul."`\
-https://nytimes.com/athletic/6037967/2025/01/04/nebraska-special-teams-ed-foley-matt-rhule/
 
