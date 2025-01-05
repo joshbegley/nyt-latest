@@ -1,40 +1,41 @@
-**‘Not hard enough’: When Bruins' offense finally appears, their defense goes missing**\
-`David Pastrnak scored two goals, but it wasn't enough as the Bruins fell 6-4 to the Maple Leafs.`\
-https://nytimes.com/athletic/6038109/2025/01/04/bruins-maple-leafs-david-pastrnak/
+**A breath of fresh air? Why so many Americans are investing in English football clubs**\
+`The Athletic visited U.S.-owned clubs around the country to find out...`\
+https://nytimes.com/athletic/6004266/2025/01/05/american-owner-investment-efl/
 
-**Greenberg: 'People’s champ' Derrick Rose brings belief back to Chicago on a joyful night**\
-`The Bulls pulled off a heartwarming event honoring Rose. The arena was packed. The vibe was love. Scores of old teammates joined the fun.`\
-https://nytimes.com/athletic/6038081/2025/01/04/derrick-rose-night-chicago-bulls-knicks/
+**Savinho finds his feet to help Erling Haaland mask Manchester City's frailties**\
+`The Brazilian has taken his time to make a mark since arriving from Girona but showcased his class and potential against West Ham`\
+https://nytimes.com/athletic/6037637/2025/01/05/savinho-haaland-manchester-city-west-ham/
 
-**A Browns season filled with disappointment finally comes to an end**\
-`After falling to the AFC North division-winning Ravens, Cleveland finishes 3-14 and enters an offseason full of uncertainty.  `\
-https://nytimes.com/athletic/6038067/2025/01/04/browns-season-finale-loss-ravens/
+**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
+`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
+`\
+https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
 
-**Maple Leafs report cards: Matthew Knies dazzles in back-and-forth battle**\
-`Knies scored the first hat trick of his NHL career in a 6-4 win over Boston.`\
-https://nytimes.com/athletic/6037930/2025/01/04/maple-leafs-bruins-matthew-knies-grades/
+**'On a fair and even playing ground, Tottenham win that game' - analysing Postecoglou's post-match complaints**\
+`The Spurs head coach wore his heart on his sleeve through his post-match media duties, but were his objections valid?`\
+https://nytimes.com/athletic/6037570/2025/01/05/tottenham-postecoglou-newcastle-referee-illness/
 
-**Richard Foreman, Iconoclastic Playwright and Impresario, Dies at 87**\
-`The Ontological-Hysteric Theater, which he founded in 1968, presented more than 50 of his plays, among them “My Head Was a Sledgehammer” and “Permanent Brain Damage.”`\
-https://nytimes.com/2025/01/04/theater/richard-foreman-dead.html
+**Leeds have been warned - this kind of sloppiness can cost a team promotion**\
+`Daniel Farke admitted his side are not 'the finished product', but lessons must be learned from the damaging late capitulation at Hull`\
+https://nytimes.com/athletic/6037087/2025/01/05/leeds-hull-promotion-farke/
 
-**USA, Finland advance to World Juniors gold medal game**\
-`USA and Finland will meet on Sunday in the gold medal game. Czechia and Sweden will play for bronze.`\
-https://nytimes.com/athletic/6029869/2025/01/04/usa-finland-world-juniors-2025/
+**Bengals fan playoff hopes with 19-17 win over sputtering Steelers: Takeaways**\
+`The Bengals held Pittsburgh to a season-low 193 total yards, the fewest allowed by Cincinnati since Week 16 of 2017.`\
+https://nytimes.com/athletic/6038052/2025/01/05/bengals-steelers-score-result-takeaways/
 
-**Wild win special teams battle against the NHL's elite: 3 takeaways vs. Hurricanes**\
-`Despite some titans out of their lineup, the Wild defeated the Hurricanes 4-0 and have now won five of their past six games.`\
-https://nytimes.com/athletic/6037961/2025/01/04/wild-hurricanes-takeaways-nhl/
+**Hong Kong’s Cabbies, Long Scorned and Frustrated, Face the End of an Era**\
+`A government push to modernize taxi services comes up against the habits of drivers known for driving fast and accepting only cash.`\
+https://nytimes.com/2025/01/05/world/asia/hong-kong-taxicabs.html
 
-**Corrections: Jan. 5, 2025**\
-`Corrections that appeared in print on Sunday, Jan. 5, 2025.`\
-https://nytimes.com/2025/01/04/pageoneplus/corrections-jan-5-2025.html
+**Jeju Air’s Problems Mount After Crash That Killed 179 People**\
+`South Korea’s leading low-cost carrier, heavy with debt and its stock already near record lows, is now facing intense public and government scrutiny.`\
+https://nytimes.com/2025/01/05/business/jeju-air-south-korea-crash.html
 
-**No. 5 Alabama trounces No. 12 Oklahoma in SEC opener: Key takeaways**\
-`SEC Preseason Player of the Year Mark Sears was his normal self, scoring 22 points with 10 assists and most impressively: zero turnovers.`\
-https://nytimes.com/athletic/6037994/2025/01/04/alabama-oklahoma-ncaa-basketball-score-takeaways/
+**Congestion Pricing Has Begun in New York City. Here’s How It Works.**\
+`The tolling program, the first of its kind in the nation, will charge most drivers who enter Manhattan south of 60th Street during peak hours a $9 fee.`\
+https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-tolls.html
 
-**Kawhi Leonard returns to court after missing season's first 34 games**\
-`The two-time NBA Finals MVP and two-time Defensive Player of the Year hasn't played in an NBA game since April.`\
-https://nytimes.com/athletic/6037870/2025/01/04/kawhi-leonard-clippers-return/
+**Liverpool vs Manchester United: Storylines, odds, prediction as Reds look to maintain lead**\
+`Liverpool host Manchester United in one of the biggest derbies in the Premier League. Has it lost luster with United so far down the table?`\
+https://nytimes.com/athletic/6033989/2025/01/05/liverpool-manchester-united-preview-odds-prediction/
 
