@@ -1,3 +1,7 @@
+**Can BAM Be a Trailblazer Again Through A. I.?**\
+`The Brooklyn organization, seeking new audiences and pushing boundaries, debuts Techne, four digital installations from the Onassis Foundation’s ONX Studio.`\
+https://nytimes.com/2025/01/05/arts/design/brooklyn-academy-of-music-onassis-onyx-ai-computer.html
+
 **Bucks tired of losing to teams with poor records: 'We've gotta turn it around right now'**\
 `For the sixth time this season, the Bucks dropped a game to a sub-.500 team on Saturday, their fourth loss in the last five games. `\
 https://nytimes.com/athletic/6038529/2025/01/05/bucks-nba-giannis-lillard-losses/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/e
 **Former Nurse Is Charged After Newborn Is Found With Fractures**\
 `Erin Strotman was charged in one case of child abuse, but detectives were also examining other episodes with similar injuries at a Virginia neonatal intensive care unit.`\
 https://nytimes.com/2025/01/05/us/virginia-babies-icu-nurse-charged.html
-
-**Should TV Ads for Drugs Be Banned?**\
-`Readers discuss a proposal by some Trump allies. Also: The abuses inside prisons; stories of miracles.`\
-https://nytimes.com/2025/01/05/opinion/tv-ads-for-drugs.html
 

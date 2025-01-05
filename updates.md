@@ -1,3 +1,7 @@
+**Can BAM Be a Trailblazer Again Through A. I.?**\
+`The Brooklyn organization, seeking new audiences and pushing boundaries, debuts Techne, four digital installations from the Onassis Foundation’s ONX Studio.`\
+https://nytimes.com/2025/01/05/arts/design/brooklyn-academy-of-music-onassis-onyx-ai-computer.html
+
 **Bucks tired of losing to teams with poor records: 'We've gotta turn it around right now'**\
 `For the sixth time this season, the Bucks dropped a game to a sub-.500 team on Saturday, their fourth loss in the last five games. `\
 https://nytimes.com/athletic/6038529/2025/01/05/bucks-nba-giannis-lillard-losses/
