@@ -1,3 +1,11 @@
+**‘Not hard enough’: When Bruins' offense finally appears, their defense goes missing**\
+`David Pastrnak scored two goals, but it wasn't enough as the Bruins fell 6-4 to the Maple Leafs.`\
+https://nytimes.com/athletic/6038109/2025/01/04/bruins-maple-leafs-david-pastrnak/
+
+**Greenberg: 'People’s champ' Derrick Rose brings belief back to Chicago on a joyful night**\
+`The Bulls pulled off a heartwarming event honoring Rose. The arena was packed. The vibe was love. Scores of old teammates joined the fun.`\
+https://nytimes.com/athletic/6038081/2025/01/04/derrick-rose-night-chicago-bulls-knicks/
+
 **A Browns season filled with disappointment finally comes to an end**\
 `After falling to the AFC North division-winning Ravens, Cleveland finishes 3-14 and enters an offseason full of uncertainty.  `\
 https://nytimes.com/athletic/6038067/2025/01/04/browns-season-finale-loss-ravens/
