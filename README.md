@@ -1,3 +1,11 @@
+**Lowetide: Why the Oilers' AHL team has been a curious procurement experiment**\
+`Each Edmonton general manager involved had a different strategy, and some seasons worked out better than others.`\
+https://nytimes.com/athletic/6037283/2025/01/05/edmonton-oilers-ahl-team-2025/
+
+**Cowboys Today: Top priority in Sunday's game, predictions for season finale**\
+`Will this be Mike McCarthy's final game as the Cowboys play their finale at home against the Commanders?`\
+https://nytimes.com/athletic/6038091/2025/01/05/cowboys-commanders-prediction-mike-mccarthy/
+
 **Gauff beats Swiatek to help USA to United Cup title in Australia**\
 `Coco Gauff's reworked forehand helped her overcome Iga Swiatek in a match of at times extraordinary quality.`\
 https://nytimes.com/athletic/6038413/2025/01/05/gauff-swiatek-united-cup-usa-poland/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/05/world/middleeast/israels-military-pounds-gaza-as-
 **How will Oregon respond — and retool — after humbling Rose Bowl loss to Ohio State?**\
 `The Ducks will once again be expected to contend for a Big Ten title in 2025, but Dan Lanning has plenty of holes to fill in the offseason.`\
 https://nytimes.com/athletic/6037601/2025/01/05/oregon-football-rose-bowl-transfer-dan-lanning/
-
-**NFL Week 18 top storylines: Lions-Vikings fight for NFC No. 1; do Broncos, Bucs make playoffs?**\
-`The regular season closes Sunday night with a clash of two 14-2 teams. Also: Is Sunday Aaron Rodgers' last NFL game?`\
-https://nytimes.com/athletic/6033728/2025/01/05/nfl-week-18-storylines-lions-vikings-broncos-bucs/
-
-**Jaguars at Colts: How to watch, odds, expert picks with Indianapolis as home favorite**\
-`Two AFC South teams completing disappointing seasons and facing uncertain futures meet when the Colts welcome the Jaguars. `\
-https://nytimes.com/athletic/6034663/2025/01/05/jaguars-colts-how-to-watch-odds-picks-betting/
 
