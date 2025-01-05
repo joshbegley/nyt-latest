@@ -1,3 +1,27 @@
+**World Juniors Today: Previewing USA-Finland and Sweden-Czechia**\
+`It's the final day of the 2025 World Juniors in Ottawa. By day's end, we'll have a champion.`\
+https://nytimes.com/athletic/6029910/2025/01/05/world-juniors-2025-usa-finland/
+
+**For Many of Us, Jan. 6 Never Ended**\
+`Donald Trump is promising to pardon Jan. 6 rioters. But we can’t let him rewrite history.`\
+https://nytimes.com/2025/01/05/opinion/jan-6-pardons.html
+
+**The Connections Companion No. 575**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2024.`\
+https://nytimes.com/2025/01/05/crosswords/connections-companion-575.html
+
+**Enough With the Land Acknowledgments**\
+`Instead of proclaiming performative acknowledgments of Native peoples, institutions should establish strong relationships with Native nations.`\
+https://nytimes.com/2025/01/05/opinion/indigenous-people-land-acknowledgments.html
+
+**Wordle Review No. 1,297**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2025.`\
+https://nytimes.com/2025/01/05/crosswords/wordle-review-1297.html
+
+**Israel’s Military Pounds Gaza as Pressure Mounts for Cease-fire**\
+`Gaza’s health ministry said that 88 people had been killed over the past day. Israeli and Hamas officials have been holding indirect cease-fire talks via mediators in Qatar.`\
+https://nytimes.com/2025/01/05/world/middleeast/israels-military-pounds-gaza-as-pressure-mounts-for-cease-fire.html
+
 **Israel’s Military Pounds Gaza as Pressure Mounts for Cease-fire**\
 `The Israeli military said it struck more than 100 targets across the enclave over the weekend. Israeli and Hamas officials have been holding indirect cease-fire talks via mediators in Qatar.`\
 https://nytimes.com/2025/01/05/world/middleeast/israels-military-pounds-gaza-as-pressure-mounts-for-cease-fire.html
