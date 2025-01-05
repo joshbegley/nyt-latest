@@ -1,3 +1,11 @@
+**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
+`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
+https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug-2/
+
+**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
+`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
+https://nytimes.com/athletic/6037272/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
+
 **Companies could pass on the cost of congestion pricing tolls to consumers.**\
 `Trucks entering the congestion pricing zone will pay up to $21.60, with no cap on the number of tolls per day.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/companies-could-pass-on-the-cost-of-congestion-pricing-tolls-to-consumers

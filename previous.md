@@ -1,3 +1,11 @@
+**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
+`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
+https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug-2/
+
+**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
+`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
+https://nytimes.com/athletic/6037272/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
+
 **Companies could pass on the cost of congestion pricing tolls to consumers.**\
 `Trucks entering the congestion pricing zone will pay up to $21.60, with no cap on the number of tolls per day.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/companies-could-pass-on-the-cost-of-congestion-pricing-tolls-to-consumers
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/05/opinion/tv-ads-for-drugs.html
 **Congestion pricing is a New York idea.**\
 `A Columbia University economist, William Vickrey, proposed charging varying tolls for roads and subways in the 1950s.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/congestion-pricing-is-a-new-york-idea
-
-**Browns fire OC Dorsey, OL coach Dickerson after 1 season in Cleveland**\
-`Cleveland’s offense floundered in 2024, leading the unit to finishing last in the league in numerous categories.`\
-https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dickerson/
-
-**Why New York’s Congestion Pricing Tolls Started at Midnight Sunday**\
-`The program was eased into place in the middle of a weekend night in case of unexpected kinks.`\
-https://nytimes.com/2025/01/05/nyregion/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday.html
 
