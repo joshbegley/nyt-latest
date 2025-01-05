@@ -27,7 +27,7 @@ https://nytimes.com/2025/01/05/world/europe/ukraine-attack-kursk-russia.html
 https://nytimes.com/2025/01/05/fashion/w-magazine-golden-globes-party-photos.html
 
 **Bad Bunny Talks Coming Back Home on His ‘Most Puerto Rican’ Album Yet**\
-`In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
+`In an exclusive video interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
 https://nytimes.com/2025/01/05/arts/music/bad-bunny-album-debi-tirar-mas-fotos.html
 
 **NFL Week 18 fantasy football, betting cheat sheet: Eagles stars ruled out**\

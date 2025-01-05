@@ -1,3 +1,7 @@
+**Bad Bunny Talks Coming Back Home on His ‘Most Puerto Rican’ Album Yet**\
+`In an exclusive video interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
+https://nytimes.com/2025/01/05/arts/music/bad-bunny-album-debi-tirar-mas-fotos.html
+
 **Hailing a car in Midtown Manhattan is becoming more expensive.**\
 `Transportation officials want to reduce the number of taxis, Ubers and Lyfts that idle in heavy traffic. To do that, they will charge riders new fees.`\
 https://nytimes.com/2025/01/05/nyregion/congestion-pricing-uber-lyft.html
