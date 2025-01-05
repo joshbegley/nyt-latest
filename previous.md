@@ -1,40 +1,40 @@
-**Tottenham confirm signing of goalkeeper Kinsky**\
-`Tottenham Hotspur have confirmed the signing of goalkeeper Antonin Kinsky from Slavia Prague.`\
-https://nytimes.com/athletic/6037110/2025/01/05/antonin-kinsky-transfer-tottenham/
+**Jaguars at Colts: How to watch, odds, expert picks with Indianapolis as home favorite**\
+`Two AFC South teams completing disappointing seasons and facing uncertain futures meet when the Colts welcome the Jaguars. `\
+https://nytimes.com/athletic/6034663/2025/01/05/jaguars-colts-how-to-watch-odds-picks-betting/
 
-**UD Barbastro 0-4 Barcelona: A distraction from off-field chaos, Araujo's contract and two debuts**\
-`Barcelona avoided a Copa del Rey slip-up against fourth-tier opposition to ease some of the pressure weighing down on them`\
-https://nytimes.com/athletic/6038129/2025/01/05/barcelona-barbastro-olmo-victor-araujo/
+**Rosenthal: Orioles' tepid offseason makes them unlikely to unseat Yankees as AL favorites**\
+`Baltimore has only signed one player to a multiyear deal since Orioles GM Mike Elias took over in November 2018.`\
+https://nytimes.com/athletic/6037958/2025/01/05/orioles-offseason-spending-roki-sasaki-timeline/
 
-**‘A Day of Love’: How Trump Inverted the Violent History of Jan. 6**\
-`The president-elect and his allies have spent four years reinventing the Capitol attack — spreading conspiracy theories and weaving a tale of martyrdom to their ultimate political gain.`\
-https://nytimes.com/2025/01/05/us/politics/january-6-capitol-riot-trump.html
+**Chargers at Raiders: How to watch, odds, expert picks with Los Angeles bound for playoffs**\
+`An AFC West rivalry renews Sunday afternoon — admittedly with low stakes — with the 10-6 Los Angeles Chargers as comfortable favorites.`\
+https://nytimes.com/athletic/6035864/2025/01/05/chargers-raiders-how-to-watch-odds-picks-betting/
 
-**Potent Storm Blasts Parts of U.S. With Sleet, Snow and Freezing Rain**\
-`“Brutally cold” air is expected to settle in behind the storm that will affect a dozen states, from eastern Colorado to Maryland.`\
-https://nytimes.com/2025/01/05/weather/winter-storm-forecast-snow-ice.html
+**Bears at Packers: How to watch, odds, expert picks for century-old rivalry series**\
+`The Green Bay Packers can lock up the No. 6 seed with a win over the Chicago Bears on Sunday, combined with a Washington loss at Dallas.`\
+https://nytimes.com/athletic/6034615/2025/01/05/bears-packers-how-to-watch-odds-picks-betting/
 
-**The First Day of Panama’s Canal**\
-`Recalling the day in 1999 when former President Jimmy Carter completed a historic handoff.`\
-https://nytimes.com/2025/01/05/reader-center/the-first-day-of-panamas-canal.html
+**Panthers at Falcons: How to watch, odds, expert picks as Atlanta fights for NFC South title**\
+`With an outside chance to nab the NFC South title and the conference’s last playoff spot, the Falcons play host to the Panthers.`\
+https://nytimes.com/athletic/6034570/2025/01/05/panthers-falcons-how-to-watch-odds-picks-betting/
 
-**‘I’ve Been to All the Popular Tourist Sites at Least Once’**\
-`Taking pictures of standpipes, a dancer on the subway in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/01/05/nyregion/metropolitan-diary.html
+**A Gas Cutoff Sends Shivers Through a Russian-Backed Breakaway Region**\
+`A renegade part of Moldova once boasted it would become a Russian-speaking Switzerland. Now without gas, its leader assured residents, “We will not allow a societal collapse.”`\
+https://nytimes.com/2025/01/05/world/europe/russia-gas-moldova-transnistria.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/05/crosswords/spelling-bee-forum.html
+**As Democrats Reel, Two Front-Runners Emerge in a Leadership Battle**\
+`The race to lead the Democratic National Committee centers on the favorites, Ken Martin and Ben Wikler, but the party’s infighting over them looks nothing like a broad reckoning with its 2024 defeats.`\
+https://nytimes.com/2025/01/05/us/politics/dnc-race-ben-wikler-ken-martin.html
 
-**Warriors beat Grizzlies but lose Jonathan Kuminga to 'significant' ankle sprain**\
-`“It’s not going to be a day-to-day thing,” Steve Kerr said. “It was a significant sprain.”`\
-https://nytimes.com/athletic/6038131/2025/01/05/warriors-grizzlies-jonathan-kuminga-ankle-sprain/
+**Chiefs at Broncos: How to watch, odds, expert picks with Denver trying to clinch postseason**\
+`Facing a win-and-in scenario to make the playoffs, the Denver Broncos host the Kansas City Chiefs.`\
+https://nytimes.com/athletic/6035782/2025/01/05/chiefs-broncos-how-to-watch-odds-picks-betting/
 
-**The Hard Reality American Expats Quickly Learn**\
-`Expatriation was nonetheless the making of me: liberated me, humbled me, revealed to me who I was and what I wanted my life to be.`\
-https://nytimes.com/2025/01/05/opinion/america-expat-living-abroad.html
+**Texans at Titans: How to watch, odds, expert picks with Tennessee holding No. 2 draft pick**\
+`The Tennessee Titans are among the teams with enough losses to make a bid for the top pick in next spring's draft.`\
+https://nytimes.com/athletic/6034639/2025/01/05/texans-titans-how-to-watch-odds-picks-betting/
 
-**John Bolton: Presidents Expect Loyalty. Trump Demands Fealty.**\
-`Neither kings nor presidents, nor their countries, are well served if they are surrounded by sycophants and rent-seekers.`\
-https://nytimes.com/2025/01/05/opinion/trump-loyalty-cabinet-presidents.html
+**In Damascus, Syrians Reclaim Freedoms Off Limits Under al-Assad**\
+`Residents of Syria’s capital are picnicking on a once-forbidden mountaintop and trading openly in dollars and imported Nescafe. They say the city seems theirs again.`\
+https://nytimes.com/2025/01/05/world/middleeast/damascus-syria-freedoms-al-assad.html
 
