@@ -23,7 +23,7 @@ https://nytimes.com/2025/01/05/arts/design/brooklyn-academy-of-music-onassis-ony
 https://nytimes.com/athletic/6038529/2025/01/05/bucks-nba-giannis-lillard-losses/
 
 **American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
-`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
+`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the overall title.`\
 https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
 
 **American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
