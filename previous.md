@@ -1,3 +1,7 @@
+**NFL Week 18 top storylines: Lions-Vikings fight for NFC No. 1; do Broncos, Bucs make playoffs?**\
+`The regular season closes Sunday night with a clash of two 14-2 teams. Also: Is Sunday Aaron Rodgers' last NFL game?`\
+https://nytimes.com/athletic/6033728/2025/01/05/nfl-week-18-storylines-lions-vikings-broncos-bucs/
+
 **Jaguars at Colts: How to watch, odds, expert picks with Indianapolis as home favorite**\
 `Two AFC South teams completing disappointing seasons and facing uncertain futures meet when the Colts welcome the Jaguars. `\
 https://nytimes.com/athletic/6034663/2025/01/05/jaguars-colts-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035782/2025/01/05/chiefs-broncos-how-to-watch-odds
 **Texans at Titans: How to watch, odds, expert picks with Tennessee holding No. 2 draft pick**\
 `The Tennessee Titans are among the teams with enough losses to make a bid for the top pick in next spring's draft.`\
 https://nytimes.com/athletic/6034639/2025/01/05/texans-titans-how-to-watch-odds-picks-betting/
-
-**In Damascus, Syrians Reclaim Freedoms Off Limits Under al-Assad**\
-`Residents of Syria’s capital are picnicking on a once-forbidden mountaintop and trading openly in dollars and imported Nescafe. They say the city seems theirs again.`\
-https://nytimes.com/2025/01/05/world/middleeast/damascus-syria-freedoms-al-assad.html
 

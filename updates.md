@@ -1,3 +1,7 @@
+**NFL Week 18 top storylines: Lions-Vikings fight for NFC No. 1; do Broncos, Bucs make playoffs?**\
+`The regular season closes Sunday night with a clash of two 14-2 teams. Also: Is Sunday Aaron Rodgers' last NFL game?`\
+https://nytimes.com/athletic/6033728/2025/01/05/nfl-week-18-storylines-lions-vikings-broncos-bucs/
+
 **Jaguars at Colts: How to watch, odds, expert picks with Indianapolis as home favorite**\
 `Two AFC South teams completing disappointing seasons and facing uncertain futures meet when the Colts welcome the Jaguars. `\
 https://nytimes.com/athletic/6034663/2025/01/05/jaguars-colts-how-to-watch-odds-picks-betting/
