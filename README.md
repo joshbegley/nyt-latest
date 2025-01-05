@@ -1,3 +1,15 @@
+**No. 5 Alabama trounces No. 12 Oklahoma in SEC opener: Key takeaways**\
+`SEC Preseason Player of the Year Mark Sears was his normal self, scoring 22 points with 10 assists and most impressively: zero turnovers.`\
+https://nytimes.com/athletic/6037994/2025/01/04/alabama-oklahoma-ncaa-basketball-score-takeaways/
+
+**Kawhi Leonard returning to court after missing season's first 34 games**\
+`The two-time NBA Finals MVP and two-time Defensive Player of the Year hasn't played in a game since April.`\
+https://nytimes.com/athletic/6037870/2025/01/04/kawhi-leonard-clippers-return/
+
+**Olympic Sprinter Charged in Confrontation With Miami Beach Police**\
+`A lawyer for Fred Kerley, a two-time Olympic medalist, described the police handling of the situation as “an unreasonable use of force.”`\
+https://nytimes.com/2025/01/04/us/olympian-arrested-miami-beach.html
+
 **Ravens beat Browns 35-10 to clinch AFC North, Jackson makes history: Takeaways**\
 `Jackson became the first quarterback in NFL history to surpass 4,000 passing yards and 800 rushing yards in a season.`\
 https://nytimes.com/athletic/6037947/2025/01/04/browns-ravens-score-result-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6037847/2025/01/04/ravens-zay-flowers-knee-injury/
 **Jimmy Carter’s Funeral Events Begin in Georgia**\
 `A motorcade carrying the remains of Jimmy Carter passed through the former president’s hometown and the Georgia State Capitol before ending at the Carter Center for a memorial service.`\
 https://nytimes.com/video/us/100000009908238/jimmy-carter-funeral-procession.html
-
-**All Things Change**\
-`Kareem Ayas rolls up with a sparkling Sunday puzzle.`\
-https://nytimes.com/2025/01/04/crosswords/daily-puzzle-2025-01-05.html
-
-**Ralph Lauren Makes Fashion History With Top Civilian Honor**\
-`After decades of being nearly synonymous with American fashion, the 85-year-old became the first fashion designer to win the Presidential Medal of Freedom.`\
-https://nytimes.com/2025/01/04/style/ralph-lauren-presidential-medal-freedom.html
-
-**Bucs' Jordan Whitehead involved in car crash, placed on NFI list**\
-`The crash occurred as Whitehead was traveling to the team's practice facility Saturday morning, the Buccaneers said in a statement.`\
-https://nytimes.com/athletic/6037773/2025/01/04/buccaneers-jordan-whitehead-car-crash-injury/
 
