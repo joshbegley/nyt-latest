@@ -1,3 +1,11 @@
+**‘Not hard enough’: When Bruins' offense finally appears, their defense goes missing**\
+`David Pastrnak scored two goals, but it wasn't enough as the Bruins fell 6-4 to the Maple Leafs.`\
+https://nytimes.com/athletic/6038109/2025/01/04/bruins-maple-leafs-david-pastrnak/
+
+**Greenberg: 'People’s champ' Derrick Rose brings belief back to Chicago on a joyful night**\
+`The Bulls pulled off a heartwarming event honoring Rose. The arena was packed. The vibe was love. Scores of old teammates joined the fun.`\
+https://nytimes.com/athletic/6038081/2025/01/04/derrick-rose-night-chicago-bulls-knicks/
+
 **A Browns season filled with disappointment finally comes to an end**\
 `After falling to the AFC North division-winning Ravens, Cleveland finishes 3-14 and enters an offseason full of uncertainty.  `\
 https://nytimes.com/athletic/6038067/2025/01/04/browns-season-finale-loss-ravens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6037994/2025/01/04/alabama-oklahoma-ncaa-basketball
 **Kawhi Leonard returns to court after missing season's first 34 games**\
 `The two-time NBA Finals MVP and two-time Defensive Player of the Year hasn't played in an NBA game since April.`\
 https://nytimes.com/athletic/6037870/2025/01/04/kawhi-leonard-clippers-return/
-
-**Olympic Sprinter Charged in Confrontation With Miami Beach Police**\
-`A lawyer for Fred Kerley, a two-time Olympic medalist, described the police handling of the situation as “an unreasonable use of force.”`\
-https://nytimes.com/2025/01/04/us/olympian-arrested-miami-beach.html
-
-**Ravens beat Browns 35-10 to clinch AFC North, Jackson makes history: Takeaways**\
-`Jackson became the first quarterback in NFL history to surpass 4,000 passing yards and 800 rushing yards in a season.`\
-https://nytimes.com/athletic/6037947/2025/01/04/browns-ravens-score-result-takeaways/
 
