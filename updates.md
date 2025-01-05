@@ -1,3 +1,19 @@
+**USMNT's Robinson voted U.S. Soccer Male Player of the Year**\
+`Antonee Robinson, the USMNT and Fulham defender, has been voted as the 2024 U.`\
+https://nytimes.com/athletic/6038980/2025/01/05/antonee-robinson-usmnt-player-of-the-year/
+
+**The Uneasy Relationship Between New Orleans and Its Most Famous Street**\
+`Bourbon Street is the lifeblood of the New Orleans tourist industry. But after an attack that killed 14, along with other recent violence, some people who work and live there wish for change.`\
+https://nytimes.com/2025/01/05/us/bourbon-street-attack-safety-tourism.html
+
+**The Briefing: Liverpool 2 Manchester United 2 - Something for everyone in incredible rollercoaster game at Anfield**\
+`Our writers break down the action from a four-goal thriller at Anfield.`\
+https://nytimes.com/athletic/6033290/2025/01/05/liverpool-manchester-united-amorim-slot/
+
+**Ukraine Launches New Attack in Kursk Region of Western Russia**\
+`Ukrainian forces’ assault was in the Russian region where they made a surprise incursion last summer.`\
+https://nytimes.com/2025/01/05/world/europe/ukraine-attack-kursk-russia.html
+
 **Hailing a Car in Midtown Manhattan is Becoming More Expensive**\
 `Transportation officials want to reduce the number of taxis, Ubers and Lyfts that idle in heavy traffic. To do that, they will charge riders new fees.`\
 https://nytimes.com/2025/01/05/nyregion/congestion-pricing-uber-lyft.html
