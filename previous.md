@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Luca Del Bel Belluz becoming a bona fide NHL prospect**\
+`In his second AHL season, the Blue Jackets' second-round pick (No. 44) in 2022 leads the league in scoring with 17-19-36 in 33 games.`\
+https://nytimes.com/athletic/6038557/2025/01/05/blue-jackets-nhl-prospect-del-bel-belluz/
+
 **Jimenez becomes highest-scoring Mexican in Premier League history**\
 `Fulham head coach Marco Silva hailed Raul Jimenez’s “incredible achievement” after the striker became Mexico’s highest-scoring Premier League footballer with 55 goals.`\
 https://nytimes.com/athletic/6038873/2025/01/05/raul-jimenez-mexico-premier-league-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/arts/music/bad-bunny-album-debi-tirar-mas-fotos.h
 **NFL Week 18 fantasy football, betting cheat sheet: Eagles stars ruled out**\
 `Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
 https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-betting-cheat-sheet/
-
-**Godfrey completes loan move to Ipswich from Atalanta**\
-`Ipswich Town have completed the signing of Ben Godfrey on loan until the end of the season.`\
-https://nytimes.com/athletic/6035941/2025/01/05/ipswich-transfers-ben-godfrey/
 

@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Luca Del Bel Belluz becoming a bona fide NHL prospect**\
+`In his second AHL season, the Blue Jackets' second-round pick (No. 44) in 2022 leads the league in scoring with 17-19-36 in 33 games.`\
+https://nytimes.com/athletic/6038557/2025/01/05/blue-jackets-nhl-prospect-del-bel-belluz/
+
 **Bad Bunny Talks Coming Back Home on His ‘Most Puerto Rican’ Album Yet**\
 `In an exclusive video interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
 https://nytimes.com/2025/01/05/arts/music/bad-bunny-album-debi-tirar-mas-fotos.html
