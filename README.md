@@ -1,3 +1,7 @@
+**Eagles end regular season with 14 wins with victory over Giants: Takeaways**\
+`The Eagles flexed their reserves in Sunday's win, as rookies Ainias Smith and  E.J. Jenkins both caught their first career TDs.`\
+https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takeaways/
+
 **Golden Globes Live Updates: Red Carpet Being Readied as Stars Head to Ceremony**\
 `The event, which honors work in both film and television, will begin at 8 p.m. Eastern time, 5 p.m. Pacific time, at the Beverly Hilton in Beverly Hills, Calif.`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037633/2025/01/05/giants-brian-daboll-joe-schoen-f
 **Falcons miss playoffs, Bryce Young has career day in Panthers win: Takeaways**\
 `Atlanta will miss the postseason for the seventh consecutive year, while Young gave Carolina plenty to be optimistic about.`\
 https://nytimes.com/athletic/6038660/2025/01/05/panthers-falcons-score-result-takeaways/
-
-**McLaurin's late TD propels Commanders to win over Cowboys, No. 6 seed: Takeaways**\
-`Commanders cap off 12-win season with five-game winning streak heading into the postseason. `\
-https://nytimes.com/athletic/6038664/2025/01/05/commanders-cowboys-result-score-takeaways/
 
