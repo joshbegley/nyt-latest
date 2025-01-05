@@ -1,7 +1,3 @@
-**Costas Simitis, 2-Time Prime Minister of Greece, Dies at 88**\
-`Mr. Simitis imposed financial measures to prepare for Greece’s entry into the eurozone and laid the groundwork for the Olympic Games’ return to Athens.`\
-https://nytimes.com/2025/01/05/obituaries/costas-simitis-dead.html
-
 **Cade Cunningham shows another dimension for Pistons with offensive aggression**\
 `Cunningham dropped a season-high 40 against Minnesota on Saturday, looking for his shot early and often.`\
 https://nytimes.com/athletic/6038290/2025/01/05/cade-cunningham-pistons-timberwolves/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey
 **Chris Finch backs struggling Wolves starters, says there are no plans to change course**\
 `A low-energy performance in Detroit was just the latest example of Minnesota's lack of cohesion and chemistry.`\
 https://nytimes.com/athletic/6037997/2025/01/05/chris-finch-anthony-edwards-rudy-gobert-julius-randle-timberwolves-pistons-nba/
+
+**How Kawhi Leonard's return felt at Intuit Dome, and how he resets the LA Clippers**\
+`Clippers staff and fans almost couldn't believe Kawhi was making his Intuit Dome debut, even as he operated like a role player.`\
+https://nytimes.com/athletic/6038382/2025/01/05/kawhi-leonard-return-intuit-dome-expectations-nba/
 
