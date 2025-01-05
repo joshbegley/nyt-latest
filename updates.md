@@ -1,3 +1,7 @@
+**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
+`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the overall title.`\
+https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
+
 **NFL Week 18 fantasy football, betting cheat sheet: Amari Cooper out, Philly stars doubtful**\
 `Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
 https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-betting-cheat-sheet/
