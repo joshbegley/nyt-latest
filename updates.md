@@ -1,3 +1,15 @@
+**Bad Bunny on His ‘Most Puerto Rican’ Album Yet**\
+`In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
+https://nytimes.com/video/podcasts/100000009905944/bad-bunny-popcast.html
+
+**The Pulse: A great NFL MVP debate**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6038773/2025/01/05/nfl-mvp-jackson-allen-watch-guide-the-pulse/
+
+**Ukraine Launches Fresh Attack in Kursk Region of Western Russia**\
+`Ukrainian forces’ assault was in the Russian region where they made a surprise incursion last summer.`\
+https://nytimes.com/2025/01/05/world/europe/ukraine-attack-kursk-russia.html
+
 **Demi Moore, Nicole Kidman and Colman Domingo Party Before the Golden Globes**\
 `Celebrities packed into a suite at the Chateau Marmont in Los Angeles for the W Magazine party on Saturday night.`\
 https://nytimes.com/2025/01/05/fashion/w-magazine-golden-globes-party-photos.html
