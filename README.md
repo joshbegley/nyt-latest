@@ -1,3 +1,11 @@
+**Live Updates: Congestion Pricing Begins After Long Delay**\
+`The New York City tolling plan, the first of its kind in the country, finally debuts after being halted just weeks before its original start date last summer.`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey
+
+**Chris Finch backs struggling Wolves starters, says there are no plans to change course**\
+`A low-energy performance in Detroit was just the latest example of Minnesota's lack of cohesion and chemistry.`\
+https://nytimes.com/athletic/6037997/2025/01/05/chris-finch-anthony-edwards-rudy-gobert-julius-randle-timberwolves-pistons-nba/
+
 **How Kawhi Leonard's return felt at Intuit Dome, and how he resets the LA Clippers**\
 `Clippers staff and fans almost couldn't believe Kawhi was making his Intuit Dome debut, even as he operated like a role player.`\
 https://nytimes.com/athletic/6038382/2025/01/05/kawhi-leonard-return-intuit-dome-expectations-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/05/opinion/jan-6-pardons.html
 **The Connections Companion No. 575**\
 `Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2024.`\
 https://nytimes.com/2025/01/05/crosswords/connections-companion-575.html
-
-**Enough With the Land Acknowledgments**\
-`Instead of proclaiming performative acknowledgments of Native peoples, institutions should establish strong relationships with Native nations.`\
-https://nytimes.com/2025/01/05/opinion/indigenous-people-land-acknowledgments.html
-
-**Wordle Review No. 1,297**\
-`Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2025.`\
-https://nytimes.com/2025/01/05/crosswords/wordle-review-1297.html
 
