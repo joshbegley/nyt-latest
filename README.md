@@ -1,5 +1,25 @@
+**World Juniors Today: Previewing USA-Finland and Sweden-Czechia**\
+`It's the final day of the 2025 World Juniors in Ottawa. By day's end, we'll have a champion.`\
+https://nytimes.com/athletic/6029910/2025/01/05/world-juniors-2025-usa-finland/
+
+**For Many of Us, Jan. 6 Never Ended**\
+`Donald Trump is promising to pardon Jan. 6 rioters. But we can’t let him rewrite history.`\
+https://nytimes.com/2025/01/05/opinion/jan-6-pardons.html
+
+**The Connections Companion No. 575**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2024.`\
+https://nytimes.com/2025/01/05/crosswords/connections-companion-575.html
+
+**Enough With the Land Acknowledgments**\
+`Instead of proclaiming performative acknowledgments of Native peoples, institutions should establish strong relationships with Native nations.`\
+https://nytimes.com/2025/01/05/opinion/indigenous-people-land-acknowledgments.html
+
+**Wordle Review No. 1,297**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 6, 2025.`\
+https://nytimes.com/2025/01/05/crosswords/wordle-review-1297.html
+
 **Israel’s Military Pounds Gaza as Pressure Mounts for Cease-fire**\
-`The Israeli military said it struck more than 100 targets across the enclave over the weekend. Israeli and Hamas officials have been holding indirect cease-fire talks via mediators in Qatar.`\
+`Gaza’s health ministry said that 88 people had been killed over the past day. Israeli and Hamas officials have been holding indirect cease-fire talks via mediators in Qatar.`\
 https://nytimes.com/2025/01/05/world/middleeast/israels-military-pounds-gaza-as-pressure-mounts-for-cease-fire.html
 
 **How will Oregon respond — and retool — after humbling Rose Bowl loss to Ohio State?**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6034663/2025/01/05/jaguars-colts-how-to-watch-odds-
 **Rosenthal: Orioles' tepid offseason makes them unlikely to unseat Yankees as AL favorites**\
 `Baltimore has only signed one player to a multiyear deal since Orioles GM Mike Elias took over in November 2018.`\
 https://nytimes.com/athletic/6037958/2025/01/05/orioles-offseason-spending-roki-sasaki-timeline/
-
-**Chargers at Raiders: How to watch, odds, expert picks with Los Angeles bound for playoffs**\
-`An AFC West rivalry renews Sunday afternoon — admittedly with low stakes — with the 10-6 Los Angeles Chargers as comfortable favorites.`\
-https://nytimes.com/athletic/6035864/2025/01/05/chargers-raiders-how-to-watch-odds-picks-betting/
-
-**Bears at Packers: How to watch, odds, expert picks for century-old rivalry series**\
-`The Green Bay Packers can lock up the No. 6 seed with a win over the Chicago Bears on Sunday, combined with a Washington loss at Dallas.`\
-https://nytimes.com/athletic/6034615/2025/01/05/bears-packers-how-to-watch-odds-picks-betting/
-
-**Panthers at Falcons: How to watch, odds, expert picks as Atlanta fights for NFC South title**\
-`With an outside chance to nab the NFC South title and the conference’s last playoff spot, the Falcons play host to the Panthers.`\
-https://nytimes.com/athletic/6034570/2025/01/05/panthers-falcons-how-to-watch-odds-picks-betting/
-
-**A Gas Cutoff Sends Shivers Through a Russian-Backed Breakaway Region**\
-`A renegade part of Moldova once boasted it would become a Russian-speaking Switzerland. Now without gas, its leader assured residents, “We will not allow a societal collapse.”`\
-https://nytimes.com/2025/01/05/world/europe/russia-gas-moldova-transnistria.html
-
-**As Democrats Reel, Two Front-Runners Emerge in a Leadership Battle**\
-`The race to lead the Democratic National Committee centers on the favorites, Ken Martin and Ben Wikler, but the party’s infighting over them looks nothing like a broad reckoning with its 2024 defeats.`\
-https://nytimes.com/2025/01/05/us/politics/dnc-race-ben-wikler-ken-martin.html
 
