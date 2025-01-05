@@ -1,3 +1,11 @@
+**Mike Vrabel, Brian Flores and the top candidates to be the Patriots’ next head coach**\
+`Vrabel may be the top candidate, but here are some of the other options the Patriots are likely to consider after parting with Mayo.`\
+https://nytimes.com/athletic/6037622/2025/01/05/patriots-head-coach-candidates-mike-vrabel-brian-flores/
+
+**The Hollywood Foreign Press Association is gone. Its scandals will live on.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/the-hollywood-foreign-press-association-is-gone-its-scandals-will-live-on
+
 **Eagles end regular season with 14 wins with victory over Giants: Takeaways**\
 `The Eagles flexed their reserves in Sunday's win, as rookies Ainias Smith and  E.J. Jenkins both caught their first career TDs.`\
 https://nytimes.com/athletic/6038688/2025/01/05/giants-eagles-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6038994/2025/01/05/aaron-rodgers-500-touchdown-jets
 **Patriots fire Jerod Mayo after one season, expected to pursue Mike Vrabel**\
 `Bill Belichick's successor becomes the first one-and-done coach under Robert Kraft's ownership. The team is expected to target Vrabel.`\
 https://nytimes.com/athletic/5990877/2025/01/05/patriots-jerod-mayo-fired-mike-vrabel/
-
-**Should Giants fire Brian Daboll and Joe Schoen? Bring both back? Breaking down every option**\
-`The Giants have gotten worse under this regime, but ownership doesn't want to start over again. What will John Mara and Steve Tisch do?`\
-https://nytimes.com/athletic/6037633/2025/01/05/giants-brian-daboll-joe-schoen-front-office-options/
-
-**Falcons miss playoffs, Bryce Young has career day in Panthers win: Takeaways**\
-`Atlanta will miss the postseason for the seventh consecutive year, while Young gave Carolina plenty to be optimistic about.`\
-https://nytimes.com/athletic/6038660/2025/01/05/panthers-falcons-score-result-takeaways/
 
