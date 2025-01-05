@@ -1,3 +1,15 @@
+**The Hard Reality American Expats Quickly Learn**\
+`Expatriation was nonetheless the making of me: liberated me, humbled me, revealed to me who I was and what I wanted my life to be.`\
+https://nytimes.com/2025/01/05/opinion/america-expat-living-abroad.html
+
+**John Bolton: Presidents Expect Loyalty. Trump Demands Fealty.**\
+`Neither kings nor presidents, nor their countries, are well served if they are surrounded by sycophants and rent-seekers.`\
+https://nytimes.com/2025/01/05/opinion/trump-loyalty-cabinet-presidents.html
+
+**The Future of the Democratic Party Is Rolling Down Broadway**\
+`A model for how to deliver for voters without getting stuck in a traffic jam — political or otherwise.`\
+https://nytimes.com/2025/01/05/opinion/democratic-party-new-york-congestion.html
+
 **Dmitri Voronkov scores twice, Blue Jackets survive wild third for bounce-back win**\
 `Voronkov continued his torrid scoring pace to help the Blue Jackets to a 6-4 win over the Blues.`\
 https://nytimes.com/athletic/6038077/2025/01/05/dmitri-voronkov-blue-jackets-win/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6004266/2025/01/05/american-owner-investment-efl/
 **Savinho finds his feet to help Erling Haaland mask Manchester City's frailties**\
 `The Brazilian has taken his time to make a mark since arriving from Girona but showcased his class and potential against West Ham`\
 https://nytimes.com/athletic/6037637/2025/01/05/savinho-haaland-manchester-city-west-ham/
-
-**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
-`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
-`\
-https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
-
-**'On a fair and even playing ground, Tottenham win that game' - analysing Postecoglou's post-match complaints**\
-`The Spurs head coach wore his heart on his sleeve through his post-match media duties, but were his objections valid?`\
-https://nytimes.com/athletic/6037570/2025/01/05/tottenham-postecoglou-newcastle-referee-illness/
-
-**Leeds have been warned - this kind of sloppiness can cost a team promotion**\
-`Daniel Farke admitted his side are not 'the finished product', but lessons must be learned from the damaging late capitulation at Hull`\
-https://nytimes.com/athletic/6037087/2025/01/05/leeds-hull-promotion-farke/
 
