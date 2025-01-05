@@ -1,3 +1,11 @@
+**Demi Moore, Nicole Kidman and Colman Domingo Party Before the Golden Globes**\
+`Celebrities packed into a suite at the Chateau Marmont in Los Angeles for the W Magazine party on Saturday night.`\
+https://nytimes.com/2025/01/05/fashion/w-magazine-golden-globes-party-photos.html
+
+**Bad Bunny Talks Coming Back Home on His ‘Most Puerto Rican’ Album Yet**\
+`In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
+https://nytimes.com/2025/01/05/arts/music/bad-bunny-album-debi-tirar-mas-fotos.html
+
 **NFL Week 18 fantasy football, betting cheat sheet: Amari Cooper out, Philly stars doubtful**\
 `Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
 https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-betting-cheat-sheet/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-there
 **American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
 `Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
 https://nytimes.com/athletic/6037272/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
-
-**Companies could pass on the cost of congestion pricing tolls to consumers.**\
-`Trucks entering the congestion pricing zone will pay up to $21.60, with no cap on the number of tolls per day.`\
-https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/companies-could-pass-on-the-cost-of-congestion-pricing-tolls-to-consumers
-
-**Amazon adds Dirk Nowitzki, Blake Griffin to NBA studio coverage**\
-`Griffin and Nowitzki will join host Taylor Rooks when Amazon begins its NBA package in the 2025-26 season.`\
-https://nytimes.com/athletic/6038635/2025/01/05/amazon-nba-coverage-blake-griffin-dirk-nowitzki/
 
