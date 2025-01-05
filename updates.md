@@ -1,3 +1,7 @@
+**Browns fire OC Dorsey, OL coach Dickerson after 1 season in Cleveland**\
+`Cleveland’s offense floundered in 2024, leading the unit to finishing last in the league in numerous categories.`\
+https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dickerson/
+
 **Why New York’s congestion pricing tolls started at midnight Sunday.**\
 `The program was eased into place in the middle of a weekend night in case of unexpected kinks.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday
