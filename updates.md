@@ -1,3 +1,27 @@
+**Golden Globes Live Updates: Red Carpet Being Readied as Stars Head to Ceremony**\
+`The event, which honors work in both film and television, will begin at 8 p.m. Eastern time, 5 p.m. Pacific time, at the Beverly Hilton in Beverly Hills, Calif.`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes
+
+**Here’s how to watch the ceremony and the red carpet.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-how-to-watch-the-ceremony-and-the-red-carpet
+
+**The Globes have fixed old problems. But now there are new ones.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/the-globes-have-fixed-old-problems-but-now-there-are-new-ones
+
+**Israel Conducts Raids in Syria Amid Accusations of Cease-Fire Violations**\
+`Four weeks after the fall of the Assad regime, Israel is pressing on with a military campaign on Syrian soil.`\
+https://nytimes.com/2025/01/05/world/middleeast/israel-raids-syria.html
+
+**Bucs comes back on Saints in 27-19 as Mike Evans makes history: Takeaways**\
+`The Buccaneers (10-7) will now await the result of the Seattle Seahawks-Los Angeles Rams game to determine their seeding in the playoffs.`\
+https://nytimes.com/athletic/6038692/2025/01/05/saints-buccaneers-score-result-takeaways/
+
+**Aaron Rodgers throws 500th TD as his Jets future remains uncertain**\
+`Rodgers' milestone comes as the four-time MVP's future with the Jets and in the NFL has been the subject of much speculation. `\
+https://nytimes.com/athletic/6038994/2025/01/05/aaron-rodgers-500-touchdown-jets/
+
 **Patriots fire Jerod Mayo after one season, expected to pursue Mike Vrabel**\
 `Bill Belichick's successor becomes the first one-and-done coach under Robert Kraft's ownership. The team is expected to target Vrabel.`\
 https://nytimes.com/athletic/5990877/2025/01/05/patriots-jerod-mayo-fired-mike-vrabel/
