@@ -1,6 +1,10 @@
+**Bucks tired of losing to teams with poor records: 'We've gotta turn it around right now'**\
+`For the sixth time this season, the Bucks dropped a game to a sub-.500 team on Saturday, their fourth loss in the last five games. `\
+https://nytimes.com/athletic/6038529/2025/01/05/bucks-nba-giannis-lillard-losses/
+
 **American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
 `Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
-https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug-2/
+https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
 
 **American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
 `Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/us/virginia-babies-icu-nurse-charged.html
 **Should TV Ads for Drugs Be Banned?**\
 `Readers discuss a proposal by some Trump allies. Also: The abuses inside prisons; stories of miracles.`\
 https://nytimes.com/2025/01/05/opinion/tv-ads-for-drugs.html
-
-**Congestion pricing is a New York idea.**\
-`A Columbia University economist, William Vickrey, proposed charging varying tolls for roads and subways in the 1950s.`\
-https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/congestion-pricing-is-a-new-york-idea
 

@@ -1,3 +1,11 @@
+**Bucks tired of losing to teams with poor records: 'We've gotta turn it around right now'**\
+`For the sixth time this season, the Bucks dropped a game to a sub-.500 team on Saturday, their fourth loss in the last five games. `\
+https://nytimes.com/athletic/6038529/2025/01/05/bucks-nba-giannis-lillard-losses/
+
+**American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
+`Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
+https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug/
+
 **American Jessie Diggins finishes third in Tour de Ski as Norwegians top podium**\
 `Trying for a third title in the prestigious event, the American star finished third. Norway's Therese Johaug won the event.`\
 https://nytimes.com/athletic/6038687/2025/01/05/jessie-diggins-tour-de-ski-therese-johaug-2/
