@@ -1,3 +1,7 @@
+**Eating Healthy**\
+`The science behind Well’s ultraprocessed foods challenge.`\
+https://nytimes.com/2025/01/05/briefing/healthy-eating-ultraprocessed-food.html
+
 **Lowetide: Why the Oilers' AHL team has been a curious procurement experiment**\
 `Each Edmonton general manager involved had a different strategy, and some seasons worked out better than others.`\
 https://nytimes.com/athletic/6037283/2025/01/05/edmonton-oilers-ahl-team-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/crosswords/wordle-review-1297.html
 **Israel’s Military Pounds Gaza as Pressure Mounts for Cease-fire**\
 `Gaza’s health ministry said that 88 people had been killed over the past day. Israeli and Hamas officials have been holding indirect cease-fire talks via mediators in Qatar.`\
 https://nytimes.com/2025/01/05/world/middleeast/israels-military-pounds-gaza-as-pressure-mounts-for-cease-fire.html
-
-**How will Oregon respond — and retool — after humbling Rose Bowl loss to Ohio State?**\
-`The Ducks will once again be expected to contend for a Big Ten title in 2025, but Dan Lanning has plenty of holes to fill in the offseason.`\
-https://nytimes.com/athletic/6037601/2025/01/05/oregon-football-rose-bowl-transfer-dan-lanning/
 
