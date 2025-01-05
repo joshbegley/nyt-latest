@@ -1,3 +1,7 @@
+**Costas Simitis, 2-Time Prime Minister of Greece, Dies at 88**\
+`Mr. Simitis imposed financial measures to prepare for Greece’s entry into the eurozone and laid the groundwork for the Olympic Games’ return to Athens.`\
+https://nytimes.com/2025/01/05/world/europe/costas-simitis-dead.html
+
 **Scammers could cheat their way out of congestion pricing tolls.**\
 `The Metrop`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/scammers-could-cheat-their-way-out-of-congestion-pricing-tolls
