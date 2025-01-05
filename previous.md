@@ -1,3 +1,11 @@
+**Even as congestion pricing gets underway, debate over the program goes on.**\
+`By Bernard Mokam`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/even-as-congestion-pricing-gets-underway-debate-over-the-program-goes-on
+
+**Former Nurse Is Charged After Newborn Is Found With Fractures**\
+`Erin Strotman was charged in one case of child abuse, but detectives were also examining other episodes with similar injuries at a Virginia neonatal intensive care unit.`\
+https://nytimes.com/2025/01/05/us/virginia-babies-icu-nurse-charged.html
+
 **Should TV Ads for Drugs Be Banned?**\
 `Readers discuss a proposal by some Trump allies. Also: The abuses inside prisons; stories of miracles.`\
 https://nytimes.com/2025/01/05/opinion/tv-ads-for-drugs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6038382/2025/01/05/kawhi-leonard-return-intuit-dome
 **Eating Healthy**\
 `The science behind Well’s ultraprocessed foods challenge.`\
 https://nytimes.com/2025/01/05/briefing/healthy-eating-ultraprocessed-food.html
-
-**Lowetide: Why the Oilers' AHL team has been a curious procurement experiment**\
-`Each Edmonton general manager involved had a different strategy, and some seasons worked out better than others.`\
-https://nytimes.com/athletic/6037283/2025/01/05/edmonton-oilers-ahl-team-2025/
-
-**Cowboys Today: Top priority in Sunday's game, predictions for season finale**\
-`Will this be Mike McCarthy's final game as the Cowboys play their finale at home against the Commanders?`\
-https://nytimes.com/athletic/6038091/2025/01/05/cowboys-commanders-prediction-mike-mccarthy/
 

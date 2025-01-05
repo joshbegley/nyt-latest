@@ -1,3 +1,11 @@
+**Even as congestion pricing gets underway, debate over the program goes on.**\
+`By Bernard Mokam`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/even-as-congestion-pricing-gets-underway-debate-over-the-program-goes-on
+
+**Former Nurse Is Charged After Newborn Is Found With Fractures**\
+`Erin Strotman was charged in one case of child abuse, but detectives were also examining other episodes with similar injuries at a Virginia neonatal intensive care unit.`\
+https://nytimes.com/2025/01/05/us/virginia-babies-icu-nurse-charged.html
+
 **Should TV Ads for Drugs Be Banned?**\
 `Readers discuss a proposal by some Trump allies. Also: The abuses inside prisons; stories of miracles.`\
 https://nytimes.com/2025/01/05/opinion/tv-ads-for-drugs.html
