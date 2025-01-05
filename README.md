@@ -32,7 +32,7 @@ https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dick
 
 **Why New York’s congestion pricing tolls started at midnight Sunday.**\
 `The program was eased into place in the middle of a weekend night in case of unexpected kinks.`\
-https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday
+https://nytimes.com/2025/01/05/nyregion/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday.html
 
 **Live Updates: New York Begins Congestion Pricing Without Hiccups**\
 `The tolling plan, the first of its kind in the country, started on a Sunday to work out the kinks before rush hour traffic Monday morning. It appeared to be running smoothly as drivers adjusted to the new fee.`\
