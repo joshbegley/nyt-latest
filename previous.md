@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6038980/2025/01/05/antonee-robinson-usmnt-player-of
 https://nytimes.com/2025/01/05/us/bourbon-street-attack-safety-tourism.html
 
 **The Briefing: Liverpool 2 Manchester United 2 - Something for everyone in incredible rollercoaster game at Anfield**\
-`Our writers break down the action from a four-goal thriller at Anfield.`\
+`Our writers break down the action from a four-goal thriller at Anfield`\
 https://nytimes.com/athletic/6033290/2025/01/05/liverpool-manchester-united-amorim-slot/
 
 **Blue Jackets Sunday Gathering: Luca Del Bel Belluz becoming a bona fide NHL prospect**\
