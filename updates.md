@@ -1,3 +1,15 @@
+**The Hard Reality American Expats Quickly Learn**\
+`Expatriation was nonetheless the making of me: liberated me, humbled me, revealed to me who I was and what I wanted my life to be.`\
+https://nytimes.com/2025/01/05/opinion/america-expat-living-abroad.html
+
+**John Bolton: Presidents Expect Loyalty. Trump Demands Fealty.**\
+`Neither kings nor presidents, nor their countries, are well served if they are surrounded by sycophants and rent-seekers.`\
+https://nytimes.com/2025/01/05/opinion/trump-loyalty-cabinet-presidents.html
+
+**The Future of the Democratic Party Is Rolling Down Broadway**\
+`A model for how to deliver for voters without getting stuck in a traffic jam — political or otherwise.`\
+https://nytimes.com/2025/01/05/opinion/democratic-party-new-york-congestion.html
+
 **Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
 `“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
 `\
