@@ -1,3 +1,11 @@
+**McLaurin's late TD propels Commanders win over Cowboys, No. 6 seed: Takeaways**\
+`Commanders cap off 12-win season with five-game winning streak heading into the postseason. `\
+https://nytimes.com/athletic/6038664/2025/01/05/commanders-cowboys-result-score-takeaways/
+
+**Georgia picks up highly touted transfer duo Zachariah and Zion Branch from USC**\
+`Zachariah Branch is the game-changing receiver Georgia needed, while his brother Zion fills a hole at safety.`\
+https://nytimes.com/athletic/6039384/2025/01/05/zachariah-zion-branch-college-football-transfer-portal-georgia/
+
 **Bears snap 11-game losing streak to Packers with 24-22 win: Takeaways**\
 `The Packers' loss clinches the NFC's No. 7 seed with a playoff game in Philadelphia looming.`\
 https://nytimes.com/athletic/6038670/2025/01/05/bears-packers-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6039227/2025/01/05/titans-no-1-pick-2025-draft/
 **Jimmy Carter’s Heart Was in Plains. But His Launchpad Was in Atlanta.**\
 `While his home was always in the small Georgia town, Atlanta gave him the opportunities to cement a political and humanitarian legacy.`\
 https://nytimes.com/2025/01/05/us/jimmy-carter-atlanta-georgia.html
-
-**Pop Stars Inc.**\
-`When art becomes a multimedia global brand.`\
-https://nytimes.com/live/2025/01/02/opinion/thepoint/pop-stars-inc
-
-**Monday Briefing: How Trump Re-Wrote Jan. 6**\
-`Plus, the end of an era for Hong Kong’s cabbies`\
-https://nytimes.com/2025/01/05/briefing/trump-jan6-russia-syria.html
 
