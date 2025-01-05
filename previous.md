@@ -1,3 +1,7 @@
+**California Police Department Agrees to Reforms After Federal Inquiry**\
+`The Antioch Police Department was under investigation by the Justice Department after racist text messages between its officers were released in 2023.`\
+https://nytimes.com/2025/01/05/us/california-antioch-police-department-racism.html
+
 **Bad Bunny on His ‘Most Puerto Rican’ Album Yet**\
 `In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
 https://nytimes.com/video/podcasts/100000009905944/bad-bunny-popcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-ghost-cars-scams.
 **This Might Just Be the Best Way to Eat Kale**\
 `Kale sauce pasta, a recipe I adapted from the chef Joshua McFadden, is still one of my most favorite things to cook.`\
 https://nytimes.com/2025/01/05/dining/easy-kale-pasta-recipe.html
-
-**Can BAM Be a Trailblazer Again Through A. I.?**\
-`The Brooklyn organization, seeking new audiences and pushing boundaries, debuts Techne, four digital installations from the Onassis Foundation’s ONX Studio.`\
-https://nytimes.com/2025/01/05/arts/design/brooklyn-academy-of-music-onassis-onyx-ai-computer.html
 
