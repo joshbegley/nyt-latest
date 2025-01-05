@@ -1,3 +1,7 @@
+**Warriors beat Grizzlies but lose Jonathan Kuminga to 'significant' ankle sprain**\
+`“It’s not going to be a day-to-day thing,” Steve Kerr said. “It was a significant sprain.”`\
+https://nytimes.com/athletic/6038131/2025/01/05/warriors-grizzlies-jonathan-kuminga-ankle-sprain/
+
 **The Hard Reality American Expats Quickly Learn**\
 `Expatriation was nonetheless the making of me: liberated me, humbled me, revealed to me who I was and what I wanted my life to be.`\
 https://nytimes.com/2025/01/05/opinion/america-expat-living-abroad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035519/2025/01/05/liverpool-manchester-united-prem
 **A breath of fresh air? Why so many Americans are investing in English football clubs**\
 `The Athletic visited U.S.-owned clubs around the country to find out...`\
 https://nytimes.com/athletic/6004266/2025/01/05/american-owner-investment-efl/
-
-**Savinho finds his feet to help Erling Haaland mask Manchester City's frailties**\
-`The Brazilian has taken his time to make a mark since arriving from Girona but showcased his class and potential against West Ham`\
-https://nytimes.com/athletic/6037637/2025/01/05/savinho-haaland-manchester-city-west-ham/
 

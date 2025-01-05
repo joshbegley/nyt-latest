@@ -1,3 +1,7 @@
+**Warriors beat Grizzlies but lose Jonathan Kuminga to 'significant' ankle sprain**\
+`“It’s not going to be a day-to-day thing,” Steve Kerr said. “It was a significant sprain.”`\
+https://nytimes.com/athletic/6038131/2025/01/05/warriors-grizzlies-jonathan-kuminga-ankle-sprain/
+
 **The Hard Reality American Expats Quickly Learn**\
 `Expatriation was nonetheless the making of me: liberated me, humbled me, revealed to me who I was and what I wanted my life to be.`\
 https://nytimes.com/2025/01/05/opinion/america-expat-living-abroad.html
