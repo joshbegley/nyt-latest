@@ -1,3 +1,7 @@
+**Golden Globes Photos: See All the Looks From the Red Carpet**\
+`Stars have begun arriving for the 82nd Golden Globes, an awards season opener of sorts celebrating the biggest stars in film and television.`\
+https://nytimes.com/2025/01/05/style/golden-globes-red-carpet-2025-photos.html
+
 **The Golden Globe swag bags have no shame.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/the-golden-globe-swag-bags-have-no-shame
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/05/arts/golden-globes/the-globes-have-fixed-old
 **Israel Conducts Raids in Syria Amid Accusations of Cease-Fire Violations**\
 `Four weeks after the fall of the Assad regime, Israel is pressing on with a military campaign on Syrian soil.`\
 https://nytimes.com/2025/01/05/world/middleeast/israel-raids-syria.html
-
-**Bucs comes back on Saints in 27-19 as Mike Evans makes history: Takeaways**\
-`The Buccaneers (10-7) will now await the result of the Seattle Seahawks-Los Angeles Rams game to determine their seeding in the playoffs.`\
-https://nytimes.com/athletic/6038692/2025/01/05/saints-buccaneers-score-result-takeaways/
 
