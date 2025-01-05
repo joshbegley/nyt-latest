@@ -1,3 +1,7 @@
+**A Browns season filled with disappointment finally comes to an end**\
+`After falling to the AFC North division-winning Ravens, Cleveland finishes 3-14 and now enters an offseason full of uncertainty.  `\
+https://nytimes.com/athletic/6038067/2025/01/04/browns-season-finale-loss-ravens/
+
 **Maple Leafs report cards: Matthew Knies dazzles in back-and-forth battle**\
 `Knies scored the first hat trick of his NHL career in a 6-4 win over Boston.`\
 https://nytimes.com/athletic/6037930/2025/01/04/maple-leafs-bruins-matthew-knies-grades/
