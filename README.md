@@ -1,3 +1,7 @@
+**Georgia picks up highly touted transfer duo Zachariah and Zion Branch from USC**\
+`Zachariah Branch is the game-changing receiver Georgia needed, while his brother Zion fills a hole at safety.`\
+https://nytimes.com/athletic/6039384/2025/01/05/zachariah-zion-branch-college-football-transfer-portal-georgia/
+
 **Bears snap 11-game losing streak to Packers with 24-22 win: Takeaways**\
 `The Packers' loss clinches the NFC's No. 7 seed with a playoff game in Philadelphia looming.`\
 https://nytimes.com/athletic/6038670/2025/01/05/bears-packers-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/us/jimmy-carter-atlanta-georgia.html
 **Pop Stars Inc.**\
 `When art becomes a multimedia global brand.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/pop-stars-inc
-
-**Monday Briefing: How Trump Re-Wrote Jan. 6**\
-`Plus, the end of an era for Hong Kong’s cabbies`\
-https://nytimes.com/2025/01/05/briefing/trump-jan6-russia-syria.html
 
