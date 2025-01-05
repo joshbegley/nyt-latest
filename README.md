@@ -1,3 +1,7 @@
+**UD Barbastro 0-4 Barcelona: A distraction from off-field chaos, Araujo's contract and two debuts**\
+`Barcelona avoided a Copa del Rey slip-up against fourth-tier opposition to ease some of the pressure weighing down on them`\
+https://nytimes.com/athletic/6038129/2025/01/05/barcelona-barbastro-olmo-victor-araujo/
+
 **‘A Day of Love’: How Trump Inverted the Violent History of Jan. 6**\
 `The president-elect and his allies have spent four years reinventing the Capitol attack — spreading conspiracy theories and weaving a tale of martyrdom to their ultimate political gain.`\
 https://nytimes.com/2025/01/05/us/politics/january-6-capitol-riot-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/opinion/trump-loyalty-cabinet-presidents.html
 **The Future of the Democratic Party Is Rolling Down Broadway**\
 `A model for how to deliver for voters without getting stuck in a traffic jam — political or otherwise.`\
 https://nytimes.com/2025/01/05/opinion/democratic-party-new-york-congestion.html
-
-**Dmitri Voronkov scores twice, Blue Jackets survive wild third for bounce-back win**\
-`Voronkov continued his torrid scoring pace to help the Blue Jackets to a 6-4 win over the Blues.`\
-https://nytimes.com/athletic/6038077/2025/01/05/dmitri-voronkov-blue-jackets-win/
 
