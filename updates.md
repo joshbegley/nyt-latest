@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi
 `\
 https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
 
+**Mats Zuccarello's advice to Marco Rossi pays off big time for him and the Wild**\
+`“I told Marco, ‘Start passing the puck and stop taking all the glory and just see what happens,'” Zuccarello said.
+`\
+https://nytimes.com/athletic/6038152/2025/01/05/wild-mats-zuccarello-marco-rossi/
+
 **Ravens take AFC North with win over Browns, but celebration is muted by what's next**\
 `Baltimore checked off its first goal of winning the division, but its season was always going to be judged by what happens in the playoffs.`\
 https://nytimes.com/athletic/6038144/2025/01/05/ravens-win-afc-north-browns/
