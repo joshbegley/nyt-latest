@@ -1,3 +1,7 @@
+**Tottenham confirm signing of goalkeeper Kinsky**\
+`Tottenham Hotspur have confirmed the signing of goalkeeper Antonin Kinsky from Slavia Prague.`\
+https://nytimes.com/athletic/6037110/2025/01/05/antonin-kinsky-transfer-tottenham/
+
 **UD Barbastro 0-4 Barcelona: A distraction from off-field chaos, Araujo's contract and two debuts**\
 `Barcelona avoided a Copa del Rey slip-up against fourth-tier opposition to ease some of the pressure weighing down on them`\
 https://nytimes.com/athletic/6038129/2025/01/05/barcelona-barbastro-olmo-victor-araujo/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/opinion/america-expat-living-abroad.html
 **John Bolton: Presidents Expect Loyalty. Trump Demands Fealty.**\
 `Neither kings nor presidents, nor their countries, are well served if they are surrounded by sycophants and rent-seekers.`\
 https://nytimes.com/2025/01/05/opinion/trump-loyalty-cabinet-presidents.html
-
-**The Future of the Democratic Party Is Rolling Down Broadway**\
-`A model for how to deliver for voters without getting stuck in a traffic jam — political or otherwise.`\
-https://nytimes.com/2025/01/05/opinion/democratic-party-new-york-congestion.html
 
