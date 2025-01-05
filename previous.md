@@ -1,3 +1,15 @@
+**Bears snap 11-game losing streak to Packers with 24-22 win: Takeaways**\
+`The Packers' loss clinches the NFC's No. 7 seed with a playoff game in Philadelphia looming.`\
+https://nytimes.com/athletic/6038670/2025/01/05/bears-packers-score-result-takeaways/
+
+**Patriots beat Bills, lose out on 2025 NFL Draft No. 1 pick: Takeaways**\
+`A loss to the Bills would've given New England the No. 1 pick.`\
+https://nytimes.com/athletic/6038682/2025/01/05/bills-patriots-score-result-takeaways/
+
+**Taylor, Colts top Jaguars in OT as both teams enter offseasons full of questions**\
+`Both teams finished disappointing seasons Sunday, but Indianapolis ended on a high note. What's next for both the Colts and Jaguars?`\
+https://nytimes.com/athletic/6038676/2025/01/05/jaguars-colts-score-result-takeaways/
+
 **Austria Coalition Talks Collapse, Raising Prospects for the Far Right**\
 `The leader of the anti-immigrant Freedom Party of Austria, founded by former Nazis in the 1950s, was expected to be asked to enter into talks to form a new government.`\
 https://nytimes.com/2025/01/05/world/europe/austria-coalition-talks-collapse-far-right.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/02/opinion/thepoint/pop-stars-inc
 **Monday Briefing: How Trump Re-Wrote Jan. 6**\
 `Plus, the end of an era for Hong Kong’s cabbies`\
 https://nytimes.com/2025/01/05/briefing/trump-jan6-russia-syria.html
-
-**Driver in Ramming Attack Made Trips to New Orleans and Abroad**\
-`Shamsud-Din Jabbar visited New Orleans twice, and traveled to Egypt and Canada, before a burst of violence early on New Year’s Day that killed 14 people.`\
-https://nytimes.com/2025/01/05/us/new-orleans-attack-travel.html
-
-**Alexander-Arnold not affected by Real Madrid talk, says Slot**\
-`Arne Slot insists speculation over Trent Alexander-Arnold’s future did not impact his performance against Manchester United.`\
-https://nytimes.com/athletic/6039170/2025/01/05/liverpool-alexander-arnold-slot/
-
-**N.Y. Judge’s Ruling Shows How Legal Issues Will Follow Trump Into Office**\
-`Donald Trump may not face a penalty for his conviction in the hush-money case, but he could still be the first felon to be president — and civil proceedings against him continue.`\
-https://nytimes.com/2025/01/05/us/politics/new-york-case-trump-merchan-inauguration.html
 
