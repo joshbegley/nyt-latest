@@ -1,3 +1,7 @@
+**Wild win special teams battle against the NHL's elite: 3 takeaways vs. Hurricanes**\
+`Despite some titans out of their lineup, the Wild defeated the Hurricanes 4-0 and have now won five of their past six games.`\
+https://nytimes.com/athletic/6037961/2025/01/04/wild-hurricanes-takeaways-nhl/
+
 **Corrections: Jan. 5, 2025**\
 `Corrections that appeared in print on Sunday, Jan. 5, 2025.`\
 https://nytimes.com/2025/01/04/pageoneplus/corrections-jan-5-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/04/world/americas/chile-antarctica-boric-competition
 **Italy’s Prime Minister Visits Trump in Mar-a-Lago**\
 `Giorgia Meloni, the Italian prime minister, joins just a handful of other world leaders who have been to the president-elect’s Florida estate since his victory.`\
 https://nytimes.com/2025/01/04/world/europe/italy-donald-trump-meloni-visit.html
-
-**Ravens' leading receiver Zay Flowers ruled out with knee injury vs. Browns**\
-`Since being drafted by the Ravens in the first round of 2023, Flowers leads all Ravens players in targets.`\
-https://nytimes.com/athletic/6037847/2025/01/04/ravens-zay-flowers-knee-injury/
 
