@@ -1,7 +1,3 @@
-**Bad Bunny Talks Coming Back Home on His ‘Most Puerto Rican’ Album Yet**\
-`In an exclusive interview, the world-conquering Latin superstar discusses why his new album is filled with traditional sounds and rhythms from his homeland.`\
-https://nytimes.com/2025/01/05/arts/music/bad-bunny-album-debi-tirar-mas-fotos.html
-
 **NFL Week 18 fantasy football, betting cheat sheet: Amari Cooper out, Philly stars doubtful**\
 `Who's in and who's out for Week 18. Plus weather reports, game previews, Jake Ciely's fantasy football rankings and more. `\
 https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-betting-cheat-sheet/
@@ -10,8 +6,8 @@ https://nytimes.com/athletic/6027968/2025/01/05/nfl-week-18-fantasy-football-bet
 `Ipswich Town have completed the signing of Ben Godfrey on loan until the end of the season.`\
 https://nytimes.com/athletic/6035941/2025/01/05/ipswich-transfers-ben-godfrey/
 
-**Scammers could cheat their way out of congestion pricing tolls.**\
-`The Metrop`\
+**Scammers Could Cheat New York’s New Congestion Pricing Tolls**\
+`Drivers who obscure their plates or otherwise circumvent paying tolls already cost the city’s mass transit system millions of dollars.`\
 https://nytimes.com/2025/01/05/nyregion/nyc-congestion-pricing-ghost-cars-scams.html
 
 **This Might Just Be the Best Way to Eat Kale**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6037272/2025/01/05/jessie-diggins-tour-de-ski-there
 **Companies could pass on the cost of congestion pricing tolls to consumers.**\
 `Trucks entering the congestion pricing zone will pay up to $21.60, with no cap on the number of tolls per day.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/companies-could-pass-on-the-cost-of-congestion-pricing-tolls-to-consumers
+
+**Amazon adds Dirk Nowitzki, Blake Griffin to NBA studio coverage**\
+`Griffin and Nowitzki will join host Taylor Rooks when Amazon begins its NBA package in the 2025-26 season.`\
+https://nytimes.com/athletic/6038635/2025/01/05/amazon-nba-coverage-blake-griffin-dirk-nowitzki/
 
