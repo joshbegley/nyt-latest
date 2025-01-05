@@ -1,3 +1,11 @@
+**Live Updates: Congestion Pricing Begins After Long Delay**\
+`The New York City tolling plan, the first of its kind in the country, finally debuts after being halted just weeks before its original start date last summer.`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey
+
+**Chris Finch backs struggling Wolves starters, says there are no plans to change course**\
+`A low-energy performance in Detroit was just the latest example of Minnesota's lack of cohesion and chemistry.`\
+https://nytimes.com/athletic/6037997/2025/01/05/chris-finch-anthony-edwards-rudy-gobert-julius-randle-timberwolves-pistons-nba/
+
 **How Kawhi Leonard's return felt at Intuit Dome, and how he resets the LA Clippers**\
 `Clippers staff and fans almost couldn't believe Kawhi was making his Intuit Dome debut, even as he operated like a role player.`\
 https://nytimes.com/athletic/6038382/2025/01/05/kawhi-leonard-return-intuit-dome-expectations-nba/
