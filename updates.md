@@ -1,3 +1,7 @@
+**Congestion pricing is a New York idea.**\
+`A Columbia University economist, William Vickrey, proposed charging varying tolls for roads and subways in the 1950s.`\
+https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/congestion-pricing-is-a-new-york-idea
+
 **Browns fire OC Dorsey, OL coach Dickerson after 1 season in Cleveland**\
 `Cleveland’s offense floundered in 2024, leading the unit to finishing last in the league in numerous categories.`\
 https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dickerson/
