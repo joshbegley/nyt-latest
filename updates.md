@@ -1,3 +1,7 @@
+**Jerod Mayo firing was as much about his command off the field as the Patriots' play on it**\
+`Pats fans were rooting for him. But as verbal missteps continued, it became obvious Mayo lacked the proper amount of head-coach training.`\
+https://nytimes.com/athletic/6039200/2025/01/05/jerod-mayo-fired-patriots-column-failures/
+
 **Golden Globes Photos: See All the Looks From the Red Carpet**\
 `Stars have begun arriving for the 82nd Golden Globes, an awards season opener of sorts celebrating the biggest stars in film and television.`\
 https://nytimes.com/2025/01/05/style/golden-globes-red-carpet-2025-photos.html
