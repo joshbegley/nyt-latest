@@ -1,3 +1,19 @@
+**The battle of the pop stars.**\
+`By Stephanie Goodman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/ariana-grande-selena-gomez-golden-globes
+
+**Golden Globes Winners 2025: Updating List**\
+`The winning films, TV shows, actors and production teams at the 2025 Golden Globe Awards.`\
+https://nytimes.com/2025/01/05/movies/golden-globes-winners-2025.html
+
+**Amazon Prime Will Release a Melania Trump Documentary**\
+`The film, billed by the company as a “behind-the-scenes” look at her life, started shooting in December and is slated for theatrical and streaming release later this year.`\
+https://nytimes.com/2025/01/05/business/media/amazon-melania-trump-documentary.html
+
+**NFL playoff picture: AFC, NFC wild-card round seeding with 1 game to go**\
+`Only the NFC North remains up for grabs heading into an enticing "Sunday Night Football" showdown.`\
+https://nytimes.com/athletic/6039712/2025/01/05/nfl-playoff-picture-schedule-matchups-tv-times/
+
 **It's soul-searching time for the Falcons as their playoff drive ends with a thud**\
 `The Falcons lost six of their final eight games to miss the playoffs for the seventh straight season. `\
 https://nytimes.com/athletic/6039728/2025/01/05/falcons-miss-playoffs-panthers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6039745/2025/01/05/blackhawks-sparkplug-energy-rang
 **Go deeper on the six films vying to win best picture in the musical or comedy category.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-musical-comedy
-
-**Go deeper on the dramas that were nominated for best motion picture.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-drama
-
-**Jerod Mayo firing was as much about his command off the field as the Patriots' play on it**\
-`Pats fans were rooting for him. But as verbal missteps continued, it became obvious Mayo lacked the proper amount of head-coach training.`\
-https://nytimes.com/athletic/6039200/2025/01/05/jerod-mayo-fired-patriots-column-failures/
-
-**Golden Globes Photos: See All the Looks From the Red Carpet**\
-`Stars have begun arriving for the 82nd Golden Globes, an awards season opener of sorts celebrating the biggest stars in film and television.`\
-https://nytimes.com/2025/01/05/style/golden-globes-red-carpet-2025-photos.html
-
-**The Golden Globe swag bags have no shame.**\
-`By Brooks Barnes`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/the-golden-globe-swag-bags-have-no-shame
 
