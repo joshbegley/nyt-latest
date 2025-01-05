@@ -1,3 +1,7 @@
+**How Kawhi Leonard's return felt at Intuit Dome, and how he resets the LA Clippers**\
+`Clippers staff and fans almost couldn't believe Kawhi was making his Intuit Dome debut, even as he operated like a role player.`\
+https://nytimes.com/athletic/6038382/2025/01/05/kawhi-leonard-return-intuit-dome-expectations-nba/
+
 **Eating Healthy**\
 `The science behind Well’s ultraprocessed foods challenge.`\
 https://nytimes.com/2025/01/05/briefing/healthy-eating-ultraprocessed-food.html
