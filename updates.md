@@ -1,3 +1,11 @@
+**Lowetide: Why the Oilers' AHL team has been a curious procurement experiment**\
+`Each Edmonton general manager involved had a different strategy, and some seasons worked out better than others.`\
+https://nytimes.com/athletic/6037283/2025/01/05/edmonton-oilers-ahl-team-2025/
+
+**Cowboys Today: Top priority in Sunday's game, predictions for season finale**\
+`Will this be Mike McCarthy's final game as the Cowboys play their finale at home against the Commanders?`\
+https://nytimes.com/athletic/6038091/2025/01/05/cowboys-commanders-prediction-mike-mccarthy/
+
 **Gauff beats Swiatek to help USA to United Cup title in Australia**\
 `Coco Gauff's reworked forehand helped her overcome Iga Swiatek in a match of at times extraordinary quality.`\
 https://nytimes.com/athletic/6038413/2025/01/05/gauff-swiatek-united-cup-usa-poland/
