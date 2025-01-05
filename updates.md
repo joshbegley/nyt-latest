@@ -1,3 +1,11 @@
+**Chiefs depart for Denver after multi-hour delay on tarmac due to ice**\
+`The Chiefs' chartered jet was the first flight out of the airport once operations resumed, per the source.`\
+https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-city-international-airport/
+
+**Ed Foley out as Nebraska's special teams coordinator after 2 seasons of struggles**\
+`Matt Rhule said after the Dec. 28 Pinstripe Bowl victory over Boston College that the special teams needed a “complete and total overhaul."`\
+https://nytimes.com/athletic/6037967/2025/01/04/nebraska-special-teams-ed-foley-matt-rhule/
+
 **Italy’s Prime Minister Visits Trump in Mar-a-Lago**\
 `Giorgia Meloni, the Italian prime minister, joins just a handful of other world leaders who have been to the president-elect’s Florida estate since his victory.`\
 https://nytimes.com/2025/01/04/world/europe/italy-donald-trump-meloni-visit.html

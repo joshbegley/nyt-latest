@@ -1,3 +1,11 @@
+**Chiefs depart for Denver after multi-hour delay on tarmac due to ice**\
+`The Chiefs' chartered jet was the first flight out of the airport once operations resumed, per the source.`\
+https://nytimes.com/athletic/6037897/2025/01/04/chiefs-plane-stranded-kansas-city-international-airport/
+
+**Ed Foley out as Nebraska's special teams coordinator after 2 seasons of struggles**\
+`Matt Rhule said after the Dec. 28 Pinstripe Bowl victory over Boston College that the special teams needed a “complete and total overhaul."`\
+https://nytimes.com/athletic/6037967/2025/01/04/nebraska-special-teams-ed-foley-matt-rhule/
+
 **A Frigid First: Chile’s President Visits Antarctica to Bolster Claims**\
 `Chile’s president traveled to the South Pole, the first visit of any sitting Latin American president, according to his office.`\
 https://nytimes.com/2025/01/04/world/americas/chile-antarctica-boric-competition.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6037773/2025/01/04/buccaneers-jordan-whitehead-car-
 **Bond remains between Penguins and Jordan Staal, who still makes life miserable for his old team**\
 `Staal and the Hurricanes have made life miserable for the Penguins in recent seasons — a team he has fond memories with.`\
 https://nytimes.com/athletic/6032721/2025/01/04/penguins-hurricanes-jordan-staal/
-
-**Offense awakens, defense sags and Mark Messier calls out Rangers: 3 takeaways vs. Capitals**\
-`After a disheartening 7-4 loss to Washington, New York has now lost 16 of its last 21 games.`\
-https://nytimes.com/athletic/6037670/2025/01/04/rangers-capitals-mark-messier-comments/
-
-**Brighton's Joao Pedro praised as 'role model' by Hurzeler after captaincy role**\
-`Head coach Fabian Hurzeler says Joao Pedro was a &#8220;role model&#8221; as captain for Brighton &amp; Hove Albion in their 1-1 home draw with Arsenal.`\
-https://nytimes.com/athletic/6037728/2025/01/04/brighton-captain-joao-pedro-hurzeler/
 
