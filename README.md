@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6033877/2025/01/05/browns-fire-ken-dorsey-andy-dick
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey/why-new-yorks-congestion-pricing-tolls-started-at-midnight-sunday
 
 **Live Updates: Congestion Pricing Begins After Long Delay**\
-`The New York City tolling plan, the first of its kind in the country, finally debuts after being halted just weeks before its original start date last summer.`\
+`The New York City tolling plan, the first of its kind in the country, finally debuted after being halted just weeks before its original start date last summer. Officials started it on a Sunday to work out the kinks before rush hour traffic Monday morning.`\
 https://nytimes.com/live/2025/01/05/nyregion/congestion-pricing-nyc-new-jersey
 
 **Chris Finch backs struggling Wolves starters, says there are no plans to change course**\
