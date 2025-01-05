@@ -1,3 +1,7 @@
+**Kawhi Leonard returns to court after missing season's first 34 games**\
+`The two-time NBA Finals MVP and two-time Defensive Player of the Year hasn't played in an NBA game since April.`\
+https://nytimes.com/athletic/6037870/2025/01/04/kawhi-leonard-clippers-return/
+
 **Kawhi Leonard returning to court after missing season's first 34 games**\
 `The two-time NBA Finals MVP and two-time Defensive Player of the Year hasn't played in an NBA game since April.`\
 https://nytimes.com/athletic/6037870/2025/01/04/kawhi-leonard-clippers-return/

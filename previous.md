@@ -14,7 +14,7 @@ https://nytimes.com/2025/01/04/pageoneplus/corrections-jan-5-2025.html
 `SEC Preseason Player of the Year Mark Sears was his normal self, scoring 22 points with 10 assists and most impressively: zero turnovers.`\
 https://nytimes.com/athletic/6037994/2025/01/04/alabama-oklahoma-ncaa-basketball-score-takeaways/
 
-**Kawhi Leonard returning to court after missing season's first 34 games**\
+**Kawhi Leonard returns to court after missing season's first 34 games**\
 `The two-time NBA Finals MVP and two-time Defensive Player of the Year hasn't played in an NBA game since April.`\
 https://nytimes.com/athletic/6037870/2025/01/04/kawhi-leonard-clippers-return/
 
