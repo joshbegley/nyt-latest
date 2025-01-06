@@ -1,3 +1,11 @@
+**Can You Spot Ultraprocessed Foods? Play Our Supermarket Game.**\
+`Take a virtual shopping trip to learn more about what’s on grocery store shelves.`\
+https://nytimes.com/interactive/2025/01/05/well/eat/ultraprocessed-foods-challenge-quiz.html
+
+**Irsay: Colts to retain coach Steichen, GM Ballard for 2025**\
+`"The expectation is to win our division and compete for championships," the Colts owner said in a statement announcing the decision.`\
+https://nytimes.com/athletic/6040198/2025/01/05/colts-retain-steichen-ballard/
+
 **What will Jerry Jones decide about Mike McCarthy? Potential timeline of decision, more**\
 `The five-year contract McCarthy signed in January 2020 runs out Jan. 14. He made it clear Sunday he wants to remain in Dallas.`\
 https://nytimes.com/athletic/6039815/2025/01/05/cowboys-mike-mccarthy-job-status-jerry-jones/

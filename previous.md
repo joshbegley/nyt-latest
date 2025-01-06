@@ -1,3 +1,11 @@
+**Can You Spot Ultraprocessed Foods? Play Our Supermarket Game.**\
+`Take a virtual shopping trip to learn more about what’s on grocery store shelves.`\
+https://nytimes.com/interactive/2025/01/05/well/eat/ultraprocessed-foods-challenge-quiz.html
+
+**Irsay: Colts to retain coach Steichen, GM Ballard for 2025**\
+`"The expectation is to win our division and compete for championships," the Colts owner said in a statement announcing the decision.`\
+https://nytimes.com/athletic/6040198/2025/01/05/colts-retain-steichen-ballard/
+
 **Retooled Eagles look to prove themselves as Super Bowl contenders in postseason**\
 `The Eagles will first face the Packers, who they last saw in Sao Paulo in the season opener.`\
 https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.ht
 **Biggest Bills questions heading into the postseason**\
 `The Bills will face the Broncos in the wild-card round.`\
 https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questions/
-
-**Cardinals top 49ers in season finale 47-24 as Murray shines: Takeaways**\
-`Arizona (8-9) pulled away from a close game with three fourth-quarter touchdown drives.`\
-https://nytimes.com/athletic/6038700/2025/01/05/49ers-cardinals-score-result-takeaways/
-
-**Hideki Matsuyama sets PGA Tour record with Sentry win**\
-`Matsuyama shot 35-under-par at the Hawaii course, known for its wide fairways and favorable conditions.`\
-https://nytimes.com/athletic/6039947/2025/01/05/hideki-matsuyama-pga-tour-record-score-sentry/
 
