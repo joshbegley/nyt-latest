@@ -1,3 +1,7 @@
+**Kieran Culkin wins his second Globe in two years.**\
+`Culkin and`\
+https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
+
 **Geno Smith throws 4 TD passes in Seahawks' 30-25 win over Rams: Takeaways**\
 `Rams are the No. 4 seed in the NFC and will face the loser of Sunday Night's Detroit Lions vs. Minnesota Vikings game`\
 https://nytimes.com/athletic/6038714/2025/01/05/seahawks-rams-score-result-takeaways/

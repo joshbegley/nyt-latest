@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6039779/2025/01/05/bucs-nfc-south-champions-playoff
 
 **Kieran Culkin wins his second Globe in two years.**\
 `Culkin and`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/kieran-culkin-wins-his-second-globe-in-two-years
+https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
 
 **Biggest Bills questions heading into the postseason**\
 `The Bills will face the Broncos in the wild-card round.`\
