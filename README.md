@@ -1,3 +1,7 @@
+**Dodgers trade Gavin Lux to Reds: Sources**\
+`The Dodgers will receive a prospect and the Reds' competitive balance pick for Lux, who started 117 games at second base in 2024.`\
+https://nytimes.com/athletic/6042920/2025/01/06/dodgers-gavin-lux-trade-reds/
+
 **Dana White, the Ultimate Fighting Championship C.E.O., Joins Meta’s Board**\
 `Mr. White, a close ally of President-elect Donald J. Trump, further strengthens the social media giant’s connections with the incoming administration.`\
 https://nytimes.com/2025/01/06/technology/dana-white-meta-board-ufc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042685/2025/01/06/jets-locker-room-end-of-season/
 **U.S. Eases Some Restrictions on Humanitarian Aid to Syria**\
 `The authorization comes after rebels toppled the Syrian government last month and is intended to allow humanitarian groups to operate more freely without running afoul of U.S. sanctions.`\
 https://nytimes.com/2025/01/06/us/politics/syria-us-sanctions-aid.html
-
-**Rams begin preparing for wild-card matchup with familiar Vikings squad**\
-`The Rams beat the Vikings in Week 8, but Sean McVay points out that a lot has changed since that Oct. 24 game.`\
-https://nytimes.com/athletic/6042384/2025/01/06/rams-wild-card-matchup-vikings-comparison/
 
