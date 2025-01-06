@@ -1,3 +1,19 @@
+**Canucks notebook: Quinn Hughes' return, Danton Heinen's fit and a tough month ahead**\
+`The Canucks have struggled since he holiday break. Returning stars should help as the schedule turns difficult. `\
+https://nytimes.com/athletic/6040887/2025/01/06/canucks-quinn-hughes-injury-january/
+
+**The Bounce: Victor Wembanyama, Nikola Jokić starred in a wild NBA weekend**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6040972/2025/01/06/victor-wembanyama-nikola-jokic-spurs-nuggets-jimmy-butler-heat-nba-the-bounce/
+
+**Bengals fire DC Lou Anarumo, O-line coach Frank Pollack: Sources**\
+`Cincinnati hired Anarumo as defensive coordinator alongside head coach Zac Taylor in 2019.`\
+https://nytimes.com/athletic/5982874/2025/01/06/bengals-lou-anarumo-fired/
+
+**Bengals defensive coordinator search: Who we're hearing as possible candidates**\
+`Zac Taylor should have higher-profile options in filling the position than when he took over as head coach in 2019.`\
+https://nytimes.com/athletic/6040311/2025/01/06/bengals-defensive-coordinator-candidates/
+
 **What forced the Bengals to part ways with DC Lou Anarumo, O-line coach Frank Pollack**\
 `Failure to make the playoffs in a season of top-tier individual performances meant drastic changes needed to be made.`\
 https://nytimes.com/athletic/6040644/2025/01/06/bengals-fire-lou-anarumo-frank-pollack/

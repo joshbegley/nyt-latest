@@ -1,3 +1,19 @@
+**Canucks notebook: Quinn Hughes' return, Danton Heinen's fit and a tough month ahead**\
+`The Canucks have struggled since he holiday break. Returning stars should help as the schedule turns difficult. `\
+https://nytimes.com/athletic/6040887/2025/01/06/canucks-quinn-hughes-injury-january/
+
+**The Bounce: Victor Wembanyama, Nikola Jokić starred in a wild NBA weekend**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6040972/2025/01/06/victor-wembanyama-nikola-jokic-spurs-nuggets-jimmy-butler-heat-nba-the-bounce/
+
+**Bengals fire DC Lou Anarumo, O-line coach Frank Pollack: Sources**\
+`Cincinnati hired Anarumo as defensive coordinator alongside head coach Zac Taylor in 2019.`\
+https://nytimes.com/athletic/5982874/2025/01/06/bengals-lou-anarumo-fired/
+
+**Bengals defensive coordinator search: Who we're hearing as possible candidates**\
+`Zac Taylor should have higher-profile options in filling the position than when he took over as head coach in 2019.`\
+https://nytimes.com/athletic/6040311/2025/01/06/bengals-defensive-coordinator-candidates/
+
 **What forced the Bengals to part ways with DC Lou Anarumo, O-line coach Frank Pollack**\
 `Failure to make the playoffs in a season of top-tier individual performances meant drastic changes needed to be made.`\
 https://nytimes.com/athletic/6040644/2025/01/06/bengals-fire-lou-anarumo-frank-pollack/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6041423/2025/01/06/pga-tour-tour-championship-chang
 **James Rodriguez to leave Rayo Vallecano just four months after joining**\
 `James Rodriguez is set to have his Rayo Vallecano contract terminated and leave the Spanish club as a free agent.`\
 https://nytimes.com/athletic/6041541/2025/01/06/james-rodriguez-transfer-rayo-vallecano/
-
-**The Capitol is fortified, but law enforcement officials see no threat of mob violence.**\
-`With the losing candidate in the presidential race not disputing the outcome and security improved around Congress, authorities say the threat environment is vastly different from four years ago.`\
-https://nytimes.com/live/2025/01/06/us/trump-election-certification/the-capitol-is-fortified-but-law-enforcement-officials-see-no-threat-of-mob-violence
-
-**Hamas Approves List of Hostages It May Free Under a Cease-Fire Deal With Israel**\
-`Israel says Hamas has not provided any information about the status of those 34 hostages, dampening any notion that the endorsement is a step toward a deal to stop the war.`\
-https://nytimes.com/2025/01/06/world/middleeast/israel-hamas-hostage-list-cease-fire.html
-
-**Lakers' athleticism gap on display in loss to younger, more physical Rockets**\
-`Help may be on the way for the Lakers, as Dorian Finney-Smith takes on a bigger role, and Jarred Vanderbilt is close to his season debut.`\
-https://nytimes.com/athletic/6040815/2025/01/06/lakers-rockets-nba-athleticism/
-
-**Russia Claims Control of Key Town as Ukraine Renews Push in Kursk**\
-`Ukraine has largely been driven out of Kurakhove, a battered but strategic town in the Donbas, Russia said. Kyiv’s forces were pressing a renewed offensive in southern Russia.`\
-https://nytimes.com/2025/01/06/world/europe/kurakhove-russia-ukraine-war.html
 
