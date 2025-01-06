@@ -1,3 +1,7 @@
+**A Trudeau Steps Out of Canada’s Boxing Ring. For Now.**\
+`Canadians have soured on his brand of progressivism, but voters are fickle.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/trudeau-canada-steps-down
+
 **First Bird Flu Death in U.S. Reported in Louisiana**\
 `The deceased was over 65 and had other medical conditions, state officials said.`\
 https://nytimes.com/2025/01/06/health/bird-flu-death-louisiana.html
