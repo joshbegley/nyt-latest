@@ -1,3 +1,15 @@
+**Along With Snow, Winter Storm Brings Travel Disruptions**\
+`Air and train travel were snarled by the winter storm, with thousands of flights and dozens of train trips delayed or canceled by Monday afternoon.`\
+https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
+
+**Rays 'support and expect' city to repair damage to Tropicana Field in time for 2026 season**\
+`Hurricane Milton caused over $50 million in damage to Tropicana Field, displacing the Rays from their home for at least the 2025 season.`\
+https://nytimes.com/athletic/6042805/2025/01/06/rays-tropicana-field-repairs-2026/
+
+**Who’s Afraid of a Flying Dior Bag?**\
+`To weigh in on the rash of reported drone sightings without fear of content suppression, Bethenny Frankel borrowed a term from the fashion world.`\
+https://nytimes.com/2025/01/06/style/tiktok-dior-bag-bethenny-frankel-drones.html
+
 **Seahawks offensive coordinator search: Eight candidates to replace Ryan Grubb**\
 `The Seahawks were interested in Mike Kafka last offseason. Could he be available now? What about a more experienced option?`\
 https://nytimes.com/athletic/6042650/2025/01/06/ryan-grubb-fired-seahawks-coordinator-search/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6042581/2025/01/06/giants-john-mara-brian-daboll-jo
 **Wisconsin to hire Jordan Reid from Western Michigan to coach receivers: Source**\
 `Reid’s hiring will mark the fourth wide receivers coach at Wisconsin in as many seasons and the third under coach Luke Fickell.`\
 https://nytimes.com/athletic/6042707/2025/01/06/wisconsin-wide-receivers-coach-jordan-reid/
-
-**How the Packers must compensate without Christian Watson against Eagles**\
-`Watson averaged 21.4 yards per catch on 29 catches this season, but now the Packers will be without their best deep threat.`\
-https://nytimes.com/athletic/6042591/2025/01/06/packers-playoffs-eagles-christian-watson-injury/
-
-**What to watch this week in NBA: Celtics-Nuggets, Thunder-Cavaliers plus Giannis vs. Wemby**\
-`What to watch, and how to watch it, as the NBA turns its calendar to 2025.`\
-https://nytimes.com/athletic/6042245/2025/01/06/nba-what-to-watch-celtics-cavs-wemby/
-
-**USMNT calls up 24 MLS players, plenty of youth for January 2025 roster**\
-`Seven players have been named to their first USMNT squad, which will play Venezuela in Fort Lauderdale and face Costa Rica in Orlando`\
-https://nytimes.com/athletic/6042317/2025/01/06/usmnt-youth-soccer-roster-mls-call-ups/
 
