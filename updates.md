@@ -1,3 +1,23 @@
+**Chargers exact revenge against Raiders to claim fifth seed and head into playoffs**\
+`The Chargers haven't forgotten their ugly 63-21 loss in Las Vegas last season. Sunday's win had a cleansing effect.`\
+https://nytimes.com/athletic/6040550/2025/01/05/chargers-win-playoff-seed-raiders/
+
+**Seahawks hope win in finale, even if meaningless, helps lay foundation for future**\
+`The Seahawks have plenty to fix, but they believe in their coach and his vision. "You want to go to war with Mike," Ernest Jones said.`\
+https://nytimes.com/athletic/6040439/2025/01/05/seahawks-win-future-outlook-rams/
+
+**Jake Moody, Nick Sorensen and others make a poor final argument in 49ers' loss**\
+`The 49ers ended the season with just two takeaways in their last 10 games. They also gave up 40 or more points in their final two.`\
+https://nytimes.com/athletic/6040420/2025/01/05/49ers-loss-players-coaches-futures-cardinals/
+
+**‘Emilia Pérez,’ the nominations leader, wins the Globe for best musical.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/emilia-perez-the-nominations-leader-wins-the-globe-for-best-musical
+
+**‘The Brutalist’ Wins Best Drama in a Tight Race**\
+`The film, starring Adrien Brody as a Holocaust survivor and architect, took home the top drama prize.`\
+https://nytimes.com/2025/01/05/movies/the-brutalist-golden-globes-best-drama.html
+
 **Maple Leafs report cards: Rielly redeems himself, Hildeby helps shut down Flyers**\
 `It wasn't an impressive or glamorous win, but Toronto picked up both points on the second game of a back-to-back.`\
 https://nytimes.com/athletic/6039775/2025/01/05/maple-leafs-report-cards-rielly-hildeby-flyers/
