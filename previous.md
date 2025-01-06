@@ -1,40 +1,40 @@
-**What we learned from college basketball's packed weekend: UK stays hot, Creighton stumbles**\
-`It was the first weekend of the men's basketball season with all five high-major conferences playing league games at the same time.`\
-https://nytimes.com/athletic/6040249/2025/01/06/college-basketball-takeaways-duke-houston-kentucky/
+**Trump Expected to Stay in Florida During Election Certification**\
+`The president-elect spent the weekend at his golf club and estate, continuing to push the debunked idea that his loss in the 2020 election could have been legally overturned.`\
+https://nytimes.com/2025/01/06/us/politics/trump-election-certification.html
 
-**Major Winter Storm Moves to the Mid-Atlantic**\
-`A hazardous mix of snow, sleet and freezing rain will be unleashed on the Mid-Atlantic on Monday. It’s part of a storm system that moved across multiple states over the weekend.`\
-https://nytimes.com/2025/01/06/weather/winter-storm-snow-rain-forecast.html
+**Harris Faces an Awkward Election Task: Certifying the Vote She Lost**\
+`The vice president will preside over Congress on Monday as it counts the Electoral College votes finalizing her defeat by Donald J. Trump.`\
+https://nytimes.com/2025/01/06/us/politics/kamala-harris-electoral-vote-certification.html
 
-**Congestion Pricing’s True Test Comes During First Rush Hour**\
-`The tolls were introduced just past midnight on Sunday. Officials are still assessing how they are affecting traffic patterns in New York City.`\
-https://nytimes.com/2025/01/06/nyregion/congestion-pricings-rush-hour.html
+**Best and Worst Moments From the 2025 Golden Globes**\
+`From Nikki Glaser’s monologue and wins for “Emilia Pérez” and “The Brutalist,” it was downhill to all those pharmaceutical ads.`\
+https://nytimes.com/2025/01/06/movies/globes-best-worst.html
 
-**The Jan. 6 Rioters, 4 Years Later**\
-`Hundreds of rioters accused of nonviolent crimes during the attack on the Capitol have wrapped up their cases. Here’s what some of their lives look like now.`\
-https://nytimes.com/2025/01/06/us/politics/trump-capitol-attack-jan-6.html
+**Courts in ‘State of Disarray’ on Law Disarming Felons**\
+`The Supreme Court has repeatedly ducked Second Amendment challenges to the law. Starkly differing decisions from federal appeals courts last month may change that.`\
+https://nytimes.com/2025/01/06/us/supreme-court-disarming-felons.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/06/crosswords/spelling-bee-forum.html
+**Massacre Upon Massacre: Haiti’s Bleak Spiral Into a Failed State**\
+`In Haiti, gangs have killed hundreds of people and shot journalists at a news conference, exposing the country’s fragility and the government’s failures.`\
+https://nytimes.com/2025/01/06/world/americas/haiti-gang-massacres-murders-instability.html
 
-**The eternal Claudio Ranieri has turned Roma's expensive squad back into a team**\
-`Football, as a game, should have long passed Ranieri by - but the 73-year-old is rescuing his hometown club once again`\
-https://nytimes.com/athletic/6039441/2025/01/06/claudio-ranieri-roma-lazio-derby-win/
+**Who Owns Jan. 6?**\
+`Trump is trying to rewrite history, but history may not comply.`\
+https://nytimes.com/2025/01/06/opinion/who-owns-jan-6.html
 
-**Trent Alexander-Arnold’s first game since Real Madrid called was bad - but Liverpool still need him**\
-`Yes, Liverpool’s right-back struggled. But it’s more likely a bad day at the office than a sign that Alexander-Arnold's mind is elsewhere`\
-https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-real-madrid/
+**How America’s ‘Senior Citizens’ Became ‘Older People’**\
+`A new book traces shifts in the nation’s treatment of aging adults — for better and for worse.`\
+https://nytimes.com/2025/01/06/books/review/golden-years-james-chappel.html
 
-**Word of the Day: centenary**\
-`This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/06/learning/word-of-the-day-centenary.html
+**The Hack Doctors Should Take From Pop Stars and Quarterbacks**\
+`Doctors need to warm up too.`\
+https://nytimes.com/2025/01/06/opinion/doctors-warm-up.html
 
-**The pass that encapsulated Manuel Ugarte's best display yet for Manchester United**\
-`As the one player in United’s squad who has worked with Amorim before, Ugarte’s value in this system is obvious - and it showed at Anfield`\
-https://nytimes.com/athletic/6040171/2025/01/06/manuel-ugarte-anfield-performance/
+**Trump’s Attack on D.E.I. Will Cost Us All**\
+`Biden’s cabinet looked like America, and it made the country more successful.`\
+https://nytimes.com/2025/01/06/opinion/biden-administration-diversity.html
 
-**Heavy Snow Blankets Central U.S.**\
-`The major winter storm froze over some roads and highways as it moved east with a dangerous mix of snow, sleet and rain.`\
-https://nytimes.com/video/weather/100000009909567/heavy-snow-blankets-central-us.html
+**Molly Parker Scrubs In for ‘Doc’**\
+`“I was only going to do indies for the rest of my life,” the actress said. Now she is the lead of a Fox medical procedural — and happier than ever.`\
+https://nytimes.com/2025/01/06/arts/television/molly-parker-doc-fox.html
 
