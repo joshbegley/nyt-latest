@@ -1,3 +1,11 @@
+**Anchovies, Always**\
+`They go full stealth mode in my garlicky chicken with lemon-anchovy sauce, melting quietly into the pan sauce and enhancing the lemon and capers.`\
+https://nytimes.com/2025/01/06/dining/chicken-anchovy-sauce-dinner-recipe.html
+
+**Browns QB Deshaun Watson has 'setback' in Achilles recovery**\
+`Watson told doctors during his end of the season physical that "something didn't feel right." `\
+https://nytimes.com/athletic/6041754/2025/01/06/deshaun-watson-injury-recovery-browns/
+
 **New York’s Congestion Pricing Plan Just Started, but Could Be Undone**\
 `The program is the target of several lawsuits and of President-elect Donald J. Trump, who said he will end it permanently once he takes office on Jan. 20.`\
 https://nytimes.com/2025/01/06/nyregion/new-york-congestion-pricing-trump-lawsuits.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6041358/2025/01/06/texas-cotton-bowl-college-footba
 **Trump Seeks to Halt His Criminal Sentencing in New York**\
 `A Manhattan judge has already indicated that he will spare Donald J. Trump from jail time, but the president-elect is seeking to avoid the symbolic blow of the criminal proceeding.`\
 https://nytimes.com/2025/01/06/nyregion/trump-trial-sentencing-new-york.html
-
-**NFL head coach interview process: What to know about league policies, Rooney Rule**\
-`The New York Jets, Chicago Bears, New Orleans Saints, New England Patriots and Jacksonville Jaguars all have openings.`\
-https://nytimes.com/athletic/6034176/2025/01/06/nfl-head-coach-interview-process/
-
-**Even in a snowstorm, Congress plans to forge ahead with the electoral count.**\
-`The House and Senate are scheduled to proceed with their joint session to certify the 2024 election despite a winter storm that has dumped about 5 inches of snow on the capital region.`\
-https://nytimes.com/live/2025/01/06/us/trump-election-certification/even-in-a-snowstorm-congress-plans-to-forge-ahead-with-the-electoral-count
 
