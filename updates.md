@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-the-latest
+
 **The battle of the pop stars.**\
 `By Stephanie Goodman`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/ariana-grande-selena-gomez-golden-globes
