@@ -1,3 +1,11 @@
+**Here Are Four Possible Contenders to Succeed Justin Trudeau**\
+`Whoever replaces Mr. Trudeau as the leader of Canada’s Liberal Party will become the prime minister. Not long after they’ll face a general election, and the daunting challenge of keeping the job.`\
+https://nytimes.com/2025/01/06/world/canada/justin-trudeau-replacement.html
+
+**NFL announces 2025 opponents for all 32 teams**\
+`The full 2025 schedule release will occur in the spring. `\
+https://nytimes.com/athletic/6042366/2025/01/06/nfl-2025-opponents-release-schedule/
+
 **Kirk Cousins has left the building. What's next for him and the Falcons?**\
 `Good thing Michael Penix Jr. is playing on a rookie contract because Cousins will be expensive for the Falcons no matter where he plays.`\
 https://nytimes.com/athletic/6042462/2025/01/06/falcons-kirk-cousins-future/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/movies/the-brutalist-where-how-to-watch.html
 **Sir Alex Ferguson led tributes at funeral of Kath Phipps: 'She was a real United person'**\
 `David Beckham and Ruben Amorim among those at receptionist's funeral`\
 https://nytimes.com/athletic/6042261/2025/01/06/kath-phipps-funeral-ferguson-beckham/
-
-**Al-Assad Is Out, but So Is a Revered Queen: Textbook Changes Unsettle Syrians**\
-`Syria’s new government has swiftly ordered changes to school curriculums. Some Syrians say the move is a worrying sign of how the former rebels plans to govern a diverse country.`\
-https://nytimes.com/2025/01/06/world/middleeast/syria-government-school-changes.html
-
-**Elon Musk Hijacks U.K. Politics in Favor of the Far Right**\
-`With 211 million followers on social media, the multibillionaire seems intent on using his global platform to rattle British politics.`\
-https://nytimes.com/2025/01/06/world/europe/uk-elon-musk-far-right.html
 

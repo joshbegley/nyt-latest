@@ -1,3 +1,11 @@
+**Here Are Four Possible Contenders to Succeed Justin Trudeau**\
+`Whoever replaces Mr. Trudeau as the leader of Canada’s Liberal Party will become the prime minister. Not long after they’ll face a general election, and the daunting challenge of keeping the job.`\
+https://nytimes.com/2025/01/06/world/canada/justin-trudeau-replacement.html
+
+**NFL announces 2025 opponents for all 32 teams**\
+`The full 2025 schedule release will occur in the spring. `\
+https://nytimes.com/athletic/6042366/2025/01/06/nfl-2025-opponents-release-schedule/
+
 **Kirk Cousins has left the building. What's next for him and the Falcons?**\
 `Good thing Michael Penix Jr. is playing on a rookie contract because Cousins will be expensive for the Falcons no matter where he plays.`\
 https://nytimes.com/athletic/6042462/2025/01/06/falcons-kirk-cousins-future/

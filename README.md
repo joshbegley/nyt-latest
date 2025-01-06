@@ -1,3 +1,15 @@
+**Historians’ Group Votes to Condemn ‘Scholasticide’ in Gaza**\
+`After contentious debate, members of the American Historical Association voted to condemn what a resolution described as Israel’s destruction of Gaza’s educational system.`\
+https://nytimes.com/2025/01/06/arts/historians-gaza-israel-education.html
+
+**Maple Leafs' Jake McCabe placed on IR after hitting head on ice**\
+`Defenceman out for at least a week. Marshall Rifai recalled from the AHL's Marlies.`\
+https://nytimes.com/athletic/6042434/2025/01/06/jake-mccabe-injury-reserve-rifai/
+
+**Tuesday Briefing: Canada’s Prime Minister Is Stepping Down**\
+`Plus, a recap of the Golden Globes.`\
+https://nytimes.com/2025/01/06/briefing/canada-trudeau-ukraine-russia-guantanamo.html
+
 **Here Are Four Possible Contenders to Succeed Justin Trudeau**\
 `Whoever replaces Mr. Trudeau as the leader of Canada’s Liberal Party will become the prime minister. Not long after they’ll face a general election, and the daunting challenge of keeping the job.`\
 https://nytimes.com/2025/01/06/world/canada/justin-trudeau-replacement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/06/us/politics/guantanamo-prisoners-oman.html
 **Arthur Kaliyev claimed by Rangers — What are they getting? What went wrong in L.A.?**\
 `The Rangers now get the opportunity to bring the best out of a skilled player with question marks.`\
 https://nytimes.com/athletic/6042252/2025/01/06/kaliyev-rangers-kings-waivers/
-
-**Trudeau to Resign as Canada’s Prime Minister: ‘It’s Time for a Reset’**\
-`Justin Trudeau announced Monday that he was also stepping down as leader of Canada’s Liberal Party. He will remain in both roles until a replacement is chosen.`\
-https://nytimes.com/2025/01/06/world/americas/trudeau-prime-minister-to-resign.html
-
-**‘The Brutalist’ Won Big at the Golden Globes. But How Can You See It?**\
-`Interested in watching the three-and-a-half-hour epic about a fictional Hungarian architect? Good luck if you don’t live in New York or Los Angeles.`\
-https://nytimes.com/2025/01/06/movies/the-brutalist-where-how-to-watch.html
-
-**Sir Alex Ferguson led tributes at funeral of Kath Phipps: 'She was a real United person'**\
-`David Beckham and Ruben Amorim among those at receptionist's funeral`\
-https://nytimes.com/athletic/6042261/2025/01/06/kath-phipps-funeral-ferguson-beckham/
 
