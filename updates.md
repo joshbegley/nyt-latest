@@ -1,3 +1,7 @@
+**Buckley: Robert Kraft owns up for world to see ... Patriots aren't what they used to be**\
+`Kraft did the only thing he could do after Jerod Mayo firing. He took the blame for the "situation" and set out to fix his fallen franchise.`\
+https://nytimes.com/athletic/6042934/2025/01/06/patriots-robert-kraft-owner-takes-blame-jerod-mayo/
+
 **U.S. Envoy Says Israel Will Withdraw From Southern Lebanon**\
 `With the deadline looming for the terms of a fragile cease-fire between Israel and Hezbollah to be met, an American diplomat on Monday said “much progress” had been made recently.`\
 https://nytimes.com/2025/01/06/world/middleeast/israel-lebanon-ceasefire-hezbollah-withdraw.html

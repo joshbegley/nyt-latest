@@ -1,3 +1,7 @@
+**Buckley: Robert Kraft owns up for world to see ... Patriots aren't what they used to be**\
+`Kraft did the only thing he could do after Jerod Mayo firing. He took the blame for the "situation" and set out to fix his fallen franchise.`\
+https://nytimes.com/athletic/6042934/2025/01/06/patriots-robert-kraft-owner-takes-blame-jerod-mayo/
+
 **U.S. Envoy Says Israel Will Withdraw From Southern Lebanon**\
 `With the deadline looming for the terms of a fragile cease-fire between Israel and Hezbollah to be met, an American diplomat on Monday said “much progress” had been made recently.`\
 https://nytimes.com/2025/01/06/world/middleeast/israel-lebanon-ceasefire-hezbollah-withdraw.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042775/2025/01/06/bears-interview-request-mike-mcc
 **No drama: 49ers’ Brock Purdy hopes deal is done 'sooner rather than later'**\
 `Christian McCaffrey said Monday he's close to fully recovered from the knee injury that ended his season in snowy Buffalo.`\
 https://nytimes.com/athletic/6042803/2025/01/06/brock-purdy-49ers-contract-negotiations/
-
-**An 'imminent' Jake Middleton return, Kirill Kaprizov update and PK praise: Wild notes**\
-`Hynes also had praise for defenseman Zeev Buium, the Wild's top prospect, and his performance at the World Juniors.`\
-https://nytimes.com/athletic/6042838/2025/01/06/an-imminent-jake-middleton-return-kirill-kaprizov-update-and-pk-praise-wild-notes/
 
