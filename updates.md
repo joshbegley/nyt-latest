@@ -1,3 +1,23 @@
+**The Vivienne, Winner of RuPaul’s Drag Race UK, Dies**\
+`James Lee Williams was best known by their stage name and also built a career in musical theater.`\
+https://nytimes.com/2025/01/05/arts/the-vivienne-james-lee-williams-dead.html
+
+**Tyreek Hill hints at Dolphins exit: 'I'm out, bro'**\
+`Coach Mike McDaniel and GM Chris Grier will be back with the team next season, Dolphins owner Stephen Ross announced Sunday.`\
+https://nytimes.com/athletic/6040261/2025/01/05/tyreek-hill-dolphins-future/
+
+**Chiefs saving their best for the playoffs, so blowout loss in Denver doesn't hurt**\
+`The 15-2 Chiefs achieved their top objective: having their starters as healthy and as fresh as possible for the playoffs in two weeks.`\
+https://nytimes.com/athletic/6040200/2025/01/05/chiefs-rest-starters-broncos/
+
+**Pastrnak scores twice again. Bruins lose again. Where's the defense?**\
+`The Bruins earned a point after dropping three straight in regulation, but even Pastrnak's heroics couldn't get them the win.`\
+https://nytimes.com/athletic/6040342/2025/01/05/bruins-david-pastrnak-defense-islanders/
+
+**Sebastian Stan wins for his non-Trump role.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/sebastian-stan-different-man-apprentice
+
 **Retooled Eagles look to prove themselves as Super Bowl contenders in postseason**\
 `The Eagles will first face the Packers, who they last saw in Sao Paulo in the season opener.`\
 https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-giants/
