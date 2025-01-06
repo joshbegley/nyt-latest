@@ -1,3 +1,7 @@
+**New York Crime Rate Falls, but Number of Felony Assaults Rises Again**\
+`Killings and shootings have dropped, but headlines have been dominated by terrifying crimes, like the killing of a woman who was burned to death on the F train.`\
+https://nytimes.com/2025/01/06/nyregion/nyc-crime-2024.html
+
 **Dodgers trade Gavin Lux to Reds: Sources**\
 `The Dodgers will receive a prospect and the Reds' competitive balance pick for Lux, who started 117 games at second base in 2024.`\
 https://nytimes.com/athletic/6042920/2025/01/06/dodgers-gavin-lux-trade-reds/

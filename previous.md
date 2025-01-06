@@ -1,3 +1,7 @@
+**New York Crime Rate Falls, but Number of Felony Assaults Rises Again**\
+`Killings and shootings have dropped, but headlines have been dominated by terrifying crimes, like the killing of a woman who was burned to death on the F train.`\
+https://nytimes.com/2025/01/06/nyregion/nyc-crime-2024.html
+
 **Dodgers trade Gavin Lux to Reds: Sources**\
 `The Dodgers will receive a prospect and the Reds' competitive balance pick for Lux, who started 117 games at second base in 2024.`\
 https://nytimes.com/athletic/6042920/2025/01/06/dodgers-gavin-lux-trade-reds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042838/2025/01/06/an-imminent-jake-middleton-retur
 **With the owner in Florida, Jets players and coaches were left to explain a season gone wrong**\
 `As the locker room was cleared out, Jeff Ulbrich and a few players met with the media on Monday.`\
 https://nytimes.com/athletic/6042685/2025/01/06/jets-locker-room-end-of-season/
-
-**U.S. Eases Some Restrictions on Humanitarian Aid to Syria**\
-`The authorization comes after rebels toppled the Syrian government last month and is intended to allow humanitarian groups to operate more freely without running afoul of U.S. sanctions.`\
-https://nytimes.com/2025/01/06/us/politics/syria-us-sanctions-aid.html
 
