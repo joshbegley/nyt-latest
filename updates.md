@@ -1,3 +1,11 @@
+**Intentional howl: An NBA game went to the dogs — 140 of them**\
+`If the Washington Wizards' experience is any guide, Hoops & Hounds night might become more prevalent in the NBA. `\
+https://nytimes.com/athletic/6040610/2025/01/06/washington-wizards-dog-night-nba/
+
+**The Next Chapter in the Amazon-Trump Reset**\
+`The tech company’s deal to release a film on Melania Trump has renewed scrutiny of Jeff Bezos’s efforts to get closer to the president-elect.`\
+https://nytimes.com/2025/01/06/business/dealbook/bezos-trump-amazon-melania.html
+
 **Ilona Maher sprinkles her stardust on England - her new rugby team has had to find a bigger home stadium**\
 `With over eight million social media followers and a Reese Witherspoon production following her, Maher is attracting a global audience`\
 https://nytimes.com/athletic/6039472/2025/01/06/ilona-maher-womens-rubgy-england-debut/
