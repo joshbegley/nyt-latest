@@ -1,3 +1,23 @@
+**Along With Snow, Winter Storm Brings Travel Disruptions**\
+`Air and train travel were snarled by the winter storm, with thousands of flights and dozens of train trips delayed or canceled by Monday afternoon.`\
+https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
+
+**Rays 'support and expect' city to repair damage to Tropicana Field in time for 2026 season**\
+`Hurricane Milton caused over $50 million in damage to Tropicana Field, displacing the Rays from their home for at least the 2025 season.`\
+https://nytimes.com/athletic/6042805/2025/01/06/rays-tropicana-field-repairs-2026/
+
+**Who’s Afraid of a Flying Dior Bag?**\
+`To weigh in on the rash of reported drone sightings without fear of content suppression, Bethenny Frankel borrowed a term from the fashion world.`\
+https://nytimes.com/2025/01/06/style/tiktok-dior-bag-bethenny-frankel-drones.html
+
+**Seahawks offensive coordinator search: Eight candidates to replace Ryan Grubb**\
+`The Seahawks were interested in Mike Kafka last offseason. Could he be available now? What about a more experienced option?`\
+https://nytimes.com/athletic/6042650/2025/01/06/ryan-grubb-fired-seahawks-coordinator-search/
+
+**Brighton's Igor Julio out for a 'few months' with thigh injury**\
+`Brighton &amp; Hove Albion have been hit by an injury blow to defender Igor Julio.`\
+https://nytimes.com/athletic/6042798/2025/01/06/brighton-defender-igor-julio-injury/
+
 **Pulisic inspires Milan to Super Cup win**\
 `Christian Pulisic lifted his first trophy for AC Milan as he once again led a fightback which saw his team come from behind and beat rivals Inter 3-2 in the Italian Super Cup final.`\
 https://nytimes.com/athletic/6042672/2025/01/06/pulisic-ac-milan-super-cup-win/
