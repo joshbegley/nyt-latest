@@ -1,3 +1,7 @@
+**Riding with a New York City cabdriver on the first day of congestion pricing.**\
+`By Nate Schweber`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/riding-with-a-new-york-city-cabdriver-on-the-first-day-of-congestion-pricing
+
 **Marchand: Understanding why Disney (and ESPN) did the Fubo deal**\
 `The corporate maneuvering  over your sports viewing dollars may offer more drama than some of the games that you pay to watch.`\
 https://nytimes.com/athletic/6041999/2025/01/06/how-the-new-deal-between-disney-and-fubo-will-impact-how-fans-consume-sports-tv/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6042119/2025/01/06/patriots-robert-kraft-jerod-mayo
 **Reds trade for Rangers reliever Owen White**\
 `White spent the majority of the 2024 season at Triple-A Round Rock, where he split time between the rotation and the bullpen.`\
 https://nytimes.com/athletic/6042131/2025/01/06/reds-trade-reliever-owen-white/
-
-**Critics fear congestion pricing could push traffic their way.**\
-`An environmental assessment from the Metropolitan Transportation Authority showed that the program could divert vehicles outside the tolling zone.`\
-https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/critics-fear-congestion-pricing-could-push-traffic-their-way
 
