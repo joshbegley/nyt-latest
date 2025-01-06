@@ -1,3 +1,7 @@
+**Colts fire DC Gus Bradley after 3 seasons**\
+`Indianapolis was Bradley's fourth stop as a defensive coordinator and now Shane Steichen is looking for his replacement.`\
+https://nytimes.com/athletic/6027862/2025/01/06/colts-fire-gus-bradley-defensive-coordinator/
+
 **Colts, Jim Irsay could have wiped slate clean. Here's why they chose continuity instead.**\
 `Frustrating though it may be, there's some logic behind the Colts sticking with Chris Ballard, Shane Steichen and Anthony Richardson. `\
 https://nytimes.com/athletic/6042652/2025/01/06/colts-jim-irsays-anthony-richardson-chris-ballard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042592/2025/01/06/browns-coach-kevin-stefanski-gm-
 **Mike Rinder, Scientology Spokesman Turned Critic, Dies at 69**\
 `In a memoir and as a host of the documentary series “Leah Remini: Scientology and the Aftermath,” he accused the church of fostering a culture of abuse.`\
 https://nytimes.com/2025/01/06/us/mike-rinder-dead-scientology-critic.html
-
-**Bears request permission to interview Cowboys coach Mike McCarthy**\
-`Dallas' exclusive negotiating window with McCarthy runs until Jan. 14. Will Jerry Jones let him interview or extend his deal?`\
-https://nytimes.com/athletic/6042775/2025/01/06/bears-interview-request-mike-mccarthy-cowboys-coach/
 
