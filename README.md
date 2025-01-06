@@ -28,7 +28,7 @@ https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.ht
 
 **Biggest Bills questions heading into the postseason**\
 `The Bills will face the Broncos in the wild-card round.`\
-https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questionsnto-the-postseason/
+https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questions/
 
 **Cardinals top 49ers in season finale 47-24 as Murray shines: Takeaways**\
 `Arizona (8-9) pulled away from a close game with three fourth-quarter touchdown drives.`\
