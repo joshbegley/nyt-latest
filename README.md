@@ -1,3 +1,11 @@
+**Mel Shapiro, Director Whose Specialty Was John Guare, Dies at 89**\
+`He directed the playwright’s “The House of Blue Leaves,” and they helped turn “The Two Gentlemen of Verona” into a hit musical.`\
+https://nytimes.com/2025/01/06/theater/mel-shapiro-dead.html
+
+**Congress Certified Trump’s Victory Without Disruption**\
+`Also, Trudeau said he would resign as Canada’s prime minister. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/06/briefing/congress-certification-trump-justin-trudeau-canada.html
+
 **Along With Snow, Winter Storm Brings Travel Disruptions**\
 `The winter storm caused thousands of flights and dozens of train trips to be delayed or canceled. At Ronald Reagan National Airport in Washington, all runways were closed Monday evening.`\
 https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6042723/2025/01/06/f1-explainers-between-the-racing
 **In Canada, Covering the Trudeau News With an ‘Orchestra’**\
 `Times reporters in Toronto, Ottawa and Montreal anticipated that Justin Trudeau would step down as prime minister. Still, covering the news required teamwork, fast thinking and confident execution.`\
 https://nytimes.com/2025/01/06/insider/in-canada-covering-the-trudeau-news-with-an-orchestra.html
-
-**The Giants are a franchise adrift, and John Mara has no clue how to get them back on course**\
-`Mara was lost in a sea of contradictions Monday as he tried to defend the indefensible decision of retaining Brian Daboll and Joe Schoen.`\
-https://nytimes.com/athletic/6042581/2025/01/06/giants-john-mara-brian-daboll-joe-schoen-future/
-
-**Wisconsin to hire Jordan Reid from Western Michigan to coach receivers: Source**\
-`Reid’s hiring will mark the fourth wide receivers coach at Wisconsin in as many seasons and the third under coach Luke Fickell.`\
-https://nytimes.com/athletic/6042707/2025/01/06/wisconsin-wide-receivers-coach-jordan-reid/
 
