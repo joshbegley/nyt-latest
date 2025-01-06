@@ -1,3 +1,7 @@
+**Canucks notebook: Quinn Hughes' return, Danton Heinen's fit and a tough month ahead**\
+`The Canucks have struggled since the holiday break. Returning stars should help as the schedule turns difficult. `\
+https://nytimes.com/athletic/6040887/2025/01/06/canucks-quinn-hughes-injury-january/
+
 **Even in a snowstorm, Congress plans to forge ahead with the electoral count.**\
 `The House and Senate are scheduled to proceed with their joint session to certify the 2024 election despite a winter storm that has dumped about 5 inches of snow on the capital region.`\
 https://nytimes.com/live/2025/01/06/us/trump-election-certification/even-in-a-snowstorm-congress-plans-to-forge-ahead-with-the-electoral-count
