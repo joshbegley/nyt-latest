@@ -1,3 +1,15 @@
+**Even in a snowstorm, Congress plans to forge ahead with the electoral count.**\
+`The House and Senate are scheduled to proceed with their joint session to certify the 2024 election despite a winter storm that has dumped about 5 inches of snow on the capital region.`\
+https://nytimes.com/live/2025/01/06/us/trump-election-certification/even-in-a-snowstorm-congress-plans-to-forge-ahead-with-the-electoral-count
+
+**‘We're here to win games’: Spurs' daunting road trip could be a season-defining moment**\
+`The Bulls are the only team with a losing record among the seven the Spurs face in January.`\
+https://nytimes.com/athletic/6041420/2025/01/06/spurs-road-trip-victor-wembanyama/
+
+**Clemson fires defensive coordinator Wes Goodwin after 3 seasons on the job**\
+`Goodwin had been the Tigers defensive coordinator since December 2021after being promoted from his role as a little-known analyst.`\
+https://nytimes.com/athletic/6041606/2025/01/06/clemson-wes-goodwin-defensive-coordinator-dabo-swinney/
+
 **Canucks notebook: Quinn Hughes' return, Danton Heinen's fit and a tough month ahead**\
 `The Canucks have struggled since he holiday break. Returning stars should help as the schedule turns difficult. `\
 https://nytimes.com/athletic/6040887/2025/01/06/canucks-quinn-hughes-injury-january/
