@@ -1,3 +1,15 @@
+**Marchand: Understanding why Disney (and ESPN) did the Fubo deal**\
+`The corporate maneuvering  over your sports viewing dollars may offer more drama than some of the games that you pay to watch.`\
+https://nytimes.com/athletic/6041999/2025/01/06/how-the-new-deal-between-disney-and-fubo-will-impact-how-fans-consume-sports-tv/
+
+**How to Start and Keep a Journal**\
+`Tips from writers, artists and a social worker that might make the practice less daunting.`\
+https://nytimes.com/article/journaling-tips.html
+
+**NWSL's 2025 schedule footprint: When the season starts and how to watch**\
+`What we know about the 2025 NWSL schedule.`\
+https://nytimes.com/athletic/6035930/2025/01/06/nwsl-schedule-footprint-2025-soccer/
+
 **Packers' Christian Watson suffers torn ACL, out for playoffs: Reports**\
 `Third-year wide receiver has been Green Bay's biggest game-breaking pass catcher and posted an average of 21.4 yards per catch in 2024.`\
 https://nytimes.com/athletic/6042066/2025/01/06/christian-watson-acl-knee-injury-packers-playoffs/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6042131/2025/01/06/reds-trade-reliever-owen-white/
 **Critics fear congestion pricing could push traffic their way.**\
 `An environmental assessment from the Metropolitan Transportation Authority showed that the program could divert vehicles outside the tolling zone.`\
 https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/critics-fear-congestion-pricing-could-push-traffic-their-way
-
-**Pope Names Nun to Head a Vatican Department, a First for a Woman**\
-`Sister Simona Brambilla was appointed as the prefect of a Vatican office that oversees religious orders, but she may not be alone at the top.`\
-https://nytimes.com/2025/01/06/world/europe/pope-sister-simona-brambilla-vatican-woman.html
-
-**Tottenham, Man United exploring loan deal for Kolo Muani**\
-`Tottenham Hotspur and Manchester United are actively exploring a January deal to sign Randal Kolo Muani on loan from Paris Saint-Germain.`\
-https://nytimes.com/athletic/6041359/2025/01/06/manchester-united-kolo-muani-tottenham-transfer/
-
-**Penguins report cards: Rust, Rakell tops at midseason**\
-`Tristan Jarry barely receives a passing grade, but Rust and Rakell are excelling. `\
-https://nytimes.com/athletic/6032520/2025/01/06/penguins-report-cards-midseason/
 
