@@ -1,3 +1,7 @@
+**The Briefing: How does this end? Amorim's best XI? Is 1-0 to the Arsenal a problem?**\
+`Analysing the Premier League weekend and what to look out for in the week ahead`\
+https://nytimes.com/athletic/6039259/2025/01/06/amorim-xi-arsenal-1-0/
+
 **Neuer comparisons and incredible reflexes - what sort of goalkeeper are Spurs getting in Antonin Kinsky?**\
 `All you need to know about the 21-year-old Czech goalkeeper and why his former teams have such high hopes for him`\
 https://nytimes.com/athletic/6038563/2025/01/06/kinsky-tottenham-new-goalkeeper/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/pageoneplus/quote-of-the-day-on-the-run-a-hit-man
 **Lions bulldoze Vikings 31-9 in season finale to win NFC top seed: Takeaways**\
 `The Lions will be rewarded with a first-round bye, while the Vikings wind up with the No. 5 seed and will face the Los Angeles Rams.`\
 https://nytimes.com/athletic/6038735/2025/01/05/vikings-lions-score-result-takeaways/
-
-**Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
-`The Chiefs and Lions have next weekend off, but these 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
-https://nytimes.com/athletic/6034081/2025/01/05/nfl-playoff-chances-matchups-super-bowl/
 
