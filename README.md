@@ -1,3 +1,11 @@
+**Heavy Snow Blankets Central U.S.**\
+`The major winter storm froze over some roads and highways as it moved east with a dangerous mix of snow, sleet and rain.`\
+https://nytimes.com/video/weather/100000009909567/heavy-snow-blankets-central-us.html
+
+**Warriors get blasted by Kings; won't have Jonathan Kuminga for 3 weeks**\
+`"We haven't shown (we can be a come-from-behind team)," Steph Curry said. "That's not our MO."`\
+https://nytimes.com/athletic/6040566/2025/01/06/warriors-lose-to-kings-jonathan-kuminga-injury/
+
 **‘Jerry Springer: Fights, Camera, Action,’ Plus 6 Things to Watch on TV This Week**\
 `Netflix releases a documentary on the 1990s talk-show host, and PBS airs “Finding Your Roots” and “Antiques Roadshow.”`\
 https://nytimes.com/2025/01/06/arts/television/jerry-springer-fights-camera-action-plus-6-things-to-watch-on-tv-this-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035725/2025/01/06/forest-route-europe-premier-leag
 **19 Unforgettable Looks at the Golden Globes**\
 `For reasons good and bad, these ensembles were among the most memorable.`\
 https://nytimes.com/2025/01/06/style/golden-globes-fashion-red-carpet.html
-
-**Crystal Palace's wing-backs are key to their approach, but backups are needed**\
-`Tyrick Mitchell and Daniel Munoz have excelled for Oliver Glasner, but the club needs to recruit strong backups to ease their workload`\
-https://nytimes.com/athletic/6024887/2025/01/06/palace-munoz-mitchell-diouf-wingback-glasner/
-
-**'How do you watch this every week?' - Everton's football is stale, dull and predictable**\
-`Watching this team has become something to endure, not enjoy — particularly on trips to Bournemouth's Vitality Stadium`\
-https://nytimes.com/athletic/6037605/2025/01/06/everton-bournemouth-dyche-pickford-tfg/
 
