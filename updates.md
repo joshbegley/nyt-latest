@@ -1,3 +1,7 @@
+**‘Jerry Springer: Fights, Camera, Action,’ Plus 6 Things to Watch on TV This Week**\
+`Netflix releases a documentary on the 1990s talk-show host, and PBS airs “Finding Your Roots” and “Antiques Roadshow.”`\
+https://nytimes.com/2025/01/06/arts/television/jerry-springer-fights-camera-action-plus-6-things-to-watch-on-tv-this-week.html
+
 **Our Favorite Photos From the Golden Globes**\
 `Our photographer caught the stars as they arrived for Sunday night’s awards show.`\
 https://nytimes.com/2025/01/06/movies/golden-globes-favorite-photos.html
