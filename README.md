@@ -1,3 +1,7 @@
+**Word of the Day: centenary**\
+`This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/06/learning/word-of-the-day-centenary.html
+
 **The pass that encapsulated Manuel Ugarte's best display yet for Manchester United**\
 `As the one player in United’s squad who has worked with Amorim before, Ugarte’s value in this system is obvious - and it showed at Anfield`\
 https://nytimes.com/athletic/6040171/2025/01/06/manuel-ugarte-anfield-performance/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037077/2025/01/06/jarrod-bowen-west-ham-replacemen
 **Rare training-ground time might help Enzo Maresca fix Chelsea's soft underbelly**\
 `Chelsea have a rare free midweek coming up, which could help them steady the ship and focus on strengthening their top-four credentials`\
 https://nytimes.com/athletic/6037951/2025/01/06/chelsea-enzo-maresca-training-goals/
-
-**Five key factors that will determine whether Nottingham Forest qualify for Europe**\
-`A continuation of a positive injury record, Chris Wood's form and their defensive solidity could see Forest return to the continental stage`\
-https://nytimes.com/athletic/6035725/2025/01/06/forest-route-europe-premier-league/
 
