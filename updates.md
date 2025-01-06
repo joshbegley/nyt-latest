@@ -1,3 +1,7 @@
+**Aaron Rodgers turned back the clock — now he'll decide whether to walk out the door**\
+`The quarterback saved one of his best games for last this season, and now heads toward an uncertain future.`\
+https://nytimes.com/athletic/6040507/2025/01/05/aaron-rodgers-jets-final-game-retirement-plans/
+
 **Chargers exact revenge against Raiders to claim fifth seed and head into playoffs**\
 `The Chargers haven't forgotten their ugly 63-21 loss in Las Vegas last season. Sunday's win had a cleansing effect.`\
 https://nytimes.com/athletic/6040550/2025/01/05/chargers-win-playoff-seed-raiders/

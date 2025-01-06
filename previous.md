@@ -1,3 +1,7 @@
+**Aaron Rodgers turned back the clock — now he'll decide whether to walk out the door**\
+`The quarterback saved one of his best games for last this season, and now heads toward an uncertain future.`\
+https://nytimes.com/athletic/6040507/2025/01/05/aaron-rodgers-jets-final-game-retirement-plans/
+
 **Chargers exact revenge against Raiders to claim fifth seed and head into playoffs**\
 `The Chargers haven't forgotten their ugly 63-21 loss in Las Vegas last season. Sunday's win had a cleansing effect.`\
 https://nytimes.com/athletic/6040550/2025/01/05/chargers-win-playoff-seed-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/05/arts/golden-globes/adrien-brody-wins-his-fir
 **What Raiders' Antonio Pierce needs to change if given a second season as head coach**\
 `If Pierce is going to keep his job for a second full season, his first order of business will be building a better offensive staff. `\
 https://nytimes.com/athletic/6040411/2025/01/05/raiders-head-coach-antonio-pierce-second-season-changes/
-
-**USA rallies past Finland in OT for second straight World Juniors gold**\
-`Team USA has repeated as champions for the first time in their history at the tournament.`\
-https://nytimes.com/athletic/6029876/2025/01/05/usa-finland-world-juniors-gold/
 
