@@ -1,3 +1,23 @@
+**Chargers exact revenge against Raiders to claim fifth seed and head into playoffs**\
+`The Chargers haven't forgotten their ugly 63-21 loss in Las Vegas last season. Sunday's win had a cleansing effect.`\
+https://nytimes.com/athletic/6040550/2025/01/05/chargers-win-playoff-seed-raiders/
+
+**Seahawks hope win in finale, even if meaningless, helps lay foundation for future**\
+`The Seahawks have plenty to fix, but they believe in their coach and his vision. "You want to go to war with Mike," Ernest Jones said.`\
+https://nytimes.com/athletic/6040439/2025/01/05/seahawks-win-future-outlook-rams/
+
+**Jake Moody, Nick Sorensen and others make a poor final argument in 49ers' loss**\
+`The 49ers ended the season with just two takeaways in their last 10 games. They also gave up 40 or more points in their final two.`\
+https://nytimes.com/athletic/6040420/2025/01/05/49ers-loss-players-coaches-futures-cardinals/
+
+**‘Emilia Pérez,’ the nominations leader, wins the Globe for best musical.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/emilia-perez-the-nominations-leader-wins-the-globe-for-best-musical
+
+**‘The Brutalist’ Wins Best Drama in a Tight Race**\
+`The film, starring Adrien Brody as a Holocaust survivor and architect, took home the top drama prize.`\
+https://nytimes.com/2025/01/05/movies/the-brutalist-golden-globes-best-drama.html
+
 **Viola Davis and Ted Danson received honorary awards on Friday.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/viola-davis-and-ted-danson-received-honorary-awards-on-friday
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6040411/2025/01/05/raiders-head-coach-antonio-pierc
 **USA rallies past Finland in OT for second straight World Juniors gold**\
 `Team USA has repeated as champions for the first time in their history at the tournament.`\
 https://nytimes.com/athletic/6029876/2025/01/05/usa-finland-world-juniors-gold/
-
-**No. 4-seeded Rams say they 'respect all, fear none' ahead of wild-card matchup**\
-`The Rams lost Sunday and have the NFC's fourth seed. "We're in the dance and it doesn't matter who we got," Tyler Higbee said.`\
-https://nytimes.com/athletic/6040066/2025/01/05/rams-playoffs-fourth-seed-matchup-sean-mcvay/
-
-**Broncos stomp out 9 years of demons in playoff-clinching win. Now they want more**\
-`Bo Nix is the 14th starting quarterback since Peyton Manning retired and became the first since then to lead Denver to the playoffs.`\
-https://nytimes.com/athletic/6040239/2025/01/05/broncos-win-clinch-playoff-chiefs/
-
-**Maple Leafs report cards: Rielly redeems himself, Hildeby helps shut down Flyers**\
-`It wasn't an impressive or glamorous win, but Toronto picked up both points on the second game of a back-to-back.`\
-https://nytimes.com/athletic/6039775/2025/01/05/maple-leafs-report-cards-rielly-hildeby-flyers/
-
-**Antonio Pierce still has support of Raiders players amid uncertain future**\
-`The Raiders suffered through a 4-13 season, but owner Mark Davis cares what his players think. That could help Pierce reach Year 2.`\
-https://nytimes.com/athletic/6040257/2025/01/05/raiders-antonio-pierce-loss-chargers/
-
-**Kyler Murray says the Cardinals are close, but 'we all got to look in the mirror'**\
-`Arizona's offseason conversation will start with Murray. That's nothing new. It always starts with the quarterback.`\
-https://nytimes.com/athletic/6040252/2025/01/05/kyler-murray-arizona-cardinals-season-finale-49ers/
 
