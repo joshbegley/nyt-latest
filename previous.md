@@ -1,3 +1,7 @@
+**Nate McMillan, Scott Brooks and the infamous NBA brawl that's a part of JJ Redick's Lakers**\
+`Now top assistants for the Lakers, Nate McMillan and Scott Brooks have found they are linked by more than just a famous scuffle.`\
+https://nytimes.com/athletic/6027522/2025/01/06/lakers-jj-redick-nba-fight-brooks-mcmillan/
+
 **Predicting where the top 15 remaining MLB free agents will sign: Who lands Sasaki?**\
 `From Sasaki to Bregman to Santander and more, Jim Bowden runs through the top remaining free agents and predicts where each will sign.`\
 https://nytimes.com/athletic/6039098/2025/01/06/mlb-free-agents-team-signing-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6040875/2025/01/06/patriots-fire-jerod-mayo-robert-
 **Harris to Certify Trump’s Victory, and Driving in Manhattan Gets Pricier**\
 `Plus, you probably haven’t seen the Golden Globe winners.`\
 https://nytimes.com/2025/01/06/podcasts/trump-victory-certification-driving-manhattan.html
-
-**The Lions’ historic crown, and fallout for Vikings, Kevin O’Connell: Sando’s Pick Six**\
-`While the Lions won the NFL's best division since the merger, the Vikings' road got a whole lot tougher. Should the NFL change its rules?`\
-https://nytimes.com/athletic/6037937/2025/01/06/lions-vikings-nfc-north-playoffs/
 
