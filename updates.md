@@ -1,3 +1,11 @@
+**Congress Overhauled the Electoral Count Process After the 2021 Violence**\
+`Bipartisan legislation enacted in 2022 makes it much more difficult for lawmakers to object to a state’s votes, and clarifies that the vice president cannot unilaterally overrule them.`\
+https://nytimes.com/2025/01/06/us/politics/after-the-violence-of-2021-congress-overhauled-the-electoral-count-process.html
+
+**Where in the World Do These Popular Detectives Solve Crimes?**\
+`Try this short quiz on investigators and inspectors cracking their cases around the globe.`\
+https://nytimes.com/interactive/2025/01/06/books/review/international-detective-novels.html
+
 **Ohio State's Will Howard hitting postseason stride: 'He runs this whole team'**\
 `The postseason has shown the best of Howard, who has thrown for 630 yards and five touchdowns through two CFP games.`\
 https://nytimes.com/athletic/6041617/2025/01/06/will-howard-ohio-state-cotton-bowl-college-football-playoff/
