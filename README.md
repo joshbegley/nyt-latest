@@ -1,3 +1,7 @@
+**Commuters weigh new tolls against subway safety.**\
+`By Winnie Hu, Sean Piccoli and Nate Schweber`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/nyc-tolls-manhattan-subway-crime
+
 **Patriots owner Robert Kraft takes blame for Jerod Mayo's struggles**\
 `“The whole situation is on me,” Kraft said Monday, taking responsibility for putting the ex-coach in a position where he couldn't succeed.`\
 https://nytimes.com/athletic/6042119/2025/01/06/patriots-robert-kraft-jerod-mayo-firing/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/06/world/canada-trudeau/trudeaus-honeymoon-with
 **The ‘Darkest Day’: The Trauma of Jan. 6 Is Still With Us**\
 `Readers discuss a guest essay by a former Capitol Police officer and news articles. Also: Health coverage woes; investing in science education.`\
 https://nytimes.com/2025/01/06/opinion/jan-6-trump.html
-
-**Scoop City: 24-hour NFL coaching roundup**\
-`A quick look at the status of coaches and general managers across the NFL, plus a playoff preview.`\
-https://nytimes.com/athletic/6042020/2025/01/06/coaches-fired-retained-nfl-black-monday-scoop-city/
 
