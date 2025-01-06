@@ -1,3 +1,7 @@
+**New York’s Congestion Pricing Plan Just Started, but Could Be Undone**\
+`The program is the target of several lawsuits and of President-elect Donald J. Trump, who said he will end it permanently once he takes office on Jan. 20.`\
+https://nytimes.com/2025/01/06/nyregion/new-york-congestion-pricing-trump-lawsuits.html
+
 **Ex-Prosecutor Ordered Disbarred After Framing Colleague for Sexual Harassment**\
 `The woman created fake text messages and changed her phone records to falsely implicate a male investigator in the Denver District Attorney’s Office, a judicial office ruled.`\
 https://nytimes.com/2025/01/06/us/denver-prosecutor-fired-disbarred-harassment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6034176/2025/01/06/nfl-head-coach-interview-process
 **Even in a snowstorm, Congress plans to forge ahead with the electoral count.**\
 `The House and Senate are scheduled to proceed with their joint session to certify the 2024 election despite a winter storm that has dumped about 5 inches of snow on the capital region.`\
 https://nytimes.com/live/2025/01/06/us/trump-election-certification/even-in-a-snowstorm-congress-plans-to-forge-ahead-with-the-electoral-count
-
-**‘We're here to win games’: Spurs' daunting road trip could be a season-defining moment**\
-`The Bulls are the only team with a losing record among the seven the Spurs face in January.`\
-https://nytimes.com/athletic/6041420/2025/01/06/spurs-road-trip-victor-wembanyama/
 
