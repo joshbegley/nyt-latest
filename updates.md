@@ -1,3 +1,19 @@
+**Helio Castroneves expected to make NASCAR debut at Daytona 500: Sources**\
+`The majority of Castroneves’ 20-year plus career has been spent in IndyCar where he’s won 31 races.`\
+https://nytimes.com/athletic/6041866/2025/01/06/nascar-indy-daytona-500-driver-helio-castroneves-debut/
+
+**Diabetes and Heart Disease Rise Alongside Sugary Drink Consumption**\
+`A new study assesses the effects of sugar-laden beverages on global health, with higher rates of consumption found in Latin America and parts of Africa.`\
+https://nytimes.com/2025/01/06/health/sugary-soda-beverages-diabetes-heart-disease.html
+
+**Fed’s Vice Chair to Step Down From Role as Top Bank Supervisor**\
+`Michael Barr oversaw an attempt to rewrite financial regulations that came under attack from a wide range of groups, including banks, lawmakers and even some of his colleagues.`\
+https://nytimes.com/2025/01/06/business/economy/fed-barr-vice-chair.html
+
+**Inside the Golden Globes: What Comes After the Red Carpet.**\
+`How Tilda Swinton, Kieran Culkin and other stars spent their night. (Hint: There was an all-you-can-eat sushi buffet.)`\
+https://nytimes.com/2025/01/06/fashion/golden-globes-after-parties.html
+
 **Hollinger's Week That Was: Heat and Suns dealing with hangovers, but they aren't alone**\
 `Teams partied hard with their draft picks the past few years, and now they're feeling the impact.`\
 https://nytimes.com/athletic/6040902/2025/01/06/jimmy-butler-heat-suns-bradley-beal-nba/

@@ -1,3 +1,19 @@
+**Helio Castroneves expected to make NASCAR debut at Daytona 500: Sources**\
+`The majority of Castroneves’ 20-year plus career has been spent in IndyCar where he’s won 31 races.`\
+https://nytimes.com/athletic/6041866/2025/01/06/nascar-indy-daytona-500-driver-helio-castroneves-debut/
+
+**Diabetes and Heart Disease Rise Alongside Sugary Drink Consumption**\
+`A new study assesses the effects of sugar-laden beverages on global health, with higher rates of consumption found in Latin America and parts of Africa.`\
+https://nytimes.com/2025/01/06/health/sugary-soda-beverages-diabetes-heart-disease.html
+
+**Fed’s Vice Chair to Step Down From Role as Top Bank Supervisor**\
+`Michael Barr oversaw an attempt to rewrite financial regulations that came under attack from a wide range of groups, including banks, lawmakers and even some of his colleagues.`\
+https://nytimes.com/2025/01/06/business/economy/fed-barr-vice-chair.html
+
+**Inside the Golden Globes: What Comes After the Red Carpet.**\
+`How Tilda Swinton, Kieran Culkin and other stars spent their night. (Hint: There was an all-you-can-eat sushi buffet.)`\
+https://nytimes.com/2025/01/06/fashion/golden-globes-after-parties.html
+
 **Hollinger's Week That Was: Heat and Suns dealing with hangovers, but they aren't alone**\
 `Teams partied hard with their draft picks the past few years, and now they're feeling the impact.`\
 https://nytimes.com/athletic/6040902/2025/01/06/jimmy-butler-heat-suns-bradley-beal-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/06/dining/chicken-anchovy-sauce-dinner-recipe.html
 **Browns QB Deshaun Watson has 'setback' in Achilles recovery**\
 `Watson told doctors during his end of the season physical that "something didn't feel right." `\
 https://nytimes.com/athletic/6041754/2025/01/06/deshaun-watson-injury-recovery-browns/
-
-**New York’s Congestion Pricing Plan Just Started, but Could Be Undone**\
-`The program is the target of several lawsuits and of President-elect Donald J. Trump, who said he will end it permanently once he takes office on Jan. 20.`\
-https://nytimes.com/2025/01/06/nyregion/new-york-congestion-pricing-trump-lawsuits.html
-
-**Ex-Prosecutor Ordered Disbarred After Framing Colleague for Sexual Harassment**\
-`The woman created fake text messages and changed her phone records to falsely implicate a male investigator in the Denver District Attorney’s Office, a judicial office ruled.`\
-https://nytimes.com/2025/01/06/us/denver-prosecutor-fired-disbarred-harassment.html
-
-**Congress Overhauled the Electoral Count Process After the 2021 Violence**\
-`Bipartisan legislation enacted in 2022 makes it much more difficult for lawmakers to object to a state’s votes, and clarifies that the vice president cannot unilaterally overrule them.`\
-https://nytimes.com/2025/01/06/us/politics/after-the-violence-of-2021-congress-overhauled-the-electoral-count-process.html
-
-**Where in the World Do These Popular Detectives Solve Crimes?**\
-`Try this short quiz on investigators and inspectors cracking their cases around the globe.`\
-https://nytimes.com/interactive/2025/01/06/books/review/international-detective-novels.html
 
