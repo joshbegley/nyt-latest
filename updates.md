@@ -1,3 +1,11 @@
+**Chelsea consider Chalobah recall from Palace amid defensive injury issues**\
+`Chelsea could trigger their option to recall defender Trevoh Chalobah from his season-long loan spell at Crystal Palace this month.`\
+https://nytimes.com/athletic/6041025/2025/01/06/chelsea-trevoh-chalobah-recall-crystal-palace/
+
+**NFL 2025 mock draft, picks 1-18: What should non-playoff teams do in Round 1?**\
+`The NFL's 18 teams that missed the playoffs can turn their attention to the draft. How might the top picks play out come April?`\
+https://nytimes.com/athletic/6033197/2025/01/06/nfl-2025-mock-draft-first-round-travis-hunter/
+
 **Nate McMillan, Scott Brooks and the infamous NBA brawl that's a part of JJ Redick's Lakers**\
 `Now top assistants for the Lakers, Nate McMillan and Scott Brooks have found they are linked by more than just a famous scuffle.`\
 https://nytimes.com/athletic/6027522/2025/01/06/lakers-jj-redick-nba-fight-brooks-mcmillan/

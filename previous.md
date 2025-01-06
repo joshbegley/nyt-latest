@@ -1,3 +1,11 @@
+**Chelsea consider Chalobah recall from Palace amid defensive injury issues**\
+`Chelsea could trigger their option to recall defender Trevoh Chalobah from his season-long loan spell at Crystal Palace this month.`\
+https://nytimes.com/athletic/6041025/2025/01/06/chelsea-trevoh-chalobah-recall-crystal-palace/
+
+**NFL 2025 mock draft, picks 1-18: What should non-playoff teams do in Round 1?**\
+`The NFL's 18 teams that missed the playoffs can turn their attention to the draft. How might the top picks play out come April?`\
+https://nytimes.com/athletic/6033197/2025/01/06/nfl-2025-mock-draft-first-round-travis-hunter/
+
 **Nate McMillan, Scott Brooks and the infamous NBA brawl that's a part of JJ Redick's Lakers**\
 `Now top assistants for the Lakers, Nate McMillan and Scott Brooks have found they are linked by more than just a famous scuffle.`\
 https://nytimes.com/athletic/6027522/2025/01/06/lakers-jj-redick-nba-fight-brooks-mcmillan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6040965/2025/01/06/saquon-barkley-eric-dickerson-re
 **Is Joe Burrow on the Carson Palmer frustration train, or is this a temporary setback?**\
 `After the Bengals wasted his best season, Burrow is starting to grow more vocal about the team's direction.`\
 https://nytimes.com/athletic/6040855/2025/01/06/joe-burrow-carson-palmer-bengals/
-
-**Making sense of Jerod Mayo's firing and what comes next for the Patriots**\
-`Mayo is not the first coach-in-waiting turned one-and-done, and signs point to Robert Kraft wanting a power coach once again.`\
-https://nytimes.com/athletic/6040875/2025/01/06/patriots-fire-jerod-mayo-robert-kraft/
-
-**Harris to Certify Trump’s Victory, and Driving in Manhattan Gets Pricier**\
-`Plus, you probably haven’t seen the Golden Globe winners.`\
-https://nytimes.com/2025/01/06/podcasts/trump-victory-certification-driving-manhattan.html
 
