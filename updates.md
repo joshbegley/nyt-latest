@@ -1,3 +1,7 @@
+**A Terrorism Resurgence**\
+`We explore the main reasons for ISIS’s resurgence.`\
+https://nytimes.com/2025/01/06/briefing/isis-terrorism-resurgence.html
+
 **The Athletic FC: How did Man Utd compete with Liverpool? North London anger, Ranieri's revival**\
 `Today in TAFC: Have Manchester United found a formula that works? Postecoglou anger and Ranieri's latest revival at Roma.`\
 https://nytimes.com/athletic/6041028/2025/01/06/manchester-united-liverpool-ugarte-roma-ranieri/
