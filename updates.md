@@ -1,3 +1,7 @@
+**Commuters weigh new tolls against subway safety.**\
+`By Winnie Hu, Sean Piccoli and Nate Schweber`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/nyc-tolls-manhattan-subway-crime
+
 **Pope Names Nun to Head a Vatican Department, a First for a Woman**\
 `Sister Simona Brambilla was appointed as the prefect of a Vatican office that oversees religious orders, but she may not be alone at the top.`\
 https://nytimes.com/2025/01/06/world/europe/pope-sister-simona-brambilla-vatican-woman.html
