@@ -1,3 +1,7 @@
+**The Briefing: How does this end? Amorim's best XI? Is 1-0 to the Arsenal a problem?**\
+`Analysing the Premier League weekend and what to look out for in the week ahead`\
+https://nytimes.com/athletic/6039259/2025/01/06/amorim-xi-arsenal-1-0/
+
 **Neuer comparisons and incredible reflexes - what sort of goalkeeper are Spurs getting in Antonin Kinsky?**\
 `All you need to know about the 21-year-old Czech goalkeeper and why his former teams have such high hopes for him`\
 https://nytimes.com/athletic/6038563/2025/01/06/kinsky-tottenham-new-goalkeeper/
