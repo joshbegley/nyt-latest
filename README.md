@@ -1,3 +1,7 @@
+**Rams begin preparing for wild-card matchup with familiar Vikings squad**\
+`The Rams beat the Vikings in Week 8, but Sean McVay points out that a lot has changed since that Oct. 24 game.`\
+https://nytimes.com/athletic/6042384/2025/01/06/rams-wild-card-matchup-vikings-comparison/
+
 **Mel Shapiro, Director Whose Specialty Was John Guare, Dies at 89**\
 `He directed the playwright’s “The House of Blue Leaves,” and they helped turn “The Two Gentlemen of Verona” into a hit musical.`\
 https://nytimes.com/2025/01/06/theater/mel-shapiro-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042672/2025/01/06/pulisic-ac-milan-super-cup-win/
 **F1 explainers: What do you want to know about the pinnacle of motorsport?**\
 `As we head into 2025, we're looking for your ideas for Between the Racing Lines, our explainer series breaking down Formula One.`\
 https://nytimes.com/athletic/6042723/2025/01/06/f1-explainers-between-the-racing-lines/
-
-**In Canada, Covering the Trudeau News With an ‘Orchestra’**\
-`Times reporters in Toronto, Ottawa and Montreal anticipated that Justin Trudeau would step down as prime minister. Still, covering the news required teamwork, fast thinking and confident execution.`\
-https://nytimes.com/2025/01/06/insider/in-canada-covering-the-trudeau-news-with-an-orchestra.html
 
