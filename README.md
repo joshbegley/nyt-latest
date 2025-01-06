@@ -1,3 +1,7 @@
+**The Vivienne, Winner of RuPaul’s Drag Race UK, Dies**\
+`James Lee Williams was best known by their stage name and also built a career in musical theater.`\
+https://nytimes.com/2025/01/05/arts/the-vivienne-james-lee-williams-dead.html
+
 **Tyreek Hill hints at Dolphins exit: 'I'm out, bro'**\
 `Coach Mike McDaniel and GM Chris Grier will be back with the team next season, Dolphins owner Stephen Ross announced Sunday.`\
 https://nytimes.com/athletic/6040261/2025/01/05/tyreek-hill-dolphins-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/05/well/eat/ultraprocessed-foods-grocery-shopping.ht
 **Commanders again show fight as they lock up the No. 6 seed and set up rematch with Bucs**\
 `Washington finishes the season 12-5 with its win over Dallas and will travel to Tampa for a wild-card matchup vs. the Buccaneers. `\
 https://nytimes.com/athletic/6039823/2025/01/05/commanders-playoff-seeding-win-cowboys/
-
-**Demi Moore Caps Her Comeback With a Win at the Globes**\
-`She won the award for best actress in a musical or comedy for her role in the body horror film “The Substance.”`\
-https://nytimes.com/2025/01/05/movies/demi-moore-golden-globes-the-substance.html
 
