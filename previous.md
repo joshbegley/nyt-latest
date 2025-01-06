@@ -1,3 +1,7 @@
+**U.S. Steel and Nippon Sue Biden Over Decision to Block Deal**\
+`The companies argue in a lawsuit that the process of reviewing the transaction was corrupted by politics.`\
+https://nytimes.com/2025/01/06/business/us-steel-nippon-lawsuit.html
+
 **How Bruno Fernandes' unusual positioning exploited Trent Alexander-Arnold's defensive issues**\
 `This game offered a pointer for teams playing Liverpool: their right flank is vulnerable and positioning a playmaker there can cause issues`\
 https://nytimes.com/athletic/6041030/2025/01/06/trent-alexander-arnold-defensive-weakness-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6040195/2025/01/06/nfl-week-18-playoff-seeding-the-
 **Chelsea consider Chalobah recall from Palace amid defensive injury issues**\
 `Chelsea could trigger their option to recall defender Trevoh Chalobah from his season-long loan spell at Crystal Palace this month.`\
 https://nytimes.com/athletic/6041025/2025/01/06/chelsea-trevoh-chalobah-recall-crystal-palace/
-
-**NFL 2025 mock draft, picks 1-18: What should non-playoff teams do in Round 1?**\
-`The NFL's 18 teams that missed the playoffs can turn their attention to the draft. How might the top picks play out come April?`\
-https://nytimes.com/athletic/6033197/2025/01/06/nfl-2025-mock-draft-first-round-travis-hunter/
 

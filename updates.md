@@ -1,3 +1,7 @@
+**U.S. Steel and Nippon Sue Biden Over Decision to Block Deal**\
+`The companies argue in a lawsuit that the process of reviewing the transaction was corrupted by politics.`\
+https://nytimes.com/2025/01/06/business/us-steel-nippon-lawsuit.html
+
 **How Bruno Fernandes' unusual positioning exploited Trent Alexander-Arnold's defensive issues**\
 `This game offered a pointer for teams playing Liverpool: their right flank is vulnerable and positioning a playmaker there can cause issues`\
 https://nytimes.com/athletic/6041030/2025/01/06/trent-alexander-arnold-defensive-weakness-premier-league/
