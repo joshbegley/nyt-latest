@@ -1,3 +1,7 @@
+**Tottenham, Man United exploring loan deal for Kolo Muani**\
+`Tottenham Hotspur and Manchester United are actively exploring a January deal to sign Randal Kolo Muani on loan from Paris Saint-Germain.`\
+https://nytimes.com/athletic/6041359/2025/01/06/manchester-united-kolo-muani-tottenham-transfer/
+
 **Penguins report cards: Rust, Rakell tops at midseason**\
 `Tristan Jarry barely receives a passing grade, but Rust and Rakell are excelling. `\
 https://nytimes.com/athletic/6032520/2025/01/06/penguins-report-cards-midseason/
