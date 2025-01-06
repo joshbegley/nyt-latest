@@ -1,3 +1,15 @@
+**Hollywood’s Stars Skip Politics at the Globes**\
+`Sunday’s show was Hollywood’s first megaphone since Donald Trump was elected to a second term. This time, there was barely a peep about it.`\
+https://nytimes.com/2025/01/06/business/media/golden-globes-politics.html
+
+**Tennis Briefing: Sabalenka's remarkable Australia record, retirements spoil finals**\
+`The world No. 1 continued her remarkable streak in Australia, while injury retirements spoiled matches just a week into the season`\
+https://nytimes.com/athletic/6038495/2025/01/06/aryna-sabalenkas-remarkable-australia-record-continues-injury-retirements-spoil-atp-wta-finals/
+
+**What New York can learn from other cities that have congestion pricing.**\
+`London, Stockholm and Singapore offer clues of what to expect from the new tolling plan.`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/what-new-york-can-learn-from-other-cities-that-have-congestion-pricing
+
 **This Is What It Looks Like to Win a Golden Globe**\
 `Demi Moore, Adrien Brody, Zoe Saldaña and the stars of “Shogun” and “Baby Reindeer” enjoy their moments of glory.`\
 https://nytimes.com/2025/01/06/movies/golden-globes-winner-portraits.html

@@ -1,3 +1,15 @@
+**Hollywood’s Stars Skip Politics at the Globes**\
+`Sunday’s show was Hollywood’s first megaphone since Donald Trump was elected to a second term. This time, there was barely a peep about it.`\
+https://nytimes.com/2025/01/06/business/media/golden-globes-politics.html
+
+**Tennis Briefing: Sabalenka's remarkable Australia record, retirements spoil finals**\
+`The world No. 1 continued her remarkable streak in Australia, while injury retirements spoiled matches just a week into the season`\
+https://nytimes.com/athletic/6038495/2025/01/06/aryna-sabalenkas-remarkable-australia-record-continues-injury-retirements-spoil-atp-wta-finals/
+
+**What New York can learn from other cities that have congestion pricing.**\
+`London, Stockholm and Singapore offer clues of what to expect from the new tolling plan.`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/what-new-york-can-learn-from-other-cities-that-have-congestion-pricing
+
 **This Is What It Looks Like to Win a Golden Globe**\
 `Demi Moore, Adrien Brody, Zoe Saldaña and the stars of “Shogun” and “Baby Reindeer” enjoy their moments of glory.`\
 https://nytimes.com/2025/01/06/movies/golden-globes-winner-portraits.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5840239/2025/01/06/doug-pederson-fired-jaguars/
 **The Worst Golden Globes Fashion Trend**\
 `Enough with the retro throwback nostalgia — Hollywood needs to be less conservative on the red carpet.`\
 https://nytimes.com/2025/01/06/style/golden-globes-worst-fashion.html
-
-**Intentional howl: An NBA game went to the dogs — 140 of them**\
-`If the Washington Wizards' experience is any guide, Hoops & Hounds night might become more prevalent in the NBA. `\
-https://nytimes.com/athletic/6040610/2025/01/06/washington-wizards-dog-night-nba/
-
-**The Next Chapter in the Amazon-Trump Reset**\
-`The tech company’s deal to release a film on Melania Trump has renewed scrutiny of Jeff Bezos’s efforts to get closer to the president-elect.`\
-https://nytimes.com/2025/01/06/business/dealbook/bezos-trump-amazon-melania.html
-
-**Lawyer Sues to Run for N.Y.C. Mayor on Independence Party Line**\
-`Jim Walden, who left the Democratic Party years ago, is challenging a law that bans the word “independence” on a ballot line.`\
-https://nytimes.com/2025/01/06/nyregion/jim-walden-lawsuit-nyc-mayor.html
 
