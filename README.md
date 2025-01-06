@@ -1,3 +1,15 @@
+**Campaign group starts legal action against Wimbledon tennis expansion**\
+`Save Wimbledon Park is challenging the Mayor of London's office decision to award planning permission for 39 new courts.`\
+https://nytimes.com/athletic/6041299/2025/01/06/wimbledon-tennis-expansion-campaign-legal/
+
+**Ducks' creative Frank Vatrano extension marks their latest step toward relevancy**\
+`For the first time in a long time, the Ducks could be on their way out of rebuild mode. But they aren't quite there yet.`\
+https://nytimes.com/athletic/6040938/2025/01/06/ducks-nhl-rebuild-vatrano-contract/
+
+**NFL odds, schedule for Wild Card games: Ravens, Bills biggest first-round favorites**\
+`The NFL Wild Card games feature three days of action with two big favorites and a surprisingly close matchup on Monday Night.`\
+https://nytimes.com/athletic/6041761/2025/01/06/nfl-playoffs-odds-schedule-wild-card/
+
 **How Austria Could Get Its First Far-Right Chancellor Since World War II**\
 `The leader of the anti-immigration, pro-Russia Freedom Party has been given the chance to try to form a government after months of coalition talks among mainstream parties collapsed.`\
 https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancellor.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/01/06/us/politics/trump-national-archives.html
 **Abolish the Golden Globes**\
 `Unless they make a better case for their existence.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/abolish-the-golden-globes
-
-**Friedrich St. Florian, Architect of World War II Memorial, Dies at 91**\
-`His design was criticized as banal and beneath its subject. It was also praised for fitting seamlessly into hallowed space on the National Mall.`\
-https://nytimes.com/2025/01/06/arts/design/friedrich-st-florian-dead.html
-
-**Textor enters exclusivity with U.S.-Saudi group over potential sale of Palace stake**\
-`A group backed by individuals from Saudi Arabia and the United States has signed an exclusivity agreement to buy out Eagle Football and take a 45 per cent stake in Premier League club Crystal Palace, sources briefed on the proposed deal have told The Athletic.`\
-https://nytimes.com/athletic/5992337/2025/01/06/crystal-palace-takeover-john-textor-sale/
-
-**Trudeau was left in a weakened position with a political brand that no longer worked.**\
-`By Matina Stevis-Gridneff`\
-https://nytimes.com/live/2025/01/06/world/canada-trudeau/trudeau-was-left-in-a-weaken-position-with-a-political-brand-no-longer-worked
 
