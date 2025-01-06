@@ -1,3 +1,11 @@
+**U.S. Envoy Says Israel Will Withdraw From Southern Lebanon**\
+`With the deadline looming for the terms of a fragile cease-fire between Israel and Hezbollah to be met, an American diplomat on Monday said “much progress” had been made recently.`\
+https://nytimes.com/2025/01/06/world/middleeast/israel-lebanon-ceasefire-hezbollah-withdraw.html
+
+**Browns are giving Kevin Stefanski, Andrew Berry one more chance to get it right**\
+`In 2025, the GM, head coach and the entire operation must show not just immediate progress but also actual fixes. `\
+https://nytimes.com/athletic/6042592/2025/01/06/browns-coach-kevin-stefanski-gm-andrew-berry/
+
 **New York Crime Rate Falls, but Number of Felony Assaults Rises Again**\
 `Killings and shootings have dropped, but headlines have been dominated by terrifying crimes, like the killing of a woman who was burned to death on the F train.`\
 https://nytimes.com/2025/01/06/nyregion/nyc-crime-2024.html
