@@ -1,3 +1,7 @@
+**With the owner in Florida, Jets players and coaches were left to explain a season gone wrong**\
+`As the locker room was cleared out, Jeff Ulbrich and a few players met with the media on Monday.`\
+https://nytimes.com/athletic/6042685/2025/01/06/jets-locker-room-end-of-season/
+
 **U.S. Eases Some Restrictions on Humanitarian Aid to Syria**\
 `The authorization comes after rebels toppled the Syrian government last month and is intended to allow humanitarian groups to operate more freely without running afoul of U.S. sanctions.`\
 https://nytimes.com/2025/01/06/us/politics/syria-us-sanctions-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042650/2025/01/06/ryan-grubb-fired-seahawks-coordi
 **Brighton's Igor Julio out for a 'few months' with thigh injury**\
 `Brighton &amp; Hove Albion have been hit by an injury blow to defender Igor Julio.`\
 https://nytimes.com/athletic/6042798/2025/01/06/brighton-defender-igor-julio-injury/
-
-**Pulisic inspires Milan to Super Cup win**\
-`Christian Pulisic lifted his first trophy for AC Milan as he once again led a fightback which saw his team come from behind and beat rivals Inter 3-2 in the Italian Super Cup final.`\
-https://nytimes.com/athletic/6042672/2025/01/06/pulisic-ac-milan-super-cup-win/
 
