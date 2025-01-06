@@ -1,3 +1,7 @@
+**Trump Seeks to Halt His Criminal Sentencing in New York**\
+`A Manhattan judge has already indicated that he will spare Donald J. Trump from jail time, but the president-elect is seeking to avoid the symbolic blow of the criminal proceeding.`\
+https://nytimes.com/2025/01/06/nyregion/trump-trial-sentencing-new-york.html
+
 **NFL head coach interview process: What to know about league policies, Rooney Rule**\
 `The New York Jets, Chicago Bears, New Orleans Saints, New England Patriots and Jacksonville Jaguars all have openings.`\
 https://nytimes.com/athletic/6034176/2025/01/06/nfl-head-coach-interview-process/
