@@ -1,3 +1,7 @@
+**What we learned from college basketball's packed weekend: UK stays hot, Creighton stumbles**\
+`It was the first weekend of the men's basketball season with all five high-major conferences playing league games at the same time.`\
+https://nytimes.com/athletic/6040249/2025/01/06/college-basketball-takeaways-duke-houston-kentucky/
+
 **Major Winter Storm Moves to the Mid-Atlantic**\
 `A hazardous mix of snow, sleet and freezing rain will be unleashed on the Mid-Atlantic on Monday. It’s part of a storm system that moved across multiple states over the weekend.`\
 https://nytimes.com/2025/01/06/weather/winter-storm-snow-rain-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6040171/2025/01/06/manuel-ugarte-anfield-performanc
 **Heavy Snow Blankets Central U.S.**\
 `The major winter storm froze over some roads and highways as it moved east with a dangerous mix of snow, sleet and rain.`\
 https://nytimes.com/video/weather/100000009909567/heavy-snow-blankets-central-us.html
-
-**Warriors get blasted by Kings; won't have Jonathan Kuminga for 3 weeks**\
-`"We haven't shown (we can be a come-from-behind team)," Steph Curry said. "That's not our MO."`\
-https://nytimes.com/athletic/6040566/2025/01/06/warriors-lose-to-kings-jonathan-kuminga-injury/
 

@@ -1,3 +1,7 @@
+**What we learned from college basketball's packed weekend: UK stays hot, Creighton stumbles**\
+`It was the first weekend of the men's basketball season with all five high-major conferences playing league games at the same time.`\
+https://nytimes.com/athletic/6040249/2025/01/06/college-basketball-takeaways-duke-houston-kentucky/
+
 **Trent Alexander-Arnold’s first game since Real Madrid called was bad - but Liverpool still need him**\
 `Yes, Liverpool’s right-back struggled. But it’s more likely a bad day at the office than a sign that Alexander-Arnold's mind is elsewhere`\
 https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-real-madrid/
