@@ -1,7 +1,3 @@
-**Chargers lock up AFC's fifth seed with win vs. Raiders: Key Takeaways**\
-`The Chargers secured the No. 5 seed in the AFC playoffs and will face the Houston Texans in a wild-card round matchup.`\
-https://nytimes.com/athletic/6038728/2025/01/05/chargers-raiders-score-result-takeaways/
-
 **How to Win Friends and Influence People**\
 `How do people get to be No. 1?`\
 https://nytimes.com/2025/01/05/podcasts/how-to-win-friends-and-influence-people-this-american-life-nyt-audio.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/05/movies/ariana-grande-wicked-golden-globes-support
 **Here’s the latest.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-the-latest
+
+**The battle of the pop stars.**\
+`By Stephanie Goodman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/ariana-grande-selena-gomez-golden-globes
 
