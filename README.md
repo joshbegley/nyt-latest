@@ -1,3 +1,7 @@
+**Kirk Cousins has left the building. What's next for him and the Falcons?**\
+`Good thing Michael Penix Jr. is playing on a rookie contract because Cousins will be expensive for the Falcons no matter where he plays.`\
+https://nytimes.com/athletic/6042462/2025/01/06/falcons-kirk-cousins-future/
+
 **Kyrie Irving out at least 1-2 weeks with bulging disc in his back**\
 `Irving's absence comes after the Mavericks already lost Luka Dončić to a left calf strain.`\
 https://nytimes.com/athletic/6042459/2025/01/06/kyrie-irving-injury-back-status-update-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/world/middleeast/syria-government-school-changes.
 **Elon Musk Hijacks U.K. Politics in Favor of the Far Right**\
 `With 211 million followers on social media, the multibillionaire seems intent on using his global platform to rattle British politics.`\
 https://nytimes.com/2025/01/06/world/europe/uk-elon-musk-far-right.html
-
-**When a Bryce Eldridge trade would make sense for the Giants, and why it isn't now**\
-`The Giants reportedly turned down trades that would have included Eldridge. So, when would a good time be to deal a top prospect?`\
-https://nytimes.com/athletic/6041969/2025/01/06/sf-giants-bryce-eldridge-trade-scenarios/
 
