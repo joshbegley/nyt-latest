@@ -1,3 +1,11 @@
+**Neuer comparisons and incredible reflexes - what sort of goalkeeper are Spurs getting in Antonin Kinsky?**\
+`All you need to know about the 21-year-old Czech goalkeeper and why his former teams have such high hopes for him`\
+https://nytimes.com/athletic/6038563/2025/01/06/kinsky-tottenham-new-goalkeeper/
+
+**Alexander Isak - king of the six-yard box**\
+`Striker Isak is scoring tap-ins for fun this season - this is how he does it and how Eddie Howe's selections have helped him`\
+https://nytimes.com/athletic/6037360/2025/01/06/alexander-isak-six-yard-box-king/
+
 **Lyall, Deehan, Olsen... Hurzeler and a 'disappointing feeling'**\
 `Fabian Hurzeler has turned Brighton into the division's draw specialists. They must start winning to maintain their push for Europe`\
 https://nytimes.com/athletic/6037661/2025/01/06/brighton-arsenal-draw-fabian-hurzeler/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6038735/2025/01/05/vikings-lions-score-result-takea
 **Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
 `The Chiefs and Lions have next weekend off, but these 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
 https://nytimes.com/athletic/6034081/2025/01/05/nfl-playoff-chances-matchups-super-bowl/
-
-**Aaron Rodgers turned back the clock — now he'll decide whether to walk out the door**\
-`The quarterback saved one of his best games for last this season, and now heads toward an uncertain future.`\
-https://nytimes.com/athletic/6040507/2025/01/05/aaron-rodgers-jets-final-game-retirement-plans/
-
-**Chargers exact revenge against Raiders to claim fifth seed and head into playoffs**\
-`The Chargers haven't forgotten their ugly 63-21 loss in Las Vegas last season. Sunday's win had a cleansing effect.`\
-https://nytimes.com/athletic/6040550/2025/01/05/chargers-win-playoff-seed-raiders/
 
