@@ -1,3 +1,7 @@
+**How the Packers must compensate without Christian Watson against Eagles**\
+`Watson averaged 21.4 yards per catch on 29 catches this season, but now the Packers will be without their best deep threat.`\
+https://nytimes.com/athletic/6042591/2025/01/06/packers-playoffs-eagles-christian-watson-injury/
+
 **What to watch this week in NBA: Celtics-Nuggets, Thunder-Cavaliers plus Giannis vs. Wemby**\
 `What to watch, and how to watch it, as the NBA turns its calendar to 2025.`\
 https://nytimes.com/athletic/6042245/2025/01/06/nba-what-to-watch-celtics-cavs-wemby/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042421/2025/01/06/usmnt-brandon-vasquez-austin-mls
 **Giuliani Is Held in Contempt of Court in Defamation Case**\
 `Rudy Giuliani, the former mayor of New York City, has failed to turn over his assets to two Georgia poll workers who won a defamation lawsuit against him.`\
 https://nytimes.com/2025/01/06/nyregion/rudy-giuliani-contempt-defamation-case.html
-
-**Historians’ Group Votes to Condemn ‘Scholasticide’ in Gaza**\
-`After contentious debate, members of the American Historical Association voted to condemn what a resolution described as Israel’s destruction of Gaza’s educational system.`\
-https://nytimes.com/2025/01/06/arts/historians-gaza-israel-education.html
 

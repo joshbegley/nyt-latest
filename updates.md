@@ -1,3 +1,7 @@
+**How the Packers must compensate without Christian Watson against Eagles**\
+`Watson averaged 21.4 yards per catch on 29 catches this season, but now the Packers will be without their best deep threat.`\
+https://nytimes.com/athletic/6042591/2025/01/06/packers-playoffs-eagles-christian-watson-injury/
+
 **What to watch this week in NBA: Celtics-Nuggets, Thunder-Cavaliers plus Giannis vs. Wemby**\
 `What to watch, and how to watch it, as the NBA turns its calendar to 2025.`\
 https://nytimes.com/athletic/6042245/2025/01/06/nba-what-to-watch-celtics-cavs-wemby/
