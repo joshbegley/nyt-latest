@@ -1,7 +1,3 @@
-**The eternal Claudio Ranieri has turned Roma's expensive squad back into a team**\
-`Football, as a game, should have long passed Ranieri by - but the 73-year-old is rescuing his hometown club once again`\
-https://nytimes.com/athletic/6039441/2025/01/06/claudio-ranieri-roma-lazio-derby-win/
-
 **A bad day at the office for Trent Alexander-Arnold - but Liverpool still need him**\
 `Yes Alexander-Arnold struggled against United - but this wasn't the day to make sweeping judgements`\
 https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-struggles/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6038416/2025/01/06/leicester-city-january-transfer-
 **Ollie Watkins' struggles mean he may need to prove himself all over again**\
 `The Aston Villa striker isn't hitting the heights of last season and looks likely to lose his place to Jhon Duran on a regular basis`\
 https://nytimes.com/athletic/6037129/2025/01/06/ollie-watkins-aston-villa-goals-form/
+
+**Life without Jarrod Bowen - who is going to step up with West Ham's best player missing?**\
+`Lopetegui will be looking for Kudus, Fullkrug, Summerville and Paqueta to step up in the coming weeks`\
+https://nytimes.com/athletic/6037077/2025/01/06/jarrod-bowen-west-ham-replacement/
 
