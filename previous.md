@@ -1,3 +1,11 @@
+**Harris Announces Trump’s Win in the 2024 Election**\
+`Vice President Kamala Harris presided over the certification of her own presidential election loss.`\
+https://nytimes.com/video/us/politics/100000009910728/congress-certifies-trump-2024-election.html
+
+**Los Angeles Braces for ‘Life-Threatening and Destructive’ Winds**\
+`Forecasters warned that a significant Santa Ana wind event this week could help wildfires spread quickly and erratically.`\
+https://nytimes.com/2025/01/06/weather/los-angeles-santa-ana-winds-fire.html
+
 **A bewildering court ruling caused confusion days before the tolls started.**\
 `By Ana Ley`\
 https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/a-bewildering-court-ruling-caused-confusion-days-before-the-tolls-started
