@@ -1,3 +1,7 @@
+**NFL head coach interview process: What to know about league policies, Rooney Rule**\
+`The New York Jets, Chicago Bears, New Orleans Saints, New England Patriots and Jacksonville Jaguars all have openings.`\
+https://nytimes.com/athletic/6034176/2025/01/06/nfl-head-coach-interview-process/
+
 **Canucks notebook: Quinn Hughes' return, Danton Heinen's fit and a tough month ahead**\
 `The Canucks have struggled since the holiday break. Returning stars should help as the schedule turns difficult. `\
 https://nytimes.com/athletic/6040887/2025/01/06/canucks-quinn-hughes-injury-january/
