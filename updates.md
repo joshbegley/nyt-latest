@@ -1,3 +1,19 @@
+**Mike Rinder, Scientology Spokesman Turned Critic, Dies at 69**\
+`In a memoir and as a host of the documentary series “Leah Remini: Scientology and the Aftermath,” he accused the church of fostering a culture of abuse.`\
+https://nytimes.com/2025/01/06/us/mike-rinder-dead-scientology-critic.html
+
+**Bears request permission to interview Cowboys coach Mike McCarthy**\
+`Dallas' exclusive negotiating window with McCarthy runs until Jan. 14. Will Jerry Jones let him interview or extend his deal?`\
+https://nytimes.com/athletic/6042775/2025/01/06/bears-interview-request-mike-mccarthy-cowboys-coach/
+
+**No drama: 49ers’ Brock Purdy hopes deal is done 'sooner rather than later'**\
+`Christian McCaffrey said Monday he's close to fully recovered from the knee injury that ended his season in snowy Buffalo.`\
+https://nytimes.com/athletic/6042803/2025/01/06/brock-purdy-49ers-contract-negotiations/
+
+**An 'imminent' Jake Middleton return, Kirill Kaprizov update and PK praise: Wild notes**\
+`Hynes also had praise for defenseman Zeev Buium, the Wild's top prospect, and his performance at the World Juniors.`\
+https://nytimes.com/athletic/6042838/2025/01/06/an-imminent-jake-middleton-return-kirill-kaprizov-update-and-pk-praise-wild-notes/
+
 **With the owner in Florida, Jets players and coaches were left to explain a season gone wrong**\
 `As the locker room was cleared out, Jeff Ulbrich and a few players met with the media on Monday.`\
 https://nytimes.com/athletic/6042685/2025/01/06/jets-locker-room-end-of-season/
