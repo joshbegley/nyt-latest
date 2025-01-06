@@ -1,3 +1,7 @@
+**Rams begin preparing for wild-card matchup with familiar Vikings squad**\
+`The Rams beat the Vikings in Week 8, but Sean McVay points out that a lot has changed since that Oct. 24 game.`\
+https://nytimes.com/athletic/6042384/2025/01/06/rams-wild-card-matchup-vikings-comparison/
+
 **Mel Shapiro, Director Whose Specialty Was John Guare, Dies at 89**\
 `He directed the playwright’s “The House of Blue Leaves,” and they helped turn “The Two Gentlemen of Verona” into a hit musical.`\
 https://nytimes.com/2025/01/06/theater/mel-shapiro-dead.html
