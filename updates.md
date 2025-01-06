@@ -1,3 +1,7 @@
+**Demi Moore caps her comeback with a win at the Globes.**\
+`By Esther Zuckerman`\
+https://nytimes.com/2025/01/05/movies/demi-moore-golden-globes-the-substance.html
+
 **The Well Challenge: 5 Days to Happier, Healthier Eating**\
 `These simple tips will set you up for a delicious year.`\
 https://nytimes.com/explain/2025/well/ultraprocessed-food-challenge
