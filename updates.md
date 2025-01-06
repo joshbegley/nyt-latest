@@ -1,3 +1,11 @@
+**'We got our guy': Bryce Young and the Panthers go into the offseason on high note**\
+`Young joined Cam Newton and Steve Beuerlein as the only quarterbacks in franchise history to account for five TDs in a game.`\
+https://nytimes.com/athletic/6039857/2025/01/05/bryce-young-carolina-panthers-win-falcons/
+
+**Packers stumble into playoffs after finale loss to Bears with much reason for concern**\
+`Green Bay will visit Philadelphia in the wild-card round of the playoffs next weekend.`\
+https://nytimes.com/athletic/6039866/2025/01/05/packers-loss-jordan-love-christian-watson-bears/
+
 **Chargers lock up AFC's fifth seed with win vs. Raiders: Key Takeaways**\
 `The Chargers secured the No. 5 seed in the AFC playoffs and will face the Houston Texans in a wild-card round matchup.`\
 https://nytimes.com/athletic/6038728/2025/01/05/chargers-raiders-score-result-takeaways/
