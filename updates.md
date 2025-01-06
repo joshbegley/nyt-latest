@@ -1,3 +1,11 @@
+**What will Jerry Jones decide about Mike McCarthy? Potential timeline of decision, more**\
+`The five-year contract McCarthy signed in January 2020 runs out Jan. 14. He made it clear Sunday he wants to remain in Dallas.`\
+https://nytimes.com/athletic/6039815/2025/01/05/cowboys-mike-mccarthy-job-status-jerry-jones/
+
+**Biggest Bills questions heading into the postseason**\
+`The Bills will face the Broncos in the wild-card round.`\
+https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questions/
+
 **Kieran Culkin Wins a Golden Globe for ‘A Real Pain’**\
 `Culkin earned his second Golden Globe in two years after being awarded for his role as Roman Roy in “Succession.”`\
 https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
