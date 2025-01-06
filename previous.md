@@ -1,3 +1,11 @@
+**Kieran Culkin wins his second Globe in two years.**\
+`Culkin and`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/kieran-culkin-wins-his-second-globe-in-two-years
+
+**Biggest Bills questions heading into the postseason**\
+`The Bills will face the Broncos in the wild-card round.`\
+https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questionsnto-the-postseason/
+
 **Cardinals top 49ers in season finale 47-24 as Murray shines: Takeaways**\
 `Arizona (8-9) pulled away from a close game with three fourth-quarter touchdown drives.`\
 https://nytimes.com/athletic/6038700/2025/01/05/49ers-cardinals-score-result-takeaways/
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/6039857/2025/01/05/bryce-young-carolina-panthers-wi
 https://nytimes.com/athletic/6038720/2025/01/05/dolphins-jets-score-result-takeaways/
 
 **All eyes on GM Ryan Poles as the Bears' search for their next head coach begins**\
-`Once again, history is repeating itself in Chicago as Poles appears set to lead a coaching search like Ryan Pace before him.`\
+`Once again, history is repeating itself in Chicago as Poles appears set to lead a coaching search as Ryan Pace did before him.`\
 https://nytimes.com/athletic/6039721/2025/01/05/bears-coach-search-ryan-poles/
-
-**Greenberg: Bears win in Green Bay? Now I've seen everything**\
-`Chicago's first win in Green Bay since Thanksgiving 2015 ended an 11-game losing streak to the Packers, longest in the rivalry's history. `\
-https://nytimes.com/athletic/6039758/2025/01/05/bears-packers-chicago-elusive-victory-column/
-
-**Packers stumble into playoffs after finale loss to Bears with much reason for concern**\
-`Green Bay will visit Philadelphia in the wild-card round of the playoffs next weekend.`\
-https://nytimes.com/athletic/6039866/2025/01/05/packers-loss-jordan-love-christian-watson-bears/
 

@@ -1,3 +1,15 @@
+**Kieran Culkin wins his second Globe in two years.**\
+`Culkin and`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/kieran-culkin-wins-his-second-globe-in-two-years
+
+**Biggest Bills questions heading into the postseason**\
+`The Bills will face the Broncos in the wild-card round.`\
+https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questionsnto-the-postseason/
+
+**All eyes on GM Ryan Poles as the Bears' search for their next head coach begins**\
+`Once again, history is repeating itself in Chicago as Poles appears set to lead a coaching search as Ryan Pace did before him.`\
+https://nytimes.com/athletic/6039721/2025/01/05/bears-coach-search-ryan-poles/
+
 **Cardinals top 49ers in season finale 47-24 as Murray shines: Takeaways**\
 `Arizona (8-9) pulled away from a close game with three fourth-quarter touchdown drives.`\
 https://nytimes.com/athletic/6038700/2025/01/05/49ers-cardinals-score-result-takeaways/
