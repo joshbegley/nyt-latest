@@ -1,3 +1,7 @@
+**Seahawks fire OC Ryan Grubb after 1 season**\
+`Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
+https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
+
 **Trudeau’s honeymoon with Canadians lasted only about two years.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/01/06/world/canada-trudeau/trudeaus-honeymoon-with-canadians-lasted-only-about-two-years

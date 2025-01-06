@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6041761/2025/01/06/nfl-playoffs-odds-schedule-wild-
 `The leader of the anti-immigration, pro-Russia Freedom Party has been given the chance to try to form a government after months of coalition talks among mainstream parties collapsed.`\
 https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancellor.html
 
-**Seahawks fire OC Ryan Grubb after 1 season: Reports**\
+**Seahawks fire OC Ryan Grubb after 1 season**\
 `Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
 https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
 
