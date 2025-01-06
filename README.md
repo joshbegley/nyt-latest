@@ -1,3 +1,7 @@
+**U.S. Eases Some Restrictions on Humanitarian Aid to Syria**\
+`The authorization comes after rebels toppled the Syrian government last month and is intended to allow humanitarian groups to operate more freely without running afoul of U.S. sanctions.`\
+https://nytimes.com/2025/01/06/us/politics/syria-us-sanctions-aid.html
+
 **Rams begin preparing for wild-card matchup with familiar Vikings squad**\
 `The Rams beat the Vikings in Week 8, but Sean McVay points out that a lot has changed since that Oct. 24 game.`\
 https://nytimes.com/athletic/6042384/2025/01/06/rams-wild-card-matchup-vikings-comparison/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042798/2025/01/06/brighton-defender-igor-julio-inj
 **Pulisic inspires Milan to Super Cup win**\
 `Christian Pulisic lifted his first trophy for AC Milan as he once again led a fightback which saw his team come from behind and beat rivals Inter 3-2 in the Italian Super Cup final.`\
 https://nytimes.com/athletic/6042672/2025/01/06/pulisic-ac-milan-super-cup-win/
-
-**F1 explainers: What do you want to know about the pinnacle of motorsport?**\
-`As we head into 2025, we're looking for your ideas for Between the Racing Lines, our explainer series breaking down Formula One.`\
-https://nytimes.com/athletic/6042723/2025/01/06/f1-explainers-between-the-racing-lines/
 
