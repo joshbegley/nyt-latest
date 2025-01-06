@@ -1,3 +1,11 @@
+**Geno Smith throws 4 TD passes in Seahawks' 30-25 win over Rams: Takeaways**\
+`Rams are the No. 4 seed in the NFC and will face the loser of Sunday Night's Detroit Lions vs. Minnesota Vikings game`\
+https://nytimes.com/athletic/6038714/2025/01/05/seahawks-rams-score-result-takeaways/
+
+**Bucs' path to NFC South title wasn't easy. Will that fortitude help in playoffs?**\
+`The Bucs had to rally Sunday to beat the Saints and secure the NFC's last playoff spot. “It all makes you stronger,” Todd Bowles said.`\
+https://nytimes.com/athletic/6039779/2025/01/05/bucs-nfc-south-champions-playoffs/
+
 **Kieran Culkin wins his second Globe in two years.**\
 `Culkin and`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/kieran-culkin-wins-his-second-globe-in-two-years
