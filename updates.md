@@ -1,3 +1,7 @@
+**Pope Names Nun to Head a Vatican Department, a First for a Woman**\
+`Sister Simona Brambilla was appointed as the prefect of a Vatican office that oversees religious orders, but she may not be alone at the top.`\
+https://nytimes.com/2025/01/06/world/europe/pope-sister-simona-brambilla-vatican-woman.html
+
 **Patriots owner Robert Kraft takes blame for Jerod Mayo's struggles**\
 `“The whole situation is on me,” Kraft said Monday, taking responsibility for putting the ex-coach in a position where he couldn't succeed.`\
 https://nytimes.com/athletic/6042119/2025/01/06/patriots-robert-kraft-jerod-mayo-firing/
