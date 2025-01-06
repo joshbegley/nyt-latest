@@ -1,3 +1,19 @@
+**Kirk Cousins has left the building. What's next for him and the Falcons?**\
+`Good thing Michael Penix Jr. is playing on a rookie contract because Cousins will be expensive for the Falcons no matter where he plays.`\
+https://nytimes.com/athletic/6042462/2025/01/06/falcons-kirk-cousins-future/
+
+**Kyrie Irving out at least 1-2 weeks with bulging disc in his back**\
+`Irving's absence comes after the Mavericks already lost Luka Dončić to a left calf strain.`\
+https://nytimes.com/athletic/6042459/2025/01/06/kyrie-irving-injury-back-status-update-mavericks/
+
+**A calm offseason in Charlotte for a change. Panthers' players say stability will be good**\
+`"The sky’s the limit, in my eyes,” said Panthers cornerback Jaycee Horn, who added that the team now has direction.`\
+https://nytimes.com/athletic/6042304/2025/01/06/panthers-offseason-stability-dave-canales-bryce-young/
+
+**‘The Brutalist’ Won Big at the Golden Globes. But How Can You See It?**\
+`Interested in watching the three-and-a-half-hour epic about a fictional Hungarian architect? Good luck if you don’t live in New York or Los Angeles.`\
+https://nytimes.com/2025/01/06/movies/the-brutalist-where-how-to-watch.html
+
 **U.S. Sends 11 Guantánamo Prisoners to Oman to Start New Lives**\
 `The secret mission left the smallest number of prisoners at Guantánamo Bay since the day the detention center opened in 2002.`\
 https://nytimes.com/2025/01/06/us/politics/guantanamo-prisoners-oman.html
