@@ -1,3 +1,15 @@
+**Minneapolis Promises Police Overhaul in Deal With Justice Department**\
+`With only two weeks left in the Biden administration, officials hurried to finalize a plan in the city where George Floyd was murdered.`\
+https://nytimes.com/2025/01/06/us/minneapolis-polise-consent-decree-justice.html
+
+**USMNT striker Brandon Vasquez signs for Austin FC**\
+`Austin FC has completed the signing of USMNT striker Brandon Vasquez from CF Monterrey for a fee worth $10million.`\
+https://nytimes.com/athletic/6042421/2025/01/06/usmnt-brandon-vasquez-austin-mls/
+
+**Giuliani Is Held in Contempt of Court in Defamation Case**\
+`Rudy Giuliani, the former mayor of New York City, has failed to turn over his assets to two Georgia poll workers who won a defamation lawsuit against him.`\
+https://nytimes.com/2025/01/06/nyregion/rudy-giuliani-contempt-defamation-case.html
+
 **Historians’ Group Votes to Condemn ‘Scholasticide’ in Gaza**\
 `After contentious debate, members of the American Historical Association voted to condemn what a resolution described as Israel’s destruction of Gaza’s educational system.`\
 https://nytimes.com/2025/01/06/arts/historians-gaza-israel-education.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6042462/2025/01/06/falcons-kirk-cousins-future/
 **Kyrie Irving out at least 1-2 weeks with bulging disc in his back**\
 `Irving's absence comes after the Mavericks already lost Luka Dončić to a left calf strain.`\
 https://nytimes.com/athletic/6042459/2025/01/06/kyrie-irving-injury-back-status-update-mavericks/
-
-**A calm offseason in Charlotte for a change. Panthers' players say stability will be good**\
-`"The sky’s the limit, in my eyes,” said Panthers cornerback Jaycee Horn, who added that the team now has direction.`\
-https://nytimes.com/athletic/6042304/2025/01/06/panthers-offseason-stability-dave-canales-bryce-young/
-
-**U.S. Sends 11 Guantánamo Prisoners to Oman to Start New Lives**\
-`The secret mission left the smallest number of prisoners at Guantánamo Bay since the day the detention center opened in 2002.`\
-https://nytimes.com/2025/01/06/us/politics/guantanamo-prisoners-oman.html
-
-**Arthur Kaliyev claimed by Rangers — What are they getting? What went wrong in L.A.?**\
-`The Rangers now get the opportunity to bring the best out of a skilled player with question marks.`\
-https://nytimes.com/athletic/6042252/2025/01/06/kaliyev-rangers-kings-waivers/
 

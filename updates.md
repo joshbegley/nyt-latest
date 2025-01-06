@@ -1,3 +1,15 @@
+**Minneapolis Promises Police Overhaul in Deal With Justice Department**\
+`With only two weeks left in the Biden administration, officials hurried to finalize a plan in the city where George Floyd was murdered.`\
+https://nytimes.com/2025/01/06/us/minneapolis-polise-consent-decree-justice.html
+
+**USMNT striker Brandon Vasquez signs for Austin FC**\
+`Austin FC has completed the signing of USMNT striker Brandon Vasquez from CF Monterrey for a fee worth $10million.`\
+https://nytimes.com/athletic/6042421/2025/01/06/usmnt-brandon-vasquez-austin-mls/
+
+**Giuliani Is Held in Contempt of Court in Defamation Case**\
+`Rudy Giuliani, the former mayor of New York City, has failed to turn over his assets to two Georgia poll workers who won a defamation lawsuit against him.`\
+https://nytimes.com/2025/01/06/nyregion/rudy-giuliani-contempt-defamation-case.html
+
 **Historians’ Group Votes to Condemn ‘Scholasticide’ in Gaza**\
 `After contentious debate, members of the American Historical Association voted to condemn what a resolution described as Israel’s destruction of Gaza’s educational system.`\
 https://nytimes.com/2025/01/06/arts/historians-gaza-israel-education.html
