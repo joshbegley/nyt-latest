@@ -1,3 +1,19 @@
+**Predicting where the top 15 remaining MLB free agents will sign: Who lands Sasaki?**\
+`From Sasaki to Bregman to Santander and more, Jim Bowden runs through the top remaining free agents and predicts where each will sign.`\
+https://nytimes.com/athletic/6039098/2025/01/06/mlb-free-agents-team-signing-predictions/
+
+**Pope Names Vocal Supporter of Migrants as Next Cardinal in Washington**\
+`The appointment of Robert W. McElroy is a signal of the pope’s priorities, two weeks before Donald J. Trump’s term begins.`\
+https://nytimes.com/2025/01/06/us/pope-archbishop-washington-robert-mcelroy.html
+
+**Villa considering January move for Celta Vigo's Mingueza**\
+`Aston Villa are considering a move for Oscar Mingueza from Celta Vigo and is among a list of potential candidates at right-back.`\
+https://nytimes.com/athletic/6041116/2025/01/06/aston-villa-transfers-oscar-mingueza/
+
+**Assessing Bears coaching candidates: Ben Johnson, Mike Vrabel and wild cards**\
+`Our Bears writers share their takes on the men Ryan Poles and company are likely to consider as the next head coach.`\
+https://nytimes.com/athletic/6040647/2025/01/06/bears-head-coaching-candidates-ryan-poles/
+
 **Sam Darnold will have to bounce back quickly for Vikings to have a chance in the playoffs**\
 `Darnold played poorly on Sunday night against the Lions. His resilience will determine the Vikings' postseason fate in the coming weeks.`\
 https://nytimes.com/athletic/6040922/2025/01/06/vikings-sam-darnold-lions-loss-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/06/podcasts/trump-victory-certification-driving-manh
 **The Lions’ historic crown, and fallout for Vikings, Kevin O’Connell: Sando’s Pick Six**\
 `While the Lions won the NFL's best division since the merger, the Vikings' road got a whole lot tougher. Should the NFL change its rules?`\
 https://nytimes.com/athletic/6037937/2025/01/06/lions-vikings-nfc-north-playoffs/
-
-**What Dylan Samberg's return means for the Jets defence in the short, medium and long term**\
-`The Jets will soon get their best second pair back, but what of the trade deadline and pending contracts for Samberg and Pionk?`\
-https://nytimes.com/athletic/6036477/2025/01/06/dylan-samberg-jets-defence-pionk/
-
-**Astros mailbag: Ryan Pressly and the luxury tax, extension candidates and pitching depth**\
-`Could the Astros extend Framber Valdez? How about Yainer Diaz, Jeremy Peña or Hunter Brown? We answer those questions and more.`\
-https://nytimes.com/athletic/6039124/2025/01/06/astros-ryan-pressly-luxury-tax-extension-candidates/
-
-**Goalie Tracking: Eye exercises, Saros making saves with geometry and breakaway wizardry**\
-`How does Nashville's Saros, the shortest goalie in the NHL, make himself bigger to shooters?`\
-https://nytimes.com/athletic/6036223/2025/01/06/nhl-goalies-saros-thompson/
-
-**Wild insider: Marc-Andre Fleury pranks Sidney Crosby, prospects at the World Juniors and more**\
-`Best friends and former teammates Crosby and Fleury reignite their prank wars, four Wild prospects medal at the World Juniors and more.`\
-https://nytimes.com/athletic/6035979/2025/01/06/wild-fleury-crosby-nhl-world-juniors/
 
