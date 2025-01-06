@@ -1,3 +1,7 @@
+**Mike Rinder, Scientology Spokesman Turned Critic, Dies at 69**\
+`In a memoir and as a host of the documentary series “Leah Remini: Scientology and the Aftermath,” he accused the church of fostering a culture of abuse.`\
+https://nytimes.com/2025/01/06/us/mike-rinder-dead-scientology-critic.html
+
 **Bears request permission to interview Cowboys coach Mike McCarthy**\
 `Dallas' exclusive negotiating window with McCarthy runs until Jan. 14. Will Jerry Jones let him interview or extend his deal?`\
 https://nytimes.com/athletic/6042775/2025/01/06/bears-interview-request-mike-mccarthy-cowboys-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/briefing/congress-certification-trump-justin-trud
 **Along With Snow, Winter Storm Brings Travel Disruptions**\
 `The winter storm caused thousands of flights and dozens of train trips to be delayed or canceled. At Ronald Reagan National Airport in Washington, all runways were closed Monday evening.`\
 https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
-
-**Rays 'support and expect' city to repair damage to Tropicana Field in time for 2026 season**\
-`Hurricane Milton caused over $50 million in damage to Tropicana Field, displacing the Rays from their home for at least the 2025 season.`\
-https://nytimes.com/athletic/6042805/2025/01/06/rays-tropicana-field-repairs-2026/
 
