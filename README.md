@@ -36,5 +36,5 @@ https://nytimes.com/2025/01/06/us/politics/kamala-harris-electoral-vote-certific
 
 **Best and Worst Moments From the 2025 Golden Globes**\
 `From Nikki Glaser’s monologue and wins for “Emilia Pérez” and “The Brutalist,” it was downhill to all those pharmaceutical ads.`\
-https://nytimes.com/2025/01/06/movies/globes-best-worst.html
+https://nytimes.com/2025/01/06/movies/golden-globes-best-worst-moments.html
 
