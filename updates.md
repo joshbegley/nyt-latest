@@ -1,3 +1,7 @@
+**The Capitol is fortified, but law enforcement officials see no threat of mob violence.**\
+`With the losing candidate in the presidential race not disputing the outcome and security improved around Congress, authorities say the threat environment is vastly different from four years ago.`\
+https://nytimes.com/live/2025/01/06/us/trump-election-certification/the-capitol-is-fortified-but-law-enforcement-officials-see-no-threat-of-mob-violence
+
 **Hamas Approves List of Hostages It May Free Under a Cease-Fire Deal With Israel**\
 `Israel says Hamas has not provided any information about the status of those 34 hostages, dampening any notion that the endorsement is a step toward a deal to stop the war.`\
 https://nytimes.com/2025/01/06/world/middleeast/israel-hamas-hostage-list-cease-fire.html

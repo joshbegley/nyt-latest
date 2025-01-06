@@ -1,3 +1,7 @@
+**James Rodriguez to leave Rayo Vallecano just four months after joining**\
+`James Rodriguez is set to have his Rayo Vallecano contract terminated and leave the Spanish club as a free agent.`\
+https://nytimes.com/athletic/6041541/2025/01/06/james-rodriguez-transfer-rayo-vallecano/
+
 **The Capitol is fortified, but law enforcement officials see no threat of mob violence.**\
 `With the losing candidate in the presidential race not disputing the outcome and security improved around Congress, authorities say the threat environment is vastly different from four years ago.`\
 https://nytimes.com/live/2025/01/06/us/trump-election-certification/the-capitol-is-fortified-but-law-enforcement-officials-see-no-threat-of-mob-violence
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/movies/golden-globes-winner-portraits.html
 **U.K.’s Starmer Slams ‘Lies and Misinformation’ After Elon Musk Attacks**\
 `Without naming Mr. Musk directly, Prime Minister Keir Starmer denounced the billionaire’s spreading of falsehoods about a child sex abuse scandal.`\
 https://nytimes.com/2025/01/06/world/europe/starmer-musk-uk-child-sexual-abuse.html
-
-**Wolves set to complete Agbadou signing from Reims**\
-`Wolverhampton Wanderers are set to complete the signing of centre-back Emmanuel Agbadou from Stade de Reims.`\
-https://nytimes.com/athletic/6041472/2025/01/06/wolves-transfers-emmanuel-agbadou/
 
