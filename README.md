@@ -1,3 +1,15 @@
+**Padres owner's widow, Sheel Seidler, sues his brothers for control of team**\
+`Sheel Seidler claimed that Matt and Bob Seidler breached their fiduciary duties as executors of Peter Seidler's estate.`\
+https://nytimes.com/athletic/6042327/2025/01/06/padres-peter-seidler-widow-lawsuit/
+
+**A Timeline of Justin Trudeau’s Rise and Fall**\
+`The Canadian prime minister, who said on Monday he would step down, has spent a quarter-century in the political spotlight.`\
+https://nytimes.com/2025/01/06/world/canada/justin-trudeau-timeline-canada.html
+
+**Scenes From the First Major Winter Storm of 2025**\
+`Snow mixed with sleet and freezing rain blanketed parts of the Midwest and Mid-Atlantic on Monday, leaving tens of thousands without power.`\
+https://nytimes.com/2025/01/06/us/winter-storm-photos.html
+
 **Harris Announces Trump’s Win in the 2024 Election**\
 `Vice President Kamala Harris presided over the certification of her own presidential election loss.`\
 https://nytimes.com/video/us/politics/100000009910728/congress-certifies-trump-2024-election.html
@@ -26,12 +38,3 @@ https://nytimes.com/2025/01/06/climate/ancient-rome-lead-poisoning.html
 `Flowers' injury isn't considered season-ending, but Ravens coach John Harbaugh was noncommittal for the WR's status against the Steelers.`\
 https://nytimes.com/athletic/6042255/2025/01/06/zay-flowers-knee-injury-ravens-steelers/
 
-**For Trump and Trudeau, diverging political visions lead to a reversal of fortunes.**\
-`By Norimitsu Onishi`\
-https://nytimes.com/live/2025/01/06/world/canada-trudeau/for-trump-and-trudeau-diverging-political-visions-lead-to-a-reversal-of-fortunes
-
-**Congestion pricing or not, some drivers are not giving up their cars.**\
-`By Bernard Mokam`\
-https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/congestion-pricing-or-not-some-drivers-are-not-giving-up-their-cars
-
-**gws-hard-shell-tacos-los-angeles**\
