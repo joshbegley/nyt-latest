@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6038714/2025/01/05/seahawks-rams-score-result-takea
 https://nytimes.com/athletic/6039779/2025/01/05/bucs-nfc-south-champions-playoffs/
 
 **Kieran Culkin Wins a Golden Globe for ‘A Real Pain’**\
-`Culkin and`\
+`Culkin earned his second Golden Globe in two years after being awarded for his role as Roman Roy in “Succession.”`\
 https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
 
 **Biggest Bills questions heading into the postseason**\
