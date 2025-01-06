@@ -1,3 +1,11 @@
+**Nicolas Sarkozy Goes on Trial Over Charges He Took Campaign Funds From Libya**\
+`The former French president has faced several legal cases since leaving office, but accusations that he received money for his 2007 election from Libyan authorities have been particularly damaging.`\
+https://nytimes.com/2025/01/06/world/europe/nicolas-sarkozy-france-libya.html
+
+**FPL: What we learned from Gameweek 20 - is Mbeumo essential again?**\
+`Abdul Rehman reviews the main talkings points from Gameweek 20 so far in Fantasy Premier League`\
+https://nytimes.com/athletic/6040004/2025/01/06/fantasy-premier-league-gameweek-20-mbeumo-solanke-havertz/
+
 **'We've got a special group': Plagued by injuries, Lions stay dominant to capture NFC's No. 1 seed**\
 `The Lions kept many of the players from their 3-13 season.`\
 https://nytimes.com/athletic/6040893/2025/01/06/lions-no-1-seed-bye-playoffs-vikings/
