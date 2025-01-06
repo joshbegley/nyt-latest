@@ -1,3 +1,11 @@
+**What to watch this week in NBA: Celtics-Nuggets, Thunder-Cavaliers plus Giannis vs. Wemby**\
+`What to watch, and how to watch it, as the NBA turns its calendar to 2025.`\
+https://nytimes.com/athletic/6042245/2025/01/06/nba-what-to-watch-celtics-cavs-wemby/
+
+**USMNT calls up 24 MLS players, plenty of youth for January 2025 roster**\
+`Seven players have been named to their first USMNT squad, which will play Venezuela in Fort Lauderdale and face Costa Rica in Orlando`\
+https://nytimes.com/athletic/6042317/2025/01/06/usmnt-youth-soccer-roster-mls-call-ups/
+
 **A Trudeau Steps Out of Canada’s Boxing Ring. For Now.**\
 `Canadians have soured on his brand of progressivism, but voters are fickle.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/trudeau-canada-steps-down
@@ -16,7 +24,7 @@ https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/a
 
 **Minneapolis Promises Police Overhaul in Deal With Justice Department**\
 `With only two weeks left in the Biden administration, officials hurried to finalize a plan in the city where George Floyd was murdered.`\
-https://nytimes.com/2025/01/06/us/minneapolis-polise-consent-decree-justice.html
+https://nytimes.com/2025/01/06/us/minneapolis-police-consent-decree-justice.html
 
 **USMNT striker Brandon Vasquez signs for Austin FC**\
 `Austin FC has completed the signing of USMNT striker Brandon Vasquez from CF Monterrey for a fee worth $10million.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/nyregion/rudy-giuliani-contempt-defamation-case.h
 **Historians’ Group Votes to Condemn ‘Scholasticide’ in Gaza**\
 `After contentious debate, members of the American Historical Association voted to condemn what a resolution described as Israel’s destruction of Gaza’s educational system.`\
 https://nytimes.com/2025/01/06/arts/historians-gaza-israel-education.html
-
-**Maple Leafs' Jake McCabe placed on IR after hitting head on ice**\
-`Defenceman out for at least a week. Marshall Rifai recalled from the AHL's Marlies.`\
-https://nytimes.com/athletic/6042434/2025/01/06/jake-mccabe-injury-reserve-rifai/
-
-**Tuesday Briefing: Canada’s Prime Minister Is Stepping Down**\
-`Plus, a recap of the Golden Globes.`\
-https://nytimes.com/2025/01/06/briefing/canada-trudeau-ukraine-russia-guantanamo.html
 
