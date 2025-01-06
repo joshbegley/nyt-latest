@@ -1,23 +1,3 @@
-**The Vivienne, Winner of RuPaul’s Drag Race UK, Dies**\
-`James Lee Williams was best known by their stage name and also built a career in musical theater.`\
-https://nytimes.com/2025/01/05/arts/the-vivienne-james-lee-williams-dead.html
-
-**Tyreek Hill hints at Dolphins exit: 'I'm out, bro'**\
-`Coach Mike McDaniel and GM Chris Grier will be back with the team next season, Dolphins owner Stephen Ross announced Sunday.`\
-https://nytimes.com/athletic/6040261/2025/01/05/tyreek-hill-dolphins-future/
-
-**Chiefs saving their best for the playoffs, so blowout loss in Denver doesn't hurt**\
-`The 15-2 Chiefs achieved their top objective: having their starters as healthy and as fresh as possible for the playoffs in two weeks.`\
-https://nytimes.com/athletic/6040200/2025/01/05/chiefs-rest-starters-broncos/
-
-**Pastrnak scores twice again. Bruins lose again. Where's the defense?**\
-`The Bruins earned a point after dropping three straight in regulation, but even Pastrnak's heroics couldn't get them the win.`\
-https://nytimes.com/athletic/6040342/2025/01/05/bruins-david-pastrnak-defense-islanders/
-
-**Sebastian Stan wins for his non-Trump role.**\
-`By Esther Zuckerman`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/sebastian-stan-different-man-apprentice
-
 **Jerry Jones definitive in his stance to remain Cowboys GM: 'I bought an occupation'**\
 `Jones discussed being accountable for the roster the Cowboys put on the field as well as Will McClay's value to the Cowboys.`\
 https://nytimes.com/athletic/6039917/2025/01/05/cowboys-jerry-jones-decisions-mike-mccarthy/
@@ -37,4 +17,24 @@ https://nytimes.com/2025/01/05/well/eat/ultraprocessed-foods-grocery-shopping.ht
 **Commanders again show fight as they lock up the No. 6 seed and set up rematch with Bucs**\
 `Washington finishes the season 12-5 with its win over Dallas and will travel to Tampa for a wild-card matchup vs. the Buccaneers. `\
 https://nytimes.com/athletic/6039823/2025/01/05/commanders-playoff-seeding-win-cowboys/
+
+**Demi Moore Caps Her Comeback With a Win at the Globes**\
+`She won the award for best actress in a musical or comedy for her role in the body horror film “The Substance.”`\
+https://nytimes.com/2025/01/05/movies/demi-moore-golden-globes-the-substance.html
+
+**Can You Spot Ultraprocessed Foods? Play Our Supermarket Game.**\
+`Take a virtual shopping trip to learn more about what’s on grocery store shelves.`\
+https://nytimes.com/interactive/2025/01/05/well/eat/ultraprocessed-foods-challenge-quiz.html
+
+**Irsay: Colts to retain coach Steichen, GM Ballard for 2025**\
+`"The expectation is to win our division and compete for championships," the Colts owner said in a statement announcing the decision.`\
+https://nytimes.com/athletic/6040198/2025/01/05/colts-retain-steichen-ballard/
+
+**Retooled Eagles look to prove themselves as Super Bowl contenders in postseason**\
+`The Eagles will first face the Packers, who they last saw in Sao Paulo in the season opener.`\
+https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-giants/
+
+**Nikki Glaser Delivers a Globes Monologue That Involved Some Revising**\
+`The host had been working on the jokes as well as the flow in multiple test runs in clubs. On the telecast, she introduced some new bits.`\
+https://nytimes.com/2025/01/05/movies/nikki-glaser-golden-globes-monologue.html
 
