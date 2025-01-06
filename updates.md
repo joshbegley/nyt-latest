@@ -1,3 +1,19 @@
+**Campaign group starts legal action against Wimbledon tennis expansion**\
+`Save Wimbledon Park is challenging the Mayor of London's office decision to award planning permission for 39 new courts.`\
+https://nytimes.com/athletic/6041299/2025/01/06/wimbledon-tennis-expansion-campaign-legal/
+
+**Ducks' creative Frank Vatrano extension marks their latest step toward relevancy**\
+`For the first time in a long time, the Ducks could be on their way out of rebuild mode. But they aren't quite there yet.`\
+https://nytimes.com/athletic/6040938/2025/01/06/ducks-nhl-rebuild-vatrano-contract/
+
+**NFL odds, schedule for Wild Card games: Ravens, Bills biggest first-round favorites**\
+`The NFL Wild Card games feature three days of action with two big favorites and a surprisingly close matchup on Monday Night.`\
+https://nytimes.com/athletic/6041761/2025/01/06/nfl-playoffs-odds-schedule-wild-card/
+
+**Seahawks fire OC Ryan Grubb after 1 season: Reports**\
+`Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
+https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
+
 **How Austria Could Get Its First Far-Right Chancellor Since World War II**\
 `The leader of the anti-immigration, pro-Russia Freedom Party has been given the chance to try to form a government after months of coalition talks among mainstream parties collapsed.`\
 https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancellor.html
