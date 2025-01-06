@@ -1,3 +1,7 @@
+**How Bruno Fernandes' unusual positioning exploited Trent Alexander-Arnold's defensive issues**\
+`This game offered a pointer for teams playing Liverpool - their right flank is vulnerable and positioning a playmaker there can cause issues`\
+https://nytimes.com/athletic/6041030/2025/01/06/trent-alexander-arnold-defensive-weakness-premier-league/
+
 **West Ham technical director staying away from training ground**\
 `West Ham United technical director Tim Steidten is staying away from the club&#8217;s training ground as head coach Julen Lopetegui focuses on improving results.`\
 https://nytimes.com/athletic/6041213/2025/01/06/tim-steidten-west-ham-training-ground/
