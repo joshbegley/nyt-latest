@@ -1,3 +1,11 @@
+**Seahawks offensive coordinator search: Eight candidates to replace Ryan Grubb**\
+`The Seahawks were interested in Mike Kafka last offseason. Could he be available now? What about a more experienced option?`\
+https://nytimes.com/athletic/6042650/2025/01/06/ryan-grubb-fired-seahawks-coordinator-search/
+
+**Brighton's Igor Julio out for a 'few months' with thigh injury**\
+`Brighton &amp; Hove Albion have been hit by an injury blow to defender Igor Julio.`\
+https://nytimes.com/athletic/6042798/2025/01/06/brighton-defender-igor-julio-injury/
+
 **Pulisic inspires Milan to Super Cup win**\
 `Christian Pulisic lifted his first trophy for AC Milan as he once again led a fightback which saw his team come from behind and beat rivals Inter 3-2 in the Italian Super Cup final.`\
 https://nytimes.com/athletic/6042672/2025/01/06/pulisic-ac-milan-super-cup-win/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6042245/2025/01/06/nba-what-to-watch-celtics-cavs-w
 **USMNT calls up 24 MLS players, plenty of youth for January 2025 roster**\
 `Seven players have been named to their first USMNT squad, which will play Venezuela in Fort Lauderdale and face Costa Rica in Orlando`\
 https://nytimes.com/athletic/6042317/2025/01/06/usmnt-youth-soccer-roster-mls-call-ups/
-
-**A Trudeau Steps Out of Canada’s Boxing Ring. For Now.**\
-`Canadians have soured on his brand of progressivism, but voters are fickle.`\
-https://nytimes.com/live/2025/01/02/opinion/thepoint/trudeau-canada-steps-down
-
-**First Bird Flu Death in U.S. Reported in Louisiana**\
-`The deceased was over 65 and had other medical conditions, state officials said.`\
-https://nytimes.com/2025/01/06/health/bird-flu-death-louisiana.html
 
