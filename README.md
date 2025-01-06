@@ -1,3 +1,7 @@
+**The Capitol is fortified, but law enforcement officials see no threat of mob violence.**\
+`With the losing candidate in the presidential race not disputing the outcome and security improved around Congress, authorities say the threat environment is vastly different from four years ago.`\
+https://nytimes.com/live/2025/01/06/us/trump-election-certification/the-capitol-is-fortified-but-law-enforcement-officials-see-no-threat-of-mob-violence
+
 **Hamas Approves List of Hostages It May Free Under a Cease-Fire Deal With Israel**\
 `Israel says Hamas has not provided any information about the status of those 34 hostages, dampening any notion that the endorsement is a step toward a deal to stop the war.`\
 https://nytimes.com/2025/01/06/world/middleeast/israel-hamas-hostage-list-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/world/europe/starmer-musk-uk-child-sexual-abuse.h
 **Wolves set to complete Agbadou signing from Reims**\
 `Wolverhampton Wanderers are set to complete the signing of centre-back Emmanuel Agbadou from Stade de Reims.`\
 https://nytimes.com/athletic/6041472/2025/01/06/wolves-transfers-emmanuel-agbadou/
-
-**Giants retaining coach Brian Daboll, GM Joe Schoen after 3-14 season**\
-`New York ended its disastrous season with a 20-13 defeat Sunday against a Philadelphia Eagles team resting its starters.`\
-https://nytimes.com/athletic/6041435/2025/01/06/giants-brian-daboll-joe-schoen-stay-coaches/
 
