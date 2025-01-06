@@ -1,3 +1,11 @@
+**'We've got a special group': Plagued by injuries, Lions stay dominant to capture NFC's No. 1 seed**\
+`The Lions kept many of the players from their 3-13 season.`\
+https://nytimes.com/athletic/6040893/2025/01/06/lions-no-1-seed-bye-playoffs-vikings/
+
+**Biden Warns Americans Not to Forget the Jan. 6 Attack**\
+`In an essay in The Washington Post, President Biden accused President-elect Donald J. Trump and his supporters of trying to erase the history of that day.`\
+https://nytimes.com/2025/01/06/us/politics/biden-trump-warnings-jan-6.html
+
 **U.S. Steel and Nippon Sue Biden Over Decision to Block Deal**\
 `The companies argue in a lawsuit that the process of reviewing the transaction was corrupted by politics.`\
 https://nytimes.com/2025/01/06/business/us-steel-nippon-lawsuit.html

@@ -1,3 +1,11 @@
+**'We've got a special group': Plagued by injuries, Lions stay dominant to capture NFC's No. 1 seed**\
+`The Lions kept many of the players from their 3-13 season.`\
+https://nytimes.com/athletic/6040893/2025/01/06/lions-no-1-seed-bye-playoffs-vikings/
+
+**Biden Warns Americans Not to Forget the Jan. 6 Attack**\
+`In an essay in The Washington Post, President Biden accused President-elect Donald J. Trump and his supporters of trying to erase the history of that day.`\
+https://nytimes.com/2025/01/06/us/politics/biden-trump-warnings-jan-6.html
+
 **U.S. Steel and Nippon Sue Biden Over Decision to Block Deal**\
 `The companies argue in a lawsuit that the process of reviewing the transaction was corrupted by politics.`\
 https://nytimes.com/2025/01/06/business/us-steel-nippon-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/briefing/isis-terrorism-resurgence.html
 **The Athletic FC: How did Man Utd compete with Liverpool? North London anger, Ranieri's revival**\
 `Today in TAFC: Have Manchester United found a formula that works? Postecoglou anger and Ranieri's latest revival at Roma.`\
 https://nytimes.com/athletic/6041028/2025/01/06/manchester-united-liverpool-ugarte-roma-ranieri/
-
-**The Pulse: The NFL playoff bracket is set**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6040195/2025/01/06/nfl-week-18-playoff-seeding-the-pulse/
-
-**Chelsea consider Chalobah recall from Palace amid defensive injury issues**\
-`Chelsea could trigger their option to recall defender Trevoh Chalobah from his season-long loan spell at Crystal Palace this month.`\
-https://nytimes.com/athletic/6041025/2025/01/06/chelsea-trevoh-chalobah-recall-crystal-palace/
 
