@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6038714/2025/01/05/seahawks-rams-score-result-takea
 `The Bucs had to rally Sunday to beat the Saints and secure the NFC's last playoff spot. “It all makes you stronger,” Todd Bowles said.`\
 https://nytimes.com/athletic/6039779/2025/01/05/bucs-nfc-south-champions-playoffs/
 
-**Kieran Culkin wins his second Globe in two years.**\
-`Culkin and`\
+**Kieran Culkin Wins a Golden Globe for ‘A Real Pain’**\
+`Culkin earned his second Golden Globe in two years after being awarded for his role as Roman Roy in “Succession.”`\
 https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
 
 **Biggest Bills questions heading into the postseason**\

@@ -1,3 +1,7 @@
+**Kieran Culkin Wins a Golden Globe for ‘A Real Pain’**\
+`Culkin earned his second Golden Globe in two years after being awarded for his role as Roman Roy in “Succession.”`\
+https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
+
 **Retooled Eagles look to prove themselves as Super Bowl contenders in postseason**\
 `The Eagles will first face the Packers, who they last saw in Sao Paulo in the season opener.`\
 https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-giants/

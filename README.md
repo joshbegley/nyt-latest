@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-gian
 https://nytimes.com/2025/01/05/movies/nikki-glaser-golden-globes-monologue.html
 
 **What will Jerry Jones decide about Mike McCarthy? Potential timeline of decision, more**\
-`The five-year contract Mike McCarthy signed in January of 2020 runs out on Jan. 14. He made it clear Sunday he wants to remain in Dallas.`\
+`The five-year contract McCarthy signed in January 2020 runs out Jan. 14. He made it clear Sunday he wants to remain in Dallas.`\
 https://nytimes.com/athletic/6039815/2025/01/05/cowboys-mike-mccarthy-job-status-jerry-jones/
 
 **Caleb Williams helps Bears end losing streak, now it's time to find his next coach**\
