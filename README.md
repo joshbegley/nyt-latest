@@ -1,3 +1,7 @@
+**No. 4-seeded Rams say they 'respect all, fear none' ahead of wild-card matchup**\
+`The Rams lost Sunday and have the NFC's fourth seed. "We're in the dance and it doesn't matter who we got," Tyler Higbee said.`\
+https://nytimes.com/athletic/6040066/2025/01/05/rams-playoffs-fourth-seed-matchup-sean-mcvay/
+
 **Broncos stomp out 9 years of demons in playoff-clinching win. Now they want more**\
 `Bo Nix is the 14th starting quarterback since Peyton Manning retired and became the first since then to lead Denver to the playoffs.`\
 https://nytimes.com/athletic/6040239/2025/01/05/broncos-win-clinch-playoff-chiefs/
