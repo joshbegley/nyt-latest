@@ -1,3 +1,15 @@
+**First Bird Flu Death in U.S. Reported in Louisiana**\
+`The deceased was over 65 and had other medical conditions, state officials said.`\
+https://nytimes.com/2025/01/06/health/bird-flu-death-louisiana.html
+
+**Georgia defensive stars Jalon Walker and Mykel Williams declare for NFL Draft**\
+`Both are projected first-round picks with the potential to be selected in the top 10. `\
+https://nytimes.com/athletic/6042587/2025/01/06/georgia-jalon-walker-mykel-williams-nfl-draft/
+
+**A dedicated cyclist and activist hails a program aimed at reducing car traffic.**\
+`By Camille Baker`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/a-dedicated-cyclist-and-activist-hails-a-program-aimed-at-reducing-car-traffic
+
 **Minneapolis Promises Police Overhaul in Deal With Justice Department**\
 `With only two weeks left in the Biden administration, officials hurried to finalize a plan in the city where George Floyd was murdered.`\
 https://nytimes.com/2025/01/06/us/minneapolis-polise-consent-decree-justice.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/06/briefing/canada-trudeau-ukraine-russia-guantanamo
 **Here Are Four Possible Contenders to Succeed Justin Trudeau**\
 `Whoever replaces Mr. Trudeau as the leader of Canada’s Liberal Party will become the prime minister. Not long after they’ll face a general election, and the daunting challenge of keeping the job.`\
 https://nytimes.com/2025/01/06/world/canada/justin-trudeau-replacement.html
-
-**NFL announces 2025 opponents for all 32 teams**\
-`The full 2025 schedule release will occur in the spring. `\
-https://nytimes.com/athletic/6042366/2025/01/06/nfl-2025-opponents-release-schedule/
-
-**Kirk Cousins has left the building. What's next for him and the Falcons?**\
-`Good thing Michael Penix Jr. is playing on a rookie contract because Cousins will be expensive for the Falcons no matter where he plays.`\
-https://nytimes.com/athletic/6042462/2025/01/06/falcons-kirk-cousins-future/
-
-**Kyrie Irving out at least 1-2 weeks with bulging disc in his back**\
-`Irving's absence comes after the Mavericks already lost Luka Dončić to a left calf strain.`\
-https://nytimes.com/athletic/6042459/2025/01/06/kyrie-irving-injury-back-status-update-mavericks/
 
