@@ -1,3 +1,15 @@
+**Leading trading card grader PSA to grow international operations**\
+`Top trading card grader announces international expansion of operations `\
+https://nytimes.com/athletic/6040347/2025/01/06/leading-trading-card-grader-psa-to-grow-operations-in-canada-europe-and-japan/
+
+**Final thoughts on Arizona State's improbable run, and how they can keep it going**\
+`To become unforgettable, a team has to surprise, succeed and connect. The Sun Devils accomplished all three. Now comes the harder part.`\
+https://nytimes.com/athletic/6038164/2025/01/06/arizona-state-college-football-playoff-cam-skattebo-sam-leavitt/
+
+**Lowetide: Analyzing the Oilers' 50-man contract list at midseason**\
+`Expect a bigger, stronger Oilers 50-man list with heavy turnover by this time next year.`\
+https://nytimes.com/athletic/6039010/2025/01/06/edmonton-oilers-contract-list-2025/
+
 **A Terrorism Resurgence**\
 `We explore the main reasons for ISIS’s resurgence.`\
 https://nytimes.com/2025/01/06/briefing/isis-terrorism-resurgence.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6027522/2025/01/06/lakers-jj-redick-nba-fight-brook
 **Predicting where the top 15 remaining MLB free agents will sign: Who lands Sasaki?**\
 `From Sasaki to Bregman to Santander and more, Jim Bowden runs through the top remaining free agents and predicts where each will sign.`\
 https://nytimes.com/athletic/6039098/2025/01/06/mlb-free-agents-team-signing-predictions/
-
-**Pope Names Vocal Supporter of Migrants as Next Cardinal in Washington**\
-`The appointment of Robert W. McElroy is a signal of the pope’s priorities, two weeks before Donald J. Trump’s term begins.`\
-https://nytimes.com/2025/01/06/us/pope-archbishop-washington-robert-mcelroy.html
-
-**Villa considering January move for Celta Vigo's Mingueza**\
-`Aston Villa are considering a move for Oscar Mingueza from Celta Vigo and is among a list of potential candidates at right-back.`\
-https://nytimes.com/athletic/6041116/2025/01/06/aston-villa-transfers-oscar-mingueza/
-
-**Assessing Bears coaching candidates: Ben Johnson, Mike Vrabel and wild cards**\
-`Our Bears writers share their takes on the men Ryan Poles and company are likely to consider as the next head coach.`\
-https://nytimes.com/athletic/6040647/2025/01/06/bears-head-coaching-candidates-ryan-poles/
 

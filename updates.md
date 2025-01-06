@@ -1,3 +1,15 @@
+**Leading trading card grader PSA to grow international operations**\
+`Top trading card grader announces international expansion of operations `\
+https://nytimes.com/athletic/6040347/2025/01/06/leading-trading-card-grader-psa-to-grow-operations-in-canada-europe-and-japan/
+
+**Final thoughts on Arizona State's improbable run, and how they can keep it going**\
+`To become unforgettable, a team has to surprise, succeed and connect. The Sun Devils accomplished all three. Now comes the harder part.`\
+https://nytimes.com/athletic/6038164/2025/01/06/arizona-state-college-football-playoff-cam-skattebo-sam-leavitt/
+
+**Lowetide: Analyzing the Oilers' 50-man contract list at midseason**\
+`Expect a bigger, stronger Oilers 50-man list with heavy turnover by this time next year.`\
+https://nytimes.com/athletic/6039010/2025/01/06/edmonton-oilers-contract-list-2025/
+
 **A Terrorism Resurgence**\
 `We explore the main reasons for ISIS’s resurgence.`\
 https://nytimes.com/2025/01/06/briefing/isis-terrorism-resurgence.html
