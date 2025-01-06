@@ -1,3 +1,7 @@
+**Will a top QB be there for Giants to draft at No. 3? Are Brian Daboll, Joe Schoen safe?**\
+`The two teams picking ahead of Giants in the NFL Draft, the Titans and the Browns, could each use a quarterback, too. `\
+https://nytimes.com/athletic/6039703/2025/01/05/giants-qb-2025-nfl-draft-pick-brian-daboll-joe-schoen/
+
 **Chargers lock up AFC's fifth seed with win vs. Raiders: Key Takeaways**\
 `The Chargers secured the No. 5 seed in the AFC playoffs and will face the Houston Texans in a wild-card round matchup.`\
 https://nytimes.com/athletic/6038728/2025/01/05/chargers-raiders-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6038709/2025/01/05/broncos-chiefs-score-result-take
 **Why Is Ariana Grande a Supporting Nominee When Her ‘Wicked’ Role Is a Lead?**\
 `The pop star plays Glinda in the film, while Cynthia Erivo, who plays Elphaba, is nominated as the lead.`\
 https://nytimes.com/2025/01/05/movies/ariana-grande-wicked-golden-globes-supporting.html
-
-**Here’s the latest.**\
-`By Brooks Barnes`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-the-latest
 
