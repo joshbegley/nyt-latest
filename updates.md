@@ -1,3 +1,7 @@
+**With the owner in Florida, Jets players and coaches were left to explain a season gone wrong**\
+`As the locker room was cleared out, Jeff Ulbrich and a few players met with the media on Monday.`\
+https://nytimes.com/athletic/6042685/2025/01/06/jets-locker-room-end-of-season/
+
 **U.S. Eases Some Restrictions on Humanitarian Aid to Syria**\
 `The authorization comes after rebels toppled the Syrian government last month and is intended to allow humanitarian groups to operate more freely without running afoul of U.S. sanctions.`\
 https://nytimes.com/2025/01/06/us/politics/syria-us-sanctions-aid.html

@@ -1,3 +1,15 @@
+**Bears request permission to interview Cowboys coach Mike McCarthy**\
+`Dallas' exclusive negotiating window with McCarthy runs until Jan. 14. Will Jerry Jones let him interview or extend his deal?`\
+https://nytimes.com/athletic/6042775/2025/01/06/bears-interview-request-mike-mccarthy-cowboys-coach/
+
+**No drama: 49ers’ Brock Purdy hopes deal is done 'sooner rather than later'**\
+`Christian McCaffrey said Monday he's close to fully recovered from the knee injury that ended his season in snowy Buffalo.`\
+https://nytimes.com/athletic/6042803/2025/01/06/brock-purdy-49ers-contract-negotiations/
+
+**An 'imminent' Jake Middleton return, Kirill Kaprizov update and PK praise: Wild notes**\
+`Hynes also had praise for defenseman Zeev Buium, the Wild's top prospect, and his performance at the World Juniors.`\
+https://nytimes.com/athletic/6042838/2025/01/06/an-imminent-jake-middleton-return-kirill-kaprizov-update-and-pk-praise-wild-notes/
+
 **With the owner in Florida, Jets players and coaches were left to explain a season gone wrong**\
 `As the locker room was cleared out, Jeff Ulbrich and a few players met with the media on Monday.`\
 https://nytimes.com/athletic/6042685/2025/01/06/jets-locker-room-end-of-season/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.htm
 **Rays 'support and expect' city to repair damage to Tropicana Field in time for 2026 season**\
 `Hurricane Milton caused over $50 million in damage to Tropicana Field, displacing the Rays from their home for at least the 2025 season.`\
 https://nytimes.com/athletic/6042805/2025/01/06/rays-tropicana-field-repairs-2026/
-
-**Who’s Afraid of a Flying Dior Bag?**\
-`To weigh in on the rash of reported drone sightings without fear of content suppression, Bethenny Frankel borrowed a term from the fashion world.`\
-https://nytimes.com/2025/01/06/style/tiktok-dior-bag-bethenny-frankel-drones.html
-
-**Seahawks offensive coordinator search: Eight candidates to replace Ryan Grubb**\
-`The Seahawks were interested in Mike Kafka last offseason. Could he be available now? What about a more experienced option?`\
-https://nytimes.com/athletic/6042650/2025/01/06/ryan-grubb-fired-seahawks-coordinator-search/
-
-**Brighton's Igor Julio out for a 'few months' with thigh injury**\
-`Brighton &amp; Hove Albion have been hit by an injury blow to defender Igor Julio.`\
-https://nytimes.com/athletic/6042798/2025/01/06/brighton-defender-igor-julio-injury/
 
