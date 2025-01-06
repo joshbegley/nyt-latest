@@ -1,3 +1,31 @@
+**Monday Briefing**\
+`The Jan. 6 riot, four years on.`\
+https://nytimes.com/2025/01/06/briefing/capitol-riot-israel-russia.html
+
+**Sean Payton's Broncos are ready for their postseason moment: 'Young and hungry is dangerous'**\
+`Payton has full belief in his standout rookie QB Bo Nix: "This guy gives you a chance every week. He’s that good.”`\
+https://nytimes.com/athletic/6040642/2025/01/06/broncos-playoffs-sean-payton-bo-nix/
+
+**Emeralds for Sale: The Taliban Look Below Ground to Revive the Economy**\
+`The Taliban government is counting on Afghanistan’s bountiful gemstone and mineral resources after the loss of billions of dollars in international aid.`\
+https://nytimes.com/2025/01/06/world/asia/taliban-afghanistan-mining.html
+
+**Long Before Jeju Air Crash, South Korea Rose to Be a Model of Safety**\
+`After overcoming pariah status at the end of the last century, South Korea must learn what caused the catastrophe on Dec. 29 and what lessons to draw from it.`\
+https://nytimes.com/2025/01/06/business/jejuair-crash-south-korea-safety.html
+
+**Quote of the Day: On the Run, a Hit Man Gives a Final Confession**\
+`Quotation of the Day for Monday, January 6, 2025.`\
+https://nytimes.com/2025/01/05/pageoneplus/quote-of-the-day-on-the-run-a-hit-man-gives-a-final-confession.html
+
+**Lions bulldoze Vikings 31-9 in season finale to win NFC top seed: Takeaways**\
+`The Lions will be rewarded with a first-round bye, while the Vikings wind up with the No. 5 seed and will face the Los Angeles Rams.`\
+https://nytimes.com/athletic/6038735/2025/01/05/vikings-lions-score-result-takeaways/
+
+**Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
+`The Chiefs and Lions have next weekend off, but these 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
+https://nytimes.com/athletic/6034081/2025/01/05/nfl-playoff-chances-matchups-super-bowl/
+
 **Aaron Rodgers turned back the clock — now he'll decide whether to walk out the door**\
 `The quarterback saved one of his best games for last this season, and now heads toward an uncertain future.`\
 https://nytimes.com/athletic/6040507/2025/01/05/aaron-rodgers-jets-final-game-retirement-plans/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6040550/2025/01/05/chargers-win-playoff-seed-raider
 **Seahawks hope win in finale, even if meaningless, helps lay foundation for future**\
 `The Seahawks have plenty to fix, but they believe in their coach and his vision. "You want to go to war with Mike," Ernest Jones said.`\
 https://nytimes.com/athletic/6040439/2025/01/05/seahawks-win-future-outlook-rams/
-
-**Jake Moody, Nick Sorensen and others make a poor final argument in 49ers' loss**\
-`The 49ers ended the season with just two takeaways in their last 10 games. They also gave up 40 or more points in their final two.`\
-https://nytimes.com/athletic/6040420/2025/01/05/49ers-loss-players-coaches-futures-cardinals/
-
-**‘Emilia Pérez,’ the nominations leader, wins the Globe for best musical.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/emilia-perez-the-nominations-leader-wins-the-globe-for-best-musical
-
-**‘The Brutalist’ Wins Best Drama in a Tight Race**\
-`The film, starring Adrien Brody as a Holocaust survivor and architect, took home the top drama prize.`\
-https://nytimes.com/2025/01/05/movies/the-brutalist-golden-globes-best-drama.html
-
-**Viola Davis and Ted Danson received honorary awards on Friday.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/viola-davis-and-ted-danson-received-honorary-awards-on-friday
-
-**2025 World Juniors standouts and disappointments: USA's top talent shines, Canada's falls short again**\
-`A look at which World Junior players stood out and who didn't over the last 10 days in Ottawa.`\
-https://nytimes.com/athletic/6038616/2025/01/05/world-juniors-hockey-2025-standouts/
-
-**Adrien Brody wins his first Globe.**\
-`By Esther Zuckerman`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/adrien-brody-wins-his-first-globe
-
-**What Raiders' Antonio Pierce needs to change if given a second season as head coach**\
-`If Pierce is going to keep his job for a second full season, his first order of business will be building a better offensive staff. `\
-https://nytimes.com/athletic/6040411/2025/01/05/raiders-head-coach-antonio-pierce-second-season-changes/
 
