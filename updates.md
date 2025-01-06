@@ -1,3 +1,15 @@
+**Neuer comparisons and incredible reflexes - what sort of goalkeeper are Spurs getting in Antonin Kinsky?**\
+`All you need to know about the 21-year-old Czech goalkeeper and why his former teams have such high hopes for him`\
+https://nytimes.com/athletic/6038563/2025/01/06/kinsky-tottenham-new-goalkeeper/
+
+**Alexander Isak - king of the six-yard box**\
+`Striker Isak is scoring tap-ins for fun this season - this is how he does it and how Eddie Howe's selections have helped him`\
+https://nytimes.com/athletic/6037360/2025/01/06/alexander-isak-six-yard-box-king/
+
+**Lyall, Deehan, Olsen... Hurzeler and a 'disappointing feeling'**\
+`Fabian Hurzeler has turned Brighton into the division's draw specialists. They must start winning to maintain their push for Europe`\
+https://nytimes.com/athletic/6037661/2025/01/06/brighton-arsenal-draw-fabian-hurzeler/
+
 **Monday Briefing**\
 `The Jan. 6 riot, four years on.`\
 https://nytimes.com/2025/01/06/briefing/capitol-riot-israel-russia.html
