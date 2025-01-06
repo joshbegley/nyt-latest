@@ -1,3 +1,7 @@
+**Dodgers trade Gavin Lux to Reds: Sources**\
+`The Dodgers will receive a prospect and the Reds' competitive balance pick for Lux, who started 117 games at second base in 2024.`\
+https://nytimes.com/athletic/6042920/2025/01/06/dodgers-gavin-lux-trade-reds/
+
 **Dana White, the Ultimate Fighting Championship C.E.O., Joins Meta’s Board**\
 `Mr. White, a close ally of President-elect Donald J. Trump, further strengthens the social media giant’s connections with the incoming administration.`\
 https://nytimes.com/2025/01/06/technology/dana-white-meta-board-ufc.html
