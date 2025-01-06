@@ -1,3 +1,7 @@
+**Elon Musk Hijacks U.K. Politics in Favor of the Far Right**\
+`With 211 million followers on social media, the multibillionaire seems intent on using his global platform to rattle British politics.`\
+https://nytimes.com/2025/01/06/world/europe/uk-elon-musk-far-right.html
+
 **When a Bryce Eldridge trade would make sense for the Giants, and why it isn't now**\
 `The Giants reportedly turned down trades that would have included Eldridge. So, when would a good time be to deal a top prospect?`\
 https://nytimes.com/athletic/6041969/2025/01/06/sf-giants-bryce-eldridge-trade-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/world/europe/azerbaijan-plane-crash-russia-critic
 **‘Forever Chemicals’ Reach Tap Water via Treated Sewage, Study Finds**\
 `Wastewater, even after treatment to make it drinkable, contains high levels of PFAS, according to researchers.`\
 https://nytimes.com/2025/01/06/climate/forever-chemicals-pfas-sewage-drinking-water.html
-
-**Sure, the Romans Were Smart. But They Could Have Been Smarter.**\
-`Exposure to lead from mining probably lowered I.Q. levels in the empire, research has found. It might be the world’s first case of widespread industrial pollution.`\
-https://nytimes.com/2025/01/06/climate/ancient-rome-lead-poisoning.html
 
