@@ -1,3 +1,7 @@
+**When a Bryce Eldridge trade would make sense for the Giants, and why it isn't now**\
+`The Giants reportedly turned down trades that would have included Eldridge. So, when would a good time be to deal a top prospect?`\
+https://nytimes.com/athletic/6041969/2025/01/06/sf-giants-bryce-eldridge-trade-scenarios/
+
 **Padres owner's widow, Sheel Seidler, sues his brothers for control of team**\
 `Sheel Seidler claimed that Matt and Bob Seidler breached their fiduciary duties as executors of Peter Seidler's estate.`\
 https://nytimes.com/athletic/6042327/2025/01/06/padres-peter-seidler-widow-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/climate/forever-chemicals-pfas-sewage-drinking-wa
 **Sure, the Romans Were Smart. But They Could Have Been Smarter.**\
 `Exposure to lead from mining probably lowered I.Q. levels in the empire, research has found. It might be the world’s first case of widespread industrial pollution.`\
 https://nytimes.com/2025/01/06/climate/ancient-rome-lead-poisoning.html
-
-**Ravens' Zay Flowers 'day to day' with knee injury**\
-`Flowers' injury isn't considered season-ending, but Ravens coach John Harbaugh was noncommittal for the WR's status against the Steelers.`\
-https://nytimes.com/athletic/6042255/2025/01/06/zay-flowers-knee-injury-ravens-steelers/
 
