@@ -1,3 +1,15 @@
+**Friedrich St. Florian, Architect of World War II Memorial, Dies at 91**\
+`His design was criticized as banal and beneath its subject. It was also praised for fitting seamlessly into hallowed space on the National Mall.`\
+https://nytimes.com/2025/01/06/arts/design/friedrich-st-florian-dead.html
+
+**Textor enters exclusivity with U.S.-Saudi group over potential sale of Palace stake**\
+`A group backed by individuals from Saudi Arabia and the United States has signed an exclusivity agreement to buy out Eagle Football and take a 45 per cent stake in Premier League club Crystal Palace, sources briefed on the proposed deal have told The Athletic.`\
+https://nytimes.com/athletic/5992337/2025/01/06/crystal-palace-takeover-john-textor-sale/
+
+**Trudeau was left in a weakened position with a political brand that no longer worked.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/01/06/world/canada-trudeau/trudeau-was-left-in-a-weaken-position-with-a-political-brand-no-longer-worked
+
 **Jazz are walking the fine line between development and improving their draft position**\
 `While they are angling to get a top pick in the 2025 NBA Draft, the Jazz also want that player to arrive at a stable, improving environment.`\
 https://nytimes.com/athletic/6040387/2025/01/06/jazz-winning-nba-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6041698/2025/01/06/usmnt-richards-trusty-austin-tra
 **N.Y. Families Could Receive Tax Credit of Up to $1,000 Under Hochul Plan**\
 `Gov. Kathy Hochul has now released two early proposals from her State of the State message that aim to address concerns over the high cost of living.`\
 https://nytimes.com/2025/01/06/nyregion/child-tax-credit-ny.html
-
-**Canadian Prime Minister Justin Trudeau Resigns as Party Leader**\
-`Prime Minister Justin Trudeau of Canada announced that he was stepping down as Liberal Party leader. He will remain prime minister until the party picks a replacement.`\
-https://nytimes.com/video/world/canada/100000009910193/justin-trudeau-canada-party-resigns.html
-
-**Helio Castroneves expected to make NASCAR debut at Daytona 500: Sources**\
-`The majority of Castroneves’ 20-year plus career has been spent in IndyCar where he’s won 31 races.`\
-https://nytimes.com/athletic/6041866/2025/01/06/nascar-indy-daytona-500-driver-helio-castroneves-debut/
-
-**Diabetes and Heart Disease Rise Alongside Sugary Drink Consumption**\
-`A new study assesses the effects of sugar-laden beverages on global health, with higher rates of consumption found in Latin America and parts of Africa.`\
-https://nytimes.com/2025/01/06/health/sugary-soda-beverages-diabetes-heart-disease.html
 
