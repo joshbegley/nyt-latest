@@ -1,3 +1,11 @@
+**Jerry Jones definitive in his stance to remain Cowboys GM: 'I bought an occupation'**\
+`Jerry Jones discussed being accountable for the roster the Cowboys put on the field as well as Will McClay's value to the Cowboys.`\
+https://nytimes.com/athletic/6039917/2025/01/05/cowboys-jerry-jones-decisions-mike-mccarthy/
+
+**Sullivan furious after Penguins' overtime loss vs. Carolina: Yohe's 10 observations**\
+`The Penguins suffered a brutal second period and still notched a point but fell in overtime to Carolina 4-3 on Sunday. `\
+https://nytimes.com/athletic/6039700/2025/01/05/penguins-sullivan-overtime-hurricanes/
+
 **The Well Challenge: 5 Days to Happier, Healthier Eating**\
 `These simple tips will set you up for a delicious year.`\
 https://nytimes.com/explain/2025/well/ultraprocessed-food-challenge
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-gian
 **Nikki Glaser Delivers a Globes Monologue That Involved Some Revising**\
 `The host had been working on the jokes as well as the flow in multiple test runs in clubs. On the telecast, she introduced some new bits.`\
 https://nytimes.com/2025/01/05/movies/nikki-glaser-golden-globes-monologue.html
-
-**What will Jerry Jones decide about Mike McCarthy? Potential timeline of decision, more**\
-`The five-year contract McCarthy signed in January 2020 runs out Jan. 14. He made it clear Sunday he wants to remain in Dallas.`\
-https://nytimes.com/athletic/6039815/2025/01/05/cowboys-mike-mccarthy-job-status-jerry-jones/
-
-**Caleb Williams helps Bears end losing streak, now it's time to find his next coach**\
-`Williams once again showed just enough promise for the Bears to feel hopeful but also understand a lot needs to get done on offense.`\
-https://nytimes.com/athletic/6039799/2025/01/05/caleb-williams-helps-bears-end-losing-streak-now-its-time-to-find-his-next-coach/
 
