@@ -1,3 +1,11 @@
+**Cardinals top 49ers in season finale 47-24 as Murray shines: Takeaways**\
+`Arizona (8-9) pulled away from a close game with three fourth-quarter touchdown drives.`\
+https://nytimes.com/athletic/6038700/2025/01/05/49ers-cardinals-score-result-takeaways/
+
+**Hideki Matsuyama sets PGA Tour record with Sentry win**\
+`Matsuyama shot 35-under-par at the Hawaii course, known for its wide fairways and favorable conditions.`\
+https://nytimes.com/athletic/6039947/2025/01/05/hideki-matsuyama-pga-tour-record-score-sentry/
+
 **Will a top QB be there for Giants to draft at No. 3? Are Brian Daboll, Joe Schoen safe?**\
 `The two teams picking ahead of Giants in the NFL Draft, the Titans and the Browns, could each use a quarterback, too. `\
 https://nytimes.com/athletic/6039703/2025/01/05/giants-qb-2025-nfl-draft-pick-brian-daboll-joe-schoen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6039758/2025/01/05/bears-packers-chicago-elusive-vi
 **Packers stumble into playoffs after finale loss to Bears with much reason for concern**\
 `Green Bay will visit Philadelphia in the wild-card round of the playoffs next weekend.`\
 https://nytimes.com/athletic/6039866/2025/01/05/packers-loss-jordan-love-christian-watson-bears/
-
-**Bo Nix, Broncos blank Chiefs 38-0 to clinch playoff date with Bills: Takeaways**\
-`Nix's record-setting day included 18 straight completions and a career-high 321 passing yards.`\
-https://nytimes.com/athletic/6038709/2025/01/05/broncos-chiefs-score-result-takeaways/
-
-**Why Is Ariana Grande a Supporting Nominee When Her ‘Wicked’ Role Is a Lead?**\
-`The pop star plays Glinda in the film, while Cynthia Erivo, who plays Elphaba, is nominated as the lead.`\
-https://nytimes.com/2025/01/05/movies/ariana-grande-wicked-golden-globes-supporting.html
 
