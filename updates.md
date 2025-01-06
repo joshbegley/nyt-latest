@@ -1,3 +1,7 @@
+**Shai Gilgeous-Alexander, Thunder make most of opportunity in win vs. Celtics**\
+`Following a big win against the Celtics, SGA and the Thunder are now 30-5 this season. They've won a franchise-record 15 consecutive games.`\
+https://nytimes.com/athletic/6040158/2025/01/06/shai-gilgeous-alexander-thunder-nba-celtics/
+
 **Best and Worst Moments From the 2025 Golden Globes**\
 `From Nikki Glaser’s monologue and wins for “Emilia Pérez” and “The Brutalist,” it was downhill to all those pharmaceutical ads.`\
 https://nytimes.com/2025/01/06/movies/golden-globes-best-worst-moments.html
