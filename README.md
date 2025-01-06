@@ -1,3 +1,7 @@
+**A Terrorism Resurgence**\
+`We explore the main reasons for ISIS’s resurgence.`\
+https://nytimes.com/2025/01/06/briefing/isis-terrorism-resurgence.html
+
 **The Athletic FC: How did Man Utd compete with Liverpool? North London anger, Ranieri's revival**\
 `Today in TAFC: Have Manchester United found a formula that works? Postecoglou anger and Ranieri's latest revival at Roma.`\
 https://nytimes.com/athletic/6041028/2025/01/06/manchester-united-liverpool-ugarte-roma-ranieri/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6041116/2025/01/06/aston-villa-transfers-oscar-ming
 **Assessing Bears coaching candidates: Ben Johnson, Mike Vrabel and wild cards**\
 `Our Bears writers share their takes on the men Ryan Poles and company are likely to consider as the next head coach.`\
 https://nytimes.com/athletic/6040647/2025/01/06/bears-head-coaching-candidates-ryan-poles/
-
-**Sam Darnold will have to bounce back quickly for Vikings to have a chance in the playoffs**\
-`Darnold played poorly on Sunday night against the Lions. His resilience will determine the Vikings' postseason fate in the coming weeks.`\
-https://nytimes.com/athletic/6040922/2025/01/06/vikings-sam-darnold-lions-loss-playoffs/
 
