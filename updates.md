@@ -1,3 +1,11 @@
+**Mel Shapiro, Director Whose Specialty Was John Guare, Dies at 89**\
+`He directed the playwright’s “The House of Blue Leaves,” and they helped turn “The Two Gentlemen of Verona” into a hit musical.`\
+https://nytimes.com/2025/01/06/theater/mel-shapiro-dead.html
+
+**Congress Certified Trump’s Victory Without Disruption**\
+`Also, Trudeau said he would resign as Canada’s prime minister. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/06/briefing/congress-certification-trump-justin-trudeau-canada.html
+
 **Along With Snow, Winter Storm Brings Travel Disruptions**\
 `The winter storm caused thousands of flights and dozens of train trips to be delayed or canceled. At Ronald Reagan National Airport in Washington, all runways were closed Monday evening.`\
 https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
