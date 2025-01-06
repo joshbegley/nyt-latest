@@ -12,7 +12,7 @@ https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/c
 
 **Pope Names Nun to Head a Vatican Department, a First for a Woman**\
 `Sister Simona Brambilla was appointed as the prefect of a Vatican office that oversees religious orders, but she may not be alone at the top.`\
-https://nytimes.com/2025/01/06/world/europe/pope-names-nun-to-head-a-vatican-department-a-first-for-a-woman.html
+https://nytimes.com/2025/01/06/world/europe/pope-sister-simona-brambilla-vatican-woman.html
 
 **Tottenham, Man United exploring loan deal for Kolo Muani**\
 `Tottenham Hotspur and Manchester United are actively exploring a January deal to sign Randal Kolo Muani on loan from Paris Saint-Germain.`\
