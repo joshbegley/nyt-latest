@@ -1,3 +1,7 @@
+**Canadian Prime Minister Justin Trudeau Resigns as Party Leader**\
+`Prime Minister Justin Trudeau of Canada announced that he was stepping down as Liberal Party leader. He will remain prime minister until the party picks a replacement.`\
+https://nytimes.com/video/world/canada/100000009910193/justin-trudeau-canada-party-resigns.html
+
 **Helio Castroneves expected to make NASCAR debut at Daytona 500: Sources**\
 `The majority of Castroneves’ 20-year plus career has been spent in IndyCar where he’s won 31 races.`\
 https://nytimes.com/athletic/6041866/2025/01/06/nascar-indy-daytona-500-driver-helio-castroneves-debut/
