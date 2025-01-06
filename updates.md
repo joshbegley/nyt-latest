@@ -1,3 +1,11 @@
+**Giants retaining coach Brian Daboll, GM Joe Schoen after 3-14 season**\
+`New York ended its disastrous season with a 20-13 defeat Sunday against a Philadelphia Eagles team resting its starters.`\
+https://nytimes.com/athletic/6041435/2025/01/06/giants-brian-daboll-joe-schoen-stay-coaches/
+
+**NBA Rewind: Making sense of the Jimmy Butler drama and previewing a monster week**\
+`Who's up and who's down in Zach Harper's latest stock report? And how about those Wemby-Joker showdowns?`\
+https://nytimes.com/athletic/6032543/2025/01/06/nba-rewind-jimmy-butler-heat-victor-wembanyama-spurs-nikola-jokic-nuggets/
+
 **Jaguars fire coach Doug Pederson after 3 seasons**\
 `With a 22-29 record over three seasons, Pederson’s 42 percent win rate puts him as the third-best Jaguars coach in history.`\
 https://nytimes.com/athletic/5840239/2025/01/06/doug-pederson-fired-jaguars/
