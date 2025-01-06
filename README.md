@@ -1,3 +1,7 @@
+**A bad day at the office for Trent Alexander-Arnold - but Liverpool still need him**\
+`Yes Alexander-Arnold struggled against United - but this wasn't the day to make sweeping judgements`\
+https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-struggles/
+
 **Word of the Day: centenary**\
 `This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/06/learning/word-of-the-day-centenary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037129/2025/01/06/ollie-watkins-aston-villa-goals-
 **Life without Jarrod Bowen - who is going to step up with West Ham's best player missing?**\
 `Lopetegui will be looking for Kudus, Fullkrug, Summerville and Paqueta to step up in the coming weeks`\
 https://nytimes.com/athletic/6037077/2025/01/06/jarrod-bowen-west-ham-replacement/
-
-**Rare training-ground time might help Enzo Maresca fix Chelsea's soft underbelly**\
-`Chelsea have a rare free midweek coming up, which could help them steady the ship and focus on strengthening their top-four credentials`\
-https://nytimes.com/athletic/6037951/2025/01/06/chelsea-enzo-maresca-training-goals/
 
