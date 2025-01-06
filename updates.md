@@ -1,3 +1,11 @@
+**Lakers' athleticism gap on display in loss to younger, more physical Rockets**\
+`Help may be on the way for the Lakers, as Dorian Finney-Smith takes on a bigger role, and Jarred Vanderbilt is close to his season debut.`\
+https://nytimes.com/athletic/6040815/2025/01/06/lakers-rockets-nba-athleticism/
+
+**Russia Claims Control of Key Town as Ukraine Renews Push in Kursk**\
+`Ukraine has largely been driven out of Kurakhove, a battered but strategic town in the Donbas, Russia said. Kyiv’s forces were pressing a renewed offensive in southern Russia.`\
+https://nytimes.com/2025/01/06/world/europe/kurakhove-russia-ukraine-war.html
+
 **Hollywood’s Stars Skip Politics at the Globes**\
 `Sunday’s show was Hollywood’s first megaphone since Donald Trump was elected to a second term. This time, there was barely a peep about it.`\
 https://nytimes.com/2025/01/06/business/media/golden-globes-politics.html
