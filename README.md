@@ -1,7 +1,3 @@
-**NFL head coach interview process: What to know about league policies, Rooney Rule**\
-`The New York Jets, Chicago Bears, New Orleans Saints, New England Patriots and Jacksonville Jaguars all have openings.`\
-https://nytimes.com/athletic/6034176/2025/01/06/nfl-head-coach-interview-process/
-
 **Even in a snowstorm, Congress plans to forge ahead with the electoral count.**\
 `The House and Senate are scheduled to proceed with their joint session to certify the 2024 election despite a winter storm that has dumped about 5 inches of snow on the capital region.`\
 https://nytimes.com/live/2025/01/06/us/trump-election-certification/even-in-a-snowstorm-congress-plans-to-forge-ahead-with-the-electoral-count
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6040644/2025/01/06/bengals-fire-lou-anarumo-frank-p
 **Here’s the latest on Canadian politics.**\
 `By Matina Stevis-Gridneff and Ian Austen`\
 https://nytimes.com/live/2025/01/06/world/canada-trudeau/justin-trudeau-resigns-canada-prime-minister
+
+**Canada Live Updates: Trudeau Is Said to Be Stepping Down as Party Leader, Setting Off Succession Race**\
+`Justin Trudeau, who has led the country for nearly a decade, is poised to give up leadership of his party on Monday, according to an official familiar with his plans. He has been under pressure for weeks.`\
+https://nytimes.com/live/2025/01/06/world/canada-trudeau
 
