@@ -1,5 +1,5 @@
 **How Bruno Fernandes' unusual positioning exploited Trent Alexander-Arnold's defensive issues**\
-`This game offered a pointer for teams playing Liverpool - their right flank is vulnerable and positioning a playmaker there can cause issues`\
+`This game offered a pointer for teams playing Liverpool: their right flank is vulnerable and positioning a playmaker there can cause issues`\
 https://nytimes.com/athletic/6041030/2025/01/06/trent-alexander-arnold-defensive-weakness-premier-league/
 
 **West Ham technical director staying away from training ground**\
