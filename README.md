@@ -1,3 +1,7 @@
+**The pass that encapsulated Manuel Ugarte's best display yet for Manchester United**\
+`As the one player in United’s squad who has worked with Amorim before, Ugarte’s value in this system is obvious - and it showed at Anfield`\
+https://nytimes.com/athletic/6040171/2025/01/06/manuel-ugarte-anfield-performance/
+
 **Heavy Snow Blankets Central U.S.**\
 `The major winter storm froze over some roads and highways as it moved east with a dangerous mix of snow, sleet and rain.`\
 https://nytimes.com/video/weather/100000009909567/heavy-snow-blankets-central-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037951/2025/01/06/chelsea-enzo-maresca-training-go
 **Five key factors that will determine whether Nottingham Forest qualify for Europe**\
 `A continuation of a positive injury record, Chris Wood's form and their defensive solidity could see Forest return to the continental stage`\
 https://nytimes.com/athletic/6035725/2025/01/06/forest-route-europe-premier-league/
-
-**19 Unforgettable Looks at the Golden Globes**\
-`For reasons good and bad, these ensembles were among the most memorable.`\
-https://nytimes.com/2025/01/06/style/golden-globes-fashion-red-carpet.html
 
