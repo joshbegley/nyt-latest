@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/06/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/6039441/2025/01/06/claudio-ranieri-roma-lazio-derby-win/
 
 **A bad day at the office for Trent Alexander-Arnold - but Liverpool still need him**\
-`Yes Alexander-Arnold struggled against United - but this wasn't the day to make sweeping judgements`\
+`Yes Alexander-Arnold struggled against United. But this wasn't the day to make sweeping judgements`\
 https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-struggles/
 
 **Word of the Day: centenary**\

@@ -1,3 +1,19 @@
+**Major Winter Storm Moves to the Mid-Atlantic**\
+`A hazardous mix of snow, sleet and freezing rain will be unleashed on the Mid-Atlantic on Monday. It’s part of a storm system that moved across multiple states over the weekend.`\
+https://nytimes.com/2025/01/06/weather/winter-storm-snow-rain-forecast.html
+
+**Congestion Pricing’s True Test Comes During First Rush Hour**\
+`The tolls were introduced just past midnight on Sunday. Officials are still assessing how they are affecting traffic patterns in New York City.`\
+https://nytimes.com/2025/01/06/nyregion/congestion-pricings-rush-hour.html
+
+**The Jan. 6 Rioters, 4 Years Later**\
+`Hundreds of rioters accused of nonviolent crimes during the attack on the Capitol have wrapped up their cases. Here’s what some of their lives look like now.`\
+https://nytimes.com/2025/01/06/us/politics/trump-capitol-attack-jan-6.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/06/crosswords/spelling-bee-forum.html
+
 **The eternal Claudio Ranieri has turned Roma's expensive squad back into a team**\
 `Football, as a game, should have long passed Ranieri by - but the 73-year-old is rescuing his hometown club once again`\
 https://nytimes.com/athletic/6039441/2025/01/06/claudio-ranieri-roma-lazio-derby-win/
