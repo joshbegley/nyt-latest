@@ -1,3 +1,19 @@
+**Here’s the latest on Canadian politics.**\
+`By Matina Stevis-Gridneff and Ian Austen`\
+https://nytimes.com/live/2025/01/06/world/canada-trudeau/justin-trudeau-resigns-canada-prime-minister
+
+**Canada Live Updates: Trudeau Is Said to Be Stepping Down as Party Leader, Setting Off Succession Race**\
+`Justin Trudeau, who has led the country for nearly a decade, is poised to give up leadership of his party on Monday, according to an official familiar with his plans. He has been under pressure for weeks.`\
+https://nytimes.com/live/2025/01/06/world/canada-trudeau
+
+**Heat Today: Teammates dealing with Jimmy Butler drama: 'Feels weird to not see him'**\
+`The Heat are trying to stay level-headed while their star is suspended and seeking a trade. But Saturday's loss to the Jazz was troubling.`\
+https://nytimes.com/athletic/6038657/2025/01/06/jimmy-butler-trade-erik-spoelstra-bam-adebayo-nikola-jovic-heat-nba/
+
+**What I'm hearing on the PGA Tour: Collin Morikawa, Tour Championship changes, TGL's debut**\
+`The Hawaii to Florida redeye for TGL's debut is a chore, but one two-time major winner is a believer in the new format.`\
+https://nytimes.com/athletic/6041423/2025/01/06/pga-tour-tour-championship-changes-tgl-morikawa/
+
 **James Rodriguez to leave Rayo Vallecano just four months after joining**\
 `James Rodriguez is set to have his Rayo Vallecano contract terminated and leave the Spanish club as a free agent.`\
 https://nytimes.com/athletic/6041541/2025/01/06/james-rodriguez-transfer-rayo-vallecano/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/06/world/europe/kurakhove-russia-ukraine-war.html
 **Hollywood’s Stars Skip Politics at the Globes**\
 `Sunday’s show was Hollywood’s first megaphone since Donald Trump was elected to a second term. This time, there was barely a peep about it.`\
 https://nytimes.com/2025/01/06/business/media/golden-globes-politics.html
-
-**Tennis Briefing: Sabalenka's remarkable Australia record, retirements spoil finals**\
-`The world No. 1 continued her remarkable streak in Australia, while injury retirements spoiled matches just a week into the season`\
-https://nytimes.com/athletic/6038495/2025/01/06/aryna-sabalenka-tennis-record-australia/
-
-**What New York can learn from other cities that have congestion pricing.**\
-`London, Stockholm and Singapore offer clues of what to expect from the new tolling plan.`\
-https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/what-new-york-can-learn-from-other-cities-that-have-congestion-pricing
-
-**This Is What It Looks Like to Win a Golden Globe**\
-`Demi Moore, Adrien Brody, Zoe Saldaña and the stars of “Shogun” and “Baby Reindeer” enjoy their moments of glory.`\
-https://nytimes.com/2025/01/06/movies/golden-globes-winner-portraits.html
-
-**U.K.’s Starmer Slams ‘Lies and Misinformation’ After Elon Musk Attacks**\
-`Without naming Mr. Musk directly, Prime Minister Keir Starmer denounced the billionaire’s spreading of falsehoods about a child sex abuse scandal.`\
-https://nytimes.com/2025/01/06/world/europe/starmer-musk-uk-child-sexual-abuse.html
 
