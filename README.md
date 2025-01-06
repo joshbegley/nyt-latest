@@ -1,3 +1,19 @@
+**The Well Challenge: 5 Days to Happier, Healthier Eating**\
+`These simple tips will set you up for a delicious year.`\
+https://nytimes.com/explain/2025/well/ultraprocessed-food-challenge
+
+**Day 1: How Often Do You Buy Ultraprocessed Foods?**\
+`Today, you’ll go grocery shopping without leaving your seat.`\
+https://nytimes.com/2025/01/05/well/eat/ultraprocessed-foods-grocery-shopping.html
+
+**Commanders again show fight as they lock up 6 seed and set up rematch with Bucs**\
+`Washington finishes the season 12-5 with its win over Dallas and will travel to Tampa for a wild-card matchup vs. the Buccaneers. `\
+https://nytimes.com/athletic/6039823/2025/01/05/commanders-playoff-seeding-win-cowboys/
+
+**Demi Moore caps her comeback with a win at the Globes.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/demi-moore-caps-her-comeback-with-a-win-at-the-globes
+
 **Can You Spot Ultraprocessed Foods? Play Our Supermarket Game.**\
 `Take a virtual shopping trip to learn more about what’s on grocery store shelves.`\
 https://nytimes.com/interactive/2025/01/05/well/eat/ultraprocessed-foods-challenge-quiz.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6039815/2025/01/05/cowboys-mike-mccarthy-job-status
 **Caleb Williams helps Bears end losing streak, now it's time to find his next coach**\
 `Williams once again showed just enough promise for the Bears to feel hopeful but also understand a lot needs to get done on offense.`\
 https://nytimes.com/athletic/6039799/2025/01/05/caleb-williams-helps-bears-end-losing-streak-now-its-time-to-find-his-next-coach/
-
-**Geno Smith throws 4 TD passes in Seahawks' 30-25 win over Rams: Takeaways**\
-`Rams are the No. 4 seed in the NFC and will face the loser of Sunday Night's Detroit Lions vs. Minnesota Vikings game`\
-https://nytimes.com/athletic/6038714/2025/01/05/seahawks-rams-score-result-takeaways/
-
-**Bucs' path to NFC South title wasn't easy. Will that fortitude help in playoffs?**\
-`The Bucs had to rally Sunday to beat the Saints and secure the NFC's last playoff spot. “It all makes you stronger,” Todd Bowles said.`\
-https://nytimes.com/athletic/6039779/2025/01/05/bucs-nfc-south-champions-playoffs/
-
-**Kieran Culkin Wins a Golden Globe for ‘A Real Pain’**\
-`Culkin earned his second Golden Globe in two years after being awarded for his role as Roman Roy in “Succession.”`\
-https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
-
-**Biggest Bills questions heading into the postseason**\
-`The Bills will face the Broncos in the wild-card round.`\
-https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questions/
 
