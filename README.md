@@ -1,40 +1,40 @@
-**Shai Gilgeous-Alexander, Thunder make most of opportunity in win vs. Celtics**\
-`Following a big win against the Celtics, SGA and the Thunder are now 30-5 this season. They've won a franchise-record 15 consecutive games.`\
-https://nytimes.com/athletic/6040158/2025/01/06/shai-gilgeous-alexander-thunder-nba-celtics/
+**Sam Darnold will have to bounce back quickly for Vikings to have a chance in the playoffs**\
+`Darnold played poorly on Sunday night against the Lions. His resilience will determine the Vikings' postseason fate in the coming weeks.`\
+https://nytimes.com/athletic/6040922/2025/01/06/vikings-sam-darnold-lions-loss-playoffs/
 
-**Why the Patriots' head-coaching job is the best one available this offseason**\
-`Yes, the Patriots roster stinks. But there is a lot to like about the team's situation, from Drake Maye to its abundance of cap space.`\
-https://nytimes.com/athletic/6039936/2025/01/06/patriots-head-coaching-job-drake-maye/
+**Saquon Barkley missed Eric Dickerson's record, but even flirting with it is remarkable**\
+`Barkley didn't get another chance at topping 2,105 rushing yards, but he did match Dickerson's historic 1984 season in another area.`\
+https://nytimes.com/athletic/6040965/2025/01/06/saquon-barkley-eric-dickerson-record/
 
-**A team in Mississippi is the butt of every joke. The struggles go beyond the court**\
-`MVSU is Washington Generals of college basketball, paid to lose spectacularly every time out. They endure for the experience and the money.`\
-https://nytimes.com/athletic/6039571/2025/01/06/mississippi-valley-state-basketball-worst-team/
+**Is Joe Burrow on the Carson Palmer frustration train, or is this a temporary setback?**\
+`After the Bengals wasted his best season, Burrow is starting to grow more vocal about the team's direction.`\
+https://nytimes.com/athletic/6040855/2025/01/06/joe-burrow-carson-palmer-bengals/
 
-**Sherman: Nebraska basketball's win against No. 15 UCLA shouldn't come as a surprise**\
-`The Huskers beat UCLA 66-58 for their 20th consecutive home win, tied for the longest streak in program history. `\
-https://nytimes.com/athletic/6039062/2025/01/06/nebraska-ucla-mens-basketball-ncaa/
+**Making sense of Jerod Mayo's firing and what comes next for the Patriots**\
+`Mayo is not the first coach-in-waiting turned one-and-done, and signs point to Robert Kraft wanting a power coach once again.`\
+https://nytimes.com/athletic/6040875/2025/01/06/patriots-fire-jerod-mayo-robert-kraft/
 
-**What Will Trump Do With All That Power?**\
-`What can we expect from the president-elect?`\
-https://nytimes.com/2025/01/06/opinion/trump-johnson-house-squid.html
+**Harris to Certify Trump’s Victory, and Driving in Manhattan Gets Pricier**\
+`Plus, you probably haven’t seen the Golden Globe winners.`\
+https://nytimes.com/2025/01/06/podcasts/trump-victory-certification-driving-manhattan.html
 
-**Biden Bans New Oil and Gas Drilling Along Most U.S. Coasts**\
-`The ban affects the entire Eastern Seaboard, the Pacific Coast along California, Oregon and Washington, the eastern Gulf of Mexico and the Northern Bering Sea.`\
-https://nytimes.com/2025/01/06/climate/biden-bans-new-oil-and-gas-drilling-along-most-us-coasts.html
+**The Lions’ historic crown, and fallout for Vikings, Kevin O’Connell: Sando’s Pick Six**\
+`While the Lions won the NFL's best division since the merger, the Vikings' road got a whole lot tougher. Should the NFL change its rules?`\
+https://nytimes.com/athletic/6037937/2025/01/06/lions-vikings-nfc-north-playoffs/
 
-**Congress to Certify Trump’s Election, With Memories of Riot Looming Large**\
-`A joint session of the House and Senate is set to convene at 1 p.m. to perform a ritual that was once considered ceremonial and uneventful.`\
-https://nytimes.com/2025/01/06/us/politics/congress-trump-election-certify-2021-riot.html
+**What Dylan Samberg's return means for the Jets defence in the short, medium and long term**\
+`The Jets will soon get their best second pair back, but what of the trade deadline and pending contracts for Samberg and Pionk?`\
+https://nytimes.com/athletic/6036477/2025/01/06/dylan-samberg-jets-defence-pionk/
 
-**Trump Expected to Stay in Florida During Election Certification**\
-`The president-elect spent the weekend at his golf club and estate, continuing to push the debunked idea that his loss in the 2020 election could have been legally overturned.`\
-https://nytimes.com/2025/01/06/us/politics/trump-election-certification.html
+**Astros mailbag: Ryan Pressly and the luxury tax, extension candidates and pitching depth**\
+`Could the Astros extend Framber Valdez? How about Yainer Diaz, Jeremy Peña or Hunter Brown? We answer those questions and more.`\
+https://nytimes.com/athletic/6039124/2025/01/06/astros-ryan-pressly-luxury-tax-extension-candidates/
 
-**Biden to Visit New Orleans Monday and Mourn with Grieving Families**\
-`Mr. Biden’s trip to New Orleans, his latest as “consoler in chief,” joins a lengthy history of presidential visits to a city that has seen more than its share of tragedies and disasters.`\
-https://nytimes.com/2025/01/06/us/biden-new-orleans-grief.html
+**Goalie Tracking: Eye exercises, Saros making saves with geometry and breakaway wizardry**\
+`How does Nashville's Saros, the shortest goalie in the NHL, make himself bigger to shooters?`\
+https://nytimes.com/athletic/6036223/2025/01/06/nhl-goalies-saros-thompson/
 
-**Harris Faces an Awkward Election Task: Certifying the Vote She Lost**\
-`The vice president will preside over Congress on Monday as it counts the Electoral College votes finalizing her defeat by Donald J. Trump.`\
-https://nytimes.com/2025/01/06/us/politics/kamala-harris-electoral-vote-certification.html
+**Wild insider: Marc-Andre Fleury pranks Sidney Crosby, prospects at the World Juniors and more**\
+`Best friends and former teammates Crosby and Fleury reignite their prank wars, four Wild prospects medal at the World Juniors and more.`\
+https://nytimes.com/athletic/6035979/2025/01/06/wild-fleury-crosby-nhl-world-juniors/
 
