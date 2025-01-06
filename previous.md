@@ -1,3 +1,15 @@
+**Dana White, the Ultimate Fighting Championship C.E.O., Joins Meta’s Board**\
+`Mr. White, a close ally of President-elect Donald J. Trump, further strengthens the social media giant’s connections with the incoming administration.`\
+https://nytimes.com/2025/01/06/technology/dana-white-meta-board-ufc.html
+
+**A Reporter’s Reflection on Jan. 6, Then and Now**\
+`Luke Broadwater was at the Capitol when a pro-Trump mob stormed the complex on Jan. 6, 2021, as Congress was certifying Joseph R. Biden Jr.’s victory. Four years later, he reflects on what has changed.`\
+https://nytimes.com/2025/01/06/us/politics/trump-capitol-attack-jan-6-reporter.html
+
+**Browns are giving Kevin Stefanski, Andrew Berry one more chance to get it right**\
+`In 2025, the GM, head coach and the entire operation must show not just immediate progress, but actual fixes. `\
+https://nytimes.com/athletic/6042592/2025/01/06/browns-coach-kevin-stefanski-gm-andrew-berry/
+
 **Mike Rinder, Scientology Spokesman Turned Critic, Dies at 69**\
 `In a memoir and as a host of the documentary series “Leah Remini: Scientology and the Aftermath,” he accused the church of fostering a culture of abuse.`\
 https://nytimes.com/2025/01/06/us/mike-rinder-dead-scientology-critic.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/06/us/politics/syria-us-sanctions-aid.html
 **Rams begin preparing for wild-card matchup with familiar Vikings squad**\
 `The Rams beat the Vikings in Week 8, but Sean McVay points out that a lot has changed since that Oct. 24 game.`\
 https://nytimes.com/athletic/6042384/2025/01/06/rams-wild-card-matchup-vikings-comparison/
-
-**Mel Shapiro, Director Whose Specialty Was John Guare, Dies at 89**\
-`He directed the playwright’s “The House of Blue Leaves,” and they helped turn “The Two Gentlemen of Verona” into a hit musical.`\
-https://nytimes.com/2025/01/06/theater/mel-shapiro-dead.html
-
-**Congress Certified Trump’s Victory Without Disruption**\
-`Also, Trudeau said he would resign as Canada’s prime minister. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/01/06/briefing/congress-certification-trump-justin-trudeau-canada.html
-
-**Along With Snow, Winter Storm Brings Travel Disruptions**\
-`The winter storm caused thousands of flights and dozens of train trips to be delayed or canceled. At Ronald Reagan National Airport in Washington, all runways were closed Monday evening.`\
-https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
 
