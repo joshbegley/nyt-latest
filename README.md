@@ -1,3 +1,11 @@
+**Patriots owner Robert Kraft takes blame for Jerod Mayo's struggles**\
+`“The whole situation is on me,” Kraft said Monday, taking responsibility for putting the ex-coach in a position where he couldn't succeed.`\
+https://nytimes.com/athletic/6042119/2025/01/06/patriots-robert-kraft-jerod-mayo-firing/
+
+**Reds trade for Rangers reliever Owen White**\
+`White spent the majority of the 2024 season at Triple-A Round Rock, where he split time between the rotation and the bullpen.`\
+https://nytimes.com/athletic/6042131/2025/01/06/reds-trade-reliever-owen-white/
+
 **Critics fear congestion pricing could push traffic their way.**\
 `An environmental assessment from the Metropolitan Transportation Authority showed that the program could divert vehicles outside the tolling zone.`\
 https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/critics-fear-congestion-pricing-could-push-traffic-their-way
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/opinion/jan-6-trump.html
 **Scoop City: 24-hour NFL coaching roundup**\
 `A quick look at the status of coaches and general managers across the NFL, plus a playoff preview.`\
 https://nytimes.com/athletic/6042020/2025/01/06/coaches-fired-retained-nfl-black-monday-scoop-city/
-
-**Campaign group starts legal action against Wimbledon tennis expansion**\
-`Save Wimbledon Park is challenging the Mayor of London's office decision to award planning permission for 39 new courts.`\
-https://nytimes.com/athletic/6041299/2025/01/06/wimbledon-tennis-expansion-campaign-legal/
-
-**Ducks' creative Frank Vatrano extension marks their latest step toward relevancy**\
-`For the first time in a long time, the Ducks could be on their way out of rebuild mode. But they aren't quite there yet.`\
-https://nytimes.com/athletic/6040938/2025/01/06/ducks-nhl-rebuild-vatrano-contract/
 
