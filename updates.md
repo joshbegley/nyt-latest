@@ -1,3 +1,7 @@
+**When a Bryce Eldridge trade would make sense for the Giants, and why it isn't now**\
+`The Giants reportedly turned down trades that would have included Eldridge. So, when would a good time be to deal a top prospect?`\
+https://nytimes.com/athletic/6041969/2025/01/06/sf-giants-bryce-eldridge-trade-scenarios/
+
 **Padres owner's widow, Sheel Seidler, sues his brothers for control of team**\
 `Sheel Seidler claimed that Matt and Bob Seidler breached their fiduciary duties as executors of Peter Seidler's estate.`\
 https://nytimes.com/athletic/6042327/2025/01/06/padres-peter-seidler-widow-lawsuit/
