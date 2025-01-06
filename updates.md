@@ -1,3 +1,15 @@
+**What to watch this week in NBA: Celtics-Nuggets, Thunder-Cavaliers plus Giannis vs. Wemby**\
+`What to watch, and how to watch it, as the NBA turns its calendar to 2025.`\
+https://nytimes.com/athletic/6042245/2025/01/06/nba-what-to-watch-celtics-cavs-wemby/
+
+**USMNT calls up 24 MLS players, plenty of youth for January 2025 roster**\
+`Seven players have been named to their first USMNT squad, which will play Venezuela in Fort Lauderdale and face Costa Rica in Orlando`\
+https://nytimes.com/athletic/6042317/2025/01/06/usmnt-youth-soccer-roster-mls-call-ups/
+
+**Minneapolis Promises Police Overhaul in Deal With Justice Department**\
+`With only two weeks left in the Biden administration, officials hurried to finalize a plan in the city where George Floyd was murdered.`\
+https://nytimes.com/2025/01/06/us/minneapolis-police-consent-decree-justice.html
+
 **A Trudeau Steps Out of Canada’s Boxing Ring. For Now.**\
 `Canadians have soured on his brand of progressivism, but voters are fickle.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/trudeau-canada-steps-down
