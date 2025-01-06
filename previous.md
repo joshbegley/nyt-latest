@@ -1,5 +1,13 @@
+**Pastrnak scores twice again. Bruins lose again. Where's the defense?**\
+`The Bruins earned a point after dropping three straight in regulation, but even Pastrnak's heroics couldn't get them the win.`\
+https://nytimes.com/athletic/6040342/2025/01/05/bruins-david-pastrnak-defense-islanders/
+
+**Sebastian Stan wins for his non-Trump role.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/sebastian-stan-different-man-apprentice
+
 **Jerry Jones definitive in his stance to remain Cowboys GM: 'I bought an occupation'**\
-`Jerry Jones discussed being accountable for the roster the Cowboys put on the field as well as Will McClay's value to the Cowboys.`\
+`Jones discussed being accountable for the roster the Cowboys put on the field as well as Will McClay's value to the Cowboys.`\
 https://nytimes.com/athletic/6039917/2025/01/05/cowboys-jerry-jones-decisions-mike-mccarthy/
 
 **Sullivan furious after Penguins' overtime loss vs. Carolina: Yohe's 10 observations**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/01/05/well/eat/ultraprocessed-foods-challen
 **Irsay: Colts to retain coach Steichen, GM Ballard for 2025**\
 `"The expectation is to win our division and compete for championships," the Colts owner said in a statement announcing the decision.`\
 https://nytimes.com/athletic/6040198/2025/01/05/colts-retain-steichen-ballard/
-
-**Retooled Eagles look to prove themselves as Super Bowl contenders in postseason**\
-`The Eagles will first face the Packers, who they last saw in Sao Paulo in the season opener.`\
-https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-giants/
-
-**Nikki Glaser Delivers a Globes Monologue That Involved Some Revising**\
-`The host had been working on the jokes as well as the flow in multiple test runs in clubs. On the telecast, she introduced some new bits.`\
-https://nytimes.com/2025/01/05/movies/nikki-glaser-golden-globes-monologue.html
 

@@ -1,3 +1,15 @@
+**Pastrnak scores twice again. Bruins lose again. Where's the defense?**\
+`The Bruins earned a point after dropping three straight in regulation, but even Pastrnak's heroics couldn't get them the win.`\
+https://nytimes.com/athletic/6040342/2025/01/05/bruins-david-pastrnak-defense-islanders/
+
+**Sebastian Stan wins for his non-Trump role.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/sebastian-stan-different-man-apprentice
+
+**Jerry Jones definitive in his stance to remain Cowboys GM: 'I bought an occupation'**\
+`Jones discussed being accountable for the roster the Cowboys put on the field as well as Will McClay's value to the Cowboys.`\
+https://nytimes.com/athletic/6039917/2025/01/05/cowboys-jerry-jones-decisions-mike-mccarthy/
+
 **Commanders again show fight as they lock up the No. 6 seed and set up rematch with Bucs**\
 `Washington finishes the season 12-5 with its win over Dallas and will travel to Tampa for a wild-card matchup vs. the Buccaneers. `\
 https://nytimes.com/athletic/6039823/2025/01/05/commanders-playoff-seeding-win-cowboys/
