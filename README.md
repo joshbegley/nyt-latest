@@ -1,3 +1,19 @@
+**Major Winter Storm Moves to the Mid-Atlantic**\
+`A hazardous mix of snow, sleet and freezing rain will be unleashed on the Mid-Atlantic on Monday. It’s part of a storm system that moved across multiple states over the weekend.`\
+https://nytimes.com/2025/01/06/weather/winter-storm-snow-rain-forecast.html
+
+**Congestion Pricing’s True Test Comes During First Rush Hour**\
+`The tolls were introduced just past midnight on Sunday. Officials are still assessing how they are affecting traffic patterns in New York City.`\
+https://nytimes.com/2025/01/06/nyregion/congestion-pricings-rush-hour.html
+
+**The Jan. 6 Rioters, 4 Years Later**\
+`Hundreds of rioters accused of nonviolent crimes during the attack on the Capitol have wrapped up their cases. Here’s what some of their lives look like now.`\
+https://nytimes.com/2025/01/06/us/politics/trump-capitol-attack-jan-6.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/06/crosswords/spelling-bee-forum.html
+
 **The eternal Claudio Ranieri has turned Roma's expensive squad back into a team**\
 `Football, as a game, should have long passed Ranieri by - but the 73-year-old is rescuing his hometown club once again`\
 https://nytimes.com/athletic/6039441/2025/01/06/claudio-ranieri-roma-lazio-derby-win/
@@ -21,20 +37,4 @@ https://nytimes.com/video/weather/100000009909567/heavy-snow-blankets-central-us
 **Warriors get blasted by Kings; won't have Jonathan Kuminga for 3 weeks**\
 `"We haven't shown (we can be a come-from-behind team)," Steph Curry said. "That's not our MO."`\
 https://nytimes.com/athletic/6040566/2025/01/06/warriors-lose-to-kings-jonathan-kuminga-injury/
-
-**‘Jerry Springer: Fights, Camera, Action,’ Plus 6 Things to Watch on TV This Week**\
-`Netflix releases a documentary on the 1990s talk-show host, and PBS airs “Finding Your Roots” and “Antiques Roadshow.”`\
-https://nytimes.com/2025/01/06/arts/television/jerry-springer-fights-camera-action-plus-6-things-to-watch-on-tv-this-week.html
-
-**Our Favorite Photos From the Golden Globes**\
-`Our photographer caught the stars as they arrived for Sunday night’s awards show.`\
-https://nytimes.com/2025/01/06/movies/golden-globes-favorite-photos.html
-
-**Leicester face a pivotal January and must address glaring deficiencies**\
-`Second-bottom Leicester haven’t been cut adrift in the league yet, but cannot afford any more mistakes on or off the pitch`\
-https://nytimes.com/athletic/6038416/2025/01/06/leicester-city-january-transfer-window/
-
-**Ollie Watkins' struggles mean he may need to prove himself all over again**\
-`The Aston Villa striker isn't hitting the heights of last season and looks likely to lose his place to Jhon Duran on a regular basis`\
-https://nytimes.com/athletic/6037129/2025/01/06/ollie-watkins-aston-villa-goals-form/
 
