@@ -1,3 +1,7 @@
+**James Rodriguez to leave Rayo Vallecano just four months after joining**\
+`James Rodriguez is set to have his Rayo Vallecano contract terminated and leave the Spanish club as a free agent.`\
+https://nytimes.com/athletic/6041541/2025/01/06/james-rodriguez-transfer-rayo-vallecano/
+
 **The Capitol is fortified, but law enforcement officials see no threat of mob violence.**\
 `With the losing candidate in the presidential race not disputing the outcome and security improved around Congress, authorities say the threat environment is vastly different from four years ago.`\
 https://nytimes.com/live/2025/01/06/us/trump-election-certification/the-capitol-is-fortified-but-law-enforcement-officials-see-no-threat-of-mob-violence
