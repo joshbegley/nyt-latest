@@ -1,3 +1,19 @@
+**A Ballerina Prized for Her Musicality Deals With Hearing Loss**\
+`Sara Mearns, the New York City Ballet principal, announced her 10-year struggle on Instagram. She tested out her new hearing aids in “The Nutcracker.”`\
+https://nytimes.com/2025/01/06/arts/dance/sara-mearns-hearing-loss-ballerina.html
+
+**Ben Godfrey to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Ben Godfrey's loan move from Atalanta to Ipswich Town`\
+https://nytimes.com/athletic/6037141/2025/01/06/ben-godfrey-to-ipswich-town-the-athletic-500-transfer-ratings/
+
+**Trump Says He’ll Replace Leader of National Archives**\
+`The president-elect’s suggestion that he plans to replace the head of the agency comes after her predecessor raised alarms about his handling of presidential records.`\
+https://nytimes.com/2025/01/06/us/politics/trump-national-archives.html
+
+**Abolish the Golden Globes**\
+`Unless they make a better case for their existence.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/abolish-the-golden-globes
+
 **Friedrich St. Florian, Architect of World War II Memorial, Dies at 91**\
 `His design was criticized as banal and beneath its subject. It was also praised for fitting seamlessly into hallowed space on the National Mall.`\
 https://nytimes.com/2025/01/06/arts/design/friedrich-st-florian-dead.html

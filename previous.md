@@ -1,3 +1,19 @@
+**A Ballerina Prized for Her Musicality Deals With Hearing Loss**\
+`Sara Mearns, the New York City Ballet principal, announced her 10-year struggle on Instagram. She tested out her new hearing aids in “The Nutcracker.”`\
+https://nytimes.com/2025/01/06/arts/dance/sara-mearns-hearing-loss-ballerina.html
+
+**Ben Godfrey to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Ben Godfrey's loan move from Atalanta to Ipswich Town`\
+https://nytimes.com/athletic/6037141/2025/01/06/ben-godfrey-to-ipswich-town-the-athletic-500-transfer-ratings/
+
+**Trump Says He’ll Replace Leader of National Archives**\
+`The president-elect’s suggestion that he plans to replace the head of the agency comes after her predecessor raised alarms about his handling of presidential records.`\
+https://nytimes.com/2025/01/06/us/politics/trump-national-archives.html
+
+**Abolish the Golden Globes**\
+`Unless they make a better case for their existence.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/abolish-the-golden-globes
+
 **Friedrich St. Florian, Architect of World War II Memorial, Dies at 91**\
 `His design was criticized as banal and beneath its subject. It was also praised for fitting seamlessly into hallowed space on the National Mall.`\
 https://nytimes.com/2025/01/06/arts/design/friedrich-st-florian-dead.html
@@ -17,24 +33,4 @@ https://nytimes.com/athletic/6040387/2025/01/06/jazz-winning-nba-draft/
 **Brick by brick, Dan Campbell and Lions' 'core' laid groundwork for historic moment**\
 `Leaning into their identity on both sides of the ball, Campbell's Lions secured a "legacy" win over the Vikings in Week 18.`\
 https://nytimes.com/athletic/6041384/2025/01/06/detroit-lions-dan-campbell-nfc-north/
-
-**Antonin Kinsky to Tottenham Hotspur: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Antonin Kinsky's move to Tottenham Hotspur from Slavia Prague`\
-https://nytimes.com/athletic/6038524/2025/01/06/antonin-kinsky-to-tottenham-hotspur-the-athletic-500-transfer-ratings/
-
-**Pistons at trade deadline, Jalen Duren's defensive struggles and more**\
-`Pistons beat writer Hunter Patterson answers some of your questions in a mailbag.`\
-https://nytimes.com/athletic/6040799/2025/01/06/pistons-nba-trade-deadline-mailbag/
-
-**American fan among eight arrests for alleged tragedy chanting at Anfield**\
-`An American was among eight supporters detained following reports of tragedy chanting at Sunday&#8217;s Premier League match between Liverpool and Manchester United at Anfield.`\
-https://nytimes.com/athletic/6041882/2025/01/06/liverpool-man-utd-tragedy-chanting-arrests/
-
-**USMNT Player Tracker: Ring-rusty but resilient Richards, Trusty off the mark and Austin debuts**\
-`Our weekly round up of how the United States emigres fared across Europe in the latest round of club games`\
-https://nytimes.com/athletic/6041698/2025/01/06/usmnt-richards-trusty-austin-tracker/
-
-**N.Y. Families Could Receive Tax Credit of Up to $1,000 Under Hochul Plan**\
-`Gov. Kathy Hochul has now released two early proposals from her State of the State message that aim to address concerns over the high cost of living.`\
-https://nytimes.com/2025/01/06/nyregion/child-tax-credit-ny.html
 
