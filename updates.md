@@ -1,3 +1,11 @@
+**Anchovies, Always**\
+`They go full stealth mode in my garlicky chicken with lemon-anchovy sauce, melting quietly into the pan sauce and enhancing the lemon and capers.`\
+https://nytimes.com/2025/01/06/dining/chicken-anchovy-sauce-dinner-recipe.html
+
+**Browns QB Deshaun Watson has 'setback' in Achilles recovery**\
+`Watson told doctors during his end of the season physical that "something didn't feel right." `\
+https://nytimes.com/athletic/6041754/2025/01/06/deshaun-watson-injury-recovery-browns/
+
 **New York’s Congestion Pricing Plan Just Started, but Could Be Undone**\
 `The program is the target of several lawsuits and of President-elect Donald J. Trump, who said he will end it permanently once he takes office on Jan. 20.`\
 https://nytimes.com/2025/01/06/nyregion/new-york-congestion-pricing-trump-lawsuits.html
