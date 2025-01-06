@@ -1,3 +1,15 @@
+**How to Win Friends and Influence People**\
+`How do people get to be No. 1?`\
+https://nytimes.com/2025/01/05/podcasts/how-to-win-friends-and-influence-people-this-american-life-nyt-audio.html
+
+**'We got our guy': Bryce Young and the Panthers go into the offseason on high note**\
+`Bryce Young joined Cam Newton and Steve Beuerlein as the only quarterbacks in franchise history to account for five TDs in a game.`\
+https://nytimes.com/athletic/6039857/2025/01/05/bryce-young-carolina-panthers-win-falcons/
+
+**Rodgers throws 4 TDs in possible final game with New York as Jets top Dolphins 32-20: Takeaways**\
+`Denver's win eliminates Miami from playoff race, while the Jets head into an offseason that will see a lot of change.`\
+https://nytimes.com/athletic/6038720/2025/01/05/dolphins-jets-score-result-takeaways/
+
 **All eyes on GM Ryan Poles as the Bears' search for their next head coach begins**\
 `Once again, history is repeating itself in Chicago as Poles appears set to lead a coaching search like Ryan Pace before him.`\
 https://nytimes.com/athletic/6039721/2025/01/05/bears-coach-search-ryan-poles/
