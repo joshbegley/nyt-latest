@@ -1,8 +1,4 @@
-**Inside the Golden Globes: What Comes After the Red Carpet.**\
-`How Tilda Swinton, Kieran Culkin and other stars spent their night. (Hint: There was an all-you-can-eat sushi buffet.)`\
-https://nytimes.com/2025/01/06/fashion/golden-globes-after-parties.html
-
-**Hollinger's Week That Was: Heat and Suns have 2025 hangovers, but they aren't alone**\
+**Hollinger's Week That Was: Heat and Suns dealing with hangovers, but they aren't alone**\
 `Teams partied hard with their draft picks the past few years, and now they're feeling the impact.`\
 https://nytimes.com/athletic/6040902/2025/01/06/jimmy-butler-heat-suns-bradley-beal-nba/
 
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/06/us/denver-prosecutor-fired-disbarred-harassment.h
 **Congress Overhauled the Electoral Count Process After the 2021 Violence**\
 `Bipartisan legislation enacted in 2022 makes it much more difficult for lawmakers to object to a state’s votes, and clarifies that the vice president cannot unilaterally overrule them.`\
 https://nytimes.com/2025/01/06/us/politics/after-the-violence-of-2021-congress-overhauled-the-electoral-count-process.html
+
+**Where in the World Do These Popular Detectives Solve Crimes?**\
+`Try this short quiz on investigators and inspectors cracking their cases around the globe.`\
+https://nytimes.com/interactive/2025/01/06/books/review/international-detective-novels.html
 
