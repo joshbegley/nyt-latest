@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Golden Globes**\
+`Our photographer caught the stars as they arrived for Sunday night’s awards show.`\
+https://nytimes.com/2025/01/06/movies/golden-globes-favorite-photos.html
+
 **Leicester face a pivotal January and must address glaring deficiencies**\
 `Second-bottom Leicester haven’t been cut adrift in the league yet, but cannot afford any more mistakes on or off the pitch`\
 https://nytimes.com/athletic/6038416/2025/01/06/leicester-city-january-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037605/2025/01/06/everton-bournemouth-dyche-pickfo
 **Arsenal have more Premier League draws already than in the past two seasons - it could be their undoing**\
 `Arsenal lost control at Brighton and look off the pace in the title race as a result - creative solutions might be needed in weeks to come`\
 https://nytimes.com/athletic/6037641/2025/01/06/arsenal-brighton-draws-premier-league-title/
-
-**Strand Larsen is already Wolves' best No 9 since Jimenez - but there's room to improve**\
-`Striker Strand Larsen has hit the ground running in front of goal for Wolves but other aspects of his game can get better`\
-https://nytimes.com/athletic/6035934/2025/01/06/wolves-jorgen-strand-larsen-analysis/
 

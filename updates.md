@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Golden Globes**\
+`Our photographer caught the stars as they arrived for Sunday night’s awards show.`\
+https://nytimes.com/2025/01/06/movies/golden-globes-favorite-photos.html
+
 **Leicester face a pivotal January and must address glaring deficiencies**\
 `Second-bottom Leicester haven’t been cut adrift in the league yet, but cannot afford any more mistakes on or off the pitch`\
 https://nytimes.com/athletic/6038416/2025/01/06/leicester-city-january-transfer-window/
