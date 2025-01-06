@@ -1,3 +1,15 @@
+**This Is What It Looks Like to Win a Golden Globe**\
+`Demi Moore, Adrien Brody, Zoe Saldaña and the stars of “Shogun” and “Baby Reindeer” enjoy their moments of glory.`\
+https://nytimes.com/2025/01/06/movies/golden-globes-winner-portraits.html
+
+**U.K.’s Starmer Slams ‘Lies and Misinformation’ After Elon Musk Attacks**\
+`Without naming Mr. Musk directly, Prime Minister Keir Starmer denounced the billionaire’s spreading of falsehoods about a child sex abuse scandal.`\
+https://nytimes.com/2025/01/06/world/europe/starmer-musk-uk-child-sexual-abuse.html
+
+**Wolves set to complete Agbadou signing from Reims**\
+`Wolverhampton Wanderers are set to complete the signing of centre-back Emmanuel Agbadou from Stade de Reims.`\
+https://nytimes.com/athletic/6041472/2025/01/06/wolves-transfers-emmanuel-agbadou/
+
 **Giants retaining coach Brian Daboll, GM Joe Schoen after 3-14 season**\
 `New York ended its disastrous season with a 20-13 defeat Sunday against a Philadelphia Eagles team resting its starters.`\
 https://nytimes.com/athletic/6041435/2025/01/06/giants-brian-daboll-joe-schoen-stay-coaches/
