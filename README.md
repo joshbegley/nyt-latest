@@ -1,7 +1,3 @@
-**U.S. Envoy Says Israel Will Withdraw From Southern Lebanon**\
-`With the deadline looming for the terms of a fragile cease-fire between Israel and Hezbollah to be met, an American diplomat on Monday said “much progress” had been made recently.`\
-https://nytimes.com/2025/01/06/world/middleeast/israel-lebanon-ceasefire-hezbollah-withdraw.html
-
 **New York Crime Rate Falls, but Number of Felony Assaults Rises Again**\
 `Killings and shootings have dropped, but headlines have been dominated by terrifying crimes, like the killing of a woman who was burned to death on the F train.`\
 https://nytimes.com/2025/01/06/nyregion/nyc-crime-2024.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6042803/2025/01/06/brock-purdy-49ers-contract-negot
 **An 'imminent' Jake Middleton return, Kirill Kaprizov update and PK praise: Wild notes**\
 `Hynes also had praise for defenseman Zeev Buium, the Wild's top prospect, and his performance at the World Juniors.`\
 https://nytimes.com/athletic/6042838/2025/01/06/an-imminent-jake-middleton-return-kirill-kaprizov-update-and-pk-praise-wild-notes/
+
+**With the owner in Florida, Jets players and coaches were left to explain a season gone wrong**\
+`As the locker room was cleared out, Jeff Ulbrich and a few players met with the media on Monday.`\
+https://nytimes.com/athletic/6042685/2025/01/06/jets-locker-room-end-of-season/
 
