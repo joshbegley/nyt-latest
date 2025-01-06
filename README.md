@@ -1,3 +1,11 @@
+**‘The Brutalist’ Won Big at the Golden Globes. But How Can You See It?**\
+`Interested in watching the three-and-a-half-hour epic about a fictional Hungarian architect? Good luck if you don’t live in New York or Los Angeles.`\
+https://nytimes.com/2025/01/06/movies/how-to-watch-the-brutalist.html
+
+**Sir Alex Ferguson led tributes at funeral of Kath Phipps: 'She was a real United person'**\
+`David Beckham and Ruben Amorim among those at receptionist's funeral`\
+https://nytimes.com/athletic/6042261/2025/01/06/kath-phipps-funeral-ferguson-beckham/
+
 **Al-Assad Is Out, but So Is a Revered Queen: Textbook Changes Unsettle Syrians**\
 `Syria’s new government has swiftly ordered changes to school curriculums. Some Syrians say the move is a worrying sign of how the former rebels plans to govern a diverse country.`\
 https://nytimes.com/2025/01/06/world/middleeast/syria-government-school-changes.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009910728/congress-certifies-trump-2
 **Los Angeles Braces for ‘Life-Threatening and Destructive’ Winds**\
 `Forecasters warned that a significant Santa Ana wind event this week could help wildfires spread quickly and erratically.`\
 https://nytimes.com/2025/01/06/weather/los-angeles-santa-ana-winds-fire.html
-
-**A bewildering court ruling caused confusion days before the tolls started.**\
-`By Ana Ley`\
-https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/a-bewildering-court-ruling-caused-confusion-days-before-the-tolls-started
-
-**Azerbaijani Anger Over Plane Crash Grows, in Deepening Schism With Russia**\
-`In the crash’s aftermath, Azerbaijan has unleashed rare and stinging criticism of Russia, with the country’s president saying Moscow’s response has caused “surprise, regret and rightful indignation.”`\
-https://nytimes.com/2025/01/06/world/europe/azerbaijan-plane-crash-russia-criticism.html
 
