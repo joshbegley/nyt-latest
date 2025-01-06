@@ -1,3 +1,11 @@
+**Congress Overhauled the Electoral Count Process After the 2021 Violence**\
+`Bipartisan legislation enacted in 2022 makes it much more difficult for lawmakers to object to a state’s votes, and clarifies that the vice president cannot unilaterally overrule them.`\
+https://nytimes.com/2025/01/06/us/politics/after-the-violence-of-2021-congress-overhauled-the-electoral-count-process.html
+
+**Where in the World Do These Popular Detectives Solve Crimes?**\
+`Try this short quiz on investigators and inspectors cracking their cases around the globe.`\
+https://nytimes.com/interactive/2025/01/06/books/review/international-detective-novels.html
+
 **Ohio State's Will Howard hitting postseason stride: 'He runs this whole team'**\
 `The postseason has shown the best of Howard, who has thrown for 630 yards and five touchdowns through two CFP games.`\
 https://nytimes.com/athletic/6041617/2025/01/06/will-howard-ohio-state-cotton-bowl-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6041420/2025/01/06/spurs-road-trip-victor-wembanyam
 **Clemson fires defensive coordinator Wes Goodwin after 3 seasons on the job**\
 `Goodwin had been the Tigers defensive coordinator since December 2021after being promoted from his role as a little-known analyst.`\
 https://nytimes.com/athletic/6041606/2025/01/06/clemson-wes-goodwin-defensive-coordinator-dabo-swinney/
-
-**Canucks notebook: Quinn Hughes' return, Danton Heinen's fit and a tough month ahead**\
-`The Canucks have struggled since the holiday break. Returning stars should help as the schedule turns difficult. `\
-https://nytimes.com/athletic/6040887/2025/01/06/canucks-quinn-hughes-injury-january/
-
-**The Bounce: Victor Wembanyama, Nikola Jokić starred in a wild NBA weekend**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6040972/2025/01/06/victor-wembanyama-nikola-jokic-spurs-nuggets-jimmy-butler-heat-nba-the-bounce/
 
