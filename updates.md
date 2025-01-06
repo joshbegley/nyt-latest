@@ -1,3 +1,7 @@
+**U.S. Eases Some Restrictions on Humanitarian Aid to Syria**\
+`The authorization comes after rebels toppled the Syrian government last month and is intended to allow humanitarian groups to operate more freely without running afoul of U.S. sanctions.`\
+https://nytimes.com/2025/01/06/us/politics/syria-us-sanctions-aid.html
+
 **Rams begin preparing for wild-card matchup with familiar Vikings squad**\
 `The Rams beat the Vikings in Week 8, but Sean McVay points out that a lot has changed since that Oct. 24 game.`\
 https://nytimes.com/athletic/6042384/2025/01/06/rams-wild-card-matchup-vikings-comparison/
