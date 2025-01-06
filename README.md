@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6038728/2025/01/05/chargers-raiders-score-result-ta
 https://nytimes.com/2025/01/05/podcasts/how-to-win-friends-and-influence-people-this-american-life-nyt-audio.html
 
 **'We got our guy': Bryce Young and the Panthers go into the offseason on high note**\
-`Bryce Young joined Cam Newton and Steve Beuerlein as the only quarterbacks in franchise history to account for five TDs in a game.`\
+`Young joined Cam Newton and Steve Beuerlein as the only quarterbacks in franchise history to account for five TDs in a game.`\
 https://nytimes.com/athletic/6039857/2025/01/05/bryce-young-carolina-panthers-win-falcons/
 
 **Rodgers throws 4 TDs in possible final game with New York as Jets top Dolphins 32-20: Takeaways**\
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6039721/2025/01/05/bears-coach-search-ryan-poles/
 https://nytimes.com/athletic/6039758/2025/01/05/bears-packers-chicago-elusive-victory-column/
 
 **Packers stumble into playoffs after finale loss to Bears with much reason for concern**\
-`Green Bay will visit the Eagles in the wild-card round of the playoffs next weekend.`\
+`Green Bay will visit Philadelphia in the wild-card round of the playoffs next weekend.`\
 https://nytimes.com/athletic/6039866/2025/01/05/packers-loss-jordan-love-christian-watson-bears/
 
 **Bo Nix, Broncos blank Chiefs 38-0 to clinch playoff date with Bills: Takeaways**\
