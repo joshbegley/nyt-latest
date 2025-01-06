@@ -1,3 +1,15 @@
+**Ohio State's Will Howard hitting postseason stride: 'He runs this whole team'**\
+`The postseason has shown the best of Howard, who has thrown for 630 yards and five touchdowns through two CFP games.`\
+https://nytimes.com/athletic/6041617/2025/01/06/will-howard-ohio-state-cotton-bowl-college-football-playoff/
+
+**In Africa, Danger Slithers Through Homes and Fields**\
+`Venomous snakes bite millions of people each year, killing at least 120,000. Many of them are poor people in rural areas of Africa without easy access to treatment.`\
+https://nytimes.com/2025/01/06/health/in-africa-danger-slithers-through-homes-and-fields.html
+
+**With a home-state semifinal, Texas is the CFP's luckiest traveler**\
+`Every stadium the Longhorns have played in this postseason is one they’ve played in before.`\
+https://nytimes.com/athletic/6041358/2025/01/06/texas-cotton-bowl-college-football-playoff/
+
 **Trump Seeks to Halt His Criminal Sentencing in New York**\
 `A Manhattan judge has already indicated that he will spare Donald J. Trump from jail time, but the president-elect is seeking to avoid the symbolic blow of the criminal proceeding.`\
 https://nytimes.com/2025/01/06/nyregion/trump-trial-sentencing-new-york.html
