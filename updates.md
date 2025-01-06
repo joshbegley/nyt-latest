@@ -1,3 +1,7 @@
+**Will a top QB be there for Giants to draft at No. 3? Are Brian Daboll, Joe Schoen safe?**\
+`The two teams picking ahead of Giants in the NFL Draft, the Titans and the Browns, could each use a quarterback, too. `\
+https://nytimes.com/athletic/6039703/2025/01/05/giants-qb-2025-nfl-draft-pick-brian-daboll-joe-schoen/
+
 **'We got our guy': Bryce Young and the Panthers go into the offseason on high note**\
 `Young joined Cam Newton and Steve Beuerlein as the only quarterbacks in franchise history to account for five TDs in a game.`\
 https://nytimes.com/athletic/6039857/2025/01/05/bryce-young-carolina-panthers-win-falcons/
