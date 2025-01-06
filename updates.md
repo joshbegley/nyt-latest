@@ -1,3 +1,7 @@
+**Ex-Prosecutor Ordered Disbarred After Framing Colleague for Sexual Harassment**\
+`The woman created fake text messages and changed her phone records to falsely implicate a male investigator in the Denver District Attorney’s Office, a judicial office ruled.`\
+https://nytimes.com/2025/01/06/us/denver-prosecutor-fired-disbarred-harassment.html
+
 **Congress Overhauled the Electoral Count Process After the 2021 Violence**\
 `Bipartisan legislation enacted in 2022 makes it much more difficult for lawmakers to object to a state’s votes, and clarifies that the vice president cannot unilaterally overrule them.`\
 https://nytimes.com/2025/01/06/us/politics/after-the-violence-of-2021-congress-overhauled-the-electoral-count-process.html
