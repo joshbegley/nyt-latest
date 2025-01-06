@@ -1,6 +1,18 @@
+**Five key factors that will determine whether Nottingham Forest qualify for Europe**\
+`A continuation of a positive injury record, Chris Wood's form and their defensive solidity could see Forest return to the continental stage`\
+https://nytimes.com/athletic/6035725/2025/01/06/forest-route-europe-premier-league/
+
 **19 Unforgettable Looks at the Golden Globes**\
 `For reasons good and bad, these ensembles were among the most memorable.`\
 https://nytimes.com/2025/01/06/style/golden-globes-fashion-red-carpet.html
+
+**Crystal Palace's wing-backs are key to their approach, but backups are needed**\
+`Tyrick Mitchell and Daniel Munoz have excelled for Oliver Glasner, but the club needs to recruit strong backups to ease their workload`\
+https://nytimes.com/athletic/6024887/2025/01/06/palace-munoz-mitchell-diouf-wingback-glasner/
+
+**'How do you watch this every week?' - Everton's football is stale, dull and predictable**\
+`Watching this team has become something to endure, not enjoy — particularly on trips to Bournemouth's Vitality Stadium`\
+https://nytimes.com/athletic/6037605/2025/01/06/everton-bournemouth-dyche-pickford-tfg/
 
 **Arsenal have more Premier League draws already than in the past two seasons - it could be their undoing**\
 `Arsenal lost control at Brighton and look off the pace in the title race as a result - creative solutions might be needed in weeks to come`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6037360/2025/01/06/alexander-isak-six-yard-box-king
 **Lyall, Deehan, Olsen... Hurzeler and a 'disappointing feeling'**\
 `Fabian Hurzeler has turned Brighton into the division's draw specialists. They must start winning to maintain their push for Europe`\
 https://nytimes.com/athletic/6037661/2025/01/06/brighton-arsenal-draw-fabian-hurzeler/
-
-**Monday Briefing**\
-`The Jan. 6 riot, four years on.`\
-https://nytimes.com/2025/01/06/briefing/capitol-riot-israel-russia.html
-
-**Sean Payton's Broncos are ready for their postseason moment: 'Young and hungry is dangerous'**\
-`Payton has full belief in his standout rookie QB Bo Nix: "This guy gives you a chance every week. He’s that good.”`\
-https://nytimes.com/athletic/6040642/2025/01/06/broncos-playoffs-sean-payton-bo-nix/
-
-**Emeralds for Sale: The Taliban Look Below Ground to Revive the Economy**\
-`The Taliban government is counting on Afghanistan’s bountiful gemstone and mineral resources after the loss of billions of dollars in international aid.`\
-https://nytimes.com/2025/01/06/world/asia/taliban-afghanistan-mining.html
 
