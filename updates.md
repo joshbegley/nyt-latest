@@ -1,3 +1,11 @@
+**The M.T.A. Is Counting on Congestion Pricing to Fix Mass Transit**\
+`The money raised from tolls will be used for essential repairs to New York City’s subways and buses. Without the upgrades, the system risks a meltdown.`\
+https://nytimes.com/2025/01/06/nyregion/mta-congestion-pricing-money-subway-bus-repair.html
+
+**NHL weekend rankings: Offseason regrets, Lightning surge and are the Habs good?**\
+`It's a lot easier to return holiday gifts than it is offseason UFAs, and some have caused considerably more buyer's remorse than others.`\
+https://nytimes.com/athletic/6039683/2025/01/06/nhl-weekend-rankings-regrets-lightning-canadiens/
+
 **Nicolas Sarkozy Goes on Trial Over Charges He Took Campaign Funds From Libya**\
 `The former French president has faced several legal cases since leaving office, but accusations that he received money for his 2007 election from Libyan authorities have been particularly damaging.`\
 https://nytimes.com/2025/01/06/world/europe/nicolas-sarkozy-france-libya.html
