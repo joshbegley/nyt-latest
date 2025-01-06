@@ -1,3 +1,11 @@
+**What will Jerry Jones decide about Mike McCarthy? Potential timeline of decision, more**\
+`The five-year contract Mike McCarthy signed in January of 2020 runs out on Jan. 14. He made it clear Sunday he wants to remain in Dallas.`\
+https://nytimes.com/athletic/6039815/2025/01/05/cowboys-mike-mccarthy-job-status-jerry-jones/
+
+**Caleb Williams helps Bears end losing streak, now it's time to find his next coach**\
+`Williams once again showed just enough promise for the Bears to feel hopeful but also understand a lot needs to get done on offense.`\
+https://nytimes.com/athletic/6039799/2025/01/05/caleb-williams-helps-bears-end-losing-streak-now-its-time-to-find-his-next-coach/
+
 **Geno Smith throws 4 TD passes in Seahawks' 30-25 win over Rams: Takeaways**\
 `Rams are the No. 4 seed in the NFC and will face the loser of Sunday Night's Detroit Lions vs. Minnesota Vikings game`\
 https://nytimes.com/athletic/6038714/2025/01/05/seahawks-rams-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6039703/2025/01/05/giants-qb-2025-nfl-draft-pick-br
 **Chargers lock up AFC's fifth seed with win vs. Raiders: Key Takeaways**\
 `The Chargers secured the No. 5 seed in the AFC playoffs and will face the Houston Texans in a wild-card round matchup.`\
 https://nytimes.com/athletic/6038728/2025/01/05/chargers-raiders-score-result-takeaways/
-
-**How to Win Friends and Influence People**\
-`How do people get to be No. 1?`\
-https://nytimes.com/2025/01/05/podcasts/how-to-win-friends-and-influence-people-this-american-life-nyt-audio.html
-
-**'We got our guy': Bryce Young and the Panthers go into the offseason on high note**\
-`Young joined Cam Newton and Steve Beuerlein as the only quarterbacks in franchise history to account for five TDs in a game.`\
-https://nytimes.com/athletic/6039857/2025/01/05/bryce-young-carolina-panthers-win-falcons/
 

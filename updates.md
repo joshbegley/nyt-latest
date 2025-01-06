@@ -1,3 +1,11 @@
+**What will Jerry Jones decide about Mike McCarthy? Potential timeline of decision, more**\
+`The five-year contract Mike McCarthy signed in January of 2020 runs out on Jan. 14. He made it clear Sunday he wants to remain in Dallas.`\
+https://nytimes.com/athletic/6039815/2025/01/05/cowboys-mike-mccarthy-job-status-jerry-jones/
+
+**Caleb Williams helps Bears end losing streak, now it's time to find his next coach**\
+`Williams once again showed just enough promise for the Bears to feel hopeful but also understand a lot needs to get done on offense.`\
+https://nytimes.com/athletic/6039799/2025/01/05/caleb-williams-helps-bears-end-losing-streak-now-its-time-to-find-his-next-coach/
+
 **Kieran Culkin wins his second Globe in two years.**\
 `Culkin and`\
 https://nytimes.com/2025/01/05/movies/kieran-culkin-golden-globes-a-real-pain.html
