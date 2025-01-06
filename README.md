@@ -1,3 +1,11 @@
+**Lakers' athleticism gap on display in loss to younger, more physical Rockets**\
+`Help may be on the way for the Lakers, as Dorian Finney-Smith takes on a bigger role, and Jarred Vanderbilt is close to his season debut.`\
+https://nytimes.com/athletic/6040815/2025/01/06/lakers-rockets-nba-athleticism/
+
+**Russia Claims Control of Key Town as Ukraine Renews Push in Kursk**\
+`Ukraine has largely been driven out of Kurakhove, a battered but strategic town in the Donbas, Russia said. Kyiv’s forces were pressing a renewed offensive in southern Russia.`\
+https://nytimes.com/2025/01/06/world/europe/kurakhove-russia-ukraine-war.html
+
 **Hollywood’s Stars Skip Politics at the Globes**\
 `Sunday’s show was Hollywood’s first megaphone since Donald Trump was elected to a second term. This time, there was barely a peep about it.`\
 https://nytimes.com/2025/01/06/business/media/golden-globes-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6041435/2025/01/06/giants-brian-daboll-joe-schoen-s
 **NBA Rewind: Making sense of the Jimmy Butler drama and previewing a monster week**\
 `Who's up and who's down in Zach Harper's latest stock report? And how about those Wemby-Joker showdowns?`\
 https://nytimes.com/athletic/6032543/2025/01/06/nba-rewind-jimmy-butler-heat-victor-wembanyama-spurs-nikola-jokic-nuggets/
-
-**Jaguars fire coach Doug Pederson after 3 seasons**\
-`With a 22-29 record over three seasons, Pederson’s 42 percent win rate puts him as the third-best Jaguars coach in history.`\
-https://nytimes.com/athletic/5840239/2025/01/06/doug-pederson-fired-jaguars/
-
-**The Worst Golden Globes Fashion Trend**\
-`Enough with the retro throwback nostalgia — Hollywood needs to be less conservative on the red carpet.`\
-https://nytimes.com/2025/01/06/style/golden-globes-worst-fashion.html
 
