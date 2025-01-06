@@ -1,3 +1,7 @@
+**Shai Gilgeous-Alexander, Thunder make most of opportunity in win vs. Celtics**\
+`Following a big win against the Celtics, SGA and the Thunder are now 30-5 this season. They've won a franchise-record 15 consecutive games.`\
+https://nytimes.com/athletic/6040158/2025/01/06/shai-gilgeous-alexander-thunder-nba-celtics/
+
 **Why the Patriots' head-coaching job is the best one available this offseason**\
 `Yes, the Patriots roster stinks. But there is a lot to like about the team's situation, from Drake Maye to its abundance of cap space.`\
 https://nytimes.com/athletic/6039936/2025/01/06/patriots-head-coaching-job-drake-maye/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/us/biden-new-orleans-grief.html
 **Harris Faces an Awkward Election Task: Certifying the Vote She Lost**\
 `The vice president will preside over Congress on Monday as it counts the Electoral College votes finalizing her defeat by Donald J. Trump.`\
 https://nytimes.com/2025/01/06/us/politics/kamala-harris-electoral-vote-certification.html
-
-**Best and Worst Moments From the 2025 Golden Globes**\
-`From Nikki Glaser’s monologue and wins for “Emilia Pérez” and “The Brutalist,” it was downhill to all those pharmaceutical ads.`\
-https://nytimes.com/2025/01/06/movies/golden-globes-best-worst-moments.html
 
