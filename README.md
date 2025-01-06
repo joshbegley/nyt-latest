@@ -1,3 +1,11 @@
+**U.S. Sends 11 Guantánamo Prisoners to Oman to Start New Lives**\
+`The secret mission left the smallest number of prisoners at Guantánamo Bay since the day the detention center opened in 2002.`\
+https://nytimes.com/2025/01/06/us/politics/guantanamo-prisoners-oman.html
+
+**Arthur Kaliyev claimed by Rangers — What are they getting? What went wrong in L.A.?**\
+`The Rangers now get the opportunity to bring the best out of a skilled player with question marks.`\
+https://nytimes.com/athletic/6042252/2025/01/06/kaliyev-rangers-kings-waivers/
+
 **Trudeau to Resign as Canada’s Prime Minister: ‘It’s Time for a Reset’**\
 `Justin Trudeau announced Monday that he was also stepping down as leader of Canada’s Liberal Party. He will remain in both roles until a replacement is chosen.`\
 https://nytimes.com/2025/01/06/world/americas/trudeau-prime-minister-to-resign.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6042327/2025/01/06/padres-peter-seidler-widow-lawsu
 **A Timeline of Justin Trudeau’s Rise and Fall**\
 `The Canadian prime minister, who said on Monday he would step down, has spent a quarter-century in the political spotlight.`\
 https://nytimes.com/2025/01/06/world/canada/justin-trudeau-timeline-canada.html
-
-**Scenes From the First Major Winter Storm of 2025**\
-`Snow mixed with sleet and freezing rain blanketed parts of the Midwest and Mid-Atlantic on Monday, leaving tens of thousands without power.`\
-https://nytimes.com/2025/01/06/us/winter-storm-photos.html
-
-**Harris Announces Trump’s Win in the 2024 Election**\
-`Vice President Kamala Harris presided over the certification of her own presidential election loss.`\
-https://nytimes.com/video/us/politics/100000009910728/congress-certifies-trump-2024-election.html
 
