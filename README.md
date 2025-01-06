@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6040239/2025/01/05/broncos-win-clinch-playoff-chief
 `It wasn't an impressive or glamorous win, but Toronto picked up both points on the second game of a back-to-back.`\
 https://nytimes.com/athletic/6039775/2025/01/05/maple-leafs-report-cards-rielly-hildeby-flyers/
 
-**Antonio Pierce still has support of Raiders’ players amid uncertain future**\
+**Antonio Pierce still has support of Raiders players amid uncertain future**\
 `The Raiders suffered through a 4-13 season, but owner Mark Davis cares what his players think. That could help Pierce reach Year 2.`\
 https://nytimes.com/athletic/6040257/2025/01/05/raiders-antonio-pierce-loss-chargers/
 
