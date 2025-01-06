@@ -1,3 +1,7 @@
+**Browns are giving Kevin Stefanski, Andrew Berry one more chance to get it right**\
+`In 2025, the GM, head coach and the entire operation must show not just immediate progress, but actual fixes. `\
+https://nytimes.com/athletic/6042592/2025/01/06/browns-coach-kevin-stefanski-gm-andrew-berry/
+
 **Mike Rinder, Scientology Spokesman Turned Critic, Dies at 69**\
 `In a memoir and as a host of the documentary series “Leah Remini: Scientology and the Aftermath,” he accused the church of fostering a culture of abuse.`\
 https://nytimes.com/2025/01/06/us/mike-rinder-dead-scientology-critic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/theater/mel-shapiro-dead.html
 **Congress Certified Trump’s Victory Without Disruption**\
 `Also, Trudeau said he would resign as Canada’s prime minister. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/01/06/briefing/congress-certification-trump-justin-trudeau-canada.html
-
-**Along With Snow, Winter Storm Brings Travel Disruptions**\
-`The winter storm caused thousands of flights and dozens of train trips to be delayed or canceled. At Ronald Reagan National Airport in Washington, all runways were closed Monday evening.`\
-https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
 
