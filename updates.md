@@ -1,3 +1,27 @@
+**Viola Davis and Ted Danson received honorary awards on Friday.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/viola-davis-and-ted-danson-received-honorary-awards-on-friday
+
+**2025 World Juniors standouts and disappointments: USA's top talent shines, Canada's falls short again**\
+`A look at which World Junior players stood out and who didn't over the last 10 days in Ottawa.`\
+https://nytimes.com/athletic/6038616/2025/01/05/world-juniors-hockey-2025-standouts/
+
+**Adrien Brody wins his first Globe.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/adrien-brody-wins-his-first-globe
+
+**What Raiders' Antonio Pierce needs to change if given a second season as head coach**\
+`If Pierce is going to keep his job for a second full season, his first order of business will be building a better offensive staff. `\
+https://nytimes.com/athletic/6040411/2025/01/05/raiders-head-coach-antonio-pierce-second-season-changes/
+
+**USA rallies past Finland in OT for second straight World Juniors gold**\
+`Team USA has repeated as champions for the first time in their history at the tournament.`\
+https://nytimes.com/athletic/6029876/2025/01/05/usa-finland-world-juniors-gold/
+
+**Antonio Pierce still has support of Raiders players amid uncertain future**\
+`The Raiders suffered through a 4-13 season, but owner Mark Davis cares what his players think. That could help Pierce reach Year 2.`\
+https://nytimes.com/athletic/6040257/2025/01/05/raiders-antonio-pierce-loss-chargers/
+
 **2025 World Juniors standouts and disappointments: USA's top talent shines, Canada's falls short again**\
 `A look at which World Junior players stood out and who didn't over the last 10 days in Ottawa.`\
 https://nytimes.com/athletic/6038616/2025/01/05/world-juniors-hockey-2025-standouts/
