@@ -1,3 +1,7 @@
+**West Ham technical director staying away from training ground**\
+`West Ham United technical director Tim Steidten is staying away from the club&#8217;s training ground as head coach Julen Lopetegui focuses on improving results.`\
+https://nytimes.com/athletic/6041213/2025/01/06/tim-steidten-west-ham-training-ground/
+
 **Leading trading card grader PSA to grow international operations**\
 `Top trading card grader announces international expansion of operations `\
 https://nytimes.com/athletic/6040347/2025/01/06/leading-trading-card-grader-psa-to-grow-operations-in-canada-europe-and-japan/

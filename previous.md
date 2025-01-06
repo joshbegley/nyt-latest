@@ -1,3 +1,7 @@
+**West Ham technical director staying away from training ground**\
+`West Ham United technical director Tim Steidten is staying away from the club&#8217;s training ground as head coach Julen Lopetegui focuses on improving results.`\
+https://nytimes.com/athletic/6041213/2025/01/06/tim-steidten-west-ham-training-ground/
+
 **Leading trading card grader PSA to grow international operations**\
 `Top trading card grader announces international expansion of operations `\
 https://nytimes.com/athletic/6040347/2025/01/06/leading-trading-card-grader-psa-to-grow-operations-in-canada-europe-and-japan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033197/2025/01/06/nfl-2025-mock-draft-first-round-
 **Nate McMillan, Scott Brooks and the infamous NBA brawl that's a part of JJ Redick's Lakers**\
 `Now top assistants for the Lakers, Nate McMillan and Scott Brooks have found they are linked by more than just a famous scuffle.`\
 https://nytimes.com/athletic/6027522/2025/01/06/lakers-jj-redick-nba-fight-brooks-mcmillan/
-
-**Predicting where the top 15 remaining MLB free agents will sign: Who lands Sasaki?**\
-`From Sasaki to Bregman to Santander and more, Jim Bowden runs through the top remaining free agents and predicts where each will sign.`\
-https://nytimes.com/athletic/6039098/2025/01/06/mlb-free-agents-team-signing-predictions/
 
