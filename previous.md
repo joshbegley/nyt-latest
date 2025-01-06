@@ -1,3 +1,11 @@
+**Penguins report cards: Rust, Rakell tops at midseason**\
+`Tristan Jarry barely receives a passing grade, but Rust and Rakell are excelling. `\
+https://nytimes.com/athletic/6032520/2025/01/06/penguins-report-cards-midseason/
+
+**Mobile-Home Lender Owned by Buffett Is Sued Over Risky Mortgages**\
+`A federal consumer bureau claims Vanderbilt Mortgage, owned by Berkshire Hathaway, made loans to buyers of manufactured homes it knew could not repay them.`\
+https://nytimes.com/2025/01/06/business/berkshire-hathaway-buffett-mortgages.html
+
 **Trudeau’s honeymoon with Canadians lasted only about two years.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/01/06/world/canada-trudeau/trudeaus-honeymoon-with-canadians-lasted-only-about-two-years
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancell
 **Seahawks fire OC Ryan Grubb after 1 season**\
 `Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
 https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
-
-**A Ballerina Prized for Her Musicality Deals With Hearing Loss**\
-`Sara Mearns, the New York City Ballet principal, announced her 10-year struggle on Instagram. She tested out her new hearing aids in “The Nutcracker.”`\
-https://nytimes.com/2025/01/06/arts/dance/sara-mearns-hearing-loss-ballerina.html
-
-**Ben Godfrey to Ipswich Town: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Ben Godfrey's loan move from Atalanta to Ipswich Town`\
-https://nytimes.com/athletic/6037141/2025/01/06/ben-godfrey-to-ipswich-town-the-athletic-500-transfer-ratings/
 

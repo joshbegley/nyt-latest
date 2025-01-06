@@ -1,3 +1,11 @@
+**Penguins report cards: Rust, Rakell tops at midseason**\
+`Tristan Jarry barely receives a passing grade, but Rust and Rakell are excelling. `\
+https://nytimes.com/athletic/6032520/2025/01/06/penguins-report-cards-midseason/
+
+**Mobile-Home Lender Owned by Buffett Is Sued Over Risky Mortgages**\
+`A federal consumer bureau claims Vanderbilt Mortgage, owned by Berkshire Hathaway, made loans to buyers of manufactured homes it knew could not repay them.`\
+https://nytimes.com/2025/01/06/business/berkshire-hathaway-buffett-mortgages.html
+
 **Seahawks fire OC Ryan Grubb after 1 season**\
 `Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
 https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
