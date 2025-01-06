@@ -1,3 +1,7 @@
+**The eternal Claudio Ranieri has turned Roma's expensive squad back into a team**\
+`Football, as a game, should have long passed Ranieri by - but the 73-year-old is rescuing his hometown club once again`\
+https://nytimes.com/athletic/6039441/2025/01/06/claudio-ranieri-roma-lazio-derby-win/
+
 **A bad day at the office for Trent Alexander-Arnold - but Liverpool still need him**\
 `Yes Alexander-Arnold struggled against United - but this wasn't the day to make sweeping judgements`\
 https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-struggles/
