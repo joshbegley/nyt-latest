@@ -1,3 +1,11 @@
+**Journalists at The Athletic Move to Join New York Times Union**\
+`The NewsGuild of New York asked The Times to voluntarily recognize journalists from the sports news website as part of the newsroom’s union.`\
+https://nytimes.com/2025/01/06/business/media/the-athletic-new-york-times-union.html
+
+**Recognized by U.S. as Venezuela’s President-Elect, Edmundo González Meets With Biden**\
+`The meeting was part of Mr. González’s international tour to drum up support for Venezuela’s opposition.`\
+https://nytimes.com/2025/01/06/world/americas/venezuela-opposition-edmundo-gonzalez-biden-dc.html
+
 **Riding with a New York City cabdriver on the first day of congestion pricing.**\
 `By Nate Schweber`\
 https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/riding-with-a-new-york-city-cabdriver-on-the-first-day-of-congestion-pricing
