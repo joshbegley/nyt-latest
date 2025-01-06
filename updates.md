@@ -1,3 +1,11 @@
+**Commanders again show fight as they lock up the No. 6 seed and set up rematch with Bucs**\
+`Washington finishes the season 12-5 with its win over Dallas and will travel to Tampa for a wild-card matchup vs. the Buccaneers. `\
+https://nytimes.com/athletic/6039823/2025/01/05/commanders-playoff-seeding-win-cowboys/
+
+**Demi Moore Caps Her Comeback With a Win at the Globes**\
+`She won the award for best actress in a musical or comedy for her role in the body horror film “The Substance.”`\
+https://nytimes.com/2025/01/05/movies/demi-moore-golden-globes-the-substance.html
+
 **Jerry Jones definitive in his stance to remain Cowboys GM: 'I bought an occupation'**\
 `Jerry Jones discussed being accountable for the roster the Cowboys put on the field as well as Will McClay's value to the Cowboys.`\
 https://nytimes.com/athletic/6039917/2025/01/05/cowboys-jerry-jones-decisions-mike-mccarthy/

@@ -14,12 +14,12 @@ https://nytimes.com/explain/2025/well/ultraprocessed-food-challenge
 `Today, you’ll go grocery shopping without leaving your seat.`\
 https://nytimes.com/2025/01/05/well/eat/ultraprocessed-foods-grocery-shopping.html
 
-**Commanders again show fight as they lock up 6 seed and set up rematch with Bucs**\
+**Commanders again show fight as they lock up the No. 6 seed and set up rematch with Bucs**\
 `Washington finishes the season 12-5 with its win over Dallas and will travel to Tampa for a wild-card matchup vs. the Buccaneers. `\
 https://nytimes.com/athletic/6039823/2025/01/05/commanders-playoff-seeding-win-cowboys/
 
-**Demi Moore caps her comeback with a win at the Globes.**\
-`By Esther Zuckerman`\
+**Demi Moore Caps Her Comeback With a Win at the Globes**\
+`She won the award for best actress in a musical or comedy for her role in the body horror film “The Substance.”`\
 https://nytimes.com/2025/01/05/movies/demi-moore-golden-globes-the-substance.html
 
 **Can You Spot Ultraprocessed Foods? Play Our Supermarket Game.**\
