@@ -1,3 +1,11 @@
+**Hamas Approves List of Hostages It May Free Under a Cease-Fire Deal With Israel**\
+`Israel says Hamas has not provided any information about the status of those 34 hostages, dampening any notion that the endorsement is a step toward a deal to stop the war.`\
+https://nytimes.com/2025/01/06/world/middleeast/israel-hamas-hostage-list-cease-fire.html
+
+**Tennis Briefing: Sabalenka's remarkable Australia record, retirements spoil finals**\
+`The world No. 1 continued her remarkable streak in Australia, while injury retirements spoiled matches just a week into the season`\
+https://nytimes.com/athletic/6038495/2025/01/06/aryna-sabalenka-tennis-record-australia/
+
 **Lakers' athleticism gap on display in loss to younger, more physical Rockets**\
 `Help may be on the way for the Lakers, as Dorian Finney-Smith takes on a bigger role, and Jarred Vanderbilt is close to his season debut.`\
 https://nytimes.com/athletic/6040815/2025/01/06/lakers-rockets-nba-athleticism/

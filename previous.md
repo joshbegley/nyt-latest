@@ -1,3 +1,7 @@
+**Hamas Approves List of Hostages It May Free Under a Cease-Fire Deal With Israel**\
+`Israel says Hamas has not provided any information about the status of those 34 hostages, dampening any notion that the endorsement is a step toward a deal to stop the war.`\
+https://nytimes.com/2025/01/06/world/middleeast/israel-hamas-hostage-list-cease-fire.html
+
 **Lakers' athleticism gap on display in loss to younger, more physical Rockets**\
 `Help may be on the way for the Lakers, as Dorian Finney-Smith takes on a bigger role, and Jarred Vanderbilt is close to his season debut.`\
 https://nytimes.com/athletic/6040815/2025/01/06/lakers-rockets-nba-athleticism/
@@ -12,7 +16,7 @@ https://nytimes.com/2025/01/06/business/media/golden-globes-politics.html
 
 **Tennis Briefing: Sabalenka's remarkable Australia record, retirements spoil finals**\
 `The world No. 1 continued her remarkable streak in Australia, while injury retirements spoiled matches just a week into the season`\
-https://nytimes.com/athletic/6038495/2025/01/06/aryna-sabalenkas-remarkable-australia-record-continues-injury-retirements-spoil-atp-wta-finals/
+https://nytimes.com/athletic/6038495/2025/01/06/aryna-sabalenka-tennis-record-australia/
 
 **What New York can learn from other cities that have congestion pricing.**\
 `London, Stockholm and Singapore offer clues of what to expect from the new tolling plan.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6041472/2025/01/06/wolves-transfers-emmanuel-agbado
 **Giants retaining coach Brian Daboll, GM Joe Schoen after 3-14 season**\
 `New York ended its disastrous season with a 20-13 defeat Sunday against a Philadelphia Eagles team resting its starters.`\
 https://nytimes.com/athletic/6041435/2025/01/06/giants-brian-daboll-joe-schoen-stay-coaches/
-
-**NBA Rewind: Making sense of the Jimmy Butler drama and previewing a monster week**\
-`Who's up and who's down in Zach Harper's latest stock report? And how about those Wemby-Joker showdowns?`\
-https://nytimes.com/athletic/6032543/2025/01/06/nba-rewind-jimmy-butler-heat-victor-wembanyama-spurs-nikola-jokic-nuggets/
 
