@@ -1,3 +1,7 @@
+**Best and Worst Moments From the 2025 Golden Globes**\
+`From Nikki Glaser’s monologue and wins for “Emilia Pérez” and “The Brutalist,” it was downhill to all those pharmaceutical ads.`\
+https://nytimes.com/2025/01/06/movies/golden-globes-best-worst-moments.html
+
 **Why the Patriots' head-coaching job is the best one available this offseason**\
 `Yes, the Patriots roster stinks. But there is a lot to like about the team's situation, from Drake Maye to its abundance of cap space.`\
 https://nytimes.com/athletic/6039936/2025/01/06/patriots-head-coaching-job-drake-maye/
