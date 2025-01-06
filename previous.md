@@ -1,3 +1,7 @@
+**The Athletic FC: How did Man Utd compete with Liverpool? North London anger, Ranieri's revival**\
+`Today in TAFC: Have Manchester United found a formula that works? Postecoglou anger and Ranieri's latest revival at Roma.`\
+https://nytimes.com/athletic/6041028/2025/01/06/manchester-united-liverpool-ugarte-roma-ranieri/
+
 **The Pulse: The NFL playoff bracket is set**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6040195/2025/01/06/nfl-week-18-playoff-seeding-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6040647/2025/01/06/bears-head-coaching-candidates-r
 **Sam Darnold will have to bounce back quickly for Vikings to have a chance in the playoffs**\
 `Darnold played poorly on Sunday night against the Lions. His resilience will determine the Vikings' postseason fate in the coming weeks.`\
 https://nytimes.com/athletic/6040922/2025/01/06/vikings-sam-darnold-lions-loss-playoffs/
-
-**Saquon Barkley missed Eric Dickerson's record, but even flirting with it is remarkable**\
-`Barkley didn't get another chance at topping 2,105 rushing yards, but he did match Dickerson's historic 1984 season in another area.`\
-https://nytimes.com/athletic/6040965/2025/01/06/saquon-barkley-eric-dickerson-record/
 
