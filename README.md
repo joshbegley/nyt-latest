@@ -1,3 +1,11 @@
+**Journalists at The Athletic Move to Join New York Times Union**\
+`The NewsGuild of New York asked The Times to voluntarily recognize journalists from the sports news website as part of the newsroom’s union.`\
+https://nytimes.com/2025/01/06/business/media/the-athletic-new-york-times-union.html
+
+**Recognized by U.S. as Venezuela’s President-Elect, Edmundo González Meets With Biden**\
+`The meeting was part of Mr. González’s international tour to drum up support for Venezuela’s opposition.`\
+https://nytimes.com/2025/01/06/world/americas/venezuela-opposition-edmundo-gonzalez-biden-dc.html
+
 **Riding with a New York City cabdriver on the first day of congestion pricing.**\
 `By Nate Schweber`\
 https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/riding-with-a-new-york-city-cabdriver-on-the-first-day-of-congestion-pricing
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6042045/2025/01/06/ap-basketball-top-25-rankings-ke
 **Commuters weigh new tolls against subway safety.**\
 `By Winnie Hu, Sean Piccoli and Nate Schweber`\
 https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/nyc-tolls-manhattan-subway-crime
-
-**Patriots owner Robert Kraft takes blame for Jerod Mayo's struggles**\
-`“The whole situation is on me,” Kraft said Monday, taking responsibility for putting the ex-coach in a position where he couldn't succeed.`\
-https://nytimes.com/athletic/6042119/2025/01/06/patriots-robert-kraft-jerod-mayo-firing/
-
-**Reds trade for Rangers reliever Owen White**\
-`White spent the majority of the 2024 season at Triple-A Round Rock, where he split time between the rotation and the bullpen.`\
-https://nytimes.com/athletic/6042131/2025/01/06/reds-trade-reliever-owen-white/
 
