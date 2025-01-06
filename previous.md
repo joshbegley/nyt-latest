@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6040509/2025/01/06/cavaliers-great-season-league-hi
 
 **Ilona Maher sprinkles her stardust on England - her new rugby team has had to find a bigger home stadium**\
 `With over eight million social media followers and a Reese Witherspoon production following her, Maher is attracting a global audience`\
-https://nytimes.com/athletic/6039472/2025/01/06/ilona-maher-bristol-bears-debut-reaction/
+https://nytimes.com/athletic/6039472/2025/01/06/ilona-maher-womens-rubgy-england-debut/
 
 **The M.T.A. Is Counting on Congestion Pricing to Fix Mass Transit**\
 `The money raised from tolls will be used for essential repairs to New York City’s subways and buses. Without the upgrades, the system risks a meltdown.`\

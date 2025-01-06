@@ -1,3 +1,7 @@
+**Ilona Maher sprinkles her stardust on England - her new rugby team has had to find a bigger home stadium**\
+`With over eight million social media followers and a Reese Witherspoon production following her, Maher is attracting a global audience`\
+https://nytimes.com/athletic/6039472/2025/01/06/ilona-maher-womens-rubgy-england-debut/
+
 **Lawyer Sues to Run for N.Y.C. Mayor on Independence Party Line**\
 `Jim Walden, who left the Democratic Party years ago, is challenging a law that bans the word “independence” on a ballot line.`\
 https://nytimes.com/2025/01/06/nyregion/jim-walden-lawsuit-nyc-mayor.html
