@@ -1,3 +1,15 @@
+**This Is What It Looks Like to Win a Golden Globe**\
+`Demi Moore, Adrien Brody, Zoe Saldaña and the stars of “Shogun” and “Baby Reindeer” enjoy their moments of glory.`\
+https://nytimes.com/2025/01/06/movies/golden-globes-winner-portraits.html
+
+**U.K.’s Starmer Slams ‘Lies and Misinformation’ After Elon Musk Attacks**\
+`Without naming Mr. Musk directly, Prime Minister Keir Starmer denounced the billionaire’s spreading of falsehoods about a child sex abuse scandal.`\
+https://nytimes.com/2025/01/06/world/europe/starmer-musk-uk-child-sexual-abuse.html
+
+**Wolves set to complete Agbadou signing from Reims**\
+`Wolverhampton Wanderers are set to complete the signing of centre-back Emmanuel Agbadou from Stade de Reims.`\
+https://nytimes.com/athletic/6041472/2025/01/06/wolves-transfers-emmanuel-agbadou/
+
 **Giants retaining coach Brian Daboll, GM Joe Schoen after 3-14 season**\
 `New York ended its disastrous season with a 20-13 defeat Sunday against a Philadelphia Eagles team resting its starters.`\
 https://nytimes.com/athletic/6041435/2025/01/06/giants-brian-daboll-joe-schoen-stay-coaches/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/06/business/dealbook/bezos-trump-amazon-melania.html
 **Lawyer Sues to Run for N.Y.C. Mayor on Independence Party Line**\
 `Jim Walden, who left the Democratic Party years ago, is challenging a law that bans the word “independence” on a ballot line.`\
 https://nytimes.com/2025/01/06/nyregion/jim-walden-lawsuit-nyc-mayor.html
-
-**Liverpool launch investigation into Anfield roof leak during Man United game**\
-`Liverpool are launching an investigation to discover the cause of roof leaks at Anfield during Sunday’s 2-2 draw with Manchester United.`\
-https://nytimes.com/athletic/6041363/2025/01/06/liverpool-anfield-roof-leak-manchester-united/
-
-**Revisiting 10 bold Blues predictions, plus 10 more for the second half of the season**\
-`With the Blues at the halfway point of their season, let's revisit our 10 preseason bold predictions and provide you with 10 more. `\
-https://nytimes.com/athletic/6034348/2025/01/06/blues-bold-predictions-revisited-2024-25/
-
-**Giants VP Randy Winn on player development: 'Teaching the ballgame' at the core**\
-`Winn wants to focus on game-readiness in player development and sees repetitions as key for players to get better.`\
-https://nytimes.com/athletic/6036675/2025/01/06/sf-giants-randy-winn-player-development/
 
