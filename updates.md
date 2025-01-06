@@ -1,3 +1,7 @@
+**Trent Alexander-Arnold’s first game since Real Madrid called was bad - but Liverpool still need him**\
+`Yes Alexander-Arnold struggled against United. But this wasn't the day to make sweeping judgements`\
+https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-real-madrid/
+
 **Major Winter Storm Moves to the Mid-Atlantic**\
 `A hazardous mix of snow, sleet and freezing rain will be unleashed on the Mid-Atlantic on Monday. It’s part of a storm system that moved across multiple states over the weekend.`\
 https://nytimes.com/2025/01/06/weather/winter-storm-snow-rain-forecast.html
