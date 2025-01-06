@@ -1,3 +1,7 @@
+**Word of the Day: centenary**\
+`This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/06/learning/word-of-the-day-centenary.html
+
 **The pass that encapsulated Manuel Ugarte's best display yet for Manchester United**\
 `As the one player in United’s squad who has worked with Amorim before, Ugarte’s value in this system is obvious - and it showed at Anfield`\
 https://nytimes.com/athletic/6040171/2025/01/06/manuel-ugarte-anfield-performance/
