@@ -1,3 +1,11 @@
+**Retooled Eagles look to prove themselves as Super Bowl contenders in postseason**\
+`The Eagles will first face the Packers, who they last saw in Sao Paulo in the season opener.`\
+https://nytimes.com/athletic/6038990/2025/01/05/eagles-win-postseason-depth-giants/
+
+**Nikki Glaser Delivers a Globes Monologue That Involved Some Revising**\
+`The host had been working on the jokes as well as the flow in multiple test runs in clubs. On the telecast, she introduced some new bits.`\
+https://nytimes.com/2025/01/05/movies/nikki-glaser-golden-globes-monologue.html
+
 **Pastrnak scores twice again. Bruins lose again. Where's the defense?**\
 `The Bruins earned a point after dropping three straight in regulation, but even Pastrnak's heroics couldn't get them the win.`\
 https://nytimes.com/athletic/6040342/2025/01/05/bruins-david-pastrnak-defense-islanders/
