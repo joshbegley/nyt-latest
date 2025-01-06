@@ -1,3 +1,7 @@
+**Kieran Culkin wins his second Globe in two years.**\
+`Culkin and`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/kieran-culkin-wins-his-second-globe-in-two-years
+
 **Biggest Bills questions heading into the postseason**\
 `The Bills will face the Broncos in the wild-card round.`\
 https://nytimes.com/athletic/6039860/2025/01/05/bills-josh-allen-postseason-questionsnto-the-postseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6038720/2025/01/05/dolphins-jets-score-result-takea
 **All eyes on GM Ryan Poles as the Bears' search for their next head coach begins**\
 `Once again, history is repeating itself in Chicago as Poles appears set to lead a coaching search as Ryan Pace did before him.`\
 https://nytimes.com/athletic/6039721/2025/01/05/bears-coach-search-ryan-poles/
-
-**Greenberg: Bears win in Green Bay? Now I've seen everything**\
-`Chicago's first win in Green Bay since Thanksgiving 2015 ended an 11-game losing streak to the Packers, longest in the rivalry's history. `\
-https://nytimes.com/athletic/6039758/2025/01/05/bears-packers-chicago-elusive-victory-column/
 
