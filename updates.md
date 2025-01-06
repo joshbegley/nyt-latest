@@ -1,4 +1,8 @@
 **Trent Alexander-Arnold’s first game since Real Madrid called was bad - but Liverpool still need him**\
+`Yes, Liverpool’s right-back struggled. But it’s more likely a bad day at the office than a sign that Alexander-Arnold's mind is elsewhere`\
+https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-real-madrid/
+
+**Trent Alexander-Arnold’s first game since Real Madrid called was bad - but Liverpool still need him**\
 `Yes Alexander-Arnold struggled against United. But this wasn't the day to make sweeping judgements`\
 https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-real-madrid/
 

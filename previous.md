@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/06/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/6039441/2025/01/06/claudio-ranieri-roma-lazio-derby-win/
 
 **Trent Alexander-Arnold’s first game since Real Madrid called was bad - but Liverpool still need him**\
-`Yes Alexander-Arnold struggled against United. But this wasn't the day to make sweeping judgements`\
+`Yes, Liverpool’s right-back struggled. But it’s more likely a bad day at the office than a sign that Alexander-Arnold's mind is elsewhere`\
 https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-real-madrid/
 
 **Word of the Day: centenary**\
