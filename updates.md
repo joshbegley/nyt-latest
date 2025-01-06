@@ -1,3 +1,11 @@
+**Critics fear congestion pricing could push traffic their way.**\
+`An environmental assessment from the Metropolitan Transportation Authority showed that the program could divert vehicles outside the tolling zone.`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/critics-fear-congestion-pricing-could-push-traffic-their-way
+
+**Pope Names Nun to Head a Vatican Department, a First for a Woman**\
+`Sister Simona Brambilla was appointed as the prefect of a Vatican office that oversees religious orders, but she may not be alone at the top.`\
+https://nytimes.com/2025/01/06/world/europe/pope-names-nun-to-head-a-vatican-department-a-first-for-a-woman.html
+
 **Tottenham, Man United exploring loan deal for Kolo Muani**\
 `Tottenham Hotspur and Manchester United are actively exploring a January deal to sign Randal Kolo Muani on loan from Paris Saint-Germain.`\
 https://nytimes.com/athletic/6041359/2025/01/06/manchester-united-kolo-muani-tottenham-transfer/

@@ -1,3 +1,11 @@
+**Critics fear congestion pricing could push traffic their way.**\
+`An environmental assessment from the Metropolitan Transportation Authority showed that the program could divert vehicles outside the tolling zone.`\
+https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/critics-fear-congestion-pricing-could-push-traffic-their-way
+
+**Pope Names Nun to Head a Vatican Department, a First for a Woman**\
+`Sister Simona Brambilla was appointed as the prefect of a Vatican office that oversees religious orders, but she may not be alone at the top.`\
+https://nytimes.com/2025/01/06/world/europe/pope-names-nun-to-head-a-vatican-department-a-first-for-a-woman.html
+
 **Tottenham, Man United exploring loan deal for Kolo Muani**\
 `Tottenham Hotspur and Manchester United are actively exploring a January deal to sign Randal Kolo Muani on loan from Paris Saint-Germain.`\
 https://nytimes.com/athletic/6041359/2025/01/06/manchester-united-kolo-muani-tottenham-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6041299/2025/01/06/wimbledon-tennis-expansion-campa
 **Ducks' creative Frank Vatrano extension marks their latest step toward relevancy**\
 `For the first time in a long time, the Ducks could be on their way out of rebuild mode. But they aren't quite there yet.`\
 https://nytimes.com/athletic/6040938/2025/01/06/ducks-nhl-rebuild-vatrano-contract/
-
-**NFL odds, schedule for Wild Card games: Ravens, Bills biggest first-round favorites**\
-`The NFL Wild Card games feature three days of action with two big favorites and a surprisingly close matchup on Monday Night.`\
-https://nytimes.com/athletic/6041761/2025/01/06/nfl-playoffs-odds-schedule-wild-card/
-
-**How Austria Could Get Its First Far-Right Chancellor Since World War II**\
-`The leader of the anti-immigration, pro-Russia Freedom Party has been given the chance to try to form a government after months of coalition talks among mainstream parties collapsed.`\
-https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancellor.html
 
