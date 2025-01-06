@@ -1,3 +1,7 @@
+**Lyall, Deehan, Olsen... Hurzeler and a 'disappointing feeling'**\
+`Fabian Hurzeler has turned Brighton into the division's draw specialists. They must start winning to maintain their push for Europe`\
+https://nytimes.com/athletic/6037661/2025/01/06/brighton-arsenal-draw-fabian-hurzeler/
+
 **Monday Briefing**\
 `The Jan. 6 riot, four years on.`\
 https://nytimes.com/2025/01/06/briefing/capitol-riot-israel-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6040507/2025/01/05/aaron-rodgers-jets-final-game-re
 **Chargers exact revenge against Raiders to claim fifth seed and head into playoffs**\
 `The Chargers haven't forgotten their ugly 63-21 loss in Las Vegas last season. Sunday's win had a cleansing effect.`\
 https://nytimes.com/athletic/6040550/2025/01/05/chargers-win-playoff-seed-raiders/
-
-**Seahawks hope win in finale, even if meaningless, helps lay foundation for future**\
-`The Seahawks have plenty to fix, but they believe in their coach and his vision. "You want to go to war with Mike," Ernest Jones said.`\
-https://nytimes.com/athletic/6040439/2025/01/05/seahawks-win-future-outlook-rams/
 
