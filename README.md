@@ -1,3 +1,11 @@
+**Giants retaining coach Brian Daboll, GM Joe Schoen after 3-14 season**\
+`New York ended its disastrous season with a 20-13 defeat Sunday against a Philadelphia Eagles team resting its starters.`\
+https://nytimes.com/athletic/6041435/2025/01/06/giants-brian-daboll-joe-schoen-stay-coaches/
+
+**NBA Rewind: Making sense of the Jimmy Butler drama and previewing a monster week**\
+`Who's up and who's down in Zach Harper's latest stock report? And how about those Wemby-Joker showdowns?`\
+https://nytimes.com/athletic/6032543/2025/01/06/nba-rewind-jimmy-butler-heat-victor-wembanyama-spurs-nikola-jokic-nuggets/
+
 **Jaguars fire coach Doug Pederson after 3 seasons**\
 `With a 22-29 record over three seasons, Pederson’s 42 percent win rate puts him as the third-best Jaguars coach in history.`\
 https://nytimes.com/athletic/5840239/2025/01/06/doug-pederson-fired-jaguars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6034348/2025/01/06/blues-bold-predictions-revisited
 **Giants VP Randy Winn on player development: 'Teaching the ballgame' at the core**\
 `Winn wants to focus on game-readiness in player development and sees repetitions as key for players to get better.`\
 https://nytimes.com/athletic/6036675/2025/01/06/sf-giants-randy-winn-player-development/
-
-**Live Updates: Congress Is Set to Certify Trump’s Victory as Memory of Riot Looms**\
-`A joint session of Congress is set to convene at 1 p.m. to perform a ritual that was considered ceremonial and uneventful before a mob of Trump supporters attacked the Capitol in 2021.`\
-https://nytimes.com/live/2025/01/06/us/trump-election-certification
-
-**The Cavaliers — at 31-4 — are echoing greats like the '16 Warriors, but don't tell them that**\
-`Cleveland's 35-game start is tied for fifth-best in NBA history. The 30-5 Thunder await in a huge showdown on Wednesday.`\
-https://nytimes.com/athletic/6040509/2025/01/06/cavaliers-great-season-league-history/
 
