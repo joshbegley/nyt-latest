@@ -1,3 +1,7 @@
+**Trump Seeks to Halt His Criminal Sentencing in New York**\
+`A Manhattan judge has already indicated that he will spare Donald J. Trump from jail time, but the president-elect is seeking to avoid the symbolic blow of the criminal proceeding.`\
+https://nytimes.com/2025/01/06/nyregion/trump-trial-sentencing-new-york.html
+
 **NFL head coach interview process: What to know about league policies, Rooney Rule**\
 `The New York Jets, Chicago Bears, New Orleans Saints, New England Patriots and Jacksonville Jaguars all have openings.`\
 https://nytimes.com/athletic/6034176/2025/01/06/nfl-head-coach-interview-process/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6040311/2025/01/06/bengals-defensive-coordinator-ca
 **What forced the Bengals to part ways with DC Lou Anarumo, O-line coach Frank Pollack**\
 `Failure to make the playoffs in a season of top-tier individual performances meant drastic changes needed to be made.`\
 https://nytimes.com/athletic/6040644/2025/01/06/bengals-fire-lou-anarumo-frank-pollack/
-
-**Here’s the latest on Canadian politics.**\
-`By Matina Stevis-Gridneff and Ian Austen`\
-https://nytimes.com/live/2025/01/06/world/canada-trudeau/justin-trudeau-resigns-canada-prime-minister
 
