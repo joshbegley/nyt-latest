@@ -1,3 +1,11 @@
+**Colts, Jim Irsay could have wiped slate clean. Here's why they chose continuity instead.**\
+`Frustrating though it may be, there's some logic behind the Colts sticking with Chris Ballard, Shane Steichen and Anthony Richardson. `\
+https://nytimes.com/athletic/6042652/2025/01/06/colts-jim-irsays-anthony-richardson-chris-ballard/
+
+**Buckley: Robert Kraft owns up for world to see ... Patriots aren't what they used to be**\
+`Kraft did the only thing he could do after the Jerod Mayo firing. He took blame for the "situation" and set out to fix his fallen franchise.`\
+https://nytimes.com/athletic/6042934/2025/01/06/patriots-robert-kraft-owner-takes-blame-jerod-mayo/
+
 **Buckley: Robert Kraft owns up for world to see ... Patriots aren't what they used to be**\
 `Kraft did the only thing he could do after Jerod Mayo firing. He took the blame for the "situation" and set out to fix his fallen franchise.`\
 https://nytimes.com/athletic/6042934/2025/01/06/patriots-robert-kraft-owner-takes-blame-jerod-mayo/

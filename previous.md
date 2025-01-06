@@ -1,5 +1,9 @@
+**Colts, Jim Irsay could have wiped slate clean. Here's why they chose continuity instead.**\
+`Frustrating though it may be, there's some logic behind the Colts sticking with Chris Ballard, Shane Steichen and Anthony Richardson. `\
+https://nytimes.com/athletic/6042652/2025/01/06/colts-jim-irsays-anthony-richardson-chris-ballard/
+
 **Buckley: Robert Kraft owns up for world to see ... Patriots aren't what they used to be**\
-`Kraft did the only thing he could do after Jerod Mayo firing. He took the blame for the "situation" and set out to fix his fallen franchise.`\
+`Kraft did the only thing he could do after the Jerod Mayo firing. He took blame for the "situation" and set out to fix his fallen franchise.`\
 https://nytimes.com/athletic/6042934/2025/01/06/patriots-robert-kraft-owner-takes-blame-jerod-mayo/
 
 **U.S. Envoy Says Israel Will Withdraw From Southern Lebanon**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/06/us/mike-rinder-dead-scientology-critic.html
 **Bears request permission to interview Cowboys coach Mike McCarthy**\
 `Dallas' exclusive negotiating window with McCarthy runs until Jan. 14. Will Jerry Jones let him interview or extend his deal?`\
 https://nytimes.com/athletic/6042775/2025/01/06/bears-interview-request-mike-mccarthy-cowboys-coach/
-
-**No drama: 49ers’ Brock Purdy hopes deal is done 'sooner rather than later'**\
-`Christian McCaffrey said Monday he's close to fully recovered from the knee injury that ended his season in snowy Buffalo.`\
-https://nytimes.com/athletic/6042803/2025/01/06/brock-purdy-49ers-contract-negotiations/
 
