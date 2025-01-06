@@ -1,3 +1,19 @@
+**Hollinger's Week That Was: Heat and Suns have 2025 hangovers, but they aren't alone**\
+`Teams partied hard with their draft picks the past few years, and now they're feeling the impact.`\
+https://nytimes.com/athletic/6040902/2025/01/06/jimmy-butler-heat-suns-bradley-beal-nba/
+
+**Nikki Glaser Kept Things Light (Mostly) at the Golden Globes**\
+`Taking on a hosting role with a strained past, the comedian won plaudits from critics and her comedy peers for her lightly bawdy jokes and Hollywood ribbing.`\
+https://nytimes.com/2025/01/06/movies/nikki-glaser-golden-globes.html
+
+**Arsenal's Nwaneri out for 'a few weeks' with injury - Arteta**\
+`Arsenal midfielder Ethan Nwaneri is set to be sidelined for &#8220;a few weeks&#8221; with a muscular injury sustained against Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/6038559/2025/01/06/arsenal-team-news-ethan-nwaneri/
+
+**What should the Flyers do to fix their goaltending problem? Exploring the options**\
+`Should the Flyers make a trade? Or just ride it out?`\
+https://nytimes.com/athletic/6041733/2025/01/06/flyers-goalies-fedotov-ersson/
+
 **Anchovies, Always**\
 `They go full stealth mode in my garlicky chicken with lemon-anchovy sauce, melting quietly into the pan sauce and enhancing the lemon and capers.`\
 https://nytimes.com/2025/01/06/dining/chicken-anchovy-sauce-dinner-recipe.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/06/us/politics/after-the-violence-of-2021-congress-o
 **Where in the World Do These Popular Detectives Solve Crimes?**\
 `Try this short quiz on investigators and inspectors cracking their cases around the globe.`\
 https://nytimes.com/interactive/2025/01/06/books/review/international-detective-novels.html
-
-**Ohio State's Will Howard hitting postseason stride: 'He runs this whole team'**\
-`The postseason has shown the best of Howard, who has thrown for 630 yards and five touchdowns through two CFP games.`\
-https://nytimes.com/athletic/6041617/2025/01/06/will-howard-ohio-state-cotton-bowl-college-football-playoff/
-
-**In Africa, Danger Slithers Through Homes and Fields**\
-`Venomous snakes bite millions of people each year, killing at least 120,000. Many of them are poor people in rural areas of Africa without easy access to treatment.`\
-https://nytimes.com/2025/01/06/health/in-africa-danger-slithers-through-homes-and-fields.html
-
-**With a home-state semifinal, Texas is the CFP's luckiest traveler**\
-`Every stadium the Longhorns have played in this postseason is one they’ve played in before.`\
-https://nytimes.com/athletic/6041358/2025/01/06/texas-cotton-bowl-college-football-playoff/
-
-**Trump Seeks to Halt His Criminal Sentencing in New York**\
-`A Manhattan judge has already indicated that he will spare Donald J. Trump from jail time, but the president-elect is seeking to avoid the symbolic blow of the criminal proceeding.`\
-https://nytimes.com/2025/01/06/nyregion/trump-trial-sentencing-new-york.html
 
