@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Heat and Suns dealing with hangovers, but they aren't alone**\
+`Teams partied hard with their draft picks the past few years, and now they're feeling the impact.`\
+https://nytimes.com/athletic/6040902/2025/01/06/jimmy-butler-heat-suns-bradley-beal-nba/
+
 **Hollinger's Week That Was: Heat and Suns have 2025 hangovers, but they aren't alone**\
 `Teams partied hard with their draft picks the past few years, and now they're feeling the impact.`\
 https://nytimes.com/athletic/6040902/2025/01/06/jimmy-butler-heat-suns-bradley-beal-nba/
