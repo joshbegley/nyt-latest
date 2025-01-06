@@ -1,3 +1,11 @@
+**Jaguars fire coach Doug Pederson after 3 seasons**\
+`With a 22-29 record over three seasons, Pederson’s 42 percent win rate puts him as the third-best Jaguars coach in history.`\
+https://nytimes.com/athletic/5840239/2025/01/06/doug-pederson-fired-jaguars/
+
+**The Worst Golden Globes Fashion Trend**\
+`Enough with the retro throwback nostalgia — Hollywood needs to be less conservative on the red carpet.`\
+https://nytimes.com/2025/01/06/style/golden-globes-worst-fashion.html
+
 **Intentional howl: An NBA game went to the dogs — 140 of them**\
 `If the Washington Wizards' experience is any guide, Hoops & Hounds night might become more prevalent in the NBA. `\
 https://nytimes.com/athletic/6040610/2025/01/06/washington-wizards-dog-night-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/06/us/trump-election-certification
 **The Cavaliers — at 31-4 — are echoing greats like the '16 Warriors, but don't tell them that**\
 `Cleveland's 35-game start is tied for fifth-best in NBA history. The 30-5 Thunder await in a huge showdown on Wednesday.`\
 https://nytimes.com/athletic/6040509/2025/01/06/cavaliers-great-season-league-history/
-
-**Ilona Maher sprinkles her stardust on England - her new rugby team has had to find a bigger home stadium**\
-`With over eight million social media followers and a Reese Witherspoon production following her, Maher is attracting a global audience`\
-https://nytimes.com/athletic/6039472/2025/01/06/ilona-maher-womens-rubgy-england-debut/
-
-**The M.T.A. Is Counting on Congestion Pricing to Fix Mass Transit**\
-`The money raised from tolls will be used for essential repairs to New York City’s subways and buses. Without the upgrades, the system risks a meltdown.`\
-https://nytimes.com/2025/01/06/nyregion/mta-congestion-pricing-money-subway-bus-repair.html
 
