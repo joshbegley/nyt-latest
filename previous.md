@@ -1,5 +1,5 @@
 **Along With Snow, Winter Storm Brings Travel Disruptions**\
-`Air and train travel were snarled by the winter storm, with thousands of flights and dozens of train trips delayed or canceled by Monday afternoon.`\
+`The winter storm caused thousands of flights and dozens of train trips to be delayed or canceled. At Ronald Reagan National Airport in Washington, all runways were closed Monday evening.`\
 https://nytimes.com/2025/01/06/travel/snow-winter-storm-flight-delays-trains.html
 
 **Rays 'support and expect' city to repair damage to Tropicana Field in time for 2026 season**\
