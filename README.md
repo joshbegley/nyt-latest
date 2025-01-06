@@ -1,3 +1,7 @@
+**A Trudeau Steps Out of Canada’s Boxing Ring. For Now.**\
+`Canadians have soured on his brand of progressivism, but voters are fickle.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/trudeau-canada-steps-down
+
 **First Bird Flu Death in U.S. Reported in Louisiana**\
 `The deceased was over 65 and had other medical conditions, state officials said.`\
 https://nytimes.com/2025/01/06/health/bird-flu-death-louisiana.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042434/2025/01/06/jake-mccabe-injury-reserve-rifai
 **Tuesday Briefing: Canada’s Prime Minister Is Stepping Down**\
 `Plus, a recap of the Golden Globes.`\
 https://nytimes.com/2025/01/06/briefing/canada-trudeau-ukraine-russia-guantanamo.html
-
-**Here Are Four Possible Contenders to Succeed Justin Trudeau**\
-`Whoever replaces Mr. Trudeau as the leader of Canada’s Liberal Party will become the prime minister. Not long after they’ll face a general election, and the daunting challenge of keeping the job.`\
-https://nytimes.com/2025/01/06/world/canada/justin-trudeau-replacement.html
 
