@@ -1,3 +1,7 @@
+**A bad day at the office for Trent Alexander-Arnold - but Liverpool still need him**\
+`Yes Alexander-Arnold struggled against United - but this wasn't the day to make sweeping judgements`\
+https://nytimes.com/athletic/6038436/2025/01/06/trent-alexander-arnold-manchester-united-struggles/
+
 **Word of the Day: centenary**\
 `This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/06/learning/word-of-the-day-centenary.html
