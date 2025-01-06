@@ -1,3 +1,15 @@
+**Trudeau’s honeymoon with Canadians lasted only about two years.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/01/06/world/canada-trudeau/trudeaus-honeymoon-with-canadians-lasted-only-about-two-years
+
+**The ‘Darkest Day’: The Trauma of Jan. 6 Is Still With Us**\
+`Readers discuss a guest essay by a former Capitol Police officer and news articles. Also: Health coverage woes; investing in science education.`\
+https://nytimes.com/2025/01/06/opinion/jan-6-trump.html
+
+**Scoop City: 24-hour NFL coaching roundup**\
+`A quick look at the status of coaches and general managers across the NFL, plus a playoff preview.`\
+https://nytimes.com/athletic/6042020/2025/01/06/coaches-fired-retained-nfl-black-monday-scoop-city/
+
 **Campaign group starts legal action against Wimbledon tennis expansion**\
 `Save Wimbledon Park is challenging the Mayor of London's office decision to award planning permission for 39 new courts.`\
 https://nytimes.com/athletic/6041299/2025/01/06/wimbledon-tennis-expansion-campaign-legal/
