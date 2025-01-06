@@ -1,3 +1,7 @@
+**Elon Musk Hijacks U.K. Politics in Favor of the Far Right**\
+`With 211 million followers on social media, the multibillionaire seems intent on using his global platform to rattle British politics.`\
+https://nytimes.com/2025/01/06/world/europe/uk-elon-musk-far-right.html
+
 **When a Bryce Eldridge trade would make sense for the Giants, and why it isn't now**\
 `The Giants reportedly turned down trades that would have included Eldridge. So, when would a good time be to deal a top prospect?`\
 https://nytimes.com/athletic/6041969/2025/01/06/sf-giants-bryce-eldridge-trade-scenarios/
