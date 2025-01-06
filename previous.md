@@ -1,3 +1,7 @@
+**The Pulse: The NFL playoff bracket is set**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6040195/2025/01/06/nfl-week-18-playoff-seeding-the-pulse/
+
 **Chelsea consider Chalobah recall from Palace amid defensive injury issues**\
 `Chelsea could trigger their option to recall defender Trevoh Chalobah from his season-long loan spell at Crystal Palace this month.`\
 https://nytimes.com/athletic/6041025/2025/01/06/chelsea-trevoh-chalobah-recall-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6040922/2025/01/06/vikings-sam-darnold-lions-loss-p
 **Saquon Barkley missed Eric Dickerson's record, but even flirting with it is remarkable**\
 `Barkley didn't get another chance at topping 2,105 rushing yards, but he did match Dickerson's historic 1984 season in another area.`\
 https://nytimes.com/athletic/6040965/2025/01/06/saquon-barkley-eric-dickerson-record/
-
-**Is Joe Burrow on the Carson Palmer frustration train, or is this a temporary setback?**\
-`After the Bengals wasted his best season, Burrow is starting to grow more vocal about the team's direction.`\
-https://nytimes.com/athletic/6040855/2025/01/06/joe-burrow-carson-palmer-bengals/
 

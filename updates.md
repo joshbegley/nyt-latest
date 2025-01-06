@@ -1,3 +1,7 @@
+**The Pulse: The NFL playoff bracket is set**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6040195/2025/01/06/nfl-week-18-playoff-seeding-the-pulse/
+
 **Chelsea consider Chalobah recall from Palace amid defensive injury issues**\
 `Chelsea could trigger their option to recall defender Trevoh Chalobah from his season-long loan spell at Crystal Palace this month.`\
 https://nytimes.com/athletic/6041025/2025/01/06/chelsea-trevoh-chalobah-recall-crystal-palace/
