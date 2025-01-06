@@ -1,3 +1,11 @@
+**How Austria Could Get Its First Far-Right Chancellor Since World War II**\
+`The leader of the anti-immigration, pro-Russia Freedom Party has been given the chance to try to form a government after months of coalition talks among mainstream parties collapsed.`\
+https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancellor.html
+
+**Seahawks fire OC Ryan Grubb after one season: Reports**\
+`Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
+https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
+
 **A Ballerina Prized for Her Musicality Deals With Hearing Loss**\
 `Sara Mearns, the New York City Ballet principal, announced her 10-year struggle on Instagram. She tested out her new hearing aids in “The Nutcracker.”`\
 https://nytimes.com/2025/01/06/arts/dance/sara-mearns-hearing-loss-ballerina.html

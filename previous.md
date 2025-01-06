@@ -1,3 +1,11 @@
+**How Austria Could Get Its First Far-Right Chancellor Since World War II**\
+`The leader of the anti-immigration, pro-Russia Freedom Party has been given the chance to try to form a government after months of coalition talks among mainstream parties collapsed.`\
+https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancellor.html
+
+**Seahawks fire OC Ryan Grubb after one season: Reports**\
+`Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
+https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
+
 **A Ballerina Prized for Her Musicality Deals With Hearing Loss**\
 `Sara Mearns, the New York City Ballet principal, announced her 10-year struggle on Instagram. She tested out her new hearing aids in “The Nutcracker.”`\
 https://nytimes.com/2025/01/06/arts/dance/sara-mearns-hearing-loss-ballerina.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5992337/2025/01/06/crystal-palace-takeover-john-tex
 **Trudeau was left in a weakened position with a political brand that no longer worked.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/01/06/world/canada-trudeau/trudeau-was-left-in-a-weaken-position-with-a-political-brand-no-longer-worked
-
-**Jazz are walking the fine line between development and improving their draft position**\
-`While they are angling to get a top pick in the 2025 NBA Draft, the Jazz also want that player to arrive at a stable, improving environment.`\
-https://nytimes.com/athletic/6040387/2025/01/06/jazz-winning-nba-draft/
-
-**Brick by brick, Dan Campbell and Lions' 'core' laid groundwork for historic moment**\
-`Leaning into their identity on both sides of the ball, Campbell's Lions secured a "legacy" win over the Vikings in Week 18.`\
-https://nytimes.com/athletic/6041384/2025/01/06/detroit-lions-dan-campbell-nfc-north/
 
