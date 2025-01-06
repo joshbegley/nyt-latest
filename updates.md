@@ -1,3 +1,11 @@
+**Packers' Christian Watson suffers torn ACL, out for playoffs: Reports**\
+`Third-year wide receiver has been Green Bay's biggest game-breaking pass catcher and posted an average of 21.4 yards per catch in 2024.`\
+https://nytimes.com/athletic/6042066/2025/01/06/christian-watson-acl-knee-injury-packers-playoffs/
+
+**AP men’s basketball Top 25: Illinois, Kentucky surge up rankings**\
+`Illinois was the week's biggest riser, jumping nine spots from No. 22 to No. 13 after sweeping a West Coast swing.`\
+https://nytimes.com/athletic/6042045/2025/01/06/ap-basketball-top-25-rankings-kentucky-illinois/
+
 **Commuters weigh new tolls against subway safety.**\
 `By Winnie Hu, Sean Piccoli and Nate Schweber`\
 https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/nyc-tolls-manhattan-subway-crime
