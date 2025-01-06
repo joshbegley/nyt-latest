@@ -1,3 +1,7 @@
+**Al-Assad Is Out, but So Is a Revered Queen: Textbook Changes Unsettle Syrians**\
+`Syria’s new government has swiftly ordered changes to school curriculums. Some Syrians say the move is a worrying sign of how the former rebels plans to govern a diverse country.`\
+https://nytimes.com/2025/01/06/world/middleeast/syria-government-school-changes.html
+
 **Elon Musk Hijacks U.K. Politics in Favor of the Far Right**\
 `With 211 million followers on social media, the multibillionaire seems intent on using his global platform to rattle British politics.`\
 https://nytimes.com/2025/01/06/world/europe/uk-elon-musk-far-right.html

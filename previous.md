@@ -1,3 +1,7 @@
+**Al-Assad Is Out, but So Is a Revered Queen: Textbook Changes Unsettle Syrians**\
+`Syria’s new government has swiftly ordered changes to school curriculums. Some Syrians say the move is a worrying sign of how the former rebels plans to govern a diverse country.`\
+https://nytimes.com/2025/01/06/world/middleeast/syria-government-school-changes.html
+
 **Elon Musk Hijacks U.K. Politics in Favor of the Far Right**\
 `With 211 million followers on social media, the multibillionaire seems intent on using his global platform to rattle British politics.`\
 https://nytimes.com/2025/01/06/world/europe/uk-elon-musk-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/06/nyregion/congestion-pricing-nyc-new-jersey/a
 **Azerbaijani Anger Over Plane Crash Grows, in Deepening Schism With Russia**\
 `In the crash’s aftermath, Azerbaijan has unleashed rare and stinging criticism of Russia, with the country’s president saying Moscow’s response has caused “surprise, regret and rightful indignation.”`\
 https://nytimes.com/2025/01/06/world/europe/azerbaijan-plane-crash-russia-criticism.html
-
-**‘Forever Chemicals’ Reach Tap Water via Treated Sewage, Study Finds**\
-`Wastewater, even after treatment to make it drinkable, contains high levels of PFAS, according to researchers.`\
-https://nytimes.com/2025/01/06/climate/forever-chemicals-pfas-sewage-drinking-water.html
 
