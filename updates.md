@@ -1,3 +1,19 @@
+**The Well Challenge: 5 Days to Happier, Healthier Eating**\
+`These simple tips will set you up for a delicious year.`\
+https://nytimes.com/explain/2025/well/ultraprocessed-food-challenge
+
+**Day 1: How Often Do You Buy Ultraprocessed Foods?**\
+`Today, you’ll go grocery shopping without leaving your seat.`\
+https://nytimes.com/2025/01/05/well/eat/ultraprocessed-foods-grocery-shopping.html
+
+**Commanders again show fight as they lock up 6 seed and set up rematch with Bucs**\
+`Washington finishes the season 12-5 with its win over Dallas and will travel to Tampa for a wild-card matchup vs. the Buccaneers. `\
+https://nytimes.com/athletic/6039823/2025/01/05/commanders-playoff-seeding-win-cowboys/
+
+**Demi Moore caps her comeback with a win at the Globes.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/demi-moore-caps-her-comeback-with-a-win-at-the-globes
+
 **Can You Spot Ultraprocessed Foods? Play Our Supermarket Game.**\
 `Take a virtual shopping trip to learn more about what’s on grocery store shelves.`\
 https://nytimes.com/interactive/2025/01/05/well/eat/ultraprocessed-foods-challenge-quiz.html
