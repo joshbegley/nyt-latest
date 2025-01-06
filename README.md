@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6041420/2025/01/06/spurs-road-trip-victor-wembanyam
 https://nytimes.com/athletic/6041606/2025/01/06/clemson-wes-goodwin-defensive-coordinator-dabo-swinney/
 
 **Canucks notebook: Quinn Hughes' return, Danton Heinen's fit and a tough month ahead**\
-`The Canucks have struggled since he holiday break. Returning stars should help as the schedule turns difficult. `\
+`The Canucks have struggled since the holiday break. Returning stars should help as the schedule turns difficult. `\
 https://nytimes.com/athletic/6040887/2025/01/06/canucks-quinn-hughes-injury-january/
 
 **The Bounce: Victor Wembanyama, Nikola Jokić starred in a wild NBA weekend**\
