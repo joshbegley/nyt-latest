@@ -1,3 +1,11 @@
+**Cardinals top 49ers in season finale 47-24 as Murray shines: Takeaways**\
+`Arizona (8-9) pulled away from a close game with three fourth-quarter touchdown drives.`\
+https://nytimes.com/athletic/6038700/2025/01/05/49ers-cardinals-score-result-takeaways/
+
+**Hideki Matsuyama sets PGA Tour record with Sentry win**\
+`Matsuyama shot 35-under-par at the Hawaii course, known for its wide fairways and favorable conditions.`\
+https://nytimes.com/athletic/6039947/2025/01/05/hideki-matsuyama-pga-tour-record-score-sentry/
+
 **Will a top QB be there for Giants to draft at No. 3? Are Brian Daboll, Joe Schoen safe?**\
 `The two teams picking ahead of Giants in the NFL Draft, the Titans and the Browns, could each use a quarterback, too. `\
 https://nytimes.com/athletic/6039703/2025/01/05/giants-qb-2025-nfl-draft-pick-brian-daboll-joe-schoen/
