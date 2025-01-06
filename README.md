@@ -1,3 +1,7 @@
+**Tottenham, Man United exploring loan deal for Kolo Muani**\
+`Tottenham Hotspur and Manchester United are actively exploring a January deal to sign Randal Kolo Muani on loan from Paris Saint-Germain.`\
+https://nytimes.com/athletic/6041359/2025/01/06/manchester-united-kolo-muani-tottenham-transfer/
+
 **Penguins report cards: Rust, Rakell tops at midseason**\
 `Tristan Jarry barely receives a passing grade, but Rust and Rakell are excelling. `\
 https://nytimes.com/athletic/6032520/2025/01/06/penguins-report-cards-midseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6041761/2025/01/06/nfl-playoffs-odds-schedule-wild-
 **How Austria Could Get Its First Far-Right Chancellor Since World War II**\
 `The leader of the anti-immigration, pro-Russia Freedom Party has been given the chance to try to form a government after months of coalition talks among mainstream parties collapsed.`\
 https://nytimes.com/2025/01/06/world/europe/austria-coalition-far-right-chancellor.html
-
-**Seahawks fire OC Ryan Grubb after 1 season**\
-`Seattle's offense ranked 18th in the league in points averaging 22.1 points per game.`\
-https://nytimes.com/athletic/6041981/2025/01/06/ryan-grubb-fired-seahawks-oc/
 
