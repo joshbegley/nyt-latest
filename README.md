@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-the-latest
+
 **The battle of the pop stars.**\
 `By Stephanie Goodman`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/ariana-grande-selena-gomez-golden-globes
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6034286/2025/01/05/jerod-mayo-one-and-done-nfl-head
 **Where have you gone, Andrew Shaw? Lifeless Blackhawks in dire need of a sparkplug**\
 `In Colton Dach's debut, he played with energy and determination despite lack of NHL experience. The Blackhawks need more of that attitude.`\
 https://nytimes.com/athletic/6039745/2025/01/05/blackhawks-sparkplug-energy-rangers/
-
-**Go deeper on the six films vying to win best picture in the musical or comedy category.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/01/05/arts/golden-globes/nominees-musical-comedy
 
