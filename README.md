@@ -1,3 +1,11 @@
+**Geno Smith throws 4 TD passes in Seahawks' 30-25 win over Rams: Takeaways**\
+`Rams are the No. 4 seed in the NFC and will face the loser of Sunday Night's Detroit Lions vs. Minnesota Vikings game`\
+https://nytimes.com/athletic/6038714/2025/01/05/seahawks-rams-score-result-takeaways/
+
+**Bucs' path to NFC South title wasn't easy. Will that fortitude help in playoffs?**\
+`The Bucs had to rally Sunday to beat the Saints and secure the NFC's last playoff spot. “It all makes you stronger,” Todd Bowles said.`\
+https://nytimes.com/athletic/6039779/2025/01/05/bucs-nfc-south-champions-playoffs/
+
 **Kieran Culkin wins his second Globe in two years.**\
 `Culkin and`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/kieran-culkin-wins-his-second-globe-in-two-years
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/05/podcasts/how-to-win-friends-and-influence-people-
 **'We got our guy': Bryce Young and the Panthers go into the offseason on high note**\
 `Young joined Cam Newton and Steve Beuerlein as the only quarterbacks in franchise history to account for five TDs in a game.`\
 https://nytimes.com/athletic/6039857/2025/01/05/bryce-young-carolina-panthers-win-falcons/
-
-**Rodgers throws 4 TDs in possible final game with New York as Jets top Dolphins 32-20: Takeaways**\
-`Denver's win eliminates Miami from playoff race, while the Jets head into an offseason that will see a lot of change.`\
-https://nytimes.com/athletic/6038720/2025/01/05/dolphins-jets-score-result-takeaways/
-
-**All eyes on GM Ryan Poles as the Bears' search for their next head coach begins**\
-`Once again, history is repeating itself in Chicago as Poles appears set to lead a coaching search as Ryan Pace did before him.`\
-https://nytimes.com/athletic/6039721/2025/01/05/bears-coach-search-ryan-poles/
 
