@@ -1,3 +1,11 @@
+**Kyrie Irving out at least 1-2 weeks with bulging disc in his back**\
+`Irving's absence comes after the Mavericks already lost Luka Dončić to a left calf strain.`\
+https://nytimes.com/athletic/6042459/2025/01/06/kyrie-irving-injury-back-status-update-mavericks/
+
+**A calm offseason in Charlotte for a change. Panthers' players say stability will be good**\
+`"The sky’s the limit, in my eyes,” said Panthers cornerback Jaycee Horn, who added that the team now has direction.`\
+https://nytimes.com/athletic/6042304/2025/01/06/panthers-offseason-stability-dave-canales-bryce-young/
+
 **U.S. Sends 11 Guantánamo Prisoners to Oman to Start New Lives**\
 `The secret mission left the smallest number of prisoners at Guantánamo Bay since the day the detention center opened in 2002.`\
 https://nytimes.com/2025/01/06/us/politics/guantanamo-prisoners-oman.html
@@ -12,7 +20,7 @@ https://nytimes.com/2025/01/06/world/americas/trudeau-prime-minister-to-resign.h
 
 **‘The Brutalist’ Won Big at the Golden Globes. But How Can You See It?**\
 `Interested in watching the three-and-a-half-hour epic about a fictional Hungarian architect? Good luck if you don’t live in New York or Los Angeles.`\
-https://nytimes.com/2025/01/06/movies/how-to-watch-the-brutalist.html
+https://nytimes.com/2025/01/06/movies/the-brutalist-where-how-to-watch.html
 
 **Sir Alex Ferguson led tributes at funeral of Kath Phipps: 'She was a real United person'**\
 `David Beckham and Ruben Amorim among those at receptionist's funeral`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/world/europe/uk-elon-musk-far-right.html
 **When a Bryce Eldridge trade would make sense for the Giants, and why it isn't now**\
 `The Giants reportedly turned down trades that would have included Eldridge. So, when would a good time be to deal a top prospect?`\
 https://nytimes.com/athletic/6041969/2025/01/06/sf-giants-bryce-eldridge-trade-scenarios/
-
-**Padres owner's widow, Sheel Seidler, sues his brothers for control of team**\
-`Sheel Seidler claimed that Matt and Bob Seidler breached their fiduciary duties as executors of Peter Seidler's estate.`\
-https://nytimes.com/athletic/6042327/2025/01/06/padres-peter-seidler-widow-lawsuit/
-
-**A Timeline of Justin Trudeau’s Rise and Fall**\
-`The Canadian prime minister, who said on Monday he would step down, has spent a quarter-century in the political spotlight.`\
-https://nytimes.com/2025/01/06/world/canada/justin-trudeau-timeline-canada.html
 

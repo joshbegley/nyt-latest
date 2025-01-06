@@ -1,3 +1,11 @@
+**U.S. Sends 11 Guantánamo Prisoners to Oman to Start New Lives**\
+`The secret mission left the smallest number of prisoners at Guantánamo Bay since the day the detention center opened in 2002.`\
+https://nytimes.com/2025/01/06/us/politics/guantanamo-prisoners-oman.html
+
+**Arthur Kaliyev claimed by Rangers — What are they getting? What went wrong in L.A.?**\
+`The Rangers now get the opportunity to bring the best out of a skilled player with question marks.`\
+https://nytimes.com/athletic/6042252/2025/01/06/kaliyev-rangers-kings-waivers/
+
 **Trudeau to Resign as Canada’s Prime Minister: ‘It’s Time for a Reset’**\
 `Justin Trudeau announced Monday that he was also stepping down as leader of Canada’s Liberal Party. He will remain in both roles until a replacement is chosen.`\
 https://nytimes.com/2025/01/06/world/americas/trudeau-prime-minister-to-resign.html
