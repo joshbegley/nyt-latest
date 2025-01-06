@@ -1,3 +1,11 @@
+**Bo Nix, Broncos blank Chiefs 38-0 to clinch playoff date with Bills: Takeaways**\
+`Nix's record-setting day included 18 straight completions and a career-high 321 passing yards.`\
+https://nytimes.com/athletic/6038709/2025/01/05/broncos-chiefs-score-result-takeaways/
+
+**Why Is Ariana Grande a Supporting Nominee When Her ‘Wicked’ Role Is a Lead?**\
+`The pop star plays Glinda in the film, while Cynthia Erivo, who plays Elphaba, is nominated as the lead.`\
+https://nytimes.com/2025/01/05/movies/ariana-grande-wicked-golden-globes-supporting.html
+
 **Here’s the latest.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6035603/2025/01/05/netflix-wwe-raw-interview/
 **It’s a ‘Succession’ reunion (kind of).**\
 `By Stephanie Goodman`\
 https://nytimes.com/live/2025/01/05/arts/golden-globes/its-a-succession-reunion-kind-of
-
-**Jerod Mayo becomes the latest one-and-done NFL head coach after Patriots firing**\
-`Mayo is the 13th head coach in 14 years to be fired after just one season in charge.`\
-https://nytimes.com/athletic/6034286/2025/01/05/jerod-mayo-one-and-done-nfl-head-coach-firings/
-
-**Where have you gone, Andrew Shaw? Lifeless Blackhawks in dire need of a sparkplug**\
-`In Colton Dach's debut, he played with energy and determination despite lack of NHL experience. The Blackhawks need more of that attitude.`\
-https://nytimes.com/athletic/6039745/2025/01/05/blackhawks-sparkplug-energy-rangers/
 
