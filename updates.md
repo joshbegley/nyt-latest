@@ -1,3 +1,15 @@
+**Historians’ Group Votes to Condemn ‘Scholasticide’ in Gaza**\
+`After contentious debate, members of the American Historical Association voted to condemn what a resolution described as Israel’s destruction of Gaza’s educational system.`\
+https://nytimes.com/2025/01/06/arts/historians-gaza-israel-education.html
+
+**Maple Leafs' Jake McCabe placed on IR after hitting head on ice**\
+`Defenceman out for at least a week. Marshall Rifai recalled from the AHL's Marlies.`\
+https://nytimes.com/athletic/6042434/2025/01/06/jake-mccabe-injury-reserve-rifai/
+
+**Tuesday Briefing: Canada’s Prime Minister Is Stepping Down**\
+`Plus, a recap of the Golden Globes.`\
+https://nytimes.com/2025/01/06/briefing/canada-trudeau-ukraine-russia-guantanamo.html
+
 **Here Are Four Possible Contenders to Succeed Justin Trudeau**\
 `Whoever replaces Mr. Trudeau as the leader of Canada’s Liberal Party will become the prime minister. Not long after they’ll face a general election, and the daunting challenge of keeping the job.`\
 https://nytimes.com/2025/01/06/world/canada/justin-trudeau-replacement.html
