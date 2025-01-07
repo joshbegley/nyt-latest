@@ -1,3 +1,19 @@
+**U.S. Presses for Release of Americans Held in Afghanistan**\
+`The White House has discussed a possible swap with the Taliban for a prisoner at Guantánamo Bay, according to people familiar with the matter.`\
+https://nytimes.com/2025/01/07/us/politics/american-hostages-taliban-afghanistan.html
+
+**A.I. Start-Up Anthropic Is in Talks That Could Value It at $60 Billion**\
+`The financing efforts follow new funding rounds by Elon Musk’s xAI and the market leader, OpenAI, which is now valued at $157 billion.`\
+https://nytimes.com/2025/01/07/technology/anthropic-ai-funding.html
+
+**Until Saturday: Bison back on top, plus Final 4's mascot breakdown**\
+`Welcome to Until Saturday, the five-star college football newsletter: What are our predictions for college football in 2025?`\
+https://nytimes.com/athletic/6043821/2025/01/07/north-dakota-state-fcs-college-football-playoff-until-saturday/
+
+**‘The Pitt’ Isn’t an ‘ER’ Reboot, Despite First Appearances**\
+`Its creative team includes “ER” alumni, and it is a hospital drama starring Noah Wyle. But it is doing its own thing (and is sometimes very good).`\
+https://nytimes.com/2025/01/07/arts/television/the-pitt-max-er-noah-wyle.html
+
 **Disaster by the Numbers: The Crisis in Sudan**\
 `The United States just formally declared that genocide has taken place in the northeast African nation, but the calamity there dates back decades.`\
 https://nytimes.com/2025/01/07/world/africa/sudan-genocide-numbers.html

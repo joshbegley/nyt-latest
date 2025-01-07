@@ -1,3 +1,19 @@
+**U.S. Presses for Release of Americans Held in Afghanistan**\
+`The White House has discussed a possible swap with the Taliban for a prisoner at Guantánamo Bay, according to people familiar with the matter.`\
+https://nytimes.com/2025/01/07/us/politics/american-hostages-taliban-afghanistan.html
+
+**A.I. Start-Up Anthropic Is in Talks That Could Value It at $60 Billion**\
+`The financing efforts follow new funding rounds by Elon Musk’s xAI and the market leader, OpenAI, which is now valued at $157 billion.`\
+https://nytimes.com/2025/01/07/technology/anthropic-ai-funding.html
+
+**Until Saturday: Bison back on top, plus Final 4's mascot breakdown**\
+`Welcome to Until Saturday, the five-star college football newsletter: What are our predictions for college football in 2025?`\
+https://nytimes.com/athletic/6043821/2025/01/07/north-dakota-state-fcs-college-football-playoff-until-saturday/
+
+**‘The Pitt’ Isn’t an ‘ER’ Reboot, Despite First Appearances**\
+`Its creative team includes “ER” alumni, and it is a hospital drama starring Noah Wyle. But it is doing its own thing (and is sometimes very good).`\
+https://nytimes.com/2025/01/07/arts/television/the-pitt-max-er-noah-wyle.html
+
 **Disaster by the Numbers: The Crisis in Sudan**\
 `The United States just formally declared that genocide has taken place in the northeast African nation, but the calamity there dates back decades.`\
 https://nytimes.com/2025/01/07/world/africa/sudan-genocide-numbers.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/07/style/denmark-coat-of-arms-trump-greenland.html
 **Celebrities Flee Their Homes as Fire Forces More Evacuations**\
 `Some residents shared photos of the smoke and flames enveloping Pacific Palisades. One actor jumped in to help with the evacuation effort.`\
 https://nytimes.com/2025/01/07/us/celebrities-flee-homes-fire-evacuations.html
-
-**Los Angeles Fires Force Thousands to Evacuate**\
-`Also, Trump suggested expanding the U.S. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/01/07/briefing/los-angeles-fires-trump-greenland-52-places.html
-
-**In Israeli Video, Detainee Says Hamas Operates Out of Gaza Hospital**\
-`Facing international condemnation and pressure to free the chief of Kamal Adwan Hospital, Israel released a brief interrogation video backing up its claim that militants used the hospital as a base.`\
-https://nytimes.com/2025/01/07/world/middleeast/kamal-adwan-hospital-hamas-video.html
-
-**For a Few Weeks, Bangkok Feels a Bit Like Venice**\
-`There is engaging artwork throughout the city during the biennale.`\
-https://nytimes.com/live/2025/01/02/opinion/thepoint/bangkok-art-biennale
-
-**What Trudeau’s Resignation Means for Canada**\
-`By suspending Parliament and promising to resign, the prime minister bought the Liberals time. But Canada will now face Donald Trump with a lame duck in charge.`\
-https://nytimes.com/video/world/canada/100000009911176/what-trudeaus-resignation-means-for-canada.html
 
