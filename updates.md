@@ -1,3 +1,7 @@
+**There will be two funerals on Thursday.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/there-will-be-two-funerals-on-thursday
+
 **Celebrities Flee Their Homes as Fire Forces More Evacuations**\
 `Some residents shared photos of the smoke and flames enveloping Pacific Palisades. One actor jumped in to help with the evacuation effort.`\
 https://nytimes.com/2025/01/07/us/celebrities-flee-homes-fire-evacuations.html
