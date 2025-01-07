@@ -1,3 +1,7 @@
+**Taiwan Says It Suspects a Chinese-Linked Ship Damaged an Undersea Internet Cable**\
+`The Taiwanese Coast Guard said seven Chinese nationals were aboard a ship suspected of causing the damage.`\
+https://nytimes.com/2025/01/07/world/asia/taiwan-internet-cable-china.html
+
 **Now Is the Time to Reimagine Lebanon**\
 `The fall of the Syrian regime and loss of Iranian influence opens the door for the Lebanese to finally take their fate in their own hands.`\
 https://nytimes.com/2025/01/07/opinion/lebanon-syria-assad-election.html
