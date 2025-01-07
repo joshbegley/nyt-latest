@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6037281/2025/01/07/bournemouth-transfers-julio-sole
 `Nottingham Forest are in talks over extending defender Murillo’s contract.`\
 https://nytimes.com/athletic/6043726/2025/01/07/murillo-contract-nottingham-forest/
 
-**Trump Transition Live Updates: Trump to Hold News Conference at Mar-a-Lago**\
+**Trump Transition Live Updates: Trump Expected to Hold News Conference at Mar-a-Lago**\
 ``\
 https://nytimes.com/live/2025/01/07/us/trump-news
 
