@@ -1,3 +1,7 @@
+**Bournemouth's Evanilson undergoes surgery after sustaining broken foot**\
+`Bournemouth striker Evanilson has undergone surgery after suffering a fractured metatarsal in his foot.`\
+https://nytimes.com/athletic/6043696/2025/01/07/evanilson-injury-bournemouth-update/
+
 **MLB contenders' weak spots: The 15 biggest roster holes and what can be done to fill them**\
 `Even the ones projected to fight for postseason berths have weaknesses. Here's what can be done to shore up those problem areas.`\
 https://nytimes.com/athletic/6042397/2025/01/07/mlb-contenders-roster-weaknesses-2025-projections/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005467/2025/01/07/mlb-free-agent-2025-best-options
 **Who wants Jakob Poeltl? How about Bruce Brown? Exploring your Raptors trade ideas**\
 `The Raptors aren't the darlings of the trade market, but they have a few ways to get involved. `\
 https://nytimes.com/athletic/6039329/2025/01/07/nba-trade-deadline-raptors-jakob-poeltl-bruce-brown/
-
-**A key transfer! Staff changes! What is going on? 5 thoughts as the Tigers hit the offseason**\
-`Expectations will be sky high in 2025 for Clemson, which returns key personnel on offense and defense and will have a new DC in place. `\
-https://nytimes.com/athletic/6042182/2025/01/07/clemson-football-2025-dabo-swinney/
 

@@ -1,3 +1,7 @@
+**Bournemouth's Evanilson undergoes surgery after sustaining broken foot**\
+`Bournemouth striker Evanilson has undergone surgery after suffering a fractured metatarsal in his foot.`\
+https://nytimes.com/athletic/6043696/2025/01/07/evanilson-injury-bournemouth-update/
+
 **MLB contenders' weak spots: The 15 biggest roster holes and what can be done to fill them**\
 `Even the ones projected to fight for postseason berths have weaknesses. Here's what can be done to shore up those problem areas.`\
 https://nytimes.com/athletic/6042397/2025/01/07/mlb-contenders-roster-weaknesses-2025-projections/
