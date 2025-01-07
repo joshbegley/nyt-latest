@@ -1,3 +1,11 @@
+**Super Bowl odds: Which teams are the biggest threat to Detroit and Kansas City?**\
+`Breaking down which teams have the best shot at upsetting the Super Bowl favorites.`\
+https://nytimes.com/athletic/6044419/2025/01/07/super-bowl-odds-nfl-playoffs-detroit-kansas-city/
+
+**Lions expect RB David Montgomery to play in divisional round**\
+`Montgomery opted to rehab a knee injury instead of undergoing season-ending surgery in hopes of returning for the playoffs.`\
+https://nytimes.com/athletic/6044947/2025/01/07/david-montgomery-return-lions-playoffs/
+
 **What Will Power the A.I. Revolution?**\
 `The energy that will power the booming data-center industry could end up increasing emissions, at least in the short term.`\
 https://nytimes.com/2025/01/07/climate/artificial-intelligence-power-emissions.html
