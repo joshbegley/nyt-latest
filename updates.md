@@ -1,3 +1,19 @@
+**Trump Transition Live Updates: Trump to Hold News Conference at Mar-a-Lago**\
+``\
+https://nytimes.com/live/2025/01/07/us/trump-news
+
+**NFL Week 18 best and worst coaching decisions: Lions' Aaron Glenn flusters Sam Darnold**\
+`Also, Bengals defensive coordinator Lou Anarumo had one last brilliant game plan for Cincinnati before being fired Monday.`\
+https://nytimes.com/athletic/6040897/2025/01/07/nfl-week-18-worst-best-coaching-decisions-nguyen/
+
+**Weekly Student News Quiz: Plane Crash, President Carter, Golden Globes**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/01/07/learning/07StudentNewsQuizLN.html
+
+**Trump is expected to hold a news conference on Tuesday morning.**\
+`The expected topic is an economic development, b`\
+https://nytimes.com/live/2025/01/07/us/trump-news/trump-news-conference
+
 **Nvidia Bets Big on Robots**\
 `The chipmaker, which has led a  rally in artificial intelligence stocks, laid out a vision for dominating so-called physical A.I. Investors appeared impressed.`\
 https://nytimes.com/2025/01/07/business/dealbook/nvidia-ai-robots.html
