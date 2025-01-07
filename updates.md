@@ -1,3 +1,11 @@
+**The Pulse: The latest on the NFL coaching carousel**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6042008/2025/01/07/nfl-coaching-carousel-vrabel-johnson-the-pulse/
+
+**Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
+`What are the expansion plans for Wimbledon, and why is there so much opposition?`\
+https://nytimes.com/athletic/5827803/2025/01/07/wimbledon-tennis-expansion-all-england-club-courts-explained/
+
 **Dortmund consider loan move for Rashford from Man United**\
 `Borussia Dortmund are among a number of clubs considering a move to sign Marcus Rashford on loan from Manchester United this month.`\
 https://nytimes.com/athletic/6043765/2025/01/07/manchester-united-marcus-rashford-dortmund/
