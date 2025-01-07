@@ -1,3 +1,7 @@
+**Nvidia Bets Big on Robots**\
+`The chipmaker, which has led a  rally in artificial intelligence stocks, laid out a vision for dominating so-called physical A.I. Investors appeared impressed.`\
+https://nytimes.com/2025/01/07/business/dealbook/nvidia-ai-robots.html
+
 **Meta Reveals Plan to Alter Fact-Checking Program**\
 `The move will end a third-party fact-checking system and rely on users to add notes or corrections to posts. It is likely to please the incoming Trump administration and its conservative allies.`\
 https://nytimes.com/2025/01/07/business/meta-fact-checking-conservative-views.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042905/2025/01/07/edmonton-oilers-schedule-january
 **Breaking down Chris Kreider's struggles and what the Rangers should do with him**\
 `The Rangers' trajectory continues to trend down, putting a ticking clock on decisions — including with their injured franchise cornerstone.`\
 https://nytimes.com/athletic/6042155/2025/01/07/rangers-chris-kreider-whats-gone-wrong/
-
-**How the Broncos spun dead-money doom into ending a long playoff drought**\
-`The Broncos led the NFL with $89 million in dead money but still made key improvements thanks to shrewd free-agency moves, sound drafting.`\
-https://nytimes.com/athletic/6042248/2025/01/07/broncos-dead-money-playoffs-bills/
 
