@@ -1,3 +1,7 @@
+**Late Night Hosts Appreciate an Uneventful Jan. 6**\
+`Jimmy Kimmel called Monday “the fourth anniversary of our Capitol being stormed by the Buffalo Wild Wing of the Republican Party.”`\
+https://nytimes.com/2025/01/07/arts/television/late-night-capitol-riot-anniversary.html
+
 **Word of the Day: febrile**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/07/learning/word-of-the-day-febrile.html
