@@ -1,3 +1,7 @@
+**Taiwan Says It Suspects a Chinese-Linked Ship Damaged an Undersea Internet Cable**\
+`The Taiwanese Coast Guard said seven Chinese nationals were aboard a ship suspected of causing the damage.`\
+https://nytimes.com/2025/01/07/world/asia/taiwan-internet-cable-china.html
+
 **Now Is the Time to Reimagine Lebanon**\
 `The fall of the Syrian regime and loss of Iranian influence opens the door for the Lebanese to finally take their fate in their own hands.`\
 https://nytimes.com/2025/01/07/opinion/lebanon-syria-assad-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042629/2025/01/07/var-stadium-announcements-explai
 **Ranking the 50 players most likely to be selected for England's Euro 2025 squad**\
 `With six months to go until England begin their Euros defence, Michael Cox assesses the claims of the players in contention to feature`\
 https://nytimes.com/athletic/6015900/2025/01/07/england-squad-euro-2025-ranked/
-
-**Tuesday Briefing**\
-`Justin Trudeau will step down as Canada’s prime minister.`\
-https://nytimes.com/2025/01/07/briefing/trudeau-syria-russia.html
 
