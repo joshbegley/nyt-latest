@@ -1,3 +1,7 @@
+**Tottenham trigger Son contract extension**\
+`Tottenham Hotspur have triggered the option to extend captain Son Heung-min&#8217;s contract until 2026.`\
+https://nytimes.com/athletic/6043662/2025/01/07/son-heung-min-contract-tottenham/
+
 **With Ravens' Marlon Humphrey, always expect the unexpected: 'There's just no replica of him'**\
 `Off the field, you never know what you're going to get from Baltimore's Pro Bowl corner. But on the field, he's all business, all the time.`\
 https://nytimes.com/athletic/6042654/2025/01/07/ravens-playoffs-marlon-humphrey-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042499/2025/01/07/wisconsin-college-football-defen
 **Nebraska mailbag: What's success for Matt Rhule's Year 3? Offensive line concerns?**\
 `Where do the Huskers rank in NIL opportunities? Will Nebraska get a transfer O-lineman?`\
 https://nytimes.com/athletic/6043079/2025/01/07/nebraska-football-staff-changes-transfers/
-
-**China's most successful club not granted permission to play in 2025 over debts**\
-`Guangzhou FC, China&#8217;s most successful football club, have not been granted permission to play professionally during the 2025 season due to financial issues.`\
-https://nytimes.com/athletic/6043642/2025/01/07/guangzhou-china-debt-league/
 

@@ -1,3 +1,7 @@
+**Tottenham trigger Son contract extension**\
+`Tottenham Hotspur have triggered the option to extend captain Son Heung-min&#8217;s contract until 2026.`\
+https://nytimes.com/athletic/6043662/2025/01/07/son-heung-min-contract-tottenham/
+
 **With Ravens' Marlon Humphrey, always expect the unexpected: 'There's just no replica of him'**\
 `Off the field, you never know what you're going to get from Baltimore's Pro Bowl corner. But on the field, he's all business, all the time.`\
 https://nytimes.com/athletic/6042654/2025/01/07/ravens-playoffs-marlon-humphrey-defense/
