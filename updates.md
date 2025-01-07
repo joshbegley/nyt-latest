@@ -1,3 +1,7 @@
+**Celebrities Flee Their Homes as Fire Forces More Evacuations**\
+`Some residents shared photos of the smoke and flames enveloping Pacific Palisades. One actor jumped in to help with the evacuation effort.`\
+https://nytimes.com/2025/01/07/us/celebrities-flee-homes-fire-evacuations.html
+
 **Trump Warns ‘All Hell Will Break Out’ if Hostages in Gaza Are Not Freed**\
 `The president-elect did not elaborate on what actions he might take if the captives are not released by the time he takes office.`\
 https://nytimes.com/2025/01/07/us/politics/trump-hostages-hamas.html

@@ -6,9 +6,9 @@ https://nytimes.com/2025/01/07/us/politics/trump-hostages-hamas.html
 `Before President-elect Donald Trump’s latest remarks, King Frederik X signaled his commitment to the territory in a decidedly old-fashioned way.`\
 https://nytimes.com/2025/01/07/style/denmark-coat-of-arms-trump-greenland.html
 
-**Celebrities flee their homes as the fire forces more evacuations.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/2025/01/07/us/celebrities-flee-their-homes-as-the-fire-forces-more-evacuations.html
+**Celebrities Flee Their Homes as Fire Forces More Evacuations**\
+`Some residents shared photos of the smoke and flames enveloping Pacific Palisades. One actor jumped in to help with the evacuation effort.`\
+https://nytimes.com/2025/01/07/us/celebrities-flee-homes-fire-evacuations.html
 
 **Los Angeles Fires Force Thousands to Evacuate**\
 `Also, Trump suggested expanding the U.S. Here’s the latest at the end of Tuesday.`\
