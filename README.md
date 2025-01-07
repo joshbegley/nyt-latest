@@ -1,3 +1,11 @@
+**Exxon Sues California Official, Claiming He Defamed the Company**\
+`The lawsuit, an unusual strategy for the oil giant, comes after California’s attorney general sued Exxon last year alleging it misled the public about plastics recycling.`\
+https://nytimes.com/2025/01/07/climate/exxon-bonta-california-defamation-lawsuit.html
+
+**Washington Post Lays Off 4 Percent of Its Work Force**\
+`The layoffs will affect employees across The Post’s business operations, not its newsroom.`\
+https://nytimes.com/2025/01/07/business/media/washington-post-layoffs.html
+
 **Live Updates: Meta to End Fact-Checking Program in Shift Ahead of Trump Term**\
 `The social networking giant will stop using third-party fact checkers and instead rely on users to add notes to posts. It is likely to please President-elect Trump and his conservative allies.`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/us/honolulu-fire-fighter-dead.html
 **49ers fire special teams coordinator Brian Schneider**\
 `Schneider was hired by Kyle Shanahan in 2022 and the 49ers' run of flat special teams play continued under his watch. `\
 https://nytimes.com/athletic/6039186/2025/01/07/brian-schneider-fired-49ers-special-teams-coordinator/
-
-**NBA Power Rankings: Resolve to get ready for some January throwdowns**\
-`Injuries in Dallas, drama in Miami and a superstar returning for the Clippers impact the latest ranking of all 30 NBA teams.`\
-https://nytimes.com/athletic/6043741/2025/01/07/nba-power-rankings-cavaliers-thunder-celtics-lakers/
-
-**Earthquake Kills Scores of People in a Remote Part of Tibet**\
-`The magnitude 7.1 earthquake struck a region near one of Tibet’s holiest cities, close to the Himalayan border with Nepal.`\
-https://nytimes.com/video/world/asia/100000009911874/tibet-deadly-earthquake.html
 
