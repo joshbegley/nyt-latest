@@ -1,3 +1,11 @@
+**Rashford representatives hold talks with AC Milan over loan move**\
+`Marcus Rashford&#8217;s representatives have held exploratory talks with AC Milan about loaning the Manchester United forward in the January transfer window.`\
+https://nytimes.com/athletic/6045126/2025/01/07/rashford-milan-loan-man-utd/
+
+**Portland Thorns name Jeff Agoos, U.S. Soccer Hall of Famer, as GM**\
+`The hire continues a rebuild that has included a coaching change and the departure of previous GM Karina LeBlanc.`\
+https://nytimes.com/athletic/6044660/2025/01/07/portland-thorns-jeff-agoos-general-manager/
+
 **In December, the Franklin fire brought terror to Malibu.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california/in-december-the-franklin-fire-brought-terror-to-malibu
