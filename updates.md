@@ -1,3 +1,7 @@
+**Are These Shoes Hideous or Genius?**\
+`A conversation about the New Balance “Snoafers” — not quite sneakers, not quite loafers.`\
+https://nytimes.com/2025/01/07/style/sneakers-new-balance-snoafers.html
+
 **Biden Won’t Point to the Real Culprit in the Sudanese Genocide**\
 `Why are Biden and his aides reluctant to hold a crucial culprit accountable?`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/biden-sudan-genocide
