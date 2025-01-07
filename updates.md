@@ -1,3 +1,15 @@
+**‘One of the Faces of Jan. 6’**\
+`What happened to the rioter who put his boot on a desk in Nancy Pelosi’s office.`\
+https://nytimes.com/2025/01/06/us/politics/jan-6-pelosi-trump.html
+
+**Shooter at Honduran Consulate in Georgia Kills One and Injures Another**\
+`The police arrested the person they believe opened fire outside the entrance to the consulate, which is near Atlanta.`\
+https://nytimes.com/2025/01/06/us/honduras-consulate-shooting-atlanta.html
+
+**Colts part ways with DC Gus Bradley after 3 seasons**\
+`Indianapolis was Bradley's fourth stop as a defensive coordinator and now Shane Steichen is looking for his replacement.`\
+https://nytimes.com/athletic/6027862/2025/01/06/colts-fire-gus-bradley-defensive-coordinator/
+
 **Colts fire DC Gus Bradley after 3 seasons**\
 `Indianapolis was Bradley's fourth stop as a defensive coordinator and now Shane Steichen is looking for his replacement.`\
 https://nytimes.com/athletic/6027862/2025/01/06/colts-fire-gus-bradley-defensive-coordinator/
