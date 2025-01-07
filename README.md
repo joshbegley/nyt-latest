@@ -1,3 +1,11 @@
+**Read Defense Lawyers’ Arguments to Block a Trump Documents Case Report**\
+`Lawyers for President-elect Donald J. Trump urged the attorney general in a letter to stop the special counsel from publicly releasing a final report on the case, while lawyers for his co-defendants, in a court filing, asked the same of the judge who oversaw the case.`\
+https://nytimes.com/interactive/2025/01/06/us/govuscourtsflsd64865467903.html
+
+**How the Canucks threw away a third-period lead in Montreal: 3 takeaways**\
+`J.T. Miller had a hand in all four Canucks goals, but Vancouver was forced to settle for one point in a winnable game.`\
+https://nytimes.com/athletic/6043162/2025/01/06/canucks-jt-miller-quinn-hughes-canadiens/
+
 **Defense Lawyers Seek to Block Special Counsel Report in Trump Documents Case**\
 `Both the Justice Department and the judge who oversaw the case were asked to stop the public release of the report.`\
 https://nytimes.com/2025/01/06/us/politics/trump-classified-documents-case-jack-smith.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/world/asia/china-tibet-nepal-quake.html
 **Full Time: Is the 2025 NWSL schedule out?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6043313/2025/01/06/nwsl-schedule-2025-womens-soccer-full-time/
-
-**Disordered State**\
-`Dana Edwards makes a stylish second appearance in the New York Times Crossword.`\
-https://nytimes.com/2025/01/06/crosswords/daily-puzzle-2025-01-07.html
-
-**Pentagon Reaches Settlement With Veterans Dismissed Over Sexuality**\
-`The agreement, if approved by a judge, would let former service members upgrade their discharge status and receive benefits they had been denied.`\
-https://nytimes.com/2025/01/06/us/politics/pentagon-settlement-veterans-sexuality.html
 
