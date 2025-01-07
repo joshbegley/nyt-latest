@@ -1,40 +1,40 @@
-**Your 2025 Most-Anticipated List**\
-`What are you looking forward to this year?`\
-https://nytimes.com/2025/01/07/learning/your-2025-most-anticipated-list.html
+**China's most successful club not granted permission to play in 2025 over debts**\
+`Guangzhou FC, China&#8217;s most successful football club, have not been granted permission to play professionally during the 2025 season due to financial issues.`\
+https://nytimes.com/athletic/6043642/2025/01/07/guangzhou-china-debt-league/
 
-**Deportiva Minera 0 Real Madrid 5: Guler shines - but Endrick frustrated**\
-`The big talking points dissected from the Spanish Cup win on Monday night`\
-https://nytimes.com/athletic/6043281/2025/01/07/real-madrid-deportiva-minera-spanish-cup/
+**Carter to Arrive in Washington on Tuesday for a Pomp-Filled Farewell**\
+`Former President Jimmy Carter, who once banned the playing of “Hail to the Chief,” will be honored with three days of elaborate ceremonies in the nation’s capital.`\
+https://nytimes.com/2025/01/07/us/politics/jimmy-carter-washington-events.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/07/crosswords/spelling-bee-forum.html
+**How Deep Is the Wound to the Democratic Party?**\
+`Is liberalism actually dead this time?`\
+https://nytimes.com/2025/01/07/opinion/democratic-party-republican-realignment.html
 
-**Deadly Earthquake Hits Tibet**\
-`Rubble from toppled buildings littered the streets after a deadly 7.1-magnitude quake shook a region in western China.`\
-https://nytimes.com/video/world/asia/100000009911773/tibet-earthquake-nepal-china.html
+**Biden to Designate Chuckwalla and Sáttítla National Monuments in California**\
+`With these two new monuments, Mr. Biden has protected more federal land and waters than any other president, about 674 million acres.`\
+https://nytimes.com/2025/01/07/climate/biden-to-designate-chuckwalla-and-sattitla-national-monuments-in-california.html
 
-**Ornstein meets Aubameyang: Arsenal, Arteta relationship, Chelsea 'chaos', Saudi move and a terrifying robbery**\
-`Aubameyang opens up on his relationship with Arteta, his highs and lows at Arsenal, what happened at Chelsea and why he's playing in Saudi`\
-https://nytimes.com/athletic/6036322/2025/01/07/aubameyang-arsenal-arteta-chelsea-saudi/
+**Biden Administration Moves to Ban Medical Debt From Credit Reports**\
+`The future of the new rule remains in question, however, with President-elect Donald J. Trump set to return to the White House this month.`\
+https://nytimes.com/2025/01/07/us/politics/biden-medical-debt-credit-report.html
 
-**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
-`Welcome to your weekly guide to the January transfer window`\
-https://nytimes.com/athletic/6035268/2025/01/07/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-barcelona/
+**Justin Trudeau’s Trying to Save His Party. Is He Hurting Canada?**\
+`By suspending Parliament and promising to resign, the prime minister bought the Liberals time. But Canada will now face Donald J. Trump with a lame duck in charge.`\
+https://nytimes.com/2025/01/07/world/canada/justin-trudeau-liberal-party-canada.html
 
-**Two wins, one trophy and a big cigar later, Milan look a team reborn**\
-`An unlikely Italian Super Cup win has reinvigorated an ailing club — suddenly the future looks bright`\
-https://nytimes.com/athletic/6043007/2025/01/07/milan-italian-super-cup-sergio-conceicao/
+**America Needs a Norovirus Vaccine, Now**\
+`What better way to remind people of the power of vaccines than to eliminate the misery of vomiting?`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/norovirus-vaccine-research
 
-**Late Night Hosts Appreciate an Uneventful Jan. 6**\
-`Jimmy Kimmel called Monday “the fourth anniversary of our Capitol being stormed by the Buffalo Wild Wing of the Republican Party.”`\
-https://nytimes.com/2025/01/07/arts/television/late-night-capitol-riot-anniversary.html
+**Carter Never Took to Washington. The Feeling Was Mutual.**\
+`Jimmy Carter was a genuine Washington outsider when he won the White House in 1976. And he remained proudly so, for better or worse.`\
+https://nytimes.com/2025/01/07/us/politics/jimmy-carter-washington.html
 
-**Word of the Day: febrile**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/07/learning/word-of-the-day-febrile.html
+**There’s More to Wine Than Just a Cancer Warning**\
+`A wine aficionado argues that the surgeon general’s warning misses this type of alcohol’s complex joy.`\
+https://nytimes.com/2025/01/07/opinion/drinking-alcohol-wine-joy.html
 
-**If Wolves want to avoid a long winter, they need recruits - and fast**\
-`A chastening defeat to Nottingham Forest was a reality check and underlined the need for a busy January`\
-https://nytimes.com/athletic/6042824/2025/01/07/wolverhampton-wanderers-transfers-january-targets/
+**Virginia Holds the First Elections of the New Trump Era**\
+`Voters are going to the polls on Tuesday in three special elections for the legislature that will serve as barometers of political energy for both parties.`\
+https://nytimes.com/2025/01/07/us/politics/virginia-elections-legislature.html
 
