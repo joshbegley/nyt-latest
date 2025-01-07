@@ -1,3 +1,11 @@
+**Celebrities flee their homes as the fire forces more evacuations.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/2025/01/07/us/celebrities-flee-their-homes-as-the-fire-forces-more-evacuations.html
+
+**Southern California is dangerously dry for this time of year.**\
+`By Amy Graff`\
+https://nytimes.com/2025/01/07/us/southern-california-is-dangerously-dry-for-this-time-of-year.html
+
 **Los Angeles Fires Force Thousands to Evacuate**\
 `Also, Trump suggested expanding the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/07/briefing/los-angeles-fires-trump-greenland-52-places.html
