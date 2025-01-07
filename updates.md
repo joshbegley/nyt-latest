@@ -1,3 +1,7 @@
+**Trump Asks Appeals Court to Freeze His New York Criminal Sentencing**\
+`President-elect Donald J. Trump is trying to expunge his conviction before he is inaugurated. He would be the first felon elected to the Oval Office.`\
+https://nytimes.com/2025/01/07/nyregion/trump-criminal-sentencing-appeal.html
+
 **Patti Davis’s Reflections on Joe Biden and Her Dad, Ronald Reagan**\
 `Readers discuss a guest essay about the aging of two presidents. Also: A peaceful Jan. 6; the Palestinians’ future; mind-altering drugs.`\
 https://nytimes.com/2025/01/07/opinion/patti-davis-joe-biden-ronald-reagan.html

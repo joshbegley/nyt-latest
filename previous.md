@@ -1,3 +1,7 @@
+**Trump Asks Appeals Court to Freeze His New York Criminal Sentencing**\
+`President-elect Donald J. Trump is trying to expunge his conviction before he is inaugurated. He would be the first felon elected to the Oval Office.`\
+https://nytimes.com/2025/01/07/nyregion/trump-criminal-sentencing-appeal.html
+
 **Patti Davis’s Reflections on Joe Biden and Her Dad, Ronald Reagan**\
 `Readers discuss a guest essay about the aging of two presidents. Also: A peaceful Jan. 6; the Palestinians’ future; mind-altering drugs.`\
 https://nytimes.com/2025/01/07/opinion/patti-davis-joe-biden-ronald-reagan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044151/2025/01/07/pittsburgh-penguins-olympics-nhl
 **Greens, Beans and Grains: Assemble**\
 `The mighty three ingredients that save my weeknight dinners (and a new habit-forming technique for cooking them easily).`\
 https://nytimes.com/2025/01/07/dining/greens-beans-and-grains-assemble.html
-
-**Fox Sports, Skip Bayless sued by hairstylist alleging sexual harassment**\
-`The woman who filed the lawsuit alleged Bayless made unwanted sexual advances toward her and offered her $1.5 million for sex. `\
-https://nytimes.com/athletic/6042666/2025/01/07/fox-sports-skip-bayless-sued-lawsuit/
 
