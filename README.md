@@ -1,3 +1,11 @@
+**2025 NBA viewer guide: What to know about broadcasts, schedules, streaming and more**\
+`Rooting interests and betting implications aside, NBA fandom is a consistently rewarding endeavor. Here's how to watch the games in 2025!`\
+https://nytimes.com/athletic/6022280/2025/01/06/how-to-watch-nba-2025-streams-channels/
+
+**52 Places to Go in 2025**\
+`Where will the new year take you? Kick-start your travel plans by selecting favorites from our annual list.`\
+https://nytimes.com/interactive/2025/travel/places-to-travel-destinations-2025.html
+
 **‘One of the Faces of Jan. 6’**\
 `What happened to the rioter who put his boot on a desk in Nancy Pelosi’s office.`\
 https://nytimes.com/2025/01/06/us/politics/jan-6-pelosi-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/nyregion/nyc-crime-2024.html
 **Dodgers trade Gavin Lux to Reds: Sources**\
 `The Dodgers will receive a prospect and the Reds' competitive balance pick for Lux, who started 117 games at second base in 2024.`\
 https://nytimes.com/athletic/6042920/2025/01/06/dodgers-gavin-lux-trade-reds/
-
-**Dana White, the Ultimate Fighting Championship C.E.O., Joins Meta’s Board**\
-`Mr. White, a close ally of President-elect Donald J. Trump, further strengthens the social media giant’s connections with the incoming administration.`\
-https://nytimes.com/2025/01/06/technology/dana-white-meta-board-ufc.html
-
-**A Reporter’s Reflection on Jan. 6, Then and Now**\
-`Luke Broadwater was at the Capitol when a pro-Trump mob stormed the complex on Jan. 6, 2021, as Congress was certifying Joseph R. Biden Jr.’s victory. Four years later, he reflects on what has changed.`\
-https://nytimes.com/2025/01/06/us/politics/trump-capitol-attack-jan-6-reporter.html
 
