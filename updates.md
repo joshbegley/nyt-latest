@@ -1,3 +1,15 @@
+**Who Is Joel Kaplan, Meta’s New Global Policy Chief?**\
+`The longtime Republican lobbyist for Meta was named to the company’s top policy role last week.`\
+https://nytimes.com/2025/01/07/business/joel-kaplan-meta.html
+
+**What's next for the Mets after meeting with top reliever Tanner Scott**\
+`The Mets are looking to add one to two relievers to the bullpen, league sources said, and they're expected to check out all the options.`\
+https://nytimes.com/athletic/6044292/2025/01/07/mets-bullpen-outlook-sign-tanner-scott/
+
+**Titans fire GM Ran Carthon after 2 seasons**\
+`Carthon's firing comes after the Titans went 3-14 and finished last in the AFC South this season.`\
+https://nytimes.com/athletic/6044304/2025/01/07/ran-carthon-general-manager-fired-titans/
+
 **Meta Turns to Community Notes, Mirroring X**\
 `Social media companies are abandoning years of fact-checking practices as Republicans criticize it as censorship.`\
 https://nytimes.com/2025/01/07/business/meta-community-notes-x.html

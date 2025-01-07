@@ -1,7 +1,3 @@
-**Who Is Joel Kaplan, Meta’s New Global Policy Chief?**\
-`The longtime Republican lobbyist for Meta was named to the company’s top policy role last week.`\
-https://nytimes.com/2025/01/07/business/joel-kaplan-meta.html
-
 **Meta Turns to Community Notes, Mirroring X**\
 `Social media companies are abandoning years of fact-checking practices as Republicans criticize it as censorship.`\
 https://nytimes.com/2025/01/07/business/meta-community-notes-x.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/07/dining/nyc-restaurant-news.html
 **Titans fire GM Ran Carthon after 2 seasons**\
 `Carthon's firing comes after the Titans went 3-14 and finished last in the AFC South this season.`\
 https://nytimes.com/athletic/6044304/2025/01/07/ran-carthon-general-manager-fired-titans/
+
+**Penguins Today: Memories of a snowy Igloo and Chris Kunitz as critical stretch begins**\
+`On the anniversary of his selection, we remember why Kunitz was a deserving Olympian and a smart choice for Team Canada in 2014.`\
+https://nytimes.com/athletic/6044151/2025/01/07/pittsburgh-penguins-olympics-nhl-crosby-kunitz/
 
