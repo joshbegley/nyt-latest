@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6043392/2025/01/07/bradley-beal-suns-jimmy-butler-sixers/
 
 **Sabres aren't counting themselves out of playoffs despite an ugly first half**\
-`There's still a long way to go to make up for the 13-game losing streak, but at long last the Sabres are trending in the right direction.`\
+`There's still a long way to go to make up for the 13-game winless streak, but at long last the Sabres are trending in the right direction.`\
 https://nytimes.com/athletic/6043495/2025/01/07/sabres-playoffs-first-half-capitals/
 
 **Welcome to the Jacob Murphy Appreciation Society. This is our time**\
