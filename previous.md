@@ -1,3 +1,7 @@
+**Full Time: Is the 2025 NWSL schedule out?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6043313/2025/01/06/nwsl-schedule-2025-womens-soccer-full-time/
+
 **Disordered State**\
 `Dana Edwards makes a stylish second appearance in the New York Times Crossword.`\
 https://nytimes.com/2025/01/06/crosswords/daily-puzzle-2025-01-07.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6043200/2025/01/06/submit-a-question-for-stewart-ma
 **2025 NBA viewer guide: What to know about broadcasts, schedules, streaming and more**\
 `Rooting interests and betting implications aside, NBA fandom is a consistently rewarding endeavor. Here's how to watch the games in 2025!`\
 https://nytimes.com/athletic/6022280/2025/01/06/how-to-watch-nba-2025-streams-channels/
-
-**52 Places to Go in 2025**\
-`Where will the new year take you? Kick-start your travel plans by selecting favorites from our annual list.`\
-https://nytimes.com/interactive/2025/travel/places-to-travel-destinations-2025.html
 

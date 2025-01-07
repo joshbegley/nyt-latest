@@ -1,3 +1,7 @@
+**Full Time: Is the 2025 NWSL schedule out?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6043313/2025/01/06/nwsl-schedule-2025-womens-soccer-full-time/
+
 **Disordered State**\
 `Dana Edwards makes a stylish second appearance in the New York Times Crossword.`\
 https://nytimes.com/2025/01/06/crosswords/daily-puzzle-2025-01-07.html
