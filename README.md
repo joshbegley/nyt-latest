@@ -1,3 +1,19 @@
+**Trump Transition Live Updates: Trump to Hold News Conference at Mar-a-Lago**\
+``\
+https://nytimes.com/live/2025/01/07/us/trump-news
+
+**NFL Week 18 best and worst coaching decisions: Lions' Aaron Glenn flusters Sam Darnold**\
+`Also, Bengals defensive coordinator Lou Anarumo had one last brilliant game plan for Cincinnati before being fired Monday.`\
+https://nytimes.com/athletic/6040897/2025/01/07/nfl-week-18-worst-best-coaching-decisions-nguyen/
+
+**Weekly Student News Quiz: Plane Crash, President Carter, Golden Globes**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/01/07/learning/07StudentNewsQuizLN.html
+
+**Trump is expected to hold a news conference on Tuesday morning.**\
+`The expected topic is an economic development, b`\
+https://nytimes.com/live/2025/01/07/us/trump-news/trump-news-conference
+
 **Nvidia Bets Big on Robots**\
 `The chipmaker, which has led a  rally in artificial intelligence stocks, laid out a vision for dominating so-called physical A.I. Investors appeared impressed.`\
 https://nytimes.com/2025/01/07/business/dealbook/nvidia-ai-robots.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/07/world/europe/jean-marie-le-pen-dead.html
 **Canadiens' win over Canucks dripping with symbolism of their journey to relevance**\
 `From Kirby Dach to Lane Hutson to Kaiden Guhle to Cole Caufield, there was a lot of meaning to draw from a Canadiens win over the Canucks. `\
 https://nytimes.com/athletic/6043571/2025/01/07/canadiens-canucks-nhl-win-caufield-dach-newhook/
-
-**Drug Company to Share Revenues With Indigenous People Who Donated Their Genes**\
-`Variant Bio, a small biotech company based in Seattle, is using genetic information from Indigenous people to develop drugs for obesity and diabetes.`\
-https://nytimes.com/2025/01/07/health/variant-bio-novo-nordisk-indigenous-revenue-sharing.html
-
-**Cardinals' efforts to trade Nolan Arenado remain stalled: How it's impacting the roster**\
-`St. Louis wants to cut payroll and open up spots for younger players. Arenado wants the perfect situation. What happens if he has to stay?`\
-https://nytimes.com/athletic/6043031/2025/01/07/cardinals-nolan-arenado-trade-efforts-roster/
-
-**How the Oilers are processing 'odd' stretch of road games**\
-`The Oilers — the NHL’s northernmost team — are familiar with spending lots of time in hotels and airplanes.`\
-https://nytimes.com/athletic/6042905/2025/01/07/edmonton-oilers-schedule-january-2025/
-
-**Breaking down Chris Kreider's struggles and what the Rangers should do with him**\
-`The Rangers' trajectory continues to trend down, putting a ticking clock on decisions — including with their injured franchise cornerstone.`\
-https://nytimes.com/athletic/6042155/2025/01/07/rangers-chris-kreider-whats-gone-wrong/
 
