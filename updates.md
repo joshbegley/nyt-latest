@@ -1,3 +1,11 @@
+**Carter eschewed the typical majesty of the presidency.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/carter-eschewed-the-typical-majesty-of-the-presidency
+
+**Latest Updates: Carter Arrives in Washington for a Pomp-Filled Farewell**\
+`Former President Jimmy Carter, who once banned the playing of “Hail to the Chief,” will be honored with three days of elaborate ceremonies in the nation’s capital.`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington
+
 **Why Manchester United would consider selling Mainoo and Garnacho if the price was right**\
 `Selling a homegrown player would help Manchester United's financial situation, with both players unlikely to be short of suitors`\
 https://nytimes.com/athletic/6044696/2025/01/07/manchester-united-mainoo-garnacho-transfer-chelsea/
