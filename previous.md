@@ -1,3 +1,11 @@
+**Mandel: The Playoff was supposed to hurt bowls. Is the opposite happening?**\
+`Viewership is high but attendance is down for college football bowl games. Is change on the horizon? `\
+https://nytimes.com/athletic/6044405/2025/01/07/college-football-bowl-games-viewership/
+
+**Meta joins tech companies flocking to Texas.**\
+`By David McCabe`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-joins-tech-companies-flocking-to-texas
+
 **Fight for a North Carolina Court Seat Drags On Long After Election Day**\
 `Three counts show an incumbent Democrat won election to the State Supreme Court. But an unusual protest by the G.O.P. challenger could be headed to that same Republican-controlled court.`\
 https://nytimes.com/2025/01/07/us/north-carolina-election-ballots-republicans.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6044490/2025/01/07/barcelona-dani-olmo-raphinha/
 https://nytimes.com/athletic/6044200/2025/01/07/uswnt-roster-camp-2025/
 
 **Peter Yarrow Bridged Folk-Pop Eras**\
-`With Peter, Paul and Mary, the musician, who died on Tuesday at 86, eased folk songs onto the pop charts.`\
+`With Peter, Paul and Mary, the musician, who died on Tuesday at 86, eased folk songs into the Top 10.`\
 https://nytimes.com/2025/01/07/arts/music/peter-yarrow-peter-paul-mary-folk-pop.html
 
 **Sudanese Paramilitary Group Committed Genocide, U.S. Says**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/business/joel-kaplan-meta.html
 **Meta Turns to Community Notes, Mirroring X**\
 `Social media companies are abandoning years of fact-checking practices as Republicans criticize it as censorship.`\
 https://nytimes.com/2025/01/07/business/meta-community-notes-x.html
-
-**Trump Asks Appeals Court to Freeze His New York Criminal Sentencing**\
-`President-elect Donald J. Trump is trying to expunge his conviction before he is inaugurated. He would be the first felon elected to the Oval Office.`\
-https://nytimes.com/2025/01/07/nyregion/trump-criminal-sentencing-appeal.html
-
-**Patti Davis’s Reflections on Joe Biden and Her Dad, Ronald Reagan**\
-`Readers discuss a guest essay about the aging of two presidents. Also: A peaceful Jan. 6; the Palestinians’ future; mind-altering drugs.`\
-https://nytimes.com/2025/01/07/opinion/patti-davis-joe-biden-ronald-reagan.html
 

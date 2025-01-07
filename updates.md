@@ -1,3 +1,15 @@
+**Mandel: The Playoff was supposed to hurt bowls. Is the opposite happening?**\
+`Viewership is high but attendance is down for college football bowl games. Is change on the horizon? `\
+https://nytimes.com/athletic/6044405/2025/01/07/college-football-bowl-games-viewership/
+
+**Meta joins tech companies flocking to Texas.**\
+`By David McCabe`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-joins-tech-companies-flocking-to-texas
+
+**Peter Yarrow Bridged Folk-Pop Eras**\
+`With Peter, Paul and Mary, the musician, who died on Tuesday at 86, eased folk songs into the Top 10.`\
+https://nytimes.com/2025/01/07/arts/music/peter-yarrow-peter-paul-mary-folk-pop.html
+
 **Fight for a North Carolina Court Seat Drags On Long After Election Day**\
 `Three counts show an incumbent Democrat won election to the State Supreme Court. But an unusual protest by the G.O.P. challenger could be headed to that same Republican-controlled court.`\
 https://nytimes.com/2025/01/07/us/north-carolina-election-ballots-republicans.html
