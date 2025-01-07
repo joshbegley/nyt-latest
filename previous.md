@@ -1,3 +1,27 @@
+**Status reports on Brandon Ingram and Julius Randle in the new NBA**\
+`The harsher penalties for teams that spent aggressively are impacting the present and futures of two former All-Stars — and their teams.`\
+https://nytimes.com/athletic/6042531/2025/01/07/brandon-ingram-trade-rumors-julius-randle-nba/
+
+**MLB All-Free-Agent-Team v. 2.0: Options are dwindling in middle infield, top of rotation**\
+`The holiday season saw a flurry of shopping on the free-agent market, so let's take another look at the best players still on the board.`\
+https://nytimes.com/athletic/6005467/2025/01/07/mlb-free-agent-2025-best-options/
+
+**Who wants Jakob Poeltl? How about Bruce Brown? Exploring your Raptors trade ideas**\
+`The Raptors aren't the darlings of the trade market, but they have a few ways to get involved. `\
+https://nytimes.com/athletic/6039329/2025/01/07/nba-trade-deadline-raptors-jakob-poeltl-bruce-brown/
+
+**A key transfer! Staff changes! What is going on? 5 thoughts as the Tigers hit the offseason**\
+`Expectations will be sky high in 2025 for Clemson, which returns key personnel on offense and defense and will have a new DC in place. `\
+https://nytimes.com/athletic/6042182/2025/01/07/clemson-football-2025-dabo-swinney/
+
+**After transfer exodus, who are the newcomers that will shape Wisconsin's D-line?**\
+`Of Wisconsin’s 19 portal additions, 12 have come on defense.`\
+https://nytimes.com/athletic/6042499/2025/01/07/wisconsin-college-football-defensive-line-transfer/
+
+**Nebraska mailbag: What's success for Matt Rhule's Year 3? Offensive line concerns?**\
+`Where do the Huskers rank in NIL opportunities? Will Nebraska get a transfer O-lineman?`\
+https://nytimes.com/athletic/6043079/2025/01/07/nebraska-football-staff-changes-transfers/
+
 **China's most successful club not granted permission to play in 2025 over debts**\
 `Guangzhou FC, China&#8217;s most successful football club, have not been granted permission to play professionally during the 2025 season due to financial issues.`\
 https://nytimes.com/athletic/6043642/2025/01/07/guangzhou-china-debt-league/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/07/opinion/democratic-party-republican-realignment.h
 **Biden to Designate Chuckwalla and Sáttítla National Monuments in California**\
 `With these two new monuments, Mr. Biden has protected more federal land and waters than any other president, about 674 million acres.`\
 https://nytimes.com/2025/01/07/climate/biden-to-designate-chuckwalla-and-sattitla-national-monuments-in-california.html
-
-**Biden Administration Moves to Ban Medical Debt From Credit Reports**\
-`The future of the new rule remains in question, however, with President-elect Donald J. Trump set to return to the White House this month.`\
-https://nytimes.com/2025/01/07/us/politics/biden-medical-debt-credit-report.html
-
-**Justin Trudeau’s Trying to Save His Party. Is He Hurting Canada?**\
-`By suspending Parliament and promising to resign, the prime minister bought the Liberals time. But Canada will now face Donald J. Trump with a lame duck in charge.`\
-https://nytimes.com/2025/01/07/world/canada/justin-trudeau-liberal-party-canada.html
-
-**America Needs a Norovirus Vaccine, Now**\
-`What better way to remind people of the power of vaccines than to eliminate the misery of vomiting?`\
-https://nytimes.com/live/2025/01/02/opinion/thepoint/norovirus-vaccine-research
-
-**Carter Never Took to Washington. The Feeling Was Mutual.**\
-`Jimmy Carter was a genuine Washington outsider when he won the White House in 1976. And he remained proudly so, for better or worse.`\
-https://nytimes.com/2025/01/07/us/politics/jimmy-carter-washington.html
-
-**There’s More to Wine Than Just a Cancer Warning**\
-`A wine aficionado argues that the surgeon general’s warning misses this type of alcohol’s complex joy.`\
-https://nytimes.com/2025/01/07/opinion/drinking-alcohol-wine-joy.html
-
-**Virginia Holds the First Elections of the New Trump Era**\
-`Voters are going to the polls on Tuesday in three special elections for the legislature that will serve as barometers of political energy for both parties.`\
-https://nytimes.com/2025/01/07/us/politics/virginia-elections-legislature.html
 
