@@ -1,3 +1,7 @@
+**Colts defensive coordinator search: 10 potential candidates to replace Gus Bradley**\
+`Our list includes a few former head coaches and a handful of rising stars in the coaching ranks. `\
+https://nytimes.com/athletic/6037699/2025/01/06/colts-defensive-coordinator-candidates-gus-bradley/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Last week&#8217;s Sugar Bowl postponement caused the Mailbag to be postponed to this week &#8212; so we&#8217;ve got a lot to catch up on.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -24,7 +28,7 @@ https://nytimes.com/2025/01/06/us/honduras-consulate-shooting-atlanta.html
 `Indianapolis was Bradley's fourth stop as a defensive coordinator and now Shane Steichen is looking for his replacement.`\
 https://nytimes.com/athletic/6027862/2025/01/06/colts-fire-gus-bradley-defensive-coordinator/
 
-**Colts, Jim Irsay could have wiped slate clean. Here's why they chose continuity instead.**\
+**Colts, Jim Irsay could have wiped slate clean. Here's why they chose continuity instead**\
 `Frustrating though it may be, there's some logic behind the Colts sticking with Chris Ballard, Shane Steichen and Anthony Richardson. `\
 https://nytimes.com/athletic/6042652/2025/01/06/colts-jim-irsays-anthony-richardson-chris-ballard/
 
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6042934/2025/01/06/patriots-robert-kraft-owner-take
 **U.S. Envoy Says Israel Will Withdraw From Southern Lebanon**\
 `With the deadline looming for the terms of a fragile cease-fire between Israel and Hezbollah to be met, an American diplomat on Monday said “much progress” had been made recently.`\
 https://nytimes.com/2025/01/06/world/middleeast/israel-lebanon-ceasefire-hezbollah-withdraw.html
-
-**New York Crime Rate Falls, but Number of Felony Assaults Rises Again**\
-`Killings and shootings have dropped, but headlines have been dominated by terrifying crimes, like the killing of a woman who was burned to death on the F train.`\
-https://nytimes.com/2025/01/06/nyregion/nyc-crime-2024.html
 
