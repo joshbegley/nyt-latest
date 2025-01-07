@@ -1,3 +1,7 @@
+**Canadiens' win over Canucks dripping with symbolism of their journey to relevance**\
+`From Kirby Dach to Lane Hutson to Kaiden Guhle to Cole Caufield, there was a lot of meaning to draw from a Canadiens win over the Canucks. `\
+https://nytimes.com/athletic/6043571/2025/01/07/canadiens-canucks-nhl-win-caufield-dach-newhook/
+
 **Drug Company to Share Revenues With Indigenous People Who Donated Their Genes**\
 `Variant Bio, a small biotech company based in Seattle, is using genetic information from Indigenous people to develop drugs for obesity and diabetes.`\
 https://nytimes.com/2025/01/07/health/variant-bio-novo-nordisk-indigenous-revenue-sharing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042008/2025/01/07/nfl-coaching-carousel-vrabel-joh
 **Dortmund consider loan move for Rashford from Man United**\
 `Borussia Dortmund are among a number of clubs considering a move to sign Marcus Rashford on loan from Manchester United this month.`\
 https://nytimes.com/athletic/6043765/2025/01/07/manchester-united-marcus-rashford-dortmund/
-
-**The Next Congress**\
-`We explore the disagreements that could define the new Congress — and potentially derail Donald Trump’s agenda.`\
-https://nytimes.com/2025/01/07/briefing/republican-congress-trump-mike-johnson.html
 
