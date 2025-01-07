@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/07/business/samuele-landi-offshore-seastead.html
 
 **Abortion Pills Prescribed by Pharmacists Are Newest Effort in Abortion Fight**\
 `Washington State’s program is the first, but other states are expected to try allowing pharmacists to prescribe the pills to counter growing efforts to curtail abortion access.`\
-https://nytimes.com/2025/01/07/health/abortion-pills-pharmacist-presribe.html
+https://nytimes.com/2025/01/07/health/abortion-pills-pharmacist-prescribe.html
 
 **Do Football Fans Really Want to Be Fashionable?**\
 `Emma Grede of Skims and Good American and Kristin Juszczyk say the answer is yes.`\
@@ -22,7 +22,7 @@ https://nytimes.com/2025/01/07/style/emma-grede-kristin-juszczyk-off-season.html
 `Five other people, including four firefighters, were taken to the hospital with injuries from the fire.`\
 https://nytimes.com/2025/01/07/us/honolulu-fire-fighter-dead.html
 
-**49ers fire special teams coordinator Brian Schneider: Reports**\
+**49ers fire special teams coordinator Brian Schneider**\
 `Schneider was hired by Kyle Shanahan in 2022 and the 49ers' run of flat special teams play continued under his watch. `\
 https://nytimes.com/athletic/6039186/2025/01/07/brian-schneider-fired-49ers-special-teams-coordinator/
 
