@@ -1,3 +1,7 @@
+**Man Utd's Ladd and Watson set for Everton moves**\
+`Everton are set to sign Manchester United midfielders Hayley Ladd on a permanent deal and Emma Watson on loan until the end of the season.`\
+https://nytimes.com/athletic/6043624/2025/01/07/ladd-watson-manchester-united-everton/
+
 **Latest Alabama football roster breakdown: Where the Tide stand as QB questions lead the way**\
 `Who follows Jalen Milroe? On the offensive line, there’s both optimism and concern.`\
 https://nytimes.com/athletic/6043118/2025/01/07/alabama-football-roster-breakdown-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/arts/television/lockerbie-a-search-for-truth-coli
 **Blue Jackets' Kent Johnson now has the NHL's attention, forcing him to adjust**\
 `It doesn't take many multi-point games before the rest of the league takes notice, and Johnson is learning to adapt.`\
 https://nytimes.com/athletic/6043130/2025/01/07/blue-jackets-kent-johnson-adjustment/
-
-**Meet the 30-year-old play caller behind college basketball's No. 1 offense**\
-`Ahead of its Tuesday game at Texas, No. 2 Auburn leads the country in adjusted offensive efficiency, per KenPom, a first in program history.`\
-https://nytimes.com/athletic/6036419/2025/01/07/auburn-basketball-offense-coordinator-mike-burgomaster/
 
