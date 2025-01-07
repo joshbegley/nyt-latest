@@ -1,3 +1,7 @@
+**49ers' Ward not sure about return to SF following traumatic personal year**\
+`"Every time I get on a plane to come back to California, San Jose, here, it’s just a bad memory," Ward said.`\
+https://nytimes.com/athletic/6044016/2025/01/07/49ers-charvarius-ward-return-trauma/
+
 **Bills championship window wide open as stumbling, bumbling AFC East foes struggle to find their way**\
 `The Bills have become a model franchise while the rest of the division is in shambles.`\
 https://nytimes.com/athletic/6043844/2025/01/07/bills-super-bowl-window-culture-afc-east/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/business/samuele-landi-offshore-seastead.html
 **Abortion Pills Prescribed by Pharmacists Are Newest Effort in Abortion Fight**\
 `Washington State’s program is the first, but other states are expected to try allowing pharmacists to prescribe the pills to counter growing efforts to curtail abortion access.`\
 https://nytimes.com/2025/01/07/health/abortion-pills-pharmacist-prescribe.html
-
-**Do Football Fans Really Want to Be Fashionable?**\
-`Emma Grede of Skims and Good American and Kristin Juszczyk say the answer is yes.`\
-https://nytimes.com/2025/01/07/style/emma-grede-kristin-juszczyk-off-season.html
 
