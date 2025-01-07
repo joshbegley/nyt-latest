@@ -1,3 +1,11 @@
+**Arteta says Arsenal can still win semi-final if they adapt to “tricky” ball**\
+`Mikel Arteta lamented Arsenal’s inefficiency in front of goal compared to Newcastle and Alexander Isak, but backed his players to turn around the 2-0 Carabao Cup deficit &#8211; so long as they adapt to the “tricky” ball being used in the competition.`\
+https://nytimes.com/athletic/6045469/2025/01/07/arsenal-newcastle-arteta-carabao-cup-ball/
+
+**Shohei Ohtani's former interpreter has sentencing delayed awaiting psychologist's report**\
+`Mizhuara’s lawyers on Tuesday asked the court for the delay so a forensic psychologist could complete a report about Mizhuara's gambling.`\
+https://nytimes.com/athletic/6045394/2025/01/07/ippei-mizuhara-sentencing-delay-psychological-report/
+
 **Shohei Ohtani former interpreter Ippei Mizuhara has sentencing for fraud delayed a third time**\
 `Mizhuara’s lawyers on Tuesday asked the court for the delay so a forensic psychologist could complete a report about Mizhuara's gambling.`\
 https://nytimes.com/athletic/6045394/2025/01/07/ippei-mizuhara-sentencing-delay-psychological-report/
