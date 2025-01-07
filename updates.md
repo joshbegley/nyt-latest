@@ -1,3 +1,11 @@
+**Dortmund consider loan move for Rashford from Man United**\
+`Borussia Dortmund are among a number of clubs considering a move to sign Marcus Rashford on loan from Manchester United this month.`\
+https://nytimes.com/athletic/6043765/2025/01/07/manchester-united-marcus-rashford-dortmund/
+
+**The Next Congress**\
+`We explore the disagreements that could define the new Congress — and potentially derail Donald Trump’s agenda.`\
+https://nytimes.com/2025/01/07/briefing/republican-congress-trump-mike-johnson.html
+
 **Micah Parsons' plan for Cowboys to be playoff-contending team next season**\
 `Micah Parsons would like the Cowboys to be aggressive in free agency and re-sign some of their own defensive free agents.`\
 https://nytimes.com/athletic/6043636/2025/01/07/micah-parsons-cowboys-future-jerry-jones/

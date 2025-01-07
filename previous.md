@@ -1,3 +1,11 @@
+**Dortmund consider loan move for Rashford from Man United**\
+`Borussia Dortmund are among a number of clubs considering a move to sign Marcus Rashford on loan from Manchester United this month.`\
+https://nytimes.com/athletic/6043765/2025/01/07/manchester-united-marcus-rashford-dortmund/
+
+**The Next Congress**\
+`We explore the disagreements that could define the new Congress — and potentially derail Donald Trump’s agenda.`\
+https://nytimes.com/2025/01/07/briefing/republican-congress-trump-mike-johnson.html
+
 **Micah Parsons' plan for Cowboys to be playoff-contending team next season**\
 `Micah Parsons would like the Cowboys to be aggressive in free agency and re-sign some of their own defensive free agents.`\
 https://nytimes.com/athletic/6043636/2025/01/07/micah-parsons-cowboys-future-jerry-jones/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6042497/2025/01/07/red-wings-todd-mclellan-new-coac
 **What I'm hearing about the Penguins' trade deadline plans**\
 `A look at which players may — or may not be — on the move in the next two months.`\
 https://nytimes.com/athletic/6040729/2025/01/07/penguins-trade-deadline-rakell-pettersson/
-
-**Maple Leafs midseason report cards: Who earned top grades in the first half?**\
-`With the season at the halfway point and the Leafs on top of the Atlantic, individual performances are due for review.`\
-https://nytimes.com/athletic/6041805/2025/01/07/maple-leafs-midseason-report-cards-2024-25/
-
-**In ‘Lockerbie: A Search for Truth,’ Colin Firth Wants Answers**\
-`A new Peacock mini-series dramatizes a father’s obsessive investigation into Britain’s worst terrorist attack: the 1988 bombing of Pan Am Flight 103.`\
-https://nytimes.com/2025/01/07/arts/television/lockerbie-a-search-for-truth-colin-firth.html
 
