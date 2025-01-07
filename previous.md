@@ -1,3 +1,11 @@
+**Pippa Garner, Conceptual Artist With a Satirical Streak, Dies at 82**\
+`Her witty drawings, arresting sculptures and outlandish gadgets commented on consumerism, gender relations (she had transitioned) American car culture and more.`\
+https://nytimes.com/2025/01/07/arts/pippa-garner-dead.html
+
+**Texas president Jay Hartzell leaves for same job at SMU**\
+`Hartzell was one of the key figures in the Longhorns’ move to the Southeastern Conference.`\
+https://nytimes.com/athletic/6044697/2025/01/07/jay-hartzell-texas-president-smu/
+
 **Wave coach Eidevall says he has 'no relationship' with USWNT's Hayes after clash last year**\
 `San Diego Wave’s new head coach Jonas Eidevall says he has “no relationship” with his United States Women counterpart Emma Hayes following their clash in England last year.`\
 https://nytimes.com/athletic/6044519/2025/01/07/emma-hayes-jonas-eidevall-wave-uswnt/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009912016/syria-flights-resume.
 **Man accused in deaths of Johnny, Matthew Gaudreau pleads not guilty**\
 `Sean M. Higgins pleaded not guilty to all charges, including first-degree aggravated manslaughter, in an arraignment hearing Tuesday.`\
 https://nytimes.com/athletic/6044507/2025/01/07/johnny-matthew-gaudreau-deaths-charges-plea/
-
-**Wordle Review No. 1,299**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 8, 2025.`\
-https://nytimes.com/2025/01/07/crosswords/wordle-review-1299.html
-
-**Playing the hits: From zeroRB to Brian Thomas, what went right in fantasy football 2024**\
-`Michael Salfino looks at what went right in fantasy football 2024, including a rule about rookies that was underscored by Brian Thomas Jr. `\
-https://nytimes.com/athletic/6043518/2025/01/07/fantasy-football-2024-zerorb-brian-thomas/
 
