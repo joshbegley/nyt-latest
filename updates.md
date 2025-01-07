@@ -1,3 +1,7 @@
+**Meta Moves to End Fact-Checking Program**\
+`The social networking giant will stop using third-party fact checkers and instead rely on users to add notes or corrections to posts. It is likely to please the Trump administration.`\
+https://nytimes.com/2025/01/07/business/meta-fact-checking-conservative-views.html
+
 **Trump Transition Live Updates: Trump to Hold News Conference at Mar-a-Lago**\
 ``\
 https://nytimes.com/live/2025/01/07/us/trump-news
