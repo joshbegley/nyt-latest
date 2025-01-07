@@ -1,3 +1,31 @@
+**Fox Sports, Skip Bayless sued by hairstylist alleging sexual harassment**\
+`The woman who filed the lawsuit alleged Bayless made unwanted sexual advances toward her and offered her $1.5 million for sex. `\
+https://nytimes.com/athletic/6042666/2025/01/07/fox-sports-skip-bayless-sued-lawsuit/
+
+**Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
+`Michigan wrapped up its 2024 football season with a pair of upsets of Ohio State and Alabama. What's on your mind now?`\
+https://nytimes.com/athletic/6044222/2025/01/07/michigan-wolverines-mailbag-questions/
+
+**Bucks' Ones: Giannis' passing, Khris Middleton's performance, team energy and focus**\
+`Against the Raptors, the Bucks shot 50 percent from 3. They could thank Antetokounmpo for making quick and correct decisions with the ball.`\
+https://nytimes.com/athletic/6042380/2025/01/07/giannis-khris-middleton-bucks-trends/
+
+**Jan. 10: Blue Origin’s New Glenn rocket could attempt its debut launch.**\
+`By Michael Roston`\
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/jan-10-blue-origins-new-glenn-rocket-could-attempt-its-debut-launch
+
+**Golden Globes Audience Declines Slightly**\
+`The show on Sunday averaged 9.3 million viewers, down from 9.4 million the year before.`\
+https://nytimes.com/2025/01/07/business/media/golden-globes-ratings.html
+
+**What Is the U.K. ‘Grooming Gang’ Scandal Seized On by Elon Musk?**\
+`The billionaire tech mogul has been posting on his social media platform about a decade-old child sex abuse scandal in Britain. Here’s what to know.`\
+https://nytimes.com/2025/01/07/world/europe/uk-grooming-gangs-elon-musk.html
+
+**Bryn Terfel, Suave and Thundering, Is Back at the Met After 13 Years**\
+`The booming bass-baritone stars in Puccini’s “Tosca” after ill-timed injuries kept him away from the Metropolitan Opera, where he was a perennial favorite.`\
+https://nytimes.com/2025/01/07/arts/music/bryn-terfel-tosca-met-opera.html
+
 **Zuckerberg is preparing for the second Trump presidency differently than he did for the first.**\
 `By Theodore Schleifer and Mike Isaac`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/zuckerberg-is-preparing-for-the-second-trump-presidency-differently-than-he-did-for-the-first
@@ -9,32 +37,4 @@ https://nytimes.com/live/2025/01/07/business/meta-fact-checking/social-media-com
 **Chris Finch bites the bullet and unveils a new starting lineup for struggling Wolves**\
 `A move like the one Finch made on Monday is not just a basketball decision. It is a political one.`\
 https://nytimes.com/athletic/6043168/2025/01/07/timberwolves-lineup-change-donte-divincenzo-mike-conley/
-
-**49ers' Ward not sure about return to SF following traumatic personal year**\
-`"Every time I get on a plane to come back to California, San Jose, here, it’s just a bad memory," Ward said.`\
-https://nytimes.com/athletic/6044016/2025/01/07/49ers-charvarius-ward-return-trauma/
-
-**Bills championship window wide open as stumbling, bumbling AFC East foes struggle to find their way**\
-`The Bills have become a model franchise while the rest of the division is in shambles.`\
-https://nytimes.com/athletic/6043844/2025/01/07/bills-super-bowl-window-culture-afc-east/
-
-**Cunha offered to pay for Ipswich staff member's glasses after post-match clash**\
-`Wolverhampton Wanderers striker Matheus Cunha offered to pay for replacement glasses for the Ipswich Town staff member he clashed with in a heated post-match clash that brought him a two-game ban, a report has revealed.`\
-https://nytimes.com/athletic/6044093/2025/01/07/matheus-cunha-ipswich-wolves-ban-glasses/
-
-**Exxon Sues California Official, Claiming He Defamed the Company**\
-`The lawsuit, an unusual strategy for the oil giant, comes after California’s attorney general sued Exxon last year alleging it misled the public about plastics recycling.`\
-https://nytimes.com/2025/01/07/climate/exxon-bonta-california-defamation-lawsuit.html
-
-**Washington Post Lays Off 4 Percent of Its Work Force**\
-`The layoffs will affect employees across The Post’s business operations, not its newsroom.`\
-https://nytimes.com/2025/01/07/business/media/washington-post-layoffs.html
-
-**Live Updates: Meta to End Fact-Checking Program in Shift Ahead of Trump Term**\
-`The social networking giant will stop using third-party fact checkers on Facebook, Threads and Instagram and instead rely on users to add notes to posts. It is likely to please President-elect Trump and his allies.`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking
-
-**2 Bodies Found in JetBlue Plane’s Landing Gear at Fort Lauderdale Airport**\
-`A routine post-flight inspection revealed two bodies in the landing gear compartment of a JetBlue plane after a flight from New York on Monday, the airline said.`\
-https://nytimes.com/2025/01/07/us/stowaway-bodies-flight-jetblue-ny-florida.html
 
