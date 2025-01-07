@@ -1,9 +1,17 @@
+**What Will Power the A.I. Revolution?**\
+`The energy that will power the booming data-center industry could end up increasing emissions, at least in the short term.`\
+https://nytimes.com/2025/01/07/climate/artificial-intelligence-power-emissions.html
+
+**Tech watchdogs warn Meta’s decision could cause a surge in disinformation.**\
+`By Danielle Kaye`\
+https://nytimes.com/2025/01/07/business/trump-meta-disinformation.html
+
 **This Bears coaching search looks like a case of too many cooks in the kitchen**\
 `The Bears' search for their next coach will involve more than GM Ryan Poles, president/CEO Kevin Warren and chairman George McCaskey.`\
 https://nytimes.com/athletic/6044831/2025/01/07/chicago-bears-coaching-search-ryan-poles/
 
 **Live Updates: Wildfires Erupt in Los Angeles, Driven by Fierce Winds**\
-`Rapidly spreading flames, fanned by gusts of up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
+`Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
 
 **Trump Promises to End New Wind Farms**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009912859/trump-panama-greenland-can
 **Northern Illinois approves football program's move to Mountain West**\
 `The league’s football members will include Air Force, Hawaii, Nevada, New Mexico, Northern Illinois, San Jose State, UNLV, UTEP and Wyoming.`\
 https://nytimes.com/athletic/6044708/2025/01/07/northern-illinois-mountain-west-realignment/
-
-**The South Braces for a Potentially Disruptive Round of Snow and Ice**\
-`Just after the season’s first major winter storm, snow and ice are set to sweep across Texas and into the Carolinas this week.`\
-https://nytimes.com/2025/01/07/weather/texas-snow-ice-forecast.html
-
-**Mark Zuckerberg’s history of moving Meta toward where the political wind blows.**\
-`By Mike Isaac`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/mark-zuckerbergs-history-of-moving-meta-toward-where-the-political-wind-blows
 
