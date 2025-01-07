@@ -1,3 +1,7 @@
+**49ers' Ward not sure about return to SF following traumatic personal year**\
+`"Every time I get on a plane to come back to California, San Jose, here, it’s just a bad memory," Ward said.`\
+https://nytimes.com/athletic/6044016/2025/01/07/49ers-charvarius-ward-return-trauma/
+
 **Bills championship window wide open as stumbling, bumbling AFC East foes struggle to find their way**\
 `The Bills have become a model franchise while the rest of the division is in shambles.`\
 https://nytimes.com/athletic/6043844/2025/01/07/bills-super-bowl-window-culture-afc-east/
