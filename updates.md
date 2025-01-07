@@ -1,3 +1,7 @@
+**Trump Again Hints at Jan. 6 Pardons, Including for Attacks on Police**\
+`At a news conference, the president-elect sought to blame the F.B.I. for the riot at the Capitol, echoing a conspiracy theory that is widespread on the right.`\
+https://nytimes.com/2025/01/07/us/politics/trump-jan-6-pardons-violence.html
+
 **Mark Gronowski, former South Dakota State QB, transfers to Iowa**\
 `Gronowski led South Dakota State to FCS national championships in 2022 and 2023.`\
 https://nytimes.com/athletic/6039796/2025/01/07/mark-gronowski-iowa-college-football-transfer-quarterback/
