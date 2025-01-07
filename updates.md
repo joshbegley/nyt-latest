@@ -1,3 +1,11 @@
+**Trump Transition Live Updates: Trump Expected to Hold News Conference at Mar-a-Lago**\
+``\
+https://nytimes.com/live/2025/01/07/us/trump-news
+
+**Trump is expected to hold his second news conference since winning the election.**\
+`The expected topic is an economic development, b`\
+https://nytimes.com/live/2025/01/07/us/trump-news/trump-news-conference
+
 **Firefighter Is Killed After Roof Partly Collapses in Honolulu Blaze**\
 `Five other people, including four firefighters, were taken to the hospital with injuries from the fire.`\
 https://nytimes.com/2025/01/07/us/honolulu-fire-fighter-dead.html

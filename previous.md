@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6037281/2025/01/07/bournemouth-transfers-julio-sole
 `Nottingham Forest are in talks over extending defender Murillo’s contract.`\
 https://nytimes.com/athletic/6043726/2025/01/07/murillo-contract-nottingham-forest/
 
-**Trump Transition Live Updates: Trump to Hold News Conference at Mar-a-Lago**\
+**Trump Transition Live Updates: Trump Expected to Hold News Conference at Mar-a-Lago**\
 ``\
 https://nytimes.com/live/2025/01/07/us/trump-news
 
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6040897/2025/01/07/nfl-week-18-worst-best-coaching-
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/01/07/learning/07StudentNewsQuizLN.html
 
-**Trump is expected to hold a news conference on Tuesday morning.**\
+**Trump is expected to hold his second news conference since winning the election.**\
 `The expected topic is an economic development, b`\
 https://nytimes.com/live/2025/01/07/us/trump-news/trump-news-conference
 
