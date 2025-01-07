@@ -1,3 +1,7 @@
+**2 Bodies Found in JetBlue Plane’s Landing Gear at Fort Lauderdale Airport**\
+`A routine post-flight inspection revealed two bodies in the landing gear compartment of a JetBlue plane after a flight from New York on Monday, the airline said.`\
+https://nytimes.com/2025/01/07/us/stowaway-bodies-flight-jetblue-ny-florida.html
+
 **Bryn Terfel, Suave and Thundering, Is Back at the Met After 13 Years**\
 `The booming bass-baritone stars in Puccini’s “Tosca” after ill-timed injuries kept him away from the Metropolitan Opera, where he was a perennial favorite.`\
 https://nytimes.com/2025/01/07/arts/music/bryn-terfel-tosca-met-opera.html
