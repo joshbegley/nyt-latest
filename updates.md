@@ -1,3 +1,15 @@
+**Bills championship window wide open as stumbling, bumbling AFC East foes struggle to find their way**\
+`The Bills have become a model franchise while the rest of the division is in shambles.`\
+https://nytimes.com/athletic/6043844/2025/01/07/bills-super-bowl-window-culture-afc-east/
+
+**Cunha offered to pay for Ipswich staff member's glasses after post-match clash**\
+`Wolverhampton Wanderers striker Matheus Cunha offered to pay for replacement glasses for the Ipswich Town staff member he clashed with in a heated post-match clash that brought him a two-game ban, a report has revealed.`\
+https://nytimes.com/athletic/6044093/2025/01/07/matheus-cunha-ipswich-wolves-ban-glasses/
+
+**Live Updates: Meta to End Fact-Checking Program in Shift Ahead of Trump Term**\
+`The social networking giant will stop using third-party fact checkers on Facebook, Threads and Instagram and instead rely on users to add notes to posts. It is likely to please President-elect Trump and his allies.`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking
+
 **Exxon Sues California Official, Claiming He Defamed the Company**\
 `The lawsuit, an unusual strategy for the oil giant, comes after California’s attorney general sued Exxon last year alleging it misled the public about plastics recycling.`\
 https://nytimes.com/2025/01/07/climate/exxon-bonta-california-defamation-lawsuit.html
