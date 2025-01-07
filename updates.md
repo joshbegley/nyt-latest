@@ -1,3 +1,11 @@
+**Trump Warns ‘All Hell Will Break Out’ if Hostages in Gaza Are Not Freed**\
+`The president-elect did not elaborate on what actions he might take if the captives are not released by the time he takes office.`\
+https://nytimes.com/2025/01/07/us/politics/trump-hostages-hamas.html
+
+**With Trump Coveting Greenland, Denmark Updated Its Coat of Arms**\
+`Before President-elect Donald Trump’s latest remarks, King Frederik X signaled his commitment to the territory in a decidedly old-fashioned way.`\
+https://nytimes.com/2025/01/07/style/denmark-coat-of-arms-trump-greenland.html
+
 **Celebrities flee their homes as the fire forces more evacuations.**\
 `By Derrick Bryson Taylor`\
 https://nytimes.com/2025/01/07/us/celebrities-flee-their-homes-as-the-fire-forces-more-evacuations.html

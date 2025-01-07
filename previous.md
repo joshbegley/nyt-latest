@@ -1,3 +1,11 @@
+**Trump Warns ‘All Hell Will Break Out’ if Hostages in Gaza Are Not Freed**\
+`The president-elect did not elaborate on what actions he might take if the captives are not released by the time he takes office.`\
+https://nytimes.com/2025/01/07/us/politics/trump-hostages-hamas.html
+
+**With Trump Coveting Greenland, Denmark Updated Its Coat of Arms**\
+`Before President-elect Donald Trump’s latest remarks, King Frederik X signaled his commitment to the territory in a decidedly old-fashioned way.`\
+https://nytimes.com/2025/01/07/style/denmark-coat-of-arms-trump-greenland.html
+
 **Celebrities flee their homes as the fire forces more evacuations.**\
 `By Derrick Bryson Taylor`\
 https://nytimes.com/2025/01/07/us/celebrities-flee-their-homes-as-the-fire-forces-more-evacuations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6044329/2025/01/07/richarlison-injury-arsenal/
 **Report Faults Trump Officials Over Coronavirus Inquiry in New York and New Jersey**\
 `While the findings are dated, they come as many current and former Justice Department officials fear that the incoming Trump administration will run the department with an eye toward score-settling.`\
 https://nytimes.com/2025/01/07/us/politics/justice-dept-coronavirus-deaths-nursing-homes.html
-
-**Why Does Trump Want Greenland?**\
-`The president-elect said the United States needed the island, which is a semiautonomous part of Denmark, for national security reasons. But there are other possible interests.`\
-https://nytimes.com/2025/01/07/us/politics/trump-greenland.html
-
-**Trump Again Hints at Jan. 6 Pardons, Including for Attacks on Police**\
-`At a news conference, the president-elect sought to blame the F.B.I. for the riot at the Capitol, echoing a conspiracy theory that is widespread on the right.`\
-https://nytimes.com/2025/01/07/us/politics/trump-jan-6-pardons-violence.html
 
