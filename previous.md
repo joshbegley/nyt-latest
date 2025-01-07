@@ -1,3 +1,11 @@
+**American Driver Is Fatally Shot by Police Officer in Mexico**\
+`The shooting in Ciudad Juárez was being investigated. A prosecutor said the driver, from Texas, had accelerated in the officer’s direction and nearly hit him.`\
+https://nytimes.com/2025/01/06/world/americas/mexico-police-shooting-american.html
+
+**Elon Musk, the Most Powerful Troll on Earth, Targets the U.K.**\
+`The billionaire is exploiting old atrocities to undermine his enemies.`\
+https://nytimes.com/2025/01/06/opinion/elon-musk-britain-sex-trafficking.html
+
 **Colts defensive coordinator search: 10 potential candidates to replace Gus Bradley**\
 `Our list includes a few former head coaches and a handful of rising stars in the coaching ranks. `\
 https://nytimes.com/athletic/6037699/2025/01/06/colts-defensive-coordinator-candidates-gus-bradley/
@@ -21,7 +29,7 @@ https://nytimes.com/interactive/2025/travel/places-to-travel-destinations-2025.h
 https://nytimes.com/2025/01/06/us/politics/jan-6-pelosi-trump.html
 
 **Shooter at Honduran Consulate in Georgia Kills One and Injures Another**\
-`The police arrested the person they believe opened fire outside the entrance to the consulate, which is near Atlanta.`\
+`The police arrested a person who tried to enter the consulate with a weapon, and then opened fire outside the entrance to the building, which is near Atlanta.`\
 https://nytimes.com/2025/01/06/us/honduras-consulate-shooting-atlanta.html
 
 **Colts part ways with DC Gus Bradley after 3 seasons**\
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6027862/2025/01/06/colts-fire-gus-bradley-defensive
 **Colts, Jim Irsay could have made major changes. Here’s why they chose continuity instead**\
 `Frustrating though it may be, there's some logic behind the Colts sticking with Chris Ballard, Shane Steichen and Anthony Richardson. `\
 https://nytimes.com/athletic/6042652/2025/01/06/colts-jim-irsays-anthony-richardson-chris-ballard/
-
-**Buckley: Robert Kraft owns up for world to see ... Patriots aren't what they used to be**\
-`Kraft did the only thing he could do after the Jerod Mayo firing. He took blame for the "situation" and set out to fix his fallen franchise.`\
-https://nytimes.com/athletic/6042934/2025/01/06/patriots-robert-kraft-owner-takes-blame-jerod-mayo/
-
-**U.S. Envoy Says Israel Will Withdraw From Southern Lebanon**\
-`With the deadline looming for the terms of a fragile cease-fire between Israel and Hezbollah to be met, an American diplomat on Monday said “much progress” had been made recently.`\
-https://nytimes.com/2025/01/06/world/middleeast/israel-lebanon-ceasefire-hezbollah-withdraw.html
 
