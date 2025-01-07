@@ -1,7 +1,3 @@
-**Trump Again Hints at Jan. 6 Pardons, Including for Attacks on Police**\
-`At a news conference, the president-elect sought to blame the F.B.I. for the riot at the Capitol, echoing a conspiracy theory that is widespread on the right.`\
-https://nytimes.com/2025/01/07/us/politics/trump-jan-6-pardons-violence.html
-
 **Mark Gronowski, former South Dakota State QB, transfers to Iowa**\
 `Gronowski led South Dakota State to FCS national championships in 2022 and 2023.`\
 https://nytimes.com/athletic/6039796/2025/01/07/mark-gronowski-iowa-college-football-transfer-quarterback/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california/in-decem
 **They Met as Child Actors in ‘School of Rock.’ Now They’re Married.**\
 `Angelo Massagli and Caitlin Hale bonded as classmates in the 2003 Jack Black film. They brought the cast back together for their wedding.`\
 https://nytimes.com/2025/01/07/style/school-of-rock-caitlin-hale-angelo-massagli-wedding.html
+
+**How to Create a Compelling Collection: A Guide to Our New ‘My List’ Contest**\
+`Step-by-step instructions for coming up with an engaging list of recommendations for things we should — or shouldn’t — read, watch, experience, eat or listen to.`\
+https://nytimes.com/2025/01/07/learning/how-to-create-a-compelling-collection-a-guide-to-our-new-my-list-contest.html
 
