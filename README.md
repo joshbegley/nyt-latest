@@ -1,3 +1,15 @@
+**Santos return, Miami with Messi or staying at Al Hilal: What now for Neymar after Saudi frustration?**\
+`The Brazilian's time at Al Hilal has been blighted by injury and with his contract expiring this summer both parties have a decision to make`\
+https://nytimes.com/athletic/6041270/2025/01/07/what-now-for-neymar-saudi-miami-messi/
+
+**Explained: How in-stadium VAR announcements will work in Carabao Cup semi-finals**\
+`Referees will speak directly to supporters after major VAR incidents for the first time during this week's Carabao Cup matches`\
+https://nytimes.com/athletic/6042629/2025/01/07/var-stadium-announcements-explained/
+
+**Ranking the 50 players most likely to be selected for England's Euro 2025 squad**\
+`With six months to go until England begin their Euros defence, Michael Cox assesses the claims of the players in contention to feature`\
+https://nytimes.com/athletic/6015900/2025/01/07/england-squad-euro-2025-ranked/
+
 **Tuesday Briefing**\
 `Justin Trudeau will step down as Canada’s prime minister.`\
 https://nytimes.com/2025/01/07/briefing/trudeau-syria-russia.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6043162/2025/01/06/canucks-jt-miller-quinn-hughes-c
 **Defense Lawyers Seek to Block Special Counsel Report in Trump Documents Case**\
 `Both the Justice Department and the judge who oversaw the case were asked to stop the public release of the report.`\
 https://nytimes.com/2025/01/06/us/politics/trump-classified-documents-case-jack-smith.html
-
-**Pentagon Adds Chinese Social Media Giant to Military Blacklist**\
-`Tencent’s shares plunged nearly 10 percent after it was designated a military company. The Chinese battery manufacturer CATL was also added to the list.`\
-https://nytimes.com/2025/01/06/business/us-chinese-military-companies-tencent-catl.html
-
-**North Dakota State edges Montana State 35-32 for 10th FCS title**\
-`The showdown between North Dakota State QB Cam Miller and Montana State QB Tommy Mellott lived up to the billing.`\
-https://nytimes.com/athletic/6043201/2025/01/06/north-dakota-state-montana-state-fcs-championship-2025/
-
-**Law: Reds make their offense a little richer with Gavin Lux**\
-`The Reds can use Lux as a utility player who hits well against righties. The Dodgers get a 2024 third-round pick plus another pick in 2025.`\
-https://nytimes.com/athletic/6043336/2025/01/06/gavin-lux-trade-analysis-reds-dodgers/
 
