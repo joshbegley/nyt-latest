@@ -1,11 +1,3 @@
-**Super Bowl odds: Which teams are the biggest threat to Detroit and Kansas City?**\
-`Breaking down which teams have the best shot at upsetting the Super Bowl favorites.`\
-https://nytimes.com/athletic/6044419/2025/01/07/super-bowl-odds-nfl-playoffs-detroit-kansas-city/
-
-**Lions expect RB David Montgomery to play in divisional round**\
-`Montgomery opted to rehab a knee injury instead of undergoing season-ending surgery in hopes of returning for the playoffs.`\
-https://nytimes.com/athletic/6044947/2025/01/07/david-montgomery-return-lions-playoffs/
-
 **What Will Power the A.I. Revolution?**\
 `The energy that will power the booming data-center industry could end up increasing emissions, at least in the short term.`\
 https://nytimes.com/2025/01/07/climate/artificial-intelligence-power-emissions.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/01/07/style/sneakers-new-balance-snoafers.html
 **Biden Won’t Point to a Key Culprit in the Sudanese Genocide**\
 `Why are Biden and his aides reluctant to hold a crucial culprit accountable?`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/biden-sudan-genocide
+
+**Trump Suggests U.S. Expansion Into Greenland and Canada**\
+`During a news conference at Mar-a-Lago on Tuesday, President-elect Donald J. Trump refused to rule out using military force to retake the Panama Canal.`\
+https://nytimes.com/video/us/politics/100000009912859/trump-panama-greenland-canada.html
+
+**Northern Illinois approves football program's move to Mountain West**\
+`The league’s football members will include Air Force, Hawaii, Nevada, New Mexico, Northern Illinois, San Jose State, UNLV, UTEP and Wyoming.`\
+https://nytimes.com/athletic/6044708/2025/01/07/northern-illinois-mountain-west-realignment/
 
