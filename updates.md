@@ -1,3 +1,7 @@
+**Biden Won’t Point to the Real Culprit in the Sudanese Genocide**\
+`Why are Biden and his aides reluctant to hold a crucial culprit accountable?`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/biden-sudan-genocide
+
 **Trump Suggests U.S. Expansion Into Greenland and Canada**\
 `During a news conference at Mar-a-Lago on Tuesday, President-elect Donald J. Trump refused to rule out using military force to retake the Panama Canal.`\
 https://nytimes.com/video/us/politics/100000009912859/trump-panama-greenland-canada.html
