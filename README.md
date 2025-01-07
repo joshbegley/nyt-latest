@@ -1,7 +1,3 @@
-**Zuckerberg is preparing for the second Trump presidency differently than he did for the first.**\
-`By Theodore Schleifer and Mike Isaac`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/zuckerberg-is-preparing-for-the-second-trump-presidency-differently-than-he-did-for-the-first
-
 **Social media companies are facing a global tug of war over free speech.**\
 `By Cecilia Kang and Adam Satariano`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/social-media-companies-are-facing-a-global-tug-of-war-over-free-speech
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/01/07/business/meta-fact-checking
 **2 Bodies Found in JetBlue Plane’s Landing Gear at Fort Lauderdale Airport**\
 `A routine post-flight inspection revealed two bodies in the landing gear compartment of a JetBlue plane after a flight from New York on Monday, the airline said.`\
 https://nytimes.com/2025/01/07/us/stowaway-bodies-flight-jetblue-ny-florida.html
+
+**What EuroLeague and IMG's new deal means for the NBA and future of basketball in Europe**\
+`As whispers about the NBA's potential plans to expand to Europe grow, EuroLeague and IMG have agreed to a new deal. `\
+https://nytimes.com/athletic/6042164/2025/01/07/euroleague-img-deal-nba-basketball/
 
