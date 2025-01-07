@@ -1,3 +1,11 @@
+**Bournemouth sign defender Soler from Lanus**\
+`Bournemouth have confirmed the signing of defender Julio Soler from Argentine club Lanus.`\
+https://nytimes.com/athletic/6037281/2025/01/07/bournemouth-transfers-julio-soler/
+
+**Forest in talks over extending Murillo's contract**\
+`Nottingham Forest are in talks over extending defender Murillo’s contract.`\
+https://nytimes.com/athletic/6043726/2025/01/07/murillo-contract-nottingham-forest/
+
 **Meta Moves to End Fact-Checking Program**\
 `The social networking giant will stop using third-party fact checkers and instead rely on users to add notes or corrections to posts. It is likely to please the Trump administration.`\
 https://nytimes.com/2025/01/07/business/meta-fact-checking-conservative-views.html

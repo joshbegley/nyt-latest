@@ -1,3 +1,11 @@
+**Bournemouth sign defender Soler from Lanus**\
+`Bournemouth have confirmed the signing of defender Julio Soler from Argentine club Lanus.`\
+https://nytimes.com/athletic/6037281/2025/01/07/bournemouth-transfers-julio-soler/
+
+**Forest in talks over extending Murillo's contract**\
+`Nottingham Forest are in talks over extending defender Murillo’s contract.`\
+https://nytimes.com/athletic/6043726/2025/01/07/murillo-contract-nottingham-forest/
+
 **Trump Transition Live Updates: Trump to Hold News Conference at Mar-a-Lago**\
 ``\
 https://nytimes.com/live/2025/01/07/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6043843/2025/01/07/athletics-brent-rooker-extension
 **Syria’s Main Airport Handles First International Flights Since Fall of al-Assad**\
 `The country’s new leaders are pushing to restore a sense of normalcy. But Syria remains under a host of international sanctions imposed during the Assad regime.`\
 https://nytimes.com/2025/01/07/world/middleeast/syria-airport-damascus-international-flights.html
-
-**Jean-Marie Le Pen, Rabble-Rousing Leader of French Far Right, Dies at 96**\
-`He ran unsuccessfully for the French presidency five times, riding waves of discontent and xenophobia as the leader of the National Front party.`\
-https://nytimes.com/2025/01/07/world/europe/jean-marie-le-pen-dead.html
-
-**Canadiens' win over Canucks dripping with symbolism of their journey to relevance**\
-`From Kirby Dach to Lane Hutson to Kaiden Guhle to Cole Caufield, there was a lot of meaning to draw from a Canadiens win over the Canucks. `\
-https://nytimes.com/athletic/6043571/2025/01/07/canadiens-canucks-nhl-win-caufield-dach-newhook/
 
