@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 0 Newcastle 2 - Eddie Howe's greatest feat yet? What next for Arsenal?**\
+`Newcastle took a massive step towards a second League Cup final in three seasons with a hugely impressive 2-0 victory at Arsenal`\
+https://nytimes.com/athletic/6038924/2025/01/07/arsenal-0-newcastle-2-league-cup-semi-final/
+
+**Mourners gather in Washington amid extra security.**\
+`The authorities in the nation’s capital increased security measures in advance of the anniversary of the Jan. 6, 2021, attack on the Capitol and President-elect Donald J. Trump’s inauguration.`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/mourners-gather-in-washington-amid-extra-security
+
+**Greenberg: Bears exist in losing culture that defies logic. Theirs is a different reality**\
+`Here's a good tip for any Bears coaching candidate. You might want to stay far away from the Twilight Zone that is Halas Hall.`\
+https://nytimes.com/athletic/6044895/2025/01/07/chicago-bears-head-coach-search-kevin-warren-ryan-poles/
+
 **Rashford representatives hold talks with AC Milan over loan move**\
 `Marcus Rashford&#8217;s representatives have held exploratory talks with AC Milan about loaning the Manchester United forward in the January transfer window.`\
 https://nytimes.com/athletic/6045126/2025/01/07/rashford-milan-loan-man-utd/
