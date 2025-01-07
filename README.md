@@ -1,3 +1,15 @@
+**Raiders coaching candidates: Ben Johnson, Jon Gruden and 8 other potential fits**\
+`After firing Antonio Pierce, Raiders owner Mark Davis will turn to his sixth full-time head coach since becoming controlling owner in 2011.`\
+https://nytimes.com/athletic/6039279/2025/01/07/raiders-new-coach-candidates-search-ben-johnson/
+
+**How Barca's Olmo saga has fuelled Laporta criticism: 'We ask them to resign immediately'**\
+`Barca's president is feeling the effects of Olmo's registration issues, with several groups of members asking his board to step down`\
+https://nytimes.com/athletic/6044378/2025/01/07/barcelona-olmo-laporta-criticism/
+
+**Vinicius Jr given two-game ban after red card at Valencia**\
+`Vinicius Junior has been given a two-game suspension for violent conduct after he was sent off against Valencia.`\
+https://nytimes.com/athletic/6037553/2025/01/07/vinicius-jr-ban-suspension-real-madrid/
+
 **Wednesday Briefing: Meta Set to End Fact-Checking**\
 `Plus, 52 places to go this year`\
 https://nytimes.com/2025/01/07/briefing/trump-tibet-meta-sudan.html
@@ -6,8 +18,8 @@ https://nytimes.com/2025/01/07/briefing/trump-tibet-meta-sudan.html
 `On this week's "Scoop City" podcast, we discuss Miami's decision to keep its coach, and its star wide receiver's post-game comments.`\
 https://nytimes.com/athletic/6044716/2025/01/07/tyreek-hill-mike-mcdaniel-miami-dolphins/
 
-**Raiders fire coach Antonio Pierce after 2 seasons**\
-`HENDERSON, Nev.`\
+**Raiders fire Antonio Pierce, retain Tom Telesco after 4-win season**\
+`The Raiders (4-13) lost 10 straight games this year before winning two of their last three games.`\
 https://nytimes.com/athletic/5981817/2025/01/07/raiders-fire-head-coach-antionio-pierce/
 
 **Super Bowl odds: Which teams are the biggest threat to Detroit and Kansas City?**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/07/climate/artificial-intelligence-power-emissions.h
 **Tech Watchdogs Warn Meta’s Decision Could Cause Surge in Disinformation**\
 `While Republicans praised the move, some groups cautioned that effectively ending Meta’s fact-checking program would also lead to more conspiracy theories.`\
 https://nytimes.com/2025/01/07/business/trump-meta-disinformation.html
-
-**This Bears coaching search looks like a case of too many cooks in the kitchen**\
-`The Bears' search for their next coach will involve more than GM Ryan Poles, president/CEO Kevin Warren and chairman George McCaskey.`\
-https://nytimes.com/athletic/6044831/2025/01/07/chicago-bears-coaching-search-ryan-poles/
-
-**Live Updates: L.A. Wildfires Force Thousands to Evacuate Pacific Palisades**\
-`Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., threatened homes along the coastline.`\
-https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
-
-**Trump Promises to End New Wind Farms**\
-`Wind energy is one of the fastest growing and cheapest forms of electricity in the United States. The president-elect calls it “garbage.”`\
-https://nytimes.com/2025/01/07/climate/trump-wind-turbines.html
 
