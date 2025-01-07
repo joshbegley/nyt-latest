@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6044419/2025/01/07/super-bowl-odds-nfl-playoffs-det
 
 **Lions expect RB David Montgomery to play in divisional round**\
 `Montgomery opted to rehab a knee injury instead of undergoing season-ending surgery in hopes of returning for the playoffs.`\
-https://nytimes.com/athletic/6044947/2025/01/07/lions-expect-rb-david-montgomery-to-play-in-divisional-round-coach-dan-campbell-says/
+https://nytimes.com/athletic/6044947/2025/01/07/david-montgomery-return-lions-playoffs/
 
 **What Will Power the A.I. Revolution?**\
 `The energy that will power the booming data-center industry could end up increasing emissions, at least in the short term.`\
