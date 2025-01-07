@@ -1,3 +1,7 @@
+**Strong Earthquake Hits Western China**\
+`The 7.1-magnitude quake, which struck the Tibet region, was felt in neighboring Nepal. Chinese state media said there had been deaths in at least three townships.`\
+https://nytimes.com/2025/01/06/world/asia/china-tibet-nepal-quake.html
+
 **Full Time: Is the 2025 NWSL schedule out?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6043313/2025/01/06/nwsl-schedule-2025-womens-soccer-full-time/
