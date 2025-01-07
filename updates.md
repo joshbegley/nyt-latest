@@ -1,3 +1,7 @@
+**Venezuelan Opposition Candidate Says His Son-in-Law Was Kidnapped**\
+`Edmundo González, who is recognized by the United States as the president-elect of Venezuela, said his son-in-law was kidnapped by hooded men.`\
+https://nytimes.com/2025/01/07/world/americas/venezuela-gonzalez-son-in-law-kidnapped.html
+
 **Ireland Joins South Africa’s Genocide Case Against Israel**\
 `Ireland had said it would intervene in the case at the International Court of Justice, arguing that Israel’s actions in Gaza amounted to collective punishment.`\
 https://nytimes.com/2025/01/07/world/europe/ireland-icj-israel-genocide.html
