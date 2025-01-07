@@ -1,3 +1,7 @@
+**Bryn Terfel, Suave and Thundering, Is Back at the Met After 13 Years**\
+`The booming bass-baritone stars in Puccini’s “Tosca” after ill-timed injuries kept him away from the Metropolitan Opera, where he was a perennial favorite.`\
+https://nytimes.com/2025/01/07/arts/music/bryn-terfel-tosca-met-opera.html
+
 **Zuckerberg is preparing for the second Trump presidency differently than he did for the first.**\
 `By Theodore Schleifer and Mike Isaac`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/zuckerberg-is-preparing-for-the-second-trump-presidency-differently-than-he-did-for-the-first
