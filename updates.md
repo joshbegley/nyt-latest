@@ -1,3 +1,11 @@
+**In December, the Franklin fire brought terror to Malibu.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california/in-december-the-franklin-fire-brought-terror-to-malibu
+
+**They Met as Child Actors in ‘School of Rock.’ Now They’re Married.**\
+`Angelo Massagli and Caitlin Hale bonded as classmates in the 2003 Jack Black film. They brought the cast back together for their wedding.`\
+https://nytimes.com/2025/01/07/style/school-of-rock-caitlin-hale-angelo-massagli-wedding.html
+
 **How to Create a Compelling Collection: A Guide to Our New ‘My List’ Contest**\
 `Step-by-step instructions for coming up with an engaging list of recommendations for things we should — or shouldn’t — read, watch, experience, eat or listen to.`\
 https://nytimes.com/2025/01/07/learning/how-to-create-a-compelling-collection-a-guide-to-our-new-my-list-contest.html
