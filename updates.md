@@ -1,3 +1,7 @@
+**Two wins, one trophy and a big cigar later, Milan look a team reborn**\
+`An unlikely Italian Super Cup win has reinvigorated an ailing club — suddenly the future looks bright`\
+https://nytimes.com/athletic/6043007/2025/01/07/milan-italian-super-cup-sergio-conceicao/
+
 **Your 2025 Most-Anticipated List**\
 `What are you looking forward to this year?`\
 https://nytimes.com/2025/01/07/learning/your-2025-most-anticipated-list.html
