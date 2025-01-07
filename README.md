@@ -1,3 +1,7 @@
+**Two wins, one trophy and a big cigar later, Milan look a team reborn**\
+`An unlikely Italian Super Cup win has reinvigorated an ailing club - suddenly the future looks bright`\
+https://nytimes.com/athletic/6043007/2025/01/07/milan-italian-super-cup-sergio-conceicao/
+
 **Late Night Hosts Appreciate an Uneventful Jan. 6**\
 `Jimmy Kimmel called Monday “the fourth anniversary of our Capitol being stormed by the Buffalo Wild Wing of the Republican Party.”`\
 https://nytimes.com/2025/01/07/arts/television/late-night-capitol-riot-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6043495/2025/01/07/sabres-playoffs-first-half-capit
 **Welcome to the Jacob Murphy Appreciation Society. This is our time**\
 `He is Newcastle's leading assister and a player Eddie Howe relies on, yet the winger divides opinion like no one else at St James' Park`\
 https://nytimes.com/athletic/6041501/2025/01/07/jacob-murphy-appreciation-society-newcastle/
-
-**Why Manchester United and Tottenham want to sign Kolo Muani in January**\
-`The PSG forward has fallen out of favour at the French club and a move to the Premier League - or Serie A - could happen this month`\
-https://nytimes.com/athletic/6041940/2025/01/07/randal-kolo-muani-tottenham-man-utd/
 
