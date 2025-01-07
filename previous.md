@@ -1,3 +1,11 @@
+**Why Manchester United and Tottenham want to sign Kolo Muani in January**\
+`The PSG forward has fallen out of favour at the French club and a move to the Premier League - or Serie A - could happen this month`\
+https://nytimes.com/athletic/6041940/2025/01/07/randal-kolo-muani-tottenham-man-utd/
+
+**Why are footballers hiring private fitness coaches during the season - and is it a problem?**\
+`Despite the expertise and facilities available to players at their clubs, some still feel it’s necessary for them to extract marginal gains`\
+https://nytimes.com/athletic/6000688/2025/01/07/premier-league-players-prviate-coaches/
+
 **Santos return, Miami with Messi or staying at Al Hilal: What now for Neymar after Saudi frustration?**\
 `The Brazilian's time at Al Hilal has been blighted by injury and with his contract expiring this summer both parties have a decision to make`\
 https://nytimes.com/athletic/6041270/2025/01/07/what-now-for-neymar-saudi-miami-messi/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/pageoneplus/quote-of-the-day-opening-religion-to-
 **Read Defense Lawyers’ Arguments to Block a Trump Documents Case Report**\
 `Lawyers for President-elect Donald J. Trump urged the attorney general in a letter to stop the special counsel from publicly releasing a final report on the case, while lawyers for his co-defendants, in a court filing, asked the same of the judge who oversaw the case.`\
 https://nytimes.com/interactive/2025/01/06/us/govuscourtsflsd64865467903.html
-
-**How the Canucks threw away a third-period lead in Montreal: 3 takeaways**\
-`J.T. Miller had a hand in all four Canucks goals, but Vancouver was forced to settle for 1 point in a winnable game.`\
-https://nytimes.com/athletic/6043162/2025/01/06/canucks-jt-miller-quinn-hughes-canadiens/
-
-**Defense Lawyers Seek to Block Special Counsel Report in Trump Documents Case**\
-`Both the Justice Department and the judge who oversaw the case were asked to stop the public release of the report.`\
-https://nytimes.com/2025/01/06/us/politics/trump-classified-documents-case-jack-smith.html
 

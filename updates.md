@@ -1,3 +1,11 @@
+**Why Manchester United and Tottenham want to sign Kolo Muani in January**\
+`The PSG forward has fallen out of favour at the French club and a move to the Premier League - or Serie A - could happen this month`\
+https://nytimes.com/athletic/6041940/2025/01/07/randal-kolo-muani-tottenham-man-utd/
+
+**Why are footballers hiring private fitness coaches during the season - and is it a problem?**\
+`Despite the expertise and facilities available to players at their clubs, some still feel it’s necessary for them to extract marginal gains`\
+https://nytimes.com/athletic/6000688/2025/01/07/premier-league-players-prviate-coaches/
+
 **Santos return, Miami with Messi or staying at Al Hilal: What now for Neymar after Saudi frustration?**\
 `The Brazilian's time at Al Hilal has been blighted by injury and with his contract expiring this summer both parties have a decision to make`\
 https://nytimes.com/athletic/6041270/2025/01/07/what-now-for-neymar-saudi-miami-messi/
