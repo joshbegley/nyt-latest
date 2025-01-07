@@ -1,3 +1,15 @@
+**Cafe Commerce Marks the Uptown Revival of a Downtown Staple**\
+`Mango Bay serves twists on Caribbean fare, Bananas offers creative takes on Asian dishes and more restaurant news.`\
+https://nytimes.com/2025/01/07/dining/nyc-restaurant-news.html
+
+**Titans fire GM Ran Carthon after 2 seasons**\
+`Carthon joined the Titans in 2023 after spending seven seasons with the 49ers.`\
+https://nytimes.com/athletic/6044304/2025/01/07/ran-carthon-general-manager-fired-titans/
+
+**Penguins Today: Memories of a snowy Igloo and Chris Kunitz as critical stretch begins**\
+`On the anniversary of his selection, we remember why Kunitz was a deserving Olympian and a smart choice for Team Canada in 2014.`\
+https://nytimes.com/athletic/6044151/2025/01/07/pittsburgh-penguins-olympics-nhl-crosby-kunitz/
+
 **Greens, Beans and Grains: Assemble**\
 `The mighty three ingredients that save my weeknight dinners (and a new habit-forming technique for cooking them easily).`\
 https://nytimes.com/2025/01/07/dining/greens-beans-and-grains-assemble.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/07/business/media/golden-globes-ratings.html
 **What Is the U.K. ‘Grooming Gang’ Scandal Seized On by Elon Musk?**\
 `The billionaire tech mogul has been posting on his social media platform about a decade-old child sex abuse scandal in Britain. Here’s what to know.`\
 https://nytimes.com/2025/01/07/world/europe/uk-grooming-gangs-elon-musk.html
-
-**Bryn Terfel, Suave and Thundering, Is Back at the Met After 13 Years**\
-`The booming bass-baritone stars in Puccini’s “Tosca” after ill-timed injuries kept him away from the Metropolitan Opera, where he was a perennial favorite.`\
-https://nytimes.com/2025/01/07/arts/music/bryn-terfel-tosca-met-opera.html
-
-**Zuckerberg is preparing for the second Trump presidency differently than he did for the first.**\
-`By Theodore Schleifer and Mike Isaac`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/zuckerberg-is-preparing-for-the-second-trump-presidency-differently-than-he-did-for-the-first
-
-**Social media companies are facing a global tug of war over free speech.**\
-`By Cecilia Kang and Adam Satariano`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/social-media-companies-are-facing-a-global-tug-of-war-over-free-speech
 

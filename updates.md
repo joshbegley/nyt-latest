@@ -1,3 +1,15 @@
+**Cafe Commerce Marks the Uptown Revival of a Downtown Staple**\
+`Mango Bay serves twists on Caribbean fare, Bananas offers creative takes on Asian dishes and more restaurant news.`\
+https://nytimes.com/2025/01/07/dining/nyc-restaurant-news.html
+
+**Titans fire GM Ran Carthon after 2 seasons**\
+`Carthon joined the Titans in 2023 after spending seven seasons with the 49ers.`\
+https://nytimes.com/athletic/6044304/2025/01/07/ran-carthon-general-manager-fired-titans/
+
+**Penguins Today: Memories of a snowy Igloo and Chris Kunitz as critical stretch begins**\
+`On the anniversary of his selection, we remember why Kunitz was a deserving Olympian and a smart choice for Team Canada in 2014.`\
+https://nytimes.com/athletic/6044151/2025/01/07/pittsburgh-penguins-olympics-nhl-crosby-kunitz/
+
 **Greens, Beans and Grains: Assemble**\
 `The mighty three ingredients that save my weeknight dinners (and a new habit-forming technique for cooking them easily).`\
 https://nytimes.com/2025/01/07/dining/greens-beans-and-grains-assemble.html
