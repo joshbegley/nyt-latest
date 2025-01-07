@@ -1,3 +1,27 @@
+**NASA Will Let Trump Decide How to Bring Mars Rocks to Earth**\
+`The Mars Sample Return effort was billions of dollars over budget and not expected to return to Earth with its samples until 2040.`\
+https://nytimes.com/2025/01/07/science/trump-nasa-mars-sample-return.html
+
+**Mark Zuckerberg’s Political Evolution, From Apologies to No More Apologies**\
+`Meta’s chief executive has stepped away from his mea culpa approach to issues on his platforms and has told people that he wants to return to his original thinking on free speech.`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/mark-zuckerberg-meta-free-speech
+
+**Meta drops rules protecting L.G.B.T.Q. community as part of content moderation overhaul.**\
+`By Kate Conger`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-drops-rules-protecting-lgbtq-community-as-part-of-content-moderation-overhaul
+
+**The Biden Presidency: Four Illusions, Four Deceptions**\
+`History will not remember his term of office fondly.`\
+https://nytimes.com/2025/01/07/opinion/joe-biden-legacy.html
+
+**‘Not a snowball’s chance in hell’: Canada responds to Trump’s threat of ‘economic force.’**\
+`Prime Minister Trudeau didn’t mince words with an angry retort to the comments made at a rambling news conference in Florida.`\
+https://nytimes.com/live/2025/01/07/us/trump-news/trump-canada-economic-force
+
+**Assessing Trump’s Florida News Conference**\
+`The president-elect made inaccurate claims about his predecessor’s energy policies and repeated familiar falsehoods on a number of topics.`\
+https://nytimes.com/2025/01/07/us/politics/trump-press-conference-fact-check.html
+
 **Raiders coaching candidates: Ben Johnson, Jon Gruden and 8 other potential fits**\
 `After firing Antonio Pierce, Raiders owner Mark Davis will turn to his sixth full-time head coach since becoming controlling owner in 2011.`\
 https://nytimes.com/athletic/6039279/2025/01/07/raiders-new-coach-candidates-search-ben-johnson/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6037553/2025/01/07/vinicius-jr-ban-suspension-real-
 **Wednesday Briefing: Meta Set to End Fact-Checking**\
 `Plus, 52 places to go this year`\
 https://nytimes.com/2025/01/07/briefing/trump-tibet-meta-sudan.html
-
-**Mike McDaniel is staying, Tyreek Hill is venting — what is going on with the Dolphins?**\
-`On this week's "Scoop City" podcast, we discuss Miami's decision to keep its coach, and its star wide receiver's post-game comments.`\
-https://nytimes.com/athletic/6044716/2025/01/07/tyreek-hill-mike-mcdaniel-miami-dolphins/
-
-**Raiders fire Antonio Pierce, retain Tom Telesco after 4-win season**\
-`The Raiders (4-13) lost 10 straight games this year before winning two of their last three games.`\
-https://nytimes.com/athletic/5981817/2025/01/07/raiders-fire-head-coach-antionio-pierce/
-
-**Super Bowl odds: Which teams are the biggest threat to Detroit and Kansas City?**\
-`Breaking down which teams have the best shot at upsetting the Super Bowl favorites.`\
-https://nytimes.com/athletic/6044419/2025/01/07/super-bowl-odds-nfl-playoffs-detroit-kansas-city/
-
-**Lions expect RB David Montgomery to play in divisional round**\
-`Montgomery opted to rehab a knee injury instead of undergoing season-ending surgery in hopes of returning for the playoffs.`\
-https://nytimes.com/athletic/6044947/2025/01/07/david-montgomery-return-lions-playoffs/
-
-**What Will Power the A.I. Revolution?**\
-`The energy that will power the booming data-center industry could end up increasing emissions, at least in the short term.`\
-https://nytimes.com/2025/01/07/climate/artificial-intelligence-power-emissions.html
-
-**Tech Watchdogs Warn Meta’s Decision Could Cause Surge in Disinformation**\
-`While Republicans praised the move, some groups cautioned that effectively ending Meta’s fact-checking program would also lead to more conspiracy theories.`\
-https://nytimes.com/2025/01/07/business/trump-meta-disinformation.html
 
