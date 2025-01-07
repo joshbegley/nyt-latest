@@ -1,3 +1,23 @@
+**Wordle Review No. 1,299**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 8, 2025.`\
+https://nytimes.com/2025/01/07/crosswords/wordle-review-1299.html
+
+**Playing the hits: From zeroRB to Brian Thomas, what went right in fantasy football 2024**\
+`Michael Salfino looks at what went right in fantasy football 2024, including a rule about rookies that was underscored by Brian Thomas Jr. `\
+https://nytimes.com/athletic/6043518/2025/01/07/fantasy-football-2024-zerorb-brian-thomas/
+
+**Trump Raises the Possibility of Using Military or Economic Force to Take Greenland and the Panama Canal**\
+`In an hourlong news conference at his Florida club, Mar-a-Lago, the president-elect delivered a hodgepodge of grievances, complaints and false claims.`\
+https://nytimes.com/2025/01/07/us/politics/trump-panama-canal-greenland.html
+
+**Wave hires Eidevall as new head coach**\
+`San Diego Wave has hired Jonas Eidevall as its new head coach.`\
+https://nytimes.com/athletic/6035234/2025/01/07/san-diego-wave-jonas-eidevall-confirmed/
+
+**Brighton's Kadioglu out for extended period after surgery on toe injury**\
+`Brighton &amp; Hove Albion will be without Ferdi Kadioglu for an extended period after a toe injury suffered by the Turkey international required an operation.`\
+https://nytimes.com/athletic/6044611/2025/01/07/brighton-ferdi-kadiolgu-injury/
+
 **Short of Heat and Power, a Breakaway Region Struggles Without Russian Gas**\
 `An energy crisis in Transnistria, a pro-Russian territory between Moldova and Ukraine, erupted on Jan. 1 when Moscow stopped supplying natural gas through a pipeline running across Ukraine.`\
 https://nytimes.com/2025/01/07/world/europe/transnistria-energy-crisis-russia-gas.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6044512/2025/01/07/nba-mvp-odds-gilgeous-alexander-
 **Dyche admits his Everton job 'should be' under scrutiny**\
 `Everton manager Sean Dyche says he has &#8220;no problem&#8221; with the club&#8217;s new owner making a succession plan for his departure.`\
 https://nytimes.com/athletic/6044570/2025/01/07/sean-dyche-everton-job/
-
-**The CFP's final four coaches, winning it all comes with a ring and a platform**\
-`College football is about to gain a new Face of the Sport in whoever wins this national championship.`\
-https://nytimes.com/athletic/6043343/2025/01/07/college-football-playoff-semifinals-head-coaches/
-
-**Can San Francisco’s New Mayor Make the City Shine Again?**\
-`Daniel Lurie, an heir to the Levi Strauss fortune, will soon take the helm of the liberal mecca. “Resistance” to Donald Trump isn’t on his agenda.`\
-https://nytimes.com/2025/01/07/us/daniel-lurie-san-francisco-mayor.html
-
-**Judge Cannon Blocks Release of Special Counsel’s Final Report on Trump Documents Investigation**\
-`Judge Aileen M. Cannon, a Trump appointee who dismissed the documents case in its entirety this summer, on Tuesday temporarily barred the special counsel, Jack Smith, from releasing the results of his investigation to the public.`\
-https://nytimes.com/2025/01/07/us/politics/trump-documents-case-jack-smith-report.html
-
-**A Sluggish Start for Congestion Pricing**\
-`It would be more effective if Ubers, taxis and trucks had to pay more.`\
-https://nytimes.com/2025/01/07/opinion/congestion-pricing-slow-start.html
-
-**Mandel: The Playoff was supposed to hurt bowls. Is the opposite happening?**\
-`Viewership is high but attendance is down for college football bowl games. Is change on the horizon? `\
-https://nytimes.com/athletic/6044405/2025/01/07/college-football-bowl-games-viewership/
 
