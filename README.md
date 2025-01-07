@@ -1,3 +1,7 @@
+**Strong Earthquake Hits Western China**\
+`The 7.1-magnitude quake, which struck the Tibet region, was felt in neighboring Nepal. Chinese state media said there had been deaths in at least three townships.`\
+https://nytimes.com/2025/01/06/world/asia/china-tibet-nepal-quake.html
+
 **Full Time: Is the 2025 NWSL schedule out?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6043313/2025/01/06/nwsl-schedule-2025-womens-soccer-full-time/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6037699/2025/01/06/colts-defensive-coordinator-cand
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6043200/2025/01/06/submit-a-question-for-stewart-mandels-college-football-mailbag-287/
-
-**2025 NBA viewer guide: What to know about broadcasts, schedules, streaming and more**\
-`Rooting interests and betting implications aside, NBA fandom is a consistently rewarding endeavor. Here's how to watch the games in 2025!`\
-https://nytimes.com/athletic/6022280/2025/01/06/how-to-watch-nba-2025-streams-channels/
 
