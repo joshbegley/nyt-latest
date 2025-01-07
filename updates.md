@@ -1,3 +1,7 @@
+**Penalty for Saliba head collision the correct call, says PGMOL chief**\
+`Referee Anthony Taylor was right to award a penalty for Brighton and Hove Albion against Arsenal, according to PGMOL chief Howard Webb.`\
+https://nytimes.com/athletic/6043703/2025/01/07/saliba-brighton-penalty-webb/
+
 **Venezuelan Opposition Candidate Says His Son-in-Law Was Kidnapped**\
 `Edmundo González, who is recognized by the United States as the president-elect of Venezuela, said his son-in-law was kidnapped by hooded men.`\
 https://nytimes.com/2025/01/07/world/americas/venezuela-gonzalez-son-in-law-kidnapped.html

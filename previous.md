@@ -1,3 +1,7 @@
+**Penalty for Saliba head collision the correct call, says PGMOL chief**\
+`Referee Anthony Taylor was right to award a penalty for Brighton and Hove Albion against Arsenal, according to PGMOL chief Howard Webb.`\
+https://nytimes.com/athletic/6043703/2025/01/07/saliba-brighton-penalty-webb/
+
 **Venezuelan Opposition Candidate Says His Son-in-Law Was Kidnapped**\
 `Edmundo González, who is recognized by the United States as the president-elect of Venezuela, said his son-in-law was kidnapped by hooded men.`\
 https://nytimes.com/2025/01/07/world/americas/venezuela-gonzalez-son-in-law-kidnapped.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-content-mo
 **What Is the State of Mexico-U.S. Migration?**\
 `Unlawful crossings at the U.S.-Mexico border dropped sharply last year. Now, Mexico and countries in Central America are bracing for mass deportations from the U.S. after the Trump administration takes over.`\
 https://nytimes.com/article/migration-mexico-honduras-panama-trump.html
-
-**Zion Williamson returns to Pelicans' lineup after 27-game absence**\
-`The oft-injured Pelicans superstar has only played in six games this season due to a left hamstring strain.`\
-https://nytimes.com/athletic/6044658/2025/01/07/zion-williamson-return-pelicans-timberwolves/
 
