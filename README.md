@@ -1,3 +1,7 @@
+**Meta Turns to Community Notes, Mirroring X**\
+`Social media companies are abandoning years of fact-checking practices as Republicans criticize it as censorship.`\
+https://nytimes.com/2025/01/07/business/meta-community-notes-x.html
+
 **Trump Asks Appeals Court to Freeze His New York Criminal Sentencing**\
 `President-elect Donald J. Trump is trying to expunge his conviction before he is inaugurated. He would be the first felon elected to the Oval Office.`\
 https://nytimes.com/2025/01/07/nyregion/trump-criminal-sentencing-appeal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044304/2025/01/07/ran-carthon-general-manager-fire
 **Penguins Today: Memories of a snowy Igloo and Chris Kunitz as critical stretch begins**\
 `On the anniversary of his selection, we remember why Kunitz was a deserving Olympian and a smart choice for Team Canada in 2014.`\
 https://nytimes.com/athletic/6044151/2025/01/07/pittsburgh-penguins-olympics-nhl-crosby-kunitz/
-
-**Greens, Beans and Grains: Assemble**\
-`The mighty three ingredients that save my weeknight dinners (and a new habit-forming technique for cooking them easily).`\
-https://nytimes.com/2025/01/07/dining/greens-beans-and-grains-assemble.html
 
