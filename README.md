@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6042059/2025/01/07/grizzlies-spurs-rockets-nba-trad
 `Detroit’s defense sent a ton of six- or seven-man pressures and played mostly man coverage. Can the Rams replicate that in the playoffs?`\
 https://nytimes.com/athletic/6042727/2025/01/07/vikings-lions-sam-darnold-blueprint-playoffs/
 
+**Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
+`What are the expansion plans for Wimbledon, and why is there so much opposition?`\
+https://nytimes.com/athletic/5827803/2025/01/07/wimbledon-tennis-expansion-all-england-club-courts-explained/
+
 **Free cars, free rent and free hotels: 9 interesting NHL CBA rules you may not know about**\
 `Hardcore fans are familiar with CBA rules involving contracts and trades, but there's interesting day-to-day details to be found as well.`\
 https://nytimes.com/athletic/6030630/2025/01/07/nhl-cba-interesting-rules/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030630/2025/01/07/nhl-cba-interesting-rules/
 **Red Wings are thriving under Todd McLellan. How long can they keep it going?**\
 `Five games into Todd McLellan's tenure, the Red Wings have won four straight for the first time all season. `\
 https://nytimes.com/athletic/6042497/2025/01/07/red-wings-todd-mclellan-new-coach-bump/
-
-**What I'm hearing about the Penguins' trade deadline plans**\
-`A look at which players may — or may not be — on the move in the next two months.`\
-https://nytimes.com/athletic/6040729/2025/01/07/penguins-trade-deadline-rakell-pettersson/
 
