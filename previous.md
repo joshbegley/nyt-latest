@@ -1,3 +1,11 @@
+**Meta ends interventions widely seen as effective at reducing belief in falsehoods**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-ends-interventions-widely-seen-as-effective-at-reducing-belief-in-falsehoods
+
+**Saudi-Backed LIV Golf Will Return to Trump’s Doral Resort in 2025**\
+`The April event will be the first in which the Saudi-financed tournament will occur at a Trump location while Donald J. Trump is president.`\
+https://nytimes.com/2025/01/07/us/politics/liv-golf-tournament-trump-doral-resort.html
+
 **Cafe Commerce Marks the Uptown Revival of a Downtown Staple**\
 `Mango Bay serves twists on Caribbean fare, Bananas offers creative takes on Asian dishes and more restaurant news.`\
 https://nytimes.com/2025/01/07/dining/nyc-restaurant-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6042380/2025/01/07/giannis-khris-middleton-bucks-tr
 **Jan. 10: Blue Origin’s New Glenn rocket could attempt its debut launch.**\
 `By Michael Roston`\
 https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/jan-10-blue-origins-new-glenn-rocket-could-attempt-its-debut-launch
-
-**Golden Globes Audience Declines Slightly**\
-`The show on Sunday averaged 9.3 million viewers, down from 9.4 million the year before.`\
-https://nytimes.com/2025/01/07/business/media/golden-globes-ratings.html
-
-**What Is the U.K. ‘Grooming Gang’ Scandal Seized On by Elon Musk?**\
-`The billionaire tech mogul has been posting on his social media platform about a decade-old child sex abuse scandal in Britain. Here’s what to know.`\
-https://nytimes.com/2025/01/07/world/europe/uk-grooming-gangs-elon-musk.html
 

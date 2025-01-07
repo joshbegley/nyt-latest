@@ -1,3 +1,11 @@
+**Meta ends interventions widely seen as effective at reducing belief in falsehoods**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-ends-interventions-widely-seen-as-effective-at-reducing-belief-in-falsehoods
+
+**Saudi-Backed LIV Golf Will Return to Trump’s Doral Resort in 2025**\
+`The April event will be the first in which the Saudi-financed tournament will occur at a Trump location while Donald J. Trump is president.`\
+https://nytimes.com/2025/01/07/us/politics/liv-golf-tournament-trump-doral-resort.html
+
 **Cafe Commerce Marks the Uptown Revival of a Downtown Staple**\
 `Mango Bay serves twists on Caribbean fare, Bananas offers creative takes on Asian dishes and more restaurant news.`\
 https://nytimes.com/2025/01/07/dining/nyc-restaurant-news.html
