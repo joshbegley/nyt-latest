@@ -1,3 +1,7 @@
+**Now Is the Time to Reimagine Lebanon**\
+`The fall of the Syrian regime and loss of Iranian influence opens the door for the Lebanese to finally take their fate in their own hands.`\
+https://nytimes.com/2025/01/07/opinion/lebanon-syria-assad-election.html
+
 **Suns start surprised Bradley Beal on the bench. He rallied them to a win anyway**\
 `The change put a spotlight on Beal's place on the Suns, especially with Jimmy Butler rumors swirling.`\
 https://nytimes.com/athletic/6043392/2025/01/07/bradley-beal-suns-jimmy-butler-sixers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015900/2025/01/07/england-squad-euro-2025-ranked/
 **Tuesday Briefing**\
 `Justin Trudeau will step down as Canada’s prime minister.`\
 https://nytimes.com/2025/01/07/briefing/trudeau-syria-russia.html
-
-**What We Know About HMPV, the Virus Spreading in China**\
-`While cases are climbing in China, the situation is very different from what it was when Covid-19 emerged five years ago, medical experts say. HMPV is common and decades old.`\
-https://nytimes.com/2025/01/07/health/hmpv-virus-china.html
 

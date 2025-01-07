@@ -1,3 +1,7 @@
+**Now Is the Time to Reimagine Lebanon**\
+`The fall of the Syrian regime and loss of Iranian influence opens the door for the Lebanese to finally take their fate in their own hands.`\
+https://nytimes.com/2025/01/07/opinion/lebanon-syria-assad-election.html
+
 **Sabres aren't counting themselves out of playoffs despite an ugly first half**\
 `There's still a long way to go to make up for the 13-game winless streak, but at long last the Sabres are trending in the right direction.`\
 https://nytimes.com/athletic/6043495/2025/01/07/sabres-playoffs-first-half-capitals/
