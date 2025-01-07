@@ -1,3 +1,7 @@
+**Denying a Handshake to Harris, Senator’s Husband Draws Criticism**\
+`The husband of Senator Deb Fischer, Republican of Nebraska, drew criticism online when he failed to accept a handshake offered by Vice President Kamala D. Harris at his wife’s ceremonial swearing-in.`\
+https://nytimes.com/2025/01/07/us/politics/deb-fischer-husband-handshake.html
+
 **Pittsburgh Man Who Threw an Explosive at University Police Gets 5 Years**\
 `Brian DiPippa was accused of dropping smoke bomb containers at a University of Pittsburgh campus transgender rights protest in 2023. His wife, Krystal DiPippa, was sentenced to probation.`\
 https://nytimes.com/2025/01/07/us/pittsburgh-protest-officer-injured-couple-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/there-
 **Trump Warns ‘All Hell Will Break Out’ if Hostages in Gaza Are Not Freed**\
 `The president-elect did not elaborate on what actions he might take if the captives are not released by the time he takes office.`\
 https://nytimes.com/2025/01/07/us/politics/trump-hostages-hamas.html
-
-**With Trump Coveting Greenland, Denmark Updated Its Coat of Arms**\
-`Before President-elect Donald Trump’s latest remarks, King Frederik X signaled his commitment to the territory in a decidedly old-fashioned way.`\
-https://nytimes.com/2025/01/07/style/denmark-coat-of-arms-trump-greenland.html
 

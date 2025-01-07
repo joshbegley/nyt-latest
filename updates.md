@@ -1,3 +1,7 @@
+**Denying a Handshake to Harris, Senator’s Husband Draws Criticism**\
+`The husband of Senator Deb Fischer, Republican of Nebraska, drew criticism online when he failed to accept a handshake offered by Vice President Kamala D. Harris at his wife’s ceremonial swearing-in.`\
+https://nytimes.com/2025/01/07/us/politics/deb-fischer-husband-handshake.html
+
 **Pittsburgh Man Who Threw an Explosive at University Police Gets 5 Years**\
 `Brian DiPippa was accused of dropping smoke bomb containers at a University of Pittsburgh campus transgender rights protest in 2023. His wife, Krystal DiPippa, was sentenced to probation.`\
 https://nytimes.com/2025/01/07/us/pittsburgh-protest-officer-injured-couple-sentenced.html
