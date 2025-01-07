@@ -1,3 +1,7 @@
+**Defense Lawyers Seek to Block Special Counsel Report in Trump Documents Case**\
+`Both the Justice Department and the judge who oversaw the case were asked to stop the public release of the report.`\
+https://nytimes.com/2025/01/06/us/politics/trump-classified-documents-case-jack-smith.html
+
 **Pentagon Adds Chinese Social Media Giant to Military Blacklist**\
 `Tencent’s shares plunged nearly 10 percent after it was designated a military company. The Chinese battery manufacturer CATL was also added to the list.`\
 https://nytimes.com/2025/01/06/business/us-chinese-military-companies-tencent-catl.html
