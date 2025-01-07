@@ -1,3 +1,15 @@
+**Santos return, Miami with Messi or staying at Al Hilal: What now for Neymar after Saudi frustration?**\
+`The Brazilian's time at Al Hilal has been blighted by injury and with his contract expiring this summer both parties have a decision to make`\
+https://nytimes.com/athletic/6041270/2025/01/07/what-now-for-neymar-saudi-miami-messi/
+
+**Explained: How in-stadium VAR announcements will work in Carabao Cup semi-finals**\
+`Referees will speak directly to supporters after major VAR incidents for the first time during this week's Carabao Cup matches`\
+https://nytimes.com/athletic/6042629/2025/01/07/var-stadium-announcements-explained/
+
+**Ranking the 50 players most likely to be selected for England's Euro 2025 squad**\
+`With six months to go until England begin their Euros defence, Michael Cox assesses the claims of the players in contention to feature`\
+https://nytimes.com/athletic/6015900/2025/01/07/england-squad-euro-2025-ranked/
+
 **Tuesday Briefing**\
 `Justin Trudeau will step down as Canada’s prime minister.`\
 https://nytimes.com/2025/01/07/briefing/trudeau-syria-russia.html
