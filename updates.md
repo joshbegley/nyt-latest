@@ -1,3 +1,11 @@
+**Athletics, Brent Rooker agree to 5-year, $60 million extension: Sources**\
+`It’s a strong outcome for Rooker, 30, who emerged as one of baseball’s top hitters after arriving in Oakland before the 2023 season.`\
+https://nytimes.com/athletic/6043843/2025/01/07/athletics-brent-rooker-extension/
+
+**Syria’s Main Airport Handles First International Flights Since Fall of al-Assad**\
+`The country’s new leaders are pushing to restore a sense of normalcy. But Syria remains under a host of international sanctions imposed during the Assad regime.`\
+https://nytimes.com/2025/01/07/world/middleeast/syria-airport-damascus-international-flights.html
+
 **Jean-Marie Le Pen, Rabble-Rousing Leader of French Far Right, Dies at 96**\
 `He ran unsuccessfully for the French presidency five times, riding waves of discontent and xenophobia as the leader of the National Front party.`\
 https://nytimes.com/2025/01/07/world/europe/jean-marie-le-pen-dead.html
