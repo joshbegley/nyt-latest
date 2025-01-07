@@ -1,3 +1,11 @@
+**What Will Power the A.I. Revolution?**\
+`The energy that will power the booming data-center industry could end up increasing emissions, at least in the short term.`\
+https://nytimes.com/2025/01/07/climate/artificial-intelligence-power-emissions.html
+
+**Tech Watchdogs Warn Meta’s Decision Could Cause Surge in Disinformation**\
+`While Republicans praised the move, some groups cautioned that effectively ending Meta’s fact-checking program would also lead to more conspiracy theories.`\
+https://nytimes.com/2025/01/07/business/trump-meta-disinformation.html
+
 **Live Updates: Wildfires Erupt in Los Angeles, Driven by Fierce Winds**\
 `Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
