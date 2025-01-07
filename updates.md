@@ -1,3 +1,11 @@
+**With Ravens' Marlon Humphrey, always expect the unexpected: 'There's just no replica of him'**\
+`Off the field, you never know what you're going to get from Baltimore's Pro Bowl corner. But on the field, he's all business, all the time.`\
+https://nytimes.com/athletic/6042654/2025/01/07/ravens-playoffs-marlon-humphrey-defense/
+
+**Dehner Jr.: After Bengals firings, hot seat ratchets up early on Zac Taylor in 2025**\
+`DC Lou Anarumo took the fall for the team's disappointing 2024 season, but the onus now falls squarely on the head coach.`\
+https://nytimes.com/athletic/6043028/2025/01/07/zac-taylor-bengals-firings-hot-seat/
+
 **#MeToo Theater Campaigners Stage a Drama of Their Own**\
 `The French activists behind the hashtag #MeTooThéâtre have devised a play that shows the personal cost of bringing abuse claims to light.`\
 https://nytimes.com/2025/01/07/theater/les-histrioniques-metootheatre.html
