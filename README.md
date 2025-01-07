@@ -1,3 +1,23 @@
+**How to Create a Compelling Collection: A Guide to Our New ‘My List’ Contest**\
+`Step-by-step instructions for coming up with an engaging list of recommendations for things we should — or shouldn’t — read, watch, experience, eat or listen to.`\
+https://nytimes.com/2025/01/07/learning/how-to-create-a-compelling-collection-a-guide-to-our-new-my-list-contest.html
+
+**What Can You Recommend?**\
+`If you were to make a list of the music, movies, TV, books, video games, fashion, tech or restaurants others should know about — or avoid — what would you put on it?`\
+https://nytimes.com/2025/01/07/learning/what-can-you-recommend.html
+
+**A Key Part of Biden’s Climate Law Was Built to Survive Trump. Now, the Test.**\
+`A lucrative tax credit for renewable energy could be hard to kill because it applies to a technologies favored by Republicans, not just wind and solar.`\
+https://nytimes.com/2025/01/07/climate/ira-renewable-energy-tax-credits.html
+
+**2 Prisoners Ask Judge to Block Biden’s Death Sentence Commutations**\
+`The men said that, by reducing their sentences to life in prison, President Biden’s act of clemency could hurt their appeals.`\
+https://nytimes.com/2025/01/07/us/politics/len-davis-shannon-agofsky-biden-commutation-appeal.html
+
+**Let’s Discuss: Music Playlists From The Amplifier**\
+`What makes a great playlist? Pop music critic Lindsay Zoladz joins us to discuss. Post your comments and questions for her here by Jan. 16.`\
+https://nytimes.com/2025/01/07/learning/lesson-plans/lets-discuss-music-playlists-from-the-amplifier.html
+
 **Meta’s fact-checking partners were surprised by the decision not to renew the program.**\
 `By Stuart A. Thompson and Ken Bensinger`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-fact-checking-partners-were-surprised-by-the-decision-not-to-renew-the-program
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/07/science/trump-nasa-mars-sample-return.html
 **Mark Zuckerberg’s Political Evolution, From Apologies to No More Apologies**\
 `Meta’s chief executive has stepped away from his mea culpa approach to issues on his platforms and has told people that he wants to return to his original thinking on free speech.`\
 https://nytimes.com/2025/01/07/business/mark-zuckerberg-meta-free-speech.html
-
-**Meta drops rules protecting L.G.B.T.Q. community as part of content moderation overhaul.**\
-`By Kate Conger`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-drops-rules-protecting-lgbtq-community-as-part-of-content-moderation-overhaul
-
-**The Biden Presidency: Four Illusions, Four Deceptions**\
-`History will not remember his term of office fondly.`\
-https://nytimes.com/2025/01/07/opinion/joe-biden-legacy.html
-
-**‘Not a snowball’s chance in hell’: Canada responds to Trump’s threat of ‘economic force.’**\
-`Prime Minister Trudeau didn’t mince words with an angry retort to the comments made at a rambling news conference in Florida.`\
-https://nytimes.com/live/2025/01/07/us/trump-news/trump-canada-economic-force
-
-**Assessing Trump’s Florida News Conference**\
-`The president-elect made inaccurate claims about his predecessor’s energy policies and repeated familiar falsehoods on a number of topics.`\
-https://nytimes.com/2025/01/07/us/politics/trump-press-conference-fact-check.html
-
-**Raiders coaching candidates: Ben Johnson, Jon Gruden and 8 other potential fits**\
-`After firing Antonio Pierce, Raiders owner Mark Davis will turn to his sixth full-time head coach since becoming controlling owner in 2011.`\
-https://nytimes.com/athletic/6039279/2025/01/07/raiders-new-coach-candidates-search-ben-johnson/
 
