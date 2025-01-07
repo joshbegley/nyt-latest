@@ -1,3 +1,19 @@
+**What Is the State of Mexico-U.S. Migration?**\
+`Unlawful crossings at the U.S.-Mexico border dropped sharply last year. Now, Mexico and countries in Central America are bracing for mass deportations from the U.S. after the Trump administration takes over.`\
+https://nytimes.com/article/migration-mexico-honduras-panama-trump.html
+
+**Zion Williamson returns to Pelicans' lineup after 27-game absence**\
+`The oft-injured Pelicans superstar has only played in six games this season due to a left hamstring strain.`\
+https://nytimes.com/athletic/6044658/2025/01/07/zion-williamson-return-pelicans-timberwolves/
+
+**International Flights To Syria Resume Since Fall of al-Assad**\
+`A Qatar Airways plane became the first to land at Damascus airport since the ousting of the government of former President Bashar al-Assad last month, as Syria’s interim leaders hope to reassert a semblance of normalcy in the country.`\
+https://nytimes.com/video/world/middleeast/100000009912016/syria-flights-resume.html
+
+**Man accused in deaths of Johnny, Matthew Gaudreau pleads not guilty**\
+`Sean M. Higgins pleaded not guilty to all charges, including first-degree aggravated manslaughter, in an arraignment hearing Tuesday.`\
+https://nytimes.com/athletic/6044507/2025/01/07/johnny-matthew-gaudreau-deaths-charges-plea/
+
 **Wordle Review No. 1,299**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 8, 2025.`\
 https://nytimes.com/2025/01/07/crosswords/wordle-review-1299.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6044611/2025/01/07/brighton-ferdi-kadiolgu-injury/
 **Short of Heat and Power, a Breakaway Region Struggles Without Russian Gas**\
 `An energy crisis in Transnistria, a pro-Russian territory between Moldova and Ukraine, erupted on Jan. 1 when Moscow stopped supplying natural gas through a pipeline running across Ukraine.`\
 https://nytimes.com/2025/01/07/world/europe/transnistria-energy-crisis-russia-gas.html
-
-**Ex-Wazzu coach Nick Rolovich loses lawsuit against school over firing**\
-`Rolovich was denied a religious exemption to the state's COVID-19 vaccine mandate and was later fired along with four assistant coaches.`\
-https://nytimes.com/athletic/6044509/2025/01/07/nick-rolovich-washington-state-lawsuit-firing/
-
-**Scoop City: Ben Johnson's coaching journey, interview timeline**\
-`A brief look at the upcoming month for Lions OC Ben Johnson, while explaining the rules of the 2025 NFL coaching cycle`\
-https://nytimes.com/athletic/6044591/2025/01/07/ben-johnson-coaching-history-interview-process-timeline-scoop-city-nfl/
-
-**NBA MVP odds: Shai Gilgeous-Alexander emerges as favorite ahead of Nikola Jokic**\
-`Shai Gilgeous-Alexander is a minus-odds favorite to win NBA MVP despite Nikola Jokić's outstanding numbers so far this season.`\
-https://nytimes.com/athletic/6044512/2025/01/07/nba-mvp-odds-gilgeous-alexander-jokic/
-
-**Dyche admits his Everton job 'should be' under scrutiny**\
-`Everton manager Sean Dyche says he has &#8220;no problem&#8221; with the club&#8217;s new owner making a succession plan for his departure.`\
-https://nytimes.com/athletic/6044570/2025/01/07/sean-dyche-everton-job/
 
