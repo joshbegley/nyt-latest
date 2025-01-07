@@ -1,3 +1,15 @@
+**Trump Raises the Possibility of Using Military or Economic Force to Take Greenland and the Panama Canal**\
+`In an hourlong news conference at his Florida club, Mar-a-Lago, the president-elect delivered a hodgepodge of grievances, complaints and false claims.`\
+https://nytimes.com/2025/01/07/us/politics/trump-panama-canal-greenland.html
+
+**Wave hires Eidevall as new head coach**\
+`San Diego Wave has hired Jonas Eidevall as its new head coach.`\
+https://nytimes.com/athletic/6035234/2025/01/07/san-diego-wave-jonas-eidevall-confirmed/
+
+**Brighton's Kadiolgu out for extended period after surgery on toe injury**\
+`Brighton &amp; Hove Albion will be without Ferdi Kadiolgu for an extended period after a toe injury suffered by the Turkey international required an operation.`\
+https://nytimes.com/athletic/6044611/2025/01/07/brighton-ferdi-kadiolgu-injury/
+
 **Short of Heat and Power, a Breakaway Region Struggles Without Russian Gas**\
 `An energy crisis in Transnistria, a pro-Russian territory between Moldova and Ukraine, erupted on Jan. 1 when Moscow stopped supplying natural gas through a pipeline running across Ukraine.`\
 https://nytimes.com/2025/01/07/world/europe/transnistria-energy-crisis-russia-gas.html
