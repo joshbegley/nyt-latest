@@ -1,3 +1,15 @@
+**Patti Davis’s Reflections on Joe Biden and Her Dad, Ronald Reagan**\
+`Readers discuss a guest essay about the aging of two presidents. Also: A peaceful Jan. 6; the Palestinians’ future; mind-altering drugs.`\
+https://nytimes.com/2025/01/07/opinion/patti-davis-joe-biden-ronald-reagan.html
+
+**Who Are the Winners and Losers in Disney’s Fubo Deal?**\
+`The agreement ends litigation between the two companies over plans for a sports streaming service, but consumer advocates are pushing back.`\
+https://nytimes.com/2025/01/07/business/dealbook/disney-fubo-hulu-streaming.html
+
+**Updating the Mets bullpen outlook: Could they add Tanner Scott?**\
+`The Mets are looking to add one to two relievers to the bullpen, league sources said, and they're expected to check out all the options.`\
+https://nytimes.com/athletic/6044292/2025/01/07/mets-bullpen-outlook-sign-tanner-scott/
+
 **Meta ends interventions widely seen as effective at reducing belief in falsehoods**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-ends-interventions-widely-seen-as-effective-at-reducing-belief-in-falsehoods
