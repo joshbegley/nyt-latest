@@ -1,3 +1,19 @@
+**Raiders coaching candidates: Ben Johnson, Jon Gruden and 8 other potential fits**\
+`After firing Antonio Pierce, Raiders owner Mark Davis will turn to his sixth full-time head coach since becoming controlling owner in 2011.`\
+https://nytimes.com/athletic/6039279/2025/01/07/raiders-new-coach-candidates-search-ben-johnson/
+
+**How Barca's Olmo saga has fuelled Laporta criticism: 'We ask them to resign immediately'**\
+`Barca's president is feeling the effects of Olmo's registration issues, with several groups of members asking his board to step down`\
+https://nytimes.com/athletic/6044378/2025/01/07/barcelona-olmo-laporta-criticism/
+
+**Vinicius Jr given two-game ban after red card at Valencia**\
+`Vinicius Junior has been given a two-game suspension for violent conduct after he was sent off against Valencia.`\
+https://nytimes.com/athletic/6037553/2025/01/07/vinicius-jr-ban-suspension-real-madrid/
+
+**Raiders fire Antonio Pierce, retain Tom Telesco after 4-win season**\
+`The Raiders (4-13) lost 10 straight games this year before winning two of their last three games.`\
+https://nytimes.com/athletic/5981817/2025/01/07/raiders-fire-head-coach-antionio-pierce/
+
 **Wednesday Briefing: Meta Set to End Fact-Checking**\
 `Plus, 52 places to go this year`\
 https://nytimes.com/2025/01/07/briefing/trump-tibet-meta-sudan.html
