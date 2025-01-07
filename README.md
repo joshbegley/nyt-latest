@@ -1,3 +1,7 @@
+**Greens, Beans and Grains: Assemble**\
+`The mighty three ingredients that save my weeknight dinners (and a new habit-forming technique for cooking them easily).`\
+https://nytimes.com/2025/01/07/dining/greens-beans-and-grains-assemble.html
+
 **Fox Sports, Skip Bayless sued by hairstylist alleging sexual harassment**\
 `The woman who filed the lawsuit alleged Bayless made unwanted sexual advances toward her and offered her $1.5 million for sex. `\
 https://nytimes.com/athletic/6042666/2025/01/07/fox-sports-skip-bayless-sued-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/07/business/meta-fact-checking/zuckerberg-is-pr
 **Social media companies are facing a global tug of war over free speech.**\
 `By Cecilia Kang and Adam Satariano`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/social-media-companies-are-facing-a-global-tug-of-war-over-free-speech
-
-**Chris Finch bites the bullet and unveils a new starting lineup for struggling Wolves**\
-`A move like the one Finch made on Monday is not just a basketball decision. It is a political one.`\
-https://nytimes.com/athletic/6043168/2025/01/07/timberwolves-lineup-change-donte-divincenzo-mike-conley/
 
