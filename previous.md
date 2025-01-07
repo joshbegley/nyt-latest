@@ -1,3 +1,15 @@
+**Meta Says Fact-Checkers Were the Problem. Fact-Checkers Rule That False.**\
+`Fact-checking groups that worked with Meta said they had no role in deciding what the company did with the content that was fact-checked.`\
+https://nytimes.com/2025/01/07/business/mark-zuckerberg-meta-fact-check.html
+
+**House Passes Bill to Deport Unauthorized Immigrants Charged With Minor Crimes**\
+`Forty-eight Democrats joined Republicans in supporting legislation that aims to deport more migrants charged with nonviolent crimes, a first salvo in a broader crackdown.`\
+https://nytimes.com/2025/01/07/us/house-bill-migrants-crime-laken-riley.html
+
+**Fires Break Out Across Southern California Amid Fierce Winds**\
+`The region’s utility company said it was prepared to cut power to more than 400,000 customers to try to prevent more blazes.`\
+https://nytimes.com/2025/01/07/us/california-fires-windstorm-pacific-palisades.html
+
 **Penalty for Saliba head collision the correct call, says PGMOL chief**\
 `Referee Anthony Taylor was right to award a penalty for Brighton and Hove Albion against Arsenal, according to PGMOL chief Howard Webb.`\
 https://nytimes.com/athletic/6043703/2025/01/07/saliba-brighton-penalty-webb/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6044519/2025/01/07/emma-hayes-jonas-eidevall-wave-u
 **Bob Dylan Wasn’t the Only 1965 Newport Highlight. Hear 14 More.**\
 `Listen to Peter, Paul and Mary’s finale singalong, plus songs from Odetta, the Paul Butterfield Blues Band and more.`\
 https://nytimes.com/2025/01/07/arts/music/amplifier-newsletter-1965-newport-folk-festival.html
-
-**Netflix debut of WWE 'felt massive,' plus more takeaways**\
-`With WWE debuting "Monday Night Raw" on Netflix, here are a few takeaways from the big premiere.`\
-https://nytimes.com/athletic/6044586/2025/01/07/netflix-debut-of-wwe-felt-massive-plus-more-takeaways/
-
-**Meta’s content moderation changes are taking effect amid U.S. regulatory scrutiny.**\
-`By Cecilia Kang`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-content-moderation-changes-are-taking-effect-amid-us-regulatory-scrutiny
-
-**What Is the State of Mexico-U.S. Migration?**\
-`Unlawful crossings at the U.S.-Mexico border dropped sharply last year. Now, Mexico and countries in Central America are bracing for mass deportations from the U.S. after the Trump administration takes over.`\
-https://nytimes.com/article/migration-mexico-honduras-panama-trump.html
 

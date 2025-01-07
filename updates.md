@@ -1,3 +1,15 @@
+**Meta Says Fact-Checkers Were the Problem. Fact-Checkers Rule That False.**\
+`Fact-checking groups that worked with Meta said they had no role in deciding what the company did with the content that was fact-checked.`\
+https://nytimes.com/2025/01/07/business/mark-zuckerberg-meta-fact-check.html
+
+**House Passes Bill to Deport Unauthorized Immigrants Charged With Minor Crimes**\
+`Forty-eight Democrats joined Republicans in supporting legislation that aims to deport more migrants charged with nonviolent crimes, a first salvo in a broader crackdown.`\
+https://nytimes.com/2025/01/07/us/house-bill-migrants-crime-laken-riley.html
+
+**Fires Break Out Across Southern California Amid Fierce Winds**\
+`The region’s utility company said it was prepared to cut power to more than 400,000 customers to try to prevent more blazes.`\
+https://nytimes.com/2025/01/07/us/california-fires-windstorm-pacific-palisades.html
+
 **Penalty for Saliba head collision the correct call, says PGMOL chief**\
 `Referee Anthony Taylor was right to award a penalty for Brighton and Hove Albion against Arsenal, according to PGMOL chief Howard Webb.`\
 https://nytimes.com/athletic/6043703/2025/01/07/saliba-brighton-penalty-webb/
