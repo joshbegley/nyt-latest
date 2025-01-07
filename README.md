@@ -1,3 +1,7 @@
+**Chris Finch bites the bullet and unveils a new starting lineup for struggling Wolves**\
+`A move like the one Finch made on Monday is not just a basketball decision. It is a political one.`\
+https://nytimes.com/athletic/6043168/2025/01/07/timberwolves-lineup-change-donte-divincenzo-mike-conley/
+
 **49ers' Ward not sure about return to SF following traumatic personal year**\
 `"Every time I get on a plane to come back to California, San Jose, here, it’s just a bad memory," Ward said.`\
 https://nytimes.com/athletic/6044016/2025/01/07/49ers-charvarius-ward-return-trauma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042164/2025/01/07/euroleague-img-deal-nba-basketba
 **The Man Who Got Away**\
 `Fleeing fraud charges, Samuele Landi evaded extradition treaties, dabbled in crypto, procured diplomatic credentials and took advantage of all the offshore world has to offer.`\
 https://nytimes.com/2025/01/07/business/samuele-landi-offshore-seastead.html
-
-**Abortion Pills Prescribed by Pharmacists Are Newest Effort in Abortion Fight**\
-`Washington State’s program is the first, but other states are expected to try allowing pharmacists to prescribe the pills to counter growing efforts to curtail abortion access.`\
-https://nytimes.com/2025/01/07/health/abortion-pills-pharmacist-prescribe.html
 
