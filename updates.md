@@ -1,3 +1,7 @@
+**Drug Company to Share Revenues With Indigenous People Who Donated Their Genes**\
+`Variant Bio, a small biotech company based in Seattle, is using genetic information from Indigenous people to develop drugs for obesity and diabetes.`\
+https://nytimes.com/2025/01/07/health/variant-bio-novo-nordisk-indigenous-revenue-sharing.html
+
 **Cardinals' efforts to trade Nolan Arenado remain stalled: How it's impacting the roster**\
 `St. Louis wants to cut payroll and open up spots for younger players. Arenado wants the perfect situation. What happens if he has to stay?`\
 https://nytimes.com/athletic/6043031/2025/01/07/cardinals-nolan-arenado-trade-efforts-roster/
