@@ -1,3 +1,15 @@
+**Disordered State**\
+`Dana Edwards makes a stylish second appearance in the New York Times Crossword.`\
+https://nytimes.com/2025/01/06/crosswords/daily-puzzle-2025-01-07.html
+
+**Pentagon Reaches Settlement With Veterans Dismissed Over Sexuality**\
+`The agreement, if approved by a judge, would let former service members upgrade their discharge status and receive benefits they had been denied.`\
+https://nytimes.com/2025/01/06/us/politics/pentagon-settlement-veterans-sexuality.html
+
+**Elon Musk’s Dishonest Demagogy on Grooming Gangs**\
+`The billionaire is exploiting old atrocities to undermine his enemies.`\
+https://nytimes.com/2025/01/06/opinion/elon-musk-britain-sex-trafficking.html
+
 **Day 2: Are Ultraprocessed Foods Really That Delicious?**\
 `Today’s challenge involves using the five senses.`\
 https://nytimes.com/2025/01/06/well/eat/ultraprocessed-foods-cravings.html
