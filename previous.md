@@ -1,3 +1,7 @@
+**#MeToo Theater Campaigners Stage a Drama of Their Own**\
+`The French activists behind the hashtag #MeTooThéâtre have devised a play that shows the personal cost of bringing abuse claims to light.`\
+https://nytimes.com/2025/01/07/theater/les-histrioniques-metootheatre.html
+
 **Status reports on Brandon Ingram and Julius Randle in the new NBA**\
 `The harsher penalties for teams that spent aggressively are impacting the present and futures of two former All-Stars — and their teams.`\
 https://nytimes.com/athletic/6042531/2025/01/07/brandon-ingram-trade-rumors-julius-randle-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/politics/jimmy-carter-washington-events.html
 **How Deep Is the Wound to the Democratic Party?**\
 `Is liberalism actually dead this time?`\
 https://nytimes.com/2025/01/07/opinion/democratic-party-republican-realignment.html
-
-**Biden to Designate Chuckwalla and Sáttítla National Monuments in California**\
-`With these two new monuments, Mr. Biden has protected more federal land and waters than any other president, about 674 million acres.`\
-https://nytimes.com/2025/01/07/climate/biden-to-designate-chuckwalla-and-sattitla-national-monuments-in-california.html
 
