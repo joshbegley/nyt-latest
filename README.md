@@ -24,7 +24,7 @@ https://nytimes.com/2025/01/06/us/honduras-consulate-shooting-atlanta.html
 `Indianapolis was Bradley's fourth stop as a defensive coordinator and now Shane Steichen is looking for his replacement.`\
 https://nytimes.com/athletic/6027862/2025/01/06/colts-fire-gus-bradley-defensive-coordinator/
 
-**Colts, Jim Irsay could have wiped slate clean. Here's why they chose continuity instead.**\
+**Colts, Jim Irsay could have wiped slate clean. Here's why they chose continuity instead**\
 `Frustrating though it may be, there's some logic behind the Colts sticking with Chris Ballard, Shane Steichen and Anthony Richardson. `\
 https://nytimes.com/athletic/6042652/2025/01/06/colts-jim-irsays-anthony-richardson-chris-ballard/
 
