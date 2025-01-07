@@ -1,3 +1,7 @@
+**Greens, Beans and Grains: Assemble**\
+`The mighty three ingredients that save my weeknight dinners (and a new habit-forming technique for cooking them easily).`\
+https://nytimes.com/2025/01/07/dining/greens-beans-and-grains-assemble.html
+
 **Fox Sports, Skip Bayless sued by hairstylist alleging sexual harassment**\
 `The woman who filed the lawsuit alleged Bayless made unwanted sexual advances toward her and offered her $1.5 million for sex. `\
 https://nytimes.com/athletic/6042666/2025/01/07/fox-sports-skip-bayless-sued-lawsuit/
