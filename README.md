@@ -1,3 +1,7 @@
+**Meta Reveals Plan to Alter Fact-Checking Program**\
+`The move will end a third-party fact-checking system and rely on users to add notes or corrections to posts. It is likely to please the incoming Trump administration and its conservative allies.`\
+https://nytimes.com/2025/01/07/business/meta-fact-checking-conservative-views.html
+
 **Athletics, Brent Rooker agree to 5-year, $60 million extension: Sources**\
 `It’s a strong outcome for Rooker, 30, who emerged as one of baseball’s top hitters after arriving in Oakland before the 2023 season.`\
 https://nytimes.com/athletic/6043843/2025/01/07/athletics-brent-rooker-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042155/2025/01/07/rangers-chris-kreider-whats-gone
 **How the Broncos spun dead-money doom into ending a long playoff drought**\
 `The Broncos led the NFL with $89 million in dead money but still made key improvements thanks to shrewd free-agency moves, sound drafting.`\
 https://nytimes.com/athletic/6042248/2025/01/07/broncos-dead-money-playoffs-bills/
-
-**The Athletic FC: Aubameyang exclusive, Man Utd and Spurs eye Kolo Muani loan**\
-`Today in TAFC: Aubameyang exclusive, Kolo Muani on Manchester United and Spurs radars, Pulisic stars as Milan win Italian Super Cup.`\
-https://nytimes.com/athletic/6043700/2025/01/07/aubameyang-interview-arsenal-kolo-muani-united/
 
