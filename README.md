@@ -1,3 +1,7 @@
+**Latest Alabama football roster breakdown: Where the Tide stand as QB questions lead the way**\
+`Who follows Jalen Milroe? On the offensive line, there’s both optimism and concern.`\
+https://nytimes.com/athletic/6043118/2025/01/07/alabama-football-roster-breakdown-2025/
+
 **Submit your trade proposals for Kelly Iko’s Southwest Division mailbag**\
 `With the month of January comes two things — New Year&#8217;s resolutions and trade chatter.`\
 https://nytimes.com/athletic/6042059/2025/01/07/grizzlies-spurs-rockets-nba-trade-deadline-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6043130/2025/01/07/blue-jackets-kent-johnson-adjust
 **Meet the 30-year-old play caller behind college basketball's No. 1 offense**\
 `Ahead of its Tuesday game at Texas, No. 2 Auburn leads the country in adjusted offensive efficiency, per KenPom, a first in program history.`\
 https://nytimes.com/athletic/6036419/2025/01/07/auburn-basketball-offense-coordinator-mike-burgomaster/
-
-**What I'm hearing about Jets' head coach and GM searches**\
-`From Mike Vrabel to Rex Ryan, Ben Johnson to Aaron Glenn, a look at where the franchise and the candidates stand.`\
-https://nytimes.com/athletic/6041960/2025/01/07/candidates-new-york-jets-head-coach-general-manager-searches/
 
