@@ -1,3 +1,15 @@
+**Wave coach Eidevall says he has 'no relationship' with USWNT's Hayes after clash last year**\
+`San Diego Wave’s new head coach Jonas Eidevall says he has “no relationship” with his United States Women counterpart Emma Hayes following their clash in England last year.`\
+https://nytimes.com/athletic/6044519/2025/01/07/emma-hayes-jonas-eidevall-wave-uswnt/
+
+**Bob Dylan Wasn’t the Only 1965 Newport Highlight. Hear 14 More.**\
+`Listen to Peter, Paul and Mary’s finale singalong, plus songs from Odetta, the Paul Butterfield Blues Band and more.`\
+https://nytimes.com/2025/01/07/arts/music/amplifier-newsletter-1965-newport-folk-festival.html
+
+**Netflix debut of WWE 'felt massive,' plus more takeaways**\
+`With WWE debuting "Monday Night Raw" on Netflix, here are a few takeaways from the big premiere.`\
+https://nytimes.com/athletic/6044586/2025/01/07/netflix-debut-of-wwe-felt-massive-plus-more-takeaways/
+
 **Meta’s content moderation changes are taking effect amid U.S. regulatory scrutiny.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-content-moderation-changes-are-taking-effect-amid-us-regulatory-scrutiny
