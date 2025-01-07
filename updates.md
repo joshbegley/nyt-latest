@@ -1,3 +1,11 @@
+**Shohei Ohtani former interpreter Ippei Mizuhara has sentencing for fraud delayed a third time**\
+`Mizhuara’s lawyers on Tuesday asked the court for the delay so a forensic psychologist could complete a report about Mizhuara's gambling.`\
+https://nytimes.com/athletic/6045394/2025/01/07/ippei-mizuhara-sentencing-delay-psychological-report/
+
+**Trump’s Pick for U.S. Attorney Is Enmeshed in Long Island Politics**\
+`Joseph Nocella Jr. has maintained deep connections in a Republican Party organization that has veered sharply to the right.`\
+https://nytimes.com/2025/01/07/nyregion/eastern-district-us-attorney-joseph-nocella.html
+
 **Denying a Handshake to Harris, Senator’s Husband Draws Criticism**\
 `The husband of Senator Deb Fischer, Republican of Nebraska, drew criticism online when he failed to accept a handshake offered by Vice President Kamala D. Harris at his wife’s ceremonial swearing-in.`\
 https://nytimes.com/2025/01/07/us/politics/deb-fischer-husband-handshake.html
