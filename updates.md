@@ -1,3 +1,7 @@
+**2 Bodies Found in JetBlue Plane’s Landing Gear at Fort Lauderdale Airport**\
+`A routine post-flight inspection revealed two bodies in the landing gear compartment of a JetBlue plane after a flight from New York on Monday, the airline said.`\
+https://nytimes.com/2025/01/07/us/stowaway-bodies-flight-jetblue-ny-florida.html
+
 **Chris Finch bites the bullet and unveils a new starting lineup for struggling Wolves**\
 `A move like the one Finch made on Monday is not just a basketball decision. It is a political one.`\
 https://nytimes.com/athletic/6043168/2025/01/07/timberwolves-lineup-change-donte-divincenzo-mike-conley/
