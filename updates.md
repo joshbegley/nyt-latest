@@ -1,3 +1,7 @@
+**Chris Finch bites the bullet and unveils a new starting lineup for struggling Wolves**\
+`A move like the one Finch made on Monday is not just a basketball decision. It is a political one.`\
+https://nytimes.com/athletic/6043168/2025/01/07/timberwolves-lineup-change-donte-divincenzo-mike-conley/
+
 **49ers' Ward not sure about return to SF following traumatic personal year**\
 `"Every time I get on a plane to come back to California, San Jose, here, it’s just a bad memory," Ward said.`\
 https://nytimes.com/athletic/6044016/2025/01/07/49ers-charvarius-ward-return-trauma/
