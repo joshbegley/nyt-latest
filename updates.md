@@ -1,3 +1,11 @@
+**Disaster by the Numbers: The Crisis in Sudan**\
+`The United States just formally declared that genocide has taken place in the northeast African nation, but the calamity there dates back decades.`\
+https://nytimes.com/2025/01/07/world/africa/sudan-genocide-numbers.html
+
+**Dolphins GM, coach meet with Tyreek Hill after WR suggests leaving Miami**\
+`Chris Grier and Mike McDaniel addressed the ongoing situation with Hill in the aftermath of Miami's season-ending loss.`\
+https://nytimes.com/athletic/6044878/2025/01/07/dolphins-tyreek-hill-chris-grier-mike-mcdaniel/
+
 **There will be two funerals on Thursday.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/there-will-be-two-funerals-on-thursday

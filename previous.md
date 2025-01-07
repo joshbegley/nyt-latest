@@ -1,3 +1,11 @@
+**Disaster by the Numbers: The Crisis in Sudan**\
+`The United States just formally declared that genocide has taken place in the northeast African nation, but the calamity there dates back decades.`\
+https://nytimes.com/2025/01/07/world/africa/sudan-genocide-numbers.html
+
+**Dolphins GM, coach meet with Tyreek Hill after WR suggests leaving Miami**\
+`Chris Grier and Mike McDaniel addressed the ongoing situation with Hill in the aftermath of Miami's season-ending loss.`\
+https://nytimes.com/athletic/6044878/2025/01/07/dolphins-tyreek-hill-chris-grier-mike-mcdaniel/
+
 **There will be two funerals on Thursday.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/there-will-be-two-funerals-on-thursday
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/02/opinion/thepoint/bangkok-art-biennale
 **What Trudeau’s Resignation Means for Canada**\
 `By suspending Parliament and promising to resign, the prime minister bought the Liberals time. But Canada will now face Donald Trump with a lame duck in charge.`\
 https://nytimes.com/video/world/canada/100000009911176/what-trudeaus-resignation-means-for-canada.html
-
-**Southern California is dangerously dry for this time of year.**\
-`By Amy Graff`\
-https://nytimes.com/2025/01/07/us/southern-california-is-dangerously-dry-for-this-time-of-year.html
-
-**Richarlison hoping to return from injury for north London derby**\
-`Tottenham Hotspur forward Richarlison is targeting a return from injury in next week’s north London derby against Arsenal.`\
-https://nytimes.com/athletic/6044329/2025/01/07/richarlison-injury-arsenal/
 
