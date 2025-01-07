@@ -1,3 +1,7 @@
+**Short of Heat and Power, a Breakaway Region Struggles Without Russian Gas**\
+`An energy crisis in Transnistria, a pro-Russian territory between Moldova and Ukraine, erupted on Jan. 1 when Moscow stopped supplying natural gas through a pipeline running across Ukraine.`\
+https://nytimes.com/2025/01/07/world/europe/transnistria-energy-crisis-russia-gas.html
+
 **Ex-Wazzu coach Nick Rolovich loses lawsuit against school over firing**\
 `Rolovich was denied a religious exemption to the state's COVID-19 vaccine mandate and was later fired along with four assistant coaches.`\
 https://nytimes.com/athletic/6044509/2025/01/07/nick-rolovich-washington-state-lawsuit-firing/
