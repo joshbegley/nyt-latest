@@ -1,40 +1,40 @@
+**Submit your trade proposals for Kelly Iko’s Southwest Division mailbag**\
+`With the month of January comes two things — New Year&#8217;s resolutions and trade chatter.`\
+https://nytimes.com/athletic/6042059/2025/01/07/grizzlies-spurs-rockets-nba-trade-deadline-mailbag/
+
+**Did Vikings' struggles against Lions show a blueprint for how to slow down Sam Darnold?**\
+`Detroit’s defense sent a ton of six- or seven-man pressures and played mostly man coverage. Can the Rams replicate that in the playoffs?`\
+https://nytimes.com/athletic/6042727/2025/01/07/vikings-lions-sam-darnold-blueprint-playoffs/
+
+**Free cars, free rent and free hotels: 9 interesting NHL CBA rules you may not know about**\
+`Hardcore fans are familiar with CBA rules involving contracts and trades, but there's interesting day-to-day details to be found as well.`\
+https://nytimes.com/athletic/6030630/2025/01/07/nhl-cba-interesting-rules/
+
+**Red Wings are thriving under Todd McLellan. How long can they keep it going?**\
+`Five games into Todd McLellan's tenure, the Red Wings have won four straight for the first time all season. `\
+https://nytimes.com/athletic/6042497/2025/01/07/red-wings-todd-mclellan-new-coach-bump/
+
+**What I'm hearing about the Penguins' trade deadline plans**\
+`A look at which players may — or may not be — on the move in the next two months.`\
+https://nytimes.com/athletic/6040729/2025/01/07/penguins-trade-deadline-rakell-pettersson/
+
+**Maple Leafs midseason report cards: Who earned top grades in the first half?**\
+`With the season at the halfway point and the Leafs on top of the Atlantic, individual performances are due for review.`\
+https://nytimes.com/athletic/6041805/2025/01/07/maple-leafs-midseason-report-cards-2024-25/
+
 **In ‘Lockerbie: A Search for Truth,’ Colin Firth Wants Answers**\
 `A new Peacock mini-series dramatizes a father’s obsessive investigation into Britain’s worst terrorist attack: the 1988 bombing of Pan Am Flight 103.`\
 https://nytimes.com/2025/01/07/arts/television/lockerbie-a-search-for-truth-colin-firth.html
 
-**Republicans Take Control of Congress — and Harris Certifies Her Own Loss**\
-`The new Congress certified the 2024 election results without any contest.`\
-https://nytimes.com/2025/01/07/podcasts/the-daily/republican-congress-harris.html
+**Blue Jackets' Kent Johnson now has the NHL's attention, forcing him to adjust**\
+`It doesn't take many multi-point games before the rest of the league takes notice, and Johnson is learning to adapt.`\
+https://nytimes.com/athletic/6043130/2025/01/07/blue-jackets-kent-johnson-adjustment/
 
-**Justin Trudeau to Resign, and U.S. Reports First Bird Flu Death**\
-`Plus, the Taliban welcome tourists to Afghanistan.`\
-https://nytimes.com/2025/01/07/podcasts/canadian-prime-minister-justin-trudeau-resign-bird-flu-death.html
+**Meet the 30-year-old play caller behind college basketball's No. 1 offense**\
+`Ahead of its Tuesday game at Texas, No. 2 Auburn leads the country in adjusted offensive efficiency, per KenPom, a first in program history.`\
+https://nytimes.com/athletic/6036419/2025/01/07/auburn-basketball-offense-coordinator-mike-burgomaster/
 
-**The Connections Companion No. 577**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 8, 2025.`\
-https://nytimes.com/2025/01/07/crosswords/connections-companion-577.html
-
-**Bournemouth's Evanilson undergoes surgery after sustaining broken foot**\
-`Bournemouth striker Evanilson has undergone surgery after suffering a fractured metatarsal in his foot.`\
-https://nytimes.com/athletic/6043696/2025/01/07/evanilson-injury-bournemouth-update/
-
-**MLB contenders' weak spots: The 15 biggest roster holes and what can be done to fill them**\
-`Even the ones projected to fight for postseason berths have weaknesses. Here's what can be done to shore up those problem areas.`\
-https://nytimes.com/athletic/6042397/2025/01/07/mlb-contenders-roster-weaknesses-2025-projections/
-
-**What the Bears can learn from Thomas Brown in their head-coach interview process**\
-`Brown believes he should get credit for adapting and adjusting on the fly after getting promoted twice in 18 days this season.`\
-https://nytimes.com/athletic/6042303/2025/01/07/bears-coaching-search-thomas-brown/
-
-**Tottenham trigger Son contract extension**\
-`Tottenham Hotspur have triggered the option to extend captain Son Heung-min&#8217;s contract until 2026.`\
-https://nytimes.com/athletic/6043662/2025/01/07/son-heung-min-contract-tottenham/
-
-**With Ravens' Marlon Humphrey, always expect the unexpected: 'There's just no replica of him'**\
-`Off the field, you never know what you're going to get from Baltimore's Pro Bowl corner. But on the field, he's all business, all the time.`\
-https://nytimes.com/athletic/6042654/2025/01/07/ravens-playoffs-marlon-humphrey-defense/
-
-**Dehner Jr.: After Bengals firings, hot seat ratchets up early on Zac Taylor in 2025**\
-`DC Lou Anarumo took the fall for the team's disappointing 2024 season, but the onus now falls squarely on the head coach.`\
-https://nytimes.com/athletic/6043028/2025/01/07/zac-taylor-bengals-firings-hot-seat/
+**What I'm hearing about Jets' head coach and GM searches**\
+`From Mike Vrabel to Rex Ryan, Ben Johnson to Aaron Glenn, a look at where the franchise and the candidates stand.`\
+https://nytimes.com/athletic/6041960/2025/01/07/candidates-new-york-jets-head-coach-general-manager-searches/
 
