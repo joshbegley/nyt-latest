@@ -1,3 +1,15 @@
+**Can San Francisco’s New Mayor Make the City Shine Again?**\
+`Daniel Lurie, an heir to the Levi Strauss fortune, will soon take the helm of the liberal mecca. “Resistance” to Donald Trump isn’t on his agenda.`\
+https://nytimes.com/2025/01/07/us/daniel-lurie-san-francisco-mayor.html
+
+**Judge Cannon blocks the release of Jack Smith’s final report on the documents investigation of Trump.**\
+`By Alan Feuer`\
+https://nytimes.com/2025/01/07/us/politics/documents-jack-smith-aileen-cannon.html
+
+**A Sluggish Start for Congestion Pricing**\
+`It would be more effective if Ubers, taxis and trucks had to pay more.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/congestion-pricing-slow-start
+
 **Mandel: The Playoff was supposed to hurt bowls. Is the opposite happening?**\
 `Viewership is high but attendance is down for college football bowl games. Is change on the horizon? `\
 https://nytimes.com/athletic/6044405/2025/01/07/college-football-bowl-games-viewership/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/07/arts/music/peter-yarrow-peter-paul-mary-folk-pop.
 **Sudanese Paramilitary Group Committed Genocide, U.S. Says**\
 `A force fighting Sudan’s army in a brutal civil war committed massacres and rape that amount to genocide, the Secretary of State said. The United States sanctioned its leader and financial network.`\
 https://nytimes.com/2025/01/07/world/africa/sudan-rsf-genocide-us-sanctions.html
-
-**Peter Yarrow, the Peter of Peter, Paul and Mary, Dies at 86**\
-`The folk trio he formed with Noel Paul Stookey and Mary Travers became a pop phenomenon, scoring hits like “If I Had a Hammer” and “Puff the Magic Dragon.”`\
-https://nytimes.com/2025/01/07/arts/music/peter-yarrow-dead.html
-
-**Who Is Joel Kaplan, Meta’s New Global Policy Chief?**\
-`The longtime Republican lobbyist for Meta was named to the company’s top policy role last week.`\
-https://nytimes.com/2025/01/07/business/joel-kaplan-meta.html
-
-**Meta Turns to Community Notes, Mirroring X**\
-`Social media companies are abandoning years of fact-checking practices as Republicans criticize it as censorship.`\
-https://nytimes.com/2025/01/07/business/meta-community-notes-x.html
 
