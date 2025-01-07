@@ -1,3 +1,15 @@
+**The Man Who Got Away**\
+`Fleeing fraud charges, Samuele Landi evaded extradition treaties, dabbled in crypto, procured diplomatic credentials and took advantage of all the offshore world has to offer.`\
+https://nytimes.com/2025/01/07/business/samuele-landi-offshore-seastead.html
+
+**Abortion Pills Prescribed by Pharmacists Are Newest Effort in Abortion Fight**\
+`Washington State’s program is the first, but other states are expected to try allowing pharmacists to prescribe the pills to counter growing efforts to curtail abortion access.`\
+https://nytimes.com/2025/01/07/health/abortion-pills-pharmacist-presribe.html
+
+**Do Football Fans Really Want to Be Fashionable?**\
+`Emma Grede of Skims and Good American and Kristin Juszczyk say the answer is yes.`\
+https://nytimes.com/2025/01/07/style/emma-grede-kristin-juszczyk-off-season.html
+
 **Firefighter Is Killed After Roof Partly Collapses in Honolulu Blaze**\
 `Five other people, including four firefighters, were taken to the hospital with injuries from the fire.`\
 https://nytimes.com/2025/01/07/us/honolulu-fire-fighter-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6043726/2025/01/07/murillo-contract-nottingham-fore
 **Trump Transition Live Updates: Trump Expected to Hold News Conference at Mar-a-Lago**\
 ``\
 https://nytimes.com/live/2025/01/07/us/trump-news
-
-**NFL Week 18 best and worst coaching decisions: Lions' Aaron Glenn flusters Sam Darnold**\
-`Also, Bengals defensive coordinator Lou Anarumo had one last brilliant game plan for Cincinnati before being fired Monday.`\
-https://nytimes.com/athletic/6040897/2025/01/07/nfl-week-18-worst-best-coaching-decisions-nguyen/
-
-**Weekly Student News Quiz: Plane Crash, President Carter, Golden Globes**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/01/07/learning/07StudentNewsQuizLN.html
-
-**Trump is expected to hold his second news conference since winning the election.**\
-`The expected topic is an economic development, b`\
-https://nytimes.com/live/2025/01/07/us/trump-news/trump-news-conference
 
