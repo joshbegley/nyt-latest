@@ -1,3 +1,11 @@
+**Exxon Sues California Official, Claiming He Defamed the Company**\
+`The lawsuit, an unusual strategy for the oil giant, comes after California’s attorney general sued Exxon last year alleging it misled the public about plastics recycling.`\
+https://nytimes.com/2025/01/07/climate/exxon-bonta-california-defamation-lawsuit.html
+
+**Washington Post Lays Off 4 Percent of Its Work Force**\
+`The layoffs will affect employees across The Post’s business operations, not its newsroom.`\
+https://nytimes.com/2025/01/07/business/media/washington-post-layoffs.html
+
 **Live Updates: Meta to End Fact-Checking Program in Shift Ahead of Trump Term**\
 `The social networking giant will stop using third-party fact checkers and instead rely on users to add notes to posts. It is likely to please President-elect Trump and his conservative allies.`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking
