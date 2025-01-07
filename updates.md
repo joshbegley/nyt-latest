@@ -1,3 +1,11 @@
+**Read Defense Lawyers’ Arguments to Block a Trump Documents Case Report**\
+`Lawyers for President-elect Donald J. Trump urged the attorney general in a letter to stop the special counsel from publicly releasing a final report on the case, while lawyers for his co-defendants, in a court filing, asked the same of the judge who oversaw the case.`\
+https://nytimes.com/interactive/2025/01/06/us/govuscourtsflsd64865467903.html
+
+**How the Canucks threw away a third-period lead in Montreal: 3 takeaways**\
+`J.T. Miller had a hand in all four Canucks goals, but Vancouver was forced to settle for one point in a winnable game.`\
+https://nytimes.com/athletic/6043162/2025/01/06/canucks-jt-miller-quinn-hughes-canadiens/
+
 **Defense Lawyers Seek to Block Special Counsel Report in Trump Documents Case**\
 `Both the Justice Department and the judge who oversaw the case were asked to stop the public release of the report.`\
 https://nytimes.com/2025/01/06/us/politics/trump-classified-documents-case-jack-smith.html
