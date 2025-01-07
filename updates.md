@@ -1,3 +1,7 @@
+**Suns start surprised Bradley Beal on the bench. He rallied them to a win anyway**\
+`The change put a spotlight on Beal's place on the Suns, especially with Jimmy Butler rumors swirling.`\
+https://nytimes.com/athletic/6043392/2025/01/07/bradley-beal-suns-jimmy-butler-sixers/
+
 **Suns start surprised Bradley Beal on the bench. He rallies them to a win anyway**\
 `The change put a spotlight on Beal's place on the Suns, especially with Jimmy Butler rumors swirling.`\
 https://nytimes.com/athletic/6043392/2025/01/07/bradley-beal-suns-jimmy-butler-sixers/
