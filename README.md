@@ -1,3 +1,7 @@
+**Celebrities flee their homes as the fire forces more evacuations.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/2025/01/07/us/celebrities-flee-their-homes-as-the-fire-forces-more-evacuations.html
+
 **Los Angeles Fires Force Thousands to Evacuate**\
 `Also, Trump suggested expanding the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/07/briefing/los-angeles-fires-trump-greenland-52-places.html
@@ -16,7 +20,7 @@ https://nytimes.com/video/world/canada/100000009911176/what-trudeaus-resignation
 
 **Southern California is dangerously dry for this time of year.**\
 `By Amy Graff`\
-https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california/southern-california-is-dangerously-dry-for-this-time-of-year
+https://nytimes.com/2025/01/07/us/southern-california-is-dangerously-dry-for-this-time-of-year.html
 
 **Richarlison hoping to return from injury for north London derby**\
 `Tottenham Hotspur forward Richarlison is targeting a return from injury in next week’s north London derby against Arsenal.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/politics/trump-greenland.html
 **Trump Again Hints at Jan. 6 Pardons, Including for Attacks on Police**\
 `At a news conference, the president-elect sought to blame the F.B.I. for the riot at the Capitol, echoing a conspiracy theory that is widespread on the right.`\
 https://nytimes.com/2025/01/07/us/politics/trump-jan-6-pardons-violence.html
-
-**Mark Gronowski, former South Dakota State QB, transfers to Iowa**\
-`Gronowski led South Dakota State to FCS national championships in 2022 and 2023.`\
-https://nytimes.com/athletic/6039796/2025/01/07/mark-gronowski-iowa-college-football-transfer-quarterback/
 
