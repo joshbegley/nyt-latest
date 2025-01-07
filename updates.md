@@ -1,3 +1,7 @@
+**Meta Turns to Community Notes, Mirroring X**\
+`Social media companies are abandoning years of fact-checking practices as Republicans criticize it as censorship.`\
+https://nytimes.com/2025/01/07/business/meta-community-notes-x.html
+
 **Trump Asks Appeals Court to Freeze His New York Criminal Sentencing**\
 `President-elect Donald J. Trump is trying to expunge his conviction before he is inaugurated. He would be the first felon elected to the Oval Office.`\
 https://nytimes.com/2025/01/07/nyregion/trump-criminal-sentencing-appeal.html
