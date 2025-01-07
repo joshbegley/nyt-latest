@@ -1,3 +1,7 @@
+**If Wolves want to avoid a long winter, they need recruits - and fast**\
+`A chastening defeat to Nottingham Forest was a reality check and underlined the need for a busy January`\
+https://nytimes.com/athletic/6042824/2025/01/07/wolverhampton-wanderers-transfers-january-targets/
+
 **Forest are ticking off milestones by the week - who knows where it will end?**\
 `Matching a record that has stood for almost 60 years has just further fuelled the dreams of Forest fans `\
 https://nytimes.com/athletic/6043025/2025/01/07/nottingham-forest-premier-league-top-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000688/2025/01/07/premier-league-players-prviate-c
 **Santos return, Miami with Messi or staying at Al Hilal: What now for Neymar after Saudi frustration?**\
 `The Brazilian's time at Al Hilal has been blighted by injury and with his contract expiring this summer both parties have a decision to make`\
 https://nytimes.com/athletic/6041270/2025/01/07/what-now-for-neymar-saudi-miami-messi/
-
-**Explained: How in-stadium VAR announcements will work in Carabao Cup semi-finals**\
-`Referees will speak directly to supporters after major VAR incidents for the first time during this week's Carabao Cup matches`\
-https://nytimes.com/athletic/6042629/2025/01/07/var-stadium-announcements-explained/
 

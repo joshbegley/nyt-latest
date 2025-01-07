@@ -1,3 +1,7 @@
+**If Wolves want to avoid a long winter, they need recruits - and fast**\
+`A chastening defeat to Nottingham Forest was a reality check and underlined the need for a busy January`\
+https://nytimes.com/athletic/6042824/2025/01/07/wolverhampton-wanderers-transfers-january-targets/
+
 **Forest are ticking off milestones by the week - who knows where it will end?**\
 `Matching a record that has stood for almost 60 years has just further fuelled the dreams of Forest fans `\
 https://nytimes.com/athletic/6043025/2025/01/07/nottingham-forest-premier-league-top-four/
