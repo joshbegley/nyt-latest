@@ -1,3 +1,7 @@
+**Colts, Jim Irsay could have made major changes. Here’s why they chose continuity instead**\
+`Frustrating though it may be, there's some logic behind the Colts sticking with Chris Ballard, Shane Steichen and Anthony Richardson. `\
+https://nytimes.com/athletic/6042652/2025/01/06/colts-jim-irsays-anthony-richardson-chris-ballard/
+
 **Colts defensive coordinator search: 10 potential candidates to replace Gus Bradley**\
 `Our list includes a few former head coaches and a handful of rising stars in the coaching ranks. `\
 https://nytimes.com/athletic/6037699/2025/01/06/colts-defensive-coordinator-candidates-gus-bradley/
