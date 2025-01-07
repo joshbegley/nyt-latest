@@ -1,3 +1,11 @@
+**Fight for a North Carolina Court Seat Drags On Long After Election Day**\
+`Three counts show an incumbent Democrat won election to the State Supreme Court. But an unusual protest by the G.O.P. challenger could be headed to that same Republican-controlled court.`\
+https://nytimes.com/2025/01/07/us/north-carolina-election-ballots-republicans.html
+
+**Raphinha: Players 'would probably think twice' about joining Barcelona after Olmo saga**\
+`Raphinha has said that players &#8220;would probably think twice&#8221; about coming to Barcelona after Dani Olmo and Pau Victor were de-registered from their first-team squad.`\
+https://nytimes.com/athletic/6044490/2025/01/07/barcelona-dani-olmo-raphinha/
+
 **USWNT's January senior camp roster revealed**\
 `Crystal Dunn will make her return to the USWNT program after missing the team’s fall camps.`\
 https://nytimes.com/athletic/6044200/2025/01/07/uswnt-roster-camp-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/nyregion/trump-criminal-sentencing-appeal.html
 **Patti Davis’s Reflections on Joe Biden and Her Dad, Ronald Reagan**\
 `Readers discuss a guest essay about the aging of two presidents. Also: A peaceful Jan. 6; the Palestinians’ future; mind-altering drugs.`\
 https://nytimes.com/2025/01/07/opinion/patti-davis-joe-biden-ronald-reagan.html
-
-**Who Are the Winners and Losers in Disney’s Fubo Deal?**\
-`The agreement ends litigation between the two companies over plans for a sports streaming service, but consumer advocates are pushing back.`\
-https://nytimes.com/2025/01/07/business/dealbook/disney-fubo-hulu-streaming.html
-
-**What's next for the Mets after meeting with top reliever Tanner Scott**\
-`The Mets are looking to add one to two relievers to the bullpen, league sources said, and they're expected to check out all the options.`\
-https://nytimes.com/athletic/6044292/2025/01/07/mets-bullpen-outlook-sign-tanner-scott/
 
