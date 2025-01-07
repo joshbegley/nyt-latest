@@ -1,3 +1,7 @@
+**Los Angeles Fires Force Thousands to Evacuate**\
+`Also, Trump suggested expanding the U.S. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/07/briefing/los-angeles-fires-trump-greenland-52-places.html
+
 **In Israeli Video, Detainee Says Hamas Operates Out of Gaza Hospital**\
 `Facing international condemnation and pressure to free the chief of Kamal Adwan Hospital, Israel released a brief interrogation video backing up its claim that militants used the hospital as a base.`\
 https://nytimes.com/2025/01/07/world/middleeast/kamal-adwan-hospital-hamas-video.html

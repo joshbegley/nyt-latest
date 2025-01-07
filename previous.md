@@ -1,3 +1,7 @@
+**Los Angeles Fires Force Thousands to Evacuate**\
+`Also, Trump suggested expanding the U.S. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/07/briefing/los-angeles-fires-trump-greenland-52-places.html
+
 **In Israeli Video, Detainee Says Hamas Operates Out of Gaza Hospital**\
 `Facing international condemnation and pressure to free the chief of Kamal Adwan Hospital, Israel released a brief interrogation video backing up its claim that militants used the hospital as a base.`\
 https://nytimes.com/2025/01/07/world/middleeast/kamal-adwan-hospital-hamas-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/politics/trump-jan-6-pardons-violence.html
 **Mark Gronowski, former South Dakota State QB, transfers to Iowa**\
 `Gronowski led South Dakota State to FCS national championships in 2022 and 2023.`\
 https://nytimes.com/athletic/6039796/2025/01/07/mark-gronowski-iowa-college-football-transfer-quarterback/
-
-**Inside the transfer portal and NFL draft decisions for Georgia**\
-`Two days after adding a receiver and safety from the transfer portal, Georgia had another busy day on Tuesday.`\
-https://nytimes.com/athletic/6044154/2025/01/07/noah-thomas-jaden-harris-adrian-maddox-georgia-transfer-portal/
 
