@@ -1,3 +1,7 @@
+**There will be two funerals on Thursday.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/there-will-be-two-funerals-on-thursday
+
 **Trump Warns ‘All Hell Will Break Out’ if Hostages in Gaza Are Not Freed**\
 `The president-elect did not elaborate on what actions he might take if the captives are not released by the time he takes office.`\
 https://nytimes.com/2025/01/07/us/politics/trump-hostages-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/southern-california-is-dangerously-dry-for-thi
 **Richarlison hoping to return from injury for north London derby**\
 `Tottenham Hotspur forward Richarlison is targeting a return from injury in next week’s north London derby against Arsenal.`\
 https://nytimes.com/athletic/6044329/2025/01/07/richarlison-injury-arsenal/
-
-**Report Faults Trump Officials Over Coronavirus Inquiry in New York and New Jersey**\
-`While the findings are dated, they come as many current and former Justice Department officials fear that the incoming Trump administration will run the department with an eye toward score-settling.`\
-https://nytimes.com/2025/01/07/us/politics/justice-dept-coronavirus-deaths-nursing-homes.html
 
