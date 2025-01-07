@@ -1,3 +1,15 @@
+**Judge Cannon Blocks Release of Special Counsel’s Final Report on Trump Documents Investigation**\
+`Judge Aileen M. Cannon, a Trump appointee who dismissed the documents case in its entirety this summer, on Tuesday temporarily barred the special counsel, Jack Smith, from releasing the results of his investigation to the public.`\
+https://nytimes.com/2025/01/07/us/politics/trump-documents-case-jack-smith-report.html
+
+**A Sluggish Start for Congestion Pricing**\
+`It would be more effective if Ubers, taxis and trucks had to pay more.`\
+https://nytimes.com/2025/01/07/opinion/congestion-pricing-slow-start.html
+
+**Mandel: The Playoff was supposed to hurt bowls. Is the opposite happening?**\
+`Viewership is high but attendance is down for college football bowl games. Is change on the horizon? `\
+https://nytimes.com/athletic/6044405/2025/01/07/college-football-bowl-games-viewership/
+
 **Trump Raises the Possibility of Using Military or Economic Force to Take Greenland and the Panama Canal**\
 `In an hourlong news conference at his Florida club, Mar-a-Lago, the president-elect delivered a hodgepodge of grievances, complaints and false claims.`\
 https://nytimes.com/2025/01/07/us/politics/trump-panama-canal-greenland.html
