@@ -1,3 +1,7 @@
+**Strong Earthquake Hits Remote Tibet in Western China, Killing 32**\
+`The 7.1-magnitude quake was felt in neighboring Nepal. Chinese state media said there had been deaths in at least three townships.`\
+https://nytimes.com/2025/01/06/world/asia/china-tibet-nepal-quake.html
+
 **Read Defense Lawyers’ Arguments to Block a Trump Documents Case Report**\
 `Lawyers for President-elect Donald J. Trump urged the attorney general in a letter to stop the special counsel from publicly releasing a final report on the case, while lawyers for his co-defendants, in a court filing, asked the same of the judge who oversaw the case.`\
 https://nytimes.com/interactive/2025/01/06/us/govuscourtsflsd64865467903.html
