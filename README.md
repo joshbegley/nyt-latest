@@ -1,3 +1,11 @@
+**‘One of the Faces of Jan. 6’**\
+`What happened to the rioter who put his boot on a desk in Nancy Pelosi’s office.`\
+https://nytimes.com/2025/01/06/us/politics/jan-6-pelosi-trump.html
+
+**Shooter at Honduran Consulate in Georgia Kills One and Injures Another**\
+`The police arrested the person they believe opened fire outside the entrance to the consulate, which is near Atlanta.`\
+https://nytimes.com/2025/01/06/us/honduras-consulate-shooting-atlanta.html
+
 **Colts fire DC Gus Bradley after 3 seasons**\
 `Indianapolis was Bradley's fourth stop as a defensive coordinator and now Shane Steichen is looking for his replacement.`\
 https://nytimes.com/athletic/6027862/2025/01/06/colts-fire-gus-bradley-defensive-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/06/technology/dana-white-meta-board-ufc.html
 **A Reporter’s Reflection on Jan. 6, Then and Now**\
 `Luke Broadwater was at the Capitol when a pro-Trump mob stormed the complex on Jan. 6, 2021, as Congress was certifying Joseph R. Biden Jr.’s victory. Four years later, he reflects on what has changed.`\
 https://nytimes.com/2025/01/06/us/politics/trump-capitol-attack-jan-6-reporter.html
-
-**Browns are giving Kevin Stefanski, Andrew Berry one more chance to get it right**\
-`In 2025, the GM, head coach and the entire operation must show not just immediate progress but also actual fixes. `\
-https://nytimes.com/athletic/6042592/2025/01/06/browns-coach-kevin-stefanski-gm-andrew-berry/
-
-**Mike Rinder, Scientology Spokesman Turned Critic, Dies at 69**\
-`In a memoir and as a host of the documentary series “Leah Remini: Scientology and the Aftermath,” he accused the church of fostering a culture of abuse.`\
-https://nytimes.com/2025/01/06/us/mike-rinder-dead-scientology-critic.html
 
