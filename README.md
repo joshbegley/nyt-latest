@@ -1,3 +1,11 @@
+**Rashford representatives hold talks with AC Milan over loan move**\
+`Marcus Rashford&#8217;s representatives have held exploratory talks with AC Milan about loaning the Manchester United forward in the January transfer window.`\
+https://nytimes.com/athletic/6045126/2025/01/07/rashford-milan-loan-man-utd/
+
+**Portland Thorns name Jeff Agoos, U.S. Soccer Hall of Famer, as GM**\
+`The hire continues a rebuild that has included a coaching change and the departure of previous GM Karina LeBlanc.`\
+https://nytimes.com/athletic/6044660/2025/01/07/portland-thorns-jeff-agoos-general-manager/
+
 **In December, the Franklin fire brought terror to Malibu.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california/in-december-the-franklin-fire-brought-terror-to-malibu
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/learning/lesson-plans/lets-discuss-music-playlist
 **Meta’s fact-checking partners were surprised by the decision not to renew the program.**\
 `By Stuart A. Thompson and Ken Bensinger`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-fact-checking-partners-were-surprised-by-the-decision-not-to-renew-the-program
-
-**A Flurry of Announcements Signal That the Trump Family Will Keep Making Deals**\
-`Even before the start of the new administration, there has been repeated blurring of lines between the federal government efforts and Trump family businesses.`\
-https://nytimes.com/2025/01/07/us/politics/trump-hussain-sajwani-damac-crypto-deals.html
-
-**Carter never took to Washington. The feeling was mutual.**\
-`By Peter Baker`\
-https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/carter-never-took-to-washington-the-feeling-was-mutual
 
