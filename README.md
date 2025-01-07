@@ -1,3 +1,11 @@
+**Carter eschewed the typical majesty of the presidency.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/carter-eschewed-the-typical-majesty-of-the-presidency
+
+**Latest Updates: Carter Arrives in Washington for a Pomp-Filled Farewell**\
+`Former President Jimmy Carter, who once banned the playing of “Hail to the Chief,” will be honored with three days of elaborate ceremonies in the nation’s capital.`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington
+
 **Why Manchester United would consider selling Mainoo and Garnacho if the price was right**\
 `Selling a homegrown player would help Manchester United's financial situation, with both players unlikely to be short of suitors`\
 https://nytimes.com/athletic/6044696/2025/01/07/manchester-united-mainoo-garnacho-transfer-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/world/europe/ireland-icj-israel-genocide.html
 **Pippa Garner, Conceptual Artist With a Satirical Streak, Dies at 82**\
 `Her witty drawings, arresting sculptures and outlandish gadgets commented on consumerism, gender relations (she had transitioned) American car culture and more.`\
 https://nytimes.com/2025/01/07/arts/pippa-garner-dead.html
-
-**Texas president Jay Hartzell leaves for same job at SMU**\
-`Hartzell was one of the key figures in the Longhorns’ move to the Southeastern Conference.`\
-https://nytimes.com/athletic/6044697/2025/01/07/jay-hartzell-texas-president-smu/
-
-**Wave coach Eidevall says he has 'no relationship' with USWNT's Hayes after clash last year**\
-`San Diego Wave’s new head coach Jonas Eidevall says he has “no relationship” with his United States Women counterpart Emma Hayes following their clash in England last year.`\
-https://nytimes.com/athletic/6044519/2025/01/07/emma-hayes-jonas-eidevall-wave-uswnt/
 
