@@ -30,8 +30,8 @@ https://nytimes.com/2025/01/07/business/trump-meta-disinformation.html
 `The Bears' search for their next coach will involve more than GM Ryan Poles, president/CEO Kevin Warren and chairman George McCaskey.`\
 https://nytimes.com/athletic/6044831/2025/01/07/chicago-bears-coaching-search-ryan-poles/
 
-**Live Updates: Wildfires Erupt in Los Angeles, Driven by Fierce Winds**\
-`Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
+**Live Updates: L.A. Wildfires Force Thousands to Evacuate Pacific Palisades**\
+`Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., threatened homes along the coastline.`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
 
 **Trump Promises to End New Wind Farms**\
