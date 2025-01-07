@@ -18,8 +18,8 @@ https://nytimes.com/live/2025/01/07/us/trump-news/trump-news-conference
 `The chipmaker, which has led a  rally in artificial intelligence stocks, laid out a vision for dominating so-called physical A.I. Investors appeared impressed.`\
 https://nytimes.com/2025/01/07/business/dealbook/nvidia-ai-robots.html
 
-**Meta Reveals Plan to Alter Fact-Checking Program**\
-`The move will end a third-party fact-checking system and rely on users to add notes or corrections to posts. It is likely to please the incoming Trump administration and its conservative allies.`\
+**Meta Moves to End Fact-Checking Program**\
+`The social networking giant will stop using third-party fact checkers and instead rely on users to add notes or corrections to posts. It is likely to please the Trump administration.`\
 https://nytimes.com/2025/01/07/business/meta-fact-checking-conservative-views.html
 
 **Athletics, Brent Rooker agree to 5-year, $60 million extension: Sources**\
