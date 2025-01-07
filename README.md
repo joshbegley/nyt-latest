@@ -1,3 +1,7 @@
+**Live Updates: Meta to End Fact-Checking Program in Shift Ahead of Trump Term**\
+`The social networking giant will stop using third-party fact checkers and instead rely on users to add notes to posts. It is likely to please President-elect Trump and his conservative allies.`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking
+
 **Two Bodies Found in Plane’s Landing Gear at Fort Lauderdale Airport**\
 `A routine post-flight inspection revealed two bodies in the landing gear compartment of a JetBlue plane after a flight from New York on Monday, the airline said.`\
 https://nytimes.com/2025/01/07/us/stowaway-bodies-flight-jetblue-ny-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6043741/2025/01/07/nba-power-rankings-cavaliers-thu
 **Earthquake Kills Scores of People in a Remote Part of Tibet**\
 `The magnitude 7.1 earthquake struck a region near one of Tibet’s holiest cities, close to the Himalayan border with Nepal.`\
 https://nytimes.com/video/world/asia/100000009911874/tibet-deadly-earthquake.html
-
-**Bournemouth sign defender Soler from Lanus**\
-`Bournemouth have confirmed the signing of defender Julio Soler from Argentine club Lanus.`\
-https://nytimes.com/athletic/6037281/2025/01/07/bournemouth-transfers-julio-soler/
 
