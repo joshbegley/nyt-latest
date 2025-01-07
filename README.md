@@ -1,3 +1,19 @@
+**Live Updates: Wildfires Erupt in Los Angeles, Driven by Fierce Winds**\
+`Rapidly spreading flames, fanned by gusts of up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
+https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
+
+**Trump Promises to End New Wind Farms**\
+`Wind energy is one of the fastest growing and cheapest forms of electricity in the United States. The president-elect calls it “garbage.”`\
+https://nytimes.com/2025/01/07/climate/trump-wind-turbines.html
+
+**Man Charged in Subway Burning Says He Was Drunk and Remembers Nothing**\
+`Sebastian Zapeta-Calil, confronted with video of the immolation of Debrina Kawam, told detectives he was blackout drunk at the time. He pleaded not guilty to murder on Tuesday.`\
+https://nytimes.com/2025/01/07/nyregion/subway-burning-defendant-questioning.html
+
+**Are These Shoes Hideous or Genius?**\
+`A conversation about the New Balance “Snoafers” — not quite sneakers, not quite loafers.`\
+https://nytimes.com/2025/01/07/style/sneakers-new-balance-snoafers.html
+
 **Biden Won’t Point to the Real Culprit in the Sudanese Genocide**\
 `Why are Biden and his aides reluctant to hold a crucial culprit accountable?`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/biden-sudan-genocide
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/01/07/business/meta-fact-checking/mark-zuckerbergs
 **Carter eschewed the typical majesty of the presidency.**\
 `By Peter Baker`\
 https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/carter-eschewed-the-typical-majesty-of-the-presidency
-
-**Latest Updates: Carter Arriving in Washington for a Pomp-Filled Farewell**\
-`Former President Jimmy Carter, who once banned the playing of “Hail to the Chief,” will be honored with three days of elaborate ceremonies in the nation’s capital.`\
-https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington
-
-**Why Manchester United would consider selling Mainoo and Garnacho if the price was right**\
-`Selling a homegrown player would help Manchester United's financial situation, with both players unlikely to be short of suitors`\
-https://nytimes.com/athletic/6044696/2025/01/07/manchester-united-mainoo-garnacho-transfer-chelsea/
-
-**Meta Says Fact-Checkers Were the Problem. Fact-Checkers Rule That False.**\
-`Fact-checking groups that worked with Meta said they had no role in deciding what the company did with the content that was fact-checked.`\
-https://nytimes.com/2025/01/07/business/mark-zuckerberg-meta-fact-check.html
-
-**House Passes Bill to Deport Unauthorized Immigrants Charged With Minor Crimes**\
-`Forty-eight Democrats joined Republicans in supporting legislation that aims to deport more migrants charged with nonviolent crimes, a first salvo in a broader crackdown.`\
-https://nytimes.com/2025/01/07/us/house-bill-migrants-crime-laken-riley.html
 
