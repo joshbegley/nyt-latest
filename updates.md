@@ -1,3 +1,7 @@
+**Pittsburgh Man Who Threw an Explosive at University Police Gets 5 Years**\
+`Brian DiPippa was accused of dropping smoke bomb containers at a University of Pittsburgh campus transgender rights protest in 2023. His wife, Krystal DiPippa, was sentenced to probation.`\
+https://nytimes.com/2025/01/07/us/pittsburgh-protest-officer-injured-couple-sentenced.html
+
 **U.S. Presses for Release of Americans Held in Afghanistan**\
 `The White House has discussed a possible swap with the Taliban for a prisoner at Guantánamo Bay, according to people familiar with the matter.`\
 https://nytimes.com/2025/01/07/us/politics/american-hostages-taliban-afghanistan.html
