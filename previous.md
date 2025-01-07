@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6044831/2025/01/07/chicago-bears-coaching-search-ryan-poles/
 
 **Live Updates: Wildfires Erupt in Los Angeles, Driven by Fierce Winds**\
-`Rapidly spreading flames, fanned by gusts of up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
+`Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
 
 **Trump Promises to End New Wind Farms**\

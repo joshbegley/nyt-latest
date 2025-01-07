@@ -1,3 +1,7 @@
+**Live Updates: Wildfires Erupt in Los Angeles, Driven by Fierce Winds**\
+`Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
+https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
+
 **This Bears coaching search looks like a case of too many cooks in the kitchen**\
 `The Bears' search for their next coach will involve more than GM Ryan Poles, president/CEO Kevin Warren and chairman George McCaskey.`\
 https://nytimes.com/athletic/6044831/2025/01/07/chicago-bears-coaching-search-ryan-poles/
