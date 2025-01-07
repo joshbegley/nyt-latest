@@ -1,3 +1,7 @@
+**Word of the Day: febrile**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/07/learning/word-of-the-day-febrile.html
+
 **If Wolves want to avoid a long winter, they need recruits - and fast**\
 `A chastening defeat to Nottingham Forest was a reality check and underlined the need for a busy January`\
 https://nytimes.com/athletic/6042824/2025/01/07/wolverhampton-wanderers-transfers-january-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6041940/2025/01/07/randal-kolo-muani-tottenham-man-
 **Why are footballers hiring private fitness coaches during the season - and is it a problem?**\
 `Despite the expertise and facilities available to players at their clubs, some still feel it’s necessary for them to extract marginal gains`\
 https://nytimes.com/athletic/6000688/2025/01/07/premier-league-players-prviate-coaches/
-
-**Santos return, Miami with Messi or staying at Al Hilal: What now for Neymar after Saudi frustration?**\
-`The Brazilian's time at Al Hilal has been blighted by injury and with his contract expiring this summer both parties have a decision to make`\
-https://nytimes.com/athletic/6041270/2025/01/07/what-now-for-neymar-saudi-miami-messi/
 

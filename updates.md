@@ -1,3 +1,7 @@
+**Word of the Day: febrile**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/07/learning/word-of-the-day-febrile.html
+
 **If Wolves want to avoid a long winter, they need recruits - and fast**\
 `A chastening defeat to Nottingham Forest was a reality check and underlined the need for a busy January`\
 https://nytimes.com/athletic/6042824/2025/01/07/wolverhampton-wanderers-transfers-january-targets/
