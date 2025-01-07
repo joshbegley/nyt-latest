@@ -1,3 +1,15 @@
+**Wave coach Eidevall says he has 'no relationship' with USWNT's Hayes after clash last year**\
+`San Diego Wave’s new head coach Jonas Eidevall says he has “no relationship” with his United States Women counterpart Emma Hayes following their clash in England last year.`\
+https://nytimes.com/athletic/6044519/2025/01/07/emma-hayes-jonas-eidevall-wave-uswnt/
+
+**Bob Dylan Wasn’t the Only 1965 Newport Highlight. Hear 14 More.**\
+`Listen to Peter, Paul and Mary’s finale singalong, plus songs from Odetta, the Paul Butterfield Blues Band and more.`\
+https://nytimes.com/2025/01/07/arts/music/amplifier-newsletter-1965-newport-folk-festival.html
+
+**Netflix debut of WWE 'felt massive,' plus more takeaways**\
+`With WWE debuting "Monday Night Raw" on Netflix, here are a few takeaways from the big premiere.`\
+https://nytimes.com/athletic/6044586/2025/01/07/netflix-debut-of-wwe-felt-massive-plus-more-takeaways/
+
 **Meta’s content moderation changes are taking effect amid U.S. regulatory scrutiny.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-content-moderation-changes-are-taking-effect-amid-us-regulatory-scrutiny
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/07/crosswords/wordle-review-1299.html
 **Playing the hits: From zeroRB to Brian Thomas, what went right in fantasy football 2024**\
 `Michael Salfino looks at what went right in fantasy football 2024, including a rule about rookies that was underscored by Brian Thomas Jr. `\
 https://nytimes.com/athletic/6043518/2025/01/07/fantasy-football-2024-zerorb-brian-thomas/
-
-**Trump Raises the Possibility of Using Military or Economic Force to Take Greenland and the Panama Canal**\
-`In an hourlong news conference at his Florida club, Mar-a-Lago, the president-elect delivered a hodgepodge of grievances, complaints and false claims.`\
-https://nytimes.com/2025/01/07/us/politics/trump-panama-canal-greenland.html
-
-**Wave hires Eidevall as new head coach**\
-`San Diego Wave has hired Jonas Eidevall as its new head coach.`\
-https://nytimes.com/athletic/6035234/2025/01/07/san-diego-wave-jonas-eidevall-confirmed/
-
-**Brighton's Kadioglu out for extended period after surgery on toe injury**\
-`Brighton &amp; Hove Albion will be without Ferdi Kadioglu for an extended period after a toe injury suffered by the Turkey international required an operation.`\
-https://nytimes.com/athletic/6044611/2025/01/07/brighton-ferdi-kadiolgu-injury/
 
