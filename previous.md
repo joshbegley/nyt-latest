@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`Welcome to your weekly guide to the January transfer window`\
+https://nytimes.com/athletic/6035268/2025/01/07/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-barcelona/
+
 **Two wins, one trophy and a big cigar later, Milan look a team reborn**\
 `An unlikely Italian Super Cup win has reinvigorated an ailing club - suddenly the future looks bright`\
 https://nytimes.com/athletic/6043007/2025/01/07/milan-italian-super-cup-sergio-conceicao/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6043392/2025/01/07/bradley-beal-suns-jimmy-butler-s
 **Sabres aren't counting themselves out of playoffs despite an ugly first half**\
 `There's still a long way to go to make up for the 13-game winless streak, but at long last the Sabres are trending in the right direction.`\
 https://nytimes.com/athletic/6043495/2025/01/07/sabres-playoffs-first-half-capitals/
-
-**Welcome to the Jacob Murphy Appreciation Society. This is our time**\
-`He is Newcastle's leading assister and a player Eddie Howe relies on, yet the winger divides opinion like no one else at St James' Park`\
-https://nytimes.com/athletic/6041501/2025/01/07/jacob-murphy-appreciation-society-newcastle/
 

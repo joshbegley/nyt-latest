@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`Welcome to your weekly guide to the January transfer window`\
+https://nytimes.com/athletic/6035268/2025/01/07/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-barcelona/
+
 **Two wins, one trophy and a big cigar later, Milan look a team reborn**\
 `An unlikely Italian Super Cup win has reinvigorated an ailing club - suddenly the future looks bright`\
 https://nytimes.com/athletic/6043007/2025/01/07/milan-italian-super-cup-sergio-conceicao/
