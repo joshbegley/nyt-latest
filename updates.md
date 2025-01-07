@@ -1,3 +1,11 @@
+**2025 NBA viewer guide: What to know about broadcasts, schedules, streaming and more**\
+`Rooting interests and betting implications aside, NBA fandom is a consistently rewarding endeavor. Here's how to watch the games in 2025!`\
+https://nytimes.com/athletic/6022280/2025/01/06/how-to-watch-nba-2025-streams-channels/
+
+**52 Places to Go in 2025**\
+`Where will the new year take you? Kick-start your travel plans by selecting favorites from our annual list.`\
+https://nytimes.com/interactive/2025/travel/places-to-travel-destinations-2025.html
+
 **‘One of the Faces of Jan. 6’**\
 `What happened to the rioter who put his boot on a desk in Nancy Pelosi’s office.`\
 https://nytimes.com/2025/01/06/us/politics/jan-6-pelosi-trump.html
