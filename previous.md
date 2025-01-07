@@ -1,3 +1,11 @@
+**Sudanese Paramilitary Group Committed Genocide, U.S. Says**\
+`A force fighting Sudan’s army in a brutal civil war committed massacres and rape that amount to genocide, the Secretary of State said. The United States sanctioned its leader and financial network.`\
+https://nytimes.com/2025/01/07/world/africa/sudan-rsf-genocide-us-sanctions.html
+
+**Peter Yarrow, the Peter of Peter, Paul and Mary, Dies at 86**\
+`The folk trio he formed with Noel Paul Stookey and Mary Travers became a pop phenomenon, scoring hits like “If I Had a Hammer” and “Puff the Magic Dragon.”`\
+https://nytimes.com/2025/01/07/arts/music/peter-yarrow-dead.html
+
 **Who Is Joel Kaplan, Meta’s New Global Policy Chief?**\
 `The longtime Republican lobbyist for Meta was named to the company’s top policy role last week.`\
 https://nytimes.com/2025/01/07/business/joel-kaplan-meta.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-ends-interv
 **Saudi-Backed LIV Golf Will Return to Trump’s Doral Resort in 2025**\
 `The April event will be the first in which the Saudi-financed tournament will occur at a Trump location while Donald J. Trump is president.`\
 https://nytimes.com/2025/01/07/us/politics/liv-golf-tournament-trump-doral-resort.html
-
-**Cafe Commerce Marks the Uptown Revival of a Downtown Staple**\
-`Mango Bay serves twists on Caribbean fare, Bananas offers creative takes on Asian dishes and more restaurant news.`\
-https://nytimes.com/2025/01/07/dining/nyc-restaurant-news.html
-
-**Titans fire GM Ran Carthon after 2 seasons**\
-`Carthon's firing comes after the Titans went 3-14 and finished last in the AFC South this season.`\
-https://nytimes.com/athletic/6044304/2025/01/07/ran-carthon-general-manager-fired-titans/
 

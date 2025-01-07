@@ -1,3 +1,11 @@
+**Sudanese Paramilitary Group Committed Genocide, U.S. Says**\
+`A force fighting Sudan’s army in a brutal civil war committed massacres and rape that amount to genocide, the Secretary of State said. The United States sanctioned its leader and financial network.`\
+https://nytimes.com/2025/01/07/world/africa/sudan-rsf-genocide-us-sanctions.html
+
+**Peter Yarrow, the Peter of Peter, Paul and Mary, Dies at 86**\
+`The folk trio he formed with Noel Paul Stookey and Mary Travers became a pop phenomenon, scoring hits like “If I Had a Hammer” and “Puff the Magic Dragon.”`\
+https://nytimes.com/2025/01/07/arts/music/peter-yarrow-dead.html
+
 **Who Is Joel Kaplan, Meta’s New Global Policy Chief?**\
 `The longtime Republican lobbyist for Meta was named to the company’s top policy role last week.`\
 https://nytimes.com/2025/01/07/business/joel-kaplan-meta.html
