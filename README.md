@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 0 Newcastle 2 - Eddie Howe's greatest feat yet? What next for Arsenal?**\
+`Newcastle took a massive step towards a second League Cup final in three seasons with a hugely impressive 2-0 victory at Arsenal`\
+https://nytimes.com/athletic/6038924/2025/01/07/arsenal-0-newcastle-2-league-cup-semi-final/
+
+**Mourners gather in Washington amid extra security.**\
+`The authorities in the nation’s capital increased security measures in advance of the anniversary of the Jan. 6, 2021, attack on the Capitol and President-elect Donald J. Trump’s inauguration.`\
+https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/mourners-gather-in-washington-amid-extra-security
+
+**Greenberg: Bears exist in losing culture that defies logic. Theirs is a different reality**\
+`Here's a good tip for any Bears coaching candidate. You might want to stay far away from the Twilight Zone that is Halas Hall.`\
+https://nytimes.com/athletic/6044895/2025/01/07/chicago-bears-head-coach-search-kevin-warren-ryan-poles/
+
 **Rashford representatives hold talks with AC Milan over loan move**\
 `Marcus Rashford&#8217;s representatives have held exploratory talks with AC Milan about loaning the Manchester United forward in the January transfer window.`\
 https://nytimes.com/athletic/6045126/2025/01/07/rashford-milan-loan-man-utd/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/07/learning/what-can-you-recommend.html
 **A Key Part of Biden’s Climate Law Was Built to Survive Trump. Now, the Test.**\
 `A lucrative tax credit for renewable energy could be hard to kill because it applies to a technologies favored by Republicans, not just wind and solar.`\
 https://nytimes.com/2025/01/07/climate/ira-renewable-energy-tax-credits.html
-
-**2 Prisoners Ask Judge to Block Biden’s Death Sentence Commutations**\
-`The men said that, by reducing their sentences to life in prison, President Biden’s act of clemency could hurt their appeals.`\
-https://nytimes.com/2025/01/07/us/politics/len-davis-shannon-agofsky-biden-commutation-appeal.html
-
-**Let’s Discuss: Music Playlists From The Amplifier**\
-`What makes a great playlist? Pop music critic Lindsay Zoladz joins us to discuss. Post your comments and questions for her here by Jan. 16.`\
-https://nytimes.com/2025/01/07/learning/lesson-plans/lets-discuss-music-playlists-from-the-amplifier.html
-
-**Meta’s fact-checking partners were surprised by the decision not to renew the program.**\
-`By Stuart A. Thompson and Ken Bensinger`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-fact-checking-partners-were-surprised-by-the-decision-not-to-renew-the-program
 
