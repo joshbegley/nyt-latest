@@ -1,3 +1,7 @@
+**Forest are ticking off milestones by the week - who knows where it will end?**\
+`Matching a record that has stood for almost 60 years has just further fuelled the dreams of Forest fans `\
+https://nytimes.com/athletic/6043025/2025/01/07/nottingham-forest-premier-league-top-four/
+
 **Taiwan Says It Suspects a Chinese-Linked Ship Damaged an Undersea Internet Cable**\
 `The Taiwanese Coast Guard said seven Chinese nationals were aboard a ship suspected of causing the damage.`\
 https://nytimes.com/2025/01/07/world/asia/taiwan-internet-cable-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6041270/2025/01/07/what-now-for-neymar-saudi-miami-
 **Explained: How in-stadium VAR announcements will work in Carabao Cup semi-finals**\
 `Referees will speak directly to supporters after major VAR incidents for the first time during this week's Carabao Cup matches`\
 https://nytimes.com/athletic/6042629/2025/01/07/var-stadium-announcements-explained/
-
-**Ranking the 50 players most likely to be selected for England's Euro 2025 squad**\
-`With six months to go until England begin their Euros defence, Michael Cox assesses the claims of the players in contention to feature`\
-https://nytimes.com/athletic/6015900/2025/01/07/england-squad-euro-2025-ranked/
 
