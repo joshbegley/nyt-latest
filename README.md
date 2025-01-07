@@ -1,3 +1,7 @@
+**Venezuelan Opposition Candidate Says His Son-in-Law Was Kidnapped**\
+`Edmundo González, who is recognized by the United States as the president-elect of Venezuela, said his son-in-law was kidnapped by hooded men.`\
+https://nytimes.com/2025/01/07/world/americas/venezuela-gonzalez-son-in-law-kidnapped.html
+
 **Ireland Joins South Africa’s Genocide Case Against Israel**\
 `Ireland had said it would intervene in the case at the International Court of Justice, arguing that Israel’s actions in Gaza amounted to collective punishment.`\
 https://nytimes.com/2025/01/07/world/europe/ireland-icj-israel-genocide.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/migration-mexico-honduras-panama-trump.html
 **Zion Williamson returns to Pelicans' lineup after 27-game absence**\
 `The oft-injured Pelicans superstar has only played in six games this season due to a left hamstring strain.`\
 https://nytimes.com/athletic/6044658/2025/01/07/zion-williamson-return-pelicans-timberwolves/
-
-**International Flights To Syria Resume Since Fall of al-Assad**\
-`A Qatar Airways plane became the first to land at Damascus airport since the ousting of the government of former President Bashar al-Assad last month, as Syria’s interim leaders hope to reassert a semblance of normalcy in the country.`\
-https://nytimes.com/video/world/middleeast/100000009912016/syria-flights-resume.html
 
