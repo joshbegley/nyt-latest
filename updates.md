@@ -1,3 +1,11 @@
+**USWNT's January senior camp roster revealed**\
+`Crystal Dunn will make her return to the USWNT program after missing the team’s fall camps.`\
+https://nytimes.com/athletic/6044200/2025/01/07/uswnt-roster-camp-2025/
+
+**Peter Yarrow Bridged Folk-Pop Eras**\
+`With Peter, Paul and Mary, the musician, who died on Tuesday at 86, eased folk songs onto the pop charts.`\
+https://nytimes.com/2025/01/07/arts/music/peter-yarrow-peter-paul-mary-folk-pop.html
+
 **Sudanese Paramilitary Group Committed Genocide, U.S. Says**\
 `A force fighting Sudan’s army in a brutal civil war committed massacres and rape that amount to genocide, the Secretary of State said. The United States sanctioned its leader and financial network.`\
 https://nytimes.com/2025/01/07/world/africa/sudan-rsf-genocide-us-sanctions.html

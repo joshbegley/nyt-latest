@@ -1,3 +1,11 @@
+**USWNT's January senior camp roster revealed**\
+`Crystal Dunn will make her return to the USWNT program after missing the team’s fall camps.`\
+https://nytimes.com/athletic/6044200/2025/01/07/uswnt-roster-camp-2025/
+
+**Peter Yarrow Bridged Folk-Pop Eras**\
+`With Peter, Paul and Mary, the musician, who died on Tuesday at 86, eased folk songs onto the pop charts.`\
+https://nytimes.com/2025/01/07/arts/music/peter-yarrow-peter-paul-mary-folk-pop.html
+
 **Sudanese Paramilitary Group Committed Genocide, U.S. Says**\
 `A force fighting Sudan’s army in a brutal civil war committed massacres and rape that amount to genocide, the Secretary of State said. The United States sanctioned its leader and financial network.`\
 https://nytimes.com/2025/01/07/world/africa/sudan-rsf-genocide-us-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/business/dealbook/disney-fubo-hulu-streaming.html
 **What's next for the Mets after meeting with top reliever Tanner Scott**\
 `The Mets are looking to add one to two relievers to the bullpen, league sources said, and they're expected to check out all the options.`\
 https://nytimes.com/athletic/6044292/2025/01/07/mets-bullpen-outlook-sign-tanner-scott/
-
-**Meta ends interventions widely seen as effective at reducing belief in falsehoods**\
-`By Stuart A. Thompson`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-ends-interventions-widely-seen-as-effective-at-reducing-belief-in-falsehoods
-
-**Saudi-Backed LIV Golf Will Return to Trump’s Doral Resort in 2025**\
-`The April event will be the first in which the Saudi-financed tournament will occur at a Trump location while Donald J. Trump is president.`\
-https://nytimes.com/2025/01/07/us/politics/liv-golf-tournament-trump-doral-resort.html
 
