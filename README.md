@@ -1,3 +1,7 @@
+**Athletics, Brent Rooker agree to 5-year, $60 million extension: Sources**\
+`It’s a strong outcome for Rooker, 30, who emerged as one of baseball’s top hitters after arriving in Oakland before the 2023 season.`\
+https://nytimes.com/athletic/6043843/2025/01/07/athletics-brent-rooker-extension/
+
 **Syria’s Main Airport Handles First International Flights Since Fall of al-Assad**\
 `The country’s new leaders are pushing to restore a sense of normalcy. But Syria remains under a host of international sanctions imposed during the Assad regime.`\
 https://nytimes.com/2025/01/07/world/middleeast/syria-airport-damascus-international-flights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042248/2025/01/07/broncos-dead-money-playoffs-bill
 **The Athletic FC: Aubameyang exclusive, Man Utd and Spurs eye Kolo Muani loan**\
 `Today in TAFC: Aubameyang exclusive, Kolo Muani on Manchester United and Spurs radars, Pulisic stars as Milan win Italian Super Cup.`\
 https://nytimes.com/athletic/6043700/2025/01/07/aubameyang-interview-arsenal-kolo-muani-united/
-
-**Slot 'very happy' with Liverpool squad, team in 'good place' in January window**\
-`Arne Slot believes Liverpool have sufficient squad depth to last the pace in their pursuit of trophies this season.`\
-https://nytimes.com/athletic/6043773/2025/01/07/liverpool-transfers-january-arne-slot/
 
