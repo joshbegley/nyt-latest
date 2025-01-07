@@ -1,3 +1,11 @@
+**The CFP's final four coaches, winning it all comes with a ring and a platform**\
+`College football is about to gain a new Face of the Sport in whoever wins this national championship.`\
+https://nytimes.com/athletic/6043343/2025/01/07/college-football-playoff-semifinals-head-coaches/
+
+**A Sluggish Start for Congestion Pricing**\
+`It would be more effective if Ubers, taxis and trucks had to pay more.`\
+https://nytimes.com/2025/01/07/opinion/congestion-pricing-slow-start.html
+
 **Can San Francisco’s New Mayor Make the City Shine Again?**\
 `Daniel Lurie, an heir to the Levi Strauss fortune, will soon take the helm of the liberal mecca. “Resistance” to Donald Trump isn’t on his agenda.`\
 https://nytimes.com/2025/01/07/us/daniel-lurie-san-francisco-mayor.html
