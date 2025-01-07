@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6043285/2025/01/06/antonio-pierce-raiders-coaching-
 `The Cowboys recently released the 29-year-old RB after he appeared in 15 games during the 2024 season.`\
 https://nytimes.com/athletic/6043332/2025/01/06/ezekiel-elliott-chargers-signing-playoffs/
 
-**Strong Earthquake Hits Western China**\
-`The 7.1-magnitude quake, which struck the Tibet region, was felt in neighboring Nepal. Chinese state media said there had been deaths in at least three townships.`\
+**Strong Earthquake Hits Remote Tibet in Western China, Killing 32**\
+`The 7.1-magnitude quake was felt in neighboring Nepal. Chinese state media said there had been deaths in at least three townships.`\
 https://nytimes.com/2025/01/06/world/asia/china-tibet-nepal-quake.html
 
 **Full Time: Is the 2025 NWSL schedule out?**\
