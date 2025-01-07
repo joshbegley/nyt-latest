@@ -1,3 +1,7 @@
+**How the Canucks threw away a third-period lead in Montreal: 3 takeaways**\
+`J.T. Miller had a hand in all four Canucks goals, but Vancouver was forced to settle for 1 point in a winnable game.`\
+https://nytimes.com/athletic/6043162/2025/01/06/canucks-jt-miller-quinn-hughes-canadiens/
+
 **Strong Earthquake Hits Remote Tibet in Western China, Killing 32**\
 `The 7.1-magnitude quake was felt in neighboring Nepal. Chinese state media said there had been deaths in at least three townships.`\
 https://nytimes.com/2025/01/06/world/asia/china-tibet-nepal-quake.html
