@@ -1,3 +1,7 @@
+**Social media companies are facing a global tug of war over free speech.**\
+`By Cecilia Kang and Adam Satariano`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/social-media-companies-are-facing-a-global-tug-of-war-over-free-speech
+
 **Chris Finch bites the bullet and unveils a new starting lineup for struggling Wolves**\
 `A move like the one Finch made on Monday is not just a basketball decision. It is a political one.`\
 https://nytimes.com/athletic/6043168/2025/01/07/timberwolves-lineup-change-donte-divincenzo-mike-conley/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/stowaway-bodies-flight-jetblue-ny-florida.html
 **What EuroLeague and IMG's new deal means for the NBA and future of basketball in Europe**\
 `As whispers about the NBA's potential plans to expand to Europe grow, EuroLeague and IMG have agreed to a new deal. `\
 https://nytimes.com/athletic/6042164/2025/01/07/euroleague-img-deal-nba-basketball/
-
-**The Man Who Got Away**\
-`Fleeing fraud charges, Samuele Landi evaded extradition treaties, dabbled in crypto, procured diplomatic credentials and took advantage of all the offshore world has to offer.`\
-https://nytimes.com/2025/01/07/business/samuele-landi-offshore-seastead.html
 
