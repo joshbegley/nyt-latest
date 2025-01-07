@@ -1,3 +1,19 @@
+**Ex-Wazzu coach Nick Rolovich loses lawsuit against school over firing**\
+`Rolovich was denied a religious exemption to the state's COVID-19 vaccine mandate and was later fired along with four assistant coaches.`\
+https://nytimes.com/athletic/6044509/2025/01/07/nick-rolovich-washington-state-lawsuit-firing/
+
+**Scoop City: Ben Johnson's coaching journey, interview timeline**\
+`A brief look at the upcoming month for Lions OC Ben Johnson, while explaining the rules of the 2025 NFL coaching cycle`\
+https://nytimes.com/athletic/6044591/2025/01/07/ben-johnson-coaching-history-interview-process-timeline-scoop-city-nfl/
+
+**NBA MVP odds: Shai Gilgeous-Alexander emerges as favorite ahead of Nikola Jokic**\
+`Shai Gilgeous-Alexander is a minus-odds favorite to win NBA MVP despite Nikola Jokić's outstanding numbers so far this season.`\
+https://nytimes.com/athletic/6044512/2025/01/07/nba-mvp-odds-gilgeous-alexander-jokic/
+
+**Dyche admits his Everton job 'should be' under scrutiny**\
+`Everton manager Sean Dyche says he has &#8220;no problem&#8221; with the club&#8217;s new owner making a succession plan for his departure.`\
+https://nytimes.com/athletic/6044570/2025/01/07/sean-dyche-everton-job/
+
 **The CFP's final four coaches, winning it all comes with a ring and a platform**\
 `College football is about to gain a new Face of the Sport in whoever wins this national championship.`\
 https://nytimes.com/athletic/6043343/2025/01/07/college-football-playoff-semifinals-head-coaches/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6044405/2025/01/07/college-football-bowl-games-view
 **Meta joins tech companies flocking to Texas.**\
 `By David McCabe`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/meta-joins-tech-companies-flocking-to-texas
-
-**Fight for a North Carolina Court Seat Drags On Long After Election Day**\
-`Three counts show an incumbent Democrat won election to the State Supreme Court. But an unusual protest by the G.O.P. challenger could be headed to that same Republican-controlled court.`\
-https://nytimes.com/2025/01/07/us/north-carolina-election-ballots-republicans.html
-
-**Raphinha: Players 'would probably think twice' about joining Barcelona after Olmo saga**\
-`Raphinha has said that players &#8220;would probably think twice&#8221; about coming to Barcelona after Dani Olmo and Pau Victor were de-registered from their first-team squad.`\
-https://nytimes.com/athletic/6044490/2025/01/07/barcelona-dani-olmo-raphinha/
-
-**USWNT's January senior camp roster revealed**\
-`Crystal Dunn will make her return to the USWNT program after missing the team’s fall camps.`\
-https://nytimes.com/athletic/6044200/2025/01/07/uswnt-roster-camp-2025/
-
-**Peter Yarrow Bridged Folk-Pop Eras**\
-`With Peter, Paul and Mary, the musician, who died on Tuesday at 86, eased folk songs into the Top 10.`\
-https://nytimes.com/2025/01/07/arts/music/peter-yarrow-peter-paul-mary-folk-pop.html
 
