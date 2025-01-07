@@ -1,4 +1,8 @@
-**Shohei Ohtani former interpreter Ippei Mizuhara has sentencing for fraud delayed a third time**\
+**Arteta says Arsenal can still win semi-final if they adapt to “tricky” ball**\
+`Mikel Arteta lamented Arsenal’s inefficiency in front of goal compared to Newcastle and Alexander Isak, but backed his players to turn around the 2-0 Carabao Cup deficit &#8211; so long as they adapt to the “tricky” ball being used in the competition.`\
+https://nytimes.com/athletic/6045469/2025/01/07/arsenal-newcastle-arteta-carabao-cup-ball/
+
+**Shohei Ohtani's former interpreter has sentencing delayed awaiting psychologist's report**\
 `Mizhuara’s lawyers on Tuesday asked the court for the delay so a forensic psychologist could complete a report about Mizhuara's gambling.`\
 https://nytimes.com/athletic/6045394/2025/01/07/ippei-mizuhara-sentencing-delay-psychological-report/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/arts/television/the-pitt-max-er-noah-wyle.html
 **Disaster by the Numbers: The Crisis in Sudan**\
 `The United States just formally declared that genocide has taken place in the northeast African nation, but the calamity there dates back decades.`\
 https://nytimes.com/2025/01/07/world/africa/sudan-genocide-numbers.html
-
-**Dolphins GM, coach meet with Tyreek Hill after WR suggests leaving Miami**\
-`Chris Grier and Mike McDaniel addressed the ongoing situation with Hill in the aftermath of Miami's season-ending loss.`\
-https://nytimes.com/athletic/6044878/2025/01/07/dolphins-tyreek-hill-chris-grier-mike-mcdaniel/
 
