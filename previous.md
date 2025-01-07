@@ -1,3 +1,11 @@
+**Jean-Marie Le Pen, Rabble-Rousing Leader of French Far Right, Dies at 96**\
+`He ran unsuccessfully for the French presidency five times, riding waves of discontent and xenophobia as the leader of the National Front party.`\
+https://nytimes.com/2025/01/07/world/europe/jean-marie-le-pen-dead.html
+
+**Canadiens' win over Canucks dripping with symbolism of their journey to relevance**\
+`From Kirby Dach to Lane Hutson to Kaiden Guhle to Cole Caufield, there was a lot of meaning to draw from a Canadiens win over the Canucks. `\
+https://nytimes.com/athletic/6043571/2025/01/07/canadiens-canucks-nhl-win-caufield-dach-newhook/
+
 **Drug Company to Share Revenues With Indigenous People Who Donated Their Genes**\
 `Variant Bio, a small biotech company based in Seattle, is using genetic information from Indigenous people to develop drugs for obesity and diabetes.`\
 https://nytimes.com/2025/01/07/health/variant-bio-novo-nordisk-indigenous-revenue-sharing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6043773/2025/01/07/liverpool-transfers-january-arne
 **The Pulse: The latest on the NFL coaching carousel**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6042008/2025/01/07/nfl-coaching-carousel-vrabel-johnson-the-pulse/
-
-**Dortmund consider loan move for Rashford from Man United**\
-`Borussia Dortmund are among a number of clubs considering a move to sign Marcus Rashford on loan from Manchester United this month.`\
-https://nytimes.com/athletic/6043765/2025/01/07/manchester-united-marcus-rashford-dortmund/
-
-**The Next Congress**\
-`We explore the disagreements that could define the new Congress — and potentially derail Donald Trump’s agenda.`\
-https://nytimes.com/2025/01/07/briefing/republican-congress-trump-mike-johnson.html
 
