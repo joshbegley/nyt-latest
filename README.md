@@ -1,3 +1,7 @@
+**Why Manchester United would consider selling Mainoo and Garnacho if the price was right**\
+`Selling a homegrown player would help Manchester United's financial situation, with both players unlikely to be short of suitors`\
+https://nytimes.com/athletic/6044696/2025/01/07/manchester-united-mainoo-garnacho-transfer-chelsea/
+
 **Meta Says Fact-Checkers Were the Problem. Fact-Checkers Rule That False.**\
 `Fact-checking groups that worked with Meta said they had no role in deciding what the company did with the content that was fact-checked.`\
 https://nytimes.com/2025/01/07/business/mark-zuckerberg-meta-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044697/2025/01/07/jay-hartzell-texas-president-smu
 **Wave coach Eidevall says he has 'no relationship' with USWNT's Hayes after clash last year**\
 `San Diego Wave’s new head coach Jonas Eidevall says he has “no relationship” with his United States Women counterpart Emma Hayes following their clash in England last year.`\
 https://nytimes.com/athletic/6044519/2025/01/07/emma-hayes-jonas-eidevall-wave-uswnt/
-
-**Bob Dylan Wasn’t the Only 1965 Newport Highlight. Hear 14 More.**\
-`Listen to Peter, Paul and Mary’s finale singalong, plus songs from Odetta, the Paul Butterfield Blues Band and more.`\
-https://nytimes.com/2025/01/07/arts/music/amplifier-newsletter-1965-newport-folk-festival.html
 
