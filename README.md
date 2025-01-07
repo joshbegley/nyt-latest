@@ -18,7 +18,7 @@ https://nytimes.com/2025/01/07/opinion/patti-davis-joe-biden-ronald-reagan.html
 `The agreement ends litigation between the two companies over plans for a sports streaming service, but consumer advocates are pushing back.`\
 https://nytimes.com/2025/01/07/business/dealbook/disney-fubo-hulu-streaming.html
 
-**Updating the Mets bullpen outlook: Could they add Tanner Scott?**\
+**What's next for the Mets after meeting with top reliever Tanner Scott**\
 `The Mets are looking to add one to two relievers to the bullpen, league sources said, and they're expected to check out all the options.`\
 https://nytimes.com/athletic/6044292/2025/01/07/mets-bullpen-outlook-sign-tanner-scott/
 
