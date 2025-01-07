@@ -1,3 +1,7 @@
+**House Passes Bill to Deport Unauthorized Immigrants Charged With Minor Crimes**\
+`Forty-eight Democrats joined Republicans in supporting legislation that aims to deport more migrants charged with nonviolent crimes, a first salvo in a broader crackdown.`\
+https://nytimes.com/2025/01/07/us/house-bill-migrants-crime-laken-riley.html
+
 **Are These Shoes Hideous or Genius?**\
 `A conversation about the New Balance “Snoafers” — not quite sneakers, not quite loafers.`\
 https://nytimes.com/2025/01/07/style/sneakers-new-balance-snoafers.html
