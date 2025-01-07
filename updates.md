@@ -1,3 +1,7 @@
+**Inside the transfer portal and NFL draft decisions for Georgia**\
+`Two days after adding a receiver and safety from the transfer portal, Georgia had another busy day on Tuesday.`\
+https://nytimes.com/athletic/6044154/2025/01/07/noah-thomas-jaden-harris-adrian-maddox-georgia-transfer-portal/
+
 **The Briefing: Arsenal 0 Newcastle 2 - Eddie Howe's greatest feat yet? What next for Arsenal?**\
 `Newcastle took a massive step towards a second League Cup final in three seasons with a hugely impressive 2-0 victory at Arsenal`\
 https://nytimes.com/athletic/6038924/2025/01/07/arsenal-0-newcastle-2-league-cup-semi-final/

@@ -1,9 +1,13 @@
+**Mark Gronowski, former South Dakota State QB, transfers to Iowa**\
+`Gronowski led South Dakota State to FCS national championships in 2022 and 2023.`\
+https://nytimes.com/athletic/6039796/2025/01/07/mark-gronowski-iowa-college-football-transfer-quarterback/
+
 **Inside the transfer portal and NFL draft decisions for Georgia**\
 `Two days after adding a receiver and safety from the transfer portal, Georgia had another busy day on Tuesday.`\
 https://nytimes.com/athletic/6044154/2025/01/07/noah-thomas-jaden-harris-adrian-maddox-georgia-transfer-portal/
 
-**The Briefing: Arsenal 0 Newcastle 2 - Eddie Howe's greatest feat yet? What next for Arsenal?**\
-`Newcastle took a massive step towards a second League Cup final in three seasons with a hugely impressive 2-0 victory at Arsenal`\
+**The Briefing: Arsenal 0 Newcastle 2 - Eddie Howe's greatest feat yet? What next for Arteta and co?**\
+`Newcastle took a massive step towards a second Carabao Cup final in three seasons with a hugely impressive semi-final first leg away win`\
 https://nytimes.com/athletic/6038924/2025/01/07/arsenal-0-newcastle-2-league-cup-semi-final/
 
 **Mourners gather in Washington amid extra security.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/style/school-of-rock-caitlin-hale-angelo-massagli
 **How to Create a Compelling Collection: A Guide to Our New ‘My List’ Contest**\
 `Step-by-step instructions for coming up with an engaging list of recommendations for things we should — or shouldn’t — read, watch, experience, eat or listen to.`\
 https://nytimes.com/2025/01/07/learning/how-to-create-a-compelling-collection-a-guide-to-our-new-my-list-contest.html
-
-**What Can You Recommend?**\
-`If you were to make a list of the music, movies, TV, books, video games, fashion, tech or restaurants others should know about — or avoid — what would you put on it?`\
-https://nytimes.com/2025/01/07/learning/what-can-you-recommend.html
 
