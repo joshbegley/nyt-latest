@@ -1,3 +1,7 @@
+**Pentagon Adds Chinese Social Media Giant to Military Blacklist**\
+`Tencent’s shares plunged nearly 10 percent after it was designated a military company. The Chinese battery manufacturer CATL was also added to the list.`\
+https://nytimes.com/2025/01/06/business/us-chinese-military-companies-tencent-catl.html
+
 **North Dakota State edges Montana State 35-32 for 10th FCS title**\
 `The showdown between North Dakota State QB Cam Miller and Montana State QB Tommy Mellott lived up to the billing.`\
 https://nytimes.com/athletic/6043201/2025/01/06/north-dakota-state-montana-state-fcs-championship-2025/
