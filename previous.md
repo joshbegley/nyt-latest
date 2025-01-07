@@ -1,3 +1,23 @@
+**Cardinals' efforts to trade Nolan Arenado remain stalled: How it's impacting the roster**\
+`St. Louis wants to cut payroll and open up spots for younger players. Arenado wants the perfect situation. What happens if he has to stay?`\
+https://nytimes.com/athletic/6043031/2025/01/07/cardinals-nolan-arenado-trade-efforts-roster/
+
+**How the Oilers are processing 'odd' stretch of road games**\
+`The Oilers — the NHL’s northernmost team — are familiar with spending lots of time in hotels and airplanes.`\
+https://nytimes.com/athletic/6042905/2025/01/07/edmonton-oilers-schedule-january-2025/
+
+**Breaking down Chris Kreider's struggles and what the Rangers should do with him**\
+`The Rangers' trajectory continues to trend down, putting a ticking clock on decisions — including with their injured franchise cornerstone.`\
+https://nytimes.com/athletic/6042155/2025/01/07/rangers-chris-kreider-whats-gone-wrong/
+
+**How the Broncos spun dead-money doom into ending a long playoff drought**\
+`The Broncos led the NFL with $89 million in dead money but still made key improvements thanks to shrewd free-agency moves, sound drafting.`\
+https://nytimes.com/athletic/6042248/2025/01/07/broncos-dead-money-playoffs-bills/
+
+**The Athletic FC: Aubameyang exclusive, Man Utd and Spurs eye Kolo Muani loan**\
+`Today in TAFC: Aubameyang exclusive, Kolo Muani on Manchester United and Spurs radars, Pulisic stars as Milan win Italian Super Cup.`\
+https://nytimes.com/athletic/6043700/2025/01/07/aubameyang-interview-arsenal-kolo-muani-united/
+
 **Slot 'very happy' with Liverpool squad, team in 'good place' in January window**\
 `Arne Slot believes Liverpool have sufficient squad depth to last the pace in their pursuit of trophies this season.`\
 https://nytimes.com/athletic/6043773/2025/01/07/liverpool-transfers-january-arne-slot/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/07/briefing/republican-congress-trump-mike-johnson.h
 **Micah Parsons' plan for Cowboys to be playoff-contending team next season**\
 `Micah Parsons would like the Cowboys to be aggressive in free agency and re-sign some of their own defensive free agents.`\
 https://nytimes.com/athletic/6043636/2025/01/07/micah-parsons-cowboys-future-jerry-jones/
-
-**Man Utd's Ladd and Watson set for Everton moves**\
-`Everton are set to sign Manchester United midfielders Hayley Ladd on a permanent deal and Emma Watson on loan until the end of the season.`\
-https://nytimes.com/athletic/6043624/2025/01/07/ladd-watson-manchester-united-everton/
-
-**Latest Alabama football roster breakdown: Where the Tide stand as QB questions lead the way**\
-`Who follows Jalen Milroe? On the offensive line, there’s both optimism and concern.`\
-https://nytimes.com/athletic/6043118/2025/01/07/alabama-football-roster-breakdown-2025/
-
-**Submit your trade proposals for Kelly Iko’s Southwest Division mailbag**\
-`With the month of January comes two things — New Year&#8217;s resolutions and trade chatter.`\
-https://nytimes.com/athletic/6042059/2025/01/07/grizzlies-spurs-rockets-nba-trade-deadline-mailbag/
-
-**Did Vikings' struggles against Lions show a blueprint for how to slow down Sam Darnold?**\
-`Detroit’s defense sent a ton of six- or seven-man pressures and played mostly man coverage. Can the Rams replicate that in the playoffs?`\
-https://nytimes.com/athletic/6042727/2025/01/07/vikings-lions-sam-darnold-blueprint-playoffs/
-
-**Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
-`What are the expansion plans for Wimbledon, and why is there so much opposition?`\
-https://nytimes.com/athletic/5827803/2025/01/07/wimbledon-tennis-expansion-all-england-club-courts-explained/
 
