@@ -1,3 +1,11 @@
+**NHL rumblings: Reaction to Vatrano deferrals, Canucks listening on stars and Matthews' 4 Nations status**\
+`Frank Vatrano's contract included 10 years' worth of deferred payments, which could be a hot topic in coming CBA talks.`\
+https://nytimes.com/athletic/6045370/2025/01/07/nhl-vatrano-pettersson-miller-matthews/
+
+**Meet the Next Fact-Checker, Debunker and Moderator: You**\
+`Meta is joining X and YouTube in shifting moderation to users. Are you ready?`\
+https://nytimes.com/2025/01/07/technology/meta-facebook-content-moderation.html
+
 **Arteta says Arsenal can still win semi-final if they adapt to “tricky” ball**\
 `Mikel Arteta lamented Arsenal’s inefficiency in front of goal compared to Newcastle and Alexander Isak, but backed his players to turn around the 2-0 Carabao Cup deficit &#8211; so long as they adapt to the “tricky” ball being used in the competition.`\
 https://nytimes.com/athletic/6045469/2025/01/07/arsenal-newcastle-arteta-carabao-cup-ball/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/technology/anthropic-ai-funding.html
 **Until Saturday: Bison back on top, plus Final 4's mascot breakdown**\
 `Welcome to Until Saturday, the five-star college football newsletter: What are our predictions for college football in 2025?`\
 https://nytimes.com/athletic/6043821/2025/01/07/north-dakota-state-fcs-college-football-playoff-until-saturday/
-
-**‘The Pitt’ Isn’t an ‘ER’ Reboot, Despite First Appearances**\
-`Its creative team includes “ER” alumni, and it is a hospital drama starring Noah Wyle. But it is doing its own thing (and is sometimes very good).`\
-https://nytimes.com/2025/01/07/arts/television/the-pitt-max-er-noah-wyle.html
-
-**Disaster by the Numbers: The Crisis in Sudan**\
-`The United States just formally declared that genocide has taken place in the northeast African nation, but the calamity there dates back decades.`\
-https://nytimes.com/2025/01/07/world/africa/sudan-genocide-numbers.html
 
