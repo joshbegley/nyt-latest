@@ -1,3 +1,11 @@
+**Trump Suggests U.S. Expansion Into Greenland and Canada**\
+`During a news conference at Mar-a-Lago on Tuesday, President-elect Donald J. Trump refused to rule out using military force to retake the Panama Canal.`\
+https://nytimes.com/video/us/politics/100000009912859/trump-panama-greenland-canada.html
+
+**Northern Illinois approves football program's move to Mountain West**\
+`The league’s football members will include Air Force, Hawaii, Nevada, New Mexico, Northern Illinois, San Jose State, UNLV, UTEP and Wyoming.`\
+https://nytimes.com/athletic/6044708/2025/01/07/northern-illinois-mountain-west-realignment/
+
 **Super Bowl odds: Which teams are the biggest threat to Detroit and Kansas City?**\
 `Breaking down which teams have the best shot at upsetting the Super Bowl favorites.`\
 https://nytimes.com/athletic/6044419/2025/01/07/super-bowl-odds-nfl-playoffs-detroit-kansas-city/
