@@ -1,3 +1,19 @@
+**Tuesday Briefing**\
+`Justin Trudeau will step down as Canada’s prime minister.`\
+https://nytimes.com/2025/01/07/briefing/trudeau-syria-russia.html
+
+**What We Know About HMPV, the Virus Spreading in China**\
+`While cases are climbing in China, the situation is very different from what it was when Covid-19 emerged five years ago, medical experts say. HMPV is common and decades old.`\
+https://nytimes.com/2025/01/07/health/hmpv-virus-china.html
+
+**Arsenal fans: How important is it to win the FA Cup this season?**\
+`How important is the FA Cup`\
+https://nytimes.com/athletic/6042433/2025/01/07/arsenal-fans-how-important-is-it-to-win-the-fa-cup-this-season/
+
+**Quote of the Day: Opening Religion to Artificial Intelligence**\
+`Quotation of the Day for Tuesday, January 7, 2025.`\
+https://nytimes.com/2025/01/06/pageoneplus/quote-of-the-day-opening-religion-to-artificial-intelligence.html
+
 **How the Canucks threw away a third-period lead in Montreal: 3 takeaways**\
 `J.T. Miller had a hand in all four Canucks goals, but Vancouver was forced to settle for 1 point in a winnable game.`\
 https://nytimes.com/athletic/6043162/2025/01/06/canucks-jt-miller-quinn-hughes-canadiens/

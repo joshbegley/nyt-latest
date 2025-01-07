@@ -1,3 +1,19 @@
+**Tuesday Briefing**\
+`Justin Trudeau will step down as Canada’s prime minister.`\
+https://nytimes.com/2025/01/07/briefing/trudeau-syria-russia.html
+
+**What We Know About HMPV, the Virus Spreading in China**\
+`While cases are climbing in China, the situation is very different from what it was when Covid-19 emerged five years ago, medical experts say. HMPV is common and decades old.`\
+https://nytimes.com/2025/01/07/health/hmpv-virus-china.html
+
+**Arsenal fans: How important is it to win the FA Cup this season?**\
+`How important is the FA Cup`\
+https://nytimes.com/athletic/6042433/2025/01/07/arsenal-fans-how-important-is-it-to-win-the-fa-cup-this-season/
+
+**Quote of the Day: Opening Religion to Artificial Intelligence**\
+`Quotation of the Day for Tuesday, January 7, 2025.`\
+https://nytimes.com/2025/01/06/pageoneplus/quote-of-the-day-opening-religion-to-artificial-intelligence.html
+
 **Read Defense Lawyers’ Arguments to Block a Trump Documents Case Report**\
 `Lawyers for President-elect Donald J. Trump urged the attorney general in a letter to stop the special counsel from publicly releasing a final report on the case, while lawyers for his co-defendants, in a court filing, asked the same of the judge who oversaw the case.`\
 https://nytimes.com/interactive/2025/01/06/us/govuscourtsflsd64865467903.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6043201/2025/01/06/north-dakota-state-montana-state
 **Law: Reds make their offense a little richer with Gavin Lux**\
 `The Reds can use Lux as a utility player who hits well against righties. The Dodgers get a 2024 third-round pick plus another pick in 2025.`\
 https://nytimes.com/athletic/6043336/2025/01/06/gavin-lux-trade-analysis-reds-dodgers/
-
-**Long Raiders season gets longer as team awaits confirmation Antonio Pierce will return**\
-`Pierce held his final meeting with the team Monday and spoke as if he's returning, though owner Mark Davis has yet to clarify. `\
-https://nytimes.com/athletic/6043285/2025/01/06/antonio-pierce-raiders-coaching-status-unknown/
-
-**Chargers planning to sign Ezekiel Elliott to practice squad**\
-`The Cowboys recently released the 29-year-old RB after he appeared in 15 games during the 2024 season.`\
-https://nytimes.com/athletic/6043332/2025/01/06/ezekiel-elliott-chargers-signing-playoffs/
-
-**Strong Earthquake Hits Remote Tibet in Western China, Killing 32**\
-`The 7.1-magnitude quake was felt in neighboring Nepal. Chinese state media said there had been deaths in at least three townships.`\
-https://nytimes.com/2025/01/06/world/asia/china-tibet-nepal-quake.html
-
-**Full Time: Is the 2025 NWSL schedule out?**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/6043313/2025/01/06/nwsl-schedule-2025-womens-soccer-full-time/
 
