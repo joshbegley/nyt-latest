@@ -1,3 +1,7 @@
+**Deportiva Minera 0 Real Madrid 5: Guler shines - but Endrick frustrated**\
+`The big talking points dissected from the Spanish Cup win on Monday night`\
+https://nytimes.com/athletic/6043281/2025/01/07/real-madrid-deportiva-minera-spanish-cup/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/07/crosswords/spelling-bee-forum.html

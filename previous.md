@@ -1,3 +1,7 @@
+**Deportiva Minera 0 Real Madrid 5: Guler shines - but Endrick frustrated**\
+`The big talking points dissected from the Spanish Cup win on Monday night`\
+https://nytimes.com/athletic/6043281/2025/01/07/real-madrid-deportiva-minera-spanish-cup/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/07/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042824/2025/01/07/wolverhampton-wanderers-transfer
 **Forest are ticking off milestones by the week - who knows where it will end?**\
 `Matching a record that has stood for almost 60 years has just further fuelled the dreams of Forest fans `\
 https://nytimes.com/athletic/6043025/2025/01/07/nottingham-forest-premier-league-top-four/
-
-**Taiwan Says It Suspects a Chinese-Linked Ship Damaged an Undersea Internet Cable**\
-`The Taiwanese Coast Guard said seven Chinese nationals were aboard a ship suspected of causing the damage.`\
-https://nytimes.com/2025/01/07/world/asia/taiwan-internet-cable-china.html
 
