@@ -1,3 +1,7 @@
+**Slot 'very happy' with Liverpool squad, team in 'good place' in January window**\
+`Arne Slot believes Liverpool have sufficient squad depth to last the pace in their pursuit of trophies this season.`\
+https://nytimes.com/athletic/6043773/2025/01/07/liverpool-transfers-january-arne-slot/
+
 **The Pulse: The latest on the NFL coaching carousel**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6042008/2025/01/07/nfl-coaching-carousel-vrabel-johnson-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6042727/2025/01/07/vikings-lions-sam-darnold-bluepr
 **Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
 `What are the expansion plans for Wimbledon, and why is there so much opposition?`\
 https://nytimes.com/athletic/5827803/2025/01/07/wimbledon-tennis-expansion-all-england-club-courts-explained/
-
-**Free cars, free rent and free hotels: 9 interesting NHL CBA rules you may not know about**\
-`Hardcore fans are familiar with CBA rules involving contracts and trades, but there's interesting day-to-day details to be found as well.`\
-https://nytimes.com/athletic/6030630/2025/01/07/nhl-cba-interesting-rules/
 

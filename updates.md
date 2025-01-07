@@ -1,3 +1,7 @@
+**Slot 'very happy' with Liverpool squad, team in 'good place' in January window**\
+`Arne Slot believes Liverpool have sufficient squad depth to last the pace in their pursuit of trophies this season.`\
+https://nytimes.com/athletic/6043773/2025/01/07/liverpool-transfers-january-arne-slot/
+
 **The Pulse: The latest on the NFL coaching carousel**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6042008/2025/01/07/nfl-coaching-carousel-vrabel-johnson-the-pulse/
