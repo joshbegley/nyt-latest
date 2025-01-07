@@ -1,3 +1,7 @@
+**Your 2025 Most-Anticipated List**\
+`What are you looking forward to this year?`\
+https://nytimes.com/2025/01/07/learning/your-2025-most-anticipated-list.html
+
 **Deportiva Minera 0 Real Madrid 5: Guler shines - but Endrick frustrated**\
 `The big talking points dissected from the Spanish Cup win on Monday night`\
 https://nytimes.com/athletic/6043281/2025/01/07/real-madrid-deportiva-minera-spanish-cup/
