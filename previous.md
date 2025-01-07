@@ -1,3 +1,11 @@
+**MLB contenders' weak spots: The 15 biggest roster holes and what can be done to fill them**\
+`Even the ones projected to fight for postseason berths have weaknesses. Here's what can be done to shore up those problem areas.`\
+https://nytimes.com/athletic/6042397/2025/01/07/mlb-contenders-roster-weaknesses-2025-projections/
+
+**What the Bears can learn from Thomas Brown in their head-coach interview process**\
+`Brown believes he should get credit for adapting and adjusting on the fly after getting promoted twice in 18 days this season.`\
+https://nytimes.com/athletic/6042303/2025/01/07/bears-coaching-search-thomas-brown/
+
 **Tottenham trigger Son contract extension**\
 `Tottenham Hotspur have triggered the option to extend captain Son Heung-min&#8217;s contract until 2026.`\
 https://nytimes.com/athletic/6043662/2025/01/07/son-heung-min-contract-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6039329/2025/01/07/nba-trade-deadline-raptors-jakob
 **A key transfer! Staff changes! What is going on? 5 thoughts as the Tigers hit the offseason**\
 `Expectations will be sky high in 2025 for Clemson, which returns key personnel on offense and defense and will have a new DC in place. `\
 https://nytimes.com/athletic/6042182/2025/01/07/clemson-football-2025-dabo-swinney/
-
-**After transfer exodus, who are the newcomers that will shape Wisconsin's D-line?**\
-`Of Wisconsin’s 19 portal additions, 12 have come on defense.`\
-https://nytimes.com/athletic/6042499/2025/01/07/wisconsin-college-football-defensive-line-transfer/
-
-**Nebraska mailbag: What's success for Matt Rhule's Year 3? Offensive line concerns?**\
-`Where do the Huskers rank in NIL opportunities? Will Nebraska get a transfer O-lineman?`\
-https://nytimes.com/athletic/6043079/2025/01/07/nebraska-football-staff-changes-transfers/
 

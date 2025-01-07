@@ -1,3 +1,11 @@
+**MLB contenders' weak spots: The 15 biggest roster holes and what can be done to fill them**\
+`Even the ones projected to fight for postseason berths have weaknesses. Here's what can be done to shore up those problem areas.`\
+https://nytimes.com/athletic/6042397/2025/01/07/mlb-contenders-roster-weaknesses-2025-projections/
+
+**What the Bears can learn from Thomas Brown in their head-coach interview process**\
+`Brown believes he should get credit for adapting and adjusting on the fly after getting promoted twice in 18 days this season.`\
+https://nytimes.com/athletic/6042303/2025/01/07/bears-coaching-search-thomas-brown/
+
 **Tottenham trigger Son contract extension**\
 `Tottenham Hotspur have triggered the option to extend captain Son Heung-min&#8217;s contract until 2026.`\
 https://nytimes.com/athletic/6043662/2025/01/07/son-heung-min-contract-tottenham/
