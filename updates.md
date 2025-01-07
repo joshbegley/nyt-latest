@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Last week&#8217;s Sugar Bowl postponement caused the Mailbag to be postponed to this week &#8212; so we&#8217;ve got a lot to catch up on.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6043200/2025/01/06/submit-a-question-for-stewart-mandels-college-football-mailbag-287/
+
 **2025 NBA viewer guide: What to know about broadcasts, schedules, streaming and more**\
 `Rooting interests and betting implications aside, NBA fandom is a consistently rewarding endeavor. Here's how to watch the games in 2025!`\
 https://nytimes.com/athletic/6022280/2025/01/06/how-to-watch-nba-2025-streams-channels/

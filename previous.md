@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Last week&#8217;s Sugar Bowl postponement caused the Mailbag to be postponed to this week &#8212; so we&#8217;ve got a lot to catch up on.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6043200/2025/01/06/submit-a-question-for-stewart-mandels-college-football-mailbag-287/
+
 **2025 NBA viewer guide: What to know about broadcasts, schedules, streaming and more**\
 `Rooting interests and betting implications aside, NBA fandom is a consistently rewarding endeavor. Here's how to watch the games in 2025!`\
 https://nytimes.com/athletic/6022280/2025/01/06/how-to-watch-nba-2025-streams-channels/
@@ -33,8 +39,4 @@ https://nytimes.com/2025/01/06/world/middleeast/israel-lebanon-ceasefire-hezboll
 **New York Crime Rate Falls, but Number of Felony Assaults Rises Again**\
 `Killings and shootings have dropped, but headlines have been dominated by terrifying crimes, like the killing of a woman who was burned to death on the F train.`\
 https://nytimes.com/2025/01/06/nyregion/nyc-crime-2024.html
-
-**Dodgers trade Gavin Lux to Reds: Sources**\
-`The Dodgers will receive a prospect and the Reds' competitive balance pick for Lux, who started 117 games at second base in 2024.`\
-https://nytimes.com/athletic/6042920/2025/01/06/dodgers-gavin-lux-trade-reds/
 
