@@ -1,3 +1,7 @@
+**Meta’s content moderation changes are taking effect amid U.S. regulatory scrutiny.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-content-moderation-changes-are-taking-effect-amid-us-regulatory-scrutiny
+
 **What Is the State of Mexico-U.S. Migration?**\
 `Unlawful crossings at the U.S.-Mexico border dropped sharply last year. Now, Mexico and countries in Central America are bracing for mass deportations from the U.S. after the Trump administration takes over.`\
 https://nytimes.com/article/migration-mexico-honduras-panama-trump.html

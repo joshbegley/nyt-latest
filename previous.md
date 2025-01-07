@@ -1,3 +1,7 @@
+**Meta’s content moderation changes are taking effect amid U.S. regulatory scrutiny.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2025/01/07/business/meta-fact-checking/metas-content-moderation-changes-are-taking-effect-amid-us-regulatory-scrutiny
+
 **What Is the State of Mexico-U.S. Migration?**\
 `Unlawful crossings at the U.S.-Mexico border dropped sharply last year. Now, Mexico and countries in Central America are bracing for mass deportations from the U.S. after the Trump administration takes over.`\
 https://nytimes.com/article/migration-mexico-honduras-panama-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035234/2025/01/07/san-diego-wave-jonas-eidevall-co
 **Brighton's Kadioglu out for extended period after surgery on toe injury**\
 `Brighton &amp; Hove Albion will be without Ferdi Kadioglu for an extended period after a toe injury suffered by the Turkey international required an operation.`\
 https://nytimes.com/athletic/6044611/2025/01/07/brighton-ferdi-kadiolgu-injury/
-
-**Short of Heat and Power, a Breakaway Region Struggles Without Russian Gas**\
-`An energy crisis in Transnistria, a pro-Russian territory between Moldova and Ukraine, erupted on Jan. 1 when Moscow stopped supplying natural gas through a pipeline running across Ukraine.`\
-https://nytimes.com/2025/01/07/world/europe/transnistria-energy-crisis-russia-gas.html
 
