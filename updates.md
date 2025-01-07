@@ -1,3 +1,15 @@
+**Suns start surprised Bradley Beal on the bench. He rallies them to a win anyway**\
+`The change put a spotlight on Beal's place on the Suns, especially with Jimmy Butler rumors swirling.`\
+https://nytimes.com/athletic/6043392/2025/01/07/bradley-beal-suns-jimmy-butler-sixers/
+
+**Sabres aren't counting themselves out of playoffs despite an ugly first half**\
+`There's still a long way to go to make up for the 13-game losing streak, but at long last the Sabres are trending in the right direction.`\
+https://nytimes.com/athletic/6043495/2025/01/07/sabres-playoffs-first-half-capitals/
+
+**Welcome to the Jacob Murphy Appreciation Society. This is our time**\
+`He is Newcastle's leading assister and a player Eddie Howe relies on, yet the winger divides opinion like no one else at St James' Park`\
+https://nytimes.com/athletic/6041501/2025/01/07/jacob-murphy-appreciation-society-newcastle/
+
 **Why Manchester United and Tottenham want to sign Kolo Muani in January**\
 `The PSG forward has fallen out of favour at the French club and a move to the Premier League - or Serie A - could happen this month`\
 https://nytimes.com/athletic/6041940/2025/01/07/randal-kolo-muani-tottenham-man-utd/
