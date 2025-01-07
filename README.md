@@ -26,7 +26,7 @@ https://nytimes.com/2025/01/07/business/media/washington-post-layoffs.html
 `The social networking giant will stop using third-party fact checkers on Facebook, Threads and Instagram and instead rely on users to add notes to posts. It is likely to please President-elect Trump and his allies.`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking
 
-**Two Bodies Found in Plane’s Landing Gear at Fort Lauderdale Airport**\
+**2 Bodies Found in JetBlue Plane’s Landing Gear at Fort Lauderdale Airport**\
 `A routine post-flight inspection revealed two bodies in the landing gear compartment of a JetBlue plane after a flight from New York on Monday, the airline said.`\
 https://nytimes.com/2025/01/07/us/stowaway-bodies-flight-jetblue-ny-florida.html
 
