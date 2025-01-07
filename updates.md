@@ -1,3 +1,27 @@
+**Wednesday Briefing: Meta Set to End Fact-Checking**\
+`Plus, 52 places to go this year`\
+https://nytimes.com/2025/01/07/briefing/trump-tibet-meta-sudan.html
+
+**Mike McDaniel is staying, Tyreek Hill is venting — what is going on with the Dolphins?**\
+`On this week's "Scoop City" podcast, we discuss Miami's decision to keep its coach, and its star wide receiver's post-game comments.`\
+https://nytimes.com/athletic/6044716/2025/01/07/tyreek-hill-mike-mcdaniel-miami-dolphins/
+
+**Raiders fire coach Antonio Pierce after 2 seasons**\
+`HENDERSON, Nev.`\
+https://nytimes.com/athletic/5981817/2025/01/07/raiders-fire-head-coach-antionio-pierce/
+
+**Super Bowl odds: Which teams are the biggest threat to Detroit and Kansas City?**\
+`Breaking down which teams have the best shot at upsetting the Super Bowl favorites.`\
+https://nytimes.com/athletic/6044419/2025/01/07/super-bowl-odds-nfl-playoffs-detroit-kansas-city/
+
+**Lions expect RB David Montgomery to play in divisional round**\
+`Montgomery opted to rehab a knee injury instead of undergoing season-ending surgery in hopes of returning for the playoffs.`\
+https://nytimes.com/athletic/6044947/2025/01/07/david-montgomery-return-lions-playoffs/
+
+**Live Updates: L.A. Wildfires Force Thousands to Evacuate Pacific Palisades**\
+`Rapidly spreading flames, fanned by gusts that could reach up to 100 m.p.h., threatened homes along the coastline.`\
+https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
+
 **Trump Suggests U.S. Expansion Into Greenland and Canada**\
 `During a news conference at Mar-a-Lago on Tuesday, President-elect Donald J. Trump refused to rule out using military force to retake the Panama Canal.`\
 https://nytimes.com/video/us/politics/100000009912859/trump-panama-greenland-canada.html
