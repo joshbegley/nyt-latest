@@ -1,3 +1,11 @@
+**Fight for a North Carolina Court Seat Drags On Long After Election Day**\
+`Three counts show an incumbent Democrat won election to the State Supreme Court. But an unusual protest by the G.O.P. challenger could be headed to that same Republican-controlled court.`\
+https://nytimes.com/2025/01/07/us/north-carolina-election-ballots-republicans.html
+
+**Raphinha: Players 'would probably think twice' about joining Barcelona after Olmo saga**\
+`Raphinha has said that players &#8220;would probably think twice&#8221; about coming to Barcelona after Dani Olmo and Pau Victor were de-registered from their first-team squad.`\
+https://nytimes.com/athletic/6044490/2025/01/07/barcelona-dani-olmo-raphinha/
+
 **USWNT's January senior camp roster revealed**\
 `Crystal Dunn will make her return to the USWNT program after missing the team’s fall camps.`\
 https://nytimes.com/athletic/6044200/2025/01/07/uswnt-roster-camp-2025/
