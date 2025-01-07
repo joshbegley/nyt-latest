@@ -1,3 +1,11 @@
+**North Dakota State edges Montana State 35-32 for 10th FCS title**\
+`The showdown between North Dakota State QB Cam Miller and Montana State QB Tommy Mellott lived up to the billing.`\
+https://nytimes.com/athletic/6043201/2025/01/06/north-dakota-state-montana-state-fcs-championship-2025/
+
+**Law: Reds make their offense a little richer with Gavin Lux**\
+`The Reds can use Lux as a utility player who hits well against righties. The Dodgers get a 2024 third-round pick plus another pick in 2025.`\
+https://nytimes.com/athletic/6043336/2025/01/06/gavin-lux-trade-analysis-reds-dodgers/
+
 **Long Raiders season gets longer as team awaits confirmation Antonio Pierce will return**\
 `Pierce held his final meeting with the team Monday and spoke as if he's returning, though owner Mark Davis has yet to clarify. `\
 https://nytimes.com/athletic/6043285/2025/01/06/antonio-pierce-raiders-coaching-status-unknown/
