@@ -1,6 +1,6 @@
 **What Trudeau’s Resignation Means for Canada**\
 `By suspending Parliament and promising to resign, the prime minister bought the Liberals time. But Canada will now face Donald Trump with a lame duck in charge.`\
-https://nytimes.com/video/world/canada/100000009911176/what-trudeaus-resignation-means-for-canada-and-trump.html
+https://nytimes.com/video/world/canada/100000009911176/what-trudeaus-resignation-means-for-canada.html
 
 **Southern California is dangerously dry for this time of year.**\
 `By Amy Graff`\
