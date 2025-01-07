@@ -1,7 +1,3 @@
-**Syria’s Main Airport Handles First International Flights Since Fall of al-Assad**\
-`The country’s new leaders are pushing to restore a sense of normalcy. But Syria remains under a host of international sanctions imposed during the Assad regime.`\
-https://nytimes.com/2025/01/07/world/middleeast/syria-airport-damascus-international-flights.html
-
 **Jean-Marie Le Pen, Rabble-Rousing Leader of French Far Right, Dies at 96**\
 `He ran unsuccessfully for the French presidency five times, riding waves of discontent and xenophobia as the leader of the National Front party.`\
 https://nytimes.com/2025/01/07/world/europe/jean-marie-le-pen-dead.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6043700/2025/01/07/aubameyang-interview-arsenal-kol
 **Slot 'very happy' with Liverpool squad, team in 'good place' in January window**\
 `Arne Slot believes Liverpool have sufficient squad depth to last the pace in their pursuit of trophies this season.`\
 https://nytimes.com/athletic/6043773/2025/01/07/liverpool-transfers-january-arne-slot/
+
+**The Pulse: The latest on the NFL coaching carousel**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6042008/2025/01/07/nfl-coaching-carousel-vrabel-johnson-the-pulse/
 
