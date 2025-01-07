@@ -1,3 +1,11 @@
+**Day 2: Are Ultraprocessed Foods Really That Delicious?**\
+`Today’s challenge involves using the five senses.`\
+https://nytimes.com/2025/01/06/well/eat/ultraprocessed-foods-cravings.html
+
+**‘Get Back Up’: Biden Urges a New Round of Resilience for New Orleans**\
+`President Biden and the first lady joined a city already exhausted by disaster to remember the victims of a Jan. 1 terror attack on Bourbon Street.`\
+https://nytimes.com/2025/01/06/us/biden-new-orleans-memorial.html
+
 **American Driver Is Fatally Shot by Police Officer in Mexico**\
 `The shooting in Ciudad Juárez was being investigated. A prosecutor said the driver, from Texas, had accelerated in the officer’s direction and nearly hit him.`\
 https://nytimes.com/2025/01/06/world/americas/mexico-police-shooting-american.html
