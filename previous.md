@@ -1,3 +1,7 @@
+**Ireland Joins South Africa’s Genocide Case Against Israel**\
+`Ireland had said it would intervene in the case at the International Court of Justice, arguing that Israel’s actions in Gaza amounted to collective punishment.`\
+https://nytimes.com/2025/01/07/world/europe/ireland-icj-israel-genocide.html
+
 **Pippa Garner, Conceptual Artist With a Satirical Streak, Dies at 82**\
 `Her witty drawings, arresting sculptures and outlandish gadgets commented on consumerism, gender relations (she had transitioned) American car culture and more.`\
 https://nytimes.com/2025/01/07/arts/pippa-garner-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044658/2025/01/07/zion-williamson-return-pelicans-
 **International Flights To Syria Resume Since Fall of al-Assad**\
 `A Qatar Airways plane became the first to land at Damascus airport since the ousting of the government of former President Bashar al-Assad last month, as Syria’s interim leaders hope to reassert a semblance of normalcy in the country.`\
 https://nytimes.com/video/world/middleeast/100000009912016/syria-flights-resume.html
-
-**Man accused in deaths of Johnny, Matthew Gaudreau pleads not guilty**\
-`Sean M. Higgins pleaded not guilty to all charges, including first-degree aggravated manslaughter, in an arraignment hearing Tuesday.`\
-https://nytimes.com/athletic/6044507/2025/01/07/johnny-matthew-gaudreau-deaths-charges-plea/
 
