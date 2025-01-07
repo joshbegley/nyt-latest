@@ -1,3 +1,7 @@
+**Inside the transfer portal and NFL draft decisions for Georgia**\
+`Two days after adding a receiver and safety from the transfer portal, Georgia had another busy day on Tuesday.`\
+https://nytimes.com/athletic/6044154/2025/01/07/noah-thomas-jaden-harris-adrian-maddox-georgia-transfer-portal/
+
 **The Briefing: Arsenal 0 Newcastle 2 - Eddie Howe's greatest feat yet? What next for Arsenal?**\
 `Newcastle took a massive step towards a second League Cup final in three seasons with a hugely impressive 2-0 victory at Arsenal`\
 https://nytimes.com/athletic/6038924/2025/01/07/arsenal-0-newcastle-2-league-cup-semi-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/learning/how-to-create-a-compelling-collection-a-
 **What Can You Recommend?**\
 `If you were to make a list of the music, movies, TV, books, video games, fashion, tech or restaurants others should know about — or avoid — what would you put on it?`\
 https://nytimes.com/2025/01/07/learning/what-can-you-recommend.html
-
-**A Key Part of Biden’s Climate Law Was Built to Survive Trump. Now, the Test.**\
-`A lucrative tax credit for renewable energy could be hard to kill because it applies to a technologies favored by Republicans, not just wind and solar.`\
-https://nytimes.com/2025/01/07/climate/ira-renewable-energy-tax-credits.html
 
