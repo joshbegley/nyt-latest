@@ -1,3 +1,7 @@
+**Man Utd's Ladd and Watson set for Everton moves**\
+`Everton are set to sign Manchester United midfielders Hayley Ladd on a permanent deal and Emma Watson on loan until the end of the season.`\
+https://nytimes.com/athletic/6043624/2025/01/07/ladd-watson-manchester-united-everton/
+
 **Latest Alabama football roster breakdown: Where the Tide stand as QB questions lead the way**\
 `Who follows Jalen Milroe? On the offensive line, there’s both optimism and concern.`\
 https://nytimes.com/athletic/6043118/2025/01/07/alabama-football-roster-breakdown-2025/
