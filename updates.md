@@ -1,3 +1,7 @@
+**Meta Reveals Plan to Alter Fact-Checking Program**\
+`The move will end a third-party fact-checking system and rely on users to add notes or corrections to posts. It is likely to please the incoming Trump administration and its conservative allies.`\
+https://nytimes.com/2025/01/07/business/meta-fact-checking-conservative-views.html
+
 **Athletics, Brent Rooker agree to 5-year, $60 million extension: Sources**\
 `It’s a strong outcome for Rooker, 30, who emerged as one of baseball’s top hitters after arriving in Oakland before the 2023 season.`\
 https://nytimes.com/athletic/6043843/2025/01/07/athletics-brent-rooker-extension/
