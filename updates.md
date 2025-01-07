@@ -1,3 +1,7 @@
+**Latest Alabama football roster breakdown: Where the Tide stand as QB questions lead the way**\
+`Who follows Jalen Milroe? On the offensive line, there’s both optimism and concern.`\
+https://nytimes.com/athletic/6043118/2025/01/07/alabama-football-roster-breakdown-2025/
+
 **Submit your trade proposals for Kelly Iko’s Southwest Division mailbag**\
 `With the month of January comes two things — New Year&#8217;s resolutions and trade chatter.`\
 https://nytimes.com/athletic/6042059/2025/01/07/grizzlies-spurs-rockets-nba-trade-deadline-mailbag/
