@@ -1,7 +1,3 @@
-**Mark Zuckerberg’s history of moving Meta toward where the political wind blows.**\
-`By Mike Isaac`\
-https://nytimes.com/live/2025/01/07/business/meta-fact-checking/mark-zuckerbergs-history-of-moving-meta-toward-where-the-political-wind-blows
-
 **Carter eschewed the typical majesty of the presidency.**\
 `By Peter Baker`\
 https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/carter-eschewed-the-typical-majesty-of-the-presidency
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/07/world/americas/venezuela-gonzalez-son-in-law-kidn
 **Ireland Joins South Africa’s Genocide Case Against Israel**\
 `Ireland had said it would intervene in the case at the International Court of Justice, arguing that Israel’s actions in Gaza amounted to collective punishment.`\
 https://nytimes.com/2025/01/07/world/europe/ireland-icj-israel-genocide.html
+
+**Pippa Garner, Conceptual Artist With a Satirical Streak, Dies at 82**\
+`Her witty drawings, arresting sculptures and outlandish gadgets commented on consumerism, gender relations (she had transitioned) American car culture and more.`\
+https://nytimes.com/2025/01/07/arts/pippa-garner-dead.html
 
