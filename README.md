@@ -1,3 +1,11 @@
+**Bills championship window wide open as stumbling, bumbling AFC East foes struggle to find their way**\
+`The Bills have become a model franchise while the rest of the division is in shambles.`\
+https://nytimes.com/athletic/6043844/2025/01/07/bills-super-bowl-window-culture-afc-east/
+
+**Cunha offered to pay for Ipswich staff member's glasses after post-match clash**\
+`Wolverhampton Wanderers striker Matheus Cunha offered to pay for replacement glasses for the Ipswich Town staff member he clashed with in a heated post-match clash that brought him a two-game ban, a report has revealed.`\
+https://nytimes.com/athletic/6044093/2025/01/07/matheus-cunha-ipswich-wolves-ban-glasses/
+
 **Exxon Sues California Official, Claiming He Defamed the Company**\
 `The lawsuit, an unusual strategy for the oil giant, comes after California’s attorney general sued Exxon last year alleging it misled the public about plastics recycling.`\
 https://nytimes.com/2025/01/07/climate/exxon-bonta-california-defamation-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/07/health/abortion-pills-pharmacist-prescribe.html
 **Do Football Fans Really Want to Be Fashionable?**\
 `Emma Grede of Skims and Good American and Kristin Juszczyk say the answer is yes.`\
 https://nytimes.com/2025/01/07/style/emma-grede-kristin-juszczyk-off-season.html
-
-**Firefighter Is Killed After Roof Partly Collapses in Honolulu Blaze**\
-`Five other people, including four firefighters, were taken to the hospital with injuries from the fire.`\
-https://nytimes.com/2025/01/07/us/honolulu-fire-fighter-dead.html
-
-**49ers fire special teams coordinator Brian Schneider**\
-`Schneider was hired by Kyle Shanahan in 2022 and the 49ers' run of flat special teams play continued under his watch. `\
-https://nytimes.com/athletic/6039186/2025/01/07/brian-schneider-fired-49ers-special-teams-coordinator/
 
