@@ -1,3 +1,11 @@
+**With Ravens' Marlon Humphrey, always expect the unexpected: 'There's just no replica of him'**\
+`Off the field, you never know what you're going to get from Baltimore's Pro Bowl corner. But on the field, he's all business, all the time.`\
+https://nytimes.com/athletic/6042654/2025/01/07/ravens-playoffs-marlon-humphrey-defense/
+
+**Dehner Jr.: After Bengals firings, hot seat ratchets up early on Zac Taylor in 2025**\
+`DC Lou Anarumo took the fall for the team's disappointing 2024 season, but the onus now falls squarely on the head coach.`\
+https://nytimes.com/athletic/6043028/2025/01/07/zac-taylor-bengals-firings-hot-seat/
+
 **#MeToo Theater Campaigners Stage a Drama of Their Own**\
 `The French activists behind the hashtag #MeTooThéâtre have devised a play that shows the personal cost of bringing abuse claims to light.`\
 https://nytimes.com/2025/01/07/theater/les-histrioniques-metootheatre.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6043079/2025/01/07/nebraska-football-staff-changes-
 **China's most successful club not granted permission to play in 2025 over debts**\
 `Guangzhou FC, China&#8217;s most successful football club, have not been granted permission to play professionally during the 2025 season due to financial issues.`\
 https://nytimes.com/athletic/6043642/2025/01/07/guangzhou-china-debt-league/
-
-**Carter to Arrive in Washington on Tuesday for a Pomp-Filled Farewell**\
-`Former President Jimmy Carter, who once banned the playing of “Hail to the Chief,” will be honored with three days of elaborate ceremonies in the nation’s capital.`\
-https://nytimes.com/2025/01/07/us/politics/jimmy-carter-washington-events.html
-
-**How Deep Is the Wound to the Democratic Party?**\
-`Is liberalism actually dead this time?`\
-https://nytimes.com/2025/01/07/opinion/democratic-party-republican-realignment.html
 
