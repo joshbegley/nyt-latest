@@ -1,3 +1,11 @@
+**Disordered State**\
+`Dana Edwards makes a stylish second appearance in the New York Times Crossword.`\
+https://nytimes.com/2025/01/06/crosswords/daily-puzzle-2025-01-07.html
+
+**Pentagon Reaches Settlement With Veterans Dismissed Over Sexuality**\
+`The agreement, if approved by a judge, would let former service members upgrade their discharge status and receive benefits they had been denied.`\
+https://nytimes.com/2025/01/06/us/politics/pentagon-settlement-veterans-sexuality.html
+
 **Day 2: Are Ultraprocessed Foods Really That Delicious?**\
 `Today’s challenge involves using the five senses.`\
 https://nytimes.com/2025/01/06/well/eat/ultraprocessed-foods-cravings.html
@@ -10,7 +18,7 @@ https://nytimes.com/2025/01/06/us/biden-new-orleans-memorial.html
 `The shooting in Ciudad Juárez was being investigated. A prosecutor said the driver, from Texas, had accelerated in the officer’s direction and nearly hit him.`\
 https://nytimes.com/2025/01/06/world/americas/mexico-police-shooting-american.html
 
-**Elon Musk, the Most Powerful Troll on Earth, Targets the U.K.**\
+**Elon Musk’s Dishonest Demagogy on Grooming Gangs**\
 `The billionaire is exploiting old atrocities to undermine his enemies.`\
 https://nytimes.com/2025/01/06/opinion/elon-musk-britain-sex-trafficking.html
 
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6022280/2025/01/06/how-to-watch-nba-2025-streams-ch
 **52 Places to Go in 2025**\
 `Where will the new year take you? Kick-start your travel plans by selecting favorites from our annual list.`\
 https://nytimes.com/interactive/2025/travel/places-to-travel-destinations-2025.html
-
-**‘One of the Faces of Jan. 6’**\
-`What happened to the rioter who put his boot on a desk in Nancy Pelosi’s office.`\
-https://nytimes.com/2025/01/06/us/politics/jan-6-pelosi-trump.html
-
-**Shooter at Honduran Consulate in Georgia Kills One and Injures Another**\
-`The police arrested a person who tried to enter the consulate with a weapon, and then opened fire outside the entrance to the building, which is near Atlanta.`\
-https://nytimes.com/2025/01/06/us/honduras-consulate-shooting-atlanta.html
 
