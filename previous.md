@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/07/crosswords/spelling-bee-forum.html
+
+**Deadly Earthquake Hits Tibet**\
+`Rubble from toppled buildings littered the streets after a deadly 7.1-magnitude quake shook a region in western China.`\
+https://nytimes.com/video/world/asia/100000009911773/tibet-earthquake-nepal-china.html
+
+**Ornstein meets Aubameyang: Arsenal, Arteta relationship, Chelsea 'chaos', Saudi move and a terrifying robbery**\
+`Aubameyang opens up on his relationship with Arteta, his highs and lows at Arsenal, what happened at Chelsea and why he's playing in Saudi`\
+https://nytimes.com/athletic/6036322/2025/01/07/aubameyang-arsenal-arteta-chelsea-saudi/
+
 **The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
 `Welcome to your weekly guide to the January transfer window`\
 https://nytimes.com/athletic/6035268/2025/01/07/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-barcelona/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6043025/2025/01/07/nottingham-forest-premier-league
 **Taiwan Says It Suspects a Chinese-Linked Ship Damaged an Undersea Internet Cable**\
 `The Taiwanese Coast Guard said seven Chinese nationals were aboard a ship suspected of causing the damage.`\
 https://nytimes.com/2025/01/07/world/asia/taiwan-internet-cable-china.html
-
-**Now Is the Time to Reimagine Lebanon**\
-`The fall of the Syrian regime and loss of Iranian influence opens the door for the Lebanese to finally take their fate in their own hands.`\
-https://nytimes.com/2025/01/07/opinion/lebanon-syria-assad-election.html
-
-**Suns start surprised Bradley Beal on the bench. He rallied them to a win anyway**\
-`The change put a spotlight on Beal's place on the Suns, especially with Jimmy Butler rumors swirling.`\
-https://nytimes.com/athletic/6043392/2025/01/07/bradley-beal-suns-jimmy-butler-sixers/
-
-**Sabres aren't counting themselves out of playoffs despite an ugly first half**\
-`There's still a long way to go to make up for the 13-game winless streak, but at long last the Sabres are trending in the right direction.`\
-https://nytimes.com/athletic/6043495/2025/01/07/sabres-playoffs-first-half-capitals/
 
