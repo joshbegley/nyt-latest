@@ -1,3 +1,15 @@
+**The Man Who Got Away**\
+`Fleeing fraud charges, Samuele Landi evaded extradition treaties, dabbled in crypto, procured diplomatic credentials and took advantage of all the offshore world has to offer.`\
+https://nytimes.com/2025/01/07/business/samuele-landi-offshore-seastead.html
+
+**Abortion Pills Prescribed by Pharmacists Are Newest Effort in Abortion Fight**\
+`Washington State’s program is the first, but other states are expected to try allowing pharmacists to prescribe the pills to counter growing efforts to curtail abortion access.`\
+https://nytimes.com/2025/01/07/health/abortion-pills-pharmacist-presribe.html
+
+**Do Football Fans Really Want to Be Fashionable?**\
+`Emma Grede of Skims and Good American and Kristin Juszczyk say the answer is yes.`\
+https://nytimes.com/2025/01/07/style/emma-grede-kristin-juszczyk-off-season.html
+
 **Trump Transition Live Updates: Trump Expected to Hold News Conference at Mar-a-Lago**\
 ``\
 https://nytimes.com/live/2025/01/07/us/trump-news
