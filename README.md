@@ -1,3 +1,7 @@
+**This Bears coaching search looks like a case of too many cooks in the kitchen**\
+`The Bears' search for their next coach will involve more than GM Ryan Poles, president/CEO Kevin Warren and chairman George McCaskey.`\
+https://nytimes.com/athletic/6044831/2025/01/07/chicago-bears-coaching-search-ryan-poles/
+
 **Live Updates: Wildfires Erupt in Los Angeles, Driven by Fierce Winds**\
 `Rapidly spreading flames, fanned by gusts of up to 100 m.p.h., forced evacuations and road closures and threatened homes in the Pacific Palisades area.`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-california
@@ -14,7 +18,7 @@ https://nytimes.com/2025/01/07/nyregion/subway-burning-defendant-questioning.htm
 `A conversation about the New Balance “Snoafers” — not quite sneakers, not quite loafers.`\
 https://nytimes.com/2025/01/07/style/sneakers-new-balance-snoafers.html
 
-**Biden Won’t Point to the Real Culprit in the Sudanese Genocide**\
+**Biden Won’t Point to a Key Culprit in the Sudanese Genocide**\
 `Why are Biden and his aides reluctant to hold a crucial culprit accountable?`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/biden-sudan-genocide
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/weather/texas-snow-ice-forecast.html
 **Mark Zuckerberg’s history of moving Meta toward where the political wind blows.**\
 `By Mike Isaac`\
 https://nytimes.com/live/2025/01/07/business/meta-fact-checking/mark-zuckerbergs-history-of-moving-meta-toward-where-the-political-wind-blows
-
-**Carter eschewed the typical majesty of the presidency.**\
-`By Peter Baker`\
-https://nytimes.com/live/2025/01/07/us/jimmy-carter-us-capitol-washington/carter-eschewed-the-typical-majesty-of-the-presidency
 
