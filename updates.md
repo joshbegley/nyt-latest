@@ -1,3 +1,7 @@
+**Micah Parsons' plan for Cowboys to be playoff-contending team next season**\
+`Micah Parsons would like the Cowboys to be aggressive in free agency and re-sign some of their own defensive free agents.`\
+https://nytimes.com/athletic/6043636/2025/01/07/micah-parsons-cowboys-future-jerry-jones/
+
 **Man Utd's Ladd and Watson set for Everton moves**\
 `Everton are set to sign Manchester United midfielders Hayley Ladd on a permanent deal and Emma Watson on loan until the end of the season.`\
 https://nytimes.com/athletic/6043624/2025/01/07/ladd-watson-manchester-united-everton/
