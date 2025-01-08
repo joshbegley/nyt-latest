@@ -1,3 +1,7 @@
+**Late Night Jokes Its Way From Canada to the ‘Gulf of America’**\
+`“We have been so concerned about all the scary things that Trump’s going to do, we forgot he’s also going to do some really stupid things,” Desi Lydic said on “The Daily Show.”`\
+https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
+
 **Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
 `Arsenal lost 2-0 to Newcastle at the Emirates Stadium on Tuesday evening`\
 https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/

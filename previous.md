@@ -1,3 +1,7 @@
+**Late Night Jokes Its Way From Canada to the ‘Gulf of America’**\
+`“We have been so concerned about all the scary things that Trump’s going to do, we forgot he’s also going to do some really stupid things,” Desi Lydic said on “The Daily Show.”`\
+https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
+
 **Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
 `Arsenal lost 2-0 to Newcastle at the Emirates Stadium on Tuesday evening`\
 https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/08/weather/los-angeles-fire-maps-califor
 **Justin Trudeau Was His Own Worst Enemy**\
 `Justin Trudeau came to power with a new kind of politics — progressive and identity-based. In the end, it proved his undoing.`\
 https://nytimes.com/2025/01/08/opinion/justin-trudeau-canada-progressive.html
-
-**In Tibet, Survivors of Strong Quake Face Freezing Weather Conditions**\
-`Rescuers rushed to distribute blankets and tents to those displaced by the magnitude-7.1 quake that struck Tibetan villages near Nepal, toppling over 3,000 homes.`\
-https://nytimes.com/2025/01/08/world/asia/tibet-quake-survivors-cold.html
 
