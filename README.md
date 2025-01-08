@@ -1,3 +1,7 @@
+**Top Iranian General Admits ‘Big’ Defeat in Syria, Breaking With Other Leaders**\
+`For weeks, Iranian officials have downplayed the fall of their ally in Syria. But an important general has offered a remarkably candid view of the blow to Iran, and its military’s prospects.`\
+https://nytimes.com/2025/01/08/world/middleeast/iran-general-syria-defeat.html
+
 **The Perfect Housewarming Present for Trump’s Second Term**\
 `Trump may be inheriting ‘Morning in America’. Will Americans accept being happy?`\
 https://nytimes.com/2025/01/08/opinion/trump-trends.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/technology/sam-altman-sister-lawsuit.html
 **A lack of water has hindered firefighting efforts.**\
 `By Kate Selig and Emily Baumgaertner`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/a-lack-of-water-has-hindered-firefighting-efforts
-
-**Sportsbank enter exclusivity to invest in Textor's Eagle Football group**\
-`A sports investment group advised by the former Everton director and experienced football financier Keith Harris has entered a period of exclusivity to invest in John Textor’s Eagle Football Holdings company.`\
-https://nytimes.com/athletic/6047524/2025/01/08/crystal-palace-eagle-football-group-sportsbank/
 

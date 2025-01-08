@@ -1,3 +1,7 @@
+**Trump Blames California’s Governor, and His Water Policy, for Wildfires**\
+`In a social media post, Donald J. Trum`\
+https://nytimes.com/2025/01/08/us/trump-newsom-california-fires.html
+
 **The Perfect Housewarming Present for Trump’s Second Term**\
 `Trump may be inheriting ‘Morning in America’. Will Americans accept being happy?`\
 https://nytimes.com/2025/01/08/opinion/trump-trends.html
