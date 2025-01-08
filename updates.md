@@ -1,3 +1,7 @@
+**Will Leicester be charged by the Premier League for a PSR breach?**\
+`Leicester City had until December 31 to submit their accounts - which will be published by Companies House at a later date - for 2023-24`\
+https://nytimes.com/athletic/6046906/2025/01/08/leicester-psr-breach-risk-premier-league/
+
 **Mark Zuckerberg Swings Left, Swings Right, Wins Big With Both**\
 `Zuckerberg has leveraged his political ambiguity to strengthen Meta, with consequences for the future of Silicon Valley and for the truth.`\
 https://nytimes.com/2025/01/08/opinion/mark-zuckerberg-trump-meta-lobbying.html
