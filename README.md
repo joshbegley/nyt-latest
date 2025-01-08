@@ -1,3 +1,7 @@
+**Another Warriors home blowout loss leaves Steph Curry deflated; season hits a low point**\
+`Curry, when asked how the offense can get better: "I honestly have no idea." When asked if this is the low point of the season: "Yeah."`\
+https://nytimes.com/athletic/6046228/2025/01/08/steph-curry-warriors-low-point-of-season/
+
 **Visiting Dissident Is Gunned Down in Bangkok**\
 `The shock killing of a former Cambodian politician stoked safety fears that Thailand is no refuge for those fleeing autocracy.`\
 https://nytimes.com/2025/01/08/world/asia/cambodia-politician-dead-bangkok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
 **Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
 `Had Isak been on the opposite side, Arsenal may well have won the game. That is how fundamentally decisive he was on Tuesday night`\
 https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/
-
-**Word of the Day: actuarial**\
-`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/08/learning/word-of-the-day-actuarial.html
 
