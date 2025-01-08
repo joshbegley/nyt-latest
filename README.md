@@ -1,3 +1,11 @@
+**As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
+`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own.`\
+https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
+
+**Penguins Today: Tristan Jarry nears an unwelcome team record**\
+`Last night, Jarry inched closer to a Tom Barrasso Penguins record he doesn't want.`\
+https://nytimes.com/athletic/6046879/2025/01/08/penguins-today-tristan-jarry-first-shot-goals/
+
 **Jenna Bush Hager: ‘Today’ Show Co-Host, Literary Tastemaker and Now, Publisher**\
 `Nearly six years after becoming a literary heavyweight with “Read with Jenna,” she’s starting her own publishing venture with Penguin Random House.`\
 https://nytimes.com/2025/01/08/books/jenna-bush-hager-publishing-books.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/world/middleeast/trump-hostages-gaza-israel.html
 **Eaton Fire Erupts in Intensity Amid High Winds**\
 `The blaze more than doubled in size within hours. It is one of multiple wildfires raging out of control near Los Angeles.`\
 https://nytimes.com/2025/01/08/us/eaton-fire-pasadena-california.html
-
-**Justin Verlander fits what the Giants were looking for (and vice versa)**\
-`Verlander isn't a guarantee to throw 150 quality innings, but he brings that possibility while also bringing leadership to a young staff.`\
-https://nytimes.com/athletic/6045100/2025/01/08/sf-giants-justin-verlander-analysis/
-
-**MoneyCall: Bold sports business predictions for 2025**\
-`Welcome to the first edition of MoneyCall, The Athletic's sports business newsletter.`\
-https://nytimes.com/athletic/6044729/2025/01/08/sports-business-predictions-2025-moneycall-newsletter/
 
