@@ -1,3 +1,15 @@
+**49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
+`Show him the money? Shanahan had a strong quote about Brock Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
+https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
+
+**Animal Shelters Are Stretched Thin With Displaced Pets**\
+`Some owners fled with their pets, but a network of facilities in the Los Angeles area is straining to care for the hundreds of animals left behind.`\
+https://nytimes.com/2025/01/08/us/california-fires-pets-animals.html
+
+**Multiple Wildfires Rage Around Los Angeles**\
+`The fires have consumed thousands of acres and have displaced more than 100,000 people.`\
+https://nytimes.com/video/us/100000009915899/california-la-wildfires.html
+
 **Spurs impressed in adversity after worrying Bentancur head injury - Postecoglou**\
 `Ange Postecoglou praised Tottenham Hotspur&#8217;s players reaction to the &#8220;adversity&#8221; of a worrying injury to their team-mate Rodrigo Bentancur.`\
 https://nytimes.com/athletic/6048224/2025/01/08/rodrigo-bentancur-injury-update-tottenham/

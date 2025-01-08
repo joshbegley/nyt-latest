@@ -1,3 +1,7 @@
+**Bears interviewing Iowa State's Campbell, complete interview with Vrabel**\
+`Chicago also said Wednesday it completed an interview with former Tennessee Titans head coach Mike Vrabel.`\
+https://nytimes.com/athletic/6048262/2025/01/08/bears-iowa-state-matt-campbell-head-coach-interview/
+
 **49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
 `Show him the money? Shanahan had a strong quote about Brock Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
 https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/california-fires-evacuation-shelters-updates.h
 **The health secretary strongly suggests Biden should not pardon Fauci.**\
 `Xavier Becerra, President Biden’s health secretary, said there should be a high bar in the pardon process. Mr. Biden has not ruled out pre-emptive pardons for those targeted by Donald Trump and his allies.`\
 https://nytimes.com/live/2025/01/08/us/trump-news/the-health-secretary-strongly-suggests-biden-should-not-pardon-fauci
-
-**A Fashion Reporter Considers the Ways Trends Trickle Down**\
-`Jacob Gallagher, who covers men’s style for The Times, writes about teddy bear jeans, papal robes and all the fashion moments in between.`\
-https://nytimes.com/2025/01/08/insider/jacob-gallagher-new-york-times.html
 
