@@ -1,3 +1,11 @@
+**Dortmund interested in loan move for Chelsea's Chukwuemeka**\
+`Borussia Dortmund have an interest in signing Chelsea midfielder Carney Chukwuemeka on a loan deal with an option to buy in the January transfer window.`\
+https://nytimes.com/athletic/6046413/2025/01/08/carney-chukwuemeka-dortmund-chelsea-transfers/
+
+**What’s Behind Meta’s MAGA Makeover?**\
+`Mark Zuckerberg is positioning his company for a second Trump term — and revealing the hollow identity at its core.`\
+https://nytimes.com/2025/01/08/technology/meta-facebook-trump-mark-zuckerberg.html
+
 **CPS assessing evidence from police on Premier League footballer accused of rape**\
 `The Crown Prosecution Service (CPS) is assessing a “full file” of evidence that was sent to them by the Metropolitan Police about a Premier League footballer arrested on suspicion of rape.`\
 https://nytimes.com/athletic/6047082/2025/01/08/premier-league-footballer-rape-cps/
