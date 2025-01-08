@@ -1,3 +1,11 @@
+**Ed Van Put, Who Hooked Jimmy Carter on the Catskills, Dies at 88**\
+`A master fly-fisherman, author and conservationist, he guided the famous, including a former president, and the not-so-famous in the hunt for rainbow trout.`\
+https://nytimes.com/2025/01/08/sports/ed-van-put-dead.html
+
+**Wildfires Intensify Pivotal Moment for Insurance Industry**\
+`California’s vulnerable homeowners insurance industry faces a test as fires rage across Los Angeles.`\
+https://nytimes.com/2025/01/08/us/fire-insurance-california.html
+
 **California Wildfires Threaten Insurers Already Teetering From Climate Shocks**\
 `Companies started pulling back from the state as earlier fires made it harder to turn a profit. Experts warn the exodus could grow.`\
 https://nytimes.com/2025/01/08/climate/california-wildfires-threaten-insurers-already-teetering-from-climate-shocks.html
