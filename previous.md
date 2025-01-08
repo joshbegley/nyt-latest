@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6048021/2025/01/08/st-louis-blues-scott-wheeler-mai
 `Hussain Sajwani, the founder and chairman of DAMAC Properties of Dubai, built the first Trump-branded golf course in the Middle East a decade ago.`\
 https://nytimes.com/2025/01/08/business/trump-damac-data-centers.html
 
-**The Getty Museum has avoided the worst.**\
+**The Getty Villa Museum has avoided the worst.**\
 `But beloved shops, beachside restaurants, and a Jewish community center are among the structures lost.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/getty-palisades-fire-los-angeles-california
 

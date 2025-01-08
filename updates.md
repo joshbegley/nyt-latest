@@ -1,3 +1,7 @@
+**The Getty Villa Museum has avoided the worst.**\
+`But beloved shops, beachside restaurants, and a Jewish community center are among the structures lost.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/getty-palisades-fire-los-angeles-california
+
 **Wisconsin cornerback Ricardo Hallman to return for fifth season with the Badgers**\
 `Hallman has played in 37 career games with 33 starts, including starting every game the past two seasons.`\
 https://nytimes.com/athletic/6048028/2025/01/08/ricardo-hallman-return-wisconsin-cornerback/
