@@ -1,3 +1,11 @@
+**Wildfires in California are spreading faster, scientists have found.**\
+`An analysis of 60,000 wildfires found that growth rates had increased over the decades in California and other parts of the West.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfire-speed
+
+**How Trump’s Greenland Plan Could Hit Ozempic, Legos and Hearing Aids**\
+`Putting tariffs on Denmark unless it cedes the island of Greenland could hurt access to a few key products, including popular medicines.`\
+https://nytimes.com/2025/01/08/us/politics/trump-greenland-denmark-ozempic.html
+
 **U.K. Special Forces Allowed to ‘Get Away with Murder’ in Afghanistan, Inquiry Told**\
 `Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
 https://nytimes.com/2025/01/08/world/europe/uk-special-forces-allowed-to-get-away-with-murder-in-afghanistan-inquiry-told.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/magazine/friend-funeral-story-ethics.html
 **Dortmund interested in loan move for Chelsea's Chukwuemeka**\
 `Borussia Dortmund have an interest in signing Chelsea midfielder Carney Chukwuemeka on a loan deal with an option to buy in the January transfer window.`\
 https://nytimes.com/athletic/6046413/2025/01/08/carney-chukwuemeka-dortmund-chelsea-transfers/
-
-**What’s Behind Meta’s MAGA Makeover?**\
-`Mark Zuckerberg is positioning his company for a second Trump term — and revealing the hollow identity at its core.`\
-https://nytimes.com/2025/01/08/technology/meta-facebook-trump-mark-zuckerberg.html
-
-**CPS assessing evidence from police on Premier League footballer accused of rape**\
-`The Crown Prosecution Service (CPS) is assessing a “full file” of evidence that was sent to them by the Metropolitan Police about a Premier League footballer arrested on suspicion of rape.`\
-https://nytimes.com/athletic/6047082/2025/01/08/premier-league-footballer-rape-cps/
 
