@@ -1,3 +1,7 @@
+**How Many Fires Are Burning in Southern California?**\
+`At least three major fires were burning in the Los Angeles area on Wednesday morning, destroying homes and forcing thousands to evacuate.`\
+https://nytimes.com/2025/01/08/us/palisades-eaton-hurst-fire-california.html
+
 **Wildfires in Southern California**\
 `We cover the latest on the fast-moving fires.`\
 https://nytimes.com/2025/01/08/briefing/southern-california-wildfires.html
