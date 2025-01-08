@@ -1,3 +1,23 @@
+**Artists Tried to Activate Voters With Billboard Art. Did It Work?**\
+`For Freedoms’ billboards could surprise, comfort or confuse. Now the group is asking, Where do we go from here?`\
+https://nytimes.com/2025/01/08/arts/design/artists-tried-to-activate-voters-with-billboard-art-did-it-work.html
+
+**In Death, Jean-Marie Le Pen of France is Embraced by Far-Right Party He Once Led**\
+`For years, the far-right National Rally tried to distance itself from Mr. Le Pen’s racist and antisemitic remarks. But after his death Tuesday, it hailed him as a visionary.`\
+https://nytimes.com/2025/01/08/world/europe/france-le-pen-death-national-rally.html
+
+**Trump’s Threat About Hostages Frustrates Gazans: ‘It Is Already Hell’**\
+`President-elect Donald J. Trump said “all hell will break out in the Middle East” if hostages captured in the Hamas-led attacks were not freed before he takes office.`\
+https://nytimes.com/2025/01/08/world/middleeast/trump-hostages-gaza-israel.html
+
+**Eaton Fire Erupts in Intensity Amid High Winds**\
+`The blaze more than doubled in size within hours. It is one of multiple wildfires raging out of control near Los Angeles.`\
+https://nytimes.com/2025/01/08/us/eaton-fire-pasadena-california.html
+
+**Justin Verlander fits what the Giants were looking for (and vice versa)**\
+`Verlander isn't a guarantee to throw 150 quality innings, but he brings that possibility while also bringing leadership to a young staff.`\
+https://nytimes.com/athletic/6045100/2025/01/08/sf-giants-justin-verlander-analysis/
+
 **MoneyCall: Bold sports business predictions for 2025**\
 `Welcome to the first edition of MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6044729/2025/01/08/sports-business-predictions-2025-moneycall-newsletter/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6044955/2025/01/08/dodgers-roster-projection-one/
 **Ranking NFL playoff coaches by who gives their team biggest edge on fourth downs**\
 `You just know a few of these playoff games will come down to crucial fourth-down decisions. Who will make the right call in crunch time? `\
 https://nytimes.com/athletic/6007051/2025/01/08/nfl-playoffs-coaches-fourth-down-dan-campbell-sean-mcdermott/
-
-**When There’s a Dearth of Good Information on Women’s Health, a Million Scams Bloom**\
-`Especially when fertility is involved.`\
-https://nytimes.com/2025/01/08/opinion/pcos-diagnosis-internet-pregnancy.html
-
-**My Brother and Sister-in-Law No Longer Want to Put Me Up. I’m Hurt!**\
-`A reader feels stung by her brother and his wife’s cooling to an idea that they had once seemed open to: hosting her once a month when she commutes to a faraway office job.`\
-https://nytimes.com/2025/01/08/style/houseguest-arrangments.html
-
-**Tom Allen relishing his opportunity at Penn State: 'What an amazing difference a year makes'**\
-`A year ago, Allen was fired as the head coach at Indiana. Now, he is one win away from reaching the national title game as Penn State's DC. `\
-https://nytimes.com/athletic/6046086/2025/01/08/tom-allen-penn-state-defensive-coordinator-orange-bowl/
-
-**NASCAR legend Kyle Busch revels in son Brexton's Tulsa win, readies for Chili Bowl**\
-`The NASCAR star talks about son Brexton's big win in Tulsa and his own hopes there next week in the Chili Bowl Midget Nationals.`\
-https://nytimes.com/athletic/6043938/2025/01/08/nascar-kyle-busch-brexton-tulsa-chili-bowl/
-
-**Bournemouth striker Unal suffers ACL tear**\
-`Bournemouth striker Enes Unal is set for an extended period on the sidelines after tearing his right anterior cruciate ligament (ACL).`\
-https://nytimes.com/athletic/6046706/2025/01/08/enes-unal-bournemouth-injury-update/
 
