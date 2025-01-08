@@ -1,3 +1,15 @@
+**Pluto May Have Captured Its Biggest Moon After an Ancient Dance and Kiss**\
+`Charon is large in size relative to Pluto, and is locked in a tight orbit with the dwarf planet. A new simulation suggests how it ended up there.`\
+https://nytimes.com/2025/01/08/science/pluto-moon-kiss-charon.html
+
+**David Wright reflects on Mets' plans to retire his jersey: 5 takeaways from No. 5**\
+`Wright savored conversations with Tom Seaver, a message from Keith Hernandez, serving as captain and more. `\
+https://nytimes.com/athletic/6048178/2025/01/08/mets-david-wright-jersey-retirement-takeaways/
+
+**Dignified Rituals Before the ‘Hot Mess’ in Washington**\
+`Jimmy Carter’s funeral is giving the nation an uncanny week of routine on the eve of political upheaval.`\
+https://nytimes.com/2025/01/08/us/politics/carter-funeral-rituals-trump-politics.html
+
 **Liverpool's Quansah substituted off in loss to Spurs due to illness - Slot**\
 `Arne Slot revealed that illness rather than injury forced Jarell Quansah off during Liverpool&#8217;s 1-0 defeat to Tottenham Hotspur in their Carabao Cup semi-final first leg.`\
 https://nytimes.com/athletic/6048186/2025/01/08/jarell-quansah-injury-update-liverpool/
