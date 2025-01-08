@@ -1,3 +1,11 @@
+**Dortmund interested in loan move for Chelsea's Chukwuemeka**\
+`Borussia Dortmund have an interest in signing Chelsea midfielder Carney Chukwuemeka on a loan deal with an option to buy in the January transfer window.`\
+https://nytimes.com/athletic/6046413/2025/01/08/carney-chukwuemeka-dortmund-chelsea-transfers/
+
+**What’s Behind Meta’s MAGA Makeover?**\
+`Mark Zuckerberg is positioning his company for a second Trump term — and revealing the hollow identity at its core.`\
+https://nytimes.com/2025/01/08/technology/meta-facebook-trump-mark-zuckerberg.html
+
 **CPS assessing evidence from police on Premier League footballer accused of rape**\
 `The Crown Prosecution Service (CPS) is assessing a “full file” of evidence that was sent to them by the Metropolitan Police about a Premier League footballer arrested on suspicion of rape.`\
 https://nytimes.com/athletic/6047082/2025/01/08/premier-league-footballer-rape-cps/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6046300/2025/01/08/sharks-celebrini-askarov-nhl-202
 **West Ham and Lopetegui's week on the brink: Three training sessions, Fonseca talks, Potter hold-up**\
 `West Ham and head coach Julen Lopetegui spent the past few days edging towards an inevitable exit, just eight months after his appointment`\
 https://nytimes.com/athletic/6044388/2025/01/08/west-ham-julen-lopetegui-final-week/
-
-**Wildfires and strong winds prompt road closures across Los Angeles County.**\
-`The closures included a section of the storied Pacific Coast Highway that runs through Pacific Palisades, the site of the largest fire.`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfires-los-angeles-road-closures
-
-**UK Athletics and former head of sport charged with manslaughter after death of Paralympian**\
-`UK Athletics and its former head of sport have been charged with manslaughter following the death of a Paralympian in 2017.`\
-https://nytimes.com/athletic/6047003/2025/01/08/uk-athletics-paralympian-manslaughter-abdullah-hayayei/
 
