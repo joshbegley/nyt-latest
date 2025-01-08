@@ -1,3 +1,15 @@
+**49ers defensive coordinator candidates: Robert Saleh, Jeff Ulbrich and 7 other options**\
+`The 49ers are searching for a defensive coordinator for the third straight year after moving on from Nick Sorensen on Tuesday.`\
+https://nytimes.com/athletic/6047338/2025/01/08/49ers-defensive-coordinator-candidates-saleh-ulbrich/
+
+**Nebraska bolsters offensive line with addition of former 5-star tackle Elijah Pritchett**\
+`Pritchett started 12 of 13 games for Alabama, including 11 at right tackle, in 2024.`\
+https://nytimes.com/athletic/6047371/2025/01/08/nebraska-offensive-line-portal-elijah-pritchett/
+
+**Barcelona's Olmo, Victor given temporary permission to play by Spanish government**\
+`Barcelona will be able to play Dani Olmo and Pau Victor in the second half of the 2024-25 season — for now at least.`\
+https://nytimes.com/athletic/6037707/2025/01/08/dani-olmo-registration-barcelona-update/
+
 **‘Here We Go Again’: Trump’s Territorial Ambitions Rattle a Weary World**\
 `A distant era of global politics, when nations scrambled to grab territory, suddenly seems less distant.`\
 https://nytimes.com/2025/01/08/world/asia/trump-greenland-panama.html
