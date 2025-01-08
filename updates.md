@@ -48,6 +48,11 @@ https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall
 `\
 https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
 
+**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
+`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
+`\
+https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
+
 **Day 3: For Healthy Snacks You Actually Crave, Try a Sprinkle of ‘Flavor Dust’**\
 `Today’s challenge includes recipes you can try.`\
 https://nytimes.com/2025/01/07/well/healthy-snack-recipes.html
