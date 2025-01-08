@@ -1,3 +1,15 @@
+**Thompson: Fading Warriors, defeated and desperate, need a trade in the worst way**\
+`This Warriors team isn't it. Everyone in the organization can feel it. Will they go out like this?`\
+https://nytimes.com/athletic/6047544/2025/01/08/golden-state-warriors-trade-deadline-struggles/
+
+**Wildfires intensify a pivotal moment for the insurance industry.**\
+`California’s vulnerable homeowners insurance industry faces a test as fires rage across Los Angeles.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/fire-insurance-california
+
+**Top Iranian General Admits ‘Big’ Defeat in Syria, Breaking With Other Leaders**\
+`For weeks, Iranian officials have downplayed the fall of their ally in Syria. But an important general has offered a remarkably candid view of the blow to Iran, and its military’s prospects.`\
+https://nytimes.com/2025/01/08/world/middleeast/iran-general-syria-defeat.html
+
 **The Perfect Housewarming Present for Trump’s Second Term**\
 `Trump may be inheriting ‘Morning in America’. Will Americans accept being happy?`\
 https://nytimes.com/2025/01/08/opinion/trump-trends.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/im-devas
 **Trump Blames California’s Governor, and His Water Policy, for Wildfires**\
 `In a social media post, Donald J. Trum`\
 https://nytimes.com/2025/01/08/us/trump-newsom-california-fires.html
-
-**Sam Altman’s Younger Sister Files Lawsuit Claiming He Sexually Abused Her**\
-`OpenAI’s chief executive and founder denies the allegations, which are similar to claims his sister has long made online.`\
-https://nytimes.com/2025/01/08/technology/sam-altman-sister-lawsuit.html
-
-**A lack of water has hindered firefighting efforts.**\
-`By Kate Selig and Emily Baumgaertner`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/a-lack-of-water-has-hindered-firefighting-efforts
-
-**Sportsbank enter exclusivity to invest in Textor's Eagle Football group**\
-`A sports investment group advised by the former Everton director and experienced football financier Keith Harris has entered a period of exclusivity to invest in John Textor’s Eagle Football Holdings company.`\
-https://nytimes.com/athletic/6047524/2025/01/08/crystal-palace-eagle-football-group-sportsbank/
 
