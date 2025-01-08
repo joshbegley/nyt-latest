@@ -1,3 +1,7 @@
+**Matt Seidler denies Padres relocation talk, responds to Sheel Seidler's lawsuit in letter**\
+`Matt Seidler addressed Sheel Seidler's claims of relocation, her case to be named control person of the Padres and more.`\
+https://nytimes.com/athletic/6045842/2025/01/07/padres-matt-seidler-letter-response-sheel-seidler-lawsuit/
+
 **Rangers' Filip Chytil injury concern, K'Andre Miller turnover, more: 4 takeaways vs. Stars**\
 `Chytil did not come out for the third period after sustaining an upper-body injury, according to the team.`\
 https://nytimes.com/athletic/6045975/2025/01/08/rangers-filip-chytil-injury-stars/
