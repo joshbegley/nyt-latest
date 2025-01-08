@@ -1,3 +1,15 @@
+**Yamal hoping to renew Barcelona contract: 'It is the club of my life'**\
+`Lamine Yamal is hoping to sign a long-term contract at Barcelona and believes the deal will be finalised &#8220;soon&#8221;.`\
+https://nytimes.com/athletic/6047213/2025/01/08/lamine-yamal-barcelona-contract-renews/
+
+**2024 fantasy football draft strategy lookback: Elite tight ends bust and heroRB vs. zeroRB**\
+`Looking back on popular draft strategies, Renee Miller reviews what worked and what didn't in 2024. `\
+https://nytimes.com/athletic/6046835/2025/01/08/nfl-fantasy-football-draft-strategy-lookback-2024/
+
+**Director of Netflix’s ‘Jerry Springer Show’ Documentary Offers 5 Takeaways**\
+`Luke Sewell spoke about the complex legacy of the notorious talk show, which both coarsened American culture and affirmed the values of free speech.`\
+https://nytimes.com/2025/01/08/arts/television/jerry-springer-netflix-documentary-5-takeaways.html
+
 **I’m Speaking at a Friend’s Funeral. Can I Tell a Story that Could be Wrong?**\
 `The magazine’s Ethicist columnist on the fallibility of memory.`\
 https://nytimes.com/2025/01/08/magazine/friend-funeral-story-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/mexico-president-mexican-america-trum
 **Israeli Strike in West Bank Kills 3, Including Children, Official Says**\
 `Violence has escalated in the occupied territory over the last year and a half, as Israel conducts raids targeting armed fighters with Hamas and Palestinian Islamic Jihad.`\
 https://nytimes.com/2025/01/08/world/middleeast/israel-strike-west-bank.html
-
-**Why ‘Show Boat’ Is America’s Most Enduring, Unstable Musical**\
-`A revival called “Show/Boat: A River” joins a history of reimagining the musical that goes back nearly a century, to its first performances.`\
-https://nytimes.com/2025/01/08/arts/music/show-boat-river-musical-revival.html
-
-**SAG Award Nominations 2025: ‘Wicked’ Casts a Strong Spell**\
-`The box office hit landed five nods, while “The Last Showgirl” received unexpected recognition for stars Pamela Anderson and Jamie Lee Curtis.`\
-https://nytimes.com/2025/01/08/movies/sag-award-nominations-list.html
-
-**Sharks midseason report cards: Top marks for Celebrini and Askarov, but who else?**\
-`There are reasons to be optimistic after the season's first half, but losing is still losing. Let's grade every Shark's performance so far.`\
-https://nytimes.com/athletic/6046300/2025/01/08/sharks-celebrini-askarov-nhl-2025-grades/
 
