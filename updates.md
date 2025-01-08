@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall
 `\
 https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
 
+**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
+`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
+`\
+https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
+
 **Biden Administration Moves to Halt Sept. 11 Plea Deal**\
 `Justice Department lawyers are defending the defense secretary’s decision to back out of the agreement that avoided a death penalty trial, moving the question from military to civilian courts.`\
 https://nytimes.com/2025/01/07/us/politics/sept-11-plea-deal.html
