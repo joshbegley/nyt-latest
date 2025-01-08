@@ -1,3 +1,11 @@
+**Wednesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/08/briefing/meta-fact-checking-trump.html
+
+**Tottenham vs Liverpool preview: Storylines, odds, prediction for Carabao Cup semi-final**\
+`Tottenham host Liverpool in the first leg of a Carabao Cup semi-final. The Reds are expected to advance from the tie.`\
+https://nytimes.com/athletic/6044937/2025/01/08/tottenham-liverpool-preview-odds-prediction-league-cup/
+
 **Quote of the Day: Syrians Rejoice in a Damascus Once Off Limits**\
 `Quotation of the Day for Wednesday, January 7, 2025.`\
 https://nytimes.com/2025/01/07/pageoneplus/quote-of-the-day-syrians-rejoice-in-a-damascus-once-off-limits.html
