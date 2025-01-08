@@ -1,3 +1,15 @@
+**Wildfires in California are spreading faster, scientists have found.**\
+`An analysis of 60,000 wildfires found that growth rates had increased over the decades in California and other parts of the West.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfire-speed
+
+**How Trump’s Greenland Plan Could Hit Ozempic, Legos and Hearing Aids**\
+`Putting tariffs on Denmark unless it cedes the island of Greenland could hurt access to a few key products, including popular medicines.`\
+https://nytimes.com/2025/01/08/us/politics/trump-greenland-denmark-ozempic.html
+
+**U.K. Special Forces Allowed to ‘Get Away with Murder’ in Afghanistan, Inquiry Told**\
+`Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
+https://nytimes.com/2025/01/08/world/europe/uk-afghanistan-war-crimes.html
+
 **U.K. Special Forces Allowed to ‘Get Away with Murder’ in Afghanistan, Inquiry Told**\
 `Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
 https://nytimes.com/2025/01/08/world/europe/uk-special-forces-allowed-to-get-away-with-murder-in-afghanistan-inquiry-told.html
