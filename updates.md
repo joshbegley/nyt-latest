@@ -1,3 +1,15 @@
+**The Athletic FC: How AI could transform football, Rashford in Milan talks**\
+`Today in TAFC: How AI could affect transfers and team selection, Rashford in talks with Milan and Cunha's glasses apology...`\
+https://nytimes.com/athletic/6046382/2025/01/08/ai-football-rashford-milan-talks/
+
+**The Pulse: Why is no one talking about this game?**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6044783/2025/01/08/cavaliers-thunder-finals-matchup-the-pulse/
+
+**Italian Journalist Released by Iran, Officials in Italy Say**\
+`Cecilia Sala, 29, who was detained last month while on a reporting trip, was on a plane home, the Italian government announced.`\
+https://nytimes.com/2025/01/08/world/europe/italy-iran-cecilia-sala-journalist-released.html
+
 **Thousands Face Mandatory Evacuations Across Los Angeles Area**\
 `Three fires prompted fire officials to issue a swath of evacuation orders and warnings for some of the city’s most heavily residential areas.`\
 https://nytimes.com/2025/01/08/us/california-fire-evacuation-orders.html

@@ -1,3 +1,11 @@
+**The Athletic FC: How AI could transform football, Rashford in Milan talks**\
+`Today in TAFC: How AI could affect transfers and team selection, Rashford in talks with Milan and Cunha's glasses apology...`\
+https://nytimes.com/athletic/6046382/2025/01/08/ai-football-rashford-milan-talks/
+
+**The Pulse: Why is no one talking about this game?**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6044783/2025/01/08/cavaliers-thunder-finals-matchup-the-pulse/
+
 **Thousands Face Mandatory Evacuations Across Los Angeles Area**\
 `Three fires prompted fire officials to issue a swath of evacuation orders and warnings for some of the city’s most heavily residential areas.`\
 https://nytimes.com/2025/01/08/us/california-fire-evacuation-orders.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/01/08/us/california-fire-evacuation-orders.html
 https://nytimes.com/athletic/6046375/2025/01/08/andy-pettitte-hall-of-fame-vote/
 
 **Italian Journalist Released by Iran, Officials in Italy Say**\
-`Cecilia Sala, 29, who was detained last month in Iran while on a reporting trip, was on a plane back to her home country, the Italian government announced.`\
+`Cecilia Sala, 29, who was detained last month while on a reporting trip, was on a plane home, the Italian government announced.`\
 https://nytimes.com/2025/01/08/world/europe/italy-iran-cecilia-sala-journalist-released.html
 
 **Several Local Landmarks Are Destroyed in Southern California Wildfires**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6045608/2025/01/08/maple-leafs-auston-matthews-joe-
 **'He's different': Inside the mind of Xavier McKinney, face of the Packers defense**\
 `The big free-agent signing's elite work ethic and attention to detail have made him an instant star and team leader in Green Bay.`\
 https://nytimes.com/athletic/6036769/2025/01/08/xavier-mckinney-packers-playoffs/
-
-**Tyreek Hill trade proposals: What could the Dolphins get if the star WR demands to be dealt?**\
-`Hypothetical trade offers from four receiver-needy teams.`\
-https://nytimes.com/athletic/6045793/2025/01/08/tyreek-hill-trade-offers-dolphins-patriots-cardinals-steelers-saints/
-
-**NHL trade board 3.0: Is a Canucks blockbuster coming to rock the market?**\
-`Seven new names enter our watch list, including two star-level players at the top of the board.`\
-https://nytimes.com/athletic/6009514/2025/01/08/nhl-trade-board-pettersson-miller/
 
