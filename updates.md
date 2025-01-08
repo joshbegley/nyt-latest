@@ -1,3 +1,11 @@
+**Celine Haidar, the Lebanon player struck by shrapnel, wakes from coma**\
+`Lebanese footballer Celine Haidar has woken from a coma nearly two months after the 19-year-old suffered a serious head injury during an Israeli airstrike on Beirut.`\
+https://nytimes.com/athletic/6047110/2025/01/08/celine-haidar-lebanon-football-awake/
+
+**51st State? Canadians Say No Thanks.**\
+`Canadians react to Donald Trump’s proposal. Also: Trump on the Panama Canal and Greenland; Trump and TikTok; Meta and fact-checking; a messy home.`\
+https://nytimes.com/2025/01/08/opinion/canada-51st-state-trump.html
+
 **USWNT Futures Camp provides a glimpse into Emma Hayes' long-term strategy**\
 `Plus, three key players to watch`\
 https://nytimes.com/athletic/6047288/2025/01/08/uswnt-futures-camp-emma-hayes-soccer/
