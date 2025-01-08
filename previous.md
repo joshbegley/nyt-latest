@@ -1,3 +1,15 @@
+**The anatomy of a gutsy, 164-second shift that defines the Wild's special season**\
+`"It's fun to be playing those situations when it's on the line," Jonas Brodin said. "That's what you dream about when you're a kid."`\
+https://nytimes.com/athletic/6046107/2025/01/08/wild-blues-marcus-johansson-empty-netter/
+
+**'You've got to find a way': 5 things to watch in second half of Blues' season**\
+`The Blues opened the second half of their 2024-25 season with a loss to the Minnesota Wild. `\
+https://nytimes.com/athletic/6045548/2025/01/08/blues-lose-wild-second-half-season/
+
+**Wildfire Burns Quickly in Southern California**\
+`Fierce winds whipped up flames that destroyed homes in Los Angeles and forced the evacuation of residents in Santa Monica and the Pacific Palisades.`\
+https://nytimes.com/video/us/100000009913949/palisades-brush-fires-california.html
+
 **Wildfires Can Harm Your Health, Even if You’re Far Away, Experts Say**\
 `Some studies have indicated that young children, especially those under the age of 4, are at particular risk because their lungs are still developing.`\
 https://nytimes.com/2025/01/08/us/smoke-air-quality-palisades-wildfire.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6045985/2025/01/08/penguins-blue-jackets-evgeni-mal
 **Liverpool must start planning for a future without Robertson**\
 `The Scot has been a superb servant at Anfield but the evidence is mounting that he is in decline`\
 https://nytimes.com/athletic/6044204/2025/01/08/liverpool-andy-robertson-future/
-
-**Oilers dominate in Boston, avoid injury scares: 5 takeaways vs. Bruins**\
-`It wasn't just one Oilers player but two who got hurt on the same sequence late in the first period.`\
-https://nytimes.com/athletic/6046013/2025/01/08/oilers-mattias-janmark-stuart-skinner-injury/
-
-**Narrow Hillside Roads Complicate Escape From Palisades Fire**\
-`Pacific Palisades feels like paradise on most days, but evacuating it in a disaster can be a real challenge.`\
-https://nytimes.com/2025/01/08/us/pacific-palisades-escape-routes-wildfire.html
-
-**Manchester City squad audit: Who should stay and who should go?**\
-`Sam Lee runs through the current crop of Manchester City players ahead of what should be a busy year in the transfer market`\
-https://nytimes.com/athletic/6043982/2025/01/08/manchester-city-squad-audit-2025/
 

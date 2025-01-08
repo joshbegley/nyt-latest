@@ -1,3 +1,15 @@
+**The anatomy of a gutsy, 164-second shift that defines the Wild's special season**\
+`"It's fun to be playing those situations when it's on the line," Jonas Brodin said. "That's what you dream about when you're a kid."`\
+https://nytimes.com/athletic/6046107/2025/01/08/wild-blues-marcus-johansson-empty-netter/
+
+**'You've got to find a way': 5 things to watch in second half of Blues' season**\
+`The Blues opened the second half of their 2024-25 season with a loss to the Minnesota Wild. `\
+https://nytimes.com/athletic/6045548/2025/01/08/blues-lose-wild-second-half-season/
+
+**Wildfire Burns Quickly in Southern California**\
+`Fierce winds whipped up flames that destroyed homes in Los Angeles and forced the evacuation of residents in Santa Monica and the Pacific Palisades.`\
+https://nytimes.com/video/us/100000009913949/palisades-brush-fires-california.html
+
 **Wildfires Can Harm Your Health, Even if You’re Far Away, Experts Say**\
 `Some studies have indicated that young children, especially those under the age of 4, are at particular risk because their lungs are still developing.`\
 https://nytimes.com/2025/01/08/us/smoke-air-quality-palisades-wildfire.html
