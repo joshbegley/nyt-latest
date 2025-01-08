@@ -1,3 +1,19 @@
+**How Bodyguards Are Keeping South Korea’s Leader From Detention**\
+`President Yoon Suk Yeol’s security service stopped an effort to detain him on insurrection charges and has vowed to do so again. Its roots are in the era of military dictatorships.`\
+https://nytimes.com/2025/01/08/world/asia/south-korea-yoon-bodyguards.html
+
+**Healthy Eating Habits**\
+`How healthy is your diet? What can you do in 2025 to improve it?`\
+https://nytimes.com/2025/01/08/learning/healthy-eating-habits.html
+
+**A Security Guard, a Lucky Break and a Sculpture Called ‘Hope’**\
+`How a lucky break led to the dream of a lifetime for a sculptor from Egypt.`\
+https://nytimes.com/2025/01/08/nyregion/egyptian-artist-metropolitan-museum-exhibit.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/08/crosswords/spelling-bee-forum.html
+
 **What We Know About the Wildfires Raging in Southern California**\
 `The fast-moving fires are intensifying because of fierce winds, the strongest in Southern California in more than a decade.`\
 https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html

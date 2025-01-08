@@ -1,3 +1,19 @@
+**How Bodyguards Are Keeping South Korea’s Leader From Detention**\
+`President Yoon Suk Yeol’s security service stopped an effort to detain him on insurrection charges and has vowed to do so again. Its roots are in the era of military dictatorships.`\
+https://nytimes.com/2025/01/08/world/asia/south-korea-yoon-bodyguards.html
+
+**Healthy Eating Habits**\
+`How healthy is your diet? What can you do in 2025 to improve it?`\
+https://nytimes.com/2025/01/08/learning/healthy-eating-habits.html
+
+**A Security Guard, a Lucky Break and a Sculpture Called ‘Hope’**\
+`How a lucky break led to the dream of a lifetime for a sculptor from Egypt.`\
+https://nytimes.com/2025/01/08/nyregion/egyptian-artist-metropolitan-museum-exhibit.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/08/crosswords/spelling-bee-forum.html
+
 **What We Know About the Wildfires Raging in Southern California**\
 `The fast-moving fires are intensifying because of fierce winds, the strongest in Southern California in more than a decade.`\
 https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6045457/2025/01/08/newcastle-united-north-london-ca
 **Anatomy of a gutsy, 164-second shift that defines the Wild's special season**\
 `"It's fun to be playing those situations when it's on the line," Jonas Brodin said. "That's what you dream about when you're a kid."`\
 https://nytimes.com/athletic/6046107/2025/01/08/wild-blues-marcus-johansson-empty-netter/
-
-**'You've got to find a way': 5 things to watch in second half of Blues' season**\
-`The Blues opened the second half of their 2024-25 season with a loss to the Minnesota Wild. `\
-https://nytimes.com/athletic/6045548/2025/01/08/blues-lose-wild-second-half-season/
-
-**Wildfire Burns Quickly in Southern California**\
-`Fierce winds whipped up flames that destroyed homes in Los Angeles and forced the evacuation of residents in areas including Santa Monica and the Pacific Palisades.`\
-https://nytimes.com/video/us/100000009913949/palisades-brush-fires-california.html
-
-**Wildfires Can Harm Your Health, Even if You’re Far Away, Experts Say**\
-`Some studies have indicated that young children, especially those under the age of 4, are at particular risk because their lungs are still developing.`\
-https://nytimes.com/2025/01/08/us/smoke-air-quality-palisades-wildfire.html
-
-**Maps: Tracking the Los Angeles Wildfires**\
-`Fires driven by fierce winds scorched parts of the Los Angeles area, destroying homes and choking the sky with smoke.`\
-https://nytimes.com/interactive/2025/01/08/weather/los-angeles-fire-maps-california.html
 
