@@ -1,3 +1,7 @@
+**West Ham and Lopetegui's week on the brink: Three training sessions, Fonseca talks, Potter hold-up**\
+`West Ham and head coach Julen Lopetegui spent the past few days edging towards an inevitable exit, just eight months after his appointment`\
+https://nytimes.com/athletic/6044388/2025/01/08/west-ham-julen-lopetegui-final-week/
+
 **Wildfires and strong winds prompt road closures across Los Angeles County.**\
 `The closures included a section of the storied Pacific Coast Highway that runs through Pacific Palisades, the site of the largest fire.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfires-los-angeles-road-closures
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/sag-awar
 **Kawhi Leonard exclusive: Clippers’ star opens up about his NBA return**\
 `"We played five preseason games. Now, I'm looking at this as my preseason," Leonard said in an exclusive interview with The Athletic.`\
 https://nytimes.com/athletic/6044693/2025/01/08/kawhi-leonard-clippers-nba-exclusive/
-
-**It Was Dark, Freezing and 4 a.m. Still, They Came to See Jimmy Carter.**\
-`It was a once-in-a-lifetime chance to pay their respects to a president. They were not going to miss it, even if meant waking up in the middle of the night.`\
-https://nytimes.com/2025/01/08/us/jimmy-carter-carter-center-atlanta.html
 
