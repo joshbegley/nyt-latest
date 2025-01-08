@@ -1,3 +1,7 @@
+**Bears interviewing Iowa State's Campbell, complete interview with Vrabel**\
+`Chicago also said Wednesday it completed an interview with former Tennessee Titans head coach Mike Vrabel.`\
+https://nytimes.com/athletic/6048262/2025/01/08/bears-iowa-state-matt-campbell-head-coach-interview/
+
 **49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
 `Show him the money? Shanahan had a strong quote about Brock Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
 https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
