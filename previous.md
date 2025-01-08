@@ -10,7 +10,7 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfire
 `Putting tariffs on Denmark unless it cedes the island of Greenland could hurt access to a few key products, including popular medicines.`\
 https://nytimes.com/2025/01/08/us/politics/trump-greenland-denmark-ozempic.html
 
-**U.K. Special Forces Allowed to ‘Get Away with Murder’ in Afghanistan, Inquiry Told**\
+**U.K. Special Forces Allowed to ‘Get Away With Murder’ in Afghanistan, Inquiry Told**\
 `Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
 https://nytimes.com/2025/01/08/world/europe/uk-afghanistan-war-crimes.html
 

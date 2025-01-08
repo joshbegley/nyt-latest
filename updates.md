@@ -1,3 +1,7 @@
+**U.K. Special Forces Allowed to ‘Get Away With Murder’ in Afghanistan, Inquiry Told**\
+`Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
+https://nytimes.com/2025/01/08/world/europe/uk-afghanistan-war-crimes.html
+
 **The Bounce: A big winning streak ends tonight!**\
 `Zach Harper catches you up on league-wide news. `\
 https://nytimes.com/athletic/6047318/2025/01/08/cavs-thunder-winning-streak-the-bounce/
