@@ -1,3 +1,11 @@
+**Cotton Bowl weather: Will the winter storm impact Texas vs. Ohio State?**\
+`The National Weather Service placed the Dallas-Fort Worth area under a winter storm warning for Thursday and Friday.`\
+https://nytimes.com/athletic/6046818/2025/01/08/ohio-state-texas-cotton-bowl-weather/
+
+**‘Make Greenland Great Again’? Not Like That, Greenlanders Say.**\
+`After Donald Trump suggested he might take over Greenland by force, the consensus among the island’s population appears to be bewilderment and anxiety.`\
+https://nytimes.com/2025/01/08/world/asia/greenland-trump-denmark.html
+
 **As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
 `Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own.`\
 https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/arts/design/artists-tried-to-activate-voters-with
 **In Death, Jean-Marie Le Pen of France is Embraced by Far-Right Party He Once Led**\
 `For years, the far-right National Rally tried to distance itself from Mr. Le Pen’s racist and antisemitic remarks. But after his death Tuesday, it hailed him as a visionary.`\
 https://nytimes.com/2025/01/08/world/europe/france-le-pen-death-national-rally.html
-
-**Trump’s Threat About Hostages Frustrates Gazans: ‘It Is Already Hell’**\
-`President-elect Donald J. Trump said “all hell will break out in the Middle East” if hostages captured in the Hamas-led attacks were not freed before he takes office.`\
-https://nytimes.com/2025/01/08/world/middleeast/trump-hostages-gaza-israel.html
-
-**Eaton Fire Erupts in Intensity Amid High Winds**\
-`The blaze more than doubled in size within hours. It is one of multiple wildfires raging out of control near Los Angeles.`\
-https://nytimes.com/2025/01/08/us/eaton-fire-pasadena-california.html
 
