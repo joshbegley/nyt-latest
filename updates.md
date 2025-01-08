@@ -1,3 +1,11 @@
+**No. 8 Florida routs No. 1 Tennessee, last unbeaten team in college hoops**\
+`It's the first time the No. 1 team has lost by 30 or more since UCLA crushed Houston 101-69 in 1968.`\
+https://nytimes.com/athletic/6045791/2025/01/07/florida-tennessee-basketball-result/
+
+**Dripping Faucets and Seizing Greenland: Trump Is Back and Chaos Ensues**\
+`President-elect Donald J. Trump’s news conference at Mar-a-Lago was a reminder of what the next four years may have in store.`\
+https://nytimes.com/2025/01/07/us/politics/panama-greenland-trump-media.html
+
 **Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
 `Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
 `\
