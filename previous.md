@@ -1,3 +1,27 @@
+**What went wrong with the Raiders and Antonio Pierce: A bad staff, QB problems and an unhappy WR**\
+`From Luke Getsy's struggles to Gardner Minshew's play and Davante Adams' behavior, Pierce had little chance to succeed in Las Vegas.`\
+https://nytimes.com/athletic/6045601/2025/01/08/raiders-fire-coach-antonio-pierce-mark-davis/
+
+**GM Adam Peters does things 'the right way,' and his Commanders are reaping the benefits**\
+`The GM has a clear understanding of what's he's building in Washington, and the team has exceeded expectations in his first year on the job.`\
+https://nytimes.com/athletic/6045538/2025/01/08/commanders-adam-peters-dan-quinn-playoffs/
+
+**The best moments of the NFL season, from Saquon’s hurdle to Commanders' Hail Mary**\
+`After 272 games, the NFL's regular season is officially in the books. We celebrate the coolest plays and most compelling on-field moments.`\
+https://nytimes.com/athletic/6041814/2025/01/08/nfl-best-moments-plays-2024/
+
+**Lowetide: How the Oilers compare to Canada's other Stanley Cup contenders**\
+`There are no less than three Canadian teams poised to make a run at the Stanley Cup this spring.`\
+https://nytimes.com/athletic/6044622/2025/01/08/edmonton-oilers-stanley-cup-toronto-winnipeg/
+
+**Twins top 40 prospects for 2025, led by Walker Jenkins and Emmanuel Rodriguez**\
+`With two elite hitting prospects and strong pitching depth, this is as well-stocked as the Twins' farm system has looked in a decade.`\
+https://nytimes.com/athletic/6006791/2025/01/08/minnesota-twins-top-prospects-walker-jenkins-emmanuel-rodriguez/
+
+**Jared Goff solves the blitz, Joe Milton has his moment, more Week 18 thoughts: Quick Outs**\
+`Goff wasn't perfect, but he did plenty against Brian Flores' defense. Plus, how did the Panthers' run defense get this bad?`\
+https://nytimes.com/athletic/6044925/2025/01/08/nfl-week-recap-18-jared-goff-panthers/
+
 **How Many Fires Are Burning in Southern California?**\
 `At least three major fires were burning in the Los Angeles area on Wednesday morning, destroying homes and forcing thousands to evacuate.`\
 https://nytimes.com/2025/01/08/us/palisades-eaton-hurst-fire-california.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6046382/2025/01/08/ai-football-rashford-milan-talks
 **The Pulse: Why is no one talking about this game?**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6044783/2025/01/08/cavaliers-thunder-finals-matchup-the-pulse/
-
-**Thousands Face Mandatory Evacuations Across Los Angeles Area**\
-`Three fires prompted fire officials to issue a swath of evacuation orders and warnings for some of the city’s most heavily residential areas.`\
-https://nytimes.com/2025/01/08/us/california-fire-evacuation-orders.html
-
-**Stark: Why I voted for Andy Pettitte for the Hall of Fame for the first time**\
-`I wound up spending more hours on the fascinating case of Andy Pettitte than I did on anyone else on the ballot. Here's why he got my vote.`\
-https://nytimes.com/athletic/6046375/2025/01/08/andy-pettitte-hall-of-fame-vote/
-
-**Italian Journalist Released by Iran, Officials in Italy Say**\
-`Cecilia Sala, 29, who was detained last month while on a reporting trip, was on a plane home, the Italian government announced.`\
-https://nytimes.com/2025/01/08/world/europe/italy-iran-cecilia-sala-journalist-released.html
-
-**Several Local Landmarks Are Destroyed in Southern California Wildfires**\
-`A synagogue, a high school that served as alma mater for many celebrities, and well-known local restaurants are among the structures that have been destroyed.`\
-https://nytimes.com/2025/01/08/us/california-fires-landmarks-pasadena-palisades-malibu.html
-
-**How Bears GM Ryan Poles can pitch Caleb Williams, roster to coaching candidates**\
-`What does Poles have to offer prospective head coaches when talking about the current roster? Takeaways from his comments.`\
-https://nytimes.com/athletic/6045367/2025/01/08/bears-coaching-search-ryan-poles-caleb-williams/
-
-**Who are top NFL Draft prospects in CFP semis? Which players have most to gain?**\
-`There will be dozens of future NFL players on the field during the College Football Playoff semifinals. `\
-https://nytimes.com/athletic/6044037/2025/01/08/nfl-draft-2025-college-football-playoffs-scouting/
 
