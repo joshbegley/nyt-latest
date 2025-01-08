@@ -1,3 +1,7 @@
+**Eagles QB Jalen Hurts to return to practice Wednesday**\
+`Hurts hasn't played or practiced since entering the NFL's concussion protocol in a Week 16 loss to the Washington Commanders`\
+https://nytimes.com/athletic/6047369/2025/01/08/jalen-hurts-practice-concussion-wild-card/
+
 **Fires and school closures can affect the well-being of children.**\
 `By Troy Closson`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/fires-and-school-closures-can-affect-the-well-being-of-children
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047318/2025/01/08/cavs-thunder-winning-streak-the-
 **Wildfires in California are spreading faster, scientists have found.**\
 `An analysis of 60,000 wildfires found that growth rates had increased over the decades in California and other parts of the West.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfire-speed
-
-**How Trump’s Greenland Plan Could Hit Ozempic, Legos and Hearing Aids**\
-`Putting tariffs on Denmark unless it cedes the island of Greenland could hurt access to a few key products, including popular medicines.`\
-https://nytimes.com/2025/01/08/us/politics/trump-greenland-denmark-ozempic.html
 
