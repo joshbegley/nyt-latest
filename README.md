@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6045985/2025/01/08/penguins-blue-jackets-evgeni-mal
 https://nytimes.com/athletic/6044204/2025/01/08/liverpool-andy-robertson-future/
 
 **Oilers dominate in Boston, avoid injury scares: 5 takeaways vs. Bruins**\
-`It wasn’t just one Oilers player but rather two who got hurt on the same sequence late in the first period.`\
+`It wasn't just one Oilers player but two who got hurt on the same sequence late in the first period.`\
 https://nytimes.com/athletic/6046013/2025/01/08/oilers-mattias-janmark-stuart-skinner-injury/
 
 **Narrow Hillside Roads Complicate Escape From Palisades Fire**\
