@@ -1,3 +1,7 @@
+**Scoop City: 2024 NFL statistical leaders across the board**\
+`Who led the NFL in the major statistical categories? The full list might surprise you.`\
+https://nytimes.com/athletic/6047342/2025/01/08/nfl-statistical-leaders-2024-fantasy-football-scoop-city/
+
 **Man City working on deals to sign Marmoush, Khusanov in January**\
 `Manchester City are working on deals to sign Omar Marmoush and Abdukodir Khusanov this month.`\
 https://nytimes.com/athletic/6034184/2025/01/08/man-city-transfers-marmoush-khusanov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047193/2025/01/08/mick-cronin-ucla-loss-michigan/
 **Prime Tire: Why Spa won't be F1's last rotating race**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6047181/2025/01/08/spa-f1-calendar-prime-tire/
-
-**Yamal hoping to renew Barcelona contract: 'It is the club of my life'**\
-`Lamine Yamal is hoping to sign a long-term contract at Barcelona and believes the deal will be finalised &#8220;soon&#8221;.`\
-https://nytimes.com/athletic/6047213/2025/01/08/lamine-yamal-barcelona-contract-renews/
 
