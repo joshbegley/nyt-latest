@@ -1,3 +1,15 @@
+**Hollinger: 10 older (and overseas) prospects worth watching ahead of 2025 draft**\
+`The toughest part of their seasons are ahead, but these experienced players have a good chance to rise on draft boards.`\
+https://nytimes.com/athletic/6043554/2025/01/08/nba-draft-2025-prospects-johni-broome-kam-jones/
+
+**Inside Brian Flores and Ryan Grigson's Vikings bromance: 'They've helped set a standard'**\
+`They were both fired from NFL jobs in part because of abrasive personalities. Has their time in Minnesota prepared them for another shot?`\
+https://nytimes.com/athletic/6039218/2025/01/08/vikings-defensive-coordinator-brian-flores-ryan-grigson/
+
+**The fiery pregame speeches fueling Notre Dame's College Football Playoff run**\
+`A preseason benching didn't stop Coogan — who's back starting at center — from becoming the emotional leader of Notre Dame. `\
+https://nytimes.com/athletic/6045371/2025/01/08/pat-coogan-notre-dame-playoff-speeches/
+
 **Here’s the latest on the fires.**\
 `By Yan Zhuang, Corina Knoll and Soumya Karlamangla`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/heres-the-latest-on-the-fires
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/08/world/americas/trump-panama-canal.html
 **‘Trump Is at His Absolute Worst in a Crisis’: Three Columnists Imagine the World Ahead**\
 `What are the biggest challenges and opportunities facing Trump and his team in foreign policy and national security?`\
 https://nytimes.com/2025/01/08/opinion/donald-trump-second-term-israel-ukraine.html
-
-**Watch Timothée Chalamet Perform in ‘A Complete Unknown’**\
-`The director James Mangold narrates a sequence from his biopic.`\
-https://nytimes.com/2025/01/08/movies/timothee-chalamet-a-complete-unknown-clip.html
-
-**Trump’s Lawyers Have Assailed Jack Smith. They Could Soon Have Power to Go After Him.**\
-`The president-elect’s defense lawyers accused the special counsel of unethical and improper behavior in his prosecutions of their client. They could be in senior Justice Department roles within weeks.`\
-https://nytimes.com/2025/01/08/us/politics/trumps-lawyers-jack-smith-justice-department.html
-
-**New Warnings About Alcohol Hit Restaurants at a Tricky Time**\
-`The surgeon general’s call to arms about the link between drinking and cancer could strike at a fiscal lifeline for restaurateurs facing falling sales.`\
-https://nytimes.com/2025/01/08/dining/drinks/restaurants-alcohol-surgeon-general-warning.html
 
