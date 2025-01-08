@@ -1,3 +1,7 @@
+**Why ‘Show Boat’ Is America’s Most Enduring, Unstable Musical**\
+`A revival called “Show/Boat: A River” joins a history of reimagining the musical that goes back nearly a century, to its first performances.`\
+https://nytimes.com/2025/01/08/arts/music/show-boat-river-musical-revival.html
+
 **SAG Award Nominations 2025: ‘Wicked’ Casts a Strong Spell**\
 `The box office hit landed five nods, while “The Last Showgirl” received unexpected recognition for stars Pamela Anderson and Jamie Lee Curtis.`\
 https://nytimes.com/2025/01/08/movies/sag-award-nominations-list.html
