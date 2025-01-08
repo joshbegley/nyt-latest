@@ -1,3 +1,11 @@
+**Wildfires Can Harm Your Health, Even if You’re Far Away, Experts Say**\
+`Some studies have indicated that young children, especially those under the age of 4, are at particular risk because their lungs are still developing.`\
+https://nytimes.com/2025/01/08/us/smoke-air-quality-palisades-wildfire.html
+
+**Maps: Tracking the Los Angeles Wildfires**\
+`Fires driven by fierce winds scorched parts of the Los Angeles area, destroying homes and choking the sky with smoke.`\
+https://nytimes.com/interactive/2025/01/08/weather/los-angeles-fire-maps-california.html
+
 **Justin Trudeau Was His Own Worst Enemy**\
 `Justin Trudeau came to power with a new kind of politics — progressive and identity-based. In the end, it proved his undoing.`\
 https://nytimes.com/2025/01/08/opinion/justin-trudeau-canada-progressive.html
