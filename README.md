@@ -1,3 +1,15 @@
+**49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
+`Show him the money? Shanahan had a strong quote about Brock Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
+https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
+
+**Animal Shelters Are Stretched Thin With Displaced Pets**\
+`Some owners fled with their pets, but a network of facilities in the Los Angeles area is straining to care for the hundreds of animals left behind.`\
+https://nytimes.com/2025/01/08/us/california-fires-pets-animals.html
+
+**Multiple Wildfires Rage Around Los Angeles**\
+`The fires have consumed thousands of acres and have displaced more than 100,000 people.`\
+https://nytimes.com/video/us/100000009915899/california-la-wildfires.html
+
 **Spurs impressed in adversity after worrying Bentancur head injury - Postecoglou**\
 `Ange Postecoglou praised Tottenham Hotspur&#8217;s players reaction to the &#8220;adversity&#8221; of a worrying injury to their team-mate Rodrigo Bentancur.`\
 https://nytimes.com/athletic/6048224/2025/01/08/rodrigo-bentancur-injury-update-tottenham/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/08/us/trump-news/the-health-secretary-strongly-
 **A Fashion Reporter Considers the Ways Trends Trickle Down**\
 `Jacob Gallagher, who covers men’s style for The Times, writes about teddy bear jeans, papal robes and all the fashion moments in between.`\
 https://nytimes.com/2025/01/08/insider/jacob-gallagher-new-york-times.html
-
-**President Biden Becomes a Great-Grandfather**\
-`Mr. Biden said his eldest granddaughter, Naomi, gave birth to a baby boy in California.`\
-https://nytimes.com/2025/01/08/us/president-biden-becomes-a-great-grandfather.html
-
-**Will Jordan Love play vs. Eagles? Packers QB 'hopeful' as he deals with elbow soreness**\
-`Love suffered the injury early in last Sunday's game against the Bears and was limited in Wednesday's practice.`\
-https://nytimes.com/athletic/6048073/2025/01/08/jordan-love-packers-playoffs-eagles/
-
-**Carole Wilbourn, Who Put Cats on the Couch, Dies at 84**\
-`When cats bite or scratch, they’re trying to tell you something. Wilbourn, a cat therapist, was a pioneer in the art of listening to them.`\
-https://nytimes.com/2025/01/08/style/carole-wilbourn-dead.html
 
