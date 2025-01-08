@@ -1,3 +1,7 @@
+**Celtics, Kristaps Porziņģis still learning how to bring out the best in each other**\
+`Since the big man returned to the lineup, Boston has been inconsistent. Porziņģis's performance against Denver on Tuesday was encouraging. `\
+https://nytimes.com/athletic/6046331/2025/01/08/celtics-kristaps-porzingis-nba-denver/
+
 **Ukraine Strikes Oil Depot Near Russian Air Base, Ukrainian Military Says**\
 `The attack was the latest effort to inflict pain on Russia even as Kyiv is losing ground on the battlefield at home.`\
 https://nytimes.com/2025/01/08/world/europe/ukraine-russia-oil-depot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044925/2025/01/08/nfl-week-recap-18-jared-goff-pan
 **How Many Fires Are Burning in Southern California?**\
 `At least three major fires were burning in the Los Angeles area on Wednesday morning, destroying homes and forcing thousands to evacuate.`\
 https://nytimes.com/2025/01/08/us/palisades-eaton-hurst-fire-california.html
-
-**Wildfires in Southern California**\
-`We cover the latest on the fast-moving fires.`\
-https://nytimes.com/2025/01/08/briefing/southern-california-wildfires.html
 

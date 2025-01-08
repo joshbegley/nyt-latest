@@ -1,3 +1,7 @@
+**Celtics, Kristaps Porziņģis still learning how to bring out the best in each other**\
+`Since the big man returned to the lineup, Boston has been inconsistent. Porziņģis's performance against Denver on Tuesday was encouraging. `\
+https://nytimes.com/athletic/6046331/2025/01/08/celtics-kristaps-porzingis-nba-denver/
+
 **Ukraine Strikes Oil Depot Near Russian Air Base, Ukrainian Military Says**\
 `The attack was the latest effort to inflict pain on Russia even as Kyiv is losing ground on the battlefield at home.`\
 https://nytimes.com/2025/01/08/world/europe/ukraine-russia-oil-depot.html
