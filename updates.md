@@ -1,3 +1,7 @@
+**Flyers special teams come up small in another loss to Maple Leafs**\
+`The Flyers' perpetually awful power play and declining penalty kill were mostly to blame in Tuesday's loss to the Maple Leafs.`\
+https://nytimes.com/athletic/6046095/2025/01/08/flyers-lose-maple-leafs-special-teams-short/
+
 **Yohe's 10 observations: Penguins lose control, suffer damaging loss to Blue Jackets**\
 `The Penguins blew another two-goal lead and fell 4-3 to Columbus in shootout.`\
 https://nytimes.com/athletic/6045985/2025/01/08/penguins-blue-jackets-evgeni-malkin-injury/

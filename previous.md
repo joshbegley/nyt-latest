@@ -1,3 +1,7 @@
+**Flyers special teams come up small in another loss to Maple Leafs**\
+`The Flyers' perpetually awful power play and declining penalty kill were mostly to blame in Tuesday's loss to the Maple Leafs.`\
+https://nytimes.com/athletic/6046095/2025/01/08/flyers-lose-maple-leafs-special-teams-short/
+
 **Yohe's 10 observations: Penguins lose control, suffer damaging loss to Blue Jackets**\
 `The Penguins blew another two-goal lead and fell 4-3 to Columbus in shootout.`\
 https://nytimes.com/athletic/6045985/2025/01/08/penguins-blue-jackets-evgeni-malkin-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6043980/2025/01/08/chelsea-wesley-fofana-injury-ana
 **Facundo Buonanotte is not the only Brighton loanee to endure a change of manager**\
 `The 20-year-old Argentinian is not thriving to the same extent since Ruud van Nistelrooy replaced the sacked Steve Cooper last month`\
 https://nytimes.com/athletic/6041117/2025/01/08/brighton-loanee-manager-changes/
-
-**Musiala, Kimmich and Kompany: Why the months ahead will shape Bayern Munich's long-term future**\
-`The Bundesliga resumes this weekend and the league leaders have contract situations to resolve, as well as a title to reclaim`\
-https://nytimes.com/athletic/6043747/2025/01/08/bayern-munich-musiala-kimmich-kompany-bundesliga/
 
