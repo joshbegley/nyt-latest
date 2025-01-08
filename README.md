@@ -1,3 +1,19 @@
+**Please Don’t Eat Your Christmas Tree, Belgium Urges the Public**\
+`The country’s food agency warned against using evergreens in food after the city of Ghent suggested an unusual form of recycling: spruce needle butter.`\
+https://nytimes.com/2025/01/08/world/europe/belgium-christmas-tree-eating.html
+
+**SAG Award nomination event canceled as more actors flee their homes.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/sag-award-nomination-event-canceled-as-more-actors-flee-their-homes
+
+**Kawhi Leonard exclusive: Clippers’ star opens up about his NBA return**\
+`"We played five preseason games. Now, I'm looking at this as my preseason," Leonard said in an exclusive interview with The Athletic.`\
+https://nytimes.com/athletic/6044693/2025/01/08/kawhi-leonard-clippers-nba-exclusive/
+
+**It Was Dark, Freezing and 4 a.m. Still, They Came to See Jimmy Carter.**\
+`It was a once-in-a-lifetime chance to pay their respects to a president. They were not going to miss it, even if meant waking up in the middle of the night.`\
+https://nytimes.com/2025/01/08/us/jimmy-carter-carter-center-atlanta.html
+
 **West Ham agree deal to hire Potter as new head coach**\
 `West Ham United have agreed a deal to appoint Graham Potter as their new head coach on a two-and-a-half-year deal.`\
 https://nytimes.com/athletic/5968828/2025/01/08/graham-potter-west-ham-next-manager/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/matt-gaetz-florida-governor.html
 **For Him, the Beer in Your Hand Is the End of the Story**\
 `Joshua M. Bernstein was writing about bars and nightlife when the craft brew wave start to rise.`\
 https://nytimes.com/2025/01/08/insider/craft-beer.html
-
-**Abdul Carter will be a 'game-time decision' while Jeremiyah Love is 'good to go' for Orange Bowl**\
-`Marcus Freeman and James Franklin provided one final injury update ahead of Thursday night’s College Football Playoff semifinal.`\
-https://nytimes.com/athletic/6046948/2025/01/08/jeremiyah-love-abdul-carter-injury-orange-bowl/
-
-**Cotton Bowl weather: Will the winter storm impact Texas vs. Ohio State?**\
-`The National Weather Service placed the Dallas-Fort Worth area under a winter storm warning for Thursday and Friday.`\
-https://nytimes.com/athletic/6046818/2025/01/08/ohio-state-texas-cotton-bowl-weather/
-
-**‘Make Greenland Great Again’? Not Like That, Greenlanders Say.**\
-`After Donald Trump suggested he might take over Greenland by force, the consensus among the island’s population appears to be bewilderment and anxiety.`\
-https://nytimes.com/2025/01/08/world/asia/greenland-trump-denmark.html
-
-**As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
-`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own — and that he is willing to silence them on X.`\
-https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
 
