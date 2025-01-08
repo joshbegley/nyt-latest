@@ -1,3 +1,7 @@
+**Prime Tire: Why Spa won't be F1's last rotating race**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6047181/2025/01/08/spa-f1-calendar-prime-tire/
+
 **Yamal hoping to renew Barcelona contract: 'It is the club of my life'**\
 `Lamine Yamal is hoping to sign a long-term contract at Barcelona and believes the deal will be finalised &#8220;soon&#8221;.`\
 https://nytimes.com/athletic/6047213/2025/01/08/lamine-yamal-barcelona-contract-renews/

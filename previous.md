@@ -1,3 +1,7 @@
+**Prime Tire: Why Spa won't be F1's last rotating race**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6047181/2025/01/08/spa-f1-calendar-prime-tire/
+
 **Yamal hoping to renew Barcelona contract: 'It is the club of my life'**\
 `Lamine Yamal is hoping to sign a long-term contract at Barcelona and believes the deal will be finalised &#8220;soon&#8221;.`\
 https://nytimes.com/athletic/6047213/2025/01/08/lamine-yamal-barcelona-contract-renews/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/business/economy/ports-longshoremen-contract-talk
 **Poking Fun at Trump, Mexico’s President Suggests Renaming the U.S.**\
 `President Claudia Sheinbaum of Mexico also said Donald Trump was ill-informed when he said Mexico was “essentially run by the cartels.”`\
 https://nytimes.com/2025/01/08/us/politics/mexico-president-mexican-america-trump.html
-
-**Israeli Strike in West Bank Kills 3, Including Children, Official Says**\
-`Violence has escalated in the occupied territory over the last year and a half, as Israel conducts raids targeting armed fighters with Hamas and Palestinian Islamic Jihad.`\
-https://nytimes.com/2025/01/08/world/middleeast/israel-strike-west-bank.html
 
