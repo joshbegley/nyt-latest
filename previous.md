@@ -1,3 +1,7 @@
+**Word of the Day: actuarial**\
+`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/08/learning/word-of-the-day-actuarial.html
+
 **North London belongs to Newcastle and now Wembley glitters in the distance**\
 `Newcastle United overcame Arsenal in the first-leg of their Carabao Cup semi-final on Tuesday night`\
 https://nytimes.com/athletic/6045457/2025/01/08/newcastle-united-north-london-carabao-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/world/asia/tibet-quake-survivors-cold.html
 **Flyers special teams come up small in another loss to Maple Leafs**\
 `The Flyers' perpetually awful power play and declining penalty kill were mostly to blame in Tuesday's loss to the Maple Leafs.`\
 https://nytimes.com/athletic/6046095/2025/01/08/flyers-lose-maple-leafs-special-teams-short/
-
-**Yohe's 10 observations: Penguins lose control, suffer damaging loss to Blue Jackets**\
-`The Penguins blew another two-goal lead and fell 4-3 to Columbus in shootout.`\
-https://nytimes.com/athletic/6045985/2025/01/08/penguins-blue-jackets-evgeni-malkin-injury/
 
