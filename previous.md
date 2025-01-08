@@ -1,3 +1,15 @@
+**Fires and school closures can affect the well-being of children.**\
+`By Troy Closson`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/fires-and-school-closures-can-affect-the-well-being-of-children
+
+**U.S. Withholds Funding for World Anti-Doping Agency**\
+`In a damaging blow to the agency, the Biden administration said it had lost confidence in WADA’s ability to guard against the use of performance-enhancing drugs by elite athletes.`\
+https://nytimes.com/2025/01/08/us/politics/us-withholds-funding-for-world-anti-doping-agency.html
+
+**A Light, Bright Feast for After the Holidays**\
+`Resolutions don’t have to be synonymous with restraint, as this tangy beet salad, stunning herbed rice and easy apple tart from David Tanis show.`\
+https://nytimes.com/2025/01/08/dining/beet-salad-easy-apple-tart.html
+
 **Scoop City: 2024 NFL statistical leaders across the board**\
 `Who led the NFL in the major statistical categories? The full list might surprise you.`\
 https://nytimes.com/athletic/6047342/2025/01/08/nfl-statistical-leaders-2024-fantasy-football-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfire
 **How Trump’s Greenland Plan Could Hit Ozempic, Legos and Hearing Aids**\
 `Putting tariffs on Denmark unless it cedes the island of Greenland could hurt access to a few key products, including popular medicines.`\
 https://nytimes.com/2025/01/08/us/politics/trump-greenland-denmark-ozempic.html
-
-**U.K. Special Forces Allowed to ‘Get Away With Murder’ in Afghanistan, Inquiry Told**\
-`Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
-https://nytimes.com/2025/01/08/world/europe/uk-afghanistan-war-crimes.html
-
-**UCLA's Mick Cronin calls team 'soft' and 'delusional' after Michigan loss**\
-`"The toughest guy in the room can’t be me every day," Cronin said after a 94-75 home loss by the No. 22 Bruins against No. 24 Michigan.`\
-https://nytimes.com/athletic/6047193/2025/01/08/mick-cronin-ucla-loss-michigan/
-
-**Prime Tire: Why Spa won't be F1's last rotating race**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6047181/2025/01/08/spa-f1-calendar-prime-tire/
 

@@ -1,3 +1,15 @@
+**Fires and school closures can affect the well-being of children.**\
+`By Troy Closson`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/fires-and-school-closures-can-affect-the-well-being-of-children
+
+**U.S. Withholds Funding for World Anti-Doping Agency**\
+`In a damaging blow to the agency, the Biden administration said it had lost confidence in WADA’s ability to guard against the use of performance-enhancing drugs by elite athletes.`\
+https://nytimes.com/2025/01/08/us/politics/us-withholds-funding-for-world-anti-doping-agency.html
+
+**A Light, Bright Feast for After the Holidays**\
+`Resolutions don’t have to be synonymous with restraint, as this tangy beet salad, stunning herbed rice and easy apple tart from David Tanis show.`\
+https://nytimes.com/2025/01/08/dining/beet-salad-easy-apple-tart.html
+
 **Scoop City: 2024 NFL statistical leaders across the board**\
 `Who led the NFL in the major statistical categories? The full list might surprise you.`\
 https://nytimes.com/athletic/6047342/2025/01/08/nfl-statistical-leaders-2024-fantasy-football-scoop-city/
