@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Halt His Sentencing in N.Y. Criminal Case**\
+`Prosecutors have been ordered to respond to the president-elect’s request by Thursday morning, suggesting the court could rule before Friday’s scheduled sentencing.`\
+https://nytimes.com/2025/01/08/nyregion/trump-sentencing-supreme-court.html
+
 **Duke's win vs. Pitt will be remembered for Cooper Flagg's dunk — and this defensive tweak**\
 `Duke held an offense averaging 84.1 points per game to almost half its season average in a 76-47 win Tuesday over Pitt.`\
 https://nytimes.com/athletic/6046127/2025/01/08/cooper-flagg-dunk-duke-pitt-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6046598/2025/01/08/nigeria-eric-chelle-head-coach/
 **Zion Williamson finally returned to the Pelicans. Now comes the important part**\
 `Williamson had 22 points and a memorable dunk in a loss to Minnesota, bringing much-needed hope to New Orleans. How long will it last?`\
 https://nytimes.com/athletic/6046337/2025/01/08/zion-williamsons-nba-pelicans-return-dunk-timberwolves/
-
-**Schools Close Across Los Angeles County as Wildfires Rage**\
-`At least 18 of the 80 school districts in the county announced that schools would be closed and urged parents to take precautions as at least four wildfires burned.`\
-https://nytimes.com/2025/01/08/us/wildfires-schools-close-la-county.html
 
