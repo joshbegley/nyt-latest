@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6046375/2025/01/08/andy-pettitte-hall-of-fame-vote/
 https://nytimes.com/2025/01/08/world/europe/italy-iran-cecilia-sala-journalist-released.html
 
 **Several Local Landmarks Are Destroyed in Southern California Wildfires**\
-`A Jewish temple, a high school that served as alma mater for many celebrities, and well-known local restaurants are among the structures that have been destroyed.`\
+`A synagogue, a high school that served as alma mater for many celebrities, and well-known local restaurants are among the structures that have been destroyed.`\
 https://nytimes.com/2025/01/08/us/california-fires-landmarks-pasadena-palisades-malibu.html
 
 **How Bears GM Ryan Poles can pitch Caleb Williams, roster to coaching candidates**\
