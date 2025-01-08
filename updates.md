@@ -1,3 +1,7 @@
+**Wildfires in Southern California**\
+`We cover the latest on the fast-moving fires.`\
+https://nytimes.com/2025/01/08/briefing/southern-california-wildfires.html
+
 **The Athletic FC: How AI could transform football, Rashford in Milan talks**\
 `Today in TAFC: How AI could affect transfers and team selection, Rashford in talks with Milan and Cunha's glasses apology...`\
 https://nytimes.com/athletic/6046382/2025/01/08/ai-football-rashford-milan-talks/

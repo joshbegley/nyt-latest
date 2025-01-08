@@ -1,3 +1,7 @@
+**Wildfires in Southern California**\
+`We cover the latest on the fast-moving fires.`\
+https://nytimes.com/2025/01/08/briefing/southern-california-wildfires.html
+
 **The Athletic FC: How AI could transform football, Rashford in Milan talks**\
 `Today in TAFC: How AI could affect transfers and team selection, Rashford in talks with Milan and Cunha's glasses apology...`\
 https://nytimes.com/athletic/6046382/2025/01/08/ai-football-rashford-milan-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044037/2025/01/08/nfl-draft-2025-college-football-
 **Why Auston Matthews invited Joe Thornton on the Maple Leafs' mentors trip**\
 `As captain, Matthews hopes to emulate Thornton's leadership qualities, led by his focus on inclusivity and bringing everyone together. `\
 https://nytimes.com/athletic/6045608/2025/01/08/maple-leafs-auston-matthews-joe-thornton/
-
-**'He's different': Inside the mind of Xavier McKinney, face of the Packers defense**\
-`The big free-agent signing's elite work ethic and attention to detail have made him an instant star and team leader in Green Bay.`\
-https://nytimes.com/athletic/6036769/2025/01/08/xavier-mckinney-packers-playoffs/
 
