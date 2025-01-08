@@ -1,5 +1,5 @@
 **SAG Award Nominations 2025: ‘Wicked’ Casts a Strong Spell**\
-`The box office hit lands five nods, while “The Last Showgirl” received unexpected recognition for stars Pamela Anderson and Jamie Lee Curtis.`\
+`The box office hit landed five nods, while “The Last Showgirl” received unexpected recognition for stars Pamela Anderson and Jamie Lee Curtis.`\
 https://nytimes.com/2025/01/08/movies/sag-award-nominations-list.html
 
 **Sharks midseason report cards: Top marks for Celebrini and Askarov, but who else?**\
