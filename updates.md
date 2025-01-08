@@ -1,3 +1,7 @@
+**Belgian GP extends F1 deal, will be rotated on calendar**\
+`The Circuit de Spa-Francorchamps will feature on the F1 calendar four out of six years between 2026 and 2031.`\
+https://nytimes.com/athletic/6046343/2025/01/08/belgian-gp-f1-spa-francorchamps/
+
 **Deschamps to step down after next year's World Cup**\
 `Didier Deschamps has announced that he will step down as France men&#8217;s head coach following the 2026 World Cup in North America.`\
 https://nytimes.com/athletic/6046335/2025/01/08/didier-deschamps-france-manager/

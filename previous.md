@@ -1,3 +1,7 @@
+**Belgian GP extends F1 deal, will be rotated on calendar**\
+`The Circuit de Spa-Francorchamps will feature on the F1 calendar four out of six years between 2026 and 2031.`\
+https://nytimes.com/athletic/6046343/2025/01/08/belgian-gp-f1-spa-francorchamps/
+
 **Deschamps to step down after next year's World Cup**\
 `Didier Deschamps has announced that he will step down as France men&#8217;s head coach following the 2026 World Cup in North America.`\
 https://nytimes.com/athletic/6046335/2025/01/08/didier-deschamps-france-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/crosswords/spelling-bee-forum.html
 **What We Know About the Wildfires Raging in Southern California**\
 `The fast-moving fires are intensifying because of fierce winds, the strongest in Southern California in more than a decade.`\
 https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html
-
-**Late Night Jokes Its Way From Canada to the ‘Gulf of America’**\
-`“We have been so concerned about all the scary things that Trump’s going to do, we forgot he’s also going to do some really stupid things,” Desi Lydic said on “The Daily Show.”`\
-https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
 
