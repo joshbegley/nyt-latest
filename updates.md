@@ -1,3 +1,11 @@
+**A lack of water has hindered firefighting efforts.**\
+`By Kate Selig and Emily Baumgaertner`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/a-lack-of-water-has-hindered-firefighting-efforts
+
+**Sportsbank enter exclusivity to invest in Textor's Eagle Football group**\
+`A sports investment group advised by the former Everton director and experienced football financier Keith Harris has entered a period of exclusivity to invest in John Textor’s Eagle Football Holdings company.`\
+https://nytimes.com/athletic/6047524/2025/01/08/crystal-palace-eagle-football-group-sportsbank/
+
 **Tiny Love Stories: ‘Each Cinematic Conquest Convinced Me You’d Call’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/01/08/style/tiny-modern-love-stories-each-cinematic-conquest-convinced-me-youd-call.html
