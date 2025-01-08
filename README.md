@@ -1,3 +1,7 @@
+**Mourners Defy Subfreezing Temperatures to Honor Jimmy Carter at the Capitol**\
+`While cold weather and heightened security likely dampened turnout, thousands of well-wishers still traipsed through the snow and ice to pay final tribute to the 39th president.`\
+https://nytimes.com/2025/01/08/us/politics/jimmy-carter-mourners-capitol.html
+
 **Submit your Blues prospect questions for Jeremy Rutherford and Scott Wheeler's mailbag**\
 `Scott Wheeler covered World Juniors, and now is your chance to send him questions about what he saw from the Blues' none prospects there.`\
 https://nytimes.com/athletic/6048021/2025/01/08/st-louis-blues-scott-wheeler-mailbag-january-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/dining/first-time-restaurant-owners-wanted.html
 **Mourners Pay Their Respects to Former President Jimmy Carter**\
 `Visitors said their final goodbyes to Jimmy Carter, lying in state at the Capitol, and reflected on what the former president meant to them.`\
 https://nytimes.com/video/us/100000009915583/jimmy-carter-funeral-mourners.html
-
-**Study Links High Fluoride Exposure to Lower I.Q. in Children**\
-`The results of a new federal analysis were drawn from studies conducted in other countries, where drinking water contains more fluoride than in the United States.`\
-https://nytimes.com/2025/01/08/health/fluoride-children-iq.html
 
