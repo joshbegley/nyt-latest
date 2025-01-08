@@ -1,3 +1,11 @@
+**Matt Seidler denies Padres relocation talk, responds to Sheel Seidler's lawsuit in letter**\
+`Matt Seidler addressed Sheel Seidler's claims of relocation, her case to be named control person of the Padres and more.`\
+https://nytimes.com/athletic/6045842/2025/01/07/padres-matt-seidler-letter-response-sheel-seidler-lawsuit/
+
+**Former Mexico head coach Miguel Herrera appointed to lead Costa Rica**\
+`Colorful coach Herrera is back on the international coaching circuit.`\
+https://nytimes.com/athletic/6045859/2025/01/07/miguel-herrera-mexico-coach-costa-rica-usmnt/
+
 **Surveyor’s Measure**\
 `Laura Dershewitz’s puzzle nets positive.`\
 https://nytimes.com/2025/01/07/crosswords/daily-puzzle-2025-01-08.html
