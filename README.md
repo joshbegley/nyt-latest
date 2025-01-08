@@ -1,3 +1,7 @@
+**Astros' 13th round pick Bryce Boettcher to play another season of football at Oregon**\
+`Oregon secured a waiver for an additional year of football eligibility for Boettcher, who did not join the team until his sophomore season`\
+https://nytimes.com/athletic/6048352/2025/01/08/bryce-boettcher-oregon-football-houston-astros/
+
 **Hiker Found Alive After 13 Days Lost in Australian Mountains**\
 `The 23-year-old hiker, Hadi Nazari, survived for almost two weeks on two granola bars he found in a hut and on water from rivers and creeks, the authorities said.`\
 https://nytimes.com/2025/01/08/world/australia/missing-hiker-australia-found.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048178/2025/01/08/mets-david-wright-jersey-retirem
 **Dignified Rituals Before the ‘Hot Mess’ in Washington**\
 `Jimmy Carter’s funeral is giving the nation an uncanny week of routine on the eve of political upheaval.`\
 https://nytimes.com/2025/01/08/us/politics/carter-funeral-rituals-trump-politics.html
-
-**Liverpool's Quansah substituted off in loss to Spurs due to illness - Slot**\
-`Arne Slot revealed that illness rather than injury forced Jarell Quansah off during Liverpool&#8217;s 1-0 defeat to Tottenham Hotspur in their Carabao Cup semi-final first leg.`\
-https://nytimes.com/athletic/6048186/2025/01/08/jarell-quansah-injury-update-liverpool/
 
