@@ -1,3 +1,7 @@
+**West Ham and Lopetegui's week on the brink: Three training sessions, Fonseca talks, Potter hold-up**\
+`West Ham and head coach Julen Lopetegui spent the past few days edging towards an inevitable exit, just eight months after his appointment`\
+https://nytimes.com/athletic/6044388/2025/01/08/west-ham-julen-lopetegui-final-week/
+
 **Wildfires and strong winds prompt road closures across Los Angeles County.**\
 `The closures included a section of the storied Pacific Coast Highway that runs through Pacific Palisades, the site of the largest fire.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfires-los-angeles-road-closures
