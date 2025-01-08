@@ -1,3 +1,7 @@
+**Former Orioles pitcher Brian Matusz dies at 37**\
+`A left-handed pitcher selected fourth overall in the 2008 MLB draft, Matusz spent eight years in Baltimore.`\
+https://nytimes.com/athletic/6045912/2025/01/07/orioles-brian-matusz-death/
+
 **Wild's Brock Faber injured, Jake Middleton busy in return: 3 takeaways vs. Blues**\
 `Faber left the game with what the team called an upper-body injury and didn't return.`\
 https://nytimes.com/athletic/6045662/2025/01/07/wild-brock-faber-injury-blues/
