@@ -1,3 +1,7 @@
+**Ed Van Put, Who Hooked Jimmy Carter on the Catskills, Dies at 88**\
+`A master fly-fisherman, author and conservationist, he guided the famous and not-so-famous in the hunt for rainbow trout on the Delaware and Beaverkill rivers.`\
+https://nytimes.com/2025/01/08/sports/ed-van-put-dead.html
+
 **California Wildfires Threaten Insurers Already Teetering From Climate Shocks**\
 `Companies started pulling back from the state as earlier fires made it harder to turn a profit. Experts warn the exodus could grow.`\
 https://nytimes.com/2025/01/08/climate/california-wildfires-threaten-insurers-already-teetering-from-climate-shocks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047544/2025/01/08/golden-state-warriors-trade-dead
 **Wildfires intensify a pivotal moment for the insurance industry.**\
 `California’s vulnerable homeowners insurance industry faces a test as fires rage across Los Angeles.`\
 https://nytimes.com/2025/01/08/us/fire-insurance-california.html
-
-**Top Iranian General Admits ‘Big’ Defeat in Syria, Breaking With Other Leaders**\
-`For weeks, Iranian officials have downplayed the fall of their ally in Syria. But an important general has offered a remarkably candid view of the blow to Iran, and its military’s prospects.`\
-https://nytimes.com/2025/01/08/world/middleeast/iran-general-syria-defeat.html
 
