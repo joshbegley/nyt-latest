@@ -1,3 +1,7 @@
+**Wild's Brock Faber injured, Jake Middleton busy in return: 3 takeaways vs. Blues**\
+`Faber left the game with what the team called an upper-body injury and didn't return.`\
+https://nytimes.com/athletic/6045662/2025/01/07/wild-brock-faber-injury-blues/
+
 **Los Angeles Area Braces for Strong Winds That Will Fan Flames**\
 `Officials warned that winds would strengthen overnight, creating conditions for the Palisades blaze to grow and for others to start.`\
 https://nytimes.com/2025/01/07/us/la-wildfire-weather-forecast-wind.html
