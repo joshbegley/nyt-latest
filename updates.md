@@ -1,3 +1,7 @@
+**Deschamps to step down after next year's World Cup**\
+`Didier Deschamps has announced that he will step down as France men&#8217;s head coach following the 2026 World Cup in North America.`\
+https://nytimes.com/athletic/6046335/2025/01/08/didier-deschamps-france-manager/
+
 **Another Warriors home blowout loss leaves Steph Curry deflated; season hits a low point**\
 `Curry, when asked how the offense can get better: "I honestly have no idea." When asked if this is the low point of the season: "Yeah."`\
 https://nytimes.com/athletic/6046228/2025/01/08/steph-curry-warriors-low-point-of-season/
