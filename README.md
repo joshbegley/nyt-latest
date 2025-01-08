@@ -1,3 +1,11 @@
+**Spurs impressed in adversity after worrying Bentancur head injury - Postecoglou**\
+`Ange Postecoglou praised Tottenham Hotspur&#8217;s players reaction to the &#8220;adversity&#8221; of a worrying injury to their team-mate Rodrigo Bentancur.`\
+https://nytimes.com/athletic/6048224/2025/01/08/rodrigo-bentancur-injury-update-tottenham/
+
+**What is it like when the evacuation alert comes?**\
+`By Ken Bensinger`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/what-is-it-like-when-the-evacuation-alert-comes
+
 **This Canadiens trade deadline isn’t about asset management, it’s about culture**\
 `Canadiens GM Kent Hughes has more to learn about his team between now and March 7, but cultivating its culture should be top of mind.`\
 https://nytimes.com/athletic/6048163/2025/01/08/canadiens-nhl-trade-deadline-culture/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6048073/2025/01/08/jordan-love-packers-playoffs-eag
 **Carole Wilbourn, Who Put Cats on the Couch, Dies at 84**\
 `When cats bite or scratch, they’re trying to tell you something. Wilbourn, a cat therapist, was a pioneer in the art of listening to them.`\
 https://nytimes.com/2025/01/08/style/carole-wilbourn-dead.html
-
-**Out-of-Control Fires Devastate Los Angeles Area**\
-`Also, no one bid for the chance to drill in Alaska’s wilderness. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/01/08/briefing/los-angeles-fires-doj-trump-documents-report.html
-
-**Presidential Odd Couple: After a Tough Race, Carter and Ford Became Friends**\
-`Jimmy Carter and Gerald R. Ford faced off in 1976 in a bitter campaign but later bonded as few presidents have — and made a pact to speak at each other’s funerals.`\
-https://nytimes.com/2025/01/08/us/politics/carter-ford-friendship.html
 
