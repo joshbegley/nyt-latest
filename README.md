@@ -1,3 +1,7 @@
+**Canucks notebook: The J.T. Miller and Elias Pettersson rumour mill churns again**\
+`As trade rumours roll on, the Canucks are once again the biggest story in hockey.`\
+https://nytimes.com/athletic/6046160/2025/01/08/canucks-miller-pettersson-trade-rumors-nhl/
+
 **Artists Tried to Activate Voters With Billboard Art. Did It Work?**\
 `For Freedoms’ billboards could surprise, comfort or confuse. Now the group is asking, Where do we go from here?`\
 https://nytimes.com/2025/01/08/arts/design/artists-tried-to-activate-voters-with-billboard-art-did-it-work.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/pacific-palisades-house-fire-evacuation-califo
 **Dodgers roster projection 1.0: Where things stand after recent moves**\
 `Teoscar Hernández is back, Gavin Lux is gone and injured players are on the mend: Here's what to watch for as spring training draws near.`\
 https://nytimes.com/athletic/6044955/2025/01/08/dodgers-roster-projection-one/
-
-**Ranking NFL playoff coaches by who gives their team biggest edge on fourth downs**\
-`You just know a few of these playoff games will come down to crucial fourth-down decisions. Who will make the right call in crunch time? `\
-https://nytimes.com/athletic/6007051/2025/01/08/nfl-playoffs-coaches-fourth-down-dan-campbell-sean-mcdermott/
 
