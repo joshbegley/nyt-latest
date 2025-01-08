@@ -1,3 +1,15 @@
+**Port Labor Talks Hinge on Deal on Automation**\
+`Cargo could stop flowing at East and Gulf Coast ports, which handle most imports, if a union and an employers’ group can’t agree on the use of machines that can operate without humans.`\
+https://nytimes.com/2025/01/08/business/economy/ports-longshoremen-contract-talks.html
+
+**Poking Fun at Trump, Mexico’s President Suggests Renaming the U.S.**\
+`President Claudia Sheinbaum of Mexico also said Donald Trump was ill-informed when he said Mexico was “essentially run by the cartels.”`\
+https://nytimes.com/2025/01/08/us/politics/mexico-president-mexican-america-trump.html
+
+**Israeli Strike in West Bank Kills 3, Including Children, Official Says**\
+`Violence has escalated in the occupied territory over the last year and a half, as Israel conducts raids targeting armed fighters with Hamas and Palestinian Islamic Jihad.`\
+https://nytimes.com/2025/01/08/world/middleeast/israel-strike-west-bank.html
+
 **Why ‘Show Boat’ Is America’s Most Enduring, Unstable Musical**\
 `A revival called “Show/Boat: A River” joins a history of reimagining the musical that goes back nearly a century, to its first performances.`\
 https://nytimes.com/2025/01/08/arts/music/show-boat-river-musical-revival.html

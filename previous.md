@@ -1,3 +1,15 @@
+**Port Labor Talks Hinge on Deal on Automation**\
+`Cargo could stop flowing at East and Gulf Coast ports, which handle most imports, if a union and an employers’ group can’t agree on the use of machines that can operate without humans.`\
+https://nytimes.com/2025/01/08/business/economy/ports-longshoremen-contract-talks.html
+
+**Poking Fun at Trump, Mexico’s President Suggests Renaming the U.S.**\
+`President Claudia Sheinbaum of Mexico also said Donald Trump was ill-informed when he said Mexico was “essentially run by the cartels.”`\
+https://nytimes.com/2025/01/08/us/politics/mexico-president-mexican-america-trump.html
+
+**Israeli Strike in West Bank Kills 3, Including Children, Official Says**\
+`Violence has escalated in the occupied territory over the last year and a half, as Israel conducts raids targeting armed fighters with Hamas and Palestinian Islamic Jihad.`\
+https://nytimes.com/2025/01/08/world/middleeast/israel-strike-west-bank.html
+
 **Why ‘Show Boat’ Is America’s Most Enduring, Unstable Musical**\
 `A revival called “Show/Boat: A River” joins a history of reimagining the musical that goes back nearly a century, to its first performances.`\
 https://nytimes.com/2025/01/08/arts/music/show-boat-river-musical-revival.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6047003/2025/01/08/uk-athletics-paralympian-manslau
 **Mavericks end 5-game skid without Luka, Kyrie; Quentin Grimes has another big game**\
 `The Mavericks, with Grimes leading the charge, took out LeBron James and the Lakers and also ended a five-game losing streak Tuesday night.`\
 https://nytimes.com/athletic/6046295/2025/01/08/mavericks-lakers-quentin-grimes-luka-kyrie/
-
-**For the Love of Lemons**\
-`Lemony Greek chicken and spinach stew, broiled salmon with mustard and lemon, lemon-pepper tofu and lemon-almond butter cake are full of sour power.`\
-https://nytimes.com/2025/01/08/dining/lemony-chicken-salmon-and-tofu-recipes.html
-
-**Punk and Emo Fossils Are a Hot Topic in Paleontology**\
-`It’s not causing panic! in the fossil record, but a 430-million-year-old mollusk discovery in Britain is a source of excitement for some scientists.`\
-https://nytimes.com/2025/01/08/science/punk-emo-fossils-slugs.html
-
-**Trump Wants Oil Drilling in Alaska. A Lease Sale There Just Flopped.**\
-`No companies bid for the chance to drill in the Arctic National Wildlife Refuge. It was the second auction in four years that failed draw strong interest.`\
-https://nytimes.com/2025/01/08/climate/arctic-wildlife-refuge-drilling-leases.html
 
