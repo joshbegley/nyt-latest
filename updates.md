@@ -1,4 +1,8 @@
 **West Ham postpone Lopetegui presser with coach's future uncertain**\
+`West Ham United have postponed today&#8217;s scheduled press conference for Julen Lopetegui with the Spaniard&#8217;s future at the club uncertain.`\
+https://nytimes.com/athletic/6026725/2025/01/08/julen-lopetegui-west-ham-manager/
+
+**West Ham postpone Lopetegui presser with coach's future uncertain**\
 `West Ham United have cancelled today&#8217;s scheduled press conference for Julen Lopetegui with the Spaniard&#8217;s future at the club uncertain.`\
 https://nytimes.com/athletic/6026725/2025/01/08/julen-lopetegui-west-ham-manager/
 
