@@ -1,3 +1,7 @@
+**Another Warriors home blowout loss leaves Steph Curry deflated; season hits a low point**\
+`Curry, when asked how the offense can get better: "I honestly have no idea." When asked if this is the low point of the season: "Yeah."`\
+https://nytimes.com/athletic/6046228/2025/01/08/steph-curry-warriors-low-point-of-season/
+
 **Visiting Dissident Is Gunned Down in Bangkok**\
 `The shock killing of a former Cambodian politician stoked safety fears that Thailand is no refuge for those fleeing autocracy.`\
 https://nytimes.com/2025/01/08/world/asia/cambodia-politician-dead-bangkok.html
