@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Yan Zhuang, Corina Knoll and Soumya Karlamangla`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/heres-the-latest-on-the-fires
+
+**Can Mikey Keene hold off Bryce Underwood at Michigan? Assessing the Fresno State transfer**\
+`Michigan signed the No. 1 player in the 2025 class at QB in Underwood, but the hope is that Keene is a bridge to the future.`\
+https://nytimes.com/athletic/6044725/2025/01/08/mikey-keene-michigan-quarterback-bryce-underwood/
+
 **Could a small-market team be a surprise fit for Roki Sasaki? Parsing his agent's words**\
 `Conventional wisdom says a big-market team like the Dodgers will be the choice. But what if other factors are at play? We rank the options.`\
 https://nytimes.com/athletic/6045382/2025/01/08/roki-sasaki-team-odds-mlb/

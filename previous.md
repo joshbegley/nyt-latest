@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Yan Zhuang, Corina Knoll and Soumya Karlamangla`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/heres-the-latest-on-the-fires
+
+**Can Mikey Keene hold off Bryce Underwood at Michigan? Assessing the Fresno State transfer**\
+`Michigan signed the No. 1 player in the 2025 class at QB in Underwood, but the hope is that Keene is a bridge to the future.`\
+https://nytimes.com/athletic/6044725/2025/01/08/mikey-keene-michigan-quarterback-bryce-underwood/
+
 **Could a small-market team be a surprise fit for Roki Sasaki? Parsing his agent's words**\
 `Conventional wisdom says a big-market team like the Dodgers will be the choice. But what if other factors are at play? We rank the options.`\
 https://nytimes.com/athletic/6045382/2025/01/08/roki-sasaki-team-odds-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/trumps-lawyers-jack-smith-justice-dep
 **New Warnings About Alcohol Hit Restaurants at a Tricky Time**\
 `The surgeon general’s call to arms about the link between drinking and cancer could strike at a fiscal lifeline for restaurateurs facing falling sales.`\
 https://nytimes.com/2025/01/08/dining/drinks/restaurants-alcohol-surgeon-general-warning.html
-
-**Canada’s Camera-Ready Politician**\
-`A magnet for cameras, Justin Trudeau was at the center of moments that defined Canada’s image over the last decade.`\
-https://nytimes.com/2025/01/08/world/canada/justin-trudeau-canada-prime-minister-photos.html
-
-**Tax Cuts or the Border? Republicans Wrestle Over Priorities.**\
-`President-elect Donald J. Trump has waffled on his preferences for how his party tackles his agenda, adding to the uncertainty for Republicans.`\
-https://nytimes.com/2025/01/08/us/politics/tax-cuts-immigration-republicans-trump.html
 
