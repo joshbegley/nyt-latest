@@ -1,3 +1,7 @@
+**Schools Close Across Los Angeles County as Wildfires Rage**\
+`At least 18 of the 80 school districts in the county announced that schools would be closed and urged parents to take precautions as at least four wildfires burned.`\
+https://nytimes.com/2025/01/08/us/wildfires-schools-close-la-county.html
+
 **Celtics, Kristaps Porziņģis still learning how to bring out the best in each other**\
 `Since the big man returned to the lineup, Boston has been inconsistent. Porziņģis's performance against Denver on Tuesday was encouraging. `\
 https://nytimes.com/athletic/6046331/2025/01/08/celtics-kristaps-porzingis-nba-denver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006791/2025/01/08/minnesota-twins-top-prospects-wa
 **Jared Goff solves the blitz, Joe Milton has his moment, more Week 18 thoughts: Quick Outs**\
 `Goff wasn't perfect, but he did plenty against Brian Flores' defense. Plus, how did the Panthers' run defense get this bad?`\
 https://nytimes.com/athletic/6044925/2025/01/08/nfl-week-recap-18-jared-goff-panthers/
-
-**How Many Fires Are Burning in Southern California?**\
-`At least three major fires were burning in the Los Angeles area on Wednesday morning, destroying homes and forcing thousands to evacuate.`\
-https://nytimes.com/2025/01/08/us/palisades-eaton-hurst-fire-california.html
 
