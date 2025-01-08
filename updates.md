@@ -1,3 +1,7 @@
+**Canucks notebook: The J.T. Miller and Elias Pettersson rumour mill churns again**\
+`As trade rumours roll on, the Canucks are once again the biggest story in hockey.`\
+https://nytimes.com/athletic/6046160/2025/01/08/canucks-miller-pettersson-trade-rumors-nhl/
+
 **Artists Tried to Activate Voters With Billboard Art. Did It Work?**\
 `For Freedoms’ billboards could surprise, comfort or confuse. Now the group is asking, Where do we go from here?`\
 https://nytimes.com/2025/01/08/arts/design/artists-tried-to-activate-voters-with-billboard-art-did-it-work.html
