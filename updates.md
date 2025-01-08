@@ -1,3 +1,19 @@
+**Please Don’t Eat Your Christmas Tree, Belgium Urges the Public**\
+`The country’s food agency warned against using evergreens in food after the city of Ghent suggested an unusual form of recycling: spruce needle butter.`\
+https://nytimes.com/2025/01/08/world/europe/belgium-christmas-tree-eating.html
+
+**SAG Award nomination event canceled as more actors flee their homes.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/sag-award-nomination-event-canceled-as-more-actors-flee-their-homes
+
+**Kawhi Leonard exclusive: Clippers’ star opens up about his NBA return**\
+`"We played five preseason games. Now, I'm looking at this as my preseason," Leonard said in an exclusive interview with The Athletic.`\
+https://nytimes.com/athletic/6044693/2025/01/08/kawhi-leonard-clippers-nba-exclusive/
+
+**It Was Dark, Freezing and 4 a.m. Still, They Came to See Jimmy Carter.**\
+`It was a once-in-a-lifetime chance to pay their respects to a president. They were not going to miss it, even if meant waking up in the middle of the night.`\
+https://nytimes.com/2025/01/08/us/jimmy-carter-carter-center-atlanta.html
+
 **West Ham agree deal to hire Potter as new head coach**\
 `West Ham United have agreed a deal to appoint Graham Potter as their new head coach on a two-and-a-half-year deal.`\
 https://nytimes.com/athletic/5968828/2025/01/08/graham-potter-west-ham-next-manager/
