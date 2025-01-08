@@ -1,3 +1,15 @@
+**As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
+`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own.`\
+https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
+
+**Penguins Today: Tristan Jarry nears an unwelcome team record**\
+`Last night, Jarry inched closer to a Tom Barrasso Penguins record he doesn't want.`\
+https://nytimes.com/athletic/6046879/2025/01/08/penguins-today-tristan-jarry-first-shot-goals/
+
+**Jenna Bush Hager: ‘Today’ Show Co-Host, Literary Tastemaker and Now, Publisher**\
+`Nearly six years after becoming a literary heavyweight with “Read with Jenna,” she’s starting her own publishing venture with Penguin Random House.`\
+https://nytimes.com/2025/01/08/books/jenna-bush-hager-publishing-books.html
+
 **Jets midseason report cards: Kyle Connor, Mark Scheifele lead forward class**\
 `The Jets' dominant power play has been an enormous boost and multiple forwards are on pace for career highs. Who's leading the way?`\
 https://nytimes.com/athletic/6042151/2025/01/08/winnipeg-jets-nhl-grades-scheifele-connor/
