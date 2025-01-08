@@ -1,3 +1,11 @@
+**Celine Haidar, the Lebanon player struck by shrapnel, wakes from coma**\
+`Lebanese footballer Celine Haidar has woken from a coma nearly two months after the 19-year-old suffered a serious head injury during an Israeli airstrike on Beirut.`\
+https://nytimes.com/athletic/6047110/2025/01/08/celine-haidar-lebanon-football-awake/
+
+**51st State? Canadians Say No Thanks.**\
+`Canadians react to Donald Trump’s proposal. Also: Trump on the Panama Canal and Greenland; Trump and TikTok; Meta and fact-checking; a messy home.`\
+https://nytimes.com/2025/01/08/opinion/canada-51st-state-trump.html
+
 **USWNT Futures Camp provides a glimpse into Emma Hayes' long-term strategy**\
 `Plus, three key players to watch`\
 https://nytimes.com/athletic/6047288/2025/01/08/uswnt-futures-camp-emma-hayes-soccer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6034184/2025/01/08/man-city-transfers-marmoush-khus
 **We Are Not Prepared for Fires Like This**\
 `A decade ago, this kind of disaster seemed unthinkably rare.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/california-wildfire-los-angeles
-
-**Can Trump Really Rename the Gulf of Mexico the ‘Gulf of America’?**\
-`Presidential naming powers usually stop at the water’s edge.`\
-https://nytimes.com/2025/01/08/world/americas/trump-gulf-of-mexico.html
-
-**The Bounce: A big winning streak ends tonight!**\
-`Zach Harper catches you up on league-wide news. `\
-https://nytimes.com/athletic/6047318/2025/01/08/cavs-thunder-winning-streak-the-bounce/
 
