@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins lose control, suffer damaging loss to Blue Jackets**\
+`The Penguins blew another two-goal lead and fell 4-3 to Columbus in shootout.`\
+https://nytimes.com/athletic/6045985/2025/01/08/penguins-blue-jackets-evgeni-malkin-injury/
+
 **Liverpool must start planning for a future without Robertson**\
 `The Scot has been a superb servant at Anfield but the evidence is mounting that he is in decline`\
 https://nytimes.com/athletic/6044204/2025/01/08/liverpool-andy-robertson-future/
