@@ -1,3 +1,7 @@
+**Zion Williamson finally returned to the Pelicans. Now comes the important part**\
+`Williamson had 22 points and a memorable dunk in a loss to Minnesota, bringing much-needed hope to New Orleans. How long will it last?`\
+https://nytimes.com/athletic/6046337/2025/01/08/zion-williamsons-nba-pelicans-return-dunk-timberwolves/
+
 **Schools Close Across Los Angeles County as Wildfires Rage**\
 `At least 18 of the 80 school districts in the county announced that schools would be closed and urged parents to take precautions as at least four wildfires burned.`\
 https://nytimes.com/2025/01/08/us/wildfires-schools-close-la-county.html
