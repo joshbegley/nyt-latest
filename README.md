@@ -1,3 +1,11 @@
+**Justin Trudeau Was His Own Worst Enemy**\
+`Justin Trudeau came to power with a new kind of politics — progressive and identity-based. In the end, it proved his undoing.`\
+https://nytimes.com/2025/01/08/opinion/justin-trudeau-canada-progressive.html
+
+**In Tibet, Survivors of Strong Quake Face Freezing Weather Conditions**\
+`Rescuers rushed to distribute blankets and tents to those displaced by the magnitude-7.1 quake that struck Tibetan villages near Nepal, toppling over 3,000 homes.`\
+https://nytimes.com/2025/01/08/world/asia/tibet-quake-survivors-cold.html
+
 **Flyers special teams come up small in another loss to Maple Leafs**\
 `The Flyers' perpetually awful power play and declining penalty kill were mostly to blame in Tuesday's loss to the Maple Leafs.`\
 https://nytimes.com/athletic/6046095/2025/01/08/flyers-lose-maple-leafs-special-teams-short/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6041259/2025/01/08/son-heung-min-contract-tottenham
 **EFL ones to watch in January transfer window: Rigg, Esse, Bellingham and more**\
 `Who will be the next EFL starlet to move to bigger things — The Athletic analyses the emerging talent impressing this season`\
 https://nytimes.com/athletic/6005974/2025/01/08/efl-ones-to-watch-in-january-transfer-window-rigg-esse-bellingham-and-more/
-
-**Achampeong? Chalobah? Guehi? How do Chelsea solve their Wesley Fofana problem?**\
-`Chelsea will be without Wesley Fofana for most of the rest of the season — this is how they can deal with it`\
-https://nytimes.com/athletic/6043980/2025/01/08/chelsea-wesley-fofana-injury-analysis-options/
-
-**Facundo Buonanotte is not the only Brighton loanee to endure a change of manager**\
-`The 20-year-old Argentinian is not thriving to the same extent since Ruud van Nistelrooy replaced the sacked Steve Cooper last month`\
-https://nytimes.com/athletic/6041117/2025/01/08/brighton-loanee-manager-changes/
 

@@ -1,3 +1,7 @@
+**Oilers dominate in Boston, avoid injury scares: 5 takeaways vs. Bruins**\
+`It wasn't just one Oilers player but two who got hurt on the same sequence late in the first period.`\
+https://nytimes.com/athletic/6046013/2025/01/08/oilers-mattias-janmark-stuart-skinner-injury/
+
 **Flyers special teams come up small in another loss to Maple Leafs**\
 `The Flyers' perpetually awful power play and declining penalty kill were mostly to blame in Tuesday's loss to the Maple Leafs.`\
 https://nytimes.com/athletic/6046095/2025/01/08/flyers-lose-maple-leafs-special-teams-short/
