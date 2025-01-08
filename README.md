@@ -1,3 +1,7 @@
+**Surveyor’s Measure**\
+`Laura Dershewitz’s puzzle nets positive.`\
+https://nytimes.com/2025/01/07/crosswords/daily-puzzle-2025-01-08.html
+
 **Perry the Donkey, Model for ‘Shrek,’ Dies at 30**\
 `As Perry’s health declined, fans rallied behind the animal and his companions living in a Bay Area park.`\
 https://nytimes.com/2025/01/07/us/shrek-donkey-perry-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/well/healthy-snack-recipes.html
 **Biden Administration Moves to Halt Sept. 11 Plea Deal**\
 `Justice Department lawyers are defending the defense secretary’s decision to back out of the agreement that avoided a death penalty trial, moving the question from military to civilian courts.`\
 https://nytimes.com/2025/01/07/us/politics/sept-11-plea-deal.html
-
-**Blaze Turns Pacific Palisades Into Evacuation Zone**\
-`Cars clogged scenic Sunset Boulevard and headed away from the Palisades, a seaside neighborhood on the west side of Los Angeles.`\
-https://nytimes.com/2025/01/07/us/pacific-palisades-wildfire-evacuations.html
 
