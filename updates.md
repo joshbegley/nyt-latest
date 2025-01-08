@@ -1,3 +1,7 @@
+**The Bounce: A big winning streak ends tonight!**\
+`Zach Harper catches you up on league-wide news. `\
+https://nytimes.com/athletic/6047318/2025/01/08/cavs-thunder-winning-streak-the-bounce/
+
 **Wildfires in California are spreading faster, scientists have found.**\
 `An analysis of 60,000 wildfires found that growth rates had increased over the decades in California and other parts of the West.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/wildfire-speed
