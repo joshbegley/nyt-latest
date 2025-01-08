@@ -1,3 +1,15 @@
+**‘Here We Go Again’: Trump’s Territorial Ambitions Rattle a Weary World**\
+`A distant era of global politics, when nations scrambled to grab territory, suddenly seems less distant.`\
+https://nytimes.com/2025/01/08/world/asia/trump-greenland-panama.html
+
+**Will Leicester be charged by the Premier League for a PSR breach?**\
+`What are the PSR rules, how did we get here and what might happen?`\
+https://nytimes.com/athletic/6046906/2025/01/08/leicester-psr-breach-risk-premier-league/
+
+**Biden Says He’s Considering Pre-emptive Pardons for Potential Trump Targets**\
+`The president hasn’t yet decided what he will do, he said, acknowledging that the makeup of Trump’s new administration could influence his decision.`\
+https://nytimes.com/2025/01/08/us/politics/biden-preemptive-pardons-trump-enemies.html
+
 **Celine Haidar, the Lebanon player struck by shrapnel, wakes from coma**\
 `Lebanese footballer Celine Haidar has woken from a coma nearly two months after the 19-year-old suffered a serious head injury during an Israeli airstrike on Beirut.`\
 https://nytimes.com/athletic/6047110/2025/01/08/celine-haidar-lebanon-football-awake/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/us-withholds-funding-for-world-anti-d
 **A Light, Bright Feast for After the Holidays**\
 `Resolutions don’t have to be synonymous with restraint, as this tangy beet salad, stunning herbed rice and easy apple tart from David Tanis show.`\
 https://nytimes.com/2025/01/08/dining/beet-salad-easy-apple-tart.html
-
-**Scoop City: 2024 NFL statistical leaders across the board**\
-`Who led the NFL in the major statistical categories? The full list might surprise you.`\
-https://nytimes.com/athletic/6047342/2025/01/08/nfl-statistical-leaders-2024-fantasy-football-scoop-city/
-
-**Man City working on deals to sign Marmoush, Khusanov in January**\
-`Manchester City are working on deals to sign Omar Marmoush and Abdukodir Khusanov this month.`\
-https://nytimes.com/athletic/6034184/2025/01/08/man-city-transfers-marmoush-khusanov/
-
-**We Are Not Prepared for Fires Like This**\
-`A decade ago, this kind of disaster seemed unthinkably rare.`\
-https://nytimes.com/live/2025/01/02/opinion/thepoint/california-wildfire-los-angeles
 
