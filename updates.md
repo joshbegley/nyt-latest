@@ -1,3 +1,11 @@
+**U.K. Special Forces Allowed to ‘Get Away with Murder’ in Afghanistan, Inquiry Told**\
+`Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
+https://nytimes.com/2025/01/08/world/europe/uk-special-forces-allowed-to-get-away-with-murder-in-afghanistan-inquiry-told.html
+
+**UCLA's Mick Cronin calls team 'soft' and 'delusional' after Michigan loss**\
+`"The toughest guy in the room can’t be me every day," Cronin said after a 94-75 home loss by the No. 22 Bruins against No. 24 Michigan.`\
+https://nytimes.com/athletic/6047193/2025/01/08/mick-cronin-ucla-loss-michigan/
+
 **Prime Tire: Why Spa won't be F1's last rotating race**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6047181/2025/01/08/spa-f1-calendar-prime-tire/

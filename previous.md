@@ -1,3 +1,11 @@
+**U.K. Special Forces Allowed to ‘Get Away with Murder’ in Afghanistan, Inquiry Told**\
+`Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
+https://nytimes.com/2025/01/08/world/europe/uk-special-forces-allowed-to-get-away-with-murder-in-afghanistan-inquiry-told.html
+
+**UCLA's Mick Cronin calls team 'soft' and 'delusional' after Michigan loss**\
+`"The toughest guy in the room can’t be me every day," Cronin said after a 94-75 home loss by the No. 22 Bruins against No. 24 Michigan.`\
+https://nytimes.com/athletic/6047193/2025/01/08/mick-cronin-ucla-loss-michigan/
+
 **Prime Tire: Why Spa won't be F1's last rotating race**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6047181/2025/01/08/spa-f1-calendar-prime-tire/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/technology/meta-facebook-trump-mark-zuckerberg.ht
 **CPS assessing evidence from police on Premier League footballer accused of rape**\
 `The Crown Prosecution Service (CPS) is assessing a “full file” of evidence that was sent to them by the Metropolitan Police about a Premier League footballer arrested on suspicion of rape.`\
 https://nytimes.com/athletic/6047082/2025/01/08/premier-league-footballer-rape-cps/
-
-**Port Labor Talks Hinge on Deal on Automation**\
-`Cargo could stop flowing at East and Gulf Coast ports, which handle most imports, if a union and an employers’ group can’t agree on the use of machines that can operate without humans.`\
-https://nytimes.com/2025/01/08/business/economy/ports-longshoremen-contract-talks.html
-
-**Poking Fun at Trump, Mexico’s President Suggests Renaming the U.S.**\
-`President Claudia Sheinbaum of Mexico also said Donald Trump was ill-informed when he said Mexico was “essentially run by the cartels.”`\
-https://nytimes.com/2025/01/08/us/politics/mexico-president-mexican-america-trump.html
 
