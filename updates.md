@@ -1,3 +1,11 @@
+**Hiker Found Alive After 13 Days Lost in Australian Mountains**\
+`The 23-year-old hiker, Hadi Nazari, survived for almost two weeks on two granola bars he found in a hut and on water from rivers and creeks, the authorities said.`\
+https://nytimes.com/2025/01/08/world/australia/missing-hiker-australia-found.html
+
+**Port Strike Averted With Labor Deal Days Before Deadline**\
+`Dockworkers and employers on the East and Gulf Coasts had until Jan. 15 to reach a new agreement that settled differences over automation.`\
+https://nytimes.com/2025/01/08/business/port-strike-labor-deal.html
+
 **I Quit Drinking Four Years Ago. I’m Still Confronting Drinking Culture.**\
 `Yes, you can become sober and remain social.`\
 https://nytimes.com/2025/01/08/opinion/alcohol-drinking-dry-january.html
