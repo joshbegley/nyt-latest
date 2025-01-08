@@ -1,3 +1,7 @@
+**A Fashion Reporter Considers the Ways Trends Trickle Down**\
+`Jacob Gallagher, who covers men’s style for The Times, writes about teddy bear jeans, papal robes and all the fashion moments in between.`\
+https://nytimes.com/2025/01/08/insider/jacob-gallagher-new-york-times.html
+
 **President Biden Becomes a Great-Grandfather**\
 `Mr. Biden said his eldest granddaughter, Naomi, gave birth to a baby boy in California.`\
 https://nytimes.com/2025/01/08/us/president-biden-becomes-a-great-grandfather.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/trump-inauguration-donors.html
 **Villa's Philogene granted permission to undergo Ipswich medical**\
 `Aston Villa winger Jaden Philogene has been granted permission to undergo a medical at Ipswich Town after a deal was agreed between the clubs for a permanent transfer.`\
 https://nytimes.com/athletic/6032877/2025/01/08/aston-villas-jaden-philogene-granted-permission-for-ipswich-medical/
-
-**A Low-Tech Way to Save Babies’ Lives**\
-`Researchers say hundreds of thousands of babies’ lives could be saved each year in developing countries with exclusive breastfeeding.`\
-https://nytimes.com/2025/01/08/opinion/breastfeeding-africa-women.html
 
