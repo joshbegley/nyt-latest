@@ -1,3 +1,11 @@
+**Ukraine Strikes Oil Depot Near Russian Air Base, Ukrainian Military Says**\
+`The attack was the latest effort to inflict pain on Russia even as Kyiv is losing ground on the battlefield at home.`\
+https://nytimes.com/2025/01/08/world/europe/ukraine-russia-oil-depot.html
+
+**Which Eastern Conference trades and signings have aged best and worst?**\
+`Analyzing every Eastern Conference team's most noteworthy moves and how they've panned out so far.`\
+https://nytimes.com/athletic/6036347/2025/01/08/nhl-trades-eastern-conference-signings/
+
 **What went wrong with the Raiders and Antonio Pierce: A bad staff, QB problems and an unhappy WR**\
 `From Luke Getsy's struggles to Gardner Minshew's play and Davante Adams' behavior, Pierce had little chance to succeed in Las Vegas.`\
 https://nytimes.com/athletic/6045601/2025/01/08/raiders-fire-coach-antonio-pierce-mark-davis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/us/palisades-eaton-hurst-fire-california.html
 **Wildfires in Southern California**\
 `We cover the latest on the fast-moving fires.`\
 https://nytimes.com/2025/01/08/briefing/southern-california-wildfires.html
-
-**The Athletic FC: How AI could transform football, Rashford in Milan talks**\
-`Today in TAFC: How AI could affect transfers and team selection, Rashford in talks with Milan and Cunha's glasses apology...`\
-https://nytimes.com/athletic/6046382/2025/01/08/ai-football-rashford-milan-talks/
-
-**The Pulse: Why is no one talking about this game?**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6044783/2025/01/08/cavaliers-thunder-finals-matchup-the-pulse/
 
