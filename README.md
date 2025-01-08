@@ -1,3 +1,11 @@
+**Hiker Found Alive After 13 Days Lost in Australian Mountains**\
+`The 23-year-old hiker, Hadi Nazari, survived for almost two weeks on two granola bars he found in a hut and on water from rivers and creeks, the authorities said.`\
+https://nytimes.com/2025/01/08/world/australia/missing-hiker-australia-found.html
+
+**Port Strike Averted With Labor Deal Days Before Deadline**\
+`Dockworkers and employers on the East and Gulf Coasts had until Jan. 15 to reach a new agreement that settled differences over automation.`\
+https://nytimes.com/2025/01/08/business/port-strike-labor-deal.html
+
 **I Quit Drinking Four Years Ago. I’m Still Confronting Drinking Culture.**\
 `Yes, you can become sober and remain social.`\
 https://nytimes.com/2025/01/08/opinion/alcohol-drinking-dry-january.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/carter-funeral-rituals-trump-politics
 **Liverpool's Quansah substituted off in loss to Spurs due to illness - Slot**\
 `Arne Slot revealed that illness rather than injury forced Jarell Quansah off during Liverpool&#8217;s 1-0 defeat to Tottenham Hotspur in their Carabao Cup semi-final first leg.`\
 https://nytimes.com/athletic/6048186/2025/01/08/jarell-quansah-injury-update-liverpool/
-
-**Bears interviewing Iowa State's Campbell, complete interview with Vrabel**\
-`Chicago also said Wednesday it completed an interview with former Tennessee Titans head coach Mike Vrabel.`\
-https://nytimes.com/athletic/6048262/2025/01/08/bears-iowa-state-matt-campbell-head-coach-interview/
-
-**49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
-`Show him the money? Shanahan had a strong quote about Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
-https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
 
