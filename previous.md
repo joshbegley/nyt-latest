@@ -1,4 +1,16 @@
-**Three-time Cy Young Award winner Justin Verlander to join Giants on 1-year deal**\
+**Panama Unsettled by Trump Threat to Seize Canal**\
+`Few took the president-elect’s combative comments at face value, but they still sent a shudder through a country that has been invaded by the United States before.`\
+https://nytimes.com/2025/01/07/world/americas/panama-canal-trump.html
+
+**Democrats Prevail in Virginia Races, the First Elections Since Trump’s Win**\
+`The party held onto two key seats in Loudoun County that will allow them to maintain control of the state’s legislature.`\
+https://nytimes.com/2025/01/07/us/politics/virginia-legislature-special-elections-democrats.html
+
+**What to Know About the Santa Ana Winds**\
+`The winds are common in California in the colder months, but they can sometimes help spread dangerous wildfires.`\
+https://nytimes.com/2025/01/07/weather/what-are-santa-ana-winds.html
+
+**Justin Verlander to join Giants on 1-year deal: Source**\
 `The deal has strong parallels to the Giants' 2009 signing of 45-year-old left-hander Randy Johnson.`\
 https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/07/nyregion/eastern-district-us-attorney-joseph-noce
 **Denying a Handshake to Harris, Senator’s Husband Draws Criticism**\
 `The husband of Senator Deb Fischer, Republican of Nebraska, drew criticism online when he failed to accept a handshake offered by Vice President Kamala D. Harris at his wife’s ceremonial swearing-in.`\
 https://nytimes.com/2025/01/07/us/politics/deb-fischer-husband-handshake.html
-
-**Pittsburgh Man Who Threw an Explosive at University Police Gets 5 Years**\
-`Brian DiPippa was accused of dropping smoke bomb containers at a University of Pittsburgh campus transgender rights protest in 2023. His wife, Krystal DiPippa, was sentenced to probation.`\
-https://nytimes.com/2025/01/07/us/pittsburgh-protest-officer-injured-couple-sentenced.html
-
-**U.S. Presses for Release of Americans Held in Afghanistan**\
-`The White House has discussed a possible swap with the Taliban for a prisoner at Guantánamo Bay, according to people familiar with the matter.`\
-https://nytimes.com/2025/01/07/us/politics/american-hostages-taliban-afghanistan.html
-
-**A.I. Start-Up Anthropic Is in Talks That Could Value It at $60 Billion**\
-`The financing efforts follow new funding rounds by Elon Musk’s xAI and the market leader, OpenAI, which is now valued at $157 billion.`\
-https://nytimes.com/2025/01/07/technology/anthropic-ai-funding.html
 

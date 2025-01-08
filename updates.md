@@ -1,3 +1,19 @@
+**Panama Unsettled by Trump Threat to Seize Canal**\
+`Few took the president-elect’s combative comments at face value, but they still sent a shudder through a country that has been invaded by the United States before.`\
+https://nytimes.com/2025/01/07/world/americas/panama-canal-trump.html
+
+**Democrats Prevail in Virginia Races, the First Elections Since Trump’s Win**\
+`The party held onto two key seats in Loudoun County that will allow them to maintain control of the state’s legislature.`\
+https://nytimes.com/2025/01/07/us/politics/virginia-legislature-special-elections-democrats.html
+
+**What to Know About the Santa Ana Winds**\
+`The winds are common in California in the colder months, but they can sometimes help spread dangerous wildfires.`\
+https://nytimes.com/2025/01/07/weather/what-are-santa-ana-winds.html
+
+**Justin Verlander to join Giants on 1-year deal: Source**\
+`The deal has strong parallels to the Giants' 2009 signing of 45-year-old left-hander Randy Johnson.`\
+https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
+
 **Three-time Cy Young Award winner Justin Verlander to join Giants on 1-year deal**\
 `The deal has strong parallels to the Giants' 2009 signing of 45-year-old left-hander Randy Johnson.`\
 https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
