@@ -2,7 +2,7 @@
 `Newcastle United overcame Arsenal in the first-leg of their Carabao Cup semi-final on Tuesday night`\
 https://nytimes.com/athletic/6045457/2025/01/08/newcastle-united-north-london-carabao-cup/
 
-**The anatomy of a gutsy, 164-second shift that defines the Wild's special season**\
+**Anatomy of a gutsy, 161-second shift that defines the Wild's special season**\
 `"It's fun to be playing those situations when it's on the line," Jonas Brodin said. "That's what you dream about when you're a kid."`\
 https://nytimes.com/athletic/6046107/2025/01/08/wild-blues-marcus-johansson-empty-netter/
 
