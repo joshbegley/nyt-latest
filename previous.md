@@ -1,3 +1,12 @@
+**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
+`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
+`\
+https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
+
+**Army Doctor Pleads Guilty to Sexually Assaulting Dozens of Patients**\
+`The doctor, Maj. Michael Stockin, was accused of sexual misconduct by 41 male patients in one of the largest such cases in military history.`\
+https://nytimes.com/2025/01/07/us/army-sexual-assault-doctor-stockin.html
+
 **Panama Unsettled by Trump Threat to Seize Canal**\
 `Few took the president-elect’s combative comments at face value, but they still sent a shudder through a country that has been invaded by the United States before.`\
 https://nytimes.com/2025/01/07/world/americas/panama-canal-trump.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6045469/2025/01/07/arsenal-newcastle-arteta-carabao
 **Shohei Ohtani's former interpreter has sentencing delayed awaiting psychologist's report**\
 `Mizhuara’s lawyers on Tuesday asked the court for the delay so a forensic psychologist could complete a report about Mizhuara's gambling.`\
 https://nytimes.com/athletic/6045394/2025/01/07/ippei-mizuhara-sentencing-delay-psychological-report/
-
-**Trump’s Pick for U.S. Attorney Is Enmeshed in Long Island Politics**\
-`Joseph Nocella Jr. has maintained deep connections in a Republican Party organization that has veered sharply to the right.`\
-https://nytimes.com/2025/01/07/nyregion/eastern-district-us-attorney-joseph-nocella.html
-
-**Denying a Handshake to Harris, Senator’s Husband Draws Criticism**\
-`The husband of Senator Deb Fischer, Republican of Nebraska, drew criticism online when he failed to accept a handshake offered by Vice President Kamala D. Harris at his wife’s ceremonial swearing-in.`\
-https://nytimes.com/2025/01/07/us/politics/deb-fischer-husband-handshake.html
 
