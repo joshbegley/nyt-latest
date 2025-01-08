@@ -1,3 +1,11 @@
+**Hostage Is Found Dead in Gaza Tunnel, Israel Says**\
+`The hostage, Youssef Ziyadne, an Arab Bedouin, was seized along with three grown children on Oct. 7, 2023. Two of them were released, but there is “serious concern” about the fate of the third.`\
+https://nytimes.com/2025/01/08/world/middleeast/israel-gaza-hostage-found-dead.html
+
+**Rate-Cut Decision Was Narrow, Fed Minutes Show**\
+`Stubborn inflation, and potential tariffs, make future rate cuts uncertain.`\
+https://nytimes.com/2025/01/08/business/fed-minutes-rate-cuts-inflation.html
+
 **Sevilla set to sign Swiss international Vargas from Augsburg**\
 `Sevilla are set to agree a deal with Augsburg to sign Switzerland international Ruben Vargas.`\
 https://nytimes.com/athletic/6047645/2025/01/08/ruben-vargas-sevilla-transfer/
