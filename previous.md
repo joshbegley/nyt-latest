@@ -1,3 +1,11 @@
+**What made Cowboys' 2024 season one of the strangest? Bad play, off-field drama, more**\
+`It started with the playoff loss to Green Bay and one thing after another led to the Cowboys' disappointing 7-10 season. `\
+https://nytimes.com/athletic/6045466/2025/01/08/cowboys-strange-season-drama-dak-prescott-jerry-jones/
+
+**Was Miami's 2024 season a success? 8 thoughts on the Hurricanes' present and future**\
+`The Canes won 10 games for only the second time since joining the ACC in 2004, but the season will be remembered for an opportunity lost.`\
+https://nytimes.com/athletic/6045140/2025/01/08/miami-hurricanes-quarterback-mario-cristobal/
+
 **Why Does Trump Want the Panama Canal? Here’s What to Know**\
 `Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
 https://nytimes.com/2025/01/08/world/americas/trump-panama-canal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/tax-cuts-immigration-republicans-trum
 **With Stakes High, Lebanese Lawmakers to Try Again to Choose a President**\
 `Despite pressure by the United States and others to elect a president in order to receive financial support, a consensus candidate has yet to emerge who can clearly end Lebanon’s political gridlock.`\
 https://nytimes.com/2025/01/08/world/middleeast/lebanon-politics-president-parliament-vote.html
-
-**Obamacare Enrollment Hits Record Ahead of Trump’s Return**\
-`Almost 24 million Americans have signed up for plans offered under the Affordable Care Act, driven by subsidies that are expiring and that Congress may not renew.`\
-https://nytimes.com/2025/01/08/us/politics/obamacare-enrollment-hits-record-ahead-of-trumps-return.html
-
-**5 Minutes That Will Make You Love Jazz Guitar**\
-`The instrument hasn’t always been a central player in jazz, but the best guitarists have taken up the challenge of finding their own way. Fourteen musicians and writers share their favorites.`\
-https://nytimes.com/2025/01/08/arts/music/guitar-jazz-music.html
 

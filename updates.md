@@ -1,3 +1,11 @@
+**What made Cowboys' 2024 season one of the strangest? Bad play, off-field drama, more**\
+`It started with the playoff loss to Green Bay and one thing after another led to the Cowboys' disappointing 7-10 season. `\
+https://nytimes.com/athletic/6045466/2025/01/08/cowboys-strange-season-drama-dak-prescott-jerry-jones/
+
+**Was Miami's 2024 season a success? 8 thoughts on the Hurricanes' present and future**\
+`The Canes won 10 games for only the second time since joining the ACC in 2004, but the season will be remembered for an opportunity lost.`\
+https://nytimes.com/athletic/6045140/2025/01/08/miami-hurricanes-quarterback-mario-cristobal/
+
 **Why Does Trump Want the Panama Canal? Here’s What to Know**\
 `Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
 https://nytimes.com/2025/01/08/world/americas/trump-panama-canal.html
