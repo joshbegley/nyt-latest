@@ -1,3 +1,7 @@
+**Perry the Donkey, Model for ‘Shrek,’ Dies at 30**\
+`As Perry’s health declined, fans rallied behind the animal and his companions living in a Bay Area park.`\
+https://nytimes.com/2025/01/07/us/shrek-donkey-perry-dead.html
+
 **49ers moving on from DC Nick Sorensen, hope to retain him on staff**\
 `Perhaps the No. 1 problem working against Sorensen: He wasn't Kyle Shanahan's top candidate when he was hired last offseason.`\
 https://nytimes.com/athletic/6039189/2025/01/07/sf-49ers-defensive-coordinator-nick-sorensen/
