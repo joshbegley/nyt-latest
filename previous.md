@@ -1,3 +1,7 @@
+**Abdul Carter will be a 'game-time decision' while Jeremiyah Love is 'good to go' for Orange Bowl**\
+`Marcus Freeman and James Franklin provided one final injury update ahead of Thursday night’s College Football Playoff semifinal.`\
+https://nytimes.com/athletic/6046948/2025/01/08/jeremiyah-love-abdul-carter-injury-orange-bowl/
+
 **Cotton Bowl weather: Will the winter storm impact Texas vs. Ohio State?**\
 `The National Weather Service placed the Dallas-Fort Worth area under a winter storm warning for Thursday and Friday.`\
 https://nytimes.com/athletic/6046818/2025/01/08/ohio-state-texas-cotton-bowl-weather/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6046160/2025/01/08/canucks-miller-pettersson-trade-
 **Artists Tried to Activate Voters With Billboard Art. Did It Work?**\
 `For Freedoms’ billboards could surprise, comfort or confuse. Now the group is asking, Where do we go from here?`\
 https://nytimes.com/2025/01/08/arts/design/artists-tried-to-activate-voters-with-billboard-art-did-it-work.html
-
-**In Death, Jean-Marie Le Pen of France is Embraced by Far-Right Party He Once Led**\
-`For years, the far-right National Rally tried to distance itself from Mr. Le Pen’s racist and antisemitic remarks. But after his death Tuesday, it hailed him as a visionary.`\
-https://nytimes.com/2025/01/08/world/europe/france-le-pen-death-national-rally.html
 

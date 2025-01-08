@@ -1,3 +1,7 @@
+**Abdul Carter will be a 'game-time decision' while Jeremiyah Love is 'good to go' for Orange Bowl**\
+`Marcus Freeman and James Franklin provided one final injury update ahead of Thursday night’s College Football Playoff semifinal.`\
+https://nytimes.com/athletic/6046948/2025/01/08/jeremiyah-love-abdul-carter-injury-orange-bowl/
+
 **Cotton Bowl weather: Will the winter storm impact Texas vs. Ohio State?**\
 `The National Weather Service placed the Dallas-Fort Worth area under a winter storm warning for Thursday and Friday.`\
 https://nytimes.com/athletic/6046818/2025/01/08/ohio-state-texas-cotton-bowl-weather/
