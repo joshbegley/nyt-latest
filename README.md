@@ -1,3 +1,11 @@
+**A lack of water has hindered firefighting efforts.**\
+`By Kate Selig and Emily Baumgaertner`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/a-lack-of-water-has-hindered-firefighting-efforts
+
+**Sportsbank enter exclusivity to invest in Textor's Eagle Football group**\
+`A sports investment group advised by the former Everton director and experienced football financier Keith Harris has entered a period of exclusivity to invest in John Textor’s Eagle Football Holdings company.`\
+https://nytimes.com/athletic/6047524/2025/01/08/crystal-palace-eagle-football-group-sportsbank/
+
 **Tiny Love Stories: ‘Each Cinematic Conquest Convinced Me You’d Call’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/01/08/style/tiny-modern-love-stories-each-cinematic-conquest-convinced-me-youd-call.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/opinion/mark-zuckerberg-trump-meta-lobbying.html
 **49ers defensive coordinator candidates: Robert Saleh, Jeff Ulbrich and 7 other options**\
 `The 49ers are searching for a defensive coordinator for the third straight year after moving on from Nick Sorensen on Tuesday.`\
 https://nytimes.com/athletic/6047338/2025/01/08/49ers-defensive-coordinator-candidates-saleh-ulbrich/
-
-**Nebraska bolsters offensive line with addition of former 5-star tackle Elijah Pritchett**\
-`Pritchett started 12 of 13 games for Alabama, including 11 at right tackle, in 2024.`\
-https://nytimes.com/athletic/6047371/2025/01/08/nebraska-offensive-line-portal-elijah-pritchett/
-
-**Barcelona's Olmo, Victor given temporary permission to play by Spanish government**\
-`Barcelona will be able to play Dani Olmo and Pau Victor in the second half of the 2024-25 season — for now at least.`\
-https://nytimes.com/athletic/6037707/2025/01/08/dani-olmo-registration-barcelona-update/
 
