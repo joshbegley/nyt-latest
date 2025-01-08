@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall
 `\
 https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
 
+**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
+`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
+`\
+https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
+
 **'Robust market' could have new Twins owner in place by Opening Day: Source**\
 `Twins ownership believes the club could be sold by Opening Day, an industry source briefed on the Twins’ sale process told The Athletic.`\
 https://nytimes.com/athletic/6045579/2025/01/07/minnesota-twins-sale-update-opening-day/
