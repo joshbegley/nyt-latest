@@ -1,3 +1,19 @@
+**Submit your Blues prospect questions for Jeremy Rutherford and Scott Wheeler's mailbag**\
+`Scott Wheeler covered World Juniors, and now is your chance to send him questions about what he saw from the Blues' none prospects there.`\
+https://nytimes.com/athletic/6048021/2025/01/08/st-louis-blues-scott-wheeler-mailbag-january-2025/
+
+**Who Is the Developer Behind Trump’s $20 Billion Data Center Pledge?**\
+`Hussain Sajwani, the founder and chairman of DAMAC Properties of Dubai, built the first Trump-branded golf course in the Middle East a decade ago.`\
+https://nytimes.com/2025/01/08/business/trump-damac-data-centers.html
+
+**The Getty Museum has avoided the worst.**\
+`But beloved shops, beachside restaurants, and a Jewish community center are among the structures lost.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/getty-palisades-fire-los-angeles-california
+
+**VCU, Richmond to host basketball games without fans amid water outage**\
+`The city of Richmond has had water issues since Monday, when a winter storm-created power outage caused the water reservoir system to fail.`\
+https://nytimes.com/athletic/6047979/2025/01/08/richmond-water-outages-spiders-vcu-basketball/
+
 **49ers promote Klay Kubiak to offensive coordinator**\
 `The 49ers have only had one other offensive coordinator by title since Shanahan joined the team: current Dolphins head coach Mike McDaniel`\
 https://nytimes.com/athletic/6047731/2025/01/08/49ers-promote-klay-kubiak-offensive-coordinator/
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/100000009915583/jimmy-carter-funeral-mourners.html
 **Study Links High Fluoride Exposure to Lower I.Q. in Children**\
 `The results of a new federal analysis were drawn from studies conducted in other countries, where drinking water contains more fluoride than in the United States.`\
 https://nytimes.com/2025/01/08/health/fluoride-children-iq.html
-
-**Hostage Is Found Dead in Gaza Tunnel, Israel Says**\
-`The hostage, Youssef Ziyadne, an Arab Bedouin, was seized along with three grown children on Oct. 7, 2023. Two of them were released, but there is “serious concern” about the fate of the third.`\
-https://nytimes.com/2025/01/08/world/middleeast/israel-gaza-hostage-found-dead.html
-
-**Sevilla set to sign Swiss international Vargas from Augsburg**\
-`Sevilla are set to agree a deal with Augsburg to sign Switzerland international Ruben Vargas.`\
-https://nytimes.com/athletic/6047645/2025/01/08/ruben-vargas-sevilla-transfer/
-
-**The Critics Choice Awards are postponed, as the deadly fires disrupt the film industry’s awards season.**\
-`By Derrick Bryson Taylor and Matt Stevens`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/the-critics-choice-awards-are-postponed-as-the-deadly-fires-disrupt-the-film-industrys-awards-season
-
-**Thursday Briefing: Los Angeles Battles Deadly Wildfires**\
-`Plus, how genetics factor into longevity.`\
-https://nytimes.com/2025/01/08/briefing/california-wildfires-trump-panama-afghanistan.html
 
