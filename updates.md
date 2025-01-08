@@ -1,3 +1,7 @@
+**A Far-Right Government in Austria Would Be a Jolt, but Not Unexpected**\
+`The Freedom Party and its leader, Herbert Kickl, have steadily built support by demonizing immigrants, while entering Austria’s political mainstream.`\
+https://nytimes.com/2025/01/08/world/europe/austria-far-right-freedom-party.html
+
 **Hollinger: 10 older (and overseas) prospects worth watching ahead of 2025 draft**\
 `The toughest part of their seasons are ahead, but these experienced players have a good chance to rise on draft boards.`\
 https://nytimes.com/athletic/6043554/2025/01/08/nba-draft-2025-prospects-johni-broome-kam-jones/
