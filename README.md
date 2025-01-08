@@ -1,3 +1,27 @@
+**Why Chicago Bears' Cairo Santos baffled NFL fans with Chelsea-themed game-winner celebration**\
+`After his game-winning kick against Green Bay on Sunday, Chicago's Santos took inspiration from a legend at his beloved Chelsea`\
+https://nytimes.com/athletic/6044410/2025/01/08/cairo-santos-didier-drogba-celebration-chicago-bears/
+
+**‘The Embers Were Just Flying’: Two Friends’ Rush to Save a Family Home**\
+`After evacuating, Orly Israel and a friend went back to his family’s house to try to protect it. But the furious blaze was too much.`\
+https://nytimes.com/2025/01/08/us/pacific-palisades-house-fire-evacuation-california.html
+
+**Dodgers roster projection 1.0: Where things stand after recent moves**\
+`Teoscar Hernández is back, Gavin Lux is gone and injured players are on the mend: Here's what to watch for as spring training draws near.`\
+https://nytimes.com/athletic/6044955/2025/01/08/dodgers-roster-projection-one/
+
+**Ranking NFL playoff coaches by who gives their team biggest edge on fourth downs**\
+`You just know a few of these playoff games will come down to crucial fourth-down decisions. Who will make the right call in crunch time? `\
+https://nytimes.com/athletic/6007051/2025/01/08/nfl-playoffs-coaches-fourth-down-dan-campbell-sean-mcdermott/
+
+**When There’s a Dearth of Good Information on Women’s Health, a Million Scams Bloom**\
+`Especially when fertility is involved.`\
+https://nytimes.com/2025/01/08/opinion/pcos-diagnosis-internet-pregnancy.html
+
+**My Brother and Sister-in-Law No Longer Want to Put Me Up. I’m Hurt!**\
+`A reader feels stung by her brother and his wife’s cooling to an idea that they had once seemed open to: hosting her once a month when she commutes to a faraway office job.`\
+https://nytimes.com/2025/01/08/style/houseguest-arrangments.html
+
 **Tom Allen relishing his opportunity at Penn State: 'What an amazing difference a year makes'**\
 `A year ago, Allen was fired as the head coach at Indiana. Now, he is one win away from reaching the national title game as Penn State's DC. `\
 https://nytimes.com/athletic/6046086/2025/01/08/tom-allen-penn-state-defensive-coordinator-orange-bowl/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6046706/2025/01/08/enes-unal-bournemouth-injury-upd
 **Trump Asks Supreme Court to Halt His Sentencing in N.Y. Criminal Case**\
 `Prosecutors have been ordered to respond to the president-elect’s request by Thursday morning, suggesting the court could rule before Friday’s scheduled sentencing.`\
 https://nytimes.com/2025/01/08/nyregion/trump-sentencing-supreme-court.html
-
-**Duke's win vs. Pitt will be remembered for Cooper Flagg's dunk — and this defensive tweak**\
-`Duke held an offense averaging 84.1 points per game to almost half its season average in a 76-47 win Tuesday over Pitt.`\
-https://nytimes.com/athletic/6046127/2025/01/08/cooper-flagg-dunk-duke-pitt-defense/
-
-**Mark Zuckerberg and the Art of Reading the Room**\
-`Meta’s plan to end its fact-checking program shows how business leaders are shifting their priorities to adapt to another Trump administration.`\
-https://nytimes.com/2025/01/08/business/dealbook/mark-zuckerberg-content-moderation.html
-
-**Seriously? Lakers' loss to depleted Mavericks is latest in long line of inconsistency**\
-`LA went into a two-game Texas trip on a high note, before going 0-2 and confounding JJ Redick with its defensive lapses.`\
-https://nytimes.com/athletic/6045645/2025/01/08/lakers-nba-mavericks-loss-lebron-james/
-
-**Darko Rajaković faces real pressure for first time during Raptors tenure**\
-`With the roster fairly stable and healthy, the Raptors coach must guide his team toward consistency. `\
-https://nytimes.com/athletic/6044860/2025/01/08/raptors-coach-darko-rajakovic-pressure/
-
-**Why Chargers’ Khalil Mack, Joey Bosa gave up millions for a shot at this playoff run**\
-`In three seasons, Mack and Bosa have shared the field for only about a quarter of the snaps. Still, they've developed an unbreakable bond.`\
-https://nytimes.com/athletic/6044888/2025/01/08/chargers-playoffs-khalil-mack-joey-bosa/
-
-**AT&T to Credit Customers After Internet Outages**\
-`The announcement follows a year of high-profile internet blackouts that hit several companies.`\
-https://nytimes.com/2025/01/08/technology/att-outages-credit.html
 

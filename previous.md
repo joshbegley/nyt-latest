@@ -1,3 +1,11 @@
+**Tom Allen relishing his opportunity at Penn State: 'What an amazing difference a year makes'**\
+`A year ago, Allen was fired as the head coach at Indiana. Now, he is one win away from reaching the national title game as Penn State's DC. `\
+https://nytimes.com/athletic/6046086/2025/01/08/tom-allen-penn-state-defensive-coordinator-orange-bowl/
+
+**NASCAR legend Kyle Busch revels in son Brexton's Tulsa win, readies for Chili Bowl**\
+`The NASCAR star talks about son Brexton's big win in Tulsa and his own hopes there next week in the Chili Bowl Midget Nationals.`\
+https://nytimes.com/athletic/6043938/2025/01/08/nascar-kyle-busch-brexton-tulsa-chili-bowl/
+
 **Bournemouth striker Unal suffers ACL tear**\
 `Bournemouth striker Enes Unal is set for an extended period on the sidelines after tearing his right anterior cruciate ligament (ACL).`\
 https://nytimes.com/athletic/6046706/2025/01/08/enes-unal-bournemouth-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6044888/2025/01/08/chargers-playoffs-khalil-mack-jo
 **AT&T to Credit Customers After Internet Outages**\
 `The announcement follows a year of high-profile internet blackouts that hit several companies.`\
 https://nytimes.com/2025/01/08/technology/att-outages-credit.html
-
-**'Look good, feel good, play good': Bills barbers behind the chairs of treasured ritual**\
-`Kenny Harris and Jesse Ciffa are tasked with making the Bills fresh and clean each week during the season.`\
-https://nytimes.com/athletic/6036608/2025/01/08/buffalo-bills-barbers-kenny-harris-jesse-ciffa/
-
-**Nigeria appoint Chelle as new head coach**\
-`Nigeria have appointed Eric Chelle as their new men&#8217;s head coach.`\
-https://nytimes.com/athletic/6046598/2025/01/08/nigeria-eric-chelle-head-coach/
 
