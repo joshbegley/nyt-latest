@@ -1,3 +1,11 @@
+**Justin Trudeau Was His Own Worst Enemy**\
+`Justin Trudeau came to power with a new kind of politics — progressive and identity-based. In the end, it proved his undoing.`\
+https://nytimes.com/2025/01/08/opinion/justin-trudeau-canada-progressive.html
+
+**In Tibet, Survivors of Strong Quake Face Freezing Weather Conditions**\
+`Rescuers rushed to distribute blankets and tents to those displaced by the magnitude-7.1 quake that struck Tibetan villages near Nepal, toppling over 3,000 homes.`\
+https://nytimes.com/2025/01/08/world/asia/tibet-quake-survivors-cold.html
+
 **Oilers dominate in Boston, avoid injury scares: 5 takeaways vs. Bruins**\
 `It wasn't just one Oilers player but two who got hurt on the same sequence late in the first period.`\
 https://nytimes.com/athletic/6046013/2025/01/08/oilers-mattias-janmark-stuart-skinner-injury/
