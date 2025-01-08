@@ -1,3 +1,7 @@
+**49ers promote Klay Kubiak to offensive coordinator**\
+`The 49ers have only had one other offensive coordinator by title since Shanahan joined the team: current Dolphins head coach Mike McDaniel`\
+https://nytimes.com/athletic/6047731/2025/01/08/49ers-promote-klay-kubiak-offensive-coordinator/
+
 **Consulate at Heart of Adams Case Got Special Treatment, Review Finds**\
 `The Turkish Consulate was the only building of its size allowed to open without a required fire safety certification, an investigation by the city comptroller found.`\
 https://nytimes.com/2025/01/08/nyregion/adams-turkish-consulate-fire-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/the-crit
 **Thursday Briefing: Los Angeles Battles Deadly Wildfires**\
 `Plus, how genetics factor into longevity.`\
 https://nytimes.com/2025/01/08/briefing/california-wildfires-trump-panama-afghanistan.html
-
-**Ed Van Put, Who Hooked Jimmy Carter on the Catskills, Dies at 88**\
-`A master fly-fisherman, author and conservationist, he guided the famous, including a former president, and the not-so-famous in the hunt for rainbow trout.`\
-https://nytimes.com/2025/01/08/sports/ed-van-put-dead.html
 
