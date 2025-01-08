@@ -1,3 +1,7 @@
+**Before Quinn Ewers was Texas' QB1, he was a fascinating freshman at Ohio State**\
+`As Ohio State and Texas clash in the Cotton Bowl, a unique chapter of Ewers’ and the Buckeyes’ past has returned to the spotlight.`\
+https://nytimes.com/athletic/6046088/2025/01/08/quinn-ewers-ohio-state-transfer-texas/
+
 **‘A Complete Unknown’ | Anatomy of a Scene**\
 `James Mangold narrates a sequence from his film, starring Timothée Chalamet.`\
 https://nytimes.com/video/movies/100000009912508/a-complete-unknown-scene.html

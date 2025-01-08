@@ -1,3 +1,7 @@
+**Before Quinn Ewers was Texas' QB1, he was a fascinating freshman at Ohio State**\
+`As Ohio State and Texas clash in the Cotton Bowl, a unique chapter of Ewers’ and the Buckeyes’ past has returned to the spotlight.`\
+https://nytimes.com/athletic/6046088/2025/01/08/quinn-ewers-ohio-state-transfer-texas/
+
 **‘A Complete Unknown’ | Anatomy of a Scene**\
 `James Mangold narrates a sequence from his film, starring Timothée Chalamet.`\
 https://nytimes.com/video/movies/100000009912508/a-complete-unknown-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/learning/healthy-eating-habits.html
 **A Security Guard, a Lucky Break and a Sculpture Called ‘Hope’**\
 `How a lucky break led to the dream of a lifetime for a sculptor from Egypt.`\
 https://nytimes.com/2025/01/08/nyregion/egyptian-artist-metropolitan-museum-exhibit.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/08/crosswords/spelling-bee-forum.html
 
