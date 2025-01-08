@@ -1,3 +1,15 @@
+**Italian Journalist Released by Iran, Officials in Italy Say**\
+`Cecilia Sala, 29, who was detained last month in Iran while on a reporting trip, was on a plane back to her home country, the Italian government announced.`\
+https://nytimes.com/2025/01/08/world/europe/italy-iran-cecilia-sala-journalist-released.html
+
+**Several Local Landmarks Are Destroyed in Southern California Wildfires**\
+`A Jewish temple, a high school that served as alma mater for many celebrities, and well-known local restaurants are among the structures that have been destroyed.`\
+https://nytimes.com/2025/01/08/us/california-fires-landmarks-pasadena-palisades-malibu.html
+
+**How Bears GM Ryan Poles can pitch Caleb Williams, roster to coaching candidates**\
+`What does Poles have to offer prospective head coaches when talking about the current roster? Takeaways from his comments.`\
+https://nytimes.com/athletic/6045367/2025/01/08/bears-coaching-search-ryan-poles-caleb-williams/
+
 **Who are top NFL Draft prospects in CFP semis? Which players have most to gain?**\
 `There will be dozens of future NFL players on the field during the College Football Playoff semifinals. `\
 https://nytimes.com/athletic/6044037/2025/01/08/nfl-draft-2025-college-football-playoffs-scouting/
