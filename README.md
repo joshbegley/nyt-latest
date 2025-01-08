@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins lose control, suffer damaging loss to Blue Jackets**\
+`The Penguins blew another two-goal lead and fell 4-3 to Columbus in shootout.`\
+https://nytimes.com/athletic/6045985/2025/01/08/penguins-blue-jackets-evgeni-malkin-injury/
+
 **Liverpool must start planning for a future without Robertson**\
 `The Scot has been a superb servant at Anfield but the evidence is mounting that he is in decline`\
 https://nytimes.com/athletic/6044204/2025/01/08/liverpool-andy-robertson-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6041117/2025/01/08/brighton-loanee-manager-changes/
 **Musiala, Kimmich and Kompany: Why the months ahead will shape Bayern Munich's long-term future**\
 `The Bundesliga resumes this weekend and the league leaders have contract situations to resolve, as well as a title to reclaim`\
 https://nytimes.com/athletic/6043747/2025/01/08/bayern-munich-musiala-kimmich-kompany-bundesliga/
-
-**Artificial intelligence could transform football. So what might the future look like?**\
-`Artificial intelligence has the capacity to transform the sport, whether that is scouting, coaching, injury prevention or extending careers`\
-https://nytimes.com/athletic/5954943/2025/01/08/artificial-intelligence-could-transform-football-so-what-might-the-future-look-like/
 
