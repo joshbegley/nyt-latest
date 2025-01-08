@@ -1,3 +1,31 @@
+**Narrow Hillside Roads Complicate Escape From Palisades Fire**\
+`Pacific Palisades feels like paradise on most days, but evacuating it in a disaster can be a real challenge.`\
+https://nytimes.com/2025/01/08/us/pacific-palisades-escape-routes-wildfire.html
+
+**Manchester City squad audit: Who should stay and who should go?**\
+`Sam Lee runs through the current crop of Manchester City players ahead of what should be a busy year in the transfer market`\
+https://nytimes.com/athletic/6043982/2025/01/08/manchester-city-squad-audit-2025/
+
+**Son Heung-min may be staying at Spurs for another year, but the questions are not over**\
+`Spurs have finally confirmed that they have extended their captain's contract by 12 months, but what will his 2025-26 season look like?`\
+https://nytimes.com/athletic/6041259/2025/01/08/son-heung-min-contract-tottenham-2026/
+
+**EFL ones to watch in January transfer window: Rigg, Esse, Bellingham and more**\
+`Who will be the next EFL starlet to move to bigger things — The Athletic analyses the emerging talent impressing this season`\
+https://nytimes.com/athletic/6005974/2025/01/08/efl-ones-to-watch-in-january-transfer-window-rigg-esse-bellingham-and-more/
+
+**Achampeong? Chalobah? Guehi? How do Chelsea solve their Wesley Fofana problem?**\
+`Chelsea will be without Wesley Fofana for most of the rest of the season — this is how they can deal with it`\
+https://nytimes.com/athletic/6043980/2025/01/08/chelsea-wesley-fofana-injury-analysis-options/
+
+**Facundo Buonanotte is not the only Brighton loanee to endure a change of manager**\
+`The 20-year-old Argentinian is not thriving to the same extent since Ruud van Nistelrooy replaced the sacked Steve Cooper last month`\
+https://nytimes.com/athletic/6041117/2025/01/08/brighton-loanee-manager-changes/
+
+**Musiala, Kimmich and Kompany: Why the months ahead will shape Bayern Munich's long-term future**\
+`The Bundesliga resumes this weekend and the league leaders have contract situations to resolve, as well as a title to reclaim`\
+https://nytimes.com/athletic/6043747/2025/01/08/bayern-munich-musiala-kimmich-kompany-bundesliga/
+
 **Artificial intelligence could transform football. So what might the future look like?**\
 `Artificial intelligence has the capacity to transform the sport, whether that is scouting, coaching, injury prevention or extending careers`\
 https://nytimes.com/athletic/5954943/2025/01/08/artificial-intelligence-could-transform-football-so-what-might-the-future-look-like/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6044096/2025/01/08/club-world-cup-2000-man-united-r
 **Dyche's Everton future, January transfers, TFG's plans - what we're hearing**\
 `With the manager under increasing pressure a pivotal January awaits for Everton and their new owners. Neither can afford any false steps`\
 https://nytimes.com/athletic/6044537/2025/01/08/everton-dyche-future-january-transfers-tfg/
-
-**Blue Jackets end a decade's worth of misery in Pittsburgh, but lose Monahan to injury**\
-`Columbus had been 0-10-5 in the regular season in Pittsburgh since Nov. 2015.`\
-https://nytimes.com/athletic/6045928/2025/01/08/blue-jackets-penguins-streak/
-
-**Polite protests - so time to discover dark arts, are Villa too nice?**\
-`With swing moments often going against them, there’s an argument that Villa could be more streetwise to turn some decisions in their favour`\
-https://nytimes.com/athletic/6006523/2025/01/08/are-aston-villa-too-nice-unai-emery/
-
-**Rangers' Filip Chytil injury concern, K'Andre Miller turnover, more: 4 takeaways vs. Stars**\
-`Chytil did not come out for the third period after sustaining an upper-body injury, according to the team.`\
-https://nytimes.com/athletic/6045975/2025/01/08/rangers-filip-chytil-injury-stars/
-
-**Wednesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/01/08/briefing/meta-fact-checking-trump.html
-
-**Tottenham vs Liverpool preview: Storylines, odds, prediction for Carabao Cup semi-final**\
-`Tottenham host Liverpool in the first leg of a Carabao Cup semi-final. The Reds are expected to advance from the tie.`\
-https://nytimes.com/athletic/6044937/2025/01/08/tottenham-liverpool-preview-odds-prediction-league-cup/
-
-**Quote of the Day: Syrians Rejoice in a Damascus Once Off Limits**\
-`Quotation of the Day for Wednesday, January 7, 2025.`\
-https://nytimes.com/2025/01/07/pageoneplus/quote-of-the-day-syrians-rejoice-in-a-damascus-once-off-limits.html
-
-**Bruins ‘embarrassed’ after an ugly fifth straight loss**\
-`“A lot of disappointment. Embarrassed. Frustration,” Elias Lindholm said after the Bruins' 4-0 loss to the Oilers.`\
-https://nytimes.com/athletic/6045945/2025/01/07/bruins-oilers-elias-lindholm/
 
