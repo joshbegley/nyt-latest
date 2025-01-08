@@ -1,3 +1,7 @@
+**West Ham postpone Lopetegui presser with coach's future uncertain**\
+`West Ham United have cancelled today&#8217;s scheduled press conference for Julen Lopetegui with the Spaniard&#8217;s future at the club uncertain.`\
+https://nytimes.com/athletic/6026725/2025/01/08/julen-lopetegui-west-ham-manager/
+
 **How Bodyguards Are Keeping South Korea’s Leader From Detention**\
 `President Yoon Suk Yeol’s security service stopped an effort to detain him on insurrection charges and has vowed to do so again. Its roots are in the era of military dictatorships.`\
 https://nytimes.com/2025/01/08/world/asia/south-korea-yoon-bodyguards.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html
 https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
 
 **Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
-`Arsenal lost 2-0 to Newcastle at the Emirates Stadium on Tuesday evening`\
+`Had Isak been on the opposite side, Arsenal may well have won the game. That is how fundamentally decisive he was on Tuesday night`\
 https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/
 
 **Word of the Day: actuarial**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/learning/word-of-the-day-actuarial.html
 **North London belongs to Newcastle and now Wembley glitters in the distance**\
 `Newcastle United overcame Arsenal in the first-leg of their Carabao Cup semi-final on Tuesday night`\
 https://nytimes.com/athletic/6045457/2025/01/08/newcastle-united-north-london-carabao-cup/
-
-**Anatomy of a gutsy, 164-second shift that defines the Wild's special season**\
-`"It's fun to be playing those situations when it's on the line," Jonas Brodin said. "That's what you dream about when you're a kid."`\
-https://nytimes.com/athletic/6046107/2025/01/08/wild-blues-marcus-johansson-empty-netter/
 

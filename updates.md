@@ -1,3 +1,11 @@
+**West Ham postpone Lopetegui presser with coach's future uncertain**\
+`West Ham United have cancelled today&#8217;s scheduled press conference for Julen Lopetegui with the Spaniard&#8217;s future at the club uncertain.`\
+https://nytimes.com/athletic/6026725/2025/01/08/julen-lopetegui-west-ham-manager/
+
+**Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
+`Had Isak been on the opposite side, Arsenal may well have won the game. That is how fundamentally decisive he was on Tuesday night`\
+https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/
+
 **How Bodyguards Are Keeping South Korea’s Leader From Detention**\
 `President Yoon Suk Yeol’s security service stopped an effort to detain him on insurrection charges and has vowed to do so again. Its roots are in the era of military dictatorships.`\
 https://nytimes.com/2025/01/08/world/asia/south-korea-yoon-bodyguards.html
