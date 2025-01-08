@@ -1,3 +1,7 @@
+**Wild's Brock Faber injured, Jake Middleton busy in return: 3 takeaways vs. Blues**\
+`Faber left the game with what the team called an upper-body injury and didn't return.`\
+https://nytimes.com/athletic/6045662/2025/01/07/wild-brock-faber-injury-blues/
+
 **Los Angeles Area Braces for Strong Winds That Will Fan Flames**\
 `Officials warned that winds would strengthen overnight, creating conditions for the Palisades blaze to grow and for others to start.`\
 https://nytimes.com/2025/01/07/us/la-wildfire-weather-forecast-wind.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6039189/2025/01/07/sf-49ers-defensive-coordinator-n
 **No. 8 Florida routs No. 1 Tennessee, last unbeaten team in college hoops**\
 `It's the first time the No. 1 team has lost by 30 or more since UCLA crushed Houston 101-69 in 1968.`\
 https://nytimes.com/athletic/6045791/2025/01/07/florida-tennessee-basketball-result/
-
-**Dripping Faucets and Seizing Greenland: Trump Is Back and Chaos Ensues**\
-`President-elect Donald J. Trump’s news conference at Mar-a-Lago was a reminder of what the next four years may have in store.`\
-https://nytimes.com/2025/01/07/us/politics/panama-greenland-trump-media.html
 
