@@ -1,40 +1,40 @@
-**Before Quinn Ewers was Texas' QB1, he was a fascinating freshman at Ohio State**\
-`As Ohio State and Texas clash in the Cotton Bowl, a unique chapter of Ewers’ and the Buckeyes’ past has returned to the spotlight.`\
-https://nytimes.com/athletic/6046088/2025/01/08/quinn-ewers-ohio-state-transfer-texas/
+**Why Does Trump Want the Panama Canal? Here’s What to Know**\
+`Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
+https://nytimes.com/2025/01/08/world/americas/trump-panama-canal.html
 
-**‘A Complete Unknown’ | Anatomy of a Scene**\
-`James Mangold narrates a sequence from his film, starring Timothée Chalamet.`\
-https://nytimes.com/video/movies/100000009912508/a-complete-unknown-scene.html
+**‘Trump Is at His Absolute Worst in a Crisis’: Three Columnists Imagine the World Ahead**\
+`What are the biggest challenges and opportunities facing Trump and his team in foreign policy and national security?`\
+https://nytimes.com/2025/01/08/opinion/donald-trump-second-term-israel-ukraine.html
 
-**Belgian GP extends F1 deal, will be rotated on calendar**\
-`The Circuit de Spa-Francorchamps will feature on the F1 calendar four out of six years between 2026 and 2031.`\
-https://nytimes.com/athletic/6046343/2025/01/08/belgian-gp-f1-spa-francorchamps/
+**Watch Timothée Chalamet Perform in ‘A Complete Unknown’**\
+`The director James Mangold narrates a sequence from his biopic.`\
+https://nytimes.com/2025/01/08/movies/timothee-chalamet-a-complete-unknown-clip.html
 
-**Deschamps to step down after next year's World Cup**\
-`Didier Deschamps has announced that he will step down as France men&#8217;s head coach following the 2026 World Cup in North America.`\
-https://nytimes.com/athletic/6046335/2025/01/08/didier-deschamps-france-manager/
+**Trump’s Lawyers Have Assailed Jack Smith. They Could Soon Have Power to Go After Him.**\
+`The president-elect’s defense lawyers accused the special counsel of unethical and improper behavior in his prosecutions of their client. They could be in senior Justice Department roles within weeks.`\
+https://nytimes.com/2025/01/08/us/politics/trumps-lawyers-jack-smith-justice-department.html
 
-**Another Warriors home blowout loss leaves Steph Curry deflated; season hits a low point**\
-`Curry, when asked how the offense can get better: "I honestly have no idea." When asked if this is the low point of the season: "Yeah."`\
-https://nytimes.com/athletic/6046228/2025/01/08/steph-curry-warriors-low-point-of-season/
+**New Warnings About Alcohol Hit Restaurants at a Tricky Time**\
+`The surgeon general’s call to arms about the link between drinking and cancer could strike at a fiscal lifeline for restaurateurs facing falling sales.`\
+https://nytimes.com/2025/01/08/dining/drinks/restaurants-alcohol-surgeon-general-warning.html
 
-**Visiting Dissident Is Gunned Down in Bangkok**\
-`The shock killing of a former Cambodian politician stoked safety fears that Thailand is no refuge for those fleeing autocracy.`\
-https://nytimes.com/2025/01/08/world/asia/cambodia-politician-dead-bangkok.html
+**Canada’s Camera-Ready Politician**\
+`A magnet for cameras, Justin Trudeau was at the center of moments that defined Canada’s image over the last decade.`\
+https://nytimes.com/2025/01/08/world/canada/justin-trudeau-canada-prime-minister-photos.html
 
-**West Ham postpone Lopetegui presser with coach's future uncertain**\
-`West Ham United have postponed today&#8217;s scheduled press conference for Julen Lopetegui with the Spaniard&#8217;s future at the club uncertain.`\
-https://nytimes.com/athletic/6026725/2025/01/08/julen-lopetegui-west-ham-manager/
+**Tax Cuts or the Border? Republicans Wrestle Over Priorities.**\
+`President-elect Donald J. Trump has waffled on his preferences for how his party tackles his agenda, adding to the uncertainty for Republicans.`\
+https://nytimes.com/2025/01/08/us/politics/tax-cuts-immigration-republicans-trump.html
 
-**How Bodyguards Are Keeping South Korea’s Leader From Detention**\
-`President Yoon Suk Yeol’s security service stopped an effort to detain him on insurrection charges and has vowed to do so again. Its roots are in the era of military dictatorships.`\
-https://nytimes.com/2025/01/08/world/asia/south-korea-yoon-bodyguards.html
+**With Stakes High, Lebanese Lawmakers to Try Again to Choose a President**\
+`Despite pressure by the United States and others to elect a president in order to receive financial support, a consensus candidate has yet to emerge who can clearly end Lebanon’s political gridlock.`\
+https://nytimes.com/2025/01/08/world/middleeast/lebanon-politics-president-parliament-vote.html
 
-**Healthy Eating Habits**\
-`How healthy is your diet? What can you do in 2025 to improve it?`\
-https://nytimes.com/2025/01/08/learning/healthy-eating-habits.html
+**Obamacare Enrollment Hits Record Ahead of Trump’s Return**\
+`Almost 24 million Americans have signed up for plans offered under the Affordable Care Act, driven by subsidies that are expiring and that Congress may not renew.`\
+https://nytimes.com/2025/01/08/us/politics/obamacare-enrollment-hits-record-ahead-of-trumps-return.html
 
-**A Security Guard, a Lucky Break and a Sculpture Called ‘Hope’**\
-`How a lucky break led to the dream of a lifetime for a sculptor from Egypt.`\
-https://nytimes.com/2025/01/08/nyregion/egyptian-artist-metropolitan-museum-exhibit.html
+**5 Minutes That Will Make You Love Jazz Guitar**\
+`The instrument hasn’t always been a central player in jazz, but the best guitarists have taken up the challenge of finding their own way. Fourteen musicians and writers share their favorites.`\
+https://nytimes.com/2025/01/08/arts/music/guitar-jazz-music.html
 
