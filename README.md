@@ -1,3 +1,11 @@
+**West Ham agree deal to hire Potter as new head coach**\
+`West Ham United have agreed a deal to appoint Graham Potter as their new head coach on a two-and-a-half-year deal.`\
+https://nytimes.com/athletic/5968828/2025/01/08/graham-potter-west-ham-next-manager/
+
+**Justice Dept. Signals Report on Trump Documents Case May Never Be Released**\
+`In a court filing, the department indicated that the report by the special counsel, Jack Smith, may not be made public before Donald J. Trump takes office, raising the prospect that the new administration will bury it.`\
+https://nytimes.com/2025/01/08/us/politics/trump-documents-report-jack-smith.html
+
 **U.A.W. Seeks Union Election at Ford Battery Plant in Kentucky**\
 `The United Automobile Workers union asked a federal labor regulator to conduct an election at a factory Ford jointly owns with a South Korean battery company.`\
 https://nytimes.com/2025/01/08/business/ford-union-election-kentucky-factory.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/world/asia/greenland-trump-denmark.html
 **As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
 `Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own — and that he is willing to silence them on X.`\
 https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
-
-**Penguins Today: Tristan Jarry nears an unwelcome team record**\
-`Last night, Jarry inched closer to a Tom Barrasso Penguins record he doesn't want.`\
-https://nytimes.com/athletic/6046879/2025/01/08/penguins-today-tristan-jarry-first-shot-goals/
-
-**Jenna Bush Hager: ‘Today’ Show Co-Host, Literary Tastemaker and Now, Publisher**\
-`Nearly six years after becoming a literary heavyweight with “Read with Jenna,” she’s starting her own publishing venture with Penguin Random House.`\
-https://nytimes.com/2025/01/08/books/jenna-bush-hager-publishing-books.html
 
