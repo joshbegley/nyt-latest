@@ -1,3 +1,11 @@
+**Seriously? Lakers' loss to depleted Mavericks is latest in long line of inconsistency**\
+`LA went into a two-game Texas trip on a high note, before going 0-2 and confounding JJ Redick with its defensive lapses.`\
+https://nytimes.com/athletic/6045645/2025/01/08/lakers-nba-mavericks-loss-lebron-james/
+
+**Darko Rajaković faces real pressure for first time during Raptors tenure**\
+`With the roster fairly stable and healthy, the Raptors coach must guide his team toward consistency. `\
+https://nytimes.com/athletic/6044860/2025/01/08/raptors-coach-darko-rajakovic-pressure/
+
 **Why Chargers’ Khalil Mack, Joey Bosa gave up millions for a shot at this playoff run**\
 `In three seasons, Mack and Bosa have shared the field for only about a quarter of the snaps. Still, they've developed an unbreakable bond.`\
 https://nytimes.com/athletic/6044888/2025/01/08/chargers-playoffs-khalil-mack-joey-bosa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6046331/2025/01/08/celtics-kristaps-porzingis-nba-d
 **Ukraine Strikes Oil Depot Near Russian Air Base, Ukrainian Military Says**\
 `The attack was the latest effort to inflict pain on Russia even as Kyiv is losing ground on the battlefield at home.`\
 https://nytimes.com/2025/01/08/world/europe/ukraine-russia-oil-depot.html
-
-**Which Eastern Conference trades and signings have aged best and worst?**\
-`Analyzing every Eastern Conference team's most noteworthy moves and how they've panned out so far.`\
-https://nytimes.com/athletic/6036347/2025/01/08/nhl-trades-eastern-conference-signings/
-
-**What went wrong with the Raiders and Antonio Pierce: A bad staff, QB problems and an unhappy WR**\
-`From Luke Getsy's struggles to Gardner Minshew's play and Davante Adams' behavior, Pierce had little chance to succeed in Las Vegas.`\
-https://nytimes.com/athletic/6045601/2025/01/08/raiders-fire-coach-antonio-pierce-mark-davis/
 

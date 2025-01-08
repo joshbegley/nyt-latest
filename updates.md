@@ -1,3 +1,11 @@
+**Seriously? Lakers' loss to depleted Mavericks is latest in long line of inconsistency**\
+`LA went into a two-game Texas trip on a high note, before going 0-2 and confounding JJ Redick with its defensive lapses.`\
+https://nytimes.com/athletic/6045645/2025/01/08/lakers-nba-mavericks-loss-lebron-james/
+
+**Darko Rajaković faces real pressure for first time during Raptors tenure**\
+`With the roster fairly stable and healthy, the Raptors coach must guide his team toward consistency. `\
+https://nytimes.com/athletic/6044860/2025/01/08/raptors-coach-darko-rajakovic-pressure/
+
 **Why Chargers’ Khalil Mack, Joey Bosa gave up millions for a shot at this playoff run**\
 `In three seasons, Mack and Bosa have shared the field for only about a quarter of the snaps. Still, they've developed an unbreakable bond.`\
 https://nytimes.com/athletic/6044888/2025/01/08/chargers-playoffs-khalil-mack-joey-bosa/
