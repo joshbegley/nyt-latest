@@ -1,3 +1,15 @@
+**Yamal hoping to renew Barcelona contract: 'It is the club of my life'**\
+`Lamine Yamal is hoping to sign a long-term contract at Barcelona and believes the deal will be finalised &#8220;soon&#8221;.`\
+https://nytimes.com/athletic/6047213/2025/01/08/lamine-yamal-barcelona-contract-renews/
+
+**2024 fantasy football draft strategy lookback: Elite tight ends bust and heroRB vs. zeroRB**\
+`Looking back on popular draft strategies, Renee Miller reviews what worked and what didn't in 2024. `\
+https://nytimes.com/athletic/6046835/2025/01/08/nfl-fantasy-football-draft-strategy-lookback-2024/
+
+**Director of Netflix’s ‘Jerry Springer Show’ Documentary Offers 5 Takeaways**\
+`Luke Sewell spoke about the complex legacy of the notorious talk show, which both coarsened American culture and affirmed the values of free speech.`\
+https://nytimes.com/2025/01/08/arts/television/jerry-springer-netflix-documentary-5-takeaways.html
+
 **I’m Speaking at a Friend’s Funeral. Can I Tell a Story that Could be Wrong?**\
 `The magazine’s Ethicist columnist on the fallibility of memory.`\
 https://nytimes.com/2025/01/08/magazine/friend-funeral-story-ethics.html
