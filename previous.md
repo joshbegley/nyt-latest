@@ -1,3 +1,15 @@
+**Sevilla set to sign Swiss international Vargas from Augsburg**\
+`Sevilla are set to agree a deal with Augsburg to sign Switzerland international Ruben Vargas.`\
+https://nytimes.com/athletic/6047645/2025/01/08/ruben-vargas-sevilla-transfer/
+
+**The Critics Choice Awards are postponed, as the deadly fires disrupt the film industry’s awards season.**\
+`By Derrick Bryson Taylor and Matt Stevens`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/the-critics-choice-awards-are-postponed-as-the-deadly-fires-disrupt-the-film-industrys-awards-season
+
+**Thursday Briefing: Los Angeles Battles Deadly Wildfires**\
+`Plus, how genetics factor into longevity.`\
+https://nytimes.com/2025/01/08/briefing/california-wildfires-trump-panama-afghanistan.html
+
 **Ed Van Put, Who Hooked Jimmy Carter on the Catskills, Dies at 88**\
 `A master fly-fisherman, author and conservationist, he guided the famous, including a former president, and the not-so-famous in the hunt for rainbow trout.`\
 https://nytimes.com/2025/01/08/sports/ed-van-put-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6047324/2025/01/08/ana-barbosu-romanian-gymnast-sta
 **Power lines, involved in previous Calif. fires, will be under scrutiny again.**\
 `By Ivan Penn`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/power-lines-involved-in-previous-calif-fires-will-be-under-scrutiny-again
-
-**Raiders reach out to Bill Belichick, but coach has no plans to leave UNC: Sources**\
-`Raiders could be interested in reuniting Belichick, 72, and Tom Brady, but coach reportedly has no plans to leave North Carolina.`\
-https://nytimes.com/athletic/6047516/2025/01/08/raiders-bill-belichick-coaching-search/
-
-**Thompson: Fading Warriors, defeated and desperate, need a trade in the worst way**\
-`This Warriors team isn't it. Everyone in the organization can feel it. Will they go out like this?`\
-https://nytimes.com/athletic/6047544/2025/01/08/golden-state-warriors-trade-deadline-struggles/
-
-**Wildfires Intensify Pivotal Moment for Insurance Industry**\
-`California’s vulnerable homeowners insurance industry faces a test as fires rage across Los Angeles.`\
-https://nytimes.com/2025/01/08/us/fire-insurance-california.html
 

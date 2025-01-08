@@ -1,3 +1,15 @@
+**Sevilla set to sign Swiss international Vargas from Augsburg**\
+`Sevilla are set to agree a deal with Augsburg to sign Switzerland international Ruben Vargas.`\
+https://nytimes.com/athletic/6047645/2025/01/08/ruben-vargas-sevilla-transfer/
+
+**The Critics Choice Awards are postponed, as the deadly fires disrupt the film industry’s awards season.**\
+`By Derrick Bryson Taylor and Matt Stevens`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/the-critics-choice-awards-are-postponed-as-the-deadly-fires-disrupt-the-film-industrys-awards-season
+
+**Thursday Briefing: Los Angeles Battles Deadly Wildfires**\
+`Plus, how genetics factor into longevity.`\
+https://nytimes.com/2025/01/08/briefing/california-wildfires-trump-panama-afghanistan.html
+
 **Ed Van Put, Who Hooked Jimmy Carter on the Catskills, Dies at 88**\
 `A master fly-fisherman, author and conservationist, he guided the famous, including a former president, and the not-so-famous in the hunt for rainbow trout.`\
 https://nytimes.com/2025/01/08/sports/ed-van-put-dead.html
