@@ -1,3 +1,7 @@
+**Deschamps to step down after next year's World Cup**\
+`Didier Deschamps has announced that he will step down as France men&#8217;s head coach following the 2026 World Cup in North America.`\
+https://nytimes.com/athletic/6046335/2025/01/08/didier-deschamps-france-manager/
+
 **Another Warriors home blowout loss leaves Steph Curry deflated; season hits a low point**\
 `Curry, when asked how the offense can get better: "I honestly have no idea." When asked if this is the low point of the season: "Yeah."`\
 https://nytimes.com/athletic/6046228/2025/01/08/steph-curry-warriors-low-point-of-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html
 **Late Night Jokes Its Way From Canada to the ‘Gulf of America’**\
 `“We have been so concerned about all the scary things that Trump’s going to do, we forgot he’s also going to do some really stupid things,” Desi Lydic said on “The Daily Show.”`\
 https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
-
-**Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
-`Had Isak been on the opposite side, Arsenal may well have won the game. That is how fundamentally decisive he was on Tuesday night`\
-https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/
 
