@@ -1,5 +1,9 @@
+**Presidential Odd Couple: After a Tough Race, Carter and Ford Became Friends**\
+`Jimmy Carter and Gerald R. Ford faced off in 1976 in a bitter campaign but later bonded as few presidents have — and made a pact to speak at each other’s funerals.`\
+https://nytimes.com/2025/01/08/us/politics/carter-ford-friendship.html
+
 **The Briefing: Tottenham 1 Liverpool 0 - Bergvall's winner, Bentancur stretchered off, Slot's side toothless**\
-`Jack Pitt-Brooke, Jay Harris and Andy Jones break down the main talking points from Tottenham's 1-0 league cup semi-final win over Liverpool`\
+`Jack Pitt-Brooke, Jay Harris and Andy Jones break down the main talking points from Tottenham's 1-0 League Cup semi-final win over Liverpool`\
 https://nytimes.com/athletic/6043915/2025/01/08/tottenham-1-liverpool-0-bergvall-bentancur-carabao-cup/
 
 **Some of the city’s most expensive real estate is burning.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047442/2025/01/08/palisades-fire-wildfire-la-eaton
 **Wisconsin cornerback Ricardo Hallman to return for fifth season with the Badgers**\
 `Hallman has played in 37 career games with 33 starts, including starting every game the past two seasons.`\
 https://nytimes.com/athletic/6048028/2025/01/08/ricardo-hallman-return-wisconsin-cornerback/
-
-**Mike Vrabel or Ben Johnson? What we're hearing about the Patriots' coaching search**\
-`The latest on New England's coaching search has Vrabel interviewing Thursday and Johnson and Aaron Glenn following suit virtually.`\
-https://nytimes.com/athletic/6047171/2025/01/08/patriots-coaching-search-mike-vrabel-ben-johnson/
 
