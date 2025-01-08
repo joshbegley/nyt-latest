@@ -1,3 +1,7 @@
+**Could a small-market team be a surprise fit for Roki Sasaki? Parsing his agent's words**\
+`Conventional wisdom says a big-market team like the Dodgers will be the choice. But what if other factors are at play? We rank the options.`\
+https://nytimes.com/athletic/6045382/2025/01/08/roki-sasaki-team-odds-mlb/
+
 **What made Cowboys' 2024 season one of the strangest? Bad play, off-field drama, more**\
 `It started with the playoff loss to Green Bay and one thing after another led to the Cowboys' disappointing 7-10 season. `\
 https://nytimes.com/athletic/6045466/2025/01/08/cowboys-strange-season-drama-dak-prescott-jerry-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/world/canada/justin-trudeau-canada-prime-minister
 **Tax Cuts or the Border? Republicans Wrestle Over Priorities.**\
 `President-elect Donald J. Trump has waffled on his preferences for how his party tackles his agenda, adding to the uncertainty for Republicans.`\
 https://nytimes.com/2025/01/08/us/politics/tax-cuts-immigration-republicans-trump.html
-
-**With Stakes High, Lebanese Lawmakers to Try Again to Choose a President**\
-`Despite pressure by the United States and others to elect a president in order to receive financial support, a consensus candidate has yet to emerge who can clearly end Lebanon’s political gridlock.`\
-https://nytimes.com/2025/01/08/world/middleeast/lebanon-politics-president-parliament-vote.html
 
