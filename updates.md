@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall
 `\
 https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
 
+**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
+`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
+`\
+https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
+
 **Army Doctor Pleads Guilty to Sexually Assaulting Dozens of Patients**\
 `The doctor, Maj. Michael Stockin, was accused of sexual misconduct by 41 male patients in one of the largest such cases in military history.`\
 https://nytimes.com/2025/01/07/us/army-sexual-assault-doctor-stockin.html

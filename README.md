@@ -1,7 +1,3 @@
-**'Robust market' could have new Twins owner in place by Opening Day: Source**\
-`Twins ownership believes the club could be sold by Opening Day, an industry source briefed on the Twins’ sale process told The Athletic.`\
-https://nytimes.com/athletic/6045579/2025/01/07/minnesota-twins-sale-update-opening-day/
-
 **Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
 `Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
 `\
@@ -38,4 +34,8 @@ https://nytimes.com/2025/01/07/technology/meta-facebook-content-moderation.html
 **Arteta says Arsenal can still win semi-final if they adapt to “tricky” ball**\
 `Mikel Arteta lamented Arsenal’s inefficiency in front of goal compared to Newcastle and Alexander Isak, but backed his players to turn around the 2-0 Carabao Cup deficit &#8211; so long as they adapt to the “tricky” ball being used in the competition.`\
 https://nytimes.com/athletic/6045469/2025/01/07/arsenal-newcastle-arteta-carabao-cup-ball/
+
+**Shohei Ohtani's former interpreter has sentencing delayed awaiting psychologist's report**\
+`Mizhuara’s lawyers on Tuesday asked the court for the delay so a forensic psychologist could complete a report about Mizhuara's gambling.`\
+https://nytimes.com/athletic/6045394/2025/01/07/ippei-mizuhara-sentencing-delay-psychological-report/
 
