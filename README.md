@@ -1,3 +1,11 @@
+**Matt Seidler denies Padres relocation talk, responds to Sheel Seidler's lawsuit in letter**\
+`Matt Seidler addressed Sheel Seidler's claims of relocation, her case to be named control person of the Padres and more.`\
+https://nytimes.com/athletic/6045842/2025/01/07/padres-matt-seidler-letter-response-sheel-seidler-lawsuit/
+
+**Former Mexico head coach Miguel Herrera appointed to lead Costa Rica**\
+`Colorful coach Herrera is back on the international coaching circuit.`\
+https://nytimes.com/athletic/6045859/2025/01/07/miguel-herrera-mexico-coach-costa-rica-usmnt/
+
 **Surveyor’s Measure**\
 `Laura Dershewitz’s puzzle nets positive.`\
 https://nytimes.com/2025/01/07/crosswords/daily-puzzle-2025-01-08.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6045559/2025/01/07/bears-coaching-rumors-pete-carro
 **Wind-Fueled Fire Consumes a Los Angeles Neighborhood**\
 `A fire in Southern California grew with dizzying speed on Tuesday forcing evacuations and threatening at least 10,000 homes.`\
 https://nytimes.com/2025/01/07/us/california-wildfire-photos.html
-
-**Day 3: For Healthy Snacks You Actually Crave, Try a Sprinkle of ‘Flavor Dust’**\
-`Today’s challenge includes recipes you can try.`\
-https://nytimes.com/2025/01/07/well/healthy-snack-recipes.html
-
-**Biden Administration Moves to Halt Sept. 11 Plea Deal**\
-`Justice Department lawyers are defending the defense secretary’s decision to back out of the agreement that avoided a death penalty trial, moving the question from military to civilian courts.`\
-https://nytimes.com/2025/01/07/us/politics/sept-11-plea-deal.html
 
