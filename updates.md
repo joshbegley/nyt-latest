@@ -1,3 +1,11 @@
+**The Perfect Housewarming Present for Trump’s Second Term**\
+`Trump may be inheriting ‘Morning in America’. Will Americans accept being happy?`\
+https://nytimes.com/2025/01/08/opinion/trump-trends.html
+
+**Blinken and Top French Diplomat Criticize Trump’s Talk of Taking Greenland**\
+`In Paris, the two officials acknowledged potential strains on alliances with the return of Donald J. Trump to power, but said their countries would try to maintain strong ties.`\
+https://nytimes.com/2025/01/08/world/europe/blinken-france-trump.html
+
 **Florida to host 2 outdoor NHL games in 2026, including Winter Classic in Miami**\
 `The Panthers will host the Rangers at loanDepot park on Jan. 2, 2026, and the Lightning will host the Bruins at the Raymond James on Feb. 1.`\
 https://nytimes.com/athletic/6045691/2025/01/08/florida-nhl-outdoor-games/
