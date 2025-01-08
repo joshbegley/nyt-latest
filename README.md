@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6046818/2025/01/08/ohio-state-texas-cotton-bowl-wea
 https://nytimes.com/2025/01/08/world/asia/greenland-trump-denmark.html
 
 **As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
-`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own.`\
+`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own — and that he is willing to silence them on X.`\
 https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
 
 **Penguins Today: Tristan Jarry nears an unwelcome team record**\

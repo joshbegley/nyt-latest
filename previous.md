@@ -1,3 +1,11 @@
+**Winds Are Expected to Ease in Southern California, but Fire Danger Will Remain**\
+`The gusty winds that helped spread multiple wildfires will slow on Wednesday, but dry conditions mean less potent winds could still be dangerous.`\
+https://nytimes.com/2025/01/08/weather/california-winds-fires-forecast.html
+
+**Matt Gaetz Floats a Run for Florida Governor in 2026**\
+`The former congressman was the focus of a House Ethics panel report accusing him of “regularly” paying for sex and using drugs, which helped doom his short-lived nomination for attorney general.`\
+https://nytimes.com/2025/01/08/us/politics/matt-gaetz-florida-governor.html
+
 **For Him, the Beer in Your Hand Is the End of the Story**\
 `Joshua M. Bernstein was writing about bars and nightlife when the craft brew wave start to rise.`\
 https://nytimes.com/2025/01/08/insider/craft-beer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/books/jenna-bush-hager-publishing-books.html
 **Jets midseason report cards: Kyle Connor, Mark Scheifele lead forward class**\
 `The Jets' dominant power play has been an enormous boost and multiple forwards are on pace for career highs. Who's leading the way?`\
 https://nytimes.com/athletic/6042151/2025/01/08/winnipeg-jets-nhl-grades-scheifele-connor/
-
-**Biden Acknowledges He Might Not Have Been Able to Serve Four More Years**\
-`President Biden insisted that he still could have beaten Donald J. Trump had he stayed in the race, but could not say he would have been vital enough to be president until age 86.`\
-https://nytimes.com/2025/01/08/us/politics/biden-interview.html
-
-**Canucks notebook: The J.T. Miller and Elias Pettersson rumour mill churns again**\
-`As trade rumours roll on, the Canucks are once again the biggest story in hockey.`\
-https://nytimes.com/athletic/6046160/2025/01/08/canucks-miller-pettersson-trade-rumors-nhl/
 
