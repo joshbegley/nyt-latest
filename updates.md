@@ -1,3 +1,15 @@
+**Consulate at Heart of Adams Case Got Special Treatment, Review Finds**\
+`The Turkish Consulate was the only building of its size allowed to open without a required fire safety certification, an investigation by the city comptroller found.`\
+https://nytimes.com/2025/01/08/nyregion/adams-turkish-consulate-fire-investigation.html
+
+**A Dangerously Dry Southern California Was Ready to Burn**\
+`Parched vegetation combined with strong Santa Ana winds and low relative humidity levels led to the devastating wildfires in Los Angeles County.`\
+https://nytimes.com/2025/01/08/weather/southern-california-fire-winds-dry.html
+
+**Opening Your First Restaurant in New York? We Want to Hear From You.**\
+`We want to follow a budding restaurateur as they set up shop in New York and navigate the city’s dining scene.`\
+https://nytimes.com/2025/01/08/dining/first-time-restaurant-owners-wanted.html
+
 **Mourners Pay Their Respects to Former President Jimmy Carter**\
 `Visitors said their final goodbyes to Jimmy Carter, lying in state at the Capitol, and reflected on what the former president meant to them.`\
 https://nytimes.com/video/us/100000009915583/jimmy-carter-funeral-mourners.html

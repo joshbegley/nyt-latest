@@ -1,3 +1,15 @@
+**Consulate at Heart of Adams Case Got Special Treatment, Review Finds**\
+`The Turkish Consulate was the only building of its size allowed to open without a required fire safety certification, an investigation by the city comptroller found.`\
+https://nytimes.com/2025/01/08/nyregion/adams-turkish-consulate-fire-investigation.html
+
+**A Dangerously Dry Southern California Was Ready to Burn**\
+`Parched vegetation combined with strong Santa Ana winds and low relative humidity levels led to the devastating wildfires in Los Angeles County.`\
+https://nytimes.com/2025/01/08/weather/southern-california-fire-winds-dry.html
+
+**Opening Your First Restaurant in New York? We Want to Hear From You.**\
+`We want to follow a budding restaurateur as they set up shop in New York and navigate the city’s dining scene.`\
+https://nytimes.com/2025/01/08/dining/first-time-restaurant-owners-wanted.html
+
 **Mourners Pay Their Respects to Former President Jimmy Carter**\
 `Visitors said their final goodbyes to Jimmy Carter, lying in state at the Capitol, and reflected on what the former president meant to them.`\
 https://nytimes.com/video/us/100000009915583/jimmy-carter-funeral-mourners.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/08/briefing/california-wildfires-trump-panama-afghan
 **Ed Van Put, Who Hooked Jimmy Carter on the Catskills, Dies at 88**\
 `A master fly-fisherman, author and conservationist, he guided the famous, including a former president, and the not-so-famous in the hunt for rainbow trout.`\
 https://nytimes.com/2025/01/08/sports/ed-van-put-dead.html
-
-**California Wildfires Threaten Insurers Already Teetering From Climate Shocks**\
-`Companies started pulling back from the state as earlier fires made it harder to turn a profit. Experts warn the exodus could grow.`\
-https://nytimes.com/2025/01/08/climate/california-wildfires-threaten-insurers-already-teetering-from-climate-shocks.html
-
-**Barbara Lee, a Progressive Pillar of the House, Is Running for Oakland Mayor**\
-`The Bay Area politician, known for her antiwar position and breaking barriers in Congress, just left the House after more than two decades.`\
-https://nytimes.com/2025/01/08/us/politics/barbara-lee-oakland-mayor-race.html
-
-**N.Y.C. Election Board Refused to Fire Leader Who Harassed Female Workers**\
-`The executive director of the New York City Board of Elections made inappropriate sexual and racial remarks toward two employees over a period of several months, a watchdog found.`\
-https://nytimes.com/2025/01/08/nyregion/nyc-board-of-elections-director-harassment.html
 
