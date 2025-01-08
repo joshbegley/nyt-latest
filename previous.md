@@ -1,3 +1,7 @@
+**Mark Zuckerberg Swings Left, Swings Right, Wins Big With Both**\
+`Zuckerberg has leveraged his political ambiguity to strengthen Meta, with consequences for the future of Silicon Valley and for the truth.`\
+https://nytimes.com/2025/01/08/opinion/mark-zuckerberg-trump-meta-lobbying.html
+
 **49ers defensive coordinator candidates: Robert Saleh, Jeff Ulbrich and 7 other options**\
 `The 49ers are searching for a defensive coordinator for the third straight year after moving on from Nick Sorensen on Tuesday.`\
 https://nytimes.com/athletic/6047338/2025/01/08/49ers-defensive-coordinator-candidates-saleh-ulbrich/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/opinion/canada-51st-state-trump.html
 **USWNT Futures Camp provides a glimpse into Emma Hayes' long-term strategy**\
 `Plus, three key players to watch`\
 https://nytimes.com/athletic/6047288/2025/01/08/uswnt-futures-camp-emma-hayes-soccer/
-
-**Eagles QB Jalen Hurts to return to practice Wednesday**\
-`Hurts hasn't played or practiced since entering the NFL's concussion protocol in a Week 16 loss to the Washington Commanders`\
-https://nytimes.com/athletic/6047369/2025/01/08/jalen-hurts-practice-concussion-wild-card/
 

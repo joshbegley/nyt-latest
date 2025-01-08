@@ -1,3 +1,7 @@
+**Mark Zuckerberg Swings Left, Swings Right, Wins Big With Both**\
+`Zuckerberg has leveraged his political ambiguity to strengthen Meta, with consequences for the future of Silicon Valley and for the truth.`\
+https://nytimes.com/2025/01/08/opinion/mark-zuckerberg-trump-meta-lobbying.html
+
 **49ers defensive coordinator candidates: Robert Saleh, Jeff Ulbrich and 7 other options**\
 `The 49ers are searching for a defensive coordinator for the third straight year after moving on from Nick Sorensen on Tuesday.`\
 https://nytimes.com/athletic/6047338/2025/01/08/49ers-defensive-coordinator-candidates-saleh-ulbrich/
