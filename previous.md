@@ -1,3 +1,11 @@
+**SAG Award Nominations 2025: ‘Wicked’ Casts a Strong Spell**\
+`The box office hit landed five nods, while “The Last Showgirl” received unexpected recognition for stars Pamela Anderson and Jamie Lee Curtis.`\
+https://nytimes.com/2025/01/08/movies/sag-award-nominations-list.html
+
+**Sharks midseason report cards: Top marks for Celebrini and Askarov, but who else?**\
+`There are reasons to be optimistic after the season's first half, but losing is still losing. Let's grade every Shark's performance so far.`\
+https://nytimes.com/athletic/6046300/2025/01/08/sharks-celebrini-askarov-nhl-2025-grades/
+
 **West Ham and Lopetegui's week on the brink: Three training sessions, Fonseca talks, Potter hold-up**\
 `West Ham and head coach Julen Lopetegui spent the past few days edging towards an inevitable exit, just eight months after his appointment`\
 https://nytimes.com/athletic/6044388/2025/01/08/west-ham-julen-lopetegui-final-week/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/climate/arctic-wildlife-refuge-drilling-leases.ht
 **Please Don’t Eat Your Christmas Tree, Belgium Urges the Public**\
 `The country’s food agency warned against using evergreens in food after the city of Ghent suggested an unusual form of recycling: spruce needle butter.`\
 https://nytimes.com/2025/01/08/world/europe/belgium-christmas-tree-eating.html
-
-**SAG Award nomination event canceled as more actors flee their homes.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/sag-award-nomination-event-canceled-as-more-actors-flee-their-homes
-
-**Kawhi Leonard exclusive: Clippers’ star opens up about his NBA return**\
-`"We played five preseason games. Now, I'm looking at this as my preseason," Leonard said in an exclusive interview with The Athletic.`\
-https://nytimes.com/athletic/6044693/2025/01/08/kawhi-leonard-clippers-nba-exclusive/
 

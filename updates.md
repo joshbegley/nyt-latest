@@ -1,3 +1,11 @@
+**SAG Award Nominations 2025: ‘Wicked’ Casts a Strong Spell**\
+`The box office hit landed five nods, while “The Last Showgirl” received unexpected recognition for stars Pamela Anderson and Jamie Lee Curtis.`\
+https://nytimes.com/2025/01/08/movies/sag-award-nominations-list.html
+
+**Sharks midseason report cards: Top marks for Celebrini and Askarov, but who else?**\
+`There are reasons to be optimistic after the season's first half, but losing is still losing. Let's grade every Shark's performance so far.`\
+https://nytimes.com/athletic/6046300/2025/01/08/sharks-celebrini-askarov-nhl-2025-grades/
+
 **West Ham and Lopetegui's week on the brink: Three training sessions, Fonseca talks, Potter hold-up**\
 `West Ham and head coach Julen Lopetegui spent the past few days edging towards an inevitable exit, just eight months after his appointment`\
 https://nytimes.com/athletic/6044388/2025/01/08/west-ham-julen-lopetegui-final-week/
