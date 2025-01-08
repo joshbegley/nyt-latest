@@ -1,3 +1,7 @@
+**The health secretary strongly suggests Biden should not pardon Fauci.**\
+`Xavier Becerra, President Biden’s health secretary, said there should be a high bar in the pardon process. Mr. Biden has not ruled out pre-emptive pardons for those targeted by Donald Trump and his allies.`\
+https://nytimes.com/live/2025/01/08/us/trump-news/the-health-secretary-strongly-suggests-biden-should-not-pardon-fauci
+
 **A Fashion Reporter Considers the Ways Trends Trickle Down**\
 `Jacob Gallagher, who covers men’s style for The Times, writes about teddy bear jeans, papal robes and all the fashion moments in between.`\
 https://nytimes.com/2025/01/08/insider/jacob-gallagher-new-york-times.html
