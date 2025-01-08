@@ -1,3 +1,7 @@
+**Blaze Turns Pacific Palisades Into Evacuation Zone**\
+`Cars clogged scenic Sunset Boulevard and headed away from the Palisades, a seaside neighborhood on the west side of Los Angeles.`\
+https://nytimes.com/2025/01/07/us/pacific-palisades-wildfire-evacuations.html
+
 **Four Fraternity Members Charged After a Pledge Is Set on Fire**\
 `Prosecutors said that a skit last year left a San Diego State University student with third-degree burns over 16 percent of his body.`\
 https://nytimes.com/2025/01/07/us/san-diego-fraternity-members-charged-fire.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
 **NHL rumblings: Reaction to Vatrano deferrals, Canucks listening on stars and Matthews' 4 Nations status**\
 `Frank Vatrano's contract included 10 years' worth of deferred payments, which could be a hot topic in coming CBA talks.`\
 https://nytimes.com/athletic/6045370/2025/01/07/nhl-vatrano-pettersson-miller-matthews/
-
-**Meet the Next Fact-Checker, Debunker and Moderator: You**\
-`Meta is joining X and YouTube in shifting moderation to users. Are you ready?`\
-https://nytimes.com/2025/01/07/technology/meta-facebook-content-moderation.html
 
