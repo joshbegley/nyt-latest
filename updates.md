@@ -1,3 +1,11 @@
+**Rangers' Filip Chytil injury concern, K'Andre Miller turnover, more: 4 takeaways vs. Stars**\
+`Chytil did not come out for the third period after sustaining an upper-body injury, according to the team.`\
+https://nytimes.com/athletic/6045975/2025/01/08/rangers-filip-chytil-injury-stars/
+
+**Bruins ‘embarrassed’ after an ugly fifth straight loss**\
+`“A lot of disappointment. Embarrassed. Frustration,” Elias Lindholm said after the Bruins' 4-0 loss to the Oilers.`\
+https://nytimes.com/athletic/6045945/2025/01/07/bruins-oilers-elias-lindholm/
+
 **Wednesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/08/briefing/meta-fact-checking-trump.html
