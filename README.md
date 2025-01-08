@@ -1,3 +1,7 @@
+**Quote of the Day: Syrians Rejoice in a Damascus Once Off Limits**\
+`Quotation of the Day for Wednesday, January 7, 2025.`\
+https://nytimes.com/2025/01/07/pageoneplus/quote-of-the-day-syrians-rejoice-in-a-damascus-once-off-limits.html
+
 **Bruins ‘embarrassed’ after losing fifth straight in really ugly way**\
 `“A lot of disappointment. Embarrassed. Frustration,” Elias Lindholm said after the Bruins' 4-0 loss to the Oilers.`\
 https://nytimes.com/athletic/6045945/2025/01/07/bruins-oilers-elias-lindholm/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6045859/2025/01/07/miguel-herrera-mexico-coach-cost
 **Surveyor’s Measure**\
 `Laura Dershewitz’s puzzle nets positive.`\
 https://nytimes.com/2025/01/07/crosswords/daily-puzzle-2025-01-08.html
-
-**Perry the Donkey, Model for ‘Shrek,’ Dies at 30**\
-`As Perry’s health declined, fans rallied behind the animal and his companions living in a Bay Area park.`\
-https://nytimes.com/2025/01/07/us/shrek-donkey-perry-dead.html
 
