@@ -1,3 +1,11 @@
+**Duke's win vs. Pitt will be remembered for Cooper Flagg's dunk — and this defensive tweak**\
+`Duke held an offense averaging 84.1 points per game to almost half its season average in a 76-47 win Tuesday over Pitt.`\
+https://nytimes.com/athletic/6046127/2025/01/08/cooper-flagg-dunk-duke-pitt-defense/
+
+**Mark Zuckerberg and the Art of Reading the Room**\
+`Meta’s plan to end its fact-checking program shows how business leaders are shifting their priorities to adapt to another Trump administration.`\
+https://nytimes.com/2025/01/08/business/dealbook/mark-zuckerberg-content-moderation.html
+
 **Seriously? Lakers' loss to depleted Mavericks is latest in long line of inconsistency**\
 `LA went into a two-game Texas trip on a high note, before going 0-2 and confounding JJ Redick with its defensive lapses.`\
 https://nytimes.com/athletic/6045645/2025/01/08/lakers-nba-mavericks-loss-lebron-james/

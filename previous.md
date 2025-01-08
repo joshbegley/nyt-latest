@@ -1,3 +1,11 @@
+**Duke's win vs. Pitt will be remembered for Cooper Flagg's dunk — and this defensive tweak**\
+`Duke held an offense averaging 84.1 points per game to almost half its season average in a 76-47 win Tuesday over Pitt.`\
+https://nytimes.com/athletic/6046127/2025/01/08/cooper-flagg-dunk-duke-pitt-defense/
+
+**Mark Zuckerberg and the Art of Reading the Room**\
+`Meta’s plan to end its fact-checking program shows how business leaders are shifting their priorities to adapt to another Trump administration.`\
+https://nytimes.com/2025/01/08/business/dealbook/mark-zuckerberg-content-moderation.html
+
 **Seriously? Lakers' loss to depleted Mavericks is latest in long line of inconsistency**\
 `LA went into a two-game Texas trip on a high note, before going 0-2 and confounding JJ Redick with its defensive lapses.`\
 https://nytimes.com/athletic/6045645/2025/01/08/lakers-nba-mavericks-loss-lebron-james/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6046337/2025/01/08/zion-williamsons-nba-pelicans-re
 **Schools Close Across Los Angeles County as Wildfires Rage**\
 `At least 18 of the 80 school districts in the county announced that schools would be closed and urged parents to take precautions as at least four wildfires burned.`\
 https://nytimes.com/2025/01/08/us/wildfires-schools-close-la-county.html
-
-**Celtics, Kristaps Porziņģis still learning how to bring out the best in each other**\
-`Since the big man returned to the lineup, Boston has been inconsistent. Porziņģis's performance against Denver on Tuesday was encouraging. `\
-https://nytimes.com/athletic/6046331/2025/01/08/celtics-kristaps-porzingis-nba-denver/
-
-**Ukraine Strikes Oil Depot Near Russian Air Base, Ukrainian Military Says**\
-`The attack was the latest effort to inflict pain on Russia even as Kyiv is losing ground on the battlefield at home.`\
-https://nytimes.com/2025/01/08/world/europe/ukraine-russia-oil-depot.html
 
