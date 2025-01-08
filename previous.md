@@ -1,3 +1,7 @@
+**Three-time Cy Young Award winner Justin Verlander to join Giants on 1-year deal**\
+`The deal has strong parallels to the Giants' 2009 signing of 45-year-old left-hander Randy Johnson.`\
+https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
+
 **NHL rumblings: Reaction to Vatrano deferrals, Canucks listening on stars and Matthews' 4 Nations status**\
 `Frank Vatrano's contract included 10 years' worth of deferred payments, which could be a hot topic in coming CBA talks.`\
 https://nytimes.com/athletic/6045370/2025/01/07/nhl-vatrano-pettersson-miller-matthews/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/politics/american-hostages-taliban-afghanistan
 **A.I. Start-Up Anthropic Is in Talks That Could Value It at $60 Billion**\
 `The financing efforts follow new funding rounds by Elon Musk’s xAI and the market leader, OpenAI, which is now valued at $157 billion.`\
 https://nytimes.com/2025/01/07/technology/anthropic-ai-funding.html
-
-**Until Saturday: Bison back on top, plus Final 4's mascot breakdown**\
-`Welcome to Until Saturday, the five-star college football newsletter: What are our predictions for college football in 2025?`\
-https://nytimes.com/athletic/6043821/2025/01/07/north-dakota-state-fcs-college-football-playoff-until-saturday/
 

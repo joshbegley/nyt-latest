@@ -1,3 +1,7 @@
+**Three-time Cy Young Award winner Justin Verlander to join Giants on 1-year deal**\
+`The deal has strong parallels to the Giants' 2009 signing of 45-year-old left-hander Randy Johnson.`\
+https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
+
 **NHL rumblings: Reaction to Vatrano deferrals, Canucks listening on stars and Matthews' 4 Nations status**\
 `Frank Vatrano's contract included 10 years' worth of deferred payments, which could be a hot topic in coming CBA talks.`\
 https://nytimes.com/athletic/6045370/2025/01/07/nhl-vatrano-pettersson-miller-matthews/
