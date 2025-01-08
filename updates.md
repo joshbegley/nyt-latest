@@ -1,3 +1,7 @@
+**Sam Altman’s Younger Sister Files Lawsuit Claiming He Sexually Abused Her**\
+`OpenAI’s chief executive and founder denies the allegations, which are similar to claims his sister has long made online.`\
+https://nytimes.com/2025/01/08/technology/sam-altman-sister-lawsuit.html
+
 **A lack of water has hindered firefighting efforts.**\
 `By Kate Selig and Emily Baumgaertner`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/a-lack-of-water-has-hindered-firefighting-efforts
