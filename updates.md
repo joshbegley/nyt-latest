@@ -1,3 +1,11 @@
+**Carole Wilbourn, Who Put Cats on the Couch, Dies at 84**\
+`When cats bite or scratch, they’re trying to tell you something. Wilbourn, a cat therapist, was a pioneer in the art of listening to them.`\
+https://nytimes.com/2025/01/08/style/carole-wilbourn-dead.html
+
+**Out-of-Control Fires Devastate Los Angeles Area**\
+`Also, no one bid for the chance to drill in Alaska’s wilderness. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/01/08/briefing/los-angeles-fires-doj-trump-documents-report.html
+
 **Presidential Odd Couple: After a Tough Race, Carter and Ford Became Friends**\
 `Jimmy Carter and Gerald R. Ford faced off in 1976 in a bitter campaign but later bonded as few presidents have — and made a pact to speak at each other’s funerals.`\
 https://nytimes.com/2025/01/08/us/politics/carter-ford-friendship.html

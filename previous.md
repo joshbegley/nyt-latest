@@ -1,3 +1,11 @@
+**Carole Wilbourn, Who Put Cats on the Couch, Dies at 84**\
+`When cats bite or scratch, they’re trying to tell you something. Wilbourn, a cat therapist, was a pioneer in the art of listening to them.`\
+https://nytimes.com/2025/01/08/style/carole-wilbourn-dead.html
+
+**Out-of-Control Fires Devastate Los Angeles Area**\
+`Also, no one bid for the chance to drill in Alaska’s wilderness. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/01/08/briefing/los-angeles-fires-doj-trump-documents-report.html
+
 **Presidential Odd Couple: After a Tough Race, Carter and Ford Became Friends**\
 `Jimmy Carter and Gerald R. Ford faced off in 1976 in a bitter campaign but later bonded as few presidents have — and made a pact to speak at each other’s funerals.`\
 https://nytimes.com/2025/01/08/us/politics/carter-ford-friendship.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/world/middleeast/israeli-soldiers-on-vacation-are
 **Barcelona 'do not care' about Supercopa final opponent, - Yamal**\
 `Lamine Yamal insists Barcelona &#8220;do not care&#8221; who they will play in the Supercopa de Espana final following their win over Athletic Club.`\
 https://nytimes.com/athletic/6048005/2025/01/08/barcelona-spanish-supercup-lamine-yamal/
-
-**Deadly LA wildfires postpone NHL game, threaten historic sports venues**\
-`"Obviously the game is secondary to that and to many things in life. Perspective is important," Warriors coach Steve Kerr said of the fires.`\
-https://nytimes.com/athletic/6047442/2025/01/08/palisades-fire-wildfire-la-eaton-california/
-
-**Wisconsin cornerback Ricardo Hallman to return for fifth season with the Badgers**\
-`Hallman has played in 37 career games with 33 starts, including starting every game the past two seasons.`\
-https://nytimes.com/athletic/6048028/2025/01/08/ricardo-hallman-return-wisconsin-cornerback/
 
