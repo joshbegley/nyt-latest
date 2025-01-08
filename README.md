@@ -1,3 +1,7 @@
+**‘A Complete Unknown’ | Anatomy of a Scene**\
+`James Mangold narrates a sequence from his film, starring Timothée Chalamet.`\
+https://nytimes.com/video/movies/100000009912508/a-complete-unknown-scene.html
+
 **Belgian GP extends F1 deal, will be rotated on calendar**\
 `The Circuit de Spa-Francorchamps will feature on the F1 calendar four out of six years between 2026 and 2031.`\
 https://nytimes.com/athletic/6046343/2025/01/08/belgian-gp-f1-spa-francorchamps/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/nyregion/egyptian-artist-metropolitan-museum-exhi
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/08/crosswords/spelling-bee-forum.html
-
-**What We Know About the Wildfires Raging in Southern California**\
-`The fast-moving fires are intensifying because of fierce winds, the strongest in Southern California in more than a decade.`\
-https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html
 
