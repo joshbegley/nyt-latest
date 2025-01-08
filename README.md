@@ -1,3 +1,7 @@
+**Biden Administration Moves to Halt Sept. 11 Plea Deal**\
+`Justice Department lawyers are defending the defense secretary’s decision to back out of the agreement that avoided a death penalty trial, moving the question from military to civilian courts.`\
+https://nytimes.com/2025/01/07/us/politics/sept-11-plea-deal.html
+
 **Blaze Turns Pacific Palisades Into Evacuation Zone**\
 `Cars clogged scenic Sunset Boulevard and headed away from the Palisades, a seaside neighborhood on the west side of Los Angeles.`\
 https://nytimes.com/2025/01/07/us/pacific-palisades-wildfire-evacuations.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/07/weather/what-are-santa-ana-winds.html
 **Justin Verlander to join Giants on 1-year deal: Source**\
 `The deal has strong parallels to the Giants' 2009 signing of 45-year-old left-hander Randy Johnson.`\
 https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
-
-**NHL rumblings: Reaction to Vatrano deferrals, Canucks listening on stars and Matthews' 4 Nations status**\
-`Frank Vatrano's contract included 10 years' worth of deferred payments, which could be a hot topic in coming CBA talks.`\
-https://nytimes.com/athletic/6045370/2025/01/07/nhl-vatrano-pettersson-miller-matthews/
 
