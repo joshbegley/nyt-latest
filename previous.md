@@ -1,3 +1,7 @@
+**Barbara Lee, a Progressive Pillar of the House, Is Running for Oakland Mayor**\
+`The Bay Area politician, known for her antiwar position and breaking barriers in Congress, just left the House after more than two decades.`\
+https://nytimes.com/2025/01/08/us/politics/barbara-lee-oakland-mayor-race.html
+
 **N.Y.C. Election Board Refused to Fire Leader Who Harassed Female Workers**\
 `The executive director of the New York City Board of Elections made inappropriate sexual and racial remarks toward two employees over a period of several months, a watchdog found.`\
 https://nytimes.com/2025/01/08/nyregion/nyc-board-of-elections-director-harassment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/world/middleeast/iran-general-syria-defeat.html
 **The Perfect Housewarming Present for Trump’s Second Term**\
 `Trump may be inheriting ‘Morning in America’. Will Americans accept being happy?`\
 https://nytimes.com/2025/01/08/opinion/trump-trends.html
-
-**Blinken and Top French Diplomat Criticize Trump’s Talk of Taking Greenland**\
-`In Paris, the two officials acknowledged potential strains on alliances with the return of Donald J. Trump to power, but said their countries would try to maintain strong ties.`\
-https://nytimes.com/2025/01/08/world/europe/blinken-france-trump.html
 

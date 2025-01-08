@@ -1,3 +1,7 @@
+**Barbara Lee, a Progressive Pillar of the House, Is Running for Oakland Mayor**\
+`The Bay Area politician, known for her antiwar position and breaking barriers in Congress, just left the House after more than two decades.`\
+https://nytimes.com/2025/01/08/us/politics/barbara-lee-oakland-mayor-race.html
+
 **N.Y.C. Election Board Refused to Fire Leader Who Harassed Female Workers**\
 `The executive director of the New York City Board of Elections made inappropriate sexual and racial remarks toward two employees over a period of several months, a watchdog found.`\
 https://nytimes.com/2025/01/08/nyregion/nyc-board-of-elections-director-harassment.html
