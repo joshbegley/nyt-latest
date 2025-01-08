@@ -1,3 +1,11 @@
+**West Ham agree deal to hire Potter as new head coach**\
+`West Ham United have agreed a deal to appoint Graham Potter as their new head coach on a two-and-a-half-year deal.`\
+https://nytimes.com/athletic/5968828/2025/01/08/graham-potter-west-ham-next-manager/
+
+**Justice Dept. Signals Report on Trump Documents Case May Never Be Released**\
+`In a court filing, the department indicated that the report by the special counsel, Jack Smith, may not be made public before Donald J. Trump takes office, raising the prospect that the new administration will bury it.`\
+https://nytimes.com/2025/01/08/us/politics/trump-documents-report-jack-smith.html
+
 **U.A.W. Seeks Union Election at Ford Battery Plant in Kentucky**\
 `The United Automobile Workers union asked a federal labor regulator to conduct an election at a factory Ford jointly owns with a South Korean battery company.`\
 https://nytimes.com/2025/01/08/business/ford-union-election-kentucky-factory.html
