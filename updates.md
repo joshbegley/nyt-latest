@@ -1,3 +1,11 @@
+**Cotton Bowl weather: Will the winter storm impact Texas vs. Ohio State?**\
+`The National Weather Service placed the Dallas-Fort Worth area under a winter storm warning for Thursday and Friday.`\
+https://nytimes.com/athletic/6046818/2025/01/08/ohio-state-texas-cotton-bowl-weather/
+
+**‘Make Greenland Great Again’? Not Like That, Greenlanders Say.**\
+`After Donald Trump suggested he might take over Greenland by force, the consensus among the island’s population appears to be bewilderment and anxiety.`\
+https://nytimes.com/2025/01/08/world/asia/greenland-trump-denmark.html
+
 **As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
 `Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own.`\
 https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
