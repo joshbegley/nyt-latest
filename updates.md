@@ -1,3 +1,7 @@
+**West Ham agree deal to hire Potter as new head coach**\
+`West Ham United have agreed a deal to appoint Graham Potter as their new head coach on a two-and-a-half-year contract.`\
+https://nytimes.com/athletic/5968828/2025/01/08/graham-potter-west-ham-next-manager/
+
 **Please Don’t Eat Your Christmas Tree, Belgium Urges the Public**\
 `The country’s food agency warned against using evergreens in food after the city of Ghent suggested an unusual form of recycling: spruce needle butter.`\
 https://nytimes.com/2025/01/08/world/europe/belgium-christmas-tree-eating.html

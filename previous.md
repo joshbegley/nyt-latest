@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6044693/2025/01/08/kawhi-leonard-clippers-nba-exclu
 https://nytimes.com/2025/01/08/us/jimmy-carter-carter-center-atlanta.html
 
 **West Ham agree deal to hire Potter as new head coach**\
-`West Ham United have agreed a deal to appoint Graham Potter as their new head coach on a two-and-a-half-year deal.`\
+`West Ham United have agreed a deal to appoint Graham Potter as their new head coach on a two-and-a-half-year contract.`\
 https://nytimes.com/athletic/5968828/2025/01/08/graham-potter-west-ham-next-manager/
 
 **Justice Dept. Signals Report on Trump Documents Case May Never Be Released**\
