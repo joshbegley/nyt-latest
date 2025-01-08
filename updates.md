@@ -1,3 +1,7 @@
+**Trump blames California’s governor, and his water policy, for the wildfires.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/trump-newsom-california-fires
+
 **Sam Altman’s Younger Sister Files Lawsuit Claiming He Sexually Abused Her**\
 `OpenAI’s chief executive and founder denies the allegations, which are similar to claims his sister has long made online.`\
 https://nytimes.com/2025/01/08/technology/sam-altman-sister-lawsuit.html
