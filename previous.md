@@ -1,3 +1,7 @@
+**MoneyCall: Bold sports business predictions for 2025**\
+`Welcome to the first edition of MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6044729/2025/01/08/sports-business-predictions-2025-moneycall-newsletter/
+
 **Why Chicago Bears' Cairo Santos baffled NFL fans with Chelsea-themed game-winner celebration**\
 `After his game-winning kick against Green Bay on Sunday, Chicago's Santos took inspiration from a legend at his beloved Chelsea`\
 https://nytimes.com/athletic/6044410/2025/01/08/cairo-santos-didier-drogba-celebration-chicago-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6043938/2025/01/08/nascar-kyle-busch-brexton-tulsa-
 **Bournemouth striker Unal suffers ACL tear**\
 `Bournemouth striker Enes Unal is set for an extended period on the sidelines after tearing his right anterior cruciate ligament (ACL).`\
 https://nytimes.com/athletic/6046706/2025/01/08/enes-unal-bournemouth-injury-update/
-
-**Trump Asks Supreme Court to Halt His Sentencing in N.Y. Criminal Case**\
-`Prosecutors have been ordered to respond to the president-elect’s request by Thursday morning, suggesting the court could rule before Friday’s scheduled sentencing.`\
-https://nytimes.com/2025/01/08/nyregion/trump-sentencing-supreme-court.html
 

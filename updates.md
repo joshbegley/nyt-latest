@@ -1,3 +1,7 @@
+**MoneyCall: Bold sports business predictions for 2025**\
+`Welcome to the first edition of MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6044729/2025/01/08/sports-business-predictions-2025-moneycall-newsletter/
+
 **Why Chicago Bears' Cairo Santos baffled NFL fans with Chelsea-themed game-winner celebration**\
 `After his game-winning kick against Green Bay on Sunday, Chicago's Santos took inspiration from a legend at his beloved Chelsea`\
 https://nytimes.com/athletic/6044410/2025/01/08/cairo-santos-didier-drogba-celebration-chicago-bears/
