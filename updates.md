@@ -1,3 +1,15 @@
+**Thousands Face Mandatory Evacuations Across Los Angeles Area**\
+`Three fires prompted fire officials to issue a swath of evacuation orders and warnings for some of the city’s most heavily residential areas.`\
+https://nytimes.com/2025/01/08/us/california-fire-evacuation-orders.html
+
+**Stark: Why I voted for Andy Pettitte for the Hall of Fame for the first time**\
+`I wound up spending more hours on the fascinating case of Andy Pettitte than I did on anyone else on the ballot. Here's why he got my vote.`\
+https://nytimes.com/athletic/6046375/2025/01/08/andy-pettitte-hall-of-fame-vote/
+
+**Several Local Landmarks Are Destroyed in Southern California Wildfires**\
+`A synagogue, a high school that served as alma mater for many celebrities, and well-known local restaurants are among the structures that have been destroyed.`\
+https://nytimes.com/2025/01/08/us/california-fires-landmarks-pasadena-palisades-malibu.html
+
 **Italian Journalist Released by Iran, Officials in Italy Say**\
 `Cecilia Sala, 29, who was detained last month in Iran while on a reporting trip, was on a plane back to her home country, the Italian government announced.`\
 https://nytimes.com/2025/01/08/world/europe/italy-iran-cecilia-sala-journalist-released.html
