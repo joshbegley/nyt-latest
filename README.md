@@ -1,3 +1,11 @@
+**Mourners Pay Their Respects to Former President Jimmy Carter**\
+`Visitors said their final goodbyes to Jimmy Carter, lying in state at the Capitol, and reflected on what the former president meant to them.`\
+https://nytimes.com/video/us/100000009915583/jimmy-carter-funeral-mourners.html
+
+**Study Links High Fluoride Exposure to Lower I.Q. in Children**\
+`The results of a new federal analysis were drawn from studies conducted in other countries, where drinking water contains more fluoride than in the United States.`\
+https://nytimes.com/2025/01/08/health/fluoride-children-iq.html
+
 **Hostage Is Found Dead in Gaza Tunnel, Israel Says**\
 `The hostage, Youssef Ziyadne, an Arab Bedouin, was seized along with three grown children on Oct. 7, 2023. Two of them were released, but there is “serious concern” about the fate of the third.`\
 https://nytimes.com/2025/01/08/world/middleeast/israel-gaza-hostage-found-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/barbara-lee-oakland-mayor-race.html
 **N.Y.C. Election Board Refused to Fire Leader Who Harassed Female Workers**\
 `The executive director of the New York City Board of Elections made inappropriate sexual and racial remarks toward two employees over a period of several months, a watchdog found.`\
 https://nytimes.com/2025/01/08/nyregion/nyc-board-of-elections-director-harassment.html
-
-**Rate-Cut Decision Was Narrow, Fed Minutes Show**\
-`Stubborn inflation, and potential tariffs, make future rate cuts uncertain.`\
-https://nytimes.com/2025/01/08/business/fed-minutes-rate-cuts-inflation.html
-
-**Bărbosu, Romanian gymnast involved in Oly medal controversy, commits to Stanford**\
-`Bărbosu will be a member of the Class of 2029 and begin her NCAA gymnastics career next season.`\
-https://nytimes.com/athletic/6047324/2025/01/08/ana-barbosu-romanian-gymnast-stanford/
 
