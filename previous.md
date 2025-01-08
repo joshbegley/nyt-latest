@@ -1,3 +1,7 @@
+**DGA Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ In, ‘Wicked’ Out**\
+`Also snubbed was Coralie Fargeat of “The Substance” and other female filmmakers, though Payal Kapadia and Megan Park are up for best first feature.`\
+https://nytimes.com/2025/01/08/movies/dga-nominations.html
+
 **Josh White Jr., Who Built on His Father’s Folk Legacy, Dies at 84**\
 `He began performing at 4 alongside his father, the celebrated singer and guitarist Josh White, and later carved out his own career.`\
 https://nytimes.com/2025/01/08/arts/music/josh-white-jr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037707/2025/01/08/dani-olmo-registration-barcelona
 **‘Here We Go Again’: Trump’s Territorial Ambitions Rattle a Weary World**\
 `A distant era of global politics, when nations scrambled to grab territory, suddenly seems less distant.`\
 https://nytimes.com/2025/01/08/world/asia/trump-greenland-panama.html
-
-**Will Leicester be charged by the Premier League for a PSR breach?**\
-`Leicester City had until December 31 to submit their accounts - which will be published by Companies House at a later date - for 2023-24`\
-https://nytimes.com/athletic/6046906/2025/01/08/leicester-psr-breach-risk-premier-league/
 

@@ -1,3 +1,7 @@
+**DGA Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ In, ‘Wicked’ Out**\
+`Also snubbed was Coralie Fargeat of “The Substance” and other female filmmakers, though Payal Kapadia and Megan Park are up for best first feature.`\
+https://nytimes.com/2025/01/08/movies/dga-nominations.html
+
 **Josh White Jr., Who Built on His Father’s Folk Legacy, Dies at 84**\
 `He began performing at 4 alongside his father, the celebrated singer and guitarist Josh White, and later carved out his own career.`\
 https://nytimes.com/2025/01/08/arts/music/josh-white-jr-dead.html
