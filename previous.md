@@ -1,3 +1,23 @@
+**N.Y.C. Election Board Refused to Fire Leader Who Harassed Female Workers**\
+`The executive director of the New York City Board of Elections made inappropriate sexual and racial remarks toward two employees over a period of several months, a watchdog found.`\
+https://nytimes.com/2025/01/08/nyregion/nyc-board-of-elections-director-harassment.html
+
+**Rate-Cut Decision Was Narrow, Fed Minutes Show**\
+`Stubborn inflation, and potential tariffs, make future rate cuts uncertain.`\
+https://nytimes.com/2025/01/08/business/rate-cut-decision-was-narrow-fed-minutes-show.html
+
+**Bărbosu, Romanian gymnast involved in Oly medal controversy, commits to Stanford**\
+`Bărbosu will be a member of the Class of 2029 and begin her NCAA gymnastics career next season.`\
+https://nytimes.com/athletic/6047324/2025/01/08/ana-barbosu-romanian-gymnast-stanford/
+
+**Power lines, involved in previous Calif. fires, will be under scrutiny again.**\
+`By Ivan Penn`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/power-lines-involved-in-previous-calif-fires-will-be-under-scrutiny-again
+
+**Raiders reach out to Bill Belichick, but coach has no plans to leave UNC: Sources**\
+`Raiders could be interested in reuniting Belichick, 72, and Tom Brady, but coach reportedly has no plans to leave North Carolina.`\
+https://nytimes.com/athletic/6047516/2025/01/08/raiders-bill-belichick-coaching-search/
+
 **Thompson: Fading Warriors, defeated and desperate, need a trade in the worst way**\
 `This Warriors team isn't it. Everyone in the organization can feel it. Will they go out like this?`\
 https://nytimes.com/athletic/6047544/2025/01/08/golden-state-warriors-trade-deadline-struggles/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/08/opinion/trump-trends.html
 **Blinken and Top French Diplomat Criticize Trump’s Talk of Taking Greenland**\
 `In Paris, the two officials acknowledged potential strains on alliances with the return of Donald J. Trump to power, but said their countries would try to maintain strong ties.`\
 https://nytimes.com/2025/01/08/world/europe/blinken-france-trump.html
-
-**Florida to host 2 outdoor NHL games in 2026, Winter Classic in Miami**\
-`The Panthers will host the Rangers at loanDepot park on Jan. 2, 2026, and the Lightning will host the Bruins at the Raymond James on Feb. 1.`\
-https://nytimes.com/athletic/6045691/2025/01/08/florida-nhl-outdoor-games/
-
-**‘Breaking Bad’ House Listed for $3.995 Million**\
-`The price of the modest four-bedroom in Albuquerque reflects the home’s pop cultural significance, a listing agent said.`\
-https://nytimes.com/2025/01/08/realestate/breaking-bad-house-sale.html
-
-**Saudi Arabia, Already Pumping Money Into Boxing, May Start League With TKO**\
-`A company owned by the country’s sovereign wealth fund is poised to team up with TKO, which owns Ultimate Fighting Championship, the kingdom’s latest foray into pro sports.`\
-https://nytimes.com/2025/01/08/business/tko-saudi-arabia-boxing-league.html
-
-**‘I’m devastated’: Residents in Pacific Palisades see their homes in ruins.**\
-`By Kellen Browning`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/im-devastated-residents-in-pacific-palisades-see-their-homes-in-ruins
-
-**Trump Blames California’s Governor, and His Water Policy, for Wildfires**\
-`In a social media post, Donald J. Trum`\
-https://nytimes.com/2025/01/08/us/trump-newsom-california-fires.html
 
