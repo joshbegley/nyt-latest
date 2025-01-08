@@ -1,3 +1,11 @@
+**Florida to host 2 outdoor NHL games in 2026, Winter Classic in Miami**\
+`The Panthers will host the Rangers at loanDepot park on Jan. 2, 2026, and the Lightning will host the Bruins at the Raymond James on Feb. 1.`\
+https://nytimes.com/athletic/6045691/2025/01/08/florida-nhl-outdoor-games/
+
+**Saudi Arabia, Already Pumping Money Into Boxing, May Start League With TKO**\
+`A company owned by the country’s sovereign wealth fund is poised to team up with TKO, which owns Ultimate Fighting Championship, the kingdom’s latest foray into pro sports.`\
+https://nytimes.com/2025/01/08/business/tko-saudi-arabia-boxing-league.html
+
 **Trump Blames California’s Governor, and His Water Policy, for Wildfires**\
 `In a social media post, Donald J. Trum`\
 https://nytimes.com/2025/01/08/us/trump-newsom-california-fires.html
