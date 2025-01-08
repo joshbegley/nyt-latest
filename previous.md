@@ -1,3 +1,11 @@
+**Palestinians Grieve 3 People Killed in Israeli Airstrike**\
+`An Israeli airstrike in the occupied West Bank killed three cousins on Wednesday, according to Palestinian officials and family members.`\
+https://nytimes.com/video/world/middleeast/100000009915484/israeli-airstrike-kills-three-west-bank.html
+
+**Los Angeles-area air traffic remains mostly normal despite the fires.**\
+`By Christine Chung`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/los-angeles-area-air-traffic-remains-mostly-normal-despite-the-fires
+
 **Pluto May Have Captured Its Biggest Moon After an Ancient Dance and Kiss**\
 `Charon is large in size relative to Pluto, and is locked in a tight orbit with the dwarf planet. A new simulation suggests how it ended up there.`\
 https://nytimes.com/2025/01/08/science/pluto-moon-kiss-charon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/us/california-fires-pets-animals.html
 **Multiple Wildfires Rage Around Los Angeles**\
 `The fires have consumed thousands of acres and have displaced more than 100,000 people.`\
 https://nytimes.com/video/us/100000009915899/california-la-wildfires.html
-
-**Spurs impressed in adversity after worrying Bentancur head injury - Postecoglou**\
-`Ange Postecoglou praised Tottenham Hotspur&#8217;s players reaction to the &#8220;adversity&#8221; of a worrying injury to their team-mate Rodrigo Bentancur.`\
-https://nytimes.com/athletic/6048224/2025/01/08/rodrigo-bentancur-injury-update-tottenham/
-
-**What is it like when the evacuation alert comes?**\
-`By Ken Bensinger`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/what-is-it-like-when-the-evacuation-alert-comes
 
