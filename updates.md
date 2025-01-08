@@ -1,3 +1,11 @@
+**Spurs impressed in adversity after worrying Bentancur head injury - Postecoglou**\
+`Ange Postecoglou praised Tottenham Hotspur&#8217;s players reaction to the &#8220;adversity&#8221; of a worrying injury to their team-mate Rodrigo Bentancur.`\
+https://nytimes.com/athletic/6048224/2025/01/08/rodrigo-bentancur-injury-update-tottenham/
+
+**What is it like when the evacuation alert comes?**\
+`By Ken Bensinger`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/what-is-it-like-when-the-evacuation-alert-comes
+
 **This Canadiens trade deadline isn’t about asset management, it’s about culture**\
 `Canadiens GM Kent Hughes has more to learn about his team between now and March 7, but cultivating its culture should be top of mind.`\
 https://nytimes.com/athletic/6048163/2025/01/08/canadiens-nhl-trade-deadline-culture/
