@@ -1,3 +1,11 @@
+**No. 8 Florida routs No. 1 Tennessee, last unbeaten team in college hoops**\
+`It's the first time the No. 1 team has lost by 30 or more since UCLA crushed Houston 101-69 in 1968.`\
+https://nytimes.com/athletic/6045791/2025/01/07/florida-tennessee-basketball-result/
+
+**Dripping Faucets and Seizing Greenland: Trump Is Back and Chaos Ensues**\
+`President-elect Donald J. Trump’s news conference at Mar-a-Lago was a reminder of what the next four years may have in store.`\
+https://nytimes.com/2025/01/07/us/politics/panama-greenland-trump-media.html
+
 **Corrections: Jan. 8, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 8, 2025.`\
 https://nytimes.com/2025/01/07/pageoneplus/corrections-jan-8-2025.html
@@ -29,13 +37,4 @@ https://nytimes.com/2025/01/07/us/san-diego-fraternity-members-charged-fire.html
 **'Robust market' could have new Twins owner in place by Opening Day: Source**\
 `Twins ownership believes the club could be sold by Opening Day, an industry source briefed on the Twins’ sale process told The Athletic.`\
 https://nytimes.com/athletic/6045579/2025/01/07/minnesota-twins-sale-update-opening-day/
-
-**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
-`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
-`\
-https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
-
-**Army Doctor Pleads Guilty to Sexually Assaulting Dozens of Patients**\
-`The doctor, Maj. Michael Stockin, was accused of sexual misconduct by 41 male patients in one of the largest such cases in military history.`\
-https://nytimes.com/2025/01/07/us/army-sexual-assault-doctor-stockin.html
 

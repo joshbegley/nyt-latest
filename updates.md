@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall
 `\
 https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
 
+**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
+`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
+`\
+https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
+
 **Corrections: Jan. 8, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 8, 2025.`\
 https://nytimes.com/2025/01/07/pageoneplus/corrections-jan-8-2025.html
