@@ -1,3 +1,7 @@
+**Jets midseason report cards: Kyle Connor, Mark Scheifele lead forward class**\
+`The Jets' dominant power play has been an enormous boost and multiple forwards are on pace for career highs. Who's leading the way?`\
+https://nytimes.com/athletic/6042151/2025/01/08/winnipeg-jets-nhl-grades-scheifele-connor/
+
 **Biden Acknowledges He Might Not Have Been Able to Serve Four More Years**\
 `President Biden insisted that he still could have beaten Donald J. Trump had he stayed in the race, but could not say he would have been vital enough to be president until age 86.`\
 https://nytimes.com/2025/01/08/us/politics/biden-interview.html
