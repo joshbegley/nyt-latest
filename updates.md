@@ -1,3 +1,11 @@
+**Wisconsin cornerback Ricardo Hallman to return for fifth season with the Badgers**\
+`Hallman has played in 37 career games with 33 starts, including starting every game the past two seasons.`\
+https://nytimes.com/athletic/6048028/2025/01/08/ricardo-hallman-return-wisconsin-cornerback/
+
+**Mike Vrabel or Ben Johnson? What we're hearing about the Patriots' coaching search**\
+`The latest on New England's coaching search has Vrabel interviewing Thursday and Johnson and Aaron Glenn following suit virtually.`\
+https://nytimes.com/athletic/6047171/2025/01/08/patriots-coaching-search-mike-vrabel-ben-johnson/
+
 **Mourners Defy Subfreezing Temperatures to Honor Jimmy Carter at the Capitol**\
 `While cold weather and heightened security likely dampened turnout, thousands of well-wishers still traipsed through the snow and ice to pay final tribute to the 39th president.`\
 https://nytimes.com/2025/01/08/us/politics/jimmy-carter-mourners-capitol.html
