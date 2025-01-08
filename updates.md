@@ -1,3 +1,15 @@
+**Hollinger: 10 older (and overseas) prospects worth watching ahead of 2025 draft**\
+`The toughest part of their seasons are ahead, but these experienced players have a good chance to rise on draft boards.`\
+https://nytimes.com/athletic/6043554/2025/01/08/nba-draft-2025-prospects-johni-broome-kam-jones/
+
+**Inside Brian Flores and Ryan Grigson's Vikings bromance: 'They've helped set a standard'**\
+`They were both fired from NFL jobs in part because of abrasive personalities. Has their time in Minnesota prepared them for another shot?`\
+https://nytimes.com/athletic/6039218/2025/01/08/vikings-defensive-coordinator-brian-flores-ryan-grigson/
+
+**The fiery pregame speeches fueling Notre Dame's College Football Playoff run**\
+`A preseason benching didn't stop Coogan — who's back starting at center — from becoming the emotional leader of Notre Dame. `\
+https://nytimes.com/athletic/6045371/2025/01/08/pat-coogan-notre-dame-playoff-speeches/
+
 **Here’s the latest on the fires.**\
 `By Yan Zhuang, Corina Knoll and Soumya Karlamangla`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/heres-the-latest-on-the-fires
