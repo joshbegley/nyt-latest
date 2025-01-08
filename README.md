@@ -1,3 +1,7 @@
+**Jenna Bush Hager: ‘Today’ Show Co-Host, Literary Tastemaker and Now, Publisher**\
+`Nearly six years after becoming a literary heavyweight with “Read with Jenna,” she’s starting her own publishing venture with Penguin Random House.`\
+https://nytimes.com/2025/01/08/books/jenna-bush-hager-publishing-books.html
+
 **Jets midseason report cards: Kyle Connor, Mark Scheifele lead forward class**\
 `The Jets' dominant power play has been an enormous boost and multiple forwards are on pace for career highs. Who's leading the way?`\
 https://nytimes.com/athletic/6042151/2025/01/08/winnipeg-jets-nhl-grades-scheifele-connor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6045100/2025/01/08/sf-giants-justin-verlander-analy
 **MoneyCall: Bold sports business predictions for 2025**\
 `Welcome to the first edition of MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6044729/2025/01/08/sports-business-predictions-2025-moneycall-newsletter/
-
-**Why Chicago Bears' Cairo Santos baffled NFL fans with Chelsea-themed game-winner celebration**\
-`After his game-winning kick against Green Bay on Sunday, Chicago's Santos took inspiration from a legend at his beloved Chelsea`\
-https://nytimes.com/athletic/6044410/2025/01/08/cairo-santos-didier-drogba-celebration-chicago-bears/
 
