@@ -34,7 +34,7 @@ https://nytimes.com/2025/01/08/business/rate-cut-decision-was-narrow-fed-minutes
 `Bărbosu will be a member of the Class of 2029 and begin her NCAA gymnastics career next season.`\
 https://nytimes.com/athletic/6047324/2025/01/08/ana-barbosu-romanian-gymnast-stanford/
 
-**Power lines, involved in previous Calif. fires, will be under scrutiny again.**\
+**Power lines, involved in previous California fires, will be under scrutiny again.**\
 `By Ivan Penn`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/power-lines-involved-in-previous-calif-fires-will-be-under-scrutiny-again
 
