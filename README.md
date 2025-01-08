@@ -1,40 +1,40 @@
-**A Far-Right Government in Austria Would Be a Jolt, but Not Unexpected**\
-`The Freedom Party and its leader, Herbert Kickl, have steadily built support by demonizing immigrants, while entering Austria’s political mainstream.`\
-https://nytimes.com/2025/01/08/world/europe/austria-far-right-freedom-party.html
+**Who are top NFL Draft prospects in CFP semis? Which players have most to gain?**\
+`There will be dozens of future NFL players on the field during the College Football Playoff semifinals. `\
+https://nytimes.com/athletic/6044037/2025/01/08/nfl-draft-2025-college-football-playoffs-scouting/
 
-**Hollinger: 10 older (and overseas) prospects worth watching ahead of 2025 draft**\
-`The toughest part of their seasons are ahead, but these experienced players have a good chance to rise on draft boards.`\
-https://nytimes.com/athletic/6043554/2025/01/08/nba-draft-2025-prospects-johni-broome-kam-jones/
+**Why Auston Matthews invited Joe Thornton on the Maple Leafs' mentors trip**\
+`As captain, Matthews hopes to emulate Thornton's leadership qualities, led by his focus on inclusivity and bringing everyone together. `\
+https://nytimes.com/athletic/6045608/2025/01/08/maple-leafs-auston-matthews-joe-thornton/
 
-**Inside Brian Flores and Ryan Grigson's Vikings bromance: 'They've helped set a standard'**\
-`They were both fired from NFL jobs in part because of abrasive personalities. Has their time in Minnesota prepared them for another shot?`\
-https://nytimes.com/athletic/6039218/2025/01/08/vikings-defensive-coordinator-brian-flores-ryan-grigson/
+**'He's different': Inside the mind of Xavier McKinney, face of the Packers defense**\
+`The big free-agent signing's elite work ethic and attention to detail have made him an instant star and team leader in Green Bay.`\
+https://nytimes.com/athletic/6036769/2025/01/08/xavier-mckinney-packers-playoffs/
 
-**The fiery pregame speeches fueling Notre Dame's College Football Playoff run**\
-`A preseason benching didn't stop Coogan — who's back starting at center — from becoming the emotional leader of Notre Dame. `\
-https://nytimes.com/athletic/6045371/2025/01/08/pat-coogan-notre-dame-playoff-speeches/
+**Tyreek Hill trade proposals: What could the Dolphins get if the star WR demands to be dealt?**\
+`Hypothetical trade offers from four receiver-needy teams.`\
+https://nytimes.com/athletic/6045793/2025/01/08/tyreek-hill-trade-offers-dolphins-patriots-cardinals-steelers-saints/
 
-**Here’s the latest on the fires.**\
-`By Yan Zhuang, Corina Knoll and Soumya Karlamangla`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/heres-the-latest-on-the-fires
+**NHL trade board 3.0: Is a Canucks blockbuster coming to rock the market?**\
+`Seven new names enter our watch list, including two star-level players at the top of the board.`\
+https://nytimes.com/athletic/6009514/2025/01/08/nhl-trade-board-pettersson-miller/
 
-**Can Mikey Keene hold off Bryce Underwood at Michigan? Assessing the Fresno State transfer**\
-`Michigan signed the No. 1 player in the 2025 class at QB in Underwood, but the hope is that Keene is a bridge to the future.`\
-https://nytimes.com/athletic/6044725/2025/01/08/mikey-keene-michigan-quarterback-bryce-underwood/
+**Meet Tyler Zombro, the latest young executive the Cubs have added to their front office**\
+`Zombro has a deep knowledge of the intricacies of pitching development. He'll try to help the Cubs take a step forward in that area.`\
+https://nytimes.com/athletic/6045360/2025/01/08/cubs-tyler-zombro-interview/
 
-**Could a small-market team be a surprise fit for Roki Sasaki? Parsing his agent's words**\
-`Conventional wisdom says a big-market team like the Dodgers will be the choice. But what if other factors are at play? We rank the options.`\
-https://nytimes.com/athletic/6045382/2025/01/08/roki-sasaki-team-odds-mlb/
+**The End of Justin Trudeau’s Canada**\
+`A guide to the collapse of a prime minister who was once a progressive icon, and to the conservative populist who could replace him.`\
+https://nytimes.com/2025/01/08/podcasts/the-daily/justin-trudeau-canada.html
 
-**What made Cowboys' 2024 season one of the strangest? Bad play, off-field drama, more**\
-`It started with the playoff loss to Green Bay and one thing after another led to the Cowboys' disappointing 7-10 season. `\
-https://nytimes.com/athletic/6045466/2025/01/08/cowboys-strange-season-drama-dak-prescott-jerry-jones/
+**Wildfires Roar Through L.A., and Trump Floats U.S. Expansion**\
+`Plus, the end of Facebook fact-checking.`\
+https://nytimes.com/2025/01/08/podcasts/wildfire-la-trump-expansion-greenland-panama-canal.html
 
-**Was Miami's 2024 season a success? 8 thoughts on the Hurricanes' present and future**\
-`The Canes won 10 games for only the second time since joining the ACC in 2004, but the season will be remembered for an opportunity lost.`\
-https://nytimes.com/athletic/6045140/2025/01/08/miami-hurricanes-quarterback-mario-cristobal/
+**What I'm hearing about the Blackhawks' trade deadline options**\
+`It might seem far away, but the March 7 NHL trade deadline looms. Here's what I know.`\
+https://nytimes.com/athletic/6042850/2025/01/08/blackhawks-nhl-trade-deadline-2025/
 
-**Why Does Trump Want the Panama Canal? Here’s What to Know**\
-`Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
-https://nytimes.com/2025/01/08/world/americas/trump-panama-canal.html
+**Giants touted 'plan' and 'process' for keeping status quo, but do they really have either?**\
+`Throughout his first three years, GM Joe Schoen's plans and processes have looked deeply flawed. `\
+https://nytimes.com/athletic/6045106/2025/01/08/giants-joe-schoen-brian-daboll-plan/
 
