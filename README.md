@@ -1,3 +1,11 @@
+**Wildfires Can Harm Your Health, Even if You’re Far Away, Experts Say**\
+`Some studies have indicated that young children, especially those under the age of 4, are at particular risk because their lungs are still developing.`\
+https://nytimes.com/2025/01/08/us/smoke-air-quality-palisades-wildfire.html
+
+**Maps: Tracking the Los Angeles Wildfires**\
+`Fires driven by fierce winds scorched parts of the Los Angeles area, destroying homes and choking the sky with smoke.`\
+https://nytimes.com/interactive/2025/01/08/weather/los-angeles-fire-maps-california.html
+
 **Justin Trudeau Was His Own Worst Enemy**\
 `Justin Trudeau came to power with a new kind of politics — progressive and identity-based. In the end, it proved his undoing.`\
 https://nytimes.com/2025/01/08/opinion/justin-trudeau-canada-progressive.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/us/pacific-palisades-escape-routes-wildfire.html
 **Manchester City squad audit: Who should stay and who should go?**\
 `Sam Lee runs through the current crop of Manchester City players ahead of what should be a busy year in the transfer market`\
 https://nytimes.com/athletic/6043982/2025/01/08/manchester-city-squad-audit-2025/
-
-**Son Heung-min may be staying at Spurs for another year, but the questions are not over**\
-`Spurs have finally confirmed that they have extended their captain's contract by 12 months, but what will his 2025-26 season look like?`\
-https://nytimes.com/athletic/6041259/2025/01/08/son-heung-min-contract-tottenham-2026/
-
-**EFL ones to watch in January transfer window: Rigg, Esse, Bellingham and more**\
-`Who will be the next EFL starlet to move to bigger things — The Athletic analyses the emerging talent impressing this season`\
-https://nytimes.com/athletic/6005974/2025/01/08/efl-ones-to-watch-in-january-transfer-window-rigg-esse-bellingham-and-more/
 
