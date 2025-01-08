@@ -1,3 +1,7 @@
+**For Him, the Beer in Your Hand Is the End of the Story**\
+`Joshua M. Bernstein was writing about bars and nightlife when the craft brew wave start to rise.`\
+https://nytimes.com/2025/01/08/insider/craft-beer.html
+
 **Abdul Carter will be a 'game-time decision' while Jeremiyah Love is 'good to go' for Orange Bowl**\
 `Marcus Freeman and James Franklin provided one final injury update ahead of Thursday night’s College Football Playoff semifinal.`\
 https://nytimes.com/athletic/6046948/2025/01/08/jeremiyah-love-abdul-carter-injury-orange-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/biden-interview.html
 **Canucks notebook: The J.T. Miller and Elias Pettersson rumour mill churns again**\
 `As trade rumours roll on, the Canucks are once again the biggest story in hockey.`\
 https://nytimes.com/athletic/6046160/2025/01/08/canucks-miller-pettersson-trade-rumors-nhl/
-
-**Artists Tried to Activate Voters With Billboard Art. Did It Work?**\
-`For Freedoms’ billboards could surprise, comfort or confuse. Now the group is asking, Where do we go from here?`\
-https://nytimes.com/2025/01/08/arts/design/artists-tried-to-activate-voters-with-billboard-art-did-it-work.html
 
