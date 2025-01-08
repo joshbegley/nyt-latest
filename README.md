@@ -1,7 +1,3 @@
-**Can Trump Really Rename the Gulf of Mexico the ‘Gulf of America’?**\
-`Presidential naming powers usually stop at the water’s edge.`\
-https://nytimes.com/2025/01/08/world/americas/trump-gulf-of-mexico.html
-
 **The Bounce: A big winning streak ends tonight!**\
 `Zach Harper catches you up on league-wide news. `\
 https://nytimes.com/athletic/6047318/2025/01/08/cavs-thunder-winning-streak-the-bounce/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6046835/2025/01/08/nfl-fantasy-football-draft-strat
 **Director of Netflix’s ‘Jerry Springer Show’ Documentary Offers 5 Takeaways**\
 `Luke Sewell spoke about the complex legacy of the notorious talk show, which both coarsened American culture and affirmed the values of free speech.`\
 https://nytimes.com/2025/01/08/arts/television/jerry-springer-netflix-documentary-5-takeaways.html
+
+**I’m Speaking at a Friend’s Funeral. Can I Tell a Story that Could be Wrong?**\
+`The magazine’s Ethicist columnist on the fallibility of memory.`\
+https://nytimes.com/2025/01/08/magazine/friend-funeral-story-ethics.html
 
