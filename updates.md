@@ -1,3 +1,7 @@
+**The Getty Villa museum has avoided the worst.**\
+`But beloved shops, beachside restaurants, and a Jewish community center are among the structures lost.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/getty-palisades-fire-los-angeles-california
+
 **The Getty Villa Museum has avoided the worst.**\
 `But beloved shops, beachside restaurants, and a Jewish community center are among the structures lost.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/getty-palisades-fire-los-angeles-california
