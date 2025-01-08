@@ -1,3 +1,7 @@
+**Hostage Is Found Dead in Gaza Tunnel, Israel Says**\
+`The hostage, Youssef Ziyadne, an Arab Bedouin, was seized along with three grown children on Oct. 7, 2023. Two of them were released, but there is “serious concern” about the fate of the third.`\
+https://nytimes.com/2025/01/08/world/middleeast/israel-gaza-hostage-found-dead.html
+
 **Sevilla set to sign Swiss international Vargas from Augsburg**\
 `Sevilla are set to agree a deal with Augsburg to sign Switzerland international Ruben Vargas.`\
 https://nytimes.com/athletic/6047645/2025/01/08/ruben-vargas-sevilla-transfer/
@@ -28,13 +32,9 @@ https://nytimes.com/2025/01/08/nyregion/nyc-board-of-elections-director-harassme
 
 **Rate-Cut Decision Was Narrow, Fed Minutes Show**\
 `Stubborn inflation, and potential tariffs, make future rate cuts uncertain.`\
-https://nytimes.com/2025/01/08/business/rate-cut-decision-was-narrow-fed-minutes-show.html
+https://nytimes.com/2025/01/08/business/fed-minutes-rate-cuts-inflation.html
 
 **Bărbosu, Romanian gymnast involved in Oly medal controversy, commits to Stanford**\
 `Bărbosu will be a member of the Class of 2029 and begin her NCAA gymnastics career next season.`\
 https://nytimes.com/athletic/6047324/2025/01/08/ana-barbosu-romanian-gymnast-stanford/
-
-**Power lines, involved in previous California fires, will be under scrutiny again.**\
-`By Ivan Penn`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/power-lines-involved-in-previous-calif-fires-will-be-under-scrutiny-again
 
