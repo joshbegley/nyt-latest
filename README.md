@@ -1,3 +1,7 @@
+**Former Orioles pitcher Brian Matusz dies at 37**\
+`A left-handed pitcher selected fourth overall in the 2008 MLB draft, Matusz spent eight years in Baltimore.`\
+https://nytimes.com/athletic/6045912/2025/01/07/orioles-brian-matusz-death/
+
 **Wild's Brock Faber injured, Jake Middleton busy in return: 3 takeaways vs. Blues**\
 `Faber left the game with what the team called an upper-body injury and didn't return.`\
 https://nytimes.com/athletic/6045662/2025/01/07/wild-brock-faber-injury-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/shrek-donkey-perry-dead.html
 **49ers moving on from DC Nick Sorensen, hope to retain him on staff**\
 `Perhaps the No. 1 problem working against Sorensen: He wasn't Kyle Shanahan's top candidate when he was hired last offseason.`\
 https://nytimes.com/athletic/6039189/2025/01/07/sf-49ers-defensive-coordinator-nick-sorensen/
-
-**No. 8 Florida routs No. 1 Tennessee, last unbeaten team in college hoops**\
-`It's the first time the No. 1 team has lost by 30 or more since UCLA crushed Houston 101-69 in 1968.`\
-https://nytimes.com/athletic/6045791/2025/01/07/florida-tennessee-basketball-result/
 
