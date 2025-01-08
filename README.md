@@ -1,3 +1,7 @@
+**Day 3: For Healthy Snacks You Actually Crave, Try a Sprinkle of ‘Flavor Dust’**\
+`Today’s challenge includes recipes you can try.`\
+https://nytimes.com/2025/01/07/well/healthy-snack-recipes.html
+
 **Biden Administration Moves to Halt Sept. 11 Plea Deal**\
 `Justice Department lawyers are defending the defense secretary’s decision to back out of the agreement that avoided a death penalty trial, moving the question from military to civilian courts.`\
 https://nytimes.com/2025/01/07/us/politics/sept-11-plea-deal.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/07/us/politics/virginia-legislature-special-election
 **What to Know About the Santa Ana Winds**\
 `The winds are common in California in the colder months, but they can sometimes help spread dangerous wildfires.`\
 https://nytimes.com/2025/01/07/weather/what-are-santa-ana-winds.html
-
-**Justin Verlander to join Giants on 1-year deal: Source**\
-`The deal has strong parallels to the Giants' 2009 signing of 45-year-old left-hander Randy Johnson.`\
-https://nytimes.com/athletic/6045534/2025/01/07/sf-giants-sign-justin-verlander/
 
