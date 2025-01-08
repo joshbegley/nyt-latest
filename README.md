@@ -1,3 +1,7 @@
+**Trump blames California’s governor, and his water policy, for the wildfires.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/trump-newsom-california-fires
+
 **Sam Altman’s Younger Sister Files Lawsuit Claiming He Sexually Abused Her**\
 `OpenAI’s chief executive and founder denies the allegations, which are similar to claims his sister has long made online.`\
 https://nytimes.com/2025/01/08/technology/sam-altman-sister-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/hollywoo
 **A conversation with Kevin Kisner on the Ryder Cup, NBC and what he wants from PGA Tour stars**\
 `Kisner will still play PGA Tour events in 2025 but is envisioning this season as a fork in the road moment for himself.`\
 https://nytimes.com/athletic/6047523/2025/01/08/kevin-kisner-nbc-golf-ryder-cup-pga-tour/
-
-**Mark Zuckerberg Swings Left, Swings Right, Wins Big With Both**\
-`Zuckerberg has leveraged his political ambiguity to strengthen Meta, with consequences for the future of Silicon Valley and for the truth.`\
-https://nytimes.com/2025/01/08/opinion/mark-zuckerberg-trump-meta-lobbying.html
 
