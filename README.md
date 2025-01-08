@@ -1,3 +1,7 @@
+**Four Fraternity Members Charged After a Pledge Is Set on Fire**\
+`Prosecutors said that a skit last year left a San Diego State University student with third-degree burns over 16 percent of his body.`\
+https://nytimes.com/2025/01/07/us/san-diego-fraternity-members-charged-fire.html
+
 **'Robust market' could have new Twins owner in place by Opening Day: Source**\
 `Twins ownership believes the club could be sold by Opening Day, an industry source briefed on the Twins’ sale process told The Athletic.`\
 https://nytimes.com/athletic/6045579/2025/01/07/minnesota-twins-sale-update-opening-day/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6045370/2025/01/07/nhl-vatrano-pettersson-miller-ma
 **Meet the Next Fact-Checker, Debunker and Moderator: You**\
 `Meta is joining X and YouTube in shifting moderation to users. Are you ready?`\
 https://nytimes.com/2025/01/07/technology/meta-facebook-content-moderation.html
-
-**Arteta says Arsenal can still win semi-final if they adapt to “tricky” ball**\
-`Mikel Arteta lamented Arsenal’s inefficiency in front of goal compared to Newcastle and Alexander Isak, but backed his players to turn around the 2-0 Carabao Cup deficit &#8211; so long as they adapt to the “tricky” ball being used in the competition.`\
-https://nytimes.com/athletic/6045469/2025/01/07/arsenal-newcastle-arteta-carabao-cup-ball/
 
