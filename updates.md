@@ -1,3 +1,7 @@
+**Maple Leafs report cards: An F-worthy first period, a turnaround and an imperfect win**\
+`The Maple Leafs looked utterly inept for much of their 3-2 win over the Flyers.`\
+https://nytimes.com/athletic/6045424/2025/01/07/maple-leafs-flyers-grades-analysis/
+
 **Former MoviePass Executive Pleads Guilty to Fraud Over ‘Unlimited’ Plan**\
 `Prosecutors said that Theodore Farnsworth, who ran the parent company of MoviePass, had misled investors about its popular subscription plan.`\
 https://nytimes.com/2025/01/07/business/moviepass-ceo-fraud-guilty.html
