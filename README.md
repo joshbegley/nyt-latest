@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6037707/2025/01/08/dani-olmo-registration-barcelona
 https://nytimes.com/2025/01/08/world/asia/trump-greenland-panama.html
 
 **Will Leicester be charged by the Premier League for a PSR breach?**\
-`What are the PSR rules, how did we get here and what might happen?`\
+`Leicester City had until December 31 to submit their accounts - which will be published by Companies House at a later date - for 2023-24`\
 https://nytimes.com/athletic/6046906/2025/01/08/leicester-psr-breach-risk-premier-league/
 
 **Biden Says He’s Considering Pre-emptive Pardons for Potential Trump Targets**\
