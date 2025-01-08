@@ -1,3 +1,7 @@
+**I’m Speaking at a Friend’s Funeral. Can I Tell a Story that Could be Wrong?**\
+`The magazine’s Ethicist columnist on the fallibility of memory.`\
+https://nytimes.com/2025/01/08/magazine/friend-funeral-story-ethics.html
+
 **Dortmund interested in loan move for Chelsea's Chukwuemeka**\
 `Borussia Dortmund have an interest in signing Chelsea midfielder Carney Chukwuemeka on a loan deal with an option to buy in the January transfer window.`\
 https://nytimes.com/athletic/6046413/2025/01/08/carney-chukwuemeka-dortmund-chelsea-transfers/
