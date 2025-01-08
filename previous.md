@@ -1,3 +1,7 @@
+**Former MoviePass Executive Pleads Guilty to Fraud Over ‘Unlimited’ Plan**\
+`Prosecutors said that Theodore Farnsworth, who ran the parent company of MoviePass, had misled investors about its popular subscription plan.`\
+https://nytimes.com/2025/01/07/business/moviepass-ceo-fraud-guilty.html
+
 **Matt Seidler denies Padres relocation talk, responds to Sheel Seidler's lawsuit in letter**\
 `Matt Seidler addressed Sheel Seidler's claims of relocation, her case to be named control person of the Padres and more.`\
 https://nytimes.com/athletic/6045842/2025/01/07/padres-matt-seidler-letter-response-sheel-seidler-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/pageoneplus/corrections-jan-8-2025.html
 **Bears to interview Carroll for HC job, request to talk to McCarthy denied**\
 `Carroll, 73, expressed interest in the Bears' job last month.`\
 https://nytimes.com/athletic/6045559/2025/01/07/bears-coaching-rumors-pete-carroll-interview/
-
-**Wind-Fueled Fire Consumes a Los Angeles Neighborhood**\
-`A fire in Southern California grew with dizzying speed on Tuesday forcing evacuations and threatening at least 10,000 homes.`\
-https://nytimes.com/2025/01/07/us/california-wildfire-photos.html
 

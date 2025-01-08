@@ -1,3 +1,7 @@
+**Former MoviePass Executive Pleads Guilty to Fraud Over ‘Unlimited’ Plan**\
+`Prosecutors said that Theodore Farnsworth, who ran the parent company of MoviePass, had misled investors about its popular subscription plan.`\
+https://nytimes.com/2025/01/07/business/moviepass-ceo-fraud-guilty.html
+
 **Matt Seidler denies Padres relocation talk, responds to Sheel Seidler's lawsuit in letter**\
 `Matt Seidler addressed Sheel Seidler's claims of relocation, her case to be named control person of the Padres and more.`\
 https://nytimes.com/athletic/6045842/2025/01/07/padres-matt-seidler-letter-response-sheel-seidler-lawsuit/
