@@ -1,3 +1,7 @@
+**Los Angeles Area Braces for Strong Winds That Will Fan Flames**\
+`Officials warned that winds would strengthen overnight, creating conditions for the Palisades blaze to grow and for others to start.`\
+https://nytimes.com/2025/01/07/us/la-wildfire-weather-forecast-wind.html
+
 **Maple Leafs report cards: An F-worthy first period, a turnaround and an imperfect win**\
 `The Maple Leafs looked utterly inept for much of their 3-2 win over the Flyers.`\
 https://nytimes.com/athletic/6045424/2025/01/07/maple-leafs-flyers-grades-analysis/
