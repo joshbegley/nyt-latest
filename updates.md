@@ -78,6 +78,11 @@ https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall
 `\
 https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
 
+**Offseason shadow: 49ers’ Purdy, Pearsall to make up for lost time**\
+`Purdy said he's been impressed by how eager Pearsall is to learn: "He’s got the drive and he’s got the ‘it’ factor.”
+`\
+https://nytimes.com/athletic/6045533/2025/01/07/49ers-brock-purdy-ricky-pearsall-shadow/
+
 **Blaze Turns Pacific Palisades Into Evacuation Zone**\
 `Cars clogged scenic Sunset Boulevard and headed away from the Palisades, a seaside neighborhood on the west side of Los Angeles.`\
 https://nytimes.com/2025/01/07/us/pacific-palisades-wildfire-evacuations.html
