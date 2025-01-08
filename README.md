@@ -1,3 +1,11 @@
+**Thousands Face Mandatory Evacuations Across Los Angeles Area**\
+`Three fires prompted fire officials to issue a swath of evacuation orders and warnings for some of the city’s most heavily residential areas.`\
+https://nytimes.com/2025/01/08/us/california-fire-evacuation-orders.html
+
+**Stark: Why I voted for Andy Pettitte for the Hall of Fame for the first time**\
+`I wound up spending more hours on the fascinating case of Andy Pettitte than I did on anyone else on the ballot. Here's why he got my vote.`\
+https://nytimes.com/athletic/6046375/2025/01/08/andy-pettitte-hall-of-fame-vote/
+
 **Italian Journalist Released by Iran, Officials in Italy Say**\
 `Cecilia Sala, 29, who was detained last month in Iran while on a reporting trip, was on a plane back to her home country, the Italian government announced.`\
 https://nytimes.com/2025/01/08/world/europe/italy-iran-cecilia-sala-journalist-released.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6045793/2025/01/08/tyreek-hill-trade-offers-dolphin
 **NHL trade board 3.0: Is a Canucks blockbuster coming to rock the market?**\
 `Seven new names enter our watch list, including two star-level players at the top of the board.`\
 https://nytimes.com/athletic/6009514/2025/01/08/nhl-trade-board-pettersson-miller/
-
-**Meet Tyler Zombro, the latest young executive the Cubs have added to their front office**\
-`Zombro has a deep knowledge of the intricacies of pitching development. He'll try to help the Cubs take a step forward in that area.`\
-https://nytimes.com/athletic/6045360/2025/01/08/cubs-tyler-zombro-interview/
-
-**The End of Justin Trudeau’s Canada**\
-`A guide to the collapse of a prime minister who was once a progressive icon, and to the conservative populist who could replace him.`\
-https://nytimes.com/2025/01/08/podcasts/the-daily/justin-trudeau-canada.html
 
