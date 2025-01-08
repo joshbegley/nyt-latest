@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Each Cinematic Conquest Convinced Me You’d Call’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/01/08/style/tiny-modern-love-stories-each-cinematic-conquest-convinced-me-youd-call.html
+
 **DGA Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ In, ‘Wicked’ Out**\
 `Also snubbed was Coralie Fargeat of “The Substance” and other female filmmakers, though Payal Kapadia and Megan Park are up for best first feature.`\
 https://nytimes.com/2025/01/08/movies/dga-nominations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047371/2025/01/08/nebraska-offensive-line-portal-e
 **Barcelona's Olmo, Victor given temporary permission to play by Spanish government**\
 `Barcelona will be able to play Dani Olmo and Pau Victor in the second half of the 2024-25 season — for now at least.`\
 https://nytimes.com/athletic/6037707/2025/01/08/dani-olmo-registration-barcelona-update/
-
-**‘Here We Go Again’: Trump’s Territorial Ambitions Rattle a Weary World**\
-`A distant era of global politics, when nations scrambled to grab territory, suddenly seems less distant.`\
-https://nytimes.com/2025/01/08/world/asia/trump-greenland-panama.html
 

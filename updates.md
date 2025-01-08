@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Each Cinematic Conquest Convinced Me You’d Call’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/01/08/style/tiny-modern-love-stories-each-cinematic-conquest-convinced-me-youd-call.html
+
 **DGA Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ In, ‘Wicked’ Out**\
 `Also snubbed was Coralie Fargeat of “The Substance” and other female filmmakers, though Payal Kapadia and Megan Park are up for best first feature.`\
 https://nytimes.com/2025/01/08/movies/dga-nominations.html
