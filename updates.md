@@ -1,3 +1,7 @@
+**49ers moving on from DC Nick Sorensen, hope to retain him on staff**\
+`Perhaps the No. 1 problem working against Sorensen: He wasn't Kyle Shanahan's top candidate when he was hired last offseason.`\
+https://nytimes.com/athletic/6039189/2025/01/07/sf-49ers-defensive-coordinator-nick-sorensen/
+
 **No. 8 Florida routs No. 1 Tennessee, last unbeaten team in college hoops**\
 `It's the first time the No. 1 team has lost by 30 or more since UCLA crushed Houston 101-69 in 1968.`\
 https://nytimes.com/athletic/6045791/2025/01/07/florida-tennessee-basketball-result/

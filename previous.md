@@ -1,3 +1,7 @@
+**49ers moving on from DC Nick Sorensen, hope to retain him on staff**\
+`Perhaps the No. 1 problem working against Sorensen: He wasn't Kyle Shanahan's top candidate when he was hired last offseason.`\
+https://nytimes.com/athletic/6039189/2025/01/07/sf-49ers-defensive-coordinator-nick-sorensen/
+
 **No. 8 Florida routs No. 1 Tennessee, last unbeaten team in college hoops**\
 `It's the first time the No. 1 team has lost by 30 or more since UCLA crushed Houston 101-69 in 1968.`\
 https://nytimes.com/athletic/6045791/2025/01/07/florida-tennessee-basketball-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/pacific-palisades-wildfire-evacuations.html
 **Four Fraternity Members Charged After a Pledge Is Set on Fire**\
 `Prosecutors said that a skit last year left a San Diego State University student with third-degree burns over 16 percent of his body.`\
 https://nytimes.com/2025/01/07/us/san-diego-fraternity-members-charged-fire.html
-
-**'Robust market' could have new Twins owner in place by Opening Day: Source**\
-`Twins ownership believes the club could be sold by Opening Day, an industry source briefed on the Twins’ sale process told The Athletic.`\
-https://nytimes.com/athletic/6045579/2025/01/07/minnesota-twins-sale-update-opening-day/
 
