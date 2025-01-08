@@ -1,3 +1,7 @@
+**Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
+`Arsenal lost 2-0 to Newcastle at the Emirates Stadium on Tuesday evening`\
+https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/
+
 **Word of the Day: actuarial**\
 `This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/08/learning/word-of-the-day-actuarial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/opinion/justin-trudeau-canada-progressive.html
 **In Tibet, Survivors of Strong Quake Face Freezing Weather Conditions**\
 `Rescuers rushed to distribute blankets and tents to those displaced by the magnitude-7.1 quake that struck Tibetan villages near Nepal, toppling over 3,000 homes.`\
 https://nytimes.com/2025/01/08/world/asia/tibet-quake-survivors-cold.html
-
-**Flyers special teams come up small in another loss to Maple Leafs**\
-`The Flyers' perpetually awful power play and declining penalty kill were mostly to blame in Tuesday's loss to the Maple Leafs.`\
-https://nytimes.com/athletic/6046095/2025/01/08/flyers-lose-maple-leafs-special-teams-short/
 

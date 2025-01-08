@@ -1,3 +1,7 @@
+**Arsenal taught a lesson in the value of elite strikers by Alexander Isak**\
+`Arsenal lost 2-0 to Newcastle at the Emirates Stadium on Tuesday evening`\
+https://nytimes.com/athletic/6045616/2025/01/08/arsenal-striker-newcastle-analysis/
+
 **Word of the Day: actuarial**\
 `This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/08/learning/word-of-the-day-actuarial.html
