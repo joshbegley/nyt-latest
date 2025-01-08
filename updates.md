@@ -1,3 +1,11 @@
+**Liverpool must start planning for a future without Robertson**\
+`The Scot has been a superb servant at Anfield but the evidence is mounting that he is in decline`\
+https://nytimes.com/athletic/6044204/2025/01/08/liverpool-andy-robertson-future/
+
+**Oilers dominate in Boston, avoid injury scares: 5 takeaways vs. Bruins**\
+`It wasn’t just one Oilers player but rather two who got hurt on the same sequence late in the first period.`\
+https://nytimes.com/athletic/6046013/2025/01/08/oilers-mattias-janmark-stuart-skinner-injury/
+
 **Narrow Hillside Roads Complicate Escape From Palisades Fire**\
 `Pacific Palisades feels like paradise on most days, but evacuating it in a disaster can be a real challenge.`\
 https://nytimes.com/2025/01/08/us/pacific-palisades-escape-routes-wildfire.html
