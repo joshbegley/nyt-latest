@@ -1,3 +1,7 @@
+**Astros' 13th round pick Bryce Boettcher to play another season of football at Oregon**\
+`Oregon secured a waiver for an additional year of football eligibility for Boettcher, who did not join the team until his sophomore season`\
+https://nytimes.com/athletic/6048352/2025/01/08/bryce-boettcher-oregon-football-houston-astros/
+
 **Hiker Found Alive After 13 Days Lost in Australian Mountains**\
 `The 23-year-old hiker, Hadi Nazari, survived for almost two weeks on two granola bars he found in a hut and on water from rivers and creeks, the authorities said.`\
 https://nytimes.com/2025/01/08/world/australia/missing-hiker-australia-found.html
