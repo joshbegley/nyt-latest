@@ -1,3 +1,7 @@
+**What We Know About the Wildfires Raging in Southern California**\
+`The fast-moving fires are intensifying because of fierce winds, the strongest in Southern California in more than a decade.`\
+https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html
+
 **Late Night Jokes Its Way From Canada to the ‘Gulf of America’**\
 `“We have been so concerned about all the scary things that Trump’s going to do, we forgot he’s also going to do some really stupid things,” Desi Lydic said on “The Daily Show.”`\
 https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/01/08/learning/word-of-the-day-actuarial.html
 `Newcastle United overcame Arsenal in the first-leg of their Carabao Cup semi-final on Tuesday night`\
 https://nytimes.com/athletic/6045457/2025/01/08/newcastle-united-north-london-carabao-cup/
 
-**Anatomy of a gutsy, 161-second shift that defines the Wild's special season**\
+**Anatomy of a gutsy, 164-second shift that defines the Wild's special season**\
 `"It's fun to be playing those situations when it's on the line," Jonas Brodin said. "That's what you dream about when you're a kid."`\
 https://nytimes.com/athletic/6046107/2025/01/08/wild-blues-marcus-johansson-empty-netter/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/smoke-air-quality-palisades-wildfire.html
 **Maps: Tracking the Los Angeles Wildfires**\
 `Fires driven by fierce winds scorched parts of the Los Angeles area, destroying homes and choking the sky with smoke.`\
 https://nytimes.com/interactive/2025/01/08/weather/los-angeles-fire-maps-california.html
-
-**Justin Trudeau Was His Own Worst Enemy**\
-`Justin Trudeau came to power with a new kind of politics — progressive and identity-based. In the end, it proved his undoing.`\
-https://nytimes.com/2025/01/08/opinion/justin-trudeau-canada-progressive.html
 

@@ -1,3 +1,11 @@
+**What We Know About the Wildfires Raging in Southern California**\
+`The fast-moving fires are intensifying because of fierce winds, the strongest in Southern California in more than a decade.`\
+https://nytimes.com/2025/01/08/us/wildfires-los-angeles-california.html
+
+**Anatomy of a gutsy, 164-second shift that defines the Wild's special season**\
+`"It's fun to be playing those situations when it's on the line," Jonas Brodin said. "That's what you dream about when you're a kid."`\
+https://nytimes.com/athletic/6046107/2025/01/08/wild-blues-marcus-johansson-empty-netter/
+
 **Late Night Jokes Its Way From Canada to the ‘Gulf of America’**\
 `“We have been so concerned about all the scary things that Trump’s going to do, we forgot he’s also going to do some really stupid things,” Desi Lydic said on “The Daily Show.”`\
 https://nytimes.com/2025/01/08/arts/television/trump-gulf-of-america.html
