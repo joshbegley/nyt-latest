@@ -1,3 +1,15 @@
+**This Canadiens trade deadline isn’t about asset management, it’s about culture**\
+`Canadiens GM Kent Hughes has more to learn about his team between now and March 7, but cultivating its culture should be top of mind.`\
+https://nytimes.com/athletic/6048163/2025/01/08/canadiens-nhl-trade-deadline-culture/
+
+**Here’s how to understand the air quality in Los Angeles right now.**\
+`By Camille Baker`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/california-fires-air-quality
+
+**Where California Residents Can Find Updates and Shelter**\
+`Here’s where people affected by the wildfires can find the latest information on emergency resources.`\
+https://nytimes.com/2025/01/08/us/california-fires-evacuation-shelters-updates.html
+
 **The health secretary strongly suggests Biden should not pardon Fauci.**\
 `Xavier Becerra, President Biden’s health secretary, said there should be a high bar in the pardon process. Mr. Biden has not ruled out pre-emptive pardons for those targeted by Donald Trump and his allies.`\
 https://nytimes.com/live/2025/01/08/us/trump-news/the-health-secretary-strongly-suggests-biden-should-not-pardon-fauci

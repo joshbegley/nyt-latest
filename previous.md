@@ -1,3 +1,15 @@
+**This Canadiens trade deadline isn’t about asset management, it’s about culture**\
+`Canadiens GM Kent Hughes has more to learn about his team between now and March 7, but cultivating its culture should be top of mind.`\
+https://nytimes.com/athletic/6048163/2025/01/08/canadiens-nhl-trade-deadline-culture/
+
+**Here’s how to understand the air quality in Los Angeles right now.**\
+`By Camille Baker`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/california-fires-air-quality
+
+**Where California Residents Can Find Updates and Shelter**\
+`Here’s where people affected by the wildfires can find the latest information on emergency resources.`\
+https://nytimes.com/2025/01/08/us/california-fires-evacuation-shelters-updates.html
+
 **The health secretary strongly suggests Biden should not pardon Fauci.**\
 `Xavier Becerra, President Biden’s health secretary, said there should be a high bar in the pardon process. Mr. Biden has not ruled out pre-emptive pardons for those targeted by Donald Trump and his allies.`\
 https://nytimes.com/live/2025/01/08/us/trump-news/the-health-secretary-strongly-suggests-biden-should-not-pardon-fauci
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/08/briefing/los-angeles-fires-doj-trump-documents-re
 **Presidential Odd Couple: After a Tough Race, Carter and Ford Became Friends**\
 `Jimmy Carter and Gerald R. Ford faced off in 1976 in a bitter campaign but later bonded as few presidents have — and made a pact to speak at each other’s funerals.`\
 https://nytimes.com/2025/01/08/us/politics/carter-ford-friendship.html
-
-**The Briefing: Tottenham 1 Liverpool 0 - Bergvall's winner, Bentancur stretchered off, Slot's side toothless**\
-`Jack Pitt-Brooke, Jay Harris and Andy Jones break down the main talking points from Tottenham's 1-0 League Cup semi-final win over Liverpool`\
-https://nytimes.com/athletic/6043915/2025/01/08/tottenham-1-liverpool-0-bergvall-bentancur-carabao-cup/
-
-**Some of the city’s most expensive real estate is burning.**\
-`In Pacific Palisades, the median sale price for a home was $3.3 million in December, according to Redfin.`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/los-angeles-fires-celebrity-home-damage
-
-**Trump Inauguration, Awash in Cash, Runs Out of Perks for Big Donors**\
-`The president-elect has raised more than $170 million for his swearing-in, an inaugural record, as wealthy Americans flock to curry favor with him and some give money even without the prospect of V.I.P. access.`\
-https://nytimes.com/2025/01/08/us/politics/trump-inauguration-donors.html
 
