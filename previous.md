@@ -1,3 +1,7 @@
+**U.A.W. Seeks Union Election at Ford Battery Plant in Kentucky**\
+`The United Automobile Workers union asked a federal labor regulator to conduct an election at a factory Ford jointly owns with a South Korean battery company.`\
+https://nytimes.com/2025/01/08/business/ford-union-election-kentucky-factory.html
+
 **Winds Are Expected to Ease in Southern California, but Fire Danger Will Remain**\
 `The gusty winds that helped spread multiple wildfires will slow on Wednesday, but dry conditions mean less potent winds could still be dangerous.`\
 https://nytimes.com/2025/01/08/weather/california-winds-fires-forecast.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6046818/2025/01/08/ohio-state-texas-cotton-bowl-wea
 https://nytimes.com/2025/01/08/world/asia/greenland-trump-denmark.html
 
 **As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
-`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own.`\
+`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own — and that he is willing to silence them on X.`\
 https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
 
 **Penguins Today: Tristan Jarry nears an unwelcome team record**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6046879/2025/01/08/penguins-today-tristan-jarry-fir
 **Jenna Bush Hager: ‘Today’ Show Co-Host, Literary Tastemaker and Now, Publisher**\
 `Nearly six years after becoming a literary heavyweight with “Read with Jenna,” she’s starting her own publishing venture with Penguin Random House.`\
 https://nytimes.com/2025/01/08/books/jenna-bush-hager-publishing-books.html
-
-**Jets midseason report cards: Kyle Connor, Mark Scheifele lead forward class**\
-`The Jets' dominant power play has been an enormous boost and multiple forwards are on pace for career highs. Who's leading the way?`\
-https://nytimes.com/athletic/6042151/2025/01/08/winnipeg-jets-nhl-grades-scheifele-connor/
 

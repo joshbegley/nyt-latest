@@ -1,3 +1,11 @@
+**U.A.W. Seeks Union Election at Ford Battery Plant in Kentucky**\
+`The United Automobile Workers union asked a federal labor regulator to conduct an election at a factory Ford jointly owns with a South Korean battery company.`\
+https://nytimes.com/2025/01/08/business/ford-union-election-kentucky-factory.html
+
+**As Elon Musk Embraces Far Right, Some of Its Top Figures Reject Him**\
+`Mr. Musk has fallen out with prominent right-wing Americans who say they are worried that their agenda may be sidelined in favor of his own — and that he is willing to silence them on X.`\
+https://nytimes.com/2025/01/08/technology/elon-musk-far-right.html
+
 **Winds Are Expected to Ease in Southern California, but Fire Danger Will Remain**\
 `The gusty winds that helped spread multiple wildfires will slow on Wednesday, but dry conditions mean less potent winds could still be dangerous.`\
 https://nytimes.com/2025/01/08/weather/california-winds-fires-forecast.html
