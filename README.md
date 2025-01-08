@@ -1,3 +1,7 @@
+**Bruins ‘embarrassed’ after losing fifth straight in really ugly way**\
+`“A lot of disappointment. Embarrassed. Frustration,” Elias Lindholm said after the Bruins' 4-0 loss to the Oilers.`\
+https://nytimes.com/athletic/6045945/2025/01/07/bruins-oilers-elias-lindholm/
+
 **Former Orioles pitcher Brian Matusz dies at 37**\
 `A left-handed pitcher selected fourth overall in the 2008 MLB draft, Matusz spent eight years in Baltimore.`\
 https://nytimes.com/athletic/6045912/2025/01/07/orioles-brian-matusz-death/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/crosswords/daily-puzzle-2025-01-08.html
 **Perry the Donkey, Model for ‘Shrek,’ Dies at 30**\
 `As Perry’s health declined, fans rallied behind the animal and his companions living in a Bay Area park.`\
 https://nytimes.com/2025/01/07/us/shrek-donkey-perry-dead.html
-
-**49ers moving on from DC Nick Sorensen, hope to retain him on staff**\
-`Perhaps the No. 1 problem working against Sorensen: He wasn't Kyle Shanahan's top candidate when he was hired last offseason.`\
-https://nytimes.com/athletic/6039189/2025/01/07/sf-49ers-defensive-coordinator-nick-sorensen/
 
