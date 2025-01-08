@@ -1,3 +1,11 @@
+**Saudi Arabia, Already Pumping Money into Boxing, May Start League With TKO**\
+`A company owned by the country’s sovereign wealth fund is poised to partner with TKO, which owns Ultimate Fighting Championship, the  kingdom’s latest foray into pro sports.`\
+https://nytimes.com/2025/01/08/business/tko-saudi-arabia-boxing-league.html
+
+**‘I’m devastated’: Residents in Pacific Palisades see their homes in ruins.**\
+`By Kellen Browning`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/im-devastated-residents-in-pacific-palisades-see-their-homes-in-ruins
+
 **Trump blames California’s governor, and his water policy, for the wildfires.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/trump-newsom-california-fires
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/arts/music/josh-white-jr-dead.html
 **Mexico’s President Jokes That U.S. Should Be Called Mexican America**\
 `President Claudia Sheinbaum of Mexico sarcastically suggested that the United States be renamed Mexican America in response to President-elect Trump’s proposal to rename the Gulf of Mexico to the Gulf of America.`\
 https://nytimes.com/video/us/politics/100000009915048/claudia-sheinbaum-trump-america.html
-
-**Hollywood suspends some production of shows as fires rage.**\
-`By Brooks Barnes`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/hollywood-suspends-some-production-of-shows-as-fire-rages
-
-**A conversation with Kevin Kisner on the Ryder Cup, NBC and what he wants from PGA Tour stars**\
-`Kisner will still play PGA Tour events in 2025 but is envisioning this season as a fork in the road moment for himself.`\
-https://nytimes.com/athletic/6047523/2025/01/08/kevin-kisner-nbc-golf-ryder-cup-pga-tour/
 
