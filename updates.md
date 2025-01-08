@@ -1,3 +1,11 @@
+**Liverpool's Quansah substituted off in loss to Spurs due to illness - Slot**\
+`Arne Slot revealed that illness rather than injury forced Jarell Quansah off during Liverpool&#8217;s 1-0 defeat to Tottenham Hotspur in their Carabao Cup semi-final first leg.`\
+https://nytimes.com/athletic/6048186/2025/01/08/jarell-quansah-injury-update-liverpool/
+
+**49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
+`Show him the money? Shanahan had a strong quote about Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
+https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
+
 **Bears interviewing Iowa State's Campbell, complete interview with Vrabel**\
 `Chicago also said Wednesday it completed an interview with former Tennessee Titans head coach Mike Vrabel.`\
 https://nytimes.com/athletic/6048262/2025/01/08/bears-iowa-state-matt-campbell-head-coach-interview/

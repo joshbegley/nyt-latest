@@ -1,9 +1,13 @@
+**Liverpool's Quansah substituted off in loss to Spurs due to illness - Slot**\
+`Arne Slot revealed that illness rather than injury forced Jarell Quansah off during Liverpool&#8217;s 1-0 defeat to Tottenham Hotspur in their Carabao Cup semi-final first leg.`\
+https://nytimes.com/athletic/6048186/2025/01/08/jarell-quansah-injury-update-liverpool/
+
 **Bears interviewing Iowa State's Campbell, complete interview with Vrabel**\
 `Chicago also said Wednesday it completed an interview with former Tennessee Titans head coach Mike Vrabel.`\
 https://nytimes.com/athletic/6048262/2025/01/08/bears-iowa-state-matt-campbell-head-coach-interview/
 
 **49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
-`Show him the money? Shanahan had a strong quote about Brock Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
+`Show him the money? Shanahan had a strong quote about Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
 https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
 
 **Animal Shelters Are Stretched Thin With Displaced Pets**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/californ
 **Where California Residents Can Find Updates and Shelter**\
 `Here’s where people affected by the wildfires can find the latest information on emergency resources.`\
 https://nytimes.com/2025/01/08/us/california-fires-evacuation-shelters-updates.html
-
-**The health secretary strongly suggests Biden should not pardon Fauci.**\
-`Xavier Becerra, President Biden’s health secretary, said there should be a high bar in the pardon process. Mr. Biden has not ruled out pre-emptive pardons for those targeted by Donald Trump and his allies.`\
-https://nytimes.com/live/2025/01/08/us/trump-news/the-health-secretary-strongly-suggests-biden-should-not-pardon-fauci
 
