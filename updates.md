@@ -1,3 +1,7 @@
+**Surveyor’s Measure**\
+`Laura Dershewitz’s puzzle nets positive.`\
+https://nytimes.com/2025/01/07/crosswords/daily-puzzle-2025-01-08.html
+
 **Perry the Donkey, Model for ‘Shrek,’ Dies at 30**\
 `As Perry’s health declined, fans rallied behind the animal and his companions living in a Bay Area park.`\
 https://nytimes.com/2025/01/07/us/shrek-donkey-perry-dead.html
