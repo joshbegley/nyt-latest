@@ -1,3 +1,7 @@
+**CPS assessing evidence from police on Premier League footballer accused of rape**\
+`The Crown Prosecution Service (CPS) is assessing a “full file” of evidence that was sent to them by the Metropolitan Police about a Premier League footballer arrested on suspicion of rape.`\
+https://nytimes.com/athletic/6047082/2025/01/08/premier-league-footballer-rape-cps/
+
 **Port Labor Talks Hinge on Deal on Automation**\
 `Cargo could stop flowing at East and Gulf Coast ports, which handle most imports, if a union and an employers’ group can’t agree on the use of machines that can operate without humans.`\
 https://nytimes.com/2025/01/08/business/economy/ports-longshoremen-contract-talks.html
