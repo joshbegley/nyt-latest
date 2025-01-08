@@ -1,3 +1,7 @@
+**Bournemouth striker Unal suffers ACL tear**\
+`Bournemouth striker Enes Unal is set for an extended period on the sidelines after tearing his right anterior cruciate ligament (ACL).`\
+https://nytimes.com/athletic/6046706/2025/01/08/enes-unal-bournemouth-injury-update/
+
 **Trump Asks Supreme Court to Halt His Sentencing in N.Y. Criminal Case**\
 `Prosecutors have been ordered to respond to the president-elect’s request by Thursday morning, suggesting the court could rule before Friday’s scheduled sentencing.`\
 https://nytimes.com/2025/01/08/nyregion/trump-sentencing-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6036608/2025/01/08/buffalo-bills-barbers-kenny-harr
 **Nigeria appoint Chelle as new head coach**\
 `Nigeria have appointed Eric Chelle as their new men&#8217;s head coach.`\
 https://nytimes.com/athletic/6046598/2025/01/08/nigeria-eric-chelle-head-coach/
-
-**Zion Williamson finally returned to the Pelicans. Now comes the important part**\
-`Williamson had 22 points and a memorable dunk in a loss to Minnesota, bringing much-needed hope to New Orleans. How long will it last?`\
-https://nytimes.com/athletic/6046337/2025/01/08/zion-williamsons-nba-pelicans-return-dunk-timberwolves/
 

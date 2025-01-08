@@ -1,3 +1,7 @@
+**Bournemouth striker Unal suffers ACL tear**\
+`Bournemouth striker Enes Unal is set for an extended period on the sidelines after tearing his right anterior cruciate ligament (ACL).`\
+https://nytimes.com/athletic/6046706/2025/01/08/enes-unal-bournemouth-injury-update/
+
 **Trump Asks Supreme Court to Halt His Sentencing in N.Y. Criminal Case**\
 `Prosecutors have been ordered to respond to the president-elect’s request by Thursday morning, suggesting the court could rule before Friday’s scheduled sentencing.`\
 https://nytimes.com/2025/01/08/nyregion/trump-sentencing-supreme-court.html
