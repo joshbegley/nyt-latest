@@ -1,3 +1,7 @@
+**The health secretary strongly suggests Biden should not pardon Fauci.**\
+`Xavier Becerra, President Biden’s health secretary, said there should be a high bar in the pardon process. Mr. Biden has not ruled out pre-emptive pardons for those targeted by Donald Trump and his allies.`\
+https://nytimes.com/live/2025/01/08/us/trump-news/the-health-secretary-strongly-suggests-biden-should-not-pardon-fauci
+
 **A Fashion Reporter Considers the Ways Trends Trickle Down**\
 `Jacob Gallagher, who covers men’s style for The Times, writes about teddy bear jeans, papal robes and all the fashion moments in between.`\
 https://nytimes.com/2025/01/08/insider/jacob-gallagher-new-york-times.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/los-ange
 **Trump Inauguration, Awash in Cash, Runs Out of Perks for Big Donors**\
 `The president-elect has raised more than $170 million for his swearing-in, an inaugural record, as wealthy Americans flock to curry favor with him and some give money even without the prospect of V.I.P. access.`\
 https://nytimes.com/2025/01/08/us/politics/trump-inauguration-donors.html
-
-**Villa's Philogene granted permission to undergo Ipswich medical**\
-`Aston Villa winger Jaden Philogene has been granted permission to undergo a medical at Ipswich Town after a deal was agreed between the clubs for a permanent transfer.`\
-https://nytimes.com/athletic/6032877/2025/01/08/aston-villas-jaden-philogene-granted-permission-for-ipswich-medical/
 
