@@ -1,3 +1,11 @@
+**Wisconsin cornerback Ricardo Hallman to return for fifth season with the Badgers**\
+`Hallman has played in 37 career games with 33 starts, including starting every game the past two seasons.`\
+https://nytimes.com/athletic/6048028/2025/01/08/ricardo-hallman-return-wisconsin-cornerback/
+
+**Mike Vrabel or Ben Johnson? What we're hearing about the Patriots' coaching search**\
+`The latest on New England's coaching search has Vrabel interviewing Thursday and Johnson and Aaron Glenn following suit virtually.`\
+https://nytimes.com/athletic/6047171/2025/01/08/patriots-coaching-search-mike-vrabel-ben-johnson/
+
 **Mourners Defy Subfreezing Temperatures to Honor Jimmy Carter at the Capitol**\
 `While cold weather and heightened security likely dampened turnout, thousands of well-wishers still traipsed through the snow and ice to pay final tribute to the 39th president.`\
 https://nytimes.com/2025/01/08/us/politics/jimmy-carter-mourners-capitol.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/08/nyregion/adams-turkish-consulate-fire-investigati
 **A Dangerously Dry Southern California Was Ready to Burn**\
 `Parched vegetation combined with strong Santa Ana winds and low relative humidity levels led to the devastating wildfires in Los Angeles County.`\
 https://nytimes.com/2025/01/08/weather/southern-california-fire-winds-dry.html
-
-**Opening Your First Restaurant in New York? We Want to Hear From You.**\
-`We want to follow a budding restaurateur as they set up shop in New York and navigate the city’s dining scene.`\
-https://nytimes.com/2025/01/08/dining/first-time-restaurant-owners-wanted.html
-
-**Mourners Pay Their Respects to Former President Jimmy Carter**\
-`Visitors said their final goodbyes to Jimmy Carter, lying in state at the Capitol, and reflected on what the former president meant to them.`\
-https://nytimes.com/video/us/100000009915583/jimmy-carter-funeral-mourners.html
 
