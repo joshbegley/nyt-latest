@@ -1,3 +1,15 @@
+**Thompson: Fading Warriors, defeated and desperate, need a trade in the worst way**\
+`This Warriors team isn't it. Everyone in the organization can feel it. Will they go out like this?`\
+https://nytimes.com/athletic/6047544/2025/01/08/golden-state-warriors-trade-deadline-struggles/
+
+**Wildfires intensify a pivotal moment for the insurance industry.**\
+`California’s vulnerable homeowners insurance industry faces a test as fires rage across Los Angeles.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/fire-insurance-california
+
+**Top Iranian General Admits ‘Big’ Defeat in Syria, Breaking With Other Leaders**\
+`For weeks, Iranian officials have downplayed the fall of their ally in Syria. But an important general has offered a remarkably candid view of the blow to Iran, and its military’s prospects.`\
+https://nytimes.com/2025/01/08/world/middleeast/iran-general-syria-defeat.html
+
 **Florida to host 2 outdoor NHL games in 2026, Winter Classic in Miami**\
 `The Panthers will host the Rangers at loanDepot park on Jan. 2, 2026, and the Lightning will host the Bruins at the Raymond James on Feb. 1.`\
 https://nytimes.com/athletic/6045691/2025/01/08/florida-nhl-outdoor-games/
