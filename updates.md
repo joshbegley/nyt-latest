@@ -1,3 +1,11 @@
+**I Quit Drinking Four Years Ago. I’m Still Confronting Drinking Culture.**\
+`Yes, you can become sober and remain social.`\
+https://nytimes.com/2025/01/08/opinion/alcohol-drinking-dry-january.html
+
+**Powerful Labor Group Joins A.F.L.-C.I.O. Ahead of New Trump Era**\
+`A marriage between the service employees union and the A.F.L.-C.I.O. could better equip organized labor to deal with a less-friendly administration.`\
+https://nytimes.com/2025/01/08/business/economy/afl-cio-seiu-labor-union-alliance.html
+
 **Palestinians Grieve 3 People Killed in Israeli Airstrike**\
 `An Israeli airstrike in the occupied West Bank killed three cousins on Wednesday, according to Palestinian officials and family members.`\
 https://nytimes.com/video/world/middleeast/100000009915484/israeli-airstrike-kills-three-west-bank.html

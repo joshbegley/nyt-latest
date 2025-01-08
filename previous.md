@@ -1,3 +1,11 @@
+**I Quit Drinking Four Years Ago. I’m Still Confronting Drinking Culture.**\
+`Yes, you can become sober and remain social.`\
+https://nytimes.com/2025/01/08/opinion/alcohol-drinking-dry-january.html
+
+**Powerful Labor Group Joins A.F.L.-C.I.O. Ahead of New Trump Era**\
+`A marriage between the service employees union and the A.F.L.-C.I.O. could better equip organized labor to deal with a less-friendly administration.`\
+https://nytimes.com/2025/01/08/business/economy/afl-cio-seiu-labor-union-alliance.html
+
 **Palestinians Grieve 3 People Killed in Israeli Airstrike**\
 `An Israeli airstrike in the occupied West Bank killed three cousins on Wednesday, according to Palestinian officials and family members.`\
 https://nytimes.com/video/world/middleeast/100000009915484/israeli-airstrike-kills-three-west-bank.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6048262/2025/01/08/bears-iowa-state-matt-campbell-h
 **49ers' Kyle Shanahan on next defensive coordinator, plans for Brock Purdy, Deebo Samuel**\
 `Show him the money? Shanahan had a strong quote about Purdy, saying, "I plan on being with Brock here the whole time I'm here,”`\
 https://nytimes.com/athletic/6048242/2025/01/08/49ers-defensive-coordinator-kyle-shanahan/
-
-**Animal Shelters Are Stretched Thin With Displaced Pets**\
-`Some owners fled with their pets, but a network of facilities in the Los Angeles area is straining to care for the hundreds of animals left behind.`\
-https://nytimes.com/2025/01/08/us/california-fires-pets-animals.html
-
-**Multiple Wildfires Rage Around Los Angeles**\
-`The fires have consumed thousands of acres and have displaced more than 100,000 people.`\
-https://nytimes.com/video/us/100000009915899/california-la-wildfires.html
 
