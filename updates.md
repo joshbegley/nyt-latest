@@ -1,3 +1,7 @@
+**For Him, the Beer in Your Hand Is the End of the Story**\
+`Joshua M. Bernstein was writing about bars and nightlife when the craft brew wave start to rise.`\
+https://nytimes.com/2025/01/08/insider/craft-beer.html
+
 **Abdul Carter will be a 'game-time decision' while Jeremiyah Love is 'good to go' for Orange Bowl**\
 `Marcus Freeman and James Franklin provided one final injury update ahead of Thursday night’s College Football Playoff semifinal.`\
 https://nytimes.com/athletic/6046948/2025/01/08/jeremiyah-love-abdul-carter-injury-orange-bowl/
