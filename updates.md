@@ -1,3 +1,7 @@
+**Schools Close Across Los Angeles County as Wildfires Rage**\
+`At least 18 of the 80 school districts in the county announced that schools would be closed and urged parents to take precautions as at least four wildfires burned.`\
+https://nytimes.com/2025/01/08/us/wildfires-schools-close-la-county.html
+
 **Celtics, Kristaps Porziņģis still learning how to bring out the best in each other**\
 `Since the big man returned to the lineup, Boston has been inconsistent. Porziņģis's performance against Denver on Tuesday was encouraging. `\
 https://nytimes.com/athletic/6046331/2025/01/08/celtics-kristaps-porzingis-nba-denver/
