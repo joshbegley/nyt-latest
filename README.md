@@ -1,3 +1,7 @@
+**Perry the Donkey, Model for ‘Shrek,’ Dies at 30**\
+`As Perry’s health declined, fans rallied behind the animal and his companions living in a Bay Area park.`\
+https://nytimes.com/2025/01/07/us/shrek-donkey-perry-dead.html
+
 **49ers moving on from DC Nick Sorensen, hope to retain him on staff**\
 `Perhaps the No. 1 problem working against Sorensen: He wasn't Kyle Shanahan's top candidate when he was hired last offseason.`\
 https://nytimes.com/athletic/6039189/2025/01/07/sf-49ers-defensive-coordinator-nick-sorensen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/07/us/politics/sept-11-plea-deal.html
 **Blaze Turns Pacific Palisades Into Evacuation Zone**\
 `Cars clogged scenic Sunset Boulevard and headed away from the Palisades, a seaside neighborhood on the west side of Los Angeles.`\
 https://nytimes.com/2025/01/07/us/pacific-palisades-wildfire-evacuations.html
-
-**Four Fraternity Members Charged After a Pledge Is Set on Fire**\
-`Prosecutors said that a skit last year left a San Diego State University student with third-degree burns over 16 percent of his body.`\
-https://nytimes.com/2025/01/07/us/san-diego-fraternity-members-charged-fire.html
 
