@@ -1,3 +1,7 @@
+**How Many Fires Are Burning in Southern California?**\
+`At least three major fires were burning in the Los Angeles area on Wednesday morning, destroying homes and forcing thousands to evacuate.`\
+https://nytimes.com/2025/01/08/us/palisades-eaton-hurst-fire-california.html
+
 **Wildfires in Southern California**\
 `We cover the latest on the fast-moving fires.`\
 https://nytimes.com/2025/01/08/briefing/southern-california-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6045367/2025/01/08/bears-coaching-search-ryan-poles
 **Who are top NFL Draft prospects in CFP semis? Which players have most to gain?**\
 `There will be dozens of future NFL players on the field during the College Football Playoff semifinals. `\
 https://nytimes.com/athletic/6044037/2025/01/08/nfl-draft-2025-college-football-playoffs-scouting/
-
-**Why Auston Matthews invited Joe Thornton on the Maple Leafs' mentors trip**\
-`As captain, Matthews hopes to emulate Thornton's leadership qualities, led by his focus on inclusivity and bringing everyone together. `\
-https://nytimes.com/athletic/6045608/2025/01/08/maple-leafs-auston-matthews-joe-thornton/
 
