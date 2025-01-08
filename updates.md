@@ -1,3 +1,7 @@
+**Quote of the Day: Syrians Rejoice in a Damascus Once Off Limits**\
+`Quotation of the Day for Wednesday, January 7, 2025.`\
+https://nytimes.com/2025/01/07/pageoneplus/quote-of-the-day-syrians-rejoice-in-a-damascus-once-off-limits.html
+
 **Bruins ‘embarrassed’ after losing fifth straight in really ugly way**\
 `“A lot of disappointment. Embarrassed. Frustration,” Elias Lindholm said after the Bruins' 4-0 loss to the Oilers.`\
 https://nytimes.com/athletic/6045945/2025/01/07/bruins-oilers-elias-lindholm/
