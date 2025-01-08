@@ -1,3 +1,11 @@
+**The Perfect Housewarming Present for Trump’s Second Term**\
+`Trump may be inheriting ‘Morning in America’. Will Americans accept being happy?`\
+https://nytimes.com/2025/01/08/opinion/trump-trends.html
+
+**Blinken and Top French Diplomat Criticize Trump’s Talk of Taking Greenland**\
+`In Paris, the two officials acknowledged potential strains on alliances with the return of Donald J. Trump to power, but said their countries would try to maintain strong ties.`\
+https://nytimes.com/2025/01/08/world/europe/blinken-france-trump.html
+
 **Florida to host 2 outdoor NHL games in 2026, including Winter Classic in Miami**\
 `The Panthers will host the Rangers at loanDepot park on Jan. 2, 2026, and the Lightning will host the Bruins at the Raymond James on Feb. 1.`\
 https://nytimes.com/athletic/6045691/2025/01/08/florida-nhl-outdoor-games/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/a-lack-o
 **Sportsbank enter exclusivity to invest in Textor's Eagle Football group**\
 `A sports investment group advised by the former Everton director and experienced football financier Keith Harris has entered a period of exclusivity to invest in John Textor’s Eagle Football Holdings company.`\
 https://nytimes.com/athletic/6047524/2025/01/08/crystal-palace-eagle-football-group-sportsbank/
-
-**Tiny Love Stories: ‘Each Cinematic Conquest Convinced Me You’d Call’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/01/08/style/tiny-modern-love-stories-each-cinematic-conquest-convinced-me-youd-call.html
-
-**DGA Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ In, ‘Wicked’ Out**\
-`Also snubbed was Coralie Fargeat of “The Substance” and other female filmmakers, though Payal Kapadia and Megan Park are up for best first feature.`\
-https://nytimes.com/2025/01/08/movies/dga-nominations.html
 
