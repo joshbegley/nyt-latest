@@ -1,3 +1,15 @@
+**Man City working on deals to sign Marmoush, Khusanov in January**\
+`Manchester City are working on deals to sign Omar Marmoush and Abdukodir Khusanov this month.`\
+https://nytimes.com/athletic/6034184/2025/01/08/man-city-transfers-marmoush-khusanov/
+
+**We Are Not Prepared for Fires Like This**\
+`A decade ago, this kind of disaster seemed unthinkably rare.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/california-wildfire-los-angeles
+
+**Can Trump Really Rename the Gulf of Mexico the ‘Gulf of America’?**\
+`Presidential naming powers usually stop at the water’s edge.`\
+https://nytimes.com/2025/01/08/world/americas/trump-gulf-of-mexico.html
+
 **U.K. Special Forces Allowed to ‘Get Away With Murder’ in Afghanistan, Inquiry Told**\
 `Evidence released by an official inquiry into alleged war crimes painted a disturbing picture of an elite fighting force with a culture of impunity.`\
 https://nytimes.com/2025/01/08/world/europe/uk-afghanistan-war-crimes.html
