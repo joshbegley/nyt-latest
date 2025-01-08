@@ -1,3 +1,7 @@
+**Why ‘Show Boat’ Is America’s Most Enduring, Unstable Musical**\
+`A revival called “Show/Boat: A River” joins a history of reimagining the musical that goes back nearly a century, to its first performances.`\
+https://nytimes.com/2025/01/08/arts/music/show-boat-river-musical-revival.html
+
 **SAG Award Nominations 2025: ‘Wicked’ Casts a Strong Spell**\
 `The box office hit landed five nods, while “The Last Showgirl” received unexpected recognition for stars Pamela Anderson and Jamie Lee Curtis.`\
 https://nytimes.com/2025/01/08/movies/sag-award-nominations-list.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/science/punk-emo-fossils-slugs.html
 **Trump Wants Oil Drilling in Alaska. A Lease Sale There Just Flopped.**\
 `No companies bid for the chance to drill in the Arctic National Wildlife Refuge. It was the second auction in four years that failed draw strong interest.`\
 https://nytimes.com/2025/01/08/climate/arctic-wildlife-refuge-drilling-leases.html
-
-**Please Don’t Eat Your Christmas Tree, Belgium Urges the Public**\
-`The country’s food agency warned against using evergreens in food after the city of Ghent suggested an unusual form of recycling: spruce needle butter.`\
-https://nytimes.com/2025/01/08/world/europe/belgium-christmas-tree-eating.html
 
