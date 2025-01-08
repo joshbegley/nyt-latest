@@ -1,3 +1,7 @@
+**Biden Acknowledges He Might Not Have Been Able to Serve Four More Years**\
+`President Biden insisted that he still could have beaten Donald J. Trump had he stayed in the race, but could not say he would have been vital enough to be president until age 86.`\
+https://nytimes.com/2025/01/08/us/politics/biden-interview.html
+
 **Canucks notebook: The J.T. Miller and Elias Pettersson rumour mill churns again**\
 `As trade rumours roll on, the Canucks are once again the biggest story in hockey.`\
 https://nytimes.com/athletic/6046160/2025/01/08/canucks-miller-pettersson-trade-rumors-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044410/2025/01/08/cairo-santos-didier-drogba-celeb
 **‘The Embers Were Just Flying’: Two Friends’ Rush to Save a Family Home**\
 `After evacuating, Orly Israel and a friend went back to his family’s house to try to protect it. But the furious blaze was too much.`\
 https://nytimes.com/2025/01/08/us/pacific-palisades-house-fire-evacuation-california.html
-
-**Dodgers roster projection 1.0: Where things stand after recent moves**\
-`Teoscar Hernández is back, Gavin Lux is gone and injured players are on the mend: Here's what to watch for as spring training draws near.`\
-https://nytimes.com/athletic/6044955/2025/01/08/dodgers-roster-projection-one/
 

@@ -1,3 +1,7 @@
+**Biden Acknowledges He Might Not Have Been Able to Serve Four More Years**\
+`President Biden insisted that he still could have beaten Donald J. Trump had he stayed in the race, but could not say he would have been vital enough to be president until age 86.`\
+https://nytimes.com/2025/01/08/us/politics/biden-interview.html
+
 **Canucks notebook: The J.T. Miller and Elias Pettersson rumour mill churns again**\
 `As trade rumours roll on, the Canucks are once again the biggest story in hockey.`\
 https://nytimes.com/athletic/6046160/2025/01/08/canucks-miller-pettersson-trade-rumors-nhl/
