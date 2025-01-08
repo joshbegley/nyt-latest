@@ -22,8 +22,8 @@ https://nytimes.com/2025/01/08/business/tko-saudi-arabia-boxing-league.html
 `By Kellen Browning`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/im-devastated-residents-in-pacific-palisades-see-their-homes-in-ruins
 
-**Trump blames California’s governor, and his water policy, for the wildfires.**\
-`By Michael D. Shear`\
+**Trump Blames California’s Governor, and His Water Policy, for Wildfires**\
+`In a social media post, Donald J. Trum`\
 https://nytimes.com/2025/01/08/us/trump-newsom-california-fires.html
 
 **Sam Altman’s Younger Sister Files Lawsuit Claiming He Sexually Abused Her**\
