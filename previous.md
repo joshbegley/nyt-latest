@@ -1,3 +1,11 @@
+**President Biden Becomes a Great-Grandfather**\
+`Mr. Biden said his eldest granddaughter, Naomi, gave birth to a baby boy in California.`\
+https://nytimes.com/2025/01/08/us/president-biden-becomes-a-great-grandfather.html
+
+**Will Jordan Love play vs. Eagles? Packers QB 'hopeful' as he deals with elbow soreness**\
+`Love suffered the injury early in last Sunday's game against the Bears and was limited in Wednesday's practice.`\
+https://nytimes.com/athletic/6048073/2025/01/08/jordan-love-packers-playoffs-eagles/
+
 **Carole Wilbourn, Who Put Cats on the Couch, Dies at 84**\
 `When cats bite or scratch, they’re trying to tell you something. Wilbourn, a cat therapist, was a pioneer in the art of listening to them.`\
 https://nytimes.com/2025/01/08/style/carole-wilbourn-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6032877/2025/01/08/aston-villas-jaden-philogene-gra
 **A Low-Tech Way to Save Babies’ Lives**\
 `Researchers say hundreds of thousands of babies’ lives could be saved each year in developing countries with exclusive breastfeeding.`\
 https://nytimes.com/2025/01/08/opinion/breastfeeding-africa-women.html
-
-**Israeli Soldiers on Vacation Are Being Investigated for War Crimes in Gaza**\
-`The Israeli military will longer identify its forces by name in the media, “fearing the arrest of soldiers abroad.”`\
-https://nytimes.com/2025/01/08/world/middleeast/israeli-soldiers-on-vacation-are-being-investigated-for-war-crimes-in-gaza.html
-
-**Barcelona 'do not care' about Supercopa final opponent, - Yamal**\
-`Lamine Yamal insists Barcelona &#8220;do not care&#8221; who they will play in the Supercopa de Espana final following their win over Athletic Club.`\
-https://nytimes.com/athletic/6048005/2025/01/08/barcelona-spanish-supercup-lamine-yamal/
 

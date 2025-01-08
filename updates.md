@@ -1,3 +1,11 @@
+**President Biden Becomes a Great-Grandfather**\
+`Mr. Biden said his eldest granddaughter, Naomi, gave birth to a baby boy in California.`\
+https://nytimes.com/2025/01/08/us/president-biden-becomes-a-great-grandfather.html
+
+**Will Jordan Love play vs. Eagles? Packers QB 'hopeful' as he deals with elbow soreness**\
+`Love suffered the injury early in last Sunday's game against the Bears and was limited in Wednesday's practice.`\
+https://nytimes.com/athletic/6048073/2025/01/08/jordan-love-packers-playoffs-eagles/
+
 **Carole Wilbourn, Who Put Cats on the Couch, Dies at 84**\
 `When cats bite or scratch, they’re trying to tell you something. Wilbourn, a cat therapist, was a pioneer in the art of listening to them.`\
 https://nytimes.com/2025/01/08/style/carole-wilbourn-dead.html
