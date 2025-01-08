@@ -1,3 +1,19 @@
+**Josh White Jr., Who Built on His Father’s Folk Legacy, Dies at 84**\
+`He began performing at 4 alongside his father, the celebrated singer and guitarist Josh White, and later carved out his own career.`\
+https://nytimes.com/2025/01/08/arts/music/josh-white-jr-dead.html
+
+**Mexico’s President Jokes That U.S. Should Be Called Mexican America**\
+`President Claudia Sheinbaum of Mexico sarcastically suggested that the United States be renamed Mexican America in response to President-elect Trump’s proposal to rename the Gulf of Mexico to the Gulf of America.`\
+https://nytimes.com/video/us/politics/100000009915048/claudia-sheinbaum-trump-america.html
+
+**Hollywood suspends some production of shows as fires rage.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/hollywood-suspends-some-production-of-shows-as-fire-rages
+
+**A conversation with Kevin Kisner on the Ryder Cup, NBC and what he wants from PGA Tour stars**\
+`Kisner will still play PGA Tour events in 2025 but is envisioning this season as a fork in the road moment for himself.`\
+https://nytimes.com/athletic/6047523/2025/01/08/kevin-kisner-nbc-golf-ryder-cup-pga-tour/
+
 **Will Leicester be charged by the Premier League for a PSR breach?**\
 `Leicester City had until December 31 to submit their accounts - which will be published by Companies House at a later date - for 2023-24`\
 https://nytimes.com/athletic/6046906/2025/01/08/leicester-psr-breach-risk-premier-league/

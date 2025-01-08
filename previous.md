@@ -1,3 +1,19 @@
+**Josh White Jr., Who Built on His Father’s Folk Legacy, Dies at 84**\
+`He began performing at 4 alongside his father, the celebrated singer and guitarist Josh White, and later carved out his own career.`\
+https://nytimes.com/2025/01/08/arts/music/josh-white-jr-dead.html
+
+**Mexico’s President Jokes That U.S. Should Be Called Mexican America**\
+`President Claudia Sheinbaum of Mexico sarcastically suggested that the United States be renamed Mexican America in response to President-elect Trump’s proposal to rename the Gulf of Mexico to the Gulf of America.`\
+https://nytimes.com/video/us/politics/100000009915048/claudia-sheinbaum-trump-america.html
+
+**Hollywood suspends some production of shows as fires rage.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/hollywood-suspends-some-production-of-shows-as-fire-rages
+
+**A conversation with Kevin Kisner on the Ryder Cup, NBC and what he wants from PGA Tour stars**\
+`Kisner will still play PGA Tour events in 2025 but is envisioning this season as a fork in the road moment for himself.`\
+https://nytimes.com/athletic/6047523/2025/01/08/kevin-kisner-nbc-golf-ryder-cup-pga-tour/
+
 **Mark Zuckerberg Swings Left, Swings Right, Wins Big With Both**\
 `Zuckerberg has leveraged his political ambiguity to strengthen Meta, with consequences for the future of Silicon Valley and for the truth.`\
 https://nytimes.com/2025/01/08/opinion/mark-zuckerberg-trump-meta-lobbying.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/08/world/asia/trump-greenland-panama.html
 **Will Leicester be charged by the Premier League for a PSR breach?**\
 `Leicester City had until December 31 to submit their accounts - which will be published by Companies House at a later date - for 2023-24`\
 https://nytimes.com/athletic/6046906/2025/01/08/leicester-psr-breach-risk-premier-league/
-
-**Biden Says He’s Considering Pre-emptive Pardons for Potential Trump Targets**\
-`The president hasn’t yet decided what he will do, he said, acknowledging that the makeup of Trump’s new administration could influence his decision.`\
-https://nytimes.com/2025/01/08/us/politics/biden-preemptive-pardons-trump-enemies.html
-
-**Celine Haidar, the Lebanon player struck by shrapnel, wakes from coma**\
-`Lebanese footballer Celine Haidar has woken from a coma nearly two months after the 19-year-old suffered a serious head injury during an Israeli airstrike on Beirut.`\
-https://nytimes.com/athletic/6047110/2025/01/08/celine-haidar-lebanon-football-awake/
-
-**51st State? Canadians Say No Thanks.**\
-`Canadians react to Donald Trump’s proposal. Also: Trump on the Panama Canal and Greenland; Trump and TikTok; Meta and fact-checking; a messy home.`\
-https://nytimes.com/2025/01/08/opinion/canada-51st-state-trump.html
-
-**USWNT Futures Camp provides a glimpse into Emma Hayes' long-term strategy**\
-`Plus, three key players to watch`\
-https://nytimes.com/athletic/6047288/2025/01/08/uswnt-futures-camp-emma-hayes-soccer/
 
