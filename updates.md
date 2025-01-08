@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Halt His Sentencing in N.Y. Criminal Case**\
+`Prosecutors have been ordered to respond to the president-elect’s request by Thursday morning, suggesting the court could rule before Friday’s scheduled sentencing.`\
+https://nytimes.com/2025/01/08/nyregion/trump-sentencing-supreme-court.html
+
 **Duke's win vs. Pitt will be remembered for Cooper Flagg's dunk — and this defensive tweak**\
 `Duke held an offense averaging 84.1 points per game to almost half its season average in a 76-47 win Tuesday over Pitt.`\
 https://nytimes.com/athletic/6046127/2025/01/08/cooper-flagg-dunk-duke-pitt-defense/
