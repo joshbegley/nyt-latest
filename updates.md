@@ -1,3 +1,15 @@
+**‘Here We Go Again’: Trump’s Territorial Ambitions Rattle a Weary World**\
+`A distant era of global politics, when nations scrambled to grab territory, suddenly seems less distant.`\
+https://nytimes.com/2025/01/08/world/asia/trump-greenland-panama.html
+
+**Will Leicester be charged by the Premier League for a PSR breach?**\
+`What are the PSR rules, how did we get here and what might happen?`\
+https://nytimes.com/athletic/6046906/2025/01/08/leicester-psr-breach-risk-premier-league/
+
+**Biden Says He’s Considering Pre-emptive Pardons for Potential Trump Targets**\
+`The president hasn’t yet decided what he will do, he said, acknowledging that the makeup of Trump’s new administration could influence his decision.`\
+https://nytimes.com/2025/01/08/us/politics/biden-preemptive-pardons-trump-enemies.html
+
 **Celine Haidar, the Lebanon player struck by shrapnel, wakes from coma**\
 `Lebanese footballer Celine Haidar has woken from a coma nearly two months after the 19-year-old suffered a serious head injury during an Israeli airstrike on Beirut.`\
 https://nytimes.com/athletic/6047110/2025/01/08/celine-haidar-lebanon-football-awake/
