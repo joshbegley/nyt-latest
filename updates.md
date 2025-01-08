@@ -1,3 +1,11 @@
+**California Wildfires Threaten Insurers Already Teetering From Climate Shocks**\
+`Companies started pulling back from the state as earlier fires made it harder to turn a profit. Experts warn the exodus could grow.`\
+https://nytimes.com/2025/01/08/climate/california-wildfires-threaten-insurers-already-teetering-from-climate-shocks.html
+
+**Wildfires intensify a pivotal moment for the insurance industry.**\
+`California’s vulnerable homeowners insurance industry faces a test as fires rage across Los Angeles.`\
+https://nytimes.com/2025/01/08/us/fire-insurance-california.html
+
 **Barbara Lee, a Progressive Pillar of the House, Is Running for Oakland Mayor**\
 `The Bay Area politician, known for her antiwar position and breaking barriers in Congress, just left the House after more than two decades.`\
 https://nytimes.com/2025/01/08/us/politics/barbara-lee-oakland-mayor-race.html
