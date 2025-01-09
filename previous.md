@@ -2,8 +2,8 @@
 `David P. Williams’s puzzle has an alphabetical twist.`\
 https://nytimes.com/2025/01/08/crosswords/daily-puzzle-2025-01-09.html
 
-**Cavaliers edge Thunder in meeting of NBA's top seeds**\
-`The Cavs are the seventh team in league history to win at least 32 of their first 36 games.`\
+**Cavs pass 'big test' and top Thunder in much-hyped meeting of NBA's top seeds**\
+`Cleveland snapped OKC's 15-game winning streak, but the Thunder have a chance at revenge next week.`\
 https://nytimes.com/athletic/6048606/2025/01/08/cavaliers-thunder-streak-nba-result/
 
 **Corrections: Jan. 9, 2025**\
