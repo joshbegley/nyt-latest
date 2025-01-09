@@ -1,3 +1,7 @@
+**How to Help Victims of the Southern California Wildfires**\
+`Raging fires have left five people dead, destroyed or damaged thousands of homes and other buildings and consumed thousands of acres. Here’s how you can help the victims.`\
+https://nytimes.com/2025/01/09/us/help-california-la-wildfires-victims.html
+
 **What to watch in college basketball this weekend: Ranked SEC games, Notre Dame at Duke**\
 `What to watch — and how to watch it — across a packed weekend of conference play.`\
 https://nytimes.com/athletic/6047718/2025/01/09/college-basketball-what-to-watch-alabama-kentucky-duke/
