@@ -1,40 +1,40 @@
-**CFP quarterback confidential: How good are the final four QBs?**\
-`Opposing coaches and personnel staffers break down the strengths and weaknesses of the QBs for the four teams still alive in the CFP.`\
-https://nytimes.com/athletic/6048101/2025/01/09/college-football-playoff-qbs-2025-nfl-draft/
+**Putin Gets a Snub in the Vast Wine Cellars of a Former Soviet Republic**\
+`The Russian president celebrated his 50th birthday at a winery in Moldova. After the invasion of Ukraine, it moved the bottles he was given away from public view.`\
+https://nytimes.com/2025/01/09/world/europe/moldova-wine-cellar-putin.html
 
-**2025 NBA mock draft: After Cooper Flagg and Dylan Harper, a whole lot of questions**\
-`All told, this is not shaping up to be the monstrous class that was projected in some corners.`\
-https://nytimes.com/athletic/6030735/2025/01/09/2025-nba-mock-draft-cooper-flagg-dylan-harper-johni-broome/
+**Strong bones and a broken mallet: DeMarvion Overshown details surgery and his expectations**\
+`DeMarvion Overshown is rehabbing his second ACL injury in as many years. "I'll be back playing football for sure in 2025," he says.`\
+https://nytimes.com/athletic/6048656/2025/01/09/cowboys-demarvion-overshown-acl-recovery/
 
-**Brighton's Joao Pedro out with ankle injury, awaiting results of scan**\
-`Brighton &amp; Hove Albion will be without Joao Pedro for Saturday&#8217;s FA Cup third-round tie at Championship side Norwich City.`\
-https://nytimes.com/athletic/6049023/2025/01/09/joao-pedro-ankle-injury-brighton/
+**The Battle Over TikTok Is One Front in a New Cold War**\
+`The effort to ban TikTok isn’t about what’s on the platform but rather who runs it.`\
+https://nytimes.com/2025/01/09/opinion/tiktok-supreme-court-china.html
 
-**Australian Open draw 2025: Djokovic's luck runs out, Gauff leads U.S. vs U.S. ties**\
-`The best tennis players in the world now know their fates for the first Grand Slam of the year.`\
-https://nytimes.com/athletic/6047300/2025/01/09/australian-open-draw-2025-djokovic-alcaraz-gauff/
+**Nation’s Leaders Will Gather to Honor Carter at Washington Cathedral**\
+`A state funeral for the 39th president on Thursday will bring together all five living presidents and feature a eulogy from President Biden.`\
+https://nytimes.com/2025/01/09/us/politics/jimmy-carter-funeral.html
 
-**Here’s the latest on the fires.**\
-`By Corina Knoll, Soumya Karlamangla and Mike Ives`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/heres-the-latest-on-the-fires
+**They Dreamed of a Traditional Marrakesh Riad for About $500,000**\
+`A London couple searched the medina quarter of Marrakesh, Morocco, for a home they could rent out in the near term and retire to in the long term. Here’s what they found.`\
+https://nytimes.com/interactive/2025/01/09/realestate/marrakesh-morocco-home-sale.html
 
-**Live Updates: New Wildfires Strain L.A. as Others Burn Unchecked**\
-`The two largest blazes are the most destructive to ever hit the city, and a smaller one burned overnight in the Hollywood Hills. More extreme fire danger is expected on Thursday.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles
+**Disasters Have Made L.A. What It Is**\
+`Los Angeles may have a reputation for being superficial, but it is in fact a territory that might, at any moment, upend (or even end) your life.`\
+https://nytimes.com/2025/01/09/opinion/la-wildfires-los-angeles-palisades.html
 
-**West Ham appoint Potter as new head coach until 2027**\
-`West Ham United have appointed Graham Potter as their new head coach.`\
-https://nytimes.com/athletic/6048987/2025/01/09/west-ham-graham-potter-appointment/
+**Tim Walz Endorses Ken Martin, a Fellow Minnesotan, to Lead the D.N.C.**\
+`The Minnesota governor and 2024 vice-presidential contender became the highest-profile Democrat to back Mr. Martin, one of the front-runners vying to run the party’s national committee.`\
+https://nytimes.com/2025/01/09/us/politics/tim-walz-ken-martin-dnc-chair.html
 
-**Hochul Seeks to Limit Private-Equity Ownership of Homes in New York**\
-`Widespread purchases of single-family homes by institutional investors may be contributing to soaring housing prices and low vacancy rates across the country.`\
-https://nytimes.com/2025/01/09/nyregion/private-equity-homes-hochul.html
+**Meet the Combative Populist on a Path to Become Canada’s Next Leader**\
+`Pierre Poilievre, the Conservative leader, enjoys a commanding lead in the polls as Canadians look to the next general election.`\
+https://nytimes.com/2025/01/09/world/canada/pierre-poilievre-conservative-leader-canada.html
 
-**An Art-World Mom Dishes on Her Messy Life**\
-`In a new memoir, Sarah Hoover grapples with the uglier moments that she and her husband, the artist Tom Sachs, have faced while navigating parenthood.`\
-https://nytimes.com/2025/01/09/style/sarah-hoover-memoir-tom-sachs.html
+**Philly Crossover: ‘It’s Always Sunny in Philadelphia’ Attends ‘Abbott Elementary’**\
+`The two sitcoms could hardly be more tonally different, but this week’s crossover episode of “Abbott” was relatively seamless.`\
+https://nytimes.com/2025/01/09/arts/television/its-always-sunny-in-philadelphia-abbott-elementary-crossover.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/09/crosswords/spelling-bee-forum.html
+**A Hollywood Hot Spot Fills Up With Evacuees**\
+`Some who fled wealthy Los Angeles neighborhoods ended up at a hotel known for entertainment industry power lunches.`\
+https://nytimes.com/2025/01/09/us/la-fires-hollywood-sunset-tower-hotel-evacuations.html
 
