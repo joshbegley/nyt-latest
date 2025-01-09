@@ -1,3 +1,12 @@
+**‘It Was Biblical’: Ash and Flame Upend Life in Southern California**\
+`Wind-whipped wildfire blew through communities of every socioeconomic status and stripe, merging, psychically if not physically, into a kind of mega-catastrophe.`\
+https://nytimes.com/2025/01/08/us/los-angeles-wildfires.html
+
+**Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
+`The Canucks made an impressive second-period push, but it wasn't enough as the Capitals found a way to win 2-1 in overtime.
+`\
+https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
+
 **Haunted House Feeling**\
 `David P. Williams’s puzzle has an alphabetical twist.`\
 https://nytimes.com/2025/01/08/crosswords/daily-puzzle-2025-01-09.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/01/08/us/southern-california-wildfires-safety.html
 **Water Outage in Richmond, Va., Is Expected to Last Until Friday**\
 `The winter storm on Monday knocked out power at the city’s water plant, leaving thousands under a boil water advisory for days.`\
 https://nytimes.com/2025/01/08/us/richmond-water-crisis.html
-
-**Before-and-After Images Show Scope of Palisades Fire Destruction**\
-`Comparisons of the same buildings before and after the Palisades fire reveal the extent of devastation in the area.`\
-https://nytimes.com/video/us/100000009916167/palisades-fire-before-after.html
-
-**Several longtime L.A. restaurants have been destroyed in the Palisades fire.**\
-`A cluster of businesses in Malibu and the Palisades burned, while dozens of other restaurants across the area were closed by smoke and power outages.`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/several-longtime-la-restaurants-have-been-destroyed-in-the-palisades-fire
 
