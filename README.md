@@ -1,3 +1,7 @@
+**Zay Flowers to miss Ravens' wild-card matchup vs. Steelers with knee injury**\
+`The second-year player recorded team highs of 74 receptions and 1,059 yards in 2024, becoming Lamar Jackson's most-targeted receiver.`\
+https://nytimes.com/athletic/6050101/2025/01/09/zay-flowers-injury-out-wild-card-ravens-steelers/
+
 **The Fire Map Is a Guide to Ashes and Memories**\
 `The flames don’t recognize neighborhood boundaries.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/los-angeles-fire-map-memories
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049007/2025/01/09/graham-potter-west-ham-press-con
 **Your Cooking Resolution Matchmaker Is Here**\
 `You want to eat more veggie-filled breakfasts, go big on grains and make more soup. I do, too (and I have recipes).`\
 https://nytimes.com/2025/01/09/dining/your-cooking-resolution-matchmaker-is-here.html
-
-**Jets midseason report cards: Hellebuyck and Morrissey lead goaltending, defence**\
-`High marks for Connor Hellebuyck and Josh Morrissey, but where do the rest of the goaltending and defence stand halfway through the season?`\
-https://nytimes.com/athletic/6044881/2025/01/09/winnipeg-jets-hellebuyck-morrissey-nhl-grades/
 
