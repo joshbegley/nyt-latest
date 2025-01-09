@@ -1,3 +1,23 @@
+**Monaco agree deal for Biereth signing from Sturm Graz**\
+`Monaco have agreed a deal with Sturm Graz for the signing of forward Mika Biereth.`\
+https://nytimes.com/athletic/6050493/2025/01/09/mika-biereth-monaco-transfer/
+
+**Opposition Candidate Returns to Mozambique, Declaring Himself President**\
+`After a self-imposed exile, Venâncio Mondlane was welcomed home by delirious crowds supporting his claim that the country’s last election was stolen from him by corrupt elites.`\
+https://nytimes.com/2025/01/09/world/africa/mozambique-president-mondlane-protests-election.html
+
+**Paul Oreffice, a Combative Chief of Dow Chemical, Dies at 97**\
+`He led the company as it flourished in the ’70s and ’80s while confronting veterans and environmentalists over its toxic products like Agent Orange and dioxin.`\
+https://nytimes.com/2025/01/09/business/paul-oreffice-dead.html
+
+**Right-wing influencers blame response to wildfires on a recurring target: diversity programs.**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-wildfires-false-info-right-wing-influencers
+
+**Inside Trump’s Search for a Health Threat to Justify His Immigration Crackdown**\
+`President-elect Donald J. Trump’s advisers have spent months trying to find the right disease to build their case for closing the border.`\
+https://nytimes.com/2025/01/09/us/politics/trump-title-42-migrants.html
+
 **Scientists Say Musk Wrongly Downplays Climate Role in L.A. Fires**\
 `Posting on the social media site he owns, Mr. Musk blamed the fires on government. Scientists said a warming planet set the conditions.`\
 https://nytimes.com/2025/01/09/us/elon-musk-wildfires-la-california.html
