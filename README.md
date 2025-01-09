@@ -1,3 +1,7 @@
+**Residents of Jimmy Carter’s hometown ponder a future without their famous draw.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/residents-of-jimmy-carters-hometown-ponder-a-future-without-their-famous-draw
+
 **Why General Manager Is the Hottest Job in College Sports**\
 `With players being paid and routinely changing schools, universities increasingly need someone besides a coach to put together a team.`\
 https://nytimes.com/2025/01/09/business/college-sports-general-managers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/books/review/new-books-recommendations.html
 **Firefighters Rushed to Control Blazes Surrounding L.A.**\
 `Also, Jimmy Carter was remembered as a humanitarian and public servant. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/01/09/briefing/los-angeles-fires-jimmy-carter-funeral.html
-
-**Raiders general manager candidates: John Spytek, Champ Kelly and 8 other potential fits**\
-`Several of the potential options have ties to either the Raiders or to new minority owner Tom Brady.`\
-https://nytimes.com/athletic/6050591/2025/01/09/raiders-gm-candidates-search-john-spytek-champ-kelly/
 
