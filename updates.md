@@ -73,6 +73,11 @@ https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor
 `\
 https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
 
+**Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
+`The Canucks made an impressive second-period push, but it wasn't enough, as the Capitals found a way to win 2-1 in overtime.
+`\
+https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
+
 **‘It Was Biblical’: Ash and Flame Upend Life in Southern California**\
 `Wind-whipped wildfire blew through communities of every socioeconomic status and stripe, merging, psychically if not physically, into a kind of mega-catastrophe.`\
 https://nytimes.com/2025/01/08/us/los-angeles-wildfires.html
