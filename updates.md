@@ -1,3 +1,7 @@
+**Scientists Say Musk Wrongly Downplays Climate Role in L.A. Fires**\
+`Posting on the social media site he owns, Mr. Musk blamed the fires on government. Scientists said a warming planet set the conditions.`\
+https://nytimes.com/2025/01/09/us/elon-musk-wildfires-la-california.html
+
 **Scientists say Musk wrongly downplays the role of climate in the L.A. fires.**\
 `Posting on the social media site he owns, Mr. Musk blamed the fires on government. Scientists said a warming planet set the conditions.`\
 https://nytimes.com/2025/01/09/us/elon-musk-wildfires-la-california.html
