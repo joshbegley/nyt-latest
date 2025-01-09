@@ -1,3 +1,11 @@
+**Deion Sanders says coaching his 2 sons would be only reason to consider NFL**\
+`Sanders has coached his two youngest sons for almost all of their careers dating back to peewee football.`\
+https://nytimes.com/athletic/6049575/2025/01/09/deion-sanders-nfl-coaching-shedeur-shilo/
+
+**With Trump Arriving, Zelensky Urges Allies Not to ‘Drop the Ball Now’**\
+`In an impassioned address to officials from countries supporting Ukraine, Mr. Zelensky said ‘a new chapter’ would be starting for Europe and the rest of the world, requiring even more cooperation.`\
+https://nytimes.com/2025/01/09/us/politics/trump-zelensky-ukraine-war.html
+
 **Carter’s Funeral Brings Five Presidents Together, a Rarity**\
 `It is unusual for five current and former presidents to gather at the same event, but when it happens, it is often at a funeral.`\
 https://nytimes.com/2025/01/09/us/jimmy-carter-living-presidents-gather.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049475/2025/01/09/borussia-dortmund-sebastien-kehr
 **Spurs' defensive shell game can't stop Giannis, but it's a good growth opportunity**\
 `“I think this was just a deviation from what we’ve been doing," says Harrison Barnes of the Spurs' lapses against the Bucks. `\
 https://nytimes.com/athletic/6048651/2025/01/09/spurs-defense-wembanyama-giannis-bucks/
-
-**Mourners paid their respects in Georgia and the nation’s capital.**\
-`By Maya C. Miller and Rick Rojas`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral/mourners-paid-their-respects-in-georgia-and-the-nations-capital
-
-**Edwards leaves Luton by mutual consent**\
-`Luton Town and Rob Edwards have come to a mutual agreement to part ways, the club have confirmed.`\
-https://nytimes.com/athletic/5833250/2025/01/09/rob-edwards-luton-leaves/
 

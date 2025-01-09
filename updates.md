@@ -1,3 +1,11 @@
+**Deion Sanders says coaching his 2 sons would be only reason to consider NFL**\
+`Sanders has coached his two youngest sons for almost all of their careers dating back to peewee football.`\
+https://nytimes.com/athletic/6049575/2025/01/09/deion-sanders-nfl-coaching-shedeur-shilo/
+
+**With Trump Arriving, Zelensky Urges Allies Not to ‘Drop the Ball Now’**\
+`In an impassioned address to officials from countries supporting Ukraine, Mr. Zelensky said ‘a new chapter’ would be starting for Europe and the rest of the world, requiring even more cooperation.`\
+https://nytimes.com/2025/01/09/us/politics/trump-zelensky-ukraine-war.html
+
 **Carter’s Funeral Brings Five Presidents Together, a Rarity**\
 `It is unusual for five current and former presidents to gather at the same event, but when it happens, it is often at a funeral.`\
 https://nytimes.com/2025/01/09/us/jimmy-carter-living-presidents-gather.html
