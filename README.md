@@ -1,3 +1,7 @@
+**Once thriving, Mike Tomlin’s and Russell Wilson’s legacies now hang in the balance**\
+`A season of redemption for the Steelers' coach and QB has quickly spiraled. Can they salvage it by ending the team's playoff wins drought?`\
+https://nytimes.com/athletic/6048471/2025/01/09/mike-tomlin-russell-wilson-steelers-playoffs/
+
 **Some L.A. residents have had to flee multiple fires.**\
 `People who escaped approaching blazes found themselves seeking shelter once again as more areas were evacuated across Los Angeles County.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/los-angeles-wildfire-evacuations
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047943/2025/01/09/aaron-rodgers-jets-future-trade-
 **NFL playoffs: Key matchups to watch in each AFC wild-card game**\
 `C.J. Stroud may face a lot of blitzes, the Steelers need a defensive tackle to step up and a Josh Allen target could be pivotal.`\
 https://nytimes.com/athletic/6047525/2025/01/09/nfl-afc-playoffs-super-wild-card-2025/
-
-**Don’t get too giddy, SEC haters. The king of college football will be back, and soon**\
-`Places like Georgia, Alabama, LSU and others in the SEC are always going to be committed to doing whatever it takes to build a winner.`\
-https://nytimes.com/athletic/6048041/2025/01/09/sec-college-football-playoff-cfp/
 
