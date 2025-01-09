@@ -1,3 +1,11 @@
+**Listen: ‘Loving Their Pets to Death’**\
+`Animal medicine has become a high-tech industry. Is that a good thing for pets and their owners?`\
+https://nytimes.com/2025/01/09/learning/listen-loving-their-pets-to-death.html
+
+**Southern States Face a Forecast of Ice and Heavy Snow**\
+`A stretch of the United States from Texas and Arkansas to the Carolinas is expected to see significant winter weather on Thursday and Friday.`\
+https://nytimes.com/2025/01/09/weather/snow-storm-warning-forecast-us-south.html
+
 **Can Bengals keep Tee Higgins? Resetting chances of the WR staying in Cincinnati**\
 `Joe Burrow has made it clear he wants the big three to stay together. Now the Bengals need to see if they can make it work.`\
 https://nytimes.com/athletic/6047907/2025/01/09/tee-higgins-bengals-free-agent/
