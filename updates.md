@@ -1,3 +1,11 @@
+**A technology company says its sensors signaled stress on power lines near the start of the wildfires.**\
+`By Ivan Penn`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/a-technology-company-says-its-sensors-signaled-stress-on-power-lines-near-the-start-of-the-wildfires
+
+**Twins avoid arbitration with Royce Lewis, Jhoan Duran, Griffin Jax, Ryan Jeffers, 4 others**\
+`Willi Castro, who is set to become a free agent after the season, earned the biggest payday, agreeing to terms on a $6.4 million contract.`\
+https://nytimes.com/athletic/6050511/2025/01/09/twins-arbitration-royce-lewis-duran-jax-jeffers/
+
 **Friday Briefing: Racing to Control Los Angeles Fires**\
 `Plus, renovating a wrecked palazzo.`\
 https://nytimes.com/2025/01/09/briefing/los-angeles-wildfires-lebanon-us-ukraine.html

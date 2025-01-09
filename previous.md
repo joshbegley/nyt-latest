@@ -1,3 +1,11 @@
+**A technology company says its sensors signaled stress on power lines near the start of the wildfires.**\
+`By Ivan Penn`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/a-technology-company-says-its-sensors-signaled-stress-on-power-lines-near-the-start-of-the-wildfires
+
+**Twins avoid arbitration with Royce Lewis, Jhoan Duran, Griffin Jax, Ryan Jeffers, 4 others**\
+`Willi Castro, who is set to become a free agent after the season, earned the biggest payday, agreeing to terms on a $6.4 million contract.`\
+https://nytimes.com/athletic/6050511/2025/01/09/twins-arbitration-royce-lewis-duran-jax-jeffers/
+
 **Friday Briefing: Racing to Control Los Angeles Fires**\
 `Plus, renovating a wrecked palazzo.`\
 https://nytimes.com/2025/01/09/briefing/los-angeles-wildfires-lebanon-us-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/us/politics/biden-title-ix-ruling.html
 **‘Everything is Burned Down’**\
 `Sheila Morovati’s Pacific Palisades home was spared, but her neighborhood was decimated in the Los Angeles fires. For her, climate change looms over the tragic loses.`\
 https://nytimes.com/2025/01/09/climate/los-angeles-fires-climate-change.html
-
-**Facing Criticism About Fire Response, Mayor of Los Angeles Goes on Defense**\
-`Amid pointed questions at a news conference, Karen Bass sought to deflect criticism of the city’s response to the fires.`\
-https://nytimes.com/2025/01/09/us/los-angeles-mayor-karen-bass-wildfires.html
-
-**3 Make-Ahead Recipes to Upgrade Your Work Lunch**\
-`Chefs share recipes that can be prepared in bulk on Sunday then easily modified as the week goes on.`\
-https://nytimes.com/2025/01/09/t-magazine/work-lunch-recipes.html
 
