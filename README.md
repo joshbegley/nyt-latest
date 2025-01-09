@@ -1,7 +1,3 @@
-**The Place and People That Took Care of Jimmy Carter**\
-`At his modest ranch home, the 39th president was surrounded by a close knit circle of support of friends and family.`\
-https://nytimes.com/2025/01/09/us/politics/jimmy-carter-plains-home.html
-
 **Bill to Expand Deportations of Migrants Accused of Crimes Sails Ahead in Senate**\
 `Most Democrats joined Republicans in voting to take up the measure, which would require the detention and deportation of undocumented immigrants charged with minor crimes.`\
 https://nytimes.com/2025/01/09/us/politics/immigrants-crimes-senate.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/09/world/americas/venezuelas-opposition-leader-maria
 **What’s Going On in This Graph? | Jan. 15, 2025**\
 `How has doing activities at home rather than outside the home changed over time?`\
 https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-graph-jan-15-2025.html
+
+**What’s Going On in This Picture? | Jan. 13, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-picture-jan-13-2025.html
 
