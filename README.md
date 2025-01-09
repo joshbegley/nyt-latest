@@ -1,3 +1,31 @@
+**L.A. on Fire**\
+`What we know about the wildfires devastating Southern California, and why they’ve been so hard to control.`\
+https://nytimes.com/2025/01/09/podcasts/la-on-fire.html
+
+**What to Do in New York City in January**\
+`Looking for something to do in New York? Groove to the textured folktronica of Pahua, or make the rounds during the Winter Jazzfest marathon.`\
+https://nytimes.com/2025/01/09/arts/what-to-do-nyc-arts-january-2025.html
+
+**100,000 Flee Los Angeles Wildfires, and Trump’s Last-Minute Supreme Court Ask**\
+`Plus, don’t eat your Christmas tree.`\
+https://nytimes.com/2025/01/09/podcasts/la-fires-carter-funeral-trump-sentencing.html
+
+**Company made up of baseball families ensures players on the move get their cars to new homes**\
+`Staffed fully by significant others of ballplayers, Getaway Day Agency brings personal experience to the stressful business of car shipping.`\
+https://nytimes.com/athletic/6001503/2025/01/09/baseball-players-car-shipment-company/
+
+**Blue Jackets report card: Offensive exploits mask defensive woes, lead to good grades**\
+`Before what will be an important second half for Columbus, let's evaluate what we've seen from every player to this point.`\
+https://nytimes.com/athletic/6047716/2025/01/09/blue-jackets-grades-midway-season/
+
+**Wordle Review No. 1,301**\
+`Scroll down for hints and conversation about the puzzle for Friday, Jan. 10, 2025.`\
+https://nytimes.com/2025/01/09/crosswords/wordle-review-1301.html
+
+**The Connections Companion No. 579**\
+`Scroll down for hints and conversation about the puzzle for Friday, Jan. 10, 2025.`\
+https://nytimes.com/2025/01/09/crosswords/connections-companion-579.html
+
 **Emmanuel Agbadou to Wolves: The Athletic 500 transfer ratings**\
 `We rate Wolves' new central defender as part of The Athletic 500`\
 https://nytimes.com/athletic/6043693/2025/01/09/emmanuel-agbadou-wolves-the-athletic-500-transfer-rating/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/01/09/t-magazine/debauve-gallais-chocolate-boxes-cards.
 **Why each AFC playoff team will win the Super Bowl, and why they won’t**\
 `It's difficult to imagine the conference champion not being one of the top three seeds, but as we know, in the NFL, anything can happen. `\
 https://nytimes.com/athletic/6033532/2025/01/09/nfl-playoffs-super-bowl-afc-winner/
-
-**Listen: ‘Loving Their Pets to Death’**\
-`Animal medicine has become a high-tech industry. Is that a good thing for pets and their owners?`\
-https://nytimes.com/2025/01/09/learning/listen-loving-their-pets-to-death.html
-
-**Southern States Face a Forecast of Ice and Heavy Snow**\
-`A stretch of the United States from Texas and Arkansas to the Carolinas is expected to see significant winter weather on Thursday and Friday.`\
-https://nytimes.com/2025/01/09/weather/snow-storm-warning-forecast-us-south.html
-
-**Can Bengals keep Tee Higgins? Resetting chances of the WR staying in Cincinnati**\
-`Joe Burrow has made it clear he wants the big three to stay together. Now the Bengals need to see if they can make it work.`\
-https://nytimes.com/athletic/6047907/2025/01/09/tee-higgins-bengals-free-agent/
-
-**Browns offensive coordinator search: 7 names to know during the hiring process**\
-`After firing Ken Dorsey a day after its season concluded, Cleveland is looking for a new offensive coordinator for the second straight year.`\
-https://nytimes.com/athletic/6047945/2025/01/09/browns-offensive-coordinator-search/
-
-**Boarding Schools in Tibet Reshape the ‘Souls of Children’**\
-`Across China’s west, the Communist Party is placing children in boarding schools to assimilate a generation of Tibetans into the national mainstream and mold them into loyal citizens.`\
-https://nytimes.com/interactive/2025/01/09/world/asia/tibet-china-boarding-schools.html
-
-**Putin Gets a Snub in the Vast Wine Cellars of a Former Soviet Republic**\
-`The Russian president celebrated his 50th birthday at a winery in Moldova. After the invasion of Ukraine, it moved the bottles he was given away from public view.`\
-https://nytimes.com/2025/01/09/world/europe/moldova-wine-cellar-putin.html
-
-**Strong bones and a broken mallet: DeMarvion Overshown details surgery and his expectations**\
-`DeMarvion Overshown is rehabbing his second ACL injury in as many years. "I'll be back playing football for sure in 2025," he says.`\
-https://nytimes.com/athletic/6048656/2025/01/09/cowboys-demarvion-overshown-acl-recovery/
 
