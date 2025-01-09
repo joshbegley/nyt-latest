@@ -1,3 +1,11 @@
+**Another failed Falcons season 'not good enough.' So now what?**\
+`Falcons GM Terry Fontenot said, “We haven’t won enough. It starts with me.” The team's self-evaluation process has just begun.`\
+https://nytimes.com/athletic/6050049/2025/01/09/falcons-failed-season-gm-terry-fontenot/
+
+**Carter will be buried at his Georgia home. Here’s the latest.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/carter-will-be-buried-at-his-georgia-home-heres-the-latest
+
 **House Passes Bill to Sanction I.C.C. Officials for Israeli Prosecutions**\
 `The action put the measure on track for likely enactment given strong support for it among Republicans, who now control the Senate, and President-elect Donald J. Trump.`\
 https://nytimes.com/2025/01/09/us/politics/icc-sanctions-house-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6050041/2025/01/09/grading-six-head-coach-openings-
 **Dodgers trade Diego Cartaya to Twins, who keep stockpiling catchers**\
 `The Dodgers have moved on from catcher Diego Cartaya, trading the former top prospect to the Twins for right-hander Jose Vasquez.`\
 https://nytimes.com/athletic/6050000/2025/01/09/diego-cartaya-traded-dodgers-twins/
-
-**Biden Says Jimmy Carter’s ‘Enduring Attribute’ Was Character**\
-`The president told attendees at the state funeral, including the other four living presidents, that Mr. Carter’s character allowed him to survive in a world of powerful pressures.`\
-https://nytimes.com/2025/01/09/us/biden-eulogy-jimmy-carter.html
-
-**How to prepare your home before you evacuate.**\
-`California’s state fire agency has guidance on the best ways to get your home ready before you leave.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-evacuation-prep
 
