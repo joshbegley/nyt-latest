@@ -1,3 +1,7 @@
+**In an Anxious L.A., a House Fire Puts a Neighborhood on Edge**\
+`Aghast at their city burning, residents of Studio City endured harrowing moments of uncertainty when a house caught fire in the neighborhood.`\
+https://nytimes.com/2025/01/09/us/studio-city-los-angeles-fire-sunset-sunswept.html
+
 **Why Kehl is extending his Dortmund contract after protracted negotiations**\
 `Borussia Dortmund have extended the contract of Sebastian Kehl, the club’s sporting director, until 2027.`\
 https://nytimes.com/athletic/6049475/2025/01/09/borussia-dortmund-sebastien-kehr-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/the-fires-ar
 **My game in my words. By Alessia Russo**\
 `The Women's Super League's most in-form player sits down with The Athletic to analyse her game and her brilliant run of form for Arsenal...`\
 https://nytimes.com/athletic/6043657/2025/01/09/alessia-russo-arsenal-analysis-goals-striker/
-
-**It is a national day of mourning. Here’s what that means.**\
-`By Victor Mather`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral/it-is-a-national-day-of-mourning-heres-what-that-means
 
