@@ -1,3 +1,7 @@
+**Tracking Tropical Cyclone Dikeledi**\
+`See the likely path and wind arrival times for Dikeledi.`\
+https://nytimes.com/interactive/2025/01/09/weather/dikeledi-map-path-tracker.html
+
 **49ers interview Robert Saleh for vacant DC role**\
 `Saleh left the exact position with the 49ers to become the Jets coach four seasons ago.`\
 https://nytimes.com/athletic/6050547/2025/01/09/robert-saleh-49ers-defensive-coordinator/
