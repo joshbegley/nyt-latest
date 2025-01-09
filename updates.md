@@ -1,3 +1,11 @@
+**New York City’s Economy Surged in 2024. A Trump Shake-Up Looms.**\
+`The city has made up much of the ground it lost amid the coronavirus pandemic. Donald J. Trump’s return to the White House could upend that recovery.`\
+https://nytimes.com/2025/01/09/nyregion/nyc-economy-trump.html
+
+**Moyes emerges as top target to replace Dyche as Everton manager**\
+`David Moyes is the top target to succeed Sean Dyche as Everton manager.`\
+https://nytimes.com/athletic/5466952/2025/01/09/everton-manager-next-david-moyes/
+
 **Scoop City: Grading all six NFL head coach openings**\
 `A quick assessment of the coaching opportunities available to Ben Johnson, Mike Vrabel and the other candidates`\
 https://nytimes.com/athletic/6050041/2025/01/09/grading-six-head-coach-openings-nfl-scoop-city/
