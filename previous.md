@@ -1,3 +1,7 @@
+**West Ham appoint Potter as new head coach until 2027**\
+`West Ham United have appointed Graham Potter as their new head coach.`\
+https://nytimes.com/athletic/6048987/2025/01/09/west-ham-graham-potter-appointment/
+
 **Hochul Seeks to Limit Private-Equity Ownership of Homes in New York**\
 `Widespread purchases of single-family homes by institutional investors may be contributing to soaring housing prices and low vacancy rates across the country.`\
 https://nytimes.com/2025/01/09/nyregion/private-equity-homes-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048539/2025/01/09/bergvall-kinsky-tottenham-caraba
 **Word of the Day: boutonniere**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/09/learning/word-of-the-day-boutonniere.html
-
-**Liverpool have defensive issues to address if they are to succeed in their pursuit of trophies**\
-`The Premier League leaders are conceding too many goals in recent weeks and were vulnerable against Tottenham in the Carabao Cup semi-final`\
-https://nytimes.com/athletic/6048483/2025/01/09/liverpool-tottenham-carabao-cup-defence/
 
