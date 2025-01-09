@@ -1,3 +1,7 @@
+**Mirtle: The Maple Leafs are one of the NHL's best teams at midseason. Is it sustainable?**\
+`The Leafs are a different team with a bit more backbone this season. Can they keep winning this way?`\
+https://nytimes.com/athletic/6048878/2025/01/09/maple-leafs-team-nhl-analysis-2025/
+
 **Newcastle, Villa charged over 'mass confrontation'**\
 `Jason Tindall has been charged by the Football Association (FA) for his involvement in a &#8220;mass confrontation&#8221; during Newcastle United&#8217;s Premier League win over Aston Villa on Boxing Day.`\
 https://nytimes.com/athletic/6021442/2025/01/09/jason-tindall-newcastle-aston-villa-charge/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/as-flames-ne
 **The Pulse: The massive stakes of tonight’s Playoff game**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6047458/2025/01/09/the-stakes-in-penn-state-notre-dame-plus-the-cavs-and-thunder-play-a-banger/
-
-**A Ring of Fire**\
-`We cover the latest on the wildfires across Southern California.`\
-https://nytimes.com/2025/01/09/briefing/california-los-angeles-wildfires.html
 
