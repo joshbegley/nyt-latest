@@ -1,3 +1,7 @@
+**Mourners paid their respects in Georgia and the nation’s capital.**\
+`By Maya C. Miller and Rick Rojas`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/mourners-paid-their-respects-in-georgia-and-the-nations-capital
+
 **Edwards leaves Luton by mutual consent**\
 `Luton Town and Rob Edwards have come to a mutual agreement to part ways, the club have confirmed.`\
 https://nytimes.com/athletic/5833250/2025/01/09/rob-edwards-luton-leaves/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/world/europe/germany-elon-musk-afd.html
 **After a nightmare start, Villanova is suddenly back in the mix for March**\
 `Neptune and his Wildcats are injecting some hope for a fan base no one could have blamed for feeling apathetic after two middling years.`\
 https://nytimes.com/athletic/6048831/2025/01/09/villanova-basketball-uconn-kyle-neptune/
-
-**Here’s Who Will Speak at Jimmy Carter’s Funeral**\
-`President Biden will deliver a eulogy, and tributes written by Gerald Ford and Walter Mondale will be read by their sons.`\
-https://nytimes.com/2025/01/09/us/jimmy-carter-funeral-speakers.html
 

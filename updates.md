@@ -1,3 +1,7 @@
+**Mourners paid their respects in Georgia and the nation’s capital.**\
+`By Maya C. Miller and Rick Rojas`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/mourners-paid-their-respects-in-georgia-and-the-nations-capital
+
 **Edwards leaves Luton by mutual consent**\
 `Luton Town and Rob Edwards have come to a mutual agreement to part ways, the club have confirmed.`\
 https://nytimes.com/athletic/5833250/2025/01/09/rob-edwards-luton-leaves/
