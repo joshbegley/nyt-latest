@@ -1,3 +1,7 @@
+**Newcastle, Villa charged over 'mass confrontation'**\
+`Jason Tindall has been charged by the Football Association (FA) for his involvement in a &#8220;mass confrontation&#8221; during Newcastle United&#8217;s Premier League win over Aston Villa on Boxing Day.`\
+https://nytimes.com/athletic/6021442/2025/01/09/jason-tindall-newcastle-aston-villa-charge/
+
 **Money ball: The economics of Grand Slam prize money and the tennis bottom line**\
 `Grand Slam winners' checks are some of the richest in the sport, but proportionally the players get a rawer deal than their counterparts.`\
 https://nytimes.com/athletic/6043299/2025/01/09/tennis-prize-money-grand-slams-revenue/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047458/2025/01/09/the-stakes-in-penn-state-notre-d
 **A Ring of Fire**\
 `We cover the latest on the wildfires across Southern California.`\
 https://nytimes.com/2025/01/09/briefing/california-los-angeles-wildfires.html
-
-**NBA Lookahead: Is Kings' turnaround for real? If so, what's changed?**\
-`Sacramento faces a tough test Friday night in Boston. That's just one of the highlights of this coming weekend.`\
-https://nytimes.com/athletic/6043214/2025/01/09/nba-lookahead-kings-win-streak/
 
