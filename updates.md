@@ -1,3 +1,11 @@
+**The Bounce: Now that was some basketball!**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/6049886/2025/01/09/cavs-thunder-streak-jokic-nba-the-bounce/
+
+**30-Year Mortgage Rate Climbs to 6.93%, the Highest Since July**\
+`Borrowing costs have been rising for months, tracking yields on government bonds. The move threatens to push more buyers and sellers to the sidelines.`\
+https://nytimes.com/2025/01/09/business/mortgage-rates-housing.html
+
 **'Trying to achieve great things, it's not easy': Murray describes intensity of coaching Djokovic**\
 `It will be all business when Andy Murray coaches Novak Djokovic at the Australian Open.`\
 https://nytimes.com/athletic/6049104/2025/01/09/andy-murray-novak-djokovic-coach-australian-open/
