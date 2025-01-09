@@ -1,3 +1,7 @@
+**Landry Shamet getting another NBA shot with Knicks: 'I'm grateful for the journey’**\
+`Shamet is a journeyman in the NBA, but the 27-year-old has shown himself as someone who stays ready to play. `\
+https://nytimes.com/athletic/6048874/2025/01/09/landry-shamet-knicks-nba/
+
 **Jones: NFL owners show their ineptitude and impulsivity with quick coach, GM firings**\
 `Yes, Jerod Mayo, Antonio Pierce and Ran Carthon struggled. But the Patriots, Raiders and Titans owners also deserve blame for results.`\
 https://nytimes.com/athletic/6048049/2025/01/09/nfl-coach-gm-firings-owner-blame-patriots-raiders/
