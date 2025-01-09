@@ -1,3 +1,11 @@
+**CFP quarterback confidential: How good are the final four QBs?**\
+`Opposing coaches and personnel staffers break down the strengths and weaknesses of the QBs for the four teams still alive in the CFP.`\
+https://nytimes.com/athletic/6048101/2025/01/09/college-football-playoff-qbs-2025-nfl-draft/
+
+**Australian Open draw 2025: Djokovic's luck runs out, Gauff leads U.S. vs U.S. ties**\
+`The best tennis players in the world now know their fates for the first Grand Slam of the year.`\
+https://nytimes.com/athletic/6047300/2025/01/09/australian-open-draw-2025-djokovic-alcaraz-gauff/
+
 **2025 NBA mock draft: After Cooper Flagg and Dylan Harper, a whole lot of questions**\
 `All told, this is not shaping up to be the monstrous class that was projected in some corners.`\
 https://nytimes.com/athletic/6030735/2025/01/09/2025-nba-mock-draft-cooper-flagg-dylan-harper-johni-broome/
