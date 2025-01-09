@@ -1,40 +1,40 @@
-**CFP quarterback confidential: How good are the final four QBs?**\
-`Opposing coaches and personnel staffers break down the strengths and weaknesses of the QBs for the four teams still alive in the CFP.`\
-https://nytimes.com/athletic/6048101/2025/01/09/college-football-playoff-qbs-2025-nfl-draft/
+**A Hollywood Hot Spot Fills Up With Evacuees**\
+`Some who fled wealthy Los Angeles neighborhoods ended up at a hotel known for entertainment industry power lunches.`\
+https://nytimes.com/2025/01/09/us/la-fires-hollywood-sunset-tower-hotel-evacuations.html
 
-**2025 NBA mock draft: After Cooper Flagg and Dylan Harper, a whole lot of questions**\
-`All told, this is not shaping up to be the monstrous class that was projected in some corners.`\
-https://nytimes.com/athletic/6030735/2025/01/09/2025-nba-mock-draft-cooper-flagg-dylan-harper-johni-broome/
+**Man City working on deal for Palmeiras defender Reis**\
+`Manchester City are working on a deal to sign Palmeiras defender Vitor Reis.`\
+https://nytimes.com/athletic/6049036/2025/01/09/man-city-transfers-vitor-reis/
 
-**Brighton's Joao Pedro out with ankle injury, awaiting results of scan**\
-`Brighton &amp; Hove Albion will be without Joao Pedro for Saturday&#8217;s FA Cup third-round tie at Championship side Norwich City.`\
-https://nytimes.com/athletic/6049023/2025/01/09/joao-pedro-ankle-injury-brighton/
+**What to Watch and Read if You’re Into ‘American Primeval’**\
+`This unsparingly grim Netflix western draws from a tradition of works eager to push beyond sanitized frontier myths. Here’s a supplementary guide.`\
+https://nytimes.com/2025/01/09/arts/television/american-primeval-history-books-movies.html
 
-**Australian Open draw 2025: Djokovic's luck runs out, Gauff leads U.S. vs U.S. ties**\
-`The best tennis players in the world now know their fates for the first Grand Slam of the year.`\
-https://nytimes.com/athletic/6047300/2025/01/09/australian-open-draw-2025-djokovic-alcaraz-gauff/
+**U.S. Efforts to Cut Emissions Stalled in 2024 as Power Demand Surged**\
+`After staying flat for nearly two decades, electricity use is starting to rise again, and the boom in wind and solar power hasn’t kept pace.`\
+https://nytimes.com/2025/01/09/climate/us-efforts-to-cut-emissions-stalled-in-2024-as-power-demand-surged.html
 
-**Here’s the latest on the fires.**\
-`By Corina Knoll, Soumya Karlamangla and Mike Ives`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/heres-the-latest-on-the-fires
+**Celebrated New Yorker Writer Enlisted as Model**\
+`How do you follow up a couple best-selling books? If you’re Patrick Radden Keefe, you star in a J. Crew ad.`\
+https://nytimes.com/2025/01/09/style/patrick-radden-keefe-new-yorker-writer-j-crew-ad.html
 
-**Live Updates: New Wildfires Strain L.A. as Others Burn Unchecked**\
-`The two largest blazes are the most destructive to ever hit the city, and a smaller one burned overnight in the Hollywood Hills. More extreme fire danger is expected on Thursday.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles
+**Historians Condemn Israel’s ‘Scholasticide.’ The Question Is Why.**\
+`A resolution by the American Historical Association hardens the perception that academia has become fundamentally politicized.`\
+https://nytimes.com/2025/01/09/opinion/israel-gaza-scholasticide.html
 
-**West Ham appoint Potter as new head coach until 2027**\
-`West Ham United have appointed Graham Potter as their new head coach.`\
-https://nytimes.com/athletic/6048987/2025/01/09/west-ham-graham-potter-appointment/
+**How to Make Sausage and Peppers Even Better? Add Gnocchi.**\
+`Adding crispy sheet-pan gnocchi makes for an easy, texturally delightful one-pan meal in this recipe from Melissa Clark.`\
+https://nytimes.com/2025/01/09/dining/simple-sausage-and-peppers.html
 
-**Hochul Seeks to Limit Private-Equity Ownership of Homes in New York**\
-`Widespread purchases of single-family homes by institutional investors may be contributing to soaring housing prices and low vacancy rates across the country.`\
-https://nytimes.com/2025/01/09/nyregion/private-equity-homes-hochul.html
+**White House Ignites Firestorm With Rules Governing A.I.’s Global Spread**\
+`The tech industry is fighting new regulations, expected soon, that aim to keep the cutting-edge technology in the United States and allied countries.`\
+https://nytimes.com/2025/01/09/business/economy/biden-ai-chips-rules.html
 
-**An Art-World Mom Dishes on Her Messy Life**\
-`In a new memoir, Sarah Hoover grapples with the uglier moments that she and her husband, the artist Tom Sachs, have faced while navigating parenthood.`\
-https://nytimes.com/2025/01/09/style/sarah-hoover-memoir-tom-sachs.html
+**TikTok Case Before Supreme Court Pits National Security Against Free Speech**\
+`The court, which hears arguments on Friday in a challenge to a law banning the app, has issued varying rulings when those two interests clashed.`\
+https://nytimes.com/2025/01/09/us/politics/tiktok-supreme-court-national-security-free-speech.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/09/crosswords/spelling-bee-forum.html
+**What This New Era of Power Looks Like in Washington**\
+`The vibe around the halls of Congress has been quite different from this time four years ago.`\
+https://nytimes.com/2025/01/09/opinion/kamala-harris-new-congress.html
 
