@@ -1,3 +1,7 @@
+**Live Updates: Nation’s Leaders Will Gather to Honor Carter at Washington Cathedral**\
+`A state funeral for the 39th president will bring together all five living presidents and include a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral
+
 **My game in my words. By Alessia Russo**\
 `The Women's Super League's most in-form player sits down with The Athletic to analyse her game and her brilliant run of form for Arsenal...`\
 https://nytimes.com/athletic/6043657/2025/01/09/alessia-russo-arsenal-analysis-goals-striker/
