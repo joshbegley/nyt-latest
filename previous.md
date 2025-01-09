@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Corina Knoll, Soumya Karlamangla and Mike Ives`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/heres-the-latest-on-the-fires
+
+**Live Updates: New Wildfires Strain L.A. as Others Burn Unchecked**\
+`The two largest blazes are the most destructive to ever hit the city, and a smaller one burned overnight in the Hollywood Hills. More extreme fire danger is expected on Thursday.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles
+
 **West Ham appoint Potter as new head coach until 2027**\
 `West Ham United have appointed Graham Potter as their new head coach.`\
 https://nytimes.com/athletic/6048987/2025/01/09/west-ham-graham-potter-appointment/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/arts/television/seth-meyers-trump-inflation-green
 **Why I Joined: A passionate one-club city - and running childhood tournaments with dice**\
 `Beren Cross explains why he has joined The Athletic to cover Leeds United`\
 https://nytimes.com/athletic/6044063/2025/01/09/beren-cross-why-i-joined/
-
-**Bergvall and Kinsky inject fresh impetus into the Postecoglou project**\
-`The teenager and the debutant goalkeeper starred for Spurs against Liverpool, inspiring their side to a much-needed win`\
-https://nytimes.com/athletic/6048539/2025/01/09/bergvall-kinsky-tottenham-carabao-cup/
-
-**Word of the Day: boutonniere**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/09/learning/word-of-the-day-boutonniere.html
 

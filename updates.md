@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Corina Knoll, Soumya Karlamangla and Mike Ives`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/heres-the-latest-on-the-fires
+
+**Live Updates: New Wildfires Strain L.A. as Others Burn Unchecked**\
+`The two largest blazes are the most destructive to ever hit the city, and a smaller one burned overnight in the Hollywood Hills. More extreme fire danger is expected on Thursday.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles
+
 **West Ham appoint Potter as new head coach until 2027**\
 `West Ham United have appointed Graham Potter as their new head coach.`\
 https://nytimes.com/athletic/6048987/2025/01/09/west-ham-graham-potter-appointment/
