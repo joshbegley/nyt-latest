@@ -1,3 +1,7 @@
+**Cavaliers edge Thunder in meeting of NBA's top seeds**\
+`The Cavs are the seventh team in league history to win at least 32 of their first 36 games.`\
+https://nytimes.com/athletic/6048606/2025/01/08/cavaliers-thunder-streak-nba-result/
+
 **Corrections: Jan. 9, 2025**\
 `Corrections that appeared in print on Thursday, Jan. 9, 2025.`\
 https://nytimes.com/2025/01/08/pageoneplus/corrections-jan-9-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/several-
 **Photos of Abuse Found in a Home’s Walls Lead to Prison Time for Father and Son**\
 `Old Polaroid images of child sex exploitation were found during the renovation of a California home where Theodore and James Smith had lived, the authorities said.`\
 https://nytimes.com/2025/01/08/us/sacramento-polaroids-sex-crimes-sentencing.html
-
-**Alito Spoke With Trump Shortly Before Supreme Court Filing**\
-`The justice said that the call was a job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
-https://nytimes.com/2025/01/08/us/justice-alito-trump.html
 
