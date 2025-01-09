@@ -1,3 +1,7 @@
+**2025 NBA mock draft: After Cooper Flagg and Dylan Harper, a whole lot of questions**\
+`All told, this is not shaping up to be the monstrous class that was projected in some corners.`\
+https://nytimes.com/athletic/6030735/2025/01/09/2025-nba-mock-draft-cooper-flagg-dylan-harper-johni-broome/
+
 **Brighton's Joao Pedro out with ankle injury, awaiting results of scan**\
 `Brighton &amp; Hove Albion will be without Joao Pedro for Saturday&#8217;s FA Cup third-round tie at Championship side Norwich City.`\
 https://nytimes.com/athletic/6049023/2025/01/09/joao-pedro-ankle-injury-brighton/
