@@ -1,3 +1,7 @@
+**Cavaliers edge Thunder in meeting of NBA's top seeds**\
+`The Cavs are the seventh team in league history to win at least 32 of their first 36 games.`\
+https://nytimes.com/athletic/6048606/2025/01/08/cavaliers-thunder-streak-nba-result/
+
 **Corrections: Jan. 9, 2025**\
 `Corrections that appeared in print on Thursday, Jan. 9, 2025.`\
 https://nytimes.com/2025/01/08/pageoneplus/corrections-jan-9-2025.html
