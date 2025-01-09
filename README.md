@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | Jan. 15, 2025**\
+`How has doing activities at home rather than outside the home changed over time?`\
+https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-graph-jan-15-2025.html
+
+**What’s Going On in This Picture? | Jan. 13, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-picture-jan-13-2025.html
+
 **Why Justin Verlander struggled in 2024, and what the Giants can learn from that for 2025**\
 `Verlander's velocity was down in 2024. But that doesn't tell the whole story behind his struggles or what to expect from him in 2025.`\
 https://nytimes.com/athletic/6048108/2025/01/09/justin-verlander-sf-giants-projections/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/business/enron-egg-nuclear-reactor.html
 **Carter’s hometown funeral reflects a modest life outside the presidency.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/carters-hometown-funeral-reflects-a-modest-life-outside-the-presidency
-
-**Barack Obama Attended Jimmy Carter’s State Funeral Without Michelle**\
-`The former first lady had a conflict, an official said, but she sent her condolences to the Carter family.`\
-https://nytimes.com/2025/01/09/us/michelle-obama-jimmy-carter-funeral.html
-
-**Notre Dame vs. Penn State: Picks, odds for CFP semifinal at Orange Bowl with Irish favored**\
-`Notre Dame opened as a small favorite against Penn State for the CFP semifinal at the Orange Bowl.`\
-https://nytimes.com/athletic/6034358/2025/01/09/notre-dame-penn-state-picks-odds-college-football-playoff-orange-bowl/
 
