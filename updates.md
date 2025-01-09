@@ -1,3 +1,7 @@
+**South Korean Colonel Who Accused President of Whitewash Is Acquitted**\
+`The case, involving an inquiry into a marine’s death, had stoked political tensions long before President Yoon Suk Yeol’s impeachment last month.`\
+https://nytimes.com/2025/01/09/world/asia/south-korea-yoon-colonel-acquitted.html
+
 **Manor Solomon interview - My fiancée pushed me to join Leeds. Later, I told her: 'Thank you'**\
 `Manor Solomon sat down with The Athletic's Beren Cross to discuss his time at Leeds so far and his personal life`\
 https://nytimes.com/athletic/6047724/2025/01/09/manor-solomon-leeds-united-interview/

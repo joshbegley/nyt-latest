@@ -1,3 +1,7 @@
+**South Korean Colonel Who Accused President of Whitewash Is Acquitted**\
+`The case, involving an inquiry into a marine’s death, had stoked political tensions long before President Yoon Suk Yeol’s impeachment last month.`\
+https://nytimes.com/2025/01/09/world/asia/south-korea-yoon-colonel-acquitted.html
+
 **Manor Solomon interview - My fiancée pushed me to join Leeds. Later, I told her: 'Thank you'**\
 `Manor Solomon sat down with The Athletic's Beren Cross to discuss his time at Leeds so far and his personal life`\
 https://nytimes.com/athletic/6047724/2025/01/09/manor-solomon-leeds-united-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/opinion/china-industrial-war-power-trader.html
 **Mayor’s Absence Is Considered a Sign L.A. Underestimated Fire Risks**\
 `Some residents said Mayor Karen Bass should have canceled her trip to Ghana when weather warnings in Los Angeles grew increasingly dire.`\
 https://nytimes.com/2025/01/09/us/los-angeles-mayor-fire-response.html
-
-**Moises Caicedo has become Chelsea's least replaceable player**\
-`Caicedo might not be Chelsea's best player, but there is nobody else in the squad who can do what he does as well as he does it`\
-https://nytimes.com/athletic/6046790/2025/01/09/moises-caicedo-chelsea-analysis-squad/
 
