@@ -1,11 +1,3 @@
-**Barack Obama Attended Jimmy Carter’s State Funeral Without Michelle**\
-`The former first lady had a conflict, an official said, but she sent her condolences to the Carter family.`\
-https://nytimes.com/2025/01/09/us/michelle-obama-jimmy-carter-funeral.html
-
-**Texas vs. Ohio State, picks, odds for CFP semifinal: Buckeyes clearly favored**\
-`Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
-https://nytimes.com/athletic/6032404/2025/01/09/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
-
 **Art and culture has halted in Los Angeles as the fires burn.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/cultural-events-canceled
@@ -22,7 +14,7 @@ https://nytimes.com/athletic/6050031/2025/01/09/tyreek-hill-drew-rosenhaus-commi
 `“I’m working with them together to find the next home for me because I’ve already played my last game in Dallas," Sabally said Thursday.`\
 https://nytimes.com/athletic/6050204/2025/01/09/satou-sabally-leave-dallas-wings/
 
-**Moyes' Everton exit signalled the end of stability - his return has become a necessity**\
+**Moyes' Everton exit signalled the end of stability – his return has become a necessity**\
 `The stable grasp of the man who made Everton the best of the rest at one stage might be exactly what they need for the immediate future`\
 https://nytimes.com/athletic/6050180/2025/01/09/david-moyes-everton-manager-return/
 
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6050197/2025/01/09/liverpool-transfers-kvaratskheli
 **At Jimmy Carter’s Funeral, a Rare Image of Presidential Unity**\
 `President-elect Donald J. Trump becomes part of the club. Melania Trump joins the first ladies.`\
 https://nytimes.com/2025/01/09/style/jimmy-carter-funeral-trump.html
+
+**Raiders fire GM Tom Telesco after lone season in Las Vegas**\
+`The Raiders will look for their fifth GM since Mark Davis took over as owner for his late father Al Davis in 2011.`\
+https://nytimes.com/athletic/6049678/2025/01/09/tom-telesco-fired-raiders-gm/
+
+**‘Approaching the Light’: Peter Fenwick and Stories of Near-Death Experiences**\
+`Dr. Fenwick, a neuropsychiatrist, assembled anecdotes from more than 300 people in his book “The Truth in the Light.” Here are some of them.`\
+https://nytimes.com/2025/01/09/science/peter-fenwick-near-death-experience.html
 
