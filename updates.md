@@ -1,3 +1,11 @@
+**Friday Briefing: Racing to Control Los Angeles Fires**\
+`Plus, renovating a wrecked palazzo.`\
+https://nytimes.com/2025/01/09/briefing/los-angeles-wildfires-lebanon-us-ukraine.html
+
+**Trying to Stay Steady as the MAGA Parade Marches Into Town**\
+`Washington isn’t prepared for Trump, but it is braced.`\
+https://nytimes.com/2025/01/09/opinion/trump-maga-transition-washington.html
+
 **Trying to Stay Steady as the MAGA Parade Marches Into Town**\
 `Washington isn’t prepared for Trump, but it is braced.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-maga-transition-washington
