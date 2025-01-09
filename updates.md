@@ -1,3 +1,19 @@
+**Trying to Stay Steady as the MAGA Parade Marches Into Town**\
+`Washington isn’t prepared for Trump, but it is braced.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-maga-transition-washington
+
+**‘On Call’ Is a Taut, Half-Hour Cop Drama**\
+`The abbreviated running time of the show’s eight serialized episodes works mostly to its advantage, helping the show feel less formulaic.`\
+https://nytimes.com/2025/01/09/arts/television/on-call-is-a-taut-half-hour-cop-drama.html
+
+**The Place and People That Took Care of Jimmy Carter**\
+`At his modest ranch home, the 39th president was surrounded by a close knit circle of support of friends and family.`\
+https://nytimes.com/2025/01/09/us/politics/jimmy-carter-plains-home.html
+
+**College football transfer portal QB rankings: Carson Beck jumps to No. 1 in top 30**\
+`Georgia's Carson Beck enters the portal at the top of the list ahead of John Mateer, who is headed to the SEC to play at Oklahoma.`\
+https://nytimes.com/athletic/5964434/2025/01/09/college-football-transfer-portal-quarterback-rankings/
+
 **Bill to Expand Deportations of Migrants Accused of Crimes Sails Ahead in Senate**\
 `Most Democrats joined Republicans in voting to take up the measure, which would require the detention and deportation of undocumented immigrants charged with minor crimes.`\
 https://nytimes.com/2025/01/09/us/politics/immigrants-crimes-senate.html
