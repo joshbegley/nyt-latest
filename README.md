@@ -35,6 +35,6 @@ https://nytimes.com/2025/01/09/business/paul-oreffice-dead.html
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-wildfires-false-info-right-wing-influencers
 
 **Inside Trump’s Search for a Health Threat to Justify His Immigration Crackdown**\
-`President-elect Donald J. Trump’s advisers have spent months trying to find a disease that will help them build their case for closing the border.`\
+`President-elect Donald J. Trump’s advisers have spent months trying to identify a disease that will help them build their case for closing the border.`\
 https://nytimes.com/2025/01/09/us/politics/trump-title-42-migrants.html
 
