@@ -1,3 +1,11 @@
+**Officials aren’t sure how many have died in the Los Angeles fires. Here’s why.**\
+`At least five people had been killed as of Thursday morning. Local officials said that number was likely to rise.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-death-toll
+
+**Carson Beck's decision puts Beck, Georgia on opposite ends of a big 2025 storyline**\
+`Georgia's offense was going to face pressure in 2025. Now its starting quarterback from the past two years appears to have ratcheted it up.`\
+https://nytimes.com/athletic/6050848/2025/01/09/carson-beck-transfer-portal-georgia-football/
+
 **Who Are the Victims of the Los Angeles Fires?**\
 `At least five people died in fires raging across Los Angeles. Several of them appeared to have lived near each other in the ravaged Altadena neighborhood.`\
 https://nytimes.com/2025/01/09/us/california-fires-victims.html

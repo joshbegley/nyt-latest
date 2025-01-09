@@ -1,3 +1,11 @@
+**Officials aren’t sure how many have died in the Los Angeles fires. Here’s why.**\
+`At least five people had been killed as of Thursday morning. Local officials said that number was likely to rise.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-death-toll
+
+**Carson Beck's decision puts Beck, Georgia on opposite ends of a big 2025 storyline**\
+`Georgia's offense was going to face pressure in 2025. Now its starting quarterback from the past two years appears to have ratcheted it up.`\
+https://nytimes.com/athletic/6050848/2025/01/09/carson-beck-transfer-portal-georgia-football/
+
 **Who Are the Victims of the Los Angeles Fires?**\
 `At least five people died in fires raging across Los Angeles. Several of them appeared to have lived near each other in the ravaged Altadena neighborhood.`\
 https://nytimes.com/2025/01/09/us/california-fires-victims.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/business/la-fires-housing-shortage.html
 **Richard M. Cohen, News Producer Who Wrote of a Health Challenge, Dies at 76**\
 `When he was 25, he learned that he had multiple sclerosis. He coped with the disease throughout a long career at several networks, recalled in a best-selling memoir.`\
 https://nytimes.com/2025/01/09/business/media/richard-m-cohen-dead.html
-
-**Fetterman Accepts Trump’s Invitation to Meet**\
-`The Pennsylvania Democrat is the first senator in his party to announce a meeting with President-elect Donald J. Trump, a sign of the political times as the Republican trifecta is about to begin.`\
-https://nytimes.com/2025/01/09/us/politics/fetterman-trump-meeting.html
-
-**Jimmy Carter’s descendants have largely kept a low profile.**\
-`Other than a few forays into politics, his children and grandchildren have avoided the spotlight that other presidential family members have pursued.`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral/jimmy-carters-descendants-have-largely-kept-a-low-profile
 
