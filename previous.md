@@ -1,10 +1,14 @@
+**Judge Rejects Biden’s Title IX Rules, Scrapping Protections for Trans Students**\
+`The decision threw out the administration’s proposed regulations, which prohibited discrimination based on gender identity.`\
+https://nytimes.com/2025/01/09/us/politics/biden-title-ix-ruling.html
+
 **‘Everything is Burned Down’**\
 `Sheila Morovati’s Pacific Palisades home was spared, but her neighborhood was decimated in the Los Angeles fires. For her, climate change looms over the tragic loses.`\
 https://nytimes.com/2025/01/09/climate/los-angeles-fires-climate-change.html
 
-**Facing criticism, the mayor of Los Angeles goes on defense.**\
+**Facing Criticism About Fire Response, Mayor of Los Angeles Goes on Defense**\
 `Amid pointed questions at a news conference, Karen Bass sought to deflect criticism of the city’s response to the fires.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/facing-criticism-the-mayor-of-los-angeles-goes-on-defense
+https://nytimes.com/2025/01/09/us/los-angeles-mayor-karen-bass-wildfires.html
 
 **3 Make-Ahead Recipes to Upgrade Your Work Lunch**\
 `Chefs share recipes that can be prepared in bulk on Sunday then easily modified as the week goes on.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-picture-jan-13-20
 **Why Justin Verlander struggled in 2024, and what the Giants can learn from that for 2025**\
 `Verlander's velocity was down in 2024. But that doesn't tell the whole story behind his struggles or what to expect from him in 2025.`\
 https://nytimes.com/athletic/6048108/2025/01/09/justin-verlander-sf-giants-projections/
-
-**What Teenagers Are Saying About the New Year**\
-`Students share their resolutions, advice and predictions for 2025.`\
-https://nytimes.com/2025/01/09/learning/what-teenagers-are-saying-about-the-new-year.html
 
