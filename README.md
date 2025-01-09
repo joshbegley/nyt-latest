@@ -1,3 +1,15 @@
+**Moises Caicedo has become Chelsea's least replaceable player**\
+`Caicedo might not be Chelsea's best player, but there is nobody else in the squad who can do what he does as well as he does it`\
+https://nytimes.com/athletic/6046790/2025/01/09/moises-caicedo-chelsea-analysis-squad/
+
+**Analysing why Palace's matches have been so tight this season**\
+`Few sides spend as much time in a 'marginal game state' as Palace - but there are reasons this is the case`\
+https://nytimes.com/athletic/6037741/2025/01/09/crystal-palace-tight-games-premier-league/
+
+**Arsenal want to add a wide forward in January - who should they target?**\
+`The Athletic's data team run the numbers to see who could be a suitable addition to Arsenal's attack this month`\
+https://nytimes.com/athletic/6046374/2025/01/09/arsenal-wide-forward-january-transfer-options/
+
 **Hollywood Hills Fire Threatens Beloved Los Angeles Landmarks**\
 `The Sunset fire has grown rapidly and is threatening a swath of Los Angeles that contains the Hollywood Bowl and the Chinese Theater.`\
 https://nytimes.com/2025/01/09/us/hollywood-hills-landmarks-california-fire.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6046583/2025/01/09/kobbie-mainoo-manchester-united-
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/09/briefing/wildfires-california-hostage.html
-
-**Inside Lopetegui's West Ham exit: Lack of days off, tension with players, on brink for months**\
-`Lopetegui was dismissed as West Ham head coach on Wednesday after just eight months and 22 games - this is the story of his departure`\
-https://nytimes.com/athletic/5964188/2025/01/09/julen-lopetegui-west-ham-inside-exit/
-
-**Blackhawks' future looks bright as Connor Bedard, Frank Nazar deliver goals for first time together**\
-`Wednesday was the clearest picture so far of what the Blackhawks could look like with Bedard and Nazar playing at a high level.`\
-https://nytimes.com/athletic/6048660/2025/01/09/blackhawks-connor-bedard-frank-nazar/
-
-**Egypt’s Economy Is Damaged. It Sees a Scapegoat, and a Potential Fix, in Refugees.**\
-`Palestinians, Sudanese and Syrians fleeing war have found a home in the country. But Cairo says newcomers are straining resources and is seeking financial help from the West.`\
-https://nytimes.com/2025/01/09/world/middleeast/egypts-economy-refugees.html
 
