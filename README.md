@@ -1,3 +1,7 @@
+**Titans radio voice Mike Keith shifts to college, will call Vols football, hoops**\
+`Keith, who called "The Music City Miracle" in 2000, will return to his alma mater in Knoxville.`\
+https://nytimes.com/athletic/6049363/2025/01/09/mike-keith-tennessee-volunteers-titans-broadcast/
+
 **Quick and Cozy Fragrant Coconut Chicken and Sweet Potato**\
 `A new one-pan dinner from Kay Chun that turns ground chicken and some pantry staples into a satisfying dinner.`\
 https://nytimes.com/2025/01/09/dining/coconut-chicken-sweet-potato-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048049/2025/01/09/nfl-coach-gm-firings-owner-blame
 **Cancer-free Dick Vitale ready to ‘return to my love’ of announcing games**\
 `Vitale underwent surgery in June after a biopsy of the lymph node in his neck came back cancerous.`\
 https://nytimes.com/athletic/6049532/2025/01/09/dick-vitale-cancer-free-espn/
-
-**N.Y. Prosecutors Urge Supreme Court to Let Trump’s Sentencing Proceed**\
-`Donald J. Trump had not yet exhausted his New York appeals when he turned to the Supreme Court in a last-ditch move to avoid sentencing, prosecutors argued.`\
-https://nytimes.com/2025/01/09/nyregion/trump-sentencing-supreme-court.html
 
