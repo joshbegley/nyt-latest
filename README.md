@@ -1,3 +1,7 @@
+**Art and culture has halted in Los Angeles as the fires burn.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/cultural-events-canceled
+
 **What Franco Colapinto’s Alpine F1 move means for his and Jack Doohan’s future**\
 `Signing Colapinto is a solid bet for Alpine, but there's no question it puts a spotlight on its 2025 driver before the season even begins.`\
 https://nytimes.com/athletic/6049728/2025/01/09/franco-colapinto-f1-alpine-jack-doohan-driver/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/6050031/2025/01/09/tyreek-hill-drew-rosenhaus-commi
 **Satou Sabally asks to leave Dallas Wings, find new team**\
 `“I’m working with them together to find the next home for me because I’ve already played my last game in Dallas," Sabally said Thursday.`\
 https://nytimes.com/athletic/6050204/2025/01/09/satou-sabally-leave-dallas-wings/
+
+**Moyes' Everton exit signalled the end of stability - his return has become a necessity**\
+`The stable grasp of the man who made Everton the best of the rest at one stage might be exactly what they need for the immediate future`\
+https://nytimes.com/athletic/6050180/2025/01/09/david-moyes-everton-manager-return/
 
 **Otto Schenk, Opera Director and Bulwark of Tradition, Dies at 94**\
 `A prominent practitioner of the historically grand productions that were once fashionable at the Met, he was especially well known for his stagings of Wagner.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049678/2025/01/09/tom-telesco-fired-raiders-gm/
 **‘Approaching the Light’: Peter Fenwick and Stories of Near-Death Experiences**\
 `Dr. Fenwick, a neuropsychiatrist, assembled anecdotes from more than 300 people in his book “The Truth in the Light.” Here are some of them.`\
 https://nytimes.com/2025/01/09/science/peter-fenwick-near-death-experience.html
-
-**How Jimmy Carter Bonded With the Allman Brothers**\
-`Chuck Leavell, keyboardist for the pioneering Southern rock band, said its members saw their fellow Georgian as an honest, inspiring figure.`\
-https://nytimes.com/2025/01/09/us/jimmy-carter-allman-brothers-band.html
-
-**Peter Fenwick, Leading Expert on Near-Death Experiences, Dies at 89**\
-`He was a neuropsychiatrist who was studying consciousness when a patient explained what had happened to him, and he realized the phenomenon was real.`\
-https://nytimes.com/2025/01/09/science/peter-fenwick-dead.html
 
