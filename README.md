@@ -1,3 +1,7 @@
+**Venezuela’s Opposition Leader, Maria Corina Machado, Detained at Protest**\
+`Ms. Machado has garnered enormous support for her opposition to the country’s autocrat, Nicolás Maduro.`\
+https://nytimes.com/2025/01/09/world/americas/venezuelas-opposition-leader-maria-corina-machado-detained.html
+
 **What’s Going On in This Graph? | Jan. 15, 2025**\
 `How has doing activities at home rather than outside the home changed over time?`\
 https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-graph-jan-15-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050302/2025/01/09/carson-beck-georgia-transfer-por
 **Enron Is Back. And It Wants to Sell You a Nuclear Reactor.**\
 `At least that’s what its new chief executive says, after buying the company’s trademark for a couple hundred bucks.`\
 https://nytimes.com/2025/01/09/business/enron-egg-nuclear-reactor.html
-
-**Carter’s hometown funeral reflects a modest life outside the presidency.**\
-`By Emily Cochrane`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral/carters-hometown-funeral-reflects-a-modest-life-outside-the-presidency
 
