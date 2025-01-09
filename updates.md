@@ -1,3 +1,7 @@
+**Walter Mondale died before he could deliver Carter’s eulogy, so his son is doing it instead.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/walter-mondale-died-before-he-could-deliver-carters-eulogy-so-his-son-is-doing-it-instead
+
 **Jimmy Carter Was the First ‘Born Again’ U.S. President**\
 `Mr. Carter said his spiritual rebirth was an “evolutionary thing” rather than “a flash of light or a sudden vision of God speaking.”`\
 https://nytimes.com/2025/01/09/us/politics/jimmy-carter-born-again-president.html
