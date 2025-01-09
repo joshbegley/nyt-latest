@@ -1,3 +1,15 @@
+**Hollywood Hills Fire Threatens Beloved Los Angeles Landmarks**\
+`The Sunset fire has grown rapidly and is threatening a swath of Los Angeles that contains the Hollywood Bowl and the Chinese Theater.`\
+https://nytimes.com/2025/01/09/us/hollywood-hills-landmarks-california-fire.html
+
+**The FA Cup Import-o-meter: Who needs it most this season?**\
+`In an era where league ambitions and struggles take priority over cup dreams, how much do Premier League clubs care about it this year?`\
+https://nytimes.com/athletic/6047398/2025/01/09/the-fa-cup-import-o-meter-2025/
+
+**Why do Real Madrid want Alexander-Arnold - and what would he bring to Ancelotti's side?**\
+`Madrid are sold on the Liverpool right-back’s talents. Here's why the European champions are so keen to sign him`\
+https://nytimes.com/athletic/6046699/2025/01/09/real-madrid-trent-alexander-arnold-transfer-interest-analysis/
+
 **Is Arteta right - do footballs really make a difference to performance?**\
 `Arsenal's manager blamed Puma's Oribita 1 after their cup defeat to Newcastle, but how marked is the variation between brands of balls?`\
 https://nytimes.com/athletic/6046956/2025/01/09/arsenal-football-puma-caabao-cup/
