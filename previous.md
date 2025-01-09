@@ -1,3 +1,23 @@
+**Richard M. Cohen, News Producer Who Faced a Rare Challenge, Dies at 76**\
+`When he was 25, he learned that he had multiple sclerosis. He coped with the disease throughout a long career at several networks.`\
+https://nytimes.com/2025/01/09/business/media/richard-m-cohen-dead.html
+
+**Fetterman Accepts Trump’s Invitation to Meet**\
+`The Pennsylvania Democrat is the first senator in his party to announce a meeting with President-elect Donald J. Trump, a sign of the political times as the Republican trifecta is about to begin.`\
+https://nytimes.com/2025/01/09/us/politics/fetterman-trump-meeting.html
+
+**Jimmy Carter’s descendants have largely kept a low profile.**\
+`Other than a few forays into politics, his children and grandchildren have avoided the spotlight that other presidential family members have pursued.`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/jimmy-carters-descendants-have-largely-kept-a-low-profile
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/01/09/books/review/new-books-recommendations.html
+
+**Firefighters Rushed to Control Blazes Surrounding L.A.**\
+`Also, Jimmy Carter was remembered as a humanitarian and public servant. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/09/briefing/los-angeles-fires-jimmy-carter-funeral.html
+
 **Raiders general manager candidates: John Spytek, Champ Kelly and 8 other potential fits**\
 `Several of the potential options have ties to either the Raiders or to new minority owner Tom Brady.`\
 https://nytimes.com/athletic/6050591/2025/01/09/raiders-gm-candidates-search-john-spytek-champ-kelly/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6050547/2025/01/09/robert-saleh-49ers-defensive-coo
 **The Character-Building Tool Kit**\
 `Learning to care for others or the common good should be a fundamental part of education.`\
 https://nytimes.com/2025/01/09/opinion/character-building-education.html
-
-**I’ve Changed My Mind. Audra McDonald Was Right.**\
-`Why shouldn’t “Gypsy” engage in a little creative anachronism?`\
-https://nytimes.com/2025/01/09/opinion/ive-changed-my-mind-audra-mcdonald-was-right.html
-
-**The Fires, Awards Season and Why Delays Are Complicated**\
-`Jean Smart has suggested that awards ceremonies not be televised, but historically, any postponements have been a matter of days. Besides, such changes have financial ramifications.`\
-https://nytimes.com/2025/01/09/movies/la-fires-oscars-awards-season.html
-
-**As Flames Consume Architectural Gems, a Hit to ‘Old California’**\
-`Will Rogers’s historic house and an important residence by Ray Kappe were destroyed by the fires, which threaten L.A.’s spectacular design legacy.`\
-https://nytimes.com/2025/01/09/arts/design/architecture-fires-california-los-angeles-rogers-eames.html
-
-**Monaco agree deal for Biereth signing from Sturm Graz**\
-`Monaco have agreed a deal with Sturm Graz for the signing of forward Mika Biereth.`\
-https://nytimes.com/athletic/6050493/2025/01/09/mika-biereth-monaco-transfer/
-
-**Opposition Candidate Returns to Mozambique, Declaring Himself President**\
-`After a self-imposed exile, Venâncio Mondlane was welcomed home by delirious crowds supporting his claim that the country’s last election was stolen from him by corrupt elites.`\
-https://nytimes.com/2025/01/09/world/africa/mozambique-president-mondlane-protests-election.html
 
