@@ -1,3 +1,7 @@
+**Lebanese Lawmakers Choose a President After 2 Years of Gridlock**\
+`Lawmakers elected Joseph Aoun, the commander of the Lebanese military, the first step in forming a government to lead a country recovering from economic crisis and a devastating war.`\
+https://nytimes.com/2025/01/09/world/middleeast/lebanon-politics-president-parliament-vote.html
+
 **The Athletic FC: Inside Lopetegui sacking, Spurs' youngsters shine, Barca's Olmo reprieve**\
 `Today in TAFC: The reasons why Lopetegui was sacked, give a hat tip to a Spurs duo and ask how Alexander-Arnold might fit at Real Madrid`\
 https://nytimes.com/athletic/6049117/2025/01/09/loepetetgui-west-ham-olmo-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/movies/diane-warren-relentless-review.html
 **‘Eat the Night’ Review: Connection Impossible**\
 `The lives of two siblings are upended by gang violence and the loss of a beloved video game in this haunting yet shaky French drama.`\
 https://nytimes.com/2025/01/09/movies/eat-the-night-review.html
-
-**Lamar Jackson has yet to be his best in the playoffs. The Ravens need that to change**\
-`He's won MVP awards and dominated in the regular season. But for Baltimore to reach its ultimate goal, Jackson must deliver in the playoffs.`\
-https://nytimes.com/athletic/6047686/2025/01/09/lamar-jackson-ravens-playoffs-steelers/
 
