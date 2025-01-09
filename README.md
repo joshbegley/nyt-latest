@@ -1,3 +1,11 @@
+**Why did Justin Verlander struggle so much in 2024?**\
+`Verlander's velocity was down in 2024. But that doesn't tell the whole story behind his struggles or what to expect from him in 2025.`\
+https://nytimes.com/athletic/6048108/2025/01/09/justin-verlander-sf-giants-projections/
+
+**What Teenagers Are Saying About the New Year**\
+`Students share their resolutions, advice and predictions for 2025.`\
+https://nytimes.com/2025/01/09/learning/what-teenagers-are-saying-about-the-new-year.html
+
 **Altadena, an artsy, diverse neighborhood, faces sweeping destruction.**\
 `At least five people died in the area and over 1,000 homes were burned to the ground, according to officials.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/altadena-an-artsy-diverse-neighborhood-faces-sweeping-destruction
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/us/michelle-obama-jimmy-carter-funeral.html
 **Notre Dame vs. Penn State: Picks, odds for CFP semifinal at Orange Bowl with Irish favored**\
 `Notre Dame opened as a small favorite against Penn State for the CFP semifinal at the Orange Bowl.`\
 https://nytimes.com/athletic/6034358/2025/01/09/notre-dame-penn-state-picks-odds-college-football-playoff-orange-bowl/
-
-**Texas vs. Ohio State, picks, odds for CFP semifinal: Buckeyes clearly favored**\
-`Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
-https://nytimes.com/athletic/6032404/2025/01/09/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
-
-**Art and culture has halted in Los Angeles as the fires burn.**\
-`By Matt Stevens`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/cultural-events-canceled
 
