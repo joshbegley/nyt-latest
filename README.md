@@ -1,3 +1,7 @@
+**Seth Meyers Slams Trump for Changing the Subject on Inflation**\
+`“Come on, man, you talked about this, like, every day on the campaign trail,” Meyers said of the president-elect. “You even brought props.”`\
+https://nytimes.com/2025/01/09/arts/television/seth-meyers-trump-inflation-greenland.html
+
 **Why I Joined: A passionate one-club city - and running childhood tournaments with dice**\
 `Beren Cross explains why he has joined The Athletic to cover Leeds United`\
 https://nytimes.com/athletic/6044063/2025/01/09/beren-cross-why-i-joined/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6046790/2025/01/09/moises-caicedo-chelsea-analysis-
 **Analysing why Palace's matches have been so tight this season**\
 `Few sides spend as much time in a 'marginal game state' as Palace - but there are reasons this is the case`\
 https://nytimes.com/athletic/6037741/2025/01/09/crystal-palace-tight-games-premier-league/
-
-**Arsenal want to add a wide forward in January - who should they target?**\
-`The Athletic's data team run the numbers to see who could be a suitable addition to Arsenal's attack this month`\
-https://nytimes.com/athletic/6046374/2025/01/09/arsenal-wide-forward-january-transfer-options/
 
