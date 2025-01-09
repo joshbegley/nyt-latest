@@ -1,3 +1,7 @@
+**'Why walk away?' Al Michaels wants a 39th season calling NFL prime-time games**\
+`Michaels talks with Richard Deitsch about his career, future, this weekend's wild-card game on Amazon Prime Video and Tom Brady.`\
+https://nytimes.com/athletic/6042352/2025/01/09/al-michaels-nfl-amazon-wild-card-tom-brady-andy-jassy/
+
 **How Jim Harbaugh built the Chargers culture: Black Eyed Peas, blue-collar gifts, authenticity**\
 `Harbaugh’s antics can seem cliche and even corny at times, but every one of them has a meaning and makes an impact.`\
 https://nytimes.com/athletic/6048205/2025/01/09/chargers-jim-harbaugh-playoffs-culture-change/

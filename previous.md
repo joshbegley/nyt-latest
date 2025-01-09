@@ -1,3 +1,7 @@
+**'Why walk away?' Al Michaels wants a 39th season calling NFL prime-time games**\
+`Michaels talks with Richard Deitsch about his career, future, this weekend's wild-card game on Amazon Prime Video and Tom Brady.`\
+https://nytimes.com/athletic/6042352/2025/01/09/al-michaels-nfl-amazon-wild-card-tom-brady-andy-jassy/
+
 **How Jim Harbaugh built the Chargers culture: Black Eyed Peas, blue-collar gifts, authenticity**\
 `Harbaugh’s antics can seem cliche and even corny at times, but every one of them has a meaning and makes an impact.`\
 https://nytimes.com/athletic/6048205/2025/01/09/chargers-jim-harbaugh-playoffs-culture-change/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/us/jimmy-carter-funeral
 **The Costs of the Los Angeles Fires**\
 `Damages are now estimated to reach up to $57 billion. The blazes add to a string of climate-related catastrophes hitting businesses and homeowners.`\
 https://nytimes.com/2025/01/09/business/dealbook/los-angeles-fires-costs.html
-
-**Airbnb and Vrbo will offer refunds in fire-affected areas.**\
-`The short-term rental platforms will let hosts cancel without penalty and give guests their money back in certain parts of hard-hit Los Angeles.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/airbnb-and-vrbo-will-offer-refunds-in-fire-affected-areas
 
