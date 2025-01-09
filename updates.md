@@ -1,3 +1,19 @@
+**Carter’s Funeral Brings Five Presidents Together, a Rarity**\
+`It is unusual for five current and former presidents to gather at the same event, but when it happens, it is often at a funeral.`\
+https://nytimes.com/2025/01/09/us/jimmy-carter-living-presidents-gather.html
+
+**The Slow Growth of Hand-Painted Clothes**\
+`In an era of fast fashion, some yearn for clothing with a personal touch.`\
+https://nytimes.com/2025/01/09/style/hand-drawn-clothes-swan-gossip.html
+
+**Penguins Today: The first time I saw Connor McDavid in Erie**\
+`McDavid will face the Penguins tonight and have his jersey retired in Erie tomorrow. His appearances in Pittsburgh are always a big deal.`\
+https://nytimes.com/athletic/6048904/2025/01/09/penguins-today-connor-mcdavid-erie-otters/
+
+**Eric Adams, Under Indictment, to Make His Case for a Second Term**\
+`In his fourth and potentially final State of the City speech, Mayor Eric Adams plans to focus on two campaign themes: public safety and affordability.`\
+https://nytimes.com/2025/01/09/nyregion/adams-mayor-nyc-speech.html
+
 **Danilo to return from broken leg against Luton, Nuno confirms**\
 `Nottingham Forest manager Nuno Espirito Santo has confirmed that Danilo will be on the bench against Luton Town in the FA Cup on Saturday.`\
 https://nytimes.com/athletic/6049511/2025/01/09/danilo-nottingham-forest-return/
