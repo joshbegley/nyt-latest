@@ -1,3 +1,15 @@
+**Venezuela’s Opposition Leader, Maria Corina Machado, Detained at Protest**\
+`Ms. Machado has garnered enormous support for her opposition to the country’s autocrat, Nicolás Maduro.`\
+https://nytimes.com/2025/01/09/world/americas/venezuelas-opposition-leader-maria-corina-machado-detained.html
+
+**What’s Going On in This Graph? | Jan. 15, 2025**\
+`How has doing activities at home rather than outside the home changed over time?`\
+https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-graph-jan-15-2025.html
+
+**What’s Going On in This Picture? | Jan. 13, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-picture-jan-13-2025.html
+
 **Why Justin Verlander struggled in 2024, and what the Giants can learn from that for 2025**\
 `Verlander's velocity was down in 2024. But that doesn't tell the whole story behind his struggles or what to expect from him in 2025.`\
 https://nytimes.com/athletic/6048108/2025/01/09/justin-verlander-sf-giants-projections/
