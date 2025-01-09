@@ -1,3 +1,11 @@
+**Scientists Say Musk Wrongly Downplays Climate Role in L.A. Fires**\
+`Posting on the social media site he owns, Mr. Musk blamed the fires on government. Scientists said a warming planet set the conditions.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/elon-musk-wildfires-la-california
+
+**Where to Eat When You Want to Stay In**\
+`The perfect spots for food that feels more homey than restaurant-y.`\
+https://nytimes.com/2025/01/09/dining/where-to-eat-when-you-want-to-stay-in.html
+
 **A technology company says its sensors signaled stress on power lines near the start of the wildfires.**\
 `By Ivan Penn`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/a-technology-company-says-its-sensors-signaled-stress-on-power-lines-near-the-start-of-the-wildfires
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5964434/2025/01/09/college-football-transfer-portal
 **Bill to Expand Deportations of Migrants Accused of Crimes Sails Ahead in Senate**\
 `Most Democrats joined Republicans in voting to take up the measure, which would require the detention and deportation of undocumented immigrants charged with minor crimes.`\
 https://nytimes.com/2025/01/09/us/politics/immigrants-crimes-senate.html
-
-**Judge Rejects Biden’s Title IX Rules, Scrapping Protections for Trans Students**\
-`The decision threw out the administration’s proposed regulations, which prohibited discrimination based on gender identity.`\
-https://nytimes.com/2025/01/09/us/politics/biden-title-ix-ruling.html
-
-**‘Everything is Burned Down’**\
-`Sheila Morovati’s Pacific Palisades home was spared, but her neighborhood was decimated in the Los Angeles fires. For her, climate change looms over the tragic loses.`\
-https://nytimes.com/2025/01/09/climate/los-angeles-fires-climate-change.html
 
