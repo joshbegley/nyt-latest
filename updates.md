@@ -1,3 +1,7 @@
+**Why General Manager Is the Hottest Job in College Sports**\
+`With players being paid and routinely changing schools, universities increasingly need someone besides a coach to put together a team.`\
+https://nytimes.com/2025/01/09/business/college-sports-general-managers.html
+
 **How to Help Victims of the Southern California Wildfires**\
 `Raging fires have left five people dead, destroyed or damaged thousands of homes and other buildings and consumed thousands of acres. Here’s how you can help the victims.`\
 https://nytimes.com/2025/01/09/us/help-california-la-wildfires-victims.html

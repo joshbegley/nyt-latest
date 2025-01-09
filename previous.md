@@ -1,3 +1,7 @@
+**Why General Manager Is the Hottest Job in College Sports**\
+`With players being paid and routinely changing schools, universities increasingly need someone besides a coach to put together a team.`\
+https://nytimes.com/2025/01/09/business/college-sports-general-managers.html
+
 **How to Help Victims of the Southern California Wildfires**\
 `Raging fires have left five people dead, destroyed or damaged thousands of homes and other buildings and consumed thousands of acres. Here’s how you can help the victims.`\
 https://nytimes.com/2025/01/09/us/help-california-la-wildfires-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/briefing/los-angeles-fires-jimmy-carter-funeral.h
 **Raiders general manager candidates: John Spytek, Champ Kelly and 8 other potential fits**\
 `Several of the potential options have ties to either the Raiders or to new minority owner Tom Brady.`\
 https://nytimes.com/athletic/6050591/2025/01/09/raiders-gm-candidates-search-john-spytek-champ-kelly/
-
-**How the Destruction in Los Angeles Ranks in California’s Fire History**\
-`The proximity of the fires to densely populated areas means that they are burning through more structures than past fires that covered more territory, preliminary figures show.`\
-https://nytimes.com/2025/01/12/us/californias-worst-wildfires-history.html
 
