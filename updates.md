@@ -1,3 +1,15 @@
+**How is each Sabres player performing relative to expectations? Midseason report card**\
+`By every measure, the Sabres are one of the most disappointing teams in the NHL through 41 games.`\
+https://nytimes.com/athletic/6049845/2025/01/09/buffalo-sabres-midseason-report-card-2025/
+
+**Billy Crystal and Paris Hilton are among those whose homes were lost or damaged.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-celebrity-homes-los-angeles
+
+**Jimmy Carter’s Large Family Honors the Former President**\
+`Only three family members spoke during the funeral at the National Cathedral in Washington, but many more attended the services and are expected in Plains. Ga.`\
+https://nytimes.com/2025/01/09/us/jimmy-carter-family-profile.html
+
 **France Indicts Founder of Notorious Website Used in Pelicot Rape Case**\
 `The site, coco.fr, was shut down in June after being linked to more than 23,000 sexual abuse and other cases in France alone, including the rape trial that shocked the country last year.`\
 https://nytimes.com/2025/01/09/france-pelicot-rape-trial-coco-indictment.html
