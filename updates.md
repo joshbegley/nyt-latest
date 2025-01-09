@@ -1,3 +1,11 @@
+**The Fire Map Is a Guide to Ashes and Memories**\
+`The flames don’t recognize neighborhood boundaries.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/los-angeles-fire-map-memories
+
+**Jets midseason report cards: Hellebuyck and Morrissey lead goaltending, defence**\
+`High marks for Connor Hellebuyck and Josh Morrissey, but where do the rest of the goaltending and defence stand halfway through the season?`\
+https://nytimes.com/athletic/6044881/2025/01/09/winnipeg-jets-hellebuyck-morrissey-nhl-grades/
+
 **Betting for (by) dummies: This is an Emeka Egbuka touchdown prop column**\
 `Zac Jackson and Jon Greenberg make bets for the college and NFL playoffs and of course continue to ride the Emeka Egbuka touchdown train.`\
 https://nytimes.com/athletic/6049742/2025/01/09/betting-for-by-dummies-playoffs-emeka-egbuka/

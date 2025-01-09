@@ -1,3 +1,11 @@
+**The Fire Map Is a Guide to Ashes and Memories**\
+`The flames don’t recognize neighborhood boundaries.`\
+https://nytimes.com/live/2025/01/02/opinion/thepoint/los-angeles-fire-map-memories
+
+**Jets midseason report cards: Hellebuyck and Morrissey lead goaltending, defence**\
+`High marks for Connor Hellebuyck and Josh Morrissey, but where do the rest of the goaltending and defence stand halfway through the season?`\
+https://nytimes.com/athletic/6044881/2025/01/09/winnipeg-jets-hellebuyck-morrissey-nhl-grades/
+
 **Betting for (by) dummies: This is an Emeka Egbuka touchdown prop column**\
 `Zac Jackson and Jon Greenberg make bets for the college and NFL playoffs and of course continue to ride the Emeka Egbuka touchdown train.`\
 https://nytimes.com/athletic/6049742/2025/01/09/betting-for-by-dummies-playoffs-emeka-egbuka/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-f
 **Jimmy Carter’s Large Family Honors the Former President**\
 `Only three family members spoke during the funeral at the National Cathedral in Washington, but many more attended the services and are expected in Plains. Ga.`\
 https://nytimes.com/2025/01/09/us/jimmy-carter-family-profile.html
-
-**France Indicts Founder of Notorious Website Used in Pelicot Rape Case**\
-`The site, coco.fr, was shut down in June after being linked to more than 23,000 sexual abuse and other cases in France alone, including the rape trial that shocked the country last year.`\
-https://nytimes.com/2025/01/09/france-pelicot-rape-trial-coco-indictment.html
-
-**Demi Moore Teaches Hollywood a Lesson**\
-`She’s the 62-year-old queen of an awards season with overdue female diversity.`\
-https://nytimes.com/2025/01/09/opinion/demi-moore-golden-globes.html
 
