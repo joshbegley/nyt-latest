@@ -1,3 +1,11 @@
+**Jimmy Carter Was the First ‘Born Again’ U.S. President**\
+`Mr. Carter said his spiritual rebirth was an “evolutionary thing” rather than “a flash of light or a sudden vision of God speaking.”`\
+https://nytimes.com/2025/01/09/us/politics/jimmy-carter-born-again-president.html
+
+**‘We’ve Lost Everything’: Los Angeles Residents Reel From Wildfires**\
+`Fires in parts of Los Angeles destroyed 2,000 structures and burned through 27,000 acres, equivalent to nearly 20,000 football fields.`\
+https://nytimes.com/video/us/100000009916693/los-angeles-residents-burnt-homes-fires-.html
+
 **Landry Shamet getting another NBA shot with Knicks: 'I'm grateful for the journey’**\
 `Shamet is a journeyman in the NBA, but the 27-year-old has shown himself as someone who stays ready to play. `\
 https://nytimes.com/athletic/6048874/2025/01/09/landry-shamet-knicks-nba/
