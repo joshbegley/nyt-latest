@@ -1,4 +1,4 @@
-**Why did Justin Verlander struggle so much in 2024?**\
+**Why Justin Verlander struggled in 2024, and what the Giants can learn from that for 2025**\
 `Verlander's velocity was down in 2024. But that doesn't tell the whole story behind his struggles or what to expect from him in 2025.`\
 https://nytimes.com/athletic/6048108/2025/01/09/justin-verlander-sf-giants-projections/
 
