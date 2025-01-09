@@ -1,3 +1,7 @@
+**Several longtime L.A. restaurants have been destroyed in the Palisades fire.**\
+`A cluster of businesses in Malibu and the Palisades burned, while dozens of other restaurants across the area were closed by smoke and power outages.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/several-longtime-la-restaurants-have-been-destroyed-in-the-palisades-fire
+
 **Photos of Abuse Found in a Home’s Walls Lead to Prison Time for Father and Son**\
 `Old Polaroid images of child sex exploitation were found during the renovation of a California home where Theodore and James Smith had lived, the authorities said.`\
 https://nytimes.com/2025/01/08/us/sacramento-polaroids-sex-crimes-sentencing.html

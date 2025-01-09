@@ -1,3 +1,7 @@
+**Several longtime L.A. restaurants have been destroyed in the Palisades fire.**\
+`A cluster of businesses in Malibu and the Palisades burned, while dozens of other restaurants across the area were closed by smoke and power outages.`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/several-longtime-la-restaurants-have-been-destroyed-in-the-palisades-fire
+
 **Photos of Abuse Found in a Home’s Walls Lead to Prison Time for Father and Son**\
 `Old Polaroid images of child sex exploitation were found during the renovation of a California home where Theodore and James Smith had lived, the authorities said.`\
 https://nytimes.com/2025/01/08/us/sacramento-polaroids-sex-crimes-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/business/economy/afl-cio-seiu-labor-union-allianc
 **Palestinians Grieve 3 People Killed in Israeli Airstrike**\
 `An Israeli airstrike in the occupied West Bank killed three cousins on Wednesday, according to Palestinian officials and family members.`\
 https://nytimes.com/video/world/middleeast/100000009915484/israeli-airstrike-kills-three-west-bank.html
-
-**Los Angeles-area air traffic remains mostly normal despite the fires.**\
-`By Christine Chung`\
-https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/los-angeles-area-air-traffic-remains-mostly-normal-despite-the-fires
 
