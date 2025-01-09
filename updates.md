@@ -1,3 +1,7 @@
+**Jaden Hicks just the latest young, capable defensive back the Chiefs have developed**\
+`Hicks leads the Chiefs with three interceptions despite starting only one game. He should play a role in the postseason.`\
+https://nytimes.com/athletic/6048340/2025/01/09/chiefs-jaden-hicks-rookie-season/
+
 **Some L.A. residents have had to flee multiple fires.**\
 `People who escaped approaching blazes found themselves seeking shelter once again as more areas were evacuated across Los Angeles County.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/los-angeles-wildfire-evacuations
