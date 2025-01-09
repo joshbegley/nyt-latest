@@ -1,8 +1,12 @@
+**Demi Moore Teaches Hollywood a Lesson**\
+`She’s the 62-year-old queen of an awards season with overdue female diversity.`\
+https://nytimes.com/2025/01/09/opinion/demi-moore-golden-globes.html
+
 **Germany Approves Tribunal to Decide Nazi-Looted Art Claims**\
 `The new body will be easier to access and its decisions will be legally binding. But some lawyers and Jewish heirs are not happy with the reform.`\
 https://nytimes.com/2025/01/09/arts/germany-nazi-looted-art-restitution-panel.html
 
-**Colapinto joins Alpine F1 on multi-year deal**\
+**Franco Colapinto joins Alpine F1 on multi-year deal**\
 `The team has maintained that Jack Doohan is its race driver for the 2025 season. `\
 https://nytimes.com/athletic/6049594/2025/01/09/franco-colapinto-alpine-f1/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/travel/park-city-strike-union.html
 **Overrated? Not anymore. Ohio State's defensive line is living up to expectations**\
 `Ohio State's stars are finally showing up in the biggest moments and Jim Knowles' defensive scheme is working.`\
 https://nytimes.com/athletic/6049805/2025/01/09/ohio-state-football-defensive-line-cotton-bowl/
-
-**Wildfires Can Leave Lasting Psychological Scars**\
-`Survivors of wildfires like those burning across Los Angeles can experience mental health issues long after a blaze is out.`\
-https://nytimes.com/2025/01/09/well/california-wildfire-mental-health.html
 
