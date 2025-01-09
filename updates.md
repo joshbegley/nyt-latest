@@ -1,3 +1,7 @@
+**Haunted House Feeling**\
+`David P. Williams’s puzzle has an alphabetical twist.`\
+https://nytimes.com/2025/01/08/crosswords/daily-puzzle-2025-01-09.html
+
 **Cavaliers edge Thunder in meeting of NBA's top seeds**\
 `The Cavs are the seventh team in league history to win at least 32 of their first 36 games.`\
 https://nytimes.com/athletic/6048606/2025/01/08/cavaliers-thunder-streak-nba-result/
