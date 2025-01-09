@@ -1,3 +1,11 @@
+**The Flying Maestro: A Top Conductor Moonlights as an Air France Pilot**\
+`Daniel Harding scaled the heights of classical music. Then he set out to conquer the skies.`\
+https://nytimes.com/2025/01/09/arts/music/daniel-harding-conductor-air-france.html
+
+**Giannis, Bucks dominate Victor Wembanyama and Spurs with physical defensive effort**\
+`The Bucks had a plan to make the second-year Spurs phenom uncomfortable. Antetokounmpo and his teammates executed that plan to perfection.`\
+https://nytimes.com/athletic/6049164/2025/01/09/giannis-antetokounmpo-victor-wembanyama-bucks-spurs/
+
 **No, Americans Are Not Really United**\
 `Readers disagree with an essay by a Republican pollster. Also: Sperm donors’ anonymity; judges and gun violence; too much agreement.`\
 https://nytimes.com/2025/01/09/opinion/politics-americans-united-divided.html
