@@ -1,3 +1,7 @@
+**California Winds Ease Slightly but Are Expected to Pick Up Again**\
+`The Santa Ana windstorm calmed down a bit on Thursday morning, but forecasters warned that critical fire weather conditions would continue.`\
+https://nytimes.com/2025/01/09/us/santa-ana-winds-california-fires-forecast.html
+
 **Walter Mondale died before he could deliver Carter’s eulogy, so his son is doing it instead.**\
 `By Peter Baker`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/walter-mondale-died-before-he-could-deliver-carters-eulogy-so-his-son-is-doing-it-instead
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049575/2025/01/09/deion-sanders-nfl-coaching-shede
 **With Trump Arriving, Zelensky Urges Allies Not to ‘Drop the Ball Now’**\
 `In an impassioned address to officials from countries supporting Ukraine, Mr. Zelensky said ‘a new chapter’ would be starting for Europe and the rest of the world, requiring even more cooperation.`\
 https://nytimes.com/2025/01/09/us/politics/trump-zelensky-ukraine-war.html
-
-**Carter’s Funeral Brings Five Presidents Together, a Rarity**\
-`It is unusual for five current and former presidents to gather at the same event, but when it happens, it is often at a funeral.`\
-https://nytimes.com/2025/01/09/us/jimmy-carter-living-presidents-gather.html
 
