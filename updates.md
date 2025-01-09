@@ -1,3 +1,11 @@
+**Here’s an update on each fire.**\
+`At least five major fires are burning across the Los Angeles area.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/heres-an-update-on-each-fire
+
+**Zay Flowers to miss Ravens' wild-card matchup vs. Steelers with knee injury**\
+`The second-year player recorded team highs of 74 receptions and 1,059 yards in 2024, becoming Lamar Jackson's most-targeted receiver.`\
+https://nytimes.com/athletic/6050101/2025/01/09/zay-flowers-injury-out-wild-card-ravens-steelers/
+
 **New York City’s Economy Surged in 2024. A Trump Shake-Up Looms.**\
 `The city has made up much of the ground it lost amid the coronavirus pandemic. Donald J. Trump’s return to the White House could upend that recovery.`\
 https://nytimes.com/2025/01/09/nyregion/nyc-economy-trump.html
