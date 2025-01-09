@@ -1,3 +1,19 @@
+**Germany Approves Tribunal to Decide Nazi-Looted Art Claims**\
+`The new body will be easier to access and its decisions will be legally binding. But some lawyers and Jewish heirs are not happy with the reform.`\
+https://nytimes.com/2025/01/09/arts/germany-nazi-looted-art-restitution-panel.html
+
+**Colapinto joins Alpine F1 on multi-year deal**\
+`The team has maintained that Jack Doohan is its race driver for the 2025 season. `\
+https://nytimes.com/athletic/6049594/2025/01/09/franco-colapinto-alpine-f1/
+
+**Review: Tales From the Mahabharata in Harmony and Disharmony**\
+`At the Joyce Theater, Ragamala Dance presents “Children of Dharma,” an elegant production that lacks dramatic pop.`\
+https://nytimes.com/2025/01/09/arts/dance/review-ragamala-dance-children-of-dharma.html
+
+**What’s in Our Queue? ‘Prelude to Ecstasy’ and More**\
+`Text by Amelia Nierenberg`\
+https://nytimes.com/card/2025/01/09/arts/editors-recommendations-precludetoecstacy
+
 **The Bounce: Now that was some basketball!**\
 `Zach Harper catches you up on league-wide news.`\
 https://nytimes.com/athletic/6049886/2025/01/09/cavs-thunder-streak-jokic-nba-the-bounce/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6049805/2025/01/09/ohio-state-football-defensive-li
 **Wildfires Can Leave Lasting Psychological Scars**\
 `Survivors of wildfires like those burning across Los Angeles can experience mental health issues long after a blaze is out.`\
 https://nytimes.com/2025/01/09/well/california-wildfire-mental-health.html
-
-**The Flying Maestro: A Top Conductor Moonlights as an Air France Pilot**\
-`Daniel Harding scaled the heights of classical music. Then he set out to conquer the skies.`\
-https://nytimes.com/2025/01/09/arts/music/daniel-harding-conductor-air-france.html
-
-**Giannis, Bucks dominate Victor Wembanyama and Spurs with physical defensive effort**\
-`The Bucks had a plan to make the second-year Spurs phenom uncomfortable. Antetokounmpo and his teammates executed that plan to perfection.`\
-https://nytimes.com/athletic/6049164/2025/01/09/giannis-antetokounmpo-victor-wembanyama-bucks-spurs/
-
-**No, Americans Are Not Really United**\
-`Readers disagree with an essay by a Republican pollster. Also: Sperm donors’ anonymity; judges and gun violence; too much agreement.`\
-https://nytimes.com/2025/01/09/opinion/politics-americans-united-divided.html
-
-**Juventus interested in signing Barcelona defender Araujo**\
-`Juventus are interested in signing Barcelona and Uruguay centre-back Ronald Araujo.`\
-https://nytimes.com/athletic/6049208/2025/01/09/barcelona-transfers-ronald-araujo-juventus/
 

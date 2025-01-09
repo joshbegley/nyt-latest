@@ -1,3 +1,19 @@
+**Germany Approves Tribunal to Decide Nazi-Looted Art Claims**\
+`The new body will be easier to access and its decisions will be legally binding. But some lawyers and Jewish heirs are not happy with the reform.`\
+https://nytimes.com/2025/01/09/arts/germany-nazi-looted-art-restitution-panel.html
+
+**Colapinto joins Alpine F1 on multi-year deal**\
+`The team has maintained that Jack Doohan is its race driver for the 2025 season. `\
+https://nytimes.com/athletic/6049594/2025/01/09/franco-colapinto-alpine-f1/
+
+**Review: Tales From the Mahabharata in Harmony and Disharmony**\
+`At the Joyce Theater, Ragamala Dance presents “Children of Dharma,” an elegant production that lacks dramatic pop.`\
+https://nytimes.com/2025/01/09/arts/dance/review-ragamala-dance-children-of-dharma.html
+
+**What’s in Our Queue? ‘Prelude to Ecstasy’ and More**\
+`Text by Amelia Nierenberg`\
+https://nytimes.com/card/2025/01/09/arts/editors-recommendations-precludetoecstacy
+
 **The Bounce: Now that was some basketball!**\
 `Zach Harper catches you up on league-wide news.`\
 https://nytimes.com/athletic/6049886/2025/01/09/cavs-thunder-streak-jokic-nba-the-bounce/
