@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor
 `\
 https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
 
+**Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
+`The Canucks made an impressive second-period push, but it wasn't enough, as the Capitals found a way to win 2-1 in overtime.
+`\
+https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
+
 **Biden Cancels Italy Trip to Focus on California Fire Response**\
 `President Biden was set to meet Prime Minister Giorgia Meloni and Pope Francis during what would have been his last presidential trip abroad.`\
 https://nytimes.com/2025/01/08/us/biden-california-fires.html
