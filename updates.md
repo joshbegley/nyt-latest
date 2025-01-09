@@ -1,3 +1,11 @@
+**In the Palisades, an Evacuation Disaster Was Years in the Making**\
+`Some Pacific Palisades residents said the community had long asked for more detailed fire preparation plans. When a fire raged through the community this week, gridlock ensued.`\
+https://nytimes.com/2025/01/08/us/california-fire-palisades-evacuation.html
+
+**Who’s in charge of the firefighting effort?**\
+`By Matt Stevens`\
+https://nytimes.com/2025/01/08/us/whos-in-charge-of-the-firefighting-effort.html
+
 **Who’s in charge of the firefighting effort?**\
 `By Matt Stevens`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/whos-in-charge-of-the-firefighting-effort
