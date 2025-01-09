@@ -3,7 +3,7 @@
 https://nytimes.com/2025/01/09/arts/germany-nazi-looted-art-restitution-panel.html
 
 **Colapinto joins Alpine F1 on multi-year deal**\
-`Franco Colapinto has joined Alpine as a test and reserve driver for the 2025 Formula One season after the team struck a deal to sign him from Williams.`\
+`The team has maintained that Jack Doohan is its race driver for the 2025 season. `\
 https://nytimes.com/athletic/6049594/2025/01/09/franco-colapinto-alpine-f1/
 
 **Review: Tales From the Mahabharata in Harmony and Disharmony**\
