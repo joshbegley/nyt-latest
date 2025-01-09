@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
 
+**Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
+`The Canucks made an impressive second-period push, but it wasn't enough, as the Capitals found a way to win 2-1 in overtime.
+`\
+https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
+
 **TikTok Is Facing Legal Backlash Around the World**\
 `TikTok is challenging a possible ban or forced sale to new owners in the United States, but has for several years been waging other fights in at least 20 countries.`\
 https://nytimes.com/2025/01/09/technology/tiktok-ban-global-legal-battles.html
