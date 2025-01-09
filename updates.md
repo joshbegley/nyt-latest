@@ -1,3 +1,11 @@
+**Why Justin Verlander struggled in 2024, and what the Giants can learn from that for 2025**\
+`Verlander's velocity was down in 2024. But that doesn't tell the whole story behind his struggles or what to expect from him in 2025.`\
+https://nytimes.com/athletic/6048108/2025/01/09/justin-verlander-sf-giants-projections/
+
+**What Teenagers Are Saying About the New Year**\
+`Students share their resolutions, advice and predictions for 2025.`\
+https://nytimes.com/2025/01/09/learning/what-teenagers-are-saying-about-the-new-year.html
+
 **Altadena, an artsy, diverse neighborhood, faces sweeping destruction.**\
 `At least five people died in the area and over 1,000 homes were burned to the ground, according to officials.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/altadena-an-artsy-diverse-neighborhood-faces-sweeping-destruction
