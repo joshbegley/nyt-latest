@@ -1,3 +1,11 @@
+**Edwards leaves Luton by mutual consent**\
+`Luton Town and Rob Edwards have come to a mutual agreement to part ways, the club have confirmed.`\
+https://nytimes.com/athletic/5833250/2025/01/09/rob-edwards-luton-leaves/
+
+**Surging Pistons are above .500 (read that again): 'We're still hungry. We're not satisfied'**\
+`While Detroit is playing its best basketball in seven years, both its coach and franchise player insist they're not satisfied.`\
+https://nytimes.com/athletic/6048917/2025/01/09/pistons-nba-winning-record-nets-cade-cunningham/
+
 **'Why walk away?' Al Michaels wants a 39th season calling NFL prime-time games**\
 `Michaels talks with Richard Deitsch about his career, future, this weekend's wild-card game on Amazon Prime Video and Tom Brady.`\
 https://nytimes.com/athletic/6042352/2025/01/09/al-michaels-nfl-amazon-wild-card-tom-brady-andy-jassy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6048831/2025/01/09/villanova-basketball-uconn-kyle-
 **Here’s Who Will Speak at Jimmy Carter’s Funeral**\
 `President Biden will deliver a eulogy, and tributes written by Gerald Ford and Walter Mondale will be read by their sons.`\
 https://nytimes.com/2025/01/09/us/jimmy-carter-funeral-speakers.html
-
-**Live Updates: Presidents Will Gather to Honor Carter at Washington Cathedral**\
-`A state funeral for the 39th president will bring together all five living presidents and include a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral
-
-**The Costs of the Los Angeles Fires**\
-`Damages are now estimated to reach up to $57 billion. The blazes add to a string of climate-related catastrophes hitting businesses and homeowners.`\
-https://nytimes.com/2025/01/09/business/dealbook/los-angeles-fires-costs.html
 
