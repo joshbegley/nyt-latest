@@ -1,3 +1,11 @@
+**Don’t Underestimate the Enduring Power of ISIS**\
+`The terrorist attack in New Orleans serves as a grim reminder that the group is still able to transform personal crises into public tragedy.`\
+https://nytimes.com/2025/01/09/opinion/isis-new-orleans-attack.html
+
+**We Are in an Industrial War. China Is Starting to Win.**\
+`China’s primary goal is to damage America’s economy and pave the way for it to become the world’s pre-eminent power.`\
+https://nytimes.com/2025/01/09/opinion/china-industrial-war-power-trader.html
+
 **Mayor’s Absence Is Considered a Sign L.A. Underestimated Fire Risks**\
 `Some residents said Mayor Karen Bass should have canceled her trip to Ghana when weather warnings in Los Angeles grew increasingly dire.`\
 https://nytimes.com/2025/01/09/us/los-angeles-mayor-fire-response.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6046699/2025/01/09/real-madrid-trent-alexander-arno
 **Is Arteta right - do footballs really make a difference to performance?**\
 `Arsenal's manager blamed Puma's Oribita 1 after their cup defeat to Newcastle, but how marked is the variation between brands of balls?`\
 https://nytimes.com/athletic/6046956/2025/01/09/arsenal-football-puma-caabao-cup/
-
-**Pablo Maffeo, the hardest defender Messi's ever faced: 'It’s the best recognition'**\
-`The Mallorca right-back on Vinicius Junior, Messi and why it didn't work out at Man City`\
-https://nytimes.com/athletic/6033288/2025/01/09/pablo-maffeo-lionel-messi-mallorca-supercopa-vinicius/
-
-**How important is Kobbie Mainoo to Manchester United's future?**\
-`In an era of midfield physicality, how best for Mainoo to shine - especially if he stays at Old Trafford for the long haul?`\
-https://nytimes.com/athletic/6046583/2025/01/09/kobbie-mainoo-manchester-united-future/
 

@@ -1,3 +1,11 @@
+**Don’t Underestimate the Enduring Power of ISIS**\
+`The terrorist attack in New Orleans serves as a grim reminder that the group is still able to transform personal crises into public tragedy.`\
+https://nytimes.com/2025/01/09/opinion/isis-new-orleans-attack.html
+
+**We Are in an Industrial War. China Is Starting to Win.**\
+`China’s primary goal is to damage America’s economy and pave the way for it to become the world’s pre-eminent power.`\
+https://nytimes.com/2025/01/09/opinion/china-industrial-war-power-trader.html
+
 **Mayor’s Absence Is Considered a Sign L.A. Underestimated Fire Risks**\
 `Some residents said Mayor Karen Bass should have canceled her trip to Ghana when weather warnings in Los Angeles grew increasingly dire.`\
 https://nytimes.com/2025/01/09/us/los-angeles-mayor-fire-response.html
