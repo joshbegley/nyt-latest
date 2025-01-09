@@ -1,3 +1,7 @@
+**Before-and-After Images Show Scope of Palisades Fire Destruction**\
+`Comparisons of the same buildings before and after the Palisades fire reveal the extent of devastation in the area.`\
+https://nytimes.com/video/us/100000009916167/palisades-fire-before-after.html
+
 **Several longtime L.A. restaurants have been destroyed in the Palisades fire.**\
 `A cluster of businesses in Malibu and the Palisades burned, while dozens of other restaurants across the area were closed by smoke and power outages.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/several-longtime-la-restaurants-have-been-destroyed-in-the-palisades-fire
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/opinion/alcohol-drinking-dry-january.html
 **Powerful Labor Group Joins A.F.L.-C.I.O. Ahead of New Trump Era**\
 `A marriage between the service employees union and the A.F.L.-C.I.O. could better equip organized labor to deal with a less-friendly administration.`\
 https://nytimes.com/2025/01/08/business/economy/afl-cio-seiu-labor-union-alliance.html
-
-**Palestinians Grieve 3 People Killed in Israeli Airstrike**\
-`An Israeli airstrike in the occupied West Bank killed three cousins on Wednesday, according to Palestinian officials and family members.`\
-https://nytimes.com/video/world/middleeast/100000009915484/israeli-airstrike-kills-three-west-bank.html
 
