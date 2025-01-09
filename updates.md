@@ -1,3 +1,7 @@
+**Betting for (by) dummies: This is an Emeka Egbuka touchdown prop column**\
+`Zac Jackson and Jon Greenberg make bets for the college and NFL playoffs and of course continue to ride the Emeka Egbuka touchdown train.`\
+https://nytimes.com/athletic/6049742/2025/01/09/betting-for-by-dummies-playoffs-emeka-egbuka/
+
 **U.S. Steel, Its Merger Blocked, Faces Stark Alternatives**\
 `The onetime dynamo is fighting to revive a takeover by Nippon Steel. Other tie-ups could also face obstacles, and going it alone could force cutbacks.`\
 https://nytimes.com/2025/01/09/business/ussteel-nippon-merger-future.html
