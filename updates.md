@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor
 `\
 https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
 
+**Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
+`The Canucks made an impressive second-period push, but it wasn't enough, as the Capitals found a way to win 2-1 in overtime.
+`\
+https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/09/briefing/wildfires-california-hostage.html
