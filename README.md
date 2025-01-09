@@ -1,3 +1,19 @@
+**What Franco Colapinto’s Alpine F1 move means for his and Jack Doohan’s future**\
+`Signing Colapinto is a solid bet for Alpine, but there's no question it puts a spotlight on its 2025 driver before the season even begins.`\
+https://nytimes.com/athletic/6049728/2025/01/09/franco-colapinto-f1-alpine-jack-doohan-driver/
+
+**Tyreek Hill still 'committed' to Dolphins, says agent Drew Rosenhaus**\
+`Hill suited up for all 17 games this season and finished with 81 catches on 123 targets, 959 yards and six touchdowns.`\
+https://nytimes.com/athletic/6050031/2025/01/09/tyreek-hill-drew-rosenhaus-committed-dolphins/
+
+**Satou Sabally asks to leave Dallas Wings, find new team**\
+`“I’m working with them together to find the next home for me because I’ve already played my last game in Dallas," Sabally said Thursday.`\
+https://nytimes.com/athletic/6050204/2025/01/09/satou-sabally-leave-dallas-wings/
+
+**Otto Schenk, Opera Director and Bulwark of Tradition, Dies at 94**\
+`A prominent practitioner of the historically grand productions that were once fashionable at the Met, he was especially well known for his stagings of Wagner.`\
+https://nytimes.com/2025/01/09/arts/music/otto-schenk-dead.html
+
 **Liverpool could consider Kvaratskhelia move from Napoli**\
 `Liverpool could consider a move to sign Khvicha Kvaratskhelia from Napoli — should it be decided that he is to exit the club in this transfer window.`\
 https://nytimes.com/athletic/6050197/2025/01/09/liverpool-transfers-kvaratskhelia-napoli/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/09/us/jimmy-carter-allman-brothers-band.html
 **Peter Fenwick, Leading Expert on Near-Death Experiences, Dies at 89**\
 `He was a neuropsychiatrist who was studying consciousness when a patient explained what had happened to him, and he realized the phenomenon was real.`\
 https://nytimes.com/2025/01/09/science/peter-fenwick-dead.html
-
-**Why German soccer team was belatedly awarded win after goalkeeper-lighter incident**\
-`The German Football Association (DFB) has overturned the result of Union Berlin’s 1-1 draw at home to Bochum in the Bundesliga and awarded the visitors a 2-0 victory.`\
-https://nytimes.com/athletic/6050129/2025/01/09/bochum-union-berlin-lighter-result/
-
-**Carter will be buried at his Georgia home. Here’s the latest.**\
-`By Peter Baker`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral/carter-will-be-buried-at-his-georgia-home-heres-the-latest
-
-**Guantánamo Bay Explained: The Costs, the Captives and Why It’s Still Open**\
-`Just 15 men remain at the prison, down from hundreds when it opened 23 years ago. But the costly operation could go on for years.`\
-https://nytimes.com/2025/01/09/us/politics/guantanamo-prison-costs.html
-
-**Another failed Falcons season 'not good enough.' So now what?**\
-`Falcons GM Terry Fontenot said, “We haven’t won enough. It starts with me.” The team's self-evaluation process has just begun.`\
-https://nytimes.com/athletic/6050049/2025/01/09/falcons-failed-season-gm-terry-fontenot/
 
