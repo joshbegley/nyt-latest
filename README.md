@@ -1,3 +1,11 @@
+**Raiders general manager candidates: John Spytek, Champ Kelly and 8 other potential fits**\
+`Several of the potential options have ties to either the Raiders or to new minority owner Tom Brady.`\
+https://nytimes.com/athletic/6050591/2025/01/09/raiders-gm-candidates-search-john-spytek-champ-kelly/
+
+**How the destruction in Los Angeles ranks in California’s fire history.**\
+`The proximity of the fires to densely populated areas means that they are burning through more structures than past fires that covered more territory, preliminary figures show.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/californias-worst-wildfires-history
+
 **Tracking Tropical Cyclone Dikeledi**\
 `See the likely path and wind arrival times for Dikeledi.`\
 https://nytimes.com/interactive/2025/01/09/weather/dikeledi-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6050493/2025/01/09/mika-biereth-monaco-transfer/
 **Opposition Candidate Returns to Mozambique, Declaring Himself President**\
 `After a self-imposed exile, Venâncio Mondlane was welcomed home by delirious crowds supporting his claim that the country’s last election was stolen from him by corrupt elites.`\
 https://nytimes.com/2025/01/09/world/africa/mozambique-president-mondlane-protests-election.html
-
-**Paul Oreffice, a Combative Chief of Dow Chemical, Dies at 97**\
-`He led the company as it flourished in the ’70s and ’80s while confronting veterans and environmentalists over its toxic products like Agent Orange and dioxin.`\
-https://nytimes.com/2025/01/09/business/paul-oreffice-dead.html
-
-**Right-wing influencers blame response to wildfires on a recurring target: diversity programs.**\
-`By Stuart A. Thompson`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-wildfires-false-info-right-wing-influencers
 
