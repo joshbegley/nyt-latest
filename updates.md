@@ -1,3 +1,11 @@
+**Art and culture has halted in Los Angeles as the fires burn.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/cultural-events-canceled
+
+**Moyes' Everton exit signalled the end of stability – his return has become a necessity**\
+`The stable grasp of the man who made Everton the best of the rest at one stage might be exactly what they need for the immediate future`\
+https://nytimes.com/athletic/6050180/2025/01/09/david-moyes-everton-manager-return/
+
 **What Franco Colapinto’s Alpine F1 move means for his and Jack Doohan’s future**\
 `Signing Colapinto is a solid bet for Alpine, but there's no question it puts a spotlight on its 2025 driver before the season even begins.`\
 https://nytimes.com/athletic/6049728/2025/01/09/franco-colapinto-f1-alpine-jack-doohan-driver/
