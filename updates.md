@@ -1,3 +1,7 @@
+**U.S. Steel, Its Merger Blocked, Faces Stark Alternatives**\
+`The onetime dynamo is fighting to revive a takeover by Nippon Steel. Other tie-ups could also face obstacles, and going it alone could force cutbacks.`\
+https://nytimes.com/2025/01/09/business/ussteel-nippon-merger-future.html
+
 **‘American Primeval’ Review: Hopeless on the Range**\
 `Taylor Kitsch and Betty Gilpin star in a Netflix mini-series about the brutal, brutal West.`\
 https://nytimes.com/2025/01/09/arts/television/american-primeval-review.html
