@@ -1,7 +1,3 @@
-**Danilo to return from broken leg against Luton, Nuno confirms**\
-`Nottingham Forest manager Nuno Espirito Santo has confirmed that Danilo will be on the bench against Luton Town in the FA Cup on Saturday.`\
-https://nytimes.com/athletic/6049511/2025/01/09/danilo-nottingham-forest-return/
-
 **In an Anxious L.A., a House Fire Puts a Neighborhood on Edge**\
 `Aghast at their city burning, residents of Studio City endured harrowing moments of uncertainty when a house caught fire in the neighborhood.`\
 https://nytimes.com/2025/01/09/us/studio-city-los-angeles-fire-sunset-sunswept.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6048205/2025/01/09/chargers-jim-harbaugh-playoffs-c
 **The fires are causing disruptions in pro sports.**\
 `The N.H.L. and N.B.A. were working to manage postponed games and personnel emergencies. The blazes also loomed over the start of the N.F.L. playoffs.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/the-fires-are-causing-disruptions-in-pro-sports
+
+**My game in my words. By Alessia Russo**\
+`The Women's Super League's most in-form player sits down with The Athletic to analyse her game and her brilliant run of form for Arsenal...`\
+https://nytimes.com/athletic/6043657/2025/01/09/alessia-russo-arsenal-analysis-goals-striker/
 
