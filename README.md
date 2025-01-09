@@ -1,3 +1,11 @@
+**Late Titans star Frank Wycheck diagnosed with CTE after his 2023 death**\
+`Researchers from Boston University's CTE Center confirmed the stage III diagnosis for Wycheck.`\
+https://nytimes.com/athletic/6049927/2025/01/09/frank-wycheck-cte-diagnosis-titans/
+
+**Georgia's Carson Beck to enter transfer portal: Source**\
+`Beck previously announced he would enter the 2025 NFL Draft on Dec. 28.`\
+https://nytimes.com/athletic/6050302/2025/01/09/carson-beck-georgia-transfer-portal/
+
 **Enron Is Back. And It Wants to Sell You a Nuclear Reactor.**\
 `At least that’s what its new chief executive says, after buying the company’s trademark for a couple hundred bucks.`\
 https://nytimes.com/2025/01/09/business/enron-egg-nuclear-reactor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049728/2025/01/09/franco-colapinto-f1-alpine-jack-
 **Tyreek Hill still 'committed' to Dolphins, says agent Drew Rosenhaus**\
 `Hill suited up for all 17 games this season and finished with 81 catches on 123 targets, 959 yards and six touchdowns.`\
 https://nytimes.com/athletic/6050031/2025/01/09/tyreek-hill-drew-rosenhaus-committed-dolphins/
-
-**Satou Sabally asks to leave Dallas Wings, find new team**\
-`“I’m working with them together to find the next home for me because I’ve already played my last game in Dallas," Sabally said Thursday.`\
-https://nytimes.com/athletic/6050204/2025/01/09/satou-sabally-leave-dallas-wings/
-
-**Moyes' Everton exit signalled the end of stability – his return has become a necessity**\
-`The stable grasp of the man who made Everton the best of the rest at one stage might be exactly what they need for the immediate future`\
-https://nytimes.com/athletic/6050180/2025/01/09/david-moyes-everton-manager-return/
 
