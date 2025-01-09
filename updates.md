@@ -1,3 +1,11 @@
+**Marta re-signs with Orlando Pride on 2-year deal**\
+`After the Pride won the NWSL Shield and Championship, 2024 ended as one of, if not the best club season of Marta’s lengthy career.`\
+https://nytimes.com/athletic/6049484/2025/01/09/marta-signs-orlando-pride-return/
+
+**The New Year Brings New Talent to the New York Philharmonic**\
+`Kevin John Edusei and Daniele Rustioni, conductors in their 40s, made impressive debuts with the orchestra in back-to-back programs.`\
+https://nytimes.com/2025/01/09/arts/music/edusai-rustioni-new-york-philharmonic-debut.html
+
 **Titans radio voice Mike Keith shifts to college, will call Vols football, hoops**\
 `Keith, who called "The Music City Miracle" in 2000, will return to his alma mater in Knoxville.`\
 https://nytimes.com/athletic/6049363/2025/01/09/mike-keith-tennessee-volunteers-titans-broadcast/

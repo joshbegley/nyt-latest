@@ -1,3 +1,11 @@
+**Marta re-signs with Orlando Pride on 2-year deal**\
+`After the Pride won the NWSL Shield and Championship, 2024 ended as one of, if not the best club season of Marta’s lengthy career.`\
+https://nytimes.com/athletic/6049484/2025/01/09/marta-signs-orlando-pride-return/
+
+**The New Year Brings New Talent to the New York Philharmonic**\
+`Kevin John Edusei and Daniele Rustioni, conductors in their 40s, made impressive debuts with the orchestra in back-to-back programs.`\
+https://nytimes.com/2025/01/09/arts/music/edusai-rustioni-new-york-philharmonic-debut.html
+
 **Titans radio voice Mike Keith shifts to college, will call Vols football, hoops**\
 `Keith, who called "The Music City Miracle" in 2000, will return to his alma mater in Knoxville.`\
 https://nytimes.com/athletic/6049363/2025/01/09/mike-keith-tennessee-volunteers-titans-broadcast/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009916693/los-angeles-residents-burnt-homes-f
 **Landry Shamet getting another NBA shot with Knicks: 'I'm grateful for the journey’**\
 `Shamet is a journeyman in the NBA, but the 27-year-old has shown himself as someone who stays ready to play. `\
 https://nytimes.com/athletic/6048874/2025/01/09/landry-shamet-knicks-nba/
-
-**Jones: NFL owners show their ineptitude and impulsivity with quick coach, GM firings**\
-`Yes, Jerod Mayo, Antonio Pierce and Ran Carthon struggled. But the Patriots, Raiders and Titans owners also deserve blame for results.`\
-https://nytimes.com/athletic/6048049/2025/01/09/nfl-coach-gm-firings-owner-blame-patriots-raiders/
-
-**Cancer-free Dick Vitale ready to ‘return to my love’ of announcing games**\
-`Vitale underwent surgery in June after a biopsy of the lymph node in his neck came back cancerous.`\
-https://nytimes.com/athletic/6049532/2025/01/09/dick-vitale-cancer-free-espn/
 
