@@ -1,3 +1,11 @@
+**Day 4: How to Grocery Shop Like a Nutrition Scientist**\
+`Today we’re looking at ultraprocessed foods in the wild.`\
+https://nytimes.com/2025/01/08/well/ultraprocessed-foods-alternatives.html
+
+**Safety Steps to Take as Fires Sweep Southern California**\
+`State and local governments can alert you to risks and dangers in your surrounding areas. Being prepared is key.`\
+https://nytimes.com/2025/01/08/us/southern-california-wildfires-safety.html
+
 **Water Outage in Richmond, Va., Is Expected to Last Until Friday**\
 `The winter storm on Monday knocked out power at the city’s water plant, leaving thousands under a boil water advisory for days.`\
 https://nytimes.com/2025/01/08/us/richmond-water-crisis.html
