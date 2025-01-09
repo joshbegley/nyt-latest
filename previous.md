@@ -1,3 +1,7 @@
+**Bergvall and Kinsky inject fresh impetus into the Postecoglou project**\
+`The teenager and the debutant goalkeeper starred for Spurs against Liverpool, inspiring their side to a much-needed win`\
+https://nytimes.com/athletic/6048539/2025/01/09/bergvall-kinsky-tottenham-carabao-cup/
+
 **Word of the Day: boutonniere**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/09/learning/word-of-the-day-boutonniere.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6046374/2025/01/09/arsenal-wide-forward-january-tra
 **Why do Real Madrid want Alexander-Arnold - and what would he bring to Ancelotti's side?**\
 `Madrid are sold on the Liverpool right-back’s talents. Here's why the European champions are so keen to sign him`\
 https://nytimes.com/athletic/6046699/2025/01/09/real-madrid-trent-alexander-arnold-transfer-interest-analysis/
-
-**Inside Lopetegui's West Ham exit: Lack of days off, tension with players, on brink for months**\
-`Lopetegui was dismissed as West Ham head coach on Wednesday after just eight months and 22 games - this is the story of his departure`\
-https://nytimes.com/athletic/5964188/2025/01/09/julen-lopetegui-west-ham-inside-exit/
 

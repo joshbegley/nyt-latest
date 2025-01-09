@@ -1,3 +1,7 @@
+**Bergvall and Kinsky inject fresh impetus into the Postecoglou project**\
+`The teenager and the debutant goalkeeper starred for Spurs against Liverpool, inspiring their side to a much-needed win`\
+https://nytimes.com/athletic/6048539/2025/01/09/bergvall-kinsky-tottenham-carabao-cup/
+
 **Word of the Day: boutonniere**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/09/learning/word-of-the-day-boutonniere.html
