@@ -1,3 +1,7 @@
+**Sunderland set to sign Le Fee on loan from Roma**\
+`Sunderland are set to sign midfielder Enzo Le Fee on loan from Roma.`\
+https://nytimes.com/athletic/6049254/2025/01/09/sunderland-transfers-enzo-le-fee/
+
 **Lebanese Lawmakers Choose a President After 2 Years of Gridlock**\
 `Lawmakers elected Joseph Aoun, the commander of the Lebanese military, the first step in forming a government to lead a country recovering from economic crisis and a devastating war.`\
 https://nytimes.com/2025/01/09/world/middleeast/lebanon-politics-president-parliament-vote.html
