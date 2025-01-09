@@ -1,3 +1,7 @@
+**Seth Meyers Slams Trump for Changing the Subject on Inflation**\
+`“Come on, man, you talked about this, like, every day on the campaign trail,” Meyers said of the president-elect. “You even brought props.”`\
+https://nytimes.com/2025/01/09/arts/television/seth-meyers-trump-inflation-greenland.html
+
 **Why I Joined: A passionate one-club city - and running childhood tournaments with dice**\
 `Beren Cross explains why he has joined The Athletic to cover Leeds United`\
 https://nytimes.com/athletic/6044063/2025/01/09/beren-cross-why-i-joined/
