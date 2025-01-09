@@ -1,3 +1,19 @@
+**Carter’s Funeral Brings Five Presidents Together, a Rarity**\
+`It is unusual for five current and former presidents to gather at the same event, but when it happens, it is often at a funeral.`\
+https://nytimes.com/2025/01/09/us/jimmy-carter-living-presidents-gather.html
+
+**The Slow Growth of Hand-Painted Clothes**\
+`In an era of fast fashion, some yearn for clothing with a personal touch.`\
+https://nytimes.com/2025/01/09/style/hand-drawn-clothes-swan-gossip.html
+
+**Penguins Today: The first time I saw Connor McDavid in Erie**\
+`McDavid will face the Penguins tonight and have his jersey retired in Erie tomorrow. His appearances in Pittsburgh are always a big deal.`\
+https://nytimes.com/athletic/6048904/2025/01/09/penguins-today-connor-mcdavid-erie-otters/
+
+**Eric Adams, Under Indictment, to Make His Case for a Second Term**\
+`In his fourth and potentially final State of the City speech, Mayor Eric Adams plans to focus on two campaign themes: public safety and affordability.`\
+https://nytimes.com/2025/01/09/nyregion/adams-mayor-nyc-speech.html
+
 **Danilo to return from broken leg against Luton, Nuno confirms**\
 `Nottingham Forest manager Nuno Espirito Santo has confirmed that Danilo will be on the bench against Luton Town in the FA Cup on Saturday.`\
 https://nytimes.com/athletic/6049511/2025/01/09/danilo-nottingham-forest-return/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/us/jimmy-carter-funeral/mourners-paid-their-respec
 **Edwards leaves Luton by mutual consent**\
 `Luton Town and Rob Edwards have come to a mutual agreement to part ways, the club have confirmed.`\
 https://nytimes.com/athletic/5833250/2025/01/09/rob-edwards-luton-leaves/
-
-**Surging Pistons are above .500 (read that again): 'We're still hungry. We're not satisfied'**\
-`While Detroit is playing its best basketball in seven years, both its coach and franchise player insist they're not satisfied.`\
-https://nytimes.com/athletic/6048917/2025/01/09/pistons-nba-winning-record-nets-cade-cunningham/
-
-**'Why walk away?' Al Michaels wants a 39th season calling NFL prime-time games**\
-`Michaels talks with Richard Deitsch about his career, future, this weekend's wild-card game on Amazon Prime Video and Tom Brady.`\
-https://nytimes.com/athletic/6042352/2025/01/09/al-michaels-nfl-amazon-wild-card-tom-brady-andy-jassy/
-
-**How Jim Harbaugh built the Chargers culture: Black Eyed Peas, blue-collar gifts, authenticity**\
-`Harbaugh’s antics can seem cliche and even corny at times, but every one of them has a meaning and makes an impact.`\
-https://nytimes.com/athletic/6048205/2025/01/09/chargers-jim-harbaugh-playoffs-culture-change/
-
-**The fires are causing disruptions in pro sports.**\
-`The N.H.L. and N.B.A. were working to manage postponed games and personnel emergencies. The blazes also loomed over the start of the N.F.L. playoffs.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/the-fires-are-causing-disruptions-in-pro-sports
 
