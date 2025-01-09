@@ -1,3 +1,7 @@
+**Alito Spoke With Trump Shortly Before Supreme Court Filing**\
+`The justice said that the call was a routine job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
+https://nytimes.com/2025/01/08/us/justice-alito-trump.html
+
 **San Francisco Gets a New Mayor and an Emergency Plan for the Fentanyl Scourge**\
 `Daniel Lurie, an heir to the Levi Strauss fortune, became the city’s 46th mayor on Wednesday and laid out a path to restoring the battered city’s luster.`\
 https://nytimes.com/2025/01/08/us/politics/san-francisco-mayor-daniel-lurie-fentanyl.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/los-ange
 **Pluto May Have Captured Its Biggest Moon After an Ancient Dance and Kiss**\
 `Charon is large in size relative to Pluto, and is locked in a tight orbit with the dwarf planet. A new simulation suggests how it ended up there.`\
 https://nytimes.com/2025/01/08/science/pluto-moon-kiss-charon.html
-
-**David Wright reflects on Mets' plans to retire his jersey: 5 takeaways from No. 5**\
-`Wright savored conversations with Tom Seaver, a message from Keith Hernandez, serving as captain and more. `\
-https://nytimes.com/athletic/6048178/2025/01/08/mets-david-wright-jersey-retirement-takeaways/
 
