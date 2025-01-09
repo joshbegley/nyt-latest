@@ -1,3 +1,7 @@
+**Bob Veale, Towering Fireballer for the ’60s Pirates, Dies at 89**\
+`A 6-foot-6 strikeout king, he was a star of the Pittsburgh rotation who left batters wary of both his fastball and his wildness.`\
+https://nytimes.com/2025/01/09/sports/baseball/bob-veale-dead.html
+
 **Officials aren’t sure how many have died in the Los Angeles fires. Here’s why.**\
 `At least five people had been killed as of Thursday morning. Local officials said that number was likely to rise.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-death-toll
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047718/2025/01/09/college-basketball-what-to-watch
 **Los Angeles Already Had a Housing Shortage. Wildfires Will Make It Worse.**\
 `With so many people displaced and looking for rentals, the region’s housing options could grow even scarcer and more expensive.`\
 https://nytimes.com/2025/01/09/business/la-fires-housing-shortage.html
-
-**Richard M. Cohen, News Producer Who Wrote of a Health Challenge, Dies at 76**\
-`When he was 25, he learned that he had multiple sclerosis. He coped with the disease throughout a long career at several networks, recalled in a best-selling memoir.`\
-https://nytimes.com/2025/01/09/business/media/richard-m-cohen-dead.html
 
