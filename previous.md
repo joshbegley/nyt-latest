@@ -1,3 +1,7 @@
+**Brighton's Joao Pedro out with ankle injury, awaiting results of scan**\
+`Brighton &amp; Hove Albion will be without Joao Pedro for Saturday&#8217;s FA Cup third-round tie at Championship side Norwich City.`\
+https://nytimes.com/athletic/6049023/2025/01/09/joao-pedro-ankle-injury-brighton/
+
 **Australian Open draw 2025: Djokovic's draw fortune runs out, Gauff leads U.S. vs U.S. ties**\
 `The best tennis players in the world now know their fates for the first Grand Slam of the year.`\
 https://nytimes.com/athletic/6047300/2025/01/09/australian-open-draw-2025-djokovic-alcaraz-gauff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/world/asia/south-korea-yoon-colonel-acquitted.htm
 **Manor Solomon interview - My fiancée pushed me to join Leeds. Later, I told her: 'Thank you'**\
 `Manor Solomon sat down with The Athletic's Beren Cross to discuss his time at Leeds so far and his personal life`\
 https://nytimes.com/athletic/6047724/2025/01/09/manor-solomon-leeds-united-interview/
-
-**Seth Meyers Slams Trump for Changing the Subject on Inflation**\
-`“Come on, man, you talked about this, like, every day on the campaign trail,” Meyers said of the president-elect. “You even brought props.”`\
-https://nytimes.com/2025/01/09/arts/television/seth-meyers-trump-inflation-greenland.html
 

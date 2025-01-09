@@ -1,3 +1,7 @@
+**Brighton's Joao Pedro out with ankle injury, awaiting results of scan**\
+`Brighton &amp; Hove Albion will be without Joao Pedro for Saturday&#8217;s FA Cup third-round tie at Championship side Norwich City.`\
+https://nytimes.com/athletic/6049023/2025/01/09/joao-pedro-ankle-injury-brighton/
+
 **Australian Open draw 2025: Djokovic's draw fortune runs out, Gauff leads U.S. vs U.S. ties**\
 `The best tennis players in the world now know their fates for the first Grand Slam of the year.`\
 https://nytimes.com/athletic/6047300/2025/01/09/australian-open-draw-2025-djokovic-alcaraz-gauff/
