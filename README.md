@@ -1,3 +1,11 @@
+**Potter's West Ham introduction: Window thoughts, Moyes and ambitions**\
+`The former Brighton and Chelsea boss was named as Julen Lopetegui's successor this morning, signing a two-and-a-half-year deal with the club`\
+https://nytimes.com/athletic/6049007/2025/01/09/graham-potter-west-ham-press-conference/
+
+**Your Cooking Resolution Matchmaker Is Here**\
+`You want to eat more veggie-filled breakfasts, go big on grains and make more soup. I do, too (and I have recipes).`\
+https://nytimes.com/2025/01/09/dining/your-cooking-resolution-matchmaker-is-here.html
+
 **The Fire Map Is a Guide to Ashes and Memories**\
 `The flames don’t recognize neighborhood boundaries.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/los-angeles-fire-map-memories
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/us/politics/susie-wiles-trump.html
 **How is each Sabres player performing relative to expectations? Midseason report card**\
 `By every measure, the Sabres are one of the most disappointing teams in the NHL through 41 games.`\
 https://nytimes.com/athletic/6049845/2025/01/09/buffalo-sabres-midseason-report-card-2025/
-
-**Billy Crystal and Paris Hilton are among those whose homes were lost or damaged.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-celebrity-homes-los-angeles
-
-**Jimmy Carter’s Large Family Honors the Former President**\
-`Only three family members spoke during the funeral at the National Cathedral in Washington, but many more attended the services and are expected in Plains. Ga.`\
-https://nytimes.com/2025/01/09/us/jimmy-carter-family-profile.html
 
