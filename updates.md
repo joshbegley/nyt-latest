@@ -1,3 +1,7 @@
+**Bob Veale, Towering Fireballer for the ’60s Pirates, Dies at 89**\
+`A 6-foot-6 strikeout king, he was a star of the Pittsburgh rotation who left batters wary of both his fastball and his wildness.`\
+https://nytimes.com/2025/01/09/sports/baseball/bob-veale-dead.html
+
 **Officials aren’t sure how many have died in the Los Angeles fires. Here’s why.**\
 `At least five people had been killed as of Thursday morning. Local officials said that number was likely to rise.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-death-toll
