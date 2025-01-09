@@ -1,3 +1,15 @@
+**The Costs of the Los Angeles Fires**\
+`Damages are now estimated to reach up to $57 billion. The blazes add to a string of climate-related catastrophes hitting businesses and homeowners.`\
+https://nytimes.com/2025/01/09/business/dealbook/los-angeles-fires-costs.html
+
+**Airbnb and Vrbo will offer refunds in fire-affected areas.**\
+`The short-term rental platforms will let hosts cancel without penalty and give guests their money back in certain parts of hard-hit Los Angeles.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/airbnb-and-vrbo-will-offer-refunds-in-fire-affected-areas
+
+**Amick: Heat won't foolishly rush into a Jimmy Butler trade**\
+`Miami is being patient while Butler is suspended, knowing that other teams will start to get desperate near the trade deadline.`\
+https://nytimes.com/athletic/6048999/2025/01/09/jimmy-butler-trade-miami-heat-phoenix-suns-warriors/
+
 **As Art Sales Fall, Auction Houses Pivot to Luxury**\
 `With both supply and demand for big-ticket art in a slump, Sotheby’s and Christie’s are making major bets on selling handbags, classic cars and niche experiences.`\
 https://nytimes.com/2025/01/09/arts/design/christies-sothebys-luxury-goods.html
