@@ -1,3 +1,15 @@
+**Hochul Seeks to Limit Private-Equity Ownership of Homes in New York**\
+`Widespread purchases of single-family homes by institutional investors may be contributing to soaring housing prices and low vacancy rates across the country.`\
+https://nytimes.com/2025/01/09/nyregion/private-equity-homes-hochul.html
+
+**An Art-World Mom Dishes on Her Messy Life**\
+`In a new memoir, Sarah Hoover grapples with the uglier moments that she and her husband, the artist Tom Sachs, have faced while navigating parenthood.`\
+https://nytimes.com/2025/01/09/style/sarah-hoover-memoir-tom-sachs.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/09/crosswords/spelling-bee-forum.html
+
 **South Korean Colonel Who Accused President of Whitewash Is Acquitted**\
 `The case, involving an inquiry into a marine’s death, had stoked political tensions long before President Yoon Suk Yeol’s impeachment last month.`\
 https://nytimes.com/2025/01/09/world/asia/south-korea-yoon-colonel-acquitted.html
