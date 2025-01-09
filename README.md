@@ -1,7 +1,3 @@
-**What to watch in college basketball this weekend: Ranked SEC games, Notre Dame at Duke**\
-`What to watch — and how to watch it — across a packed weekend of conference play.`\
-https://nytimes.com/athletic/6047718/2025/01/09/college-basketball-what-to-watch-alabama-kentucky-duke/
-
 **Los Angeles Already Had a Housing Shortage. Wildfires Will Make It Worse.**\
 `With so many people displaced and looking for rentals, the region’s housing options could grow even scarcer and more expensive.`\
 https://nytimes.com/2025/01/09/business/la-fires-housing-shortage.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/12/us/californias-worst-wildfires-history.html
 **Tracking Tropical Cyclone Dikeledi**\
 `See the likely path and wind arrival times for Dikeledi.`\
 https://nytimes.com/interactive/2025/01/09/weather/dikeledi-map-path-tracker.html
+
+**49ers interview Robert Saleh for vacant DC role**\
+`Saleh left the exact position with the 49ers to become the Jets coach four seasons ago.`\
+https://nytimes.com/athletic/6050547/2025/01/09/robert-saleh-49ers-defensive-coordinator/
 
