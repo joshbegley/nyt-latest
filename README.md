@@ -1,3 +1,7 @@
+**How Jim Harbaugh built the Chargers culture: Black Eyed Peas, blue-collar gifts, authenticity**\
+`Harbaugh’s antics can seem cliche and even corny at times, but every one of them has a meaning and makes an impact.`\
+https://nytimes.com/athletic/6048205/2025/01/09/chargers-jim-harbaugh-playoffs-culture-change/
+
 **The fires are causing disruptions in pro sports.**\
 `The N.H.L. and N.B.A. were working to manage postponed games and personnel emergencies. The blazes also loomed over the start of the N.F.L. playoffs.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/the-fires-are-causing-disruptions-in-pro-sports
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/business/dealbook/los-angeles-fires-costs.html
 **Airbnb and Vrbo will offer refunds in fire-affected areas.**\
 `The short-term rental platforms will let hosts cancel without penalty and give guests their money back in certain parts of hard-hit Los Angeles.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/airbnb-and-vrbo-will-offer-refunds-in-fire-affected-areas
-
-**Amick: Heat won't foolishly rush into a Jimmy Butler trade**\
-`Miami is being patient while Butler is suspended, knowing that other teams will start to get desperate near the trade deadline.`\
-https://nytimes.com/athletic/6048999/2025/01/09/jimmy-butler-trade-miami-heat-phoenix-suns-warriors/
 
