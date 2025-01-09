@@ -1,3 +1,7 @@
+**Private fire crews protect some businesses and homes for a price.**\
+`An upscale outdoor mall in Pacific Palisades, Calif., has survived so far with help from private firefighters.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/private-fire-crews-protect-some-businesses-and-homes-for-a-price
+
 **How a Phone Call Drew Alito Into a Trump Loyalty Squabble**\
 `The phone call centered on a former law clerk of Justice Alito’s who in the eyes of the Trump team must prove his loyalty to the president-elect.`\
 https://nytimes.com/2025/01/09/us/politics/alito-trump-phone-call-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/california-fires-victims.html
 **Fox Must Face Smartmatic’s $2.7 Billion Defamation Lawsuit, Court Rules**\
 `The complaint, which arose out of Fox News’s promotion of vote-rigging conspiracy theories after the 2020 U.S. presidential election, is on track to proceed to trial.`\
 https://nytimes.com/2025/01/09/business/media/fox-smartmatic-lawsuit.html
-
-**Residents of Jimmy Carter’s hometown ponder a future without their famous draw.**\
-`By Emily Cochrane`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral/residents-of-jimmy-carters-hometown-ponder-a-future-without-their-famous-draw
 
