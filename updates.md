@@ -1,3 +1,7 @@
+**A Ring of Fire**\
+`We cover the latest on the wildfires across Southern California.`\
+https://nytimes.com/2025/01/09/briefing/california-los-angeles-wildfires.html
+
 **NBA Lookahead: Is Kings' turnaround for real? If so, what's changed?**\
 `Sacramento faces a tough test Friday night in Boston. That's just one of the highlights of this coming weekend.`\
 https://nytimes.com/athletic/6043214/2025/01/09/nba-lookahead-kings-win-streak/
