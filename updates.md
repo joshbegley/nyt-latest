@@ -1,3 +1,7 @@
+**Cavs pass 'big test' with flying colors, edge Thunder in meeting of NBA's top seeds**\
+`Cleveland snapped OKC's 15-game winning streak, but the Thunder have a chance at revenge next week.`\
+https://nytimes.com/athletic/6048606/2025/01/08/cavaliers-thunder-streak-nba-result/
+
 **Cavs pass 'big test' and top Thunder in much-hyped meeting of NBA's top seeds**\
 `Cleveland snapped OKC's 15-game winning streak, but the Thunder have a chance at revenge next week.`\
 https://nytimes.com/athletic/6048606/2025/01/08/cavaliers-thunder-streak-nba-result/
