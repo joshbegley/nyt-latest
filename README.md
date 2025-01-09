@@ -1,3 +1,15 @@
+**Can Bengals keep Tee Higgins? Resetting chances of the WR staying in Cincinnati**\
+`Joe Burrow has made it clear he wants the big three to stay together. Now the Bengals need to see if they can make it work.`\
+https://nytimes.com/athletic/6047907/2025/01/09/tee-higgins-bengals-free-agent/
+
+**Browns offensive coordinator search: 7 names to know during the hiring process**\
+`After firing Ken Dorsey a day after its season concluded, Cleveland is looking for a new offensive coordinator for the second straight year.`\
+https://nytimes.com/athletic/6047945/2025/01/09/browns-offensive-coordinator-search/
+
+**Boarding Schools in Tibet Reshape the ‘Souls of Children’**\
+`Across China’s west, the Communist Party is placing children in boarding schools to assimilate a generation of Tibetans into the national mainstream and mold them into loyal citizens.`\
+https://nytimes.com/interactive/2025/01/09/world/asia/tibet-china-boarding-schools.html
+
 **Putin Gets a Snub in the Vast Wine Cellars of a Former Soviet Republic**\
 `The Russian president celebrated his 50th birthday at a winery in Moldova. After the invasion of Ukraine, it moved the bottles he was given away from public view.`\
 https://nytimes.com/2025/01/09/world/europe/moldova-wine-cellar-putin.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/09/opinion/la-wildfires-los-angeles-palisades.html
 **Tim Walz Endorses Ken Martin, a Fellow Minnesotan, to Lead the D.N.C.**\
 `The Minnesota governor and 2024 vice-presidential contender became the highest-profile Democrat to back Mr. Martin, one of the front-runners vying to run the party’s national committee.`\
 https://nytimes.com/2025/01/09/us/politics/tim-walz-ken-martin-dnc-chair.html
-
-**Meet the Combative Populist on a Path to Become Canada’s Next Leader**\
-`Pierre Poilievre, the Conservative leader, enjoys a commanding lead in the polls as Canadians look to the next general election.`\
-https://nytimes.com/2025/01/09/world/canada/pierre-poilievre-conservative-leader-canada.html
-
-**Philly Crossover: ‘It’s Always Sunny in Philadelphia’ Attends ‘Abbott Elementary’**\
-`The two sitcoms could hardly be more tonally different, but this week’s crossover episode of “Abbott” was relatively seamless.`\
-https://nytimes.com/2025/01/09/arts/television/its-always-sunny-in-philadelphia-abbott-elementary-crossover.html
-
-**A Hollywood Hot Spot Fills Up With Evacuees**\
-`Some who fled wealthy Los Angeles neighborhoods ended up at a hotel known for entertainment industry power lunches.`\
-https://nytimes.com/2025/01/09/us/la-fires-hollywood-sunset-tower-hotel-evacuations.html
 
