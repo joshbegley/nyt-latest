@@ -1,3 +1,15 @@
+**After a nightmare start, Villanova is suddenly back in the mix for March**\
+`Neptune and his Wildcats are injecting some hope for a fan base no one could have blamed for feeling apathetic after two middling years.`\
+https://nytimes.com/athletic/6048831/2025/01/09/villanova-basketball-uconn-kyle-neptune/
+
+**Here’s Who Will Speak at Jimmy Carter’s Funeral**\
+`President Biden will deliver a eulogy, and tributes written by Gerald Ford and Walter Mondale will be read by their sons.`\
+https://nytimes.com/2025/01/09/us/jimmy-carter-funeral-speakers.html
+
+**Live Updates: Nation’s Leaders Will Gather to Honor Carter at Washington Cathedral**\
+`A state funeral for the 39th president on will bring together all five living presidents and feature a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral
+
 **The Costs of the Los Angeles Fires**\
 `Damages are now estimated to reach up to $57 billion. The blazes add to a string of climate-related catastrophes hitting businesses and homeowners.`\
 https://nytimes.com/2025/01/09/business/dealbook/los-angeles-fires-costs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6049254/2025/01/09/sunderland-transfers-enzo-le-fee
 **Lebanese Lawmakers Choose a President After 2 Years of Gridlock**\
 `Lawmakers elected Joseph Aoun, the commander of the Lebanese military, the first step in forming a government to lead a country recovering from economic crisis and a devastating war.`\
 https://nytimes.com/2025/01/09/world/middleeast/lebanon-politics-president-parliament-vote.html
-
-**The Athletic FC: Inside Lopetegui sacking, Spurs' youngsters shine, Barca's Olmo reprieve**\
-`Today in TAFC: The reasons why Lopetegui was sacked, give a hat tip to a Spurs duo and ask how Alexander-Arnold might fit at Real Madrid`\
-https://nytimes.com/athletic/6049117/2025/01/09/loepetetgui-west-ham-olmo-barcelona/
-
-**Agbadou: A long-term Wolves target with an elite passing range - also admired by Pereira**\
-`Wolves’ recruitment team have monitored Agbadou for years and noted an increase in performance and consistency since he became Reims captain`\
-https://nytimes.com/athletic/6049062/2025/01/09/emmanuel-agbadou-wolves-signing/
-
-**Mirtle: The Maple Leafs are one of the NHL's best teams at midseason. Is it sustainable?**\
-`The Leafs are a different team with a bit more backbone this season. Can they keep winning this way?`\
-https://nytimes.com/athletic/6048878/2025/01/09/maple-leafs-team-nhl-analysis-2025/
 

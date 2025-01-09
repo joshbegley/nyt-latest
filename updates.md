@@ -1,3 +1,15 @@
+**After a nightmare start, Villanova is suddenly back in the mix for March**\
+`Neptune and his Wildcats are injecting some hope for a fan base no one could have blamed for feeling apathetic after two middling years.`\
+https://nytimes.com/athletic/6048831/2025/01/09/villanova-basketball-uconn-kyle-neptune/
+
+**Here’s Who Will Speak at Jimmy Carter’s Funeral**\
+`President Biden will deliver a eulogy, and tributes written by Gerald Ford and Walter Mondale will be read by their sons.`\
+https://nytimes.com/2025/01/09/us/jimmy-carter-funeral-speakers.html
+
+**Live Updates: Nation’s Leaders Will Gather to Honor Carter at Washington Cathedral**\
+`A state funeral for the 39th president on will bring together all five living presidents and feature a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral
+
 **The Costs of the Los Angeles Fires**\
 `Damages are now estimated to reach up to $57 billion. The blazes add to a string of climate-related catastrophes hitting businesses and homeowners.`\
 https://nytimes.com/2025/01/09/business/dealbook/los-angeles-fires-costs.html
