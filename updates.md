@@ -1,3 +1,11 @@
+**Who’s in charge of the firefighting effort?**\
+`By Matt Stevens`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/whos-in-charge-of-the-firefighting-effort
+
+**Alito Spoke With Trump Shortly Before Supreme Court Filing**\
+`The justice said that the call was a job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
+https://nytimes.com/2025/01/08/us/justice-alito-trump.html
+
 **Day 4: How to Grocery Shop Like a Nutrition Scientist**\
 `Today we’re looking at ultraprocessed foods in the wild.`\
 https://nytimes.com/2025/01/08/well/ultraprocessed-foods-alternatives.html

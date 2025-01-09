@@ -1,3 +1,7 @@
+**Who’s in charge of the firefighting effort?**\
+`By Matt Stevens`\
+https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/whos-in-charge-of-the-firefighting-effort
+
 **Day 4: How to Grocery Shop Like a Nutrition Scientist**\
 `Today we’re looking at ultraprocessed foods in the wild.`\
 https://nytimes.com/2025/01/08/well/ultraprocessed-foods-alternatives.html
@@ -23,7 +27,7 @@ https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/several-
 https://nytimes.com/2025/01/08/us/sacramento-polaroids-sex-crimes-sentencing.html
 
 **Alito Spoke With Trump Shortly Before Supreme Court Filing**\
-`The justice said that the call was a routine job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
+`The justice said that the call was a job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
 https://nytimes.com/2025/01/08/us/justice-alito-trump.html
 
 **San Francisco Gets a New Mayor and an Emergency Plan for the Fentanyl Scourge**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/politics/san-francisco-mayor-daniel-lurie-fent
 **An Astros’ draft pick is ditching the diamond for the gridiron this spring**\
 `Oregon secured a waiver for an additional year of football eligibility for Boettcher, who did not join the team until his sophomore season`\
 https://nytimes.com/athletic/6048352/2025/01/08/bryce-boettcher-oregon-football-houston-astros/
-
-**Hiker Found Alive After 13 Days Lost in Australian Mountains**\
-`The 23-year-old hiker, Hadi Nazari, survived for almost two weeks on two granola bars he found in a hut and on water from rivers and creeks, the authorities said.`\
-https://nytimes.com/2025/01/08/world/australia/missing-hiker-australia-found.html
 
