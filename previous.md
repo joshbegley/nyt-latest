@@ -1,3 +1,7 @@
+**The Pulse: The massive stakes of tonight’s Playoff game**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6047458/2025/01/09/the-stakes-in-penn-state-notre-dame-plus-the-cavs-and-thunder-play-a-banger/
+
 **A Ring of Fire**\
 `We cover the latest on the wildfires across Southern California.`\
 https://nytimes.com/2025/01/09/briefing/california-los-angeles-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047709/2025/01/09/nhl-playoff-report-blue-jackets-
 **Five bold Red Wings predictions for 2025**\
 `Detroit is off to a good start in 2025, but what else could be in store? Here are some predictions. `\
 https://nytimes.com/athletic/6048133/2025/01/09/red-wings-bold-predictions-trade-2025/
-
-**Russo and Smith: Wild are a first-half surprise, but are they contenders? Midseason review and awards**\
-`At midseason, we look back at the biggest surprise, MVP, most improved, biggest disappointment and what the Wild need to improve the most.`\
-https://nytimes.com/athletic/6045183/2025/01/09/wild-midseason-review/
 
