@@ -1,3 +1,7 @@
+**Manor Solomon interview - My fiancée pushed me to join Leeds. Later, I told her: 'Thank you'**\
+`Manor Solomon sat down with The Athletic's Beren Cross to discuss his time at Leeds so far and his personal life`\
+https://nytimes.com/athletic/6047724/2025/01/09/manor-solomon-leeds-united-interview/
+
 **Seth Meyers Slams Trump for Changing the Subject on Inflation**\
 `“Come on, man, you talked about this, like, every day on the campaign trail,” Meyers said of the president-elect. “You even brought props.”`\
 https://nytimes.com/2025/01/09/arts/television/seth-meyers-trump-inflation-greenland.html
