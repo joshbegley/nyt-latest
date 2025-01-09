@@ -2,6 +2,10 @@
 `People who escaped approaching blazes found themselves seeking shelter once again as more areas were evacuated across Los Angeles County.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/los-angeles-wildfire-evacuations
 
+**Jaden Hicks just the latest young, capable defensive back the Chiefs have developed**\
+`Hicks leads the Chiefs with three interceptions despite starting only one game. He should play a role in the postseason.`\
+https://nytimes.com/athletic/6048340/2025/01/09/chiefs-jaden-hicks-rookie-season/
+
 **Sam Darnold's season and Vikings' playoff hopes rely on unwavering process and support**\
 `Kevin O'Connell, the QB coaches and backups have Darnold playing at a high level. Can he bounce back from the Week 18 debacle in Detroit?`\
 https://nytimes.com/athletic/6047618/2025/01/09/sam-darnold-vikings-kevin-oconnell-support/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047525/2025/01/09/nfl-afc-playoffs-super-wild-card
 **Don’t get too giddy, SEC haters. The king of college football will be back, and soon**\
 `Places like Georgia, Alabama, LSU and others in the SEC are always going to be committed to doing whatever it takes to build a winner.`\
 https://nytimes.com/athletic/6048041/2025/01/09/sec-college-football-playoff-cfp/
-
-**Manchester United live Q&A: Laurie Whitwell answers your questions**\
-`What do you want to know about United's current situation? Pose your questions and our club correspondent will answer as many as possible`\
-https://nytimes.com/athletic/6047643/2025/01/09/manchester-united-transfers-questions-rashford/
 
