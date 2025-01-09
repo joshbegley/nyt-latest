@@ -1,3 +1,7 @@
+**Alito Spoke With Trump Shortly Before Supreme Court Filing**\
+`The justice said that the call was a routine job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
+https://nytimes.com/2025/01/08/us/justice-alito-trump.html
+
 **San Francisco Gets a New Mayor and an Emergency Plan for the Fentanyl Scourge**\
 `Daniel Lurie, an heir to the Levi Strauss fortune, became the city’s 46th mayor on Wednesday and laid out a path to restoring the battered city’s luster.`\
 https://nytimes.com/2025/01/08/us/politics/san-francisco-mayor-daniel-lurie-fentanyl.html
