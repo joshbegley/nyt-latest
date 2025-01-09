@@ -1,5 +1,5 @@
 **Dyche leaves role as Everton manager**\
-`Sean Dyche has left his role as Everton manager on the eve of their game with Peterborough United on Thursday night and after less than 12 months in charge.`\
+`Sean Dyche has left his role as Everton manager on the eve of their game with Peterborough United on Thursday night and after less than two years in charge.`\
 https://nytimes.com/athletic/5767109/2025/01/09/sean-dyche-everton-manager-leaves/
 
 **How to Evacuate a 300-Pound Pig**\
