@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/01/09/opinion/thepoint
+
+**Loss estimates, including health effects and rebuilding costs, surge.**\
+`As fires raged, the economic toll of the disaster climbed into the tens of billions of dollars, according to analyst estimates.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-damage
+
 **Venezuela’s Opposition Leader, Maria Corina Machado, Detained at Protest**\
 `Ms. Machado has garnered enormous support for her opposition to the country’s autocrat, Nicolás Maduro.`\
 https://nytimes.com/2025/01/09/world/americas/venezuelas-opposition-leader-maria-corina-machado-detained.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6050140/2025/01/09/justin-verlander-gavin-lux-mlb-t
 **Late Titans star Frank Wycheck diagnosed with CTE after his 2023 death**\
 `Researchers from Boston University's CTE Center confirmed the stage III diagnosis for Wycheck.`\
 https://nytimes.com/athletic/6049927/2025/01/09/frank-wycheck-cte-diagnosis-titans/
-
-**Georgia's Carson Beck to enter transfer portal: Source**\
-`Beck previously announced he would enter the 2025 NFL Draft on Dec. 28.`\
-https://nytimes.com/athletic/6050302/2025/01/09/carson-beck-georgia-transfer-portal/
-
-**Enron Is Back. And It Wants to Sell You a Nuclear Reactor.**\
-`At least that’s what its new chief executive says, after buying the company’s trademark for a couple hundred bucks.`\
-https://nytimes.com/2025/01/09/business/enron-egg-nuclear-reactor.html
 

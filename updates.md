@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/01/09/opinion/thepoint
+
+**Loss estimates, including health effects and rebuilding costs, surge.**\
+`As fires raged, the economic toll of the disaster climbed into the tens of billions of dollars, according to analyst estimates.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-damage
+
 **Venezuela’s Opposition Leader, Maria Corina Machado, Detained at Protest**\
 `Ms. Machado has garnered enormous support for her opposition to the country’s autocrat, Nicolás Maduro.`\
 https://nytimes.com/2025/01/09/world/americas/venezuelas-opposition-leader-maria-corina-machado-detained.html
