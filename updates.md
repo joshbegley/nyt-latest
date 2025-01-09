@@ -1,3 +1,11 @@
+**Photos of Abuse Found in a Home’s Walls Lead to Prison Time for Father and Son**\
+`Old Polaroid images of child sex exploitation were found during the renovation of a California home where Theodore and James Smith had lived, the authorities said.`\
+https://nytimes.com/2025/01/08/us/sacramento-polaroids-sex-crimes-sentencing.html
+
+**An Astros’ draft pick is ditching the diamond for the gridiron this spring**\
+`Oregon secured a waiver for an additional year of football eligibility for Boettcher, who did not join the team until his sophomore season`\
+https://nytimes.com/athletic/6048352/2025/01/08/bryce-boettcher-oregon-football-houston-astros/
+
 **Alito Spoke With Trump Shortly Before Supreme Court Filing**\
 `The justice said that the call was a routine job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
 https://nytimes.com/2025/01/08/us/justice-alito-trump.html
