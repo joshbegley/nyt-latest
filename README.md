@@ -1,3 +1,15 @@
+**How is each Sabres player performing relative to expectations? Midseason report card**\
+`By every measure, the Sabres are one of the most disappointing teams in the NHL through 41 games.`\
+https://nytimes.com/athletic/6049845/2025/01/09/buffalo-sabres-midseason-report-card-2025/
+
+**Billy Crystal and Paris Hilton are among those whose homes were lost or damaged.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-celebrity-homes-los-angeles
+
+**Jimmy Carter’s Large Family Honors the Former President**\
+`Only three family members spoke during the funeral at the National Cathedral in Washington, but many more attended the services and are expected in Plains. Ga.`\
+https://nytimes.com/2025/01/09/us/jimmy-carter-family-profile.html
+
 **France Indicts Founder of Notorious Website Used in Pelicot Rape Case**\
 `The site, coco.fr, was shut down in June after being linked to more than 23,000 sexual abuse and other cases in France alone, including the rape trial that shocked the country last year.`\
 https://nytimes.com/2025/01/09/france-pelicot-rape-trial-coco-indictment.html
@@ -25,16 +37,4 @@ https://nytimes.com/card/2025/01/09/arts/editors-recommendations-precludetoecsta
 **The Bounce: Now that was some basketball!**\
 `Zach Harper catches you up on league-wide news.`\
 https://nytimes.com/athletic/6049886/2025/01/09/cavs-thunder-streak-jokic-nba-the-bounce/
-
-**30-Year Mortgage Rate Climbs to 6.93%, the Highest Since July**\
-`Borrowing costs have been rising for months, tracking yields on government bonds. The move threatens to push more buyers and sellers to the sidelines.`\
-https://nytimes.com/2025/01/09/business/mortgage-rates-housing.html
-
-**'Trying to achieve great things, it's not easy': Murray describes intensity of coaching Djokovic**\
-`It will be all business when Andy Murray coaches Novak Djokovic at the Australian Open.`\
-https://nytimes.com/athletic/6049104/2025/01/09/andy-murray-novak-djokovic-coach-australian-open/
-
-**Park City Strike Ends With Increase in Wages for Ski Patrollers**\
-`The nearly two-week strike hobbled the largest U.S. ski resort during a busy holiday period and sparked online fury about deepening economic inequality in rural mountain areas.`\
-https://nytimes.com/2025/01/09/travel/park-city-strike-union.html
 
