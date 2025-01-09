@@ -1,3 +1,7 @@
+**A Ring of Fire**\
+`We cover the latest on the wildfires across Southern California.`\
+https://nytimes.com/2025/01/09/briefing/california-los-angeles-wildfires.html
+
 **NBA Lookahead: Is Kings' turnaround for real? If so, what's changed?**\
 `Sacramento faces a tough test Friday night in Boston. That's just one of the highlights of this coming weekend.`\
 https://nytimes.com/athletic/6043214/2025/01/09/nba-lookahead-kings-win-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048133/2025/01/09/red-wings-bold-predictions-trade
 **Russo and Smith: Wild are a first-half surprise, but are they contenders? Midseason review and awards**\
 `At midseason, we look back at the biggest surprise, MVP, most improved, biggest disappointment and what the Wild need to improve the most.`\
 https://nytimes.com/athletic/6045183/2025/01/09/wild-midseason-review/
-
-**Aaron Rodgers' future: Why the Jets could keep him — and what's next if they don't**\
-`A look at the Jets' roster and cap implications, with or without the 41-year-old QB.`\
-https://nytimes.com/athletic/6047943/2025/01/09/aaron-rodgers-jets-future-trade-cut-retire-cap-implications/
 
