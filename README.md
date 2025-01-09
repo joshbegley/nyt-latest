@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6048831/2025/01/09/villanova-basketball-uconn-kyle-
 https://nytimes.com/2025/01/09/us/jimmy-carter-funeral-speakers.html
 
 **Live Updates: Nation’s Leaders Will Gather to Honor Carter at Washington Cathedral**\
-`A state funeral for the 39th president on will bring together all five living presidents and feature a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
+`A state funeral for the 39th president will bring together all five living presidents and include a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral
 
 **The Costs of the Los Angeles Fires**\
