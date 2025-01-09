@@ -1,3 +1,7 @@
+**Residents of Jimmy Carter’s hometown ponder a future without their famous draw.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/residents-of-jimmy-carters-hometown-ponder-a-future-without-their-famous-draw
+
 **Why General Manager Is the Hottest Job in College Sports**\
 `With players being paid and routinely changing schools, universities increasingly need someone besides a coach to put together a team.`\
 https://nytimes.com/2025/01/09/business/college-sports-general-managers.html
