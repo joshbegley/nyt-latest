@@ -1,3 +1,11 @@
+**Listen: ‘Loving Their Pets to Death’**\
+`Animal medicine has become a high-tech industry. Is that a good thing for pets and their owners?`\
+https://nytimes.com/2025/01/09/learning/listen-loving-their-pets-to-death.html
+
+**Southern States Face a Forecast of Ice and Heavy Snow**\
+`A stretch of the United States from Texas and Arkansas to the Carolinas is expected to see significant winter weather on Thursday and Friday.`\
+https://nytimes.com/2025/01/09/weather/snow-storm-warning-forecast-us-south.html
+
 **Can Bengals keep Tee Higgins? Resetting chances of the WR staying in Cincinnati**\
 `Joe Burrow has made it clear he wants the big three to stay together. Now the Bengals need to see if they can make it work.`\
 https://nytimes.com/athletic/6047907/2025/01/09/tee-higgins-bengals-free-agent/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/us/politics/jimmy-carter-funeral.html
 **They Dreamed of a Traditional Marrakesh Riad for About $500,000**\
 `A London couple searched the medina quarter of Marrakesh, Morocco, for a home they could rent out in the near term and retire to in the long term. Here’s what they found.`\
 https://nytimes.com/interactive/2025/01/09/realestate/marrakesh-morocco-home-sale.html
-
-**Disasters Have Made L.A. What It Is**\
-`Los Angeles may have a reputation for being superficial, but it is in fact a territory that might, at any moment, upend (or even end) your life.`\
-https://nytimes.com/2025/01/09/opinion/la-wildfires-los-angeles-palisades.html
-
-**Tim Walz Endorses Ken Martin, a Fellow Minnesotan, to Lead the D.N.C.**\
-`The Minnesota governor and 2024 vice-presidential contender became the highest-profile Democrat to back Mr. Martin, one of the front-runners vying to run the party’s national committee.`\
-https://nytimes.com/2025/01/09/us/politics/tim-walz-ken-martin-dnc-chair.html
 
