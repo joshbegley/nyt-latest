@@ -1,3 +1,7 @@
+**Before-and-After Images Show Scope of Palisades Fire Destruction**\
+`Comparisons of the same buildings before and after the Palisades fire reveal the extent of devastation in the area.`\
+https://nytimes.com/video/us/100000009916167/palisades-fire-before-after.html
+
 **Several longtime L.A. restaurants have been destroyed in the Palisades fire.**\
 `A cluster of businesses in Malibu and the Palisades burned, while dozens of other restaurants across the area were closed by smoke and power outages.`\
 https://nytimes.com/live/2025/01/08/us/california-wildfire-la-palisades/several-longtime-la-restaurants-have-been-destroyed-in-the-palisades-fire
