@@ -1,3 +1,19 @@
+**What Franco Colapinto’s Alpine F1 move means for his and Jack Doohan’s future**\
+`Signing Colapinto is a solid bet for Alpine, but there's no question it puts a spotlight on its 2025 driver before the season even begins.`\
+https://nytimes.com/athletic/6049728/2025/01/09/franco-colapinto-f1-alpine-jack-doohan-driver/
+
+**Tyreek Hill still 'committed' to Dolphins, says agent Drew Rosenhaus**\
+`Hill suited up for all 17 games this season and finished with 81 catches on 123 targets, 959 yards and six touchdowns.`\
+https://nytimes.com/athletic/6050031/2025/01/09/tyreek-hill-drew-rosenhaus-committed-dolphins/
+
+**Satou Sabally asks to leave Dallas Wings, find new team**\
+`“I’m working with them together to find the next home for me because I’ve already played my last game in Dallas," Sabally said Thursday.`\
+https://nytimes.com/athletic/6050204/2025/01/09/satou-sabally-leave-dallas-wings/
+
+**Otto Schenk, Opera Director and Bulwark of Tradition, Dies at 94**\
+`A prominent practitioner of the historically grand productions that were once fashionable at the Met, he was especially well known for his stagings of Wagner.`\
+https://nytimes.com/2025/01/09/arts/music/otto-schenk-dead.html
+
 **Liverpool could consider Kvaratskhelia move from Napoli**\
 `Liverpool could consider a move to sign Khvicha Kvaratskhelia from Napoli — should it be decided that he is to exit the club in this transfer window.`\
 https://nytimes.com/athletic/6050197/2025/01/09/liverpool-transfers-kvaratskhelia-napoli/
