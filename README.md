@@ -1,3 +1,7 @@
+**U.S. Steel, Its Merger Blocked, Faces Stark Alternatives**\
+`The onetime dynamo is fighting to revive a takeover by Nippon Steel. Other tie-ups could also face obstacles, and going it alone could force cutbacks.`\
+https://nytimes.com/2025/01/09/business/ussteel-nippon-merger-future.html
+
 **‘American Primeval’ Review: Hopeless on the Range**\
 `Taylor Kitsch and Betty Gilpin star in a Netflix mini-series about the brutal, brutal West.`\
 https://nytimes.com/2025/01/09/arts/television/american-primeval-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/opinion/demi-moore-golden-globes.html
 **Germany Approves Tribunal to Decide Nazi-Looted Art Claims**\
 `The new body will be easier to access and its decisions will be legally binding. But some lawyers and Jewish heirs are not happy with the reform.`\
 https://nytimes.com/2025/01/09/arts/germany-nazi-looted-art-restitution-panel.html
-
-**Franco Colapinto joins Alpine F1 on multi-year deal**\
-`The team has maintained that Jack Doohan is its race driver for the 2025 season. `\
-https://nytimes.com/athletic/6049594/2025/01/09/franco-colapinto-alpine-f1/
 

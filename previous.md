@@ -1,3 +1,15 @@
+**‘American Primeval’ Review: Hopeless on the Range**\
+`Taylor Kitsch and Betty Gilpin star in a Netflix mini-series about the brutal, brutal West.`\
+https://nytimes.com/2025/01/09/arts/television/american-primeval-review.html
+
+**Amad signs five-year Man Utd contract**\
+`Manchester United winger Amad has signed a new five-year contract to keep him at the Old Trafford club until 2030.`\
+https://nytimes.com/athletic/6044024/2025/01/09/amad-manchester-united-contract/
+
+**The ‘Ice Maiden’ Cometh: Can Susie Wiles, Trump’s Chief of Staff, Survive?**\
+`As Ms. Wiles heads to Washington, the view in Trump World is that the president-elect’s closest aide and veteran strategist has a better chance than anyone.`\
+https://nytimes.com/2025/01/09/us/politics/susie-wiles-trump.html
+
 **How is each Sabres player performing relative to expectations? Midseason report card**\
 `By every measure, the Sabres are one of the most disappointing teams in the NHL through 41 games.`\
 https://nytimes.com/athletic/6049845/2025/01/09/buffalo-sabres-midseason-report-card-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/09/arts/germany-nazi-looted-art-restitution-panel.ht
 **Franco Colapinto joins Alpine F1 on multi-year deal**\
 `The team has maintained that Jack Doohan is its race driver for the 2025 season. `\
 https://nytimes.com/athletic/6049594/2025/01/09/franco-colapinto-alpine-f1/
-
-**Review: Tales From the Mahabharata in Harmony and Disharmony**\
-`At the Joyce Theater, Ragamala Dance presents “Children of Dharma,” an elegant production that lacks dramatic pop.`\
-https://nytimes.com/2025/01/09/arts/dance/review-ragamala-dance-children-of-dharma.html
-
-**What’s in Our Queue? ‘Prelude to Ecstasy’ and More**\
-`Text by Amelia Nierenberg`\
-https://nytimes.com/card/2025/01/09/arts/editors-recommendations-precludetoecstacy
-
-**The Bounce: Now that was some basketball!**\
-`Zach Harper catches you up on league-wide news.`\
-https://nytimes.com/athletic/6049886/2025/01/09/cavs-thunder-streak-jokic-nba-the-bounce/
 
