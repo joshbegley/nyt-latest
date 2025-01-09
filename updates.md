@@ -1,3 +1,7 @@
+**Why Kehl is extending his Dortmund contract after protracted negotiations**\
+`Borussia Dortmund have extended the contract of Sebastian Kehl, the club’s sporting director, until 2027.`\
+https://nytimes.com/athletic/6049475/2025/01/09/borussia-dortmund-sebastien-kehr-contract/
+
 **Spurs' defensive shell game can't stop Giannis, but it's a good growth opportunity**\
 `“I think this was just a deviation from what we’ve been doing," says Harrison Barnes of the Spurs' lapses against the Bucks. `\
 https://nytimes.com/athletic/6048651/2025/01/09/spurs-defense-wembanyama-giannis-bucks/
