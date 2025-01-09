@@ -1,3 +1,7 @@
+**The fires are causing disruptions in pro sports.**\
+`The N.H.L. and N.B.A. were working to manage postponed games and personnel emergencies. The blazes also loomed over the start of the N.F.L. playoffs.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/the-fires-are-causing-disruptions-in-pro-sports
+
 **My game in my words. By Alessia Russo**\
 `The Women's Super League's most in-form player sits down with The Athletic to analyse her game and her brilliant run of form for Arsenal...`\
 https://nytimes.com/athletic/6043657/2025/01/09/alessia-russo-arsenal-analysis-goals-striker/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/airbnb-and-v
 **Amick: Heat won't foolishly rush into a Jimmy Butler trade**\
 `Miami is being patient while Butler is suspended, knowing that other teams will start to get desperate near the trade deadline.`\
 https://nytimes.com/athletic/6048999/2025/01/09/jimmy-butler-trade-miami-heat-phoenix-suns-warriors/
-
-**As Art Sales Fall, Auction Houses Pivot to Luxury**\
-`With both supply and demand for big-ticket art in a slump, Sotheby’s and Christie’s are making major bets on selling handbags, classic cars and niche experiences.`\
-https://nytimes.com/2025/01/09/arts/design/christies-sothebys-luxury-goods.html
 
