@@ -1,3 +1,15 @@
+**Is Arteta right - do footballs really make a difference to performance?**\
+`Arsenal's manager blamed Puma's Oribita 1 after their cup defeat to Newcastle, but how marked is the variation between brands of balls?`\
+https://nytimes.com/athletic/6046956/2025/01/09/arsenal-football-puma-caabao-cup/
+
+**Pablo Maffeo, the hardest defender Messi's ever faced: 'It’s the best recognition'**\
+`The Mallorca right-back on Vinicius Junior, Messi and why it didn't work out at Man City`\
+https://nytimes.com/athletic/6033288/2025/01/09/pablo-maffeo-lionel-messi-mallorca-supercopa-vinicius/
+
+**How important is Kobbie Mainoo to Manchester United's future?**\
+`In an era of midfield physicality, how best for Mainoo to shine - especially if he stays at Old Trafford for the long haul?`\
+https://nytimes.com/athletic/6046583/2025/01/09/kobbie-mainoo-manchester-united-future/
+
 **Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
 `The Canucks made an impressive second-period push, but it wasn't enough, as the Capitals found a way to win 2-1 in overtime.
 `\

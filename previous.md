@@ -1,3 +1,15 @@
+**Is Arteta right - do footballs really make a difference to performance?**\
+`Arsenal's manager blamed Puma's Oribita 1 after their cup defeat to Newcastle, but how marked is the variation between brands of balls?`\
+https://nytimes.com/athletic/6046956/2025/01/09/arsenal-football-puma-caabao-cup/
+
+**Pablo Maffeo, the hardest defender Messi's ever faced: 'It’s the best recognition'**\
+`The Mallorca right-back on Vinicius Junior, Messi and why it didn't work out at Man City`\
+https://nytimes.com/athletic/6033288/2025/01/09/pablo-maffeo-lionel-messi-mallorca-supercopa-vinicius/
+
+**How important is Kobbie Mainoo to Manchester United's future?**\
+`In an era of midfield physicality, how best for Mainoo to shine - especially if he stays at Old Trafford for the long haul?`\
+https://nytimes.com/athletic/6046583/2025/01/09/kobbie-mainoo-manchester-united-future/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/09/briefing/wildfires-california-hostage.html
@@ -25,17 +37,4 @@ https://nytimes.com/2025/01/08/us/trump-fani-willis-appeal-georgia.html
 **Biden Cancels Italy Trip to Focus on California Fire Response**\
 `President Biden was set to meet Prime Minister Giorgia Meloni and Pope Francis during what would have been his last presidential trip abroad.`\
 https://nytimes.com/2025/01/08/us/biden-california-fires.html
-
-**‘It Was Biblical’: Ash and Flame Upend Life in Southern California**\
-`Wind-whipped wildfire blew through communities of every socioeconomic status and stripe, merging, psychically if not physically, into a kind of mega-catastrophe.`\
-https://nytimes.com/2025/01/08/us/los-angeles-wildfires.html
-
-**Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
-`The Canucks made an impressive second-period push, but it wasn't enough, as the Capitals found a way to win 2-1 in overtime.
-`\
-https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
-
-**Haunted House Feeling**\
-`David P. Williams’s puzzle has an alphabetical twist.`\
-https://nytimes.com/2025/01/08/crosswords/daily-puzzle-2025-01-09.html
 
