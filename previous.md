@@ -1,3 +1,7 @@
+**Why I Joined: A passionate one-club city - and running childhood tournaments with dice**\
+`Beren Cross explains why he has joined The Athletic to cover Leeds United`\
+https://nytimes.com/athletic/6044063/2025/01/09/beren-cross-why-i-joined/
+
 **Bergvall and Kinsky inject fresh impetus into the Postecoglou project**\
 `The teenager and the debutant goalkeeper starred for Spurs against Liverpool, inspiring their side to a much-needed win`\
 https://nytimes.com/athletic/6048539/2025/01/09/bergvall-kinsky-tottenham-carabao-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037741/2025/01/09/crystal-palace-tight-games-premi
 **Arsenal want to add a wide forward in January - who should they target?**\
 `The Athletic's data team run the numbers to see who could be a suitable addition to Arsenal's attack this month`\
 https://nytimes.com/athletic/6046374/2025/01/09/arsenal-wide-forward-january-transfer-options/
-
-**Why do Real Madrid want Alexander-Arnold - and what would he bring to Ancelotti's side?**\
-`Madrid are sold on the Liverpool right-back’s talents. Here's why the European champions are so keen to sign him`\
-https://nytimes.com/athletic/6046699/2025/01/09/real-madrid-trent-alexander-arnold-transfer-interest-analysis/
 

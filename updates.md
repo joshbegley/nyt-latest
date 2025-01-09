@@ -1,3 +1,7 @@
+**Why I Joined: A passionate one-club city - and running childhood tournaments with dice**\
+`Beren Cross explains why he has joined The Athletic to cover Leeds United`\
+https://nytimes.com/athletic/6044063/2025/01/09/beren-cross-why-i-joined/
+
 **Bergvall and Kinsky inject fresh impetus into the Postecoglou project**\
 `The teenager and the debutant goalkeeper starred for Spurs against Liverpool, inspiring their side to a much-needed win`\
 https://nytimes.com/athletic/6048539/2025/01/09/bergvall-kinsky-tottenham-carabao-cup/
