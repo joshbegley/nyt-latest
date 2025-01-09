@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6049117/2025/01/09/loepetetgui-west-ham-olmo-barcel
 
 **Agbadou: A long-term Wolves target with an elite passing range - also admired by Pereira**\
 `Wolves’ recruitment team have monitored Agbadou for years and noted an increase in performance and consistency since he became Reims captain`\
-https://nytimes.com/athletic/6049062/2025/01/09/emmanuel-agbadou-a-long-term-wolves-target-admired-by-pereira-with-an-elite-passing-range/
+https://nytimes.com/athletic/6049062/2025/01/09/emmanuel-agbadou-wolves-signing/
 
 **Mirtle: The Maple Leafs are one of the NHL's best teams at midseason. Is it sustainable?**\
 `The Leafs are a different team with a bit more backbone this season. Can they keep winning this way?`\
