@@ -1,3 +1,15 @@
+**‘Everything is Burned Down’**\
+`Sheila Morovati’s Pacific Palisades home was spared, but her neighborhood was decimated in the Los Angeles fires. For her, climate change looms over the tragic loses.`\
+https://nytimes.com/2025/01/09/climate/los-angeles-fires-climate-change.html
+
+**Facing criticism, the mayor of Los Angeles goes on defense.**\
+`Amid pointed questions at a news conference, Karen Bass sought to deflect criticism of the city’s response to the fires.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/facing-criticism-the-mayor-of-los-angeles-goes-on-defense
+
+**3 Make-Ahead Recipes to Upgrade Your Work Lunch**\
+`Chefs share recipes that can be prepared in bulk on Sunday then easily modified as the week goes on.`\
+https://nytimes.com/2025/01/09/t-magazine/work-lunch-recipes.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/01/09/opinion/thepoint
