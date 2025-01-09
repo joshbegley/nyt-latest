@@ -1,3 +1,11 @@
+**Scientists Say Musk Wrongly Downplays Climate Role in L.A. Fires**\
+`Posting on the social media site he owns, Mr. Musk blamed the fires on government. Scientists said a warming planet set the conditions.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/elon-musk-wildfires-la-california
+
+**Where to Eat When You Want to Stay In**\
+`The perfect spots for food that feels more homey than restaurant-y.`\
+https://nytimes.com/2025/01/09/dining/where-to-eat-when-you-want-to-stay-in.html
+
 **A technology company says its sensors signaled stress on power lines near the start of the wildfires.**\
 `By Ivan Penn`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/a-technology-company-says-its-sensors-signaled-stress-on-power-lines-near-the-start-of-the-wildfires
