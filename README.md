@@ -2,9 +2,9 @@
 `Some Pacific Palisades residents said the community had long asked for more detailed fire preparation plans. When a fire raged through the community this week, gridlock ensued.`\
 https://nytimes.com/2025/01/08/us/california-fire-palisades-evacuation.html
 
-**Who’s in charge of the firefighting effort?**\
-`By Matt Stevens`\
-https://nytimes.com/2025/01/08/us/whos-in-charge-of-the-firefighting-effort.html
+**Who’s in Charge of the Firefighting Effort?**\
+`Many agencies in the Los Angeles region are coordinating to battle multiple fires.`\
+https://nytimes.com/2025/01/08/us/fire-departments-in-charge.html
 
 **Day 4: How to Grocery Shop Like a Nutrition Scientist**\
 `Today we’re looking at ultraprocessed foods in the wild.`\
