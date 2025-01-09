@@ -1,3 +1,15 @@
+**Peter Fenwick, Leading Expert on Near-Death Experiences, Dies at 89**\
+`He was a neuropsychiatrist who was studying consciousness when a patient explained what had happened to him, and he realized the phenomenon was real.`\
+https://nytimes.com/2025/01/09/science/peter-fenwick-dead.html
+
+**Why German soccer team was belatedly awarded win after goalkeeper-lighter incident**\
+`The German Football Association (DFB) has overturned the result of Union Berlin’s 1-1 draw with Bochum in the Bundesliga and awarded Bochum a 2-0 victory.`\
+https://nytimes.com/athletic/6050129/2025/01/09/bochum-union-berlin-lighter-result/
+
+**Guantánamo Bay Explained: The Costs, the Captives and Why It’s Still Open**\
+`Just 15 men remain at the prison, down from hundreds when it opened 23 years ago. But the costly operation could go on for years.`\
+https://nytimes.com/2025/01/09/us/politics/guantanamo-prison-costs.html
+
 **Another failed Falcons season 'not good enough.' So now what?**\
 `Falcons GM Terry Fontenot said, “We haven’t won enough. It starts with me.” The team's self-evaluation process has just begun.`\
 https://nytimes.com/athletic/6050049/2025/01/09/falcons-failed-season-gm-terry-fontenot/
