@@ -1,3 +1,7 @@
+**The Fires, Awards Season and Why Delays Are Complicated**\
+`Jean Smart has suggested that awards ceremonies not be televised, but historically, any postponements have been a matter of days. Besides, such changes have financial ramifications.`\
+https://nytimes.com/2025/01/09/movies/la-fires-oscars-awards-season.html
+
 **As Flames Consume Architectural Gems, a Hit to ‘Old California’**\
 `Will Rogers’s historic house and an important residence by Ray Kappe were destroyed by the fires, which threaten L.A.’s spectacular design legacy.`\
 https://nytimes.com/2025/01/09/arts/design/architecture-fires-california-los-angeles-rogers-eames.html
