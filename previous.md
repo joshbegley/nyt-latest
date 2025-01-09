@@ -1,3 +1,7 @@
+**Australian Open draw 2025: Djokovic's draw fortune runs out, Gauff leads U.S. vs U.S. ties**\
+`The best tennis players in the world now know their fates for the first Grand Slam of the year.`\
+https://nytimes.com/athletic/6047300/2025/01/09/australian-open-draw-2025-djokovic-alcaraz-gauff/
+
 **Here’s the latest on the fires.**\
 `By Corina Knoll, Soumya Karlamangla and Mike Ives`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/heres-the-latest-on-the-fires
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047724/2025/01/09/manor-solomon-leeds-united-inter
 **Seth Meyers Slams Trump for Changing the Subject on Inflation**\
 `“Come on, man, you talked about this, like, every day on the campaign trail,” Meyers said of the president-elect. “You even brought props.”`\
 https://nytimes.com/2025/01/09/arts/television/seth-meyers-trump-inflation-greenland.html
-
-**Why I Joined: A passionate one-club city - and running childhood tournaments with dice**\
-`Beren Cross explains why he has joined The Athletic to cover Leeds United`\
-https://nytimes.com/athletic/6044063/2025/01/09/beren-cross-why-i-joined/
 
