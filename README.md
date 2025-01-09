@@ -1,3 +1,15 @@
+**Hochul Seeks to Limit Private-Equity Ownership of Homes in New York**\
+`Widespread purchases of single-family homes by institutional investors may be contributing to soaring housing prices and low vacancy rates across the country.`\
+https://nytimes.com/2025/01/09/nyregion/private-equity-homes-hochul.html
+
+**An Art-World Mom Dishes on Her Messy Life**\
+`In a new memoir, Sarah Hoover grapples with the uglier moments that she and her husband, the artist Tom Sachs, have faced while navigating parenthood.`\
+https://nytimes.com/2025/01/09/style/sarah-hoover-memoir-tom-sachs.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/09/crosswords/spelling-bee-forum.html
+
 **South Korean Colonel Who Accused President of Whitewash Is Acquitted**\
 `The case, involving an inquiry into a marine’s death, had stoked political tensions long before President Yoon Suk Yeol’s impeachment last month.`\
 https://nytimes.com/2025/01/09/world/asia/south-korea-yoon-colonel-acquitted.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/09/learning/word-of-the-day-boutonniere.html
 **Liverpool have defensive issues to address if they are to succeed in their pursuit of trophies**\
 `The Premier League leaders are conceding too many goals in recent weeks and were vulnerable against Tottenham in the Carabao Cup semi-final`\
 https://nytimes.com/athletic/6048483/2025/01/09/liverpool-tottenham-carabao-cup-defence/
-
-**Don’t Underestimate the Enduring Power of ISIS**\
-`The terrorist attack in New Orleans serves as a grim reminder that the group is still able to transform personal crises into public tragedy.`\
-https://nytimes.com/2025/01/09/opinion/isis-new-orleans-attack.html
-
-**We Are in an Industrial War. China Is Starting to Win.**\
-`China’s primary goal is to damage America’s economy and pave the way for it to become the world’s pre-eminent power.`\
-https://nytimes.com/2025/01/09/opinion/china-industrial-war-power-trader.html
-
-**Mayor’s Absence Is Considered a Sign L.A. Underestimated Fire Risks**\
-`Some residents said Mayor Karen Bass should have canceled her trip to Ghana when weather warnings in Los Angeles grew increasingly dire.`\
-https://nytimes.com/2025/01/09/us/los-angeles-mayor-fire-response.html
 
