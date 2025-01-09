@@ -1,3 +1,7 @@
+**France Indicts Founder of Notorious Website Used in Pelicot Rape Case**\
+`The site, coco.fr, was shut down in June after being linked to more than 23,000 sexual abuse and other cases in France alone, including the rape trial that shocked the country last year.`\
+https://nytimes.com/2025/01/09/france-pelicot-rape-trial-coco-indictment.html
+
 **Demi Moore Teaches Hollywood a Lesson**\
 `She’s the 62-year-old queen of an awards season with overdue female diversity.`\
 https://nytimes.com/2025/01/09/opinion/demi-moore-golden-globes.html
