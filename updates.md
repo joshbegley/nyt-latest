@@ -1,3 +1,11 @@
+**The Parisian Chocolatier Reviving a 19th-Century Trading Card Tradition**\
+`Plus: a riverside retreat in Vietnam, a luxurious duffel bag and more recommendations from T Magazine.`\
+https://nytimes.com/2025/01/09/t-magazine/debauve-gallais-chocolate-boxes-cards.html
+
+**Why each AFC playoff team will win the Super Bowl, and why they won’t**\
+`It's difficult to imagine the conference champion not being one of the top three seeds, but as we know, in the NFL, anything can happen. `\
+https://nytimes.com/athletic/6033532/2025/01/09/nfl-playoffs-super-bowl-afc-winner/
+
 **Listen: ‘Loving Their Pets to Death’**\
 `Animal medicine has become a high-tech industry. Is that a good thing for pets and their owners?`\
 https://nytimes.com/2025/01/09/learning/listen-loving-their-pets-to-death.html
