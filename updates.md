@@ -1,3 +1,7 @@
+**Inside Lopetegui's West Ham exit: Lack of days off, tension with players, on brink for months**\
+`Lopetegui was dismissed as West Ham head coach on Wednesday after just eight months and 22 games - this is the story of his departure`\
+https://nytimes.com/athletic/5964188/2025/01/09/julen-lopetegui-west-ham-inside-exit/
+
 **Don’t Underestimate the Enduring Power of ISIS**\
 `The terrorist attack in New Orleans serves as a grim reminder that the group is still able to transform personal crises into public tragedy.`\
 https://nytimes.com/2025/01/09/opinion/isis-new-orleans-attack.html
