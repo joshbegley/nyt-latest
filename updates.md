@@ -1,3 +1,7 @@
+**California Winds Ease Slightly but Are Expected to Pick Up Again**\
+`The Santa Ana windstorm calmed down a bit on Thursday morning, but forecasters warned that critical fire weather conditions would continue.`\
+https://nytimes.com/2025/01/09/us/santa-ana-winds-california-fires-forecast.html
+
 **Walter Mondale died before he could deliver Carter’s eulogy, so his son is doing it instead.**\
 `By Peter Baker`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/walter-mondale-died-before-he-could-deliver-carters-eulogy-so-his-son-is-doing-it-instead
