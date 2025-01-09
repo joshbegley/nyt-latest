@@ -1,3 +1,7 @@
+**Mayor’s Absence Is Considered a Sign L.A. Underestimated Fire Risks**\
+`Some residents said Mayor Karen Bass should have canceled her trip to Ghana when weather warnings in Los Angeles grew increasingly dire.`\
+https://nytimes.com/2025/01/09/us/los-angeles-mayor-fire-response.html
+
 **Moises Caicedo has become Chelsea's least replaceable player**\
 `Caicedo might not be Chelsea's best player, but there is nobody else in the squad who can do what he does as well as he does it`\
 https://nytimes.com/athletic/6046790/2025/01/09/moises-caicedo-chelsea-analysis-squad/
