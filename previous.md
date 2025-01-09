@@ -1,3 +1,15 @@
+**Dodgers trade Diego Cartaya to Twins, who keep stockpiling catchers**\
+`The Dodgers have moved on from catcher Diego Cartaya, trading the former top prospect to the Twins for right-hander Jose Vasquez.`\
+https://nytimes.com/athletic/6050000/2025/01/09/diego-cartaya-traded-dodgers-twins/
+
+**Biden Says Jimmy Carter’s ‘Enduring Attribute’ Was Character**\
+`The president told attendees at the state funeral, including the other four living presidents, that Mr. Carter’s character allowed him to survive in a world of powerful pressures.`\
+https://nytimes.com/2025/01/09/us/biden-says-jimmy-carters-enduring-attribute-was-character.html
+
+**How to prepare your home before you evacuate.**\
+`California’s state fire agency has guidance on the best ways to get your home ready before you leave.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-evacuation-prep
+
 **Potter's West Ham introduction: Window thoughts, Moyes and ambitions**\
 `The former Brighton and Chelsea boss was named as Julen Lopetegui's successor this morning, signing a two-and-a-half-year deal with the club`\
 https://nytimes.com/athletic/6049007/2025/01/09/graham-potter-west-ham-press-conference/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/09/business/ussteel-nippon-merger-future.html
 **‘American Primeval’ Review: Hopeless on the Range**\
 `Taylor Kitsch and Betty Gilpin star in a Netflix mini-series about the brutal, brutal West.`\
 https://nytimes.com/2025/01/09/arts/television/american-primeval-review.html
-
-**Amad signs five-year Man Utd contract**\
-`Manchester United winger Amad has signed a new five-year contract to keep him at the Old Trafford club until 2030.`\
-https://nytimes.com/athletic/6044024/2025/01/09/amad-manchester-united-contract/
-
-**The ‘Ice Maiden’ Cometh: Can Susie Wiles, Trump’s Chief of Staff, Survive?**\
-`As Ms. Wiles heads to Washington, the view in Trump World is that the president-elect’s closest aide and veteran strategist has a better chance than anyone.`\
-https://nytimes.com/2025/01/09/us/politics/susie-wiles-trump.html
-
-**How is each Sabres player performing relative to expectations? Midseason report card**\
-`By every measure, the Sabres are one of the most disappointing teams in the NHL through 41 games.`\
-https://nytimes.com/athletic/6049845/2025/01/09/buffalo-sabres-midseason-report-card-2025/
 
