@@ -1,3 +1,7 @@
+**As Art Sales Fall, Auction Houses Pivot to Luxury**\
+`With both supply and demand for big-ticket art in a slump, Sotheby’s and Christie’s are making major bets on selling handbags, classic cars and niche experiences.`\
+https://nytimes.com/2025/01/09/arts/design/christies-sothebys-luxury-goods.html
+
 **The immeasurable returns of Eagles' investment in Saquon Barkley**\
 `The running back has brought major impact on the field and in the locker room.`\
 https://nytimes.com/athletic/6043309/2025/01/09/saquon-barkley-eagles-playoffs-packers/
