@@ -1,3 +1,8 @@
+**Why hard-fought loss to Capitals represented progress for Canucks: 3 takeaways**\
+`The Canucks made an impressive second-period push, but it wasn't enough, as the Capitals found a way to win 2-1 in overtime.
+`\
+https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor-garland/
+
 **Atlanta D.A. Asks Georgia Court to Review Decision Kicking Her Off Trump Case**\
 `In a filing late Wednesday, Fani Willis petitioned the Georgia Supreme Court to allow her to keep prosecuting Donald J. Trump over efforts to overturn his 2020 election defeat.`\
 https://nytimes.com/2025/01/08/us/trump-fani-willis-appeal-georgia.html
