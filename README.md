@@ -1,3 +1,11 @@
+**The Flying Maestro: A Top Conductor Moonlights as an Air France Pilot**\
+`Daniel Harding scaled the heights of classical music. Then he set out to conquer the skies.`\
+https://nytimes.com/2025/01/09/arts/music/daniel-harding-conductor-air-france.html
+
+**Giannis, Bucks dominate Victor Wembanyama and Spurs with physical defensive effort**\
+`The Bucks had a plan to make the second-year Spurs phenom uncomfortable. Antetokounmpo and his teammates executed that plan to perfection.`\
+https://nytimes.com/athletic/6049164/2025/01/09/giannis-antetokounmpo-victor-wembanyama-bucks-spurs/
+
 **No, Americans Are Not Really United**\
 `Readers disagree with an essay by a Republican pollster. Also: Sperm donors’ anonymity; judges and gun violence; too much agreement.`\
 https://nytimes.com/2025/01/09/opinion/politics-americans-united-divided.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049363/2025/01/09/mike-keith-tennessee-volunteers-
 **Quick and Cozy Fragrant Coconut Chicken and Sweet Potato**\
 `A new one-pan dinner from Kay Chun that turns ground chicken and some pantry staples into a satisfying dinner.`\
 https://nytimes.com/2025/01/09/dining/coconut-chicken-sweet-potato-recipe.html
-
-**Can Low Unemployment Last Under Trump?**\
-`Hiring has slowed, but joblessness remains at levels defying economic norms. Big policy changes under a new administration could test that resilience.`\
-https://nytimes.com/2025/01/09/business/economy/trump-unemployment-economy.html
-
-**California Winds Ease Slightly but Are Expected to Pick Up Again**\
-`The Santa Ana windstorm calmed down a bit on Thursday morning, but forecasters warned that critical fire weather conditions would continue.`\
-https://nytimes.com/2025/01/09/us/santa-ana-winds-california-fires-forecast.html
 
