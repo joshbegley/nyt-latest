@@ -1,3 +1,15 @@
+**Titans radio voice Mike Keith shifts to college, will call Vols football, hoops**\
+`Keith, who called "The Music City Miracle" in 2000, will return to his alma mater in Knoxville.`\
+https://nytimes.com/athletic/6049363/2025/01/09/mike-keith-tennessee-volunteers-titans-broadcast/
+
+**Quick and Cozy Fragrant Coconut Chicken and Sweet Potato**\
+`A new one-pan dinner from Kay Chun that turns ground chicken and some pantry staples into a satisfying dinner.`\
+https://nytimes.com/2025/01/09/dining/coconut-chicken-sweet-potato-recipe.html
+
+**Can Low Unemployment Last Under Trump?**\
+`Hiring has slowed, but joblessness remains at levels defying economic norms. Big policy changes under a new administration could test that resilience.`\
+https://nytimes.com/2025/01/09/business/economy/trump-unemployment-economy.html
+
 **California Winds Ease Slightly but Are Expected to Pick Up Again**\
 `The Santa Ana windstorm calmed down a bit on Thursday morning, but forecasters warned that critical fire weather conditions would continue.`\
 https://nytimes.com/2025/01/09/us/santa-ana-winds-california-fires-forecast.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6048049/2025/01/09/nfl-coach-gm-firings-owner-blame
 **Cancer-free Dick Vitale ready to ‘return to my love’ of announcing games**\
 `Vitale underwent surgery in June after a biopsy of the lymph node in his neck came back cancerous.`\
 https://nytimes.com/athletic/6049532/2025/01/09/dick-vitale-cancer-free-espn/
-
-**N.Y. Prosecutors Urge Supreme Court to Let Trump’s Sentencing Proceed**\
-`Donald J. Trump had not yet exhausted his New York appeals when he turned to the Supreme Court in a last-ditch move to avoid sentencing, prosecutors argued.`\
-https://nytimes.com/2025/01/09/nyregion/trump-sentencing-supreme-court.html
-
-**Deion Sanders says coaching his 2 sons would be only reason to consider NFL**\
-`Sanders has coached his two youngest sons for almost all of their careers dating back to peewee football.`\
-https://nytimes.com/athletic/6049575/2025/01/09/deion-sanders-nfl-coaching-shedeur-shilo/
-
-**With Trump Arriving, Zelensky Urges Allies Not to ‘Drop the Ball Now’**\
-`In an impassioned address to officials from countries supporting Ukraine, Mr. Zelensky said ‘a new chapter’ would be starting for Europe and the rest of the world, requiring even more cooperation.`\
-https://nytimes.com/2025/01/09/us/politics/trump-zelensky-ukraine-war.html
 

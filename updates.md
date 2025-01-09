@@ -1,3 +1,15 @@
+**Titans radio voice Mike Keith shifts to college, will call Vols football, hoops**\
+`Keith, who called "The Music City Miracle" in 2000, will return to his alma mater in Knoxville.`\
+https://nytimes.com/athletic/6049363/2025/01/09/mike-keith-tennessee-volunteers-titans-broadcast/
+
+**Quick and Cozy Fragrant Coconut Chicken and Sweet Potato**\
+`A new one-pan dinner from Kay Chun that turns ground chicken and some pantry staples into a satisfying dinner.`\
+https://nytimes.com/2025/01/09/dining/coconut-chicken-sweet-potato-recipe.html
+
+**Can Low Unemployment Last Under Trump?**\
+`Hiring has slowed, but joblessness remains at levels defying economic norms. Big policy changes under a new administration could test that resilience.`\
+https://nytimes.com/2025/01/09/business/economy/trump-unemployment-economy.html
+
 **California Winds Ease Slightly but Are Expected to Pick Up Again**\
 `The Santa Ana windstorm calmed down a bit on Thursday morning, but forecasters warned that critical fire weather conditions would continue.`\
 https://nytimes.com/2025/01/09/us/santa-ana-winds-california-fires-forecast.html
