@@ -1,3 +1,7 @@
+**As Flames Consume Architectural Gems, a Hit to ‘Old California’**\
+`Will Rogers’s historic house and an important residence by Ray Kappe were destroyed by the fires, which threaten L.A.’s spectacular design legacy.`\
+https://nytimes.com/2025/01/09/arts/design/architecture-fires-california-los-angeles-rogers-eames.html
+
 **Monaco agree deal for Biereth signing from Sturm Graz**\
 `Monaco have agreed a deal with Sturm Graz for the signing of forward Mika Biereth.`\
 https://nytimes.com/athletic/6050493/2025/01/09/mika-biereth-monaco-transfer/
