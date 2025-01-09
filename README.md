@@ -1,3 +1,11 @@
+**Word of the Day: boutonniere**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/09/learning/word-of-the-day-boutonniere.html
+
+**Liverpool have defensive issues to address if they are to succeed in their pursuit of trophies**\
+`The Premier League leaders are conceding too many goals in recent weeks and were vulnerable against Tottenham in the Carabao Cup semi-final`\
+https://nytimes.com/athletic/6048483/2025/01/09/liverpool-tottenham-carabao-cup-defence/
+
 **Don’t Underestimate the Enduring Power of ISIS**\
 `The terrorist attack in New Orleans serves as a grim reminder that the group is still able to transform personal crises into public tragedy.`\
 https://nytimes.com/2025/01/09/opinion/isis-new-orleans-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6046699/2025/01/09/real-madrid-trent-alexander-arno
 **Inside Lopetegui's West Ham exit: Lack of days off, tension with players, on brink for months**\
 `Lopetegui was dismissed as West Ham head coach on Wednesday after just eight months and 22 games - this is the story of his departure`\
 https://nytimes.com/athletic/5964188/2025/01/09/julen-lopetegui-west-ham-inside-exit/
-
-**Hollywood Hills Fire Threatens Beloved Los Angeles Landmarks**\
-`The Sunset fire has grown rapidly and is threatening a swath of Los Angeles that contains the Hollywood Bowl and the Chinese Theater.`\
-https://nytimes.com/2025/01/09/us/hollywood-hills-landmarks-california-fire.html
-
-**The FA Cup Import-o-meter: Who needs it most this season?**\
-`In an era where league ambitions and struggles take priority over cup dreams, how much do Premier League clubs care about it this year?`\
-https://nytimes.com/athletic/6047398/2025/01/09/the-fa-cup-import-o-meter-2025/
 
