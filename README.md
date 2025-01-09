@@ -1,3 +1,11 @@
+**Jimmy Carter Was the First ‘Born Again’ U.S. President**\
+`Mr. Carter said his spiritual rebirth was an “evolutionary thing” rather than “a flash of light or a sudden vision of God speaking.”`\
+https://nytimes.com/2025/01/09/us/politics/jimmy-carter-born-again-president.html
+
+**‘We’ve Lost Everything’: Los Angeles Residents Reel From Wildfires**\
+`Fires in parts of Los Angeles destroyed 2,000 structures and burned through 27,000 acres, equivalent to nearly 20,000 football fields.`\
+https://nytimes.com/video/us/100000009916693/los-angeles-residents-burnt-homes-fires-.html
+
 **Landry Shamet getting another NBA shot with Knicks: 'I'm grateful for the journey’**\
 `Shamet is a journeyman in the NBA, but the 27-year-old has shown himself as someone who stays ready to play. `\
 https://nytimes.com/athletic/6048874/2025/01/09/landry-shamet-knicks-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/us/jimmy-carter-living-presidents-gather.html
 **The Slow Growth of Hand-Painted Clothes**\
 `In an era of fast fashion, some yearn for clothing with a personal touch.`\
 https://nytimes.com/2025/01/09/style/hand-drawn-clothes-swan-gossip.html
-
-**Penguins Today: The first time I saw Connor McDavid in Erie**\
-`McDavid will face the Penguins tonight and have his jersey retired in Erie tomorrow. His appearances in Pittsburgh are always a big deal.`\
-https://nytimes.com/athletic/6048904/2025/01/09/penguins-today-connor-mcdavid-erie-otters/
-
-**Eric Adams, Under Indictment, to Make His Case for a Second Term**\
-`In his fourth and potentially final State of the City speech, Mayor Eric Adams plans to focus on two campaign themes: public safety and affordability.`\
-https://nytimes.com/2025/01/09/nyregion/adams-mayor-nyc-speech.html
 
