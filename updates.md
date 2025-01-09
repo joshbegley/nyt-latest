@@ -1,3 +1,7 @@
+**My game in my words. By Alessia Russo**\
+`The Women's Super League's most in-form player sits down with The Athletic to analyse her game and her brilliant run of form for Arsenal...`\
+https://nytimes.com/athletic/6043657/2025/01/09/alessia-russo-arsenal-analysis-goals-striker/
+
 **It is a national day of mourning. Here’s what that means.**\
 `By Victor Mather`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/it-is-a-national-day-of-mourning-heres-what-that-means
