@@ -1,3 +1,11 @@
+**The Athletic FC: Inside Lopetegui sacking, Spurs' youngsters shine, Barca's Olmo reprieve**\
+`Today in TAFC: The reasons why Lopetegui was sacked, give a hat tip to a Spurs duo and ask how Alexander-Arnold might fit at Real Madrid`\
+https://nytimes.com/athletic/6049117/2025/01/09/loepetetgui-west-ham-olmo-barcelona/
+
+**Agbadou: A long-term Wolves target with an elite passing range - also admired by Pereira**\
+`Wolves’ recruitment team have monitored Agbadou for years and noted an increase in performance and consistency since he became Reims captain`\
+https://nytimes.com/athletic/6049062/2025/01/09/emmanuel-agbadou-a-long-term-wolves-target-admired-by-pereira-with-an-elite-passing-range/
+
 **Mirtle: The Maple Leafs are one of the NHL's best teams at midseason. Is it sustainable?**\
 `The Leafs are a different team with a bit more backbone this season. Can they keep winning this way?`\
 https://nytimes.com/athletic/6048878/2025/01/09/maple-leafs-team-nhl-analysis-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/movies/eat-the-night-review.html
 **Lamar Jackson has yet to be his best in the playoffs. The Ravens need that to change**\
 `He's won MVP awards and dominated in the regular season. But for Baltimore to reach its ultimate goal, Jackson must deliver in the playoffs.`\
 https://nytimes.com/athletic/6047686/2025/01/09/lamar-jackson-ravens-playoffs-steelers/
-
-**As flames neared a century-old synagogue, a leader raced to save its Torahs.**\
-`By Soumya Karlamangla`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/as-flames-neared-a-century-old-temple-a-jewish-leader-raced-to-save-its-torahs
-
-**The Pulse: The massive stakes of tonight’s Playoff game**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6047458/2025/01/09/the-stakes-in-penn-state-notre-dame-plus-the-cavs-and-thunder-play-a-banger/
 
