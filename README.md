@@ -1,3 +1,7 @@
+**Manor Solomon interview - My fiancée pushed me to join Leeds. Later, I told her: 'Thank you'**\
+`Manor Solomon sat down with The Athletic's Beren Cross to discuss his time at Leeds so far and his personal life`\
+https://nytimes.com/athletic/6047724/2025/01/09/manor-solomon-leeds-united-interview/
+
 **Seth Meyers Slams Trump for Changing the Subject on Inflation**\
 `“Come on, man, you talked about this, like, every day on the campaign trail,” Meyers said of the president-elect. “You even brought props.”`\
 https://nytimes.com/2025/01/09/arts/television/seth-meyers-trump-inflation-greenland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/los-angeles-mayor-fire-response.html
 **Moises Caicedo has become Chelsea's least replaceable player**\
 `Caicedo might not be Chelsea's best player, but there is nobody else in the squad who can do what he does as well as he does it`\
 https://nytimes.com/athletic/6046790/2025/01/09/moises-caicedo-chelsea-analysis-squad/
-
-**Analysing why Palace's matches have been so tight this season**\
-`Few sides spend as much time in a 'marginal game state' as Palace - but there are reasons this is the case`\
-https://nytimes.com/athletic/6037741/2025/01/09/crystal-palace-tight-games-premier-league/
 
