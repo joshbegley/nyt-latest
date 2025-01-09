@@ -1,3 +1,15 @@
+**49ers interview Robert Saleh for vacant DC role**\
+`Saleh left the exact position with the 49ers to become the Jets coach four seasons ago.`\
+https://nytimes.com/athletic/6050547/2025/01/09/robert-saleh-49ers-defensive-coordinator/
+
+**The Character-Building Tool Kit**\
+`Learning to care for others or the common good should be a fundamental part of education.`\
+https://nytimes.com/2025/01/09/opinion/character-building-education.html
+
+**I’ve Changed My Mind. Audra McDonald Was Right.**\
+`Why shouldn’t “Gypsy” engage in a little creative anachronism?`\
+https://nytimes.com/2025/01/09/opinion/ive-changed-my-mind-audra-mcdonald-was-right.html
+
 **The Fires, Awards Season and Why Delays Are Complicated**\
 `Jean Smart has suggested that awards ceremonies not be televised, but historically, any postponements have been a matter of days. Besides, such changes have financial ramifications.`\
 https://nytimes.com/2025/01/09/movies/la-fires-oscars-awards-season.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-w
 **Inside Trump’s Search for a Health Threat to Justify His Immigration Crackdown**\
 `President-elect Donald J. Trump’s advisers have spent months trying to identify a disease that will help them build their case for closing the border.`\
 https://nytimes.com/2025/01/09/us/politics/trump-title-42-migrants.html
-
-**Scientists Say Musk Wrongly Downplays Climate Role in L.A. Fires**\
-`Posting on the social media site he owns, Mr. Musk blamed the fires on government. Scientists said a warming planet set the conditions.`\
-https://nytimes.com/2025/01/09/us/elon-musk-wildfires-la-california.html
-
-**Where to Eat When You Want to Stay In**\
-`The perfect spots for food that feels more homey than restaurant-y.`\
-https://nytimes.com/2025/01/09/dining/where-to-eat-when-you-want-to-stay-in.html
-
-**A technology company says its sensors signaled stress on power lines near the start of the wildfires.**\
-`By Ivan Penn`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/a-technology-company-says-its-sensors-signaled-stress-on-power-lines-near-the-start-of-the-wildfires
 
