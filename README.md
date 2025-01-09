@@ -1,6 +1,10 @@
+**Friday Briefing: Racing to Control Los Angeles Fires**\
+`Plus, renovating a wrecked palazzo.`\
+https://nytimes.com/2025/01/09/briefing/los-angeles-wildfires-lebanon-us-ukraine.html
+
 **Trying to Stay Steady as the MAGA Parade Marches Into Town**\
 `Washington isn’t prepared for Trump, but it is braced.`\
-https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-maga-transition-washington
+https://nytimes.com/2025/01/09/opinion/trump-maga-transition-washington.html
 
 **‘On Call’ Is a Taut, Half-Hour Cop Drama**\
 `The abbreviated running time of the show’s eight serialized episodes works mostly to its advantage, helping the show feel less formulaic.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/los-angeles-mayor-karen-bass-wildfires.html
 **3 Make-Ahead Recipes to Upgrade Your Work Lunch**\
 `Chefs share recipes that can be prepared in bulk on Sunday then easily modified as the week goes on.`\
 https://nytimes.com/2025/01/09/t-magazine/work-lunch-recipes.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/01/09/opinion/thepoint
 
