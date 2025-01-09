@@ -1,3 +1,7 @@
+**Spurs' defensive shell game can't stop Giannis, but it's a good growth opportunity**\
+`“I think this was just a deviation from what we’ve been doing," says Harrison Barnes of the Spurs' lapses against the Bucks. `\
+https://nytimes.com/athletic/6048651/2025/01/09/spurs-defense-wembanyama-giannis-bucks/
+
 **Mourners paid their respects in Georgia and the nation’s capital.**\
 `By Maya C. Miller and Rick Rojas`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/mourners-paid-their-respects-in-georgia-and-the-nations-capital

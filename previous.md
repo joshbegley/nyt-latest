@@ -1,3 +1,7 @@
+**Spurs' defensive shell game can't stop Giannis, but it's a good growth opportunity**\
+`“I think this was just a deviation from what we’ve been doing," says Harrison Barnes of the Spurs' lapses against the Bucks. `\
+https://nytimes.com/athletic/6048651/2025/01/09/spurs-defense-wembanyama-giannis-bucks/
+
 **Mourners paid their respects in Georgia and the nation’s capital.**\
 `By Maya C. Miller and Rick Rojas`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/mourners-paid-their-respects-in-georgia-and-the-nations-capital
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/us/jimmy-carter-funeral/it-is-a-national-day-of-mo
 **Elon Musk Is Trying to Break Germany’s Quarantine on the Far-Right AfD**\
 `Political leaders have shunned the Alternative for Germany. But on his social media platform X, Mr. Musk is pitching the party as mainstream.`\
 https://nytimes.com/2025/01/09/world/europe/germany-elon-musk-afd.html
-
-**After a nightmare start, Villanova is suddenly back in the mix for March**\
-`Neptune and his Wildcats are injecting some hope for a fan base no one could have blamed for feeling apathetic after two middling years.`\
-https://nytimes.com/athletic/6048831/2025/01/09/villanova-basketball-uconn-kyle-neptune/
 
