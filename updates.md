@@ -1,3 +1,11 @@
+**It is a national day of mourning. Here’s what that means.**\
+`By Victor Mather`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/it-is-a-national-day-of-mourning-heres-what-that-means
+
+**Elon Musk Is Trying to Break Germany’s Quarantine on the Far-Right AfD**\
+`Political leaders have shunned the Alternative for Germany. But on his social media platform X, Mr. Musk is pitching the party as mainstream.`\
+https://nytimes.com/2025/01/09/world/europe/germany-elon-musk-afd.html
+
 **After a nightmare start, Villanova is suddenly back in the mix for March**\
 `Neptune and his Wildcats are injecting some hope for a fan base no one could have blamed for feeling apathetic after two middling years.`\
 https://nytimes.com/athletic/6048831/2025/01/09/villanova-basketball-uconn-kyle-neptune/
