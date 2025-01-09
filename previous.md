@@ -1,3 +1,7 @@
+**NBA Lookahead: Is Kings' turnaround for real? If so, what's changed?**\
+`Sacramento faces a tough test Friday night in Boston. That's just one of the highlights of this coming weekend.`\
+https://nytimes.com/athletic/6043214/2025/01/09/nba-lookahead-kings-win-streak/
+
 **Once thriving, Mike Tomlin’s and Russell Wilson’s legacies now hang in the balance**\
 `A season of redemption for the Steelers' coach and QB has quickly spiraled. Can they salvage it by ending the team's playoff wins drought?`\
 https://nytimes.com/athletic/6048471/2025/01/09/mike-tomlin-russell-wilson-steelers-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6045183/2025/01/09/wild-midseason-review/
 **Aaron Rodgers' future: Why the Jets could keep him — and what's next if they don't**\
 `A look at the Jets' roster and cap implications, with or without the 41-year-old QB.`\
 https://nytimes.com/athletic/6047943/2025/01/09/aaron-rodgers-jets-future-trade-cut-retire-cap-implications/
-
-**NFL playoffs: Key matchups to watch in each AFC wild-card game**\
-`C.J. Stroud may face a lot of blitzes, the Steelers need a defensive tackle to step up and a Josh Allen target could be pivotal.`\
-https://nytimes.com/athletic/6047525/2025/01/09/nfl-afc-playoffs-super-wild-card-2025/
 

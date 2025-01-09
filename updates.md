@@ -1,3 +1,7 @@
+**NBA Lookahead: Is Kings' turnaround for real? If so, what's changed?**\
+`Sacramento faces a tough test Friday night in Boston. That's just one of the highlights of this coming weekend.`\
+https://nytimes.com/athletic/6043214/2025/01/09/nba-lookahead-kings-win-streak/
+
 **Once thriving, Mike Tomlin’s and Russell Wilson’s legacies now hang in the balance**\
 `A season of redemption for the Steelers' coach and QB has quickly spiraled. Can they salvage it by ending the team's playoff wins drought?`\
 https://nytimes.com/athletic/6048471/2025/01/09/mike-tomlin-russell-wilson-steelers-playoffs/
