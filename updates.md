@@ -1,3 +1,11 @@
+**Late Titans star Frank Wycheck diagnosed with CTE after his 2023 death**\
+`Researchers from Boston University's CTE Center confirmed the stage III diagnosis for Wycheck.`\
+https://nytimes.com/athletic/6049927/2025/01/09/frank-wycheck-cte-diagnosis-titans/
+
+**Georgia's Carson Beck to enter transfer portal: Source**\
+`Beck previously announced he would enter the 2025 NFL Draft on Dec. 28.`\
+https://nytimes.com/athletic/6050302/2025/01/09/carson-beck-georgia-transfer-portal/
+
 **Enron Is Back. And It Wants to Sell You a Nuclear Reactor.**\
 `At least that’s what its new chief executive says, after buying the company’s trademark for a couple hundred bucks.`\
 https://nytimes.com/2025/01/09/business/enron-egg-nuclear-reactor.html
