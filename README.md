@@ -1,3 +1,7 @@
+**How to Help Victims of the Southern California Wildfires**\
+`Raging fires have left five people dead, destroyed or damaged thousands of homes and other buildings and consumed thousands of acres. Here’s how you can help the victims.`\
+https://nytimes.com/2025/01/09/us/help-california-la-wildfires-victims.html
+
 **What to watch in college basketball this weekend: Ranked SEC games, Notre Dame at Duke**\
 `What to watch — and how to watch it — across a packed weekend of conference play.`\
 https://nytimes.com/athletic/6047718/2025/01/09/college-basketball-what-to-watch-alabama-kentucky-duke/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050591/2025/01/09/raiders-gm-candidates-search-joh
 **How the Destruction in Los Angeles Ranks in California’s Fire History**\
 `The proximity of the fires to densely populated areas means that they are burning through more structures than past fires that covered more territory, preliminary figures show.`\
 https://nytimes.com/2025/01/12/us/californias-worst-wildfires-history.html
-
-**Tracking Tropical Cyclone Dikeledi**\
-`See the likely path and wind arrival times for Dikeledi.`\
-https://nytimes.com/interactive/2025/01/09/weather/dikeledi-map-path-tracker.html
 
