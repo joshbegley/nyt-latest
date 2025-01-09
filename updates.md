@@ -1,3 +1,7 @@
+**Emmanuel Agbadou to Wolves: The Athletic 500 transfer ratings**\
+`We rate Wolves' new central defender as part of The Athletic 500`\
+https://nytimes.com/athletic/6043693/2025/01/09/emmanuel-agbadou-wolves-the-athletic-500-transfer-rating/
+
 **The Parisian Chocolatier Reviving a 19th-Century Trading Card Tradition**\
 `Plus: a riverside retreat in Vietnam, a luxurious duffel bag and more recommendations from T Magazine.`\
 https://nytimes.com/2025/01/09/t-magazine/debauve-gallais-chocolate-boxes-cards.html
