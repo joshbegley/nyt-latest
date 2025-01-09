@@ -1,3 +1,7 @@
+**Live Updates: Presidents Will Gather to Honor Carter at Washington Cathedral**\
+`A state funeral for the 39th president will bring together all five living presidents and include a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral
+
 **The fires are causing disruptions in pro sports.**\
 `The N.H.L. and N.B.A. were working to manage postponed games and personnel emergencies. The blazes also loomed over the start of the N.F.L. playoffs.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/the-fires-are-causing-disruptions-in-pro-sports
