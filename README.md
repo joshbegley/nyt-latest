@@ -1,3 +1,7 @@
+**Los Angeles Already Had a Housing Shortage. Wildfires Will Make It Worse.**\
+`With so many people displaced and looking for rentals, the region’s housing options could grow even scarcer and more expensive.`\
+https://nytimes.com/2025/01/09/business/la-fires-housing-shortage.html
+
 **Richard M. Cohen, News Producer Who Faced a Rare Challenge, Dies at 76**\
 `When he was 25, he learned that he had multiple sclerosis. He coped with the disease throughout a long career at several networks.`\
 https://nytimes.com/2025/01/09/business/media/richard-m-cohen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/09/weather/dikeledi-map-path-tracker.htm
 **49ers interview Robert Saleh for vacant DC role**\
 `Saleh left the exact position with the 49ers to become the Jets coach four seasons ago.`\
 https://nytimes.com/athletic/6050547/2025/01/09/robert-saleh-49ers-defensive-coordinator/
-
-**The Character-Building Tool Kit**\
-`Learning to care for others or the common good should be a fundamental part of education.`\
-https://nytimes.com/2025/01/09/opinion/character-building-education.html
 
