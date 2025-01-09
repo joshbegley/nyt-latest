@@ -1,3 +1,7 @@
+**Bill to Expand Deportations of Migrants Accused of Crimes Sails Ahead in Senate**\
+`Most Democrats joined Republicans in voting to take up the measure, which would require the detention and deportation of undocumented immigrants charged with minor crimes.`\
+https://nytimes.com/2025/01/09/us/politics/immigrants-crimes-senate.html
+
 **Judge Rejects Biden’s Title IX Rules, Scrapping Protections for Trans Students**\
 `The decision threw out the administration’s proposed regulations, which prohibited discrimination based on gender identity.`\
 https://nytimes.com/2025/01/09/us/politics/biden-title-ix-ruling.html

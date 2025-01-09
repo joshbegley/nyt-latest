@@ -1,3 +1,7 @@
+**Bill to Expand Deportations of Migrants Accused of Crimes Sails Ahead in Senate**\
+`Most Democrats joined Republicans in voting to take up the measure, which would require the detention and deportation of undocumented immigrants charged with minor crimes.`\
+https://nytimes.com/2025/01/09/us/politics/immigrants-crimes-senate.html
+
 **Judge Rejects Biden’s Title IX Rules, Scrapping Protections for Trans Students**\
 `The decision threw out the administration’s proposed regulations, which prohibited discrimination based on gender identity.`\
 https://nytimes.com/2025/01/09/us/politics/biden-title-ix-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-graph-jan-15-2025
 **What’s Going On in This Picture? | Jan. 13, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/01/09/learning/whats-going-on-in-this-picture-jan-13-2025.html
-
-**Why Justin Verlander struggled in 2024, and what the Giants can learn from that for 2025**\
-`Verlander's velocity was down in 2024. But that doesn't tell the whole story behind his struggles or what to expect from him in 2025.`\
-https://nytimes.com/athletic/6048108/2025/01/09/justin-verlander-sf-giants-projections/
 
