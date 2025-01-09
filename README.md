@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/09/us/politics/biden-title-ix-ruling.html
 `Sheila Morovati’s Pacific Palisades home was spared, but her neighborhood was decimated in the Los Angeles fires. For her, climate change looms over the tragic loses.`\
 https://nytimes.com/2025/01/09/climate/los-angeles-fires-climate-change.html
 
-**Facing criticism, the mayor of Los Angeles goes on defense.**\
+**Facing Criticism About Fire Response, Mayor of Los Angeles Goes on Defense**\
 `Amid pointed questions at a news conference, Karen Bass sought to deflect criticism of the city’s response to the fires.`\
 https://nytimes.com/2025/01/09/us/los-angeles-mayor-karen-bass-wildfires.html
 
