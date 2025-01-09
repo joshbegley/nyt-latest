@@ -1,3 +1,7 @@
+**Los Angeles Already Had a Housing Shortage. Wildfires Will Make It Worse.**\
+`With so many people displaced and looking for rentals, the region’s housing options could grow even scarcer and more expensive.`\
+https://nytimes.com/2025/01/09/business/la-fires-housing-shortage.html
+
 **Richard M. Cohen, News Producer Who Faced a Rare Challenge, Dies at 76**\
 `When he was 25, he learned that he had multiple sclerosis. He coped with the disease throughout a long career at several networks.`\
 https://nytimes.com/2025/01/09/business/media/richard-m-cohen-dead.html
