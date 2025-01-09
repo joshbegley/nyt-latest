@@ -1,3 +1,7 @@
+**As flames neared a century-old synagogue, a leader raced to save its Torahs.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/as-flames-neared-a-century-old-temple-a-jewish-leader-raced-to-save-its-torahs
+
 **The Pulse: The massive stakes of tonight’s Playoff game**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6047458/2025/01/09/the-stakes-in-penn-state-notre-dame-plus-the-cavs-and-thunder-play-a-banger/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048491/2025/01/09/connor-mcdavid-erie-otters-numbe
 **NHL Playoff Report: Blue Jackets and Senators on the rise, New York teams falling off**\
 `There isn't a better story than the play of the Blue Jackets. The Senators join them in the playoff picture but the Rangers are in trouble.`\
 https://nytimes.com/athletic/6047709/2025/01/09/nhl-playoff-report-blue-jackets-senators-rangers-islanders/
-
-**Five bold Red Wings predictions for 2025**\
-`Detroit is off to a good start in 2025, but what else could be in store? Here are some predictions. `\
-https://nytimes.com/athletic/6048133/2025/01/09/red-wings-bold-predictions-trade-2025/
 

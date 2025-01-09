@@ -1,3 +1,7 @@
+**As flames neared a century-old synagogue, a leader raced to save its Torahs.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/as-flames-neared-a-century-old-temple-a-jewish-leader-raced-to-save-its-torahs
+
 **The Pulse: The massive stakes of tonight’s Playoff game**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6047458/2025/01/09/the-stakes-in-penn-state-notre-dame-plus-the-cavs-and-thunder-play-a-banger/
