@@ -1,3 +1,7 @@
+**Trying to Stay Steady as the MAGA Parade Marches Into Town**\
+`Washington isn’t prepared for Trump, but it is braced.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-maga-transition-washington
+
 **‘On Call’ Is a Taut, Half-Hour Cop Drama**\
 `The abbreviated running time of the show’s eight serialized episodes works mostly to its advantage, helping the show feel less formulaic.`\
 https://nytimes.com/2025/01/09/arts/television/on-call-is-a-taut-half-hour-cop-drama.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/t-magazine/work-lunch-recipes.html
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/01/09/opinion/thepoint
-
-**Loss estimates, including health effects and rebuilding costs, surge.**\
-`As fires raged, the economic toll of the disaster climbed into the tens of billions of dollars, according to analyst estimates.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-damage
 
