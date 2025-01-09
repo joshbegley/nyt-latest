@@ -1,3 +1,7 @@
+**Water Outage in Richmond, Va., Is Expected to Last Until Friday**\
+`The winter storm on Monday knocked out power at the city’s water plant, leaving thousands under a boil water advisory for days.`\
+https://nytimes.com/2025/01/08/us/richmond-water-crisis.html
+
 **Before-and-After Images Show Scope of Palisades Fire Destruction**\
 `Comparisons of the same buildings before and after the Palisades fire reveal the extent of devastation in the area.`\
 https://nytimes.com/video/us/100000009916167/palisades-fire-before-after.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/business/port-strike-labor-deal.html
 **I Quit Drinking Four Years Ago. I’m Still Confronting Drinking Culture.**\
 `Yes, you can become sober and remain social.`\
 https://nytimes.com/2025/01/08/opinion/alcohol-drinking-dry-january.html
-
-**Powerful Labor Group Joins A.F.L.-C.I.O. Ahead of New Trump Era**\
-`A marriage between the service employees union and the A.F.L.-C.I.O. could better equip organized labor to deal with a less-friendly administration.`\
-https://nytimes.com/2025/01/08/business/economy/afl-cio-seiu-labor-union-alliance.html
 

@@ -1,3 +1,7 @@
+**Water Outage in Richmond, Va., Is Expected to Last Until Friday**\
+`The winter storm on Monday knocked out power at the city’s water plant, leaving thousands under a boil water advisory for days.`\
+https://nytimes.com/2025/01/08/us/richmond-water-crisis.html
+
 **Before-and-After Images Show Scope of Palisades Fire Destruction**\
 `Comparisons of the same buildings before and after the Palisades fire reveal the extent of devastation in the area.`\
 https://nytimes.com/video/us/100000009916167/palisades-fire-before-after.html
