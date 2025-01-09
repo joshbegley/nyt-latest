@@ -1,3 +1,11 @@
+**Scoop City: Grading all six NFL head coach openings**\
+`A quick assessment of the coaching opportunities available to Ben Johnson, Mike Vrabel and the other candidates`\
+https://nytimes.com/athletic/6050041/2025/01/09/grading-six-head-coach-openings-nfl-scoop-city/
+
+**Biden Says Jimmy Carter’s ‘Enduring Attribute’ Was Character**\
+`The president told attendees at the state funeral, including the other four living presidents, that Mr. Carter’s character allowed him to survive in a world of powerful pressures.`\
+https://nytimes.com/2025/01/09/us/biden-eulogy-jimmy-carter.html
+
 **Dodgers trade Diego Cartaya to Twins, who keep stockpiling catchers**\
 `The Dodgers have moved on from catcher Diego Cartaya, trading the former top prospect to the Twins for right-hander Jose Vasquez.`\
 https://nytimes.com/athletic/6050000/2025/01/09/diego-cartaya-traded-dodgers-twins/
