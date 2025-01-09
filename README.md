@@ -1,3 +1,7 @@
+**France Indicts Founder of Notorious Website Used in Pelicot Rape Case**\
+`The site, coco.fr, was shut down in June after being linked to more than 23,000 sexual abuse and other cases in France alone, including the rape trial that shocked the country last year.`\
+https://nytimes.com/2025/01/09/france-pelicot-rape-trial-coco-indictment.html
+
 **Demi Moore Teaches Hollywood a Lesson**\
 `She’s the 62-year-old queen of an awards season with overdue female diversity.`\
 https://nytimes.com/2025/01/09/opinion/demi-moore-golden-globes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049104/2025/01/09/andy-murray-novak-djokovic-coach
 **Park City Strike Ends With Increase in Wages for Ski Patrollers**\
 `The nearly two-week strike hobbled the largest U.S. ski resort during a busy holiday period and sparked online fury about deepening economic inequality in rural mountain areas.`\
 https://nytimes.com/2025/01/09/travel/park-city-strike-union.html
-
-**Overrated? Not anymore. Ohio State's defensive line is living up to expectations**\
-`Ohio State's stars are finally showing up in the biggest moments and Jim Knowles' defensive scheme is working.`\
-https://nytimes.com/athletic/6049805/2025/01/09/ohio-state-football-defensive-line-cotton-bowl/
 
