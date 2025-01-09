@@ -1,7 +1,3 @@
-**The immeasurable returns of Eagles' investment in Saquon Barkley**\
-`The running back has brought major impact on the field and in the locker room.`\
-https://nytimes.com/athletic/6043309/2025/01/09/saquon-barkley-eagles-playoffs-packers/
-
 **Sunderland set to sign Le Fee on loan from Roma**\
 `Sunderland are set to sign midfielder Enzo Le Fee on loan from Roma.`\
 https://nytimes.com/athletic/6049254/2025/01/09/sunderland-transfers-enzo-le-fee/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6047381/2025/01/09/cam-fowler-ducks-blues-untold-st
 **Broncos had the best pass-rushing season in team history. Can they faze Josh Allen?**\
 `Denver notched a team-record 63 sacks in the regular season and can send pass rushers in waves. 'We're not going to back down to anybody.'`\
 https://nytimes.com/athletic/6047154/2025/01/09/broncos-pass-rush-josh-allen-bills-playoffs/
+
+**‘Diane Warren: Relentless’ Review: The Woman Behind the Hits**\
+`The songwriter, who has written for Cher, Toni Braxton and Celine Dion, among others, isn’t planning on stopping anytime soon.`\
+https://nytimes.com/2025/01/09/movies/diane-warren-relentless-review.html
 

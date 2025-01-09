@@ -1,3 +1,7 @@
+**The immeasurable returns of Eagles' investment in Saquon Barkley**\
+`The running back has brought major impact on the field and in the locker room.`\
+https://nytimes.com/athletic/6043309/2025/01/09/saquon-barkley-eagles-playoffs-packers/
+
 **Sunderland set to sign Le Fee on loan from Roma**\
 `Sunderland are set to sign midfielder Enzo Le Fee on loan from Roma.`\
 https://nytimes.com/athletic/6049254/2025/01/09/sunderland-transfers-enzo-le-fee/
