@@ -1,3 +1,11 @@
+**Potter's West Ham introduction: Window thoughts, Moyes and ambitions**\
+`The former Brighton and Chelsea boss was named as Julen Lopetegui's successor this morning, signing a two-and-a-half-year deal with the club`\
+https://nytimes.com/athletic/6049007/2025/01/09/graham-potter-west-ham-press-conference/
+
+**Your Cooking Resolution Matchmaker Is Here**\
+`You want to eat more veggie-filled breakfasts, go big on grains and make more soup. I do, too (and I have recipes).`\
+https://nytimes.com/2025/01/09/dining/your-cooking-resolution-matchmaker-is-here.html
+
 **The Fire Map Is a Guide to Ashes and Memories**\
 `The flames don’t recognize neighborhood boundaries.`\
 https://nytimes.com/live/2025/01/02/opinion/thepoint/los-angeles-fire-map-memories
