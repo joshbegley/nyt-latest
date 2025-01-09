@@ -1,3 +1,7 @@
+**Danilo to return from broken leg against Luton, Nuno confirms**\
+`Nottingham Forest manager Nuno Espirito Santo has confirmed that Danilo will be on the bench against Luton Town in the FA Cup on Saturday.`\
+https://nytimes.com/athletic/6049511/2025/01/09/danilo-nottingham-forest-return/
+
 **In an Anxious L.A., a House Fire Puts a Neighborhood on Edge**\
 `Aghast at their city burning, residents of Studio City endured harrowing moments of uncertainty when a house caught fire in the neighborhood.`\
 https://nytimes.com/2025/01/09/us/studio-city-los-angeles-fire-sunset-sunswept.html
