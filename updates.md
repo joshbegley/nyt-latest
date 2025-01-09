@@ -1,3 +1,7 @@
+**Dyche leaves role as Everton manager**\
+`Sean Dyche has left his role as Everton manager on the eve of their FA Cup game with Peterborough United on Thursday night.`\
+https://nytimes.com/athletic/5767109/2025/01/09/sean-dyche-everton-manager-leaves/
+
 **The Flying Maestro: A Top Conductor Moonlights as an Air France Pilot**\
 `Daniel Harding scaled the heights of classical music. Then he set out to conquer the skies.`\
 https://nytimes.com/2025/01/09/arts/music/daniel-harding-conductor-air-france.html
