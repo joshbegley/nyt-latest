@@ -1,3 +1,11 @@
+**Jones: NFL owners show their ineptitude and impulsivity with quick coach, GM firings**\
+`Yes, Jerod Mayo, Antonio Pierce and Ran Carthon struggled. But the Patriots, Raiders and Titans owners also deserve blame for results.`\
+https://nytimes.com/athletic/6048049/2025/01/09/nfl-coach-gm-firings-owner-blame-patriots-raiders/
+
+**Cancer-free Dick Vitale ready to ‘return to my love’ of announcing games**\
+`Vitale underwent surgery in June after a biopsy of the lymph node in his neck came back cancerous.`\
+https://nytimes.com/athletic/6049532/2025/01/09/dick-vitale-cancer-free-espn/
+
 **N.Y. Prosecutors Urge Supreme Court to Let Trump’s Sentencing Proceed**\
 `Donald J. Trump had not yet exhausted his New York appeals when he turned to the Supreme Court in a last-ditch move to avoid sentencing, prosecutors argued.`\
 https://nytimes.com/2025/01/09/nyregion/trump-sentencing-supreme-court.html

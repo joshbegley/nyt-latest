@@ -1,3 +1,7 @@
+**Landry Shamet getting another NBA shot with Knicks: 'I'm grateful for the journey’**\
+`Shamet is a journeyman in the NBA, but the 27-year-old has shown himself as someone who stays ready to play. `\
+https://nytimes.com/athletic/6048874/2025/01/09/landry-shamet-knicks-nba/
+
 **Jones: NFL owners show their ineptitude and impulsivity with quick coach, GM firings**\
 `Yes, Jerod Mayo, Antonio Pierce and Ran Carthon struggled. But the Patriots, Raiders and Titans owners also deserve blame for results.`\
 https://nytimes.com/athletic/6048049/2025/01/09/nfl-coach-gm-firings-owner-blame-patriots-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048904/2025/01/09/penguins-today-connor-mcdavid-er
 **Eric Adams, Under Indictment, to Make His Case for a Second Term**\
 `In his fourth and potentially final State of the City speech, Mayor Eric Adams plans to focus on two campaign themes: public safety and affordability.`\
 https://nytimes.com/2025/01/09/nyregion/adams-mayor-nyc-speech.html
-
-**Danilo to return from broken leg against Luton, Nuno confirms**\
-`Nottingham Forest manager Nuno Espirito Santo has confirmed that Danilo will be on the bench against Luton Town in the FA Cup on Saturday.`\
-https://nytimes.com/athletic/6049511/2025/01/09/danilo-nottingham-forest-return/
 
