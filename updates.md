@@ -1,3 +1,7 @@
+**Corrections: Jan. 9, 2025**\
+`Corrections that appeared in print on Thursday, Jan. 9, 2025.`\
+https://nytimes.com/2025/01/08/pageoneplus/corrections-jan-9-2025.html
+
 **Who’s in Charge of the Firefighting Effort?**\
 `Many agencies in the Los Angeles region are coordinating to battle multiple fires.`\
 https://nytimes.com/2025/01/08/us/fire-departments-in-charge.html

@@ -1,3 +1,7 @@
+**Corrections: Jan. 9, 2025**\
+`Corrections that appeared in print on Thursday, Jan. 9, 2025.`\
+https://nytimes.com/2025/01/08/pageoneplus/corrections-jan-9-2025.html
+
 **In the Palisades, an Evacuation Disaster Was Years in the Making**\
 `Some Pacific Palisades residents said the community had long asked for more detailed fire preparation plans. When a fire raged through the community this week, gridlock ensued.`\
 https://nytimes.com/2025/01/08/us/california-fire-palisades-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/us/sacramento-polaroids-sex-crimes-sentencing.htm
 **Alito Spoke With Trump Shortly Before Supreme Court Filing**\
 `The justice said that the call was a job reference for one of his former clerks and that the request to stay the president-elect’s sentencing did not come up.`\
 https://nytimes.com/2025/01/08/us/justice-alito-trump.html
-
-**San Francisco Gets a New Mayor and an Emergency Plan for the Fentanyl Scourge**\
-`Daniel Lurie, an heir to the Levi Strauss fortune, became the city’s 46th mayor on Wednesday and laid out a path to restoring the battered city’s luster.`\
-https://nytimes.com/2025/01/08/us/politics/san-francisco-mayor-daniel-lurie-fentanyl.html
 
