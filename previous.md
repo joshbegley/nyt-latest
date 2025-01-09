@@ -1,3 +1,7 @@
+**Biden Cancels Italy Trip to Focus on California Fire Response**\
+`President Biden was set to meet Prime Minister Giorgia Meloni and Pope Francis during what would have been his last presidential trip abroad.`\
+https://nytimes.com/2025/01/08/us/biden-california-fires.html
+
 **‘It Was Biblical’: Ash and Flame Upend Life in Southern California**\
 `Wind-whipped wildfire blew through communities of every socioeconomic status and stripe, merging, psychically if not physically, into a kind of mega-catastrophe.`\
 https://nytimes.com/2025/01/08/us/los-angeles-wildfires.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/08/well/ultraprocessed-foods-alternatives.html
 **Safety Steps to Take as Fires Sweep Southern California**\
 `State and local governments can alert you to risks and dangers in your surrounding areas. Being prepared is key.`\
 https://nytimes.com/2025/01/08/us/southern-california-wildfires-safety.html
-
-**Water Outage in Richmond, Va., Is Expected to Last Until Friday**\
-`The winter storm on Monday knocked out power at the city’s water plant, leaving thousands under a boil water advisory for days.`\
-https://nytimes.com/2025/01/08/us/richmond-water-crisis.html
 
