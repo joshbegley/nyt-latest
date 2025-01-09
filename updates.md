@@ -1,3 +1,7 @@
+**Once thriving, Mike Tomlin’s and Russell Wilson’s legacies now hang in the balance**\
+`A season of redemption for the Steelers' coach and QB has quickly spiraled. Can they salvage it by ending the team's playoff wins drought?`\
+https://nytimes.com/athletic/6048471/2025/01/09/mike-tomlin-russell-wilson-steelers-playoffs/
+
 **Jaden Hicks just the latest young, capable defensive back the Chiefs have developed**\
 `Hicks leads the Chiefs with three interceptions despite starting only one game. He should play a role in the postseason.`\
 https://nytimes.com/athletic/6048340/2025/01/09/chiefs-jaden-hicks-rookie-season/
