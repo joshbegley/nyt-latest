@@ -1,3 +1,7 @@
+**TikTok Is Facing Legal Backlash Around the World**\
+`TikTok is challenging a possible ban or forced sale to new owners in the United States, but has for several years been waging other fights in at least 20 countries.`\
+https://nytimes.com/2025/01/09/technology/tiktok-ban-global-legal-battles.html
+
 **Atlanta D.A. Asks Georgia Court to Review Decision Kicking Her Off Trump Case**\
 `In a filing late Wednesday, Fani Willis petitioned the Georgia Supreme Court to allow her to keep prosecuting Donald J. Trump over efforts to overturn his 2020 election defeat.`\
 https://nytimes.com/2025/01/08/us/trump-fani-willis-appeal-georgia.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/08/us/california-fire-palisades-evacuation.html
 **Who’s in Charge of the Firefighting Effort?**\
 `Many agencies in the Los Angeles region are coordinating to battle multiple fires.`\
 https://nytimes.com/2025/01/08/us/fire-departments-in-charge.html
-
-**Day 4: How to Grocery Shop Like a Nutrition Scientist**\
-`Today we’re looking at ultraprocessed foods in the wild.`\
-https://nytimes.com/2025/01/08/well/ultraprocessed-foods-alternatives.html
 
