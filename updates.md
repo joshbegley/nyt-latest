@@ -1,3 +1,11 @@
+**Who Are the Victims of the Los Angeles Fires?**\
+`At least five people died in fires raging across Los Angeles. Several of them appeared to have lived near each other in the ravaged Altadena neighborhood.`\
+https://nytimes.com/2025/01/09/us/california-fires-victims.html
+
+**Fox Must Face Smartmatic’s $2.7 Billion Defamation Lawsuit, Court Rules**\
+`The complaint, which arose out of Fox News’s promotion of vote-rigging conspiracy theories after the 2020 U.S. presidential election, is on track to proceed to trial.`\
+https://nytimes.com/2025/01/09/business/media/fox-smartmatic-lawsuit.html
+
 **Residents of Jimmy Carter’s hometown ponder a future without their famous draw.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/residents-of-jimmy-carters-hometown-ponder-a-future-without-their-famous-draw
