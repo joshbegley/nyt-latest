@@ -1,3 +1,7 @@
+**How a Phone Call Drew Alito Into a Trump Loyalty Squabble**\
+`The phone call centered on a former law clerk of Justice Alito’s who in the eyes of the Trump team must prove his loyalty to the president-elect.`\
+https://nytimes.com/2025/01/09/us/politics/alito-trump-phone-call-ethics.html
+
 **Judge Orders Release of Woman Who Stabbed Friend to Please ‘Slender Man’**\
 `The woman, Morgan Geyser, 22, was sentenced to spend 40 years in a psychiatric facility after she stabbed her friend 19 times in 2014 for a sinister internet character.`\
 https://nytimes.com/2025/01/09/us/slenderman-stabbing-woman-released.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/business/media/fox-smartmatic-lawsuit.html
 **Residents of Jimmy Carter’s hometown ponder a future without their famous draw.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/residents-of-jimmy-carters-hometown-ponder-a-future-without-their-famous-draw
-
-**Why General Manager Is the Hottest Job in College Sports**\
-`With players being paid and routinely changing schools, universities increasingly need someone besides a coach to put together a team.`\
-https://nytimes.com/2025/01/09/business/college-sports-general-managers.html
 
