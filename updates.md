@@ -1,3 +1,15 @@
+**Moises Caicedo has become Chelsea's least replaceable player**\
+`Caicedo might not be Chelsea's best player, but there is nobody else in the squad who can do what he does as well as he does it`\
+https://nytimes.com/athletic/6046790/2025/01/09/moises-caicedo-chelsea-analysis-squad/
+
+**Analysing why Palace's matches have been so tight this season**\
+`Few sides spend as much time in a 'marginal game state' as Palace - but there are reasons this is the case`\
+https://nytimes.com/athletic/6037741/2025/01/09/crystal-palace-tight-games-premier-league/
+
+**Arsenal want to add a wide forward in January - who should they target?**\
+`The Athletic's data team run the numbers to see who could be a suitable addition to Arsenal's attack this month`\
+https://nytimes.com/athletic/6046374/2025/01/09/arsenal-wide-forward-january-transfer-options/
+
 **Hollywood Hills Fire Threatens Beloved Los Angeles Landmarks**\
 `The Sunset fire has grown rapidly and is threatening a swath of Los Angeles that contains the Hollywood Bowl and the Chinese Theater.`\
 https://nytimes.com/2025/01/09/us/hollywood-hills-landmarks-california-fire.html
