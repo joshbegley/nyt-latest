@@ -1,3 +1,7 @@
+**San Francisco Gets a New Mayor and an Emergency Plan for the Fentanyl Scourge**\
+`Daniel Lurie, an heir to the Levi Strauss fortune, became the city’s 46th mayor on Wednesday and laid out a path to restoring the battered city’s luster.`\
+https://nytimes.com/2025/01/08/us/politics/san-francisco-mayor-daniel-lurie-fentanyl.html
+
 **Astros' 13th round pick Bryce Boettcher to play another season of football at Oregon**\
 `Oregon secured a waiver for an additional year of football eligibility for Boettcher, who did not join the team until his sophomore season`\
 https://nytimes.com/athletic/6048352/2025/01/08/bryce-boettcher-oregon-football-houston-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/08/science/pluto-moon-kiss-charon.html
 **David Wright reflects on Mets' plans to retire his jersey: 5 takeaways from No. 5**\
 `Wright savored conversations with Tom Seaver, a message from Keith Hernandez, serving as captain and more. `\
 https://nytimes.com/athletic/6048178/2025/01/08/mets-david-wright-jersey-retirement-takeaways/
-
-**Dignified Rituals Before the ‘Hot Mess’ in Washington**\
-`Jimmy Carter’s funeral is giving the nation an uncanny week of routine on the eve of political upheaval.`\
-https://nytimes.com/2025/01/08/us/politics/carter-funeral-rituals-trump-politics.html
 
