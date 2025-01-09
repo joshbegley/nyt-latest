@@ -1,3 +1,7 @@
+**N.Y. Prosecutors Urge Supreme Court to Let Trump’s Sentencing Proceed**\
+`Donald J. Trump had not yet exhausted his New York appeals when he turned to the Supreme Court in a last-ditch move to avoid sentencing, prosecutors argued.`\
+https://nytimes.com/2025/01/09/nyregion/trump-sentencing-supreme-court.html
+
 **Deion Sanders says coaching his 2 sons would be only reason to consider NFL**\
 `Sanders has coached his two youngest sons for almost all of their careers dating back to peewee football.`\
 https://nytimes.com/athletic/6049575/2025/01/09/deion-sanders-nfl-coaching-shedeur-shilo/

@@ -1,3 +1,7 @@
+**N.Y. Prosecutors Urge Supreme Court to Let Trump’s Sentencing Proceed**\
+`Donald J. Trump had not yet exhausted his New York appeals when he turned to the Supreme Court in a last-ditch move to avoid sentencing, prosecutors argued.`\
+https://nytimes.com/2025/01/09/nyregion/trump-sentencing-supreme-court.html
+
 **Deion Sanders says coaching his 2 sons would be only reason to consider NFL**\
 `Sanders has coached his two youngest sons for almost all of their careers dating back to peewee football.`\
 https://nytimes.com/athletic/6049575/2025/01/09/deion-sanders-nfl-coaching-shedeur-shilo/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/studio-city-los-angeles-fire-sunset-sunswept.h
 **Why Kehl is extending his Dortmund contract after protracted negotiations**\
 `Borussia Dortmund have extended the contract of Sebastian Kehl, the club’s sporting director, until 2027.`\
 https://nytimes.com/athletic/6049475/2025/01/09/borussia-dortmund-sebastien-kehr-contract/
-
-**Spurs' defensive shell game can't stop Giannis, but it's a good growth opportunity**\
-`“I think this was just a deviation from what we’ve been doing," says Harrison Barnes of the Spurs' lapses against the Bucks. `\
-https://nytimes.com/athletic/6048651/2025/01/09/spurs-defense-wembanyama-giannis-bucks/
 
