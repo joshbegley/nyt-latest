@@ -1,3 +1,19 @@
+**'Trying to achieve great things, it's not easy': Murray describes intensity of coaching Djokovic**\
+`It will be all business when Andy Murray coaches Novak Djokovic at the Australian Open.`\
+https://nytimes.com/athletic/6049104/2025/01/09/andy-murray-novak-djokovic-coach-australian-open/
+
+**Park City Strike Ends With Increase in Wages for Ski Patrollers**\
+`The nearly two-week strike hobbled the largest U.S. ski resort during a busy holiday period and sparked online fury about deepening economic inequality in rural mountain areas.`\
+https://nytimes.com/2025/01/09/travel/park-city-strike-union.html
+
+**Overrated? Not anymore. Ohio State's defensive line is living up to expectations**\
+`Ohio State's stars are finally showing up in the biggest moments and Jim Knowles' defensive scheme is working.`\
+https://nytimes.com/athletic/6049805/2025/01/09/ohio-state-football-defensive-line-cotton-bowl/
+
+**Wildfires Can Leave Lasting Psychological Scars**\
+`Survivors of wildfires like those burning across Los Angeles can experience mental health issues long after a blaze is out.`\
+https://nytimes.com/2025/01/09/well/california-wildfire-mental-health.html
+
 **The Flying Maestro: A Top Conductor Moonlights as an Air France Pilot**\
 `Daniel Harding scaled the heights of classical music. Then he set out to conquer the skies.`\
 https://nytimes.com/2025/01/09/arts/music/daniel-harding-conductor-air-france.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5767109/2025/01/09/sean-dyche-everton-manager-leave
 **How to Evacuate a 300-Pound Pig**\
 `As the Los Angeles wildfires strained the city’s animal shelters, community members stepped in to help a couple rescue their pet potbellied pig.`\
 https://nytimes.com/2025/01/09/style/pig-evacuation-wildfires.html
-
-**Marta re-signs with Orlando Pride on 2-year deal**\
-`After the Pride won the NWSL Shield and Championship, 2024 ended as one of, if not the best club season of Marta’s lengthy career.`\
-https://nytimes.com/athletic/6049484/2025/01/09/marta-signs-orlando-pride-return/
-
-**The New Year Brings New Talent to the New York Philharmonic**\
-`Kevin John Edusei and Daniele Rustioni, conductors in their 40s, made impressive debuts with the orchestra in back-to-back programs.`\
-https://nytimes.com/2025/01/09/arts/music/edusai-rustioni-new-york-philharmonic-debut.html
-
-**Titans radio voice Mike Keith shifts to college, will call Vols football, hoops**\
-`Keith, who called "The Music City Miracle" in 2000, will return to his alma mater in Knoxville.`\
-https://nytimes.com/athletic/6049363/2025/01/09/mike-keith-tennessee-volunteers-titans-broadcast/
-
-**Quick and Cozy Fragrant Coconut Chicken and Sweet Potato**\
-`A new one-pan dinner from Kay Chun that turns ground chicken and some pantry staples into a satisfying dinner.`\
-https://nytimes.com/2025/01/09/dining/coconut-chicken-sweet-potato-recipe.html
 
