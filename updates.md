@@ -1,3 +1,11 @@
+**Lebanese Lawmakers Choose a President After 2 Years of Gridlock**\
+`Lawmakers elected Joseph Aoun, the commander of the Lebanese military, the first step in forming a government to lead a country recovering from economic crisis and a devastating war.`\
+https://nytimes.com/2025/01/09/world/middleeast/lebanon-politics-president-parliament-vote.html
+
+**Agbadou: A long-term Wolves target with an elite passing range - also admired by Pereira**\
+`Wolves’ recruitment team have monitored Agbadou for years and noted an increase in performance and consistency since he became Reims captain`\
+https://nytimes.com/athletic/6049062/2025/01/09/emmanuel-agbadou-wolves-signing/
+
 **The Athletic FC: Inside Lopetegui sacking, Spurs' youngsters shine, Barca's Olmo reprieve**\
 `Today in TAFC: The reasons why Lopetegui was sacked, give a hat tip to a Spurs duo and ask how Alexander-Arnold might fit at Real Madrid`\
 https://nytimes.com/athletic/6049117/2025/01/09/loepetetgui-west-ham-olmo-barcelona/
