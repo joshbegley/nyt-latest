@@ -1,3 +1,7 @@
+**House Passes Bill to Sanction I.C.C. Officials for Israeli Prosecutions**\
+`The action put the measure on track for likely enactment given strong support for it among Republicans, who now control the Senate, and President-elect Donald J. Trump.`\
+https://nytimes.com/2025/01/09/us/politics/icc-sanctions-house-israel.html
+
 **Here’s an update on each fire.**\
 `At least five major fires are burning across the Los Angeles area.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/heres-an-update-on-each-fire
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/biden-eulogy-jimmy-carter.html
 **How to prepare your home before you evacuate.**\
 `California’s state fire agency has guidance on the best ways to get your home ready before you leave.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-evacuation-prep
-
-**Potter's West Ham introduction: Window thoughts, Moyes and ambitions**\
-`The former Brighton and Chelsea boss was named as Julen Lopetegui's successor this morning, signing a two-and-a-half-year deal with the club`\
-https://nytimes.com/athletic/6049007/2025/01/09/graham-potter-west-ham-press-conference/
 
