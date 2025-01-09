@@ -1,3 +1,19 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/09/briefing/wildfires-california-hostage.html
+
+**Inside Lopetegui's West Ham exit: Lack of days off, tension with players, on brink for months**\
+`Lopetegui was dismissed as West Ham head coach on Wednesday after just eight months and 22 games - this is the story of his departure`\
+https://nytimes.com/athletic/5964188/2025/01/09/julen-lopetegui-west-ham-inside-exit/
+
+**Blackhawks' future looks bright as Connor Bedard, Frank Nazar deliver goals for first time together**\
+`Wednesday was the clearest picture so far of what the Blackhawks could look like with Bedard and Nazar playing at a high level.`\
+https://nytimes.com/athletic/6048660/2025/01/09/blackhawks-connor-bedard-frank-nazar/
+
+**Egypt’s Economy Is Damaged. It Sees a Scapegoat, and a Potential Fix, in Refugees.**\
+`Palestinians, Sudanese and Syrians fleeing war have found a home in the country. But Cairo says newcomers are straining resources and is seeking financial help from the West.`\
+https://nytimes.com/2025/01/09/world/middleeast/egypts-economy-refugees.html
+
 **TikTok Is Facing Legal Backlash Around the World**\
 `TikTok is challenging a possible ban or forced sale to new owners in the United States, but has for several years been waging other fights in at least 20 countries.`\
 https://nytimes.com/2025/01/09/technology/tiktok-ban-global-legal-battles.html
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6048653/2025/01/08/capitals-canucks-takeaways-conor
 **Haunted House Feeling**\
 `David P. Williams’s puzzle has an alphabetical twist.`\
 https://nytimes.com/2025/01/08/crosswords/daily-puzzle-2025-01-09.html
-
-**Cavs pass 'big test' with flying colors, edge Thunder in meeting of NBA's top seeds**\
-`Cleveland snapped OKC's 15-game winning streak, but the Thunder have a chance at revenge next week.`\
-https://nytimes.com/athletic/6048606/2025/01/08/cavaliers-thunder-streak-nba-result/
-
-**Corrections: Jan. 9, 2025**\
-`Corrections that appeared in print on Thursday, Jan. 9, 2025.`\
-https://nytimes.com/2025/01/08/pageoneplus/corrections-jan-9-2025.html
-
-**In the Palisades, an Evacuation Disaster Was Years in the Making**\
-`Some Pacific Palisades residents said the community had long asked for more detailed fire preparation plans. When a fire raged through the community this week, gridlock ensued.`\
-https://nytimes.com/2025/01/08/us/california-fire-palisades-evacuation.html
-
-**Who’s in Charge of the Firefighting Effort?**\
-`Many agencies in the Los Angeles region are coordinating to battle multiple fires.`\
-https://nytimes.com/2025/01/08/us/fire-departments-in-charge.html
 
