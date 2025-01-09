@@ -1,3 +1,7 @@
+**Sunderland set to sign Le Fee on loan from Roma**\
+`Sunderland are set to sign midfielder Enzo Le Fee on loan from Roma.`\
+https://nytimes.com/athletic/6049254/2025/01/09/sunderland-transfers-enzo-le-fee/
+
 **Lebanese Lawmakers Choose a President After 2 Years of Gridlock**\
 `Lawmakers elected Joseph Aoun, the commander of the Lebanese military, the first step in forming a government to lead a country recovering from economic crisis and a devastating war.`\
 https://nytimes.com/2025/01/09/world/middleeast/lebanon-politics-president-parliament-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047154/2025/01/09/broncos-pass-rush-josh-allen-bil
 **‘Diane Warren: Relentless’ Review: The Woman Behind the Hits**\
 `The songwriter, who has written for Cher, Toni Braxton and Celine Dion, among others, isn’t planning on stopping anytime soon.`\
 https://nytimes.com/2025/01/09/movies/diane-warren-relentless-review.html
-
-**‘Eat the Night’ Review: Connection Impossible**\
-`The lives of two siblings are upended by gang violence and the loss of a beloved video game in this haunting yet shaky French drama.`\
-https://nytimes.com/2025/01/09/movies/eat-the-night-review.html
 
