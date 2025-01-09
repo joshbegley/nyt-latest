@@ -1,3 +1,7 @@
+**What to watch in college basketball this weekend: Ranked SEC games, Notre Dame at Duke**\
+`What to watch — and how to watch it — across a packed weekend of conference play.`\
+https://nytimes.com/athletic/6047718/2025/01/09/college-basketball-what-to-watch-alabama-kentucky-duke/
+
 **Richard M. Cohen, News Producer Who Wrote of a Health Challenge, Dies at 76**\
 `When he was 25, he learned that he had multiple sclerosis. He coped with the disease throughout a long career at several networks, recalled in a best-selling memoir.`\
 https://nytimes.com/2025/01/09/business/media/richard-m-cohen-dead.html
