@@ -1,3 +1,7 @@
+**Walter Mondale died before he could deliver Carter’s eulogy, so his son is doing it instead.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/us/jimmy-carter-funeral/walter-mondale-died-before-he-could-deliver-carters-eulogy-so-his-son-is-doing-it-instead
+
 **Jimmy Carter Was the First ‘Born Again’ U.S. President**\
 `Mr. Carter said his spiritual rebirth was an “evolutionary thing” rather than “a flash of light or a sudden vision of God speaking.”`\
 https://nytimes.com/2025/01/09/us/politics/jimmy-carter-born-again-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/politics/trump-zelensky-ukraine-war.html
 **Carter’s Funeral Brings Five Presidents Together, a Rarity**\
 `It is unusual for five current and former presidents to gather at the same event, but when it happens, it is often at a funeral.`\
 https://nytimes.com/2025/01/09/us/jimmy-carter-living-presidents-gather.html
-
-**The Slow Growth of Hand-Painted Clothes**\
-`In an era of fast fashion, some yearn for clothing with a personal touch.`\
-https://nytimes.com/2025/01/09/style/hand-drawn-clothes-swan-gossip.html
 
