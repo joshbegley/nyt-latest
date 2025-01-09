@@ -1,5 +1,13 @@
+**No, Americans Are Not Really United**\
+`Readers disagree with an essay by a Republican pollster. Also: Sperm donors’ anonymity; judges and gun violence; too much agreement.`\
+https://nytimes.com/2025/01/09/opinion/politics-americans-united-divided.html
+
+**Juventus interested in signing Barcelona defender Araujo**\
+`Juventus are interested in signing Barcelona and Uruguay centre-back Ronald Araujo.`\
+https://nytimes.com/athletic/6049208/2025/01/09/barcelona-transfers-ronald-araujo-juventus/
+
 **Dyche leaves role as Everton manager**\
-`Sean Dyche has left his role as Everton manager on the eve of their game with Peterborough United on Thursday night and after less than two years in charge.`\
+`Sean Dyche has left his role as Everton manager on the eve of their game with Peterborough United on Thursday night.`\
 https://nytimes.com/athletic/5767109/2025/01/09/sean-dyche-everton-manager-leaves/
 
 **How to Evacuate a 300-Pound Pig**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/business/economy/trump-unemployment-economy.html
 **California Winds Ease Slightly but Are Expected to Pick Up Again**\
 `The Santa Ana windstorm calmed down a bit on Thursday morning, but forecasters warned that critical fire weather conditions would continue.`\
 https://nytimes.com/2025/01/09/us/santa-ana-winds-california-fires-forecast.html
-
-**Walter Mondale died before he could deliver Carter’s eulogy, so his son is doing it instead.**\
-`By Peter Baker`\
-https://nytimes.com/live/2025/us/jimmy-carter-funeral/walter-mondale-died-before-he-could-deliver-carters-eulogy-so-his-son-is-doing-it-instead
-
-**Jimmy Carter Was the First ‘Born Again’ U.S. President**\
-`Mr. Carter said his spiritual rebirth was an “evolutionary thing” rather than “a flash of light or a sudden vision of God speaking.”`\
-https://nytimes.com/2025/01/09/us/politics/jimmy-carter-born-again-president.html
 
