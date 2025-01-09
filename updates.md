@@ -1,3 +1,11 @@
+**Altadena, an artsy, diverse neighborhood, faces sweeping destruction.**\
+`At least five people died in the area and over 1,000 homes were burned to the ground, according to officials.`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/altadena-an-artsy-diverse-neighborhood-faces-sweeping-destruction
+
+**The Windup: Justin Verlander's Tour de Orange**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6050140/2025/01/09/justin-verlander-gavin-lux-mlb-the-windup/
+
 **Late Titans star Frank Wycheck diagnosed with CTE after his 2023 death**\
 `Researchers from Boston University's CTE Center confirmed the stage III diagnosis for Wycheck.`\
 https://nytimes.com/athletic/6049927/2025/01/09/frank-wycheck-cte-diagnosis-titans/
