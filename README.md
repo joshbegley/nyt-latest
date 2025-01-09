@@ -1,3 +1,7 @@
+**Why Kehl is extending his Dortmund contract after protracted negotiations**\
+`Borussia Dortmund have extended the contract of Sebastian Kehl, the club’s sporting director, until 2027.`\
+https://nytimes.com/athletic/6049475/2025/01/09/borussia-dortmund-sebastien-kehr-contract/
+
 **Spurs' defensive shell game can't stop Giannis, but it's a good growth opportunity**\
 `“I think this was just a deviation from what we’ve been doing," says Harrison Barnes of the Spurs' lapses against the Bucks. `\
 https://nytimes.com/athletic/6048651/2025/01/09/spurs-defense-wembanyama-giannis-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6043657/2025/01/09/alessia-russo-arsenal-analysis-g
 **It is a national day of mourning. Here’s what that means.**\
 `By Victor Mather`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral/it-is-a-national-day-of-mourning-heres-what-that-means
-
-**Elon Musk Is Trying to Break Germany’s Quarantine on the Far-Right AfD**\
-`Political leaders have shunned the Alternative for Germany. But on his social media platform X, Mr. Musk is pitching the party as mainstream.`\
-https://nytimes.com/2025/01/09/world/europe/germany-elon-musk-afd.html
 
