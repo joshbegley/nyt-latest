@@ -1,3 +1,11 @@
+**Dyche leaves role as Everton manager**\
+`Sean Dyche has left his role as Everton manager on the eve of their game with Peterborough United on Thursday night and after less than 12 months in charge.`\
+https://nytimes.com/athletic/5767109/2025/01/09/sean-dyche-everton-manager-leaves/
+
+**How to Evacuate a 300-Pound Pig**\
+`As the Los Angeles wildfires strained the city’s animal shelters, community members stepped in to help a couple rescue their pet potbellied pig.`\
+https://nytimes.com/2025/01/09/style/pig-evacuation-wildfires.html
+
 **Marta re-signs with Orlando Pride on 2-year deal**\
 `After the Pride won the NWSL Shield and Championship, 2024 ended as one of, if not the best club season of Marta’s lengthy career.`\
 https://nytimes.com/athletic/6049484/2025/01/09/marta-signs-orlando-pride-return/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/us/jimmy-carter-funeral/walter-mondale-died-before
 **Jimmy Carter Was the First ‘Born Again’ U.S. President**\
 `Mr. Carter said his spiritual rebirth was an “evolutionary thing” rather than “a flash of light or a sudden vision of God speaking.”`\
 https://nytimes.com/2025/01/09/us/politics/jimmy-carter-born-again-president.html
-
-**‘We’ve Lost Everything’: Los Angeles Residents Reel From Wildfires**\
-`Fires in parts of Los Angeles destroyed 2,000 structures and burned through 27,000 acres, equivalent to nearly 20,000 football fields.`\
-https://nytimes.com/video/us/100000009916693/los-angeles-residents-burnt-homes-fires-.html
-
-**Landry Shamet getting another NBA shot with Knicks: 'I'm grateful for the journey’**\
-`Shamet is a journeyman in the NBA, but the 27-year-old has shown himself as someone who stays ready to play. `\
-https://nytimes.com/athletic/6048874/2025/01/09/landry-shamet-knicks-nba/
 

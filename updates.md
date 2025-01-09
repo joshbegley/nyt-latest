@@ -1,3 +1,11 @@
+**Dyche leaves role as Everton manager**\
+`Sean Dyche has left his role as Everton manager on the eve of their game with Peterborough United on Thursday night and after less than 12 months in charge.`\
+https://nytimes.com/athletic/5767109/2025/01/09/sean-dyche-everton-manager-leaves/
+
+**How to Evacuate a 300-Pound Pig**\
+`As the Los Angeles wildfires strained the city’s animal shelters, community members stepped in to help a couple rescue their pet potbellied pig.`\
+https://nytimes.com/2025/01/09/style/pig-evacuation-wildfires.html
+
 **Marta re-signs with Orlando Pride on 2-year deal**\
 `After the Pride won the NWSL Shield and Championship, 2024 ended as one of, if not the best club season of Marta’s lengthy career.`\
 https://nytimes.com/athletic/6049484/2025/01/09/marta-signs-orlando-pride-return/
