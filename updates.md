@@ -1,3 +1,7 @@
+**Mirtle: The Maple Leafs are one of the NHL's best teams at midseason. Is it sustainable?**\
+`The Leafs are a different team with a bit more backbone this season. Can they keep winning this way?`\
+https://nytimes.com/athletic/6048878/2025/01/09/maple-leafs-team-nhl-analysis-2025/
+
 **Newcastle, Villa charged over 'mass confrontation'**\
 `Jason Tindall has been charged by the Football Association (FA) for his involvement in a &#8220;mass confrontation&#8221; during Newcastle United&#8217;s Premier League win over Aston Villa on Boxing Day.`\
 https://nytimes.com/athletic/6021442/2025/01/09/jason-tindall-newcastle-aston-villa-charge/
