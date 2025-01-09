@@ -1,3 +1,7 @@
+**How Jim Harbaugh built the Chargers culture: Black Eyed Peas, blue-collar gifts, authenticity**\
+`Harbaugh’s antics can seem cliche and even corny at times, but every one of them has a meaning and makes an impact.`\
+https://nytimes.com/athletic/6048205/2025/01/09/chargers-jim-harbaugh-playoffs-culture-change/
+
 **Live Updates: Presidents Will Gather to Honor Carter at Washington Cathedral**\
 `A state funeral for the 39th president will bring together all five living presidents and include a eulogy from President Biden. Eulogies written by Gerald Ford and Walter Mondale will be delivered by their sons.`\
 https://nytimes.com/live/2025/us/jimmy-carter-funeral
