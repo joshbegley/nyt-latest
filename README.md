@@ -1,3 +1,11 @@
+**Biden Raises Bounty for Nicolás Maduro to $25 Million**\
+`The move is a retaliatory measure meant to punish the Venezuelan autocrat for refusing to give up power`\
+https://nytimes.com/2025/01/10/world/americas/biden-bounty-nicolas-maduro.html
+
+**Vince McMahon Settles With S.E.C. Over Failing to Disclose Confidential Payments to Women**\
+`The former chief executive of World Wrestling Entertainment paid two women, one of whom accused him of assault.`\
+https://nytimes.com/2025/01/10/business/vince-mcmahon-sec-settlement.html
+
 **Limits on foreign ownership are not unusual in many industries.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/limits-on-foreign-ownership-are-not-unusual-in-many-industries
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/in-an-unusual-re
 **Bob Dylan Is Having a Hollywood Moment. His No. 1 Hater Is Ready.**\
 `A.J. Weberman sifted through the prophetic singer’s trash in search of meaning. He turned on him as a sellout and has spent decades trying to reclaim him for the counterculture.`\
 https://nytimes.com/2025/01/10/nyregion/bob-dylan-nemesis.html
-
-**Israel Strikes Ports and a Power Plant in Houthi-Controlled Parts of Yemen**\
-`Israel and its allies have escalated strikes against the Houthis to try to force them to stop firing on Israel and Red Sea shipping lanes, but it was not clear whether they would deter the Iran-backed militia.`\
-https://nytimes.com/2025/01/10/world/middleeast/israel-strikes-yemen-houthis.html
-
-**Five International Movies to Stream Now**\
-`This month, one of Pablo Escobar’s hippos narrates his life, a Ouija board terrorizes friends in India and an Iranian refugee in Finland navigates adolescence.`\
-https://nytimes.com/2025/01/10/movies/five-international-movies-to-stream-now.html
 
