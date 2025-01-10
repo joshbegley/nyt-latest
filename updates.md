@@ -1,3 +1,7 @@
+**Ederson 'fine' but Man City still without Stones and Dias**\
+`Manchester City goalkeeper Ederson is “fine” but the Premier League champions are still without defenders John Stones and Ruben Dias.`\
+https://nytimes.com/athletic/6051988/2025/01/10/manchester-city-injury-news-ederson-stones-dias/
+
 **Chargers-Texans wild-card preview: Pass rush, red zone efficiency among keys**\
 `The Chargers arrived in Houston on Thursday after adjusting their practice schedule the past two days during the devastating wildfires.`\
 https://nytimes.com/athletic/6051077/2025/01/10/chargers-texans-nfl-playoffs-wild-card-preview/
