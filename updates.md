@@ -1,3 +1,7 @@
+**‘Den of Thieves 2: Pantera’ Review: Tough Cop, Nice Robber**\
+`Gerard Butler and O’Shea Jackson Jr., adversaries in the original film, now buddy up to steal some diamonds in France.`\
+https://nytimes.com/2025/01/09/movies/den-of-thieves-2-pantera-review.html
+
 **Federal Court Halts Hearing on Eve of Guilty Plea by Accused 9/11 Mastermind**\
 `A three-judge appeals panel will decide whether the plea deal Khalid Shaikh Mohammed reached to avoid a death-penalty trial remains valid.`\
 https://nytimes.com/2025/01/09/us/politics/911-khalid-shaikh-mohammed-plea-deal.html
