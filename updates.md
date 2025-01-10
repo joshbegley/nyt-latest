@@ -1,3 +1,15 @@
+**TikTok, caught flat-footed by the law, leaned in to Republicans in the last year.**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-caught-flat-footed-by-the-law-leaned-in-to-republicans-in-the-last-year
+
+**Ringo Starr Goes Country, and 13 More New Songs**\
+`Hear tracks by Japanese Breakfast, Lambrini Girls, SZA and others.`\
+https://nytimes.com/2025/01/10/arts/music/playlist-ringo-starr-bad-bunny-sza.html
+
+**Eagles' Jalen Hurts clears concussion protocol, will play vs. Packers**\
+`Philadelphia's offensive EPA per play drops significantly from when Hurts is on the field (0.10) versus when he is not (0.03), per TruMedia.`\
+https://nytimes.com/athletic/6052801/2025/01/10/jalen-hurts-cleared-concussion-eagles-nfl-wildcard/
+
 **The report may signal renewed vigor after months of caution.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/the-report-may-signal-renewed-vigor-after-months-of-caution
