@@ -1,3 +1,7 @@
+**China’s Central Bank Stops Buying Bonds as Deflation Fears Grip Economy**\
+`The unexpected action is intended to tamp down a potential bubble in the bond market fueled by investors shunning riskier assets like stocks and real estate.`\
+https://nytimes.com/2025/01/10/business/china-central-bank-bonds.html
+
 **‘Babygirl’ | Anatomy of a Scene**\
 `The writer and director Halina Reijn narrates a sequence from her film, featuring Nicole Kidman and Harris Dickinson.`\
 https://nytimes.com/video/movies/100000009916744/babygirl-anatomy-of-a-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/learning/southern-california-wildfires.html
 **Trump Is Set to Avoid Punishment, but Sentencing Will Make Him a Felon**\
 `Though the president-elect is expected to avoid jail time, his sentencing on 34 counts will formalize his status as a felon and make him the first to carry that distinction into the White House.`\
 https://nytimes.com/2025/01/10/nyregion/trump-sentencing-felon-hush-money.html
-
-**The Roller-Skating Economist You Can Thank for Congestion Pricing**\
-`Charging drivers to enter Lower Manhattan vindicates the lifelong mission of a Nobel laureate who, as it happened, died behind the wheel of a car.`\
-https://nytimes.com/2025/01/10/nyregion/big-city-congestion-pricing.html
 

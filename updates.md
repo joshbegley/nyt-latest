@@ -1,3 +1,7 @@
+**China’s Central Bank Stops Buying Bonds as Deflation Fears Grip Economy**\
+`The unexpected action is intended to tamp down a potential bubble in the bond market fueled by investors shunning riskier assets like stocks and real estate.`\
+https://nytimes.com/2025/01/10/business/china-central-bank-bonds.html
+
 **‘Babygirl’ | Anatomy of a Scene**\
 `The writer and director Halina Reijn narrates a sequence from her film, featuring Nicole Kidman and Harris Dickinson.`\
 https://nytimes.com/video/movies/100000009916744/babygirl-anatomy-of-a-scene.html
