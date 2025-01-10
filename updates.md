@@ -1,3 +1,15 @@
+**‘Today’ Says Goodbye to Hoda Kotb, Over and Over Again**\
+`Special guests, including Simone Biles and Oprah Winfrey, offered tributes to the longtime host, capping off a week that “Today” had called a “Hoda-bration!”`\
+https://nytimes.com/2025/01/10/business/media/hoda-kotb-today-nbc.html
+
+**Stocks and Bonds Rattled as Odds of Fed Rate Cut Recede**\
+`Stronger-than-expected data on the labor market has intensified concerns that the economy continues to run at a solid pace, amplifying fears about stubborn inflation.`\
+https://nytimes.com/2025/01/10/business/stocks-bonds-inflation-fed-jobs.html
+
+**Senators sign forward Ridly Greig to 4-year contract extension**\
+`Greig was in the final year of his entry-level contract and would have been a restricted free agent at season's end.`\
+https://nytimes.com/athletic/6052516/2025/01/10/greig-senators-contract-extension/
+
 **Oilers midseason report cards: Leon Draisaitl is at an MVP-level**\
 `The Oilers had an early wobble to start the season but followed it with a long period of success.`\
 https://nytimes.com/athletic/6049494/2025/01/10/oilers-2024-25-midseason-report-cards-leon-draisaitl/
