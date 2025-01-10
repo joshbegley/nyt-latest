@@ -1,3 +1,7 @@
+**Man Utd Women set to sign Southampton goalkeeper Rendell**\
+`Manchester United are expected to complete the signing of goalkeeper Kayla Rendell from Southampton.`\
+https://nytimes.com/athletic/6053199/2025/01/10/kayla-rendell-manchester-united-transfer/
+
 **WADA appeal in Sinner's doping case will be heard in April**\
 `The world No. 1 could be banned from tennis for up to two years if CAS upholds WADA's appeal.`\
 https://nytimes.com/athletic/6053172/2025/01/10/jannik-sinner-doping-appeal-date-wada/
