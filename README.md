@@ -1,3 +1,7 @@
+**Notre Dame wins Orange Bowl thriller with late INT, kick to earn title shot**\
+`After Notre Dame beat Penn State, Marcus Freeman will be the first Black coach in college football's national championship game.`\
+https://nytimes.com/athletic/6051284/2025/01/09/notre-dame-penn-state-playoff-orange-bowl/
+
 **One year after trade, Flyers' Jamie Drysdale is still trying to figure things out**\
 `Drysdale was on the ice for the Stars' first two goals Thursday night almost exactly a year after being traded from Anaheim.`\
 https://nytimes.com/athletic/6051318/2025/01/09/jamie-drysdale-flyers-progress-stars/
@@ -15,7 +19,7 @@ https://nytimes.com/interactive/2025/01/09/us/la-wildfires-damage-photos-map.htm
 https://nytimes.com/2025/01/09/us/eaton-fire-mount-wilson-observatory.html
 
 **Maple Leafs report cards: Weak defensive effort leads to blown-lead loss**\
-`Auston Matthews and Mitch Marner were on the ice for all six Carolina goals in 6-3 loss for Toronto.`\
+`Auston Matthews and Mitch Marner were on the ice for all six Carolina goals in a 6-3 loss for Toronto.`\
 https://nytimes.com/athletic/6051287/2025/01/09/maple-leafs-hurricanes-grades-analysis/
 
 **Filip Gustavsson, Wild's shorthanded blue line sliced and diced by Avs: 3 takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
 **Cubs could be heading toward an arbitration hearing against Kyle Tucker**\
 `The Cubs were able to reach an agreement with Justin Steele on a $6.55 million salary for 2025.`\
 https://nytimes.com/athletic/6051215/2025/01/09/cubs-kyle-tucker-arbitration/
-
-**A Rebuke to Trump Provides a Telling Portrait of a Divided Supreme Court**\
-`Two Republican appointees, Chief Justice Roberts and Justice Barrett, joined the court’s three liberals in ordering the president-elect to face sentencing on Friday.`\
-https://nytimes.com/2025/01/09/us/supreme-court-trump-hush-money.html
 
