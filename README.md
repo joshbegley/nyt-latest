@@ -1,3 +1,11 @@
+**Postecoglou says Bentancur sidelined with concussion**\
+`Tottenham Hotspur head coach Ange Postecoglou says that midfielder Rodrigo Bentancur &#8220;looks like&#8221; he sustained a concussion during the first leg of Spurs&#8217; Carabao Cup semi-final against Liverpool on Wednesday.`\
+https://nytimes.com/athletic/6051940/2025/01/10/rodrigo-bentancur-tottenham-concussion/
+
+**Rams' Demarcus Robinson charged with DUI following November arrest**\
+`Robinson is set to be arraigned on Feb. 24.`\
+https://nytimes.com/athletic/6050945/2025/01/10/rams-demarcus-robinson-dui-charge/
+
 **Pistons' winning streak ends, but there are still lessons to be learned in loss**\
 `Detroit couldn't complete the comeback against Golden State in the second game of a back-to-back on Thursday.`\
 https://nytimes.com/athletic/6051651/2025/01/10/pistons-loss-warriors-cade-cunningham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6050708/2025/01/10/49ers-2024-snap-counts-rookies-d
 **Drew Allar's late interception in Orange Bowl loss leaves Penn State with familiar gut punch**\
 `Penn State had chances to change narratives that have haunted the program. But a doomed final drive led to a 27-24 loss to Notre Dame.`\
 https://nytimes.com/athletic/6051675/2025/01/10/penn-state-drew-allar-orange-bowl-notre-dame/
-
-**The Athletic FC: Everton eye Moyes as Dyche departs, TV commercial murder link**\
-`Today in TAFC: Everton in talks with Moyes after Dyche leaves, the tragic connection that overshadows Accrington Stanley vs Liverpool`\
-https://nytimes.com/athletic/6051838/2025/01/10/everton-moyes-dyche-liverpool-accrington-stanley-murder/
-
-**The blazes also raise worries for Southern California wildlife.**\
-`By Catrin Einhorn`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/california-wildfires-wildlife
 
