@@ -1,3 +1,7 @@
+**For a family of five, loss and an unknown future.**\
+`By Emily Baumgaertner`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/for-a-family-of-five-loss-and-an-unknown-future
+
 **Rams-Vikings wild-card game moved to Arizona due to L.A. wildfires**\
 `The league pivoted to its contingency plan after the deadly fires burned tens of thousands of acres around Los Angeles.`\
 https://nytimes.com/athletic/6048543/2025/01/09/rams-vikings-wild-card-los-angeles-wildfires-arizona/
