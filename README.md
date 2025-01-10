@@ -1,3 +1,27 @@
+**Chargers-Texans wild-card preview: Pass rush, red zone efficiency among keys**\
+`The Chargers arrived in Houston on Thursday after adjusting their practice schedule the past two days during the devastating wildfires.`\
+https://nytimes.com/athletic/6051077/2025/01/10/chargers-texans-nfl-playoffs-wild-card-preview/
+
+**How Bo Nix became 'that guy' for Broncos: From paintball wars to fourth-quarter comebacks**\
+`Nix finished his rookie season with 34 total touchdowns, but his impact for a young Broncos team went beyond his numbers.`\
+https://nytimes.com/athletic/6050303/2025/01/10/bo-nix-broncos-afc-playoffs-bills/
+
+**Max Kepler hopes to unlock more power and boost a Phillies outfield that struggled to slug**\
+`Two years ago, Kepler bashed 24 homers with a .484 slugging percentage. The Phillies believe he can recapture that form. So does Kepler.`\
+https://nytimes.com/athletic/6051299/2025/01/10/max-kepler-phillies-outfield-power/
+
+**Lee Grant interview: Lessons from Pogba and Mourinho - and Ipswich's 'superpower'**\
+`The ex-Manchester United goalkeeper on how his Old Trafford experiences — good and bad — are shaping his attitude to coaching `\
+https://nytimes.com/athletic/6043860/2025/01/10/lee-grant-interview-ipswich-manchester-united/
+
+**49ers macro minute: Snap totals highlight rookies, show the offseason work ahead**\
+`With apologies to the offensive line, the 49ers' defensive line seems like the area that will require the most work in the offseason.`\
+https://nytimes.com/athletic/6050708/2025/01/10/49ers-2024-snap-counts-rookies-dominic-puni/
+
+**Drew Allar's late interception in Orange Bowl loss leaves Penn State with familiar gut punch**\
+`Penn State had chances to change narratives that have haunted the program. But a doomed final drive led to a 27-24 loss to Notre Dame.`\
+https://nytimes.com/athletic/6051675/2025/01/10/penn-state-drew-allar-orange-bowl-notre-dame/
+
 **The Athletic FC: Everton eye Moyes as Dyche departs, TV commercial murder link**\
 `Today in TAFC: Everton in talks with Moyes after Dyche leaves, the tragic connection that overshadows Accrington Stanley vs Liverpool`\
 https://nytimes.com/athletic/6051838/2025/01/10/everton-moyes-dyche-liverpool-accrington-stanley-murder/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/10/business/dealbook/la-wildfires-insurance-crisis.h
 **Kremlin Confirms Readiness for Putin to Meet Trump**\
 `The president-elect had said the Russian leader wanted to meet him to discuss the war in Ukraine. The Kremlin stopped short of that, saying it could only happen after he takes office.`\
 https://nytimes.com/2025/01/10/world/europe/trump-putin-meeting.html
-
-**The sentencing was originally planned for July. It was delayed again and again.**\
-`By Kate Christobek`\
-https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/the-sentencing-was-originally-planned-for-july-it-was-delayed-again-and-again
-
-**Labor market strength is contending with politics and the economic cycle.**\
-`By Talmon Joseph Smith`\
-https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/labor-market-strength-is-contending-with-politics-and-the-economic-cycle
-
-**Israeli Hostage Declared Killed in Gaza as Fears for Captives Mount**\
-`Hamza Ziyadne, 23, was abducted in the 2023 Hamas-led attack on Israel alongside his siblings and father, whose body was also recovered this week.`\
-https://nytimes.com/2025/01/10/world/middleeast/israeli-hostage-declared-dead-gaza.html
-
-**The Pulse: The best game of the Playoff so far**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6049712/2025/01/10/notre-dame-penn-state-cfp-the-pulse/
-
-**Nuclear Power Giant to Acquire Natural Gas Plants for $16.4 Billion**\
-`Constellation Energy’s deal to buy Calpine is being driven by fast-rising demand for electricity by the technology industry.`\
-https://nytimes.com/2025/01/10/business/energy-environment/constellation-energy-calpine.html
-
-**Fantasy football 2025: CMC, rookie receivers and more notable risers and fallers**\
-`A more detailed look at the biggest movers in Brandon Funston's first 2025 Big Board of his Top 100 players.`\
-https://nytimes.com/athletic/6047161/2025/01/10/fantasy-footballs-top-risers-fallers-for-2025-christian-mccaffrey-rookie-receivers-and-more/
 
