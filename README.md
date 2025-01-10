@@ -1,3 +1,7 @@
+**‘Den of Thieves 2: Pantera’ Review: Tough Cop, Nice Robber**\
+`Gerard Butler and O’Shea Jackson Jr., adversaries in the original film, now buddy up to steal some diamonds in France.`\
+https://nytimes.com/2025/01/09/movies/den-of-thieves-2-pantera-review.html
+
 **Federal Court Halts Hearing on Eve of Guilty Plea by Accused 9/11 Mastermind**\
 `A three-judge appeals panel will decide whether the plea deal Khalid Shaikh Mohammed reached to avoid a death-penalty trial remains valid.`\
 https://nytimes.com/2025/01/09/us/politics/911-khalid-shaikh-mohammed-plea-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050968/2025/01/09/mls-apologizes-false-atlanta-uni
 **What it means when officials say a fire is ‘contained.’**\
 `By Adeel Hassan`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/what-it-means-when-officials-say-a-fire-is-contained
-
-**How Outlets on the Left and Right Have Covered the Los Angeles Wildfires**\
-`Media outlets reported similarly on the destruction caused by the fires that raced through Southern California. But partisan publications attributed them to very different causes.`\
-https://nytimes.com/2025/01/09/business/media/los-angeles-wildfires-media-coverage.html
 
