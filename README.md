@@ -1,3 +1,11 @@
+**Appeals Court Declines to Block Release of Special Counsel Report on Trump Cases**\
+`But the court left in place an injunction that bars the Justice Department from disclosing the report for another three days.`\
+https://nytimes.com/2025/01/09/us/politics/trump-appeals-court-special-counsel-report.html
+
+**Rams cut work day short due to new fire; game moved**\
+`The Rams' players and staff left the practice facility early Thursday to get to their homes and coordinate with family members.`\
+https://nytimes.com/athletic/6050928/2025/01/09/rams-practice-fires-playoff-game-moved/
+
 **Anita Bryant, Whose Anti-Gay Politics Undid a Singing Career, Is Dead at 84**\
 `The former beauty queen and spokeswoman for Florida orange juice was an all-American entertainer before she began crusading against L.G.B.T.Q. rights.`\
 https://nytimes.com/2025/01/09/arts/music/anita-bryant-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/us/los-angeles-fire-water-hydrant-failure.html
 **Evacuation Alert Was Mistakenly Sent to All of Los Angeles County**\
 `The emergency alert caused confusion for untold residents for more about 20 minutes until a second message was sent announcing the error.`\
 https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
-
-**Alec Baldwin Sues New Mexico Prosecutors Over Dismissed ‘Rust’ Case**\
-`Lawyers for the actor accused law enforcement officials of waging a “malicious prosecution” against him after the 2021 shooting death of a cinematographer on a film set.`\
-https://nytimes.com/2025/01/09/movies/alec-baldwin-sues-prosecutors-rust.html
-
-**For a family of five, loss and an unknown future.**\
-`By Emily Baumgaertner`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/for-a-family-of-five-loss-and-an-unknown-future
 
