@@ -1,3 +1,11 @@
+**U.S. Imposes New Sanctions to Squeeze Russia’s Energy Sector**\
+`The Biden administration is cracking down on the Russian “shadow fleet” and taking steps to curb oil and gas production.`\
+https://nytimes.com/2025/01/10/us/politics/us-russia-sanctions.html
+
+**NBA's (Low-Key) Trade Deadline Team: Jerami Grant, Mitchell Robinson and more**\
+`There are the guys you probably haven’t thought much about, but they seem highly likely to change teams before Feb. 6.`\
+https://nytimes.com/athletic/6051458/2025/01/10/nba-trade-rumors-jeremi-grant-mitchell-robinson/
+
 **NHL Power Rankings: A new No. 1 at the midpoint and players who need to step up**\
 `The middle of the season offers a great chance to reflect on what’s happened and look ahead to what could happen going forward.`\
 https://nytimes.com/athletic/6052013/2025/01/10/nhl-power-rankings-golden-knights-2/
