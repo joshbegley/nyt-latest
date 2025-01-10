@@ -22,8 +22,8 @@ https://nytimes.com/video/us/100000009918204/jimmy-carter-funeral.html
 `As wildfires roar into residential neighborhoods, firefighters in California and elsewhere are finding that water systems can’t keep up with the demand.`\
 https://nytimes.com/2025/01/09/us/los-angeles-fire-water-hydrant-failure.html
 
-**An evacuation alert was mistakenly sent to all of Los Angeles County.**\
-`By Nicholas Bogel-Burroughs, Jesus Jiménez and Corina Knoll`\
+**Evacuation Alert Was Mistakenly Sent to All of Los Angeles County**\
+`The emergency alert caused confusion for untold residents for more about 20 minutes until a second message was sent announcing the error.`\
 https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
 
 **Alec Baldwin Sues New Mexico Prosecutors Over Dismissed ‘Rust’ Case**\
