@@ -3,7 +3,7 @@
 https://nytimes.com/2025/01/10/us/politics/takeaways-tiktok-supreme-court.html
 
 **In North Carolina, Republicans Try to Reverse a Supreme Court Election Loss**\
-`An incumbent Democrat narrowly won re-election to the state’s highest court. But the Republican-controlled court is considering an unusual protest from her challenger that could reverse the result.`\
+`An incumbent Democrat narrowly won re-election to the state’s highest court. But the Republican-controlled court is considering an unusual protest from her challenger that could flip the result.`\
 https://nytimes.com/2025/01/10/us/north-carolina-supreme-court.html
 
 **Remembering the Moments That Jolted Pop Music Last Year**\
