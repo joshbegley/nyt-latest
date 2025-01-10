@@ -1,3 +1,19 @@
+**L.A. Utilities’ Decisions to Keep Power on Are Scrutinized**\
+`Energy experts said that the decision by utility companies serving the Los Angeles area not to turn off many power lines during high winds likely increased the risk of fires.`\
+https://nytimes.com/2025/01/10/us/california-fires-la-power.html
+
+**Lemina needs to make decision on his Wolves future - Pereira**\
+`Wolverhampton Wanderers head coach Vitor Pereira says former captain Mario Lemina must decide whether he wants to stay at the club for the remainder of their Premier League relegation battle.`\
+https://nytimes.com/athletic/6052486/2025/01/10/mario-lemina-wolves-future/
+
+**Morato: The emotions of losing teenage sister to cancer that inspire him at Forest**\
+`Morato explains how the death of his sister, aged 15, pushes him on at Nottingham Forest in their quest for a European place`\
+https://nytimes.com/athletic/6052104/2025/01/10/morato-nottingham-forest-sister-cancer/
+
+**'We're not close': Colts GM Chris Ballard acknowledges roster-building failures, vows change**\
+`"I don't blame (fans) for being pissed and questioning," Ballard said. "They should. ... I need to earn their trust back."`\
+https://nytimes.com/athletic/6053198/2025/01/10/colts-chris-ballard-roster-failures-change/
+
 **Timothée Chalamet Will Be Both Host and Musical Guest on ‘S.N.L.’**\
 `Chalamet, who stars as Bob Dylan in “A Complete Unknown,” will join the rare club of performers that has been asked to do double duty on “Saturday Night Live.”`\
 https://nytimes.com/2025/01/10/arts/timothee-chalamet-saturday-night-live-host.html
