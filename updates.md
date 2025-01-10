@@ -1,3 +1,7 @@
+**Rams-Vikings wild-card game moved to Arizona due to L.A. wildfires**\
+`The league pivoted to its contingency plan after the deadly fires burned tens of thousands of acres around Los Angeles.`\
+https://nytimes.com/athletic/6048543/2025/01/09/rams-vikings-wild-card-los-angeles-wildfires-arizona/
+
 **MLS apologizes for falsely announcing Kyogo's transfer to Atlanta United**\
 `Atlanta signed U.S.-born Cayman Togashi, not Kyogo, on Wednesday. `\
 https://nytimes.com/athletic/6050968/2025/01/09/mls-apologizes-false-atlanta-united-transfer/

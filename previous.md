@@ -1,3 +1,7 @@
+**Rams-Vikings wild-card game moved to Arizona due to L.A. wildfires**\
+`The league pivoted to its contingency plan after the deadly fires burned tens of thousands of acres around Los Angeles.`\
+https://nytimes.com/athletic/6048543/2025/01/09/rams-vikings-wild-card-los-angeles-wildfires-arizona/
+
 **MLS apologizes for falsely announcing Kyogo's transfer to Atlanta United**\
 `Atlanta signed U.S.-born Cayman Togashi, not Kyogo, on Wednesday. `\
 https://nytimes.com/athletic/6050968/2025/01/09/mls-apologizes-false-atlanta-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/pizzagate-shooter-killed-police.html
 **Cardinals avoid arbitration with Ryan Helsley, but not Brendan Donovan or Lars Nootbaar**\
 `As the likelihood of Nolan Arenado remaining in St. Louis grows, the Cardinals must find other ways to trim payroll. `\
 https://nytimes.com/athletic/6050063/2025/01/09/cardinals-arbitration-ryan-helsley/
-
-**Bob Veale, Towering Fireballer for the ’60s Pirates, Dies at 89**\
-`A 6-foot-6 strikeout king, he was a star of the Pittsburgh rotation who left batters wary of both his fastball and his wildness.`\
-https://nytimes.com/2025/01/09/sports/baseball/bob-veale-dead.html
 
