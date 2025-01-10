@@ -1,3 +1,7 @@
+**A group of experienced practitioners is arguing before the justices today.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/a-group-of-experienced-practitioners-is-arguing-before-the-justices-today
+
 **TikTok stars and marketers brace for app’s disappearance.**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-stars-and-marketers-brace-for-apps-disappearance
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052163/2025/01/10/enzo-maresca-chelsea-chilwell-ca
 **These lawyers defending Trump are poised to join his administration.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/these-lawyers-defending-trump-are-poised-to-join-his-administration
-
-**Man Utd 'need to improve recruitment' - Amorim**\
-`Ruben Amorim has said that Manchester United &#8220;need to improve recruitment&#8221; and maintained he wants Kobbie Mainoo to stay at the club.`\
-https://nytimes.com/athletic/6052171/2025/01/10/manchester-united-transfers-amorim-mainoo/
 

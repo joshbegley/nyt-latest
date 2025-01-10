@@ -1,3 +1,7 @@
+**A group of experienced practitioners is arguing before the justices today.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/a-group-of-experienced-practitioners-is-arguing-before-the-justices-today
+
 **TikTok stars and marketers brace for app’s disappearance.**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-stars-and-marketers-brace-for-apps-disappearance
