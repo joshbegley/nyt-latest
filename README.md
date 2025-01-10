@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6052469/2025/01/10/4-nations-subs/
 https://nytimes.com/2025/01/10/business/media/hoda-kotb-today-nbc.html
 
 **Stocks and Bonds Rattled as Odds of Fed Rate Cut Recede**\
-`Stronger-than-expected data on the labor market has intensified concerns that the economy continues to run at a solid pace, amplifying fears about stubborn inflation.`\
+`Stronger-than-expected data on the labor market has added to clues that the economy continues to run at a solid pace, amplifying fears about stubborn inflation.`\
 https://nytimes.com/2025/01/10/business/stocks-bonds-inflation-fed-jobs.html
 
 **Senators sign forward Ridly Greig to 4-year contract extension**\
