@@ -1,3 +1,11 @@
+**How Outlets on the Left and Right Have Covered the Los Angeles Wildfires**\
+`Media outlets reported similarly on the destruction caused by the fires that raced through Southern California. But partisan publications attributed them to very different causes.`\
+https://nytimes.com/2025/01/09/business/media/los-angeles-wildfires-media-coverage.html
+
+**Reds sign all 8 arbitration-eligible players to 1-year deals**\
+`Included in the group are three players they acquired via trade: Brady Singer, Gavin Lux and Jose Trevino.`\
+https://nytimes.com/athletic/6050985/2025/01/09/reds-sign-arbitration-eligible-players/
+
 **Private fire crews protect some businesses and homes for a price.**\
 `An upscale outdoor mall in Pacific Palisades, Calif., has survived so far with help from private firefighters.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/private-fire-crews-protect-some-businesses-and-homes-for-a-price
