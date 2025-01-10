@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Qasim Nauman, Corina Knoll and Soumya Karlamangla`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/here-are-the-latest-developments
+
+**Live Updates: Fires Devastate Los Angeles as Death Toll Rises to 10**\
+`Fierce winds fueled new fires and made it harder to contain the largest blazes, which have destroyed whole neighborhoods and have become some of the most devastating in California’s history.`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california
+
 **Manchester United Women’s Ella Toone to return following two-month injury layoff**\
 `Manchester United Women midfielder Ella Toone is set to return following a two-month injury absence.`\
 https://nytimes.com/athletic/6051734/2025/01/10/ella-toone-injury-update-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/nyregion/big-city-congestion-pricing.html
 **Federal Grand Jury Has Heard More Evidence in Case Against Mayor Adams**\
 `Prosecutors have presented additional evidence to a grand jury in the case against Eric Adams, his lawyer said in court papers, a sign new charges may be near.`\
 https://nytimes.com/2025/01/10/nyregion/eric-adams-corruption-grand-jury.html
-
-**‘Ad Vitam’ Review: High Stakes and Paragliding**\
-`Lean, fast and furious action movies may look simple on the surface but they’re hard to pull off, as this new French import demonstrates.`\
-https://nytimes.com/2025/01/10/movies/ad-vitam-review.html
-
-**What We Know About Trump’s Sentencing**\
-`Donald J. Trump’s sentencing allows him to begin mounting a formal appeal, which could take months or years.`\
-https://nytimes.com/2025/01/10/nyregion/trump-sentencing-appeal.html
 

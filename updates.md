@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Qasim Nauman, Corina Knoll and Soumya Karlamangla`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/here-are-the-latest-developments
+
+**Live Updates: Fires Devastate Los Angeles as Death Toll Rises to 10**\
+`Fierce winds fueled new fires and made it harder to contain the largest blazes, which have destroyed whole neighborhoods and have become some of the most devastating in California’s history.`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california
+
 **Manchester United Women’s Ella Toone to return following two-month injury layoff**\
 `Manchester United Women midfielder Ella Toone is set to return following a two-month injury absence.`\
 https://nytimes.com/athletic/6051734/2025/01/10/ella-toone-injury-update-manchester-united/
