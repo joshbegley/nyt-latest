@@ -1,3 +1,7 @@
+**Jobs report is a ‘wild card’ in a shaky week for markets.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/jobs-report-is-a-wild-card-in-a-shaky-week-for-markets
+
 **The Fed Is in No Rush to Cut Rates, Even if There Is a Weak Jobs Report**\
 `Fed officials have signaled that it will take more than one weak report to convince them that the labor market is deteriorating.`\
 https://nytimes.com/2025/01/10/business/fed-rates-jobs.html
