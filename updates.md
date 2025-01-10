@@ -1,3 +1,11 @@
+**Shiu Ka-chun, Advocate for Hong Kong Prisoners, Is Dead at 55**\
+`A social worker and teacher imprisoned for his activism, he later wrote about the toll of incarceration and worked to help others behind bars.`\
+https://nytimes.com/2025/01/10/world/asia/shiu-ka-chun-hong-kong-activist-dead.html
+
+**Why Everton, Ashley Young were 'gutted' by Peterborough's substitutions in FA Cup tie**\
+`The FA Cup is soccer&#8217;s oldest surviving cup competition but never before in its 154-year history has a match featured a player lining up against his own son.`\
+https://nytimes.com/athletic/6051760/2025/01/10/ashley-young-tyler-fa-cup-everton-peterborough/
+
 **Fires Prompt Water Advisories for Some in the L.A. Area**\
 `The devastating wildfires have raised concerns about the safety of the water supply in some places. Here’s a list of the warnings and instructions for residents.`\
 https://nytimes.com/2025/01/10/us/los-angeles-fires-water-advisories.html
