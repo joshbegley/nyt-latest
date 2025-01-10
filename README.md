@@ -1,40 +1,40 @@
-**China’s Central Bank Stops Buying Bonds as Deflation Fears Grip Economy**\
-`The unexpected action is intended to tamp down a potential bubble in the bond market fueled by investors shunning riskier assets like stocks and real estate.`\
-https://nytimes.com/2025/01/10/business/china-central-bank-bonds.html
+**How America Tuned In to the TV Dinner**\
+`The illustrator Koren Shadmi chronicles the half-baked history of the once beloved Swanson meal-in-a-tray.`\
+https://nytimes.com/2025/01/10/dining/america-tv-dinner.html
 
-**‘Babygirl’ | Anatomy of a Scene**\
-`The writer and director Halina Reijn narrates a sequence from her film, featuring Nicole Kidman and Harris Dickinson.`\
-https://nytimes.com/video/movies/100000009916744/babygirl-anatomy-of-a-scene.html
+**The Tragedy of Joe Biden**\
+`He didn’t get the credit he deserved on the economy.`\
+https://nytimes.com/2025/01/10/opinion/joe-biden-economy.html
 
-**Here are the latest developments.**\
-`By Qasim Nauman, Corina Knoll and Soumya Karlamangla`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/here-are-the-latest-developments
+**I’m a Climate Scientist. I Fled Los Angeles Two Years Ago.**\
+`After the Bobcat Fire, L.A. no longer felt safe.`\
+https://nytimes.com/2025/01/10/opinion/la-fires-los-angeles-wildfires.html
 
-**Live Updates: Fires Devastate Los Angeles as Death Toll Rises to 10**\
-`Fierce winds fueled new fires and made it harder to contain the largest blazes, which have destroyed whole neighborhoods and have become some of the most devastating in California’s history.`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california
+**Can Democrats Be the Party of the Future Again?**\
+`Ro Khanna, a progressive from Silicon Valley, on Big Tech’s rightward lurch.`\
+https://nytimes.com/2025/01/10/opinion/democrats-ro-khanna-tech.html
 
-**Manchester United Women’s Ella Toone to return following two-month injury layoff**\
-`Manchester United Women midfielder Ella Toone is set to return following a two-month injury absence.`\
-https://nytimes.com/athletic/6051734/2025/01/10/ella-toone-injury-update-manchester-united/
+**The New York Times News Quiz, Jan 10, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/01/10/briefing/quiz-wildfires-jimmy-carter-trudeau.html
 
-**Why Arsenal will be wearing an all-white kit in the FA Cup**\
-`The kit promotes an anti-knife crime campaign called No More Red`\
-https://nytimes.com/athletic/6049934/2025/01/10/arsenal-white-fa-cup-kit/
+**With Hearings Imminent, Partisan Fight Escalates Over Trump Cabinet**\
+`Democrats are demanding that Republicans slow consideration of picks for the new administration until they can review background checks, as the G.O.P. faces major pressure to quickly confirm them.`\
+https://nytimes.com/2025/01/10/us/politics/partisan-fight-trump-cabinet.html
 
-**Real Madrid 3 Real Mallorca 0: Vinicius Jr's key role, red-hot Rodrygo - now for Clasico revenge?**\
-`Madrid prevailed in a tense Supercopa de Espana semi-final with Mallorca to set up a meeting with their arch-rivals in Saudi Arabia`\
-https://nytimes.com/athletic/6043918/2025/01/10/real-madrid-3-real-mallorca-0-vinicius-clasico/
+**Supreme Court to Hear Challenge to Law That Could Shut Down TikTok**\
+`The justices are expected to rule quickly in the case, which pits national security concerns about China against the First Amendment’s protection of free speech.`\
+https://nytimes.com/2025/01/10/us/politics/supreme-court-tiktok-ban-law.html
 
-**Neymar joining Inter Miami 'impossible' due to MLS salary cap - Mascherano**\
-`Inter Miami head coach Javier Mascherano has said it is &#8220;impossible&#8221; for the club to sign Neymar due to the salary cap in MLS.`\
-https://nytimes.com/athletic/6051683/2025/01/10/inter-miami-neymar-transfer/
+**Lebanon Turns a Political Page as Hezbollah’s Hold Is Weakened**\
+`A stinging defeat in war has left the once untouchable group on its most uncertain footing in years.`\
+https://nytimes.com/2025/01/10/world/middleeast/lebanon-hezbollah-politics.html
 
-**Southern California Wildfires**\
-`What’s your reaction to the devastating fires in the Los Angeles area?`\
-https://nytimes.com/2025/01/10/learning/southern-california-wildfires.html
+**Watch Nicole Kidman and Harris Dickinson Connect in ‘Babygirl’**\
+`The film’s writer and director, Halina Reijn, narrates a sequence.`\
+https://nytimes.com/2025/01/10/movies/watch-nicole-kidman-and-harris-dickinson-connect-in-babygirl.html
 
-**Trump Is Set to Avoid Punishment, but Sentencing Will Make Him a Felon**\
-`Though the president-elect is expected to avoid jail time, his sentencing on 34 counts will formalize his status as a felon and make him the first to carry that distinction into the White House.`\
-https://nytimes.com/2025/01/10/nyregion/trump-sentencing-felon-hush-money.html
+**Effectively Banned by the Government, a Syrian Film Resurfaces**\
+`“Stars in Broad Daylight,” with a domineering character who strongly resembles Hafez al-Assad, had one official showing in Damascus. Now it’s been restored.`\
+https://nytimes.com/2025/01/10/movies/syria-film.html
 
