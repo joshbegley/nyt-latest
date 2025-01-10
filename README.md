@@ -1,3 +1,7 @@
+**Jalen Hurts: A full participant in practice, a promising sign for a playoff return**\
+`Hurts was a full participant in practice Thursday, with the Eagles gaining key assets just before the playoffs begin. `\
+https://nytimes.com/athletic/6050104/2025/01/10/jalen-hurts-eagles-playoff-return-concussion/
+
 **Shiu Ka-chun, Advocate for Hong Kong Prisoners, Is Dead at 55**\
 `A social worker and teacher imprisoned for his activism, he later wrote about the toll of incarceration and worked to help others behind bars.`\
 https://nytimes.com/2025/01/10/world/asia/shiu-ka-chun-hong-kong-activist-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/opinion/joe-biden-economy.html
 **I’m a Climate Scientist. I Fled Los Angeles Two Years Ago.**\
 `After the Bobcat Fire, L.A. no longer felt safe.`\
 https://nytimes.com/2025/01/10/opinion/la-fires-los-angeles-wildfires.html
-
-**Can Democrats Be the Party of the Future Again?**\
-`Ro Khanna, a progressive from Silicon Valley, on Big Tech’s rightward lurch.`\
-https://nytimes.com/2025/01/10/opinion/democrats-ro-khanna-tech.html
 
