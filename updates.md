@@ -1,3 +1,11 @@
+**Cubs could be heading toward an arbitration hearing against Kyle Tucker**\
+`The Cubs were able to reach an agreement with Justin Steele on a $6.55 million salary for 2025.`\
+https://nytimes.com/athletic/6051215/2025/01/09/cubs-kyle-tucker-arbitration/
+
+**A Rebuke to Trump Provides a Telling Portrait of a Divided Supreme Court**\
+`Two Republican appointees, Chief Justice Roberts and Justice Barrett, joined the court’s three liberals in ordering the president-elect to face sentencing on Friday.`\
+https://nytimes.com/2025/01/09/us/supreme-court-trump-hush-money.html
+
 **2024 Brought the World to a Dangerous Warming Threshold. Now What?**\
 `Global temperatures last year crept past a key goal, raising questions about how much nations can stop the planet from heating up further.`\
 https://nytimes.com/interactive/2025/01/09/climate/2024-heat-record-climate-goal.html
