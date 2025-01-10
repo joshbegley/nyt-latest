@@ -1,3 +1,11 @@
+**Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
+`The Pete Alonso market might be coming down to a short-term deal, people briefed on the matter said.`\
+https://nytimes.com/athletic/6053174/2025/01/10/mets-pete-alonso-negotiations-contract/
+
+**The raw potential of Abdukodir Khusanov signals the start of Manchester City's rebuild**\
+`The young Uzbekistan defender comes with a growing reputation and is being chosen as somebody to lead City into a new era`\
+https://nytimes.com/athletic/6052548/2025/01/10/abdukodir-khusanov-manchester-city-profile/
+
 **Former LSU WR Kyren Lacy facing negligent homicide, hit-and-run charges**\
 `Louisiana State Police announced Friday that a warrant has been issued for Lacy’s arrest.`\
 https://nytimes.com/athletic/6053023/2025/01/10/kyren-lacy-lsu-hit-run-homicide-warrant/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/havana-syndrome-causes.html
 **The Books We’re Excited About in Early 2025**\
 `The latest from a Nobel laureate, a “Hunger Games” prequel and more.`\
 https://nytimes.com/2025/01/10/books/review/podcast-anticipated-books-2025.html
-
-**Can I Ban Books From My Front-Yard Little Free Library?**\
-`The magazine’s Ethicist columnist on the curation of a book collection.`\
-https://nytimes.com/2025/01/10/magazine/little-free-library-ethics.html
-
-**Homeowners Affected by Palisades and Eaton Fires Get Insurance Protections**\
-`California’s insurance commissioner won’t allow canceled or nonrenewed policies in and around the fire zones for a year.`\
-https://nytimes.com/2025/01/10/us/homeowners-insurance-fires-palisades-eaton.html
 
