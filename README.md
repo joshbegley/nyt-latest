@@ -1,3 +1,7 @@
+**Retailers may be taking a more staggered approach to holiday hiring.**\
+`By Jordyn Holman`\
+https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/retailers-may-be-taking-a-more-staggered-approach-to-holiday-hiring
+
 **Andy Cowell becomes Aston Martin team principal amid reshuffle**\
 `Cowell replaces Mike Krack, who will take up the role of chief trackside officer.`\
 https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-principal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050791/2025/01/10/packers-eagles-playoffs-jordan-l
 **Daboll is back, a new QB is coming, but play-caller remains a Giant question**\
 `Daboll could give up play-calling after a disappointing 2024 season, but will offensive coordinator Mike Kafka be there to take over?`\
 https://nytimes.com/athletic/6048756/2025/01/10/giants-play-caller-2025-season-brian-daboll-mike-kafka/
-
-**What's next for QB Geno Smith, Seahawks? Breaking down Seattle's 4 offseason options**\
-`The veteran quarterback's future with the team is a hot topic. What are the different paths Seattle could take?`\
-https://nytimes.com/athletic/6049049/2025/01/10/seahawks-geno-smith-offseason-options/
 
