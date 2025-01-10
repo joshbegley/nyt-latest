@@ -1,3 +1,7 @@
+**Inside Sean Dyche's Everton exit: TFG tension, transfer discord, Potter interest**\
+`Sean Dyche's exit seemed inevitable - but the speed of it caught players and fans on the hop. This is how it happened and the fallout`\
+https://nytimes.com/athletic/6051934/2025/01/10/sean-dyche-everton-exit-friedkin-group/
+
 **Los Angeles Artists Mourn as Their Studios and Artworks Go Up in Smoke**\
 `Artists who lived and worked in Altadena and the Pacific Palisades are worrying about irreplaceable losses, and their livelihoods.`\
 https://nytimes.com/2025/01/10/us/los-angeles-artists-fire-destroyed.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009918012/how-trump-could-justify-hi
 **Missing the Olympics? Here’s your one-stop shop for following NCAA women’s gymnastics**\
 `Jordan Chiles, Jade Carey and more: Here’s your one-stop shop for how it all works, who to watch and how to follow the season.`\
 https://nytimes.com/athletic/6050778/2025/01/10/ncaa-womens-gymnastics-2025-season-preview/
-
-**Jets, Browns, Jags chosen as home teams for 2025 NFL London Games**\
-`New York and Cleveland will play at Tottenham while Jacksonville returns to Wembley Stadium.`\
-https://nytimes.com/athletic/6051829/2025/01/10/nfl-london-games-2025-jets-browns-jaguars/
 

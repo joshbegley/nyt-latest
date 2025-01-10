@@ -1,3 +1,23 @@
+**Los Angeles Artists Mourn as Their Studios and Artworks Go Up in Smoke**\
+`Artists who lived and worked in Altadena and the Pacific Palisades are worrying about irreplaceable losses, and their livelihoods.`\
+https://nytimes.com/2025/01/10/us/los-angeles-artists-fire-destroyed.html
+
+**Halloween Decorations in January? She’ll Go to Court for Them.**\
+`A Tennessee woman’s plan to update her supersize skeletons for various holidays ran afoul of local law, but she has no plans to take them down.`\
+https://nytimes.com/2025/01/10/style/halloween-decorations-tennessee.html
+
+**Row Z: Arsenal bamboozled by a moving ball, Everton's heartfelt thanks and Potter's challenge**\
+`Our weekly round-up of soccer's sillier side, featuring the managerial merry-go-round and the Carabao Cup balls that 'fly a lot'`\
+https://nytimes.com/athletic/6051935/2025/01/10/arsenal-ball-dyche-everton-potter-row-z/
+
+**Now on the College Course Menu: Personal Finance**\
+`More universities and colleges nationwide are offering courses to teach students how to manage their own money.`\
+https://nytimes.com/2025/01/10/business/personal-finance-college-course.html
+
+**After a Great Run for Stocks, Be Ready for Something Different**\
+`Sizzling returns well may continue, but our columnist suggests that it would be wise to prepare for the next storm.`\
+https://nytimes.com/2025/01/10/business/stocks-bonds-investing-trump.html
+
 **The Judge Imposing Trump’s Sentence Has Felt the Brunt of His Attacks**\
 `Justice Juan M. Merchan, an even-keeled jurist, has been in the president-elect’s cross-hairs for nearly two years.`\
 https://nytimes.com/2025/01/10/nyregion/judge-juan-merchan-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6050778/2025/01/10/ncaa-womens-gymnastics-2025-seas
 **Jets, Browns, Jags chosen as home teams for 2025 NFL London Games**\
 `New York and Cleveland will play at Tottenham while Jacksonville returns to Wembley Stadium.`\
 https://nytimes.com/athletic/6051829/2025/01/10/nfl-london-games-2025-jets-browns-jaguars/
-
-**Trump can’t appeal his conviction until after sentencing. But he is already challenging it.**\
-`By Kate Christobek and Ben Protess`\
-https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/trump-cant-appeal-his-conviction-until-after-sentencing-but-he-is-already-challenging-it
-
-**Postecoglou says Bentancur sidelined with concussion**\
-`Tottenham Hotspur head coach Ange Postecoglou says that midfielder Rodrigo Bentancur &#8220;looks like&#8221; he sustained a concussion during the first leg of Spurs&#8217; Carabao Cup semi-final against Liverpool on Wednesday.`\
-https://nytimes.com/athletic/6051940/2025/01/10/rodrigo-bentancur-tottenham-concussion/
-
-**Rams' Demarcus Robinson charged with DUI following November arrest**\
-`Robinson is set to be arraigned on Feb. 24.`\
-https://nytimes.com/athletic/6050945/2025/01/10/rams-demarcus-robinson-dui-charge/
-
-**Pistons' winning streak ends, but there are still lessons to be learned in loss**\
-`Detroit couldn't complete the comeback against Golden State in the second game of a back-to-back on Thursday.`\
-https://nytimes.com/athletic/6051651/2025/01/10/pistons-loss-warriors-cade-cunningham/
-
-**Ederson 'fine' but Man City still without Stones and Dias**\
-`Manchester City goalkeeper Ederson is “fine” but the Premier League champions are still without defenders John Stones and Ruben Dias.`\
-https://nytimes.com/athletic/6051988/2025/01/10/manchester-city-injury-news-ederson-stones-dias/
 
