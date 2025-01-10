@@ -1,3 +1,7 @@
+**Five Takeaways from Trump’s Criminal Sentencing**\
+`Friday’s punishment was largely symbolic, but it ensured that Donald J. Trump would become America’s first felon president.`\
+https://nytimes.com/2025/01/10/nyregion/five-takeaways-from-trumps-criminal-sentencing.html
+
 **An important reservoir was offline when the fires began.**\
 `The Santa Ynez Reservoir in the Pacific Palisades neighborhood had been shut down. Water there normally helps replenish tanks that were drained by firefighters.`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/an-important-reservoir-was-offline-when-the-fires-began

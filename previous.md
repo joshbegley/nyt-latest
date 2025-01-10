@@ -1,3 +1,7 @@
+**Five Takeaways from Trump’s Criminal Sentencing**\
+`Friday’s punishment was largely symbolic, but it ensured that Donald J. Trump would become America’s first felon president.`\
+https://nytimes.com/2025/01/10/nyregion/five-takeaways-from-trumps-criminal-sentencing.html
+
 **An important reservoir was offline when the fires began.**\
 `The Santa Ynez Reservoir in the Pacific Palisades neighborhood had been shut down. Water there normally helps replenish tanks that were drained by firefighters.`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/an-important-reservoir-was-offline-when-the-fires-began
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052441/2025/01/10/nba-trends-grizzlies-offense-bul
 **TikTok, caught flat-footed by the law, leaned in to Republicans in the last year.**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-caught-flat-footed-by-the-law-leaned-in-to-republicans-in-the-last-year
-
-**Ringo Starr Goes Country, and 13 More New Songs**\
-`Hear tracks by Japanese Breakfast, Lambrini Girls, SZA and others.`\
-https://nytimes.com/2025/01/10/arts/music/playlist-ringo-starr-bad-bunny-sza.html
 
