@@ -1,3 +1,15 @@
+**Leicester owners file £2.15billion claim against helicopter manufacturer over fatal crash**\
+`The family of former Leicester City chairman Vichai Srivaddhanaprabha, who died in a helicopter crash outside the club&#8217;s King Power Stadium, has filed a £2.`\
+https://nytimes.com/athletic/6052042/2025/01/10/vichai-srivaddhanaprabha-claim-helicopter-crash/
+
+**L.A. Fires Show Limits of America’s Efforts to Cope With Climate Change**\
+`California has focused on fortifying communities against wildfires. But with growing threats, that may not be enough.`\
+https://nytimes.com/2025/01/10/climate/california-fires-climate-change.html
+
+**How has the Supreme Court ruled when national security and free speech clash?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/how-has-the-supreme-court-ruled-when-national-security-and-free-speech-clash
+
 **Trump Organization Issues Ethics Pledge for President-Elect’s Second Term**\
 `The measures largely echo agreements the family made for his first term, including appointing an outside ethics lawyer and limiting Mr. Trump’s access to detailed financial information.`\
 https://nytimes.com/2025/01/10/us/politics/trump-ethics-conflicts-of-interest.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/world/europe/drug-consumption-room-glasgow-uk.htm
 **Reaction to Trump’s sentence splits along party lines.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/reaction-to-trumps-sentence-splits-along-party-lines
-
-**The bill banning TikTok has rare bipartisan support.**\
-`By Sapna Maheshwari`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-bill-banning-tiktok-has-rare-bipartisan-support
-
-**Sports Streaming Service From Media Giants Ends Before It Starts**\
-`Venu Sports, a joint venture between Disney, Fox and Warner Bros., was announced to great fanfare last year but was discontinued before it ever became available.`\
-https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
-
-**Who Are the Creators Suing Over a TikTok Ban?**\
-`The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
-https://nytimes.com/2025/01/10/us/politics/tiktok-creators-lawsuit-us-ban.html
 
