@@ -1,3 +1,7 @@
+**Missing the Olympics? Here’s your one-stop shop for following NCAA women’s gymnastics**\
+`Jordan Chiles, Jade Carey and more: Here’s your one-stop shop for how it all works, who to watch and how to follow the season.`\
+https://nytimes.com/athletic/6050778/2025/01/10/ncaa-womens-gymnastics-2025-season-preview/
+
 **Jets, Browns, Jags chosen as home teams for 2025 NFL London Games**\
 `New York and Cleveland will play at Tottenham while Jacksonville returns to Wembley Stadium.`\
 https://nytimes.com/athletic/6051829/2025/01/10/nfl-london-games-2025-jets-browns-jaguars/
