@@ -1,3 +1,11 @@
+**Fantasy football 2025: CMC, rookie receivers and more notable risers and fallers**\
+`A more detailed look at the biggest movers in Brandon Funston's first 2025 Big Board of his Top 100 players.`\
+https://nytimes.com/athletic/6047161/2025/01/10/fantasy-footballs-top-risers-fallers-for-2025-christian-mccaffrey-rookie-receivers-and-more/
+
+**Fantasy football early 2025 rankings: Ja'Marr Chase, Saquon Barkley lead off the top 100**\
+`Brandon Funston looks ahead to 2025, sharing his thoughts on his initial list of the Top 100 fantasy football players for next season.`\
+https://nytimes.com/athletic/6050527/2025/01/10/fantasy-football-early-2025-top-100-rankings-big-board/
+
 **Live Updates: Trump to Be Sentenced in N.Y. Criminal Case**\
 `The proceedings are set to begin at 9:30 a.m. Though the president-elect is expected to avoid jail time, his sentencing on 34 counts will formalize his status as a felon and make him the first to carry that distinction into the White House.`\
 https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6044149/2025/01/10/nfl-playoff-qb-power-rankings-tr
 **Padres ownership's family fight raises questions about operation of team**\
 `A lawsuit filed by late owner Peter Seidler's widow against two of his brothers may complicate matters for San Diego's front office.`\
 https://nytimes.com/athletic/6050832/2025/01/10/padres-ownership-seidler-family-fight/
-
-**Coveted by Chelsea and admired by the Premier League elite - what next for Crystal Palace's Marc Guehi?**\
-`The Crystal Palace captain and England international has entered the last 18 months of his contract and suitors are emerging once again`\
-https://nytimes.com/athletic/6049783/2025/01/10/guehi-chelsea-palace-arsenal-tottenham-liverpool-newcastle/
-
-**Meta Goes MAGA Mode + a Big Month in A.I. + HatGPT**\
-`“I think this set of changes that the company announced this week are the most important series of policy changes that they have made in the past five years.”`\
-https://nytimes.com/2025/01/10/podcasts/hardfork-meta-zuck-o3.html
 
