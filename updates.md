@@ -1,3 +1,11 @@
+**Postecoglou says Bentancur sidelined with concussion**\
+`Tottenham Hotspur head coach Ange Postecoglou says that midfielder Rodrigo Bentancur &#8220;looks like&#8221; he sustained a concussion during the first leg of Spurs&#8217; Carabao Cup semi-final against Liverpool on Wednesday.`\
+https://nytimes.com/athletic/6051940/2025/01/10/rodrigo-bentancur-tottenham-concussion/
+
+**Rams' Demarcus Robinson charged with DUI following November arrest**\
+`Robinson is set to be arraigned on Feb. 24.`\
+https://nytimes.com/athletic/6050945/2025/01/10/rams-demarcus-robinson-dui-charge/
+
 **Pistons' winning streak ends, but there are still lessons to be learned in loss**\
 `Detroit couldn't complete the comeback against Golden State in the second game of a back-to-back on Thursday.`\
 https://nytimes.com/athletic/6051651/2025/01/10/pistons-loss-warriors-cade-cunningham/
