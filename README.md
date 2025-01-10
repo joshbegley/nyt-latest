@@ -1,3 +1,7 @@
+**Russo: You can't make up how utterly ridiculous the Wild's injury situation has been**\
+`Injuries and illness are forcing the Wild to get extremely creative with the salary cap as they try to tread water.`\
+https://nytimes.com/athletic/6051515/2025/01/10/wild-injuries-defense-goalies-avalanche/
+
 **Yohe's 10 observations: Penguins get the last laugh as Crosby, McDavid each put on a show**\
 `The Penguins got the best of the Oilers through sheer hard work and smart defensive strategy — and a little star power from both teams.`\
 https://nytimes.com/athletic/6051045/2025/01/10/penguins-crosby-mcdavid-nedeljkovic-oilers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049176/2025/01/10/brighton-hurzeler-joao-pedro-wel
 **Explained: John Textor, Crystal Palace, Eagle Football and two awards of exclusivity**\
 `This week brought yet another twist in the saga around Textor's shareholding in the Premier League club — this is what we know`\
 https://nytimes.com/athletic/6046855/2025/01/10/textor-palace-lyon-sportsbank-kidd/
-
-**Milk and murder: The tragedy that overshadows Liverpool vs Accrington Stanley**\
-`An FA Cup tie that should be suffused with romance has a darker side — all thanks to a 1989 TV commercial`\
-https://nytimes.com/athletic/6049038/2025/01/10/liverpool-accrington-stanley-milk-advert-kevin-spaine/
 
