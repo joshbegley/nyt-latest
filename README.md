@@ -4,7 +4,7 @@ https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/burning-gas-
 
 **Pelicans' Zion Williamson suspended for 'violation of team policies'**\
 `"There is no excuse for being late to team activities," Williamson said on Friday.`\
-https://nytimes.com/athletic/6053357/2025/01/10/pelicans-zion-williamson-suspended-one-game-for-violation-of-team-policies/
+https://nytimes.com/athletic/6053357/2025/01/10/pelicans-zion-williamson-suspended-violation-team-policies/
 
 **James Arthur Ray, Self-Help Guide Whose Retreat Became Deadly, Dies at 67**\
 `A rising star among New Age motivational speakers, he was brought down by a disaster during one of his retreats in Arizona, where three people died in a sweat lodge.`\
