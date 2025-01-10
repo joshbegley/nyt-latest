@@ -1,3 +1,23 @@
+**The sentencing was originally planned for July. It was delayed again and again.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/the-sentencing-was-originally-planned-for-july-it-was-delayed-again-and-again
+
+**Labor market strength is contending with politics and the economic cycle.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/labor-market-strength-is-contending-with-politics-and-the-economic-cycle
+
+**Israeli Hostage Declared Killed in Gaza as Fears for Captives Mount**\
+`Hamza Ziyadne, 23, was abducted in the 2023 Hamas-led attack on Israel alongside his siblings and father, whose body was also recovered this week.`\
+https://nytimes.com/2025/01/10/world/middleeast/israeli-hostage-declared-dead-gaza.html
+
+**The Pulse: The best game of the Playoff so far**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6049712/2025/01/10/notre-dame-penn-state-cfp-the-pulse/
+
+**Nuclear Power Giant to Acquire Natural Gas Plants for $16.4 Billion**\
+`Constellation Energy’s deal to buy Calpine is being driven by fast-rising demand for electricity by the technology industry.`\
+https://nytimes.com/2025/01/10/business/energy-environment/constellation-energy-calpine.html
+
 **Fantasy football 2025: CMC, rookie receivers and more notable risers and fallers**\
 `A more detailed look at the biggest movers in Brandon Funston's first 2025 Big Board of his Top 100 players.`\
 https://nytimes.com/athletic/6047161/2025/01/10/fantasy-footballs-top-risers-fallers-for-2025-christian-mccaffrey-rookie-receivers-and-more/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6049277/2025/01/10/the-athletics-friday-football-qu
 **Khvicha Kvaratskhelia's future is uncertain - but Napoli will play hardball. They always do**\
 `Owner Aurelio De Laurentiis won't be pushed around by agents or sporting directors for his star men. What will happen with Kvaratskhelia?`\
 https://nytimes.com/athletic/6051620/2025/01/10/khvicha-kvaratskhelia-napoli-liverpool-paris-saint-germain-transfer/
-
-**Ohio State-Texas preview: Predictions, players to watch and keys to Cotton Bowl**\
-`For the second straight game, Ohio State enters its College Football Playoff matchup as the lower seed but the betting favorite.`\
-https://nytimes.com/athletic/6051422/2025/01/10/ohio-state-texas-prediction-cotton-bowl/
-
-**After a brief pause, Adam Peters and Dan Quinn remade the Commanders' locker room**\
-`Peters and Quinn have helped push the Commanders to their most wins since the 1991 Super Bowl season. `\
-https://nytimes.com/athletic/6047540/2025/01/10/commanders-roster-adam-peters-dan-quinn/
-
-**Dad jokes and snow angels: What turned Sean McDermott into a new kind of coach**\
-`Sean McDermott says he's always been a goofy dad but didn't show it until this season.`\
-https://nytimes.com/athletic/6047900/2025/01/10/bills-coach-sean-mcdermott-playoffs/
-
-**NFL postseason QB hobby power rankings: Where Mahomes, Allen, Daniels fit in**\
-`Would another Super Bowl this season for Mahomes really be the best development for the football card hobby?`\
-https://nytimes.com/athletic/6044149/2025/01/10/nfl-playoff-qb-power-rankings-trading-cards/
-
-**Padres ownership's family fight raises questions about operation of team**\
-`A lawsuit filed by late owner Peter Seidler's widow against two of his brothers may complicate matters for San Diego's front office.`\
-https://nytimes.com/athletic/6050832/2025/01/10/padres-ownership-seidler-family-fight/
 
