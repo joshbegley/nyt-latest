@@ -1,3 +1,7 @@
+**Why Arsenal will be wearing an all-white kit in the FA Cup**\
+`The kit promotes an anti-knife crime campaign called No More Red`\
+https://nytimes.com/athletic/6049934/2025/01/10/arsenal-white-fa-cup-kit/
+
 **Real Madrid 3 Real Mallorca 0: Vinicius Jr's key role, red-hot Rodrygo - now for Clasico revenge?**\
 `Madrid prevailed in a tense Supercopa de Espana semi-final with Mallorca to set up a meeting with their arch-rivals in Saudi Arabia`\
 https://nytimes.com/athletic/6043918/2025/01/10/real-madrid-3-real-mallorca-0-vinicius-clasico/
