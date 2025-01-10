@@ -1,3 +1,11 @@
+**Trump Organization Issues Ethics Pledge for President-Elect’s Second Term**\
+`The measures largely echo agreements the family made for his first term, including appointing an outside ethics lawyer and limiting Mr. Trump’s access to detailed financial information.`\
+https://nytimes.com/2025/01/10/us/politics/trump-ethics-conflicts-of-interest.html
+
+**Read the Trump Family’s Ethics Agreement**\
+`The Trump Organization issued an ethics agreement that it said would govern how the family and President-elect Donald J. Trump would conduct themselves over the next four years.`\
+https://nytimes.com/interactive/2025/01/10/us/january-10-2025-quinn-emanuel-white-paper-president-trumps-second-term-in-office.html
+
 **Scoop City: Your 5-minute wild-card preview**\
 `A quick preview of every matchup in the NFL's wild card round, newsletter-style`\
 https://nytimes.com/athletic/6052691/2025/01/10/nfl-wild-card-preview-quick-scoop-city/

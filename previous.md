@@ -1,3 +1,11 @@
+**Trump Organization Issues Ethics Pledge for President-Elect’s Second Term**\
+`The measures largely echo agreements the family made for his first term, including appointing an outside ethics lawyer and limiting Mr. Trump’s access to detailed financial information.`\
+https://nytimes.com/2025/01/10/us/politics/trump-ethics-conflicts-of-interest.html
+
+**Read the Trump Family’s Ethics Agreement**\
+`The Trump Organization issued an ethics agreement that it said would govern how the family and President-elect Donald J. Trump would conduct themselves over the next four years.`\
+https://nytimes.com/interactive/2025/01/10/us/january-10-2025-quinn-emanuel-white-paper-president-trumps-second-term-in-office.html
+
 **Scoop City: Your 5-minute wild-card preview**\
 `A quick preview of every matchup in the NFL's wild card round, newsletter-style`\
 https://nytimes.com/athletic/6052691/2025/01/10/nfl-wild-card-preview-quick-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
 **Who Are the Creators Suing Over a TikTok Ban?**\
 `The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
 https://nytimes.com/2025/01/10/us/politics/tiktok-creators-lawsuit-us-ban.html
-
-**Review: She’s the Dancing Body, He’s the Restless Mind**\
-`Monica Bill Barnes and Robbie Saenz de Viteri ring in the New Year in their physical and introspective “Many Happy Returns.”`\
-https://nytimes.com/2025/01/10/arts/dance/review-monica-bill-barnes-many-happy-returns.html
-
-**Hickey signs Brentford contract extension until 2028**\
-`Aaron Hickey has signed a contract extension with Brentford until 2028.`\
-https://nytimes.com/athletic/6052607/2025/01/10/aaron-hickey-brentford-contract/
 
