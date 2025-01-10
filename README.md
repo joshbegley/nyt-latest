@@ -1,3 +1,15 @@
+**What would a TikTok ban actually look like?**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/what-would-a-tiktok-ban-actually-look-like
+
+**Live Updates: Supreme Court Will Hear Arguments on TikTok Sale**\
+`Congress says the popular video app poses a looming threat to the nation’s security because of its Chinese owner. What the justices decide could determine if the app is shut down.`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court
+
+**A Super Bowl Cinderella? Ranking the underdogs most likely to make a title run**\
+`In ranking the nine teams outside of the top five Super Bowl contenders, should we believe in the Packers?`\
+https://nytimes.com/athletic/6049597/2025/01/10/2025-nfl-playoff-underdogs-ranked/
+
 **Inside Sean Dyche's Everton exit: TFG tension, transfer discord, Potter interest**\
 `Sean Dyche's exit seemed inevitable - but the speed of it caught players and fans on the hop. This is how it happened and the fallout`\
 https://nytimes.com/athletic/6051934/2025/01/10/sean-dyche-everton-exit-friedkin-group/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/business/stocks-bonds-investing-trump.html
 **The Judge Imposing Trump’s Sentence Has Felt the Brunt of His Attacks**\
 `Justice Juan M. Merchan, an even-keeled jurist, has been in the president-elect’s cross-hairs for nearly two years.`\
 https://nytimes.com/2025/01/10/nyregion/judge-juan-merchan-trump.html
-
-**Bradley Beal, now off the bench, might be playing his best basketball for the Suns**\
-`As he left the arena Thursday night, Beal didn’t sound like someone ready to give in. His role has changed. He has not.`\
-https://nytimes.com/athletic/6051727/2025/01/10/bradley-beal-phoenix-suns-bench-role/
-
-**How Trump Could Justify His Immigration Crackdown**\
-`President-elect Donald Trump is likely to justify his plans to seal off the border with Mexico by citing a public health emergency from immigrants bringing disease into the United States. Now he just has to find one. New York Times White House Correspondent, Zolan Kanno-Youngs, explains.`\
-https://nytimes.com/video/us/politics/100000009918012/how-trump-could-justify-his-immigration-crackdown.html
-
-**Missing the Olympics? Here’s your one-stop shop for following NCAA women’s gymnastics**\
-`Jordan Chiles, Jade Carey and more: Here’s your one-stop shop for how it all works, who to watch and how to follow the season.`\
-https://nytimes.com/athletic/6050778/2025/01/10/ncaa-womens-gymnastics-2025-season-preview/
 
