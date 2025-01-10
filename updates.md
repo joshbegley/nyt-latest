@@ -1,3 +1,7 @@
+**Inside Sean Dyche's Everton exit: TFG tension, transfer discord, Potter interest**\
+`Sean Dyche's exit seemed inevitable - but the speed of it caught players and fans on the hop. This is how it happened and the fallout`\
+https://nytimes.com/athletic/6051934/2025/01/10/sean-dyche-everton-exit-friedkin-group/
+
 **Los Angeles Artists Mourn as Their Studios and Artworks Go Up in Smoke**\
 `Artists who lived and worked in Altadena and the Pacific Palisades are worrying about irreplaceable losses, and their livelihoods.`\
 https://nytimes.com/2025/01/10/us/los-angeles-artists-fire-destroyed.html
