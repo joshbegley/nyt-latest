@@ -1,3 +1,15 @@
+**If a Sale of TikTok Is Required, Who Could Afford It?**\
+`Selling the app could be difficult, given its scale and nine-figure price.`\
+https://nytimes.com/2025/01/10/us/politics/tiktok-buyer-bid-frank-mccourt.html
+
+**Mauro Morandi, Italy’s Robinson Crusoe, Dies at 85**\
+`He was the sole resident of Budelli, an undeveloped sliver of paradise off the northern coast of Sardinia. He embraced the solitude, until he was evicted.`\
+https://nytimes.com/2025/01/10/world/europe/mauro-morandi-dead.html
+
+**2025 Australian Open odds: Jannik Sinner, Aryna Sabalenka enter as favorites**\
+`The two defending champions, Jannik Sinner and Aryna Sabalenka, enter the 2025 Australian Open as favorites to win in Melbourne again.`\
+https://nytimes.com/athletic/6052655/2025/01/10/2025-australian-open-odds-jannik-sinner-aryna-sabalenka/
+
 **Leicester owners file £2.15billion claim against helicopter manufacturer over fatal crash**\
 `The family of former Leicester City chairman Vichai Srivaddhanaprabha, who died in a helicopter crash outside the club&#8217;s King Power Stadium, has filed a £2.`\
 https://nytimes.com/athletic/6052042/2025/01/10/vichai-srivaddhanaprabha-claim-helicopter-crash/

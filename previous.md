@@ -1,3 +1,15 @@
+**If a Sale of TikTok Is Required, Who Could Afford It?**\
+`Selling the app could be difficult, given its scale and nine-figure price.`\
+https://nytimes.com/2025/01/10/us/politics/tiktok-buyer-bid-frank-mccourt.html
+
+**Mauro Morandi, Italy’s Robinson Crusoe, Dies at 85**\
+`He was the sole resident of Budelli, an undeveloped sliver of paradise off the northern coast of Sardinia. He embraced the solitude, until he was evicted.`\
+https://nytimes.com/2025/01/10/world/europe/mauro-morandi-dead.html
+
+**2025 Australian Open odds: Jannik Sinner, Aryna Sabalenka enter as favorites**\
+`The two defending champions, Jannik Sinner and Aryna Sabalenka, enter the 2025 Australian Open as favorites to win in Melbourne again.`\
+https://nytimes.com/athletic/6052655/2025/01/10/2025-australian-open-odds-jannik-sinner-aryna-sabalenka/
+
 **Leicester owners file £2.15billion claim against helicopter manufacturer over fatal crash**\
 `The family of former Leicester City chairman Vichai Srivaddhanaprabha, who died in a helicopter crash outside the club&#8217;s King Power Stadium, has filed a £2.`\
 https://nytimes.com/athletic/6052042/2025/01/10/vichai-srivaddhanaprabha-claim-helicopter-crash/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6052691/2025/01/10/nfl-wild-card-preview-quick-scoo
 **Browns' Watson retears Achilles, putting 2025 in question: Source**\
 `On Monday, Browns general manager Andrew Berry said Watson suffered a "setback" in his recovery from the initial surgery.`\
 https://nytimes.com/athletic/6052717/2025/01/10/deshaun-watson-achilles-rupture-browns-surgery/
-
-**Texas vs. Ohio State, picks, odds for CFP semifinal: Buckeyes clearly favored**\
-`Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
-https://nytimes.com/athletic/6032404/2025/01/10/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
-
-**Britain’s First Drug Consumption Center Is Set to Open in Glasgow**\
-`Scotland, which has the highest rate of recorded drugs deaths in Europe, is launching a new facility for users to inject illegal drugs under medical supervision.`\
-https://nytimes.com/2025/01/10/world/europe/drug-consumption-room-glasgow-uk.html
-
-**Reaction to Trump’s sentence splits along party lines.**\
-`By Matthew Haag`\
-https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/reaction-to-trumps-sentence-splits-along-party-lines
 
