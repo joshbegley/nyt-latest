@@ -1,40 +1,40 @@
-**Meta Goes MAGA Mode +A Big Month in A.I. + HatGPT**\
+**Live Updates: Trump to Be Sentenced in N.Y. Criminal Case**\
+`The proceedings are set to begin at 9:30 a.m. Though the president-elect is expected to avoid jail time, his sentencing on 34 counts will formalize his status as a felon and make him the first to carry that distinction into the White House.`\
+https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing
+
+**The Athletic’s Friday football quiz question #37**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6049277/2025/01/10/the-athletics-friday-football-quiz-question-37/
+
+**Khvicha Kvaratskhelia's future is uncertain - but Napoli will play hardball. They always do**\
+`Owner Aurelio De Laurentiis won't be pushed around by agents or sporting directors for his star men. What will happen with Kvaratskhelia?`\
+https://nytimes.com/athletic/6051620/2025/01/10/khvicha-kvaratskhelia-napoli-liverpool-paris-saint-germain-transfer/
+
+**Ohio State-Texas preview: Predictions, players to watch and keys to Cotton Bowl**\
+`For the second straight game, Ohio State enters its College Football Playoff matchup as the lower seed but the betting favorite.`\
+https://nytimes.com/athletic/6051422/2025/01/10/ohio-state-texas-prediction-cotton-bowl/
+
+**After a brief pause, Adam Peters and Dan Quinn remade the Commanders' locker room**\
+`Peters and Quinn have helped push the Commanders to their most wins since the 1991 Super Bowl season. `\
+https://nytimes.com/athletic/6047540/2025/01/10/commanders-roster-adam-peters-dan-quinn/
+
+**Dad jokes and snow angels: What turned Sean McDermott into a new kind of coach**\
+`Sean McDermott says he's always been a goofy dad but didn't show it until this season.`\
+https://nytimes.com/athletic/6047900/2025/01/10/bills-coach-sean-mcdermott-playoffs/
+
+**NFL postseason QB hobby power rankings: Where Mahomes, Allen, Daniels fit in**\
+`Would another Super Bowl this season for Mahomes really be the best development for the football card hobby?`\
+https://nytimes.com/athletic/6044149/2025/01/10/nfl-playoff-qb-power-rankings-trading-cards/
+
+**Padres ownership's family fight raises questions about operation of team**\
+`A lawsuit filed by late owner Peter Seidler's widow against two of his brothers may complicate matters for San Diego's front office.`\
+https://nytimes.com/athletic/6050832/2025/01/10/padres-ownership-seidler-family-fight/
+
+**Coveted by Chelsea and admired by the Premier League elite - what next for Crystal Palace's Marc Guehi?**\
+`The Crystal Palace captain and England international has entered the last 18 months of his contract and suitors are emerging once again`\
+https://nytimes.com/athletic/6049783/2025/01/10/guehi-chelsea-palace-arsenal-tottenham-liverpool-newcastle/
+
+**Meta Goes MAGA Mode + a Big Month in A.I. + HatGPT**\
 `“I think this set of changes that the company announced this week are the most important series of policy changes that they have made in the past five years.”`\
 https://nytimes.com/2025/01/10/podcasts/hardfork-meta-zuck-o3.html
-
-**Raducanu left insect bites untreated over fear of positive doping test**\
-`The former U.S. Open champion is taking no risks after cases involving Jannik Sinner and Iga Swiatek. `\
-https://nytimes.com/athletic/6051851/2025/01/10/emma-raducanu-doping-fear-australian-open/
-
-**TikTok at the Supreme Court**\
-`We explain how free speech and national security can often conflict.`\
-https://nytimes.com/2025/01/10/briefing/tiktok-at-the-supreme-court.html
-
-**Firefighters Battle Large Blaze at Bronx Apartment Building**\
-`Nearly 200 firefighters were working to put out the fire early Friday. Seven people have been injured and many residents displaced.`\
-https://nytimes.com/2025/01/10/nyregion/bronx-fire-nyc.html
-
-**Championship top scorer Sainz banned for six games for spitting**\
-`Championship top scorer Borja Sainz has been banned for six games after spitting at an opponent during Norwich City’s away game against Sunderland last month.`\
-https://nytimes.com/athletic/6051871/2025/01/10/borja-sainz-spit-ban-norwich/
-
-**Vic's Picks, wild-card round: Commanders to the Super Bowl? 'We like crazy'**\
-`A wild-card team hasn't made the Super Bowl since Tom Brady's Buccaneers in the 2020 season but don't count Jayden Daniels out.`\
-https://nytimes.com/athletic/6044654/2025/01/10/nfl-wild-card-playoffs-picks-predictions-betting/
-
-**Does Commanders LB Bobby Wagner remember which foes he tackled most?**\
-`The 13-year veteran has 1,838 combined tackles in his career, which is fourth all time behind Ray Lewis, London Fletcher and Junior Seau.`\
-https://nytimes.com/athletic/6049882/2025/01/10/commanders-bobby-wagner-tackles/
-
-**Jobs report is a ‘wild card’ in a shaky week for markets.**\
-`By Joe Rennison`\
-https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/jobs-report-is-a-wild-card-in-a-shaky-week-for-markets
-
-**Retailers may be taking a more staggered approach to holiday hiring.**\
-`By Jordyn Holman`\
-https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/retailers-may-be-taking-a-more-staggered-approach-to-holiday-hiring
-
-**Andy Cowell becomes Aston Martin team principal amid reshuffle**\
-`Cowell replaces Mike Krack, who will take up the role of chief trackside officer.`\
-https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-principal/
 
