@@ -1,3 +1,7 @@
+**Reds sign all 8 arbitration-eligible players to 1-year deals**\
+`Included in the group are three players they acquired via trade: Brady Singer, Gavin Lux and Jose Trevino.`\
+https://nytimes.com/athletic/6050985/2025/01/09/reds-sign-arbitration-eligible-players/
+
 **Private fire crews protect some businesses and homes for a price.**\
 `An upscale outdoor mall in Pacific Palisades, Calif., has survived so far with help from private firefighters.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/private-fire-crews-protect-some-businesses-and-homes-for-a-price
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050848/2025/01/09/carson-beck-transfer-portal-geor
 **Who Are the Victims of the Los Angeles Fires?**\
 `At least five people died in fires raging across Los Angeles. Several of them appeared to have lived near each other in the ravaged Altadena neighborhood.`\
 https://nytimes.com/2025/01/09/us/california-fires-victims.html
-
-**Fox Must Face Smartmatic’s $2.7 Billion Defamation Lawsuit, Court Rules**\
-`The complaint, which arose out of Fox News’s promotion of vote-rigging conspiracy theories after the 2020 U.S. presidential election, is on track to proceed to trial.`\
-https://nytimes.com/2025/01/09/business/media/fox-smartmatic-lawsuit.html
 
