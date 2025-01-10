@@ -1,3 +1,7 @@
+**Raducanu left insect bites untreated over fear of positive doping test**\
+`The former U.S. Open champion is taking no risks after cases involving Jannik Sinner and Iga Swiatek. `\
+https://nytimes.com/athletic/6051851/2025/01/10/emma-raducanu-doping-fear-australian-open/
+
 **TikTok at the Supreme Court**\
 `We explain how free speech and national security can often conflict.`\
 https://nytimes.com/2025/01/10/briefing/tiktok-at-the-supreme-court.html
