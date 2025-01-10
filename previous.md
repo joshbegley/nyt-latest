@@ -1,3 +1,7 @@
+**The Judge Imposing Trump’s Sentence Has Felt the Brunt of His Attacks**\
+`Justice Juan M. Merchan, an even-keeled jurist, has been in the president-elect’s cross-hairs for nearly two years.`\
+https://nytimes.com/2025/01/10/nyregion/judge-juan-merchan-trump.html
+
 **Bradley Beal, now off the bench, might be playing his best basketball for the Suns**\
 `As he left the arena Thursday night, Beal didn’t sound like someone ready to give in. His role has changed. He has not.`\
 https://nytimes.com/athletic/6051727/2025/01/10/bradley-beal-phoenix-suns-bench-role/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051651/2025/01/10/pistons-loss-warriors-cade-cunni
 **Ederson 'fine' but Man City still without Stones and Dias**\
 `Manchester City goalkeeper Ederson is “fine” but the Premier League champions are still without defenders John Stones and Ruben Dias.`\
 https://nytimes.com/athletic/6051988/2025/01/10/manchester-city-injury-news-ederson-stones-dias/
-
-**Chargers-Texans wild-card preview: Pass rush, red zone efficiency among keys**\
-`The Chargers arrived in Houston on Thursday after adjusting their practice schedule the past two days during the devastating wildfires.`\
-https://nytimes.com/athletic/6051077/2025/01/10/chargers-texans-nfl-playoffs-wild-card-preview/
 

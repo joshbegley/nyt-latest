@@ -1,3 +1,7 @@
+**The Judge Imposing Trump’s Sentence Has Felt the Brunt of His Attacks**\
+`Justice Juan M. Merchan, an even-keeled jurist, has been in the president-elect’s cross-hairs for nearly two years.`\
+https://nytimes.com/2025/01/10/nyregion/judge-juan-merchan-trump.html
+
 **Bradley Beal, now off the bench, might be playing his best basketball for the Suns**\
 `As he left the arena Thursday night, Beal didn’t sound like someone ready to give in. His role has changed. He has not.`\
 https://nytimes.com/athletic/6051727/2025/01/10/bradley-beal-phoenix-suns-bench-role/
