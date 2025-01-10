@@ -1,3 +1,7 @@
+**Hickey signs Brentford contract extension until 2028**\
+`Aaron Hickey has signed a contract extension with Brentford until 2028.`\
+https://nytimes.com/athletic/6052607/2025/01/10/aaron-hickey-brentford-contract/
+
 **A Major Challenge for Trump’s Agenda: A Mercurial Coach Calling the Plays**\
 `The president-elect has admonished Republicans to stay united around his ambitious domestic policy plans. But his track record with Congress is one of abrupt turnabouts and last-minute blowups.`\
 https://nytimes.com/2025/01/10/us/politics/trump-agenda-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/business/stocks-bonds-inflation-fed-jobs.html
 **Senators sign forward Ridly Greig to 4-year contract extension**\
 `Greig was in the final year of his entry-level contract and would have been a restricted free agent at season's end.`\
 https://nytimes.com/athletic/6052516/2025/01/10/greig-senators-contract-extension/
-
-**In an unusual request, Trump asked the court to pause the law banning TikTok.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/in-an-unusual-request-trump-asked-the-court-to-pause-the-law-banning-tiktok
 
