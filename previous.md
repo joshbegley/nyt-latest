@@ -1,3 +1,7 @@
+**TikTok at the Supreme Court**\
+`We explain how free speech and national security can often conflict.`\
+https://nytimes.com/2025/01/10/briefing/tiktok-at-the-supreme-court.html
+
 **Firefighters Battle Large Blaze at Bronx Apartment Building**\
 `Nearly 200 firefighters were working to put out the fire early Friday. Seven people have been injured and many residents displaced.`\
 https://nytimes.com/2025/01/10/nyregion/bronx-fire-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050364/2025/01/10/bears-caleb-williams-development
 **The Fed Is in No Rush to Cut Rates, Even if There Is a Weak Jobs Report**\
 `Fed officials have signaled that it will take more than one weak report to convince them that the labor market is deteriorating.`\
 https://nytimes.com/2025/01/10/business/fed-rates-jobs.html
-
-**Can Kevin O'Connell's Vikings best Sean McVay's Rams in wild-card matchup?**\
-`This matchup of former coaching cohorts could come down to whether the Vikings can protect Sam Darnold against the fearsome Rams front.`\
-https://nytimes.com/athletic/6050722/2025/01/10/vikings-rams-preview-predictions-wild-card-oconnell-mcvay/
 

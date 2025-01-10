@@ -1,3 +1,7 @@
+**TikTok at the Supreme Court**\
+`We explain how free speech and national security can often conflict.`\
+https://nytimes.com/2025/01/10/briefing/tiktok-at-the-supreme-court.html
+
 **Firefighters Battle Large Blaze at Bronx Apartment Building**\
 `Nearly 200 firefighters were working to put out the fire early Friday. Seven people have been injured and many residents displaced.`\
 https://nytimes.com/2025/01/10/nyregion/bronx-fire-nyc.html
