@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6051003/2025/01/09/wild-defense-injuries-middleton-
 https://nytimes.com/2025/01/09/us/la-fire-department-budget-bass.html
 
 **Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
-`A mandatory evacuation order was issued for the area near Calabasas Officials expected the blaze to continue growing.`\
+`A mandatory evacuation order was issued for the area near Calabasas. Officials expected the blaze to continue growing.`\
 https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
 
 **Cubs could be heading toward an arbitration hearing against Kyle Tucker**\
