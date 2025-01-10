@@ -1,3 +1,15 @@
+**Sports Streaming Service From Media Giants Ends Before It Starts**\
+`Venu Sports, a joint venture between Disney, Fox and Warner Bros., was announced to great fanfare last year but was discontinued before it ever became available.`\
+https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
+
+**Who are the creators suing TikTok?**\
+`The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-creators-lawsuit-us-ban
+
+**Review: She’s the Dancing Body, He’s the Restless Mind**\
+`Monica Bill Barnes and Robbie Saenz de Viteri ring in the New Year in their physical and introspective “Many Happy Returns.”`\
+https://nytimes.com/2025/01/10/arts/dance/review-monica-bill-barnes-many-happy-returns.html
+
 **Hickey signs Brentford contract extension until 2028**\
 `Aaron Hickey has signed a contract extension with Brentford until 2028.`\
 https://nytimes.com/athletic/6052607/2025/01/10/aaron-hickey-brentford-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/arts/design/trump-sketch-artist-art-show.html
 **Which 4 Nations snubs are making the best cases to be injury subs?**\
 `Missing out on an invitation to next month's 4 Nations Face-Off may have provided an extra shot of motivation for some surging players.`\
 https://nytimes.com/athletic/6052469/2025/01/10/4-nations-subs/
-
-**‘Today’ Says Goodbye to Hoda Kotb, Over and Over Again**\
-`Special guests, including Simone Biles and Oprah Winfrey, offered tributes to the longtime host, capping off a week that “Today” had called a “Hoda-bration!”`\
-https://nytimes.com/2025/01/10/business/media/hoda-kotb-today-nbc.html
-
-**Stocks and Bonds Rattled as Odds of Fed Rate Cut Recede**\
-`Stronger-than-expected data on the labor market has added to clues that the economy continues to run at a solid pace, amplifying fears about stubborn inflation.`\
-https://nytimes.com/2025/01/10/business/stocks-bonds-inflation-fed-jobs.html
-
-**Senators sign forward Ridly Greig to 4-year contract extension**\
-`Greig was in the final year of his entry-level contract and would have been a restricted free agent at season's end.`\
-https://nytimes.com/athletic/6052516/2025/01/10/greig-senators-contract-extension/
 
