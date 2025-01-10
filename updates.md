@@ -1,3 +1,19 @@
+**4 Takeaways From the Arguments Before the Supreme Court in the TikTok Case**\
+`The justices, who asked tough questions of both sides, showed skepticism toward arguments by lawyers for TikTok and its users.`\
+https://nytimes.com/2025/01/10/us/politics/takeaways-tiktok-supreme-court.html
+
+**In North Carolina, Republicans Try to Reverse a Supreme Court Election Loss**\
+`An incumbent Democrat narrowly won re-election to the state’s highest court. But the Republican-controlled court is considering an unusual protest from her challenger that could flip the result.`\
+https://nytimes.com/2025/01/10/us/north-carolina-supreme-court.html
+
+**Remembering the Moments That Jolted Pop Music Last Year**\
+`A final look back at some of our favorite characters, trends, lyrics and micro-moments of 2024. Plus: listener mailbag!`\
+https://nytimes.com/2025/01/10/arts/music/popcast-best-music-moments-2024.html
+
+**Forest owner Marinakis can proceed with libel claim, court rules**\
+`A court has ruled that Nottingham Forest owner Evangelos Marinakis can continue his libel lawsuit against one of his rivals from Greek football who ran an alleged &#8220;smear campaign&#8221; against him.`\
+https://nytimes.com/athletic/6052980/2025/01/10/forest-marinakis-libel-claim/
+
 **Biden Issues Sweeping Deportation Protections Before Trump Takes Office**\
 `The move allows hundreds of thousands of people from Sudan, Ukraine and Venezuela to stay in the country temporarily.`\
 https://nytimes.com/2025/01/10/us/politics/biden-temporary-protected-status-immigration.html
