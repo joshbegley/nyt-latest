@@ -1,3 +1,7 @@
+**The Memories That Burn, Too**\
+`Shawn Hubler, who covers California from Sacramento, details the personal, psychological toll of the wildfires.`\
+https://nytimes.com/2025/01/10/us/southern-california-fires-memories.html
+
 **Trump Is First President to Be Sentenced as a Felon**\
 `President-elect Donald J. Trump’s New York criminal case culminated with him avoiding jail, but he is set to become the first felon to occupy the Oval Office.`\
 https://nytimes.com/video/us/100000009919484/trump-is-first-president-to-be-sentenced-as-a-felon.html
