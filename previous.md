@@ -1,3 +1,7 @@
+**Sam Carrick's moment, special teams thrive, a pair of returns and more: Rangers takeaways**\
+`The Rangers hit the halfway point of the season with a well-played overtime win over the rival Devils.`\
+https://nytimes.com/athletic/6051377/2025/01/09/rangers-carrick-special-teams-shesterkin-devils/
+
 **Oilers fail to play to their 'standard' as dominance against Penguins finally ends**\
 `The Oilers' 5-3 loss to the Penguins ended a seven-game winning streak against the Penguins dating back to Dec. 20, 2019.`\
 https://nytimes.com/athletic/6051341/2025/01/09/oilers-penguins-connor-mcdavid-sidney-crosby/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051287/2025/01/09/maple-leafs-hurricanes-grades-an
 **Filip Gustavsson, Wild's shorthanded blue line sliced and diced by Avs: 3 takeaways**\
 `Missing Kaprizov and three of their top defensemen, the Wild were no match for the Avalanche's star trio.`\
 https://nytimes.com/athletic/6051003/2025/01/09/wild-defense-injuries-middleton-avalanche/
-
-**Budget Cuts to Fire Department Are a Point of Contention, but the Full Picture Is Complicated**\
-`A closer look at the mechanics of budgeting offers some answers, but the financing is far from rosy.`\
-https://nytimes.com/2025/01/09/us/la-fire-department-budget-bass.html
 

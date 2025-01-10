@@ -1,3 +1,7 @@
+**Sam Carrick's moment, special teams thrive, a pair of returns and more: Rangers takeaways**\
+`The Rangers hit the halfway point of the season with a well-played overtime win over the rival Devils.`\
+https://nytimes.com/athletic/6051377/2025/01/09/rangers-carrick-special-teams-shesterkin-devils/
+
 **Oilers fail to play to their 'standard' as dominance against Penguins finally ends**\
 `The Oilers' 5-3 loss to the Penguins ended a seven-game winning streak against the Penguins dating back to Dec. 20, 2019.`\
 https://nytimes.com/athletic/6051341/2025/01/09/oilers-penguins-connor-mcdavid-sidney-crosby/
