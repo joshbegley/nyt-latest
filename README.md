@@ -1,3 +1,7 @@
+**In Los Angeles, Hotels Become a Refuge for Fire Evacuees**\
+`In lobbies throughout the city, guests with children, pets and hastily packed bags share a resigned intimacy.`\
+https://nytimes.com/2025/01/10/travel/los-angeles-fire-evacuees-hotels.html
+
 **An Inferno in Southern California, and One Family’s Escape**\
 `Aurielle Hall knew she had little time to get herself and her daughter out of Altadena. Convincing Aunt Cheri would be a different challenge.`\
 https://nytimes.com/2025/01/10/us/altadena-family-escape-eaton-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/arts/music/amplifier-newsletter-bad-bunny.html
 **TikTok is facing legal backlash around the world.**\
 `By Meaghan Tobin`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-is-facing-legal-backlash-around-the-world
-
-**Five Takeaways from Trump’s Criminal Sentencing**\
-`Friday’s punishment was largely symbolic, but it ensured that Donald J. Trump would become America’s first felon president.`\
-https://nytimes.com/2025/01/10/nyregion/trump-hush-money-sentencing-takeaways.html
 
