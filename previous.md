@@ -1,3 +1,19 @@
+**WADA appeal in Sinner's doping case will be heard in April**\
+`The world No. 1 could be banned from tennis for up to two years if CAS upholds WADA's appeal.`\
+https://nytimes.com/athletic/6053172/2025/01/10/jannik-sinner-doping-appeal-date-wada/
+
+**Man Utd Women set to sign goalkeeper Rendell from Southampton**\
+`Manchester United are set to sign England Under-23 goalkeeper Kayla Rendell from Southampton.`\
+https://nytimes.com/athletic/6053199/2025/01/10/kayla-rendell-manchester-united-transfer/
+
+**Rams’ last-minute travel plans aided by Cardinals owner’s plane**\
+`Freeing up typically reserved hotel rooms for possible evacuees was a factor in moving the game, Rams president Kevin Demoff said.`\
+https://nytimes.com/athletic/6053021/2025/01/10/rams-travel-plans-arizona-plane-fans/
+
+**The Weather Won’t Give Southern California’s Firefighters a Break**\
+`The dry, windy conditions that help the fires spread are poised to persist.`\
+https://nytimes.com/2025/01/10/weather/santa-ana-winds-forecast-la-fire.html
+
 **ISIS Says It Inspired New Orleans Attack, but Doesn’t Claim Responsibility**\
 `The attacker who killed 14 pedestrians on Bourbon Street was “influenced by the discourse and messaging of the Islamic State,” the terrorist group said in a bulletin dated Thursday.`\
 https://nytimes.com/2025/01/10/world/middleeast/isis-influence-new-orleans-attack.html
@@ -11,7 +27,7 @@ https://nytimes.com/2025/01/10/nyregion/adams-corruption-businessman-plea.html
 https://nytimes.com/2025/01/10/us/politics/giuliani-contempt-defamation-election-workers.html
 
 **Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
-`The Pete Alonso market might be coming down to a short-term deal, people briefed on the matter said.`\
+`The deal Alonso's camp proposed to the Mets would include opt-outs, according to league sources.`\
 https://nytimes.com/athletic/6053174/2025/01/10/mets-pete-alonso-negotiations-contract/
 
 **The raw potential of Abdukodir Khusanov signals the start of Manchester City's rebuild**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6052548/2025/01/10/abdukodir-khusanov-manchester-ci
 **Former LSU WR Kyren Lacy facing negligent homicide, hit-and-run charges**\
 `Louisiana State Police announced Friday that a warrant has been issued for Lacy’s arrest.`\
 https://nytimes.com/athletic/6053023/2025/01/10/kyren-lacy-lsu-hit-run-homicide-warrant/
-
-**This couple lost their restaurant and home to fire, on their daughter’s birthday.**\
-`Kevin Hockin and Rosanna Kvernmo started their Altadena pizza place, Side Pie, out of their backyard during the pandemic. On Wednesday, both their home and the pizzeria burned in the Eaton fire.`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/this-couple-lost-their-restaurant-and-home-to-fire-on-their-daughters-birthday
-
-**Ratings for Cavaliers win over Thunder up 20 percent from last year**\
-`According to the website Sports Media Watch, Cavs-Thunder was the sixth-highest-rated NBA game shown exclusively on cable this season.`\
-https://nytimes.com/athletic/6053060/2025/01/10/nba-ratings-cavaliers-thunder-tv/
-
-**Vatican Allows Italian Gay Men to Train to Be Priests, if They Remain Celibate**\
-`Candidates for the seminary should not be disqualified based on sexual orientation, according to new church guidelines in Italy.`\
-https://nytimes.com/2025/01/10/world/europe/vatican-gay-men-priests-celibate-italy.html
-
-**A Sentence With No Penalty Assures Trump Will Take Office as a Felon**\
-`Justice Juan M. Merchan gave Donald J. Trump a symbolic punishment. The judge said that leniency was due the office of the president, not the man who will soon hold the title.`\
-https://nytimes.com/2025/01/10/nyregion/trump-hush-money-sentencing-convicted-felon.html
 

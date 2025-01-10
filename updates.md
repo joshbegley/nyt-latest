@@ -1,3 +1,23 @@
+**WADA appeal in Sinner's doping case will be heard in April**\
+`The world No. 1 could be banned from tennis for up to two years if CAS upholds WADA's appeal.`\
+https://nytimes.com/athletic/6053172/2025/01/10/jannik-sinner-doping-appeal-date-wada/
+
+**Man Utd Women set to sign goalkeeper Rendell from Southampton**\
+`Manchester United are set to sign England Under-23 goalkeeper Kayla Rendell from Southampton.`\
+https://nytimes.com/athletic/6053199/2025/01/10/kayla-rendell-manchester-united-transfer/
+
+**Rams’ last-minute travel plans aided by Cardinals owner’s plane**\
+`Freeing up typically reserved hotel rooms for possible evacuees was a factor in moving the game, Rams president Kevin Demoff said.`\
+https://nytimes.com/athletic/6053021/2025/01/10/rams-travel-plans-arizona-plane-fans/
+
+**The Weather Won’t Give Southern California’s Firefighters a Break**\
+`The dry, windy conditions that help the fires spread are poised to persist.`\
+https://nytimes.com/2025/01/10/weather/santa-ana-winds-forecast-la-fire.html
+
+**Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
+`The deal Alonso's camp proposed to the Mets would include opt-outs, according to league sources.`\
+https://nytimes.com/athletic/6053174/2025/01/10/mets-pete-alonso-negotiations-contract/
+
 **ISIS Says It Inspired New Orleans Attack, but Doesn’t Claim Responsibility**\
 `The attacker who killed 14 pedestrians on Bourbon Street was “influenced by the discourse and messaging of the Islamic State,” the terrorist group said in a bulletin dated Thursday.`\
 https://nytimes.com/2025/01/10/world/middleeast/isis-influence-new-orleans-attack.html
