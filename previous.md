@@ -24,7 +24,7 @@ https://nytimes.com/2025/01/09/us/los-angeles-fire-water-hydrant-failure.html
 
 **An evacuation alert was mistakenly sent to all of Los Angeles County.**\
 `By Nicholas Bogel-Burroughs, Jesus Jiménez and Corina Knoll`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/la-emergency-alert-evacuation-fires
+https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
 
 **Alec Baldwin Sues New Mexico Prosecutors Over Dismissed ‘Rust’ Case**\
 `Lawyers for the actor accused law enforcement officials of waging a “malicious prosecution” against him after the 2021 shooting death of a cinematographer on a film set.`\

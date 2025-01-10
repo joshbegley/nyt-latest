@@ -1,3 +1,7 @@
+**An evacuation alert was mistakenly sent to all of Los Angeles County.**\
+`By Nicholas Bogel-Burroughs, Jesus Jiménez and Corina Knoll`\
+https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
+
 **Vladimir Guerrero Jr., Blue Jays avoid arbitration with $28.5 million deal**\
 `After winning his arbitration hearing with the Blue Jays a year ago, Guerrero and Toronto reached a settlement on Friday.`\
 https://nytimes.com/athletic/6051078/2025/01/09/vladimir-guerrero-jr-blue-jays-arbitration-deal/
