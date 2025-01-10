@@ -1,3 +1,7 @@
+**The Memories That Burn, Too**\
+`Shawn Hubler, who covers California from Sacramento, details the personal, psychological toll of the wildfires.`\
+https://nytimes.com/2025/01/10/us/southern-california-fires-memories.html
+
 **Emery says Barkley likely out for up to three weeks with calf injury**\
 `Unai Emery says Ross Barkley could be out for up to three weeks after the Aston Villa midfielder picked up a calf injury in Friday&#8217;s FA Cup victory over West Ham United.`\
 https://nytimes.com/athletic/6053419/2025/01/10/ross-barkley-aston-villa-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/us/james-arthur-ray-dead.html
 **The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
 `Through 109 games, Kane had 34 goals and 71 assists for 105 points. Through 109 games, Bedard has 33 goals and 65 assists for 98 points.`\
 https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
-
-**Sunderland complete Le Fee signing from Roma**\
-`Sunderland have completed the loan signing of midfielder Enzo Le Fee from Roma.`\
-https://nytimes.com/athletic/6053358/2025/01/10/enzo-le-fee-sunderland-transfer/
 
