@@ -1,3 +1,11 @@
+**Trump Received an Unconditional Discharge. What Does That Mean?**\
+`The rare and lenient sentence, which will spare President-elect Donald J. Trump jail time, was used to address his unusual status.`\
+https://nytimes.com/2025/01/10/nyregion/unconditional-discharge-trump.html
+
+**Just how Chinese are TikTok and ByteDance, anyway?**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/just-how-chinese-are-tiktok-and-bytedance-anyway
+
 **The Bounce: All-Star voting > All-Star Game**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6052386/2025/01/10/nba-all-star-game-voting-results-the-bounce/
