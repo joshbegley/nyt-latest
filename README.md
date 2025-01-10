@@ -1,3 +1,27 @@
+**Friday Briefing**\
+`Three days of wildfires.`\
+https://nytimes.com/2025/01/10/briefing/fires-los-angeles-lebanon.html
+
+**My Brother Has Schizophrenia. This Is How I Love Him.**\
+`I can’t make Tim better. But he has made me a better doctor.`\
+https://nytimes.com/2025/01/10/style/modern-love-brother-schizophrenia-how-i-love-him.html
+
+**It All Started With a Ouija Board**\
+`Laura Acker and Evan Menscher met last spring after, she believes, her father’s spirit led her to him.`\
+https://nytimes.com/2025/01/10/style/laura-acker-evan-menscher-wedding.html
+
+**A Couple Kisses That Sealed the Deal**\
+`Olivia Snyder-Spak and Eli Stein met on Hinge and quickly began dating. A trip to Turks and Caicos solidified their commitment.`\
+https://nytimes.com/2025/01/10/style/olivia-snyder-spak-eli-stein-wedding.html
+
+**At the End of a Road Trip, a Romantic Detour**\
+`Elizabeth Solomon traveled the country during the pandemic. She met Gero Geilenbruegge during a stopover in Naples, Fla. — and decided to stay.`\
+https://nytimes.com/2025/01/10/style/elizabeth-solomon-gero-geilenbruegge-wedding.html
+
+**Quote of the Day: Lofty Tribute to a Public Servant and Humble Grandfather**\
+`Quotation of the Day for Friday, January 10, 2025.`\
+https://nytimes.com/2025/01/09/pageoneplus/quote-of-the-day-lofty-tribute-to-a-public-servant-and-humble-grandfather.html
+
 **Sam Carrick's moment, special teams thrive, a pair of returns and more: Rangers takeaways**\
 `The Rangers hit the halfway point of the season with a well-played overtime win over the rival Devils.`\
 https://nytimes.com/athletic/6051377/2025/01/09/rangers-carrick-special-teams-shesterkin-devils/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5701128/2025/01/09/college-football-playoff-project
 **Notre Dame wins Orange Bowl thriller with late INT, kick to earn title shot**\
 `After Notre Dame beat Penn State, Marcus Freeman will be the first Black coach in college football's national championship game.`\
 https://nytimes.com/athletic/6051284/2025/01/09/notre-dame-penn-state-playoff-orange-bowl/
-
-**One year after trade, Flyers' Jamie Drysdale is still trying to figure things out**\
-`Drysdale was on the ice for the Stars' first two goals Thursday night almost exactly a year after being traded from Anaheim.`\
-https://nytimes.com/athletic/6051318/2025/01/09/jamie-drysdale-flyers-progress-stars/
-
-**‘Twenty minutes won’t cut it’: Bruins lose sixth straight after 2 quiet periods**\
-`Had the Bruins applied the same amount of effort they showed in the third period to the entire game, the result might have been different.`\
-https://nytimes.com/athletic/6051345/2025/01/09/bruins-lightning-losing-streak/
-
-**Mapping the Damage From the Palisades Fire**\
-`Satellite analysis of Pacific Palisades offers a glimpse of the damaged or destroyed buildings in the area.`\
-https://nytimes.com/interactive/2025/01/09/us/la-wildfires-damage-photos-map.html
-
-**Firefighters Protect Historic Mt. Wilson Observatory From Eaton Fire**\
-`The blaze threatened the observatory and communications infrastructure at the peak. Later, an observatory official said it appeared to be under control.`\
-https://nytimes.com/2025/01/09/us/eaton-fire-mount-wilson-observatory.html
-
-**Maple Leafs report cards: Weak defensive effort leads to blown-lead loss**\
-`Auston Matthews and Mitch Marner were on the ice for all six Carolina goals in a 6-3 loss for Toronto.`\
-https://nytimes.com/athletic/6051287/2025/01/09/maple-leafs-hurricanes-grades-analysis/
-
-**Filip Gustavsson, Wild's shorthanded blue line sliced and diced by Avs: 3 takeaways**\
-`Missing Kaprizov and three of their top defensemen, the Wild were no match for the Avalanche's star trio.`\
-https://nytimes.com/athletic/6051003/2025/01/09/wild-defense-injuries-middleton-avalanche/
 
