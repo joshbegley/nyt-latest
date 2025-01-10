@@ -1,3 +1,15 @@
+**You May Be Able to Have Grapefruit Again Someday**\
+`Scientists have identified a gene that causes production of a substance in some citrus that interferes with many medications.`\
+https://nytimes.com/2025/01/10/science/grapefruit-drugs-medications.html
+
+**Attacking signing not guaranteed - Arteta**\
+`Mikel Arteta has conceded that Arsenal have not spent as much on forwards as their rivals but says that bringing in an extra body is not guaranteed to improve the squad.`\
+https://nytimes.com/athletic/6052328/2025/01/10/arteta-forward-not-guaranteed/
+
+**Do foreign corporations have First Amendment rights?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/do-foreign-corporations-have-first-amendment-rights
+
 **Trump Received an Unconditional Discharge. What Does That Mean?**\
 `The rare and lenient sentence, which will spare President-elect Donald J. Trump jail time, was used to address his unusual status.`\
 https://nytimes.com/2025/01/10/nyregion/unconditional-discharge-trump.html
