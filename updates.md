@@ -1,3 +1,15 @@
+**MLB indefinitely bans Yankees fans who interfered during World Series**\
+`The pair were immediately ejected during Game 4 of the World Series and banned from attending Game 5. `\
+https://nytimes.com/athletic/6052984/2025/01/10/mlb-bans-yankees-fans-world-series-interference/
+
+**Destruction From 3,000 Feet in the Air**\
+`A reporter and a photographer from The New York Times surveyed the devastation wrought by the Palisades and Eaton fires from a helicopter.`\
+https://nytimes.com/2025/01/10/us/california-fires-aerial-photos.html
+
+**Prices Spike on Some L.A. Rentals as Fire Victims Search for Places to Stay**\
+`Despite a law against price gouging during a state of emergency, some rental listings have shot up above the allowable 10 percent overnight.`\
+https://nytimes.com/2025/01/10/business/california-fires-rent-price-gouging.html
+
 **Syracuse QB Kyle McCord declares for NFL Draft**\
 `McCord and Syracuse had asked the NCAA to grant McCord another year of eligibility, but he's entering the draft instead.`\
 https://nytimes.com/athletic/6053044/2025/01/10/syracuse-kyle-mccord-nfl-draft-quarterback/
