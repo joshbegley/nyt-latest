@@ -1,3 +1,11 @@
+**Bradley Beal, now off the bench, might be playing his best basketball for the Suns**\
+`As he left the arena Thursday night, Beal didn’t sound like someone ready to give in. His role has changed. He has not.`\
+https://nytimes.com/athletic/6051727/2025/01/10/bradley-beal-phoenix-suns-bench-role/
+
+**How Trump Could Justify His Immigration Crackdown**\
+`President-elect Donald Trump is likely to justify his plans to seal off the border with Mexico by citing a public health emergency from immigrants bringing disease into the United States. Now he just has to find one. New York Times White House Correspondent, Zolan Kanno-Youngs, explains.`\
+https://nytimes.com/video/us/politics/100000009918012/how-trump-could-justify-his-immigration-crackdown.html
+
 **Missing the Olympics? Here’s your one-stop shop for following NCAA women’s gymnastics**\
 `Jordan Chiles, Jade Carey and more: Here’s your one-stop shop for how it all works, who to watch and how to follow the season.`\
 https://nytimes.com/athletic/6050778/2025/01/10/ncaa-womens-gymnastics-2025-season-preview/
