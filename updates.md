@@ -1,3 +1,7 @@
+**Manchester United Women’s Ella Toone to return following two-month injury layoff**\
+`Manchester United Women midfielder Ella Toone is set to return for selection following a two-month injury layoff, manager Marc Skinner has said.`\
+https://nytimes.com/athletic/6051734/2025/01/10/ella-toone-injury-update-manchester-united/
+
 **Why Arsenal will be wearing an all-white kit in the FA Cup**\
 `The kit promotes an anti-knife crime campaign called No More Red`\
 https://nytimes.com/athletic/6049934/2025/01/10/arsenal-white-fa-cup-kit/
