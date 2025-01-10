@@ -1,3 +1,7 @@
+**NFL wild-card weekend betting insights: What the math says about home-field advantage**\
+`Michael Salfino takes a deep dive into the value of home-field advantage in the NFL and who actually takes advantage of it the most.`\
+https://nytimes.com/athletic/6052719/2025/01/10/nfl-wild-card-weekend-home-field-advantage/
+
 **The court fast-tracked the TikTok case. What happens next?**\
 `Reporting f`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-court-fast-tracked-the-tiktok-case-what-happens-next
