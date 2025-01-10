@@ -1,3 +1,11 @@
+**Syracuse QB Kyle McCord declares for NFL Draft**\
+`McCord and Syracuse had asked the NCAA to grant McCord another year of eligibility, but he's entering the draft instead.`\
+https://nytimes.com/athletic/6053044/2025/01/10/syracuse-kyle-mccord-nfl-draft-quarterback/
+
+**NASCAR drivers who miss race not due to injury will lose playoff points**\
+`The policy change effectively streamlines the rule a year after a controversial debate to grant title contender Kyle Larson a waiver.`\
+https://nytimes.com/athletic/6052990/2025/01/10/nascar-rule-change-playoff-eligibility/
+
 **14-Year-Old Boy Found Fatally Stabbed in the Bronx**\
 `The boy, Caleb Rios, was at least the third teenager to be killed in New York City this year.`\
 https://nytimes.com/2025/01/10/nyregion/teen-stabbed-bronx.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6052980/2025/01/10/forest-marinakis-libel-claim/
 **Biden Issues Sweeping Deportation Protections Before Trump Takes Office**\
 `The move allows hundreds of thousands of people from Sudan, Ukraine and Venezuela to stay in the country temporarily.`\
 https://nytimes.com/2025/01/10/us/politics/biden-temporary-protected-status-immigration.html
-
-**In Los Angeles, Hotels Become a Refuge for Fire Evacuees**\
-`In lobbies throughout the city, guests with children, pets and hastily packed bags share a resigned intimacy.`\
-https://nytimes.com/2025/01/10/travel/los-angeles-fire-evacuees-hotels.html
-
-**An Inferno in Southern California, and One Family’s Escape**\
-`Aurielle Hall knew she had little time to get herself and her daughter out of Altadena. Convincing Aunt Cheri would be a different challenge.`\
-https://nytimes.com/2025/01/10/us/altadena-family-escape-eaton-fire.html
 
