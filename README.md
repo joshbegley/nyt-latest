@@ -1,7 +1,3 @@
-**Senators sign forward Ridly Greig to 4-year contract extension**\
-`Greig was in the final year of his entry-level contract and would have been a restricted free agent at season's end.`\
-https://nytimes.com/athletic/6052516/2025/01/10/greig-senators-contract-extension/
-
 **In an unusual request, Trump asked the court to pause the law banning TikTok.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/in-an-unusual-request-trump-asked-the-court-to-pause-the-law-banning-tiktok
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/what-is-strict-s
 **Map: 3.7-Magnitude Earthquake Strikes Near San Francisco**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/10/weather/quake-tracker-san-francisco.html
+
+**Oilers midseason report cards: Leon Draisaitl is at an MVP-level**\
+`The Oilers had an early wobble to start the season but followed it with a long period of success.`\
+https://nytimes.com/athletic/6049494/2025/01/10/oilers-2024-25-midseason-report-cards-leon-draisaitl/
 
