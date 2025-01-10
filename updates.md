@@ -1,3 +1,11 @@
+**Firefighters Battle Large Blaze at Bronx Apartment Building**\
+`Nearly 200 firefighters were working to put out the fire early Friday. Seven people have been injured and many residents displaced.`\
+https://nytimes.com/2025/01/10/nyregion/bronx-fire-nyc.html
+
+**Championship top scorer Sainz banned for six games for spitting**\
+`Championship top scorer Borja Sainz has been banned for six games after spitting at an opponent during Norwich City’s away game against Sunderland last month.`\
+https://nytimes.com/athletic/6051871/2025/01/10/borja-sainz-spit-ban-norwich/
+
 **Vic's Picks, wild-card round: Commanders to the Super Bowl? 'We like crazy'**\
 `A wild-card team hasn't made the Super Bowl since Tom Brady's Buccaneers in the 2020 season but don't count Jayden Daniels out.`\
 https://nytimes.com/athletic/6044654/2025/01/10/nfl-wild-card-playoffs-picks-predictions-betting/
