@@ -43,6 +43,11 @@ https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-beda
 `\
 https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
 
+**The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
+`Kane and Bedard's careers started off in a remarkably similar way, but there is one big difference that makes them seem worlds apart.
+`\
+https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
+
 **Inter Miami expand preseason tour to five games across the Americas**\
 `Five games in four countries is the preseason plan for Messi and company`\
 https://nytimes.com/athletic/6053340/2025/01/10/inter-miami-messi-tour/
