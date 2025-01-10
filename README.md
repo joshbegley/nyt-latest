@@ -1,3 +1,7 @@
+**The blazes also raise worries for Southern California wildlife.**\
+`By Catrin Einhorn`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/california-wildfires-wildlife
+
 **L.A. Wildfires Lay Bare an Insurance Crisis**\
 `Even before the latest blazes, California officials warned that an emergency state insurance fund was in trouble, while private insurers dropped coverage.`\
 https://nytimes.com/2025/01/10/business/dealbook/la-wildfires-insurance-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047161/2025/01/10/fantasy-footballs-top-risers-fal
 **Fantasy football early 2025 rankings: Ja'Marr Chase, Saquon Barkley lead off the top 100**\
 `Brandon Funston looks ahead to 2025, sharing his thoughts on his initial list of the Top 100 fantasy football players for next season.`\
 https://nytimes.com/athletic/6050527/2025/01/10/fantasy-football-early-2025-top-100-rankings-big-board/
-
-**Live Updates: Trump to Be Sentenced in N.Y. Criminal Case**\
-`The proceedings are set to begin at 9:30 a.m. Though the president-elect is expected to avoid jail time, his sentencing on 34 counts will formalize his status as a felon and make him the first to carry that distinction into the White House.`\
-https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing
 
