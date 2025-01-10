@@ -1,3 +1,19 @@
+**An important reservoir was offline when the fires began.**\
+`The Santa Ynez Reservoir in the Pacific Palisades neighborhood had been shut down. Water there normally helps replenish tanks that were drained by firefighters.`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/an-important-reservoir-was-offline-when-the-fires-began
+
+**Commanders to get Marshon Lattimore back for clash with Mike Evans, Bucs**\
+`Evans, coming off an 11th consecutive 1,000-yard season, and Lattimore squared off frequently when both were in the NFC South.`\
+https://nytimes.com/athletic/6052883/2025/01/10/marshon-lattimore-return-commanders-nfl-wildcard/
+
+**Listen to Audio Clips From Trump’s Sentencing**\
+`While Donald J. Trump’s trial last year was not broadcast to the public, the audio of his sentencing hearing on Friday was recorded.`\
+https://nytimes.com/2025/01/10/nyregion/trump-sentencing-audio.html
+
+**The Supreme Court has previously considered, and then avoided, a major decision on the parameters of speech on social media.**\
+`By David McCabe`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-supreme-court-has-previously-considered-and-then-dodged-a-major-decision-on-the-bounds-of-online-speech
+
 **See Los Angeles on Fire From Above**\
 `Text by Loren Elliott and Emily Baumgaertner`\
 https://nytimes.com/card/2025/01/10/us/california-fire-aerial-photos
