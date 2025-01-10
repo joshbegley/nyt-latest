@@ -1,4 +1,8 @@
 **Andy Cowell becomes Aston Martin team principal amid reshuffle**\
+`Cowell replaces Mike Krack, who will take up the role of chief trackside officer.`\
+https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-principal/
+
+**Andy Cowell becomes Aston Martin team principal amid reshuffle**\
 `Andy Cowell has been named as Aston Martin’s new Formula One team principal and CEO as part of a senior management reshuffle, taking over from Mike Krack.`\
 https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-principal/
 
