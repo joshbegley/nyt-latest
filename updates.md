@@ -1,3 +1,7 @@
+**Could the Leafs' loss to the Canes lead to a shift in Toronto's goaltending picture?**\
+`The Leafs need to find ways to ease Joseph Woll's workload or risk burning him out ahead of when they need him most: in the playoffs.`\
+https://nytimes.com/athletic/6051510/2025/01/10/maple-leafs-hurricanes-joseph-woll/
+
 **Russo: You can't make up how utterly ridiculous the Wild's injury situation has been**\
 `Injuries and illness are forcing the Wild to get extremely creative with the salary cap as they try to tread water.`\
 https://nytimes.com/athletic/6051515/2025/01/10/wild-injuries-defense-goalies-avalanche/
