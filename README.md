@@ -1,3 +1,7 @@
+**NHL Power Rankings: A new No. 1 at the midpoint and players who need to step up**\
+`The middle of the season offers a great chance to reflect on what’s happened and look ahead to what could happen going forward.`\
+https://nytimes.com/athletic/6052013/2025/01/10/nhl-power-rankings-golden-knights-2/
+
 **You May Be Able to Have Grapefruit Again Someday**\
 `Scientists have identified a gene that causes production of a substance in some citrus that interferes with many medications.`\
 https://nytimes.com/2025/01/10/science/grapefruit-drugs-medications.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/opinion/la-wildfires-climate.html
 **Houston Symphony Taps Gary Ginstling as C.E.O.**\
 `The veteran orchestra manager, who abruptly resigned from his post as the New York Philharmonic leader last year, said he was drawn to the dynamism of Houston.`\
 https://nytimes.com/2025/01/10/arts/music/houston-symphony-ceo-gary-ginstling.html
-
-**Tiktok is a cultural juggernaut fueled by short videos and an addictive feed.**\
-`By Sapna Maheshwari`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-is-a-cultural-juggernaut-fueled-by-short-videos-and-an-addictive-feed
 
