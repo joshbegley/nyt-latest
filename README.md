@@ -1,3 +1,11 @@
+**‘Completely Dry’: How Los Angeles Firefighters Ran Out of Water**\
+`As wildfires roar into residential neighborhoods, firefighters in California and elsewhere are finding that water systems can’t keep up with the demand.`\
+https://nytimes.com/2025/01/09/us/los-angeles-fire-water-hydrant-failure.html
+
+**An evacuation alert was mistakenly sent to all of Los Angeles County.**\
+`By Nicholas Bogel-Burroughs, Jesus Jiménez and Corina Knoll`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/la-emergency-alert-evacuation-fires
+
 **Alec Baldwin Sues New Mexico Prosecutors Over Dismissed ‘Rust’ Case**\
 `Lawyers for the actor accused law enforcement officials of waging a “malicious prosecution” against him after the 2021 shooting death of a cinematographer on a film set.`\
 https://nytimes.com/2025/01/09/movies/alec-baldwin-sues-prosecutors-rust.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6050985/2025/01/09/reds-sign-arbitration-eligible-p
 **Private fire crews protect some businesses and homes for a price.**\
 `An upscale outdoor mall in Pacific Palisades, Calif., has survived so far with help from private firefighters.`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/private-fire-crews-protect-some-businesses-and-homes-for-a-price
-
-**How a Phone Call Drew Alito Into a Trump Loyalty Squabble**\
-`The phone call centered on a former law clerk of Justice Alito’s who in the eyes of the Trump team must prove his loyalty to the president-elect.`\
-https://nytimes.com/2025/01/09/us/politics/alito-trump-phone-call-ethics.html
-
-**Judge Orders Release of Woman Who Stabbed Friend to Please ‘Slender Man’**\
-`The woman, Morgan Geyser, 22, was sentenced to spend 40 years in a psychiatric facility after she stabbed her friend 19 times in 2014 for a sinister internet character.`\
-https://nytimes.com/2025/01/09/us/slenderman-stabbing-woman-released.html
 
