@@ -2,8 +2,8 @@
 `The world No. 1 could be banned from tennis for up to two years if CAS upholds WADA's appeal.`\
 https://nytimes.com/athletic/6053172/2025/01/10/jannik-sinner-doping-appeal-date-wada/
 
-**Man Utd Women set to sign goalkeeper Rendell from Southampton**\
-`Manchester United are set to sign England Under-23 goalkeeper Kayla Rendell from Southampton.`\
+**Man Utd Women set to sign Southampton goalkeeper Rendell**\
+`Manchester United are expected to complete the signing of goalkeeper Kayla Rendell from Southampton.`\
 https://nytimes.com/athletic/6053199/2025/01/10/kayla-rendell-manchester-united-transfer/
 
 **Rams’ last-minute travel plans aided by Cardinals owner’s plane**\
