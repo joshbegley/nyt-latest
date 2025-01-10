@@ -1,3 +1,15 @@
+**Map: 3.7-Magnitude Earthquake Strikes near San Francisco**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/10/weather/quake-tracker-san-francisco.html
+
+**Oilers midseason report cards: Leon Draisaitl is at an MVP-level**\
+`The Oilers had an early wobble to start the season but followed it with a long period of success.`\
+https://nytimes.com/athletic/6049494/2025/01/10/oilers-2024-25-midseason-report-cards-leon-draisaitl/
+
+**Penn State's Abdul Carter declares for NFL Draft: Report**\
+`Penn State defensive end Abdul Carter has declared for the NFL Draft, with Carter&#8217;s agent, Drew Rosenhaus, sharing Carter&#8217;s decision with ESPN just hours after the Nittany Lions&#8217; season ended Thursday in the College Football Playoff semifinals.`\
+https://nytimes.com/athletic/6052459/2025/01/10/penn-state-abdul-carter-nfl-draft/
+
 **Toronto FC hiring Robin Fraser as new head coach**\
 `Toronto FC is appointing Robin Fraser as its new head coach, according to sources close to the deal who spoke on the condition of anonymity.`\
 https://nytimes.com/athletic/6052496/2025/01/10/robin-fraser-toronto-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6052013/2025/01/10/nhl-power-rankings-golden-knight
 **You May Be Able to Have Grapefruit Again Someday**\
 `Scientists have identified a gene that causes production of a substance in some citrus that interferes with many medications.`\
 https://nytimes.com/2025/01/10/science/grapefruit-drugs-medications.html
-
-**Attacking signing not guaranteed - Arteta**\
-`Mikel Arteta has conceded that Arsenal have not spent as much on forwards as their rivals but says that bringing in an extra body is not guaranteed to improve the squad.`\
-https://nytimes.com/athletic/6052328/2025/01/10/arteta-forward-not-guaranteed/
-
-**Do foreign corporations have First Amendment rights?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/do-foreign-corporations-have-first-amendment-rights
-
-**Trump Received an Unconditional Discharge. What Does That Mean?**\
-`The rare and lenient sentence, which will spare President-elect Donald J. Trump jail time, was used to address his unusual status.`\
-https://nytimes.com/2025/01/10/nyregion/unconditional-discharge-trump.html
 

@@ -1,3 +1,15 @@
+**Map: 3.7-Magnitude Earthquake Strikes near San Francisco**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/10/weather/quake-tracker-san-francisco.html
+
+**Oilers midseason report cards: Leon Draisaitl is at an MVP-level**\
+`The Oilers had an early wobble to start the season but followed it with a long period of success.`\
+https://nytimes.com/athletic/6049494/2025/01/10/oilers-2024-25-midseason-report-cards-leon-draisaitl/
+
+**Penn State's Abdul Carter declares for NFL Draft: Report**\
+`Penn State defensive end Abdul Carter has declared for the NFL Draft, with Carter&#8217;s agent, Drew Rosenhaus, sharing Carter&#8217;s decision with ESPN just hours after the Nittany Lions&#8217; season ended Thursday in the College Football Playoff semifinals.`\
+https://nytimes.com/athletic/6052459/2025/01/10/penn-state-abdul-carter-nfl-draft/
+
 **Toronto FC hiring Robin Fraser as new head coach**\
 `Toronto FC is appointing Robin Fraser as its new head coach, according to sources close to the deal who spoke on the condition of anonymity.`\
 https://nytimes.com/athletic/6052496/2025/01/10/robin-fraser-toronto-coach/
