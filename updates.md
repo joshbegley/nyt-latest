@@ -1,3 +1,7 @@
+**See Los Angeles on Fire From Above**\
+`Text by Loren Elliott and Emily Baumgaertner`\
+https://nytimes.com/card/2025/01/10/us/california-fire-aerial-photos
+
 **Former Georgia QB Carson Beck commits to Miami**\
 `At Miami, he’ll replace Heisman Trophy finalist Cam Ward, who led the No. 1 scoring offense last season.`\
 https://nytimes.com/athletic/6052860/2025/01/10/carson-beck-transfer-miami-georgia/
