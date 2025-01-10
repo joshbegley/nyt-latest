@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins get the last laugh as Crosby, McDavid each put on a show**\
+`The Penguins got the best of the Oilers through sheer hard work and smart defensive strategy — and a little star power from both teams.`\
+https://nytimes.com/athletic/6051045/2025/01/10/penguins-crosby-mcdavid-nedeljkovic-oilers/
+
 **'When we were kings' - the real story behind that viral Man Utd photo**\
 `It’s an image that is often used to illustrate how great United used to be. But 2005 was a miserable year for fans of Ferguson’s side`\
 https://nytimes.com/athletic/6047298/2025/01/10/manchester-uniteds-viral-photo-of-the-2005-kings-and-the-real-story-behind-it/
