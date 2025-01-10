@@ -1,3 +1,7 @@
+**Evacuation Alert Was Mistakenly Sent to All of Los Angeles County**\
+`The emergency alert caused confusion for untold residents for more about 20 minutes until a second message was sent announcing the error.`\
+https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
+
 **An evacuation alert was mistakenly sent to all of Los Angeles County.**\
 `By Nicholas Bogel-Burroughs, Jesus Jiménez and Corina Knoll`\
 https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
