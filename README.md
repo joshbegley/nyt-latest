@@ -1,3 +1,7 @@
+**If a Sale of TikTok Is Required, Who Could Afford It?**\
+`Selling the app could be difficult, given its scale and nine-figure price.`\
+https://nytimes.com/2025/01/10/us/politics/tiktok-buyer-bid-frank-mccourt.html
+
 **Mauro Morandi, Italy’s Robinson Crusoe, Dies at 85**\
 `He was the sole resident of Budelli, an undeveloped sliver of paradise off the northern coast of Sardinia. He embraced the solitude, until he was evicted.`\
 https://nytimes.com/2025/01/10/world/europe/mauro-morandi-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052691/2025/01/10/nfl-wild-card-preview-quick-scoo
 **Browns' Watson retears Achilles, putting 2025 in question: Source**\
 `On Monday, Browns general manager Andrew Berry said Watson suffered a "setback" in his recovery from the initial surgery.`\
 https://nytimes.com/athletic/6052717/2025/01/10/deshaun-watson-achilles-rupture-browns-surgery/
-
-**Texas vs. Ohio State, picks, odds for CFP semifinal: Buckeyes clearly favored**\
-`Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
-https://nytimes.com/athletic/6032404/2025/01/10/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
 
