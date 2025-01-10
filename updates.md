@@ -1,3 +1,11 @@
+**Hickey signs Brentford contract extension until 2028**\
+`Aaron Hickey has signed a contract extension with Brentford until 2028.`\
+https://nytimes.com/athletic/6052607/2025/01/10/aaron-hickey-brentford-contract/
+
+**Stocks and Bonds Rattled as Odds of Fed Rate Cut Recede**\
+`Stronger-than-expected data on the labor market has added to clues that the economy continues to run at a solid pace, amplifying fears about stubborn inflation.`\
+https://nytimes.com/2025/01/10/business/stocks-bonds-inflation-fed-jobs.html
+
 **A Major Challenge for Trump’s Agenda: A Mercurial Coach Calling the Plays**\
 `The president-elect has admonished Republicans to stay united around his ambitious domestic policy plans. But his track record with Congress is one of abrupt turnabouts and last-minute blowups.`\
 https://nytimes.com/2025/01/10/us/politics/trump-agenda-republicans.html
