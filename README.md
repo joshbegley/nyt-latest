@@ -1,6 +1,22 @@
+**How Leicester's fairytale can inspire Forest's fight for Europe**\
+`Nottingham Forest share many similarities with Leicester's title-winning team that they can draw on in their hunt for a European place`\
+https://nytimes.com/athletic/6049706/2025/01/10/nottingham-forest-champions-league-leicester-title/
+
+**Arsenal, the Emirates atmosphere and the need for synergy between team and fans**\
+`There are a number of reasons why the stadium has been less hostile this season for opposing teams, including a tweaked playing style`\
+https://nytimes.com/athletic/6049035/2025/01/10/arsenal-emirates-atmosphere/
+
+**Joao Pedro injury adds to Brighton issues, so what are Fabian Hurzeler's forward options?**\
+`The Brazilian forward has joined the walking wounded and placed more scrutiny on Danny Welbeck, Georginio Rutter and Evan Ferguson`\
+https://nytimes.com/athletic/6049176/2025/01/10/brighton-hurzeler-joao-pedro-welbeck-ferguson/
+
 **Explained: John Textor, Crystal Palace, Eagle Football and two awards of exclusivity**\
 `This week brought yet another twist in the saga around Textor's shareholding in the Premier League club — this is what we know`\
 https://nytimes.com/athletic/6046855/2025/01/10/textor-palace-lyon-sportsbank-kidd/
+
+**Milk and murder: The tragedy that overshadows Liverpool vs Accrington Stanley**\
+`An FA Cup tie that should be suffused with romance has a darker side — all thanks to a 1989 TV commercial`\
+https://nytimes.com/athletic/6049038/2025/01/10/liverpool-accrington-stanley-milk-advert-kevin-spaine/
 
 **U.S. Ambassador Says China Is Aligned With ‘Agents of Disorder’**\
 `R. Nicholas Burns, the top U.S. diplomat in Beijing, says the Biden administration is making a final push to urge China to reconsider its tilt toward Russia, Iran and North Korea.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6051305/2025/01/10/blue-jackets-owen-sillinger-luca
 **Data has revolutionised football transfers. When will it do the same to real-time tactics?**\
 `Examples of data being used to directly impact a game may be limited, but the reasons why are simpler than they might seem`\
 https://nytimes.com/athletic/5991730/2025/01/10/when-will-data-impact-tactics-real-time/
-
-**With Evan Mobley and Scottie Barnes, there's no need yet to pick one over the other**\
-`Mobley's Cavaliers are dominating and Barnes' Raptors are languishing, but both still offer reasons to dream of more.`\
-https://nytimes.com/athletic/6051254/2025/01/10/scottie-barnes-evan-mobley-nba-all-star/
-
-**'Welcome to The Lamb' - Joining part-timers Tamworth as they prepare for the visit of Tottenham**\
-`The Athletic went to see how the club of volunteers and players who earn £400-600 per week prepared for visit of Premier League superstars`\
-https://nytimes.com/athletic/6049768/2025/01/10/tamworth-tottenham-fa-cup-the-lamb/
-
-**Graham Potter the football manager: A creator of structures in which individuals can shine**\
-`The former Swansea, Brighton and Chelsea manager is back in the Premier League - expect pragmatism rather than revolution `\
-https://nytimes.com/athletic/5986377/2025/01/10/graham-potter-manager-profile-west-ham/
-
-**Friday Briefing**\
-`Three days of wildfires.`\
-https://nytimes.com/2025/01/10/briefing/fires-los-angeles-lebanon.html
 
