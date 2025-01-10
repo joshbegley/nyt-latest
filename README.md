@@ -1,3 +1,11 @@
+**Bradley Beal, now off the bench, might be playing his best basketball for the Suns**\
+`As he left the arena Thursday night, Beal didn’t sound like someone ready to give in. His role has changed. He has not.`\
+https://nytimes.com/athletic/6051727/2025/01/10/bradley-beal-phoenix-suns-bench-role/
+
+**How Trump Could Justify His Immigration Crackdown**\
+`President-elect Donald Trump is likely to justify his plans to seal off the border with Mexico by citing a public health emergency from immigrants bringing disease into the United States. Now he just has to find one. New York Times White House Correspondent, Zolan Kanno-Youngs, explains.`\
+https://nytimes.com/video/us/politics/100000009918012/how-trump-could-justify-his-immigration-crackdown.html
+
 **Missing the Olympics? Here’s your one-stop shop for following NCAA women’s gymnastics**\
 `Jordan Chiles, Jade Carey and more: Here’s your one-stop shop for how it all works, who to watch and how to follow the season.`\
 https://nytimes.com/athletic/6050778/2025/01/10/ncaa-womens-gymnastics-2025-season-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6051988/2025/01/10/manchester-city-injury-news-eder
 **Chargers-Texans wild-card preview: Pass rush, red zone efficiency among keys**\
 `The Chargers arrived in Houston on Thursday after adjusting their practice schedule the past two days during the devastating wildfires.`\
 https://nytimes.com/athletic/6051077/2025/01/10/chargers-texans-nfl-playoffs-wild-card-preview/
-
-**How Bo Nix became 'that guy' for Broncos: From paintball wars to fourth-quarter comebacks**\
-`Nix finished his rookie season with 34 total touchdowns, but his impact for a young Broncos team went beyond his numbers.`\
-https://nytimes.com/athletic/6050303/2025/01/10/bo-nix-broncos-afc-playoffs-bills/
-
-**Max Kepler hopes to unlock more power and boost a Phillies outfield that struggled to slug**\
-`Two years ago, Kepler bashed 24 homers with a .484 slugging percentage. The Phillies believe he can recapture that form. So does Kepler.`\
-https://nytimes.com/athletic/6051299/2025/01/10/max-kepler-phillies-outfield-power/
 
