@@ -1,3 +1,7 @@
+**Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
+`A mandatory evacuation order was issued for the area near Calabasas Officials expected the blaze to continue growing.`\
+https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
+
 **Cubs could be heading toward an arbitration hearing against Kyle Tucker**\
 `The Cubs were able to reach an agreement with Justin Steele on a $6.55 million salary for 2025.`\
 https://nytimes.com/athletic/6051215/2025/01/09/cubs-kyle-tucker-arbitration/
