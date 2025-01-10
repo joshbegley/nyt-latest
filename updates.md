@@ -1,3 +1,7 @@
+**Anita Bryant, Whose Anti-Gay Politics Undid a Singing Career, Is Dead at 84**\
+`The former beauty queen and spokeswoman for Florida orange juice was an all-American entertainer before she began crusading against L.G.B.T.Q. rights.`\
+https://nytimes.com/2025/01/09/arts/music/anita-bryant-dead.html
+
 **Evacuation Alert Was Mistakenly Sent to All of Los Angeles County**\
 `The emergency alert caused confusion for untold residents for more about 20 minutes until a second message was sent announcing the error.`\
 https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
