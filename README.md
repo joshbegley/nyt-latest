@@ -1,3 +1,7 @@
+**NFL wild-card weekend betting insights: What the math says about home-field advantage**\
+`Michael Salfino takes a deep dive into the value of home-field advantage in the NFL and who actually takes advantage of it the most.`\
+https://nytimes.com/athletic/6052719/2025/01/10/nfl-wild-card-weekend-home-field-advantage/
+
 **The court fast-tracked the TikTok case. What happens next?**\
 `Reporting f`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-court-fast-tracked-the-tiktok-case-what-happens-next
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/an-important
 **Commanders to get Marshon Lattimore back for clash with Mike Evans, Bucs**\
 `Evans, coming off an 11th consecutive 1,000-yard season, and Lattimore squared off frequently when both were in the NFC South.`\
 https://nytimes.com/athletic/6052883/2025/01/10/marshon-lattimore-return-commanders-nfl-wildcard/
-
-**Listen to Audio Clips From Trump’s Sentencing**\
-`While Donald J. Trump’s trial last year was not broadcast to the public, the audio of his sentencing hearing on Friday was recorded.`\
-https://nytimes.com/2025/01/10/nyregion/trump-sentencing-audio.html
 
