@@ -1,3 +1,23 @@
+**Emery says Barkley likely out for up to three weeks with calf injury**\
+`Unai Emery says Ross Barkley could be out for up to three weeks after the Aston Villa midfielder picked up a calf injury in Friday&#8217;s FA Cup victory over West Ham United.`\
+https://nytimes.com/athletic/6053419/2025/01/10/ross-barkley-aston-villa-injury-update/
+
+**Trump is First President to Be Sentenced as a Felon**\
+`President-elect Donald J. Trump’s New York criminal case culminated with him avoiding jail, but he is set to become the first felon to occupy the Oval Office.`\
+https://nytimes.com/video/us/100000009919484/trump-is-first-president-to-be-sentenced-as-a-felon.html
+
+**L.A. fires force USWNT to move training camps to Florida**\
+`Emma Hayes will shift her camps due to the effects of the devastating fires`\
+https://nytimes.com/athletic/6053433/2025/01/10/uswnt-fires-florida-los-angeles/
+
+**Lakers' JJ Redick opens up on losing home due to LA wildfires**\
+`"I was not prepared for what I saw. It's complete devastation and destruction," Redick said, recalling driving to see his home Wednesday.`\
+https://nytimes.com/athletic/6053161/2025/01/10/jj-redick-lakers-house-burned-la-wildfires/
+
+**The Supreme Court Seemed Poised to Allow a U.S. Ban of TikTok**\
+`Also, Los Angeles firefighters worked to contain the city’s largest fires. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/10/briefing/tik-tok-supreme-court-los-angeles-fires.html
+
 **Burning gas lines are a concern in some of the fire zones.**\
 `By Tim Balk and Mimi Dwyer`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/burning-gas-lines-are-a-concern-in-some-of-the-fire-zones
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-beda
 **Sunderland complete Le Fee signing from Roma**\
 `Sunderland have completed the loan signing of midfielder Enzo Le Fee from Roma.`\
 https://nytimes.com/athletic/6053358/2025/01/10/enzo-le-fee-sunderland-transfer/
-
-**'I just wish they knew the truth': Cutter Gauthier prepares for boos from Flyers fans**\
-`"I think it’s time for them and for me to move on," Gauthier, the former Flyers prospect, said before his first game in Philadelphia`\
-https://nytimes.com/athletic/6053292/2025/01/10/cutter-gauthier-flyers-philadelphia-reaction/
-
-**Inter Miami expand preseason tour to five games across the Americas**\
-`Five games in four countries is the preseason plan for Messi and company`\
-https://nytimes.com/athletic/6053340/2025/01/10/inter-miami-messi-tour/
-
-**L.A. Utilities’ Decisions to Keep Power On Are Scrutinized**\
-`Energy experts said that the decision by utility companies serving the Los Angeles area not to turn off many power lines during high winds likely increased the risk of fires.`\
-https://nytimes.com/2025/01/10/us/california-fires-la-power.html
-
-**Lemina needs to make decision on his Wolves future - Pereira**\
-`Wolverhampton Wanderers head coach Vitor Pereira says former captain Mario Lemina must decide whether he wants to stay at the club for the remainder of their Premier League relegation battle.`\
-https://nytimes.com/athletic/6052486/2025/01/10/mario-lemina-wolves-future/
-
-**Morato: The emotions of losing teenage sister to cancer that inspire him at Forest**\
-`Morato explains how the death of his sister, aged 15, pushes him on at Nottingham Forest in their quest for a European place`\
-https://nytimes.com/athletic/6052104/2025/01/10/morato-nottingham-forest-sister-cancer/
 

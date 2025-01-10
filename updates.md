@@ -1,3 +1,23 @@
+**Emery says Barkley likely out for up to three weeks with calf injury**\
+`Unai Emery says Ross Barkley could be out for up to three weeks after the Aston Villa midfielder picked up a calf injury in Friday&#8217;s FA Cup victory over West Ham United.`\
+https://nytimes.com/athletic/6053419/2025/01/10/ross-barkley-aston-villa-injury-update/
+
+**Trump is First President to Be Sentenced as a Felon**\
+`President-elect Donald J. Trump’s New York criminal case culminated with him avoiding jail, but he is set to become the first felon to occupy the Oval Office.`\
+https://nytimes.com/video/us/100000009919484/trump-is-first-president-to-be-sentenced-as-a-felon.html
+
+**L.A. fires force USWNT to move training camps to Florida**\
+`Emma Hayes will shift her camps due to the effects of the devastating fires`\
+https://nytimes.com/athletic/6053433/2025/01/10/uswnt-fires-florida-los-angeles/
+
+**Lakers' JJ Redick opens up on losing home due to LA wildfires**\
+`"I was not prepared for what I saw. It's complete devastation and destruction," Redick said, recalling driving to see his home Wednesday.`\
+https://nytimes.com/athletic/6053161/2025/01/10/jj-redick-lakers-house-burned-la-wildfires/
+
+**The Supreme Court Seemed Poised to Allow a U.S. Ban of TikTok**\
+`Also, Los Angeles firefighters worked to contain the city’s largest fires. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/10/briefing/tik-tok-supreme-court-los-angeles-fires.html
+
 **The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
 `Through 109 games, Kane had 34 goals and 71 assists for 105 points. Through 109 games, Bedard has 33 goals and 65 assists for 98 points.`\
 https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
