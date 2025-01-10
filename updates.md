@@ -1,3 +1,7 @@
+**Neymar joining Inter Miami 'impossible' due to MLS salary cap - Mascherano**\
+`Inter Miami head coach Javier Mascherano has said it is &#8220;impossible&#8221; for the club to sign Neymar due to the salary cap in MLS.`\
+https://nytimes.com/athletic/6051683/2025/01/10/inter-miami-neymar-transfer/
+
 **Southern California Wildfires**\
 `What’s your reaction to the devastating fires in the Los Angeles area?`\
 https://nytimes.com/2025/01/10/learning/southern-california-wildfires.html
