@@ -1,4 +1,8 @@
 **Manchester United Women’s Ella Toone to return following two-month injury layoff**\
+`Manchester United Women midfielder Ella Toone is set to return following a two-month injury absence.`\
+https://nytimes.com/athletic/6051734/2025/01/10/ella-toone-injury-update-manchester-united/
+
+**Manchester United Women’s Ella Toone to return following two-month injury layoff**\
 `Manchester United Women midfielder Ella Toone is set to return for selection following a two-month injury layoff, manager Marc Skinner has said.`\
 https://nytimes.com/athletic/6051734/2025/01/10/ella-toone-injury-update-manchester-united/
 
