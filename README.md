@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/10/world/middleeast/isis-influence-new-orleans-attac
 https://nytimes.com/2025/01/10/nyregion/adams-corruption-businessman-plea.html
 
 **Giuliani Found in Contempt of Court Over Continued Defamation of Election Workers**\
-`In November, Mr. Giuliani repeated accusations against the women at least four times, after Donald J. Trump won the 2024 presidential election.`\
+`In November, Rudy Giuliani repeated accusations against the women at least four times, after Donald J. Trump won the 2024 presidential election.`\
 https://nytimes.com/2025/01/10/us/politics/giuliani-contempt-defamation-election-workers.html
 
 **Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
