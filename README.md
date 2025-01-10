@@ -1,3 +1,7 @@
+**A Major Challenge for Trump’s Agenda: A Mercurial Coach Calling the Plays**\
+`The president-elect has admonished Republicans to stay united around his ambitious domestic policy plans. But his track record with Congress is one of abrupt turnabouts and last-minute blowups.`\
+https://nytimes.com/2025/01/10/us/politics/trump-agenda-republicans.html
+
 **Biden Raises Bounty for Nicolás Maduro to $25 Million**\
 `The move is a retaliatory measure meant to punish the Venezuelan autocrat for refusing to give up power`\
 https://nytimes.com/2025/01/10/world/americas/biden-bounty-nicolas-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052516/2025/01/10/greig-senators-contract-extensio
 **In an unusual request, Trump asked the court to pause the law banning TikTok.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/in-an-unusual-request-trump-asked-the-court-to-pause-the-law-banning-tiktok
-
-**Bob Dylan Is Having a Hollywood Moment. His No. 1 Hater Is Ready.**\
-`A.J. Weberman sifted through the prophetic singer’s trash in search of meaning. He turned on him as a sellout and has spent decades trying to reclaim him for the counterculture.`\
-https://nytimes.com/2025/01/10/nyregion/bob-dylan-nemesis.html
 

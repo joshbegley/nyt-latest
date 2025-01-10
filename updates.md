@@ -1,3 +1,11 @@
+**Biden Raises Bounty for Nicolás Maduro to $25 Million**\
+`The move is a retaliatory measure meant to punish the Venezuelan autocrat for refusing to give up power`\
+https://nytimes.com/2025/01/10/world/americas/biden-bounty-nicolas-maduro.html
+
+**Vince McMahon Settles With S.E.C. Over Failing to Disclose Confidential Payments to Women**\
+`The former chief executive of World Wrestling Entertainment paid two women, one of whom accused him of assault.`\
+https://nytimes.com/2025/01/10/business/vince-mcmahon-sec-settlement.html
+
 **Limits on foreign ownership are not unusual in many industries.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/limits-on-foreign-ownership-are-not-unusual-in-many-industries
