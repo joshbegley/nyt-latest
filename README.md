@@ -1,3 +1,7 @@
+**The Supreme Court Seemed Poised to Allow a U.S. Ban of TikTok**\
+`Also, Los Angeles firefighters worked to contain the city’s largest fires. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/10/briefing/tik-tok-supreme-court-los-angeles-fires.html
+
 **Burning gas lines are a concern in some of the fire zones.**\
 `By Tim Balk and Mimi Dwyer`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/burning-gas-lines-are-a-concern-in-some-of-the-fire-zones
@@ -27,15 +31,11 @@ https://nytimes.com/athletic/6053292/2025/01/10/cutter-gauthier-flyers-philadelp
 `Five games in four countries is the preseason plan for Messi and company`\
 https://nytimes.com/athletic/6053340/2025/01/10/inter-miami-messi-tour/
 
-**L.A. Utilities’ Decisions to Keep Power on Are Scrutinized**\
+**L.A. Utilities’ Decisions to Keep Power On Are Scrutinized**\
 `Energy experts said that the decision by utility companies serving the Los Angeles area not to turn off many power lines during high winds likely increased the risk of fires.`\
 https://nytimes.com/2025/01/10/us/california-fires-la-power.html
 
 **Lemina needs to make decision on his Wolves future - Pereira**\
 `Wolverhampton Wanderers head coach Vitor Pereira says former captain Mario Lemina must decide whether he wants to stay at the club for the remainder of their Premier League relegation battle.`\
 https://nytimes.com/athletic/6052486/2025/01/10/mario-lemina-wolves-future/
-
-**Morato: The emotions of losing teenage sister to cancer that inspire him at Forest**\
-`Morato explains how the death of his sister, aged 15, pushes him on at Nottingham Forest in their quest for a European place`\
-https://nytimes.com/athletic/6052104/2025/01/10/morato-nottingham-forest-sister-cancer/
 

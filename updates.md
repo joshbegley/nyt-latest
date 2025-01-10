@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-beda
 `\
 https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
 
+**The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
+`Kane and Bedard's careers started off in a remarkably similar way, but there is one big difference that makes them seem worlds apart.
+`\
+https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
+
 **Burning gas lines are a concern in some of the fire zones.**\
 `By Tim Balk and Mimi Dwyer`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/burning-gas-lines-are-a-concern-in-some-of-the-fire-zones
