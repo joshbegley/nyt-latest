@@ -1,3 +1,7 @@
+**Rare Winter Storm Sweeps Across the South: What to Know**\
+`A storm that brought snow and ice to the Gulf Coast states was moving east on Friday.`\
+https://nytimes.com/2025/01/10/weather/georgia-north-carolina-ice-snow-forecast.html
+
 **Jalen Hurts: A full participant in practice, a promising sign for a playoff return**\
 `Hurts was a full participant in practice Thursday, with the Eagles gaining key assets just before the playoffs begin. `\
 https://nytimes.com/athletic/6050104/2025/01/10/jalen-hurts-eagles-playoff-return-concussion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/dining/america-tv-dinner.html
 **The Tragedy of Joe Biden**\
 `He didn’t get the credit he deserved on the economy.`\
 https://nytimes.com/2025/01/10/opinion/joe-biden-economy.html
-
-**I’m a Climate Scientist. I Fled Los Angeles Two Years Ago.**\
-`After the Bobcat Fire, L.A. no longer felt safe.`\
-https://nytimes.com/2025/01/10/opinion/la-fires-los-angeles-wildfires.html
 
