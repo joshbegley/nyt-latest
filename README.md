@@ -1,3 +1,11 @@
+**On the Eve of Trump’s Sentencing, an Unusual Art Gallery Opening**\
+`A show by the artist Isabelle Brourman, who sketched the trials of Donald J. Trump, attracted figures from the art world, the media and some lawyers from his civil fraud trial.`\
+https://nytimes.com/2025/01/10/arts/design/trump-sketch-artist-art-show.html
+
+**Which 4 Nations snubs are making the best cases to be injury subs?**\
+`Missing out on an invitation to next month's 4 Nations Face-Off may have provided an extra shot of motivation for some surging players.`\
+https://nytimes.com/athletic/6052469/2025/01/10/4-nations-subs/
+
 **‘Today’ Says Goodbye to Hoda Kotb, Over and Over Again**\
 `Special guests, including Simone Biles and Oprah Winfrey, offered tributes to the longtime host, capping off a week that “Today” had called a “Hoda-bration!”`\
 https://nytimes.com/2025/01/10/business/media/hoda-kotb-today-nbc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/movies/five-international-movies-to-stream-now.ht
 **Onions’ Highest Calling**\
 `Our five-star French onion soup recipe turns that big bag of trusty onions into a luxurious meal.`\
 https://nytimes.com/2025/01/10/dining/french-onion-soup-recipe.html
-
-**The Transfer Radar 2025: The Athletic's ultimate guide to players who could be on the move**\
-`Focused on transfers across 2025, we look at the situations of Salah, Wirtz, Zubimendi, Davies, Gyokeres, Alexander-Arnold and more...`\
-https://nytimes.com/athletic/5936155/2025/01/10/transfer-radar-window-signings-guide/
-
-**'It's a tough go for him': Khris Middleton fighting setbacks in return from offseason surgery**\
-`In an ideal world, Middleton would have returned from the injury and ramped up to his spot in the starting lineup with no restrictions.`\
-https://nytimes.com/athletic/6049736/2025/01/10/khris-middleton-bucks-bench-surgery/
 
