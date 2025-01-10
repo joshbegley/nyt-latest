@@ -1,3 +1,15 @@
+**Sports Streaming Service From Media Giants Ends Before It Starts**\
+`Venu Sports, a joint venture between Disney, Fox and Warner Bros., was announced to great fanfare last year but was discontinued before it ever became available.`\
+https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
+
+**Who are the creators suing TikTok?**\
+`The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-creators-lawsuit-us-ban
+
+**Review: She’s the Dancing Body, He’s the Restless Mind**\
+`Monica Bill Barnes and Robbie Saenz de Viteri ring in the New Year in their physical and introspective “Many Happy Returns.”`\
+https://nytimes.com/2025/01/10/arts/dance/review-monica-bill-barnes-many-happy-returns.html
+
 **Hickey signs Brentford contract extension until 2028**\
 `Aaron Hickey has signed a contract extension with Brentford until 2028.`\
 https://nytimes.com/athletic/6052607/2025/01/10/aaron-hickey-brentford-contract/
