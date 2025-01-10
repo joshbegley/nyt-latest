@@ -1,3 +1,7 @@
+**Could the Leafs' loss to the Canes lead to a shift in Toronto's goaltending picture?**\
+`The Leafs need to find ways to ease Joseph Woll's workload or risk burning him out ahead of when they need him most: in the playoffs.`\
+https://nytimes.com/athletic/6051510/2025/01/10/maple-leafs-hurricanes-joseph-woll/
+
 **Russo: You can't make up how utterly ridiculous the Wild's injury situation has been**\
 `Injuries and illness are forcing the Wild to get extremely creative with the salary cap as they try to tread water.`\
 https://nytimes.com/athletic/6051515/2025/01/10/wild-injuries-defense-goalies-avalanche/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049035/2025/01/10/arsenal-emirates-atmosphere/
 **Joao Pedro injury adds to Brighton issues, so what are Fabian Hurzeler's forward options?**\
 `The Brazilian forward has joined the walking wounded and placed more scrutiny on Danny Welbeck, Georginio Rutter and Evan Ferguson`\
 https://nytimes.com/athletic/6049176/2025/01/10/brighton-hurzeler-joao-pedro-welbeck-ferguson/
-
-**Explained: John Textor, Crystal Palace, Eagle Football and two awards of exclusivity**\
-`This week brought yet another twist in the saga around Textor's shareholding in the Premier League club — this is what we know`\
-https://nytimes.com/athletic/6046855/2025/01/10/textor-palace-lyon-sportsbank-kidd/
 
