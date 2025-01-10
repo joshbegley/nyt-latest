@@ -1,3 +1,7 @@
+**Alec Baldwin Sues New Mexico Prosecutors Over Dismissed ‘Rust’ Case**\
+`Lawyers for the actor accused law enforcement officials of waging a “malicious prosecution” against him after the 2021 shooting death of a cinematographer on a film set.`\
+https://nytimes.com/2025/01/09/movies/alec-baldwin-sues-prosecutors-rust.html
+
 **For a family of five, loss and an unknown future.**\
 `By Emily Baumgaertner`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/for-a-family-of-five-loss-and-an-unknown-future

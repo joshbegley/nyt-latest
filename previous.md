@@ -1,3 +1,7 @@
+**Alec Baldwin Sues New Mexico Prosecutors Over Dismissed ‘Rust’ Case**\
+`Lawyers for the actor accused law enforcement officials of waging a “malicious prosecution” against him after the 2021 shooting death of a cinematographer on a film set.`\
+https://nytimes.com/2025/01/09/movies/alec-baldwin-sues-prosecutors-rust.html
+
 **For a family of five, loss and an unknown future.**\
 `By Emily Baumgaertner`\
 https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/for-a-family-of-five-loss-and-an-unknown-future
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/politics/alito-trump-phone-call-ethics.html
 **Judge Orders Release of Woman Who Stabbed Friend to Please ‘Slender Man’**\
 `The woman, Morgan Geyser, 22, was sentenced to spend 40 years in a psychiatric facility after she stabbed her friend 19 times in 2014 for a sinister internet character.`\
 https://nytimes.com/2025/01/09/us/slenderman-stabbing-woman-released.html
-
-**Man Convicted in Pizzagate Shooting Is Killed in Confrontation With Police**\
-`Edgar Maddison Welch, 36, of Salisbury, N.C., who was sentenced to four years in prison for the 2016 shooting at a Washington restaurant, was fatally shot after he pointed a gun at an officer during a traffic stop, the police said.`\
-https://nytimes.com/2025/01/09/us/pizzagate-shooter-killed-police.html
 
