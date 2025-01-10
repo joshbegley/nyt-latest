@@ -1,3 +1,15 @@
+**Sunderland complete Le Fee signing from Roma**\
+`Sunderland have completed the loan signing of midfielder Enzo Le Fee from Roma.`\
+https://nytimes.com/athletic/6053358/2025/01/10/enzo-le-fee-sunderland-transfer/
+
+**'I just wish they knew the truth': Cutter Gauthier prepares for boos from Flyers fans**\
+`"I think it’s time for them and for me to move on," Gauthier, the former Flyers prospect, said before his first game in Philadelphia`\
+https://nytimes.com/athletic/6053292/2025/01/10/cutter-gauthier-flyers-philadelphia-reaction/
+
+**Inter Miami expand preseason tour to five games across Americas**\
+`Five games in four countries is the preseason plan for Messi and company`\
+https://nytimes.com/athletic/6053340/2025/01/10/inter-miami-messi-tour/
+
 **L.A. Utilities’ Decisions to Keep Power on Are Scrutinized**\
 `Energy experts said that the decision by utility companies serving the Los Angeles area not to turn off many power lines during high winds likely increased the risk of fires.`\
 https://nytimes.com/2025/01/10/us/california-fires-la-power.html
