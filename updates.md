@@ -1,3 +1,7 @@
+**The Athletic FC: Everton eye Moyes as Dyche departs, TV commercial murder link**\
+`Today in TAFC: Everton in talks with Moyes after Dyche leaves, the tragic connection that overshadows Accrington Stanley vs Liverpool`\
+https://nytimes.com/athletic/6051838/2025/01/10/everton-moyes-dyche-liverpool-accrington-stanley-murder/
+
 **The blazes also raise worries for Southern California wildlife.**\
 `By Catrin Einhorn`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/california-wildfires-wildlife

@@ -1,3 +1,7 @@
+**The Athletic FC: Everton eye Moyes as Dyche departs, TV commercial murder link**\
+`Today in TAFC: Everton in talks with Moyes after Dyche leaves, the tragic connection that overshadows Accrington Stanley vs Liverpool`\
+https://nytimes.com/athletic/6051838/2025/01/10/everton-moyes-dyche-liverpool-accrington-stanley-murder/
+
 **The blazes also raise worries for Southern California wildlife.**\
 `By Catrin Einhorn`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/california-wildfires-wildlife
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/business/energy-environment/constellation-energy-
 **Fantasy football 2025: CMC, rookie receivers and more notable risers and fallers**\
 `A more detailed look at the biggest movers in Brandon Funston's first 2025 Big Board of his Top 100 players.`\
 https://nytimes.com/athletic/6047161/2025/01/10/fantasy-footballs-top-risers-fallers-for-2025-christian-mccaffrey-rookie-receivers-and-more/
-
-**Fantasy football early 2025 rankings: Ja'Marr Chase, Saquon Barkley lead off the top 100**\
-`Brandon Funston looks ahead to 2025, sharing his thoughts on his initial list of the Top 100 fantasy football players for next season.`\
-https://nytimes.com/athletic/6050527/2025/01/10/fantasy-football-early-2025-top-100-rankings-big-board/
 
