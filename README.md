@@ -1,3 +1,15 @@
+**Is Zendaya Engaged?**\
+`Speculation abounds when celebrities wear a ring on that finger, so why do it?`\
+https://nytimes.com/2025/01/10/style/is-zendaya-engaged.html
+
+**Inside Mark Zuckerberg’s Sprint to Remake Meta for the Trump Era**\
+`After visiting President-elect Donald J. Trump in November, Mr. Zuckerberg decided to relax Meta’s speech policies. He asked a small team to carry out his goals within weeks. The repercussions are just beginning.`\
+https://nytimes.com/2025/01/10/technology/meta-mark-zuckerberg-trump.html
+
+**Get to Know Bad Bunny in 9 Songs**\
+`Hear his first solo single up through a highlight from his latest LP, “Debí Tirar Más Fotos.”`\
+https://nytimes.com/2025/01/10/arts/music/amplifier-newsletter-bad-bunny.html
+
 **TikTok is facing legal backlash around the world.**\
 `By Meaghan Tobin`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-is-facing-legal-backlash-around-the-world
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-supreme-cour
 **See Los Angeles on Fire From Above**\
 `Text by Loren Elliott and Emily Baumgaertner`\
 https://nytimes.com/card/2025/01/10/us/california-fire-aerial-photos
-
-**Former Georgia QB Carson Beck commits to Miami**\
-`At Miami, he’ll replace Heisman Trophy finalist Cam Ward, who led the No. 1 scoring offense last season.`\
-https://nytimes.com/athletic/6052860/2025/01/10/carson-beck-transfer-miami-georgia/
-
-**Does America Need More Meritocracy?**\
-`Debating Vivek Ramaswamy’s pressure-cooker vision.`\
-https://nytimes.com/2025/01/10/opinion/ramaswamy-meritocracy.html
-
-**NBA trends I'm watching: Grizzlies' renovated offense, Bulls 3-point prowess**\
-`Plus: It's time to pay one Orlando Magic big man, but not in the way you're thinking.`\
-https://nytimes.com/athletic/6052441/2025/01/10/nba-trends-grizzlies-offense-bulls-shooting/
 
