@@ -1,3 +1,11 @@
+**Filip Gustavsson, Wild's shorthanded blue line sliced and diced by Avs: 3 takeaways**\
+`Missing Kaprizov and three of their top defensemen, the Wild were no match for the Avalanche's star trio.`\
+https://nytimes.com/athletic/6051003/2025/01/09/wild-defense-injuries-middleton-avalanche/
+
+**Budget Cuts to Fire Department Are a Point of Contention, but the Full Picture Is Complicated**\
+`A closer look at the mechanics of budgeting offers some answers, but the financing is far from rosy.`\
+https://nytimes.com/2025/01/09/us/la-fire-department-budget-bass.html
+
 **Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
 `A mandatory evacuation order was issued for the area near Calabasas Officials expected the blaze to continue growing.`\
 https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html

@@ -1,3 +1,11 @@
+**Filip Gustavsson, Wild's shorthanded blue line sliced and diced by Avs: 3 takeaways**\
+`Missing Kaprizov and three of their top defensemen, the Wild were no match for the Avalanche's star trio.`\
+https://nytimes.com/athletic/6051003/2025/01/09/wild-defense-injuries-middleton-avalanche/
+
+**Budget Cuts to Fire Department Are a Point of Contention, but the Full Picture Is Complicated**\
+`A closer look at the mechanics of budgeting offers some answers, but the financing is far from rosy.`\
+https://nytimes.com/2025/01/09/us/la-fire-department-budget-bass.html
+
 **Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
 `A mandatory evacuation order was issued for the area near Calabasas Officials expected the blaze to continue growing.`\
 https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/09/us/politics/trump-appeals-court-special-counsel-r
 **Rams cut workday short due to new fire; game moved**\
 `The Rams' players and staff left the practice facility early Thursday to get to their homes and coordinate with family members.`\
 https://nytimes.com/athletic/6050928/2025/01/09/rams-practice-fires-playoff-game-moved/
-
-**Anita Bryant, Whose Anti-Gay Politics Undid a Singing Career, Is Dead at 84**\
-`The former beauty queen and spokeswoman for Florida orange juice was an all-American entertainer before she began crusading against L.G.B.T.Q. rights.`\
-https://nytimes.com/2025/01/09/arts/music/anita-bryant-dead.html
-
-**Vladimir Guerrero Jr., Blue Jays avoid arbitration with $28.5 million deal**\
-`After winning his arbitration hearing with the Blue Jays a year ago, Guerrero and Toronto reached a settlement on Friday.`\
-https://nytimes.com/athletic/6051078/2025/01/09/vladimir-guerrero-jr-blue-jays-arbitration-deal/
 
