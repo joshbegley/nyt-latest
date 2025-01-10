@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins get the last laugh as Crosby, McDavid each put on a show**\
+`The Penguins got the best of the Oilers through sheer hard work and smart defensive strategy — and a little star power from both teams.`\
+https://nytimes.com/athletic/6051045/2025/01/10/penguins-crosby-mcdavid-nedeljkovic-oilers/
+
 **'When we were kings' - the real story behind that viral Man Utd photo**\
 `It’s an image that is often used to illustrate how great United used to be. But 2005 was a miserable year for fans of Ferguson’s side`\
 https://nytimes.com/athletic/6047298/2025/01/10/manchester-uniteds-viral-photo-of-the-2005-kings-and-the-real-story-behind-it/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6046855/2025/01/10/textor-palace-lyon-sportsbank-ki
 **Milk and murder: The tragedy that overshadows Liverpool vs Accrington Stanley**\
 `An FA Cup tie that should be suffused with romance has a darker side — all thanks to a 1989 TV commercial`\
 https://nytimes.com/athletic/6049038/2025/01/10/liverpool-accrington-stanley-milk-advert-kevin-spaine/
-
-**U.S. Ambassador Says China Is Aligned With ‘Agents of Disorder’**\
-`R. Nicholas Burns, the top U.S. diplomat in Beijing, says the Biden administration is making a final push to urge China to reconsider its tilt toward Russia, Iran and North Korea.`\
-https://nytimes.com/2025/01/10/business/nicholas-burns-ambassador-china.html
 
