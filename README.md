@@ -1,3 +1,15 @@
+**MLB indefinitely bans Yankees fans who interfered during World Series**\
+`The pair were immediately ejected during Game 4 of the World Series and banned from attending Game 5. `\
+https://nytimes.com/athletic/6052984/2025/01/10/mlb-bans-yankees-fans-world-series-interference/
+
+**Destruction From 3,000 Feet in the Air**\
+`A reporter and a photographer from The New York Times surveyed the devastation wrought by the Palisades and Eaton fires from a helicopter.`\
+https://nytimes.com/2025/01/10/us/california-fires-aerial-photos.html
+
+**Prices Spike on Some L.A. Rentals as Fire Victims Search for Places to Stay**\
+`Despite a law against price gouging during a state of emergency, some rental listings have shot up above the allowable 10 percent overnight.`\
+https://nytimes.com/2025/01/10/business/california-fires-rent-price-gouging.html
+
 **Syracuse QB Kyle McCord declares for NFL Draft**\
 `McCord and Syracuse had asked the NCAA to grant McCord another year of eligibility, but he's entering the draft instead.`\
 https://nytimes.com/athletic/6053044/2025/01/10/syracuse-kyle-mccord-nfl-draft-quarterback/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/takeaways-tiktok-supreme-court.html
 **In North Carolina, Republicans Try to Reverse a Supreme Court Election Loss**\
 `An incumbent Democrat narrowly won re-election to the state’s highest court. But the Republican-controlled court is considering an unusual protest from her challenger that could flip the result.`\
 https://nytimes.com/2025/01/10/us/north-carolina-supreme-court.html
-
-**Remembering the Moments That Jolted Pop Music Last Year**\
-`A final look back at some of our favorite characters, trends, lyrics and micro-moments of 2024. Plus: listener mailbag!`\
-https://nytimes.com/2025/01/10/arts/music/popcast-best-music-moments-2024.html
-
-**Forest owner Marinakis can proceed with libel claim, court rules**\
-`A court has ruled that Nottingham Forest owner Evangelos Marinakis can continue his libel lawsuit against one of his rivals from Greek football who ran an alleged &#8220;smear campaign&#8221; against him.`\
-https://nytimes.com/athletic/6052980/2025/01/10/forest-marinakis-libel-claim/
-
-**Biden Issues Sweeping Deportation Protections Before Trump Takes Office**\
-`The move allows hundreds of thousands of people from Sudan, Ukraine and Venezuela to stay in the country temporarily.`\
-https://nytimes.com/2025/01/10/us/politics/biden-temporary-protected-status-immigration.html
 
