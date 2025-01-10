@@ -1,3 +1,7 @@
+**A Major Challenge for Trump’s Agenda: A Mercurial Coach Calling the Plays**\
+`The president-elect has admonished Republicans to stay united around his ambitious domestic policy plans. But his track record with Congress is one of abrupt turnabouts and last-minute blowups.`\
+https://nytimes.com/2025/01/10/us/politics/trump-agenda-republicans.html
+
 **Biden Raises Bounty for Nicolás Maduro to $25 Million**\
 `The move is a retaliatory measure meant to punish the Venezuelan autocrat for refusing to give up power`\
 https://nytimes.com/2025/01/10/world/americas/biden-bounty-nicolas-maduro.html
