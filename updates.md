@@ -1,3 +1,7 @@
+**Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
+`A mandatory evacuation order was issued for the area near Calabasas. Officials expected the blaze to continue growing.`\
+https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
+
 **Maple Leafs report cards: Weak defensive effort leads to blown-lead loss**\
 `Auston Matthews and Mitch Marner were on the ice for all six Carolina goals in 6-3 loss for Toronto.`\
 https://nytimes.com/athletic/6051287/2025/01/09/maple-leafs-hurricanes-grades-analysis/
