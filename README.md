@@ -1,3 +1,7 @@
+**Jobs report is a ‘wild card’ in a shaky week for markets.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/jobs-report-is-a-wild-card-in-a-shaky-week-for-markets
+
 **Retailers may be taking a more staggered approach to holiday hiring.**\
 `By Jordyn Holman`\
 https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/retailers-may-be-taking-a-more-staggered-approach-to-holiday-hiring
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049108/2025/01/10/nfl-nfc-playoffs-super-wild-card
 **Packers-Eagles preview: Jordan Love's arm, slowing Saquon Barkley, finding explosives**\
 `Green Bay looks to pull off an upset in the wild-card round as the No. 7 seed for the second consecutive year Sunday in Philadelphia.`\
 https://nytimes.com/athletic/6050791/2025/01/10/packers-eagles-playoffs-jordan-love/
-
-**Daboll is back, a new QB is coming, but play-caller remains a Giant question**\
-`Daboll could give up play-calling after a disappointing 2024 season, but will offensive coordinator Mike Kafka be there to take over?`\
-https://nytimes.com/athletic/6048756/2025/01/10/giants-play-caller-2025-season-brian-daboll-mike-kafka/
 
