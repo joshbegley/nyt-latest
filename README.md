@@ -1,3 +1,7 @@
+**History of relocated NFL games: From wildfires to blizzards to an owner angry at local fans**\
+`For the second time in NFL history, and for the first time since the FDR administration, a playoff game has been relocated to a new city.`\
+https://nytimes.com/athletic/6052197/2025/01/10/nfl-relocated-games-history-wildfire/
+
 **If a Sale of TikTok Is Required, Who Could Afford It?**\
 `Selling the app could be difficult, given its scale and nine-figure price.`\
 https://nytimes.com/2025/01/10/us/politics/tiktok-buyer-bid-frank-mccourt.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/10/us/january-10-2025-quinn-emanuel-whit
 **Scoop City: Your 5-minute wild-card preview**\
 `A quick preview of every matchup in the NFL's wild card round, newsletter-style`\
 https://nytimes.com/athletic/6052691/2025/01/10/nfl-wild-card-preview-quick-scoop-city/
-
-**Browns' Watson retears Achilles, putting 2025 in question: Source**\
-`On Monday, Browns general manager Andrew Berry said Watson suffered a "setback" in his recovery from the initial surgery.`\
-https://nytimes.com/athletic/6052717/2025/01/10/deshaun-watson-achilles-rupture-browns-surgery/
 
