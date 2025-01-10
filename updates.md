@@ -1,3 +1,7 @@
+**Jimmy Carter Is Honored in Washington**\
+`Five living presidents and a broad array of other leaders gathered at Washington National Cathedral to pay tribute to former President Jimmy Carter, the 39th president.`\
+https://nytimes.com/video/us/100000009918204/jimmy-carter-funeral.html
+
 **‘Completely Dry’: How Los Angeles Firefighters Ran Out of Water**\
 `As wildfires roar into residential neighborhoods, firefighters in California and elsewhere are finding that water systems can’t keep up with the demand.`\
 https://nytimes.com/2025/01/09/us/los-angeles-fire-water-hydrant-failure.html
