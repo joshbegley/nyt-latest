@@ -1,3 +1,11 @@
+**An Inferno in Southern California, and One Family’s Escape**\
+`Aurielle Hall knew she had little time to get herself and her daughter out of Altadena. Convincing Aunt Cheri would be a different challenge.`\
+https://nytimes.com/2025/01/10/us/altadena-family-escape-eaton-fire.html
+
+**David Moyes set to be appointed Everton manager**\
+`David Moyes is set to be appointed as Everton boss for the second time, with talks progressing towards a deal being concluded imminently.`\
+https://nytimes.com/athletic/6050146/2025/01/10/david-moyes-everton-manager/
+
 **NFL wild-card weekend betting insights: What the math says about home-field advantage**\
 `Michael Salfino takes a deep dive into the value of home-field advantage in the NFL and who actually takes advantage of it the most.`\
 https://nytimes.com/athletic/6052719/2025/01/10/nfl-wild-card-weekend-home-field-advantage/

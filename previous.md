@@ -1,3 +1,11 @@
+**An Inferno in Southern California, and One Family’s Escape**\
+`Aurielle Hall knew she had little time to get herself and her daughter out of Altadena. Convincing Aunt Cheri would be a different challenge.`\
+https://nytimes.com/2025/01/10/us/altadena-family-escape-eaton-fire.html
+
+**David Moyes set to be appointed Everton manager**\
+`David Moyes is set to be appointed as Everton boss for the second time, with talks progressing towards a deal being concluded imminently.`\
+https://nytimes.com/athletic/6050146/2025/01/10/david-moyes-everton-manager/
+
 **NFL wild-card weekend betting insights: What the math says about home-field advantage**\
 `Michael Salfino takes a deep dive into the value of home-field advantage in the NFL and who actually takes advantage of it the most.`\
 https://nytimes.com/athletic/6052719/2025/01/10/nfl-wild-card-weekend-home-field-advantage/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-is-facing
 **Five Takeaways from Trump’s Criminal Sentencing**\
 `Friday’s punishment was largely symbolic, but it ensured that Donald J. Trump would become America’s first felon president.`\
 https://nytimes.com/2025/01/10/nyregion/trump-hush-money-sentencing-takeaways.html
-
-**An important reservoir was offline when the fires began.**\
-`The Santa Ynez Reservoir in the Pacific Palisades neighborhood had been shut down. Water there normally helps replenish tanks that were drained by firefighters.`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/an-important-reservoir-was-offline-when-the-fires-began
-
-**Commanders to get Marshon Lattimore back for clash with Mike Evans, Bucs**\
-`Evans, coming off an 11th consecutive 1,000-yard season, and Lattimore squared off frequently when both were in the NFC South.`\
-https://nytimes.com/athletic/6052883/2025/01/10/marshon-lattimore-return-commanders-nfl-wildcard/
 
