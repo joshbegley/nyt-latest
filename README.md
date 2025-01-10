@@ -1,3 +1,11 @@
+**Classified information means some of the national security concerns about TikTok remain opaque.**\
+`By David McCabe`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/classified-information-means-some-of-the-national-security-concerns-about-tiktok-remain-opaque
+
+**Henry set for first Brentford appearance in 16 months after ACL injury**\
+`Thomas Frank has confirmed Rico Henry will make his first appearance for Brentford in 16 months in their FA Cup third-round tie against Plymouth Argyle on Saturday.`\
+https://nytimes.com/athletic/6052470/2025/01/10/rico-henry-brentford-injury-return/
+
 **U.S. Imposes New Sanctions to Squeeze Russia’s Energy Sector**\
 `The Biden administration is cracking down on the Russian “shadow fleet” and taking steps to curb oil and gas production.`\
 https://nytimes.com/2025/01/10/us/politics/us-russia-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/nyregion/unconditional-discharge-trump.html
 **Just how Chinese are TikTok and ByteDance, anyway?**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/just-how-chinese-are-tiktok-and-bytedance-anyway
-
-**The Bounce: All-Star voting > All-Star Game**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6052386/2025/01/10/nba-all-star-game-voting-results-the-bounce/
-
-**Super Bowl MVP odds: Our staff make picks before the playoffs commence**\
-`We're making early picks for Super Bowl MVP. Who you got?`\
-https://nytimes.com/athletic/6050422/2025/01/10/super-bowl-lix-mvp-odds-picks-mahomes-goff-open-as-favorites-ahead-of-wild-card-weekend/
 
