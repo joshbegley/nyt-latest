@@ -1,3 +1,19 @@
+**U.S. Ambassador Says China Is Aligned With ‘Agents of Disorder’**\
+`R. Nicholas Burns, the top U.S. diplomat in Beijing, says the Biden administration is making a final push to urge China to reconsider its tilt toward Russia, Iran and North Korea.`\
+https://nytimes.com/2025/01/10/business/nicholas-burns-ambassador-china.html
+
+**What's gone wrong for Jack Grealish at Manchester City?**\
+`The English winger is at a crossroads in his career as he tries to break a cycle of diminishing returns`\
+https://nytimes.com/athletic/6047808/2025/01/10/jack-grealish-manchester-city-what-gone-wrong/
+
+**Special report: The future of St James' Park**\
+`The question of what Newcastle do with St James' Park – redevelop or relocate – is a huge one for the club`\
+https://nytimes.com/athletic/6006091/2025/01/10/st-james-park-newcastle-future/
+
+**Blue Jackets lean on call-ups Luca Del Bel Belluz and Owen Sillinger in rout of Kraken**\
+`The Blue Jackets, playing without two of their top-three centers, relied instead on their farm system to help make quick work of the Kraken.`\
+https://nytimes.com/athletic/6051305/2025/01/10/blue-jackets-owen-sillinger-luca-del-bel-belluz/
+
 **Data has revolutionised football transfers. When will it do the same to real-time tactics?**\
 `Examples of data being used to directly impact a game may be limited, but the reasons why are simpler than they might seem`\
 https://nytimes.com/athletic/5991730/2025/01/10/when-will-data-impact-tactics-real-time/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/10/briefing/fires-los-angeles-lebanon.html
 **My Brother Has Schizophrenia. This Is How I Love Him.**\
 `I can’t make Tim better. But he has made me a better doctor.`\
 https://nytimes.com/2025/01/10/style/modern-love-brother-schizophrenia-how-i-love-him.html
-
-**It All Started With a Ouija Board**\
-`Laura Acker and Evan Menscher met last spring after, she believes, her father’s spirit led her to him.`\
-https://nytimes.com/2025/01/10/style/laura-acker-evan-menscher-wedding.html
-
-**A Couple Kisses That Sealed the Deal**\
-`Olivia Snyder-Spak and Eli Stein met on Hinge and quickly began dating. A trip to Turks and Caicos solidified their commitment.`\
-https://nytimes.com/2025/01/10/style/olivia-snyder-spak-eli-stein-wedding.html
-
-**At the End of a Road Trip, a Romantic Detour**\
-`Elizabeth Solomon traveled the country during the pandemic. She met Gero Geilenbruegge during a stopover in Naples, Fla. — and decided to stay.`\
-https://nytimes.com/2025/01/10/style/elizabeth-solomon-gero-geilenbruegge-wedding.html
-
-**Quote of the Day: Lofty Tribute to a Public Servant and Humble Grandfather**\
-`Quotation of the Day for Friday, January 10, 2025.`\
-https://nytimes.com/2025/01/09/pageoneplus/quote-of-the-day-lofty-tribute-to-a-public-servant-and-humble-grandfather.html
 

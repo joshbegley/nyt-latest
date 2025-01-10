@@ -1,3 +1,7 @@
+**Explained: John Textor, Crystal Palace, Eagle Football and two awards of exclusivity**\
+`This week brought yet another twist in the saga around Textor's shareholding in the Premier League club — this is what we know`\
+https://nytimes.com/athletic/6046855/2025/01/10/textor-palace-lyon-sportsbank-kidd/
+
 **U.S. Ambassador Says China Is Aligned With ‘Agents of Disorder’**\
 `R. Nicholas Burns, the top U.S. diplomat in Beijing, says the Biden administration is making a final push to urge China to reconsider its tilt toward Russia, Iran and North Korea.`\
 https://nytimes.com/2025/01/10/business/nicholas-burns-ambassador-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986377/2025/01/10/graham-potter-manager-profile-we
 **Friday Briefing**\
 `Three days of wildfires.`\
 https://nytimes.com/2025/01/10/briefing/fires-los-angeles-lebanon.html
-
-**My Brother Has Schizophrenia. This Is How I Love Him.**\
-`I can’t make Tim better. But he has made me a better doctor.`\
-https://nytimes.com/2025/01/10/style/modern-love-brother-schizophrenia-how-i-love-him.html
 
