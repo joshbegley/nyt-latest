@@ -1,3 +1,7 @@
+**History of relocated NFL games: From wildfires to blizzards to an owner angry at local fans**\
+`For the second time in NFL history, and for the first time since the FDR administration, a playoff game has been relocated to a new city.`\
+https://nytimes.com/athletic/6052197/2025/01/10/nfl-relocated-games-history-wildfire/
+
 **If a Sale of TikTok Is Required, Who Could Afford It?**\
 `Selling the app could be difficult, given its scale and nine-figure price.`\
 https://nytimes.com/2025/01/10/us/politics/tiktok-buyer-bid-frank-mccourt.html
