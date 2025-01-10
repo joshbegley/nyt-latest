@@ -1,3 +1,7 @@
+**Limits on foreign ownership are not unusual in many industries.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/limits-on-foreign-ownership-are-not-unusual-in-many-industries
+
 **On the Eve of Trump’s Sentencing, an Unusual Art Gallery Opening**\
 `A show by the artist Isabelle Brourman, who sketched the trials of Donald J. Trump, attracted figures from the art world, the media and some lawyers from his civil fraud trial.`\
 https://nytimes.com/2025/01/10/arts/design/trump-sketch-artist-art-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/world/middleeast/israel-strikes-yemen-houthis.htm
 **Five International Movies to Stream Now**\
 `This month, one of Pablo Escobar’s hippos narrates his life, a Ouija board terrorizes friends in India and an Iranian refugee in Finland navigates adolescence.`\
 https://nytimes.com/2025/01/10/movies/five-international-movies-to-stream-now.html
-
-**Onions’ Highest Calling**\
-`Our five-star French onion soup recipe turns that big bag of trusty onions into a luxurious meal.`\
-https://nytimes.com/2025/01/10/dining/french-onion-soup-recipe.html
 
