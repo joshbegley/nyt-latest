@@ -1,3 +1,7 @@
+**Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
+`A mandatory evacuation order was issued for the area near Calabasas Officials expected the blaze to continue growing.`\
+https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
+
 **Cubs could be heading toward an arbitration hearing against Kyle Tucker**\
 `The Cubs were able to reach an agreement with Justin Steele on a $6.55 million salary for 2025.`\
 https://nytimes.com/athletic/6051215/2025/01/09/cubs-kyle-tucker-arbitration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/arts/music/anita-bryant-dead.html
 **Vladimir Guerrero Jr., Blue Jays avoid arbitration with $28.5 million deal**\
 `After winning his arbitration hearing with the Blue Jays a year ago, Guerrero and Toronto reached a settlement on Friday.`\
 https://nytimes.com/athletic/6051078/2025/01/09/vladimir-guerrero-jr-blue-jays-arbitration-deal/
-
-**Day 5: One Change to Eat Healthier All Year**\
-`Add to your plate — don’t subtract.`\
-https://nytimes.com/2025/01/09/well/ultraprocessed-whole-foods.html
 
