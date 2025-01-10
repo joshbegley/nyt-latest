@@ -1,3 +1,19 @@
+**TikTok acknowledged the government’s national security concerns but believed it could address them.**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-acknowledged-the-governments-national-security-concerns-but-believed-it-could-address-them
+
+**Islanders head into second half still believing, not ready to become sellers: 'Everything is in reach'**\
+`After Thursday's win over the league-best Golden Knights, the Islanders have just their third two-game winning streak of the season.`\
+https://nytimes.com/athletic/6051557/2025/01/10/islanders-second-half-sellers-contenders/
+
+**Chilwell, Casadei won't play in FA Cup amid transfer speculation - Maresca**\
+`Chelsea head coach Enzo Maresca has revealed Ben Chilwell and Cesare Casadei are not playing in the FA Cup against Morecambe tomorrow because he does not want to threaten their chances of leaving this month.`\
+https://nytimes.com/athletic/6052163/2025/01/10/enzo-maresca-chelsea-chilwell-casadei/
+
+**These lawyers defending Trump are poised to join his administration.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/these-lawyers-defending-trump-are-poised-to-join-his-administration
+
 **Man Utd 'need to improve recruitment' - Amorim**\
 `Ruben Amorim has said that Manchester United &#8220;need to improve recruitment&#8221; and maintained he wants Kobbie Mainoo to stay at the club.`\
 https://nytimes.com/athletic/6052171/2025/01/10/manchester-united-transfers-amorim-mainoo/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/what-would-a-tik
 **Live Updates: Supreme Court Will Hear Challenge to Law Ordering TikTok Sale**\
 `Congress says the popular video app poses a looming threat to the nation’s security because of its Chinese owner. What the justices decide could determine if the app is shut down.`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court
-
-**A Super Bowl Cinderella? Ranking the underdogs most likely to make a title run**\
-`In ranking the nine teams outside of the top five Super Bowl contenders, should we believe in the Packers?`\
-https://nytimes.com/athletic/6049597/2025/01/10/2025-nfl-playoff-underdogs-ranked/
-
-**Inside Sean Dyche's Everton exit: TFG tension, transfer discord, Potter interest**\
-`Sean Dyche's exit seemed inevitable - but the speed of it caught players and fans on the hop. This is how it happened and the fallout`\
-https://nytimes.com/athletic/6051934/2025/01/10/sean-dyche-everton-exit-friedkin-group/
-
-**Los Angeles Artists Mourn as Their Studios and Artworks Go Up in Smoke**\
-`Artists who lived and worked in Altadena and the Pacific Palisades are worrying about irreplaceable losses, and their livelihoods.`\
-https://nytimes.com/2025/01/10/us/los-angeles-artists-fire-destroyed.html
-
-**Halloween Decorations in January? She’ll Go to Court for Them.**\
-`A Tennessee woman’s plan to update her supersize skeletons for various holidays ran afoul of local law, but she has no plans to take them down.`\
-https://nytimes.com/2025/01/10/style/halloween-decorations-tennessee.html
 
