@@ -1,3 +1,7 @@
+**Biden Issues Sweeping Deportation Protections Before Trump Takes Office**\
+`The move allows hundreds of thousands of people from Sudan, Ukraine and Venezuela to stay in the country temporarily.`\
+https://nytimes.com/2025/01/10/us/politics/biden-temporary-protected-status-immigration.html
+
 **In Los Angeles, Hotels Become a Refuge for Fire Evacuees**\
 `In lobbies throughout the city, guests with children, pets and hastily packed bags share a resigned intimacy.`\
 https://nytimes.com/2025/01/10/travel/los-angeles-fire-evacuees-hotels.html
