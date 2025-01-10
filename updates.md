@@ -1,3 +1,20 @@
+**Burning gas lines are a concern in some of the fire zones.**\
+`By Tim Balk and Mimi Dwyer`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/burning-gas-lines-are-a-concern-in-some-of-the-fire-zones
+
+**Pelicans' Zion Williamson suspended for 'violation of team policies'**\
+`"There is no excuse for being late to team activities," Williamson said on Friday.`\
+https://nytimes.com/athletic/6053357/2025/01/10/pelicans-zion-williamson-suspended-violation-team-policies/
+
+**James Arthur Ray, Self-Help Guide Whose Retreat Became Deadly, Dies at 67**\
+`A rising star among New Age motivational speakers, he was brought down by a disaster during one of his retreats in Arizona, where three people died in a sweat lodge.`\
+https://nytimes.com/2025/01/10/us/james-arthur-ray-dead.html
+
+**The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
+`Kane and Bedard's careers started off in a remarkably similar way, but there is one big difference that makes them seem worlds apart.
+`\
+https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
+
 **Sunderland complete Le Fee signing from Roma**\
 `Sunderland have completed the loan signing of midfielder Enzo Le Fee from Roma.`\
 https://nytimes.com/athletic/6053358/2025/01/10/enzo-le-fee-sunderland-transfer/

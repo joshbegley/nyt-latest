@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6053358/2025/01/10/enzo-le-fee-sunderland-transfer/
 `"I think it’s time for them and for me to move on," Gauthier, the former Flyers prospect, said before his first game in Philadelphia`\
 https://nytimes.com/athletic/6053292/2025/01/10/cutter-gauthier-flyers-philadelphia-reaction/
 
-**Inter Miami expand preseason tour to five games across Americas**\
+**Inter Miami expand preseason tour to five games across the Americas**\
 `Five games in four countries is the preseason plan for Messi and company`\
 https://nytimes.com/athletic/6053340/2025/01/10/inter-miami-messi-tour/
 
