@@ -1,3 +1,11 @@
+**Scoop City: Your 5-minute wild-card preview**\
+`A quick preview of every matchup in the NFL's wild card round, newsletter-style`\
+https://nytimes.com/athletic/6052691/2025/01/10/nfl-wild-card-preview-quick-scoop-city/
+
+**Who Are the Creators Suing Over a TikTok Ban?**\
+`The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
+https://nytimes.com/2025/01/10/us/politics/tiktok-creators-lawsuit-us-ban.html
+
 **Browns' Watson retears Achilles, putting 2025 in question: Source**\
 `On Monday, Browns general manager Andrew Berry said Watson suffered a "setback" in his recovery from the initial surgery.`\
 https://nytimes.com/athletic/6052717/2025/01/10/deshaun-watson-achilles-rupture-browns-surgery/
