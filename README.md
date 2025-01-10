@@ -1,3 +1,7 @@
+**Neymar joining Inter Miami 'impossible' due to MLS salary cap - Mascherano**\
+`Inter Miami head coach Javier Mascherano has said it is &#8220;impossible&#8221; for the club to sign Neymar due to the salary cap in MLS.`\
+https://nytimes.com/athletic/6051683/2025/01/10/inter-miami-neymar-transfer/
+
 **Southern California Wildfires**\
 `What’s your reaction to the devastating fires in the Los Angeles area?`\
 https://nytimes.com/2025/01/10/learning/southern-california-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/us/eaton-fires-altadena-california.html
 **Gui Santos delivers the Warriors a reminder of how they must win games**\
 `"Everything you saw Gui do tonight, that's what wins games," coach Steve Kerr said after the Warriors' 107-104 road win over the Pistons.`\
 https://nytimes.com/athletic/6050957/2025/01/10/warriors-pistons-gui-santos/
-
-**Late Night Is Impressed by the V.I.P. List at Jimmy Carter’s Funeral**\
-`Desi Lydic said it was rare to see five American presidents in one place, “and even rarer to have Donald and Melania in the same room together.”`\
-https://nytimes.com/2025/01/10/arts/television/late-night-carter-funeral.html
 

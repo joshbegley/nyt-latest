@@ -1,3 +1,31 @@
+**Southern California Wildfires**\
+`What’s your reaction to the devastating fires in the Los Angeles area?`\
+https://nytimes.com/2025/01/10/learning/southern-california-wildfires.html
+
+**Trump Is Set to Avoid Punishment, but Sentencing Will Make Him a Felon**\
+`Though the president-elect is expected to avoid jail time, his sentencing on 34 counts will formalize his status as a felon and make him the first to carry that distinction into the White House.`\
+https://nytimes.com/2025/01/10/nyregion/trump-sentencing-felon-hush-money.html
+
+**The Roller-Skating Economist You Can Thank for Congestion Pricing**\
+`Charging drivers to enter Lower Manhattan vindicates the lifelong mission of a Nobel laureate who, as it happened, died behind the wheel of a car.`\
+https://nytimes.com/2025/01/10/nyregion/big-city-congestion-pricing.html
+
+**Federal Grand Jury Has Heard More Evidence in Case Against Mayor Adams**\
+`Prosecutors have presented additional evidence to a grand jury in the case against Eric Adams, his lawyer said in court papers, a sign new charges may be near.`\
+https://nytimes.com/2025/01/10/nyregion/eric-adams-corruption-grand-jury.html
+
+**‘Ad Vitam’ Review: High Stakes and Paragliding**\
+`Lean, fast and furious action movies may look simple on the surface but they’re hard to pull off, as this new French import demonstrates.`\
+https://nytimes.com/2025/01/10/movies/ad-vitam-review.html
+
+**What We Know About Trump’s Sentencing**\
+`Donald J. Trump’s sentencing allows him to begin mounting a formal appeal, which could take months or years.`\
+https://nytimes.com/2025/01/10/nyregion/trump-sentencing-appeal.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/10/crosswords/spelling-bee-forum.html
+
 **Altadena Residents Return to a Scene of Devastation**\
 `As the Eaton fire retreated into the foothills, people who had fled their homes came back for a look. For many, the news was as bad as it could be.`\
 https://nytimes.com/2025/01/10/us/eaton-fires-altadena-california.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6050957/2025/01/10/warriors-pistons-gui-santos/
 **Late Night Is Impressed by the V.I.P. List at Jimmy Carter’s Funeral**\
 `Desi Lydic said it was rare to see five American presidents in one place, “and even rarer to have Donald and Melania in the same room together.”`\
 https://nytimes.com/2025/01/10/arts/television/late-night-carter-funeral.html
-
-**Word of the Day: cacophony**\
-`This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/10/learning/word-of-the-day-cacophony.html
-
-**Firefighting Aircraft Collides with Drone Over Palisades Fire**\
-`The plane’s wing was damaged and it has been grounded, a Cal Fire spokesman said.`\
-https://nytimes.com/2025/01/10/us/aircraft-collision-drone-palisades-fire.html
-
-**Could the Leafs' loss to the Canes lead to a shift in Toronto's goaltending picture?**\
-`The Leafs need to find ways to ease Joseph Woll's workload or risk burning him out ahead of when they need him most: in the playoffs.`\
-https://nytimes.com/athletic/6051510/2025/01/10/maple-leafs-hurricanes-joseph-woll/
-
-**Russo: You can't make up how utterly ridiculous the Wild's injury situation has been**\
-`Injuries and illness are forcing the Wild to get extremely creative with the salary cap as they try to tread water.`\
-https://nytimes.com/athletic/6051515/2025/01/10/wild-injuries-defense-goalies-avalanche/
-
-**Yohe's 10 observations: Penguins get the last laugh as Crosby, McDavid each put on a show**\
-`The Penguins got the best of the Oilers through sheer hard work and smart defensive strategy — and a little star power from both teams.`\
-https://nytimes.com/athletic/6051045/2025/01/10/penguins-crosby-mcdavid-nedeljkovic-oilers/
-
-**'When we were kings' - the real story behind that viral Man Utd photo**\
-`It’s an image that is often used to illustrate how great United used to be. But 2005 was a miserable year for fans of Ferguson’s side`\
-https://nytimes.com/athletic/6047298/2025/01/10/manchester-uniteds-viral-photo-of-the-2005-kings-and-the-real-story-behind-it/
-
-**Welcome back to the Bundesliga: How it's going for Vincent Kompany and what next for Florian Wirtz**\
-`All the biggest plotlines as German's top division gets going again tonight after its winter break`\
-https://nytimes.com/athletic/6046929/2025/01/10/bundesliga-bayern-dortmund-wirtz/
 
