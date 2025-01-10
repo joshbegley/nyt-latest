@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Fantilli, Askarov, Staal and other injury replacements**\
+`Tuesday was a bad night for injuries. Here's a group of good-looking replacements.`\
+https://nytimes.com/athletic/6051440/2025/01/10/fantasy-trends-and-hidden-gems-fantilli-askarov-staal-and-other-injury-replacements/
+
 **A group of experienced practitioners is arguing before the justices today.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/a-group-of-experienced-practitioners-is-arguing-before-the-justices-today
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051557/2025/01/10/islanders-second-half-sellers-co
 **Chilwell, Casadei won't play in FA Cup amid transfer speculation - Maresca**\
 `Chelsea head coach Enzo Maresca has revealed Ben Chilwell and Cesare Casadei are not playing in the FA Cup against Morecambe tomorrow because he does not want to threaten their chances of leaving this month.`\
 https://nytimes.com/athletic/6052163/2025/01/10/enzo-maresca-chelsea-chilwell-casadei/
-
-**These lawyers defending Trump are poised to join his administration.**\
-`By Kate Christobek`\
-https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/these-lawyers-defending-trump-are-poised-to-join-his-administration
 
