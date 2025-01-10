@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2025/01/09/college-football-playoff-projections-odds/
+
 **Notre Dame wins Orange Bowl thriller with late INT, kick to earn title shot**\
 `After Notre Dame beat Penn State, Marcus Freeman will be the first Black coach in college football's national championship game.`\
 https://nytimes.com/athletic/6051284/2025/01/09/notre-dame-penn-state-playoff-orange-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/us/la-fire-department-budget-bass.html
 **Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
 `A mandatory evacuation order was issued for the area near Calabasas. Officials expected the blaze to continue growing.`\
 https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
-
-**Cubs could be heading toward an arbitration hearing against Kyle Tucker**\
-`The Cubs were able to reach an agreement with Justin Steele on a $6.55 million salary for 2025.`\
-https://nytimes.com/athletic/6051215/2025/01/09/cubs-kyle-tucker-arbitration/
 
