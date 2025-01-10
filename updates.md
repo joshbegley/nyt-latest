@@ -1,3 +1,7 @@
+**What is strict scrutiny and why does it matter?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/what-is-strict-scrutiny-and-why-does-it-matter
+
 **Map: 3.7-Magnitude Earthquake Strikes near San Francisco**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/10/weather/quake-tracker-san-francisco.html
