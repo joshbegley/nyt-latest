@@ -1,3 +1,11 @@
+**Altadena Residents Return to a Scene of Devastation**\
+`As the Eaton fire retreated into the foothills, people who had fled their homes came back for a look. For many, the news was as bad as it could be.`\
+https://nytimes.com/2025/01/10/us/eaton-fires-altadena-california.html
+
+**Gui Santos delivers the Warriors a reminder of how they must win games**\
+`"Everything you saw Gui do tonight, that's what wins games," coach Steve Kerr said after the Warriors' 107-104 road win over the Pistons.`\
+https://nytimes.com/athletic/6050957/2025/01/10/warriors-pistons-gui-santos/
+
 **Late Night Is Impressed by the V.I.P. List at Jimmy Carter’s Funeral**\
 `Desi Lydic said it was rare to see five American presidents in one place, “and even rarer to have Donald and Melania in the same room together.”`\
 https://nytimes.com/2025/01/10/arts/television/late-night-carter-funeral.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6047298/2025/01/10/manchester-uniteds-viral-photo-o
 **Welcome back to the Bundesliga: How it's going for Vincent Kompany and what next for Florian Wirtz**\
 `All the biggest plotlines as German's top division gets going again tonight after its winter break`\
 https://nytimes.com/athletic/6046929/2025/01/10/bundesliga-bayern-dortmund-wirtz/
-
-**Djed Spence looking less like a stand-in and more like a long-term solution**\
-`Against Liverpool, Spence stood out for his composure, his athleticism, his prudent defending, and his quality going forward`\
-https://nytimes.com/athletic/6044337/2025/01/10/tottenham-djed-spence-form/
-
-**'There's nobody better' - Steven Fletcher, Wrexham's supersub, is defying age and injury**\
-`He is 37 and had knee surgery in 2023, but the former Scotland forward's class is keeping Wrexham in the promotion hunt`\
-https://nytimes.com/athletic/6041735/2025/01/10/steven-fletcher-wrexham-supersub/
 
