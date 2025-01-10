@@ -1,3 +1,7 @@
+**Retailers may be taking a more staggered approach to holiday hiring.**\
+`By Jordyn Holman`\
+https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/retailers-may-be-taking-a-more-staggered-approach-to-holiday-hiring
+
 **Andy Cowell becomes Aston Martin team principal amid reshuffle**\
 `Cowell replaces Mike Krack, who will take up the role of chief trackside officer.`\
 https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-principal/
