@@ -1,3 +1,11 @@
+**Mapping the Damage From the Palisades Fire**\
+`Satellite analysis of Pacific Palisades offers a glimpse of the damaged or destroyed buildings in the area.`\
+https://nytimes.com/interactive/2025/01/09/us/la-wildfires-damage-photos-map.html
+
+**Firefighters Protect Historic Mt. Wilson Observatory From Eaton Fire**\
+`The blaze threatened the observatory and communications infrastructure at the peak. Later, an observatory official said it appeared to be under control.`\
+https://nytimes.com/2025/01/09/us/eaton-fire-mount-wilson-observatory.html
+
 **Maple Leafs report cards: Weak defensive effort leads to blown-lead loss**\
 `Auston Matthews and Mitch Marner were on the ice for all six Carolina goals in 6-3 loss for Toronto.`\
 https://nytimes.com/athletic/6051287/2025/01/09/maple-leafs-hurricanes-grades-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/01/09/climate/2024-heat-record-climate-goal
 **It Might Change Your Perspective**\
 `Robert Logan opens our solving weekend.`\
 https://nytimes.com/2025/01/09/crosswords/daily-puzzle-2025-01-10.html
-
-**Soccer players Carlos Vela and Ali Riley lose homes in L.A. wildfires**\
-`Former Mexican national team forward Carlos Vela, who played for Los Angeles FC, has lost his family’s home to the Palisades Fire, his wife Saioa Cañibano announced on social media on Thursday.`\
-https://nytimes.com/athletic/6051151/2025/01/09/calos-vela-ali-riley-lost-home-la-wildfires/
-
-**Appeals Court Declines to Block Release of Special Counsel Report on Trump Cases**\
-`But the court left in place an injunction that bars the Justice Department from disclosing the report for another three days.`\
-https://nytimes.com/2025/01/09/us/politics/trump-appeals-court-special-counsel-report.html
 
