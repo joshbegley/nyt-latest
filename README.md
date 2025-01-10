@@ -1,3 +1,7 @@
+**A Rebuke to Trump Provides a Telling Portrait of a Divided Supreme Court**\
+`Two Republican appointees, Chief Justice Roberts and Justice Barrett, joined the court’s three liberals in ordering the president-elect to face sentencing on Friday.`\
+https://nytimes.com/2025/01/09/us/supreme-court-trump-hush-money.html
+
 **2024 Brought the World to a Dangerous Warming Threshold. Now What?**\
 `Global temperatures last year crept past a key goal, raising questions about how much nations can stop the planet from heating up further.`\
 https://nytimes.com/interactive/2025/01/09/climate/2024-heat-record-climate-goal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/09/well/ultraprocessed-whole-foods.html
 **‘Den of Thieves 2: Pantera’ Review: Tough Cop, Nice Robber**\
 `Gerard Butler and O’Shea Jackson Jr., adversaries in the original film, now buddy up to steal some diamonds in France.`\
 https://nytimes.com/2025/01/09/movies/den-of-thieves-2-pantera-review.html
-
-**Federal Court Halts Hearing on Eve of Guilty Plea by Accused 9/11 Mastermind**\
-`A three-judge appeals panel will decide whether the plea deal Khalid Shaikh Mohammed reached to avoid a death-penalty trial remains valid.`\
-https://nytimes.com/2025/01/09/us/politics/911-khalid-shaikh-mohammed-plea-deal.html
 
