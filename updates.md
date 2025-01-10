@@ -1,3 +1,11 @@
+**MLS apologizes for falsely announcing Kyogo's transfer to Atlanta United**\
+`Atlanta signed U.S.-born Cayman Togashi, not Kyogo, on Wednesday. `\
+https://nytimes.com/athletic/6050968/2025/01/09/mls-apologizes-false-atlanta-united-transfer/
+
+**What it means when officials say a fire is ‘contained.’**\
+`By Adeel Hassan`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/what-it-means-when-officials-say-a-fire-is-contained
+
 **How Outlets on the Left and Right Have Covered the Los Angeles Wildfires**\
 `Media outlets reported similarly on the destruction caused by the fires that raced through Southern California. But partisan publications attributed them to very different causes.`\
 https://nytimes.com/2025/01/09/business/media/los-angeles-wildfires-media-coverage.html

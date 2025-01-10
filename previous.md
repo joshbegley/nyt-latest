@@ -1,3 +1,11 @@
+**MLS apologizes for falsely announcing Kyogo's transfer to Atlanta United**\
+`Atlanta signed U.S.-born Cayman Togashi, not Kyogo, on Wednesday. `\
+https://nytimes.com/athletic/6050968/2025/01/09/mls-apologizes-false-atlanta-united-transfer/
+
+**What it means when officials say a fire is ‘contained.’**\
+`By Adeel Hassan`\
+https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/what-it-means-when-officials-say-a-fire-is-contained
+
 **How Outlets on the Left and Right Have Covered the Los Angeles Wildfires**\
 `Media outlets reported similarly on the destruction caused by the fires that raced through Southern California. But partisan publications attributed them to very different causes.`\
 https://nytimes.com/2025/01/09/business/media/los-angeles-wildfires-media-coverage.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6050063/2025/01/09/cardinals-arbitration-ryan-helsl
 **Bob Veale, Towering Fireballer for the ’60s Pirates, Dies at 89**\
 `A 6-foot-6 strikeout king, he was a star of the Pittsburgh rotation who left batters wary of both his fastball and his wildness.`\
 https://nytimes.com/2025/01/09/sports/baseball/bob-veale-dead.html
-
-**Officials aren’t sure how many have died in the Los Angeles fires. Here’s why.**\
-`At least five people had been killed as of Thursday morning. Local officials said that number was likely to rise.`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-fires-death-toll
-
-**Carson Beck's decision puts Beck, Georgia on opposite ends of a big 2025 storyline**\
-`Georgia's offense was going to face pressure in 2025. Now its starting quarterback from the past two years appears to have ratcheted it up.`\
-https://nytimes.com/athletic/6050848/2025/01/09/carson-beck-transfer-portal-georgia-football/
 
