@@ -1,3 +1,7 @@
+**Elliott and Chiesa set for FA Cup action**\
+`Arne Slot is set to give Liverpool duo Harvey Elliott and Federico Chiesa the chance to impress in Saturday’s FA Cup tie against Accrington Stanley at Anfield.`\
+https://nytimes.com/athletic/6051798/2025/01/10/liverpool-elliott-chiesa-fa-cup/
+
 **How America Tuned In to the TV Dinner**\
 `The illustrator Koren Shadmi chronicles the half-baked history of the once beloved Swanson meal-in-a-tray.`\
 https://nytimes.com/2025/01/10/dining/america-tv-dinner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/world/middleeast/lebanon-hezbollah-politics.html
 **Watch Nicole Kidman and Harris Dickinson Connect in ‘Babygirl’**\
 `The film’s writer and director, Halina Reijn, narrates a sequence.`\
 https://nytimes.com/2025/01/10/movies/watch-nicole-kidman-and-harris-dickinson-connect-in-babygirl.html
-
-**Effectively Banned by the Government, a Syrian Film Resurfaces**\
-`“Stars in Broad Daylight,” with a domineering character who strongly resembles Hafez al-Assad, had one official showing in Damascus. Now it’s been restored.`\
-https://nytimes.com/2025/01/10/movies/syria-film.html
 
