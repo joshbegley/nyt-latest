@@ -1,3 +1,7 @@
+**Word of the Day: cacophony**\
+`This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/10/learning/word-of-the-day-cacophony.html
+
 **Firefighting Aircraft Collides with Drone Over Palisades Fire**\
 `The plane’s wing was damaged and it has been grounded, a Cal Fire spokesman said.`\
 https://nytimes.com/2025/01/10/us/aircraft-collision-drone-palisades-fire.html
