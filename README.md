@@ -1,3 +1,11 @@
+**NASCAR's rule change to guarantee spots for celebrity drivers goes too far**\
+`A new NASCAR rule grants an automatic starting sport to world-famous drivers who want to cross over. It's a step too far.`\
+https://nytimes.com/athletic/6049313/2025/01/10/nascar-rule-change-celebrity-drivers-daytona-500/
+
+**Cleveland Browns assistant WR coach Brownson joining USA Football**\
+`Brownson will be a critical part of the staff responsible for selecting, training and leading the U.S. Men’s and Women’s National Teams`\
+https://nytimes.com/athletic/6052693/2025/01/10/callie-brownson-usa-football-cleveland-browns/
+
 **WADA appeal in Sinner's doping case will be heard in April**\
 `The world No. 1 could be banned from tennis for up to two years if CAS upholds WADA's appeal.`\
 https://nytimes.com/athletic/6053172/2025/01/10/jannik-sinner-doping-appeal-date-wada/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/giuliani-contempt-defamation-election
 **Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
 `The deal Alonso's camp proposed to the Mets would include opt-outs, according to league sources.`\
 https://nytimes.com/athletic/6053174/2025/01/10/mets-pete-alonso-negotiations-contract/
-
-**The raw potential of Abdukodir Khusanov signals the start of Manchester City's rebuild**\
-`The young Uzbekistan defender comes with a growing reputation and is being chosen as somebody to lead City into a new era`\
-https://nytimes.com/athletic/6052548/2025/01/10/abdukodir-khusanov-manchester-city-profile/
-
-**Former LSU WR Kyren Lacy facing negligent homicide, hit-and-run charges**\
-`Louisiana State Police announced Friday that a warrant has been issued for Lacy’s arrest.`\
-https://nytimes.com/athletic/6053023/2025/01/10/kyren-lacy-lsu-hit-run-homicide-warrant/
 
