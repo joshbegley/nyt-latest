@@ -1,3 +1,11 @@
+**The court fast-tracked the TikTok case. What happens next?**\
+`Reporting f`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-court-fast-tracked-the-tiktok-case-what-happens-next
+
+**The Transformative Power of ‘Queendom’**\
+`It happens to be one of the best documentaries I’ve ever seen.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/queendom-documentary-russia
+
 **Is Zendaya Engaged?**\
 `Speculation abounds when celebrities wear a ring on that finger, so why do it?`\
 https://nytimes.com/2025/01/10/style/is-zendaya-engaged.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6052883/2025/01/10/marshon-lattimore-return-command
 **Listen to Audio Clips From Trump’s Sentencing**\
 `While Donald J. Trump’s trial last year was not broadcast to the public, the audio of his sentencing hearing on Friday was recorded.`\
 https://nytimes.com/2025/01/10/nyregion/trump-sentencing-audio.html
-
-**The Supreme Court has previously considered, and then avoided, a major decision on the parameters of speech on social media.**\
-`By David McCabe`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-supreme-court-has-previously-considered-and-then-dodged-a-major-decision-on-the-bounds-of-online-speech
-
-**See Los Angeles on Fire From Above**\
-`Text by Loren Elliott and Emily Baumgaertner`\
-https://nytimes.com/card/2025/01/10/us/california-fire-aerial-photos
 

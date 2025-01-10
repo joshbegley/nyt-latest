@@ -1,3 +1,11 @@
+**The court fast-tracked the TikTok case. What happens next?**\
+`Reporting f`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-court-fast-tracked-the-tiktok-case-what-happens-next
+
+**The Transformative Power of ‘Queendom’**\
+`It happens to be one of the best documentaries I’ve ever seen.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/queendom-documentary-russia
+
 **Is Zendaya Engaged?**\
 `Speculation abounds when celebrities wear a ring on that finger, so why do it?`\
 https://nytimes.com/2025/01/10/style/is-zendaya-engaged.html
