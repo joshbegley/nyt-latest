@@ -1,3 +1,7 @@
+**Raducanu left insect bites untreated over fear of positive doping test**\
+`The former U.S. Open champion is taking no risks after cases involving Jannik Sinner and Iga Swiatek. `\
+https://nytimes.com/athletic/6051851/2025/01/10/emma-raducanu-doping-fear-australian-open/
+
 **TikTok at the Supreme Court**\
 `We explain how free speech and national security can often conflict.`\
 https://nytimes.com/2025/01/10/briefing/tiktok-at-the-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-pr
 **An inside look at how Bears QB Caleb Williams developed during a chaotic season**\
 `His head coach and offensive coordinator were fired during the season, but Williams grew as his rookie season went on. `\
 https://nytimes.com/athletic/6050364/2025/01/10/bears-caleb-williams-development/
-
-**The Fed Is in No Rush to Cut Rates, Even if There Is a Weak Jobs Report**\
-`Fed officials have signaled that it will take more than one weak report to convince them that the labor market is deteriorating.`\
-https://nytimes.com/2025/01/10/business/fed-rates-jobs.html
 
