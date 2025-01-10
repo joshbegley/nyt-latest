@@ -26,7 +26,7 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-bill-banning
 `Venu Sports, a joint venture between Disney, Fox and Warner Bros., was announced to great fanfare last year but was discontinued before it ever became available.`\
 https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
 
-**Who are the creators suing over a possible TikTok ban?**\
+**Who Are the Creators Suing Over a TikTok Ban?**\
 `The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
 https://nytimes.com/2025/01/10/us/politics/tiktok-creators-lawsuit-us-ban.html
 
