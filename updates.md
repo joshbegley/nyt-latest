@@ -1,3 +1,7 @@
+**Real Madrid 3 Real Mallorca 0: Vinicius Jr's key role, red-hot Rodrygo - now for Clasico revenge?**\
+`Madrid prevailed in a tense Supercopa de Espana semi-final with Mallorca to set up a meeting with their arch-rivals in Saudi Arabia`\
+https://nytimes.com/athletic/6043918/2025/01/10/real-madrid-3-real-mallorca-0-vinicius-clasico/
+
 **Neymar joining Inter Miami 'impossible' due to MLS salary cap - Mascherano**\
 `Inter Miami head coach Javier Mascherano has said it is &#8220;impossible&#8221; for the club to sign Neymar due to the salary cap in MLS.`\
 https://nytimes.com/athletic/6051683/2025/01/10/inter-miami-neymar-transfer/
