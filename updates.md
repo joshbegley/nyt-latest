@@ -1,3 +1,11 @@
+**Mapping the Damage From the Palisades Fire**\
+`Satellite analysis of Pacific Palisades offers a glimpse of the damaged or destroyed buildings in the area.`\
+https://nytimes.com/interactive/2025/01/09/us/la-wildfires-damage-photos-map.html
+
+**Firefighters Protect Historic Mt. Wilson Observatory From Eaton Fire**\
+`The blaze threatened the observatory and communications infrastructure at the peak. Later, an observatory official said it appeared to be under control.`\
+https://nytimes.com/2025/01/09/us/eaton-fire-mount-wilson-observatory.html
+
 **Kenneth Fire Expands Rapidly as Los Angeles Battles Windswept Storms**\
 `A mandatory evacuation order was issued for the area near Calabasas. Officials expected the blaze to continue growing.`\
 https://nytimes.com/2025/01/09/us/kenneth-calabasas-los-angeles-fire.html
