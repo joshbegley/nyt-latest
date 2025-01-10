@@ -1,3 +1,15 @@
+**ISIS Says It Inspired New Orleans Attack, but Doesn’t Claim Responsibility**\
+`The attacker who killed 14 pedestrians on Bourbon Street was “influenced by the discourse and messaging of the Islamic State,” the terrorist group said in a bulletin dated Thursday.`\
+https://nytimes.com/2025/01/10/world/middleeast/isis-influence-new-orleans-attack.html
+
+**Donor Pleads Guilty to Making Illegal Contributions to Adams Campaign**\
+`Erden Arkan, a businessman with close ties to New York’s Turkish community, pleaded guilty in federal court on Friday to conspiracy to commit fraud.`\
+https://nytimes.com/2025/01/10/nyregion/adams-corruption-businessman-plea.html
+
+**Giuliani Found in Contempt of Court Over Continued Defamation of Election Workers**\
+`In November, Rudy Giuliani repeated accusations against the women at least four times, after Donald J. Trump won the 2024 presidential election.`\
+https://nytimes.com/2025/01/10/us/politics/giuliani-contempt-defamation-election-workers.html
+
 **Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
 `The Pete Alonso market might be coming down to a short-term deal, people briefed on the matter said.`\
 https://nytimes.com/athletic/6053174/2025/01/10/mets-pete-alonso-negotiations-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/world/europe/vatican-gay-men-priests-celibate-ita
 **A Sentence With No Penalty Assures Trump Will Take Office as a Felon**\
 `Justice Juan M. Merchan gave Donald J. Trump a symbolic punishment. The judge said that leniency was due the office of the president, not the man who will soon hold the title.`\
 https://nytimes.com/2025/01/10/nyregion/trump-hush-money-sentencing-convicted-felon.html
-
-**L.A. Doesn’t Know the Cause of a False Evacuation Alert, or How to Stop It**\
-`Public safety officials fear that residents might ignore future, accurate alerts if they become accustomed to false warnings.`\
-https://nytimes.com/2025/01/10/us/los-angeles-false-evacuation-alert.html
-
-**Biden Officials Say the Truth About Havana Syndrome Is Still Unknown**\
-`The White House contradicts a new intelligence assessment on the mysterious ailments that diplomats and spies have reported for years.`\
-https://nytimes.com/2025/01/10/us/politics/havana-syndrome-causes.html
-
-**The Books We’re Excited About in Early 2025**\
-`The latest from a Nobel laureate, a “Hunger Games” prequel and more.`\
-https://nytimes.com/2025/01/10/books/review/podcast-anticipated-books-2025.html
 

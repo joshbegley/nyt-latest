@@ -1,3 +1,15 @@
+**ISIS Says It Inspired New Orleans Attack, but Doesn’t Claim Responsibility**\
+`The attacker who killed 14 pedestrians on Bourbon Street was “influenced by the discourse and messaging of the Islamic State,” the terrorist group said in a bulletin dated Thursday.`\
+https://nytimes.com/2025/01/10/world/middleeast/isis-influence-new-orleans-attack.html
+
+**Donor Pleads Guilty to Making Illegal Contributions to Adams Campaign**\
+`Erden Arkan, a businessman with close ties to New York’s Turkish community, pleaded guilty in federal court on Friday to conspiracy to commit fraud.`\
+https://nytimes.com/2025/01/10/nyregion/adams-corruption-businessman-plea.html
+
+**Giuliani Found in Contempt of Court Over Continued Defamation of Election Workers**\
+`In November, Rudy Giuliani repeated accusations against the women at least four times, after Donald J. Trump won the 2024 presidential election.`\
+https://nytimes.com/2025/01/10/us/politics/giuliani-contempt-defamation-election-workers.html
+
 **Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
 `The Pete Alonso market might be coming down to a short-term deal, people briefed on the matter said.`\
 https://nytimes.com/athletic/6053174/2025/01/10/mets-pete-alonso-negotiations-contract/
