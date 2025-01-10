@@ -1,3 +1,11 @@
+**Former LSU WR Kyren Lacy facing negligent homicide, hit-and-run charges**\
+`Louisiana State Police announced Friday that a warrant has been issued for Lacy’s arrest.`\
+https://nytimes.com/athletic/6053023/2025/01/10/kyren-lacy-lsu-hit-run-homicide-warrant/
+
+**This couple lost their restaurant and home to fire, on their daughter’s birthday.**\
+`Kevin Hockin and Rosanna Kvernmo started their Altadena pizza place, Side Pie, out of their backyard during the pandemic. On Wednesday, both their home and the pizzeria burned in the Eaton fire.`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/this-couple-lost-their-restaurant-and-home-to-fire-on-their-daughters-birthday
+
 **Ratings for Cavaliers win over Thunder up 20 percent from last year**\
 `According to the website Sports Media Watch, Cavs-Thunder was the sixth-highest-rated NBA game shown exclusively on cable this season.`\
 https://nytimes.com/athletic/6053060/2025/01/10/nba-ratings-cavaliers-thunder-tv/
