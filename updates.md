@@ -1,3 +1,7 @@
+**Elliott and Chiesa set for FA Cup action**\
+`Arne Slot is set to give Liverpool duo Harvey Elliott and Federico Chiesa the chance to impress in Saturday’s FA Cup tie against Accrington Stanley at Anfield.`\
+https://nytimes.com/athletic/6051798/2025/01/10/liverpool-elliott-chiesa-fa-cup/
+
 **How America Tuned In to the TV Dinner**\
 `The illustrator Koren Shadmi chronicles the half-baked history of the once beloved Swanson meal-in-a-tray.`\
 https://nytimes.com/2025/01/10/dining/america-tv-dinner.html
