@@ -1,3 +1,11 @@
+**Timothée Chalamet Will Be Both Host and Musical Guest on ‘S.N.L.’**\
+`Chalamet, who stars as Bob Dylan in “A Complete Unknown,” will join the rare club of performers that has been asked to do double duty on “Saturday Night Live.”`\
+https://nytimes.com/2025/01/10/arts/timothee-chalamet-saturday-night-live-host.html
+
+**Paolo Banchero set to return after 34-game absence with oblique injury**\
+`Orlando went 19-15 without its franchise player, maintaining its standing in the East despite dealing with several additional injuries.`\
+https://nytimes.com/athletic/6050807/2025/01/10/paolo-banchero-magic-returns-injury-plays-bucks/
+
 **What Are the Alternatives to TikTok?**\
 `ByteDance has pushed Lemon8 as a ban on TikTok looms, but it could be subject to the same law.`\
 https://nytimes.com/2025/01/10/style/tiktok-ban-alternatives.html

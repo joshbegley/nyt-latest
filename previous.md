@@ -1,3 +1,11 @@
+**Timothée Chalamet Will Be Both Host and Musical Guest on ‘S.N.L.’**\
+`Chalamet, who stars as Bob Dylan in “A Complete Unknown,” will join the rare club of performers that has been asked to do double duty on “Saturday Night Live.”`\
+https://nytimes.com/2025/01/10/arts/timothee-chalamet-saturday-night-live-host.html
+
+**Paolo Banchero set to return after 34-game absence with oblique injury**\
+`Orlando went 19-15 without its franchise player, maintaining its standing in the East despite dealing with several additional injuries.`\
+https://nytimes.com/athletic/6050807/2025/01/10/paolo-banchero-magic-returns-injury-plays-bucks/
+
 **What Are the Alternatives to TikTok?**\
 `ByteDance has pushed Lemon8 as a ban on TikTok looms, but it could be subject to the same law.`\
 https://nytimes.com/2025/01/10/style/tiktok-ban-alternatives.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/weather/santa-ana-winds-forecast-la-fire.html
 **ISIS Says It Inspired New Orleans Attack, but Doesn’t Claim Responsibility**\
 `The attacker who killed 14 pedestrians on Bourbon Street was “influenced by the discourse and messaging of the Islamic State,” the terrorist group said in a bulletin dated Thursday.`\
 https://nytimes.com/2025/01/10/world/middleeast/isis-influence-new-orleans-attack.html
-
-**Donor Pleads Guilty to Making Illegal Contributions to Adams Campaign**\
-`Erden Arkan, a businessman with close ties to New York’s Turkish community, pleaded guilty in federal court on Friday to conspiracy to commit fraud.`\
-https://nytimes.com/2025/01/10/nyregion/adams-corruption-businessman-plea.html
-
-**Giuliani Found in Contempt of Court Over Continued Defamation of Election Workers**\
-`In November, Rudy Giuliani repeated accusations against the women at least four times, after Donald J. Trump won the 2024 presidential election.`\
-https://nytimes.com/2025/01/10/us/politics/giuliani-contempt-defamation-election-workers.html
 
