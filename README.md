@@ -1,3 +1,19 @@
+**The Bounce: All-Star voting > All-Star Game**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6052386/2025/01/10/nba-all-star-game-voting-results-the-bounce/
+
+**Super Bowl MVP odds: Our staff make picks before the playoffs commence**\
+`We're making early picks for Super Bowl MVP. Who you got?`\
+https://nytimes.com/athletic/6050422/2025/01/10/super-bowl-lix-mvp-odds-picks-mahomes-goff-open-as-favorites-ahead-of-wild-card-weekend/
+
+**The Wildfires in L.A., and the Crises to Come**\
+`Readers offer perspectives on the California wildfires and climate change. Also: Justice Samuel Alito, President-elect Donald Trump and ethics.`\
+https://nytimes.com/2025/01/10/opinion/la-wildfires-climate.html
+
+**Houston Symphony Taps Gary Ginstling as C.E.O.**\
+`The veteran orchestra manager, who abruptly resigned from his post as the New York Philharmonic leader last year, said he was drawn to the dynamism of Houston.`\
+https://nytimes.com/2025/01/10/arts/music/houston-symphony-ceo-gary-ginstling.html
+
 **Tiktok is a cultural juggernaut fueled by short videos and an addictive feed.**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-is-a-cultural-juggernaut-fueled-by-short-videos-and-an-addictive-feed
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6051819/2025/01/10/casey-stoney-canada-women-coach/
 **With a thunderous dunk and bright smile, a renewed Anthony Edwards galvanizes Wolves**\
 `The game Thursday night against the Magic was never in doubt because Edwards was aggressive from the start.`\
 https://nytimes.com/athletic/6051516/2025/01/10/anthony-edwards-galvanizes-timberwolves-dunk-smile/
-
-**Fantasy trends and hidden gems: Fantilli, Askarov, Staal and other injury replacements**\
-`Tuesday was a bad night for injuries. Here's a group of good-looking replacements.`\
-https://nytimes.com/athletic/6051440/2025/01/10/fantasy-trends-and-hidden-gems-fantilli-askarov-staal-and-other-injury-replacements/
-
-**A group of experienced practitioners is arguing before the justices today.**\
-`By Charlie Savage`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/a-group-of-experienced-practitioners-is-arguing-before-the-justices-today
-
-**TikTok stars and marketers brace for app’s disappearance.**\
-`By Sapna Maheshwari`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-stars-and-marketers-brace-for-apps-disappearance
-
-**The wildfires lay bare an insurance crisis in California.**\
-`By Bernhard Warner`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/the-wildfires-lay-bare-an-insurance-crisis-in-california
 
