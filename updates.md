@@ -1,4 +1,8 @@
 **The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
+`Through 109 games, Kane had 34 goals and 71 assists for 105 points. Through 109 games, Bedard has 33 goals and 65 assists for 98 points.`\
+https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
+
+**The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
 `Kane and Bedard's careers started off in a remarkably similar way, but there is one big difference that makes them seem worlds apart.
 `\
 https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
