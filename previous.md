@@ -1,3 +1,7 @@
+**Late Night Is Impressed by the V.I.P. List at Jimmy Carter’s Funeral**\
+`Desi Lydic said it was rare to see five American presidents in one place, “and even rarer to have Donald and Melania in the same room together.”`\
+https://nytimes.com/2025/01/10/arts/television/late-night-carter-funeral.html
+
 **Word of the Day: cacophony**\
 `This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/10/learning/word-of-the-day-cacophony.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6044337/2025/01/10/tottenham-djed-spence-form/
 **'There's nobody better' - Steven Fletcher, Wrexham's supersub, is defying age and injury**\
 `He is 37 and had knee surgery in 2023, but the former Scotland forward's class is keeping Wrexham in the promotion hunt`\
 https://nytimes.com/athletic/6041735/2025/01/10/steven-fletcher-wrexham-supersub/
-
-**How Leicester's fairytale can inspire Forest's fight for Europe**\
-`Nottingham Forest share many similarities with Leicester's title-winning team that they can draw on in their hunt for a European place`\
-https://nytimes.com/athletic/6049706/2025/01/10/nottingham-forest-champions-league-leicester-title/
 

@@ -1,3 +1,7 @@
+**Late Night Is Impressed by the V.I.P. List at Jimmy Carter’s Funeral**\
+`Desi Lydic said it was rare to see five American presidents in one place, “and even rarer to have Donald and Melania in the same room together.”`\
+https://nytimes.com/2025/01/10/arts/television/late-night-carter-funeral.html
+
 **Word of the Day: cacophony**\
 `This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/10/learning/word-of-the-day-cacophony.html
