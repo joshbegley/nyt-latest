@@ -1,3 +1,7 @@
+**Cubs could be heading toward an arbitration hearing against Kyle Tucker**\
+`The Cubs were able to reach an agreement with Justin Steele on a $6.55 million salary for 2025.`\
+https://nytimes.com/athletic/6051215/2025/01/09/cubs-kyle-tucker-arbitration/
+
 **A Rebuke to Trump Provides a Telling Portrait of a Divided Supreme Court**\
 `Two Republican appointees, Chief Justice Roberts and Justice Barrett, joined the court’s three liberals in ordering the president-elect to face sentencing on Friday.`\
 https://nytimes.com/2025/01/09/us/supreme-court-trump-hush-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051078/2025/01/09/vladimir-guerrero-jr-blue-jays-a
 **Day 5: One Change to Eat Healthier All Year**\
 `Add to your plate — don’t subtract.`\
 https://nytimes.com/2025/01/09/well/ultraprocessed-whole-foods.html
-
-**‘Den of Thieves 2: Pantera’ Review: Tough Cop, Nice Robber**\
-`Gerard Butler and O’Shea Jackson Jr., adversaries in the original film, now buddy up to steal some diamonds in France.`\
-https://nytimes.com/2025/01/09/movies/den-of-thieves-2-pantera-review.html
 
