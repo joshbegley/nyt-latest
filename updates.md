@@ -1,3 +1,7 @@
+**Pistons' winning streak ends, but there are still lessons to be learned in loss**\
+`Detroit couldn't complete the comeback against Golden State in the second game of a back-to-back on Thursday.`\
+https://nytimes.com/athletic/6051651/2025/01/10/pistons-loss-warriors-cade-cunningham/
+
 **Ederson 'fine' but Man City still without Stones and Dias**\
 `Manchester City goalkeeper Ederson is “fine” but the Premier League champions are still without defenders John Stones and Ruben Dias.`\
 https://nytimes.com/athletic/6051988/2025/01/10/manchester-city-injury-news-ederson-stones-dias/
