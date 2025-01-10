@@ -1,3 +1,23 @@
+**TikTok stars and marketers brace for app’s disappearance.**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-stars-and-marketers-brace-for-apps-disappearance
+
+**The wildfires lay bare an insurance crisis in California.**\
+`By Bernhard Warner`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/the-wildfires-lay-bare-an-insurance-crisis-in-california
+
+**Venu Sports shuttered as ESPN, Fox, TNT scrap launch of streaming service**\
+`The three entities first announced plans for Venu Sports in February 2024, but its launch faced a legal challenge.`\
+https://nytimes.com/athletic/6052214/2025/01/10/venu-sports-discontinued-espn-fox-tnt/
+
+**Prosecutors Seek 15-Year Sentence for Menendez’s Bribery Conviction**\
+`Lawyers for New Jersey’s former Democratic senator, Robert Menendez, have said that even fewer years would be tantamount to a death sentence.`\
+https://nytimes.com/2025/01/10/nyregion/robert-menendez-bribery-sentencing.html
+
+**Palace squad struck with illness before FA Cup clash**\
+`Crystal Palace’s squad has been struck by illness with several players unable to train before their FA Cup clash with Stockport County on Sunday.`\
+https://nytimes.com/athletic/6052290/2025/01/10/palace-squad-illness-fa-cup/
+
 **TikTok acknowledged the government’s national security concerns but believed it could address them.**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-acknowledged-the-governments-national-security-concerns-but-believed-it-could-address-them
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/these-l
 **Man Utd 'need to improve recruitment' - Amorim**\
 `Ruben Amorim has said that Manchester United &#8220;need to improve recruitment&#8221; and maintained he wants Kobbie Mainoo to stay at the club.`\
 https://nytimes.com/athletic/6052171/2025/01/10/manchester-united-transfers-amorim-mainoo/
-
-**These are the prosecutors who secured a conviction against Trump.**\
-`By Kate Christobek`\
-https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/these-are-the-prosecutors-who-secured-a-conviction-against-trump
-
-**The government’s case for banning TikTok on national security grounds is light on examples.**\
-`Government officials have had an extraordinarily difficult time providing examples in which the app has been used by China for espionage, or worse. So it’s national security case is hypothetical.`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-governments-case-for-banning-tiktok-on-national-security-grounds-is-light-on-examples
-
-**A strong month adds retail to the hiring wave.**\
-`By Jordyn Holman`\
-https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/a-strong-month-adds-retail-to-the-hiring-wave
-
-**What would a TikTok ban actually look like?**\
-`By Sapna Maheshwari`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/what-would-a-tiktok-ban-actually-look-like
-
-**Live Updates: Supreme Court Will Hear Challenge to Law Ordering TikTok Sale**\
-`Congress says the popular video app poses a looming threat to the nation’s security because of its Chinese owner. What the justices decide could determine if the app is shut down.`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court
 
