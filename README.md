@@ -1,40 +1,40 @@
-**Trump 2.0: A Criminal Sentencing, Presidential Legacies and Greenland**\
-`Three Times reporters on the latest news from the presidential transition.`\
-https://nytimes.com/2025/01/10/podcasts/the-daily/trump-greenland.html
+**An inside look at how Bears QB Caleb Williams developed during a chaotic season**\
+`His head coach and offensive coordinator were fired during the season, but Williams grew as his rookie season went on. `\
+https://nytimes.com/athletic/6050364/2025/01/10/bears-caleb-williams-development/
 
-**Death Toll Climbs in L.A. Fires, and TikTok’s Last Chance**\
-`Plus, goodbye to a hairy “Shrek” icon.`\
-https://nytimes.com/2025/01/10/podcasts/death-toll-la-fires-trump-sentence.html
+**The Fed Is in no Rush to Cut Rates, Even if There Is a Weak Jobs Report**\
+`Fed officials have signaled that it will take more than one weak report to convince them that the labor market is deteriorating.`\
+https://nytimes.com/2025/01/10/business/fed-rates-jobs.html
 
-**Wordle Review No. 1,302**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Jan. 11, 2025.`\
-https://nytimes.com/2025/01/10/crosswords/wordle-review-1302.html
+**Can Kevin O'Connell's Vikings best Sean McVay's Rams in wild-card matchup?**\
+`This matchup of former coaching cohorts could come down to whether the Vikings can protect Sam Darnold against the fearsome Rams front.`\
+https://nytimes.com/athletic/6050722/2025/01/10/vikings-rams-preview-predictions-wild-card-oconnell-mcvay/
 
-**The Connections Companion No. 580**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Jan. 11, 2025.`\
-https://nytimes.com/2025/01/10/crosswords/connections-companion-580.html
+**Live Updates: U.S. Job Growth Expected to Remain Solid**\
+`Top-level data shows a consistent pace of hiring, but other numbers point to weakening in the labor market, with fewer open positions and longer periods of unemployment for job seekers.`\
+https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy
 
-**Rare Winter Storm Sweeps Across the South: What to Know**\
-`A storm that brought snow and ice to the Gulf Coast states was moving east on Friday.`\
-https://nytimes.com/2025/01/10/weather/georgia-north-carolina-ice-snow-forecast.html
+**DGB Mailbag: Ovechkin's record-breaker, the Jack Adams curse and 4 Nations fights**\
+`This edition covers questions on 4 Nations bad blood, how Ovechkin will break the record, the lottery rules and the Maple Leafs.`\
+https://nytimes.com/athletic/6049924/2025/01/10/nhl-mailbag-ovechkin-jack-adams-4-nations/
 
-**Jalen Hurts: A full participant in practice, a promising sign for a playoff return**\
-`Hurts was a full participant in practice Thursday, with the Eagles gaining key assets just before the playoffs begin. `\
-https://nytimes.com/athletic/6050104/2025/01/10/jalen-hurts-eagles-playoff-return-concussion/
+**NFL playoffs: Key matchups to watch in each NFC wild-card game**\
+`Terry McLaurin and DeVonta Smith could see plenty of opportunities, and the Vikings need to be ready for Jared Verse.`\
+https://nytimes.com/athletic/6049108/2025/01/10/nfl-nfc-playoffs-super-wild-card-2025/
 
-**Shiu Ka-chun, Advocate for Hong Kong Prisoners, Is Dead at 55**\
-`A social worker and teacher imprisoned for his activism, he later wrote about the toll of incarceration and worked to help others behind bars.`\
-https://nytimes.com/2025/01/10/world/asia/shiu-ka-chun-hong-kong-activist-dead.html
+**Packers-Eagles preview: Jordan Love's arm, slowing Saquon Barkley, finding explosives**\
+`Green Bay looks to pull off an upset in the wild-card round as the No. 7 seed for the second consecutive year Sunday in Philadelphia.`\
+https://nytimes.com/athletic/6050791/2025/01/10/packers-eagles-playoffs-jordan-love/
 
-**Why Everton, Ashley Young were 'gutted' by Peterborough's substitutions in FA Cup tie**\
-`The FA Cup is soccer&#8217;s oldest surviving cup competition but never before in its 154-year history has a match featured a player lining up against his own son.`\
-https://nytimes.com/athletic/6051760/2025/01/10/ashley-young-tyler-fa-cup-everton-peterborough/
+**Daboll is back, a new QB is coming, but play-caller remains a Giant question**\
+`Daboll could give up play-calling after a disappointing 2024 season, but will offensive coordinator Mike Kafka be there to take over?`\
+https://nytimes.com/athletic/6048756/2025/01/10/giants-play-caller-2025-season-brian-daboll-mike-kafka/
 
-**Fires Prompt Water Advisories for Some in the L.A. Area**\
-`The devastating wildfires have raised concerns about the safety of the water supply in some places. Here’s a list of the warnings and instructions for residents.`\
-https://nytimes.com/2025/01/10/us/los-angeles-fires-water-advisories.html
+**What's next for QB Geno Smith, Seahawks? Breaking down Seattle's 4 offseason options**\
+`The veteran quarterback's future with the team is a hot topic. What are the different paths Seattle could take?`\
+https://nytimes.com/athletic/6049049/2025/01/10/seahawks-geno-smith-offseason-options/
 
-**Why each NFC playoff team will win the Super Bowl, and why they won’t**\
-`The Detroit Lions are the team to beat in the NFC, but this conference's wild-card teams put up more fight than their AFC counterparts. `\
-https://nytimes.com/athletic/6049528/2025/01/10/nfl-playoff-super-bowl-nfc-winner/
+**James Sands wants to emulate Rodri, take Bundesliga by storm**\
+`Sands arrives in Germany with a big opportunity to break into the USMNT plans for the 2026 World Cup`\
+https://nytimes.com/athletic/6049401/2025/01/10/usmnt-james-sands-nycfc-bundesliga/
 
