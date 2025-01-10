@@ -1,3 +1,11 @@
+**Oilers fail to play to their 'standard' as dominance against Penguins finally ends**\
+`The Oilers' 5-3 loss to the Penguins ended a seven-game winning streak against the Penguins dating back to Dec. 20, 2019.`\
+https://nytimes.com/athletic/6051341/2025/01/09/oilers-penguins-connor-mcdavid-sidney-crosby/
+
+**‘Twenty minutes won’t cut it’: Bruins lose sixth straight after 2 quiet periods**\
+`Had the Bruins applied the same amount of effort they showed in the third period to the entire game, the result might have been different.`\
+https://nytimes.com/athletic/6051345/2025/01/09/bruins-lightning-losing-streak/
+
 **College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2025/01/09/college-football-playoff-projections-odds/
