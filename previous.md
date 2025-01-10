@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Weak defensive effort leads to blown-lead loss**\
+`Auston Matthews and Mitch Marner were on the ice for all six Carolina goals in 6-3 loss for Toronto.`\
+https://nytimes.com/athletic/6051287/2025/01/09/maple-leafs-hurricanes-grades-analysis/
+
 **Filip Gustavsson, Wild's shorthanded blue line sliced and diced by Avs: 3 takeaways**\
 `Missing Kaprizov and three of their top defensemen, the Wild were no match for the Avalanche's star trio.`\
 https://nytimes.com/athletic/6051003/2025/01/09/wild-defense-injuries-middleton-avalanche/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051151/2025/01/09/calos-vela-ali-riley-lost-home-l
 **Appeals Court Declines to Block Release of Special Counsel Report on Trump Cases**\
 `But the court left in place an injunction that bars the Justice Department from disclosing the report for another three days.`\
 https://nytimes.com/2025/01/09/us/politics/trump-appeals-court-special-counsel-report.html
-
-**Rams cut workday short due to new fire; game moved**\
-`The Rams' players and staff left the practice facility early Thursday to get to their homes and coordinate with family members.`\
-https://nytimes.com/athletic/6050928/2025/01/09/rams-practice-fires-playoff-game-moved/
 

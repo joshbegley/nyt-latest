@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Weak defensive effort leads to blown-lead loss**\
+`Auston Matthews and Mitch Marner were on the ice for all six Carolina goals in 6-3 loss for Toronto.`\
+https://nytimes.com/athletic/6051287/2025/01/09/maple-leafs-hurricanes-grades-analysis/
+
 **Filip Gustavsson, Wild's shorthanded blue line sliced and diced by Avs: 3 takeaways**\
 `Missing Kaprizov and three of their top defensemen, the Wild were no match for the Avalanche's star trio.`\
 https://nytimes.com/athletic/6051003/2025/01/09/wild-defense-injuries-middleton-avalanche/
