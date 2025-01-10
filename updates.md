@@ -1,3 +1,7 @@
+**Firefighting Aircraft Collides with Drone Over Palisades Fire**\
+`The plane’s wing was damaged and it has been grounded, a Cal Fire spokesman said.`\
+https://nytimes.com/2025/01/10/us/aircraft-collision-drone-palisades-fire.html
+
 **Could the Leafs' loss to the Canes lead to a shift in Toronto's goaltending picture?**\
 `The Leafs need to find ways to ease Joseph Woll's workload or risk burning him out ahead of when they need him most: in the playoffs.`\
 https://nytimes.com/athletic/6051510/2025/01/10/maple-leafs-hurricanes-joseph-woll/

@@ -1,3 +1,7 @@
+**Word of the Day: cacophony**\
+`This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/10/learning/word-of-the-day-cacophony.html
+
 **Firefighting Aircraft Collides with Drone Over Palisades Fire**\
 `The plane’s wing was damaged and it has been grounded, a Cal Fire spokesman said.`\
 https://nytimes.com/2025/01/10/us/aircraft-collision-drone-palisades-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6041735/2025/01/10/steven-fletcher-wrexham-supersub
 **How Leicester's fairytale can inspire Forest's fight for Europe**\
 `Nottingham Forest share many similarities with Leicester's title-winning team that they can draw on in their hunt for a European place`\
 https://nytimes.com/athletic/6049706/2025/01/10/nottingham-forest-champions-league-leicester-title/
-
-**Arsenal, the Emirates atmosphere and the need for synergy between team and fans**\
-`There are a number of reasons why the stadium has been less hostile this season for opposing teams, including a tweaked playing style`\
-https://nytimes.com/athletic/6049035/2025/01/10/arsenal-emirates-atmosphere/
 
