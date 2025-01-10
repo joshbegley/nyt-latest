@@ -1,3 +1,11 @@
+**U.S. Imposes New Sanctions to Squeeze Russia’s Energy Sector**\
+`The Biden administration is cracking down on the Russian “shadow fleet” and taking steps to curb oil and gas production.`\
+https://nytimes.com/2025/01/10/us/politics/us-russia-sanctions.html
+
+**NBA's (Low-Key) Trade Deadline Team: Jerami Grant, Mitchell Robinson and more**\
+`There are the guys you probably haven’t thought much about, but they seem highly likely to change teams before Feb. 6.`\
+https://nytimes.com/athletic/6051458/2025/01/10/nba-trade-rumors-jeremi-grant-mitchell-robinson/
+
 **NHL Power Rankings: A new No. 1 at the midpoint and players who need to step up**\
 `The middle of the season offers a great chance to reflect on what’s happened and look ahead to what could happen going forward.`\
 https://nytimes.com/athletic/6052013/2025/01/10/nhl-power-rankings-golden-knights-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6052386/2025/01/10/nba-all-star-game-voting-results
 **Super Bowl MVP odds: Our staff make picks before the playoffs commence**\
 `We're making early picks for Super Bowl MVP. Who you got?`\
 https://nytimes.com/athletic/6050422/2025/01/10/super-bowl-lix-mvp-odds-picks-mahomes-goff-open-as-favorites-ahead-of-wild-card-weekend/
-
-**The Wildfires in L.A., and the Crises to Come**\
-`Readers offer perspectives on the California wildfires and climate change. Also: Justice Samuel Alito, President-elect Donald Trump and ethics.`\
-https://nytimes.com/2025/01/10/opinion/la-wildfires-climate.html
-
-**Houston Symphony Taps Gary Ginstling as C.E.O.**\
-`The veteran orchestra manager, who abruptly resigned from his post as the New York Philharmonic leader last year, said he was drawn to the dynamism of Houston.`\
-https://nytimes.com/2025/01/10/arts/music/houston-symphony-ceo-gary-ginstling.html
 
