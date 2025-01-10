@@ -1,3 +1,7 @@
+**Andy Cowell becomes Aston Martin team principal amid reshuffle**\
+`Andy Cowell has been named as Aston Martin’s new Formula One team principal and CEO as part of a senior management reshuffle, taking over from Mike Krack.`\
+https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-principal/
+
 **An inside look at how Bears QB Caleb Williams developed during a chaotic season**\
 `His head coach and offensive coordinator were fired during the season, but Williams grew as his rookie season went on. `\
 https://nytimes.com/athletic/6050364/2025/01/10/bears-caleb-williams-development/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048756/2025/01/10/giants-play-caller-2025-season-b
 **What's next for QB Geno Smith, Seahawks? Breaking down Seattle's 4 offseason options**\
 `The veteran quarterback's future with the team is a hot topic. What are the different paths Seattle could take?`\
 https://nytimes.com/athletic/6049049/2025/01/10/seahawks-geno-smith-offseason-options/
-
-**James Sands wants to emulate Rodri, take Bundesliga by storm**\
-`Sands arrives in Germany with a big opportunity to break into the USMNT plans for the 2026 World Cup`\
-https://nytimes.com/athletic/6049401/2025/01/10/usmnt-james-sands-nycfc-bundesliga/
 
