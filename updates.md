@@ -1,3 +1,7 @@
+**Meta Goes MAGA Mode +A Big Month in A.I. + HatGPT**\
+`“I think this set of changes that the company announced this week are the most important series of policy changes that they have made in the past five years.”`\
+https://nytimes.com/2025/01/10/podcasts/hardfork-meta-zuck-o3.html
+
 **Raducanu left insect bites untreated over fear of positive doping test**\
 `The former U.S. Open champion is taking no risks after cases involving Jannik Sinner and Iga Swiatek. `\
 https://nytimes.com/athletic/6051851/2025/01/10/emma-raducanu-doping-fear-australian-open/
