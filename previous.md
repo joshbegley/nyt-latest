@@ -1,3 +1,7 @@
+**Toronto FC hiring Robin Fraser as new head coach**\
+`Toronto FC is appointing Robin Fraser as its new head coach, according to sources close to the deal who spoke on the condition of anonymity.`\
+https://nytimes.com/athletic/6052496/2025/01/10/robin-fraser-toronto-coach/
+
 **Classified information means some of the national security concerns about TikTok remain opaque.**\
 `By David McCabe`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/classified-information-means-some-of-the-national-security-concerns-about-tiktok-remain-opaque
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/do-foreign-corpo
 **Trump Received an Unconditional Discharge. What Does That Mean?**\
 `The rare and lenient sentence, which will spare President-elect Donald J. Trump jail time, was used to address his unusual status.`\
 https://nytimes.com/2025/01/10/nyregion/unconditional-discharge-trump.html
-
-**Just how Chinese are TikTok and ByteDance, anyway?**\
-`By Sapna Maheshwari`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/just-how-chinese-are-tiktok-and-bytedance-anyway
 

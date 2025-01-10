@@ -1,3 +1,7 @@
+**Toronto FC hiring Robin Fraser as new head coach**\
+`Toronto FC is appointing Robin Fraser as its new head coach, according to sources close to the deal who spoke on the condition of anonymity.`\
+https://nytimes.com/athletic/6052496/2025/01/10/robin-fraser-toronto-coach/
+
 **Classified information means some of the national security concerns about TikTok remain opaque.**\
 `By David McCabe`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/classified-information-means-some-of-the-national-security-concerns-about-tiktok-remain-opaque
