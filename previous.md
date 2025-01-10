@@ -1,3 +1,11 @@
+**L.A. Wildfires Lay Bare an Insurance Crisis**\
+`Even before the latest blazes, California officials warned that an emergency state insurance fund was in trouble, while private insurers dropped coverage.`\
+https://nytimes.com/2025/01/10/business/dealbook/la-wildfires-insurance-crisis.html
+
+**Kremlin Confirms Readiness for Putin to Meet Trump**\
+`The president-elect had said the Russian leader wanted to meet him to discuss the war in Ukraine. The Kremlin stopped short of that, saying it could only happen after he takes office.`\
+https://nytimes.com/2025/01/10/world/europe/trump-putin-meeting.html
+
 **The sentencing was originally planned for July. It was delayed again and again.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/the-sentencing-was-originally-planned-for-july-it-was-delayed-again-and-again
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6050527/2025/01/10/fantasy-football-early-2025-top-
 **Live Updates: Trump to Be Sentenced in N.Y. Criminal Case**\
 `The proceedings are set to begin at 9:30 a.m. Though the president-elect is expected to avoid jail time, his sentencing on 34 counts will formalize his status as a felon and make him the first to carry that distinction into the White House.`\
 https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing
-
-**The Athletic’s Friday football quiz question #37**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6049277/2025/01/10/the-athletics-friday-football-quiz-question-37/
-
-**Khvicha Kvaratskhelia's future is uncertain - but Napoli will play hardball. They always do**\
-`Owner Aurelio De Laurentiis won't be pushed around by agents or sporting directors for his star men. What will happen with Kvaratskhelia?`\
-https://nytimes.com/athletic/6051620/2025/01/10/khvicha-kvaratskhelia-napoli-liverpool-paris-saint-germain-transfer/
 

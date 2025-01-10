@@ -1,3 +1,11 @@
+**L.A. Wildfires Lay Bare an Insurance Crisis**\
+`Even before the latest blazes, California officials warned that an emergency state insurance fund was in trouble, while private insurers dropped coverage.`\
+https://nytimes.com/2025/01/10/business/dealbook/la-wildfires-insurance-crisis.html
+
+**Kremlin Confirms Readiness for Putin to Meet Trump**\
+`The president-elect had said the Russian leader wanted to meet him to discuss the war in Ukraine. The Kremlin stopped short of that, saying it could only happen after he takes office.`\
+https://nytimes.com/2025/01/10/world/europe/trump-putin-meeting.html
+
 **The sentencing was originally planned for July. It was delayed again and again.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/the-sentencing-was-originally-planned-for-july-it-was-delayed-again-and-again
