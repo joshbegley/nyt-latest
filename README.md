@@ -1,6 +1,26 @@
+**Tiktok is a cultural juggernaut fueled by short videos and an addictive feed.**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-is-a-cultural-juggernaut-fueled-by-short-videos-and-an-addictive-feed
+
+**Review: For the Met Opera’s ‘Tosca,’ Third Cast’s a Charm**\
+`The bass-baritone Bryn Terfel returned to the Met for the first time in 13 years, alongside Sondra Radvanovsky, one of the great Toscas of our time.`\
+https://nytimes.com/2025/01/10/arts/music/tosca-met-opera.html
+
+**How the Bills could contain Bo Nix and break through Denver's defense**\
+`Plus, who could fill in if return specialist Brandon Codrington can't play.`\
+https://nytimes.com/athletic/6050954/2025/01/10/bills-wild-card-broncos-josh-allen-bo-nix/
+
+**Spanish supporters' group warns of risk to female fans in Saudi Arabia after alleged Supercopa incidents**\
+`Spain&#8217;s main football supporters&#8217; association has warned of the &#8220;risk for female fans&#8221; in Saudi Arabia after the partners of Real Mallorca players alleged they were &#8220;harassed&#8221; during their Supercopa de Espana semi-final on Thursday.`\
+https://nytimes.com/athletic/6051978/2025/01/10/spain-supercopa-saudi-arabia-female-fans/
+
+**Casey Stoney agrees terms to take over as Canada Women head coach**\
+`Canada Soccer has agreed terms with former England captain Casey Stoney to take over as the new head coach of its women&#8217;s team, according to sources familiar with the deal who spoke on the condition of anonymity.`\
+https://nytimes.com/athletic/6051819/2025/01/10/casey-stoney-canada-women-coach/
+
 **With a thunderous dunk and bright smile, a renewed Anthony Edwards galvanizes Wolves**\
 `The game Thursday night against the Magic was never in doubt because Edwards was aggressive from the start.`\
-https://nytimes.com/athletic/6051516/2025/01/10/anthony-edwards-galvanizes-timberwolves-with-a-thunderous-dunk-and-bright-smile/
+https://nytimes.com/athletic/6051516/2025/01/10/anthony-edwards-galvanizes-timberwolves-dunk-smile/
 
 **Fantasy trends and hidden gems: Fantilli, Askarov, Staal and other injury replacements**\
 `Tuesday was a bad night for injuries. Here's a group of good-looking replacements.`\
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-stars-and
 **The wildfires lay bare an insurance crisis in California.**\
 `By Bernhard Warner`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/the-wildfires-lay-bare-an-insurance-crisis-in-california
-
-**Venu Sports shuttered as ESPN, Fox, TNT scrap launch of streaming service**\
-`The three entities first announced plans for Venu Sports in February 2024, but its launch faced a legal challenge.`\
-https://nytimes.com/athletic/6052214/2025/01/10/venu-sports-discontinued-espn-fox-tnt/
-
-**Prosecutors Seek 15-Year Sentence for Menendez’s Bribery Conviction**\
-`Lawyers for New Jersey’s former Democratic senator, Robert Menendez, have said that even fewer years would be tantamount to a death sentence.`\
-https://nytimes.com/2025/01/10/nyregion/robert-menendez-bribery-sentencing.html
-
-**Palace squad struck with illness before FA Cup clash**\
-`Crystal Palace’s squad has been struck by illness with several players unable to train before their FA Cup clash with Stockport County on Sunday.`\
-https://nytimes.com/athletic/6052290/2025/01/10/palace-squad-illness-fa-cup/
-
-**TikTok acknowledged the government’s national security concerns but believed it could address them.**\
-`By Sapna Maheshwari`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-acknowledged-the-governments-national-security-concerns-but-believed-it-could-address-them
-
-**Islanders head into second half still believing, not ready to become sellers: 'Everything is in reach'**\
-`After Thursday's win over the league-best Golden Knights, the Islanders have just their third two-game winning streak of the season.`\
-https://nytimes.com/athletic/6051557/2025/01/10/islanders-second-half-sellers-contenders/
 

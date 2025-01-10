@@ -1,3 +1,7 @@
+**With a thunderous dunk and bright smile, a renewed Anthony Edwards galvanizes Wolves**\
+`The game Thursday night against the Magic was never in doubt because Edwards was aggressive from the start.`\
+https://nytimes.com/athletic/6051516/2025/01/10/anthony-edwards-galvanizes-timberwolves-with-a-thunderous-dunk-and-bright-smile/
+
 **Fantasy trends and hidden gems: Fantilli, Askarov, Staal and other injury replacements**\
 `Tuesday was a bad night for injuries. Here's a group of good-looking replacements.`\
 https://nytimes.com/athletic/6051440/2025/01/10/fantasy-trends-and-hidden-gems-fantilli-askarov-staal-and-other-injury-replacements/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-acknowled
 **Islanders head into second half still believing, not ready to become sellers: 'Everything is in reach'**\
 `After Thursday's win over the league-best Golden Knights, the Islanders have just their third two-game winning streak of the season.`\
 https://nytimes.com/athletic/6051557/2025/01/10/islanders-second-half-sellers-contenders/
-
-**Chilwell, Casadei won't play in FA Cup amid transfer speculation - Maresca**\
-`Chelsea head coach Enzo Maresca has revealed Ben Chilwell and Cesare Casadei are not playing in the FA Cup against Morecambe tomorrow because he does not want to threaten their chances of leaving this month.`\
-https://nytimes.com/athletic/6052163/2025/01/10/enzo-maresca-chelsea-chilwell-casadei/
 
