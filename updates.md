@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
 
+**The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
+`Kane and Bedard's careers started off in a remarkably similar way, but there is one big difference that makes them seem worlds apart.
+`\
+https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
+
 **The Memories That Burn, Too**\
 `Shawn Hubler, who covers California from Sacramento, details the personal, psychological toll of the wildfires.`\
 https://nytimes.com/2025/01/10/us/southern-california-fires-memories.html
