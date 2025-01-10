@@ -1,3 +1,11 @@
+**Vladimir Guerrero Jr., Blue Jays avoid arbitration with $28.5 million deal**\
+`After winning his arbitration hearing with the Blue Jays a year ago, Guerrero and Toronto reached a settlement on Friday.`\
+https://nytimes.com/athletic/6051078/2025/01/09/vladimir-guerrero-jr-blue-jays-arbitration-deal/
+
+**Day 5: One Change to Eat Healthier All Year**\
+`Add to your plate — don’t subtract.`\
+https://nytimes.com/2025/01/09/well/ultraprocessed-whole-foods.html
+
 **‘Den of Thieves 2: Pantera’ Review: Tough Cop, Nice Robber**\
 `Gerard Butler and O’Shea Jackson Jr., adversaries in the original film, now buddy up to steal some diamonds in France.`\
 https://nytimes.com/2025/01/09/movies/den-of-thieves-2-pantera-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/for-a-family
 **Rams-Vikings wild-card game moved to Arizona due to L.A. wildfires**\
 `The league pivoted to its contingency plan after the deadly fires burned tens of thousands of acres around Los Angeles.`\
 https://nytimes.com/athletic/6048543/2025/01/09/rams-vikings-wild-card-los-angeles-wildfires-arizona/
-
-**MLS apologizes for falsely announcing Kyogo's transfer to Atlanta United**\
-`Atlanta signed U.S.-born Cayman Togashi, not Kyogo, on Wednesday. `\
-https://nytimes.com/athletic/6050968/2025/01/09/mls-apologizes-false-atlanta-united-transfer/
-
-**What it means when officials say a fire is ‘contained.’**\
-`By Adeel Hassan`\
-https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/what-it-means-when-officials-say-a-fire-is-contained
 

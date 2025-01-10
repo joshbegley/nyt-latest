@@ -1,3 +1,11 @@
+**Vladimir Guerrero Jr., Blue Jays avoid arbitration with $28.5 million deal**\
+`After winning his arbitration hearing with the Blue Jays a year ago, Guerrero and Toronto reached a settlement on Friday.`\
+https://nytimes.com/athletic/6051078/2025/01/09/vladimir-guerrero-jr-blue-jays-arbitration-deal/
+
+**Day 5: One Change to Eat Healthier All Year**\
+`Add to your plate — don’t subtract.`\
+https://nytimes.com/2025/01/09/well/ultraprocessed-whole-foods.html
+
 **‘Den of Thieves 2: Pantera’ Review: Tough Cop, Nice Robber**\
 `Gerard Butler and O’Shea Jackson Jr., adversaries in the original film, now buddy up to steal some diamonds in France.`\
 https://nytimes.com/2025/01/09/movies/den-of-thieves-2-pantera-review.html
