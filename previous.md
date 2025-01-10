@@ -1,3 +1,15 @@
+**Britain’s First Drug Consumption Center Is Set to Open in Glasgow**\
+`Scotland, which has the highest rate of recorded drugs deaths in Europe, is launching a new facility for users to inject illegal drugs under medical supervision.`\
+https://nytimes.com/2025/01/10/world/europe/drug-consumption-room-glasgow-uk.html
+
+**Reaction to Trump’s sentence splits along party lines.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/reaction-to-trumps-sentence-splits-along-party-lines
+
+**The bill banning TikTok has rare bipartisan support.**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-bill-banning-tiktok-has-rare-bipartisan-support
+
 **Sports Streaming Service From Media Giants Ends Before It Starts**\
 `Venu Sports, a joint venture between Disney, Fox and Warner Bros., was announced to great fanfare last year but was discontinued before it ever became available.`\
 https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/world/americas/biden-bounty-nicolas-maduro.html
 **Vince McMahon Settles With S.E.C. Over Failing to Disclose Confidential Payments to Women**\
 `The former chief executive of World Wrestling Entertainment paid two women, one of whom accused him of assault.`\
 https://nytimes.com/2025/01/10/business/vince-mcmahon-sec-settlement.html
-
-**Limits on foreign ownership are not unusual in many industries.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/limits-on-foreign-ownership-are-not-unusual-in-many-industries
-
-**On the Eve of Trump’s Sentencing, an Unusual Art Gallery Opening**\
-`A show by the artist Isabelle Brourman, who sketched the trials of Donald J. Trump, attracted figures from the art world, the media and some lawyers from his civil fraud trial.`\
-https://nytimes.com/2025/01/10/arts/design/trump-sketch-artist-art-show.html
-
-**Which 4 Nations snubs are making the best cases to be injury subs?**\
-`Missing out on an invitation to next month's 4 Nations Face-Off may have provided an extra shot of motivation for some surging players.`\
-https://nytimes.com/athletic/6052469/2025/01/10/4-nations-subs/
 

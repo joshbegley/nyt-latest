@@ -1,3 +1,15 @@
+**Britain’s First Drug Consumption Center Is Set to Open in Glasgow**\
+`Scotland, which has the highest rate of recorded drugs deaths in Europe, is launching a new facility for users to inject illegal drugs under medical supervision.`\
+https://nytimes.com/2025/01/10/world/europe/drug-consumption-room-glasgow-uk.html
+
+**Reaction to Trump’s sentence splits along party lines.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/reaction-to-trumps-sentence-splits-along-party-lines
+
+**The bill banning TikTok has rare bipartisan support.**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-bill-banning-tiktok-has-rare-bipartisan-support
+
 **Sports Streaming Service From Media Giants Ends Before It Starts**\
 `Venu Sports, a joint venture between Disney, Fox and Warner Bros., was announced to great fanfare last year but was discontinued before it ever became available.`\
 https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
