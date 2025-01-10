@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Fantilli, Askarov, Staal and other injury replacements**\
+`Tuesday was a bad night for injuries. Here's a group of good-looking replacements.`\
+https://nytimes.com/athletic/6051440/2025/01/10/fantasy-trends-and-hidden-gems-fantilli-askarov-staal-and-other-injury-replacements/
+
 **A group of experienced practitioners is arguing before the justices today.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/a-group-of-experienced-practitioners-is-arguing-before-the-justices-today
