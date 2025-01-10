@@ -1,3 +1,15 @@
+**2024 Brought the World to a Dangerous Warming Threshold. Now What?**\
+`Global temperatures last year crept past a key goal, raising questions about how much nations can stop the planet from heating up further.`\
+https://nytimes.com/interactive/2025/01/09/climate/2024-heat-record-climate-goal.html
+
+**It Might Change Your Perspective**\
+`Robert Logan opens our solving weekend.`\
+https://nytimes.com/2025/01/09/crosswords/daily-puzzle-2025-01-10.html
+
+**Soccer players Carlos Vela and Ali Riley lose homes in L.A. wildfires**\
+`Former Mexican national team forward Carlos Vela, who played for Los Angeles FC, has lost his family’s home to the Palisades Fire, his wife Saioa Cañibano announced on social media on Thursday.`\
+https://nytimes.com/athletic/6051151/2025/01/09/calos-vela-ali-riley-lost-home-la-wildfires/
+
 **Appeals Court Declines to Block Release of Special Counsel Report on Trump Cases**\
 `But the court left in place an injunction that bars the Justice Department from disclosing the report for another three days.`\
 https://nytimes.com/2025/01/09/us/politics/trump-appeals-court-special-counsel-report.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/09/movies/den-of-thieves-2-pantera-review.html
 **Federal Court Halts Hearing on Eve of Guilty Plea by Accused 9/11 Mastermind**\
 `A three-judge appeals panel will decide whether the plea deal Khalid Shaikh Mohammed reached to avoid a death-penalty trial remains valid.`\
 https://nytimes.com/2025/01/09/us/politics/911-khalid-shaikh-mohammed-plea-deal.html
-
-**Jimmy Carter Is Honored in Washington**\
-`Five living presidents and a broad array of other leaders gathered at Washington National Cathedral to pay tribute to former President Jimmy Carter, the 39th president.`\
-https://nytimes.com/video/us/100000009918204/jimmy-carter-funeral.html
-
-**‘Completely Dry’: How Los Angeles Firefighters Ran Out of Water**\
-`As wildfires roar into residential neighborhoods, firefighters in California and elsewhere are finding that water systems can’t keep up with the demand.`\
-https://nytimes.com/2025/01/09/us/los-angeles-fire-water-hydrant-failure.html
-
-**Evacuation Alert Was Mistakenly Sent to All of Los Angeles County**\
-`The emergency alert caused confusion for untold residents for more about 20 minutes until a second message was sent announcing the error.`\
-https://nytimes.com/2025/01/09/us/la-emergency-alert-evacuation-fires.html
 
