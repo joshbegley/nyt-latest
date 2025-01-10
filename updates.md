@@ -1,3 +1,7 @@
+**Trump Is First President to Be Sentenced as a Felon**\
+`President-elect Donald J. Trump’s New York criminal case culminated with him avoiding jail, but he is set to become the first felon to occupy the Oval Office.`\
+https://nytimes.com/video/us/100000009919484/trump-is-first-president-to-be-sentenced-as-a-felon.html
+
 **Emery says Barkley likely out for up to three weeks with calf injury**\
 `Unai Emery says Ross Barkley could be out for up to three weeks after the Aston Villa midfielder picked up a calf injury in Friday&#8217;s FA Cup victory over West Ham United.`\
 https://nytimes.com/athletic/6053419/2025/01/10/ross-barkley-aston-villa-injury-update/
