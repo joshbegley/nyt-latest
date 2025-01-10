@@ -1,3 +1,15 @@
+**14-Year-Old Boy Found Fatally Stabbed in the Bronx**\
+`The boy, Caleb Rios, was at least the third teenager to be killed in New York City this year.`\
+https://nytimes.com/2025/01/10/nyregion/teen-stabbed-bronx.html
+
+**‘We’re in a New Era’: How Climate Change Is Supercharging Disasters**\
+`Extreme weather events — deadly heat waves, floods, fires and hurricanes — are the consequences of a warming planet, scientists say.`\
+https://nytimes.com/2025/01/10/climate/california-fires-climate-change-disasters.html
+
+**Border Crossings Continue to Drop Before Trump’s Second Term**\
+`Illegal crossings at the U.S.-Mexico border in November fell to their lowest level of President Biden’s administration.`\
+https://nytimes.com/2025/01/10/us/politics/border-immigration-drop-biden.html
+
 **4 Takeaways From the Arguments Before the Supreme Court in the TikTok Case**\
 `The justices, who asked tough questions of both sides, showed skepticism toward arguments by lawyers for TikTok and its users.`\
 https://nytimes.com/2025/01/10/us/politics/takeaways-tiktok-supreme-court.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/travel/los-angeles-fire-evacuees-hotels.html
 **An Inferno in Southern California, and One Family’s Escape**\
 `Aurielle Hall knew she had little time to get herself and her daughter out of Altadena. Convincing Aunt Cheri would be a different challenge.`\
 https://nytimes.com/2025/01/10/us/altadena-family-escape-eaton-fire.html
-
-**David Moyes set to be appointed Everton manager**\
-`David Moyes is set to be appointed as Everton boss for the second time, with talks progressing towards a deal being concluded imminently.`\
-https://nytimes.com/athletic/6050146/2025/01/10/david-moyes-everton-manager/
-
-**NFL wild-card weekend betting insights: What the math says about home-field advantage**\
-`Michael Salfino takes a deep dive into the value of home-field advantage in the NFL and who actually takes advantage of it the most.`\
-https://nytimes.com/athletic/6052719/2025/01/10/nfl-wild-card-weekend-home-field-advantage/
-
-**The court fast-tracked the TikTok case. What happens next?**\
-`Reporting f`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-court-fast-tracked-the-tiktok-case-what-happens-next
 

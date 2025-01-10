@@ -1,3 +1,15 @@
+**14-Year-Old Boy Found Fatally Stabbed in the Bronx**\
+`The boy, Caleb Rios, was at least the third teenager to be killed in New York City this year.`\
+https://nytimes.com/2025/01/10/nyregion/teen-stabbed-bronx.html
+
+**‘We’re in a New Era’: How Climate Change Is Supercharging Disasters**\
+`Extreme weather events — deadly heat waves, floods, fires and hurricanes — are the consequences of a warming planet, scientists say.`\
+https://nytimes.com/2025/01/10/climate/california-fires-climate-change-disasters.html
+
+**Border Crossings Continue to Drop Before Trump’s Second Term**\
+`Illegal crossings at the U.S.-Mexico border in November fell to their lowest level of President Biden’s administration.`\
+https://nytimes.com/2025/01/10/us/politics/border-immigration-drop-biden.html
+
 **4 Takeaways From the Arguments Before the Supreme Court in the TikTok Case**\
 `The justices, who asked tough questions of both sides, showed skepticism toward arguments by lawyers for TikTok and its users.`\
 https://nytimes.com/2025/01/10/us/politics/takeaways-tiktok-supreme-court.html
