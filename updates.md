@@ -1,3 +1,7 @@
+**Russo: You can't make up how utterly ridiculous the Wild's injury situation has been**\
+`Injuries and illness are forcing the Wild to get extremely creative with the salary cap as they try to tread water.`\
+https://nytimes.com/athletic/6051515/2025/01/10/wild-injuries-defense-goalies-avalanche/
+
 **Yohe's 10 observations: Penguins get the last laugh as Crosby, McDavid each put on a show**\
 `The Penguins got the best of the Oilers through sheer hard work and smart defensive strategy — and a little star power from both teams.`\
 https://nytimes.com/athletic/6051045/2025/01/10/penguins-crosby-mcdavid-nedeljkovic-oilers/
