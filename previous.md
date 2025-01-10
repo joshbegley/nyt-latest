@@ -1,3 +1,7 @@
+**What Are the Alternatives to TikTok?**\
+`ByteDance has pushed Lemon8 as a ban on TikTok looms, but it could be subject to the same law.`\
+https://nytimes.com/2025/01/10/style/tiktok-ban-alternatives.html
+
 **NASCAR's rule change to guarantee spots for celebrity drivers goes too far**\
 `A new NASCAR rule grants an automatic starting sport to world-famous drivers who want to cross over. It's a step too far.`\
 https://nytimes.com/athletic/6049313/2025/01/10/nascar-rule-change-celebrity-drivers-daytona-500/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/nyregion/adams-corruption-businessman-plea.html
 **Giuliani Found in Contempt of Court Over Continued Defamation of Election Workers**\
 `In November, Rudy Giuliani repeated accusations against the women at least four times, after Donald J. Trump won the 2024 presidential election.`\
 https://nytimes.com/2025/01/10/us/politics/giuliani-contempt-defamation-election-workers.html
-
-**Pete Alonso camp offers Mets a 3-year deal, per former MLB executive**\
-`The deal Alonso's camp proposed to the Mets would include opt-outs, according to league sources.`\
-https://nytimes.com/athletic/6053174/2025/01/10/mets-pete-alonso-negotiations-contract/
 

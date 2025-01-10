@@ -1,3 +1,7 @@
+**What Are the Alternatives to TikTok?**\
+`ByteDance has pushed Lemon8 as a ban on TikTok looms, but it could be subject to the same law.`\
+https://nytimes.com/2025/01/10/style/tiktok-ban-alternatives.html
+
 **NASCAR's rule change to guarantee spots for celebrity drivers goes too far**\
 `A new NASCAR rule grants an automatic starting sport to world-famous drivers who want to cross over. It's a step too far.`\
 https://nytimes.com/athletic/6049313/2025/01/10/nascar-rule-change-celebrity-drivers-daytona-500/
