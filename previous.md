@@ -1,3 +1,11 @@
+**Jets, Browns, Jags chosen as home teams for 2025 NFL London Games**\
+`New York and Cleveland will play at Tottenham while Jacksonville returns to Wembley Stadium.`\
+https://nytimes.com/athletic/6051829/2025/01/10/nfl-london-games-2025-jets-browns-jaguars/
+
+**Trump can’t appeal his conviction until after sentencing. But he is already challenging it.**\
+`By Kate Christobek and Ben Protess`\
+https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/trump-cant-appeal-his-conviction-until-after-sentencing-but-he-is-already-challenging-it
+
 **Postecoglou says Bentancur sidelined with concussion**\
 `Tottenham Hotspur head coach Ange Postecoglou says that midfielder Rodrigo Bentancur &#8220;looks like&#8221; he sustained a concussion during the first leg of Spurs&#8217; Carabao Cup semi-final against Liverpool on Wednesday.`\
 https://nytimes.com/athletic/6051940/2025/01/10/rodrigo-bentancur-tottenham-concussion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6051299/2025/01/10/max-kepler-phillies-outfield-pow
 **Lee Grant interview: Lessons from Pogba and Mourinho - and Ipswich's 'superpower'**\
 `The ex-Manchester United goalkeeper on how his Old Trafford experiences — good and bad — are shaping his attitude to coaching `\
 https://nytimes.com/athletic/6043860/2025/01/10/lee-grant-interview-ipswich-manchester-united/
-
-**49ers macro minute: Snap totals highlight rookies, show the offseason work ahead**\
-`With apologies to the offensive line, the 49ers' defensive line seems like the area that will require the most work in the offseason.`\
-https://nytimes.com/athletic/6050708/2025/01/10/49ers-2024-snap-counts-rookies-dominic-puni/
-
-**Drew Allar's late interception in Orange Bowl loss leaves Penn State with familiar gut punch**\
-`Penn State had chances to change narratives that have haunted the program. But a doomed final drive led to a 27-24 loss to Notre Dame.`\
-https://nytimes.com/athletic/6051675/2025/01/10/penn-state-drew-allar-orange-bowl-notre-dame/
 

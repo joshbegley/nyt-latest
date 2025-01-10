@@ -1,3 +1,11 @@
+**Jets, Browns, Jags chosen as home teams for 2025 NFL London Games**\
+`New York and Cleveland will play at Tottenham while Jacksonville returns to Wembley Stadium.`\
+https://nytimes.com/athletic/6051829/2025/01/10/nfl-london-games-2025-jets-browns-jaguars/
+
+**Trump can’t appeal his conviction until after sentencing. But he is already challenging it.**\
+`By Kate Christobek and Ben Protess`\
+https://nytimes.com/live/2025/01/10/nyregion/trump-hush-money-sentencing/trump-cant-appeal-his-conviction-until-after-sentencing-but-he-is-already-challenging-it
+
 **Postecoglou says Bentancur sidelined with concussion**\
 `Tottenham Hotspur head coach Ange Postecoglou says that midfielder Rodrigo Bentancur &#8220;looks like&#8221; he sustained a concussion during the first leg of Spurs&#8217; Carabao Cup semi-final against Liverpool on Wednesday.`\
 https://nytimes.com/athletic/6051940/2025/01/10/rodrigo-bentancur-tottenham-concussion/
