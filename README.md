@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000009919484/trump-is-first-president-to-be-sent
 `Emma Hayes will shift her camps due to the effects of the devastating fires`\
 https://nytimes.com/athletic/6053433/2025/01/10/uswnt-fires-florida-los-angeles/
 
-**JJ Redick loses home in Pacific Palisades due to Los Angeles wildfires**\
+**Lakers' JJ Redick opens up on losing home due to LA wildfires**\
 `"I was not prepared for what I saw. It's complete devastation and destruction," Redick said, recalling driving to see his home Wednesday.`\
 https://nytimes.com/athletic/6053161/2025/01/10/jj-redick-lakers-house-burned-la-wildfires/
 
