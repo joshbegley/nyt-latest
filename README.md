@@ -1,3 +1,7 @@
+**How has the Supreme Court ruled when national security and free speech clash?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/how-has-the-supreme-court-ruled-when-national-security-and-free-speech-clash
+
 **Trump Organization Issues Ethics Pledge for President-Elect’s Second Term**\
 `The measures largely echo agreements the family made for his first term, including appointing an outside ethics lawyer and limiting Mr. Trump’s access to detailed financial information.`\
 https://nytimes.com/2025/01/10/us/politics/trump-ethics-conflicts-of-interest.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/the-bill-banning
 **Sports Streaming Service From Media Giants Ends Before It Starts**\
 `Venu Sports, a joint venture between Disney, Fox and Warner Bros., was announced to great fanfare last year but was discontinued before it ever became available.`\
 https://nytimes.com/2025/01/10/business/venu-sports-streaming-service.html
-
-**Who Are the Creators Suing Over a TikTok Ban?**\
-`The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
-https://nytimes.com/2025/01/10/us/politics/tiktok-creators-lawsuit-us-ban.html
 
