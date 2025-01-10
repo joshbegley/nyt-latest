@@ -1,3 +1,31 @@
+**In an unusual request, Trump asked the court to pause the law banning TikTok.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/in-an-unusual-request-trump-asked-the-court-to-pause-the-law-banning-tiktok
+
+**Bob Dylan Is Having a Hollywood Moment. His No. 1 Hater Is Ready.**\
+`A.J. Weberman sifted through the prophetic singer’s trash in search of meaning. He turned on him as a sellout and has spent decades trying to reclaim him for the counterculture.`\
+https://nytimes.com/2025/01/10/nyregion/bob-dylan-nemesis.html
+
+**Israel Strikes Ports and a Power Plant in Houthi-Controlled Parts of Yemen**\
+`Israel and its allies have escalated strikes against the Houthis to try to force them to stop firing on Israel and Red Sea shipping lanes, but it was not clear whether they would deter the Iran-backed militia.`\
+https://nytimes.com/2025/01/10/world/middleeast/israel-strikes-yemen-houthis.html
+
+**Five International Movies to Stream Now**\
+`This month, one of Pablo Escobar’s hippos narrates his life, a Ouija board terrorizes friends in India and an Iranian refugee in Finland navigates adolescence.`\
+https://nytimes.com/2025/01/10/movies/five-international-movies-to-stream-now.html
+
+**Onions’ Highest Calling**\
+`Our five-star French onion soup recipe turns that big bag of trusty onions into a luxurious meal.`\
+https://nytimes.com/2025/01/10/dining/french-onion-soup-recipe.html
+
+**The Transfer Radar 2025: The Athletic's ultimate guide to players who could be on the move**\
+`Focused on transfers across 2025, we look at the situations of Salah, Wirtz, Zubimendi, Davies, Gyokeres, Alexander-Arnold and more...`\
+https://nytimes.com/athletic/5936155/2025/01/10/transfer-radar-window-signings-guide/
+
+**'It's a tough go for him': Khris Middleton fighting setbacks in return from offseason surgery**\
+`In an ideal world, Middleton would have returned from the injury and ramped up to his spot in the starting lineup with no restrictions.`\
+https://nytimes.com/athletic/6049736/2025/01/10/khris-middleton-bucks-bench-surgery/
+
 **What is strict scrutiny and why does it matter?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/what-is-strict-scrutiny-and-why-does-it-matter
@@ -9,32 +37,4 @@ https://nytimes.com/interactive/2025/01/10/weather/quake-tracker-san-francisco.h
 **Oilers midseason report cards: Leon Draisaitl is at an MVP-level**\
 `The Oilers had an early wobble to start the season but followed it with a long period of success.`\
 https://nytimes.com/athletic/6049494/2025/01/10/oilers-2024-25-midseason-report-cards-leon-draisaitl/
-
-**Penn State's Abdul Carter declares for NFL Draft: Report**\
-`Penn State defensive end Abdul Carter has declared for the NFL Draft, with Carter&#8217;s agent, Drew Rosenhaus, sharing Carter&#8217;s decision with ESPN just hours after the Nittany Lions&#8217; season ended Thursday in the College Football Playoff semifinals.`\
-https://nytimes.com/athletic/6052459/2025/01/10/penn-state-abdul-carter-nfl-draft/
-
-**Toronto FC hiring Robin Fraser as new head coach**\
-`Toronto FC is appointing Robin Fraser as its new head coach, according to sources close to the deal who spoke on the condition of anonymity.`\
-https://nytimes.com/athletic/6052496/2025/01/10/robin-fraser-toronto-coach/
-
-**Classified information means some of the national security concerns about TikTok remain opaque.**\
-`By David McCabe`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/classified-information-means-some-of-the-national-security-concerns-about-tiktok-remain-opaque
-
-**Henry set for first Brentford appearance in 16 months after ACL injury**\
-`Thomas Frank has confirmed Rico Henry will make his first appearance for Brentford in 16 months in their FA Cup third-round tie against Plymouth Argyle on Saturday.`\
-https://nytimes.com/athletic/6052470/2025/01/10/rico-henry-brentford-injury-return/
-
-**U.S. Imposes New Sanctions to Squeeze Russia’s Energy Sector**\
-`The Biden administration is cracking down on the Russian “shadow fleet” and taking steps to curb oil and gas production.`\
-https://nytimes.com/2025/01/10/us/politics/us-russia-sanctions.html
-
-**NBA's (Low-Key) Trade Deadline Team: Jerami Grant, Mitchell Robinson and more**\
-`There are the guys you probably haven’t thought much about, but they seem highly likely to change teams before Feb. 6.`\
-https://nytimes.com/athletic/6051458/2025/01/10/nba-trade-rumors-jeremi-grant-mitchell-robinson/
-
-**NHL Power Rankings: A new No. 1 at the midpoint and players who need to step up**\
-`The middle of the season offers a great chance to reflect on what’s happened and look ahead to what could happen going forward.`\
-https://nytimes.com/athletic/6052013/2025/01/10/nhl-power-rankings-golden-knights-2/
 
