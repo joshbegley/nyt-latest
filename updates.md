@@ -1,3 +1,7 @@
+**Andy Cowell becomes Aston Martin team principal amid reshuffle**\
+`Andy Cowell has been named as Aston Martin’s new Formula One team principal and CEO as part of a senior management reshuffle, taking over from Mike Krack.`\
+https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-principal/
+
 **An inside look at how Bears QB Caleb Williams developed during a chaotic season**\
 `His head coach and offensive coordinator were fired during the season, but Williams grew as his rookie season went on. `\
 https://nytimes.com/athletic/6050364/2025/01/10/bears-caleb-williams-development/
