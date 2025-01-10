@@ -1,3 +1,7 @@
+**In Los Angeles, Hotels Become a Refuge for Fire Evacuees**\
+`In lobbies throughout the city, guests with children, pets and hastily packed bags share a resigned intimacy.`\
+https://nytimes.com/2025/01/10/travel/los-angeles-fire-evacuees-hotels.html
+
 **An Inferno in Southern California, and One Family’s Escape**\
 `Aurielle Hall knew she had little time to get herself and her daughter out of Altadena. Convincing Aunt Cheri would be a different challenge.`\
 https://nytimes.com/2025/01/10/us/altadena-family-escape-eaton-fire.html
