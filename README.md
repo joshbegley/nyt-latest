@@ -1,11 +1,3 @@
-**The Pulse: The best game of the Playoff so far**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6049712/2025/01/10/notre-dame-penn-state-cfp-the-pulse/
-
-**Nuclear Power Giant to Acquire Natural Gas Plants for $16.4 Billion**\
-`Constellation Energy’s deal to buy Calpine is being driven by fast-rising demand for electricity by the technology industry.`\
-https://nytimes.com/2025/01/10/business/energy-environment/constellation-energy-calpine.html
-
 **Fantasy football 2025: CMC, rookie receivers and more notable risers and fallers**\
 `A more detailed look at the biggest movers in Brandon Funston's first 2025 Big Board of his Top 100 players.`\
 https://nytimes.com/athletic/6047161/2025/01/10/fantasy-footballs-top-risers-fallers-for-2025-christian-mccaffrey-rookie-receivers-and-more/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6047540/2025/01/10/commanders-roster-adam-peters-da
 **Dad jokes and snow angels: What turned Sean McDermott into a new kind of coach**\
 `Sean McDermott says he's always been a goofy dad but didn't show it until this season.`\
 https://nytimes.com/athletic/6047900/2025/01/10/bills-coach-sean-mcdermott-playoffs/
+
+**NFL postseason QB hobby power rankings: Where Mahomes, Allen, Daniels fit in**\
+`Would another Super Bowl this season for Mahomes really be the best development for the football card hobby?`\
+https://nytimes.com/athletic/6044149/2025/01/10/nfl-playoff-qb-power-rankings-trading-cards/
+
+**Padres ownership's family fight raises questions about operation of team**\
+`A lawsuit filed by late owner Peter Seidler's widow against two of his brothers may complicate matters for San Diego's front office.`\
+https://nytimes.com/athletic/6050832/2025/01/10/padres-ownership-seidler-family-fight/
 
