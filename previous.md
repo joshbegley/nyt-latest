@@ -1,3 +1,7 @@
+**‘Babygirl’ | Anatomy of a Scene**\
+`The writer and director Halina Reijn narrates a sequence from her film, featuring Nicole Kidman and Harris Dickinson.`\
+https://nytimes.com/video/movies/100000009916744/babygirl-anatomy-of-a-scene.html
+
 **Here are the latest developments.**\
 `By Qasim Nauman, Corina Knoll and Soumya Karlamangla`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/nyregion/trump-sentencing-felon-hush-money.html
 **The Roller-Skating Economist You Can Thank for Congestion Pricing**\
 `Charging drivers to enter Lower Manhattan vindicates the lifelong mission of a Nobel laureate who, as it happened, died behind the wheel of a car.`\
 https://nytimes.com/2025/01/10/nyregion/big-city-congestion-pricing.html
-
-**Federal Grand Jury Has Heard More Evidence in Case Against Mayor Adams**\
-`Prosecutors have presented additional evidence to a grand jury in the case against Eric Adams, his lawyer said in court papers, a sign new charges may be near.`\
-https://nytimes.com/2025/01/10/nyregion/eric-adams-corruption-grand-jury.html
 

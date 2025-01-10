@@ -1,3 +1,7 @@
+**‘Babygirl’ | Anatomy of a Scene**\
+`The writer and director Halina Reijn narrates a sequence from her film, featuring Nicole Kidman and Harris Dickinson.`\
+https://nytimes.com/video/movies/100000009916744/babygirl-anatomy-of-a-scene.html
+
 **Here are the latest developments.**\
 `By Qasim Nauman, Corina Knoll and Soumya Karlamangla`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/here-are-the-latest-developments
