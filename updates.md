@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2025/01/09/college-football-playoff-projections-odds/
+
 **Notre Dame wins Orange Bowl thriller with late INT, kick to earn title shot**\
 `After Notre Dame beat Penn State, Marcus Freeman will be the first Black coach in college football's national championship game.`\
 https://nytimes.com/athletic/6051284/2025/01/09/notre-dame-penn-state-playoff-orange-bowl/

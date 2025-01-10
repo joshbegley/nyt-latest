@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6051284/2025/01/09/notre-dame-penn-state-playoff-or
 `Drysdale was on the ice for the Stars' first two goals Thursday night almost exactly a year after being traded from Anaheim.`\
 https://nytimes.com/athletic/6051318/2025/01/09/jamie-drysdale-flyers-progress-stars/
 
-**'Twenty minutes won't cut it': Bruins lose sixth straight after 2 quiet periods**\
+**‘Twenty minutes won’t cut it’: Bruins lose sixth straight after 2 quiet periods**\
 `Had the Bruins applied the same amount of effort they showed in the third period to the entire game, the result might have been different.`\
 https://nytimes.com/athletic/6051345/2025/01/09/bruins-lightning-losing-streak/
 
