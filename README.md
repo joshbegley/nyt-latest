@@ -1,3 +1,15 @@
+**Ratings for Cavaliers win over Thunder up 20 percent from last year**\
+`According to the website Sports Media Watch, Cavs-Thunder was the sixth-highest-rated NBA game shown exclusively on cable this season.`\
+https://nytimes.com/athletic/6053060/2025/01/10/nba-ratings-cavaliers-thunder-tv/
+
+**Vatican Allows Italian Gay Men to Train to Be Priests, if They Remain Celibate**\
+`Candidates for the seminary should not be disqualified based on sexual orientation, according to new church guidelines in Italy.`\
+https://nytimes.com/2025/01/10/world/europe/vatican-gay-men-priests-celibate-italy.html
+
+**A Sentence With No Penalty Assures Trump Will Take Office as a Felon**\
+`Justice Juan M. Merchan gave Donald J. Trump a symbolic punishment. The judge said that leniency was due the office of the president, not the man who will soon hold the title.`\
+https://nytimes.com/2025/01/10/nyregion/trump-hush-money-sentencing-convicted-felon.html
+
 **L.A. Doesn’t Know the Cause of a False Evacuation Alert, or How to Stop It**\
 `Public safety officials fear that residents might ignore future, accurate alerts if they become accustomed to false warnings.`\
 https://nytimes.com/2025/01/10/us/los-angeles-false-evacuation-alert.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6047857/2025/01/10/abdukodir-khusanov-transfer-manc
 **A Judge Cements the Stain on Trump’s Reputation**\
 `He can appeal his conviction, but it’s no longer clear that he’ll get very far.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-trial
-
-**MLB indefinitely bans Yankees fans who interfered during World Series**\
-`The pair were immediately ejected during Game 4 of the World Series and banned from attending Game 5. `\
-https://nytimes.com/athletic/6052984/2025/01/10/mlb-bans-yankees-fans-world-series-interference/
-
-**Destruction From 3,000 Feet in the Air**\
-`A reporter and a photographer from The New York Times surveyed the devastation wrought by the Palisades and Eaton fires from a helicopter.`\
-https://nytimes.com/2025/01/10/us/california-fires-aerial-photos.html
-
-**Prices Spike on Some L.A. Rentals as Fire Victims Search for Places to Stay**\
-`Despite a law against price gouging during a state of emergency, some rental listings have shot up above the allowable 10 percent overnight.`\
-https://nytimes.com/2025/01/10/business/california-fires-rent-price-gouging.html
 
