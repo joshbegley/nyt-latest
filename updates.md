@@ -1,3 +1,15 @@
+**Is Zendaya Engaged?**\
+`Speculation abounds when celebrities wear a ring on that finger, so why do it?`\
+https://nytimes.com/2025/01/10/style/is-zendaya-engaged.html
+
+**Inside Mark Zuckerberg’s Sprint to Remake Meta for the Trump Era**\
+`After visiting President-elect Donald J. Trump in November, Mr. Zuckerberg decided to relax Meta’s speech policies. He asked a small team to carry out his goals within weeks. The repercussions are just beginning.`\
+https://nytimes.com/2025/01/10/technology/meta-mark-zuckerberg-trump.html
+
+**Get to Know Bad Bunny in 9 Songs**\
+`Hear his first solo single up through a highlight from his latest LP, “Debí Tirar Más Fotos.”`\
+https://nytimes.com/2025/01/10/arts/music/amplifier-newsletter-bad-bunny.html
+
 **TikTok is facing legal backlash around the world.**\
 `By Meaghan Tobin`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-is-facing-legal-backlash-around-the-world
