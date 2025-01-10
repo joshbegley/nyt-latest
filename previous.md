@@ -1,3 +1,15 @@
+**Fires Prompt Water Advisories for Some in the L.A. Area**\
+`The devastating wildfires have raised concerns about the safety of the water supply in some places. Here’s a list of the warnings and instructions for residents.`\
+https://nytimes.com/2025/01/10/us/los-angeles-fires-water-advisories.html
+
+**Why each NFC playoff team will win the Super Bowl, and why they won’t**\
+`The Detroit Lions are the team to beat in the NFC, but this conference's wild-card teams put up more fight than their AFC counterparts. `\
+https://nytimes.com/athletic/6049528/2025/01/10/nfl-playoff-super-bowl-nfc-winner/
+
+**How much is home-field advantage worth toward the point spread in the NFL? It depends**\
+`How much is home-field advantage worth toward the NFL point spread? The Athletic's Ben Fawkes did a deep dive to find out.`\
+https://nytimes.com/athletic/6048081/2025/01/10/nfl-home-field-advantage-point-spread/
+
 **Elliott and Chiesa set for FA Cup action**\
 `Arne Slot is set to give Liverpool duo Harvey Elliott and Federico Chiesa the chance to impress in Saturday’s FA Cup tie against Accrington Stanley at Anfield.`\
 https://nytimes.com/athletic/6051798/2025/01/10/liverpool-elliott-chiesa-fa-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/01/10/briefing/quiz-wildfires-jimmy-carter-
 **With Hearings Imminent, Partisan Fight Escalates Over Trump Cabinet**\
 `Democrats are demanding that Republicans slow consideration of picks for the new administration until they can review background checks, as the G.O.P. faces major pressure to quickly confirm them.`\
 https://nytimes.com/2025/01/10/us/politics/partisan-fight-trump-cabinet.html
-
-**Supreme Court to Hear Challenge to Law That Could Shut Down TikTok**\
-`The justices are expected to rule quickly in the case, which pits national security concerns about China against the First Amendment’s protection of free speech.`\
-https://nytimes.com/2025/01/10/us/politics/supreme-court-tiktok-ban-law.html
-
-**Lebanon Turns a Political Page as Hezbollah’s Hold Is Weakened**\
-`A stinging defeat in war has left the once untouchable group on its most uncertain footing in years.`\
-https://nytimes.com/2025/01/10/world/middleeast/lebanon-hezbollah-politics.html
-
-**Watch Nicole Kidman and Harris Dickinson Connect in ‘Babygirl’**\
-`The film’s writer and director, Halina Reijn, narrates a sequence.`\
-https://nytimes.com/2025/01/10/movies/watch-nicole-kidman-and-harris-dickinson-connect-in-babygirl.html
 
