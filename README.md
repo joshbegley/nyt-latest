@@ -1,3 +1,27 @@
+**L.A. Doesn’t Know the Cause of a False Evacuation Alert, or How to Stop It**\
+`Public safety officials fear that residents might ignore future, accurate alerts if they become accustomed to false warnings.`\
+https://nytimes.com/2025/01/10/us/los-angeles-false-evacuation-alert.html
+
+**Biden Officials Say the Truth About Havana Syndrome Is Still Unknown**\
+`The White House contradicts a new intelligence assessment on the mysterious ailments that diplomats and spies have reported for years.`\
+https://nytimes.com/2025/01/10/us/politics/havana-syndrome-causes.html
+
+**The Books We’re Excited About in Early 2025**\
+`The latest from a Nobel laureate, a “Hunger Games” prequel and more.`\
+https://nytimes.com/2025/01/10/books/review/podcast-anticipated-books-2025.html
+
+**Can I Ban Books From My Front-Yard Little Free Library?**\
+`The magazine’s Ethicist columnist on the curation of a book collection.`\
+https://nytimes.com/2025/01/10/magazine/little-free-library-ethics.html
+
+**Homeowners Affected by Palisades and Eaton Fires Get Insurance Protections**\
+`California’s insurance commissioner won’t allow canceled or nonrenewed policies in and around the fire zones for a year.`\
+https://nytimes.com/2025/01/10/us/homeowners-insurance-fires-palisades-eaton.html
+
+**Man City reach agreement with Lens for Khusanov signing**\
+`Manchester City have reached an agreement with Lens to sign defender Abdukodir Khusanov.`\
+https://nytimes.com/athletic/6047857/2025/01/10/abdukodir-khusanov-transfer-manchester-city/
+
 **A Judge Cements the Stain on Trump’s Reputation**\
 `He can appeal his conviction, but it’s no longer clear that he’ll get very far.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-trial
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/10/us/california-fires-aerial-photos.html
 **Prices Spike on Some L.A. Rentals as Fire Victims Search for Places to Stay**\
 `Despite a law against price gouging during a state of emergency, some rental listings have shot up above the allowable 10 percent overnight.`\
 https://nytimes.com/2025/01/10/business/california-fires-rent-price-gouging.html
-
-**Syracuse QB Kyle McCord declares for NFL Draft**\
-`McCord and Syracuse had asked the NCAA to grant McCord another year of eligibility, but he's entering the draft instead.`\
-https://nytimes.com/athletic/6053044/2025/01/10/syracuse-kyle-mccord-nfl-draft-quarterback/
-
-**NASCAR drivers who miss race not due to injury will lose playoff points**\
-`The policy change effectively streamlines the rule a year after a controversial debate to grant title contender Kyle Larson a waiver.`\
-https://nytimes.com/athletic/6052990/2025/01/10/nascar-rule-change-playoff-eligibility/
-
-**14-Year-Old Boy Found Fatally Stabbed in the Bronx**\
-`The boy, Caleb Rios, was at least the third teenager to be killed in New York City this year.`\
-https://nytimes.com/2025/01/10/nyregion/teen-stabbed-bronx.html
-
-**‘We’re in a New Era’: How Climate Change Is Supercharging Disasters**\
-`Extreme weather events — deadly heat waves, floods, fires and hurricanes — are the consequences of a warming planet, scientists say.`\
-https://nytimes.com/2025/01/10/climate/california-fires-climate-change-disasters.html
-
-**Border Crossings Continue to Drop Before Trump’s Second Term**\
-`Illegal crossings at the U.S.-Mexico border in November fell to their lowest level of President Biden’s administration.`\
-https://nytimes.com/2025/01/10/us/politics/border-immigration-drop-biden.html
-
-**4 Takeaways From the Arguments Before the Supreme Court in the TikTok Case**\
-`The justices, who asked tough questions of both sides, showed skepticism toward arguments by lawyers for TikTok and its users.`\
-https://nytimes.com/2025/01/10/us/politics/takeaways-tiktok-supreme-court.html
 
