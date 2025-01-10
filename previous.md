@@ -1,3 +1,7 @@
+**Federal Court Halts Hearing on Eve of Guilty Plea by Accused 9/11 Mastermind**\
+`A three-judge appeals panel will decide whether the plea deal Khalid Shaikh Mohammed reached to avoid a death-penalty trial remains valid.`\
+https://nytimes.com/2025/01/09/us/politics/911-khalid-shaikh-mohammed-plea-deal.html
+
 **Jimmy Carter Is Honored in Washington**\
 `Five living presidents and a broad array of other leaders gathered at Washington National Cathedral to pay tribute to former President Jimmy Carter, the 39th president.`\
 https://nytimes.com/video/us/100000009918204/jimmy-carter-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/what-it-mean
 **How Outlets on the Left and Right Have Covered the Los Angeles Wildfires**\
 `Media outlets reported similarly on the destruction caused by the fires that raced through Southern California. But partisan publications attributed them to very different causes.`\
 https://nytimes.com/2025/01/09/business/media/los-angeles-wildfires-media-coverage.html
-
-**Reds sign all 8 arbitration-eligible players to 1-year deals**\
-`Included in the group are three players they acquired via trade: Brady Singer, Gavin Lux and Jose Trevino.`\
-https://nytimes.com/athletic/6050985/2025/01/09/reds-sign-arbitration-eligible-players/
 

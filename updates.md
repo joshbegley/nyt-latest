@@ -1,3 +1,7 @@
+**Federal Court Halts Hearing on Eve of Guilty Plea by Accused 9/11 Mastermind**\
+`A three-judge appeals panel will decide whether the plea deal Khalid Shaikh Mohammed reached to avoid a death-penalty trial remains valid.`\
+https://nytimes.com/2025/01/09/us/politics/911-khalid-shaikh-mohammed-plea-deal.html
+
 **Jimmy Carter Is Honored in Washington**\
 `Five living presidents and a broad array of other leaders gathered at Washington National Cathedral to pay tribute to former President Jimmy Carter, the 39th president.`\
 https://nytimes.com/video/us/100000009918204/jimmy-carter-funeral.html
