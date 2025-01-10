@@ -1,3 +1,19 @@
+**Data has revolutionised football transfers. When will it do the same to real-time tactics?**\
+`Examples of data being used to directly impact a game may be limited, but the reasons why are simpler than they might seem`\
+https://nytimes.com/athletic/5991730/2025/01/10/when-will-data-impact-tactics-real-time/
+
+**With Evan Mobley and Scottie Barnes, there's no need yet to pick one over the other**\
+`Mobley's Cavaliers are dominating and Barnes' Raptors are languishing, but both still offer reasons to dream of more.`\
+https://nytimes.com/athletic/6051254/2025/01/10/scottie-barnes-evan-mobley-nba-all-star/
+
+**'Welcome to The Lamb' - Joining part-timers Tamworth as they prepare for the visit of Tottenham**\
+`The Athletic went to see how the club of volunteers and players who earn £400-600 per week prepared for visit of Premier League superstars`\
+https://nytimes.com/athletic/6049768/2025/01/10/tamworth-tottenham-fa-cup-the-lamb/
+
+**Graham Potter the football manager: A creator of structures in which individuals can shine**\
+`The former Swansea, Brighton and Chelsea manager is back in the Premier League - expect pragmatism rather than revolution `\
+https://nytimes.com/athletic/5986377/2025/01/10/graham-potter-manager-profile-west-ham/
+
 **Friday Briefing**\
 `Three days of wildfires.`\
 https://nytimes.com/2025/01/10/briefing/fires-los-angeles-lebanon.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/10/style/elizabeth-solomon-gero-geilenbruegge-weddin
 **Quote of the Day: Lofty Tribute to a Public Servant and Humble Grandfather**\
 `Quotation of the Day for Friday, January 10, 2025.`\
 https://nytimes.com/2025/01/09/pageoneplus/quote-of-the-day-lofty-tribute-to-a-public-servant-and-humble-grandfather.html
-
-**Sam Carrick's moment, special teams thrive, a pair of returns and more: Rangers takeaways**\
-`The Rangers hit the halfway point of the season with a well-played overtime win over the rival Devils.`\
-https://nytimes.com/athletic/6051377/2025/01/09/rangers-carrick-special-teams-shesterkin-devils/
-
-**Oilers fail to play to their 'standard' as dominance against Penguins finally ends**\
-`The Oilers' 5-3 loss to the Penguins ended a seven-game winning streak against the Penguins dating back to Dec. 20, 2019.`\
-https://nytimes.com/athletic/6051341/2025/01/09/oilers-penguins-connor-mcdavid-sidney-crosby/
-
-**College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2025/01/09/college-football-playoff-projections-odds/
-
-**Notre Dame wins Orange Bowl thriller with late INT, kick to earn title shot**\
-`After Notre Dame beat Penn State, Marcus Freeman will be the first Black coach in college football's national championship game.`\
-https://nytimes.com/athletic/6051284/2025/01/09/notre-dame-penn-state-playoff-orange-bowl/
 
