@@ -1,3 +1,7 @@
+**How Outlets on the Left and Right Have Covered the Los Angeles Wildfires**\
+`Media outlets reported similarly on the destruction caused by the fires that raced through Southern California. But partisan publications attributed them to very different causes.`\
+https://nytimes.com/2025/01/09/business/media/los-angeles-wildfires-media-coverage.html
+
 **Reds sign all 8 arbitration-eligible players to 1-year deals**\
 `Included in the group are three players they acquired via trade: Brady Singer, Gavin Lux and Jose Trevino.`\
 https://nytimes.com/athletic/6050985/2025/01/09/reds-sign-arbitration-eligible-players/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/09/us/california-fires-los-angeles/california-f
 **Carson Beck's decision puts Beck, Georgia on opposite ends of a big 2025 storyline**\
 `Georgia's offense was going to face pressure in 2025. Now its starting quarterback from the past two years appears to have ratcheted it up.`\
 https://nytimes.com/athletic/6050848/2025/01/09/carson-beck-transfer-portal-georgia-football/
-
-**Who Are the Victims of the Los Angeles Fires?**\
-`At least five people died in fires raging across Los Angeles. Several of them appeared to have lived near each other in the ravaged Altadena neighborhood.`\
-https://nytimes.com/2025/01/09/us/california-fires-victims.html
 
