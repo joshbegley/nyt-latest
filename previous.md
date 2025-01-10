@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6051828/2025/01/10/andy-cowell-aston-martin-team-pr
 `His head coach and offensive coordinator were fired during the season, but Williams grew as his rookie season went on. `\
 https://nytimes.com/athletic/6050364/2025/01/10/bears-caleb-williams-development/
 
-**The Fed Is in no Rush to Cut Rates, Even if There Is a Weak Jobs Report**\
+**The Fed Is in No Rush to Cut Rates, Even if There Is a Weak Jobs Report**\
 `Fed officials have signaled that it will take more than one weak report to convince them that the labor market is deteriorating.`\
 https://nytimes.com/2025/01/10/business/fed-rates-jobs.html
 

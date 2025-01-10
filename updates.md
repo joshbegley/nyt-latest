@@ -1,3 +1,7 @@
+**The Fed Is in No Rush to Cut Rates, Even if There Is a Weak Jobs Report**\
+`Fed officials have signaled that it will take more than one weak report to convince them that the labor market is deteriorating.`\
+https://nytimes.com/2025/01/10/business/fed-rates-jobs.html
+
 **Retailers may be taking a more staggered approach to holiday hiring.**\
 `By Jordyn Holman`\
 https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/retailers-may-be-taking-a-more-staggered-approach-to-holiday-hiring
