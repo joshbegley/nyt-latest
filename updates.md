@@ -1,3 +1,7 @@
+**The blazes also raise worries for Southern California wildlife.**\
+`By Catrin Einhorn`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/california-wildfires-wildlife
+
 **L.A. Wildfires Lay Bare an Insurance Crisis**\
 `Even before the latest blazes, California officials warned that an emergency state insurance fund was in trouble, while private insurers dropped coverage.`\
 https://nytimes.com/2025/01/10/business/dealbook/la-wildfires-insurance-crisis.html
