@@ -1,3 +1,7 @@
+**A Judge Cements the Stain on Trump’s Reputation**\
+`He can appeal his conviction, but it’s no longer clear that he’ll get very far.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-trial
+
 **MLB indefinitely bans Yankees fans who interfered during World Series**\
 `The pair were immediately ejected during Game 4 of the World Series and banned from attending Game 5. `\
 https://nytimes.com/athletic/6052984/2025/01/10/mlb-bans-yankees-fans-world-series-interference/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/border-immigration-drop-biden.html
 **4 Takeaways From the Arguments Before the Supreme Court in the TikTok Case**\
 `The justices, who asked tough questions of both sides, showed skepticism toward arguments by lawyers for TikTok and its users.`\
 https://nytimes.com/2025/01/10/us/politics/takeaways-tiktok-supreme-court.html
-
-**In North Carolina, Republicans Try to Reverse a Supreme Court Election Loss**\
-`An incumbent Democrat narrowly won re-election to the state’s highest court. But the Republican-controlled court is considering an unusual protest from her challenger that could flip the result.`\
-https://nytimes.com/2025/01/10/us/north-carolina-supreme-court.html
 

@@ -1,3 +1,7 @@
+**A Judge Cements the Stain on Trump’s Reputation**\
+`He can appeal his conviction, but it’s no longer clear that he’ll get very far.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-trial
+
 **MLB indefinitely bans Yankees fans who interfered during World Series**\
 `The pair were immediately ejected during Game 4 of the World Series and banned from attending Game 5. `\
 https://nytimes.com/athletic/6052984/2025/01/10/mlb-bans-yankees-fans-world-series-interference/
