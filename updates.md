@@ -1,3 +1,11 @@
+**Senators sign forward Ridly Greig to 4-year contract extension**\
+`Greig was in the final year of his entry-level contract and would have been a restricted free agent at season's end.`\
+https://nytimes.com/athletic/6052516/2025/01/10/greig-senators-contract-extension/
+
+**Map: 3.7-Magnitude Earthquake Strikes Near San Francisco**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/10/weather/quake-tracker-san-francisco.html
+
 **In an unusual request, Trump asked the court to pause the law banning TikTok.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/in-an-unusual-request-trump-asked-the-court-to-pause-the-law-banning-tiktok
