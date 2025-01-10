@@ -1,3 +1,11 @@
+**NASCAR's rule change to guarantee spots for celebrity drivers goes too far**\
+`A new NASCAR rule grants an automatic starting sport to world-famous drivers who want to cross over. It's a step too far.`\
+https://nytimes.com/athletic/6049313/2025/01/10/nascar-rule-change-celebrity-drivers-daytona-500/
+
+**Cleveland Browns assistant WR coach Brownson joining USA Football**\
+`Brownson will be a critical part of the staff responsible for selecting, training and leading the U.S. Men’s and Women’s National Teams`\
+https://nytimes.com/athletic/6052693/2025/01/10/callie-brownson-usa-football-cleveland-browns/
+
 **Man Utd Women set to sign Southampton goalkeeper Rendell**\
 `Manchester United are expected to complete the signing of goalkeeper Kayla Rendell from Southampton.`\
 https://nytimes.com/athletic/6053199/2025/01/10/kayla-rendell-manchester-united-transfer/
