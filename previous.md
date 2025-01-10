@@ -1,3 +1,7 @@
+**When Disaster Hits, Trump Is the Blamer in Chief**\
+`As Los Angeles burned, the president-elect seemed to spy a political opportunity.`\
+https://nytimes.com/2025/01/10/us/politics/trump-wildfires-los-angeles.html
+
 **The Memories That Burn, Too**\
 `Shawn Hubler, who covers California from Sacramento, details the personal, psychological toll of the wildfires.`\
 https://nytimes.com/2025/01/10/us/southern-california-fires-memories.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6053357/2025/01/10/pelicans-zion-williamson-suspend
 **James Arthur Ray, Self-Help Guide Whose Retreat Became Deadly, Dies at 67**\
 `A rising star among New Age motivational speakers, he was brought down by a disaster during one of his retreats in Arizona, where three people died in a sweat lodge.`\
 https://nytimes.com/2025/01/10/us/james-arthur-ray-dead.html
-
-**The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
-`Kane and Bedard's careers started off in a remarkably similar way, but there is one big difference that makes them seem worlds apart.
-`\
-https://nytimes.com/athletic/6053286/2025/01/10/blackhawks-red-wings-connor-bedard-patrick-kane/
 

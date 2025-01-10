@@ -1,3 +1,7 @@
+**When Disaster Hits, Trump Is the Blamer in Chief**\
+`As Los Angeles burned, the president-elect seemed to spy a political opportunity.`\
+https://nytimes.com/2025/01/10/us/politics/trump-wildfires-los-angeles.html
+
 **The start of Connor Bedard's career is remarkably similar to Patrick Kane's — with one big caveat**\
 `Kane and Bedard's careers started off in a remarkably similar way, but there is one big difference that makes them seem worlds apart.
 `\
