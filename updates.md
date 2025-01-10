@@ -1,3 +1,15 @@
+**Browns' Watson retears Achilles, putting 2025 in question: Source**\
+`On Monday, Browns general manager Andrew Berry said Watson suffered a "setback" in his recovery from the initial surgery.`\
+https://nytimes.com/athletic/6052717/2025/01/10/deshaun-watson-achilles-rupture-browns-surgery/
+
+**Texas vs. Ohio State, picks, odds for CFP semifinal: Buckeyes clearly favored**\
+`Ohio State takes on Texas in the Cotton Bowl, which serves as a semifinal in the College Football Playoff. The Buckeyes are favored.`\
+https://nytimes.com/athletic/6032404/2025/01/10/texas-ohio-state-picks-odds-college-football-playoff-cotton-bowl/
+
+**Who are the creators suing over a possible TikTok ban?**\
+`The plaintiffs include a Texas rancher and a hip-hop artist who say banning the app violates their First Amendment rights. TikTok is paying their legal bills.`\
+https://nytimes.com/2025/01/10/us/politics/tiktok-creators-lawsuit-us-ban.html
+
 **Britain’s First Drug Consumption Center Is Set to Open in Glasgow**\
 `Scotland, which has the highest rate of recorded drugs deaths in Europe, is launching a new facility for users to inject illegal drugs under medical supervision.`\
 https://nytimes.com/2025/01/10/world/europe/drug-consumption-room-glasgow-uk.html

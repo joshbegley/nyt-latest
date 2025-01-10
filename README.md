@@ -1,3 +1,7 @@
+**Scoop City: Your 5-minute wild-card preview**\
+`A quick preview of every matchup in the NFL's wild card round, newsletter-style`\
+https://nytimes.com/athletic/6052691/2025/01/10/nfl-wild-card-preview-quick-scoop-city/
+
 **Browns' Watson retears Achilles, putting 2025 in question: Source**\
 `On Monday, Browns general manager Andrew Berry said Watson suffered a "setback" in his recovery from the initial surgery.`\
 https://nytimes.com/athletic/6052717/2025/01/10/deshaun-watson-achilles-rupture-browns-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/arts/dance/review-monica-bill-barnes-many-happy-r
 **Hickey signs Brentford contract extension until 2028**\
 `Aaron Hickey has signed a contract extension with Brentford until 2028.`\
 https://nytimes.com/athletic/6052607/2025/01/10/aaron-hickey-brentford-contract/
-
-**A Major Challenge for Trump’s Agenda: A Mercurial Coach Calling the Plays**\
-`The president-elect has admonished Republicans to stay united around his ambitious domestic policy plans. But his track record with Congress is one of abrupt turnabouts and last-minute blowups.`\
-https://nytimes.com/2025/01/10/us/politics/trump-agenda-republicans.html
 
