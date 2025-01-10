@@ -1,3 +1,15 @@
+**TikTok, caught flat-footed by the law, leaned in to Republicans in the last year.**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-caught-flat-footed-by-the-law-leaned-in-to-republicans-in-the-last-year
+
+**Ringo Starr Goes Country, and 13 More New Songs**\
+`Hear tracks by Japanese Breakfast, Lambrini Girls, SZA and others.`\
+https://nytimes.com/2025/01/10/arts/music/playlist-ringo-starr-bad-bunny-sza.html
+
+**Eagles' Jalen Hurts clears concussion protocol, will play vs. Packers**\
+`Philadelphia's offensive EPA per play drops significantly from when Hurts is on the field (0.10) versus when he is not (0.03), per TruMedia.`\
+https://nytimes.com/athletic/6052801/2025/01/10/jalen-hurts-cleared-concussion-eagles-nfl-wildcard/
+
 **The report may signal renewed vigor after months of caution.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/the-report-may-signal-renewed-vigor-after-months-of-caution
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/10/world/europe/mauro-morandi-dead.html
 **2025 Australian Open odds: Jannik Sinner, Aryna Sabalenka enter as favorites**\
 `The two defending champions, Jannik Sinner and Aryna Sabalenka, enter the 2025 Australian Open as favorites to win in Melbourne again.`\
 https://nytimes.com/athletic/6052655/2025/01/10/2025-australian-open-odds-jannik-sinner-aryna-sabalenka/
-
-**Leicester owners file £2.15billion claim against helicopter manufacturer over fatal crash**\
-`The family of former Leicester City chairman Vichai Srivaddhanaprabha, who died in a helicopter crash outside the club&#8217;s King Power Stadium, has filed a £2.`\
-https://nytimes.com/athletic/6052042/2025/01/10/vichai-srivaddhanaprabha-claim-helicopter-crash/
-
-**L.A. Fires Show Limits of America’s Efforts to Cope With Climate Change**\
-`California has focused on fortifying communities against wildfires. But with growing threats, that may not be enough.`\
-https://nytimes.com/2025/01/10/climate/california-fires-climate-change.html
-
-**How has the Supreme Court ruled when national security and free speech clash?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/how-has-the-supreme-court-ruled-when-national-security-and-free-speech-clash
 

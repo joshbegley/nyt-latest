@@ -1,3 +1,15 @@
+**The report may signal renewed vigor after months of caution.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/the-report-may-signal-renewed-vigor-after-months-of-caution
+
+**Hurricanes midseason marks: A grade (and analysis) for every player after 41 games**\
+`In this up-and-down half season, who gets the highest marks for the Hurricanes?`\
+https://nytimes.com/athletic/6048907/2025/01/10/hurricanes-grades-players-season/
+
+**Jets interviewing Maryland's Locksley for head-coaching vacancy**\
+`Locksley has been Maryland's coach since 2019, but has no NFL coaching experience.`\
+https://nytimes.com/athletic/6052795/2025/01/10/jets-head-coach-search-interviews-mike-locksley/
+
 **History of relocated NFL games: From wildfires to blizzards to an owner angry at local fans**\
 `For the second time in NFL history, and for the first time since the FDR administration, a playoff game has been relocated to a new city.`\
 https://nytimes.com/athletic/6052197/2025/01/10/nfl-relocated-games-history-wildfire/
