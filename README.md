@@ -1,3 +1,15 @@
+**Sunderland complete Le Fee signing from Roma**\
+`Sunderland have completed the loan signing of midfielder Enzo Le Fee from Roma.`\
+https://nytimes.com/athletic/6053358/2025/01/10/enzo-le-fee-sunderland-transfer/
+
+**'I just wish they knew the truth': Cutter Gauthier prepares for boos from Flyers fans**\
+`"I think it’s time for them and for me to move on," Gauthier, the former Flyers prospect, said before his first game in Philadelphia`\
+https://nytimes.com/athletic/6053292/2025/01/10/cutter-gauthier-flyers-philadelphia-reaction/
+
+**Inter Miami expand preseason tour to five games across Americas**\
+`Five games in four countries is the preseason plan for Messi and company`\
+https://nytimes.com/athletic/6053340/2025/01/10/inter-miami-messi-tour/
+
 **L.A. Utilities’ Decisions to Keep Power on Are Scrutinized**\
 `Energy experts said that the decision by utility companies serving the Los Angeles area not to turn off many power lines during high winds likely increased the risk of fires.`\
 https://nytimes.com/2025/01/10/us/california-fires-la-power.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6050807/2025/01/10/paolo-banchero-magic-returns-inj
 **What Are the Alternatives to TikTok?**\
 `ByteDance has pushed Lemon8 as a ban on TikTok looms, but it could be subject to the same law.`\
 https://nytimes.com/2025/01/10/style/tiktok-ban-alternatives.html
-
-**NASCAR's rule change to guarantee spots for celebrity drivers goes too far**\
-`A new NASCAR rule grants an automatic starting sport to world-famous drivers who want to cross over. It's a step too far.`\
-https://nytimes.com/athletic/6049313/2025/01/10/nascar-rule-change-celebrity-drivers-daytona-500/
-
-**Cleveland Browns assistant WR coach Brownson joining USA Football**\
-`Brownson will be a critical part of the staff responsible for selecting, training and leading the U.S. Men’s and Women’s National Teams`\
-https://nytimes.com/athletic/6052693/2025/01/10/callie-brownson-usa-football-cleveland-browns/
-
-**WADA appeal in Sinner's doping case will be heard in April**\
-`The world No. 1 could be banned from tennis for up to two years if CAS upholds WADA's appeal.`\
-https://nytimes.com/athletic/6053172/2025/01/10/jannik-sinner-doping-appeal-date-wada/
 
