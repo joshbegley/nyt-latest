@@ -2,7 +2,7 @@
 `But the court left in place an injunction that bars the Justice Department from disclosing the report for another three days.`\
 https://nytimes.com/2025/01/09/us/politics/trump-appeals-court-special-counsel-report.html
 
-**Rams cut work day short due to new fire; game moved**\
+**Rams cut workday short due to new fire; game moved**\
 `The Rams' players and staff left the practice facility early Thursday to get to their homes and coordinate with family members.`\
 https://nytimes.com/athletic/6050928/2025/01/09/rams-practice-fires-playoff-game-moved/
 
