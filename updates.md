@@ -1,3 +1,15 @@
+**Former Georgia QB Carson Beck commits to Miami**\
+`At Miami, he’ll replace Heisman Trophy finalist Cam Ward, who led the No. 1 scoring offense last season.`\
+https://nytimes.com/athletic/6052860/2025/01/10/carson-beck-transfer-miami-georgia/
+
+**Does America Need More Meritocracy?**\
+`Debating Vivek Ramaswamy’s pressure-cooker vision.`\
+https://nytimes.com/2025/01/10/opinion/ramaswamy-meritocracy.html
+
+**NBA trends I'm watching: Grizzlies' renovated offense, Bulls 3-point prowess**\
+`Plus: It's time to pay one Orlando Magic big man, but not in the way you're thinking.`\
+https://nytimes.com/athletic/6052441/2025/01/10/nba-trends-grizzlies-offense-bulls-shooting/
+
 **TikTok, caught flat-footed by the law, leaned in to Republicans in the last year.**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-caught-flat-footed-by-the-law-leaned-in-to-republicans-in-the-last-year

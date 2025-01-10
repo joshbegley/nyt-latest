@@ -1,3 +1,15 @@
+**Former Georgia QB Carson Beck commits to Miami**\
+`At Miami, he’ll replace Heisman Trophy finalist Cam Ward, who led the No. 1 scoring offense last season.`\
+https://nytimes.com/athletic/6052860/2025/01/10/carson-beck-transfer-miami-georgia/
+
+**Does America Need More Meritocracy?**\
+`Debating Vivek Ramaswamy’s pressure-cooker vision.`\
+https://nytimes.com/2025/01/10/opinion/ramaswamy-meritocracy.html
+
+**NBA trends I'm watching: Grizzlies' renovated offense, Bulls 3-point prowess**\
+`Plus: It's time to pay one Orlando Magic big man, but not in the way you're thinking.`\
+https://nytimes.com/athletic/6052441/2025/01/10/nba-trends-grizzlies-offense-bulls-shooting/
+
 **TikTok, caught flat-footed by the law, leaned in to Republicans in the last year.**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/10/us/tiktok-ban-supreme-court/tiktok-caught-flat-footed-by-the-law-leaned-in-to-republicans-in-the-last-year
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6052795/2025/01/10/jets-head-coach-search-interview
 **History of relocated NFL games: From wildfires to blizzards to an owner angry at local fans**\
 `For the second time in NFL history, and for the first time since the FDR administration, a playoff game has been relocated to a new city.`\
 https://nytimes.com/athletic/6052197/2025/01/10/nfl-relocated-games-history-wildfire/
-
-**If a Sale of TikTok Is Required, Who Could Afford It?**\
-`Selling the app could be difficult, given its scale and nine-figure price.`\
-https://nytimes.com/2025/01/10/us/politics/tiktok-buyer-bid-frank-mccourt.html
-
-**Mauro Morandi, Italy’s Robinson Crusoe, Dies at 85**\
-`He was the sole resident of Budelli, an undeveloped sliver of paradise off the northern coast of Sardinia. He embraced the solitude, until he was evicted.`\
-https://nytimes.com/2025/01/10/world/europe/mauro-morandi-dead.html
-
-**2025 Australian Open odds: Jannik Sinner, Aryna Sabalenka enter as favorites**\
-`The two defending champions, Jannik Sinner and Aryna Sabalenka, enter the 2025 Australian Open as favorites to win in Melbourne again.`\
-https://nytimes.com/athletic/6052655/2025/01/10/2025-australian-open-odds-jannik-sinner-aryna-sabalenka/
 

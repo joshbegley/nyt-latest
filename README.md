@@ -1,3 +1,7 @@
+**See Los Angeles on Fire From Above**\
+`Text by Loren Elliott and Emily Baumgaertner`\
+https://nytimes.com/card/2025/01/10/us/california-fire-aerial-photos
+
 **Former Georgia QB Carson Beck commits to Miami**\
 `At Miami, he’ll replace Heisman Trophy finalist Cam Ward, who led the No. 1 scoring offense last season.`\
 https://nytimes.com/athletic/6052860/2025/01/10/carson-beck-transfer-miami-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048907/2025/01/10/hurricanes-grades-players-season
 **Jets interviewing Maryland's Locksley for head-coaching vacancy**\
 `Locksley has been Maryland's coach since 2019, but has no NFL coaching experience.`\
 https://nytimes.com/athletic/6052795/2025/01/10/jets-head-coach-search-interviews-mike-locksley/
-
-**History of relocated NFL games: From wildfires to blizzards to an owner angry at local fans**\
-`For the second time in NFL history, and for the first time since the FDR administration, a playoff game has been relocated to a new city.`\
-https://nytimes.com/athletic/6052197/2025/01/10/nfl-relocated-games-history-wildfire/
 
