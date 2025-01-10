@@ -1,3 +1,11 @@
+**Vic's Picks, wild-card round: Commanders to the Super Bowl? 'We like crazy'**\
+`A wild-card team hasn't made the Super Bowl since Tom Brady's Buccaneers in the 2020 season but don't count Jayden Daniels out.`\
+https://nytimes.com/athletic/6044654/2025/01/10/nfl-wild-card-playoffs-picks-predictions-betting/
+
+**Does Commanders LB Bobby Wagner remember which foes he tackled most?**\
+`The 13-year veteran has 1,838 combined tackles in his career, which is fourth all time behind Ray Lewis, London Fletcher and Junior Seau.`\
+https://nytimes.com/athletic/6049882/2025/01/10/commanders-bobby-wagner-tackles/
+
 **Jobs report is a ‘wild card’ in a shaky week for markets.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/jobs-report-is-a-wild-card-in-a-shaky-week-for-markets
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy
 **DGB Mailbag: Ovechkin's record-breaker, the Jack Adams curse and 4 Nations fights**\
 `This edition covers questions on 4 Nations bad blood, how Ovechkin will break the record, the lottery rules and the Maple Leafs.`\
 https://nytimes.com/athletic/6049924/2025/01/10/nhl-mailbag-ovechkin-jack-adams-4-nations/
-
-**NFL playoffs: Key matchups to watch in each NFC wild-card game**\
-`Terry McLaurin and DeVonta Smith could see plenty of opportunities, and the Vikings need to be ready for Jared Verse.`\
-https://nytimes.com/athletic/6049108/2025/01/10/nfl-nfc-playoffs-super-wild-card-2025/
-
-**Packers-Eagles preview: Jordan Love's arm, slowing Saquon Barkley, finding explosives**\
-`Green Bay looks to pull off an upset in the wild-card round as the No. 7 seed for the second consecutive year Sunday in Philadelphia.`\
-https://nytimes.com/athletic/6050791/2025/01/10/packers-eagles-playoffs-jordan-love/
 

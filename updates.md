@@ -1,3 +1,11 @@
+**Vic's Picks, wild-card round: Commanders to the Super Bowl? 'We like crazy'**\
+`A wild-card team hasn't made the Super Bowl since Tom Brady's Buccaneers in the 2020 season but don't count Jayden Daniels out.`\
+https://nytimes.com/athletic/6044654/2025/01/10/nfl-wild-card-playoffs-picks-predictions-betting/
+
+**Does Commanders LB Bobby Wagner remember which foes he tackled most?**\
+`The 13-year veteran has 1,838 combined tackles in his career, which is fourth all time behind Ray Lewis, London Fletcher and Junior Seau.`\
+https://nytimes.com/athletic/6049882/2025/01/10/commanders-bobby-wagner-tackles/
+
 **Jobs report is a ‘wild card’ in a shaky week for markets.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2025/01/10/business/jobs-report-december-economy/jobs-report-is-a-wild-card-in-a-shaky-week-for-markets
