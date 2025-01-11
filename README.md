@@ -1,5 +1,5 @@
 **Red Wings are reaping the rewards of a vintage Patrick Kane emergence**\
-`With a three-point effort Friday, Kane now has 11 points during the Red Wings' current six-game winning streak.`\
+`With a 3-point effort Friday against his old team, Kane has 11 points during the Red Wings' six-game winning streak.`\
 https://nytimes.com/athletic/6053732/2025/01/10/red-wings-blackhawks-patrick-kane/
 
 **Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\

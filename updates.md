@@ -1,3 +1,11 @@
+**Red Wings are reaping the rewards of a vintage Patrick Kane emergence**\
+`With a three-point effort Friday, Kane now has 11 points during the Red Wings' current six-game winning streak.`\
+https://nytimes.com/athletic/6053732/2025/01/10/red-wings-blackhawks-patrick-kane/
+
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/10/notre-dame-ohio-state-picks-odds-national-championship-game/
+
 **College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2025/01/10/college-football-playoff-projections-odds/
