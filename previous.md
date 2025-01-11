@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6051149/2025/01/11/blues-prospect-otto-stenberg-wor
 
 **Some homeowners were defying evacuation orders in Mandeville Canyon.**\
 `When evacuation came orders came to Mandeville Canyon, not everyone left.`\
-https://nytimes.com/2025/01/11/us/mandeville-canyon-fire-evacuation.html
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/mandeville-canyon-fire-evacuation
 
 **After doomed drive, Quinn Ewers' fumble, Texas comes up short of title game once again**\
 `Texas went from first-and-goal at the 1 and a chance to tie the score to seeing Ohio State secure the win and move on to the title game.`\

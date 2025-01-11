@@ -1,5 +1,9 @@
 **Some homeowners were defying evacuation orders in Mandeville Canyon.**\
 `When evacuation came orders came to Mandeville Canyon, not everyone left.`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/mandeville-canyon-fire-evacuation
+
+**Some homeowners were defying evacuation orders in Mandeville Canyon.**\
+`When evacuation came orders came to Mandeville Canyon, not everyone left.`\
 https://nytimes.com/2025/01/11/us/mandeville-canyon-fire-evacuation.html
 
 **Russell Westbrook showing himself to be a steal for Nuggets, a complement to Jokić**\
