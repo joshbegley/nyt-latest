@@ -1,3 +1,7 @@
+**Ben Stiller Knows How ‘Severance’ Ends**\
+`The actor-director discusses the long-awaited return of the hit series, the comedies that made him a star and growing up with his famous parents.`\
+https://nytimes.com/2025/01/11/magazine/ben-stiller-interview.html
+
 **Jeju Air Flight Recorder Stopped Working 4 Minutes Before Plane Crash**\
 `The missing data deepens the puzzle of what caused the deadly air disaster in Muan, South Korea, late last month.`\
 https://nytimes.com/2025/01/11/world/asia/jeju-air-crash-black-box.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/arts/television/los-angeles-is-starring-in-an-all
 **What Will Congestion Pricing Do to Manhattan Dining?**\
 `Days into the new charges, some restaurant owners say suppliers are raising prices. Others are giving customer discounts, and many fear the fallout for workers.`\
 https://nytimes.com/2025/01/11/dining/congestion-pricing-restaurants.html
-
-**L.A. Was Prepared for Serious Fires. But It Wasn’t Ready for Four.**\
-`“There were too many houses to protect, and not enough engines,” one fire captain in Los Angeles said. Though fire officials say they were well-prepared and simply overwhelmed by the elements, questions are being raised about whether the intensity of modern fires requires a new playbook.`\
-https://nytimes.com/2025/01/11/us/los-angeles-calfire-firefighters.html
 

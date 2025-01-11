@@ -1,3 +1,7 @@
+**Ben Stiller Knows How ‘Severance’ Ends**\
+`The actor-director discusses the long-awaited return of the hit series, the comedies that made him a star and growing up with his famous parents.`\
+https://nytimes.com/2025/01/11/magazine/ben-stiller-interview.html
+
 **Jeju Air Flight Recorder Stopped Working 4 Minutes Before Plane Crash**\
 `The missing data deepens the puzzle of what caused the deadly air disaster in Muan, South Korea, late last month.`\
 https://nytimes.com/2025/01/11/world/asia/jeju-air-crash-black-box.html
