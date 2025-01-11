@@ -1,3 +1,7 @@
+**West Ham offer immediate promise under Graham Potter but must address a lack of bite**\
+`The loss of Niclas Fullkrug and Crysencio Summerville left the Londoners short up front with Jarrod Bowen and Michail Antonio also out`\
+https://nytimes.com/athletic/6051850/2025/01/11/potter-west-ham-attack-villa-summerville-fullkrug/
+
 **Palisades Fire Threatens Brentwood, Including the Getty Center**\
 `The authorities expanded mandatory evacuation orders to parts of the neighborhood on Friday night as the biggest blaze in the Los Angeles area grew rapidly.`\
 https://nytimes.com/2025/01/11/us/palisades-brentwood-encino-getty.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052081/2025/01/11/harrogate-leeds-united-fa-cup/
 **Business of Football: Another Leicester loophole and is Wrexham's European dream over (for now)?**\
 `The gossip from the world of football finance - including regulator rows and more EFL spending headaches`\
 https://nytimes.com/athletic/6049650/2025/01/11/leicester-psr-loophole-wrexham-europe/
-
-**Karim Benzema's rollercoaster spell in Saudi Arabia: The highs, the lows and many managers**\
-`In 2023, Benzema left Real Madrid for Al Ittihad. He is back in form after a bumpy start - but don't be surprised by more twists and turns`\
-https://nytimes.com/athletic/6051964/2025/01/11/karim-benzema-in-saudi-arabia/
 
