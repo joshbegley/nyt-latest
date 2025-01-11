@@ -1,3 +1,7 @@
+**MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
+`An educated guess at Alonso's future AAV, a hang-up for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
+https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
+
 **Sudan Military Recaptures Key City From Paramilitary Accused of Genocide**\
 `Celebrations erupted in military-controlled areas, stoking hopes the victory might be a turning point in Sudan’s ruinous civil war.`\
 https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
