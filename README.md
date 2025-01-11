@@ -1,3 +1,7 @@
+**Jack Smith, Who Led Prosecutions of Trump, Resigns**\
+`Mr. Smith, a special counsel appointed by Attorney General Merrick B. Garland, had signaled that he would step down before Donald J. Trump’s inauguration.`\
+https://nytimes.com/2025/01/11/us/politics/jack-smith-special-counsel-resigns.html
+
 **What Johni Broome's injury, win over South Carolina mean for Auburn**\
 `The Tigers' defense helped them get the win at South Carolina without Broome down the stretch.`\
 https://nytimes.com/athletic/6054457/2025/01/11/auburn-south-carolina-basketball-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054367/2025/01/11/usc-illinois-basketball-big-ten-
 **Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
 `Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
 https://nytimes.com/athletic/6053790/2025/01/11/notre-dame-ohio-state-picks-odds-national-championship-game/
-
-**Palisades Fire Could Test Getty Center’s Efforts to Protect Its Art Collection**\
-`The museum, which describes itself as the “safest places for art during a fire,” is now in a mandatory evacuation zone. A spokeswoman said it had not sustained damage.`\
-https://nytimes.com/2025/01/11/us/getty-center-museum-pacific-palisades-fire.html
 
