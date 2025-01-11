@@ -1,3 +1,7 @@
+**In San Francisco, Controversial Flags Have Had Their Ups and Downs**\
+`A collection of historic flags, some with provocative associations, was removed from the plaza outside City Hall for Mayor Daniel Lurie’s inauguration. By Friday, they were flying again.`\
+https://nytimes.com/2025/01/10/us/san-francisco-flag-alito-lurie.html
+
 **Regulators Tell Baltimore Drug Program to ‘Cease and Desist’**\
 `Maryland issued the order after an investigation by The New York Times and The Baltimore Banner traced overdoses and deaths to an addiction program offering free housing.`\
 https://nytimes.com/2025/01/10/us/baltimore-addiction-recovery-program.html
