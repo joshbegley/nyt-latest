@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2025/01/10/college-football-playoff-projections-odds/
+
 **How Ohio State outlasted Texas in CFP semi to complete post-Michigan rebound**\
 `Deep in the heart of Texas, the Buckeyes had to fight, scratch and claw through enemy territory on their way to the national title game.`\
 https://nytimes.com/athletic/6053547/2025/01/10/ohio-state-texas-cotton-bowl-cfp/
