@@ -1,3 +1,27 @@
+**New York to Cut 10,000 Migrant Beds but Open New Shelter in the Bronx**\
+`The Hall Street shelter in Brooklyn, which drew numerous complaints, is among several that will soon close in New York.`\
+https://nytimes.com/2025/01/11/nyregion/migrant-shelters-nyc.html
+
+**New Yorkers Have Little Data but Big Feelings About Congestion Pricing**\
+`Manhattan commuters are already marveling at what appears to be less traffic — and grousing about the new $9 tolls.`\
+https://nytimes.com/2025/01/11/nyregion/new-york-congestion-pricing-reaction.html
+
+**How a Driving Instructor to the Stars Spends Her Sundays**\
+`Shanti Gooljar grabs some coffee before eight hours of heart-racing driving lessons around New York City. She caps off her day by having dinner with her son.`\
+https://nytimes.com/2025/01/11/nyregion/shanti-gooljar-driving-school.html
+
+**How Maddrey Became the N.Y.P.D.’s Top Officer Despite Years of Scandal**\
+`Jeffrey Maddrey, the former chief of department, built ties when he walked beats in Brooklyn. That seemed to insulate him as lawsuits and serious accusations against him piled up.`\
+https://nytimes.com/2025/01/11/nyregion/jeffrey-maddrey-nypd-scandals.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/11/crosswords/spelling-bee-forum.html
+
+**Dry Vegetation Fuels L.A. Fires as Wind Speeds Drop**\
+`The largest of the blazes expanded east on Friday, even as wind speeds, which fueled the initial blaze, fell to normal levels.`\
+https://nytimes.com/2025/01/11/us/mandeville-brentwood-fires-vegetation-winds.html
+
 **Aston Villa's blistering winner against West Ham was a reward for taking risks**\
 `Unai Emery's side had to be bolder after the break against West Ham, with the decisive goal indicative of their more urgent approach`\
 https://nytimes.com/athletic/6053333/2025/01/11/aston-villa-emery-rogers-west-ham-risk/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/11/us/palisades-brentwood-encino-getty.html
 **Hall of Fame coach Bill McCartney, who led Colorado to national title, dies at 84**\
 `McCartney went 93-55-5 in 13 seasons with the Buffs, by far the winningest coach in program history.`\
 https://nytimes.com/athletic/6053867/2025/01/11/bill-mccartney-death-colorado-football/
-
-**Picking Arsenal's XI to face Manchester United: Jesus and Havertz up front?**\
-`Sunday's third-round FA Cup tie against United feels more important after Tuesday's defeat by Newcastle. But who should Mikel Arteta pick?`\
-https://nytimes.com/athletic/6052202/2025/01/11/arsenal-manchester-united-fa-cup-havertz/
-
-**Chelsea's knack for letting in late goals is starting to hurt them - they need to fix it**\
-`No team has conceded more goals in the last 15 minutes of the last nine Premier League games than Chelsea`\
-https://nytimes.com/athletic/6049027/2025/01/11/chelseas-knack-for-letting-in-late-goals-is-starting-to-hurt-them-they-need-to-fix-it/
-
-**The return of Ryan Giggs**\
-`The Manchester United winger is back in the dugout at Manchester City in the FA Cup with Salford — but not everyone will be happy about it`\
-https://nytimes.com/athletic/6051799/2025/01/11/ryan-giggs-manchester-united-salford-return/
-
-**Inside Olmo's Barca drama: A warning not to sign him, his exit clause and a registration solution - for now**\
-`The Athletic takes you behind the scenes with a full timeline of the Dani Olmo saga — from before the club signed him to now...`\
-https://nytimes.com/athletic/6052264/2025/01/11/dani-olmo-barcelona-registration-la-liga/
-
-**Why Max Dowman, 15, can play in the FA Cup for Arsenal — but not in the Premier League**\
-`Dowman is eligible to face Man United in the FA Cup but Premier League rules mean he cannot play in England's top division this season`\
-https://nytimes.com/athletic/6052003/2025/01/11/max-dowman-play-fa-cup-15-rules-premier-league/
-
-**This is Harrogate: The footballers' town that is learning to love football**\
-`The 'posh' North Yorkshire market town is finally making its mark on the sport thanks to an FA Cup date with Leeds`\
-https://nytimes.com/athletic/6052081/2025/01/11/harrogate-leeds-united-fa-cup/
 
