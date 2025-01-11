@@ -1,3 +1,7 @@
+**NBA postpones Hawks-Rockets game due to inclement weather**\
+`A winter storm passed through the metropolitan Atlanta and northern Georgia areas on Friday, blanketing several inches of snow`\
+https://nytimes.com/athletic/6054231/2025/01/11/hawks-rockets-postponed-weather/
+
 **Giannis Antetokounmpo, Damian Lillard building trust in two-man game**\
 `As the last few moments of their game with the Magic devolved into chaos, the Bucks leaned into their two superstars to close out a win.`\
 https://nytimes.com/athletic/6054029/2025/01/11/giannis-damian-lillard-two-man-game-bucks-magic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051149/2025/01/11/blues-prospect-otto-stenberg-wor
 **Some homeowners were defying evacuation orders in Mandeville Canyon.**\
 `When evacuation came orders came to Mandeville Canyon, not everyone left.`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/mandeville-canyon-fire-evacuation
-
-**After doomed drive, Quinn Ewers' fumble, Texas comes up short of title game once again**\
-`Texas went from first-and-goal at the 1 and a chance to tie the score to seeing Ohio State secure the win and move on to the title game.`\
-https://nytimes.com/athletic/6053946/2025/01/11/texas-football-quinn-ewers-cfp-ohio-state/
 
