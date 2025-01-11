@@ -1,3 +1,8 @@
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **Sudan Military Recaptures Key City From Paramilitary Accused of Genocide**\
 `Celebrations erupted in military-controlled areas, stoking hopes the victory might be a turning point in Sudan’s ruinous civil war.`\
 https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
@@ -33,8 +38,4 @@ https://nytimes.com/video/climate/100000009921680/pop-up-donation-center-provide
 **Postecoglou says Tottenham will not terminate Werner loan**\
 `Ange Postecoglou says Tottenham Hotspur will not terminate Timo Werner’s loan early.`\
 https://nytimes.com/athletic/6053092/2025/01/11/timo-werner-tottenham-loan-terminate/
-
-**Trevor Story advocates for Nolan Arenado deal, Triston Casas discusses trade rumors**\
-`The Red Sox need another right-handed bat. They are connected with two, though adding either one would have ramifications for Casas, others.`\
-https://nytimes.com/athletic/6054672/2025/01/11/red-sox-triston-casas-nolan-arenado-trade-rumors/
 
