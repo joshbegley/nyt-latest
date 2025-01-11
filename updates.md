@@ -1,3 +1,11 @@
+**Australian Open storylines: Alcaraz's serve, Swiatek's belief and late-night tennis in Melbourne**\
+`The draw of any Grand Slam builds a narrative, but some storylines are bigger than individual matchups. Here's what to watch in Melbourne`\
+https://nytimes.com/athletic/6053930/2025/01/11/australian-open-storylines-alcaraz-swiatek-late-finish/
+
+**NFL coaches vote on best job openings: A clear No. 1 plus Jaguars, Patriots in top 3**\
+`If Mike McCarthy leaves Dallas, should that become the most desirable landing spot for a head coach? How close are the Jaguars and Patriots?`\
+https://nytimes.com/athletic/6052566/2025/01/11/nfl-head-coach-jobs-bears-cowboys-jets-saints-raiders-jaguars/
+
 **Rangers report card: Grading the defensemen and goalies at midseason, from Fox to Miller to Quick**\
 `How does the first half grade for Adam Fox? And K'Andre Miller? And Igor Shesterkin? Here's our report card at midseason.`\
 https://nytimes.com/athletic/6053063/2025/01/11/rangers-defensemen-goalie-grades/
