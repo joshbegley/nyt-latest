@@ -1,3 +1,11 @@
+**After doomed drive, Quinn Ewers' fumble, Texas comes up short of title game once again**\
+`Texas went from first-and-goal at the 1 and a chance to tie the score to seeing Ohio State secure the win and move on to the title game.`\
+https://nytimes.com/athletic/6053946/2025/01/11/texas-football-quinn-ewers-cfp-ohio-state/
+
+**Celebrities are donating clothes to people affected by the fires.**\
+`Sharon Stone and Halle Berry are among the Hollywood stars who have opened up their wardrobes.`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/celebrities-are-donating-clothes-to-people-affected-by-the-fires
+
 **Sex and Violence, but Make It Literary**\
 `Molly recommends Annie Ernaux’s photographic record of a love affair and a sociologist’s study of the moments when conflict turns violent.`\
 https://nytimes.com/2025/01/11/books/read-like-wind-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/11/opinion/five-presidents-and-a-funeral.html
 **The Terrifying Realization That an Unresponsive Patient Is ‘Still in There’**\
 `After brain injury, some patients are no longer able to respond to the world around them. Is this really the case?`\
 https://nytimes.com/2025/01/11/opinion/covert-consciousness-unresponsive-brain.html
-
-**Don’t the Lives of Women and Girls Matter?**\
-`Trump is likely to slash funding for women’s health organizations in the name of “protecting life” — but the result will be death.`\
-https://nytimes.com/2025/01/11/opinion/family-planning-women.html
-
-**Sean Payton's moment and other thoughts as Broncos prepare to seek playoff upset**\
-`The All-Pro honors given to the Broncos on Friday were an illustration of the team's best path to a landmark win in Buffalo`\
-https://nytimes.com/athletic/6052964/2025/01/11/broncos-bills-wild-card-sean-payton/
 

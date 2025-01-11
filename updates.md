@@ -1,3 +1,11 @@
+**After doomed drive, Quinn Ewers' fumble, Texas comes up short of title game once again**\
+`Texas went from first-and-goal at the 1 and a chance to tie the score to seeing Ohio State secure the win and move on to the title game.`\
+https://nytimes.com/athletic/6053946/2025/01/11/texas-football-quinn-ewers-cfp-ohio-state/
+
+**Celebrities are donating clothes to people affected by the fires.**\
+`Sharon Stone and Halle Berry are among the Hollywood stars who have opened up their wardrobes.`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/celebrities-are-donating-clothes-to-people-affected-by-the-fires
+
 **Sex and Violence, but Make It Literary**\
 `Molly recommends Annie Ernaux’s photographic record of a love affair and a sociologist’s study of the moments when conflict turns violent.`\
 https://nytimes.com/2025/01/11/books/read-like-wind-recommendations.html
