@@ -1,6 +1,6 @@
 **The Palisades fire could test the Getty Center’s efforts to protect its art collection.**\
 `By Matt Stevens`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/the-palisades-fire-could-test-the-getty-centers-efforts-to-protect-its-art-collection
+https://nytimes.com/2025/01/11/us/getty-center-museum-palisades-fire.html
 
 **Slot defends Alexander-Arnold after backlash to Man Utd performance**\
 `Liverpool head coach Arne Slot has defended Trent Alexander-Arnold and believes the reaction he received after the draw with Manchester United is the “biggest compliment” he could get.`\

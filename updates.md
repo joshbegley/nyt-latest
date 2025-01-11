@@ -1,5 +1,9 @@
 **The Palisades fire could test the Getty Center’s efforts to protect its art collection.**\
 `By Matt Stevens`\
+https://nytimes.com/2025/01/11/us/getty-center-museum-palisades-fire.html
+
+**The Palisades fire could test the Getty Center’s efforts to protect its art collection.**\
+`By Matt Stevens`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/the-palisades-fire-could-test-the-getty-centers-efforts-to-protect-its-art-collection
 
 **Slot defends Alexander-Arnold after backlash to Man Utd performance**\
