@@ -1,3 +1,7 @@
+**Far From the Fires, the Deadly Risks of Smoke Are Intensifying**\
+`Researchers see a growing health danger from the vast plumes of pollution spawned by wildfires like the ones devastating Los Angeles.`\
+https://nytimes.com/2025/01/11/climate/wildfire-smoke-risks.html
+
 **Kvaratskhelia has asked to leave Napoli - Conte**\
 `Antonio Conte says Napoli winger Khvicha Kvaratskhelia has asked to leave the club.`\
 https://nytimes.com/athletic/6049275/2025/01/11/khvicha-kvaratskhelia-napoli-transfer-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/books/read-like-wind-recommendations.html
 **Nobody is more Ohio State than Jack Sawyer. The Cotton Bowl's defining play had to be his**\
 `Sawyer's passion for the Buckeyes is unmatched, and his 83-yard fumble return touchdown to beat Texas will live forever in Ohio State lore.`\
 https://nytimes.com/athletic/6054034/2025/01/11/jack-sawyer-ohio-state-texas-playoff-cotton/
-
-**Australian Open day 1 watch guide: Aryna Sabalenka opens title defense**\
-`The first day of the Grand Slam of 2025 has the women's world No. 1 leading the field`\
-https://nytimes.com/athletic/6053565/2025/01/11/australian-open-watch-guide-2025-day-one-tv-schedule/
 

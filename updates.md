@@ -1,3 +1,7 @@
+**Far From the Fires, the Deadly Risks of Smoke Are Intensifying**\
+`Researchers see a growing health danger from the vast plumes of pollution spawned by wildfires like the ones devastating Los Angeles.`\
+https://nytimes.com/2025/01/11/climate/wildfire-smoke-risks.html
+
 **Kvaratskhelia has asked to leave Napoli - Conte**\
 `Antonio Conte says Napoli winger Khvicha Kvaratskhelia has asked to leave the club.`\
 https://nytimes.com/athletic/6049275/2025/01/11/khvicha-kvaratskhelia-napoli-transfer-latest/
