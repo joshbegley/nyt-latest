@@ -1,3 +1,11 @@
+**Slot defends Alexander-Arnold after backlash to Man Utd performance**\
+`Liverpool head coach Arne Slot has defended Trent Alexander-Arnold and believes the reaction he received after the draw with Manchester United is the “biggest compliment” he could get.`\
+https://nytimes.com/athletic/6054340/2025/01/11/slot-defends-trent-alexander-arnold/
+
+**J. Fraser Stoddart, Who Developed Microscopic Machines, Dies at 82**\
+`He grew up playing with model construction sets. As an adult, he tinkered with molecules instead, creating nanomachines and winning a Nobel Prize.`\
+https://nytimes.com/2025/01/11/science/j-fraser-stoddart-dead.html
+
 **After one of the great wins in Notre Dame history, what's next? Orange Bowl final thoughts**\
 `Eleven thoughts on Notre Dame's all-time classic win against Penn State, a month like no other and the historic title shot vs. Ohio State.`\
 https://nytimes.com/athletic/6054299/2025/01/11/notre-dame-penn-state-playoff-ohio-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6054231/2025/01/11/hawks-rockets-postponed-weather/
 **Giannis Antetokounmpo, Damian Lillard building trust in two-man game**\
 `As the last few moments of their game with the Magic devolved into chaos, the Bucks leaned into their two superstars to close out a win.`\
 https://nytimes.com/athletic/6054029/2025/01/11/giannis-damian-lillard-two-man-game-bucks-magic/
-
-**This Roasted Cauliflower Dish Is Positively Zingy**\
-`There’s no other way to accurately describe the incredibly bright nước chấm-like sauce that dresses the burnished slices.`\
-https://nytimes.com/2025/01/11/dining/roasted-cauliflower-healthy-recipes.html
-
-**Seymour P. Lachman, Who Exposed Political Cabals in Albany, Dies at 91**\
-`In “Three Men in a Room,” Mr. Lachman, an educator and former state senator, charted how power was secretly and corruptly wielded in New York State government.`\
-https://nytimes.com/2025/01/11/nyregion/seymour-p-lachman-dead.html
 
