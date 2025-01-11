@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
 https://nytimes.com/2025/01/11/crosswords/daily-puzzle-2025-01-12.html
 
 **MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
-`An educated guess at Alonso's future AAV, a hangup for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
+`An educated guess at Alonso's future AAV, a hang-up for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
 https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
 
 **Amid L.A. Evacuations, Fears of Looting Take Hold**\
