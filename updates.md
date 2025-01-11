@@ -1,3 +1,7 @@
+**This Roasted Cauliflower Dish Is Positively Zingy**\
+`There’s no other way to accurately describe the incredibly bright nước chấm-like sauce that dresses the burnished slices.`\
+https://nytimes.com/2025/01/11/dining/roasted-cauliflower-healthy-recipes.html
+
 **Seymour P. Lachman, Who Exposed Political Cabals in Albany, Dies at 91**\
 `In “Three Men in a Room,” Mr. Lachman, an educator and former state senator, charted how power was secretly and corruptly wielded in New York State government.`\
 https://nytimes.com/2025/01/11/nyregion/seymour-p-lachman-dead.html
