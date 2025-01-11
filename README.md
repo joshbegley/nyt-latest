@@ -1,3 +1,11 @@
+**Ukraine Says It Captured 2 North Korean Soldiers Fighting for Russia**\
+`President Volodymyr Zelensky said the soldiers were captured in the western Kursk region, where Ukraine has been fighting to hold on to territory it seized last summer.`\
+https://nytimes.com/2025/01/11/world/europe/ukraine-north-korea-kursk.html
+
+**Blues prospect Otto Stenberg on his way to AHL, plus Scott Wheeler's World Juniors Q&A**\
+`One of three first-round picks by the Blues in 2023, Stenberg is leaving Sweden and heading to the AHL's Springfield Thunderbirds.`\
+https://nytimes.com/athletic/6051149/2025/01/11/blues-prospect-otto-stenberg-world-juniors/
+
 **Some homeowners were defying evacuation orders in Mandeville Canyon.**\
 `When evacuation came orders came to Mandeville Canyon, not everyone left.`\
 https://nytimes.com/2025/01/11/us/some-homeowners-were-defying-evacuation-orders-in-mandeville-canyon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6053990/2025/01/11/moyes-everton-tfg-return/
 **Ubben: Ohio State has Michigan to thank for lighting fire of CFP run**\
 `Ohio State is playing like every player on the roster bottled up the feeling after losing to Michigan and is uncorking it before each play.`\
 https://nytimes.com/athletic/6053915/2025/01/11/ohio-state-michigan-cfp-national-championship/
-
-**The Best Time to Fireproof Los Angeles Was Yesterday**\
-`Can a city lose an entire neighborhood now and simply shuffle on, dragging the local memory like a ghost limb?`\
-https://nytimes.com/2025/01/11/opinion/los-angeles-wildfire-build-fireproof.html
-
-**Five Presidents and a Funeral**\
-`The pious Carter and profane Trump had some things in common.`\
-https://nytimes.com/2025/01/11/opinion/five-presidents-and-a-funeral.html
 
