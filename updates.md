@@ -1,3 +1,7 @@
+**Hall of Fame coach Bill McCartney, who led Colorado to national title, dies at 84**\
+`McCartney went 93-55-5 in 13 seasons with the Buffs, by far the winningest coach in program history.`\
+https://nytimes.com/athletic/6053867/2025/01/11/bill-mccartney-death-colorado-football/
+
 **Picking Arsenal's XI to face Manchester United: Jesus and Havertz up front?**\
 `Sunday's third-round FA Cup tie against United feels more important after Tuesday's defeat by Newcastle. But who should Mikel Arteta pick?`\
 https://nytimes.com/athletic/6052202/2025/01/11/arsenal-manchester-united-fa-cup-havertz/
