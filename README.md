@@ -1,3 +1,15 @@
+**Why Singapore’s First Family Is Locked in a Bitter Feud Over a House**\
+`A son of the country’s founding father says he has been persecuted by the government because of a feud with his older brother, who until May was prime minister.`\
+https://nytimes.com/2025/01/11/world/asia/singapore-lee-kuan-yew-house.html
+
+**CFP national championship first look: What to expect from Notre Dame vs. Ohio State**\
+`Notre Dame (14-1) and Ohio State (13-2) will meet on Jan. 20 in Atlanta to claim the first championship of the 12-team CFP.`\
+https://nytimes.com/athletic/6053807/2025/01/10/college-football-playoff-national-championship-notre-dame-ohio-state/
+
+**Quote of the Day: What Dr. Ruth Left Behind — Archiving the Stuff of a Life**\
+`Quotation of the Day for Saturday, January 11, 2025.`\
+https://nytimes.com/2025/01/10/pageoneplus/quote-of-the-day-what-dr-ruth-left-behind-archiving-the-stuff-of-a-life.html
+
 **Red Wings are reaping the rewards of a vintage Patrick Kane emergence**\
 `With a 3-point effort Friday against his old team, Kane has 11 points during the Red Wings' six-game winning streak.`\
 https://nytimes.com/athletic/6053732/2025/01/10/red-wings-blackhawks-patrick-kane/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6053713/2025/01/10/angels-skaggs-family-civil-suit-
 **Hornets-Clippers, Lakers-Spurs games postponed due to L.A. wildfires**\
 `The dates for the rescheduled games will be announced at a later date, the NBA said.`\
 https://nytimes.com/athletic/6053781/2025/01/10/hornets-clippers-lakers-spurs-games-postponed-los-angeles-wildfires/
-
-**Former Utah goalkeeper Carly Nelson alleges club allowed 'emotional and psychological abuse'**\
-`“Utah Royals FC prides itself in creating a positive and supportive experience for our players and staff," the club said in a statement.`\
-https://nytimes.com/athletic/6053660/2025/01/10/utah-royals-carly-nelson-emotional-psychological-abuse/
-
-**Could the Canucks choke their playoff spot after another alarming loss? 3 takeaways**\
-`The Canucks are at a make-or-break point of their season after a listless performance against the Hurricanes.`\
-https://nytimes.com/athletic/6053544/2025/01/10/canucks-hurricanes-nhl-playoff-standings/
-
-**Sam Moore, Half of Dynamic Soul Duo Sam & Dave, Is Dead at 89**\
-`Mr. Moore and Dave Prater stormed the R&B and pop charts with indelible hits like “Soul Man” and “Hold On, I’m Comin’.”`\
-https://nytimes.com/2025/01/10/arts/music/sam-moore-dead.html
 
