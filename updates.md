@@ -1,3 +1,7 @@
+**What Johni Broome's injury, win over South Carolina mean for Auburn**\
+`The Tigers' defense helped them get the win at South Carolina without Broome down the stretch.`\
+https://nytimes.com/athletic/6054457/2025/01/11/auburn-south-carolina-basketball-sec/
+
 **Billing joins Napoli on loan**\
 `Napoli have confirmed the signing of Danish midfielder Philip Billing from Bournemouth on a loan deal until the end of the season.`\
 https://nytimes.com/athletic/6051775/2025/01/11/philip-billing-napoli-transfer/
