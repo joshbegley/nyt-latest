@@ -1,3 +1,11 @@
+**Trevor Story advocates for Nolan Arenado deal, Triston Casas discusses trade rumors**\
+`The Red Sox need another right-handed bat. They are connected with two, though adding either one would have ramifications for Casas, others.`\
+https://nytimes.com/athletic/6054672/2025/01/11/red-sox-triston-casas-nolan-arenado-trade-rumors/
+
+**Hetherman taking over Miami's defense after one season at Minnesota**\
+`The 44-year-old, a former Division III quarterback and ex-Rutgers assistant, turned around the Golden Gophers’ defense in one season.`\
+https://nytimes.com/athletic/6054703/2025/01/11/corey-hetherman-miami-defensive-coordinator-minnesota/
+
 **After days of tension, L.A. mayor and fire chief tried to show they’re working together.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/2025/01/11/us/la-mayor-karen-bass-fire-chief.html
