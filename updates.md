@@ -1,3 +1,11 @@
+**Nobody is more Ohio State than Jack Sawyer. The Cotton Bowl's defining play had to be his**\
+`Sawyer's passion for the Buckeyes is unmatched, and his 83-yard fumble return touchdown to beat Texas will live forever in Ohio State lore.`\
+https://nytimes.com/athletic/6054034/2025/01/11/jack-sawyer-ohio-state-texas-playoff-cotton/
+
+**Ubben: Ohio State has Michigan to thank for lighting fire of CFP run**\
+`Ohio State is playing like every player on the roster bottled up the feeling after losing to Michigan and is uncorking it before each play.`\
+https://nytimes.com/athletic/6053915/2025/01/11/ohio-state-michigan-cfp-national-championship/
+
 **Australian Open day 1 watch guide: Aryna Sabalenka opens title defense**\
 `The first day of the Grand Slam of 2025 has the women's world No. 1 leading the field`\
 https://nytimes.com/athletic/6053565/2025/01/11/australian-open-watch-guide-2025-day-one-tv-schedule/
