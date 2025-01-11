@@ -1,3 +1,11 @@
+**It Was a Destination for Hat Lovers. Now It’s Ashes.**\
+`The Wellema Hat Company was one of many local Los Angeles businesses destroyed by this week’s fires. Now its founders are figuring out how to — or even if they can — start over.`\
+https://nytimes.com/2025/01/10/style/welleme-hat-company-los-angeles-wildfires.html
+
+**What Evander Kane's latest surgery means for his potential return and Oilers' deadline plans**\
+`Kane is insistent that he’ll suit up for the Oilers this season, but when that’ll happen is still anyone’s guess.`\
+https://nytimes.com/athletic/6053513/2025/01/10/evander-kane-surgery-oilers-trade/
+
 **When Disaster Hits, Trump Is the Blamer in Chief**\
 `As Los Angeles burned, the president-elect seemed to spy a political opportunity.`\
 https://nytimes.com/2025/01/10/us/politics/trump-wildfires-los-angeles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/briefing/tik-tok-supreme-court-los-angeles-fires.
 **Burning gas lines are a concern in some of the fire zones.**\
 `By Tim Balk and Mimi Dwyer`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/burning-gas-lines-are-a-concern-in-some-of-the-fire-zones
-
-**Pelicans' Zion Williamson suspended for 'violation of team policies'**\
-`"There is no excuse for being late to team activities," Williamson said on Friday.`\
-https://nytimes.com/athletic/6053357/2025/01/10/pelicans-zion-williamson-suspended-violation-team-policies/
-
-**James Arthur Ray, Self-Help Guide Whose Retreat Became Deadly, Dies at 67**\
-`A rising star among New Age motivational speakers, he was brought down by a disaster during one of his retreats in Arizona, where three people died in a sweat lodge.`\
-https://nytimes.com/2025/01/10/us/james-arthur-ray-dead.html
 
