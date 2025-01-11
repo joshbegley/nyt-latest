@@ -1,3 +1,7 @@
+**Reading Aloud**\
+`Reading alone is a deeply enjoyable activity. But being read to has its own irreplaceable allure.`\
+https://nytimes.com/2025/01/11/briefing/reading-aloud.html
+
 **Harry and Meghan Visit Survivors of Los Angeles Fires**\
 `The couple met with emergency medical workers and people who evacuated their homes in Pasadena, Calif., near the giant Eaton blaze.`\
 https://nytimes.com/2025/01/11/us/harry-meghan-pasadena-fire.html
