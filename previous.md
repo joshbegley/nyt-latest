@@ -1,3 +1,11 @@
+**Sam Moore, Half of a Dynamic Soul Duo, Is Dead at 89**\
+`Mr. Moore and Dave Prater, better known as Sam & Dave, stormed the R&B and pop charts with indelible hits like “Soul Man” and “Hold On, I’m Comin’.”`\
+https://nytimes.com/2025/01/10/arts/music/sam-moore-dead.html
+
+**One Taken for a Ride**\
+`Ryan McCarty’s tough Saturday grid spins us around.`\
+https://nytimes.com/2025/01/10/crosswords/daily-puzzle-2025-01-11.html
+
 **Gael Monfils warms up for Australian Open by setting ATP Tour record**\
 `Gael Monfils has become the oldest player to win an ATP Tour title in history, overtaking Roger Federer&#8217;s record which had stood since 2019.`\
 https://nytimes.com/athletic/6053704/2025/01/10/gael-monfils-oldest-player-win-atp-title/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6053643/2025/01/10/cubs-colin-rea-deal/
 **One Altadena resident is being the ‘eyes on the neighborhood’ that’s smoldering.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/one-altadena-resident-is-being-the-eyes-on-the-neighborhood-thats-smoldering
-
-**At Universal Studios Hollywood, a hint of normalcy returns.**\
-`By Brooks Barnes`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/universal-studios-la-wildfires
-
-**As a Felon, Trump Upends How Americans View the Presidency**\
-`President-elect Donald J. Trump has worked for years to discredit any and all criminal and civil cases against him as nothing more than politically motivated witch hunts.`\
-https://nytimes.com/2025/01/10/us/politics/trump-felon-presidency.html
 
