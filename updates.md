@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-j
 `\
 https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
 
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **Here’s where the Los Angeles fires are burning now and the efforts to curb them.**\
 `Firefighters were days into an all-out fight against the blazes bringing death and destruction to the Los Angeles region, and some progress was being made.`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/los-angeles-fires-affected-areas
