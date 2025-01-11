@@ -1,3 +1,7 @@
+**Palisades Fire Could Test Getty Center’s Efforts to Protect Its Art Collection**\
+`The museum, which describes itself as the “safest places for art during a fire,” is now in a mandatory evacuation zone. A spokeswoman said it had not sustained damage.`\
+https://nytimes.com/2025/01/11/us/getty-center-museum-pacific-palisades-fire.html
+
 **Scott Bessent, Trump’s Billionaire Treasury Pick, Will Shed Assets to Avoid Conflicts**\
 `Financial disclosure forms show hundreds of millions of assets including property in the Bahamas and investments in Bitcoin and bets against China’s currency.`\
 https://nytimes.com/2025/01/11/business/scott-bessent-treasury-divest.html
