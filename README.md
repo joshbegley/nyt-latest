@@ -1,3 +1,7 @@
+**Walker has asked to leave Man City - Guardiola**\
+`Pep Guardiola has revealed that Kyle Walker has asked to leave Manchester City in the January transfer window.`\
+https://nytimes.com/athletic/6054494/2025/01/11/kyle-walker-man-city-exit/
+
 **Charles Person, Youngest of the Original Freedom Riders, Dies at 82**\
 `In 1961, he and 12 other civil rights activists were nearly killed for trying to integrate interstate bus terminals across the South.`\
 https://nytimes.com/2025/01/11/us/charles-person-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054340/2025/01/11/slot-defends-trent-alexander-arn
 **J. Fraser Stoddart, Who Developed Microscopic Machines, Dies at 82**\
 `He grew up playing with model construction sets. As an adult, he tinkered with molecules instead, creating nanomachines and winning a Nobel Prize.`\
 https://nytimes.com/2025/01/11/science/j-fraser-stoddart-dead.html
-
-**After one of the great wins in Notre Dame history, what's next? Orange Bowl final thoughts**\
-`Eleven thoughts on Notre Dame's all-time classic win against Penn State, a month like no other and the historic title shot vs. Ohio State.`\
-https://nytimes.com/athletic/6054299/2025/01/11/notre-dame-penn-state-playoff-ohio-state/
 
