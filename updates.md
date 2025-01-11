@@ -1,3 +1,7 @@
+**Sex and Violence, but Make It Literary**\
+`Molly recommends Annie Ernaux’s photographic record of a love affair and a sociologist’s study of the moments when conflict turns violent.`\
+https://nytimes.com/2025/01/11/books/read-like-wind-recommendations.html
+
 **Nobody is more Ohio State than Jack Sawyer. The Cotton Bowl's defining play had to be his**\
 `Sawyer's passion for the Buckeyes is unmatched, and his 83-yard fumble return touchdown to beat Texas will live forever in Ohio State lore.`\
 https://nytimes.com/athletic/6054034/2025/01/11/jack-sawyer-ohio-state-texas-playoff-cotton/
