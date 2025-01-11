@@ -1,3 +1,7 @@
+**Scott Bessent, Trump’s Billionaire Treasury Pick, Will Shed Assets to Avoid Conflicts**\
+`Financial disclosure forms show hundreds of millions of assets including property in the Bahamas and investments in Bitcoin and bets against China’s currency.`\
+https://nytimes.com/2025/01/11/business/scott-bessent-treasury-divest.html
+
 **The Palisades fire could test the Getty Center’s efforts to protect its art collection.**\
 `By Matt Stevens`\
 https://nytimes.com/2025/01/11/us/getty-center-museum-palisades-fire.html

@@ -15,7 +15,7 @@ https://nytimes.com/2025/01/11/science/j-fraser-stoddart-dead.html
 https://nytimes.com/athletic/6054299/2025/01/11/notre-dame-penn-state-playoff-ohio-state/
 
 **Scott Bessent, Trump’s Billionaire Treasury Pick, Will Shed Assets to Avoid Conflicts**\
-`Financial disclosure forms show hundreds of millions of assets including property in the Bahamas and investments in Bitcoin and China’s currency.`\
+`Financial disclosure forms show hundreds of millions of assets including property in the Bahamas and investments in Bitcoin and bets against China’s currency.`\
 https://nytimes.com/2025/01/11/business/scott-bessent-treasury-divest.html
 
 **For Just Dollars a Day, Inmates Fight California’s Fires**\
