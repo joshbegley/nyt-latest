@@ -1,3 +1,11 @@
+**Red Wings are reaping the rewards of a vintage Patrick Kane emergence**\
+`With a three-point effort Friday, Kane now has 11 points during the Red Wings' current six-game winning streak.`\
+https://nytimes.com/athletic/6053732/2025/01/10/red-wings-blackhawks-patrick-kane/
+
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/10/notre-dame-ohio-state-picks-odds-national-championship-game/
+
 **College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2025/01/10/college-football-playoff-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6053544/2025/01/10/canucks-hurricanes-nhl-playoff-s
 **Sam Moore, Half of Dynamic Soul Duo Sam & Dave, Is Dead at 89**\
 `Mr. Moore and Dave Prater stormed the R&B and pop charts with indelible hits like “Soul Man” and “Hold On, I’m Comin’.”`\
 https://nytimes.com/2025/01/10/arts/music/sam-moore-dead.html
-
-**One Taken for a Ride**\
-`Ryan McCarty’s tough Saturday grid spins us around.`\
-https://nytimes.com/2025/01/10/crosswords/daily-puzzle-2025-01-11.html
-
-**Gael Monfils warms up for Australian Open by setting ATP Tour record**\
-`Gael Monfils has become the oldest player to win an ATP Tour title in history, overtaking Roger Federer&#8217;s record which had stood since 2019.`\
-https://nytimes.com/athletic/6053704/2025/01/10/gael-monfils-oldest-player-win-atp-title/
 
