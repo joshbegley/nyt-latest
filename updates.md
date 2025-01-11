@@ -1,3 +1,7 @@
+**Danilo's Forest return from injury layoff a 'beautiful' moment - Nuno**\
+`Nuno Espirito Santo heralded the &#8220;beautiful&#8221; moment that Danilo made his return from injury after seeing his Nottingham Forest side secure a comfortable 2-0 FA Cup win over Luton Town.`\
+https://nytimes.com/athletic/6054305/2025/01/11/danilo-forest-return-nuno/
+
 **Not So Fast on That Peaceful Transfer of Power**\
 `We won’t know anything for real until the next Democrat wins.`\
 https://nytimes.com/2025/01/11/opinion/columnists/january-sixth-transfer-of-power.html

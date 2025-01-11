@@ -1,3 +1,7 @@
+**Danilo's Forest return from injury layoff a 'beautiful' moment - Nuno**\
+`Nuno Espirito Santo heralded the &#8220;beautiful&#8221; moment that Danilo made his return from injury after seeing his Nottingham Forest side secure a comfortable 2-0 FA Cup win over Luton Town.`\
+https://nytimes.com/athletic/6054305/2025/01/11/danilo-forest-return-nuno/
+
 **Not So Fast on That Peaceful Transfer of Power**\
 `We won’t know anything for real until the next Democrat wins.`\
 https://nytimes.com/2025/01/11/opinion/columnists/january-sixth-transfer-of-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049275/2025/01/11/khvicha-kvaratskhelia-napoli-tra
 **Russell Westbrook showing himself to be a steal for Nuggets, a complement to Jokić**\
 `Westbrook's latest triple-double serves as a reminder that he's found a comfortable spot with a Nuggets team that runs through Nikola Jokić.`\
 https://nytimes.com/athletic/6053848/2025/01/11/westbrook-jokic-nuggets-nba-triple-double/
-
-**Ukraine Says It Captured 2 North Korean Soldiers Fighting for Russia**\
-`President Volodymyr Zelensky said the soldiers were captured in the western Kursk region, where Ukraine has been fighting to hold on to territory it seized last summer.`\
-https://nytimes.com/2025/01/11/world/europe/ukraine-north-korea-kursk.html
 
