@@ -1,3 +1,7 @@
+**Arteta gone, Nuno fired and Musk wields the axe - a Premier League Black Monday imagined**\
+`What would happen if the NFL's Black Monday came to the English top flight? Sackings galore, including the champions and FA Cup winners`\
+https://nytimes.com/athletic/6052010/2025/01/11/black-monday-premier-league-imagined/
+
 **Why Singapore’s First Family Is Locked in a Bitter Feud Over a House**\
 `A son of the country’s founding father says he has been persecuted by the government because of a feud with his older brother, who until May was prime minister.`\
 https://nytimes.com/2025/01/11/world/asia/singapore-lee-kuan-yew-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/a-fire-capta
 **Skaggs family civil suit against Angels delayed once again at hearing**\
 `The Skaggs family attorneys have accused the Angels of purposefully pushing back depositions; the trial is now scheduled for late September.`\
 https://nytimes.com/athletic/6053713/2025/01/10/angels-skaggs-family-civil-suit-delayed/
-
-**Hornets-Clippers, Lakers-Spurs games postponed due to L.A. wildfires**\
-`The dates for the rescheduled games will be announced at a later date, the NBA said.`\
-https://nytimes.com/athletic/6053781/2025/01/10/hornets-clippers-lakers-spurs-games-postponed-los-angeles-wildfires/
 
