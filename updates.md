@@ -1,3 +1,7 @@
+**At Universal Studios Hollywood, a hint of normalcy returns.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/universal-studios-la-wildfires
+
 **As a Felon, Trump Upends How Americans View the Presidency**\
 `President-elect Donald J. Trump has worked for years to discredit any and all criminal and civil cases against him as nothing more than politically motivated witch hunts.`\
 https://nytimes.com/2025/01/10/us/politics/trump-felon-presidency.html
