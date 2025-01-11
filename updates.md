@@ -1,3 +1,7 @@
+**Could the Canucks choke their playoff spot after another alarming loss? 3 takeaways**\
+`The Canucks are at a make-or-break point of their season after a listless performance against the Hurricanes.`\
+https://nytimes.com/athletic/6053544/2025/01/10/canucks-hurricanes-nhl-playoff-standings/
+
 **Sam Moore, Half of Dynamic Soul Duo Sam & Dave, Is Dead at 89**\
 `Mr. Moore and Dave Prater stormed the R&B and pop charts with indelible hits like “Soul Man” and “Hold On, I’m Comin’.”`\
 https://nytimes.com/2025/01/10/arts/music/sam-moore-dead.html
