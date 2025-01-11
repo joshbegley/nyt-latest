@@ -1,3 +1,7 @@
+**David Moyes appointed Everton manager for second spell at club**\
+`David Moyes has been appointed as Everton boss for the second time, signing a two-and-a-half year contract at the club.`\
+https://nytimes.com/athletic/6050146/2025/01/11/david-moyes-everton-manager/
+
 **New York to Cut 10,000 Migrant Beds but Open New Shelter in the Bronx**\
 `The Hall Street shelter in Brooklyn, which drew numerous complaints, is among several that will soon close in New York.`\
 https://nytimes.com/2025/01/11/nyregion/migrant-shelters-nyc.html
