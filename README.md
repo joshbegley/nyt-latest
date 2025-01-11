@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6054703/2025/01/11/corey-hetherman-miami-defensive-
 `Beck, who won’t start throwing again for a few months after having UCL surgery, was the only available QB Miami really wanted.`\
 https://nytimes.com/athletic/6054617/2025/01/11/carson-beck-miami-georgia-transfer-nil/
 
-**After days of tension, L.A. mayor and fire chief tried to show they’re working together.**\
-`By Nicholas Bogel-Burroughs`\
+**L.A. Mayor and Fire Chief Try to Show a United Front Amid Tensions**\
+`At a news conference, Mayor Karen Bass said she and the fire chief, who claimed the city had not sufficiently funded the Fire Department, were in “lock step.”`\
 https://nytimes.com/2025/01/11/us/la-mayor-karen-bass-fire-chief.html
 
 **Jack Smith, Who Led Prosecutions of Trump, Resigns**\
