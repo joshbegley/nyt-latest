@@ -1,3 +1,7 @@
+**This Roasted Cauliflower Dish Is Positively Zingy**\
+`There’s no other way to accurately describe the incredibly bright nước chấm-like sauce that dresses the burnished slices.`\
+https://nytimes.com/2025/01/11/dining/roasted-cauliflower-healthy-recipes.html
+
 **Seymour P. Lachman, Who Exposed Political Cabals in Albany, Dies at 91**\
 `In “Three Men in a Room,” Mr. Lachman, an educator and former state senator, charted how power was secretly and corruptly wielded in New York State government.`\
 https://nytimes.com/2025/01/11/nyregion/seymour-p-lachman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053946/2025/01/11/texas-football-quinn-ewers-cfp-o
 **Celebrities are donating clothes to people affected by the fires.**\
 `Sharon Stone and Halle Berry are among the Hollywood stars who have opened up their wardrobes.`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/celebrities-are-donating-clothes-to-people-affected-by-the-fires
-
-**Sex and Violence, but Make It Literary**\
-`Molly recommends Annie Ernaux’s photographic record of a love affair and a sociologist’s study of the moments when conflict turns violent.`\
-https://nytimes.com/2025/01/11/books/read-like-wind-recommendations.html
 
