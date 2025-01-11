@@ -1,3 +1,7 @@
+**Billing joins Napoli on loan**\
+`Napoli have confirmed the signing of Danish midfielder Philip Billing from Bournemouth on a loan deal until the end of the season.`\
+https://nytimes.com/athletic/6051775/2025/01/11/philip-billing-napoli-transfer/
+
 **Walker has asked to leave Man City - Guardiola**\
 `Pep Guardiola has revealed that Kyle Walker has asked to leave Manchester City, opening the door to a potential exit during the January transfer window.`\
 https://nytimes.com/athletic/6054494/2025/01/11/kyle-walker-man-city-exit/
