@@ -1,3 +1,7 @@
+**Could the Canucks choke their playoff spot after another alarming loss? 3 takeaways**\
+`The Canucks are at a make-or-break point of their season after a listless performance against the Hurricanes.`\
+https://nytimes.com/athletic/6053544/2025/01/10/canucks-hurricanes-nhl-playoff-standings/
+
 **Sam Moore, Half of Dynamic Soul Duo Sam & Dave, Is Dead at 89**\
 `Mr. Moore and Dave Prater stormed the R&B and pop charts with indelible hits like “Soul Man” and “Hold On, I’m Comin’.”`\
 https://nytimes.com/2025/01/10/arts/music/sam-moore-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/us/la-fires-gavin-newsom-water-supply.html
 **Cubs reach agreement with Colin Rea on 1-year, $5 million deal: Source**\
 `The righty pitched 292 1/3 innings over the past two seasons for the Brewers, who bought out his option for 2025. `\
 https://nytimes.com/athletic/6053643/2025/01/10/cubs-colin-rea-deal/
-
-**One Altadena resident is being the ‘eyes on the neighborhood’ that’s smoldering.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/one-altadena-resident-is-being-the-eyes-on-the-neighborhood-thats-smoldering
 
