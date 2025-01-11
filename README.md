@@ -1,3 +1,11 @@
+**Picking Arsenal's XI to face Manchester United: Jesus and Havertz up front?**\
+`Sunday's third-round FA Cup tie against United feels more important after Tuesday's defeat by Newcastle. But who should Mikel Arteta pick?`\
+https://nytimes.com/athletic/6052202/2025/01/11/arsenal-manchester-united-fa-cup-havertz/
+
+**Chelsea's knack for letting in late goals is starting to hurt them - they need to fix it**\
+`No team has conceded more goals in the last 15 minutes of the last nine Premier League games than Chelsea`\
+https://nytimes.com/athletic/6049027/2025/01/11/chelseas-knack-for-letting-in-late-goals-is-starting-to-hurt-them-they-need-to-fix-it/
+
 **The return of Ryan Giggs**\
 `The Manchester United winger is back in the dugout at Manchester City in the FA Cup with Salford — but not everyone will be happy about it`\
 https://nytimes.com/athletic/6051799/2025/01/11/ryan-giggs-manchester-united-salford-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049171/2025/01/11/premier-league-january-transfer-
 **Arteta gone, Nuno fired and Musk wields the axe - a Premier League Black Monday imagined**\
 `What would happen if the NFL's Black Monday came to the English top flight? Sackings galore, including the champions and FA Cup winners`\
 https://nytimes.com/athletic/6052010/2025/01/11/black-monday-premier-league-imagined/
-
-**Why Singapore’s First Family Is Locked in a Bitter Feud Over a House**\
-`A son of the country’s founding father says he has been persecuted by the government because of a feud with his older brother, who until May was prime minister.`\
-https://nytimes.com/2025/01/11/world/asia/singapore-lee-kuan-yew-house.html
-
-**CFP national championship first look: What to expect from Notre Dame vs. Ohio State**\
-`Notre Dame (14-1) and Ohio State (13-2) will meet on Jan. 20 in Atlanta to claim the first championship of the 12-team CFP.`\
-https://nytimes.com/athletic/6053807/2025/01/10/college-football-playoff-national-championship-notre-dame-ohio-state/
 
