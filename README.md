@@ -1,3 +1,7 @@
+**Russell Westbrook showing himself to be a steal for Nuggets, a complement to Jokić**\
+`Westbrook's latest triple-double serves as a reminder that he's found a comfortable spot with a Nuggets team that runs through Nikola Jokić.`\
+https://nytimes.com/athletic/6053848/2025/01/11/westbrook-jokic-nuggets-nba-triple-double/
+
 **Ukraine Says It Captured 2 North Korean Soldiers Fighting for Russia**\
 `President Volodymyr Zelensky said the soldiers were captured in the western Kursk region, where Ukraine has been fighting to hold on to territory it seized last summer.`\
 https://nytimes.com/2025/01/11/world/europe/ukraine-north-korea-kursk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053565/2025/01/11/australian-open-watch-guide-2025
 **David Moyes returns charged with rebuilding Everton - so what will that look like?**\
 `The Scot returns to Goodison Park to provide some stability after a period of churn, and much he instigates may well feel familiar`\
 https://nytimes.com/athletic/6053990/2025/01/11/moyes-everton-tfg-return/
-
-**Ubben: Ohio State has Michigan to thank for lighting fire of CFP run**\
-`Ohio State is playing like every player on the roster bottled up the feeling after losing to Michigan and is uncorking it before each play.`\
-https://nytimes.com/athletic/6053915/2025/01/11/ohio-state-michigan-cfp-national-championship/
 
