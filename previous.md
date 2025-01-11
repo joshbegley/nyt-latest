@@ -1,3 +1,7 @@
+**Harry and Meghan Visit Survivors of Los Angeles Fires**\
+`The couple met with emergency medical workers and people who evacuated their homes in Pasadena, Calif., near the giant Eaton blaze.`\
+https://nytimes.com/2025/01/11/us/harry-meghan-pasadena-fire.html
+
 **Australian Open storylines: Alcaraz's serve, Swiatek's belief and late-night tennis in Melbourne**\
 `The draw of any Grand Slam builds a narrative, but some storylines are bigger than individual matchups. Here's what to watch in Melbourne`\
 https://nytimes.com/athletic/6053930/2025/01/11/australian-open-storylines-alcaraz-swiatek-late-finish/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053057/2025/01/11/bruins-don-sweeney-midseason/
 **Mandels' Final Thoughts: Inaugural 12-team CFP sets up perfect finale in Notre Dame-Ohio State**\
 `Notre Dame and Ohio State can no longer be underestimated as they prepare for the Jan. 20 national championship. `\
 https://nytimes.com/athletic/6053902/2025/01/11/notre-dame-ohio-state-college-football-playoff-recap-semifinals/
-
-**How Much Would Buying Greenland Cost?**\
-`President-elect Donald Trump wants to buy the territory from Denmark, which says it’s not for sale. DealBook asked experts how they’d approach the deal.`\
-https://nytimes.com/2025/01/11/business/how-much-would-buying-greenland-cost.html
 
