@@ -1,3 +1,11 @@
+**Cooper Flagg scores 42 to break ACC freshman record vs. Notre Dame**\
+`Flagg’s 42 points not only set Duke’s new single-game freshman scoring record but also set the ACC single-game freshman scoring record`\
+https://nytimes.com/athletic/6054372/2025/01/11/cooper-flagg-duke-notre-dame-scoring-record/
+
+**Falcons fire defensive coordinator Jimmy Lake after 1 season**\
+`Lake’s future seemed tenuous when head coach Raheem Morris was critical of the defensive effort in the season-ending loss to Carolina.`\
+https://nytimes.com/athletic/6050757/2025/01/11/falcons-fire-defensive-coordinator-jimmy-lake/
+
 **In Altadena, Rodney King’s brother faces another brush with L.A. history.**\
 `By Mimi Dwyer`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/in-altadena-rodney-kings-brother-faces-another-brush-with-la-history
