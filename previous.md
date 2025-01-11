@@ -1,3 +1,15 @@
+**In Altadena, Rodney King’s brother faces another brush with L.A. history.**\
+`By Mimi Dwyer`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/in-altadena-rodney-kings-brother-faces-another-brush-with-la-history
+
+**No. 13 Illinois falls to USC at home without star freshman Jakucionis**\
+`USC came into the game at No. 95 in the NET rankings, with an 0-4 record in Quad 1 games.`\
+https://nytimes.com/athletic/6054367/2025/01/11/usc-illinois-basketball-big-ten-standings/
+
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/11/notre-dame-ohio-state-picks-odds-national-championship-game/
+
 **Palisades Fire Could Test Getty Center’s Efforts to Protect Its Art Collection**\
 `The museum, which describes itself as the “safest places for art during a fire,” is now in a mandatory evacuation zone. A spokeswoman said it had not sustained damage.`\
 https://nytimes.com/2025/01/11/us/getty-center-museum-pacific-palisades-fire.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/11/us/inmates-firefighters-wildfires-california.html
 **Danilo's Forest return from injury layoff a 'beautiful' moment - Nuno**\
 `Nuno Espirito Santo heralded the &#8220;beautiful&#8221; moment that Danilo made his return from injury after seeing his Nottingham Forest side secure a comfortable 2-0 FA Cup win over Luton Town.`\
 https://nytimes.com/athletic/6054305/2025/01/11/danilo-forest-return-nuno/
-
-**Not So Fast on That Peaceful Transfer of Power**\
-`We won’t know anything for real until the next Democrat wins.`\
-https://nytimes.com/2025/01/11/opinion/columnists/january-sixth-transfer-of-power.html
-
-**The Last House Standing**\
-`For people whose homes are spared in a wildfire while their neighbors lose everything, the road ahead can be isolating, plagued by feelings of guilt and shame.`\
-https://nytimes.com/2025/01/11/realestate/california-wildfires-homes.html
-
-**NBA postpones Hawks-Rockets game due to inclement weather**\
-`A winter storm passed through the metropolitan Atlanta and northern Georgia areas on Friday, blanketing several inches of snow`\
-https://nytimes.com/athletic/6054231/2025/01/11/hawks-rockets-postponed-weather/
 
