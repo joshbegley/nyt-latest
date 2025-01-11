@@ -1,3 +1,7 @@
+**The Last House Standing**\
+`For people whose homes are spared in a wildfire while their neighbors lose everything, the road ahead can be isolating, plagued by feelings of guilt and shame.`\
+https://nytimes.com/2025/01/11/realestate/california-wildfires-homes.html
+
 **NBA postpones Hawks-Rockets game due to inclement weather**\
 `A winter storm passed through the metropolitan Atlanta and northern Georgia areas on Friday, blanketing several inches of snow`\
 https://nytimes.com/athletic/6054231/2025/01/11/hawks-rockets-postponed-weather/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/world/europe/ukraine-north-korea-kursk.html
 **Blues prospect Otto Stenberg on his way to AHL, plus Scott Wheeler's World Juniors Q&A**\
 `One of three first-round picks by the Blues in 2023, Stenberg is leaving Sweden and heading to the AHL's Springfield Thunderbirds.`\
 https://nytimes.com/athletic/6051149/2025/01/11/blues-prospect-otto-stenberg-world-juniors/
-
-**Some homeowners were defying evacuation orders in Mandeville Canyon.**\
-`When evacuation came orders came to Mandeville Canyon, not everyone left.`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/mandeville-canyon-fire-evacuation
 

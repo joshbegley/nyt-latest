@@ -1,3 +1,7 @@
+**The Last House Standing**\
+`For people whose homes are spared in a wildfire while their neighbors lose everything, the road ahead can be isolating, plagued by feelings of guilt and shame.`\
+https://nytimes.com/2025/01/11/realestate/california-wildfires-homes.html
+
 **NBA postpones Hawks-Rockets game due to inclement weather**\
 `A winter storm passed through the metropolitan Atlanta and northern Georgia areas on Friday, blanketing several inches of snow`\
 https://nytimes.com/athletic/6054231/2025/01/11/hawks-rockets-postponed-weather/
