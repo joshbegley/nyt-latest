@@ -1,3 +1,7 @@
+**Jack Smith, Who Led Prosecutions of Trump, Resigns**\
+`Mr. Smith, a special counsel appointed by Attorney General Merrick B. Garland, had signaled that he would step down before Donald J. Trump’s inauguration.`\
+https://nytimes.com/2025/01/11/us/politics/jack-smith-special-counsel-resigns.html
+
 **What Johni Broome's injury, win over South Carolina mean for Auburn**\
 `The Tigers' defense helped them get the win at South Carolina without Broome down the stretch.`\
 https://nytimes.com/athletic/6054457/2025/01/11/auburn-south-carolina-basketball-sec/
