@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-j
 `\
 https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
 
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **Biden Awards Medal of Freedom to Pope Francis**\
 `President Biden, a Catholic, awarded the medal with distinction to the pontiff, to whom he has turned for personal guidance.`\
 https://nytimes.com/2025/01/11/us/politics/biden-medal-of-freedom-pope-francis.html
