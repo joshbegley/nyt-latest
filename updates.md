@@ -1,3 +1,7 @@
+**How Ohio State outlasted Texas in CFP semi to complete post-Michigan rebound**\
+`Deep in the heart of Texas, the Buckeyes had to fight, scratch and claw through enemy territory on their way to the national title game.`\
+https://nytimes.com/athletic/6053547/2025/01/10/ohio-state-texas-cotton-bowl-cfp/
+
 **A fire captain says the wildfires are the challenge of his career.**\
 `By Mimi Dwyer`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/a-fire-captain-says-the-wildfires-are-the-challenge-of-his-career
