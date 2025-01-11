@@ -1,3 +1,7 @@
+**Here’s where the Los Angeles fires are burning now and the efforts to curb them.**\
+`Firefighters were days into an all-out fight against the blazes bringing death and destruction to the Los Angeles region, and some progress was being made.`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/los-angeles-fires-affected-areas
+
 **The Palisades fire threatens Mandeville Canyon homes.**\
 `By Sam Stanton, Amy Graff and Isabelle Taft`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/the-palisades-fire-threatens-mandeville-canyon-homes
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6054511/2025/01/11/maple-leafs-scott-laughton-trade
 **F.B.I. Briefs Top Senators on Armed Services Panel About Hegseth**\
 `The committee’s Republican chairman and its top Democrat were briefed on F.B.I. findings into Pete Hegseth, Donald Trump’s defense secretary pick. Democrats questioned whether there were gaps.`\
 https://nytimes.com/2025/01/11/us/politics/fbi-briefing-hegseth-senators.html
-
-**Pop-Up Donation Center Provides Relief for Displaced Angelenos**\
-`A community-ran donation center that started as two hot dog carts has grown into a full-scale relief effort for residents displaced by fires.`\
-https://nytimes.com/video/climate/100000009921680/pop-up-donation-center-provides-relief-for-displaced-angelenos.html
 
