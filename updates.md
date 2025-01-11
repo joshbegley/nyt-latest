@@ -1,3 +1,7 @@
+**After one of the great wins in Notre Dame history, what's next? Orange Bowl final thoughts**\
+`Eleven thoughts on Notre Dame's all-time classic win against Penn State, a month like no other and the historic title shot vs. Ohio State.`\
+https://nytimes.com/athletic/6054299/2025/01/11/notre-dame-penn-state-playoff-ohio-state/
+
 **Scott Bessent, Trump’s Billionaire Treasury Pick, Will Shed Assets to Avoid Conflicts**\
 `Financial disclosure forms show hundreds of millions of assets including property in the Bahamas and investments in Bitcoin and China’s currency.`\
 https://nytimes.com/2025/01/11/business/scott-bessent-treasury-divest.html
