@@ -1,3 +1,7 @@
+**Gael Monfils warms up for Australian Open by setting ATP Tour record**\
+`Gael Monfils has become the oldest player to win an ATP Tour title in history, overtaking Roger Federer&#8217;s record which had stood since 2019.`\
+https://nytimes.com/athletic/6053704/2025/01/10/gael-monfils-oldest-player-win-atp-title/
+
 **In San Francisco, Controversial Flags Have Had Their Ups and Downs**\
 `A collection of historic flags, some with provocative associations, was removed from the plaza outside City Hall for Mayor Daniel Lurie’s inauguration. By Friday, they were flying again.`\
 https://nytimes.com/2025/01/10/us/san-francisco-flag-alito-lurie.html
