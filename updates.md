@@ -1,3 +1,7 @@
+**Barca's Pena dropped for Szczesny over lateness - Flick**\
+`Hansi Flick has said goalkeeper Inaki Pena was dropped for Barcelona&#8217;s Supercopa de Espana semi final victory over Athletic Club because it was the third time he was late for a team meeting.`\
+https://nytimes.com/athletic/6054037/2025/01/11/barcelona-goalkeeper-pena-szczesny-supercopa/
+
 **Reading Aloud**\
 `Reading alone is a deeply enjoyable activity. But being read to has its own irreplaceable allure.`\
 https://nytimes.com/2025/01/11/briefing/reading-aloud.html
