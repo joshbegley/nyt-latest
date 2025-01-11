@@ -1,3 +1,7 @@
+**How Aston Villa's blistering winner against West Ham was a reward for taking risks**\
+`Unai Emery's side had to be bolder after the break against West Ham, with the decisive goal indicative of their more urgent approach`\
+https://nytimes.com/athletic/6053333/2025/01/11/aston-villa-emery-rogers-west-ham-risk/
+
 **West Ham offer immediate promise under Graham Potter but must address a lack of bite**\
 `The loss of Niclas Fullkrug and Crysencio Summerville left the Londoners short up front with Jarrod Bowen and Michail Antonio also out`\
 https://nytimes.com/athletic/6051850/2025/01/11/potter-west-ham-attack-villa-summerville-fullkrug/
