@@ -1,3 +1,7 @@
+**Aston Villa's blistering winner against West Ham was a reward for taking risks**\
+`Unai Emery's side had to be bolder after the break against West Ham, with the decisive goal indicative of their more urgent approach`\
+https://nytimes.com/athletic/6053333/2025/01/11/aston-villa-emery-rogers-west-ham-risk/
+
 **How Aston Villa's blistering winner against West Ham was a reward for taking risks**\
 `Unai Emery's side had to be bolder after the break against West Ham, with the decisive goal indicative of their more urgent approach`\
 https://nytimes.com/athletic/6053333/2025/01/11/aston-villa-emery-rogers-west-ham-risk/
