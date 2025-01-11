@@ -1,3 +1,7 @@
+**One Altadena resident is being the ‘eyes on the neighborhood’ that’s smoldering.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/one-altadena-resident-is-being-the-eyes-on-the-neighborhood-thats-smoldering
+
 **At Universal Studios Hollywood, a hint of normalcy returns.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/universal-studios-la-wildfires
