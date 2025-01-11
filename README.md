@@ -1,3 +1,7 @@
+**David Moyes appointed Everton manager for second spell at club**\
+`David Moyes has been appointed as Everton boss for the second time, signing a two-and-a-half year contract at the club.`\
+https://nytimes.com/athletic/6050146/2025/01/11/david-moyes-everton-manager/
+
 **New York to Cut 10,000 Migrant Beds but Open New Shelter in the Bronx**\
 `The Hall Street shelter in Brooklyn, which drew numerous complaints, is among several that will soon close in New York.`\
 https://nytimes.com/2025/01/11/nyregion/migrant-shelters-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051850/2025/01/11/potter-west-ham-attack-villa-sum
 **Palisades Fire Threatens Brentwood, Including the Getty Center**\
 `The authorities expanded mandatory evacuation orders to parts of the neighborhood on Friday night as the biggest blaze in the Los Angeles area grew rapidly.`\
 https://nytimes.com/2025/01/11/us/palisades-brentwood-encino-getty.html
-
-**Hall of Fame coach Bill McCartney, who led Colorado to national title, dies at 84**\
-`McCartney went 93-55-5 in 13 seasons with the Buffs, by far the winningest coach in program history.`\
-https://nytimes.com/athletic/6053867/2025/01/11/bill-mccartney-death-colorado-football/
 
