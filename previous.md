@@ -1,3 +1,7 @@
+**Postecoglou says Tottenham will not terminate Werner loan**\
+`Ange Postecoglou says Tottenham Hotspur will not terminate Timo Werner’s loan early.`\
+https://nytimes.com/athletic/6053092/2025/01/11/timo-werner-tottenham-loan-terminate/
+
 **Trevor Story advocates for Nolan Arenado deal, Triston Casas discusses trade rumors**\
 `The Red Sox need another right-handed bat. They are connected with two, though adding either one would have ramifications for Casas, others.`\
 https://nytimes.com/athletic/6054672/2025/01/11/red-sox-triston-casas-nolan-arenado-trade-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054494/2025/01/11/kyle-walker-man-city-exit/
 **Charles Person, Youngest of the Original Freedom Riders, Dies at 82**\
 `In 1961, he and 12 other civil rights activists were nearly killed for trying to integrate interstate bus terminals across the South.`\
 https://nytimes.com/2025/01/11/us/charles-person-dead.html
-
-**Cooper Flagg scores 42 to break ACC freshman record vs. Notre Dame**\
-`Flagg’s 42 points not only set Duke’s new single-game freshman scoring record but also set the ACC single-game freshman scoring record`\
-https://nytimes.com/athletic/6054372/2025/01/11/cooper-flagg-duke-notre-dame-scoring-record/
 

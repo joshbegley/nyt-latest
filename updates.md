@@ -1,3 +1,7 @@
+**Postecoglou says Tottenham will not terminate Werner loan**\
+`Ange Postecoglou says Tottenham Hotspur will not terminate Timo Werner’s loan early.`\
+https://nytimes.com/athletic/6053092/2025/01/11/timo-werner-tottenham-loan-terminate/
+
 **Trevor Story advocates for Nolan Arenado deal, Triston Casas discusses trade rumors**\
 `The Red Sox need another right-handed bat. They are connected with two, though adding either one would have ramifications for Casas, others.`\
 https://nytimes.com/athletic/6054672/2025/01/11/red-sox-triston-casas-nolan-arenado-trade-rumors/
