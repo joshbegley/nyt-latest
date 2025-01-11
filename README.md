@@ -1,3 +1,11 @@
+**Regulators Tell Baltimore Drug Program to ‘Cease and Desist’**\
+`Maryland issued the order after an investigation by The New York Times and The Baltimore Banner traced overdoses and deaths to an addiction program offering free housing.`\
+https://nytimes.com/2025/01/10/us/baltimore-addiction-recovery-program.html
+
+**In one of L.A.’s richest ZIP codes, food service workers also lost their homes.**\
+`In addition to pricey mansions, the homes of working-class people were also lost, including a mobile home park on Pacific Coast Highway.`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/in-one-of-las-richest-zip-codes-food-service-workers-also-lost-their-homes
+
 **Biden Calls Meta’s Ending of Fact-Checking Program ‘Shameful’**\
 `Responding to a question from a reporter, the president said he believed Americans “want to tell the truth.”`\
 https://nytimes.com/2025/01/10/us/politics/biden-meta-fact-checking.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6053574/2025/01/10/jeff-hoffman-blue-jays-deal/
 **Columbia Professor Says She Was Pushed to Retire Because of Her Activism**\
 `Katherine Franke, a law professor and vocal advocate of pro-Palestinian students, had been under investigation over remarks she made about Israeli students.`\
 https://nytimes.com/2025/01/10/us/columbia-professor-katherine-franke-retires.html
-
-**Supreme Court to Hear New Affordable Care Act Case on Preventative Care**\
-`Lower courts ruled that a task force that determines which treatments must be covered at no cost had not been validly appointed.`\
-https://nytimes.com/2025/01/10/us/politics/supreme-court-affordable-care-act-obamacare.html
-
-**It Was a Destination for Hat Lovers. Now It’s Ashes.**\
-`The Wellema Hat Company was one of many local Los Angeles businesses destroyed by this week’s fires. Now its founders are figuring out how to — or even if they can — start over.`\
-https://nytimes.com/2025/01/10/style/welleme-hat-company-los-angeles-wildfires.html
 
