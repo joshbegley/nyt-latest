@@ -1,3 +1,11 @@
+**F.B.I. Briefs Top Senators on Armed Services Panel About Hegseth**\
+`The committee’s Republican chairman and its top Democrat were briefed on F.B.I. findings into Pete Hegseth, Donald Trump’s defense secretary pick. Democrats questioned whether there were gaps.`\
+https://nytimes.com/2025/01/11/us/politics/fbi-briefing-hegseth-senators.html
+
+**Pop-Up Donation Center Provides Relief for Displaced Angelenos**\
+`A community-ran donation center that started as two hot dog carts has grown into a full-scale relief effort for residents displaced by fires.`\
+https://nytimes.com/video/climate/100000009921680/pop-up-donation-center-provides-relief-for-displaced-angelenos.html
+
 **Postecoglou says Tottenham will not terminate Werner loan**\
 `Ange Postecoglou says Tottenham Hotspur will not terminate Timo Werner’s loan early.`\
 https://nytimes.com/athletic/6053092/2025/01/11/timo-werner-tottenham-loan-terminate/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6054457/2025/01/11/auburn-south-carolina-basketball
 **Billing joins Napoli on loan**\
 `Napoli have confirmed the signing of Danish midfielder Philip Billing from Bournemouth on a loan deal until the end of the season.`\
 https://nytimes.com/athletic/6051775/2025/01/11/philip-billing-napoli-transfer/
-
-**Walker has asked to leave Man City - Guardiola**\
-`Pep Guardiola has revealed that Kyle Walker has asked to leave Manchester City, opening the door to a potential exit during the January transfer window.`\
-https://nytimes.com/athletic/6054494/2025/01/11/kyle-walker-man-city-exit/
-
-**Charles Person, Youngest of the Original Freedom Riders, Dies at 82**\
-`In 1961, he and 12 other civil rights activists were nearly killed for trying to integrate interstate bus terminals across the South.`\
-https://nytimes.com/2025/01/11/us/charles-person-dead.html
 
