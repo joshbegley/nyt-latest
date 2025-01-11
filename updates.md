@@ -1,3 +1,7 @@
+**After days of tension, L.A. mayor and fire chief tried to show they’re working together.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/after-days-of-tension-la-mayor-and-fire-chief-tried-to-show-theyre-working-together
+
 **Jack Smith, Who Led Prosecutions of Trump, Resigns**\
 `Mr. Smith, a special counsel appointed by Attorney General Merrick B. Garland, had signaled that he would step down before Donald J. Trump’s inauguration.`\
 https://nytimes.com/2025/01/11/us/politics/jack-smith-special-counsel-resigns.html

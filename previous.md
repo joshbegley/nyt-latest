@@ -1,3 +1,7 @@
+**After days of tension, L.A. mayor and fire chief tried to show they’re working together.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/after-days-of-tension-la-mayor-and-fire-chief-tried-to-show-theyre-working-together
+
 **Jack Smith, Who Led Prosecutions of Trump, Resigns**\
 `Mr. Smith, a special counsel appointed by Attorney General Merrick B. Garland, had signaled that he would step down before Donald J. Trump’s inauguration.`\
 https://nytimes.com/2025/01/11/us/politics/jack-smith-special-counsel-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/in-altadena-
 **No. 13 Illinois falls to USC at home without star freshman Jakucionis**\
 `USC came into the game at No. 95 in the NET rankings, with an 0-4 record in Quad 1 games.`\
 https://nytimes.com/athletic/6054367/2025/01/11/usc-illinois-basketball-big-ten-standings/
-
-**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
-`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
-https://nytimes.com/athletic/6053790/2025/01/11/notre-dame-ohio-state-picks-odds-national-championship-game/
 
