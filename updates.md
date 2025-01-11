@@ -1,3 +1,8 @@
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
 `An educated guess at Alonso's future AAV, a hang-up for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
 https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
