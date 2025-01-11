@@ -1,3 +1,7 @@
+**Jeju Air Flight Recorder Stopped Working 4 Minutes Before Plane Crash**\
+`The missing data deepens the puzzle of what caused the deadly air disaster in Muan, South Korea, late last month.`\
+https://nytimes.com/2025/01/11/world/asia/jeju-air-crash-black-box.html
+
 **Madrid made 'clear assessment' of first Clasico defeat to Barcelona - Ancelotti**\
 `Carlo Ancelotti has said Real Madrid made a &#8220;clear assessment&#8221; of their first Clasico defeat of the season to Barcelona, ahead of this Sunday&#8217;s Supercopa de Espana final.`\
 https://nytimes.com/athletic/6053993/2025/01/11/real-madrid-supercopa-barcelona-ancelotti/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/dining/congestion-pricing-restaurants.html
 **L.A. Was Prepared for Serious Fires. But It Wasn’t Ready for Four.**\
 `“There were too many houses to protect, and not enough engines,” one fire captain in Los Angeles said. Though fire officials say they were well-prepared and simply overwhelmed by the elements, questions are being raised about whether the intensity of modern fires requires a new playbook.`\
 https://nytimes.com/2025/01/11/us/los-angeles-calfire-firefighters.html
-
-**Once the Fires Are Out, California Must Remove Tons of Dangerous Debris**\
-`Clearing the toxic remnants of burned buildings around Los Angeles will require a complex and expensive mobilization. California has been there before.`\
-https://nytimes.com/2025/01/11/us/california-fire-debris.html
 
