@@ -1,3 +1,7 @@
+**As a Felon, Trump Upends How Americans View the Presidency**\
+`President-elect Donald J. Trump has worked for years to discredit any and all criminal and civil cases against him as nothing more than politically motivated witch hunts.`\
+https://nytimes.com/2025/01/10/us/politics/trump-felon-presidency.html
+
 **Jeff Hoffman, Blue Jays agree to 3-year, $33 million deal**\
 `Hoffman logged a 2.28 ERA in 118 2/3 innings over the past two seasons with the Phillies. But there were some cracks in the biggest moments.`\
 https://nytimes.com/athletic/6053574/2025/01/10/jeff-hoffman-blue-jays-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053419/2025/01/10/ross-barkley-aston-villa-injury-
 **Trump Is First President to Be Sentenced as a Felon**\
 `President-elect Donald J. Trump’s New York criminal case culminated with him avoiding jail, but he is set to become the first felon to occupy the Oval Office.`\
 https://nytimes.com/video/us/100000009919484/trump-is-first-president-to-be-sentenced-as-a-felon.html
-
-**L.A. fires force USWNT to move training camps to Florida**\
-`Emma Hayes will shift her camps due to the effects of the devastating fires`\
-https://nytimes.com/athletic/6053433/2025/01/10/uswnt-fires-florida-los-angeles/
 

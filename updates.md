@@ -1,3 +1,7 @@
+**As a Felon, Trump Upends How Americans View the Presidency**\
+`President-elect Donald J. Trump has worked for years to discredit any and all criminal and civil cases against him as nothing more than politically motivated witch hunts.`\
+https://nytimes.com/2025/01/10/us/politics/trump-felon-presidency.html
+
 **Jeff Hoffman, Blue Jays agree to 3-year, $33 million deal**\
 `Hoffman logged a 2.28 ERA in 118 2/3 innings over the past two seasons with the Phillies. But there were some cracks in the biggest moments.`\
 https://nytimes.com/athletic/6053574/2025/01/10/jeff-hoffman-blue-jays-deal/
