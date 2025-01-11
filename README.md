@@ -1,3 +1,11 @@
+**Trevor Story advocates for Nolan Arenado deal, Triston Casas discusses trade rumors**\
+`The Red Sox need another right-handed bat. They are connected with two, though adding either one would have ramifications for Casas, others.`\
+https://nytimes.com/athletic/6054672/2025/01/11/red-sox-triston-casas-nolan-arenado-trade-rumors/
+
+**Hetherman taking over Miami's defense after one season at Minnesota**\
+`The 44-year-old, a former Division III quarterback and ex-Rutgers assistant, turned around the Golden Gophers’ defense in one season.`\
+https://nytimes.com/athletic/6054703/2025/01/11/corey-hetherman-miami-defensive-coordinator-minnesota/
+
 **Inside Carson Beck's path from Georgia to Miami**\
 `Beck, who won’t start throwing again for a few months after having UCL surgery, was the only available QB Miami really wanted.`\
 https://nytimes.com/athletic/6054617/2025/01/11/carson-beck-miami-georgia-transfer-nil/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/11/us/charles-person-dead.html
 **Cooper Flagg scores 42 to break ACC freshman record vs. Notre Dame**\
 `Flagg’s 42 points not only set Duke’s new single-game freshman scoring record but also set the ACC single-game freshman scoring record`\
 https://nytimes.com/athletic/6054372/2025/01/11/cooper-flagg-duke-notre-dame-scoring-record/
-
-**Falcons fire defensive coordinator Jimmy Lake after 1 season**\
-`Lake’s future seemed tenuous when head coach Raheem Morris was critical of the defensive effort in the season-ending loss to Carolina.`\
-https://nytimes.com/athletic/6050757/2025/01/11/falcons-fire-defensive-coordinator-jimmy-lake/
-
-**In Altadena, Rodney King’s brother faces another brush with L.A. history.**\
-`By Mimi Dwyer`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/in-altadena-rodney-kings-brother-faces-another-brush-with-la-history
 
