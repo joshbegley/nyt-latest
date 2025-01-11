@@ -1,3 +1,7 @@
+**Not So Fast on That Peaceful Transfer of Power**\
+`We won’t know anything for real until the next Democrat wins.`\
+https://nytimes.com/2025/01/11/opinion/columnists/january-sixth-transfer-of-power.html
+
 **The Last House Standing**\
 `For people whose homes are spared in a wildfire while their neighbors lose everything, the road ahead can be isolating, plagued by feelings of guilt and shame.`\
 https://nytimes.com/2025/01/11/realestate/california-wildfires-homes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053848/2025/01/11/westbrook-jokic-nuggets-nba-trip
 **Ukraine Says It Captured 2 North Korean Soldiers Fighting for Russia**\
 `President Volodymyr Zelensky said the soldiers were captured in the western Kursk region, where Ukraine has been fighting to hold on to territory it seized last summer.`\
 https://nytimes.com/2025/01/11/world/europe/ukraine-north-korea-kursk.html
-
-**Blues prospect Otto Stenberg on his way to AHL, plus Scott Wheeler's World Juniors Q&A**\
-`One of three first-round picks by the Blues in 2023, Stenberg is leaving Sweden and heading to the AHL's Springfield Thunderbirds.`\
-https://nytimes.com/athletic/6051149/2025/01/11/blues-prospect-otto-stenberg-world-juniors/
 

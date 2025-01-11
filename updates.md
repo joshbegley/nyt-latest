@@ -1,3 +1,7 @@
+**Not So Fast on That Peaceful Transfer of Power**\
+`We won’t know anything for real until the next Democrat wins.`\
+https://nytimes.com/2025/01/11/opinion/columnists/january-sixth-transfer-of-power.html
+
 **The Last House Standing**\
 `For people whose homes are spared in a wildfire while their neighbors lose everything, the road ahead can be isolating, plagued by feelings of guilt and shame.`\
 https://nytimes.com/2025/01/11/realestate/california-wildfires-homes.html
