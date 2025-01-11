@@ -1,3 +1,11 @@
+**The return of Ryan Giggs**\
+`The Manchester United winger is back in the dugout at Manchester City in the FA Cup with Salford — but not everyone will be happy about it`\
+https://nytimes.com/athletic/6051799/2025/01/11/ryan-giggs-manchester-united-salford-return/
+
+**Inside Olmo's Barca drama: A warning not to sign him, his exit clause and a registration solution - for now**\
+`The Athletic takes you behind the scenes with a full timeline of the Dani Olmo saga — from before the club signed him to now...`\
+https://nytimes.com/athletic/6052264/2025/01/11/dani-olmo-barcelona-registration-la-liga/
+
 **Why Max Dowman, 15, can play in the FA Cup for Arsenal — but not in the Premier League**\
 `Dowman is eligible to face Man United in the FA Cup but Premier League rules mean he cannot play in England's top division this season`\
 https://nytimes.com/athletic/6052003/2025/01/11/max-dowman-play-fa-cup-15-rules-premier-league/

@@ -1,3 +1,11 @@
+**The return of Ryan Giggs**\
+`The Manchester United winger is back in the dugout at Manchester City in the FA Cup with Salford — but not everyone will be happy about it`\
+https://nytimes.com/athletic/6051799/2025/01/11/ryan-giggs-manchester-united-salford-return/
+
+**Inside Olmo's Barca drama: A warning not to sign him, his exit clause and a registration solution - for now**\
+`The Athletic takes you behind the scenes with a full timeline of the Dani Olmo saga — from before the club signed him to now...`\
+https://nytimes.com/athletic/6052264/2025/01/11/dani-olmo-barcelona-registration-la-liga/
+
 **Why Max Dowman, 15, can play in the FA Cup for Arsenal — but not in the Premier League**\
 `Dowman is eligible to face Man United in the FA Cup but Premier League rules mean he cannot play in England's top division this season`\
 https://nytimes.com/athletic/6052003/2025/01/11/max-dowman-play-fa-cup-15-rules-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/11/world/asia/singapore-lee-kuan-yew-house.html
 **CFP national championship first look: What to expect from Notre Dame vs. Ohio State**\
 `Notre Dame (14-1) and Ohio State (13-2) will meet on Jan. 20 in Atlanta to claim the first championship of the 12-team CFP.`\
 https://nytimes.com/athletic/6053807/2025/01/10/college-football-playoff-national-championship-notre-dame-ohio-state/
-
-**Quote of the Day: What Dr. Ruth Left Behind — Archiving the Stuff of a Life**\
-`Quotation of the Day for Saturday, January 11, 2025.`\
-https://nytimes.com/2025/01/10/pageoneplus/quote-of-the-day-what-dr-ruth-left-behind-archiving-the-stuff-of-a-life.html
-
-**Red Wings are reaping the rewards of a vintage Patrick Kane emergence**\
-`With a 3-point effort Friday against his old team, Kane has 11 points during the Red Wings' six-game winning streak.`\
-https://nytimes.com/athletic/6053732/2025/01/10/red-wings-blackhawks-patrick-kane/
 
