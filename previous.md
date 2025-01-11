@@ -1,40 +1,40 @@
-**Lebanon’s Prime Minister Meets With Syrian Leader**\
-`The visit by Prime Minister Najib Mikati was the first official trip by the Lebanese leader to meet with the new government of Syria.`\
-https://nytimes.com/2025/01/11/world/middleeast/syria-lebanon.html
+**Australian Open day 1 watch guide: Aryna Sabalenka opens title defense in Melbourne**\
+`The first day of the Grand Slam of 2025 has the women's world No. 1 leading the field`\
+https://nytimes.com/athletic/6053565/2025/01/11/australian-open-watch-guide-2025-day-one-tv-schedule/
 
-**Lindsey Vonn finishes sixth in first World Cup downhill race in six years**\
-`Lindsey Vonn's impressive return to alpine skiing continued Saturday with a sixth-place finish in a World Cup downhill race.`\
-https://nytimes.com/athletic/6054031/2025/01/11/lindsey-vonn-skiing-downhill-olympics-st-anton/
+**David Moyes returns charged with rebuilding Everton - so what will that look like?**\
+`The Scot returns to Goodison Park to provide some stability after a period of churn, and much he instigates may well feel familiar`\
+https://nytimes.com/athletic/6053990/2025/01/11/moyes-everton-tfg-return/
 
-**Barca's Pena dropped for Szczesny over lateness - Flick**\
-`Hansi Flick has said goalkeeper Inaki Pena was dropped for Barcelona&#8217;s Supercopa de Espana semi final victory over Athletic Club because it was the third time he was late for a team meeting.`\
-https://nytimes.com/athletic/6054037/2025/01/11/barcelona-goalkeeper-pena-szczesny-supercopa/
+**Ubben: Ohio State has Michigan to thank for lighting fire of CFP run**\
+`Ohio State is playing like every player on the roster bottled up how they felt after the Michigan loss and is uncorking it before each play.`\
+https://nytimes.com/athletic/6053915/2025/01/11/ohio-state-michigan-cfp-national-championship/
 
-**Reading Aloud**\
-`Reading alone is a deeply enjoyable activity. But being read to has its own irreplaceable allure.`\
-https://nytimes.com/2025/01/11/briefing/reading-aloud.html
+**The Best Time to Fireproof Los Angeles Was Yesterday**\
+`Can a city lose an entire neighborhood now and simply shuffle on, dragging the local memory like a ghost limb?`\
+https://nytimes.com/2025/01/11/opinion/los-angeles-wildfire-build-fireproof.html
 
-**Harry and Meghan Visit Survivors of Los Angeles Fires**\
-`The couple met with emergency medical workers and people who evacuated their homes in Pasadena, Calif., near the giant Eaton blaze.`\
-https://nytimes.com/2025/01/11/us/harry-meghan-pasadena-fire.html
+**Five Presidents and a Funeral**\
+`The pious Carter and profane Trump had some things in common.`\
+https://nytimes.com/2025/01/11/opinion/five-presidents-and-a-funeral.html
 
-**Australian Open storylines: Alcaraz's serve, Swiatek's belief and late-night tennis in Melbourne**\
-`The draw of any Grand Slam builds a narrative, but some storylines are bigger than individual matchups. Here's what to watch in Melbourne`\
-https://nytimes.com/athletic/6053930/2025/01/11/australian-open-storylines-alcaraz-swiatek-late-finish/
+**The Terrifying Realization That an Unresponsive Patient Is ‘Still in There’**\
+`After brain injury, some patients are no longer able to respond to the world around them. Is this really the case?`\
+https://nytimes.com/2025/01/11/opinion/covert-consciousness-unresponsive-brain.html
 
-**NFL coaches vote on best job openings: A clear No. 1 plus Jaguars, Patriots in top 3**\
-`If Mike McCarthy leaves Dallas, should that become the most desirable landing spot for a head coach? How close are the Jaguars and Patriots?`\
-https://nytimes.com/athletic/6052566/2025/01/11/nfl-head-coach-jobs-bears-cowboys-jets-saints-raiders-jaguars/
+**Don’t the Lives of Women and Girls Matter?**\
+`Trump is likely to slash funding for women’s health organizations in the name of “protecting life” — but the result will be death.`\
+https://nytimes.com/2025/01/11/opinion/family-planning-women.html
 
-**Rangers report card: Grading the defensemen and goalies at midseason, from Fox to Miller to Quick**\
-`How does the first half grade for Adam Fox? And K'Andre Miller? And Igor Shesterkin? Here's our report card at midseason.`\
-https://nytimes.com/athletic/6053063/2025/01/11/rangers-defensemen-goalie-grades/
+**Sean Payton's moment and other thoughts as Broncos prepare to seek playoff upset**\
+`The All-Pro honors given to the Broncos on Friday were an illustration of the team's best path to a landmark win in Buffalo`\
+https://nytimes.com/athletic/6052964/2025/01/11/broncos-bills-wild-card-sean-payton/
 
-**Which Western Conference trades and signings have aged best and worst?**\
-`Analyzing every Western Conference team's most noteworthy moves and how they've panned out so far.`\
-https://nytimes.com/athletic/6048806/2025/01/11/nhl-trades-western-conference-signings/
+**Should Students’ Efforts Be Rewarded With Good Grades?**\
+`Readers respond to a guest essay that argued that high grades should be strictly for excellence.`\
+https://nytimes.com/2025/01/11/opinion/letters/students-grades.html
 
-**Out in the Cold With Justin Trudeau**\
-`The prime minister’s celebrity helped bring him to power. Even after his popularity collapsed, it still drew crowds.`\
-https://nytimes.com/2025/01/11/world/canada/justin-trudeau-celebrity.html
+**The Very Long Wait for Jeff Bezos’ Big Rocket Is Coming to an End**\
+`If New Glenn lifts off overnight as planned, the Amazon founder’s rocket company will be on track to give Elon Musk’s SpaceX some genuine competition.`\
+https://nytimes.com/2025/01/11/science/blue-origin-jeff-bezos-new-glenn-launch.html
 
