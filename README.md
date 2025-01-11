@@ -1,3 +1,7 @@
+**Some homeowners were defying evacuation orders in Mandeville Canyon.**\
+`When evacuation came orders came to Mandeville Canyon, not everyone left.`\
+https://nytimes.com/2025/01/11/us/some-homeowners-were-defying-evacuation-orders-in-mandeville-canyon.html
+
 **After doomed drive, Quinn Ewers' fumble, Texas comes up short of title game once again**\
 `Texas went from first-and-goal at the 1 and a chance to tie the score to seeing Ohio State secure the win and move on to the title game.`\
 https://nytimes.com/athletic/6053946/2025/01/11/texas-football-quinn-ewers-cfp-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/opinion/los-angeles-wildfire-build-fireproof.html
 **Five Presidents and a Funeral**\
 `The pious Carter and profane Trump had some things in common.`\
 https://nytimes.com/2025/01/11/opinion/five-presidents-and-a-funeral.html
-
-**The Terrifying Realization That an Unresponsive Patient Is ‘Still in There’**\
-`After brain injury, some patients are no longer able to respond to the world around them. Is this really the case?`\
-https://nytimes.com/2025/01/11/opinion/covert-consciousness-unresponsive-brain.html
 
