@@ -1,40 +1,40 @@
-**Despite Trump’s Attacks, Republicans Made Big Gains in Mail Voting**\
-`As Republican voters embraced a practice that Donald J. Trump railed against for years, softening his tone only slightly in 2024, the party eroded a key Democratic advantage across the country.`\
-https://nytimes.com/2025/01/11/us/politics/trump-2024-election-mail-votes.html
+**Madrid made 'clear assessment' of first Clasico defeat to Barcelona - Ancelotti**\
+`Carlo Ancelotti has said Real Madrid made a &#8220;clear assessment&#8221; of their first Clasico defeat of the season to Barcelona, ahead of this Sunday&#8217;s Supercopa de Espana final.`\
+https://nytimes.com/athletic/6053993/2025/01/11/real-madrid-supercopa-barcelona-ancelotti/
 
-**Stephanie Hsu Loves a Cold Plunge Any Time**\
-`“Even if it’s January,” the star of the new TV series “Laid” said, “I will find the fire in me to do it.”`\
-https://nytimes.com/2025/01/11/arts/television/stephanie-hsu-laid.html
+**As Celtics drown in boos, they remain confident they'll eventually get going**\
+`"When we're not giving our all, I think that's the most deserved boos," Kristaps Porziņģis said after Friday's loss to the Kings.`\
+https://nytimes.com/athletic/6053904/2025/01/11/boston-celtics-boos-offensive-slump/
 
-**Republicans Can Slow but Not Stop Electric Vehicles, Experts Say**\
-`More car buyers are expected to eventually pick battery-powered cars and trucks as prices fall and technology improves, even if Biden-era incentives disappear.`\
-https://nytimes.com/2025/01/11/business/energy-environment/trump-republicans-electric-vehicles-automakers.html
+**Tulsa Massacre Was a ‘Coordinated, Military-Style Attack,’ Federal Report Says**\
+`The Justice Department’s conclusion follows an investigation of the 1921 atrocity in Oklahoma in which up to 300 Black residents were killed.`\
+https://nytimes.com/2025/01/11/us/tulsa-race-massacre-report.html
 
-**My Co-op Is Overcharging Me, Possibly on Purpose. What Can I Do?**\
-`Proving that a co-op board is acting in bad faith can be difficult.`\
-https://nytimes.com/2025/01/11/realestate/my-co-op-is-overcharging-me-possibly-on-purpose-what-can-i-do.html
+**As L.A. Fires Rage, Trump and Newsom’s Hostilities Resurface**\
+`California’s Democratic governor, Gavin Newsom, and President-elect Donald J. Trump have long feuded. Can the rancor be set aside to help a devastated city recover?`\
+https://nytimes.com/2025/01/11/us/politics/los-angeles-fires-trump-newsom.html
 
-**Is H.R. Really Your Friend?**\
-`Don’t count on human resources to take your side in a workplace issue, especially if it involves a conflict with your boss.`\
-https://nytimes.com/2025/01/11/business/manager-conflict-hr-work-advice.html
+**Women Really Want to Talk After Seeing ‘Babygirl’**\
+`Audiences may not be able to agree on how erotic the director Halina Reijn’s erotic thriller is, but it’s starting rich conversations.`\
+https://nytimes.com/2025/01/11/style/babygirl-nicole-kidman-sex.html
 
-**Israel’s Campaign in Syrian Border Area Prompts Fears It Plans to Stay**\
-`Prime Minister Benjamin Netanyahu’s order for Israeli troops to “take over” a buffer zone with Syria upended decades of relative calm along the de facto border between the two countries.`\
-https://nytimes.com/2025/01/11/world/middleeast/syria-buffer-israel.html
+**How L.A. Firefighters Are Battling Deadly Wildfires**\
+`The most destructive wildfires in Los Angeles history are far from being contained. Kellen Browning, a New York Times reporter who spoke with firefighters on the front lines, describes what went wrong.`\
+https://nytimes.com/video/us/100000009919738/how-la-firefighters-are-battling-deadly-wildfires.html
 
-**Getting the Art Out of the Studio and Onto Your Kicks**\
-`Sky Gellatly is a matchmaker between artists and brands, and his eye for deals has resulted in some flashy, and lucrative, collaborations.`\
-https://nytimes.com/2025/01/11/arts/design/sky-gellatly-artist-brand-nike.html
+**Los Angeles Is Starring in an All-Too-Real Disaster Story**\
+`A reporter, an L.A. native, has watched movies and TV destroy her hometown for years, but nothing can prepare someone for seeing real devastation.`\
+https://nytimes.com/2025/01/11/arts/television/los-angeles-is-starring-in-an-all-too-real-disaster-story.html
 
-**How Sleepy Bucks County Became a Celebrity Hot Spot**\
-`First came the Hadids. Then Bradley Cooper. Now, with luxury inns going up, the area around New Hope, Pa., has become a rival to the Hamptons.`\
-https://nytimes.com/2025/01/11/style/how-sleepy-bucks-county-became-a-celebrity-hot-spot.html
+**What Will Congestion Pricing Do to Manhattan Dining?**\
+`Days into the new charges, some restaurant owners say suppliers are raising prices. Others are giving customer discounts, and many fear the fallout for workers.`\
+https://nytimes.com/2025/01/11/dining/congestion-pricing-restaurants.html
 
-**The Painting, the Photograph and the War for Ukraine’s Culture**\
-`An image depicting a famous 19th-century painting of Cossacks, with current Ukrainian soldiers standing in for the warriors, has struck a chord as Kyiv battles to assert its identity.`\
-https://nytimes.com/2025/01/11/world/europe/ukraine-photo-painting-culture-war.html
+**L.A. Was Prepared for Serious Fires. But It Wasn’t Ready for Four.**\
+`“There were too many houses to protect, and not enough engines,” one fire captain in Los Angeles said. Though fire officials say they were well-prepared and simply overwhelmed by the elements, questions are being raised about whether the intensity of modern fires requires a new playbook.`\
+https://nytimes.com/2025/01/11/us/los-angeles-calfire-firefighters.html
 
-**Trump vs. the Bureaucrats**\
-`MAGA has turned “the administrative state” into a battle cry.`\
-https://nytimes.com/2025/01/11/books/review/administrative-state-trump-bannon.html
+**Once the Fires Are Out, California Must Remove Tons of Dangerous Debris**\
+`Clearing the toxic remnants of burned buildings around Los Angeles will require a complex and expensive mobilization. California has been there before.`\
+https://nytimes.com/2025/01/11/us/california-fire-debris.html
 
