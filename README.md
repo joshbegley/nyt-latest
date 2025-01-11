@@ -1,3 +1,7 @@
+**In San Francisco, Controversial Flags Have Had Their Ups and Downs**\
+`A collection of historic flags, some with provocative associations, was removed from the plaza outside City Hall for Mayor Daniel Lurie’s inauguration. By Friday, they were flying again.`\
+https://nytimes.com/2025/01/10/us/san-francisco-flag-alito-lurie.html
+
 **Regulators Tell Baltimore Drug Program to ‘Cease and Desist’**\
 `Maryland issued the order after an investigation by The New York Times and The Baltimore Banner traced overdoses and deaths to an addiction program offering free housing.`\
 https://nytimes.com/2025/01/10/us/baltimore-addiction-recovery-program.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/trump-felon-presidency.html
 **Jeff Hoffman, Blue Jays agree to 3-year, $33 million deal**\
 `Hoffman logged a 2.28 ERA in 118 2/3 innings over the past two seasons with the Phillies. But there were some cracks in the biggest moments.`\
 https://nytimes.com/athletic/6053574/2025/01/10/jeff-hoffman-blue-jays-deal/
-
-**Columbia Professor Says She Was Pushed to Retire Because of Her Activism**\
-`Katherine Franke, a law professor and vocal advocate of pro-Palestinian students, had been under investigation over remarks she made about Israeli students.`\
-https://nytimes.com/2025/01/10/us/columbia-professor-katherine-franke-retires.html
 
