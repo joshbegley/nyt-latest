@@ -1,3 +1,7 @@
+**MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
+`An educated guess at Alonso's future AAV, a hangup for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
+https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
+
 **Amid L.A. Evacuations, Fears of Looting Take Hold**\
 `Residents barred from returning to their neighborhoods face a secondary threat, and the city, with painful collective memories of looting, is on guard.`\
 https://nytimes.com/2025/01/11/us/la-fires-evacuation-looting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054703/2025/01/11/corey-hetherman-miami-defensive-
 **Inside Carson Beck's path from Georgia to Miami**\
 `Beck, who won’t start throwing again for a few months after having UCL surgery, was the only available QB Miami really wanted.`\
 https://nytimes.com/athletic/6054617/2025/01/11/carson-beck-miami-georgia-transfer-nil/
-
-**L.A. Mayor and Fire Chief Try to Show a United Front Amid Tensions**\
-`At a news conference, Mayor Karen Bass said she and the fire chief, who claimed the city had not sufficiently funded the Fire Department, were in “lock step.”`\
-https://nytimes.com/2025/01/11/us/la-mayor-karen-bass-fire-chief.html
 
