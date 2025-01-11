@@ -1,3 +1,11 @@
+**Scott Bessent, Trump’s Billionaire Treasury Pick, Will Shed Assets to Avoid Conflicts**\
+`Financial disclosure forms show hundreds of millions of assets including property in the Bahamas and investments in Bitcoin and China’s currency.`\
+https://nytimes.com/2025/01/11/business/scott-bessent-treasury-divest.html
+
+**For Just Dollars a Day, Inmates Fight California’s Fires**\
+`Hundreds of incarcerated people are firefighting in Los Angeles. They usually make up to $10.24 a day, and receive an additional $1 for each hour that they battle the deadly blazes.`\
+https://nytimes.com/2025/01/11/us/inmates-firefighters-wildfires-california.html
+
 **Danilo's Forest return from injury layoff a 'beautiful' moment - Nuno**\
 `Nuno Espirito Santo heralded the &#8220;beautiful&#8221; moment that Danilo made his return from injury after seeing his Nottingham Forest side secure a comfortable 2-0 FA Cup win over Luton Town.`\
 https://nytimes.com/athletic/6054305/2025/01/11/danilo-forest-return-nuno/
