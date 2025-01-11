@@ -1,5 +1,5 @@
-**Sam Moore, Half of a Dynamic Soul Duo, Is Dead at 89**\
-`Mr. Moore and Dave Prater, better known as Sam & Dave, stormed the R&B and pop charts with indelible hits like “Soul Man” and “Hold On, I’m Comin’.”`\
+**Sam Moore, Half of Dynamic Soul Duo Sam & Dave, Is Dead at 89**\
+`Mr. Moore and Dave Prater stormed the R&B and pop charts with indelible hits like “Soul Man” and “Hold On, I’m Comin’.”`\
 https://nytimes.com/2025/01/10/arts/music/sam-moore-dead.html
 
 **One Taken for a Ride**\
