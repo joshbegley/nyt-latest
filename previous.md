@@ -1,3 +1,7 @@
+**Palisades Fire Threatens Brentwood, Including the Getty Center**\
+`The authorities expanded mandatory evacuation orders to parts of the neighborhood on Friday night as the biggest blaze in the Los Angeles area grew rapidly.`\
+https://nytimes.com/2025/01/11/us/palisades-brentwood-encino-getty.html
+
 **Hall of Fame coach Bill McCartney, who led Colorado to national title, dies at 84**\
 `McCartney went 93-55-5 in 13 seasons with the Buffs, by far the winningest coach in program history.`\
 https://nytimes.com/athletic/6053867/2025/01/11/bill-mccartney-death-colorado-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049650/2025/01/11/leicester-psr-loophole-wrexham-e
 **Karim Benzema's rollercoaster spell in Saudi Arabia: The highs, the lows and many managers**\
 `In 2023, Benzema left Real Madrid for Al Ittihad. He is back in form after a bumpy start - but don't be surprised by more twists and turns`\
 https://nytimes.com/athletic/6051964/2025/01/11/karim-benzema-in-saudi-arabia/
-
-**Why Premier League clubs spend so little in January transfer window**\
-`Premier League clubs rarely spend big in the January transfer window — there are reasons behind that`\
-https://nytimes.com/athletic/6049171/2025/01/11/premier-league-january-transfer-window-spend/
 

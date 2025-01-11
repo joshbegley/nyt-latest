@@ -1,3 +1,7 @@
+**Palisades Fire Threatens Brentwood, Including the Getty Center**\
+`The authorities expanded mandatory evacuation orders to parts of the neighborhood on Friday night as the biggest blaze in the Los Angeles area grew rapidly.`\
+https://nytimes.com/2025/01/11/us/palisades-brentwood-encino-getty.html
+
 **Hall of Fame coach Bill McCartney, who led Colorado to national title, dies at 84**\
 `McCartney went 93-55-5 in 13 seasons with the Buffs, by far the winningest coach in program history.`\
 https://nytimes.com/athletic/6053867/2025/01/11/bill-mccartney-death-colorado-football/
