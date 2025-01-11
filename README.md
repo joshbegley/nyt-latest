@@ -1,40 +1,40 @@
-**Here’s the latest on the fires.**\
-`By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/heres-the-latest-on-the-fires
+**Despite Trump’s Attacks, Republicans Made Big Gains in Mail Voting**\
+`As Republican voters embraced a practice that Donald J. Trump railed against for years, softening his tone only slightly in 2024, the party eroded a key Democratic advantage across the country.`\
+https://nytimes.com/2025/01/11/us/politics/trump-2024-election-mail-votes.html
 
-**Live Updates: Biggest L.A. Fire Spreads Despite Calmer Winds**\
-`Officials had hoped that a drop in wind speeds would help firefighters. But dry terrain helped the giant Palisades blaze grow, leading to more evacuation orders.`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california
+**Stephanie Hsu Loves a Cold Plunge Any Time**\
+`“Even if it’s January,” the star of the new TV series “Laid” said, “I will find the fire in me to do it.”`\
+https://nytimes.com/2025/01/11/arts/television/stephanie-hsu-laid.html
 
-**David Moyes appointed Everton manager for second spell at club**\
-`David Moyes has been appointed as Everton boss for the second time, signing a two-and-a-half year contract at the club.`\
-https://nytimes.com/athletic/6050146/2025/01/11/david-moyes-everton-manager/
+**Republicans Can Slow but Not Stop Electric Vehicles, Experts Say**\
+`More car buyers are expected to eventually pick battery-powered cars and trucks as prices fall and technology improves, even if Biden-era incentives disappear.`\
+https://nytimes.com/2025/01/11/business/energy-environment/trump-republicans-electric-vehicles-automakers.html
 
-**New York to Cut 10,000 Migrant Beds but Open New Shelter in the Bronx**\
-`The Hall Street shelter in Brooklyn, which drew numerous complaints, is among several that will soon close in New York.`\
-https://nytimes.com/2025/01/11/nyregion/migrant-shelters-nyc.html
+**My Co-op Is Overcharging Me, Possibly on Purpose. What Can I Do?**\
+`Proving that a co-op board is acting in bad faith can be difficult.`\
+https://nytimes.com/2025/01/11/realestate/my-co-op-is-overcharging-me-possibly-on-purpose-what-can-i-do.html
 
-**New Yorkers Have Little Data but Big Feelings About Congestion Pricing**\
-`Manhattan commuters are already marveling at what appears to be less traffic — and grousing about the new $9 tolls.`\
-https://nytimes.com/2025/01/11/nyregion/new-york-congestion-pricing-reaction.html
+**Is H.R. Really Your Friend?**\
+`Don’t count on human resources to take your side in a workplace issue, especially if it involves a conflict with your boss.`\
+https://nytimes.com/2025/01/11/business/manager-conflict-hr-work-advice.html
 
-**How a Driving Instructor to the Stars Spends Her Sundays**\
-`Shanti Gooljar grabs some coffee before eight hours of heart-racing driving lessons around New York City. She caps off her day by having dinner with her son.`\
-https://nytimes.com/2025/01/11/nyregion/shanti-gooljar-driving-school.html
+**Israel’s Campaign in Syrian Border Area Prompts Fears It Plans to Stay**\
+`Prime Minister Benjamin Netanyahu’s order for Israeli troops to “take over” a buffer zone with Syria upended decades of relative calm along the de facto border between the two countries.`\
+https://nytimes.com/2025/01/11/world/middleeast/syria-buffer-israel.html
 
-**How Maddrey Became the N.Y.P.D.’s Top Officer Despite Years of Scandal**\
-`Jeffrey Maddrey, the former chief of department, built ties when he walked beats in Brooklyn. That seemed to insulate him as lawsuits and serious accusations against him piled up.`\
-https://nytimes.com/2025/01/11/nyregion/jeffrey-maddrey-nypd-scandals.html
+**Getting the Art Out of the Studio and Onto Your Kicks**\
+`Sky Gellatly is a matchmaker between artists and brands, and his eye for deals has resulted in some flashy, and lucrative, collaborations.`\
+https://nytimes.com/2025/01/11/arts/design/sky-gellatly-artist-brand-nike.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/11/crosswords/spelling-bee-forum.html
+**How Sleepy Bucks County Became a Celebrity Hot Spot**\
+`First came the Hadids. Then Bradley Cooper. Now, with luxury inns going up, the area around New Hope, Pa., has become a rival to the Hamptons.`\
+https://nytimes.com/2025/01/11/style/how-sleepy-bucks-county-became-a-celebrity-hot-spot.html
 
-**Dry Vegetation Fuels L.A. Fires as Wind Speeds Drop**\
-`The largest of the blazes expanded east on Friday, even as wind speeds, which fueled the initial blaze, fell to normal levels.`\
-https://nytimes.com/2025/01/11/us/mandeville-brentwood-fires-vegetation-winds.html
+**The Painting, the Photograph and the War for Ukraine’s Culture**\
+`An image depicting a famous 19th-century painting of Cossacks, with current Ukrainian soldiers standing in for the warriors, has struck a chord as Kyiv battles to assert its identity.`\
+https://nytimes.com/2025/01/11/world/europe/ukraine-photo-painting-culture-war.html
 
-**Aston Villa's blistering winner against West Ham was a reward for taking risks**\
-`Unai Emery's side had to be bolder after the break against West Ham, with the decisive goal indicative of their more urgent approach`\
-https://nytimes.com/athletic/6053333/2025/01/11/aston-villa-emery-rogers-west-ham-risk/
+**Trump vs. the Bureaucrats**\
+`MAGA has turned “the administrative state” into a battle cry.`\
+https://nytimes.com/2025/01/11/books/review/administrative-state-trump-bannon.html
 
