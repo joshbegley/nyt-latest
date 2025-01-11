@@ -1,3 +1,11 @@
+**F.B.I. Briefs Top Senators on Armed Services Panel About Hegseth**\
+`The committee’s Republican chairman and its top Democrat were briefed on F.B.I. findings into Pete Hegseth, Donald Trump’s defense secretary pick. Democrats questioned whether there were gaps.`\
+https://nytimes.com/2025/01/11/us/politics/fbi-briefing-hegseth-senators.html
+
+**Pop-Up Donation Center Provides Relief for Displaced Angelenos**\
+`A community-ran donation center that started as two hot dog carts has grown into a full-scale relief effort for residents displaced by fires.`\
+https://nytimes.com/video/climate/100000009921680/pop-up-donation-center-provides-relief-for-displaced-angelenos.html
+
 **Postecoglou says Tottenham will not terminate Werner loan**\
 `Ange Postecoglou says Tottenham Hotspur will not terminate Timo Werner’s loan early.`\
 https://nytimes.com/athletic/6053092/2025/01/11/timo-werner-tottenham-loan-terminate/
