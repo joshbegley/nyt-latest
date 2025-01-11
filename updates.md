@@ -1,3 +1,7 @@
+**Cubs reach agreement with Colin Rea on 1-year, $5 million deal: Source**\
+`The righty pitched 292 1/3 innings over the past two seasons for the Brewers, who bought out his option for 2025. `\
+https://nytimes.com/athletic/6053643/2025/01/10/cubs-colin-rea-deal/
+
 **One Altadena resident is being the ‘eyes on the neighborhood’ that’s smoldering.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/one-altadena-resident-is-being-the-eyes-on-the-neighborhood-thats-smoldering
