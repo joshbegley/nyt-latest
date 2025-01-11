@@ -1,3 +1,15 @@
+**Amid L.A. Evacuations, Fears of Looting Take Hold**\
+`Residents barred from returning to their neighborhoods face a secondary threat, and the city, with painful collective memories of looting, is on guard.`\
+https://nytimes.com/2025/01/11/us/la-fires-evacuation-looting.html
+
+**Scott Servais joins Padres as special assistant: Sources**\
+`Servais, who managed the Mariners for nine seasons, worked alongside Padres president A.J. Preller with the Texas Rangers.`\
+https://nytimes.com/athletic/6054415/2025/01/11/padres-scott-servais/
+
+**Should Scott Laughton be the Maple Leafs' top trade target before the deadline?**\
+`Laughton's versatility, feistiness and grit make him a perfect fit for what Toronto is trying to build. But is a deal realistic?`\
+https://nytimes.com/athletic/6054511/2025/01/11/maple-leafs-scott-laughton-trade-flyers/
+
 **L.A. Mayor and Fire Chief Try to Show a United Front Amid Tensions**\
 `At a news conference, Mayor Karen Bass said she and the fire chief, who claimed the city had not sufficiently funded the Fire Department, were in “lock step.”`\
 https://nytimes.com/2025/01/11/us/la-mayor-karen-bass-fire-chief.html
