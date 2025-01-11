@@ -1,3 +1,7 @@
+**Biden Awards Medal of Freedom to Pope Francis**\
+`President Biden, a Catholic, awarded the medal with distinction to the pontiff, to whom he has turned for personal guidance.`\
+https://nytimes.com/2025/01/11/us/politics/biden-medal-of-freedom-pope-francis.html
+
 **Here’s where the Los Angeles fires are burning now and the efforts to curb them.**\
 `Firefighters were days into an all-out fight against the blazes bringing death and destruction to the Los Angeles region, and some progress was being made.`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/los-angeles-fires-affected-areas
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6054415/2025/01/11/padres-scott-servais/
 **Should Scott Laughton be the Maple Leafs' top trade target before the deadline?**\
 `Laughton's versatility, feistiness and grit make him a perfect fit for what Toronto is trying to build. But is a deal realistic?`\
 https://nytimes.com/athletic/6054511/2025/01/11/maple-leafs-scott-laughton-trade-flyers/
-
-**F.B.I. Briefs Top Senators on Armed Services Panel About Hegseth**\
-`The committee’s Republican chairman and its top Democrat were briefed on F.B.I. findings into Pete Hegseth, Donald Trump’s defense secretary pick. Democrats questioned whether there were gaps.`\
-https://nytimes.com/2025/01/11/us/politics/fbi-briefing-hegseth-senators.html
 
