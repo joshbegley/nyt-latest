@@ -1,3 +1,7 @@
+**Sex and Violence, but Make It Literary**\
+`Molly recommends Annie Ernaux’s photographic record of a love affair and a sociologist’s study of the moments when conflict turns violent.`\
+https://nytimes.com/2025/01/11/books/read-like-wind-recommendations.html
+
 **Nobody is more Ohio State than Jack Sawyer. The Cotton Bowl's defining play had to be his**\
 `Sawyer's passion for the Buckeyes is unmatched, and his 83-yard fumble return touchdown to beat Texas will live forever in Ohio State lore.`\
 https://nytimes.com/athletic/6054034/2025/01/11/jack-sawyer-ohio-state-texas-playoff-cotton/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/opinion/family-planning-women.html
 **Sean Payton's moment and other thoughts as Broncos prepare to seek playoff upset**\
 `The All-Pro honors given to the Broncos on Friday were an illustration of the team's best path to a landmark win in Buffalo`\
 https://nytimes.com/athletic/6052964/2025/01/11/broncos-bills-wild-card-sean-payton/
-
-**Should Students’ Efforts Be Rewarded With Good Grades?**\
-`Readers respond to a guest essay that argued that high grades should be strictly for excellence.`\
-https://nytimes.com/2025/01/11/opinion/letters/students-grades.html
 
