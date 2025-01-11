@@ -1,3 +1,7 @@
+**How Much Would Buying Greenland Cost?**\
+`President-elect Donald Trump wants to buy the territory from Denmark, which says it’s not for sale. DealBook asked experts how they’d approach the deal.`\
+https://nytimes.com/2025/01/11/business/how-much-would-buying-greenland-cost.html
+
 **Ben Stiller Knows How ‘Severance’ Ends**\
 `The actor-director discusses the long-awaited return of the hit series, the comedies that made him a star and growing up with his famous parents.`\
 https://nytimes.com/2025/01/11/magazine/ben-stiller-interview.html

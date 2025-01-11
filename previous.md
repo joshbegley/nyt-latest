@@ -1,3 +1,7 @@
+**How Much Would Buying Greenland Cost?**\
+`President-elect Donald Trump wants to buy the territory from Denmark, which says it’s not for sale. DealBook asked experts how they’d approach the deal.`\
+https://nytimes.com/2025/01/11/business/how-much-would-buying-greenland-cost.html
+
 **Ben Stiller Knows How ‘Severance’ Ends**\
 `The actor-director discusses the long-awaited return of the hit series, the comedies that made him a star and growing up with his famous parents.`\
 https://nytimes.com/2025/01/11/magazine/ben-stiller-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009919738/how-la-firefighters-are-battling-de
 **Los Angeles Is Starring in an All-Too-Real Disaster Story**\
 `A reporter, an L.A. native, has watched movies and TV destroy her hometown for years, but nothing can prepare someone for seeing real devastation.`\
 https://nytimes.com/2025/01/11/arts/television/los-angeles-is-starring-in-an-all-too-real-disaster-story.html
-
-**What Will Congestion Pricing Do to Manhattan Dining?**\
-`Days into the new charges, some restaurant owners say suppliers are raising prices. Others are giving customer discounts, and many fear the fallout for workers.`\
-https://nytimes.com/2025/01/11/dining/congestion-pricing-restaurants.html
 
