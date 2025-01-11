@@ -1,3 +1,7 @@
+**L.A. Mayor and Fire Chief Try to Show a United Front Amid Tensions**\
+`At a news conference, Mayor Karen Bass said she and the fire chief, who claimed the city had not sufficiently funded the Fire Department, were in “lock step.”`\
+https://nytimes.com/2025/01/11/us/la-mayor-karen-bass-fire-chief.html
+
 **F.B.I. Briefs Top Senators on Armed Services Panel About Hegseth**\
 `The committee’s Republican chairman and its top Democrat were briefed on F.B.I. findings into Pete Hegseth, Donald Trump’s defense secretary pick. Democrats questioned whether there were gaps.`\
 https://nytimes.com/2025/01/11/us/politics/fbi-briefing-hegseth-senators.html

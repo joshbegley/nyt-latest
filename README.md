@@ -1,3 +1,15 @@
+**Amid L.A. Evacuations, Fears of Looting Take Hold**\
+`Residents barred from returning to their neighborhoods face a secondary threat, and the city, with painful collective memories of looting, is on guard.`\
+https://nytimes.com/2025/01/11/us/la-fires-evacuation-looting.html
+
+**Scott Servais joins Padres as special assistant: Sources**\
+`Servais, who managed the Mariners for nine seasons, worked alongside Padres president A.J. Preller with the Texas Rangers.`\
+https://nytimes.com/athletic/6054415/2025/01/11/padres-scott-servais/
+
+**Should Scott Laughton be the Maple Leafs' top trade target before the deadline?**\
+`Laughton's versatility, feistiness and grit make him a perfect fit for what Toronto is trying to build. But is a deal realistic?`\
+https://nytimes.com/athletic/6054511/2025/01/11/maple-leafs-scott-laughton-trade-flyers/
+
 **F.B.I. Briefs Top Senators on Armed Services Panel About Hegseth**\
 `The committee’s Republican chairman and its top Democrat were briefed on F.B.I. findings into Pete Hegseth, Donald Trump’s defense secretary pick. Democrats questioned whether there were gaps.`\
 https://nytimes.com/2025/01/11/us/politics/fbi-briefing-hegseth-senators.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6054617/2025/01/11/carson-beck-miami-georgia-transf
 **L.A. Mayor and Fire Chief Try to Show a United Front Amid Tensions**\
 `At a news conference, Mayor Karen Bass said she and the fire chief, who claimed the city had not sufficiently funded the Fire Department, were in “lock step.”`\
 https://nytimes.com/2025/01/11/us/la-mayor-karen-bass-fire-chief.html
-
-**Jack Smith, Who Led Prosecutions of Trump, Resigns**\
-`Mr. Smith, a special counsel appointed by Attorney General Merrick B. Garland, had signaled that he would step down before Donald J. Trump’s inauguration.`\
-https://nytimes.com/2025/01/11/us/politics/jack-smith-special-counsel-resigns.html
-
-**What Johni Broome's injury, win over South Carolina mean for Auburn**\
-`The Tigers' defense helped them get the win at South Carolina without Broome down the stretch.`\
-https://nytimes.com/athletic/6054457/2025/01/11/auburn-south-carolina-basketball-sec/
-
-**Billing joins Napoli on loan**\
-`Napoli have confirmed the signing of Danish midfielder Philip Billing from Bournemouth on a loan deal until the end of the season.`\
-https://nytimes.com/athletic/6051775/2025/01/11/philip-billing-napoli-transfer/
 
