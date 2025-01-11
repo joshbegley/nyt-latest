@@ -1,3 +1,7 @@
+**Former Utah goalkeeper Carly Nelson alleges club allowed 'emotional and psychological abuse'**\
+`“Utah Royals FC prides itself in creating a positive and supportive experience for our players and staff," the club said in a statement.`\
+https://nytimes.com/athletic/6053660/2025/01/10/utah-royals-carly-nelson-emotional-psychological-abuse/
+
 **Could the Canucks choke their playoff spot after another alarming loss? 3 takeaways**\
 `The Canucks are at a make-or-break point of their season after a listless performance against the Hurricanes.`\
 https://nytimes.com/athletic/6053544/2025/01/10/canucks-hurricanes-nhl-playoff-standings/

@@ -1,3 +1,7 @@
+**Hornets-Clippers, Lakers-Spurs games postponed due to L.A. wildfires**\
+`The dates for the rescheduled games will be announced at a later date, the NBA said.`\
+https://nytimes.com/athletic/6053781/2025/01/10/hornets-clippers-lakers-spurs-games-postponed-los-angeles-wildfires/
+
 **Former Utah goalkeeper Carly Nelson alleges club allowed 'emotional and psychological abuse'**\
 `“Utah Royals FC prides itself in creating a positive and supportive experience for our players and staff," the club said in a statement.`\
 https://nytimes.com/athletic/6053660/2025/01/10/utah-royals-carly-nelson-emotional-psychological-abuse/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/in-one-of-la
 **Biden Calls Meta’s Ending of Fact-Checking Program ‘Shameful’**\
 `Responding to a question from a reporter, the president said he believed Americans “want to tell the truth.”`\
 https://nytimes.com/2025/01/10/us/politics/biden-meta-fact-checking.html
-
-**Newsom Wants to Know Why Fire Hydrants Went Dry**\
-`Gov. Gavin Newsom of California ordered an inquiry into a loss of water pressure after it was revealed that a reservoir was offline when the fires started.`\
-https://nytimes.com/2025/01/10/us/la-fires-gavin-newsom-water-supply.html
 

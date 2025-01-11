@@ -1,3 +1,7 @@
+**Former Utah goalkeeper Carly Nelson alleges club allowed 'emotional and psychological abuse'**\
+`“Utah Royals FC prides itself in creating a positive and supportive experience for our players and staff," the club said in a statement.`\
+https://nytimes.com/athletic/6053660/2025/01/10/utah-royals-carly-nelson-emotional-psychological-abuse/
+
 **Could the Canucks choke their playoff spot after another alarming loss? 3 takeaways**\
 `The Canucks are at a make-or-break point of their season after a listless performance against the Hurricanes.`\
 https://nytimes.com/athletic/6053544/2025/01/10/canucks-hurricanes-nhl-playoff-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/biden-meta-fact-checking.html
 **Newsom Wants to Know Why Fire Hydrants Went Dry**\
 `Gov. Gavin Newsom of California ordered an inquiry into a loss of water pressure after it was revealed that a reservoir was offline when the fires started.`\
 https://nytimes.com/2025/01/10/us/la-fires-gavin-newsom-water-supply.html
-
-**Cubs reach agreement with Colin Rea on 1-year, $5 million deal: Source**\
-`The righty pitched 292 1/3 innings over the past two seasons for the Brewers, who bought out his option for 2025. `\
-https://nytimes.com/athletic/6053643/2025/01/10/cubs-colin-rea-deal/
 
