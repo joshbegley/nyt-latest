@@ -1,4 +1,4 @@
-**Australian Open day 1 watch guide: Aryna Sabalenka opens title defense in Melbourne**\
+**Australian Open day 1 watch guide: Aryna Sabalenka opens title defense**\
 `The first day of the Grand Slam of 2025 has the women's world No. 1 leading the field`\
 https://nytimes.com/athletic/6053565/2025/01/11/australian-open-watch-guide-2025-day-one-tv-schedule/
 
