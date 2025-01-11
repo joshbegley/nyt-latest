@@ -1,5 +1,5 @@
 **Walker has asked to leave Man City - Guardiola**\
-`Pep Guardiola has revealed that Kyle Walker has asked to leave Manchester City in the January transfer window.`\
+`Pep Guardiola has revealed that Kyle Walker has asked to leave Manchester City, opening the door to an exit during the January transfer window.`\
 https://nytimes.com/athletic/6054494/2025/01/11/kyle-walker-man-city-exit/
 
 **Charles Person, Youngest of the Original Freedom Riders, Dies at 82**\
