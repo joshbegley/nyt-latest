@@ -1,3 +1,7 @@
+**How Ohio State outlasted Texas in CFP semi to complete post-Michigan rebound**\
+`Deep in the heart of Texas, the Buckeyes had to fight, scratch and claw through enemy territory on their way to the national title game.`\
+https://nytimes.com/athletic/6053547/2025/01/10/ohio-state-texas-cotton-bowl-cfp/
+
 **A fire captain says the wildfires are the challenge of his career.**\
 `By Mimi Dwyer`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/a-fire-captain-says-the-wildfires-are-the-challenge-of-his-career
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053704/2025/01/10/gael-monfils-oldest-player-win-a
 **In San Francisco, Controversial Flags Have Had Their Ups and Downs**\
 `A collection of historic flags, some with provocative associations, was removed from the plaza outside City Hall for Mayor Daniel Lurie’s inauguration. By Friday, they were flying again.`\
 https://nytimes.com/2025/01/10/us/san-francisco-flag-alito-lurie.html
-
-**Regulators Tell Baltimore Drug Program to ‘Cease and Desist’**\
-`Maryland issued the order after an investigation by The New York Times and The Baltimore Banner traced overdoses and deaths to an addiction program offering free housing.`\
-https://nytimes.com/2025/01/10/us/baltimore-addiction-recovery-program.html
 
