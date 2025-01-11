@@ -1,3 +1,7 @@
+**One Altadena resident is being the ‘eyes on the neighborhood’ that’s smoldering.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/one-altadena-resident-is-being-the-eyes-on-the-neighborhood-thats-smoldering
+
 **At Universal Studios Hollywood, a hint of normalcy returns.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/universal-studios-la-wildfires
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/trump-wildfires-los-angeles.html
 **The Memories That Burn, Too**\
 `Shawn Hubler, who covers California from Sacramento, details the personal, psychological toll of the wildfires.`\
 https://nytimes.com/2025/01/10/us/southern-california-fires-memories.html
-
-**Emery says Barkley likely out for up to three weeks with calf injury**\
-`Unai Emery says Ross Barkley could be out for up to three weeks after the Aston Villa midfielder picked up a calf injury in Friday&#8217;s FA Cup victory over West Ham United.`\
-https://nytimes.com/athletic/6053419/2025/01/10/ross-barkley-aston-villa-injury-update/
 
