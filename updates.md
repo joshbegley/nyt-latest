@@ -1,3 +1,7 @@
+**Russell Westbrook showing himself to be a steal for Nuggets, a complement to Jokić**\
+`Westbrook's latest triple-double serves as a reminder that he's found a comfortable spot with a Nuggets team that runs through Nikola Jokić.`\
+https://nytimes.com/athletic/6053848/2025/01/11/westbrook-jokic-nuggets-nba-triple-double/
+
 **Ukraine Says It Captured 2 North Korean Soldiers Fighting for Russia**\
 `President Volodymyr Zelensky said the soldiers were captured in the western Kursk region, where Ukraine has been fighting to hold on to territory it seized last summer.`\
 https://nytimes.com/2025/01/11/world/europe/ukraine-north-korea-kursk.html
