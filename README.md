@@ -1,3 +1,27 @@
+**Why Max Dowman, 15, can play in the FA Cup for Arsenal — but not in the Premier League**\
+`Dowman is eligible to face Man United in the FA Cup but Premier League rules mean he cannot play in England's top division this season`\
+https://nytimes.com/athletic/6052003/2025/01/11/max-dowman-play-fa-cup-15-rules-premier-league/
+
+**This is Harrogate: The footballers' town that is learning to love football**\
+`The 'posh' North Yorkshire market town is finally making its mark on the sport thanks to an FA Cup date with Leeds`\
+https://nytimes.com/athletic/6052081/2025/01/11/harrogate-leeds-united-fa-cup/
+
+**Business of Football: Another Leicester loophole and is Wrexham's European dream over (for now)?**\
+`The gossip from the world of football finance - including regulator rows and more EFL spending headaches`\
+https://nytimes.com/athletic/6049650/2025/01/11/leicester-psr-loophole-wrexham-europe/
+
+**Karim Benzema's rollercoaster spell in Saudi Arabia: The highs, the lows and many managers**\
+`In 2023, Benzema left Real Madrid for Al Ittihad. He is back in form after a bumpy start - but don't be surprised by more twists and turns`\
+https://nytimes.com/athletic/6051964/2025/01/11/karim-benzema-in-saudi-arabia/
+
+**Why Premier League clubs spend so little in January transfer window**\
+`Premier League clubs rarely spend big in the January transfer window — there are reasons behind that`\
+https://nytimes.com/athletic/6049171/2025/01/11/premier-league-january-transfer-window-spend/
+
+**Arteta gone, Nuno fired and Musk wields the axe - a Premier League Black Monday imagined**\
+`What would happen if the NFL's Black Monday came to the English top flight? Sackings galore, including the champions and FA Cup winners`\
+https://nytimes.com/athletic/6052010/2025/01/11/black-monday-premier-league-imagined/
+
 **Why Singapore’s First Family Is Locked in a Bitter Feud Over a House**\
 `A son of the country’s founding father says he has been persecuted by the government because of a feud with his older brother, who until May was prime minister.`\
 https://nytimes.com/2025/01/11/world/asia/singapore-lee-kuan-yew-house.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/10/pageoneplus/quote-of-the-day-what-dr-ruth-left-be
 **Red Wings are reaping the rewards of a vintage Patrick Kane emergence**\
 `With a 3-point effort Friday against his old team, Kane has 11 points during the Red Wings' six-game winning streak.`\
 https://nytimes.com/athletic/6053732/2025/01/10/red-wings-blackhawks-patrick-kane/
-
-**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
-`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
-https://nytimes.com/athletic/6053790/2025/01/10/notre-dame-ohio-state-picks-odds-national-championship-game/
-
-**College Football Playoff 2024 projections: Ohio State has best title odds after beating Oregon**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2025/01/10/college-football-playoff-projections-odds/
-
-**How Ohio State outlasted Texas in CFP semi to complete post-Michigan rebound**\
-`Deep in the heart of Texas, the Buckeyes had to fight, scratch and claw through enemy territory on their way to the national title game.`\
-https://nytimes.com/athletic/6053547/2025/01/10/ohio-state-texas-cotton-bowl-cfp/
-
-**A fire captain says the wildfires are the challenge of his career.**\
-`By Mimi Dwyer`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/a-fire-captain-says-the-wildfires-are-the-challenge-of-his-career
-
-**Skaggs family civil suit against Angels delayed once again at hearing**\
-`The Skaggs family attorneys have accused the Angels of purposefully pushing back depositions; the trial is now scheduled for late September.`\
-https://nytimes.com/athletic/6053713/2025/01/10/angels-skaggs-family-civil-suit-delayed/
-
-**Hornets-Clippers, Lakers-Spurs games postponed due to L.A. wildfires**\
-`The dates for the rescheduled games will be announced at a later date, the NBA said.`\
-https://nytimes.com/athletic/6053781/2025/01/10/hornets-clippers-lakers-spurs-games-postponed-los-angeles-wildfires/
 
