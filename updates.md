@@ -1,3 +1,11 @@
+**Lebanon’s Prime Minister Meets With Syrian Leader**\
+`The visit by Prime Minister Najib Mikati was the first official trip by the Lebanese leader to meet with the new government of Syria.`\
+https://nytimes.com/2025/01/11/world/middleeast/syria-lebanon.html
+
+**Lindsey Vonn finishes sixth in first World Cup downhill race in six years**\
+`Lindsey Vonn's impressive return to alpine skiing continued Saturday with a sixth-place finish in a World Cup downhill race.`\
+https://nytimes.com/athletic/6054031/2025/01/11/lindsey-vonn-skiing-downhill-olympics-st-anton/
+
 **Barca's Pena dropped for Szczesny over lateness - Flick**\
 `Hansi Flick has said goalkeeper Inaki Pena was dropped for Barcelona&#8217;s Supercopa de Espana semi final victory over Athletic Club because it was the third time he was late for a team meeting.`\
 https://nytimes.com/athletic/6054037/2025/01/11/barcelona-goalkeeper-pena-szczesny-supercopa/
