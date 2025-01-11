@@ -1,3 +1,15 @@
+**Jeff Hoffman, Blue Jays agree to 3-year, $33 million deal**\
+`Hoffman logged a 2.28 ERA in 118 2/3 innings over the past two seasons with the Phillies. But there were some cracks in the biggest moments.`\
+https://nytimes.com/athletic/6053574/2025/01/10/jeff-hoffman-blue-jays-deal/
+
+**Columbia Professor Says She Was Pushed to Retire Because of Her Activism**\
+`Katherine Franke, a law professor and vocal advocate of pro-Palestinian students, had been under investigation over remarks she made about Israeli students.`\
+https://nytimes.com/2025/01/10/us/columbia-professor-katherine-franke-retires.html
+
+**Supreme Court to Hear New Affordable Care Act Case on Preventative Care**\
+`Lower courts ruled that a task force that determines which treatments must be covered at no cost had not been validly appointed.`\
+https://nytimes.com/2025/01/10/us/politics/supreme-court-affordable-care-act-obamacare.html
+
 **It Was a Destination for Hat Lovers. Now It’s Ashes.**\
 `The Wellema Hat Company was one of many local Los Angeles businesses destroyed by this week’s fires. Now its founders are figuring out how to — or even if they can — start over.`\
 https://nytimes.com/2025/01/10/style/welleme-hat-company-los-angeles-wildfires.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000009919484/trump-is-first-president-to-be-sent
 **L.A. fires force USWNT to move training camps to Florida**\
 `Emma Hayes will shift her camps due to the effects of the devastating fires`\
 https://nytimes.com/athletic/6053433/2025/01/10/uswnt-fires-florida-los-angeles/
-
-**Lakers' JJ Redick opens up on losing home due to LA wildfires**\
-`"I was not prepared for what I saw. It's complete devastation and destruction," Redick said, recalling driving to see his home Wednesday.`\
-https://nytimes.com/athletic/6053161/2025/01/10/jj-redick-lakers-house-burned-la-wildfires/
-
-**The Supreme Court Seemed Poised to Allow a U.S. Ban of TikTok**\
-`Also, Los Angeles firefighters worked to contain the city’s largest fires. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/01/10/briefing/tik-tok-supreme-court-los-angeles-fires.html
-
-**Burning gas lines are a concern in some of the fire zones.**\
-`By Tim Balk and Mimi Dwyer`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/burning-gas-lines-are-a-concern-in-some-of-the-fire-zones
 
