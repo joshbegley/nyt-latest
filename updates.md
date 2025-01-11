@@ -1,3 +1,7 @@
+**Walker has asked to leave Man City - Guardiola**\
+`Pep Guardiola has revealed that Kyle Walker has asked to leave Manchester City in the January transfer window.`\
+https://nytimes.com/athletic/6054494/2025/01/11/kyle-walker-man-city-exit/
+
 **Charles Person, Youngest of the Original Freedom Riders, Dies at 82**\
 `In 1961, he and 12 other civil rights activists were nearly killed for trying to integrate interstate bus terminals across the South.`\
 https://nytimes.com/2025/01/11/us/charles-person-dead.html
