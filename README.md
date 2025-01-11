@@ -1,3 +1,7 @@
+**Reading Aloud**\
+`Reading alone is a deeply enjoyable activity. But being read to has its own irreplaceable allure.`\
+https://nytimes.com/2025/01/11/briefing/reading-aloud.html
+
 **Harry and Meghan Visit Survivors of Los Angeles Fires**\
 `The couple met with emergency medical workers and people who evacuated their homes in Pasadena, Calif., near the giant Eaton blaze.`\
 https://nytimes.com/2025/01/11/us/harry-meghan-pasadena-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/crosswords/connections-companion-581.html
 **Can GM Don Sweeney save the free-falling Bruins' season?**\
 `For now, no help is coming for the Bruins, who have lost six straight heading into Saturday's matchup with the Cup champion Panthers.`\
 https://nytimes.com/athletic/6053057/2025/01/11/bruins-don-sweeney-midseason/
-
-**Mandels' Final Thoughts: Inaugural 12-team CFP sets up perfect finale in Notre Dame-Ohio State**\
-`Notre Dame and Ohio State can no longer be underestimated as they prepare for the Jan. 20 national championship. `\
-https://nytimes.com/athletic/6053902/2025/01/11/notre-dame-ohio-state-college-football-playoff-recap-semifinals/
 
