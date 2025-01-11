@@ -1,3 +1,7 @@
+**The Palisades fire could test the Getty Center’s efforts to protect its art collection.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/the-palisades-fire-could-test-the-getty-centers-efforts-to-protect-its-art-collection
+
 **Slot defends Alexander-Arnold after backlash to Man Utd performance**\
 `Liverpool head coach Arne Slot has defended Trent Alexander-Arnold and believes the reaction he received after the draw with Manchester United is the “biggest compliment” he could get.`\
 https://nytimes.com/athletic/6054340/2025/01/11/slot-defends-trent-alexander-arnold/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/realestate/california-wildfires-homes.html
 **NBA postpones Hawks-Rockets game due to inclement weather**\
 `A winter storm passed through the metropolitan Atlanta and northern Georgia areas on Friday, blanketing several inches of snow`\
 https://nytimes.com/athletic/6054231/2025/01/11/hawks-rockets-postponed-weather/
-
-**Giannis Antetokounmpo, Damian Lillard building trust in two-man game**\
-`As the last few moments of their game with the Magic devolved into chaos, the Bucks leaned into their two superstars to close out a win.`\
-https://nytimes.com/athletic/6054029/2025/01/11/giannis-damian-lillard-two-man-game-bucks-magic/
 
