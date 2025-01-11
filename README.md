@@ -1,3 +1,7 @@
+**Inside Carson Beck's path from Georgia to Miami**\
+`Beck, who won’t start throwing again for a few months after having UCL surgery, was the only available QB Miami really wanted.`\
+https://nytimes.com/athletic/6054617/2025/01/11/carson-beck-miami-georgia-transfer-nil/
+
 **After days of tension, L.A. mayor and fire chief tried to show they’re working together.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/after-days-of-tension-la-mayor-and-fire-chief-tried-to-show-theyre-working-together
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050757/2025/01/11/falcons-fire-defensive-coordinat
 **In Altadena, Rodney King’s brother faces another brush with L.A. history.**\
 `By Mimi Dwyer`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/in-altadena-rodney-kings-brother-faces-another-brush-with-la-history
-
-**No. 13 Illinois falls to USC at home without star freshman Jakucionis**\
-`USC came into the game at No. 95 in the NET rankings, with an 0-4 record in Quad 1 games.`\
-https://nytimes.com/athletic/6054367/2025/01/11/usc-illinois-basketball-big-ten-standings/
 
