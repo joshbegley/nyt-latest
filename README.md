@@ -1,3 +1,7 @@
+**Hall of Fame coach Bill McCartney, who led Colorado to national title, dies at 84**\
+`McCartney went 93-55-5 in 13 seasons with the Buffs, by far the winningest coach in program history.`\
+https://nytimes.com/athletic/6053867/2025/01/11/bill-mccartney-death-colorado-football/
+
 **Picking Arsenal's XI to face Manchester United: Jesus and Havertz up front?**\
 `Sunday's third-round FA Cup tie against United feels more important after Tuesday's defeat by Newcastle. But who should Mikel Arteta pick?`\
 https://nytimes.com/athletic/6052202/2025/01/11/arsenal-manchester-united-fa-cup-havertz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6051964/2025/01/11/karim-benzema-in-saudi-arabia/
 **Why Premier League clubs spend so little in January transfer window**\
 `Premier League clubs rarely spend big in the January transfer window — there are reasons behind that`\
 https://nytimes.com/athletic/6049171/2025/01/11/premier-league-january-transfer-window-spend/
-
-**Arteta gone, Nuno fired and Musk wields the axe - a Premier League Black Monday imagined**\
-`What would happen if the NFL's Black Monday came to the English top flight? Sackings galore, including the champions and FA Cup winners`\
-https://nytimes.com/athletic/6052010/2025/01/11/black-monday-premier-league-imagined/
 
