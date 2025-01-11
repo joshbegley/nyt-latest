@@ -1,3 +1,11 @@
+**Scott Bessent, Trump’s Billionaire Treasury Pick, Will Shed Assets to Avoid Conflicts**\
+`Financial disclosure forms show hundreds of millions of assets including property in the Bahamas and investments in Bitcoin and China’s currency.`\
+https://nytimes.com/2025/01/11/business/scott-bessent-treasury-divest.html
+
+**For Just Dollars a Day, Inmates Fight California’s Fires**\
+`Hundreds of incarcerated people are firefighting in Los Angeles. They usually make up to $10.24 a day, and receive an additional $1 for each hour that they battle the deadly blazes.`\
+https://nytimes.com/2025/01/11/us/inmates-firefighters-wildfires-california.html
+
 **Danilo's Forest return from injury layoff a 'beautiful' moment - Nuno**\
 `Nuno Espirito Santo heralded the &#8220;beautiful&#8221; moment that Danilo made his return from injury after seeing his Nottingham Forest side secure a comfortable 2-0 FA Cup win over Luton Town.`\
 https://nytimes.com/athletic/6054305/2025/01/11/danilo-forest-return-nuno/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/11/nyregion/seymour-p-lachman-dead.html
 **Far From the Fires, the Deadly Risks of Smoke Are Intensifying**\
 `Researchers see a growing health danger from the vast plumes of pollution spawned by wildfires like the ones devastating Los Angeles.`\
 https://nytimes.com/2025/01/11/climate/wildfire-smoke-risks.html
-
-**Kvaratskhelia has asked to leave Napoli - Conte**\
-`Antonio Conte says Napoli winger Khvicha Kvaratskhelia has asked to leave the club.`\
-https://nytimes.com/athletic/6049275/2025/01/11/khvicha-kvaratskhelia-napoli-transfer-latest/
-
-**Russell Westbrook showing himself to be a steal for Nuggets, a complement to Jokić**\
-`Westbrook's latest triple-double serves as a reminder that he's found a comfortable spot with a Nuggets team that runs through Nikola Jokić.`\
-https://nytimes.com/athletic/6053848/2025/01/11/westbrook-jokic-nuggets-nba-triple-double/
 
