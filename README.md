@@ -1,3 +1,11 @@
+**Sudan Military Recaptures Key City From Paramilitary Accused of Genocide**\
+`Celebrations erupted in military-controlled areas, stoking hopes the victory might be a turning point in Sudan’s ruinous civil war.`\
+https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
+
+**I Think Knot**\
+`Jeffrey Martinovic’s Sunday puzzle enchants and entangles.`\
+https://nytimes.com/2025/01/11/crosswords/daily-puzzle-2025-01-12.html
+
 **MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
 `An educated guess at Alonso's future AAV, a hangup for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
 https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6053092/2025/01/11/timo-werner-tottenham-loan-termi
 **Trevor Story advocates for Nolan Arenado deal, Triston Casas discusses trade rumors**\
 `The Red Sox need another right-handed bat. They are connected with two, though adding either one would have ramifications for Casas, others.`\
 https://nytimes.com/athletic/6054672/2025/01/11/red-sox-triston-casas-nolan-arenado-trade-rumors/
-
-**Hetherman taking over Miami's defense after one season at Minnesota**\
-`The 44-year-old, a former Division III quarterback and ex-Rutgers assistant, turned around the Golden Gophers’ defense in one season.`\
-https://nytimes.com/athletic/6054703/2025/01/11/corey-hetherman-miami-defensive-coordinator-minnesota/
-
-**Inside Carson Beck's path from Georgia to Miami**\
-`Beck, who won’t start throwing again for a few months after having UCL surgery, was the only available QB Miami really wanted.`\
-https://nytimes.com/athletic/6054617/2025/01/11/carson-beck-miami-georgia-transfer-nil/
 

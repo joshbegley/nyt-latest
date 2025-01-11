@@ -1,3 +1,7 @@
+**MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
+`An educated guess at Alonso's future AAV, a hangup for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
+https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
+
 **Amid L.A. Evacuations, Fears of Looting Take Hold**\
 `Residents barred from returning to their neighborhoods face a secondary threat, and the city, with painful collective memories of looting, is on guard.`\
 https://nytimes.com/2025/01/11/us/la-fires-evacuation-looting.html
