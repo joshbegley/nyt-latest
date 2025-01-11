@@ -1,3 +1,7 @@
+**Hornets-Clippers, Lakers-Spurs games postponed due to L.A. wildfires**\
+`The dates for the rescheduled games will be announced at a later date, the NBA said.`\
+https://nytimes.com/athletic/6053781/2025/01/10/hornets-clippers-lakers-spurs-games-postponed-los-angeles-wildfires/
+
 **Former Utah goalkeeper Carly Nelson alleges club allowed 'emotional and psychological abuse'**\
 `“Utah Royals FC prides itself in creating a positive and supportive experience for our players and staff," the club said in a statement.`\
 https://nytimes.com/athletic/6053660/2025/01/10/utah-royals-carly-nelson-emotional-psychological-abuse/

@@ -1,3 +1,11 @@
+**A fire captain says the wildfires are the challenge of his career.**\
+`By Mimi Dwyer`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/a-fire-captain-says-the-wildfires-are-the-challenge-of-his-career
+
+**Skaggs family civil suit against Angels delayed once again at hearing**\
+`The Skaggs family attorneys have accused the Angels of purposefully pushing back depositions; the trial is now scheduled for late September.`\
+https://nytimes.com/athletic/6053713/2025/01/10/angels-skaggs-family-civil-suit-delayed/
+
 **Hornets-Clippers, Lakers-Spurs games postponed due to L.A. wildfires**\
 `The dates for the rescheduled games will be announced at a later date, the NBA said.`\
 https://nytimes.com/athletic/6053781/2025/01/10/hornets-clippers-lakers-spurs-games-postponed-los-angeles-wildfires/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/us/san-francisco-flag-alito-lurie.html
 **Regulators Tell Baltimore Drug Program to ‘Cease and Desist’**\
 `Maryland issued the order after an investigation by The New York Times and The Baltimore Banner traced overdoses and deaths to an addiction program offering free housing.`\
 https://nytimes.com/2025/01/10/us/baltimore-addiction-recovery-program.html
-
-**In one of L.A.’s richest ZIP codes, food service workers also lost their homes.**\
-`In addition to pricey mansions, the homes of working-class people were also lost, including a mobile home park on Pacific Coast Highway.`\
-https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/in-one-of-las-richest-zip-codes-food-service-workers-also-lost-their-homes
-
-**Biden Calls Meta’s Ending of Fact-Checking Program ‘Shameful’**\
-`Responding to a question from a reporter, the president said he believed Americans “want to tell the truth.”`\
-https://nytimes.com/2025/01/10/us/politics/biden-meta-fact-checking.html
 
