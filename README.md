@@ -1,3 +1,7 @@
+**Kvaratskhelia has asked to leave Napoli - Conte**\
+`Antonio Conte says Napoli winger Khvicha Kvaratskhelia has asked to leave the club.`\
+https://nytimes.com/athletic/6049275/2025/01/11/khvicha-kvaratskhelia-napoli-transfer-latest/
+
 **Russell Westbrook showing himself to be a steal for Nuggets, a complement to Jokić**\
 `Westbrook's latest triple-double serves as a reminder that he's found a comfortable spot with a Nuggets team that runs through Nikola Jokić.`\
 https://nytimes.com/athletic/6053848/2025/01/11/westbrook-jokic-nuggets-nba-triple-double/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054034/2025/01/11/jack-sawyer-ohio-state-texas-pla
 **Australian Open day 1 watch guide: Aryna Sabalenka opens title defense**\
 `The first day of the Grand Slam of 2025 has the women's world No. 1 leading the field`\
 https://nytimes.com/athletic/6053565/2025/01/11/australian-open-watch-guide-2025-day-one-tv-schedule/
-
-**David Moyes returns charged with rebuilding Everton - so what will that look like?**\
-`The Scot returns to Goodison Park to provide some stability after a period of churn, and much he instigates may well feel familiar`\
-https://nytimes.com/athletic/6053990/2025/01/11/moyes-everton-tfg-return/
 
