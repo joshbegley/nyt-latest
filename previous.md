@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo, Damian Lillard building trust in two-man game**\
+`As the last few moments of their game with the Magic devolved into chaos, the Bucks leaned into their two superstars to close out a win.`\
+https://nytimes.com/athletic/6054029/2025/01/11/giannis-damian-lillard-two-man-game-bucks-magic/
+
 **This Roasted Cauliflower Dish Is Positively Zingy**\
 `There’s no other way to accurately describe the incredibly bright nước chấm-like sauce that dresses the burnished slices.`\
 https://nytimes.com/2025/01/11/dining/roasted-cauliflower-healthy-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/mandeville-c
 **After doomed drive, Quinn Ewers' fumble, Texas comes up short of title game once again**\
 `Texas went from first-and-goal at the 1 and a chance to tie the score to seeing Ohio State secure the win and move on to the title game.`\
 https://nytimes.com/athletic/6053946/2025/01/11/texas-football-quinn-ewers-cfp-ohio-state/
-
-**Celebrities are donating clothes to people affected by the fires.**\
-`Sharon Stone and Halle Berry are among the Hollywood stars who have opened up their wardrobes.`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/celebrities-are-donating-clothes-to-people-affected-by-the-fires
 

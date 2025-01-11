@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo, Damian Lillard building trust in two-man game**\
+`As the last few moments of their game with the Magic devolved into chaos, the Bucks leaned into their two superstars to close out a win.`\
+https://nytimes.com/athletic/6054029/2025/01/11/giannis-damian-lillard-two-man-game-bucks-magic/
+
 **This Roasted Cauliflower Dish Is Positively Zingy**\
 `There’s no other way to accurately describe the incredibly bright nước chấm-like sauce that dresses the burnished slices.`\
 https://nytimes.com/2025/01/11/dining/roasted-cauliflower-healthy-recipes.html
