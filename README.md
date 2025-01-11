@@ -1,3 +1,7 @@
+**How Aston Villa's blistering winner against West Ham was a reward for taking risks**\
+`Unai Emery's side had to be bolder after the break against West Ham, with the decisive goal indicative of their more urgent approach`\
+https://nytimes.com/athletic/6053333/2025/01/11/aston-villa-emery-rogers-west-ham-risk/
+
 **West Ham offer immediate promise under Graham Potter but must address a lack of bite**\
 `The loss of Niclas Fullkrug and Crysencio Summerville left the Londoners short up front with Jarrod Bowen and Michail Antonio also out`\
 https://nytimes.com/athletic/6051850/2025/01/11/potter-west-ham-attack-villa-summerville-fullkrug/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052003/2025/01/11/max-dowman-play-fa-cup-15-rules-
 **This is Harrogate: The footballers' town that is learning to love football**\
 `The 'posh' North Yorkshire market town is finally making its mark on the sport thanks to an FA Cup date with Leeds`\
 https://nytimes.com/athletic/6052081/2025/01/11/harrogate-leeds-united-fa-cup/
-
-**Business of Football: Another Leicester loophole and is Wrexham's European dream over (for now)?**\
-`The gossip from the world of football finance - including regulator rows and more EFL spending headaches`\
-https://nytimes.com/athletic/6049650/2025/01/11/leicester-psr-loophole-wrexham-europe/
 
