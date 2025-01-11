@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/heres-the-latest-on-the-fires
+
+**Live Updates: Biggest L.A. Fire Spreads Despite Calmer Winds**\
+`Officials had hoped that a drop in wind speeds would help firefighters. But dry terrain helped the giant Palisades blaze grow, leading to more evacuation orders.`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california
+
 **David Moyes appointed Everton manager for second spell at club**\
 `David Moyes has been appointed as Everton boss for the second time, signing a two-and-a-half year contract at the club.`\
 https://nytimes.com/athletic/6050146/2025/01/11/david-moyes-everton-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/11/us/mandeville-brentwood-fires-vegetation-winds.ht
 **Aston Villa's blistering winner against West Ham was a reward for taking risks**\
 `Unai Emery's side had to be bolder after the break against West Ham, with the decisive goal indicative of their more urgent approach`\
 https://nytimes.com/athletic/6053333/2025/01/11/aston-villa-emery-rogers-west-ham-risk/
-
-**West Ham offer immediate promise under Graham Potter but must address a lack of bite**\
-`The loss of Niclas Fullkrug and Crysencio Summerville left the Londoners short up front with Jarrod Bowen and Michail Antonio also out`\
-https://nytimes.com/athletic/6051850/2025/01/11/potter-west-ham-attack-villa-summerville-fullkrug/
-
-**Palisades Fire Threatens Brentwood, Including the Getty Center**\
-`The authorities expanded mandatory evacuation orders to parts of the neighborhood on Friday night as the biggest blaze in the Los Angeles area grew rapidly.`\
-https://nytimes.com/2025/01/11/us/palisades-brentwood-encino-getty.html
 
