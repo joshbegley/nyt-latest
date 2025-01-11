@@ -1,3 +1,7 @@
+**Kvaratskhelia has asked to leave Napoli - Conte**\
+`Antonio Conte says Napoli winger Khvicha Kvaratskhelia has asked to leave the club.`\
+https://nytimes.com/athletic/6049275/2025/01/11/khvicha-kvaratskhelia-napoli-transfer-latest/
+
 **Some homeowners were defying evacuation orders in Mandeville Canyon.**\
 `When evacuation came orders came to Mandeville Canyon, not everyone left.`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/mandeville-canyon-fire-evacuation
