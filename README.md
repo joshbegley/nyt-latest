@@ -1,3 +1,7 @@
+**Seymour P. Lachman, Who Exposed Political Cabals in Albany, Dies at 91**\
+`In “Three Men in a Room,” Mr. Lachman, an educator and former state senator, charted how power was secretly and corruptly wielded in New York State government.`\
+https://nytimes.com/2025/01/11/nyregion/seymour-p-lachman-dead.html
+
 **Far From the Fires, the Deadly Risks of Smoke Are Intensifying**\
 `Researchers see a growing health danger from the vast plumes of pollution spawned by wildfires like the ones devastating Los Angeles.`\
 https://nytimes.com/2025/01/11/climate/wildfire-smoke-risks.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/celebrities-
 **Sex and Violence, but Make It Literary**\
 `Molly recommends Annie Ernaux’s photographic record of a love affair and a sociologist’s study of the moments when conflict turns violent.`\
 https://nytimes.com/2025/01/11/books/read-like-wind-recommendations.html
-
-**Nobody is more Ohio State than Jack Sawyer. The Cotton Bowl's defining play had to be his**\
-`Sawyer's passion for the Buckeyes is unmatched, and his 83-yard fumble return touchdown to beat Texas will live forever in Ohio State lore.`\
-https://nytimes.com/athletic/6054034/2025/01/11/jack-sawyer-ohio-state-texas-playoff-cotton/
 
