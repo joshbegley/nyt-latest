@@ -1,3 +1,7 @@
+**Barca's Pena dropped for Szczesny over lateness - Flick**\
+`Hansi Flick has said goalkeeper Inaki Pena was dropped for Barcelona&#8217;s Supercopa de Espana semi final victory over Athletic Club because it was the third time he was late for a team meeting.`\
+https://nytimes.com/athletic/6054037/2025/01/11/barcelona-goalkeeper-pena-szczesny-supercopa/
+
 **Reading Aloud**\
 `Reading alone is a deeply enjoyable activity. But being read to has its own irreplaceable allure.`\
 https://nytimes.com/2025/01/11/briefing/reading-aloud.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/crosswords/wordle-review-1303.html
 **The Connections Companion No. 581**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Jan. 12, 2025.`\
 https://nytimes.com/2025/01/11/crosswords/connections-companion-581.html
-
-**Can GM Don Sweeney save the free-falling Bruins' season?**\
-`For now, no help is coming for the Bruins, who have lost six straight heading into Saturday's matchup with the Cup champion Panthers.`\
-https://nytimes.com/athletic/6053057/2025/01/11/bruins-don-sweeney-midseason/
 
