@@ -1,3 +1,11 @@
+**Biden Calls Meta’s Ending of Fact-Checking Program ‘Shameful’**\
+`Responding to a question from a reporter, the president said he believed Americans “want to tell the truth.”`\
+https://nytimes.com/2025/01/10/us/politics/biden-meta-fact-checking.html
+
+**Newsom Wants to Know Why Fire Hydrants Went Dry**\
+`Gov. Gavin Newsom of California ordered an inquiry into a loss of water pressure after it was revealed that a reservoir was offline when the fires started.`\
+https://nytimes.com/2025/01/10/us/la-fires-gavin-newsom-water-supply.html
+
 **Cubs reach agreement with Colin Rea on 1-year, $5 million deal: Source**\
 `The righty pitched 292 1/3 innings over the past two seasons for the Brewers, who bought out his option for 2025. `\
 https://nytimes.com/athletic/6053643/2025/01/10/cubs-colin-rea-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/10/us/politics/supreme-court-affordable-care-act-oba
 **It Was a Destination for Hat Lovers. Now It’s Ashes.**\
 `The Wellema Hat Company was one of many local Los Angeles businesses destroyed by this week’s fires. Now its founders are figuring out how to — or even if they can — start over.`\
 https://nytimes.com/2025/01/10/style/welleme-hat-company-los-angeles-wildfires.html
-
-**What Evander Kane's latest surgery means for his potential return and Oilers' deadline plans**\
-`Kane is insistent that he’ll suit up for the Oilers this season, but when that’ll happen is still anyone’s guess.`\
-https://nytimes.com/athletic/6053513/2025/01/10/evander-kane-surgery-oilers-trade/
-
-**When Disaster Hits, Trump Is the Blamer in Chief**\
-`As Los Angeles burned, the president-elect seemed to spy a political opportunity.`\
-https://nytimes.com/2025/01/10/us/politics/trump-wildfires-los-angeles.html
 
