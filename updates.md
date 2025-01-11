@@ -1,3 +1,11 @@
+**A fire captain says the wildfires are the challenge of his career.**\
+`By Mimi Dwyer`\
+https://nytimes.com/live/2025/01/10/us/fires-los-angeles-california/a-fire-captain-says-the-wildfires-are-the-challenge-of-his-career
+
+**Skaggs family civil suit against Angels delayed once again at hearing**\
+`The Skaggs family attorneys have accused the Angels of purposefully pushing back depositions; the trial is now scheduled for late September.`\
+https://nytimes.com/athletic/6053713/2025/01/10/angels-skaggs-family-civil-suit-delayed/
+
 **Hornets-Clippers, Lakers-Spurs games postponed due to L.A. wildfires**\
 `The dates for the rescheduled games will be announced at a later date, the NBA said.`\
 https://nytimes.com/athletic/6053781/2025/01/10/hornets-clippers-lakers-spurs-games-postponed-los-angeles-wildfires/
