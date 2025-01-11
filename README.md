@@ -3,7 +3,7 @@
 `\
 https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
 
-**Sudan Military Recaptures Key City From Paramilitary Accused of Genocide**\
+**Sudan’s Military Recaptures Key City From Paramilitary Accused of Genocide**\
 `Celebrations erupted in military-controlled areas, stoking hopes the victory might be a turning point in Sudan’s ruinous civil war.`\
 https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
 
