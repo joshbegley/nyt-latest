@@ -1,3 +1,11 @@
+**Picking Arsenal's XI to face Manchester United: Jesus and Havertz up front?**\
+`Sunday's third-round FA Cup tie against United feels more important after Tuesday's defeat by Newcastle. But who should Mikel Arteta pick?`\
+https://nytimes.com/athletic/6052202/2025/01/11/arsenal-manchester-united-fa-cup-havertz/
+
+**Chelsea's knack for letting in late goals is starting to hurt them - they need to fix it**\
+`No team has conceded more goals in the last 15 minutes of the last nine Premier League games than Chelsea`\
+https://nytimes.com/athletic/6049027/2025/01/11/chelseas-knack-for-letting-in-late-goals-is-starting-to-hurt-them-they-need-to-fix-it/
+
 **The return of Ryan Giggs**\
 `The Manchester United winger is back in the dugout at Manchester City in the FA Cup with Salford — but not everyone will be happy about it`\
 https://nytimes.com/athletic/6051799/2025/01/11/ryan-giggs-manchester-united-salford-return/
