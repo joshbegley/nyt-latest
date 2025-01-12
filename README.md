@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6054737/2025/01/12/kyle-walker-manchester-city-exit
 `The league's current corner consensus bears a resemblance to the early 2000s: stick it on the goalkeeper`\
 https://nytimes.com/athletic/6048155/2025/01/12/premier-league-inswinging-corners-counterproductive/
 
-**How the Oilers bounced back, rallied and refused to lose two straight games**\
+**How the Oilers bounced back, rallied and refused to lose 2 straight games**\
 `The Oilers overcame a pair of two-goal deficits to gut out a 4-3 win over the Blackhawks.`\
 https://nytimes.com/athletic/6055036/2025/01/12/oilers-blackhawks-connor-mcdavid-zach-hyman/
 
