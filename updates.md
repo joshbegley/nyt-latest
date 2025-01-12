@@ -1,3 +1,7 @@
+**In L.A., the Heartache of Being Home**\
+`Tejal Rao, a Times food critic who lives in Los Angeles, explores the fleeting nature of safety after the fires.`\
+https://nytimes.com/2025/01/12/us/los-angeles-wildfires-heartache.html
+
 **Meghan, Duchess of Sussex, Delays Premiere of Netflix Show Because of Wildfires**\
 `She asked the streaming service to push back the release of her new series, “With Love, Meghan,” which pays tribute to the beauty of Southern California.`\
 https://nytimes.com/2025/01/12/arts/television/meghan-markle-netflix-delay-la-fires.html

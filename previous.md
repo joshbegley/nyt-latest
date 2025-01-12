@@ -1,3 +1,7 @@
+**In L.A., the Heartache of Being Home**\
+`Tejal Rao, a Times food critic who lives in Los Angeles, explores the fleeting nature of safety after the fires.`\
+https://nytimes.com/2025/01/12/us/los-angeles-wildfires-heartache.html
+
 **Meghan, Duchess of Sussex, Delays Premiere of Netflix Show Because of Wildfires**\
 `She asked the streaming service to push back the release of her new series, “With Love, Meghan,” which pays tribute to the beauty of Southern California.`\
 https://nytimes.com/2025/01/12/arts/television/meghan-markle-netflix-delay-la-fires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056541/2025/01/12/pwhl-us-attendance-record-denver
 **Stagehands Walk Off the Job at Atlantic Theater Company**\
 `The stage employees union accused the nonprofit theater of stalling talks. The strike forced the cancellation of Sunday performances of two new plays.`\
 https://nytimes.com/2025/01/12/theater/atlantic-theater-stagehands-strike.html
-
-**How Broncos fell apart in second half of 31-7 wild-card loss: Takeaways**\
-`Bo Nix led Denver to an early lead, but a hungry Buffalo team with Super Bowl LIX ambitions proved to be too much on Sunday.`\
-https://nytimes.com/athletic/6056077/2025/01/12/broncos-game-score-playoffs-takeaways-wild-card/
 
