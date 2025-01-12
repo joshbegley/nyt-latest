@@ -1,3 +1,7 @@
+**Chargers' Justin Herbert falls short to remain winless in postseason: 'I let the team down'**\
+`“I put the team in jeopardy,” Herbert said. “That’s on me to get better and keep pushing forward.”`\
+https://nytimes.com/athletic/6055189/2025/01/12/chargers-playoffs-loss-justin-herbert/
+
 **Texans transform Chargers' 'bye' into blowout via fortunate bounce, suffocating coverage**\
 `C.J. Stroud's improvisational magic sparked Houston's offense while the Texans defense painted a masterpiece against Justin Herbert.`\
 https://nytimes.com/athletic/6055064/2025/01/12/texans-chargers-cj-stroud-derek-stingley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6046574/2025/01/12/what-a-clasico-supercopa-in-jedd
 **Sunderland's £16m Le Fee signing is a gear change and a statement of Premier League intent**\
 `The Championship side's form over the Christmas period convinced the hierarchy that promotion is a possibility worth pushing for this year`\
 https://nytimes.com/athletic/6054418/2025/01/12/enzo-le-fee-sunderland-stoke/
-
-**Nottingham Forest's display of strength in depth bodes well for the challenges to come**\
-`Nuno Espirito Santo made wholesale changes in the FA Cup and his back-up players delivered`\
-https://nytimes.com/athletic/6054437/2025/01/12/nottingham-forest-luton-fa-cup/
 

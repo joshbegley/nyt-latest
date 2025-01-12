@@ -1,3 +1,7 @@
+**Chargers' Justin Herbert falls short to remain winless in postseason: 'I let the team down'**\
+`“I put the team in jeopardy,” Herbert said. “That’s on me to get better and keep pushing forward.”`\
+https://nytimes.com/athletic/6055189/2025/01/12/chargers-playoffs-loss-justin-herbert/
+
 **Texans transform Chargers' 'bye' into blowout via fortunate bounce, suffocating coverage**\
 `C.J. Stroud's improvisational magic sparked Houston's offense while the Texans defense painted a masterpiece against Justin Herbert.`\
 https://nytimes.com/athletic/6055064/2025/01/12/texans-chargers-cj-stroud-derek-stingley/
