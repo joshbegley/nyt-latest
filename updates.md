@@ -1,3 +1,7 @@
+**Arthur Fils, already top 20 in the world, learns how to play tennis in Melbourne**\
+`He's inside the ATP top-20 and looks destined to go higher. But the young Frenchman is still figuring out his own way to win.`\
+https://nytimes.com/athletic/5999574/2025/01/12/arthur-fils-tennis-australian-open/
+
 **What do you think of Ryan Day now? Ohio State proving in the Playoff it's not soft**\
 `On the head coach, the real offensive MVP and what the Buckeyes need to do versus Notre Dame.`\
 https://nytimes.com/athletic/6054816/2025/01/12/ohio-state-ryan-day-playoff-texas/
