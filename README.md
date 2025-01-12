@@ -2,7 +2,7 @@
 `Readers offer solutions in New York and elsewhere. Also: A soldier’s moral trauma; doctors weighing patients; access to environmental data.`\
 https://nytimes.com/2025/01/12/opinion/nyc-public-restrooms.html
 
-**Real estate on L.A.’s west side grows farther out of reach with the fires.**\
+**Real estate on L.A.’s west side grows further out of reach with the fires.**\
 `By Finn-Olaf Jones`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/real-estate-on-las-west-side-grows-farther-out-of-reach-with-the-fires
 
