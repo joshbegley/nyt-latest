@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Man United 1 (Utd win 5-3 on pens) - missed chances, a red, pens and needle in cup thriller**\
+`Analysis of an entertaining FA Cup third-round tie between Arsenal and Manchester United at the Emirates.`\
+https://nytimes.com/athletic/6053551/2025/01/12/arsenal-manchester-united-fa-cup/
+
 **How to Protect Your Home From Wildfires**\
 `Thousands of wildfires rage across California every year. No matter where you are, it’s important to learn how to minimize their threat.`\
 https://nytimes.com/2025/01/12/realestate/how-to-protect-homes-wildfires.html
