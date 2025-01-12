@@ -1,3 +1,7 @@
+**Officials in Orange County, south of L.A., urge caution in dry conditions.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/officials-in-orange-county-south-of-la-urge-caution-in-dry-conditions
+
 **Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
 `The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
 https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-tennis-australian-open/
