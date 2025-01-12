@@ -1,3 +1,7 @@
+**More Public Restrooms Are Sorely Needed**\
+`Readers offer solutions in New York and elsewhere. Also: A soldier’s moral trauma; doctors weighing patients; access to environmental data.`\
+https://nytimes.com/2025/01/12/opinion/nyc-public-restrooms.html
+
 **Real estate on L.A.’s west side grows farther out of reach with the fires.**\
 `By Finn-Olaf Jones`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/real-estate-on-las-west-side-grows-farther-out-of-reach-with-the-fires
@@ -22,8 +26,8 @@ https://nytimes.com/2025/01/12/briefing/celebrity-brands.html
 `The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
 https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
 
-**Pornography Is One Place Where Freedom for Adults Becomes Cruelty to Children**\
-`A new law in Texas requiring age verification for certain sites should be upheld.`\
+**Texas Has a Point About Online Pornography**\
+`All 50 states ban minors from purchasing adult material offline.`\
 https://nytimes.com/2025/01/12/opinion/pornography-texas-supreme-court.html
 
 **The Dream of California Is Up in Smoke**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/opinion/los-angeles-fires.html
 **Martha, Nigella, Meghan Markle?**\
 `Her every move seems to spark a backlash. But by launching a lifestyle show on Netflix, Meghan may yet find her fairy-tale ending.`\
 https://nytimes.com/2025/01/12/opinion/meghan-markle-netflix-haters.html
-
-**I’m a Federal Employee. This Is What We Need Most in the Trump Era.**\
-`Practical support matters more than encouragement.`\
-https://nytimes.com/2025/01/12/opinion/administrative-deep-state-trump.html
 
