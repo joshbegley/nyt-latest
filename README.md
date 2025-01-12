@@ -1,3 +1,7 @@
+**How Jaxson Robinson's turn to play unselfish UK hero decided a top-15 shootout**\
+`Robinson finished with 27 points, but the 15 minutes he went between field goal attempts showed the true danger of Kentucky's offense.`\
+https://nytimes.com/athletic/6055119/2025/01/12/kentucky-mississippi-state-jaxson-robinson/
+
 **Cutter Gauthier booed by Flyers fans as raucous crowd's energy fuels blowout win**\
 `“You hear the crowd going like that, it brings so much energy to myself and the whole team,” Jamie Drysdale said.`\
 https://nytimes.com/athletic/6055043/2025/01/12/flyers-cutter-gauthier-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048155/2025/01/12/premier-league-inswinging-corner
 **How the Oilers bounced back, rallied and refused to lose 2 straight games**\
 `The Oilers overcame a pair of two-goal deficits to gut out a 4-3 win over the Blackhawks.`\
 https://nytimes.com/athletic/6055036/2025/01/12/oilers-blackhawks-connor-mcdavid-zach-hyman/
-
-**Mainoo and Garnacho's futures will test INEOS' strategy - and trust with supporters**\
-`What happens next for Mainoo and Garnacho cuts to the heart of many of the issues giving INEOS a headache at Manchester United`\
-https://nytimes.com/athletic/6054161/2025/01/12/mainoo-garnacho-future-ineos/
 
