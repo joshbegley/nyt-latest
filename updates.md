@@ -1,3 +1,7 @@
+**Monday Briefing: Number of Missing Rises in L.A.**\
+`Plus, how cured ham fixed an antique organ in France.`\
+https://nytimes.com/2025/01/12/briefing/los-angeles-fires-sudan-brazil-gambling.html
+
 **‘It was like a passing thunderstorm,’ resident says of Mandeville Canyon fire.**\
 `By Sam Stanton`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/it-was-like-a-passing-thunderstorm-resident-says-of-mandeville-canyon-fire
