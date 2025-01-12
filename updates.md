@@ -1,3 +1,7 @@
+**Italian Justice Ministry Moves to Release Iranian Man Sought by the U.S.**\
+`The request to revoke the man’s arrest — citing a lack of grounds for extradition — came just days after Iran had released an Italian journalist being held in Tehran.`\
+https://nytimes.com/2025/01/12/world/europe/italian-justice-ministry-moves-to-release-iranian-man-sought-by-the-us.html
+
 **Federal Court Blocks Transfer of Guantánamo Convict to Prison in Iraq**\
 `The Iraqi prisoner had sued the Biden administration, saying he would be at risk for abuse at a prison in his homeland.`\
 https://nytimes.com/2025/01/12/us/politics/guantanamo-iraq-transfer-court.html
