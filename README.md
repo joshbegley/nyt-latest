@@ -1,3 +1,7 @@
+**Texans pick off Herbert 4 times in 32-12 wild-card blowout: Takeaways**\
+`Texans' All-Pro corner Derek Stingley shined, finishing with two picks, a forced fumble and five passes defensed.`\
+https://nytimes.com/athletic/6054219/2025/01/11/chargers-texans-score-result-takeaways/
+
 **Watch Duty, a Wildfire-Tracking App, Provides a Lifeline in Los Angeles**\
 `A nonprofit runs the app with volunteers and full-time employees, including retired firefighters and dispatchers, to provide live updates on fire conditions.`\
 https://nytimes.com/2025/01/11/us/watch-duty-wildfire-app.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-j
 **Sudan’s Military Recaptures Key City From Paramilitary Accused of Genocide**\
 `Celebrations erupted in military-controlled areas, stoking hopes the victory might be a turning point in Sudan’s ruinous civil war.`\
 https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
-
-**I Think Knot**\
-`Jeffrey Martinovic’s Sunday puzzle enchants and entangles.`\
-https://nytimes.com/2025/01/11/crosswords/daily-puzzle-2025-01-12.html
 
