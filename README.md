@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 2 Barcelona 5 - Yamal and Co inflict a historic humiliation**\
+`Barca put four goals past Madrid in consecutive matches for the first time in Clasico history. Our writers analyse the key talking points`\
+https://nytimes.com/athletic/6053562/2025/01/12/real-madrid-2-barcelona-5-clasico-humiliation/
+
 **Buckley: Patriots’ next move after Mike Vrabel hire is to get their house in order**\
 `The Pats were thought to be rebuilding a few years ago. Looking back on it, from Tom Brady's exit to Jerod Mayo's, they were falling apart. `\
 https://nytimes.com/athletic/6056171/2025/01/12/mike-vrabel-patriots-coach-hiring-column/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/arts/dance/angie-pittman-kyle-marshall-bam.html
 **3 Humvees and Military Supplies Stolen From Army Reserve Warehouse**\
 `The police in Tustin, Calif., said the Humvees, as well as binoculars, bayonets and machine gun vehicle mounts, had been stolen from an Army Reserve Center.`\
 https://nytimes.com/2025/01/12/us/humvee-army-theft-california.html
-
-**Arsenal's Jesus knee injury a 'big worry' to Mikel Arteta: 'He is in a lot of pain'**\
-`Mikel Arteta has said Gabriel Jesus is &#8220;in a lot of pain&#8221; with a knee injured sustained in Arsenal&#8217;s FA Cup defeat to Manchester United, describing it as a &#8220;big worry&#8221;.`\
-https://nytimes.com/athletic/6055671/2025/01/12/gabriel-jesus-injury-arsenal-fa-cup/
 
