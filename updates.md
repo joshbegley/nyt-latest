@@ -1,3 +1,7 @@
+**Celebrity Moguls**\
+`We cover the rise of entrepreneurship in Hollywood.`\
+https://nytimes.com/2025/01/12/briefing/celebrity-brands.html
+
 **Lindsey Vonn's comeback hits a new high; Lauren Macuga wins first World Cup race**\
 `Lindsey Vonn's impressive return to alpine skiing continued with two top-six World Cup finishes this weekend.`\
 https://nytimes.com/athletic/6054031/2025/01/12/lindsey-vonn-skiing-downhill-olympics-st-anton/
