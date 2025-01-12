@@ -1,3 +1,7 @@
+**Pardoned by Trump, Manafort Is Back and Looking for Foreign Work**\
+`The president-elect’s 2016 campaign chairman, four years after receiving clemency, is testing the international market with a team of Trump-linked consultants.`\
+https://nytimes.com/2025/01/12/us/politics/trump-manafort.html
+
 **Liverpool recall Gordon from Norwich loan, Ramsay set for Kilmarnock**\
 `Liverpool have taken the decision to recall youngster Kaide Gordon from his loan spell at Norwich City due to a lack of game time.`\
 https://nytimes.com/athletic/6055500/2025/01/12/kaide-gordon-loan-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/briefing/celebrity-brands.html
 **Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
 `The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
 https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
-
-**Texas Has a Point About Online Pornography**\
-`All 50 states ban minors from purchasing adult material offline.`\
-https://nytimes.com/2025/01/12/opinion/pornography-texas-supreme-court.html
 
