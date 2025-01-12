@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
 https://nytimes.com/video/us/100000009918111/palisades-fire-community-volunteers.html
 
 **How Elias Pettersson, Quinn Hughes got tired Canucks back on track: 3 takeaways**\
-`Vancouver dominated the Maple Leafs, coming away with a sorely needed 3-0 victory.`\
+`Vancouver's best players outperformed Toronto's, and Hughes was the brightest star on the ice, coming away with a sorely-needed 3-0 victory.`\
 https://nytimes.com/athletic/6054826/2025/01/11/canucks-maple-leafs-elias-pettersson-quinn-hughes/
 
 **Sabres fans chant ‘Fire Adams!’ with owner Terry Pegula in attendance**\
