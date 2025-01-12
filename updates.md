@@ -1,3 +1,11 @@
+**Lowetide: How are the Oilers' AHL forwards spiking offensively?**\
+`Edmonton suffered a hiccup with the prospect pool up front over the last two seasons but seems to be on track now.`\
+https://nytimes.com/athletic/6054176/2025/01/12/oilers-ahl-forwards-stats-2025/
+
+**Patriots hiring Mike Vrabel as next head coach: Sources**\
+`After firing Jerod Mayo a week ago, the Patriots are hiring Mike Vrabel as the 16th head coach in franchise history.`\
+https://nytimes.com/athletic/6052753/2025/01/12/mike-vrabel-patriots-head-coach-hiring/
+
 **Patriots hiring Mike Vrabel as next head coach: Sources**\
 `The Patriots are expected to name Mike Vrabel the 16th head coach in franchise history.`\
 https://nytimes.com/athletic/6052753/2025/01/12/mike-vrabel-patriots-head-coach-hiring/

@@ -1,5 +1,9 @@
+**Lowetide: How are the Oilers' AHL forwards spiking offensively?**\
+`Edmonton suffered a hiccup with the prospect pool up front over the last two seasons but seems to be on track now.`\
+https://nytimes.com/athletic/6054176/2025/01/12/oilers-ahl-forwards-stats-2025/
+
 **Patriots hiring Mike Vrabel as next head coach: Sources**\
-`The Patriots are expected to name Mike Vrabel the 16th head coach in franchise history.`\
+`After firing Jerod Mayo a week ago, the Patriots are hiring Mike Vrabel as the 16th head coach in franchise history.`\
 https://nytimes.com/athletic/6052753/2025/01/12/mike-vrabel-patriots-head-coach-hiring/
 
 **Tom Brady's influence? Timeline? What we're hearing about Raiders coach and GM search**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/real-estate-
 **Fullkrug to miss 'a number of weeks' with hamstring injury, club say**\
 `West Ham United have said striker Niclas Fullkrug will be sidelined for &#8220;a number of weeks&#8221; with a hamstring injury.`\
 https://nytimes.com/athletic/6055363/2025/01/12/niclas-fullkrug-hamstring-injury/
-
-**Part of Eastern Malibu Is ‘Gone,’ Mayor Says, as Palisades Fire Rages**\
-`A third of eastern Malibu has been destroyed by the blaze, including the communities of Big Rock and Carbon Mesa and a famed stretch of Pacific Coast Highway, officials said.`\
-https://nytimes.com/2025/01/12/us/malibu-palisades-fire-mayor.html
 
