@@ -1,3 +1,15 @@
+**Maple Leafs report cards: A lifeless effort leads to ugly performance**\
+`Maple Leafs fans booed their team off the ice after a 3-0 loss to the Canucks on Saturday night.`\
+https://nytimes.com/athletic/6054803/2025/01/11/maple-leafs-canucks-grades-analysis/
+
+**Pistons show Raptors pros and cons of depending on draft lottery**\
+`It's been a long journey to .500 for the Pistons, but Cade Cunningham provides hope.`\
+https://nytimes.com/athletic/6054939/2025/01/11/pistons-raptors-nba-draft-lottery/
+
+**At a Palisades mobile home park, middle-class dreams lie in ruins.**\
+`By Jacob Bernstein`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/at-a-palisades-mobile-home-park-middle-class-dreams-lie-in-ruins
+
 **Synagogue Congregation Grieves in New Home After L.A. Fires**\
 `Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
 https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6054219/2025/01/11/chargers-texans-score-result-tak
 **Watch Duty, a Wildfire-Tracking App, Provides a Lifeline in Los Angeles**\
 `A nonprofit runs the app with volunteers and full-time employees, including retired firefighters and dispatchers, to provide live updates on fire conditions.`\
 https://nytimes.com/2025/01/11/us/watch-duty-wildfire-app.html
-
-**Penguins lose focus early as troubling trend continues: 3 takeaways vs. Senators**\
-`Pittsburgh gave up a goal on the first shot of the game for the ninth time this season in a 5-0 loss to Ottawa.`\
-https://nytimes.com/athletic/6054828/2025/01/11/penguins-senators-score-loss-takeaways/
-
-**Kamala Harris Shares a Trump-less Photo of Presidents at Jimmy Carter’s Funeral**\
-`Pictures shared on social media by the vice president and by the Carter Center prominently showed other past presidents in attendance.`\
-https://nytimes.com/2025/01/11/us/politics/trump-photo-carter-funeral.html
-
-**Canada and Mexico Are Sending Teams to Help California Fight the Fires**\
-`Air tankers, firefighters and technicians from the neighboring countries are on their way to Los Angeles in a show of solidarity.`\
-https://nytimes.com/2025/01/11/us/mexico-canada-firefighters-california.html
 
