@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-j
 `\
 https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
 
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **Kamala Harris Shares a Trump-less Photo of Presidents at Jimmy Carter’s Funeral**\
 `Pictures shared on social media by the vice president and by the Carter Center prominently showed other past presidents in attendance.`\
 https://nytimes.com/2025/01/11/us/politics/trump-photo-carter-funeral.html
