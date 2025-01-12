@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/12/us/richard-hays-76-dies-theologian-who-had-stunni
 
 **FA Cup fourth-round draw: Man Utd vs Leicester**\
 `FA Cup holders Manchester United will play Leicester City in the FA Cup fourth round.`\
-https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-third-round-draw-manchester-united-leicester/
+https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-fourth-round-draw-manchester-united-leicester/
 
 **The Briefing: Arsenal 1 Man United 1 (Utd win 5-3 on pens) - missed chances, a red, pens and needle in cup thriller**\
 `Analysis of an entertaining FA Cup third-round tie between Arsenal and Manchester United at the Emirates.`\
