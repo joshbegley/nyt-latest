@@ -1,3 +1,7 @@
+**What do you think of Ryan Day now? Ohio State proving in the Playoff it's not soft**\
+`On the head coach, the real offensive MVP and what the Buckeyes need to do versus Notre Dame.`\
+https://nytimes.com/athletic/6054816/2025/01/12/ohio-state-ryan-day-playoff-texas/
+
 **Palisades Lost**\
 `Days after a devastating wildfire, residents of Pacific Palisades have started sifting through the ruins, and their memories.`\
 https://nytimes.com/2025/01/12/us/palisades-wildfires.html

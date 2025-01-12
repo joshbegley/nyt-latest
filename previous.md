@@ -1,3 +1,7 @@
+**What do you think of Ryan Day now? Ohio State proving in the Playoff it's not soft**\
+`On the head coach, the real offensive MVP and what the Buckeyes need to do versus Notre Dame.`\
+https://nytimes.com/athletic/6054816/2025/01/12/ohio-state-ryan-day-playoff-texas/
+
 **Palisades Lost**\
 `Days after a devastating wildfire, residents of Pacific Palisades have started sifting through the ruins, and their memories.`\
 https://nytimes.com/2025/01/12/us/palisades-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052837/2025/01/12/texas-south-carolina-ncaaw-how-t
 **She Threw a Great Party. And No Matter Your Party, You Were Invited.**\
 `In “The Woman Who Knew Everyone,” Meryl Gordon offers a thorough biography of Perle Mesta, Washington’s colorful, and oft-mocked, “hostess with the mostes’.”`\
 https://nytimes.com/2025/01/12/books/review/the-woman-who-knew-everyone-meryl-gordon.html
-
-**Embarrassed by Ravens and stuck in purgatory, the Steelers must ponder significant changes**\
-`Mike Tomlin has lost six straight playoff games, all in blowouts, and the NFL's highest-paid defense flopped again in January. What now?`\
-https://nytimes.com/athletic/6055269/2025/01/12/steelers-ravens-playoff-loss-mike-tomlin/
 
