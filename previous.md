@@ -1,3 +1,7 @@
+**Ghosts of Wolves' past playoff failures haunt Anthony Edwards, Rudy Gobert**\
+`It was a terrific fistfight of a game, but it was one the Timberwolves shouldn't have lost.`\
+https://nytimes.com/athletic/6054830/2025/01/12/timberwolves-playoff-failures-anthony-edwards-rudy-gobert/
+
 **Chargers' Justin Herbert falls short to remain winless in postseason: 'I let the team down'**\
 `“I put the team in jeopardy,” Herbert said. “That’s on me to get better and keep pushing forward.”`\
 https://nytimes.com/athletic/6055189/2025/01/12/chargers-playoffs-loss-justin-herbert/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054288/2025/01/12/brighton-norwich-hurzeler-march/
 **What a Clasico Supercopa in Jeddah tells us about the relationship between Spain and Saudi Arabia**\
 `The growing football bond between the two nations explained`\
 https://nytimes.com/athletic/6046574/2025/01/12/what-a-clasico-supercopa-in-jeddah-tells-us-about-spain-and-saudi-arabias-relationship/
-
-**Sunderland's £16m Le Fee signing is a gear change and a statement of Premier League intent**\
-`The Championship side's form over the Christmas period convinced the hierarchy that promotion is a possibility worth pushing for this year`\
-https://nytimes.com/athletic/6054418/2025/01/12/enzo-le-fee-sunderland-stoke/
 

@@ -1,3 +1,7 @@
+**Ghosts of Wolves' past playoff failures haunt Anthony Edwards, Rudy Gobert**\
+`It was a terrific fistfight of a game, but it was one the Timberwolves shouldn't have lost.`\
+https://nytimes.com/athletic/6054830/2025/01/12/timberwolves-playoff-failures-anthony-edwards-rudy-gobert/
+
 **‘Now Is the Time of Monsters’**\
 `Four trends are converging to make life much scarier.`\
 https://nytimes.com/2025/01/12/opinion/ai-climate-change-low-birth-rates.html
