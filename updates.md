@@ -1,3 +1,7 @@
+**Abigail McGrath, Founder of an Experimental Theater, Dies at 84**\
+`She was an aspiring actor when she was cast in an Andy Warhol film called “Tub Girls.” But she was best known for the beloved Off Center Theater.`\
+https://nytimes.com/2025/01/12/theater/abigail-mcgrath-dead.html
+
 **Restart Your Sourdough Starter**\
 `Feed it some flour and water, and watch as it blooms back into funky, bubbly excellence, ready for pancakes or waffles.`\
 https://nytimes.com/2025/01/12/dining/sourdough-waffles.html

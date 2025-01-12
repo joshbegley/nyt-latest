@@ -1,3 +1,7 @@
+**Abigail McGrath, Founder of an Experimental Theater, Dies at 84**\
+`She was an aspiring actor when she was cast in an Andy Warhol film called “Tub Girls.” But she was best known for the beloved Off Center Theater.`\
+https://nytimes.com/2025/01/12/theater/abigail-mcgrath-dead.html
+
 **Restart Your Sourdough Starter**\
 `Feed it some flour and water, and watch as it blooms back into funky, bubbly excellence, ready for pancakes or waffles.`\
 https://nytimes.com/2025/01/12/dining/sourdough-waffles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055233/2025/01/12/australian-open-schedule-day-two
 **Pardoned by Trump, Manafort Is Back and Looking for Foreign Work**\
 `The president-elect’s 2016 campaign chairman, four years after receiving clemency, is testing the international market with a team of Trump-linked consultants.`\
 https://nytimes.com/2025/01/12/us/politics/trump-manafort.html
-
-**Liverpool recall Gordon from Norwich loan, Ramsay set for Kilmarnock**\
-`Liverpool have taken the decision to recall youngster Kaide Gordon from his loan spell at Norwich City due to a lack of game time.`\
-https://nytimes.com/athletic/6055500/2025/01/12/kaide-gordon-loan-liverpool/
 
