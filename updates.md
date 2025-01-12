@@ -1,3 +1,7 @@
+**Sabres fans voice frustration as team collapses with Terry Pegula in attendance**\
+`Pegula watched as the Sabres blew a two-goal lead and allowed six unanswered goals for a 6-2 collapse to the Kraken.`\
+https://nytimes.com/athletic/6054894/2025/01/11/sabres-owner-terry-pegula-kraken/
+
 **Sabres fans yell ‘sell the team’ with owner Terry Pegula in attendance**\
 `Pegula watched as the Sabres blew a two-goal lead and allowed six unanswered goals for a 6-2 collapse to the Kraken.`\
 https://nytimes.com/athletic/6054894/2025/01/11/sabres-owner-terry-pegula-kraken/
