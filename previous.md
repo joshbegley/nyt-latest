@@ -1,3 +1,7 @@
+**Pitt stuns SMU to set largest comeback in women's basketball history**\
+`Pitt held SMU scoreless in the third quarter, the first time an ACC team failed to score in a quarter since FSU in 2018.`\
+https://nytimes.com/athletic/6056523/2025/01/12/pitt-womens-basketball-largest-comeback-ncaa-history/
+
 **Give In to Gravity**\
 `Adam Levav makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/01/12/crosswords/daily-puzzle-2025-01-13.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056170/2025/01/12/arsenal-man-united-penalties/
 **Allen powers Bills past Broncos 31-7, into showdown with Ravens: Takeaways**\
 `James Cook led Buffalo's backfield to 210 rushing yards against a Denver defense that ranked third-best in the NFL at stopping the run.`\
 https://nytimes.com/athletic/6055896/2025/01/12/bills-game-score-playoffs-takeaways-wild-card/
-
-**‘Will Pay Any Amount:’ Private Firefighters Are in Demand in L.A.**\
-`Hiring a private fire crew costs thousands of dollars a day, and most work through government contracts or with insurance companies. Some wealthy property owners are calling them in directly.`\
-https://nytimes.com/2025/01/12/us/private-firefighters-la-wildfires.html
 
