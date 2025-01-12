@@ -1,3 +1,7 @@
+**Synagogue Congregation Grieves in Borrowed Home After L.A. Fires**\
+`Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
+https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
+
 **Maple Leafs report cards: A lifeless effort leads to an ugly performance**\
 `Maple Leafs fans booed their team off the ice after a 3-0 loss to the Canucks on Saturday night.`\
 https://nytimes.com/athletic/6054803/2025/01/11/maple-leafs-canucks-grades-analysis/
