@@ -1,3 +1,7 @@
+**Liverpool recall Gordon from Norwich loan, Ramsay set for Kilmarnock**\
+`Liverpool have taken the decision to recall youngster Kaide Gordon from his loan spell at Norwich City due to a lack of game time.`\
+https://nytimes.com/athletic/6055500/2025/01/12/kaide-gordon-loan-liverpool/
+
 **Australian Open day 1 takeaways: Melbourne weather thunders over five-set epics**\
 `Rain poured over the Australian Open, but the tennis under the roofs made up for the deluge`\
 https://nytimes.com/athletic/6054821/2025/01/12/australian-open-day-1-takeaways-melbourne-weather-hady-habib-tennis-lebanon/
