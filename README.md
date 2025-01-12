@@ -1,3 +1,11 @@
+**In manhandling Steelers, Ravens show their playoff potential: 'This is the appetizer'**\
+`A Baltimore team that's made it look difficult at times in previous postseasons made it look effortless in dominating its biggest rival.`\
+https://nytimes.com/athletic/6055277/2025/01/12/ravens-win-steelers-wild-card-playoffs/
+
+**Here’s the latest on the fires.**\
+`By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/heres-the-latest-on-the-fires
+
 **Trump Calls Officials Handling Los Angeles Wildfires ‘Incompetent’**\
 `Governor Gavin Newsom and Los Angeles County authorities have invited President-elect Donald J. Trump to tour the devastation, but he has not publicly responded.`\
 https://nytimes.com/2025/01/12/us/trump-los-angeles-fire-newsom-bass.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/12/style/fashion-new-designers-chanel.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/12/crosswords/spelling-bee-forum.html
-
-**Wild takeaways: A gem by Marc-Andre Fleury, top line bounces back, Kirill Kaprizov update**\
-`After recovering from stomach flu, Fleury was the best Wild player on the ice — by far — in lifting the Wild to a 3-1 win over the Sharks.`\
-https://nytimes.com/athletic/6055243/2025/01/12/marc-andre-fleury-kaprizov-update-wild-takeaways/
-
-**A bold prediction for 2025: The Rangers are making the playoffs**\
-`After toughing out a 2-1 win over the Golden Knights on Saturday, the Rangers look like a playoff team.`\
-https://nytimes.com/athletic/6055197/2025/01/12/rangers-playoffs-prediction-2025/
 
