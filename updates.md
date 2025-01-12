@@ -1,3 +1,7 @@
+**Fullkrug to miss 'a number of weeks' with hamstring injury, club say**\
+`West Ham United have said striker Niclas Fullkrug will be sidelined for &#8220;a number of weeks&#8221; with a hamstring injury.`\
+https://nytimes.com/athletic/6055363/2025/01/12/niclas-fullkrug-hamstring-injury/
+
 **Israeli Security Chiefs Join Critical Talks for a Cease-Fire in Gaza**\
 `Pressure is on to reach a deal that would see Hamas release at least some hostages before President-elect Donald J. Trump takes office.`\
 https://nytimes.com/2025/01/12/world/middleeast/israeli-security-chiefs-gaza-cease-fire.html
