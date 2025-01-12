@@ -1,3 +1,7 @@
+**‘It was like a passing thunderstorm,’ resident says of Mandeville Canyon fire.**\
+`By Sam Stanton`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/it-was-like-a-passing-thunderstorm-resident-says-of-mandeville-canyon-fire
+
 **Newsom suspends state environmental rules for rebuilding after fires.**\
 `By Conor Dougherty`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/newsom-suspends-state-environmental-rules-for-rebuilding-after-fires

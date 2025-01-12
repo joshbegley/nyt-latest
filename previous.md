@@ -1,3 +1,7 @@
+**‘It was like a passing thunderstorm,’ resident says of Mandeville Canyon fire.**\
+`By Sam Stanton`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/it-was-like-a-passing-thunderstorm-resident-says-of-mandeville-canyon-fire
+
 **Newsom suspends state environmental rules for rebuilding after fires.**\
 `By Conor Dougherty`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/newsom-suspends-state-environmental-rules-for-rebuilding-after-fires
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055963/2025/01/12/manchester-united-fa-cup-win-ars
 **Richard Hays, 76, Dies; Theologian Who Had Stunning Change of Heart**\
 `He released a thunderclap into the evangelical world by asserting that a deeper reading of the Bible revealed that same-sex relationships are not sinful.`\
 https://nytimes.com/2025/01/12/us/richard-hays-dead.html
-
-**FA Cup fourth-round draw: Man Utd vs Leicester**\
-`FA Cup holders Manchester United will play Leicester City in the FA Cup fourth round.`\
-https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-fourth-round-draw-manchester-united-leicester/
 
