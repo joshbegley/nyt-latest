@@ -1,3 +1,7 @@
+**Kamala Harris Shares a Trump-less Photo of Presidents at Jimmy Carter’s Funeral**\
+`Pictures shared on social media by the vice president and by the Carter Center prominently showed other past presidents in attendance.`\
+https://nytimes.com/2025/01/11/us/politics/trump-photo-carter-funeral.html
+
 **Canada and Mexico Are Sending Teams to Help California Fight the Fires**\
 `Air tankers, firefighters and technicians from the neighboring countries are on their way to Los Angeles in a show of solidarity.`\
 https://nytimes.com/2025/01/11/us/mexico-canada-firefighters-california.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stro
 **Amid L.A. Evacuations, Fears of Looting Take Hold**\
 `Residents barred from returning to their neighborhoods face a secondary threat, and the city, with painful collective memories of looting, is on guard.`\
 https://nytimes.com/2025/01/11/us/la-fires-evacuation-looting.html
-
-**Scott Servais joins Padres as special assistant: Sources**\
-`Servais, who managed the Mariners for nine seasons, worked alongside Padres president A.J. Preller with the Texas Rangers.`\
-https://nytimes.com/athletic/6054415/2025/01/11/padres-scott-servais/
 
