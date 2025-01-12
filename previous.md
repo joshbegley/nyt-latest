@@ -1,3 +1,7 @@
+**Newsom suspends state environmental rules for rebuilding after fires.**\
+`By Conor Dougherty`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/newsom-suspends-state-environmental-rules-for-rebuilding-after-fires
+
 **Newcastle's Barnes suffers muscle injury in FA Cup win over Bromley**\
 `Harvey Barnes was forced off at half-time of Newcastle United&#8217;s 3-1 victory over Bromley in the FA Cup third round due to an unspecified muscular injury.`\
 https://nytimes.com/athletic/6056126/2025/01/12/harvey-barnes-injury-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/us/richard-hays-dead.html
 **FA Cup fourth-round draw: Man Utd vs Leicester**\
 `FA Cup holders Manchester United will play Leicester City in the FA Cup fourth round.`\
 https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-fourth-round-draw-manchester-united-leicester/
-
-**The Briefing: Arsenal 1 Man United 1 (Utd win 5-3 on pens) - missed chances, a red, pens and needle in cup thriller**\
-`Analysis of an entertaining FA Cup third-round tie between Arsenal and Manchester United at the Emirates.`\
-https://nytimes.com/athletic/6053551/2025/01/12/arsenal-manchester-united-fa-cup/
 

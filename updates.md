@@ -1,3 +1,7 @@
+**Newsom suspends state environmental rules for rebuilding after fires.**\
+`By Conor Dougherty`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/newsom-suspends-state-environmental-rules-for-rebuilding-after-fires
+
 **Newcastle's Barnes suffers muscle injury in FA Cup win over Bromley**\
 `Harvey Barnes was forced off at half-time of Newcastle United&#8217;s 3-1 victory over Bromley in the FA Cup third round due to an unspecified muscular injury.`\
 https://nytimes.com/athletic/6056126/2025/01/12/harvey-barnes-injury-newcastle/
