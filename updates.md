@@ -1,3 +1,7 @@
+**Trump Calls Officials Handling Los Angeles Wildfires ‘Incompetent’**\
+`Governor Gavin Newsom and the city authorities have invited President-elect Donald J. Trump to tour the devastation, but he has not publicly responded.`\
+https://nytimes.com/2025/01/12/us/trump-los-angeles-fire-newsom-bass.html
+
 **Live Updates: Weary L.A. Endures a Sixth Day of Massive Fires**\
 `The two largest blazes have killed at least 16 people and destroyed thousands of structures. Strong winds forecast for Sunday could spread flames further.`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california
