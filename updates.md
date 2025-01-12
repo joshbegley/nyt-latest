@@ -1,3 +1,11 @@
+**Stagehands Walk Off the Job at Atlantic Theater Company**\
+`The stage employees union accused the nonprofit theater of stalling talks. The strike forced the cancellation of Sunday performances of two new plays.`\
+https://nytimes.com/2025/01/12/theater/atlantic-theater-stagehands-strike.html
+
+**How Broncos fell apart in second half of 31-7 wild-card loss: Takeaways**\
+`Bo Nix led Denver to an early lead, but a hungry Buffalo team with Super Bowl LIX ambitions proved to be too much on Sunday.`\
+https://nytimes.com/athletic/6056077/2025/01/12/broncos-game-score-playoffs-takeaways-wild-card/
+
 **An Expert Explains Palisades Fire’s Behavior**\
 `The blaze, which has burned 23,700 acres in western Los Angeles since starting on Jan. 7, has been tricky to wrangle. Its northern edge, by Mandeville Canyon, is the area of biggest concern, said Robert Clark of Cal Fire.`\
 https://nytimes.com/2025/01/12/us/palisades-fire-behavior.html
