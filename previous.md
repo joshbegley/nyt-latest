@@ -1,3 +1,7 @@
+**Sabres fans yell ‘sell the team’ with owner Terry Pegula in attendance**\
+`Pegula watched as the Sabres blew a two-goal lead and allowed six unanswered goals for a 6-2 collapse to the Kraken.`\
+https://nytimes.com/athletic/6054894/2025/01/11/sabres-owner-terry-pegula-kraken/
+
 **As the cadaver dogs begin their search, a grim reality sets in for one sheriff.**\
 `Sheriff Robert Luna, of Los Angeles County, sAltadena on Saturday afternoon in what`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/as-the-cadaver-dogs-begin-their-search-a-grim-reality-sets-in-for-one-sheriff
@@ -33,9 +37,4 @@ https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/los-angeles-
 **The Palisades fire threatens Mandeville Canyon homes.**\
 `By Sam Stanton, Amy Graff and Isabelle Taft`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/the-palisades-fire-threatens-mandeville-canyon-homes
-
-**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
-`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
-`\
-https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
 
