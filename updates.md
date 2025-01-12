@@ -1,3 +1,7 @@
+**Federal Court Blocks Transfer of Guantánamo Convict to Prison in Iraq**\
+`The Iraqi prisoner had sued the Biden administration, saying he would be at risk for abuse at a prison in his homeland.`\
+https://nytimes.com/2025/01/12/us/politics/guantanamo-iraq-transfer-court.html
+
 **Lowetide: How are the Oilers' AHL forwards spiking offensively?**\
 `Edmonton suffered a hiccup with the prospect pool up front over the last two seasons but seems to be on track now.`\
 https://nytimes.com/athletic/6054176/2025/01/12/oilers-ahl-forwards-stats-2025/
