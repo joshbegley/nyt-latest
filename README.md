@@ -1,3 +1,11 @@
+**Amorim: Man United deserved win at Arsenal, controlled game without the ball**\
+`Ruben Amorim has said Manchester United deserved to progress past Arsenal in the FA Cup and that they controlled the game without the ball.`\
+https://nytimes.com/athletic/6055963/2025/01/12/manchester-united-fa-cup-win-arsenal/
+
+**Richard Hays, 76, Dies; Theologian Who Had Stunning Change of Heart**\
+`He released a thunderclap into the evangelical world by asserting that a deeper reading of the Bible revealed that same-sex relationships are not sinful.`\
+https://nytimes.com/2025/01/12/us/richard-hays-76-dies-theologian-who-had-stunning-change-of-heart.html
+
 **FA Cup fourth-round draw: Man Utd vs Leicester**\
 `FA Cup holders Manchester United will play Leicester City in the FA Cup fourth round.`\
 https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-third-round-draw-manchester-united-leicester/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/12/theater/abigail-mcgrath-dead.html
 **Restart Your Sourdough Starter**\
 `Feed it some flour and water, and watch as it blooms back into funky, bubbly excellence, ready for pancakes or waffles.`\
 https://nytimes.com/2025/01/12/dining/sourdough-waffles.html
-
-**Stronger Santa Ana Winds to Return, and Risk May Rise to ‘Extreme’**\
-`After a brief break on Sunday afternoon, another prolonged round of gusty Santa Ana winds is expected to develop, forecasters say.`\
-https://nytimes.com/2025/01/12/us/santa-ana-winds-fires-california.html
-
-**Italian Justice Ministry Moves to Release Iranian Man Sought by the U.S.**\
-`The request to revoke the man’s arrest came only days after Iran released an Italian journalist. Iranian state news said the man was now in Tehran, but Italy has not confirmed that.`\
-https://nytimes.com/2025/01/12/world/europe/italy-iran-us-abedini.html
 
