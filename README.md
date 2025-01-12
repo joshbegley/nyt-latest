@@ -1,3 +1,11 @@
+**Druse Leader Aims to Secure Place for Syrian Minorities**\
+`Despite assurances from the rebels-turned-leaders, members of some religious groups worry what life will be like for them in a post-Assad Syria.`\
+https://nytimes.com/2025/01/12/world/middleeast/syira-druse-diplomacy.html
+
+**Before Taking Office, L.A.’s Mayor Said She Would Not Go Abroad**\
+`Mayor Karen Bass of Los Angeles has been criticized for being out of the country when the wildfires broke out. Three years ago, she promised in an interview to cut back on her world travel and focus on the city.`\
+https://nytimes.com/2025/01/12/us/karen-bass-ghana-wildfire-travel-los-angeles.html
+
 **The Arsenal-Man United shootout analysed: Stutter-steps, Bayindir's magic and Zirkzee's redemption**\
 `An enthralling FA Cup third-round tie came down to penalties - this is how United came out on top.`\
 https://nytimes.com/athletic/6056170/2025/01/12/arsenal-man-united-penalties/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/containing-t
 **Monday Briefing: Number of Missing Rises in L.A.**\
 `Plus, how cured ham fixed an antique organ in France.`\
 https://nytimes.com/2025/01/12/briefing/los-angeles-fires-sudan-brazil-gambling.html
-
-**‘It was like a passing thunderstorm,’ resident says of Mandeville Canyon fire.**\
-`By Sam Stanton`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/it-was-like-a-passing-thunderstorm-resident-says-of-mandeville-canyon-fire
-
-**Newsom suspends state environmental rules for rebuilding after fires.**\
-`By Conor Dougherty`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/newsom-suspends-state-environmental-rules-for-rebuilding-after-fires
 
