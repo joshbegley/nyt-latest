@@ -1,3 +1,7 @@
+**Tom Brady's influence? Timeline? What we're hearing about Raiders coach and GM search**\
+`Brady is supposedly only in an advisory role for the Raiders, though several league sources are convinced his influence is much greater.`\
+https://nytimes.com/athletic/6055060/2025/01/12/raiders-coach-gm-search-tom-brady/
+
 **Australian Open day two watch guide: The stars come out on a manic Monday**\
 `A star-studded day two at the Australian Open promises fireworks`\
 https://nytimes.com/athletic/6055233/2025/01/12/australian-open-schedule-day-two-sinner-alcaraz-djokovic-gauff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/us/malibu-palisades-fire-mayor.html
 **Israeli Security Chiefs Join Critical Talks for a Cease-Fire in Gaza**\
 `Pressure is on to reach a deal that would see Hamas release at least some hostages before President-elect Donald J. Trump takes office.`\
 https://nytimes.com/2025/01/12/world/middleeast/israeli-security-chiefs-gaza-cease-fire.html
-
-**Celebrity Moguls**\
-`We cover the rise of entrepreneurship in Hollywood.`\
-https://nytimes.com/2025/01/12/briefing/celebrity-brands.html
 
