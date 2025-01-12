@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6054939/2025/01/11/pistons-raptors-nba-draft-lotter
 `By Jacob Bernstein`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/at-a-palisades-mobile-home-park-middle-class-dreams-lie-in-ruins
 
-**Synagogue Congregation Grieves in New Home After L.A. Fires**\
+**Synagogue Congregation Grieves in Borrowed Home After L.A. Fires**\
 `Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
 https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
 
