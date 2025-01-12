@@ -1,3 +1,7 @@
+**Australian Open day two watch guide: The stars come out on a manic Monday**\
+`A star-studded day two at the Australian Open promises fireworks`\
+https://nytimes.com/athletic/6055233/2025/01/12/australian-open-schedule-day-two-sinner-alcaraz-djokovic-gauff/
+
 **Pardoned by Trump, Manafort Is Back and Looking for Foreign Work**\
 `The president-elect’s 2016 campaign chairman, four years after receiving clemency, is testing the international market with a team of Trump-linked consultants.`\
 https://nytimes.com/2025/01/12/us/politics/trump-manafort.html
