@@ -1,3 +1,15 @@
+**On a Screen, Devastation**\
+`As catastrophic fires consume homes in California, the owners can watch the unfolding tragedy through Ring and Nest cameras.`\
+https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
+
+**How to Protect Your Home From Wildfires**\
+`Thousands of wildfires rage across California every year. No matter where you are, it’s important to learn how to minimize their threat.`\
+https://nytimes.com/2025/01/12/realestate/how-to-protect-your-home-from-wildfires.html
+
+**The Pulse: An unprecedented Playoff finale**\
+`Welcome to The Pulse, The Athetic's daily sports business newsletter. `\
+https://nytimes.com/athletic/6055787/2025/01/12/notre-dame-ohio-state-cfp-the-pulse/
+
 **Abigail McGrath, Founder of an Experimental Theater, Dies at 84**\
 `She was an aspiring actor when she was cast in an Andy Warhol film called “Tub Girls.” But she was best known for the beloved Off Center Theater.`\
 https://nytimes.com/2025/01/12/theater/abigail-mcgrath-dead.html
