@@ -1,3 +1,7 @@
+**Italian Justice Ministry Moves to Release Iranian Man Sought by the U.S.**\
+`The request to revoke the man’s arrest — citing a lack of grounds for extradition — came just days after Iran had released an Italian journalist being held in Tehran.`\
+https://nytimes.com/2025/01/12/world/europe/italian-justice-ministry-moves-to-release-iranian-man-sought-by-the-us.html
+
 **Federal Court Blocks Transfer of Guantánamo Convict to Prison in Iraq**\
 `The Iraqi prisoner had sued the Biden administration, saying he would be at risk for abuse at a prison in his homeland.`\
 https://nytimes.com/2025/01/12/us/politics/guantanamo-iraq-transfer-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054821/2025/01/12/australian-open-day-1-takeaways-
 **More Public Restrooms Are Sorely Needed**\
 `Readers offer solutions in New York and elsewhere. Also: A soldier’s moral trauma; doctors weighing patients; access to environmental data.`\
 https://nytimes.com/2025/01/12/opinion/nyc-public-restrooms.html
-
-**Real estate on L.A.’s west side grows further out of reach with the fires.**\
-`By Finn-Olaf Jones`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/real-estate-on-las-west-side-grows-farther-out-of-reach-with-the-fires
 
