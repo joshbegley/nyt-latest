@@ -1,3 +1,7 @@
+**How to Make It to Jan. 31 Without Losing Your Mind**\
+`Lotion! Heating pads! Sketchy space heaters!`\
+https://nytimes.com/2025/01/12/opinion/january-survival-winter-sad.html
+
 **The steady maturing of Lane Hutson’s NHL game is unjustly falling under the radar**\
 `Hutson's offensive exploits are well known, but his ability to perform in a mistake-free environment has been under-appreciated.`\
 https://nytimes.com/athletic/6055220/2025/01/12/canadiens-rookie-lane-hutson-maturity/
