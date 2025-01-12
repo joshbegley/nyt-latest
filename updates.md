@@ -1,3 +1,7 @@
+**Give In to Gravity**\
+`Adam Levav makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/01/12/crosswords/daily-puzzle-2025-01-13.html
+
 **Blackhawks affiliate Rockford IceHogs to host 2026 AHL All-Star Classic**\
 `The skills competition will be held on Feb. 10 and the All-Star Game on Feb. 11 at BMO Center in Rockford.`\
 https://nytimes.com/athletic/6055840/2025/01/12/blackhawks-rockford-icehogs-ahl-all-star/
