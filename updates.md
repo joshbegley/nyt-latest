@@ -1,3 +1,7 @@
+**Patriots hiring Mike Vrabel as next head coach: Sources**\
+`The Patriots are expected to name Mike Vrabel the 16th head coach in franchise history.`\
+https://nytimes.com/athletic/6052753/2025/01/12/mike-vrabel-patriots-head-coach-hiring/
+
 **Tom Brady's influence? Timeline? What we're hearing about Raiders coach and GM search**\
 `Brady is supposedly only in an advisory role for the Raiders, though several league sources are convinced his influence is much greater.`\
 https://nytimes.com/athletic/6055060/2025/01/12/raiders-coach-gm-search-tom-brady/
