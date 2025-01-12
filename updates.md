@@ -1,3 +1,7 @@
+**Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
+`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
+https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-tennis-australian-open/
+
 **As they reformulate tennis geometry, Alcaraz and Sinner are forcing everyone else to think and play differently**\
 `The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
 https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-tennis-australian-open/
