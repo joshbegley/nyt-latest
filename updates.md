@@ -1,3 +1,7 @@
+**Containing the Palisades fire means weighing winds and topography.**\
+`By Amy Graff`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/containing-the-palisades-fire-means-weighing-winds-and-topography
+
 **Monday Briefing: Number of Missing Rises in L.A.**\
 `Plus, how cured ham fixed an antique organ in France.`\
 https://nytimes.com/2025/01/12/briefing/los-angeles-fires-sudan-brazil-gambling.html

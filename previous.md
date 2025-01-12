@@ -1,3 +1,7 @@
+**Containing the Palisades fire means weighing winds and topography.**\
+`By Amy Graff`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/containing-the-palisades-fire-means-weighing-winds-and-topography
+
 **Monday Briefing: Number of Missing Rises in L.A.**\
 `Plus, how cured ham fixed an antique organ in France.`\
 https://nytimes.com/2025/01/12/briefing/los-angeles-fires-sudan-brazil-gambling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055671/2025/01/12/gabriel-jesus-injury-arsenal-fa-
 **Blue Jackets Sunday Gathering: Don Waddell may face good problem at NHL trade deadline**\
 `The Blue Jackets are currently in a playoff spot. If they remain there, how will Waddell handle one of the biggest days on the NHL calendar?`\
 https://nytimes.com/athletic/6054278/2025/01/12/blue-jackets-nhl-trade-deadline-playoffs/
-
-**Amorim: Man United deserved win at Arsenal, controlled game without the ball**\
-`Ruben Amorim has said Manchester United deserved to progress past Arsenal in the FA Cup and that they controlled the game without the ball.`\
-https://nytimes.com/athletic/6055963/2025/01/12/manchester-united-fa-cup-win-arsenal/
 
