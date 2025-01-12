@@ -1,3 +1,7 @@
+**Live Updates: Weary L.A. Endures a Sixth Day of Massive Fires**\
+`The two largest blazes have killed at least 16 people and destroyed thousands of structures. Strong winds forecast for Sunday could spread flames further.`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california
+
 **In Canada, Long-Suffering N.F.L. Fans Have Reason to Cheer**\
 `With the Buffalo Bills and Detroit Lions both Super Bowl contenders, fans north of the border are nervously hopeful a title drought could end.`\
 https://nytimes.com/2025/01/12/business/nfl-canada-fans-bills-lions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055197/2025/01/12/rangers-playoffs-prediction-2025
 **The steady maturing of Lane Hutson’s NHL game is unjustly falling under the radar**\
 `Hutson's offensive exploits are well known, but his ability to perform in a mistake-free environment has been under-appreciated.`\
 https://nytimes.com/athletic/6055220/2025/01/12/canadiens-rookie-lane-hutson-maturity/
-
-**Ghosts of Wolves' past playoff failures haunt Anthony Edwards, Rudy Gobert**\
-`It was a terrific fistfight of a game, but it was one the Timberwolves shouldn't have lost.`\
-https://nytimes.com/athletic/6054830/2025/01/12/timberwolves-playoff-failures-anthony-edwards-rudy-gobert/
 
