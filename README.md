@@ -3,7 +3,7 @@
 https://nytimes.com/2025/01/11/us/watch-duty-wildfire-app.html
 
 **Penguins lose focus early as troubling trend continues: 3 takeaways vs. Senators**\
-`The Penguins gave up a goal on the first shot of the game for the ninth time this season in a 5-0 loss to Ottawa.`\
+`Pittsburgh gave up a goal on the first shot of the game for the ninth time this season in a 5-0 loss to Ottawa.`\
 https://nytimes.com/athletic/6054828/2025/01/11/penguins-senators-score-loss-takeaways/
 
 **Kamala Harris Shares a Trump-less Photo of Presidents at Jimmy Carter’s Funeral**\
