@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: Don Waddell may face good problem at NHL trade deadline**\
+`The Blue Jackets are currently in a playoff spot. If they remain there, how will Waddell handle one of the biggest days on the NHL calendar?`\
+https://nytimes.com/athletic/6054278/2025/01/12/blue-jackets-nhl-trade-deadline-playoffs/
+
+**FA Cup fourth-round draw: Man Utd vs Leicester**\
+`FA Cup holders Manchester United will play Leicester City in the FA Cup fourth round.`\
+https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-fourth-round-draw-manchester-united-leicester/
+
 **Amorim: Man United deserved win at Arsenal, controlled game without the ball**\
 `Ruben Amorim has said Manchester United deserved to progress past Arsenal in the FA Cup and that they controlled the game without the ball.`\
 https://nytimes.com/athletic/6055963/2025/01/12/manchester-united-fa-cup-win-arsenal/
