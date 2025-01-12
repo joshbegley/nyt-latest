@@ -53,6 +53,11 @@ https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-j
 `\
 https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
 
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **Texans pick off Herbert 4 times in 32-12 wild-card blowout: Takeaways**\
 `Texans' All-Pro corner Derek Stingley shined, finishing with two picks, a forced fumble and five passes defensed.`\
 https://nytimes.com/athletic/6054219/2025/01/11/chargers-texans-score-result-takeaways/
