@@ -1,3 +1,7 @@
+**Patriots hiring Mike Vrabel as next head coach: Sources**\
+`The Patriots are expected to name Mike Vrabel the 16th head coach in franchise history.`\
+https://nytimes.com/athletic/6052753/2025/01/12/mike-vrabel-patriots-head-coach-hiring/
+
 **Tom Brady's influence? Timeline? What we're hearing about Raiders coach and GM search**\
 `Brady is supposedly only in an advisory role for the Raiders, though several league sources are convinced his influence is much greater.`\
 https://nytimes.com/athletic/6055060/2025/01/12/raiders-coach-gm-search-tom-brady/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055363/2025/01/12/niclas-fullkrug-hamstring-injury
 **Part of Eastern Malibu Is ‘Gone,’ Mayor Says, as Palisades Fire Rages**\
 `A third of eastern Malibu has been destroyed by the blaze, including the communities of Big Rock and Carbon Mesa and a famed stretch of Pacific Coast Highway, officials said.`\
 https://nytimes.com/2025/01/12/us/malibu-palisades-fire-mayor.html
-
-**Israeli Security Chiefs Join Critical Talks for a Cease-Fire in Gaza**\
-`Pressure is on to reach a deal that would see Hamas release at least some hostages before President-elect Donald J. Trump takes office.`\
-https://nytimes.com/2025/01/12/world/middleeast/israeli-security-chiefs-gaza-cease-fire.html
 
