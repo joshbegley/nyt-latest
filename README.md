@@ -1,3 +1,19 @@
+**How the Oilers bounced back, rallied and refused to lose two straight games**\
+`The Oilers overcame a pair of two-goal deficits to gut out a 4-3 win over the Blackhawks.`\
+https://nytimes.com/athletic/6055036/2025/01/12/oilers-blackhawks-connor-mcdavid-zach-hyman/
+
+**Mainoo and Garnacho's futures will test INEOS' strategy - and trust with supporters**\
+`What happens next for Mainoo and Garnacho cuts to the heart of many of the issues giving INEOS a headache at Manchester United`\
+https://nytimes.com/athletic/6054161/2025/01/12/mainoo-garnacho-future-ineos/
+
+**Arsenal vs Man United: Bigger for Arteta or Amorim? Players to watch? Writer predictions**\
+`These old rivals meet in the FA Cup third round today, with both clubs and managers at complicated points in their respective seasons`\
+https://nytimes.com/athletic/6050235/2025/01/12/arsenal-manchester-united-predictions-arteta-amorim/
+
+**The Premier League's December 31 PSR deadline and what happens next**\
+`Within the Premier League's revised financial rules, the end of December was a key date - so why does it matter and what happens next?`\
+https://nytimes.com/athletic/6052014/2025/01/12/premier-league-psr-deadline-december-31-explained/
+
 **Hams in the Belfry: How a Cash-Poor French Cathedral Fixed Its Organ**\
 `A dispute over a project to cure hams in a bell tower underscored the difficulties that churches in France face trying to pay for restorations.`\
 https://nytimes.com/2025/01/12/world/europe/france-cathedral-hams-organ.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6054957/2025/01/11/blackhawks-oilers-coach-anders-s
 **What went wrong in Steelers 28-14 wild-card round loss to the Ravens: Takeaways**\
 `Pittburgh gives up franchise playoff record 299 yards in loss`\
 https://nytimes.com/athletic/6054222/2025/01/11/steelers-wild-card-score-result-takeaways-ravens/
-
-**Jet Greaves impresses and Blue Jackets dig deep for gutsy road win in St. Louis**\
-`Greaves made 31 saves and came within 10.8 seconds of a shutout to lead the Blue Jackets to a hard-fought 2-1 win over the Blues.`\
-https://nytimes.com/athletic/6054931/2025/01/11/blue-jackets-blues-jet-greaves/
-
-**Maple Leafs report cards: A lifeless effort leads to an ugly performance**\
-`Maple Leafs fans booed their team off the ice after a 3-0 loss to the Canucks on Saturday night.`\
-https://nytimes.com/athletic/6054803/2025/01/11/maple-leafs-canucks-grades-analysis/
-
-**Pistons show Raptors pros and cons of depending on draft lottery**\
-`It's been a long journey to .500 for the Pistons, but Cade Cunningham provides hope.`\
-https://nytimes.com/athletic/6054939/2025/01/11/pistons-raptors-nba-draft-lottery/
-
-**At a Palisades mobile home park, middle-class dreams lie in ruins.**\
-`By Jacob Bernstein`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/at-a-palisades-mobile-home-park-middle-class-dreams-lie-in-ruins
 
