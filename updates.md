@@ -1,3 +1,7 @@
+**Resisting Oppression With Creativity, Two Ways**\
+`The Out-Front! Festival at the Brooklyn Academy of Music on Saturday featured thrilling works by Angie Pittman (“Black Life Chord Changes”) and Kyle Marshall (“Joan”).`\
+https://nytimes.com/2025/01/12/arts/dance/angie-pittman-kyle-marshall-bam.html
+
 **3 Humvees and Military Supplies Stolen From Army Reserve Warehouse**\
 `The police in Tustin, Calif., said the Humvees, as well as binoculars, bayonets and machine gun vehicle mounts, had been stolen from an Army Reserve Center.`\
 https://nytimes.com/2025/01/12/us/humvee-army-theft-california.html
