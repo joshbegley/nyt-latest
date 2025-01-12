@@ -1,3 +1,7 @@
+**Cutter Gauthier booed by Flyers fans as raucous crowd's energy fuels blowout win**\
+`“You hear the crowd going like that, it brings so much energy to myself and the whole team,” Jamie Drysdale said.`\
+https://nytimes.com/athletic/6055043/2025/01/12/flyers-cutter-gauthier-ducks/
+
 **Ngumoha, Chiesa and a tale of two wingers hoping to make a Liverpool impact**\
 `Ngumoha became Liverpool's youngest debutant, aged 16, while Chiesa got a rare outing as he tries to kickstart his Anfield career`\
 https://nytimes.com/athletic/6054287/2025/01/12/ngumoha-chiesa-liverpool-accrington/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055036/2025/01/12/oilers-blackhawks-connor-mcdavid
 **Mainoo and Garnacho's futures will test INEOS' strategy - and trust with supporters**\
 `What happens next for Mainoo and Garnacho cuts to the heart of many of the issues giving INEOS a headache at Manchester United`\
 https://nytimes.com/athletic/6054161/2025/01/12/mainoo-garnacho-future-ineos/
-
-**Arsenal vs Man United: Bigger for Arteta or Amorim? Players to watch? Writer predictions**\
-`These old rivals meet in the FA Cup third round today, with both clubs and managers at complicated points in their respective seasons`\
-https://nytimes.com/athletic/6050235/2025/01/12/arsenal-manchester-united-predictions-arteta-amorim/
 

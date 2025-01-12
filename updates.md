@@ -1,3 +1,7 @@
+**Cutter Gauthier booed by Flyers fans as raucous crowd's energy fuels blowout win**\
+`“You hear the crowd going like that, it brings so much energy to myself and the whole team,” Jamie Drysdale said.`\
+https://nytimes.com/athletic/6055043/2025/01/12/flyers-cutter-gauthier-ducks/
+
 **Ngumoha, Chiesa and a tale of two wingers hoping to make a Liverpool impact**\
 `Ngumoha became Liverpool's youngest debutant, aged 16, while Chiesa got a rare outing as he tries to kickstart his Anfield career`\
 https://nytimes.com/athletic/6054287/2025/01/12/ngumoha-chiesa-liverpool-accrington/
