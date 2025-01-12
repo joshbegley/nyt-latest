@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Man United 1 (Utd win 5-3 on pens): Missed chances, reds, pens and needle in cup thriller**\
+`Analysis of an entertaining FA Cup third-round tie between Arsenal and Manchester United at the Emirates.`\
+https://nytimes.com/athletic/6053551/2025/01/12/arsenal-manchester-united-fa-cup/
+
 **Trump Discusses Tax Cuts for New Yorkers With G.O.P. Lawmakers**\
 `The president-elect told Republicans from New York, New Jersey and California to come up with a plan for increasing the state and local tax deduction — a move that would benefit their constituents.`\
 https://nytimes.com/2025/01/12/us/politics/trump-salt-tax-new-york-new-jersey.html

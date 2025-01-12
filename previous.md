@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Man United 1 (Utd win 5-3 on pens): Missed chances, reds, pens and needle in cup thriller**\
+`Analysis of an entertaining FA Cup third-round tie between Arsenal and Manchester United at the Emirates.`\
+https://nytimes.com/athletic/6053551/2025/01/12/arsenal-manchester-united-fa-cup/
+
 **Trump Discusses Tax Cuts for New Yorkers With G.O.P. Lawmakers**\
 `The president-elect told Republicans from New York, New Jersey and California to come up with a plan for increasing the state and local tax deduction — a move that would benefit their constituents.`\
 https://nytimes.com/2025/01/12/us/politics/trump-salt-tax-new-york-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/world/europe/italy-iran-us-abedini.html
 **Federal Court Blocks Transfer of Guantánamo Convict to Prison in Iraq**\
 `The Iraqi prisoner had sued the Biden administration, saying he would be at risk for abuse at a prison in his homeland.`\
 https://nytimes.com/2025/01/12/us/politics/guantanamo-iraq-transfer-court.html
-
-**Lowetide: How are the Oilers' AHL forwards spiking offensively?**\
-`Edmonton suffered a hiccup with the prospect pool up front over the last two seasons but seems to be on track now.`\
-https://nytimes.com/athletic/6054176/2025/01/12/oilers-ahl-forwards-stats-2025/
 
