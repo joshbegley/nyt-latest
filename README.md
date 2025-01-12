@@ -1,3 +1,7 @@
+**Celebrity Moguls**\
+`We cover the rise of entrepreneurship in Hollywood.`\
+https://nytimes.com/2025/01/12/briefing/celebrity-brands.html
+
 **Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
 `The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
 https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-ten
 **The Sunday Read: ‘What Alice Munro Knew’**\
 `The Nobel-winning author’s husband was a pedophile who targeted her daughter and other children. Why did she stay silent?`\
 https://nytimes.com/2025/01/12/podcasts/the-daily/alice-munro-andrea-skinner-abuse.html
-
-**The Connections Companion No. 582**\
-`Scroll down for hints and conversation about the puzzle for Monday, Jan. 13, 2025.`\
-https://nytimes.com/2025/01/12/crosswords/connections-companion-582.html
 
