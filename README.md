@@ -1,3 +1,15 @@
+**Ngumoha, Chiesa and a tale of two wingers hoping to make a Liverpool impact**\
+`Ngumoha became Liverpool's youngest debutant, aged 16, while Chiesa got a rare outing as he tries to kickstart his Anfield career`\
+https://nytimes.com/athletic/6054287/2025/01/12/ngumoha-chiesa-liverpool-accrington/
+
+**Norwich 0-4 Brighton: Enciso and Rutter provide a solution, March gives Hurzeler goosebumps**\
+`Fabian Hurzeler was rewarded for treating the FA Cup with respect in the 31-year-old German's first experience of the competition`\
+https://nytimes.com/athletic/6054288/2025/01/12/brighton-norwich-hurzeler-march/
+
+**What a Clasico Supercopa in Jeddah tells us about the relationship between Spain and Saudi Arabia**\
+`The growing football bond between the two nations explained`\
+https://nytimes.com/athletic/6046574/2025/01/12/what-a-clasico-supercopa-in-jeddah-tells-us-about-spain-and-saudi-arabias-relationship/
+
 **Sunderland's £16m Le Fee signing is a gear change and a statement of Premier League intent**\
 `The Championship side's form over the Christmas period convinced the hierarchy that promotion is a possibility worth pushing for this year`\
 https://nytimes.com/athletic/6054418/2025/01/12/enzo-le-fee-sunderland-stoke/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6054161/2025/01/12/mainoo-garnacho-future-ineos/
 **Arsenal vs Man United: Bigger for Arteta or Amorim? Players to watch? Writer predictions**\
 `These old rivals meet in the FA Cup third round today, with both clubs and managers at complicated points in their respective seasons`\
 https://nytimes.com/athletic/6050235/2025/01/12/arsenal-manchester-united-predictions-arteta-amorim/
-
-**The Premier League's December 31 PSR deadline and what happens next**\
-`Within the Premier League's revised financial rules, the end of December was a key date - so why does it matter and what happens next?`\
-https://nytimes.com/athletic/6052014/2025/01/12/premier-league-psr-deadline-december-31-explained/
-
-**Hams in the Belfry: How a Cash-Poor French Cathedral Fixed Its Organ**\
-`A dispute over a project to cure hams in a bell tower underscored the difficulties that churches in France face trying to pay for restorations.`\
-https://nytimes.com/2025/01/12/world/europe/france-cathedral-hams-organ.html
-
-**Arsenal vs Manchester United preview, odds, prediction for tantalising FA Cup fixture**\
-`Arsenal and Manchester United are paired together for the third round of the FA Cup, which is the most noteworthy fixture of the round.`\
-https://nytimes.com/athletic/6052741/2025/01/12/arsenal-manchester-united-preview-odds-prediction-fa-cup/
 
