@@ -1,3 +1,7 @@
+**Real estate on L.A.’s west side grows farther out of reach with the fires.**\
+`By Finn-Olaf Jones`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/real-estate-on-las-west-side-grows-farther-out-of-reach-with-the-fires
+
 **Fullkrug to miss 'a number of weeks' with hamstring injury, club say**\
 `West Ham United have said striker Niclas Fullkrug will be sidelined for &#8220;a number of weeks&#8221; with a hamstring injury.`\
 https://nytimes.com/athletic/6055363/2025/01/12/niclas-fullkrug-hamstring-injury/
