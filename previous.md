@@ -1,3 +1,7 @@
+**PWHL sets U.S. attendance record in Denver as part of Takeover Tour**\
+`Over 14,000 fans packed Ball Arena to watch the Minnesota Frost and Montreal Victoire play in Denver.`\
+https://nytimes.com/athletic/6056541/2025/01/12/pwhl-us-attendance-record-denver/
+
 **Stagehands Walk Off the Job at Atlantic Theater Company**\
 `The stage employees union accused the nonprofit theater of stalling talks. The strike forced the cancellation of Sunday performances of two new plays.`\
 https://nytimes.com/2025/01/12/theater/atlantic-theater-stagehands-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/at-least-16-
 **The Briefing: Real Madrid 2 Barcelona 5 - Yamal and Co inflict a historic humiliation**\
 `Barca put four goals past Madrid in consecutive matches for the first time in Clasico history. Our writers analyse the key talking points`\
 https://nytimes.com/athletic/6053562/2025/01/12/real-madrid-2-barcelona-5-clasico-humiliation/
-
-**Buckley: Patriots’ next move after Mike Vrabel hire is to get their house in order**\
-`The Pats were thought to be rebuilding a few years ago. Looking back on it, from Tom Brady's exit to Jerod Mayo's, they were falling apart. `\
-https://nytimes.com/athletic/6056171/2025/01/12/mike-vrabel-patriots-coach-hiring-column/
 

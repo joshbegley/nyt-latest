@@ -1,3 +1,7 @@
+**PWHL sets U.S. attendance record in Denver as part of Takeover Tour**\
+`Over 14,000 fans packed Ball Arena to watch the Minnesota Frost and Montreal Victoire play in Denver.`\
+https://nytimes.com/athletic/6056541/2025/01/12/pwhl-us-attendance-record-denver/
+
 **Stagehands Walk Off the Job at Atlantic Theater Company**\
 `The stage employees union accused the nonprofit theater of stalling talks. The strike forced the cancellation of Sunday performances of two new plays.`\
 https://nytimes.com/2025/01/12/theater/atlantic-theater-stagehands-strike.html
