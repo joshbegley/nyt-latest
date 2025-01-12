@@ -1,3 +1,7 @@
+**Monday Briefing: Number of Missing Rises in L.A.**\
+`Plus, how cured ham fixed an antique organ in France.`\
+https://nytimes.com/2025/01/12/briefing/los-angeles-fires-sudan-brazil-gambling.html
+
 **‘It was like a passing thunderstorm,’ resident says of Mandeville Canyon fire.**\
 `By Sam Stanton`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/it-was-like-a-passing-thunderstorm-resident-says-of-mandeville-canyon-fire
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054278/2025/01/12/blue-jackets-nhl-trade-deadline-
 **Amorim: Man United deserved win at Arsenal, controlled game without the ball**\
 `Ruben Amorim has said Manchester United deserved to progress past Arsenal in the FA Cup and that they controlled the game without the ball.`\
 https://nytimes.com/athletic/6055963/2025/01/12/manchester-united-fa-cup-win-arsenal/
-
-**Richard Hays, 76, Dies; Theologian Who Had Stunning Change of Heart**\
-`He released a thunderclap into the evangelical world by asserting that a deeper reading of the Bible revealed that same-sex relationships are not sinful.`\
-https://nytimes.com/2025/01/12/us/richard-hays-dead.html
 
