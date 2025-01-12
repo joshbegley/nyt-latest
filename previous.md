@@ -1,3 +1,7 @@
+**Penguins lose focus early as troubling trend continues: 3 takeaways vs. Senators**\
+`The Penguins gave up a goal on the first shot of the game for the ninth time this season in a 5-0 loss to Ottawa.`\
+https://nytimes.com/athletic/6054828/2025/01/11/penguins-senators-score-loss-takeaways/
+
 **Kamala Harris Shares a Trump-less Photo of Presidents at Jimmy Carter’s Funeral**\
 `Pictures shared on social media by the vice president and by the Carter Center prominently showed other past presidents in attendance.`\
 https://nytimes.com/2025/01/11/us/politics/trump-photo-carter-funeral.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/11/crosswords/daily-puzzle-2025-01-12.html
 **MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
 `An educated guess at Alonso's future AAV, a hang-up for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
 https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
-
-**Amid L.A. Evacuations, Fears of Looting Take Hold**\
-`Residents barred from returning to their neighborhoods face a secondary threat, and the city, with painful collective memories of looting, is on guard.`\
-https://nytimes.com/2025/01/11/us/la-fires-evacuation-looting.html
 
