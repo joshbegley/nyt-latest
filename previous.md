@@ -1,3 +1,7 @@
+**At least 16 people are missing. Many more are searching for relatives.**\
+`By Nicholas Bogel-Burroughs and Claire Moses`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/at-least-16-people-are-missing-many-more-are-searching-for-relatives
+
 **The Briefing: Real Madrid 2 Barcelona 5 - Yamal and Co inflict a historic humiliation**\
 `Barca put four goals past Madrid in consecutive matches for the first time in Clasico history. Our writers analyse the key talking points`\
 https://nytimes.com/athletic/6053562/2025/01/12/real-madrid-2-barcelona-5-clasico-humiliation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055849/2025/01/12/ilona-maher-try-bristol-bears-ex
 **Resisting Oppression With Creativity, Two Ways**\
 `The Out-Front! Festival at the Brooklyn Academy of Music on Saturday featured thrilling works by Angie Pittman (“Black Life Chord Changes”) and Kyle Marshall (“Joan”).`\
 https://nytimes.com/2025/01/12/arts/dance/angie-pittman-kyle-marshall-bam.html
-
-**3 Humvees and Military Supplies Stolen From Army Reserve Warehouse**\
-`The police in Tustin, Calif., said the Humvees, as well as binoculars, bayonets and machine gun vehicle mounts, had been stolen from an Army Reserve Center.`\
-https://nytimes.com/2025/01/12/us/humvee-army-theft-california.html
 
