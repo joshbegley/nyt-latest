@@ -1,3 +1,7 @@
+**Newcastle's Barnes suffers muscle injury in FA Cup win over Bromley**\
+`Harvey Barnes was forced off at half-time of Newcastle United&#8217;s 3-1 victory over Bromley in the FA Cup third round due to an unspecified muscular injury.`\
+https://nytimes.com/athletic/6056126/2025/01/12/harvey-barnes-injury-newcastle/
+
 **Richard Hays, 76, Dies; Theologian Who Had Stunning Change of Heart**\
 `He released a thunderclap into the evangelical world by asserting that a deeper reading of the Bible revealed that same-sex relationships are not sinful.`\
 https://nytimes.com/2025/01/12/us/richard-hays-dead.html

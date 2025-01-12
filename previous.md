@@ -1,3 +1,7 @@
+**Newcastle's Barnes suffers muscle injury in FA Cup win over Bromley**\
+`Harvey Barnes was forced off at half-time of Newcastle United&#8217;s 3-1 victory over Bromley in the FA Cup third round due to an unspecified muscular injury.`\
+https://nytimes.com/athletic/6056126/2025/01/12/harvey-barnes-injury-newcastle/
+
 **USA Eagles star Maher scores 70-yard solo try on first Bristol start**\
 `Ilona Maher’s impact on women’s rugby in England had been significant even before she had stepped on a rugby pitch in the country.`\
 https://nytimes.com/athletic/6055849/2025/01/12/ilona-maher-try-bristol-bears-exeter-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-fourth-round-draw-manches
 **The Briefing: Arsenal 1 Man United 1 (Utd win 5-3 on pens) - missed chances, a red, pens and needle in cup thriller**\
 `Analysis of an entertaining FA Cup third-round tie between Arsenal and Manchester United at the Emirates.`\
 https://nytimes.com/athletic/6053551/2025/01/12/arsenal-manchester-united-fa-cup/
-
-**Trump Discusses Tax Cuts for New Yorkers With G.O.P. Lawmakers**\
-`The president-elect told Republicans from New York, New Jersey and California to come up with a plan for increasing the state and local tax deduction — a move that would benefit their constituents.`\
-https://nytimes.com/2025/01/12/us/politics/trump-salt-tax-new-york-new-jersey.html
 
