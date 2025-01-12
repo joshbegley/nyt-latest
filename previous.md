@@ -1,3 +1,7 @@
+**Jet Greaves shines and Blue Jackets dig deep for gutsy road win in St. Louis**\
+`Greaves made 31 saves and came within 10.8 seconds of a shutout to lead the Blue Jackets to a hard-fought 2-1 win over the Blues.`\
+https://nytimes.com/athletic/6054931/2025/01/11/blue-jackets-blues-jet-greaves/
+
 **Maple Leafs report cards: A lifeless effort leads to ugly performance**\
 `Maple Leafs fans booed their team off the ice after a 3-0 loss to the Canucks on Saturday night.`\
 https://nytimes.com/athletic/6054803/2025/01/11/maple-leafs-canucks-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/as-the-cadav
 **Texans pick off Herbert 4 times in 32-12 wild-card blowout: Takeaways**\
 `Texans' All-Pro corner Derek Stingley shined, finishing with two picks, a forced fumble and five passes defensed.`\
 https://nytimes.com/athletic/6054219/2025/01/11/chargers-texans-score-result-takeaways/
-
-**Watch Duty, a Wildfire-Tracking App, Provides a Lifeline in Los Angeles**\
-`A nonprofit runs the app with volunteers and full-time employees, including retired firefighters and dispatchers, to provide live updates on fire conditions.`\
-https://nytimes.com/2025/01/11/us/watch-duty-wildfire-app.html
 

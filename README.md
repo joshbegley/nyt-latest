@@ -2,7 +2,7 @@
 `Greaves made 31 saves and came within 10.8 seconds of a shutout to lead the Blue Jackets to a hard-fought 2-1 win over the Blues.`\
 https://nytimes.com/athletic/6054931/2025/01/11/blue-jackets-blues-jet-greaves/
 
-**Maple Leafs report cards: A lifeless effort leads to ugly performance**\
+**Maple Leafs report cards: A lifeless effort leads to an ugly performance**\
 `Maple Leafs fans booed their team off the ice after a 3-0 loss to the Canucks on Saturday night.`\
 https://nytimes.com/athletic/6054803/2025/01/11/maple-leafs-canucks-grades-analysis/
 
