@@ -1,3 +1,11 @@
+**Stagehands Walk Off the Job at Atlantic Theater Company**\
+`The stage employees union accused the nonprofit theater of stalling talks. The strike forced the cancellation of Sunday performances of two new plays.`\
+https://nytimes.com/2025/01/12/theater/atlantic-theater-stagehands-strike.html
+
+**How Broncos fell apart in second half of 31-7 wild-card loss: Takeaways**\
+`Bo Nix led Denver to an early lead, but a hungry Buffalo team with Super Bowl LIX ambitions proved to be too much on Sunday.`\
+https://nytimes.com/athletic/6056077/2025/01/12/broncos-game-score-playoffs-takeaways-wild-card/
+
 **Druse Leader Aims to Secure Place for Syrian Minorities**\
 `Despite assurances from the rebels-turned-leaders, members of some religious groups worry what life will be like for them in a post-Assad Syria.`\
 https://nytimes.com/2025/01/12/world/middleeast/syira-druse-diplomacy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6053562/2025/01/12/real-madrid-2-barcelona-5-clasic
 **Buckley: Patriots’ next move after Mike Vrabel hire is to get their house in order**\
 `The Pats were thought to be rebuilding a few years ago. Looking back on it, from Tom Brady's exit to Jerod Mayo's, they were falling apart. `\
 https://nytimes.com/athletic/6056171/2025/01/12/mike-vrabel-patriots-coach-hiring-column/
-
-**An Expert Explains Palisades Fire’s Behavior**\
-`The blaze, which has burned 23,700 acres in western Los Angeles since starting on Jan. 7, has been tricky to wrangle. Its northern edge, by Mandeville Canyon, is the area of biggest concern, said Robert Clark of Cal Fire.`\
-https://nytimes.com/2025/01/12/us/palisades-fire-behavior.html
-
-**Monday Briefing: Number of Missing Rises in L.A.**\
-`Plus, how cured ham fixed an antique organ in France.`\
-https://nytimes.com/2025/01/12/briefing/los-angeles-fires-sudan-brazil-gambling.html
 
