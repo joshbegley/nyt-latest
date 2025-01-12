@@ -1,3 +1,7 @@
+**FA Cup fourth-round draw: Man Utd vs Leicester**\
+`FA Cup holders Manchester United will play Leicester City in the FA Cup fourth round.`\
+https://nytimes.com/athletic/6055531/2025/01/12/fa-cup-third-round-draw-manchester-united-leicester/
+
 **The Briefing: Arsenal 1 Man United 1 (Utd win 5-3 on pens): Missed chances, reds, pens and needle in cup thriller**\
 `Analysis of an entertaining FA Cup third-round tie between Arsenal and Manchester United at the Emirates.`\
 https://nytimes.com/athletic/6053551/2025/01/12/arsenal-manchester-united-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/us/santa-ana-winds-fires-california.html
 **Italian Justice Ministry Moves to Release Iranian Man Sought by the U.S.**\
 `The request to revoke the man’s arrest came only days after Iran released an Italian journalist. Iranian state news said the man was now in Tehran, but Italy has not confirmed that.`\
 https://nytimes.com/2025/01/12/world/europe/italy-iran-us-abedini.html
-
-**Federal Court Blocks Transfer of Guantánamo Convict to Prison in Iraq**\
-`The Iraqi prisoner had sued the Biden administration, saying he would be at risk for abuse at a prison in his homeland.`\
-https://nytimes.com/2025/01/12/us/politics/guantanamo-iraq-transfer-court.html
 

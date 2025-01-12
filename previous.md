@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
 
 **How to Protect Your Home From Wildfires**\
 `Thousands of wildfires rage across California every year. No matter where you are, it’s important to learn how to minimize their threat.`\
-https://nytimes.com/2025/01/12/realestate/how-to-protect-your-home-from-wildfires.html
+https://nytimes.com/2025/01/12/realestate/how-to-protect-homes-wildfires.html
 
 **The Pulse: An unprecedented Playoff finale**\
 `Welcome to The Pulse, The Athetic's daily sports business newsletter. `\
@@ -31,7 +31,7 @@ https://nytimes.com/2025/01/12/dining/sourdough-waffles.html
 https://nytimes.com/2025/01/12/us/santa-ana-winds-fires-california.html
 
 **Italian Justice Ministry Moves to Release Iranian Man Sought by the U.S.**\
-`The request to revoke the man’s arrest came only days after Iran released an Italian journalist being held in Tehran.`\
+`The request to revoke the man’s arrest came only days after Iran released an Italian journalist. Iranian state news said the man was now in Tehran, but Italy has not confirmed that.`\
 https://nytimes.com/2025/01/12/world/europe/italy-iran-us-abedini.html
 
 **Federal Court Blocks Transfer of Guantánamo Convict to Prison in Iraq**\
