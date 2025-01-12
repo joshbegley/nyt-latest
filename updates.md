@@ -1,3 +1,12 @@
+**Watch Duty, a Wildfire-Tracking App, Provides a Lifeline in Los Angeles**\
+`A nonprofit runs the app with volunteers and full-time employees, including retired firefighters and dispatchers, to provide live updates on fire conditions.`\
+https://nytimes.com/2025/01/11/us/watch-duty-wildfire-app.html
+
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
 `The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
 `\
