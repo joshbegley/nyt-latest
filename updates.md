@@ -1,3 +1,7 @@
+**The steady maturing of Lane Hutson’s NHL game is unjustly falling under the radar**\
+`Hutson's offensive exploits are well known, but his ability to perform in a mistake-free environment has been under-appreciated.`\
+https://nytimes.com/athletic/6055220/2025/01/12/canadiens-rookie-lane-hutson-maturity/
+
 **Ghosts of Wolves' past playoff failures haunt Anthony Edwards, Rudy Gobert**\
 `It was a terrific fistfight of a game, but it was one the Timberwolves shouldn't have lost.`\
 https://nytimes.com/athletic/6054830/2025/01/12/timberwolves-playoff-failures-anthony-edwards-rudy-gobert/
