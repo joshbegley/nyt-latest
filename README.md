@@ -1,3 +1,7 @@
+**Anders Sorensen focused on present, not on possible future as Blackhawks coach**\
+`"It's just day by day, trying to improve the group — what we have right now — and not trying to look too far down the road," Sorensen said.`\
+https://nytimes.com/athletic/6054957/2025/01/11/blackhawks-oilers-coach-anders-sorensen/
+
 **What went wrong in Steelers 28-14 wild-card round loss to the Ravens: Takeaways**\
 `Pittburgh gives up franchise playoff record 299 yards in loss`\
 https://nytimes.com/athletic/6054222/2025/01/11/steelers-wild-card-score-result-takeaways-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054826/2025/01/11/canucks-maple-leafs-elias-petter
 **Sabres fans chant ‘Fire Adams!’ with owner Terry Pegula in attendance**\
 `Pegula watched as the Sabres blew a two-goal lead and allowed six unanswered goals for a 6-2 collapse to the Kraken.`\
 https://nytimes.com/athletic/6054894/2025/01/11/sabres-owner-terry-pegula-kraken/
-
-**As the cadaver dogs begin their search, a grim reality sets in for one sheriff.**\
-`Sheriff Robert Luna, of Los Angeles County, sAltadena on Saturday afternoon in what`\
-https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/as-the-cadaver-dogs-begin-their-search-a-grim-reality-sets-in-for-one-sheriff
 
