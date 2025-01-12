@@ -1,3 +1,7 @@
+**Synagogue Congregation Grieves in New Home After L.A. Fires**\
+`Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
+https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
+
 **Community L.A. Fire Brigade Steps In to Help Evacuate Residents**\
 `Deep into the evacuation zone, volunteers are stepping in to evacuate L.A. residents from encroaching wildfires. Armed with radios, hoses and knowledge of the area, this brigade offers help to overextended fire departments as they try to reach people who have yet to flee.`\
 https://nytimes.com/video/us/100000009918111/palisades-fire-community-volunteers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/11/us/politics/trump-photo-carter-funeral.html
 **Canada and Mexico Are Sending Teams to Help California Fight the Fires**\
 `Air tankers, firefighters and technicians from the neighboring countries are on their way to Los Angeles in a show of solidarity.`\
 https://nytimes.com/2025/01/11/us/mexico-canada-firefighters-california.html
-
-**Biden Awards Medal of Freedom to Pope Francis**\
-`President Biden, a Catholic, awarded the medal with distinction to the pontiff, to whom he has turned for personal guidance.`\
-https://nytimes.com/2025/01/11/us/politics/biden-medal-of-freedom-pope-francis.html
 

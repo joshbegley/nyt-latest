@@ -1,3 +1,7 @@
+**Synagogue Congregation Grieves in New Home After L.A. Fires**\
+`Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
+https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
+
 **Community L.A. Fire Brigade Steps In to Help Evacuate Residents**\
 `Deep into the evacuation zone, volunteers are stepping in to evacuate L.A. residents from encroaching wildfires. Armed with radios, hoses and knowledge of the area, this brigade offers help to overextended fire departments as they try to reach people who have yet to flee.`\
 https://nytimes.com/video/us/100000009918111/palisades-fire-community-volunteers.html
