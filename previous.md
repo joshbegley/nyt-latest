@@ -1,3 +1,7 @@
+**Israeli Security Chiefs Join Critical Talks for a Cease-Fire in Gaza**\
+`Pressure is on to reach a deal that would see Hamas release at least some hostages before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2025/01/12/world/middleeast/israeli-security-chiefs-join-critical-talks-for-a-cease-fire-in-gaza.html
+
 **Celebrity Moguls**\
 `We cover the rise of entrepreneurship in Hollywood.`\
 https://nytimes.com/2025/01/12/briefing/celebrity-brands.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/officials-in
 **Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
 `The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
 https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-tennis-australian-open/
-
-**The Sunday Read: ‘What Alice Munro Knew’**\
-`The Nobel-winning author’s husband was a pedophile who targeted her daughter and other children. Why did she stay silent?`\
-https://nytimes.com/2025/01/12/podcasts/the-daily/alice-munro-andrea-skinner-abuse.html
 
