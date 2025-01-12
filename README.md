@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6055896/2025/01/12/bills-game-score-playoffs-takeaw
 
 **‘Will Pay Any Amount:’ Private Firefighters Are in Demand in L.A.**\
 `Hiring a private fire crew costs thousands of dollars a day, and most work through government contracts or with insurance companies. Some wealthy property owners are calling them in directly.`\
-https://nytimes.com/2025/01/12/us/private-firefighters-la-widlfire.html
+https://nytimes.com/2025/01/12/us/private-firefighters-la-wildfires.html
 
 **At least 16 people are missing. Many more are searching for relatives.**\
 `By Nicholas Bogel-Burroughs and Claire Moses`\
