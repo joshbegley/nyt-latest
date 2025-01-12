@@ -1,3 +1,19 @@
+**As they reformulate tennis geometry, Alcaraz and Sinner are forcing everyone else to think and play differently**\
+`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
+https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-tennis-australian-open/
+
+**The Sunday Read: ‘What Alice Munro Knew’**\
+`The Nobel-winning author’s husband was a pedophile who targeted her daughter and other children. Why did she stay silent?`\
+https://nytimes.com/2025/01/12/podcasts/the-daily/alice-munro-andrea-skinner-abuse.html
+
+**The Connections Companion No. 582**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 13, 2025.`\
+https://nytimes.com/2025/01/12/crosswords/connections-companion-582.html
+
+**Wordle Review No. 1,304**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 13, 2025.`\
+https://nytimes.com/2025/01/12/crosswords/wordle-review-1304.html
+
 **Firefighters Battle to Keep Palisades Blaze From Pushing Into Mandeville Canyon**\
 `Mandeville Canyon Road, including multimillion-dollar homes with panoramic city views, was out of immediate danger for now, fire officials said.`\
 https://nytimes.com/2025/01/12/us/mandeville-canyon-palisades-fire.html

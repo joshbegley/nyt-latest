@@ -1,3 +1,19 @@
+**As they reformulate tennis geometry, Alcaraz and Sinner are forcing everyone else to think and play differently**\
+`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
+https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-tennis-australian-open/
+
+**The Sunday Read: ‘What Alice Munro Knew’**\
+`The Nobel-winning author’s husband was a pedophile who targeted her daughter and other children. Why did she stay silent?`\
+https://nytimes.com/2025/01/12/podcasts/the-daily/alice-munro-andrea-skinner-abuse.html
+
+**The Connections Companion No. 582**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 13, 2025.`\
+https://nytimes.com/2025/01/12/crosswords/connections-companion-582.html
+
+**Wordle Review No. 1,304**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 13, 2025.`\
+https://nytimes.com/2025/01/12/crosswords/wordle-review-1304.html
+
 **Firefighters Battle to Keep Palisades Blaze From Pushing Into Mandeville Canyon**\
 `Mandeville Canyon Road, including multimillion-dollar homes with panoramic city views, was out of immediate danger for now, fire officials said.`\
 https://nytimes.com/2025/01/12/us/mandeville-canyon-palisades-fire.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/12/us/politics/elon-musk-doge-government-trump.html
 **5 Things We Know About Chronic Pain**\
 `After developing chronic pain, I started looking into what scientists do — and still don’t — understand about the disease. Here is what I learned.`\
 https://nytimes.com/2025/01/12/magazine/chronic-pain-what-we-know.html
-
-**Even Without Its Most Famous Son, Carter’s Hometown Remains a Destination**\
-`Plains, Ga., joins a collection of other small towns known for their part in presidential history. That can provide a steady source of tourism.`\
-https://nytimes.com/2025/01/12/us/plains-georgia-jimmy-carter-tourism.html
-
-**Writing Fantasy Came Naturally. Reality Was Far More Daunting.**\
-`After winning just about every major science fiction and fantasy award, Nnedi Okorafor explores a traumatic event in her own history in her most autobiographical novel yet.`\
-https://nytimes.com/2025/01/12/books/nnedi-okorafor-death-of-.html
-
-**Packers at Eagles: How to watch, odds, expert picks with Philly favored in wild-card game**\
-`The Eagles and Packers reprise their Week 1 meeting on wild-card Sunday, with Philly as a home favorite.`\
-https://nytimes.com/athletic/6050675/2025/01/12/packers-eagles-how-to-watch-odds-picks-betting-playoffs/
-
-**Chronic Pain Is a Hidden Epidemic. It’s Time for a Revolution.**\
-`As many as two billion people suffer from it — including me. Can science finally bring us relief?`\
-https://nytimes.com/2025/01/12/magazine/chronic-pain.html
 
