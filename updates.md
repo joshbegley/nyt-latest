@@ -1,3 +1,11 @@
+**In manhandling Steelers, Ravens show their playoff potential: 'This is the appetizer'**\
+`A Baltimore team that's made it look difficult at times in previous postseasons made it look effortless in dominating its biggest rival.`\
+https://nytimes.com/athletic/6055277/2025/01/12/ravens-win-steelers-wild-card-playoffs/
+
+**Here’s the latest on the fires.**\
+`By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/heres-the-latest-on-the-fires
+
 **Trump Calls Officials Handling Los Angeles Wildfires ‘Incompetent’**\
 `Governor Gavin Newsom and Los Angeles County authorities have invited President-elect Donald J. Trump to tour the devastation, but he has not publicly responded.`\
 https://nytimes.com/2025/01/12/us/trump-los-angeles-fire-newsom-bass.html
