@@ -1,3 +1,7 @@
+**USA Eagles star Maher scores 70-yard solo try on first Bristol start**\
+`Ilona Maher’s impact on women’s rugby in England had been significant even before she had stepped on a rugby pitch in the country.`\
+https://nytimes.com/athletic/6055849/2025/01/12/ilona-maher-try-bristol-bears-exeter-chiefs/
+
 **Resisting Oppression With Creativity, Two Ways**\
 `The Out-Front! Festival at the Brooklyn Academy of Music on Saturday featured thrilling works by Angie Pittman (“Black Life Chord Changes”) and Kyle Marshall (“Joan”).`\
 https://nytimes.com/2025/01/12/arts/dance/angie-pittman-kyle-marshall-bam.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053551/2025/01/12/arsenal-manchester-united-fa-cup
 **Trump Discusses Tax Cuts for New Yorkers With G.O.P. Lawmakers**\
 `The president-elect told Republicans from New York, New Jersey and California to come up with a plan for increasing the state and local tax deduction — a move that would benefit their constituents.`\
 https://nytimes.com/2025/01/12/us/politics/trump-salt-tax-new-york-new-jersey.html
-
-**On a Screen, Devastation**\
-`As catastrophic fires consume homes in California, the owners can watch the unfolding tragedy through Ring and Nest cameras.`\
-https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
 

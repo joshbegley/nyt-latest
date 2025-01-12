@@ -1,3 +1,7 @@
+**USA Eagles star Maher scores 70-yard solo try on first Bristol start**\
+`Ilona Maher’s impact on women’s rugby in England had been significant even before she had stepped on a rugby pitch in the country.`\
+https://nytimes.com/athletic/6055849/2025/01/12/ilona-maher-try-bristol-bears-exeter-chiefs/
+
 **Resisting Oppression With Creativity, Two Ways**\
 `The Out-Front! Festival at the Brooklyn Academy of Music on Saturday featured thrilling works by Angie Pittman (“Black Life Chord Changes”) and Kyle Marshall (“Joan”).`\
 https://nytimes.com/2025/01/12/arts/dance/angie-pittman-kyle-marshall-bam.html
