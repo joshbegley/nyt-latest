@@ -1,3 +1,15 @@
+**Sunderland's £16m Le Fee signing is a gear change and a statement of Premier League intent**\
+`The Championship side's form over the Christmas period convinced the hierarchy that promotion is a possibility worth pushing for this year`\
+https://nytimes.com/athletic/6054418/2025/01/12/enzo-le-fee-sunderland-stoke/
+
+**Nottingham Forest's display of strength in depth bodes well for the challenges to come**\
+`Nuno Espirito Santo made wholesale changes in the FA Cup and his back-up players delivered`\
+https://nytimes.com/athletic/6054437/2025/01/12/nottingham-forest-luton-fa-cup/
+
+**How the Oilers bounced back, rallied and refused to lose 2 straight games**\
+`The Oilers overcame a pair of two-goal deficits to gut out a 4-3 win over the Blackhawks.`\
+https://nytimes.com/athletic/6055036/2025/01/12/oilers-blackhawks-connor-mcdavid-zach-hyman/
+
 **Kyle Walker, his request to leave Man City and what it means for player and club**\
 `Pep Guardiola says the England international wants to move on, so where might Walker go and what gap would he leave at City?`\
 https://nytimes.com/athletic/6054737/2025/01/12/kyle-walker-manchester-city-exit/
