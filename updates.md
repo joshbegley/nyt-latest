@@ -1,3 +1,11 @@
+**Community L.A. Fire Brigade Steps In to Help Evacuate Residents**\
+`Deep into the evacuation zone, volunteers are stepping in to evacuate L.A. residents from encroaching wildfires. Armed with radios, hoses and knowledge of the area, this brigade offers help to overextended fire departments as they try to reach people who have yet to flee.`\
+https://nytimes.com/video/us/100000009918111/palisades-fire-community-volunteers.html
+
+**How Elias Pettersson, Quinn Hughes got tired Canucks back on track: 3 takeaways**\
+`Vancouver dominated the Maple Leafs, coming away with a sorely needed 3-0 victory.`\
+https://nytimes.com/athletic/6054826/2025/01/11/canucks-maple-leafs-elias-pettersson-quinn-hughes/
+
 **Sabres fans chant ‘Fire Adams!’ with owner Terry Pegula in attendance**\
 `Pegula watched as the Sabres blew a two-goal lead and allowed six unanswered goals for a 6-2 collapse to the Kraken.`\
 https://nytimes.com/athletic/6054894/2025/01/11/sabres-owner-terry-pegula-kraken/
