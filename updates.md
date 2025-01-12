@@ -1,3 +1,7 @@
+**Live Updates: Weary L.A. Endures a Sixth Day of Massive Fires**\
+`The two largest blazes have killed at least 16 people and destroyed thousands of structures. Strong winds forecast for Sunday could spread flames further.`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california
+
 **In Canada, Long-Suffering N.F.L. Fans Have Reason to Cheer**\
 `With the Buffalo Bills and Detroit Lions both Super Bowl contenders, fans north of the border are nervously hopeful a title drought could end.`\
 https://nytimes.com/2025/01/12/business/nfl-canada-fans-bills-lions.html
