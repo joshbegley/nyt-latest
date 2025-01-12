@@ -1,3 +1,11 @@
+**3 Humvees and Military Supplies Stolen From Army Reserve Warehouse**\
+`The police in Tustin, Calif., said the Humvees, as well as binoculars, bayonets and machine gun vehicle mounts, had been stolen from an Army Reserve Center.`\
+https://nytimes.com/2025/01/12/us/humvee-army-theft-california.html
+
+**Arsenal's Jesus knee injury a 'big worry' to Mikel Arteta: 'He is in a lot of pain'**\
+`Mikel Arteta has said Gabriel Jesus is &#8220;in a lot of pain&#8221; with a knee injured sustained in Arsenal&#8217;s FA Cup defeat to Manchester United, describing it as a &#8220;big worry&#8221;.`\
+https://nytimes.com/athletic/6055671/2025/01/12/gabriel-jesus-injury-arsenal-fa-cup/
+
 **Blue Jackets Sunday Gathering: Don Waddell may face good problem at NHL trade deadline**\
 `The Blue Jackets are currently in a playoff spot. If they remain there, how will Waddell handle one of the biggest days on the NHL calendar?`\
 https://nytimes.com/athletic/6054278/2025/01/12/blue-jackets-nhl-trade-deadline-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
 **How to Protect Your Home From Wildfires**\
 `Thousands of wildfires rage across California every year. No matter where you are, it’s important to learn how to minimize their threat.`\
 https://nytimes.com/2025/01/12/realestate/how-to-protect-homes-wildfires.html
-
-**The Pulse: An unprecedented Playoff finale**\
-`Welcome to The Pulse, The Athetic's daily sports business newsletter. `\
-https://nytimes.com/athletic/6055787/2025/01/12/notre-dame-ohio-state-cfp-the-pulse/
-
-**Abigail McGrath, Founder of an Experimental Theater, Dies at 84**\
-`She was an aspiring actor when she was cast in an Andy Warhol film called “Tub Girls.” But she was best known for the beloved Off Center Theater.`\
-https://nytimes.com/2025/01/12/theater/abigail-mcgrath-dead.html
 
