@@ -1,3 +1,7 @@
+**Pardoned by Trump, Manafort Is Back and Looking for Foreign Work**\
+`The president-elect’s 2016 campaign chairman, four years after receiving clemency, is testing the international market with a team of Trump-linked consultants.`\
+https://nytimes.com/2025/01/12/us/politics/trump-manafort.html
+
 **Liverpool recall Gordon from Norwich loan, Ramsay set for Kilmarnock**\
 `Liverpool have taken the decision to recall youngster Kaide Gordon from his loan spell at Norwich City due to a lack of game time.`\
 https://nytimes.com/athletic/6055500/2025/01/12/kaide-gordon-loan-liverpool/
