@@ -1,3 +1,7 @@
+**Meghan, Duchess of Sussex, Delays Premiere of Netflix Show Because of Wildfires**\
+`She asked the streaming service to push back the release of her new series, “With Love, Meghan,” which pays tribute to the beauty of Southern California.`\
+https://nytimes.com/2025/01/12/arts/television/meghan-markle-netflix-delay-la-fires.html
+
 **Wrexham could have new route to Europe next season after new plans revealed**\
 `Proposed shake-up to Welsh football could happen by 2025-26`\
 https://nytimes.com/athletic/6055411/2025/01/12/wrexham-could-have-new-route-to-europe-next-season-after-new-plans-revealed/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/theater/atlantic-theater-stagehands-strike.html
 **How Broncos fell apart in second half of 31-7 wild-card loss: Takeaways**\
 `Bo Nix led Denver to an early lead, but a hungry Buffalo team with Super Bowl LIX ambitions proved to be too much on Sunday.`\
 https://nytimes.com/athletic/6056077/2025/01/12/broncos-game-score-playoffs-takeaways-wild-card/
-
-**Druse Leader Aims to Secure Place for Syrian Minorities**\
-`Despite assurances from the rebels-turned-leaders, members of some religious groups worry what life will be like for them in a post-Assad Syria.`\
-https://nytimes.com/2025/01/12/world/middleeast/syira-druse-diplomacy.html
 
