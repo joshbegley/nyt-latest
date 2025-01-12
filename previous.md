@@ -1,3 +1,11 @@
+**How to Survive January**\
+`Lotion! Heating pads! Sketchy space heaters!`\
+https://nytimes.com/2025/01/12/opinion/january-survival-winter-sad.html
+
+**The Old World Is Breaking Down. A New One Is Breaking Through.**\
+`Four trends are converging to make life much scarier.`\
+https://nytimes.com/2025/01/12/opinion/ai-climate-change-low-birth-rates.html
+
 **How Jaxson Robinson's turn to play unselfish UK hero decided a top-15 shootout**\
 `Robinson finished with 27 points, but the 15 minutes he went between field goal attempts showed the true danger of Kentucky's offense.`\
 https://nytimes.com/athletic/6055119/2025/01/12/kentucky-mississippi-state-jaxson-robinson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6054437/2025/01/12/nottingham-forest-luton-fa-cup/
 **Kyle Walker, his request to leave Man City and what it means for player and club**\
 `Pep Guardiola says the England international wants to move on, so where might Walker go and what gap would he leave at City?`\
 https://nytimes.com/athletic/6054737/2025/01/12/kyle-walker-manchester-city-exit/
-
-**Has the Premier League's obsession with inswinging corners become counterproductive?**\
-`The league's current corner consensus bears a resemblance to the early 2000s: stick it on the goalkeeper`\
-https://nytimes.com/athletic/6048155/2025/01/12/premier-league-inswinging-corners-counterproductive/
-
-**How the Oilers bounced back, rallied and refused to lose 2 straight games**\
-`The Oilers overcame a pair of two-goal deficits to gut out a 4-3 win over the Blackhawks.`\
-https://nytimes.com/athletic/6055036/2025/01/12/oilers-blackhawks-connor-mcdavid-zach-hyman/
 
