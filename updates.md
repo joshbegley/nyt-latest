@@ -1,3 +1,19 @@
+**Maple Leafs report cards: A lifeless effort leads to ugly performance**\
+`Maple Leafs fans booed their team off the ice after a 3-0 loss to the Canucks on Saturday night.`\
+https://nytimes.com/athletic/6054803/2025/01/11/maple-leafs-canucks-grades-analysis/
+
+**Pistons show Raptors pros and cons of depending on draft lottery**\
+`It's been a long journey to .500 for the Pistons, but Cade Cunningham provides hope.`\
+https://nytimes.com/athletic/6054939/2025/01/11/pistons-raptors-nba-draft-lottery/
+
+**At a Palisades mobile home park, middle-class dreams lie in ruins.**\
+`By Jacob Bernstein`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/at-a-palisades-mobile-home-park-middle-class-dreams-lie-in-ruins
+
+**How Elias Pettersson, Quinn Hughes got tired Canucks back on track: 3 takeaways**\
+`Vancouver's best players outperformed Toronto's, and Hughes was the brightest star on the ice, coming away with a sorely-needed 3-0 victory.`\
+https://nytimes.com/athletic/6054826/2025/01/11/canucks-maple-leafs-elias-pettersson-quinn-hughes/
+
 **Synagogue Congregation Grieves in New Home After L.A. Fires**\
 `Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
 https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
