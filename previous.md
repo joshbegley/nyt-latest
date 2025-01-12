@@ -1,3 +1,7 @@
+**Australian Open day 1 takeaways: Melbourne weather thunders over five-set epics**\
+`Rain poured over the Australian Open, but the tennis under the roofs made up for the deluge`\
+https://nytimes.com/athletic/6054821/2025/01/12/australian-open-day-1-takeaways-melbourne-weather-hady-habib-tennis-lebanon/
+
 **More Public Restrooms Are Sorely Needed**\
 `Readers offer solutions in New York and elsewhere. Also: A soldier’s moral trauma; doctors weighing patients; access to environmental data.`\
 https://nytimes.com/2025/01/12/opinion/nyc-public-restrooms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/opinion/pornography-texas-supreme-court.html
 **The Dream of California Is Up in Smoke**\
 `Los Angeles seemed like paradise. Who could have imagined where it would lead?`\
 https://nytimes.com/2025/01/12/opinion/los-angeles-fires.html
-
-**Martha, Nigella, Meghan Markle?**\
-`Her every move seems to spark a backlash. But by launching a lifestyle show on Netflix, Meghan may yet find her fairy-tale ending.`\
-https://nytimes.com/2025/01/12/opinion/meghan-markle-netflix-haters.html
 
