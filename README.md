@@ -1,3 +1,7 @@
+**Firefighters Battle to Keep Palisades Blaze From Pushing Into Mandeville Canyon**\
+`Mandeville Canyon Road, including multimillion-dollar homes with panoramic city views, was out of immediate danger for now, fire officials said.`\
+https://nytimes.com/2025/01/12/us/mandeville-canyon-palisades-fire.html
+
 **Arthur Fils, already top 20 in the world, learns how to play tennis in Melbourne**\
 `He's inside the ATP top-20 and looks destined to go higher. But the young Frenchman is still figuring out his own way to win.`\
 https://nytimes.com/athletic/5999574/2025/01/12/arthur-fils-tennis-australian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050675/2025/01/12/packers-eagles-how-to-watch-odds
 **Chronic Pain Is a Hidden Epidemic. It’s Time for a Revolution.**\
 `As many as two billion people suffer from it — including me. Can science finally bring us relief?`\
 https://nytimes.com/2025/01/12/magazine/chronic-pain.html
-
-**Texas at South Carolina: Storylines, odds for Sunday's top-five women's basketball matchup**\
-`Dawn Staley and dynastic South Carolina are the reigning champs. Vic Schaefer and Texas are seeking their first national title since 1986.`\
-https://nytimes.com/athletic/6052837/2025/01/12/texas-south-carolina-ncaaw-how-to-watch-odds-preview/
 
