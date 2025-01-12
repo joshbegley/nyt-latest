@@ -1,3 +1,7 @@
+**Give In to Gravity**\
+`Adam Levav makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/01/12/crosswords/daily-puzzle-2025-01-13.html
+
 **Blackhawks affiliate Rockford IceHogs to host 2026 AHL All-Star Classic**\
 `The skills competition will be held on Feb. 10 and the All-Star Game on Feb. 11 at BMO Center in Rockford.`\
 https://nytimes.com/athletic/6055840/2025/01/12/blackhawks-rockford-icehogs-ahl-all-star/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055896/2025/01/12/bills-game-score-playoffs-takeaw
 **‘Will Pay Any Amount:’ Private Firefighters Are in Demand in L.A.**\
 `Hiring a private fire crew costs thousands of dollars a day, and most work through government contracts or with insurance companies. Some wealthy property owners are calling them in directly.`\
 https://nytimes.com/2025/01/12/us/private-firefighters-la-wildfires.html
-
-**At least 16 people are missing. Many more are searching for relatives.**\
-`By Nicholas Bogel-Burroughs and Claire Moses`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/at-least-16-people-are-missing-many-more-are-searching-for-relatives
 
