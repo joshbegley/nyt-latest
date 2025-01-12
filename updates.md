@@ -1,3 +1,7 @@
+**Richard Hays, 76, Dies; Theologian Who Had Stunning Change of Heart**\
+`He released a thunderclap into the evangelical world by asserting that a deeper reading of the Bible revealed that same-sex relationships are not sinful.`\
+https://nytimes.com/2025/01/12/us/richard-hays-dead.html
+
 **USA Eagles star Maher scores 70-yard solo try on first Bristol start**\
 `Ilona Maher’s impact on women’s rugby in England had been significant even before she had stepped on a rugby pitch in the country.`\
 https://nytimes.com/athletic/6055849/2025/01/12/ilona-maher-try-bristol-bears-exeter-chiefs/
