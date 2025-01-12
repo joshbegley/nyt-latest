@@ -1,3 +1,7 @@
+**As the cadaver dogs begin their search, a grim reality sets in for one sheriff.**\
+`Sheriff Robert Luna, of Los Angeles County, sAltadena on Saturday afternoon in what`\
+https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/as-the-cadaver-dogs-begin-their-search-a-grim-reality-sets-in-for-one-sheriff
+
 **Texans pick off Herbert 4 times in 32-12 wild-card blowout: Takeaways**\
 `Texans' All-Pro corner Derek Stingley shined, finishing with two picks, a forced fumble and five passes defensed.`\
 https://nytimes.com/athletic/6054219/2025/01/11/chargers-texans-score-result-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/the-palisade
 `The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
 `\
 https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
-
-**Sudan’s Military Recaptures Key City From Paramilitary Accused of Genocide**\
-`Celebrations erupted in military-controlled areas, stoking hopes the victory might be a turning point in Sudan’s ruinous civil war.`\
-https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
 
