@@ -1,3 +1,7 @@
+**The Arsenal-Man United shootout analysed: Stutter-steps, Bayindir's magic and Zirkzee's redemption**\
+`An enthralling FA Cup third-round tie came down to penalties - this is how United came out on top.`\
+https://nytimes.com/athletic/6056170/2025/01/12/arsenal-man-united-penalties/
+
 **Allen powers Bills past Broncos 31-7, into showdown with Ravens: Takeaways**\
 `James Cook led Buffalo's backfield to 210 rushing yards against a Denver defense that ranked third-best in the NFL at stopping the run.`\
 https://nytimes.com/athletic/6055896/2025/01/12/bills-game-score-playoffs-takeaways-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/it-was-like-
 **Newsom suspends state environmental rules for rebuilding after fires.**\
 `By Conor Dougherty`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/newsom-suspends-state-environmental-rules-for-rebuilding-after-fires
-
-**Newcastle's Barnes suffers muscle injury in FA Cup win over Bromley**\
-`Harvey Barnes was forced off at half-time of Newcastle United&#8217;s 3-1 victory over Bromley in the FA Cup third round due to an unspecified muscular injury.`\
-https://nytimes.com/athletic/6056126/2025/01/12/harvey-barnes-injury-newcastle/
 
