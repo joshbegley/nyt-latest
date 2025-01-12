@@ -1,3 +1,7 @@
+**‘Now Is the Time of Monsters’**\
+`Four trends are converging to make life much scarier.`\
+https://nytimes.com/2025/01/12/opinion/ai-climate-change-low-birth-rates.html
+
 **Chargers' Justin Herbert falls short to remain winless in postseason: 'I let the team down'**\
 `“I put the team in jeopardy,” Herbert said. “That’s on me to get better and keep pushing forward.”`\
 https://nytimes.com/athletic/6055189/2025/01/12/chargers-playoffs-loss-justin-herbert/

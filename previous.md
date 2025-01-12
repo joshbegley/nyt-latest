@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6055064/2025/01/12/texans-chargers-cj-stroud-derek-
 `Lotion! Heating pads! Sketchy space heaters!`\
 https://nytimes.com/2025/01/12/opinion/january-survival-winter-sad.html
 
-**The Old World Is Breaking Down. A New One Is Breaking Through.**\
+**‘Now Is the Time of Monsters’**\
 `Four trends are converging to make life much scarier.`\
 https://nytimes.com/2025/01/12/opinion/ai-climate-change-low-birth-rates.html
 
