@@ -1,3 +1,15 @@
+**On a Screen, Devastation**\
+`As catastrophic fires consume homes in California, the owners can watch the unfolding tragedy through Ring and Nest cameras.`\
+https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
+
+**How to Protect Your Home From Wildfires**\
+`Thousands of wildfires rage across California every year. No matter where you are, it’s important to learn how to minimize their threat.`\
+https://nytimes.com/2025/01/12/realestate/how-to-protect-your-home-from-wildfires.html
+
+**The Pulse: An unprecedented Playoff finale**\
+`Welcome to The Pulse, The Athetic's daily sports business newsletter. `\
+https://nytimes.com/athletic/6055787/2025/01/12/notre-dame-ohio-state-cfp-the-pulse/
+
 **Abigail McGrath, Founder of an Experimental Theater, Dies at 84**\
 `She was an aspiring actor when she was cast in an Andy Warhol film called “Tub Girls.” But she was best known for the beloved Off Center Theater.`\
 https://nytimes.com/2025/01/12/theater/abigail-mcgrath-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6054176/2025/01/12/oilers-ahl-forwards-stats-2025/
 **Patriots hiring Mike Vrabel as next head coach: Sources**\
 `After firing Jerod Mayo a week ago, the Patriots are hiring Mike Vrabel as the 16th head coach in franchise history.`\
 https://nytimes.com/athletic/6052753/2025/01/12/mike-vrabel-patriots-head-coach-hiring/
-
-**Tom Brady's influence? Timeline? What we're hearing about Raiders coach and GM search**\
-`Brady is supposedly only in an advisory role for the Raiders, though several league sources are convinced his influence is much greater.`\
-https://nytimes.com/athletic/6055060/2025/01/12/raiders-coach-gm-search-tom-brady/
-
-**Australian Open day two watch guide: The stars come out on a manic Monday**\
-`A star-studded day two at the Australian Open promises fireworks`\
-https://nytimes.com/athletic/6055233/2025/01/12/australian-open-schedule-day-two-sinner-alcaraz-djokovic-gauff/
-
-**Pardoned by Trump, Manafort Is Back and Looking for Foreign Work**\
-`The president-elect’s 2016 campaign chairman, four years after receiving clemency, is testing the international market with a team of Trump-linked consultants.`\
-https://nytimes.com/2025/01/12/us/politics/trump-manafort.html
 
