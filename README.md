@@ -30,9 +30,9 @@ https://nytimes.com/athletic/6053562/2025/01/12/real-madrid-2-barcelona-5-clasic
 `The Pats were thought to be rebuilding a few years ago. Looking back on it, from Tom Brady's exit to Jerod Mayo's, they were falling apart. `\
 https://nytimes.com/athletic/6056171/2025/01/12/mike-vrabel-patriots-coach-hiring-column/
 
-**Containing the Palisades fire means weighing winds and topography.**\
-`By Amy Graff`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/containing-the-palisades-fire-means-weighing-winds-and-topography
+**An Expert Explains Palisades Fire’s Behavior**\
+`The blaze, which has burned 23,700 acres in western Los Angeles since starting on Jan. 7, has been tricky to wrangle. Its northern edge, by Mandeville Canyon, is the area of biggest concern, said Robert Clark of Cal Fire.`\
+https://nytimes.com/2025/01/12/us/containing-the-palisades-fire-means-weighing-winds-and-topography.html
 
 **Monday Briefing: Number of Missing Rises in L.A.**\
 `Plus, how cured ham fixed an antique organ in France.`\
