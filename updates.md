@@ -1,3 +1,7 @@
+**The Arsenal-Man United shootout analysed: Stutter-steps, Bayindir's magic and Zirkzee's redemption**\
+`An enthralling FA Cup third-round tie came down to penalties - this is how United came out on top.`\
+https://nytimes.com/athletic/6056170/2025/01/12/arsenal-man-united-penalties/
+
 **‘Will Pay Any Amount:’ Private Firefighters Are in Demand in L.A.**\
 `Hiring a private fire crew costs thousands of dollars a day, and most work through government contracts or with insurance companies. Some wealthy property owners are calling them in directly.`\
 https://nytimes.com/2025/01/12/us/private-firefighters-la-wildfires.html
