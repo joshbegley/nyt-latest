@@ -1,3 +1,7 @@
+**The steady maturing of Lane Hutson’s NHL game is unjustly falling under the radar**\
+`Hutson's offensive exploits are well known, but his ability to perform in a mistake-free environment has been under-appreciated.`\
+https://nytimes.com/athletic/6055220/2025/01/12/canadiens-rookie-lane-hutson-maturity/
+
 **Ghosts of Wolves' past playoff failures haunt Anthony Edwards, Rudy Gobert**\
 `It was a terrific fistfight of a game, but it was one the Timberwolves shouldn't have lost.`\
 https://nytimes.com/athletic/6054830/2025/01/12/timberwolves-playoff-failures-anthony-edwards-rudy-gobert/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054287/2025/01/12/ngumoha-chiesa-liverpool-accring
 **Norwich 0-4 Brighton: Enciso and Rutter provide a solution, March gives Hurzeler goosebumps**\
 `Fabian Hurzeler was rewarded for treating the FA Cup with respect in the 31-year-old German's first experience of the competition`\
 https://nytimes.com/athletic/6054288/2025/01/12/brighton-norwich-hurzeler-march/
-
-**What a Clasico Supercopa in Jeddah tells us about the relationship between Spain and Saudi Arabia**\
-`The growing football bond between the two nations explained`\
-https://nytimes.com/athletic/6046574/2025/01/12/what-a-clasico-supercopa-in-jeddah-tells-us-about-spain-and-saudi-arabias-relationship/
 
