@@ -1,3 +1,7 @@
+**Anders Sorensen focused on present, not on possible future as Blackhawks coach**\
+`"It's just day by day, trying to improve the group — what we have right now — and not trying to look too far down the road," Sorensen said.`\
+https://nytimes.com/athletic/6054957/2025/01/11/blackhawks-oilers-coach-anders-sorensen/
+
 **What went wrong in Steelers 28-14 wild-card round loss to the Ravens: Takeaways**\
 `Pittburgh gives up franchise playoff record 299 yards in loss`\
 https://nytimes.com/athletic/6054222/2025/01/11/steelers-wild-card-score-result-takeaways-ravens/
