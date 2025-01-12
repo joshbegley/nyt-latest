@@ -1,3 +1,7 @@
+**Trump Discusses Tax Cuts for New Yorkers With G.O.P. Lawmakers**\
+`The president-elect told Republicans from New York, New Jersey and California come up with a plan for increasing the state and local tax deduction — a move that would benefit their constituents.`\
+https://nytimes.com/2025/01/12/us/politics/trump-salt-tax-new-york-new-jersey.html
+
 **On a Screen, Devastation**\
 `As catastrophic fires consume homes in California, the owners can watch the unfolding tragedy through Ring and Nest cameras.`\
 https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html

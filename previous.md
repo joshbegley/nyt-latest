@@ -1,3 +1,7 @@
+**Trump Discusses Tax Cuts for New Yorkers With G.O.P. Lawmakers**\
+`The president-elect told Republicans from New York, New Jersey and California come up with a plan for increasing the state and local tax deduction — a move that would benefit their constituents.`\
+https://nytimes.com/2025/01/12/us/politics/trump-salt-tax-new-york-new-jersey.html
+
 **On a Screen, Devastation**\
 `As catastrophic fires consume homes in California, the owners can watch the unfolding tragedy through Ring and Nest cameras.`\
 https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/us/politics/guantanamo-iraq-transfer-court.html
 **Lowetide: How are the Oilers' AHL forwards spiking offensively?**\
 `Edmonton suffered a hiccup with the prospect pool up front over the last two seasons but seems to be on track now.`\
 https://nytimes.com/athletic/6054176/2025/01/12/oilers-ahl-forwards-stats-2025/
-
-**Patriots hiring Mike Vrabel as next head coach: Sources**\
-`After firing Jerod Mayo a week ago, the Patriots are hiring Mike Vrabel as the 16th head coach in franchise history.`\
-https://nytimes.com/athletic/6052753/2025/01/12/mike-vrabel-patriots-head-coach-hiring/
 
