@@ -1,3 +1,7 @@
+**Part of Eastern Malibu Is ‘Gone,’ Mayor Says, as Palisades Fire Rages**\
+`A third of eastern Malibu has been destroyed by the blaze, including the communities of Big Rock and Carbon Mesa and a famed stretch of Pacific Coast Highway, officials said.`\
+https://nytimes.com/2025/01/12/us/malibu-palisades-fire-mayor.html
+
 **Israeli Security Chiefs Join Critical Talks for a Cease-Fire in Gaza**\
 `Pressure is on to reach a deal that would see Hamas release at least some hostages before President-elect Donald J. Trump takes office.`\
 https://nytimes.com/2025/01/12/world/middleeast/israeli-security-chiefs-join-critical-talks-for-a-cease-fire-in-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054031/2025/01/12/lindsey-vonn-skiing-downhill-oly
 **Officials in Orange County, south of L.A., urge caution in dry conditions.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/officials-in-orange-county-south-of-la-urge-caution-in-dry-conditions
-
-**Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
-`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
-https://nytimes.com/athletic/5882648/2025/01/12/carlos-alcaraz-jannik-sinner-tennis-australian-open/
 
