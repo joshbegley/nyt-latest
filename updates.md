@@ -1,3 +1,7 @@
+**A bold prediction for 2025: The Rangers are making the playoffs**\
+`After toughing out a 2-1 win over the Golden Knights on Saturday, the Rangers look like a playoff team.`\
+https://nytimes.com/athletic/6055197/2025/01/12/rangers-playoffs-prediction-2025/
+
 **How to Make It to Jan. 31 Without Losing Your Mind**\
 `Lotion! Heating pads! Sketchy space heaters!`\
 https://nytimes.com/2025/01/12/opinion/january-survival-winter-sad.html
