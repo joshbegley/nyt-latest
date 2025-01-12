@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
 
 **How to Protect Your Home From Wildfires**\
 `Thousands of wildfires rage across California every year. No matter where you are, it’s important to learn how to minimize their threat.`\
-https://nytimes.com/2025/01/12/realestate/how-to-protect-your-home-from-wildfires.html
+https://nytimes.com/2025/01/12/realestate/how-to-protect-homes-wildfires.html
 
 **The Pulse: An unprecedented Playoff finale**\
 `Welcome to The Pulse, The Athetic's daily sports business newsletter. `\
