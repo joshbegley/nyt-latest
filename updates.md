@@ -1,3 +1,7 @@
+**Buckley: Patriots’ next move after Mike Vrabel hire is to get their house in order**\
+`The Pats were thought to be rebuilding a few years ago. Looking back on it, from Tom Brady's exit to Jerod Mayo's, they were falling apart. `\
+https://nytimes.com/athletic/6056171/2025/01/12/mike-vrabel-patriots-coach-hiring-column/
+
 **Containing the Palisades fire means weighing winds and topography.**\
 `By Amy Graff`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/containing-the-palisades-fire-means-weighing-winds-and-topography
