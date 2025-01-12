@@ -1,3 +1,27 @@
+**Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
+`The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
+https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
+
+**Pornography Is One Place Where Freedom for Adults Becomes Cruelty to Children**\
+`A new law in Texas requiring age verification for certain sites should be upheld.`\
+https://nytimes.com/2025/01/12/opinion/pornography-texas-supreme-court.html
+
+**The Dream of California Is Up in Smoke**\
+`Los Angeles seemed like paradise. Who could have imagined where it would lead?`\
+https://nytimes.com/2025/01/12/opinion/los-angeles-fires.html
+
+**Martha, Nigella, Meghan Markle?**\
+`Her every move seems to spark a backlash. But by launching a lifestyle show on Netflix, Meghan may yet find her fairy-tale ending.`\
+https://nytimes.com/2025/01/12/opinion/meghan-markle-netflix-haters.html
+
+**I’m a Federal Employee. This Is What We Need Most in the Trump Era.**\
+`Practical support matters more than encouragement.`\
+https://nytimes.com/2025/01/12/opinion/administrative-deep-state-trump.html
+
+**Lindsey Vonn's comeback hits a new high; Lauren Macuga wins first World Cup race**\
+`Lindsey Vonn's impressive return to alpine skiing continued two top-six World Cup finishes this weekend.`\
+https://nytimes.com/athletic/6054031/2025/01/12/lindsey-vonn-skiing-downhill-olympics-st-anton/
+
 **Officials in Orange County, south of L.A., urge caution in dry conditions.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/officials-in-orange-county-south-of-la-urge-caution-in-dry-conditions
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/12/podcasts/the-daily/alice-munro-andrea-skinner-abu
 **The Connections Companion No. 582**\
 `Scroll down for hints and conversation about the puzzle for Monday, Jan. 13, 2025.`\
 https://nytimes.com/2025/01/12/crosswords/connections-companion-582.html
-
-**Wordle Review No. 1,304**\
-`Scroll down for hints and conversation about the puzzle for Monday, Jan. 13, 2025.`\
-https://nytimes.com/2025/01/12/crosswords/wordle-review-1304.html
-
-**Firefighters Battle to Keep Palisades Blaze From Pushing Into Mandeville Canyon**\
-`Mandeville Canyon Road, including multimillion-dollar homes with panoramic city views, was out of immediate danger for now, fire officials said.`\
-https://nytimes.com/2025/01/12/us/mandeville-canyon-palisades-fire.html
-
-**Arthur Fils, already top 20 in the world, learns how to play tennis in Melbourne**\
-`He's inside the ATP top-20 and looks destined to go higher. But the young Frenchman is still figuring out his own way to win.`\
-https://nytimes.com/athletic/5999574/2025/01/12/arthur-fils-tennis-australian-open/
-
-**What do you think of Ryan Day now? Ohio State proving in the Playoff it's not soft**\
-`On the head coach, the real offensive MVP and what the Buckeyes need to do versus Notre Dame.`\
-https://nytimes.com/athletic/6054816/2025/01/12/ohio-state-ryan-day-playoff-texas/
-
-**Palisades Lost**\
-`Days after a devastating wildfire, residents of Pacific Palisades have started sifting through the ruins, and their memories.`\
-https://nytimes.com/2025/01/12/us/palisades-wildfires.html
-
-**Inside Elon Musk’s Plan for DOGE to Slash Government Costs**\
-`Mr. Musk has turned to Silicon Valley to help recruit executives who will take up unofficial positions across the federal government.`\
-https://nytimes.com/2025/01/12/us/politics/elon-musk-doge-government-trump.html
 
