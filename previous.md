@@ -1,3 +1,11 @@
+**Wrexham could have new route to Europe next season after new plans revealed**\
+`Proposed shake-up to Welsh football could happen by 2025-26`\
+https://nytimes.com/athletic/6055411/2025/01/12/wrexham-could-have-new-route-to-europe-next-season-after-new-plans-revealed/
+
+**Texas tackle Kelvin Banks declares for NFL draft**\
+`Banks was widely expected to enter the draft after this season and is projected as a first-round pick.`\
+https://nytimes.com/athletic/6056615/2025/01/12/kelvin-banks-nfl-draft-texas-football/
+
 **‘We are definitely a family church.’ Friendship Pasadena Church offers tissues, masks and hugs.**\
 `By Jesus Jiménez`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/we-are-definitely-a-family-church-friendship-pasadena-church-offers-tissues-masks-and-hugs
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6056077/2025/01/12/broncos-game-score-playoffs-take
 **Druse Leader Aims to Secure Place for Syrian Minorities**\
 `Despite assurances from the rebels-turned-leaders, members of some religious groups worry what life will be like for them in a post-Assad Syria.`\
 https://nytimes.com/2025/01/12/world/middleeast/syira-druse-diplomacy.html
-
-**Before Taking Office, L.A.’s Mayor Said She Would Not Go Abroad**\
-`Mayor Karen Bass of Los Angeles has been criticized for being out of the country when the wildfires broke out. Three years ago, she promised in an interview to cut back on her world travel and focus on the city.`\
-https://nytimes.com/2025/01/12/us/karen-bass-ghana-wildfire-travel-los-angeles.html
-
-**The Arsenal-Man United shootout analysed: Stutter-steps, Bayindir's magic and Zirkzee's redemption**\
-`An enthralling FA Cup third-round tie came down to penalties - this is how United came out on top.`\
-https://nytimes.com/athletic/6056170/2025/01/12/arsenal-man-united-penalties/
 
