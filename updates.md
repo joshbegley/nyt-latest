@@ -1,3 +1,19 @@
+**Hams in the Belfry: How a Cash-Poor French Cathedral Fixed Its Organ**\
+`A dispute over a project to cure hams in a bell tower underscored the difficulties that churches in France face trying to pay for restorations.`\
+https://nytimes.com/2025/01/12/world/europe/france-cathedral-hams-organ.html
+
+**Arsenal vs Manchester United preview, odds, prediction for tantalising FA Cup fixture**\
+`Arsenal and Manchester United are paired together for the third round of the FA Cup, which is the most noteworthy fixture of the round.`\
+https://nytimes.com/athletic/6052741/2025/01/12/arsenal-manchester-united-preview-odds-prediction-fa-cup/
+
+**Ravens advance to divisional round with 28-14 win vs. Steelers: Takeaways**\
+`Baltimore rushed for 299 yards and nearly doubled Pittsburgh's time of possession.`\
+https://nytimes.com/athletic/6054226/2025/01/11/ravens-wild-card-score-result-takeaways-steelers/
+
+**Quote of the Day: In Congress, Push for Proxy Voting for New Parents Draws Bipartisan Support**\
+`Quotation of the Day for Sunday, January 12, 2025.`\
+https://nytimes.com/2025/01/11/pageoneplus/quote-of-the-day-in-congress-push-for-proxy-voting-for-new-parents-draws-bipartisan-support.html
+
 **Anders Sorensen focused on present, not on possible future as Blackhawks coach**\
 `"It's just day by day, trying to improve the group — what we have right now — and not trying to look too far down the road," Sorensen said.`\
 https://nytimes.com/athletic/6054957/2025/01/11/blackhawks-oilers-coach-anders-sorensen/

@@ -1,3 +1,19 @@
+**Hams in the Belfry: How a Cash-Poor French Cathedral Fixed Its Organ**\
+`A dispute over a project to cure hams in a bell tower underscored the difficulties that churches in France face trying to pay for restorations.`\
+https://nytimes.com/2025/01/12/world/europe/france-cathedral-hams-organ.html
+
+**Arsenal vs Manchester United preview, odds, prediction for tantalising FA Cup fixture**\
+`Arsenal and Manchester United are paired together for the third round of the FA Cup, which is the most noteworthy fixture of the round.`\
+https://nytimes.com/athletic/6052741/2025/01/12/arsenal-manchester-united-preview-odds-prediction-fa-cup/
+
+**Ravens advance to divisional round with 28-14 win vs. Steelers: Takeaways**\
+`Baltimore rushed for 299 yards and nearly doubled Pittsburgh's time of possession.`\
+https://nytimes.com/athletic/6054226/2025/01/11/ravens-wild-card-score-result-takeaways-steelers/
+
+**Quote of the Day: In Congress, Push for Proxy Voting for New Parents Draws Bipartisan Support**\
+`Quotation of the Day for Sunday, January 12, 2025.`\
+https://nytimes.com/2025/01/11/pageoneplus/quote-of-the-day-in-congress-push-for-proxy-voting-for-new-parents-draws-bipartisan-support.html
+
 **Anders Sorensen focused on present, not on possible future as Blackhawks coach**\
 `"It's just day by day, trying to improve the group — what we have right now — and not trying to look too far down the road," Sorensen said.`\
 https://nytimes.com/athletic/6054957/2025/01/11/blackhawks-oilers-coach-anders-sorensen/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6054939/2025/01/11/pistons-raptors-nba-draft-lotter
 **At a Palisades mobile home park, middle-class dreams lie in ruins.**\
 `By Jacob Bernstein`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/at-a-palisades-mobile-home-park-middle-class-dreams-lie-in-ruins
-
-**Synagogue Congregation Grieves in Borrowed Home After L.A. Fires**\
-`Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
-https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
-
-**Community L.A. Fire Brigade Steps In to Help Evacuate Residents**\
-`Deep into the evacuation zone, volunteers are stepping in to evacuate L.A. residents from encroaching wildfires. Armed with radios, hoses and knowledge of the area, this brigade offers help to overextended fire departments as they try to reach people who have yet to flee.`\
-https://nytimes.com/video/us/100000009918111/palisades-fire-community-volunteers.html
-
-**How Elias Pettersson, Quinn Hughes got tired Canucks back on track: 3 takeaways**\
-`Vancouver's best players outperformed Toronto's, and Hughes was the brightest star on the ice, coming away with a sorely-needed 3-0 victory.`\
-https://nytimes.com/athletic/6054826/2025/01/11/canucks-maple-leafs-elias-pettersson-quinn-hughes/
-
-**Sabres fans chant ‘Fire Adams!’ with owner Terry Pegula in attendance**\
-`Pegula watched as the Sabres blew a two-goal lead and allowed six unanswered goals for a 6-2 collapse to the Kraken.`\
-https://nytimes.com/athletic/6054894/2025/01/11/sabres-owner-terry-pegula-kraken/
 
