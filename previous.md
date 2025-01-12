@@ -1,3 +1,7 @@
+**Blackhawks affiliate Rockford IceHogs to host 2026 AHL All-Star Classic**\
+`The skills competition will be held on Feb. 10 and the All-Star Game on Feb. 11 at BMO Center in Rockford.`\
+https://nytimes.com/athletic/6055840/2025/01/12/blackhawks-rockford-icehogs-ahl-all-star/
+
 **PWHL sets U.S. attendance record in Denver as part of Takeover Tour**\
 `Over 14,000 fans packed Ball Arena to watch the Minnesota Frost and Montreal Victoire play in Denver.`\
 https://nytimes.com/athletic/6056541/2025/01/12/pwhl-us-attendance-record-denver/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/us/private-firefighters-la-wildfires.html
 **At least 16 people are missing. Many more are searching for relatives.**\
 `By Nicholas Bogel-Burroughs and Claire Moses`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/at-least-16-people-are-missing-many-more-are-searching-for-relatives
-
-**The Briefing: Real Madrid 2 Barcelona 5 - Yamal and Co inflict a historic humiliation**\
-`Barca put four goals past Madrid in consecutive matches for the first time in Clasico history. Our writers analyse the key talking points`\
-https://nytimes.com/athletic/6053562/2025/01/12/real-madrid-2-barcelona-5-clasico-humiliation/
 

@@ -1,3 +1,7 @@
+**Blackhawks affiliate Rockford IceHogs to host 2026 AHL All-Star Classic**\
+`The skills competition will be held on Feb. 10 and the All-Star Game on Feb. 11 at BMO Center in Rockford.`\
+https://nytimes.com/athletic/6055840/2025/01/12/blackhawks-rockford-icehogs-ahl-all-star/
+
 **PWHL sets U.S. attendance record in Denver as part of Takeover Tour**\
 `Over 14,000 fans packed Ball Arena to watch the Minnesota Frost and Montreal Victoire play in Denver.`\
 https://nytimes.com/athletic/6056541/2025/01/12/pwhl-us-attendance-record-denver/
