@@ -1,3 +1,7 @@
+**Wild takeaways: A gem by Marc-Andre Fleury, top line bounces back, Kirill Kaprizov update**\
+`After recovering from stomach flu, Fleury was the best Wild player on the ice — by far — in lifting the Wild to a 3-1 win over the Sharks.`\
+https://nytimes.com/athletic/6055243/2025/01/12/marc-andre-fleury-kaprizov-update-wild-takeaways/
+
 **A bold prediction for 2025: The Rangers are making the playoffs**\
 `After toughing out a 2-1 win over the Golden Knights on Saturday, the Rangers look like a playoff team.`\
 https://nytimes.com/athletic/6055197/2025/01/12/rangers-playoffs-prediction-2025/
