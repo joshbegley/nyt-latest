@@ -1,3 +1,7 @@
+**Resisting Oppression With Creativity, Two Ways**\
+`The Out-Front! Festival at the Brooklyn Academy of Music on Saturday featured thrilling works by Angie Pittman (“Black Life Chord Changes”) and Kyle Marshall (“Joan”).`\
+https://nytimes.com/2025/01/12/arts/dance/angie-pittman-kyle-marshall-bam.html
+
 **3 Humvees and Military Supplies Stolen From Army Reserve Warehouse**\
 `The police in Tustin, Calif., said the Humvees, as well as binoculars, bayonets and machine gun vehicle mounts, had been stolen from an Army Reserve Center.`\
 https://nytimes.com/2025/01/12/us/humvee-army-theft-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/us/politics/trump-salt-tax-new-york-new-jersey.ht
 **On a Screen, Devastation**\
 `As catastrophic fires consume homes in California, the owners can watch the unfolding tragedy through Ring and Nest cameras.`\
 https://nytimes.com/2025/01/12/realestate/ring-cameras-wildfires.html
-
-**How to Protect Your Home From Wildfires**\
-`Thousands of wildfires rage across California every year. No matter where you are, it’s important to learn how to minimize their threat.`\
-https://nytimes.com/2025/01/12/realestate/how-to-protect-homes-wildfires.html
 
