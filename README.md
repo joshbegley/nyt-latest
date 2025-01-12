@@ -1,3 +1,7 @@
+**A bold prediction for 2025: The Rangers are making the playoffs**\
+`After toughing out a 2-1 win over the Golden Knights on Saturday, the Rangers look like a playoff team.`\
+https://nytimes.com/athletic/6055197/2025/01/12/rangers-playoffs-prediction-2025/
+
 **The steady maturing of Lane Hutson’s NHL game is unjustly falling under the radar**\
 `Hutson's offensive exploits are well known, but his ability to perform in a mistake-free environment has been under-appreciated.`\
 https://nytimes.com/athletic/6055220/2025/01/12/canadiens-rookie-lane-hutson-maturity/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055043/2025/01/12/flyers-cutter-gauthier-ducks/
 **Ngumoha, Chiesa and a tale of two wingers hoping to make a Liverpool impact**\
 `Ngumoha became Liverpool's youngest debutant, aged 16, while Chiesa got a rare outing as he tries to kickstart his Anfield career`\
 https://nytimes.com/athletic/6054287/2025/01/12/ngumoha-chiesa-liverpool-accrington/
-
-**Norwich 0-4 Brighton: Enciso and Rutter provide a solution, March gives Hurzeler goosebumps**\
-`Fabian Hurzeler was rewarded for treating the FA Cup with respect in the 31-year-old German's first experience of the competition`\
-https://nytimes.com/athletic/6054288/2025/01/12/brighton-norwich-hurzeler-march/
 
