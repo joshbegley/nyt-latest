@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Don Waddell may face good problem at NHL trade deadline**\
+`The Blue Jackets are currently in a playoff spot. If they remain there, how will Waddell handle one of the biggest days on the NHL calendar?`\
+https://nytimes.com/athletic/6054278/2025/01/12/blue-jackets-nhl-trade-deadline-playoffs/
+
 **Amorim: Man United deserved win at Arsenal, controlled game without the ball**\
 `Ruben Amorim has said Manchester United deserved to progress past Arsenal in the FA Cup and that they controlled the game without the ball.`\
 https://nytimes.com/athletic/6055963/2025/01/12/manchester-united-fa-cup-win-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055787/2025/01/12/notre-dame-ohio-state-cfp-the-pu
 **Abigail McGrath, Founder of an Experimental Theater, Dies at 84**\
 `She was an aspiring actor when she was cast in an Andy Warhol film called “Tub Girls.” But she was best known for the beloved Off Center Theater.`\
 https://nytimes.com/2025/01/12/theater/abigail-mcgrath-dead.html
-
-**Restart Your Sourdough Starter**\
-`Feed it some flour and water, and watch as it blooms back into funky, bubbly excellence, ready for pancakes or waffles.`\
-https://nytimes.com/2025/01/12/dining/sourdough-waffles.html
 
