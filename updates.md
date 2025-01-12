@@ -1,3 +1,7 @@
+**Lindsey Vonn's comeback hits a new high; Lauren Macuga wins first World Cup race**\
+`Lindsey Vonn's impressive return to alpine skiing continued with two top-six World Cup finishes this weekend.`\
+https://nytimes.com/athletic/6054031/2025/01/12/lindsey-vonn-skiing-downhill-olympics-st-anton/
+
 **Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
 `The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
 https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/

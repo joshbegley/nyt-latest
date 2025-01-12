@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/12/opinion/meghan-markle-netflix-haters.html
 https://nytimes.com/2025/01/12/opinion/administrative-deep-state-trump.html
 
 **Lindsey Vonn's comeback hits a new high; Lauren Macuga wins first World Cup race**\
-`Lindsey Vonn's impressive return to alpine skiing continued two top-six World Cup finishes this weekend.`\
+`Lindsey Vonn's impressive return to alpine skiing continued with two top-six World Cup finishes this weekend.`\
 https://nytimes.com/athletic/6054031/2025/01/12/lindsey-vonn-skiing-downhill-olympics-st-anton/
 
 **Officials in Orange County, south of L.A., urge caution in dry conditions.**\
