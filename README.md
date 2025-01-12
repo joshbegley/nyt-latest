@@ -1,3 +1,7 @@
+**Real estate on L.A.’s west side grows farther out of reach with the fires.**\
+`By Finn-Olaf Jones`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/real-estate-on-las-west-side-grows-farther-out-of-reach-with-the-fires
+
 **Fullkrug to miss 'a number of weeks' with hamstring injury, club say**\
 `West Ham United have said striker Niclas Fullkrug will be sidelined for &#8220;a number of weeks&#8221; with a hamstring injury.`\
 https://nytimes.com/athletic/6055363/2025/01/12/niclas-fullkrug-hamstring-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/opinion/meghan-markle-netflix-haters.html
 **I’m a Federal Employee. This Is What We Need Most in the Trump Era.**\
 `Practical support matters more than encouragement.`\
 https://nytimes.com/2025/01/12/opinion/administrative-deep-state-trump.html
-
-**Lindsey Vonn's comeback hits a new high; Lauren Macuga wins first World Cup race**\
-`Lindsey Vonn's impressive return to alpine skiing continued with two top-six World Cup finishes this weekend.`\
-https://nytimes.com/athletic/6054031/2025/01/12/lindsey-vonn-skiing-downhill-olympics-st-anton/
 
