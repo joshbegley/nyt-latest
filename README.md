@@ -1,3 +1,7 @@
+**Watch Duty, a Wildfire-Tracking App, Provides a Lifeline in Los Angeles**\
+`A nonprofit runs the app with volunteers and full-time employees, including retired firefighters and dispatchers, to provide live updates on fire conditions.`\
+https://nytimes.com/2025/01/11/us/watch-duty-wildfire-app.html
+
 **Penguins lose focus early as troubling trend continues: 3 takeaways vs. Senators**\
 `The Penguins gave up a goal on the first shot of the game for the ninth time this season in a 5-0 loss to Ottawa.`\
 https://nytimes.com/athletic/6054828/2025/01/11/penguins-senators-score-loss-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/11/world/africa/sudan-military-recaptures-city.html
 **I Think Knot**\
 `Jeffrey Martinovic’s Sunday puzzle enchants and entangles.`\
 https://nytimes.com/2025/01/11/crosswords/daily-puzzle-2025-01-12.html
-
-**MLB notes: A Pete Alonso contract prediction plus more players who could sign short-term deals**\
-`An educated guess at Alonso's future AAV, a hang-up for the Yankees in their attempts to deal Marcus Stroman and more notes.`\
-https://nytimes.com/athletic/6054714/2025/01/11/pete-alonso-contract-marcus-stroman-trade/
 
