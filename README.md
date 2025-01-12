@@ -1,3 +1,7 @@
+**Fullkrug to miss 'a number of weeks' with hamstring injury, club say**\
+`West Ham United have said striker Niclas Fullkrug will be sidelined for &#8220;a number of weeks&#8221; with a hamstring injury.`\
+https://nytimes.com/athletic/6055363/2025/01/12/niclas-fullkrug-hamstring-injury/
+
 **Part of Eastern Malibu Is ‘Gone,’ Mayor Says, as Palisades Fire Rages**\
 `A third of eastern Malibu has been destroyed by the blaze, including the communities of Big Rock and Carbon Mesa and a famed stretch of Pacific Coast Highway, officials said.`\
 https://nytimes.com/2025/01/12/us/malibu-palisades-fire-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/opinion/administrative-deep-state-trump.html
 **Lindsey Vonn's comeback hits a new high; Lauren Macuga wins first World Cup race**\
 `Lindsey Vonn's impressive return to alpine skiing continued with two top-six World Cup finishes this weekend.`\
 https://nytimes.com/athletic/6054031/2025/01/12/lindsey-vonn-skiing-downhill-olympics-st-anton/
-
-**Officials in Orange County, south of L.A., urge caution in dry conditions.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/officials-in-orange-county-south-of-la-urge-caution-in-dry-conditions
 
