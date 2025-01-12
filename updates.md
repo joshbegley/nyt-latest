@@ -1,3 +1,15 @@
+**Restart Your Sourdough Starter**\
+`Feed it some flour and water, and watch as it blooms back into funky, bubbly excellence, ready for pancakes or waffles.`\
+https://nytimes.com/2025/01/12/dining/sourdough-waffles.html
+
+**Stronger Santa Ana Winds to Return, and Risk May Rise to ‘Extreme’**\
+`After a brief break on Sunday afternoon, another prolonged round of gusty Santa Ana winds is expected to develop, forecasters say.`\
+https://nytimes.com/2025/01/12/us/santa-ana-winds-fires-california.html
+
+**Italian Justice Ministry Moves to Release Iranian Man Sought by the U.S.**\
+`The request to revoke the man’s arrest came only days after Iran released an Italian journalist being held in Tehran.`\
+https://nytimes.com/2025/01/12/world/europe/italy-iran-us-abedini.html
+
 **Italian Justice Ministry Moves to Release Iranian Man Sought by the U.S.**\
 `The request to revoke the man’s arrest came just days after Iran had released an Italian journalist being held in Tehran.`\
 https://nytimes.com/2025/01/12/world/europe/italian-justice-ministry-moves-to-release-iranian-man-sought-by-the-us.html
