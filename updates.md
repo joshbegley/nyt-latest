@@ -1,3 +1,7 @@
+**Texans transform Chargers' 'bye' into blowout via fortunate bounce, suffocating coverage**\
+`C.J. Stroud's improvisational magic sparked Houston's offense while the Texans defense painted a masterpiece against Justin Herbert.`\
+https://nytimes.com/athletic/6055064/2025/01/12/texans-chargers-cj-stroud-derek-stingley/
+
 **How to Survive January**\
 `Lotion! Heating pads! Sketchy space heaters!`\
 https://nytimes.com/2025/01/12/opinion/january-survival-winter-sad.html

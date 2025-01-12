@@ -1,3 +1,7 @@
+**Texans transform Chargers' 'bye' into blowout via fortunate bounce, suffocating coverage**\
+`C.J. Stroud's improvisational magic sparked Houston's offense while the Texans defense painted a masterpiece against Justin Herbert.`\
+https://nytimes.com/athletic/6055064/2025/01/12/texans-chargers-cj-stroud-derek-stingley/
+
 **How to Survive January**\
 `Lotion! Heating pads! Sketchy space heaters!`\
 https://nytimes.com/2025/01/12/opinion/january-survival-winter-sad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054418/2025/01/12/enzo-le-fee-sunderland-stoke/
 **Nottingham Forest's display of strength in depth bodes well for the challenges to come**\
 `Nuno Espirito Santo made wholesale changes in the FA Cup and his back-up players delivered`\
 https://nytimes.com/athletic/6054437/2025/01/12/nottingham-forest-luton-fa-cup/
-
-**Kyle Walker, his request to leave Man City and what it means for player and club**\
-`Pep Guardiola says the England international wants to move on, so where might Walker go and what gap would he leave at City?`\
-https://nytimes.com/athletic/6054737/2025/01/12/kyle-walker-manchester-city-exit/
 
