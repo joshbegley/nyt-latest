@@ -1,3 +1,7 @@
+**‘We are definitely a family church.’ Friendship Pasadena Church offers tissues, masks and hugs.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/we-are-definitely-a-family-church-friendship-pasadena-church-offers-tissues-masks-and-hugs
+
 **Pitt stuns SMU to set largest comeback in women's basketball history**\
 `Pitt held SMU scoreless in the third quarter, the first time an ACC team failed to score in a quarter since FSU in 2018.`\
 https://nytimes.com/athletic/6056523/2025/01/12/pitt-womens-basketball-largest-comeback-ncaa-history/

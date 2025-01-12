@@ -1,3 +1,7 @@
+**‘We are definitely a family church.’ Friendship Pasadena Church offers tissues, masks and hugs.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/we-are-definitely-a-family-church-friendship-pasadena-church-offers-tissues-masks-and-hugs
+
 **Pitt stuns SMU to set largest comeback in women's basketball history**\
 `Pitt held SMU scoreless in the third quarter, the first time an ACC team failed to score in a quarter since FSU in 2018.`\
 https://nytimes.com/athletic/6056523/2025/01/12/pitt-womens-basketball-largest-comeback-ncaa-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/us/karen-bass-ghana-wildfire-travel-los-angeles.h
 **The Arsenal-Man United shootout analysed: Stutter-steps, Bayindir's magic and Zirkzee's redemption**\
 `An enthralling FA Cup third-round tie came down to penalties - this is how United came out on top.`\
 https://nytimes.com/athletic/6056170/2025/01/12/arsenal-man-united-penalties/
-
-**Allen powers Bills past Broncos 31-7, into showdown with Ravens: Takeaways**\
-`James Cook led Buffalo's backfield to 210 rushing yards against a Denver defense that ranked third-best in the NFL at stopping the run.`\
-https://nytimes.com/athletic/6055896/2025/01/12/bills-game-score-playoffs-takeaways-wild-card/
 
