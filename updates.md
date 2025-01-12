@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-j
 `\
 https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
 
+**Bruins’ David Pastrnak and Jeremy Swayman turn a seventh straight loss into a win**\
+`The Bruins were desperate for good fortune and they got just that in a 4-3 overtime win over the Panthers. 
+`\
+https://nytimes.com/athletic/6054736/2025/01/11/bruins-panthers-david-pastrnak-jeremy-swayman/
+
 **Penguins lose focus early as troubling trend continues: 3 takeaways vs. Senators**\
 `The Penguins gave up a goal on the first shot of the game for the ninth time this season in a 5-0 loss to Ottawa.`\
 https://nytimes.com/athletic/6054828/2025/01/11/penguins-senators-score-loss-takeaways/
