@@ -1,4 +1,8 @@
-**Jet Greaves shines and Blue Jackets dig deep for gutsy road win in St. Louis**\
+**What went wrong in Steelers 28-14 wild-card round loss to the Ravens: Takeaways**\
+`Pittburgh gives up franchise playoff record 299 yards in loss`\
+https://nytimes.com/athletic/6054222/2025/01/11/steelers-wild-card-score-result-takeaways-ravens/
+
+**Jet Greaves impresses and Blue Jackets dig deep for gutsy road win in St. Louis**\
 `Greaves made 31 saves and came within 10.8 seconds of a shutout to lead the Blue Jackets to a hard-fought 2-1 win over the Blues.`\
 https://nytimes.com/athletic/6054931/2025/01/11/blue-jackets-blues-jet-greaves/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054894/2025/01/11/sabres-owner-terry-pegula-kraken
 **As the cadaver dogs begin their search, a grim reality sets in for one sheriff.**\
 `Sheriff Robert Luna, of Los Angeles County, sAltadena on Saturday afternoon in what`\
 https://nytimes.com/live/2025/01/11/us/los-angeles-fires-california/as-the-cadaver-dogs-begin-their-search-a-grim-reality-sets-in-for-one-sheriff
-
-**Texans pick off Herbert 4 times in 32-12 wild-card blowout: Takeaways**\
-`Texans' All-Pro corner Derek Stingley shined, finishing with two picks, a forced fumble and five passes defensed.`\
-https://nytimes.com/athletic/6054219/2025/01/11/chargers-texans-score-result-takeaways/
 

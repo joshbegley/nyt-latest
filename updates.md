@@ -1,3 +1,11 @@
+**What went wrong in Steelers 28-14 wild-card round loss to the Ravens: Takeaways**\
+`Pittburgh gives up franchise playoff record 299 yards in loss`\
+https://nytimes.com/athletic/6054222/2025/01/11/steelers-wild-card-score-result-takeaways-ravens/
+
+**Jet Greaves impresses and Blue Jackets dig deep for gutsy road win in St. Louis**\
+`Greaves made 31 saves and came within 10.8 seconds of a shutout to lead the Blue Jackets to a hard-fought 2-1 win over the Blues.`\
+https://nytimes.com/athletic/6054931/2025/01/11/blue-jackets-blues-jet-greaves/
+
 **Synagogue Congregation Grieves in Borrowed Home After L.A. Fires**\
 `Across Los Angeles, congregants displaced by the blazes met for their first services in borrowed churches, synagogues and other temples.`\
 https://nytimes.com/2025/01/11/us/synagogue-los-angeles-palisades-fires.html
