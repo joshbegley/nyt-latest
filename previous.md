@@ -1,3 +1,7 @@
+**Canada and Mexico Are Sending Teams to Help California Fight the Fires**\
+`Air tankers, firefighters and technicians from the neighboring countries are on their way to Los Angeles in a show of solidarity.`\
+https://nytimes.com/2025/01/11/us/mexico-canada-firefighters-california.html
+
 **Biden Awards Medal of Freedom to Pope Francis**\
 `President Biden, a Catholic, awarded the medal with distinction to the pontiff, to whom he has turned for personal guidance.`\
 https://nytimes.com/2025/01/11/us/politics/biden-medal-of-freedom-pope-francis.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/11/us/la-fires-evacuation-looting.html
 **Scott Servais joins Padres as special assistant: Sources**\
 `Servais, who managed the Mariners for nine seasons, worked alongside Padres president A.J. Preller with the Texas Rangers.`\
 https://nytimes.com/athletic/6054415/2025/01/11/padres-scott-servais/
-
-**Should Scott Laughton be the Maple Leafs' top trade target before the deadline?**\
-`Laughton's versatility, feistiness and grit make him a perfect fit for what Toronto is trying to build. But is a deal realistic?`\
-https://nytimes.com/athletic/6054511/2025/01/11/maple-leafs-scott-laughton-trade-flyers/
 
