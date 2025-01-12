@@ -1,3 +1,7 @@
+**An Expert Explains Palisades Fire’s Behavior**\
+`The blaze, which has burned 23,700 acres in western Los Angeles since starting on Jan. 7, has been tricky to wrangle. Its northern edge, by Mandeville Canyon, is the area of biggest concern, said Robert Clark of Cal Fire.`\
+https://nytimes.com/2025/01/12/us/palisades-fire-behavior.html
+
 **Druse Leader Aims to Secure Place for Syrian Minorities**\
 `Despite assurances from the rebels-turned-leaders, members of some religious groups worry what life will be like for them in a post-Assad Syria.`\
 https://nytimes.com/2025/01/12/world/middleeast/syira-druse-diplomacy.html
