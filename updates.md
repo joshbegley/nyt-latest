@@ -1,3 +1,7 @@
+**Israeli Security Chiefs Join Critical Talks for a Cease-Fire in Gaza**\
+`Pressure is on to reach a deal that would see Hamas release at least some hostages before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2025/01/12/world/middleeast/israeli-security-chiefs-gaza-cease-fire.html
+
 **Part of Eastern Malibu Is ‘Gone,’ Mayor Says, as Palisades Fire Rages**\
 `A third of eastern Malibu has been destroyed by the blaze, including the communities of Big Rock and Carbon Mesa and a famed stretch of Pacific Coast Highway, officials said.`\
 https://nytimes.com/2025/01/12/us/malibu-palisades-fire-mayor.html
