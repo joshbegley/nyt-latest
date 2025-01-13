@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
+https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/heres-the-latest-on-the-fires
+
+**Live Updates: Dangerous Winds Are Forecast as Crews Battle L.A. Wildfires**\
+`Another round of heavy winds was expected on Monday, threatening the progress firefighters have made against the blazes that have killed at least 24 people and ravaged the Los Angeles area.`\
+https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates
+
 **Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
 `The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
 https://nytimes.com/athletic/5882648/2025/01/13/carlos-alcaraz-jannik-sinner-tennis-australian-open/
