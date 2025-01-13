@@ -1,3 +1,11 @@
+**Packers WRs Romeo Doubs, Jayden Reed exit with injuries vs. Eagles**\
+`Jordan Love's top receivers left Sunday's game against the Philadelphia Eagles on back-to-back drives.`\
+https://nytimes.com/athletic/6056669/2025/01/12/packers-romeo-doubs-jayden-reed-injuries/
+
+**Chargers' Khalil Mack mulling retirement, Asante Samuel Jr. reveals his injury**\
+`The Chargers expect to have a healthy amount of roster turnover after their season ended with a 32-12 playoff loss to the Texans.`\
+https://nytimes.com/athletic/6056710/2025/01/12/chargers-playoff-loss-khalil-mack-retirement/
+
 **In L.A., the Heartache of Being Home**\
 `Tejal Rao, a Times food critic who lives in Los Angeles, explores the fleeting nature of safety after the fires.`\
 https://nytimes.com/2025/01/12/us/los-angeles-wildfires-heartache.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/12/crosswords/daily-puzzle-2025-01-13.html
 **Blackhawks affiliate Rockford IceHogs to host 2026 AHL All-Star Classic**\
 `The skills competition will be held on Feb. 10 and the All-Star Game on Feb. 11 at BMO Center in Rockford.`\
 https://nytimes.com/athletic/6055840/2025/01/12/blackhawks-rockford-icehogs-ahl-all-star/
-
-**PWHL sets U.S. attendance record in Denver as part of Takeover Tour**\
-`Over 14,000 fans packed Ball Arena to watch the Minnesota Frost and Montreal Victoire play in Denver.`\
-https://nytimes.com/athletic/6056541/2025/01/12/pwhl-us-attendance-record-denver/
-
-**Stagehands Walk Off the Job at Atlantic Theater Company**\
-`The stage employees union accused the nonprofit theater of stalling talks. The strike forced the cancellation of Sunday performances of two new plays.`\
-https://nytimes.com/2025/01/12/theater/atlantic-theater-stagehands-strike.html
 
