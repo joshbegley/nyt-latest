@@ -1,3 +1,11 @@
+**Cease-Fire Deal Between Israel and Hamas Is on the ‘Brink,’ Biden Says**\
+`As President Biden highlighted his foreign policy works in a speech on Monday, he suggested that his administration’s proposal for a cease-fire in Gaza was close to becoming a reality.`\
+https://nytimes.com/video/us/politics/100000009924431/biden-foreign-policy-israel-ceasefire.html
+
+**What the Fire Warnings Mean**\
+`From a red flag to a particularly dangerous situation, here’s how to understand some of the alerts going around.`\
+https://nytimes.com/2025/01/13/weather/what-fire-warnings-mean.html
+
 **New York Could Be the Next State to Limit Students’ Cellphone Use**\
 `Gov. Kathy Hochul on Monday signaled her plan to include related legislation in her budget proposal, saying she hoped to limit distractions during the school day.`\
 https://nytimes.com/2025/01/13/nyregion/new-york-schools-cellphone-ban-hochul.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6058559/2025/01/13/jarrod-bowen-west-ham-injury/
 **Rodriguez signs for Club Leon after Rayo Vallecano exit**\
 `James Rodriguez has joined Mexican side Club Leon after leaving Rayo Vallecano earlier this month.`\
 https://nytimes.com/athletic/6043637/2025/01/13/james-rodriguez-transfer/
-
-**Lebanon Names Nawaf Salam, a Diplomat and Jurist, as Prime Minister**\
-`The selection of Mr. Salam was seen as a blow to Hezbollah, the Lebanese militant group and political party that has acted as the real power in Lebanon for decades.`\
-https://nytimes.com/2025/01/13/world/middleeast/lebanon-nawaf-salam-prime-minister.html
-
-**Moving N.F.L. Playoff Game Out of Fire Area Is a Logistical Challenge**\
-`Monday night’s game in Arizona between the Los Angeles Rams and the Minnesota Vikings is the first time the league has relocated a postseason game since 1936.`\
-https://nytimes.com/2025/01/13/business/nfl-playoffs-rams-vikings-la-wildfires.html
 

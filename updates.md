@@ -1,3 +1,15 @@
+**New York Could Be the Next State to Limit Students’ Cellphone Use**\
+`Gov. Kathy Hochul on Monday signaled her plan to include related legislation in her budget proposal, saying she hoped to limit distractions during the school day.`\
+https://nytimes.com/2025/01/13/nyregion/new-york-schools-cellphone-ban-hochul.html
+
+**Special Counsel Report on Hunter Biden Denounces President’s Criticism of Case**\
+`The report by the special counsel, David C. Weiss, criticized President Biden for making “baseless accusations” that threatened “the integrity of the justice system as a whole.”`\
+https://nytimes.com/2025/01/13/us/politics/special-counsel-report-hunter-biden.html
+
+**Strong Winds Threaten to Intensify L.A. Fires**\
+`Also, traffic eased after New York began congestion pricing. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/13/briefing/strong-winds-los-angeles-fires-congestion-pricing-data.html
+
 **Fires Continue to Rage Across Southern California**\
 `The wildfires have become some of the most destructive blazes in California history, razing neighborhoods and forcing thousands to evacuate their homes.`\
 https://nytimes.com/video/us/100000009924160/southern-california-wildfires.html
