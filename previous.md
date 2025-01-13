@@ -1,3 +1,11 @@
+**Troops Captured by Ukraine Provide Rare Glimpse Into North Korea’s Military**\
+`Ukraine’s president released a video of the two soldiers being interrogated, revealing they knew little about the war they were sent to fight in.`\
+https://nytimes.com/2025/01/13/world/asia/north-korea-ukraine-russia-troops.html
+
+**The footballer fixated on future and history - 'I often think about The Great Fire of London in 1666'**\
+`The Udinese left-back is packing plenty into his career and life - he's already planning to write a book and is obsessed by history`\
+https://nytimes.com/athletic/5956419/2025/01/13/jordan-zemura-udinese-bournemouth-interview/
+
 **Here’s the latest on the fires.**\
 `By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
 https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/heres-the-latest-on-the-fires
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6056502/2025/01/13/wisconsin-college-football-defen
 **Los Angeles Is Still Burning. Where Are the Leaders?**\
 `At this point, we’d take concepts of a plan.`\
 https://nytimes.com/2025/01/13/opinion/los-angeles-fires.html
-
-**No One Should Be Scoring Political Points Over a Fire**\
-`It’s way too soon for ideological score-settling.`\
-https://nytimes.com/2025/01/13/opinion/trump-fires-los-angeles.html
-
-**Can I Dress Both Conservatively and Stylishly as a Young Person?**\
-`Our fashion critic offers a young reader debating whether modesty is compatible with current trends advice on navigating personal style preferences.`\
-https://nytimes.com/2025/01/13/style/modest-young-fashion.html
 

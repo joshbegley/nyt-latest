@@ -1,3 +1,11 @@
+**Troops Captured by Ukraine Provide Rare Glimpse Into North Korea’s Military**\
+`Ukraine’s president released a video of the two soldiers being interrogated, revealing they knew little about the war they were sent to fight in.`\
+https://nytimes.com/2025/01/13/world/asia/north-korea-ukraine-russia-troops.html
+
+**The footballer fixated on future and history - 'I often think about The Great Fire of London in 1666'**\
+`The Udinese left-back is packing plenty into his career and life - he's already planning to write a book and is obsessed by history`\
+https://nytimes.com/athletic/5956419/2025/01/13/jordan-zemura-udinese-bournemouth-interview/
+
 **Here’s the latest on the fires.**\
 `By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
 https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/heres-the-latest-on-the-fires
