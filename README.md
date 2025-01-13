@@ -1,3 +1,7 @@
+**What Blue Origin has done so far.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-blue-origin-has-done-so-far
+
 **Celtics' 3-point dominance has vanished during slide: 'We've gotta get those up'**\
 `The Pelicans made more 3-pointers than the Celtics despite taking fewer attempts.`\
 https://nytimes.com/athletic/6057322/2025/01/13/celtics-3-pointers-slide-pelicans/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/opinion/schengen-migration-crisis.html
 **A Full Moon, a Bold Mars and a New Comet Brighten January’s Skies**\
 `On Monday night you may have a chance to witness the moon obscuring the Red Planet at its brightest, as well as a comet’s closest approach to the sun.`\
 https://nytimes.com/2025/01/13/science/moon-mars-comet.html
-
-**This is what will happen during New Glenn’s flight.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/this-is-what-will-happen-during-new-glenns-flight
 
