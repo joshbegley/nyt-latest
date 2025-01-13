@@ -1,3 +1,11 @@
+**Clemson targeting Penn State's Tom Allen as next defensive coordinator: Sources**\
+`The Nittany Lions ranked No. 7 nationally in total defense this season and came one game short of playing for the national championship. `\
+https://nytimes.com/athletic/6058465/2025/01/13/clemson-tom-allen-defensive-coordinator-penn-state/
+
+**Docs show Jontay Porter's texts to alleged co-conspirators in betting case**\
+`A complaint unsealed Monday includes messages Porter sent to alleged co-conspirators sharing information about his game status last year.`\
+https://nytimes.com/athletic/6058110/2025/01/13/jontay-porter-texts-betting-scandal/
+
 **Hollinger's Week That Was: Wemby leading an NBA revolution; scouting Kings' Devin Carter**\
 `As the game has opened up, it’s been easier for younger players to make more of an impact defensively. And Wemby is ahead of the pack.`\
 https://nytimes.com/athletic/6056857/2025/01/13/victor-wembanyama-defense-devin-carter-spurs/
