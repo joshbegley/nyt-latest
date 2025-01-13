@@ -1,3 +1,7 @@
+**Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
+`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
+https://nytimes.com/athletic/5882648/2025/01/13/carlos-alcaraz-jannik-sinner-tennis-australian-open/
+
 **Elland Road hosted its first match over a 100 years ago. The similarities with Saturday's FA Cup tie are striking**\
 `It’s almost uncanny the similarities between the Elland Road curtain-raiser and Harrogate Town's most recent visit to West Yorkshire`\
 https://nytimes.com/athletic/6054216/2025/01/13/leeds-united-harrogate-town-fa-cup-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055753/2025/01/13/can-chloe-kelly-get-the-minutes-
 **Welcome to Nottingham - a city that is once again daring to dream**\
 `Nottingham Forest are the surprise package of this Premier League season, and their rise has transformed the mood of a city`\
 https://nytimes.com/athletic/6046755/2025/01/13/nottingham-forest-city-champions-league/
-
-**The crisis of Kyle Walker**\
-`A player who has had to do his growing up in public, now finds himself in danger of growing old under the same harsh, unforgiving spotlight`\
-https://nytimes.com/athletic/6055421/2025/01/13/the-crisis-of-kyle-walker/
 
