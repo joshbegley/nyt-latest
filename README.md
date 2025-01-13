@@ -1,3 +1,15 @@
+**Moving N.F.L. Playoff Game Out of Fire Area Is a Logistical Challenge**\
+`Monday night’s game in Arizona between the Los Angeles Rams and the Minnesota Vikings is the first time the league has relocated a postseason game since 1936.`\
+https://nytimes.com/2025/01/13/business/nfl-playoffs-rams-vikings-la-wildfires.html
+
+**What to watch this week in the NBA: Pacers, Kings rising, Cavs-Thunder get a rematch**\
+`A number of games stand out across the NBA this week, including another Cavs-Thunder showdown and the Lakers returning to action at home.`\
+https://nytimes.com/athletic/6058550/2025/01/13/what-to-watch-nba-cavs-thunder-pacers-kings/
+
+**After a Naming Contest, Cardea Joins the Celestial Ranks as a Quasi-Moon**\
+`The W.N.Y.C. science program “Radiolab” partnered with the International Astronomical Union to solicit nearly 3,000 submissions. The Roman goddess of doorways and transitions won out.`\
+https://nytimes.com/2025/01/13/science/space/quasi-moon-radiolab-iau.html
+
 **Los Angeles teams, Fanatics donate $11 million to wildfire victims**\
 `The money will go to organizations like the American Red Cross, the Los Angeles Fire Department Foundation, World Central Kitchen and more.`\
 https://nytimes.com/athletic/6059423/2025/01/13/los-angeles-sports-teams-fanatics-donate-wildfire-victims/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6058657/2025/01/13/ohio-state-notre-dame-spread-nat
 **Review: A Dance That Wonders ‘What Will Happen to Us?’**\
 `Miguel Gutierrez’s “Super Nothing” at New York Live Arts asks how dance can confront the steady stream of life’s troubles.`\
 https://nytimes.com/2025/01/13/arts/dance/review-miguel-gutierrez-super-nothing.html
-
-**Less Traffic, Faster Buses: Congestion Pricing’s First Week**\
-`Early data from the Metropolitan Transportation Authority suggests that traffic has dropped around Manhattan’s core.`\
-https://nytimes.com/2025/01/13/nyregion/congestion-pricing-nyc.html
-
-**Searches Continue for Nearly Two Dozen Missing in the Fires**\
-`As of Monday morning, the official number of missing persons included 17 in the area of the Eaton fire near Pasadena, and six in the Malibu area near the Palisades fire.`\
-https://nytimes.com/2025/01/13/us/la-fires-missing-victims.html
-
-**Chelsea make enquiry to sign Tel from Bayern**\
-`Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel.`\
-https://nytimes.com/athletic/6059453/2025/01/13/mathys-tel-chelsea/
 
