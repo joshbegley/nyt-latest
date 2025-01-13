@@ -1,3 +1,7 @@
+**Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
+`The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
+https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
+
 **‘Who do we call?’ That’s the question for Altadena residents, as they think about rebuilding.**\
 `By Jesus Jiménez and Vik Jolly`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/who-do-we-call-thats-the-question-for-altadena-residents-as-they-think-about-rebuilding
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056769/2025/01/12/bills-playoffs-josh-allen-lamar-
 **Try a Little Tenderness**\
 `Stories of people who try a radical approach to solving their problems.`\
 https://nytimes.com/2025/01/12/podcasts/try-a-little-tenderness-this-american-life-nyt-audio.html
-
-**Broncos' early TD vs. Bills gave hope, but only hard lessons came next in playoff loss**\
-`The Broncos weren't alone in being decimated by Buffalo's offense, but the inability to keep pace offensively paints offseason priorities.`\
-https://nytimes.com/athletic/6056670/2025/01/12/broncos-playoffs-loss-bills-wild-card/
 

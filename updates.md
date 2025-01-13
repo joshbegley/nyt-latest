@@ -1,3 +1,7 @@
+**Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
+`The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
+https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
+
 **‘Who do we call?’ That’s the question for Altadena residents, as they think about rebuilding.**\
 `By Jesus Jiménez and Vik Jolly`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/who-do-we-call-thats-the-question-for-altadena-residents-as-they-think-about-rebuilding
