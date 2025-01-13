@@ -1,3 +1,7 @@
+**With South Korea in Crisis, Eight Justices Will Decide President’s Fate**\
+`The Constitutional Court, an arbiter in a polarized nation, is about to consider whether Yoon Suk Yeol’s impeachment for declaring martial law was justified.`\
+https://nytimes.com/2025/01/13/world/asia/south-korea-yoon-court-impeachment.html
+
 **Lander Vows to End Street Homelessness for Mentally Ill People as Mayor**\
 `Brad Lander, the New York City comptroller who is running for mayor, will announce a major plan to address homelessness after a series of violent attacks on the subway.`\
 https://nytimes.com/2025/01/13/nyregion/homeless-mentally-ill-brad-lander.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6057325/2025/01/13/zion-williamson-returns-from-sus
 **Belinda Bencic believes in herself, because of the women who came before her**\
 `The 2021 Olympic champion took inspiration from her fellow players — but the WTA Tour can still do more for mothers returning to tennis`\
 https://nytimes.com/athletic/6043694/2025/01/13/belinda-bencic-tennis-mothers-maternity-wta-tour/
-
-**Arsenal and their recurring problem of allowing defeat to turn into a slump**\
-`Analysing the pattern that has now undermined Arsenal's attempts to win silverware in three successive seasons`\
-https://nytimes.com/athletic/6055579/2025/01/13/arsenal-negative-impact-defeat/
 
