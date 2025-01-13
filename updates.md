@@ -1,3 +1,11 @@
+**FPL Gameweek 21 preview: Forwards in focus and Isak over Salah for captain?**\
+`Holly Shand breaks down the key talking points ahead of Gameweek 21 in Fantasy Premier League`\
+https://nytimes.com/athletic/6048953/2025/01/13/fantasy-premier-league-gw21-preview-isak-salah/
+
+**Tosin Adarabioyo, the unsung signing who has become Chelsea's leader**\
+`Signed on a free from Fulham, Tosin's acquisition did not cause a stir. But Maresca has praised him as the ‘most vocal in the dressing room’`\
+https://nytimes.com/athletic/6054416/2025/01/13/tosin-adarabioyo-chelsea-morecambe-fa-cup/
+
 **Unconvincing win over Stockport showed why Crystal Palace want Romain Esse**\
 `Had a deal been secured already, Sunday’s win against Stockport County in the FA Cup is the type of game that Esse might have featured in`\
 https://nytimes.com/athletic/6049549/2025/01/13/unconvincing-stockport-win-shows-why-crystal-palace-want-romain-esse/
