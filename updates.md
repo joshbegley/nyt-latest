@@ -1,3 +1,7 @@
+**Tuesday Briefing: Death Toll Rises in L.A. Fires**\
+`Plus, what’s going on with TV credits?`\
+https://nytimes.com/2025/01/13/briefing/los-angeles-fires-south-korea-yoon-ukraine-russia.html
+
 **Biden’s Push to Cancel Student Debt Surpasses 5 Million Borrowers**\
 `With Monday’s authorization and 27 previous ones, the Biden administration has forgiven over $180 billion in student loans, even as its larger policy vision never took root.`\
 https://nytimes.com/2025/01/13/us/politics/biden-student-loan-forgiveness.html

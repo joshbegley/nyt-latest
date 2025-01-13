@@ -1,3 +1,7 @@
+**Tuesday Briefing: Death Toll Rises in L.A. Fires**\
+`Plus, what’s going on with TV credits?`\
+https://nytimes.com/2025/01/13/briefing/los-angeles-fires-south-korea-yoon-ukraine-russia.html
+
 **Biden’s Push to Cancel Student Debt Surpasses 5 Million Borrowers**\
 `With Monday’s authorization and 27 previous ones, the Biden administration has forgiven over $180 billion in student loans, even as its larger policy vision never took root.`\
 https://nytimes.com/2025/01/13/us/politics/biden-student-loan-forgiveness.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059105/2025/01/13/jason-robertson-wyatt-johnston-4
 **For Los Angeles, Fires Ramp Up Difficulty of Hosting 2028 Summer Games**\
 `Rebuilding areas ravaged by wildfires will present a daunting challenge, but the flip side could be the “compelling image of a city emerging from the ashes.”`\
 https://nytimes.com/2025/01/13/us/politics/2028-olympics-host-los-angeles-fire.html
-
-**A Frankenstein Filing Error: It’s Alive!**\
-`Mistakenly placed in Boris Karloff’s clippings folder, a photo of the actor Glenn Strange has since been published in error. Twice.`\
-https://nytimes.com/2025/01/13/insider/a-frankenstein-filing-error-its-alive.html
 
