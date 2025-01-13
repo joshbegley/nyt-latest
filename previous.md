@@ -1,3 +1,11 @@
+**Indiana is at a crossroads as familiar pattern continues under Mike Woodson**\
+`The Hoosiers’ four losses this year were by an average of 21.5 points. In two true Big Ten road games, Indiana lost by a combined 42 points.`\
+https://nytimes.com/athletic/6056377/2025/01/13/indiana-basketball-mike-woodson-road-losses-blowouts/
+
+**As Clippers resume schedule amid LA wildfires, they look to rediscover 'identity'**\
+`A s wildfires continue to tear through the region, the Clippers return to the court aiming to reverse a troubling decline in play.`\
+https://nytimes.com/athletic/6048981/2025/01/13/clippers-schedule-games-wildfires-identity/
+
 **Caleb Williams' rookie season by the numbers: How good was the Bears' QB?**\
 `The numbers only tell us part of the story, but what can we learn about Williams' rookie year from his stats? Let's dive in.`\
 https://nytimes.com/athletic/6052576/2025/01/13/bears-caleb-williams-rookie-stats/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6056092/2025/01/13/blues-nhl-season-jim-montgomery-
 **How State Farm Stadium prepped for Vikings-Rams playoff game in just 5 days**\
 `The NFL and the Cardinals have worked hard to make Monday look and sound like a Rams home game, after wildfires forced a venue change.`\
 https://nytimes.com/athletic/6055234/2025/01/13/rams-vikings-nfl-playoff-game-moved-la-fires/
-
-**Trump’s Inaugural Celebration Will Kick Off at His Golf Club in Virginia**\
-`The president-elect is set to arrive in the Washington area on Saturday and begin a series of events that includes a party at Trump National Golf Club and a rally at Capital One Arena.`\
-https://nytimes.com/2025/01/13/us/politics/trumps-inaugural-celebration-will-kick-off-at-his-golf-club-in-virginia.html
-
-**L.A.’s Private Firefighters, and U.S. Childhood Vaccination Rates Fall**\
-`Plus, remembering a civil rights Freedom Rider.`\
-https://nytimes.com/2025/01/13/podcasts/firefighters-los-angeles-bidens-deportation-protections.html
 
