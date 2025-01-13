@@ -1,3 +1,7 @@
+**How Much Do You Know About These Controversial Classics?**\
+`Try this short quiz on literature from the first half of the 20th century that drew censorship challenges — and still does.`\
+https://nytimes.com/interactive/2025/01/13/books/review/controversial-books-quiz.html
+
 **Melania Trump Says She Plans to Be at White House Full Time**\
 `Mrs. Trump did not immediately move in to the White House when her husband was inaugurated in 2017, but she said the second stay was going to be more routine. “I already packed,” she told Fox News.`\
 https://nytimes.com/2025/01/13/us/politics/melania-trump-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058101/2025/01/13/penguins-today-wild-card-standin
 **Lowetide: Is the Oilers' focus on goal supression working?**\
 `The Oilers' devotion to stopping shots and chances is full-on in year two under this coaching staff.`\
 https://nytimes.com/athletic/6056032/2025/01/13/edmonton-oilers-stats-goal-supression/
-
-**Nuno: 'Nobody' could predict Nottingham Forest transformation**\
-`Nuno Espirito Santo says nobody could have predicted the transformation in fortunes at Nottingham Forest this season as his side prepare to face Premier League leaders Liverpool.`\
-https://nytimes.com/athletic/6058027/2025/01/13/nuno-nottingham-forest-liverpool/
 

@@ -1,3 +1,7 @@
+**How Much Do You Know About These Controversial Classics?**\
+`Try this short quiz on literature from the first half of the 20th century that drew censorship challenges — and still does.`\
+https://nytimes.com/interactive/2025/01/13/books/review/controversial-books-quiz.html
+
 **Tyson Fury says he is retiring from boxing**\
 `The announcement comes after Fury suffered a second defeat of his career by Oleksandr Usyk last month in Saudi Arabia.`\
 https://nytimes.com/athletic/6058044/2025/01/13/tyson-fury-retires-boxing-joshua/
