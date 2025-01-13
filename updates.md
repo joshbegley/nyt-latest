@@ -1,3 +1,11 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6057529/2025/01/13/newcastle-questions-transfers-dubravka/
+
+**Heat Today: Pat Riley says Jimmy Butler, today's NBA players 'owe us something'**\
+`Riley expressed his thoughts about modern NBA players in an interview with Dan Le Batard as the Jimmy Butler stalemate continues.`\
+https://nytimes.com/athletic/6056318/2025/01/13/pat-riley-jimmy-butler-trade-heat-nba/
+
 **Submit your questions for Until Saturday’s podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/6057729/2025/01/13/college-football-questions-mailbag-until-saturday-43/
