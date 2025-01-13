@@ -1,9 +1,21 @@
+**Talk Turns to ‘L.A. 2.0’**\
+`The governor of California has called for “a Marshall Plan” to rebuild the fire-ravaged city. But big questions loom about more ambitious and costly projects, including the 2028 Summer Olympic Games.`\
+https://nytimes.com/2025/01/13/business/dealbook/rebuilding-los-angeles-olympics-2028.html
+
+**NBA Rewind: Trade season heats up as the Cavaliers' title chances grow stronger**\
+`Who are some of the players who could be moved after Wednesday's key deadline?`\
+https://nytimes.com/athletic/6048015/2025/01/13/nba-trade-deadline-cavaliers/
+
+**Elon Musk Is an ‘Evil Person,’ Steve Bannon Says**\
+`The comments highlighted rifts within the U.S. right wing and between two men who have been influential advisers to President-elect Donald J. Trump.`\
+https://nytimes.com/2025/01/13/us/politics/steve-bannon-elon-musk.html
+
 **Madrid's back line was woeful against Barca, but they won't sign a defender. Why not?**\
 `A bruising Clasico defeat will not alter Madrid's plans for the January window, despite Ancelotti wanting reinforcements at the back`\
 https://nytimes.com/athletic/6056751/2025/01/13/real-madrid-clasico-defence-transfers/
 
 **Why Arsenal's FA Cup postponement could prove costly in WSL title race**\
-`This year was supposed to kick off with a bang but, with some FA Cup fourth-round fixtures postponed, it was more like a whimper`\
+`The new year was supposed to kick off with a bang but, with some FA Cup fourth-round fixtures postponed, it was more like a whimper`\
 https://nytimes.com/athletic/6056657/2025/01/13/wsl-fa-cup-arsenal-manchester-city-chelsea/
 
 **Submit questions for Aaron Gleeman's mailbag on Twins prospects and the farm system**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6057529/2025/01/13/newcastle-questions-transfers-du
 **Heat Today: Pat Riley says Jimmy Butler, today's NBA players 'owe us something'**\
 `Riley expressed his thoughts about modern NBA players in an interview with Dan Le Batard as the Jimmy Butler stalemate continues.`\
 https://nytimes.com/athletic/6056318/2025/01/13/pat-riley-jimmy-butler-trade-heat-nba/
-
-**Submit your questions for Until Saturday’s podcast mailbag**\
-`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
-https://nytimes.com/athletic/6057729/2025/01/13/college-football-questions-mailbag-until-saturday-43/
-
-**The Athletic FC: Barca's historic battering of Real Madrid, Arsenal slump continues**\
-`Today in TAFC: Barcelona make history with another thrashing of Real Madrid, Arsenal's slump continues, City's Walker looks to move`\
-https://nytimes.com/athletic/6057478/2025/01/13/barcelona-real-madrid-supercoppa-arsenal-manchester-united/
-
-**The Pulse: Yes, a game-winning doink**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6057151/2025/01/13/commanders-buccaneers-jayden-daniels-doink-the-pulse/
 
