@@ -1,3 +1,11 @@
+**Review: A Dance That Wonders ‘What Will Happen to Us?’**\
+`Miguel Gutierrez’s “Super Nothing” at New York Live Arts asks how dance can confront the steady stream of life’s troubles.`\
+https://nytimes.com/2025/01/13/arts/dance/review-miguel-gutierrez-super-nothing.html
+
+**Less Traffic, Faster Buses: Congestion Pricing’s First Week**\
+`Early data from the Metropolitan Transportation Authority suggests that traffic has dropped around Manhattan’s core.`\
+https://nytimes.com/2025/01/13/nyregion/congestion-pricing-nyc.html
+
 **Brighton's Rutter, Minteh suffer injuries in FA Cup win**\
 `Brighton &amp; Hove Albion have been hit by two more injury blows to their front line following Saturday&#8217;s FA Cup win over Norwich City.`\
 https://nytimes.com/athletic/6059393/2025/01/13/brighton-injuries-rutter-minteh/

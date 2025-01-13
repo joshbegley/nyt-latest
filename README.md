@@ -1,3 +1,7 @@
+**How the Ohio State-Notre Dame spread ranks among biggest in national title game history**\
+`Ohio State is favored by more than a touchdown against Notre Dame. Where does that rank among the biggest spreads in title game history?`\
+https://nytimes.com/athletic/6058657/2025/01/13/ohio-state-notre-dame-spread-national-title-game/
+
 **Review: A Dance That Wonders ‘What Will Happen to Us?’**\
 `Miguel Gutierrez’s “Super Nothing” at New York Live Arts asks how dance can confront the steady stream of life’s troubles.`\
 https://nytimes.com/2025/01/13/arts/dance/review-miguel-gutierrez-super-nothing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059413/2025/01/13/submit-your-questions-for-the-co
 **Ace Gallery Founder Is Sentenced to 24 Months in Embezzlement Case**\
 `Douglas Chrismas, who was found guilty last May on three counts of embezzlement from his gallery’s bankruptcy estate, is to report to prison on Feb. 17.`\
 https://nytimes.com/2025/01/13/arts/design/douglas-chrismas-ace-gallery-embezzlement-sentence.html
-
-**Brighton's Rutter, Minteh suffer injuries in FA Cup win**\
-`Brighton &amp; Hove Albion have been hit by two more injury blows to their front line following Saturday&#8217;s FA Cup win over Norwich City.`\
-https://nytimes.com/athletic/6059393/2025/01/13/brighton-injuries-rutter-minteh/
 
