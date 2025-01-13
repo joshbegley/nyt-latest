@@ -1,3 +1,35 @@
+**Caleb Williams' rookie season by the numbers: How good was the Bears' QB?**\
+`The numbers only tell us part of the story, but what can we learn about Williams' rookie year from his stats? Let's dive in.`\
+https://nytimes.com/athletic/6052576/2025/01/13/bears-caleb-williams-rookie-stats/
+
+**How the Packers' shortcomings vs. the Eagles might affect their offseason plans**\
+`Special teams woes reared their ugly head yet again for Green Bay, but there's another issue that could use addressing, too.`\
+https://nytimes.com/athletic/6057441/2025/01/13/packers-playoff-loss-special-teams/
+
+**For teams chasing hot offensive coaching candidates: Don't fool yourselves**\
+`As the Bears, Jets, Jaguars, Raiders and Saints look to fill their vacancies, they should keep this important lesson in mind.`\
+https://nytimes.com/athletic/6057449/2025/01/13/nfl-coaching-carousel-offensive-play-callers/
+
+**How Sean Payton and the Broncos can get to the next level after a blowout in Buffalo**\
+`Payton's Broncos stood little chance against the Bills, but one exec believes Denver is close to being "very good — like, 13 wins good."`\
+https://nytimes.com/athletic/6057457/2025/01/13/broncos-playoff-loss-sean-payton/
+
+**Biden Administration Adopts Rules to Guide A.I.’s Global Spread**\
+`New rules aim to keep advanced technology out of China and to ensure that cutting-edge artificial intelligence is developed by the United States and its allies.`\
+https://nytimes.com/2025/01/13/us/politics/biden-administration-rules-artificial-intelligence.html
+
+**Commanders secure another last-second win. This one earns a trip to NFC divisional round**\
+`Nobody expected Washington to be in this spot. But, behind the late-game heroics of Jayden Daniels, the team just keeps finding ways to win.`\
+https://nytimes.com/athletic/6057430/2025/01/13/commanders-wild-card-win-buccaneers-playoffs/
+
+**The Montgomery effect: How the Blues are turning their season around with a new coach**\
+`The Blues are 11-8-3 (.568) since they fired Drew Bannister and hired Jim Montgomery. Here's a deep dive into what's changed.`\
+https://nytimes.com/athletic/6056092/2025/01/13/blues-nhl-season-jim-montgomery-analysis/
+
+**How State Farm Stadium prepped for Vikings-Rams playoff game in just 5 days**\
+`The NFL and the Cardinals have worked hard to make Monday look and sound like a Rams home game, after wildfires forced a venue change.`\
+https://nytimes.com/athletic/6055234/2025/01/13/rams-vikings-nfl-playoff-game-moved-la-fires/
+
 **Trump’s Inaugural Celebration Will Kick Off at His Golf Club in Virginia**\
 `The president-elect is set to arrive in the Washington area on Saturday and begin a series of events that includes a party at Trump National Golf Club and a rally at Capital One Arena.`\
 https://nytimes.com/2025/01/13/us/politics/trumps-inaugural-celebration-will-kick-off-at-his-golf-club-in-virginia.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/01/13/us/politics/trumps-inaugural-celebration-will-kic
 **L.A.’s Private Firefighters, and U.S. Childhood Vaccination Rates Fall**\
 `Plus, remembering a civil rights Freedom Rider.`\
 https://nytimes.com/2025/01/13/podcasts/firefighters-los-angeles-bidens-deportation-protections.html
-
-**Big Tech’s Big Bet on Trump**\
-`Silicon Valley billionaires are throwing their support behind the president-elect.`\
-https://nytimes.com/2025/01/13/podcasts/the-daily/big-techs-trump-andreessen.html
-
-**OpenAI Courts Trump With Vision for ‘A.I. in America’**\
-`The maker of ChatGPT hopes to spur investment from the Middle East and avoid strict regulations on the development of new technologies.`\
-https://nytimes.com/2025/01/13/technology/openai-economic-blueprint.html
-
-**The Connections Companion No. 583**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Jan. 14, 2025.`\
-https://nytimes.com/2025/01/13/crosswords/connections-companion-583.html
-
-**Wordle Review No. 1,305**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Jan. 14, 2025.`\
-https://nytimes.com/2025/01/13/crosswords/wordle-review-1305.html
-
-**James and Lavia ready to start as Chelsea manage injury returns**\
-`Enzo Maresca says Reece James and Romeo Lavia are ready to start matches again but Chelsea will continue to manage their fitness carefully.`\
-https://nytimes.com/athletic/6057559/2025/01/13/reece-james-romeo-lavia-injury-update/
-
-**DeMar DeRozan, now with the Kings, embraces warm welcome in return to Chicago**\
-`“I like him more on our side, in our uniform,” Lonzo Ball said of DeRozan. “But he still looks pretty good in the black and purple.”`\
-https://nytimes.com/athletic/6057016/2025/01/13/demar-derozan-bulls-kings-nba/
-
-**Kyrgios out of Australian Open after playing through injury in Melbourne**\
-`Nick Kyrgios is out of the Australian Open in the first round after playing through clear discomfort in a three-set defeat to Jacob Fearnley of the U.`\
-https://nytimes.com/athletic/6050659/2025/01/13/nick-kyrgios-australian-open-out-injury/
-
-**Troops Captured by Ukraine Provide Rare Glimpse Into North Korea’s Military**\
-`Ukraine’s president released a video of the two soldiers being interrogated, revealing they knew little about the war they were sent to fight in.`\
-https://nytimes.com/2025/01/13/world/asia/north-korea-ukraine-russia-troops.html
 
