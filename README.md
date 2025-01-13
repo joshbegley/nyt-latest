@@ -1,3 +1,11 @@
+**As He Enters His Final Week in Office, Biden to Promote His Foreign Policy**\
+`The president will give a speech on Monday arguing that he strengthened U.S. alliances during his four years in office and that America’s adversaries are weaker than when he took over.`\
+https://nytimes.com/2025/01/13/us/politics/biden-foreign-policy-speech.html
+
+**Rachel Maddow Will Return to Nightly Shows on MSNBC for Trump’s First 100 Days**\
+`The cable news network rejiggers its prime-time lineup ahead of Donald Trump’s second stint in the White House.`\
+https://nytimes.com/2025/01/13/us/politics/rachel-maddow-msnbc-trump.html
+
 **Kraft: Vrabel brings 'clear and focused strategy' to Patriots**\
 `The Patriots turned to Vrabel after their quick coaching search wrapped up just seven days after the team fired Jerod Mayo.`\
 https://nytimes.com/athletic/6058827/2025/01/13/patriots-mike-vrabel-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6058856/2025/01/13/alex-bregman-boston-red-sox-the-
 **When to Report, and When to Help Out**\
 `Kellen Browning, a reporter based in San Francisco who has been covering the wildfires, was getting requests from evacuees, and he had a decision to make.`\
 https://nytimes.com/2025/01/13/us/wildfires-reporting-helping.html
-
-**Mike McCarthy out as Cowboys coach: Source**\
-`The move comes after McCarthy and the Cowboys missed the playoffs for the first time since his inaugural season in 2020.`\
-https://nytimes.com/athletic/6007666/2025/01/13/mike-mccarthy-out-dallas-cowboys-head-coach/
-
-**Man accused of harassing Caitlin Clark arrested, charged with stalking**\
-`If found guilty, Lewis could face up to six years in prison and a fine of up to $10,000.`\
-https://nytimes.com/athletic/6058599/2025/01/13/caitlin-clark-news-stalker-arrested-indiana-fever/
 
