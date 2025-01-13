@@ -1,3 +1,15 @@
+**Elland Road hosted its first match over a 100 years ago. The similarities with Saturday's FA Cup tie are striking**\
+`It’s almost uncanny the similarities between the Elland Road curtain-raiser and Harrogate Town's most recent visit to West Yorkshire`\
+https://nytimes.com/athletic/6054216/2025/01/13/leeds-united-harrogate-town-fa-cup-analysis/
+
+**Martin Dubravka's long goodbye - football logic may trump business logic at last**\
+`Newcastle's current No 1 may have said farewell prematurely`\
+https://nytimes.com/athletic/6055313/2025/01/13/martin-dubravkas-long-goodbye-football-logic-may-be-trumping-business-logic-at-last/
+
+**Leicester cannot afford mistakes this transfer window - as Van Nistelrooy and Rudkin well know**\
+`Premier League survival is at stake - Leicester need signings that can make an impact now as well as in the future`\
+https://nytimes.com/athletic/6054718/2025/01/13/leicester-transfers-rudkin-coulibaly/
+
 **FPL Gameweek 21 preview: Forwards in focus and Isak over Salah for captain?**\
 `Holly Shand breaks down the key talking points ahead of Gameweek 21 in Fantasy Premier League`\
 https://nytimes.com/athletic/6048953/2025/01/13/fantasy-premier-league-gw21-preview-isak-salah/
