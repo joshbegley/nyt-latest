@@ -1,3 +1,7 @@
+**Falling Child Vaccinations**\
+`U.S. vaccination rates against once-common childhood diseases are falling.`\
+https://nytimes.com/2025/01/13/briefing/childhood-vaccinations-trump.html
+
 **After 2 years away, Tyler Ivey embarks on a comeback: 'All roads led back to baseball'**\
 `Physical and mental obstacles led Ivey to quit baseball in May 2022. With newfound passion and mechanics, he's looking for another shot.`\
 https://nytimes.com/athletic/6050949/2025/01/13/astros-tyler-ivey-comeback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052576/2025/01/13/bears-caleb-williams-rookie-stat
 **How the Packers' shortcomings vs. the Eagles might affect their offseason plans**\
 `Special teams woes reared their ugly head yet again for Green Bay, but there's another issue that could use addressing, too.`\
 https://nytimes.com/athletic/6057441/2025/01/13/packers-playoff-loss-special-teams/
-
-**For teams chasing hot offensive coaching candidates: Don't fool yourselves**\
-`As the Bears, Jets, Jaguars, Raiders and Saints look to fill their vacancies, they should keep this important lesson in mind.`\
-https://nytimes.com/athletic/6057449/2025/01/13/nfl-coaching-carousel-offensive-play-callers/
 
