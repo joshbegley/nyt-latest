@@ -1,3 +1,7 @@
+**Lebanon Names Nawaf Salam, a Diplomat and Jurist, as Prime Minister**\
+`The selection of Mr. Salam was seen as a blow to Hezbollah, the Lebanese militant group and political party that has acted as the real power in Lebanon for decades.`\
+https://nytimes.com/2025/01/13/world/middleeast/lebanon-nawaf-salam-prime-minister.html
+
 **Moving N.F.L. Playoff Game Out of Fire Area Is a Logistical Challenge**\
 `Monday night’s game in Arizona between the Los Angeles Rams and the Minnesota Vikings is the first time the league has relocated a postseason game since 1936.`\
 https://nytimes.com/2025/01/13/business/nfl-playoffs-rams-vikings-la-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059477/2025/01/13/mets-roki-saskaki-sean-manaea/
 **How the Ohio State-Notre Dame spread ranks among biggest in national title game history**\
 `Ohio State is favored by more than a touchdown against Notre Dame. Where does that rank among the biggest spreads in title game history?`\
 https://nytimes.com/athletic/6058657/2025/01/13/ohio-state-notre-dame-spread-national-title-game/
-
-**Review: A Dance That Wonders ‘What Will Happen to Us?’**\
-`Miguel Gutierrez’s “Super Nothing” at New York Live Arts asks how dance can confront the steady stream of life’s troubles.`\
-https://nytimes.com/2025/01/13/arts/dance/review-miguel-gutierrez-super-nothing.html
 
