@@ -1,3 +1,15 @@
+**New York Could Be the Next State to Limit Students’ Cellphone Use**\
+`Gov. Kathy Hochul on Monday signaled her plan to include related legislation in her budget proposal, saying she hoped to limit distractions during the school day.`\
+https://nytimes.com/2025/01/13/nyregion/new-york-schools-cellphone-ban-hochul.html
+
+**Special Counsel Report on Hunter Biden Denounces President’s Criticism of Case**\
+`The report by the special counsel, David C. Weiss, criticized President Biden for making “baseless accusations” that threatened “the integrity of the justice system as a whole.”`\
+https://nytimes.com/2025/01/13/us/politics/special-counsel-report-hunter-biden.html
+
+**Strong Winds Threaten to Intensify L.A. Fires**\
+`Also, traffic eased after New York began congestion pricing. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/13/briefing/strong-winds-los-angeles-fires-congestion-pricing-data.html
+
 **Fires Continue to Rage Across Southern California**\
 `The wildfires have become some of the most destructive blazes in California history, razing neighborhoods and forcing thousands to evacuate their homes.`\
 https://nytimes.com/video/us/100000009924160/southern-california-wildfires.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/13/world/middleeast/lebanon-nawaf-salam-prime-minist
 **Moving N.F.L. Playoff Game Out of Fire Area Is a Logistical Challenge**\
 `Monday night’s game in Arizona between the Los Angeles Rams and the Minnesota Vikings is the first time the league has relocated a postseason game since 1936.`\
 https://nytimes.com/2025/01/13/business/nfl-playoffs-rams-vikings-la-wildfires.html
-
-**What to watch this week in the NBA: Pacers, Kings rising, Cavs-Thunder get a rematch**\
-`A number of games stand out across the NBA this week, including another Cavs-Thunder showdown and the Lakers returning to action at home.`\
-https://nytimes.com/athletic/6058550/2025/01/13/what-to-watch-nba-cavs-thunder-pacers-kings/
-
-**After a Naming Contest, Cardea Joins the Celestial Ranks as a Quasi-Moon**\
-`The W.N.Y.C. science program “Radiolab” partnered with the International Astronomical Union to solicit nearly 3,000 submissions. The Roman goddess of doorways and transitions won out.`\
-https://nytimes.com/2025/01/13/science/space/quasi-moon-radiolab-iau.html
-
-**Los Angeles teams, Fanatics donate $11 million to wildfire victims**\
-`The money will go to organizations like the American Red Cross, the Los Angeles Fire Department Foundation, World Central Kitchen and more.`\
-https://nytimes.com/athletic/6059423/2025/01/13/los-angeles-sports-teams-fanatics-donate-wildfire-victims/
 
