@@ -1,5 +1,5 @@
 **L.A. Wildfire Evacuees Scramble to Find Sleep in Cars, Shelters and Hotels**\
-`More than 100,000 people under evacuation orders are making do however they can.`\
+`More than 90,000 people under evacuation orders are making do however they can.`\
 https://nytimes.com/2025/01/13/us/la-fires-evacuations-housing-shelter.html
 
 **Giants are convinced that Justin Verlander still has passion to excel**\
