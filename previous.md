@@ -1,3 +1,7 @@
+**The Book So Helpful That the Eagles’ A.J. Brown Read it During a Game**\
+`What made the N.F.L. star open it up as the action continued? “I like to read.”`\
+https://nytimes.com/2025/01/13/sports/football/aj-brown-reading-inner-excellence-book-murphy.html
+
 **Stuart Spencer, Political Pioneer Who Helped Propel Reagan’s Rise, Dies at 97**\
 `One of the nation’s first campaign consultants for hire, he advised leading Republicans, including President Gerald Ford, but Reagan was his prized candidate.`\
 https://nytimes.com/2025/01/13/us/elections/stuart-spencer-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6059034/2025/01/13/colts-mailbag-submission-chris-b
 **Oscar Nominations Are Postponed Because of Wildfires**\
 `To give affected members more time, the academy extended the voting through Friday and will unveil the results Jan. 23. The nominees luncheon was canceled.`\
 https://nytimes.com/2025/01/13/movies/oscar-nominations-fires.html
-
-**Biden to Promote His Foreign Policy During Final Week in Office**\
-`The president will give a speech on Monday arguing that he strengthened U.S. alliances during his four years in office and that America’s adversaries are weaker than when he took over.`\
-https://nytimes.com/2025/01/13/us/politics/biden-foreign-policy-speech.html
 
