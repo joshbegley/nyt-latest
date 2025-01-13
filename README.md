@@ -1,3 +1,15 @@
+**Giants are convinced that Justin Verlander still has passion to excel**\
+`Verlander has been throwing all offseason in an attempt to stave off the injury issues that ruined his 2024 campaign.`\
+https://nytimes.com/athletic/6059751/2025/01/13/sf-giants-justin-verlander-introduction/
+
+**Why Trump Turned to Manifest Destiny**\
+`Donald Trump has long sought to make anything he controls bigger.`\
+https://nytimes.com/2025/01/13/us/politics/trump-greenland-canada-history.html
+
+**Rams to bring L.A. to Arizona with home field flair for relocated wild card**\
+`The Rams said Monday's game will be used "to bring LA Together and uplift and represent their city in Arizona" after the deadly wildfires.`\
+https://nytimes.com/athletic/6059659/2025/01/13/rams-state-farm-stadium-arizona-relocated-game/
+
 **Roki Sasaki narrows list of finalists to Dodgers, Padres and Blue Jays: Source**\
 `The 23-year-old Japanese righty alerted several pursuing teams that they were no longer in the running. He can sign as early as Jan. 15.`\
 https://nytimes.com/athletic/6059762/2025/01/13/roki-sasaki-finalists-dodgers-padres-blue-jays/
@@ -26,16 +38,4 @@ https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/eato
 **Jerry Jones' approach to parting with Mike McCarthy was unnecessary and made no sense**\
 `By keeping Mike McCarthy dangling for over a week, the Cowboys are a week behind other teams searching for a coach.`\
 https://nytimes.com/athletic/6059433/2025/01/13/cowboys-mike-mccarthy-jerry-jones-parting-ways/
-
-**Pope Francis’ Autobiography, ‘Hope,’ Arrives in Bookstores**\
-`The book, to be published on Tuesday, adds details to what is known about the pope’s childhood but falls short when it comes to his later years.`\
-https://nytimes.com/2025/01/13/world/europe/pope-francis-autobiography.html
-
-**Here’s How Senate Confirmation Works for Trump’s Cabinet**\
-`The Senate’s role of “advice and consent” is a marathon of meetings and paperwork.`\
-https://nytimes.com/2025/01/13/us/politics/senate-confirmation-trump-cabinet.html
-
-**Cease-Fire Deal Between Israel and Hamas Is on the ‘Brink,’ Biden Says**\
-`As President Biden highlighted his foreign policy works in a speech on Monday, he suggested that his administration’s proposal for a cease-fire in Gaza was close to becoming a reality.`\
-https://nytimes.com/video/us/politics/100000009924431/biden-foreign-policy-israel-ceasefire.html
 
