@@ -1,3 +1,11 @@
+**Unconvincing win over Stockport showed why Crystal Palace want Romain Esse**\
+`Had a deal been secured already, Sunday’s win against Stockport County in the FA Cup is the type of game that Esse might have featured in`\
+https://nytimes.com/athletic/6049549/2025/01/13/unconvincing-stockport-win-shows-why-crystal-palace-want-romain-esse/
+
+**The worst nearly happened for Spurs and Postecoglou... but it didn't**\
+`There was very little Postecoglou could take from this FA Cup victory. Spurs got through it. And Mikey Moore returned.`\
+https://nytimes.com/athletic/6056082/2025/01/13/tottenham-tamworth-fa-cup/
+
 **Can Chloe Kelly get the minutes at Man City to make England's Euro 2025 team?**\
 `What's going on with the star of England's 2022 Euros triumph?`\
 https://nytimes.com/athletic/6055753/2025/01/13/can-chloe-kelly-get-the-minutes-to-make-englands-euro-2025-team/
