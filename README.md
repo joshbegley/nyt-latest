@@ -1,3 +1,15 @@
+**Nick Kyrgios says Australian Open loss may have been his last singles in Melbourne**\
+`Nick Kyrgios is out of the Australian Open in the first round after playing through clear discomfort in a three-set defeat to Jacob Fearnley of the U.`\
+https://nytimes.com/athletic/6050659/2025/01/13/nick-kyrgios-australian-open-out-injury/
+
+**After Attacking L.A. Wildfire Response, Elon Musk Sends His Products to Help**\
+`The world’s richest person has stoked outrage about the devastating wildfires and efforts to tackle them. On Sunday, he said he would help provide internet access to areas in need in Los Angeles.`\
+https://nytimes.com/2025/01/13/us/elon-musk-la-fires-starlink.html
+
+**Kyrgios and De Minaur: Melbourne rises for its favorite tennis sons, and polar opposites**\
+`The two preeminent figures in Australian men's tennis could not be more different`\
+https://nytimes.com/athletic/5541040/2025/01/13/nick-kyrgios-australian-open-alex-de-minaur/
+
 **Indiana is at a crossroads as familiar pattern continues under Mike Woodson**\
 `The Hoosiers’ four losses this year were by an average of 21.5 points. In two true Big Ten road games, Indiana lost by a combined 42 points.`\
 https://nytimes.com/athletic/6056377/2025/01/13/indiana-basketball-mike-woodson-road-losses-blowouts/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6057457/2025/01/13/broncos-playoff-loss-sean-payton
 **Biden Administration Adopts Rules to Guide A.I.’s Global Spread**\
 `New rules aim to keep advanced technology out of China and to ensure that cutting-edge artificial intelligence is developed by the United States and its allies.`\
 https://nytimes.com/2025/01/13/us/politics/biden-administration-rules-artificial-intelligence.html
-
-**Commanders secure another last-second win. This one earns a trip to NFC divisional round**\
-`Nobody expected Washington to be in this spot. But, behind the late-game heroics of Jayden Daniels, the team just keeps finding ways to win.`\
-https://nytimes.com/athletic/6057430/2025/01/13/commanders-wild-card-win-buccaneers-playoffs/
-
-**The Montgomery effect: How the Blues are turning their season around with a new coach**\
-`The Blues are 11-8-3 (.568) since they fired Drew Bannister and hired Jim Montgomery. Here's a deep dive into what's changed.`\
-https://nytimes.com/athletic/6056092/2025/01/13/blues-nhl-season-jim-montgomery-analysis/
-
-**How State Farm Stadium prepped for Vikings-Rams playoff game in just 5 days**\
-`The NFL and the Cardinals have worked hard to make Monday look and sound like a Rams home game, after wildfires forced a venue change.`\
-https://nytimes.com/athletic/6055234/2025/01/13/rams-vikings-nfl-playoff-game-moved-la-fires/
 
