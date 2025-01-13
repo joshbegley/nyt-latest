@@ -1,3 +1,5 @@
+**In Praise of Adele and the Long Black Dress**\
+
 **gws-music-alex-izenberg**\
 
 **Everton and Liverpool to play rescheduled Merseyside derby on February 12**\
