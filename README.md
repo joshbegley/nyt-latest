@@ -1,3 +1,7 @@
+**Unconvincing win over Stockport showed why Crystal Palace want Romain Esse**\
+`Had a deal been secured already, Sunday’s win against Stockport County in the FA Cup is the type of game that Esse might have featured in`\
+https://nytimes.com/athletic/6049549/2025/01/13/unconvincing-stockport-win-shows-why-crystal-palace-want-romain-esse/
+
 **The worst nearly happened for Spurs and Postecoglou... but it didn't**\
 `There was very little Postecoglou could take from this FA Cup victory. Spurs got through it. And Mikey Moore returned.`\
 https://nytimes.com/athletic/6056082/2025/01/13/tottenham-tamworth-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divis
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/13/briefing/wildfires-los-angeles-gaza.html
-
-**How Unauthorized Immigrants Help Finance Social Security Benefits**\
-`Undocumented workers often pay taxes that help fund programs like Social Security — even if they can’t collect from them in the future.`\
-https://nytimes.com/2025/01/13/business/social-security-undocumented-immigrants.html
 
