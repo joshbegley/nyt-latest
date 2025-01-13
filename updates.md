@@ -1,3 +1,7 @@
+**Brighton's Rutter, Minteh suffer injuries in FA Cup win**\
+`Brighton &amp; Hove Albion have been hit by two more injury blows to their front line following Saturday&#8217;s FA Cup win over Norwich City.`\
+https://nytimes.com/athletic/6059393/2025/01/13/brighton-injuries-rutter-minteh/
+
 **Searches continue for nearly two dozen missing in the fires.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/searches-continue-for-nearly-two-dozen-missing-in-the-fires
