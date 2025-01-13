@@ -1,3 +1,7 @@
+**Hansi Flick has created an oasis of calm amid institutional chaos at Barcelona**\
+`The Spanish Super Cup may be the most minor title of the season, but beating Real Madrid is always a moment worth celebrating`\
+https://nytimes.com/athletic/6057070/2025/01/13/barcelona-super-cup-hansi-flick-calm/
+
 **With South Korea in Crisis, Eight Justices Will Decide President’s Fate**\
 `The Constitutional Court, an arbiter in a polarized nation, is about to consider whether Yoon Suk Yeol’s impeachment for declaring martial law was justified.`\
 https://nytimes.com/2025/01/13/world/asia/south-korea-yoon-court-impeachment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6057322/2025/01/13/celtics-3-pointers-slide-pelican
 **Zion Williamson returns from suspension, but will things change for the Pelicans?**\
 `Williamson is finally healthy and not under team suspension. But can he prove to the franchise that he is ready, once and for all?`\
 https://nytimes.com/athletic/6057325/2025/01/13/zion-williamson-returns-from-suspension/
-
-**Belinda Bencic believes in herself, because of the women who came before her**\
-`The 2021 Olympic champion took inspiration from her fellow players — but the WTA Tour can still do more for mothers returning to tennis`\
-https://nytimes.com/athletic/6043694/2025/01/13/belinda-bencic-tennis-mothers-maternity-wta-tour/
 
