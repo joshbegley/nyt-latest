@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/13/us/politics/melania-trump-white-house.html
 https://nytimes.com/athletic/6057007/2025/01/13/australian-open-day-2-recap-la-wildfire-tributes-gauff-swiatek-vekic/
 
 **Tyson Fury says he is retiring from boxing**\
-`Tyson Fury has today announced his retirement from boxing.`\
+`The announcement comes after Fury suffered a second defeat of his career by Oleksandr Usyk last month in Saudi Arabia.`\
 https://nytimes.com/athletic/6058044/2025/01/13/tyson-fury-retires-boxing-joshua/
 
 **The Bounce: The Cavaliers finally lost! Plus, five trades I want by the NBA trade deadline**\

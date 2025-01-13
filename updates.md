@@ -1,3 +1,7 @@
+**Tyson Fury says he is retiring from boxing**\
+`The announcement comes after Fury suffered a second defeat of his career by Oleksandr Usyk last month in Saudi Arabia.`\
+https://nytimes.com/athletic/6058044/2025/01/13/tyson-fury-retires-boxing-joshua/
+
 **Melania Trump Says She Plans to Be at White House Full Time**\
 `Mrs. Trump did not immediately move in to the White House when her husband was inaugurated in 2017, but she said the second stay was going to be more routine. “I already packed,” she told Fox News.`\
 https://nytimes.com/2025/01/13/us/politics/melania-trump-white-house.html
