@@ -1,3 +1,7 @@
+**An Inauguration Watch Party Aimed at Celebrating Fossil Fuels**\
+`Harold G. Hamm, the founder of the Oklahoma-based Continental Resources, and other oil and gas companies stand to profit from Donald Trump’s energy policies.`\
+https://nytimes.com/2025/01/13/climate/inauguration-plans-harold-hamm-fossil-fuels.html
+
 **Reds games to be broadcast by FanDuel Sports Network in 2025**\
 `The new deal is for this year only and applies to all in-market games not televised on an exclusive national telecast.`\
 https://nytimes.com/athletic/6058617/2025/01/13/reds-tv-broadcast-fanduel-sports-2025/
