@@ -1,3 +1,7 @@
+**Arsenal and their recurring problem of allowing defeat to turn into a slump**\
+`Analysing the pattern that has now undermined Arsenal's attempts to win silverware in three successive seasons`\
+https://nytimes.com/athletic/6055579/2025/01/13/arsenal-negative-impact-defeat/
+
 **Will it be fair to call New Glenn’s launch a success or failure? Here are some scenarios.**\
 `By Michael Roston and Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/will-it-be-fair-to-call-new-glenns-launch-a-success-or-failure-here-are-some-scenarios
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054216/2025/01/13/leeds-united-harrogate-town-fa-c
 **Martin Dubravka's long goodbye - football logic may trump business logic at last**\
 `Newcastle's current No 1 may have said farewell prematurely`\
 https://nytimes.com/athletic/6055313/2025/01/13/martin-dubravkas-long-goodbye-football-logic-may-be-trumping-business-logic-at-last/
-
-**Leicester cannot afford mistakes this transfer window - as Van Nistelrooy and Rudkin well know**\
-`Premier League survival is at stake - Leicester need signings that can make an impact now as well as in the future`\
-https://nytimes.com/athletic/6054718/2025/01/13/leicester-transfers-rudkin-coulibaly/
 
