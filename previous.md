@@ -1,3 +1,19 @@
+**Los Angeles teams, Fanatics donate $11 million to wildfire victims**\
+`The money will go to organizations like the American Red Cross, the Los Angeles Fire Department Foundation, World Central Kitchen and more.`\
+https://nytimes.com/athletic/6059423/2025/01/13/los-angeles-sports-teams-fanatics-donate-wildfire-victims/
+
+**Greenland to Trump: We’re Not for Sale but Let’s Talk Business**\
+`The country’s prime minister said that while Greenlanders do not want to become Americans, “the reality is we are going to work with the U.S. — yesterday, today and tomorrow.”`\
+https://nytimes.com/2025/01/13/world/europe/greenland-trump-business.html
+
+**LiAngelo Ball lands record label deal following viral hit 'Tweaker'**\
+`The song has been a viral hit on social media with NBA arenas adding it to their playlists and teams playing it in their locker rooms.`\
+https://nytimes.com/athletic/6059463/2025/01/13/liangelo-ball-music-career-viral-hit-tweaker-nba/
+
+**Overlooked No More: Karen Wynn Fonstad, Who Mapped Tolkien’s Middle-earth**\
+`She was a novice cartographer who landed a dream assignment: to create an atlas of the setting of “The Hobbit” and “The Lord of the Rings.”`\
+https://nytimes.com/2025/01/13/obituaries/karen-wynn-fonstad-overlooked.html
+
 **Mets notes: Roki Sasaki headed elsewhere, Sean Manaea hopes for Pete Alonso return**\
 `Manaea described the Mets as a “perfect fit" in his first news conference since returning on a 3-year deal. `\
 https://nytimes.com/athletic/6059477/2025/01/13/mets-roki-saskaki-sean-manaea/
@@ -18,23 +34,7 @@ https://nytimes.com/2025/01/13/nyregion/congestion-pricing-nyc.html
 `As of Monday morning, the official number of missing persons included 17 in the area of the Eaton fire near Pasadena, and six in the Malibu area near the Palisades fire.`\
 https://nytimes.com/2025/01/13/us/la-fires-missing-victims.html
 
-**Chelsea make enquiry to sign Mathys Tel from Bayern Munich**\
+**Chelsea make enquiry to sign Tel from Bayern**\
 `Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel.`\
 https://nytimes.com/athletic/6059453/2025/01/13/mathys-tel-chelsea/
-
-**Supreme Court Clears a Path for Climate Lawsuits to Proceed**\
-`The high court declined to hear a challenge to a major case in which Honolulu is suing energy companies over climate change.`\
-https://nytimes.com/2025/01/13/climate/supreme-court-hawaii-climate-lawsuit.html
-
-**Tuesday Briefing: Death Toll Rises in L.A. Fires**\
-`Plus, what’s going on with TV credits?`\
-https://nytimes.com/2025/01/13/briefing/los-angeles-fires-south-korea-yoon-ukraine-russia.html
-
-**Biden’s Push to Cancel Student Debt Surpasses 5 Million Borrowers**\
-`With Monday’s authorization and 27 previous ones, the Biden administration has forgiven over $180 billion in student loans, even as its larger policy vision never took root.`\
-https://nytimes.com/2025/01/13/us/politics/biden-student-loan-forgiveness.html
-
-**Submit your questions for the college basketball mailbag**\
-`With college basketball entering the thick of conference play, it&#8217;s the perfect time for a college basketball mailbag.`\
-https://nytimes.com/athletic/6059413/2025/01/13/submit-your-questions-for-the-college-basketball-mailbag/
 

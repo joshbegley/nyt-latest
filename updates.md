@@ -1,3 +1,23 @@
+**Los Angeles teams, Fanatics donate $11 million to wildfire victims**\
+`The money will go to organizations like the American Red Cross, the Los Angeles Fire Department Foundation, World Central Kitchen and more.`\
+https://nytimes.com/athletic/6059423/2025/01/13/los-angeles-sports-teams-fanatics-donate-wildfire-victims/
+
+**Greenland to Trump: We’re Not for Sale but Let’s Talk Business**\
+`The country’s prime minister said that while Greenlanders do not want to become Americans, “the reality is we are going to work with the U.S. — yesterday, today and tomorrow.”`\
+https://nytimes.com/2025/01/13/world/europe/greenland-trump-business.html
+
+**LiAngelo Ball lands record label deal following viral hit 'Tweaker'**\
+`The song has been a viral hit on social media with NBA arenas adding it to their playlists and teams playing it in their locker rooms.`\
+https://nytimes.com/athletic/6059463/2025/01/13/liangelo-ball-music-career-viral-hit-tweaker-nba/
+
+**Overlooked No More: Karen Wynn Fonstad, Who Mapped Tolkien’s Middle-earth**\
+`She was a novice cartographer who landed a dream assignment: to create an atlas of the setting of “The Hobbit” and “The Lord of the Rings.”`\
+https://nytimes.com/2025/01/13/obituaries/karen-wynn-fonstad-overlooked.html
+
+**Chelsea make enquiry to sign Tel from Bayern**\
+`Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel.`\
+https://nytimes.com/athletic/6059453/2025/01/13/mathys-tel-chelsea/
+
 **Searches Continue for Nearly Two Dozen Missing in the Fires**\
 `As of Monday morning, the official number of missing persons included 17 in the area of the Eaton fire near Pasadena, and six in the Malibu area near the Palisades fire.`\
 https://nytimes.com/2025/01/13/us/la-fires-missing-victims.html
