@@ -1,5 +1,5 @@
 **The Book So Helpful That the Eagles’ A.J. Brown Read it During a Game**\
-`What made the N.F.L. star open it up as the action continued? “I like to read.”`\
+`What made the N.F.L. star open “Inner Excellence” by Jim Murphy as the action continued? “I like to read.”`\
 https://nytimes.com/2025/01/13/sports/football/aj-brown-reading-inner-excellence-book-murphy.html
 
 **Stuart Spencer, Political Pioneer Who Helped Propel Reagan’s Rise, Dies at 97**\
