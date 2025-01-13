@@ -1,3 +1,7 @@
+**Brighton's March wants to play for next 'five or six years' after knee issues**\
+`Brighton &amp; Hove Albion servant Solly March wants to extend his career for &#8220;quite a few years&#8221; after a goalscoring return from serious knee damage.`\
+https://nytimes.com/athletic/6055336/2025/01/13/solly-march-brighton-return/
+
 **Hansi Flick has created an oasis of calm amid institutional chaos at Barcelona**\
 `The Spanish Super Cup may be the most minor title of the season, but beating Real Madrid is always a moment worth celebrating`\
 https://nytimes.com/athletic/6057070/2025/01/13/barcelona-super-cup-hansi-flick-calm/
