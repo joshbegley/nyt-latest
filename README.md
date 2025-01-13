@@ -1,3 +1,11 @@
+**Eagles LB Dean tears patellar tendon, will miss the rest of playoffs**\
+`Dean's injury is a significant setback with multiple ramifications for the Eagles.`\
+https://nytimes.com/athletic/6058649/2025/01/13/nakobe-dean-eagles-injury/
+
+**USMNT Player Tracker: Pulisic needs support, Sargent's return and combative Adams**\
+`Our weekly roundup of the U.S. contingent's contribution to Europe's elite leagues also takes in Noahkai Banks' Bundesliga debut at Augsburg`\
+https://nytimes.com/athletic/6058485/2025/01/13/pulisic-usmnt-milan-adams-sargent-tracker/
+
 **Dorrington signs new Spurs contract, joins Aberdeen on loan**\
 `Alfie Dorrington has signed a new contract with Tottenham Hotspur and will spend the rest of the season on loan with Aberdeen.`\
 https://nytimes.com/athletic/6058817/2025/01/13/alfie-dorrington-tottenham-aberdeen-loan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6058791/2025/01/13/nfl-wild-card-weekend-takeaways-
 **Owners of 76ers, Flyers announce plans to build new arena in Philadelphia**\
 `The new facility, which will be home to both NHL and NBA clubs, is set to open in 2031`\
 https://nytimes.com/athletic/6058677/2025/01/13/sixers-flyers-new-arena-plans/
-
-**Jake Ciely’s 2024 fantasy football projections review: Nailing Kyler Murray, big miss on Baker Mayfield**\
-`Jake Ciely reviews his fantasy football QB projections for 2024, highlighting his biggest hits and misses and gleaning the lessons learned. `\
-https://nytimes.com/athletic/6055869/2025/01/13/jake-cielys-2024-fantasy-football-projections-review-jayden-daniels-baker-mayfield/
-
-**As L.A. Fires Rage, Pointing Fingers Rather Than Facing Facts**\
-`Readers urge public officials to take action on climate change rather than casting blame. Also: Teflon Don; the Gulf of America; treating schizophrenia.`\
-https://nytimes.com/2025/01/13/opinion/los-angeles-fires-blame.html
 
