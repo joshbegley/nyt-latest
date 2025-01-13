@@ -1,3 +1,7 @@
+**Premier League player arrested on suspicion of voyeurism, no further action to be taken**\
+`A Premier League player was arrested at his training ground on suspicion of voyeurism.`\
+https://nytimes.com/athletic/6057646/2025/01/13/premier-league-player-arrested-voyeurism/
+
 **Talk Turns to ‘L.A. 2.0’**\
 `The governor of California has called for “a Marshall Plan” to rebuild the fire-ravaged city. But big questions loom about more ambitious and costly projects, including the 2028 Summer Olympic Games.`\
 https://nytimes.com/2025/01/13/business/dealbook/rebuilding-los-angeles-olympics-2028.html

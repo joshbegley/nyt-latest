@@ -1,3 +1,7 @@
+**What I saw in the PWHL this week: Marie-Philip Poulin's Vancouver return, Western expansion?**\
+`The success of "Takeover Tour" games in Seattle, Vancouver and Denver begs the question: Could the PWHL expand to the West Coast?`\
+https://nytimes.com/athletic/6057156/2025/01/13/pwhl-poulin-vancouver-seattle-expansion-heise/
+
 **Premier League player arrested on suspicion of voyeurism, no further action to be taken**\
 `A Premier League player was arrested at his training ground on suspicion of voyeurism.`\
 https://nytimes.com/athletic/6057646/2025/01/13/premier-league-player-arrested-voyeurism/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/world/middleeast/gaza-cease-fire-talks-hostages-i
 **Novak Djokovic enters his brat era in Melbourne**\
 `The rise of Jannik Sinner and Carlos Alcaraz vanquished Djokovic's inevitability at the Australian Open, but he is still the main character.`\
 https://nytimes.com/athletic/6054866/2025/01/13/novak-djokovic-australian-open-tennis/
-
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
-https://nytimes.com/athletic/6057529/2025/01/13/newcastle-questions-transfers-dubravka/
 
