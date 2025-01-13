@@ -1,3 +1,11 @@
+**How the Red Wings can keep building on their 7-game winning streak**\
+`The Red Wings have won seven straight for the first time since January 2012. `\
+https://nytimes.com/athletic/6056640/2025/01/12/red-wings-win-streak-mclellan-kraken/
+
+**'What everyone’s been waiting for': Bills finally can focus on Ravens revenge**\
+`Their last meeting did not end well for the Bills.`\
+https://nytimes.com/athletic/6056769/2025/01/12/bills-playoffs-josh-allen-lamar-jackson-ravens/
+
 **Try a Little Tenderness**\
 `Stories of people who try a radical approach to solving their problems.`\
 https://nytimes.com/2025/01/12/podcasts/try-a-little-tenderness-this-american-life-nyt-audio.html
