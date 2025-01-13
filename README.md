@@ -1,3 +1,15 @@
+**Texas Man Is Charged With Stalking Caitlin Clark**\
+`Prosecutors said the man had sent “sexually violent” messages to the Indiana Fever star and had traveled to Indianapolis to be closer to her.`\
+https://nytimes.com/2025/01/13/us/caitlin-clark-stalker-arrested.html
+
+**This Is Where the Palisades Fire Started**\
+`In the hills above Pacific Palisades, there is crime scene tape and scattered debris, clues to what may have caused the initial fire that eventually raged through thousands of structures.`\
+https://nytimes.com/2025/01/13/us/palisades-fire-cause-ignition-point-site.html
+
+**Cowboys coach candidates: Ben Johnson and other names Dallas should consider**\
+`With the Cowboys and Mike McCarthy parting ways, the Dallas job should be an attractive one for candidates.`\
+https://nytimes.com/athletic/6059083/2025/01/13/cowboys-coach-candidates-ben-johnson-mike-mccarthy/
+
 **Roki Sasaki visits with Padres in San Diego: Sources**\
 `Padres officials hosted Sasaki in San Diego over the weekend after the pitcher visited the Blue Jays last week in Toronto.`\
 https://nytimes.com/athletic/6058775/2025/01/13/roki-sasaki-padres-visit/
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6058977/2025/01/13/anaheim-ducks-analysis-grades-pl
 **The Texas governor orders flags to full staff for Trump’s inauguration.**\
 `Gov. Greg Abbott said the move was not in conflict with a 30-day tribute for former President Jimmy Carter, but to “celebrate the service of an incoming president.”`\
 https://nytimes.com/live/2025/01/13/us/trump-news/abbott-texas-flags-trump-inauguration
-
-**Leslie Charleson, ‘General Hospital’ Actress, Dies at 79**\
-`Ms. Charleson played Dr. Monica Quartermaine, a cardiologist and family matriarch, on the daytime series for 46 years.`\
-https://nytimes.com/2025/01/13/arts/television/leslie-charleson-dead-general-hospital.html
-
-**How Bad Is the Forecast, and When Will L.A. Firefighters Catch a Break?**\
-`Another prolonged round of gusty Santa Ana winds is expected to begin late Monday.`\
-https://nytimes.com/2025/01/13/weather/la-winds-fire-forecast.html
 
