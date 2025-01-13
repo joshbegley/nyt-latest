@@ -1,3 +1,11 @@
+**Lander Vows to End Street Homelessness for Mentally Ill People as Mayor**\
+`Brad Lander, the New York City comptroller who is running for mayor, will announce a major plan to address homelessness after a series of violent attacks on the subway.`\
+https://nytimes.com/2025/01/13/nyregion/homeless-mentally-ill-brad-lander.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/13/crosswords/spelling-bee-forum.html
+
 **March wants to play for next 'five or six years' after knee issues**\
 `Brighton &amp; Hove Albion servant Solly March wants to extend his career for &#8220;quite a few years&#8221; after a goalscoring return from serious knee damage.`\
 https://nytimes.com/athletic/6055336/2025/01/13/solly-march-brighton-return/
