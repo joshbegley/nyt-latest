@@ -1,3 +1,7 @@
+**A.J. Brown caught reading on sidelines during Eagles' wild-card win**\
+`"It's got a lot of points in there," Brown said of Jim Murphy's "Inner Excellence," a book he brings to every game. `\
+https://nytimes.com/athletic/6056894/2025/01/12/aj-brown-reading-eagles-wild-card-win/
+
 **Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
 `The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
 https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056640/2025/01/12/red-wings-win-streak-mclellan-kr
 **'What everyone’s been waiting for': Bills finally can focus on Ravens revenge**\
 `Their last meeting did not end well for the Bills.`\
 https://nytimes.com/athletic/6056769/2025/01/12/bills-playoffs-josh-allen-lamar-jackson-ravens/
-
-**Try a Little Tenderness**\
-`Stories of people who try a radical approach to solving their problems.`\
-https://nytimes.com/2025/01/12/podcasts/try-a-little-tenderness-this-american-life-nyt-audio.html
 

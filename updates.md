@@ -1,3 +1,7 @@
+**A.J. Brown caught reading on sidelines during Eagles' wild-card win**\
+`"It's got a lot of points in there," Brown said of Jim Murphy's "Inner Excellence," a book he brings to every game. `\
+https://nytimes.com/athletic/6056894/2025/01/12/aj-brown-reading-eagles-wild-card-win/
+
 **Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
 `The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
 https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
