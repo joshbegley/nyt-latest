@@ -24,7 +24,7 @@ https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-11-2025.html
 
 **Trump’s Reckless Greenland Comments Are Not a Joke**\
 `China and Russia are listening.`\
-https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-greenland-china-taiwan
+https://nytimes.com/2025/01/13/opinion/trump-greenland-china-taiwan.html
 
 **Penguins Today: Another way to measure the wild-card race**\
 `Conceded points might be the most appropriate metric to watch in recent seasons.`\
