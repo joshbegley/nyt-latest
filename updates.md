@@ -1,3 +1,7 @@
+**With South Korea in Crisis, Eight Justices Will Decide President’s Fate**\
+`The Constitutional Court, an arbiter in a polarized nation, is about to consider whether Yoon Suk Yeol’s impeachment for declaring martial law was justified.`\
+https://nytimes.com/2025/01/13/world/asia/south-korea-yoon-court-impeachment.html
+
 **Lander Vows to End Street Homelessness for Mentally Ill People as Mayor**\
 `Brad Lander, the New York City comptroller who is running for mayor, will announce a major plan to address homelessness after a series of violent attacks on the subway.`\
 https://nytimes.com/2025/01/13/nyregion/homeless-mentally-ill-brad-lander.html
