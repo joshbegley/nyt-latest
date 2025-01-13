@@ -1,3 +1,7 @@
+**Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
+`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
+https://nytimes.com/athletic/5882648/2025/01/13/carlos-alcaraz-jannik-sinner-tennis-australian-open/
+
 **If Shaq Thompson's Panthers career is over, he leaves own legacy among team's top LBs**\
 `After missing most of the past two seasons with injuries, Thompson will be a free agent, and there's no guarantee Carolina will keep him.`\
 https://nytimes.com/athletic/6050452/2025/01/13/panthers-shaq-thompson-linebacker-future-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/opinion/tiktok-ban-supreme-court.html
 **When It Comes to Drinking, There Are No Good Answers**\
 `The surgeon general’s warning is information, not a prescription.`\
 https://nytimes.com/2025/01/13/opinion/alcohol-cancer.html
-
-**Confirmation Hearings Open in a Test of Trump’s Hold on Senate G.O.P.**\
-`Opposition to prospective nominees, along with time-consuming Senate rules, will slow floor action despite the Republican push for approval of some of President-elect Donald J. Trump’s picks as soon as Jan. 20.`\
-https://nytimes.com/2025/01/13/us/politics/confirmation-hearings-trump-senate-republicans.html
 
