@@ -1,3 +1,7 @@
+**Oscar Nominations Are Postponed Because of Wildfires**\
+`To give affected members more time, the academy extended the voting through Friday and will unveil the results Jan. 23. The nominees luncheon was canceled.`\
+https://nytimes.com/2025/01/13/movies/oscar-nominations-fires.html
+
 **Submit a question for James Boyd’s Indianapolis Colts mailbag**\
 `Indy didn't make major changes, so it's on GM Chris Ballard, coach Shane Steichen and QB Anthony Richardson to turn things around in 2025. `\
 https://nytimes.com/athletic/6059034/2025/01/13/colts-mailbag-submission-chris-ballard-anthony-richardson/
