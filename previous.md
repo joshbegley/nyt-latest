@@ -1,3 +1,15 @@
+**Celtics' 3-point dominance has vanished during slide: 'We've gotta get those up'**\
+`The Pelicans made more 3-pointers than the Celtics despite taking fewer attempts.`\
+https://nytimes.com/athletic/6057322/2025/01/13/celtics-3-pointers-slide-pelicans/
+
+**Zion Williamson returns from suspension, but will things change for Pelicans?**\
+`Williamson is finally healthy and not under team suspension. But can he prove to the franchise that he is ready, once and for all?`\
+https://nytimes.com/athletic/6057325/2025/01/13/zion-williamson-returns-from-suspension/
+
+**Belinda Bencic believes in herself, because of the women who came before her**\
+`The 2021 Olympic champion took inspiration from her fellow players — but the WTA Tour can still do more for mothers returning to tennis`\
+https://nytimes.com/athletic/6043694/2025/01/13/belinda-bencic-tennis-mothers-maternity-wta-tour/
+
 **Arsenal and their recurring problem of allowing defeat to turn into a slump**\
 `Analysing the pattern that has now undermined Arsenal's attempts to win silverware in three successive seasons`\
 https://nytimes.com/athletic/6055579/2025/01/13/arsenal-negative-impact-defeat/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/13/science/moon-mars-comet.html
 **This is what will happen during New Glenn’s flight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/this-is-what-will-happen-during-new-glenns-flight
-
-**Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
-`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
-https://nytimes.com/athletic/5882648/2025/01/13/carlos-alcaraz-jannik-sinner-tennis-australian-open/
-
-**Elland Road hosted its first match over a 100 years ago. The similarities with Saturday's FA Cup tie are striking**\
-`It’s almost uncanny the similarities between the Elland Road curtain-raiser and Harrogate Town's most recent visit to West Yorkshire`\
-https://nytimes.com/athletic/6054216/2025/01/13/leeds-united-harrogate-town-fa-cup-analysis/
-
-**Martin Dubravka's long goodbye - football logic may trump business logic at last**\
-`Newcastle's current No 1 may have said farewell prematurely`\
-https://nytimes.com/athletic/6055313/2025/01/13/martin-dubravkas-long-goodbye-football-logic-may-be-trumping-business-logic-at-last/
 

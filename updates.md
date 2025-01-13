@@ -1,3 +1,15 @@
+**Celtics' 3-point dominance has vanished during slide: 'We've gotta get those up'**\
+`The Pelicans made more 3-pointers than the Celtics despite taking fewer attempts.`\
+https://nytimes.com/athletic/6057322/2025/01/13/celtics-3-pointers-slide-pelicans/
+
+**Zion Williamson returns from suspension, but will things change for Pelicans?**\
+`Williamson is finally healthy and not under team suspension. But can he prove to the franchise that he is ready, once and for all?`\
+https://nytimes.com/athletic/6057325/2025/01/13/zion-williamson-returns-from-suspension/
+
+**Belinda Bencic believes in herself, because of the women who came before her**\
+`The 2021 Olympic champion took inspiration from her fellow players — but the WTA Tour can still do more for mothers returning to tennis`\
+https://nytimes.com/athletic/6043694/2025/01/13/belinda-bencic-tennis-mothers-maternity-wta-tour/
+
 **Arsenal and their recurring problem of allowing defeat to turn into a slump**\
 `Analysing the pattern that has now undermined Arsenal's attempts to win silverware in three successive seasons`\
 https://nytimes.com/athletic/6055579/2025/01/13/arsenal-negative-impact-defeat/

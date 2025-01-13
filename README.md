@@ -2,7 +2,7 @@
 `The Pelicans made more 3-pointers than the Celtics despite taking fewer attempts.`\
 https://nytimes.com/athletic/6057322/2025/01/13/celtics-3-pointers-slide-pelicans/
 
-**Zion Williamson returns from suspension, but will things change for Pelicans?**\
+**Zion Williamson returns from suspension, but will things change for the Pelicans?**\
 `Williamson is finally healthy and not under team suspension. But can he prove to the franchise that he is ready, once and for all?`\
 https://nytimes.com/athletic/6057325/2025/01/13/zion-williamson-returns-from-suspension/
 
