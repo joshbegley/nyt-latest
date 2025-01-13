@@ -6,8 +6,8 @@ https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/eato
 `By keeping Mike McCarthy dangling for over a week, the Cowboys are a week behind other teams searching for a coach.`\
 https://nytimes.com/athletic/6059433/2025/01/13/cowboys-mike-mccarthy-jerry-jones-parting-ways/
 
-**Pope’s Autobiography, Secretly Begun and Long in the Making, Arrives in Bookstores**\
-`Pope Francis’ autobiography, to be published Tuesday, adds details to what is known about the pope’s childhood, but falls short when it comes to his later years.`\
+**Pope Francis’ Autobiography, ‘Hope,’ Arrives in Bookstores**\
+`The book, to be published on Tuesday, adds details to what is known about the pope’s childhood but falls short when it comes to his later years.`\
 https://nytimes.com/2025/01/13/world/europe/pope-francis-autobiography.html
 
 **Here’s How Senate Confirmation Works for Trump’s Cabinet**\
