@@ -1,3 +1,7 @@
+**Packers' Keisean Nixon on kickoff rules, returning: 'I’m kind of over it'**\
+`Nixon, a two-time All-Pro returner, saw fewer opportunities with the new kickoff rules and would like to exclusively play cornerback.`\
+https://nytimes.com/athletic/6059243/2025/01/13/keisean-nixon-packers-kickoff-returns/
+
 **Biden Aides Warned Putin as Russia’s Shadow War Threatened Air Disaster**\
 `The White House scrambled to get a message to President Vladimir V. Putin of Russia last year after U.S. intelligence agencies said a Russian military unit was preparing to send explosive packages on cargo planes.`\
 https://nytimes.com/2025/01/13/us/politics/russia-putin-airplane-shadow-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059080/2025/01/13/maple-leafs-trade-deadline-treli
 **Trump Supporters Go All In for Pete Hegseth With Money and Coordination**\
 `Conservative organizations are targeting Republican senators, saying that they will pay a price if they do not back the president-elect’s choice for defense secretary.`\
 https://nytimes.com/2025/01/13/us/politics/pete-hegseth-defense-secretary-trump.html
-
-**Texas Man Is Charged With Stalking Caitlin Clark**\
-`Prosecutors said the man had sent “sexually violent” messages to the Indiana Fever star and had traveled to Indianapolis to be closer to her.`\
-https://nytimes.com/2025/01/13/us/caitlin-clark-stalker-arrested.html
 
