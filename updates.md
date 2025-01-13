@@ -1,3 +1,11 @@
+**Penguins Today: Another way to measure the wild-card race**\
+`Conceded points might be the most appropriate metric to watch in recent seasons.`\
+https://nytimes.com/athletic/6058101/2025/01/13/penguins-today-wild-card-standings/
+
+**Lowetide: Is the Oilers' focus on goal supression working?**\
+`The Oilers' devotion to stopping shots and chances is full-on in year two under this coaching staff.`\
+https://nytimes.com/athletic/6056032/2025/01/13/edmonton-oilers-stats-goal-supression/
+
 **Nuno: 'Nobody' could predict Nottingham Forest transformation**\
 `Nuno Espirito Santo says nobody could have predicted the transformation in fortunes at Nottingham Forest this season as his side prepare to face Premier League leaders Liverpool.`\
 https://nytimes.com/athletic/6058027/2025/01/13/nuno-nottingham-forest-liverpool/

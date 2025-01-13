@@ -1,3 +1,11 @@
+**Penguins Today: Another way to measure the wild-card race**\
+`Conceded points might be the most appropriate metric to watch in recent seasons.`\
+https://nytimes.com/athletic/6058101/2025/01/13/penguins-today-wild-card-standings/
+
+**Lowetide: Is the Oilers' focus on goal supression working?**\
+`The Oilers' devotion to stopping shots and chances is full-on in year two under this coaching staff.`\
+https://nytimes.com/athletic/6056032/2025/01/13/edmonton-oilers-stats-goal-supression/
+
 **Nuno: 'Nobody' could predict Nottingham Forest transformation**\
 `Nuno Espirito Santo says nobody could have predicted the transformation in fortunes at Nottingham Forest this season as his side prepare to face Premier League leaders Liverpool.`\
 https://nytimes.com/athletic/6058027/2025/01/13/nuno-nottingham-forest-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6053629/2025/01/13/jerar-encarnacion-sf-giants-powe
 **Ohio State vs Notre Dame national championship roundtable: Storylines and matchups to watch**\
 `The Athletic beat writers Pete Sampson (Notre Dame) and Cameron Teague Robinson (Ohio State) break down the title game. `\
 https://nytimes.com/athletic/6057774/2025/01/13/ohio-state-notre-dame-storylines-matchups-roundtable-cfp/
-
-**Map: 6.8-Magnitude Earthquake Strikes Near Japan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/01/13/world/asia/quake-tracker-japan.html
-
-**Gelhardt finalising loan move from Leeds to Hull**\
-`Joe Gelhardt is finalising a loan move from Leeds United to Hull City.`\
-https://nytimes.com/athletic/6057870/2025/01/13/joe-gelhardt-leeds-hull-loan/
 
