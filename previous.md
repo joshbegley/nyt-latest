@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday’s podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/6057729/2025/01/13/college-football-questions-mailbag-until-saturday-43/
+
 **The Athletic FC: Barca's historic battering of Real Madrid, Arsenal slump continues**\
 `Today in TAFC: Barcelona make history with another thrashing of Real Madrid, Arsenal's slump continues, City's Walker looks to move`\
 https://nytimes.com/athletic/6057478/2025/01/13/barcelona-real-madrid-supercoppa-arsenal-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056415/2025/01/13/one-of-one-day-topps-panini/
 **Weekend NHL rankings: The Blue Jackets are the league's best story and it's not close**\
 `Remember when we designated eight teams as sure-thing contenders in October? Let's check back in on that.`\
 https://nytimes.com/athletic/6056487/2025/01/13/nhl-weekend-rankings-blue-jackets-bruins/
-
-**Group of Experts Says R.F.K. Jr. Would ‘Significantly Undermine’ Public Health**\
-`A coalition opposing the nominee for health secretary includes faculty members from leading U.S. academic institutions, including public health schools at Yale and Havard.`\
-https://nytimes.com/2025/01/13/us/politics/robert-f-kennedy-jr-public-health-secretary.html
 

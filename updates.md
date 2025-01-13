@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday’s podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/6057729/2025/01/13/college-football-questions-mailbag-until-saturday-43/
+
 **The Athletic FC: Barca's historic battering of Real Madrid, Arsenal slump continues**\
 `Today in TAFC: Barcelona make history with another thrashing of Real Madrid, Arsenal's slump continues, City's Walker looks to move`\
 https://nytimes.com/athletic/6057478/2025/01/13/barcelona-real-madrid-supercoppa-arsenal-manchester-united/
