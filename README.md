@@ -1,3 +1,7 @@
+**Everton and Liverpool to play rescheduled Merseyside derby on February 12**\
+`The final Merseyside derby at Goodison Park will be played on Wednesday, February 12 after it was postponed because of Storm Darragh.`\
+https://nytimes.com/athletic/5989803/2025/01/13/liverpool-everton-merseyside-derby-when/
+
 **How Much Do You Know About These Controversial Classics?**\
 `Try this short quiz on literature from the first half of the 20th century that drew censorship challenges — and still does.`\
 https://nytimes.com/interactive/2025/01/13/books/review/controversial-books-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/opinion/trump-greenland-china-taiwan.html
 **Penguins Today: Another way to measure the wild-card race**\
 `Conceded points might be the most appropriate metric to watch in recent seasons.`\
 https://nytimes.com/athletic/6058101/2025/01/13/penguins-today-wild-card-standings/
-
-**Lowetide: Is the Oilers' focus on goal supression working?**\
-`The Oilers' devotion to stopping shots and chances is full-on in year two under this coaching staff.`\
-https://nytimes.com/athletic/6056032/2025/01/13/edmonton-oilers-stats-goal-supression/
 
