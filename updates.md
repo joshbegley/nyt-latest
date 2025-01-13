@@ -1,3 +1,27 @@
+**Will Artificial Intelligence Replace Us or Empower Us?**\
+`People will need a lot more education to be able to harness A.I. rather than be elbowed aside.`\
+https://nytimes.com/2025/01/13/opinion/artificial-intelligence-jobs.html
+
+**Houndstooth Plaid and Pink Shoelaces**\
+`A pop of color punctuated a dashing assemblage of prints.`\
+https://nytimes.com/2025/01/13/style/street-style-look-houndstooth-print.html
+
+**A Couple That Gets Dressed Together**\
+`Both are fans of relaxed silhouettes.`\
+https://nytimes.com/2025/01/13/style/street-style-look-couple-coordination.html
+
+**A Blue Trench and a Scarf Bonnet**\
+`Vibrant outerwear set a wintry outfit apart.`\
+https://nytimes.com/2025/01/13/style/street-style-look-cobalt-coat.html
+
+**Two Cool Ways to Keep Heads Warm**\
+`Artfully layered headgear enhanced a duo’s style.`\
+https://nytimes.com/2025/01/13/style/street-style-look-layered-hats.html
+
+**What Treliving is signaling about Leafs' trade deadline**\
+`No matter the Leafs' trade target at centre, expect him to be a two-way player.`\
+https://nytimes.com/athletic/6059080/2025/01/13/maple-leafs-trade-deadline-treliving/
+
 **Trump Supporters Go All In for Pete Hegseth With Money and Coordination**\
 `Conservative organizations are targeting Republican senators, saying that they will pay a price if they do not back the president-elect’s choice for defense secretary.`\
 https://nytimes.com/2025/01/13/us/politics/pete-hegseth-defense-secretary-trump.html
