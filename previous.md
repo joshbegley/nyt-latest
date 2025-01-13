@@ -1,3 +1,11 @@
+**Here’s what’s happening on the launchpad.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/heres-whats-happening-on-the-launchpad
+
+**Live Updates: Jeff Bezos and Blue Origin Prepare for New Glenn Rocket’s Debut Launch**\
+`The flight is a crucial moment for the company’s vision for space, and a test of whether it may emerge as a serious competitor to Elon Musk and SpaceX.`\
+https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn
+
 **American prospect Michelsen knocks Stefanos Tsitsipas out of Australian Open**\
 `MELBOURNE, Australia — Stefanos Tsitsipas twice smashed his racket onto his bag as he exited the Australian Open in the first round against young American Alex Michelsen.`\
 https://nytimes.com/athletic/6057074/2025/01/12/alex-michelsen-stefanos-tsitsipas-australian-open-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/who-do-we-ca
 **Former Wimbledon champion Vondrousova withdraws from Australian Open**\
 `Former Wimbledon champion Marketa Vondrousova has withdrawn from the Australian Open because of injury, opening up a spot in the draw for British lucky loser Harriet Dart.`\
 https://nytimes.com/athletic/6056917/2025/01/12/marketa-vondrousova-australian-open/
-
-**35 Simple Health Tips Experts Swear By**\
-`They’re surprising, and surprisingly effective. And they’ll help you feel better every single day.`\
-https://nytimes.com/interactive/2025/01/12/well/health-tips-experts.html
-
-**Cavaliers' 12-game win streak ends with loss to Pacers, tough road trip ahead**\
-`The Cavs, who entered with the league’s top-rated offense, were limited to their lowest point total of the season.`\
-https://nytimes.com/athletic/6056858/2025/01/12/cavaliers-pacers-result-win-streak-nba/
 
