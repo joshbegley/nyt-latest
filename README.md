@@ -1,3 +1,27 @@
+**Will Artificial Intelligence Replace Us or Empower Us?**\
+`People will need a lot more education to be able to harness A.I. rather than be elbowed aside.`\
+https://nytimes.com/2025/01/13/opinion/artificial-intelligence-jobs.html
+
+**Houndstooth Plaid and Pink Shoelaces**\
+`A pop of color punctuated a dashing assemblage of prints.`\
+https://nytimes.com/2025/01/13/style/street-style-look-houndstooth-print.html
+
+**A Couple That Gets Dressed Together**\
+`Both are fans of relaxed silhouettes.`\
+https://nytimes.com/2025/01/13/style/street-style-look-couple-coordination.html
+
+**A Blue Trench and a Scarf Bonnet**\
+`Vibrant outerwear set a wintry outfit apart.`\
+https://nytimes.com/2025/01/13/style/street-style-look-cobalt-coat.html
+
+**Two Cool Ways to Keep Heads Warm**\
+`Artfully layered headgear enhanced a duo’s style.`\
+https://nytimes.com/2025/01/13/style/street-style-look-layered-hats.html
+
+**What Treliving is signaling about Leafs' trade deadline**\
+`No matter the Leafs' trade target at centre, expect him to be a two-way player.`\
+https://nytimes.com/athletic/6059080/2025/01/13/maple-leafs-trade-deadline-treliving/
+
 **Trump Supporters Go All In for Pete Hegseth With Money and Coordination**\
 `Conservative organizations are targeting Republican senators, saying that they will pay a price if they do not back the president-elect’s choice for defense secretary.`\
 https://nytimes.com/2025/01/13/us/politics/pete-hegseth-defense-secretary-trump.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/13/us/palisades-fire-cause-ignition-point-site.html
 **Cowboys coach candidates: Ben Johnson and other names Dallas should consider**\
 `With the Cowboys and Mike McCarthy parting ways, the Dallas job should be an attractive one for candidates.`\
 https://nytimes.com/athletic/6059083/2025/01/13/cowboys-coach-candidates-ben-johnson-mike-mccarthy/
-
-**Roki Sasaki visits with Padres in San Diego: Sources**\
-`Padres officials hosted Sasaki in San Diego over the weekend after the pitcher visited the Blue Jays last week in Toronto.`\
-https://nytimes.com/athletic/6058775/2025/01/13/roki-sasaki-padres-visit/
-
-**Giants told Roki Sasaki will not sign with them**\
-`The Giants made an in-person pitch to Sasaki in Los Angeles but were told he's narrowed his list of potential teams and they aren't on it.`\
-https://nytimes.com/athletic/6059177/2025/01/13/sf-giants-roki-sasaki-wont-sign/
-
-**The Book So Helpful That the Eagles’ A.J. Brown Read it During a Game**\
-`What made the N.F.L. star open “Inner Excellence” by Jim Murphy as the action continued? “I like to read.”`\
-https://nytimes.com/2025/01/13/sports/football/aj-brown-reading-inner-excellence-book-murphy.html
-
-**Stuart Spencer, Political Pioneer Who Helped Propel Reagan’s Rise, Dies at 97**\
-`One of the nation’s first campaign consultants for hire, he advised leading Republicans, including President Gerald Ford, but Reagan was his prized candidate.`\
-https://nytimes.com/2025/01/13/us/elections/stuart-spencer-dead.html
-
-**AP men's basketball Top 25: Auburn takes over No. 1 spot, Florida rises**\
-`This week's AP poll brings a new No. 1 and notable movement elsewhere.`\
-https://nytimes.com/athletic/6058460/2025/01/13/ap-mens-basketball-top-25-poll-auburn/
-
-**Ducks midseason report card: Are they truly making progress?**\
-`Assigning a grade to each player at the midpoint of a somewhat confusing season.`\
-https://nytimes.com/athletic/6058977/2025/01/13/anaheim-ducks-analysis-grades-players/
 
