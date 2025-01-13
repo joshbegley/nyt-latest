@@ -2,7 +2,7 @@
 `The Broncos weren't alone in being decimated by Buffalo's offense, but the inability to keep pace offensively paints offseason priorities.`\
 https://nytimes.com/athletic/6056670/2025/01/12/broncos-playoffs-loss-bills-wild-card/
 
-**Josh Allen's dominant performance, Bills defensive masterclass, other observations in wild-card win**\
+**Josh Allen's dominant performance, Bills defensive master class, other observations in wild-card win**\
 `Plus, the offensive line puts on a show and a different role for Matt Milano.`\
 https://nytimes.com/athletic/6056719/2025/01/12/bills-josh-allen-playoffs-wild-card-observations/
 
