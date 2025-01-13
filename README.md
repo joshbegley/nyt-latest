@@ -1,3 +1,7 @@
+**Rodriguez signs for Club Leon after Rayo Vallecano exit**\
+`James Rodriguez has joined Mexican side Club Leon after leaving Rayo Vallecano earlier this month.`\
+https://nytimes.com/athletic/6043637/2025/01/13/james-rodriguez-transfer/
+
 **Lebanon Names Nawaf Salam, a Diplomat and Jurist, as Prime Minister**\
 `The selection of Mr. Salam was seen as a blow to Hezbollah, the Lebanese militant group and political party that has acted as the real power in Lebanon for decades.`\
 https://nytimes.com/2025/01/13/world/middleeast/lebanon-nawaf-salam-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/obituaries/karen-wynn-fonstad-overlooked.html
 **Mets notes: Roki Sasaki headed elsewhere, Sean Manaea hopes for Pete Alonso return**\
 `Manaea described the Mets as a “perfect fit" in his first news conference since returning on a 3-year deal. `\
 https://nytimes.com/athletic/6059477/2025/01/13/mets-roki-saskaki-sean-manaea/
-
-**How the Ohio State-Notre Dame spread ranks among biggest in national title game history**\
-`Ohio State is favored by more than a touchdown against Notre Dame. Where does that rank among the biggest spreads in title game history?`\
-https://nytimes.com/athletic/6058657/2025/01/13/ohio-state-notre-dame-spread-national-title-game/
 
