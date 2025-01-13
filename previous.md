@@ -1,3 +1,7 @@
+**Submit a question for James Boyd’s Indianapolis Colts mailbag**\
+`Indy didn't make major changes, so it's on GM Chris Ballard, coach Shane Steichen and QB Anthony Richardson to turn things around in 2025. `\
+https://nytimes.com/athletic/6059034/2025/01/13/colts-mailbag-submission-chris-ballard-anthony-richardson/
+
 **Oscar Nominations Are Postponed Because of Wildfires**\
 `To give affected members more time, the academy  extended the voting through Friday and will unveil the results Jan. 23. The nominees luncheon was canceled.`\
 https://nytimes.com/2025/01/13/movies/oscar-nominations-fires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058485/2025/01/13/pulisic-usmnt-milan-adams-sargen
 **Dorrington signs new Spurs contract, joins Aberdeen on loan**\
 `Alfie Dorrington has signed a new contract with Tottenham Hotspur and will spend the rest of the season on loan with Aberdeen.`\
 https://nytimes.com/athletic/6058817/2025/01/13/alfie-dorrington-tottenham-aberdeen-loan/
-
-**The Windup: Bregman at center of Boston's decision web**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6058856/2025/01/13/alex-bregman-boston-red-sox-the-windup/
 
