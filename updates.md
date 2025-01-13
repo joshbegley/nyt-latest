@@ -1,3 +1,15 @@
+**March wants to play for next 'five or six years' after knee issues**\
+`Brighton &amp; Hove Albion servant Solly March wants to extend his career for &#8220;quite a few years&#8221; after a goalscoring return from serious knee damage.`\
+https://nytimes.com/athletic/6055336/2025/01/13/solly-march-brighton-return/
+
+**Word of the Day: acerbic**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/13/learning/word-of-the-day-acerbic.html
+
+**The Matthijs de Ligt recovery that exemplifies the desire Ruben Amorim wants from his team**\
+`This team is still a work in progress, but there's now an understanding in how much hard work is required to turn things around`\
+https://nytimes.com/athletic/6046589/2025/01/13/manchester-united-amorim-desire-arsenal/
+
 **What Blue Origin has done so far.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-blue-origin-has-done-so-far

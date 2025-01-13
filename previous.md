@@ -1,3 +1,15 @@
+**March wants to play for next 'five or six years' after knee issues**\
+`Brighton &amp; Hove Albion servant Solly March wants to extend his career for &#8220;quite a few years&#8221; after a goalscoring return from serious knee damage.`\
+https://nytimes.com/athletic/6055336/2025/01/13/solly-march-brighton-return/
+
+**Word of the Day: acerbic**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/13/learning/word-of-the-day-acerbic.html
+
+**The Matthijs de Ligt recovery that exemplifies the desire Ruben Amorim wants from his team**\
+`This team is still a work in progress, but there's now an understanding in how much hard work is required to turn things around`\
+https://nytimes.com/athletic/6046589/2025/01/13/manchester-united-amorim-desire-arsenal/
+
 **What Blue Origin has done so far.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-blue-origin-has-done-so-far
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/will-it
 **Rodrigo Gomes' form has changed what Wolves need this transfer window**\
 `A few weeks ago, Wolves looked short of options at wing-back but the emergence of Gomes has changed priorities`\
 https://nytimes.com/athletic/6054572/2025/01/13/wolverhampton-wanderers-fa-cup-rodrigo-gomes/
-
-**‘Severance’, Plus 6 Things to Watch on TV This Week**\
-`The dystopian workplace drama returns after a nearly three-year hiatus. And a new series looks back at 50 years of “Saturday Night Live.”`\
-https://nytimes.com/2025/01/13/arts/television/severance-tv-this-week.html
-
-**Europe Wasn’t Built to Be Like This**\
-`Schengen is now a symbol of the migration crisis driving the backlash against globalization and the ascendance of illiberalism.`\
-https://nytimes.com/2025/01/13/opinion/schengen-migration-crisis.html
-
-**A Full Moon, a Bold Mars and a New Comet Brighten January’s Skies**\
-`On Monday night you may have a chance to witness the moon obscuring the Red Planet at its brightest, as well as a comet’s closest approach to the sun.`\
-https://nytimes.com/2025/01/13/science/moon-mars-comet.html
 
