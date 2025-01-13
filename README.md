@@ -1,15 +1,3 @@
-**Who’s Performing at Trump’s Inauguration?**\
-`Carrie Underwood will sing “America the Beautiful” at the second inauguration of Donald J. Trump.`\
-https://nytimes.com/2025/01/13/us/politics/carrie-underwood-trump-inauguration.html
-
-**Police Officer Shoots Man Who Called 911 to Report a Burglary**\
-`The victim, the police said, was carrying a knife. The shooting, which occurred after a five-second encounter, was under investigation.`\
-https://nytimes.com/2025/01/13/nyregion/bronx-police-shooting.html
-
-**Penn State RB duo Nick Singleton, Kaytron Allen to return for 2025 season**\
-`Singleton and Allen each eclipsed 1,000 yards rushing for Penn State during the 2024 season.`\
-https://nytimes.com/athletic/6059341/2025/01/13/penn-state-college-football-nick-singleton-kaytron-allen-return/
-
 **Packers' Keisean Nixon on kickoff rules, returning: 'I’m kind of over it'**\
 `Nixon, a two-time All-Pro returner, saw fewer opportunities with the new kickoff rules and would like to exclusively play cornerback.`\
 https://nytimes.com/athletic/6059243/2025/01/13/keisean-nixon-packers-kickoff-returns/
@@ -37,4 +25,16 @@ https://nytimes.com/2025/01/13/style/street-style-look-couple-coordination.html
 **A Blue Trench and a Scarf Bonnet**\
 `Vibrant outerwear set a wintry outfit apart.`\
 https://nytimes.com/2025/01/13/style/street-style-look-cobalt-coat.html
+
+**Two Cool Ways to Keep Heads Warm**\
+`Artfully layered headgear enhanced a duo’s style.`\
+https://nytimes.com/2025/01/13/style/street-style-look-layered-hats.html
+
+**What Treliving is signaling about Leafs' trade deadline**\
+`No matter the Leafs' trade target at centre, expect him to be a two-way player.`\
+https://nytimes.com/athletic/6059080/2025/01/13/maple-leafs-trade-deadline-treliving/
+
+**Trump Supporters Go All In for Pete Hegseth With Money and Coordination**\
+`Conservative organizations are targeting Republican senators, saying that they will pay a price if they do not back the president-elect’s choice for defense secretary.`\
+https://nytimes.com/2025/01/13/us/politics/pete-hegseth-defense-secretary-trump.html
 
