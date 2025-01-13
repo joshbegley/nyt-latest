@@ -1,3 +1,7 @@
+**Fires Continue to Rage Across Southern California**\
+`The wildfires have become some of the most destructive blazes in California history, razing neighborhoods and forcing thousands to evacuate their homes.`\
+https://nytimes.com/video/us/100000009924160/southern-california-wildfires.html
+
 **‘They Barricaded Everything’: Living Inside an Evacuation Zone**\
 `Anthony Herrera never evacuated his Altadena home during the Eaton fire last week, and said he was told by the Los Angeles Sheriff’s Department that if he leaves now, he can’t return.`\
 https://nytimes.com/video/world/americas/100000009923203/eaton-fire-altadena-residents.html
