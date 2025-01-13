@@ -1,3 +1,7 @@
+**Weekend NHL rankings: The Blue Jackets are the league's best story and it's not close**\
+`Remember when we designated eight teams as sure-thing contenders in October? Let's check back in on that.`\
+https://nytimes.com/athletic/6056487/2025/01/13/nhl-weekend-rankings-blue-jackets-bruins/
+
 **Group of Experts Says R.F.K. Jr. Would ‘Significantly Undermine’ Public Health**\
 `A coalition opposing the nominee for health secretary includes faculty members from leading U.S. academic institutions, including public health schools at Yale and Havard.`\
 https://nytimes.com/2025/01/13/us/politics/robert-f-kennedy-jr-public-health-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056377/2025/01/13/indiana-basketball-mike-woodson-
 **As Clippers resume schedule amid LA wildfires, they look to rediscover 'identity'**\
 `A s wildfires continue to tear through the region, the Clippers return to the court aiming to reverse a troubling decline in play.`\
 https://nytimes.com/athletic/6048981/2025/01/13/clippers-schedule-games-wildfires-identity/
-
-**Caleb Williams' rookie season by the numbers: How good was the Bears' QB?**\
-`The numbers only tell us part of the story, but what can we learn about Williams' rookie year from his stats? Let's dive in.`\
-https://nytimes.com/athletic/6052576/2025/01/13/bears-caleb-williams-rookie-stats/
 
