@@ -1,3 +1,7 @@
+**Josh Allen's dominant performance, Bills defensive masterclass, other observations in wild-card win**\
+`Plus, the offensive line puts on a show and a different role for Matt Milano.`\
+https://nytimes.com/athletic/6056719/2025/01/12/bills-josh-allen-playoffs-wild-card-observations/
+
 **Packers WRs Romeo Doubs, Jayden Reed exit with injuries vs. Eagles**\
 `Jordan Love's top receivers left Sunday's game against the Philadelphia Eagles on back-to-back drives.`\
 https://nytimes.com/athletic/6056669/2025/01/12/packers-romeo-doubs-jayden-reed-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056523/2025/01/12/pitt-womens-basketball-largest-c
 **Give In to Gravity**\
 `Adam Levav makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/01/12/crosswords/daily-puzzle-2025-01-13.html
-
-**Blackhawks affiliate Rockford IceHogs to host 2026 AHL All-Star Classic**\
-`The skills competition will be held on Feb. 10 and the All-Star Game on Feb. 11 at BMO Center in Rockford.`\
-https://nytimes.com/athletic/6055840/2025/01/12/blackhawks-rockford-icehogs-ahl-all-star/
 

@@ -1,3 +1,7 @@
+**Josh Allen's dominant performance, Bills defensive masterclass, other observations in wild-card win**\
+`Plus, the offensive line puts on a show and a different role for Matt Milano.`\
+https://nytimes.com/athletic/6056719/2025/01/12/bills-josh-allen-playoffs-wild-card-observations/
+
 **Packers WRs Romeo Doubs, Jayden Reed exit with injuries vs. Eagles**\
 `Jordan Love's top receivers left Sunday's game against the Philadelphia Eagles on back-to-back drives.`\
 https://nytimes.com/athletic/6056669/2025/01/12/packers-romeo-doubs-jayden-reed-injuries/
