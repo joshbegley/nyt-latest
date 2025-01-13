@@ -1,3 +1,7 @@
+**Novak Djokovic enters his brat era in Melbourne**\
+`The rise of Jannik Sinner and Carlos Alcaraz vanquished Djokovic's inevitability at the Australian Open, but he is still the main character.`\
+https://nytimes.com/athletic/6054866/2025/01/13/novak-djokovic-australian-open-tennis/
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/6057529/2025/01/13/newcastle-questions-transfers-dubravka/

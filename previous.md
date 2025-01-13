@@ -1,3 +1,7 @@
+**Novak Djokovic enters his brat era in Melbourne**\
+`The rise of Jannik Sinner and Carlos Alcaraz vanquished Djokovic's inevitability at the Australian Open, but he is still the main character.`\
+https://nytimes.com/athletic/6054866/2025/01/13/novak-djokovic-australian-open-tennis/
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/6057529/2025/01/13/newcastle-questions-transfers-dubravka/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048402/2025/01/13/raiders-offseason-roster-maxx-cr
 **Manchester's other clubs - the teams striving and thriving in the shadows of City and United**\
 `Greater Manchester is bursting with football history, heritage - and clubs. This is what it's like for those outside of City and United`\
 https://nytimes.com/athletic/6055938/2025/01/13/manchester-football-clubs-city-united/
-
-**The Rams improbably went from 1-4 to the NFL postseason. Then disaster struck their city**\
-`Fire changes a person’s world fast. The previous week, all anybody in the Rams organization could think about was what they had earned.`\
-https://nytimes.com/athletic/6055691/2025/01/13/rams-sean-mcvay-playoffs-wildfires/
 
