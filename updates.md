@@ -1,3 +1,7 @@
+**Arsenal and their recurring problem of allowing defeat to turn into a slump**\
+`Analysing the pattern that has now undermined Arsenal's attempts to win silverware in three successive seasons`\
+https://nytimes.com/athletic/6055579/2025/01/13/arsenal-negative-impact-defeat/
+
 **Will it be fair to call New Glenn’s launch a success or failure? Here are some scenarios.**\
 `By Michael Roston and Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/will-it-be-fair-to-call-new-glenns-launch-a-success-or-failure-here-are-some-scenarios
