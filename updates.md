@@ -1,3 +1,7 @@
+**Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
+`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
+https://nytimes.com/athletic/5882648/2025/01/13/carlos-alcaraz-jannik-sinner-tennis-australian-open/
+
 **Elland Road hosted its first match over a 100 years ago. The similarities with Saturday's FA Cup tie are striking**\
 `It’s almost uncanny the similarities between the Elland Road curtain-raiser and Harrogate Town's most recent visit to West Yorkshire`\
 https://nytimes.com/athletic/6054216/2025/01/13/leeds-united-harrogate-town-fa-cup-analysis/
