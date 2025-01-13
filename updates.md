@@ -1,3 +1,7 @@
+**Why Packers' loss to Eagles should be no surprise as disappointing season ends**\
+`In their 22-10 loss to the Eagles, Matt LaFleur's Packers beat themselves just like they did against numerous elite NFC opponents before.`\
+https://nytimes.com/athletic/6057129/2025/01/12/packers-wild-card-loss-eagles/
+
 **Here’s what’s happening on the launchpad.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/heres-whats-happening-on-the-launchpad

@@ -1,3 +1,7 @@
+**Why Packers' loss to Eagles should be no surprise as disappointing season ends**\
+`In their 22-10 loss to the Eagles, Matt LaFleur's Packers beat themselves just like they did against numerous elite NFC opponents before.`\
+https://nytimes.com/athletic/6057129/2025/01/12/packers-wild-card-loss-eagles/
+
 **Here’s what’s happening on the launchpad.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/heres-whats-happening-on-the-launchpad
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056894/2025/01/12/aj-brown-reading-eagles-wild-car
 **‘Who do we call?’ That’s the question for Altadena residents, as they think about rebuilding.**\
 `By Jesus Jiménez and Vik Jolly`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/who-do-we-call-thats-the-question-for-altadena-residents-as-they-think-about-rebuilding
-
-**Former Wimbledon champion Vondrousova withdraws from Australian Open**\
-`Former Wimbledon champion Marketa Vondrousova has withdrawn from the Australian Open because of injury, opening up a spot in the draw for British lucky loser Harriet Dart.`\
-https://nytimes.com/athletic/6056917/2025/01/12/marketa-vondrousova-australian-open/
 
