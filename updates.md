@@ -1,3 +1,15 @@
+**Elon Musk Is Expected to Use Office Space in the White House Complex**\
+`The location suggests that Mr. Musk, who owns companies with billions of dollars in contracts with the federal government, will continue to have remarkable access to President-elect Donald J. Trump.`\
+https://nytimes.com/2025/01/13/us/politics/elon-musk-white-house-trump.html
+
+**Democrats Will Regret Helping to Pass the Laken Riley Act**\
+`This cruel and sweeping bill could upend our immigration system.`\
+https://nytimes.com/2025/01/13/opinion/democrats-laken-riley-act.html
+
+**Robinhood Is Fined $45 Million Over a New Set of Securities Violations**\
+`The upstart brokerage agreed to pay the Securities and Exchange Commission for failing to protect sensitive customer data, among other infractions.`\
+https://nytimes.com/2025/01/13/business/robinhood-sec-fine.html
+
 **L.A. Wildfire Evacuees Scramble to Find Sleep in Cars, Shelters and Hotels**\
 `More than 90,000 people under evacuation orders are making do however they can.`\
 https://nytimes.com/2025/01/13/us/la-fires-evacuations-housing-shelter.html
