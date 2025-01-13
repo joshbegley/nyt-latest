@@ -1,3 +1,7 @@
+**American prospect Michelsen knocks Stefanos Tsitsipas out of Australian Open**\
+`MELBOURNE, Australia — Stefanos Tsitsipas twice smashed his racket onto his bag as he exited the Australian Open in the first round against young American Alex Michelsen.`\
+https://nytimes.com/athletic/6057074/2025/01/12/alex-michelsen-stefanos-tsitsipas-australian-open-result-analysis/
+
 **Penguins' pivotal home stand goes awry with dire standings implications: Observations**\
 `Michael Bunting's absence against Tampa Bay was noticeable after a car accident near the arena Sunday. Bunting was reportedly uninjured.`\
 https://nytimes.com/athletic/6056988/2025/01/12/penguins-homestand-bunting-accident-lightning/
