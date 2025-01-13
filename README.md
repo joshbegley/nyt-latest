@@ -1,3 +1,7 @@
+**Mummies’ Ancient Tattoos Come Under Laser Focus**\
+`With a tool often used in the study of dinosaur fossils, scientists uncovered new details in ornate tattoos on the skin of members of the Chancay culture of Peru.`\
+https://nytimes.com/2025/01/13/science/mummies-tattoos-laser-peru.html
+
 **Cleveland-Cliffs Signals a Possible New Bid for U.S. Steel**\
 `The company’s renewed interest comes after the Biden administration blocked Nippon Steel from acquiring the onetime American powerhouse.`\
 https://nytimes.com/2025/01/13/business/economy/us-steel-cleveland-cliffs-nippon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/us/politics/carrie-underwood-trump-inauguration.h
 **Police Officer Shoots Man Who Called 911 to Report a Burglary**\
 `The victim, the police said, was carrying a knife. The shooting, which occurred after a five-second encounter, was under investigation.`\
 https://nytimes.com/2025/01/13/nyregion/bronx-police-shooting.html
-
-**Penn State RB duo Nick Singleton, Kaytron Allen to return for 2025 season**\
-`Singleton and Allen each eclipsed 1,000 yards rushing for Penn State during the 2024 season.`\
-https://nytimes.com/athletic/6059341/2025/01/13/penn-state-college-football-nick-singleton-kaytron-allen-return/
 
