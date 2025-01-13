@@ -1,3 +1,7 @@
+**Roki Sasaki visits with Padres in San Diego: Sources**\
+`Padres officials hosted Sasaki in San Diego over the weekend after the pitcher visited the Blue Jays last week in Toronto.`\
+https://nytimes.com/athletic/6058775/2025/01/13/roki-sasaki-padres-visit/
+
 **Giants told Roki Sasaki will not sign with them**\
 `The Giants made an in-person pitch to Sasaki in Los Angeles but were told he's narrowed his list of potential teams and they aren't on it.`\
 https://nytimes.com/athletic/6059177/2025/01/13/sf-giants-roki-sasaki-wont-sign/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/01/13/arts/television/leslie-charleson-dead-general-hos
 **How Bad Is the Forecast, and When Will L.A. Firefighters Catch a Break?**\
 `Another prolonged round of gusty Santa Ana winds is expected to begin late Monday.`\
 https://nytimes.com/2025/01/13/weather/la-winds-fire-forecast.html
-
-**Submit a question for James Boyd’s Indianapolis Colts mailbag**\
-`Indy didn't make major changes, so it's on GM Chris Ballard, coach Shane Steichen and QB Anthony Richardson to turn things around in 2025. `\
-https://nytimes.com/athletic/6059034/2025/01/13/colts-mailbag-submission-chris-ballard-anthony-richardson/
 

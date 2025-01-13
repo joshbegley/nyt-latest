@@ -1,3 +1,7 @@
+**Roki Sasaki visits with Padres in San Diego: Sources**\
+`Padres officials hosted Sasaki in San Diego over the weekend after the pitcher visited the Blue Jays last week in Toronto.`\
+https://nytimes.com/athletic/6058775/2025/01/13/roki-sasaki-padres-visit/
+
 **Giants told Roki Sasaki will not sign with them**\
 `The Giants made an in-person pitch to Sasaki in Los Angeles but were told he's narrowed his list of potential teams and they aren't on it.`\
 https://nytimes.com/athletic/6059177/2025/01/13/sf-giants-roki-sasaki-wont-sign/
