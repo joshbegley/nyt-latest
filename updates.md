@@ -1,3 +1,7 @@
+**What I saw in the PWHL this week: Marie-Philip Poulin's Vancouver return, Western expansion?**\
+`The success of "Takeover Tour" games in Seattle, Vancouver and Denver begs the question: Could the PWHL expand to the West Coast?`\
+https://nytimes.com/athletic/6057156/2025/01/13/pwhl-poulin-vancouver-seattle-expansion-heise/
+
 **Premier League player arrested on suspicion of voyeurism, no further action to be taken**\
 `A Premier League player was arrested at his training ground on suspicion of voyeurism.`\
 https://nytimes.com/athletic/6057646/2025/01/13/premier-league-player-arrested-voyeurism/
