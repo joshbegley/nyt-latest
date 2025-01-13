@@ -1,3 +1,7 @@
+**Reds games to be broadcast by FanDuel Sports Network in 2025**\
+`The new deal is for this year only and applies to all in-market games not televised on an exclusive national telecast.`\
+https://nytimes.com/athletic/6058617/2025/01/13/reds-tv-broadcast-fanduel-sports-2025/
+
 **News Outlets Batten Down the Hatches for Trump’s Return**\
 `Media organizations are taking unusual steps to prepare for what they fear will be a legal and political onslaught from the new administration.`\
 https://nytimes.com/2025/01/13/business/trump-media-threats.html
