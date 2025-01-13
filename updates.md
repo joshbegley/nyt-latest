@@ -1,3 +1,15 @@
+**Submit your questions for the college basketball mailbag**\
+`With college basketball entering the thick of conference play, it&#8217;s the perfect time for a college basketball mailbag.`\
+https://nytimes.com/athletic/6059413/2025/01/13/submit-your-questions-for-the-college-basketball-mailbag/
+
+**Ace Gallery Founder Is Sentenced to 24 Months in Embezzlement Case**\
+`Douglas Chrismas, who was found guilty last May on three counts of embezzlement from his gallery’s bankruptcy estate, is to report to prison on Feb. 17.`\
+https://nytimes.com/2025/01/13/arts/design/douglas-chrismas-ace-gallery-embezzlement-sentence.html
+
+**Brighton's Rutter, Minteh suffer hamstring injuries in FA Cup win**\
+`Brighton &amp; Hove Albion have been hit by two more injury blows to their front line following Saturday&#8217;s FA Cup win over Norwich City.`\
+https://nytimes.com/athletic/6059393/2025/01/13/brighton-injuries-rutter-minteh/
+
 **Mummies’ Ancient Tattoos Come Under Laser Focus**\
 `With a tool often used in the study of dinosaur fossils, scientists uncovered new details in ornate tattoos on the skin of members of the Chancay culture of Peru.`\
 https://nytimes.com/2025/01/13/science/mummies-tattoos-laser-peru.html
