@@ -1,3 +1,11 @@
+**Eagles defense shuts down Packers in 22-10 wild-card win: Takeaways**\
+`Vic Fangio's No. 1-ranked Eagles defense picked off Jordan Love three times.`\
+https://nytimes.com/athletic/6055981/2025/01/12/eagles-game-score-playoffs-takeaways-wild-card/
+
+**What went wrong in Packers' 22-10 wild-card loss to Eagles: Takeaways**\
+`Green Bay had been hampered by slow starts all year. Sunday was as bad as it got — and at the worst possible time.`\
+https://nytimes.com/athletic/6056473/2025/01/12/packers-game-score-playoffs-takeaways-wild-card/
+
 **How the Red Wings can keep building on their 7-game winning streak**\
 `The Red Wings have won seven straight for the first time since January 2012. `\
 https://nytimes.com/athletic/6056640/2025/01/12/red-wings-win-streak-mclellan-kraken/
