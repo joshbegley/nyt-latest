@@ -1,3 +1,15 @@
+**Mike McCarthy out as Cowboys coach: Source**\
+`The move comes after McCarthy and the Cowboys missed the playoffs for the first time since his inaugural season in 2020.`\
+https://nytimes.com/athletic/6007666/2025/01/13/mike-mccarthy-out-dallas-cowboys-head-coach/
+
+**Man accused of harassing Caitlin Clark arrested, charged with stalking**\
+`If found guilty, Lewis could face up to six years in prison and a fine of up to $10,000.`\
+https://nytimes.com/athletic/6058599/2025/01/13/caitlin-clark-news-stalker-arrested-indiana-fever/
+
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/13/notre-dame-ohio-state-picks-odds-national-championship-game/
+
 **Scoop City: A wild-card weekend filled with firsts**\
 `Six surprises from the early playoff games, plus a brief look at the weather, odds and matchups in the divisional round + Patriots new coach`\
 https://nytimes.com/athletic/6058791/2025/01/13/nfl-wild-card-weekend-takeaways-aj-brown-book-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/13/books/review/new-crime-novels.html
 **An Inauguration Watch Party Aimed at Celebrating Fossil Fuels**\
 `Harold G. Hamm, the founder of the Oklahoma-based Continental Resources, and other oil and gas companies stand to profit from Donald Trump’s energy policies.`\
 https://nytimes.com/2025/01/13/climate/inauguration-plans-harold-hamm-fossil-fuels.html
-
-**Reds games to be broadcast by FanDuel Sports Network in 2025**\
-`The new deal is for this year only and applies to all in-market games not televised on an exclusive national telecast.`\
-https://nytimes.com/athletic/6058617/2025/01/13/reds-tv-broadcast-fanduel-sports-2025/
-
-**News Outlets Batten Down the Hatches for Trump’s Return**\
-`Media organizations are taking unusual steps to prepare for what they fear will be a legal and political onslaught from the new administration.`\
-https://nytimes.com/2025/01/13/business/trump-media-threats.html
-
-**Clemson targeting Penn State's Tom Allen as next defensive coordinator: Sources**\
-`The Nittany Lions ranked No. 7 nationally in total defense this season and came one game short of playing for the national championship. `\
-https://nytimes.com/athletic/6058465/2025/01/13/clemson-tom-allen-defensive-coordinator-penn-state/
 
