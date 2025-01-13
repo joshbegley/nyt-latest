@@ -1,3 +1,7 @@
+**Ohio State vs Notre Dame national championship roundtable: Storylines and matchups to watch**\
+`The Athletic beat writers Pete Sampson (Notre Dame) and Cameron Teague Robinson (Ohio State) break down the title game. `\
+https://nytimes.com/athletic/6057774/2025/01/13/ohio-state-notre-dame-storylines-matchups-roundtable-cfp/
+
 **Map: 6.8-Magnitude Earthquake Strikes Near Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/13/world/asia/quake-tracker-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/us/politics/steve-bannon-elon-musk.html
 **Madrid's back line was woeful against Barca, but they won't sign a defender. Why not?**\
 `A bruising Clasico defeat will not alter Madrid's plans for the January window, despite Ancelotti wanting reinforcements at the back`\
 https://nytimes.com/athletic/6056751/2025/01/13/real-madrid-clasico-defence-transfers/
-
-**Why Arsenal's FA Cup postponement could prove costly in WSL title race**\
-`The new year was supposed to kick off with a bang but, with some FA Cup fourth-round fixtures postponed, it was more like a whimper`\
-https://nytimes.com/athletic/6056657/2025/01/13/wsl-fa-cup-arsenal-manchester-city-chelsea/
 

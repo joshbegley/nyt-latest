@@ -1,3 +1,7 @@
+**Ohio State vs Notre Dame national championship roundtable: Storylines and matchups to watch**\
+`The Athletic beat writers Pete Sampson (Notre Dame) and Cameron Teague Robinson (Ohio State) break down the title game. `\
+https://nytimes.com/athletic/6057774/2025/01/13/ohio-state-notre-dame-storylines-matchups-roundtable-cfp/
+
 **Map: 6.8-Magnitude Earthquake Strikes Near Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/13/world/asia/quake-tracker-japan.html
