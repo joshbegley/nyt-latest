@@ -1,3 +1,11 @@
+**The Texas governor orders flags to full staff for Trump’s inauguration.**\
+`Gov. Greg Abbott said the move was not in conflict with a 30-day tribute for former President Jimmy Carter, but to “celebrate the service of an incoming president.”`\
+https://nytimes.com/live/2025/01/13/us/trump-news/abbott-texas-flags-trump-inauguration
+
+**Leslie Charleson, ‘General Hospital’ Actress, Dies at 79**\
+`Ms. Charleson played Dr. Monica Quartermaine, a cardiologist and family matriarch, on the daytime series for 46 years.`\
+https://nytimes.com/2025/01/13/arts/television/leslie-charleson-dead-general-hospital.html
+
 **How Bad Is the Forecast, and When Will L.A. Firefighters Catch a Break?**\
 `Another prolonged round of gusty Santa Ana winds is expected to begin late Monday.`\
 https://nytimes.com/2025/01/13/weather/la-winds-fire-forecast.html
