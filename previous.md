@@ -1,3 +1,15 @@
+**In search of magic in the FA Cup third round**\
+`Tottenham were taken to extra time by Tamworth and Newcastle briefly went behind to Bromley but upsets were few and far between`\
+https://nytimes.com/athletic/6055920/2025/01/13/fa-cup-third-round-in-search-of-magic/
+
+**Gustavsson's bounce-back not enough as Golden Knights pull away: Wild takeaways**\
+`The Wild fell 4-1 in Vegas, but Gustavsson's play was encouraging and Guerin had an update on Kaprizov's return.`\
+https://nytimes.com/athletic/6056991/2025/01/13/wild-gustavsson-golden-knights-power-play/
+
+**Liverpool's contract-less trio, Jamie Carragher's role, and a battle to shape the narrative**\
+`How Mohamed Salah, Trent Alexander-Arnold and Virgil van Dijk have approached their contract situations`\
+https://nytimes.com/athletic/6044021/2025/01/13/liverpools-contract-less-trio-jamie-carraghers-role-and-a-curious-battle-to-shape-the-narrative/
+
 **NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
 `Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
 https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/12/pageoneplus/quote-of-the-day-enron-announces-retu
 **Eagles' top-ranked defense propels win against Packers, takes Philadelphia to divisional round**\
 `The Eagles will face the winner of Rams-Vikings. `\
 https://nytimes.com/athletic/6056389/2025/01/12/eagles-wild-card-win-defense-nfl-playoffs/
-
-**A Close Brush With Loss for a Community That Knows It Well**\
-`A 2008 fire gutted a mobile home park in the suburb of Sylmar. Last week, the Hurst fire came frighteningly close, and residents still haven’t let their guard down.`\
-https://nytimes.com/2025/01/12/us/sylmar-los-angeles-mobile-homes-fire.html
-
-**China’s Trade Surplus Reaches a Record of Nearly $1 Trillion**\
-`China’s vast exports in 2024 exceeded its imports on a scale seldom seen anywhere except during or immediately after the two world wars.`\
-https://nytimes.com/2025/01/12/business/china-trade-surplus.html
-
-**NFL divisional-round schedule: TV times, channels, sites set**\
-`Only one more wild-card game between the Minnesota Vikings and Los Angeles Rams remains.`\
-https://nytimes.com/athletic/6057049/2025/01/12/nfl-playoffs-schedule-divisional-round/
 

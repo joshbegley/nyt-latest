@@ -1,3 +1,15 @@
+**In search of magic in the FA Cup third round**\
+`Tottenham were taken to extra time by Tamworth and Newcastle briefly went behind to Bromley but upsets were few and far between`\
+https://nytimes.com/athletic/6055920/2025/01/13/fa-cup-third-round-in-search-of-magic/
+
+**Gustavsson's bounce-back not enough as Golden Knights pull away: Wild takeaways**\
+`The Wild fell 4-1 in Vegas, but Gustavsson's play was encouraging and Guerin had an update on Kaprizov's return.`\
+https://nytimes.com/athletic/6056991/2025/01/13/wild-gustavsson-golden-knights-power-play/
+
+**Liverpool's contract-less trio, Jamie Carragher's role, and a battle to shape the narrative**\
+`How Mohamed Salah, Trent Alexander-Arnold and Virgil van Dijk have approached their contract situations`\
+https://nytimes.com/athletic/6044021/2025/01/13/liverpools-contract-less-trio-jamie-carraghers-role-and-a-curious-battle-to-shape-the-narrative/
+
 **NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
 `Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
 https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
