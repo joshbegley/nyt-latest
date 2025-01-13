@@ -1,3 +1,11 @@
+**Penguins' pivotal home stand goes awry with dire standings implications: Observations**\
+`Michael Bunting's absence against Tampa Bay was noticeable after a car accident near the arena Sunday. Sacco said Bunting was uninjured.`\
+https://nytimes.com/athletic/6056988/2025/01/12/penguins-homestand-bunting-accident-lightning/
+
+**Nick Taylor claims dramatic playoff win at Sony Open**\
+`A chip-in eagle on the final hole of regulation play gave him the chance to sniff the trophy. Then he went out and grabbed it.`\
+https://nytimes.com/athletic/6057011/2025/01/12/nick-taylor-sony-open-playoff-golf/
+
 **Most schools in Los Angeles will reopen on Monday.**\
 `Four schools were directly impacted by the Palisades fire and will have to be rebuilt, the schools superintendent announced on Sunday.`\
 https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/most-schools-in-los-angeles-will-reopen-on-monday
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6056858/2025/01/12/cavaliers-pacers-result-win-stre
 **Eagles defense shuts down Packers in 22-10 wild-card win: Takeaways**\
 `Vic Fangio's No. 1-ranked Eagles defense picked off Jordan Love three times.`\
 https://nytimes.com/athletic/6055981/2025/01/12/eagles-game-score-playoffs-takeaways-wild-card/
-
-**What went wrong in Packers' 22-10 wild-card loss to Eagles: Takeaways**\
-`Green Bay had been hampered by slow starts all year. Sunday was as bad as it got — and at the worst possible time.`\
-https://nytimes.com/athletic/6056473/2025/01/12/packers-game-score-playoffs-takeaways-wild-card/
-
-**How the Red Wings can keep building on their 7-game winning streak**\
-`The Red Wings have won seven straight for the first time since January 2012. `\
-https://nytimes.com/athletic/6056640/2025/01/12/red-wings-win-streak-mclellan-kraken/
 
