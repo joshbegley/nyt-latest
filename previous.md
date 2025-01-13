@@ -1,3 +1,7 @@
+**Nuno: 'Nobody' could predict Nottingham Forest transformation**\
+`Nuno Espirito Santo says nobody could have predicted the transformation in fortunes at Nottingham Forest this season as his side prepare to face Premier League leaders Liverpool.`\
+https://nytimes.com/athletic/6058027/2025/01/13/nuno-nottingham-forest-liverpool/
+
 **Oliviero Toscani, Driving Force Behind Provocative Benetton Ads, Dies at 82**\
 `A photographer and art director, he broke the boundaries of advertising in the 1980s and ’90s, embracing activism with images evoking AIDS and racial and sexual diversity.`\
 https://nytimes.com/2025/01/13/business/oliviero-toscani-benetton-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/13/world/asia/quake-tracker-japan.html
 **Gelhardt finalising loan move from Leeds to Hull**\
 `Joe Gelhardt is finalising a loan move from Leeds United to Hull City.`\
 https://nytimes.com/athletic/6057870/2025/01/13/joe-gelhardt-leeds-hull-loan/
-
-**Roki Sasaki, the Blue Jays’ latest big-name pursuit, had meetings in Toronto: Sources**\
-`The Blue Jays have seemingly been linked to every big name — and have landed none of them. Could their Sasaki pursuit prove different?`\
-https://nytimes.com/athletic/6056160/2025/01/13/roki-sasaki-toronto-blue-jays-meeting/
 

@@ -1,3 +1,7 @@
+**Nuno: 'Nobody' could predict Nottingham Forest transformation**\
+`Nuno Espirito Santo says nobody could have predicted the transformation in fortunes at Nottingham Forest this season as his side prepare to face Premier League leaders Liverpool.`\
+https://nytimes.com/athletic/6058027/2025/01/13/nuno-nottingham-forest-liverpool/
+
 **Oliviero Toscani, Driving Force Behind Provocative Benetton Ads, Dies at 82**\
 `A photographer and art director, he broke the boundaries of advertising in the 1980s and ’90s, embracing activism with images evoking AIDS and racial and sexual diversity.`\
 https://nytimes.com/2025/01/13/business/oliviero-toscani-benetton-dead.html
