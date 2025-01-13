@@ -1,3 +1,11 @@
+**The Bounce: The Cavaliers finally lost! Plus, five trades I want by the NBA trade deadline**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6057656/2025/01/13/cavaliers-thunder-kings-heat-warriors-trade-deadline-jimmy-butler-nba-the-bounce/
+
+**Corrections: Jan. 12, 2025**\
+`Corrections that appeared in print on Sunday, Jan. 12, 2025.`\
+https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-12-2025.html
+
 **Corrections: Jan. 11, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 11, 2025.`\
 https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-11-2025.html
