@@ -1,3 +1,7 @@
+**Pope Francis’ Autobiography, ‘Hope,’ Arrives in Bookstores**\
+`The book, to be published on Tuesday, adds details to what is known about the pope’s childhood but falls short when it comes to his later years.`\
+https://nytimes.com/2025/01/13/world/europe/pope-francis-autobiography.html
+
 **Eaton fire victims sue Southern California Edison.**\
 `Altadena residents said in separate lawsuits that the utility’s electrical equipment sparked the fire, which grew to consume 14,000 acres.`\
 https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/eaton-fire-victims-sue-southern-california-edison
