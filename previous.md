@@ -34,7 +34,3 @@ https://nytimes.com/2025/01/13/health/rfk-jr-maha-america-unhealthy.html
 `Dean's injury is a significant setback with multiple ramifications for the Eagles.`\
 https://nytimes.com/athletic/6058649/2025/01/13/nakobe-dean-eagles-injury/
 
-**USMNT Player Tracker: Pulisic needs support, Sargent's return and combative Adams**\
-`Our weekly roundup of the U.S. contingent's contribution to Europe's elite leagues also takes in Noahkai Banks' Bundesliga debut at Augsburg`\
-https://nytimes.com/athletic/6058485/2025/01/13/pulisic-usmnt-milan-adams-sargent-tracker/
-
