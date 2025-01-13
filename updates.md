@@ -1,3 +1,11 @@
+**Stuart Spencer, Political Pioneer Who Helped Propel Reagan’s Rise, Dies at 97**\
+`One of the nation’s first campaign consultants for hire, he advised leading Republicans, including President Gerald Ford, but Reagan was his prized candidate.`\
+https://nytimes.com/2025/01/13/us/elections/stuart-spencer-dead.html
+
+**Biden to Promote His Foreign Policy During Final Week in Office**\
+`The president will give a speech on Monday arguing that he strengthened U.S. alliances during his four years in office and that America’s adversaries are weaker than when he took over.`\
+https://nytimes.com/2025/01/13/us/politics/biden-foreign-policy-speech.html
+
 **AP men's basketball Top 25: Auburn takes over No. 1 spot, Florida rises**\
 `This week's AP poll brings a new No. 1 and notable movement elsewhere.`\
 https://nytimes.com/athletic/6058460/2025/01/13/ap-mens-basketball-top-25-poll-auburn/
