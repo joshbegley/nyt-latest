@@ -1,3 +1,16 @@
+**Roki Sasaki narrows list of finalists to Dodgers, Padres and Blue Jays: Source**\
+`The 23-year-old Japanese righty alerted several pursuing teams that they were no longer in the running. He can sign as early as Jan. 15.`\
+https://nytimes.com/athletic/6059762/2025/01/13/roki-sasaki-finalists-dodgers-padres-blue-jays/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>One more game to go! Buckeyes or Fighting Irish?</p>
+<p>Leave your questions here.`\
+https://nytimes.com/athletic/6059819/2025/01/13/submit-a-question-for-stewart-mandels-college-football-mailbag-288/
+
+**Cubs are informed that Roki Sasaki will not be signing with them: Source**\
+`Chicago's recent success with Japanese players had some believing it could be a sleeper in the process.`\
+https://nytimes.com/athletic/6059774/2025/01/13/chicago-cubs-roki-sasaki-decision-update/
+
 **In a Surprise, 76ers Say They Are Staying in South Philadelphia**\
 `The city had approved a plan for a new arena in a struggling part of downtown. But on Monday, the Sixers said a new venue would be built near their current one instead.`\
 https://nytimes.com/2025/01/13/us/76ers-arena-south-philadelphia.html
@@ -25,16 +38,4 @@ https://nytimes.com/2025/01/13/us/politics/senate-confirmation-trump-cabinet.htm
 **Cease-Fire Deal Between Israel and Hamas Is on the ‘Brink,’ Biden Says**\
 `As President Biden highlighted his foreign policy works in a speech on Monday, he suggested that his administration’s proposal for a cease-fire in Gaza was close to becoming a reality.`\
 https://nytimes.com/video/us/politics/100000009924431/biden-foreign-policy-israel-ceasefire.html
-
-**What the Fire Warnings Mean**\
-`From a red flag to a particularly dangerous situation, here’s how to understand some of the alerts going around.`\
-https://nytimes.com/2025/01/13/weather/what-fire-warnings-mean.html
-
-**New York Could Be the Next State to Limit Students’ Cellphone Use**\
-`Gov. Kathy Hochul on Monday signaled her plan to include related legislation in her budget proposal, saying she hoped to limit distractions during the school day.`\
-https://nytimes.com/2025/01/13/nyregion/new-york-schools-cellphone-ban-hochul.html
-
-**Special Counsel Report on Hunter Biden Denounces President’s Criticism of Case**\
-`The report by the special counsel, David C. Weiss, criticized President Biden for making “baseless accusations” that threatened “the integrity of the justice system as a whole.”`\
-https://nytimes.com/2025/01/13/us/politics/special-counsel-report-hunter-biden.html
 
