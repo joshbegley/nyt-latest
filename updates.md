@@ -1,3 +1,15 @@
+**The Athletic FC: Barca's historic battering of Real Madrid, Arsenal slump continues**\
+`Today in TAFC: Barcelona make history with another thrashing of Real Madrid, Arsenal's slump continues, City's Walker looks to move`\
+https://nytimes.com/athletic/6057478/2025/01/13/barcelona-real-madrid-supercoppa-arsenal-manchester-united/
+
+**The Pulse: Yes, a game-winning doink**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6057151/2025/01/13/commanders-buccaneers-jayden-daniels-doink-the-pulse/
+
+**Villa agree Malen transfer fee with Dortmund**\
+`Aston Villa have agreed a €23million (£19.`\
+https://nytimes.com/athletic/6032915/2025/01/13/aston-villa-donyell-malen-transfer/
+
 **Bucs' resiliency runs out amid costly mistakes in wild-card loss to Commanders**\
 `The Bucs had a chance to win before a collapse, coupled with strong play by Washington QB Jayden Daniels, finished their season.`\
 https://nytimes.com/athletic/6057390/2025/01/13/bucs-mistakes-commanders-wild-card-playoffs/
