@@ -1,3 +1,11 @@
+**How the Ohio State-Notre Dame spread ranks among biggest in national title game history**\
+`Ohio State is favored by more than a touchdown against Notre Dame. Where does that rank among the biggest spreads in title game history?`\
+https://nytimes.com/athletic/6058657/2025/01/13/ohio-state-notre-dame-spread-national-title-game/
+
+**Searches continue for nearly two dozen missing in the fires.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/la-fires-missing-victims
+
 **Review: A Dance That Wonders ‘What Will Happen to Us?’**\
 `Miguel Gutierrez’s “Super Nothing” at New York Live Arts asks how dance can confront the steady stream of life’s troubles.`\
 https://nytimes.com/2025/01/13/arts/dance/review-miguel-gutierrez-super-nothing.html
