@@ -14,8 +14,8 @@ https://nytimes.com/2025/01/13/arts/dance/review-miguel-gutierrez-super-nothing.
 `Early data from the Metropolitan Transportation Authority suggests that traffic has dropped around Manhattan’s core.`\
 https://nytimes.com/2025/01/13/nyregion/congestion-pricing-nyc.html
 
-**Searches continue for nearly two dozen missing in the fires.**\
-`By Claire Moses`\
+**Searches Continue for Nearly Two Dozen Missing in the Fires**\
+`As of Monday morning, the official number of missing persons included 17 in the area of the Eaton fire near Pasadena, and six in the Malibu area near the Palisades fire.`\
 https://nytimes.com/2025/01/13/us/la-fires-missing-victims.html
 
 **Chelsea make enquiry to sign Mathys Tel from Bayern Munich**\

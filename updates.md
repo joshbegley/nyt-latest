@@ -1,3 +1,11 @@
+**Mets notes: Roki Sasaki headed elsewhere, Sean Manaea hopes for Pete Alonso return**\
+`Manaea described the Mets as a “perfect fit" in his first news conference since returning on a 3-year deal. `\
+https://nytimes.com/athletic/6059477/2025/01/13/mets-roki-saskaki-sean-manaea/
+
+**Searches continue for nearly two dozen missing in the fires.**\
+`By Claire Moses`\
+https://nytimes.com/2025/01/13/us/la-fires-missing-victims.html
+
 **How the Ohio State-Notre Dame spread ranks among biggest in national title game history**\
 `Ohio State is favored by more than a touchdown against Notre Dame. Where does that rank among the biggest spreads in title game history?`\
 https://nytimes.com/athletic/6058657/2025/01/13/ohio-state-notre-dame-spread-national-title-game/
