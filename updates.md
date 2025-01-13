@@ -1,3 +1,11 @@
+**After 2 years away, Tyler Ivey embarks on a comeback: 'All roads led back to baseball'**\
+`Physical and mental obstacles led Ivey to quit baseball in May 2022. With newfound passion and mechanics, he's looking for another shot.`\
+https://nytimes.com/athletic/6050949/2025/01/13/astros-tyler-ivey-comeback/
+
+**As Dirk Nowitzki prepares for Amazon broadcasting gig, peers believe he will shine**\
+`Next season, the Mavericks icon will be a studio analyst for a new Prime Video show as Amazon begins its 11-year, $20 billion NBA pact.`\
+https://nytimes.com/athletic/6053637/2025/01/13/dirk-nowitzki-amazon-prime-video-mavericks/
+
 **Nick Kyrgios and Alex De Minaur: Two tennis magnets at opposite poles in Melbourne**\
 `The two preeminent figures in Australian men's tennis could not be more different.`\
 https://nytimes.com/athletic/5541040/2025/01/13/nick-kyrgios-australian-open-alex-de-minaur/
