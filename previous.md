@@ -1,3 +1,7 @@
+**Will it be fair to call New Glenn’s launch a success or failure? Here are some scenarios.**\
+`By Michael Roston and Kenneth Chang`\
+https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/will-it-be-fair-to-call-new-glenns-launch-a-success-or-failure-here-are-some-scenarios
+
 **Rodrigo Gomes' form has changed what Wolves need this transfer window**\
 `A few weeks ago, Wolves looked short of options at wing-back but the emergence of Gomes has changed priorities`\
 https://nytimes.com/athletic/6054572/2025/01/13/wolverhampton-wanderers-fa-cup-rodrigo-gomes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055313/2025/01/13/martin-dubravkas-long-goodbye-fo
 **Leicester cannot afford mistakes this transfer window - as Van Nistelrooy and Rudkin well know**\
 `Premier League survival is at stake - Leicester need signings that can make an impact now as well as in the future`\
 https://nytimes.com/athletic/6054718/2025/01/13/leicester-transfers-rudkin-coulibaly/
-
-**FPL Gameweek 21 preview: Forwards in focus and Isak over Salah for captain?**\
-`Holly Shand breaks down the key talking points ahead of Gameweek 21 in Fantasy Premier League`\
-https://nytimes.com/athletic/6048953/2025/01/13/fantasy-premier-league-gw21-preview-isak-salah/
 
