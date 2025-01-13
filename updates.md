@@ -1,3 +1,7 @@
+**Bowen could return earlier than expected, says Potter**\
+`West Ham United head coach Graham Potter says Jarrod Bowen could return ahead of schedule in his recovery from a fractured foot.`\
+https://nytimes.com/athletic/6058559/2025/01/13/jarrod-bowen-west-ham-injury/
+
 **Rodriguez signs for Club Leon after Rayo Vallecano exit**\
 `James Rodriguez has joined Mexican side Club Leon after leaving Rayo Vallecano earlier this month.`\
 https://nytimes.com/athletic/6043637/2025/01/13/james-rodriguez-transfer/
