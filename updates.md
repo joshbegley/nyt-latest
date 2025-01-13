@@ -1,3 +1,7 @@
+**Biden’s Push to Cancel Student Debt Surpasses 5 Million Borrowers**\
+`With Monday’s authorization and 27 previous ones, the Biden administration has forgiven over $180 billion in student loans, even as its larger policy vision never took root.`\
+https://nytimes.com/2025/01/13/us/politics/biden-student-loan-forgiveness.html
+
 **Submit your questions for the college basketball mailbag**\
 `With college basketball entering the thick of conference play, it&#8217;s the perfect time for a college basketball mailbag.`\
 https://nytimes.com/athletic/6059413/2025/01/13/submit-your-questions-for-the-college-basketball-mailbag/
