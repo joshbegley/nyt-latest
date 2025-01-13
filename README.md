@@ -1,3 +1,7 @@
+**How Bad Is the Forecast, and When Will L.A. Firefighters Catch a Break?**\
+`Another prolonged round of gusty Santa Ana winds is expected to begin late Monday.`\
+https://nytimes.com/2025/01/13/weather/la-winds-fire-forecast.html
+
 **Submit a question for James Boyd’s Indianapolis Colts mailbag**\
 `Indy didn't make major changes, so it's on GM Chris Ballard, coach Shane Steichen and QB Anthony Richardson to turn things around in 2025. `\
 https://nytimes.com/athletic/6059034/2025/01/13/colts-mailbag-submission-chris-ballard-anthony-richardson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058649/2025/01/13/nakobe-dean-eagles-injury/
 **USMNT Player Tracker: Pulisic needs support, Sargent's return and combative Adams**\
 `Our weekly roundup of the U.S. contingent's contribution to Europe's elite leagues also takes in Noahkai Banks' Bundesliga debut at Augsburg`\
 https://nytimes.com/athletic/6058485/2025/01/13/pulisic-usmnt-milan-adams-sargent-tracker/
-
-**Dorrington signs new Spurs contract, joins Aberdeen on loan**\
-`Alfie Dorrington has signed a new contract with Tottenham Hotspur and will spend the rest of the season on loan with Aberdeen.`\
-https://nytimes.com/athletic/6058817/2025/01/13/alfie-dorrington-tottenham-aberdeen-loan/
 
