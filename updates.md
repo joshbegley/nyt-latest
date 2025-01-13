@@ -1,3 +1,7 @@
+**Everton and Liverpool to play rescheduled Merseyside derby on February 12**\
+`The final Merseyside derby at Goodison Park will be played on Wednesday, February 12 after it was postponed because of Storm Darragh.`\
+https://nytimes.com/athletic/5989803/2025/01/13/liverpool-everton-merseyside-derby-when/
+
 **How Much Do You Know About These Controversial Classics?**\
 `Try this short quiz on literature from the first half of the 20th century that drew censorship challenges — and still does.`\
 https://nytimes.com/interactive/2025/01/13/books/review/controversial-books-quiz.html
