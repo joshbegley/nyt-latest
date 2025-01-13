@@ -1,3 +1,19 @@
+**If Shaq Thompson's Panthers career is over, he leaves own legacy among team's top LBs**\
+`After missing most of the past two seasons with injuries, Thompson will be a free agent, and there's no guarantee Carolina will keep him.`\
+https://nytimes.com/athletic/6050452/2025/01/13/panthers-shaq-thompson-linebacker-future-injuries/
+
+**Battles Rage Inside Russia, With Waves of Tanks, Drones and North Koreans**\
+`Ukrainian soldiers are describing fierce clashes as Russian forces try to retake territory in the Kursk region that could be key in eventual cease-fire talks.`\
+https://nytimes.com/2025/01/13/world/europe/russia-ukraine-kursk-north-korea.html
+
+**New Patriots coach Mike Vrabel will have his pick of offensive and defensive coordinators**\
+`Our look at some of the likely candidates to become the Patriots' next offensive and defensive coordinators includes familiar faces.`\
+https://nytimes.com/athletic/6056074/2025/01/13/mike-vrabel-patriots-offensive-defensive-coordinator/
+
+**Projecting Wisconsin's 2025 depth chart: Defense and special teams**\
+`Third-year defensive coordinator Mike Tressel will have many new freshmen and transfers to work with in 2025.`\
+https://nytimes.com/athletic/6056502/2025/01/13/wisconsin-college-football-defense-projection/
+
 **Los Angeles Is Still Burning. Where Are the Leaders?**\
 `At this point, we’d take concepts of a plan.`\
 https://nytimes.com/2025/01/13/opinion/los-angeles-fires.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/13/opinion/alcohol-cancer.html
 **Confirmation Hearings Open in a Test of Trump’s Hold on Senate G.O.P.**\
 `Opposition to prospective nominees, along with time-consuming Senate rules, will slow floor action despite the Republican push for approval of some of President-elect Donald J. Trump’s picks as soon as Jan. 20.`\
 https://nytimes.com/2025/01/13/us/politics/confirmation-hearings-trump-senate-republicans.html
-
-**A New Age of American Interference in Europe**\
-`Elon Musk and MAGA are already disrupting the status quo, and Europe seems ill-prepared.`\
-https://nytimes.com/2025/01/13/world/europe/maga-musk-europe-interference.html
-
-**The Pitched Battles for Partisan Control in State Legislatures**\
-`As state legislatures convene, they face the same political polarization seen in Congress. Some are in near-deadlock.`\
-https://nytimes.com/2025/01/13/us/state-legislatures-polarized-republican-democrat.html
-
-**Some Raw Truths About Raw Milk**\
-`Despite the serious risks of drinking it, a growing movement — including the potential health secretary Robert F. Kennedy Jr. — claims it has benefits. Should we take them more seriously?`\
-https://nytimes.com/2025/01/13/magazine/raw-milk-danger-benefits.html
-
-**The New Wine List, Friendlier and More Succinct**\
-`In an effort to engage their customers with wine, restaurants are trying less intimidating ways to present their selections.`\
-https://nytimes.com/2025/01/13/dining/drinks/wine-lists-restaurants.html
 
