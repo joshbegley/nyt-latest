@@ -1,3 +1,7 @@
+**Try a Little Tenderness**\
+`Stories of people who try a radical approach to solving their problems.`\
+https://nytimes.com/2025/01/12/podcasts/try-a-little-tenderness-this-american-life-nyt-audio.html
+
 **Josh Allen's dominant performance, Bills defensive master class, other observations in wild-card win**\
 `Plus, the offensive line puts on a show and a different role for Matt Milano.`\
 https://nytimes.com/athletic/6056719/2025/01/12/bills-josh-allen-playoffs-wild-card-observations/
