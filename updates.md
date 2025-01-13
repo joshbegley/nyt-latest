@@ -1,3 +1,11 @@
+**Gelhardt finalising loan move from Leeds to Hull**\
+`Joe Gelhardt is finalising a loan move from Leeds United to Hull City.`\
+https://nytimes.com/athletic/6057870/2025/01/13/joe-gelhardt-leeds-hull-loan/
+
+**Roki Sasaki, the Blue Jays’ latest big-name pursuit, had meetings in Toronto: Sources**\
+`The Blue Jays have seemingly been linked to every big name — and have landed none of them. Could their Sasaki pursuit prove different?`\
+https://nytimes.com/athletic/6056160/2025/01/13/roki-sasaki-toronto-blue-jays-meeting/
+
 **What I saw in the PWHL this week: Marie-Philip Poulin's Vancouver return, Western expansion?**\
 `The success of "Takeover Tour" games in Seattle, Vancouver and Denver begs the question: Could the PWHL expand to the West Coast?`\
 https://nytimes.com/athletic/6057156/2025/01/13/pwhl-poulin-vancouver-seattle-expansion-heise/
