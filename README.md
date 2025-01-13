@@ -1,3 +1,11 @@
+**Gelhardt finalising loan move from Leeds to Hull**\
+`Joe Gelhardt is finalising a loan move from Leeds United to Hull City.`\
+https://nytimes.com/athletic/6057870/2025/01/13/joe-gelhardt-leeds-hull-loan/
+
+**Roki Sasaki, the Blue Jays’ latest big-name pursuit, had meetings in Toronto: Sources**\
+`The Blue Jays have seemingly been linked to every big name — and have landed none of them. Could their Sasaki pursuit prove different?`\
+https://nytimes.com/athletic/6056160/2025/01/13/roki-sasaki-toronto-blue-jays-meeting/
+
 **What I saw in the PWHL this week: Marie-Philip Poulin's Vancouver return, Western expansion?**\
 `The success of "Takeover Tour" games in Seattle, Vancouver and Denver begs the question: Could the PWHL expand to the West Coast?`\
 https://nytimes.com/athletic/6057156/2025/01/13/pwhl-poulin-vancouver-seattle-expansion-heise/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6056657/2025/01/13/wsl-fa-cup-arsenal-manchester-ci
 **Submit questions for Aaron Gleeman's mailbag on Twins prospects and the farm system**\
 `Submit your questions about Gleeman's new ranking of the Twins' top 40 prospects or the club's farm system in general. `\
 https://nytimes.com/athletic/6057742/2025/01/13/minnesota-twins-prospects-questions/
-
-**Talks on Gaza Cease-Fire and Hostage Releases: What to Know**\
-`The negotiations appeared to be gaining momentum on Monday as Arab and American mediators pushed for an agreement before President-elect Donald J. Trump takes office.`\
-https://nytimes.com/2025/01/13/world/middleeast/gaza-cease-fire-talks-hostages-israel-hamas.html
-
-**Novak Djokovic enters his brat era in Melbourne**\
-`The rise of Jannik Sinner and Carlos Alcaraz vanquished Djokovic's inevitability at the Australian Open, but he is still the main character.`\
-https://nytimes.com/athletic/6054866/2025/01/13/novak-djokovic-australian-open-tennis/
 
