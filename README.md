@@ -1,7 +1,3 @@
-**Eagles defense shuts down Packers in 22-10 wild-card win: Takeaways**\
-`Vic Fangio's No. 1-ranked Eagles defense picked off Jordan Love three times.`\
-https://nytimes.com/athletic/6055981/2025/01/12/eagles-game-score-playoffs-takeaways-wild-card/
-
 **What went wrong in Packers' 22-10 wild-card loss to Eagles: Takeaways**\
 `Green Bay had been hampered by slow starts all year. Sunday was as bad as it got — and at the worst possible time.`\
 https://nytimes.com/athletic/6056473/2025/01/12/packers-game-score-playoffs-takeaways-wild-card/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6056710/2025/01/12/chargers-playoff-loss-khalil-mac
 **In L.A., the Heartache of Being Home**\
 `Tejal Rao, a Times food critic who lives in Los Angeles, explores the fleeting nature of safety after the fires.`\
 https://nytimes.com/2025/01/12/us/los-angeles-wildfires-heartache.html
+
+**Meghan, Duchess of Sussex, Delays Premiere of Netflix Show Because of Wildfires**\
+`She asked the streaming service to push back the release of her new series, “With Love, Meghan,” which pays tribute to the beauty of Southern California.`\
+https://nytimes.com/2025/01/12/arts/television/meghan-markle-netflix-delay-la-fires.html
 
