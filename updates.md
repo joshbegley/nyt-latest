@@ -1,3 +1,7 @@
+**Ducks midseason report card: Are they truly making progress?**\
+`Assigning a grade to each player at the midpoint of a somewhat confusing season.`\
+https://nytimes.com/athletic/6058977/2025/01/13/anaheim-ducks-analysis-grades-players/
+
 **The Texas governor orders flags to full staff for Trump’s inauguration.**\
 `Gov. Greg Abbott said the move was not in conflict with a 30-day tribute for former President Jimmy Carter, but to “celebrate the service of an incoming president.”`\
 https://nytimes.com/live/2025/01/13/us/trump-news/abbott-texas-flags-trump-inauguration

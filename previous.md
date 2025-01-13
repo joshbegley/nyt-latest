@@ -1,3 +1,7 @@
+**Ducks midseason report card: Are they truly making progress?**\
+`Assigning a grade to each player at the midpoint of a somewhat confusing season.`\
+https://nytimes.com/athletic/6058977/2025/01/13/anaheim-ducks-analysis-grades-players/
+
 **The Texas governor orders flags to full staff for Trump’s inauguration.**\
 `Gov. Greg Abbott said the move was not in conflict with a 30-day tribute for former President Jimmy Carter, but to “celebrate the service of an incoming president.”`\
 https://nytimes.com/live/2025/01/13/us/trump-news/abbott-texas-flags-trump-inauguration
@@ -29,8 +33,4 @@ https://nytimes.com/2025/01/13/us/politics/rachel-maddow-msnbc-trump.html
 **Kraft: Vrabel brings 'clear and focused strategy' to Patriots**\
 `The Patriots turned to Vrabel after their quick coaching search wrapped up just seven days after the team fired Jerod Mayo.`\
 https://nytimes.com/athletic/6058827/2025/01/13/patriots-mike-vrabel-head-coach/
-
-**Judge Allows Release of Half of Special Counsel’s Report on Trump Cases**\
-`Judge Aileen M. Cannon, who dismissed the classified documents case, blocked a volume about that matter from being shown to Congress but allowed the release of a volume about the election case.`\
-https://nytimes.com/2025/01/13/us/politics/trump-jan-6-report-aileen-cannon-jack-smith.html
 
