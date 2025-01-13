@@ -1,3 +1,19 @@
+**Melania Trump Says She Plans to Be at White House Full Time**\
+`Mrs. Trump did not immediately move in to the White House when her husband was inaugurated in 2017, but she said the second stay was going to be more routine. “I already packed,” she told Fox News.`\
+https://nytimes.com/2025/01/13/us/politics/melania-trump-white-house.html
+
+**Australian Open day 2: Tennis players pay tribute to Los Angeles after wildfires**\
+`Catch up on the stories behind the stories on day two in Melbourne.`\
+https://nytimes.com/athletic/6057007/2025/01/13/australian-open-day-2-recap-la-wildfire-tributes-gauff-swiatek-vekic/
+
+**Tyson Fury says he is retiring from boxing**\
+`Tyson Fury has today announced his retirement from boxing.`\
+https://nytimes.com/athletic/6058044/2025/01/13/tyson-fury-retires-boxing-joshua/
+
+**Trump’s Reckless Greenland Comments Are Not a Joke**\
+`China and Russia are listening.`\
+https://nytimes.com/2025/01/13/opinion/trump-greenland-china-taiwan.html
+
 **The Bounce: The Cavaliers finally lost! Plus, five trades I want by the NBA trade deadline**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6057656/2025/01/13/cavaliers-thunder-kings-heat-warriors-trade-deadline-jimmy-butler-nba-the-bounce/
