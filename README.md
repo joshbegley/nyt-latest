@@ -1,3 +1,7 @@
+**Fires Continue to Rage Across Southern California**\
+`The wildfires have become some of the most destructive blazes in California history, razing neighborhoods and forcing thousands to evacuate their homes.`\
+https://nytimes.com/video/us/100000009924160/southern-california-wildfires.html
+
 **‘They Barricaded Everything’: Living Inside an Evacuation Zone**\
 `Anthony Herrera never evacuated his Altadena home during the Eaton fire last week, and said he was told by the Los Angeles Sheriff’s Department that if he leaves now, he can’t return.`\
 https://nytimes.com/video/world/americas/100000009923203/eaton-fire-altadena-residents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/science/space/quasi-moon-radiolab-iau.html
 **Los Angeles teams, Fanatics donate $11 million to wildfire victims**\
 `The money will go to organizations like the American Red Cross, the Los Angeles Fire Department Foundation, World Central Kitchen and more.`\
 https://nytimes.com/athletic/6059423/2025/01/13/los-angeles-sports-teams-fanatics-donate-wildfire-victims/
-
-**Greenland to Trump: We’re Not for Sale but Let’s Talk Business**\
-`The country’s prime minister said that while Greenlanders do not want to become Americans, “the reality is we are going to work with the U.S. — yesterday, today and tomorrow.”`\
-https://nytimes.com/2025/01/13/world/europe/greenland-trump-business.html
 
