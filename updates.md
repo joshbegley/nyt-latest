@@ -1,3 +1,7 @@
+**Veiga likely to leave Chelsea in January**\
+`Renato Veiga is likely to leave Chelsea this month with a number of clubs looking to sign the Portugal international.`\
+https://nytimes.com/athletic/6057471/2025/01/13/renato-veiga-chelsea-january-transfer/
+
 **Brighton's March wants to play for next 'five or six years' after knee issues**\
 `Brighton &amp; Hove Albion servant Solly March wants to extend his career for &#8220;quite a few years&#8221; after a goalscoring return from serious knee damage.`\
 https://nytimes.com/athletic/6055336/2025/01/13/solly-march-brighton-return/
