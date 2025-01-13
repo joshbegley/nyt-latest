@@ -1,3 +1,11 @@
+**DeMar DeRozan, now with the Kings, embraces warm welcome in return to Chicago**\
+`“I like him more on our side, in our uniform,” Lonzo Ball said of DeRozan. “But he still looks pretty good in the black and purple.”`\
+https://nytimes.com/athletic/6057016/2025/01/13/demar-derozan-bulls-kings-nba/
+
+**Kyrgios out of Australian Open after playing through injury in Melbourne**\
+`Nick Kyrgios is out of the Australian Open in the first round after playing through clear discomfort in a three-set defeat to Jacob Fearnley of the U.`\
+https://nytimes.com/athletic/6050659/2025/01/13/nick-kyrgios-australian-open-out-injury/
+
 **Troops Captured by Ukraine Provide Rare Glimpse Into North Korea’s Military**\
 `Ukraine’s president released a video of the two soldiers being interrogated, revealing they knew little about the war they were sent to fight in.`\
 https://nytimes.com/2025/01/13/world/asia/north-korea-ukraine-russia-troops.html
