@@ -1,3 +1,11 @@
+**Cleveland-Cliffs Signals a Possible New Bid for U.S. Steel**\
+`The company’s renewed interest comes after the Biden administration blocked Nippon Steel from acquiring the onetime American powerhouse.`\
+https://nytimes.com/2025/01/13/business/economy/us-steel-cleveland-cliffs-nippon.html
+
+**Why AHL IceHogs scratched Levshunov, Ludwinski**\
+`The two Blackhawks prospects sat out Sunday's Rockford IceHogs' game, but it wasn't due to injury.`\
+https://nytimes.com/athletic/6059231/2025/01/13/blackhawks-prospects-levshunov-ludwinski-healthy-scratch/
+
 **LeBrun: Jason Robertson, Wyatt Johnston turning 4 Nations snubs into NHL, Olympic motivation**\
 `Both Dallas Stars forwards got off to slow starts this season but have been back to their usual high levels since roster announcements.`\
 https://nytimes.com/athletic/6059105/2025/01/13/jason-robertson-wyatt-johnston-4-nations-snubs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/13/nyregion/bronx-police-shooting.html
 **Penn State RB duo Nick Singleton, Kaytron Allen to return for 2025 season**\
 `Singleton and Allen each eclipsed 1,000 yards rushing for Penn State during the 2024 season.`\
 https://nytimes.com/athletic/6059341/2025/01/13/penn-state-college-football-nick-singleton-kaytron-allen-return/
-
-**Packers' Keisean Nixon on kickoff rules, returning: 'I’m kind of over it'**\
-`Nixon, a two-time All-Pro returner, saw fewer opportunities with the new kickoff rules and would like to exclusively play cornerback.`\
-https://nytimes.com/athletic/6059243/2025/01/13/keisean-nixon-packers-kickoff-returns/
-
-**Biden Aides Warned Putin as Russia’s Shadow War Threatened Air Disaster**\
-`The White House scrambled to get a message to President Vladimir V. Putin of Russia last year after U.S. intelligence agencies said a Russian military unit was preparing to send explosive packages on cargo planes.`\
-https://nytimes.com/2025/01/13/us/politics/russia-putin-airplane-shadow-war.html
 
