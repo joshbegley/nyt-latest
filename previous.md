@@ -1,3 +1,7 @@
+**Map: 6.8-Magnitude Earthquake Strikes Near Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/13/world/asia/quake-tracker-japan.html
+
 **Gelhardt finalising loan move from Leeds to Hull**\
 `Joe Gelhardt is finalising a loan move from Leeds United to Hull City.`\
 https://nytimes.com/athletic/6057870/2025/01/13/joe-gelhardt-leeds-hull-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056751/2025/01/13/real-madrid-clasico-defence-tran
 **Why Arsenal's FA Cup postponement could prove costly in WSL title race**\
 `The new year was supposed to kick off with a bang but, with some FA Cup fourth-round fixtures postponed, it was more like a whimper`\
 https://nytimes.com/athletic/6056657/2025/01/13/wsl-fa-cup-arsenal-manchester-city-chelsea/
-
-**Submit questions for Aaron Gleeman's mailbag on Twins prospects and the farm system**\
-`Submit your questions about Gleeman's new ranking of the Twins' top 40 prospects or the club's farm system in general. `\
-https://nytimes.com/athletic/6057742/2025/01/13/minnesota-twins-prospects-questions/
 

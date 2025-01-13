@@ -1,3 +1,7 @@
+**Map: 6.8-Magnitude Earthquake Strikes Near Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/13/world/asia/quake-tracker-japan.html
+
 **Gelhardt finalising loan move from Leeds to Hull**\
 `Joe Gelhardt is finalising a loan move from Leeds United to Hull City.`\
 https://nytimes.com/athletic/6057870/2025/01/13/joe-gelhardt-leeds-hull-loan/
