@@ -1,11 +1,3 @@
-**How the Red Wings can keep building on their 7-game winning streak**\
-`The Red Wings have won seven straight for the first time since January 2012. `\
-https://nytimes.com/athletic/6056640/2025/01/12/red-wings-win-streak-mclellan-kraken/
-
-**'What everyone’s been waiting for': Bills finally can focus on Ravens revenge**\
-`Their last meeting did not end well for the Bills.`\
-https://nytimes.com/athletic/6056769/2025/01/12/bills-playoffs-josh-allen-lamar-jackson-ravens/
-
 **Try a Little Tenderness**\
 `Stories of people who try a radical approach to solving their problems.`\
 https://nytimes.com/2025/01/12/podcasts/try-a-little-tenderness-this-american-life-nyt-audio.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/01/12/arts/television/meghan-markle-netflix-delay-la-fi
 **Wrexham could have new route to Europe next season after new plans revealed**\
 `Proposed shake-up to Welsh football could happen by 2025-26`\
 https://nytimes.com/athletic/6055411/2025/01/12/wrexham-could-have-new-route-to-europe-next-season-after-new-plans-revealed/
+
+**Texas tackle Kelvin Banks declares for NFL draft**\
+`Banks was widely expected to enter the draft after this season and is projected as a first-round pick.`\
+https://nytimes.com/athletic/6056615/2025/01/12/kelvin-banks-nfl-draft-texas-football/
+
+**‘We are definitely a family church.’ Friendship Pasadena Church offers tissues, masks and hugs.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/we-are-definitely-a-family-church-friendship-pasadena-church-offers-tissues-masks-and-hugs
 
