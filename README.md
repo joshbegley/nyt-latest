@@ -1,3 +1,7 @@
+**Trump Supporters Go All In for Pete Hegseth With Money and Coordination**\
+`Conservative organizations are targeting Republican senators, saying that they will pay a price if they do not back the president-elect’s choice for defense secretary.`\
+https://nytimes.com/2025/01/13/us/politics/trump-supporters-go-all-in-for-pete-hegseth-with-money-and-coordination.html
+
 **Texas Man Is Charged With Stalking Caitlin Clark**\
 `Prosecutors said the man had sent “sexually violent” messages to the Indiana Fever star and had traveled to Indianapolis to be closer to her.`\
 https://nytimes.com/2025/01/13/us/caitlin-clark-stalker-arrested.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058460/2025/01/13/ap-mens-basketball-top-25-poll-a
 **Ducks midseason report card: Are they truly making progress?**\
 `Assigning a grade to each player at the midpoint of a somewhat confusing season.`\
 https://nytimes.com/athletic/6058977/2025/01/13/anaheim-ducks-analysis-grades-players/
-
-**The Texas governor orders flags to full staff for Trump’s inauguration.**\
-`Gov. Greg Abbott said the move was not in conflict with a 30-day tribute for former President Jimmy Carter, but to “celebrate the service of an incoming president.”`\
-https://nytimes.com/live/2025/01/13/us/trump-news/abbott-texas-flags-trump-inauguration
 
