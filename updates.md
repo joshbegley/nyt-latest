@@ -1,3 +1,15 @@
+**Oliviero Toscani, Driving Force Behind Provocative Benetton Ads, Dies at 82**\
+`A photographer and art director, he broke the boundaries of advertising in the 1980s and ’90s, embracing activism with images evoking AIDS and racial and sexual diversity.`\
+https://nytimes.com/2025/01/13/business/oliviero-toscani-benetton-dead.html
+
+**Valencia sign Bournemouth's Max Aarons on loan**\
+`Valencia have signed defender Max Aarons on a loan deal from Bournemouth for the remainder of 2024-25.`\
+https://nytimes.com/athletic/6054109/2025/01/13/bournemouth-transfers-max-aarons-valencia/
+
+**Canadiens weekly notebook: Nick Suzuki the bus driver, the team's teenage years and more**\
+`Also in this week's notebook, Stars coach Pete DeBoer offers thoughts on Martin St. Louis, and a special return visit to Montreal.`\
+https://nytimes.com/athletic/6057439/2025/01/13/canadiens-nick-suzuki-martin-st-louis-pete-deboer/
+
 **Public Schools in Montclair, N.J., Are Closed as ‘Precautionary Measure’**\
 `Local police are investigating a “security concern” that led to the closure, the school district said. The mayor said there was “no immediate threat.”`\
 https://nytimes.com/2025/01/13/nyregion/montclair-nj-schools-closed-threat.html
