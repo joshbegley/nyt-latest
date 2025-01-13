@@ -1,3 +1,11 @@
+**Jake Ciely’s 2024 fantasy football projections review: Nailing Kyler Murray, big miss on Baker Mayfield**\
+`Jake Ciely reviews his fantasy football QB projections for 2024, highlighting his biggest hits and misses and gleaning the lessons learned. `\
+https://nytimes.com/athletic/6055869/2025/01/13/jake-cielys-2024-fantasy-football-projections-review-jayden-daniels-baker-mayfield/
+
+**As L.A. Fires Rage, Pointing Fingers Rather Than Facing Facts**\
+`Readers urge public officials to take action on climate change rather than casting blame. Also: Teflon Don; the Gulf of America; treating schizophrenia.`\
+https://nytimes.com/2025/01/13/opinion/los-angeles-fires-blame.html
+
 **The reason Ruben Amorim's Man Utd are better against top sides is tactical, not psychological**\
 `Displays like the one at the Emirates won’t win style points, and probably won’t win league titles — but might just win United a cup`\
 https://nytimes.com/athletic/6057590/2025/01/13/manchester-united-amorim-tactics-top-sides/

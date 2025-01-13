@@ -1,3 +1,7 @@
+**Owners of 76ers, Flyers announce plans to build new arena in Philadelphia**\
+`The new facility, which will be home to both NHL and NBA clubs, is set to open in 2031`\
+https://nytimes.com/athletic/6058677/2025/01/13/sixers-flyers-new-arena-plans/
+
 **Jake Ciely’s 2024 fantasy football projections review: Nailing Kyler Murray, big miss on Baker Mayfield**\
 `Jake Ciely reviews his fantasy football QB projections for 2024, highlighting his biggest hits and misses and gleaning the lessons learned. `\
 https://nytimes.com/athletic/6055869/2025/01/13/jake-cielys-2024-fantasy-football-projections-review-jayden-daniels-baker-mayfield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058465/2025/01/13/clemson-tom-allen-defensive-coor
 **Docs show Jontay Porter's texts to alleged co-conspirators in betting case**\
 `A complaint unsealed Monday includes messages Porter sent to alleged co-conspirators sharing information about his game status last year.`\
 https://nytimes.com/athletic/6058110/2025/01/13/jontay-porter-texts-betting-scandal/
-
-**Hollinger's Week That Was: Wemby leading an NBA revolution; scouting Kings' Devin Carter**\
-`As the game has opened up, it’s been easier for younger players to make more of an impact defensively. And Wemby is ahead of the pack.`\
-https://nytimes.com/athletic/6056857/2025/01/13/victor-wembanyama-defense-devin-carter-spurs/
 

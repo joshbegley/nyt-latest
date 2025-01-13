@@ -1,3 +1,11 @@
+**Jake Ciely’s 2024 fantasy football projections review: Nailing Kyler Murray, big miss on Baker Mayfield**\
+`Jake Ciely reviews his fantasy football QB projections for 2024, highlighting his biggest hits and misses and gleaning the lessons learned. `\
+https://nytimes.com/athletic/6055869/2025/01/13/jake-cielys-2024-fantasy-football-projections-review-jayden-daniels-baker-mayfield/
+
+**As L.A. Fires Rage, Pointing Fingers Rather Than Facing Facts**\
+`Readers urge public officials to take action on climate change rather than casting blame. Also: Teflon Don; the Gulf of America; treating schizophrenia.`\
+https://nytimes.com/2025/01/13/opinion/los-angeles-fires-blame.html
+
 **The reason Ruben Amorim's Man Utd are better against top sides is tactical, not psychological**\
 `Displays like the one at the Emirates won’t win style points, and probably won’t win league titles — but might just win United a cup`\
 https://nytimes.com/athletic/6057590/2025/01/13/manchester-united-amorim-tactics-top-sides/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6058110/2025/01/13/jontay-porter-texts-betting-scan
 **Hollinger's Week That Was: Wemby leading an NBA revolution; scouting Kings' Devin Carter**\
 `As the game has opened up, it’s been easier for younger players to make more of an impact defensively. And Wemby is ahead of the pack.`\
 https://nytimes.com/athletic/6056857/2025/01/13/victor-wembanyama-defense-devin-carter-spurs/
-
-**Submit a question for Dan Duggan’s New York Giants mailbag**\
-`The Giants are running it back with Joe Schoen and Brian Daboll. Submit your questions for Dan Duggan to answer.`\
-https://nytimes.com/athletic/6058510/2025/01/13/new-york-giants-mailbag-submission-brian-daboll-joe-schoen/
-
-**Maddy Cusack: Jonathan Morgan to give evidence at inquest into former Sheffield United player's death**\
-`Jonathan Morgan, the manager at the centre of the Football Association’s investigation into the Maddy Cusack tragedy, has agreed to give evidence at an inquest into her death.`\
-https://nytimes.com/athletic/6057838/2025/01/13/jonathan-morgan-maddy-cusack-inquest/
 
