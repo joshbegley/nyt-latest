@@ -1,3 +1,15 @@
+**Elon Musk Is Expected to Use Office Space in the White House Complex**\
+`The location suggests that Mr. Musk, who owns companies with billions of dollars in contracts with the federal government, will continue to have remarkable access to President-elect Donald J. Trump.`\
+https://nytimes.com/2025/01/13/us/politics/elon-musk-white-house-trump.html
+
+**Democrats Will Regret Helping to Pass the Laken Riley Act**\
+`This cruel and sweeping bill could upend our immigration system.`\
+https://nytimes.com/2025/01/13/opinion/democrats-laken-riley-act.html
+
+**Robinhood Is Fined $45 Million Over a New Set of Securities Violations**\
+`The upstart brokerage agreed to pay the Securities and Exchange Commission for failing to protect sensitive customer data, among other infractions.`\
+https://nytimes.com/2025/01/13/business/robinhood-sec-fine.html
+
 **L.A. Wildfire Evacuees Scramble to Find Sleep in Cars, Shelters and Hotels**\
 `More than 90,000 people under evacuation orders are making do however they can.`\
 https://nytimes.com/2025/01/13/us/la-fires-evacuations-housing-shelter.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6059819/2025/01/13/submit-a-question-for-stewart-ma
 **Cubs are informed that Roki Sasaki will not be signing with them: Source**\
 `Chicago's recent success with Japanese players had some believing it could be a sleeper in the process.`\
 https://nytimes.com/athletic/6059774/2025/01/13/chicago-cubs-roki-sasaki-decision-update/
-
-**In a Surprise, 76ers Say They Are Staying in South Philadelphia**\
-`The city had approved a plan for a new arena in a struggling part of downtown. But on Monday, the Sixers said a new venue would be built near their current one instead.`\
-https://nytimes.com/2025/01/13/us/76ers-arena-south-philadelphia.html
-
-**Mike Vrabel isn't selling any Patriots glory. He's playing defense against it**\
-`Vrabel wasn't interested in the good old days on Monday. “The banners that hang in our stadium, they’re not going to help us win,” he said.`\
-https://nytimes.com/athletic/6059680/2025/01/13/mike-vrabel-patriots-head-coach/
-
-**Eaton fire victims sue Southern California Edison.**\
-`Altadena residents said in separate lawsuits that the utility’s electrical equipment sparked the fire, which grew to consume 14,000 acres.`\
-https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/eaton-fire-victims-sue-southern-california-edison
 
