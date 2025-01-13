@@ -1,3 +1,15 @@
+**Searches continue for nearly two dozen missing in the fires.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/searches-continue-for-nearly-two-dozen-missing-in-the-fires
+
+**Chelsea make enquiry to sign Mathys Tel from Bayern Munich**\
+`Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel.`\
+https://nytimes.com/athletic/6059453/2025/01/13/mathys-tel-chelsea/
+
+**Supreme Court Clears a Path for Climate Lawsuits to Proceed**\
+`The high court declined to hear a challenge to a major case in which Honolulu is suing energy companies over climate change.`\
+https://nytimes.com/2025/01/13/climate/supreme-court-hawaii-climate-lawsuit.html
+
 **Tuesday Briefing: Death Toll Rises in L.A. Fires**\
 `Plus, what’s going on with TV credits?`\
 https://nytimes.com/2025/01/13/briefing/los-angeles-fires-south-korea-yoon-ukraine-russia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/13/science/mummies-tattoos-laser-peru.html
 **Cleveland-Cliffs Signals a Possible New Bid for U.S. Steel**\
 `The company’s renewed interest comes after the Biden administration blocked Nippon Steel from acquiring the onetime American powerhouse.`\
 https://nytimes.com/2025/01/13/business/economy/us-steel-cleveland-cliffs-nippon.html
-
-**Why AHL IceHogs scratched Levshunov, Ludwinski**\
-`The two Blackhawks prospects sat out Sunday's Rockford IceHogs' game, but it wasn't due to injury.`\
-https://nytimes.com/athletic/6059231/2025/01/13/blackhawks-prospects-levshunov-ludwinski-healthy-scratch/
-
-**LeBrun: Jason Robertson, Wyatt Johnston turning 4 Nations snubs into NHL, Olympic motivation**\
-`Both Dallas Stars forwards got off to slow starts this season but have been back to their usual high levels since roster announcements.`\
-https://nytimes.com/athletic/6059105/2025/01/13/jason-robertson-wyatt-johnston-4-nations-snubs/
-
-**For Los Angeles, Fires Ramp Up Difficulty of Hosting 2028 Summer Games**\
-`Rebuilding areas ravaged by wildfires will present a daunting challenge, but the flip side could be the “compelling image of a city emerging from the ashes.”`\
-https://nytimes.com/2025/01/13/us/politics/2028-olympics-host-los-angeles-fire.html
 

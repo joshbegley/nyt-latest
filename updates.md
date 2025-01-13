@@ -1,3 +1,15 @@
+**Searches continue for nearly two dozen missing in the fires.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/searches-continue-for-nearly-two-dozen-missing-in-the-fires
+
+**Chelsea make enquiry to sign Mathys Tel from Bayern Munich**\
+`Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel.`\
+https://nytimes.com/athletic/6059453/2025/01/13/mathys-tel-chelsea/
+
+**Supreme Court Clears a Path for Climate Lawsuits to Proceed**\
+`The high court declined to hear a challenge to a major case in which Honolulu is suing energy companies over climate change.`\
+https://nytimes.com/2025/01/13/climate/supreme-court-hawaii-climate-lawsuit.html
+
 **Tuesday Briefing: Death Toll Rises in L.A. Fires**\
 `Plus, what’s going on with TV credits?`\
 https://nytimes.com/2025/01/13/briefing/los-angeles-fires-south-korea-yoon-ukraine-russia.html
