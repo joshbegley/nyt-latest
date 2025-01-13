@@ -1,3 +1,11 @@
+**The Bounce: The Cavaliers finally lost! Plus, five trades I want by the NBA trade deadline**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6057656/2025/01/13/cavaliers-thunder-kings-heat-warriors-trade-deadline-jimmy-butler-nba-the-bounce/
+
+**Corrections: Jan. 12, 2025**\
+`Corrections that appeared in print on Sunday, Jan. 12, 2025.`\
+https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-12-2025.html
+
 **Corrections: Jan. 11, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 11, 2025.`\
 https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-11-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6054109/2025/01/13/bournemouth-transfers-max-aarons
 **Canadiens weekly notebook: Nick Suzuki the bus driver, the team's teenage years and more**\
 `Also in this week's notebook, Stars coach Pete DeBoer offers thoughts on Martin St. Louis, and a special return visit to Montreal.`\
 https://nytimes.com/athletic/6057439/2025/01/13/canadiens-nick-suzuki-martin-st-louis-pete-deboer/
-
-**Public Schools in Montclair, N.J., Are Closed as ‘Precautionary Measure’**\
-`The school district said a potential threat had been “neutralized,” hours after announcing that schools would be closed on Monday and that the police were investigating.`\
-https://nytimes.com/2025/01/13/nyregion/montclair-nj-schools-closed-threat.html
-
-**Bucks crushed by Knicks as record drops to 0-8 against Eastern Conference's top 3**\
-`"We've gotta get our stuff together, simple as that," Giannis Antetokounmpo said after another blowout loss in New York this season.`\
-https://nytimes.com/athletic/6056733/2025/01/13/bucks-knicks-giannis-antetokounmpo/
 
