@@ -1,3 +1,7 @@
+**How Bad Is the Forecast, and When Will L.A. Firefighters Catch a Break?**\
+`Another prolonged round of gusty Santa Ana winds is expected to begin late Monday.`\
+https://nytimes.com/2025/01/13/weather/la-winds-fire-forecast.html
+
 **Oscar Nominations Are Postponed Because of Wildfires**\
 `To give affected members more time, the academy extended the voting through Friday and will unveil the results Jan. 23. The nominees luncheon was canceled.`\
 https://nytimes.com/2025/01/13/movies/oscar-nominations-fires.html
