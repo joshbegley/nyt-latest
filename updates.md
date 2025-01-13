@@ -1,3 +1,11 @@
+**Giants told Roki Sasaki will not sign with them**\
+`The Giants made an in-person pitch to Sasaki in Los Angeles but were told he's narrowed his list of potential teams and they aren't on it.`\
+https://nytimes.com/athletic/6059177/2025/01/13/sf-giants-roki-sasaki-wont-sign/
+
+**The Book So Helpful That the Eagles’ A.J. Brown Read it During a Game**\
+`What made the N.F.L. star open “Inner Excellence” by Jim Murphy as the action continued? “I like to read.”`\
+https://nytimes.com/2025/01/13/sports/football/aj-brown-reading-inner-excellence-book-murphy.html
+
 **The Book So Helpful That the Eagles’ A.J. Brown Read it During a Game**\
 `What made the N.F.L. star open it up as the action continued? “I like to read.”`\
 https://nytimes.com/2025/01/13/sports/football/aj-brown-reading-inner-excellence-book-murphy.html
