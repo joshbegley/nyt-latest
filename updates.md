@@ -1,3 +1,7 @@
+**Nick Kyrgios and Alex De Minaur: Two tennis magnets at opposite poles in Melbourne**\
+`The two preeminent figures in Australian men's tennis could not be more different.`\
+https://nytimes.com/athletic/5541040/2025/01/13/nick-kyrgios-australian-open-alex-de-minaur/
+
 **Nick Kyrgios says Australian Open loss may have been his last singles in Melbourne**\
 `Nick Kyrgios is out of the Australian Open in the first round after playing through clear discomfort in a three-set defeat to Jacob Fearnley of the U.`\
 https://nytimes.com/athletic/6050659/2025/01/13/nick-kyrgios-australian-open-out-injury/

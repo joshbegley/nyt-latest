@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6050659/2025/01/13/nick-kyrgios-australian-open-out
 `The world’s richest person has stoked outrage about the devastating wildfires and efforts to tackle them. On Sunday, he said he would help provide internet access to areas in need in Los Angeles.`\
 https://nytimes.com/2025/01/13/us/elon-musk-la-fires-starlink.html
 
-**Kyrgios and De Minaur: Melbourne rises for its favorite tennis sons, and polar opposites**\
-`The two preeminent figures in Australian men's tennis could not be more different`\
+**Nick Kyrgios and Alex De Minaur: Two tennis magnets at opposite poles in Melbourne**\
+`The two preeminent figures in Australian men's tennis could not be more different.`\
 https://nytimes.com/athletic/5541040/2025/01/13/nick-kyrgios-australian-open-alex-de-minaur/
 
 **Indiana is at a crossroads as familiar pattern continues under Mike Woodson**\
