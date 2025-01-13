@@ -1,3 +1,11 @@
+**Review: A Dance That Wonders ‘What Will Happen to Us?’**\
+`Miguel Gutierrez’s “Super Nothing” at New York Live Arts asks how dance can confront the steady stream of life’s troubles.`\
+https://nytimes.com/2025/01/13/arts/dance/review-miguel-gutierrez-super-nothing.html
+
+**Less Traffic, Faster Buses: Congestion Pricing’s First Week**\
+`Early data from the Metropolitan Transportation Authority suggests that traffic has dropped around Manhattan’s core.`\
+https://nytimes.com/2025/01/13/nyregion/congestion-pricing-nyc.html
+
 **Searches continue for nearly two dozen missing in the fires.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/searches-continue-for-nearly-two-dozen-missing-in-the-fires
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/13/arts/design/douglas-chrismas-ace-gallery-embezzle
 **Brighton's Rutter, Minteh suffer injuries in FA Cup win**\
 `Brighton &amp; Hove Albion have been hit by two more injury blows to their front line following Saturday&#8217;s FA Cup win over Norwich City.`\
 https://nytimes.com/athletic/6059393/2025/01/13/brighton-injuries-rutter-minteh/
-
-**Mummies’ Ancient Tattoos Come Under Laser Focus**\
-`With a tool often used in the study of dinosaur fossils, scientists uncovered new details in ornate tattoos on the skin of members of the Chancay culture of Peru.`\
-https://nytimes.com/2025/01/13/science/mummies-tattoos-laser-peru.html
-
-**Cleveland-Cliffs Signals a Possible New Bid for U.S. Steel**\
-`The company’s renewed interest comes after the Biden administration blocked Nippon Steel from acquiring the onetime American powerhouse.`\
-https://nytimes.com/2025/01/13/business/economy/us-steel-cleveland-cliffs-nippon.html
 
