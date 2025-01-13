@@ -1,3 +1,15 @@
+**The Athletic FC: Barca's historic battering of Real Madrid, Arsenal slump continues**\
+`Today in TAFC: Barcelona make history with another thrashing of Real Madrid, Arsenal's slump continues, City's Walker looks to move`\
+https://nytimes.com/athletic/6057478/2025/01/13/barcelona-real-madrid-supercoppa-arsenal-manchester-united/
+
+**The Pulse: Yes, a game-winning doink**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6057151/2025/01/13/commanders-buccaneers-jayden-daniels-doink-the-pulse/
+
+**Villa agree Malen transfer fee with Dortmund**\
+`Aston Villa have agreed a €23million (£19.`\
+https://nytimes.com/athletic/6032915/2025/01/13/aston-villa-donyell-malen-transfer/
+
 **Bucs' resiliency runs out amid costly mistakes in wild-card loss to Commanders**\
 `The Bucs had a chance to win before a collapse, coupled with strong play by Washington QB Jayden Daniels, finished their season.`\
 https://nytimes.com/athletic/6057390/2025/01/13/bucs-mistakes-commanders-wild-card-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6056487/2025/01/13/nhl-weekend-rankings-blue-jacket
 **Group of Experts Says R.F.K. Jr. Would ‘Significantly Undermine’ Public Health**\
 `A coalition opposing the nominee for health secretary includes faculty members from leading U.S. academic institutions, including public health schools at Yale and Havard.`\
 https://nytimes.com/2025/01/13/us/politics/robert-f-kennedy-jr-public-health-secretary.html
-
-**Falling Child Vaccinations**\
-`U.S. vaccination rates against once-common childhood diseases are falling.`\
-https://nytimes.com/2025/01/13/briefing/childhood-vaccinations-trump.html
-
-**After 2 years away, Tyler Ivey embarks on a comeback: 'All roads led back to baseball'**\
-`Physical and mental obstacles led Ivey to quit baseball in May 2022. With newfound passion and mechanics, he's looking for another shot.`\
-https://nytimes.com/athletic/6050949/2025/01/13/astros-tyler-ivey-comeback/
-
-**As Dirk Nowitzki prepares for Amazon broadcasting gig, peers believe he will shine**\
-`Next season, the Mavericks icon will be a studio analyst for a new Prime Video show as Amazon begins its 11-year, $20 billion NBA pact.`\
-https://nytimes.com/athletic/6053637/2025/01/13/dirk-nowitzki-amazon-prime-video-mavericks/
 
