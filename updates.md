@@ -1,3 +1,11 @@
+**Kraft: Vrabel brings 'clear and focused strategy' to Patriots**\
+`The Patriots turned to Vrabel after their quick coaching search wrapped up just seven days after the team fired Jerod Mayo.`\
+https://nytimes.com/athletic/6058827/2025/01/13/patriots-mike-vrabel-head-coach/
+
+**Judge Allows Release of Half of Special Counsel’s Report on Trump Cases**\
+`Judge Aileen M. Cannon, who dismissed the classified documents case, blocked a volume about that matter from being shown to Congress but allowed the release of a volume about the election case.`\
+https://nytimes.com/2025/01/13/us/politics/trump-jan-6-report-aileen-cannon-jack-smith.html
+
 **Have Americans Ever Really Been Healthy?**\
 `Medical historians say that the phrase “Make America Healthy Again” obscures a past during which this country’s people ate, smoked and drank things that mostly left them unwell.`\
 https://nytimes.com/2025/01/13/health/rfk-jr-maha-america-unhealthy.html

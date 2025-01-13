@@ -1,3 +1,11 @@
+**Kraft: Vrabel brings 'clear and focused strategy' to Patriots**\
+`The Patriots turned to Vrabel after their quick coaching search wrapped up just seven days after the team fired Jerod Mayo.`\
+https://nytimes.com/athletic/6058827/2025/01/13/patriots-mike-vrabel-head-coach/
+
+**Judge Allows Release of Half of Special Counsel’s Report on Trump Cases**\
+`Judge Aileen M. Cannon, who dismissed the classified documents case, blocked a volume about that matter from being shown to Congress but allowed the release of a volume about the election case.`\
+https://nytimes.com/2025/01/13/us/politics/trump-jan-6-report-aileen-cannon-jack-smith.html
+
 **Have Americans Ever Really Been Healthy?**\
 `Medical historians say that the phrase “Make America Healthy Again” obscures a past during which this country’s people ate, smoked and drank things that mostly left them unwell.`\
 https://nytimes.com/2025/01/13/health/rfk-jr-maha-america-unhealthy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6007666/2025/01/13/mike-mccarthy-out-dallas-cowboys
 **Man accused of harassing Caitlin Clark arrested, charged with stalking**\
 `If found guilty, Lewis could face up to six years in prison and a fine of up to $10,000.`\
 https://nytimes.com/athletic/6058599/2025/01/13/caitlin-clark-news-stalker-arrested-indiana-fever/
-
-**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
-`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
-https://nytimes.com/athletic/6053790/2025/01/13/notre-dame-ohio-state-picks-odds-national-championship-game/
-
-**Scoop City: A wild-card weekend filled with firsts**\
-`Six surprises from the early playoff games, plus a brief look at the weather, odds and matchups in the divisional round + Patriots new coach`\
-https://nytimes.com/athletic/6058791/2025/01/13/nfl-wild-card-weekend-takeaways-aj-brown-book-scoop-city/
 
