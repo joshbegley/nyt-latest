@@ -1,3 +1,7 @@
+**Scoop City: A wild-card weekend filled with firsts**\
+`Six surprises from the early playoff games, plus a brief look at the weather, odds and matchups in the divisional round + Patriots new coach`\
+https://nytimes.com/athletic/6058791/2025/01/13/nfl-wild-card-weekend-takeaways-aj-brown-book-scoop-city/
+
 **Owners of 76ers, Flyers announce plans to build new arena in Philadelphia**\
 `The new facility, which will be home to both NHL and NBA clubs, is set to open in 2031`\
 https://nytimes.com/athletic/6058677/2025/01/13/sixers-flyers-new-arena-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/business/trump-media-threats.html
 **Clemson targeting Penn State's Tom Allen as next defensive coordinator: Sources**\
 `The Nittany Lions ranked No. 7 nationally in total defense this season and came one game short of playing for the national championship. `\
 https://nytimes.com/athletic/6058465/2025/01/13/clemson-tom-allen-defensive-coordinator-penn-state/
-
-**Docs show Jontay Porter's texts to alleged co-conspirators in betting case**\
-`A complaint unsealed Monday includes messages Porter sent to alleged co-conspirators sharing information about his game status last year.`\
-https://nytimes.com/athletic/6058110/2025/01/13/jontay-porter-texts-betting-scandal/
 
