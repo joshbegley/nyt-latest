@@ -1,3 +1,15 @@
+**Corrections: Jan. 11, 2025**\
+`Corrections that appeared in print on Saturday, Jan. 11, 2025.`\
+https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-11-2025.html
+
+**Trump’s Reckless Greenland Comments Are Not a Joke**\
+`China and Russia are listening.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-greenland-china-taiwan
+
+**Public Schools in Montclair, N.J., Are Closed as ‘Precautionary Measure’**\
+`The school district said a potential threat had been “neutralized,” hours after announcing that schools would be closed on Monday and that the police were investigating.`\
+https://nytimes.com/2025/01/13/nyregion/montclair-nj-schools-closed-threat.html
+
 **Penguins Today: Another way to measure the wild-card race**\
 `Conceded points might be the most appropriate metric to watch in recent seasons.`\
 https://nytimes.com/athletic/6058101/2025/01/13/penguins-today-wild-card-standings/
