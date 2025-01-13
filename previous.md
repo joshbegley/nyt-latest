@@ -1,40 +1,40 @@
-**Packers' Keisean Nixon on kickoff rules, returning: 'I’m kind of over it'**\
-`Nixon, a two-time All-Pro returner, saw fewer opportunities with the new kickoff rules and would like to exclusively play cornerback.`\
-https://nytimes.com/athletic/6059243/2025/01/13/keisean-nixon-packers-kickoff-returns/
+**Cleveland-Cliffs Signals a Possible New Bid for U.S. Steel**\
+`The company’s renewed interest comes after the Biden administration blocked Nippon Steel from acquiring the onetime American powerhouse.`\
+https://nytimes.com/2025/01/13/business/economy/us-steel-cleveland-cliffs-nippon.html
 
-**Biden Aides Warned Putin as Russia’s Shadow War Threatened Air Disaster**\
-`The White House scrambled to get a message to President Vladimir V. Putin of Russia last year after U.S. intelligence agencies said a Russian military unit was preparing to send explosive packages on cargo planes.`\
-https://nytimes.com/2025/01/13/us/politics/russia-putin-airplane-shadow-war.html
+**Why AHL IceHogs scratched Levshunov, Ludwinski**\
+`The two Blackhawks prospects sat out Sunday's Rockford IceHogs' game, but it wasn't due to injury.`\
+https://nytimes.com/athletic/6059231/2025/01/13/blackhawks-prospects-levshunov-ludwinski-healthy-scratch/
 
-**Prolific Producer to Take Over Theater That Was Too Costly for Nonprofit**\
-`Seaview, whose buzzy shows include “Romeo + Juliet,” has seized a chance to have its own theater by taking over Second Stage’s former Off Broadway home.`\
-https://nytimes.com/2025/01/13/theater/tony-kiser-theater-second-stage-seaview.html
+**LeBrun: Jason Robertson, Wyatt Johnston turning 4 Nations snubs into NHL, Olympic motivation**\
+`Both Dallas Stars forwards got off to slow starts this season but have been back to their usual high levels since roster announcements.`\
+https://nytimes.com/athletic/6059105/2025/01/13/jason-robertson-wyatt-johnston-4-nations-snubs/
 
-**Will Artificial Intelligence Replace Us or Empower Us?**\
-`People will need a lot more education to be able to harness A.I. rather than be elbowed aside.`\
-https://nytimes.com/2025/01/13/opinion/artificial-intelligence-jobs.html
+**For Los Angeles, Fires Ramp Up Difficulty of Hosting 2028 Summer Games**\
+`Rebuilding areas ravaged by wildfires will present a daunting challenge, but the flip side could be the “compelling image of a city emerging from the ashes.”`\
+https://nytimes.com/2025/01/13/us/politics/2028-olympics-host-los-angeles-fire.html
 
-**Houndstooth Plaid and Pink Shoelaces**\
-`A pop of color punctuated a dashing assemblage of prints.`\
-https://nytimes.com/2025/01/13/style/street-style-look-houndstooth-print.html
+**A Frankenstein Filing Error: It’s Alive!**\
+`Mistakenly placed in Boris Karloff’s clippings folder, a photo of the actor Glenn Strange has since been published in error. Twice.`\
+https://nytimes.com/2025/01/13/insider/a-frankenstein-filing-error-its-alive.html
 
-**A Couple That Gets Dressed Together**\
-`Both are fans of relaxed silhouettes.`\
-https://nytimes.com/2025/01/13/style/street-style-look-couple-coordination.html
+**Martin Karplus, Chemist Who Made Early Computers a Tool, Dies at 94**\
+`Proving skeptics wrong, he shared a Nobel Prize in 2013 for using computers to better understand chemical reactions and biological processes.`\
+https://nytimes.com/2025/01/13/science/martin-karplus-dead.html
 
-**A Blue Trench and a Scarf Bonnet**\
-`Vibrant outerwear set a wintry outfit apart.`\
-https://nytimes.com/2025/01/13/style/street-style-look-cobalt-coat.html
+**Yankees are informed Roki Sasaki will not be signing with them: Source**\
+`The star Japanese pitcher, who can sign with a major-league team starting Jan. 15, will not begin his MLB career in pinstripes. `\
+https://nytimes.com/athletic/6059354/2025/01/13/roki-sasaki-yankees-not-signing/
 
-**Two Cool Ways to Keep Heads Warm**\
-`Artfully layered headgear enhanced a duo’s style.`\
-https://nytimes.com/2025/01/13/style/street-style-look-layered-hats.html
+**Who’s Performing at Trump’s Inauguration?**\
+`Carrie Underwood will sing “America the Beautiful” at the second inauguration of Donald J. Trump.`\
+https://nytimes.com/2025/01/13/us/politics/carrie-underwood-trump-inauguration.html
 
-**What Treliving is signaling about Leafs' trade deadline**\
-`No matter the Leafs' trade target at centre, expect him to be a two-way player.`\
-https://nytimes.com/athletic/6059080/2025/01/13/maple-leafs-trade-deadline-treliving/
+**Police Officer Shoots Man Who Called 911 to Report a Burglary**\
+`The victim, the police said, was carrying a knife. The shooting, which occurred after a five-second encounter, was under investigation.`\
+https://nytimes.com/2025/01/13/nyregion/bronx-police-shooting.html
 
-**Trump Supporters Go All In for Pete Hegseth With Money and Coordination**\
-`Conservative organizations are targeting Republican senators, saying that they will pay a price if they do not back the president-elect’s choice for defense secretary.`\
-https://nytimes.com/2025/01/13/us/politics/pete-hegseth-defense-secretary-trump.html
+**Penn State RB duo Nick Singleton, Kaytron Allen to return for 2025 season**\
+`Singleton and Allen each eclipsed 1,000 yards rushing for Penn State during the 2024 season.`\
+https://nytimes.com/athletic/6059341/2025/01/13/penn-state-college-football-nick-singleton-kaytron-allen-return/
 
