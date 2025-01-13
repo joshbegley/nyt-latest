@@ -1,3 +1,7 @@
+**Veiga likely to leave Chelsea in January**\
+`Renato Veiga is likely to leave Chelsea this month with a number of clubs looking to sign the Portugal international.`\
+https://nytimes.com/athletic/6057471/2025/01/13/renato-veiga-chelsea-january-transfer/
+
 **Hansi Flick has created an oasis of calm amid institutional chaos at Barcelona**\
 `The Spanish Super Cup may be the most minor title of the season, but beating Real Madrid is always a moment worth celebrating`\
 https://nytimes.com/athletic/6057070/2025/01/13/barcelona-super-cup-hansi-flick-calm/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-bl
 **Celtics' 3-point dominance has vanished during slide: 'We've gotta get those up'**\
 `The Pelicans made more 3-pointers than the Celtics despite taking fewer attempts.`\
 https://nytimes.com/athletic/6057322/2025/01/13/celtics-3-pointers-slide-pelicans/
-
-**Zion Williamson returns from suspension, but will things change for the Pelicans?**\
-`Williamson is finally healthy and not under team suspension. But can he prove to the franchise that he is ready, once and for all?`\
-https://nytimes.com/athletic/6057325/2025/01/13/zion-williamson-returns-from-suspension/
 
