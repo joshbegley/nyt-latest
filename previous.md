@@ -1,3 +1,15 @@
+**Why Arsenal's FA Cup postponement could prove costly in WSL title race**\
+`This year was supposed to kick off with a bang but, with some FA Cup fourth-round fixtures postponed, it was more like a whimper`\
+https://nytimes.com/athletic/6056657/2025/01/13/wsl-fa-cup-arsenal-manchester-city-chelsea/
+
+**Submit questions for Aaron Gleeman's mailbag on Twins prospects and the farm system**\
+`Submit your questions about Gleeman's new ranking of the Twins' top 40 prospects or the club's farm system in general. `\
+https://nytimes.com/athletic/6057742/2025/01/13/minnesota-twins-prospects-questions/
+
+**Talks on Gaza Cease-Fire and Hostage Releases: What to Know**\
+`The negotiations appeared to be gaining momentum on Monday as Arab and American mediators pushed for an agreement before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2025/01/13/world/middleeast/gaza-cease-fire-talks-hostages-israel-hamas.html
+
 **Novak Djokovic enters his brat era in Melbourne**\
 `The rise of Jannik Sinner and Carlos Alcaraz vanquished Djokovic's inevitability at the Australian Open, but he is still the main character.`\
 https://nytimes.com/athletic/6054866/2025/01/13/novak-djokovic-australian-open-tennis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6057151/2025/01/13/commanders-buccaneers-jayden-dan
 **Villa agree Malen transfer fee with Dortmund**\
 `Aston Villa have agreed a €23million (£19.`\
 https://nytimes.com/athletic/6032915/2025/01/13/aston-villa-donyell-malen-transfer/
-
-**Bucs' resiliency runs out amid costly mistakes in wild-card loss to Commanders**\
-`The Bucs had a chance to win before a collapse, coupled with strong play by Washington QB Jayden Daniels, finished their season.`\
-https://nytimes.com/athletic/6057390/2025/01/13/bucs-mistakes-commanders-wild-card-playoffs/
-
-**Raiders offseason roster guide: What the next coach and GM will be working with**\
-`There's plenty of work to be done this offseason to improve what is one of the worst rosters in the NFL.`\
-https://nytimes.com/athletic/6048402/2025/01/13/raiders-offseason-roster-maxx-crosby/
-
-**Manchester's other clubs - the teams striving and thriving in the shadows of City and United**\
-`Greater Manchester is bursting with football history, heritage - and clubs. This is what it's like for those outside of City and United`\
-https://nytimes.com/athletic/6055938/2025/01/13/manchester-football-clubs-city-united/
 

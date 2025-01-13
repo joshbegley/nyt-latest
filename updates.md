@@ -1,3 +1,15 @@
+**Why Arsenal's FA Cup postponement could prove costly in WSL title race**\
+`This year was supposed to kick off with a bang but, with some FA Cup fourth-round fixtures postponed, it was more like a whimper`\
+https://nytimes.com/athletic/6056657/2025/01/13/wsl-fa-cup-arsenal-manchester-city-chelsea/
+
+**Submit questions for Aaron Gleeman's mailbag on Twins prospects and the farm system**\
+`Submit your questions about Gleeman's new ranking of the Twins' top 40 prospects or the club's farm system in general. `\
+https://nytimes.com/athletic/6057742/2025/01/13/minnesota-twins-prospects-questions/
+
+**Talks on Gaza Cease-Fire and Hostage Releases: What to Know**\
+`The negotiations appeared to be gaining momentum on Monday as Arab and American mediators pushed for an agreement before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2025/01/13/world/middleeast/gaza-cease-fire-talks-hostages-israel-hamas.html
+
 **Novak Djokovic enters his brat era in Melbourne**\
 `The rise of Jannik Sinner and Carlos Alcaraz vanquished Djokovic's inevitability at the Australian Open, but he is still the main character.`\
 https://nytimes.com/athletic/6054866/2025/01/13/novak-djokovic-australian-open-tennis/
