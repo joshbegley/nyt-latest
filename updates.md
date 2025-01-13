@@ -1,3 +1,7 @@
+**Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
+`The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
+https://nytimes.com/athletic/5882648/2025/01/13/carlos-alcaraz-jannik-sinner-tennis-australian-open/
+
 **If Shaq Thompson's Panthers career is over, he leaves own legacy among team's top LBs**\
 `After missing most of the past two seasons with injuries, Thompson will be a free agent, and there's no guarantee Carolina will keep him.`\
 https://nytimes.com/athletic/6050452/2025/01/13/panthers-shaq-thompson-linebacker-future-injuries/
