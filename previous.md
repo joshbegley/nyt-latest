@@ -1,3 +1,7 @@
+**Have Americans Ever Really Been Healthy?**\
+`Medical historians say that the phrase “Make America Healthy Again” obscures a past during which this country’s people ate, smoked and drank things that mostly left them unwell.`\
+https://nytimes.com/2025/01/13/health/rfk-jr-maha-america-unhealthy.html
+
 **Eagles LB Dean tears patellar tendon, will miss the rest of playoffs**\
 `Dean's injury is a significant setback with multiple ramifications for the Eagles.`\
 https://nytimes.com/athletic/6058649/2025/01/13/nakobe-dean-eagles-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053790/2025/01/13/notre-dame-ohio-state-picks-odds
 **Scoop City: A wild-card weekend filled with firsts**\
 `Six surprises from the early playoff games, plus a brief look at the weather, odds and matchups in the divisional round + Patriots new coach`\
 https://nytimes.com/athletic/6058791/2025/01/13/nfl-wild-card-weekend-takeaways-aj-brown-book-scoop-city/
-
-**Owners of 76ers, Flyers announce plans to build new arena in Philadelphia**\
-`The new facility, which will be home to both NHL and NBA clubs, is set to open in 2031`\
-https://nytimes.com/athletic/6058677/2025/01/13/sixers-flyers-new-arena-plans/
 

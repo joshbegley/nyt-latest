@@ -1,3 +1,7 @@
+**Have Americans Ever Really Been Healthy?**\
+`Medical historians say that the phrase “Make America Healthy Again” obscures a past during which this country’s people ate, smoked and drank things that mostly left them unwell.`\
+https://nytimes.com/2025/01/13/health/rfk-jr-maha-america-unhealthy.html
+
 **Eagles LB Dean tears patellar tendon, will miss the rest of playoffs**\
 `Dean's injury is a significant setback with multiple ramifications for the Eagles.`\
 https://nytimes.com/athletic/6058649/2025/01/13/nakobe-dean-eagles-injury/
