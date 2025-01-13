@@ -1,3 +1,23 @@
+**Bucs' resiliency runs out amid costly mistakes in wild-card loss to Commanders**\
+`The Bucs had a chance to win before a collapse, coupled with strong play by Washington QB Jayden Daniels, finished their season.`\
+https://nytimes.com/athletic/6057390/2025/01/13/bucs-mistakes-commanders-wild-card-playoffs/
+
+**Raiders offseason roster guide: What the next coach and GM will be working with**\
+`There's plenty of work to be done this offseason to improve what is one of the worst rosters in the NFL.`\
+https://nytimes.com/athletic/6048402/2025/01/13/raiders-offseason-roster-maxx-crosby/
+
+**Manchester's other clubs - the teams striving and thriving in the shadows of City and United**\
+`Greater Manchester is bursting with football history, heritage - and clubs. This is what it's like for those outside of City and United`\
+https://nytimes.com/athletic/6055938/2025/01/13/manchester-football-clubs-city-united/
+
+**The Rams improbably went from 1-4 to the NFL postseason. Then disaster struck their city**\
+`Fire changes a person’s world fast. The previous week, all anybody in the Rams organization could think about was what they had earned.`\
+https://nytimes.com/athletic/6055691/2025/01/13/rams-sean-mcvay-playoffs-wildfires/
+
+**Can '1 of 1 day' be a different kind of New Year's tradition?**\
+`The Topps-driven “1 of 1 day” celebration brought out some surprise participants`\
+https://nytimes.com/athletic/6056415/2025/01/13/one-of-one-day-topps-panini/
+
 **Weekend NHL rankings: The Blue Jackets are the league's best story and it's not close**\
 `Remember when we designated eight teams as sure-thing contenders in October? Let's check back in on that.`\
 https://nytimes.com/athletic/6056487/2025/01/13/nhl-weekend-rankings-blue-jackets-bruins/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6050949/2025/01/13/astros-tyler-ivey-comeback/
 **As Dirk Nowitzki prepares for Amazon broadcasting gig, peers believe he will shine**\
 `Next season, the Mavericks icon will be a studio analyst for a new Prime Video show as Amazon begins its 11-year, $20 billion NBA pact.`\
 https://nytimes.com/athletic/6053637/2025/01/13/dirk-nowitzki-amazon-prime-video-mavericks/
-
-**Nick Kyrgios and Alex De Minaur: Two tennis magnets at opposite poles in Melbourne**\
-`The two preeminent figures in Australian men's tennis could not be more different.`\
-https://nytimes.com/athletic/5541040/2025/01/13/nick-kyrgios-australian-open-alex-de-minaur/
-
-**Nick Kyrgios says Australian Open loss may have been his last singles in Melbourne**\
-`Nick Kyrgios is out of the Australian Open in the first round after playing through clear discomfort in a three-set defeat to Jacob Fearnley of the U.`\
-https://nytimes.com/athletic/6050659/2025/01/13/nick-kyrgios-australian-open-out-injury/
-
-**After Attacking L.A. Wildfire Response, Elon Musk Sends His Products to Help**\
-`The world’s richest person has stoked outrage about the devastating wildfires and efforts to tackle them. On Sunday, he said he would help provide internet access to areas in need in Los Angeles.`\
-https://nytimes.com/2025/01/13/us/elon-musk-la-fires-starlink.html
-
-**Indiana is at a crossroads as familiar pattern continues under Mike Woodson**\
-`The Hoosiers’ four losses this year were by an average of 21.5 points. In two true Big Ten road games, Indiana lost by a combined 42 points.`\
-https://nytimes.com/athletic/6056377/2025/01/13/indiana-basketball-mike-woodson-road-losses-blowouts/
-
-**As Clippers resume schedule amid LA wildfires, they look to rediscover 'identity'**\
-`A s wildfires continue to tear through the region, the Clippers return to the court aiming to reverse a troubling decline in play.`\
-https://nytimes.com/athletic/6048981/2025/01/13/clippers-schedule-games-wildfires-identity/
 
