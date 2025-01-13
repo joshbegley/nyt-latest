@@ -1,3 +1,15 @@
+**How Unauthorized Immigrants Help Finance Social Security Benefits**\
+`Undocumented workers often pay taxes that help fund programs like Social Security — even if they can’t collect from them in the future.`\
+https://nytimes.com/2025/01/13/business/social-security-undocumented-immigrants.html
+
+**For Jeff Bezos, New Glenn’s success is personal**\
+`By Karen Weise`\
+https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/for-jeff-bezos-new-glenns-success-is-personal
+
+**Daniels outduels Bucs 23-20 for Commanders' first playoff win since 2005: Takeaways**\
+`The Commanders will next head to Detroit to face the top-seeded Lions in the divisional round.`\
+https://nytimes.com/athletic/6057108/2025/01/12/commanders-buccaneers-playoff-score-takeaways-wild-card/
+
 **Quote of the Day: Enron Announces Return. Turns Out, It Was a Stunt.**\
 `Quotation of the Day for Monday, January 13, 2025.`\
 https://nytimes.com/2025/01/12/pageoneplus/quote-of-the-day-enron-announces-return-turns-out-it-was-a-stunt.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-is
 **Why Packers' loss to Eagles should be no surprise as disappointing season ends**\
 `In their 22-10 loss to the Eagles, Matt LaFleur's Packers beat themselves just like they did against numerous elite NFC opponents before.`\
 https://nytimes.com/athletic/6057129/2025/01/12/packers-wild-card-loss-eagles/
-
-**Here’s what’s happening on the launchpad.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/heres-whats-happening-on-the-launchpad
-
-**Live Updates: Jeff Bezos and Blue Origin Prepare for New Glenn Rocket’s Debut Launch**\
-`The flight is a crucial moment for the company’s vision for space, and a test of whether it may emerge as a serious competitor to Elon Musk and SpaceX.`\
-https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn
-
-**American prospect Michelsen knocks Stefanos Tsitsipas out of Australian Open**\
-`MELBOURNE, Australia — Stefanos Tsitsipas twice smashed his racket onto his bag as he exited the Australian Open in the first round against young American Alex Michelsen.`\
-https://nytimes.com/athletic/6057074/2025/01/12/alex-michelsen-stefanos-tsitsipas-australian-open-result-analysis/
 
