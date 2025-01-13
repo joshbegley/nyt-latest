@@ -1,3 +1,11 @@
+**Packers WRs Romeo Doubs, Jayden Reed exit with injuries vs. Eagles**\
+`Jordan Love's top receivers left Sunday's game against the Philadelphia Eagles on back-to-back drives.`\
+https://nytimes.com/athletic/6056669/2025/01/12/packers-romeo-doubs-jayden-reed-injuries/
+
+**Chargers' Khalil Mack mulling retirement, Asante Samuel Jr. reveals his injury**\
+`The Chargers expect to have a healthy amount of roster turnover after their season ended with a 32-12 playoff loss to the Texans.`\
+https://nytimes.com/athletic/6056710/2025/01/12/chargers-playoff-loss-khalil-mack-retirement/
+
 **In L.A., the Heartache of Being Home**\
 `Tejal Rao, a Times food critic who lives in Los Angeles, explores the fleeting nature of safety after the fires.`\
 https://nytimes.com/2025/01/12/us/los-angeles-wildfires-heartache.html
