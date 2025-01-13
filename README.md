@@ -1,3 +1,7 @@
+**Mets notes: Roki Sasaki headed elsewhere, Sean Manaea hopes for Pete Alonso return**\
+`Manaea described the Mets as a “perfect fit" in his first news conference since returning on a 3-year deal. `\
+https://nytimes.com/athletic/6059477/2025/01/13/mets-roki-saskaki-sean-manaea/
+
 **How the Ohio State-Notre Dame spread ranks among biggest in national title game history**\
 `Ohio State is favored by more than a touchdown against Notre Dame. Where does that rank among the biggest spreads in title game history?`\
 https://nytimes.com/athletic/6058657/2025/01/13/ohio-state-notre-dame-spread-national-title-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/us/politics/biden-student-loan-forgiveness.html
 **Submit your questions for the college basketball mailbag**\
 `With college basketball entering the thick of conference play, it&#8217;s the perfect time for a college basketball mailbag.`\
 https://nytimes.com/athletic/6059413/2025/01/13/submit-your-questions-for-the-college-basketball-mailbag/
-
-**Ace Gallery Founder Is Sentenced to 24 Months in Embezzlement Case**\
-`Douglas Chrismas, who was found guilty last May on three counts of embezzlement from his gallery’s bankruptcy estate, is to report to prison on Feb. 17.`\
-https://nytimes.com/2025/01/13/arts/design/douglas-chrismas-ace-gallery-embezzlement-sentence.html
 
