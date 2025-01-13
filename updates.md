@@ -1,3 +1,11 @@
+**NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
+`Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
+https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/13/briefing/wildfires-los-angeles-gaza.html
+
 **How Unauthorized Immigrants Help Finance Social Security Benefits**\
 `Undocumented workers often pay taxes that help fund programs like Social Security — even if they can’t collect from them in the future.`\
 https://nytimes.com/2025/01/13/business/social-security-undocumented-immigrants.html

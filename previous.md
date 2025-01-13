@@ -1,3 +1,11 @@
+**NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
+`Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
+https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/13/briefing/wildfires-los-angeles-gaza.html
+
 **How Unauthorized Immigrants Help Finance Social Security Benefits**\
 `Undocumented workers often pay taxes that help fund programs like Social Security — even if they can’t collect from them in the future.`\
 https://nytimes.com/2025/01/13/business/social-security-undocumented-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/12/business/china-trade-surplus.html
 **NFL divisional-round schedule: TV times, channels, sites set**\
 `Only one more wild-card game between the Minnesota Vikings and Los Angeles Rams remains.`\
 https://nytimes.com/athletic/6057049/2025/01/12/nfl-playoffs-schedule-divisional-round/
-
-**What is the New Glenn rocket?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-is-the-new-glenn-rocket
-
-**Why Packers' loss to Eagles should be no surprise as disappointing season ends**\
-`In their 22-10 loss to the Eagles, Matt LaFleur's Packers beat themselves just like they did against numerous elite NFC opponents before.`\
-https://nytimes.com/athletic/6057129/2025/01/12/packers-wild-card-loss-eagles/
 
