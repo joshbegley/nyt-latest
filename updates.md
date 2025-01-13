@@ -1,3 +1,11 @@
+**‘They Barricaded Everything’: Living Inside an Evacuation Zone**\
+`Anthony Herrera never evacuated his Altadena home during the Eaton fire last week, and said he was told by the Los Angeles Sheriff’s Department that if he leaves now, he can’t return.`\
+https://nytimes.com/video/world/americas/100000009923203/eaton-fire-altadena-residents.html
+
+**Texas Sues Allstate Over Its Collection of Driver Data**\
+`The lawsuit accuses Arity, an Allstate subsidiary, of collecting data about people’s driving behavior through mobile phone apps, leading to increases in drivers’ insurance rates.`\
+https://nytimes.com/2025/01/13/technology/texas-allstate-driver-data-lawsuit.html
+
 **Bowen could return earlier than expected, says Potter**\
 `West Ham United head coach Graham Potter says Jarrod Bowen could return ahead of schedule in his recovery from a fractured foot.`\
 https://nytimes.com/athletic/6058559/2025/01/13/jarrod-bowen-west-ham-injury/

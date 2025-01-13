@@ -1,3 +1,11 @@
+**‘They Barricaded Everything’: Living Inside an Evacuation Zone**\
+`Anthony Herrera never evacuated his Altadena home during the Eaton fire last week, and said he was told by the Los Angeles Sheriff’s Department that if he leaves now, he can’t return.`\
+https://nytimes.com/video/world/americas/100000009923203/eaton-fire-altadena-residents.html
+
+**Texas Sues Allstate Over Its Collection of Driver Data**\
+`The lawsuit accuses Arity, an Allstate subsidiary, of collecting data about people’s driving behavior through mobile phone apps, leading to increases in drivers’ insurance rates.`\
+https://nytimes.com/2025/01/13/technology/texas-allstate-driver-data-lawsuit.html
+
 **Bowen could return earlier than expected, says Potter**\
 `West Ham United head coach Graham Potter says Jarrod Bowen could return ahead of schedule in his recovery from a fractured foot.`\
 https://nytimes.com/athletic/6058559/2025/01/13/jarrod-bowen-west-ham-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6059423/2025/01/13/los-angeles-sports-teams-fanatic
 **Greenland to Trump: We’re Not for Sale but Let’s Talk Business**\
 `The country’s prime minister said that while Greenlanders do not want to become Americans, “the reality is we are going to work with the U.S. — yesterday, today and tomorrow.”`\
 https://nytimes.com/2025/01/13/world/europe/greenland-trump-business.html
-
-**LiAngelo Ball lands record label deal following viral hit 'Tweaker'**\
-`The song has been a viral hit on social media with NBA arenas adding it to their playlists and teams playing it in their locker rooms.`\
-https://nytimes.com/athletic/6059463/2025/01/13/liangelo-ball-music-career-viral-hit-tweaker-nba/
-
-**Overlooked No More: Karen Wynn Fonstad, Who Mapped Tolkien’s Middle-earth**\
-`She was a novice cartographer who landed a dream assignment: to create an atlas of the setting of “The Hobbit” and “The Lord of the Rings.”`\
-https://nytimes.com/2025/01/13/obituaries/karen-wynn-fonstad-overlooked.html
 
