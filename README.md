@@ -1,3 +1,7 @@
+**Prolific Producer to Take Over Theater That Was Too Costly for Nonprofit**\
+`Seaview, whose buzzy shows include “Romeo + Juliet,” has seized a chance to have its own theater by taking over Second Stage’s former Off Broadway home.`\
+https://nytimes.com/2025/01/13/theater/tony-kiser-theater-second-stage-seaview.html
+
 **Will Artificial Intelligence Replace Us or Empower Us?**\
 `People will need a lot more education to be able to harness A.I. rather than be elbowed aside.`\
 https://nytimes.com/2025/01/13/opinion/artificial-intelligence-jobs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/us/caitlin-clark-stalker-arrested.html
 **This Is Where the Palisades Fire Started**\
 `In the hills above Pacific Palisades, there is crime scene tape and scattered debris, clues to what may have caused the initial fire that eventually raged through thousands of structures.`\
 https://nytimes.com/2025/01/13/us/palisades-fire-cause-ignition-point-site.html
-
-**Cowboys coach candidates: Ben Johnson and other names Dallas should consider**\
-`With the Cowboys and Mike McCarthy parting ways, the Dallas job should be an attractive one for candidates.`\
-https://nytimes.com/athletic/6059083/2025/01/13/cowboys-coach-candidates-ben-johnson-mike-mccarthy/
 
