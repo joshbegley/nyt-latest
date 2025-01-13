@@ -1,9 +1,21 @@
+**Can Chloe Kelly get the minutes at Man City to make England's Euro 2025 team?**\
+`What's going on with the star of England's 2022 Euros triumph?`\
+https://nytimes.com/athletic/6055753/2025/01/13/can-chloe-kelly-get-the-minutes-to-make-englands-euro-2025-team/
+
+**Welcome to Nottingham - a city that is once again daring to dream**\
+`Nottingham Forest are the surprise package of this Premier League season, and their rise has transformed the mood of a city`\
+https://nytimes.com/athletic/6046755/2025/01/13/nottingham-forest-city-champions-league/
+
+**The crisis of Kyle Walker**\
+`A player who has had to do his growing up in public, now finds himself in danger of growing old under the same harsh, unforgiving spotlight`\
+https://nytimes.com/athletic/6055421/2025/01/13/the-crisis-of-kyle-walker/
+
 **In search of magic in the FA Cup third round**\
 `Tottenham were taken to extra time by Tamworth and Newcastle briefly went behind to Bromley but upsets were few and far between`\
 https://nytimes.com/athletic/6055920/2025/01/13/fa-cup-third-round-in-search-of-magic/
 
-**Gustavsson's bounce-back not enough as Golden Knights pull away: Wild takeaways**\
-`The Wild fell 4-1 in Vegas, but Gustavsson's play was encouraging and Guerin had an update on Kaprizov's return.`\
+**Filip Gustavsson's bounce-back not enough as Golden Knights pull away: Wild takeaways**\
+`The Wild fell 4-1 in Vegas, but Gustavsson's play was encouraging. Bill Guerin had an update on Kirill Kaprizov's return.`\
 https://nytimes.com/athletic/6056991/2025/01/13/wild-gustavsson-golden-knights-power-play/
 
 **Liverpool's contract-less trio, Jamie Carragher's role, and a battle to shape the narrative**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/13/business/social-security-undocumented-immigrants.
 **For Jeff Bezos, New Glenn’s success is personal**\
 `By Karen Weise`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/for-jeff-bezos-new-glenns-success-is-personal
-
-**Daniels outduels Bucs 23-20 for Commanders' first playoff win since 2005: Takeaways**\
-`The Commanders will next head to Detroit to face the top-seeded Lions in the divisional round.`\
-https://nytimes.com/athletic/6057108/2025/01/12/commanders-buccaneers-playoff-score-takeaways-wild-card/
-
-**Quote of the Day: Enron Announces Return. Turns Out, It Was a Stunt.**\
-`Quotation of the Day for Monday, January 13, 2025.`\
-https://nytimes.com/2025/01/12/pageoneplus/quote-of-the-day-enron-announces-return-turns-out-it-was-a-stunt.html
-
-**Eagles' top-ranked defense propels win against Packers, takes Philadelphia to divisional round**\
-`The Eagles will face the winner of Rams-Vikings. `\
-https://nytimes.com/athletic/6056389/2025/01/12/eagles-wild-card-win-defense-nfl-playoffs/
 
