@@ -1,3 +1,7 @@
+**Most schools in Los Angeles will reopen on Monday.**\
+`Four schools were directly impacted by the Palisades fire and will have to be rebuilt, the schools superintendent announced on Sunday.`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/most-schools-in-los-angeles-will-reopen-on-monday
+
 **Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
 `The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
 https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056473/2025/01/12/packers-game-score-playoffs-take
 **How the Red Wings can keep building on their 7-game winning streak**\
 `The Red Wings have won seven straight for the first time since January 2012. `\
 https://nytimes.com/athletic/6056640/2025/01/12/red-wings-win-streak-mclellan-kraken/
-
-**'What everyone’s been waiting for': Bills finally can focus on Ravens revenge**\
-`Their last meeting did not end well for the Bills.`\
-https://nytimes.com/athletic/6056769/2025/01/12/bills-playoffs-josh-allen-lamar-jackson-ravens/
 

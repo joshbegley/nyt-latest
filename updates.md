@@ -1,3 +1,7 @@
+**Most schools in Los Angeles will reopen on Monday.**\
+`Four schools were directly impacted by the Palisades fire and will have to be rebuilt, the schools superintendent announced on Sunday.`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/most-schools-in-los-angeles-will-reopen-on-monday
+
 **A.J. Brown caught reading on sidelines during Eagles' wild-card win**\
 `"It's got a lot of points in there," Brown said of Jim Murphy's "Inner Excellence," a book he brings to every game. `\
 https://nytimes.com/athletic/6056894/2025/01/12/aj-brown-reading-eagles-wild-card-win/
