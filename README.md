@@ -1,3 +1,7 @@
+**Bowen could return earlier than expected, says Potter**\
+`West Ham United head coach Graham Potter says Jarrod Bowen could return ahead of schedule in his recovery from a fractured foot.`\
+https://nytimes.com/athletic/6058559/2025/01/13/jarrod-bowen-west-ham-injury/
+
 **Rodriguez signs for Club Leon after Rayo Vallecano exit**\
 `James Rodriguez has joined Mexican side Club Leon after leaving Rayo Vallecano earlier this month.`\
 https://nytimes.com/athletic/6043637/2025/01/13/james-rodriguez-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059463/2025/01/13/liangelo-ball-music-career-viral
 **Overlooked No More: Karen Wynn Fonstad, Who Mapped Tolkien’s Middle-earth**\
 `She was a novice cartographer who landed a dream assignment: to create an atlas of the setting of “The Hobbit” and “The Lord of the Rings.”`\
 https://nytimes.com/2025/01/13/obituaries/karen-wynn-fonstad-overlooked.html
-
-**Mets notes: Roki Sasaki headed elsewhere, Sean Manaea hopes for Pete Alonso return**\
-`Manaea described the Mets as a “perfect fit" in his first news conference since returning on a 3-year deal. `\
-https://nytimes.com/athletic/6059477/2025/01/13/mets-roki-saskaki-sean-manaea/
 
