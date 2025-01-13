@@ -1,3 +1,11 @@
+**The reason Ruben Amorim's Man Utd are better against top sides is tactical, not psychological**\
+`Displays like the one at the Emirates won’t win style points, and probably won’t win league titles — but might just win United a cup`\
+https://nytimes.com/athletic/6057590/2025/01/13/manchester-united-amorim-tactics-top-sides/
+
+**In These 4 Novels, the Detectives Have Killer Instincts**\
+`Our columnist on the month’s best new releases.`\
+https://nytimes.com/2025/01/13/books/review/new-crime-novels.html
+
 **An Inauguration Watch Party Aimed at Celebrating Fossil Fuels**\
 `Harold G. Hamm, the founder of the Oklahoma-based Continental Resources, and other oil and gas companies stand to profit from Donald Trump’s energy policies.`\
 https://nytimes.com/2025/01/13/climate/inauguration-plans-harold-hamm-fossil-fuels.html
@@ -30,8 +38,3 @@ https://nytimes.com/athletic/6058510/2025/01/13/new-york-giants-mailbag-submissi
 `Jonathan Morgan, the manager at the centre of the Football Association’s investigation into the Maddy Cusack tragedy, has agreed to give evidence at an inquest into her death.`\
 https://nytimes.com/athletic/6057838/2025/01/13/jonathan-morgan-maddy-cusack-inquest/
 
-**Marinakis reduces Forest debt by converting £72m worth of loans into shares**\
-`Nottingham Forest owner Evangelos Marinakis has reduced the club’s debt by converting a further £72million ($87.`\
-https://nytimes.com/athletic/6058443/2025/01/13/nottingham-forest-debt-reduction-marinakis/
-
-**Yes, You Can Get a Workout in 10 Minutes**\
