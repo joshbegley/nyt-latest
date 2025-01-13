@@ -1,3 +1,11 @@
+**A Close Brush With Loss for a Community That Knows It Well**\
+`A 2008 fire gutted a mobile home park in the suburb of Sylmar. Last week, the Hurst fire came frighteningly close, and residents still haven’t let their guard down.`\
+https://nytimes.com/2025/01/12/us/sylmar-los-angeles-mobile-homes-fire.html
+
+**China’s Trade Surplus Reaches Nearly $1 Trillion**\
+`China’s vast exports in 2024 exceeded its imports on a scale seldom seen anywhere except during or immediately after the two world wars.`\
+https://nytimes.com/2025/01/12/business/china-trade-surplus.html
+
 **NFL divisional-round schedule: TV times, channels, sites set**\
 `Only one more wild-card game between the Minnesota Vikings and Los Angeles Rams remains.`\
 https://nytimes.com/athletic/6057049/2025/01/12/nfl-playoffs-schedule-divisional-round/
