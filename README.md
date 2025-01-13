@@ -18,7 +18,7 @@ https://nytimes.com/2025/01/13/nyregion/congestion-pricing-nyc.html
 `As of Monday morning, the official number of missing persons included 17 in the area of the Eaton fire near Pasadena, and six in the Malibu area near the Palisades fire.`\
 https://nytimes.com/2025/01/13/us/la-fires-missing-victims.html
 
-**Chelsea make enquiry to sign Mathys Tel from Bayern Munich**\
+**Chelsea make enquiry to sign Tel from Bayern**\
 `Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel.`\
 https://nytimes.com/athletic/6059453/2025/01/13/mathys-tel-chelsea/
 

@@ -1,3 +1,7 @@
+**Searches Continue for Nearly Two Dozen Missing in the Fires**\
+`As of Monday morning, the official number of missing persons included 17 in the area of the Eaton fire near Pasadena, and six in the Malibu area near the Palisades fire.`\
+https://nytimes.com/2025/01/13/us/la-fires-missing-victims.html
+
 **Mets notes: Roki Sasaki headed elsewhere, Sean Manaea hopes for Pete Alonso return**\
 `Manaea described the Mets as a “perfect fit" in his first news conference since returning on a 3-year deal. `\
 https://nytimes.com/athletic/6059477/2025/01/13/mets-roki-saskaki-sean-manaea/
