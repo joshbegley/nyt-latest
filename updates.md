@@ -1,3 +1,11 @@
+**Biden Aides Warned Putin as Russia’s Shadow War Threatened Air Disaster**\
+`The White House scrambled to get a message to President Vladimir V. Putin of Russia last year after U.S. intelligence agencies said a Russian military unit was preparing to send explosive packages on cargo planes.`\
+https://nytimes.com/2025/01/13/us/politics/russia-putin-airplane-shadow-war.html
+
+**Prolific Producer to Take Over Theater That Was Too Costly for Nonprofit**\
+`Seaview, whose buzzy shows include “Romeo + Juliet,” has seized a chance to have its own theater by taking over Second Stage’s former Off Broadway home.`\
+https://nytimes.com/2025/01/13/theater/tony-kiser-theater-second-stage-seaview.html
+
 **Will Artificial Intelligence Replace Us or Empower Us?**\
 `People will need a lot more education to be able to harness A.I. rather than be elbowed aside.`\
 https://nytimes.com/2025/01/13/opinion/artificial-intelligence-jobs.html
