@@ -1,3 +1,15 @@
+**Oscar Nominations Are Postponed Because of Wildfires**\
+`To give affected members more time, the academy  extended the voting through Friday and will unveil the results Jan. 23. The nominees luncheon was canceled.`\
+https://nytimes.com/2025/01/13/movies/oscar-nominations-fires.html
+
+**As He Enters His Final Week in Office, Biden to Promote His Foreign Policy**\
+`The president will give a speech on Monday arguing that he strengthened U.S. alliances during his four years in office and that America’s adversaries are weaker than when he took over.`\
+https://nytimes.com/2025/01/13/us/politics/biden-foreign-policy-speech.html
+
+**Rachel Maddow Will Return to Nightly Shows on MSNBC for Trump’s First 100 Days**\
+`The cable news network rejiggers its prime-time lineup ahead of Donald Trump’s second stint in the White House.`\
+https://nytimes.com/2025/01/13/us/politics/rachel-maddow-msnbc-trump.html
+
 **Kraft: Vrabel brings 'clear and focused strategy' to Patriots**\
 `The Patriots turned to Vrabel after their quick coaching search wrapped up just seven days after the team fired Jerod Mayo.`\
 https://nytimes.com/athletic/6058827/2025/01/13/patriots-mike-vrabel-head-coach/
