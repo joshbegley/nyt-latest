@@ -1,3 +1,7 @@
+**L.A. Wildfire Evacuees Scramble to Find Sleep in Cars, Shelters and Hotels**\
+`More than 100,000 people under evacuation orders are making do however they can.`\
+https://nytimes.com/2025/01/13/us/la-fires-evacuations-housing-shelter.html
+
 **Giants are convinced that Justin Verlander still has passion to excel**\
 `Verlander has been throwing all offseason in an attempt to stave off the injury issues that ruined his 2024 campaign.`\
 https://nytimes.com/athletic/6059751/2025/01/13/sf-giants-justin-verlander-introduction/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6059680/2025/01/13/mike-vrabel-patriots-head-coach/
 **Eaton fire victims sue Southern California Edison.**\
 `Altadena residents said in separate lawsuits that the utility’s electrical equipment sparked the fire, which grew to consume 14,000 acres.`\
 https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/eaton-fire-victims-sue-southern-california-edison
-
-**Jerry Jones' approach to parting with Mike McCarthy was unnecessary and made no sense**\
-`By keeping Mike McCarthy dangling for over a week, the Cowboys are a week behind other teams searching for a coach.`\
-https://nytimes.com/athletic/6059433/2025/01/13/cowboys-mike-mccarthy-jerry-jones-parting-ways/
 
