@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6059413/2025/01/13/submit-your-questions-for-the-co
 `Douglas Chrismas, who was found guilty last May on three counts of embezzlement from his gallery’s bankruptcy estate, is to report to prison on Feb. 17.`\
 https://nytimes.com/2025/01/13/arts/design/douglas-chrismas-ace-gallery-embezzlement-sentence.html
 
-**Brighton's Rutter, Minteh suffer hamstring injuries in FA Cup win**\
+**Brighton's Rutter, Minteh suffer injuries in FA Cup win**\
 `Brighton &amp; Hove Albion have been hit by two more injury blows to their front line following Saturday&#8217;s FA Cup win over Norwich City.`\
 https://nytimes.com/athletic/6059393/2025/01/13/brighton-injuries-rutter-minteh/
 
