@@ -1,3 +1,7 @@
+**What is the New Glenn rocket?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-is-the-new-glenn-rocket
+
 **Why Packers' loss to Eagles should be no surprise as disappointing season ends**\
 `In their 22-10 loss to the Eagles, Matt LaFleur's Packers beat themselves just like they did against numerous elite NFC opponents before.`\
 https://nytimes.com/athletic/6057129/2025/01/12/packers-wild-card-loss-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis
 **A.J. Brown caught reading on sidelines during Eagles' wild-card win**\
 `"It's got a lot of points in there," Brown said of Jim Murphy's "Inner Excellence," a book he brings to every game. `\
 https://nytimes.com/athletic/6056894/2025/01/12/aj-brown-reading-eagles-wild-card-win/
-
-**‘Who do we call?’ That’s the question for Altadena residents, as they think about rebuilding.**\
-`By Jesus Jiménez and Vik Jolly`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/who-do-we-call-thats-the-question-for-altadena-residents-as-they-think-about-rebuilding
 
