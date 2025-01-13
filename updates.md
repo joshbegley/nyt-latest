@@ -1,3 +1,11 @@
+**Bucks crushed by Knicks as record drops to 0-8 against Eastern Conference's top 3**\
+`"We've gotta get our stuff together, simple as that," Giannis Antetokounmpo said after another blowout loss in New York this season.`\
+https://nytimes.com/athletic/6056733/2025/01/13/bucks-knicks-giannis-antetokounmpo/
+
+**Jerar Encarnación might be the power bat the Giants need**\
+`Encarnacíon didn't wow in his first stint with the Giants, but some of the underlying data suggests he could be a breakout power hitter.`\
+https://nytimes.com/athletic/6053629/2025/01/13/jerar-encarnacion-sf-giants-power-bat/
+
 **Ohio State vs Notre Dame national championship roundtable: Storylines and matchups to watch**\
 `The Athletic beat writers Pete Sampson (Notre Dame) and Cameron Teague Robinson (Ohio State) break down the title game. `\
 https://nytimes.com/athletic/6057774/2025/01/13/ohio-state-notre-dame-storylines-matchups-roundtable-cfp/
