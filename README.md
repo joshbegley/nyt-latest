@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Yan Zhuang, Amy Graff and Jonathan Wolfe`\
+https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/heres-the-latest-on-the-fires
+
+**Live Updates: Dangerous Winds Are Forecast as Crews Battle L.A. Wildfires**\
+`Another round of heavy winds was expected on Monday, threatening the progress firefighters have made against the blazes that have killed at least 24 people and ravaged the Los Angeles area.`\
+https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates
+
 **Carlos Alcaraz and Jannik Sinner are redrawing the tennis court**\
 `The two best men's players in the world are reconfiguring the sport before their opponents' eyes. They don't know what to do about it`\
 https://nytimes.com/athletic/5882648/2025/01/13/carlos-alcaraz-jannik-sinner-tennis-australian-open/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/13/opinion/trump-fires-los-angeles.html
 **Can I Dress Both Conservatively and Stylishly as a Young Person?**\
 `Our fashion critic offers a young reader debating whether modesty is compatible with current trends advice on navigating personal style preferences.`\
 https://nytimes.com/2025/01/13/style/modest-young-fashion.html
-
-**David French on the Case for Banning TikTok**\
-`The Opinion columnist explains the threat to national security posed by the app’s Chinese ownership.`\
-https://nytimes.com/2025/01/13/opinion/tiktok-ban-supreme-court.html
-
-**When It Comes to Drinking, There Are No Good Answers**\
-`The surgeon general’s warning is information, not a prescription.`\
-https://nytimes.com/2025/01/13/opinion/alcohol-cancer.html
 
