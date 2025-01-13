@@ -1,3 +1,11 @@
+**Public Schools in Montclair, N.J., Are Closed as ‘Precautionary Measure’**\
+`Local police are investigating a “security concern” that led to the closure, the school district said. The mayor said there was “no immediate threat.”`\
+https://nytimes.com/2025/01/13/nyregion/montclair-nj-schools-closed-threat.html
+
+**Jerar Encarnación might be the power bat the Giants need**\
+`Encarnación didn't wow in his first stint with the Giants, but some of the underlying data suggests he could be a breakout power hitter.`\
+https://nytimes.com/athletic/6053629/2025/01/13/jerar-encarnacion-sf-giants-power-bat/
+
 **Bucks crushed by Knicks as record drops to 0-8 against Eastern Conference's top 3**\
 `"We've gotta get our stuff together, simple as that," Giannis Antetokounmpo said after another blowout loss in New York this season.`\
 https://nytimes.com/athletic/6056733/2025/01/13/bucks-knicks-giannis-antetokounmpo/

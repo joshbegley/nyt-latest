@@ -1,9 +1,13 @@
+**Public Schools in Montclair, N.J., Are Closed as ‘Precautionary Measure’**\
+`Local police are investigating a “security concern” that led to the closure, the school district said. The mayor said there was “no immediate threat.”`\
+https://nytimes.com/2025/01/13/nyregion/montclair-nj-schools-closed-threat.html
+
 **Bucks crushed by Knicks as record drops to 0-8 against Eastern Conference's top 3**\
 `"We've gotta get our stuff together, simple as that," Giannis Antetokounmpo said after another blowout loss in New York this season.`\
 https://nytimes.com/athletic/6056733/2025/01/13/bucks-knicks-giannis-antetokounmpo/
 
 **Jerar Encarnación might be the power bat the Giants need**\
-`Encarnacíon didn't wow in his first stint with the Giants, but some of the underlying data suggests he could be a breakout power hitter.`\
+`Encarnación didn't wow in his first stint with the Giants, but some of the underlying data suggests he could be a breakout power hitter.`\
 https://nytimes.com/athletic/6053629/2025/01/13/jerar-encarnacion-sf-giants-power-bat/
 
 **Ohio State vs Notre Dame national championship roundtable: Storylines and matchups to watch**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6057646/2025/01/13/premier-league-player-arrested-v
 **Talk Turns to ‘L.A. 2.0’**\
 `The governor of California has called for “a Marshall Plan” to rebuild the fire-ravaged city. But big questions loom about more ambitious and costly projects, including the 2028 Summer Olympic Games.`\
 https://nytimes.com/2025/01/13/business/dealbook/rebuilding-los-angeles-olympics-2028.html
-
-**NBA Rewind: Trade season heats up as the Cavaliers' title chances grow stronger**\
-`Who are some of the players who could be moved after Wednesday's key deadline?`\
-https://nytimes.com/athletic/6048015/2025/01/13/nba-trade-deadline-cavaliers/
 
