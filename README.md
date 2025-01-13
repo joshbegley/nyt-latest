@@ -1,3 +1,15 @@
+**Oliviero Toscani, Driving Force Behind Provocative Benetton Ads, Dies at 82**\
+`A photographer and art director, he broke the boundaries of advertising in the 1980s and ’90s, embracing activism with images evoking AIDS and racial and sexual diversity.`\
+https://nytimes.com/2025/01/13/business/oliviero-toscani-benetton-dead.html
+
+**Valencia sign Bournemouth's Max Aarons on loan**\
+`Valencia have signed defender Max Aarons on a loan deal from Bournemouth for the remainder of 2024-25.`\
+https://nytimes.com/athletic/6054109/2025/01/13/bournemouth-transfers-max-aarons-valencia/
+
+**Canadiens weekly notebook: Nick Suzuki the bus driver, the team's teenage years and more**\
+`Also in this week's notebook, Stars coach Pete DeBoer offers thoughts on Martin St. Louis, and a special return visit to Montreal.`\
+https://nytimes.com/athletic/6057439/2025/01/13/canadiens-nick-suzuki-martin-st-louis-pete-deboer/
+
 **Public Schools in Montclair, N.J., Are Closed as ‘Precautionary Measure’**\
 `Local police are investigating a “security concern” that led to the closure, the school district said. The mayor said there was “no immediate threat.”`\
 https://nytimes.com/2025/01/13/nyregion/montclair-nj-schools-closed-threat.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6057870/2025/01/13/joe-gelhardt-leeds-hull-loan/
 **Roki Sasaki, the Blue Jays’ latest big-name pursuit, had meetings in Toronto: Sources**\
 `The Blue Jays have seemingly been linked to every big name — and have landed none of them. Could their Sasaki pursuit prove different?`\
 https://nytimes.com/athletic/6056160/2025/01/13/roki-sasaki-toronto-blue-jays-meeting/
-
-**What I saw in the PWHL this week: Marie-Philip Poulin's Vancouver return, Western expansion?**\
-`The success of "Takeover Tour" games in Seattle, Vancouver and Denver begs the question: Could the PWHL expand to the West Coast?`\
-https://nytimes.com/athletic/6057156/2025/01/13/pwhl-poulin-vancouver-seattle-expansion-heise/
-
-**Premier League player arrested on suspicion of voyeurism, no further action to be taken**\
-`A Premier League player was arrested at his training ground on suspicion of voyeurism.`\
-https://nytimes.com/athletic/6057646/2025/01/13/premier-league-player-arrested-voyeurism/
-
-**Talk Turns to ‘L.A. 2.0’**\
-`The governor of California has called for “a Marshall Plan” to rebuild the fire-ravaged city. But big questions loom about more ambitious and costly projects, including the 2028 Summer Olympic Games.`\
-https://nytimes.com/2025/01/13/business/dealbook/rebuilding-los-angeles-olympics-2028.html
 
