@@ -1,3 +1,7 @@
+**Rodriguez signs for Club Leon after Rayo Vallecano exit**\
+`James Rodriguez has joined Mexican side Club Leon after leaving Rayo Vallecano earlier this month.`\
+https://nytimes.com/athletic/6043637/2025/01/13/james-rodriguez-transfer/
+
 **Lebanon Names Nawaf Salam, a Diplomat and Jurist, as Prime Minister**\
 `The selection of Mr. Salam was seen as a blow to Hezbollah, the Lebanese militant group and political party that has acted as the real power in Lebanon for decades.`\
 https://nytimes.com/2025/01/13/world/middleeast/lebanon-nawaf-salam-prime-minister.html
