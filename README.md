@@ -1,3 +1,7 @@
+**‘Who do we call?’ That’s the question for Altadena residents, as they think about rebuilding.**\
+`By Jesus Jiménez and Vik Jolly`\
+https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/who-do-we-call-thats-the-question-for-altadena-residents-as-they-think-about-rebuilding
+
 **Former Wimbledon champion Vondrousova withdraws from Australian Open**\
 `Former Wimbledon champion Marketa Vondrousova has withdrawn from the Australian Open because of injury, opening up a spot in the draw for British lucky loser Harriet Dart.`\
 https://nytimes.com/athletic/6056917/2025/01/12/marketa-vondrousova-australian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/12/podcasts/try-a-little-tenderness-this-american-li
 **Broncos' early TD vs. Bills gave hope, but only hard lessons came next in playoff loss**\
 `The Broncos weren't alone in being decimated by Buffalo's offense, but the inability to keep pace offensively paints offseason priorities.`\
 https://nytimes.com/athletic/6056670/2025/01/12/broncos-playoffs-loss-bills-wild-card/
-
-**Josh Allen's dominant performance, Bills defensive master class, other observations in wild-card win**\
-`Plus, the offensive line puts on a show and a different role for Matt Milano.`\
-https://nytimes.com/athletic/6056719/2025/01/12/bills-josh-allen-playoffs-wild-card-observations/
 
