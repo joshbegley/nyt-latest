@@ -1,3 +1,7 @@
+**Trump Supporters Go All In for Pete Hegseth With Money and Coordination**\
+`Conservative organizations are targeting Republican senators, saying that they will pay a price if they do not back the president-elect’s choice for defense secretary.`\
+https://nytimes.com/2025/01/13/us/politics/trump-supporters-go-all-in-for-pete-hegseth-with-money-and-coordination.html
+
 **Texas Man Is Charged With Stalking Caitlin Clark**\
 `Prosecutors said the man had sent “sexually violent” messages to the Indiana Fever star and had traveled to Indianapolis to be closer to her.`\
 https://nytimes.com/2025/01/13/us/caitlin-clark-stalker-arrested.html
