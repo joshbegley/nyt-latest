@@ -1,3 +1,7 @@
+**AP men's basketball Top 25: Auburn takes over No. 1 spot, Florida rises**\
+`This week's AP poll brings a new No. 1 and notable movement elsewhere.`\
+https://nytimes.com/athletic/6058460/2025/01/13/ap-mens-basketball-top-25-poll-auburn/
+
 **Ducks midseason report card: Are they truly making progress?**\
 `Assigning a grade to each player at the midpoint of a somewhat confusing season.`\
 https://nytimes.com/athletic/6058977/2025/01/13/anaheim-ducks-analysis-grades-players/
