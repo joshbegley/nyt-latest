@@ -1,3 +1,7 @@
+**NFL divisional-round schedule: TV times, channels, sites set**\
+`Only one more wild-card game between the Minnesota Vikings and Los Angeles Rams remains.`\
+https://nytimes.com/athletic/6057049/2025/01/12/nfl-playoffs-schedule-divisional-round/
+
 **What is the New Glenn rocket?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/12/science/blue-origin-launch-new-glenn/what-is-the-new-glenn-rocket
