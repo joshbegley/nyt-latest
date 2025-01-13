@@ -1,3 +1,11 @@
+**Meghan, Duchess of Sussex, Delays Premiere of Netflix Show Because of Wildfires**\
+`She asked the streaming service to push back the release of her new series, “With Love, Meghan,” which pays tribute to the beauty of Southern California.`\
+https://nytimes.com/2025/01/12/arts/television/meghan-markle-netflix-delay-la-fires.html
+
+**Wrexham could have new route to Europe next season after new plans revealed**\
+`Proposed shake-up to Welsh football could happen by 2025-26`\
+https://nytimes.com/athletic/6055411/2025/01/12/wrexham-could-have-new-route-to-europe-next-season-after-new-plans-revealed/
+
 **Eagles defense shuts down Packers in 22-10 wild-card win: Takeaways**\
 `Vic Fangio's No. 1-ranked Eagles defense picked off Jordan Love three times.`\
 https://nytimes.com/athletic/6055981/2025/01/12/eagles-game-score-playoffs-takeaways-wild-card/
