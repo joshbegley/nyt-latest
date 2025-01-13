@@ -1,3 +1,7 @@
+**What went wrong in Packers' 22-10 wild-card loss to Eagles: Takeaways**\
+`Green Bay had been hampered by slow starts all year. Sunday was as bad as it got — and at the worst possible time.`\
+https://nytimes.com/athletic/6056473/2025/01/12/packers-game-score-playoffs-takeaways-wild-card/
+
 **Meghan, Duchess of Sussex, Delays Premiere of Netflix Show Because of Wildfires**\
 `She asked the streaming service to push back the release of her new series, “With Love, Meghan,” which pays tribute to the beauty of Southern California.`\
 https://nytimes.com/2025/01/12/arts/television/meghan-markle-netflix-delay-la-fires.html
