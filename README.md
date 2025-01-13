@@ -1,3 +1,11 @@
+**A Close Brush With Loss for a Community That Knows It Well**\
+`A 2008 fire gutted a mobile home park in the suburb of Sylmar. Last week, the Hurst fire came frighteningly close, and residents still haven’t let their guard down.`\
+https://nytimes.com/2025/01/12/us/sylmar-los-angeles-mobile-homes-fire.html
+
+**China’s Trade Surplus Reaches Nearly $1 Trillion**\
+`China’s vast exports in 2024 exceeded its imports on a scale seldom seen anywhere except during or immediately after the two world wars.`\
+https://nytimes.com/2025/01/12/business/china-trade-surplus.html
+
 **NFL divisional-round schedule: TV times, channels, sites set**\
 `Only one more wild-card game between the Minnesota Vikings and Los Angeles Rams remains.`\
 https://nytimes.com/athletic/6057049/2025/01/12/nfl-playoffs-schedule-divisional-round/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6056988/2025/01/12/penguins-homestand-bunting-accid
 **Nick Taylor claims dramatic playoff win at Sony Open**\
 `A chip-in eagle on the final hole of regulation play gave him the chance to sniff the trophy. Then he went out and grabbed it.`\
 https://nytimes.com/athletic/6057011/2025/01/12/nick-taylor-sony-open-playoff-golf/
-
-**Most schools in Los Angeles will reopen on Monday.**\
-`Four schools were directly impacted by the Palisades fire and will have to be rebuilt, the schools superintendent announced on Sunday.`\
-https://nytimes.com/live/2025/01/12/us/los-angeles-fires-california/most-schools-in-los-angeles-will-reopen-on-monday
-
-**Welcome to Coco Gauff 3.0: How she rebuilt her serve and forehand**\
-`The world No. 3 had to fix the two most important shots in tennis. This is how she did it`\
-https://nytimes.com/athletic/6054929/2025/01/12/coco-gauff-serve-forehand-tennis-changes/
 
