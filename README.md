@@ -1,3 +1,7 @@
+**Jerar Encarnación might be the power bat the Giants need**\
+`Encarnacíon didn't wow in his first stint with the Giants, but some of the underlying data suggests he could be a breakout power hitter.`\
+https://nytimes.com/athletic/6053629/2025/01/13/jerar-encarnacion-sf-giants-power-bat/
+
 **Ohio State vs Notre Dame national championship roundtable: Storylines and matchups to watch**\
 `The Athletic beat writers Pete Sampson (Notre Dame) and Cameron Teague Robinson (Ohio State) break down the title game. `\
 https://nytimes.com/athletic/6057774/2025/01/13/ohio-state-notre-dame-storylines-matchups-roundtable-cfp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048015/2025/01/13/nba-trade-deadline-cavaliers/
 **Elon Musk Is an ‘Evil Person,’ Steve Bannon Says**\
 `The comments highlighted rifts within the U.S. right wing and between two men who have been influential advisers to President-elect Donald J. Trump.`\
 https://nytimes.com/2025/01/13/us/politics/steve-bannon-elon-musk.html
-
-**Madrid's back line was woeful against Barca, but they won't sign a defender. Why not?**\
-`A bruising Clasico defeat will not alter Madrid's plans for the January window, despite Ancelotti wanting reinforcements at the back`\
-https://nytimes.com/athletic/6056751/2025/01/13/real-madrid-clasico-defence-transfers/
 
