@@ -1,4 +1,8 @@
-**Buckley: Mike Vrabel isn't selling any Patriots glory. He's playing defense against it**\
+**In a Surprise, 76ers Say They Are Staying in South Philadelphia**\
+`The city had approved a plan for a new arena in a struggling part of downtown. But on Monday, the Sixers said a new venue would be built near their current one instead.`\
+https://nytimes.com/2025/01/13/us/76ers-arena-south-philadelphia.html
+
+**Mike Vrabel isn't selling any Patriots glory. He's playing defense against it**\
 `Vrabel wasn't interested in the good old days on Monday. “The banners that hang in our stadium, they’re not going to help us win,” he said.`\
 https://nytimes.com/athletic/6059680/2025/01/13/mike-vrabel-patriots-head-coach/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/nyregion/new-york-schools-cellphone-ban-hochul.ht
 **Special Counsel Report on Hunter Biden Denounces President’s Criticism of Case**\
 `The report by the special counsel, David C. Weiss, criticized President Biden for making “baseless accusations” that threatened “the integrity of the justice system as a whole.”`\
 https://nytimes.com/2025/01/13/us/politics/special-counsel-report-hunter-biden.html
-
-**Strong Winds Threaten to Intensify L.A. Fires**\
-`Also, traffic eased after New York began congestion pricing. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/01/13/briefing/strong-winds-los-angeles-fires-congestion-pricing-data.html
 

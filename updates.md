@@ -1,3 +1,7 @@
+**Buckley: Mike Vrabel isn't selling any Patriots glory. He's playing defense against it**\
+`Vrabel wasn't interested in the good old days on Monday. “The banners that hang in our stadium, they’re not going to help us win,” he said.`\
+https://nytimes.com/athletic/6059680/2025/01/13/mike-vrabel-patriots-head-coach/
+
 **Pope Francis’ Autobiography, ‘Hope,’ Arrives in Bookstores**\
 `The book, to be published on Tuesday, adds details to what is known about the pope’s childhood but falls short when it comes to his later years.`\
 https://nytimes.com/2025/01/13/world/europe/pope-francis-autobiography.html

@@ -1,3 +1,7 @@
+**Buckley: Mike Vrabel isn't selling any Patriots glory. He's playing defense against it**\
+`Vrabel wasn't interested in the good old days on Monday. “The banners that hang in our stadium, they’re not going to help us win,” he said.`\
+https://nytimes.com/athletic/6059680/2025/01/13/mike-vrabel-patriots-head-coach/
+
 **Eaton fire victims sue Southern California Edison.**\
 `Altadena residents said in separate lawsuits that the utility’s electrical equipment sparked the fire, which grew to consume 14,000 acres.`\
 https://nytimes.com/live/2025/01/13/us/fires-los-angeles-california-updates/eaton-fire-victims-sue-southern-california-edison
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/us/politics/special-counsel-report-hunter-biden.h
 **Strong Winds Threaten to Intensify L.A. Fires**\
 `Also, traffic eased after New York began congestion pricing. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/01/13/briefing/strong-winds-los-angeles-fires-congestion-pricing-data.html
-
-**Fires Continue to Rage Across Southern California**\
-`The wildfires have become some of the most destructive blazes in California history, razing neighborhoods and forcing thousands to evacuate their homes.`\
-https://nytimes.com/video/us/100000009924160/southern-california-wildfires.html
 
