@@ -1,3 +1,7 @@
+**Group of Experts Says R.F.K. Jr. Would ‘Significantly Undermine’ Public Health**\
+`A coalition opposing the nominee for health secretary includes faculty members from leading U.S. academic institutions, including public health schools at Yale and Havard.`\
+https://nytimes.com/2025/01/13/us/politics/robert-f-kennedy-jr-public-health-secretary.html
+
 **Falling Child Vaccinations**\
 `U.S. vaccination rates against once-common childhood diseases are falling.`\
 https://nytimes.com/2025/01/13/briefing/childhood-vaccinations-trump.html

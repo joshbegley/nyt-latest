@@ -1,3 +1,7 @@
+**Group of Experts Says R.F.K. Jr. Would ‘Significantly Undermine’ Public Health**\
+`A coalition opposing the nominee for health secretary includes faculty members from leading U.S. academic institutions, including public health schools at Yale and Havard.`\
+https://nytimes.com/2025/01/13/us/politics/robert-f-kennedy-jr-public-health-secretary.html
+
 **Falling Child Vaccinations**\
 `U.S. vaccination rates against once-common childhood diseases are falling.`\
 https://nytimes.com/2025/01/13/briefing/childhood-vaccinations-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6048981/2025/01/13/clippers-schedule-games-wildfire
 **Caleb Williams' rookie season by the numbers: How good was the Bears' QB?**\
 `The numbers only tell us part of the story, but what can we learn about Williams' rookie year from his stats? Let's dive in.`\
 https://nytimes.com/athletic/6052576/2025/01/13/bears-caleb-williams-rookie-stats/
-
-**How the Packers' shortcomings vs. the Eagles might affect their offseason plans**\
-`Special teams woes reared their ugly head yet again for Green Bay, but there's another issue that could use addressing, too.`\
-https://nytimes.com/athletic/6057441/2025/01/13/packers-playoff-loss-special-teams/
 
