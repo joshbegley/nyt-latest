@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6059034/2025/01/13/colts-mailbag-submission-chris-ballard-anthony-richardson/
 
 **Oscar Nominations Are Postponed Because of Wildfires**\
-`To give affected members more time, the academy  extended the voting through Friday and will unveil the results Jan. 23. The nominees luncheon was canceled.`\
+`To give affected members more time, the academy extended the voting through Friday and will unveil the results Jan. 23. The nominees luncheon was canceled.`\
 https://nytimes.com/2025/01/13/movies/oscar-nominations-fires.html
 
 **As He Enters His Final Week in Office, Biden to Promote His Foreign Policy**\
