@@ -1,3 +1,7 @@
+**Trump’s Reckless Greenland Comments Are Not a Joke**\
+`China and Russia are listening.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/trump-greenland-china-taiwan
+
 **Penguins Today: Another way to measure the wild-card race**\
 `Conceded points might be the most appropriate metric to watch in recent seasons.`\
 https://nytimes.com/athletic/6058101/2025/01/13/penguins-today-wild-card-standings/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6054109/2025/01/13/bournemouth-transfers-max-aarons
 https://nytimes.com/athletic/6057439/2025/01/13/canadiens-nick-suzuki-martin-st-louis-pete-deboer/
 
 **Public Schools in Montclair, N.J., Are Closed as ‘Precautionary Measure’**\
-`Local police are investigating a “security concern” that led to the closure, the school district said. The mayor said there was “no immediate threat.”`\
+`The school district said a potential threat had been “neutralized,” hours after announcing that schools would be closed on Monday and that the police were investigating.`\
 https://nytimes.com/2025/01/13/nyregion/montclair-nj-schools-closed-threat.html
 
 **Bucks crushed by Knicks as record drops to 0-8 against Eastern Conference's top 3**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056733/2025/01/13/bucks-knicks-giannis-antetokounm
 **Jerar Encarnación might be the power bat the Giants need**\
 `Encarnación didn't wow in his first stint with the Giants, but some of the underlying data suggests he could be a breakout power hitter.`\
 https://nytimes.com/athletic/6053629/2025/01/13/jerar-encarnacion-sf-giants-power-bat/
-
-**Ohio State vs Notre Dame national championship roundtable: Storylines and matchups to watch**\
-`The Athletic beat writers Pete Sampson (Notre Dame) and Cameron Teague Robinson (Ohio State) break down the title game. `\
-https://nytimes.com/athletic/6057774/2025/01/13/ohio-state-notre-dame-storylines-matchups-roundtable-cfp/
 
