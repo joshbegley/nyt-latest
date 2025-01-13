@@ -1,3 +1,11 @@
+**Eagles LB Dean tears patellar tendon, will miss the rest of playoffs**\
+`Dean's injury is a significant setback with multiple ramifications for the Eagles.`\
+https://nytimes.com/athletic/6058649/2025/01/13/nakobe-dean-eagles-injury/
+
+**USMNT Player Tracker: Pulisic needs support, Sargent's return and combative Adams**\
+`Our weekly roundup of the U.S. contingent's contribution to Europe's elite leagues also takes in Noahkai Banks' Bundesliga debut at Augsburg`\
+https://nytimes.com/athletic/6058485/2025/01/13/pulisic-usmnt-milan-adams-sargent-tracker/
+
 **Dorrington signs new Spurs contract, joins Aberdeen on loan**\
 `Alfie Dorrington has signed a new contract with Tottenham Hotspur and will spend the rest of the season on loan with Aberdeen.`\
 https://nytimes.com/athletic/6058817/2025/01/13/alfie-dorrington-tottenham-aberdeen-loan/
