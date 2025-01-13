@@ -1,3 +1,7 @@
+**News Outlets Batten Down the Hatches for Trump’s Return**\
+`Media organizations are taking unusual steps to prepare for what they fear will be a legal and political onslaught from the new administration.`\
+https://nytimes.com/2025/01/13/business/trump-media-threats.html
+
 **Clemson targeting Penn State's Tom Allen as next defensive coordinator: Sources**\
 `The Nittany Lions ranked No. 7 nationally in total defense this season and came one game short of playing for the national championship. `\
 https://nytimes.com/athletic/6058465/2025/01/13/clemson-tom-allen-defensive-coordinator-penn-state/
