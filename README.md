@@ -1,3 +1,7 @@
+**Madrid's back line was woeful against Barca, but they won't sign a defender. Why not?**\
+`A bruising Clasico defeat will not alter Madrid's plans for the January window, despite Ancelotti wanting reinforcements at the back`\
+https://nytimes.com/athletic/6056751/2025/01/13/real-madrid-clasico-defence-transfers/
+
 **Why Arsenal's FA Cup postponement could prove costly in WSL title race**\
 `This year was supposed to kick off with a bang but, with some FA Cup fourth-round fixtures postponed, it was more like a whimper`\
 https://nytimes.com/athletic/6056657/2025/01/13/wsl-fa-cup-arsenal-manchester-city-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6057478/2025/01/13/barcelona-real-madrid-supercoppa
 **The Pulse: Yes, a game-winning doink**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6057151/2025/01/13/commanders-buccaneers-jayden-daniels-doink-the-pulse/
-
-**Villa agree Malen transfer fee with Dortmund**\
-`Aston Villa have agreed a €23million (£19.`\
-https://nytimes.com/athletic/6032915/2025/01/13/aston-villa-donyell-malen-transfer/
 
