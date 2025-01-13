@@ -1,4 +1,8 @@
 **Penguins' pivotal home stand goes awry with dire standings implications: Observations**\
+`Michael Bunting's absence against Tampa Bay was noticeable after a car accident near the arena Sunday. Bunting was reportedly uninjured.`\
+https://nytimes.com/athletic/6056988/2025/01/12/penguins-homestand-bunting-accident-lightning/
+
+**Penguins' pivotal home stand goes awry with dire standings implications: Observations**\
 `Michael Bunting's absence against Tampa Bay was noticeable after a car accident near the arena Sunday. Sacco said Bunting was uninjured.`\
 https://nytimes.com/athletic/6056988/2025/01/12/penguins-homestand-bunting-accident-lightning/
 
