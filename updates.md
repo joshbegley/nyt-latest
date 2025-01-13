@@ -1,3 +1,7 @@
+**Weekend NHL rankings: The Blue Jackets are the league's best story and it's not close**\
+`Remember when we designated eight teams as sure-thing contenders in October? Let's check back in on that.`\
+https://nytimes.com/athletic/6056487/2025/01/13/nhl-weekend-rankings-blue-jackets-bruins/
+
 **Group of Experts Says R.F.K. Jr. Would ‘Significantly Undermine’ Public Health**\
 `A coalition opposing the nominee for health secretary includes faculty members from leading U.S. academic institutions, including public health schools at Yale and Havard.`\
 https://nytimes.com/2025/01/13/us/politics/robert-f-kennedy-jr-public-health-secretary.html
