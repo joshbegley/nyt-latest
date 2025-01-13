@@ -1,3 +1,7 @@
+**Premier League player arrested on suspicion of voyeurism, no further action to be taken**\
+`A Premier League player was arrested at his training ground on suspicion of voyeurism.`\
+https://nytimes.com/athletic/6057646/2025/01/13/premier-league-player-arrested-voyeurism/
+
 **Talk Turns to ‘L.A. 2.0’**\
 `The governor of California has called for “a Marshall Plan” to rebuild the fire-ravaged city. But big questions loom about more ambitious and costly projects, including the 2028 Summer Olympic Games.`\
 https://nytimes.com/2025/01/13/business/dealbook/rebuilding-los-angeles-olympics-2028.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054866/2025/01/13/novak-djokovic-australian-open-t
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/6057529/2025/01/13/newcastle-questions-transfers-dubravka/
-
-**Heat Today: Pat Riley says Jimmy Butler, today's NBA players 'owe us something'**\
-`Riley expressed his thoughts about modern NBA players in an interview with Dan Le Batard as the Jimmy Butler stalemate continues.`\
-https://nytimes.com/athletic/6056318/2025/01/13/pat-riley-jimmy-butler-trade-heat-nba/
 
