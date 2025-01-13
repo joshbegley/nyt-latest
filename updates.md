@@ -1,3 +1,7 @@
+**Falling Child Vaccinations**\
+`U.S. vaccination rates against once-common childhood diseases are falling.`\
+https://nytimes.com/2025/01/13/briefing/childhood-vaccinations-trump.html
+
 **After 2 years away, Tyler Ivey embarks on a comeback: 'All roads led back to baseball'**\
 `Physical and mental obstacles led Ivey to quit baseball in May 2022. With newfound passion and mechanics, he's looking for another shot.`\
 https://nytimes.com/athletic/6050949/2025/01/13/astros-tyler-ivey-comeback/
