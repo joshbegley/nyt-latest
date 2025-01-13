@@ -1,3 +1,15 @@
+**Dorrington signs new Spurs contract, joins Aberdeen on loan**\
+`Alfie Dorrington has signed a new contract with Tottenham Hotspur and will spend the rest of the season on loan with Aberdeen.`\
+https://nytimes.com/athletic/6058817/2025/01/13/alfie-dorrington-tottenham-aberdeen-loan/
+
+**The Windup: Bregman at center of Boston's decision web**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6058856/2025/01/13/alex-bregman-boston-red-sox-the-windup/
+
+**When to Report, and When to Help Out**\
+`Kellen Browning, a reporter based in San Francisco who has been covering the wildfires, was getting requests from evacuees, and he had a decision to make.`\
+https://nytimes.com/2025/01/13/us/wildfires-reporting-helping.html
+
 **Mike McCarthy out as Cowboys coach: Source**\
 `The move comes after McCarthy and the Cowboys missed the playoffs for the first time since his inaugural season in 2020.`\
 https://nytimes.com/athletic/6007666/2025/01/13/mike-mccarthy-out-dallas-cowboys-head-coach/

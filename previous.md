@@ -1,3 +1,15 @@
+**Dorrington signs new Spurs contract, joins Aberdeen on loan**\
+`Alfie Dorrington has signed a new contract with Tottenham Hotspur and will spend the rest of the season on loan with Aberdeen.`\
+https://nytimes.com/athletic/6058817/2025/01/13/alfie-dorrington-tottenham-aberdeen-loan/
+
+**The Windup: Bregman at center of Boston's decision web**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6058856/2025/01/13/alex-bregman-boston-red-sox-the-windup/
+
+**When to Report, and When to Help Out**\
+`Kellen Browning, a reporter based in San Francisco who has been covering the wildfires, was getting requests from evacuees, and he had a decision to make.`\
+https://nytimes.com/2025/01/13/us/wildfires-reporting-helping.html
+
 **Mike McCarthy out as Cowboys coach: Source**\
 `The move comes after McCarthy and the Cowboys missed the playoffs for the first time since his inaugural season in 2020.`\
 https://nytimes.com/athletic/6007666/2025/01/13/mike-mccarthy-out-dallas-cowboys-head-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6055869/2025/01/13/jake-cielys-2024-fantasy-footbal
 **As L.A. Fires Rage, Pointing Fingers Rather Than Facing Facts**\
 `Readers urge public officials to take action on climate change rather than casting blame. Also: Teflon Don; the Gulf of America; treating schizophrenia.`\
 https://nytimes.com/2025/01/13/opinion/los-angeles-fires-blame.html
-
-**The reason Ruben Amorim's Man Utd are better against top sides is tactical, not psychological**\
-`Displays like the one at the Emirates won’t win style points, and probably won’t win league titles — but might just win United a cup`\
-https://nytimes.com/athletic/6057590/2025/01/13/manchester-united-amorim-tactics-top-sides/
-
-**In These 4 Novels, the Detectives Have Killer Instincts**\
-`Our columnist on the month’s best new releases.`\
-https://nytimes.com/2025/01/13/books/review/new-crime-novels.html
-
-**An Inauguration Watch Party Aimed at Celebrating Fossil Fuels**\
-`Harold G. Hamm, the founder of the Oklahoma-based Continental Resources, and other oil and gas companies stand to profit from Donald Trump’s energy policies.`\
-https://nytimes.com/2025/01/13/climate/inauguration-plans-harold-hamm-fossil-fuels.html
 
