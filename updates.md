@@ -1,3 +1,7 @@
+**Suns, with three wins in a row, enter what feels like a a make-or-break stretch**\
+`After a recent win, Devin Booker was asked: Do you believe momentum can stretch from game to game? “Hell, yeah,’’ he said.`\
+https://nytimes.com/athletic/6059997/2025/01/14/phoenix-suns-winning-streak-road-trip-hornets-hawks/
+
 **Is Beijing Plotting a Musk Option for TikTok?**\
 `As the popular video app faces a ban in the United States, Chinese officials are said to be weighing options to save it — including a sale to the tech mogul.`\
 https://nytimes.com/2025/01/14/business/dealbook/china-musk-tiktok.html
