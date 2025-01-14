@@ -1,3 +1,7 @@
+**Many of California’s Most Destructive Fires Were Caused by Power Lines**\
+`Officials are probing whether electrical equipment sparked the Los Angeles fires. Such infrastructure has ignited vast destruction in recent years.`\
+https://nytimes.com/interactive/2025/01/13/us/los-angeles-fires-cause.html
+
 **Lakers, Clippers resume at home as fires rage in L.A.**\
 `Both teams played on the road last week, and Monday marked their first home contests since the Palisades Fire began Tuesday.`\
 https://nytimes.com/athletic/6060049/2025/01/13/lakers-clippers-los-angeles-fires-resume-home-games/
