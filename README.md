@@ -1,3 +1,7 @@
+**Vast Trove of Arnold Schoenberg’s Music Is Destroyed in Fire**\
+`An estimated 100,000 scores by Schoenberg, the groundbreaking 20th-century composer, were destroyed when the publishing company his heirs founded burned down.`\
+https://nytimes.com/2025/01/13/arts/music/arnold-schoenberg-scores-fire.html
+
 **Elon Musk Is Expected to Use Office Space in the White House Complex**\
 `The location suggests that Mr. Musk, who owns companies with billions of dollars in contracts with the federal government, will continue to have remarkable access to President-elect Donald J. Trump.`\
 https://nytimes.com/2025/01/13/us/politics/elon-musk-white-house-trump.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6059762/2025/01/13/roki-sasaki-finalists-dodgers-pa
 `<p>One more game to go! Buckeyes or Fighting Irish?</p>
 <p>Leave your questions here.`\
 https://nytimes.com/athletic/6059819/2025/01/13/submit-a-question-for-stewart-mandels-college-football-mailbag-288/
-
-**Cubs are informed that Roki Sasaki will not be signing with them: Source**\
-`Chicago's recent success with Japanese players had some believing it could be a sleeper in the process.`\
-https://nytimes.com/athletic/6059774/2025/01/13/chicago-cubs-roki-sasaki-decision-update/
 
