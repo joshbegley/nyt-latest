@@ -1,3 +1,7 @@
+**Ancelotti reconsidering Real Madrid tactics for big games after Barcelona**\
+`Real Madrid head coach Carlo Ancelotti is seriously reconsidering his tactics for big games after his side’s 5-2 Supercopa de Espana final defeat by Barcelona.`\
+https://nytimes.com/athletic/6060920/2025/01/14/carlo-ancelotti-real-madrid-tactics/
+
 **Lazio's club falconer, his prosthetic penis and a very unusual sacking**\
 `Juan Bernabe has lost his job as Lazio's falconer after sharing a photo of himself which ‘astonished’ the club`\
 https://nytimes.com/athletic/6060773/2025/01/14/lazio-falconer-prosthetic-penis-sacked/
