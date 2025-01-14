@@ -1,5 +1,17 @@
+**Garnet Hathaway's tenacity, Noah Cates' offense fuel Flyers' best win of the season**\
+`After a terrible first period, the Flyers pulled off a comeback against the defending champs for their first consecutive wins in a month.`\
+https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-panthers/
+
+**Chris Boucher deserves this final flourish, likely his last with the Raptors**\
+`Despite his odd combination of skills, Boucher has picked up lessons to keep himself relevant and viable during his 7 years with Toronto.`\
+https://nytimes.com/athletic/6060198/2025/01/13/chris-boucher-final-flourish-with-raptors/
+
+**Projecting final 8 NFL playoff teams’ odds to win Super Bowl, with divisional matchup analysis**\
+`Thirty-two teams embarked on a mission to win Super Bowl LIX in New Orleans. Eight teams left. `\
+https://nytimes.com/athletic/6044701/2025/01/13/nfl-super-bowl-playoff-chances-divisional-round/
+
 **NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
-`Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
+`The Rams opened as 6-point underdogs after a win Monday night. Bills-Ravens is nearly a pick'em and Chiefs, Lions are big favorites.`\
 https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
 
 **Many of California’s Most Destructive Fires Were Caused by Power Lines**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/13/crosswords/daily-puzzle-2025-01-14.html
 **Troy Aikman says he's 'not sure' Cowboys head coach is 'a coveted job'**\
 `The Cowboys and former head coach Mike McCarthy parted ways on Tuesday after five years.`\
 https://nytimes.com/athletic/6060018/2025/01/13/troy-aikman-comments-cowboys-mike-mccarthy-head-coach/
-
-**Corrections: Jan. 14, 2025**\
-`Corrections that appeared in print on Tuesday, Jan. 14, 2025.`\
-https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-14-2025.html
-
-**A Father and Son Called for Help Escaping as Flames Approached. None Came.**\
-`The man and his son, who both used wheelchairs, called for help in evacuating from the Eaton fire in California. They were found dead later that day, and now their family is asking what happened.`\
-https://nytimes.com/2025/01/13/us/eaton-fire-victims.html
-
-**Canada's new women's coach Casey Stoney addresses drone scandal**\
-`Stoney's contract runs through 2027, the next Women's World Cup, with the option for 2028.`\
-https://nytimes.com/athletic/6059830/2025/01/13/canada-women-coach-drone-scandal-olympics-soccer/
 
