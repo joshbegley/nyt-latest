@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/13/us/palisades-fire-evacuation-zone.html
 `Quotation of the Day for Tuesday, January 14, 2025.`\
 https://nytimes.com/2025/01/13/pageoneplus/quote-of-the-day-carnage-in-kursk-for-a-costly-bargaining-chip.html
 
-**Garnet Hathaway's tenacity, Noah Cates' offense fuel Flyers' best win of the season**\
+**Flyers' best win of season fueled by Garnet Hathaway's tenacity, Noah Cates' offense**\
 `After a terrible first period, the Flyers pulled off a comeback against the defending champs for their first consecutive wins in a month.`\
 https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-panthers/
 

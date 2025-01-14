@@ -1,3 +1,11 @@
+**Families Struggle to Access the Palisades Fire Evacuation Zone**\
+`Hundreds of people trying to visit properties inside the zone in coastal Los Angeles were turned away on Monday. Frustration was mounting.`\
+https://nytimes.com/2025/01/13/us/palisades-fire-evacuation-zone.html
+
+**Quote of the Day: Carnage in Kursk, for a Costly Bargaining Chip**\
+`Quotation of the Day for Tuesday, January 14, 2025.`\
+https://nytimes.com/2025/01/13/pageoneplus/quote-of-the-day-carnage-in-kursk-for-a-costly-bargaining-chip.html
+
 **Garnet Hathaway's tenacity, Noah Cates' offense fuel Flyers' best win of the season**\
 `After a terrible first period, the Flyers pulled off a comeback against the defending champs for their first consecutive wins in a month.`\
 https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-panthers/
