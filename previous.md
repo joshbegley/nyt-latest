@@ -1,3 +1,7 @@
+**The Airborne Flames**\
+`We explain why the Los Angeles fires have been so hard to contain.`\
+https://nytimes.com/2025/01/14/briefing/la-wildfires-firefighting.html
+
 **In Global Market Rout, Britain Is the ‘Weakest Link’**\
 `Investors are demanding sharply higher yields on government bonds, threatening to upend the Labour Party’s plans to reinvigorate a stagnant British economy.`\
 https://nytimes.com/2025/01/14/business/bonds-gilt-yield-britain-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058651/2025/01/14/arsenal-questions-arteta-transfe
 **Special Counsel Report Says Trump Would Have Been Convicted, and Confirmation Hearings Begin**\
 `Plus, don’t go to this “Sex and the City” spot.`\
 https://nytimes.com/2025/01/14/podcasts/trump-convicted-report-confirmation-hearings.html
-
-**Could the L.A. Fires Have Been Stopped Sooner?**\
-`California has focused on fortifying communities against wildfires. Why was it not enough?`\
-https://nytimes.com/2025/01/14/podcasts/the-daily/la-fires-preparedness-california.html
 

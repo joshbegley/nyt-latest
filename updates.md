@@ -1,3 +1,7 @@
+**The Airborne Flames**\
+`We explain why the Los Angeles fires have been so hard to contain.`\
+https://nytimes.com/2025/01/14/briefing/la-wildfires-firefighting.html
+
 **Ben Shelton, serve savant, wants to talk about the return**\
 `The American is known for his rocketing 145mph serve. He's more concerned with getting other people's back`\
 https://nytimes.com/athletic/6060540/2025/01/14/ben-shelton-tennis-serve-return-explained-australian-open/
