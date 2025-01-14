@@ -1,3 +1,7 @@
+**The Pulse: The Vikings' shocking collapse**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6059527/2025/01/14/rams-vikings-wild-card-the-pulse/
+
 **The Airborne Flames**\
 `We explain why the Los Angeles fires have been so hard to contain.`\
 https://nytimes.com/2025/01/14/briefing/la-wildfires-firefighting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059974/2025/01/14/cubs-justin-steele-kyle-tucker-i
 **Arsenal live Q&A: James, Amy, Art and Jordan answer your questions**\
 `Get your questions in for James, Amy, Art and Jordan and they will join between 1-2pm GMT (8am-9am ET) to answer as many as they can.`\
 https://nytimes.com/athletic/6058651/2025/01/14/arsenal-questions-arteta-transfers-tactics/
-
-**Special Counsel Report Says Trump Would Have Been Convicted, and Confirmation Hearings Begin**\
-`Plus, don’t go to this “Sex and the City” spot.`\
-https://nytimes.com/2025/01/14/podcasts/trump-convicted-report-confirmation-hearings.html
 
