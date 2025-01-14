@@ -1,3 +1,7 @@
+**Biden Administration Adds 37 Chinese Companies to Forced Labor List**\
+`The administration announced it would penalize its largest-ever batch of companies linked to Xinjiang, including major suppliers of critical minerals and textiles.`\
+https://nytimes.com/2025/01/14/business/economy/forced-labor-list-china.html
+
 **Suns, with three wins in a row, enter what feels like a a make-or-break stretch**\
 `After a recent win, Devin Booker was asked: Do you believe momentum can stretch from game to game? “Hell, yeah,’’ he said.`\
 https://nytimes.com/athletic/6059997/2025/01/14/phoenix-suns-winning-streak-road-trip-hornets-hawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6060813/2025/01/14/nkunku-chelsea-bayern/
 **NFL wild-card best and worst coaching decisions: Todd Monken, Ravens outwit Steelers' D**\
 `Pittsburgh's strategy to stop the Lamar Jackson-Derrick Henry attack wasn't enough, and Texans OC Bobby Slowik adjusted nicely.`\
 https://nytimes.com/athletic/6059622/2025/01/14/nfl-wild-card-results-scores-coaching-decisions/
-
-**Here’s what to know about the hearing.**\
-`By Helene Cooper`\
-https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/heres-what-to-know-about-the-hearing
 
