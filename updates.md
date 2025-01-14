@@ -1,3 +1,19 @@
+**Phillies spring training preview: A rundown of the non-roster invitees**\
+`The Phillies will bring 23 players to camp in addition to the 40 on the current 40-man roster. Here's a breakdown of the camp extras.`\
+https://nytimes.com/athletic/6061470/2025/01/14/phillies-spring-training-non-roster-invitees/
+
+**What I'm hearing: All eyes on the farm**\
+`Kyle Dubas seems poised to help the Penguins without giving up any valuable assets.`\
+https://nytimes.com/athletic/6056175/2025/01/14/penguins-ahl-prospects-kyle-dubas/
+
+**New Administration to Take Over in Challenging Era for the Pentagon**\
+`The incoming defense secretary will face several challenges, including the war in Ukraine and the turmoil in the Middle East.`\
+https://nytimes.com/2025/01/14/us/politics/trump-defense-secretary-ukraine-middle-east.html
+
+**Des Moines Art Center to Demolish Work and Pay Land Artist $900,000**\
+`The artist Mary Miss agreed to the settlement, ending a yearlong battle to save her work. The museum said her piece, which it had commissioned, had become a safety hazard.`\
+https://nytimes.com/2025/01/14/arts/design/des-moines-art-center-mary-miss-settlement-land-art.html
+
 **Preston Clark Steps Into the Spotlight at Bar Mercer**\
 `Oases takes an Ayurvedic approach to cooking, the chef Francis Mallmann comes to New York and more restaurant news.`\
 https://nytimes.com/2025/01/14/dining/nyc-restaurant-news.html

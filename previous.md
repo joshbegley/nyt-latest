@@ -1,3 +1,11 @@
+**Phillies spring training preview: A rundown of the non-roster invitees**\
+`The Phillies will bring 23 players to camp in addition to the 40 on the current 40-man roster. Here's a breakdown of the camp extras.`\
+https://nytimes.com/athletic/6061470/2025/01/14/phillies-spring-training-non-roster-invitees/
+
+**What I'm hearing: All eyes on the farm**\
+`Kyle Dubas seems poised to help the Penguins without giving up any valuable assets.`\
+https://nytimes.com/athletic/6056175/2025/01/14/penguins-ahl-prospects-kyle-dubas/
+
 **Preston Clark Steps Into the Spotlight at Bar Mercer**\
 `Oases takes an Ayurvedic approach to cooking, the chef Francis Mallmann comes to New York and more restaurant news.`\
 https://nytimes.com/2025/01/14/dining/nyc-restaurant-news.html
@@ -10,7 +18,7 @@ https://nytimes.com/2025/01/14/theater/under-the-radar-festival-new-york.html
 `The complaint accuses the company of underpaying female, Black and Hispanic employees compared with their male and white counterparts.`\
 https://nytimes.com/2025/01/14/business/mastercard-26-million-pay-discrimination.html
 
-**New Administration Takes Over in Challenging Era for the Pentagon**\
+**New Administration to Take Over in Challenging Era for the Pentagon**\
 `The incoming defense secretary will face several challenges, including the war in Ukraine and the turmoil in the Middle East.`\
 https://nytimes.com/2025/01/14/us/politics/trump-defense-secretary-ukraine-middle-east.html
 
@@ -18,8 +26,8 @@ https://nytimes.com/2025/01/14/us/politics/trump-defense-secretary-ukraine-middl
 `Heineman was involved in a traffic accident while walking around Salt Lake City on Monday night.`\
 https://nytimes.com/athletic/6061579/2025/01/14/canadiens-emil-heineman-hit-car/
 
-**Des Moines Art Center to Demolish Land Art It Commissioned**\
-`In a settlement, the artist Mary Miss agreed to accept $900,000 after a yearlong battle to save her work. The museum said it had become a safety hazard.`\
+**Des Moines Art Center to Demolish Work and Pay Land Artist $900,000**\
+`The artist Mary Miss agreed to the settlement, ending a yearlong battle to save her work. The museum said her piece, which it had commissioned, had become a safety hazard.`\
 https://nytimes.com/2025/01/14/arts/design/des-moines-art-center-mary-miss-settlement-land-art.html
 
 **Aston Villa's challenge is to solve the riddle of Donyell Malen**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049683/2025/01/14/donyell-malen-aston-villa-dortmu
 **The Wait, the Worry and the Fear**\
 `Matt Stevens, an arts and culture reporter based in Los Angeles, finds a personal connection between fires past and present.`\
 https://nytimes.com/2025/01/14/us/los-angeles-wildfires-fear.html
-
-**Malen completes Villa move from Dortmund**\
-`Aston Villa have completed the signing of forward Donyell Malen from Borussia Dortmund.`\
-https://nytimes.com/athletic/6057566/2025/01/14/donyell-malen-aston-villa/
-
-**Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
-`What happens on Meta’s platforms is more than just a matter of company policy.`\
-https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html
 
