@@ -1,3 +1,7 @@
+**U.S. Oil Production Is Booming. Oil Jobs Are Not.**\
+`The industry is pumping ever more oil and natural gas, but it is doing so with only about three-quarters as many workers as it employed a decade ago.`\
+https://nytimes.com/2025/01/14/business/energy-environment/oil-gas-jobs.html
+
 **Commanders' fourth-down effectiveness could be pivotal vs. aggressive-natured Lions**\
 `Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC championship on the line.`\
 https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6060773/2025/01/14/lazio-falconer-prosthetic-penis-
 **Australian Open day 3: Daniil Medvedev escapes upset with a smashed racket**\
 `The No. 5 seed staved off an upset, two players posted incredible break point numbers, and Rod Laver Arena became a cauldron of nerves`\
 https://nytimes.com/athletic/6060313/2025/01/14/australian-open-recap-daniil-medvedev-racket-camera/
-
-**Biden Administration Adds 37 Chinese Companies to Forced Labor List**\
-`The administration announced it would penalize its largest-ever batch of companies linked to Xinjiang, including major suppliers of critical minerals and textiles.`\
-https://nytimes.com/2025/01/14/business/economy/forced-labor-list-china.html
 
