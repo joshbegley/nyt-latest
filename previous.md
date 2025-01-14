@@ -1,3 +1,15 @@
+**In picturesque Ventura County, the threat of fire looms.**\
+`By Kate Christobek and Sam Stanton`\
+https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/auto-fire-ventura-county
+
+**West Coast college football fan survey: Tell us about your first season in a new league**\
+`Did you enjoy your team's first season in its new league? Did you travel as much? Are you still passionate about college football?`\
+https://nytimes.com/athletic/6061047/2025/01/14/college-football-west-coast-pac-12/
+
+**Nottingham Forest 1 Liverpool 1 - Where does pulsating draw leave the title race?**\
+`The major talking points dissected from the crucial Premier League clash at the City Ground`\
+https://nytimes.com/athletic/6058405/2025/01/14/nottingham-forest-liverpool-premier-league-analysis/
+
 **The Briefing: Brentford 2 Manchester City 2 - Foden hits brace but defensive frailties remain**\
 `Sam Lee breaks down the key moments from Tuesday evening's game in west London`\
 https://nytimes.com/athletic/6058401/2025/01/14/brentford-manchester-city-result-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/14/world/europe/france-prime-minister-bayrou-retirem
 **Pete Hegseth Dresses for Defense**\
 `The nominee for Secretary of Defense wore his patriotism on his sleeve during his confirmation hearing — and his belt, his socks, and his pocket square.`\
 https://nytimes.com/2025/01/14/style/pete-hegseth-confirmation-hearing-image.html
-
-**Shattered in the Fire: A Historic Black Haven**\
-`For Black residents, Altadena represented something more than suburban living. It was a foothold in generational prosperity.`\
-https://nytimes.com/2025/01/14/us/la-fires-altadena-historic-black-community.html
-
-**Until Saturday: 4 (or 5) CFB head coaches in NFL rumors**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6062205/2025/01/14/college-football-nfl-coaches-cfp-championship-until-saturday/
-
-**Mike Tomlin on teams interested in trading for him: 'Save your time'**\
-`Mike Tomlin has presided over the Steelers for 18 seasons, during which he has famously never had a losing season`\
-https://nytimes.com/athletic/6062137/2025/01/14/steelers-mike-tomlin-trade-interest/
 
