@@ -1,3 +1,23 @@
+**Shattered in the Fire: A Historic Black Haven**\
+`For Black residents, Altadena represented something more than suburban living. It was a foothold in generational prosperity.`\
+https://nytimes.com/2025/01/14/us/la-fires-altadena-historic-black-community.html
+
+**Until Saturday: 4 (or 5) CFB head coaches in NFL rumors**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6062205/2025/01/14/college-football-nfl-coaches-cfp-championship-until-saturday/
+
+**Mike Tomlin on teams interested in trading for him: 'Save your time'**\
+`Mike Tomlin has presided over the Steelers for 18 seasons, during which he has famously never had a losing season`\
+https://nytimes.com/athletic/6062137/2025/01/14/steelers-mike-tomlin-trade-interest/
+
+**Wednesday Briefing: A Major U.S. Senate Hearing**\
+`Plus, mapping “The Lord of the Rings”`\
+https://nytimes.com/2025/01/14/briefing/hagseth-hearing-los-angeles-fires-israel-hamas.html
+
+**Investigators Prepare New Attempt to Detain South Korea’s Impeached Leader**\
+`More forces are expected to join the operation to take Yoon Suk Yeol in for questioning after the last attempt was foiled by his large security team.`\
+https://nytimes.com/2025/01/14/world/asia/south-korea-yoon-detain.html
+
 **Kevin Harlan, Amazon near deal to call NBA games**\
 `Amazon will have a one-two play-by-play punch of Ian Eagle and Harlan as it enters the NBA space next season.`\
 https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
