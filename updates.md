@@ -1,3 +1,11 @@
+**The Athletic FC: Milan puzzle over Rashford and Walker, Arteta 'very worried' over Jesus**\
+`Today in TAFC: The rules that mean only one of Rashford or Walker could go to Milan, Arsenal 'very worried' over Gabriel Jesus injury`\
+https://nytimes.com/athletic/6060588/2025/01/14/rashford-walker-milan-transfer-gabriel-jesus/
+
+**Arsenal pursuing deal to sign Zubimendi from Real Sociedad next summer**\
+`Arsenal are pursuing a deal to sign midfielder Martin Zubimendi from Real Sociedad next summer.`\
+https://nytimes.com/athletic/5696861/2025/01/14/arsenal-transfers-martin-zubimendi-summer/
+
 **Jalen Green's growth is boosting the Rockets. Can he stay on this flight path?**\
 `Green torched Memphis for 42 points on Monday and has reached a new level of production and efficiency in January.`\
 https://nytimes.com/athletic/6060404/2025/01/14/jalen-green-rockets-grizzlies/
