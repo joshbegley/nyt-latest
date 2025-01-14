@@ -1,3 +1,11 @@
+**Michelle Obama Will Skip Trump’s Inauguration**\
+`Mrs. Obama also declined to attend the funeral of Jimmy Carter last week, which would have put her face-to-face with Mr. Trump.`\
+https://nytimes.com/2025/01/14/us/politics/michelle-obama-trump-inauguration.html
+
+**California Withdraws Some Requests for Tighter Climate Rules**\
+`State regulators said the measures would probably have been rejected by the Trump administration and that they would focus on homegrown legal strategies instead.`\
+https://nytimes.com/2025/01/14/climate/california-climate-policies.html
+
 **Scoop City: Questions about Darnold's future, Stafford's "pass" & Dallas' next move**\
 `A brief look at the biggest questions from the Rams victory, plus the head coaching search in Dallas.`\
 https://nytimes.com/athletic/6061864/2025/01/14/rams-vikings-fumble-intentional-grounding-dallas-mccarthy-scoop-city/
