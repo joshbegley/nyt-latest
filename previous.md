@@ -1,3 +1,19 @@
+**Governor’s Address Will Examine New York’s Future, and Her Own**\
+`Gov. Kathy Hochul’s State of the State speech is expected to respond to the voter dissatisfaction that became evident in November, especially regarding affordability and crime.`\
+https://nytimes.com/2025/01/14/nyregion/14hochul-state-address-speech.html
+
+**Sequels and Remakes**\
+`When it comes to movies, do you prefer original stories or reboots of your old favorites?`\
+https://nytimes.com/2025/01/14/learning/sequels-and-remakes.html
+
+**Hochul Tries to Sell the Suburbs on Congestion Pricing**\
+`Gov. Kathy Hochul is pointing out possible benefits of congestion pricing to suburban commuters, an influential voting bloc that could decide her political fortunes.`\
+https://nytimes.com/2025/01/14/nyregion/hochul-congestion-pricing-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/14/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and the January window**\
 `This is your weekly guide to the January transfer window`\
 https://nytimes.com/athletic/6057562/2025/01/14/transfer-latest-arsenal-manchester-united-liverpool-real-madrid-barcelona/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/01/14/us/report-of-special-counsel-smith-vo
 **Former defender Jason McCarthy begins a well-trodden Brighton coaching pathway**\
 `McCarthy never played for Brighton but is set to follow in the footsteps of many other fellow ex-pros with the club's under-21s`\
 https://nytimes.com/athletic/6049990/2025/01/14/jason-mccarthy-brighton-coach-under-21s/
-
-**We Must Stand by Ukraine**\
-`Now is the time for the United States to build on its historic success supporting Ukraine, not squander it.`\
-https://nytimes.com/2025/01/14/opinion/us-ukraine-defense-austin-blinken-russia.html
-
-**Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/01/14/briefing/los-angeles-fires-ukraine.html
-
-**Special Counsel Report Says Trump Would Have Been Convicted in Election Case**\
-`The report, which said the special counsel’s office stood “fully behind” the merits of the prosecution, amounted to an extraordinary rebuke of the president-elect.`\
-https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election-jan-6.html
-
-**Democrats Say F.B.I. Did Not Interview Critical Witnesses About Pete Hegseth**\
-`The bureau did not interview an ex-wife of President-elect Donald J. Trump’s pick for defense secretary before the findings on his background check were presented to senators.`\
-https://nytimes.com/2025/01/14/us/fbi-pete-hegseth-background-check.html
 
