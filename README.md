@@ -1,5 +1,5 @@
-**Emma Raducanu's Australian Open starts with a serve with 'a mind of its own' — and a win**\
-`In a patchy serve display, Raducanu found stability on her groundstrokes to reach the second round in Melbourne.`\
+**Emma Raducanu's Australian Open starts with a serve with 'a mind of its own' - and a win**\
+`In a patchy serve display, Raducanu found stability on her groundstrokes to reach the second round in Melbourne`\
 https://nytimes.com/athletic/6060345/2025/01/14/emma-raducanu-australian-open-serve/
 
 **Word of the Day: castigate**\
