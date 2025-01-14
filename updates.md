@@ -1,3 +1,7 @@
+**Aston Villa's challenge is to solve the riddle of Donyell Malen**\
+`Aston Villa's new man is a player once tipped for the top of European football, who has yet to fully convince the world of his talent`\
+https://nytimes.com/athletic/6049683/2025/01/14/donyell-malen-aston-villa-dortmund/
+
 **The Wait, the Worry and the Fear**\
 `Matt Stevens, an arts and culture reporter based in Los Angeles, finds a personal connection between fires past and present.`\
 https://nytimes.com/2025/01/14/us/los-angeles-wildfires-fear.html
