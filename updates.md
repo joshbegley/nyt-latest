@@ -1,3 +1,23 @@
+**Jack Smith’s Accountability Effort Ends With More Freedom for Trump**\
+`The Justice Department now enters a second Trump administration with less authority to pursue a president than it has had in half a century.`\
+https://nytimes.com/2025/01/14/us/politics/jack-smith-trump-presidents.html
+
+**Hegseth Earned $6 Million From TV, Books and Paid Speaking Fees**\
+`Financial reports show the potential defense secretary’s pay from past speaking and writing, some of which provided fodder for senators during his confirmation hearing.`\
+https://nytimes.com/2025/01/14/business/hegseth-earned-6-million-from-tv-books-and-paid-speaking-fees.html
+
+**New Obesity Definition Challenges Current Use of B.M.I.**\
+`An international commission made the case for focusing on body fat quantity and the illnesses people experience.`\
+https://nytimes.com/2025/01/14/health/bmi-obesity-definition.html
+
+**Who’s Investigating South Korea’s President? (And Who’s Protecting Him?)**\
+`A visual guide to the multiple government agencies that are investigating President Yoon Suk Yeol for insurrection and the one that is obligated to protect him.`\
+https://nytimes.com/interactive/2025/01/14/world/asia/south-korea-president-yoon-arrest-people.html
+
+**S.E.C. Sues Elon Musk Over Twitter-Related Securities Violations**\
+`Regulators filed a lawsuit in federal court stemming from Mr. Musk’s $44 billion purchase of the social media company now called X.`\
+https://nytimes.com/2025/01/14/technology/sec-elon-musk-securities-violations.html
+
 **Democrats Question Hegseth About Misconduct Allegations**\
 `Democrats of the Senate Armed Services Committee called Peter Hegseth, president-elect Donald J. Trump’s pick for secretary of defense, unfit to serve. Meanwhile, Republicans praised Mr. Hegseth’s record and performance.`\
 https://nytimes.com/video/us/politics/100000009925640/hegseth-hearing.html
