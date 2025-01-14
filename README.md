@@ -1,3 +1,11 @@
+**Jalen Green's growth is boosting the Rockets. Can he stay on this flight path?**\
+`Green torched Memphis for 42 points on Monday and has reached a new level of production and efficiency in January.`\
+https://nytimes.com/athletic/6060404/2025/01/14/jalen-green-rockets-grizzlies/
+
+**The World’s Largest Human Gathering Begins in India**\
+`About 400 million Hindu pilgrims from around the globe are expected to bathe in and around the Ganges in the religion’s biggest display of unity.`\
+https://nytimes.com/2025/01/14/world/asia/india-hindu-festival-maha-kumbh-mela.html
+
 **Tennis stardom is a roulette wheel. Joao Fonseca is ready to bet on himself**\
 `Joao Fonseca won the ATP Next Gen Finals with his crushing groundstrokes. Now he has a Grand Slam win, too.`\
 https://nytimes.com/athletic/5982298/2025/01/14/joao-fonseca-tennis-player/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6057670/2025/01/14/bo-nix-broncos-year-2-leap/
 **The Pulse: The Vikings' shocking collapse**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6059527/2025/01/14/rams-vikings-wild-card-the-pulse/
-
-**The Airborne Flames**\
-`We explain why the Los Angeles fires have been so hard to contain.`\
-https://nytimes.com/2025/01/14/briefing/la-wildfires-firefighting.html
-
-**In Global Market Rout, Britain Is the ‘Weakest Link’**\
-`Investors are demanding sharply higher yields on government bonds, threatening to upend the Labour Party’s plans to reinvigorate a stagnant British economy.`\
-https://nytimes.com/2025/01/14/business/bonds-gilt-yield-britain-economy.html
 
