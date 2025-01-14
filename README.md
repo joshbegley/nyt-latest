@@ -1,3 +1,7 @@
+**Corrections: Jan. 14, 2025**\
+`Corrections that appeared in print on Tuesday, Jan. 14, 2025.`\
+https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-14-2025.html
+
 **A Father and Son Called for Help Escaping as Flames Approached. None Came.**\
 `The man and his son, who both used wheelchairs, called for help in evacuating from the Eaton fire in California. They were found dead later that day, and now their family is asking what happened.`\
 https://nytimes.com/2025/01/13/us/eaton-fire-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/us/la-fires-evacuations-housing-shelter.html
 **Giants are convinced that Justin Verlander still has passion to excel**\
 `Verlander has been throwing all offseason in an attempt to stave off the injury issues that ruined his 2024 campaign.`\
 https://nytimes.com/athletic/6059751/2025/01/13/sf-giants-justin-verlander-introduction/
-
-**Why Trump Turned to Manifest Destiny**\
-`Donald Trump has long sought to make anything he controls bigger.`\
-https://nytimes.com/2025/01/13/us/politics/trump-greenland-canada-history.html
 
