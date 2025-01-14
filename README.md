@@ -1,3 +1,7 @@
+**Hegseth morphed from a critic of war crimes to a defender of the accused.**\
+`By Dave Philipps and Carol Rosenberg`\
+https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
+
 **Rashida Jones, MSNBC President, Steps Down**\
 `Rebecca Kutler, senior vice president of content strategy at MSNBC, will succeed Ms. Jones as interim president.`\
 https://nytimes.com/2025/01/14/business/media/msnbc-rashida-jones-stepping-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/business/dealbook/china-musk-tiktok.html
 **‘Red Note,’ a Chinese App, Is Dominating Downloads, Thanks to TikTok Users**\
 `To show how little they care about TikTok’s ties to Beijing, people in the United States are downloading one of China’s most popular apps.`\
 https://nytimes.com/2025/01/14/business/tiktok-rednote-xiaohongshu-app.html
-
-**Anysphere, a Maker of A.I. Coding Software, Raises $105 Million**\
-`The company’s Cursor product, which can autocomplete programming code, helped the start-up draw a $2.5 billion valuation.`\
-https://nytimes.com/2025/01/14/business/dealbook/anysphere-cursor-25-billion-valuation.html
 
