@@ -1,3 +1,7 @@
+**Starbucks Visitors Must Now Buy Something to Stay or Use Bathroom**\
+`Starbucks announced the policy reversal as the company’s new chief executive responded to a decline in sales.`\
+https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html
+
 **Coaches vote to push for CFB's portal window to be shortened, moved to January**\
 `The vote came following a meeting of more than 60 FBS head coaches at the American Football Coaches Association convention.`\
 https://nytimes.com/athletic/6061557/2025/01/14/college-football-transfer-portal-window-coaches/
