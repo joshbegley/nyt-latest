@@ -1,3 +1,7 @@
+**Mike McCarthy in, Mike Vrabel out: What's next for Bears' coaching search?**\
+`With Vrabel taking the Patriots' job and McCarthy now available, how does the landscape look in the second week of interviews?`\
+https://nytimes.com/athletic/6059301/2025/01/14/bears-coaching-search-mike-mccarthy-mike-vrabel/
+
 **Who are the 2025 NFL Draft's most intriguing underclassmen prospects?**\
 `Here are 15 names to keep an eye on as the NFL Draft process starts to get rolling. `\
 https://nytimes.com/athletic/6052446/2025/01/14/nfl-draft-2025-prospects-underclassmen-jalen-milroe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059981/2025/01/14/directv-mysports-small-channel-p
 **How Dereck Lively II balances Tyson Chandler comparisons while showcasing versatility**\
 `Lively had an impactful rookie season for the Mavericks, and now the big man has expanded his game, including his passing.`\
 https://nytimes.com/athletic/6059778/2025/01/14/dereck-lively-mavericks-passing-tyson-chandler/
-
-**No Premier League clubs charged with PSR breaches**\
-`No Premier League clubs have been charged with breaches of the Premier League&#8217;s profitability and sustainability rules (PSR) — though Leicester City could still be sanctioned.`\
-https://nytimes.com/athletic/6032852/2025/01/14/leicester-psr-charge-premier-league/
 
