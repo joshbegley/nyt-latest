@@ -1,3 +1,19 @@
+**Readers Pick the Songs That Defined Their Year**\
+`Hear songs from Ana Moura, the Orlons and Colin Hay that defined 2024 for readers.`\
+https://nytimes.com/2025/01/14/arts/music/amplifier-newsletter-sinead-oconnor-ana-moura.html
+
+**Ex-Judge Forced Off Bench for Threats to Teens Is Back on Public Payroll**\
+`Erin P. Gall, who resigned from a New York State Supreme Court judgeship after footage showed her threatening to shoot Black teenagers, is now working as a lawyer for Herkimer County.`\
+https://nytimes.com/2025/01/14/nyregion/erin-gall-ny-judge.html
+
+**Alcohol Offers Some Health Benefits but Raises Cancer Risks, Report Finds**\
+`The second of two analyses intended to shape the upcoming U.S. Dietary Guidelines questions alcohol’s overall benefits.`\
+https://nytimes.com/2025/01/14/health/alcohol-cancer-heart-stroke.html
+
+**California Withdraws Requests for Some Tighter Climate Rules**\
+`State regulators said the measures would probably have been rejected by the Trump administration and that they would focus on homegrown legal strategies instead.`\
+https://nytimes.com/2025/01/14/climate/california-climate-policies.html
+
 **Hegseth Won’t Say Whether Sexual Assault, Drinking or Adultery Is Disqualifying**\
 `Pete Hegseth, President-elect Donald J. Trump’s choice to lead the Pentagon, rejected what he said were “false claims” about his conduct.`\
 https://nytimes.com/2025/01/14/us/politics/hegseth-confirmation-hearing-sexual-assault-drinking-disqualifying.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6061557/2025/01/14/college-football-transfer-portal
 **Greenberg: Given Bears' past and present, can you be too pessimistic about coach search?**\
 `The Bears’ insistence on not learning from their past is why fans are scared about Mike McCarthy and the exhaustive coaching search.`\
 https://nytimes.com/athletic/6061396/2025/01/14/chicago-bears-coach-search-mike-mccarthy-ben-johnson/
-
-**Speaker Orders Capitol Hill Flags Raised for Inauguration**\
-`President-elect Donald J. Trump had complained that flags were scheduled to fly at half-staff — a symbol of mourning for former President Jimmy Carter — on the day of his inauguration.`\
-https://nytimes.com/2025/01/14/us/politics/mike-johnson-flags-trump-inauguration.html
-
-**Hegseth Spars with Senator Over What He Meant by Slang Term**\
-`President-elect Donald J. Trump’s pick for defense secretary used a generally unflattering term to criticize legal officers in the military.`\
-https://nytimes.com/2025/01/14/us/politics/hegseth-jagoff-confirmation-hearing.html
-
-**California’s Insurance System Faces Crucial Test as Losses Mount**\
-`The California FAIR Plan, the state’s insurer of last resort, had just $377 million available last week to pay claims that could reach billions, officials said.`\
-https://nytimes.com/2025/01/14/climate/californias-insurance-fair-plan-fires.html
-
-**Four Takeaways From the Special Counsel’s Report on the Trump Election Case**\
-`Jack Smith wrote that Donald Trump would have been convicted had the case been allowed to proceed and explained why he didn’t pursue charges of incitement of the Jan. 6 riot at the Capitol.`\
-https://nytimes.com/2025/01/14/us/politics/jack-smith-trump-election-report-takeaways.html
 
