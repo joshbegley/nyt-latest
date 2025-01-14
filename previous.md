@@ -1,3 +1,7 @@
+**What to Know About ‘Forever Chemicals’ in Sludge Fertilizer**\
+`How to understand the E.P.A.’s new warning about PFAS levels in sewage sludge.`\
+https://nytimes.com/2025/01/14/climate/what-to-know-about-forever-chemicals-in-sludge-fertilizer.html
+
 **French Prime Minister Signals He Will Revisit Retirement Law That Led to Mass Protests**\
 `His government on shaky ground, Prime Minister François Bayrou offered to reopen debate on the measure, which raised the retirement age in an effort to stabilize the country’s finances.`\
 https://nytimes.com/2025/01/14/world/europe/france-prime-minister-bayrou-retirement-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/us/la-fires-palisades-eaton.html
 **Kevin Harlan, Amazon near deal to call NBA games**\
 `Amazon will have a one-two play-by-play punch of Ian Eagle and Harlan as it enters the NBA space next season.`\
 https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
-
-**Investigators Prepare New Attempt to Detain South Korea’s Impeached Leader**\
-`More forces are expected to join the operation to take Yoon Suk Yeol in for questioning after the last attempt was foiled by his large security team.`\
-https://nytimes.com/2025/01/14/world/asia/south-korea-yoon-detain.html
 

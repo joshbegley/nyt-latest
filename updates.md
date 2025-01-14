@@ -1,3 +1,7 @@
+**What to Know About ‘Forever Chemicals’ in Sludge Fertilizer**\
+`How to understand the E.P.A.’s new warning about PFAS levels in sewage sludge.`\
+https://nytimes.com/2025/01/14/climate/what-to-know-about-forever-chemicals-in-sludge-fertilizer.html
+
 **French Prime Minister Signals He Will Revisit Retirement Law That Led to Mass Protests**\
 `His government on shaky ground, Prime Minister François Bayrou offered to reopen debate on the measure, which raised the retirement age in an effort to stabilize the country’s finances.`\
 https://nytimes.com/2025/01/14/world/europe/france-prime-minister-bayrou-retirement-age.html
