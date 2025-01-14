@@ -1,3 +1,19 @@
+**NC Courage acquires U.S. midfielder Shaw in trade with the Wave**\
+`U.S. midfielder Shaw requested a trade to the Courage last year, per a source briefed on the deal.`\
+https://nytimes.com/athletic/6061303/2025/01/14/jaedyn-shaw-north-carolina-courage/
+
+**For These Teenagers in Ukraine, Hope Arrived at the Stage Door**\
+`The students in a summer acting course performed a play set in America, called, “It’s okay!” And it gave them hope that their lives would be OK, too.`\
+https://nytimes.com/2025/01/14/world/europe/ukraine-russia-teenagers.html
+
+**A Superb, Speedy Chicken**\
+`Ali Slagle’s ginger-lime chicken, bright and bolstering, is ready in just 15 minutes.`\
+https://nytimes.com/2025/01/14/dining/a-superb-speedy-chicken.html
+
+**NBA Power Rankings: Who has exceeded (Pistons) and undershot (76ers) expected win totals?**\
+`As we approach the midpoint of the season, some teams have surprised and others have disappointed. And then there are the Lakers.`\
+https://nytimes.com/athletic/6060870/2025/01/14/nba-power-rankings-cavaliers-lakers-celtics/
+
 **Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
 `<p>With the Jets sitting in first place in the Central, the 4 Nations break coming, and the NHL trade deadline in sight, now&#8217;s a good time to answer your questions.`\
 https://nytimes.com/athletic/6061305/2025/01/14/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-2/
