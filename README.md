@@ -1,3 +1,7 @@
+**Tennis stardom is a roulette wheel. Joao Fonseca is ready to bet on himself**\
+`Joao Fonseca won the ATP Next Gen Finals with his crushing groundstrokes. Now he has a Grand Slam win, too.`\
+https://nytimes.com/athletic/5982298/2025/01/14/joao-fonseca-tennis-player/
+
 **Martinez out for around four weeks with hamstring injury**\
 `Barcelona defender Inigo Martinez has been ruled out for around four weeks with a hamstring injury.`\
 https://nytimes.com/athletic/6060663/2025/01/14/barcelona-inigo-martinez-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/briefing/la-wildfires-firefighting.html
 **In Global Market Rout, Britain Is the ‘Weakest Link’**\
 `Investors are demanding sharply higher yields on government bonds, threatening to upend the Labour Party’s plans to reinvigorate a stagnant British economy.`\
 https://nytimes.com/2025/01/14/business/bonds-gilt-yield-britain-economy.html
-
-**Ukraine Launches ‘Massive’ Drone Attacks Inside Russia, Officials Say**\
-`The barrage appeared to be one of the largest recent assaults in Ukraine’s campaign to damage Russia’s war machine on its home territory.`\
-https://nytimes.com/2025/01/14/world/europe/ukraine-russia-massive-drone-strikes.html
 
