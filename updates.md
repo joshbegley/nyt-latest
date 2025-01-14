@@ -1,3 +1,15 @@
+**Wisconsin wipes slate clean of QBs tied to Phil Longo, parts ways with 2026 commit Jarin Mock**\
+`Jarin Mock was the first committed prospect of the Badgers 2026 recruiting class but was informed of Wisconsin's new direction Tuesday. `\
+https://nytimes.com/athletic/6062193/2025/01/14/wisconsin-college-football-jarin-mock-quarterback-recruiting/
+
+**Depose Maduro**\
+`Combine a powerful incentive and a credible military threat to dislodge him and his cronies.`\
+https://nytimes.com/2025/01/14/opinion/maduro-venezuela-trump.html
+
+**What We Know About the Proposed Gaza Cease-Fire Agreement**\
+`Diplomats expressed cautious optimism on Tuesday that an agreement between Israel and Hamas may be within reach. But they also warned that it was not signed yet.`\
+https://nytimes.com/2025/01/14/world/middleeast/gaza-ceasefire-what-we-know.html
+
 **Dozens of Bodies Recovered From Illegal Mine in South Africa**\
 `The authorities had at one point limited the miners’ access to food, water and other supplies in a blockade that drew criticism from human rights groups.`\
 https://nytimes.com/2025/01/14/world/africa/south-africa-illegal-mine-deaths.html

@@ -1,3 +1,15 @@
+**Wisconsin wipes slate clean of QBs tied to Phil Longo, parts ways with 2026 commit Jarin Mock**\
+`Jarin Mock was the first committed prospect of the Badgers 2026 recruiting class but was informed of Wisconsin's new direction Tuesday. `\
+https://nytimes.com/athletic/6062193/2025/01/14/wisconsin-college-football-jarin-mock-quarterback-recruiting/
+
+**Depose Maduro**\
+`Combine a powerful incentive and a credible military threat to dislodge him and his cronies.`\
+https://nytimes.com/2025/01/14/opinion/maduro-venezuela-trump.html
+
+**What We Know About the Proposed Gaza Cease-Fire Agreement**\
+`Diplomats expressed cautious optimism on Tuesday that an agreement between Israel and Hamas may be within reach. But they also warned that it was not signed yet.`\
+https://nytimes.com/2025/01/14/world/middleeast/gaza-ceasefire-what-we-know.html
+
 **Dozens of Bodies Recovered From Illegal Mine in South Africa**\
 `The authorities had at one point limited the miners’ access to food, water and other supplies in a blockade that drew criticism from human rights groups.`\
 https://nytimes.com/2025/01/14/world/africa/south-africa-illegal-mine-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6058403/2025/01/14/chelsea-2-bournemouth-2-highligh
 **‘The Bunker’ Is a Chilly, Chilling True-Crime Documentary**\
 `The unsettling series, on Viaplay, brings a Swedish kidnapping victim to a detailed reconstruction of a bunker where she was held prisoner.`\
 https://nytimes.com/2025/01/14/arts/television/the-bunker-true-crime-documentary.html
-
-**Bus Monitor Guilty of Child Endangerment After 6-Year-Old Is Strangled**\
-`The bus monitor was acquitted of the more serious manslaughter charges she faced. She was on her phone and had earbuds in when a child seated behind her was strangled by a wheelchair’s harness.`\
-https://nytimes.com/2025/01/14/nyregion/nj-bus-monitor-convicted-child-endangerment.html
-
-**What to Know About ‘Forever Chemicals’ in Sludge Fertilizer**\
-`How to understand the E.P.A.’s new warning about PFAS levels in sewage sludge.`\
-https://nytimes.com/2025/01/14/climate/what-to-know-about-forever-chemicals-in-sludge-fertilizer.html
-
-**French Prime Minister Signals He Will Revisit Retirement Law That Led to Mass Protests**\
-`His government on shaky ground, Prime Minister François Bayrou offered to reopen debate on the measure, which raised the retirement age in an effort to stabilize the country’s finances.`\
-https://nytimes.com/2025/01/14/world/europe/france-prime-minister-bayrou-retirement-age.html
 
