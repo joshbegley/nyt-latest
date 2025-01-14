@@ -1,3 +1,11 @@
+**Hundreds of Teachers Lost Homes in L.A. Fires**\
+`Some teachers are scrambling to find temporary housing, even as they hope to return soon to their classrooms.`\
+https://nytimes.com/2025/01/14/us/la-fires-teachers-schools.html
+
+**Jack Smith’s What-If Report on Trump**\
+`Readers react to the special counsel’s report. Also: Israel, Gaza’s schools and the historians; “people pleasing”; Democrats’ fortunes.`\
+https://nytimes.com/2025/01/14/opinion/jack-smith-donald-trump-special-counsel.html
+
 **Art Collector Says He Lost Warhols and Harings to L.A. Fire**\
 `Ron Rivlin said he had lost about 30 works by Andy Warhol — and dozens more by other artists — when his Pacific Palisades home was destroyed.`\
 https://nytimes.com/2025/01/14/arts/design/la-fires-art-collector-warhol-haring.html
