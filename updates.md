@@ -1,5 +1,13 @@
 **In picturesque Ventura County, the threat of fire looms.**\
 `By Kate Christobek and Sam Stanton`\
+https://nytimes.com/2025/01/14/us/auto-fire-ventura-county.html
+
+**The Briefing: Brentford 2 Manchester City 2 - Foden scores two but defensive frailties remain**\
+`Sam Lee breaks down the key moments from Tuesday evening's game in west London`\
+https://nytimes.com/athletic/6058401/2025/01/14/brentford-manchester-city-result-analysis/
+
+**In picturesque Ventura County, the threat of fire looms.**\
+`By Kate Christobek and Sam Stanton`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/auto-fire-ventura-county
 
 **West Coast college football fan survey: Tell us about your first season in a new league**\
