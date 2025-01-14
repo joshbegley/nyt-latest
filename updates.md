@@ -1,3 +1,11 @@
+**The Wait, the Worry and the Fear**\
+`Matt Stevens, an arts and culture reporter based in Los Angeles, finds a personal connection between fires past and present.`\
+https://nytimes.com/2025/01/14/us/los-angeles-wildfires-fear.html
+
+**Malen completes Villa move from Dortmund**\
+`Aston Villa have completed the signing of forward Donyell Malen from Borussia Dortmund.`\
+https://nytimes.com/athletic/6057566/2025/01/14/donyell-malen-aston-villa/
+
 **Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
 `What happens on Meta’s platforms is more than just a matter of company policy.`\
 https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html

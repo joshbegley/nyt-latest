@@ -1,3 +1,11 @@
+**The Wait, the Worry and the Fear**\
+`Matt Stevens, an arts and culture reporter based in Los Angeles, finds a personal connection between fires past and present.`\
+https://nytimes.com/2025/01/14/us/los-angeles-wildfires-fear.html
+
+**Malen completes Villa move from Dortmund**\
+`Aston Villa have completed the signing of forward Donyell Malen from Borussia Dortmund.`\
+https://nytimes.com/athletic/6057566/2025/01/14/donyell-malen-aston-villa/
+
 **Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
 `What happens on Meta’s platforms is more than just a matter of company policy.`\
 https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6060778/2025/01/14/chelsea-psr-breach-avoid-how/
 **The Bounce: Making sense of this season's confusing NBA Rookie of the Year race**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6060782/2025/01/14/nba-rookie-of-the-year-alex-sarr-jared-mccain-zach-edey-the-bounce/
-
-**Two Blistering Solos Raise the Stakes at Live Artery**\
-`Highlights so far of the 2025 contemporary dance festival, spread across New York City, are Symara Sarai and Leslie Cuyjet’s outstanding dances.`\
-https://nytimes.com/2025/01/14/arts/dance/live-artery-contemporary-dance-festival.html
-
-**Catherine, Princess of Wales, Confirms She Is in Remission From Cancer**\
-`In an Instagram post on Tuesday, she wrote: “It is a relief to now be in remission and I remain focused on recovery.”`\
-https://nytimes.com/2025/01/14/world/europe/kate-middleton-cancer-remission.html
 
