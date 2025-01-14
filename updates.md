@@ -1,3 +1,7 @@
+**Scoop City: Questions about Darnold's future, Stafford's "pass" & Dallas' next move**\
+`A brief look at the biggest questions from the Rams victory, plus the head coaching search in Dallas.`\
+https://nytimes.com/athletic/6061864/2025/01/14/rams-vikings-fumble-intentional-grounding-dallas-mccarthy-scoop-city/
+
 **Cookies, Cocktails and Mushrooms on the Menu as Justices Hear Bank Fraud Case**\
 `In trying to find the line between false statements and misleading ones in the case of a Chicago politician, members of the Supreme Court posed colorful questions.`\
 https://nytimes.com/2025/01/14/us/politics/supreme-court-bank-fraud.html
