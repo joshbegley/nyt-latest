@@ -1,3 +1,19 @@
+**Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
+`What happens on Meta’s platforms is more than just a matter of company policy.`\
+https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html
+
+**Matthew Schaefer leads NHL Central Scouting's midseason rankings for the 2025 draft**\
+`The Athletic's prospects writers Scott Wheeler and Corey Pronman provide their thoughts on NHL Central Scouting's midterm rankings.`\
+https://nytimes.com/athletic/6059256/2025/01/14/matthew-schaefer-nhl-draft-2025-rankings/
+
+**Let Us Help You Find Your Next Thriller**\
+`Whether you're looking for a classic or the latest and greatest, start here.`\
+https://nytimes.com/interactive/2025/books/thriller-books.html
+
+**Catherine, Princess of Wales, Confirms She Is in Remission from Cancer**\
+`In an Instagram post on Tuesday, she wrote: ‘It is a relief to now be in remission and I remain focused on recovery’`\
+https://nytimes.com/2025/01/14/world/europe/kate-middleton-cancer-remission.html
+
 **A.J. Brown read his book during a game. The story behind the book is more unusual**\
 `Former baseball player Jim Murphy went from a "life of solitude" to writing a book that became a viral sensation during the NFL playoffs.`\
 https://nytimes.com/athletic/6061166/2025/01/14/aj-brown-eagles-wild-card-book-reading/

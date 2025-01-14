@@ -1,3 +1,15 @@
+**Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
+`What happens on Meta’s platforms is more than just a matter of company policy.`\
+https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html
+
+**Matthew Schaefer leads NHL Central Scouting's midseason rankings for the 2025 draft**\
+`The Athletic's prospects writers Scott Wheeler and Corey Pronman provide their thoughts on NHL Central Scouting's midterm rankings.`\
+https://nytimes.com/athletic/6059256/2025/01/14/matthew-schaefer-nhl-draft-2025-rankings/
+
+**Let Us Help You Find Your Next Thriller**\
+`Whether you're looking for a classic or the latest and greatest, start here.`\
+https://nytimes.com/interactive/2025/books/thriller-books.html
+
 **A.J. Brown read his book during a game. The story behind the book is more unusual**\
 `Former baseball player Jim Murphy went from a "life of solitude" to writing a book that became a viral sensation during the NFL playoffs.`\
 https://nytimes.com/athletic/6061166/2025/01/14/aj-brown-eagles-wild-card-book-reading/
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/6060782/2025/01/14/nba-rookie-of-the-year-alex-sarr
 `Highlights so far of the 2025 contemporary dance festival, spread across New York City, are Symara Sarai and Leslie Cuyjet’s outstanding dances.`\
 https://nytimes.com/2025/01/14/arts/dance/live-artery-contemporary-dance-festival.html
 
-**Catherine, Princess of Wales, Confirms She is in Remission from Cancer**\
+**Catherine, Princess of Wales, Confirms She Is in Remission from Cancer**\
 `In an Instagram post on Tuesday, she wrote: ‘It is a relief to now be in remission and I remain focused on recovery’`\
 https://nytimes.com/2025/01/14/world/europe/kate-middleton-cancer-remission.html
-
-**Hundreds of Teachers Lost Homes in the L.A. Fires**\
-`Some teachers are scrambling to find temporary housing, even as they hope to return soon to their classrooms.`\
-https://nytimes.com/2025/01/14/us/la-fires-teachers-schools.html
-
-**Jack Smith’s What-If Report on Trump**\
-`Readers react to the special counsel’s report. Also: Israel, Gaza’s schools and the historians; “people pleasing”; Democrats’ fortunes.`\
-https://nytimes.com/2025/01/14/opinion/jack-smith-donald-trump-special-counsel.html
-
-**Art Collector Says He Lost Warhols and Harings to L.A. Fire**\
-`Ron Rivlin said he had lost about 30 works by Andy Warhol — and dozens more by other artists — when his Pacific Palisades home was destroyed.`\
-https://nytimes.com/2025/01/14/arts/design/la-fires-art-collector-warhol-haring.html
 
