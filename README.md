@@ -1,3 +1,7 @@
+**5 Takeaways from Hochul’s State of the State Address**\
+`Child care, housing costs and public safety were the New York governor’s top issues as she outlined her policy plans for the year and for a re-election fight in 2026.`\
+https://nytimes.com/2025/01/14/nyregion/hochul-trump-crime-affordability.html
+
 **Hegseth Earned $6 Million From TV, Books and Paid Speaking Fees**\
 `Financial reports show the potential defense secretary’s pay from past speaking and writing, some of which provided fodder for senators during his confirmation hearing.`\
 https://nytimes.com/2025/01/14/business/pete-hegseth-financial-reports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/nyregion/bannon-wall-case-delay.html
 **Republicans Embraced Hegseth’s Bid to Lead the Pentagon**\
 `Also, Americans are flocking to a little-known Chinese app. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/14/briefing/pete-hegseth-hearing-la-fires-wind.html
-
-**As the Eaton Fire Still Burns, Locals Gather Seeds to Regrow**\
-`In Altadena, a network of home gardeners answer the call to build a free “library” of plant seeds.`\
-https://nytimes.com/2025/01/14/dining/la-eaton-fire-california.html
 
