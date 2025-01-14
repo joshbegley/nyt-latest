@@ -1,3 +1,11 @@
+**Hundreds of Teachers Lost Homes in L.A. Fires**\
+`Some teachers are scrambling to find temporary housing, even as they hope to return soon to their classrooms.`\
+https://nytimes.com/2025/01/14/us/la-fires-teachers-schools.html
+
+**Jack Smith’s What-If Report on Trump**\
+`Readers react to the special counsel’s report. Also: Israel, Gaza’s schools and the historians; “people pleasing”; Democrats’ fortunes.`\
+https://nytimes.com/2025/01/14/opinion/jack-smith-donald-trump-special-counsel.html
+
 **Art Collector Says He Lost Warhols and Harings to L.A. Fire**\
 `Ron Rivlin said he had lost about 30 works by Andy Warhol — and dozens more by other artists — when his Pacific Palisades home was destroyed.`\
 https://nytimes.com/2025/01/14/arts/design/la-fires-art-collector-warhol-haring.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6061066/2025/01/14/olympic-swimmer-gary-hall-jr-med
 **Saudi Arabia Said to Be Close to Deal With Billionaire’s Sports Network**\
 `A unit of the kingdom’s sovereign wealth fund would pay more than $1 billion to buy into DAZN, in the latest sign of its sports ambitions.`\
 https://nytimes.com/2025/01/14/business/saudi-arabia-dazn-sports.html
-
-**Laughing in the Dark**\
-`Are the most intense scenes in “Nosferatu,” “Anora” and “Babygirl” supposed to be funny? If not, why are people cracking up?`\
-https://nytimes.com/2025/01/14/style/laughter-movie-theaters-nosferatu-anora-babygirl.html
-
-**Klopp rules out coaching a Red Bull team**\
-`Former Liverpool manager Jurgen Klopp has ruled out ever coaching any Red Bull football team.`\
-https://nytimes.com/athletic/6061288/2025/01/14/klopp-red-bull-team-coach/
 
