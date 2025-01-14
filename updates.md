@@ -1,3 +1,15 @@
+**No Premier League clubs charged with PSR breaches**\
+`No Premier League clubs have been charged with breaches of the Premier League&#8217;s profitability and sustainability rules (PSR) — though Leicester City could still be sanctioned.`\
+https://nytimes.com/athletic/6032852/2025/01/14/leicester-psr-charge-premier-league/
+
+**Why Cowboys-Mike McCarthy didn't work out: Ugly playoff loss biggest among 4 reasons**\
+`McCarthy's overall lack of playoff success and the offense getting stale are big reasons Jerry Jones is making a coaching change.`\
+https://nytimes.com/athletic/6060217/2025/01/14/cowboys-mike-mccarthy-what-went-wrong-packers-playoffs/
+
+**Nomad no more: After turbulent stretch, Blue Jackets' Zach Aston-Reese has a home**\
+`A one-year extension affirms the fit between Columbus and Aston-Reese: "Yeah, it's a place I want to be."`\
+https://nytimes.com/athletic/6060094/2025/01/14/zach-aston-reese-blue-jackets-contract-extension/
+
 **Ricardo Pepi and his mind-boggling metrics have big clubs circling**\
 `There is a lot to like for teams tempted by the young American and his hot scoring touch`\
 https://nytimes.com/athletic/6050790/2025/01/14/ricardo-pepi-psv-usmnt/

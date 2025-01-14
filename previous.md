@@ -1,3 +1,15 @@
+**No Premier League clubs charged with PSR breaches**\
+`No Premier League clubs have been charged with breaches of the Premier League&#8217;s profitability and sustainability rules (PSR) — though Leicester City could still be sanctioned.`\
+https://nytimes.com/athletic/6032852/2025/01/14/leicester-psr-charge-premier-league/
+
+**Why Cowboys-Mike McCarthy didn't work out: Ugly playoff loss biggest among 4 reasons**\
+`McCarthy's overall lack of playoff success and the offense getting stale are big reasons Jerry Jones is making a coaching change.`\
+https://nytimes.com/athletic/6060217/2025/01/14/cowboys-mike-mccarthy-what-went-wrong-packers-playoffs/
+
+**Nomad no more: After turbulent stretch, Blue Jackets' Zach Aston-Reese has a home**\
+`A one-year extension affirms the fit between Columbus and Aston-Reese: "Yeah, it's a place I want to be."`\
+https://nytimes.com/athletic/6060094/2025/01/14/zach-aston-reese-blue-jackets-contract-extension/
+
 **Ricardo Pepi and his mind-boggling metrics have big clubs circling**\
 `There is a lot to like for teams tempted by the young American and his hot scoring touch`\
 https://nytimes.com/athletic/6050790/2025/01/14/ricardo-pepi-psv-usmnt/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6059442/2025/01/14/jonas-valanciunas-trade-wizards/
 **How the Rams' young DL set the tone for emotional wild-card win over Vikings**\
 `The Rams defensive line sacked Minnesota quarterback Sam Darnold six times in the first two quarters, and recorded nine total sacks.`\
 https://nytimes.com/athletic/6060376/2025/01/14/rams-win-advance-vikings-defense-sacks/
-
-**With Mike Vrabel and Drake Maye, Patriots have one of NFL's better coach-QB pairings**\
-`With its new head coach and rookie quarterback, New England has answers at the two most important positions on the team.`\
-https://nytimes.com/athletic/6059435/2025/01/14/mike-vrabel-drake-maye-patriots/
-
-**Falcons 2024 takeaways: Kirk Cousins costs, veteran additions flop, rookies sit**\
-`Atlanta's pass rush showed life, but the secondary got burned. The pass blocking held up, but Kyle Pitts had another disappointing season.`\
-https://nytimes.com/athletic/6058986/2025/01/14/falcons-2024-takeaways-kirk-cousins-michael-penix-jr/
-
-**The Floods This Time: In the Mediterranean, Climate Change Is Already Here**\
-`Short, heavy rainfall is typical of the Mediterranean, but nothing is typical about what has been happening there recently.`\
-https://nytimes.com/interactive/2025/01/14/world/europe/mediterranean-floods.html
 
