@@ -1,3 +1,7 @@
+**U.S. Oil Production Is Booming. Oil Jobs Are Not.**\
+`The industry is pumping ever more oil and natural gas, but it is doing so with only about three-quarters as many workers as it employed a decade ago.`\
+https://nytimes.com/2025/01/14/business/energy-environment/oil-gas-jobs.html
+
 **Commanders' fourth-down effectiveness could be pivotal vs. aggressive-natured Lions**\
 `Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC championship on the line.`\
 https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
