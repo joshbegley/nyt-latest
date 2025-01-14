@@ -1,3 +1,7 @@
+**A self-made weatherman used Facebook to warn of fire danger. People listened.**\
+`By Lauren Herstik`\
+https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/a-self-made-weatherman-used-facebook-to-warn-of-fire-danger-people-listened
+
 **The Decade That Changed Fitness Forever**\
 `From 1972 to 1982, American exercise entered the modern era. Here are five workouts that changed the game.`\
 https://nytimes.com/interactive/2025/01/14/well/move/fitness-evolution-trends-1970s.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009925640/hegseth-hearing.html
 **And Just Like That, Carrie Bradshaw’s Front Stoop Was Closed**\
 `A West Village homeowner was granted permission to build a gate on her house in an effort to stop overeager ‘Sex and the City’ fans from trespassing.`\
 https://nytimes.com/2025/01/14/realestate/sex-and-the-city-apartment-new-york.html
-
-**Steve Bannon Asks to Replace His Lawyers Again, Possibly Delaying Trial**\
-`The longtime ally of Donald J. Trump faces state charges of bilking donors who gave money to build a border wall. His delay tactics mimic those of his patron.`\
-https://nytimes.com/2025/01/14/nyregion/bannon-wall-case-delay.html
 
