@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/14/business/bonds-gilt-yield-britain-economy.html
 https://nytimes.com/2025/01/14/world/europe/ukraine-russia-massive-drone-strikes.html
 
 **Ben Shelton, serve savant, wants to talk about the return**\
-`The American is known for his rocketing 145mph serve. He's more concerned with getting other people's back.`\
+`The American is known for his rocketing 145mph serve. He's more concerned with getting other people's back`\
 https://nytimes.com/athletic/6060540/2025/01/14/ben-shelton-tennis-serve-return-explained-australian-open/
 
 **Arteta condemns Havertz social media abuse: 'We have to do something about it'**\
