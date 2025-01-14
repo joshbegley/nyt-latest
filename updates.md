@@ -1,3 +1,7 @@
+**Commanders' fourth-down effectiveness could be pivotal vs. aggressive-natured Lions**\
+`Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC championship on the line.`\
+https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
+
 **Steph Curry, Steve Kerr and Warriors are grappling with an existential crossroads**\
 `"We're not giving in. But you have to be realistic organizationally about where you are," Kerr told The Athletic on Monday.`\
 https://nytimes.com/athletic/6060072/2025/01/14/steph-curry-warriors-future-nba-trade-rumors-kerr/
