@@ -1,3 +1,7 @@
+**How Dereck Lively II balances Tyson Chandler comparisons while showcasing versatility**\
+`Lively had an impactful rookie season for the Mavericks, and now the big man has expanded his game, including his passing.`\
+https://nytimes.com/athletic/6059778/2025/01/14/dereck-lively-mavericks-passing-tyson-chandler/
+
 **No Premier League clubs charged with PSR breaches**\
 `No Premier League clubs have been charged with breaches of the Premier League&#8217;s profitability and sustainability rules (PSR) — though Leicester City could still be sanctioned.`\
 https://nytimes.com/athletic/6032852/2025/01/14/leicester-psr-charge-premier-league/
