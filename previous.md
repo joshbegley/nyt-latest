@@ -1,3 +1,7 @@
+**Lazio's club falconer, his prosthetic penis and a very unusual sacking**\
+`Juan Bernabe has lost his job as Lazio's falconer after sharing a photo of himself which ‘astonished’ the club`\
+https://nytimes.com/athletic/6060773/2025/01/14/lazio-falconer-prosthetic-penis-sacked/
+
 **Australian Open day 3: Daniil Medvedev escapes upset with a smashed racket**\
 `The No. 5 seed staved off an upset, two players posted incredible break point numbers, and Rod Laver Arena became a cauldron of nerves`\
 https://nytimes.com/athletic/6060313/2025/01/14/australian-open-recap-daniil-medvedev-racket-camera/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6060488/2025/01/14/vikings-playoffs-loss-sam-darnol
 **Brighton have attempted the most dribbles in Europe - that isn't a good thing**\
 `Fabian Hurzeler is lacking technicians who can control games. It is hurting Brighton's chances of qualifying for Europe`\
 https://nytimes.com/athletic/6058239/2025/01/14/brighton-most-dribbles-issue-control/
-
-**Chelsea to demand around £65m for Nkunku**\
-`Chelsea will demand a fee of around £65million for Christopher Nkunku, with Bayern Munich interested in signing the forward.`\
-https://nytimes.com/athletic/6060813/2025/01/14/nkunku-chelsea-bayern/
 
