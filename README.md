@@ -1,3 +1,7 @@
+**Ricardo Pepi and his mind-boggling metrics have big clubs circling**\
+`There is a lot to like for teams tempted by the young American and his hot scoring touch`\
+https://nytimes.com/athletic/6050790/2025/01/14/ricardo-pepi-psv-usmnt/
+
 **Howe hopeful on Isak availability for Newcastle against Wolves**\
 `Eddie Howe says Alexander Isak is expected to be fit for Newcastle United’s home match against Wolverhampton Wanderers on Wednesday night.`\
 https://nytimes.com/athletic/6060537/2025/01/14/alexander-isak-newcastle-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058986/2025/01/14/falcons-2024-takeaways-kirk-cous
 **The Floods This Time: In the Mediterranean, Climate Change Is Already Here**\
 `Short, heavy rainfall is typical of the Mediterranean, but nothing is typical about what has been happening there recently.`\
 https://nytimes.com/interactive/2025/01/14/world/europe/mediterranean-floods.html
-
-**After Loss, Tim Walz Faces Party’s Sinking Fortunes in Minnesota**\
-`Governor Walz’s party has lost control of the Minnesota Legislature and faces mounting criticism as a budget deficit looms.`\
-https://nytimes.com/2025/01/14/us/after-loss-tim-walz-faces-partys-sinking-fortunes-in-minnesota.html
 
