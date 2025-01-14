@@ -1,3 +1,11 @@
+**Pistons' trust in one another building after another win over Knicks in New York**\
+`Detroit improved to 7-1 in 2025 as Cade Cunningham and Malik Beasley shined at Madison Square Garden.`\
+https://nytimes.com/athletic/6060426/2025/01/14/pistons-knicks-cade-cunningham-malik-beasley/
+
+**Canucks midseason report cards: Grading every Vancouver forward’s performance**\
+`As the Canucks enter the stretch run of their season, here is a midseason grade for each forward.`\
+https://nytimes.com/athletic/6059445/2025/01/14/canucks-nhl-forward-report-cards-2025/
+
 **Hegseth will draw on combat experience in his pitch to lead the Pentagon.**\
 `By Karoun Demirjian`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-draws-on-combat-experience-in-his-pitch-to-lead-the-pentagon
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/business/media/msnbc-rashida-jones-stepping-down.
 **All eyes are on Ernst as Hegseth faces a public grilling from senators.**\
 `The Iowa Republican who initially expressed skepticism about President-elect Donald J. Trump’s pick for defense secretary has tempered her tone but not yet committed to support him.`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/all-eyes-are-on-ernst-as-hegseth-faces-a-public-grilling-from-senators
-
-**Ancelotti reconsidering Real Madrid tactics for big games after Barcelona**\
-`Real Madrid head coach Carlo Ancelotti is seriously reconsidering his tactics for big games after his side’s 5-2 Supercopa de Espana final defeat by Barcelona.`\
-https://nytimes.com/athletic/6060920/2025/01/14/carlo-ancelotti-real-madrid-tactics/
-
-**Lazio's club falconer, his prosthetic penis and a very unusual sacking**\
-`Juan Bernabe has lost his job as Lazio's falconer after sharing a photo of himself which ‘astonished’ the club`\
-https://nytimes.com/athletic/6060773/2025/01/14/lazio-falconer-prosthetic-penis-sacked/
 
