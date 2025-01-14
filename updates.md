@@ -1,3 +1,7 @@
+**Canada's new women's coach Casey Stoney addresses drone scandal**\
+`Stoney's contract runs through 2027, the next Women's World Cup, with the option for 2028.`\
+https://nytimes.com/athletic/6059830/2025/01/13/canada-women-coach-drone-scandal-olympics-soccer/
+
 **You Can Have ‘Sex and the City,’ Just Not on the Front Stoop**\
 `The real-life owner of the Manhattan building where Carrie Bradshaw lived wants to erect a gate to deter overzealous fans from trespassing.`\
 https://nytimes.com/2025/01/13/realestate/carrie-bradshaw-sex-and-the-city-apartment-nyc.html
