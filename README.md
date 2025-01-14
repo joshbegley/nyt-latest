@@ -1,3 +1,7 @@
+**In a First, the E.P.A. Warns of ‘Forever Chemicals’ in Fertilizer**\
+`Levels of PFAS in sewage sludge used as fertilizer can pose risks that sometimes exceed safety thresholds “by several orders of magnitude,” the agency said.`\
+https://nytimes.com/2025/01/14/climate/epa-pfas-forever-chemicals-sludge-fertilizer.html
+
 **The seven points that prove that Joao Fonseca is set for tennis stardom**\
 `Fonseca has long looked like a star-in-waiting. Under pressure at his first Grand Slam, he delivered beyond the tennis world's expectations.`\
 https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049162/2025/01/14/vitor-reis-manchester-city-trans
 **Hegseth morphed from a critic of war crimes to a defender of the accused.**\
 `By Dave Philipps and Carol Rosenberg`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
-
-**Rashida Jones, MSNBC President, Steps Down**\
-`Rebecca Kutler, senior vice president of content strategy at MSNBC, will succeed Ms. Jones as interim president.`\
-https://nytimes.com/2025/01/14/business/media/msnbc-rashida-jones-stepping-down.html
 
