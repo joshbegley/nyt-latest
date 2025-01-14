@@ -1,3 +1,11 @@
+**Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
+`<p>With the Jets sitting in first place in the Central, the 4 Nations break coming, and the NHL trade deadline in sight, now&#8217;s a good time to answer your questions.`\
+https://nytimes.com/athletic/6061305/2025/01/14/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-2/
+
+**Pakistan Orders Inquiry After Complaints That Airline Ad Evoked 9/11**\
+`An advertisement meant to celebrate the resumption of flights to Paris showed a jet pointed toward the Eiffel Tower.`\
+https://nytimes.com/2025/01/14/world/asia/pakistan-airlines-ad-eiffel-tower-paris.html
+
 **The seven points that prove Joao Fonseca is set for tennis stardom**\
 `Fonseca has long looked like a star-in-waiting. Under pressure in his first Grand Slam set, he delivered beyond those lofty expectations`\
 https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
