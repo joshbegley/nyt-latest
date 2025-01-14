@@ -1,3 +1,15 @@
+**Biden Will Remove Cuba From List of State Sponsors of Terrorism**\
+`The decision is the latest in a series of conflicting U.S. approaches to Cuba by different administrations.`\
+https://nytimes.com/2025/01/14/us/politics/biden-cuba.html
+
+**Hegseth Refuses to Say Whether Sexual Assault Is Disqualifying**\
+`Pete Hegseth, President-elect Donald J. Trump’s nominee for defense secretary, declined to say whether assault or excessive drinking would disqualify someone from the position and called allegations about his past conduct “false claims.”`\
+https://nytimes.com/video/us/politics/100000009926304/hegseth-kaine-disqualifying-conduct-claims.html
+
+**Lyon owner Textor accused of not understanding French football's rules**\
+`The boss of French football’s financial regulator has hit back at criticisms made by Lyon owner John Textor, accusing the American of a “clear and persistent lack of understanding” of the rules.`\
+https://nytimes.com/athletic/6062013/2025/01/14/textor-lyon-dncg-ligue-1/
+
 **Senate Hearings for Trump’s Cabinet Picks Have Begun. Here’s the Schedule.**\
 `Selections for attorney general, secretary of homeland security, secretary of state and Treasury secretary are among those set to have hearings this week.`\
 https://nytimes.com/2025/01/14/us/politics/trump-cabinet-senate-hearings-schedule.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6061927/2025/01/14/blackhawks-seth-jones-boos-contr
 **House Passes Bill to Bar Trans Athletes From Female School Sports Teams**\
 `Republicans’ decision to push through the measure early in the new Congress indicated their belief that the issue is politically potent for them. Its future in the Senate is uncertain.`\
 https://nytimes.com/2025/01/14/us/politics/house-trans-athletes.html
-
-**Michelle Obama Will Skip Trump’s Inauguration**\
-`Mrs. Obama also declined to attend the funeral of Jimmy Carter last week, which would have put her face-to-face with Mr. Trump.`\
-https://nytimes.com/2025/01/14/us/politics/michelle-obama-trump-inauguration.html
-
-**Scoop City: Questions about Darnold's future, Stafford's "pass" & Dallas' next move**\
-`A brief look at the biggest questions from the Rams victory, plus the head coaching search in Dallas.`\
-https://nytimes.com/athletic/6061864/2025/01/14/rams-vikings-fumble-intentional-grounding-dallas-mccarthy-scoop-city/
-
-**Cookies, Cocktails and Mushrooms on the Menu as Justices Hear Bank Fraud Case**\
-`In trying to find the line between false statements and misleading ones in the case of a Chicago politician, members of the Supreme Court posed colorful questions.`\
-https://nytimes.com/2025/01/14/us/politics/supreme-court-bank-fraud.html
 
