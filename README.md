@@ -1,6 +1,6 @@
 **Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
 `What happens on Meta’s platforms is more than just a matter of company policy.`\
-https://nytimes.com/live/2025/01/09/opinion/thepoint/meta-fact-checking-policy
+https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html
 
 **Matthew Schaefer leads NHL Central Scouting's midseason rankings for the 2025 draft**\
 `The Athletic's prospects writers Scott Wheeler and Corey Pronman provide their thoughts on NHL Central Scouting's midterm rankings.`\
