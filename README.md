@@ -1,3 +1,11 @@
+**Senate Hearings for Trump’s Cabinet Picks Have Begun. Here’s the Schedule.**\
+`Selections for attorney general, secretary of homeland security, secretary of state and Treasury secretary are among those set to have hearings this week.`\
+https://nytimes.com/2025/01/14/us/politics/trump-cabinet-senate-hearings-schedule.html
+
+**Death Toll in Gaza Likely 40 Percent Higher Than Reported, Researchers Say**\
+`Analysis found that more than 64,000 Palestinians may have been killed by traumatic injury in the first nine months of the war.`\
+https://nytimes.com/2025/01/14/health/gaza-death-toll.html
+
 **Dry January Is Driving Me to Drink**\
 `Do or do not, as Yoda might say. But please shut up about it, as I definitely would say.`\
 https://nytimes.com/2025/01/14/opinion/dry-january-social-media-sober.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6061864/2025/01/14/rams-vikings-fumble-intentional-
 **Cookies, Cocktails and Mushrooms on the Menu as Justices Hear Bank Fraud Case**\
 `In trying to find the line between false statements and misleading ones in the case of a Chicago politician, members of the Supreme Court posed colorful questions.`\
 https://nytimes.com/2025/01/14/us/politics/supreme-court-bank-fraud.html
-
-**Meta to Cut 5% of Its Workers in New Round of Layoffs**\
-`The company said in a memo sent to its employees on Tuesday that the layoffs would be based on performance ratings.`\
-https://nytimes.com/2025/01/14/technology/meta-layoffs.html
-
-**Dodgers to get second meeting with Roki Sasaki: Sources**\
-`Sasaki has recently completed city tours to both Toronto and San Diego.`\
-https://nytimes.com/athletic/6061768/2025/01/14/dodgers-roki-sasaki-second-meeting/
 
