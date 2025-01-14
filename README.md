@@ -1,3 +1,11 @@
+**Minnesota’s Legislative Session Opens Chaotically as House Democrats Boycott**\
+`A one-seat Republican majority in the Statehouse and a looming special election made for a tense start to a new era of divided government.`\
+https://nytimes.com/2025/01/14/us/minnesota-house-democrats-boycott.html
+
+**Palisades and Eaton Fires May Not Be Fully Extinguished for Weeks**\
+`The size of the huge blazes, along with difficult weather conditions and the emergence of smaller fires, have extended firefighters’ timelines. “It’s going to be a slow, arduous process,” one official said.`\
+https://nytimes.com/2025/01/14/us/la-fires-palisades-eaton.html
+
 **Kevin Harlan, Amazon near deal to call NBA games**\
 `Amazon Prime Video is closing in on a deal to make Kevin Harlan its No.`\
 https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/us/politics/biden-cuba.html
 **Hegseth Refuses to Say Whether Sexual Assault Is Disqualifying**\
 `Pete Hegseth, President-elect Donald J. Trump’s nominee for defense secretary, declined to say whether assault or excessive drinking would disqualify someone from the position and called allegations about his past conduct “false claims.”`\
 https://nytimes.com/video/us/politics/100000009926304/hegseth-kaine-disqualifying-conduct-claims.html
-
-**Lyon owner Textor accused of not understanding French football's rules**\
-`The boss of French football’s financial regulator has hit back at criticisms made by Lyon owner John Textor, accusing the American of a “clear and persistent lack of understanding” of the rules.`\
-https://nytimes.com/athletic/6062013/2025/01/14/textor-lyon-dncg-ligue-1/
-
-**Senate Hearings for Trump’s Cabinet Picks Have Begun. Here’s the Schedule.**\
-`Selections for attorney general, secretary of homeland security, secretary of state and Treasury secretary are among those set to have hearings this week.`\
-https://nytimes.com/2025/01/14/us/politics/trump-cabinet-senate-hearings-schedule.html
 
