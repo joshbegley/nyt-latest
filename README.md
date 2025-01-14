@@ -1,3 +1,7 @@
+**Full Time: USWNT moves camp amid wildfires**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6060119/2025/01/13/emma-hayes-uswnt-marta-orlando-full-time/
+
 **Deion Sanders, Jerry Jones discuss Cowboys coaching vacancy: Sources**\
 `Sanders, 57, played for Jones and the Cowboys from 1995 to 1999, winning Super Bowl XXX with the team.`\
 https://nytimes.com/athletic/6060074/2025/01/13/deion-sanders-cowboys-head-coach-jerry-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/arts/music/arnold-schoenberg-scores-fire.html
 **Elon Musk Is Expected to Use Office Space in the White House Complex**\
 `The location suggests that Mr. Musk, who owns companies with billions of dollars in contracts with the federal government, will continue to have remarkable access to President-elect Donald J. Trump.`\
 https://nytimes.com/2025/01/13/us/politics/elon-musk-white-house-trump.html
-
-**Democrats Will Regret Helping to Pass the Laken Riley Act**\
-`This cruel and sweeping bill could upend our immigration system.`\
-https://nytimes.com/2025/01/13/opinion/democrats-laken-riley-act.html
 
