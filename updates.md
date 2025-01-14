@@ -1,3 +1,19 @@
+**Flyers' best win of season fueled by Garnet Hathaway's tenacity, Noah Cates' offense**\
+`After a terrible first period, the Flyers pulled off a comeback against the defending champs for their first consecutive wins in a month.`\
+https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-panthers/
+
+**Projecting final 8 NFL playoff teams' odds to win Super Bowl, with divisional matchup analysis**\
+`Thirty-two teams embarked on a mission to win Super Bowl LIX in New Orleans. Eight teams are left. `\
+https://nytimes.com/athletic/6044701/2025/01/13/nfl-super-bowl-playoff-chances-divisional-round/
+
+**Publicity Hound**\
+`Lance Enfinger gets swept up in the game.`\
+https://nytimes.com/2025/01/13/crosswords/daily-puzzle-2025-01-14.html
+
+**Troy Aikman says he's 'not sure' Cowboys head coach is 'a coveted job'**\
+`The Cowboys and former head coach Mike McCarthy parted ways on Tuesday after five years.`\
+https://nytimes.com/athletic/6060018/2025/01/13/troy-aikman-comments-cowboys-mike-mccarthy-head-coach/
+
 **Families Struggle to Access the Palisades Fire Evacuation Zone**\
 `Hundreds of people trying to visit properties inside the zone in coastal Los Angeles were turned away on Monday. Frustration was mounting.`\
 https://nytimes.com/2025/01/13/us/palisades-fire-evacuation-zone.html

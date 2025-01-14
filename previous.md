@@ -1,12 +1,4 @@
-**Families Struggle to Access the Palisades Fire Evacuation Zone**\
-`Hundreds of people trying to visit properties inside the zone in coastal Los Angeles were turned away on Monday. Frustration was mounting.`\
-https://nytimes.com/2025/01/13/us/palisades-fire-evacuation-zone.html
-
-**Quote of the Day: Carnage in Kursk, for a Costly Bargaining Chip**\
-`Quotation of the Day for Tuesday, January 14, 2025.`\
-https://nytimes.com/2025/01/13/pageoneplus/quote-of-the-day-carnage-in-kursk-for-a-costly-bargaining-chip.html
-
-**Garnet Hathaway's tenacity, Noah Cates' offense fuel Flyers' best win of the season**\
+**Flyers' best win of season fueled by Garnet Hathaway's tenacity, Noah Cates' offense**\
 `After a terrible first period, the Flyers pulled off a comeback against the defending champs for their first consecutive wins in a month.`\
 https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-panthers/
 
@@ -14,8 +6,8 @@ https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-p
 `Despite his odd combination of skills, Boucher has picked up lessons to keep himself relevant and viable during his 7 years with Toronto.`\
 https://nytimes.com/athletic/6060198/2025/01/13/chris-boucher-final-flourish-with-raptors/
 
-**Projecting final 8 NFL playoff teams’ odds to win Super Bowl, with divisional matchup analysis**\
-`Thirty-two teams embarked on a mission to win Super Bowl LIX in New Orleans. Eight teams left. `\
+**Projecting final 8 NFL playoff teams' odds to win Super Bowl, with divisional matchup analysis**\
+`Thirty-two teams embarked on a mission to win Super Bowl LIX in New Orleans. Eight teams are left. `\
 https://nytimes.com/athletic/6044701/2025/01/13/nfl-super-bowl-playoff-chances-divisional-round/
 
 **NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6060119/2025/01/13/emma-hayes-uswnt-marta-orlando-f
 **Deion Sanders, Jerry Jones discuss Cowboys coaching vacancy: Sources**\
 `Sanders, 57, played for Jones and the Cowboys from 1995 to 1999, winning Super Bowl XXX with the team.`\
 https://nytimes.com/athletic/6060074/2025/01/13/deion-sanders-cowboys-head-coach-jerry-jones/
+
+**Publicity Hound**\
+`Lance Enfinger gets swept up in the game.`\
+https://nytimes.com/2025/01/13/crosswords/daily-puzzle-2025-01-14.html
+
+**Troy Aikman says he's 'not sure' Cowboys head coach is 'a coveted job'**\
+`The Cowboys and former head coach Mike McCarthy parted ways on Tuesday after five years.`\
+https://nytimes.com/athletic/6060018/2025/01/13/troy-aikman-comments-cowboys-mike-mccarthy-head-coach/
 
