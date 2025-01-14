@@ -1,3 +1,15 @@
+**Hegseth Won’t Say Whether Sexual Assault, Drinking or Adultery Is Disqualifying**\
+`Pete Hegseth, President-elect Donald J. Trump’s choice to lead the Pentagon, rejected what he said were “false claims” about his conduct.`\
+https://nytimes.com/2025/01/14/us/politics/hegseth-confirmation-hearing-sexual-assault-drinking-disqualifying.html
+
+**Female Senators Grill Hegseth Over Views on Women**\
+`President-elect Donald J. Trump’s pick for defense secretary had a more amicable exchange with Joni Ernst, a Republican, who is considered a key vote.`\
+https://nytimes.com/2025/01/14/us/politics/hegseth-women-senators.html
+
+**Who Will Succeed Jamie Dimon? The List of Contenders Narrows.**\
+`Jennifer Piepszak will become chief operating officer of JPMorgan this summer, and signaled she would not seek the chief executive’s job. The current C.O.O., Daniel Pinto, plans to retire.`\
+https://nytimes.com/2025/01/14/business/jenn-piepszak-jpmorgan-coo.html
+
 **Starbucks Visitors Must Now Buy Something to Stay or Use Bathroom**\
 `Starbucks announced the policy reversal as the company’s new chief executive responded to a decline in sales.`\
 https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html

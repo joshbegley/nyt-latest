@@ -1,3 +1,15 @@
+**Hegseth Won’t Say Whether Sexual Assault, Drinking or Adultery Is Disqualifying**\
+`Pete Hegseth, President-elect Donald J. Trump’s choice to lead the Pentagon, rejected what he said were “false claims” about his conduct.`\
+https://nytimes.com/2025/01/14/us/politics/hegseth-confirmation-hearing-sexual-assault-drinking-disqualifying.html
+
+**Female Senators Grill Hegseth Over Views on Women**\
+`President-elect Donald J. Trump’s pick for defense secretary had a more amicable exchange with Joni Ernst, a Republican, who is considered a key vote.`\
+https://nytimes.com/2025/01/14/us/politics/hegseth-women-senators.html
+
+**Who Will Succeed Jamie Dimon? The List of Contenders Narrows.**\
+`Jennifer Piepszak will become chief operating officer of JPMorgan this summer, and signaled she would not seek the chief executive’s job. The current C.O.O., Daniel Pinto, plans to retire.`\
+https://nytimes.com/2025/01/14/business/jenn-piepszak-jpmorgan-coo.html
+
 **Starbucks Visitors Must Now Buy Something to Stay or Use Bathroom**\
 `Starbucks announced the policy reversal as the company’s new chief executive responded to a decline in sales.`\
 https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/14/climate/californias-insurance-fair-plan-fires.htm
 **Four Takeaways From the Special Counsel’s Report on the Trump Election Case**\
 `Jack Smith wrote that Donald Trump would have been convicted had the case been allowed to proceed and explained why he didn’t pursue charges of incitement of the Jan. 6 riot at the Capitol.`\
 https://nytimes.com/2025/01/14/us/politics/jack-smith-trump-election-report-takeaways.html
-
-**Super Bowl odds: Can Ravens and Eagles fly straight to the top?**\
-`Making the best case for how each Super Bowl underdog could upset the favorites with the divisional round set.`\
-https://nytimes.com/athletic/6061398/2025/01/14/super-bowl-odds-nfl-playoffs-divisional-round/
-
-**Phillies spring training preview: A rundown of the non-roster invitees**\
-`The Phillies will bring 23 players to camp in addition to the 40 on the current 40-man roster. Here's a breakdown of the camp extras.`\
-https://nytimes.com/athletic/6061470/2025/01/14/phillies-spring-training-non-roster-invitees/
-
-**What I'm hearing: All eyes on the farm**\
-`Kyle Dubas seems poised to help the Penguins without giving up any valuable assets.`\
-https://nytimes.com/athletic/6056175/2025/01/14/penguins-ahl-prospects-kyle-dubas/
 
