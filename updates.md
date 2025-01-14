@@ -1,3 +1,11 @@
+**A.J. Brown read his book during a game. The story behind the book is more unusual**\
+`Former baseball player Jim Murphy went from a "life of solitude" to writing a book that became a viral sensation during the NFL playoffs.`\
+https://nytimes.com/athletic/6061166/2025/01/14/aj-brown-eagles-wild-card-book-reading/
+
+**Heat Today: As Jimmy Butler's suspension nears its end, what could come next?**\
+`Butler could return from his seven-game suspension on Friday. Will his stalemate with Heat end or further fester tension?`\
+https://nytimes.com/athletic/6061356/2025/01/14/jimmy-butler-suspension-nba-trade-heat/
+
 **Why superstar Magnus Carlsen is playing chess for St. Pauli**\
 `The Norwegian genius has now played his first match for St. Pauli`\
 https://nytimes.com/athletic/6060791/2025/01/14/why-superstar-magnus-carlsen-is-playing-chess-for-st-pauli/
