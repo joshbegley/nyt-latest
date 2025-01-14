@@ -1,3 +1,19 @@
+**F.D.A. Proposes New Food Labels to Detail Sugar, Fat and Salt Levels**\
+`The agency issued designs for front-of-package lists that food companies would be required to include.`\
+https://nytimes.com/2025/01/14/health/fda-food-labels-sugar-fat-salt.html
+
+**A Cure for Winter Blues? Try These Cozy New York Restaurants.**\
+`Cafe Kestrel in Brooklyn and Cocina Consuelo in Harlem can restore the spirit with warm service, cheery surroundings and deeply satisfying food.`\
+https://nytimes.com/2025/01/14/dining/restaurant-review-cafe-kestrel-cocina-consuelo-nyc.html
+
+**Zubimendi, Rice, Merino and Arteta's many attempts to perfect Arsenal's midfield**\
+`Why does Arteta want to sign Zudimendi? And what does it mean for Rice?`\
+https://nytimes.com/athletic/6061025/2025/01/14/zubimendi-rice-arsenal-midfield/
+
+**Pete Hegseth’s Preposterous Selection**\
+`It should be derailed after today’s hearing. I doubt it will.`\
+https://nytimes.com/2025/01/14/opinion/hegseth-confirmation-hearing.html
+
 **Pete Hegseth’s Preposterous Selection**\
 `It should be derailed after today’s hearing. I doubt it will.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/hegseth-confirmation-hearing
