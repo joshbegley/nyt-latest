@@ -1,3 +1,7 @@
+**Ben Shelton, serve savant, wants to talk about the return**\
+`The American is known for his rocketing 145mph serve. He's more concerned with getting other people's back.`\
+https://nytimes.com/athletic/6060540/2025/01/14/ben-shelton-tennis-serve-return-explained-australian-open/
+
 **Arteta condemns Havertz social media abuse: 'We have to do something about it'**\
 `Mikel Arteta has spoken out against the social media abuse towards Kai Havertz and his pregnant wife after Arsenal’s FA Cup exit to Manchester United, saying it needs to be ‘eradicated’.`\
 https://nytimes.com/athletic/6060628/2025/01/14/havertz-arteta-abuse-social-media/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/crosswords/connections-companion-584.html
 **Wordle Review No. 1,306**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 15, 2025.`\
 https://nytimes.com/2025/01/14/crosswords/wordle-review-1306.html
-
-**DirecTV to offer 'MySports,' a smaller streaming package of 40 channels**\
-`The package will cost for $49.99 per month for the first three months and then $69.99 per month thereafter.`\
-https://nytimes.com/athletic/6059981/2025/01/14/directv-mysports-small-channel-package/
 

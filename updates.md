@@ -1,3 +1,7 @@
+**Ben Shelton, serve savant, wants to talk about the return**\
+`The American is known for his rocketing 145mph serve. He's more concerned with getting other people's back.`\
+https://nytimes.com/athletic/6060540/2025/01/14/ben-shelton-tennis-serve-return-explained-australian-open/
+
 **Arteta condemns Havertz social media abuse: 'We have to do something about it'**\
 `Mikel Arteta has spoken out against the social media abuse towards Kai Havertz and his pregnant wife after Arsenal’s FA Cup exit to Manchester United, saying it needs to be ‘eradicated’.`\
 https://nytimes.com/athletic/6060628/2025/01/14/havertz-arteta-abuse-social-media/
