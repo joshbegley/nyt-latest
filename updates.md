@@ -1,3 +1,7 @@
+**Art Collector Says He Lost Warhols and Harings to L.A. Fire**\
+`Ron Rivlin said he had lost about 30 works by Andy Warhol — and dozens more by other artists — when his Pacific Palisades home was destroyed.`\
+https://nytimes.com/2025/01/14/arts/design/la-fires-art-collector-warhol-haring.html
+
 **‘I Do Not Believe You Are Qualified,’ Sen. Reed Says**\
 `Senator Jack Reed of Rhode Island, the top Democrat on the Armed Services Committee, told Pete Hegseth that he was not qualified to lead the Pentagon.`\
 https://nytimes.com/video/us/politics/100000009925531/hegseth-unqualified-reed.html
