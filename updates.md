@@ -1,3 +1,15 @@
+**Auto Fire Joins List of California Blazes**\
+`The new fire, in Ventura County northwest of Los Angeles, covers 56 acres and is 0 percent contained, officials said.`\
+https://nytimes.com/2025/01/14/us/auto-fire-ventura-county-la-california.html
+
+**Richarlison fit to feature against Arsenal**\
+`Richarlison has returned to full fitness and could feature for Tottenham Hotspur in Wednesday night’s north London derby against Arsenal at the Emirates Stadium.`\
+https://nytimes.com/athletic/6060756/2025/01/14/tottenham-richarlison-arsenal/
+
+**Arsenal pursuing deal to sign Zubimendi next summer**\
+`Arsenal are pursuing a deal to sign midfielder Martin Zubimendi from Real Sociedad next summer.`\
+https://nytimes.com/athletic/5696861/2025/01/14/arsenal-transfers-martin-zubimendi-summer/
+
 **The Athletic FC: Milan puzzle over Rashford and Walker, Arteta 'very worried' over Jesus**\
 `Today in TAFC: The rules that mean only one of Rashford or Walker could go to Milan, Arsenal 'very worried' over Gabriel Jesus injury`\
 https://nytimes.com/athletic/6060588/2025/01/14/rashford-walker-milan-transfer-gabriel-jesus/
