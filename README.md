@@ -1,3 +1,19 @@
+**Rick Kuhn, 69, Dies; Convicted in a College Gambling Scandal**\
+`While playing basketball at Boston College, he participated in a point-shaving scheme with Henry Hill, the mobster later portrayed in the movie “Goodfellas.”`\
+https://nytimes.com/2025/01/14/us/rick-kuhn-dead.html
+
+**Four Takeaways From Hegseth’s Confirmation Hearing**\
+`President-elect Donald J. Trump’s pick for defense secretary said nothing that would alienate the Republican senators on the Armed Services Committee.`\
+https://nytimes.com/2025/01/14/us/pete-hegseth-confirmation-hearing-takeaways.html
+
+**Investigators in South Korea Attempt to Detain Impeached President**\
+`Criminal investigators began a second operation early Wednesday to detain the impeached president, Yoon Suk Yeol, for questioning in connection with insurrection charges.`\
+https://nytimes.com/video/world/asia/100000009926878/south-korea-president-arrest.html
+
+**Some medals from 2024 Olympics will be replaced following complaints**\
+`Reports of medal degradation began even before the Olympics ended.`\
+https://nytimes.com/athletic/6062257/2025/01/14/2024-summer-olympics-paris-medal-replacement/
+
 **Wisconsin wipes slate clean of QBs tied to Phil Longo, parts ways with 2026 commit Jarin Mock**\
 `Jarin Mock was the first committed prospect of the Badgers 2026 recruiting class but was informed of Wisconsin's new direction Tuesday. `\
 https://nytimes.com/athletic/6062193/2025/01/14/wisconsin-college-football-jarin-mock-quarterback-recruiting/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/14/us/auto-fire-ventura-county.html
 **West Coast college football fan survey: Tell us about your first season in a new league**\
 `Did you enjoy your team's first season in its new league? Did you travel as much? Are you still passionate about college football?`\
 https://nytimes.com/athletic/6061047/2025/01/14/college-football-west-coast-pac-12/
-
-**Nottingham Forest 1 Liverpool 1 - Where does pulsating draw leave the title race?**\
-`The major talking points dissected from the crucial Premier League clash at the City Ground`\
-https://nytimes.com/athletic/6058405/2025/01/14/nottingham-forest-liverpool-premier-league-analysis/
-
-**The Briefing: Brentford 2 Manchester City 2 - Foden scores two but defensive frailties remain**\
-`Sam Lee breaks down the key moments from Tuesday evening's game in west London`\
-https://nytimes.com/athletic/6058401/2025/01/14/brentford-manchester-city-result-analysis/
-
-**Chelsea 2 Bournemouth 2 - How did Reece James remind everyone of his talent?**\
-`Analysis of Chelsea's Premier League game against Bournemouth`\
-https://nytimes.com/athletic/6058403/2025/01/14/chelsea-2-bournemouth-2-highlights-goals/
-
-**‘The Bunker’ Is a Chilly, Chilling True-Crime Documentary**\
-`The unsettling series, on Viaplay, brings a Swedish kidnapping victim to a detailed reconstruction of a bunker where she was held prisoner.`\
-https://nytimes.com/2025/01/14/arts/television/the-bunker-true-crime-documentary.html
 
