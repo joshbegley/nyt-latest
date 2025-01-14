@@ -1,3 +1,7 @@
+**South Korea to Overhaul Runway Safety After Jeju Air Crash**\
+`The nation’s transport ministry reviewed structures near airport runways following the deadly crash of a Jeju Air flight late last month.`\
+https://nytimes.com/2025/01/14/business/korea-jejuair-air-runways.html
+
 **Governor’s Address Will Examine New York’s Future, and Her Own**\
 `Gov. Kathy Hochul’s State of the State speech is expected to respond to the voter dissatisfaction that became evident in November, especially regarding affordability and crime.`\
 https://nytimes.com/2025/01/14/nyregion/14hochul-state-address-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/arts/television/jimmy-kimmel-los-angeles-fires.ht
 **Read the Special Counsel’s Report on the Trump Election Case**\
 `The former special counsel Jack Smith stood behind his prosecution of President-elect Donald J. Trump in a report released early Tuesday.`\
 https://nytimes.com/interactive/2025/01/14/us/report-of-special-counsel-smith-volume-1-january-2025.html
-
-**Former defender Jason McCarthy begins a well-trodden Brighton coaching pathway**\
-`McCarthy never played for Brighton but is set to follow in the footsteps of many other fellow ex-pros with the club's under-21s`\
-https://nytimes.com/athletic/6049990/2025/01/14/jason-mccarthy-brighton-coach-under-21s/
 
