@@ -30,8 +30,8 @@ https://nytimes.com/2025/01/14/us/politics/hegseth-women-senators.html
 `Jennifer Piepszak will become chief operating officer of JPMorgan this summer, and signaled she would not seek the chief executive’s job. The current C.O.O., Daniel Pinto, plans to retire.`\
 https://nytimes.com/2025/01/14/business/jenn-piepszak-jpmorgan-coo.html
 
-**Starbucks Visitors Must Now Buy Something to Stay or Use Bathroom**\
-`Starbucks announced the policy reversal as the company’s new chief executive responded to a decline in sales.`\
+**Starbucks Cracks Down: No Latte, No Lounging**\
+`Starbucks said visitors to the coffee shops would be required to buy something in order to use the restroom or stay in the store, as the company’s new chief executive responded to a decline in sales.`\
 https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html
 
 **Coaches vote to push for CFB's portal window to be shortened, moved to January**\
