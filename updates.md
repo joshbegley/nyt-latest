@@ -1,3 +1,7 @@
+**A self-made weatherman used Facebook to warn of fire danger. People listened.**\
+`By Lauren Herstik`\
+https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/a-self-made-weatherman-used-facebook-to-warn-of-fire-danger-people-listened
+
 **The Decade That Changed Fitness Forever**\
 `From 1972 to 1982, American exercise entered the modern era. Here are five workouts that changed the game.`\
 https://nytimes.com/interactive/2025/01/14/well/move/fitness-evolution-trends-1970s.html
