@@ -1,3 +1,7 @@
+**How Notre Dame, Marcus Freeman crafted path to title game: Q&A with Greg McElroy**\
+`After calling all of Notre Dame's Playoff games for ESPN, McElory has a unique perspective on the Fighting Irish. `\
+https://nytimes.com/athletic/6061038/2025/01/14/notre-dame-college-football-playoff-greg-mcelroy/
+
 **In a First, the E.P.A. Warns of ‘Forever Chemicals’ in Fertilizer**\
 `Levels of PFAS in sewage sludge used as fertilizer can pose risks that sometimes exceed safety thresholds “by several orders of magnitude,” the agency said.`\
 https://nytimes.com/2025/01/14/climate/epa-pfas-forever-chemicals-sludge-fertilizer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6060072/2025/01/14/steph-curry-warriors-future-nba-
 **Manchester City reach agreement for Reis signing from Palmeiras**\
 `Manchester City have reached an agreement with Palmeiras for the signing of defender Vitor Reis.`\
 https://nytimes.com/athletic/6049162/2025/01/14/vitor-reis-manchester-city-transfer/
-
-**Hegseth morphed from a critic of war crimes to a defender of the accused.**\
-`By Dave Philipps and Carol Rosenberg`\
-https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
 

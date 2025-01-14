@@ -1,3 +1,7 @@
+**How Notre Dame, Marcus Freeman crafted path to title game: Q&A with Greg McElroy**\
+`After calling all of Notre Dame's Playoff games for ESPN, McElory has a unique perspective on the Fighting Irish. `\
+https://nytimes.com/athletic/6061038/2025/01/14/notre-dame-college-football-playoff-greg-mcelroy/
+
 **In a First, the E.P.A. Warns of ‘Forever Chemicals’ in Fertilizer**\
 `Levels of PFAS in sewage sludge used as fertilizer can pose risks that sometimes exceed safety thresholds “by several orders of magnitude,” the agency said.`\
 https://nytimes.com/2025/01/14/climate/epa-pfas-forever-chemicals-sludge-fertilizer.html
