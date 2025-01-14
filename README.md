@@ -1,40 +1,40 @@
-**Flyers' best win of season fueled by Garnet Hathaway's tenacity, Noah Cates' offense**\
-`After a terrible first period, the Flyers pulled off a comeback against the defending champs for their first consecutive wins in a month.`\
-https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-panthers/
+**NFL, Rams honor wildfire victims, First Responders throughout wild-card win**\
+`"It's a tough time to be back there, and we're just happy that we came out there and played like this tonight," Stafford said.`\
+https://nytimes.com/athletic/6059961/2025/01/14/nfl-los-angeles-rams-wild-card-fires/
 
-**Chris Boucher deserves this final flourish, likely his last with the Raptors**\
-`Despite his odd combination of skills, Boucher has picked up lessons to keep himself relevant and viable during his 7 years with Toronto.`\
-https://nytimes.com/athletic/6060198/2025/01/13/chris-boucher-final-flourish-with-raptors/
+**Mikkel Damsgaard finally showing he can fill Christian Eriksen's shoes**\
+`It has taken two years but the Dane's creativity has been a key factor in Brentford's Premier League goal glut `\
+https://nytimes.com/athletic/6058217/2025/01/14/mikkel-damsgaard-brentford-assists/
 
-**Projecting final 8 NFL playoff teams' odds to win Super Bowl, with divisional matchup analysis**\
-`Thirty-two teams embarked on a mission to win Super Bowl LIX in New Orleans. Eight teams are left. `\
-https://nytimes.com/athletic/6044701/2025/01/13/nfl-super-bowl-playoff-chances-divisional-round/
+**Who makes transfer decisions at each Premier League club and how well are they doing?**\
+`With the transfer window open, we look at who makes the calls at each club and how they are performing`\
+https://nytimes.com/athletic/6044675/2025/01/14/transfer-decisions-premier-league-club/
 
-**NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
-`The Rams opened as 6-point underdogs after a win Monday night. Bills-Ravens is nearly a pick'em and Chiefs, Lions are big favorites.`\
-https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
+**Women's football's history of inclusion gives it a unique place in the trans rights and gender debates**\
+`A long-standing record of acceptance means the conversation about transgender players' role in women's football differs from other sports`\
+https://nytimes.com/athletic/6013006/2025/01/14/womens-football-transgender-players/
 
-**Many of California’s Most Destructive Fires Were Caused by Power Lines**\
-`Officials are probing whether electrical equipment sparked the Los Angeles fires. Such infrastructure has ignited vast destruction in recent years.`\
-https://nytimes.com/interactive/2025/01/13/us/los-angeles-fires-cause.html
+**Why deep runs are “probably the most important thing in football”**\
+`Runs beyond the defensive line are crucial to a team’s attacking potency in the Premier League — now we can measure their impact`\
+https://nytimes.com/athletic/6051852/2025/01/14/deep-runs-premier-league-analysis/
 
-**Lakers, Clippers resume at home as fires rage in L.A.**\
-`Both teams played on the road last week, and Monday marked their first home contests since the Palisades Fire began Tuesday.`\
-https://nytimes.com/athletic/6060049/2025/01/13/lakers-clippers-los-angeles-fires-resume-home-games/
+**Seth Jones' struggles hit new low while Blackhawks cut his ice time. Now what?**\
+`In 11 games since returning from an injury, Seth Jones' play has looked terrible whether by analytics or by the eye test.`\
+https://nytimes.com/athletic/6060036/2025/01/14/blackhawks-seth-jones-struggles/
 
-**Full Time: USWNT moves camp amid wildfires**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/6060119/2025/01/13/emma-hayes-uswnt-marta-orlando-full-time/
+**Rams down Vikings 27-9 in wild-card game for date with Eagles: Takeaways**\
+`The contest was relocated from the Rams' home venue at SoFi Stadium to State Farm Stadium in Arizona due to the L.A. wildfires.`\
+https://nytimes.com/athletic/6060250/2025/01/14/vikings-rams-score-result-takeaways-nfl-wild-card/
 
-**Deion Sanders, Jerry Jones discuss Cowboys coaching vacancy: Sources**\
-`Sanders, 57, played for Jones and the Cowboys from 1995 to 1999, winning Super Bowl XXX with the team.`\
-https://nytimes.com/athletic/6060074/2025/01/13/deion-sanders-cowboys-head-coach-jerry-jones/
+**A Neo-Nazi Helped Incite U.K. Riots. Elon Musk Criticized His Sentencing.**\
+`Andrew McIntyre, a British extremist who played a key role in fomenting last summer’s unrest, was sentenced last week to seven years in jail.`\
+https://nytimes.com/2025/01/14/world/europe/neo-nazi-uk-riots-elon-musk.html
 
-**Publicity Hound**\
-`Lance Enfinger gets swept up in the game.`\
-https://nytimes.com/2025/01/13/crosswords/daily-puzzle-2025-01-14.html
+**The British Public Dislikes Elon Musk. He Can Still Sway Politics.**\
+`His influence is partly the result of a very online political establishment, and partly thanks to a right-leaning media that is hostile to Keir Starmer’s Labour government.`\
+https://nytimes.com/2025/01/14/world/europe/elon-musk-uk-starmer-grooming-gangs.html
 
-**Troy Aikman says he's 'not sure' Cowboys head coach is 'a coveted job'**\
-`The Cowboys and former head coach Mike McCarthy parted ways on Tuesday after five years.`\
-https://nytimes.com/athletic/6060018/2025/01/13/troy-aikman-comments-cowboys-mike-mccarthy-head-coach/
+**Nottingham Forest vs Liverpool preview: Storylines, odds, prediction for top-four clash**\
+`Red-hot Nottingham Forest host Liverpool in a meeting of two of the top teams in the table, and two of the hottest teams.`\
+https://nytimes.com/athletic/6059468/2025/01/14/nottingham-forest-liverpool-preview-odds-prediction/
 
