@@ -1,3 +1,11 @@
+**A.J. Brown read his book during a game. The story behind the book is more unusual**\
+`Former baseball player Jim Murphy went from a "life of solitude" to writing a book that became a viral sensation during the NFL playoffs.`\
+https://nytimes.com/athletic/6061166/2025/01/14/aj-brown-eagles-wild-card-book-reading/
+
+**Heat Today: As Jimmy Butler's suspension nears its end, what could come next?**\
+`Butler could return from his seven-game suspension on Friday. Will his stalemate with Heat end or further fester tension?`\
+https://nytimes.com/athletic/6061356/2025/01/14/jimmy-butler-suspension-nba-trade-heat/
+
 **Why superstar Magnus Carlsen is playing chess for St. Pauli**\
 `The Norwegian genius has now played his first match for St. Pauli`\
 https://nytimes.com/athletic/6060791/2025/01/14/why-superstar-magnus-carlsen-is-playing-chess-for-st-pauli/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/opinion/jack-smith-donald-trump-special-counsel.h
 **Art Collector Says He Lost Warhols and Harings to L.A. Fire**\
 `Ron Rivlin said he had lost about 30 works by Andy Warhol — and dozens more by other artists — when his Pacific Palisades home was destroyed.`\
 https://nytimes.com/2025/01/14/arts/design/la-fires-art-collector-warhol-haring.html
-
-**‘I Do Not Believe You Are Qualified,’ Sen. Reed Says**\
-`Senator Jack Reed of Rhode Island, the top Democrat on the Armed Services Committee, told Pete Hegseth that he was not qualified to lead the Pentagon.`\
-https://nytimes.com/video/us/politics/100000009925531/hegseth-unqualified-reed.html
-
-**Britain’s Anti-Corruption Minister Resigns**\
-`Tulip Siddiq, the niece of former Prime Minister Sheikh Hasina of Bangladesh, had been named in an embezzlement investigation in the Asian country.`\
-https://nytimes.com/2025/01/14/world/europe/britain-tulip-siddiq-resigns.html
 
