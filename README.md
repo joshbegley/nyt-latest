@@ -10,8 +10,8 @@ https://nytimes.com/2025/01/14/us/la-fires-palisades-eaton.html
 `Amazon will have a one-two play-by-play punch of Ian Eagle and Harlan as it enters the NBA space next season.`\
 https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
 
-**Investigators Prepare Another Attempt to Detain South Korea’s Leader**\
-`More forces are expected to join the operation to take President Yoon Suk Yeol in for questioning after the last attempt was foiled by his large security team.`\
+**Investigators Prepare New Attempt to Detain South Korea’s Impeached Leader**\
+`More forces are expected to join the operation to take Yoon Suk Yeol in for questioning after the last attempt was foiled by his large security team.`\
 https://nytimes.com/2025/01/14/world/asia/south-korea-yoon-detain.html
 
 **F.D.A. Proposes New Food Labels to Detail Sugar, Fat and Salt Levels**\
