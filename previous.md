@@ -1,3 +1,19 @@
+**Preston Clark Steps Into the Spotlight at Bar Mercer**\
+`Oases takes an Ayurvedic approach to cooking, the chef Francis Mallmann comes to New York and more restaurant news.`\
+https://nytimes.com/2025/01/14/dining/nyc-restaurant-news.html
+
+**Under the Radar: Venturing to Fantastical Universes With a Dodo and More**\
+`Stories from refugee children, gloriously morbid puppets and a rooster who defies a dictator. These are some of the offbeat offerings this January.`\
+https://nytimes.com/2025/01/14/theater/under-the-radar-festival-new-york.html
+
+**Mastercard Agrees to Settle Pay Discrimination Suit for $26 Million**\
+`The complaint accuses the company of underpaying female, Black and Hispanic employees compared with their male and white counterparts.`\
+https://nytimes.com/2025/01/14/business/mastercard-26-million-pay-discrimination.html
+
+**New Administration Takes Over in Challenging Era for the Pentagon**\
+`The incoming defense secretary will face several challenges, including the war in Ukraine and the turmoil in the Middle East.`\
+https://nytimes.com/2025/01/14/us/politics/trump-defense-secretary-ukraine-middle-east.html
+
 **Canadiens rookie Emil Heineman hit by car in Utah, will miss 3-4 weeks**\
 `Heineman was involved in a traffic accident while walking around Salt Lake City on Monday night.`\
 https://nytimes.com/athletic/6061579/2025/01/14/canadiens-emil-heineman-hit-car/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6057566/2025/01/14/donyell-malen-aston-villa/
 **Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
 `What happens on Meta’s platforms is more than just a matter of company policy.`\
 https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html
-
-**Matthew Schaefer leads NHL Central Scouting's midseason rankings for the 2025 draft**\
-`The Athletic's prospects writers Scott Wheeler and Corey Pronman provide their thoughts on NHL Central Scouting's midterm rankings.`\
-https://nytimes.com/athletic/6059256/2025/01/14/matthew-schaefer-nhl-draft-2025-rankings/
-
-**Let Us Help You Find Your Next Thriller**\
-`Whether you're looking for a classic or the latest and greatest, start here.`\
-https://nytimes.com/interactive/2025/books/thriller-books.html
-
-**A.J. Brown read his book during a game. The story behind the book is more unusual**\
-`Former baseball player Jim Murphy went from a "life of solitude" to writing a book that became a viral sensation during the NFL playoffs.`\
-https://nytimes.com/athletic/6061166/2025/01/14/aj-brown-eagles-wild-card-book-reading/
-
-**Heat Today: As Jimmy Butler's suspension nears its end, what could come next?**\
-`Butler could return from his seven-game suspension on Friday. Will his stalemate with Heat end or further fester tension?`\
-https://nytimes.com/athletic/6061356/2025/01/14/jimmy-butler-suspension-nba-trade-heat/
 
