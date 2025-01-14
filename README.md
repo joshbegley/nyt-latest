@@ -1,3 +1,7 @@
+**Hegseth will draw on combat experience in his pitch to lead the Pentagon.**\
+`By Karoun Demirjian`\
+https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-draws-on-combat-experience-in-his-pitch-to-lead-the-pentagon
+
 **U.S. Oil Production Is Booming. Oil Jobs Are Not.**\
 `The industry is pumping ever more oil and natural gas, but it is doing so with only about three-quarters as many workers as it employed a decade ago.`\
 https://nytimes.com/2025/01/14/business/energy-environment/oil-gas-jobs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6060920/2025/01/14/carlo-ancelotti-real-madrid-tact
 **Lazio's club falconer, his prosthetic penis and a very unusual sacking**\
 `Juan Bernabe has lost his job as Lazio's falconer after sharing a photo of himself which ‘astonished’ the club`\
 https://nytimes.com/athletic/6060773/2025/01/14/lazio-falconer-prosthetic-penis-sacked/
-
-**Australian Open day 3: Daniil Medvedev escapes upset with a smashed racket**\
-`The No. 5 seed staved off an upset, two players posted incredible break point numbers, and Rod Laver Arena became a cauldron of nerves`\
-https://nytimes.com/athletic/6060313/2025/01/14/australian-open-recap-daniil-medvedev-racket-camera/
 
