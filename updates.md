@@ -1,3 +1,7 @@
+**Tennis stardom is a roulette wheel. Joao Fonseca is ready to bet on himself**\
+`Joao Fonseca won the ATP Next Gen Finals with his crushing groundstrokes. Now he has a Grand Slam win, too.`\
+https://nytimes.com/athletic/5982298/2025/01/14/joao-fonseca-tennis-player/
+
 **Martinez out for around four weeks with hamstring injury**\
 `Barcelona defender Inigo Martinez has been ruled out for around four weeks with a hamstring injury.`\
 https://nytimes.com/athletic/6060663/2025/01/14/barcelona-inigo-martinez-injury/
