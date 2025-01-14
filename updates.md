@@ -1,3 +1,19 @@
+**Garnet Hathaway's tenacity, Noah Cates' offense fuel Flyers' best win of the season**\
+`After a terrible first period, the Flyers pulled off a comeback against the defending champs for their first consecutive wins in a month.`\
+https://nytimes.com/athletic/6060201/2025/01/13/flyers-hathaway-cates-comeback-panthers/
+
+**Chris Boucher deserves this final flourish, likely his last with the Raptors**\
+`Despite his odd combination of skills, Boucher has picked up lessons to keep himself relevant and viable during his 7 years with Toronto.`\
+https://nytimes.com/athletic/6060198/2025/01/13/chris-boucher-final-flourish-with-raptors/
+
+**Projecting final 8 NFL playoff teams’ odds to win Super Bowl, with divisional matchup analysis**\
+`Thirty-two teams embarked on a mission to win Super Bowl LIX in New Orleans. Eight teams left. `\
+https://nytimes.com/athletic/6044701/2025/01/13/nfl-super-bowl-playoff-chances-divisional-round/
+
+**NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
+`The Rams opened as 6-point underdogs after a win Monday night. Bills-Ravens is nearly a pick'em and Chiefs, Lions are big favorites.`\
+https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
+
 **NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
 `Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
 https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
