@@ -1,3 +1,11 @@
+**Kevin Harlan, Amazon near deal**\
+`Amazon Prime Video is closing in on a deal to make Kevin Harlan its No.`\
+https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
+
+**Investigators Prepare Another Attempt to Detain South Korea’s Leader**\
+`More forces are expected to join the operation to take President Yoon Suk Yeol in for questioning after the last attempt was foiled by his large security team.`\
+https://nytimes.com/2025/01/14/world/asia/south-korea-yoon-detain.html
+
 **F.D.A. Proposes New Food Labels to Detail Sugar, Fat and Salt Levels**\
 `The agency issued designs for front-of-package lists that food companies would be required to include.`\
 https://nytimes.com/2025/01/14/health/fda-food-labels-sugar-fat-salt.html
