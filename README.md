@@ -1,3 +1,7 @@
+**Commanders' fourth-down effectiveness could be pivotal vs. aggressive-natured Lions**\
+`Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC championship on the line.`\
+https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
+
 **Steph Curry, Steve Kerr and Warriors are grappling with an existential crossroads**\
 `"We're not giving in. But you have to be realistic organizationally about where you are," Kerr told The Athletic on Monday.`\
 https://nytimes.com/athletic/6060072/2025/01/14/steph-curry-warriors-future-nba-trade-rumors-kerr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6060313/2025/01/14/australian-open-recap-daniil-med
 **Biden Administration Adds 37 Chinese Companies to Forced Labor List**\
 `The administration announced it would penalize its largest-ever batch of companies linked to Xinjiang, including major suppliers of critical minerals and textiles.`\
 https://nytimes.com/2025/01/14/business/economy/forced-labor-list-china.html
-
-**Suns, with three wins in a row, enter what feels like a a make-or-break stretch**\
-`After a recent win, Devin Booker was asked: Do you believe momentum can stretch from game to game? “Hell, yeah,’’ he said.`\
-https://nytimes.com/athletic/6059997/2025/01/14/phoenix-suns-winning-streak-road-trip-hornets-hawks/
 
