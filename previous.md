@@ -22,8 +22,8 @@ https://nytimes.com/2025/01/14/health/fda-food-labels-sugar-fat-salt.html
 `Cafe Kestrel in Brooklyn and Cocina Consuelo in Harlem can restore the spirit with warm service, cheery surroundings and deeply satisfying food.`\
 https://nytimes.com/2025/01/14/dining/restaurant-review-cafe-kestrel-cocina-consuelo-nyc.html
 
-**Zubimendi, Rice, Merino and Arteta's many attempts to perfect Arsenal's midfield**\
-`Why does Arteta want to sign Zudimendi? And what does it mean for Rice?`\
+**Zubimendi, Rice, Merino, and Arteta's many attempts to perfect Arsenal's midfield**\
+`Why does Mikel Arteta now want to sign Martin Zudimendi? And what could it mean for Declan Rice?`\
 https://nytimes.com/athletic/6061025/2025/01/14/zubimendi-rice-arsenal-midfield/
 
 **Pete Hegseth’s Preposterous Selection**\

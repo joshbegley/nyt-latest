@@ -1,3 +1,7 @@
+**Zubimendi, Rice, Merino, and Arteta's many attempts to perfect Arsenal's midfield**\
+`Why does Mikel Arteta now want to sign Martin Zudimendi? And what could it mean for Declan Rice?`\
+https://nytimes.com/athletic/6061025/2025/01/14/zubimendi-rice-arsenal-midfield/
+
 **Minnesota’s Legislative Session Opens Chaotically as House Democrats Boycott**\
 `A one-seat Republican majority in the Statehouse and a looming special election made for a tense start to a new era of divided government.`\
 https://nytimes.com/2025/01/14/us/minnesota-house-democrats-boycott.html
