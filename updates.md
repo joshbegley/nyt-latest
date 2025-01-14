@@ -1,3 +1,7 @@
+**Dry January Is Driving Me to Drink**\
+`Do or do not, as Yoda might say. But please shut up about it, as I definitely would say.`\
+https://nytimes.com/2025/01/14/opinion/dry-january-social-media-sober.html
+
 **College basketball Player of the Year odds: Can anyone catch Cooper Flagg?**\
 `After a hot week and Johni Broome's injury, Cooper Flagg has emerged as a heavy favorite to win the John Wooden Award.`\
 https://nytimes.com/athletic/6061451/2025/01/14/cooper-flagg-college-basketball-player-of-the-year-odds-wooden-award/
