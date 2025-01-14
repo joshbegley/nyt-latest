@@ -1,3 +1,11 @@
+**Senate Hearings for Trump’s Cabinet Picks Have Begun. Here’s the Schedule.**\
+`Selections for attorney general, secretary of homeland security, secretary of state and Treasury secretary are among those set to have hearings this week.`\
+https://nytimes.com/2025/01/14/us/politics/trump-cabinet-senate-hearings-schedule.html
+
+**Death Toll in Gaza Likely 40 Percent Higher Than Reported, Researchers Say**\
+`Analysis found that more than 64,000 Palestinians may have been killed by traumatic injury in the first nine months of the war.`\
+https://nytimes.com/2025/01/14/health/gaza-death-toll.html
+
 **Dry January Is Driving Me to Drink**\
 `Do or do not, as Yoda might say. But please shut up about it, as I definitely would say.`\
 https://nytimes.com/2025/01/14/opinion/dry-january-social-media-sober.html
