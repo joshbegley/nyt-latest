@@ -1,3 +1,11 @@
+**French Prime Minister Signals He Will Revisit Retirement Law That Led to Mass Protests**\
+`His government on shaky ground, Prime Minister François Bayrou offered to reopen debate on the measure, which raised the retirement age in an effort to stabilize the country’s finances.`\
+https://nytimes.com/2025/01/14/world/europe/france-prime-minister-bayrou-retirement-age.html
+
+**Pete Hegseth Dresses for Defense**\
+`The nominee for Secretary of Defense wore his patriotism on his sleeve during his confirmation hearing — and his belt, his socks, and his pocket square.`\
+https://nytimes.com/2025/01/14/style/pete-hegseth-confirmation-hearing-image.html
+
 **Shattered in the Fire: A Historic Black Haven**\
 `For Black residents, Altadena represented something more than suburban living. It was a foothold in generational prosperity.`\
 https://nytimes.com/2025/01/14/us/la-fires-altadena-historic-black-community.html
