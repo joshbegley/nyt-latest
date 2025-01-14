@@ -1,3 +1,7 @@
+**Ricardo Pepi and his mind-boggling metrics have big clubs circling**\
+`There is a lot to like for teams tempted by the young American and his hot scoring touch`\
+https://nytimes.com/athletic/6050790/2025/01/14/ricardo-pepi-psv-usmnt/
+
 **Howe hopeful on Isak availability for Newcastle against Wolves**\
 `Eddie Howe says Alexander Isak is expected to be fit for Newcastle United’s home match against Wolverhampton Wanderers on Wednesday night.`\
 https://nytimes.com/athletic/6060537/2025/01/14/alexander-isak-newcastle-injury-update/
