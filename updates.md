@@ -1,3 +1,11 @@
+**Republicans Embraced Hegseth’s Bid to Lead the Pentagon**\
+`Also, Americans are flocking to a little-known Chinese app. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/14/briefing/pete-hegseth-hearing-la-fires-wind.html
+
+**As the Eaton Fire Still Burns, Locals Gather Seeds to Regrow**\
+`In Altadena, a network of home gardeners answer the call to build a free “library” of plant seeds.`\
+https://nytimes.com/2025/01/14/dining/la-eaton-fire-california.html
+
 **Rick Kuhn, 69, Dies; Convicted in a College Gambling Scandal**\
 `While playing basketball at Boston College, he participated in a point-shaving scheme with Henry Hill, the mobster later portrayed in the movie “Goodfellas.”`\
 https://nytimes.com/2025/01/14/us/rick-kuhn-dead.html

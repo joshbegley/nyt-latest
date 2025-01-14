@@ -1,3 +1,11 @@
+**Republicans Embraced Hegseth’s Bid to Lead the Pentagon**\
+`Also, Americans are flocking to a little-known Chinese app. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/14/briefing/pete-hegseth-hearing-la-fires-wind.html
+
+**As the Eaton Fire Still Burns, Locals Gather Seeds to Regrow**\
+`In Altadena, a network of home gardeners answer the call to build a free “library” of plant seeds.`\
+https://nytimes.com/2025/01/14/dining/la-eaton-fire-california.html
+
 **Rick Kuhn, 69, Dies; Convicted in a College Gambling Scandal**\
 `While playing basketball at Boston College, he participated in a point-shaving scheme with Henry Hill, the mobster later portrayed in the movie “Goodfellas.”`\
 https://nytimes.com/2025/01/14/us/rick-kuhn-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/world/middleeast/gaza-ceasefire-what-we-know.html
 **Dozens of Bodies Recovered From Illegal Mine in South Africa**\
 `The authorities had at one point limited the miners’ access to food, water and other supplies in a blockade that drew criticism from human rights groups.`\
 https://nytimes.com/2025/01/14/world/africa/south-africa-illegal-mine-deaths.html
-
-**Ventura County Braces for Dangerous Fire Conditions Through Wednesday**\
-`Although the National Weather Service downgraded the severity of its forecast on Tuesday, forecasters expect higher wind gusts on Wednesday that could lead to “explosive fire growth.”`\
-https://nytimes.com/2025/01/14/us/auto-fire-ventura-county.html
-
-**West Coast college football fan survey: Tell us about your first season in a new league**\
-`Did you enjoy your team's first season in its new league? Did you travel as much? Are you still passionate about college football?`\
-https://nytimes.com/athletic/6061047/2025/01/14/college-football-west-coast-pac-12/
 
