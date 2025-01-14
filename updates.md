@@ -1,3 +1,15 @@
+**Read the Special Counsel’s Report on the Trump Election Case**\
+`The former special counsel Jack Smith stood behind his prosecution of President-elect Donald J. Trump in a report released early Tuesday.`\
+https://nytimes.com/interactive/2025/01/14/us/report-of-special-counsel-smith-volume-1-january-2025.html
+
+**Former defender Jason McCarthy begins a well-trodden Brighton coaching pathway**\
+`McCarthy never played for Brighton but is set to follow in the footsteps of many other fellow ex-pros with the club's under-21s`\
+https://nytimes.com/athletic/6049990/2025/01/14/jason-mccarthy-brighton-coach-under-21s/
+
+**We Must Stand by Ukraine**\
+`Now is the time for the United States to build on its historic success supporting Ukraine, not squander it.`\
+https://nytimes.com/2025/01/14/opinion/us-ukraine-defense-austin-blinken-russia.html
+
 **Tuesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/14/briefing/los-angeles-fires-ukraine.html

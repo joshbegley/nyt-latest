@@ -1,3 +1,15 @@
+**Read the Special Counsel’s Report on the Trump Election Case**\
+`The former special counsel Jack Smith stood behind his prosecution of President-elect Donald J. Trump in a report released early Tuesday.`\
+https://nytimes.com/interactive/2025/01/14/us/report-of-special-counsel-smith-volume-1-january-2025.html
+
+**Former defender Jason McCarthy begins a well-trodden Brighton coaching pathway**\
+`McCarthy never played for Brighton but is set to follow in the footsteps of many other fellow ex-pros with the club's under-21s`\
+https://nytimes.com/athletic/6049990/2025/01/14/jason-mccarthy-brighton-coach-under-21s/
+
+**We Must Stand by Ukraine**\
+`Now is the time for the United States to build on its historic success supporting Ukraine, not squander it.`\
+https://nytimes.com/2025/01/14/opinion/us-ukraine-defense-austin-blinken-russia.html
+
 **Tuesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/14/briefing/los-angeles-fires-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6058967/2025/01/14/how-good-is-nottingham-forests-o
 **Why he said 'yes' and warnings to players - analysing Moyes' first press conference back at Everton**\
 `The incoming manager set out his stall as he spoke to the media — and was forceful in his messages to the players about what is required`\
 https://nytimes.com/athletic/6059516/2025/01/14/david-moyes-everton-press-conference-analysed/
-
-**Meslier's errors: What experts think - and why Leeds manager Farke is backing him**\
-`Illan Meslier has made a series of high profile mistakes but has been backed to continue by Daniel Farke`\
-https://nytimes.com/athletic/6059162/2025/01/14/illan-meslier-leeds-united-goalkeeper-analysis-mistakes/
-
-**McAtee is at a Man City crossroads: Stay as Foden did or leave like Palmer?**\
-`A hat-trick at the weekend highlighted James McAtee's potential - but also his lack of game time at an important stage of his development`\
-https://nytimes.com/athletic/6056303/2025/01/14/james-mcatee-manchester-city/
-
-**Trevoh Chalobah, the Chelsea loanee Crystal Palace were not able to play**\
-`The centre-half was due to play the FA Cup third round tie against Stockport County, so why was he prevented from taking part?`\
-https://nytimes.com/athletic/6058233/2025/01/14/chalobah-chelsea-crystal-palace-guehi-loan-glasner/
 
