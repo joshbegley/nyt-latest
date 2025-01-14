@@ -1,3 +1,7 @@
+**Nick Kyrgios and Alex De Minaur: Two tennis magnets at opposite poles in Melbourne**\
+`The two preeminent figures in Australian men's tennis could not be less alike.`\
+https://nytimes.com/athletic/5541040/2025/01/14/nick-kyrgios-australian-open-alex-de-minaur/
+
 **China’s $1 Trillion Trade Surplus: What to Know as Trump Takes Office**\
 `Only a third of China’s trade surplus was with the United States, and only a third of the U.S. deficit was with China. That makes for tricky math for the president-elect.`\
 https://nytimes.com/2025/01/14/business/china-trade-surplus-trump.html
