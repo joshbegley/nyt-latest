@@ -1,3 +1,11 @@
+**Cookies, Cocktails and Mushrooms on the Menu as Justices Hear Bank Fraud Case**\
+`In trying to find the line between false statements and misleading ones in the case of a Chicago politician, members of the Supreme Court posed colorful questions.`\
+https://nytimes.com/2025/01/14/us/politics/supreme-court-bank-fraud.html
+
+**Meta to Cut 5% of Its Workers in New Round of Layoffs**\
+`The company said in a memo sent to its employees on Tuesday that the layoffs would be based on performance ratings.`\
+https://nytimes.com/2025/01/14/technology/meta-layoffs.html
+
 **Dodgers to get second meeting with Roki Sasaki: Sources**\
 `Sasaki has recently completed city tours to both Toronto and San Diego.`\
 https://nytimes.com/athletic/6061768/2025/01/14/dodgers-roki-sasaki-second-meeting/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/us/politics/hegseth-women-senators.html
 **Who Will Succeed Jamie Dimon? The List of Contenders Narrows.**\
 `Jennifer Piepszak will become chief operating officer of JPMorgan this summer, and signaled she would not seek the chief executive’s job. The current C.O.O., Daniel Pinto, plans to retire.`\
 https://nytimes.com/2025/01/14/business/jenn-piepszak-jpmorgan-coo.html
-
-**Starbucks Cracks Down: No Latte, No Lounging**\
-`Starbucks said visitors to the coffee shops would be required to buy something in order to use the restroom or stay in the store, as the company’s new chief executive responded to a decline in sales.`\
-https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html
-
-**Coaches vote to push for CFB's portal window to be shortened, moved to January**\
-`The vote came following a meeting of more than 60 FBS head coaches at the American Football Coaches Association convention.`\
-https://nytimes.com/athletic/6061557/2025/01/14/college-football-transfer-portal-window-coaches/
 
