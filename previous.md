@@ -1,3 +1,11 @@
+**Publicity Hound**\
+`Lance Enfinger gets swept up in the game.`\
+https://nytimes.com/2025/01/13/crosswords/daily-puzzle-2025-01-14.html
+
+**Troy Aikman says he's 'not sure' Cowboys head coach is 'a coveted job'**\
+`The Cowboys and former head coach Mike McCarthy parted ways on Tuesday after five years.`\
+https://nytimes.com/athletic/6060018/2025/01/13/troy-aikman-comments-cowboys-mike-mccarthy-head-coach/
+
 **Corrections: Jan. 14, 2025**\
 `Corrections that appeared in print on Tuesday, Jan. 14, 2025.`\
 https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-14-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/13/opinion/democrats-laken-riley-act.html
 **Robinhood Is Fined $45 Million Over a New Set of Securities Violations**\
 `The upstart brokerage agreed to pay the Securities and Exchange Commission for failing to protect sensitive customer data, among other infractions.`\
 https://nytimes.com/2025/01/13/business/robinhood-sec-fine.html
-
-**L.A. Wildfire Evacuees Scramble to Find Sleep in Cars, Shelters and Hotels**\
-`More than 90,000 people under evacuation orders are making do however they can.`\
-https://nytimes.com/2025/01/13/us/la-fires-evacuations-housing-shelter.html
-
-**Giants are convinced that Justin Verlander still has passion to excel**\
-`Verlander has been throwing all offseason in an attempt to stave off the injury issues that ruined his 2024 campaign.`\
-https://nytimes.com/athletic/6059751/2025/01/13/sf-giants-justin-verlander-introduction/
 

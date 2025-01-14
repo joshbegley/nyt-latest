@@ -1,3 +1,11 @@
+**Publicity Hound**\
+`Lance Enfinger gets swept up in the game.`\
+https://nytimes.com/2025/01/13/crosswords/daily-puzzle-2025-01-14.html
+
+**Troy Aikman says he's 'not sure' Cowboys head coach is 'a coveted job'**\
+`The Cowboys and former head coach Mike McCarthy parted ways on Tuesday after five years.`\
+https://nytimes.com/athletic/6060018/2025/01/13/troy-aikman-comments-cowboys-mike-mccarthy-head-coach/
+
 **Corrections: Jan. 14, 2025**\
 `Corrections that appeared in print on Tuesday, Jan. 14, 2025.`\
 https://nytimes.com/2025/01/13/pageoneplus/corrections-jan-14-2025.html
