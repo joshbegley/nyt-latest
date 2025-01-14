@@ -1,4 +1,4 @@
-**Kevin Harlan, Amazon near deal**\
+**Kevin Harlan, Amazon near deal to call NBA games**\
 `Amazon Prime Video is closing in on a deal to make Kevin Harlan its No.`\
 https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
 
