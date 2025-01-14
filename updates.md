@@ -1,3 +1,7 @@
+**Arteta condemns Havertz social media abuse: 'We have to do something about it'**\
+`Mikel Arteta has spoken out against the social media abuse towards Kai Havertz and his pregnant wife after Arsenal’s FA Cup exit to Manchester United, saying it needs to be ‘eradicated’.`\
+https://nytimes.com/athletic/6060628/2025/01/14/havertz-arteta-abuse-social-media/
+
 **Mike McCarthy in, Mike Vrabel out: What's next for Bears' coaching search?**\
 `With Vrabel taking the Patriots' job and McCarthy now available, how does the landscape look in the second week of interviews?`\
 https://nytimes.com/athletic/6059301/2025/01/14/bears-coaching-search-mike-mccarthy-mike-vrabel/
