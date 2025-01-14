@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and the January window**\
+`This is your weekly guide to the January transfer window`\
+https://nytimes.com/athletic/6057562/2025/01/14/transfer-latest-arsenal-manchester-united-liverpool-real-madrid-barcelona/
+
 **Emma Raducanu's Australian Open starts with a serve with 'a mind of its own' - and a win**\
 `In a patchy serve display, Raducanu found stability on her groundstrokes to reach the second round in Melbourne`\
 https://nytimes.com/athletic/6060345/2025/01/14/emma-raducanu-australian-open-serve/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election
 **Democrats Say F.B.I. Did Not Interview Critical Witnesses About Pete Hegseth**\
 `The bureau did not interview an ex-wife of President-elect Donald J. Trump’s pick for defense secretary before the findings on his background check were presented to senators.`\
 https://nytimes.com/2025/01/14/us/fbi-pete-hegseth-background-check.html
-
-**Welcome to Carrington - the evolution of Manchester United's training ground**\
-`The Athletic visited United's day-to-day home on Manchester's outskirts to find out how extensive renovations are going`\
-https://nytimes.com/athletic/6021456/2025/01/14/welcome-to-carrington-the-evolution-of-manchester-uniteds-training-ground/
 

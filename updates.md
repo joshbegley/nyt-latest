@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and the January window**\
+`This is your weekly guide to the January transfer window`\
+https://nytimes.com/athletic/6057562/2025/01/14/transfer-latest-arsenal-manchester-united-liverpool-real-madrid-barcelona/
+
 **Special Counsel Report Says Trump Would Have Been Convicted in Election Case**\
 `The report, which said the special counsel’s office stood “fully behind” the merits of the prosecution, amounted to an extraordinary rebuke of the president-elect.`\
 https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election-jan-6.html
