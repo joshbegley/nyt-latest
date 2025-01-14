@@ -1,3 +1,15 @@
+**Biden Will Remove Cuba From List of State Sponsors of Terrorism**\
+`The decision is the latest in a series of conflicting U.S. approaches to Cuba by different administrations.`\
+https://nytimes.com/2025/01/14/us/politics/biden-cuba.html
+
+**Hegseth Refuses to Say Whether Sexual Assault Is Disqualifying**\
+`Pete Hegseth, President-elect Donald J. Trump’s nominee for defense secretary, declined to say whether assault or excessive drinking would disqualify someone from the position and called allegations about his past conduct “false claims.”`\
+https://nytimes.com/video/us/politics/100000009926304/hegseth-kaine-disqualifying-conduct-claims.html
+
+**Lyon owner Textor accused of not understanding French football's rules**\
+`The boss of French football’s financial regulator has hit back at criticisms made by Lyon owner John Textor, accusing the American of a “clear and persistent lack of understanding” of the rules.`\
+https://nytimes.com/athletic/6062013/2025/01/14/textor-lyon-dncg-ligue-1/
+
 **Senate Hearings for Trump’s Cabinet Picks Have Begun. Here’s the Schedule.**\
 `Selections for attorney general, secretary of homeland security, secretary of state and Treasury secretary are among those set to have hearings this week.`\
 https://nytimes.com/2025/01/14/us/politics/trump-cabinet-senate-hearings-schedule.html
