@@ -1,3 +1,7 @@
+**Ancelotti reconsidering Real Madrid tactics for big games after Barcelona**\
+`Real Madrid head coach Carlo Ancelotti is seriously reconsidering his tactics for big games after his side’s 5-2 Supercopa de Espana final defeat by Barcelona.`\
+https://nytimes.com/athletic/6060920/2025/01/14/carlo-ancelotti-real-madrid-tactics/
+
 **Lazio's club falconer, his prosthetic penis and a very unusual sacking**\
 `Juan Bernabe has lost his job as Lazio's falconer after sharing a photo of himself which ‘astonished’ the club`\
 https://nytimes.com/athletic/6060773/2025/01/14/lazio-falconer-prosthetic-penis-sacked/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049947/2025/01/14/senators-tkachuk-ullmark-stutzle
 **Vikings' surprising season comes to crashing halt, setting up offseason of uncertainty**\
 `The futures of Kevin O'Connell and Sam Darnold are among the many things Minnesota must work out after its first-round playoff exit. `\
 https://nytimes.com/athletic/6060488/2025/01/14/vikings-playoffs-loss-sam-darnold-kevin-oconnell/
-
-**Brighton have attempted the most dribbles in Europe - that isn't a good thing**\
-`Fabian Hurzeler is lacking technicians who can control games. It is hurting Brighton's chances of qualifying for Europe`\
-https://nytimes.com/athletic/6058239/2025/01/14/brighton-most-dribbles-issue-control/
 
