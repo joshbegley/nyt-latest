@@ -1,3 +1,7 @@
+**How Dereck Lively II balances Tyson Chandler comparisons while showcasing versatility**\
+`Lively had an impactful rookie season for the Mavericks, and now the big man has expanded his game, including his passing.`\
+https://nytimes.com/athletic/6059778/2025/01/14/dereck-lively-mavericks-passing-tyson-chandler/
+
 **No Premier League clubs charged with PSR breaches**\
 `No Premier League clubs have been charged with breaches of the Premier League&#8217;s profitability and sustainability rules (PSR) — though Leicester City could still be sanctioned.`\
 https://nytimes.com/athletic/6032852/2025/01/14/leicester-psr-charge-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/world/asia/south-korea-yoon-trial-detain.html
 **What would a Jonas Valančiūnas trade look like for the Wizards?**\
 `Valančiūnas, a bruising 32-year-old center, could draw interest from contenders before the Feb. 6 NBA trade deadline. But for how much?`\
 https://nytimes.com/athletic/6059442/2025/01/14/jonas-valanciunas-trade-wizards/
-
-**How the Rams' young DL set the tone for emotional wild-card win over Vikings**\
-`The Rams defensive line sacked Minnesota quarterback Sam Darnold six times in the first two quarters, and recorded nine total sacks.`\
-https://nytimes.com/athletic/6060376/2025/01/14/rams-win-advance-vikings-defense-sacks/
 
