@@ -1,3 +1,11 @@
+**Dozens of Bodies Recovered From Illegal Mine in South Africa**\
+`The authorities had at one point limited the miners’ access to food, water and other supplies in a blockade that drew criticism from human rights groups.`\
+https://nytimes.com/2025/01/14/world/africa/south-africa-illegal-mine-deaths.html
+
+**Ventura County Braces for Dangerous Fire Conditions Through Wednesday**\
+`Although the National Weather Service downgraded the severity of its forecast on Tuesday, forecasters expect higher wind gusts on Wednesday that could lead to “explosive fire growth.”`\
+https://nytimes.com/2025/01/14/us/auto-fire-ventura-county.html
+
 **In picturesque Ventura County, the threat of fire looms.**\
 `By Kate Christobek and Sam Stanton`\
 https://nytimes.com/2025/01/14/us/auto-fire-ventura-county.html
