@@ -1,3 +1,11 @@
+**Lakers return to court amid wildfires, but normalcy must wait: 'The fight isn’t over’**\
+`LA was understandably rusty and distracted in a loss to the San Antonio Spurs, who had a surprise for grieving coach JJ Redick. `\
+https://nytimes.com/athletic/6060424/2025/01/14/lakers-spurs-wildfires-jj-redick/
+
+**Weekly Student News Quiz: Wildfires, TikTok, Perry the Donkey**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/01/14/learning/14StudentNewsQuiz.html
+
 **Auto Fire Joins List of California Blazes**\
 `The new fire, in Ventura County northwest of Los Angeles, covers 56 acres and is 0 percent contained, officials said.`\
 https://nytimes.com/2025/01/14/us/auto-fire-ventura-county-la-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5982298/2025/01/14/joao-fonseca-tennis-player/
 **Martinez out for around four weeks with hamstring injury**\
 `Barcelona defender Inigo Martinez has been ruled out for around four weeks with a hamstring injury.`\
 https://nytimes.com/athletic/6060663/2025/01/14/barcelona-inigo-martinez-injury/
-
-**It's time to start valuing Leon Draisaitl as a legit Hart Trophy candidate**\
-`Draisaitl has been Edmonton's best player this season. Period. It’s hard to argue anything to the contrary.`\
-https://nytimes.com/athletic/6060470/2025/01/14/leon-draisaitl-legit-hart-trophy-candidate/
-
-**Wild insider: Players say they'll make L’Heureux pay if NHL won't, plus Fleury not unretiring and more**\
-`Wild players wanted a stiffer penalty for Zach L’Heureux from the NHL but say they're happy to take matters into their own hands Saturday.`\
-https://nytimes.com/athletic/6057040/2025/01/14/wild-insider-lheureux-spurgeon-fleury/
 
