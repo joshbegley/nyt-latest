@@ -1,3 +1,11 @@
+**Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
+`<p>With the Jets sitting in first place in the Central, the 4 Nations break coming, and the NHL trade deadline in sight, now&#8217;s a good time to answer your questions.`\
+https://nytimes.com/athletic/6061305/2025/01/14/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-2/
+
+**Pakistan Orders Inquiry After Complaints That Airline Ad Evoked 9/11**\
+`An advertisement meant to celebrate the resumption of flights to Paris showed a jet pointed toward the Eiffel Tower.`\
+https://nytimes.com/2025/01/14/world/asia/pakistan-airlines-ad-eiffel-tower-paris.html
+
 **How Notre Dame, Marcus Freeman crafted path to title game: Q&A with Greg McElroy**\
 `After calling all of Notre Dame's Playoff games for ESPN, McElory has a unique perspective on the Fighting Irish. `\
 https://nytimes.com/athletic/6061038/2025/01/14/notre-dame-college-football-playoff-greg-mcelroy/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/business/energy-environment/oil-gas-jobs.html
 **Commanders' fourth-down effectiveness could be pivotal vs. aggressive Lions**\
 `Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC Championship Game on the line.`\
 https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
-
-**Steph Curry, Steve Kerr and Warriors are grappling with an existential crossroads**\
-`"We're not giving in. But you have to be realistic organizationally about where you are," Kerr told The Athletic on Monday.`\
-https://nytimes.com/athletic/6060072/2025/01/14/steph-curry-warriors-future-nba-trade-rumors-kerr/
-
-**Manchester City reach agreement for Reis signing from Palmeiras**\
-`Manchester City have reached an agreement with Palmeiras for the signing of defender Vitor Reis.`\
-https://nytimes.com/athletic/6049162/2025/01/14/vitor-reis-manchester-city-transfer/
 
