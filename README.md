@@ -1,3 +1,11 @@
+**Word of the Day: castigate**\
+`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/14/learning/word-of-the-day-castigate.html
+
+**Jimmy Kimmel Gets Emotional Over the Los Angeles Fires**\
+`Kimmel said it was a “very scary, very stressful, very strange week here in L.A., where we work, where we live, where our kids go to school.”`\
+https://nytimes.com/2025/01/14/arts/television/jimmy-kimmel-los-angeles-fires.html
+
 **Read the Special Counsel’s Report on the Trump Election Case**\
 `The former special counsel Jack Smith stood behind his prosecution of President-elect Donald J. Trump in a report released early Tuesday.`\
 https://nytimes.com/interactive/2025/01/14/us/report-of-special-counsel-smith-volume-1-january-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6021456/2025/01/14/welcome-to-carrington-the-evolut
 **Inside Newcastle Q&A: Botman in a back three? What next for Barnes? Who might leave on loan?**\
 `Newcastle's defensive setup, the club's trading in January and the role of Harvey Barnes are all discussed in our weekly mailbag`\
 https://nytimes.com/athletic/6057468/2025/01/14/newcastle-analysis-transfers-contracts-loans/
-
-**How good is Ola Aina?**\
-`Ola Aina has been a revelation this season. Here’s how Forest's right-back compares to Alexander-Arnold and the very best in the division`\
-https://nytimes.com/athletic/6058967/2025/01/14/how-good-is-nottingham-forests-ola-aina/
-
-**Why he said 'yes' and warnings to players - analysing Moyes' first press conference back at Everton**\
-`The incoming manager set out his stall as he spoke to the media — and was forceful in his messages to the players about what is required`\
-https://nytimes.com/athletic/6059516/2025/01/14/david-moyes-everton-press-conference-analysed/
 
