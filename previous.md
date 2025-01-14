@@ -1,3 +1,7 @@
+**Democrats Question Hegseth About Misconduct Allegations**\
+`Democrats of the Senate Armed Services Committee called Peter Hegseth, president-elect Donald J. Trump’s pick for secretary of defense, unfit to serve. Meanwhile, Republicans praised Mr. Hegseth’s record and performance.`\
+https://nytimes.com/video/us/politics/100000009925640/hegseth-hearing.html
+
 **And Just Like That, Carrie Bradshaw’s Front Stoop Was Closed**\
 `A West Village homeowner was granted permission to build a gate on her house in an effort to stop overeager ‘Sex and the City’ fans from trespassing.`\
 https://nytimes.com/2025/01/14/realestate/sex-and-the-city-apartment-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062257/2025/01/14/2024-summer-olympics-paris-medal
 **Wisconsin wipes slate clean of QBs tied to Phil Longo, parts ways with 2026 commit Jarin Mock**\
 `Jarin Mock was the first committed prospect of the Badgers 2026 recruiting class but was informed of Wisconsin's new direction Tuesday. `\
 https://nytimes.com/athletic/6062193/2025/01/14/wisconsin-college-football-jarin-mock-quarterback-recruiting/
-
-**Depose Maduro**\
-`Combine a powerful incentive and a credible military threat to dislodge him and his cronies.`\
-https://nytimes.com/2025/01/14/opinion/maduro-venezuela-trump.html
 

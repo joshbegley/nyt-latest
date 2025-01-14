@@ -1,3 +1,7 @@
+**Democrats Question Hegseth About Misconduct Allegations**\
+`Democrats of the Senate Armed Services Committee called Peter Hegseth, president-elect Donald J. Trump’s pick for secretary of defense, unfit to serve. Meanwhile, Republicans praised Mr. Hegseth’s record and performance.`\
+https://nytimes.com/video/us/politics/100000009925640/hegseth-hearing.html
+
 **And Just Like That, Carrie Bradshaw’s Front Stoop Was Closed**\
 `A West Village homeowner was granted permission to build a gate on her house in an effort to stop overeager ‘Sex and the City’ fans from trespassing.`\
 https://nytimes.com/2025/01/14/realestate/sex-and-the-city-apartment-new-york.html
