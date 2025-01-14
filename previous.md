@@ -1,3 +1,7 @@
+**NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
+`Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
+https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
+
 **Many of California’s Most Destructive Fires Were Caused by Power Lines**\
 `Officials are probing whether electrical equipment sparked the Los Angeles fires. Such infrastructure has ignited vast destruction in recent years.`\
 https://nytimes.com/interactive/2025/01/13/us/los-angeles-fires-cause.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/us/eaton-fire-victims.html
 **Canada's new women's coach Casey Stoney addresses drone scandal**\
 `Stoney's contract runs through 2027, the next Women's World Cup, with the option for 2028.`\
 https://nytimes.com/athletic/6059830/2025/01/13/canada-women-coach-drone-scandal-olympics-soccer/
-
-**You Can Have ‘Sex and the City,’ Just Not on the Front Stoop**\
-`The real-life owner of the Manhattan building where Carrie Bradshaw lived wants to erect a gate to deter overzealous fans from trespassing.`\
-https://nytimes.com/2025/01/13/realestate/carrie-bradshaw-sex-and-the-city-apartment-nyc.html
 

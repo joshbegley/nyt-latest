@@ -1,3 +1,7 @@
+**NFL playoffs odds, schedule for divisional round: Bills-Ravens is nearly a pick'em**\
+`Bills-Ravens is nearly a pick'em, while the top-seeded Chiefs and Lions own big spreads over their opposition in the divisional round.`\
+https://nytimes.com/athletic/6056241/2025/01/13/nfl-playoffs-odds-schedule-divisional-round/
+
 **Many of California’s Most Destructive Fires Were Caused by Power Lines**\
 `Officials are probing whether electrical equipment sparked the Los Angeles fires. Such infrastructure has ignited vast destruction in recent years.`\
 https://nytimes.com/interactive/2025/01/13/us/los-angeles-fires-cause.html
