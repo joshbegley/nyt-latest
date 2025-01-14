@@ -1,3 +1,11 @@
+**South Korean Leader Shuns Trial as He Tries to Hold Off Detention**\
+`The Constitutional Court began hearings on whether to unseat Yoon Suk Yeol. But he remained in his fortified residence as investigators drew up plans to detain him.`\
+https://nytimes.com/2025/01/14/world/asia/south-korea-yoon-trial-detain.html
+
+**What would a Jonas Valančiūnas trade look like for the Wizards?**\
+`Valančiūnas, a bruising 32-year-old center, could draw interest from contenders before the Feb. 6 NBA trade deadline. But for how much?`\
+https://nytimes.com/athletic/6059442/2025/01/14/jonas-valanciunas-trade-wizards/
+
 **How the Rams' young DL set the tone for emotional wild-card win over Vikings**\
 `The Rams defensive line sacked Minnesota quarterback Sam Darnold six times in the first two quarters, and recorded nine total sacks.`\
 https://nytimes.com/athletic/6060376/2025/01/14/rams-win-advance-vikings-defense-sacks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/opinion/pete-hegseth-donald-trump.html
 **Holding Onto a Middle Class Home in a Burning Los Angeles**\
 `Recovering from a disaster requires patience. And many working people — especially those whose wealth is tied up in their homes — might reconsider remaining.`\
 https://nytimes.com/2025/01/14/opinion/los-angeles-fires-homes.html
-
-**Hollywood’s Filmmaking Continues Despite L.A. Wildfires**\
-`Because of costs, few movies are shot locally, leaving the industry in a surreal spot: reeling from personal loss with much of the business untouched.`\
-https://nytimes.com/2025/01/14/business/la-wildfires-hollywood-film-production.html
-
-**Here’s the latest on the fires.**\
-`By Mike Ives`\
-https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/heres-the-latest-on-the-fires
 
