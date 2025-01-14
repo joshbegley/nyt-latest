@@ -1,3 +1,27 @@
+**Why superstar Magnus Carlsen is playing chess for St. Pauli**\
+`The Norwegian genius has now played his first match for St. Pauli`\
+https://nytimes.com/athletic/6060791/2025/01/14/why-superstar-magnus-carlsen-is-playing-chess-for-st-pauli/
+
+**Explained: How Chelsea avoided breaching PSR**\
+`Despite no Champions League revenue and having a poor domestic season in 2023-24, Chelsea stayed on the right side of Premier League rules`\
+https://nytimes.com/athletic/6060778/2025/01/14/chelsea-psr-breach-avoid-how/
+
+**The Bounce: Making sense of this season's confusing NBA Rookie of the Year race**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6060782/2025/01/14/nba-rookie-of-the-year-alex-sarr-jared-mccain-zach-edey-the-bounce/
+
+**Two Blistering Solos Raise the Stakes at Live Artery**\
+`Highlights so far of the 2025 contemporary dance festival, spread across New York City, are Symara Sarai and Leslie Cuyjet’s outstanding dances.`\
+https://nytimes.com/2025/01/14/arts/dance/live-artery-contemporary-dance-festival.html
+
+**Catherine, Princess of Wales, Confirms She is in Remission from Cancer**\
+`In an Instagram post on Tuesday, she wrote: ‘It is a relief to now be in remission and I remain focused on recovery’`\
+https://nytimes.com/2025/01/14/world/europe/kate-middleton-cancer-remission.html
+
+**Hundreds of Teachers Lost Homes in the L.A. Fires**\
+`Some teachers are scrambling to find temporary housing, even as they hope to return soon to their classrooms.`\
+https://nytimes.com/2025/01/14/us/la-fires-teachers-schools.html
+
 **Hundreds of Teachers Lost Homes in L.A. Fires**\
 `Some teachers are scrambling to find temporary housing, even as they hope to return soon to their classrooms.`\
 https://nytimes.com/2025/01/14/us/la-fires-teachers-schools.html

@@ -1,4 +1,24 @@
-**Hundreds of Teachers Lost Homes in L.A. Fires**\
+**Why superstar Magnus Carlsen is playing chess for St. Pauli**\
+`The Norwegian genius has now played his first match for St. Pauli`\
+https://nytimes.com/athletic/6060791/2025/01/14/why-superstar-magnus-carlsen-is-playing-chess-for-st-pauli/
+
+**Explained: How Chelsea avoided breaching PSR**\
+`Despite no Champions League revenue and having a poor domestic season in 2023-24, Chelsea stayed on the right side of Premier League rules`\
+https://nytimes.com/athletic/6060778/2025/01/14/chelsea-psr-breach-avoid-how/
+
+**The Bounce: Making sense of this season's confusing NBA Rookie of the Year race**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6060782/2025/01/14/nba-rookie-of-the-year-alex-sarr-jared-mccain-zach-edey-the-bounce/
+
+**Two Blistering Solos Raise the Stakes at Live Artery**\
+`Highlights so far of the 2025 contemporary dance festival, spread across New York City, are Symara Sarai and Leslie Cuyjet’s outstanding dances.`\
+https://nytimes.com/2025/01/14/arts/dance/live-artery-contemporary-dance-festival.html
+
+**Catherine, Princess of Wales, Confirms She is in Remission from Cancer**\
+`In an Instagram post on Tuesday, she wrote: ‘It is a relief to now be in remission and I remain focused on recovery’`\
+https://nytimes.com/2025/01/14/world/europe/kate-middleton-cancer-remission.html
+
+**Hundreds of Teachers Lost Homes in the L.A. Fires**\
 `Some teachers are scrambling to find temporary housing, even as they hope to return soon to their classrooms.`\
 https://nytimes.com/2025/01/14/us/la-fires-teachers-schools.html
 
@@ -17,24 +37,4 @@ https://nytimes.com/video/us/politics/100000009925531/hegseth-unqualified-reed.h
 **Britain’s Anti-Corruption Minister Resigns**\
 `Tulip Siddiq, the niece of former Prime Minister Sheikh Hasina of Bangladesh, had been named in an embezzlement investigation in the Asian country.`\
 https://nytimes.com/2025/01/14/world/europe/britain-tulip-siddiq-resigns.html
-
-**Brentford reviewing incident that saw Plymouth fan sustain head injury**\
-`Brentford are reviewing an incident in which a Plymouth Argyle supporter required hospital treatment for a head injury sustained during their FA Cup third-round tie on Saturday.`\
-https://nytimes.com/athletic/6060642/2025/01/14/brentford-fan-injury-fa-cup/
-
-**How a Failed Basketball Player Made the First Rap Hit of the Year**\
-`The N.B.A. washout LiAngelo Ball debuted his track “Tweaker” on a livestream. It’s proving to be much more than a novelty.`\
-https://nytimes.com/2025/01/14/arts/music/liangelo-ball-tweaker.html
-
-**Much of the hearing has focused on Hegseth’s comments on women in the military.**\
-`By Eric Schmitt`\
-https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/much-of-the-hearing-has-focused-on-hegseths-comments-on-women-in-the-military
-
-**IOC to replace Gary Hall Jr.'s Oly medals after originals lost in L.A. fires**\
-`Hall is a 10-time Olympic medalist and twice won gold in the 50m freestyle. `\
-https://nytimes.com/athletic/6061066/2025/01/14/olympic-swimmer-gary-hall-jr-medals-replaced/
-
-**Saudi Arabia Said to Be Close to Deal With Billionaire’s Sports Network**\
-`A unit of the kingdom’s sovereign wealth fund would pay more than $1 billion to buy into DAZN, in the latest sign of its sports ambitions.`\
-https://nytimes.com/2025/01/14/business/saudi-arabia-dazn-sports.html
 
