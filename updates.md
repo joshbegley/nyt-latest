@@ -1,3 +1,15 @@
+**Hegseth morphed from a critic of war crimes to a defender of the accused.**\
+`By Dave Philipps and Carol Rosenberg`\
+https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
+
+**Rashida Jones, MSNBC President, Steps Down**\
+`Rebecca Kutler, senior vice president of content strategy at MSNBC, will succeed Ms. Jones as interim president.`\
+https://nytimes.com/2025/01/14/business/media/msnbc-rashida-jones-stepping-down.html
+
+**All eyes are on Ernst as Hegseth faces a public grilling from senators.**\
+`The Iowa Republican who initially expressed skepticism about President-elect Donald J. Trump’s pick for defense secretary has tempered her tone but not yet committed to support him.`\
+https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/all-eyes-are-on-ernst-as-hegseth-faces-a-public-grilling-from-senators
+
 **Ancelotti reconsidering Real Madrid tactics for big games after Barcelona**\
 `Real Madrid head coach Carlo Ancelotti is seriously reconsidering his tactics for big games after his side’s 5-2 Supercopa de Espana final defeat by Barcelona.`\
 https://nytimes.com/athletic/6060920/2025/01/14/carlo-ancelotti-real-madrid-tactics/

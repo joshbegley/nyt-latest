@@ -1,3 +1,15 @@
+**Hegseth morphed from a critic of war crimes to a defender of the accused.**\
+`By Dave Philipps and Carol Rosenberg`\
+https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
+
+**Rashida Jones, MSNBC President, Steps Down**\
+`Rebecca Kutler, senior vice president of content strategy at MSNBC, will succeed Ms. Jones as interim president.`\
+https://nytimes.com/2025/01/14/business/media/msnbc-rashida-jones-stepping-down.html
+
+**All eyes are on Ernst as Hegseth faces a public grilling from senators.**\
+`The Iowa Republican who initially expressed skepticism about President-elect Donald J. Trump’s pick for defense secretary has tempered her tone but not yet committed to support him.`\
+https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/all-eyes-are-on-ernst-as-hegseth-faces-a-public-grilling-from-senators
+
 **Ancelotti reconsidering Real Madrid tactics for big games after Barcelona**\
 `Real Madrid head coach Carlo Ancelotti is seriously reconsidering his tactics for big games after his side’s 5-2 Supercopa de Espana final defeat by Barcelona.`\
 https://nytimes.com/athletic/6060920/2025/01/14/carlo-ancelotti-real-madrid-tactics/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/14/business/dealbook/china-musk-tiktok.html
 **‘Red Note,’ a Chinese App, Is Dominating Downloads, Thanks to TikTok Users**\
 `To show how little they care about TikTok’s ties to Beijing, people in the United States are downloading one of China’s most popular apps.`\
 https://nytimes.com/2025/01/14/business/tiktok-rednote-xiaohongshu-app.html
-
-**Anysphere, a Maker of A.I. Coding Software, Raises $105 Million**\
-`The company’s Cursor product, which can autocomplete programming code, helped the start-up draw a $2.5 billion valuation.`\
-https://nytimes.com/2025/01/14/business/dealbook/anysphere-cursor-25-billion-valuation.html
-
-**Senators midseason report card: Grades for Tkachuk, Ullmark, Stützle and more**\
-`A midseason assessment of everyone's performance, including the head coach and general manager.`\
-https://nytimes.com/athletic/6049947/2025/01/14/senators-tkachuk-ullmark-stutzle-nhl-grades/
-
-**Vikings' surprising season comes to crashing halt, setting up offseason of uncertainty**\
-`The futures of Kevin O'Connell and Sam Darnold are among the many things Minnesota must work out after its first-round playoff exit. `\
-https://nytimes.com/athletic/6060488/2025/01/14/vikings-playoffs-loss-sam-darnold-kevin-oconnell/
 
