@@ -1,3 +1,11 @@
+**Steph Curry, Steve Kerr and Warriors are grappling with an existential crossroads**\
+`"We're not giving in. But you have to be realistic organizationally about where you are," Kerr told The Athletic on Monday.`\
+https://nytimes.com/athletic/6060072/2025/01/14/steph-curry-warriors-future-nba-trade-rumors-kerr/
+
+**Manchester City reach agreement for Reis signing from Palmeiras**\
+`Manchester City have reached an agreement with Palmeiras for the signing of defender Vitor Reis.`\
+https://nytimes.com/athletic/6049162/2025/01/14/vitor-reis-manchester-city-transfer/
+
 **Hegseth morphed from a critic of war crimes to a defender of the accused.**\
 `By Dave Philipps and Carol Rosenberg`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
