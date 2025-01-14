@@ -1,6 +1,6 @@
 **In picturesque Ventura County, the threat of fire looms.**\
 `By Kate Christobek and Sam Stanton`\
-https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/auto-fire-ventura-county
+https://nytimes.com/2025/01/14/us/auto-fire-ventura-county.html
 
 **West Coast college football fan survey: Tell us about your first season in a new league**\
 `Did you enjoy your team's first season in its new league? Did you travel as much? Are you still passionate about college football?`\
