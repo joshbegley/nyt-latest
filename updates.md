@@ -1,3 +1,11 @@
+**Canadiens rookie Emil Heineman hit by car in Utah, will miss 3-4 weeks**\
+`Heineman was involved in a traffic accident while walking around Salt Lake City on Monday night.`\
+https://nytimes.com/athletic/6061579/2025/01/14/canadiens-emil-heineman-hit-car/
+
+**Des Moines Art Center to Demolish Land Art It Commissioned**\
+`In a settlement, the artist Mary Miss agreed to accept $900,000 after a yearlong battle to save her work. The museum said it had become a safety hazard.`\
+https://nytimes.com/2025/01/14/arts/design/des-moines-art-center-mary-miss-settlement-land-art.html
+
 **Aston Villa's challenge is to solve the riddle of Donyell Malen**\
 `Aston Villa's new man is a player once tipped for the top of European football, who has yet to fully convince the world of his talent`\
 https://nytimes.com/athletic/6049683/2025/01/14/donyell-malen-aston-villa-dortmund/
