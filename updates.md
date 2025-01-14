@@ -1,3 +1,7 @@
+**Hegseth Earned $6 Million From TV, Books and Paid Speaking Fees**\
+`Financial reports show the potential defense secretary’s pay from past speaking and writing, some of which provided fodder for senators during his confirmation hearing.`\
+https://nytimes.com/2025/01/14/business/pete-hegseth-financial-reports.html
+
 **Jack Smith’s Accountability Effort Ends With More Freedom for Trump**\
 `The Justice Department now enters a second Trump administration with less authority to pursue a president than it has had in half a century.`\
 https://nytimes.com/2025/01/14/us/politics/jack-smith-trump-presidents.html
