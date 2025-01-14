@@ -1,3 +1,7 @@
+**What I'm hearing: All eyes on the farm**\
+`Kyle Dubas seems poised to help the Penguins without giving up any valuable assets.`\
+https://nytimes.com/athletic/6056175/2025/01/14/penguins-ahl-prospects-kyle-dubas/
+
 **Preston Clark Steps Into the Spotlight at Bar Mercer**\
 `Oases takes an Ayurvedic approach to cooking, the chef Francis Mallmann comes to New York and more restaurant news.`\
 https://nytimes.com/2025/01/14/dining/nyc-restaurant-news.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/01/14/theater/under-the-radar-festival-new-york.html
 `The complaint accuses the company of underpaying female, Black and Hispanic employees compared with their male and white counterparts.`\
 https://nytimes.com/2025/01/14/business/mastercard-26-million-pay-discrimination.html
 
-**New Administration Takes Over in Challenging Era for the Pentagon**\
+**New Administration to Take Over in Challenging Era for the Pentagon**\
 `The incoming defense secretary will face several challenges, including the war in Ukraine and the turmoil in the Middle East.`\
 https://nytimes.com/2025/01/14/us/politics/trump-defense-secretary-ukraine-middle-east.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/us/los-angeles-wildfires-fear.html
 **Malen completes Villa move from Dortmund**\
 `Aston Villa have completed the signing of forward Donyell Malen from Borussia Dortmund.`\
 https://nytimes.com/athletic/6057566/2025/01/14/donyell-malen-aston-villa/
-
-**Meta’s Decision to End Fact-Checking Could Have Disastrous Consequences**\
-`What happens on Meta’s platforms is more than just a matter of company policy.`\
-https://nytimes.com/2025/01/14/opinion/meta-fact-checking-policy.html
 
