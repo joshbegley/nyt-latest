@@ -1,3 +1,7 @@
+**Full Time: USWNT moves camp amid wildfires**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6060119/2025/01/13/emma-hayes-uswnt-marta-orlando-full-time/
+
 **Deion Sanders, Jerry Jones discuss Cowboys coaching vacancy: Sources**\
 `Sanders, 57, played for Jones and the Cowboys from 1995 to 1999, winning Super Bowl XXX with the team.`\
 https://nytimes.com/athletic/6060074/2025/01/13/deion-sanders-cowboys-head-coach-jerry-jones/
