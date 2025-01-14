@@ -1,3 +1,11 @@
+**French Prime Minister Signals He Will Revisit Retirement Law That Led to Mass Protests**\
+`His government on shaky ground, Prime Minister François Bayrou offered to reopen debate on the measure, which raised the retirement age in an effort to stabilize the country’s finances.`\
+https://nytimes.com/2025/01/14/world/europe/france-prime-minister-bayrou-retirement-age.html
+
+**Pete Hegseth Dresses for Defense**\
+`The nominee for Secretary of Defense wore his patriotism on his sleeve during his confirmation hearing — and his belt, his socks, and his pocket square.`\
+https://nytimes.com/2025/01/14/style/pete-hegseth-confirmation-hearing-image.html
+
 **Shattered in the Fire: A Historic Black Haven**\
 `For Black residents, Altadena represented something more than suburban living. It was a foothold in generational prosperity.`\
 https://nytimes.com/2025/01/14/us/la-fires-altadena-historic-black-community.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-co
 **Investigators Prepare New Attempt to Detain South Korea’s Impeached Leader**\
 `More forces are expected to join the operation to take Yoon Suk Yeol in for questioning after the last attempt was foiled by his large security team.`\
 https://nytimes.com/2025/01/14/world/asia/south-korea-yoon-detain.html
-
-**F.D.A. Proposes New Food Labels to Detail Sugar, Fat and Salt Levels**\
-`The agency issued designs for front-of-package lists that food companies would be required to include.`\
-https://nytimes.com/2025/01/14/health/fda-food-labels-sugar-fat-salt.html
-
-**A Cure for Winter Blues? Try These Cozy New York Restaurants.**\
-`Cafe Kestrel in Brooklyn and Cocina Consuelo in Harlem can restore the spirit with warm service, cheery surroundings and deeply satisfying food.`\
-https://nytimes.com/2025/01/14/dining/restaurant-review-cafe-kestrel-cocina-consuelo-nyc.html
 
