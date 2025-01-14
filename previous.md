@@ -1,3 +1,11 @@
+**Greenberg: Given Bears' past and present, can you be too pessimistic about coach search?**\
+`The Bears’ insistence on not learning from their past is why fans are scared about Mike McCarthy and the exhaustive coaching search.`\
+https://nytimes.com/athletic/6061396/2025/01/14/chicago-bears-coach-search-mike-mccarthy-ben-johnson/
+
+**Speaker Orders Capitol Hill Flags Raised for Inauguration**\
+`President-elect Donald J. Trump had complained that flags were scheduled to fly at half-staff — a symbol of mourning for former President Jimmy Carter — on the day of his inauguration.`\
+https://nytimes.com/2025/01/14/us/politics/mike-johnson-flags-trump-inauguration.html
+
 **Hegseth Spars with Senator Over What He Meant by Slang Term**\
 `President-elect Donald J. Trump’s pick for defense secretary used a generally unflattering term to criticize legal officers in the military.`\
 https://nytimes.com/2025/01/14/us/politics/hegseth-jagoff-confirmation-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/dining/nyc-restaurant-news.html
 **Under the Radar: Venturing to Fantastical Universes With a Dodo and More**\
 `Stories from refugee children, gloriously morbid puppets and a rooster who defies a dictator. These are some of the offbeat offerings this January.`\
 https://nytimes.com/2025/01/14/theater/under-the-radar-festival-new-york.html
-
-**Mastercard Agrees to Settle Pay Discrimination Suit for $26 Million**\
-`The complaint accuses the company of underpaying female, Black and Hispanic employees compared with their male and white counterparts.`\
-https://nytimes.com/2025/01/14/business/mastercard-26-million-pay-discrimination.html
-
-**New Administration to Take Over in Challenging Era for the Pentagon**\
-`The incoming defense secretary will face several challenges, including the war in Ukraine and the turmoil in the Middle East.`\
-https://nytimes.com/2025/01/14/us/politics/trump-defense-secretary-ukraine-middle-east.html
 

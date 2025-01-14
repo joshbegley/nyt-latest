@@ -1,3 +1,11 @@
+**Greenberg: Given Bears' past and present, can you be too pessimistic about coach search?**\
+`The Bears’ insistence on not learning from their past is why fans are scared about Mike McCarthy and the exhaustive coaching search.`\
+https://nytimes.com/athletic/6061396/2025/01/14/chicago-bears-coach-search-mike-mccarthy-ben-johnson/
+
+**Speaker Orders Capitol Hill Flags Raised for Inauguration**\
+`President-elect Donald J. Trump had complained that flags were scheduled to fly at half-staff — a symbol of mourning for former President Jimmy Carter — on the day of his inauguration.`\
+https://nytimes.com/2025/01/14/us/politics/mike-johnson-flags-trump-inauguration.html
+
 **Hegseth Spars with Senator Over What He Meant by Slang Term**\
 `President-elect Donald J. Trump’s pick for defense secretary used a generally unflattering term to criticize legal officers in the military.`\
 https://nytimes.com/2025/01/14/us/politics/hegseth-jagoff-confirmation-hearing.html
