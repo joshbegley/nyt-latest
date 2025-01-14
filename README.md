@@ -1,3 +1,7 @@
+**Emma Raducanu's Australian Open starts with a serve with 'a mind of its own' — and a win**\
+`In a patchy serve display, Raducanu found stability on her groundstrokes to reach the second round in Melbourne.`\
+https://nytimes.com/athletic/6060345/2025/01/14/emma-raducanu-australian-open-serve/
+
 **Word of the Day: castigate**\
 `This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/14/learning/word-of-the-day-castigate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/us/fbi-pete-hegseth-background-check.html
 **Welcome to Carrington - the evolution of Manchester United's training ground**\
 `The Athletic visited United's day-to-day home on Manchester's outskirts to find out how extensive renovations are going`\
 https://nytimes.com/athletic/6021456/2025/01/14/welcome-to-carrington-the-evolution-of-manchester-uniteds-training-ground/
-
-**Inside Newcastle Q&A: Botman in a back three? What next for Barnes? Who might leave on loan?**\
-`Newcastle's defensive setup, the club's trading in January and the role of Harvey Barnes are all discussed in our weekly mailbag`\
-https://nytimes.com/athletic/6057468/2025/01/14/newcastle-analysis-transfers-contracts-loans/
 
