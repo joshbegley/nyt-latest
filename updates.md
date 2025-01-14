@@ -1,3 +1,7 @@
+**Emma Raducanu's Australian Open starts with a serve with 'a mind of its own' — and a win**\
+`In a patchy serve display, Raducanu found stability on her groundstrokes to reach the second round in Melbourne.`\
+https://nytimes.com/athletic/6060345/2025/01/14/emma-raducanu-australian-open-serve/
+
 **Word of the Day: castigate**\
 `This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/14/learning/word-of-the-day-castigate.html
