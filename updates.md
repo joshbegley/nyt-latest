@@ -1,3 +1,11 @@
+**Pistons' trust in one another building after another win over Knicks in New York**\
+`Detroit improved to 7-1 in 2025 as Cade Cunningham and Malik Beasley shined at Madison Square Garden.`\
+https://nytimes.com/athletic/6060426/2025/01/14/pistons-knicks-cade-cunningham-malik-beasley/
+
+**Canucks midseason report cards: Grading every Vancouver forward’s performance**\
+`As the Canucks enter the stretch run of their season, here is a midseason grade for each forward.`\
+https://nytimes.com/athletic/6059445/2025/01/14/canucks-nhl-forward-report-cards-2025/
+
 **Hegseth will draw on combat experience in his pitch to lead the Pentagon.**\
 `By Karoun Demirjian`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-draws-on-combat-experience-in-his-pitch-to-lead-the-pentagon
