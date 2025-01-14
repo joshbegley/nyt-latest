@@ -1,3 +1,15 @@
+**Attempting to make sense of a confusing Premier League season**\
+`Manchester City's collapse and Nottingham Forest's unexpected surge are just two of the reasons this has been a strange season so far`\
+https://nytimes.com/athletic/6058622/2025/01/14/premier-league-season-liverpool-forest-man-city/
+
+**Barca's Olmo reprieve: How long can he and Victor play for, why did the government intervene and what next?**\
+`Barcelona have temporarily re-registered Dani Olmo and fellow summer 2024 signing Pau Victor, but this legal saga is far from over`\
+https://nytimes.com/athletic/6051663/2025/01/14/barcelona-dani-olmo-csd-registration/
+
+**Forest got under Liverpool's skin in September - has Slot learnt his lesson for the rematch?**\
+`Liverpool's only Premier League defeat this season still stings their coach — but how were they beaten and can Forest do it again tonight?`\
+https://nytimes.com/athletic/6058041/2025/01/14/liverpool-nottingham-forest-arne-slot-tactics/
+
 **NFL, Rams honor wildfire victims, First Responders throughout wild-card win**\
 `"It's a tough time to be back there, and we're just happy that we came out there and played like this tonight," Stafford said.`\
 https://nytimes.com/athletic/6059961/2025/01/14/nfl-los-angeles-rams-wild-card-fires/

@@ -1,3 +1,15 @@
+**Attempting to make sense of a confusing Premier League season**\
+`Manchester City's collapse and Nottingham Forest's unexpected surge are just two of the reasons this has been a strange season so far`\
+https://nytimes.com/athletic/6058622/2025/01/14/premier-league-season-liverpool-forest-man-city/
+
+**Barca's Olmo reprieve: How long can he and Victor play for, why did the government intervene and what next?**\
+`Barcelona have temporarily re-registered Dani Olmo and fellow summer 2024 signing Pau Victor, but this legal saga is far from over`\
+https://nytimes.com/athletic/6051663/2025/01/14/barcelona-dani-olmo-csd-registration/
+
+**Forest got under Liverpool's skin in September - has Slot learnt his lesson for the rematch?**\
+`Liverpool's only Premier League defeat this season still stings their coach — but how were they beaten and can Forest do it again tonight?`\
+https://nytimes.com/athletic/6058041/2025/01/14/liverpool-nottingham-forest-arne-slot-tactics/
+
 **NFL, Rams honor wildfire victims, First Responders throughout wild-card win**\
 `"It's a tough time to be back there, and we're just happy that we came out there and played like this tonight," Stafford said.`\
 https://nytimes.com/athletic/6059961/2025/01/14/nfl-los-angeles-rams-wild-card-fires/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6060036/2025/01/14/blackhawks-seth-jones-struggles/
 **Rams down Vikings 27-9 in wild-card game for date with Eagles: Takeaways**\
 `The contest was relocated from the Rams' home venue at SoFi Stadium to State Farm Stadium in Arizona due to the L.A. wildfires.`\
 https://nytimes.com/athletic/6060250/2025/01/14/vikings-rams-score-result-takeaways-nfl-wild-card/
-
-**A Neo-Nazi Helped Incite U.K. Riots. Elon Musk Criticized His Sentencing.**\
-`Andrew McIntyre, a British extremist who played a key role in fomenting last summer’s unrest, was sentenced last week to seven years in jail.`\
-https://nytimes.com/2025/01/14/world/europe/neo-nazi-uk-riots-elon-musk.html
-
-**The British Public Dislikes Elon Musk. He Can Still Sway Politics.**\
-`His influence is partly the result of a very online political establishment, and partly thanks to a right-leaning media that is hostile to Keir Starmer’s Labour government.`\
-https://nytimes.com/2025/01/14/world/europe/elon-musk-uk-starmer-grooming-gangs.html
-
-**Nottingham Forest vs Liverpool preview: Storylines, odds, prediction for top-four clash**\
-`Red-hot Nottingham Forest host Liverpool in a meeting of two of the top teams in the table, and two of the hottest teams.`\
-https://nytimes.com/athletic/6059468/2025/01/14/nottingham-forest-liverpool-preview-odds-prediction/
 
