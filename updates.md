@@ -1,3 +1,7 @@
+**The Pulse: The Vikings' shocking collapse**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6059527/2025/01/14/rams-vikings-wild-card-the-pulse/
+
 **The Airborne Flames**\
 `We explain why the Los Angeles fires have been so hard to contain.`\
 https://nytimes.com/2025/01/14/briefing/la-wildfires-firefighting.html
