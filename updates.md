@@ -1,3 +1,7 @@
+**Pete Hegseth’s Preposterous Selection**\
+`It should be derailed after today’s hearing. I doubt it will.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/hegseth-confirmation-hearing
+
 **Biden Will Remove Cuba From List of State Sponsors of Terrorism**\
 `The decision is the latest in a series of conflicting U.S. approaches to Cuba by different administrations.`\
 https://nytimes.com/2025/01/14/us/politics/biden-cuba.html
