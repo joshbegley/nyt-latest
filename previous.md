@@ -1,3 +1,11 @@
+**In a First, the E.P.A. Warns of ‘Forever Chemicals’ in Fertilizer**\
+`Levels of PFAS in sewage sludge used as fertilizer can pose risks that sometimes exceed safety thresholds “by several orders of magnitude,” the agency said.`\
+https://nytimes.com/2025/01/14/climate/epa-pfas-forever-chemicals-sludge-fertilizer.html
+
+**The seven points that prove that Joao Fonseca is set for tennis stardom**\
+`Fonseca has long looked like a star-in-waiting. Under pressure at his first Grand Slam, he delivered beyond the tennis world's expectations.`\
+https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
+
 **Pistons' trust in one another building after another win over Knicks in New York**\
 `Detroit improved to 7-1 in 2025 as Cade Cunningham and Malik Beasley shined at Madison Square Garden.`\
 https://nytimes.com/athletic/6060426/2025/01/14/pistons-knicks-cade-cunningham-malik-beasley/
@@ -14,8 +22,8 @@ https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-draws-
 `The industry is pumping ever more oil and natural gas, but it is doing so with only about three-quarters as many workers as it employed a decade ago.`\
 https://nytimes.com/2025/01/14/business/energy-environment/oil-gas-jobs.html
 
-**Commanders' fourth-down effectiveness could be pivotal vs. aggressive-natured Lions**\
-`Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC championship on the line.`\
+**Commanders' fourth-down effectiveness could be pivotal vs. aggressive Lions**\
+`Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC Championship Game on the line.`\
 https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
 
 **Steph Curry, Steve Kerr and Warriors are grappling with an existential crossroads**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049162/2025/01/14/vitor-reis-manchester-city-trans
 **Hegseth morphed from a critic of war crimes to a defender of the accused.**\
 `By Dave Philipps and Carol Rosenberg`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
-
-**Rashida Jones, MSNBC President, Steps Down**\
-`Rebecca Kutler, senior vice president of content strategy at MSNBC, will succeed Ms. Jones as interim president.`\
-https://nytimes.com/2025/01/14/business/media/msnbc-rashida-jones-stepping-down.html
-
-**All eyes are on Ernst as Hegseth faces a public grilling from senators.**\
-`The Iowa Republican who initially expressed skepticism about President-elect Donald J. Trump’s pick for defense secretary has tempered her tone but not yet committed to support him.`\
-https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/all-eyes-are-on-ernst-as-hegseth-faces-a-public-grilling-from-senators
 

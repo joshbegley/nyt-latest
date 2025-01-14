@@ -1,3 +1,15 @@
+**In a First, the E.P.A. Warns of ‘Forever Chemicals’ in Fertilizer**\
+`Levels of PFAS in sewage sludge used as fertilizer can pose risks that sometimes exceed safety thresholds “by several orders of magnitude,” the agency said.`\
+https://nytimes.com/2025/01/14/climate/epa-pfas-forever-chemicals-sludge-fertilizer.html
+
+**The seven points that prove that Joao Fonseca is set for tennis stardom**\
+`Fonseca has long looked like a star-in-waiting. Under pressure at his first Grand Slam, he delivered beyond the tennis world's expectations.`\
+https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
+
+**Commanders' fourth-down effectiveness could be pivotal vs. aggressive Lions**\
+`Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC Championship Game on the line.`\
+https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
+
 **Pistons' trust in one another building after another win over Knicks in New York**\
 `Detroit improved to 7-1 in 2025 as Cade Cunningham and Malik Beasley shined at Madison Square Garden.`\
 https://nytimes.com/athletic/6060426/2025/01/14/pistons-knicks-cade-cunningham-malik-beasley/
