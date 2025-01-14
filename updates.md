@@ -1,3 +1,7 @@
+**Starbucks Cracks Down: No Latte, No Lounging**\
+`Starbucks said visitors to the coffee shops would be required to buy something in order to use the restroom or stay in the store, as the company’s new chief executive responded to a decline in sales.`\
+https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html
+
 **Dodgers to get second meeting with Roki Sasaki: Sources**\
 `Sasaki has recently completed city tours to both Toronto and San Diego.`\
 https://nytimes.com/athletic/6061768/2025/01/14/dodgers-roki-sasaki-second-meeting/
