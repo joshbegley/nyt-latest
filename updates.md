@@ -1,3 +1,7 @@
+**Deion Sanders, Jerry Jones discuss Cowboys coaching vacancy: Sources**\
+`Sanders, 57, played for Jones and the Cowboys from 1995 to 1999, winning Super Bowl XXX with the team.`\
+https://nytimes.com/athletic/6060074/2025/01/13/deion-sanders-cowboys-head-coach-jerry-jones/
+
 **Publicity Hound**\
 `Lance Enfinger gets swept up in the game.`\
 https://nytimes.com/2025/01/13/crosswords/daily-puzzle-2025-01-14.html
