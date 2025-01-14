@@ -1,3 +1,7 @@
+**South Korea to Overhaul Runway Safety After Jeju Air Crash**\
+`The nation’s transport ministry reviewed structures near airport runways following the deadly crash of a Jeju Air flight late last month.`\
+https://nytimes.com/2025/01/14/business/korea-jejuair-air-runways.html
+
 **Governor’s Address Will Examine New York’s Future, and Her Own**\
 `Gov. Kathy Hochul’s State of the State speech is expected to respond to the voter dissatisfaction that became evident in November, especially regarding affordability and crime.`\
 https://nytimes.com/2025/01/14/nyregion/14hochul-state-address-speech.html
