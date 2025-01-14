@@ -1,3 +1,7 @@
+**You Can Have ‘Sex and the City,’ Just Not on the Front Stoop**\
+`The real-life owner of the Manhattan building where Carrie Bradshaw lived wants to erect a gate to deter overzealous fans from trespassing.`\
+https://nytimes.com/2025/01/13/realestate/carrie-bradshaw-sex-and-the-city-apartment-nyc.html
+
 **Vast Trove of Arnold Schoenberg’s Music Is Destroyed in Fire**\
 `An estimated 100,000 scores by Schoenberg, the groundbreaking 20th-century composer, were destroyed when the publishing company his heirs founded burned down.`\
 https://nytimes.com/2025/01/13/arts/music/arnold-schoenberg-scores-fire.html
