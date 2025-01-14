@@ -1,3 +1,7 @@
+**China’s $1 Trillion Trade Surplus: What to Know as Trump Takes Office**\
+`Only a third of China’s trade surplus was with the United States, and only a third of the U.S. deficit was with China. That makes for tricky math for the president-elect.`\
+https://nytimes.com/2025/01/14/business/china-trade-surplus-trump.html
+
 **South Korea to Overhaul Runway Safety After Jeju Air Crash**\
 `The nation’s transport ministry reviewed structures near airport runways following the deadly crash of a Jeju Air flight late last month.`\
 https://nytimes.com/2025/01/14/business/korea-jejuair-air-runways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/learning/word-of-the-day-castigate.html
 **Jimmy Kimmel Gets Emotional Over the Los Angeles Fires**\
 `Kimmel said it was a “very scary, very stressful, very strange week here in L.A., where we work, where we live, where our kids go to school.”`\
 https://nytimes.com/2025/01/14/arts/television/jimmy-kimmel-los-angeles-fires.html
-
-**Read the Special Counsel’s Report on the Trump Election Case**\
-`The former special counsel Jack Smith stood behind his prosecution of President-elect Donald J. Trump in a report released early Tuesday.`\
-https://nytimes.com/interactive/2025/01/14/us/report-of-special-counsel-smith-volume-1-january-2025.html
 
