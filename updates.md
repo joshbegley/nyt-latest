@@ -1,3 +1,11 @@
+**In Global Market Rout, Britain Is the ‘Weakest Link’**\
+`Investors are demanding sharply higher yields on government bonds, threatening to upend the Labour Party’s plans to reinvigorate a stagnant British economy.`\
+https://nytimes.com/2025/01/14/business/bonds-gilt-yield-britain-economy.html
+
+**Ukraine Launches ‘Massive’ Drone Attacks Inside Russia, Officials Say**\
+`The barrage appeared to be one of the largest recent assaults in Ukraine’s campaign to damage Russia’s war machine on its home territory.`\
+https://nytimes.com/2025/01/14/world/europe/ukraine-russia-massive-drone-strikes.html
+
 **Ben Shelton, serve savant, wants to talk about the return**\
 `The American is known for his rocketing 145mph serve. He's more concerned with getting other people's back.`\
 https://nytimes.com/athletic/6060540/2025/01/14/ben-shelton-tennis-serve-return-explained-australian-open/
