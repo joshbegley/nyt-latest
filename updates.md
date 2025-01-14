@@ -1,3 +1,7 @@
+**Mike McCarthy in, Mike Vrabel out: What's next for Bears' coaching search?**\
+`With Vrabel taking the Patriots' job and McCarthy now available, how does the landscape look in the second week of interviews?`\
+https://nytimes.com/athletic/6059301/2025/01/14/bears-coaching-search-mike-mccarthy-mike-vrabel/
+
 **Who are the 2025 NFL Draft's most intriguing underclassmen prospects?**\
 `Here are 15 names to keep an eye on as the NFL Draft process starts to get rolling. `\
 https://nytimes.com/athletic/6052446/2025/01/14/nfl-draft-2025-prospects-underclassmen-jalen-milroe/
