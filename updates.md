@@ -1,3 +1,7 @@
+**Hegseth will draw on combat experience in his pitch to lead the Pentagon.**\
+`By Karoun Demirjian`\
+https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-draws-on-combat-experience-in-his-pitch-to-lead-the-pentagon
+
 **U.S. Oil Production Is Booming. Oil Jobs Are Not.**\
 `The industry is pumping ever more oil and natural gas, but it is doing so with only about three-quarters as many workers as it employed a decade ago.`\
 https://nytimes.com/2025/01/14/business/energy-environment/oil-gas-jobs.html
