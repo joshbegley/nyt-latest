@@ -1,3 +1,7 @@
+**Pete Hegseth’s Preposterous Selection**\
+`It should be derailed after today’s hearing. I doubt it will.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/hegseth-confirmation-hearing
+
 **Biden Will Remove Cuba From List of State Sponsors of Terrorism**\
 `The decision is the latest in a series of conflicting U.S. approaches to Cuba by different administrations.`\
 https://nytimes.com/2025/01/14/us/politics/biden-cuba.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061849/2025/01/14/browns-promote-te-coach-tommy-re
 **As boos build, Seth Jones gets fans' frustrations: 'They’re paying for a product they’re not getting'**\
 `Jones, the Blackhawks' $9.5 million man, is very aware he's not playing well enough: "All I can do is try to be better"`\
 https://nytimes.com/athletic/6061927/2025/01/14/blackhawks-seth-jones-boos-contract/
-
-**House Passes Bill to Bar Trans Athletes From Female School Sports Teams**\
-`Republicans’ decision to push through the measure early in the new Congress indicated their belief that the issue is politically potent for them. Its future in the Senate is uncertain.`\
-https://nytimes.com/2025/01/14/us/politics/house-trans-athletes.html
 
