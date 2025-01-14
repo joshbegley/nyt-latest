@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6061038/2025/01/14/notre-dame-college-football-play
 `Levels of PFAS in sewage sludge used as fertilizer can pose risks that sometimes exceed safety thresholds “by several orders of magnitude,” the agency said.`\
 https://nytimes.com/2025/01/14/climate/epa-pfas-forever-chemicals-sludge-fertilizer.html
 
-**The seven points that prove that Joao Fonseca is set for tennis stardom**\
+**The seven points that prove Joao Fonseca is set for tennis stardom**\
 `Fonseca has long looked like a star-in-waiting. Under pressure in his first Grand Slam set, he delivered beyond those lofty expectations`\
 https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
 

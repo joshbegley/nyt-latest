@@ -1,3 +1,7 @@
+**The seven points that prove Joao Fonseca is set for tennis stardom**\
+`Fonseca has long looked like a star-in-waiting. Under pressure in his first Grand Slam set, he delivered beyond those lofty expectations`\
+https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
+
 **The seven points that prove that Joao Fonseca is set for tennis stardom**\
 `Fonseca has long looked like a star-in-waiting. Under pressure in his first Grand Slam set, he delivered beyond those lofty expectations`\
 https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
