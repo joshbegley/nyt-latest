@@ -1,3 +1,19 @@
+**Capital One Is Accused of Cheating Customers Out of $2 Billion**\
+`Federal regulators said in a lawsuit on Tuesday that the giant bank deliberately underpaid savings account interest, even as rates rose.`\
+https://nytimes.com/2025/01/14/business/capital-one-cfpb-lawsuit.html
+
+**N.J. Governor to Address Sharp Jump in Traffic Deaths in Major Speech**\
+`Gov. Philip D. Murphy will unveil priorities for his last year in office during his State of the State address on Tuesday.`\
+https://nytimes.com/2025/01/14/nyregion/new-jersey-phil-murphy-state-of-the-state.html
+
+**Penguins Today: A second historic meetup in Pittsburgh**\
+`Dan Bylsma and Mike Sullivan face off tonight, about a month after a separate significant gathering of Penguins franchise legends.`\
+https://nytimes.com/athletic/6061310/2025/01/14/penguins-today-dan-bylsma-mike-sullivan/
+
+**MLS opens up in-league transfer market, wads of cash to change hands**\
+`Don't be surprised to see trade money flying around MLS with the opening of a league-specific cash transfer market.`\
+https://nytimes.com/athletic/6060067/2025/01/14/mls-cash-transfer-market/
+
 **NC Courage acquires U.S. midfielder Shaw in trade with the Wave**\
 `Shaw requested a trade to the Courage last year, per a source briefed on the deal.`\
 https://nytimes.com/athletic/6061303/2025/01/14/jaedyn-shaw-north-carolina-courage/
