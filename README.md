@@ -1,15 +1,3 @@
-**Until Saturday: 4 (or 5) CFB head coaches in NFL rumors**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6062205/2025/01/14/college-football-nfl-coaches-cfp-championship-until-saturday/
-
-**Mike Tomlin on teams interested in trading for him: 'Save your time'**\
-`Mike Tomlin has presided over the Steelers for 18 seasons, during which he has famously never had a losing season`\
-https://nytimes.com/athletic/6062137/2025/01/14/steelers-mike-tomlin-trade-interest/
-
-**Wednesday Briefing: A Major U.S. Senate Hearing**\
-`Plus, mapping “The Lord of the Rings”`\
-https://nytimes.com/2025/01/14/briefing/hagseth-hearing-los-angeles-fires-israel-hamas.html
-
 **Minnesota’s Legislative Session Opens Chaotically as House Democrats Boycott**\
 `A one-seat Republican majority in the Statehouse and a looming special election made for a tense start to a new era of divided government.`\
 https://nytimes.com/2025/01/14/us/minnesota-house-democrats-boycott.html
@@ -37,4 +25,16 @@ https://nytimes.com/2025/01/14/dining/restaurant-review-cafe-kestrel-cocina-cons
 **Zubimendi, Rice, Merino, and Arteta's many attempts to perfect Arsenal's midfield**\
 `Why does Mikel Arteta now want to sign Martin Zudimendi? And what could it mean for Declan Rice?`\
 https://nytimes.com/athletic/6061025/2025/01/14/zubimendi-rice-arsenal-midfield/
+
+**Pete Hegseth’s Preposterous Selection**\
+`It should be derailed after today’s hearing. I doubt it will.`\
+https://nytimes.com/2025/01/14/opinion/hegseth-confirmation-hearing.html
+
+**Biden Will Remove Cuba From List of State Sponsors of Terrorism**\
+`The decision is the latest in a series of conflicting U.S. approaches to Cuba by different administrations.`\
+https://nytimes.com/2025/01/14/us/politics/biden-cuba.html
+
+**Hegseth Refuses to Say Whether Sexual Assault Is Disqualifying**\
+`Pete Hegseth, President-elect Donald J. Trump’s nominee for defense secretary, declined to say whether assault or excessive drinking would disqualify someone from the position and called allegations about his past conduct “false claims.”`\
+https://nytimes.com/video/us/politics/100000009926304/hegseth-kaine-disqualifying-conduct-claims.html
 
