@@ -1,3 +1,7 @@
+**The seven points that prove that Joao Fonseca is set for tennis stardom**\
+`Fonseca has long looked like a star-in-waiting. Under pressure in his first Grand Slam set, he delivered beyond those lofty expectations`\
+https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
+
 **How Notre Dame, Marcus Freeman crafted path to title game: Q&A with Greg McElroy**\
 `After calling all of Notre Dame's Playoff games for ESPN, McElory has a unique perspective on the Fighting Irish. `\
 https://nytimes.com/athletic/6061038/2025/01/14/notre-dame-college-football-playoff-greg-mcelroy/

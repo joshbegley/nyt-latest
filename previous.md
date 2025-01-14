@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6061038/2025/01/14/notre-dame-college-football-play
 https://nytimes.com/2025/01/14/climate/epa-pfas-forever-chemicals-sludge-fertilizer.html
 
 **The seven points that prove that Joao Fonseca is set for tennis stardom**\
-`Fonseca has long looked like a star-in-waiting. Under pressure at his first Grand Slam, he delivered beyond the tennis world's expectations.`\
+`Fonseca has long looked like a star-in-waiting. Under pressure in his first Grand Slam set, he delivered beyond those lofty expectations`\
 https://nytimes.com/athletic/6060716/2025/01/14/joao-fonseca-australian-open/
 
 **Pistons' trust in one another building after another win over Knicks in New York**\
