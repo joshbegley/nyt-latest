@@ -1,3 +1,7 @@
+**Coaches vote to push for CFB's portal window to be shortened, moved to January**\
+`The vote came following a meeting of more than 60 FBS head coaches at the American Football Coaches Association convention.`\
+https://nytimes.com/athletic/6061557/2025/01/14/college-football-transfer-portal-window-coaches/
+
 **Greenberg: Given Bears' past and present, can you be too pessimistic about coach search?**\
 `The Bears’ insistence on not learning from their past is why fans are scared about Mike McCarthy and the exhaustive coaching search.`\
 https://nytimes.com/athletic/6061396/2025/01/14/chicago-bears-coach-search-mike-mccarthy-ben-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6056175/2025/01/14/penguins-ahl-prospects-kyle-duba
 **Preston Clark Steps Into the Spotlight at Bar Mercer**\
 `Oases takes an Ayurvedic approach to cooking, the chef Francis Mallmann comes to New York and more restaurant news.`\
 https://nytimes.com/2025/01/14/dining/nyc-restaurant-news.html
-
-**Under the Radar: Venturing to Fantastical Universes With a Dodo and More**\
-`Stories from refugee children, gloriously morbid puppets and a rooster who defies a dictator. These are some of the offbeat offerings this January.`\
-https://nytimes.com/2025/01/14/theater/under-the-radar-festival-new-york.html
 
