@@ -1,3 +1,11 @@
+**Lakers return to court amid wildfires, but normalcy must wait: 'The fight isn’t over’**\
+`LA was understandably rusty and distracted in a loss to the San Antonio Spurs, who had a surprise for grieving coach JJ Redick. `\
+https://nytimes.com/athletic/6060424/2025/01/14/lakers-spurs-wildfires-jj-redick/
+
+**Weekly Student News Quiz: Wildfires, TikTok, Perry the Donkey**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/01/14/learning/14StudentNewsQuiz.html
+
 **Auto Fire Joins List of California Blazes**\
 `The new fire, in Ventura County northwest of Los Angeles, covers 56 acres and is 0 percent contained, officials said.`\
 https://nytimes.com/2025/01/14/us/auto-fire-ventura-county-la-california.html
