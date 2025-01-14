@@ -1,3 +1,19 @@
+**College basketball Player of the Year odds: Can anyone catch Cooper Flagg?**\
+`After a hot week and Johni Broome's injury, Cooper Flagg has emerged as a heavy favorite to win the John Wooden Award.`\
+https://nytimes.com/athletic/6061451/2025/01/14/cooper-flagg-college-basketball-player-of-the-year-odds-wooden-award/
+
+**Browns promote TE coach Tommy Rees to offensive coordinator: Source**\
+`Rees just completed his first season with the Browns after spending the previous year as the OC and QB coach at Alabama.`\
+https://nytimes.com/athletic/6061849/2025/01/14/browns-promote-te-coach-tommy-rees-to-offensive-coordinator-source/
+
+**As boos build, Seth Jones gets fans' frustrations: 'They’re paying for a product they’re not getting'**\
+`Jones, the Blackhawks' $9.5 million man, is very aware he's not playing well enough: "All I can do is try to be better"`\
+https://nytimes.com/athletic/6061927/2025/01/14/blackhawks-seth-jones-boos-contract/
+
+**House Passes Bill to Bar Trans Athletes From Female School Sports Teams**\
+`Republicans’ decision to push through the measure early in the new Congress indicated their belief that the issue is politically potent for them. Its future in the Senate is uncertain.`\
+https://nytimes.com/2025/01/14/us/politics/house-trans-athletes.html
+
 **Michelle Obama Will Skip Trump’s Inauguration**\
 `Mrs. Obama also declined to attend the funeral of Jimmy Carter last week, which would have put her face-to-face with Mr. Trump.`\
 https://nytimes.com/2025/01/14/us/politics/michelle-obama-trump-inauguration.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6061768/2025/01/14/dodgers-roki-sasaki-second-meeti
 **Readers Pick the Songs That Defined Their Year**\
 `Hear songs from Ana Moura, the Orlons and Colin Hay that defined 2024 for readers.`\
 https://nytimes.com/2025/01/14/arts/music/amplifier-newsletter-sinead-oconnor-ana-moura.html
-
-**Ex-Judge Forced Off Bench for Threats to Teens Is Back on Public Payroll**\
-`Erin P. Gall, who resigned from a New York State Supreme Court judgeship after footage showed her threatening to shoot Black teenagers, is now working as a lawyer for Herkimer County.`\
-https://nytimes.com/2025/01/14/nyregion/erin-gall-ny-judge.html
-
-**Alcohol Offers Some Health Benefits but Raises Cancer Risks, Report Finds**\
-`The second of two analyses intended to shape the upcoming U.S. Dietary Guidelines questions alcohol’s overall benefits.`\
-https://nytimes.com/2025/01/14/health/alcohol-cancer-heart-stroke.html
-
-**California Withdraws Some Requests for Tighter Climate Rules**\
-`State regulators said the measures would probably have been rejected by the Trump administration and that they would focus on homegrown legal strategies instead.`\
-https://nytimes.com/2025/01/14/climate/california-climate-policies.html
-
-**Hegseth Won’t Say Whether Sexual Assault, Drinking or Adultery Is Disqualifying**\
-`Pete Hegseth, President-elect Donald J. Trump’s choice to lead the Pentagon, rejected what he said were “false claims” about his conduct.`\
-https://nytimes.com/2025/01/14/us/politics/hegseth-confirmation-hearing-sexual-assault-drinking-disqualifying.html
 
