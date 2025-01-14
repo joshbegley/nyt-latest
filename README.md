@@ -1,3 +1,7 @@
+**Is Beijing Plotting a Musk Option for TikTok?**\
+`As the popular video app faces a ban in the United States, Chinese officials are said to be weighing options to save it — including a sale to the tech mogul.`\
+https://nytimes.com/2025/01/14/business/dealbook/china-musk-tiktok.html
+
 **‘Red Note,’ a Chinese App, Is Dominating Downloads, Thanks to TikTok Users**\
 `To show how little they care about TikTok’s ties to Beijing, people in the United States are downloading one of China’s most popular apps.`\
 https://nytimes.com/2025/01/14/business/tiktok-rednote-xiaohongshu-app.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/heres-what-to-
 **Live Updates: Pete Hegseth to Face Sharp Questions at Confirmation Hearing**\
 `Democratic senators are expected to grill President-elect Donald J. Trump’s pick for defense secretary over his qualifications, past comments and alcohol use.`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump
-
-**Lakers return to court amid wildfires, but normalcy must wait: 'The fight isn’t over’**\
-`LA was understandably rusty and distracted in a loss to the San Antonio Spurs, who had a surprise for grieving coach JJ Redick. `\
-https://nytimes.com/athletic/6060424/2025/01/14/lakers-spurs-wildfires-jj-redick/
 
