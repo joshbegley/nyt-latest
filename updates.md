@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/14/briefing/los-angeles-fires-ukraine.html
+
+**Special Counsel Report Says Trump Would Have Been Convicted in Election Case**\
+`“But for Mr. Trump’s election and imminent return to the presidency, the office assessed that the admissible evidence was sufficient to obtain and sustain a conviction at trial,” the report said.`\
+https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election-jan-6.html
+
 **Justice Dept. Gives Congress Special Counsel Report on Trump Election Case**\
 `Defense lawyers had fought to keep the public from seeing the report, but a judge allowed an order that had blocked its disclosure to expire.`\
 https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election-jan-6.html
