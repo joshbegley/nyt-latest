@@ -1,3 +1,11 @@
+**Justice Dept. Gives Congress Special Counsel Report on Trump Election Case**\
+`Defense lawyers had fought to keep the public from seeing the report, but a judge allowed an order that had blocked its disclosure to expire.`\
+https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election-jan-6.html
+
+**Democrats Say F.B.I. Did Not Interview Critical Witnesses About Pete Hegseth**\
+`The bureau did not interview an ex-wife of President-elect Donald J. Trump’s pick for defense secretary before the findings on his background check were presented to senators.`\
+https://nytimes.com/2025/01/14/us/fbi-pete-hegseth-background-check.html
+
 **Welcome to Carrington - the evolution of Manchester United's training ground**\
 `The Athletic visited United's day-to-day home on Manchester's outskirts to find out how extensive renovations are going`\
 https://nytimes.com/athletic/6021456/2025/01/14/welcome-to-carrington-the-evolution-of-manchester-uniteds-training-ground/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6058233/2025/01/14/chalobah-chelsea-crystal-palace-
 **Potter must improve his record in derbies if he is to turn West Ham's season round**\
 `The new head coach has a tough run of games in the capital to start his tenure and both he, and his team, have struggled in these fixtures `\
 https://nytimes.com/athletic/6052012/2025/01/14/graham-potter-west-ham-london-derbies/
-
-**Attempting to make sense of a confusing Premier League season**\
-`Manchester City's collapse and Nottingham Forest's unexpected surge are just two of the reasons this has been a strange season so far`\
-https://nytimes.com/athletic/6058622/2025/01/14/premier-league-season-liverpool-forest-man-city/
-
-**Barca's Olmo reprieve: How long can he and Victor play for, why did the government intervene and what next?**\
-`Barcelona have temporarily re-registered Dani Olmo and fellow summer 2024 signing Pau Victor, but this legal saga is far from over`\
-https://nytimes.com/athletic/6051663/2025/01/14/barcelona-dani-olmo-csd-registration/
 
