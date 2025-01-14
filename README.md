@@ -1,3 +1,7 @@
+**You Can Have ‘Sex and the City,’ Just Not on the Front Stoop**\
+`The real-life owner of the Manhattan building where Carrie Bradshaw lived wants to erect a gate to deter overzealous fans from trespassing.`\
+https://nytimes.com/2025/01/13/realestate/carrie-bradshaw-sex-and-the-city-apartment-nyc.html
+
 **Vast Trove of Arnold Schoenberg’s Music Is Destroyed in Fire**\
 `An estimated 100,000 scores by Schoenberg, the groundbreaking 20th-century composer, were destroyed when the publishing company his heirs founded burned down.`\
 https://nytimes.com/2025/01/13/arts/music/arnold-schoenberg-scores-fire.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6059659/2025/01/13/rams-state-farm-stadium-arizona-
 **Roki Sasaki narrows list of finalists to Dodgers, Padres and Blue Jays: Source**\
 `The 23-year-old Japanese righty alerted several pursuing teams that they were no longer in the running. He can sign as early as Jan. 15.`\
 https://nytimes.com/athletic/6059762/2025/01/13/roki-sasaki-finalists-dodgers-padres-blue-jays/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>One more game to go! Buckeyes or Fighting Irish?</p>
-<p>Leave your questions here.`\
-https://nytimes.com/athletic/6059819/2025/01/13/submit-a-question-for-stewart-mandels-college-football-mailbag-288/
 
