@@ -23,7 +23,7 @@ https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-draws-
 https://nytimes.com/2025/01/14/business/energy-environment/oil-gas-jobs.html
 
 **Commanders' fourth-down effectiveness could be pivotal vs. aggressive Lions**\
-`Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC championship on the line.`\
+`Saturday night's battle might involve aggressive fourth-down swings by both teams with a trip to the NFC Championship Game on the line.`\
 https://nytimes.com/athletic/6060229/2025/01/14/washington-commanders-detroit-lions-fourth-down/
 
 **Steph Curry, Steve Kerr and Warriors are grappling with an existential crossroads**\
