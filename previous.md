@@ -1,3 +1,7 @@
+**Dodgers to get second meeting with Roki Sasaki: Sources**\
+`Sasaki has recently completed city tours to both Toronto and San Diego.`\
+https://nytimes.com/athletic/6061768/2025/01/14/dodgers-roki-sasaki-second-meeting/
+
 **Readers Pick the Songs That Defined Their Year**\
 `Hear songs from Ana Moura, the Orlons and Colin Hay that defined 2024 for readers.`\
 https://nytimes.com/2025/01/14/arts/music/amplifier-newsletter-sinead-oconnor-ana-moura.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html
 **Coaches vote to push for CFB's portal window to be shortened, moved to January**\
 `The vote came following a meeting of more than 60 FBS head coaches at the American Football Coaches Association convention.`\
 https://nytimes.com/athletic/6061557/2025/01/14/college-football-transfer-portal-window-coaches/
-
-**Greenberg: Given Bears' past and present, can you be too pessimistic about coach search?**\
-`The Bears’ insistence on not learning from their past is why fans are scared about Mike McCarthy and the exhaustive coaching search.`\
-https://nytimes.com/athletic/6061396/2025/01/14/chicago-bears-coach-search-mike-mccarthy-ben-johnson/
 

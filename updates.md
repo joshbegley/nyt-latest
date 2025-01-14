@@ -1,3 +1,7 @@
+**Dodgers to get second meeting with Roki Sasaki: Sources**\
+`Sasaki has recently completed city tours to both Toronto and San Diego.`\
+https://nytimes.com/athletic/6061768/2025/01/14/dodgers-roki-sasaki-second-meeting/
+
 **Readers Pick the Songs That Defined Their Year**\
 `Hear songs from Ana Moura, the Orlons and Colin Hay that defined 2024 for readers.`\
 https://nytimes.com/2025/01/14/arts/music/amplifier-newsletter-sinead-oconnor-ana-moura.html
