@@ -1,3 +1,7 @@
+**Aston Villa's challenge is to solve the riddle of Donyell Malen**\
+`Aston Villa's new man is a player once tipped for the top of European football, who has yet to fully convince the world of his talent`\
+https://nytimes.com/athletic/6049683/2025/01/14/donyell-malen-aston-villa-dortmund/
+
 **The Wait, the Worry and the Fear**\
 `Matt Stevens, an arts and culture reporter based in Los Angeles, finds a personal connection between fires past and present.`\
 https://nytimes.com/2025/01/14/us/los-angeles-wildfires-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6060791/2025/01/14/why-superstar-magnus-carlsen-is-
 **Explained: How Chelsea avoided breaching PSR**\
 `Despite no Champions League revenue and having a poor domestic season in 2023-24, Chelsea stayed on the right side of Premier League rules`\
 https://nytimes.com/athletic/6060778/2025/01/14/chelsea-psr-breach-avoid-how/
-
-**The Bounce: Making sense of this season's confusing NBA Rookie of the Year race**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6060782/2025/01/14/nba-rookie-of-the-year-alex-sarr-jared-mccain-zach-edey-the-bounce/
 
