@@ -1,3 +1,11 @@
+**And Just Like That, Carrie Bradshaw’s Front Stoop Was Closed**\
+`A West Village homeowner was granted permission to build a gate on her house in an effort to stop overeager ‘Sex and the City’ fans from trespassing.`\
+https://nytimes.com/2025/01/14/realestate/sex-and-the-city-apartment-new-york.html
+
+**Steve Bannon Asks to Replace His Lawyers Again, Possibly Delaying Trial**\
+`The longtime ally of Donald J. Trump faces state charges of bilking donors who gave money to build a border wall. His delay tactics mimic those of his patron.`\
+https://nytimes.com/2025/01/14/nyregion/bannon-wall-case-delay.html
+
 **Republicans Embraced Hegseth’s Bid to Lead the Pentagon**\
 `Also, Americans are flocking to a little-known Chinese app. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/14/briefing/pete-hegseth-hearing-la-fires-wind.html

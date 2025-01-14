@@ -1,3 +1,11 @@
+**And Just Like That, Carrie Bradshaw’s Front Stoop Was Closed**\
+`A West Village homeowner was granted permission to build a gate on her house in an effort to stop overeager ‘Sex and the City’ fans from trespassing.`\
+https://nytimes.com/2025/01/14/realestate/sex-and-the-city-apartment-new-york.html
+
+**Steve Bannon Asks to Replace His Lawyers Again, Possibly Delaying Trial**\
+`The longtime ally of Donald J. Trump faces state charges of bilking donors who gave money to build a border wall. His delay tactics mimic those of his patron.`\
+https://nytimes.com/2025/01/14/nyregion/bannon-wall-case-delay.html
+
 **Republicans Embraced Hegseth’s Bid to Lead the Pentagon**\
 `Also, Americans are flocking to a little-known Chinese app. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/14/briefing/pete-hegseth-hearing-la-fires-wind.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062193/2025/01/14/wisconsin-college-football-jarin
 **Depose Maduro**\
 `Combine a powerful incentive and a credible military threat to dislodge him and his cronies.`\
 https://nytimes.com/2025/01/14/opinion/maduro-venezuela-trump.html
-
-**What We Know About the Proposed Gaza Cease-Fire Agreement**\
-`Diplomats expressed cautious optimism on Tuesday that an agreement between Israel and Hamas may be within reach. But they also warned that it was not signed yet.`\
-https://nytimes.com/2025/01/14/world/middleeast/gaza-ceasefire-what-we-know.html
-
-**Dozens of Bodies Recovered From Illegal Mine in South Africa**\
-`The authorities had at one point limited the miners’ access to food, water and other supplies in a blockade that drew criticism from human rights groups.`\
-https://nytimes.com/2025/01/14/world/africa/south-africa-illegal-mine-deaths.html
 
