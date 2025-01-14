@@ -1,3 +1,7 @@
+**Lakers, Clippers resume at home as fires rage in L.A.**\
+`Both teams played on the road last week, and Monday marked their first home contests since the Palisades Fire began Tuesday.`\
+https://nytimes.com/athletic/6060049/2025/01/13/lakers-clippers-los-angeles-fires-resume-home-games/
+
 **Full Time: USWNT moves camp amid wildfires**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6060119/2025/01/13/emma-hayes-uswnt-marta-orlando-full-time/

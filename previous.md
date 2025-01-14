@@ -1,3 +1,7 @@
+**Lakers, Clippers resume at home as fires rage in L.A.**\
+`Both teams played on the road last week, and Monday marked their first home contests since the Palisades Fire began Tuesday.`\
+https://nytimes.com/athletic/6060049/2025/01/13/lakers-clippers-los-angeles-fires-resume-home-games/
+
 **Full Time: USWNT moves camp amid wildfires**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6060119/2025/01/13/emma-hayes-uswnt-marta-orlando-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/13/realestate/carrie-bradshaw-sex-and-the-city-apart
 **Vast Trove of Arnold Schoenberg’s Music Is Destroyed in Fire**\
 `An estimated 100,000 scores by Schoenberg, the groundbreaking 20th-century composer, were destroyed when the publishing company his heirs founded burned down.`\
 https://nytimes.com/2025/01/13/arts/music/arnold-schoenberg-scores-fire.html
-
-**Elon Musk Is Expected to Use Office Space in the White House Complex**\
-`The location suggests that Mr. Musk, who owns companies with billions of dollars in contracts with the federal government, will continue to have remarkable access to President-elect Donald J. Trump.`\
-https://nytimes.com/2025/01/13/us/politics/elon-musk-white-house-trump.html
 
