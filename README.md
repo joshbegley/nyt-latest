@@ -1,5 +1,9 @@
-**In picturesque Ventura County, the threat of fire looms.**\
-`By Kate Christobek and Sam Stanton`\
+**Dozens of Bodies Recovered From Illegal Mine in South Africa**\
+`The authorities had at one point limited the miners’ access to food, water and other supplies in a blockade that drew criticism from human rights groups.`\
+https://nytimes.com/2025/01/14/world/africa/south-africa-illegal-mine-deaths.html
+
+**Ventura County Braces for Dangerous Fire Conditions Through Wednesday**\
+`Although the National Weather Service downgraded the severity of its forecast on Tuesday, forecasters expect higher wind gusts on Wednesday that could lead to “explosive fire growth.”`\
 https://nytimes.com/2025/01/14/us/auto-fire-ventura-county.html
 
 **West Coast college football fan survey: Tell us about your first season in a new league**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/climate/what-to-know-about-forever-chemicals-in-s
 **French Prime Minister Signals He Will Revisit Retirement Law That Led to Mass Protests**\
 `His government on shaky ground, Prime Minister François Bayrou offered to reopen debate on the measure, which raised the retirement age in an effort to stabilize the country’s finances.`\
 https://nytimes.com/2025/01/14/world/europe/france-prime-minister-bayrou-retirement-age.html
-
-**Pete Hegseth Dresses for Defense**\
-`The nominee for Secretary of Defense wore his patriotism on his sleeve during his confirmation hearing — and his belt, his socks, and his pocket square.`\
-https://nytimes.com/2025/01/14/style/pete-hegseth-confirmation-hearing-image.html
 
