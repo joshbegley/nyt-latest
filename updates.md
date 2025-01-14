@@ -1,3 +1,7 @@
+**Kevin Harlan, Amazon near deal to call NBA games**\
+`Amazon will have a one-two play-by-play punch of Ian Eagle and Harlan as it enters the NBA space next season.`\
+https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
+
 **Zubimendi, Rice, Merino, and Arteta's many attempts to perfect Arsenal's midfield**\
 `Why does Mikel Arteta now want to sign Martin Zudimendi? And what could it mean for Declan Rice?`\
 https://nytimes.com/athletic/6061025/2025/01/14/zubimendi-rice-arsenal-midfield/

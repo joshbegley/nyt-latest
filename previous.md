@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/14/us/minnesota-house-democrats-boycott.html
 https://nytimes.com/2025/01/14/us/la-fires-palisades-eaton.html
 
 **Kevin Harlan, Amazon near deal to call NBA games**\
-`Amazon Prime Video is closing in on a deal to make Kevin Harlan its No.`\
+`Amazon will have a one-two play-by-play punch of Ian Eagle and Harlan as it enters the NBA space next season.`\
 https://nytimes.com/athletic/6062159/2025/01/14/amazon-prime-nba-kevin-harlan-contract/
 
 **Investigators Prepare Another Attempt to Detain South Korea’s Leader**\
