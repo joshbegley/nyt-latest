@@ -1,3 +1,7 @@
+**Special Counsel Report Says Trump Would Have Been Convicted in Election Case**\
+`The report, which said the special counsel’s office stood “fully behind” the merits of the prosecution, amounted to an extraordinary rebuke of the president-elect.`\
+https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election-jan-6.html
+
 **Emma Raducanu's Australian Open starts with a serve with 'a mind of its own' - and a win**\
 `In a patchy serve display, Raducanu found stability on her groundstrokes to reach the second round in Melbourne`\
 https://nytimes.com/athletic/6060345/2025/01/14/emma-raducanu-australian-open-serve/

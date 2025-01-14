@@ -27,7 +27,7 @@ https://nytimes.com/2025/01/14/opinion/us-ukraine-defense-austin-blinken-russia.
 https://nytimes.com/2025/01/14/briefing/los-angeles-fires-ukraine.html
 
 **Special Counsel Report Says Trump Would Have Been Convicted in Election Case**\
-`“But for Mr. Trump’s election and imminent return to the presidency, the office assessed that the admissible evidence was sufficient to obtain and sustain a conviction at trial,” the report said.`\
+`The report, which said the special counsel’s office stood “fully behind” the merits of the prosecution, amounted to an extraordinary rebuke of the president-elect.`\
 https://nytimes.com/2025/01/14/us/politics/trump-special-counsel-report-election-jan-6.html
 
 **Democrats Say F.B.I. Did Not Interview Critical Witnesses About Pete Hegseth**\
