@@ -1,3 +1,7 @@
+**Starbucks Visitors Must Now Buy Something to Stay or Use Bathroom**\
+`Starbucks announced the policy reversal as the company’s new chief executive responded to a decline in sales.`\
+https://nytimes.com/2025/01/14/business/starbucks-bathroom-purchase-policy.html
+
 **Coaches vote to push for CFB's portal window to be shortened, moved to January**\
 `The vote came following a meeting of more than 60 FBS head coaches at the American Football Coaches Association convention.`\
 https://nytimes.com/athletic/6061557/2025/01/14/college-football-transfer-portal-window-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061470/2025/01/14/phillies-spring-training-non-ros
 **What I'm hearing: All eyes on the farm**\
 `Kyle Dubas seems poised to help the Penguins without giving up any valuable assets.`\
 https://nytimes.com/athletic/6056175/2025/01/14/penguins-ahl-prospects-kyle-dubas/
-
-**Preston Clark Steps Into the Spotlight at Bar Mercer**\
-`Oases takes an Ayurvedic approach to cooking, the chef Francis Mallmann comes to New York and more restaurant news.`\
-https://nytimes.com/2025/01/14/dining/nyc-restaurant-news.html
 
