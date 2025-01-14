@@ -1,3 +1,7 @@
+**Michelle Obama Will Skip Trump’s Inauguration**\
+`Mrs. Obama also declined to attend the funeral of Jimmy Carter last week, which would have put her face-to-face with Mr. Trump.`\
+https://nytimes.com/2025/01/14/us/politics/michelle-obama-trump-inauguration.html
+
 **Scoop City: Questions about Darnold's future, Stafford's "pass" & Dallas' next move**\
 `A brief look at the biggest questions from the Rams victory, plus the head coaching search in Dallas.`\
 https://nytimes.com/athletic/6061864/2025/01/14/rams-vikings-fumble-intentional-grounding-dallas-mccarthy-scoop-city/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/01/14/nyregion/erin-gall-ny-judge.html
 `The second of two analyses intended to shape the upcoming U.S. Dietary Guidelines questions alcohol’s overall benefits.`\
 https://nytimes.com/2025/01/14/health/alcohol-cancer-heart-stroke.html
 
-**California Withdraws Requests for Some Tighter Climate Rules**\
+**California Withdraws Some Requests for Tighter Climate Rules**\
 `State regulators said the measures would probably have been rejected by the Trump administration and that they would focus on homegrown legal strategies instead.`\
 https://nytimes.com/2025/01/14/climate/california-climate-policies.html
 
 **Hegseth Won’t Say Whether Sexual Assault, Drinking or Adultery Is Disqualifying**\
 `Pete Hegseth, President-elect Donald J. Trump’s choice to lead the Pentagon, rejected what he said were “false claims” about his conduct.`\
 https://nytimes.com/2025/01/14/us/politics/hegseth-confirmation-hearing-sexual-assault-drinking-disqualifying.html
-
-**Female Senators Grill Hegseth Over Views on Women**\
-`President-elect Donald J. Trump’s pick for defense secretary had a more amicable exchange with Joni Ernst, a Republican, who is considered a key vote.`\
-https://nytimes.com/2025/01/14/us/politics/hegseth-women-senators.html
 
