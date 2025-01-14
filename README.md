@@ -1,3 +1,19 @@
+**Hegseth Spars with Senator Over What He Meant by Slang Term**\
+`President-elect Donald J. Trump’s pick for defense secretary used a generally unflattering term to criticize legal officers in the military.`\
+https://nytimes.com/2025/01/14/us/politics/hegseth-jagoff-confirmation-hearing.html
+
+**California’s Insurance System Faces Crucial Test as Losses Mount**\
+`The California FAIR Plan, the state’s insurer of last resort, had just $377 million available last week to pay claims that could reach billions, officials said.`\
+https://nytimes.com/2025/01/14/climate/californias-insurance-fair-plan-fires.html
+
+**Four Takeaways From the Special Counsel’s Report on the Trump Election Case**\
+`Jack Smith wrote that Donald Trump would have been convicted had the case been allowed to proceed and explained why he didn’t pursue charges of incitement of the Jan. 6 riot at the Capitol.`\
+https://nytimes.com/2025/01/14/us/politics/jack-smith-trump-election-report-takeaways.html
+
+**Super Bowl odds: Can Ravens and Eagles fly straight to the top?**\
+`Making the best case for how each Super Bowl underdog could upset the favorites with the divisional round set.`\
+https://nytimes.com/athletic/6061398/2025/01/14/super-bowl-odds-nfl-playoffs-divisional-round/
+
 **Phillies spring training preview: A rundown of the non-roster invitees**\
 `The Phillies will bring 23 players to camp in addition to the 40 on the current 40-man roster. Here's a breakdown of the camp extras.`\
 https://nytimes.com/athletic/6061470/2025/01/14/phillies-spring-training-non-roster-invitees/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/14/business/mastercard-26-million-pay-discrimination
 **New Administration to Take Over in Challenging Era for the Pentagon**\
 `The incoming defense secretary will face several challenges, including the war in Ukraine and the turmoil in the Middle East.`\
 https://nytimes.com/2025/01/14/us/politics/trump-defense-secretary-ukraine-middle-east.html
-
-**Canadiens rookie Emil Heineman hit by car in Utah, will miss 3-4 weeks**\
-`Heineman was involved in a traffic accident while walking around Salt Lake City on Monday night.`\
-https://nytimes.com/athletic/6061579/2025/01/14/canadiens-emil-heineman-hit-car/
-
-**Des Moines Art Center to Demolish Work and Pay Land Artist $900,000**\
-`The artist Mary Miss agreed to the settlement, ending a yearlong battle to save her work. The museum said her piece, which it had commissioned, had become a safety hazard.`\
-https://nytimes.com/2025/01/14/arts/design/des-moines-art-center-mary-miss-settlement-land-art.html
-
-**Aston Villa's challenge is to solve the riddle of Donyell Malen**\
-`Aston Villa's new man is a player once tipped for the top of European football, who has yet to fully convince the world of his talent`\
-https://nytimes.com/athletic/6049683/2025/01/14/donyell-malen-aston-villa-dortmund/
-
-**The Wait, the Worry and the Fear**\
-`Matt Stevens, an arts and culture reporter based in Los Angeles, finds a personal connection between fires past and present.`\
-https://nytimes.com/2025/01/14/us/los-angeles-wildfires-fear.html
 
