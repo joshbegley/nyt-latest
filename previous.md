@@ -1,3 +1,27 @@
+**Martinez out for around four weeks with hamstring injury**\
+`Barcelona defender Inigo Martinez has been ruled out for around four weeks with a hamstring injury.`\
+https://nytimes.com/athletic/6060663/2025/01/14/barcelona-inigo-martinez-injury/
+
+**It's time to start valuing Leon Draisaitl as a legit Hart Trophy candidate**\
+`Draisaitl has been Edmonton's best player this season. Period. It’s hard to argue anything to the contrary.`\
+https://nytimes.com/athletic/6060470/2025/01/14/leon-draisaitl-legit-hart-trophy-candidate/
+
+**Wild insider: Players say they'll make L’Heureux pay if NHL won't, plus Fleury not unretiring and more**\
+`Wild players wanted a stiffer penalty for Zach L’Heureux from the NHL but say they're happy to take matters into their own hands Saturday.`\
+https://nytimes.com/athletic/6057040/2025/01/14/wild-insider-lheureux-spurgeon-fleury/
+
+**Southampton chairman Kraft steps down, Solak to take on role**\
+`Southampton chairman Henrik Kraft has stepped down with the club&#8217;s majority owner Dragan Solak taking up the role.`\
+https://nytimes.com/athletic/6060707/2025/01/14/southampton-chairman-kraft-dragan-solak/
+
+**Jets free-agent stock watch: What's Samberg's price? Who will cost more or less next year?**\
+`The nine free agents most likely to shape Winnipeg's offseason are making their cases for new, and maybe improved, contracts this summer.`\
+https://nytimes.com/athletic/6056565/2025/01/14/jets-free-agents-samberg-ehlers-pionk/
+
+**Broncos have their QB in Bo Nix. The quest for a Year 2 leap starts now**\
+`The Broncos must get Nix more help after his sterling rookie season, but the QB's own development will also be critical for Denver.`\
+https://nytimes.com/athletic/6057670/2025/01/14/bo-nix-broncos-year-2-leap/
+
 **The Pulse: The Vikings' shocking collapse**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6059527/2025/01/14/rams-vikings-wild-card-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/14/business/bonds-gilt-yield-britain-economy.html
 **Ukraine Launches ‘Massive’ Drone Attacks Inside Russia, Officials Say**\
 `The barrage appeared to be one of the largest recent assaults in Ukraine’s campaign to damage Russia’s war machine on its home territory.`\
 https://nytimes.com/2025/01/14/world/europe/ukraine-russia-massive-drone-strikes.html
-
-**Ben Shelton, serve savant, wants to talk about the return**\
-`The American is known for his rocketing 145mph serve. He's more concerned with getting other people's back`\
-https://nytimes.com/athletic/6060540/2025/01/14/ben-shelton-tennis-serve-return-explained-australian-open/
-
-**Arteta condemns Havertz social media abuse: 'We have to do something about it'**\
-`Mikel Arteta has spoken out against the social media abuse towards Kai Havertz and his pregnant wife after Arsenal’s FA Cup exit to Manchester United, saying it needs to be ‘eradicated’.`\
-https://nytimes.com/athletic/6060628/2025/01/14/havertz-arteta-abuse-social-media/
-
-**Mike McCarthy in, Mike Vrabel out: What's next for Bears' coaching search?**\
-`With Vrabel taking the Patriots' job and McCarthy now available, how does the landscape look in the second week of interviews?`\
-https://nytimes.com/athletic/6059301/2025/01/14/bears-coaching-search-mike-mccarthy-mike-vrabel/
-
-**Who are the 2025 NFL Draft's most intriguing underclassmen prospects?**\
-`Here are 15 names to keep an eye on as the NFL Draft process starts to get rolling. `\
-https://nytimes.com/athletic/6052446/2025/01/14/nfl-draft-2025-prospects-underclassmen-jalen-milroe/
-
-**Cubs' Justin Steele on Kyle Tucker, contract talks and Sammy Sosa's Convention return**\
-`In these highlights from Steele's interview, he touches on negotiations, his impressions of Tucker and other teammates and Sosa.`\
-https://nytimes.com/athletic/6059974/2025/01/14/cubs-justin-steele-kyle-tucker-interview/
-
-**Arsenal live Q&A: James, Amy, Art and Jordan answer your questions**\
-`Get your questions in for James, Amy, Art and Jordan and they will join between 1-2pm GMT (8am-9am ET) to answer as many as they can.`\
-https://nytimes.com/athletic/6058651/2025/01/14/arsenal-questions-arteta-transfers-tactics/
 
