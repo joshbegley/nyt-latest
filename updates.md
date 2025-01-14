@@ -1,4 +1,8 @@
 **NC Courage acquires U.S. midfielder Shaw in trade with the Wave**\
+`Shaw requested a trade to the Courage last year, per a source briefed on the deal.`\
+https://nytimes.com/athletic/6061303/2025/01/14/jaedyn-shaw-north-carolina-courage/
+
+**NC Courage acquires U.S. midfielder Shaw in trade with the Wave**\
 `U.S. midfielder Shaw requested a trade to the Courage last year, per a source briefed on the deal.`\
 https://nytimes.com/athletic/6061303/2025/01/14/jaedyn-shaw-north-carolina-courage/
 
