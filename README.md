@@ -1,3 +1,11 @@
+**Steph Curry, Steve Kerr and Warriors are grappling with an existential crossroads**\
+`"We're not giving in. But you have to be realistic organizationally about where you are," Kerr told The Athletic on Monday.`\
+https://nytimes.com/athletic/6060072/2025/01/14/steph-curry-warriors-future-nba-trade-rumors-kerr/
+
+**Manchester City reach agreement for Reis signing from Palmeiras**\
+`Manchester City have reached an agreement with Palmeiras for the signing of defender Vitor Reis.`\
+https://nytimes.com/athletic/6049162/2025/01/14/vitor-reis-manchester-city-transfer/
+
 **Hegseth morphed from a critic of war crimes to a defender of the accused.**\
 `By Dave Philipps and Carol Rosenberg`\
 https://nytimes.com/live/2025/01/14/us/hegseth-confirmation-trump/hegseth-morphed-from-a-critic-of-war-crimes-to-a-defender-of-the-accused
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/business/economy/forced-labor-list-china.html
 **Suns, with three wins in a row, enter what feels like a a make-or-break stretch**\
 `After a recent win, Devin Booker was asked: Do you believe momentum can stretch from game to game? “Hell, yeah,’’ he said.`\
 https://nytimes.com/athletic/6059997/2025/01/14/phoenix-suns-winning-streak-road-trip-hornets-hawks/
-
-**Is Beijing Plotting a Musk Option for TikTok?**\
-`As the popular video app faces a ban in the United States, Chinese officials are said to be weighing options to save it — including a sale to the tech mogul.`\
-https://nytimes.com/2025/01/14/business/dealbook/china-musk-tiktok.html
-
-**‘Red Note,’ a Chinese App, Is Dominating Downloads, Thanks to TikTok Users**\
-`To show how little they care about TikTok’s ties to Beijing, people in the United States are downloading one of China’s most popular apps.`\
-https://nytimes.com/2025/01/14/business/tiktok-rednote-xiaohongshu-app.html
 
