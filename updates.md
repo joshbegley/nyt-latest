@@ -1,3 +1,7 @@
+**The Decade That Changed Fitness Forever**\
+`From 1972 to 1982, American exercise entered the modern era. Here are five workouts that changed the game.`\
+https://nytimes.com/interactive/2025/01/14/well/move/fitness-evolution-trends-1970s.html
+
 **5 Takeaways from Hochul’s State of the State Address**\
 `Child care, housing costs and public safety were the New York governor’s top issues as she outlined her policy plans for the year and for a re-election fight in 2026.`\
 https://nytimes.com/2025/01/14/nyregion/hochul-trump-crime-affordability.html
