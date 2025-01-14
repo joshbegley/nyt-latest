@@ -1,3 +1,7 @@
+**A Father and Son Called for Help Escaping as Flames Approached. None Came.**\
+`The man and his son, who both used wheelchairs, called for help in evacuating from the Eaton fire in California. They were found dead later that day, and now their family is asking what happened.`\
+https://nytimes.com/2025/01/13/us/eaton-fire-victims.html
+
 **Canada's new women's coach Casey Stoney addresses drone scandal**\
 `Stoney's contract runs through 2027, the next Women's World Cup, with the option for 2028.`\
 https://nytimes.com/athletic/6059830/2025/01/13/canada-women-coach-drone-scandal-olympics-soccer/

@@ -1,3 +1,7 @@
+**A Father and Son Called for Help Escaping as Flames Approached. None Came.**\
+`The man and his son, who both used wheelchairs, called for help in evacuating from the Eaton fire in California. They were found dead later that day, and now their family is asking what happened.`\
+https://nytimes.com/2025/01/13/us/eaton-fire-victims.html
+
 **Canada's new women's coach Casey Stoney addresses drone scandal**\
 `Stoney's contract runs through 2027, the next Women's World Cup, with the option for 2028.`\
 https://nytimes.com/athletic/6059830/2025/01/13/canada-women-coach-drone-scandal-olympics-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6059751/2025/01/13/sf-giants-justin-verlander-intro
 **Why Trump Turned to Manifest Destiny**\
 `Donald Trump has long sought to make anything he controls bigger.`\
 https://nytimes.com/2025/01/13/us/politics/trump-greenland-canada-history.html
-
-**Rams to bring L.A. to Arizona with home field flair for relocated wild card**\
-`The Rams said Monday's game will be used "to bring LA Together and uplift and represent their city in Arizona" after the deadly wildfires.`\
-https://nytimes.com/athletic/6059659/2025/01/13/rams-state-farm-stadium-arizona-relocated-game/
 
