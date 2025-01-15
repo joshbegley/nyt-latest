@@ -1,3 +1,15 @@
+**Biden’s Presidential Legacy: An Era of Change, Forever Marked by Trump**\
+`Biden’s disastrous debate performance highlighted age concerns.`\
+https://nytimes.com/2025/01/15/us/politics/biden-presidential-legacy-trump.html
+
+**How to Download Your Videos and Other Data From TikTok**\
+`With a TikTok ban looming in the United States and the app’s future unknown, now might be a good time to save your work while you can.`\
+https://nytimes.com/2025/01/15/technology/personaltech/download-tiktok-videos.html
+
+**The Israeli Right May Soon Be Disenchanted With Trump**\
+`The president-elect may have the soul of a bully, but he also has the instincts of a dealmaker.`\
+https://nytimes.com/2025/01/15/opinion/trump-ceasefire-israel-hamas.html
+
 **Musk Said to Have Intervened to Help Free Italian Jailed in Iran**\
 `The outreach to an Iranian diplomat came after the journalist’s boyfriend had sought help from the tech billionaire, and the Italian prime minister had met with President-elect Trump.`\
 https://nytimes.com/2025/01/15/world/middleeast/musk-italy-iran-prisoner-exchange.html
