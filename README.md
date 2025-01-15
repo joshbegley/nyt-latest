@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6061776/2025/01/15/newcastle-3-wolves-0-nine-wins-i
 
 **Why Trump wanted a Mideast cease-fire deal before he took office.**\
 `By Maggie Haberman`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/trump-gaza-ceasefire
+https://nytimes.com/2025/01/15/us/politics/trump-gaza-ceasefire.html
 
