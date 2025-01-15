@@ -1,3 +1,7 @@
+**Canadiens have reached a point coach Martin St. Louis has long dreamed about**\
+`The Canadiens had about as bad a first period as they've had in months in Utah, but St. Louis allowed his players to take care of it.`\
+https://nytimes.com/athletic/6063403/2025/01/15/canadiens-utah-nhl-win/
+
 **Israel and Hamas Hammering Out Final Details on Cease-Fire, Officials Say**\
 `Negotiators and mediators meeting in Qatar were trying to address outstanding issues on Wednesday.`\
 https://nytimes.com/2025/01/15/world/middleeast/israel-hamas-cease-fire-deal-gaza-hostages.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062674/2025/01/15/chiefs-playoffs-isiah-pacheco-ka
 **Vikings' collapse vs. Lions, Rams makes need for interior O-line help frustratingly clear**\
 `The Vikings offensive line struggled in pass and run blocking against the Rams, allowing nine sacks and struggling to open holes.`\
 https://nytimes.com/athletic/6062499/2025/01/15/vikings-rams-lions-interior-offensive-line/
-
-**Gaza Cease-Fire ‘Right on the Brink,’ and the S.E.C. Sues Elon Musk**\
-`Plus, who gets a quinceañera?`\
-https://nytimes.com/2025/01/15/podcasts/gaza-ceasefire-biden-farewell.html
 

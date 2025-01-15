@@ -1,3 +1,7 @@
+**Canadiens have reached a point coach Martin St. Louis has long dreamed about**\
+`The Canadiens had about as bad a first period as they've had in months in Utah, but St. Louis allowed his players to take care of it.`\
+https://nytimes.com/athletic/6063403/2025/01/15/canadiens-utah-nhl-win/
+
 **Israel and Hamas Hammering Out Final Details on Cease-Fire, Officials Say**\
 `Negotiators and mediators meeting in Qatar were trying to address outstanding issues on Wednesday.`\
 https://nytimes.com/2025/01/15/world/middleeast/israel-hamas-cease-fire-deal-gaza-hostages.html
