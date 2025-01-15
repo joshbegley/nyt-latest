@@ -1,3 +1,7 @@
+**How the Canucks got embarrassed in a blowout loss to the Jets: 3 takeaways**\
+`The Canucks' form continues to swing wildly from game to game, and the Jets took advantage with a Kyle Connor hat trick in the first period.`\
+https://nytimes.com/athletic/6062844/2025/01/14/canucks-blowout-lankinen-hronek-miller-jets/
+
 **No. 7 Marquette escapes upset as DePaul's two-year Big East losing streak continues**\
 `It has been 727 days since DePaul's last Big East regular season win.`\
 https://nytimes.com/athletic/6063035/2025/01/14/depaul-basketball-big-east-losing-streak-marquette/
