@@ -1,3 +1,11 @@
+**U.S. Finds Pervasive Safety Failures at South Carolina Jail**\
+`Stabbings, sexual assaults and drug use are rampant in the Alvin S. Glenn Detention Center because of staff shortages and security failures, a Justice Department investigation found.`\
+https://nytimes.com/2025/01/15/us/south-carolina-jail-constitutional-rights.html
+
+**Hostage families are celebrating the cease-fire deal — with a dose of trepidation.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/hostage-families-celebration-trepidation
+
 **NCAA approves pay for women's basketball teams in tournament**\
 `The unanimous vote by NCAA membership (292-0) was met with applause on Wednesday.`\
 https://nytimes.com/athletic/6065210/2025/01/15/ncaa-march-madness-financial-units-vote/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6065220/2025/01/15/ange-postecoglou-tottenham-arsen
 **Conor McGregor sued, accused of sexual assault at Heat game in 2023**\
 `In November, a woman who accused McGregor of raping her in a Dublin hotel room in December 2018 won a civil claim against the fighter.`\
 https://nytimes.com/athletic/6064555/2025/01/15/conor-mcgregor-sexual-assault-lawsuit-miami/
-
-**Struggling Suns acquire center Nick Richards in trade with Hornets**\
-`The 27-year-old Richards, who is averaging 8.9 points and 7.5 rebounds per game this season, could be the Suns' new starting center.`\
-https://nytimes.com/athletic/6065124/2025/01/15/suns-hornets-trade-nick-richards-josh-okogie/
-
-**The leaders of Britain and France say the deal should be the basis for a long- term political settlement.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/britain-france-cease-fire-reaction
 
