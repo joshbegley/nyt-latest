@@ -1,3 +1,12 @@
+**Misogynistic Taunts Cost Philadelphia Eagles Fan His Job at D.E.I. Firm**\
+`The fan, who was caught on video harassing a female Packers fan at Sunday’s playoff game, was also barred from future events at Lincoln Financial Field.`\
+https://nytimes.com/2025/01/15/us/eagles-fan-taunts-banned-job-loss.html
+
+**Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
+`Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
+`\
+https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
+
 **Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
 `Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
 `\
