@@ -1,3 +1,11 @@
+**John Tavares leaves Maple Leafs practice with injury**\
+`Tavares left practice in obvious discomfort on Wednesday afternoon after getting awkwardly tied up with Tanev during a power-play drill.`\
+https://nytimes.com/athletic/6064522/2025/01/15/john-tavares-injury-maple-leafs/
+
+**Access Is Tight Around Kamala Harris’s Los Angeles Home**\
+`The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the Vice President has been in Washington`\
+https://nytimes.com/2025/01/15/style/kamala-harris-home-wildfires.html
+
 **A Sense of Belonging, Shaped by Fire**\
 `Conor Dougherty, who covers housing based in Los Angeles, explores the notion of where he’s from in the aftermath of the wildfires.`\
 https://nytimes.com/2025/01/15/us/wildfires-belonging.html
