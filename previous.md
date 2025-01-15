@@ -1,3 +1,7 @@
+**California Officials Seek to Stem Property Speculation and Evictions During Fires**\
+`Californians are worried that the blazes, which have damaged thousands of homes, will make the city’s housing crisis worse.`\
+https://nytimes.com/2025/01/15/us/california-fires-la-housing.html
+
 **How to play on a 'cursed' tennis court, according to Mirra Andreeva**\
 `MELBOURNE, Australia — Some curses are invisible.`\
 https://nytimes.com/athletic/6063279/2025/01/15/mirra-andreeva-australian-open-comeback/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-taras
 **Doctor Football, the Red Bull cosmos and giving people wings: An audience with Jurgen Klopp**\
 `The ex-Liverpool manager was presented as Red Bull's new global head of football but offered very little clarity on what that role entails`\
 https://nytimes.com/athletic/6061757/2025/01/15/klopp-red-bull-liverpool-slot-leipzig/
-
-**How can Premier League clubs move on players earning big wages?**\
-`A loan? Share the salary with another club? Pay off their contract? The options explained…`\
-https://nytimes.com/athletic/6052090/2025/01/15/premier-league-wages-sell/
 
