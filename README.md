@@ -1,3 +1,15 @@
+**Struggling Suns acquire center Nick Richards in trade with Hornets**\
+`The 27-year-old Richards, who is averaging 8.9 points and 7.5 rebounds per game this season, could be the Suns' new starting. center.`\
+https://nytimes.com/athletic/6065124/2025/01/15/suns-hornets-trade-nick-richards-josh-okogie/
+
+**The leaders of Britain and France say the deal should be the basis for a long- term political settlement.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/britain-france-cease-fire-reaction
+
+**Even Homes That Evade the Fire Face Toxic Ash Risk, Studies Show**\
+`Health hazards from soot and smoke blown indoors onto furniture and walls can linger for months: “Wind will get through every crack.”`\
+https://nytimes.com/2025/01/15/climate/wildfire-smoke-indoors.html
+
 **Misogynistic Taunts Cost Philadelphia Eagles Fan His Job at D.E.I. Firm**\
 `The fan, who was caught on video harassing a female Packers fan at Sunday’s playoff game, was also barred from future events at Lincoln Financial Field.`\
 https://nytimes.com/2025/01/15/us/eagles-fan-taunts-banned-job-loss.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6049042/2025/01/15/jaden-philogene-ipswich-transfer
 **Pereira: Lemina told me he was not in right mindset to play for Wolves**\
 `Wolverhampton Wanderers head coach Vitor Pereira says Mario Lemina was left out of the squad to face Newcastle United after telling the club he wants to leave.`\
 https://nytimes.com/athletic/6065153/2025/01/15/mario-lemina-wolves-pereira/
-
-**Broncos still mapping offseason plans, but one priority for Sean Payton is clear**\
-`The Broncos coach hasn't benefited from the Joker-type player in Denver he grew used to in New Orleans. That will top offseason wish list.`\
-https://nytimes.com/athletic/6064797/2025/01/15/broncos-offseason-payton-paton-penner/
-
-**Jack Hoffman, Nebraska fan who captured hearts in spring game, dies of brain cancer**\
-`Hoffman ran to fame at age 7 by scoring a touchdown in the 2013 Nebraska spring football game.`\
-https://nytimes.com/athletic/6065118/2025/01/15/jack-hoffman-nebraska-college-football/
-
-**Quinn Ewers, flaws and all, is right to not put the NFL on hold any longer**\
-`After three years as a starter and two deep Playoff runs, Ewers has accomplished what he set out to do in Austin.`\
-https://nytimes.com/athletic/6064818/2025/01/15/quinn-ewers-2025-nfl-draft-case-texas/
 
