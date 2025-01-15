@@ -1,3 +1,11 @@
+**Defending Michigan’s Auto Industry, Whitmer Warns of Tariff Risks**\
+`Gov. Gretchen Whitmer addressed the Detroit Auto Show, saying that tariffs should not be used “to punish our closest trading partners,” like Canada.`\
+https://nytimes.com/2025/01/15/us/politics/trump-canada-tariffs-whitmer.html
+
+**Rubio Aims to Take on the Axis of Anger: China, Russia, North Korea and Iran**\
+`The loose arrangement of hostile powers could pose a series of conundrums for President-elect Donald Trump’s pick for secretary of state.`\
+https://nytimes.com/2025/01/15/us/politics/rubio-trump-china-russia-iran-north-korea.html
+
 **A Top Pianist and a Great Composer Walk Into a Bar …**\
 `After the pianist, Vikingur Olafsson, asked for a concerto over beers, the composer, John Adams, wrote “After the Fall,” which will now travel the world.`\
 https://nytimes.com/2025/01/15/arts/music/john-adams-vikingur-olafsson-after-the-fall-concerto.html
@@ -29,12 +37,4 @@ https://nytimes.com/column/ask-the-therapist
 **Faiz Shakir, Ex-Bernie Sanders Campaign Chief, Joins Race for D.N.C. Chair**\
 `Mr. Shakir said his mission, should he win the post, would be to redefine the Democratic Party as the party of the working class.`\
 https://nytimes.com/2025/01/15/us/politics/faiz-shakir-dnc.html
-
-**Giants mailbag: Did NY keep Daboll out of fear job would be undesirable to top candidates?**\
-`Do the Giants have a John Mara problem? Dan Duggan answers all of your questions about Giants leadership.`\
-https://nytimes.com/athletic/6062261/2025/01/15/giants-john-mara-joe-schoen-brian-daboll/
-
-**The 49ers’ multi-million-dollar Brock Purdy question: A complete breakdown of the QB**\
-`A look at the quarterback's strengths and shortcoming as the 49ers begin negotiating a new, multiyear contract.`\
-https://nytimes.com/athletic/6062158/2025/01/15/brock-purdy-49ers-contract-evaluation-performance/
 
