@@ -1,3 +1,11 @@
+**Penguins' Malkin says his home was burglarized, Stanley Cup rings missing**\
+`The Cup rings are from the Penguins' 2009, 2016 and 2017 championship teams.`\
+https://nytimes.com/athletic/6063074/2025/01/14/evgeni-malkin-home-burglarized-rings/
+
+**Improving Ivan Fedotov solidifies his grip on Flyers' No. 2 goalie spot**\
+`Fedotov made some dazzling saves to help the Flyers earn a hard-won point against Columbus — another data point in a growing trend.`\
+https://nytimes.com/athletic/6063062/2025/01/14/ivan-fedotov-flyers-improvement-blue-jackets/
+
 **Bruins' Matt Poitras better make most recent call-up permanent**\
 `Poitras returned to the Bruins on Tuesday against the Lightning following a two-month stint in the AHL.`\
 https://nytimes.com/athletic/6063090/2025/01/14/bruins-matt-poitras-nhl-call-up/
