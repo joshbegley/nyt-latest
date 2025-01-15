@@ -1,3 +1,23 @@
+**Bears 2024 offense: Inside the numbers of what went wrong, what provides hope**\
+`The Bears offense got worse in 2024 despite a better collection of players. Here's what the stats say about the struggles.`\
+https://nytimes.com/athletic/6062287/2025/01/15/bears-2024-offense-dj-moore-dandre-swift/
+
+**Can rested duo of Isiah Pacheco, Kareem Hunt give the Chiefs a playoff spark?**\
+`The Chiefs need Hunt and Pacheco to perform at their peak level Saturday in a rematch against the Texans.`\
+https://nytimes.com/athletic/6062674/2025/01/15/chiefs-playoffs-isiah-pacheco-kareem-hunt/
+
+**Vikings' collapse vs. Lions, Rams makes need for interior O-line help frustratingly clear**\
+`The Vikings offensive line struggled in pass and run blocking against the Rams, allowing nine sacks and struggling to open holes.`\
+https://nytimes.com/athletic/6062499/2025/01/15/vikings-rams-lions-interior-offensive-line/
+
+**Gaza Cease-Fire ‘Right on the Brink,’ and the S.E.C. Sues Elon Musk**\
+`Plus, who gets a quinceañera?`\
+https://nytimes.com/2025/01/15/podcasts/gaza-ceasefire-biden-farewell.html
+
+**In an important week for Blues' season outlook, they claim first of 2 games against Flames**\
+`St. Louis earned a hard-fought 2-1 win over Calgary, keeping the Blues close to the Flames in the standings, with a rematch coming Thursday.`\
+https://nytimes.com/athletic/6062767/2025/01/15/blues-win-first-of-2-against-flames/
+
 **What should the Sabres do with Jason Zucker at the trade deadline?**\
 `Zucker is an influential voice in the locker room and wants to make Buffalo better despite knowing he could be traded at the deadline.
 `\
