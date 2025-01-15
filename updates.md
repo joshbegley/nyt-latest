@@ -1,3 +1,7 @@
+**Proenza Schouler Designers Depart in Further Fashion World Tumult**\
+`After a year of major creative change, a new round of musical chairs has begun.`\
+https://nytimes.com/2025/01/15/style/proenza-schouler-designers-leave.html
+
 **These Sheet-Pan Noodles Have Very Little Cleanup**\
 `Eric Kim cleverly cooks and assembles his japchae on a single sheet pan in this fast and fortifying dinner.`\
 https://nytimes.com/2025/01/15/dining/these-sheet-pan-noodles-have-very-little-cleanup.html
