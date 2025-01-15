@@ -1,3 +1,7 @@
+**Bruins' Matt Poitras better make most recent call-up permanent**\
+`Poitras returned to the Bruins on Tuesday against the Lightning following a two-month stint in the AHL.`\
+https://nytimes.com/athletic/6063090/2025/01/14/bruins-matt-poitras-nhl-call-up/
+
 **How the Canucks got embarrassed in a blowout loss to the Jets: 3 takeaways**\
 `The Canucks' form continues to swing wildly from game to game, and the Jets took advantage with a Kyle Connor hat trick in the first period.`\
 https://nytimes.com/athletic/6062844/2025/01/14/canucks-blowout-lankinen-hronek-miller-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062915/2025/01/14/zheng-qinwen-australian-open-res
 **Corrections: Jan. 15, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 15, 2025.`\
 https://nytimes.com/2025/01/14/pageoneplus/corrections-jan-15-2025.html
-
-**Two Private Moon Landers Are Launching at Once: What to Know**\
-`Robotic vehicles from Firefly Aerospace of Texas and Ispace of Japan will part ways early Wednesday after launching from the same SpaceX rocket. Both are aiming for the lunar surface.`\
-https://nytimes.com/2025/01/14/science/nasa-spacex-launch-lunar-landers.html
 
