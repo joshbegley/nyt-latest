@@ -1,3 +1,7 @@
+**The generational shift in men's tennis comes to the Australian Open**\
+`The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
+https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
+
 **Bears 2024 offense: Inside the numbers of what went wrong, what provides hope**\
 `The Bears offense got worse in 2024 despite a better collection of players. Here's what the stats say about the struggles.`\
 https://nytimes.com/athletic/6062287/2025/01/15/bears-2024-offense-dj-moore-dandre-swift/

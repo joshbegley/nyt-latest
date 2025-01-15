@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6062767/2025/01/15/blues-win-first-of-2-against-fla
 `World Cup history suggests there is always room for outsider to make a run at a World Cup squad, but the chances are slim`\
 https://nytimes.com/athletic/6062074/2025/01/15/usmnt-world-cup-pochettino-longshot/
 
+**The generational shift in men's tennis comes to the Australian Open**\
+`The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
+https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
+
 **Maple Leafs Concern-O-Metre: What's ailing Toronto through a 3-game losing streak?**\
 `Three straight regulation losses aren't a good sign. Exactly how much of a problem are the various underlying trends?`\
 https://nytimes.com/athletic/6063181/2025/01/15/maple-leafs-concern-o-metre-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062672/2025/01/15/wild-ryan-hartman-kirill-kaprizo
 **What Nakobe Dean's season-ending injury means for the Eagles**\
 `With defensive signal caller Dean done for the postseason with a patellar tendon injury, who will step up in Vic Fangio's defense?`\
 https://nytimes.com/athletic/6061656/2025/01/15/nakobe-dean-eagles-patellar-injury-playoffs/
-
-**Calder Gardens Names a Curatorial Leader and Sets September Opening**\
-`Juana Berrío, currently at the Whitney Independent Study Program, will be senior director of programs at the cultural center in Philadelphia.`\
-https://nytimes.com/2025/01/15/arts/design/calder-gardens-philadelphia.html
 
