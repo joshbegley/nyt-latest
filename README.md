@@ -1,3 +1,15 @@
+**How to Get FEMA Help**\
+`The agency offers different types of financial assistance after disasters. The fastest is a one-time payment of $770.`\
+https://nytimes.com/2025/01/15/climate/california-wildfire-fema-money.html
+
+**Team co-owned by Dale Earnhardt Jr. entering Justin Allgaier in Daytona 500**\
+`Because JR Motorsports does not hold a charter, Allgaier is not guaranteed a starting spot in the 40-car Daytona 500 field.`\
+https://nytimes.com/athletic/6064459/2025/01/15/dale-earnhardt-jr-motorsports-daytona-500/
+
+**International signing period opens without Sasaki decision but plenty of significant deals**\
+`The 2025 MLB international signing period officially opened on Wednesday, with several top-rated prospects signing with MLB clubs.`\
+https://nytimes.com/athletic/6064533/2025/01/15/mlb-international-signing-period-2025/
+
 **L.A. Prosecutor Vows Severe Penalties for Looting and Price Gouging**\
 `The recently elected district attorney of Los Angeles, Nathan Hochman, signals that crime fighting will be key to the region’s resurgence from the devastating wildfires.`\
 https://nytimes.com/2025/01/15/us/la-prosecutor-arrests-looting-wildfires.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/15/movies/writers-guild-nominations.html
 **Tell Us: When Did You Know You Were Falling in Love?**\
 `We may include your story in an episode of the “Modern Love” podcast.`\
 https://nytimes.com/2025/01/15/podcasts/falling-in-love-stories-modern-love.html
-
-**Cease-Fire Deal With Israel Comes as Hamas Is Severely Weakened**\
-`Israel’s 15-month bombardment of Gaza has destroyed much of Hamas’s military wing. It has also degraded the Iran-backed proxy network that helps sustain the militant group.`\
-https://nytimes.com/2025/01/15/world/middleeast/hamas-weakened-israel-ceasefire.html
-
-**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
-`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
-https://nytimes.com/athletic/6053790/2025/01/15/notre-dame-ohio-state-picks-odds-national-championship-game/
-
-**N.Y.P.D. Bans High-Speed Chases for Low-Level Offenses**\
-`A quarter of the nearly 2,300 vehicle pursuits last year led to crashes, property damage or physical harm, the police said. Most chases will no longer be allowed.`\
-https://nytimes.com/2025/01/15/nyregion/nypd-bans-high-speed-chases-for-low-level-offenses.html
 
