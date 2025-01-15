@@ -1,3 +1,7 @@
+**Jack Hoffman, Nebraska fan who captured hearts in spring game, dies of brain cancer**\
+`Hoffman ran to fame at age 7 by scoring a touchdown in the 2013 Nebraska spring football game.`\
+https://nytimes.com/athletic/6065118/2025/01/15/jack-hoffman-nebraska-college-football/
+
 **Quinn Ewers, flaws and all, is right to not put the NFL on hold any longer**\
 `After three years as a starter and two deep Playoff runs, Ewers has accomplished what he set out to do in Austin.`\
 https://nytimes.com/athletic/6064818/2025/01/15/quinn-ewers-2025-nfl-draft-case-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061776/2025/01/15/newcastle-3-wolves-0-nine-wins-i
 **Why Trump wanted a Mideast cease-fire deal before he took office.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/trump-gaza-ceasefire
-
-**We Deserve Pete Hegseth**\
-`If you thought the former TV host would be asked important questions at the confirmation hearings this week, you must be living under the illusion that we live in a serious country.`\
-https://nytimes.com/2025/01/15/opinion/pete-hegseth-hearings-defense.html
 
