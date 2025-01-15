@@ -1,3 +1,7 @@
+**Misogynistic Taunts Cost Philadelphia Eagles Fan His Job at D.E.I. Firm**\
+`The fan, who was caught on video harassing a female Packers fan at Sunday’s playoff game, was also barred from future events at Lincoln Financial Field.`\
+https://nytimes.com/2025/01/15/us/eagles-fan-taunts-banned-job-loss.html
+
 **Mexican Firefighters Watch for Hot Spots From the Palisades Fire**\
 `The firefighters were part of the first international team to join the effort to contain the Los Angeles-area blazes.`\
 https://nytimes.com/2025/01/15/us/mexican-firefighters-palisades-fire.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6065118/2025/01/15/jack-hoffman-nebraska-college-fo
 **Quinn Ewers, flaws and all, is right to not put the NFL on hold any longer**\
 `After three years as a starter and two deep Playoff runs, Ewers has accomplished what he set out to do in Austin.`\
 https://nytimes.com/athletic/6064818/2025/01/15/quinn-ewers-2025-nfl-draft-case-texas/
-
-**Sheriff’s Deputies Handcuff Girl, 11, After Mistaking Her for Suspect**\
-`Deputies in Syracuse, N.Y., detained the girl, who is Black, for several minutes after mistakenly identifying her as a suspect in a car theft. Video of the episode drew fierce criticism.`\
-https://nytimes.com/2025/01/15/nyregion/syracuse-police-girl-misidentified-handcuffed.html
 
