@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Usual strengths turn into issues in third straight loss**\
+`It's hard to pick an aspect of the game where the Leafs played well, turning what could have been a coin flip into a routine win for Dallas.`\
+https://nytimes.com/athletic/6062671/2025/01/14/maple-leafs-report-cards-penalty-kill-stars/
+
 **Gig Makeup?**\
 `Parker Higgins did this to us on purpose.`\
 https://nytimes.com/2025/01/14/crosswords/daily-puzzle-2025-01-15.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/us/politics/joni-ernst-pete-hegseth-confirmation.
 **In Pacific Palisades, proof of a previous life is hard to find.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/in-pacific-palisades-proof-of-a-previous-life-is-hard-to-find
-
-**Heinz Kluetmeier, SI's Miracle On Ice photographer, dies at age 82**\
-`Earlier Tuesday, he passed away at the age of 82 due to complications with Parkinson's disease and a stroke.`\
-https://nytimes.com/athletic/6062778/2025/01/14/miracle-on-ice-photographer-heinz-kluetmeier-obituary/
 
