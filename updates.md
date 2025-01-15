@@ -1,3 +1,7 @@
+**L.A. Prosecutor Vows Severe Penalties for Looting and Price Gouging**\
+`The recently elected district attorney of Los Angeles, Nathan Hochman, signals that crime fighting will be key to the region’s resurgence from the devastating wildfires.`\
+https://nytimes.com/2025/01/15/us/la-prosecutor-arrests-looting-wildfires.html
+
 **Nick Saban, Urban Meyer among class of 22 to be inducted into College Football Hall of Fame**\
 `Former Virginia Tech star Michael Vick and broadcaster Michael Strahan are also among the class of 18 players and four coaches.`\
 https://nytimes.com/athletic/6063745/2025/01/15/nick-saban-urban-meyer-college-hall-of-fame/
