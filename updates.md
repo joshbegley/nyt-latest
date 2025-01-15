@@ -1,3 +1,11 @@
+**Tell Us: When Did You Know You Were Falling in Love?**\
+`We may include your story in an episode of the “Modern Love” podcast.`\
+https://nytimes.com/2025/01/15/podcasts/falling-in-love-stories-modern-love.html
+
+**Cease-Fire Deal With Israel Comes as Hamas Is Severely Weakened**\
+`Israel’s 15-month bombardment of Gaza has destroyed much of Hamas’s military wing. It has also degraded the Iran-backed proxy network that helps sustain the militant group.`\
+https://nytimes.com/2025/01/15/world/middleeast/hamas-weakened-israel-ceasefire.html
+
 **Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
 `Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
 https://nytimes.com/athletic/6053790/2025/01/15/notre-dame-ohio-state-picks-odds-national-championship-game/

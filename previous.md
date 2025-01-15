@@ -1,3 +1,11 @@
+**Tell Us: When Did You Know You Were Falling in Love?**\
+`We may include your story in an episode of the “Modern Love” podcast.`\
+https://nytimes.com/2025/01/15/podcasts/falling-in-love-stories-modern-love.html
+
+**Cease-Fire Deal With Israel Comes as Hamas Is Severely Weakened**\
+`Israel’s 15-month bombardment of Gaza has destroyed much of Hamas’s military wing. It has also degraded the Iran-backed proxy network that helps sustain the militant group.`\
+https://nytimes.com/2025/01/15/world/middleeast/hamas-weakened-israel-ceasefire.html
+
 **Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
 `Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
 https://nytimes.com/athletic/6053790/2025/01/15/notre-dame-ohio-state-picks-odds-national-championship-game/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/15/style/tiny-modern-love-stories-you-have-to-let-yo
 **Christian McCaffrey might be the worst No. 1 fantasy football pick. And not just in 2024**\
 `Is Christian McCaffrey the worst career No. 1 pick in fantasy football ever? We go back 25 years to find out. `\
 https://nytimes.com/athletic/6058350/2025/01/15/christian-mccaffrey-worst-top-fantasy-pick-of-all-time/
-
-**Leicester complete Coulibaly signing from Parma**\
-`Leicester City have completed the signing of defender Woyo Coulibaly from Parma.`\
-https://nytimes.com/athletic/6064484/2025/01/15/woyo-coulibaly-leicester-transfer/
-
-**Access Is Tight Around Kamala Harris’s Los Angeles Home**\
-`The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the vice president has been in Washington.`\
-https://nytimes.com/2025/01/15/style/kamala-harris-home-wildfires.html
 
