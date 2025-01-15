@@ -1,3 +1,11 @@
+**Jack Hoffman, Nebraska fan who captured hearts in spring game, dies of brain cancer**\
+`Hoffman ran to fame at age 7 by scoring a touchdown in the 2013 Nebraska spring football game.`\
+https://nytimes.com/athletic/6065118/2025/01/15/jack-hoffman-nebraska-college-football/
+
+**Why Trump Wanted a Mideast Cease-Fire Deal Before Taking Office**\
+`The agreement removed one of the most vexing international conflicts that hovered over the start of his second term.`\
+https://nytimes.com/2025/01/15/us/politics/trump-mideast-cease-fire.html
+
 **Quinn Ewers, flaws and all, is right to not put the NFL on hold any longer**\
 `After three years as a starter and two deep Playoff runs, Ewers has accomplished what he set out to do in Austin.`\
 https://nytimes.com/athletic/6064818/2025/01/15/quinn-ewers-2025-nfl-draft-case-texas/
