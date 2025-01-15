@@ -1,3 +1,15 @@
+**Reynolds, McElhenney part of group buying Colombian soccer club La Equidad**\
+`The consortium is fronted by real estate investor Al Tylis and Club Necaxa executive Sam Porter.`\
+https://nytimes.com/athletic/6062362/2025/01/15/la-equidad-reynolds-mcelhenney-tylis-porter/
+
+**How the Cease-Fire Push Brought Together Biden and Trump’s Teams**\
+`Rarely if ever have representatives of current and new presidents of different parties worked together at such a high-stakes moment.`\
+https://nytimes.com/2025/01/15/us/politics/gaza-ceasefire-trump-biden.html
+
+**Reading Mike Davis by Firelight**\
+`What does the Palisades disaster mean for L.A.’s future?`\
+https://nytimes.com/2025/01/15/opinion/los-angeles-fires-pacific-palisades.html
+
 **‘Wicked,’ ‘Anora’ and ‘A Complete Unknown’ Get Writers Guild Nominations**\
 `The three films have momentum leading up to the planned Oscars nomination announcement next week.`\
 https://nytimes.com/2025/01/15/movies/writers-guild-nominations.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6064543/2025/01/15/lorenzo-insigne-toronto-future-m
 **Bears fly in Mike McCarthy for interview as coaching search heats up**\
 `The former Cowboys coach officially became a free agent this week and has interest in both the Bears and the Saints.`\
 https://nytimes.com/athletic/6064472/2025/01/15/bears-mike-mccarthy-coach-interview/
-
-**A Sense of Belonging, Shaped by Fire**\
-`Conor Dougherty, who covers housing based in Los Angeles, explores the notion of where he’s from in the aftermath of the wildfires.`\
-https://nytimes.com/2025/01/15/us/wildfires-belonging.html
-
-**John Tavares leaves Maple Leafs practice with injury**\
-`Tavares left practice in obvious discomfort on Wednesday afternoon after getting awkwardly tied up with Tanev during a power-play drill.`\
-https://nytimes.com/athletic/6064522/2025/01/15/john-tavares-injury-maple-leafs/
-
-**Tiny Love Stories: ‘You Have to Let Your Gut Lead’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/01/15/style/tiny-modern-love-stories-you-have-to-let-your-gut-lead.html
 

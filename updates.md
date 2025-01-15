@@ -1,3 +1,15 @@
+**Reynolds, McElhenney part of group buying Colombian soccer club La Equidad**\
+`The consortium is fronted by real estate investor Al Tylis and Club Necaxa executive Sam Porter.`\
+https://nytimes.com/athletic/6062362/2025/01/15/la-equidad-reynolds-mcelhenney-tylis-porter/
+
+**How the Cease-Fire Push Brought Together Biden and Trump’s Teams**\
+`Rarely if ever have representatives of current and new presidents of different parties worked together at such a high-stakes moment.`\
+https://nytimes.com/2025/01/15/us/politics/gaza-ceasefire-trump-biden.html
+
+**Reading Mike Davis by Firelight**\
+`What does the Palisades disaster mean for L.A.’s future?`\
+https://nytimes.com/2025/01/15/opinion/los-angeles-fires-pacific-palisades.html
+
 **‘Wicked,’ ‘Anora’ and ‘A Complete Unknown’ Get Writers Guild Nominations**\
 `The three films have momentum leading up to the planned Oscars nomination announcement next week.`\
 https://nytimes.com/2025/01/15/movies/writers-guild-nominations.html
