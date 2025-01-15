@@ -1,3 +1,7 @@
+**Twins mailbag: Prospect rankings, Brooks Lee vs. David Festa, breakout picks, Diego Cartaya**\
+`Plus how Jose Miranda could wind up starting at first base, Connor Prielipp's upside, indy ball finds and top-40 list omissions.`\
+https://nytimes.com/athletic/6055557/2025/01/15/twins-prospects-2025-breakouts-diego-cartaya/
+
 **Chelsea activate clause to recall Chalobah from Palace loan**\
 `Chelsea have activated a clause to recall Trevoh Chalobah from his loan spell at Crystal Palace.`\
 https://nytimes.com/athletic/6063549/2025/01/15/chelsea-trevoh-chalobah-loan-recall/
