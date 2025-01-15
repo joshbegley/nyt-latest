@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6061777/2025/01/15/arsenal-tottenham-result-report-
 `George Caulkin and Chris Waugh analyse the action as Newcastle and Alexander Isak enjoy a memorable night against Wolves`\
 https://nytimes.com/athletic/6061776/2025/01/15/newcastle-3-wolves-0-nine-wins-isak-record-almiron-exit/
 
-**Why Trump wanted a Mideast cease-fire deal before he took office.**\
-`By Maggie Haberman`\
-https://nytimes.com/2025/01/15/us/politics/trump-gaza-ceasefire.html
+**Why Trump Wanted a Mideast Cease-Fire Deal Before Taking Office**\
+`The agreement removed one of the most vexing international conflicts that hovered over the start of his second term.`\
+https://nytimes.com/2025/01/15/us/politics/trump-mideast-cease-fire.html
 
