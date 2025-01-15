@@ -1,3 +1,11 @@
+**I’m a Cyclist. Must I Wait for the Light When I Know I Can Safely Cross?**\
+`The magazine’s Ethicist columnist on the intersection of courteousness and lawfulness on city streets.`\
+https://nytimes.com/2025/01/15/magazine/cyclist-pedestrian-crossing-ethics.html
+
+**Sevilla's Salas under investigation for fraud**\
+`Sevilla defender Kike Salas is among three people to be arrested and placed under investigation for alleged fraud.`\
+https://nytimes.com/athletic/6061164/2025/01/15/kike-salas-sevilla-arrest-fraud/
+
 **Proenza Schouler Designers Depart in Further Fashion World Tumult**\
 `After a year of major creative change, a new round of musical chairs has begun.`\
 https://nytimes.com/2025/01/15/style/proenza-schouler-designers-leave.html
