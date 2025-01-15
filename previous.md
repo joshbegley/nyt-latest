@@ -10,9 +10,9 @@ https://nytimes.com/athletic/6063427/2025/01/15/lloyd-kelly-fenerbahce-newcastle
 `The largest banks, including JPMorgan Chase, Wells Fargo and Goldman Sachs, reported bumper profits on Wednesday.`\
 https://nytimes.com/2025/01/15/business/bank-earnings-goldman-jpmorgan-chase-wells-fargo.html
 
-**Here’s what to know about Bondi’s confirmation hearing.**\
-`By Andrés R. Martínez`\
-https://nytimes.com/2025/01/15/us/politics/heres-what-to-know-about-bondis-confirmation-hearing.html
+**Live Updates: Trump’s Attorney General Pick to Face Questions Over Lobbying**\
+`Senators are likely to ask Pam Bondi, a former attorney general of Florida who has close ties to President-elect Donald J. Trump, how she would handle thorny legal questions as leader of the Justice Department.`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general
 
 **Deconstructing Nuno-ball - and why it's more sophisticated than you think**\
 `The intricacies of Forest's offensive approach and passing could comfortably rival the best sides in the country.`\
