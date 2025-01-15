@@ -1,11 +1,3 @@
-**LeBron on playing Michael Jordan as a high schooler: 'I was unguardable'**\
-`Photos showing James and Jordan sharing the court have surfaced on social media over the years, but video footage has never emerged.`\
-https://nytimes.com/athletic/6064212/2025/01/15/lebron-james-michael-jordan-high-school-game/
-
-**Bill McCartney, Coach Who Led a Movement for ‘Godly’ Men, Dies at 84**\
-`After transforming the University of Colorado’s football team, he founded the Promise Keepers, a masculine revivalist group that drew millions of supporters.`\
-https://nytimes.com/2025/01/15/sports/ncaafootball/bill-mccartney-dead.html
-
 **She Made Things Better Down Where It’s Wetter, and Now She’s Retiring**\
 `Julie Packard discusses highlights of her four decades with the Monterey Bay Aquarium, which she has led since it opened.`\
 https://nytimes.com/2025/01/15/science/julie-packard-monterey-bay-quarium-retire.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/01/15/opinion/pete-hegseth-nomination.html
 **Washington Post Employees Plead for a Summit With Jeff Bezos**\
 `In a letter, more than 400 employees asked Mr. Bezos, the company’s owner, to meet, saying they were “deeply alarmed” by recent decisions at the paper.`\
 https://nytimes.com/2025/01/15/business/media/washington-post-employees-jeff-bezos-letter.html
+
+**Bondi may set the tone for how other Trump lawyers handle confirmation questions.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi-may-set-the-tone-for-how-other-trump-lawyers-handle-confirmation-questions
+
+**Ramaswamy Has a High-Profile Perch and a Raft of Potential Conflicts**\
+`Vivek Ramaswamy, Elon Musk’s partner in an effort to cut government costs, could make decisions that ultimately make him and his investors richer.`\
+https://nytimes.com/2025/01/15/us/politics/vivek-ramaswamy-potential-conflicts.html
 
