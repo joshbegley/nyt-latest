@@ -1,3 +1,7 @@
+**Bears fly in Mike McCarthy for interview as coaching search heats up**\
+`The former Cowboys coach officially became a free agent this week and has interest in both the Bears and the Saints.`\
+https://nytimes.com/athletic/6064472/2025/01/15/bears-mike-mccarthy-coach-interview/
+
 **A Sense of Belonging, Shaped by Fire**\
 `Conor Dougherty, who covers housing based in Los Angeles, explores the notion of where he’s from in the aftermath of the wildfires.`\
 https://nytimes.com/2025/01/15/us/wildfires-belonging.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064283/2025/01/15/nba-reschedules-games-la-wildfir
 **Gaza Hostage Deal Could Come as Trump Takes Office, in Echoes of 1981**\
 `Dozens of American hostages held at the U.S. Embassy in Tehran for more than a year were freed just as Ronald Reagan was inaugurated.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-hostage-deal-trump-inauguration-iran-1981.html
-
-**The family perspective inspiring Riley Leonard's Playoff run at Notre Dame**\
-`“He’s been somebody who’s led by example,” the Irish QB said of his grandfather. “A lot of the lessons I’ve learned have come from him."`\
-https://nytimes.com/athletic/6064220/2025/01/15/riley-leonard-family-notre-dame-playoff/
 
