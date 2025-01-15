@@ -1,3 +1,11 @@
+**Arts Groups and Donors Create Fire Relief Fund for Los Angeles Artists**\
+`The fund, already at $12 million, is led by the Getty and includes major museums, foundations and philanthropists.`\
+https://nytimes.com/2025/01/15/arts/design/arts-groups-and-donors-create-fire-relief-fund-for-los-angeles-artists.html
+
+**The Briefing: Arsenal 2 Tottenham 1 - Does win help title hopes? Should corner have been given?**\
+`Arsenal beat Tottenham Hotspur 2-1 on Wednesday to move within four points of the top of the Premier League`\
+https://nytimes.com/athletic/6061777/2025/01/15/arsenal-tottenham-result-report-analysis/
+
 **The Briefing: Newcastle 3 Wolves 0: Nine wins in a row, Isak breaks record, Almiron's goodbye?**\
 `George Caulkin and Chris Waugh analyse the action as Newcastle and Alexander Isak enjoy a memorable night against Wolves`\
 https://nytimes.com/athletic/6061776/2025/01/15/newcastle-3-wolves-0-nine-wins-isak-record-almiron-exit/
