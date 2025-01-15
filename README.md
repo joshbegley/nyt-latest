@@ -1,3 +1,7 @@
+**Christian McCaffrey might be the worst No. 1 fantasy football pick. And not just in 2024**\
+`Is Christian McCaffrey the worst career No. 1 pick in fantasy football ever? We go back 25 years to find out. `\
+https://nytimes.com/athletic/6058350/2025/01/15/christian-mccaffrey-worst-top-fantasy-pick-of-all-time/
+
 **Leicester complete Coulibaly signing from Parma**\
 `Leicester City have completed the signing of defender Woyo Coulibaly from Parma.`\
 https://nytimes.com/athletic/6064484/2025/01/15/woyo-coulibaly-leicester-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/technology/personaltech/download-tiktok-videos.ht
 **The Israeli Right May Soon Be Disenchanted With Trump**\
 `The president-elect may have the soul of a bully, but he also has the instincts of a dealmaker.`\
 https://nytimes.com/2025/01/15/opinion/trump-ceasefire-israel-hamas.html
-
-**Musk Said to Have Intervened to Help Free Italian Jailed in Iran**\
-`The outreach to an Iranian diplomat came after the journalist’s boyfriend had sought help from the tech billionaire, and the Italian prime minister had met with President-elect Trump.`\
-https://nytimes.com/2025/01/15/world/middleeast/musk-italy-iran-prisoner-exchange.html
 

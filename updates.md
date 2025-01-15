@@ -1,3 +1,15 @@
+**Leicester complete Coulibaly signing from Parma**\
+`Leicester City have completed the signing of defender Woyo Coulibaly from Parma.`\
+https://nytimes.com/athletic/6064484/2025/01/15/woyo-coulibaly-leicester-transfer/
+
+**Access Is Tight Around Kamala Harris’s Los Angeles Home**\
+`The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the Vice President has been in Washington, D.C.`\
+https://nytimes.com/2025/01/15/style/kamala-harris-home-wildfires.html
+
+**Supreme Court Seems Ready to Back Texas Law Limiting Access to Pornography**\
+`The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
+https://nytimes.com/2025/01/15/us/supreme-court-texas-law-porn.html
+
 **NBA moves 9 games in scheduling domino effect after inclement weather**\
 `Only three games were postponed initially, but moving those matchups caused a domino effect that impacted six other contests.  `\
 https://nytimes.com/athletic/6064283/2025/01/15/nba-reschedules-games-la-wildfires/
