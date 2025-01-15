@@ -1,3 +1,23 @@
+**Evan Ferguson's potential loan move: Could a Potter reunion be the answer?**\
+`Brighton head coach Fabian Hurzeler has left the door open for the Republic of Ireland striker to leave on loan this month`\
+https://nytimes.com/athletic/6061150/2025/01/15/evan-ferguson-brighton-loan-west-ham/
+
+**Marginal vs maximal gains: Why Arteta and Postecoglou adopted opposing football philosophies**\
+`Arsenal and Spurs meet today with both managers under scrutiny for an unrelenting loyalty to their way of doing things - will either blink?`\
+https://nytimes.com/athletic/6050109/2025/01/15/arteta-postecoglou-footballing-philosophies/
+
+**Never go back? For managers like David Moyes, where's the fun in that?**\
+`Football is filled with cautionary tales of managers who failed to shine after returning to a former club - but does that really matter?`\
+https://nytimes.com/athletic/6060947/2025/01/15/david-moyes-managers-returning-everton/
+
+**High-tempo, all-action Bournemouth are what Premier League football in 2025 is all about**\
+`Andoni Iraola has created a side who have channelled aggression and verticality into an assault on the Champions League places `\
+https://nytimes.com/athletic/6061809/2025/01/15/bournemouth-high-tempo-premier-league-football/
+
+**Olmo, Raphinha's comments and Qatari cash: What Barca president Laporta said on Tuesday - and what it means**\
+`Barcelona club president Laporta's comments at a Tuesday press conference dissected and analysed`\
+https://nytimes.com/athletic/6062056/2025/01/15/what-joan-laporta-said-and-what-it-means-olmos-situation-raphinhas-comments-and-qatari-cash/
+
 **Wednesday Briefing**\
 `Optimism about Gaza cease-fire talks.`\
 https://nytimes.com/2025/01/15/briefing/gaza-hamas-south-korea.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/15/health/teletherapy-online-therapy.html
 **Arsenal vs Tottenham preview: Storylines, odds, prediction for North London derby**\
 `Arsenal and Tottenham are both in middling runs of late, but the North London derby can lift the spirits of one side.`\
 https://nytimes.com/athletic/6061432/2025/01/15/arsenal-tottenham-preview-odds-prediction/
-
-**Yohe's 10 observations: Penguins conclude disastrous homestead in style**\
-`The Penguins blew yet another third-period lead, falling to Seattle 4-2 to finish off a terrible 1-3-1 homestand.`\
-https://nytimes.com/athletic/6056185/2025/01/14/penguins-defense-sullivan-collapse-kraken/
-
-**Quote of the Day: Patchy Rules Let Police Use Tasers Freely**\
-`Quotation of the Day for Wednesday, January 15, 2025.`\
-https://nytimes.com/2025/01/14/pageoneplus/quote-of-the-day-patchy-rules-let-police-use-tasers-freely.html
-
-**Naomi Osaka rediscovers her tennis superpower**\
-`After a run of injuries and tough Grand Slam draws, Naomi Osaka steps up in Melbourne.`\
-https://nytimes.com/athletic/6063129/2025/01/14/naomi-osaka-australian-open-record/
-
-**The Red Wings' honeymoon is over. Now comes the real test**\
-`Detroit's 6-3 loss to San Jose snapped a seven-game winning streak and marked the end of its honeymoon period with new coach Todd McLellan.`\
-https://nytimes.com/athletic/6063008/2025/01/14/red-wings-sharks-nhl-schedule/
-
-**Penguins' Malkin says his home was burglarized, Stanley Cup rings missing**\
-`The Cup rings are from the Penguins' 2009, 2016 and 2017 championship teams.`\
-https://nytimes.com/athletic/6063074/2025/01/14/evgeni-malkin-home-burglarized-rings/
 
