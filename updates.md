@@ -1,3 +1,11 @@
+**Are Biden and Trump at Odds on Global Energy Strategy? Maybe Not So Much.**\
+`When it comes to gas exports and competition with China, the two administrations share a similar vision, the top U.S. energy diplomat says.`\
+https://nytimes.com/2025/01/15/climate/global-energy-biden-trump-natural-gas.html
+
+**Maher happy to be a rugby superstar 'but it can't just be me'**\
+`The USA Eagles player is also not worried about a potential U.S. ban on TikTok, a platform she has amassed over three million followers on.`\
+https://nytimes.com/athletic/6063538/2025/01/15/ilona-maher-rugby-premiership-bristol-bears/
+
 **Maher happy to be a rugby superstar 'but it can't just be me'**\
 `Maher is also not worried about a potential U.S. ban on TikTok, a platform she has amassed over three million followers on.`\
 https://nytimes.com/athletic/6063538/2025/01/15/ilona-maher-rugby-premiership-bristol-bears/

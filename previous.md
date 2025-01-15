@@ -1,5 +1,9 @@
+**Are Biden and Trump at Odds on Global Energy Strategy? Maybe Not So Much.**\
+`When it comes to gas exports and competition with China, the two administrations share a similar vision, the top U.S. energy diplomat says.`\
+https://nytimes.com/2025/01/15/climate/global-energy-biden-trump-natural-gas.html
+
 **Maher happy to be a rugby superstar 'but it can't just be me'**\
-`Maher is also not worried about a potential U.S. ban on TikTok, a platform she has amassed over three million followers on.`\
+`The USA Eagles player is also not worried about a potential U.S. ban on TikTok, a platform she has amassed over three million followers on.`\
 https://nytimes.com/athletic/6063538/2025/01/15/ilona-maher-rugby-premiership-bristol-bears/
 
 **Drake Sues His Label, Calling Kendrick Lamar’s ‘Not Like Us’ Defamatory**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062063/2025/01/15/bills-ravens-defense-matt-milano
 **MoneyCall: New contender for women’s hoops $$$**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6063065/2025/01/15/unrivaled-womens-basketball-moneycall-newsletter/
-
-**White House Advances Last-Minute Push to Cut Nicotine in Cigarettes**\
-`In the final days of the Biden administration, the F.D.A. is moving ahead with a proposal to require companies to produce a less addictive product for traditional smokers.`\
-https://nytimes.com/2025/01/15/health/fda-cigarettes-low-nicotine.html
 
