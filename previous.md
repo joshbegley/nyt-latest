@@ -1,3 +1,11 @@
+**Faiz Shakir, Ex-Bernie Sanders Campaign Chief, Joins Race for D.N.C. Chair**\
+`Mr. Shakir said his mission, should he win the post, would be to redefine the Democratic Party as the party of the working class.`\
+https://nytimes.com/2025/01/15/us/politics/faiz-shakir-dnc.html
+
+**Giants mailbag: Did NY keep Daboll out of fear job would be undesirable to top candidates?**\
+`Do the Giants have a John Mara problem? Dan Duggan answers all of your questions about Giants leadership.`\
+https://nytimes.com/athletic/6062261/2025/01/15/giants-john-mara-joe-schoen-brian-daboll/
+
 **The 49ers’ multi-million-dollar Brock Purdy question: A complete breakdown of the QB**\
 `A look at the quarterback's strengths and shortcoming as the 49ers begin negotiating a new, multiyear contract.`\
 https://nytimes.com/athletic/6062158/2025/01/15/brock-purdy-49ers-contract-evaluation-performance/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062640/2025/01/15/5-nba-teams-in-flux-what-it-mean
 **Governor Newsom faults Republicans who want strings attached to aid.**\
 `By Victor Mather`\
 https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california/governor-newsom-faults-republicans-who-want-strings-attached-to-aid
-
-**Australian Open day 4: Carlos Alcaraz cruises, Belinda Bencic comeback rolls on**\
-`The first day of the second round brought more fascinating stories around Melbourne Park`\
-https://nytimes.com/athletic/5724748/2025/01/15/australian-open-carlos-alcaraz-serve/
-
-**Colts to host NFL's first-ever regular-season game in Berlin**\
-`The game will be played at the Olympic Stadium, and the Colts' opponent will be announced when the NFL schedule is revealed this spring.`\
-https://nytimes.com/athletic/6063786/2025/01/15/colts-berlin-game/
 
