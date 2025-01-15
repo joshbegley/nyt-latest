@@ -1,3 +1,15 @@
+**The Briefing: Newcastle 3 Wolves 0: Nine wins in a row, Isak breaks record, Almiron's goodbye?**\
+`George Caulkin and Chris Waugh analyse the action as Newcastle and Alexander Isak enjoy a memorable night against Wolves`\
+https://nytimes.com/athletic/6061776/2025/01/15/newcastle-3-wolves-0-nine-wins-isak-record-almiron-exit/
+
+**Why Trump wanted a Mideast cease-fire deal before he took office.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/trump-gaza-ceasefire
+
+**We Deserve Pete Hegseth**\
+`If you thought the former TV host would be asked important questions at the confirmation hearings this week, you must be living under the illusion that we live in a serious country.`\
+https://nytimes.com/2025/01/15/opinion/pete-hegseth-hearings-defense.html
+
 **U.S. Sues Southwest Airlines Over Chronic Delays**\
 `The Transportation Department said in a lawsuit that two of the airline’s routes were consistently delayed in violation of federal rules.`\
 https://nytimes.com/2025/01/15/business/southwest-airlines-lawsuit-frontier-flight-delays.html
