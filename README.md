@@ -1,3 +1,27 @@
+**The generational shift in men's tennis comes to the Australian Open**\
+`The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
+https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
+
+**Firefighting Pilots Face High-Pressure Job: ‘It Gets a Bit Scary’**\
+`The people flying planes and tankers involved in dousing blazes face hot, sweaty, turbulent conditions — and the risk that fire retardant won’t land where it’s needed.`\
+https://nytimes.com/2025/01/15/us/firefighting-pilots-california-fires.html
+
+**Here’s the latest on the fires.**\
+`By Mike Ives`\
+https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california/heres-the-latest-on-the-fires
+
+**Live Updates: Heavy L.A. Winds Extend Fire Threat**\
+`Gusts on Tuesday were weaker than expected, but more strong winds in the forecast could stoke blazes. More than a week into the fires, officials are trying to prevent speculation and evictions in ravaged neighborhoods.`\
+https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california
+
+**Bengals cap cuts: How many veterans will Cincinnati cut loose? **\
+`Freeing up veteran salaries would add to the $44.2 million in available cap space this offseason.`\
+https://nytimes.com/athletic/6061884/2025/01/15/bengals-cap-cuts-2025/
+
+**Where Yankees and Marcus Stroman stand: Will he be on the move?**\
+`The Yankees have six pitchers for five rotation spots. Will they want to pay Stroman $18 million to essentially be a sixth starter?`\
+https://nytimes.com/athletic/6062513/2025/01/15/yankees-marcus-stroman-future-possibilities/
+
 **After a baffling stretch, the Celtics starting lineup searches for answers**\
 `Head coach Joe Mazzulla says the Celtics are “just not playing our best basketball” right now. `\
 https://nytimes.com/athletic/6062374/2025/01/15/celtics-starting-lineup-struggles/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6062502/2025/01/15/cowboys-coaching-vacancy-pros-co
 **How Tim Hardaway Jr.'s leadership is impacting the young Pistons**\
 `“I’m glad he’s here ... he knows what it takes,” Ron Holland III said of Hardaway. “He’s done it, he knows all the sacrifices.”`\
 https://nytimes.com/athletic/6059019/2025/01/15/tim-hardaway-leadership-young-pistons/
-
-**Mandel's Mailbag: Can we compare the SEC's era of dominance to the MLB steroid era?**\
-`Is Notre Dame a one-hit wonder or built to last? What are the five most accomplished programs of the century? `\
-https://nytimes.com/athletic/6062885/2025/01/15/college-football-playoff-sec-notre-dame-ohio-state/
-
-**Inside Bryce Young’s franchise-changing turnaround: ‘He’s built for this’**\
-`"He turned into an NFL player now,” Jadeveon Clowney said of Bryce Young. "He looks like he's having fun."`\
-https://nytimes.com/athletic/6059520/2025/01/15/bryce-young-panthers-franchise-qb-turnaround/
-
-**Many Syrians Want Justice for Regime Crimes. Others Want Revenge.**\
-`The new interim Syrian government says it will hunt down and punish senior security officials and others, but concern is growing about attacks on former low-level members of the Assad regime’s forces.`\
-https://nytimes.com/2025/01/15/world/middleeast/syria-justice-revenge-assad-crimes.html
-
-**Biden Races to Cement His Legacy Through a Series of Actions**\
-`The president has issued policy decisions in a number of areas in the final days of his term, including environmental justice, prison reform and immigration.`\
-https://nytimes.com/2025/01/15/us/politics/biden-policy-decisions.html
-
-**Trump’s Pick for Justice Dept. to Face Questions About Her Independence**\
-`Pam Bondi, a former Florida attorney general, will be asked if she can stand up to Donald Trump, who has made it clear that he wants the government’s top lawyer to execute his commands.`\
-https://nytimes.com/2025/01/15/us/politics/pam-bondi-trump-confirmation.html
-
-**More Americans Than Ever Are Living in Wildfire Areas. L.A. Is No Exception.**\
-`Fierce winds and months of drought set the conditions for the catastrophic wildfires in Los Angeles, but the growth of housing in fire-prone areas also played a major role.`\
-https://nytimes.com/interactive/2025/01/15/climate/los-angeles-housing-fire-risk.html
 
