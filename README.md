@@ -1,4 +1,4 @@
-**Mexican Firefighters Watch for Hots Spots From the Palisades Fire**\
+**Mexican Firefighters Watch for Hot Spots From the Palisades Fire**\
 `The firefighters were part of the first international team to join the effort to contain the Los Angeles-area blazes.`\
 https://nytimes.com/2025/01/15/us/mexican-firefighters-palisades-fire.html
 
