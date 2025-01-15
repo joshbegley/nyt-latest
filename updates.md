@@ -33,6 +33,11 @@ https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-taras
 `\
 https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
 
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
 **PSR is not perfect, but the Premier League's shock therapy has had an effect**\
 `The league proved its financial rules had teeth last season, with clubs modifying their transfer behaviour to stay compliant ever since`\
 https://nytimes.com/athletic/6061774/2025/01/15/premier-league-psr-punishments/
