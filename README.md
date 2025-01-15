@@ -1,3 +1,7 @@
+**The Pulse: We're all waiting on one MLB signing**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6061731/2025/01/15/roki-sasaki-dodgers-padres-blue-jays-the-pulse/
+
 **Why Biden May Matter**\
 `We explore the president’s legacy.`\
 https://nytimes.com/2025/01/15/briefing/joe-biden-legacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062767/2025/01/15/blues-win-first-of-2-against-fla
 **Here are the main contenders for USMNT's World Cup longshot ticket**\
 `World Cup history suggests there is always room for outsider to make a run at a World Cup squad, but the chances are slim`\
 https://nytimes.com/athletic/6062074/2025/01/15/usmnt-world-cup-pochettino-longshot/
-
-**The generational shift in men's tennis comes to the Australian Open**\
-`The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
-https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
 
