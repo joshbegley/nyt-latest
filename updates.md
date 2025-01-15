@@ -1,3 +1,7 @@
+**Chinese Celebrities and Tourists Think Twice About Thailand**\
+`The brief abduction of a Chinese actor who was trafficked into Myanmar to work in a scam camp has rattled travelers from a country that Thailand relies on for tourism.`\
+https://nytimes.com/2025/01/15/world/asia/china-thailand-kidnapping-travel.html
+
 **Religious Ceremonies**\
 `Do you belong to a religious or spiritual community? What traditions and rituals are important to you and your faith?`\
 https://nytimes.com/2025/01/15/learning/religious-ceremonies.html

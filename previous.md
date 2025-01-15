@@ -1,3 +1,7 @@
+**Chinese Celebrities and Tourists Think Twice About Thailand**\
+`The brief abduction of a Chinese actor who was trafficked into Myanmar to work in a scam camp has rattled travelers from a country that Thailand relies on for tourism.`\
+https://nytimes.com/2025/01/15/world/asia/china-thailand-kidnapping-travel.html
+
 **Religious Ceremonies**\
 `Do you belong to a religious or spiritual community? What traditions and rituals are important to you and your faith?`\
 https://nytimes.com/2025/01/15/learning/religious-ceremonies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/learning/word-of-the-day-emporium.html
 **Another penalty conceded suggests structural problems with Maresca's Chelsea**\
 `The penalty conceded against Bournemouth was the sixth given away by Chelsea this season, and suggests a systemic issue`\
 https://nytimes.com/athletic/6062980/2025/01/15/chelsea-bournemouth-penalty/
-
-**Air Quality Improves Across L.A., but Ash Remains a Threat**\
-`The fresh air came after days of acrid smoke from wildfires, but officials warned that conditions could rapidly worsen again.`\
-https://nytimes.com/2025/01/15/us/air-quality-los-angeles-fires.html
 
