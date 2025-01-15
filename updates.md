@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-latest
+
+**Live Updates: Biden to Deliver Farewell Address to the Nation**\
+`His administration would not disclose what the outgoing president planned to say in his speech. But in his final months he has been seeking to cement a legacy as a transformative president.`\
+https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition
+
 **U.S. Finds Pervasive Safety Failures at South Carolina Jail**\
 `Stabbings, sexual assaults and drug use are rampant in the Alvin S. Glenn Detention Center because of staff shortages and security failures, a Justice Department investigation found.`\
 https://nytimes.com/2025/01/15/us/south-carolina-jail-constitutional-rights.html
