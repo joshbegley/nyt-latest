@@ -1,3 +1,11 @@
+**Gig Makeup?**\
+`Parker Higgins did this to us on purpose.`\
+https://nytimes.com/2025/01/14/crosswords/daily-puzzle-2025-01-15.html
+
+**Georgia RB Trevor Etienne declares for NFL draft**\
+`Trevor Etienne, the younger brother of Jacksonville Jaguars running back Travis Etienne, was Georgia’s starting tailback when healthy.`\
+https://nytimes.com/athletic/6062944/2025/01/14/trevor-etienne-nfl-draft-georgia/
+
 **South Korean President Is Detained in Insurrection Inquiry**\
 `Investigators have detained South Korea’s impeached leader, Yoon Suk Yeol.`\
 https://nytimes.com/video/world/asia/100000009917533/south-korean-president-is-detained-in-insurrection-inquiry.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/in-pacific-p
 **Heinz Kluetmeier, SI's Miracle On Ice photographer, dies at age 82**\
 `Earlier Tuesday, he passed away at the age of 82 due to complications with Parkinson's disease and a stroke.`\
 https://nytimes.com/athletic/6062778/2025/01/14/miracle-on-ice-photographer-heinz-kluetmeier-obituary/
-
-**Neil Gaiman Responds to Explosive Report of Sexual Assault**\
-`“I have never engaged in non-consensual sexual activity with anyone,” said the best-selling author in response to allegations in New York magazine.`\
-https://nytimes.com/2025/01/14/books/neil-gaiman-responds-sexual-assault-allegations.html
-
-**Bob Iger on Disney’s relief efforts: ‘Can we help in setting up temporary schools?’**\
-`Mr. Iger, the company’s chief executive, said Disney wants to be part of the rebuilding effort in Los Angeles.`\
-https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/bob-iger-on-disneys-relief-efforts-can-we-help-in-setting-up-temporary-schools
 
