@@ -1,3 +1,7 @@
+**She Made Things Better Down Where It’s Wetter**\
+`Julie Packard discusses highlights of her four decades with the Monterey Bay Aquarium, which she has led since it opened. She’s now stepping back from the role.`\
+https://nytimes.com/2025/01/15/science/julie-packard-monterey-bay-quarium-retire.html
+
 **Did You Lose Your Home in the California Fires? We Want to Hear From You.**\
 `The New York Times would like to help tell the stories of people who are facing this devastating reality by sharing photos and memories of what has been lost.`\
 https://nytimes.com/2025/01/15/realestate/los-angeles-fires-homes.html
