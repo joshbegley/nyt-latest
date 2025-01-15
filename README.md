@@ -1,3 +1,15 @@
+**Quinn Ewers, flaws and all, is right to not put the NFL on hold any longer**\
+`After three years as a starter and two deep Playoff runs, Ewers has accomplished what he set out to do in Austin.`\
+https://nytimes.com/athletic/6064818/2025/01/15/quinn-ewers-2025-nfl-draft-case-texas/
+
+**Sheriff’s Deputies Handcuff Girl, 11, After Mistaking Her for Suspect**\
+`Deputies in Syracuse, N.Y., detained the girl, who is Black, for several minutes after mistakenly identifying her as a suspect in a car theft. Video of the episode drew fierce criticism.`\
+https://nytimes.com/2025/01/15/nyregion/syracuse-police-girl-misidentified-handcuffed.html
+
+**We’re Sharing the Data Behind Our Detailed 2024 Election Map**\
+`Our new interactive map features precinct-level results that anyone can download.`\
+https://nytimes.com/2025/01/15/us/elections/2024-election-map-data.html
+
 **Can Cris Rodriguez bring a boost to the Tigers' international pipeline?**\
 `Outfielder Rodriguez just became the highest-paid and highest-ranked international amateur the Tigers have ever signed. `\
 https://nytimes.com/athletic/6064961/2025/01/15/detroit-tigers-sign-cris-rodriguez-international/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/trum
 **We Deserve Pete Hegseth**\
 `If you thought the former TV host would be asked important questions at the confirmation hearings this week, you must be living under the illusion that we live in a serious country.`\
 https://nytimes.com/2025/01/15/opinion/pete-hegseth-hearings-defense.html
-
-**U.S. Sues Southwest Airlines Over Chronic Delays**\
-`The Transportation Department said in a lawsuit that two of the airline’s routes were consistently delayed in violation of federal rules.`\
-https://nytimes.com/2025/01/15/business/southwest-airlines-lawsuit-frontier-flight-delays.html
-
-**Whisper Network Emerges in the Desperate Rush for Housing in L.A.**\
-`In a market with few homes available, real estate agents are searching for the ones no one knows about.`\
-https://nytimes.com/2025/01/15/realestate/california-wildfires-unlisted-rentals-housing.html
-
-**Takeaways From Marco Rubio’s Senate Hearing**\
-`Mr. Rubio expressed views aligned with those of most senators who work on foreign policy, while taking care not to break from Donald J. Trump’s unorthodox ideas.`\
-https://nytimes.com/2025/01/15/us/politics/marco-rubio-senate-hearing-takeaways.html
 
