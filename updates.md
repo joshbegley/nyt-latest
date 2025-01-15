@@ -1,3 +1,11 @@
+**Tuesday’s Winds Didn’t Reach Their Predicted Speeds, but Wednesday’s Might**\
+`On Tuesday afternoon, forecasters at the National Weather Service dropped their most severe warnings for the rest of the day. But the alerts will be back in place early Wednesday.`\
+https://nytimes.com/2025/01/14/weather/la-fires-winds-forecast.html
+
+**Cancer Remission Like Catherine’s Does Not Always Mean the Illness Is Cured**\
+`While the announcement is good news for the Princess of Wales, cancer experts describe the challenges of a life shadowed by an earlier diagnosis.`\
+https://nytimes.com/2025/01/14/health/princess-kate-middleton-cancer-remission.html
+
 **A self-made weatherman used Facebook to warn of fire danger. People listened.**\
 `By Lauren Herstik`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/a-self-made-weatherman-used-facebook-to-warn-of-fire-danger-people-listened
