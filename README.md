@@ -1,3 +1,7 @@
+**The Design Legacy of Los Angeles That Fell to the Fires**\
+`The finality of the wildfires’ destruction has taken 10 more cherished buildings — by Richard Neutra, Gregory Ain, Eric Owen Moss and others.`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/fires-architecture-burned-neutra-ain
+
 **News of a deal brings hope and a painful reminder for residents of villages overrun by Hamas.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/news-of-a-deal-brings-hope-and-a-painful-reminder-for-residents-of-villages-overrun-by-hamas
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/climate/wildfire-smoke-indoors.html
 **Misogynistic Taunts Cost Philadelphia Eagles Fan His Job at D.E.I. Firm**\
 `The fan, who was caught on video harassing a female Packers fan at Sunday’s playoff game, was also barred from future events at Lincoln Financial Field.`\
 https://nytimes.com/2025/01/15/us/eagles-fan-taunts-banned-job-loss.html
-
-**Mexican Firefighters Watch for Hot Spots From the Palisades Fire**\
-`The firefighters were part of the first international team to join the effort to contain the Los Angeles-area blazes.`\
-https://nytimes.com/2025/01/15/us/mexican-firefighters-palisades-fire.html
 
