@@ -1,3 +1,7 @@
+**The family perspective inspiring Riley Leonard's Playoff run at Notre Dame**\
+`“He’s been somebody who’s led by example,” the Irish QB said of his grandfather. “A lot of the lessons I’ve learned have come from him."`\
+https://nytimes.com/athletic/6064220/2025/01/15/riley-leonard-family-notre-dame-playoff/
+
 **Biden’s Presidential Legacy: An Era of Change, Forever Marked by Trump**\
 `Biden’s disastrous debate performance highlighted age concerns.`\
 https://nytimes.com/2025/01/15/us/politics/biden-presidential-legacy-trump.html

@@ -1,3 +1,7 @@
+**The family perspective inspiring Riley Leonard's Playoff run at Notre Dame**\
+`“He’s been somebody who’s led by example,” the Irish QB said of his grandfather. “A lot of the lessons I’ve learned have come from him."`\
+https://nytimes.com/athletic/6064220/2025/01/15/riley-leonard-family-notre-dame-playoff/
+
 **Biden’s Presidential Legacy: An Era of Change, Forever Marked by Trump**\
 `Biden’s disastrous debate performance highlighted age concerns.`\
 https://nytimes.com/2025/01/15/us/politics/biden-presidential-legacy-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064179/2025/01/15/usmnt-john-tolkin-holstein-kiel/
 **Scoop City: Comparing cultures in Detroit, New England**\
 `A brief look at what's right in Detroit and what went wrong in New England, plus an update on coaching searches in Dallas, Chicago`\
 https://nytimes.com/athletic/6064357/2025/01/15/nfl-cultures-coaches-dan-campbell-jerod-mayo-scoop-city/
-
-**LeBron on playing Michael Jordan as a high schooler: 'I was unguardable'**\
-`Photos showing James and Jordan sharing the court have surfaced on social media over the years, but video footage has never emerged.`\
-https://nytimes.com/athletic/6064212/2025/01/15/lebron-james-michael-jordan-high-school-game/
 
