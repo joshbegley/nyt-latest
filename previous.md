@@ -1,3 +1,11 @@
+**Israel and Hamas Hammering Out Final Details on Cease-Fire, Officials Say**\
+`Negotiators and mediators meeting in Qatar were trying to address outstanding issues on Wednesday.`\
+https://nytimes.com/2025/01/15/world/middleeast/israel-hamas-cease-fire-deal-gaza-hostages.html
+
+**Hollinger: Pacific Division teams are stuck in neutral, some worse than others**\
+`All five teams head toward the trade deadline pondering deep philosophical questions about their futures.`\
+https://nytimes.com/athletic/6062596/2025/01/15/lakers-warriors-suns-nba-pacific-division/
+
 **The Pulse: We're all waiting on one MLB signing**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6061731/2025/01/15/roki-sasaki-dodgers-padres-blue-jays-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062499/2025/01/15/vikings-rams-lions-interior-offe
 **Gaza Cease-Fire ‘Right on the Brink,’ and the S.E.C. Sues Elon Musk**\
 `Plus, who gets a quinceañera?`\
 https://nytimes.com/2025/01/15/podcasts/gaza-ceasefire-biden-farewell.html
-
-**In an important week for Blues' season outlook, they claim first of 2 games against Flames**\
-`St. Louis earned a hard-fought 2-1 win over Calgary, keeping the Blues close to the Flames in the standings, with a rematch coming Thursday.`\
-https://nytimes.com/athletic/6062767/2025/01/15/blues-win-first-of-2-against-flames/
-
-**Here are the main contenders for USMNT's World Cup longshot ticket**\
-`World Cup history suggests there is always room for outsider to make a run at a World Cup squad, but the chances are slim`\
-https://nytimes.com/athletic/6062074/2025/01/15/usmnt-world-cup-pochettino-longshot/
 

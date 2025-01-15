@@ -1,3 +1,11 @@
+**Israel and Hamas Hammering Out Final Details on Cease-Fire, Officials Say**\
+`Negotiators and mediators meeting in Qatar were trying to address outstanding issues on Wednesday.`\
+https://nytimes.com/2025/01/15/world/middleeast/israel-hamas-cease-fire-deal-gaza-hostages.html
+
+**Hollinger: Pacific Division teams are stuck in neutral, some worse than others**\
+`All five teams head toward the trade deadline pondering deep philosophical questions about their futures.`\
+https://nytimes.com/athletic/6062596/2025/01/15/lakers-warriors-suns-nba-pacific-division/
+
 **The Pulse: We're all waiting on one MLB signing**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6061731/2025/01/15/roki-sasaki-dodgers-padres-blue-jays-the-pulse/
