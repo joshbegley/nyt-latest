@@ -1,3 +1,12 @@
+**Jota took 22 seconds to settle Liverpool's No9 debate**\
+`The Portuguese offered thrust and threat in saving a point for Arne Slot's side, and deserves the chance to start`\
+https://nytimes.com/athletic/6062948/2025/01/15/diogo-jota-liverpool-no9/
+
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
 **After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
 `In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
 `\
