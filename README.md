@@ -1,3 +1,7 @@
+**Proenza Schouler Designers Depart in Further Fashion World Tumult**\
+`After a year of major creative change, a new round of musical chairs has begun.`\
+https://nytimes.com/2025/01/15/style/proenza-schouler-designers-leave.html
+
 **These Sheet-Pan Noodles Have Very Little Cleanup**\
 `Eric Kim cleverly cooks and assembles his japchae on a single sheet pan in this fast and fortifying dinner.`\
 https://nytimes.com/2025/01/15/dining/these-sheet-pan-noodles-have-very-little-cleanup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/us/politics/rubio-trump-china-russia-iran-north-k
 **A Top Pianist and a Great Composer Walk Into a Bar …**\
 `After the pianist, Vikingur Olafsson, asked for a concerto over beers, the composer, John Adams, wrote “After the Fall,” which will now travel the world.`\
 https://nytimes.com/2025/01/15/arts/music/john-adams-vikingur-olafsson-after-the-fall-concerto.html
-
-**Kash Patel’s loyalty to Trump is a point of concern for some lawmakers.**\
-`By Adam Goldman`\
-https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/kash-patels-loyalty-to-trump-is-likely-to-be-a-point-of-concern
 
