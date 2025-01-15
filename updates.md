@@ -1,3 +1,7 @@
+**Access Is Tight Around Kamala Harris’s Los Angeles Home**\
+`The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the vice president has been in Washington.`\
+https://nytimes.com/2025/01/15/style/kamala-harris-home-wildfires.html
+
 **Bears fly in Mike McCarthy for interview as coaching search heats up**\
 `The former Cowboys coach officially became a free agent this week and has interest in both the Bears and the Saints.`\
 https://nytimes.com/athletic/6064472/2025/01/15/bears-mike-mccarthy-coach-interview/
