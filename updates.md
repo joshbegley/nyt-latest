@@ -1,3 +1,11 @@
+**Defending Michigan’s Auto Industry, Whitmer Warns of Tariff Risks**\
+`Gov. Gretchen Whitmer addressed the Detroit Auto Show, saying that tariffs should not be used “to punish our closest trading partners,” like Canada.`\
+https://nytimes.com/2025/01/15/us/politics/trump-canada-tariffs-whitmer.html
+
+**Rubio Aims to Take on the Axis of Anger: China, Russia, North Korea and Iran**\
+`The loose arrangement of hostile powers could pose a series of conundrums for President-elect Donald Trump’s pick for secretary of state.`\
+https://nytimes.com/2025/01/15/us/politics/rubio-trump-china-russia-iran-north-korea.html
+
 **A Top Pianist and a Great Composer Walk Into a Bar …**\
 `After the pianist, Vikingur Olafsson, asked for a concerto over beers, the composer, John Adams, wrote “After the Fall,” which will now travel the world.`\
 https://nytimes.com/2025/01/15/arts/music/john-adams-vikingur-olafsson-after-the-fall-concerto.html
