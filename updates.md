@@ -1,3 +1,7 @@
+**5 NBA teams in flux: What it means for Jimmy Butler, Brandon Ingram and fantasy basketball**\
+`Eric Wong identifies five teams likely to shake it up in the second half of the NBA season and what it'll mean for fantasy basketball.`\
+https://nytimes.com/athletic/6062640/2025/01/15/5-nba-teams-in-flux-what-it-means-for-jimmy-butler-brandon-ingram-and-fantasy-basketball/
+
 **Governor Newsom faults Republicans who want strings attached to aid.**\
 `By Victor Mather`\
 https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california/governor-newsom-faults-republicans-who-want-strings-attached-to-aid
