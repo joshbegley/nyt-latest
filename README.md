@@ -1,3 +1,7 @@
+**Jota took 22 seconds to settle Liverpool's No9 debate**\
+`The Portuguese offered thrust and threat in saving a point for Arne Slot's side, and deserves the chance to start`\
+https://nytimes.com/athletic/6062948/2025/01/15/diogo-jota-liverpool-no9/
+
 **Alabama, Florida downed by SEC foes, putting conference depth on display**\
 `Alabama lost 74-64 to No. 21 Ole Miss. Florida lost 83-82 to unranked Missouri.`\
 https://nytimes.com/athletic/6063212/2025/01/15/alabama-florida-losses-sec-mens-basketball/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6061774/2025/01/15/premier-league-psr-punishments/
 **Evan Ferguson's potential loan move: Could a Potter reunion be the answer?**\
 `Brighton head coach Fabian Hurzeler has left the door open for the Republic of Ireland striker to leave on loan this month`\
 https://nytimes.com/athletic/6061150/2025/01/15/evan-ferguson-brighton-loan-west-ham/
-
-**Marginal vs maximal gains: Why Arteta and Postecoglou adopted opposing football philosophies**\
-`Arsenal and Spurs meet today with both managers under scrutiny for an unrelenting loyalty to their way of doing things - will either blink?`\
-https://nytimes.com/athletic/6050109/2025/01/15/arteta-postecoglou-footballing-philosophies/
 
