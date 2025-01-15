@@ -1,3 +1,7 @@
+**Amick: Will the Chicago Bulls trade Zach LaVine and others or stay in the murky middle?**\
+`What should we expect from Jimmy Butler rejoining the Heat this week? And why Oklahoma City should be feeling thankful.`\
+https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic-trade/
+
 **The Athletic FC: Slot's genius, Arsenal turn to Zubimendi, Lazio falconer's unusual sacking**\
 `Today in TAFC: How Slot's subs changed battle of top two, Arsenal's transfer surprise, Lazio falconer axed for prosthetic penis pictures.`\
 https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal-zubimendi-lazio-falconer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061947/2025/01/15/raiders-coach-gm-search-ben-john
 **Broncos mock draft reaction: Why Ashton Jeanty could jolt Sean Payton's offense**\
 `The Broncos have a glaring need for a three-down running back and the Heisman Trophy runner-up could be a first-round option.`\
 https://nytimes.com/athletic/6061714/2025/01/15/ashton-jeanty-denver-broncos-mock-draft/
-
-**The Browns gave Deshaun Watson what he wanted. Now they're paying the price**\
-`For three years, the Browns contorted themselves to match Watson's strengths and desires. The reality is he never fit in.`\
-https://nytimes.com/athletic/6054794/2025/01/15/cleveland-browns-deshaun-watson-contract-injury/
 
