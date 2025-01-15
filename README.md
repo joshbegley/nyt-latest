@@ -1,3 +1,7 @@
+**L.A. Prosecutor Vows Severe Penalties for Looting and Price Gouging**\
+`The recently elected district attorney of Los Angeles, Nathan Hochman, signals that crime fighting will be key to the region’s resurgence from the devastating wildfires.`\
+https://nytimes.com/2025/01/15/us/la-prosecutor-arrests-looting-wildfires.html
+
 **Nick Saban, Urban Meyer among class of 22 to be inducted into College Football Hall of Fame**\
 `Former Virginia Tech star Michael Vick and broadcaster Michael Strahan are also among the class of 18 players and four coaches.`\
 https://nytimes.com/athletic/6063745/2025/01/15/nick-saban-urban-meyer-college-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6053790/2025/01/15/notre-dame-ohio-state-picks-odds
 **N.Y.P.D. Bans High-Speed Chases for Low-Level Offenses**\
 `A quarter of the nearly 2,300 vehicle pursuits last year led to crashes, property damage or physical harm, the police said. Most chases will no longer be allowed.`\
 https://nytimes.com/2025/01/15/nyregion/nypd-bans-high-speed-chases-for-low-level-offenses.html
-
-**Insigne returning to Toronto FC for 2025 MLS season**\
-`Insigne is the second-highest-paid player in MLS but his move to Toronto has not worked out as planned.`\
-https://nytimes.com/athletic/6064543/2025/01/15/lorenzo-insigne-toronto-future-mls/
 
