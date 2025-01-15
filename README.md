@@ -1,4 +1,8 @@
-**Man City crave control but there was none of that in the second half against Brentford**\
+**Who will Cadillac sign for its 2026 debut? Six driver options for F1’s newest team**\
+`Cadillac is starting to lay the plans for its F1 entry. Here are the drivers that will be of interest to the program.`\
+https://nytimes.com/athletic/6061467/2025/01/15/cadillac-f1-drivers-2026-options/
+
+**Manchester City crave control but there was none of that in the second half against Brentford**\
 `Pep Guardiola's side benefitted from their direct approach at times but their unusual inability to keep the ball cost them`\
 https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/world/middleeast/israel-hamas-cease-fire-deal-gaz
 **Hollinger: Pacific Division teams are stuck in neutral, some worse than others**\
 `All five teams head toward the trade deadline pondering deep philosophical questions about their futures.`\
 https://nytimes.com/athletic/6062596/2025/01/15/lakers-warriors-suns-nba-pacific-division/
-
-**The Pulse: We're all waiting on one MLB signing**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6061731/2025/01/15/roki-sasaki-dodgers-padres-blue-jays-the-pulse/
 
