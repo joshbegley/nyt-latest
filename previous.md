@@ -1,3 +1,11 @@
+**She Made Things Better Down Where It’s Wetter, and Now She’s Retiring**\
+`Julie Packard discusses highlights of her four decades with the Monterey Bay Aquarium, which she has led since it opened.`\
+https://nytimes.com/2025/01/15/science/julie-packard-monterey-bay-quarium-retire.html
+
+**Did You Lose Your Home in the California Fires? We Want to Hear From You.**\
+`The New York Times would like to help tell the stories of people who are facing this devastating reality by sharing photos and memories of what has been lost.`\
+https://nytimes.com/2025/01/15/insider/los-angeles-fires-homes.html
+
 **Jarry to be waived by Penguins after disastrous first half**\
 `Jarry has had a particularly gruesome 2024-25 season.`\
 https://nytimes.com/athletic/6064263/2025/01/15/tristan-jarry-waivers-nhl-penguins/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi
 **Ramaswamy Has a High-Profile Perch and a Raft of Potential Conflicts**\
 `Vivek Ramaswamy, Elon Musk’s partner in an effort to cut government costs, could make decisions that ultimately make him and his investors richer.`\
 https://nytimes.com/2025/01/15/us/politics/vivek-ramaswamy-potential-conflicts.html
-
-**Poland’s Leader Suggests Russian Hand in Plot to Attack Western Cargo Planes**\
-`“I can only confirm that Russia planned acts of air terror, not just against Poland but against airlines across the globe,” said Poland’s prime minister, Donald Tusk.`\
-https://nytimes.com/2025/01/15/world/europe/russia-plot-to-attack-cargo-planes.html
-
-**Nonprofit Founded by Stacey Abrams Admits Secretly Aiding Her 2018 Campaign**\
-`The New Georgia Project, whose leaders also included Raphael Warnock, now a senator, admitted violating campaign finance laws. It agreed to a $300,000 penalty.`\
-https://nytimes.com/2025/01/15/us/politics/nonprofit-stacey-abrams.html
 

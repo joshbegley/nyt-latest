@@ -1,3 +1,11 @@
+**She Made Things Better Down Where It’s Wetter, and Now She’s Retiring**\
+`Julie Packard discusses highlights of her four decades with the Monterey Bay Aquarium, which she has led since it opened.`\
+https://nytimes.com/2025/01/15/science/julie-packard-monterey-bay-quarium-retire.html
+
+**Did You Lose Your Home in the California Fires? We Want to Hear From You.**\
+`The New York Times would like to help tell the stories of people who are facing this devastating reality by sharing photos and memories of what has been lost.`\
+https://nytimes.com/2025/01/15/insider/los-angeles-fires-homes.html
+
 **Jarry to be waived by Penguins after disastrous first half**\
 `Jarry has had a particularly gruesome 2024-25 season.`\
 https://nytimes.com/athletic/6064263/2025/01/15/tristan-jarry-waivers-nhl-penguins/
