@@ -1,3 +1,7 @@
+**How to play on a 'cursed' tennis court, according to Mirra Andreeva**\
+`MELBOURNE, Australia — Some curses are invisible.`\
+https://nytimes.com/athletic/6063279/2025/01/15/mirra-andreeva-australian-open-comeback/
+
 **Latest collapse underlines why Guardiola is finally turning to the transfer market**\
 `Pep Guardiola has shown incredible faith in his players, but it has become increasingly clear that change in the squad is needed`\
 https://nytimes.com/athletic/6062585/2025/01/15/man-city-guardiola-signings-brentford/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6061757/2025/01/15/klopp-red-bull-liverpool-slot-le
 **How can Premier League clubs move on players earning big wages?**\
 `A loan? Share the salary with another club? Pay off their contract? The options explained…`\
 https://nytimes.com/athletic/6052090/2025/01/15/premier-league-wages-sell/
-
-**PSR is not perfect, but the Premier League's shock therapy has had an effect**\
-`The league proved its financial rules had teeth last season, with clubs modifying their transfer behaviour to stay compliant ever since`\
-https://nytimes.com/athletic/6061774/2025/01/15/premier-league-psr-punishments/
 
