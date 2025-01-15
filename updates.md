@@ -1,3 +1,7 @@
+**Manchester City crave control but there was none of that in the second half against Brentford**\
+`Pep Guardiola's side benefitted from their direct approach at times but an unusual inability to keep the ball cost them a game they led 2-0`\
+https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
+
 **The Athletic FC: Slot's genius, Arsenal turn to Zubimendi, Lazio falconer's unusual sacking**\
 `Today in TAFC: How Slot's subs changed battle of top two, Arsenal's transfer surprise, Lazio falconer axed for prosthetic penis pictures.`\
 https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal-zubimendi-lazio-falconer/
