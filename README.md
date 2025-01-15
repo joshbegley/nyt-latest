@@ -1,3 +1,15 @@
+**Word of the Day: emporium**\
+`This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/15/learning/word-of-the-day-emporium.html
+
+**Another penalty conceded suggests structural problems with Maresca's Chelsea**\
+`The penalty conceded against Bournemouth was the sixth given away by Chelsea this season, and suggests a systemic issue`\
+https://nytimes.com/athletic/6062980/2025/01/15/chelsea-bournemouth-penalty/
+
+**Air Quality Improves Across L.A., but Ash Remains a Threat**\
+`The fresh air came after days of acrid smoke from wildfires, but officials warned that conditions could rapidly worsen again.`\
+https://nytimes.com/2025/01/15/us/air-quality-los-angeles-fires.html
+
 **There's no doubt now - Forest belong in the Premier League elite**\
 `An unlikely ambition is one step closer to being realised after a night where Forest showed they can mix it with the very best`\
 https://nytimes.com/athletic/6062818/2025/01/15/nottingham-forest-premier-league-elite/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6063212/2025/01/15/alabama-florida-losses-sec-mens-
 **Donyell Malen to Aston Villa: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we look at the Dutch forward's move from Dortmund.`\
 https://nytimes.com/athletic/6033354/2025/01/15/donyell-malen-to-aston-villa-the-athletic-500-transfer-ratings/
-
-**Toby Collyer's cameo against Arsenal suggests he has the energy and athleticism Amorim desires**\
-`Manchester United's need for greater physicality under their new manager could suit the versatile Collyer`\
-https://nytimes.com/athletic/6051914/2025/01/15/toby-collyer-energy-manchester-united-amorim/
-
-**What's eating Arsenal?**\
-`Our Arsenal writers examine the problems up front, concerns over transfer strategy, injury issues and the atmosphere among the fanbase.`\
-https://nytimes.com/athletic/6061395/2025/01/15/arsenal-arteta-transfers-zubimendi/
-
-**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
-`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
-`\
-https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
 
