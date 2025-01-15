@@ -1,3 +1,7 @@
+**Whisper Network Emerges in the Desperate Rush for Housing in L.A.**\
+`In a market with few homes available, real estate agents are searching for the ones no one knows about.`\
+https://nytimes.com/2025/01/15/realestate/california-wildfires-unlisted-rentals-housing.html
+
 **Takeaways From Marco Rubio’s Senate Hearing**\
 `Mr. Rubio expressed views aligned with those of most senators who work on foreign policy, while taking care not to break from Donald J. Trump’s unorthodox ideas.`\
 https://nytimes.com/2025/01/15/us/politics/marco-rubio-senate-hearing-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/la-fire-
 **Late-round QB will be risky in fantasy football 2025, but it's still the right move**\
 `Despite an unsettled group of late-round QB targets, Michael Salfino still thinks it's worth fishing from that pool in 2025 fantasy drafts.`\
 https://nytimes.com/athletic/6064447/2025/01/15/fantasy-football-2025-qb-draft-strategy/
-
-**Atlanta working to reach Almiron agreement with Newcastle**\
-`Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
-https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
 

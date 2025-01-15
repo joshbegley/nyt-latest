@@ -1,3 +1,7 @@
+**Whisper Network Emerges in the Desperate Rush for Housing in L.A.**\
+`In a market with few homes available, real estate agents are searching for the ones no one knows about.`\
+https://nytimes.com/2025/01/15/realestate/california-wildfires-unlisted-rentals-housing.html
+
 **Takeaways From Marco Rubio’s Senate Hearing**\
 `Mr. Rubio expressed views aligned with those of most senators who work on foreign policy, while taking care not to break from Donald J. Trump’s unorthodox ideas.`\
 https://nytimes.com/2025/01/15/us/politics/marco-rubio-senate-hearing-takeaways.html
