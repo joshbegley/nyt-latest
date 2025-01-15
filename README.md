@@ -1,3 +1,7 @@
+**USYNT international Darboe joins Bayern from LAFC**\
+`Bayern Munich have signed United States youth international attacking midfielder Bajung Darboe from LAFC.`\
+https://nytimes.com/athletic/6063508/2025/01/15/bayern-munich-usmnt-bajung-darboe/
+
 **The generational shift in men's tennis comes to the Australian Open**\
 `The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
 https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061682/2025/01/15/team-canada-4-nations-face-off/
 **How Cowboys can pitch their head coach opening — and what candidates should be wary of**\
 `The next Dallas coach will inherit Dak Prescott, CeeDee Lamb and Micah Parsons, among others. A look at the pros and cons.`\
 https://nytimes.com/athletic/6062502/2025/01/15/cowboys-coaching-vacancy-pros-cons-dak-prescott/
-
-**How Tim Hardaway Jr.'s leadership is impacting the young Pistons**\
-`“I’m glad he’s here ... he knows what it takes,” Ron Holland III said of Hardaway. “He’s done it, he knows all the sacrifices.”`\
-https://nytimes.com/athletic/6059019/2025/01/15/tim-hardaway-leadership-young-pistons/
 
