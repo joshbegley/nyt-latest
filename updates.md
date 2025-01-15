@@ -1,3 +1,7 @@
+**Naomi Osaka rediscovers her tennis superpower**\
+`At her peak, the four-time Grand Slam champion played her best tennis in the toughest moments. In Melbourne, she did it again.`\
+https://nytimes.com/athletic/6063129/2025/01/15/naomi-osaka-australian-open-record/
+
 **Paqueta looks revitalised under Potter - and he's not the only one**\
 `The Brazilian has looked energised since new manager's arrival - and not a moment too soon for his club`\
 https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
