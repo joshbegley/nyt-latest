@@ -1,3 +1,7 @@
+**Late Night Seems to Think This Pete Hegseth Fellow Is Unqualified**\
+`Jordan Klepper said the former weekend show host’s only qualification to run the Pentagon was that “Trump liked watching him sit on a couch on Saturday mornings.”`\
+https://nytimes.com/2025/01/15/arts/television/late-night-pete-hegseth.html
+
 **Naomi Osaka rediscovers her tennis superpower**\
 `At her peak, the four-time Grand Slam champion played her best tennis in the toughest moments. In Melbourne, she did it again.`\
 https://nytimes.com/athletic/6063129/2025/01/15/naomi-osaka-australian-open-record/
