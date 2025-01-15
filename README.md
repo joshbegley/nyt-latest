@@ -1,3 +1,15 @@
+**Bob Iger on Disney’s relief efforts: ‘Can we help in setting up temporary schools?’**\
+`Mr. Iger, the company’s chief executive, said Disney wants to be part of the rebuilding effort in Los Angeles.`\
+https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/bob-iger-on-disneys-relief-efforts-can-we-help-in-setting-up-temporary-schools
+
+**Matthew Sluka, ex-UNLV QB who left amid NIL dispute, signs with JMU**\
+`The move reunites Sluka with his former coach, Bob Chesney.`\
+https://nytimes.com/athletic/6062643/2025/01/14/matthew-sluka-jmu-football-nil/
+
+**Mavs' Kyrie Irving set to return after 5-game absence**\
+`Irving's return provides a boost to the Mavericks, who are just 3-7 since star Luka Dončić went down with a calf injury.`\
+https://nytimes.com/athletic/6062359/2025/01/14/kyrie-irving-injury-return-status-mavericks/
+
 **Fires Continue to Burn One Week Later in California**\
 `The Palisades and Eaton fires, ravaging Los Angeles for more than a week, remain mostly uncontained by firefighters.`\
 https://nytimes.com/video/us/100000009927114/southern-california-wildfires.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/01/14/well/move/fitness-evolution-trends-19
 **5 Takeaways from Hochul’s State of the State Address**\
 `Child care, housing costs and public safety were the New York governor’s top issues as she outlined her policy plans for the year and for a re-election fight in 2026.`\
 https://nytimes.com/2025/01/14/nyregion/hochul-trump-crime-affordability.html
-
-**Hegseth Earned $6 Million From TV, Books and Paid Speaking Fees**\
-`Financial reports show the potential defense secretary’s pay from past speaking and writing, some of which provided fodder for senators during his confirmation hearing.`\
-https://nytimes.com/2025/01/14/business/pete-hegseth-financial-reports.html
-
-**Jack Smith’s Accountability Effort Ends With More Freedom for Trump**\
-`The Justice Department now enters a second Trump administration with less authority to pursue a president than it has had in half a century.`\
-https://nytimes.com/2025/01/14/us/politics/jack-smith-trump-presidents.html
-
-**New Obesity Definition Challenges Current Use of B.M.I.**\
-`An international commission made the case for focusing on body fat quantity and the illnesses people experience.`\
-https://nytimes.com/2025/01/14/health/bmi-obesity-definition.html
 
