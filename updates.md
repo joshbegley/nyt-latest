@@ -1,3 +1,7 @@
+**Joni Ernst Says She Will Vote to Confirm Pete Hegseth**\
+`The Iowa Republican’s decision dramatically increases the likelihood that Mr. Hegseth will have enough votes to be confirmed as President-elect Donald J. Trump’s defense secretary.`\
+https://nytimes.com/2025/01/14/us/politics/joni-ernst-pete-hegseth-confirmation.html
+
 **In Pacific Palisades, proof of a previous life is hard to find.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/in-pacific-palisades-proof-of-a-previous-life-is-hard-to-find

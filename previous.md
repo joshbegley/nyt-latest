@@ -1,3 +1,7 @@
+**Joni Ernst Says She Will Vote to Confirm Pete Hegseth**\
+`The Iowa Republican’s decision dramatically increases the likelihood that Mr. Hegseth will have enough votes to be confirmed as President-elect Donald J. Trump’s defense secretary.`\
+https://nytimes.com/2025/01/14/us/politics/joni-ernst-pete-hegseth-confirmation.html
+
 **In Pacific Palisades, proof of a previous life is hard to find.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/in-pacific-palisades-proof-of-a-previous-life-is-hard-to-find
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/us/los-angeles-residents-fires.html
 **Tuesday’s Winds Didn’t Reach Their Predicted Speeds, but Wednesday’s Might**\
 `On Tuesday afternoon, forecasters at the National Weather Service dropped their most severe warnings for the rest of the day. But the alerts will be back in place early Wednesday.`\
 https://nytimes.com/2025/01/14/weather/la-fires-winds-forecast.html
-
-**Cancer Remission Like Catherine’s Does Not Always Mean the Illness Is Cured**\
-`While the announcement is good news for the Princess of Wales, cancer experts describe the challenges of a life shadowed by an earlier diagnosis.`\
-https://nytimes.com/2025/01/14/health/princess-kate-middleton-cancer-remission.html
 
