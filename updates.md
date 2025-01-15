@@ -1,3 +1,7 @@
+**Ask the Therapist**\
+`Lori Gottlieb, a psychotherapist and best-selling author, offers readers advice on life's tough questions.`\
+https://nytimes.com/column/ask-the-therapist
+
 **Faiz Shakir, Ex-Bernie Sanders Campaign Chief, Joins Race for D.N.C. Chair**\
 `Mr. Shakir said his mission, should he win the post, would be to redefine the Democratic Party as the party of the working class.`\
 https://nytimes.com/2025/01/15/us/politics/faiz-shakir-dnc.html
