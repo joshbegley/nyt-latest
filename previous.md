@@ -1,3 +1,7 @@
+**Latest collapse underlines why Guardiola is finally turning to the transfer market**\
+`Pep Guardiola has shown incredible faith in his players, but it has become increasingly clear that change in the squad is needed`\
+https://nytimes.com/athletic/6062585/2025/01/15/man-city-guardiola-signings-brentford/
+
 **Jota took 22 seconds to settle Liverpool's No9 debate**\
 `The Portuguese offered thrust and threat in saving a point for Arne Slot's side, and deserves the chance to start`\
 https://nytimes.com/athletic/6062948/2025/01/15/diogo-jota-liverpool-no9/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6052090/2025/01/15/premier-league-wages-sell/
 **PSR is not perfect, but the Premier League's shock therapy has had an effect**\
 `The league proved its financial rules had teeth last season, with clubs modifying their transfer behaviour to stay compliant ever since`\
 https://nytimes.com/athletic/6061774/2025/01/15/premier-league-psr-punishments/
-
-**Evan Ferguson's potential loan move: Could a Potter reunion be the answer?**\
-`Brighton head coach Fabian Hurzeler has left the door open for the Republic of Ireland striker to leave on loan this month`\
-https://nytimes.com/athletic/6061150/2025/01/15/evan-ferguson-brighton-loan-west-ham/
 
