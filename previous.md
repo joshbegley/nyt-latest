@@ -1,3 +1,27 @@
+**These Sheet-Pan Noodles Have Very Little Cleanup**\
+`Eric Kim cleverly cooks and assembles his japchae on a single sheet pan in this fast and fortifying dinner.`\
+https://nytimes.com/2025/01/15/dining/these-sheet-pan-noodles-have-very-little-cleanup.html
+
+**Celtic Women Held Sway in ‘Matrilocal’ Societies**\
+`An ancient cemetery reveals a Celtic tribe that lived in England 2,000 years ago and that was organized around maternal lineages, according to a DNA analysis.`\
+https://nytimes.com/2025/01/15/science/celtic-women-dna.html
+
+**Not Drunk, Not Dry: What it Means to Be ‘Soberish’**\
+`Conscious of the health risks of alcohol, more people are experimenting with cutting back on drinking.`\
+https://nytimes.com/2025/01/15/well/alcohol-soberish-health.html
+
+**What to Know About Covid Right Now**\
+`Experts expect cases to rise again this winter. Here’s the latest on symptoms, treatments and testing.`\
+https://nytimes.com/2025/01/15/well/covid-symptoms-test-vaccine.html
+
+**LeBrun rumblings: Flames not selling on Andersson, Stars can be big-time buyers, Oilers D, Caps goalies, more**\
+`Teams have called the Flames about Andersson, and the answer to each team has been the same: There's no interest in trading him.`\
+https://nytimes.com/athletic/6063930/2025/01/15/nhl-andersson-flames-stars-oilers-capitals/
+
+**The Bounce: Kevin Love's social media game is perfect. Plus, behind Shedeur Sanders' NBA moment**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6063737/2025/01/15/kevin-love-jimmy-butler-heat-trade-shedeur-sanders-the-bounce/
+
 **Defending Michigan’s Auto Industry, Whitmer Warns of Tariff Risks**\
 `Gov. Gretchen Whitmer addressed the Detroit Auto Show, saying that tariffs should not be used “to punish our closest trading partners,” like Canada.`\
 https://nytimes.com/2025/01/15/us/politics/trump-canada-tariffs-whitmer.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/15/arts/music/john-adams-vikingur-olafsson-after-the
 **Kash Patel’s loyalty to Trump is a point of concern for some lawmakers.**\
 `By Adam Goldman`\
 https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/kash-patels-loyalty-to-trump-is-likely-to-be-a-point-of-concern
-
-**Bondi turned to lobbying after two terms as a ‘business-friendly’ attorney general.**\
-`By Eric Lipton and Kate Kelly`\
-https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi-turned-to-lobbying-after-two-terms-as-a-business-friendly-attorney-general
-
-**Are Biden and Trump at Odds on Global Energy Strategy? Maybe Not So Much.**\
-`When it comes to gas exports and competition with China, the two administrations share a similar vision, the top U.S. energy diplomat says.`\
-https://nytimes.com/2025/01/15/climate/global-energy-biden-trump-natural-gas.html
-
-**Maher happy to be a rugby superstar 'but it can't just be me'**\
-`The USA Eagles player is also not worried about a potential U.S. ban on TikTok, a platform she has amassed over three million followers on.`\
-https://nytimes.com/athletic/6063538/2025/01/15/ilona-maher-rugby-premiership-bristol-bears/
-
-**Drake Sues His Label, Calling Kendrick Lamar’s ‘Not Like Us’ Defamatory**\
-`In a federal lawsuit on Wednesday, Drake accused Universal Music Group of putting his life and reputation at risk by releasing and promoting the popular diss track.`\
-https://nytimes.com/2025/01/15/arts/music/drake-kendrick-lamar-lawsuit-not-like-us.html
-
-**Ask the Therapist**\
-`Lori Gottlieb, a psychotherapist and best-selling author, offers readers advice on life's tough questions.`\
-https://nytimes.com/column/ask-the-therapist
-
-**Faiz Shakir, Ex-Bernie Sanders Campaign Chief, Joins Race for D.N.C. Chair**\
-`Mr. Shakir said his mission, should he win the post, would be to redefine the Democratic Party as the party of the working class.`\
-https://nytimes.com/2025/01/15/us/politics/faiz-shakir-dnc.html
 
