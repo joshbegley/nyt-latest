@@ -1,3 +1,7 @@
+**Thursday Briefing: A Gaza Cease-Fire Deal**\
+`Plus, ancient Celtic gender roles.`\
+https://nytimes.com/2025/01/15/briefing/israel-hamas-cease-fire-senate-hearings-yoon-detainment-korea.html
+
 **After Indictment, Eric Adams Collects $250,000 From Donors**\
 `Mr. Adams, who is facing a federal corruption indictment and was denied public matching funds, said his totals show “my base of support is still there.”`\
 https://nytimes.com/2025/01/15/nyregion/eric-adams-donations-indictment.html
