@@ -1,3 +1,7 @@
+**Why Biden May Matter**\
+`We explore the president’s legacy.`\
+https://nytimes.com/2025/01/15/briefing/joe-biden-legacy.html
+
 **Twins mailbag: Prospect rankings, Brooks Lee vs. David Festa, breakout picks, Diego Cartaya**\
 `Plus how Jose Miranda could wind up starting at first base, Connor Prielipp's upside, indy ball finds and top-40 list omissions.`\
 https://nytimes.com/athletic/6055557/2025/01/15/twins-prospects-2025-breakouts-diego-cartaya/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062074/2025/01/15/usmnt-world-cup-pochettino-longs
 **The generational shift in men's tennis comes to the Australian Open**\
 `The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
 https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
-
-**Maple Leafs Concern-O-Metre: What's ailing Toronto through a 3-game losing streak?**\
-`Three straight regulation losses aren't a good sign. Exactly how much of a problem are the various underlying trends?`\
-https://nytimes.com/athletic/6063181/2025/01/15/maple-leafs-concern-o-metre-losing-streak/
 
