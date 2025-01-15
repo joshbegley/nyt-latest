@@ -1,3 +1,15 @@
+**A Sense of Belonging, Shaped by Fire**\
+`Conor Dougherty, who covers housing based in Los Angeles, explores the notion of where he’s from in the aftermath of the wildfires.`\
+https://nytimes.com/2025/01/15/us/wildfires-belonging.html
+
+**John Tavares leaves Maple Leafs practice with injury**\
+`These are tough times, suddenly, around the Toronto Maple Leafs.`\
+https://nytimes.com/athletic/6064522/2025/01/15/john-tavares-injury-maple-leafs/
+
+**Tiny Love Stories: ‘You Have to Let Your Gut Lead’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/01/15/style/tiny-modern-love-stories-you-have-to-let-your-gut-lead.html
+
 **Christian McCaffrey might be the worst No. 1 fantasy football pick. And not just in 2024**\
 `Is Christian McCaffrey the worst career No. 1 pick in fantasy football ever? We go back 25 years to find out. `\
 https://nytimes.com/athletic/6058350/2025/01/15/christian-mccaffrey-worst-top-fantasy-pick-of-all-time/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/15/world/middleeast/gaza-hostage-deal-trump-inaugura
 **The family perspective inspiring Riley Leonard's Playoff run at Notre Dame**\
 `“He’s been somebody who’s led by example,” the Irish QB said of his grandfather. “A lot of the lessons I’ve learned have come from him."`\
 https://nytimes.com/athletic/6064220/2025/01/15/riley-leonard-family-notre-dame-playoff/
-
-**Biden’s Presidential Legacy: An Era of Change, Forever Marked by Trump**\
-`Biden’s disastrous debate performance highlighted age concerns.`\
-https://nytimes.com/2025/01/15/us/politics/biden-presidential-legacy-trump.html
-
-**How to Download Your Videos and Other Data From TikTok**\
-`With a TikTok ban looming in the United States and the app’s future unknown, now might be a good time to save your work while you can.`\
-https://nytimes.com/2025/01/15/technology/personaltech/download-tiktok-videos.html
-
-**The Israeli Right May Soon Be Disenchanted With Trump**\
-`The president-elect may have the soul of a bully, but he also has the instincts of a dealmaker.`\
-https://nytimes.com/2025/01/15/opinion/trump-ceasefire-israel-hamas.html
 
