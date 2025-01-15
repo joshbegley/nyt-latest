@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/15/movies/bafta-nominations.html
 https://nytimes.com/athletic/6061467/2025/01/15/cadillac-f1-drivers-2026-options/
 
 **Manchester City crave control but there was none of that in the second half against Brentford**\
-`Pep Guardiola's side benefitted from their direct approach at times but their unusual inability to keep the ball cost them`\
+`Pep Guardiola's side benefitted from their direct approach at times but an unusual inability to keep the ball cost them a game they led 2-0`\
 https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
 
 **Jayden Daniels steps up on big stage, more wild-card weekend thoughts: Quick Outs**\
