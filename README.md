@@ -1,3 +1,15 @@
+**South Korean President Is Detained in Insurrection Inquiry**\
+`Investigators have detained South Korea’s impeached leader, Yoon Suk Yeol.`\
+https://nytimes.com/video/world/asia/100000009917533/south-korean-president-is-detained-in-insurrection-inquiry.html
+
+**Zheng Qinwen out of Australian Open after shock defeat to Laura Siegemund**\
+`Zheng Qinwen is out of the Australian Open after a shock defeat to Germany&#8217;s Laura Siegemund.`\
+https://nytimes.com/athletic/6062915/2025/01/14/zheng-qinwen-australian-open-result-siegemund/
+
+**Corrections: Jan. 15, 2025**\
+`Corrections that appeared in print on Wednesday, Jan. 15, 2025.`\
+https://nytimes.com/2025/01/14/pageoneplus/corrections-jan-15-2025.html
+
 **Two Private Moon Landers Are Launching at Once: What to Know**\
 `Robotic vehicles from Firefly Aerospace of Texas and Ispace of Japan will part ways early Wednesday after launching from the same SpaceX rocket. Both are aiming for the lunar surface.`\
 https://nytimes.com/2025/01/14/science/nasa-spacex-launch-lunar-landers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/14/books/neil-gaiman-responds-sexual-assault-allegat
 **Bob Iger on Disney’s relief efforts: ‘Can we help in setting up temporary schools?’**\
 `Mr. Iger, the company’s chief executive, said Disney wants to be part of the rebuilding effort in Los Angeles.`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/bob-iger-on-disneys-relief-efforts-can-we-help-in-setting-up-temporary-schools
-
-**Matthew Sluka, ex-UNLV QB who left amid NIL dispute, signs with JMU**\
-`The move reunites Sluka with his former coach, Bob Chesney.`\
-https://nytimes.com/athletic/6062643/2025/01/14/matthew-sluka-jmu-football-nil/
-
-**Mavs' Kyrie Irving set to return after 5-game absence**\
-`Irving's return provides a boost to the Mavericks, who are just 3-7 since star Luka Dončić went down with a calf injury.`\
-https://nytimes.com/athletic/6062359/2025/01/14/kyrie-irving-injury-return-status-mavericks/
-
-**Fires Continue to Burn One Week Later in California**\
-`The Palisades and Eaton fires, ravaging Los Angeles for more than a week, remain mostly uncontained by firefighters.`\
-https://nytimes.com/video/us/100000009927114/southern-california-wildfires.html
 
