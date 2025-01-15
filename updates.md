@@ -1,3 +1,15 @@
+**South Korean President Is Detained in Insurrection Inquiry**\
+`Investigators have detained South Korea’s impeached leader, Yoon Suk Yeol.`\
+https://nytimes.com/video/world/asia/100000009917533/south-korean-president-is-detained-in-insurrection-inquiry.html
+
+**Zheng Qinwen out of Australian Open after shock defeat to Laura Siegemund**\
+`Zheng Qinwen is out of the Australian Open after a shock defeat to Germany&#8217;s Laura Siegemund.`\
+https://nytimes.com/athletic/6062915/2025/01/14/zheng-qinwen-australian-open-result-siegemund/
+
+**Corrections: Jan. 15, 2025**\
+`Corrections that appeared in print on Wednesday, Jan. 15, 2025.`\
+https://nytimes.com/2025/01/14/pageoneplus/corrections-jan-15-2025.html
+
 **Two Private Moon Landers Are Launching at Once: What to Know**\
 `Robotic vehicles from Firefly Aerospace of Texas and Ispace of Japan will part ways early Wednesday after launching from the same SpaceX rocket. Both are aiming for the lunar surface.`\
 https://nytimes.com/2025/01/14/science/nasa-spacex-launch-lunar-landers.html
