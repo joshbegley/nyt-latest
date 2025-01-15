@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-taras
 `\
 https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
 
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
 **Latest collapse underlines why Guardiola is finally turning to the transfer market**\
 `Pep Guardiola has shown incredible faith in his players, but it has become increasingly clear that change in the squad is needed`\
 https://nytimes.com/athletic/6062585/2025/01/15/man-city-guardiola-signings-brentford/
