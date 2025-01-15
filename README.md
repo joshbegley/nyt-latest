@@ -1,3 +1,7 @@
+**In Pacific Palisades, proof of a previous life is hard to find.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/in-pacific-palisades-proof-of-a-previous-life-is-hard-to-find
+
 **Heinz Kluetmeier, SI's Miracle On Ice photographer, dies at age 82**\
 `Earlier Tuesday, he passed away at the age of 82 due to complications with Parkinson's disease and a stroke.`\
 https://nytimes.com/athletic/6062778/2025/01/14/miracle-on-ice-photographer-heinz-kluetmeier-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/weather/la-fires-winds-forecast.html
 **Cancer Remission Like Catherine’s Does Not Always Mean the Illness Is Cured**\
 `While the announcement is good news for the Princess of Wales, cancer experts describe the challenges of a life shadowed by an earlier diagnosis.`\
 https://nytimes.com/2025/01/14/health/princess-kate-middleton-cancer-remission.html
-
-**A self-made weatherman used Facebook to warn of fire danger. People listened.**\
-`By Lauren Herstik`\
-https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/a-self-made-weatherman-used-facebook-to-warn-of-fire-danger-people-listened
 
