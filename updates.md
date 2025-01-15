@@ -1,3 +1,11 @@
+**Rangers and Celtic joining WSL would boost the brand but damage the sport**\
+`Scottish clubs' moving south would appease the accountants but damage both leagues `\
+https://nytimes.com/athletic/6063634/2025/01/15/celtic-rangers-join-wsl/
+
+**Live Updates: Trump’s Attorney General Pick to Face Questions Over Lobbying**\
+`Senators are likely to ask Pam Bondi, a former attorney general of Florida who has close ties to President-elect Donald J. Trump, how she would handle thorny legal questions as leader of the Justice Department.`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general
+
 **Here’s what to know about Rubio’s confirmation hearing.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/01/15/us/rubio-confirmation-secretary-state/heres-what-to-know-about-rubios-confirmation-hearing
