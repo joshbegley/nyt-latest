@@ -1,3 +1,15 @@
+**Jarry to be waived by Penguins after disastrous first half**\
+`Jarry has had a particularly gruesome 2024-25 season.`\
+https://nytimes.com/athletic/6064263/2025/01/15/tristan-jarry-waivers-nhl-penguins/
+
+**Bondi is being pressed on the independence of the Justice Department.**\
+`By Devlin Barrett and Adam Goldman`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi-is-being-pressed-on-the-independence-of-the-justice-department
+
+**Tackling Trump’s Policy in the Americas, Rubio Would Confront New Tensions**\
+`As the country’s top diplomat, Senator Marco Rubio of Florida, who has a special interest in Latin America, would be tasked with navigating Donald Trump’s efforts to expand U.S. influence.`\
+https://nytimes.com/2025/01/15/us/politics/rubio-latin-america-trump.html
+
 **Heat Today: 3 reasons why an awkward Jimmy Butler return makes sense for both sides**\
 `Tensions are high, but Butler can bolster his own market by playing well for Miami when his suspension ends after Wednesday's game in LA. `\
 https://nytimes.com/athletic/6064228/2025/01/15/jimmy-butler-pat-riley-heat-trade-dwyane-wade-lebron-james-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/15/world/europe/russia-plot-to-attack-cargo-planes.h
 **Nonprofit Founded by Stacey Abrams Admits Secretly Aiding Her 2018 Campaign**\
 `The New Georgia Project, whose leaders also included Raphael Warnock, now a senator, admitted violating campaign finance laws. It agreed to a $300,000 penalty.`\
 https://nytimes.com/2025/01/15/us/politics/nonprofit-stacey-abrams.html
-
-**Penguins mailbag: Sidney Crosby likes to recycle**\
-`Josh Yohe recalls a telling Crosby story and looks ahead to the March 7 NHL trade deadline.`\
-https://nytimes.com/athletic/6056190/2025/01/15/penguins-sidney-crosby-recycling/
-
-**The N.Y.P.D. Has Been in Tumult. Can a New Boss Tame It?**\
-`Commissioner Jessica S. Tisch is shaking up the Police Department after some of its former leaders, elevated by Mayor Eric Adams, came under scrutiny by federal investigators.`\
-https://nytimes.com/2025/01/15/nyregion/nypd-comissioner-jessica-tisch.html
-
-**Explained: Crystal Palace shareholders' £37.5m cash injection**\
-`Crystal Palace look set to enter the transfer market after their shareholders injected £37.`\
-https://nytimes.com/athletic/6064210/2025/01/15/crystal-palace-transfers-capital/
 
