@@ -1,3 +1,15 @@
+**How to Get FEMA Help**\
+`The agency offers different types of financial assistance after disasters. The fastest is a one-time payment of $770.`\
+https://nytimes.com/2025/01/15/climate/california-wildfire-fema-money.html
+
+**Team co-owned by Dale Earnhardt Jr. entering Justin Allgaier in Daytona 500**\
+`Because JR Motorsports does not hold a charter, Allgaier is not guaranteed a starting spot in the 40-car Daytona 500 field.`\
+https://nytimes.com/athletic/6064459/2025/01/15/dale-earnhardt-jr-motorsports-daytona-500/
+
+**International signing period opens without Sasaki decision but plenty of significant deals**\
+`The 2025 MLB international signing period officially opened on Wednesday, with several top-rated prospects signing with MLB clubs.`\
+https://nytimes.com/athletic/6064533/2025/01/15/mlb-international-signing-period-2025/
+
 **L.A. Prosecutor Vows Severe Penalties for Looting and Price Gouging**\
 `The recently elected district attorney of Los Angeles, Nathan Hochman, signals that crime fighting will be key to the region’s resurgence from the devastating wildfires.`\
 https://nytimes.com/2025/01/15/us/la-prosecutor-arrests-looting-wildfires.html
