@@ -1,11 +1,3 @@
-**Why Trump wanted a Mideast cease-fire deal before he took office.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/trump-gaza-ceasefire
-
-**We Deserve Pete Hegseth**\
-`If you thought the former TV host would be asked important questions at the confirmation hearings this week, you must be living under the illusion that we live in a serious country.`\
-https://nytimes.com/2025/01/15/opinion/pete-hegseth-hearings-defense.html
-
 **U.S. Sues Southwest Airlines Over Chronic Delays**\
 `The Transportation Department said in a lawsuit that two of the airline’s routes were consistently delayed in violation of federal rules.`\
 https://nytimes.com/2025/01/15/business/southwest-airlines-lawsuit-frontier-flight-delays.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/01/15/briefing/israel-hamas-cease-fire-senate-hearings-
 **After Indictment, Eric Adams Collects $250,000 From Donors**\
 `Mr. Adams, who is facing a federal corruption indictment and was denied public matching funds, said his totals show “my base of support is still there.”`\
 https://nytimes.com/2025/01/15/nyregion/eric-adams-donations-indictment.html
+
+**Chelsea in talks with Premier League over settling payments case from Abramovich era**\
+`Chelsea are in talks with the Premier League over agreeing a financial settlement for payments relating to transfers made during the Roman Abramovich era.`\
+https://nytimes.com/athletic/6064828/2025/01/15/chelsea-ffp-fine-premier-league-psr/
+
+**L.A. fire chief defends decision not to deploy extra resources before fires started.**\
+`By Kate Selig`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/la-fire-chief-defends-decision-not-to-deploy-extra-resources-before-fires-started
 
