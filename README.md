@@ -1,3 +1,7 @@
+**Alabama, Florida downed by SEC foes, putting conference depth on display**\
+`Alabama lost 74-64 to No. 21 Ole Miss. Florida lost 83-82 to unranked Missouri.`\
+https://nytimes.com/athletic/6063212/2025/01/15/alabama-florida-losses-sec-mens-basketball/
+
 **Donyell Malen to Aston Villa: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we look at the Dutch forward's move from Dortmund.`\
 https://nytimes.com/athletic/6033354/2025/01/15/donyell-malen-to-aston-villa-the-athletic-500-transfer-ratings/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6061150/2025/01/15/evan-ferguson-brighton-loan-west
 **Marginal vs maximal gains: Why Arteta and Postecoglou adopted opposing football philosophies**\
 `Arsenal and Spurs meet today with both managers under scrutiny for an unrelenting loyalty to their way of doing things - will either blink?`\
 https://nytimes.com/athletic/6050109/2025/01/15/arteta-postecoglou-footballing-philosophies/
-
-**Never go back? For managers like David Moyes, where's the fun in that?**\
-`Football is filled with cautionary tales of managers who failed to shine after returning to a former club - but does that really matter?`\
-https://nytimes.com/athletic/6060947/2025/01/15/david-moyes-managers-returning-everton/
 

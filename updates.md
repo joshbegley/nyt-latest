@@ -4,6 +4,11 @@
 https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
 
 **After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
 `In the Blue Jackets' electrifying 3-2 win vs. the Flyers, the biggest story of the night was the quietest player in the dressing room.
 `\
 https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
