@@ -1,3 +1,15 @@
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/15/notre-dame-ohio-state-picks-odds-national-championship-game/
+
+**N.Y.P.D. Bans High-Speed Chases for Low-Level Offenses**\
+`A quarter of the nearly 2,300 vehicle pursuits last year led to crashes, property damage or physical harm, the police said. Most chases will no longer be allowed.`\
+https://nytimes.com/2025/01/15/nyregion/nypd-bans-high-speed-chases-for-low-level-offenses.html
+
+**Insigne returning to Toronto FC for 2025 MLS season**\
+`Insigne is the second-highest-paid player in MLS but his move to Toronto has not worked out as planned.`\
+https://nytimes.com/athletic/6064543/2025/01/15/lorenzo-insigne-toronto-future-mls/
+
 **Bears fly in Mike McCarthy for interview as coaching search heats up**\
 `The former Cowboys coach officially became a free agent this week and has interest in both the Bears and the Saints.`\
 https://nytimes.com/athletic/6064472/2025/01/15/bears-mike-mccarthy-coach-interview/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6064484/2025/01/15/woyo-coulibaly-leicester-transfe
 **Access Is Tight Around Kamala Harris’s Los Angeles Home**\
 `The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the vice president has been in Washington.`\
 https://nytimes.com/2025/01/15/style/kamala-harris-home-wildfires.html
-
-**Supreme Court Seems Ready to Back Texas Law Limiting Access to Pornography**\
-`The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
-https://nytimes.com/2025/01/15/us/supreme-court-texas-law-porn.html
-
-**NBA moves 9 games in scheduling domino effect after inclement weather**\
-`Only three games were postponed initially, but moving those matchups caused a domino effect that impacted six other contests.  `\
-https://nytimes.com/athletic/6064283/2025/01/15/nba-reschedules-games-la-wildfires/
-
-**Gaza Hostage Deal Could Come as Trump Takes Office, in Echoes of 1981**\
-`Dozens of American hostages held at the U.S. Embassy in Tehran for more than a year were freed just as Ronald Reagan was inaugurated.`\
-https://nytimes.com/2025/01/15/world/middleeast/gaza-hostage-deal-trump-inauguration-iran-1981.html
 

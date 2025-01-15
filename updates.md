@@ -1,3 +1,15 @@
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/15/notre-dame-ohio-state-picks-odds-national-championship-game/
+
+**N.Y.P.D. Bans High-Speed Chases for Low-Level Offenses**\
+`A quarter of the nearly 2,300 vehicle pursuits last year led to crashes, property damage or physical harm, the police said. Most chases will no longer be allowed.`\
+https://nytimes.com/2025/01/15/nyregion/nypd-bans-high-speed-chases-for-low-level-offenses.html
+
+**Insigne returning to Toronto FC for 2025 MLS season**\
+`Insigne is the second-highest-paid player in MLS but his move to Toronto has not worked out as planned.`\
+https://nytimes.com/athletic/6064543/2025/01/15/lorenzo-insigne-toronto-future-mls/
+
 **Access Is Tight Around Kamala Harris’s Los Angeles Home**\
 `The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the vice president has been in Washington.`\
 https://nytimes.com/2025/01/15/style/kamala-harris-home-wildfires.html
