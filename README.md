@@ -1,3 +1,7 @@
+**Atlanta in talks with Newcastle over Almiron**\
+`Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
+https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
+
 **Here is what the provisional cease-fire deal says.**\
 `In the first phase, 33 hostages and hundreds of Palestinian prisoners would be freed, and hundreds of trucks with humanitarian aid would be allowed into Gaza daily, a copy of the agreement says.`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/details-cease-fire-deal
@@ -6,9 +10,9 @@ https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/deta
 `An agreement offers Gazans at least some respite from the war, and for Israelis it means the release of hostages. But the deal’s ambiguity means fighting could resume within weeks.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-deal.html
 
-**The deal has exposed fissures in Netanyahu’s right-wing government.**\
+**Deal Has Exposed Fissures in Netanyahu’s Right-Wing Government**\
 `One far-right minister, Itamar Ben-Gvir, claimed to have scuppered similar agreements over the past year. But, the prime minister has blamed Hamas for the failures.`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/ceasefire-netanyahu-israel
+https://nytimes.com/2025/01/15/world/middleeast/ceasefire-netanyahu-israel.html
 
 **How to Get FEMA Help**\
 `The agency offers different types of financial assistance after disasters. The fastest is a one-time payment of $770.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063745/2025/01/15/nick-saban-urban-meyer-college-h
 **Reynolds, McElhenney part of group buying Colombian soccer club La Equidad**\
 `The consortium is fronted by real estate investor Al Tylis and Club Necaxa executive Sam Porter.`\
 https://nytimes.com/athletic/6062362/2025/01/15/la-equidad-reynolds-mcelhenney-tylis-porter/
-
-**How the Cease-Fire Push Brought Together Biden and Trump’s Teams**\
-`Rarely if ever have representatives of current and new presidents of different parties worked together at such a high-stakes moment.`\
-https://nytimes.com/2025/01/15/us/politics/gaza-ceasefire-trump-biden.html
 
