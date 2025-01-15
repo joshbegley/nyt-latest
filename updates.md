@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-taras
 `\
 https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
 
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
 **Alabama, Florida downed by SEC foes, putting conference depth on display**\
 `Alabama lost 74-64 to No. 21 Ole Miss. Florida lost 83-82 to unranked Missouri.`\
 https://nytimes.com/athletic/6063212/2025/01/15/alabama-florida-losses-sec-mens-basketball/
