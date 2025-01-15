@@ -1,3 +1,7 @@
+**Nick Saban, Urban Meyer among class of 22 to be inducted into College Football Hall of Fame**\
+`Former Virginia Tech star Michael Vick and broadcaster Michael Strahan are also among the class of 18 players and four coaches.`\
+https://nytimes.com/athletic/6063745/2025/01/15/nick-saban-urban-meyer-college-hall-of-fame/
+
 **Reynolds, McElhenney part of group buying Colombian soccer club La Equidad**\
 `The consortium is fronted by real estate investor Al Tylis and Club Necaxa executive Sam Porter.`\
 https://nytimes.com/athletic/6062362/2025/01/15/la-equidad-reynolds-mcelhenney-tylis-porter/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/nyregion/nypd-bans-high-speed-chases-for-low-leve
 **Insigne returning to Toronto FC for 2025 MLS season**\
 `Insigne is the second-highest-paid player in MLS but his move to Toronto has not worked out as planned.`\
 https://nytimes.com/athletic/6064543/2025/01/15/lorenzo-insigne-toronto-future-mls/
-
-**Bears fly in Mike McCarthy for interview as coaching search heats up**\
-`The former Cowboys coach officially became a free agent this week and has interest in both the Bears and the Saints.`\
-https://nytimes.com/athletic/6064472/2025/01/15/bears-mike-mccarthy-coach-interview/
 
