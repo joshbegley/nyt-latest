@@ -1,3 +1,11 @@
+**Gaza Cease-Fire Deal Brings Joy, but Is Tinged With Uncertainty**\
+`An agreement offers Gazans at least some respite from the war, and for Israelis it means the release of hostages. But the deal’s ambiguity means fighting could resume within weeks.`\
+https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-deal.html
+
+**The deal has exposed fissures in Netanyahu’s right-wing government.**\
+`One far-right minister, Itamar Ben-Gvir, claimed to have scuppered similar agreements over the past year. But, the prime minister has blamed Hamas for the failures.`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/ceasefire-netanyahu-israel
+
 **How to Get FEMA Help**\
 `The agency offers different types of financial assistance after disasters. The fastest is a one-time payment of $770.`\
 https://nytimes.com/2025/01/15/climate/california-wildfire-fema-money.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/15/us/politics/gaza-ceasefire-trump-biden.html
 **Reading Mike Davis by Firelight**\
 `What does the Palisades disaster mean for L.A.’s future?`\
 https://nytimes.com/2025/01/15/opinion/los-angeles-fires-pacific-palisades.html
-
-**‘Wicked,’ ‘Anora’ and ‘A Complete Unknown’ Get Writers Guild Nominations**\
-`The three films have momentum leading up to the planned Oscars nomination announcement next week.`\
-https://nytimes.com/2025/01/15/movies/writers-guild-nominations.html
-
-**Tell Us: When Did You Know You Were Falling in Love?**\
-`We may include your story in an episode of the “Modern Love” podcast.`\
-https://nytimes.com/2025/01/15/podcasts/falling-in-love-stories-modern-love.html
 
