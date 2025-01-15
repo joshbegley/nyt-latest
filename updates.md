@@ -1,3 +1,7 @@
+**In Pacific Palisades, proof of a previous life is hard to find.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/in-pacific-palisades-proof-of-a-previous-life-is-hard-to-find
+
 **Heinz Kluetmeier, SI's Miracle On Ice photographer, dies at age 82**\
 `Earlier Tuesday, he passed away at the age of 82 due to complications with Parkinson's disease and a stroke.`\
 https://nytimes.com/athletic/6062778/2025/01/14/miracle-on-ice-photographer-heinz-kluetmeier-obituary/
