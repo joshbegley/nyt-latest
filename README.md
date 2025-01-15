@@ -1,3 +1,7 @@
+**There's no doubt now - Forest belong in the Premier League elite**\
+`An unlikely ambition is one step closer to being realised after a night where Forest showed they can mix it with the very best`\
+https://nytimes.com/athletic/6062818/2025/01/15/nottingham-forest-premier-league-elite/
+
 **California Officials Seek to Stem Property Speculation and Evictions During Fires**\
 `Californians are worried that the blazes, which have damaged thousands of homes, will make the city’s housing crisis worse.`\
 https://nytimes.com/2025/01/15/us/california-fires-la-housing.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6061395/2025/01/15/arsenal-arteta-transfers-zubimen
 `In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
 `\
 https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
-
-**Doctor Football, the Red Bull cosmos and giving people wings: An audience with Jurgen Klopp**\
-`The ex-Liverpool manager was presented as Red Bull's new global head of football but offered very little clarity on what that role entails`\
-https://nytimes.com/athletic/6061757/2025/01/15/klopp-red-bull-liverpool-slot-leipzig/
 
