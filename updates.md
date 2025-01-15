@@ -1,3 +1,7 @@
+**Christian McCaffrey might be the worst No. 1 fantasy football pick. And not just in 2024**\
+`Is Christian McCaffrey the worst career No. 1 pick in fantasy football ever? We go back 25 years to find out. `\
+https://nytimes.com/athletic/6058350/2025/01/15/christian-mccaffrey-worst-top-fantasy-pick-of-all-time/
+
 **Leicester complete Coulibaly signing from Parma**\
 `Leicester City have completed the signing of defender Woyo Coulibaly from Parma.`\
 https://nytimes.com/athletic/6064484/2025/01/15/woyo-coulibaly-leicester-transfer/
