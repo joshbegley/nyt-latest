@@ -1,3 +1,20 @@
+**Mexican Firefighters Watch for Hot Spots From the Palisades Fire**\
+`The firefighters were part of the first international team to join the effort to contain the Los Angeles-area blazes.`\
+https://nytimes.com/2025/01/15/us/mexican-firefighters-palisades-fire.html
+
+**Israel and Hamas Reached a Cease-Fire Deal**\
+`Also, Biden is set to deliver a farewell address tonight. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/01/15/briefing/israel-hamas-deal-biden-farewell-address.html
+
+**Broja sidelined for up to 12 weeks and could return to Chelsea, says Moyes**\
+`Everton loanee Armando Broja is set to be out for 10-12 weeks after sustaining ankle ligament damage.`\
+https://nytimes.com/athletic/6065113/2025/01/15/armando-broja-injury-everton-chelsea/
+
+**Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
+`Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
+`\
+https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
+
 **Ipswich sign Philogene from Villa**\
 `Ipswich Town have confirmed the signing of Jaden Philogene from Aston Villa.`\
 https://nytimes.com/athletic/6049042/2025/01/15/jaden-philogene-ipswich-transfer/
