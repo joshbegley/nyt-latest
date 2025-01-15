@@ -1,3 +1,11 @@
+**Inflation Sped Up in December, a Fresh Challenge for the Fed**\
+`The Consumer Price Index rose 2.9 percent from a year earlier, but a measure of underlying inflation was more encouraging.`\
+https://nytimes.com/2025/01/15/business/inflation-december-economy.html
+
+**Newcastle reject £11m Fenerbahce bid for Lloyd Kelly**\
+`Newcastle United have rejected an £11million ($13.`\
+https://nytimes.com/athletic/6063427/2025/01/15/lloyd-kelly-fenerbahce-newcastle-transfers/
+
 **It’s a Good (Great?) Time to Be a Big Bank**\
 `The largest banks, including JPMorgan Chase, Wells Fargo and Goldman Sachs, reported bumper profits on Wednesday.`\
 https://nytimes.com/2025/01/15/business/bank-earnings-goldman-jpmorgan-chase-wells-fargo.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/15/us/rubio-confirmation-secretary-state/heres-
 **Mister C.E.O. Goes to Washington**\
 `Billionaire business leaders, including Mark Zuckerberg, Jeff Bezos and Elon Musk, plan to make prominent appearances at Donald Trump’s inauguration next week.`\
 https://nytimes.com/2025/01/15/business/dealbook/zuckerberg-bezos-trump-inauguration.html
-
-**What I'm hearing on Zach LaVine, Jimmy Butler and more**\
-`What should we expect from Jimmy Butler rejoining the Heat this week? And why Oklahoma City should be feeling thankful.`\
-https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic-trade/
-
-**The Athletic FC: Slot's genius, Arsenal turn to Zubimendi, Lazio falconer's unusual sacking**\
-`Today in TAFC: How Slot's subs changed battle of top two, Arsenal's transfer surprise, Lazio falconer axed for prosthetic penis pictures.`\
-https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal-zubimendi-lazio-falconer/
 
