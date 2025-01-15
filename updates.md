@@ -1,3 +1,7 @@
+**Amick: Will the Chicago Bulls trade Zach LaVine and others or stay in the murky middle?**\
+`What should we expect from Jimmy Butler rejoining the Heat this week? And why Oklahoma City should be feeling thankful.`\
+https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic-trade/
+
 **Manchester City crave control but there was none of that in the second half against Brentford**\
 `Pep Guardiola's side benefitted from their direct approach at times but an unusual inability to keep the ball cost them a game they led 2-0`\
 https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
