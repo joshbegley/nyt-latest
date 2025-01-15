@@ -1,3 +1,27 @@
+**Man City crave control but there was none of that in the second half against Brentford**\
+`Pep Guardiola's side benefitted from their direct approach at times but their unusual inability to keep the ball cost them`\
+https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
+
+**Jayden Daniels steps up on big stage, more wild-card weekend thoughts: Quick Outs**\
+`Daniels wasn't perfect, but he found a way when it counted. Plus, a look at Buffalo's go-to personnel package and a key Philadelphia injury.`\
+https://nytimes.com/athletic/6062309/2025/01/15/nfl-wild-card-weekend-jayden-daniels-quick-outs/
+
+**Ben Johnson the leader in the clubhouse? Might the Raiders have a GM partner picked out?**\
+`Minority owner Tom Brady could bump into some of the Raiders' top coaching and GM candidates before his broadcast this weekend in Detroit.`\
+https://nytimes.com/athletic/6061947/2025/01/15/raiders-coach-gm-search-ben-johnson-tom-brady/
+
+**Broncos mock draft reaction: Why Ashton Jeanty could jolt Sean Payton's offense**\
+`The Broncos have a glaring need for a three-down running back and the Heisman Trophy runner-up could be a first-round option.`\
+https://nytimes.com/athletic/6061714/2025/01/15/ashton-jeanty-denver-broncos-mock-draft/
+
+**The Browns gave Deshaun Watson what he wanted. Now they're paying the price**\
+`For three years, the Browns contorted themselves to match Watson's strengths and desires. The reality is he never fit in.`\
+https://nytimes.com/athletic/6054794/2025/01/15/cleveland-browns-deshaun-watson-contract-injury/
+
+**Lowetide: Why Rasmus Andersson is a perfect trade target for the Oilers**\
+`However, the idea that the Flames would send Andersson to Edmonton at the deadline has some problems.`\
+https://nytimes.com/athletic/6060806/2025/01/15/oilers-rasmus-andersson-trade-target/
+
 **Canadiens have reached a point coach Martin St. Louis has long dreamed about**\
 `The Canadiens had about as bad a first period as they've had in months in Utah, but St. Louis allowed his players to take care of it.`\
 https://nytimes.com/athletic/6063403/2025/01/15/canadiens-utah-nhl-win/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6062596/2025/01/15/lakers-warriors-suns-nba-pacific
 **The Pulse: We're all waiting on one MLB signing**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6061731/2025/01/15/roki-sasaki-dodgers-padres-blue-jays-the-pulse/
-
-**Why Biden May Matter**\
-`We explore the president’s legacy.`\
-https://nytimes.com/2025/01/15/briefing/joe-biden-legacy.html
-
-**Twins mailbag: Prospect rankings, Brooks Lee vs. David Festa, breakout picks, Diego Cartaya**\
-`Plus how Jose Miranda could wind up starting at first base, Connor Prielipp's upside, indy ball finds and top-40 list omissions.`\
-https://nytimes.com/athletic/6055557/2025/01/15/twins-prospects-2025-breakouts-diego-cartaya/
-
-**Chelsea activate clause to recall Chalobah from Palace loan**\
-`Chelsea have activated a clause to recall Trevoh Chalobah from his loan spell at Crystal Palace.`\
-https://nytimes.com/athletic/6063549/2025/01/15/chelsea-trevoh-chalobah-loan-recall/
-
-**Bears 2024 offense: Inside the numbers of what went wrong, what provides hope**\
-`The Bears offense got worse in 2024 despite a better collection of players. Here's what the stats say about the struggles.`\
-https://nytimes.com/athletic/6062287/2025/01/15/bears-2024-offense-dj-moore-dandre-swift/
-
-**Can rested duo of Isiah Pacheco, Kareem Hunt give the Chiefs a playoff spark?**\
-`The Chiefs need Hunt and Pacheco to perform at their peak level Saturday in a rematch against the Texans.`\
-https://nytimes.com/athletic/6062674/2025/01/15/chiefs-playoffs-isiah-pacheco-kareem-hunt/
-
-**Vikings' collapse vs. Lions, Rams makes need for interior O-line help frustratingly clear**\
-`The Vikings offensive line struggled in pass and run blocking against the Rams, allowing nine sacks and struggling to open holes.`\
-https://nytimes.com/athletic/6062499/2025/01/15/vikings-rams-lions-interior-offensive-line/
 
