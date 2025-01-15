@@ -1,3 +1,15 @@
+**Here’s what to know about Bondi’s confirmation hearing.**\
+`By Andrés R. Martínez`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/heres-what-to-know-about-bondis-confirmation-hearing
+
+**Deconstructing Nuno-ball - and why it's more sophisticated than you think**\
+`The intricacies of Forest's offensive approach and passing could comfortably rival the best sides in the country.`\
+https://nytimes.com/athletic/6063620/2025/01/15/forest-counterattacking-nuno-tactics/
+
+**Golden Knights midseason report card: Grading every Vegas player's performance**\
+`There are no glaring weaknesses in the Golden Knights to this point as they sit atop the division again.`\
+https://nytimes.com/athletic/6062548/2025/01/15/golden-knights-players-analysis-grades/
+
 **Rangers and Celtic joining WSL would boost the brand but damage the sport**\
 `Scottish clubs' moving south would appease the accountants but damage both leagues `\
 https://nytimes.com/athletic/6063634/2025/01/15/celtic-rangers-join-wsl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal
 **Mike McCarthy is done in Dallas — who could Cowboys be eyeing as their next coach?**\
 `On the latest episode of the "Scoop City" podcast, why the Cowboys did Mike McCarthy wrong and where they go from here. `\
 https://nytimes.com/athletic/6062366/2025/01/15/mike-mccarthy-dallas-cowboys-next-head-coach-candidates/
-
-**Cates, Chapman and Logan confirmed as Match of the Day presenters**\
-`Match of the Day, the BBC&#8217;s flagship football highlights programme, will be presented by Kelly Cates, Mark Chapman and Gabby Logan from next season, the broadcaster has confirmed.`\
-https://nytimes.com/athletic/6063640/2025/01/15/match-of-the-day-presenters-cates-chapman-logan-lineker/
-
-**‘Conclave’ and ‘Emilia Pérez’ Compete in Wide-Open BAFTAs Race**\
-`“Anora,” “A Compete Unknown” and “The Brutalist” are also in the running for best film at the British equivalent of the Oscars.`\
-https://nytimes.com/2025/01/15/movies/bafta-nominations.html
-
-**Who will Cadillac sign for its 2026 debut? Six driver options for F1’s newest team**\
-`Cadillac is starting to lay the plans for its F1 entry. Here are the drivers that will be of interest to the program.`\
-https://nytimes.com/athletic/6061467/2025/01/15/cadillac-f1-drivers-2026-options/
 

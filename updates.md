@@ -1,3 +1,15 @@
+**Here’s what to know about Bondi’s confirmation hearing.**\
+`By Andrés R. Martínez`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/heres-what-to-know-about-bondis-confirmation-hearing
+
+**Deconstructing Nuno-ball - and why it's more sophisticated than you think**\
+`The intricacies of Forest's offensive approach and passing could comfortably rival the best sides in the country.`\
+https://nytimes.com/athletic/6063620/2025/01/15/forest-counterattacking-nuno-tactics/
+
+**Golden Knights midseason report card: Grading every Vegas player's performance**\
+`There are no glaring weaknesses in the Golden Knights to this point as they sit atop the division again.`\
+https://nytimes.com/athletic/6062548/2025/01/15/golden-knights-players-analysis-grades/
+
 **Rangers and Celtic joining WSL would boost the brand but damage the sport**\
 `Scottish clubs' moving south would appease the accountants but damage both leagues `\
 https://nytimes.com/athletic/6063634/2025/01/15/celtic-rangers-join-wsl/
