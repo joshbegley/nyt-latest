@@ -1,3 +1,7 @@
+**Bruins' Matt Poitras better make most recent call-up permanent**\
+`Poitras returned to the Bruins on Tuesday against the Lightning following a two-month stint in the AHL.`\
+https://nytimes.com/athletic/6063090/2025/01/14/bruins-matt-poitras-nhl-call-up/
+
 **How the Canucks got embarrassed in a blowout loss to the Jets: 3 takeaways**\
 `The Canucks' form continues to swing wildly from game to game, and the Jets took advantage with a Kyle Connor hat trick in the first period.`\
 https://nytimes.com/athletic/6062844/2025/01/14/canucks-blowout-lankinen-hronek-miller-jets/
