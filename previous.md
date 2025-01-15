@@ -1,3 +1,7 @@
+**NBA moves 9 games in scheduling domino effect after inclement weather**\
+`Only three games were postponed initially, but moving those matchups caused a domino effect that impacted six other contests.  `\
+https://nytimes.com/athletic/6064283/2025/01/15/nba-reschedules-games-la-wildfires/
+
 **Gaza Hostage Deal Could Come as Trump Takes Office, in Echoes of 1981**\
 `Dozens of American hostages held at the U.S. Embassy in Tehran for more than a year were freed just as Ronald Reagan was inaugurated.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-hostage-deal-trump-inauguration-iran-1981.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/lens/nyt-portfolio-review.html
 **F.T.C. Sues Deere Over Unfair Equipment-Repair Practices**\
 `The lawsuit against the maker of John Deere tractors represents a final push in the Biden administration’s broader efforts to make repairs less costly for consumers.`\
 https://nytimes.com/2025/01/15/business/john-deere-ftc-lawsuit-repairs.html
-
-**USMNT's John Tolkin leaving MLS for Bundesliga club Holstein Kiel**\
-`The New York Red Bulls will also retain a sell-on clause as part of the deal taking Tolkin to Germany.`\
-https://nytimes.com/athletic/6064179/2025/01/15/usmnt-john-tolkin-holstein-kiel/
 

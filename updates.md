@@ -1,3 +1,7 @@
+**NBA moves 9 games in scheduling domino effect after inclement weather**\
+`Only three games were postponed initially, but moving those matchups caused a domino effect that impacted six other contests.  `\
+https://nytimes.com/athletic/6064283/2025/01/15/nba-reschedules-games-la-wildfires/
+
 **Gaza Hostage Deal Could Come as Trump Takes Office, in Echoes of 1981**\
 `Dozens of American hostages held at the U.S. Embassy in Tehran for more than a year were freed just as Ronald Reagan was inaugurated.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-hostage-deal-trump-inauguration-iran-1981.html
