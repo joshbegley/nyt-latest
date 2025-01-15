@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-
 `\
 https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
 
+**Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
+`Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
+`\
+https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
+
 **Postecoglou after derby defeat: 'Losing so many games is not right'**\
 `Tottenham Hotspur head coach Ange Postecoglou says his side’s league form “can’t be accepted by anyone at the club” after a 2-1 north London derby defeat to Arsenal on Wednesday.`\
 https://nytimes.com/athletic/6065220/2025/01/15/ange-postecoglou-tottenham-arsenal/
