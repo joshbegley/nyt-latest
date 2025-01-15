@@ -1,4 +1,8 @@
 **Paqueta looks revitalised under Potter - and he's not the only one**\
+`The Brazilian playmaker has looked energised since his new manager's arrival in east London. It’s not a moment too soon for his club`\
+https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
+
+**Paqueta looks revitalised under Potter - and he's not the only one**\
 `The Brazilian playmaker has looked energised since new manager's arrival in east London. It’s not a moment too soon for his club`\
 https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
 
