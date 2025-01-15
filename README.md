@@ -1,4 +1,4 @@
-**Kash Patel’s loyalty to Trump is likely to be a point of concern.**\
+**Kash Patel’s loyalty to Trump is a point of concern for some lawmakers.**\
 `By Adam Goldman`\
 https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/kash-patels-loyalty-to-trump-is-likely-to-be-a-point-of-concern
 
