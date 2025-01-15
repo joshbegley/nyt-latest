@@ -1,3 +1,11 @@
+**Heinz Kluetmeier, SI's Miracle On Ice photographer, dies at age 82**\
+`Earlier Tuesday, he passed away at the age of 82 due to complications with Parkinson's disease and a stroke.`\
+https://nytimes.com/athletic/6062778/2025/01/14/miracle-on-ice-photographer-heinz-kluetmeier-obituary/
+
+**Neil Gaiman Responds to Explosive Report of Sexual Assault**\
+`“I have never engaged in non-consensual sexual activity with anyone,” said the best-selling author in response to allegations in New York magazine.`\
+https://nytimes.com/2025/01/14/books/neil-gaiman-responds-sexual-assault-allegations.html
+
 **Bob Iger on Disney’s relief efforts: ‘Can we help in setting up temporary schools?’**\
 `Mr. Iger, the company’s chief executive, said Disney wants to be part of the rebuilding effort in Los Angeles.`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/bob-iger-on-disneys-relief-efforts-can-we-help-in-setting-up-temporary-schools
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/14/health/princess-kate-middleton-cancer-remission.h
 **A self-made weatherman used Facebook to warn of fire danger. People listened.**\
 `By Lauren Herstik`\
 https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/a-self-made-weatherman-used-facebook-to-warn-of-fire-danger-people-listened
-
-**The Decade That Changed Fitness Forever**\
-`From 1972 to 1982, American exercise entered the modern era. Here are five workouts that changed the game.`\
-https://nytimes.com/interactive/2025/01/14/well/move/fitness-evolution-trends-1970s.html
-
-**5 Takeaways from Hochul’s State of the State Address**\
-`Child care, housing costs and public safety were the New York governor’s top issues as she outlined her policy plans for the year and for a re-election fight in 2026.`\
-https://nytimes.com/2025/01/14/nyregion/hochul-trump-crime-affordability.html
 
