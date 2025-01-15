@@ -1,3 +1,11 @@
+**Governor Newsom faults Republicans who want strings attached to aid.**\
+`By Victor Mather`\
+https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california/governor-newsom-faults-republicans-who-want-strings-attached-to-aid
+
+**Australian Open day 4: Carlos Alcaraz cruises, Belinda Bencic comeback rolls on**\
+`The first day of the second round brought more fascinating stories around Melbourne Park.`\
+https://nytimes.com/athletic/5724748/2025/01/15/australian-open-carlos-alcaraz-serve/
+
 **Colts to host NFL's first-ever regular-season game in Berlin**\
 `The game will be played at the Olympic Stadium, and the Colts' opponent will be announced when the NFL schedule is revealed this spring.`\
 https://nytimes.com/athletic/6063786/2025/01/15/colts-berlin-game/
