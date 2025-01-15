@@ -1,3 +1,23 @@
+**Heat Today: 3 reasons why an awkward Jimmy Butler return makes sense for both sides**\
+`Tensions are high, but Butler can bolster his own market by playing well for Miami when his suspension ends after Wednesday's game in LA. `\
+https://nytimes.com/athletic/6064228/2025/01/15/jimmy-butler-pat-riley-heat-trade-dwyane-wade-lebron-james-nba/
+
+**Pete Hegseth’s ‘Deeply Troubling’ Nomination**\
+`Readers say he lacks the qualifications and integrity to be defense secretary. Also: Heroism amid the tragedy in L.A.; alone in an empty church.`\
+https://nytimes.com/2025/01/15/opinion/pete-hegseth-nomination.html
+
+**Washington Post Employees Plead for a Summit With Jeff Bezos**\
+`In a letter, more than 400 employees asked Mr. Bezos, the company’s owner, to meet, saying they were “deeply alarmed” by recent decisions at the paper.`\
+https://nytimes.com/2025/01/15/business/media/washington-post-employees-jeff-bezos-letter.html
+
+**Bondi may set the tone for how other Trump lawyers handle confirmation questions.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi-may-set-the-tone-for-how-other-trump-lawyers-handle-confirmation-questions
+
+**Ramaswamy Has a High-Profile Perch and a Raft of Potential Conflicts**\
+`Vivek Ramaswamy, Elon Musk’s partner in an effort to cut government costs, could make decisions that ultimately make him and his investors richer.`\
+https://nytimes.com/2025/01/15/us/politics/vivek-ramaswamy-potential-conflicts.html
+
 **Ramaswamy Has a High-Profile Perch and a Raft of Potential Conflicts**\
 `Vivek Ramaswamy, Elon Musk’s partner in an effort to cut government costs, could make decisions that ultimately make him and his investors richer.`\
 https://nytimes.com/2025/01/15/us/politics/ramaswamy-has-a-high-profile-perch-and-a-raft-of-potential-conflicts.html
