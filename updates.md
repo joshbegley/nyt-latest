@@ -1,3 +1,7 @@
+**No. 7 Marquette escapes upset as DePaul's two-year Big East losing streak continues**\
+`It has been 727 days since DePaul's last Big East regular season win.`\
+https://nytimes.com/athletic/6063035/2025/01/14/depaul-basketball-big-east-losing-streak-marquette/
+
 **NCAA president says legal clarity needed on transgender athlete participation**\
 `The brief mention of the NCAA's transgender athlete policy by the organization's leaders during a high-profile event was notable.`\
 https://nytimes.com/athletic/6062855/2025/01/14/ncaa-transgender-athlete-policy-charlie-baker/

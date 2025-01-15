@@ -1,3 +1,7 @@
+**No. 7 Marquette escapes upset as DePaul's two-year Big East losing streak continues**\
+`It has been 727 days since DePaul's last Big East regular season win.`\
+https://nytimes.com/athletic/6063035/2025/01/14/depaul-basketball-big-east-losing-streak-marquette/
+
 **NCAA president says legal clarity needed on transgender athlete participation**\
 `The brief mention of the NCAA's transgender athlete policy by the organization's leaders during a high-profile event was notable.`\
 https://nytimes.com/athletic/6062855/2025/01/14/ncaa-transgender-athlete-policy-charlie-baker/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/science/nasa-spacex-launch-lunar-landers.html
 **U.S. Won’t Bring Charges Against Officers in Death of Ronald Greene**\
 `Investigators found insufficient evidence to federally charge the surviving officers in the encounter, in which a Black driver was pulled over, dragged, beaten and shocked.`\
 https://nytimes.com/2025/01/14/us/ronald-greene-death-federal-prosecutors-charges.html
-
-**Joni Ernst Says She Will Vote to Confirm Pete Hegseth**\
-`The Iowa Republican’s decision dramatically increases the likelihood that Mr. Hegseth will have enough votes to be confirmed as President-elect Donald J. Trump’s defense secretary.`\
-https://nytimes.com/2025/01/14/us/politics/joni-ernst-pete-hegseth-confirmation.html
 
