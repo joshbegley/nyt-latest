@@ -1,3 +1,7 @@
+**Here’s what to know about Bondi’s confirmation hearing.**\
+`By Andrés R. Martínez`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/heres-what-to-know-about-bondis-confirmation-hearing
+
 **Deconstructing Nuno-ball - and why it's more sophisticated than you think**\
 `The intricacies of Forest's offensive approach and passing could comfortably rival the best sides in the country.`\
 https://nytimes.com/athletic/6063620/2025/01/15/forest-counterattacking-nuno-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal
 **Mike McCarthy is done in Dallas — who could Cowboys be eyeing as their next coach?**\
 `On the latest episode of the "Scoop City" podcast, why the Cowboys did Mike McCarthy wrong and where they go from here. `\
 https://nytimes.com/athletic/6062366/2025/01/15/mike-mccarthy-dallas-cowboys-next-head-coach-candidates/
-
-**Cates, Chapman and Logan confirmed as Match of the Day presenters**\
-`Match of the Day, the BBC&#8217;s flagship football highlights programme, will be presented by Kelly Cates, Mark Chapman and Gabby Logan from next season, the broadcaster has confirmed.`\
-https://nytimes.com/athletic/6063640/2025/01/15/match-of-the-day-presenters-cates-chapman-logan-lineker/
 
