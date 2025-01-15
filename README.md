@@ -1,7 +1,3 @@
-**Scoop City: Comparing cultures in Detroit, New England**\
-`A brief look at what's right in Detroit and what went wrong in New England, plus an update on coaching searches in Dallas, Chicago`\
-https://nytimes.com/athletic/6064357/2025/01/15/nfl-cultures-coaches-dan-campbell-jerod-mayo-scoop-city/
-
 **LeBron on playing Michael Jordan as a high schooler: 'I was unguardable'**\
 `Photos showing James and Jordan sharing the court have surfaced on social media over the years, but video footage has never emerged.`\
 https://nytimes.com/athletic/6064212/2025/01/15/lebron-james-michael-jordan-high-school-game/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6064228/2025/01/15/jimmy-butler-pat-riley-heat-trad
 **Pete Hegseth’s ‘Deeply Troubling’ Nomination**\
 `Readers say he lacks the qualifications and integrity to be defense secretary. Also: Heroism amid the tragedy in L.A.; alone in an empty church.`\
 https://nytimes.com/2025/01/15/opinion/pete-hegseth-nomination.html
+
+**Washington Post Employees Plead for a Summit With Jeff Bezos**\
+`In a letter, more than 400 employees asked Mr. Bezos, the company’s owner, to meet, saying they were “deeply alarmed” by recent decisions at the paper.`\
+https://nytimes.com/2025/01/15/business/media/washington-post-employees-jeff-bezos-letter.html
 
