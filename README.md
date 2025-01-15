@@ -1,3 +1,7 @@
+**Thursday Briefing: A Gaza Cease-Fire Deal**\
+`Plus, ancient Celtic gender roles.`\
+https://nytimes.com/2025/01/15/briefing/israel-hamas-cease-fire-senate-hearings-yoon-detainment-korea.html
+
 **After Indictment, Eric Adams Collects $250,000 From Donors**\
 `Mr. Adams, who is facing a federal corruption indictment and was denied public matching funds, said his totals show “my base of support is still there.”`\
 https://nytimes.com/2025/01/15/nyregion/eric-adams-donations-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/world/middleeast/ceasefire-netanyahu-israel.html
 **How to Get FEMA Help**\
 `The agency offers different types of financial assistance after disasters. The fastest is a one-time payment of $770.`\
 https://nytimes.com/2025/01/15/climate/california-wildfire-fema-money.html
-
-**Team co-owned by Dale Earnhardt Jr. entering Justin Allgaier in Daytona 500**\
-`Because JR Motorsports does not hold a charter, Allgaier is not guaranteed a starting spot in the 40-car Daytona 500 field.`\
-https://nytimes.com/athletic/6064459/2025/01/15/dale-earnhardt-jr-motorsports-daytona-500/
 
