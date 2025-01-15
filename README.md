@@ -1,3 +1,7 @@
+**Naomi Osaka rediscovers her tennis superpower**\
+`At her peak, the four-time Grand Slam champion played her best tennis in the toughest moments. In Melbourne, she did it again.`\
+https://nytimes.com/athletic/6063129/2025/01/15/naomi-osaka-australian-open-record/
+
 **Paqueta looks revitalised under Potter - and he's not the only one**\
 `The Brazilian has looked energised since new manager's arrival - and not a moment too soon for his club`\
 https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063279/2025/01/15/mirra-andreeva-australian-open-c
 **Latest collapse underlines why Guardiola is finally turning to the transfer market**\
 `Pep Guardiola has shown incredible faith in his players, but it has become increasingly clear that change in the squad is needed`\
 https://nytimes.com/athletic/6062585/2025/01/15/man-city-guardiola-signings-brentford/
-
-**Jota took 22 seconds to settle Liverpool's No9 debate**\
-`The Portuguese offered thrust and threat in saving a point for Arne Slot's side, and deserves the chance to start`\
-https://nytimes.com/athletic/6062948/2025/01/15/diogo-jota-liverpool-no9/
 
