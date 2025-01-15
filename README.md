@@ -1,3 +1,7 @@
+**Gaza Hostage Deal Could Come as Trump Takes Office, in Echoes of 1981**\
+`Dozens of American hostages held at the U.S. Embassy in Tehran for more than a year were freed just as Ronald Reagan was inaugurated.`\
+https://nytimes.com/2025/01/15/world/middleeast/gaza-hostage-deal-trump-inauguration-iran-1981.html
+
 **The family perspective inspiring Riley Leonard's Playoff run at Notre Dame**\
 `“He’s been somebody who’s led by example,” the Irish QB said of his grandfather. “A lot of the lessons I’ve learned have come from him."`\
 https://nytimes.com/athletic/6064220/2025/01/15/riley-leonard-family-notre-dame-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/business/john-deere-ftc-lawsuit-repairs.html
 **USMNT's John Tolkin leaving MLS for Bundesliga club Holstein Kiel**\
 `The New York Red Bulls will also retain a sell-on clause as part of the deal taking Tolkin to Germany.`\
 https://nytimes.com/athletic/6064179/2025/01/15/usmnt-john-tolkin-holstein-kiel/
-
-**Scoop City: Comparing cultures in Detroit, New England**\
-`A brief look at what's right in Detroit and what went wrong in New England, plus an update on coaching searches in Dallas, Chicago`\
-https://nytimes.com/athletic/6064357/2025/01/15/nfl-cultures-coaches-dan-campbell-jerod-mayo-scoop-city/
 
