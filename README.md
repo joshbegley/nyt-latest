@@ -1,3 +1,11 @@
+**Can Cris Rodriguez bring a boost to the Tigers' international pipeline?**\
+`Outfielder Cris Rodriguez just became the highest-paid and highest-ranked international amateur the Tigers have ever signed. `\
+https://nytimes.com/athletic/6064961/2025/01/15/detroit-tigers-sign-cris-rodriguez-international/
+
+**Angel City FC brings in former NWSL coach Mark Parsons as sporting director**\
+`Parsons has extensive NWSL head coaching experience from the Washington Spirit and Portland Thorns FC.`\
+https://nytimes.com/athletic/6064853/2025/01/15/angel-city-fc-mark-parsons-sporting-director/
+
 **Arts Groups and Donors Create Fire Relief Fund for Los Angeles Artists**\
 `The fund, already at $12 million, is led by the Getty and includes major museums, foundations and philanthropists.`\
 https://nytimes.com/2025/01/15/arts/design/arts-groups-and-donors-create-fire-relief-fund-for-los-angeles-artists.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/15/realestate/california-wildfires-unlisted-rentals-
 **Takeaways From Marco Rubio’s Senate Hearing**\
 `Mr. Rubio expressed views aligned with those of most senators who work on foreign policy, while taking care not to break from Donald J. Trump’s unorthodox ideas.`\
 https://nytimes.com/2025/01/15/us/politics/marco-rubio-senate-hearing-takeaways.html
-
-**Mets sign 17-year-old Elian Peña to franchise-record $5 million signing bonus**\
-`At a younger age, Peña drew comparisons to Boston Red Sox star third baseman Rafael Devers, also from the Dominican Republic. `\
-https://nytimes.com/athletic/6064497/2025/01/15/elian-pena-signs-with-new-york-mets/
-
-**Yohe: Tristan Jarry was never there when the Penguins needed him**\
-`Jarry and the Penguins were never the right match, and they finally, mercifully pulled the plug.`\
-https://nytimes.com/athletic/6064628/2025/01/15/penguins-tristan-jarry-waivers-nhl-availability/
 
