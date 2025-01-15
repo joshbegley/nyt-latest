@@ -1,3 +1,16 @@
+**Donyell Malen to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at the Dutch forward's move from Dortmund.`\
+https://nytimes.com/athletic/6033354/2025/01/15/donyell-malen-to-aston-villa-the-athletic-500-transfer-ratings/
+
+**Toby Collyer's cameo against Arsenal suggests he has the energy and athleticism Amorim desires**\
+`Manchester United's need for greater physicality under their new manager could suit the versatile Collyer`\
+https://nytimes.com/athletic/6051914/2025/01/15/toby-collyer-energy-manchester-united-amorim/
+
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win vs. the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
 **After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
 `In the Blue Jackets' electrifying 3-2 win vs. the Flyers, the biggest story of the night was the quietest player in the dressing room.
 `\
