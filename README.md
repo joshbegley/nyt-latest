@@ -1,3 +1,19 @@
+**Yohe's 10 observations: Penguins conclude disastrous homestead in style**\
+`The Penguins blew yet another third-period lead, falling to Seattle 4-2 to finish off a terrible 1-3-1 homestand.`\
+https://nytimes.com/athletic/6056185/2025/01/14/penguins-defense-sullivan-collapse-kraken/
+
+**Quote of the Day: Patchy Rules Let Police Use Tasers Freely**\
+`Quotation of the Day for Wednesday, January 15, 2025.`\
+https://nytimes.com/2025/01/14/pageoneplus/quote-of-the-day-patchy-rules-let-police-use-tasers-freely.html
+
+**Naomi Osaka returns to the Australian Open with momentum on her side**\
+`After a run of injuries and tough Grand Slam draws, Naomi Osaka steps up in Melbourne.`\
+https://nytimes.com/athletic/6063129/2025/01/14/naomi-osaka-australian-open-record/
+
+**The Red Wings' honeymoon is over. Now comes the real test**\
+`Detroit's 6-3 loss to San Jose snapped a seven-game winning streak and marked the end of its honeymoon period with new coach Todd McLellan.`\
+https://nytimes.com/athletic/6063008/2025/01/14/red-wings-sharks-nhl-schedule/
+
 **Penguins' Malkin says his home was burglarized, Stanley Cup rings missing**\
 `The Cup rings are from the Penguins' 2009, 2016 and 2017 championship teams.`\
 https://nytimes.com/athletic/6063074/2025/01/14/evgeni-malkin-home-burglarized-rings/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6063035/2025/01/14/depaul-basketball-big-east-losin
 **NCAA president says legal clarity needed on transgender athlete participation**\
 `The brief mention of the NCAA's transgender athlete policy by the organization's leaders during a high-profile event was notable.`\
 https://nytimes.com/athletic/6062855/2025/01/14/ncaa-transgender-athlete-policy-charlie-baker/
-
-**Maple Leafs report cards: Usual strengths turn into issues in third straight loss**\
-`It's hard to pick an aspect of the game where the Leafs played well, turning what could have been a coin flip into a routine win for Dallas.`\
-https://nytimes.com/athletic/6062671/2025/01/14/maple-leafs-report-cards-penalty-kill-stars/
-
-**Gig Makeup?**\
-`Parker Higgins did this to us on purpose.`\
-https://nytimes.com/2025/01/14/crosswords/daily-puzzle-2025-01-15.html
-
-**Georgia RB Trevor Etienne declares for 2025 NFL Draft**\
-`Trevor Etienne, the younger brother of Jacksonville Jaguars running back Travis Etienne, was Georgia’s starting tailback when healthy.`\
-https://nytimes.com/athletic/6062944/2025/01/14/trevor-etienne-nfl-draft-georgia/
-
-**South Korean President Is Detained in Insurrection Inquiry**\
-`Investigators have detained South Korea’s impeached leader, Yoon Suk Yeol.`\
-https://nytimes.com/video/world/asia/100000009917533/south-korean-president-is-detained-in-insurrection-inquiry.html
 
