@@ -1,3 +1,11 @@
+**Governor Newsom faults Republicans who want strings attached to aid.**\
+`By Victor Mather`\
+https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california/governor-newsom-faults-republicans-who-want-strings-attached-to-aid
+
+**Australian Open day 4: Carlos Alcaraz cruises, Belinda Bencic comeback rolls on**\
+`The first day of the second round brought more fascinating stories around Melbourne Park.`\
+https://nytimes.com/athletic/5724748/2025/01/15/australian-open-carlos-alcaraz-serve/
+
 **Colts to host NFL's first-ever regular-season game in Berlin**\
 `The game will be played at the Olympic Stadium, and the Colts' opponent will be announced when the NFL schedule is revealed this spring.`\
 https://nytimes.com/athletic/6063786/2025/01/15/colts-berlin-game/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/15/style/friends-trip-getaway-jealousy.html
 **Canucks midseason report cards: Grading every Vancouver defender and goalie's performance**\
 `The Canucks have largely failed to build on their success of 2023-24. How do the defence and goaltending grade out at the halfway point?`\
 https://nytimes.com/athletic/6062243/2025/01/15/canucks-nhl-defense-goalies-report-cards-2025/
-
-**Inflation Sped Up in December, a Fresh Challenge for the Fed**\
-`The Consumer Price Index rose 2.9 percent from a year earlier, but a measure of underlying inflation was more encouraging.`\
-https://nytimes.com/2025/01/15/business/inflation-december-economy.html
-
-**Newcastle reject £11m Fenerbahce bid for Lloyd Kelly**\
-`Newcastle United have rejected an £11million ($13.`\
-https://nytimes.com/athletic/6063427/2025/01/15/lloyd-kelly-fenerbahce-newcastle-transfers/
 
