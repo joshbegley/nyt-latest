@@ -1,3 +1,7 @@
+**Here is what the provisional cease-fire deal says.**\
+`In the first phase, 33 hostages and hundreds of Palestinian prisoners would be freed, and hundreds of trucks with humanitarian aid would be allowed into Gaza daily, a copy of the agreement says.`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/details-cease-fire-deal
+
 **Gaza Cease-Fire Deal Brings Joy, but Is Tinged With Uncertainty**\
 `An agreement offers Gazans at least some respite from the war, and for Israelis it means the release of hostages. But the deal’s ambiguity means fighting could resume within weeks.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062362/2025/01/15/la-equidad-reynolds-mcelhenney-t
 **How the Cease-Fire Push Brought Together Biden and Trump’s Teams**\
 `Rarely if ever have representatives of current and new presidents of different parties worked together at such a high-stakes moment.`\
 https://nytimes.com/2025/01/15/us/politics/gaza-ceasefire-trump-biden.html
-
-**Reading Mike Davis by Firelight**\
-`What does the Palisades disaster mean for L.A.’s future?`\
-https://nytimes.com/2025/01/15/opinion/los-angeles-fires-pacific-palisades.html
 
