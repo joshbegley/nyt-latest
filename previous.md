@@ -1,3 +1,27 @@
+**After a baffling stretch, the Celtics starting lineup searches for answers**\
+`Head coach Joe Mazzulla says the Celtics are “just not playing our best basketball” right now. `\
+https://nytimes.com/athletic/6062374/2025/01/15/celtics-starting-lineup-struggles/
+
+**How a snub set Team Canada's youngest player on path to 4 Nations**\
+`Ever since he was young, Seth Jarvis wanted to make the World Juniors team. When he didn't, he used the setback to grow.`\
+https://nytimes.com/athletic/6061682/2025/01/15/team-canada-4-nations-face-off/
+
+**How Cowboys can pitch their head coach opening — and what candidates should be wary of**\
+`The next Dallas coach will inherit Dak Prescott, CeeDee Lamb and Micah Parsons, among others. A look at the pros and cons.`\
+https://nytimes.com/athletic/6062502/2025/01/15/cowboys-coaching-vacancy-pros-cons-dak-prescott/
+
+**How Tim Hardaway Jr.'s leadership is impacting the young Pistons**\
+`“I’m glad he’s here ... he knows what it takes,” Ron Holland III said of Hardaway. “He’s done it, he knows all the sacrifices.”`\
+https://nytimes.com/athletic/6059019/2025/01/15/tim-hardaway-leadership-young-pistons/
+
+**Mandel's Mailbag: Can we compare the SEC's era of dominance to the MLB steroid era?**\
+`Is Notre Dame a one-hit wonder or built to last? What are the five most accomplished programs of the century? `\
+https://nytimes.com/athletic/6062885/2025/01/15/college-football-playoff-sec-notre-dame-ohio-state/
+
+**Inside Bryce Young’s franchise-changing turnaround: ‘He’s built for this’**\
+`"He turned into an NFL player now,” Jadeveon Clowney said of Bryce Young. "He looks like he's having fun."`\
+https://nytimes.com/athletic/6059520/2025/01/15/bryce-young-panthers-franchise-qb-turnaround/
+
 **Many Syrians Want Justice for Regime Crimes. Others Want Revenge.**\
 `The new interim Syrian government says it will hunt down and punish senior security officials and others, but concern is growing about attacks on former low-level members of the Assad regime’s forces.`\
 https://nytimes.com/2025/01/15/world/middleeast/syria-justice-revenge-assad-crimes.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/15/us/politics/pam-bondi-trump-confirmation.html
 **More Americans Than Ever Are Living in Wildfire Areas. L.A. Is No Exception.**\
 `Fierce winds and months of drought set the conditions for the catastrophic wildfires in Los Angeles, but the growth of housing in fire-prone areas also played a major role.`\
 https://nytimes.com/interactive/2025/01/15/climate/los-angeles-housing-fire-risk.html
-
-**At Home With David Rasche**\
-`The “Succession” actor and his wife, Heather Rasche, have made their home in Maplewood, N.J., all about family.`\
-https://nytimes.com/interactive/2025/01/15/realestate/luxury/david-rasche-home-maplewood-nj.html
-
-**Germany’s Economy Shrank Last Year. Here’s How Politicians Plan to Revive It.**\
-`Candidates in the upcoming federal election are focused on lowering taxes and increasing public spending.`\
-https://nytimes.com/2025/01/15/business/germany-economy.html
-
-**Choice for Energy Secretary Has Been an Evangelist for Fossil Fuels**\
-`Chris Wright, the founder of a fracking services company,  argues that oil and gas are key to alleviating global poverty.`\
-https://nytimes.com/2025/01/15/climate/chris-wright-energy-secretary-nominee.html
-
-**Biden to Deliver Farewell Address, Capping a 5-Decade Political Career**\
-`The president has sought to portray his administration as transformative, but his speech on Wednesday night comes amid a backdrop in which he is not leaving on his own terms.`\
-https://nytimes.com/2025/01/15/us/politics/biden-farewell-address.html
-
-**Transportation Hearing Will Focus on Aviation Safety and Infrastructure**\
-`Sean Duffy, a Fox News host and former Wisconsin congressmen, would oversee a sprawling Transportation Department that oversees aviation, rail and transit.`\
-https://nytimes.com/2025/01/15/us/politics/trump-transportation-secretary-sean-duffy-hearing.html
-
-**What Is Ye Trying to Tell Us Now?**\
-`His new clothing collection has words and letters in a foreign language, the message of which is unclear. But people are buying it.`\
-https://nytimes.com/2025/01/15/style/yeezy-ye-russian-lanugage.html
 
