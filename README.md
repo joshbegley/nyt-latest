@@ -1,3 +1,11 @@
+**Penguins' Malkin says his home was burglarized, Stanley Cup rings missing**\
+`The Cup rings are from the Penguins' 2009, 2016 and 2017 championship teams.`\
+https://nytimes.com/athletic/6063074/2025/01/14/evgeni-malkin-home-burglarized-rings/
+
+**Improving Ivan Fedotov solidifies his grip on Flyers' No. 2 goalie spot**\
+`Fedotov made some dazzling saves to help the Flyers earn a hard-won point against Columbus — another data point in a growing trend.`\
+https://nytimes.com/athletic/6063062/2025/01/14/ivan-fedotov-flyers-improvement-blue-jackets/
+
 **Bruins' Matt Poitras better make most recent call-up permanent**\
 `Poitras returned to the Bruins on Tuesday against the Lightning following a two-month stint in the AHL.`\
 https://nytimes.com/athletic/6063090/2025/01/14/bruins-matt-poitras-nhl-call-up/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062944/2025/01/14/trevor-etienne-nfl-draft-georgia
 **South Korean President Is Detained in Insurrection Inquiry**\
 `Investigators have detained South Korea’s impeached leader, Yoon Suk Yeol.`\
 https://nytimes.com/video/world/asia/100000009917533/south-korean-president-is-detained-in-insurrection-inquiry.html
-
-**Zheng Qinwen out of Australian Open after shock defeat to Laura Siegemund**\
-`Zheng Qinwen is out of the Australian Open after a shock defeat to Germany&#8217;s Laura Siegemund.`\
-https://nytimes.com/athletic/6062915/2025/01/14/zheng-qinwen-australian-open-result-siegemund/
-
-**Corrections: Jan. 15, 2025**\
-`Corrections that appeared in print on Wednesday, Jan. 15, 2025.`\
-https://nytimes.com/2025/01/14/pageoneplus/corrections-jan-15-2025.html
 
