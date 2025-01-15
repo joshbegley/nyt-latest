@@ -1,3 +1,15 @@
+**Quinn Ewers, flaws and all, is right to not put the NFL on hold any longer**\
+`After three years as a starter and two deep Playoff runs, Ewers has accomplished what he set out to do in Austin.`\
+https://nytimes.com/athletic/6064818/2025/01/15/quinn-ewers-2025-nfl-draft-case-texas/
+
+**Sheriff’s Deputies Handcuff Girl, 11, After Mistaking Her for Suspect**\
+`Deputies in Syracuse, N.Y., detained the girl, who is Black, for several minutes after mistakenly identifying her as a suspect in a car theft. Video of the episode drew fierce criticism.`\
+https://nytimes.com/2025/01/15/nyregion/syracuse-police-girl-misidentified-handcuffed.html
+
+**We’re Sharing the Data Behind Our Detailed 2024 Election Map**\
+`Our new interactive map features precinct-level results that anyone can download.`\
+https://nytimes.com/2025/01/15/us/elections/2024-election-map-data.html
+
 **Can Cris Rodriguez bring a boost to the Tigers' international pipeline?**\
 `Outfielder Rodriguez just became the highest-paid and highest-ranked international amateur the Tigers have ever signed. `\
 https://nytimes.com/athletic/6064961/2025/01/15/detroit-tigers-sign-cris-rodriguez-international/
