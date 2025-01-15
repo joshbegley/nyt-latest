@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6063129/2025/01/15/naomi-osaka-australian-open-reco
 https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
 
 **Missile Attack Prompts Emergency Power Cuts in Ukraine**\
-`The scale of the assault on Wednesday was not immediately clear, but Ukraine’s energy minister called it “massive.”`\
+`President Volodymyr Zelensky of Ukraine said that air defenses had shot down at least 30 missiles from a barrage that targeted gas and energy facilities.`\
 https://nytimes.com/2025/01/15/world/europe/ukraine-russia-missile-attack-energy.html
 
 **Word of the Day: emporium**\
