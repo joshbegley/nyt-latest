@@ -1,3 +1,15 @@
+**Religious Ceremonies**\
+`Do you belong to a religious or spiritual community? What traditions and rituals are important to you and your faith?`\
+https://nytimes.com/2025/01/15/learning/religious-ceremonies.html
+
+**Satirical Singer Kinky Friedman’s Posthumous Surprise: A Sincere Album**\
+`On “Poet of Motel 6,” due March 21, the country musician known for shocking audiences grapples with death and his own legacy.`\
+https://nytimes.com/2025/01/15/arts/music/kinky-friedman-posthumous-album-poet-of-motel-6.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/15/crosswords/spelling-bee-forum.html
+
 **Late Night Seems to Think This Pete Hegseth Fellow Is Unqualified**\
 `Jordan Klepper said the former weekend show host’s only qualification to run the Pentagon was that “Trump liked watching him sit on a couch on Saturday mornings.”`\
 https://nytimes.com/2025/01/15/arts/television/late-night-pete-hegseth.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6062980/2025/01/15/chelsea-bournemouth-penalty/
 **Air Quality Improves Across L.A., but Ash Remains a Threat**\
 `The fresh air came after days of acrid smoke from wildfires, but officials warned that conditions could rapidly worsen again.`\
 https://nytimes.com/2025/01/15/us/air-quality-los-angeles-fires.html
-
-**There's no doubt now - Forest belong in the Premier League elite**\
-`An unlikely ambition is one step closer to being realised after a night where Forest showed they can mix it with the very best`\
-https://nytimes.com/athletic/6062818/2025/01/15/nottingham-forest-premier-league-elite/
-
-**California Officials Seek to Stem Property Speculation and Evictions During Fires**\
-`Californians are worried that the blazes, which have damaged thousands of homes, will make the city’s housing crisis worse.`\
-https://nytimes.com/2025/01/15/us/california-fires-la-housing.html
-
-**How to play on a 'cursed' tennis court, according to Mirra Andreeva**\
-`MELBOURNE, Australia — Some curses are invisible.`\
-https://nytimes.com/athletic/6063279/2025/01/15/mirra-andreeva-australian-open-comeback/
 
