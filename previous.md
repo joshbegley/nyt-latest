@@ -1,3 +1,7 @@
+**NCAA president says legal clarity needed on transgender athlete participation**\
+`The brief mention of the NCAA's transgender athlete policy by the organization's leaders during a high-profile event was notable.`\
+https://nytimes.com/athletic/6062855/2025/01/14/ncaa-transgender-athlete-policy-charlie-baker/
+
 **Maple Leafs report cards: Usual strengths turn into issues in third straight loss**\
 `It's hard to pick an aspect of the game where the Leafs played well, turning what could have been a coin flip into a routine win for Dallas.`\
 https://nytimes.com/athletic/6062671/2025/01/14/maple-leafs-report-cards-penalty-kill-stars/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/us/ronald-greene-death-federal-prosecutors-charge
 **Joni Ernst Says She Will Vote to Confirm Pete Hegseth**\
 `The Iowa Republican’s decision dramatically increases the likelihood that Mr. Hegseth will have enough votes to be confirmed as President-elect Donald J. Trump’s defense secretary.`\
 https://nytimes.com/2025/01/14/us/politics/joni-ernst-pete-hegseth-confirmation.html
-
-**In Pacific Palisades, proof of a previous life is hard to find.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/in-pacific-palisades-proof-of-a-previous-life-is-hard-to-find
 
