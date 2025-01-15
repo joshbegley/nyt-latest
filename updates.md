@@ -1,3 +1,8 @@
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
 **How to play on a 'cursed' tennis court, according to Mirra Andreeva**\
 `MELBOURNE, Australia — Some curses are invisible.`\
 https://nytimes.com/athletic/6063279/2025/01/15/mirra-andreeva-australian-open-comeback/
