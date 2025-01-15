@@ -1,3 +1,11 @@
+**Kash Patel’s loyalty to Trump is a point of concern for some lawmakers.**\
+`By Adam Goldman`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/kash-patels-loyalty-to-trump-is-likely-to-be-a-point-of-concern
+
+**Bondi turned to lobbying after two terms as a ‘business-friendly’ attorney general.**\
+`By Eric Lipton and Kate Kelly`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi-turned-to-lobbying-after-two-terms-as-a-business-friendly-attorney-general
+
 **Are Biden and Trump at Odds on Global Energy Strategy? Maybe Not So Much.**\
 `When it comes to gas exports and competition with China, the two administrations share a similar vision, the top U.S. energy diplomat says.`\
 https://nytimes.com/2025/01/15/climate/global-energy-biden-trump-natural-gas.html

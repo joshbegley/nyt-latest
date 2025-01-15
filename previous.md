@@ -1,3 +1,11 @@
+**Kash Patel’s loyalty to Trump is a point of concern for some lawmakers.**\
+`By Adam Goldman`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/kash-patels-loyalty-to-trump-is-likely-to-be-a-point-of-concern
+
+**Bondi turned to lobbying after two terms as a ‘business-friendly’ attorney general.**\
+`By Eric Lipton and Kate Kelly`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi-turned-to-lobbying-after-two-terms-as-a-business-friendly-attorney-general
+
 **Are Biden and Trump at Odds on Global Energy Strategy? Maybe Not So Much.**\
 `When it comes to gas exports and competition with China, the two administrations share a similar vision, the top U.S. energy diplomat says.`\
 https://nytimes.com/2025/01/15/climate/global-energy-biden-trump-natural-gas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062158/2025/01/15/brock-purdy-49ers-contract-evalu
 **Pam Bondi has transformed from a traditional Republican into a warrior for Trump.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/pam-bondi-has-transformed-from-a-traditional-republican-into-a-warrior-for-trump
-
-**Why linebackers Matt Milano and Terrel Bernard are the key to the Bills' playoff success**\
-`Plus, Spencer Brown's importance to the outstanding offensive line.`\
-https://nytimes.com/athletic/6062063/2025/01/15/bills-ravens-defense-matt-milano-terrel-bernard/
-
-**MoneyCall: New contender for women’s hoops $$$**\
-`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
-https://nytimes.com/athletic/6063065/2025/01/15/unrivaled-womens-basketball-moneycall-newsletter/
 
