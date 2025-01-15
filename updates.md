@@ -1,4 +1,8 @@
 **Can Cris Rodriguez bring a boost to the Tigers' international pipeline?**\
+`Outfielder Rodriguez just became the highest-paid and highest-ranked international amateur the Tigers have ever signed. `\
+https://nytimes.com/athletic/6064961/2025/01/15/detroit-tigers-sign-cris-rodriguez-international/
+
+**Can Cris Rodriguez bring a boost to the Tigers' international pipeline?**\
 `Outfielder Cris Rodriguez just became the highest-paid and highest-ranked international amateur the Tigers have ever signed. `\
 https://nytimes.com/athletic/6064961/2025/01/15/detroit-tigers-sign-cris-rodriguez-international/
 
