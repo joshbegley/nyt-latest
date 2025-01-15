@@ -26,7 +26,7 @@ https://nytimes.com/live/2025/01/15/us/rubio-confirmation-secretary-state/heres-
 `Billionaire business leaders, including Mark Zuckerberg, Jeff Bezos and Elon Musk, plan to make prominent appearances at Donald Trump’s inauguration next week.`\
 https://nytimes.com/2025/01/15/business/dealbook/zuckerberg-bezos-trump-inauguration.html
 
-**Amick: Will the Chicago Bulls trade Zach LaVine and others or stay in the murky middle?**\
+**What I'm hearing on Zach LaVine, Jimmy Butler and more**\
 `What should we expect from Jimmy Butler rejoining the Heat this week? And why Oklahoma City should be feeling thankful.`\
 https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic-trade/
 
