@@ -1,6 +1,6 @@
 **The Design Legacy of Los Angeles That Fell to the Fires**\
 `The finality of the wildfires’ destruction has taken 10 more cherished buildings — by Richard Neutra, Gregory Ain, Eric Owen Moss and others.`\
-https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/fires-architecture-burned-neutra-ain
+https://nytimes.com/2025/01/15/arts/design/fires-architecture-burned-neutra-ain.html
 
 **News of a deal brings hope and a painful reminder for residents of villages overrun by Hamas.**\
 `By Aaron Boxerman and Adam Rasgon`\
