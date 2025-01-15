@@ -1,3 +1,20 @@
+**Struggling Suns acquire center Nick Richards in trade with Hornets**\
+`The 27-year-old Richards, who is averaging 8.9 points and 7.5 rebounds per game this season, could be the Suns' new starting. center.`\
+https://nytimes.com/athletic/6065124/2025/01/15/suns-hornets-trade-nick-richards-josh-okogie/
+
+**The leaders of Britain and France say the deal should be the basis for a long- term political settlement.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/britain-france-cease-fire-reaction
+
+**Even Homes That Evade the Fire Face Toxic Ash Risk, Studies Show**\
+`Health hazards from soot and smoke blown indoors onto furniture and walls can linger for months: “Wind will get through every crack.”`\
+https://nytimes.com/2025/01/15/climate/wildfire-smoke-indoors.html
+
+**Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
+`Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
+`\
+https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
+
 **Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
 `Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
 `\
