@@ -1,3 +1,7 @@
+**Conor McGregor sued, accused of sexual assault at Heat game in 2023**\
+`In November, a woman who accused McGregor of raping her in a Dublin hotel room in December 2018 won a civil claim against the fighter.`\
+https://nytimes.com/athletic/6064555/2025/01/15/conor-mcgregor-sexual-assault-lawsuit-miami/
+
 **Struggling Suns acquire center Nick Richards in trade with Hornets**\
 `The 27-year-old Richards, who is averaging 8.9 points and 7.5 rebounds per game this season, could be the Suns' new starting. center.`\
 https://nytimes.com/athletic/6065124/2025/01/15/suns-hornets-trade-nick-richards-josh-okogie/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-
 **Ipswich sign Philogene from Villa**\
 `Ipswich Town have confirmed the signing of Jaden Philogene from Aston Villa.`\
 https://nytimes.com/athletic/6049042/2025/01/15/jaden-philogene-ipswich-transfer/
-
-**Pereira: Lemina told me he was not in right mindset to play for Wolves**\
-`Wolverhampton Wanderers head coach Vitor Pereira says Mario Lemina was left out of the squad to face Newcastle United after telling the club he wants to leave.`\
-https://nytimes.com/athletic/6065153/2025/01/15/mario-lemina-wolves-pereira/
 
