@@ -1,3 +1,7 @@
+**Howard Buten, Autism Therapist, Novelist and Clown, Is Dead at 74**\
+`By day, he helped run an autism center he opened in a suburb of Paris. In the evening, he delighted audiences as a clown named Buffo. In between, he wrote novels.`\
+https://nytimes.com/2025/01/15/arts/howard-buten-dead.html
+
 **Here’s the latest.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/news
 **Albania Gives Jared Kushner Hotel Project a Nod as Trump Returns**\
 `The project is one of several that family members of President-elect Donald J. Trump have with foreign countries that have pending policy matters with the United States.`\
 https://nytimes.com/2025/01/15/us/politics/albania-kushner-trump.html
-
-**Man Utd coach Amorim wants players 'dead' at end of matches**\
-`Ruben Amorim wants his players “dead” at the end of matches after giving everything physically.`\
-https://nytimes.com/athletic/6065272/2025/01/15/ruben-amorim-manchester-united/
 

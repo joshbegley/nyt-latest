@@ -1,3 +1,7 @@
+**Howard Buten, Autism Therapist, Novelist and Clown, Is Dead at 74**\
+`By day, he helped run an autism center he opened in a suburb of Paris. In the evening, he delighted audiences as a clown named Buffo. In between, he wrote novels.`\
+https://nytimes.com/2025/01/15/arts/howard-buten-dead.html
+
 **Here’s the latest.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-latest
