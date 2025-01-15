@@ -1,3 +1,7 @@
+**The Athletic FC: Slot's genius, Arsenal turn to Zubimendi, Lazio falconer's unusual sacking**\
+`Today in TAFC: How Slot's subs changed battle of top two, Arsenal's transfer surprise, Lazio falconer axed for prosthetic penis pictures.`\
+https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal-zubimendi-lazio-falconer/
+
 **Mike McCarthy is done in Dallas — who could Cowboys be eyeing as their next coach?**\
 `On the latest episode of the "Scoop City" podcast, why the Cowboys did Mike McCarthy wrong and where they go from here. `\
 https://nytimes.com/athletic/6062366/2025/01/15/mike-mccarthy-dallas-cowboys-next-head-coach-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061714/2025/01/15/ashton-jeanty-denver-broncos-moc
 **The Browns gave Deshaun Watson what he wanted. Now they're paying the price**\
 `For three years, the Browns contorted themselves to match Watson's strengths and desires. The reality is he never fit in.`\
 https://nytimes.com/athletic/6054794/2025/01/15/cleveland-browns-deshaun-watson-contract-injury/
-
-**Lowetide: Why Rasmus Andersson is a perfect trade target for the Oilers**\
-`However, the idea that the Flames would send Andersson to Edmonton at the deadline has some problems.`\
-https://nytimes.com/athletic/6060806/2025/01/15/oilers-rasmus-andersson-trade-target/
 
