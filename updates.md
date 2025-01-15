@@ -1,3 +1,11 @@
+**Fires Continue to Burn One Week Later in California**\
+`The Palisades and Eaton fires, ravaging Los Angeles for more than a week, remain mostly uncontained by firefighters.`\
+https://nytimes.com/video/us/100000009927114/southern-california-wildfires.html
+
+**In Parts of Los Angeles, Life Carries On but Is Hardly Normal**\
+`While many Angelenos have been devastated by the fires, others in the sprawling city have had to balance helping out with “normal life.”`\
+https://nytimes.com/2025/01/14/us/los-angeles-residents-fires.html
+
 **Tuesday’s Winds Didn’t Reach Their Predicted Speeds, but Wednesday’s Might**\
 `On Tuesday afternoon, forecasters at the National Weather Service dropped their most severe warnings for the rest of the day. But the alerts will be back in place early Wednesday.`\
 https://nytimes.com/2025/01/14/weather/la-fires-winds-forecast.html
