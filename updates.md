@@ -1,3 +1,7 @@
+**Paqueta looks revitalised under Potter - and he's not the only one**\
+`The Brazilian has looked energised since new manager's arrival — and not a moment too soon for his club`\
+https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
+
 **Another penalty conceded suggests structural problems with Maresca's Chelsea**\
 `The penalty conceded against Bournemouth was the sixth given away by Chelsea this season and suggests a systemic issue`\
 https://nytimes.com/athletic/6062980/2025/01/15/chelsea-bournemouth-penalty/
