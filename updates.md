@@ -1,3 +1,15 @@
+**Ipswich sign Philogene from Villa**\
+`Ipswich Town have confirmed the signing of Jaden Philogene from Aston Villa.`\
+https://nytimes.com/athletic/6049042/2025/01/15/jaden-philogene-ipswich-transfer/
+
+**Pereira: Lemina told me he was not in right mindset to play for Wolves**\
+`Wolverhampton Wanderers head coach Vitor Pereira says Mario Lemina was left out of the squad to face Newcastle United after telling the club he wants to leave.`\
+https://nytimes.com/athletic/6065153/2025/01/15/mario-lemina-wolves-pereira/
+
+**Broncos still mapping offseason plans, but one priority for Sean Payton is clear**\
+`The Broncos coach hasn't benefited from the Joker-type player in Denver he grew used to in New Orleans. That will top offseason wish list.`\
+https://nytimes.com/athletic/6064797/2025/01/15/broncos-offseason-payton-paton-penner/
+
 **Jack Hoffman, Nebraska fan who captured hearts in spring game, dies of brain cancer**\
 `Hoffman ran to fame at age 7 by scoring a touchdown in the 2013 Nebraska spring football game.`\
 https://nytimes.com/athletic/6065118/2025/01/15/jack-hoffman-nebraska-college-football/

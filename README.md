@@ -1,3 +1,20 @@
+**Mexican Firefighters Watch for Hots Spots From the Palisades Fire**\
+`The firefighters were part of the first international team to join the effort to contain the Los Angeles-area blazes.`\
+https://nytimes.com/2025/01/15/us/mexican-firefighters-palisades-fire.html
+
+**Israel and Hamas Reached a Cease-Fire Deal**\
+`Also, Biden is set to deliver a farewell address tonight. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/01/15/briefing/israel-hamas-deal-biden-farewell-address.html
+
+**Broja sidelined for up to 12 weeks and could return to Chelsea, says Moyes**\
+`Everton loanee Armando Broja is set to be out for 10-12 weeks after sustaining ankle ligament damage.`\
+https://nytimes.com/athletic/6065113/2025/01/15/armando-broja-injury-everton-chelsea/
+
+**Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
+`Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
+`\
+https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
+
 **Ipswich sign Philogene from Villa**\
 `Ipswich Town have confirmed the signing of Jaden Philogene from Aston Villa.`\
 https://nytimes.com/athletic/6049042/2025/01/15/jaden-philogene-ipswich-transfer/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6064818/2025/01/15/quinn-ewers-2025-nfl-draft-case-
 **Sheriff’s Deputies Handcuff Girl, 11, After Mistaking Her for Suspect**\
 `Deputies in Syracuse, N.Y., detained the girl, who is Black, for several minutes after mistakenly identifying her as a suspect in a car theft. Video of the episode drew fierce criticism.`\
 https://nytimes.com/2025/01/15/nyregion/syracuse-police-girl-misidentified-handcuffed.html
-
-**We’re Sharing the Data Behind Our Detailed 2024 Election Map**\
-`Our new interactive map features precinct-level results that anyone can download.`\
-https://nytimes.com/2025/01/15/us/elections/2024-election-map-data.html
-
-**Can Cris Rodriguez bring a boost to the Tigers' international pipeline?**\
-`Outfielder Rodriguez just became the highest-paid and highest-ranked international amateur the Tigers have ever signed. `\
-https://nytimes.com/athletic/6064961/2025/01/15/detroit-tigers-sign-cris-rodriguez-international/
-
-**Angel City FC brings in former NWSL coach Mark Parsons as sporting director**\
-`Parsons has extensive NWSL head coaching experience from the Washington Spirit and Portland Thorns FC.`\
-https://nytimes.com/athletic/6064853/2025/01/15/angel-city-fc-mark-parsons-sporting-director/
-
-**Arts Groups and Donors Create Fire Relief Fund for Los Angeles Artists**\
-`The fund, already at $12 million, is led by the Getty and includes major museums, foundations and philanthropists.`\
-https://nytimes.com/2025/01/15/arts/design/arts-groups-and-donors-create-fire-relief-fund-for-los-angeles-artists.html
 

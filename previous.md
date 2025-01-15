@@ -1,3 +1,15 @@
+**Ipswich sign Philogene from Villa**\
+`Ipswich Town have confirmed the signing of Jaden Philogene from Aston Villa.`\
+https://nytimes.com/athletic/6049042/2025/01/15/jaden-philogene-ipswich-transfer/
+
+**Pereira: Lemina told me he was not in right mindset to play for Wolves**\
+`Wolverhampton Wanderers head coach Vitor Pereira says Mario Lemina was left out of the squad to face Newcastle United after telling the club he wants to leave.`\
+https://nytimes.com/athletic/6065153/2025/01/15/mario-lemina-wolves-pereira/
+
+**Broncos still mapping offseason plans, but one priority for Sean Payton is clear**\
+`The Broncos coach hasn't benefited from the Joker-type player in Denver he grew used to in New Orleans. That will top offseason wish list.`\
+https://nytimes.com/athletic/6064797/2025/01/15/broncos-offseason-payton-paton-penner/
+
 **Jack Hoffman, Nebraska fan who captured hearts in spring game, dies of brain cancer**\
 `Hoffman ran to fame at age 7 by scoring a touchdown in the 2013 Nebraska spring football game.`\
 https://nytimes.com/athletic/6065118/2025/01/15/jack-hoffman-nebraska-college-football/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6064853/2025/01/15/angel-city-fc-mark-parsons-sport
 **Arts Groups and Donors Create Fire Relief Fund for Los Angeles Artists**\
 `The fund, already at $12 million, is led by the Getty and includes major museums, foundations and philanthropists.`\
 https://nytimes.com/2025/01/15/arts/design/arts-groups-and-donors-create-fire-relief-fund-for-los-angeles-artists.html
-
-**The Briefing: Arsenal 2 Tottenham 1 - Does win help title hopes? Should corner have been given?**\
-`Arsenal beat Tottenham Hotspur 2-1 on Wednesday to move within four points of the top of the Premier League`\
-https://nytimes.com/athletic/6061777/2025/01/15/arsenal-tottenham-result-report-analysis/
-
-**The Briefing: Newcastle 3 Wolves 0: Nine wins in a row, Isak breaks record, Almiron's goodbye?**\
-`George Caulkin and Chris Waugh analyse the action as Newcastle and Alexander Isak enjoy a memorable night against Wolves`\
-https://nytimes.com/athletic/6061776/2025/01/15/newcastle-3-wolves-0-nine-wins-isak-record-almiron-exit/
-
-**Why Trump Wanted a Mideast Cease-Fire Deal Before Taking Office**\
-`The agreement removed one of the most vexing international conflicts that hovered over the start of his second term.`\
-https://nytimes.com/2025/01/15/us/politics/trump-mideast-cease-fire.html
 
