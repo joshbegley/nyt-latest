@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-latest
+
+**Live Updates: Biden to Deliver Farewell Address to the Nation**\
+`His administration would not disclose what the outgoing president planned to say in his speech. But in his final months he has been seeking to cement a legacy as a transformative president.`\
+https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition
+
 **U.S. Finds Pervasive Safety Failures at South Carolina Jail**\
 `Stabbings, sexual assaults and drug use are rampant in the Alvin S. Glenn Detention Center because of staff shortages and security failures, a Justice Department investigation found.`\
 https://nytimes.com/2025/01/15/us/south-carolina-jail-constitutional-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/15/us/politics/albania-kushner-trump.html
 **Man Utd coach Amorim wants players 'dead' at end of matches**\
 `Ruben Amorim wants his players “dead” at the end of matches after giving everything physically.`\
 https://nytimes.com/athletic/6065272/2025/01/15/ruben-amorim-manchester-united/
-
-**Postecoglou after derby defeat: 'Losing so many games is not right'**\
-`Tottenham Hotspur head coach Ange Postecoglou says his side’s league form “can’t be accepted by anyone at the club” after a 2-1 north London derby defeat to Arsenal on Wednesday.`\
-https://nytimes.com/athletic/6065220/2025/01/15/ange-postecoglou-tottenham-arsenal/
-
-**Conor McGregor sued, accused of sexual assault at Heat game in 2023**\
-`In November, a woman who accused McGregor of raping her in a Dublin hotel room in December 2018 won a civil claim against the fighter.`\
-https://nytimes.com/athletic/6064555/2025/01/15/conor-mcgregor-sexual-assault-lawsuit-miami/
 
