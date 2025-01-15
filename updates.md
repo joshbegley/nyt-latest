@@ -63,6 +63,11 @@ https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-taras
 `\
 https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
 
+**After tough few months, Blue Jackets' Daniil Tarasov ends long drought**\
+`In the Blue Jackets' electrifying 3-2 win versus the Flyers, the biggest story of the night was the quietest player in the dressing room.
+`\
+https://nytimes.com/athletic/6063070/2025/01/15/blue-jackets-flyers-daniil-tarasov/
+
 **There's no doubt now - Forest belong in the Premier League elite**\
 `An unlikely ambition is one step closer to being realised after a night where Forest showed they can mix it with the very best`\
 https://nytimes.com/athletic/6062818/2025/01/15/nottingham-forest-premier-league-elite/
