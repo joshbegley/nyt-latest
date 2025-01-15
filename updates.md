@@ -1,3 +1,11 @@
+**Atlanta in talks with Newcastle over Almiron**\
+`Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
+https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
+
+**Deal Has Exposed Fissures in Netanyahu’s Right-Wing Government**\
+`One far-right minister, Itamar Ben-Gvir, claimed to have scuppered similar agreements over the past year. But, the prime minister has blamed Hamas for the failures.`\
+https://nytimes.com/2025/01/15/world/middleeast/ceasefire-netanyahu-israel.html
+
 **Here is what the provisional cease-fire deal says.**\
 `In the first phase, 33 hostages and hundreds of Palestinian prisoners would be freed, and hundreds of trucks with humanitarian aid would be allowed into Gaza daily, a copy of the agreement says.`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/details-cease-fire-deal
