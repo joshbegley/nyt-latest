@@ -1,3 +1,15 @@
+**Takeaways From Marco Rubio’s Senate Hearing**\
+`Mr. Rubio expressed views aligned with those of most senators who work on foreign policy, while taking care not to break from Donald J. Trump’s unorthodox ideas.`\
+https://nytimes.com/2025/01/15/us/politics/marco-rubio-senate-hearing-takeaways.html
+
+**Mets sign 17-year-old Elian Peña to franchise-record $5 million signing bonus**\
+`At a younger age, Peña drew comparisons to Boston Red Sox star third baseman Rafael Devers, also from the Dominican Republic. `\
+https://nytimes.com/athletic/6064497/2025/01/15/elian-pena-signs-with-new-york-mets/
+
+**Yohe: Tristan Jarry was never there when the Penguins needed him**\
+`Jarry and the Penguins were never the right match, and they finally, mercifully pulled the plug.`\
+https://nytimes.com/athletic/6064628/2025/01/15/penguins-tristan-jarry-waivers-nhl-availability/
+
 **Browns sued by city of Cleveland over plans to move to new stadium**\
 `The city alleges in the lawsuit that the Browns' plans to move to Brook Park would violate Ohio's Modell Law.`\
 https://nytimes.com/athletic/6064519/2025/01/15/cleveland-stadium-lawsuit-browns/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6064447/2025/01/15/fantasy-football-2025-qb-draft-s
 **Atlanta working to reach Almiron agreement with Newcastle**\
 `Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
 https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
-
-**Here’s What the Provisional Cease-Fire Deal Says**\
-`In the first phase, 33 hostages and hundreds of Palestinian prisoners would be freed, and hundreds of trucks with humanitarian aid would be allowed into Gaza daily, a copy of the agreement says.`\
-https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-israel-hamas.html
-
-**Gaza Cease-Fire Deal Brings Joy, but Is Tinged With Uncertainty**\
-`An agreement offers Gazans at least some respite from the war, and for Israelis it means the release of hostages. But the deal’s ambiguity means fighting could resume within weeks.`\
-https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-deal.html
-
-**Deal Has Exposed Fissures in Netanyahu’s Right-Wing Government**\
-`One far-right minister, Itamar Ben-Gvir, claimed to have scuppered similar agreements over the past year. But, the prime minister has blamed Hamas for the failures.`\
-https://nytimes.com/2025/01/15/world/middleeast/ceasefire-netanyahu-israel.html
 
