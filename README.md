@@ -1,3 +1,7 @@
+**U.S. Sues Southwest Airlines Over Chronic Delays**\
+`The Transportation Department said in a lawsuit that two of the airline’s routes were consistently delayed in violation of federal rules.`\
+https://nytimes.com/2025/01/15/business/southwest-airlines-lawsuit-frontier-flight-delays.html
+
 **Whisper Network Emerges in the Desperate Rush for Housing in L.A.**\
 `In a market with few homes available, real estate agents are searching for the ones no one knows about.`\
 https://nytimes.com/2025/01/15/realestate/california-wildfires-unlisted-rentals-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064828/2025/01/15/chelsea-ffp-fine-premier-league-
 **L.A. fire chief defends decision not to deploy extra resources before fires started.**\
 `By Kate Selig`\
 https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/la-fire-chief-defends-decision-not-to-deploy-extra-resources-before-fires-started
-
-**Late-round QB will be risky in fantasy football 2025, but it's still the right move**\
-`Despite an unsettled group of late-round QB targets, Michael Salfino still thinks it's worth fishing from that pool in 2025 fantasy drafts.`\
-https://nytimes.com/athletic/6064447/2025/01/15/fantasy-football-2025-qb-draft-strategy/
 
