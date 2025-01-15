@@ -1,3 +1,7 @@
+**U.S. Sues Southwest Airlines Over Chronic Delays**\
+`The Transportation Department said in a lawsuit that two of the airline’s routes were consistently delayed in violation of federal rules.`\
+https://nytimes.com/2025/01/15/business/southwest-airlines-lawsuit-frontier-flight-delays.html
+
 **Whisper Network Emerges in the Desperate Rush for Housing in L.A.**\
 `In a market with few homes available, real estate agents are searching for the ones no one knows about.`\
 https://nytimes.com/2025/01/15/realestate/california-wildfires-unlisted-rentals-housing.html
