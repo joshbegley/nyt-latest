@@ -1,3 +1,7 @@
+**A Top Pianist and a Great Composer Walk Into a Bar …**\
+`After the pianist, Vikingur Olafsson, asked for a concerto over beers, the composer, John Adams, wrote “After the Fall,” which will now travel the world.`\
+https://nytimes.com/2025/01/15/arts/music/john-adams-vikingur-olafsson-after-the-fall-concerto.html
+
 **Kash Patel’s loyalty to Trump is a point of concern for some lawmakers.**\
 `By Adam Goldman`\
 https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/kash-patels-loyalty-to-trump-is-likely-to-be-a-point-of-concern
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062261/2025/01/15/giants-john-mara-joe-schoen-bria
 **The 49ers’ multi-million-dollar Brock Purdy question: A complete breakdown of the QB**\
 `A look at the quarterback's strengths and shortcoming as the 49ers begin negotiating a new, multiyear contract.`\
 https://nytimes.com/athletic/6062158/2025/01/15/brock-purdy-49ers-contract-evaluation-performance/
-
-**Pam Bondi has transformed from a traditional Republican into a warrior for Trump.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/pam-bondi-has-transformed-from-a-traditional-republican-into-a-warrior-for-trump
 
