@@ -1,3 +1,7 @@
+**The 49ers’ multi-million-dollar Brock Purdy question: A complete breakdown of the QB**\
+`A look at the quarterback's strengths and shortcoming as the 49ers begin negotiating a new, multiyear contract.`\
+https://nytimes.com/athletic/6062158/2025/01/15/brock-purdy-49ers-contract-evaluation-performance/
+
 **Pam Bondi has transformed from a traditional Republican into a warrior for Trump.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/pam-bondi-has-transformed-from-a-traditional-republican-into-a-warrior-for-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5724748/2025/01/15/australian-open-carlos-alcaraz-s
 **Colts to host NFL's first-ever regular-season game in Berlin**\
 `The game will be played at the Olympic Stadium, and the Colts' opponent will be announced when the NFL schedule is revealed this spring.`\
 https://nytimes.com/athletic/6063786/2025/01/15/colts-berlin-game/
-
-**Pulisic avoids injury, scans reveal no muscle tear**\
-`USMNT captain Christian Pulisic has avoided injury after being substituted off with muscle fatigue on Tuesday.`\
-https://nytimes.com/athletic/6061740/2025/01/15/christian-pulisic-injury-milan/
 

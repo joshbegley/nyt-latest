@@ -1,3 +1,7 @@
+**The 49ers’ multi-million-dollar Brock Purdy question: A complete breakdown of the QB**\
+`A look at the quarterback's strengths and shortcoming as the 49ers begin negotiating a new, multiyear contract.`\
+https://nytimes.com/athletic/6062158/2025/01/15/brock-purdy-49ers-contract-evaluation-performance/
+
 **Pam Bondi has transformed from a traditional Republican into a warrior for Trump.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/pam-bondi-has-transformed-from-a-traditional-republican-into-a-warrior-for-trump
