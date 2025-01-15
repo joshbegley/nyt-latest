@@ -1,3 +1,7 @@
+**Adviser to Cambodian Leader Is Wanted in Thailand Over Dissident’s Killing**\
+`The Thai authorities accused an adviser to Hun Sen of hiring the gunman who killed a former Cambodian opposition figure in Bangkok last week.`\
+https://nytimes.com/2025/01/15/world/asia/cambodia-thailand-adviser-hun-sen.html
+
 **Chinese Celebrities and Tourists Think Twice About Thailand**\
 `The brief abduction of a Chinese actor who was trafficked into Myanmar to work in a scam camp has rattled travelers from a country that Thailand relies on for tourism.`\
 https://nytimes.com/2025/01/15/world/asia/china-thailand-kidnapping-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/world/europe/ukraine-russia-missile-attack-energy
 **Word of the Day: emporium**\
 `This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/15/learning/word-of-the-day-emporium.html
-
-**Another penalty conceded suggests structural problems with Maresca's Chelsea**\
-`The penalty conceded against Bournemouth was the sixth given away by Chelsea this season and suggests a systemic issue`\
-https://nytimes.com/athletic/6062980/2025/01/15/chelsea-bournemouth-penalty/
 

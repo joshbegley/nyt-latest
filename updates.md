@@ -1,3 +1,7 @@
+**Adviser to Cambodian Leader Is Wanted in Thailand Over Dissident’s Killing**\
+`The Thai authorities accused an adviser to Hun Sen of hiring the gunman who killed a former Cambodian opposition figure in Bangkok last week.`\
+https://nytimes.com/2025/01/15/world/asia/cambodia-thailand-adviser-hun-sen.html
+
 **Paqueta looks revitalised under Potter - and he's not the only one**\
 `The Brazilian playmaker has looked energised since his new manager's arrival in east London. It’s not a moment too soon for his club`\
 https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
