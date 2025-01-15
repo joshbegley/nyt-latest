@@ -1,4 +1,16 @@
-**Man City crave control but there was none of that in the second half against Brentford**\
+**Cates, Chapman and Logan confirmed as Match of the Day presenters**\
+`Match of the Day, the BBC&#8217;s flagship football highlights programme, will be presented by Kelly Cates, Mark Chapman and Gabby Logan from next season, the broadcaster has confirmed.`\
+https://nytimes.com/athletic/6063640/2025/01/15/match-of-the-day-presenters-cates-chapman-logan-lineker/
+
+**‘Conclave’ and ‘Emilia Pérez’ Compete in Wide-Open BAFTAs Race**\
+`“Anora,” “A Compete Unknown” and “The Brutalist” are also in the running for best film at the British equivalent of the Oscars.`\
+https://nytimes.com/2025/01/15/movies/bafta-nominations.html
+
+**Who will Cadillac sign for its 2026 debut? Six driver options for F1’s newest team**\
+`Cadillac is starting to lay the plans for its F1 entry. Here are the drivers that will be of interest to the program.`\
+https://nytimes.com/athletic/6061467/2025/01/15/cadillac-f1-drivers-2026-options/
+
+**Manchester City crave control but there was none of that in the second half against Brentford**\
 `Pep Guardiola's side benefitted from their direct approach at times but their unusual inability to keep the ball cost them`\
 https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6060806/2025/01/15/oilers-rasmus-andersson-trade-ta
 **Canadiens have reached a point coach Martin St. Louis has long dreamed about**\
 `The Canadiens had about as bad a first period as they've had in months in Utah, but St. Louis allowed his players to take care of it.`\
 https://nytimes.com/athletic/6063403/2025/01/15/canadiens-utah-nhl-win/
-
-**Israel and Hamas Hammering Out Final Details on Cease-Fire, Officials Say**\
-`Negotiators and mediators meeting in Qatar were trying to address outstanding issues on Wednesday.`\
-https://nytimes.com/2025/01/15/world/middleeast/israel-hamas-cease-fire-deal-gaza-hostages.html
-
-**Hollinger: Pacific Division teams are stuck in neutral, some worse than others**\
-`All five teams head toward the trade deadline pondering deep philosophical questions about their futures.`\
-https://nytimes.com/athletic/6062596/2025/01/15/lakers-warriors-suns-nba-pacific-division/
-
-**The Pulse: We're all waiting on one MLB signing**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6061731/2025/01/15/roki-sasaki-dodgers-padres-blue-jays-the-pulse/
 

@@ -1,3 +1,19 @@
+**Cates, Chapman and Logan confirmed as Match of the Day presenters**\
+`Match of the Day, the BBC&#8217;s flagship football highlights programme, will be presented by Kelly Cates, Mark Chapman and Gabby Logan from next season, the broadcaster has confirmed.`\
+https://nytimes.com/athletic/6063640/2025/01/15/match-of-the-day-presenters-cates-chapman-logan-lineker/
+
+**‘Conclave’ and ‘Emilia Pérez’ Compete in Wide-Open BAFTAs Race**\
+`“Anora,” “A Compete Unknown” and “The Brutalist” are also in the running for best film at the British equivalent of the Oscars.`\
+https://nytimes.com/2025/01/15/movies/bafta-nominations.html
+
+**Who will Cadillac sign for its 2026 debut? Six driver options for F1’s newest team**\
+`Cadillac is starting to lay the plans for its F1 entry. Here are the drivers that will be of interest to the program.`\
+https://nytimes.com/athletic/6061467/2025/01/15/cadillac-f1-drivers-2026-options/
+
+**Manchester City crave control but there was none of that in the second half against Brentford**\
+`Pep Guardiola's side benefitted from their direct approach at times but their unusual inability to keep the ball cost them`\
+https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
+
 **Man City crave control but there was none of that in the second half against Brentford**\
 `Pep Guardiola's side benefitted from their direct approach at times but their unusual inability to keep the ball cost them`\
 https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactics/
