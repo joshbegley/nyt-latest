@@ -1,3 +1,7 @@
+**How the Canucks got embarrassed in a blowout loss to the Jets: 3 takeaways**\
+`The Canucks' form continues to swing wildly from game to game, and the Jets took advantage with a Kyle Connor hat trick in the first period.`\
+https://nytimes.com/athletic/6062844/2025/01/14/canucks-blowout-lankinen-hronek-miller-jets/
+
 **No. 7 Marquette escapes upset as DePaul's two-year Big East losing streak continues**\
 `It has been 727 days since DePaul's last Big East regular season win.`\
 https://nytimes.com/athletic/6063035/2025/01/14/depaul-basketball-big-east-losing-streak-marquette/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/14/pageoneplus/corrections-jan-15-2025.html
 **Two Private Moon Landers Are Launching at Once: What to Know**\
 `Robotic vehicles from Firefly Aerospace of Texas and Ispace of Japan will part ways early Wednesday after launching from the same SpaceX rocket. Both are aiming for the lunar surface.`\
 https://nytimes.com/2025/01/14/science/nasa-spacex-launch-lunar-landers.html
-
-**U.S. Won’t Bring Charges Against Officers in Death of Ronald Greene**\
-`Investigators found insufficient evidence to federally charge the surviving officers in the encounter, in which a Black driver was pulled over, dragged, beaten and shocked.`\
-https://nytimes.com/2025/01/14/us/ronald-greene-death-federal-prosecutors-charges.html
 
