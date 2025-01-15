@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Usual strengths turn into issues in third straight loss**\
+`It's hard to pick an aspect of the game where the Leafs played well, turning what could have been a coin flip into a routine win for Dallas.`\
+https://nytimes.com/athletic/6062671/2025/01/14/maple-leafs-report-cards-penalty-kill-stars/
+
 **Georgia RB Trevor Etienne declares for 2025 NFL Draft**\
 `Trevor Etienne, the younger brother of Jacksonville Jaguars running back Travis Etienne, was Georgia’s starting tailback when healthy.`\
 https://nytimes.com/athletic/6062944/2025/01/14/trevor-etienne-nfl-draft-georgia/
