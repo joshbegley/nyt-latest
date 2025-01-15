@@ -1,15 +1,3 @@
-**The current deal on the table is similar to one pushed by President Biden in May, officials say.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/the-current-deal-on-the-table-is-similar-to-one-pushed-by-president-biden-in-may-officials-say
-
-**Texas QB Quinn Ewers declares for 2025 NFL Draft**\
-`The decision was largely expected after Ewers told ESPN last week that he didn’t plan to return to college football in 2025.`\
-https://nytimes.com/athletic/6061009/2025/01/15/quinn-ewers-nfl-draft-decision-texas/
-
-**Zuckerberg Will Host a Party for Trump’s Inauguration**\
-`Mark Zuckerberg, the Meta chief executive, is one of several tech leaders expected to play a high-profile role in celebrating the new administration next week.`\
-https://nytimes.com/2025/01/15/us/politics/mark-zuckerberg-donald-trump-inauguration.html
-
 **Texan private equity firm completes Hellas Verona takeover**\
 `Hellas Verona have become the latest Serie A club to be taken over by an American consortium.`\
 https://nytimes.com/athletic/6064173/2025/01/15/hellas-verona-takeover-presidio-investors/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6061164/2025/01/15/kike-salas-sevilla-arrest-fraud/
 **Proenza Schouler Designers Depart in Further Fashion World Tumult**\
 `After a year of major creative change, a new round of musical chairs has begun.`\
 https://nytimes.com/2025/01/15/style/proenza-schouler-designers-leave.html
+
+**These Sheet-Pan Noodles Have Very Little Cleanup**\
+`Eric Kim cleverly cooks and assembles his japchae on a single sheet pan in this fast and fortifying dinner.`\
+https://nytimes.com/2025/01/15/dining/these-sheet-pan-noodles-have-very-little-cleanup.html
+
+**Celtic Women Held Sway in ‘Matrilocal’ Societies**\
+`An ancient cemetery reveals a Celtic tribe that lived in England 2,000 years ago and that was organized around maternal lineages, according to a DNA analysis.`\
+https://nytimes.com/2025/01/15/science/celtic-women-dna.html
+
+**Not Drunk, Not Dry: What it Means to Be ‘Soberish’**\
+`Conscious of the health risks of alcohol, more people are experimenting with cutting back on drinking.`\
+https://nytimes.com/2025/01/15/well/alcohol-soberish-health.html
 
