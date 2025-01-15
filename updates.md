@@ -1,3 +1,7 @@
+**Paqueta looks revitalised under Potter - and he's not the only one**\
+`The Brazilian playmaker has looked energised since new manager's arrival in east London. It’s not a moment too soon for his club`\
+https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
+
 **Missile Attack Prompts Emergency Power Cuts in Ukraine**\
 `President Volodymyr Zelensky of Ukraine said that air defenses had shot down at least 30 missiles from a barrage that targeted gas and energy facilities.`\
 https://nytimes.com/2025/01/15/world/europe/ukraine-russia-missile-attack-energy.html
