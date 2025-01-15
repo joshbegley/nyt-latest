@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6062957/2025/01/15/nhl-trade-deadline-sabres-jason-zucker/
 
+**What should the Sabres do with Jason Zucker at the trade deadline?**\
+`Zucker is an influential voice in the locker room and wants to make Buffalo better despite knowing he could be traded at the deadline.
+`\
+https://nytimes.com/athletic/6062957/2025/01/15/nhl-trade-deadline-sabres-jason-zucker/
+
 **Here are the main contenders for USMNT's World Cup longshot ticket**\
 `World Cup history suggests there is always room for outsider to make a run at a World Cup squad, but the chances are slim`\
 https://nytimes.com/athletic/6062074/2025/01/15/usmnt-world-cup-pochettino-longshot/
