@@ -1,3 +1,7 @@
+**USYNT international Darboe joins Bayern from LAFC**\
+`Bayern Munich have signed United States youth international attacking midfielder Bajung Darboe from LAFC.`\
+https://nytimes.com/athletic/6063508/2025/01/15/bayern-munich-usmnt-bajung-darboe/
+
 **The generational shift in men's tennis comes to the Australian Open**\
 `The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
 https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
