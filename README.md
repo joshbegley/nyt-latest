@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/15/business/bank-earnings-goldman-jpmorgan-chase-wel
 
 **Here’s what to know about Bondi’s confirmation hearing.**\
 `By Andrés R. Martínez`\
-https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/heres-what-to-know-about-bondis-confirmation-hearing
+https://nytimes.com/2025/01/15/us/politics/heres-what-to-know-about-bondis-confirmation-hearing.html
 
 **Deconstructing Nuno-ball - and why it's more sophisticated than you think**\
 `The intricacies of Forest's offensive approach and passing could comfortably rival the best sides in the country.`\
