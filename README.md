@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6058350/2025/01/15/christian-mccaffrey-worst-top-fa
 https://nytimes.com/athletic/6064484/2025/01/15/woyo-coulibaly-leicester-transfer/
 
 **Access Is Tight Around Kamala Harris’s Los Angeles Home**\
-`The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the Vice President has been in Washington`\
+`The Brentwood house she shares with Doug Emhoff is in an evacuation zone, but the vice president has been in Washington.`\
 https://nytimes.com/2025/01/15/style/kamala-harris-home-wildfires.html
 
 **Supreme Court Seems Ready to Back Texas Law Limiting Access to Pornography**\

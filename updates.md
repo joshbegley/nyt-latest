@@ -1,3 +1,7 @@
+**Bears fly in Mike McCarthy for interview as coaching search heats up**\
+`The former Cowboys coach officially became a free agent this week and has interest in both the Bears and the Saints.`\
+https://nytimes.com/athletic/6064472/2025/01/15/bears-mike-mccarthy-coach-interview/
+
 **John Tavares leaves Maple Leafs practice with injury**\
 `Tavares left practice in obvious discomfort on Wednesday afternoon after getting awkwardly tied up with Tanev during a power-play drill.`\
 https://nytimes.com/athletic/6064522/2025/01/15/john-tavares-injury-maple-leafs/
