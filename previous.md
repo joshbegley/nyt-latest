@@ -1,3 +1,7 @@
+**Why linebackers Matt Milano and Terrel Bernard are the key to the Bills' playoff success**\
+`Plus, Spencer Brown's importance to the outstanding offensive line.`\
+https://nytimes.com/athletic/6062063/2025/01/15/bills-ravens-defense-matt-milano-terrel-bernard/
+
 **MoneyCall: New contender for women’s hoops $$$**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6063065/2025/01/15/unrivaled-womens-basketball-moneycall-newsletter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061740/2025/01/15/christian-pulisic-injury-milan/
 **Freedom From Harassment and Exploitation on Social Media, but Not for Girls**\
 `On “Girls Gone Wild,” Meta’s moderation changes, and the permanence of online cruelty.`\
 https://nytimes.com/2025/01/15/opinion/girls-gone-wild-meta-social-media.html
-
-**How to Create a Multimedia Digital Journal of Your Life**\
-`People have been keeping personal diaries for several millenniums, but free smartphone apps now let you capture much more than words.`\
-https://nytimes.com/2025/01/15/technology/personaltech/how-to-journal-on-your-phone.html
 

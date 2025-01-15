@@ -1,3 +1,7 @@
+**Why linebackers Matt Milano and Terrel Bernard are the key to the Bills' playoff success**\
+`Plus, Spencer Brown's importance to the outstanding offensive line.`\
+https://nytimes.com/athletic/6062063/2025/01/15/bills-ravens-defense-matt-milano-terrel-bernard/
+
 **MoneyCall: New contender for women’s hoops $$$**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6063065/2025/01/15/unrivaled-womens-basketball-moneycall-newsletter/
