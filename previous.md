@@ -1,5 +1,9 @@
+**Texan private equity firm completes Hellas Verona takeover**\
+`Hellas Verona have become the latest Serie A club to be taken over by an American consortium.`\
+https://nytimes.com/athletic/6064173/2025/01/15/hellas-verona-takeover-presidio-investors/
+
 **Live Updates: Israel and Hamas Agree to Provisional Outline of Gaza Cease-Fire Deal, Officials Say**\
-`Negotiators have yet to confirm a start date and other technical issues. But if implemented, the first phase of the hard-won agreement would see dozens of hostages freed from Gaza in exchange for hundreds of Palestinians held in Israel.`\
+`Negotiators have yet to confirm a start date and other technical issues could still derail a deal. But if implemented, the first phase would see dozens of hostages freed in exchange for hundreds of Palestinians held in Israel.`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza
 
 **F.D.A. Bans Red Dye 3 in Foods, Linking It to Cancer in Rats**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/science/celtic-women-dna.html
 **Not Drunk, Not Dry: What it Means to Be ‘Soberish’**\
 `Conscious of the health risks of alcohol, more people are experimenting with cutting back on drinking.`\
 https://nytimes.com/2025/01/15/well/alcohol-soberish-health.html
-
-**What to Know About Covid Right Now**\
-`Experts expect cases to rise again this winter. Here’s the latest on symptoms, treatments and testing.`\
-https://nytimes.com/2025/01/15/well/covid-symptoms-test-vaccine.html
 

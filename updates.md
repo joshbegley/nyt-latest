@@ -1,3 +1,11 @@
+**Texan private equity firm completes Hellas Verona takeover**\
+`Hellas Verona have become the latest Serie A club to be taken over by an American consortium.`\
+https://nytimes.com/athletic/6064173/2025/01/15/hellas-verona-takeover-presidio-investors/
+
+**Live Updates: Israel and Hamas Agree to Provisional Outline of Gaza Cease-Fire Deal, Officials Say**\
+`Negotiators have yet to confirm a start date and other technical issues could still derail a deal. But if implemented, the first phase would see dozens of hostages freed in exchange for hundreds of Palestinians held in Israel.`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza
+
 **Live Updates: Israel and Hamas Agree to Provisional Outline of Gaza Cease-Fire Deal, Officials Say**\
 `Negotiators have yet to confirm a start date and other technical issues. But if implemented, the first phase of the hard-won agreement would see dozens of hostages freed from Gaza in exchange for hundreds of Palestinians held in Israel.`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza
