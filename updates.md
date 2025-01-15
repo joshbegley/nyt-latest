@@ -1,3 +1,15 @@
+**News of a deal brings hope and a painful reminder for residents of villages overrun by Hamas.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/news-of-a-deal-brings-hope-and-a-painful-reminder-for-residents-of-villages-overrun-by-hamas
+
+**Albania Gives Jared Kushner Hotel Project a Nod as Trump Returns**\
+`The project is one of several that family members of President-elect Donald J. Trump have with foreign countries that have pending policy matters with the United States.`\
+https://nytimes.com/2025/01/15/us/politics/albania-kushner-trump.html
+
+**Man Utd coach Amorim wants players 'dead' at end of matches**\
+`Ruben Amorim wants his players “dead” at the end of matches after giving everything physically.`\
+https://nytimes.com/athletic/6065272/2025/01/15/ruben-amorim-manchester-united/
+
 **Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
 `Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
 `\

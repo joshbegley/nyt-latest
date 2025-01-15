@@ -1,3 +1,15 @@
+**News of a deal brings hope and a painful reminder for residents of villages overrun by Hamas.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/news-of-a-deal-brings-hope-and-a-painful-reminder-for-residents-of-villages-overrun-by-hamas
+
+**Albania Gives Jared Kushner Hotel Project a Nod as Trump Returns**\
+`The project is one of several that family members of President-elect Donald J. Trump have with foreign countries that have pending policy matters with the United States.`\
+https://nytimes.com/2025/01/15/us/politics/albania-kushner-trump.html
+
+**Man Utd coach Amorim wants players 'dead' at end of matches**\
+`Ruben Amorim wants his players “dead” at the end of matches after giving everything physically.`\
+https://nytimes.com/athletic/6065272/2025/01/15/ruben-amorim-manchester-united/
+
 **Postecoglou after derby defeat: 'Losing so many games is not right'**\
 `Tottenham Hotspur head coach Ange Postecoglou says his side’s league form “can’t be accepted by anyone at the club” after a 2-1 north London derby defeat to Arsenal on Wednesday.`\
 https://nytimes.com/athletic/6065220/2025/01/15/ange-postecoglou-tottenham-arsenal/
@@ -25,17 +37,4 @@ https://nytimes.com/2025/01/15/us/eagles-fan-taunts-banned-job-loss.html
 **Mexican Firefighters Watch for Hot Spots From the Palisades Fire**\
 `The firefighters were part of the first international team to join the effort to contain the Los Angeles-area blazes.`\
 https://nytimes.com/2025/01/15/us/mexican-firefighters-palisades-fire.html
-
-**Israel and Hamas Reached a Cease-Fire Deal**\
-`Also, Biden is set to deliver a farewell address tonight. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/01/15/briefing/israel-hamas-deal-biden-farewell-address.html
-
-**Broja sidelined for up to 12 weeks and could return to Chelsea, says Moyes**\
-`Everton loanee Armando Broja is set to be out for 10-12 weeks after sustaining ankle ligament damage.`\
-https://nytimes.com/athletic/6065113/2025/01/15/armando-broja-injury-everton-chelsea/
-
-**Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
-`Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
-`\
-https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
 
