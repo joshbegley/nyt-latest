@@ -1,3 +1,7 @@
+**Ramaswamy Has a High-Profile Perch and a Raft of Potential Conflicts**\
+`Vivek Ramaswamy, Elon Musk’s partner in an effort to cut government costs, could make decisions that ultimately make him and his investors richer.`\
+https://nytimes.com/2025/01/15/us/politics/ramaswamy-has-a-high-profile-perch-and-a-raft-of-potential-conflicts.html
+
 **Poland’s Leader Suggests Russian Hand in Plot to Attack Western Cargo Planes**\
 `“I can only confirm that Russia planned acts of air terror, not just against Poland but against airlines across the globe,” said Poland’s prime minister, Donald Tusk.`\
 https://nytimes.com/2025/01/15/world/europe/russia-plot-to-attack-cargo-planes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/us/politics/mark-zuckerberg-donald-trump-inaugura
 **Texan private equity firm completes Hellas Verona takeover**\
 `Hellas Verona have become the latest Serie A club to be taken over by an American consortium.`\
 https://nytimes.com/athletic/6064173/2025/01/15/hellas-verona-takeover-presidio-investors/
-
-**Live Updates: Israel and Hamas Agree to Provisional Outline of Gaza Cease-Fire Deal, Officials Say**\
-`Negotiators have yet to confirm a start date and other technical issues could still derail a deal. But if implemented, the first phase would see dozens of hostages freed in exchange for hundreds of Palestinians held in Israel.`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza
 
