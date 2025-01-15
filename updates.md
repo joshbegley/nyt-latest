@@ -1,3 +1,7 @@
+**Georgia RB Trevor Etienne declares for 2025 NFL Draft**\
+`Trevor Etienne, the younger brother of Jacksonville Jaguars running back Travis Etienne, was Georgia’s starting tailback when healthy.`\
+https://nytimes.com/athletic/6062944/2025/01/14/trevor-etienne-nfl-draft-georgia/
+
 **Gig Makeup?**\
 `Parker Higgins did this to us on purpose.`\
 https://nytimes.com/2025/01/14/crosswords/daily-puzzle-2025-01-15.html
