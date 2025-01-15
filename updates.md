@@ -1,3 +1,11 @@
+**Chelsea in talks with Premier League over settling payments case from Abramovich era**\
+`Chelsea are in talks with the Premier League over agreeing a financial settlement for payments relating to transfers made during the Roman Abramovich era.`\
+https://nytimes.com/athletic/6064828/2025/01/15/chelsea-ffp-fine-premier-league-psr/
+
+**L.A. fire chief defends decision not to deploy extra resources before fires started.**\
+`By Kate Selig`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/la-fire-chief-defends-decision-not-to-deploy-extra-resources-before-fires-started
+
 **Late-round QB will be risky in fantasy football 2025, but it's still the right move**\
 `Despite an unsettled group of late-round QB targets, Michael Salfino still thinks it's worth fishing from that pool in 2025 fantasy drafts.`\
 https://nytimes.com/athletic/6064447/2025/01/15/fantasy-football-2025-qb-draft-strategy/

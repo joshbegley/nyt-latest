@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta
 
 **Here is what the provisional cease-fire deal says.**\
 `In the first phase, 33 hostages and hundreds of Palestinian prisoners would be freed, and hundreds of trucks with humanitarian aid would be allowed into Gaza daily, a copy of the agreement says.`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/details-cease-fire-deal
+https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-israel-hamas.html
 
 **Gaza Cease-Fire Deal Brings Joy, but Is Tinged With Uncertainty**\
 `An agreement offers Gazans at least some respite from the war, and for Israelis it means the release of hostages. But the deal’s ambiguity means fighting could resume within weeks.`\
