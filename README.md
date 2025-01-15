@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6061757/2025/01/15/klopp-red-bull-liverpool-slot-le
 `A loan? Share the salary with another club? Pay off their contract? The options explained…`\
 https://nytimes.com/athletic/6052090/2025/01/15/premier-league-wages-sell/
 
-**PSR is not perfect, but the Premier League's shock therapy has worked**\
+**PSR is not perfect, but the Premier League's shock therapy has had an effect**\
 `The league proved its financial rules had teeth last season, with clubs modifying their transfer behaviour to stay compliant ever since`\
 https://nytimes.com/athletic/6061774/2025/01/15/premier-league-psr-punishments/
 
