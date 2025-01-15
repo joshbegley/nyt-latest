@@ -1,3 +1,11 @@
+**Paqueta looks revitalised under Potter - and he's not the only one**\
+`The Brazilian has looked energised since new manager's arrival - and not a moment too soon for his club`\
+https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
+
+**Missile Attack Prompts Emergency Power Cuts in Ukraine**\
+`The scale of the assault on Wednesday was not immediately clear, but Ukraine’s energy minister called it “massive.”`\
+https://nytimes.com/2025/01/15/world/europe/ukraine-russia-missile-attack-energy.html
+
 **Word of the Day: emporium**\
 `This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/15/learning/word-of-the-day-emporium.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062585/2025/01/15/man-city-guardiola-signings-bren
 **Jota took 22 seconds to settle Liverpool's No9 debate**\
 `The Portuguese offered thrust and threat in saving a point for Arne Slot's side, and deserves the chance to start`\
 https://nytimes.com/athletic/6062948/2025/01/15/diogo-jota-liverpool-no9/
-
-**Alabama, Florida downed by SEC foes, putting conference depth on display**\
-`Alabama lost 74-64 to No. 21 Ole Miss. Florida lost 83-82 to unranked Missouri.`\
-https://nytimes.com/athletic/6063212/2025/01/15/alabama-florida-losses-sec-mens-basketball/
-
-**Donyell Malen to Aston Villa: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we look at the Dutch forward's move from Dortmund.`\
-https://nytimes.com/athletic/6033354/2025/01/15/donyell-malen-to-aston-villa-the-athletic-500-transfer-ratings/
 

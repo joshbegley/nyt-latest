@@ -1,3 +1,11 @@
+**Paqueta looks revitalised under Potter - and he's not the only one**\
+`The Brazilian has looked energised since new manager's arrival - and not a moment too soon for his club`\
+https://nytimes.com/athletic/6061799/2025/01/15/lucas-paqueta-west-ham-graham-potter/
+
+**Missile Attack Prompts Emergency Power Cuts in Ukraine**\
+`The scale of the assault on Wednesday was not immediately clear, but Ukraine’s energy minister called it “massive.”`\
+https://nytimes.com/2025/01/15/world/europe/ukraine-russia-missile-attack-energy.html
+
 **Word of the Day: emporium**\
 `This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/15/learning/word-of-the-day-emporium.html
