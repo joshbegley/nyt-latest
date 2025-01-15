@@ -1,3 +1,11 @@
+**The Athletic FC: Slot's genius, Arsenal turn to Zubimendi, Lazio falconer's unusual sacking**\
+`Today in TAFC: How Slot's subs changed battle of top two, Arsenal's transfer surprise, Lazio falconer axed for prosthetic penis pictures.`\
+https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal-zubimendi-lazio-falconer/
+
+**Mike McCarthy is done in Dallas — who could Cowboys be eyeing as their next coach?**\
+`On the latest episode of the "Scoop City" podcast, why the Cowboys did Mike McCarthy wrong and where they go from here. `\
+https://nytimes.com/athletic/6062366/2025/01/15/mike-mccarthy-dallas-cowboys-next-head-coach-candidates/
+
 **Cates, Chapman and Logan confirmed as Match of the Day presenters**\
 `Match of the Day, the BBC&#8217;s flagship football highlights programme, will be presented by Kelly Cates, Mark Chapman and Gabby Logan from next season, the broadcaster has confirmed.`\
 https://nytimes.com/athletic/6063640/2025/01/15/match-of-the-day-presenters-cates-chapman-logan-lineker/
