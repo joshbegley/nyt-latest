@@ -1,3 +1,7 @@
+**It’s a Good (Great?) Time to Be a Big Bank**\
+`The largest banks, including JPMorgan Chase, Wells Fargo and Goldman Sachs, reported bumper profits on Wednesday.`\
+https://nytimes.com/2025/01/15/business/bank-earnings-goldman-jpmorgan-chase-wells-fargo.html
+
 **Here’s what to know about Bondi’s confirmation hearing.**\
 `By Andrés R. Martínez`\
 https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/heres-what-to-know-about-bondis-confirmation-hearing
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic
 **The Athletic FC: Slot's genius, Arsenal turn to Zubimendi, Lazio falconer's unusual sacking**\
 `Today in TAFC: How Slot's subs changed battle of top two, Arsenal's transfer surprise, Lazio falconer axed for prosthetic penis pictures.`\
 https://nytimes.com/athletic/6063533/2025/01/15/slot-substitution-genius-arsenal-zubimendi-lazio-falconer/
-
-**Mike McCarthy is done in Dallas — who could Cowboys be eyeing as their next coach?**\
-`On the latest episode of the "Scoop City" podcast, why the Cowboys did Mike McCarthy wrong and where they go from here. `\
-https://nytimes.com/athletic/6062366/2025/01/15/mike-mccarthy-dallas-cowboys-next-head-coach-candidates/
 

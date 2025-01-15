@@ -1,3 +1,7 @@
+**It’s a Good (Great?) Time to Be a Big Bank**\
+`The largest banks, including JPMorgan Chase, Wells Fargo and Goldman Sachs, reported bumper profits on Wednesday.`\
+https://nytimes.com/2025/01/15/business/bank-earnings-goldman-jpmorgan-chase-wells-fargo.html
+
 **What I'm hearing on Zach LaVine, Jimmy Butler and more**\
 `What should we expect from Jimmy Butler rejoining the Heat this week? And why Oklahoma City should be feeling thankful.`\
 https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic-trade/
