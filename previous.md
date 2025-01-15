@@ -1,3 +1,7 @@
+**After Indictment, Eric Adams Collects $250,000 From Donors**\
+`Mr. Adams, who is facing a federal corruption indictment and was denied public matching funds, said his totals show “my base of support is still there.”`\
+https://nytimes.com/2025/01/15/nyregion/eric-adams-donations-indictment.html
+
 **Chelsea in talks with Premier League over settling payments case from Abramovich era**\
 `Chelsea are in talks with the Premier League over agreeing a financial settlement for payments relating to transfers made during the Roman Abramovich era.`\
 https://nytimes.com/athletic/6064828/2025/01/15/chelsea-ffp-fine-premier-league-psr/
@@ -14,9 +18,9 @@ https://nytimes.com/athletic/6064447/2025/01/15/fantasy-football-2025-qb-draft-s
 `Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
 https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
 
-**Here is what the provisional cease-fire deal says.**\
+**Here’s What the Provisional Cease-Fire Deal Says**\
 `In the first phase, 33 hostages and hundreds of Palestinian prisoners would be freed, and hundreds of trucks with humanitarian aid would be allowed into Gaza daily, a copy of the agreement says.`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/details-cease-fire-deal
+https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-israel-hamas.html
 
 **Gaza Cease-Fire Deal Brings Joy, but Is Tinged With Uncertainty**\
 `An agreement offers Gazans at least some respite from the war, and for Israelis it means the release of hostages. But the deal’s ambiguity means fighting could resume within weeks.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/climate/california-wildfire-fema-money.html
 **Team co-owned by Dale Earnhardt Jr. entering Justin Allgaier in Daytona 500**\
 `Because JR Motorsports does not hold a charter, Allgaier is not guaranteed a starting spot in the 40-car Daytona 500 field.`\
 https://nytimes.com/athletic/6064459/2025/01/15/dale-earnhardt-jr-motorsports-daytona-500/
-
-**International signing period opens without Sasaki decision but plenty of significant deals**\
-`The 2025 MLB international signing period officially opened on Wednesday, with several top-rated prospects signing with MLB clubs.`\
-https://nytimes.com/athletic/6064533/2025/01/15/mlb-international-signing-period-2025/
 

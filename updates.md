@@ -1,3 +1,11 @@
+**After Indictment, Eric Adams Collects $250,000 From Donors**\
+`Mr. Adams, who is facing a federal corruption indictment and was denied public matching funds, said his totals show “my base of support is still there.”`\
+https://nytimes.com/2025/01/15/nyregion/eric-adams-donations-indictment.html
+
+**Here’s What the Provisional Cease-Fire Deal Says**\
+`In the first phase, 33 hostages and hundreds of Palestinian prisoners would be freed, and hundreds of trucks with humanitarian aid would be allowed into Gaza daily, a copy of the agreement says.`\
+https://nytimes.com/2025/01/15/world/middleeast/gaza-ceasefire-israel-hamas.html
+
 **Chelsea in talks with Premier League over settling payments case from Abramovich era**\
 `Chelsea are in talks with the Premier League over agreeing a financial settlement for payments relating to transfers made during the Roman Abramovich era.`\
 https://nytimes.com/athletic/6064828/2025/01/15/chelsea-ffp-fine-premier-league-psr/
