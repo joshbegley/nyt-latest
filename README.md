@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/15/science/julie-packard-monterey-bay-quarium-retire
 
 **Did You Lose Your Home in the California Fires? We Want to Hear From You.**\
 `The New York Times would like to help tell the stories of people who are facing this devastating reality by sharing photos and memories of what has been lost.`\
-https://nytimes.com/2025/01/15/insider/los-angeles-fires-homes.html
+https://nytimes.com/2025/01/15/realestate/los-angeles-fires-homes.html
 
 **Jarry to be waived by Penguins after disastrous first half**\
 `Jarry has had a particularly gruesome 2024-25 season.`\
