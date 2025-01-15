@@ -1,3 +1,7 @@
+**Twins mailbag: Prospect rankings, Brooks Lee vs. David Festa, breakout picks, Diego Cartaya**\
+`Plus how Jose Miranda could wind up starting at first base, Connor Prielipp's upside, indy ball finds and top-40 list omissions.`\
+https://nytimes.com/athletic/6055557/2025/01/15/twins-prospects-2025-breakouts-diego-cartaya/
+
 **Chelsea activate clause to recall Chalobah from Palace loan**\
 `Chelsea have activated a clause to recall Trevoh Chalobah from his loan spell at Crystal Palace.`\
 https://nytimes.com/athletic/6063549/2025/01/15/chelsea-trevoh-chalobah-loan-recall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australi
 **Maple Leafs Concern-O-Metre: What's ailing Toronto through a 3-game losing streak?**\
 `Three straight regulation losses aren't a good sign. Exactly how much of a problem are the various underlying trends?`\
 https://nytimes.com/athletic/6063181/2025/01/15/maple-leafs-concern-o-metre-losing-streak/
-
-**How Ryan Hartman snapped out of slump, plus what's holding up Kirill Kaprizov?: Wild notes**\
-`The Wild's superstar winger hasn't played a game in over three weeks while dealing with a lower-body injury.`\
-https://nytimes.com/athletic/6062672/2025/01/15/wild-ryan-hartman-kirill-kaprizov-injury/
 
