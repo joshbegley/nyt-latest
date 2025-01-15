@@ -1,6 +1,6 @@
 **Ramaswamy Has a High-Profile Perch and a Raft of Potential Conflicts**\
 `Vivek Ramaswamy, Elon Musk’s partner in an effort to cut government costs, could make decisions that ultimately make him and his investors richer.`\
-https://nytimes.com/2025/01/15/us/politics/ramaswamy-has-a-high-profile-perch-and-a-raft-of-potential-conflicts.html
+https://nytimes.com/2025/01/15/us/politics/vivek-ramaswamy-potential-conflicts.html
 
 **Poland’s Leader Suggests Russian Hand in Plot to Attack Western Cargo Planes**\
 `“I can only confirm that Russia planned acts of air terror, not just against Poland but against airlines across the globe,” said Poland’s prime minister, Donald Tusk.`\
