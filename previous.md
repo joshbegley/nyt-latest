@@ -1,4 +1,8 @@
-**Atlanta in talks with Newcastle over Almiron**\
+**Late-round QB will be risky in fantasy football 2025, but it's still the right move**\
+`Despite an unsettled group of late-round QB targets, Michael Salfino still thinks it's worth fishing from that pool in 2025 fantasy drafts.`\
+https://nytimes.com/athletic/6064447/2025/01/15/fantasy-football-2025-qb-draft-strategy/
+
+**Atlanta working to reach Almiron agreement with Newcastle**\
 `Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
 https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/us/la-prosecutor-arrests-looting-wildfires.html
 **Nick Saban, Urban Meyer among class of 22 to be inducted into College Football Hall of Fame**\
 `Former Virginia Tech star Michael Vick and broadcaster Michael Strahan are also among the class of 18 players and four coaches.`\
 https://nytimes.com/athletic/6063745/2025/01/15/nick-saban-urban-meyer-college-hall-of-fame/
-
-**Reynolds, McElhenney part of group buying Colombian soccer club La Equidad**\
-`The consortium is fronted by real estate investor Al Tylis and Club Necaxa executive Sam Porter.`\
-https://nytimes.com/athletic/6062362/2025/01/15/la-equidad-reynolds-mcelhenney-tylis-porter/
 

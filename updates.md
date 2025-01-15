@@ -1,3 +1,11 @@
+**Late-round QB will be risky in fantasy football 2025, but it's still the right move**\
+`Despite an unsettled group of late-round QB targets, Michael Salfino still thinks it's worth fishing from that pool in 2025 fantasy drafts.`\
+https://nytimes.com/athletic/6064447/2025/01/15/fantasy-football-2025-qb-draft-strategy/
+
+**Atlanta working to reach Almiron agreement with Newcastle**\
+`Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
+https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
+
 **Atlanta in talks with Newcastle over Almiron**\
 `Atlanta United are working to reach an agreement with Newcastle United to sign Miguel Almiron.`\
 https://nytimes.com/athletic/6064577/2025/01/15/miguel-almiron-newcastle-atlanta/
