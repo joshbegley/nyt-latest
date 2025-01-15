@@ -1,40 +1,41 @@
-**USYNT international Darboe joins Bayern from LAFC**\
-`Bayern Munich have signed United States youth international attacking midfielder Bajung Darboe from LAFC.`\
-https://nytimes.com/athletic/6063508/2025/01/15/bayern-munich-usmnt-bajung-darboe/
+**Here are the main contenders for USMNT's World Cup longshot ticket**\
+`World Cup history suggests there is always room for outsider to make a run at a World Cup squad, but the chances are slim`\
+https://nytimes.com/athletic/6062074/2025/01/15/usmnt-world-cup-pochettino-longshot/
 
-**The generational shift in men's tennis comes to the Australian Open**\
-`The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
-https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
+**Maple Leafs Concern-O-Metre: What's ailing Toronto through a 3-game losing streak?**\
+`Three straight regulation losses aren't a good sign. Exactly how much of a problem are the various underlying trends?`\
+https://nytimes.com/athletic/6063181/2025/01/15/maple-leafs-concern-o-metre-losing-streak/
 
-**Firefighting Pilots Face High-Pressure Job: ‘It Gets a Bit Scary’**\
-`The people flying planes and tankers involved in dousing blazes face hot, sweaty, turbulent conditions — and the risk that fire retardant won’t land where it’s needed.`\
-https://nytimes.com/2025/01/15/us/firefighting-pilots-california-fires.html
+**How Ryan Hartman snapped out of slump, plus what's holding up Kirill Kaprizov?: Wild notes**\
+`The Wild's superstar winger hasn't played a game in over three weeks while dealing with a lower-body injury.`\
+https://nytimes.com/athletic/6062672/2025/01/15/wild-ryan-hartman-kirill-kaprizov-injury/
 
-**Here’s the latest on the fires.**\
-`By Mike Ives`\
-https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california/heres-the-latest-on-the-fires
+**What Nakobe Dean's season-ending injury means for the Eagles**\
+`With defensive signal caller Dean done for the postseason with a patellar tendon injury, who will step up in Vic Fangio's defense?`\
+https://nytimes.com/athletic/6061656/2025/01/15/nakobe-dean-eagles-patellar-injury-playoffs/
 
-**Live Updates: Heavy L.A. Winds Extend Fire Threat**\
-`Gusts on Tuesday were weaker than expected, but more strong winds in the forecast could stoke blazes. More than a week into the fires, officials are trying to prevent speculation and evictions in ravaged neighborhoods.`\
-https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california
+**Calder Gardens Names a Curatorial Leader and Sets September Opening**\
+`Juana Berrío, currently at the Whitney Independent Study Program, will be senior director of programs at the cultural center in Philadelphia.`\
+https://nytimes.com/2025/01/15/arts/design/calder-gardens-philadelphia.html
 
-**Bengals cap cuts: How many veterans will Cincinnati cut loose? **\
-`Freeing up veteran salaries would add to the $44.2 million in available cap space this offseason.`\
-https://nytimes.com/athletic/6061884/2025/01/15/bengals-cap-cuts-2025/
+**Drunkenness, Women and Wokeness: A Dramatic Confirmation Hearing for Pete Hegseth**\
+`Highlights from the first big day of hearings on the Trump cabinet, and what comes next.`\
+https://nytimes.com/2025/01/15/podcasts/the-daily/pete-hegseth-confirmation-hearing.html
 
-**Where Yankees and Marcus Stroman stand: Will he be on the move?**\
-`The Yankees have six pitchers for five rotation spots. Will they want to pay Stroman $18 million to essentially be a sixth starter?`\
-https://nytimes.com/athletic/6062513/2025/01/15/yankees-marcus-stroman-future-possibilities/
+**The Connections Companion No. 585**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 16, 2025.`\
+https://nytimes.com/2025/01/15/crosswords/connections-companion-585.html
 
-**After a baffling stretch, the Celtics starting lineup searches for answers**\
-`Head coach Joe Mazzulla says the Celtics are “just not playing our best basketball” right now. `\
-https://nytimes.com/athletic/6062374/2025/01/15/celtics-starting-lineup-struggles/
+**What should the Sabres do with Jason Zucker at the trade deadline?**\
+`Zucker is an influential voice in the locker room and wants to make Buffalo better despite knowing he could be traded at the deadline.
+`\
+https://nytimes.com/athletic/6062957/2025/01/15/nhl-trade-deadline-sabres-jason-zucker/
 
-**How a snub set Team Canada's youngest player on path to 4 Nations**\
-`Ever since he was young, Seth Jarvis wanted to make the World Juniors team. When he didn't, he used the setback to grow.`\
-https://nytimes.com/athletic/6061682/2025/01/15/team-canada-4-nations-face-off/
+**Why Jordan Love, Matt LaFleur are still right for Packers despite need for improvement**\
+`Green Bay's offense stumbled to the finish line this season, but still showed signs of growth in Year 2 with Love at the helm.`\
+https://nytimes.com/athletic/6062388/2025/01/15/jordan-love-matt-lafleur-packers-offseason/
 
-**How Cowboys can pitch their head coach opening — and what candidates should be wary of**\
-`The next Dallas coach will inherit Dak Prescott, CeeDee Lamb and Micah Parsons, among others. A look at the pros and cons.`\
-https://nytimes.com/athletic/6062502/2025/01/15/cowboys-coaching-vacancy-pros-cons-dak-prescott/
+**Wordle Review No. 1,307**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 16, 2025.`\
+https://nytimes.com/2025/01/15/crosswords/wordle-review-1307.html
 
