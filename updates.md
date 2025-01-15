@@ -1,3 +1,7 @@
+**Pam Bondi has transformed from a traditional Republican into a warrior for Trump.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/pam-bondi-has-transformed-from-a-traditional-republican-into-a-warrior-for-trump
+
 **Why linebackers Matt Milano and Terrel Bernard are the key to the Bills' playoff success**\
 `Plus, Spencer Brown's importance to the outstanding offensive line.`\
 https://nytimes.com/athletic/6062063/2025/01/15/bills-ravens-defense-matt-milano-terrel-bernard/
