@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-
 `\
 https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
 
+**Why Zach Hyman and his family bought the OHL's Brantford Bulldogs**\
+`Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
+`\
+https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
+
 **Conor McGregor sued, accused of sexual assault at Heat game in 2023**\
 `In November, a woman who accused McGregor of raping her in a Dublin hotel room in December 2018 won a civil claim against the fighter.`\
 https://nytimes.com/athletic/6064555/2025/01/15/conor-mcgregor-sexual-assault-lawsuit-miami/

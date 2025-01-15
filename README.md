@@ -1,3 +1,7 @@
+**Postecoglou after derby defeat: 'Losing so many games is not right'**\
+`Tottenham Hotspur head coach Ange Postecoglou says his side’s league form “can’t be accepted by anyone at the club” after a 2-1 north London derby defeat to Arsenal on Wednesday.`\
+https://nytimes.com/athletic/6065220/2025/01/15/ange-postecoglou-tottenham-arsenal/
+
 **Conor McGregor sued, accused of sexual assault at Heat game in 2023**\
 `In November, a woman who accused McGregor of raping her in a Dublin hotel room in December 2018 won a civil claim against the fighter.`\
 https://nytimes.com/athletic/6064555/2025/01/15/conor-mcgregor-sexual-assault-lawsuit-miami/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6065113/2025/01/15/armando-broja-injury-everton-che
 `Hyman and his family have officially purchased the OHL's Brantford Bulldogs from Ottawa Senators owner Michael Andlauer.
 `\
 https://nytimes.com/athletic/6065087/2025/01/15/oilers-zach-hyman-ohl-brantford-bulldogs/
-
-**Ipswich sign Philogene from Villa**\
-`Ipswich Town have confirmed the signing of Jaden Philogene from Aston Villa.`\
-https://nytimes.com/athletic/6049042/2025/01/15/jaden-philogene-ipswich-transfer/
 
