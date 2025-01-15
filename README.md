@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6056185/2025/01/14/penguins-defense-sullivan-collap
 `Quotation of the Day for Wednesday, January 15, 2025.`\
 https://nytimes.com/2025/01/14/pageoneplus/quote-of-the-day-patchy-rules-let-police-use-tasers-freely.html
 
-**Naomi Osaka returns to the Australian Open with momentum on her side**\
+**Naomi Osaka rediscovers her tennis superpower**\
 `After a run of injuries and tough Grand Slam draws, Naomi Osaka steps up in Melbourne.`\
 https://nytimes.com/athletic/6063129/2025/01/14/naomi-osaka-australian-open-record/
 
