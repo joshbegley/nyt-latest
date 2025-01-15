@@ -1,3 +1,11 @@
+**Here’s what to know about Bondi’s confirmation hearing.**\
+`By Andrés R. Martínez`\
+https://nytimes.com/2025/01/15/us/politics/heres-what-to-know-about-bondis-confirmation-hearing.html
+
+**Celtic and Rangers joining the WSL would boost its brand but damage women's football**\
+`The two Scottish clubs moving south to play in the English league would please the accountants but damage both competitions`\
+https://nytimes.com/athletic/6063634/2025/01/15/celtic-rangers-join-wsl/
+
 **It’s a Good (Great?) Time to Be a Big Bank**\
 `The largest banks, including JPMorgan Chase, Wells Fargo and Goldman Sachs, reported bumper profits on Wednesday.`\
 https://nytimes.com/2025/01/15/business/bank-earnings-goldman-jpmorgan-chase-wells-fargo.html

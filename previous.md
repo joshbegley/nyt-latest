@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/15/business/bank-earnings-goldman-jpmorgan-chase-wel
 
 **Here’s what to know about Bondi’s confirmation hearing.**\
 `By Andrés R. Martínez`\
-https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/heres-what-to-know-about-bondis-confirmation-hearing
+https://nytimes.com/2025/01/15/us/politics/heres-what-to-know-about-bondis-confirmation-hearing.html
 
 **Deconstructing Nuno-ball - and why it's more sophisticated than you think**\
 `The intricacies of Forest's offensive approach and passing could comfortably rival the best sides in the country.`\
@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6063620/2025/01/15/forest-counterattacking-nuno-tac
 `There are no glaring weaknesses in the Golden Knights to this point as they sit atop the division again.`\
 https://nytimes.com/athletic/6062548/2025/01/15/golden-knights-players-analysis-grades/
 
-**Rangers and Celtic joining WSL would boost the brand but damage the sport**\
-`Scottish clubs' moving south would appease the accountants but damage both leagues `\
+**Celtic and Rangers joining the WSL would boost its brand but damage women's football**\
+`The two Scottish clubs moving south to play in the English league would please the accountants but damage both competitions`\
 https://nytimes.com/athletic/6063634/2025/01/15/celtic-rangers-join-wsl/
 
 **Live Updates: Trump’s Attorney General Pick to Face Questions Over Lobbying**\
