@@ -1,3 +1,11 @@
+**Here’s what to know about Rubio’s confirmation hearing.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/01/15/us/rubio-confirmation-secretary-state/heres-what-to-know-about-rubios-confirmation-hearing
+
+**Mister C.E.O. Goes to Washington**\
+`Billionaire business leaders, including Mark Zuckerberg, Jeff Bezos and Elon Musk, plan to make prominent appearances at Donald Trump’s inauguration next week.`\
+https://nytimes.com/2025/01/15/business/dealbook/zuckerberg-bezos-trump-inauguration.html
+
 **Amick: Will the Chicago Bulls trade Zach LaVine and others or stay in the murky middle?**\
 `What should we expect from Jimmy Butler rejoining the Heat this week? And why Oklahoma City should be feeling thankful.`\
 https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6063572/2025/01/15/manchester-city-brentford-tactic
 **Jayden Daniels steps up on big stage, more wild-card weekend thoughts: Quick Outs**\
 `Daniels wasn't perfect, but he found a way when it counted. Plus, a look at Buffalo's go-to personnel package and a key Philadelphia injury.`\
 https://nytimes.com/athletic/6062309/2025/01/15/nfl-wild-card-weekend-jayden-daniels-quick-outs/
-
-**Ben Johnson the leader in the clubhouse? Might the Raiders have a GM partner picked out?**\
-`Minority owner Tom Brady could bump into some of the Raiders' top coaching and GM candidates before his broadcast this weekend in Detroit.`\
-https://nytimes.com/athletic/6061947/2025/01/15/raiders-coach-gm-search-ben-johnson-tom-brady/
-
-**Broncos mock draft reaction: Why Ashton Jeanty could jolt Sean Payton's offense**\
-`The Broncos have a glaring need for a three-down running back and the Heisman Trophy runner-up could be a first-round option.`\
-https://nytimes.com/athletic/6061714/2025/01/15/ashton-jeanty-denver-broncos-mock-draft/
 
