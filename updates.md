@@ -1,3 +1,11 @@
+**Canucks midseason report cards: Grading every Vancouver defender and goalie's performance**\
+`The Canucks have largely failed to build on their success of 2023-24. How do the defence and goaltending grade out at the halfway point?`\
+https://nytimes.com/athletic/6062243/2025/01/15/canucks-nhl-defense-goalies-report-cards-2025/
+
+**Amorim expecting to learn more about Man United players against Southampton**\
+`Ruben Amorim is expecting to find out more about his Manchester United players against Southampton than he did in games with Liverpool and Arsenal.`\
+https://nytimes.com/athletic/6063810/2025/01/15/manchester-united-southampton-ruben-amorim/
+
 **Inflation Sped Up in December, a Fresh Challenge for the Fed**\
 `The Consumer Price Index rose 2.9 percent from a year earlier, but a measure of underlying inflation was more encouraging.`\
 https://nytimes.com/2025/01/15/business/inflation-december-economy.html
