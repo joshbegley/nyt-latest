@@ -1,3 +1,15 @@
+**MoneyCall: New contender for women’s hoops $$$**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6063065/2025/01/15/unrivaled-womens-basketball-moneycall-newsletter/
+
+**White House Advances Last-Minute Push to Cut Nicotine in Cigarettes**\
+`In the final days of the Biden administration, the F.D.A. is moving ahead with a proposal to require companies to produce a less addictive product for traditional smokers.`\
+https://nytimes.com/2025/01/15/health/fda-cigarettes-low-nicotine.html
+
+**A night with the London Bills Backers: 'You're part of the family here'**\
+`In a London pub, Bills fans from both sides of the Atlantic have founded a spiritual home`\
+https://nytimes.com/athletic/6060816/2025/01/15/buffalo-bills-london-supporters-fans/
+
 **5 NBA teams in flux: What it means for Jimmy Butler, Brandon Ingram and fantasy basketball**\
 `Eric Wong identifies five teams likely to shake it up in the second half of the NBA season and what it'll mean for fantasy basketball.`\
 https://nytimes.com/athletic/6062640/2025/01/15/5-nba-teams-in-flux-what-it-means-for-jimmy-butler-brandon-ingram-and-fantasy-basketball/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/6062640/2025/01/15/5-nba-teams-in-flux-what-it-mean
 https://nytimes.com/live/2025/01/15/us/fires-los-angeles-california/governor-newsom-faults-republicans-who-want-strings-attached-to-aid
 
 **Australian Open day 4: Carlos Alcaraz cruises, Belinda Bencic comeback rolls on**\
-`The first day of the second round brought more fascinating stories around Melbourne Park.`\
+`The first day of the second round brought more fascinating stories around Melbourne Park`\
 https://nytimes.com/athletic/5724748/2025/01/15/australian-open-carlos-alcaraz-serve/
 
 **Colts to host NFL's first-ever regular-season game in Berlin**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/15/opinion/girls-gone-wild-meta-social-media.html
 **How to Create a Multimedia Digital Journal of Your Life**\
 `People have been keeping personal diaries for several millenniums, but free smartphone apps now let you capture much more than words.`\
 https://nytimes.com/2025/01/15/technology/personaltech/how-to-journal-on-your-phone.html
-
-**Who is Marco Rubio?**\
-`By Annie Karni`\
-https://nytimes.com/live/2025/01/15/us/rubio-confirmation-secretary-state/who-is-marco-rubio
-
-**She Is in Love With ChatGPT**\
-`A 28-year-old woman with a busy social life spends hours on end talking to her A.I. boyfriend for advice and consolation. And yes, they do have sex.`\
-https://nytimes.com/2025/01/15/technology/ai-chatgpt-boyfriend-companion.html
-
-**Our Only Friends Went Away for the Weekend Without Us. We’re Hurt!**\
-`Adjusting to life in a new city, a couple was stung to learn that the only people they know in town, the husband’s childhood friends, didn’t invite them on a recent getaway.`\
-https://nytimes.com/2025/01/15/style/friends-trip-getaway-jealousy.html
 

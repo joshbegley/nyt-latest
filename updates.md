@@ -1,3 +1,19 @@
+**MoneyCall: New contender for women’s hoops $$$**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6063065/2025/01/15/unrivaled-womens-basketball-moneycall-newsletter/
+
+**White House Advances Last-Minute Push to Cut Nicotine in Cigarettes**\
+`In the final days of the Biden administration, the F.D.A. is moving ahead with a proposal to require companies to produce a less addictive product for traditional smokers.`\
+https://nytimes.com/2025/01/15/health/fda-cigarettes-low-nicotine.html
+
+**A night with the London Bills Backers: 'You're part of the family here'**\
+`In a London pub, Bills fans from both sides of the Atlantic have founded a spiritual home`\
+https://nytimes.com/athletic/6060816/2025/01/15/buffalo-bills-london-supporters-fans/
+
+**Australian Open day 4: Carlos Alcaraz cruises, Belinda Bencic comeback rolls on**\
+`The first day of the second round brought more fascinating stories around Melbourne Park`\
+https://nytimes.com/athletic/5724748/2025/01/15/australian-open-carlos-alcaraz-serve/
+
 **5 NBA teams in flux: What it means for Jimmy Butler, Brandon Ingram and fantasy basketball**\
 `Eric Wong identifies five teams likely to shake it up in the second half of the NBA season and what it'll mean for fantasy basketball.`\
 https://nytimes.com/athletic/6062640/2025/01/15/5-nba-teams-in-flux-what-it-means-for-jimmy-butler-brandon-ingram-and-fantasy-basketball/
