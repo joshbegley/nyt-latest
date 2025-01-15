@@ -1,3 +1,7 @@
+**Browns sued by city of Cleveland over plans to move to new stadium**\
+`The city alleges in the lawsuit that the Browns' plans to move to Brook Park would violate Ohio's Modell Law.`\
+https://nytimes.com/athletic/6064519/2025/01/15/cleveland-stadium-lawsuit-browns/
+
 **Thursday Briefing: A Gaza Cease-Fire Deal**\
 `Plus, ancient Celtic gender roles.`\
 https://nytimes.com/2025/01/15/briefing/israel-hamas-cease-fire-senate-hearings-yoon-detainment-korea.html
