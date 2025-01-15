@@ -1,3 +1,7 @@
+**Chelsea activate clause to recall Chalobah from Palace loan**\
+`Chelsea have activated a clause to recall Trevoh Chalobah from his loan spell at Crystal Palace.`\
+https://nytimes.com/athletic/6063549/2025/01/15/chelsea-trevoh-chalobah-loan-recall/
+
 **Bears 2024 offense: Inside the numbers of what went wrong, what provides hope**\
 `The Bears offense got worse in 2024 despite a better collection of players. Here's what the stats say about the struggles.`\
 https://nytimes.com/athletic/6062287/2025/01/15/bears-2024-offense-dj-moore-dandre-swift/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063181/2025/01/15/maple-leafs-concern-o-metre-losi
 **How Ryan Hartman snapped out of slump, plus what's holding up Kirill Kaprizov?: Wild notes**\
 `The Wild's superstar winger hasn't played a game in over three weeks while dealing with a lower-body injury.`\
 https://nytimes.com/athletic/6062672/2025/01/15/wild-ryan-hartman-kirill-kaprizov-injury/
-
-**What Nakobe Dean's season-ending injury means for the Eagles**\
-`With defensive signal caller Dean done for the postseason with a patellar tendon injury, who will step up in Vic Fangio's defense?`\
-https://nytimes.com/athletic/6061656/2025/01/15/nakobe-dean-eagles-patellar-injury-playoffs/
 

@@ -1,3 +1,7 @@
+**Chelsea activate clause to recall Chalobah from Palace loan**\
+`Chelsea have activated a clause to recall Trevoh Chalobah from his loan spell at Crystal Palace.`\
+https://nytimes.com/athletic/6063549/2025/01/15/chelsea-trevoh-chalobah-loan-recall/
+
 **The generational shift in men's tennis comes to the Australian Open**\
 `The Australian Open showcases a crop of young men's players who are better equipped for the changes in tennis than their elders.`\
 https://nytimes.com/athletic/6063467/2025/01/15/mens-tennis-generations-australian-open/
