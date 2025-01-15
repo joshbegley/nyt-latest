@@ -1,3 +1,7 @@
+**NCAA approves pay for women's basketball teams in tournament**\
+`The unanimous vote by NCAA membership (292-0) was met with applause on Wednesday.`\
+https://nytimes.com/athletic/6065210/2025/01/15/ncaa-march-madness-financial-units-vote/
+
 **Canada Readies Billions of Dollars in Retaliatory Moves to Trump Tariff Threat**\
 `The government is preparing for the possibility that the incoming U.S. administration will impose high tariffs on Canadian goods, setting the close allies up for a showdown.`\
 https://nytimes.com/2025/01/15/world/canada/canada-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6065124/2025/01/15/suns-hornets-trade-nick-richards
 **The leaders of Britain and France say the deal should be the basis for a long- term political settlement.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/britain-france-cease-fire-reaction
-
-**Even Homes That Evade the Fire Face Toxic Ash Risk, Studies Show**\
-`Health hazards from soot and smoke blown indoors onto furniture and walls can linger for months: “Wind will get through every crack.”`\
-https://nytimes.com/2025/01/15/climate/wildfire-smoke-indoors.html
 
