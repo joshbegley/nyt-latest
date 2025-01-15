@@ -1,3 +1,11 @@
+**Donyell Malen to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at the Dutch forward's move from Dortmund.`\
+https://nytimes.com/athletic/6033354/2025/01/15/donyell-malen-to-aston-villa-the-athletic-500-transfer-ratings/
+
+**Toby Collyer's cameo against Arsenal suggests he has the energy and athleticism Amorim desires**\
+`Manchester United's need for greater physicality under their new manager could suit the versatile Collyer`\
+https://nytimes.com/athletic/6051914/2025/01/15/toby-collyer-energy-manchester-united-amorim/
+
 **What's eating Arsenal?**\
 `Our Arsenal writers examine the problems up front, concerns over transfer strategy, injury issues and the atmosphere among the fanbase.`\
 https://nytimes.com/athletic/6061395/2025/01/15/arsenal-arteta-transfers-zubimendi/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6050109/2025/01/15/arteta-postecoglou-footballing-p
 **Never go back? For managers like David Moyes, where's the fun in that?**\
 `Football is filled with cautionary tales of managers who failed to shine after returning to a former club - but does that really matter?`\
 https://nytimes.com/athletic/6060947/2025/01/15/david-moyes-managers-returning-everton/
-
-**High-tempo, all-action Bournemouth are what Premier League football in 2025 is all about**\
-`Andoni Iraola has created a side who have channelled aggression and verticality into an assault on the Champions League places `\
-https://nytimes.com/athletic/6061809/2025/01/15/bournemouth-high-tempo-premier-league-football/
-
-**Olmo, Raphinha's comments and Qatari cash: What Barca president Laporta said on Tuesday - and what it means**\
-`Barcelona club president Laporta's comments at a Tuesday press conference dissected and analysed`\
-https://nytimes.com/athletic/6062056/2025/01/15/what-joan-laporta-said-and-what-it-means-olmos-situation-raphinhas-comments-and-qatari-cash/
 
