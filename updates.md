@@ -1,3 +1,7 @@
+**The Pulse: We're all waiting on one MLB signing**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6061731/2025/01/15/roki-sasaki-dodgers-padres-blue-jays-the-pulse/
+
 **Why Biden May Matter**\
 `We explore the president’s legacy.`\
 https://nytimes.com/2025/01/15/briefing/joe-biden-legacy.html
