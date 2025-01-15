@@ -1,3 +1,15 @@
+**Bob Iger on Disney’s relief efforts: ‘Can we help in setting up temporary schools?’**\
+`Mr. Iger, the company’s chief executive, said Disney wants to be part of the rebuilding effort in Los Angeles.`\
+https://nytimes.com/live/2025/01/14/us/fires-los-angeles-california/bob-iger-on-disneys-relief-efforts-can-we-help-in-setting-up-temporary-schools
+
+**Matthew Sluka, ex-UNLV QB who left amid NIL dispute, signs with JMU**\
+`The move reunites Sluka with his former coach, Bob Chesney.`\
+https://nytimes.com/athletic/6062643/2025/01/14/matthew-sluka-jmu-football-nil/
+
+**Mavs' Kyrie Irving set to return after 5-game absence**\
+`Irving's return provides a boost to the Mavericks, who are just 3-7 since star Luka Dončić went down with a calf injury.`\
+https://nytimes.com/athletic/6062359/2025/01/14/kyrie-irving-injury-return-status-mavericks/
+
 **Fires Continue to Burn One Week Later in California**\
 `The Palisades and Eaton fires, ravaging Los Angeles for more than a week, remain mostly uncontained by firefighters.`\
 https://nytimes.com/video/us/100000009927114/southern-california-wildfires.html
