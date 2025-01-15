@@ -1,3 +1,11 @@
+**Two Private Moon Landers Are Launching at Once: What to Know**\
+`Robotic vehicles from Firefly Aerospace of Texas and Ispace of Japan will part ways early Wednesday after launching from the same SpaceX rocket. Both are aiming for the lunar surface.`\
+https://nytimes.com/2025/01/14/science/nasa-spacex-launch-lunar-landers.html
+
+**U.S. Won’t Bring Charges Against Officers in Death of Ronald Greene**\
+`Investigators found insufficient evidence to federally charge the surviving officers in the encounter, in which a Black driver was pulled over, dragged, beaten and shocked.`\
+https://nytimes.com/2025/01/14/us/ronald-greene-death-federal-prosecutors-charges.html
+
 **Joni Ernst Says She Will Vote to Confirm Pete Hegseth**\
 `The Iowa Republican’s decision dramatically increases the likelihood that Mr. Hegseth will have enough votes to be confirmed as President-elect Donald J. Trump’s defense secretary.`\
 https://nytimes.com/2025/01/14/us/politics/joni-ernst-pete-hegseth-confirmation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6062359/2025/01/14/kyrie-irving-injury-return-statu
 **Fires Continue to Burn One Week Later in California**\
 `The Palisades and Eaton fires, ravaging Los Angeles for more than a week, remain mostly uncontained by firefighters.`\
 https://nytimes.com/video/us/100000009927114/southern-california-wildfires.html
-
-**In Parts of Los Angeles, Life Carries On but Is Hardly Normal**\
-`While many Angelenos have been devastated by the fires, others in the sprawling city have had to balance helping out with “normal life.”`\
-https://nytimes.com/2025/01/14/us/los-angeles-residents-fires.html
-
-**Tuesday’s Winds Didn’t Reach Their Predicted Speeds, but Wednesday’s Might**\
-`On Tuesday afternoon, forecasters at the National Weather Service dropped their most severe warnings for the rest of the day. But the alerts will be back in place early Wednesday.`\
-https://nytimes.com/2025/01/14/weather/la-fires-winds-forecast.html
 

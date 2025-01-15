@@ -1,3 +1,11 @@
+**Two Private Moon Landers Are Launching at Once: What to Know**\
+`Robotic vehicles from Firefly Aerospace of Texas and Ispace of Japan will part ways early Wednesday after launching from the same SpaceX rocket. Both are aiming for the lunar surface.`\
+https://nytimes.com/2025/01/14/science/nasa-spacex-launch-lunar-landers.html
+
+**U.S. Won’t Bring Charges Against Officers in Death of Ronald Greene**\
+`Investigators found insufficient evidence to federally charge the surviving officers in the encounter, in which a Black driver was pulled over, dragged, beaten and shocked.`\
+https://nytimes.com/2025/01/14/us/ronald-greene-death-federal-prosecutors-charges.html
+
 **Joni Ernst Says She Will Vote to Confirm Pete Hegseth**\
 `The Iowa Republican’s decision dramatically increases the likelihood that Mr. Hegseth will have enough votes to be confirmed as President-elect Donald J. Trump’s defense secretary.`\
 https://nytimes.com/2025/01/14/us/politics/joni-ernst-pete-hegseth-confirmation.html
