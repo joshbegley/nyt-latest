@@ -1,3 +1,11 @@
+**Here’s what to know about Rubio’s confirmation hearing.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/01/15/us/rubio-confirmation-secretary-state/heres-what-to-know-about-rubios-confirmation-hearing
+
+**Mister C.E.O. Goes to Washington**\
+`Billionaire business leaders, including Mark Zuckerberg, Jeff Bezos and Elon Musk, plan to make prominent appearances at Donald Trump’s inauguration next week.`\
+https://nytimes.com/2025/01/15/business/dealbook/zuckerberg-bezos-trump-inauguration.html
+
 **Amick: Will the Chicago Bulls trade Zach LaVine and others or stay in the murky middle?**\
 `What should we expect from Jimmy Butler rejoining the Heat this week? And why Oklahoma City should be feeling thankful.`\
 https://nytimes.com/athletic/6063464/2025/01/15/bulls-zach-lavine-nikola-vucevic-trade/
