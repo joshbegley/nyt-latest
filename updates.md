@@ -1,3 +1,11 @@
+**Inflation Sped Up in December, a Fresh Challenge for the Fed**\
+`The Consumer Price Index rose 2.9 percent from a year earlier, but a measure of underlying inflation was more encouraging.`\
+https://nytimes.com/2025/01/15/business/inflation-december-economy.html
+
+**Newcastle reject £11m Fenerbahce bid for Lloyd Kelly**\
+`Newcastle United have rejected an £11million ($13.`\
+https://nytimes.com/athletic/6063427/2025/01/15/lloyd-kelly-fenerbahce-newcastle-transfers/
+
 **Here’s what to know about Bondi’s confirmation hearing.**\
 `By Andrés R. Martínez`\
 https://nytimes.com/2025/01/15/us/politics/heres-what-to-know-about-bondis-confirmation-hearing.html
