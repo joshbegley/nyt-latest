@@ -1,3 +1,19 @@
+**Heat Today: 3 reasons why an awkward Jimmy Butler return makes sense for both sides**\
+`Tensions are high, but Butler can bolster his own market by playing well for Miami when his suspension ends after Wednesday's game in LA. `\
+https://nytimes.com/athletic/6064228/2025/01/15/jimmy-butler-pat-riley-heat-trade-dwyane-wade-lebron-james-nba/
+
+**Pete Hegseth’s ‘Deeply Troubling’ Nomination**\
+`Readers say he lacks the qualifications and integrity to be defense secretary. Also: Heroism amid the tragedy in L.A.; alone in an empty church.`\
+https://nytimes.com/2025/01/15/opinion/pete-hegseth-nomination.html
+
+**Washington Post Employees Plead for a Summit With Jeff Bezos**\
+`In a letter, more than 400 employees asked Mr. Bezos, the company’s owner, to meet, saying they were “deeply alarmed” by recent decisions at the paper.`\
+https://nytimes.com/2025/01/15/business/media/washington-post-employees-jeff-bezos-letter.html
+
+**Bondi may set the tone for how other Trump lawyers handle confirmation questions.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/01/15/us/bondi-confirmation-attorney-general/bondi-may-set-the-tone-for-how-other-trump-lawyers-handle-confirmation-questions
+
 **Ramaswamy Has a High-Profile Perch and a Raft of Potential Conflicts**\
 `Vivek Ramaswamy, Elon Musk’s partner in an effort to cut government costs, could make decisions that ultimately make him and his investors richer.`\
 https://nytimes.com/2025/01/15/us/politics/vivek-ramaswamy-potential-conflicts.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/15/nyregion/nypd-comissioner-jessica-tisch.html
 **Explained: Crystal Palace shareholders' £37.5m cash injection**\
 `Crystal Palace look set to enter the transfer market after their shareholders injected £37.`\
 https://nytimes.com/athletic/6064210/2025/01/15/crystal-palace-transfers-capital/
-
-**The current deal on the table is similar to one pushed by President Biden in May, officials say.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/the-current-deal-on-the-table-is-similar-to-one-pushed-by-president-biden-in-may-officials-say
-
-**Texas QB Quinn Ewers declares for 2025 NFL Draft**\
-`The decision was largely expected after Ewers told ESPN last week that he didn’t plan to return to college football in 2025.`\
-https://nytimes.com/athletic/6061009/2025/01/15/quinn-ewers-nfl-draft-decision-texas/
-
-**Zuckerberg Will Host a Party for Trump’s Inauguration**\
-`Mark Zuckerberg, the Meta chief executive, is one of several tech leaders expected to play a high-profile role in celebrating the new administration next week.`\
-https://nytimes.com/2025/01/15/us/politics/mark-zuckerberg-donald-trump-inauguration.html
-
-**Texan private equity firm completes Hellas Verona takeover**\
-`Hellas Verona have become the latest Serie A club to be taken over by an American consortium.`\
-https://nytimes.com/athletic/6064173/2025/01/15/hellas-verona-takeover-presidio-investors/
 
