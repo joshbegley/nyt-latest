@@ -35,6 +35,6 @@ https://nytimes.com/2025/01/15/world/europe/ukraine-russia-missile-attack-energy
 https://nytimes.com/2025/01/15/learning/word-of-the-day-emporium.html
 
 **Another penalty conceded suggests structural problems with Maresca's Chelsea**\
-`The penalty conceded against Bournemouth was the sixth given away by Chelsea this season and suggests a systemic issue`\
+`The penalty conceded against Bournemouth was the sixth given away by Chelsea this season. It suggests a deep-lying issue`\
 https://nytimes.com/athletic/6062980/2025/01/15/chelsea-bournemouth-penalty/
 
