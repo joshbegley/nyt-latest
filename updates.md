@@ -1,3 +1,23 @@
+**What Trevor Chalobah's return means for Chelsea - and for him**\
+`Chalobah was reluctant to return to simply make up the numbers in Maresca's squad. He has been assured that he has a role to play`\
+https://nytimes.com/athletic/6064937/2025/01/16/trevor-chalobah-return-chelsea-palace-analysis/
+
+**Vitor Reis is a calm and composed defensive leader - there are echoes of John Stones**\
+`The 19-year-old already has an unerring habit of stepping up and taking everything in his stride`\
+https://nytimes.com/athletic/6060827/2025/01/16/vitor-reis-manchester-city-transfer-analysis-stones/
+
+**Iowa State shows Kansas how to be a money team without spending big cash**\
+`Though the Cyclones haven't signed huge names in the transfer portal, their 74-57 win was a sign they got the right ones.`\
+https://nytimes.com/athletic/6065749/2025/01/16/iowa-state-kansas-basketball-transfer-portal/
+
+**Nottingham Forest's name is unique - and its origin isn't (quite) what you think**\
+`Unlike many names in English football, Nottingham Forest stands out. The origin, for this trailblazing club, is not what you might think`\
+https://nytimes.com/athletic/6061679/2025/01/16/why-called-nottingham-forest/
+
+**Meet Japan’s Original Decluttering Guru (No, Not That One)**\
+`Before Marie Kondo stormed into the global consciousness, Hideko Yamashita taught Japan the art of creating tidier spaces.`\
+https://nytimes.com/2025/01/16/business/hideko-yamashita-decluttering-danshari.html
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/16/briefing/israel-hamas-poland-russia.html
