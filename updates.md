@@ -1,3 +1,7 @@
+**Heat Today: Despite up-and-down road trip, Tyler Herro remains confident in Heat's youthful core**\
+`Despite an inconsistent six-game road trip, Tyler Herro and Bam Adebayo saw promising flashes from Miami's younger players`\
+https://nytimes.com/athletic/6067127/2025/01/16/tyler-herro-kelel-ware-bam-adebayo-jimmy-butler-heat-nba/
+
 **Reality TV Takes Washington (Again)**\
 `It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
 https://nytimes.com/2025/01/16/opinion/sean-duffy-reality-tv-nomination.html
