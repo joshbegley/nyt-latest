@@ -1,3 +1,7 @@
+**David Lynch, ‘Twin Peaks’ and the American Art of Television**\
+`“Twin Peaks” was his ultimate portrait of a land of terror and beauty.`\
+https://nytimes.com/2025/01/16/arts/television/david-lynch-twin-peaks.html
+
 **Eric Adams Heads to Mar-a-Lago to Meet With Trump**\
 `The New York mayor, who is under federal indictment, has spoken warmly about President-elect Donald J. Trump in recent weeks and has said he is open to receiving a pardon from him.`\
 https://nytimes.com/2025/01/16/nyregion/eric-adams-trump-mar-a-lago.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/us/state-farm-insurance-renewals-la-fires.html
 **Wendy Williams Breaks Silence on Guardianship: ‘I Feel Like I am in Prison’**\
 `The former daytime host, who has been diagnosed with dementia, said in an interview on “The Breakfast Club” that she was “not cognitively impaired” and spoke about her life in a care facility.`\
 https://nytimes.com/2025/01/16/arts/wendy-williams-guardianship.html
-
-**Apple Plans to Disable A.I. Features Summarizing News Notifications**\
-`The company’s Apple Intelligence system has erroneously characterized news stories, provoking a backlash from media companies.`\
-https://nytimes.com/2025/01/16/technology/apple-ai-news-notifications.html
 

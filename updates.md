@@ -1,3 +1,7 @@
+**David Lynch, ‘Twin Peaks’ and the American Art of Television**\
+`“Twin Peaks” was his ultimate portrait of a land of terror and beauty.`\
+https://nytimes.com/2025/01/16/arts/television/david-lynch-twin-peaks.html
+
 **Eric Adams Heads to Mar-a-Lago to Meet With Trump**\
 `The New York mayor, who is under federal indictment, has spoken warmly about President-elect Donald J. Trump in recent weeks and has said he is open to receiving a pardon from him.`\
 https://nytimes.com/2025/01/16/nyregion/eric-adams-trump-mar-a-lago.html
