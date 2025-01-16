@@ -1,3 +1,19 @@
+**Jaden Philogene to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Jaden Philogene's move to Ipswich Town`\
+https://nytimes.com/athletic/6049966/2025/01/16/jaden-philogene-ipswich-transfer-rating/
+
+**Chiefs defense at full strength for the playoffs with the return of Jaylen Watson**\
+`Saturday’s divisional-round game is expected to be the first that includes all 18 of the unit’s starting and rotational players.`\
+https://nytimes.com/athletic/6065407/2025/01/16/chiefs-defense-playoffs-jaylen-watson/
+
+**Jimmy Butler? De’Aaron Fox? Who Rockets could be targeting at NBA trade deadline**\
+`Kelly Iko talks to John Hollinger about what makes sense for the Rockets to do at the trade deadline — if anything.`\
+https://nytimes.com/athletic/6063308/2025/01/16/rockets-nba-trade-deadline-jimmy-butler-deaaron-fox/
+
+**Marcus Freeman's championship-level Notre Dame staff has extensive Cincinnati roots**\
+`Freeman and nine other Notre Dame staff members formerly worked at Cincinnati.`\
+https://nytimes.com/athletic/6062099/2025/01/16/notre-dame-football-marcus-freeman-cincinnati/
+
 **What to Know About the Cease-Fire Deal, and Biden Warns the Nation**\
 `Plus, Drake sues his own music label.`\
 https://nytimes.com/2025/01/16/podcasts/gaza-ceasefire-what-to-know.html
