@@ -1,3 +1,7 @@
+**Martin Truex Jr. enters Daytona 500, teams up with Tricon Garage**\
+`Truex must either post a fast speed in qualifying or secure the transfer position in his qualifying race to claim a spot in Daytona.`\
+https://nytimes.com/athletic/6066901/2025/01/16/martin-truex-jr-daytona-500-entry/
+
 **Scoop City: Key injuries for each divisional team**\
 `A quick list of injuries impacting the divisional round, plus reader thoughts on Deion-to-Dallas, stories of Josh Allen`\
 https://nytimes.com/athletic/6066925/2025/01/16/nfl-key-injuries-divisional-round-playoffs-zay-flowers-scoop-city/

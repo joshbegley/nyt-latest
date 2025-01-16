@@ -1,3 +1,7 @@
+**Martin Truex Jr. enters Daytona 500, teams up with Tricon Garage**\
+`Truex must either post a fast speed in qualifying or secure the transfer position in his qualifying race to claim a spot in Daytona.`\
+https://nytimes.com/athletic/6066901/2025/01/16/martin-truex-jr-daytona-500-entry/
+
 **Scoop City: Key injuries for each divisional team**\
 `A quick list of injuries impacting the divisional round, plus reader thoughts on Deion-to-Dallas, stories of Josh Allen`\
 https://nytimes.com/athletic/6066925/2025/01/16/nfl-key-injuries-divisional-round-playoffs-zay-flowers-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066415/2025/01/16/ja-morant-victor-wembanyama-lebr
 **A First-Day Trump Order: A Federal Stockpile of Bitcoin?**\
 `The cryptocurrency industry has pushed President-elect Donald J. Trump to establish one, creating real political momentum behind the plan.`\
 https://nytimes.com/2025/01/16/technology/trump-bitcoin-stockpile.html
-
-**All the Usual Backstabbing and Big Commissions. This Time in Manhattan.**\
-`“Selling the City,” the newest offshoot of the “Selling Sunset” franchise, features a team of real estate professionals dedicated to breaking records and to building empires.`\
-https://nytimes.com/2025/01/16/realestate/selling-the-city-eleonora-jade-steve.html
 
