@@ -1,3 +1,7 @@
+**Marco Rubio Faces Senate Committee Hearing**\
+`Senator Marco Rubio received a relatively friendly welcome from both sides at his confirmation hearing for secretary of state.`\
+https://nytimes.com/video/us/politics/100000009929169/marco-rubio-committee-confirmation-hearing.html
+
 **What to Know About the Gaza Cease-Fire**\
 `Israel and Hamas have agreed to a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009928442/what-to-know-about-the-gaza-cease-fire.html
