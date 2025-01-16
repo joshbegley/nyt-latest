@@ -1,3 +1,7 @@
+**Topps institutes ban against using 'intrusive devices' on trading card packages**\
+`Topps takes first action against efforts to subvert blind packaging `\
+https://nytimes.com/athletic/6067812/2025/01/16/topps-ct-scanning-trading-cards/
+
 **CAS' status as sport's supreme court is questioned - and why this is significant**\
 `An expert at the European Union’s highest court has questioned whether Court of Arbitration for Sport (CAS) verdicts really should be the last word in sports rows, potentially overturning a system that has worked across sport since 1984.`\
 https://nytimes.com/athletic/6067915/2025/01/16/cas-sport-court-verdicts-fifa/
