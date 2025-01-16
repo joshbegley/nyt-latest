@@ -1,3 +1,7 @@
+**Johnson Ousts Turner as Intelligence Chairman, Bowing to Trump**\
+`Representative Michael R. Turner, Republican of Ohio, had at times been critical of the president-elect. He told people that he was axed after an edict from Mar-a-Lago.`\
+https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
+
 **New York Judge Deems Alexander Brothers Flight Risk, Denies Bail**\
 `Oren, Tal and Alon Alexander will be extradited from Miami to New York, where they will remain in federal detention until trial.`\
 https://nytimes.com/2025/01/15/realestate/alexander-brothers-bail-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/students
 **In a ‘Show Boat’ Reboot, Ol’ Man River Gets an Extreme Makeover**\
 `“Show/Boat: A River” reverses the racial lens on the great-grandfather of American musicals.`\
 https://nytimes.com/2025/01/15/theater/show-boat-under-the-radar.html
-
-**Biden and Trump Defy Their History of Animosity to Seal Gaza Cease-Fire**\
-`But the extraordinary collaboration between outgoing and incoming presidents did not stop both sides from claiming credit.`\
-https://nytimes.com/2025/01/15/us/politics/biden-and-trump-defy-their-history-of-animosity-to-seal-gaza-cease-fire.html
 
