@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/16/world/africa/sudan-chemical-weapons-sanctions.htm
 
 **Netanyahu Faces a Political Crisis Over the Gaza Cease-Fire Deal**\
 `With his far-right coalition partners refusing to end the war, Prime Minister Benjamin Netanyahu may soon have to choose between them or the agreement.`\
-https://nytimes.com/2025/01/16/world/middleeast/netanyahu-faces-a-political-crisis-over-the-gaza-cease-fire-deal.html
+https://nytimes.com/2025/01/16/world/middleeast/netanyahu-israel-cease-fire.html
 
 **I Read This Recipe, Then Immediately Made This Soup**\
 `Andy Baraghani’s chicken soup with red lentils and lemony yogurt is super easy, super flavorful and, well, just really super.`\
