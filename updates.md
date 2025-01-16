@@ -1,3 +1,15 @@
+**Cook steps down as Birmingham City CEO for 'personal reasons'**\
+`Garry Cook has stepped down from his role as Birmingham City&#8217;s CEO and his position on the club&#8217;s board.`\
+https://nytimes.com/athletic/6066202/2025/01/16/birmingham-city-garry-cook-resigns/
+
+**U.K. Leader Vows Long-Term Partnership With Ukraine on Kyiv Visit**\
+`Prime Minister Keir Starmer signaled continued solidarity, with further U.S. support in question under a second Trump administration.`\
+https://nytimes.com/2025/01/16/world/europe/uk-ukraine-starmer.html
+
+**How Many Hostages Remain in Gaza, and When Could They Be Released?**\
+`Citizens of Israel, the United States, Britain, Mexico, Thailand and other countries were among about 250 people abducted in the Oct. 7, 2023 raids into Israel.`\
+https://nytimes.com/2025/01/15/world/middleeast/israel-hostages-gaza-hamas.html
+
 **About 100 Hostages Remain in Gaza**\
 `Citizens of Israel, the United States, Britain, Mexico, Thailand and other countries were among about 250 people abducted in the Oct. 7, 2023 raids into Israel.`\
 https://nytimes.com/2025/01/15/world/middleeast/israel-hostages-gaza-hamas.html
