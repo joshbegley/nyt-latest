@@ -1,3 +1,7 @@
+**What Trump’s Treasury Pick Might Get Asked Today**\
+`Scott Bessent, a billionaire hedge fund manager, will likely face tough questions on tax cuts and tariffs — and how bond markets might check his economic agenda.`\
+https://nytimes.com/2025/01/16/business/dealbook/bessent-treasury-confirmation-hearing.html
+
 **For Novak Djokovic, the Australian Open is about to get real**\
 `The 24-time Grand Slam champion is a master of easing into majors. At every one, he has a match that lifts him up. Will this one be it?`\
 https://nytimes.com/athletic/6066082/2025/01/16/novak-djokovic-australian-open-tomas-machac/
