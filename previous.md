@@ -1,3 +1,7 @@
+**Nine key numbers behind Newcastle's record-equalling nine-game winning run**\
+`After an inconsistent start to the season, this run has Eddie Howe's side wondering just what can be achieved this year`\
+https://nytimes.com/athletic/6063489/2025/01/16/newcastle-wolves-nine-game-winning-run/
+
 **Word of the Day: presto**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/16/learning/word-of-the-day-presto.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/16/opinion/men-trump-voters-focus-group.
 **Wild felt they deserved better in loss to Oilers amid Marcus Johansson injury: 3 takeaways**\
 `The Wild held two separate leads before falling to Connor McDavid and the Oilers, losing their forward along the way.`\
 https://nytimes.com/athletic/6065159/2025/01/16/wild-mcdavid-johansson-injury-oilers/
-
-**A Fire Relief Effort by and for Teenage Girls**\
-`An eighth grader started a donation drive for teenagers whose homes burned in Los Angeles. Ariana Grande, Prince Harry, Meghan and others have chipped in.`\
-https://nytimes.com/2025/01/16/style/altadena-girls-california-wildfire-donations.html
 

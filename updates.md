@@ -1,3 +1,7 @@
+**Nine key numbers behind Newcastle's record-equalling nine-game winning run**\
+`After an inconsistent start to the season, this run has Eddie Howe's side wondering just what can be achieved this year`\
+https://nytimes.com/athletic/6063489/2025/01/16/newcastle-wolves-nine-game-winning-run/
+
 **Word of the Day: presto**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/16/learning/word-of-the-day-presto.html
