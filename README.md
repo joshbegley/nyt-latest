@@ -1,3 +1,11 @@
+**What to Know About the Ban on Red Dye No. 3 in Food**\
+`What does the science say about its health effects? What foods will be affected? And other common questions about the newly banned additive.`\
+https://nytimes.com/2025/01/16/well/red-dye-3-foods.html
+
+**Mets considering pivot from Pete Alonso, re-sign Jesse Winker to one-year deal: Sources**\
+`If the Mets continue down the road of pivoting from Alonso, look for them to spend more money on their bullpen.`\
+https://nytimes.com/athletic/6067564/2025/01/16/new-york-mets-pete-alonso-contract-negotiations-update/
+
 **Biden Administration Withdraws Protections for Endangered Whales**\
 `The proposed rules would have slowed more ships to prevent collisions with rare North Atlantic right whales.`\
 https://nytimes.com/2025/01/16/us/biden-administration-slow-ships-whales-proposal-withdraw.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/learning/what-teens-are-saying-about-barring-chil
 **What’s Going On in This Picture? | Jan. 27, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-picture-jan-27-2025.html
-
-**What’s Going On in This Graph? | Jan. 29, 2025**\
-`Lead poisoning can cause lower I.Q.s, behavioral problems and cardiovascular damage. How big of a problem is it worldwide?`\
-https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-graph-jan-29-2025.html
-
-**After waiving Tristan Jarry, what's next for the Penguins?**\
-`Let's take a look at what big decisions face Kyle Dubas, Mike Sullivan and the Penguins over the next couple of weeks.`\
-https://nytimes.com/athletic/6067485/2025/01/16/penguins-tristan-jarry-waivers-kyle-dubas/
 
