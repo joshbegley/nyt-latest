@@ -1,3 +1,7 @@
+**Defending Justin Herbert and more takeaways from Chargers' Jim Harbaugh, Joe Hortiz**\
+`Harbaugh on Herbert: “We did him a disservice and didn’t put him in the positions to be successful enough."`\
+https://nytimes.com/athletic/6065490/2025/01/15/chargers-justin-herbert-jim-harbaugh-joe-hortiz/
+
 **The Los Angeles Fires Burned Livelihoods, Too**\
 `For many service workers, a wealthy Los Angeles neighborhood represented an economic lifeline that the fires have now severed.`\
 https://nytimes.com/2025/01/15/us/fires-domestic-workers-day-laborers.html
