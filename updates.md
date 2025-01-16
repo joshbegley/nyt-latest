@@ -1,3 +1,11 @@
+**An Overnight Style Sensation, at 79**\
+`Larry Pennington, a fashionable former educator, was looking to share some advice on home décor and thrifting. He became an unlikely social media darling.`\
+https://nytimes.com/2025/01/16/style/larry-pennington-thrifting.html
+
+**The WSL Hall of Fame is a good start - but women's football must not forget its other contributors**\
+`Inductees want to ensure the players and coaches before them are remembered`\
+https://nytimes.com/athletic/6064465/2025/01/16/the-wsl-hall-of-fame-is-a-good-start-but-womens-football-mustnt-forget-its-other-contributors/
+
 **40 Big Ideas to Make New York City More Affordable**\
 `As the cost of living dominates politics, dozens of residents offered plans to bring down the price of housing, child care, transportation, cultural life and more.`\
 https://nytimes.com/interactive/2025/01/16/nyregion/nyc-affordable-ideas.html

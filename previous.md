@@ -1,3 +1,11 @@
+**An Overnight Style Sensation, at 79**\
+`Larry Pennington, a fashionable former educator, was looking to share some advice on home décor and thrifting. He became an unlikely social media darling.`\
+https://nytimes.com/2025/01/16/style/larry-pennington-thrifting.html
+
+**The WSL Hall of Fame is a good start - but women's football must not forget its other contributors**\
+`Inductees want to ensure the players and coaches before them are remembered`\
+https://nytimes.com/athletic/6064465/2025/01/16/the-wsl-hall-of-fame-is-a-good-start-but-womens-football-mustnt-forget-its-other-contributors/
+
 **40 Big Ideas to Make New York City More Affordable**\
 `As the cost of living dominates politics, dozens of residents offered plans to bring down the price of housing, child care, transportation, cultural life and more.`\
 https://nytimes.com/interactive/2025/01/16/nyregion/nyc-affordable-ideas.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/why-is-
 **Lemina's downfall at Wolves has been dramatic - and it seems there is no way back now**\
 `The midfielder was Wolves captain earlier this season but now wants to leave in January, a sad end to his time at Molineux`\
 https://nytimes.com/athletic/6065424/2025/01/16/mario-lemina-wolves-downfall/
-
-**How Blue Origin could beat SpaceX to the moon.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/how-blue-origin-could-beat-spacex-to-the-moon
-
-**LeBron James says he evacuated with family amid L.A. wildfires**\
-`"Personally, I’ve been off," the Lakers star said, adding that he's been staying in a hotel since evacuating Thursday night.`\
-https://nytimes.com/athletic/6065874/2025/01/16/lebron-los-angeles-wildfires-lakers/
 
