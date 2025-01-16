@@ -1,3 +1,11 @@
+**Genesis Invitational to be relocated due to Los Angeles wildfires**\
+`The event, hosted by Tiger Woods, is set to be played the week of Feb. 10, but the PGA Tour has not yet announced the substitute location.`\
+https://nytimes.com/athletic/6067754/2025/01/16/genesis-invitational-relocated-riviera-country-club-los-angeles-wildfires/
+
+**TikTok Changed How We Cook. What Changes When It’s Gone?**\
+`Ahead of a potential ban of the app, The Times spoke to 11 prominent food content creators about what is at stake.`\
+https://nytimes.com/2025/01/16/dining/tiktok-ban-cooking-food.html
+
 **Chicago Fire hold Neymar talks but MLS transfer for forward unlikely**\
 `The Chicago Fire have held discussions to sign Brazilian star Neymar, according to multiple sources who have been briefed on the talks, but a deal to bring the former Barcelona and PSG forward to the United States remains unlikely.`\
 https://nytimes.com/athletic/6064972/2025/01/16/neymar-chicago-fire-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/sports/baseball/tommy-brown-dead.html
 **Johnson Installs Crawford on Intelligence Panel, Pulling It Closer to Trump**\
 `The speaker replaced a Republican who had criticized the president-elect and broken with him on key issues, and who had drawn the ire and suspicion of those close to the president-elect.`\
 https://nytimes.com/2025/01/16/us/politics/rick-crawford-house-intelligence.html
-
-**General Motors Is Banned From Selling Driving Behavior Data for 5 Years**\
-`An investigation by the Federal Trade Commission determined that consumers had not been aware that the automaker was providing their driving information to data brokers.`\
-https://nytimes.com/2025/01/16/technology/general-motors-driving-data-settlement.html
-
-**Biden Tightens Cybersecurity Rules, Forcing Trump to Make a Choice**\
-`The president’s latest executive order accelerates the move to mandatory compliance by software providers. It may run afoul of the Trump mandate to deregulate.`\
-https://nytimes.com/2025/01/16/us/politics/biden-trump-cybersecurity.html
 
