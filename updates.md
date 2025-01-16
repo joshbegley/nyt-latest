@@ -1,3 +1,7 @@
+**Biden Delivers Farewell Address Packed With Warnings to Americans**\
+`Speaking from the Oval Office, the president warned of a rising oligarchy, a potential tech-industrial complex and the threat of the climate crisis in his farewell address to the nation.`\
+https://nytimes.com/video/us/politics/100000009929713/biden-farewell-address.html
+
 **Tacos, Water and ‘Homies’: A Gas Station Becomes a Uniquely L.A. Relief Site**\
 `Out of desperation and a need for social bonding, volunteers have banded together to help Altadena residents.`\
 https://nytimes.com/2025/01/15/us/tacos-gas-station-arco-los-angeles.html
