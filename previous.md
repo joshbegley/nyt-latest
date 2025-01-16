@@ -1,3 +1,7 @@
+**Azerbaijan’s Leader, Emboldened, Picks a Rare Fight With Putin**\
+`Russia’s president is said to have blamed birds or a Ukrainian drone for a Dec. 25 crash of an Azerbaijani plane. Azerbaijan says Russian air defenses were at fault.`\
+https://nytimes.com/2025/01/16/world/europe/russia-putin-azerbaijan-plane-crash.html
+
 **NFL insider playoff predictions: Coaches, execs pick divisional round winners**\
 `Two games were called by unanimous decision. Another was close. But Bills-Ravens has no overwhelming favorite. “It's the game of the year."`\
 https://nytimes.com/athletic/6064887/2025/01/16/nfl-insider-playoff-predictions-divisional-round-ravens-bills-lions-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064500/2025/01/16/ohio-state-notre-dame-michigan-f
 **On TikTok, Users Thumb Their Noses at Looming Ban**\
 `Ahead of a Supreme Court ruling, they are mocking U.S. national security concerns about the Chinese-owned app.`\
 https://nytimes.com/2025/01/16/business/tiktok-ban.html
-
-**Falcons mock draft reaction: Would another defensive lineman make sense?**\
-`The Athletic's Dane Brugler projects Atlanta taking Texas A&M defensive lineman Shemar Stewart with the 15th pick in the first round.`\
-https://nytimes.com/athletic/6064058/2025/01/16/falcons-mock-draft-reaction-shemar-stewart/
 
