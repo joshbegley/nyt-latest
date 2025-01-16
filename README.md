@@ -1,3 +1,11 @@
+**Cook steps down as Birmingham City CEO for 'personal reasons'**\
+`Garry Cook has stepped down from his role as Birmingham City&#8217;s CEO and his position on the club&#8217;s board.`\
+https://nytimes.com/athletic/6066202/2025/01/16/birmingham-city-garry-cook-resigns/
+
+**U.K. Leader Vows Long-Term Partnership With Ukraine on Kyiv Visit**\
+`Prime Minister Keir Starmer signaled continued solidarity, with further U.S. support in question under a second Trump administration.`\
+https://nytimes.com/2025/01/16/world/europe/uk-ukraine-starmer.html
+
 **Australian women's tennis looks to the future after a testing week in Melbourne**\
 `Three years after Ashleigh Barty won her home Grand Slam, there are no Australian women inside the top 100. A new crop wants to change that.`\
 https://nytimes.com/athletic/6063354/2025/01/16/australian-women-tennis-australian-open-ash-barty/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6044404/2025/01/16/nicolas-batum-rayan-rupert-bond-
 `What could get Tony Bennett back into coaching? How does Utah State remain a factor? Shall Iowa State party like it's 1944?`\
 https://nytimes.com/athletic/6065740/2025/01/16/college-basketball-acc-coaches-michigan/
 
-**About 100 Hostages Remain in Gaza**\
+**How Many Hostages Remain in Gaza, and When Could They Be Released?**\
 `Citizens of Israel, the United States, Britain, Mexico, Thailand and other countries were among about 250 people abducted in the Oct. 7, 2023 raids into Israel.`\
 https://nytimes.com/2025/01/15/world/middleeast/israel-hostages-gaza-hamas.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6049966/2025/01/16/jaden-philogene-ipswich-transfer
 **Chiefs defense at full strength for the playoffs with the return of Jaylen Watson**\
 `Saturday’s divisional-round game is expected to be the first that includes all 18 of the unit’s starting and rotational players.`\
 https://nytimes.com/athletic/6065407/2025/01/16/chiefs-defense-playoffs-jaylen-watson/
-
-**Jimmy Butler? De’Aaron Fox? Who Rockets could be targeting at NBA trade deadline**\
-`Kelly Iko talks to John Hollinger about what makes sense for the Rockets to do at the trade deadline — if anything.`\
-https://nytimes.com/athletic/6063308/2025/01/16/rockets-nba-trade-deadline-jimmy-butler-deaaron-fox/
-
-**Marcus Freeman's championship-level Notre Dame staff has extensive Cincinnati roots**\
-`Freeman and nine other Notre Dame staff members formerly worked at Cincinnati.`\
-https://nytimes.com/athletic/6062099/2025/01/16/notre-dame-football-marcus-freeman-cincinnati/
 
