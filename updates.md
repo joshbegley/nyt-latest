@@ -1,3 +1,11 @@
+**Deeper than a French connection: Why two NBA players, 16 years apart, share 'the same story'**\
+`As a kid, Rayan Rupert attended Nic Batum's basketball camp. As they face off on an NBA court, Batum says he has "become like my brother."`\
+https://nytimes.com/athletic/6044404/2025/01/16/nicolas-batum-rayan-rupert-bond-clippers-blazers/
+
+**Less than half the 250 hostages taken from Israel in 2023 remain in Gaza.**\
+`The abductees included citizens of Israel, the United States, Britain, Mexico, Thailand and other countries.`\
+https://nytimes.com/2025/01/15/world/middleeast/israel-hostages-gaza-hamas.html
+
 **College basketball mailbag: How many new ACC coaches next season? Reason to believe in Michigan?**\
 `What could get Tony Bennett back into coaching? How does Utah State remain a factor? Shall Iowa State party like it's 1944?`\
 https://nytimes.com/athletic/6065740/2025/01/16/college-basketball-acc-coaches-michigan/
