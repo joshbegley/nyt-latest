@@ -1,3 +1,7 @@
+**The Athletic FC: Newcastle, Isak put 'form' in formidable, Reynolds' latest venture**\
+`Today in TAFC: Newcastle are the form team with the form striker, will there be a Colombian version of Wrexham? Arsenal buoyed by derby win.`\
+https://nytimes.com/athletic/6066144/2025/01/16/newcastle-champions-league-isak/
+
 **Trump’s Housing Pick Will Face Questions to Define His Policy Stances**\
 `Scott Turner, a former pro football player and official during the first Trump administration, will make his case to lead the Department of Housing and Urban Development.`\
 https://nytimes.com/2025/01/16/us/politics/trump-scott-turner-housing-secretary-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066202/2025/01/16/birmingham-city-garry-cook-resig
 **U.K. Leader Vows Long-Term Partnership With Ukraine on Kyiv Visit**\
 `Prime Minister Keir Starmer signaled continued solidarity, with further U.S. support in question under a second Trump administration.`\
 https://nytimes.com/2025/01/16/world/europe/uk-ukraine-starmer.html
-
-**Australian women's tennis looks to the future after a testing week in Melbourne**\
-`Three years after Ashleigh Barty won her home Grand Slam, there are no Australian women inside the top 100. A new crop wants to change that.`\
-https://nytimes.com/athletic/6063354/2025/01/16/australian-women-tennis-australian-open-ash-barty/
 
