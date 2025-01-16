@@ -1,3 +1,15 @@
+**For Novak Djokovic, the Australian Open is about to get real**\
+`The 24-time Grand Slam champion is a master of easing into majors. At every one, he has a match that lifts him up. Will this one be it?`\
+https://nytimes.com/athletic/6066082/2025/01/16/novak-djokovic-australian-open-tomas-machac/
+
+**Collins thanks booing Australian Open crowd for 'big fat pay check' after beating home hope**\
+`Danielle Collins thanked a hostile Australian Open crowd for helping to fund her next vacation after beating its last home hope in the women&#8217;s draw.`\
+https://nytimes.com/athletic/6066290/2025/01/16/danielle-collins-australian-open-crowd-tennis/
+
+**Hamas After Cease-Fire: Weakened, Isolated but Still Standing**\
+`Hamas remains the dominant Palestinian power in Gaza even after 15 months of Israeli bombardment, holding sway in displacement camps and refusing to surrender.`\
+https://nytimes.com/2025/01/16/world/middleeast/hamas-gaza-cease-fire-palestinian-future.html
+
 **The Athletic FC: Newcastle, Isak put 'form' in formidable, Reynolds' latest venture**\
 `Today in TAFC: Newcastle are the form team with the form striker, will there be a Colombian version of Wrexham? Arsenal buoyed by derby win.`\
 https://nytimes.com/athletic/6066144/2025/01/16/newcastle-champions-league-isak/

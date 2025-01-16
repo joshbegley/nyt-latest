@@ -1,3 +1,15 @@
+**For Novak Djokovic, the Australian Open is about to get real**\
+`The 24-time Grand Slam champion is a master of easing into majors. At every one, he has a match that lifts him up. Will this one be it?`\
+https://nytimes.com/athletic/6066082/2025/01/16/novak-djokovic-australian-open-tomas-machac/
+
+**Collins thanks booing Australian Open crowd for 'big fat pay check' after beating home hope**\
+`Danielle Collins thanked a hostile Australian Open crowd for helping to fund her next vacation after beating its last home hope in the women&#8217;s draw.`\
+https://nytimes.com/athletic/6066290/2025/01/16/danielle-collins-australian-open-crowd-tennis/
+
+**Hamas After Cease-Fire: Weakened, Isolated but Still Standing**\
+`Hamas remains the dominant Palestinian power in Gaza even after 15 months of Israeli bombardment, holding sway in displacement camps and refusing to surrender.`\
+https://nytimes.com/2025/01/16/world/middleeast/hamas-gaza-cease-fire-palestinian-future.html
+
 **The Athletic FC: Newcastle, Isak put 'form' in formidable, Reynolds' latest venture**\
 `Today in TAFC: Newcastle are the form team with the form striker, will there be a Colombian version of Wrexham? Arsenal buoyed by derby win.`\
 https://nytimes.com/athletic/6066144/2025/01/16/newcastle-champions-league-isak/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6064141/2025/01/16/jahmyr-gibbs-saquon-barkley-nfl-
 **‘Night Call’ Review: Belgian Brawlers**\
 `An ordinary locksmith undergoes an action-hero transformation in this snappy thriller set in Brussels during the height of the Black Lives Matter protests.`\
 https://nytimes.com/2025/01/16/movies/night-call-review.html
-
-**‘Alarum’ Review: Mission Forgettable**\
-`Sylvester Stallone briefly stabilizes this artless action movie about a rogue agent and his wife on the run.`\
-https://nytimes.com/2025/01/16/movies/alarum-review.html
-
-**Cook steps down as Birmingham City CEO for 'personal reasons'**\
-`Garry Cook has stepped down from his role as Birmingham City&#8217;s CEO and his position on the club&#8217;s board.`\
-https://nytimes.com/athletic/6066202/2025/01/16/birmingham-city-garry-cook-resigns/
-
-**U.K. Leader Vows Long-Term Partnership With Ukraine on Kyiv Visit**\
-`Prime Minister Keir Starmer signaled continued solidarity, with further U.S. support in question under a second Trump administration.`\
-https://nytimes.com/2025/01/16/world/europe/uk-ukraine-starmer.html
 
