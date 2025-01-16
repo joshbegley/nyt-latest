@@ -1,3 +1,7 @@
+**Clippers' Kawhi Leonard dazzles in historic 59-point win vs. Nets**\
+`The points margin marked the worst loss in the 58-year history of the Nets.`\
+https://nytimes.com/athletic/6065858/2025/01/16/clippers-nets-blowout-kawhi-leonard/
+
 **Late Night Is Willing to Bet on a TikTok Ban**\
 `Jordan Klepper called the Supreme Court “not exactly TikTok’s core demographic,” adding that they are “more of a Walgreens app type of crowd.”`\
 https://nytimes.com/2025/01/16/arts/television/late-night-tiktok-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/crosswords/spelling-bee-forum.html
 **Palace won without Trevoh Chalobah at Leicester - but his recall underlines the need for new faces**\
 `Oliver Glasner is doing well with an increasingly-thin squad - but now is the time to strengthen his hand`\
 https://nytimes.com/athletic/6055961/2025/01/16/crystal-palace-chalobah-recall-new-signings/
-
-**Why is Jeff Bezos’ space company so far behind Elon Musk and SpaceX?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/why-is-jeff-bezos-space-company-so-far-behind-elon-musk-and-spacex
 
