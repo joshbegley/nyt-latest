@@ -1,3 +1,19 @@
+**Biden Administration Withdraws Protections for Endangered Whales**\
+`The proposed rules would have slowed more ships to prevent collisions with rare North Atlantic right whales.`\
+https://nytimes.com/2025/01/16/us/biden-administration-slow-ships-whales-proposal-withdraw.html
+
+**How Hollywood’s Awards Season Could Change the World (a Little)**\
+`It’s not just which actors win a prize that matters. It’s also what we call them.`\
+https://nytimes.com/2025/01/16/opinion/best-actor-actress.html
+
+**More Americans, Risking Ruin, Drop Their Home Insurance**\
+`As climate threats worsen, they are skipping payments and losing protection.`\
+https://nytimes.com/interactive/2025/01/16/climate/home-insurance-cancellations.html
+
+**Sweeney and Neely have their boss’ approval ahead of the trade deadline. What comes next?**\
+`Is it time for major changes? CEO Charlie Jacobs made one thing clear Wednesday: He has faith in Sweeney and Neely to make the right moves.`\
+https://nytimes.com/athletic/6067070/2025/01/16/bruins-sweeney-neely-retool/
+
 **Trump Taps Mel Gibson, Sylvester Stallone and Jon Voight as Hollywood ‘Ambassadors’**\
 `The president-elect said the actors would be his “eyes and ears” with the goal of helping the entertainment industry, which he said had lost business to foreign countries.`\
 https://nytimes.com/2025/01/16/business/trump-gibson-stallone-voight-special-ambassadors.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-graph-jan-29-2025
 **After waiving Tristan Jarry, what's next for the Penguins?**\
 `Let's take a look at what big decisions face Kyle Dubas, Mike Sullivan and the Penguins over the next couple of weeks.`\
 https://nytimes.com/athletic/6067485/2025/01/16/penguins-tristan-jarry-waivers-kyle-dubas/
-
-**Meatpacking Companies to Pay $8 Million for U.S. Child Labor Violations**\
-`Perdue Farms and JBS have settled with the Labor Department after relying on migrant children to do dangerous work in their slaughterhouses. Most of the money will be used to help the children.`\
-https://nytimes.com/2025/01/16/us/perdue-jbs-slaughterhouses-child-labor.html
-
-**Family, friends and fans pay tribute to Bob Uecker, 'the light of the Brewers'**\
-`"Mr. Baseball," the Milwaukee Brewers’ longtime radio announcer, died Thursday at age 90.`\
-https://nytimes.com/athletic/6067417/2025/01/16/bob-uecker-death-mlb-reaction/
-
-**Lethal on the break, runs behind and a passing option: What Omar Marmoush brings to Manchester City**\
-`The 25-year-old striker's profile analysed - and a look at how he is likely to fit City manager Pep Guardiola's system`\
-https://nytimes.com/athletic/6063364/2025/01/16/omar-marmoush-profile-manchester-city-tactics/
-
-**Heat Today: Despite up-and-down road trip, Tyler Herro remains confident in Heat's youthful core**\
-`Despite an inconsistent six-game road trip, Tyler Herro and Bam Adebayo saw promising flashes from Miami's younger players`\
-https://nytimes.com/athletic/6067127/2025/01/16/tyler-herro-kelel-ware-bam-adebayo-jimmy-butler-heat-nba/
 
