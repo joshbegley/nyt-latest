@@ -1,3 +1,19 @@
+**New York Judge Deems Alexander Brothers Flight Risk, Denies Bail**\
+`Oren, Tal and Alon Alexander will be extradited from Miami to New York, where they will remain in federal detention until trial.`\
+https://nytimes.com/2025/01/15/realestate/alexander-brothers-bail-hearing.html
+
+**As 2025 Begins, How Are You Feeling About the State of Politics?**\
+`Scroll through artwork by the teenage winners of our Coming of Age in 2024 contest. Then, tell us how well the collection captures your feelings and experiences.`\
+https://nytimes.com/2025/01/15/learning/as-2025-begins-how-are-you-feeling-about-the-state-of-politics.html
+
+**Teens on Politics Today: The Winners of Our Coming of Age in 2024 Contest**\
+`We asked, “What can you show or tell us to help explain what it’s like to grow up in this political moment?” Students from around the world responded with powerful art and writing.`\
+https://nytimes.com/2025/01/15/learning/teens-on-politics-today-the-winners-of-our-coming-of-age-in-2024-contest.html
+
+**Russia and other foreign sources amplify disinformation about the California wildfires.**\
+`As often happens when disasters strike, adversarial governments are compounding false or exaggerated claims about the fires in Los Angeles.`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/russia-and-other-foreign-sources-amplify-disinformation-about-the-california-wildfires
+
 **Israel and Hamas Agree to Gaza Cease-Fire and Hostage Deal**\
 `The Israeli cabinet still has to ratify the deal, and some details remained unresolved.`\
 https://nytimes.com/video/world/middleeast/100000009929542/israel-hamas-cease-fire-gaza.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/15/theater/show-boat-under-the-radar.html
 **Biden and Trump Defy Their History of Animosity to Seal Gaza Cease-Fire**\
 `But the extraordinary collaboration between outgoing and incoming presidents did not stop both sides from claiming credit.`\
 https://nytimes.com/2025/01/15/us/politics/biden-and-trump-defy-their-history-of-animosity-to-seal-gaza-cease-fire.html
-
-**'We've got to look at two paths': Neely admits retooling is a possibility**\
-`The Bruins entered the season with hopes of chasing the Stanley Cup. With over half the season gone, Boston brass is getting pragmatic.`\
-https://nytimes.com/athletic/6065385/2025/01/15/bruins-retool-cam-neely-playoffs/
-
-**How Biden Surprised Progressives**\
-`To the departing president, F.D.R. seemed a guiding, if often elusive, star.`\
-https://nytimes.com/2025/01/15/us/politics/biden-legacy-progressive.html
-
-**Bondi Vows to Keep Politics Out of Justice Department if Confirmed**\
-`Pam Bondi, President-elect Donald J. Trump’s pick for attorney general, occasionally clashed with Democrats during a confirmation hearing. She dodged questions about election denialism, the potential prosecution of Mr. Trump’s political enemies and his overall influence on the department’s actions.`\
-https://nytimes.com/video/us/politics/100000009927803/bondi-confirmation-hearing.html
-
-**United by Disaster, L.A. Mourns, and Hopes, Together**\
-`More than a week after the wildfires ignited, the hazy numbness described by many looks a lot like grieving.`\
-https://nytimes.com/2025/01/15/us/politics/la-wildfires-feeling.html
 
