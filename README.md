@@ -1,3 +1,11 @@
+**Rangers fan survey: Fire Drury? Or Laviolette? Trades? Rebuild? Stay the course?**\
+`Here’s our midseason Rangers fan survey, which features the same questions asked of the NHL insiders earlier this week.`\
+https://nytimes.com/athletic/6067277/2025/01/16/rangers-fan-survey-drury-laviolette/
+
+**SpaceX’s 7th Starship Test Launch: What to Know**\
+`Elon Musk’s spaceflight company is continuing its work on the vehicle that could one day take people to the moon and eventually Mars.`\
+https://nytimes.com/2025/01/16/science/spacex-starship-test-launch-7.html
+
 **It could take another week, most likely more, for people to return home, officials say.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/movies/producers-guild-nominations-anora-emilia-p
 **Biden’s ‘Bittersweet’ Farewell Address**\
 `Readers offer both praise and criticism of the outgoing president. Also: Greenland’s rights; resilience amid trauma; near-death experiences.`\
 https://nytimes.com/2025/01/16/opinion/joe-biden-farewell-address.html
-
-**Some California lawmakers want to penalize polluters for wildfires.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/some-california-lawmakers-want-to-penalize-polluters-for-wildfires
-
-**For TikTok Refugees, a Wry Welcome on a Chinese App**\
-`In their mass migration to the Chinese app RedNote, social media users make a gleeful mockery of the American government.`\
-https://nytimes.com/2025/01/16/arts/tiktok-red-note-china.html
 
