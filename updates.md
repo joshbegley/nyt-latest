@@ -1,3 +1,15 @@
+**Betting for (by) dummies: Props galore for CFP title game and NFL playoffs**\
+`Zac Jackson and Jon Greenberg make bets for Ohio State-Notre Dame and NFL divisional-round games. We got props!`\
+https://nytimes.com/athletic/6067576/2025/01/16/betting-for-by-dummies-nfl-divisional-round-cfp-championship-props/
+
+**Adams Unveils a Rosy Election-Year Budget, Citing Lower Migrant Costs**\
+`The $114.5 billion spending plan anticipated $2 billion less in asylum seeker costs, but also called for an additional $550 million for nonmigrant shelters.`\
+https://nytimes.com/2025/01/16/nyregion/budget-nyc-adams.html
+
+**Lyon offers record $1 million transfer fee for USWNT defender Naomi Girma: Sources**\
+`Another European club makes an offer for the star U.S. defender`\
+https://nytimes.com/athletic/6067365/2025/01/16/uswnt-naomi-girma-lyon-san-diego-wave/
+
 **Tommy Brown, a Teenage Talent for the Brooklyn Dodgers, Dies at 97**\
 `He was 16 when he made his debut as a shortstop in an Ebbets Field doubleheader, becoming the youngest position player in modern major-league history.`\
 https://nytimes.com/2025/01/16/sports/baseball/tommy-brown-dead.html
