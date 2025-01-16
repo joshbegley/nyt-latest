@@ -1,3 +1,7 @@
+**Darrin Bell, Pulitzer-Winning Cartoonist, Faces Child Pornography Charges**\
+`More than 100 videos of child sex abuse material, some of which was computer generated, have been connected to Mr. Bell, 49, according to the authorities.`\
+https://nytimes.com/2025/01/16/us/darrin-bell-arrest-child-pornography.html
+
 **L.A. Officials Warn of Compromised Drinking Water in Fire-Ravaged Areas**\
 `“Do not drink” orders have been issued in some areas where damaged pipes that lost pressure might pull in toxic smoke and harmful chemicals that could linger in the system for years.`\
 https://nytimes.com/2025/01/16/us/la-drinking-water-wildfires.html
