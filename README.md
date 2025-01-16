@@ -1,7 +1,3 @@
-**'We've got to look at two paths': Neely admits retooling is a possibility**\
-`The Bruins entered the season with hopes of chasing the Stanley Cup. With over half the season gone, Boston brass is getting pragmatic.`\
-https://nytimes.com/athletic/6065385/2025/01/15/bruins-retool-cam-neely-playoffs/
-
 **How Biden Surprised Progressives**\
 `To the departing president, F.D.R. seemed a guiding, if often elusive, star.`\
 https://nytimes.com/2025/01/15/us/politics/biden-legacy-progressive.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/host
 **NCAA approves pay for women's basketball teams in tournament**\
 `The unanimous vote by NCAA membership (292-0) was met with applause on Wednesday.`\
 https://nytimes.com/athletic/6065210/2025/01/15/ncaa-march-madness-financial-units-vote/
+
+**Canada Readies Billions of Dollars in Retaliatory Moves to Trump Tariff Threat**\
+`The government is preparing for the possibility that the incoming U.S. administration will impose high tariffs on Canadian goods, setting the close allies up for a showdown.`\
+https://nytimes.com/2025/01/15/world/canada/canada-trump-tariffs.html
 
