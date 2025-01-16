@@ -1,3 +1,7 @@
+**Australian women's tennis looks to the future after a testing week in Melbourne**\
+`Three years after Ashleigh Barty won her home Grand Slam, there are no Australian women inside the top 100. A new crop wants to change that.`\
+https://nytimes.com/athletic/6063354/2025/01/16/australian-women-tennis-australian-open-ash-barty/
+
 **A Cease-Fire in Gaza**\
 `Israel and Hamas have finally agreed to a truce.`\
 https://nytimes.com/2025/01/16/briefing/israel-hamas-gaza-cease-fire.html
