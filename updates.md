@@ -1,3 +1,7 @@
+**A Fire Relief Effort by and for Teenage Girls**\
+`An eighth grader started a donation drive for teenagers whose homes burned in Los Angeles. Ariana Grande, Prince Harry, Meghan and others have chipped in.`\
+https://nytimes.com/2025/01/16/style/altadena-girls-california-wildfire-donations.html
+
 **What is the New Glenn rocket?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-is-the-new-glenn-rocket

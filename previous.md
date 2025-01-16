@@ -1,3 +1,7 @@
+**A Fire Relief Effort by and for Teenage Girls**\
+`An eighth grader started a donation drive for teenagers whose homes burned in Los Angeles. Ariana Grande, Prince Harry, Meghan and others have chipped in.`\
+https://nytimes.com/2025/01/16/style/altadena-girls-california-wildfire-donations.html
+
 **What is the New Glenn rocket?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-is-the-new-glenn-rocket
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/whats-h
 **Footballers' shin pads – the piece of equipment some pros prefer not to wear**\
 `Shin guards date back to the 1800s but shapes, sizes and personal tastes have evolved over the years – and now everyone has a preference`\
 https://nytimes.com/athletic/6006377/2025/01/16/football-shin-pads-guards-equipment/
-
-**What Trevor Chalobah's return means for Chelsea - and for him**\
-`Chalobah was reluctant to return to simply make up the numbers in Maresca's squad. He has been assured that he has a role to play`\
-https://nytimes.com/athletic/6064937/2025/01/16/trevor-chalobah-return-chelsea-palace-analysis/
 
