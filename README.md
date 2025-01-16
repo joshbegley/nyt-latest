@@ -1,3 +1,7 @@
+**Wendy Williams Breaks Silence on Guardianship: ‘I Feel Like I am in Prison’**\
+`The former daytime host, who has been diagnosed with dementia, said in an interview on “The Breakfast Club” that she was “not cognitively impaired” and spoke about her life in a care facility.`\
+https://nytimes.com/2025/01/16/arts/wendy-williams-guardianship.html
+
 **Apple Plans to Disable A.I. Features Summarizing News Notifications**\
 `The company’s Apple Intelligence system has erroneously characterized news stories, provoking a backlash from media companies.`\
 https://nytimes.com/2025/01/16/technology/apple-ai-news-notifications.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067970/2025/01/16/kyle-tucker-chicago-cubs-deal-ar
 **Billie Eilish, Joni Mitchell and Lady Gaga Set for FireAid Benefit**\
 `The concert, which also includes Dave Matthews, Katy Perry, Stevie Nicks and more, will take place on Jan. 30 at the Kia Forum and Intuit Dome in Los Angeles.`\
 https://nytimes.com/2025/01/16/us/fireaid-benefit-concert-billie-eilish-joni-mitchell.html
-
-**Topps institutes ban against using 'intrusive devices' on trading card packages**\
-`Topps takes first action against efforts to subvert blind packaging `\
-https://nytimes.com/athletic/6067812/2025/01/16/topps-ct-scanning-trading-cards/
 
