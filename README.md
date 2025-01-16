@@ -1,3 +1,11 @@
+**Is America an Oligarchy Yet?**\
+`The question hangs in the air, begging to be taken up by the American people.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/america-oligarchy-billionaire-class
+
+**Southwest Pilot Is Removed From Flight and Charged With D.U.I.**\
+`The pilot, David Paul Allsop, was taken off a flight to Chicago at the airport in Savannah, Ga., on Wednesday, officials said.`\
+https://nytimes.com/2025/01/16/business/southwest-airlines-pilot-arrested-dui-georgia.html
+
 **Does late-season momentum matter in the NFL playoffs? The Ravens hope so**\
 `Michael Salfino looks at late-season point differential over the past six seasons to see if it is predictive of success in the NFL playoffs.`\
 https://nytimes.com/athletic/6066878/2025/01/16/nfl-playoffs-2025-late-season-momentum/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/01/16/climate/home-insurance-cancellations.
 **Sweeney and Neely have their boss’ approval ahead of the trade deadline. What comes next?**\
 `Is it time for major changes? CEO Charlie Jacobs made one thing clear Wednesday: He has faith in Sweeney and Neely to make the right moves.`\
 https://nytimes.com/athletic/6067070/2025/01/16/bruins-sweeney-neely-retool/
-
-**Trump Taps Mel Gibson, Sylvester Stallone and Jon Voight as Hollywood ‘Ambassadors’**\
-`The president-elect said the actors would be his “eyes and ears” with the goal of helping the entertainment industry, which he said had lost business to foreign countries.`\
-https://nytimes.com/2025/01/16/business/trump-gibson-stallone-voight-special-ambassadors.html
-
-**5 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/01/16/books/review/5-new-books-we-recommend-this-week.html
 
