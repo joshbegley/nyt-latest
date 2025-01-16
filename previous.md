@@ -1,3 +1,15 @@
+**Scoop City: Key injuries for each divisional team**\
+`A quick list of injuries impacting the divisional round, plus reader thoughts on Deion-to-Dallas, stories of Josh Allen`\
+https://nytimes.com/athletic/6066925/2025/01/16/nfl-key-injuries-divisional-round-playoffs-zay-flowers-scoop-city/
+
+**Toyota Truck Unit to Settle Emissions Fraud Charges for $1.6 Billion**\
+`Hino Motors, a Toyota subsidiary, will plead guilty to conspiracy charges and pay penalties for deceiving regulators about its diesel engines, the E.P.A. said.`\
+https://nytimes.com/2025/01/16/business/toyota-hino-epa-diesel-emissions-settlement.html
+
+**Casey Stoney and her famous cooler habit: Who is Canada's new head coach?**\
+`Coolers, Canada's culture and how she'll make the most of a 'huge amount of talent'`\
+https://nytimes.com/athletic/6066187/2025/01/16/casey-stoney-canada-new-head-coach/
+
 **Bob Uecker, Clubhouse Wit-Turned-Popular Sportscaster, Dies at 90**\
 `Uecker turned his meager baseball career into humorous fodder covering games on TV and as a commercial pitchman.`\
 https://nytimes.com/2025/01/16/sports/bob-uecker-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/16/technology/trump-bitcoin-stockpile.html
 **All the Usual Backstabbing and Big Commissions. This Time in Manhattan.**\
 `“Selling the City,” the newest offshoot of the “Selling Sunset” franchise, features a team of real estate professionals dedicated to breaking records and to building empires.`\
 https://nytimes.com/2025/01/16/realestate/selling-the-city-eleonora-jade-steve.html
-
-**Shirah Neiman, Pathbreaking New York City Prosecutor, Dies at 81**\
-`In 1970 she broke an unwritten rule against women lawyers in the Southern District’s criminal division. She went on to mentor a long list of prominent lawyers.`\
-https://nytimes.com/2025/01/16/nyregion/shirah-neiman-dead.html
-
-**DeSantis Picks Florida’s Attorney General to Replace Rubio**\
-`Ashley Moody, a Republican, would take the seat of Senator Marco Rubio once he is confirmed as President-elect Donald J. Trump’s secretary of state.`\
-https://nytimes.com/2025/01/16/us/politics/desantis-ashley-moody-senate.html
-
-**Sudan’s Military Has Used Chemical Weapons Twice, U.S. Officials Say**\
-`The determination comes as the United States prepares to announce sanctions against the Sudanese military chief, saying there is strong evidence of atrocities in the country.`\
-https://nytimes.com/2025/01/16/world/africa/sudan-chemical-weapons-sanctions.html
 

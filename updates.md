@@ -1,3 +1,15 @@
+**Scoop City: Key injuries for each divisional team**\
+`A quick list of injuries impacting the divisional round, plus reader thoughts on Deion-to-Dallas, stories of Josh Allen`\
+https://nytimes.com/athletic/6066925/2025/01/16/nfl-key-injuries-divisional-round-playoffs-zay-flowers-scoop-city/
+
+**Toyota Truck Unit to Settle Emissions Fraud Charges for $1.6 Billion**\
+`Hino Motors, a Toyota subsidiary, will plead guilty to conspiracy charges and pay penalties for deceiving regulators about its diesel engines, the E.P.A. said.`\
+https://nytimes.com/2025/01/16/business/toyota-hino-epa-diesel-emissions-settlement.html
+
+**Casey Stoney and her famous cooler habit: Who is Canada's new head coach?**\
+`Coolers, Canada's culture and how she'll make the most of a 'huge amount of talent'`\
+https://nytimes.com/athletic/6066187/2025/01/16/casey-stoney-canada-new-head-coach/
+
 **Bob Uecker, Clubhouse Wit-Turned-Popular Sportscaster, Dies at 90**\
 `Uecker turned his meager baseball career into humorous fodder covering games on TV and as a commercial pitchman.`\
 https://nytimes.com/2025/01/16/sports/bob-uecker-dead.html
