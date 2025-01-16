@@ -1,3 +1,11 @@
+**The Briefing: Manchester United 3 Southampton 1 - Amad's hat-trick, Hojlund's woes and Yoro's tough night**\
+`Laurie Whitwell breaks down the main talking points from Manchester United's 3-1 win over Southampton`\
+https://nytimes.com/athletic/6063895/2025/01/16/manchester-united-3-southampton-1-amad-ugarte-yoro-hojlund/
+
+**‘Profit Off of My Tragedy’: Donation Scams Compound Suffering for Fire Victims**\
+`Online fund-raisers with stories of loss and desperation have become a symbol of the Los Angeles wildfires’ destruction. Officials warned of scammers using them to prey on people’s generosity.`\
+https://nytimes.com/2025/01/16/us/la-fires-donation-scams.html
+
 **F.T.C. Sues Largest U.S. Apartment Landlord Over Hidden Fees**\
 `The antitrust and consumer protection agency accused Greystar Real Estate Partners of deceptive pricing, charging tenants millions of dollars in unadvertised fees.`\
 https://nytimes.com/2025/01/16/business/ftc-greystar-deceptive-pricing.html

@@ -1,3 +1,11 @@
+**The Briefing: Manchester United 3 Southampton 1 - Amad's hat-trick, Hojlund's woes and Yoro's tough night**\
+`Laurie Whitwell breaks down the main talking points from Manchester United's 3-1 win over Southampton`\
+https://nytimes.com/athletic/6063895/2025/01/16/manchester-united-3-southampton-1-amad-ugarte-yoro-hojlund/
+
+**‘Profit Off of My Tragedy’: Donation Scams Compound Suffering for Fire Victims**\
+`Online fund-raisers with stories of loss and desperation have become a symbol of the Los Angeles wildfires’ destruction. Officials warned of scammers using them to prey on people’s generosity.`\
+https://nytimes.com/2025/01/16/us/la-fires-donation-scams.html
+
 **F.T.C. Sues Largest U.S. Apartment Landlord Over Hidden Fees**\
 `The antitrust and consumer protection agency accused Greystar Real Estate Partners of deceptive pricing, charging tenants millions of dollars in unadvertised fees.`\
 https://nytimes.com/2025/01/16/business/ftc-greystar-deceptive-pricing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/world/middleeast/israel-gaza-ceasefire.html
 **Biden Administration Creates Final Limits for Oil Drillers in Alaska**\
 `Republicans said they were seeking ways to quickly reverse the restrictions in the state’s North Slope region.`\
 https://nytimes.com/2025/01/16/climate/biden-alaska-north-slope-drilling.html
-
-**‘Cristóbal Balenciaga’ Is a Gorgeous Fashion Drama**\
-`The six-part Hulu series follows the pioneering designer’s life and career with startling beauty and potency.`\
-https://nytimes.com/2025/01/16/arts/television/cristobal-balenciaga-hulu.html
-
-**Genesis Invitational to be relocated due to Los Angeles wildfires**\
-`The event, hosted by Tiger Woods, is set to be played the week of Feb. 10, but the PGA Tour has not yet announced the substitute location.`\
-https://nytimes.com/athletic/6067754/2025/01/16/genesis-invitational-relocated-riviera-country-club-los-angeles-wildfires/
 
