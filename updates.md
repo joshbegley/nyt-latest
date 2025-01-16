@@ -1,3 +1,11 @@
+**Lemina's downfall at Wolves has been dramatic - and it seems there is no way back now**\
+`The midfielder was Wolves captain earlier this season but now wants to leave in January, a sad end to his time at Molineux`\
+https://nytimes.com/athletic/6065424/2025/01/16/mario-lemina-wolves-downfall/
+
+**LeBron James says he evacuated with family amid L.A. wildfires**\
+`"Personally, I’ve been off," the Lakers star said, adding that he's been staying in a hotel since evacuating Thursday night.`\
+https://nytimes.com/athletic/6065874/2025/01/16/lebron-los-angeles-wildfires-lakers/
+
 **How Blue Origin could beat SpaceX to the moon.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/how-blue-origin-could-beat-spacex-to-the-moon
