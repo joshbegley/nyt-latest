@@ -1,3 +1,7 @@
+**LeBron James says he evacuated with family amid LA wildfires**\
+`"Personally, I’ve been off," the Lakers star said, adding that he's been staying in a hotel since evacuating Thursday night.`\
+https://nytimes.com/athletic/6065874/2025/01/16/lebron-los-angeles-wildfires-lakers/
+
 **What are Blue Origin’s plans for the future?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-are-blue-origins-plans-for-the-future
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6065487/2025/01/16/postecoglou-tottenham-arsenal/
 **Why a win at Everton won't slow Aston Villa down in the January transfer window**\
 `Senior figures at Villa see every window as an opportunity to augment the squad, but this month feels especially pressing`\
 https://nytimes.com/athletic/6065205/2025/01/16/aston-villa-transfer-window-everton-win/
-
-**What Blue Origin has done so far.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-blue-origin-has-done-so-far
 
