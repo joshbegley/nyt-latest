@@ -1,3 +1,11 @@
+**Does late-season momentum matter in the NFL playoffs? The Ravens hope so**\
+`Michael Salfino looks at late-season point differential over the past six seasons to see if it is predictive of success in the NFL playoffs.`\
+https://nytimes.com/athletic/6066878/2025/01/16/nfl-playoffs-2025-late-season-momentum/
+
+**Sound of a Meteorite Hitting Earth Is Captured for the First Time**\
+`A couple returned home to a burst of debris on their walkway. Their home security camera revealed it was a meteorite hitting Earth.`\
+https://nytimes.com/video/science/space/100000009931283/sound-of-a-meteorite-hitting-earth-is-captured-for-the-first-time.html
+
 **What to Know About the Ban on Red Dye No. 3 in Food**\
 `What does the science say about its health effects? What foods will be affected? And other common questions about the newly banned additive.`\
 https://nytimes.com/2025/01/16/well/red-dye-3-foods.html

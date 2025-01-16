@@ -1,3 +1,11 @@
+**Does late-season momentum matter in the NFL playoffs? The Ravens hope so**\
+`Michael Salfino looks at late-season point differential over the past six seasons to see if it is predictive of success in the NFL playoffs.`\
+https://nytimes.com/athletic/6066878/2025/01/16/nfl-playoffs-2025-late-season-momentum/
+
+**Sound of a Meteorite Hitting Earth Is Captured for the First Time**\
+`A couple returned home to a burst of debris on their walkway. Their home security camera revealed it was a meteorite hitting Earth.`\
+https://nytimes.com/video/science/space/100000009931283/sound-of-a-meteorite-hitting-earth-is-captured-for-the-first-time.html
+
 **What to Know About the Ban on Red Dye No. 3 in Food**\
 `What does the science say about its health effects? What foods will be affected? And other common questions about the newly banned additive.`\
 https://nytimes.com/2025/01/16/well/red-dye-3-foods.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/business/trump-gibson-stallone-voight-special-amb
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/01/16/books/review/5-new-books-we-recommend-this-week.html
-
-**What Teens Are Saying About Barring Children Under 16 From Social Media**\
-`When Australia passed a law last year that set a minimum age for users, we asked students how they would feel if their country did the same.`\
-https://nytimes.com/2025/01/16/learning/what-teens-are-saying-about-barring-children-under-16-from-social-media.html
-
-**What’s Going On in This Picture? | Jan. 27, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-picture-jan-27-2025.html
 
