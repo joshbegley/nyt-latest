@@ -1,3 +1,7 @@
+**Sabres make NHL history, avoid third-period collapse in win over Hurricanes: Takeaways**\
+`The Sabres got a fourth goal in the third period to ice the game — despite not recording a shot on net in the entire period, an NHL first.`\
+https://nytimes.com/athletic/6065713/2025/01/15/sabres-nhl-first-mcleod-hat-trick-hurricanes/
+
 **Negotiators Agree to Long-Awaited Cease-Fire and Hostage Deal for Gaza**\
 `The agreement, which must still be approved by the Israeli cabinet, incited joy in the Gaza Strip and Israel, even as some feared that it could fall apart.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/pageoneplus/corrections-jan-16-2025.html
 **British Man Freed From Prison Over Video Misidentification**\
 `Ademola Adedeji was ensnared in a murder conspiracy case with no murder victim. Prosecutors labeled him a gang member and won a conviction and eight-year sentence.`\
 https://nytimes.com/2025/01/15/world/europe/uk-conspiracy-gang-video-misidentification-trial-overturned.html
-
-**Will the NCAA expand March Madness? And who will be in charge of it?**\
-`The association needs a new governance structure to accommodate the more professionalized parts of the NCAA’s membership.`\
-https://nytimes.com/athletic/6065542/2025/01/15/ncaa-tournament-expansion-governance/
 
