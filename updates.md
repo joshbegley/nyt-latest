@@ -1,3 +1,7 @@
+**Why is Jeff Bezos’ space company so far behind Elon Musk and SpaceX?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/why-is-jeff-bezos-space-company-so-far-behind-elon-musk-and-spacex
+
 **Lemina's downfall at Wolves has been dramatic - and it seems there is no way back now**\
 `The midfielder was Wolves captain earlier this season but now wants to leave in January, a sad end to his time at Molineux`\
 https://nytimes.com/athletic/6065424/2025/01/16/mario-lemina-wolves-downfall/
