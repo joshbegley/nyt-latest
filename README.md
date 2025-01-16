@@ -14,7 +14,7 @@ https://nytimes.com/2025/01/16/arts/television/the-chef-review.html
 `In a sport he adored, Bob Uecker was "Mr. Baseball." In Milwaukee, he was just "Ueck." `\
 https://nytimes.com/athletic/5969463/2025/01/16/bob-uecker-mlb-brewers-dies/
 
-**Learner Tien beats Daniil Medvedev in stunning Australian Open upset**\
+**American qualifier Learner Tien beats Daniil Medvedev in stunning Australian Open upset**\
 `MELBOURNE, Australia — Learner Tien, a 19-year-old qualifier from California, notched the biggest upset of the 2025 Australian Open to date by beating 2024 finalist and No.`\
 https://nytimes.com/athletic/6066464/2025/01/16/learner-tien-australian-open-daniil-medvedev-result-analysis/
 
