@@ -1,3 +1,15 @@
+**Leafs place John Tavares on IR with lower-body injury: What are their options at centre?**\
+`With Tavares out for at least four games, a Maple Leafs team that was already light on centre depth will now see its options tested.`\
+https://nytimes.com/athletic/6066672/2025/01/16/john-tavares-injured-reserve-maple-leafs/
+
+**NBA Lookahead: How the West might be won; James Harden trade rewind**\
+`Which teams have the best chances of stopping OKC? We asked readers of The Bounce.`\
+https://nytimes.com/athletic/6058784/2025/01/16/nba-lookahead-thunder-lakers-warriors-james-harden/
+
+**Nintendo Switch 2 Is Announced With a 2025 Release Date**\
+`The new console looks physically similar to the popular Switch system, which has sold more than 146 million units in seven years.`\
+https://nytimes.com/2025/01/16/business/nintendo-switch-2.html
+
 **A cease-fire would mean more aid for Gaza, but getting it to people in need may still be hard.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/a-cease-fire-would-mean-more-aid-for-gaza-but-getting-it-to-people-in-need-may-still-be-hard
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/16/us/politics/democratic-national-committee-electio
 **LIV Golf, Fox Sports agree to multiyear media rights deal**\
 `The agreement marks the first time the startup league will air on a major sports TV network in the U.S. since its inception in 2022.`\
 https://nytimes.com/athletic/6066481/2025/01/16/liv-golf-fox-sports-multiyear-deal/
-
-**Has Jalen Williams made the leap to become OKC's second All-Star?**\
-`"His case should be sealed," Shai Gilgeous-Alexander said of the Thunder's other rising star.`\
-https://nytimes.com/athletic/6062710/2025/01/16/jalen-williams-all-star-thunder-nba/
-
-**Bayern Munich, Mathys Tel and a career in a curious state of limbo**\
-`The French teenager exploded on to the stage in Bavaria, but opportunities have been distinctly limited in the period since`\
-https://nytimes.com/athletic/6066360/2025/01/16/bayern-munich-tel-chelsea/
-
-**Timberwolves are out of excuses after another loss to Warriors: 'We are terrible'**\
-`The Warriors were up 34-10 late in the first quarter, a mind-boggling combination of Minnesota ineptitude and Golden State desperation.`\
-https://nytimes.com/athletic/6065653/2025/01/16/timberwolves-excuses-loss-warriors/
 
