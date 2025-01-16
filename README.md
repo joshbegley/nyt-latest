@@ -1,3 +1,7 @@
+**Trump’s Housing Pick Will Face Questions to Define His Policy Stances**\
+`Scott Turner, a former pro football player and official during the first Trump administration, will make his case to lead the Department of Housing and Urban Development.`\
+https://nytimes.com/2025/01/16/us/politics/trump-scott-turner-housing-secretary-policy.html
+
 **Since the killing of Hamas’s longtime leader, his brother and others have stepped in.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/since-the-killing-of-hamass-longtime-leader-his-brother-and-others-have-stepped-in
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6064724/2025/01/16/college-basketball-march-madness
 https://nytimes.com/athletic/6064565/2025/01/16/jaedyn-shaw-nwsl-moves-trade-window-soccer/
 
 **Barkley and Gibbs bring new life to the running back trading card market**\
-`Saquon Barkley and Jahmyr Gibbs' 2024 success has lead to a surge in their trading cards market, but not for Derrick Henry`\
+`Saquon Barkley and Jahmyr Gibbs' 2024 success has lead to a surge in their trading cards market, but not for Derrick Henry.`\
 https://nytimes.com/athletic/6064141/2025/01/16/jahmyr-gibbs-saquon-barkley-nfl-card-values/
 
 **‘Night Call’ Review: Belgian Brawlers**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/world/europe/uk-ukraine-starmer.html
 **Australian women's tennis looks to the future after a testing week in Melbourne**\
 `Three years after Ashleigh Barty won her home Grand Slam, there are no Australian women inside the top 100. A new crop wants to change that.`\
 https://nytimes.com/athletic/6063354/2025/01/16/australian-women-tennis-australian-open-ash-barty/
-
-**A Cease-Fire in Gaza**\
-`Israel and Hamas have finally agreed to a truce.`\
-https://nytimes.com/2025/01/16/briefing/israel-hamas-gaza-cease-fire.html
 
