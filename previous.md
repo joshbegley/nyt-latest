@@ -1,3 +1,7 @@
+**What's going on with Jalen Hurts and the Eagles' passing offense?**\
+`On the latest episode of the "Scoop City" podcast, a discussion of Philly's struggles through the air.`\
+https://nytimes.com/athletic/6063782/2025/01/16/jalen-hurts-philadelphia-eagles-passing-game-problems/
+
 **Saif Ali Khan, Famed Bollywood Actor, Is Stabbed at Home in Mumbai**\
 `The police said Mr. Khan was recovering in the hospital after an intruder attacked him at his house in an upscale neighborhood.`\
 https://nytimes.com/2025/01/16/world/asia/saif-ali-khan-stabbed-mumbai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/well/breast-cancer-young-women.html
 **Rashod Bateman knows how far he can still go while appreciating how far he's come**\
 `The 25-year-old Bateman has had a career year and is firmly entrenched as one of Lamar Jackson’s go-to targets. `\
 https://nytimes.com/athletic/6065852/2025/01/16/ravens-rashod-bateman-lamar-jackson/
-
-**What Trump’s Treasury Pick Might Get Asked Today**\
-`Scott Bessent, a billionaire hedge fund manager, will likely face tough questions on tax cuts and tariffs — and how bond markets might check his economic agenda.`\
-https://nytimes.com/2025/01/16/business/dealbook/bessent-treasury-confirmation-hearing.html
 

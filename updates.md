@@ -1,3 +1,7 @@
+**What's going on with Jalen Hurts and the Eagles' passing offense?**\
+`On the latest episode of the "Scoop City" podcast, a discussion of Philly's struggles through the air.`\
+https://nytimes.com/athletic/6063782/2025/01/16/jalen-hurts-philadelphia-eagles-passing-game-problems/
+
 **Saif Ali Khan, Famed Bollywood Actor, Is Stabbed at Home in Mumbai**\
 `The police said Mr. Khan was recovering in the hospital after an intruder attacked him at his house in an upscale neighborhood.`\
 https://nytimes.com/2025/01/16/world/asia/saif-ali-khan-stabbed-mumbai.html
