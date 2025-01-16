@@ -1,3 +1,15 @@
+**NFL insider playoff predictions: Coaches, execs pick divisional round winners**\
+`Two games were called by unanimous decision. Another was close. But Bills-Ravens has no overwhelming favorite. “It's the game of the year."`\
+https://nytimes.com/athletic/6064887/2025/01/16/nfl-insider-playoff-predictions-divisional-round-ravens-bills-lions-eagles/
+
+**Kevin Garnett says Evan Mobley is 'the future' but the present looks bright, too**\
+`Mobley's comfort and ability from beyond the arc have risen. And so have the Cavs — to the top of the NBA standings.`\
+https://nytimes.com/athletic/6064722/2025/01/16/cavaliers-evan-mobley-kevin-garnett/
+
+**Watch: ‘When Progressive Ideals Become a Luxury’**\
+`How persuasive is the concept of luxury beliefs to explain many popular progressive ideas about drugs, marriage and crime?`\
+https://nytimes.com/2025/01/16/learning/watch-when-progressive-ideals-become-a-luxury.html
+
 **The Painter Whose Canvases Have Hidden Messages**\
 `Plus: a mountain safari camp in South Africa, Japanese fruit and more recommendations from T Magazine.`\
 https://nytimes.com/2025/01/16/t-magazine/chris-martin-timothy-taylor.html

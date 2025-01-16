@@ -1,3 +1,15 @@
+**NFL insider playoff predictions: Coaches, execs pick divisional round winners**\
+`Two games were called by unanimous decision. Another was close. But Bills-Ravens has no overwhelming favorite. “It's the game of the year."`\
+https://nytimes.com/athletic/6064887/2025/01/16/nfl-insider-playoff-predictions-divisional-round-ravens-bills-lions-eagles/
+
+**Kevin Garnett says Evan Mobley is 'the future' but the present looks bright, too**\
+`Mobley's comfort and ability from beyond the arc have risen. And so have the Cavs — to the top of the NBA standings.`\
+https://nytimes.com/athletic/6064722/2025/01/16/cavaliers-evan-mobley-kevin-garnett/
+
+**Watch: ‘When Progressive Ideals Become a Luxury’**\
+`How persuasive is the concept of luxury beliefs to explain many popular progressive ideas about drugs, marriage and crime?`\
+https://nytimes.com/2025/01/16/learning/watch-when-progressive-ideals-become-a-luxury.html
+
 **The Painter Whose Canvases Have Hidden Messages**\
 `Plus: a mountain safari camp in South Africa, Japanese fruit and more recommendations from T Magazine.`\
 https://nytimes.com/2025/01/16/t-magazine/chris-martin-timothy-taylor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/16/business/tiktok-ban.html
 **Falcons mock draft reaction: Would another defensive lineman make sense?**\
 `The Athletic's Dane Brugler projects Atlanta taking Texas A&M defensive lineman Shemar Stewart with the 15th pick in the first round.`\
 https://nytimes.com/athletic/6064058/2025/01/16/falcons-mock-draft-reaction-shemar-stewart/
-
-**Cowboys coach survey: Did Dallas make right decision? Deion, Ben Johnson top choices?**\
-`Now that the Cowboys have moved on from Mike McCarthy, several coaches stand out among fans to be Dallas' next head coach.`\
-https://nytimes.com/athletic/6065155/2025/01/16/cowboys-coach-survey-ben-johnson-deion-mccarthy/
-
-**MAGA Is Misreading Its Mandate**\
-`America’s political future belongs to the most competent, not the most ideological.`\
-https://nytimes.com/2025/01/16/opinion/trump-hegseth-california.html
-
-**Outside Nashville, She Rebuilt Her Life With $200,000 and a Dream**\
-`After leaving prison and regaining custody of her children, a single mother looked for a house where she could chart a brighter future.`\
-https://nytimes.com/interactive/2025/01/16/realestate/nashville-home-sale.html
 
