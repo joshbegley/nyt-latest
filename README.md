@@ -1,3 +1,11 @@
+**UnitedHealth’s Revenues Rise, in First Earnings Report Since C.E.O.’s Killing**\
+`High medical costs contributed to results that disappointed Wall Street, and the company’s stock fell on the news that it had made less than analysts expected.`\
+https://nytimes.com/2025/01/16/health/unitedhealth-earnings-report-ceo-murder.html
+
+**How Canadiens' Carrier trade helped unlock Hutson’s offence**\
+`The pairing of Hutson and Matheson goes against hockey's convetional wisdom, but Martin St. Louis is not a conventional coach.`\
+https://nytimes.com/athletic/6067010/2025/01/16/canadiens-lane-hutson-alexandre-carrier-trade/
+
 **What we're seeing from the Bucks: Giannis' short rolling, Dame's pace and more**\
 `Antetokounmpo is manipulating the space in the key, Lopez is finding his way to the rim and Lillard isn't letting defenses get set.`\
 https://nytimes.com/athletic/6063891/2025/01/16/giannis-antetokounmpo-damian-lillard-bucks-pace/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/us/gettysburg-college-student-rape-extradition-fr
 **House Passes Bill to Deport Immigrants Convicted of Violence Against Women**\
 `Scores of Democrats joined Republicans in approving the measure, even though existing law already allows immigrants with contested legal status who are convicted of sex crimes to be deported.`\
 https://nytimes.com/2025/01/16/us/house-bill-deport-immigrants.html
-
-**French Pay Respects to Far-Right Firebrand as His Party Moves to Center**\
-`The memorial for Jean-Marie Le Pen, who was known for his racist and antisemitic remarks, comes as the National Rally has become the driving force in French politics.`\
-https://nytimes.com/2025/01/16/world/europe/france-politics-lepen-farright-memorial.html
-
-**Martin Truex Jr. enters Daytona 500, teams up with Tricon Garage**\
-`Truex must either post a fast speed in qualifying or secure the transfer position in his qualifying race to claim a spot in Daytona.`\
-https://nytimes.com/athletic/6066901/2025/01/16/martin-truex-jr-daytona-500-entry/
 
