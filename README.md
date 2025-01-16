@@ -1,3 +1,7 @@
+**Wild felt they deserved better in loss to Oilers amid Johansson injury: 3 takeaways**\
+`The Wild held two separate leads before falling to Connor McDavid and the Oilers, losing Marcus Johansson along the way.`\
+https://nytimes.com/athletic/6065159/2025/01/16/wild-mcdavid-johansson-injury-oilers/
+
 **A Fire Relief Effort by and for Teenage Girls**\
 `An eighth grader started a donation drive for teenagers whose homes burned in Los Angeles. Ariana Grande, Prince Harry, Meghan and others have chipped in.`\
 https://nytimes.com/2025/01/16/style/altadena-girls-california-wildfire-donations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064434/2025/01/16/ruben-amorim-manchester-united-c
 **What’s happening on the launchpad.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/whats-happening-on-the-launchpad
-
-**Footballers' shin pads – the piece of equipment some pros prefer not to wear**\
-`Shin guards date back to the 1800s but shapes, sizes and personal tastes have evolved over the years – and now everyone has a preference`\
-https://nytimes.com/athletic/6006377/2025/01/16/football-shin-pads-guards-equipment/
 
