@@ -1,3 +1,7 @@
+**‘Where’s Our Place in Society?’: 12 Men Who Backed Trump Grapple With America**\
+`The group discusses the news and podcasts that shape their opinions about America and the world, what being a man’s man means and what they do and don’t want Trump to do in office.`\
+https://nytimes.com/interactive/2025/01/16/opinion/men-trump-voters-focus-group.html
+
 **Wild felt they deserved better in loss to Oilers amid Marcus Johansson injury: 3 takeaways**\
 `The Wild held two separate leads before falling to Connor McDavid and the Oilers, losing their forward along the way.`\
 https://nytimes.com/athletic/6065159/2025/01/16/wild-mcdavid-johansson-injury-oilers/
