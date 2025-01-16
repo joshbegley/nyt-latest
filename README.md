@@ -1,3 +1,11 @@
+**This is what will happen during New Glenn’s flight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/this-is-what-will-happen-during-new-glenns-flight
+
+**The latest on the cease-fire agreement.**\
+`By Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/the-latest-on-the-cease-fire-agreement
+
 **Live Updates: Jeff Bezos and Blue Origin Try Again for Debut of New Glenn Rocket**\
 `The company scrubbed its first attempt at sending the powerful rocket to orbit on Monday. The flight is a crucial test of the company’s ability to compete with Elon Musk’s SpaceX.`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6064937/2025/01/16/trevor-chalobah-return-chelsea-p
 **Vitor Reis is a calm and composed defensive leader - there are echoes of John Stones**\
 `The 19-year-old already has an unerring habit of stepping up and taking everything in his stride`\
 https://nytimes.com/athletic/6060827/2025/01/16/vitor-reis-manchester-city-transfer-analysis-stones/
-
-**Iowa State shows Kansas how to be a money team without spending big cash**\
-`Though the Cyclones haven't signed huge names in the transfer portal, their 74-57 win was a sign they got the right ones.`\
-https://nytimes.com/athletic/6065749/2025/01/16/iowa-state-kansas-basketball-transfer-portal/
-
-**Nottingham Forest's name is unique - and its origin isn't (quite) what you think**\
-`Unlike many names in English football, Nottingham Forest stands out. The origin, for this trailblazing club, is not what you might think`\
-https://nytimes.com/athletic/6061679/2025/01/16/why-called-nottingham-forest/
 
