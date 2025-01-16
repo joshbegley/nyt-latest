@@ -1,3 +1,11 @@
+**Apple Plans to Disable A.I. Features Summarizing News Notifications**\
+`The company’s Apple Intelligence system has erroneously characterized news stories, provoking a backlash from media companies.`\
+https://nytimes.com/2025/01/16/technology/apple-ai-news-notifications.html
+
+**J.J. McCarthy is back to on-field training: What it means for Vikings**\
+`After a 2024 season lost to injury, Vikings quarterback appears to be on track to be in the mix in 2025.`\
+https://nytimes.com/athletic/6067637/2025/01/16/j-j-mccarthy-vikings-qb-on-field-training/
+
 **Aaron Rodgers says Jets' next GM, coach will decide his future**\
 `Rodgers says he's had "limited communication" with the team during its hiring search.`\
 https://nytimes.com/athletic/6067890/2025/01/16/aaron-rodgers-jets-future-pat-mcafee/

@@ -1,3 +1,11 @@
+**Apple Plans to Disable A.I. Features Summarizing News Notifications**\
+`The company’s Apple Intelligence system has erroneously characterized news stories, provoking a backlash from media companies.`\
+https://nytimes.com/2025/01/16/technology/apple-ai-news-notifications.html
+
+**J.J. McCarthy is back to on-field training: What it means for Vikings**\
+`After a 2024 season lost to injury, Vikings quarterback appears to be on track to be in the mix in 2025.`\
+https://nytimes.com/athletic/6067637/2025/01/16/j-j-mccarthy-vikings-qb-on-field-training/
+
 **Aaron Rodgers says Jets' next GM, coach will decide his future**\
 `Rodgers says he's had "limited communication" with the team during its hiring search.`\
 https://nytimes.com/athletic/6067890/2025/01/16/aaron-rodgers-jets-future-pat-mcafee/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/us/fireaid-benefit-concert-billie-eilish-joni-mit
 **Topps institutes ban against using 'intrusive devices' on trading card packages**\
 `Topps takes first action against efforts to subvert blind packaging `\
 https://nytimes.com/athletic/6067812/2025/01/16/topps-ct-scanning-trading-cards/
-
-**CAS' status as sport's supreme court is questioned - and why this is significant**\
-`An expert at the European Union’s highest court has questioned whether Court of Arbitration for Sport (CAS) verdicts really should be the last word in sports rows, potentially overturning a system that has worked across sport since 1984.`\
-https://nytimes.com/athletic/6067915/2025/01/16/cas-sport-court-verdicts-fifa/
-
-**Garland, defending Justice Dept. in emotional remarks, denies politicization.**\
-`His final address sought to rebut the many criticisms deployed by presidents, members of Congress and media pundits for either being too cautious or too aggressive on politically sensitive cases.`\
-https://nytimes.com/live/2025/01/16/us/trump-news-hearings/garland-justice-department-farewell
 
