@@ -1,3 +1,11 @@
+**Amorim speaks with Ratcliffe after Man United defeat Southampton**\
+`Ruben Amorim spoke with Sir Jim Ratcliffe following Manchester United&#8217;s 3-1 victory over Southampton on Thursday night.`\
+https://nytimes.com/athletic/6068183/2025/01/16/ruben-amorim-sir-jim-ratcliffe-manchester-united/
+
+**David Lynch: A Life in Pictures**\
+`The filmmaker possessed a singular vision — and a knack for finding collaborators who could convey it.`\
+https://nytimes.com/2025/01/16/movies/david-lynch-life-photos.html
+
 **Wild place Kirill Kaprizov on LTIR, call up 2 forwards: What it means**\
 `The move was necessary to make the call-ups needed to have a full roster. It's retroactive, so Kaprizov can return whenever he's ready.`\
 https://nytimes.com/athletic/6067940/2025/01/16/wild-kirill-kaprizov-ltir/
