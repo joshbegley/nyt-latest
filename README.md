@@ -1,3 +1,11 @@
+**Aaron Rodgers says Jets' next GM, coach will decide his future**\
+`Rodgers says he's had "limited communication" with the team during its hiring search.`\
+https://nytimes.com/athletic/6067890/2025/01/16/aaron-rodgers-jets-future-pat-mcafee/
+
+**Israel’s Vote on a Gaza Cease-Fire Was Delayed**\
+`Also, winds and fire risks eased in Los Angeles. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/16/briefing/delayed-cease-fire-vote-trump-nominees-hearings.html
+
 **Hurzeler says Brighton squad depth to thank for game-changing substitutions**\
 `Head coach Fabian Hurzeler says the depth of Brighton &amp; Hove Albion&#8217;s squad has given him the scope to make game-changing substitutions.`\
 https://nytimes.com/athletic/6068021/2025/01/16/fabian-hurzeler-brighton-substitutions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6067915/2025/01/16/cas-sport-court-verdicts-fifa/
 **Garland, defending Justice Dept. in emotional remarks, denies politicization.**\
 `His final address sought to rebut the many criticisms deployed by presidents, members of Congress and media pundits for either being too cautious or too aggressive on politically sensitive cases.`\
 https://nytimes.com/live/2025/01/16/us/trump-news-hearings/garland-justice-department-farewell
-
-**State Attorneys General Ask Courts to Preserve Biden-era Gun Control Measures**\
-`Days before Trump returns to office, the legal fight with Democratic state officials over his agenda has begun.`\
-https://nytimes.com/2025/01/16/us/democrats-gun-control-trump.html
-
-**The Briefing: Man Utd 3 Southampton 1 - Amad hat-trick, Hojlund woes, Yoro's tough night**\
-`Laurie Whitwell breaks down the main talking points from Manchester United's 3-1 win over Southampton`\
-https://nytimes.com/athletic/6063895/2025/01/16/manchester-united-3-southampton-1-amad-ugarte-yoro-hojlund/
 
