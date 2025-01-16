@@ -1,3 +1,7 @@
+**Bob Uecker, Clubhouse Wit-Turned-Popular Sportscaster, Dies at 90**\
+`Uecker turned his meager baseball career into humorous fodder covering games on TV and as a commercial pitchman.`\
+https://nytimes.com/2025/01/16/sports/bob-uecker-dead.html
+
 **They Escaped the Wildfires. Now, They’re Facing Personal Costs**\
 `Evacuating a disaster is often the lifesaving choice, but it comes with short-term costs to address immediate needs and incalculable personal and financial tolls in the future.`\
 https://nytimes.com/2025/01/16/business/los-angeles-fires-rebuilding-costs.html
@@ -28,13 +32,9 @@ https://nytimes.com/2025/01/16/nyregion/shirah-neiman-dead.html
 
 **DeSantis Picks Florida’s Attorney General to Replace Rubio**\
 `Ashley Moody, a Republican, would take the seat of Senator Marco Rubio once he is confirmed as President-elect Donald J. Trump’s secretary of state.`\
-https://nytimes.com/2025/01/16/us/politics/desantis-picks-floridas-attorney-general-to-replace-rubio.html
+https://nytimes.com/2025/01/16/us/politics/desantis-ashley-moody-senate.html
 
 **Sudan’s Military Has Used Chemical Weapons Twice, U.S. Officials Say**\
 `The determination comes as the United States prepares to announce sanctions against the Sudanese military chief, saying there is strong evidence of atrocities in the country.`\
 https://nytimes.com/2025/01/16/world/africa/sudan-chemical-weapons-sanctions.html
-
-**Netanyahu Faces a Political Crisis Over the Gaza Cease-Fire Deal**\
-`With his far-right coalition partners refusing to end the war, Prime Minister Benjamin Netanyahu may soon have to choose between them or the agreement.`\
-https://nytimes.com/2025/01/16/world/middleeast/netanyahu-israel-cease-fire.html
 

@@ -1,3 +1,11 @@
+**Bob Uecker, Clubhouse Wit-Turned-Popular Sportscaster, Dies at 90**\
+`Uecker turned his meager baseball career into humorous fodder covering games on TV and as a commercial pitchman.`\
+https://nytimes.com/2025/01/16/sports/bob-uecker-dead.html
+
+**DeSantis Picks Florida’s Attorney General to Replace Rubio**\
+`Ashley Moody, a Republican, would take the seat of Senator Marco Rubio once he is confirmed as President-elect Donald J. Trump’s secretary of state.`\
+https://nytimes.com/2025/01/16/us/politics/desantis-ashley-moody-senate.html
+
 **They Escaped the Wildfires. Now, They’re Facing Personal Costs**\
 `Evacuating a disaster is often the lifesaving choice, but it comes with short-term costs to address immediate needs and incalculable personal and financial tolls in the future.`\
 https://nytimes.com/2025/01/16/business/los-angeles-fires-rebuilding-costs.html
