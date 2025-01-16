@@ -1,3 +1,7 @@
+**Will it be fair to call New Glenn’s launch a success or failure? Here are some scenarios.**\
+`By Michael Roston and Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/will-it-be-fair-to-call-new-glenns-launch-a-success-or-failure-here-are-some-scenarios
+
 **Postecoglou says Tottenham's form 'can’t be accepted by anyone'. So where does that leave him?**\
 `Tottenham are closer to the bottom three than the top four after another defeat and the manager did not hold back in his post-match comments`\
 https://nytimes.com/athletic/6065487/2025/01/16/postecoglou-tottenham-arsenal/
