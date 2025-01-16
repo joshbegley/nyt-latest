@@ -1,15 +1,3 @@
-**West Ham have no plans to lose players in January - Potter**\
-`West Ham United head coach Graham Potter says he does not expect to lose any of his players during the January transfer window.`\
-https://nytimes.com/athletic/6066699/2025/01/16/west-ham-january-transfers/
-
-**Kyle Tucker, Cubs agree to 1-year, $16.5 million deal: Source**\
-`The Cubs originally submitted an offer of $15 million while Tucker countered at $17.5 million. `\
-https://nytimes.com/athletic/6067970/2025/01/16/kyle-tucker-chicago-cubs-deal-arbitration/
-
-**Billie Eilish, Joni Mitchell and Lady Gaga Set for FireAid Benefit**\
-`The concert, which also includes Dave Matthews, Katy Perry, Stevie Nicks and more, will take place on Jan. 30 at the Kia Forum and Intuit Dome in Los Angeles.`\
-https://nytimes.com/2025/01/16/us/fireaid-benefit-concert-billie-eilish-joni-mitchell.html
-
 **Topps institutes ban against using 'intrusive devices' on trading card packages**\
 `Topps takes first action against efforts to subvert blind packaging `\
 https://nytimes.com/athletic/6067812/2025/01/16/topps-ct-scanning-trading-cards/
@@ -37,4 +25,16 @@ https://nytimes.com/2025/01/16/us/la-fires-donation-scams.html
 **F.T.C. Sues Largest U.S. Apartment Landlord Over Hidden Fees**\
 `The antitrust and consumer protection agency accused Greystar Real Estate Partners of deceptive pricing, charging tenants millions of dollars in unadvertised fees.`\
 https://nytimes.com/2025/01/16/business/ftc-greystar-deceptive-pricing.html
+
+**Angry about a potential cease-fire in Gaza, far-right protesters block roads in Israel.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/angry-about-potential-cease-fire-in-gaza-far-right-protesters-block-roads-in-israel
+
+**What to expect from CFP leaders' meeting on format changes**\
+`The commissioners pledged that they would let the 12-team CFP's first year play out before discussing changes. Here's what's on tap next.`\
+https://nytimes.com/athletic/6067741/2025/01/16/college-football-playoff-2025-format-changes/
+
+**Vladimir Guerrero Jr. and the Blue Jays: The latest on possible extension talks, Alonso factor and more**\
+`With his free agency looming in less than nine months, the Blue Jays first baseman is generating discussion on a number of fronts.`\
+https://nytimes.com/athletic/6067870/2025/01/16/vladimir-guerrero-blue-jays-extension-trade-pete-alonso/
 
