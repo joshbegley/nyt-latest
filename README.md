@@ -1,3 +1,7 @@
+**West Ham have no plans to lose players in January - Potter**\
+`West Ham United head coach Graham Potter says he does not expect to lose any of his players during the January transfer window.`\
+https://nytimes.com/athletic/6066699/2025/01/16/west-ham-january-transfers/
+
 **Kyle Tucker, Cubs agree to 1-year, $16.5 million deal: Source**\
 `The Cubs originally submitted an offer of $15 million while Tucker countered at $17.5 million. `\
 https://nytimes.com/athletic/6067970/2025/01/16/kyle-tucker-chicago-cubs-deal-arbitration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/us/la-fires-donation-scams.html
 **F.T.C. Sues Largest U.S. Apartment Landlord Over Hidden Fees**\
 `The antitrust and consumer protection agency accused Greystar Real Estate Partners of deceptive pricing, charging tenants millions of dollars in unadvertised fees.`\
 https://nytimes.com/2025/01/16/business/ftc-greystar-deceptive-pricing.html
-
-**Angry about a potential cease-fire in Gaza, far-right protesters block roads in Israel.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/angry-about-potential-cease-fire-in-gaza-far-right-protesters-block-roads-in-israel
 
