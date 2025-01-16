@@ -1,3 +1,15 @@
+**What’s Going On in This Picture? | Jan. 27, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-picture-jan-27-2025.html
+
+**What’s Going On in This Graph? | Jan. 29, 2025**\
+`Lead poisoning can cause lower I.Q.s, behavioral problems and cardiovascular damage. How big of a problem is it worldwide?`\
+https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-graph-jan-29-2025.html
+
+**After waiving Tristan Jarry, what's next for the Penguins?**\
+`Let's take a look at what big decisions face Kyle Dubas, Mike Sullivan and the Penguins over the next couple of weeks.`\
+https://nytimes.com/athletic/6067485/2025/01/16/penguins-tristan-jarry-waivers-kyle-dubas/
+
 **Meatpacking Companies to Pay $8 Million for U.S. Child Labor Violations**\
 `Perdue Farms and JBS have settled with the Labor Department after relying on migrant children to do dangerous work in their slaughterhouses. Most of the money will be used to help the children.`\
 https://nytimes.com/2025/01/16/us/perdue-jbs-slaughterhouses-child-labor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/16/world/middleeast/blinken-israel-hamas-gaza-ceasef
 **Reality TV Takes Washington (Again)**\
 `It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
 https://nytimes.com/2025/01/16/opinion/sean-duffy-reality-tv-nomination.html
-
-**How Do You Convince Consumers to Eat Plant-Based Meat?**\
-`The imitation meat industry is facing an identity crisis, and the challenge of convincing American consumers to make more planet-friendly choices.`\
-https://nytimes.com/2025/01/16/climate/plant-based-meat-consumer-choice.html
-
-**Bulls in a familiar place of mediocrity as they reach the NBA halfway point**\
-`After another embarrassing loss, Bulls fans are asking a familiar question at the midway point of the season: Will they commit to a rebuild?`\
-https://nytimes.com/athletic/6066764/2025/01/16/chicago-bulls-news-schedule-roster-record/
-
-**Cash App Ordered to Pay $255 Million in Penalties Over Fraud**\
-`The transfer-money app, owned by Jack Dorsey’s Block, racked up a hefty bill of fines and restitution for what federal regulators called “woefully incomplete” customer protections.`\
-https://nytimes.com/2025/01/16/business/cash-app-fraud-settlement.html
 

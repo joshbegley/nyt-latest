@@ -1,3 +1,15 @@
+**What’s Going On in This Picture? | Jan. 27, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-picture-jan-27-2025.html
+
+**What’s Going On in This Graph? | Jan. 29, 2025**\
+`Lead poisoning can cause lower I.Q.s, behavioral problems and cardiovascular damage. How big of a problem is it worldwide?`\
+https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-graph-jan-29-2025.html
+
+**After waiving Tristan Jarry, what's next for the Penguins?**\
+`Let's take a look at what big decisions face Kyle Dubas, Mike Sullivan and the Penguins over the next couple of weeks.`\
+https://nytimes.com/athletic/6067485/2025/01/16/penguins-tristan-jarry-waivers-kyle-dubas/
+
 **Blinken is shouted down over Gaza as he insists cease-fire deal is on track.**\
 `Two pro-Palestinian journalists who accused him of enabling “genocide,”`\
 https://nytimes.com/2025/01/16/world/middleeast/blinken-israel-hamas-gaza-ceasefire.html
