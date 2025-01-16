@@ -1,3 +1,11 @@
+**This is what will happen during New Glenn’s flight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/this-is-what-will-happen-during-new-glenns-flight
+
+**The latest on the cease-fire agreement.**\
+`By Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/the-latest-on-the-cease-fire-agreement
+
 **Live Updates: Jeff Bezos and Blue Origin Try Again for Debut of New Glenn Rocket**\
 `The company scrubbed its first attempt at sending the powerful rocket to orbit on Monday. The flight is a crucial test of the company’s ability to compete with Elon Musk’s SpaceX.`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch
