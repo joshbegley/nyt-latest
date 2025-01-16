@@ -1,3 +1,27 @@
+**What to expect from CFP leaders' meeting on format changes**\
+`The commissioners pledged that they would let the 12-team CFP's first year play out before discussing changes. Here's what's on tap next.`\
+https://nytimes.com/athletic/6067741/2025/01/16/college-football-playoff-2025-format-changes/
+
+**Vladimir Guerrero Jr. and the Blue Jays: The latest on possible extension talks, Alonso factor and more**\
+`With his free agency looming in less than nine months, the Blue Jays first baseman is generating discussion on a number of fronts.`\
+https://nytimes.com/athletic/6067870/2025/01/16/vladimir-guerrero-blue-jays-extension-trade-pete-alonso/
+
+**Zaha to join MLS side Charlotte FC: Sources**\
+`Former Premier League winger Wilfried Zaha is in the final stages of joining Major League Soccer side Charlotte FC, on loan from Galatasaray, according to multiple sources briefed on the deal.`\
+https://nytimes.com/athletic/6064271/2025/01/16/wilfried-zaha-charlotte-galatasaray/
+
+**Late Adapter? Bob Dylan Joins TikTok in What May Be Its Final Days**\
+`Dylan seemed to be in on the joke, posting an old black and white clip of himself saying “Good God, I must leave right away.”`\
+https://nytimes.com/2025/01/16/arts/music/bob-dylan-tiktok.html
+
+**Israeli Vote on Cease-Fire Is Delayed as Diplomats Work on Details**\
+`Even though negotiators for Israel and Hamas reached a provisional deal for a truce starting Sunday, they continued to discuss outstanding issues through mediators.`\
+https://nytimes.com/2025/01/16/world/middleeast/israel-gaza-ceasefire.html
+
+**Biden Administration Creates Final Limits for Oil Drillers in Alaska**\
+`Republicans said they were seeking ways to quickly reverse the restrictions in the state’s North Slope region.`\
+https://nytimes.com/2025/01/16/climate/biden-alaska-north-slope-drilling.html
+
 **‘Cristóbal Balenciaga’ Is a Gorgeous Fashion Drama**\
 `The six-part Hulu series follows the pioneering designer’s life and career with startling beauty and potency.`\
 https://nytimes.com/2025/01/16/arts/television/cristobal-balenciaga-hulu.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/16/dining/tiktok-ban-cooking-food.html
 **Chicago Fire hold Neymar talks but MLS transfer for forward unlikely**\
 `The Chicago Fire have held discussions to sign Brazilian star Neymar, according to multiple sources who have been briefed on the talks, but a deal to bring the former Barcelona and PSG forward to the United States remains unlikely.`\
 https://nytimes.com/athletic/6064972/2025/01/16/neymar-chicago-fire-transfer/
-
-**Manchester United dismiss Napoli transfer approach for Alejandro Garnacho**\
-`Napoli have approached Manchester United over the availability of Alejandro Garnacho, but the Italian club&#8217;s proposal is not being entertained at Old Trafford as things stand.`\
-https://nytimes.com/athletic/6059629/2025/01/16/alejandro-garnacho-napoli-manchester-united-transfers/
-
-**Until Saturday: Your title game predictions**\
-`Welcome to Until Saturday, The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6067721/2025/01/16/ohio-state-notre-dame-cfp-predictions-until-saturday/
-
-**Betting for (by) dummies: Props galore for CFP title game and NFL playoffs**\
-`Zac Jackson and Jon Greenberg make bets for Ohio State-Notre Dame and NFL divisional-round games. We got props!`\
-https://nytimes.com/athletic/6067576/2025/01/16/betting-for-by-dummies-nfl-divisional-round-cfp-championship-props/
-
-**Adams Unveils a Rosy Election-Year Budget, Citing Lower Migrant Costs**\
-`The $114.5 billion spending plan anticipated $2 billion less in asylum seeker costs, but also called for an additional $550 million for nonmigrant shelters.`\
-https://nytimes.com/2025/01/16/nyregion/budget-nyc-adams.html
-
-**Lyon offers record $1 million transfer fee for USWNT defender Naomi Girma: Sources**\
-`Another European club makes an offer for the star U.S. defender`\
-https://nytimes.com/athletic/6067365/2025/01/16/uswnt-naomi-girma-lyon-san-diego-wave/
-
-**Tommy Brown, a Teenage Talent for the Brooklyn Dodgers, Dies at 97**\
-`He was 16 when he made his debut as a shortstop in an Ebbets Field doubleheader, becoming the youngest position player in modern major-league history.`\
-https://nytimes.com/2025/01/16/sports/baseball/tommy-brown-dead.html
 
