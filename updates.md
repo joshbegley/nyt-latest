@@ -1,3 +1,7 @@
+**Wendy Williams Breaks Silence on Guardianship: ‘I Feel Like I am in Prison’**\
+`The former daytime host, who has been diagnosed with dementia, said in an interview on “The Breakfast Club” that she was “not cognitively impaired” and spoke about her life in a care facility.`\
+https://nytimes.com/2025/01/16/arts/wendy-williams-guardianship.html
+
 **Apple Plans to Disable A.I. Features Summarizing News Notifications**\
 `The company’s Apple Intelligence system has erroneously characterized news stories, provoking a backlash from media companies.`\
 https://nytimes.com/2025/01/16/technology/apple-ai-news-notifications.html
