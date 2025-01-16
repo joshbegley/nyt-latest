@@ -1,3 +1,7 @@
+**Darrin Bell, Pulitzer-Winning Cartoonist, Faces Child Pornography Charges**\
+`More than 100 videos of child sex abuse material, some of which was computer generated, have been connected to Mr. Bell, 49, according to the authorities.`\
+https://nytimes.com/2025/01/16/us/darrin-bell-arrest-child-pornography.html
+
 **L.A. Officials Warn of Compromised Drinking Water in Fire-Ravaged Areas**\
 `“Do not drink” orders have been issued in some areas where damaged pipes that lost pressure might pull in toxic smoke and harmful chemicals that could linger in the system for years.`\
 https://nytimes.com/2025/01/16/us/la-drinking-water-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067940/2025/01/16/wild-kirill-kaprizov-ltir/
 **Johannes Spors to join Southampton as technical director**\
 `Johannes Spors will become Southampton&#8217;s new technical director and support Sport Republic on football matters, subject to being granted a work permit.`\
 https://nytimes.com/athletic/6068089/2025/01/16/southampton-board-johannes-spors-director/
-
-**State Farm offers homeowners in fire areas a chance to renew insurance policies.**\
-`By Jack Healy`\
-https://nytimes.com/2025/01/16/us/state-farm-insurance-renewals-la-fires.html
 
