@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/16/briefing/israel-hamas-poland-russia.html
+
+**China Deploys More Security to Try to Reassure a Country on Edge**\
+`Police are checking on safety at schools and visiting karaoke bars and rental homes to root out perceived malcontents, after several mass killings alarmed the public.`\
+https://nytimes.com/2025/01/16/world/asia/china-mass-killings-security.html
+
+**Meet Japan’s Original Decluttering Guru (No, Not That One)**\
+`Before Marie Kondo stormed into the international consciousness, Hideko Yamashita taught Japan the art of decluttering.`\
+https://nytimes.com/2025/01/16/business/hideko-yamashita-decluttering-danshari.html
+
+**Man United vs Southampton preview: Storylines, odds, prediction with Red Devils improving**\
+`Manchester United have had a pair of encouraging results after a losing run. Can they keep it going against the bottom team in the table?`\
+https://nytimes.com/athletic/6064279/2025/01/16/manchester-united-southampton-preview-odds-prediction/
+
+**Quote of the Day: Their Hard-Won Black Haven Had Thrived. Then It Burned.**\
+`Quotation of the Day for Thursday, January 16, 2025.`\
+https://nytimes.com/2025/01/15/pageoneplus/quote-of-the-day-their-hard-won-black-haven-had-thrived-then-it-burned.html
+
 **It Could Take Weeks Before Displaced L.A. Residents Can Go Home**\
 `Workers need to assess damage, clear hazardous materials and ensure that neighborhoods are safe before people can return, officials have warned.`\
 https://nytimes.com/2025/01/15/us/los-angeles-fires-displaced-residents.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6065713/2025/01/15/sabres-nhl-first-mcleod-hat-tric
 **Negotiators Agree to Long-Awaited Cease-Fire and Hostage Deal for Gaza**\
 `The agreement, which must still be approved by the Israeli cabinet, incited joy in the Gaza Strip and Israel, even as some feared that it could fall apart.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-cease-fire.html
-
-**Biden Delivers Farewell Address Packed With Warnings to Americans**\
-`Speaking from the Oval Office, the president warned of a rising oligarchy, a potential tech-industrial complex and the threat of the climate crisis in his farewell address to the nation.`\
-https://nytimes.com/video/us/politics/100000009929713/biden-farewell-address.html
-
-**Tacos, Water and ‘Homies’: A Gas Station Becomes a Uniquely L.A. Relief Site**\
-`Out of desperation and a need for social bonding, volunteers have banded together to help Altadena residents.`\
-https://nytimes.com/2025/01/15/us/tacos-gas-station-arco-los-angeles.html
-
-**The L.A. fires present new challenges for those who are already homeless.**\
-`By Jesus Jiménez and Vik Jolly`\
-https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/the-la-fires-present-new-challenges-for-those-who-are-already-homeless
-
-**Letters Put in Boxes**\
-`Rebecca Goldstein and Adam Wagner want us to look both ways.`\
-https://nytimes.com/2025/01/15/crosswords/daily-puzzle-2025-01-16.html
-
-**With Spotlight on New Orleans, Louisiana Moves Homeless Out of Sight**\
-`With the Super Bowl and Mardi Gras coming, Gov. Jeff Landry is using the emergency order from the New Year’s attack on Bourbon Street to remove the homeless from downtown.`\
-https://nytimes.com/2025/01/15/us/new-orleans-homeless-super-bowl.html
 
