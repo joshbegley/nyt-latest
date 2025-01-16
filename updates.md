@@ -1,3 +1,7 @@
+**Late Night Is Willing to Bet on a TikTok Ban**\
+`Jordan Klepper called the Supreme Court “not exactly TikTok’s core demographic,” adding that they are “more of a Walgreens app type of crowd.”`\
+https://nytimes.com/2025/01/16/arts/television/late-night-tiktok-ban.html
+
 **An Overnight Style Sensation, at 79**\
 `Larry Pennington, a fashionable former educator, was looking to share some advice on home décor and thrifting. He became an unlikely social media darling.`\
 https://nytimes.com/2025/01/16/style/larry-pennington-thrifting.html

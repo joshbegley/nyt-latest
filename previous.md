@@ -1,3 +1,7 @@
+**Late Night Is Willing to Bet on a TikTok Ban**\
+`Jordan Klepper called the Supreme Court “not exactly TikTok’s core demographic,” adding that they are “more of a Walgreens app type of crowd.”`\
+https://nytimes.com/2025/01/16/arts/television/late-night-tiktok-ban.html
+
 **An Overnight Style Sensation, at 79**\
 `Larry Pennington, a fashionable former educator, was looking to share some advice on home décor and thrifting. He became an unlikely social media darling.`\
 https://nytimes.com/2025/01/16/style/larry-pennington-thrifting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6055961/2025/01/16/crystal-palace-chalobah-recall-n
 **Why is Jeff Bezos’ space company so far behind Elon Musk and SpaceX?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/why-is-jeff-bezos-space-company-so-far-behind-elon-musk-and-spacex
-
-**Lemina's downfall at Wolves has been dramatic - and it seems there is no way back now**\
-`The midfielder was Wolves captain earlier this season but now wants to leave in January, a sad end to his time at Molineux`\
-https://nytimes.com/athletic/6065424/2025/01/16/mario-lemina-wolves-downfall/
 
