@@ -1,3 +1,27 @@
+**Trump Taps Mel Gibson, Sylvester Stallone and Jon Voight as Hollywood ‘Ambassadors’**\
+`The president-elect said the actors would be his “eyes and ears” with the goal of helping the entertainment industry, which he said had lost business to foreign countries.`\
+https://nytimes.com/2025/01/16/business/trump-gibson-stallone-voight-special-ambassadors.html
+
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/01/16/books/review/5-new-books-we-recommend-this-week.html
+
+**What Teens Are Saying About Barring Children Under 16 From Social Media**\
+`When Australia passed a law last year that set a minimum age for users, we asked students how they would feel if their country did the same.`\
+https://nytimes.com/2025/01/16/learning/what-teens-are-saying-about-barring-children-under-16-from-social-media.html
+
+**What’s Going On in This Picture? | Jan. 27, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-picture-jan-27-2025.html
+
+**What’s Going On in This Graph? | Jan. 29, 2025**\
+`Lead poisoning can cause lower I.Q.s, behavioral problems and cardiovascular damage. How big of a problem is it worldwide?`\
+https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-graph-jan-29-2025.html
+
+**After waiving Tristan Jarry, what's next for the Penguins?**\
+`Let's take a look at what big decisions face Kyle Dubas, Mike Sullivan and the Penguins over the next couple of weeks.`\
+https://nytimes.com/athletic/6067485/2025/01/16/penguins-tristan-jarry-waivers-kyle-dubas/
+
 **Meatpacking Companies to Pay $8 Million for U.S. Child Labor Violations**\
 `Perdue Farms and JBS have settled with the Labor Department after relying on migrant children to do dangerous work in their slaughterhouses. Most of the money will be used to help the children.`\
 https://nytimes.com/2025/01/16/us/perdue-jbs-slaughterhouses-child-labor.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6063364/2025/01/16/omar-marmoush-profile-manchester
 **Heat Today: Despite up-and-down road trip, Tyler Herro remains confident in Heat's youthful core**\
 `Despite an inconsistent six-game road trip, Tyler Herro and Bam Adebayo saw promising flashes from Miami's younger players`\
 https://nytimes.com/athletic/6067127/2025/01/16/tyler-herro-kelel-ware-bam-adebayo-jimmy-butler-heat-nba/
-
-**Man City reach verbal agreement with Frankfurt to sign Marmoush**\
-`Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
-https://nytimes.com/athletic/6047775/2025/01/16/omar-marmoush-transfer-manchester-city/
-
-**Blinken Insists Gaza Cease-Fire Deal Is on Track After Hecklers Disrupt News Conference**\
-`Two pro-Palestinian journalists were ejected from the news conference after accusing the secretary of state of enabling “genocide.” Blinken, despite reports of last-minute snags, said he was confident about the cease-fire deal for Gaza.`\
-https://nytimes.com/2025/01/16/world/middleeast/blinken-israel-hamas-gaza-ceasefire.html
-
-**Reality TV Takes Washington (Again)**\
-`It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
-https://nytimes.com/2025/01/16/opinion/sean-duffy-reality-tv-nomination.html
-
-**How Do You Convince Consumers to Eat Plant-Based Meat?**\
-`The imitation meat industry is facing an identity crisis, and the challenge of convincing American consumers to make more planet-friendly choices.`\
-https://nytimes.com/2025/01/16/climate/plant-based-meat-consumer-choice.html
-
-**Bulls in a familiar place of mediocrity as they reach the NBA halfway point**\
-`After another embarrassing loss, Bulls fans are asking a familiar question at the midway point of the season: Will they commit to a rebuild?`\
-https://nytimes.com/athletic/6066764/2025/01/16/chicago-bulls-news-schedule-roster-record/
-
-**Cash App Ordered to Pay $255 Million in Penalties Over Fraud**\
-`The transfer-money app, owned by Jack Dorsey’s Block, racked up a hefty bill of fines and restitution for what federal regulators called “woefully incomplete” customer protections.`\
-https://nytimes.com/2025/01/16/business/cash-app-fraud-settlement.html
 
