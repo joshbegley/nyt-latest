@@ -1,3 +1,11 @@
+**Justin Baldoni Sues Blake Lively and Ryan Reynolds for Defamation**\
+`The lawsuit is the latest legal action in a feud tied to the 2024 film “It Ends With Us,” which starred Ms. Lively and Mr. Baldoni, who also directed the film.`\
+https://nytimes.com/2025/01/16/business/media/justin-baldoni-sues-blake-lively-ryan-reynolds.html
+
+**American Express to Pay $230 Million to Settle Deceptive Marketing Claims**\
+`The Justice Department said the company misrepresented its credit card rewards and fees and made false claims about the tax benefits of its wire transfer products.`\
+https://nytimes.com/2025/01/16/your-money/american-express-fines-credit-cards.html
+
 **Darrin Bell, Pulitzer-Winning Cartoonist, Faces Child Pornography Charges**\
 `More than 100 videos of child sex abuse material, some of which was computer generated, have been connected to Mr. Bell, 49, according to the authorities.`\
 https://nytimes.com/2025/01/16/us/darrin-bell-arrest-child-pornography.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6068183/2025/01/16/ruben-amorim-sir-jim-ratcliffe-m
 **David Lynch: A Life in Pictures**\
 `The filmmaker possessed a singular vision — and a knack for finding collaborators who could convey it.`\
 https://nytimes.com/2025/01/16/movies/david-lynch-life-photos.html
-
-**Wild place Kirill Kaprizov on LTIR, call up 2 forwards: What it means**\
-`The move was necessary to make the call-ups needed to have a full roster. It's retroactive, so Kaprizov can return whenever he's ready.`\
-https://nytimes.com/athletic/6067940/2025/01/16/wild-kirill-kaprizov-ltir/
-
-**Johannes Spors to join Southampton as technical director**\
-`Johannes Spors will become Southampton&#8217;s new technical director and support Sport Republic on football matters, subject to being granted a work permit.`\
-https://nytimes.com/athletic/6068089/2025/01/16/southampton-board-johannes-spors-director/
 

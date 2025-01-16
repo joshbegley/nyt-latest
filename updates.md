@@ -1,3 +1,11 @@
+**Justin Baldoni Sues Blake Lively and Ryan Reynolds for Defamation**\
+`The lawsuit is the latest legal action in a feud tied to the 2024 film “It Ends With Us,” which starred Ms. Lively and Mr. Baldoni, who also directed the film.`\
+https://nytimes.com/2025/01/16/business/media/justin-baldoni-sues-blake-lively-ryan-reynolds.html
+
+**American Express to Pay $230 Million to Settle Deceptive Marketing Claims**\
+`The Justice Department said the company misrepresented its credit card rewards and fees and made false claims about the tax benefits of its wire transfer products.`\
+https://nytimes.com/2025/01/16/your-money/american-express-fines-credit-cards.html
+
 **Darrin Bell, Pulitzer-Winning Cartoonist, Faces Child Pornography Charges**\
 `More than 100 videos of child sex abuse material, some of which was computer generated, have been connected to Mr. Bell, 49, according to the authorities.`\
 https://nytimes.com/2025/01/16/us/darrin-bell-arrest-child-pornography.html
