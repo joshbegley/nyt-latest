@@ -1,3 +1,11 @@
+**Family, friends and fans pay tribute to Bob Uecker, 'the light of the Brewers'**\
+`"Mr. Baseball," the Milwaukee Brewers’ longtime radio announcer, died Thursday at age 90.`\
+https://nytimes.com/athletic/6067417/2025/01/16/bob-uecker-death-mlb-reaction/
+
+**Lethal on the break, runs behind and a passing option: What Omar Marmoush brings to Manchester City**\
+`The 25-year-old striker's profile analysed - and a look at how he is likely to fit City manager Pep Guardiola's system`\
+https://nytimes.com/athletic/6063364/2025/01/16/omar-marmoush-profile-manchester-city-tactics/
+
 **Heat Today: Despite up-and-down road trip, Tyler Herro remains confident in Heat's youthful core**\
 `Despite an inconsistent six-game road trip, Tyler Herro and Bam Adebayo saw promising flashes from Miami's younger players`\
 https://nytimes.com/athletic/6067127/2025/01/16/tyler-herro-kelel-ware-bam-adebayo-jimmy-butler-heat-nba/
