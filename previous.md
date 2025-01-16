@@ -1,3 +1,11 @@
+**Saif Ali Khan, Famed Bollywood Actor, Is Stabbed at Home in Mumbai**\
+`The police said Mr. Khan was recovering in the hospital after an intruder attacked him at his house in an upscale neighborhood.`\
+https://nytimes.com/2025/01/16/world/asia/saif-ali-khan-stabbed-mumbai.html
+
+**Temperatures Expected to Plunge Across the U.S. as Freezing Cold Drifts In**\
+`Arctic air will dip into much of the United States this weekend, with temperatures reaching some of the lowest of the year.`\
+https://nytimes.com/2025/01/16/weather/weather-us-cold-forecast.html
+
 **49ers mock draft reaction: Will tackle Armand Membou measure up to team’s standard?**\
 `The 49ers have to start thinking about a replacement for 36-year-old Trent Williams, who hasn't played a full season since 2013.`\
 https://nytimes.com/athletic/6064836/2025/01/16/49ers-mock-draft-reaction-armand-membou/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6065852/2025/01/16/ravens-rashod-bateman-lamar-jack
 **What Trump’s Treasury Pick Might Get Asked Today**\
 `Scott Bessent, a billionaire hedge fund manager, will likely face tough questions on tax cuts and tariffs — and how bond markets might check his economic agenda.`\
 https://nytimes.com/2025/01/16/business/dealbook/bessent-treasury-confirmation-hearing.html
-
-**For Novak Djokovic, the Australian Open is about to get real**\
-`The 24-time Grand Slam champion is a master of easing into majors. At every one, he has a match that lifts him up. Will this one be it?`\
-https://nytimes.com/athletic/6066082/2025/01/16/novak-djokovic-australian-open-tomas-machac/
-
-**Collins thanks booing Australian Open crowd for 'big fat pay check' after beating home hope**\
-`Danielle Collins thanked a hostile Australian Open crowd for helping to fund her next vacation after beating its last home hope in the women&#8217;s draw.`\
-https://nytimes.com/athletic/6066290/2025/01/16/danielle-collins-australian-open-crowd-tennis/
 
