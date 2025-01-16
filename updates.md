@@ -1,3 +1,11 @@
+**‘Honestly, I feel numb.’ Gazans react to cease-fire deal.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/honestly-i-feel-numb-gazans-react-to-cease-fire-deal
+
+**Arsenal may be the best out-of-possession team in the world**\
+`Arsenal's title bid relies on them maintaining their performance without the ball while finding a more clinical edge when they have it`\
+https://nytimes.com/athletic/6065979/2025/01/16/arsenal-high-press-tottenham-hotspur/
+
 **Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
 `The Wimbledon saga is over for good as Emma Raducanu moves into the Australian Open third round`\
 https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
