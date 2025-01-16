@@ -1,3 +1,7 @@
+**Reality TV Takes Washington (Again)**\
+`It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
+https://nytimes.com/2025/01/16/opinion/sean-duffy-reality-tv-nomination.html
+
 **Man City reach verbal agreement with Frankfurt to sign Marmoush**\
 `Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
 https://nytimes.com/athletic/6047775/2025/01/16/omar-marmoush-transfer-manchester-city/

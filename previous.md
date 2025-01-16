@@ -8,7 +8,7 @@ https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/blinken-i
 
 **Reality TV Takes Washington (Again)**\
 `It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
-https://nytimes.com/live/2025/01/09/opinion/thepoint/sean-duffy-reality-tv-nomination
+https://nytimes.com/2025/01/16/opinion/sean-duffy-reality-tv-nomination.html
 
 **How Do You Convince Consumers to Eat Plant-Based Meat?**\
 `The imitation meat industry is facing an identity crisis, and the challenge of convincing American consumers to make more planet-friendly choices.`\
