@@ -4,7 +4,7 @@ https://nytimes.com/live/2025/01/09/opinion/thepoint/sean-duffy-reality-tv-nomin
 
 **How Do You Convince Consumers to Eat Plant-Based Meat?**\
 `The imitation meat industry is facing an identity crisis, and the challenge of convincing American consumers to make more planet-friendly choices.`\
-https://nytimes.com/2025/01/16/climate/plant-based-meat-cosumer-choice.html
+https://nytimes.com/2025/01/16/climate/plant-based-meat-consumer-choice.html
 
 **Bulls in a familiar place of mediocrity as they reach the NBA halfway point**\
 `After another embarrassing loss, Bulls fans are asking a familiar question at the midway point of the season: Will they commit to a rebuild?`\
