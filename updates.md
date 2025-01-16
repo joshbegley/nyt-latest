@@ -1,4 +1,8 @@
 **Man City reach verbal agreement with Frankfurt to sign Marmoush**\
+`Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
+https://nytimes.com/athletic/6047775/2025/01/16/omar-marmoush-transfer-manchester-city/
+
+**Man City reach verbal agreement with Frankfurt to sign Marmoush**\
 `Manchester City have reached a verbal agreement with Eintracht Franfurt for the transfer of forward Omar Marmoush.`\
 https://nytimes.com/athletic/6047775/2025/01/16/omar-marmoush-transfer-manchester-city/
 
