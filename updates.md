@@ -1,3 +1,7 @@
+**President Biden is Bowing Out After One Term. He’s Not the First.**\
+`Other American presidents have faced the delicate challenge of bidding farewell with grace after serving only one term in the Oval Office.`\
+https://nytimes.com/2025/01/15/us/politics/biden-presidents-farewell-address.html
+
 **Defending Justin Herbert and more takeaways from Chargers' Jim Harbaugh, Joe Hortiz**\
 `Harbaugh on Herbert: “We did him a disservice and didn’t put him in the positions to be successful enough."`\
 https://nytimes.com/athletic/6065490/2025/01/15/chargers-justin-herbert-jim-harbaugh-joe-hortiz/
