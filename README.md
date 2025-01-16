@@ -1,3 +1,7 @@
+**It could take another week, most likely more, for people to return home, officials say.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
+
 **The Windup: If you only read one Roki Sasaki story ...**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6067276/2025/01/16/roki-sasaki-tsunami-signing-deadline-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/some-cal
 **For TikTok Refugees, a Wry Welcome on a Chinese App**\
 `In their mass migration to the Chinese app RedNote, social media users make a gleeful mockery of the American government.`\
 https://nytimes.com/2025/01/16/arts/tiktok-red-note-china.html
-
-**Arsenal thrill at Myles Lewis-Skelly's trademark ability to draw pressure and ride tackles**\
-`In the derby, Lewis-Skelly showed defensive solidity, tactical understanding and small-space dribbling ability that defies his inexperience`\
-https://nytimes.com/athletic/6066117/2025/01/16/lewis-skelly-arsenal-dembele-rice/
 
