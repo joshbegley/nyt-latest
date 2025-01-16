@@ -1,3 +1,15 @@
+**Rangers fan survey: Fire Drury? Or Laviolette? Trades? Rebuild? Stay the course?**\
+`Here’s our midseason Rangers fan survey, which features the same questions asked of the NHL insiders earlier this week.`\
+https://nytimes.com/athletic/6067277/2025/01/16/rangers-fan-survey-drury-laviolette/
+
+**SpaceX’s 7th Starship Test Launch: What to Know**\
+`Elon Musk’s spaceflight company is continuing its work on the vehicle that could one day take people to the moon and eventually Mars.`\
+https://nytimes.com/2025/01/16/science/spacex-starship-test-launch-7.html
+
+**It could take another week, most likely more, for people to return home, officials say.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/16/us/la-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
+
 **It could take another week, most likely more, for people to return home, officials say.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
