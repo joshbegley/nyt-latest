@@ -1,3 +1,7 @@
+**Biden and Trump Defy Their History of Animosity to Seal Gaza Cease-Fire**\
+`But the extraordinary collaboration between outgoing and incoming presidents did not stop both sides from claiming credit.`\
+https://nytimes.com/2025/01/15/us/politics/biden-and-trump-defy-their-history-of-animosity-to-seal-gaza-cease-fire.html
+
 **'We've got to look at two paths': Neely admits retooling is a possibility**\
 `The Bruins entered the season with hopes of chasing the Stanley Cup. With over half the season gone, Boston brass is getting pragmatic.`\
 https://nytimes.com/athletic/6065385/2025/01/15/bruins-retool-cam-neely-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/us/south-carolina-jail-constitutional-rights.html
 **Hostage families are celebrating the cease-fire deal — with a dose of trepidation.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/hostage-families-celebration-trepidation
-
-**NCAA approves pay for women's basketball teams in tournament**\
-`The unanimous vote by NCAA membership (292-0) was met with applause on Wednesday.`\
-https://nytimes.com/athletic/6065210/2025/01/15/ncaa-march-madness-financial-units-vote/
 
