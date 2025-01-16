@@ -1,3 +1,11 @@
+**Family, friends and fans pay tribute to Bob Uecker, 'the light of the Brewers'**\
+`"Mr. Baseball," the Milwaukee Brewers’ longtime radio announcer, died Thursday at age 90.`\
+https://nytimes.com/athletic/6067417/2025/01/16/bob-uecker-death-mlb-reaction/
+
+**Lethal on the break, runs behind and a passing option: What Omar Marmoush brings to Manchester City**\
+`The 25-year-old striker's profile analysed - and a look at how he is likely to fit City manager Pep Guardiola's system`\
+https://nytimes.com/athletic/6063364/2025/01/16/omar-marmoush-profile-manchester-city-tactics/
+
 **Heat Today: Despite up-and-down road trip, Tyler Herro remains confident in Heat's youthful core**\
 `Despite an inconsistent six-game road trip, Tyler Herro and Bam Adebayo saw promising flashes from Miami's younger players`\
 https://nytimes.com/athletic/6067127/2025/01/16/tyler-herro-kelel-ware-bam-adebayo-jimmy-butler-heat-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/business/cash-app-fraud-settlement.html
 **Patients Are Dying in Hospital Corridors, British Nurses Say**\
 `A damning report on overcrowded hospitals added fuel to a painful debate over the crises at the National Health Service.`\
 https://nytimes.com/2025/01/16/world/europe/british-nhs-report-nursing.html
-
-**The Next Threat to L.A.? Rainfall That Could Cause Landslides**\
-`While firefighters begin containing the Los Angeles wildfires, the land left behind is at a higher risk of floods and debris flows.`\
-https://nytimes.com/2025/01/16/climate/los-angeles-landslide-risk.html
-
-**Wildfire Victims Need Cash More Than Used Clothes**\
-`After natural disasters, relief organizations are overwhelmed by clothing donations. Aid groups in Southern California say money is more helpful.`\
-https://nytimes.com/2025/01/16/style/wildfire-donations-clothes-how-to-help.html
 
