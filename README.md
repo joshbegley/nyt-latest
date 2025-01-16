@@ -34,7 +34,7 @@ https://nytimes.com/2025/01/15/arts/howard-buten-dead.html
 `By Erica L. Green`\
 https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-latest
 
-**Live Updates: Biden to Deliver Farewell Address to the Nation**\
-`His administration would not disclose what the outgoing president planned to say in his speech. But in his final months he has been seeking to cement a legacy as a transformative president.`\
+**Live Updates: Biden Delivers Farewell Address to the Nation**\
+`In his final months in office, Biden he has been seeking to cement a legacy as a transformative president.`\
 https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition
 
