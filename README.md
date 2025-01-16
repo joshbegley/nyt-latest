@@ -1,3 +1,19 @@
+**After the Fires, It’s a New City, and a New World**\
+`Adam Nagourney, a former Los Angeles bureau chief, explores the extent to which no one is immune from the threat of fires.`\
+https://nytimes.com/2025/01/16/us/wildfires-new-world.html
+
+**Mexico City’s New Wave of Nostalgic Small Hotels**\
+`In the Condesa and Roma neighborhoods, boutique properties are reviving historic buildings.`\
+https://nytimes.com/2025/01/16/t-magazine/mexico-city-hotels.html
+
+**Producers Guild Nominations Narrow Down the Oscar Field**\
+`The list includes “Anora,” “Conclave,” “Emilia Pérez” and “A Complete Unknown,” which all received directors and actors guild nominations, too.`\
+https://nytimes.com/2025/01/16/movies/producers-guild-nominations-anora-emilia-perez-conclave-complete-unknown.html
+
+**Biden’s ‘Bittersweet’ Farewell Address**\
+`Readers offer both praise and criticism of the outgoing president. Also: Greenland’s rights; resilience amid trauma; near-death experiences.`\
+https://nytimes.com/2025/01/16/opinion/joe-biden-farewell-address.html
+
 **Some California lawmakers want to penalize polluters for wildfires.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/some-california-lawmakers-want-to-penalize-polluters-for-wildfires
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6067080/2025/01/16/pete-alonso-mets-blue-jays/
 **Woyo Coulibaly to Leicester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Woyo Coulibaly's move to Leicester City`\
 https://nytimes.com/athletic/6066197/2025/01/16/woyo-coulibaly-to-leicester-city-the-athletic-500-transfer-ratings/
-
-**UnitedHealth’s Revenues Rise, in First Earnings Report Since C.E.O.’s Killing**\
-`But high medical costs contributed to results that disappointed Wall Street, and the company’s stock fell on the news that it had made less than analysts expected.`\
-https://nytimes.com/2025/01/16/health/unitedhealth-earnings-report-ceo-murder.html
-
-**How Canadiens' Carrier trade helped unlock Hutson’s offence**\
-`The pairing of Hutson and Matheson goes against hockey's convetional wisdom, but Martin St. Louis is not a conventional coach.`\
-https://nytimes.com/athletic/6067010/2025/01/16/canadiens-lane-hutson-alexandre-carrier-trade/
-
-**What we're seeing from the Bucks: Giannis' short rolling, Dame's pace and more**\
-`Antetokounmpo is manipulating the space in the key, Lopez is finding his way to the rim and Lillard isn't letting defenses get set.`\
-https://nytimes.com/athletic/6063891/2025/01/16/giannis-antetokounmpo-damian-lillard-bucks-pace/
-
-**Trump Is Said to Consider Executive Order to Circumvent TikTok Ban**\
-`The move is under discussion as the Chinese-owned app faces a Sunday deadline to find a new buyer or shut down in the United States.`\
-https://nytimes.com/2025/01/16/us/politics/trump-tiktok-executive-order.html
 
