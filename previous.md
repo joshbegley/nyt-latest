@@ -1,3 +1,11 @@
+**Pete Alonso’s market heats up; Blue Jays in mix, Mets also talking to others**\
+`The power-hitting first baseman was the No. 8 player on The Athletic's Top 40 Free Agent Big Board this offseason. `\
+https://nytimes.com/athletic/6067080/2025/01/16/pete-alonso-mets-blue-jays/
+
+**Woyo Coulibaly to Leicester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we take a look at Woyo Coulibaly's move to Leicester City`\
+https://nytimes.com/athletic/6066197/2025/01/16/woyo-coulibaly-to-leicester-city-the-athletic-500-transfer-ratings/
+
 **UnitedHealth’s Revenues Rise, in First Earnings Report Since C.E.O.’s Killing**\
 `But high medical costs contributed to results that disappointed Wall Street, and the company’s stock fell on the news that it had made less than analysts expected.`\
 https://nytimes.com/2025/01/16/health/unitedhealth-earnings-report-ceo-murder.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6046507/2025/01/16/jaden-philogene-aston-villa-exit
 **Roar of New Glenn’s Engines Silences Skeptics of Bezos’ Blue Origin**\
 `The successful flight to orbit of the Amazon founder’s powerful rocket suggests it could grow into a credible competitor with Elon Musk’s SpaceX.`\
 https://nytimes.com/2025/01/16/science/bezos-blue-origin-launch.html
-
-**Man Who Sent ‘I Raped You’ Messages Is Extradited From France to U.S.**\
-`Ian Cleary is facing charges of sexually assaulting a Gettysburg College student in 2013. Years later, he sent her messages on Facebook that helped break the case.`\
-https://nytimes.com/2025/01/16/us/gettysburg-college-student-rape-extradition-france.html
-
-**House Passes Bill to Deport Immigrants Convicted of Violence Against Women**\
-`Scores of Democrats joined Republicans in approving the measure, even though existing law already allows immigrants with contested legal status who are convicted of sex crimes to be deported.`\
-https://nytimes.com/2025/01/16/us/house-bill-deport-immigrants.html
 

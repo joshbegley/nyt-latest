@@ -1,3 +1,11 @@
+**Pete Alonso’s market heats up; Blue Jays in mix, Mets also talking to others**\
+`The power-hitting first baseman was the No. 8 player on The Athletic's Top 40 Free Agent Big Board this offseason. `\
+https://nytimes.com/athletic/6067080/2025/01/16/pete-alonso-mets-blue-jays/
+
+**Woyo Coulibaly to Leicester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we take a look at Woyo Coulibaly's move to Leicester City`\
+https://nytimes.com/athletic/6066197/2025/01/16/woyo-coulibaly-to-leicester-city-the-athletic-500-transfer-ratings/
+
 **UnitedHealth’s Revenues Rise, in First Earnings Report Since C.E.O.’s Killing**\
 `But high medical costs contributed to results that disappointed Wall Street, and the company’s stock fell on the news that it had made less than analysts expected.`\
 https://nytimes.com/2025/01/16/health/unitedhealth-earnings-report-ceo-murder.html
