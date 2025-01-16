@@ -1,7 +1,3 @@
-**David Lynch: A Life in Pictures**\
-`The filmmaker possessed a singular vision — and a knack for finding collaborators who could convey it.`\
-https://nytimes.com/2025/01/16/movies/david-lynch-life-photos.html
-
 **Wild place Kirill Kaprizov on LTIR, call up 2 forwards: What it means**\
 `The move was necessary to make the call-ups needed to have a full roster. It's retroactive, so Kaprizov can return whenever he's ready.`\
 https://nytimes.com/athletic/6067940/2025/01/16/wild-kirill-kaprizov-ltir/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/16/briefing/delayed-cease-fire-vote-trump-nominees-h
 **Hurzeler says Brighton squad depth to thank for game-changing substitutions**\
 `Head coach Fabian Hurzeler says the depth of Brighton &amp; Hove Albion&#8217;s squad has given him the scope to make game-changing substitutions.`\
 https://nytimes.com/athletic/6068021/2025/01/16/fabian-hurzeler-brighton-substitutions/
+
+**The Entertainment World Mourns the ‘Dreamer’ Director David Lynch**\
+`Lynch’s death inspired tributes from fellow filmmakers, celebrities and past collaborators, who praised his visionary work and singular voice.`\
+https://nytimes.com/2025/01/16/movies/david-lynch-tributes.html
 
