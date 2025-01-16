@@ -1,3 +1,15 @@
+**Trump Picks a Jet-Setting Pal of Elon Musk to Go Get Greenland**\
+`Negotiations over an 836,000-square-mile island may fall to a close friend of Elon Musk with experience in deal-making. Just not that kind of deal-making.`\
+https://nytimes.com/2025/01/16/us/politics/elon-musk-donald-trump-greenland.html
+
+**Banker, Investor, Prime Minister? Mark Carney Bids to Lead Canada.**\
+`The former governor of the Canadian and British central banks announced he was running to become head of the Liberal Party and prime minister.`\
+https://nytimes.com/2025/01/16/world/canada/mark-carney-liberal-party-leader-campaign.html
+
+**Brisbee: How Bob Uecker, ‘Mr. Baseball,’ personified the fun of the game**\
+`Baseball is fun. Mr. Baseball reminded us of this for decades, and he'll continue reminding us of it for as long as the sport is around.`\
+https://nytimes.com/athletic/6067075/2025/01/16/bob-uecker-mr-baseball/
+
 **Is America an Oligarchy Yet?**\
 `The question hangs in the air, begging to be taken up by the American people.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/america-oligarchy-billionaire-class
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6067564/2025/01/16/new-york-mets-pete-alonso-contra
 **Biden Administration Withdraws Protections for Endangered Whales**\
 `The proposed rules would have slowed more ships to prevent collisions with rare North Atlantic right whales.`\
 https://nytimes.com/2025/01/16/us/biden-administration-slow-ships-whales-proposal-withdraw.html
-
-**How Hollywood’s Awards Season Could Change the World (a Little)**\
-`It’s not just which actors win a prize that matters. It’s also what we call them.`\
-https://nytimes.com/2025/01/16/opinion/best-actor-actress.html
-
-**More Americans, Risking Ruin, Drop Their Home Insurance**\
-`As climate threats worsen, they are skipping payments and losing protection.`\
-https://nytimes.com/interactive/2025/01/16/climate/home-insurance-cancellations.html
-
-**Sweeney and Neely have their boss’ approval ahead of the trade deadline. What comes next?**\
-`Is it time for major changes? CEO Charlie Jacobs made one thing clear Wednesday: He has faith in Sweeney and Neely to make the right moves.`\
-https://nytimes.com/athletic/6067070/2025/01/16/bruins-sweeney-neely-retool/
 
