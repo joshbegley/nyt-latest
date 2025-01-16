@@ -1,3 +1,7 @@
+**LeBron James says he evacuated with family amid LA wildfires**\
+`"Personally, I’ve been off," the Lakers star said, adding that he's been staying in a hotel since evacuating Thursday night.`\
+https://nytimes.com/athletic/6065874/2025/01/16/lebron-los-angeles-wildfires-lakers/
+
 **What are Blue Origin’s plans for the future?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-are-blue-origins-plans-for-the-future
