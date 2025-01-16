@@ -1,3 +1,7 @@
+**Judge John Hodgman on Condescending Kit Kat Labels**\
+`Can a candy bar’s instructions be too paternalistic?`\
+https://nytimes.com/2025/01/16/magazine/judge-john-hodgman-kit-kat-labels.html
+
 **Keon Ellis helped revitalize the Kings defense, but is he a lock to start?**\
 `Sacramento's season turned around when Ellis was put in the starting lineup. But can he hold on to the spot?`\
 https://nytimes.com/athletic/6065266/2025/01/16/keon-ellis-revitalize-kings-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/16/realestate/nashville-home-sale.html
 **A.I. Military Start-Up Anduril Plans $1 Billion Factory in Ohio**\
 `The company said its Columbus plant could eventually produce tens of thousands of autonomous systems and weapons each year.`\
 https://nytimes.com/2025/01/16/technology/anduril-factory-columbus-ohio.html
-
-**A Euphoric Tech Industry Is Ready to Celebrate Trump and Itself**\
-`The elite of Silicon Valley are set to revel in their new clout during a long weekend of inaugural parties as President-elect Donald J. Trump is set to resume power.`\
-https://nytimes.com/2025/01/16/us/politics/trump-tech-inauguration-parties.html
 
