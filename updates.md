@@ -1,3 +1,11 @@
+**Is America an Oligarchy Yet?**\
+`The question hangs in the air, begging to be taken up by the American people.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/america-oligarchy-billionaire-class
+
+**Southwest Pilot Is Removed From Flight and Charged With D.U.I.**\
+`The pilot, David Paul Allsop, was taken off a flight to Chicago at the airport in Savannah, Ga., on Wednesday, officials said.`\
+https://nytimes.com/2025/01/16/business/southwest-airlines-pilot-arrested-dui-georgia.html
+
 **Does late-season momentum matter in the NFL playoffs? The Ravens hope so**\
 `Michael Salfino looks at late-season point differential over the past six seasons to see if it is predictive of success in the NFL playoffs.`\
 https://nytimes.com/athletic/6066878/2025/01/16/nfl-playoffs-2025-late-season-momentum/
