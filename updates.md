@@ -1,3 +1,11 @@
+**What to expect from Jarry's goalie replacement, Joel Blomqvist**\
+`Let's break down the tape of Blomqvist's AHL performance and project how it'll work at the NHL level. `\
+https://nytimes.com/athletic/6065037/2025/01/16/penguins-tristan-jarry-joel-blomqvist-replacement-nhl/
+
+**Man Is Arrested in Connection With Little Mountain Fire**\
+`The police in San Bernardino, Calif., said they had apprehended a man in connection with the small brush fire. The blaze’s progress had been stopped by fire crews, officials said.`\
+https://nytimes.com/2025/01/16/us/mountain-fire-arrest.html
+
 **Leafs place John Tavares on IR with lower-body injury: What are their options at centre?**\
 `With Tavares out for at least four games, a Maple Leafs team that was already light on centre depth will now see its options tested.`\
 https://nytimes.com/athletic/6066672/2025/01/16/john-tavares-injured-reserve-maple-leafs/
