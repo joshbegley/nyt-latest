@@ -1,3 +1,7 @@
+**For Jeff Bezos, New Glenn’s success is personal.**\
+`By Karen Weise`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/for-jeff-bezos-new-glenns-success-is-personal
+
 **‘Where’s Our Place in Society?’: 12 Men Who Backed Trump Grapple With America**\
 `The group discusses the news and podcasts that shape their opinions about America and the world, what being a man’s man means and what they do and don’t want Trump to do in office.`\
 https://nytimes.com/interactive/2025/01/16/opinion/men-trump-voters-focus-group.html

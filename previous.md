@@ -1,3 +1,7 @@
+**For Jeff Bezos, New Glenn’s success is personal.**\
+`By Karen Weise`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/for-jeff-bezos-new-glenns-success-is-personal
+
 **‘Where’s Our Place in Society?’: 12 Men Who Backed Trump Grapple With America**\
 `The group discusses the news and podcasts that shape their opinions about America and the world, what being a man’s man means and what they do and don’t want Trump to do in office.`\
 https://nytimes.com/interactive/2025/01/16/opinion/men-trump-voters-focus-group.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6065476/2025/01/16/corbin-burnes-diamondbacks-champ
 **Do Liverpool need new signings - and, if so, where?**\
 `We're halfway through the transfer window, but all is quiet at Anfield - should it stay that way?`\
 https://nytimes.com/athletic/6064031/2025/01/16/liverpool-transfers-january-squad-audit/
-
-**What Ruben Amorim's changed at Manchester United - and what he's still working on**\
-`The head coach has made a lot of changes, from mentality to tactics to personnel`\
-https://nytimes.com/athletic/6064434/2025/01/16/ruben-amorim-manchester-united-changes-tactics/
 
