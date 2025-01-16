@@ -1,3 +1,7 @@
+**Rashod Bateman knows how far he can still go while appreciating how far he's come**\
+`The 25-year-old Bateman has had a career year and is firmly entrenched as one of Lamar Jackson’s go-to targets. `\
+https://nytimes.com/athletic/6065852/2025/01/16/ravens-rashod-bateman-lamar-jackson/
+
 **What Trump’s Treasury Pick Might Get Asked Today**\
 `Scott Bessent, a billionaire hedge fund manager, will likely face tough questions on tax cuts and tariffs — and how bond markets might check his economic agenda.`\
 https://nytimes.com/2025/01/16/business/dealbook/bessent-treasury-confirmation-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064724/2025/01/16/college-basketball-march-madness
 **NWSL moves I like: Shaw's trade request ushers in new era**\
 `Amid a transformational NWSL offseason, here are a few standout trades`\
 https://nytimes.com/athletic/6064565/2025/01/16/jaedyn-shaw-nwsl-moves-trade-window-soccer/
-
-**Barkley and Gibbs bring new life to the running back trading card market**\
-`Saquon Barkley and Jahmyr Gibbs' 2024 success has lead to a surge in their trading cards market, but not for Derrick Henry.`\
-https://nytimes.com/athletic/6064141/2025/01/16/jahmyr-gibbs-saquon-barkley-nfl-card-values/
 
