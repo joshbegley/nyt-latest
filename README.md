@@ -1,3 +1,11 @@
+**Students and teachers from schools that burned in the Palisades fire reunite and grieve.**\
+`Children who had been out of school for a week after fires destroyed or damaged school buildings reconvened in borrowed spaces.`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/students-and-teachers-from-schools-that-burned-in-the-palisades-fire-reunite-and-grieve
+
+**In a ‘Show Boat’ Reboot, Ol’ Man River Gets an Extreme Makeover**\
+`“Show/Boat: A River” reverses the racial lens on the great-grandfather of American musicals.`\
+https://nytimes.com/2025/01/15/theater/show-boat-under-the-radar.html
+
 **Biden and Trump Defy Their History of Animosity to Seal Gaza Cease-Fire**\
 `But the extraordinary collaboration between outgoing and incoming presidents did not stop both sides from claiming credit.`\
 https://nytimes.com/2025/01/15/us/politics/biden-and-trump-defy-their-history-of-animosity-to-seal-gaza-cease-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-l
 **Live Updates: Biden Delivers Farewell Address to the Nation**\
 `In his final months in office, Biden he has been seeking to cement a legacy as a transformative president.`\
 https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition
-
-**U.S. Finds Pervasive Safety Failures at South Carolina Jail**\
-`Stabbings, sexual assaults and drug use are rampant in the Alvin S. Glenn Detention Center because of staff shortages and security failures, a Justice Department investigation found.`\
-https://nytimes.com/2025/01/15/us/south-carolina-jail-constitutional-rights.html
-
-**Hostage families are celebrating the cease-fire deal — with a dose of trepidation.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/hostage-families-celebration-trepidation
 
