@@ -1,3 +1,7 @@
+**Blinken is shouted down over Gaza as he insists cease-fire deal is on track.**\
+`Two pro-Palestinian journalists who accused him of enabling “genocide,”`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/blinken-is-shouted-down-over-gaza-as-he-insists-cease-fire-deal-is-on-track
+
 **Reality TV Takes Washington (Again)**\
 `It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/sean-duffy-reality-tv-nomination
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/movies/david-lynch-dead.html
 **Anthony Richardson will be a Top 10 fantasy football QB in 2025 and more divisive opinions**\
 `Jake Ciely, Brandon Funston and The Athletic Staff discuss divisive fantasy football topics, including whether Richardson is a Top 10 QB.`\
 https://nytimes.com/athletic/6066669/2025/01/16/fantasy-football-early-opinions-top-picks-2025/
-
-**Stephen Miller, Channeling Trump, Has Built More Power Than Ever**\
-`Stephen Miller was the architect of Donald J. Trump’s hard-line immigration agenda in his first term. Now he is back with fewer internal rivals and even more influence with the president.`\
-https://nytimes.com/2025/01/16/us/politics/stephen-miller-trump.html
 
