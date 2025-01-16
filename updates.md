@@ -1,3 +1,7 @@
+**United by Disaster, L.A. Mourns, and Hopes, Together**\
+`More than a week after the wildfires ignited, the hazy numbness described by many looks a lot like grieving.`\
+https://nytimes.com/2025/01/15/us/politics/la-wildfires-feeling.html
+
 **'We've got to look at two paths': Neely admits retooling is a possibility**\
 `The Bruins entered the season with hopes of chasing the Stanley Cup. With over half the season gone, Boston brass is getting pragmatic.`\
 https://nytimes.com/athletic/6065385/2025/01/15/bruins-retool-cam-neely-playoffs/
