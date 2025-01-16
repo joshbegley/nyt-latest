@@ -1,3 +1,7 @@
+**Canelo, a Dog With Scorched Paws, Is Among Many Animals Rescued in the Los Angeles Fires**\
+`Over 150 stray animals from the Eaton fire in Altadena are waiting to be reconnected with their owners at Pasadena Humane.`\
+https://nytimes.com/2025/01/15/us/la-fires-animals-pets.html
+
 **Sabres make NHL history, avoid third-period collapse in win over Hurricanes: Takeaways**\
 `The Sabres got a fourth goal in the third period to ice the game — despite not recording a shot on net in the entire period, an NHL first.`\
 https://nytimes.com/athletic/6065713/2025/01/15/sabres-nhl-first-mcleod-hat-trick-hurricanes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/us/politics/full-transcript-of-president-bidens-f
 **Corrections: Jan. 16, 2025**\
 `Corrections that appeared in print on Thursday, Jan. 16, 2025.`\
 https://nytimes.com/2025/01/15/pageoneplus/corrections-jan-16-2025.html
-
-**British Man Freed From Prison Over Video Misidentification**\
-`Ademola Adedeji was ensnared in a murder conspiracy case with no murder victim. Prosecutors labeled him a gang member and won a conviction and eight-year sentence.`\
-https://nytimes.com/2025/01/15/world/europe/uk-conspiracy-gang-video-misidentification-trial-overturned.html
 
