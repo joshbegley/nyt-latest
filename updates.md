@@ -1,5 +1,9 @@
 **Tacos, Water and ‘Homies’: A Gas Station Becomes a Uniquely L.A. Relief Site**\
 `Out of desperation and a need for social bonding, volunteers have banded together to help Altadena residents.`\
+https://nytimes.com/2025/01/15/us/tacos-gas-station-arco-los-angeles.html
+
+**Tacos, Water and ‘Homies’: A Gas Station Becomes a Uniquely L.A. Relief Site**\
+`Out of desperation and a need for social bonding, volunteers have banded together to help Altadena residents.`\
 https://nytimes.com/2025/01/15/us/tacos-water-and-homies-a-gas-station-becomes-a-uniquely-la-relief-site.html
 
 **The L.A. fires present new challenges for those who are already homeless.**\
