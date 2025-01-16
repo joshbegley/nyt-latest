@@ -1,3 +1,15 @@
+**Leafs place John Tavares on IR with lower-body injury: What are their options at centre?**\
+`With Tavares out for at least four games, a Maple Leafs team that was already light on centre depth will now see its options tested.`\
+https://nytimes.com/athletic/6066672/2025/01/16/john-tavares-injured-reserve-maple-leafs/
+
+**NBA Lookahead: How the West might be won; James Harden trade rewind**\
+`Which teams have the best chances of stopping OKC? We asked readers of The Bounce.`\
+https://nytimes.com/athletic/6058784/2025/01/16/nba-lookahead-thunder-lakers-warriors-james-harden/
+
+**Nintendo Switch 2 Is Announced With a 2025 Release Date**\
+`The new console looks physically similar to the popular Switch system, which has sold more than 146 million units in seven years.`\
+https://nytimes.com/2025/01/16/business/nintendo-switch-2.html
+
 **A cease-fire would mean more aid for Gaza, but getting it to people in need may still be hard.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/a-cease-fire-would-mean-more-aid-for-gaza-but-getting-it-to-people-in-need-may-still-be-hard
