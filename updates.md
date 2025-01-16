@@ -1,3 +1,15 @@
+**Sudan’s Military Has Used Chemical Weapons Twice, U.S. Officials Say**\
+`The determination comes as the United States prepares to announce sanctions against the Sudanese military chief, saying there is strong evidence of atrocities in the country.`\
+https://nytimes.com/2025/01/16/world/africa/sudan-chemical-weapons-sanctions.html
+
+**Netanyahu Faces a Political Crisis Over the Gaza Cease-Fire Deal**\
+`With his far-right coalition partners refusing to end the war, Prime Minister Benjamin Netanyahu may soon have to choose between them or the agreement.`\
+https://nytimes.com/2025/01/16/world/middleeast/netanyahu-israel-cease-fire.html
+
+**American qualifier Learner Tien beats Daniil Medvedev in stunning Australian Open upset**\
+`MELBOURNE, Australia — Learner Tien, a 19-year-old qualifier from California, notched the biggest upset of the 2025 Australian Open to date by beating 2024 finalist and No.`\
+https://nytimes.com/athletic/6066464/2025/01/16/learner-tien-australian-open-daniil-medvedev-result-analysis/
+
 **I Read This Recipe, Then Immediately Made This Soup**\
 `Andy Baraghani’s chicken soup with red lentils and lemony yogurt is super easy, super flavorful and, well, just really super.`\
 https://nytimes.com/2025/01/16/dining/chicken-lentils-soup.html
