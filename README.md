@@ -1,3 +1,7 @@
+**Defending Justin Herbert and more takeaways from Chargers' Jim Harbaugh, Joe Hortiz**\
+`Harbaugh on Herbert: “We did him a disservice and didn’t put him in the positions to be successful enough."`\
+https://nytimes.com/athletic/6065490/2025/01/15/chargers-justin-herbert-jim-harbaugh-joe-hortiz/
+
 **The Los Angeles Fires Burned Livelihoods, Too**\
 `For many service workers, a wealthy Los Angeles neighborhood represented an economic lifeline that the fires have now severed.`\
 https://nytimes.com/2025/01/15/us/fires-domestic-workers-day-laborers.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009929169/marco-rubio-committee-conf
 **What to Know About the Gaza Cease-Fire**\
 `Israel and Hamas have agreed to a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009928442/what-to-know-about-the-gaza-cease-fire.html
-
-**Students and teachers from schools that burned in the Palisades fire reunite and grieve.**\
-`Children who had been out of school for a week after fires destroyed or damaged school buildings reconvened in borrowed spaces.`\
-https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/students-and-teachers-from-schools-that-burned-in-the-palisades-fire-reunite-and-grieve
 
