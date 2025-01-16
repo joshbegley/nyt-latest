@@ -1,3 +1,7 @@
+**Barcelona 5 Real Betis 1 - Could Yamal be the best in the world?, Araujo set to stay and crazy scoring record**\
+`Barca are on a roll before a crucial part of the season and made light work of Betis to reach the Copa del Rey quarter-finals`\
+https://nytimes.com/athletic/6061778/2025/01/16/barcelona-5-real-betis-1-yamal-araujo/
+
 **Barcelona 5 Real Betis 1 - Could Yamal be best in the world? Araujo set to stay and crazy scoring record**\
 `Barca are on a roll before a crucial part of the season and made light work of Betis to reach the Copa del Rey quarter-finals`\
 https://nytimes.com/athletic/6061778/2025/01/16/barcelona-5-real-betis-1-yamal-araujo/
