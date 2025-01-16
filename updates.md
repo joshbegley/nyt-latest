@@ -1,3 +1,7 @@
+**Negotiators Agree to Long-Awaited Cease-Fire and Hostage Deal for Gaza**\
+`The agreement, which must still be approved by the Israeli cabinet, incited joy in the Gaza Strip and Israel, even as some feared that it could fall apart.`\
+https://nytimes.com/2025/01/15/world/middleeast/gaza-cease.html
+
 **Biden Delivers Farewell Address Packed With Warnings to Americans**\
 `Speaking from the Oval Office, the president warned of a rising oligarchy, a potential tech-industrial complex and the threat of the climate crisis in his farewell address to the nation.`\
 https://nytimes.com/video/us/politics/100000009929713/biden-farewell-address.html

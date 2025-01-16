@@ -1,3 +1,7 @@
+**Negotiators Agree to Long-Awaited Cease-Fire and Hostage Deal for Gaza**\
+`The agreement, which must still be approved by the Israeli cabinet, incited joy in the Gaza Strip and Israel, even as some feared that it could fall apart.`\
+https://nytimes.com/2025/01/15/world/middleeast/gaza-cease.html
+
 **Biden Delivers Farewell Address Packed With Warnings to Americans**\
 `Speaking from the Oval Office, the president warned of a rising oligarchy, a potential tech-industrial complex and the threat of the climate crisis in his farewell address to the nation.`\
 https://nytimes.com/video/us/politics/100000009929713/biden-farewell-address.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/world/europe/uk-conspiracy-gang-video-misidentifi
 **Will the NCAA expand March Madness? And who will be in charge of it?**\
 `The association needs a new governance structure to accommodate the more professionalized parts of the NCAA’s membership.`\
 https://nytimes.com/athletic/6065542/2025/01/15/ncaa-tournament-expansion-governance/
-
-**For firefighters, a ‘roller coaster’ week on the front lines.**\
-`By Eli Tan`\
-https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/for-firefighters-a-roller-coaster-week-on-the-front-lines
 
