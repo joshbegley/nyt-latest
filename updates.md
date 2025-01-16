@@ -1,3 +1,7 @@
+**California Issues Order to Ease Housing Crisis Set Off by Fires**\
+`An executive order from Gov. Gavin Newsom cleared the way for more temporary housing and prohibited price gouging at rental properties to aid thousands of displaced residents.`\
+https://nytimes.com/2025/01/16/us/california-housing-order-wildfires.html
+
 **‘Honestly, I feel numb.’ Gazans react to cease-fire deal.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/honestly-i-feel-numb-gazans-react-to-cease-fire-deal

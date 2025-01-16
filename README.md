@@ -11,7 +11,7 @@ https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/honestly-
 https://nytimes.com/athletic/6065979/2025/01/16/arsenal-high-press-tottenham-hotspur/
 
 **Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
-`The Wimbledon saga is over for good as Emma Raducanu moves into the Australian Open third round`\
+`The Wimbledon saga is over for good as Raducanu moves into the Australian Open third round.`\
 https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
 
 **Deadly strikes in Gaza continue despite the announcement of a cease-fire deal.**\

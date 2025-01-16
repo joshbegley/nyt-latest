@@ -1,3 +1,7 @@
+**California Issues Order to Ease Housing Crisis Set Off by Fires**\
+`An executive order from Gov. Gavin Newsom cleared the way for more temporary housing and prohibited price gouging at rental properties to aid thousands of displaced residents.`\
+https://nytimes.com/2025/01/16/us/california-housing-order-wildfires.html
+
 **‘Honestly, I feel numb.’ Gazans react to cease-fire deal.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/honestly-i-feel-numb-gazans-react-to-cease-fire-deal
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/world/asia/saif-ali-khan-stabbed-mumbai.html
 **Temperatures Expected to Plunge Across the U.S. as Freezing Cold Drifts In**\
 `Arctic air will dip into much of the United States this weekend, with temperatures reaching some of the lowest of the year.`\
 https://nytimes.com/2025/01/16/weather/weather-us-cold-forecast.html
-
-**49ers mock draft reaction: Will tackle Armand Membou measure up to team’s standard?**\
-`The 49ers have to start thinking about a replacement for 36-year-old Trent Williams, who hasn't played a full season since 2013.`\
-https://nytimes.com/athletic/6064836/2025/01/16/49ers-mock-draft-reaction-armand-membou/
 
