@@ -10,7 +10,7 @@ https://nytimes.com/2025/01/16/arts/tiktok-red-note-china.html
 `In the derby, Lewis-Skelly showed defensive solidity, tactical understanding and small-space dribbling ability that defies his inexperience`\
 https://nytimes.com/athletic/6066117/2025/01/16/lewis-skelly-arsenal-dembele-rice/
 
-**U.K. Announces Rapid Audit of Scale of Child Sexual Abuse by Grooming Gangs**\
+**U.K. Announces Rapid Review into Scale of Child Sexual Abuse by Grooming Gangs**\
 `Britain’s Labour government came under pressure to act after Elon Musk reignited a decade-old scandal involving child sexual abuse mainly by men of Pakistani heritage.`\
 https://nytimes.com/2025/01/16/world/europe/england-grooming-gangs-investigation.html
 
