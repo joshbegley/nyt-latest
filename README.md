@@ -23,7 +23,7 @@ https://nytimes.com/2025/01/16/briefing/israel-hamas-poland-russia.html
 https://nytimes.com/2025/01/16/world/asia/china-mass-killings-security.html
 
 **Meet Japan’s Original Decluttering Guru (No, Not That One)**\
-`Before Marie Kondo stormed into the international consciousness, Hideko Yamashita taught Japan the art of decluttering.`\
+`Before Marie Kondo stormed into the global consciousness, Hideko Yamashita taught Japan the art of creating tidier spaces.`\
 https://nytimes.com/2025/01/16/business/hideko-yamashita-decluttering-danshari.html
 
 **Man United vs Southampton preview: Storylines, odds, prediction with Red Devils improving**\
