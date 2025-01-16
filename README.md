@@ -1,3 +1,7 @@
+**Topps institutes ban against using 'intrusive devices' on trading card packages**\
+`Topps takes first action against efforts to subvert blind packaging `\
+https://nytimes.com/athletic/6067812/2025/01/16/topps-ct-scanning-trading-cards/
+
 **CAS' status as sport's supreme court is questioned - and why this is significant**\
 `An expert at the European Union’s highest court has questioned whether Court of Arbitration for Sport (CAS) verdicts really should be the last word in sports rows, potentially overturning a system that has worked across sport since 1984.`\
 https://nytimes.com/athletic/6067915/2025/01/16/cas-sport-court-verdicts-fifa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067741/2025/01/16/college-football-playoff-2025-fo
 **Vladimir Guerrero Jr. and the Blue Jays: The latest on possible extension talks, Alonso factor and more**\
 `With his free agency looming in less than nine months, the Blue Jays first baseman is generating discussion on a number of fronts.`\
 https://nytimes.com/athletic/6067870/2025/01/16/vladimir-guerrero-blue-jays-extension-trade-pete-alonso/
-
-**Zaha to join MLS side Charlotte FC: Sources**\
-`Former Premier League winger Wilfried Zaha is in the final stages of joining Major League Soccer side Charlotte FC, on loan from Galatasaray, according to multiple sources briefed on the deal.`\
-https://nytimes.com/athletic/6064271/2025/01/16/wilfried-zaha-charlotte-galatasaray/
 

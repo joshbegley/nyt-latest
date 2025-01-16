@@ -1,3 +1,15 @@
+**CAS' status as sport's supreme court is questioned - and why this is significant**\
+`An expert at the European Union’s highest court has questioned whether Court of Arbitration for Sport (CAS) verdicts really should be the last word in sports rows, potentially overturning a system that has worked across sport since 1984.`\
+https://nytimes.com/athletic/6067915/2025/01/16/cas-sport-court-verdicts-fifa/
+
+**Garland, defending Justice Dept. in emotional remarks, denies politicization.**\
+`His final address sought to rebut the many criticisms deployed by presidents, members of Congress and media pundits for either being too cautious or too aggressive on politically sensitive cases.`\
+https://nytimes.com/live/2025/01/16/us/trump-news-hearings/garland-justice-department-farewell
+
+**State Attorneys General Ask Courts to Preserve Biden-era Gun Control Measures**\
+`Days before Trump returns to office, the legal fight with Democratic state officials over his agenda has begun.`\
+https://nytimes.com/2025/01/16/us/democrats-gun-control-trump.html
+
 **The Briefing: Man Utd 3 Southampton 1 - Amad hat-trick, Hojlund woes, Yoro's tough night**\
 `Laurie Whitwell breaks down the main talking points from Manchester United's 3-1 win over Southampton`\
 https://nytimes.com/athletic/6063895/2025/01/16/manchester-united-3-southampton-1-amad-ugarte-yoro-hojlund/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6067870/2025/01/16/vladimir-guerrero-blue-jays-exte
 **Zaha to join MLS side Charlotte FC: Sources**\
 `Former Premier League winger Wilfried Zaha is in the final stages of joining Major League Soccer side Charlotte FC, on loan from Galatasaray, according to multiple sources briefed on the deal.`\
 https://nytimes.com/athletic/6064271/2025/01/16/wilfried-zaha-charlotte-galatasaray/
-
-**Late Adapter? Bob Dylan Joins TikTok in What May Be Its Final Days**\
-`Dylan seemed to be in on the joke, posting an old black and white clip of himself saying “Good God, I must leave right away.”`\
-https://nytimes.com/2025/01/16/arts/music/bob-dylan-tiktok.html
-
-**Israeli Vote on Cease-Fire Is Delayed as Diplomats Work on Details**\
-`Even though negotiators for Israel and Hamas reached a provisional deal for a truce starting Sunday, they continued to discuss outstanding issues through mediators.`\
-https://nytimes.com/2025/01/16/world/middleeast/israel-gaza-ceasefire.html
-
-**Biden Administration Creates Final Limits for Oil Drillers in Alaska**\
-`Republicans said they were seeking ways to quickly reverse the restrictions in the state’s North Slope region.`\
-https://nytimes.com/2025/01/16/climate/biden-alaska-north-slope-drilling.html
 
