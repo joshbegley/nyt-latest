@@ -1,3 +1,15 @@
+**Chicago Fire hold Neymar talks but MLS transfer for forward unlikely**\
+`The Chicago Fire have held discussions to sign Brazilian star Neymar, according to multiple sources who have been briefed on the talks, but a deal to bring the former Barcelona and PSG forward to the United States remains unlikely.`\
+https://nytimes.com/athletic/6064972/2025/01/16/neymar-chicago-fire-transfer/
+
+**Manchester United dismiss Napoli transfer approach for Alejandro Garnacho**\
+`Napoli have approached Manchester United over the availability of Alejandro Garnacho, but the Italian club&#8217;s proposal is not being entertained at Old Trafford as things stand.`\
+https://nytimes.com/athletic/6059629/2025/01/16/alejandro-garnacho-napoli-manchester-united-transfers/
+
+**Until Saturday: Your title game predictions**\
+`Welcome to Until Saturday, The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6067721/2025/01/16/ohio-state-notre-dame-cfp-predictions-until-saturday/
+
 **Betting for (by) dummies: Props galore for CFP title game and NFL playoffs**\
 `Zac Jackson and Jon Greenberg make bets for Ohio State-Notre Dame and NFL divisional-round games. We got props!`\
 https://nytimes.com/athletic/6067576/2025/01/16/betting-for-by-dummies-nfl-divisional-round-cfp-championship-props/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/16/technology/general-motors-driving-data-settlement
 **Biden Tightens Cybersecurity Rules, Forcing Trump to Make a Choice**\
 `The president’s latest executive order accelerates the move to mandatory compliance by software providers. It may run afoul of the Trump mandate to deregulate.`\
 https://nytimes.com/2025/01/16/us/politics/biden-trump-cybersecurity.html
-
-**Three Back-Pocket Restaurants for Last-Minute Reservations**\
-`Dinner for all tastes, the perfect brunch and tonkotsu ramen that will blow your friends’ socks off.`\
-https://nytimes.com/2025/01/16/dining/last-minute-reservations-nyc-restaurants.html
-
-**What to watch in college basketball this weekend: Alabama-Kentucky, intrastate rivalries**\
-`College basketball absolutely has you covered this weekend. Here are 11 games to look forward to.`\
-https://nytimes.com/athletic/6067310/2025/01/16/what-to-watch-college-basketball-alabama-kentucky/
-
-**Packers GM Brian Gutekunst talks Jaire Alexander's future, pass-rush problem, Jordan Love**\
-`It seems like cornerback Jaire Alexander's time in Green Bay is coming to an end after seven seasons.`\
-https://nytimes.com/athletic/6067619/2025/01/16/packers-brian-gutekunst-jaire-alexander/
 
