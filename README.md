@@ -1,3 +1,15 @@
+**Wild place Kirill Kaprizov on LTIR, call up 2 forwards: What it means**\
+`The move was necessary to make the call-ups needed to have a full roster. It's retroactive, so Kaprizov can return whenever he's ready.`\
+https://nytimes.com/athletic/6067940/2025/01/16/wild-kirill-kaprizov-ltir/
+
+**Johannes Spors to join Southampton as technical director**\
+`Johannes Spors will become Southampton&#8217;s new technical director and support Sport Republic on football matters, subject to being granted a work permit.`\
+https://nytimes.com/athletic/6068089/2025/01/16/southampton-board-johannes-spors-director/
+
+**State Farm offers homeowners in fire areas a chance to renew insurance policies.**\
+`By Jack Healy`\
+https://nytimes.com/2025/01/16/us/state-farm-insurance-renewals-la-fires.html
+
 **Wendy Williams Breaks Silence on Guardianship: ‘I Feel Like I am in Prison’**\
 `The former daytime host, who has been diagnosed with dementia, said in an interview on “The Breakfast Club” that she was “not cognitively impaired” and spoke about her life in a care facility.`\
 https://nytimes.com/2025/01/16/arts/wendy-williams-guardianship.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6068021/2025/01/16/fabian-hurzeler-brighton-substit
 **The Entertainment World Mourns the ‘Dreamer’ Director David Lynch**\
 `Lynch’s death inspired tributes from fellow filmmakers, celebrities and past collaborators, who praised his visionary work and singular voice.`\
 https://nytimes.com/2025/01/16/movies/david-lynch-tributes.html
-
-**West Ham have no plans to lose players in January - Potter**\
-`West Ham United head coach Graham Potter says he does not expect to lose any of his players during the January transfer window.`\
-https://nytimes.com/athletic/6066699/2025/01/16/west-ham-january-transfers/
-
-**Kyle Tucker, Cubs agree to 1-year, $16.5 million deal: Source**\
-`The Cubs originally submitted an offer of $15 million while Tucker countered at $17.5 million. `\
-https://nytimes.com/athletic/6067970/2025/01/16/kyle-tucker-chicago-cubs-deal-arbitration/
-
-**Billie Eilish, Joni Mitchell and Lady Gaga Set for FireAid Benefit**\
-`The concert, which also includes Dave Matthews, Katy Perry, Stevie Nicks and more, will take place on Jan. 30 at the Kia Forum and Intuit Dome in Los Angeles.`\
-https://nytimes.com/2025/01/16/us/fireaid-benefit-concert-billie-eilish-joni-mitchell.html
 
