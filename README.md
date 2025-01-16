@@ -1,3 +1,23 @@
+**The Pulse: March Madness approaches**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6064724/2025/01/16/college-basketball-march-madness-the-pulse/
+
+**NWSL moves I like: Shaw's trade request ushers in new era**\
+`Amid a transformational NWSL offseason, here are a few standout trades`\
+https://nytimes.com/athletic/6064565/2025/01/16/jaedyn-shaw-nwsl-moves-trade-window-soccer/
+
+**Barkley and Gibbs bring new life to the running back trading card market**\
+`Saquon Barkley and Jahmyr Gibbs' 2024 success has lead to a surge in their trading cards market, but not for Derrick Henry`\
+https://nytimes.com/athletic/6064141/2025/01/16/jahmyr-gibbs-saquon-barkley-nfl-card-values/
+
+**‘Night Call’ Review: Belgian Brawlers**\
+`An ordinary locksmith undergoes an action-hero transformation in this snappy thriller set in Brussels during the height of the Black Lives Matter protests.`\
+https://nytimes.com/2025/01/16/movies/night-call-review.html
+
+**‘Alarum’ Review: Mission Forgettable**\
+`Sylvester Stallone briefly stabilizes this artless action movie about a rogue agent and his wife on the run.`\
+https://nytimes.com/2025/01/16/movies/alarum-review.html
+
 **Cook steps down as Birmingham City CEO for 'personal reasons'**\
 `Garry Cook has stepped down from his role as Birmingham City&#8217;s CEO and his position on the club&#8217;s board.`\
 https://nytimes.com/athletic/6066202/2025/01/16/birmingham-city-garry-cook-resigns/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/16/briefing/israel-hamas-gaza-cease-fire.html
 **Would Blackhawks draft Matthew Schaefer — another defenseman — at No. 1?**\
 `The Blackhawks need more offensive firepower in their system. But is Schaefer, a defenseman, too good to pass up?`\
 https://nytimes.com/athletic/6064005/2025/01/16/blackhawks-no-1-pick-nhl-draft-matthew-schaefer/
-
-**Deeper than a French connection: Why two NBA players, 16 years apart, share 'the same story'**\
-`As a kid, Rayan Rupert attended Nic Batum's basketball camp. As they face off on an NBA court, Batum says he has "become like my brother."`\
-https://nytimes.com/athletic/6044404/2025/01/16/nicolas-batum-rayan-rupert-bond-clippers-blazers/
-
-**College basketball mailbag: How many new ACC coaches next season? Reason to believe in Michigan?**\
-`What could get Tony Bennett back into coaching? How does Utah State remain a factor? Shall Iowa State party like it's 1944?`\
-https://nytimes.com/athletic/6065740/2025/01/16/college-basketball-acc-coaches-michigan/
-
-**How Many Hostages Remain in Gaza, and When Could They Be Released?**\
-`Citizens of Israel, the United States, Britain, Mexico, Thailand and other countries were among about 250 people abducted in the Oct. 7, 2023 raids into Israel.`\
-https://nytimes.com/2025/01/15/world/middleeast/israel-hostages-gaza-hamas.html
-
-**Jaden Philogene to Ipswich Town: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Jaden Philogene's move to Ipswich Town`\
-https://nytimes.com/athletic/6049966/2025/01/16/jaden-philogene-ipswich-transfer-rating/
-
-**Chiefs defense at full strength for the playoffs with the return of Jaylen Watson**\
-`Saturday’s divisional-round game is expected to be the first that includes all 18 of the unit’s starting and rotational players.`\
-https://nytimes.com/athletic/6065407/2025/01/16/chiefs-defense-playoffs-jaylen-watson/
 
