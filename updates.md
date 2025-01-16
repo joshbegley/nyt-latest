@@ -1,3 +1,7 @@
+**Blinken is shouted down over Gaza as he insists cease-fire deal is on track.**\
+`Two pro-Palestinian journalists who accused him of enabling “genocide,”`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/blinken-is-shouted-down-over-gaza-as-he-insists-cease-fire-deal-is-on-track
+
 **Reality TV Takes Washington (Again)**\
 `It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/sean-duffy-reality-tv-nomination

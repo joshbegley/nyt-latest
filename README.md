@@ -1,3 +1,7 @@
+**Man City reach verbal agreement with Frankfurt to sign Marmoush**\
+`Manchester City have reached a verbal agreement with Eintracht Franfurt for the transfer of forward Omar Marmoush.`\
+https://nytimes.com/athletic/6047775/2025/01/16/omar-marmoush-transfer-manchester-city/
+
 **Blinken is shouted down over Gaza as he insists cease-fire deal is on track.**\
 `Two pro-Palestinian journalists who accused him of enabling “genocide,”`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/blinken-is-shouted-down-over-gaza-as-he-insists-cease-fire-deal-is-on-track
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/style/wildfire-donations-clothes-how-to-help.html
 **David Lynch, Maker of Florid and Unnerving Films, Dies at 78**\
 `A visionary, his films included “Eraserhead,” “Blue Velvet” and “Mulholland Drive,” considered his masterwork. He brought his skewed view to the small screen with “Twin Peaks.”`\
 https://nytimes.com/2025/01/16/movies/david-lynch-dead.html
-
-**Anthony Richardson will be a Top 10 fantasy football QB in 2025 and more divisive opinions**\
-`Jake Ciely, Brandon Funston and The Athletic Staff discuss divisive fantasy football topics, including whether Richardson is a Top 10 QB.`\
-https://nytimes.com/athletic/6066669/2025/01/16/fantasy-football-early-opinions-top-picks-2025/
 
