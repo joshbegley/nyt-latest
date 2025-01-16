@@ -1,3 +1,7 @@
+**Two Watchdogs Were Rebuffed From Joining Trump’s Cost-Cutting Effort**\
+`“We have no room in our administration for Democrats,” a transition spokeswoman replied after good-government activists tried to join the president-elect’s new efficiency department.`\
+https://nytimes.com/2025/01/16/us/two-watchdogs-were-rebuffed-from-joining-trumps-cost-cutting-effort.html
+
 **Amorim speaks with Ratcliffe after Man United defeat Southampton**\
 `Ruben Amorim spoke with Sir Jim Ratcliffe following Manchester United&#8217;s 3-1 victory over Southampton on Thursday night.`\
 https://nytimes.com/athletic/6068183/2025/01/16/ruben-amorim-sir-jim-ratcliffe-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067637/2025/01/16/j-j-mccarthy-vikings-qb-on-field
 **Aaron Rodgers says Jets' next GM, coach will decide his future**\
 `Rodgers says he's had "limited communication" with the team during its hiring search.`\
 https://nytimes.com/athletic/6067890/2025/01/16/aaron-rodgers-jets-future-pat-mcafee/
-
-**Israel’s Vote on a Gaza Cease-Fire Was Delayed**\
-`Also, winds and fire risks eased in Los Angeles. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/01/16/briefing/delayed-cease-fire-vote-trump-nominees-hearings.html
 
