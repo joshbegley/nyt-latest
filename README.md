@@ -1,3 +1,7 @@
+**A cease-fire would mean more aid for Gaza, but getting it to people in need may still be hard.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/a-cease-fire-would-mean-more-aid-for-gaza-but-getting-it-to-people-in-need-may-still-be-hard
+
 **Should You Change Your Wine Consumption?**\
 `What happens when your passion and life’s work are called a health risk? Our wine critic contemplates the surgeon general’s recent warning.`\
 https://nytimes.com/2025/01/16/dining/drinks/surgeon-general-warning-wine-consumption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066360/2025/01/16/bayern-munich-tel-chelsea/
 **Timberwolves are out of excuses after another loss to Warriors: 'We are terrible'**\
 `The Warriors were up 34-10 late in the first quarter, a mind-boggling combination of Minnesota ineptitude and Golden State desperation.`\
 https://nytimes.com/athletic/6065653/2025/01/16/timberwolves-excuses-loss-warriors/
-
-**California Issues Order to Ease Housing Crisis Set Off by Fires**\
-`An executive order from Gov. Gavin Newsom cleared the way for more temporary housing and prohibited price gouging at rental properties to aid thousands of displaced residents.`\
-https://nytimes.com/2025/01/16/us/california-housing-order-wildfires.html
 
