@@ -1,3 +1,7 @@
+**President Biden is Bowing Out After One Term. He’s Not the First.**\
+`Other American presidents have faced the delicate challenge of bidding farewell with grace after serving only one term in the Oval Office.`\
+https://nytimes.com/2025/01/15/us/politics/biden-presidents-farewell-address.html
+
 **Defending Justin Herbert and more takeaways from Chargers' Jim Harbaugh, Joe Hortiz**\
 `Harbaugh on Herbert: “We did him a disservice and didn’t put him in the positions to be successful enough."`\
 https://nytimes.com/athletic/6065490/2025/01/15/chargers-justin-herbert-jim-harbaugh-joe-hortiz/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009929542/israel-hamas-cease-fi
 **Marco Rubio Faces Senate Committee Hearing**\
 `Senator Marco Rubio received a relatively friendly welcome from both sides at his confirmation hearing for secretary of state.`\
 https://nytimes.com/video/us/politics/100000009929169/marco-rubio-committee-confirmation-hearing.html
-
-**What to Know About the Gaza Cease-Fire**\
-`Israel and Hamas have agreed to a cease-fire deal.`\
-https://nytimes.com/video/world/middleeast/100000009928442/what-to-know-about-the-gaza-cease-fire.html
 
