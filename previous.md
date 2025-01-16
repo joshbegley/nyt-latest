@@ -1,3 +1,27 @@
+**Johnson Installs Crawford on Intelligence Panel, Pulling It Closer to Trump**\
+`The speaker replaced a Republican who had criticized the president-elect and broken with him on key issues, and who had drawn the ire and suspicion of those close to the president-elect.`\
+https://nytimes.com/2025/01/16/us/politics/rick-crawford-house-intelligence.html
+
+**General Motors Is Banned From Selling Driving Behavior Data for 5 Years**\
+`An investigation by the Federal Trade Commission determined that consumers had not been aware that the automaker was providing their driving information to data brokers.`\
+https://nytimes.com/2025/01/16/technology/general-motors-driving-data-settlement.html
+
+**Biden Tightens Cybersecurity Rules, Forcing Trump to Make a Choice**\
+`The president’s latest executive order accelerates the move to mandatory compliance by software providers. It may run afoul of the Trump mandate to deregulate.`\
+https://nytimes.com/2025/01/16/us/politics/biden-trump-cybersecurity.html
+
+**Three Back-Pocket Restaurants for Last-Minute Reservations**\
+`Dinner for all tastes, the perfect brunch and tonkotsu ramen that will blow your friends’ socks off.`\
+https://nytimes.com/2025/01/16/dining/last-minute-reservations-nyc-restaurants.html
+
+**What to watch in college basketball this weekend: Alabama-Kentucky, intrastate rivalries**\
+`College basketball absolutely has you covered this weekend. Here are 11 games to look forward to.`\
+https://nytimes.com/athletic/6067310/2025/01/16/what-to-watch-college-basketball-alabama-kentucky/
+
+**Packers GM Brian Gutekunst talks Jaire Alexander's future, pass-rush problem, Jordan Love**\
+`It seems like cornerback Jaire Alexander's time in Green Bay is coming to an end after seven seasons.`\
+https://nytimes.com/athletic/6067619/2025/01/16/packers-brian-gutekunst-jaire-alexander/
+
 **Friday Briefing: Cease-Fire Vote Delayed**\
 `Plus, remembering David Lynch.`\
 https://nytimes.com/2025/01/16/briefing/cease-fire-delay-china-security-sudan-sanctions.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/16/us/politics/elon-musk-donald-trump-greenland.html
 **Banker, Investor, Prime Minister? Mark Carney Bids to Lead Canada.**\
 `The former governor of the Canadian and British central banks announced he was running to become head of the Liberal Party and prime minister.`\
 https://nytimes.com/2025/01/16/world/canada/mark-carney-liberal-party-leader-campaign.html
-
-**Brisbee: How Bob Uecker, ‘Mr. Baseball,’ personified the fun of the game**\
-`Baseball is fun. Mr. Baseball reminded us of this for decades, and he'll continue reminding us of it for as long as the sport is around.`\
-https://nytimes.com/athletic/6067075/2025/01/16/bob-uecker-mr-baseball/
-
-**Is America an Oligarchy Yet?**\
-`The question hangs in the air, begging to be taken up by the American people.`\
-https://nytimes.com/live/2025/01/09/opinion/thepoint/america-oligarchy-billionaire-class
-
-**Southwest Pilot Is Removed From Flight and Charged With D.U.I.**\
-`The pilot, David Paul Allsop, was taken off a flight to Chicago at the airport in Savannah, Ga., on Wednesday, officials said.`\
-https://nytimes.com/2025/01/16/business/southwest-airlines-pilot-arrested-dui-georgia.html
-
-**Does late-season momentum matter in the NFL playoffs? The Ravens hope so**\
-`Michael Salfino looks at late-season point differential over the past six seasons to see if it is predictive of success in the NFL playoffs.`\
-https://nytimes.com/athletic/6066878/2025/01/16/nfl-playoffs-2025-late-season-momentum/
-
-**Sound of a Meteorite Hitting Earth Is Captured for the First Time**\
-`A couple returned home to a burst of debris on their walkway. Their home security camera revealed it was a meteorite hitting Earth.`\
-https://nytimes.com/video/science/space/100000009931283/sound-of-a-meteorite-hitting-earth-is-captured-for-the-first-time.html
-
-**What to Know About the Ban on Red Dye No. 3 in Food**\
-`What does the science say about its health effects? What foods will be affected? And other common questions about the newly banned additive.`\
-https://nytimes.com/2025/01/16/well/red-dye-3-foods.html
 
