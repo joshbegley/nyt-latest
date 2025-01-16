@@ -1,7 +1,3 @@
-**Angry about potential cease-fire in Gaza, far-right protesters block roads in Israel.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/angry-about-potential-cease-fire-in-gaza-far-right-protesters-block-roads-in-israel
-
 **What to expect from CFP leaders' meeting on format changes**\
 `The commissioners pledged that they would let the 12-team CFP's first year play out before discussing changes. Here's what's on tap next.`\
 https://nytimes.com/athletic/6067741/2025/01/16/college-football-playoff-2025-format-changes/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6067754/2025/01/16/genesis-invitational-relocated-r
 **TikTok Changed How We Cook. What Changes When It’s Gone?**\
 `Ahead of a potential ban of the app, The Times spoke to 11 prominent food content creators about what is at stake.`\
 https://nytimes.com/2025/01/16/dining/tiktok-ban-cooking-food.html
+
+**Chicago Fire hold Neymar talks but MLS transfer for forward unlikely**\
+`The Chicago Fire have held discussions to sign Brazilian star Neymar, according to multiple sources who have been briefed on the talks, but a deal to bring the former Barcelona and PSG forward to the United States remains unlikely.`\
+https://nytimes.com/athletic/6064972/2025/01/16/neymar-chicago-fire-transfer/
 
