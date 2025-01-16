@@ -1,3 +1,27 @@
+**Live Updates: Jeff Bezos and Blue Origin Try Again for Debut of New Glenn Rocket**\
+`The company scrubbed its first attempt at sending the powerful rocket to orbit on Monday. The flight is a crucial test of the company’s ability to compete with Elon Musk’s SpaceX.`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch
+
+**Corbin Burnes, the lure of family and a Diamondbacks championship window that remains open**\
+`Last season, the Diamondbacks led the major leagues in runs scored. Next season, they could have one of the National League's top rotations.`\
+https://nytimes.com/athletic/6065476/2025/01/16/corbin-burnes-diamondbacks-championship-window/
+
+**Do Liverpool need new signings - and, if so, where?**\
+`We're halfway through the transfer window, but all is quiet at Anfield - should it stay that way?`\
+https://nytimes.com/athletic/6064031/2025/01/16/liverpool-transfers-january-squad-audit/
+
+**What Ruben Amorim's changed at Manchester United - and what he's still working on**\
+`The head coach has made a lot of changes, from mentality to tactics to personnel`\
+https://nytimes.com/athletic/6064434/2025/01/16/ruben-amorim-manchester-united-changes-tactics/
+
+**What’s happening on the launchpad.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/whats-happening-on-the-launchpad
+
+**Footballers' shin pads – the piece of equipment some pros prefer not to wear**\
+`Shin guards date back to the 1800s but shapes, sizes and personal tastes have evolved over the years – and now everyone has a preference`\
+https://nytimes.com/athletic/6006377/2025/01/16/football-shin-pads-guards-equipment/
+
 **What Trevor Chalobah's return means for Chelsea - and for him**\
 `Chalobah was reluctant to return to simply make up the numbers in Maresca's squad. He has been assured that he has a role to play`\
 https://nytimes.com/athletic/6064937/2025/01/16/trevor-chalobah-return-chelsea-palace-analysis/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6065749/2025/01/16/iowa-state-kansas-basketball-tra
 **Nottingham Forest's name is unique - and its origin isn't (quite) what you think**\
 `Unlike many names in English football, Nottingham Forest stands out. The origin, for this trailblazing club, is not what you might think`\
 https://nytimes.com/athletic/6061679/2025/01/16/why-called-nottingham-forest/
-
-**Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/01/16/briefing/israel-hamas-poland-russia.html
-
-**China Deploys More Security to Try to Reassure a Country on Edge**\
-`Police are checking on safety at schools and visiting karaoke bars and rental homes to root out perceived malcontents, after several mass killings alarmed the public.`\
-https://nytimes.com/2025/01/16/world/asia/china-mass-killings-security.html
-
-**Meet Japan’s Original Decluttering Guru (No, Not That One)**\
-`Before Marie Kondo stormed into the global consciousness, Hideko Yamashita taught Japan the art of creating tidier spaces.`\
-https://nytimes.com/2025/01/16/business/hideko-yamashita-decluttering-danshari.html
-
-**Man United vs Southampton preview: Storylines, odds, prediction with Red Devils improving**\
-`Manchester United have had a pair of encouraging results after a losing run. Can they keep it going against the bottom team in the table?`\
-https://nytimes.com/athletic/6064279/2025/01/16/manchester-united-southampton-preview-odds-prediction/
-
-**Quote of the Day: Their Hard-Won Black Haven Had Thrived. Then It Burned.**\
-`Quotation of the Day for Thursday, January 16, 2025.`\
-https://nytimes.com/2025/01/15/pageoneplus/quote-of-the-day-their-hard-won-black-haven-had-thrived-then-it-burned.html
-
-**It Could Take Weeks Before Displaced L.A. Residents Can Go Home**\
-`Workers need to assess damage, clear hazardous materials and ensure that neighborhoods are safe before people can return, officials have warned.`\
-https://nytimes.com/2025/01/15/us/los-angeles-fires-displaced-residents.html
 
