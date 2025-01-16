@@ -1,3 +1,11 @@
+**What are Blue Origin’s plans for the future?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-are-blue-origins-plans-for-the-future
+
+**Can Woyo Coulibaly lift Leicester after another tough week on and off the pitch?**\
+`Signing the French defender is a start but, as the Crystal Palace match showed, Ruud van Nistelrooy has a lot to fix `\
+https://nytimes.com/athletic/6065099/2025/01/16/leicester-relegation-battle-woyo-coulibaly/
+
 **Here’s what New Glenn is carrying to space.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/heres-what-new-glenn-is-carrying-to-space
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6065205/2025/01/16/aston-villa-transfer-window-ever
 **What Blue Origin has done so far.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-blue-origin-has-done-so-far
-
-**For Jeff Bezos, New Glenn’s success is personal.**\
-`By Karen Weise`\
-https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/for-jeff-bezos-new-glenns-success-is-personal
-
-**‘Where’s Our Place in Society?’: 12 Men Who Backed Trump Grapple With America**\
-`The group discusses the news and podcasts that shape their opinions about America and the world, what being a man’s man means and what they do and don’t want Trump to do in office.`\
-https://nytimes.com/interactive/2025/01/16/opinion/men-trump-voters-focus-group.html
 

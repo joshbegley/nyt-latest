@@ -1,3 +1,11 @@
+**What are Blue Origin’s plans for the future?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-are-blue-origins-plans-for-the-future
+
+**Can Woyo Coulibaly lift Leicester after another tough week on and off the pitch?**\
+`Signing the French defender is a start but, as the Crystal Palace match showed, Ruud van Nistelrooy has a lot to fix `\
+https://nytimes.com/athletic/6065099/2025/01/16/leicester-relegation-battle-woyo-coulibaly/
+
 **Here’s what New Glenn is carrying to space.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/heres-what-new-glenn-is-carrying-to-space
