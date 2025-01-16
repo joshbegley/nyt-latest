@@ -1,3 +1,23 @@
+**30-Year Mortgage Rate Rises Above 7% for First Time Since May**\
+`The latest jump threatens to sideline more buyers and sellers.`\
+https://nytimes.com/2025/01/16/business/mortgage-rates-housing-costs.html
+
+**Republicans in North Carolina Are Treading a Terrifying Path**\
+`They’re trying to overturn a fair election. Gee, who gave them that idea?`\
+https://nytimes.com/2025/01/16/opinion/north-carolina-republicans-election.html
+
+**Philogene's second Villa exit: Emery's regret and why return did not work**\
+`Philogene has left Villa again for a fresh start at Ipswich Town, only months after his return to the club — this is the story of why`\
+https://nytimes.com/athletic/6046507/2025/01/16/jaden-philogene-aston-villa-exit-unai-emery-ipswich-transfer/
+
+**Roar of New Glenn’s Engines Silences Skeptics of Bezos’ Blue Origin**\
+`The successful flight to orbit of the Amazon founder’s powerful rocket suggests it could grow into a credible competitor with Elon Musk’s SpaceX.`\
+https://nytimes.com/2025/01/16/science/bezos-blue-origin-launch.html
+
+**Man Who Sent ‘I Raped You’ Messages Is Extradited From France to U.S.**\
+`Ian Cleary is facing charges of sexually assaulting a Gettysburg College student in 2013. Years later, he sent her messages on Facebook that helped break the case.`\
+https://nytimes.com/2025/01/16/us/gettysburg-college-student-rape-extradition-france.html
+
 **House Passes Bill to Deport Immigrants Convicted of Violence Against Women**\
 `Scores of Democrats joined Republicans in approving the measure, even though existing law already allows immigrants with contested legal status who are convicted of sex crimes to be deported.`\
 https://nytimes.com/2025/01/16/us/house-bill-deport-immigrants.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6066925/2025/01/16/nfl-key-injuries-divisional-roun
 **Toyota Truck Unit to Settle Emissions Fraud Charges for $1.6 Billion**\
 `Hino Motors, a Toyota subsidiary, will plead guilty to conspiracy charges and pay penalties for deceiving regulators about its diesel engines, the E.P.A. said.`\
 https://nytimes.com/2025/01/16/business/toyota-hino-epa-diesel-emissions-settlement.html
-
-**Casey Stoney and her famous cooler habit: Who is Canada's new head coach?**\
-`Coolers, Canada's culture and how she'll make the most of a 'huge amount of talent'`\
-https://nytimes.com/athletic/6066187/2025/01/16/casey-stoney-canada-new-head-coach/
-
-**Bob Uecker, Clubhouse Wit-Turned-Popular Sportscaster, Dies at 90**\
-`Uecker turned his meager baseball career into humorous fodder covering games on TV and as a commercial pitchman.`\
-https://nytimes.com/2025/01/16/sports/bob-uecker-dead.html
-
-**They Escaped the Wildfires. Now, They’re Facing Personal Costs**\
-`Evacuating a disaster is often the lifesaving choice, but it comes with short-term costs to address immediate needs and incalculable personal and financial tolls in the future.`\
-https://nytimes.com/2025/01/16/business/los-angeles-fires-rebuilding-costs.html
-
-**Police investigating online abuse aimed at Havertz's wife**\
-`Police are investigating after the wife of Kai Havertz received online abuse following Arsenal&#8217;s FA Cup third-round defeat to Manchester United on Sunday.`\
-https://nytimes.com/athletic/6066247/2025/01/16/police-havertz-abuse/
-
-**This Mindfulness Book Actually Helped Soothe My Anxious Mind**\
-`The Thich Nhat Hanh classic is celebrating its 50th year in circulation. It also taught me to be OK with life’s uncertainties.`\
-https://nytimes.com/2025/01/16/well/mind/thich-nhat-hanh-mindfulness-book.html
 
