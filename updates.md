@@ -1,4 +1,8 @@
 **UnitedHealth’s Revenues Rise, in First Earnings Report Since C.E.O.’s Killing**\
+`But high medical costs contributed to results that disappointed Wall Street, and the company’s stock fell on the news that it had made less than analysts expected.`\
+https://nytimes.com/2025/01/16/health/unitedhealth-earnings-report-ceo-murder.html
+
+**UnitedHealth’s Revenues Rise, in First Earnings Report Since C.E.O.’s Killing**\
 `High medical costs contributed to results that disappointed Wall Street, and the company’s stock fell on the news that it had made less than analysts expected.`\
 https://nytimes.com/2025/01/16/health/unitedhealth-earnings-report-ceo-murder.html
 
