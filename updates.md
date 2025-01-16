@@ -1,3 +1,7 @@
+**Canelo, a Dog With Scorched Paws, Is Among Many Animals Rescued in the Los Angeles Fires**\
+`Over 150 stray animals from the Eaton fire in Altadena are waiting to be reconnected with their owners at Pasadena Humane.`\
+https://nytimes.com/2025/01/15/us/la-fires-animals-pets.html
+
 **Sabres make NHL history, avoid third-period collapse in win over Hurricanes: Takeaways**\
 `The Sabres got a fourth goal in the third period to ice the game — despite not recording a shot on net in the entire period, an NHL first.`\
 https://nytimes.com/athletic/6065713/2025/01/15/sabres-nhl-first-mcleod-hat-trick-hurricanes/
