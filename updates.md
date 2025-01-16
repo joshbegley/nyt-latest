@@ -1,3 +1,7 @@
+**Meatpacking Companies to Pay $8 Million for U.S. Child Labor Violations**\
+`Perdue Farms and JBS have settled with the Labor Department after relying on migrant children to do dangerous work in their slaughterhouses. Most of the money will be used to help the children.`\
+https://nytimes.com/2025/01/16/us/perdue-jbs-slaughterhouses-child-labor.html
+
 **Family, friends and fans pay tribute to Bob Uecker, 'the light of the Brewers'**\
 `"Mr. Baseball," the Milwaukee Brewers’ longtime radio announcer, died Thursday at age 90.`\
 https://nytimes.com/athletic/6067417/2025/01/16/bob-uecker-death-mlb-reaction/
