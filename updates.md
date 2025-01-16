@@ -1,3 +1,7 @@
+**For firefighters, a ‘roller coaster’ week on the front lines.**\
+`By Eli Tan`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/for-firefighters-a-roller-coaster-week-on-the-front-lines
+
 **President Biden is Bowing Out After One Term. He’s Not the First.**\
 `Other American presidents have faced the delicate challenge of bidding farewell with grace after serving only one term in the Oval Office.`\
 https://nytimes.com/2025/01/15/us/politics/biden-presidents-farewell-address.html
