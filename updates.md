@@ -1,3 +1,7 @@
+**The Briefing: Man Utd 3 Southampton 1 - Amad hat-trick, Hojlund woes, Yoro's tough night**\
+`Laurie Whitwell breaks down the main talking points from Manchester United's 3-1 win over Southampton`\
+https://nytimes.com/athletic/6063895/2025/01/16/manchester-united-3-southampton-1-amad-ugarte-yoro-hojlund/
+
 **The Briefing: Manchester United 3 Southampton 1 - Amad's hat-trick, Hojlund's woes and Yoro's tough night**\
 `Laurie Whitwell breaks down the main talking points from Manchester United's 3-1 win over Southampton`\
 https://nytimes.com/athletic/6063895/2025/01/16/manchester-united-3-southampton-1-amad-ugarte-yoro-hojlund/
