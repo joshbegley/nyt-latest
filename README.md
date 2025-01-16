@@ -1,3 +1,11 @@
+**What we're seeing from the Bucks: Giannis' short rolling, Dame's pace and more**\
+`Antetokounmpo is manipulating the space in the key, Lopez is finding his way to the rim and Lillard isn't letting defenses get set.`\
+https://nytimes.com/athletic/6063891/2025/01/16/giannis-antetokounmpo-damian-lillard-bucks-pace/
+
+**Trump Is Said to Consider Executive Order to Circumvent TikTok Ban**\
+`The move is under discussion as the Chinese-owned app faces a Sunday deadline to find a new buyer or shut down in the United States.`\
+https://nytimes.com/2025/01/16/us/politics/trump-tiktok-executive-order.html
+
 **30-Year Mortgage Rate Rises Above 7% for First Time Since May**\
 `The latest jump threatens to sideline more buyers and sellers.`\
 https://nytimes.com/2025/01/16/business/mortgage-rates-housing-costs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/world/europe/france-politics-lepen-farright-memor
 **Martin Truex Jr. enters Daytona 500, teams up with Tricon Garage**\
 `Truex must either post a fast speed in qualifying or secure the transfer position in his qualifying race to claim a spot in Daytona.`\
 https://nytimes.com/athletic/6066901/2025/01/16/martin-truex-jr-daytona-500-entry/
-
-**Scoop City: Key injuries for each divisional team**\
-`A quick list of injuries impacting the divisional round, plus reader thoughts on Deion-to-Dallas, stories of Josh Allen`\
-https://nytimes.com/athletic/6066925/2025/01/16/nfl-key-injuries-divisional-round-playoffs-zay-flowers-scoop-city/
-
-**Toyota Truck Unit to Settle Emissions Fraud Charges for $1.6 Billion**\
-`Hino Motors, a Toyota subsidiary, will plead guilty to conspiracy charges and pay penalties for deceiving regulators about its diesel engines, the E.P.A. said.`\
-https://nytimes.com/2025/01/16/business/toyota-hino-epa-diesel-emissions-settlement.html
 
