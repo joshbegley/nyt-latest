@@ -1,3 +1,7 @@
+**Postecoglou says Tottenham's form 'can’t be accepted by anyone'. So where does that leave him?**\
+`Tottenham are closer to the bottom three than the top four after another defeat and the manager did not hold back in his post-match comments`\
+https://nytimes.com/athletic/6065487/2025/01/16/postecoglou-tottenham-arsenal/
+
 **Why a win at Everton won't slow Aston Villa down in the January transfer window**\
 `Senior figures at Villa see every window as an opportunity to augment the squad, but this month feels especially pressing`\
 https://nytimes.com/athletic/6065205/2025/01/16/aston-villa-transfer-window-everton-win/
