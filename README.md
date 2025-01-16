@@ -1,3 +1,11 @@
+**Friday Briefing: Cease-Fire Vote Delayed**\
+`Plus, remembering David Lynch.`\
+https://nytimes.com/2025/01/16/briefing/cease-fire-delay-china-security-sudan-sanctions.html
+
+**A Meteorite Is Caught on Camera as It Crashes Outside a Front Door**\
+`Home security-camera footage shows a puff of smoke, with the sound of an explosion included, as the space rock lands in Canada. A geologist said it was a rare recording.`\
+https://nytimes.com/2025/01/16/science/meteorite-debris-security-camera-canada.html
+
 **Trump Picks a Jet-Setting Pal of Elon Musk to Go Get Greenland**\
 `Negotiations over an 836,000-square-mile island may fall to a close friend of Elon Musk with experience in deal-making. Just not that kind of deal-making.`\
 https://nytimes.com/2025/01/16/us/politics/elon-musk-donald-trump-greenland.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/science/space/100000009931283/sound-of-a-meteorite-hit
 **What to Know About the Ban on Red Dye No. 3 in Food**\
 `What does the science say about its health effects? What foods will be affected? And other common questions about the newly banned additive.`\
 https://nytimes.com/2025/01/16/well/red-dye-3-foods.html
-
-**Mets considering pivot from Pete Alonso, re-sign Jesse Winker to one-year deal: Sources**\
-`If the Mets continue down the road of pivoting from Alonso, look for them to spend more money on their bullpen.`\
-https://nytimes.com/athletic/6067564/2025/01/16/new-york-mets-pete-alonso-contract-negotiations-update/
-
-**Biden Administration Withdraws Protections for Endangered Whales**\
-`The proposed rules would have slowed more ships to prevent collisions with rare North Atlantic right whales.`\
-https://nytimes.com/2025/01/16/us/biden-administration-slow-ships-whales-proposal-withdraw.html
 
