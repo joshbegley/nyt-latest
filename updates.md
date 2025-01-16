@@ -1,3 +1,11 @@
+**Aaron Rodgers says Jets' next GM, coach will decide his future**\
+`Rodgers says he's had "limited communication" with the team during its hiring search.`\
+https://nytimes.com/athletic/6067890/2025/01/16/aaron-rodgers-jets-future-pat-mcafee/
+
+**Israel’s Vote on a Gaza Cease-Fire Was Delayed**\
+`Also, winds and fire risks eased in Los Angeles. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/16/briefing/delayed-cease-fire-vote-trump-nominees-hearings.html
+
 **Hurzeler says Brighton squad depth to thank for game-changing substitutions**\
 `Head coach Fabian Hurzeler says the depth of Brighton &amp; Hove Albion&#8217;s squad has given him the scope to make game-changing substitutions.`\
 https://nytimes.com/athletic/6068021/2025/01/16/fabian-hurzeler-brighton-substitutions/
