@@ -1,3 +1,7 @@
+**What is the New Glenn rocket?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-is-the-new-glenn-rocket
+
 **This is what will happen during New Glenn’s flight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/this-is-what-will-happen-during-new-glenns-flight
