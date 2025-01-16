@@ -1,3 +1,15 @@
+**'We've got to look at two paths': Neely admits retooling is a possibility**\
+`The Bruins entered the season with hopes of chasing the Stanley Cup. With over half the season gone, Boston brass is getting pragmatic.`\
+https://nytimes.com/athletic/6065385/2025/01/15/bruins-retool-cam-neely-playoffs/
+
+**Here’s the latest.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-latest
+
+**Live Updates: Biden to Deliver Farewell Address to the Nation**\
+`His administration would not disclose what the outgoing president planned to say in his speech. But in his final months he has been seeking to cement a legacy as a transformative president.`\
+https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition
+
 **How Biden Surprised Progressives**\
 `To the departing president, F.D.R. seemed a guiding, if often elusive, star.`\
 https://nytimes.com/2025/01/15/us/politics/biden-legacy-progressive.html
