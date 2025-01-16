@@ -1,3 +1,11 @@
+**Arsenal 'actively looking' to make signings in January - Arteta**\
+`Mikel Arteta says Arsenal are &#8220;actively looking&#8221; to make signings in attack this month following injuries to Bukayo Saka and Gabriel Jesus.`\
+https://nytimes.com/athletic/6066087/2025/01/16/arsenal-january-transfers/
+
+**Leigh Whannell and His Personal Monsters**\
+`The writer and director of “The Invisible Man,” 21st-century style, is back with an interpretation of another Universal Pictures monster movie, “Wolf Man.”`\
+https://nytimes.com/2025/01/16/movies/leigh-whannell-interview.html
+
 **Barcelona 5 Real Betis 1 - Could Yamal be the best in the world?, Araujo set to stay and crazy scoring record**\
 `Barca are on a roll before a crucial part of the season and made light work of Betis to reach the Copa del Rey quarter-finals`\
 https://nytimes.com/athletic/6061778/2025/01/16/barcelona-5-real-betis-1-yamal-araujo/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/style/her-ai-love-spike-jonze.html
 **Trial Will Decide if Giuliani Can Keep Yankees Rings and Florida Condo**\
 `The former mayor of New York is at risk of forfeiting his sole remaining home, a Palm Beach apartment, and World Series rings to election workers he defamed after the 2020 vote.`\
 https://nytimes.com/2025/01/16/nyregion/rudy-giuliani-defamation-damages-condo-rings.html
-
-**From a Bustling Kitchen to a Bustling Newsroom**\
-`Eleanore Park, an editor for New York Times Cooking and Food, uses skills she learned working in San Francisco restaurants.`\
-https://nytimes.com/2025/01/16/insider/from-a-bustling-kitchen-to-a-bustling-newsroom.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/16/crosswords/spelling-bee-forum.html
 

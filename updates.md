@@ -1,3 +1,11 @@
+**Arsenal 'actively looking' to make signings in January - Arteta**\
+`Mikel Arteta says Arsenal are &#8220;actively looking&#8221; to make signings in attack this month following injuries to Bukayo Saka and Gabriel Jesus.`\
+https://nytimes.com/athletic/6066087/2025/01/16/arsenal-january-transfers/
+
+**Leigh Whannell and His Personal Monsters**\
+`The writer and director of “The Invisible Man,” 21st-century style, is back with an interpretation of another Universal Pictures monster movie, “Wolf Man.”`\
+https://nytimes.com/2025/01/16/movies/leigh-whannell-interview.html
+
 **Barcelona 5 Real Betis 1 - Could Yamal be the best in the world?, Araujo set to stay and crazy scoring record**\
 `Barca are on a roll before a crucial part of the season and made light work of Betis to reach the Copa del Rey quarter-finals`\
 https://nytimes.com/athletic/6061778/2025/01/16/barcelona-5-real-betis-1-yamal-araujo/
