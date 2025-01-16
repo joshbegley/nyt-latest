@@ -1,3 +1,7 @@
+**It could take another week, most likely more, for people to return home, officials say.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
+
 **The Windup: If you only read one Roki Sasaki story ...**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6067276/2025/01/16/roki-sasaki-tsunami-signing-deadline-the-windup/
