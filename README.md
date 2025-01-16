@@ -1,7 +1,3 @@
-**Letters Put in Boxes**\
-`Rebecca Goldstein and Adam Wagner want us to look both ways.`\
-https://nytimes.com/2025/01/15/crosswords/daily-puzzle-2025-01-16.html
-
 **With Spotlight on New Orleans, Louisiana Moves Homeless Out of Sight**\
 `With the Super Bowl and Mardi Gras coming, Gov. Jeff Landry is using the emergency order from the New Year’s attack on Bourbon Street to remove the homeless from downtown.`\
 https://nytimes.com/2025/01/15/us/new-orleans-homeless-super-bowl.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6065490/2025/01/15/chargers-justin-herbert-jim-harb
 **The Los Angeles Fires Burned Livelihoods, Too**\
 `For many service workers, a wealthy Los Angeles neighborhood represented an economic lifeline that the fires have now severed.`\
 https://nytimes.com/2025/01/15/us/fires-domestic-workers-day-laborers.html
+
+**Johnson Ousts Turner as Intelligence Chairman, Bowing to Trump**\
+`Representative Michael R. Turner, Republican of Ohio, had at times been critical of the president-elect. He told people that he was axed after an edict from Mar-a-Lago.`\
+https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
 

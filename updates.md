@@ -1,3 +1,15 @@
+**Letters Put in Boxes**\
+`Rebecca Goldstein and Adam Wagner want us to look both ways.`\
+https://nytimes.com/2025/01/15/crosswords/daily-puzzle-2025-01-16.html
+
+**With Spotlight on New Orleans, Louisiana Moves Homeless Out of Sight**\
+`With the Super Bowl and Mardi Gras coming, Gov. Jeff Landry is using the emergency order from the New Year’s attack on Bourbon Street to remove the homeless from downtown.`\
+https://nytimes.com/2025/01/15/us/new-orleans-homeless-super-bowl.html
+
+**Defending Justin Herbert and more takeaways from Chargers' Jim Harbaugh, Joe Hortiz**\
+`Harbaugh on Herbert: "We did him a disservice and didn't put him in the positions to be successful enough."`\
+https://nytimes.com/athletic/6065490/2025/01/15/chargers-justin-herbert-jim-harbaugh-joe-hortiz/
+
 **Full Transcript of President Biden’s Farewell Address**\
 `The president delivered the 17-minute speech from the Oval Office in the White House.`\
 https://nytimes.com/2025/01/15/us/politics/full-transcript-of-president-bidens-farewell-address.html
