@@ -1,3 +1,7 @@
+**Sabres make NHL history, avoid third-period collapse in win over Hurricanes: Takeaways**\
+`The Sabres got a fourth goal in the third period to ice the game — despite not recording a shot on net in the entire period, an NHL first.`\
+https://nytimes.com/athletic/6065713/2025/01/15/sabres-nhl-first-mcleod-hat-trick-hurricanes/
+
 **Negotiators Agree to Long-Awaited Cease-Fire and Hostage Deal for Gaza**\
 `The agreement, which must still be approved by the Israeli cabinet, incited joy in the Gaza Strip and Israel, even as some feared that it could fall apart.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-cease-fire.html
