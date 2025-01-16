@@ -1,3 +1,7 @@
+**Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
+`The Wimbledon saga is over for good as Raducanu moves into the Australian Open third round.`\
+https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
+
 **California Issues Order to Ease Housing Crisis Set Off by Fires**\
 `An executive order from Gov. Gavin Newsom cleared the way for more temporary housing and prohibited price gouging at rental properties to aid thousands of displaced residents.`\
 https://nytimes.com/2025/01/16/us/california-housing-order-wildfires.html
