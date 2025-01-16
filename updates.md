@@ -1,3 +1,7 @@
+**Wild felt they deserved better in loss to Oilers amid Johansson injury: 3 takeaways**\
+`The Wild held two separate leads before falling to Connor McDavid and the Oilers, losing Marcus Johansson along the way.`\
+https://nytimes.com/athletic/6065159/2025/01/16/wild-mcdavid-johansson-injury-oilers/
+
 **A Fire Relief Effort by and for Teenage Girls**\
 `An eighth grader started a donation drive for teenagers whose homes burned in Los Angeles. Ariana Grande, Prince Harry, Meghan and others have chipped in.`\
 https://nytimes.com/2025/01/16/style/altadena-girls-california-wildfire-donations.html
