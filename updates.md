@@ -1,3 +1,7 @@
+**The Painter Whose Canvases Have Hidden Messages**\
+`Plus: a mountain safari camp in South Africa, Japanese fruit and more recommendations from T Magazine.`\
+https://nytimes.com/2025/01/16/t-magazine/chris-martin-timothy-taylor.html
+
 **Judge John Hodgman on Condescending Kit Kat Labels**\
 `Can a candy bar’s instructions be too paternalistic?`\
 https://nytimes.com/2025/01/16/magazine/judge-john-hodgman-kit-kat-labels.html
