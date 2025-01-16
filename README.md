@@ -1,3 +1,7 @@
+**Since the killing of Hamas’s longtime leader, his brother and others have stepped in.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/since-the-killing-of-hamass-longtime-leader-his-brother-and-others-have-stepped-in
+
 **The Pulse: March Madness approaches**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6064724/2025/01/16/college-basketball-march-madness-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063354/2025/01/16/australian-women-tennis-australi
 **A Cease-Fire in Gaza**\
 `Israel and Hamas have finally agreed to a truce.`\
 https://nytimes.com/2025/01/16/briefing/israel-hamas-gaza-cease-fire.html
-
-**Would Blackhawks draft Matthew Schaefer — another defenseman — at No. 1?**\
-`The Blackhawks need more offensive firepower in their system. But is Schaefer, a defenseman, too good to pass up?`\
-https://nytimes.com/athletic/6064005/2025/01/16/blackhawks-no-1-pick-nhl-draft-matthew-schaefer/
 
