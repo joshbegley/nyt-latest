@@ -1,15 +1,3 @@
-**49ers mock draft reaction: Will tackle Armand Membou measure up to team’s standard?**\
-`The 49ers have to start thinking about a replacement for 36-year-old Trent Williams, who hasn't played a full season since 2013.`\
-https://nytimes.com/athletic/6064836/2025/01/16/49ers-mock-draft-reaction-armand-membou/
-
-**Raiders mock draft reaction: Shedeur Sanders still a possibility at No. 6**\
-`Raiders fans feared they dropped out of range for a quarterback when they moved down to the No. 6 pick, but maybe not? `\
-https://nytimes.com/athletic/6065052/2025/01/16/shedeur-sanders-raiders-mock-draft-reaction/
-
-**Kings midseason report card: Top marks for Kuemper, Foegele, Gavrikov**\
-`The Kings were the last NHL team to reach the midpoint of their season. Let's grade every player's contributions so far.`\
-https://nytimes.com/athletic/6066054/2025/01/16/los-angeles-kings-grades-nhl-2025/
-
 **Conan O’Brien to Receive Mark Twain Prize for American Humor**\
 `The comedian and former late-night talk show host will be given the Kennedy Center’s annual comedy honor at a ceremony in March.`\
 https://nytimes.com/2025/01/16/arts/television/conan-obrien-mark-twain-prize.html
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6066082/2025/01/16/novak-djokovic-australian-open-t
 **Collins thanks booing Australian Open crowd for 'big fat pay check' after beating home hope**\
 `Danielle Collins thanked a hostile Australian Open crowd for helping to fund her next vacation after beating its last home hope in the women&#8217;s draw.`\
 https://nytimes.com/athletic/6066290/2025/01/16/danielle-collins-australian-open-crowd-tennis/
+
+**Hamas After Cease-Fire: Weakened, Isolated but Still Standing**\
+`Hamas remains the dominant Palestinian power in Gaza even after 15 months of Israeli bombardment, holding sway in displacement camps and refusing to surrender.`\
+https://nytimes.com/2025/01/16/world/middleeast/hamas-gaza-cease-fire-palestinian-future.html
+
+**The Athletic FC: Newcastle, Isak put 'form' in formidable, Reynolds' latest venture**\
+`Today in TAFC: Newcastle are the form team with the form striker, will there be a Colombian version of Wrexham? Arsenal buoyed by derby win.`\
+https://nytimes.com/athletic/6066144/2025/01/16/newcastle-champions-league-isak/
+
+**Trump’s Housing Pick Will Face Questions to Define His Policy Stances**\
+`Scott Turner, a former pro football player and official during the first Trump administration, will make his case to lead the Department of Housing and Urban Development.`\
+https://nytimes.com/2025/01/16/us/politics/trump-scott-turner-housing-secretary-policy.html
 

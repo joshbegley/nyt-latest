@@ -1,3 +1,15 @@
+**49ers mock draft reaction: Will tackle Armand Membou measure up to team’s standard?**\
+`The 49ers have to start thinking about a replacement for 36-year-old Trent Williams, who hasn't played a full season since 2013.`\
+https://nytimes.com/athletic/6064836/2025/01/16/49ers-mock-draft-reaction-armand-membou/
+
+**Raiders mock draft reaction: Shedeur Sanders still a possibility at No. 6**\
+`Raiders fans feared they dropped out of range for a quarterback when they moved down to the No. 6 pick, but maybe not? `\
+https://nytimes.com/athletic/6065052/2025/01/16/shedeur-sanders-raiders-mock-draft-reaction/
+
+**Kings midseason report card: Top marks for Kuemper, Foegele, Gavrikov**\
+`The Kings were the last NHL team to reach the midpoint of their season. Let's grade every player's contributions so far.`\
+https://nytimes.com/athletic/6066054/2025/01/16/los-angeles-kings-grades-nhl-2025/
+
 **Conan O’Brien to Receive Mark Twain Prize for American Humor**\
 `The comedian and former late-night talk show host will be given the Kennedy Center’s annual comedy honor at a ceremony in March.`\
 https://nytimes.com/2025/01/16/arts/television/conan-obrien-mark-twain-prize.html
