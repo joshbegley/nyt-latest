@@ -1,3 +1,7 @@
+**The Los Angeles Fires Burned Livelihoods, Too**\
+`For many service workers, a wealthy Los Angeles neighborhood represented an economic lifeline that the fires have now severed.`\
+https://nytimes.com/2025/01/15/us/fires-domestic-workers-day-laborers.html
+
 **Johnson Ousts Turner as Intelligence Chairman, Bowing to Trump**\
 `Representative Michael R. Turner, Republican of Ohio, had at times been critical of the president-elect. He told people that he was axed after an edict from Mar-a-Lago.`\
 https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009928442/what-to-know-about-th
 **Students and teachers from schools that burned in the Palisades fire reunite and grieve.**\
 `Children who had been out of school for a week after fires destroyed or damaged school buildings reconvened in borrowed spaces.`\
 https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/students-and-teachers-from-schools-that-burned-in-the-palisades-fire-reunite-and-grieve
-
-**In a ‘Show Boat’ Reboot, Ol’ Man River Gets an Extreme Makeover**\
-`“Show/Boat: A River” reverses the racial lens on the great-grandfather of American musicals.`\
-https://nytimes.com/2025/01/15/theater/show-boat-under-the-radar.html
 
