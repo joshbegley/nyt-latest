@@ -1,3 +1,11 @@
+**College basketball mailbag: How many new ACC coaches next season? Reason to believe in Michigan?**\
+`What could get Tony Bennett back into coaching? How does Utah State remain a factor? Shall Iowa State party like it's 1944?`\
+https://nytimes.com/athletic/6065740/2025/01/16/college-basketball-acc-coaches-michigan/
+
+**Less than half the 250 hostages taken from Israel in 2023 remain in Gaza.**\
+`The abductees included citizens of Israel, the United States, Britain, Mexico, Thailand and other countries.`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/israel-hostages-gaza-hamas
+
 **Jaden Philogene to Ipswich Town: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Jaden Philogene's move to Ipswich Town`\
 https://nytimes.com/athletic/6049966/2025/01/16/jaden-philogene-ipswich-transfer-rating/
