@@ -1,3 +1,7 @@
+**‘Cristóbal Balenciaga’ Is a Gorgeous Fashion Drama**\
+`The six-part Hulu series follows the pioneering designer’s life and career with startling beauty and potency.`\
+https://nytimes.com/2025/01/16/arts/television/cristobal-balenciaga-hulu.html
+
 **Genesis Invitational to be relocated due to Los Angeles wildfires**\
 `The event, hosted by Tiger Woods, is set to be played the week of Feb. 10, but the PGA Tour has not yet announced the substitute location.`\
 https://nytimes.com/athletic/6067754/2025/01/16/genesis-invitational-relocated-riviera-country-club-los-angeles-wildfires/
