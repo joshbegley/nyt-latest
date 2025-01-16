@@ -1,3 +1,7 @@
+**Stephen Miller, Channeling Trump, Has Built More Power Than Ever**\
+`Stephen Miller was the architect of Donald J. Trump’s hard-line immigration agenda in his first term. Now he is back with fewer internal rivals and even more influence with the president.`\
+https://nytimes.com/2025/01/16/us/politics/stephen-miller-trump.html
+
 **Rangers fan survey: Fire Drury? Or Laviolette? Trades? Rebuild? Stay the course?**\
 `Here’s our midseason Rangers fan survey, which features the same questions asked of the NHL insiders earlier this week.`\
 https://nytimes.com/athletic/6067277/2025/01/16/rangers-fan-survey-drury-laviolette/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/t-magazine/mexico-city-hotels.html
 **Producers Guild Nominations Narrow Down the Oscar Field**\
 `The list includes “Anora,” “Conclave,” “Emilia Pérez” and “A Complete Unknown,” which all received directors and actors guild nominations, too.`\
 https://nytimes.com/2025/01/16/movies/producers-guild-nominations-anora-emilia-perez-conclave-complete-unknown.html
-
-**Biden’s ‘Bittersweet’ Farewell Address**\
-`Readers offer both praise and criticism of the outgoing president. Also: Greenland’s rights; resilience amid trauma; near-death experiences.`\
-https://nytimes.com/2025/01/16/opinion/joe-biden-farewell-address.html
 
