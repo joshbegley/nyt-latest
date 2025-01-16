@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6044404/2025/01/16/nicolas-batum-rayan-rupert-bond-
 `What could get Tony Bennett back into coaching? How does Utah State remain a factor? Shall Iowa State party like it's 1944?`\
 https://nytimes.com/athletic/6065740/2025/01/16/college-basketball-acc-coaches-michigan/
 
-**Less than half the 250 hostages taken from Israel in 2023 remain in Gaza.**\
-`The abductees included citizens of Israel, the United States, Britain, Mexico, Thailand and other countries.`\
+**About 100 Hostages Remain in Gaza**\
+`Citizens of Israel, the United States, Britain, Mexico, Thailand and other countries were among about 250 people abducted in the Oct. 7, 2023 raids into Israel.`\
 https://nytimes.com/2025/01/15/world/middleeast/israel-hostages-gaza-hamas.html
 
 **Jaden Philogene to Ipswich Town: The Athletic 500 transfer ratings**\

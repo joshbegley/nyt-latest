@@ -1,3 +1,7 @@
+**About 100 Hostages Remain in Gaza**\
+`Citizens of Israel, the United States, Britain, Mexico, Thailand and other countries were among about 250 people abducted in the Oct. 7, 2023 raids into Israel.`\
+https://nytimes.com/2025/01/15/world/middleeast/israel-hostages-gaza-hamas.html
+
 **Australian women's tennis looks to the future after a testing week in Melbourne**\
 `Three years after Ashleigh Barty won her home Grand Slam, there are no Australian women inside the top 100. A new crop wants to change that.`\
 https://nytimes.com/athletic/6063354/2025/01/16/australian-women-tennis-australian-open-ash-barty/
