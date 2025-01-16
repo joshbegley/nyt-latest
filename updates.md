@@ -1,3 +1,7 @@
+**Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
+`The Wimbledon saga is over for good as Emma Raducanu moves into the Australian Open third round`\
+https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
+
 **Deadly strikes in Gaza continue despite the announcement of a cease-fire deal.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/deadly-strikes-in-gaza-continue-despite-the-announcement-of-a-cease-fire-deal

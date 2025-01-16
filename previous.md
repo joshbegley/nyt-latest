@@ -1,3 +1,7 @@
+**Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
+`The Wimbledon saga is over for good as Emma Raducanu moves into the Australian Open third round`\
+https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
+
 **Deadly strikes in Gaza continue despite the announcement of a cease-fire deal.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/deadly-strikes-in-gaza-continue-despite-the-announcement-of-a-cease-fire-deal
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6065052/2025/01/16/shedeur-sanders-raiders-mock-dra
 **Kings midseason report card: Top marks for Kuemper, Foegele, Gavrikov**\
 `The Kings were the last NHL team to reach the midpoint of their season. Let's grade every player's contributions so far.`\
 https://nytimes.com/athletic/6066054/2025/01/16/los-angeles-kings-grades-nhl-2025/
-
-**Conan O’Brien to Receive Mark Twain Prize for American Humor**\
-`The comedian and former late-night talk show host will be given the Kennedy Center’s annual comedy honor at a ceremony in March.`\
-https://nytimes.com/2025/01/16/arts/television/conan-obrien-mark-twain-prize.html
 
