@@ -1,3 +1,7 @@
+**For Firefighters, a ‘Roller Coaster’ Week on the Front Lines**\
+`By Eli Tan`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/for-firefighters-a-roller-coaster-week-on-the-front-lines
+
 **President Biden is Bowing Out After One Term. He’s Not the First.**\
 `Other American presidents have faced the delicate challenge of bidding farewell with grace after serving only one term in the Oval Office.`\
 https://nytimes.com/2025/01/15/us/politics/biden-presidents-farewell-address.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/russia-a
 **Israel and Hamas Agree to Gaza Cease-Fire and Hostage Deal**\
 `The Israeli cabinet still has to ratify the deal, and some details remained unresolved.`\
 https://nytimes.com/video/world/middleeast/100000009929542/israel-hamas-cease-fire-gaza.html
-
-**Marco Rubio Faces Senate Committee Hearing**\
-`Senator Marco Rubio received a relatively friendly welcome from both sides at his confirmation hearing for secretary of state.`\
-https://nytimes.com/video/us/politics/100000009929169/marco-rubio-committee-confirmation-hearing.html
 
