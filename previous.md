@@ -1,3 +1,7 @@
+**L.A. Officials Warn of Compromised Drinking Water in Fire-Ravaged Areas**\
+`“Do not drink” orders have been issued in some areas where damaged pipes that lost pressure might pull in toxic smoke and harmful chemicals that could linger in the system for years.`\
+https://nytimes.com/2025/01/16/us/la-drinking-water-wildfires.html
+
 **David Lynch, ‘Twin Peaks’ and the American Art of Television**\
 `“Twin Peaks” was his ultimate portrait of a land of terror and beauty.`\
 https://nytimes.com/2025/01/16/arts/television/david-lynch-twin-peaks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6068089/2025/01/16/southampton-board-johannes-spors
 **State Farm offers homeowners in fire areas a chance to renew insurance policies.**\
 `By Jack Healy`\
 https://nytimes.com/2025/01/16/us/state-farm-insurance-renewals-la-fires.html
-
-**Wendy Williams Breaks Silence on Guardianship: ‘I Feel Like I am in Prison’**\
-`The former daytime host, who has been diagnosed with dementia, said in an interview on “The Breakfast Club” that she was “not cognitively impaired” and spoke about her life in a care facility.`\
-https://nytimes.com/2025/01/16/arts/wendy-williams-guardianship.html
 

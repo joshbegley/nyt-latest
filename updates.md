@@ -1,3 +1,7 @@
+**L.A. Officials Warn of Compromised Drinking Water in Fire-Ravaged Areas**\
+`“Do not drink” orders have been issued in some areas where damaged pipes that lost pressure might pull in toxic smoke and harmful chemicals that could linger in the system for years.`\
+https://nytimes.com/2025/01/16/us/la-drinking-water-wildfires.html
+
 **David Lynch, ‘Twin Peaks’ and the American Art of Television**\
 `“Twin Peaks” was his ultimate portrait of a land of terror and beauty.`\
 https://nytimes.com/2025/01/16/arts/television/david-lynch-twin-peaks.html
