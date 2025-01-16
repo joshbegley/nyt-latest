@@ -1,3 +1,7 @@
+**New York State Senator Quits D.N.C. Leadership Fight**\
+`James Skoufis endorsed Ken Martin, the Minnesota party chairman, as he ended his own outsider bid to lead Democrats.`\
+https://nytimes.com/2025/01/16/us/politics/democratic-national-committee-election.html
+
 **LIV Golf, Fox Sports agree to multiyear media rights deal**\
 `The agreement marks the first time the startup league will air on a major sports TV network in the U.S. since its inception in 2022.`\
 https://nytimes.com/athletic/6066481/2025/01/16/liv-golf-fox-sports-multiyear-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raduc
 **Deadly strikes in Gaza continue despite the announcement of a cease-fire deal.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/deadly-strikes-in-gaza-continue-despite-the-announcement-of-a-cease-fire-deal
-
-**'Hard to compute': Sheldon Keefe on what really held the Leafs back**\
-`Sheldon Keefe on Leafs stars: 'To me, those guys in Toronto, they don’t get nearly enough credit for how hard they work.'`\
-https://nytimes.com/athletic/5982413/2025/01/16/sheldon-keefe-interview-leafs-devils/
 

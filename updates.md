@@ -1,3 +1,7 @@
+**New York State Senator Quits D.N.C. Leadership Fight**\
+`James Skoufis endorsed Ken Martin, the Minnesota party chairman, as he ended his own outsider bid to lead Democrats.`\
+https://nytimes.com/2025/01/16/us/politics/democratic-national-committee-election.html
+
 **LIV Golf, Fox Sports agree to multiyear media rights deal**\
 `The agreement marks the first time the startup league will air on a major sports TV network in the U.S. since its inception in 2022.`\
 https://nytimes.com/athletic/6066481/2025/01/16/liv-golf-fox-sports-multiyear-deal/
