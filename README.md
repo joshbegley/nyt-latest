@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6064434/2025/01/16/ruben-amorim-manchester-united-c
 
 **What’s happening on the launchpad.**\
 `By Kenneth Chang`\
-https://nytimes.com/2025/01/16/science/whats-happening-on-the-launchpad.html
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/whats-happening-on-the-launchpad
 
 **Footballers' shin pads – the piece of equipment some pros prefer not to wear**\
 `Shin guards date back to the 1800s but shapes, sizes and personal tastes have evolved over the years – and now everyone has a preference`\
