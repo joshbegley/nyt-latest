@@ -1,3 +1,15 @@
+**The Windup: If you only read one Roki Sasaki story ...**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6067276/2025/01/16/roki-sasaki-tsunami-signing-deadline-the-windup/
+
+**Feeding Me Softly**\
+`Coconut saag, soondubu jjigae and haluski answer the question, “What if you could eat a hug?”`\
+https://nytimes.com/2025/01/16/dining/saag-jiigae-soft-food-recipes.html
+
+**EA Sports announces College Football 26 will be released this summer**\
+`It’s not yet clear what will be new for CFB 26, but it will be coming this summer, on a schedule familiar to franchise fans.`\
+https://nytimes.com/athletic/6066683/2025/01/16/ea-sports-college-football-26-video-game-release/
+
 **After the Fires, It’s a New City, and a New World**\
 `Adam Nagourney, a former Los Angeles bureau chief, explores the extent to which no one is immune from the threat of fires.`\
 https://nytimes.com/2025/01/16/us/wildfires-new-world.html
