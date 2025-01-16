@@ -1,3 +1,23 @@
+**They Escaped the Wildfires. Now, They’re Facing Personal Costs**\
+`Evacuating a disaster is often the lifesaving choice, but it comes with short-term costs to address immediate needs and incalculable personal and financial tolls in the future.`\
+https://nytimes.com/2025/01/16/business/los-angeles-fires-rebuilding-costs.html
+
+**Police investigating online abuse aimed at Havertz's wife**\
+`Police are investigating after the wife of Kai Havertz received online abuse following Arsenal&#8217;s FA Cup third-round defeat to Manchester United on Sunday.`\
+https://nytimes.com/athletic/6066247/2025/01/16/police-havertz-abuse/
+
+**This Mindfulness Book Actually Helped Soothe My Anxious Mind**\
+`The Thich Nhat Hanh classic is celebrating its 50th year in circulation. It also taught me to be OK with life’s uncertainties.`\
+https://nytimes.com/2025/01/16/well/mind/thich-nhat-hanh-mindfulness-book.html
+
+**The Bounce: About the NBA's greatest dunk that never counted. Plus, LeBron James' Michael Jordan story**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6066415/2025/01/16/ja-morant-victor-wembanyama-lebron-james-michael-jordan-nba-the-bounce/
+
+**A First-Day Trump Order: A Federal Stockpile of Bitcoin?**\
+`The cryptocurrency industry has pushed President-elect Donald J. Trump to establish one, creating real political momentum behind the plan.`\
+https://nytimes.com/2025/01/16/technology/trump-bitcoin-stockpile.html
+
 **All the Usual Backstabbing and Big Commissions. This Time in Manhattan.**\
 `“Selling the City,” the newest offshoot of the “Selling Sunset” franchise, features a team of real estate professionals dedicated to breaking records and to building empires.`\
 https://nytimes.com/2025/01/16/realestate/selling-the-city-eleonora-jade-steve.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/16/world/africa/sudan-chemical-weapons-sanctions.htm
 **Netanyahu Faces a Political Crisis Over the Gaza Cease-Fire Deal**\
 `With his far-right coalition partners refusing to end the war, Prime Minister Benjamin Netanyahu may soon have to choose between them or the agreement.`\
 https://nytimes.com/2025/01/16/world/middleeast/netanyahu-israel-cease-fire.html
-
-**I Read This Recipe, Then Immediately Made This Soup**\
-`Andy Baraghani’s chicken soup with red lentils and lemony yogurt is super easy, super flavorful and, well, just really super.`\
-https://nytimes.com/2025/01/16/dining/chicken-lentils-soup.html
-
-**Extinct Human Species Lived in a Brutal Desert, Study Finds**\
-`A million years ago, a species known as Homo erectus most likely survived in an arid desert with no trees.`\
-https://nytimes.com/2025/01/16/science/extinct-human-species-lived-in-a-brutal-desert-study-finds.html
-
-**‘The Chef’ Review: Kitchen Drama, This Time in Tel Aviv**\
-`The Israeli series, now available in the United States, calls to mind “The Bear” but was made first.`\
-https://nytimes.com/2025/01/16/arts/television/the-chef-review.html
-
-**Hall of Fame broadcaster and baseball personality Bob Uecker dies at 90**\
-`In a sport he adored, Bob Uecker was "Mr. Baseball." In Milwaukee, he was just "Ueck." `\
-https://nytimes.com/athletic/5969463/2025/01/16/bob-uecker-mlb-brewers-dies/
-
-**American qualifier Learner Tien beats Daniil Medvedev in stunning Australian Open upset**\
-`MELBOURNE, Australia — Learner Tien, a 19-year-old qualifier from California, notched the biggest upset of the 2025 Australian Open to date by beating 2024 finalist and No.`\
-https://nytimes.com/athletic/6066464/2025/01/16/learner-tien-australian-open-daniil-medvedev-result-analysis/
 
