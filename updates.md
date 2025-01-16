@@ -1,3 +1,19 @@
+**Conan O’Brien to Receive Mark Twain Prize for American Humor**\
+`The comedian and former late-night talk show host will be given the Kennedy Center’s annual comedy honor at a ceremony in March.`\
+https://nytimes.com/2025/01/16/arts/television/conan-obrien-mark-twain-prize.html
+
+**Cancer’s New Face: Younger and Female**\
+`Although long considered a disease of aging, certain cancers are turning up more often in younger women, according to a new report.`\
+https://nytimes.com/2025/01/16/health/cancer-younger-women.html
+
+**Breast Cancer Rates Climb Among Younger Women**\
+`A new report points to a notable increase among U.S. women under 50. Experts point to a few likely causes.`\
+https://nytimes.com/2025/01/16/well/breast-cancer-young-women.html
+
+**Rashod Bateman knows how far he can still go while appreciating how far he's come**\
+`The 25-year-old Bateman has had a career year and is firmly entrenched as one of Lamar Jackson’s go-to targets. `\
+https://nytimes.com/athletic/6065852/2025/01/16/ravens-rashod-bateman-lamar-jackson/
+
 **What Trump’s Treasury Pick Might Get Asked Today**\
 `Scott Bessent, a billionaire hedge fund manager, will likely face tough questions on tax cuts and tariffs — and how bond markets might check his economic agenda.`\
 https://nytimes.com/2025/01/16/business/dealbook/bessent-treasury-confirmation-hearing.html
