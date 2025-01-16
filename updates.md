@@ -1,5 +1,9 @@
 **Negotiators Agree to Long-Awaited Cease-Fire and Hostage Deal for Gaza**\
 `The agreement, which must still be approved by the Israeli cabinet, incited joy in the Gaza Strip and Israel, even as some feared that it could fall apart.`\
+https://nytimes.com/2025/01/15/world/middleeast/gaza-cease-fire.html
+
+**Negotiators Agree to Long-Awaited Cease-Fire and Hostage Deal for Gaza**\
+`The agreement, which must still be approved by the Israeli cabinet, incited joy in the Gaza Strip and Israel, even as some feared that it could fall apart.`\
 https://nytimes.com/2025/01/15/world/middleeast/gaza-cease.html
 
 **Biden Delivers Farewell Address Packed With Warnings to Americans**\
