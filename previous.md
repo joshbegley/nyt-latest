@@ -1,3 +1,7 @@
+**The north London derby was a test of attitude for Arsenal - it was one they passed**\
+`This was Mikel Arteta's side reconnecting with what makes them feel good about playing football`\
+https://nytimes.com/athletic/6065437/2025/01/16/arsenal-north-london-derby-test-attitude/
+
 **For Jeff Bezos, New Glenn’s success is personal.**\
 `By Karen Weise`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/for-jeff-bezos-new-glenns-success-is-personal
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch
 **Corbin Burnes, the lure of family and a Diamondbacks championship window that remains open**\
 `Last season, the Diamondbacks led the major leagues in runs scored. Next season, they could have one of the National League's top rotations.`\
 https://nytimes.com/athletic/6065476/2025/01/16/corbin-burnes-diamondbacks-championship-window/
-
-**Do Liverpool need new signings - and, if so, where?**\
-`We're halfway through the transfer window, but all is quiet at Anfield - should it stay that way?`\
-https://nytimes.com/athletic/6064031/2025/01/16/liverpool-transfers-january-squad-audit/
 

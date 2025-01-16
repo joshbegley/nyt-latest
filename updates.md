@@ -1,3 +1,7 @@
+**The north London derby was a test of attitude for Arsenal - it was one they passed**\
+`This was Mikel Arteta's side reconnecting with what makes them feel good about playing football`\
+https://nytimes.com/athletic/6065437/2025/01/16/arsenal-north-london-derby-test-attitude/
+
 **For Jeff Bezos, New Glenn’s success is personal.**\
 `By Karen Weise`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/for-jeff-bezos-new-glenns-success-is-personal
