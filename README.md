@@ -1,3 +1,7 @@
+**Australian women's tennis looks to the future after a testing week in Melbourne**\
+`Three years after Ashleigh Barty won her home Grand Slam, there are no Australian women inside the top 100. A new crop wants to change that.`\
+https://nytimes.com/athletic/6063354/2025/01/16/australian-womens-tennis-looks-to-the-future-at-the-australian-open-after-ash-bartys-legacy/
+
 **A Cease-Fire in Gaza**\
 `Israel and Hamas have finally agreed to a truce.`\
 https://nytimes.com/2025/01/16/briefing/israel-hamas-gaza-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063308/2025/01/16/rockets-nba-trade-deadline-jimmy
 **Marcus Freeman's championship-level Notre Dame staff has extensive Cincinnati roots**\
 `Freeman and nine other Notre Dame staff members formerly worked at Cincinnati.`\
 https://nytimes.com/athletic/6062099/2025/01/16/notre-dame-football-marcus-freeman-cincinnati/
-
-**What to Know About the Cease-Fire Deal, and Biden Warns the Nation**\
-`Plus, Drake sues his own music label.`\
-https://nytimes.com/2025/01/16/podcasts/gaza-ceasefire-what-to-know.html
 
