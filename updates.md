@@ -1,3 +1,11 @@
+**Friday Briefing: Cease-Fire Vote Delayed**\
+`Plus, remembering David Lynch.`\
+https://nytimes.com/2025/01/16/briefing/cease-fire-delay-china-security-sudan-sanctions.html
+
+**A Meteorite Is Caught on Camera as It Crashes Outside a Front Door**\
+`Home security-camera footage shows a puff of smoke, with the sound of an explosion included, as the space rock lands in Canada. A geologist said it was a rare recording.`\
+https://nytimes.com/2025/01/16/science/meteorite-debris-security-camera-canada.html
+
 **Trump Picks a Jet-Setting Pal of Elon Musk to Go Get Greenland**\
 `Negotiations over an 836,000-square-mile island may fall to a close friend of Elon Musk with experience in deal-making. Just not that kind of deal-making.`\
 https://nytimes.com/2025/01/16/us/politics/elon-musk-donald-trump-greenland.html
