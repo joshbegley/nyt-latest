@@ -1,3 +1,19 @@
+**After the Fires, It’s a New City, and a New World**\
+`Adam Nagourney, a former Los Angeles bureau chief, explores the extent to which no one is immune from the threat of fires.`\
+https://nytimes.com/2025/01/16/us/wildfires-new-world.html
+
+**Mexico City’s New Wave of Nostalgic Small Hotels**\
+`In the Condesa and Roma neighborhoods, boutique properties are reviving historic buildings.`\
+https://nytimes.com/2025/01/16/t-magazine/mexico-city-hotels.html
+
+**Producers Guild Nominations Narrow Down the Oscar Field**\
+`The list includes “Anora,” “Conclave,” “Emilia Pérez” and “A Complete Unknown,” which all received directors and actors guild nominations, too.`\
+https://nytimes.com/2025/01/16/movies/producers-guild-nominations-anora-emilia-perez-conclave-complete-unknown.html
+
+**Biden’s ‘Bittersweet’ Farewell Address**\
+`Readers offer both praise and criticism of the outgoing president. Also: Greenland’s rights; resilience amid trauma; near-death experiences.`\
+https://nytimes.com/2025/01/16/opinion/joe-biden-farewell-address.html
+
 **Arsenal thrill at Myles Lewis-Skelly's trademark ability to draw pressure and ride tackles**\
 `In the derby, Lewis-Skelly showed defensive solidity, tactical understanding and small-space dribbling ability that defies his inexperience`\
 https://nytimes.com/athletic/6066117/2025/01/16/lewis-skelly-arsenal-dembele-rice/
