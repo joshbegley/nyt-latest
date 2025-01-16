@@ -1,3 +1,7 @@
+**Will the NCAA expand March Madness? And who will be in charge of it?**\
+`The association needs a new governance structure to accommodate the more professionalized parts of the NCAA’s membership.`\
+https://nytimes.com/athletic/6065542/2025/01/15/ncaa-tournament-expansion-governance/
+
 **For firefighters, a ‘roller coaster’ week on the front lines.**\
 `By Eli Tan`\
 https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/for-firefighters-a-roller-coaster-week-on-the-front-lines
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/learning/teens-on-politics-today-the-winners-of-o
 **Russia and other foreign sources amplify disinformation about the California wildfires.**\
 `As often happens when disasters strike, adversarial governments are compounding false or exaggerated claims about the fires in Los Angeles.`\
 https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/russia-and-other-foreign-sources-amplify-disinformation-about-the-california-wildfires
-
-**Israel and Hamas Agree to Gaza Cease-Fire and Hostage Deal**\
-`The Israeli cabinet still has to ratify the deal, and some details remained unresolved.`\
-https://nytimes.com/video/world/middleeast/100000009929542/israel-hamas-cease-fire-gaza.html
 
