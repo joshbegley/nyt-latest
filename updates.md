@@ -1,3 +1,19 @@
+**Some California lawmakers want to penalize polluters for wildfires.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/some-california-lawmakers-want-to-penalize-polluters-for-wildfires
+
+**For TikTok Refugees, a Wry Welcome on a Chinese App**\
+`In their mass migration to the Chinese app RedNote, social media users make a gleeful mockery of the American government.`\
+https://nytimes.com/2025/01/16/arts/tiktok-red-note-china.html
+
+**Arsenal thrill at Myles Lewis-Skelly's trademark ability to draw pressure and ride tackles**\
+`The 18-year-old Arsenal full-back's ability to ride tackles has proved to be a deceptive weapon as he makes his mark in the first team`\
+https://nytimes.com/athletic/6066117/2025/01/16/lewis-skelly-arsenal-dembele-rice/
+
+**U.K. Announces Rapid Audit of Scale of Child Sexual Abuse by Grooming Gangs**\
+`Britain’s Labour government came under pressure to act after Elon Musk reignited a decade-old scandal involving child sexual abuse mainly by men of Pakistani heritage.`\
+https://nytimes.com/2025/01/16/world/europe/england-grooming-gangs-investigation.html
+
 **Pete Alonso’s market heats up; Blue Jays in mix, Mets also talking to others**\
 `The power-hitting first baseman was the No. 8 player on The Athletic's Top 40 Free Agent Big Board this offseason. `\
 https://nytimes.com/athletic/6067080/2025/01/16/pete-alonso-mets-blue-jays/

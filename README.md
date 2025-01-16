@@ -7,7 +7,7 @@ https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/some-cal
 https://nytimes.com/2025/01/16/arts/tiktok-red-note-china.html
 
 **Arsenal thrill at Myles Lewis-Skelly's trademark ability to draw pressure and ride tackles**\
-`The 18-year-old Arsenal full-back's ability to ride tackles has proved to be a deceptive weapon as he makes his mark in the first team`\
+`In the derby, Lewis-Skelly showed defensive solidity, tactical understanding and small-space dribbling ability that defies his inexperience`\
 https://nytimes.com/athletic/6066117/2025/01/16/lewis-skelly-arsenal-dembele-rice/
 
 **U.K. Announces Rapid Audit of Scale of Child Sexual Abuse by Grooming Gangs**\
