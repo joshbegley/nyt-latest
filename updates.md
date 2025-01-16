@@ -1,3 +1,11 @@
+**The Washington Post’s New Mission: Reach ‘All of America’**\
+`This week, The Post began trying out a new mission statement: “Riveting Storytelling for All of America.”`\
+https://nytimes.com/2025/01/16/business/media/the-washington-post-new-mission.html
+
+**Blue Jackets, Red Wings introduce NHL Stadium Series jerseys**\
+`The teams will play at Ohio Stadium in Columbus on March 1.`\
+https://nytimes.com/athletic/6065746/2025/01/16/nhl-blue-jackets-red-wings-stadium-series/
+
 **New York State Senator Quits D.N.C. Leadership Fight**\
 `James Skoufis endorsed Ken Martin, the Minnesota party chairman, as he ended his own outsider bid to lead Democrats.`\
 https://nytimes.com/2025/01/16/us/politics/democratic-national-committee-election.html

@@ -1,3 +1,11 @@
+**The Washington Post’s New Mission: Reach ‘All of America’**\
+`This week, The Post began trying out a new mission statement: “Riveting Storytelling for All of America.”`\
+https://nytimes.com/2025/01/16/business/media/the-washington-post-new-mission.html
+
+**Blue Jackets, Red Wings introduce NHL Stadium Series jerseys**\
+`The teams will play at Ohio Stadium in Columbus on March 1.`\
+https://nytimes.com/athletic/6065746/2025/01/16/nhl-blue-jackets-red-wings-stadium-series/
+
 **New York State Senator Quits D.N.C. Leadership Fight**\
 `James Skoufis endorsed Ken Martin, the Minnesota party chairman, as he ended his own outsider bid to lead Democrats.`\
 https://nytimes.com/2025/01/16/us/politics/democratic-national-committee-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/honestly-
 **Arsenal may be the best out-of-possession team in the world**\
 `Arsenal's title bid relies on them maintaining their performance without the ball while finding a more clinical edge when they have it`\
 https://nytimes.com/athletic/6065979/2025/01/16/arsenal-high-press-tottenham-hotspur/
-
-**Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
-`The Wimbledon saga is over for good as Raducanu moves into the Australian Open third round.`\
-https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
-
-**Deadly strikes in Gaza continue despite the announcement of a cease-fire deal.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/deadly-strikes-in-gaza-continue-despite-the-announcement-of-a-cease-fire-deal
 
