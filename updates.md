@@ -1,3 +1,15 @@
+**Full Transcript of President Biden’s Farewell Address**\
+`The president delivered the 17-minute speech from the Oval Office in the White House.`\
+https://nytimes.com/2025/01/15/us/politics/full-transcript-of-president-bidens-farewell-address.html
+
+**Corrections: Jan. 16, 2025**\
+`Corrections that appeared in print on Thursday, Jan. 16, 2025.`\
+https://nytimes.com/2025/01/15/pageoneplus/corrections-jan-16-2025.html
+
+**British Man Freed From Prison Over Video Misidentification**\
+`Ademola Adedeji was ensnared in a murder conspiracy case with no murder victim. Prosecutors labeled him a gang member and won a conviction and eight-year sentence.`\
+https://nytimes.com/2025/01/15/world/europe/uk-conspiracy-gang-video-misidentification-trial-overturned.html
+
 **Will the NCAA expand March Madness? And who will be in charge of it?**\
 `The association needs a new governance structure to accommodate the more professionalized parts of the NCAA’s membership.`\
 https://nytimes.com/athletic/6065542/2025/01/15/ncaa-tournament-expansion-governance/

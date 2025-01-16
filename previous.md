@@ -1,3 +1,15 @@
+**Full Transcript of President Biden’s Farewell Address**\
+`The president delivered the 17-minute speech from the Oval Office in the White House.`\
+https://nytimes.com/2025/01/15/us/politics/full-transcript-of-president-bidens-farewell-address.html
+
+**Corrections: Jan. 16, 2025**\
+`Corrections that appeared in print on Thursday, Jan. 16, 2025.`\
+https://nytimes.com/2025/01/15/pageoneplus/corrections-jan-16-2025.html
+
+**British Man Freed From Prison Over Video Misidentification**\
+`Ademola Adedeji was ensnared in a murder conspiracy case with no murder victim. Prosecutors labeled him a gang member and won a conviction and eight-year sentence.`\
+https://nytimes.com/2025/01/15/world/europe/uk-conspiracy-gang-video-misidentification-trial-overturned.html
+
 **Will the NCAA expand March Madness? And who will be in charge of it?**\
 `The association needs a new governance structure to accommodate the more professionalized parts of the NCAA’s membership.`\
 https://nytimes.com/athletic/6065542/2025/01/15/ncaa-tournament-expansion-governance/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
 **New York Judge Deems Alexander Brothers Flight Risk, Denies Bail**\
 `Oren, Tal and Alon Alexander will be extradited from Miami to New York, where they will remain in federal detention until trial.`\
 https://nytimes.com/2025/01/15/realestate/alexander-brothers-bail-hearing.html
-
-**As 2025 Begins, How Are You Feeling About the State of Politics?**\
-`Scroll through artwork by the teenage winners of our Coming of Age in 2024 contest. Then, tell us how well the collection captures your feelings and experiences.`\
-https://nytimes.com/2025/01/15/learning/as-2025-begins-how-are-you-feeling-about-the-state-of-politics.html
-
-**Teens on Politics Today: The Winners of Our Coming of Age in 2024 Contest**\
-`We asked, “What can you show or tell us to help explain what it’s like to grow up in this political moment?” Students from around the world responded with powerful art and writing.`\
-https://nytimes.com/2025/01/15/learning/teens-on-politics-today-the-winners-of-our-coming-of-age-in-2024-contest.html
-
-**Russia and other foreign sources amplify disinformation about the California wildfires.**\
-`As often happens when disasters strike, adversarial governments are compounding false or exaggerated claims about the fires in Los Angeles.`\
-https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/russia-and-other-foreign-sources-amplify-disinformation-about-the-california-wildfires
 
