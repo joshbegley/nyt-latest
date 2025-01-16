@@ -1,40 +1,40 @@
+**I Read This Recipe, Then Immediately Made This Soup**\
+`Andy Baraghani’s chicken soup with red lentils and lemony yogurt is super easy, super flavorful and, well, just really super.`\
+https://nytimes.com/2025/01/16/dining/chicken-lentils-soup.html
+
+**Extinct Human Species Lived in a Brutal Desert, Study Finds**\
+`A million years ago, a species known as Homo erectus most likely survived in an arid desert with no trees.`\
+https://nytimes.com/2025/01/16/science/extinct-human-species-lived-in-a-brutal-desert-study-finds.html
+
+**‘The Chef’ Review: Kitchen Drama, This Time in Tel Aviv**\
+`The Israeli series, now available in the United States, calls to mind “The Bear” but was made first.`\
+https://nytimes.com/2025/01/16/arts/television/the-chef-review.html
+
+**Hall of Fame broadcaster and baseball personality Bob Uecker dies at 90**\
+`In a sport he adored, Bob Uecker was "Mr. Baseball." In Milwaukee, he was just "Ueck." `\
+https://nytimes.com/athletic/5969463/2025/01/16/bob-uecker-mlb-brewers-dies/
+
+**Learner Tien beats Daniil Medvedev in stunning Australian Open upset**\
+`MELBOURNE, Australia — Learner Tien, a 19-year-old qualifier from California, notched the biggest upset of the 2025 Australian Open to date by beating 2024 finalist and No.`\
+https://nytimes.com/athletic/6066464/2025/01/16/learner-tien-australian-open-daniil-medvedev-result-analysis/
+
+**Resist or Coexist? Democrats Rethink Their Approach to Trump and G.O.P.**\
+`Elected officials across the party are engaging in a balancing act, signaling they have heard voters’ demands for change while grappling with when to oppose Donald Trump.`\
+https://nytimes.com/2025/01/16/us/politics/democrats-resist-trump-administration.html
+
+**Indiana Fever to build $78 million training facility in Indianapolis**\
+`The center will have two regulation size practice courts, a strength and conditioning center, full-service kitchen and a spa center.`\
+https://nytimes.com/athletic/6066747/2025/01/16/wnba-fever-new-training-center/
+
+**DeSantis Picks Florida’s Attorney General to Replace Rubio**\
+`Ashley Moody, a Republican, would take the seat of Senator Marco Rubio once he is confirmed as President-elect Donald J. Trump’s secretary of state.`\
+https://nytimes.com/2025/01/16/us/politics/desantis-picks-floridas-attorney-general-to-replace-rubio.html
+
+**Knicks' Josh Hart could do something no NBA player at his height has ever done**\
+`Josh Hart won't be an All-Star, but should he?`\
+https://nytimes.com/athletic/6066441/2025/01/16/josh-hart-knicks-nba/
+
 **What to expect from Jarry's goalie replacement, Joel Blomqvist**\
 `Let's break down the tape of Blomqvist's AHL performance and project how it'll work at the NHL level. `\
 https://nytimes.com/athletic/6065037/2025/01/16/penguins-tristan-jarry-joel-blomqvist-replacement-nhl/
-
-**Man Is Arrested in Connection With Little Mountain Fire**\
-`The police in San Bernardino, Calif., said they had apprehended a man in connection with the small brush fire. The blaze’s progress had been stopped by fire crews, officials said.`\
-https://nytimes.com/2025/01/16/us/mountain-fire-arrest.html
-
-**Leafs place John Tavares on IR with lower-body injury: What are their options at centre?**\
-`With Tavares out for at least four games, a Maple Leafs team that was already light on centre depth will now see its options tested.`\
-https://nytimes.com/athletic/6066672/2025/01/16/john-tavares-injured-reserve-maple-leafs/
-
-**NBA Lookahead: How the West might be won; James Harden trade rewind**\
-`Which teams have the best chances of stopping OKC? We asked readers of The Bounce.`\
-https://nytimes.com/athletic/6058784/2025/01/16/nba-lookahead-thunder-lakers-warriors-james-harden/
-
-**Nintendo Switch 2 Is Announced With a 2025 Release Date**\
-`The new console looks physically similar to the popular Switch system, which has sold more than 146 million units in seven years.`\
-https://nytimes.com/2025/01/16/business/nintendo-switch-2.html
-
-**A cease-fire would mean more aid for Gaza, but getting it to people in need may still be hard.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/a-cease-fire-would-mean-more-aid-for-gaza-but-getting-it-to-people-in-need-may-still-be-hard
-
-**Should You Change Your Wine Consumption?**\
-`What happens when your passion and life’s work are called a health risk? Our wine critic contemplates the surgeon general’s recent warning.`\
-https://nytimes.com/2025/01/16/dining/drinks/surgeon-general-warning-wine-consumption.html
-
-**It’s Not a Bad Pour. It’s a Mlíko.**\
-`At a small but growing subset of American breweries, a wave of obscure, foam-heavy Czech beers is swelling.`\
-https://nytimes.com/2025/01/16/dining/drinks/mliko-czech-beers.html
-
-**The Washington Post’s New Mission: Reach ‘All of America’**\
-`This week, The Post began trying out a new mission statement: “Riveting Storytelling for All of America.”`\
-https://nytimes.com/2025/01/16/business/media/the-washington-post-new-mission.html
-
-**Blue Jackets, Red Wings introduce NHL Stadium Series jerseys**\
-`The teams will play at Ohio Stadium in Columbus on March 1.`\
-https://nytimes.com/athletic/6065746/2025/01/16/nhl-blue-jackets-red-wings-stadium-series/
 
