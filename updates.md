@@ -1,3 +1,15 @@
+**The Athletic FC: Newcastle, Isak put 'form' in formidable, Reynolds' latest venture**\
+`Today in TAFC: Newcastle are the form team with the form striker, will there be a Colombian version of Wrexham? Arsenal buoyed by derby win.`\
+https://nytimes.com/athletic/6066144/2025/01/16/newcastle-champions-league-isak/
+
+**Trump’s Housing Pick Will Face Questions to Define His Policy Stances**\
+`Scott Turner, a former pro football player and official during the first Trump administration, will make his case to lead the Department of Housing and Urban Development.`\
+https://nytimes.com/2025/01/16/us/politics/trump-scott-turner-housing-secretary-policy.html
+
+**Barkley and Gibbs bring new life to the running back trading card market**\
+`Saquon Barkley and Jahmyr Gibbs' 2024 success has lead to a surge in their trading cards market, but not for Derrick Henry.`\
+https://nytimes.com/athletic/6064141/2025/01/16/jahmyr-gibbs-saquon-barkley-nfl-card-values/
+
 **Since the killing of Hamas’s longtime leader, his brother and others have stepped in.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/since-the-killing-of-hamass-longtime-leader-his-brother-and-others-have-stepped-in
