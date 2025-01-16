@@ -1,3 +1,15 @@
+**Has Jalen Williams made the leap to become OKC's second All-Star?**\
+`"His case should be sealed," Shai Gilgeous-Alexander said of the Thunder's other rising star.`\
+https://nytimes.com/athletic/6062710/2025/01/16/jalen-williams-all-star-thunder-nba/
+
+**Bayern Munich, Mathys Tel and a career in a curious state of limbo**\
+`The French teenager exploded on to the stage in Bavaria, but opportunities have been distinctly limited in the period since`\
+https://nytimes.com/athletic/6066360/2025/01/16/bayern-munich-tel-chelsea/
+
+**Timberwolves are out of excuses after another loss to Warriors: 'We are terrible'**\
+`The Warriors were up 34-10 late in the first quarter, a mind-boggling combination of Minnesota ineptitude and Golden State desperation.`\
+https://nytimes.com/athletic/6065653/2025/01/16/timberwolves-excuses-loss-warriors/
+
 **California Issues Order to Ease Housing Crisis Set Off by Fires**\
 `An executive order from Gov. Gavin Newsom cleared the way for more temporary housing and prohibited price gouging at rental properties to aid thousands of displaced residents.`\
 https://nytimes.com/2025/01/16/us/california-housing-order-wildfires.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5982413/2025/01/16/sheldon-keefe-interview-leafs-de
 **'We are not giving in': Steph Curry, Steve Kerr push back against surrender narrative**\
 `"Anyone who thinks I’m OK being on an average basketball team is insane," Curry said after the Warriors beat the Timberwolves.`\
 https://nytimes.com/athletic/6065951/2025/01/16/steph-curry-warriors-timberwolves/
-
-**What's going on with Jalen Hurts and the Eagles' passing offense?**\
-`On the latest episode of the "Scoop City" podcast, a discussion of Philly's struggles through the air.`\
-https://nytimes.com/athletic/6063782/2025/01/16/jalen-hurts-philadelphia-eagles-passing-game-problems/
-
-**Saif Ali Khan, Famed Bollywood Actor, Is Stabbed at Home in Mumbai**\
-`The police said Mr. Khan was recovering in the hospital after an intruder attacked him at his house in an upscale neighborhood.`\
-https://nytimes.com/2025/01/16/world/asia/saif-ali-khan-stabbed-mumbai.html
-
-**Temperatures Expected to Plunge Across the U.S. as Freezing Cold Drifts In**\
-`Arctic air will dip into much of the United States this weekend, with temperatures reaching some of the lowest of the year.`\
-https://nytimes.com/2025/01/16/weather/weather-us-cold-forecast.html
 

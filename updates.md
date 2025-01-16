@@ -1,3 +1,15 @@
+**Has Jalen Williams made the leap to become OKC's second All-Star?**\
+`"His case should be sealed," Shai Gilgeous-Alexander said of the Thunder's other rising star.`\
+https://nytimes.com/athletic/6062710/2025/01/16/jalen-williams-all-star-thunder-nba/
+
+**Bayern Munich, Mathys Tel and a career in a curious state of limbo**\
+`The French teenager exploded on to the stage in Bavaria, but opportunities have been distinctly limited in the period since`\
+https://nytimes.com/athletic/6066360/2025/01/16/bayern-munich-tel-chelsea/
+
+**Timberwolves are out of excuses after another loss to Warriors: 'We are terrible'**\
+`The Warriors were up 34-10 late in the first quarter, a mind-boggling combination of Minnesota ineptitude and Golden State desperation.`\
+https://nytimes.com/athletic/6065653/2025/01/16/timberwolves-excuses-loss-warriors/
+
 **Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
 `The Wimbledon saga is over for good as Raducanu moves into the Australian Open third round.`\
 https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
