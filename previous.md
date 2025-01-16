@@ -1,3 +1,7 @@
+**LIV Golf, Fox Sports agree to multiyear media rights deal**\
+`The agreement marks the first time the startup league will air on a major sports TV network in the U.S. since its inception in 2022.`\
+https://nytimes.com/athletic/6066481/2025/01/16/liv-golf-fox-sports-multiyear-deal/
+
 **Has Jalen Williams made the leap to become OKC's second All-Star?**\
 `"His case should be sealed," Shai Gilgeous-Alexander said of the Thunder's other rising star.`\
 https://nytimes.com/athletic/6062710/2025/01/16/jalen-williams-all-star-thunder-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/deadly-st
 **'Hard to compute': Sheldon Keefe on what really held the Leafs back**\
 `Sheldon Keefe on Leafs stars: 'To me, those guys in Toronto, they don’t get nearly enough credit for how hard they work.'`\
 https://nytimes.com/athletic/5982413/2025/01/16/sheldon-keefe-interview-leafs-devils/
-
-**'We are not giving in': Steph Curry, Steve Kerr push back against surrender narrative**\
-`"Anyone who thinks I’m OK being on an average basketball team is insane," Curry said after the Warriors beat the Timberwolves.`\
-https://nytimes.com/athletic/6065951/2025/01/16/steph-curry-warriors-timberwolves/
 

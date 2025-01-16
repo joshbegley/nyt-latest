@@ -1,3 +1,7 @@
+**LIV Golf, Fox Sports agree to multiyear media rights deal**\
+`The agreement marks the first time the startup league will air on a major sports TV network in the U.S. since its inception in 2022.`\
+https://nytimes.com/athletic/6066481/2025/01/16/liv-golf-fox-sports-multiyear-deal/
+
 **Has Jalen Williams made the leap to become OKC's second All-Star?**\
 `"His case should be sealed," Shai Gilgeous-Alexander said of the Thunder's other rising star.`\
 https://nytimes.com/athletic/6062710/2025/01/16/jalen-williams-all-star-thunder-nba/
