@@ -1,5 +1,9 @@
+**Live Updates: Jeff Bezos and Blue Origin Try Again for Debut of New Glenn Rocket**\
+`The company scrubbed its first attempt at sending the powerful rocket to orbit on Monday. The flight is a crucial test of the company’s ability to compete with Elon Musk’s SpaceX.`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch
+
 **Corbin Burnes, the lure of family and a Diamondbacks championship window that remains open**\
-`Last season the Diamondbacks led the major leagues in runs scored. Next season they could have one of the National League's top rotations.`\
+`Last season, the Diamondbacks led the major leagues in runs scored. Next season, they could have one of the National League's top rotations.`\
 https://nytimes.com/athletic/6065476/2025/01/16/corbin-burnes-diamondbacks-championship-window/
 
 **Do Liverpool need new signings - and, if so, where?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6065749/2025/01/16/iowa-state-kansas-basketball-tra
 **Nottingham Forest's name is unique - and its origin isn't (quite) what you think**\
 `Unlike many names in English football, Nottingham Forest stands out. The origin, for this trailblazing club, is not what you might think`\
 https://nytimes.com/athletic/6061679/2025/01/16/why-called-nottingham-forest/
-
-**Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/01/16/briefing/israel-hamas-poland-russia.html
 
