@@ -1,3 +1,7 @@
+**Judge John Hodgman on Condescending Kit Kat Labels**\
+`Can a candy bar’s instructions be too paternalistic?`\
+https://nytimes.com/2025/01/16/magazine/judge-john-hodgman-kit-kat-labels.html
+
 **Keon Ellis helped revitalize the Kings defense, but is he a lock to start?**\
 `Sacramento's season turned around when Ellis was put in the starting lineup. But can he hold on to the spot?`\
 https://nytimes.com/athletic/6065266/2025/01/16/keon-ellis-revitalize-kings-starter/
