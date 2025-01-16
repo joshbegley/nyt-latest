@@ -1,3 +1,19 @@
+**Students and teachers from schools that burned in the Palisades fire reunite and grieve.**\
+`Children who had been out of school for a week after fires destroyed or damaged school buildings reconvened in borrowed spaces.`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/students-and-teachers-from-schools-that-burned-in-the-palisades-fire-reunite-and-grieve
+
+**In a ‘Show Boat’ Reboot, Ol’ Man River Gets an Extreme Makeover**\
+`“Show/Boat: A River” reverses the racial lens on the great-grandfather of American musicals.`\
+https://nytimes.com/2025/01/15/theater/show-boat-under-the-radar.html
+
+**Biden and Trump Defy Their History of Animosity to Seal Gaza Cease-Fire**\
+`But the extraordinary collaboration between outgoing and incoming presidents did not stop both sides from claiming credit.`\
+https://nytimes.com/2025/01/15/us/politics/biden-and-trump-defy-their-history-of-animosity-to-seal-gaza-cease-fire.html
+
+**Live Updates: Biden Delivers Farewell Address to the Nation**\
+`In his final months in office, Biden he has been seeking to cement a legacy as a transformative president.`\
+https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition
+
 **United by Disaster, L.A. Mourns, and Hopes, Together**\
 `More than a week after the wildfires ignited, the hazy numbness described by many looks a lot like grieving.`\
 https://nytimes.com/2025/01/15/us/politics/la-wildfires-feeling.html

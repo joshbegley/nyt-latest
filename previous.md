@@ -1,3 +1,15 @@
+**Students and teachers from schools that burned in the Palisades fire reunite and grieve.**\
+`Children who had been out of school for a week after fires destroyed or damaged school buildings reconvened in borrowed spaces.`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/students-and-teachers-from-schools-that-burned-in-the-palisades-fire-reunite-and-grieve
+
+**In a ‘Show Boat’ Reboot, Ol’ Man River Gets an Extreme Makeover**\
+`“Show/Boat: A River” reverses the racial lens on the great-grandfather of American musicals.`\
+https://nytimes.com/2025/01/15/theater/show-boat-under-the-radar.html
+
+**Biden and Trump Defy Their History of Animosity to Seal Gaza Cease-Fire**\
+`But the extraordinary collaboration between outgoing and incoming presidents did not stop both sides from claiming credit.`\
+https://nytimes.com/2025/01/15/us/politics/biden-and-trump-defy-their-history-of-animosity-to-seal-gaza-cease-fire.html
+
 **'We've got to look at two paths': Neely admits retooling is a possibility**\
 `The Bruins entered the season with hopes of chasing the Stanley Cup. With over half the season gone, Boston brass is getting pragmatic.`\
 https://nytimes.com/athletic/6065385/2025/01/15/bruins-retool-cam-neely-playoffs/
@@ -22,19 +34,7 @@ https://nytimes.com/2025/01/15/arts/howard-buten-dead.html
 `By Erica L. Green`\
 https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition/heres-the-latest
 
-**Live Updates: Biden to Deliver Farewell Address to the Nation**\
-`His administration would not disclose what the outgoing president planned to say in his speech. But in his final months he has been seeking to cement a legacy as a transformative president.`\
+**Live Updates: Biden Delivers Farewell Address to the Nation**\
+`In his final months in office, Biden he has been seeking to cement a legacy as a transformative president.`\
 https://nytimes.com/live/2025/01/15/us/biden-speech-trump-transition
-
-**U.S. Finds Pervasive Safety Failures at South Carolina Jail**\
-`Stabbings, sexual assaults and drug use are rampant in the Alvin S. Glenn Detention Center because of staff shortages and security failures, a Justice Department investigation found.`\
-https://nytimes.com/2025/01/15/us/south-carolina-jail-constitutional-rights.html
-
-**Hostage families are celebrating the cease-fire deal — with a dose of trepidation.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/01/15/world/israel-hamas-cease-fire-deal-gaza/hostage-families-celebration-trepidation
-
-**NCAA approves pay for women's basketball teams in tournament**\
-`The unanimous vote by NCAA membership (292-0) was met with applause on Wednesday.`\
-https://nytimes.com/athletic/6065210/2025/01/15/ncaa-march-madness-financial-units-vote/
 
