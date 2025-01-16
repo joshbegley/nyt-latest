@@ -1,3 +1,7 @@
+**The Los Angeles Fires Burned Livelihoods, Too**\
+`For many service workers, a wealthy Los Angeles neighborhood represented an economic lifeline that the fires have now severed.`\
+https://nytimes.com/2025/01/15/us/fires-domestic-workers-day-laborers.html
+
 **Johnson Ousts Turner as Intelligence Chairman, Bowing to Trump**\
 `Representative Michael R. Turner, Republican of Ohio, had at times been critical of the president-elect. He told people that he was axed after an edict from Mar-a-Lago.`\
 https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
