@@ -1,3 +1,7 @@
+**Blinken is shouted down over Gaza as he insists cease-fire deal is on track.**\
+`Two pro-Palestinian journalists who accused him of enabling “genocide,”`\
+https://nytimes.com/2025/01/16/world/middleeast/blinken-israel-hamas-gaza-ceasefire.html
+
 **Meatpacking Companies to Pay $8 Million for U.S. Child Labor Violations**\
 `Perdue Farms and JBS have settled with the Labor Department after relying on migrant children to do dangerous work in their slaughterhouses. Most of the money will be used to help the children.`\
 https://nytimes.com/2025/01/16/us/perdue-jbs-slaughterhouses-child-labor.html
