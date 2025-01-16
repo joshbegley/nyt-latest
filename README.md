@@ -1,3 +1,7 @@
+**The Painter Whose Canvases Have Hidden Messages**\
+`Plus: a mountain safari camp in South Africa, Japanese fruit and more recommendations from T Magazine.`\
+https://nytimes.com/2025/01/16/t-magazine/chris-martin-timothy-taylor.html
+
 **Judge John Hodgman on Condescending Kit Kat Labels**\
 `Can a candy bar’s instructions be too paternalistic?`\
 https://nytimes.com/2025/01/16/magazine/judge-john-hodgman-kit-kat-labels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/opinion/trump-hegseth-california.html
 **Outside Nashville, She Rebuilt Her Life With $200,000 and a Dream**\
 `After leaving prison and regaining custody of her children, a single mother looked for a house where she could chart a brighter future.`\
 https://nytimes.com/interactive/2025/01/16/realestate/nashville-home-sale.html
-
-**A.I. Military Start-Up Anduril Plans $1 Billion Factory in Ohio**\
-`The company said its Columbus plant could eventually produce tens of thousands of autonomous systems and weapons each year.`\
-https://nytimes.com/2025/01/16/technology/anduril-factory-columbus-ohio.html
 
