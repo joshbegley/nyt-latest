@@ -1,3 +1,15 @@
+**Tacos, Water and ‘Homies’: A Gas Station Becomes a Uniquely L.A. Relief Site**\
+`Out of desperation and a need for social bonding, volunteers have banded together to help Altadena residents.`\
+https://nytimes.com/2025/01/15/us/tacos-water-and-homies-a-gas-station-becomes-a-uniquely-la-relief-site.html
+
+**The L.A. fires present new challenges for those who are already homeless.**\
+`By Jesus Jiménez and Vik Jolly`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/the-la-fires-present-new-challenges-for-those-who-are-already-homeless
+
+**Letters Put in Boxes**\
+`Rebecca Goldstein and Adam Wagner want us to look both ways.`\
+https://nytimes.com/2025/01/15/crosswords/daily-puzzle-2025-01-16.html
+
 **Johnson Ousts Turner as Intelligence Chairman, Bowing to Trump**\
 `Representative Michael R. Turner, Republican of Ohio, had at times been critical of the president-elect. He told people that he was axed after an edict from Mar-a-Lago.`\
 https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
