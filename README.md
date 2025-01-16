@@ -1,3 +1,7 @@
+**Why is Jeff Bezos’ space company so far behind Elon Musk and SpaceX?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/why-is-jeff-bezos-space-company-so-far-behind-elon-musk-and-spacex
+
 **Lemina's downfall at Wolves has been dramatic - and it seems there is no way back now**\
 `The midfielder was Wolves captain earlier this season but now wants to leave in January, a sad end to his time at Molineux`\
 https://nytimes.com/athletic/6065424/2025/01/16/mario-lemina-wolves-downfall/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/learning/word-of-the-day-presto.html
 **David Moyes' first game back was a sobering reminder of the scale of his task at Everton**\
 `Right now the only thing keeping Everton out of the relegation zone at this stage is the ineptitude of others`\
 https://nytimes.com/athletic/6065449/2025/01/16/david-moyes-everton-return-challenge/
-
-**Will it be fair to call New Glenn’s launch a success or failure? Here are some scenarios.**\
-`By Michael Roston and Kenneth Chang`\
-https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/will-it-be-fair-to-call-new-glenns-launch-a-success-or-failure-here-are-some-scenarios
 
