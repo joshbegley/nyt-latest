@@ -1,3 +1,7 @@
+**What is the New Glenn rocket?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/what-is-the-new-glenn-rocket
+
 **This is what will happen during New Glenn’s flight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/this-is-what-will-happen-during-new-glenns-flight
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006377/2025/01/16/football-shin-pads-guards-equipm
 **What Trevor Chalobah's return means for Chelsea - and for him**\
 `Chalobah was reluctant to return to simply make up the numbers in Maresca's squad. He has been assured that he has a role to play`\
 https://nytimes.com/athletic/6064937/2025/01/16/trevor-chalobah-return-chelsea-palace-analysis/
-
-**Vitor Reis is a calm and composed defensive leader - there are echoes of John Stones**\
-`The 19-year-old already has an unerring habit of stepping up and taking everything in his stride`\
-https://nytimes.com/athletic/6060827/2025/01/16/vitor-reis-manchester-city-transfer-analysis-stones/
 
