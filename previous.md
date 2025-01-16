@@ -1,3 +1,11 @@
+**Should You Change Your Wine Consumption?**\
+`What happens when your passion and life’s work are called a health risk? Our wine critic contemplates the surgeon general’s recent warning.`\
+https://nytimes.com/2025/01/16/dining/drinks/surgeon-general-warning-wine-consumption.html
+
+**It’s Not a Bad Pour. It’s a Mlíko.**\
+`At a small but growing subset of American breweries, a wave of obscure, foam-heavy Czech beers is swelling.`\
+https://nytimes.com/2025/01/16/dining/drinks/mliko-czech-beers.html
+
 **The Washington Post’s New Mission: Reach ‘All of America’**\
 `This week, The Post began trying out a new mission statement: “Riveting Storytelling for All of America.”`\
 https://nytimes.com/2025/01/16/business/media/the-washington-post-new-mission.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6065653/2025/01/16/timberwolves-excuses-loss-warrio
 **California Issues Order to Ease Housing Crisis Set Off by Fires**\
 `An executive order from Gov. Gavin Newsom cleared the way for more temporary housing and prohibited price gouging at rental properties to aid thousands of displaced residents.`\
 https://nytimes.com/2025/01/16/us/california-housing-order-wildfires.html
-
-**‘Honestly, I feel numb.’ Gazans react to cease-fire deal.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/honestly-i-feel-numb-gazans-react-to-cease-fire-deal
-
-**Arsenal may be the best out-of-possession team in the world**\
-`Arsenal's title bid relies on them maintaining their performance without the ball while finding a more clinical edge when they have it`\
-https://nytimes.com/athletic/6065979/2025/01/16/arsenal-high-press-tottenham-hotspur/
 

@@ -1,3 +1,11 @@
+**Should You Change Your Wine Consumption?**\
+`What happens when your passion and life’s work are called a health risk? Our wine critic contemplates the surgeon general’s recent warning.`\
+https://nytimes.com/2025/01/16/dining/drinks/surgeon-general-warning-wine-consumption.html
+
+**It’s Not a Bad Pour. It’s a Mlíko.**\
+`At a small but growing subset of American breweries, a wave of obscure, foam-heavy Czech beers is swelling.`\
+https://nytimes.com/2025/01/16/dining/drinks/mliko-czech-beers.html
+
 **The Washington Post’s New Mission: Reach ‘All of America’**\
 `This week, The Post began trying out a new mission statement: “Riveting Storytelling for All of America.”`\
 https://nytimes.com/2025/01/16/business/media/the-washington-post-new-mission.html
