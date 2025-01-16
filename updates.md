@@ -1,3 +1,11 @@
+**Word of the Day: presto**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/16/learning/word-of-the-day-presto.html
+
+**David Moyes' first game back was a sobering reminder of the scale of his task at Everton**\
+`Right now the only thing keeping Everton out of the relegation zone at this stage is the ineptitude of others`\
+https://nytimes.com/athletic/6065449/2025/01/16/david-moyes-everton-return-challenge/
+
 **Will it be fair to call New Glenn’s launch a success or failure? Here are some scenarios.**\
 `By Michael Roston and Kenneth Chang`\
 https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/will-it-be-fair-to-call-new-glenns-launch-a-success-or-failure-here-are-some-scenarios
