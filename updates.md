@@ -1,3 +1,7 @@
+**A cease-fire would mean more aid for Gaza, but getting it to people in need may still be hard.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/a-cease-fire-would-mean-more-aid-for-gaza-but-getting-it-to-people-in-need-may-still-be-hard
+
 **Should You Change Your Wine Consumption?**\
 `What happens when your passion and life’s work are called a health risk? Our wine critic contemplates the surgeon general’s recent warning.`\
 https://nytimes.com/2025/01/16/dining/drinks/surgeon-general-warning-wine-consumption.html
