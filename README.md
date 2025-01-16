@@ -1,3 +1,7 @@
+**Heat Today: Despite up-and-down road trip, Tyler Herro remains confident in Heat's youthful core**\
+`Despite an inconsistent six-game road trip, Tyler Herro and Bam Adebayo saw promising flashes from Miami's younger players`\
+https://nytimes.com/athletic/6067127/2025/01/16/tyler-herro-kelel-ware-bam-adebayo-jimmy-butler-heat-nba/
+
 **Man City reach verbal agreement with Frankfurt to sign Marmoush**\
 `Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
 https://nytimes.com/athletic/6047775/2025/01/16/omar-marmoush-transfer-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/climate/los-angeles-landslide-risk.html
 **Wildfire Victims Need Cash More Than Used Clothes**\
 `After natural disasters, relief organizations are overwhelmed by clothing donations. Aid groups in Southern California say money is more helpful.`\
 https://nytimes.com/2025/01/16/style/wildfire-donations-clothes-how-to-help.html
-
-**David Lynch, Maker of Florid and Unnerving Films, Dies at 78**\
-`A visionary, his films included “Eraserhead,” “Blue Velvet” and “Mulholland Drive,” considered his masterwork. He brought his skewed view to the small screen with “Twin Peaks.”`\
-https://nytimes.com/2025/01/16/movies/david-lynch-dead.html
 
