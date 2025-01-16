@@ -1,3 +1,19 @@
+**Reality TV Takes Washington (Again)**\
+`It once might have seemed beneath the dignity of the office for politicians to go at each other, but in today’s mercenary attention company, some aggressive table-flipping is essential.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/sean-duffy-reality-tv-nomination
+
+**How Do You Convince Consumers to Eat Plant-Based Meat?**\
+`The imitation meat industry is facing an identity crisis, and the challenge of convincing American consumers to make more planet-friendly choices.`\
+https://nytimes.com/2025/01/16/climate/plant-based-meat-consumer-choice.html
+
+**Bulls in a familiar place of mediocrity as they reach the NBA halfway point**\
+`After another embarrassing loss, Bulls fans are asking a familiar question at the midway point of the season: Will they commit to a rebuild?`\
+https://nytimes.com/athletic/6066764/2025/01/16/chicago-bulls-news-schedule-roster-record/
+
+**Cash App Ordered to Pay $255 Million in Penalties Over Fraud**\
+`The transfer-money app, owned by Jack Dorsey’s Block, racked up a hefty bill of fines and restitution for what federal regulators called “woefully incomplete” customer protections.`\
+https://nytimes.com/2025/01/16/business/cash-app-fraud-settlement.html
+
 **Patients Are Dying in Hospital Corridors, British Nurses Say**\
 `A damning report on overcrowded hospitals added fuel to a painful debate over the crises at the National Health Service.`\
 https://nytimes.com/2025/01/16/world/europe/british-nhs-report-nursing.html
@@ -11,7 +27,7 @@ https://nytimes.com/2025/01/16/climate/los-angeles-landslide-risk.html
 https://nytimes.com/2025/01/16/style/wildfire-donations-clothes-how-to-help.html
 
 **David Lynch, Maker of Florid and Unnerving Films, Dies at 78**\
-`A visionary, his films included “Eraserhead,” “Blue Velvet” and “Mulholland Drive,” which was considered his masterwork.`\
+`A visionary, his films included “Eraserhead,” “Blue Velvet” and “Mulholland Drive,” considered his masterwork. He brought his skewed view to the small screen with “Twin Peaks.”`\
 https://nytimes.com/2025/01/16/movies/david-lynch-dead.html
 
 **Anthony Richardson will be a Top 10 fantasy football QB in 2025 and more divisive opinions**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6066669/2025/01/16/fantasy-football-early-opinions-
 **Stephen Miller, Channeling Trump, Has Built More Power Than Ever**\
 `Stephen Miller was the architect of Donald J. Trump’s hard-line immigration agenda in his first term. Now he is back with fewer internal rivals and even more influence with the president.`\
 https://nytimes.com/2025/01/16/us/politics/stephen-miller-trump.html
-
-**Rangers fan survey: Fire Drury? Or Laviolette? Trades? Rebuild? Stay the course?**\
-`Here’s our midseason Rangers fan survey, which features the same questions asked of the NHL insiders earlier this week.`\
-https://nytimes.com/athletic/6067277/2025/01/16/rangers-fan-survey-drury-laviolette/
-
-**SpaceX’s 7th Starship Test Launch: What to Know**\
-`Elon Musk’s spaceflight company is continuing its work on the vehicle that could one day take people to the moon and eventually Mars.`\
-https://nytimes.com/2025/01/16/science/spacex-starship-test-launch-7.html
-
-**It could take another week, most likely more, for people to return home, officials say.**\
-`By Claire Moses`\
-https://nytimes.com/live/2025/01/16/us/la-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
-
-**The Windup: If you only read one Roki Sasaki story ...**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6067276/2025/01/16/roki-sasaki-tsunami-signing-deadline-the-windup/
 
