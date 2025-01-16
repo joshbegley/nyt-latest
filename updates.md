@@ -1,3 +1,11 @@
+**F.T.C. Sues Largest U.S. Apartment Landlord Over Hidden Fees**\
+`The antitrust and consumer protection agency accused Greystar Real Estate Partners of deceptive pricing, charging tenants millions of dollars in unadvertised fees.`\
+https://nytimes.com/2025/01/16/business/ftc-greystar-deceptive-pricing.html
+
+**Angry about a potential cease-fire in Gaza, far-right protesters block roads in Israel.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/angry-about-potential-cease-fire-in-gaza-far-right-protesters-block-roads-in-israel
+
 **What to expect from CFP leaders' meeting on format changes**\
 `The commissioners pledged that they would let the 12-team CFP's first year play out before discussing changes. Here's what's on tap next.`\
 https://nytimes.com/athletic/6067741/2025/01/16/college-football-playoff-2025-format-changes/
