@@ -1,6 +1,26 @@
+**Keon Ellis helped revitalize the Kings defense, but is he a lock to start?**\
+`Sacramento's season turned around when Ellis was put in the starting lineup. But can he hold on to the spot?`\
+https://nytimes.com/athletic/6065266/2025/01/16/keon-ellis-revitalize-kings-starter/
+
+**Here’s the latest on the L.A. fires.**\
+`By John Yoon`\
+https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/heres-the-latest-on-the-la-fires
+
+**Ohio State or Notre Dame: Which is the lesser of two evils for Michigan fans?**\
+`Of all the unholy alliances, Michigan fans rooting for Notre Dame is one that violates every cardinal rule of college football.`\
+https://nytimes.com/athletic/6064500/2025/01/16/ohio-state-notre-dame-michigan-fan-college-football-national-championship/
+
 **On TikTok, Users Thumb Their Noses at Looming Ban**\
 `Ahead of a Supreme Court ruling, they are mocking U.S. national security concerns about the Chinese-owned app.`\
 https://nytimes.com/2025/01/16/business/tiktok-ban.html
+
+**Falcons mock draft reaction: Would another defensive lineman make sense?**\
+`The Athletic's Dane Brugler projects Atlanta taking Texas A&M defensive lineman Shemar Stewart with the 15th pick in the first round.`\
+https://nytimes.com/athletic/6064058/2025/01/16/falcons-mock-draft-reaction-shemar-stewart/
+
+**Cowboys coach survey: Did Dallas make right decision? Deion, Ben Johnson top choices?**\
+`Now that the Cowboys have moved on from Mike McCarthy, several coaches stand out among fans to be Dallas' next head coach.`\
+https://nytimes.com/athletic/6065155/2025/01/16/cowboys-coach-survey-ben-johnson-deion-mccarthy/
 
 **MAGA Is Misreading Its Mandate**\
 `America’s political future belongs to the most competent, not the most ideological.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/16/technology/anduril-factory-columbus-ohio.html
 **A Euphoric Tech Industry Is Ready to Celebrate Trump and Itself**\
 `The elite of Silicon Valley are set to revel in their new clout during a long weekend of inaugural parties as President-elect Donald J. Trump is set to resume power.`\
 https://nytimes.com/2025/01/16/us/politics/trump-tech-inauguration-parties.html
-
-**Lee Zeldin, Trump’s Pick to Head E.P.A., Faces Senate Confirmation Hearing**\
-`Mr. Zeldin, a Trump loyalist with little experience in environmental policy, would be charged with dismantling climate rules and perhaps the agency itself.`\
-https://nytimes.com/2025/01/16/climate/lee-zeldin-epa-confirmation.html
-
-**Trump’s Treasury Pick Will Face Grilling on Taxes, Tariffs, Sanctions and More**\
-`Scott Bessent, President-elect Donald J. Trump’s choice to be Treasury secretary, will be in charge of steering the president’s economic agenda if confirmed by the Senate.`\
-https://nytimes.com/2025/01/16/us/politics/scott-bessent-treasury-hearing.html
-
-**How Can Bolsonaro Avoid Prison? Trump, Musk and Zuckerberg, He Says.**\
-`The former Brazilian president, squeezed by criminal investigations, looks to the United States to shift his nation’s politics — and maybe keep him a free man.`\
-https://nytimes.com/2025/01/16/world/americas/jair-bolsonaro-brazil-trump-us.html
-
-**Doug Burgum, Trump’s Choice for Interior, Aims for ‘Energy Dominance’**\
-`The former North Dakota governor is expected to face sharp questions about his ties to the oil and gas industry.`\
-https://nytimes.com/2025/01/16/climate/doug-burgum-interior-department-nominee.html
-
-**Bracing for Life after TikTok, Americans Join the Chinese Internet**\
-`Hundreds of thousands of so-called TikTok refugees are flocking to Xiaohongshu, a Chinese social media app also known as Red Note. Americans users say they feel welcome, but politically sensitive topics are off limits.`\
-https://nytimes.com/video/world/asia/100000009926430/tik-tok-red-note.html
 
