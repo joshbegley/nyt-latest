@@ -1,3 +1,19 @@
+**Blinken Insists Gaza Cease-Fire Deal Is on Track After Hecklers Disrupt News Conference**\
+`Two pro-Palestinian journalists were ejected from the news conference after accusing the secretary of state of enabling “genocide.” Blinken, despite reports of last-minute snags, said he was confident about the cease-fire deal for Gaza.`\
+https://nytimes.com/2025/01/16/world/middleeast/blinken-israel-hamas-gaza-ceasefire.html
+
+**How Do You Convince Consumers to Eat Plant-Based Meat?**\
+`The imitation meat industry is facing an identity crisis, and the challenge of convincing American consumers to make more planet-friendly choices.`\
+https://nytimes.com/2025/01/16/climate/plant-based-meat-consumer-choice.html
+
+**Bulls in a familiar place of mediocrity as they reach the NBA halfway point**\
+`After another embarrassing loss, Bulls fans are asking a familiar question at the midway point of the season: Will they commit to a rebuild?`\
+https://nytimes.com/athletic/6066764/2025/01/16/chicago-bulls-news-schedule-roster-record/
+
+**Cash App Ordered to Pay $255 Million in Penalties Over Fraud**\
+`The transfer-money app, owned by Jack Dorsey’s Block, racked up a hefty bill of fines and restitution for what federal regulators called “woefully incomplete” customer protections.`\
+https://nytimes.com/2025/01/16/business/cash-app-fraud-settlement.html
+
 **What’s Going On in This Picture? | Jan. 27, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/01/16/learning/whats-going-on-in-this-picture-jan-27-2025.html
