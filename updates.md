@@ -1,3 +1,11 @@
+**A Cease-Fire in Gaza**\
+`Israel and Hamas have finally agreed to a truce.`\
+https://nytimes.com/2025/01/16/briefing/israel-hamas-gaza-cease-fire.html
+
+**Would Blackhawks draft Matthew Schaefer — another defenseman — at No. 1?**\
+`The Blackhawks need more offensive firepower in their system. But is Schaefer, a defenseman, too good to pass up?`\
+https://nytimes.com/athletic/6064005/2025/01/16/blackhawks-no-1-pick-nhl-draft-matthew-schaefer/
+
 **Deeper than a French connection: Why two NBA players, 16 years apart, share 'the same story'**\
 `As a kid, Rayan Rupert attended Nic Batum's basketball camp. As they face off on an NBA court, Batum says he has "become like my brother."`\
 https://nytimes.com/athletic/6044404/2025/01/16/nicolas-batum-rayan-rupert-bond-clippers-blazers/
