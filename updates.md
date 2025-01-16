@@ -1,3 +1,7 @@
+**Will the NCAA expand March Madness? And who will be in charge of it?**\
+`The association needs a new governance structure to accommodate the more professionalized parts of the NCAA’s membership.`\
+https://nytimes.com/athletic/6065542/2025/01/15/ncaa-tournament-expansion-governance/
+
 **President Biden Is Bowing Out After One Term. He’s Not the First.**\
 `Other American presidents have faced the delicate challenge of bidding farewell with grace after serving only one term in the Oval Office.`\
 https://nytimes.com/2025/01/15/us/politics/biden-presidents-farewell-address.html
