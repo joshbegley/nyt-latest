@@ -1,4 +1,4 @@
-**For Firefighters, a ‘Roller Coaster’ Week on the Front Lines**\
+**For firefighters, a ‘roller coaster’ week on the front lines.**\
 `By Eli Tan`\
 https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/for-firefighters-a-roller-coaster-week-on-the-front-lines
 
