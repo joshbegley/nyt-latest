@@ -1,3 +1,7 @@
+**Barcelona 5 Real Betis 1 - Could Yamal be best in the world? Araujo set to stay and crazy scoring record**\
+`Barca are on a roll before a crucial part of the season and made light work of Betis to reach the Copa del Rey quarter-finals`\
+https://nytimes.com/athletic/6061778/2025/01/16/barcelona-5-real-betis-1-yamal-araujo/
+
 **Clippers' Kawhi Leonard dazzles in historic 59-point win vs. Nets**\
 `The points margin marked the worst loss in the 58-year history of the Nets.`\
 https://nytimes.com/athletic/6065858/2025/01/16/clippers-nets-blowout-kawhi-leonard/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/insider/from-a-bustling-kitchen-to-a-bustling-new
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/16/crosswords/spelling-bee-forum.html
-
-**Palace won without Trevoh Chalobah at Leicester - but his recall underlines the need for new faces**\
-`Oliver Glasner is doing well with an increasingly-thin squad - but now is the time to strengthen his hand`\
-https://nytimes.com/athletic/6055961/2025/01/16/crystal-palace-chalobah-recall-new-signings/
 
