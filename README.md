@@ -1,3 +1,19 @@
+**Jaden Philogene to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Jaden Philogene's move to Ipswich Town`\
+https://nytimes.com/athletic/6049966/2025/01/16/jaden-philogene-ipswich-transfer-rating/
+
+**Chiefs defense at full strength for the playoffs with the return of Jaylen Watson**\
+`Saturday’s divisional-round game is expected to be the first that includes all 18 of the unit’s starting and rotational players.`\
+https://nytimes.com/athletic/6065407/2025/01/16/chiefs-defense-playoffs-jaylen-watson/
+
+**Jimmy Butler? De’Aaron Fox? Who Rockets could be targeting at NBA trade deadline**\
+`Kelly Iko talks to John Hollinger about what makes sense for the Rockets to do at the trade deadline — if anything.`\
+https://nytimes.com/athletic/6063308/2025/01/16/rockets-nba-trade-deadline-jimmy-butler-deaaron-fox/
+
+**Marcus Freeman's championship-level Notre Dame staff has extensive Cincinnati roots**\
+`Freeman and nine other Notre Dame staff members formerly worked at Cincinnati.`\
+https://nytimes.com/athletic/6062099/2025/01/16/notre-dame-football-marcus-freeman-cincinnati/
+
 **What to Know About the Cease-Fire Deal, and Biden Warns the Nation**\
 `Plus, Drake sues his own music label.`\
 https://nytimes.com/2025/01/16/podcasts/gaza-ceasefire-what-to-know.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6065617/2025/01/16/john-kllngberg-leafs-oilers-star
 **Blue Jackets expect stretch-drive return for veterans Boone Jenner, Erik Gudbranson**\
 `GM Don Waddell said Jenner and Gudbranson will be "kind of like trade deadline acquisitions" when they return to Columbus' lineup.`\
 https://nytimes.com/athletic/6065247/2025/01/16/blue-jackets-erik-gudbranson-boone-jenner-injury/
-
-**Catching up with Jimmy Snuggerud: Becoming a Blues 'fan,' meeting Jim Montgomery and NHL plans**\
-`Jimmy Snuggerud, the Blues' 2022 first-round pick, has done exactly what he wanted to when he returned to the University of Minnesota.`\
-https://nytimes.com/athletic/6021878/2025/01/16/jimmy-snuggerud-blues-minnesota/
-
-**How do the Maple Leafs get more out of the slumping Max Domi?**\
-`Domi has just three goals this season after signing a four-year contract last summer. The Leafs need more.`\
-https://nytimes.com/athletic/6064852/2025/01/16/maple-leafs-max-domi-slump-berube/
-
-**Energy Dept. Offers Utilities $22 Billion to Reshape U.S. Power Grids**\
-`The loan guarantees are one of the final attempts by the outgoing Biden administration to encourage power companies to cut emissions while trying to keep rates down.`\
-https://nytimes.com/2025/01/16/climate/us-utilities-loan-energy.html
-
-**A Fragile Cease-Fire in Gaza**\
-`What we know about the long-sought deal, which was met with cautious hope by Israelis and Palestinians.`\
-https://nytimes.com/2025/01/16/podcasts/the-daily/16daily-cease-fire-gaza-israel.html
 
