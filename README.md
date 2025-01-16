@@ -1,40 +1,40 @@
-**Azerbaijan’s Leader, Emboldened, Picks a Rare Fight With Putin**\
-`Russia’s president is said to have blamed birds or a Ukrainian drone for a Dec. 25 crash of an Azerbaijani plane. Azerbaijan says Russian air defenses were at fault.`\
-https://nytimes.com/2025/01/16/world/europe/russia-putin-azerbaijan-plane-crash.html
+**What to Know About the Cease-Fire Deal, and Biden Warns the Nation**\
+`Plus, Drake sues his own music label.`\
+https://nytimes.com/2025/01/16/podcasts/gaza-ceasefire-what-to-know.html
 
-**NFL insider playoff predictions: Coaches, execs pick divisional round winners**\
-`Two games were called by unanimous decision. Another was close. But Bills-Ravens has no overwhelming favorite. “It's the game of the year."`\
-https://nytimes.com/athletic/6064887/2025/01/16/nfl-insider-playoff-predictions-divisional-round-ravens-bills-lions-eagles/
+**Brian Flores' coaching future has major implications for Vikings' defensive plans**\
+`Will he stay or will he go? Flores potentially getting a head-coaching job could change the trajectory of Minnesota's future on defense.`\
+https://nytimes.com/athletic/6064889/2025/01/16/brian-flores-vikings-defense-head-coach/
 
-**Kevin Garnett says Evan Mobley is 'the future' but the present looks bright, too**\
-`Mobley's comfort and ability from beyond the arc have risen. And so have the Cavs — to the top of the NBA standings.`\
-https://nytimes.com/athletic/6064722/2025/01/16/cavaliers-evan-mobley-kevin-garnett/
+**A specimen, the King, a blur: Bills buckle up for rematch with Derrick Henry and his fear factor**\
+`The Bills will be healthier on defense this time around, but Derrick Henry is still Derrick Henry.`\
+https://nytimes.com/athletic/6065336/2025/01/16/bills-ravens-defense-derrick-henry-fear-factor/
 
-**Watch: ‘When Progressive Ideals Become a Luxury’**\
-`How persuasive is the concept of luxury beliefs to explain many popular progressive ideas about drugs, marriage and crime?`\
-https://nytimes.com/2025/01/16/learning/watch-when-progressive-ideals-become-a-luxury.html
+**What should the Flyers do with Rasmus Ristolainen at the trade deadline?**\
+`Keep him or trade him? The Flyers must weigh their options with Ristolainen, whose play has improved.`\
+https://nytimes.com/athletic/6065007/2025/01/16/flyers-rasmus-ristolainen-nhl-trade-deadline/
 
-**The Painter Whose Canvases Have Hidden Messages**\
-`Plus: a mountain safari camp in South Africa, Japanese fruit and more recommendations from T Magazine.`\
-https://nytimes.com/2025/01/16/t-magazine/chris-martin-timothy-taylor.html
+**Johnston: What I'm hearing about John Klingberg's NHL return and who's interested in signing him**\
+`Klingberg is trying to resurrect his career after spending more than a year working his way back from double hip resurfacing surgery.`\
+https://nytimes.com/athletic/6065617/2025/01/16/john-kllngberg-leafs-oilers-stars-senators/
 
-**Judge John Hodgman on Condescending Kit Kat Labels**\
-`Can a candy bar’s instructions be too paternalistic?`\
-https://nytimes.com/2025/01/16/magazine/judge-john-hodgman-kit-kat-labels.html
+**Blue Jackets expect stretch-drive return for veterans Boone Jenner, Erik Gudbranson**\
+`GM Don Waddell said Jenner and Gudbranson will be "kind of like trade deadline acquisitions" when they return to Columbus' lineup.`\
+https://nytimes.com/athletic/6065247/2025/01/16/blue-jackets-erik-gudbranson-boone-jenner-injury/
 
-**Keon Ellis helped revitalize the Kings defense, but is he a lock to start?**\
-`Sacramento's season turned around when Ellis was put in the starting lineup. But can he hold on to the spot?`\
-https://nytimes.com/athletic/6065266/2025/01/16/keon-ellis-revitalize-kings-starter/
+**Catching up with Jimmy Snuggerud: Becoming a Blues 'fan,' meeting Jim Montgomery and NHL plans**\
+`Jimmy Snuggerud, the Blues' 2022 first-round pick, has done exactly what he wanted to when he returned to the University of Minnesota.`\
+https://nytimes.com/athletic/6021878/2025/01/16/jimmy-snuggerud-blues-minnesota/
 
-**Here’s the latest on the L.A. fires.**\
-`By John Yoon`\
-https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/heres-the-latest-on-the-la-fires
+**How do the Maple Leafs get more out of the slumping Max Domi?**\
+`Domi has just three goals this season after signing a four-year contract last summer. The Leafs need more.`\
+https://nytimes.com/athletic/6064852/2025/01/16/maple-leafs-max-domi-slump-berube/
 
-**Ohio State or Notre Dame: Which is the lesser of two evils for Michigan fans?**\
-`Of all the unholy alliances, Michigan fans rooting for Notre Dame is one that violates every cardinal rule of college football.`\
-https://nytimes.com/athletic/6064500/2025/01/16/ohio-state-notre-dame-michigan-fan-college-football-national-championship/
+**Energy Dept. Offers Utilities $22 Billion to Reshape U.S. Power Grids**\
+`The loan guarantees are one of the final attempts by the outgoing Biden administration to encourage power companies to cut emissions while trying to keep rates down.`\
+https://nytimes.com/2025/01/16/climate/us-utilities-loan-energy.html
 
-**On TikTok, Users Thumb Their Noses at Looming Ban**\
-`Ahead of a Supreme Court ruling, they are mocking U.S. national security concerns about the Chinese-owned app.`\
-https://nytimes.com/2025/01/16/business/tiktok-ban.html
+**A Fragile Cease-Fire in Gaza**\
+`What we know about the long-sought deal, which was met with cautious hope by Israelis and Palestinians.`\
+https://nytimes.com/2025/01/16/podcasts/the-daily/16daily-cease-fire-gaza-israel.html
 
