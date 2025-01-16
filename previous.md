@@ -1,3 +1,15 @@
+**Deadly strikes in Gaza continue despite the announcement of a cease-fire deal.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/deadly-strikes-in-gaza-continue-despite-the-announcement-of-a-cease-fire-deal
+
+**'Hard to compute': Sheldon Keefe on what really held the Leafs back**\
+`Sheldon Keefe on Leafs stars: 'To me, those guys in Toronto, they don’t get nearly enough credit for how hard they work.'`\
+https://nytimes.com/athletic/5982413/2025/01/16/sheldon-keefe-interview-leafs-devils/
+
+**'We are not giving in': Steph Curry, Steve Kerr push back against surrender narrative**\
+`"Anyone who thinks I’m OK being on an average basketball team is insane," Curry said after the Warriors beat the Timberwolves.`\
+https://nytimes.com/athletic/6065951/2025/01/16/steph-curry-warriors-timberwolves/
+
 **What's going on with Jalen Hurts and the Eagles' passing offense?**\
 `On the latest episode of the "Scoop City" podcast, a discussion of Philly's struggles through the air.`\
 https://nytimes.com/athletic/6063782/2025/01/16/jalen-hurts-philadelphia-eagles-passing-game-problems/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6066054/2025/01/16/los-angeles-kings-grades-nhl-202
 **Conan O’Brien to Receive Mark Twain Prize for American Humor**\
 `The comedian and former late-night talk show host will be given the Kennedy Center’s annual comedy honor at a ceremony in March.`\
 https://nytimes.com/2025/01/16/arts/television/conan-obrien-mark-twain-prize.html
-
-**Cancer’s New Face: Younger and Female**\
-`Although long considered a disease of aging, certain cancers are turning up more often in younger women, according to a new report.`\
-https://nytimes.com/2025/01/16/health/cancer-younger-women.html
-
-**Breast Cancer Rates Climb Among Younger Women**\
-`A new report points to a notable increase among U.S. women under 50. Experts point to a few likely causes.`\
-https://nytimes.com/2025/01/16/well/breast-cancer-young-women.html
-
-**Rashod Bateman knows how far he can still go while appreciating how far he's come**\
-`The 25-year-old Bateman has had a career year and is firmly entrenched as one of Lamar Jackson’s go-to targets. `\
-https://nytimes.com/athletic/6065852/2025/01/16/ravens-rashod-bateman-lamar-jackson/
 
