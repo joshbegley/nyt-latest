@@ -1,3 +1,11 @@
+**What to expect from Jarry's goalie replacement, Joel Blomqvist**\
+`Let's break down the tape of Blomqvist's AHL performance and project how it'll work at the NHL level. `\
+https://nytimes.com/athletic/6065037/2025/01/16/penguins-tristan-jarry-joel-blomqvist-replacement-nhl/
+
+**Man Is Arrested in Connection With Little Mountain Fire**\
+`The police in San Bernardino, Calif., said they had apprehended a man in connection with the small brush fire. The blaze’s progress had been stopped by fire crews, officials said.`\
+https://nytimes.com/2025/01/16/us/mountain-fire-arrest.html
+
 **Leafs place John Tavares on IR with lower-body injury: What are their options at centre?**\
 `With Tavares out for at least four games, a Maple Leafs team that was already light on centre depth will now see its options tested.`\
 https://nytimes.com/athletic/6066672/2025/01/16/john-tavares-injured-reserve-maple-leafs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/business/media/the-washington-post-new-mission.ht
 **Blue Jackets, Red Wings introduce NHL Stadium Series jerseys**\
 `The teams will play at Ohio Stadium in Columbus on March 1.`\
 https://nytimes.com/athletic/6065746/2025/01/16/nhl-blue-jackets-red-wings-stadium-series/
-
-**New York State Senator Quits D.N.C. Leadership Fight**\
-`James Skoufis endorsed Ken Martin, the Minnesota party chairman, as he ended his own outsider bid to lead Democrats.`\
-https://nytimes.com/2025/01/16/us/politics/democratic-national-committee-election.html
-
-**LIV Golf, Fox Sports agree to multiyear media rights deal**\
-`The agreement marks the first time the startup league will air on a major sports TV network in the U.S. since its inception in 2022.`\
-https://nytimes.com/athletic/6066481/2025/01/16/liv-golf-fox-sports-multiyear-deal/
 
