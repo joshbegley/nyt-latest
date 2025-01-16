@@ -1,3 +1,11 @@
+**It Could Take Weeks Before Displaced L.A. Residents Can Go Home**\
+`Workers need to assess damage, clear hazardous materials and ensure that neighborhoods are safe before people can return, officials have warned.`\
+https://nytimes.com/2025/01/15/us/los-angeles-fires-displaced-residents.html
+
+**TikTok C.E.O. Plans to Attend Trump Inauguration**\
+`Shou Chew will join tech moguls like Mark Zuckerberg and Elon Musk at President-elect Donald J. Trump’s inauguration as the fate of the app hangs in the balance.`\
+https://nytimes.com/2025/01/15/us/politics/tiktok-ceo-trump-inauguration.html
+
 **TikTok C.E.O. Plans to Attend Trump Inauguration**\
 `Shou Chew will join tech moguls like Jeff Bezos, Mark Zuckerberg and Elon Musk at President-elect Donald J. Trump’s inauguration as the fate of the app hangs in the balance.`\
 https://nytimes.com/2025/01/15/us/politics/tiktok-ceo-trump-inauguration.html

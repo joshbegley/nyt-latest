@@ -1,5 +1,9 @@
+**It Could Take Weeks Before Displaced L.A. Residents Can Go Home**\
+`Workers need to assess damage, clear hazardous materials and ensure that neighborhoods are safe before people can return, officials have warned.`\
+https://nytimes.com/2025/01/15/us/los-angeles-fires-displaced-residents.html
+
 **TikTok C.E.O. Plans to Attend Trump Inauguration**\
-`Shou Chew will join tech moguls like Jeff Bezos, Mark Zuckerberg and Elon Musk at President-elect Donald J. Trump’s inauguration as the fate of the app hangs in the balance.`\
+`Shou Chew will join tech moguls like Mark Zuckerberg and Elon Musk at President-elect Donald J. Trump’s inauguration as the fate of the app hangs in the balance.`\
 https://nytimes.com/2025/01/15/us/politics/tiktok-ceo-trump-inauguration.html
 
 **Canelo, a Dog With Scorched Paws, Is Among Many Animals Rescued in the Los Angeles Fires**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/crosswords/daily-puzzle-2025-01-16.html
 **With Spotlight on New Orleans, Louisiana Moves Homeless Out of Sight**\
 `With the Super Bowl and Mardi Gras coming, Gov. Jeff Landry is using the emergency order from the New Year’s attack on Bourbon Street to remove the homeless from downtown.`\
 https://nytimes.com/2025/01/15/us/new-orleans-homeless-super-bowl.html
-
-**Full Transcript of President Biden’s Farewell Address**\
-`The president delivered the 17-minute speech from the Oval Office in the White House.`\
-https://nytimes.com/2025/01/15/us/politics/full-transcript-of-president-bidens-farewell-address.html
 
