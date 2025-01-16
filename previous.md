@@ -1,3 +1,15 @@
+**All the Usual Backstabbing and Big Commissions. This Time in Manhattan.**\
+`“Selling the City,” the newest offshoot of the “Selling Sunset” franchise, features a team of real estate professionals dedicated to breaking records and to building empires.`\
+https://nytimes.com/2025/01/16/realestate/selling-the-city-eleonora-jade-steve.html
+
+**Shirah Neiman, Pathbreaking New York City Prosecutor, Dies at 81**\
+`In 1970 she broke an unwritten rule against women lawyers in the Southern District’s criminal division. She went on to mentor a long list of prominent lawyers.`\
+https://nytimes.com/2025/01/16/nyregion/shirah-neiman-dead.html
+
+**DeSantis Picks Florida’s Attorney General to Replace Rubio**\
+`Ashley Moody, a Republican, would take the seat of Senator Marco Rubio once he is confirmed as President-elect Donald J. Trump’s secretary of state.`\
+https://nytimes.com/2025/01/16/us/politics/desantis-picks-floridas-attorney-general-to-replace-rubio.html
+
 **Sudan’s Military Has Used Chemical Weapons Twice, U.S. Officials Say**\
 `The determination comes as the United States prepares to announce sanctions against the Sudanese military chief, saying there is strong evidence of atrocities in the country.`\
 https://nytimes.com/2025/01/16/world/africa/sudan-chemical-weapons-sanctions.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5969463/2025/01/16/bob-uecker-mlb-brewers-dies/
 **American qualifier Learner Tien beats Daniil Medvedev in stunning Australian Open upset**\
 `MELBOURNE, Australia — Learner Tien, a 19-year-old qualifier from California, notched the biggest upset of the 2025 Australian Open to date by beating 2024 finalist and No.`\
 https://nytimes.com/athletic/6066464/2025/01/16/learner-tien-australian-open-daniil-medvedev-result-analysis/
-
-**Resist or Coexist? Democrats Rethink Their Approach to Trump and G.O.P.**\
-`Elected officials across the party are engaging in a balancing act, signaling they have heard voters’ demands for change while grappling with when to oppose Donald Trump.`\
-https://nytimes.com/2025/01/16/us/politics/democrats-resist-trump-administration.html
-
-**Indiana Fever to build $78 million training facility in Indianapolis**\
-`The center will have two regulation size practice courts, a strength and conditioning center, full-service kitchen and a spa center.`\
-https://nytimes.com/athletic/6066747/2025/01/16/wnba-fever-new-training-center/
-
-**DeSantis Picks Florida’s Attorney General to Replace Rubio**\
-`Ashley Moody, a Republican, would take the seat of Senator Marco Rubio once he is confirmed as President-elect Donald J. Trump’s secretary of state.`\
-https://nytimes.com/2025/01/16/us/politics/desantis-picks-floridas-attorney-general-to-replace-rubio.html
 

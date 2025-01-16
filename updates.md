@@ -1,3 +1,11 @@
+**All the Usual Backstabbing and Big Commissions. This Time in Manhattan.**\
+`“Selling the City,” the newest offshoot of the “Selling Sunset” franchise, features a team of real estate professionals dedicated to breaking records and to building empires.`\
+https://nytimes.com/2025/01/16/realestate/selling-the-city-eleonora-jade-steve.html
+
+**Shirah Neiman, Pathbreaking New York City Prosecutor, Dies at 81**\
+`In 1970 she broke an unwritten rule against women lawyers in the Southern District’s criminal division. She went on to mentor a long list of prominent lawyers.`\
+https://nytimes.com/2025/01/16/nyregion/shirah-neiman-dead.html
+
 **Sudan’s Military Has Used Chemical Weapons Twice, U.S. Officials Say**\
 `The determination comes as the United States prepares to announce sanctions against the Sudanese military chief, saying there is strong evidence of atrocities in the country.`\
 https://nytimes.com/2025/01/16/world/africa/sudan-chemical-weapons-sanctions.html
