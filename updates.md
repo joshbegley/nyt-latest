@@ -1,3 +1,7 @@
+**Tommy Brown, a Teenage Talent for the Brooklyn Dodgers, Dies at 97**\
+`He was 16 when he made his debut as a shortstop in an Ebbets Field doubleheader, becoming the youngest position player in modern major-league history.`\
+https://nytimes.com/2025/01/16/sports/baseball/tommy-brown-dead.html
+
 **Johnson Installs Crawford on Intelligence Panel, Pulling It Closer to Trump**\
 `The speaker replaced a Republican who had criticized the president-elect and broken with him on key issues, and who had drawn the ire and suspicion of those close to the president-elect.`\
 https://nytimes.com/2025/01/16/us/politics/rick-crawford-house-intelligence.html

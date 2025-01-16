@@ -1,3 +1,7 @@
+**Tommy Brown, a Teenage Talent for the Brooklyn Dodgers, Dies at 97**\
+`He was 16 when he made his debut as a shortstop in an Ebbets Field doubleheader, becoming the youngest position player in modern major-league history.`\
+https://nytimes.com/2025/01/16/sports/baseball/tommy-brown-dead.html
+
 **Johnson Installs Crawford on Intelligence Panel, Pulling It Closer to Trump**\
 `The speaker replaced a Republican who had criticized the president-elect and broken with him on key issues, and who had drawn the ire and suspicion of those close to the president-elect.`\
 https://nytimes.com/2025/01/16/us/politics/rick-crawford-house-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/science/meteorite-debris-security-camera-canada.h
 **Trump Picks a Jet-Setting Pal of Elon Musk to Go Get Greenland**\
 `Negotiations over an 836,000-square-mile island may fall to a close friend of Elon Musk with experience in deal-making. Just not that kind of deal-making.`\
 https://nytimes.com/2025/01/16/us/politics/elon-musk-donald-trump-greenland.html
-
-**Banker, Investor, Prime Minister? Mark Carney Bids to Lead Canada.**\
-`The former governor of the Canadian and British central banks announced he was running to become head of the Liberal Party and prime minister.`\
-https://nytimes.com/2025/01/16/world/canada/mark-carney-liberal-party-leader-campaign.html
 
