@@ -1,3 +1,7 @@
+**‘Stuck on an Island,’ Some Residents Insist on Staying in the Fire Zone**\
+`In fire-scarred Altadena, dozens of people are still living in their homes and surviving without electricity or clean tap water.`\
+https://nytimes.com/2025/01/16/us/eaton-fire-altadena-residents-survivors.html
+
 **Justin Baldoni Sues Blake Lively and Ryan Reynolds for Defamation**\
 `The lawsuit is the latest legal action in a feud tied to the 2024 film “It Ends With Us,” which starred Ms. Lively and Mr. Baldoni, who also directed the film.`\
 https://nytimes.com/2025/01/16/business/media/justin-baldoni-sues-blake-lively-ryan-reynolds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/us/doge-trump-watchdogs.html
 **Amorim speaks with Ratcliffe after Man United defeat Southampton**\
 `Ruben Amorim spoke with Sir Jim Ratcliffe following Manchester United&#8217;s 3-1 victory over Southampton on Thursday night.`\
 https://nytimes.com/athletic/6068183/2025/01/16/ruben-amorim-sir-jim-ratcliffe-manchester-united/
-
-**David Lynch: A Life in Pictures**\
-`The filmmaker possessed a singular vision — and a knack for finding collaborators who could convey it.`\
-https://nytimes.com/2025/01/16/movies/david-lynch-life-photos.html
 
