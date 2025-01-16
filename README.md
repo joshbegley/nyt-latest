@@ -1,3 +1,7 @@
+**Timberwolves are out of excuses after another loss to Warriors: 'We are terrible'**\
+`The Warriors were up 34-10 late in the first quarter, a mind-boggling combination of Minnesota ineptitude and Golden State desperation.`\
+https://nytimes.com/athletic/6065653/2025/01/16/timberwolves-excuses-loss-warriors/
+
 **California Issues Order to Ease Housing Crisis Set Off by Fires**\
 `An executive order from Gov. Gavin Newsom cleared the way for more temporary housing and prohibited price gouging at rental properties to aid thousands of displaced residents.`\
 https://nytimes.com/2025/01/16/us/california-housing-order-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063782/2025/01/16/jalen-hurts-philadelphia-eagles-
 **Saif Ali Khan, Famed Bollywood Actor, Is Stabbed at Home in Mumbai**\
 `The police said Mr. Khan was recovering in the hospital after an intruder attacked him at his house in an upscale neighborhood.`\
 https://nytimes.com/2025/01/16/world/asia/saif-ali-khan-stabbed-mumbai.html
-
-**Temperatures Expected to Plunge Across the U.S. as Freezing Cold Drifts In**\
-`Arctic air will dip into much of the United States this weekend, with temperatures reaching some of the lowest of the year.`\
-https://nytimes.com/2025/01/16/weather/weather-us-cold-forecast.html
 
