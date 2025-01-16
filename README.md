@@ -1,3 +1,15 @@
+**Tacos, Water and ‘Homies’: A Gas Station Becomes a Uniquely L.A. Relief Site**\
+`Out of desperation and a need for social bonding, volunteers have banded together to help Altadena residents.`\
+https://nytimes.com/2025/01/15/us/tacos-water-and-homies-a-gas-station-becomes-a-uniquely-la-relief-site.html
+
+**The L.A. fires present new challenges for those who are already homeless.**\
+`By Jesus Jiménez and Vik Jolly`\
+https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/the-la-fires-present-new-challenges-for-those-who-are-already-homeless
+
+**Letters Put in Boxes**\
+`Rebecca Goldstein and Adam Wagner want us to look both ways.`\
+https://nytimes.com/2025/01/15/crosswords/daily-puzzle-2025-01-16.html
+
 **With Spotlight on New Orleans, Louisiana Moves Homeless Out of Sight**\
 `With the Super Bowl and Mardi Gras coming, Gov. Jeff Landry is using the emergency order from the New Year’s attack on Bourbon Street to remove the homeless from downtown.`\
 https://nytimes.com/2025/01/15/us/new-orleans-homeless-super-bowl.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/15/us/los-angeles-wildfires-california/for-fire
 **President Biden Is Bowing Out After One Term. He’s Not the First.**\
 `Other American presidents have faced the delicate challenge of bidding farewell with grace after serving only one term in the Oval Office.`\
 https://nytimes.com/2025/01/15/us/politics/biden-presidents-farewell-address.html
-
-**Defending Justin Herbert and more takeaways from Chargers' Jim Harbaugh, Joe Hortiz**\
-`Harbaugh on Herbert: "We did him a disservice and didn't put him in the positions to be successful enough."`\
-https://nytimes.com/athletic/6065490/2025/01/15/chargers-justin-herbert-jim-harbaugh-joe-hortiz/
-
-**The Los Angeles Fires Burned Livelihoods, Too**\
-`For many service workers, a wealthy Los Angeles neighborhood represented an economic lifeline that the fires have now severed.`\
-https://nytimes.com/2025/01/15/us/fires-domestic-workers-day-laborers.html
-
-**Johnson Ousts Turner as Intelligence Chairman, Bowing to Trump**\
-`Representative Michael R. Turner, Republican of Ohio, had at times been critical of the president-elect. He told people that he was axed after an edict from Mar-a-Lago.`\
-https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
 

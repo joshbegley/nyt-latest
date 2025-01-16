@@ -1,3 +1,7 @@
+**Johnson Ousts Turner as Intelligence Chairman, Bowing to Trump**\
+`Representative Michael R. Turner, Republican of Ohio, had at times been critical of the president-elect. He told people that he was axed after an edict from Mar-a-Lago.`\
+https://nytimes.com/2025/01/15/us/politics/mike-turner-house-intelligence.html
+
 **Letters Put in Boxes**\
 `Rebecca Goldstein and Adam Wagner want us to look both ways.`\
 https://nytimes.com/2025/01/15/crosswords/daily-puzzle-2025-01-16.html
