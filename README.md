@@ -1,3 +1,7 @@
+**Meatpacking Companies to Pay $8 Million for U.S. Child Labor Violations**\
+`Perdue Farms and JBS have settled with the Labor Department after relying on migrant children to do dangerous work in their slaughterhouses. Most of the money will be used to help the children.`\
+https://nytimes.com/2025/01/16/us/perdue-jbs-slaughterhouses-child-labor.html
+
 **Family, friends and fans pay tribute to Bob Uecker, 'the light of the Brewers'**\
 `"Mr. Baseball," the Milwaukee Brewers’ longtime radio announcer, died Thursday at age 90.`\
 https://nytimes.com/athletic/6067417/2025/01/16/bob-uecker-death-mlb-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066764/2025/01/16/chicago-bulls-news-schedule-rost
 **Cash App Ordered to Pay $255 Million in Penalties Over Fraud**\
 `The transfer-money app, owned by Jack Dorsey’s Block, racked up a hefty bill of fines and restitution for what federal regulators called “woefully incomplete” customer protections.`\
 https://nytimes.com/2025/01/16/business/cash-app-fraud-settlement.html
-
-**Patients Are Dying in Hospital Corridors, British Nurses Say**\
-`A damning report on overcrowded hospitals added fuel to a painful debate over the crises at the National Health Service.`\
-https://nytimes.com/2025/01/16/world/europe/british-nhs-report-nursing.html
 
