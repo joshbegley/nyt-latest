@@ -1,3 +1,7 @@
+**Here’s what New Glenn is carrying to space.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/01/16/science/blue-origin-new-glenn-launch/heres-what-new-glenn-is-carrying-to-space
+
 **Nine key numbers behind Newcastle's record-equalling nine-game winning run**\
 `After an inconsistent start to the season, this run has Eddie Howe's side wondering just what can be achieved this year`\
 https://nytimes.com/athletic/6063489/2025/01/16/newcastle-wolves-nine-game-winning-run/
