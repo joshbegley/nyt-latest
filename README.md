@@ -10,7 +10,7 @@ https://nytimes.com/2025/01/15/us/politics/biden-legacy-progressive.html
 `Pam Bondi, President-elect Donald J. Trump’s pick for attorney general, occasionally clashed with Democrats during a confirmation hearing. She dodged questions about election denialism, the potential prosecution of Mr. Trump’s political enemies and his overall influence on the department’s actions.`\
 https://nytimes.com/video/us/politics/100000009927803/bondi-confirmation-hearing.html
 
-**United by Disaster, L.A. Mourns,and Hopes, Together**\
+**United by Disaster, L.A. Mourns, and Hopes, Together**\
 `More than a week after the wildfires ignited, the hazy numbness described by many looks a lot like grieving.`\
 https://nytimes.com/2025/01/15/us/politics/la-wildfires-feeling.html
 
