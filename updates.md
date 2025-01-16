@@ -1,3 +1,7 @@
+**Wild felt they deserved better in loss to Oilers amid Marcus Johansson injury: 3 takeaways**\
+`The Wild held two separate leads before falling to Connor McDavid and the Oilers, losing their forward along the way.`\
+https://nytimes.com/athletic/6065159/2025/01/16/wild-mcdavid-johansson-injury-oilers/
+
 **Wild felt they deserved better in loss to Oilers amid Johansson injury: 3 takeaways**\
 `The Wild held two separate leads before falling to Connor McDavid and the Oilers, losing Marcus Johansson along the way.`\
 https://nytimes.com/athletic/6065159/2025/01/16/wild-mcdavid-johansson-injury-oilers/
