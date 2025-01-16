@@ -1,3 +1,11 @@
+**House Passes Bill to Deport Immigrants Convicted of Violence Against Women**\
+`Scores of Democrats joined Republicans in approving the measure, even though existing law already allows immigrants with contested legal status who are convicted of sex crimes to be deported.`\
+https://nytimes.com/2025/01/16/us/house-bill-deport-immigrants.html
+
+**French Pay Respects to Far-Right Firebrand as His Party Moves to Center**\
+`The memorial for Jean-Marie Le Pen, who was known for his racist and antisemitic remarks, comes as the National Rally has become the driving force in French politics.`\
+https://nytimes.com/2025/01/16/world/europe/france-politics-lepen-farright-memorial.html
+
 **Martin Truex Jr. enters Daytona 500, teams up with Tricon Garage**\
 `Truex must either post a fast speed in qualifying or secure the transfer position in his qualifying race to claim a spot in Daytona.`\
 https://nytimes.com/athletic/6066901/2025/01/16/martin-truex-jr-daytona-500-entry/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6066247/2025/01/16/police-havertz-abuse/
 **This Mindfulness Book Actually Helped Soothe My Anxious Mind**\
 `The Thich Nhat Hanh classic is celebrating its 50th year in circulation. It also taught me to be OK with life’s uncertainties.`\
 https://nytimes.com/2025/01/16/well/mind/thich-nhat-hanh-mindfulness-book.html
-
-**The Bounce: About the NBA's greatest dunk that never counted. Plus, LeBron James' Michael Jordan story**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6066415/2025/01/16/ja-morant-victor-wembanyama-lebron-james-michael-jordan-nba-the-bounce/
-
-**A First-Day Trump Order: A Federal Stockpile of Bitcoin?**\
-`The cryptocurrency industry has pushed President-elect Donald J. Trump to establish one, creating real political momentum behind the plan.`\
-https://nytimes.com/2025/01/16/technology/trump-bitcoin-stockpile.html
 

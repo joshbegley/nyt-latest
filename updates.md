@@ -1,3 +1,11 @@
+**House Passes Bill to Deport Immigrants Convicted of Violence Against Women**\
+`Scores of Democrats joined Republicans in approving the measure, even though existing law already allows immigrants with contested legal status who are convicted of sex crimes to be deported.`\
+https://nytimes.com/2025/01/16/us/house-bill-deport-immigrants.html
+
+**French Pay Respects to Far-Right Firebrand as His Party Moves to Center**\
+`The memorial for Jean-Marie Le Pen, who was known for his racist and antisemitic remarks, comes as the National Rally has become the driving force in French politics.`\
+https://nytimes.com/2025/01/16/world/europe/france-politics-lepen-farright-memorial.html
+
 **Martin Truex Jr. enters Daytona 500, teams up with Tricon Garage**\
 `Truex must either post a fast speed in qualifying or secure the transfer position in his qualifying race to claim a spot in Daytona.`\
 https://nytimes.com/athletic/6066901/2025/01/16/martin-truex-jr-daytona-500-entry/
