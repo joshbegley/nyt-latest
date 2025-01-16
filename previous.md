@@ -1,3 +1,7 @@
+**Israel and Hamas Agree to Gaza Cease-Fire and Hostage Deal**\
+`The Israeli cabinet still has to ratify the deal, and some details remained unresolved.`\
+https://nytimes.com/video/world/middleeast/100000009929542/israel-hamas-cease-fire-gaza.html
+
 **Marco Rubio Faces Senate Committee Hearing**\
 `Senator Marco Rubio received a relatively friendly welcome from both sides at his confirmation hearing for secretary of state.`\
 https://nytimes.com/video/us/politics/100000009929169/marco-rubio-committee-confirmation-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009927803/bondi-confirmation-hearing
 **United by Disaster, L.A. Mourns, and Hopes, Together**\
 `More than a week after the wildfires ignited, the hazy numbness described by many looks a lot like grieving.`\
 https://nytimes.com/2025/01/15/us/politics/la-wildfires-feeling.html
-
-**Howard Buten, Autism Therapist, Novelist and Clown, Is Dead at 74**\
-`By day, he helped run an autism center he opened in a suburb of Paris. In the evening, he delighted audiences as a clown named Buffo. In between, he wrote novels.`\
-https://nytimes.com/2025/01/15/arts/howard-buten-dead.html
 
