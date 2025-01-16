@@ -1,3 +1,11 @@
+**Eric Adams Heads to Mar-a-Lago to Meet With Trump**\
+`The New York mayor, who is under federal indictment, has spoken warmly about President-elect Donald J. Trump in recent weeks and has said he is open to receiving a pardon from him.`\
+https://nytimes.com/2025/01/16/nyregion/eric-adams-trump-mar-a-lago.html
+
+**Stick-Wielding Man Kills 2 Homeless People in Miami and Injures 2 Others**\
+`A suspect has been arrested as the police investigate the motive for what they called an unprovoked attack.`\
+https://nytimes.com/2025/01/16/us/miami-arrest-homeless-deaths.html
+
 **Two Watchdogs Were Rebuffed From Joining Trump’s Cost-Cutting Effort**\
 `“We have no room in our administration for Democrats,” a transition spokeswoman replied after good-government activists tried to join the president-elect’s new efficiency department.`\
 https://nytimes.com/2025/01/16/us/doge-trump-watchdogs.html
