@@ -8,7 +8,7 @@ https://nytimes.com/2025/01/16/science/spacex-starship-test-launch-7.html
 
 **It could take another week, most likely more, for people to return home, officials say.**\
 `By Claire Moses`\
-https://nytimes.com/live/2025/01/16/us/los-angeles-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
+https://nytimes.com/live/2025/01/16/us/la-wildfires-california/it-could-take-another-week-most-likely-more-for-people-to-return-home-officials-say
 
 **The Windup: If you only read one Roki Sasaki story ...**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
