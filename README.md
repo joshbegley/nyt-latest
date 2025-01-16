@@ -1,3 +1,11 @@
+**‘Honestly, I feel numb.’ Gazans react to cease-fire deal.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2025/01/16/world/israel-hamas-gaza-cease-fire/honestly-i-feel-numb-gazans-react-to-cease-fire-deal
+
+**Arsenal may be the best out-of-possession team in the world**\
+`Arsenal's title bid relies on them maintaining their performance without the ball while finding a more clinical edge when they have it`\
+https://nytimes.com/athletic/6065979/2025/01/16/arsenal-high-press-tottenham-hotspur/
+
 **Emma Raducanu and Andy Murray make up, Joao Fonseca learns on the court: Australian Open takeaways**\
 `The Wimbledon saga is over for good as Emma Raducanu moves into the Australian Open third round`\
 https://nytimes.com/athletic/6065953/2025/01/16/australian-open-recap-emma-raducanu-andy-murray-joao-fonseca/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/weather/weather-us-cold-forecast.html
 **49ers mock draft reaction: Will tackle Armand Membou measure up to team’s standard?**\
 `The 49ers have to start thinking about a replacement for 36-year-old Trent Williams, who hasn't played a full season since 2013.`\
 https://nytimes.com/athletic/6064836/2025/01/16/49ers-mock-draft-reaction-armand-membou/
-
-**Raiders mock draft reaction: Shedeur Sanders still a possibility at No. 6**\
-`Raiders fans feared they dropped out of range for a quarterback when they moved down to the No. 6 pick, but maybe not? `\
-https://nytimes.com/athletic/6065052/2025/01/16/shedeur-sanders-raiders-mock-draft-reaction/
-
-**Kings midseason report card: Top marks for Kuemper, Foegele, Gavrikov**\
-`The Kings were the last NHL team to reach the midpoint of their season. Let's grade every player's contributions so far.`\
-https://nytimes.com/athletic/6066054/2025/01/16/los-angeles-kings-grades-nhl-2025/
 
