@@ -1,3 +1,15 @@
+**Wild place Kirill Kaprizov on LTIR, call up 2 forwards: What it means**\
+`The move was necessary to make the call-ups needed to have a full roster. It's retroactive, so Kaprizov can return whenever he's ready.`\
+https://nytimes.com/athletic/6067940/2025/01/16/wild-kirill-kaprizov-ltir/
+
+**Johannes Spors to join Southampton as technical director**\
+`Johannes Spors will become Southampton&#8217;s new technical director and support Sport Republic on football matters, subject to being granted a work permit.`\
+https://nytimes.com/athletic/6068089/2025/01/16/southampton-board-johannes-spors-director/
+
+**State Farm offers homeowners in fire areas a chance to renew insurance policies.**\
+`By Jack Healy`\
+https://nytimes.com/2025/01/16/us/state-farm-insurance-renewals-la-fires.html
+
 **Wendy Williams Breaks Silence on Guardianship: ‘I Feel Like I am in Prison’**\
 `The former daytime host, who has been diagnosed with dementia, said in an interview on “The Breakfast Club” that she was “not cognitively impaired” and spoke about her life in a care facility.`\
 https://nytimes.com/2025/01/16/arts/wendy-williams-guardianship.html
