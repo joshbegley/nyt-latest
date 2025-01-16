@@ -1,3 +1,7 @@
+**TikTok C.E.O. Plans to Attend Trump Inauguration**\
+`Shou Chew will join tech moguls like Jeff Bezos, Mark Zuckerberg and Elon Musk at President-elect Donald J. Trump’s inauguration as the fate of the app hangs in the balance.`\
+https://nytimes.com/2025/01/15/us/politics/tiktok-ceo-trump-inauguration.html
+
 **Canelo, a Dog With Scorched Paws, Is Among Many Animals Rescued in the Los Angeles Fires**\
 `Over 150 stray animals from the Eaton fire in Altadena are waiting to be reconnected with their owners at Pasadena Humane.`\
 https://nytimes.com/2025/01/15/us/la-fires-animals-pets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/15/us/new-orleans-homeless-super-bowl.html
 **Full Transcript of President Biden’s Farewell Address**\
 `The president delivered the 17-minute speech from the Oval Office in the White House.`\
 https://nytimes.com/2025/01/15/us/politics/full-transcript-of-president-bidens-farewell-address.html
-
-**Corrections: Jan. 16, 2025**\
-`Corrections that appeared in print on Thursday, Jan. 16, 2025.`\
-https://nytimes.com/2025/01/15/pageoneplus/corrections-jan-16-2025.html
 
