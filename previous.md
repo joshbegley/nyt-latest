@@ -1,6 +1,6 @@
 **Two Watchdogs Were Rebuffed From Joining Trump’s Cost-Cutting Effort**\
 `“We have no room in our administration for Democrats,” a transition spokeswoman replied after good-government activists tried to join the president-elect’s new efficiency department.`\
-https://nytimes.com/2025/01/16/us/two-watchdogs-were-rebuffed-from-joining-trumps-cost-cutting-effort.html
+https://nytimes.com/2025/01/16/us/doge-trump-watchdogs.html
 
 **Amorim speaks with Ratcliffe after Man United defeat Southampton**\
 `Ruben Amorim spoke with Sir Jim Ratcliffe following Manchester United&#8217;s 3-1 victory over Southampton on Thursday night.`\
