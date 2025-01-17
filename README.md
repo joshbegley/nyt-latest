@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6053790/2025/01/17/notre-dame-ohio-state-picks-odds
 
 **Influencers React to a World Without TikTok**\
 `Grief, frustration and tears followed the Supreme Court’s decision on Friday.`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/tiktok-ban-influencer-reactions
+https://nytimes.com/2025/01/17/style/tiktok-ban-influencer-reactions.html
 
 **From the Renegade to the Supreme Court: A Timeline of TikTok’s Rise and Fall**\
 `What started as “the dance app” spawned countless memes, launched lucrative careers and shaped entire industries. Here’s how it got here.`\
