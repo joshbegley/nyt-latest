@@ -1,3 +1,7 @@
+**The Movies That Fashion Designers Watch Again and Again**\
+`Nine designers discuss the films that continue to inform their aesthetics, from “In the Mood for Love” to “The Exorcist.”`\
+https://nytimes.com/2025/01/17/t-magazine/fashion-movies-michael-kors-maxmilian-davis.html
+
 **What would a TikTok ban actually look like?**\
 `By Sapna Maheshwari`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/what-would-a-tiktok-ban-actually-look-like
