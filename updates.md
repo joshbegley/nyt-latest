@@ -1,3 +1,7 @@
+**Pam Shriver says 11 Grand Slam trophies stolen during L.A. fire evacuation**\
+`Shriver still has possession of her five Wimbledon doubles trophies.`\
+https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/
+
 **Will Liverpool win this season's title - and, if so, when? Our experts' views**\
 `A group of our writers on whether the 2024-25 crown is destined for Anfield and when the pivotal date in this title race could be`\
 https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-when/
