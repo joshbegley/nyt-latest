@@ -1,5 +1,9 @@
 **Naomi Osaka out of Australian Open after injury forces retirement against Belinda Bencic**\
 `MELBOURNE, Australia — Naomi Osaka is out of the Australian Open after the abdominal injury that forced her out of the ASB Classic final in Auckland, New Zealand recurred during her third-round match against Belinda Bencic.`\
+https://nytimes.com/athletic/6068977/2025/01/17/naomi-osaka-australian-open-injury/
+
+**Naomi Osaka out of Australian Open after injury forces retirement against Belinda Bencic**\
+`MELBOURNE, Australia — Naomi Osaka is out of the Australian Open after the abdominal injury that forced her out of the ASB Classic final in Auckland, New Zealand recurred during her third-round match against Belinda Bencic.`\
 https://nytimes.com/athletic/6068977/2025/01/17/naomi-osaka-retires-from-australian-open-third-round-with-recurrence-of-abdominal-injury/
 
 **Oregon State topples No. 16 Gonzaga, 97-89, in OT**\
