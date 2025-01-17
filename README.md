@@ -1,3 +1,11 @@
+**Quarter Back?**\
+`Willa Angel Chen Miller steps out on her own.`\
+https://nytimes.com/2025/01/16/crosswords/daily-puzzle-2025-01-17.html
+
+**Nathalie Dupree, ‘Queen of Southern Cooking,’ Dies at 85**\
+`As a cookbook author, TV personality and mentor, she sought to burst the chicken-fried stereotype of the South. Sometimes her life was as messy as her kitchen.`\
+https://nytimes.com/2025/01/16/dining/nathalie-dupree-dead.html
+
 **One stretch of the Malibu coast has become a buzzing base for firefighters.**\
 `By Emily Baumgaertner`\
 https://nytimes.com/live/2025/01/16/us/la-wildfires-california/one-stretch-of-the-malibu-coast-has-become-a-buzzing-base-for-firefighters
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6068200/2025/01/16/bob-uecker-milwaukee-brewers-tri
 **DOE memo says NIL payments must be proportionate between male, female athletes**\
 `A new administration could rescind the OCR’s guidance or it could be challenged in court.`\
 https://nytimes.com/athletic/6068325/2025/01/16/department-of-education-title-ix-nil-memo/
-
-**In His Dark, Disturbing Visions, David Lynch Showed Us Who We Are**\
-`The director himself came off as almost performatively normal. Masterpieces like “Eraserhead” and “Mulholland Drive” said otherwise.`\
-https://nytimes.com/2025/01/16/movies/david-lynch-eraserhead-mulholland-drive.html
-
-**12 Cryptic Titles From David Lynch and Where You Can Stream Them**\
-`Films like “Blue Velvet” and “Mulholland Drive” aren’t always easy to explain, but they live on in your mind and burrow under your skin.`\
-https://nytimes.com/2025/01/16/movies/david-lynch-films-streaming.html
 
