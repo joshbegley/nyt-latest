@@ -1,3 +1,7 @@
+**Shrewsbury 2-1 Wrexham: New striker needed as major opportunity spurned**\
+`Wrexham blew the chance to go top of League One - next up, Birmingham City`\
+https://nytimes.com/athletic/6049270/2025/01/17/shrewsbury-wrexham-league-one/
+
 **NASL v MLS trial promises key insight into U.S. soccer, with $500m at stake**\
 `American soccer eagerly awaits the findings of the heavyweight court battle, which includes conspiracy charges and famous names`\
 https://nytimes.com/athletic/6068165/2025/01/17/nasl-mls-trial/
