@@ -1,3 +1,7 @@
+**12 Cryptic Titles From David Lynch and Where You Can Stream Them**\
+`Films like “Blue Velvet” and “Mulholland Drive” aren’t always easy to explain, but they live on in your mind and burrow under your skin.`\
+https://nytimes.com/2025/01/16/movies/david-lynch-films-streaming.html
+
 **‘Stuck on an Island,’ Some Residents Insist on Staying in the Fire Zone**\
 `In fire-scarred Altadena, dozens of people are still living in their homes and surviving without electricity or clean tap water.`\
 https://nytimes.com/2025/01/16/us/eaton-fire-altadena-residents-survivors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/us/miami-arrest-homeless-deaths.html
 **Two Watchdogs Were Rebuffed From Joining Trump’s Cost-Cutting Effort**\
 `“We have no room in our administration for Democrats,” a transition spokeswoman replied after good-government activists tried to join the president-elect’s new efficiency department.`\
 https://nytimes.com/2025/01/16/us/doge-trump-watchdogs.html
-
-**Amorim speaks with Ratcliffe after Man United defeat Southampton**\
-`Ruben Amorim spoke with Sir Jim Ratcliffe following Manchester United&#8217;s 3-1 victory over Southampton on Thursday night.`\
-https://nytimes.com/athletic/6068183/2025/01/16/ruben-amorim-sir-jim-ratcliffe-manchester-united/
 
