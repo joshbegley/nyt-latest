@@ -1,23 +1,3 @@
-**World Health Organization looking to rebuild medical services as aid into Gaza increases.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/world-health-organization-looking-to-rebuild-medical-services-as-aid-into-gaza-increases
-
-**The Supreme Court appeared poised to uphold the law when it heard arguments on Friday.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-supreme-court-appeared-poised-to-uphold-the-law-when-it-heard-arguments-on-friday
-
-**Live Updates: Supreme Court Backs Law Requiring TikTok to Be Sold or Banned**\
-`The decision came a week after the justices heard a First Amendment challenge to a law aimed at the wildly popular short-form video platform used by 170 million Americans that the government fears could be influenced by the China.`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court
-
-**Here’s the latest on the ruling.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-the-latest-on-the-ruling
-
-**Supreme Court Backs Law Requiring TikTok to Be Sold or Banned**\
-`The company argued that the law, citing potential Chinese threats to the nation’s security, violated its First Amendment rights and those of its 170 million users.`\
-https://nytimes.com/2025/01/17/us/politics/supreme-court-tiktok.html
-
 **Biden Says Equal Rights Amendment Has Passed, but Does Not Force Legal Fight**\
 `President Biden’s remarks appeared to be largely a symbolic gesture of support for a decades-long campaign to enshrine gender equality into the Constitution.`\
 https://nytimes.com/2025/01/17/us/politics/equal-rights-amendment-constitution-biden.html
@@ -38,4 +18,24 @@ https://nytimes.com/athletic/6066120/2025/01/17/west-ham-striker-options/
 **Maresca says coaching Chelsea during January transfer window a 'disaster'**\
 `Enzo Maresca today described being in charge of Chelsea during the January transfer window as a &#8220;disaster&#8221; because of the unsettling effect it is having on his squad.`\
 https://nytimes.com/athletic/6069624/2025/01/17/chelsea-january-transfers-maresca/
+
+**Lowetide: Is Oilers veteran Ryan Nugent-Hopkins approaching another crossroads?**\
+`The next few months may present the most important challenge in Nugent-Hopkins' long Oilers career.`\
+https://nytimes.com/athletic/6065090/2025/01/17/ryan-nugent-hopkins-oilers-stats/
+
+**Brighton's Jakub Moder set for Feyenoord transfer**\
+`Brighton &amp; Hove Albion midfielder Jakub Moder is set to join Dutch club Feyenoord.`\
+https://nytimes.com/athletic/6069475/2025/01/17/jakub-moder-feyenoord-brighton-transfers/
+
+**Rain-Collecting Rattlesnakes Give New Meaning to ‘Thirst Trap’**\
+`A new study reveals the surprising ways rattlesnakes have evolved to collect water in the desert.`\
+https://nytimes.com/2025/01/17/science/rattlesnakes-water-drinking.html
+
+**Lemina apologises to Pereira and says he is available to play**\
+`Former Wolverhampton Wanders captain Mario Lemina has performed a major U-turn and declared himself available to play for the club until his future is decided.`\
+https://nytimes.com/athletic/6069553/2025/01/17/mario-lemina-vitor-pereira-wolves/
+
+**NHL Power Rankings: The top 10 gets a total shake-up**\
+`This week, we offer no razzle-dazzle and no glitzy themes. It's back to basics for the Rankings Boys.`\
+https://nytimes.com/athletic/6068961/2025/01/17/nhl-power-rankings-capitals-ovechkin-goals-race/
 

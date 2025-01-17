@@ -1,3 +1,23 @@
+**Lowetide: Is Oilers veteran Ryan Nugent-Hopkins approaching another crossroads?**\
+`The next few months may present the most important challenge in Nugent-Hopkins' long Oilers career.`\
+https://nytimes.com/athletic/6065090/2025/01/17/ryan-nugent-hopkins-oilers-stats/
+
+**Brighton's Jakub Moder set for Feyenoord transfer**\
+`Brighton &amp; Hove Albion midfielder Jakub Moder is set to join Dutch club Feyenoord.`\
+https://nytimes.com/athletic/6069475/2025/01/17/jakub-moder-feyenoord-brighton-transfers/
+
+**Rain-Collecting Rattlesnakes Give New Meaning to ‘Thirst Trap’**\
+`A new study reveals the surprising ways rattlesnakes have evolved to collect water in the desert.`\
+https://nytimes.com/2025/01/17/science/rattlesnakes-water-drinking.html
+
+**Lemina apologises to Pereira and says he is available to play**\
+`Former Wolverhampton Wanders captain Mario Lemina has performed a major U-turn and declared himself available to play for the club until his future is decided.`\
+https://nytimes.com/athletic/6069553/2025/01/17/mario-lemina-vitor-pereira-wolves/
+
+**NHL Power Rankings: The top 10 gets a total shake-up**\
+`This week, we offer no razzle-dazzle and no glitzy themes. It's back to basics for the Rankings Boys.`\
+https://nytimes.com/athletic/6068961/2025/01/17/nhl-power-rankings-capitals-ovechkin-goals-race/
+
 **World Health Organization looking to rebuild medical services as aid into Gaza increases.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/world-health-organization-looking-to-rebuild-medical-services-as-aid-into-gaza-increases
