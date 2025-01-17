@@ -1,3 +1,11 @@
+**Impressionism: Le Quiz!**\
+`It’s been 150 years since Monet and the Impressionists shocked Paris with their rebellious Société Anonyme show. How well do you know those once-revolutionary smudges?`\
+https://nytimes.com/interactive/2025/01/16/arts/design/impressionism-quiz.html
+
+**Penguins' Malkin's 3 Stanley Cup rings found in his home after burglary**\
+`The Cup rings, which were initially missing after the home invasion, are from the Penguins’ 2009, 2016 and 2017 championship teams.`\
+https://nytimes.com/athletic/6068430/2025/01/16/evgeni-malkin-home-burglary-rings-found/
+
 **Milwaukee’s best: A tribute to the humor and humanity of Bob Uecker**\
 `The Hall of Fame broadcaster, who died Thursday at 90, never shook his love of clubhouse camaraderie. `\
 https://nytimes.com/athletic/6068200/2025/01/16/bob-uecker-milwaukee-brewers-tribute/
