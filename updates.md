@@ -1,3 +1,7 @@
+**D.E.I. on the Ropes Ahead of the Next Trump Era**\
+`Corporate policies concerning diversity, equity and inclusion, already under pressure from conservatives, are facing greater threats from allies of the president-elect.`\
+https://nytimes.com/2025/01/17/business/dei-trump-meta-zuckerberg.html
+
 **Sources: Cavaliers interested in Nets' Cam Johnson to address perimeter struggles**\
 `The Cavs have the best offense in the NBA, but Darius Garland and Donovan Mitchell struggle against bigger, more physical players.`\
 https://nytimes.com/athletic/6068858/2025/01/17/cavaliers-cam-johnson-trade-interest-nba-rumors/
