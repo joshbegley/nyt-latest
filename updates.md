@@ -1,3 +1,11 @@
+**Quarter Back?**\
+`Willa Angel Chen Miller steps out on her own.`\
+https://nytimes.com/2025/01/16/crosswords/daily-puzzle-2025-01-17.html
+
+**Nathalie Dupree, ‘Queen of Southern Cooking,’ Dies at 85**\
+`As a cookbook author, TV personality and mentor, she sought to burst the chicken-fried stereotype of the South. Sometimes her life was as messy as her kitchen.`\
+https://nytimes.com/2025/01/16/dining/nathalie-dupree-dead.html
+
 **One stretch of the Malibu coast has become a buzzing base for firefighters.**\
 `By Emily Baumgaertner`\
 https://nytimes.com/live/2025/01/16/us/la-wildfires-california/one-stretch-of-the-malibu-coast-has-become-a-buzzing-base-for-firefighters
