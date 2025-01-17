@@ -1,6 +1,18 @@
-**Pam Shriver says car with 11 Grand Slam trophies was stolen during LA wildfire evacuation**\
-`Shortly after Pam Shriver woke up Thursday at the Marina del Rey DoubleTree, where she has been staying the past week since fleeing the Pacific Palisades fire in Los Angeles, she realized her son&#8217;s car, containing her collection of Grand Slam trophies, had been stolen.`\
+**Will Liverpool win this season's title - and, if so, when? Our experts' views**\
+`A group of our writers on whether the 2024-25 crown is destined for Anfield and when the pivotal date in this title race could be`\
+https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-when/
+
+**Santi Cazorla 'ideal Arsenal coach' Mikel Arteta 'ideal Arsenal coach' and Barca's 'unfair' treatment of Xavi**\
+`The former Arsenal midfielder, who is now 40 and playing for boyhood club Real Oviedo, speaks to The Athletic`\
+https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xavi-barcelona/
+
+**Pam Shriver says 11 Grand Slam trophies stolen during L.A. fire evacuation**\
+`Shriver still has possession of five of her Wimbledon doubles trophies.`\
 https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/
+
+**Which are the best seats in the house at a new stadium? The ones next to your friends, of course**\
+`How Everton fans are picking where to sit in the club's new home before the move from Goodison Park next summer`\
+https://nytimes.com/athletic/6061227/2025/01/17/everton-fans-seats-new-stadium/
 
 **Attention Is Power**\
 `The MSNBC anchor Chris Hayes on why attention is the most valuable resource.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/17/style/andrea-ng-justin-ryan-leung-wedding.html
 **A Workplace Crush Heats Up Thanks to Burned Cauliflower Pizza**\
 `When Taylor Maki first met Jorge Melgoza at an organization that provides social services to Native Americans, she was immediately smitten. It took him a while to notice.`\
 https://nytimes.com/2025/01/17/style/taylor-maki-jorge-melgoza-wedding.html
-
-**Three Years After Meeting, He Asked What She Was Doing Later That Day**\
-`Cynthia Hinojosa and Gianluca Bianchezi met at a music festival. A few years later, their romance took them from Mexico to Canada and back.`\
-https://nytimes.com/2025/01/17/style/cynthia-hinojosa-gianluca-bianchezi-wedding.html
-
-**A Wedding Ceremony Reflecting More Than Just Their Love**\
-`Sydney Hopfer and Jes Graham, who met three years ago, pushed up their wedding date and used the occasion to include “our political statement.”`\
-https://nytimes.com/2025/01/17/style/sydney-hopfer-jes-graham-wedding.html
-
-**Quote of the Day: Bob Uecker, Clubhouse Wit Turned Popular Sportscaster, Dies at 90**\
-`Quotation of the Day for Friday, January 17, 2025.`\
-https://nytimes.com/2025/01/16/pageoneplus/quote-of-the-day-bob-uecker-clubhouse-wit-turned-popular-sportscaster-dies-at-90.html
 
