@@ -1,3 +1,11 @@
+**Leeds may need to act in January transfer window depending on Struijk injury**\
+`Leeds United may be forced into being active in the January transfer window following a new injury to key defender Pascal Struijk.`\
+https://nytimes.com/athletic/6069562/2025/01/17/leeds-struijk-injury-tranfer/
+
+**A TikTok Habit Is Hard to Break**\
+`Users of the app are panicking about the prospect of a ban. Experts who study social media addiction say it’s easy to see why.`\
+https://nytimes.com/2025/01/17/well/tiktok-addiction-ban.html
+
 **The government’s case for banning TikTok on national security grounds was light on examples.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-governments-case-for-banning-tiktok-on-national-security-grounds-was-light-on-examples
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-supreme-cour
 **Live Updates: Supreme Court Backs Law Requiring TikTok to Be Sold or Banned**\
 `The decision came a week after the justices heard a First Amendment challenge to a law aimed at the wildly popular short-form video platform used by 170 million Americans that the government fears could be influenced by China.`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court
-
-**Here’s the latest on the ruling.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-the-latest-on-the-ruling
-
-**Supreme Court Backs Law Requiring TikTok to Be Sold or Banned**\
-`The company argued that the law, citing potential Chinese threats to the nation’s security, violated its First Amendment rights and those of its 170 million users.`\
-https://nytimes.com/2025/01/17/us/politics/supreme-court-tiktok.html
 
