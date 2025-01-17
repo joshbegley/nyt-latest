@@ -1,3 +1,11 @@
+**Bayern express interest in Dortmund's Gittens**\
+`Bayern Munich have expressed an interest over a summer transfer for Borussia Dortmund’s English winger Jamie Gittens.`\
+https://nytimes.com/athletic/6069084/2025/01/17/bayern-transfers-jamie-gittens-dortmund/
+
+**L.A. Wildfires: A break from strong winds brings respite to a battered city.**\
+``\
+https://nytimes.com/live/2025/01/17/us/los-angeles-wildfires-california
+
 **Why a football ground opened by Alex Ferguson is for sale on Rightmove for £500,000**\
 `Valley Road was the home of amateur side Flixton FC, but now it could be yours for just half a million`\
 https://nytimes.com/athletic/6063601/2025/01/17/football-ground-stadium-rightmove/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6069239/2025/01/17/aston-villa-jhon-duran-fa-charge
 **Court Vision: Does Arkansas already have buyer's remorse in John Calipari's first season?**\
 `Don't look now, but Tom Izzo has himself a squad. Missouri may have the best win of the week. Wake Forest solved a big problem.`\
 https://nytimes.com/athletic/6068359/2025/01/17/arkansas-mens-basketball-john-calipari-buyers-remorse/
-
-**Twins 'active' in exploring trades, signings even as club's impending sale limits moves**\
-`In the offseason, the Twins typically feast in late January and February. But this winter, the impending sale could slow them down. `\
-https://nytimes.com/athletic/6067903/2025/01/17/twins-offseason-moves-team-sale/
-
-**Elias Pettersson trade? Blackhawks should do whatever it takes**\
-`There's an available star in Vancouver. The Blackhawks should be willing to do anything to get him.`\
-https://nytimes.com/athletic/6067285/2025/01/17/elias-pettersson-trade-rumors-blackhawks-nhl/
 
