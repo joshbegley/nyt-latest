@@ -1,3 +1,11 @@
+**How to Find Order in a Chaotic New World**\
+`The global landscape of today is less predictable and more disordered. But it need not be less cooperative.`\
+https://nytimes.com/2025/01/17/opinion/order-chaos-worldwide-cooperation.html
+
+**Why the Canucks' season is falling off the rails: 3 takeaways**\
+`A blowout loss to the Kings, including giving up three goals in the first 10 minutes, left the Canucks once again out of a playoff spot.`\
+https://nytimes.com/athletic/6068670/2025/01/17/canucks-season-off-the-rails-defence-kings/
+
 **Why the Canucks' season is falling off the rails: 3 takeaways**\
 `A blowout loss to the Kings, including giving up three goals in the first ten minutes, left the Canucks once again out of a playoff spot.`\
 https://nytimes.com/athletic/6068670/2025/01/17/canucks-season-off-the-rails-defence-kings/

@@ -1,5 +1,9 @@
+**How to Find Order in a Chaotic New World**\
+`The global landscape of today is less predictable and more disordered. But it need not be less cooperative.`\
+https://nytimes.com/2025/01/17/opinion/order-chaos-worldwide-cooperation.html
+
 **Why the Canucks' season is falling off the rails: 3 takeaways**\
-`A blowout loss to the Kings, including giving up three goals in the first ten minutes, left the Canucks once again out of a playoff spot.`\
+`A blowout loss to the Kings, including giving up three goals in the first 10 minutes, left the Canucks once again out of a playoff spot.`\
 https://nytimes.com/athletic/6068670/2025/01/17/canucks-season-off-the-rails-defence-kings/
 
 **FPL: Fantasy Premier League: How to make the most of the assistant manager chip**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-tr
 **Which are the best seats in the house at a new stadium? The ones next to your friends, of course**\
 `How Everton fans are picking where to sit in the club's new home before the move from Goodison Park next summer`\
 https://nytimes.com/athletic/6061227/2025/01/17/everton-fans-seats-new-stadium/
-
-**Attention Is Power**\
-`The MSNBC anchor Chris Hayes on why attention is the most valuable resource.`\
-https://nytimes.com/video/opinion/100000009931684/attention-is-power.html
 
