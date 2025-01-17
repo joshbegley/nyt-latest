@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Auston Matthews, William Nylander power comeback**\
+`Matthews and Nylander both scored two goals as Toronto battled back from 2-1 and 3-2 deficits in the third period to beat New Jersey 4-3.`\
+https://nytimes.com/athletic/6068664/2025/01/16/maple-leafs-devils-auston-matthews-william-nylander/
+
 **China’s Population Declines for 3rd Straight Year**\
 `The fall came despite a slight rise in births last year, the first increase since 2016. State efforts to cajole women to have children have met resistance.`\
 https://nytimes.com/2025/01/16/business/china-population-births-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/dining/nathalie-dupree-dead.html
 **One stretch of the Malibu coast has become a buzzing base for firefighters.**\
 `By Emily Baumgaertner`\
 https://nytimes.com/live/2025/01/16/us/la-wildfires-california/one-stretch-of-the-malibu-coast-has-become-a-buzzing-base-for-firefighters
-
-**Seidler legal dispute: Motion seeks arbitration to decide certain claims**\
-`Thursday’s motion does not mention the Padres or Sheel Seidler’s claim that she should be the team's control person.`\
-https://nytimes.com/athletic/6068487/2025/01/16/padres-seidler-lawsuit-arbitration-motion/
 
