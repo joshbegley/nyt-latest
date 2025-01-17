@@ -1,3 +1,7 @@
+**Cazorla on 'ideal Arsenal coach' Arteta and Barca's 'unfair' treatment of Xavi**\
+`The former Arsenal midfielder, who is now 40 and playing for boyhood club Real Oviedo, speaks to The Athletic`\
+https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xavi-barcelona/
+
 **How to Find Order in a Chaotic New World**\
 `The global landscape of today is less predictable and more disordered. But it need not be less cooperative.`\
 https://nytimes.com/2025/01/17/opinion/order-chaos-worldwide-cooperation.html

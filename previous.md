@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6037263/2025/01/17/brighton-hurzeler-ipswich-winles
 `A group of our writers on whether the 2024-25 crown is destined for Anfield and when the pivotal date in this title race could be`\
 https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-when/
 
-**Santi Cazorla 'ideal Arsenal coach' Mikel Arteta 'ideal Arsenal coach' and Barca's 'unfair' treatment of Xavi**\
+**Cazorla on 'ideal Arsenal coach' Arteta and Barca's 'unfair' treatment of Xavi**\
 `The former Arsenal midfielder, who is now 40 and playing for boyhood club Real Oviedo, speaks to The Athletic`\
 https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xavi-barcelona/
 
