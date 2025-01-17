@@ -1,3 +1,7 @@
+**Track TikTok’s rise and fall.**\
+`By Madison Malone Kircher and Remy Tumin`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/track-tiktoks-rise-and-fall
+
 **Remembering David Lynch**\
 `From “Blue Velvet” to “Twin Peaks,” here are five of the visionary director’s most notable works.`\
 https://nytimes.com/2025/01/17/podcasts/remembering-david-lynch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/arts/historians-group-veto-gaza.html
 **Who Is Behind RedNote, the Chinese App Attracting TikTok Users?**\
 `Until this week, the app was little known outside of China.`\
 https://nytimes.com/2025/01/17/us/politics/tiktok-ban-rednote-owner.html
-
-**How Silence Improves Pico Iyer’s Life**\
-`The travel writer and essayist discusses his new book, “Aflame,” about his stays at a California monastery.`\
-https://nytimes.com/2025/01/17/books/review/podcast-pico-iyer-interview.html
 
