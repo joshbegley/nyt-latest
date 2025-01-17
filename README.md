@@ -1,3 +1,7 @@
+**Denis Law: Manchester United and Scotland legend dies aged 84**\
+`Denis Law, the former Manchester United and Scotland centre-forward, has passed away at the age of 84.`\
+https://nytimes.com/athletic/6070483/2025/01/17/denis-law-dead-manchester-united/
+
 **Track TikTok’s rise and fall.**\
 `By Madison Malone Kircher and Remy Tumin`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/track-tiktoks-rise-and-fall
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/arts/music/amplifier-newsletter-neko-case.html
 **Leaders of Historians’ Group Veto Measure Condemning ‘Scholasticide’ in Gaza**\
 `The American Historical Association’s council rejected a resolution condemning Israel’s actions in Gaza, which have destroyed much of the enclave’s educational system.`\
 https://nytimes.com/2025/01/17/arts/historians-group-veto-gaza.html
-
-**Who Is Behind RedNote, the Chinese App Attracting TikTok Users?**\
-`Until this week, the app was little known outside of China.`\
-https://nytimes.com/2025/01/17/us/politics/tiktok-ban-rednote-owner.html
 
