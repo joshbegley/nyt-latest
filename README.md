@@ -1,3 +1,12 @@
+**Bayern close to agreement with Davies over new contract**\
+`Bayern Munich are close to an agreement with Alphonso Davies over a new contract
+The Canada (CANMNT) captain&#8217;s existing terms with the Bundesliga club are set to expire at the end of the season leaving him free to talk to overseas clubs.`\
+https://nytimes.com/athletic/6070539/2025/01/17/bayern-munich-alphonso-davies-contract-new/
+
+**Canada’s Plan for a Trade War: Pain for Red States and Trump Allies**\
+`Canadian officials are preparing retaliatory measures if the new U.S. administration imposes tariffs on Canadian imports.`\
+https://nytimes.com/2025/01/17/world/canada/canada-trump-tariffs.html
+
 **Behind the Scenes at Davos**\
 `Planning and managing the World Economic Forum’s annual meeting is a huge task, and the work for next year’s event will begin as soon as this one ends.`\
 https://nytimes.com/2025/01/17/business/world-economic-forum-davos.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6067852/2025/01/17/tony-mowbray-west-brom-cancer-mi
 **Will President-Elect Donald Trump Stop the Law From Taking Effect?**\
 `It is unclear if Mr. Trump, who has previously said he will spare the social media platform, will or can stop the ban.`\
 https://nytimes.com/2025/01/17/us/politics/tiktok-ban-trump.html
-
-**Oilers sign veteran defenseman John Klingberg**\
-`Signing Klingberg is a low-risk move that could amount to the Oilers adding a top-four blueliner.`\
-https://nytimes.com/athletic/6070453/2025/01/17/oilers-john-klingberg-contract/
-
-**On a Raid With Syria’s New Security Forces**\
-`After the fall of the Assad regime in Syria, The New York Times joined a group of former rebel soldiers trying to enforce law and order in a country grappling with the ghosts of its past.`\
-https://nytimes.com/video/world/middleeast/100000009887912/syria-rebels-security-latakia.html
 
