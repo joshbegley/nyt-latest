@@ -1,3 +1,7 @@
+**One stretch of the Malibu coast has become a buzzing base for firefighters.**\
+`By Emily Baumgaertner`\
+https://nytimes.com/live/2025/01/16/us/la-wildfires-california/one-stretch-of-the-malibu-coast-has-become-a-buzzing-base-for-firefighters
+
 **Seidler legal dispute: Motion seeks arbitration to decide certain claims**\
 `Thursday’s motion does not mention the Padres or Sheel Seidler’s claim that she should be the team's control person.`\
 https://nytimes.com/athletic/6068487/2025/01/16/padres-seidler-lawsuit-arbitration-motion/
