@@ -1,3 +1,7 @@
+**How Penn State refueled its roster to run it back in 2025: 'Everyone's finally getting it now'**\
+`The desire to run it back in 2025 will set high expectations — the highest of any of James Franklin's Penn State teams.`\
+https://nytimes.com/athletic/6054481/2025/01/17/penn-state-james-franklin-2025-recruiting-roster/
+
 **Joe Mazzulla shouldn't scapegoat Thunder or Cavaliers when Celtics are the problem**\
 `Mazzulla says the pressure on the Celtics is coming from comparisons to Cavs and Thunder: "Oh, you're not as good because you're not them."`\
 https://nytimes.com/athletic/6067776/2025/01/17/celtics-slump-thunder-cavaliers-joe-mazzulla/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/dining/hometown-bar-b-que-manhattan-restaurant.ht
 **Trump Team Rebuffs Talks on Mass Deportations, Latin American Countries Say**\
 `Mexican officials and other leaders in the region have not been able to meet with the incoming administration about the president-elect’s migration and deportation plans.`\
 https://nytimes.com/2025/01/17/world/americas/trump-deportations-latin-america.html
-
-**Biden to Commute Sentences of Nearly 2,500 Drug Offenders**\
-`The action, aimed at inmates who received harsher sentences based on old disparities in drug laws, will be the broadest commutation of individual sentences ever issued by a U.S. president.`\
-https://nytimes.com/2025/01/17/us/politics/biden-commute-sentences-drug-offenders.html
 

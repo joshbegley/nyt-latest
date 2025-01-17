@@ -1,40 +1,40 @@
-**Instagram and YouTube Prepare to Benefit if TikTok Is Banned**\
-`Meta’s Instagram and Google’s YouTube are getting ready behind the scenes to welcome TikTok users, should the Chinese-owned app be banned from the United States.`\
-https://nytimes.com/2025/01/17/technology/instagram-and-youtube-prepare-to-benefit-if-tiktok-is-banned.html
+**Joe Mazzulla shouldn't scapegoat Thunder or Cavaliers when Celtics are the problem**\
+`Mazzulla says the pressure on the Celtics is coming from comparisons to Cavs and Thunder: "Oh, you're not as good because you're not them."`\
+https://nytimes.com/athletic/6067776/2025/01/17/celtics-slump-thunder-cavaliers-joe-mazzulla/
 
-**Noem to Face Questions on Immigration as Trump’s Homeland Security Pick**\
-`The department that the South Dakota governor seeks to lead will be critical to fulfilling the incoming administration’s promises to quickly crack down on immigration.`\
-https://nytimes.com/2025/01/17/us/politics/kristi-noem-homeland-security-confirmation-hearing.html
+**On the Couch With Well’s Resident Therapist**\
+`Lori Gottlieb shares relationship tips from 15 years of clinical practice.`\
+https://nytimes.com/2025/01/17/well/therapist-advice-lori-gottlieb.html
 
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2025/01/17/movies/new-movies-this-week-critics.html
+**TikTok Makes Last-Minute Push as Supreme Court Is Poised to Rule on Ban**\
+`With the court signaling it will release a decision on Friday, lobbyists for the app pushed lawmakers to shift course.`\
+https://nytimes.com/2025/01/17/technology/tiktok-ban-lobbying-washington.html
 
-**In a Fire’s Ruins, Signs of a Previous Loss Leave a Family With Seeds of Hope**\
-`The Carrs have made their life’s work honoring the dreams of their precocious son, who died suddenly at 16. They rescued some mementos and others survived when their Altadena home burned to the ground.`\
-https://nytimes.com/2025/01/17/us/la-fires-altadena-home.html
+**U.S. Reveals Once-Secret Support for Ukraine’s Drone Industry**\
+`The development of a new generation of drones has revolutionized how wars are fought, according to U.S. officials.`\
+https://nytimes.com/2025/01/17/us/politics/ukraine-drones-biden-support.html
 
-**‘Severance,’ ‘The Substance’ and Our Increasingly Splintered Selves**\
-`Cleaving a consciousness off one’s own is the trope of the season. Why?`\
-https://nytimes.com/2025/01/17/opinion/severance-the-substance-hollywood.html
+**Los Angeles Fire Chief Faces Calls for Resignation**\
+`As a disastrous fire continues to burn on the city’s west side, some are calling Chief Kristin Crowley to account: Why wasn’t the city better prepared?`\
+https://nytimes.com/2025/01/17/us/los-angeles-fire-chief-kristin-crowley.html
 
-**An Illustrated Guide to Trump’s Conflict of Interest Risks**\
-`President-elect Donald J. Trump has a range of new business ventures that could expose him to even greater potential conflicts of interest than during his first term.`\
-https://nytimes.com/interactive/2025/01/17/us/politics/trump-conflicts-of-interest.html
+**What to Know About Plane Maintenance After the South Korean Crash**\
+`Airlines have been increasingly outsourcing repair and upkeep work to other countries, but experts and consumer groups disagree about its impact on safety.`\
+https://nytimes.com/2025/01/17/business/plane-maintenance-south-korean-crash.html
 
-**A Robot Made My Lunch**\
-`Sweetgreen and other spots are using automation in some Manhattan restaurants. Humans still slice the vegetables, but they don’t put the food in bowls.`\
-https://nytimes.com/2025/01/17/nyregion/sweetgreens-automation-lunch.html
+**The Terrifying Ride of Copter 17**\
+`A former Army pilot. An aging helicopter. Furious winds. The race to put out the Eaton fire tested Los Angeles County’s night-flying firefighters like never before.`\
+https://nytimes.com/2025/01/17/us/wildfires-copter-17.html
 
-**His Chat Site Was Tied to the Pelicot Rapes. Now, France Wants to Prosecute Him, Too.**\
-`Isaac Steidl founded the Coco platform, which authorities tied to criminal activity for years. The effort to hold Mr. Steidl accountable tests a new legal frontier.`\
-https://nytimes.com/2025/01/17/world/europe/pelicot-rape-trial-coco-isaac-steidl.html
+**A Brooklyn Barbecue Pioneer Sets His Sights on Manhattan Fine Dining**\
+`Billy Durney of Hometown Bar-B-Que plans to open a 57th Street restaurant with the group founded by the late chef James Kent.`\
+https://nytimes.com/2025/01/17/dining/hometown-bar-b-que-manhattan-restaurant.html
 
-**What Doctors and Nurses Can Do to Protect Undocumented Immigrants**\
-`Doctors have a responsibility to reassure their patients, regardless of immigration status, that they are welcome and protected.`\
-https://nytimes.com/2025/01/17/opinion/mass-deportations-undocumented-immigrants-health.html
+**Trump Team Rebuffs Talks on Mass Deportations, Latin American Countries Say**\
+`Mexican officials and other leaders in the region have not been able to meet with the incoming administration about the president-elect’s migration and deportation plans.`\
+https://nytimes.com/2025/01/17/world/americas/trump-deportations-latin-america.html
 
-**How Much Say Do You Have in What You Learn at School?**\
-`A guest essay argues that when students are more involved in setting their own academic goals, they’re more excited to learn. Is that true for you?`\
-https://nytimes.com/2025/01/17/learning/how-much-say-do-you-have-in-what-you-learn-at-school.html
+**Biden to Commute Sentences of Nearly 2,500 Drug Offenders**\
+`The action, aimed at inmates who received harsher sentences based on old disparities in drug laws, will be the broadest commutation of individual sentences ever issued by a U.S. president.`\
+https://nytimes.com/2025/01/17/us/politics/biden-commute-sentences-drug-offenders.html
 
