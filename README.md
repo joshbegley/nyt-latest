@@ -1,3 +1,11 @@
+**Impressionism: Le Quiz!**\
+`It’s been 150 years since Monet and the Impressionists shocked Paris with their rebellious Société Anonyme show. How well do you know those once-revolutionary smudges?`\
+https://nytimes.com/interactive/2025/01/16/arts/design/impressionism-quiz.html
+
+**Penguins' Malkin's 3 Stanley Cup rings found in his home after burglary**\
+`The Cup rings, which were initially missing after the home invasion, are from the Penguins’ 2009, 2016 and 2017 championship teams.`\
+https://nytimes.com/athletic/6068430/2025/01/16/evgeni-malkin-home-burglary-rings-found/
+
 **Milwaukee’s best: A tribute to the humor and humanity of Bob Uecker**\
 `The Hall of Fame broadcaster, who died Thursday at 90, never shook his love of clubhouse camaraderie. `\
 https://nytimes.com/athletic/6068200/2025/01/16/bob-uecker-milwaukee-brewers-tribute/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/your-money/american-express-fines-credit-cards.ht
 **Darrin Bell, Pulitzer-Winning Cartoonist, Faces Child Pornography Charges**\
 `More than 100 videos of child sex abuse material, some of which was computer generated, have been connected to Mr. Bell, 49, according to the authorities.`\
 https://nytimes.com/2025/01/16/us/darrin-bell-arrest-child-pornography.html
-
-**L.A. Officials Warn of Compromised Drinking Water in Fire-Ravaged Areas**\
-`“Do not drink” orders have been issued in some areas where damaged pipes that lost pressure might pull in toxic smoke and harmful chemicals that could linger in the system for years.`\
-https://nytimes.com/2025/01/16/us/la-drinking-water-wildfires.html
-
-**David Lynch, ‘Twin Peaks’ and the American Art of Television**\
-`“Twin Peaks” was his ultimate portrait of a land of terror and beauty.`\
-https://nytimes.com/2025/01/16/arts/television/david-lynch-twin-peaks.html
 
