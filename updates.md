@@ -1,3 +1,7 @@
+**Nancy Pelosi Is Skipping Trump’s Inauguration**\
+`The former speaker clashed with Donald Trump throughout his first term, and the acrimony between the two persisted after he left office.`\
+https://nytimes.com/2025/01/16/us/politics/nancy-pelosi-trump-inauguration.html
+
 **Quarter Back?**\
 `Willa Angel Chen Miller steps out on her own.`\
 https://nytimes.com/2025/01/16/crosswords/daily-puzzle-2025-01-17.html
