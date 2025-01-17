@@ -1,3 +1,7 @@
+**Can Communities Survive the Fires?**\
+`A writer from Los Angeles surveys the loss.`\
+https://nytimes.com/2025/01/17/briefing/can-communities-survive-the-fires.html
+
 **Camavinga sidelined with hamstring injury**\
 `Real Madrid midfielder Eduardo Camavinga has sustained a hamstring injury and could be sidelined for three weeks.`\
 https://nytimes.com/athletic/6069137/2025/01/17/eduardo-camavinga-injury-update-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6068355/2025/01/17/nfl-nfc-playoffs-divisional-roun
 **Olli Jokinen on his viral, expletive-laced coaching speech and a future NHL return: 'That is a dream'**\
 `Jokinen, who is coaching in Sweden and on a path to a potential NHL return, recently got "way too much attention" for a speech to his team.`\
 https://nytimes.com/athletic/6064516/2025/01/17/olli-jokinen-viral-coaching-speech/
-
-**Haaland's Manchester City deal feels like Patrick Mahomes revisited**\
-`Ultra long-term deals are a common sight in American sports but Haaland's is unusual in soccer`\
-https://nytimes.com/athletic/6068954/2025/01/17/haaland-mahomes-manchester-city-chiefs/
 
