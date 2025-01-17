@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/17/arts/music/popcast-bob-dylan-timothee-chalamet.ht
 https://nytimes.com/2025/01/17/us/daca-immigration-deportation.html
 
 **Jean Jennings, Who Wrote With Verve About Cars, Dies at 70**\
-`A cabdriver and mechanic before becoming a journalist, she brought personality and adventure to a once-staid genre.`\
+`A cabdriver and mechanic before becoming a journalist, she brought personality and adventure to a once-staid genre. She once won a demolition derby and motorcycled across China.`\
 https://nytimes.com/2025/01/17/business/media/jean-jennings-dead.html
 
 **American Airlines Accused of Discrimination by Interracial Couple**\
