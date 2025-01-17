@@ -1,7 +1,3 @@
-**Live Updates: Israel and Hamas Work Out Differences Over Deal, Netanyahu Says**\
-`Prime Minister Benjamin Netanyahu ordered a meeting of Israel’s political security cabinet to vote on the Gaza cease-fire deal. An expected vote had been delayed amid disputes with Hamas and rifts inside his governing coalition.`\
-https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire
-
 **How to Find Order in a Chaotic New World**\
 `The global landscape of today is less predictable and more disordered. But it need not be less cooperative.`\
 https://nytimes.com/2025/01/17/opinion/order-chaos-worldwide-cooperation.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xav
 **Pam Shriver says 11 Grand Slam trophies stolen during L.A. fire evacuation**\
 `Shriver still has possession of her five Wimbledon doubles trophies.`\
 https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/
+
+**Which are the best seats in the house at a new stadium? The ones next to your friends, of course**\
+`How Everton fans are picking where to sit in the club's new home before the move from Goodison Park next summer`\
+https://nytimes.com/athletic/6061227/2025/01/17/everton-fans-seats-new-stadium/
 
