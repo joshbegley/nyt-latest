@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/16/business/china-population-births-deaths.html
 `Prime Minister Benjamin Netanyahu said he had called a meeting of his security cabinet for later on Friday.`\
 https://nytimes.com/2025/01/16/world/middleeast/israel-hamas-gaza-cease-fire.html
 
-**More Than a Week After the Fires, Los Angeles Evacuees Remain Stuck in Limbo**\
+**More Than a Week After the Fires, Los Angeles Evacuees Remain in Limbo**\
 `Many neighborhoods are still off-limits to residents. Evacuees say they are increasingly frustrated and at a loss over what to do next.`\
 https://nytimes.com/2025/01/16/us/la-fires-evacuations-homes.html
 
