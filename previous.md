@@ -2,7 +2,7 @@
 `Bayern Munich have expressed an interest over a summer transfer for Borussia Dortmund’s English winger Jamie Gittens.`\
 https://nytimes.com/athletic/6069084/2025/01/17/bayern-transfers-jamie-gittens-dortmund/
 
-**L.A. Wildfires: A break from strong winds brings respite to battered city.**\
+**L.A. Wildfires: A break from strong winds brings respite to a battered city.**\
 ``\
 https://nytimes.com/live/2025/01/17/us/los-angeles-wildfires-california
 
