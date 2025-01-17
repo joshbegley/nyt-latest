@@ -1,3 +1,7 @@
+**Sources: Cavaliers interested in Nets' Cam Johnson to address perimeter struggles**\
+`The Cavs have the best offense in the NBA, but Darius Garland and Donovan Mitchell struggle against bigger, more physical players.`\
+https://nytimes.com/athletic/6068858/2025/01/17/cavaliers-cam-johnson-trade-interest-nba-rumors/
+
 **Aryna Sabalenka shows vulnerability, coffee wars intensify: Australian Open recap**\
 `The world No. 1 and defending women's champion has scratched through her early rounds.`\
 https://nytimes.com/athletic/6068539/2025/01/17/aryna-sabalenka-australian-open-melbourne-coffee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager
 **Dolphins to host first-ever NFL game in Madrid**\
 `The Dolphins will play at Santiago Bernabéu Stadium, home of Real Madrid. Their opponent has not been announced yet.`\
 https://nytimes.com/athletic/6066838/2025/01/17/dolphins-madrid-game/
-
-**Bayern express interest in Dortmund's Gittens**\
-`Bayern Munich have expressed an interest over a summer transfer for Borussia Dortmund’s English winger Jamie Gittens.`\
-https://nytimes.com/athletic/6069084/2025/01/17/bayern-transfers-jamie-gittens-dortmund/
 
