@@ -1,3 +1,23 @@
+**Nuno confident that Forest striker Awoniyi can re-discover form**\
+`Nuno Espirito Santo says Taiwo Awoniyi remains an important figure at Nottingham Forest &#8211; and backed him to get back to his best at the City Ground.`\
+https://nytimes.com/athletic/6070566/2025/01/17/nottingham-forest-awoniyi-nuno-form/
+
+**Arteta says January window "difficult" to operate in after injuries to forwards**\
+`Mikel Arteta has spoken about the importance of “adapting” in a “difficult” January window after Arsenal lost Gabriel Jesus to an anterior cruciate ligament (ACL) injury this week.`\
+https://nytimes.com/athletic/6070775/2025/01/17/arsenal-arteta-transfer-jesus-saka-injury/
+
+**The Sheikh, the Mogul and the Diplomat: The Trio Who Sealed the Gaza Truce**\
+`The Qatari prime minister, working with both President Biden’s envoy and President-elect Donald J. Trump’s representative, formed an unlikely partnership.`\
+https://nytimes.com/2025/01/17/world/middleeast/gaza-truce-negotiations.html
+
+**A Call for Millennial Complaints Draws an Enormous Crowd**\
+`At a time of social media upheaval, a post to X had people making jokes and longing for what felt like a simpler (and less expensive) era.`\
+https://nytimes.com/2025/01/17/style/millennial-complaints.html
+
+**A Simple 10-Minute Workout to Improve Mobility**\
+`Daily movement breaks are important. This no-equipment routine can help you move more freely.`\
+https://nytimes.com/2025/01/17/well/move/short-mobility-workout.html
+
 **Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
 `Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
 `\
