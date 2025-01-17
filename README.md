@@ -1,3 +1,7 @@
+**Find Your Next Favorite Workout**\
+`Whether you’re starting from scratch or just looking to try something new, we can help you build an exercise routine that sticks.`\
+https://nytimes.com/interactive/2025/well/move/workout-plan-ideas.html
+
 **Nuno confident that Forest striker Awoniyi can re-discover form**\
 `Nuno Espirito Santo says Taiwo Awoniyi remains an important figure at Nottingham Forest &#8211; and backed him to get back to his best at the City Ground.`\
 https://nytimes.com/athletic/6070566/2025/01/17/nottingham-forest-awoniyi-nuno-form/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/us/politics/cia-analyst-guilty-plea-classified-is
 **Can He Do That? Here’s What Biden’s Move on the Equal Rights Amendment Means.**\
 `Presidents have no direct role in approving constitutional amendments. So what could President Biden’s pronouncement recognizing a new one actually do?`\
 https://nytimes.com/2025/01/17/us/politics/biden-equal-rights-amendment-explained.html
-
-**Freed Cuban Dissident: The Church and Biden Got Duped**\
-`Hundreds more Cuban dissidents are expected to be released in the coming days in a deal with President Biden, but even a top beneficiary is balking.`\
-https://nytimes.com/2025/01/17/us/biden-cuban-prisoners-church.html
 
