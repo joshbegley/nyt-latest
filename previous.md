@@ -1,3 +1,15 @@
+**Shopping for strikers: Who could West Ham add to their threadbare attack?**\
+`Graham Potter knows which area of his squad is most in need of reinforcements — but it isn't proving easy`\
+https://nytimes.com/athletic/6066120/2025/01/17/west-ham-striker-options/
+
+**Maresca says coaching Chelsea during January transfer window a 'disaster'**\
+`Enzo Maresca today described being in charge of Chelsea during the January transfer window as a &#8220;disaster&#8221; because of the unsettling effect it is having on his squad.`\
+https://nytimes.com/athletic/6069624/2025/01/17/chelsea-january-transfers-maresca/
+
+**Lowetide: Is Oilers veteran Ryan Nugent-Hopkins approaching another crossroads?**\
+`The next few months may present the most important challenge in Nugent-Hopkins' long Oilers career.`\
+https://nytimes.com/athletic/6065090/2025/01/17/ryan-nugent-hopkins-oilers-stats/
+
 **Brighton's Jakub Moder set for Feyenoord transfer**\
 `Brighton &amp; Hove Albion midfielder Jakub Moder is set to join Dutch club Feyenoord.`\
 https://nytimes.com/athletic/6069475/2025/01/17/jakub-moder-feyenoord-brighton-transfers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/17/your-money/house-down-payment-assistance.html
 **Liverpool fan groups warn club against 'killing the Kop' with ticket price rises**\
 `Liverpool fan groups have written an open letter to the club warning that rising ticket prices run the risk of “killing the Kop”.`\
 https://nytimes.com/athletic/6069338/2025/01/17/liverpool-ticket-prices-fan-groups/
-
-**Broncos fire special teams coordinator Ben Kotwica after 2 seasons**\
-`Coach Sean Payton lamented after the playoff loss to the Bills that the Broncos “lost that battle” on special teams.`\
-https://nytimes.com/athletic/6069452/2025/01/17/broncos-special-teams-coordinator-ben-kotwica-fired/
-
-**How the Oilers have excelled through the most difficult part of their season**\
-`Another comeback win, this time in Colorado, seals a successful road trip — and the Oilers' place among the NHL's elite.`\
-https://nytimes.com/athletic/6068973/2025/01/17/oilers-avalanche-schedule-nhl/
-
-**Djokovic criticizes 'provoking' from Australian Open crowd, 'loves' Collins response**\
-`MELBOURNE, Australia — Novak Djokovic said he “loved” Danielle Collins’ reaction to a hostile home crowd at the Australian Open, adding that he was now a “big fan” of the American.`\
-https://nytimes.com/athletic/6069267/2025/01/17/novak-djokovic-australian-open-crowd-danielle-collins/
 

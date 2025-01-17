@@ -1,3 +1,15 @@
+**Shopping for strikers: Who could West Ham add to their threadbare attack?**\
+`Graham Potter knows which area of his squad is most in need of reinforcements — but it isn't proving easy`\
+https://nytimes.com/athletic/6066120/2025/01/17/west-ham-striker-options/
+
+**Maresca says coaching Chelsea during January transfer window a 'disaster'**\
+`Enzo Maresca today described being in charge of Chelsea during the January transfer window as a &#8220;disaster&#8221; because of the unsettling effect it is having on his squad.`\
+https://nytimes.com/athletic/6069624/2025/01/17/chelsea-january-transfers-maresca/
+
+**Lowetide: Is Oilers veteran Ryan Nugent-Hopkins approaching another crossroads?**\
+`The next few months may present the most important challenge in Nugent-Hopkins' long Oilers career.`\
+https://nytimes.com/athletic/6065090/2025/01/17/ryan-nugent-hopkins-oilers-stats/
+
 **Brighton's Jakub Moder set for Feyenoord transfer**\
 `Brighton &amp; Hove Albion midfielder Jakub Moder is set to join Dutch club Feyenoord.`\
 https://nytimes.com/athletic/6069475/2025/01/17/jakub-moder-feyenoord-brighton-transfers/
