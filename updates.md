@@ -1,3 +1,7 @@
+**Word of the Day: jeremiad**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/17/learning/word-of-the-day-jeremiad.html
+
 **Live Updates: Israel and Hamas Work Out Differences Over Deal, Netanyahu Says**\
 `Prime Minister Benjamin Netanyahu ordered a meeting of Israel’s political security cabinet to vote on the Gaza cease-fire deal. An expected vote had been delayed amid disputes with Hamas and rifts inside his governing coalition.`\
 https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire

@@ -1,3 +1,7 @@
+**Word of the Day: jeremiad**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/17/learning/word-of-the-day-jeremiad.html
+
 **Live Updates: Israel and Hamas Work Out Differences Over Deal, Netanyahu Says**\
 `Prime Minister Benjamin Netanyahu ordered a meeting of Israel’s political security cabinet to vote on the Gaza cease-fire deal. An expected vote had been delayed amid disputes with Hamas and rifts inside his governing coalition.`\
 https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-w
 **Cazorla on 'ideal Arsenal coach' Arteta and Barca's 'unfair' treatment of Xavi**\
 `The former Arsenal midfielder, who is now 40 and playing for boyhood club Real Oviedo, speaks to The Athletic`\
 https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xavi-barcelona/
-
-**Pam Shriver says 11 Grand Slam trophies stolen during L.A. fire evacuation**\
-`Shriver still has possession of her five Wimbledon doubles trophies.`\
-https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/
 
