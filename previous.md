@@ -1,3 +1,19 @@
+**Hug**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/01/17/learning/hug.html
+
+**Why New York Is a Sanctuary City, and How That Could Change Under Trump**\
+`New York’s status as a sanctuary city for undocumented immigrants has shifted over time. Now, as President-elect Donald J. Trump prepares to enter office, it may shift once again.`\
+https://nytimes.com/2025/01/17/nyregion/sanctuary-city-nyc-trump.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/17/crosswords/spelling-bee-forum.html
+
+**Haaland signs new nine-and-a-half-year contract at Man City**\
+`Erling Haaland has committed the vast majority of his career to Manchester City by signing an extraordinary new contract that will keep him at the Etihad Stadium until the summer of 2034.`\
+https://nytimes.com/athletic/6066077/2025/01/17/erling-haaland-man-city-contract-new/
+
 **Naomi Osaka out of Australian Open after injury forces retirement against Belinda Bencic**\
 `MELBOURNE, Australia — Naomi Osaka is out of the Australian Open after the abdominal injury that forced her out of the ASB Classic final in Auckland, New Zealand recurred during her third-round match against Belinda Bencic.`\
 https://nytimes.com/athletic/6068977/2025/01/17/naomi-osaka-australian-open-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire
 **How to Find Order in a Chaotic New World**\
 `The global landscape of today is less predictable and more disordered. But it need not be less cooperative.`\
 https://nytimes.com/2025/01/17/opinion/order-chaos-worldwide-cooperation.html
-
-**Why the Canucks' season is falling off the rails: 3 takeaways**\
-`A blowout loss to the Kings, including giving up three goals in the first 10 minutes, left the Canucks once again out of a playoff spot.`\
-https://nytimes.com/athletic/6068670/2025/01/17/canucks-season-off-the-rails-defence-kings/
-
-**FPL: Fantasy Premier League: How to make the most of the assistant manager chip**\
-`Manager prices have been revealed for FPL's new chip, which can be used from Gameweek 24 - here's how to maximise it`\
-https://nytimes.com/athletic/6059589/2025/01/17/fantasy-premier-league-assistant-manager-chip-strategy/
-
-**How Eddie Howe has kept Newcastle’s record-equalling winning streak going: Humility, calmness, focus**\
-`What lies behind their ability to keep winning matches?`\
-https://nytimes.com/athletic/6066795/2025/01/17/how-eddie-howes-kept-newcastles-record-equalling-winning-streak-going/
-
-**Chelsea might sell Nkunku and are interested in Tel. Would doing a deal for both make sense?**\
-`Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel while his compatriot could go the other way`\
-https://nytimes.com/athletic/6064044/2025/01/17/chelsea-christopher-nkunku-mathys-tell-analysis/
 
