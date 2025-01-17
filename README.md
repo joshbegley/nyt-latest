@@ -1,3 +1,7 @@
+**Scoop City: How the Bills, Commanders and other underdogs win this weekend**\
+`What each underdog can do to win this weekend, plus how the Lions, Chiefs, Ravens and Eagles can stop them`\
+https://nytimes.com/athletic/6070237/2025/01/17/nfl-divisional-round-preview-upset-watch-scoop-city/
+
 **If TikTok is banned, can I still use it?**\
 `By Eli Tan`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/if-tiktok-is-banned-can-i-still-use-it
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/opinion/mind-boredom-distractions.html
 **How Biden’s Inner Circle Protected a Faltering President**\
 `“Your biggest issue is the perception of age,” Mike Donilon, the president’s longtime strategist, told him in 2022, according to people who heard him.`\
 https://nytimes.com/2025/01/17/us/politics/biden-age.html
-
-**As California Burns, ‘Octavia Tried to Tell Us’ Has New Meaning**\
-`The phrase, which gained momentum in 2020, has resurfaced, in part because it can seem like Octavia Butler was more than a fiction writer.`\
-https://nytimes.com/2025/01/17/us/los-angeles-wildfires-octavia-butler.html
 
