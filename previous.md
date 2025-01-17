@@ -1,3 +1,15 @@
+**Who Is Behind RedNote, the Chinese App Attracting TikTok Users?**\
+`Until this week, the app was little known outside of China.`\
+https://nytimes.com/2025/01/17/us/politics/tiktok-ban-rednote-owner.html
+
+**How Silence Improves Pico Iyer’s Life**\
+`The travel writer and essayist discusses his new book, “Aflame,” about his stays at a California monastery.`\
+https://nytimes.com/2025/01/17/books/review/podcast-pico-iyer-interview.html
+
+**‘Red Note,’ a Chinese app, is dominating downloads, thanks to TikTok users.**\
+`The law that took aim at TikTok over national security concerns has prompted Americans looking for alternatives to download Xiaohongshu, a social media app that is popular in China.`\
+https://nytimes.com/2025/01/17/us/politics/red-note-a-chinese-app-is-dominating-downloads-thanks-to-tiktok-users.html
+
 **Scoop City: How the Bills, Commanders and other underdogs win this weekend**\
 `What each underdog can do to win this weekend, plus how the Lions, Chiefs, Ravens and Eagles can stop them`\
 https://nytimes.com/athletic/6070237/2025/01/17/nfl-divisional-round-preview-upset-watch-scoop-city/
@@ -12,7 +24,7 @@ https://nytimes.com/2025/01/17/us/politics/dewine-names-lt-gov-jon-husted-to-fil
 
 **Villa agree €7m deal to sign Levante right-back Garcia**\
 `Aston Villa have agreed a deal to sign Andres Garcia from Levante in a deal worth €7million (£5.`\
-https://nytimes.com/athletic/6070372/2025/01/17/aston-villa-transfer-garcia-deal-agre/
+https://nytimes.com/athletic/6070372/2025/01/17/aston-villa-transfer-garcia-deal-agree/
 
 **A 100-Year-Old Jazz Legend’s Solo Debut, and 11 More New Songs**\
 `Hear tracks by Perfume Genius, Lucy Dacus, Bartees Strange and others.`\
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/government-offic
 **5 Scenes That Define David Lynch’s Singular Vision**\
 `The director developed such a distinct style that “Lynchian” became a go-to term for any sort of surrealism onscreen. These scenes from his work get to the heart of what that term embodied.`\
 https://nytimes.com/2025/01/17/movies/david-lynch-death-lynchian.html
-
-**As Sasaki decision looms, Blue Jays acquire Straw, international bonus money from Guardians**\
-`Two teams with different agendas linked up for a trade that could boost Toronto’s chances of landing heralded pitcher Roki Sasaki.`\
-https://nytimes.com/athletic/6070221/2025/01/17/blue-jays-myles-straw-roki-sasaki/
-
-**A Mind at Ease, Away From the Distractions**\
-`Responses to an essay by Chris Hayes. Also: Evasiveness at cabinet hearings; politicizing aid for L.A.; reducing fire risks; ex-presidents together.`\
-https://nytimes.com/2025/01/17/opinion/mind-boredom-distractions.html
-
-**How Biden’s Inner Circle Protected a Faltering President**\
-`“Your biggest issue is the perception of age,” Mike Donilon, the president’s longtime strategist, told him in 2022, according to people who heard him.`\
-https://nytimes.com/2025/01/17/us/politics/biden-age.html
 
