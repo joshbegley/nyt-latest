@@ -1,3 +1,7 @@
+**Parents express mixed reactions to a potential TikTok ban.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/parents-express-mixed-reactions-to-a-potential-tiktok-ban
+
 **Fun facts about Bob Uecker and his amazing baseball life**\
 `Uecker left us with so many smiles that I wanted to pay tribute to his amazing baseball life with this collection of fun facts. `\
 https://nytimes.com/athletic/6069764/2025/01/17/bob-uecker-facts-baseball-tv-commercials/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/us/politics/tiktok-ban-what-to-know.html
 **Potential NBA Finals matchup? 5 lessons from both Cavs-Thunder games**\
 `What did the two Cavaliers-Thunder matchups this season teach us about this potential NBA Finals matchup? `\
 https://nytimes.com/athletic/6068746/2025/01/17/thunders-cavaliers-takeaways-nba-finals-potential/
-
-**World Health Organization looking to rebuild medical services as aid into Gaza increases.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/world-health-organization-looking-to-rebuild-medical-services-as-aid-into-gaza-increases
 
