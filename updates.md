@@ -1,3 +1,7 @@
+**More Than a Week After the Fires, Los Angeles Evacuees Remain in Limbo**\
+`Many neighborhoods are still off-limits to residents. Evacuees say they are increasingly frustrated and at a loss over what to do next.`\
+https://nytimes.com/2025/01/16/us/la-fires-evacuations-homes.html
+
 **China’s Population Declines for 3rd Straight Year**\
 `The fall came despite a slight rise in births last year, the first increase since 2016. State efforts to cajole women to have children have met resistance.`\
 https://nytimes.com/2025/01/16/business/china-population-births-deaths.html
