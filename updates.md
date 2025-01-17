@@ -1,3 +1,15 @@
+**Trump’s Advisers May Move His Swearing-in Indoors Because of Cold**\
+`The potential change, a rare break with tradition, would deny Mr. Trump the pomp and large audience he hoped for at his second swearing-in.`\
+https://nytimes.com/2025/01/17/us/politics/trump-indoor-inauguration.html
+
+**Leeds may need to act in January transfer window depending on Struijk injury**\
+`Leeds United may be forced into being active in the January transfer window following a new injury to key defender Pascal Struijk.`\
+https://nytimes.com/athletic/6069562/2025/01/17/leeds-struijk-injury-tranfer/
+
+**A TikTok Habit Is Hard to Break**\
+`Users of the app are panicking about the prospect of a ban. Experts who study social media addiction say it’s easy to see why.`\
+https://nytimes.com/2025/01/17/well/tiktok-addiction-ban.html
+
 **The government’s case for banning TikTok on national security grounds was light on examples.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-governments-case-for-banning-tiktok-on-national-security-grounds-was-light-on-examples
