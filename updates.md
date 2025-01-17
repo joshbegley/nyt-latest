@@ -1,3 +1,7 @@
+**The ‘Minister of Everything’ for Justin Trudeau Enters Race to Replace Him**\
+`Chrystia Freeland, the former deputy prime minister, sought to distance herself from Mr. Trudeau in a public letter criticizing him for “costly political gimmicks.”`\
+https://nytimes.com/2025/01/17/world/canada/chrystia-freeland-justin-trudeau-canada-prime-minister.html
+
 **Mailbag: Should USC be encouraged by Notre Dame and Penn State's CFP runs?**\
 `Who will be the program’s general manager? Who else could the Trojans add in the transfer portal? Who will they hire as linebackers coach?`\
 https://nytimes.com/athletic/6069350/2025/01/17/usc-football-notre-dame-penn-state-mailbag/
