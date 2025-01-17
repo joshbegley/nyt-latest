@@ -1,3 +1,7 @@
+**Dolphins to host first-ever NFL game in Madrid**\
+`The Dolphins will play at Santiago Bernabéu Stadium, home of Real Madrid. Their opponent has not been announced yet.`\
+https://nytimes.com/athletic/6066838/2025/01/17/dolphins-madrid-game/
+
 **L.A. Wildfires: A break from strong winds brings respite to a battered city.**\
 ``\
 https://nytimes.com/live/2025/01/17/us/los-angeles-wildfires-california
