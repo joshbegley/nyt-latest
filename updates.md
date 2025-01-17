@@ -1,3 +1,7 @@
+**Domenico Tedesco leaves position as Belgium head coach**\
+`Domenico Tedesco has left his position as Belgium head coach.`\
+https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager-sacked/
+
 **Domenico Tedesco sacked as Belgium head coach**\
 `Domenico Tedesco has been sacked as Belgium head coach.`\
 https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager-sacked/
