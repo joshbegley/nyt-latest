@@ -1,3 +1,7 @@
+**Vivek Ramaswamy Plans to Run for Ohio Governor**\
+`The entrepreneur will continue leading Donald J. Trump’s government efficiency project before turning his attention to a campaign.`\
+https://nytimes.com/2025/01/17/us/politics/vivek-ramaswamy-ohio-governor.html
+
 **Duke's Cooper Flagg signs multi-year deal with Fanatics**\
 `Flagg is already drawing big interest from basketball card collectors `\
 https://nytimes.com/athletic/6069958/2025/01/17/cooper-flagg-fanatics-duke-cards/

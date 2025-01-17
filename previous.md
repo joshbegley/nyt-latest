@@ -1,3 +1,7 @@
+**Vivek Ramaswamy Plans to Run for Ohio Governor**\
+`The entrepreneur will continue leading Donald J. Trump’s government efficiency project before turning his attention to a campaign.`\
+https://nytimes.com/2025/01/17/us/politics/vivek-ramaswamy-ohio-governor.html
+
 **Duke's Cooper Flagg signs multi-year deal with Fanatics**\
 `Flagg is already drawing big interest from basketball card collectors `\
 https://nytimes.com/athletic/6069958/2025/01/17/cooper-flagg-fanatics-duke-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/if-tiktok-is-ban
 **DeWine Names Lt. Gov. Jon Husted to Fill JD Vance’s Senate Seat**\
 `Vivek Ramaswamy, who was also seen as a possible replacement for the vice president-elect, is widely expected to run for governor of Ohio instead.`\
 https://nytimes.com/2025/01/17/us/politics/dewine-names-lt-gov-jon-husted-to-fill-jd-vances-senate-seat.html
-
-**Villa agree €7m deal to sign Levante right-back Garcia**\
-`Aston Villa have agreed a deal to sign Andres Garcia from Levante in a deal worth €7million (£5.`\
-https://nytimes.com/athletic/6070372/2025/01/17/aston-villa-transfer-garcia-deal-agree/
 
