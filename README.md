@@ -1,3 +1,19 @@
+**Aryna Sabalenka shows vulnerability, coffee wars intensify: Australian Open recap**\
+`The world No. 1 and defending women's champion has scratched through her early rounds.`\
+https://nytimes.com/athletic/6068539/2025/01/17/australian-open-takeaways-aryna-sabalenka-shows-vulnerability-coffee-wars-intensify-in-melbourne/
+
+**Will the Chargers' playoff struggles in the offensive trenches inform their offseason?**\
+`Yes, the Chargers need more offensive weapons, but it's also clear they need to upgrade their interior offensive line.`\
+https://nytimes.com/athletic/6067887/2025/01/17/chargers-offseason-needs-offensive-line/
+
+**Medicare to Negotiate Lower Prices for Weight-Loss Drugs**\
+`The government is expected to pay lower prices for Ozempic and Wegovy starting in 2027. The Trump administration will decide whether to expand coverage for millions of Americans.`\
+https://nytimes.com/2025/01/17/health/medicare-prices-ozempic-wegovy.html
+
+**Why the Josuar De Jesus Gonzalez signing matters for the Giants**\
+`Signing arguably the best non-Sasaki prospect in the international class is an indication of how far the Giants have come in Latin America.`\
+https://nytimes.com/athletic/6066789/2025/01/17/sf-giants-josuar-gonzalez-analysis/
+
 **Dozens of Gazans have been killed in Israeli strikes since the deal was announced, emergency officials say.**\
 `By Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/dozens-of-gazans-have-been-killed-in-israeli-strikes-since-the-deal-was-announced-emergency-officials-say
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6066838/2025/01/17/dolphins-madrid-game/
 **Bayern express interest in Dortmund's Gittens**\
 `Bayern Munich have expressed an interest over a summer transfer for Borussia Dortmund’s English winger Jamie Gittens.`\
 https://nytimes.com/athletic/6069084/2025/01/17/bayern-transfers-jamie-gittens-dortmund/
-
-**L.A. Wildfires: A break from strong winds brings respite to a battered city.**\
-``\
-https://nytimes.com/live/2025/01/17/us/los-angeles-wildfires-california
-
-**Why a football ground opened by Alex Ferguson is for sale on Rightmove for £500,000**\
-`Valley Road was the home of amateur side Flixton FC, but now it could be yours for just half a million`\
-https://nytimes.com/athletic/6063601/2025/01/17/football-ground-stadium-rightmove/
-
-**Brock Nelson? MacKenzie Weegar? What would a 'perfect' Jets deadline look like?**\
-`The Jets are an excellent team worthy of an all-in approach. Who should be their ideal targets at the trade deadline?`\
-https://nytimes.com/athletic/6064776/2025/01/17/jets-trade-deadline-2025-brock-nelson-mackenzie-weegar/
-
-**What does it cost to follow your team in the College Football Playoff?**\
-`It’s the first time fans have been asked to fling open their wallets to attend as many as four games as their teams marched toward a title.`\
-https://nytimes.com/athletic/6062589/2025/01/17/college-football-playoff-travel-cost-fans/
 
