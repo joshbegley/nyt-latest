@@ -1,3 +1,7 @@
+**Dozens of Gazans have been killed in Israeli strikes since the deal was announced, emergency officials say.**\
+`By Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/dozens-of-gazans-have-been-killed-in-israeli-strikes-since-the-deal-was-announced-emergency-officials-say
+
 **3 Lawyers for Navalny Sentenced for Passing Along His Correspondence**\
 `A Russian court said the lawyers for Aleksei Navalny, the country’s top opposition figure before his death in a penal colony last year, were guilty of involvement in an extremist group.`\
 https://nytimes.com/2025/01/17/world/europe/navalny-lawyers-sentenced-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064776/2025/01/17/jets-trade-deadline-2025-brock-n
 **What does it cost to follow your team in the College Football Playoff?**\
 `It’s the first time fans have been asked to fling open their wallets to attend as many as four games as their teams marched toward a title.`\
 https://nytimes.com/athletic/6062589/2025/01/17/college-football-playoff-travel-cost-fans/
-
-**FPL live Q&A: FPL Gameweek 22 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 22 Q&A between 4pm and 5pm GMT`\
-https://nytimes.com/athletic/6064194/2025/01/17/fantasy-premier-league-advice-gw22-tips/
 

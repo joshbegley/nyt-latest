@@ -1,3 +1,7 @@
+**Dozens of Gazans have been killed in Israeli strikes since the deal was announced, emergency officials say.**\
+`By Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/dozens-of-gazans-have-been-killed-in-israeli-strikes-since-the-deal-was-announced-emergency-officials-say
+
 **3 Lawyers for Navalny Sentenced for Passing Along His Correspondence**\
 `A Russian court said the lawyers for Aleksei Navalny, the country’s top opposition figure before his death in a penal colony last year, were guilty of involvement in an extremist group.`\
 https://nytimes.com/2025/01/17/world/europe/navalny-lawyers-sentenced-russia.html
