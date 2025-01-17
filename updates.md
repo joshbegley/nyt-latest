@@ -1,3 +1,7 @@
+**Holstein Kiel defend Tolkin move after criticism of social media activity**\
+`Bundesliga club Holstein Kiel have been forced to defend their signing of USMNT international John Tolkin following criticism of his social media activity.`\
+https://nytimes.com/athletic/6069104/2025/01/17/john-tolkin-transfer-holstein-kiel-social-media/
+
 **Jota a doubt for Brentford trip, says Slot**\
 `Diogo Jota is a fitness doubt for Liverpool&#8217;s Premier League trip to Brentford tomorrow.`\
 https://nytimes.com/athletic/6069135/2025/01/17/liverpool-diogo-jota-luis-diaz-brentford/

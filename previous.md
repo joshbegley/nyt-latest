@@ -1,3 +1,7 @@
+**Holstein Kiel defend Tolkin move after criticism of social media activity**\
+`Bundesliga club Holstein Kiel have been forced to defend their signing of USMNT international John Tolkin following criticism of his social media activity.`\
+https://nytimes.com/athletic/6069104/2025/01/17/john-tolkin-transfer-holstein-kiel-social-media/
+
 **Jota a doubt for Brentford trip, says Slot**\
 `Diogo Jota is a fitness doubt for Liverpool&#8217;s Premier League trip to Brentford tomorrow.`\
 https://nytimes.com/athletic/6069135/2025/01/17/liverpool-diogo-jota-luis-diaz-brentford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054481/2025/01/17/penn-state-james-franklin-2025-r
 **Joe Mazzulla shouldn't scapegoat Thunder or Cavaliers when Celtics are the problem**\
 `Mazzulla says the pressure on the Celtics is coming from comparisons to Cavs and Thunder: "Oh, you're not as good because you're not them."`\
 https://nytimes.com/athletic/6067776/2025/01/17/celtics-slump-thunder-cavaliers-joe-mazzulla/
-
-**On the Couch With Well’s Resident Therapist**\
-`Lori Gottlieb shares relationship tips from 15 years of clinical practice.`\
-https://nytimes.com/2025/01/17/well/therapist-advice-lori-gottlieb.html
 
