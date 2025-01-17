@@ -1,3 +1,7 @@
+**Naomi Osaka out of Australian Open after injury forces retirement against Belinda Bencic**\
+`MELBOURNE, Australia — Naomi Osaka is out of the Australian Open after the abdominal injury that forced her out of the ASB Classic final in Auckland, New Zealand recurred during her third-round match against Belinda Bencic.`\
+https://nytimes.com/athletic/6068977/2025/01/17/naomi-osaka-retires-from-australian-open-third-round-with-recurrence-of-abdominal-injury/
+
 **Oregon State topples No. 16 Gonzaga, 97-89, in OT**\
 `It was Oregon State’s 13th consecutive win over Gonzaga — granted, the last one came during the 1991-92 season.`\
 https://nytimes.com/athletic/6068933/2025/01/17/oregon-state-gonzaga-mens-college-basketball-upset/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066795/2025/01/17/how-eddie-howes-kept-newcastles-
 **Chelsea might sell Nkunku and are interested in Tel. Would doing a deal for both make sense?**\
 `Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel while his compatriot could go the other way`\
 https://nytimes.com/athletic/6064044/2025/01/17/chelsea-christopher-nkunku-mathys-tell-analysis/
-
-**The Brighton blip is over, not that anyone was panicking - this club have been here before**\
-`The club have endured streaks without victories before and still thrived, with Fabian Hurzeler reassured by performances in this latest run`\
-https://nytimes.com/athletic/6037263/2025/01/17/brighton-hurzeler-ipswich-winless-run/
 
