@@ -1,3 +1,7 @@
+**Jean Jennings, Who Wrote With Verve About Cars, Dies at 70**\
+`A cabdriver and mechanic before becoming a journalist, she brought personality and adventure to a once-staid genre. She once won a demolition derby and motorcycled across China.`\
+https://nytimes.com/2025/01/17/business/media/jean-jennings-dead.html
+
 **The Dylan-Chalamet Connection**\
 `A conversation about “A Complete Unknown” and the power of celebrity.`\
 https://nytimes.com/2025/01/17/arts/music/popcast-bob-dylan-timothee-chalamet.html
