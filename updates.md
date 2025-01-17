@@ -1,3 +1,7 @@
+**More draws, less running and launched goal-kicks: Tottenham need to be more boring**\
+`Ange Postecoglou's Tottenham play in the same gear regardless of the opposition or scoreline — this needs to change`\
+https://nytimes.com/athletic/6069111/2025/01/17/tottenham-postecoglou-tactics/
+
 **Domenico Tedesco leaves position as Belgium head coach**\
 `Domenico Tedesco has left his position as Belgium head coach.`\
 https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager-sacked/
