@@ -23,7 +23,7 @@ https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/world-heal
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-supreme-court-appeared-poised-to-uphold-the-law-when-it-heard-arguments-on-friday
 
 **Live Updates: Supreme Court Backs Law Requiring TikTok to Be Sold or Banned**\
-`The decision came a week after the justices heard a First Amendment challenge to a law aimed at the wildly popular short-form video platform used by 170 million Americans that the government fears could be influenced by the China.`\
+`The decision came a week after the justices heard a First Amendment challenge to a law aimed at the wildly popular short-form video platform used by 170 million Americans that the government fears could be influenced by China.`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court
 
 **Here’s the latest on the ruling.**\
