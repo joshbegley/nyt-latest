@@ -1,3 +1,11 @@
+**Discovering L.A., as L.A. Reels**\
+`Jesus Jiménez, who started covering Southern California in December, describes how reporting on the wildfires has helped him learn about the city.`\
+https://nytimes.com/2025/01/17/us/wildfires-discovering-los-angeles.html
+
+**Publishers and Authors Wonder: Can Anything Replace BookTok?**\
+`With a ban looming, publishers are hoping to pivot to new platforms, but readers fear their community of book lovers will never be the same.`\
+https://nytimes.com/2025/01/17/books/booktok-publishing.html
+
 **When the Word Is Not Just Flesh: Reporting on A.I. in Religion**\
 `A technology reporter came across a Facebook group called “A.I. for Church Leaders and Pastors,” and his interest was piqued.`\
 https://nytimes.com/2025/01/17/reader-center/ai-religion-journalism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6068702/2025/01/17/fantasy-trends-and-hidden-gems-j
 **Notre Dame is stronger than its odds against Ohio State indicate**\
 `It might take a lot for the Irish to pull an outright upset over the Buckeyes, but this game should be closer than the spread would indicate`\
 https://nytimes.com/athletic/6069619/2025/01/17/notre-dame-stronger-than-odds-against-ohio-state/
-
-**Here’s how to download your videos and data from TikTok.**\
-`Here are a few methods for users who want copies of the videos they personally uploaded or made on TikTok.`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-how-to-download-your-videos-and-data-from-tiktok
-
-**Can Erling Haaland break Alan Shearer's record of 260 Premier League goals?**\
-`The Norwegian's new nine-and-a-half-year contract gives him the chance to chase down the competition's all-time top scorer - will he do it?`\
-https://nytimes.com/athletic/6069581/2025/01/17/erling-haaland-premier-league-goal-shearer-kane-record/
 
