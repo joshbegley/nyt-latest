@@ -1,3 +1,7 @@
+**Iran’s Leader in Moscow to Sign Cooperation Treaty With Russia**\
+`The agreement will stop short of a military alliance, but it is expected to formalize an increasingly close relationship between Moscow and Tehran.`\
+https://nytimes.com/2025/01/17/world/europe/iran-russia-cooperation-treaty.html
+
 **Shrewsbury 2-1 Wrexham: New striker needed as major opportunity spurned**\
 `Wrexham blew the chance to go top of League One — next up, Birmingham City`\
 https://nytimes.com/athletic/6049270/2025/01/17/shrewsbury-wrexham-league-one/

@@ -1,3 +1,7 @@
+**Iran’s Leader in Moscow to Sign Cooperation Treaty With Russia**\
+`The agreement will stop short of a military alliance, but it is expected to formalize an increasingly close relationship between Moscow and Tehran.`\
+https://nytimes.com/2025/01/17/world/europe/iran-russia-cooperation-treaty.html
+
 **Biden Says He Urged Netanyahu to Accommodate Palestinians’ ‘Legitimate Concerns’**\
 `President Biden said in an MSNBC interview that he pushed Prime Minister Benjamin Netanyahu to prevent civilian deaths during the Gaza war. He also defended his steadfast support for Israel.`\
 https://nytimes.com/2025/01/17/world/middleeast/biden-interview-gaza-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/learning/hug.html
 **Why New York Is a Sanctuary City, and How That Could Change Under Trump**\
 `New York’s status as a sanctuary city for undocumented immigrants has shifted over time. Now, as President-elect Donald J. Trump prepares to enter office, it may shift once again.`\
 https://nytimes.com/2025/01/17/nyregion/sanctuary-city-nyc-trump.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/17/crosswords/spelling-bee-forum.html
 
