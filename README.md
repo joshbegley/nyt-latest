@@ -1,7 +1,3 @@
-**Bowden: The biggest winners and losers of the MLB offseason so far**\
-`Takeaways on the teams, players, executives and more that have been among the stories of the offseason — for good reasons, and bad.`\
-https://nytimes.com/athletic/6069080/2025/01/17/mlb-offseason-winners-losers-2024-25/
-
 **E.U. Expands Investigation of X Over Spread of Illicit Content**\
 `The probe is a test of the European Union’s willingness to go after X’s owner, Elon Musk, whose geopolitical influence has grown because of his ties to the incoming Trump administration.`\
 https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6068858/2025/01/17/cavaliers-cam-johnson-trade-inte
 **Aryna Sabalenka shows vulnerability, coffee wars intensify: Australian Open recap**\
 `The world No. 1 and defending women's champion has scratched through her early rounds.`\
 https://nytimes.com/athletic/6068539/2025/01/17/aryna-sabalenka-australian-open-melbourne-coffee/
+
+**Will the Chargers' playoff struggles in the offensive trenches inform their offseason?**\
+`Yes, the Chargers need more offensive weapons, but it's also clear they need to upgrade their interior offensive line.`\
+https://nytimes.com/athletic/6067887/2025/01/17/chargers-offseason-needs-offensive-line/
 
