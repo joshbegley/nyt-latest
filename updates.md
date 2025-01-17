@@ -1,3 +1,15 @@
+**In Canada’s ‘Suburb of Detroit,’ Fears Over Trump’s Tariff Threat**\
+`The president-elect’s vow to impose 25 percent duties on Canadian imports could ravage Canada’s auto industry and decimate Windsor, a city deeply tied to the U.S.`\
+https://nytimes.com/2025/01/17/world/canada/trump-tariffs-windsor-autos.html
+
+**Submit your Minnesota Vikings questions now for beat writer Alec Lewis**\
+`Oh, how quickly things can change in a week. The Vikings’ offseason is here, and there is plenty to discuss.`\
+https://nytimes.com/athletic/6070828/2025/01/17/minnesota-vikings-mailbag-alec-lewis-2/
+
+**PSG complete signing of Kvaratskhelia from Napoli**\
+`Paris Saint-Germain have completed the signing of Khvicha Kvaratskhelia from Napoli.`\
+https://nytimes.com/athletic/6050714/2025/01/17/khvicha-kvaratskhelia-psg-transfer-napoli/
+
 **The Biden administration archives a website devoted to reproductive rights.**\
 `The website, ReproductiveRights.gov, offered information on matters such as birth control, medication abortion, and emergency abortion care.`\
 https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/biden-administration-archives-site-devoted-to-reproductive-rights
