@@ -1,3 +1,7 @@
+**3 Lawyers for Navalny Sentenced for Passing Along His Correspondence**\
+`A Russian court said the lawyers for Aleksei Navalny, the country’s top opposition figure before his death in a penal colony last year, were guilty of involvement in an extremist group.`\
+https://nytimes.com/2025/01/17/world/europe/navalny-lawyers-sentenced-russia.html
+
 **More draws, less running and launched goal-kicks: Tottenham need to be more boring**\
 `Ange Postecoglou's Tottenham play in the same gear regardless of the opposition or scoreline — this needs to change`\
 https://nytimes.com/athletic/6069111/2025/01/17/tottenham-postecoglou-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062589/2025/01/17/college-football-playoff-travel-
 **FPL live Q&A: FPL Gameweek 22 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 22 Q&A between 4pm and 5pm GMT`\
 https://nytimes.com/athletic/6064194/2025/01/17/fantasy-premier-league-advice-gw22-tips/
-
-**The Athletic’s Friday football quiz question #38**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6069121/2025/01/17/the-athletic-friday-football-quiz-question-38/
 
