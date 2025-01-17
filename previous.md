@@ -1,3 +1,7 @@
+**More Than a Week After the Fires, Los Angeles Evacuees Remain Stuck in Limbo**\
+`Many neighborhoods are still off-limits to residents. Evacuees say they are increasingly frustrated and at a loss over what to do next.`\
+https://nytimes.com/2025/01/16/us/la-fires-evacuations-homes.html
+
 **Tom Brady committed to Fox NFL broadcasting contract despite growing role with Raiders**\
 `Brady, Fox and the NFL agreed to put extensive restrictions on what he’s allowed to do because of his minority ownership in the Raiders.`\
 https://nytimes.com/athletic/6068502/2025/01/16/tom-brady-fox-broadcasting-contract-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/business/china-economy-2024-gdp.html
 **‘Back in Action’ Review: Surprise! Mom and Dad Are Spies**\
 `Cameron Diaz and Jamie Foxx star as former agents, now parents, who must protect their children. You can guess the rest.`\
 https://nytimes.com/2025/01/16/movies/back-in-action-review.html
-
-**Impressionism: Le Quiz!**\
-`It’s been 150 years since Monet and the Impressionists shocked Paris with their rebellious Société Anonyme show. How well do you know those once-revolutionary smudges?`\
-https://nytimes.com/interactive/2025/01/16/arts/design/impressionism-quiz.html
 
