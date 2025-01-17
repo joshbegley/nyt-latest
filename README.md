@@ -1,3 +1,7 @@
+**DOE memo says NIL payments must be proportionate between male, female athletes**\
+`A new administration could rescind the OCR’s guidance or it could be challenged in court.`\
+https://nytimes.com/athletic/6068325/2025/01/16/department-of-education-title-ix-nil-memo/
+
 **In His Dark, Disturbing Visions, David Lynch Showed Us Who We Are**\
 `The director himself came off as almost performatively normal. Masterpieces like “Eraserhead” and “Mulholland Drive” said otherwise.`\
 https://nytimes.com/2025/01/16/movies/david-lynch-eraserhead-mulholland-drive.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/arts/television/david-lynch-twin-peaks.html
 **Eric Adams Heads to Mar-a-Lago to Meet With Trump**\
 `The New York mayor, who is under federal indictment, has spoken warmly about President-elect Donald J. Trump in recent weeks and has said he is open to receiving a pardon from him.`\
 https://nytimes.com/2025/01/16/nyregion/eric-adams-trump-mar-a-lago.html
-
-**Stick-Wielding Man Kills 2 Homeless People in Miami and Injures 2 Others**\
-`A suspect has been arrested as the police investigate the motive for what they called an unprovoked attack.`\
-https://nytimes.com/2025/01/16/us/miami-arrest-homeless-deaths.html
 
