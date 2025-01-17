@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-w
 https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xavi-barcelona/
 
 **Pam Shriver says 11 Grand Slam trophies stolen during L.A. fire evacuation**\
-`Shriver still has possession of five of her Wimbledon doubles trophies.`\
+`Shriver still has possession of her five Wimbledon doubles trophies.`\
 https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/
 
 **Which are the best seats in the house at a new stadium? The ones next to your friends, of course**\
