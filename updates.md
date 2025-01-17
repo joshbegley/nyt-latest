@@ -1,3 +1,7 @@
+**Shrewsbury 2-1 Wrexham: New striker needed as major opportunity spurned**\
+`Wrexham blew the chance to go top of League One — next up, Birmingham City`\
+https://nytimes.com/athletic/6049270/2025/01/17/shrewsbury-wrexham-league-one/
+
 **Biden Says He Urged Netanyahu to Accommodate Palestinians’ ‘Legitimate Concerns’**\
 `President Biden said in an MSNBC interview that he pushed Prime Minister Benjamin Netanyahu to prevent civilian deaths during the Gaza war. He also defended his steadfast support for Israel.`\
 https://nytimes.com/2025/01/17/world/middleeast/biden-interview-gaza-netanyahu.html
