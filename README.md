@@ -1,3 +1,7 @@
+**In Canada’s ‘Suburb of Detroit,’ Fears Over Trump’s Tariff Threat**\
+`The president-elect’s vow to impose 25 percent duties on Canadian imports could ravage Canada’s auto industry and decimate Windsor, a city deeply tied to the U.S.`\
+https://nytimes.com/2025/01/17/world/canada/trump-tariffs-windsor-autos.html
+
 **Submit your Minnesota Vikings questions now for beat writer Alec Lewis**\
 `Oh, how quickly things can change in a week. The Vikings’ offseason is here, and there is plenty to discuss.`\
 https://nytimes.com/athletic/6070828/2025/01/17/minnesota-vikings-mailbag-alec-lewis-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/world/canada/canada-trump-tariffs.html
 **Behind the Scenes at Davos**\
 `Planning and managing the World Economic Forum’s annual meeting is a huge task, and the work for next year’s event will begin as soon as this one ends.`\
 https://nytimes.com/2025/01/17/business/world-economic-forum-davos.html
-
-**Will Trump and Davos Herald a New World Disorder?**\
-`Among the issues likely to be explored at the World Economic Forum this week is the future of Ukraine and its impact on Europe.`\
-https://nytimes.com/2025/01/17/business/trump-davos-europe.html
 
