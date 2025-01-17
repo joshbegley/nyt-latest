@@ -1,3 +1,7 @@
+**Biden Says He Urged Netanyahu to Accommodate Palestinians’ ‘Legitimate Concerns’**\
+`President Biden said in an MSNBC interview that he pushed Prime Minister Benjamin Netanyahu to prevent civilian deaths during the Gaza war. He also defended his steadfast support for Israel.`\
+https://nytimes.com/2025/01/17/world/middleeast/biden-interview-gaza-netanyahu.html
+
 **Shrewsbury 2-1 Wrexham: New striker needed as major opportunity spurned**\
 `Wrexham blew the chance to go top of League One - next up, Birmingham City`\
 https://nytimes.com/athletic/6049270/2025/01/17/shrewsbury-wrexham-league-one/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/nyregion/sanctuary-city-nyc-trump.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/17/crosswords/spelling-bee-forum.html
-
-**Haaland signs new nine-and-a-half-year contract at Man City**\
-`Erling Haaland has committed the vast majority of his career to Manchester City by signing an extraordinary new contract that will keep him at the Etihad Stadium until the summer of 2034.`\
-https://nytimes.com/athletic/6066077/2025/01/17/erling-haaland-man-city-contract-new/
 
