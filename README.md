@@ -1,3 +1,7 @@
+**D.E.I. on the Ropes Ahead of the Next Trump Era**\
+`Corporate policies concerning diversity, equity and inclusion, already under pressure from conservatives, are facing greater threats from allies of the president-elect.`\
+https://nytimes.com/2025/01/17/business/dei-trump-meta-zuckerberg.html
+
 **Sources: Cavaliers interested in Nets' Cam Johnson to address perimeter struggles**\
 `The Cavs have the best offense in the NBA, but Darius Garland and Donovan Mitchell struggle against bigger, more physical players.`\
 https://nytimes.com/athletic/6068858/2025/01/17/cavaliers-cam-johnson-trade-interest-nba-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069111/2025/01/17/tottenham-postecoglou-tactics/
 **Domenico Tedesco leaves position as Belgium head coach**\
 `Domenico Tedesco has left his position as Belgium head coach.`\
 https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager-sacked/
-
-**Dolphins to host first-ever NFL game in Madrid**\
-`The Dolphins will play at Santiago Bernabéu Stadium, home of Real Madrid. Their opponent has not been announced yet.`\
-https://nytimes.com/athletic/6066838/2025/01/17/dolphins-madrid-game/
 
