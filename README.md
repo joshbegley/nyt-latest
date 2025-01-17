@@ -1,3 +1,11 @@
+**Can He Do That? Here’s What Biden’s Move on the Equal Rights Amendment Means.**\
+`Presidents have no direct role in approving constitutional amendments. So what could President Biden’s pronouncement recognizing a new one actually do?`\
+https://nytimes.com/2025/01/17/us/politics/biden-equal-rights-amendment-explained.html
+
+**Freed Cuban Dissident: The Church and Biden Got Duped**\
+`Hundreds more Cuban dissidents are expected to be released in the coming days in a deal with President Biden, but even a top beneficiary is balking.`\
+https://nytimes.com/2025/01/17/us/biden-cuban-prisoners-church.html
+
 **TikTok Evaded a Ban Again and Again, Until Now**\
 `After a decisive loss at the Supreme Court, the app is set to be blocked in the U.S. starting Sunday, ending its streak of Houdini-like escapes.`\
 https://nytimes.com/2025/01/17/technology/tiktok-ban-sale-supreme-court.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6050714/2025/01/17/khvicha-kvaratskhelia-psg-transf
 **What Happens When the TikTok Economy Dies?**\
 `The outcry over the app’s ban is really about economic security.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/tiktok-influencer-economy
-
-**The Biden administration archives a website devoted to reproductive rights.**\
-`The website, ReproductiveRights.gov, offered information on matters such as birth control, medication abortion, and emergency abortion care.`\
-https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/biden-administration-archives-site-devoted-to-reproductive-rights
-
-**Sun Belt fines Marshall $100,000 for opting out of bowl game vs. Army**\
-`Marshall withdrew from the Dec. 28 game on Dec. 14 due to a roster depleted by the transfer portal and a head coaching change.`\
-https://nytimes.com/athletic/6070731/2025/01/17/sun-belt-fines-marshall-opting-out-bowl-army/
 
