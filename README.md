@@ -1,3 +1,15 @@
+**Mailbag: Should USC be encouraged by Notre Dame and Penn State's CFP runs?**\
+`Who will be the program’s general manager? Who else could the Trojans add in the transfer portal? Who will they hire as linebackers coach?`\
+https://nytimes.com/athletic/6069350/2025/01/17/usc-football-notre-dame-penn-state-mailbag/
+
+**Amorim warns remainder of Man United season will be a 'rollercoaster'**\
+`Ruben Amorim believes the remainder of Manchester United&#8217;s &#8220;hard&#8221; season will be a &#8220;rollercoaster&#8221; but that performances will improve with more training sessions.`\
+https://nytimes.com/athletic/6069174/2025/01/17/ruben-amorim-manchester-united-performances/
+
+**Davies could return for Spurs vs Everton, Johnson and Bissouma doubts**\
+`Ben Davies is in contention to return for Tottenham Hotspur&#8217;s trip to Everton on Sunday, but Brennan Johnson and Yves Bissouma are injury doubts.`\
+https://nytimes.com/athletic/6069398/2025/01/17/davies-johnson-bissouma-tottenham-injury-update/
+
 **D.E.I. on the Ropes Ahead of the Next Trump Era**\
 `Corporate policies concerning diversity, equity and inclusion, already under pressure from conservatives, are facing greater threats from allies of the president-elect.`\
 https://nytimes.com/2025/01/17/business/dei-trump-meta-zuckerberg.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6066789/2025/01/17/sf-giants-josuar-gonzalez-analys
 **Dozens of Gazans have been killed in Israeli strikes since the deal was announced, emergency officials say.**\
 `By Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/dozens-of-gazans-have-been-killed-in-israeli-strikes-since-the-deal-was-announced-emergency-officials-say
-
-**3 Lawyers for Navalny Sentenced for Passing Along His Correspondence**\
-`A Russian court said the lawyers for Aleksei Navalny, the country’s top opposition figure before his death in a penal colony last year, were guilty of involvement in an extremist group.`\
-https://nytimes.com/2025/01/17/world/europe/navalny-lawyers-sentenced-russia.html
-
-**More draws, less running and launched goal-kicks: Tottenham need to be more boring**\
-`Ange Postecoglou's Tottenham play in the same gear regardless of the opposition or scoreline — this needs to change`\
-https://nytimes.com/athletic/6069111/2025/01/17/tottenham-postecoglou-tactics/
-
-**Domenico Tedesco leaves position as Belgium head coach**\
-`Domenico Tedesco has left his position as Belgium head coach.`\
-https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager-sacked/
 
