@@ -1,3 +1,15 @@
+**Bayern close to agreement with Davies over new contract**\
+`Bayern Munich are close to an agreement with Alphonso Davies over a new contract.`\
+https://nytimes.com/athletic/6070539/2025/01/17/bayern-munich-alphonso-davies-contract-new/
+
+**Canada’s Plan for a Trade War: Pain for Red States and Trump Allies**\
+`Canadian officials are preparing retaliatory measures if the new U.S. administration imposes tariffs on Canadian imports.`\
+https://nytimes.com/2025/01/17/world/canada/canada-trump-tariffs.html
+
+**Oracle May Hold TikTok’s Future in Its Hands**\
+`The company is one of the app’s leading server providers, managing the data centers where billions of 40-second videos are stored.`\
+https://nytimes.com/2025/01/17/business/oracle-tiktok-ban.html
+
 **Behind the Scenes at Davos**\
 `Planning and managing the World Economic Forum’s annual meeting is a huge task, and the work for next year’s event will begin as soon as this one ends.`\
 https://nytimes.com/2025/01/17/business/world-economic-forum-davos.html
