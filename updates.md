@@ -1,3 +1,7 @@
+**Amad continues to set the standard for Ruben Amorim's Manchester United**\
+`Amad embodies many of the traits Amorim wants from his team, and against Southampton he dug them out of another hole`\
+https://nytimes.com/athletic/6068639/2025/01/17/amad-manchester-united-southampton-hattrick/
+
 **Word of the Day: jeremiad**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/17/learning/word-of-the-day-jeremiad.html
