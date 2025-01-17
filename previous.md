@@ -1,3 +1,19 @@
+**The Dylan-Chalamet Connection**\
+`A conversation about “A Complete Unknown” and the power of celebrity.`\
+https://nytimes.com/2025/01/17/arts/music/popcast-bob-dylan-timothee-chalamet.html
+
+**Appeals Court Rules Obama-Era Immigration Program Is Unlawful**\
+`But the judges stayed their ruling and for now, hundreds of thousands of DACA recipients will continue to have protection from deportation.`\
+https://nytimes.com/2025/01/17/us/daca-immigration-deportation.html
+
+**Jean Jennings, Who Wrote With Verve About Cars, Dies at 70**\
+`A cabdriver and mechanic before becoming a journalist, she brought personality and adventure to a once-staid genre.`\
+https://nytimes.com/2025/01/17/business/media/jean-jennings-dead.html
+
+**American Airlines Accused of Discrimination by Interracial Couple**\
+`In a lawsuit, two newlyweds say they were detained after a passenger and airline employees wrongly suspected the Black husband of trafficking his white wife.`\
+https://nytimes.com/2025/01/17/travel/american-airlines-discrimination.html
+
 **What the Cease-Fire Deal Really Means**\
 `After initial celebrations, challenges will be enormous as the terms of the Israel-Hamas cease-fire progress.`\
 https://nytimes.com/2025/01/17/opinion/gaza-israel-hamas-hostages-cease-fire.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/17/us/sonya-massey-shooting-sheriff-investigation.ht
 **Report Projecting Drop in Freshman Enrollment Delivered Incorrect Findings**\
 `The National Student Clearinghouse, which produced the report, reversed its conclusions after identifying methodological errors in its research.`\
 https://nytimes.com/2025/01/17/us/politics/college-freshman-enrollment-error.html
-
-**USMNT's Pulisic to miss AC Milan clash with Juventus due to muscle fatigue**\
-`USMNT captain Christian Pulisic will miss AC Milan’s Serie A clash with Juventus on Saturday due to an injury, his manager Sergio Conceicao confirmed.`\
-https://nytimes.com/athletic/6070930/2025/01/17/usmnt-pulisic-milan-juventus-injury/
-
-**U.S. Drops Corruption Case Against New York’s Former Lieutenant Governor**\
-`Brian Benjamin had been accused of funneling state money to a real estate developer in exchange for campaign contributions. A key witness in the case has died.`\
-https://nytimes.com/2025/01/17/nyregion/brian-benjamin-corruption-case-dropped.html
-
-**The Supreme Court Cleared the Way for U.S. to Ban TikTok**\
-`Also, Trump said it will be too cold for an outdoor inauguration. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/01/17/briefing/supreme-court-tik-tok-trump-inauguration.html
-
-**The Inner Thoughts of a Nation Heading Into the Next Trump Era**\
-`As Inauguration Day draws near, millions are wondering, hoping, worrying about what the coming changes will mean for their daily lives.`\
-https://nytimes.com/interactive/2025/01/17/us/trump-president-reaction.html
 

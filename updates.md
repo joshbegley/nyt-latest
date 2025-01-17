@@ -1,3 +1,19 @@
+**The Dylan-Chalamet Connection**\
+`A conversation about “A Complete Unknown” and the power of celebrity.`\
+https://nytimes.com/2025/01/17/arts/music/popcast-bob-dylan-timothee-chalamet.html
+
+**Appeals Court Rules Obama-Era Immigration Program Is Unlawful**\
+`But the judges stayed their ruling and for now, hundreds of thousands of DACA recipients will continue to have protection from deportation.`\
+https://nytimes.com/2025/01/17/us/daca-immigration-deportation.html
+
+**Jean Jennings, Who Wrote With Verve About Cars, Dies at 70**\
+`A cabdriver and mechanic before becoming a journalist, she brought personality and adventure to a once-staid genre.`\
+https://nytimes.com/2025/01/17/business/media/jean-jennings-dead.html
+
+**American Airlines Accused of Discrimination by Interracial Couple**\
+`In a lawsuit, two newlyweds say they were detained after a passenger and airline employees wrongly suspected the Black husband of trafficking his white wife.`\
+https://nytimes.com/2025/01/17/travel/american-airlines-discrimination.html
+
 **What the Cease-Fire Deal Really Means**\
 `After initial celebrations, challenges will be enormous as the terms of the Israel-Hamas cease-fire progress.`\
 https://nytimes.com/2025/01/17/opinion/gaza-israel-hamas-hostages-cease-fire.html
