@@ -1,3 +1,7 @@
+**NASL v MLS trial promises key insight into U.S. soccer, with $500m at stake**\
+`American soccer eagerly awaits the findings of the heavyweight court battle, which includes conspiracy charges and famous names`\
+https://nytimes.com/athletic/6068165/2025/01/17/nasl-mls-trial/
+
 **Real Madrid 5-2 Celta Vigo: Endrick the unexpected hero on fraught night at the Bernabeu**\
 `Real Madrid responded to their Super Cup defeat to Barcelona with a 5-2 victory of their own — although it was not an entirely smooth ride`\
 https://nytimes.com/athletic/6068519/2025/01/17/madrid-celta-endrick-ancelotti/
