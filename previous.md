@@ -1,3 +1,11 @@
+**The Ultimate Neko Case Primer**\
+`Listen to 10 songs by the golden voiced, poetic singer-songwriter.`\
+https://nytimes.com/2025/01/17/arts/music/amplifier-newsletter-neko-case.html
+
+**Leaders of Historians’ Group Veto Measure Condemning ‘Scholasticide’ in Gaza**\
+`The American Historical Association’s council rejected a resolution condemning Israel’s actions in Gaza, which have destroyed much of the enclave’s educational system.`\
+https://nytimes.com/2025/01/17/arts/historians-group-veto-gaza.html
+
 **Who Is Behind RedNote, the Chinese App Attracting TikTok Users?**\
 `Until this week, the app was little known outside of China.`\
 https://nytimes.com/2025/01/17/us/politics/tiktok-ban-rednote-owner.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6070372/2025/01/17/aston-villa-transfer-garcia-deal
 **A 100-Year-Old Jazz Legend’s Solo Debut, and 11 More New Songs**\
 `Hear tracks by Perfume Genius, Lucy Dacus, Bartees Strange and others.`\
 https://nytimes.com/2025/01/17/arts/music/playlist-marshall-allen-lucy-dacus-bartees-strange.html
-
-**Government officials react to the looming TikTok ban.**\
-`By David McCabe and Maya C. Miller`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/government-officials-react-to-the-looming-tiktok-ban
-
-**5 Scenes That Define David Lynch’s Singular Vision**\
-`The director developed such a distinct style that “Lynchian” became a go-to term for any sort of surrealism onscreen. These scenes from his work get to the heart of what that term embodied.`\
-https://nytimes.com/2025/01/17/movies/david-lynch-death-lynchian.html
 
