@@ -1,3 +1,7 @@
+**The New York Times News Quiz, Jan. 17, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/01/17/briefing/quiz-tiktok-ceasefire-trump-biden-lynch.html
+
 **Tony Mowbray finalising West Brom return after cancer all-clear**\
 `Tony Mowbray is expected to return to West Bromwich Albion as head coach, almost 16 years after he left the Hawthorns for Celtic and just a few days after being given the all-clear from cancer.`\
 https://nytimes.com/athletic/6019313/2025/01/17/west-brom-manager-tony-mowbray/
