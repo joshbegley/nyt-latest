@@ -1,3 +1,7 @@
+**Domenico Tedesco sacked as Belgium head coach**\
+`Domenico Tedesco has been sacked as Belgium head coach.`\
+https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager-sacked/
+
 **Dolphins to host first-ever NFL game in Madrid**\
 `The Dolphins will play at Santiago Bernabéu Stadium, home of Real Madrid. Their opponent has not been announced yet.`\
 https://nytimes.com/athletic/6066838/2025/01/17/dolphins-madrid-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069121/2025/01/17/the-athletic-friday-football-qui
 **Goodbye TikTok, Ni Hao RedNote? + A.I.’s Environmental Impact + Meta’s Masculine Energy**\
 `“This is truly one of the funniest and most unexpected stories of the young year so far.”`\
 https://nytimes.com/2025/01/17/podcasts/hardfork-tiktok-rednote-environment.html
-
-**Duran fined but avoids ban for water bottle incident**\
-`Aston Villa forward Jhon Duran has been fined £15,000 ($18,300) by the Football Association (FA) after kicking a water bottle during his side’s Premier League game against Newcastle United on Boxing Day.`\
-https://nytimes.com/athletic/6069239/2025/01/17/aston-villa-jhon-duran-fa-charge-fine/
 

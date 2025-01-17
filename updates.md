@@ -1,3 +1,7 @@
+**Domenico Tedesco sacked as Belgium head coach**\
+`Domenico Tedesco has been sacked as Belgium head coach.`\
+https://nytimes.com/athletic/6069277/2025/01/17/domenico-tedesco-belgium-manager-sacked/
+
 **Dolphins to host first-ever NFL game in Madrid**\
 `The Dolphins will play at Santiago Bernabéu Stadium, home of Real Madrid. Their opponent has not been announced yet.`\
 https://nytimes.com/athletic/6066838/2025/01/17/dolphins-madrid-game/
