@@ -1,3 +1,7 @@
+**The Biden administration archives a website devoted to reproductive rights.**\
+`The website, ReproductiveRights.gov, offered information on matters such as birth control, medication abortion, and emergency abortion care.`\
+https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/biden-administration-archives-site-devoted-to-reproductive-rights
+
 **What Happens When the TikTok Economy Dies?**\
 `The outcry over the app’s ban is really about economic security.`\
 https://nytimes.com/live/2025/01/09/opinion/thepoint/tiktok-influencer-economy
