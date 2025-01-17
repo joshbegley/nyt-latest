@@ -1,3 +1,12 @@
+**Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
+`Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
+`\
+https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
+
+**U.S. to Deploy ‘Extraordinary Measures’ to Avoid Default on Jan. 21**\
+`Janet L. Yellen, the outgoing Treasury secretary, urged lawmakers to raise the debt limit and protect the full faith and credit of the United States.`\
+https://nytimes.com/2025/01/17/us/politics/debt-default-jan-21-yellen-treasury.html
+
 **In Canada’s ‘Suburb of Detroit,’ Fears Over Trump’s Tariff Threat**\
 `The president-elect’s vow to impose 25 percent duties on Canadian imports could ravage Canada’s auto industry and decimate Windsor, a city deeply tied to the U.S.`\
 https://nytimes.com/2025/01/17/world/canada/trump-tariffs-windsor-autos.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6067648/2025/01/17/zay-flowers-knee-injury-practice
 **Bayern close to agreement with Davies over new contract**\
 `Bayern Munich are close to an agreement with Alphonso Davies over a new contract.`\
 https://nytimes.com/athletic/6070539/2025/01/17/bayern-munich-alphonso-davies-contract-new/
-
-**Canada’s Plan for a Trade War: Pain for Red States and Trump Allies**\
-`Canadian officials are preparing retaliatory measures if the new U.S. administration imposes tariffs on Canadian imports.`\
-https://nytimes.com/2025/01/17/world/canada/canada-trump-tariffs.html
-
-**Behind the Scenes at Davos**\
-`Planning and managing the World Economic Forum’s annual meeting is a huge task, and the work for next year’s event will begin as soon as this one ends.`\
-https://nytimes.com/2025/01/17/business/world-economic-forum-davos.html
 
