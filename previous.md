@@ -1,3 +1,11 @@
+**Neil Gaiman, ‘Babygirl’ and the Ethics of Social Liberalism**\
+`The tortured quest for a morality both liberated and safe.`\
+https://nytimes.com/2025/01/17/opinion/neil-gaiman-babygirl.html
+
+**Readers Share Their Near-Death Experiences**\
+`After the death of Peter Fenwick, a neuropsychiatrist who studied near-death experiences, readers shared stories of their own.`\
+https://nytimes.com/2025/01/17/science/near-death-experiences.html
+
 **Vivek Ramaswamy Plans to Run for Ohio Governor**\
 `The entrepreneur will continue leading Donald J. Trump’s government efficiency project before turning his attention to a campaign.`\
 https://nytimes.com/2025/01/17/us/politics/vivek-ramaswamy-ohio-governor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/17/us/politics/red-note-a-chinese-app-is-dominating-
 **Scoop City: How the Bills, Commanders and other underdogs win this weekend**\
 `What each underdog can do to win this weekend, plus how the Lions, Chiefs, Ravens and Eagles can stop them`\
 https://nytimes.com/athletic/6070237/2025/01/17/nfl-divisional-round-preview-upset-watch-scoop-city/
-
-**If TikTok is banned, can I still use it?**\
-`By Eli Tan`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/if-tiktok-is-banned-can-i-still-use-it
-
-**DeWine Names Lt. Gov. Jon Husted to Fill JD Vance’s Senate Seat**\
-`Vivek Ramaswamy, who was also seen as a possible replacement for the vice president-elect, is widely expected to run for governor of Ohio instead.`\
-https://nytimes.com/2025/01/17/us/politics/dewine-names-lt-gov-jon-husted-to-fill-jd-vances-senate-seat.html
 

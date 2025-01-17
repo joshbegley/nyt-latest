@@ -1,3 +1,11 @@
+**Neil Gaiman, ‘Babygirl’ and the Ethics of Social Liberalism**\
+`The tortured quest for a morality both liberated and safe.`\
+https://nytimes.com/2025/01/17/opinion/neil-gaiman-babygirl.html
+
+**Readers Share Their Near-Death Experiences**\
+`After the death of Peter Fenwick, a neuropsychiatrist who studied near-death experiences, readers shared stories of their own.`\
+https://nytimes.com/2025/01/17/science/near-death-experiences.html
+
 **Vivek Ramaswamy Plans to Run for Ohio Governor**\
 `The entrepreneur will continue leading Donald J. Trump’s government efficiency project before turning his attention to a campaign.`\
 https://nytimes.com/2025/01/17/us/politics/vivek-ramaswamy-ohio-governor.html
