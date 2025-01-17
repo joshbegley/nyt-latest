@@ -1,3 +1,8 @@
+**Wild to ask Kaprizov to change his ways, Faber's and Lauko's returns, redemption vs. L'Heureux?**\
+`Kirill Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatment and pushed-back timetables.
+`\
+https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheureux/
+
 **USMNT's Pulisic to miss AC Milan clash with Juventus due to muscle fatigue**\
 `USMNT captain Christian Pulisic will miss AC Milan’s Serie A clash with Juventus on Saturday due to an injury, his manager Sergio Conceicao confirmed.`\
 https://nytimes.com/athletic/6070930/2025/01/17/usmnt-pulisic-milan-juventus-injury/
