@@ -3,7 +3,7 @@
 https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
 
 **Row Z: Chelsea are back, bargain Neymar and Ray Parlour's war of two halves**\
-`Our weekly round-up of soccer's sillier side featuring straight-talking players and managers alike, and the logic in signing Neymar`\
+`Our weekly round-up of soccer's sillier side featuring straight-talking players and managers alike and the logic in signing Neymar`\
 https://nytimes.com/athletic/6069142/2025/01/17/chelsea-neymar-chalobah-parlour-row-z/
 
 **The ‘Minister of Everything’ for Justin Trudeau Enters Race to Replace Him**\

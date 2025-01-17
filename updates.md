@@ -1,3 +1,7 @@
+**Row Z: Chelsea are back, bargain Neymar and Ray Parlour's war of two halves**\
+`Our weekly round-up of soccer's sillier side featuring straight-talking players and managers alike and the logic in signing Neymar`\
+https://nytimes.com/athletic/6069142/2025/01/17/chelsea-neymar-chalobah-parlour-row-z/
+
 **E.U. Expands Investigation of X Over Spread of Illicit Content**\
 `The probe is a test of the European Union’s willingness to go after X’s owner, Elon Musk, whose geopolitical influence has grown because of his ties to the incoming Trump administration.`\
 https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
