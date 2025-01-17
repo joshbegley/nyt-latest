@@ -1,3 +1,7 @@
+**NHL Power Rankings: The top 10 gets a total shake-up**\
+`This week, we offer no razzle-dazzle and no glitzy themes. It's back to basics for the Rankings Boys.`\
+https://nytimes.com/athletic/6068961/2025/01/17/nhl-power-rankings-capitals-ovechkin-goals-race/
+
 **I.M.F. Raises U.S. Economic Forecast as Other Regions Lag**\
 `It is projecting 2.7 percent growth for 2025. But uncertainty about pending Trump policies looms over the global economic trajectory.`\
 https://nytimes.com/2025/01/17/business/imf-world-economic-outlook.html

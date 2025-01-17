@@ -1,3 +1,7 @@
+**NHL Power Rankings: The top 10 gets a total shake-up**\
+`This week, we offer no razzle-dazzle and no glitzy themes. It's back to basics for the Rankings Boys.`\
+https://nytimes.com/athletic/6068961/2025/01/17/nhl-power-rankings-capitals-ovechkin-goals-race/
+
 **I.M.F. Raises U.S. Economic Forecast as Other Regions Lag**\
 `It is projecting 2.7 percent growth for 2025. But uncertainty about pending Trump policies looms over the global economic trajectory.`\
 https://nytimes.com/2025/01/17/business/imf-world-economic-outlook.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
 **Row Z: Chelsea are back, bargain Neymar and Ray Parlour's war of two halves**\
 `Our weekly round-up of soccer's sillier side featuring straight-talking players and managers alike and the logic in signing Neymar`\
 https://nytimes.com/athletic/6069142/2025/01/17/chelsea-neymar-chalobah-parlour-row-z/
-
-**The ‘Minister of Everything’ for Justin Trudeau Enters Race to Replace Him**\
-`Chrystia Freeland, the former deputy prime minister, sought to distance herself from Mr. Trudeau in a public letter criticizing him for “costly political gimmicks.”`\
-https://nytimes.com/2025/01/17/world/canada/chrystia-freeland-justin-trudeau-canada-prime-minister.html
 
