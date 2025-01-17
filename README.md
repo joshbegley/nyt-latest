@@ -1,6 +1,18 @@
+**For Apple and Google, complying with the law would be easy.**\
+`By Tripp Mickle and Nico Grant`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/for-apple-and-google-complying-with-the-law-would-be-easy
+
+**Red Sox sign All-Star outfielder Jarren Duran to 1-year deal with team option for 2026**\
+`The team avoided arbitration with the 28-year-old All-Star outfielder, who is coming off a breakout season.`\
+https://nytimes.com/athletic/6070265/2025/01/17/red-sox-sign-jarren-duran-avoid-arbitration/
+
+**CNN Ordered to Pay at Least $5 Million for Defaming Security Contractor**\
+`The jury decision came after a two-week trial where lawyers for the contractor argued that the network had falsely accused him of illegal activity.`\
+https://nytimes.com/2025/01/17/business/cnn-jury-defamation-security-contractor.html
+
 **I.R.S. Commissioner to Quit as Trump Takes Office**\
 `The president-elect has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
-https://nytimes.com/2025/01/17/business/economy/irs-commissioner-to-quit-as-trump-takes-office.html
+https://nytimes.com/2025/01/17/business/economy/irs-commissioner-resign.html
 
 **Lifestyles of the Rich and Ancient: Some in Pompeii Even Had a Home Spa**\
 `Hot, warm and cold baths in a recently uncovered villa offer a new glimpse of life in the city before it was smothered by tons of volcanic fragments.`\
@@ -25,16 +37,4 @@ https://nytimes.com/article/tiktok-ban-viral-timeline.html
 **76ers' Joel Embiid to miss at least 3 more games with knee swelling**\
 `Embiid is dealing with swelling in his left knee following an on-court workout Thursday.`\
 https://nytimes.com/athletic/6070163/2025/01/17/joel-embiid-injury-update-knee-out-upcoming-games/
-
-**Why Is This Man Glaring?**\
-`At a moment of peak triumph and celebration, President-elect Donald J. Trump looks stern in his inauguration portrait.`\
-https://nytimes.com/2025/01/17/us/politics/trump-inauguration-photo.html
-
-**‘We Couldn’t Stay’: A California Family’s Life After Evacuating**\
-`Shortly after the fires began in Los Angeles, Bethany Martinez and her daughter evacuated their home on the Altadena-Pasadena border after losing power and heat. They’re waiting until they feel it’s safe enough to go back.`\
-https://nytimes.com/video/world/americas/100000009930572/altadena-family-evacuation.html
-
-**Gus 'The Wizard' Williams, Seattle SuperSonics star, dies at 71**\
-`Williams led the franchise to its only NBA championship in 1979.`\
-https://nytimes.com/athletic/6069926/2025/01/17/gus-williams-death-seattle-supersonics/
 
