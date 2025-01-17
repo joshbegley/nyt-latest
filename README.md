@@ -1,3 +1,27 @@
+**Lifestyles of the Rich and Ancient: Some in Pompeii Even Had a Home Spa**\
+`Hot, warm and cold baths in a recently uncovered villa offer a new glimpse of life in the city before it was smothered by tons of volcanic fragments.`\
+https://nytimes.com/2025/01/17/world/europe/italy-archaeology-pompeii-spa.html
+
+**Monday Is Likely to Be One of the Coldest Inauguration Days in Decades**\
+`An arctic chill is headed to Washington, D.C., (and much of the United States) on Monday.`\
+https://nytimes.com/2025/01/17/us/politics/inauguration-forecast-cold-history.html
+
+**Influencers React to a World Without TikTok**\
+`Grief, frustration and tears followed the Supreme Court’s decision on Friday.`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/tiktok-ban-influencer-reactions
+
+**From the Renegade to the Supreme Court: A Timeline of TikTok’s Rise and Fall**\
+`What started as “the dance app” spawned countless memes, launched lucrative careers and shaped entire industries. Here’s how it got here.`\
+https://nytimes.com/article/tiktok-ban-viral-timeline.html
+
+**76ers' Joel Embiid to miss at least 3 more games with knee swelling**\
+`Embiid is dealing with swelling in his left knee following an on-court workout Thursday.`\
+https://nytimes.com/athletic/6070163/2025/01/17/joel-embiid-injury-update-knee-out-upcoming-games/
+
+**Why Is This Man Glaring?**\
+`At a moment of peak triumph and celebration, President-elect Donald J. Trump looks stern in his inauguration portrait.`\
+https://nytimes.com/2025/01/17/us/politics/trump-inauguration-photo.html
+
 **‘We Couldn’t Stay’: A California Family’s Life After Evacuating**\
 `Shortly after the fires began in Los Angeles, Bethany Martinez and her daughter evacuated their home on the Altadena-Pasadena border after losing power and heat. They’re waiting until they feel it’s safe enough to go back.`\
 https://nytimes.com/video/world/americas/100000009930572/altadena-family-evacuation.html
@@ -13,28 +37,4 @@ https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-ban-is-based
 **Former Oakland Mayor Is Indicted on Federal Corruption Charges**\
 `Sheng Thao, who was recalled by voters in the California city in November, said last year that she had done nothing wrong after the F.B.I. raided her home.`\
 https://nytimes.com/2025/01/17/us/oakland-mayor-thao-indict.html
-
-**In San Antonio, an Orchestra Was Reborn. Can It Endure?**\
-`The San Antonio Philharmonic was formed after the demise of the city’s 83-year-old orchestra in 2022. But rebuilding has not been easy.`\
-https://nytimes.com/2025/01/17/arts/music/san-antonio-philharmonic-woes-rebirth.html
-
-**Here Are Key Dates in the Equal Rights Amendment’s 100-Year History**\
-`President Biden says he believes the amendment has met the requirements to be enshrined in the Constitution. Its history has been long and complex.`\
-https://nytimes.com/2025/01/17/us/politics/equal-rights-amendment-history.html
-
-**Jeanne Wakatsuki Houston, 90, Dies; Her Internment Inspired a Memoir**\
-`In “Farewell to Manzanar,” she wrote about the more than three years she and her family spent in a camp for Japanese Americans. It became the basis for a TV movie.`\
-https://nytimes.com/2025/01/17/books/jeanne-wakatsuki-houston-dead.html
-
-**Russian Disinformation Campaigns Eluded Meta’s Efforts to Block Them**\
-`A new report details how a covert influence operation linked to the Kremlin continued to place ads on Facebook despite U.S. and E.U. prohibitions on doing business with the organization.`\
-https://nytimes.com/2025/01/17/business/russia-disinformation-meta.html
-
-**Fire Breaks Out at a Huge Battery Site in California**\
-`The fire at the Moss Landing plant, which stores electricity for the power grid, was unrelated to wildfires in Los Angeles.`\
-https://nytimes.com/2025/01/17/us/fire-battery-storage-plant-california.html
-
-**Eric Adams to Meet With Trump at Mar-a-Lago Today**\
-`Mayor Eric Adams, who has expressed interest in a federal pardon to resolve federal corruption charges, will meet with President-elect Donald J. Trump on Friday afternoon.`\
-https://nytimes.com/2025/01/17/nyregion/adams-trump-mar-a-lago.html
 
