@@ -1,6 +1,6 @@
 **Read the Supreme Court Ruling**\
-`The Supreme Court rejected TikTok’s First Amendment challenge to the law that effectively bans it in the United States.`\
-https://nytimes.com/interactive/2025/01/17/us/tiktok-supreme-court-ruling.html
+`The Supreme Court rejected TikTok’s First Amendment challenge to the law that effectively bans the social media app in the United States.`\
+https://nytimes.com/interactive/2025/01/17/us/scotus-tok.html
 
 **Who will be the Giants' QB1 in 2025? Sam Darnold? Justin Fields? Shedeur Sanders?**\
 `Dan Duggan answers your mailbag questions about the state of the Giants roster and how the team can improve. `\
