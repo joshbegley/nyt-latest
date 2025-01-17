@@ -1,3 +1,7 @@
+**Find Your Next Favorite Workout**\
+`Whether you’re starting from scratch or just looking to try something new, we can help you build an exercise routine that sticks.`\
+https://nytimes.com/interactive/2025/well/move/workout-plan-ideas.html
+
 **Nuno confident that Forest striker Awoniyi can re-discover form**\
 `Nuno Espirito Santo says Taiwo Awoniyi remains an important figure at Nottingham Forest &#8211; and backed him to get back to his best at the City Ground.`\
 https://nytimes.com/athletic/6070566/2025/01/17/nottingham-forest-awoniyi-nuno-form/
