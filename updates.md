@@ -1,3 +1,7 @@
+**Camavinga sidelined with hamstring injury**\
+`Real Madrid midfielder Eduardo Camavinga has sustained a hamstring injury and could be sidelined for three weeks.`\
+https://nytimes.com/athletic/6069137/2025/01/17/eduardo-camavinga-injury-update-real-madrid/
+
 **Bears mock draft reaction: Ryan Poles can't afford red flags with 10th pick**\
 `In his two-round mock draft, Dane Brugler had two offensive linemen and an edge rusher for the Bears. Were they the right picks?`\
 https://nytimes.com/athletic/6066786/2025/01/17/bears-mock-draft-reaction-josh-simmons/
