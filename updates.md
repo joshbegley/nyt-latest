@@ -1,3 +1,11 @@
+**Pam Shriver says car with 11 Grand Slam trophies was stolen during LA wildfire evacuation**\
+`Shortly after Pam Shriver woke up Thursday at the Marina del Rey DoubleTree, where she has been staying the past week since fleeing the Pacific Palisades fire in Los Angeles, she realized her son&#8217;s car, containing her collection of Grand Slam trophies, had been stolen.`\
+https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/
+
+**Attention Is Power**\
+`The MSNBC anchor Chris Hayes on why attention is the most valuable resource.`\
+https://nytimes.com/video/opinion/100000009931684/attention-is-power.html
+
 **Friday Briefing**\
 `A vote on the Gaza cease-fire deal.`\
 https://nytimes.com/2025/01/17/briefing/gaza-deal-david-lynch.html

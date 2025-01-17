@@ -1,3 +1,11 @@
+**Pam Shriver says car with 11 Grand Slam trophies was stolen during LA wildfire evacuation**\
+`Shortly after Pam Shriver woke up Thursday at the Marina del Rey DoubleTree, where she has been staying the past week since fleeing the Pacific Palisades fire in Los Angeles, she realized her son&#8217;s car, containing her collection of Grand Slam trophies, had been stolen.`\
+https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/
+
+**Attention Is Power**\
+`The MSNBC anchor Chris Hayes on why attention is the most valuable resource.`\
+https://nytimes.com/video/opinion/100000009931684/attention-is-power.html
+
 **Friday Briefing**\
 `A vote on the Gaza cease-fire deal.`\
 https://nytimes.com/2025/01/17/briefing/gaza-deal-david-lynch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/17/style/sydney-hopfer-jes-graham-wedding.html
 **Quote of the Day: Bob Uecker, Clubhouse Wit Turned Popular Sportscaster, Dies at 90**\
 `Quotation of the Day for Friday, January 17, 2025.`\
 https://nytimes.com/2025/01/16/pageoneplus/quote-of-the-day-bob-uecker-clubhouse-wit-turned-popular-sportscaster-dies-at-90.html
-
-**Flyers snap after Ryan Poehling injury but quickly refocus in vital win over Islanders**\
-`Islanders rookie Maxim Tsyplakov had a target on his back after delivering a hard shoulder check on Poehling, who left the game.`\
-https://nytimes.com/athletic/6068755/2025/01/16/flyers-ryan-poehling-injury-islanders/
-
-**Cubs add baby blue alternate uniforms for the first time since 1981**\
-`The release lined up with this weekend’s Cubs Convention, confirming that the team has put its navy Wrigleyville jersey out of circulation.`\
-https://nytimes.com/athletic/6068729/2025/01/16/cubs-release-baby-blue-alternate-uniforms/
 
