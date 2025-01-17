@@ -1,3 +1,12 @@
+**Judge Mulls Release to Congress of Trump Classified Documents Report**\
+`The decision by Judge Aileen M. Cannon not to issue an immediate ruling raised the possibility that President-elect Donald J. Trump would take office in the meantime and have power over the report’s release.`\
+https://nytimes.com/2025/01/17/us/politics/trump-report-release-judge-cannon.html
+
+**Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
+`Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
+`\
+https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
+
 **Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
 `Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
 `\
