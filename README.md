@@ -1,3 +1,7 @@
+**The New York Times News Quiz, Jan. 17, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/01/17/briefing/quiz-tiktok-ceasefire-trump-biden-lynch.html
+
 **Tony Mowbray finalising West Brom return after cancer all-clear**\
 `Tony Mowbray is expected to return to West Bromwich Albion as head coach, almost 16 years after he left the Hawthorns for Celtic and just a few days after being given the all-clear from cancer.`\
 https://nytimes.com/athletic/6019313/2025/01/17/west-brom-manager-tony-mowbray/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/us/los-angeles-fire-chief-kristin-crowley.html
 **What to Know About Plane Maintenance After the South Korean Crash**\
 `Airlines have been increasingly outsourcing repair and upkeep work to other countries, but experts and consumer groups disagree about its impact on safety.`\
 https://nytimes.com/2025/01/17/business/plane-maintenance-south-korean-crash.html
-
-**The Terrifying Ride of Copter 17**\
-`A former Army pilot. An aging helicopter. Furious winds. The race to put out the Eaton fire tested Los Angeles County’s night-flying firefighters like never before.`\
-https://nytimes.com/2025/01/17/us/wildfires-copter-17.html
 

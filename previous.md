@@ -1,3 +1,11 @@
+**Tony Mowbray finalising West Brom return after cancer all-clear**\
+`Tony Mowbray is expected to return to West Bromwich Albion as head coach, almost 16 years after he left the Hawthorns for Celtic and just a few days after being given the all-clear from cancer.`\
+https://nytimes.com/athletic/6019313/2025/01/17/west-brom-manager-tony-mowbray/
+
+**Browns' 'sharp' new OC Tommy Rees sees things through a wider lens**\
+`Rees, who spent three seasons as the starting QB at Notre Dame, is a fast-rising coach who's on his third OC position in five years. `\
+https://nytimes.com/athletic/6067644/2025/01/17/browns-tommy-rees-offensive-coordinator/
+
 **How Penn State refueled its roster to run it back in 2025: 'Everyone's finally getting it now'**\
 `The desire to run it back in 2025 will set high expectations — the highest of any of James Franklin's Penn State teams.`\
 https://nytimes.com/athletic/6054481/2025/01/17/penn-state-james-franklin-2025-recruiting-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/17/business/plane-maintenance-south-korean-crash.htm
 **The Terrifying Ride of Copter 17**\
 `A former Army pilot. An aging helicopter. Furious winds. The race to put out the Eaton fire tested Los Angeles County’s night-flying firefighters like never before.`\
 https://nytimes.com/2025/01/17/us/wildfires-copter-17.html
-
-**A Brooklyn Barbecue Pioneer Sets His Sights on Manhattan Fine Dining**\
-`Billy Durney of Hometown Bar-B-Que plans to open a 57th Street restaurant with the group founded by the late chef James Kent.`\
-https://nytimes.com/2025/01/17/dining/hometown-bar-b-que-manhattan-restaurant.html
-
-**Trump Team Rebuffs Talks on Mass Deportations, Latin American Countries Say**\
-`Mexican officials and other leaders in the region have not been able to meet with the incoming administration about the president-elect’s migration and deportation plans.`\
-https://nytimes.com/2025/01/17/world/americas/trump-deportations-latin-america.html
 
