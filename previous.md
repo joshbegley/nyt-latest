@@ -1,3 +1,19 @@
+**A 100-Year-Old Jazz Legend’s Solo Debut, and 11 More New Songs**\
+`Hear tracks by Perfume Genius, Lucy Dacus, Bartees Strange and others.`\
+https://nytimes.com/2025/01/17/arts/music/playlist-marshall-allen-lucy-dacus-bartees-strange.html
+
+**Government officials react to the looming TikTok ban.**\
+`By David McCabe and Maya C. Miller`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/government-officials-react-to-the-looming-tiktok-ban
+
+**5 Scenes That Define David Lynch’s Singular Vision**\
+`The director developed such a distinct style that “Lynchian” became a go-to term for any sort of surrealism onscreen. These scenes from his work get to the heart of what that term embodied.`\
+https://nytimes.com/2025/01/17/movies/david-lynch-death-lynchian.html
+
+**As Sasaki decision looms, Blue Jays acquire Straw, international bonus money from Guardians**\
+`Two teams with different agendas linked up for a trade that could boost Toronto’s chances of landing heralded pitcher Roki Sasaki.`\
+https://nytimes.com/athletic/6070221/2025/01/17/blue-jays-myles-straw-roki-sasaki/
+
 **A Mind at Ease, Away From the Distractions**\
 `Responses to an essay by Chris Hayes. Also: Evasiveness at cabinet hearings; politicizing aid for L.A.; reducing fire risks; ex-presidents together.`\
 https://nytimes.com/2025/01/17/opinion/mind-boredom-distractions.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6070265/2025/01/17/red-sox-sign-jarren-duran-avoid-
 **CNN Ordered to Pay at Least $5 Million for Defaming Security Contractor**\
 `The jury decision came after a two-week trial where lawyers for the contractor argued that the network had falsely accused him of illegal activity.`\
 https://nytimes.com/2025/01/17/business/cnn-jury-defamation-security-contractor.html
-
-**I.R.S. Commissioner to Quit as Trump Takes Office**\
-`The president-elect has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
-https://nytimes.com/2025/01/17/business/economy/irs-commissioner-resign.html
-
-**Lifestyles of the Rich and Ancient: Some in Pompeii Even Had a Home Spa**\
-`Hot, warm and cold baths in a recently uncovered villa offer a new glimpse of life in the city before it was smothered by tons of volcanic fragments.`\
-https://nytimes.com/2025/01/17/world/europe/italy-archaeology-pompeii-spa.html
-
-**Monday Is Likely to Be One of the Coldest Inauguration Days in Decades**\
-`An arctic chill is headed to Washington, D.C., (and much of the United States) on Monday.`\
-https://nytimes.com/2025/01/17/us/politics/inauguration-forecast-cold-history.html
-
-**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
-`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
-https://nytimes.com/athletic/6053790/2025/01/17/notre-dame-ohio-state-picks-odds-national-championship-game/
 
