@@ -1,3 +1,12 @@
+**Biden Say Equal Rights Amendment Has Passed, but Does Not Force Legal Fight**\
+`President Biden’s remarks appeared to be largely a symbolic gesture of support for a decades-long campaign to enshrine gender equality into the Constitution.`\
+https://nytimes.com/2025/01/17/us/politics/equal-rights-amendment-constitution-biden.html
+
+**Premier League discontinue outstanding PSR complaint against Everton**\
+`The Premier League is not pursing an outstanding profitability and sustainability rule (PSR) dispute with Everton, it has been confirmed
+A lingering PSR dispute had remained for Everton over the club’s 2022-23 accounts.`\
+https://nytimes.com/athletic/6069698/2025/01/17/everton-premier-league-psr-dispute/
+
 **Hollinger: How OKC's defense — 'guys that do the little work' — continues to overwhelm**\
 `The Thunder's intensity turned the marquee matchup of the NBA's two best teams into a blowout.`\
 https://nytimes.com/athletic/6068829/2025/01/17/how-the-thunder-defense-guys-that-do-the-little-work-continues-to-overwhelm/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6069553/2025/01/17/mario-lemina-vitor-pereira-wolve
 **NHL Power Rankings: The top 10 gets a total shake-up**\
 `This week, we offer no razzle-dazzle and no glitzy themes. It's back to basics for the Rankings Boys.`\
 https://nytimes.com/athletic/6068961/2025/01/17/nhl-power-rankings-capitals-ovechkin-goals-race/
-
-**I.M.F. Raises U.S. Economic Forecast as Other Regions Lag**\
-`It is projecting 2.7 percent growth for 2025. But uncertainty about pending Trump policies looms over the global economic trajectory.`\
-https://nytimes.com/2025/01/17/business/imf-world-economic-outlook.html
-
-**How to Come Up With a Down Payment on a House**\
-`With prices high, putting aside enough cash to buy a house can be daunting. But housing experts say there are assistance programs in all 50 states.`\
-https://nytimes.com/2025/01/17/your-money/house-down-payment-assistance.html
 
