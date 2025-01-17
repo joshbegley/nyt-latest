@@ -1,3 +1,23 @@
+**Why Beijing Could Have the Last Say on Any TikTok Deal**\
+`A change to China’s export rules could give Beijing sign off on any deal that would force the internet giant ByteDance to give up TikTok.`\
+https://nytimes.com/2025/01/17/us/politics/tiktok-ban-sale-china.html
+
+**Remote Work Became a Washington Way of Life. Is That About to Change?**\
+`Federal employees and others in the capital have grown attached to work-from-home arrangements. But hybrid work may disappear in the second Trump era.`\
+https://nytimes.com/2025/01/17/business/economy/trump-remote-work-federal-workers.html
+
+**U.S. Ban of TikTok Is Set to Deal a Major Blow to ByteDance, Its Chinese Owner**\
+`While TikTok remains hugely popular in Brazil, Indonesia and other markets, its 170 million users in the United States are its most valuable.`\
+https://nytimes.com/2025/01/17/technology/tiktok-ban-bytedance.html
+
+**The Lynchian Look**\
+`Lavish hair, nondescript clothes and a smoking habit were hallmarks of the filmmaker David Lynch’s visual persona.`\
+https://nytimes.com/2025/01/17/style/david-lynch-style.html
+
+**Fantasy trends and hidden gems: JJ Peterka's busy week, deep-pick Logan O’Connor and more**\
+`Week 16 has four games on the lightest nights, with 19 different teams making a light-night appearance. Who should you target?`\
+https://nytimes.com/athletic/6068702/2025/01/17/fantasy-trends-and-hidden-gems-jj-peterkas-busy-week-deep-pick-logan-oconnor-and-more/
+
 **Here’s How to Download Your Videos and Data From TikTok**\
 `Here are a few methods for users who want copies of the videos they personally uploaded or made on TikTok.`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-how-to-download-your-videos-and-data-from-tiktok
