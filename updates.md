@@ -1,3 +1,15 @@
+**A Mind at Ease, Away From the Distractions**\
+`Responses to an essay by Chris Hayes. Also: Evasiveness at cabinet hearings; politicizing aid for L.A.; reducing fire risks; ex-presidents together.`\
+https://nytimes.com/2025/01/17/opinion/mind-boredom-distractions.html
+
+**How Biden’s Inner Circle Protected a Faltering President**\
+`“Your biggest issue is the perception of age,” Mike Donilon, the president’s longtime strategist, told him in 2022, according to people who heard him.`\
+https://nytimes.com/2025/01/17/us/politics/biden-age.html
+
+**As California Burns, ‘Octavia Tried to Tell Us’ Has New Meaning**\
+`The phrase, which gained momentum in 2020, has resurfaced, in part because it can seem like Octavia Butler was more than a fiction writer.`\
+https://nytimes.com/2025/01/17/us/los-angeles-wildfires-octavia-butler.html
+
 **For Apple and Google, complying with the law would be easy.**\
 `By Tripp Mickle and Nico Grant`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/for-apple-and-google-complying-with-the-law-would-be-easy
