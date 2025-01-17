@@ -1,5 +1,5 @@
 **I.R.S. Commissioner to Quit as Trump Takes Office**\
-`Mr. Trump has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
+`The president-elect has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
 https://nytimes.com/2025/01/17/business/economy/irs-commissioner-to-quit-as-trump-takes-office.html
 
 **Lifestyles of the Rich and Ancient: Some in Pompeii Even Had a Home Spa**\

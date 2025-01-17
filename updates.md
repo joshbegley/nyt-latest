@@ -1,3 +1,7 @@
+**I.R.S. Commissioner to Quit as Trump Takes Office**\
+`Mr. Trump has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
+https://nytimes.com/2025/01/17/business/economy/irs-commissioner-to-quit-as-trump-takes-office.html
+
 **Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
 `Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
 https://nytimes.com/athletic/6053790/2025/01/17/notre-dame-ohio-state-picks-odds-national-championship-game/

@@ -1,3 +1,7 @@
+**I.R.S. Commissioner to Quit as Trump Takes Office**\
+`Mr. Trump has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
+https://nytimes.com/2025/01/17/business/economy/irs-commissioner-to-quit-as-trump-takes-office.html
+
 **Lifestyles of the Rich and Ancient: Some in Pompeii Even Had a Home Spa**\
 `Hot, warm and cold baths in a recently uncovered villa offer a new glimpse of life in the city before it was smothered by tons of volcanic fragments.`\
 https://nytimes.com/2025/01/17/world/europe/italy-archaeology-pompeii-spa.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000009930572/altadena-family-evacuat
 **Gus 'The Wizard' Williams, Seattle SuperSonics star, dies at 71**\
 `Williams led the franchise to its only NBA championship in 1979.`\
 https://nytimes.com/athletic/6069926/2025/01/17/gus-williams-death-seattle-supersonics/
-
-**The ban is based on national security concerns. Limits because of foreign ownership are not unusual.**\
-`By Cecilia Kang`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-ban-is-based-on-national-security-concerns-limits-because-of-foreign-ownership-are-not-unusual
 
