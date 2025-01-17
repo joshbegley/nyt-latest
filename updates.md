@@ -1,3 +1,11 @@
+**The Connections Companion No. 587**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Jan. 18, 2025.`\
+https://nytimes.com/2025/01/17/crosswords/connections-companion-587.html
+
+**Wordle Review No. 1,309**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Jan. 18, 2025.`\
+https://nytimes.com/2025/01/17/crosswords/wordle-review-1309.html
+
 **After 15 Months of War, Gazans Dream of Returning Home**\
 `They daydreamed about the people they would hug as soon as the truce took hold, the graves they would visit and the homes they would rebuild.`\
 https://nytimes.com/2025/01/17/world/middleeast/gaza-returning-home-after-war.html

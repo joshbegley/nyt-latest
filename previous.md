@@ -1,3 +1,11 @@
+**The Connections Companion No. 587**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Jan. 18, 2025.`\
+https://nytimes.com/2025/01/17/crosswords/connections-companion-587.html
+
+**Wordle Review No. 1,309**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Jan. 18, 2025.`\
+https://nytimes.com/2025/01/17/crosswords/wordle-review-1309.html
+
 **After 15 Months of War, Gazans Dream of Returning Home**\
 `They daydreamed about the people they would hug as soon as the truce took hold, the graves they would visit and the homes they would rebuild.`\
 https://nytimes.com/2025/01/17/world/middleeast/gaza-returning-home-after-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/01/17/briefing/quiz-tiktok-ceasefire-trump-
 **Tony Mowbray finalising West Brom return after cancer all-clear**\
 `Tony Mowbray is expected to return to West Bromwich Albion as head coach, almost 16 years after he left the Hawthorns for Celtic and just a few days after being given the all-clear from cancer.`\
 https://nytimes.com/athletic/6019313/2025/01/17/west-brom-manager-tony-mowbray/
-
-**Browns' 'sharp' new OC Tommy Rees sees things through a wider lens**\
-`Rees, who spent three seasons as the starting QB at Notre Dame, is a fast-rising coach who's on his third OC position in five years. `\
-https://nytimes.com/athletic/6067644/2025/01/17/browns-tommy-rees-offensive-coordinator/
-
-**How Penn State refueled its roster to run it back in 2025: 'Everyone's finally getting it now'**\
-`The desire to run it back in 2025 will set high expectations — the highest of any of James Franklin's Penn State teams.`\
-https://nytimes.com/athletic/6054481/2025/01/17/penn-state-james-franklin-2025-recruiting-roster/
 
