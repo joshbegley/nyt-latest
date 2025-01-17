@@ -1,3 +1,11 @@
+**How Wildfires Came for City Streets**\
+`Many Californians thought wildfires couldn’t reach deep into their cities. But the Los Angeles fires showed how older homes became fuel that fed the fires.`\
+https://nytimes.com/2025/01/17/us/los-angeles-wildfires-homes.html
+
+**TikTok Changed How We Talk About Health**\
+`It has turned doctors into stars, put taboo subjects on main and given all of us a place to explore our well-being.`\
+https://nytimes.com/2025/01/17/well/tiktok-health-ban.html
+
 **C.I.A. Analyst Pleads Guilty to Leaking Classified Documents About Israel**\
 `The analyst was charged with two counts of violating the Espionage Act and faces up to a decade in prison for disclosing sensitive information about Israel’s response to an Iranian attack.`\
 https://nytimes.com/2025/01/17/us/politics/cia-analyst-guilty-plea-classified-israel.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/01/17/us/politics/debt-default-jan-21-yellen-treasury.h
 **In Canada’s ‘Suburb of Detroit,’ Fears Over Trump’s Tariff Threat**\
 `The president-elect’s vow to impose 25 percent duties on Canadian imports could ravage Canada’s auto industry and decimate Windsor, a city deeply tied to the U.S.`\
 https://nytimes.com/2025/01/17/world/canada/trump-tariffs-windsor-autos.html
-
-**Submit your Minnesota Vikings questions now for beat writer Alec Lewis**\
-`Oh, how quickly things can change in a week. The Vikings’ offseason is here, and there is plenty to discuss.`\
-https://nytimes.com/athletic/6070828/2025/01/17/minnesota-vikings-mailbag-alec-lewis-2/
-
-**PSG complete signing of Kvaratskhelia from Napoli**\
-`Paris Saint-Germain have completed the signing of Khvicha Kvaratskhelia from Napoli.`\
-https://nytimes.com/athletic/6050714/2025/01/17/khvicha-kvaratskhelia-psg-transfer-napoli/
 
