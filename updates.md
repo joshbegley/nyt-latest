@@ -1,3 +1,19 @@
+**The ban is based on national security concerns. Limits because of foreign ownership are not unusual.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-ban-is-based-on-national-security-concerns-limits-because-of-foreign-ownership-are-not-unusual
+
+**Former Oakland Mayor Is Indicted on Federal Corruption Charges**\
+`Sheng Thao, who was recalled by voters in the California city in November, said last year that she had done nothing wrong after the F.B.I. raided her home.`\
+https://nytimes.com/2025/01/17/us/oakland-mayor-thao-indict.html
+
+**In San Antonio, an Orchestra Was Reborn. Can It Endure?**\
+`The San Antonio Philharmonic was formed after the demise of the city’s 83-year-old orchestra in 2022. But rebuilding has not been easy.`\
+https://nytimes.com/2025/01/17/arts/music/san-antonio-philharmonic-woes-rebirth.html
+
+**Here Are Key Dates in the Equal Rights Amendment’s 100-Year History**\
+`President Biden says he believes the amendment has met the requirements to be enshrined in the Constitution. Its history has been long and complex.`\
+https://nytimes.com/2025/01/17/us/politics/equal-rights-amendment-history.html
+
 **Jeanne Wakatsuki Houston, 90, Dies; Her Internment Inspired a Memoir**\
 `In “Farewell to Manzanar,” she wrote about the more than three years she and her family spent in a camp for Japanese Americans. It became the basis for a TV movie.`\
 https://nytimes.com/2025/01/17/books/jeanne-wakatsuki-houston-dead.html
