@@ -1,3 +1,7 @@
+**Biden administration archives site devoted to reproductive rights.**\
+`The website, ReproductiveRights.gov, offered information on matters such as birth control, medication abortion, and emergency abortion care.`\
+https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/biden-administration-archives-site-devoted-to-reproductive-rights
+
 **Sun Belt fines Marshall $100,000 for opting out of bowl game vs. Army**\
 `Marshall withdrew from the Dec. 28 game on Dec. 14 due to a roster depleted by the transfer portal and a head coaching change.`\
 https://nytimes.com/athletic/6070731/2025/01/17/sun-belt-fines-marshall-opting-out-bowl-army/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/climate/davos-trump-world-economic-forum.html
 **Fed Quits Global Climate Network Ahead of Trump Presidency**\
 `Federal Reserve Bank officials said the decision to leave the network came after the group’s work had “increasingly broadened in scope.”`\
 https://nytimes.com/2025/01/17/us/politics/fed-trump-climate-network.html
-
-**Titans hiring Chiefs' Mike Borgonzi as team's next GM: Source**\
-`Borgonzi spent 16 seasons in Kansas City and was promoted to assistant general manager in 2021.`\
-https://nytimes.com/athletic/6070576/2025/01/17/tennessee-titans-hire-mike-borgonzi-general-manager-chiefs/
 
