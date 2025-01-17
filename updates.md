@@ -1,3 +1,7 @@
+**Can Communities Survive the Fires?**\
+`A writer from Los Angeles surveys the loss.`\
+https://nytimes.com/2025/01/17/briefing/can-communities-survive-the-fires.html
+
 **Emma Navarro's reluctant step into the tennis limelight**\
 `The American's incremental assent to the top 10 has brought a burst of attention and expectation. For Navarro, it's an adjustment`\
 https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-open/
