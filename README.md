@@ -17,7 +17,7 @@ https://nytimes.com/2025/01/17/business/trump-davos-europe.html
 
 **Oracle May Hold TikTok’s Future in Its Hands**\
 `The company is one of the app’s leading server providers, managing the data centers where billions of 40-second videos are stored.`\
-https://nytimes.com/2025/01/17/business/oracle-may-hold-tiktoks-future-in-its-hands.html
+https://nytimes.com/2025/01/17/business/oracle-tiktok-ban.html
 
 **As the World Warms, Davos Braces for Political Drama**\
 `A new U.S. president’s promise to expand fossil fuels that is at odds with global ambitions to combat climate change will be a topic of discussion at the World Economic Forum.`\
