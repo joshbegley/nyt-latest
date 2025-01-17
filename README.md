@@ -1,3 +1,11 @@
+**TikTok Evaded a Ban Again and Again, Until Now**\
+`After a decisive loss at the Supreme Court, the app is set to be blocked in the U.S. starting Sunday, ending its streak of Houdini-like escapes.`\
+https://nytimes.com/2025/01/17/technology/tiktok-ban-sale-supreme-court.html
+
+**Judge Mulls Release to Congress of Trump Classified Documents Report**\
+`The decision by Judge Aileen M. Cannon not to issue an immediate ruling raised the possibility that Mr. Trump would take office in the meantime and have power over the report’s release.`\
+https://nytimes.com/2025/01/17/us/politics/trump-report-release-judge-cannon.html
+
 **Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
 `Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/biden-ad
 **Sun Belt fines Marshall $100,000 for opting out of bowl game vs. Army**\
 `Marshall withdrew from the Dec. 28 game on Dec. 14 due to a roster depleted by the transfer portal and a head coaching change.`\
 https://nytimes.com/athletic/6070731/2025/01/17/sun-belt-fines-marshall-opting-out-bowl-army/
-
-**Zay Flowers doubtful for Ravens' divisional round showdown vs. Bills**\
-`The Ravens' leading receiver hasn't taken the field since suffering a knee injury in the regular season finale on Jan. 4.`\
-https://nytimes.com/athletic/6067648/2025/01/17/zay-flowers-knee-injury-practice-divisional-round-ravens-bills/
-
-**Bayern close to agreement with Davies over new contract**\
-`Bayern Munich are close to an agreement with Alphonso Davies over a new contract.`\
-https://nytimes.com/athletic/6070539/2025/01/17/bayern-munich-alphonso-davies-contract-new/
 
