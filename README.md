@@ -24,7 +24,7 @@ https://nytimes.com/2025/01/17/us/politics/dewine-names-lt-gov-jon-husted-to-fil
 
 **Villa agree €7m deal to sign Levante right-back Garcia**\
 `Aston Villa have agreed a deal to sign Andres Garcia from Levante in a deal worth €7million (£5.`\
-https://nytimes.com/athletic/6070372/2025/01/17/aston-villa-transfer-garcia-deal-agre/
+https://nytimes.com/athletic/6070372/2025/01/17/aston-villa-transfer-garcia-deal-agree/
 
 **A 100-Year-Old Jazz Legend’s Solo Debut, and 11 More New Songs**\
 `Hear tracks by Perfume Genius, Lucy Dacus, Bartees Strange and others.`\
