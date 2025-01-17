@@ -1,6 +1,5 @@
 **Bayern close to agreement with Davies over new contract**\
-`Bayern Munich are close to an agreement with Alphonso Davies over a new contract
-The Canada (CANMNT) captain&#8217;s existing terms with the Bundesliga club are set to expire at the end of the season leaving him free to talk to overseas clubs.`\
+`Bayern Munich are close to an agreement with Alphonso Davies over a new contract.`\
 https://nytimes.com/athletic/6070539/2025/01/17/bayern-munich-alphonso-davies-contract-new/
 
 **Canada’s Plan for a Trade War: Pain for Red States and Trump Allies**\
