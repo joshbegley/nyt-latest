@@ -1,3 +1,8 @@
+**Wild to ask Kaprizov to change his ways, Faber's and Lauko's returns, redemption vs. L'Heureux?**\
+`Kirill Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatment and pushed-back timetables.
+`\
+https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheureux/
+
 **U.S. Resolves Civil Rights Inquiry Into Illinois Deputy’s Killing of Black Woman**\
 `While the Justice Department found no discriminatory practices in the shooting death of Sonya Massey, 36, Sangamon County must update its policies and training.`\
 https://nytimes.com/2025/01/17/us/sonya-massey-shooting-sheriff-investigation.html
