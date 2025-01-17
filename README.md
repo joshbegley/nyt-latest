@@ -1,6 +1,6 @@
 **Aryna Sabalenka shows vulnerability, coffee wars intensify: Australian Open recap**\
 `The world No. 1 and defending women's champion has scratched through her early rounds.`\
-https://nytimes.com/athletic/6068539/2025/01/17/australian-open-takeaways-aryna-sabalenka-shows-vulnerability-coffee-wars-intensify-in-melbourne/
+https://nytimes.com/athletic/6068539/2025/01/17/aryna-sabalenka-australian-open-melbourne-coffee/
 
 **Will the Chargers' playoff struggles in the offensive trenches inform their offseason?**\
 `Yes, the Chargers need more offensive weapons, but it's also clear they need to upgrade their interior offensive line.`\
