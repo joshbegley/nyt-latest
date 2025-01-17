@@ -1,3 +1,7 @@
+**After 15 Months of War, Gazans Dream of Returning Home**\
+`They daydreamed about the people they would hug as soon as the truce took hold, the graves they would visit and the homes they would rebuild.`\
+https://nytimes.com/2025/01/17/world/middleeast/gaza-returning-home-after-war.html
+
 **Holstein Kiel defend Tolkin move after criticism of social media activity**\
 `Bundesliga club Holstein Kiel have been forced to defend their signing of USMNT international John Tolkin following criticism of his social media activity.`\
 https://nytimes.com/athletic/6069104/2025/01/17/john-tolkin-transfer-holstein-kiel-social-media/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067644/2025/01/17/browns-tommy-rees-offensive-coor
 **How Penn State refueled its roster to run it back in 2025: 'Everyone's finally getting it now'**\
 `The desire to run it back in 2025 will set high expectations — the highest of any of James Franklin's Penn State teams.`\
 https://nytimes.com/athletic/6054481/2025/01/17/penn-state-james-franklin-2025-recruiting-roster/
-
-**Joe Mazzulla shouldn't scapegoat Thunder or Cavaliers when Celtics are the problem**\
-`Mazzulla says the pressure on the Celtics is coming from comparisons to Cavs and Thunder: "Oh, you're not as good because you're not them."`\
-https://nytimes.com/athletic/6067776/2025/01/17/celtics-slump-thunder-cavaliers-joe-mazzulla/
 

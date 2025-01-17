@@ -1,3 +1,7 @@
+**After 15 Months of War, Gazans Dream of Returning Home**\
+`They daydreamed about the people they would hug as soon as the truce took hold, the graves they would visit and the homes they would rebuild.`\
+https://nytimes.com/2025/01/17/world/middleeast/gaza-returning-home-after-war.html
+
 **Holstein Kiel defend Tolkin move after criticism of social media activity**\
 `Bundesliga club Holstein Kiel have been forced to defend their signing of USMNT international John Tolkin following criticism of his social media activity.`\
 https://nytimes.com/athletic/6069104/2025/01/17/john-tolkin-transfer-holstein-kiel-social-media/
