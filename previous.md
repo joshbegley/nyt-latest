@@ -1,3 +1,7 @@
+**Milwaukee’s best: A tribute to the humor and humanity of Bob Uecker**\
+`The Hall of Fame broadcaster, who died Thursday at 90, never shook his love of clubhouse camaraderie. `\
+https://nytimes.com/athletic/6068200/2025/01/16/bob-uecker-milwaukee-brewers-tribute/
+
 **DOE memo says NIL payments must be proportionate between male, female athletes**\
 `A new administration could rescind the OCR’s guidance or it could be challenged in court.`\
 https://nytimes.com/athletic/6068325/2025/01/16/department-of-education-title-ix-nil-memo/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/us/la-drinking-water-wildfires.html
 **David Lynch, ‘Twin Peaks’ and the American Art of Television**\
 `“Twin Peaks” was his ultimate portrait of a land of terror and beauty.`\
 https://nytimes.com/2025/01/16/arts/television/david-lynch-twin-peaks.html
-
-**Eric Adams Heads to Mar-a-Lago to Meet With Trump**\
-`The New York mayor, who is under federal indictment, has spoken warmly about President-elect Donald J. Trump in recent weeks and has said he is open to receiving a pardon from him.`\
-https://nytimes.com/2025/01/16/nyregion/eric-adams-trump-mar-a-lago.html
 

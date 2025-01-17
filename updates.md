@@ -1,3 +1,7 @@
+**Milwaukee’s best: A tribute to the humor and humanity of Bob Uecker**\
+`The Hall of Fame broadcaster, who died Thursday at 90, never shook his love of clubhouse camaraderie. `\
+https://nytimes.com/athletic/6068200/2025/01/16/bob-uecker-milwaukee-brewers-tribute/
+
 **DOE memo says NIL payments must be proportionate between male, female athletes**\
 `A new administration could rescind the OCR’s guidance or it could be challenged in court.`\
 https://nytimes.com/athletic/6068325/2025/01/16/department-of-education-title-ix-nil-memo/
