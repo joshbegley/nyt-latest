@@ -1,3 +1,7 @@
+**In His Dark, Disturbing Visions, David Lynch Showed Us Who We Are**\
+`The director himself came off as almost performatively normal. Masterpieces like “Eraserhead” and “Mulholland Drive” said otherwise.`\
+https://nytimes.com/2025/01/16/movies/david-lynch-eraserhead-mulholland-drive.html
+
 **12 Cryptic Titles From David Lynch and Where You Can Stream Them**\
 `Films like “Blue Velvet” and “Mulholland Drive” aren’t always easy to explain, but they live on in your mind and burrow under your skin.`\
 https://nytimes.com/2025/01/16/movies/david-lynch-films-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/nyregion/eric-adams-trump-mar-a-lago.html
 **Stick-Wielding Man Kills 2 Homeless People in Miami and Injures 2 Others**\
 `A suspect has been arrested as the police investigate the motive for what they called an unprovoked attack.`\
 https://nytimes.com/2025/01/16/us/miami-arrest-homeless-deaths.html
-
-**Two Watchdogs Were Rebuffed From Joining Trump’s Cost-Cutting Effort**\
-`“We have no room in our administration for Democrats,” a transition spokeswoman replied after good-government activists tried to join the president-elect’s new efficiency department.`\
-https://nytimes.com/2025/01/16/us/doge-trump-watchdogs.html
 
