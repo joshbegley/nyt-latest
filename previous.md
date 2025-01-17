@@ -1,3 +1,24 @@
+**Pochettino: USMNT outsiders from MLS can challenge Euro-based regulars**\
+`Home-based players have a genuine shot at Mauricio Pochettino's World Cup squad, the USMNT coach says`\
+https://nytimes.com/athletic/6070827/2025/01/17/pochettino-usmnt-january-mls/
+
+**‘La Migra!’ A Glimpse of Trump’s Promised Deportation Storm**\
+`Sweeps by Border Patrol agents in California have stoked fears among undocumented migrant workers on the eve of Donald J. Trump’s presidential inauguration.`\
+https://nytimes.com/2025/01/17/us/immigration-deportation-california.html
+
+**Wild to ask Kaprizov to change his ways, Faber and Lauko's returns, plus redemption vs. L'Heureux?**\
+`Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatments and pushed-back timetables.
+`\
+https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheureux/
+
+**U.S. Finds Pattern of Excessive Force by Louisiana State Police**\
+`A Black man died after a beating by the police in 2019. The assault “demonstrated serious failures,” the Justice Department said, including improper supervision.`\
+https://nytimes.com/2025/01/17/us/louisiana-police-ronald-greene.html
+
+**Banning UNRWA Will Sabotage Cease-fire, Warns Agency Head**\
+`Philippe Lazzarini, the commissioner general of the U.N. agency for Palestine Refugees, described the dangers if Israel terminates UNRWA’s operations.`\
+https://nytimes.com/video/world/middleeast/100000009933368/unrwa-ban-sabotage-gaza-ceasefire.html
+
 **Find Your Next Favorite Workout**\
 `Whether you’re starting from scratch or just looking to try something new, we can help you build an exercise routine that sticks.`\
 https://nytimes.com/interactive/2025/well/move/workout-plan-ideas.html
@@ -17,24 +38,4 @@ https://nytimes.com/2025/01/17/world/middleeast/gaza-truce-negotiations.html
 **A Call for Millennial Complaints Draws an Enormous Crowd**\
 `At a time of social media upheaval, a post to X had people making jokes and longing for what felt like a simpler (and less expensive) era.`\
 https://nytimes.com/2025/01/17/style/millennial-complaints.html
-
-**A Simple 10-Minute Workout to Improve Mobility**\
-`Daily movement breaks are important. This no-equipment routine can help you move more freely.`\
-https://nytimes.com/2025/01/17/well/move/short-mobility-workout.html
-
-**How Wildfires Came for City Streets**\
-`Many Californians thought wildfires couldn’t reach deep into their cities. But the Los Angeles fires showed how older homes became fuel that fed the fires.`\
-https://nytimes.com/2025/01/17/us/los-angeles-wildfires-homes.html
-
-**TikTok Changed How We Talk About Health**\
-`It has turned doctors into stars, put taboo subjects on main and given all of us a place to explore our well-being.`\
-https://nytimes.com/2025/01/17/well/tiktok-health-ban.html
-
-**C.I.A. Analyst Pleads Guilty to Leaking Classified Documents About Israel**\
-`The analyst was charged with two counts of violating the Espionage Act and faces up to a decade in prison for disclosing sensitive information about Israel’s response to an Iranian attack.`\
-https://nytimes.com/2025/01/17/us/politics/cia-analyst-guilty-plea-classified-israel.html
-
-**Can He Do That? Here’s What Biden’s Move on the Equal Rights Amendment Means.**\
-`Presidents have no direct role in approving constitutional amendments. So what could President Biden’s pronouncement recognizing a new one actually do?`\
-https://nytimes.com/2025/01/17/us/politics/biden-equal-rights-amendment-explained.html
 
