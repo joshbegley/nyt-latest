@@ -1,3 +1,7 @@
+**Cubs add baby blue alternate uniforms for the first time since 1981**\
+`The release lined up with this weekend’s Cubs Convention, confirming that the team has put its navy Wrigleyville jersey out of circulation.`\
+https://nytimes.com/athletic/6068729/2025/01/16/cubs-release-baby-blue-alternate-uniforms/
+
 **Blue Jackets ride wave of confidence past Sharks for sixth consecutive win**\
 `A strong first two periods helped Columbus survive a third-period push from San Jose before James van Riemsdyk found the empty net.`\
 https://nytimes.com/athletic/6068650/2025/01/16/blue-jackets-confidence-werenski-sharks/

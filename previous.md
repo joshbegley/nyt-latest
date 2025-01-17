@@ -1,3 +1,7 @@
+**Cubs add baby blue alternate uniforms for the first time since 1981**\
+`The release lined up with this weekend’s Cubs Convention, confirming that the team has put its navy Wrigleyville jersey out of circulation.`\
+https://nytimes.com/athletic/6068729/2025/01/16/cubs-release-baby-blue-alternate-uniforms/
+
 **Blue Jackets ride wave of confidence past Sharks for sixth consecutive win**\
 `A strong first two periods helped Columbus survive a third-period push from San Jose before James van Riemsdyk found the empty net.`\
 https://nytimes.com/athletic/6068650/2025/01/16/blue-jackets-confidence-werenski-sharks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/us/politics/nancy-pelosi-trump-inauguration.html
 **Quarter Back?**\
 `Willa Angel Chen Miller steps out on her own.`\
 https://nytimes.com/2025/01/16/crosswords/daily-puzzle-2025-01-17.html
-
-**Nathalie Dupree, ‘Queen of Southern Cooking,’ Dies at 85**\
-`As a cookbook author, TV personality and mentor, she sought to burst the chicken-fried stereotype of the South. Sometimes her life was as messy as her kitchen.`\
-https://nytimes.com/2025/01/16/dining/nathalie-dupree-dead.html
 
