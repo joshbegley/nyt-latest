@@ -1,3 +1,11 @@
+**Brighton's Jakub Moder set for Feyenoord transfer**\
+`Brighton &amp; Hove Albion midfielder Jakub Moder is set to join Dutch club Feyenoord.`\
+https://nytimes.com/athletic/6069475/2025/01/17/jakub-moder-feyenoord-brighton-transfers/
+
+**Rain-Collecting Rattlesnakes Give New Meaning to ‘Thirst Trap’**\
+`A new study reveals the surprising ways rattlesnakes have evolved to collect water in the desert.`\
+https://nytimes.com/2025/01/17/science/rattlesnakes-water-drinking.html
+
 **Lemina apologises to Pereira and says he is available to play**\
 `Former Wolverhampton Wanders captain Mario Lemina has performed a major U-turn and declared himself available to play for the club until his future is decided.`\
 https://nytimes.com/athletic/6069553/2025/01/17/mario-lemina-vitor-pereira-wolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6068973/2025/01/17/oilers-avalanche-schedule-nhl/
 **Djokovic criticizes 'provoking' from Australian Open crowd, 'loves' Collins response**\
 `MELBOURNE, Australia — Novak Djokovic said he “loved” Danielle Collins’ reaction to a hostile home crowd at the Australian Open, adding that he was now a “big fan” of the American.`\
 https://nytimes.com/athletic/6069267/2025/01/17/novak-djokovic-australian-open-crowd-danielle-collins/
-
-**Bowden: The biggest winners and losers of the MLB offseason so far**\
-`Takeaways on the teams, players, executives and more that have been among the stories of the offseason — for good reasons, and bad.`\
-https://nytimes.com/athletic/6069080/2025/01/17/mlb-offseason-winners-losers-2024-25/
-
-**E.U. Expands Investigation of X Over Spread of Illicit Content**\
-`The probe is a test of the European Union’s willingness to go after X’s owner, Elon Musk, whose geopolitical influence has grown because of his ties to the incoming Trump administration.`\
-https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
 

@@ -1,3 +1,11 @@
+**Brighton's Jakub Moder set for Feyenoord transfer**\
+`Brighton &amp; Hove Albion midfielder Jakub Moder is set to join Dutch club Feyenoord.`\
+https://nytimes.com/athletic/6069475/2025/01/17/jakub-moder-feyenoord-brighton-transfers/
+
+**Rain-Collecting Rattlesnakes Give New Meaning to ‘Thirst Trap’**\
+`A new study reveals the surprising ways rattlesnakes have evolved to collect water in the desert.`\
+https://nytimes.com/2025/01/17/science/rattlesnakes-water-drinking.html
+
 **Lemina apologises to Pereira and says he is available to play**\
 `Former Wolverhampton Wanders captain Mario Lemina has performed a major U-turn and declared himself available to play for the club until his future is decided.`\
 https://nytimes.com/athletic/6069553/2025/01/17/mario-lemina-vitor-pereira-wolves/
