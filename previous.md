@@ -1,3 +1,11 @@
+**China Says Economy Grew 5% Last Year, Driven by Exports**\
+`Analysts say they see signs of malaise in China’s domestic economy, but those problems were offset mainly by robust exports and a $1 trillion trade surplus.`\
+https://nytimes.com/2025/01/16/business/china-economy-2024-gdp.html
+
+**‘Back in Action’ Review: Surprise! Mom and Dad Are Spies**\
+`Cameron Diaz and Jamie Foxx star as former agents, now parents, who must protect their children. You can guess the rest.`\
+https://nytimes.com/2025/01/16/movies/back-in-action-review.html
+
 **Impressionism: Le Quiz!**\
 `It’s been 150 years since Monet and the Impressionists shocked Paris with their rebellious Société Anonyme show. How well do you know those once-revolutionary smudges?`\
 https://nytimes.com/interactive/2025/01/16/arts/design/impressionism-quiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/us/eaton-fire-altadena-residents-survivors.html
 **Justin Baldoni Sues Blake Lively and Ryan Reynolds for Defamation**\
 `The lawsuit is the latest legal action in a feud tied to the 2024 film “It Ends With Us,” which starred Ms. Lively and Mr. Baldoni, who also directed the film.`\
 https://nytimes.com/2025/01/16/business/media/justin-baldoni-sues-blake-lively-ryan-reynolds.html
-
-**American Express to Pay $230 Million to Settle Deceptive Marketing Claims**\
-`The Justice Department said the company misrepresented its credit card rewards and fees and made false claims about the tax benefits of its wire transfer products.`\
-https://nytimes.com/2025/01/16/your-money/american-express-fines-credit-cards.html
-
-**Darrin Bell, Pulitzer-Winning Cartoonist, Faces Child Pornography Charges**\
-`More than 100 videos of child sex abuse material, some of which was computer generated, have been connected to Mr. Bell, 49, according to the authorities.`\
-https://nytimes.com/2025/01/16/us/darrin-bell-arrest-child-pornography.html
 

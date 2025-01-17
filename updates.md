@@ -1,3 +1,11 @@
+**China Says Economy Grew 5% Last Year, Driven by Exports**\
+`Analysts say they see signs of malaise in China’s domestic economy, but those problems were offset mainly by robust exports and a $1 trillion trade surplus.`\
+https://nytimes.com/2025/01/16/business/china-economy-2024-gdp.html
+
+**‘Back in Action’ Review: Surprise! Mom and Dad Are Spies**\
+`Cameron Diaz and Jamie Foxx star as former agents, now parents, who must protect their children. You can guess the rest.`\
+https://nytimes.com/2025/01/16/movies/back-in-action-review.html
+
 **Impressionism: Le Quiz!**\
 `It’s been 150 years since Monet and the Impressionists shocked Paris with their rebellious Société Anonyme show. How well do you know those once-revolutionary smudges?`\
 https://nytimes.com/interactive/2025/01/16/arts/design/impressionism-quiz.html
