@@ -1,3 +1,7 @@
+**China’s Population Declines for 3rd Straight Year**\
+`The fall came despite a slight rise in births last year, the first increase since 2016. State efforts to cajole women to have children have met resistance.`\
+https://nytimes.com/2025/01/16/business/china-population-births-deaths.html
+
 **Israel and Hamas Work Out Differences That Had Delayed Cease-Fire Deal, Netanyahu Says**\
 `Prime Minister Benjamin Netanyahu said he had called a meeting of his security cabinet for later on Friday.`\
 https://nytimes.com/2025/01/16/world/middleeast/israel-hamas-gaza-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/16/us/la-wildfires-california/one-stretch-of-th
 **Seidler legal dispute: Motion seeks arbitration to decide certain claims**\
 `Thursday’s motion does not mention the Padres or Sheel Seidler’s claim that she should be the team's control person.`\
 https://nytimes.com/athletic/6068487/2025/01/16/padres-seidler-lawsuit-arbitration-motion/
-
-**China Says Economy Grew 5% Last Year, Driven by Exports**\
-`Analysts say they see signs of malaise in China’s domestic economy, but those problems were offset mainly by robust exports and a $1 trillion trade surplus.`\
-https://nytimes.com/2025/01/16/business/china-economy-2024-gdp.html
 
