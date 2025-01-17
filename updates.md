@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Auston Matthews, William Nylander power comeback**\
+`Matthews and Nylander both scored two goals as Toronto battled back from 2-1 and 3-2 deficits in the third period to beat New Jersey 4-3.`\
+https://nytimes.com/athletic/6068664/2025/01/16/maple-leafs-devils-auston-matthews-william-nylander/
+
 **More Than a Week After the Fires, Los Angeles Evacuees Remain in Limbo**\
 `Many neighborhoods are still off-limits to residents. Evacuees say they are increasingly frustrated and at a loss over what to do next.`\
 https://nytimes.com/2025/01/16/us/la-fires-evacuations-homes.html
