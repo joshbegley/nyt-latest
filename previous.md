@@ -1,3 +1,11 @@
+**When the Word Is Not Just Flesh: Reporting on A.I. in Religion**\
+`A technology reporter came across a Facebook group called “A.I. for Church Leaders and Pastors,” and his interest was piqued.`\
+https://nytimes.com/2025/01/17/reader-center/ai-religion-journalism.html
+
+**Barcelona's Camp Nou return pushed back until May at the earliest**\
+`Barcelona&#8217;s return to their Camp Nou stadium has been further delayed until May at the earliest.`\
+https://nytimes.com/athletic/6011513/2025/01/17/barcelona-camp-nou-return-when/
+
 **Why Beijing Could Have the Last Say on Any TikTok Deal**\
 `A change to China’s export rules could give Beijing sign off on any deal that would force the internet giant ByteDance to give up TikTok.`\
 https://nytimes.com/2025/01/17/us/politics/tiktok-ban-sale-china.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6068702/2025/01/17/fantasy-trends-and-hidden-gems-j
 `It might take a lot for the Irish to pull an outright upset over the Buckeyes, but this game should be closer than the spread would indicate`\
 https://nytimes.com/athletic/6069619/2025/01/17/notre-dame-stronger-than-odds-against-ohio-state/
 
-**Here’s How to Download Your Videos and Data From TikTok**\
+**Here’s how to download your videos and data from TikTok.**\
 `Here are a few methods for users who want copies of the videos they personally uploaded or made on TikTok.`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-how-to-download-your-videos-and-data-from-tiktok
 
 **Can Erling Haaland break Alan Shearer's record of 260 Premier League goals?**\
 `The Norwegian's new nine-and-a-half-year contract gives him the chance to chase down the competition's all-time top scorer - will he do it?`\
 https://nytimes.com/athletic/6069581/2025/01/17/erling-haaland-premier-league-goal-shearer-kane-record/
-
-**With guarded hopes, families of hostages in Gaza anticipate their release.**\
-`By Johnatan Reiss`\
-https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/with-guarded-hopes-families-of-hostages-in-gaza-anticipate-their-release
-
-**Senate Pushes Bill to Deport Migrants Charged With Crimes Past a Key Hurdle**\
-`Ten Democrats joined Republicans in voting to advance the measure in a critical test vote that put it on track for quick enactment under President-elect Donald J. Trump.`\
-https://nytimes.com/2025/01/17/us/politics/senate-migrant-deportation-bill.html
 

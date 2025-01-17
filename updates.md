@@ -1,3 +1,15 @@
+**When the Word Is Not Just Flesh: Reporting on A.I. in Religion**\
+`A technology reporter came across a Facebook group called “A.I. for Church Leaders and Pastors,” and his interest was piqued.`\
+https://nytimes.com/2025/01/17/reader-center/ai-religion-journalism.html
+
+**Barcelona's Camp Nou return pushed back until May at the earliest**\
+`Barcelona&#8217;s return to their Camp Nou stadium has been further delayed until May at the earliest.`\
+https://nytimes.com/athletic/6011513/2025/01/17/barcelona-camp-nou-return-when/
+
+**Here’s how to download your videos and data from TikTok.**\
+`Here are a few methods for users who want copies of the videos they personally uploaded or made on TikTok.`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-how-to-download-your-videos-and-data-from-tiktok
+
 **Why Beijing Could Have the Last Say on Any TikTok Deal**\
 `A change to China’s export rules could give Beijing sign off on any deal that would force the internet giant ByteDance to give up TikTok.`\
 https://nytimes.com/2025/01/17/us/politics/tiktok-ban-sale-china.html
