@@ -1,3 +1,11 @@
+**Democrats Frame Trump’s Friends as Foes**\
+`Some Democrats see Elon Musk as an ideal foil. But not everyone agrees.`\
+https://nytimes.com/2025/01/17/us/politics/democrats-frame-trumps-friends-as-foes.html
+
+**Jimmy Butler expected to return from Miami's 7-game suspension**\
+`Though Butler is returning to the court as his team-issued seven-game suspension ends, his dispute with the Heat remains far from resolved.`\
+https://nytimes.com/athletic/6067921/2025/01/17/jimmy-butler-heat-returns-suspended-miami-heat-denver-nuggets/
+
 **Kellen Moore jumps Deion Sanders as favorite for Cowboys head coach opening**\
 `There's a new favorite for the Dallas Cowboys head coaching job and it isn't Deion Sanders. Read here for the odds and insights.`\
 https://nytimes.com/athletic/6062386/2025/01/17/cowboys-head-coach-odds-deion-sanders-kellen-more/
