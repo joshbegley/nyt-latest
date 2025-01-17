@@ -1,3 +1,7 @@
+**The government’s case for banning TikTok on national security grounds was light on examples.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-governments-case-for-banning-tiktok-on-national-security-grounds-was-light-on-examples
+
 **Read the Supreme Court Ruling**\
 `The Supreme Court rejected TikTok’s First Amendment challenge to the law that effectively bans the social media app in the United States.`\
 https://nytimes.com/interactive/2025/01/17/us/scotus-tok.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-the-latest
 **Supreme Court Backs Law Requiring TikTok to Be Sold or Banned**\
 `The company argued that the law, citing potential Chinese threats to the nation’s security, violated its First Amendment rights and those of its 170 million users.`\
 https://nytimes.com/2025/01/17/us/politics/supreme-court-tiktok.html
-
-**Biden Says Equal Rights Amendment Has Passed, but Does Not Force Legal Fight**\
-`President Biden’s remarks appeared to be largely a symbolic gesture of support for a decades-long campaign to enshrine gender equality into the Constitution.`\
-https://nytimes.com/2025/01/17/us/politics/equal-rights-amendment-constitution-biden.html
 
