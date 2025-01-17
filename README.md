@@ -1,3 +1,11 @@
+**DOJ urges judge of House case to modify $20.5M cap on school-athlete revenue sharing**\
+`The House lawsuit will pave the way for schools to begin sharing revenue directly with its athletes next school year.`\
+https://nytimes.com/athletic/6070948/2025/01/17/house-case-ncaa-salary-cap-department-of-justice/
+
+**Gus Williams, Guard Who Led Seattle to an N.B.A. Title, Dies at 71**\
+`Undersized but speedy and known as the Wizard for his acrobatics, he was a high scorer who in 1979 starred in a series that brought the SuperSonics their only crown.`\
+https://nytimes.com/2025/01/17/sports/basketball/gus-williams-dead.html
+
 **Border Patrol sweeps in California could offer a preview of Trump’s plans.**\
 `By Steve Eder and Miriam Jordan`\
 https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/border-patrol-sweeps-in-california-could-offer-a-preview-of-trumps-plans
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6061606/2025/01/17/roki-sasaki-dodgers-sf-giants-im
 **Supreme Court to Hear Case on Religious Objections to L.G.B.T.Q. Storybooks**\
 `Parents in Maryland said a school board’s refusal to notify them and to excuse their children from discussions of the storybooks violated the First Amendment.`\
 https://nytimes.com/2025/01/17/us/supreme-court-lgbtq-school-books.html
-
-**Former Minister Is Acquitted in 1975 Murder of 8-Year-Old Near Philadelphia**\
-`The defense argued that David Zandstra, 84, had been coerced by investigators into confessing to the killing of Gretchen Harrington.`\
-https://nytimes.com/2025/01/17/us/david-zandstra-acquitted-murder-gretchen-harrington.html
-
-**Panthers part ways with Nate Carroll as passing game coordinator**\
-`Bryce Young enjoyed late-season resurgence, but Carolina will seek new coach to guide passing game.`\
-https://nytimes.com/athletic/6070970/2025/01/17/panthers-part-ways-with-nate-carroll-as-passing-game-coordinator/
 
