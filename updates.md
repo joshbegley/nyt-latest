@@ -1,3 +1,15 @@
+**Trump Picks Ex-Congressman to Manage U.S. Nuclear Arsenal**\
+`Brandon Williams served aboard a nuclear submarine and represented a New York congressional district for one term, but has said little about his experience in the management of atomic weapons.`\
+https://nytimes.com/2025/01/17/science/trump-brandon-williams-nuclear-weapons.html
+
+**Economics Has a Name for the Costs of Loneliness**\
+`“Social capital” is hard to define, but the loss of it in recent decades is palpable.`\
+https://nytimes.com/2025/01/17/opinion/social-capital-loneliness.html
+
+**Heat Today: Bam Adebayo's offense has fluctuated, but his impact on Miami remains strong**\
+`Bam Adebayo doesn't listen to the "couch coaches" who don't fully appreciate his impact.`\
+https://nytimes.com/athletic/6070420/2025/01/17/bam-adebayo-offense-heat-nba/
+
 **Jan. 6 Cases Grind On, Days Before Trump Re-enters the White House**\
 `It is unclear what Donald J. Trump intends to do with the Jan. 6 investigation, the largest single criminal inquiry the Justice Department has undertaken in its 155-year history.`\
 https://nytimes.com/2025/01/17/us/politics/jan-6-pardon-trump.html
