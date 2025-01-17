@@ -1,3 +1,27 @@
+**Kellen Moore jumps Deion Sanders as favorite for Cowboys head coach opening**\
+`There's a new favorite for the Dallas Cowboys head coaching job and it isn't Deion Sanders. Read here for the odds and insights.`\
+https://nytimes.com/athletic/6062386/2025/01/17/cowboys-head-coach-odds-deion-sanders-kellen-more/
+
+**Israeli Government Approves Cease-Fire Deal for Gaza**\
+`The full Israeli cabinet passed the agreement during a meeting that continued into the Jewish Sabbath, setting up the first reprieve in Gaza in over a year.`\
+https://nytimes.com/2025/01/17/world/middleeast/israel-cabinet-ceasefire-gaza.html
+
+**Roki Sasaki is signing with the Dodgers. Will the Giants ever get their superstar?**\
+`The Giants won't get a Sasaki until they are an It Franchise. They have work to do on three fronts to become one.`\
+https://nytimes.com/athletic/6061606/2025/01/17/roki-sasaki-dodgers-sf-giants-impact/
+
+**Supreme Court to Hear Case on Religious Objections to L.G.B.T.Q. Storybooks**\
+`Parents in Maryland said a school board’s refusal to notify them and to excuse their children from discussions of the storybooks violated the First Amendment.`\
+https://nytimes.com/2025/01/17/us/supreme-court-lgbtq-school-books.html
+
+**Former Minister Is Acquitted in 1975 Murder of 8-Year-Old Near Philadelphia**\
+`The defense argued that David Zandstra, 84, had been coerced by investigators into confessing to the killing of Gretchen Harrington.`\
+https://nytimes.com/2025/01/17/us/david-zandstra-acquitted-murder-gretchen-harrington.html
+
+**Panthers part ways with Nate Carroll as passing game coordinator**\
+`Bryce Young enjoyed late-season resurgence, but Carolina will seek new coach to guide passing game.`\
+https://nytimes.com/athletic/6070970/2025/01/17/panthers-part-ways-with-nate-carroll-as-passing-game-coordinator/
+
 **The Dylan-Chalamet Connection**\
 `A conversation about “A Complete Unknown” and the power of celebrity.`\
 https://nytimes.com/2025/01/17/arts/music/popcast-bob-dylan-timothee-chalamet.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/17/business/media/jean-jennings-dead.html
 **American Airlines Accused of Discrimination by Interracial Couple**\
 `In a lawsuit, two newlyweds say they were detained after a passenger and airline employees wrongly suspected the Black husband of trafficking his white wife.`\
 https://nytimes.com/2025/01/17/travel/american-airlines-discrimination.html
-
-**What the Cease-Fire Deal Really Means**\
-`After initial celebrations, challenges will be enormous as the terms of the Israel-Hamas cease-fire progress.`\
-https://nytimes.com/2025/01/17/opinion/gaza-israel-hamas-hostages-cease-fire.html
-
-**Israel Prepares to Receive Hostages Held in Gaza for Over a Year**\
-`Hospitals and health officials have been preparing isolated areas where the hostages can begin recuperating, and there are concerns that the returning captives may be malnourished.`\
-https://nytimes.com/2025/01/17/world/middleeast/israel-gaza-hostages.html
-
-**Roki Sasaki announces he's signing with the Dodgers**\
-`At his age and talent level, Sasaki folds in perfectly for a Dodgers club that was already planning on running a six-man rotation.`\
-https://nytimes.com/athletic/6070699/2025/01/17/roki-sasaki-signs-with-los-angeles-dodgers/
-
-**F.A.A. Temporarily Halts Launches of Musk’s Starship After Explosion**\
-`The agency launched an investigation into the “space vehicle mishap” on Thursday night that forced commercial flights to divert and caused debris to rain toward Caribbean islands.`\
-https://nytimes.com/2025/01/17/us/politics/faa-spacex-musk.html
-
-**U.S. Resolves Civil Rights Inquiry Into Illinois Deputy’s Killing of Black Woman**\
-`While the Justice Department found no discriminatory practices in the shooting death of Sonya Massey, 36, Sangamon County must update its policies and training.`\
-https://nytimes.com/2025/01/17/us/sonya-massey-shooting-sheriff-investigation.html
-
-**Report Projecting Drop in Freshman Enrollment Delivered Incorrect Findings**\
-`The National Student Clearinghouse, which produced the report, reversed its conclusions after identifying methodological errors in its research.`\
-https://nytimes.com/2025/01/17/us/politics/college-freshman-enrollment-error.html
 
