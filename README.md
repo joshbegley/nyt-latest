@@ -1,3 +1,7 @@
+**Amad continues to set the standard for Ruben Amorim's Manchester United**\
+`Amad embodies many of the traits Amorim wants from his team, and against Southampton he dug them out of another hole`\
+https://nytimes.com/athletic/6068639/2025/01/17/amad-manchester-united-southampton-hattrick/
+
 **Word of the Day: jeremiad**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/17/learning/word-of-the-day-jeremiad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6037263/2025/01/17/brighton-hurzeler-ipswich-winles
 **Will Liverpool win this season's title - and, if so, when? Our experts' views**\
 `A group of our writers on whether the 2024-25 crown is destined for Anfield and when the pivotal date in this title race could be`\
 https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-when/
-
-**Cazorla on 'ideal Arsenal coach' Arteta and Barca's 'unfair' treatment of Xavi**\
-`The former Arsenal midfielder, who is now 40 and playing for boyhood club Real Oviedo, speaks to The Athletic`\
-https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xavi-barcelona/
 
