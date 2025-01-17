@@ -1,3 +1,7 @@
+**3 Lawyers for Navalny Sentenced for Passing Along His Correspondence**\
+`A Russian court said the lawyers for Aleksei Navalny, the country’s top opposition figure before his death in a penal colony last year, were guilty of involvement in an extremist group.`\
+https://nytimes.com/2025/01/17/world/europe/navalny-lawyers-sentenced-russia.html
+
 **More draws, less running and launched goal-kicks: Tottenham need to be more boring**\
 `Ange Postecoglou's Tottenham play in the same gear regardless of the opposition or scoreline — this needs to change`\
 https://nytimes.com/athletic/6069111/2025/01/17/tottenham-postecoglou-tactics/
