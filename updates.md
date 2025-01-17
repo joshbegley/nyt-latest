@@ -1,3 +1,11 @@
+**Notre Dame is stronger than its odds against Ohio State indicate**\
+`It might take a lot for the Irish to pull an outright upset over the Buckeyes, but this game should be closer than the spread would indicate`\
+https://nytimes.com/athletic/6069619/2025/01/17/notre-dame-stronger-than-odds-against-ohio-state/
+
+**Here’s How to Download Your Videos and Data From TikTok**\
+`Here are a few methods for users who want copies of the videos they personally uploaded or made on TikTok.`\
+https://nytimes.com/2025/01/17/us/politics/heres-how-to-download-your-videos-and-data-from-tiktok.html
+
 **Can Erling Haaland break Alan Shearer's record of 260 Premier League goals?**\
 `The Norwegian's new nine-and-a-half-year contract gives him the chance to chase down the competition's all-time top scorer - will he do it?`\
 https://nytimes.com/athletic/6069581/2025/01/17/erling-haaland-premier-league-goal-shearer-kane-record/
