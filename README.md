@@ -1,3 +1,7 @@
+**The ‘Minister of Everything’ for Justin Trudeau Enters Race to Replace Him**\
+`Chrystia Freeland, the former deputy prime minister, sought to distance herself from Mr. Trudeau in a public letter criticizing him for “costly political gimmicks.”`\
+https://nytimes.com/2025/01/17/world/canada/chrystia-freeland-justin-trudeau-canada-prime-minister.html
+
 **Mailbag: Should USC be encouraged by Notre Dame and Penn State's CFP runs?**\
 `Who will be the program’s general manager? Who else could the Trojans add in the transfer portal? Who will they hire as linebackers coach?`\
 https://nytimes.com/athletic/6069350/2025/01/17/usc-football-notre-dame-penn-state-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/health/medicare-prices-ozempic-wegovy.html
 **Why the Josuar De Jesus Gonzalez signing matters for the Giants**\
 `Signing arguably the best non-Sasaki prospect in the international class is an indication of how far the Giants have come in Latin America.`\
 https://nytimes.com/athletic/6066789/2025/01/17/sf-giants-josuar-gonzalez-analysis/
-
-**Dozens of Gazans have been killed in Israeli strikes since the deal was announced, emergency officials say.**\
-`By Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/dozens-of-gazans-have-been-killed-in-israeli-strikes-since-the-deal-was-announced-emergency-officials-say
 
