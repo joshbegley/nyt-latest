@@ -1,3 +1,7 @@
+**Lemina apologises to Pereira and says he is available to play**\
+`Former Wolverhampton Wanders captain Mario Lemina has performed a major U-turn and declared himself available to play for the club until his future is decided.`\
+https://nytimes.com/athletic/6069553/2025/01/17/mario-lemina-vitor-pereira-wolves/
+
 **NHL Power Rankings: The top 10 gets a total shake-up**\
 `This week, we offer no razzle-dazzle and no glitzy themes. It's back to basics for the Rankings Boys.`\
 https://nytimes.com/athletic/6068961/2025/01/17/nhl-power-rankings-capitals-ovechkin-goals-race/

@@ -1,3 +1,7 @@
+**Lemina apologises to Pereira and says he is available to play**\
+`Former Wolverhampton Wanders captain Mario Lemina has performed a major U-turn and declared himself available to play for the club until his future is decided.`\
+https://nytimes.com/athletic/6069553/2025/01/17/mario-lemina-vitor-pereira-wolves/
+
 **NHL Power Rankings: The top 10 gets a total shake-up**\
 `This week, we offer no razzle-dazzle and no glitzy themes. It's back to basics for the Rankings Boys.`\
 https://nytimes.com/athletic/6068961/2025/01/17/nhl-power-rankings-capitals-ovechkin-goals-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069080/2025/01/17/mlb-offseason-winners-losers-202
 **E.U. Expands Investigation of X Over Spread of Illicit Content**\
 `The probe is a test of the European Union’s willingness to go after X’s owner, Elon Musk, whose geopolitical influence has grown because of his ties to the incoming Trump administration.`\
 https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
-
-**Row Z: Chelsea are back, bargain Neymar and Ray Parlour's war of two halves**\
-`Our weekly round-up of soccer's sillier side featuring straight-talking players and managers alike and the logic in signing Neymar`\
-https://nytimes.com/athletic/6069142/2025/01/17/chelsea-neymar-chalobah-parlour-row-z/
 
