@@ -2,9 +2,9 @@
 `Uecker left us with so many smiles that I wanted to pay tribute to his amazing baseball life with this collection of fun facts. `\
 https://nytimes.com/athletic/6069764/2025/01/17/bob-uecker-facts-baseball-tv-commercials/
 
-**Trump’s Advisers May Move His Swearing-in Indoors Because of Cold**\
+**Trump’s Advisers May Move Inauguration Swearing-in Indoors Because of Cold**\
 `The potential change, a rare break with tradition, would deny Mr. Trump the pomp and large audience he hoped for at his second swearing-in.`\
-https://nytimes.com/2025/01/17/us/politics/trump-indoor-inauguration.html
+https://nytimes.com/2025/01/17/us/politics/trump-indoor-inauguration-cold.html
 
 **Leeds may need to act in January transfer window following Struijk injury**\
 `Leeds United may be forced into being active in the January transfer window following a new injury to key defender Pascal Struijk.`\

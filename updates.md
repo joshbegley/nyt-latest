@@ -1,3 +1,7 @@
+**Trump’s Advisers May Move Inauguration Swearing-in Indoors Because of Cold**\
+`The potential change, a rare break with tradition, would deny Mr. Trump the pomp and large audience he hoped for at his second swearing-in.`\
+https://nytimes.com/2025/01/17/us/politics/trump-indoor-inauguration-cold.html
+
 **Fun facts about Bob Uecker and his amazing baseball life**\
 `Uecker left us with so many smiles that I wanted to pay tribute to his amazing baseball life with this collection of fun facts. `\
 https://nytimes.com/athletic/6069764/2025/01/17/bob-uecker-facts-baseball-tv-commercials/
