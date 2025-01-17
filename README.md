@@ -1,3 +1,7 @@
+**Why the Canucks' season is falling off the rails: 3 takeaways**\
+`A blowout loss to the Kings, including giving up three goals in the first ten minutes, left the Canucks once again out of a playoff spot.`\
+https://nytimes.com/athletic/6068670/2025/01/17/canucks-season-off-the-rails-defence-kings/
+
 **FPL: Fantasy Premier League: How to make the most of the assistant manager chip**\
 `Manager prices have been revealed for FPL's new chip, which can be used from Gameweek 24 - here's how to maximise it`\
 https://nytimes.com/athletic/6059589/2025/01/17/fantasy-premier-league-assistant-manager-chip-strategy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061227/2025/01/17/everton-fans-seats-new-stadium/
 **Attention Is Power**\
 `The MSNBC anchor Chris Hayes on why attention is the most valuable resource.`\
 https://nytimes.com/video/opinion/100000009931684/attention-is-power.html
-
-**Friday Briefing**\
-`A vote on the Gaza cease-fire deal.`\
-https://nytimes.com/2025/01/17/briefing/gaza-deal-david-lynch.html
 
