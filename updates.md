@@ -1,3 +1,7 @@
+**Live Updates: Israel and Hamas Work Out Differences Over Deal, Netanyahu Says**\
+`Prime Minister Benjamin Netanyahu ordered a meeting of Israel’s political security cabinet to vote on the Gaza cease-fire deal. An expected vote had been delayed amid disputes with Hamas and rifts inside his governing coalition.`\
+https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire
+
 **Cazorla on 'ideal Arsenal coach' Arteta and Barca's 'unfair' treatment of Xavi**\
 `The former Arsenal midfielder, who is now 40 and playing for boyhood club Real Oviedo, speaks to The Athletic`\
 https://nytimes.com/athletic/6063864/2025/01/17/santi-cazorla-arteta-arsenal-xavi-barcelona/
