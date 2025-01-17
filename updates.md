@@ -1,3 +1,11 @@
+**Tom Brady committed to Fox NFL broadcasting contract despite growing role with Raiders**\
+`Brady, Fox and the NFL agreed to put extensive restrictions on what he’s allowed to do because of his minority ownership in the Raiders.`\
+https://nytimes.com/athletic/6068502/2025/01/16/tom-brady-fox-broadcasting-contract-raiders/
+
+**Thunder avenge loss to Cavaliers in rematch of league's top teams**\
+`But the final score was not indicative of just how lopsided the game was.`\
+https://nytimes.com/athletic/6068272/2025/01/16/thunder-cavaliers-regular-season-rematch/
+
 **Nancy Pelosi Is Skipping Trump’s Inauguration**\
 `The former speaker clashed with Donald Trump throughout his first term, and the acrimony between the two persisted after he left office.`\
 https://nytimes.com/2025/01/16/us/politics/nancy-pelosi-trump-inauguration.html
