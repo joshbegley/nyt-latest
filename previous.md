@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheur
 https://nytimes.com/2025/01/17/us/louisiana-police-ronald-greene.html
 
 **Banning UNRWA Will Sabotage Cease-fire, Warns Agency Head**\
-`Philippe Lazzarini, the commissioner general of the U.N. agency for Palestine Refugees, described the dangers if Israel terminates UNRWA’s operations.`\
+`Philippe Lazzarini, the commissioner general of the U.N. agency for Palestine Refugees, described the repercussions if Israel followed through on a ban on UNRWA’s operations.`\
 https://nytimes.com/video/world/middleeast/100000009933368/unrwa-ban-sabotage-gaza-ceasefire.html
 
 **Find Your Next Favorite Workout**\
