@@ -1,3 +1,7 @@
+**NASL v MLS trial promises key insight into U.S. soccer, with $500m at stake**\
+`American soccer eagerly awaits the findings of the heavyweight court battle, which includes conspiracy charges and famous names`\
+https://nytimes.com/athletic/6068165/2025/01/17/nasl-mls-trial/
+
 **Solskjaer holds talks to become Besiktas head coach**\
 `Ole Gunnar Solskjaer is holding talks over becoming the new head coach of Turkish club Besiktas.`\
 https://nytimes.com/athletic/5995138/2025/01/17/ole-gunnar-solskjaer-besiktas-manager-appointment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066077/2025/01/17/erling-haaland-man-city-contract
 **Naomi Osaka out of Australian Open after injury forces retirement against Belinda Bencic**\
 `MELBOURNE, Australia — Naomi Osaka is out of the Australian Open after the abdominal injury that forced her out of the ASB Classic final in Auckland, New Zealand recurred during her third-round match against Belinda Bencic.`\
 https://nytimes.com/athletic/6068977/2025/01/17/naomi-osaka-australian-open-injury/
-
-**Oregon State topples No. 16 Gonzaga, 97-89, in OT**\
-`It was Oregon State’s 13th consecutive win over Gonzaga — granted, the last one came during the 1991-92 season.`\
-https://nytimes.com/athletic/6068933/2025/01/17/oregon-state-gonzaga-mens-college-basketball-upset/
 
