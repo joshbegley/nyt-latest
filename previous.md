@@ -1,3 +1,7 @@
+**Oregon State topples No. 16 Gonzaga, 97-89, in OT**\
+`It was Oregon State’s 13th consecutive win over Gonzaga — granted, the last one came during the 1991-92 season.`\
+https://nytimes.com/athletic/6068933/2025/01/17/oregon-state-gonzaga-mens-college-basketball-upset/
+
 **Amad continues to set the standard for Ruben Amorim's Manchester United**\
 `Amad embodies many of the traits Amorim wants from his team, and against Southampton he dug them out of another hole`\
 https://nytimes.com/athletic/6068639/2025/01/17/amad-manchester-united-southampton-hattrick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064044/2025/01/17/chelsea-christopher-nkunku-mathy
 **The Brighton blip is over, not that anyone was panicking - this club have been here before**\
 `The club have endured streaks without victories before and still thrived, with Fabian Hurzeler reassured by performances in this latest run`\
 https://nytimes.com/athletic/6037263/2025/01/17/brighton-hurzeler-ipswich-winless-run/
-
-**Will Liverpool win this season's title - and, if so, when? Our experts' views**\
-`A group of our writers on whether the 2024-25 crown is destined for Anfield and when the pivotal date in this title race could be`\
-https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-when/
 
