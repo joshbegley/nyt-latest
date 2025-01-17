@@ -1,3 +1,7 @@
+**Israel and Hamas Work Out Differences That Had Delayed Cease-Fire Deal, Netanyahu Says**\
+`Prime Minister Benjamin Netanyahu said he had called a meeting of his security cabinet for later on Friday.`\
+https://nytimes.com/2025/01/16/world/middleeast/israel-hamas-gaza-cease-fire.html
+
 **More Than a Week After the Fires, Los Angeles Evacuees Remain Stuck in Limbo**\
 `Many neighborhoods are still off-limits to residents. Evacuees say they are increasingly frustrated and at a loss over what to do next.`\
 https://nytimes.com/2025/01/16/us/la-fires-evacuations-homes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6068487/2025/01/16/padres-seidler-lawsuit-arbitrati
 **China Says Economy Grew 5% Last Year, Driven by Exports**\
 `Analysts say they see signs of malaise in China’s domestic economy, but those problems were offset mainly by robust exports and a $1 trillion trade surplus.`\
 https://nytimes.com/2025/01/16/business/china-economy-2024-gdp.html
-
-**‘Back in Action’ Review: Surprise! Mom and Dad Are Spies**\
-`Cameron Diaz and Jamie Foxx star as former agents, now parents, who must protect their children. You can guess the rest.`\
-https://nytimes.com/2025/01/16/movies/back-in-action-review.html
 
