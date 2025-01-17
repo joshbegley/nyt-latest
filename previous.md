@@ -1,3 +1,7 @@
+**Biden’s Farewell Address Leaves Late Night Befuddled**\
+`After the president warned about various threats to democracy, Seth Meyers said: “I agree, but why are you giving us a to-do list on your way out?”`\
+https://nytimes.com/2025/01/17/arts/television/late-night-biden-farewell-address.html
+
 **Hug**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/01/17/learning/hug.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/learning/word-of-the-day-jeremiad.html
 **Live Updates: Israel and Hamas Work Out Differences Over Deal, Netanyahu Says**\
 `Prime Minister Benjamin Netanyahu ordered a meeting of Israel’s political security cabinet to vote on the Gaza cease-fire deal. An expected vote had been delayed amid disputes with Hamas and rifts inside his governing coalition.`\
 https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire
-
-**How to Find Order in a Chaotic New World**\
-`The global landscape of today is less predictable and more disordered. But it need not be less cooperative.`\
-https://nytimes.com/2025/01/17/opinion/order-chaos-worldwide-cooperation.html
 
