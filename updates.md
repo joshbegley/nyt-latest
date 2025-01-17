@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
 
+**Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
+`Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
+`\
+https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
+
 **C.I.A. Analyst Pleads Guilty to Leaking Classified Documents About Israel**\
 `The analyst was charged with two counts of violating the Espionage Act and faces up to a decade in prison for disclosing sensitive information about Israel’s response to an Iranian attack.`\
 https://nytimes.com/2025/01/17/us/politics/cia-analyst-guilty-plea-classified-israel.html
