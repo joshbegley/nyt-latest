@@ -1,3 +1,7 @@
+**Erling Haaland's huge career contract - What signing until 2034 means for him and Man City**\
+`When he joined City few thought that the Norwegian would stay at the club for an extended period — so what has changed?`\
+https://nytimes.com/athletic/6066215/2025/01/17/erling-haaland-career-contract-manchester-city/
+
 **Biden’s Farewell Address Leaves Late Night Befuddled**\
 `After the president warned about various threats to democracy, Seth Meyers said: “I agree, but why are you giving us a to-do list on your way out?”`\
 https://nytimes.com/2025/01/17/arts/television/late-night-biden-farewell-address.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6068639/2025/01/17/amad-manchester-united-southampt
 **Word of the Day: jeremiad**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/17/learning/word-of-the-day-jeremiad.html
-
-**Live Updates: Israel and Hamas Work Out Differences Over Deal, Netanyahu Says**\
-`Prime Minister Benjamin Netanyahu ordered a meeting of Israel’s political security cabinet to vote on the Gaza cease-fire deal. An expected vote had been delayed amid disputes with Hamas and rifts inside his governing coalition.`\
-https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire
 
