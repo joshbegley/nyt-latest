@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers
 `\
 https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
 
+**Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
+`Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
+`\
+https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
+
 **How Wildfires Came for City Streets**\
 `Many Californians thought wildfires couldn’t reach deep into their cities. But the Los Angeles fires showed how older homes became fuel that fed the fires.`\
 https://nytimes.com/2025/01/17/us/los-angeles-wildfires-homes.html
