@@ -1,3 +1,7 @@
+**Blue Jackets ride wave of confidence past San Jose for sixth consecutive win**\
+`A strong first two periods helped the Blue Jackets survive a third-period push from the Sharks before van Riemsdyk found the empty net.`\
+https://nytimes.com/athletic/6068650/2025/01/16/blue-jackets-confidence-werenski-sharks/
+
 **Maple Leafs report cards: Auston Matthews, William Nylander power comeback**\
 `Matthews and Nylander each scored two goals as Toronto battled back from 2-1 and 3-2 deficits in the third period to beat New Jersey 4-3.`\
 https://nytimes.com/athletic/6068664/2025/01/16/maple-leafs-devils-auston-matthews-william-nylander/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/crosswords/daily-puzzle-2025-01-17.html
 **Nathalie Dupree, ‘Queen of Southern Cooking,’ Dies at 85**\
 `As a cookbook author, TV personality and mentor, she sought to burst the chicken-fried stereotype of the South. Sometimes her life was as messy as her kitchen.`\
 https://nytimes.com/2025/01/16/dining/nathalie-dupree-dead.html
-
-**One stretch of the Malibu coast has become a buzzing base for firefighters.**\
-`By Emily Baumgaertner`\
-https://nytimes.com/live/2025/01/16/us/la-wildfires-california/one-stretch-of-the-malibu-coast-has-become-a-buzzing-base-for-firefighters
 
