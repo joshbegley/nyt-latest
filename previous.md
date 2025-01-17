@@ -1,3 +1,7 @@
+**Duran fined but avoids ban for water bottle incident**\
+`Aston Villa forward Jhon Duran has been fined £15,000 ($18,300) by the Football Association (FA) after kicking a water bottle during his side’s Premier League game against Newcastle United on Boxing Day.`\
+https://nytimes.com/athletic/6069239/2025/01/17/aston-villa-jhon-duran-fa-charge-fine/
+
 **Court Vision: Does Arkansas already have buyer's remorse in John Calipari's first season?**\
 `Don't look now, but Tom Izzo has himself a squad. Missouri may have the best win of the week. Wake Forest solved a big problem.`\
 https://nytimes.com/athletic/6068359/2025/01/17/arkansas-mens-basketball-john-calipari-buyers-remorse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066786/2025/01/17/bears-mock-draft-reaction-josh-s
 **Sam Darnold or J.J. McCarthy? For Vikings, it's about what gives them 'best chance to win'**\
 `Should the Vikings pay Darnold after his (mostly) excellent season? Or should they go with McCarthy and spend that money at other positions?`\
 https://nytimes.com/athletic/6067978/2025/01/17/vikings-quarterback-sam-darnold-jj-mccarthy-free-agency/
-
-**Joan Plowright, Award-Winning Actress and Olivier’s Widow, Dies at 95**\
-`She won many accolades — and was honored with a damehood — during a seven-decade career on the London stage, in film and on Broadway.`\
-https://nytimes.com/2025/01/17/obituaries/joan-plowright-dead.html
 
