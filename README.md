@@ -1,3 +1,7 @@
+**Seidler legal dispute: Motion seeks arbitration to decide certain claims**\
+`Thursday’s motion does not mention the Padres or Sheel Seidler’s claim that she should be the team's control person.`\
+https://nytimes.com/athletic/6068487/2025/01/16/padres-seidler-lawsuit-arbitration-motion/
+
 **China Says Economy Grew 5% Last Year, Driven by Exports**\
 `Analysts say they see signs of malaise in China’s domestic economy, but those problems were offset mainly by robust exports and a $1 trillion trade surplus.`\
 https://nytimes.com/2025/01/16/business/china-economy-2024-gdp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/movies/david-lynch-films-streaming.html
 **‘Stuck on an Island,’ Some Residents Insist on Staying in the Fire Zone**\
 `In fire-scarred Altadena, dozens of people are still living in their homes and surviving without electricity or clean tap water.`\
 https://nytimes.com/2025/01/16/us/eaton-fire-altadena-residents-survivors.html
-
-**Justin Baldoni Sues Blake Lively and Ryan Reynolds for Defamation**\
-`The lawsuit is the latest legal action in a feud tied to the 2024 film “It Ends With Us,” which starred Ms. Lively and Mr. Baldoni, who also directed the film.`\
-https://nytimes.com/2025/01/16/business/media/justin-baldoni-sues-blake-lively-ryan-reynolds.html
 
