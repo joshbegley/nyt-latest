@@ -1,3 +1,15 @@
+**Josh Allen and Lamar Jackson are in each other's way, whether they downplay it or not**\
+`The MVP award won't be decided on Sunday, but the ramifications of the game figure to be immense for the two QBs and their franchises. `\
+https://nytimes.com/athletic/6068777/2025/01/17/ravens-bills-lamar-jackson-josh-allen-afc-divisional-round/
+
+**'He'll do anything to be great': Jalen Hurts wants to win, no matter what it takes to get there**\
+`Jalen Hurts has always been meticulous and hyper-focused on his game.`\
+https://nytimes.com/athletic/6064424/2025/01/17/jalen-hurts-eagles-quarterback-nfc-divisional-rams/
+
+**How Ryan Day laid the foundation for Ohio State's post-Michigan redemption**\
+`Weeks after facing immense pressure following another Ohio State loss to Michigan, Day is a win away from the college football mountaintop.`\
+https://nytimes.com/athletic/6068270/2025/01/17/ryan-day-ohio-state-national-championship/
+
 **The New York Times News Quiz, Jan. 17, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/01/17/briefing/quiz-tiktok-ceasefire-trump-biden-lynch.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/17/well/therapist-advice-lori-gottlieb.html
 **TikTok Makes Last-Minute Push as Supreme Court Is Poised to Rule on Ban**\
 `With the court signaling it will release a decision on Friday, lobbyists for the app pushed lawmakers to shift course.`\
 https://nytimes.com/2025/01/17/technology/tiktok-ban-lobbying-washington.html
-
-**U.S. Reveals Once-Secret Support for Ukraine’s Drone Industry**\
-`The development of a new generation of drones has revolutionized how wars are fought, according to U.S. officials.`\
-https://nytimes.com/2025/01/17/us/politics/ukraine-drones-biden-support.html
-
-**Los Angeles Fire Chief Faces Calls for Resignation**\
-`As a disastrous fire continues to burn on the city’s west side, some are calling Chief Kristin Crowley to account: Why wasn’t the city better prepared?`\
-https://nytimes.com/2025/01/17/us/los-angeles-fire-chief-kristin-crowley.html
-
-**What to Know About Plane Maintenance After the South Korean Crash**\
-`Airlines have been increasingly outsourcing repair and upkeep work to other countries, but experts and consumer groups disagree about its impact on safety.`\
-https://nytimes.com/2025/01/17/business/plane-maintenance-south-korean-crash.html
 

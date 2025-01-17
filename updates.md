@@ -1,3 +1,15 @@
+**Josh Allen and Lamar Jackson are in each other's way, whether they downplay it or not**\
+`The MVP award won't be decided on Sunday, but the ramifications of the game figure to be immense for the two QBs and their franchises. `\
+https://nytimes.com/athletic/6068777/2025/01/17/ravens-bills-lamar-jackson-josh-allen-afc-divisional-round/
+
+**'He'll do anything to be great': Jalen Hurts wants to win, no matter what it takes to get there**\
+`Jalen Hurts has always been meticulous and hyper-focused on his game.`\
+https://nytimes.com/athletic/6064424/2025/01/17/jalen-hurts-eagles-quarterback-nfc-divisional-rams/
+
+**How Ryan Day laid the foundation for Ohio State's post-Michigan redemption**\
+`Weeks after facing immense pressure following another Ohio State loss to Michigan, Day is a win away from the college football mountaintop.`\
+https://nytimes.com/athletic/6068270/2025/01/17/ryan-day-ohio-state-national-championship/
+
 **The New York Times News Quiz, Jan. 17, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/01/17/briefing/quiz-tiktok-ceasefire-trump-biden-lynch.html
