@@ -1,3 +1,7 @@
+**How Penn State refueled its roster to run it back in 2025: 'Everyone's finally getting it now'**\
+`The desire to run it back in 2025 will set high expectations — the highest of any of James Franklin's Penn State teams.`\
+https://nytimes.com/athletic/6054481/2025/01/17/penn-state-james-franklin-2025-recruiting-roster/
+
 **Joe Mazzulla shouldn't scapegoat Thunder or Cavaliers when Celtics are the problem**\
 `Mazzulla says the pressure on the Celtics is coming from comparisons to Cavs and Thunder: "Oh, you're not as good because you're not them."`\
 https://nytimes.com/athletic/6067776/2025/01/17/celtics-slump-thunder-cavaliers-joe-mazzulla/
