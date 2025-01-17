@@ -1,3 +1,7 @@
+**Border Patrol sweeps in California could offer a preview of Trump’s plans.**\
+`By Steve Eder and Miriam Jordan`\
+https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/border-patrol-sweeps-in-california-could-offer-a-preview-of-trumps-plans
+
 **Little-Known Intelligence Agency Outlines Limits on Spying**\
 `The move by an agency within the Department of Homeland Security was part of a broader effort by the Biden administration to strengthen oversight and set clear guidelines for handling intelligence.`\
 https://nytimes.com/2025/01/17/us/politics/homeland-security-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/us/david-zandstra-acquitted-murder-gretchen-harri
 **Panthers part ways with Nate Carroll as passing game coordinator**\
 `Bryce Young enjoyed late-season resurgence, but Carolina will seek new coach to guide passing game.`\
 https://nytimes.com/athletic/6070970/2025/01/17/panthers-part-ways-with-nate-carroll-as-passing-game-coordinator/
-
-**The Dylan-Chalamet Connection**\
-`A conversation about “A Complete Unknown” and the power of celebrity.`\
-https://nytimes.com/2025/01/17/arts/music/popcast-bob-dylan-timothee-chalamet.html
 
