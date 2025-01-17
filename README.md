@@ -1,40 +1,40 @@
+**Can Erling Haaland break Alan Shearer's record of 260 Premier League goals?**\
+`The Norwegian's new nine-and-a-half-year contract gives him the chance to chase down the competition's all-time top scorer - will he do it?`\
+https://nytimes.com/athletic/6069581/2025/01/17/erling-haaland-premier-league-goal-shearer-kane-record/
+
+**With guarded hopes, families of hostages in Gaza anticipate their release.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2025/01/17/world/israel-hamas-gaza-ceasefire/with-guarded-hopes-families-of-hostages-in-gaza-anticipate-their-release
+
+**Senate Pushes Bill to Deport Migrants Charged With Crimes Past a Key Hurdle**\
+`Ten Democrats joined Republicans in voting to advance the measure in a critical test vote that put it on track for quick enactment under President-elect Donald J. Trump.`\
+https://nytimes.com/2025/01/17/us/politics/senate-migrant-deportation-bill.html
+
+**Theater Productions to Stream Now**\
+`This month’s picks include “Prima Facie,” intimate audio plays and bite-size dramas.`\
+https://nytimes.com/2025/01/17/theater/prima-facie-theater-streaming.html
+
+**A Legacy in Biden Blue**\
+`Joe, Jill and the look of the last four years — what will we remember?`\
+https://nytimes.com/2025/01/17/style/joe-biden-jill-biden-style.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s sci-fi picks, what’s worse? Coming face-to-face with the apocalypse or with our older selves?`\
+https://nytimes.com/2025/01/17/movies/science-fiction-movies-streaming.html
+
+**This Kung Pao Tofu is an Absolute Stunner**\
+`That’s dinner tonight, with applesauce coffee cake for breakfast and Jamie Oliver’s chicken roasted in milk for Sunday supper.`\
+https://nytimes.com/2025/01/17/dining/kung-pao-tofu-dinner-recipe.html
+
+**The Joy — and Awkwardness — of Sober Sex**\
+`For those who rely on alcohol to loosen up, getting intimate without it can be tricky.`\
+https://nytimes.com/2025/01/17/well/sober-sex-intimacy-connection.html
+
+**Arsenal revive title race and Murillo's made of steel: The Totally Football Show**\
+`Was this the week Arsenal edged back into the title race? They'll certainly hope so`\
+https://nytimes.com/athletic/6069344/2025/01/17/totally-football-show-arsenal-north-london-derby/
+
 **Parents express mixed reactions to a potential TikTok ban.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/parents-express-mixed-reactions-to-a-potential-tiktok-ban
-
-**Fun facts about Bob Uecker and his amazing baseball life**\
-`Uecker left us with so many smiles that I wanted to pay tribute to his amazing baseball life with this collection of fun facts. `\
-https://nytimes.com/athletic/6069764/2025/01/17/bob-uecker-facts-baseball-tv-commercials/
-
-**Trump’s Advisers May Move Inauguration Swearing-in Indoors Because of Cold**\
-`The potential change, a rare break with tradition, would deny Mr. Trump the pomp and large audience he hoped for at his second swearing-in.`\
-https://nytimes.com/2025/01/17/us/politics/trump-indoor-inauguration-cold.html
-
-**Leeds may need to act in January transfer window following Struijk injury**\
-`Leeds United may be forced into being active in the January transfer window following a new injury to key defender Pascal Struijk.`\
-https://nytimes.com/athletic/6069562/2025/01/17/leeds-struijk-injury-tranfer/
-
-**A TikTok Habit Is Hard to Break**\
-`Users of the app are panicking about the prospect of a ban. Experts who study social media addiction say it’s easy to see why.`\
-https://nytimes.com/2025/01/17/well/tiktok-addiction-ban.html
-
-**The government’s case for banning TikTok on national security grounds was light on examples.**\
-`By David E. Sanger`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-governments-case-for-banning-tiktok-on-national-security-grounds-was-light-on-examples
-
-**Read the Supreme Court Ruling**\
-`The Supreme Court rejected TikTok’s First Amendment challenge to the law that effectively bans the social media app in the United States.`\
-https://nytimes.com/interactive/2025/01/17/us/scotus-tok.html
-
-**Who will be the Giants' QB1 in 2025? Sam Darnold? Justin Fields? Shedeur Sanders?**\
-`Dan Duggan answers your mailbag questions about the state of the Giants roster and how the team can improve. `\
-https://nytimes.com/athletic/6067590/2025/01/17/new-york-giants-quarterback-sam-darnold-justin-fields-shedeur-sanders/
-
-**A Potential TikTok Ban: What to Know**\
-`The Supreme Court on Friday upheld a law that could result in the app going offline as soon as Sunday.`\
-https://nytimes.com/2025/01/17/us/politics/tiktok-ban-what-to-know.html
-
-**Potential NBA Finals matchup? 5 lessons from both Cavs-Thunder games**\
-`What did the two Cavaliers-Thunder matchups this season teach us about this potential NBA Finals matchup? `\
-https://nytimes.com/athletic/6068746/2025/01/17/thunders-cavaliers-takeaways-nba-finals-potential/
 
