@@ -1,3 +1,7 @@
+**DOE memo says NIL payments must be proportionate between male, female athletes**\
+`A new administration could rescind the OCR’s guidance or it could be challenged in court.`\
+https://nytimes.com/athletic/6068325/2025/01/16/department-of-education-title-ix-nil-memo/
+
 **In His Dark, Disturbing Visions, David Lynch Showed Us Who We Are**\
 `The director himself came off as almost performatively normal. Masterpieces like “Eraserhead” and “Mulholland Drive” said otherwise.`\
 https://nytimes.com/2025/01/16/movies/david-lynch-eraserhead-mulholland-drive.html
