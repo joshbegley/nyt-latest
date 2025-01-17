@@ -1,3 +1,7 @@
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/17/notre-dame-ohio-state-picks-odds-national-championship-game/
+
 **Lifestyles of the Rich and Ancient: Some in Pompeii Even Had a Home Spa**\
 `Hot, warm and cold baths in a recently uncovered villa offer a new glimpse of life in the city before it was smothered by tons of volcanic fragments.`\
 https://nytimes.com/2025/01/17/world/europe/italy-archaeology-pompeii-spa.html
