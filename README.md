@@ -1,3 +1,7 @@
+**Duke's Cooper Flagg signs multi-year deal with Fanatics**\
+`Flagg is already drawing big interest from basketball card collectors `\
+https://nytimes.com/athletic/6069958/2025/01/17/cooper-flagg-fanatics-duke-cards/
+
 **The Ultimate Neko Case Primer**\
 `Listen to 10 songs by the golden voiced, poetic singer-songwriter.`\
 https://nytimes.com/2025/01/17/arts/music/amplifier-newsletter-neko-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/us/politics/dewine-names-lt-gov-jon-husted-to-fil
 **Villa agree €7m deal to sign Levante right-back Garcia**\
 `Aston Villa have agreed a deal to sign Andres Garcia from Levante in a deal worth €7million (£5.`\
 https://nytimes.com/athletic/6070372/2025/01/17/aston-villa-transfer-garcia-deal-agree/
-
-**A 100-Year-Old Jazz Legend’s Solo Debut, and 11 More New Songs**\
-`Hear tracks by Perfume Genius, Lucy Dacus, Bartees Strange and others.`\
-https://nytimes.com/2025/01/17/arts/music/playlist-marshall-allen-lucy-dacus-bartees-strange.html
 
