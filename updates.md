@@ -1,3 +1,7 @@
+**Biden administration archives site devoted to reproductive rights.**\
+`The website, ReproductiveRights.gov, offered information on matters such as birth control, medication abortion, and emergency abortion care.`\
+https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/biden-administration-archives-site-devoted-to-reproductive-rights
+
 **Sun Belt fines Marshall $100,000 for opting out of bowl game vs. Army**\
 `Marshall withdrew from the Dec. 28 game on Dec. 14 due to a roster depleted by the transfer portal and a head coaching change.`\
 https://nytimes.com/athletic/6070731/2025/01/17/sun-belt-fines-marshall-opting-out-bowl-army/
