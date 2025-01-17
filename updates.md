@@ -1,3 +1,19 @@
+**FPL: Fantasy Premier League: How to make the most of the assistant manager chip**\
+`Manager prices have been revealed for FPL's new chip, which can be used from Gameweek 24 - here's how to maximise it`\
+https://nytimes.com/athletic/6059589/2025/01/17/fantasy-premier-league-assistant-manager-chip-strategy/
+
+**How Eddie Howe has kept Newcastle’s record-equalling winning streak going: Humility, calmness, focus**\
+`What lies behind their ability to keep winning matches?`\
+https://nytimes.com/athletic/6066795/2025/01/17/how-eddie-howes-kept-newcastles-record-equalling-winning-streak-going/
+
+**Chelsea might sell Nkunku and are interested in Tel. Would doing a deal for both make sense?**\
+`Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel while his compatriot could go the other way`\
+https://nytimes.com/athletic/6064044/2025/01/17/chelsea-christopher-nkunku-mathys-tell-analysis/
+
+**The Brighton blip is over, not that anyone was panicking - this club have been here before**\
+`The club have endured streaks without victories before and still thrived, with Fabian Hurzeler reassured by performances in this latest run`\
+https://nytimes.com/athletic/6037263/2025/01/17/brighton-hurzeler-ipswich-winless-run/
+
 **Pam Shriver says 11 Grand Slam trophies stolen during L.A. fire evacuation**\
 `Shriver still has possession of her five Wimbledon doubles trophies.`\
 https://nytimes.com/athletic/6068394/2025/01/17/pam-shriver-grand-slam-tennis-trophies-stolen-la-wildfires/

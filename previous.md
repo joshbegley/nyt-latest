@@ -1,3 +1,19 @@
+**FPL: Fantasy Premier League: How to make the most of the assistant manager chip**\
+`Manager prices have been revealed for FPL's new chip, which can be used from Gameweek 24 - here's how to maximise it`\
+https://nytimes.com/athletic/6059589/2025/01/17/fantasy-premier-league-assistant-manager-chip-strategy/
+
+**How Eddie Howe has kept Newcastle’s record-equalling winning streak going: Humility, calmness, focus**\
+`What lies behind their ability to keep winning matches?`\
+https://nytimes.com/athletic/6066795/2025/01/17/how-eddie-howes-kept-newcastles-record-equalling-winning-streak-going/
+
+**Chelsea might sell Nkunku and are interested in Tel. Would doing a deal for both make sense?**\
+`Chelsea have enquired over a potential deal to sign Bayern Munich forward Mathys Tel while his compatriot could go the other way`\
+https://nytimes.com/athletic/6064044/2025/01/17/chelsea-christopher-nkunku-mathys-tell-analysis/
+
+**The Brighton blip is over, not that anyone was panicking - this club have been here before**\
+`The club have endured streaks without victories before and still thrived, with Fabian Hurzeler reassured by performances in this latest run`\
+https://nytimes.com/athletic/6037263/2025/01/17/brighton-hurzeler-ipswich-winless-run/
+
 **Will Liverpool win this season's title - and, if so, when? Our experts' views**\
 `A group of our writers on whether the 2024-25 crown is destined for Anfield and when the pivotal date in this title race could be`\
 https://nytimes.com/athletic/6066269/2025/01/17/liverpool-premier-league-title-when/
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000009931684/attention-is-power.html
 **Friday Briefing**\
 `A vote on the Gaza cease-fire deal.`\
 https://nytimes.com/2025/01/17/briefing/gaza-deal-david-lynch.html
-
-**Spain Overhauls Domestic Violence System After Criticism**\
-`Spain uses an algorithm to score how likely a domestic violence victim is to be abused again. A Times investigation last year identified flaws in the system.`\
-https://nytimes.com/2025/01/17/technology/spain-overhauls-domestic-violence-system-after-criticism.html
-
-**A Marriage Starts to Unravel on the Honeymoon**\
-`The perils (and surprising benefits!) of getting hitched while still seeing other people.`\
-https://nytimes.com/2025/01/17/style/modern-love-marriage-starts-to-unravel-on-honeymoon.html
-
-**A Quest for the Best Coffee in New York Leads to Love**\
-`When Justin Ryan Leung and Andrea Ng first connected on OkCupid, neither expected a casual cafe date to lead to three wedding celebrations.`\
-https://nytimes.com/2025/01/17/style/andrea-ng-justin-ryan-leung-wedding.html
-
-**A Workplace Crush Heats Up Thanks to Burned Cauliflower Pizza**\
-`When Taylor Maki first met Jorge Melgoza at an organization that provides social services to Native Americans, she was immediately smitten. It took him a while to notice.`\
-https://nytimes.com/2025/01/17/style/taylor-maki-jorge-melgoza-wedding.html
 
