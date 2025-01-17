@@ -1,3 +1,11 @@
+**The government’s case for banning TikTok on national security grounds was light on examples.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-governments-case-for-banning-tiktok-on-national-security-grounds-was-light-on-examples
+
+**Live Updates: Supreme Court Backs Law Requiring TikTok to Be Sold or Banned**\
+`The decision came a week after the justices heard a First Amendment challenge to a law aimed at the wildly popular short-form video platform used by 170 million Americans that the government fears could be influenced by China.`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court
+
 **Read the Supreme Court Ruling**\
 `The Supreme Court rejected TikTok’s First Amendment challenge to the law that effectively bans the social media app in the United States.`\
 https://nytimes.com/interactive/2025/01/17/us/scotus-tok.html
