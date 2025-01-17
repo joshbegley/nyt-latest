@@ -1,3 +1,7 @@
+**Scoop City: How the Bills, Commanders and other underdogs win this weekend**\
+`What each underdog can do to win this weekend, plus how the Lions, Chiefs, Ravens and Eagles can stop them`\
+https://nytimes.com/athletic/6070237/2025/01/17/nfl-divisional-round-preview-upset-watch-scoop-city/
+
 **If TikTok is banned, can I still use it?**\
 `By Eli Tan`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/if-tiktok-is-banned-can-i-still-use-it
