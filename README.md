@@ -1,3 +1,11 @@
+**Tom Brady committed to Fox NFL broadcasting contract despite growing role with Raiders**\
+`Brady, Fox and the NFL agreed to put extensive restrictions on what he’s allowed to do because of his minority ownership in the Raiders.`\
+https://nytimes.com/athletic/6068502/2025/01/16/tom-brady-fox-broadcasting-contract-raiders/
+
+**Thunder avenge loss to Cavaliers in rematch of league's top teams**\
+`But the final score was not indicative of just how lopsided the game was.`\
+https://nytimes.com/athletic/6068272/2025/01/16/thunder-cavaliers-regular-season-rematch/
+
 **Nancy Pelosi Is Skipping Trump’s Inauguration**\
 `The former speaker clashed with Donald Trump throughout his first term, and the acrimony between the two persisted after he left office.`\
 https://nytimes.com/2025/01/16/us/politics/nancy-pelosi-trump-inauguration.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/16/movies/back-in-action-review.html
 **Impressionism: Le Quiz!**\
 `It’s been 150 years since Monet and the Impressionists shocked Paris with their rebellious Société Anonyme show. How well do you know those once-revolutionary smudges?`\
 https://nytimes.com/interactive/2025/01/16/arts/design/impressionism-quiz.html
-
-**Penguins' Malkin's 3 Stanley Cup rings found in his home after burglary**\
-`The Cup rings, which were initially missing after the home invasion, are from the Penguins’ 2009, 2016 and 2017 championship teams.`\
-https://nytimes.com/athletic/6068430/2025/01/16/evgeni-malkin-home-burglary-rings-found/
-
-**Milwaukee’s best: A tribute to the humor and humanity of Bob Uecker**\
-`The Hall of Fame broadcaster, who died Thursday at 90, never shook his love of clubhouse camaraderie. `\
-https://nytimes.com/athletic/6068200/2025/01/16/bob-uecker-milwaukee-brewers-tribute/
 
