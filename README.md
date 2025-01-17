@@ -1,3 +1,7 @@
+**What Happens When the TikTok Economy Dies?**\
+`The outcry over the app’s ban is really about economic security.`\
+https://nytimes.com/live/2025/01/09/opinion/thepoint/tiktok-influencer-economy
+
 **Biden administration archives site devoted to reproductive rights.**\
 `The website, ReproductiveRights.gov, offered information on matters such as birth control, medication abortion, and emergency abortion care.`\
 https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/biden-administration-archives-site-devoted-to-reproductive-rights
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/business/oracle-tiktok-ban.html
 **As the World Warms, Davos Braces for Political Drama**\
 `A new U.S. president’s promise to expand fossil fuels that is at odds with global ambitions to combat climate change will be a topic of discussion at the World Economic Forum.`\
 https://nytimes.com/2025/01/17/climate/davos-trump-world-economic-forum.html
-
-**Fed Quits Global Climate Network Ahead of Trump Presidency**\
-`Federal Reserve Bank officials said the decision to leave the network came after the group’s work had “increasingly broadened in scope.”`\
-https://nytimes.com/2025/01/17/us/politics/fed-trump-climate-network.html
 
