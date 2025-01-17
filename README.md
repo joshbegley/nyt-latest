@@ -1,3 +1,7 @@
+**Little-Known Intelligence Agency Outlines Limits on Spying**\
+`The move by an agency within the Department of Homeland Security was part of a broader effort by the Biden administration to strengthen oversight and set clear guidelines for handling intelligence.`\
+https://nytimes.com/2025/01/17/us/politics/homeland-security-intelligence.html
+
 **Democrats Frame Trump’s Friends as Foes**\
 `Some Democrats see Elon Musk as an ideal foil. But not everyone agrees.`\
 https://nytimes.com/2025/01/17/us/politics/democrats-frame-trumps-friends-as-foes.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/01/17/us/politics/democrats-frame-trumps-friends-as-foe
 https://nytimes.com/athletic/6067921/2025/01/17/jimmy-butler-heat-returns-suspended-miami-heat-denver-nuggets/
 
 **Kellen Moore jumps Deion Sanders as favorite for Cowboys head coach opening**\
-`There's a new favorite for the Dallas Cowboys head coaching job and it isn't Deion Sanders. Read here for the odds and insights.`\
+`There's a new favorite for the Dallas Cowboys head coaching job, and it isn't Deion Sanders. Read here for the odds and insights.`\
 https://nytimes.com/athletic/6062386/2025/01/17/cowboys-head-coach-odds-deion-sanders-kellen-more/
 
 **Israeli Government Approves Cease-Fire Deal for Gaza**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6070970/2025/01/17/panthers-part-ways-with-nate-car
 **The Dylan-Chalamet Connection**\
 `A conversation about “A Complete Unknown” and the power of celebrity.`\
 https://nytimes.com/2025/01/17/arts/music/popcast-bob-dylan-timothee-chalamet.html
-
-**Appeals Court Rules Obama-Era Immigration Program Is Unlawful**\
-`But the judges stayed their ruling and for now, hundreds of thousands of DACA recipients will continue to have protection from deportation.`\
-https://nytimes.com/2025/01/17/us/daca-immigration-deportation.html
 
