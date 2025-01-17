@@ -1,3 +1,31 @@
+**As the World Warms, Davos Braces for Political Drama**\
+`A new U.S. president’s promise to expand fossil fuels that is at odds with global ambitions to combat climate change will be a topic of discussion at the World Economic Forum.`\
+https://nytimes.com/2025/01/17/climate/davos-trump-world-economic-forum.html
+
+**Fed Quits Global Climate Network Ahead of Trump Presidency**\
+`Fed officials said the decision to leave the network came after the group’s work had “increasingly broadened in scope.”`\
+https://nytimes.com/2025/01/17/us/politics/fed-trump-climate-network.html
+
+**Titans hiring Chiefs' Mike Borgonzi as team's next GM: Source**\
+`Borgonzi spent 16 seasons in Kansas City and was promoted to assistant general manager in 2021.`\
+https://nytimes.com/athletic/6070576/2025/01/17/tennessee-titans-hire-mike-borgonzi-general-manager-chiefs/
+
+**Tony Mowbray exclusive: 'I’ve no cancer in my body. I'm clear. Now I'm ready - I’ve got the energy for it'**\
+`The newly appointed West Bromwich Albion head coach on beating cancer, his return to the dugout and coaching Manchester United's Amad`\
+https://nytimes.com/athletic/6067852/2025/01/17/tony-mowbray-west-brom-cancer-middlesbrough-interview/
+
+**Will President-Elect Donald Trump Stop the Law From Taking Effect?**\
+`It is unclear if Mr. Trump, who has previously said he will spare the social media platform, will or can stop the ban.`\
+https://nytimes.com/2025/01/17/us/politics/tiktok-ban-trump.html
+
+**Oilers sign veteran defenseman John Klingberg**\
+`Signing Klingberg is a low-risk move that could amount to the Oilers adding a top-four blueliner.`\
+https://nytimes.com/athletic/6070453/2025/01/17/oilers-john-klingberg-contract/
+
+**On a Raid With Syria’s New Security Forces**\
+`After the fall of the Assad regime in Syria, The New York Times joined a group of former rebel soldiers trying to enforce law and order in a country grappling with the ghosts of its past.`\
+https://nytimes.com/video/world/middleeast/100000009887912/syria-rebels-security-latakia.html
+
 **Kennedy Sought to Stop Covid Vaccinations 6 Months After Rollout**\
 `Robert F. Kennedy Jr. petitioned the F.D.A. to revoke authorization of the shots at a time when they were in high demand and considered life-saving.`\
 https://nytimes.com/2025/01/17/health/rfk-jr-covid-vaccines.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/01/17/us/politics/democrats-immigration.html
 **Would Marcus Freeman leave Notre Dame for an NFL coaching job?**\
 `Notre Dame is on the doorstep of a national championship, and the Chicago Bears have interest in their coach. `\
 https://nytimes.com/athletic/6070008/2025/01/17/marcus-freeman-nfl-interest-chicago-bears-head-coach/
-
-**Vanguard to Pay $106 Million in Restitution to Retirement Fund Investors**\
-`An investigation by the S.E.C. and several states found that the company had failed to notify investors of changes in the terms of some funds, leading to higher capital gains taxes.`\
-https://nytimes.com/2025/01/17/business/vanguard-sec-investors-retirement-funds.html
-
-**The Movies That Fashion Designers Watch Again and Again**\
-`Nine designers discuss the films that continue to inform their aesthetics, from “In the Mood for Love” to “The Exorcist.”`\
-https://nytimes.com/2025/01/17/t-magazine/fashion-movies-michael-kors-maxmilian-davis.html
-
-**What would a TikTok ban actually look like?**\
-`By Sapna Maheshwari`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/what-would-a-tiktok-ban-actually-look-like
-
-**Trump Picks Ex-Congressman to Manage U.S. Nuclear Arsenal**\
-`Brandon Williams served aboard a nuclear submarine and represented a New York congressional district for one term, but has said little about his experience in the management of atomic weapons.`\
-https://nytimes.com/2025/01/17/science/trump-brandon-williams-nuclear-weapons.html
-
-**Economics Has a Name for the Costs of Loneliness**\
-`“Social capital” is hard to define, but the loss of it in recent decades is palpable.`\
-https://nytimes.com/2025/01/17/opinion/social-capital-loneliness.html
-
-**Heat Today: Bam Adebayo's offense has fluctuated, but his impact on Miami remains strong**\
-`Bam Adebayo doesn't listen to the "couch coaches" who don't fully appreciate his impact.`\
-https://nytimes.com/athletic/6070420/2025/01/17/bam-adebayo-offense-heat-nba/
-
-**Jan. 6 Cases Grind On, Days Before Trump Re-enters the White House**\
-`It is unclear what Donald J. Trump intends to do with the Jan. 6 investigation, the largest single criminal inquiry the Justice Department has undertaken in its 155-year history.`\
-https://nytimes.com/2025/01/17/us/politics/jan-6-pardon-trump.html
 
