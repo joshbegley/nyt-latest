@@ -1,3 +1,7 @@
+**One stretch of the Malibu coast has become a buzzing base for firefighters.**\
+`By Emily Baumgaertner`\
+https://nytimes.com/live/2025/01/16/us/la-wildfires-california/one-stretch-of-the-malibu-coast-has-become-a-buzzing-base-for-firefighters
+
 **Seidler legal dispute: Motion seeks arbitration to decide certain claims**\
 `Thursday’s motion does not mention the Padres or Sheel Seidler’s claim that she should be the team's control person.`\
 https://nytimes.com/athletic/6068487/2025/01/16/padres-seidler-lawsuit-arbitration-motion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/16/movies/david-lynch-eraserhead-mulholland-drive.ht
 **12 Cryptic Titles From David Lynch and Where You Can Stream Them**\
 `Films like “Blue Velvet” and “Mulholland Drive” aren’t always easy to explain, but they live on in your mind and burrow under your skin.`\
 https://nytimes.com/2025/01/16/movies/david-lynch-films-streaming.html
-
-**‘Stuck on an Island,’ Some Residents Insist on Staying in the Fire Zone**\
-`In fire-scarred Altadena, dozens of people are still living in their homes and surviving without electricity or clean tap water.`\
-https://nytimes.com/2025/01/16/us/eaton-fire-altadena-residents-survivors.html
 
