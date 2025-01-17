@@ -1,3 +1,7 @@
+**Hollinger: How OKC's defense — 'guys that do the little work' — continues to overwhelm**\
+`The Thunder's intensity turned the marquee matchup of the NBA's two best teams into a blowout.`\
+https://nytimes.com/athletic/6068829/2025/01/17/how-the-thunder-defense-guys-that-do-the-little-work-continues-to-overwhelm/
+
 **Shopping for strikers: Who could West Ham add to their threadbare attack?**\
 `Graham Potter knows which area of his squad is most in need of reinforcements — but it isn't proving easy`\
 https://nytimes.com/athletic/6066120/2025/01/17/west-ham-striker-options/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/business/imf-world-economic-outlook.html
 **How to Come Up With a Down Payment on a House**\
 `With prices high, putting aside enough cash to buy a house can be daunting. But housing experts say there are assistance programs in all 50 states.`\
 https://nytimes.com/2025/01/17/your-money/house-down-payment-assistance.html
-
-**Liverpool fan groups warn club against 'killing the Kop' with ticket price rises**\
-`Liverpool fan groups have written an open letter to the club warning that rising ticket prices run the risk of “killing the Kop”.`\
-https://nytimes.com/athletic/6069338/2025/01/17/liverpool-ticket-prices-fan-groups/
 

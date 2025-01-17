@@ -1,3 +1,7 @@
+**Hollinger: How OKC's defense — 'guys that do the little work' — continues to overwhelm**\
+`The Thunder's intensity turned the marquee matchup of the NBA's two best teams into a blowout.`\
+https://nytimes.com/athletic/6068829/2025/01/17/how-the-thunder-defense-guys-that-do-the-little-work-continues-to-overwhelm/
+
 **Shopping for strikers: Who could West Ham add to their threadbare attack?**\
 `Graham Potter knows which area of his squad is most in need of reinforcements — but it isn't proving easy`\
 https://nytimes.com/athletic/6066120/2025/01/17/west-ham-striker-options/
