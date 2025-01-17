@@ -1,3 +1,11 @@
+**Discovering L.A., as L.A. Reels**\
+`Jesus Jiménez, who started covering Southern California in December, describes how reporting on the wildfires has helped him learn about the city.`\
+https://nytimes.com/2025/01/17/us/wildfires-discovering-los-angeles.html
+
+**Publishers and Authors Wonder: Can Anything Replace BookTok?**\
+`With a ban looming, publishers are hoping to pivot to new platforms, but readers fear their community of book lovers will never be the same.`\
+https://nytimes.com/2025/01/17/books/booktok-publishing.html
+
 **When the Word Is Not Just Flesh: Reporting on A.I. in Religion**\
 `A technology reporter came across a Facebook group called “A.I. for Church Leaders and Pastors,” and his interest was piqued.`\
 https://nytimes.com/2025/01/17/reader-center/ai-religion-journalism.html
