@@ -1,3 +1,24 @@
+**USMNT's Pulisic to miss AC Milan clash with Juventus due to muscle fatigue**\
+`USMNT captain Christian Pulisic will miss AC Milan’s Serie A clash with Juventus on Saturday due to an injury, his manager Sergio Conceicao confirmed.`\
+https://nytimes.com/athletic/6070930/2025/01/17/usmnt-pulisic-milan-juventus-injury/
+
+**U.S. Drops Corruption Case Against New York’s Former Lieutenant Governor**\
+`Brian Benjamin had been accused of funneling state money to a real estate developer in exchange for campaign contributions. A key witness in the case has died.`\
+https://nytimes.com/2025/01/17/nyregion/brian-benjamin-corruption-case-dropped.html
+
+**The Supreme Court Cleared the Way for U.S. to Ban TikTok**\
+`Also, Trump said it will be too cold for an outdoor inauguration. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/17/briefing/supreme-court-tik-tok-trump-inauguration.html
+
+**The Inner Thoughts of a Nation Heading Into the Next Trump Era**\
+`As Inauguration Day draws near, millions are wondering, hoping, worrying about what the coming changes will mean for their daily lives.`\
+https://nytimes.com/interactive/2025/01/17/us/trump-president-reaction.html
+
+**Wild to ask Kaprizov to change his ways, Faber's and Lauko's returns, redemption vs. L'Heureux?**\
+`Kirill Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatment and pushed-back timetables.
+`\
+https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheureux/
+
 **Wild to ask Kaprizov to change his ways, Faber's and Lauko's returns, redemption vs. L'Heureux?**\
 `Kirill Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatment and pushed-back timetables.
 `\
