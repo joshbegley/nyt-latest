@@ -1,3 +1,11 @@
+**E.U. Expands Investigation of X Over Spread of Illicit Content**\
+`The probe is a test of the European Union’s willingness to go after X’s owner, Elon Musk, whose geopolitical influence has grown because of his ties to the incoming Trump administration.`\
+https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
+
+**Row Z: Chelsea are back, bargain Neymar and Ray Parlour's war of two halves**\
+`Our weekly round-up of soccer's sillier side featuring straight-talking players and managers alike, and the logic in signing Neymar`\
+https://nytimes.com/athletic/6069142/2025/01/17/chelsea-neymar-chalobah-parlour-row-z/
+
 **The ‘Minister of Everything’ for Justin Trudeau Enters Race to Replace Him**\
 `Chrystia Freeland, the former deputy prime minister, sought to distance herself from Mr. Trudeau in a public letter criticizing him for “costly political gimmicks.”`\
 https://nytimes.com/2025/01/17/world/canada/chrystia-freeland-justin-trudeau-canada-prime-minister.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6068539/2025/01/17/aryna-sabalenka-australian-open-
 **Will the Chargers' playoff struggles in the offensive trenches inform their offseason?**\
 `Yes, the Chargers need more offensive weapons, but it's also clear they need to upgrade their interior offensive line.`\
 https://nytimes.com/athletic/6067887/2025/01/17/chargers-offseason-needs-offensive-line/
-
-**Medicare to Negotiate Lower Prices for Weight-Loss Drugs**\
-`The government is expected to pay lower prices for Ozempic and Wegovy starting in 2027. The Trump administration will decide whether to expand coverage for millions of Americans.`\
-https://nytimes.com/2025/01/17/health/medicare-prices-ozempic-wegovy.html
-
-**Why the Josuar De Jesus Gonzalez signing matters for the Giants**\
-`Signing arguably the best non-Sasaki prospect in the international class is an indication of how far the Giants have come in Latin America.`\
-https://nytimes.com/athletic/6066789/2025/01/17/sf-giants-josuar-gonzalez-analysis/
 
