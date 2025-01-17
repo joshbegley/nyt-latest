@@ -1,3 +1,11 @@
+**‘We Couldn’t Stay’: A California Family’s Life After Evacuating**\
+`Shortly after the fires began in Los Angeles, Bethany Martinez and her daughter evacuated their home on the Altadena-Pasadena border after losing power and heat. They’re waiting until they feel it’s safe enough to go back.`\
+https://nytimes.com/video/world/americas/100000009930572/altadena-family-evacuation.html
+
+**Gus 'The Wizard' Williams, Seattle SuperSonics star, dies at 71**\
+`Williams led the franchise to its only NBA championship in 1979.`\
+https://nytimes.com/athletic/6069926/2025/01/17/gus-williams-death-seattle-supersonics/
+
 **The ban is based on national security concerns. Limits because of foreign ownership are not unusual.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-ban-is-based-on-national-security-concerns-limits-because-of-foreign-ownership-are-not-unusual
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/17/us/fire-battery-storage-plant-california.html
 **Eric Adams to Meet With Trump at Mar-a-Lago Today**\
 `Mayor Eric Adams, who has expressed interest in a federal pardon to resolve federal corruption charges, will meet with President-elect Donald J. Trump on Friday afternoon.`\
 https://nytimes.com/2025/01/17/nyregion/adams-trump-mar-a-lago.html
-
-**New York City Bus Crashes Near Bronx Overpass, Dangling Above Roadway**\
-`The express commuter bus missed a turn on the route that travels between Manhattan and the Bronx. The driver, the sole occupant of the bus, was not injured.`\
-https://nytimes.com/2025/01/17/nyregion/mta-nyc-bus-crash-bronx-overpass.html
-
-**Dawn Staley becomes highest-paid coach in women's college basketball**\
-`South Carolina coach was previously No. 3 behind LSU's Kim Mulkey and UConn's Geno Auriemma at $3.1 million/year. `\
-https://nytimes.com/athletic/6069992/2025/01/17/dawn-staley-contract-highest-paid-south-carolina/
 

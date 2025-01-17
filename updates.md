@@ -1,3 +1,11 @@
+**‘We Couldn’t Stay’: A California Family’s Life After Evacuating**\
+`Shortly after the fires began in Los Angeles, Bethany Martinez and her daughter evacuated their home on the Altadena-Pasadena border after losing power and heat. They’re waiting until they feel it’s safe enough to go back.`\
+https://nytimes.com/video/world/americas/100000009930572/altadena-family-evacuation.html
+
+**Gus 'The Wizard' Williams, Seattle SuperSonics star, dies at 71**\
+`Williams led the franchise to its only NBA championship in 1979.`\
+https://nytimes.com/athletic/6069926/2025/01/17/gus-williams-death-seattle-supersonics/
+
 **The ban is based on national security concerns. Limits because of foreign ownership are not unusual.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-ban-is-based-on-national-security-concerns-limits-because-of-foreign-ownership-are-not-unusual
