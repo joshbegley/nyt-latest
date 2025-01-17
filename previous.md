@@ -22,8 +22,8 @@ https://nytimes.com/2025/01/17/briefing/supreme-court-tik-tok-trump-inauguration
 `As Inauguration Day draws near, millions are wondering, hoping, worrying about what the coming changes will mean for their daily lives.`\
 https://nytimes.com/interactive/2025/01/17/us/trump-president-reaction.html
 
-**Pochettino: USMNT outsiders from MLS can challenge Euro-based regulars**\
-`Home-based players have a genuine shot at Mauricio Pochettino's World Cup squad, the USMNT coach says`\
+**USMNT outsiders from MLS can challenge Euro-based regulars, Mauricio Pochettino says**\
+`Home-based players have a genuine shot at Pochettino's World Cup squad, the USMNT coach says.`\
 https://nytimes.com/athletic/6070827/2025/01/17/pochettino-usmnt-january-mls/
 
 **‘La Migra!’ A Glimpse of Trump’s Promised Deportation Storm**\
