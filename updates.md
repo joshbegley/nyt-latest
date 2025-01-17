@@ -1,3 +1,7 @@
+**Duke's Cooper Flagg signs multi-year deal with Fanatics**\
+`Flagg is already drawing big interest from basketball card collectors `\
+https://nytimes.com/athletic/6069958/2025/01/17/cooper-flagg-fanatics-duke-cards/
+
 **The Ultimate Neko Case Primer**\
 `Listen to 10 songs by the golden voiced, poetic singer-songwriter.`\
 https://nytimes.com/2025/01/17/arts/music/amplifier-newsletter-neko-case.html
