@@ -1,3 +1,7 @@
+**C.I.A. Analyst Pleads Guilty to Leaking Classified Documents About Israel**\
+`The analyst was charged with two counts of violating the Espionage Act and faces up to a decade in prison for disclosing sensitive information about Israel’s response to an Iranian attack.`\
+https://nytimes.com/2025/01/17/us/politics/cia-analyst-guilty-plea-classified-israel.html
+
 **Can He Do That? Here’s What Biden’s Move on the Equal Rights Amendment Means.**\
 `Presidents have no direct role in approving constitutional amendments. So what could President Biden’s pronouncement recognizing a new one actually do?`\
 https://nytimes.com/2025/01/17/us/politics/biden-equal-rights-amendment-explained.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6070828/2025/01/17/minnesota-vikings-mailbag-alec-l
 **PSG complete signing of Kvaratskhelia from Napoli**\
 `Paris Saint-Germain have completed the signing of Khvicha Kvaratskhelia from Napoli.`\
 https://nytimes.com/athletic/6050714/2025/01/17/khvicha-kvaratskhelia-psg-transfer-napoli/
-
-**What Happens When the TikTok Economy Dies?**\
-`The outcry over the app’s ban is really about economic security.`\
-https://nytimes.com/live/2025/01/09/opinion/thepoint/tiktok-influencer-economy
 
