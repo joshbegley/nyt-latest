@@ -1,3 +1,7 @@
+**Zay Flowers doubtful for Ravens' divisional round showdown vs. Bills**\
+`The Ravens' leading receiver hasn't taken the field since suffering a knee injury in the regular season finale on Jan. 4.`\
+https://nytimes.com/athletic/6067648/2025/01/17/zay-flowers-knee-injury-practice-divisional-round-ravens-bills/
+
 **Bayern close to agreement with Davies over new contract**\
 `Bayern Munich are close to an agreement with Alphonso Davies over a new contract.`\
 https://nytimes.com/athletic/6070539/2025/01/17/bayern-munich-alphonso-davies-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6070576/2025/01/17/tennessee-titans-hire-mike-borgo
 **Tony Mowbray exclusive: 'I’ve no cancer in my body. I'm clear. Now I'm ready - I’ve got the energy for it'**\
 `The newly appointed West Bromwich Albion head coach on his cancer recovery, return to the dugout and coaching Manchester United's Amad`\
 https://nytimes.com/athletic/6067852/2025/01/17/tony-mowbray-west-brom-cancer-middlesbrough-interview/
-
-**Will President-Elect Donald Trump Stop the Law From Taking Effect?**\
-`It is unclear if Mr. Trump, who has previously said he will spare the social media platform, will or can stop the ban.`\
-https://nytimes.com/2025/01/17/us/politics/tiktok-ban-trump.html
 

@@ -1,3 +1,11 @@
+**Fed Quits Global Climate Network Ahead of Trump Presidency**\
+`Federal Reserve Bank officials said the decision to leave the network came after the group’s work had “increasingly broadened in scope.”`\
+https://nytimes.com/2025/01/17/us/politics/fed-trump-climate-network.html
+
+**Tony Mowbray exclusive: 'I’ve no cancer in my body. I'm clear. Now I'm ready - I’ve got the energy for it'**\
+`The newly appointed West Bromwich Albion head coach on his cancer recovery, return to the dugout and coaching Manchester United's Amad`\
+https://nytimes.com/athletic/6067852/2025/01/17/tony-mowbray-west-brom-cancer-middlesbrough-interview/
+
 **Bayern close to agreement with Davies over new contract**\
 `Bayern Munich are close to an agreement with Alphonso Davies over a new contract.`\
 https://nytimes.com/athletic/6070539/2025/01/17/bayern-munich-alphonso-davies-contract-new/
