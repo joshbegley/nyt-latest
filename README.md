@@ -1,6 +1,6 @@
 **Suit Disputes Ruling That a Sculpture Is Too Broken to Still Be a ‘Calder’**\
 `A collector says the Calder Foundation sunk the value of an $8 million mobile by Alexander Calder by deciding it was too damaged to still be viewed as a work by the artist.`\
-https://nytimes.com/2025/01/17/arts/suit-disputes-ruling-that-a-sculpture-is-too-broken-to-still-be-a-calder.html
+https://nytimes.com/2025/01/17/arts/calder-sculpture-mobile-lawsuit.html
 
 **Teenagers on TikTok exchanged advice on how to get around a ban.**\
 `By Sheera Frenkel`\
