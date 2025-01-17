@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheureux/
 
+**Wild to ask Kaprizov to change his ways, Faber and Lauko's returns, plus redemption vs. L'Heureux?**\
+`Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatments and pushed-back timetables.
+`\
+https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheureux/
+
 **Pochettino: USMNT outsiders from MLS can challenge Euro-based regulars**\
 `Home-based players have a genuine shot at Mauricio Pochettino's World Cup squad, the USMNT coach says`\
 https://nytimes.com/athletic/6070827/2025/01/17/pochettino-usmnt-january-mls/
