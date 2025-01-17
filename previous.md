@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6067978/2025/01/17/vikings-quarterback-sam-darnold-
 `She won many accolades — and was honored with a damehood — during a seven-decade career on the London stage, in film and on Broadway.`\
 https://nytimes.com/2025/01/17/obituaries/joan-plowright-dead.html
 
+**Emma Navarro's reluctant step into the tennis limelight**\
+`The American's incremental assent to the top 10 has brought a burst of attention and expectation. For Navarro, it's an adjustment`\
+https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-open/
+
 **After 2 impressive wins over Flames, the Blues have to make it mean something**\
 `The Blues swept a back-to-back against the club directly ahead of them in the standings. Now they try for the elusive third win in a row.`\
 https://nytimes.com/athletic/6068584/2025/01/17/st-louis-blues-playoff-points/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064516/2025/01/17/olli-jokinen-viral-coaching-spee
 **Haaland's Manchester City deal feels like Patrick Mahomes revisited**\
 `Ultra long-term deals are a common sight in American sports but Haaland's is unusual in soccer`\
 https://nytimes.com/athletic/6068954/2025/01/17/haaland-mahomes-manchester-city-chiefs/
-
-**Neymar to Chicago would be a failed signing for him, the club, and MLS**\
-`Some of soccer's biggest names have struggled in MLS`\
-https://nytimes.com/athletic/6068129/2025/01/17/neymar-mls-brazil-chicago/
 

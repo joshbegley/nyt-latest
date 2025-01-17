@@ -1,3 +1,7 @@
+**Emma Navarro's reluctant step into the tennis limelight**\
+`The American's incremental assent to the top 10 has brought a burst of attention and expectation. For Navarro, it's an adjustment`\
+https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-open/
+
 **Camavinga sidelined with hamstring injury**\
 `Real Madrid midfielder Eduardo Camavinga has sustained a hamstring injury and could be sidelined for three weeks.`\
 https://nytimes.com/athletic/6069137/2025/01/17/eduardo-camavinga-injury-update-real-madrid/
