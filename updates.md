@@ -1,3 +1,15 @@
+**Border Patrol sweeps in California could offer a preview of Trump’s plans.**\
+`By Steve Eder and Miriam Jordan`\
+https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/border-patrol-sweeps-in-california-could-offer-a-preview-of-trumps-plans
+
+**Little-Known Intelligence Agency Outlines Limits on Spying**\
+`The move by an agency within the Department of Homeland Security was part of a broader effort by the Biden administration to strengthen oversight and set clear guidelines for handling intelligence.`\
+https://nytimes.com/2025/01/17/us/politics/homeland-security-intelligence.html
+
+**Kellen Moore jumps Deion Sanders as favorite for Cowboys head coach opening**\
+`There's a new favorite for the Dallas Cowboys head coaching job, and it isn't Deion Sanders. Read here for the odds and insights.`\
+https://nytimes.com/athletic/6062386/2025/01/17/cowboys-head-coach-odds-deion-sanders-kellen-more/
+
 **Democrats Frame Trump’s Friends as Foes**\
 `Some Democrats see Elon Musk as an ideal foil. But not everyone agrees.`\
 https://nytimes.com/2025/01/17/us/politics/democrats-frame-trumps-friends-as-foes.html
