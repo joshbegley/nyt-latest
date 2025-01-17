@@ -1,3 +1,11 @@
+**Suit Disputes Ruling That a Sculpture Is Too Broken to Still Be a ‘Calder’**\
+`A collector says the Calder Foundation sunk the value of an $8 million mobile by Alexander Calder by deciding it was too damaged to still be viewed as a work by the artist.`\
+https://nytimes.com/2025/01/17/arts/calder-sculpture-mobile-lawsuit.html
+
+**Teenagers on TikTok exchanged advice on how to get around a ban.**\
+`By Sheera Frenkel`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/teenagers-on-tiktok-exchanged-advice-on-how-to-get-around-a-ban
+
 **Gillibrand never got an audience with Biden, but she got her wish on the E.R.A.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/gillibrand-never-got-an-audience-with-biden-but-she-got-her-wish-on-the-era
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/17/books/booktok-publishing.html
 **When the Word Is Not Just Flesh: Reporting on A.I. in Religion**\
 `A technology reporter came across a Facebook group called “A.I. for Church Leaders and Pastors,” and his interest was piqued.`\
 https://nytimes.com/2025/01/17/reader-center/ai-religion-journalism.html
-
-**Barcelona's Camp Nou return pushed back until May at the earliest**\
-`Barcelona&#8217;s return to their Camp Nou stadium has been further delayed until May at the earliest.`\
-https://nytimes.com/athletic/6011513/2025/01/17/barcelona-camp-nou-return-when/
-
-**Why Beijing Could Have the Last Say on Any TikTok Deal**\
-`A change to China’s export rules could give Beijing sign off on any deal that would force the internet giant ByteDance to give up TikTok.`\
-https://nytimes.com/2025/01/17/us/politics/tiktok-ban-sale-china.html
 

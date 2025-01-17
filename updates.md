@@ -1,3 +1,11 @@
+**Suit Disputes Ruling That a Sculpture Is Too Broken to Still Be a ‘Calder’**\
+`A collector says the Calder Foundation sunk the value of an $8 million mobile by Alexander Calder by deciding it was too damaged to still be viewed as a work by the artist.`\
+https://nytimes.com/2025/01/17/arts/calder-sculpture-mobile-lawsuit.html
+
+**Teenagers on TikTok exchanged advice on how to get around a ban.**\
+`By Sheera Frenkel`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/teenagers-on-tiktok-exchanged-advice-on-how-to-get-around-a-ban
+
 **Gillibrand never got an audience with Biden, but she got her wish on the E.R.A.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/gillibrand-never-got-an-audience-with-biden-but-she-got-her-wish-on-the-era
