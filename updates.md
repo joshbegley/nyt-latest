@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
 
+**Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
+`Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
+`\
+https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
+
 **Can He Do That? Here’s What Biden’s Move on the Equal Rights Amendment Means.**\
 `Presidents have no direct role in approving constitutional amendments. So what could President Biden’s pronouncement recognizing a new one actually do?`\
 https://nytimes.com/2025/01/17/us/politics/biden-equal-rights-amendment-explained.html
