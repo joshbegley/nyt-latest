@@ -1,3 +1,31 @@
+**I.M.F. Raises U.S. Economic Forecast as Other Regions Lag**\
+`It is projecting 2.7 percent growth for 2025. But uncertainty about pending Trump policies looms over the global economic trajectory.`\
+https://nytimes.com/2025/01/17/business/imf-world-economic-outlook.html
+
+**How to Come Up With a Down Payment on a House**\
+`With prices high, putting aside enough cash to buy a house can be daunting. But housing experts say there are assistance programs in all 50 states.`\
+https://nytimes.com/2025/01/17/your-money/house-down-payment-assistance.html
+
+**Liverpool fan groups warn club against 'killing the Kop' with ticket price rises**\
+`Liverpool fan groups have written an open letter to the club warning that rising ticket prices run the risk of “killing the Kop”.`\
+https://nytimes.com/athletic/6069338/2025/01/17/liverpool-ticket-prices-fan-groups/
+
+**Broncos fire special teams coordinator Ben Kotwica after 2 seasons**\
+`Coach Sean Payton lamented after the playoff loss to the Bills that the Broncos “lost that battle” on special teams.`\
+https://nytimes.com/athletic/6069452/2025/01/17/broncos-special-teams-coordinator-ben-kotwica-fired/
+
+**How the Oilers have excelled through the most difficult part of their season**\
+`Another comeback win, this time in Colorado, seals a successful road trip — and the Oilers' place among the NHL's elite.`\
+https://nytimes.com/athletic/6068973/2025/01/17/oilers-avalanche-schedule-nhl/
+
+**Djokovic criticizes 'provoking' from Australian Open crowd, 'loves' Collins response**\
+`MELBOURNE, Australia — Novak Djokovic said he “loved” Danielle Collins’ reaction to a hostile home crowd at the Australian Open, adding that he was now a “big fan” of the American.`\
+https://nytimes.com/athletic/6069267/2025/01/17/novak-djokovic-australian-open-crowd-danielle-collins/
+
+**Bowden: The biggest winners and losers of the MLB offseason so far**\
+`Takeaways on the teams, players, executives and more that have been among the stories of the offseason — for good reasons, and bad.`\
+https://nytimes.com/athletic/6069080/2025/01/17/mlb-offseason-winners-losers-2024-25/
+
 **E.U. Expands Investigation of X Over Spread of Illicit Content**\
 `The probe is a test of the European Union’s willingness to go after X’s owner, Elon Musk, whose geopolitical influence has grown because of his ties to the incoming Trump administration.`\
 https://nytimes.com/2025/01/17/business/eu-investigation-x-musk.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6069142/2025/01/17/chelsea-neymar-chalobah-parlour-
 **The ‘Minister of Everything’ for Justin Trudeau Enters Race to Replace Him**\
 `Chrystia Freeland, the former deputy prime minister, sought to distance herself from Mr. Trudeau in a public letter criticizing him for “costly political gimmicks.”`\
 https://nytimes.com/2025/01/17/world/canada/chrystia-freeland-justin-trudeau-canada-prime-minister.html
-
-**Mailbag: Should USC be encouraged by Notre Dame and Penn State's CFP runs?**\
-`Who will be the program’s general manager? Who else could the Trojans add in the transfer portal? Who will they hire as linebackers coach?`\
-https://nytimes.com/athletic/6069350/2025/01/17/usc-football-notre-dame-penn-state-mailbag/
-
-**Amorim warns remainder of Man United season will be a 'rollercoaster'**\
-`Ruben Amorim believes the remainder of Manchester United&#8217;s &#8220;hard&#8221; season will be a &#8220;rollercoaster&#8221; but that performances will improve with more training sessions.`\
-https://nytimes.com/athletic/6069174/2025/01/17/ruben-amorim-manchester-united-performances/
-
-**Davies could return for Spurs vs Everton, Johnson and Bissouma doubts**\
-`Ben Davies is in contention to return for Tottenham Hotspur&#8217;s trip to Everton on Sunday, but Brennan Johnson and Yves Bissouma are injury doubts.`\
-https://nytimes.com/athletic/6069398/2025/01/17/davies-johnson-bissouma-tottenham-injury-update/
-
-**D.E.I. on the Ropes Ahead of the Next Trump Era**\
-`Corporate policies concerning diversity, equity and inclusion, already under pressure from conservatives, are facing greater threats from allies of the president-elect.`\
-https://nytimes.com/2025/01/17/business/dei-trump-meta-zuckerberg.html
-
-**Sources: Cavaliers interested in Nets' Cam Johnson to address perimeter struggles**\
-`The Cavs have the best offense in the NBA, but Darius Garland and Donovan Mitchell struggle against bigger, more physical players.`\
-https://nytimes.com/athletic/6068858/2025/01/17/cavaliers-cam-johnson-trade-interest-nba-rumors/
-
-**Aryna Sabalenka shows vulnerability, coffee wars intensify: Australian Open recap**\
-`The world No. 1 and defending women's champion has scratched through her early rounds.`\
-https://nytimes.com/athletic/6068539/2025/01/17/aryna-sabalenka-australian-open-melbourne-coffee/
-
-**Will the Chargers' playoff struggles in the offensive trenches inform their offseason?**\
-`Yes, the Chargers need more offensive weapons, but it's also clear they need to upgrade their interior offensive line.`\
-https://nytimes.com/athletic/6067887/2025/01/17/chargers-offseason-needs-offensive-line/
 
