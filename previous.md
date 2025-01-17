@@ -1,3 +1,7 @@
+**What would a TikTok ban actually look like?**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/what-would-a-tiktok-ban-actually-look-like
+
 **Trump Picks Ex-Congressman to Manage U.S. Nuclear Arsenal**\
 `Brandon Williams served aboard a nuclear submarine and represented a New York congressional district for one term, but has said little about his experience in the management of atomic weapons.`\
 https://nytimes.com/2025/01/17/science/trump-brandon-williams-nuclear-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6070483/2025/01/17/denis-law-dead-manchester-united
 **Track TikTok’s rise and fall.**\
 `By Madison Malone Kircher and Remy Tumin`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/track-tiktoks-rise-and-fall
-
-**Remembering David Lynch**\
-`From “Blue Velvet” to “Twin Peaks,” here are five of the visionary director’s most notable works.`\
-https://nytimes.com/2025/01/17/podcasts/remembering-david-lynch.html
 

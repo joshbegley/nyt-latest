@@ -1,3 +1,7 @@
+**What would a TikTok ban actually look like?**\
+`By Sapna Maheshwari`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/what-would-a-tiktok-ban-actually-look-like
+
 **Trump Picks Ex-Congressman to Manage U.S. Nuclear Arsenal**\
 `Brandon Williams served aboard a nuclear submarine and represented a New York congressional district for one term, but has said little about his experience in the management of atomic weapons.`\
 https://nytimes.com/2025/01/17/science/trump-brandon-williams-nuclear-weapons.html
