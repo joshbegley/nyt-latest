@@ -1,3 +1,19 @@
+**What the Cease-Fire Deal Really Means**\
+`After initial celebrations, challenges will be enormous as the terms of the Israel-Hamas cease-fire progress.`\
+https://nytimes.com/2025/01/17/opinion/gaza-israel-hamas-hostages-cease-fire.html
+
+**Israel Prepares to Receive Hostages Held in Gaza for Over a Year**\
+`Hospitals and health officials have been preparing isolated areas where the hostages can begin recuperating, and there are concerns that the returning captives may be malnourished.`\
+https://nytimes.com/2025/01/17/world/middleeast/israel-gaza-hostages.html
+
+**Roki Sasaki announces he's signing with the Dodgers**\
+`At his age and talent level, Sasaki folds in perfectly for a Dodgers club that was already planning on running a six-man rotation.`\
+https://nytimes.com/athletic/6070699/2025/01/17/roki-sasaki-signs-with-los-angeles-dodgers/
+
+**F.A.A. Temporarily Halts Launches of Musk’s Starship After Explosion**\
+`The agency launched an investigation into the “space vehicle mishap” on Thursday night that forced commercial flights to divert and caused debris to rain toward Caribbean islands.`\
+https://nytimes.com/2025/01/17/us/politics/faa-spacex-musk.html
+
 **Wild to ask Kaprizov to change his ways, Faber's and Lauko's returns, redemption vs. L'Heureux?**\
 `Kirill Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatment and pushed-back timetables.
 `\
