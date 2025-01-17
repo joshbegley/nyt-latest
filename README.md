@@ -1,3 +1,7 @@
+**I.R.S. Commissioner to Quit as Trump Takes Office**\
+`Mr. Trump has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
+https://nytimes.com/2025/01/17/business/economy/irs-commissioner-to-quit-as-trump-takes-office.html
+
 **Lifestyles of the Rich and Ancient: Some in Pompeii Even Had a Home Spa**\
 `Hot, warm and cold baths in a recently uncovered villa offer a new glimpse of life in the city before it was smothered by tons of volcanic fragments.`\
 https://nytimes.com/2025/01/17/world/europe/italy-archaeology-pompeii-spa.html
@@ -5,6 +9,10 @@ https://nytimes.com/2025/01/17/world/europe/italy-archaeology-pompeii-spa.html
 **Monday Is Likely to Be One of the Coldest Inauguration Days in Decades**\
 `An arctic chill is headed to Washington, D.C., (and much of the United States) on Monday.`\
 https://nytimes.com/2025/01/17/us/politics/inauguration-forecast-cold-history.html
+
+**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
+`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
+https://nytimes.com/athletic/6053790/2025/01/17/notre-dame-ohio-state-picks-odds-national-championship-game/
 
 **Influencers React to a World Without TikTok**\
 `Grief, frustration and tears followed the Supreme Court’s decision on Friday.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000009930572/altadena-family-evacuat
 **Gus 'The Wizard' Williams, Seattle SuperSonics star, dies at 71**\
 `Williams led the franchise to its only NBA championship in 1979.`\
 https://nytimes.com/athletic/6069926/2025/01/17/gus-williams-death-seattle-supersonics/
-
-**The ban is based on national security concerns. Limits because of foreign ownership are not unusual.**\
-`By Cecilia Kang`\
-https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/the-ban-is-based-on-national-security-concerns-limits-because-of-foreign-ownership-are-not-unusual
-
-**Former Oakland Mayor Is Indicted on Federal Corruption Charges**\
-`Sheng Thao, who was recalled by voters in the California city in November, said last year that she had done nothing wrong after the F.B.I. raided her home.`\
-https://nytimes.com/2025/01/17/us/oakland-mayor-thao-indict.html
 
