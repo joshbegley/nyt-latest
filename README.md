@@ -1,3 +1,23 @@
+**Court Vision: Does Arkansas already have buyer's remorse in John Calipari's first season?**\
+`Don't look now, but Tom Izzo has himself a squad. Missouri may have the best win of the week. Wake Forest solved a big problem.`\
+https://nytimes.com/athletic/6068359/2025/01/17/arkansas-mens-basketball-john-calipari-buyers-remorse/
+
+**Twins 'active' in exploring trades, signings even as club's impending sale limits moves**\
+`In the offseason, the Twins typically feast in late January and February. But this winter, the impending sale could slow them down. `\
+https://nytimes.com/athletic/6067903/2025/01/17/twins-offseason-moves-team-sale/
+
+**Elias Pettersson trade? Blackhawks should do whatever it takes**\
+`There's an available star in Vancouver. The Blackhawks should be willing to do anything to get him.`\
+https://nytimes.com/athletic/6067285/2025/01/17/elias-pettersson-trade-rumors-blackhawks-nhl/
+
+**Penguins mailbag: It's good to be Kyle Dubas, but it isn't easy**\
+`Dubas has his hands full to improve a Penguins team that looks an awful lot like it did during the last two seasons. `\
+https://nytimes.com/athletic/6062315/2025/01/17/penguins-kyle-dubas-trade-mailbag/
+
+**Vic's Picks, divisional round: Jalen Hurts stays cool to send Eagles to title game**\
+`All eyes will be on Lamar Jackson and Josh Allen, but don't forget about Jalen Hurts. He's about to reach his second NFC Championship Game.`\
+https://nytimes.com/athletic/6064993/2025/01/17/nfl-divisional-playoffs-picks-predictions-betting/
+
 **Can Communities Survive the Fires?**\
 `A writer from Los Angeles surveys the loss.`\
 https://nytimes.com/2025/01/17/briefing/can-communities-survive-the-fires.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6067978/2025/01/17/vikings-quarterback-sam-darnold-
 **Joan Plowright, Award-Winning Actress and Olivier’s Widow, Dies at 95**\
 `She won many accolades — and was honored with a damehood — during a seven-decade career on the London stage, in film and on Broadway.`\
 https://nytimes.com/2025/01/17/obituaries/joan-plowright-dead.html
-
-**Emma Navarro's reluctant step into the tennis limelight**\
-`The American's incremental assent to the top 10 has brought a burst of attention and expectation. For Navarro, it's an adjustment`\
-https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-open/
-
-**After 2 impressive wins over Flames, the Blues have to make it mean something**\
-`The Blues swept a back-to-back against the club directly ahead of them in the standings. Now they try for the elusive third win in a row.`\
-https://nytimes.com/athletic/6068584/2025/01/17/st-louis-blues-playoff-points/
-
-**NFL coach matchmaking: Deion Sanders a fit in Dallas? Jon Gruden back in the NFL?**\
-`We examine three paths for each team seeking a new head coach, including possible landing spots for Gruden, Pete Carroll and Mike McCarthy.`\
-https://nytimes.com/athletic/6057050/2025/01/17/nfl-coaching-carousel-deion-sanders-pete-carroll/
-
-**NFL playoffs: Key matchups to watch in each NFC divisional round game**\
-`The Commanders might look for a mismatch for Zach Ertz, and the Rams have a huge challenge in stopping Saquon Barkley.`\
-https://nytimes.com/athletic/6068355/2025/01/17/nfl-nfc-playoffs-divisional-round-2025/
-
-**Olli Jokinen on his viral, expletive-laced coaching speech and a future NHL return: 'That is a dream'**\
-`Jokinen, who is coaching in Sweden and on a path to a potential NHL return, recently got "way too much attention" for a speech to his team.`\
-https://nytimes.com/athletic/6064516/2025/01/17/olli-jokinen-viral-coaching-speech/
 
