@@ -1,3 +1,7 @@
+**Solskjaer holds talks to become Besiktas head coach**\
+`Ole Gunnar Solskjaer is holding talks over becoming the new head coach of Turkish club Besiktas.`\
+https://nytimes.com/athletic/5995138/2025/01/17/ole-gunnar-solskjaer-besiktas-manager-appointment/
+
 **Real Madrid 5-2 Celta Vigo: Endrick unexpected hero on fraught night at the Bernabeu**\
 `Real Madrid responded to their Super Cup defeat to Barcelona with a 5-2 victory of their own — although it was not an entirely smooth ride`\
 https://nytimes.com/athletic/6068519/2025/01/17/madrid-celta-endrick-ancelotti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6068977/2025/01/17/naomi-osaka-australian-open-inju
 **Oregon State topples No. 16 Gonzaga, 97-89, in OT**\
 `It was Oregon State’s 13th consecutive win over Gonzaga — granted, the last one came during the 1991-92 season.`\
 https://nytimes.com/athletic/6068933/2025/01/17/oregon-state-gonzaga-mens-college-basketball-upset/
-
-**Amad continues to set the standard for Ruben Amorim's Manchester United**\
-`Amad embodies many of the traits Amorim wants from his team, and against Southampton he dug them out of another hole`\
-https://nytimes.com/athletic/6068639/2025/01/17/amad-manchester-united-southampton-hattrick/
 
