@@ -1,3 +1,7 @@
+**Denis Law: Manchester United and Scotland legend dies aged 84**\
+`Denis Law, the former Manchester United and Scotland centre-forward, has passed away at the age of 84.`\
+https://nytimes.com/athletic/6070483/2025/01/17/denis-law-dead-manchester-united/
+
 **Track TikTok’s rise and fall.**\
 `By Madison Malone Kircher and Remy Tumin`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/track-tiktoks-rise-and-fall
