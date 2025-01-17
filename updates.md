@@ -1,3 +1,7 @@
+**Parents express mixed reactions to a potential TikTok ban.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/parents-express-mixed-reactions-to-a-potential-tiktok-ban
+
 **Trump’s Advisers May Move Inauguration Swearing-in Indoors Because of Cold**\
 `The potential change, a rare break with tradition, would deny Mr. Trump the pomp and large audience he hoped for at his second swearing-in.`\
 https://nytimes.com/2025/01/17/us/politics/trump-indoor-inauguration-cold.html
