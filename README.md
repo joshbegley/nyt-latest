@@ -1,3 +1,15 @@
+**U.S. Drops Corruption Case Against New York’s Former Lieutenant Governor**\
+`Brian Benjamin had been accused of funneling state money to a real estate developer in exchange for campaign contributions. A key witness in the case has died.`\
+https://nytimes.com/2025/01/17/nyregion/brian-benjamin-corruption-case-dropped.html
+
+**The Supreme Court Cleared the Way for U.S. to Ban TikTok**\
+`Also, Trump said it will be too cold for an outdoor inauguration. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/17/briefing/supreme-court-tik-tok-trump-inauguration.html
+
+**The Inner Thoughts of a Nation Heading Into the Next Trump Era**\
+`As Inauguration Day draws near, millions are wondering, hoping, worrying about what the coming changes will mean for their daily lives.`\
+https://nytimes.com/interactive/2025/01/17/us/trump-president-reaction.html
+
 **Pochettino: USMNT outsiders from MLS can challenge Euro-based regulars**\
 `Home-based players have a genuine shot at Mauricio Pochettino's World Cup squad, the USMNT coach says`\
 https://nytimes.com/athletic/6070827/2025/01/17/pochettino-usmnt-january-mls/
@@ -16,7 +28,7 @@ https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheur
 https://nytimes.com/2025/01/17/us/louisiana-police-ronald-greene.html
 
 **Banning UNRWA Will Sabotage Cease-fire, Warns Agency Head**\
-`Philippe Lazzarini, the commissioner general of the U.N. agency for Palestine Refugees, described the dangers if Israel terminates UNRWA’s operations.`\
+`Philippe Lazzarini, the commissioner general of the U.N. agency for Palestine Refugees, described the repercussions if Israel followed through on a ban on UNRWA’s operations.`\
 https://nytimes.com/video/world/middleeast/100000009933368/unrwa-ban-sabotage-gaza-ceasefire.html
 
 **Find Your Next Favorite Workout**\
@@ -26,16 +38,4 @@ https://nytimes.com/interactive/2025/well/move/workout-plan-ideas.html
 **Nuno confident that Forest striker Awoniyi can re-discover form**\
 `Nuno Espirito Santo says Taiwo Awoniyi remains an important figure at Nottingham Forest &#8211; and backed him to get back to his best at the City Ground.`\
 https://nytimes.com/athletic/6070566/2025/01/17/nottingham-forest-awoniyi-nuno-form/
-
-**Arteta says January window "difficult" to operate in after injuries to forwards**\
-`Mikel Arteta has spoken about the importance of “adapting” in a “difficult” January window after Arsenal lost Gabriel Jesus to an anterior cruciate ligament (ACL) injury this week.`\
-https://nytimes.com/athletic/6070775/2025/01/17/arsenal-arteta-transfer-jesus-saka-injury/
-
-**The Sheikh, the Mogul and the Diplomat: The Trio Who Sealed the Gaza Truce**\
-`The Qatari prime minister, working with both President Biden’s envoy and President-elect Donald J. Trump’s representative, formed an unlikely partnership.`\
-https://nytimes.com/2025/01/17/world/middleeast/gaza-truce-negotiations.html
-
-**A Call for Millennial Complaints Draws an Enormous Crowd**\
-`At a time of social media upheaval, a post to X had people making jokes and longing for what felt like a simpler (and less expensive) era.`\
-https://nytimes.com/2025/01/17/style/millennial-complaints.html
 

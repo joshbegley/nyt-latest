@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6070827/2025/01/17/pochettino-usmnt-january-mls/
 `Sweeps by Border Patrol agents in California have stoked fears among undocumented migrant workers on the eve of Donald J. Trump’s presidential inauguration.`\
 https://nytimes.com/2025/01/17/us/immigration-deportation-california.html
 
-**Wild to ask Kaprizov to change his ways, Faber and Lauko's returns, plus redemption vs. L'Heureux?**\
-`Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatments and pushed-back timetables.
+**Wild to ask Kaprizov to change his ways, Faber's and Lauko's returns, redemption vs. L'Heureux?**\
+`Kirill Kaprizov has missed the past 10 games with a lower-body injury that has required lots of treatment and pushed-back timetables.
 `\
 https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheureux/
 
