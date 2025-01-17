@@ -31,7 +31,7 @@ https://nytimes.com/2025/01/17/us/politics/fed-trump-climate-network.html
 https://nytimes.com/athletic/6070576/2025/01/17/tennessee-titans-hire-mike-borgonzi-general-manager-chiefs/
 
 **Tony Mowbray exclusive: 'I’ve no cancer in my body. I'm clear. Now I'm ready - I’ve got the energy for it'**\
-`The newly appointed West Bromwich Albion head coach on beating cancer, his return to the dugout and coaching Manchester United's Amad`\
+`The newly appointed West Bromwich Albion head coach on his cancer recovery, return to the dugout and coaching Manchester United's Amad`\
 https://nytimes.com/athletic/6067852/2025/01/17/tony-mowbray-west-brom-cancer-middlesbrough-interview/
 
 **Will President-Elect Donald Trump Stop the Law From Taking Effect?**\
