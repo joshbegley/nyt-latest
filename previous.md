@@ -1,3 +1,7 @@
+**Jota a doubt for Brentford trip, says Slot**\
+`Diogo Jota is a fitness doubt for Liverpool&#8217;s Premier League trip to Brentford tomorrow.`\
+https://nytimes.com/athletic/6069135/2025/01/17/liverpool-diogo-jota-luis-diaz-brentford/
+
 **Josh Allen and Lamar Jackson are in each other's way, whether they downplay it or not**\
 `The MVP award won't be decided on Sunday, but the ramifications of the game figure to be immense for the two QBs and their franchises. `\
 https://nytimes.com/athletic/6068777/2025/01/17/ravens-bills-lamar-jackson-josh-allen-afc-divisional-round/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067776/2025/01/17/celtics-slump-thunder-cavaliers-
 **On the Couch With Well’s Resident Therapist**\
 `Lori Gottlieb shares relationship tips from 15 years of clinical practice.`\
 https://nytimes.com/2025/01/17/well/therapist-advice-lori-gottlieb.html
-
-**TikTok Makes Last-Minute Push as Supreme Court Is Poised to Rule on Ban**\
-`With the court signaling it will release a decision on Friday, lobbyists for the app pushed lawmakers to shift course.`\
-https://nytimes.com/2025/01/17/technology/tiktok-ban-lobbying-washington.html
 
