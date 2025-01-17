@@ -1,3 +1,7 @@
+**Real Madrid 5-2 Celta Vigo: Endrick unexpected hero on fraught night at the Bernabeu**\
+`Real Madrid responded to their Super Cup defeat to Barcelona with a 5-2 victory of their own — although it was not an entirely smooth ride`\
+https://nytimes.com/athletic/6068519/2025/01/17/madrid-celta-endrick-ancelotti/
+
 **Erling Haaland's huge career contract - What signing until 2034 means for him and Man City**\
 `When he joined City few thought that the Norwegian would stay at the club for an extended period — so what has changed?`\
 https://nytimes.com/athletic/6066215/2025/01/17/erling-haaland-career-contract-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6068933/2025/01/17/oregon-state-gonzaga-mens-colleg
 **Amad continues to set the standard for Ruben Amorim's Manchester United**\
 `Amad embodies many of the traits Amorim wants from his team, and against Southampton he dug them out of another hole`\
 https://nytimes.com/athletic/6068639/2025/01/17/amad-manchester-united-southampton-hattrick/
-
-**Word of the Day: jeremiad**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/17/learning/word-of-the-day-jeremiad.html
 
