@@ -1,3 +1,7 @@
+**Here’s How to Download Your Videos and Data From TikTok**\
+`Here are a few methods for users who want copies of the videos they personally uploaded or made on TikTok.`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-how-to-download-your-videos-and-data-from-tiktok
+
 **Notre Dame is stronger than its odds against Ohio State indicate**\
 `It might take a lot for the Irish to pull an outright upset over the Buckeyes, but this game should be closer than the spread would indicate`\
 https://nytimes.com/athletic/6069619/2025/01/17/notre-dame-stronger-than-odds-against-ohio-state/

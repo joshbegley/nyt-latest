@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6069619/2025/01/17/notre-dame-stronger-than-odds-ag
 
 **Here’s How to Download Your Videos and Data From TikTok**\
 `Here are a few methods for users who want copies of the videos they personally uploaded or made on TikTok.`\
-https://nytimes.com/2025/01/17/us/politics/heres-how-to-download-your-videos-and-data-from-tiktok.html
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/heres-how-to-download-your-videos-and-data-from-tiktok
 
 **Can Erling Haaland break Alan Shearer's record of 260 Premier League goals?**\
 `The Norwegian's new nine-and-a-half-year contract gives him the chance to chase down the competition's all-time top scorer - will he do it?`\
