@@ -1,3 +1,11 @@
+**U.S. Resolves Civil Rights Inquiry Into Illinois Deputy’s Killing of Black Woman**\
+`While the Justice Department found no discriminatory practices in the shooting death of Sonya Massey, 36, Sangamon County must update its policies and training.`\
+https://nytimes.com/2025/01/17/us/sonya-massey-shooting-sheriff-investigation.html
+
+**Report Projecting Drop in Freshman Enrollment Delivered Incorrect Findings**\
+`The National Student Clearinghouse, which produced the report, reversed its conclusions after identifying methodological errors in its research.`\
+https://nytimes.com/2025/01/17/us/politics/college-freshman-enrollment-error.html
+
 **USMNT's Pulisic to miss AC Milan clash with Juventus due to muscle fatigue**\
 `USMNT captain Christian Pulisic will miss AC Milan’s Serie A clash with Juventus on Saturday due to an injury, his manager Sergio Conceicao confirmed.`\
 https://nytimes.com/athletic/6070930/2025/01/17/usmnt-pulisic-milan-juventus-injury/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6070798/2025/01/17/wild-kaprizov-faber-injury-lheur
 **U.S. Finds Pattern of Excessive Force by Louisiana State Police**\
 `A Black man died after a beating by the police in 2019. The assault “demonstrated serious failures,” the Justice Department said, including improper supervision.`\
 https://nytimes.com/2025/01/17/us/louisiana-police-ronald-greene.html
-
-**Banning UNRWA Will Sabotage Cease-fire, Warns Agency Head**\
-`Philippe Lazzarini, the commissioner general of the U.N. agency for Palestine Refugees, described the repercussions if Israel followed through on a ban on UNRWA’s operations.`\
-https://nytimes.com/video/world/middleeast/100000009933368/unrwa-ban-sabotage-gaza-ceasefire.html
-
-**Find Your Next Favorite Workout**\
-`Whether you’re starting from scratch or just looking to try something new, we can help you build an exercise routine that sticks.`\
-https://nytimes.com/interactive/2025/well/move/workout-plan-ideas.html
 
