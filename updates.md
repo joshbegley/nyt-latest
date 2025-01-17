@@ -1,4 +1,8 @@
 **Maple Leafs report cards: Auston Matthews, William Nylander power comeback**\
+`Matthews and Nylander each scored two goals as Toronto battled back from 2-1 and 3-2 deficits in the third period to beat New Jersey 4-3.`\
+https://nytimes.com/athletic/6068664/2025/01/16/maple-leafs-devils-auston-matthews-william-nylander/
+
+**Maple Leafs report cards: Auston Matthews, William Nylander power comeback**\
 `Matthews and Nylander both scored two goals as Toronto battled back from 2-1 and 3-2 deficits in the third period to beat New Jersey 4-3.`\
 https://nytimes.com/athletic/6068664/2025/01/16/maple-leafs-devils-auston-matthews-william-nylander/
 
