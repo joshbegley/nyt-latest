@@ -1,3 +1,20 @@
+**TikTok Evaded a Ban Again and Again, Until Now**\
+`After a decisive loss at the Supreme Court, the app is set to be blocked in the U.S. starting Sunday, ending its streak of Houdini-like escapes.`\
+https://nytimes.com/2025/01/17/technology/tiktok-ban-sale-supreme-court.html
+
+**Judge Mulls Release to Congress of Trump Classified Documents Report**\
+`The decision by Judge Aileen M. Cannon not to issue an immediate ruling raised the possibility that Mr. Trump would take office in the meantime and have power over the report’s release.`\
+https://nytimes.com/2025/01/17/us/politics/trump-report-release-judge-cannon.html
+
+**Islanders’ Maxim Tsyplakov suspended 3 games for illegal check to head**\
+`Tsyplakov's hit on Poehling from the Flyers’ 5-3 win Thursday over the Islanders was deemed illegal by the NHL Department of Player Safety.
+`\
+https://nytimes.com/athletic/6070795/2025/01/17/islanders-maxim-tsyplakov-flyers-ryan-poehling/
+
+**U.S. to Deploy ‘Extraordinary Measures’ to Avoid Default on Jan. 21**\
+`Janet L. Yellen, the outgoing Treasury secretary, urged lawmakers to raise the debt limit and protect the full faith and credit of the United States.`\
+https://nytimes.com/2025/01/17/us/politics/debt-default-jan-21-yellen-treasury.html
+
 **In Canada’s ‘Suburb of Detroit,’ Fears Over Trump’s Tariff Threat**\
 `The president-elect’s vow to impose 25 percent duties on Canadian imports could ravage Canada’s auto industry and decimate Windsor, a city deeply tied to the U.S.`\
 https://nytimes.com/2025/01/17/world/canada/trump-tariffs-windsor-autos.html
