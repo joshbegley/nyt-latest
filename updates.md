@@ -1,3 +1,23 @@
+**For Apple and Google, complying with the law would be easy.**\
+`By Tripp Mickle and Nico Grant`\
+https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/for-apple-and-google-complying-with-the-law-would-be-easy
+
+**Red Sox sign All-Star outfielder Jarren Duran to 1-year deal with team option for 2026**\
+`The team avoided arbitration with the 28-year-old All-Star outfielder, who is coming off a breakout season.`\
+https://nytimes.com/athletic/6070265/2025/01/17/red-sox-sign-jarren-duran-avoid-arbitration/
+
+**CNN Ordered to Pay at Least $5 Million for Defaming Security Contractor**\
+`The jury decision came after a two-week trial where lawyers for the contractor argued that the network had falsely accused him of illegal activity.`\
+https://nytimes.com/2025/01/17/business/cnn-jury-defamation-security-contractor.html
+
+**I.R.S. Commissioner to Quit as Trump Takes Office**\
+`The president-elect has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
+https://nytimes.com/2025/01/17/business/economy/irs-commissioner-resign.html
+
+**Influencers React to a World Without TikTok**\
+`Grief, frustration and tears followed the Supreme Court’s decision on Friday.`\
+https://nytimes.com/2025/01/17/style/tiktok-ban-influencer-reactions.html
+
 **I.R.S. Commissioner to Quit as Trump Takes Office**\
 `Mr. Trump has said he plans to nominate Billy Long, a former Republican congressman, to the role.`\
 https://nytimes.com/2025/01/17/business/economy/irs-commissioner-to-quit-as-trump-takes-office.html

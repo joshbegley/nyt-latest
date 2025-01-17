@@ -1,3 +1,15 @@
+**A Mind at Ease, Away From the Distractions**\
+`Responses to an essay by Chris Hayes. Also: Evasiveness at cabinet hearings; politicizing aid for L.A.; reducing fire risks; ex-presidents together.`\
+https://nytimes.com/2025/01/17/opinion/mind-boredom-distractions.html
+
+**How Biden’s Inner Circle Protected a Faltering President**\
+`“Your biggest issue is the perception of age,” Mike Donilon, the president’s longtime strategist, told him in 2022, according to people who heard him.`\
+https://nytimes.com/2025/01/17/us/politics/biden-age.html
+
+**As California Burns, ‘Octavia Tried to Tell Us’ Has New Meaning**\
+`The phrase, which gained momentum in 2020, has resurfaced, in part because it can seem like Octavia Butler was more than a fiction writer.`\
+https://nytimes.com/2025/01/17/us/los-angeles-wildfires-octavia-butler.html
+
 **For Apple and Google, complying with the law would be easy.**\
 `By Tripp Mickle and Nico Grant`\
 https://nytimes.com/live/2025/01/17/us/tiktok-ban-supreme-court/for-apple-and-google-complying-with-the-law-would-be-easy
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/17/us/politics/inauguration-forecast-cold-history.ht
 **Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
 `Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
 https://nytimes.com/athletic/6053790/2025/01/17/notre-dame-ohio-state-picks-odds-national-championship-game/
-
-**Influencers React to a World Without TikTok**\
-`Grief, frustration and tears followed the Supreme Court’s decision on Friday.`\
-https://nytimes.com/2025/01/17/style/tiktok-ban-influencer-reactions.html
-
-**From the Renegade to the Supreme Court: A Timeline of TikTok’s Rise and Fall**\
-`What started as “the dance app” spawned countless memes, launched lucrative careers and shaped entire industries. Here’s how it got here.`\
-https://nytimes.com/article/tiktok-ban-viral-timeline.html
-
-**76ers' Joel Embiid to miss at least 3 more games with knee swelling**\
-`Embiid is dealing with swelling in his left knee following an on-court workout Thursday.`\
-https://nytimes.com/athletic/6070163/2025/01/17/joel-embiid-injury-update-knee-out-upcoming-games/
 
