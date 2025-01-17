@@ -23,7 +23,7 @@ https://nytimes.com/2025/01/17/business/oracle-tiktok-ban.html
 https://nytimes.com/2025/01/17/climate/davos-trump-world-economic-forum.html
 
 **Fed Quits Global Climate Network Ahead of Trump Presidency**\
-`Fed officials said the decision to leave the network came after the group’s work had “increasingly broadened in scope.”`\
+`Federal Reserve Bank officials said the decision to leave the network came after the group’s work had “increasingly broadened in scope.”`\
 https://nytimes.com/2025/01/17/us/politics/fed-trump-climate-network.html
 
 **Titans hiring Chiefs' Mike Borgonzi as team's next GM: Source**\
