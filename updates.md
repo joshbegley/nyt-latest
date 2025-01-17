@@ -1,3 +1,15 @@
+**Jeanne Wakatsuki Houston, 90, Dies; Her Internment Inspired a Memoir**\
+`In “Farewell to Manzanar,” she wrote about the more than three years she and her family spent in a camp for Japanese Americans. It became the basis for a TV movie.`\
+https://nytimes.com/2025/01/17/books/jeanne-wakatsuki-houston-dead.html
+
+**Russian Disinformation Campaigns Eluded Meta’s Efforts to Block Them**\
+`A new report details how a covert influence operation linked to the Kremlin continued to place ads on Facebook despite U.S. and E.U. prohibitions on doing business with the organization.`\
+https://nytimes.com/2025/01/17/business/russia-disinformation-meta.html
+
+**Fire Breaks Out at a Huge Battery Site in California**\
+`The fire at the Moss Landing plant, which stores electricity for the power grid, was unrelated to wildfires in Los Angeles.`\
+https://nytimes.com/2025/01/17/us/fire-battery-storage-plant-california.html
+
 **Eric Adams to Meet With Trump at Mar-a-Lago Today**\
 `Mayor Eric Adams, who has expressed interest in a federal pardon to resolve federal corruption charges, will meet with President-elect Donald J. Trump on Friday afternoon.`\
 https://nytimes.com/2025/01/17/nyregion/adams-trump-mar-a-lago.html
