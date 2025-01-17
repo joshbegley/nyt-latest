@@ -1,5 +1,5 @@
 **Blue Jackets ride wave of confidence past Sharks for sixth consecutive win**\
-`A strong first two periods helped the Blue Jackets survive a third-period push from the Sharks before van Riemsdyk found the empty net.`\
+`A strong first two periods helped Columbus survive a third-period push from San Jose before James van Riemsdyk found the empty net.`\
 https://nytimes.com/athletic/6068650/2025/01/16/blue-jackets-confidence-werenski-sharks/
 
 **Maple Leafs report cards: Auston Matthews, William Nylander power comeback**\
