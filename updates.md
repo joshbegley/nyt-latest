@@ -1,3 +1,7 @@
+**Sun Belt fines Marshall $100,000 for opting out of bowl game vs. Army**\
+`Marshall withdrew from the Dec. 28 game on Dec. 14 due to a roster depleted by the transfer portal and a head coaching change.`\
+https://nytimes.com/athletic/6070731/2025/01/17/sun-belt-fines-marshall-opting-out-bowl-army/
+
 **Zay Flowers doubtful for Ravens' divisional round showdown vs. Bills**\
 `The Ravens' leading receiver hasn't taken the field since suffering a knee injury in the regular season finale on Jan. 4.`\
 https://nytimes.com/athletic/6067648/2025/01/17/zay-flowers-knee-injury-practice-divisional-round-ravens-bills/
