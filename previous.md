@@ -1,3 +1,19 @@
+**Jan. 6 Cases Grind On, Days Before Trump Re-enters the White House**\
+`It is unclear what Donald J. Trump intends to do with the Jan. 6 investigation, the largest single criminal inquiry the Justice Department has undertaken in its 155-year history.`\
+https://nytimes.com/2025/01/17/us/politics/jan-6-pardon-trump.html
+
+**Fox exec: Brady, NFL broadcast conflict of interest questions 'ridiculous'**\
+`Tom Brady is part of Fox's broadcasting team for Saturday's Lions-Commanders game. Lions OC Ben Johnson is a Raiders coaching candidate.`\
+https://nytimes.com/athletic/6070175/2025/01/17/tom-brady-fox-conflict-interest-raiders/
+
+**Obituary: Denis Law, the first 'King' of Old Trafford**\
+`The flamboyant Denis Law was Manchester United's "Demon King" according to George Best, and a player idolised by Sir Alex Ferguson`\
+https://nytimes.com/athletic/5339174/2025/01/17/denis-law-manchester-united-obituary/
+
+**Zilia Sánchez, Painter Who Found Fame Late in Life, Dies at 98**\
+`A Cuban-born minimalist painter who spent much of her life in Puerto Rico, she was in her 90s when her erotically charged work first appeared at the Venice Biennale.`\
+https://nytimes.com/2025/01/17/arts/zilia-sanchez-dead.html
+
 **Denis Law: Manchester United and Scotland legend dies aged 84**\
 `Denis Law, the former Manchester United and Scotland centre-forward, has passed away at the age of 84.`\
 https://nytimes.com/athletic/6070483/2025/01/17/denis-law-dead-manchester-united/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/17/opinion/neil-gaiman-babygirl.html
 **Readers Share Their Near-Death Experiences**\
 `After the death of Peter Fenwick, a neuropsychiatrist who studied near-death experiences, readers shared stories of their own.`\
 https://nytimes.com/2025/01/17/science/near-death-experiences.html
-
-**Vivek Ramaswamy Plans to Run for Ohio Governor**\
-`The entrepreneur will continue leading Donald J. Trump’s government efficiency project before turning his attention to a campaign.`\
-https://nytimes.com/2025/01/17/us/politics/vivek-ramaswamy-ohio-governor.html
-
-**Duke's Cooper Flagg signs multi-year deal with Fanatics**\
-`Flagg is already drawing big interest from basketball card collectors `\
-https://nytimes.com/athletic/6069958/2025/01/17/cooper-flagg-fanatics-duke-cards/
-
-**The Ultimate Neko Case Primer**\
-`Listen to 10 songs by the golden voiced, poetic singer-songwriter.`\
-https://nytimes.com/2025/01/17/arts/music/amplifier-newsletter-neko-case.html
-
-**Leaders of Historians’ Group Veto Measure Condemning ‘Scholasticide’ in Gaza**\
-`The American Historical Association’s council rejected a resolution condemning Israel’s actions in Gaza, which have destroyed much of the enclave’s educational system.`\
-https://nytimes.com/2025/01/17/arts/historians-group-veto-gaza.html
 
