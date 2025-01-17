@@ -34,7 +34,7 @@ https://nytimes.com/2025/01/17/books/review/podcast-pico-iyer-interview.html
 `The law that took aim at TikTok over national security concerns has prompted Americans looking for alternatives to download Xiaohongshu, a social media app that is popular in China.`\
 https://nytimes.com/2025/01/17/us/politics/red-note-a-chinese-app-is-dominating-downloads-thanks-to-tiktok-users.html
 
-**Scoop City: How the Bills, Commanders and other underdogs win this weekend**\
+**Scoop City: One way the Bills, Commanders and other underdogs win this weekend**\
 `What each underdog can do to win this weekend, plus how the Lions, Chiefs, Ravens and Eagles can stop them`\
 https://nytimes.com/athletic/6070237/2025/01/17/nfl-divisional-round-preview-upset-watch-scoop-city/
 

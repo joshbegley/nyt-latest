@@ -1,3 +1,7 @@
+**Scoop City: One way the Bills, Commanders and other underdogs win this weekend**\
+`What each underdog can do to win this weekend, plus how the Lions, Chiefs, Ravens and Eagles can stop them`\
+https://nytimes.com/athletic/6070237/2025/01/17/nfl-divisional-round-preview-upset-watch-scoop-city/
+
 **Neil Gaiman, ‘Babygirl’ and the Ethics of Social Liberalism**\
 `The tortured quest for a morality both liberated and safe.`\
 https://nytimes.com/2025/01/17/opinion/neil-gaiman-babygirl.html
