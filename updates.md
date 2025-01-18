@@ -1,3 +1,7 @@
+**Alaba could make Madrid return against Las Palmas, says Ancelotti**\
+`David Alaba is set to feature for Real Madrid for the first time in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
+https://nytimes.com/athletic/6071477/2025/01/18/madrid-david-alaba-injury-return/
+
 **Trump Brings a Chill to Washington**\
 `A more seasoned Trump prepares to work his will in a more biddable D.C.`\
 https://nytimes.com/2025/01/18/opinion/trump-inauguration-indoors-cold.html

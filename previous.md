@@ -1,3 +1,7 @@
+**Alaba could make Madrid return against Las Palmas, says Ancelotti**\
+`David Alaba is set to feature for Real Madrid for the first time in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
+https://nytimes.com/athletic/6071477/2025/01/18/madrid-david-alaba-injury-return/
+
 **Trump Brings a Chill to Washington**\
 `A more seasoned Trump prepares to work his will in a more biddable D.C.`\
 https://nytimes.com/2025/01/18/opinion/trump-inauguration-indoors-cold.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/opinion/expat-life.html
 **NHL predictions 4.0: New Stanley Cup favorite, Vezina sweep and tight Eastern playoff race**\
 `Past the season's midpoint, our staff's updated picks for Cup winner, dark horse, biggest disappointment, awards, playoff fields and more.`\
 https://nytimes.com/athletic/6065688/2025/01/18/nhl-stanley-cup-predictions-playoff-standings/
-
-**What Are the Omens for Trump 2.0?**\
-`The only possibility for a second Trump term that would be truly surprising is a period of unlooked-for calm.`\
-https://nytimes.com/2025/01/18/opinion/trump-presidency-myth-omens.html
 
