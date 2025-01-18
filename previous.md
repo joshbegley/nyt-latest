@@ -1,3 +1,7 @@
+**TikTok Fueled Travel Crazes, What Happens Now?**\
+`The app gave places like an ice cream shop/wine bar fame, and sometimes overwhelmed them with crowds. Influencers and destinations await the fallout.`\
+https://nytimes.com/2025/01/18/travel/tiktok-travel-trends.html
+
 **The Last Migrant Caravans Before Trump’s Inauguration**\
 `A Times photographer made two trips to southern Mexico to follow groups of migrants as they walked toward the United States.`\
 https://nytimes.com/card/2025/01/18/world/americas/mexico-migrants-border-trump
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/18/world/middleeast/israel-gaza-ceasefire.html
 **In TikTok’s Final Hours, a Mix of Silliness and Sadness**\
 `Users in the United States react to a nationwide ban of the app.`\
 https://nytimes.com/2025/01/18/style/tiktok-ban-final-hours.html
-
-**Becerra, With No Regrets, Defends Vaccine Mandates and Misinformation Fight**\
-`In a wide-ranging interview, Xavier Becerra, President Biden’s health secretary, defended his tenure and hinted that he might run for governor of California.`\
-https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
 
