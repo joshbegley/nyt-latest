@@ -1,3 +1,7 @@
+**Rosenthal: The Dodgers landed Roki Sasaki. Now they have a special duty to keep him healthy**\
+`The addition of Sasaki only increases the urgency for the Dodgers to do better in preventing pitching injuries.`\
+https://nytimes.com/athletic/6071082/2025/01/17/roki-sasaki-dodgers-health-pitching/
+
 **Pence Is Said to Be Planning to Attend Trump’s Inauguration**\
 `The relationship between President-elect Trump and his former vice president, Mike Pence, was irreparably broken when Mr. Pence refused Mr. Trump’s efforts to overturn the election.`\
 https://nytimes.com/2025/01/17/us/politics/mike-pence-trump-inauguration.html
