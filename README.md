@@ -1,3 +1,7 @@
+**Roki Sasaki signs with the Dodgers: MLB experts discuss his fit and the fallout**\
+`Sasaki announced that he would be joining the Dodgers on Friday, ending a monthlong free agency period.`\
+https://nytimes.com/athletic/6070996/2025/01/17/roki-sasaki-los-angeles-dodgers-roundtable/
+
 **Mets and reliever A.J. Minter agree on 2-year, $22 million deal: Sources**\
 `Minter is believed to be the first non-closer reliever to receive an eight-figure AAV with an opt-out inside a multiyear deal.`\
 https://nytimes.com/athletic/6071055/2025/01/17/mets-reliever-aj-minter-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/us/politics/democrats-frame-trumps-friends-as-foe
 **Jimmy Butler returns to Miami's lineup following 7-game suspension**\
 `Though Butler is returning to the court as his team-issued seven-game suspension ends, his dispute with the Heat remains far from resolved.`\
 https://nytimes.com/athletic/6067921/2025/01/17/jimmy-butler-heat-returns-suspended-miami-heat-denver-nuggets/
-
-**Kellen Moore jumps Deion Sanders as favorite for Cowboys head coach opening**\
-`There's a new favorite for the Dallas Cowboys head coaching job, and it isn't Deion Sanders. Read here for the odds and insights.`\
-https://nytimes.com/athletic/6062386/2025/01/17/cowboys-head-coach-odds-deion-sanders-kellen-more/
 
