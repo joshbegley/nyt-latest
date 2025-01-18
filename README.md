@@ -1,3 +1,7 @@
+**Bournemouth believe 'anything is possible' after Newcastle win - Adams**\
+`Tyler Adams says Bournemouth believe &#8220;anything is possible&#8221; after moving to within one point of the Champions League places following Saturday&#8217;s win over in-form Newcastle United.`\
+https://nytimes.com/athletic/6071636/2025/01/18/tyler-adams-bournemouth-newcastle/
+
 **Trump chooses school choice supporter to help lead Education Department.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/trump-chooses-school-choice-supporter-to-help-lead-education-department
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071531/2025/01/18/danielle-collins-australian-open
 **As deadly strikes continue, Gazans anticipate first moments of peace.**\
 `By Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/as-deadly-strikes-continue-gazans-anticipate-first-moments-of-peace
-
-**Lamar Jackson or Josh Allen? Quiz yourself on the MVP front-runners**\
-`Answer a quick 10 questions to see how much you know about the remarkable seasons of Allen and Jackson.`\
-https://nytimes.com/athletic/6067330/2025/01/18/lamar-jackson-josh-allen-quiz/
 
