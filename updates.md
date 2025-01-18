@@ -1,3 +1,11 @@
+**Corrections: Jan. 18, 2025**\
+`Corrections that appeared in print on Saturday, Jan. 18, 2025.`\
+https://nytimes.com/2025/01/17/pageoneplus/corrections-jan-18-2025.html
+
+**Mozambique’s Ex-Finance Minister Sentenced to Prison Over ‘Tuna Affair’**\
+`Manuel Chang will spend eight and a half years in prison for taking about $7 million in bribes and kickbacks in a loan scandal that sent the country’s economy into a crisis.`\
+https://nytimes.com/2025/01/17/nyregion/manuel-chang-mozambique-tuna.html
+
 **Braves takeaways: Teen throws 102 mph, Charlie Morton on his exit, and more**\
 `Raudy Reyes, signed at 16 out of the Dominican Republic, is "an intimidating young man, for sure."`\
 https://nytimes.com/athletic/6071075/2025/01/17/braves-takeaways-teen-throws-102-mph-charlie-morton-on-his-exit-and-more/

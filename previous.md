@@ -1,3 +1,11 @@
+**Corrections: Jan. 18, 2025**\
+`Corrections that appeared in print on Saturday, Jan. 18, 2025.`\
+https://nytimes.com/2025/01/17/pageoneplus/corrections-jan-18-2025.html
+
+**Mozambique’s Ex-Finance Minister Sentenced to Prison Over ‘Tuna Affair’**\
+`Manuel Chang will spend eight and a half years in prison for taking about $7 million in bribes and kickbacks in a loan scandal that sent the country’s economy into a crisis.`\
+https://nytimes.com/2025/01/17/nyregion/manuel-chang-mozambique-tuna.html
+
 **Braves takeaways: Teen throws 102 mph, Charlie Morton on his exit, and more**\
 `Raudy Reyes, signed at 16 out of the Dominican Republic, is "an intimidating young man, for sure."`\
 https://nytimes.com/athletic/6071075/2025/01/17/braves-takeaways-teen-throws-102-mph-charlie-morton-on-his-exit-and-more/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071055/2025/01/17/mets-reliever-aj-minter-deal/
 **Roki Sasaki announces he's going to the Dodgers: Where do the Padres turn?**\
 `With ownership turmoil and no offseason additions, the Padres must figure out how to contend without the Japanese phenom they coveted.`\
 https://nytimes.com/athletic/6069906/2025/01/17/padres-roki-sasaki-future-transactions/
-
-**Overtures to Trump Put Mayor Adams on a Political Tightrope**\
-`Mayor Eric Adams said that a meeting with President-elect Donald J. Trump was about New York City’s future. Each man has his own reasons to forge close ties.`\
-https://nytimes.com/2025/01/17/nyregion/adams-trump-pardon.html
-
-**DOJ urges judge of House case to modify $20.5M cap on school-athlete revenue sharing**\
-`The House lawsuit will pave the way for schools to begin sharing revenue directly with its athletes next school year.`\
-https://nytimes.com/athletic/6070948/2025/01/17/house-case-ncaa-salary-cap-department-of-justice/
 
