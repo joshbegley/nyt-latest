@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 `\
 https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
 **People’s March in Washington Draws Thousands of Demonstrators**\
 `Just two days before Donald Trump’s inauguration, thousands of people attended the People’s March across Washington.`\
 https://nytimes.com/video/us/politics/100000009935546/dc-peoples-march-trump-inauguration.html
