@@ -1,3 +1,7 @@
+**Amid Wildfires, a New Reality for L.A.’s Reality TV Stars**\
+`Binge-worthy guilty pleasures like “The Real Housewives of Beverly Hills” and “Selling Sunset” document luxury real estate in Los Angeles, a market that now faces an uncertain future.`\
+https://nytimes.com/2025/01/18/realestate/wildfires-reality-tv-stars.html
+
 **Saliba misses Arsenal vs Aston Villa with muscular injury**\
 `Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
 https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
