@@ -1,3 +1,7 @@
+**Rosenthal: The Dodgers landed Roki Sasaki. Now they have a special duty to keep him healthy**\
+`The addition of Sasaki only increases the urgency for the Dodgers to do better in preventing pitching injuries.`\
+https://nytimes.com/athletic/6071082/2025/01/17/roki-sasaki-dodgers-health-pitching/
+
 **Pence Is Said to Be Planning to Attend Trump’s Inauguration**\
 `The relationship between President-elect Trump and his former vice president, Mike Pence, was irreparably broken when Mr. Pence refused Mr. Trump’s efforts to overturn the election.`\
 https://nytimes.com/2025/01/17/us/politics/mike-pence-trump-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6070948/2025/01/17/house-case-ncaa-salary-cap-depar
 **Gus Williams, Guard Who Led Seattle to an N.B.A. Title, Dies at 71**\
 `Undersized but speedy and known as the Wizard for his acrobatics, he was a high scorer who in 1979 starred in a series that brought the SuperSonics their only crown.`\
 https://nytimes.com/2025/01/17/sports/basketball/gus-williams-dead.html
-
-**Border Patrol sweeps in California could offer a preview of Trump’s plans.**\
-`By Steve Eder and Miriam Jordan`\
-https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/border-patrol-sweeps-in-california-could-offer-a-preview-of-trumps-plans
 
