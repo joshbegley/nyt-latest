@@ -2,10 +2,6 @@
 `In a wide-ranging interview, Xavier Becerra, President Biden’s health secretary, defended his tenure and hinted that he might run for governor of California.`\
 https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
 
-**Trump’s Unlikely Return To Power**\
-`Donald J.`\
-https://nytimes.com/video/us/politics/100000009933010/how-donald-trump-took-back-power.html
-
 **Who Is Coming to the Inauguration — and Who Isn’t**\
 `Billionaires, foreign leaders and celebrities including Mike Tyson and Carrie Underwood will appear at the inauguration. Some prominent Democrats are taking a pass.`\
 https://nytimes.com/2025/01/18/us/politics/who-is-coming-trump-inauguration.html
