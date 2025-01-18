@@ -1,3 +1,7 @@
+**Roki Sasaki's addition further separates the Dodgers from rest of the league: Law**\
+`Sasaki's addition widens the gap between the Dodgers and the rest of the league. It also deepens a rotation that struggled with injury.`\
+https://nytimes.com/athletic/6071216/2025/01/18/roki-sasaki-dodgers-signing-analysis/
+
 **Ignored by Farke, heading to Hull - does Gelhardt have a future at Leeds?**\
 `The diminutive striker made a flying start at Elland Road but has barely been seen under Daniel Farke - will Hull loan ignite his career?`\
 https://nytimes.com/athletic/6070256/2025/01/18/joe-gelhardt-leeds-united-hull-city-loan/
