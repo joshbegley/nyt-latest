@@ -1,3 +1,7 @@
+**My Building Is Doing Unexplained Work. Can I Stop Paying Dues Until They Explain?**\
+`Most condo associations must provide a record of all receipts and expenses. But they also need residents’ maintenance fees to operate.`\
+https://nytimes.com/2025/01/18/realestate/condominium-maintenance-fees-construction-work.html
+
 **Amid Wildfires, a New Reality for L.A.’s Reality TV Stars**\
 `Binge-worthy guilty pleasures like “The Real Housewives of Beverly Hills” and “Selling Sunset” document luxury real estate in Los Angeles, a market that now faces an uncertain future.`\
 https://nytimes.com/2025/01/18/realestate/wildfires-reality-tv-stars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/dining/chana-masala-roast-orange-chicken-more-din
 **Bournemouth believe 'anything is possible' after Newcastle win - Adams**\
 `Tyler Adams says Bournemouth believe &#8220;anything is possible&#8221; after moving to within one point of the Champions League places following Saturday&#8217;s win over in-form Newcastle United.`\
 https://nytimes.com/athletic/6071636/2025/01/18/tyler-adams-bournemouth-newcastle/
-
-**Trump chooses school choice supporter to help lead Education Department.**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/trump-chooses-school-choice-supporter-to-help-lead-education-department
 
