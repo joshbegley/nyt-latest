@@ -1,3 +1,7 @@
+**Brighton's transfer plans for the rest of the January window: What I'm hearing**\
+`A possible move for Tosin, interest in Tzimas, and a couple of potential loan departures`\
+https://nytimes.com/athletic/6067018/2025/01/18/brighton-transfer-window-plans-adarabioyo-tzimas/
+
 **Celtics rediscover the joy of winning as starting 5 comes together against Magic**\
 `After going 7-7 recently, Boston snapped back following what Kristaps Porziņģis called an "unacceptable" performance against Toronto.`\
 https://nytimes.com/athletic/6071309/2025/01/18/celtics-defeat-magic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069580/2025/01/18/fa-youth-cup-merstham-chelsea/
 **After Erling Haaland signed a 9.5-year deal, what are football's longest contracts and how did they work out?**\
 `These players signed unusually long contracts. This is what happened after they put pen to paper...`\
 https://nytimes.com/athletic/6069211/2025/01/18/what-are-footballs-longest-contracts-and-how-did-they-work-out-haaland/
-
-**What's going on with Ansu Fati and what does his future look like?**\
-`The young forward has started just once this season and is now being left out of Barca's matchday squads despite being fit`\
-https://nytimes.com/athletic/6069910/2025/01/18/what-does-ansu-fatis-future-look-like/
 
