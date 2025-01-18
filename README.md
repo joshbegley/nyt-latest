@@ -1,3 +1,7 @@
+**Mets and reliever A.J. Minter agree on 2-year, $22 million deal: Sources**\
+`Minter is believed to be the first non-closer reliever to receive an eight-figure AAV with an opt-out inside a multiyear deal.`\
+https://nytimes.com/athletic/6071055/2025/01/17/mets-and-reliever-a-j-minter-agree-on-2-year-22-million-deal-sources/
+
 **Roki Sasaki announces he's going to the Dodgers: Where do the Padres turn?**\
 `With ownership turmoil and no offseason additions, the Padres must figure out how to contend without the Japanese phenom they coveted.`\
 https://nytimes.com/athletic/6069906/2025/01/17/padres-roki-sasaki-future-transactions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067921/2025/01/17/jimmy-butler-heat-returns-suspen
 **Kellen Moore jumps Deion Sanders as favorite for Cowboys head coach opening**\
 `There's a new favorite for the Dallas Cowboys head coaching job, and it isn't Deion Sanders. Read here for the odds and insights.`\
 https://nytimes.com/athletic/6062386/2025/01/17/cowboys-head-coach-odds-deion-sanders-kellen-more/
-
-**Israeli Government Approves Cease-Fire Deal for Gaza**\
-`The full Israeli cabinet passed the agreement during a meeting that continued into the Jewish Sabbath, setting up the first reprieve in Gaza in over a year.`\
-https://nytimes.com/2025/01/17/world/middleeast/israel-cabinet-ceasefire-gaza.html
 
