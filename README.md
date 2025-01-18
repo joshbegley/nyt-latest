@@ -1,3 +1,7 @@
+**USMNT's Weah scores in Juventus win over rivals Milan**\
+`USMNT attacker Tim Weah emerged from the bench to settle Juventus’s 2-0 win over Milan and boost his club’s hopes of Champions League qualification.`\
+https://nytimes.com/athletic/6071865/2025/01/18/tim-weah-juventus-milan/
+
 **What We Know About the Hostage Release**\
 `The first phase of the cease-fire deal calls for the release of 33 hostages, including women, children, men over 50 and sick and wounded people.`\
 https://nytimes.com/2025/01/18/world/middleeast/what-we-know-hostage-release.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/us/politics/trump-retribution-list.html
 **For Those Deemed Trump’s Enemies, a Time of Anxiety and Fear**\
 `Donald Trump is returning to the White House vowing to seek retribution. Those in his sights are worried both about him — and his supporters.`\
 https://nytimes.com/2025/01/18/us/politics/trump-officials-retribution.html
-
-**Panama FA president suspended after calling player 'fat'**\
-`FIFA has suspended president of the Panama Football Federation (FEPAFUT) Manuel Arias after he called national team player Marta Cox &#8220;fat&#8221; and &#8220;out of shape&#8221;.`\
-https://nytimes.com/athletic/6071693/2025/01/18/panama-president-cox-fat-comments/
 
