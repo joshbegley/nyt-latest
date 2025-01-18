@@ -1,3 +1,7 @@
+**What We Know About the Hostage Release**\
+`The first phase of the cease-fire deal calls for the release of 33 hostages, including women, children, men over 50 and sick and wounded people.`\
+https://nytimes.com/2025/01/18/world/middleeast/what-we-know-hostage-release.html
+
 **Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
 `President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
 https://nytimes.com/2025/01/18/world/asia/south-korea-president-yoon-jail-life.html
