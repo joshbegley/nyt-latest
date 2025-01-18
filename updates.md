@@ -1,3 +1,7 @@
+**Yohe: With historic goal and assist, goalie Alex Nedeljkovic delivers remarkable performance**\
+`In the Penguins' 5-2 win in Buffalo, Nedeljkovic became the first goalie in NHL history to notch a goal and an assist in a single game.`\
+https://nytimes.com/athletic/6071167/2025/01/17/penguins-alex-nedeljkovic-goalie-goal/
+
 **How did Unrivaled do on opening night? Did new 3x3 league perform in the arena and on TV?**\
 `The new league looked sharp on television and in person. Our experts share their first impressions.`\
 https://nytimes.com/athletic/6071162/2025/01/17/unrivaled-debut-womens-basketball-league/

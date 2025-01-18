@@ -1,3 +1,7 @@
+**Yohe: With historic goal and assist, goalie Alex Nedeljkovic delivers remarkable performance**\
+`In the Penguins' 5-2 win in Buffalo, Nedeljkovic became the first goalie in NHL history to notch a goal and an assist in a single game.`\
+https://nytimes.com/athletic/6071167/2025/01/17/penguins-alex-nedeljkovic-goalie-goal/
+
 **Trump Officials Plan Immigration Raids in Chicago Next Week**\
 `The size of the planned operation is unclear, but it would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
 https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071149/2025/01/17/christen-press-angel-city-fc-con
 **Emma Navarro's reluctant step into the tennis limelight**\
 `The American's incremental assent to the top 10 has brought a burst of attention and expectation. For Navarro, it's an adjustment`\
 https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-open/
-
-**Who Are the Millions of Immigrants Trump Wants to Deport?**\
-`Trump wants to end several programs that offered new arrivals temporary relief. Millions of others without legal status may also be vulnerable to deportation.`\
-https://nytimes.com/interactive/2025/01/17/us/immigrants-trump-deportations.html
 
