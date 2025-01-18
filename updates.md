@@ -1,3 +1,7 @@
+**Celtics rediscover the joy of winning as starting 5 comes together against Magic**\
+`After going 7-7 recently, Boston snapped back following what Kristaps Porziņģis called an "unacceptable" performance against Toronto.`\
+https://nytimes.com/athletic/6071309/2025/01/18/celtics-defeat-magic/
+
 **Taylor Fritz out of Australian Open as Gael Monfils rolls back the years in Melbourne**\
 `38-year-old Gael Monfils continued his vintage run at the Australian Open by knocking out the No. 4 seed.`\
 https://nytimes.com/athletic/6071281/2025/01/18/taylor-fritz-gael-monfils-australian-open-result-analysis/
