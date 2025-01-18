@@ -1,3 +1,7 @@
+**Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
+`President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
+https://nytimes.com/2025/01/18/world/asia/south-korea-president-yoon-jail-life.html
+
 **George Kalinsky, 88, Madison Square Garden’s First Official Lensman, Dies**\
 `With camera in hand, he parlayed a chance encounter with Muhammad Ali into a photography career documenting the Knicks, the Rangers and Garden headliners like Elvis Presley.`\
 https://nytimes.com/2025/01/18/sports/george-kalinsky-dead.html
