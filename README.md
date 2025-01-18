@@ -1,3 +1,7 @@
+**Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
+`Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
+https://nytimes.com/2025/01/18/world/middleeast/here-are-some-prominent-palestinian-prisoners-set-to-be-released.html
+
 **Collins: Australian Open controversy has sparked 'six sponsorship opportunities'**\
 `Danielle Collins has hit back at criticism of her goading of the Australian Open crowd, saying: “I don&#8217;t care what some guy living in his basement is writing on the internet.`\
 https://nytimes.com/athletic/6071531/2025/01/18/danielle-collins-australian-open-controversy-sponsorship/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/opinion/donald-trump-tech-musk-bannon.html
 **The World Is a Mess, and It’s Still the Best Time to Be Alive**\
 `What matters isn’t so much a Trump rant as that children are less likely to die now than at any other time in the history of the world.`\
 https://nytimes.com/2025/01/18/opinion/2024-child-mortality-poverty-growth.html
-
-**On Its 10th Anniversary, ‘Hamilton’ Looks Heartbreakingly Different**\
-`It’s a glimpse at a long-lost era, but not the one the characters sing about.`\
-https://nytimes.com/2025/01/18/opinion/hamilton-musical-history.html
 
