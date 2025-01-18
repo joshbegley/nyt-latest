@@ -1,3 +1,11 @@
+**'It's monumental': Marcus Freeman's moment is significant for Black coaches**\
+`Black college football coaches share what it means to see a Black coach contend for the national title for the first time.`\
+https://nytimes.com/athletic/6068254/2025/01/18/marcus-freeman-first-black-coach-national-title-game-notre-dame/
+
+**A Big, Bold TikTok Ban**\
+`Banning the popular app is audacious. It’s also a sign that  officials really believe the alternative is unacceptable.`\
+https://nytimes.com/2025/01/18/briefing/a-big-bold-tiktok-ban.html
+
 **A Big, Bold TikTok Ban**\
 `Shutting down the popular app is audacious. It’s also a sign that  officials really believe the alternative is unacceptable.`\
 https://nytimes.com/2025/01/18/briefing/a-big-bold-tiktok-ban.html
