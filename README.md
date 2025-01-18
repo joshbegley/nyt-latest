@@ -1,3 +1,7 @@
+**‘Angry and Frustrated’: Thousands Protest Trump Days Before His Inauguration**\
+`Voters nervous about the return of a Trump presidency demonstrated in Washington, D.C., New York and other cities to show support for women’s rights, racial justice and other causes.`\
+https://nytimes.com/2025/01/18/us/trump-protests-inauguration.html
+
 **To Be From L.A. Is to Know Its Twin Temptations, Beauty and Danger**\
 `Somini Sengupta, a Times climate reporter, on her relationship with the city, its mythology, and a reckoning with disaster.`\
 https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/world/asia/india-eric-garcetti-interview.html
 **Creighton upsets No. 14 UConn, snaps Huskies’ 28-game home win streak**\
 `It was another moment of mortality for the Huskies (13-5, 5-2 Big East), who suffered their second Big East loss in the past three games.`\
 https://nytimes.com/athletic/6071854/2025/01/18/creighton-uconn-big-east-upset/
-
-**The Briefing: Arsenal 2 Aston Villa 2 - Late VAR anguish as Arteta's side let two-goal lead slip**\
-`Analysis of the main talking points from Saturday's Premier League game at the Emirates Stadium`\
-https://nytimes.com/athletic/6069638/2025/01/18/arsenal-aston-villa-result-analysis-premier-league/
 
