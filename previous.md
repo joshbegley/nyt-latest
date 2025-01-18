@@ -1,3 +1,11 @@
+**Word Problems**\
+`Emily Sharp and Kunal Nabar collaborate on a puzzle that’s greater than the sum of its parts.`\
+https://nytimes.com/2025/01/18/crosswords/daily-puzzle-2025-01-19.html
+
+**New York Rescuers Break the Ice to Save Moose From a Frozen Lake**\
+`The bull moose had fallen into a lake in the Adirondacks and been in the frigid waters for about two hours before rescuers arrived and used a chain saw to free it.`\
+https://nytimes.com/2025/01/18/nyregion/moose-rescue-indian-lake.html
+
 **John Mozeliak on Cardinals and trading Nolan Arenado: 'It's a top priority'**\
 `The Cardinals remain hindered by Alex Bregman's free-agent market and Arenado's no-trade clause.`\
 https://nytimes.com/athletic/6071825/2025/01/18/cardinals-nolan-arenado-trade-priority/
@@ -26,12 +34,4 @@ https://nytimes.com/2025/01/18/style/tiktok-ban-final-hours.html
 **Becerra, With No Regrets, Defends Vaccine Mandates and Misinformation Fight**\
 `In a wide-ranging interview, Xavier Becerra, President Biden’s health secretary, defended his tenure and hinted that he might run for governor of California.`\
 https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
-
-**Who Is Coming to the Inauguration — and Who Isn’t**\
-`Billionaires, foreign leaders and celebrities including Mike Tyson and Carrie Underwood will appear at the inauguration. Some prominent Democrats are taking a pass.`\
-https://nytimes.com/2025/01/18/us/politics/who-is-coming-trump-inauguration.html
-
-**‘Angry and Frustrated’: Thousands Protest Trump Days Before His Inauguration**\
-`People nervous about the return of a Trump presidency demonstrated in Washington, D.C., New York and other cities to show support for women’s rights, racial justice and other causes.`\
-https://nytimes.com/2025/01/18/us/trump-protests-inauguration.html
 

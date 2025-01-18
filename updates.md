@@ -1,3 +1,16 @@
+**Word Problems**\
+`Emily Sharp and Kunal Nabar collaborate on a puzzle that’s greater than the sum of its parts.`\
+https://nytimes.com/2025/01/18/crosswords/daily-puzzle-2025-01-19.html
+
+**New York Rescuers Break the Ice to Save Moose From a Frozen Lake**\
+`The bull moose had fallen into a lake in the Adirondacks and been in the frigid waters for about two hours before rescuers arrived and used a chain saw to free it.`\
+https://nytimes.com/2025/01/18/nyregion/moose-rescue-indian-lake.html
+
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
 **'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
 `Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
 `\
