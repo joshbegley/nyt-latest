@@ -1,4 +1,8 @@
 **TikTok to ‘Go Dark’ on Sunday for Its 170 Million American Users**\
+`The Chinese-owned company said it will cut off its services unless the U.S. assures Apple, Google and other companies that they will not be punished for hosting and distributing TikTok.`\
+https://nytimes.com/2025/01/17/technology/17tiktok-goes-dark-sunday-apple-google.html
+
+**TikTok to ‘Go Dark’ on Sunday for Its 170 Million American Users**\
 `The Chinese-owned company said it will cut off its services unless the U.S. assures Apple, Google and other companies that it will not be punished for hosting and distributing TikTok.`\
 https://nytimes.com/2025/01/17/technology/17tiktok-goes-dark-sunday-apple-google.html
 
