@@ -1,3 +1,7 @@
+**A List of Those Who Could Be in Line for Trump’s ‘Retribution’**\
+`President-elect Donald J. Trump believes he has been wronged by current and former officials, members of the media and more.`\
+https://nytimes.com/2025/01/18/us/politics/trump-retribution-list.html
+
 **For Those Deemed Trump’s Enemies, a Time of Anxiety and Fear**\
 `Donald Trump is returning to the White House vowing to seek retribution. Those in his sights are worried both about him — and his supporters.`\
 https://nytimes.com/2025/01/18/us/politics/trump-officials-retribution.html
