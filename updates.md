@@ -48,6 +48,11 @@ https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 `\
 https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
 **TikTok Fueled Travel Crazes, What Happens Now?**\
 `The app gave places like an ice cream shop/wine bar fame, and sometimes overwhelmed them with crowds. Influencers and destinations await the fallout.`\
 https://nytimes.com/2025/01/18/travel/tiktok-travel-trends.html
