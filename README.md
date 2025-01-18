@@ -1,3 +1,7 @@
+**Saliba misses Arsenal vs Aston Villa with muscular injury**\
+`Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
+https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
+
 **Tom Ricketts on state of the Cubs: Payroll, Jed Hoyer, Sammy Sosa, the Kyle Tucker trade, and more**\
 `RIcketts on Sosa reunion: "We can just accept the fact that there were a lot of guys doing things that the league was discouraging."`\
 https://nytimes.com/athletic/6071307/2025/01/18/tom-ricketts-state-of-the-cubs/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/trump-chooses-sch
 **Australian Open week one: What we learned about Swiatek, Alcaraz, and tennis being stuffy**\
 `Two of the best players fly under the radar, conditions flummox players and Danielle Collins shakes things up.`\
 https://nytimes.com/athletic/6071140/2025/01/18/australian-open-recap-analysis-swiatek-alcaraz-collins-crowds/
-
-**Trump’s Inauguration: What to Know About the Schedule**\
-`The president-elect will host a party at his golf club in Virginia on Saturday, kicking off four days of celebrations.`\
-https://nytimes.com/2025/01/18/us/politics/trump-inauguration-schedule.html
 
