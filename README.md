@@ -1,3 +1,7 @@
+**Hundreds of Palestinians imprisoned by Israel will be freed under the cease-fire deal.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/hundreds-of-palestinians-imprisoned-by-israel-will-be-freed-under-the-cease-fire-deal
+
 **Palace sign Esse from Millwall**\
 `Crystal Palace have completed the signing of teenage winger Romain Esse from Millwall.`\
 https://nytimes.com/athletic/6051963/2025/01/18/romain-esse-joins-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071340/2025/01/18/sabres-lose-penguins-takeaways/
 **The 24 Hours When L.A. Went Up in Flames**\
 `Poor planning, delayed evacuations, strained resources and treacherous conditions allowed firestorms to overrun a region that thought it knew how to fight wildfires.`\
 https://nytimes.com/interactive/2025/01/18/us/los-angeles-fires-palisades-eaton-timeline.html
-
-**Brighton's transfer plans for the rest of the January window: What I'm hearing**\
-`A possible move for Tosin, interest in Tzimas, and a couple of potential loan departures`\
-https://nytimes.com/athletic/6067018/2025/01/18/brighton-transfer-window-plans-adarabioyo-tzimas/
 
