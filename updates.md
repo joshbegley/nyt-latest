@@ -1,3 +1,7 @@
+**My Building Is Doing Unexplained Work. Can I Stop Paying Dues Until They Explain?**\
+`Most condo associations must provide a record of all receipts and expenses. But they also need residents’ maintenance fees to operate.`\
+https://nytimes.com/2025/01/18/realestate/condominium-maintenance-fees-construction-work.html
+
 **Amid Wildfires, a New Reality for L.A.’s Reality TV Stars**\
 `Binge-worthy guilty pleasures like “The Real Housewives of Beverly Hills” and “Selling Sunset” document luxury real estate in Los Angeles, a market that now faces an uncertain future.`\
 https://nytimes.com/2025/01/18/realestate/wildfires-reality-tv-stars.html
