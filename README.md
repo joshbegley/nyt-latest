@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nb
 `Newcastle's winning run came to an end and they can have few complaints - Chris Waugh analyses a first defeat in 2025`\
 https://nytimes.com/athletic/6066781/2025/01/18/newcastle-1-bournemouth-4-howe-guimaraes-isak/
 
-**Man City reach verbal agreement with Frankfurt to sign Marmoush**\
+**Man City reach verbal agreement to sign Marmoush**\
 `Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
 https://nytimes.com/athletic/6047775/2025/01/18/omar-marmoush-transfer-manchester-city/
 
