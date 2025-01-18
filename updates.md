@@ -1,3 +1,11 @@
+**Saliba misses Arsenal vs Aston Villa with muscular injury**\
+`Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
+https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
+
+**The Briefing: Brentford 0 Liverpool 2 - Has Nunez just given the title race a decisive turn?**\
+`Analysing the big talking points from the Premier League clash at the Gtech Community Stadium`\
+https://nytimes.com/athletic/6066782/2025/01/18/brentford-liverpool-premier-league-result-analysis/
+
 **Tom Ricketts on state of the Cubs: Payroll, Jed Hoyer, Sammy Sosa, the Kyle Tucker trade, and more**\
 `RIcketts on Sosa reunion: "We can just accept the fact that there were a lot of guys doing things that the league was discouraging."`\
 https://nytimes.com/athletic/6071307/2025/01/18/tom-ricketts-state-of-the-cubs/
