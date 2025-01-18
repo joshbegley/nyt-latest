@@ -1,3 +1,7 @@
+**UNRWA’s head warns of catastrophe for Gaza if Israel stops its work.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/unrwas-head-warns-of-catastrophe-for-gaza-if-israel-stops-its-work
+
 **Messi the latest star to headline in Vegas, now a sporting destination**\
 `Once rejected by major sports leagues, Las Vegas is now the place to be for big events`\
 https://nytimes.com/athletic/6068014/2025/01/18/lionel-messi-vegas-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067018/2025/01/18/brighton-transfer-window-plans-a
 **Celtics rediscover the joy of winning as starting 5 comes together against Magic**\
 `After going 7-7 recently, Boston snapped back following what Kristaps Porziņģis called an "unacceptable" performance against Toronto.`\
 https://nytimes.com/athletic/6071309/2025/01/18/celtics-defeat-magic/
-
-**Taylor Fritz out of Australian Open as Gael Monfils rolls back the years in Melbourne**\
-`38-year-old Gael Monfils continued his vintage run at the Australian Open by knocking out the No. 4 seed.`\
-https://nytimes.com/athletic/6071281/2025/01/18/taylor-fritz-gael-monfils-australian-open-result-analysis/
 
