@@ -1,3 +1,7 @@
+**UNRWA’s head warns of catastrophe for Gaza if Israel stops its work.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/unrwas-head-warns-of-catastrophe-for-gaza-if-israel-stops-its-work
+
 **Messi the latest star to headline in Vegas, now a sporting destination**\
 `Once rejected by major sports leagues, Las Vegas is now the place to be for big events`\
 https://nytimes.com/athletic/6068014/2025/01/18/lionel-messi-vegas-sports/
