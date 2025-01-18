@@ -1,3 +1,7 @@
+**The 24 Hours When L.A. Went Up in Flames**\
+`Poor planning, delayed evacuations, strained resources and treacherous conditions allowed firestorms to overrun a region that thought it knew how to fight wildfires.`\
+https://nytimes.com/interactive/2025/01/18/us/los-angeles-fires-palisades-eaton-timeline.html
+
 **Brighton's transfer plans for the rest of the January window: What I'm hearing**\
 `A possible move for Tosin, interest in Tzimas, and a couple of potential loan departures`\
 https://nytimes.com/athletic/6067018/2025/01/18/brighton-transfer-window-plans-adarabioyo-tzimas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066264/2025/01/18/why-arsenal-hired-renee-slegers-
 **Finding magic in the FA Youth Cup - the students who took on Chelsea's stars of the future**\
 `Merstham U18s are students from London schools 12 miles apart. The Athletic went behind the scenes for the biggest game of their lives`\
 https://nytimes.com/athletic/6069580/2025/01/18/fa-youth-cup-merstham-chelsea/
-
-**After Erling Haaland signed a 9.5-year deal, what are football's longest contracts and how did they work out?**\
-`These players signed unusually long contracts. This is what happened after they put pen to paper...`\
-https://nytimes.com/athletic/6069211/2025/01/18/what-are-footballs-longest-contracts-and-how-did-they-work-out-haaland/
 

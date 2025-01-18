@@ -1,3 +1,7 @@
+**The 24 Hours When L.A. Went Up in Flames**\
+`Poor planning, delayed evacuations, strained resources and treacherous conditions allowed firestorms to overrun a region that thought it knew how to fight wildfires.`\
+https://nytimes.com/interactive/2025/01/18/us/los-angeles-fires-palisades-eaton-timeline.html
+
 **Brighton's transfer plans for the rest of the January window: What I'm hearing**\
 `A possible move for Tosin, interest in Tzimas, and a couple of potential loan departures`\
 https://nytimes.com/athletic/6067018/2025/01/18/brighton-transfer-window-plans-adarabioyo-tzimas/
