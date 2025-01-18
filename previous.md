@@ -1,3 +1,7 @@
+**Braves takeaways: Teen throws 102 mph, Charlie Morton on his exit, and more**\
+`Raudy Reyes, signed at 16 out of the Dominican Republic, is "an intimidating young man, for sure."`\
+https://nytimes.com/athletic/6071075/2025/01/17/braves-takeaways-teen-throws-102-mph-charlie-morton-on-his-exit-and-more/
+
 **Rosenthal: The Dodgers landed Roki Sasaki. Now they have a special duty to keep him healthy**\
 `The addition of Sasaki only increases the urgency for the Dodgers to do better in preventing pitching injuries.`\
 https://nytimes.com/athletic/6071082/2025/01/17/roki-sasaki-dodgers-health-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/nyregion/adams-trump-pardon.html
 **DOJ urges judge of House case to modify $20.5M cap on school-athlete revenue sharing**\
 `The House lawsuit will pave the way for schools to begin sharing revenue directly with its athletes next school year.`\
 https://nytimes.com/athletic/6070948/2025/01/17/house-case-ncaa-salary-cap-department-of-justice/
-
-**Gus Williams, Guard Who Led Seattle to an N.B.A. Title, Dies at 71**\
-`Undersized but speedy and known as the Wizard for his acrobatics, he was a high scorer who in 1979 starred in a series that brought the SuperSonics their only crown.`\
-https://nytimes.com/2025/01/17/sports/basketball/gus-williams-dead.html
 

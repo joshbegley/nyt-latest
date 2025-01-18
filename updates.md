@@ -1,3 +1,7 @@
+**Braves takeaways: Teen throws 102 mph, Charlie Morton on his exit, and more**\
+`Raudy Reyes, signed at 16 out of the Dominican Republic, is "an intimidating young man, for sure."`\
+https://nytimes.com/athletic/6071075/2025/01/17/braves-takeaways-teen-throws-102-mph-charlie-morton-on-his-exit-and-more/
+
 **Rosenthal: The Dodgers landed Roki Sasaki. Now they have a special duty to keep him healthy**\
 `The addition of Sasaki only increases the urgency for the Dodgers to do better in preventing pitching injuries.`\
 https://nytimes.com/athletic/6071082/2025/01/17/roki-sasaki-dodgers-health-pitching/
