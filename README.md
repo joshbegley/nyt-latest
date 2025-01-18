@@ -1,3 +1,11 @@
+**Penguins goalie Nedeljkovic makes history with goal, assist in single game**\
+`Nedeljkovic scored into an empty net at 17:18 of the third period after the Sabres pulled their goalie for an extra skater.`\
+https://nytimes.com/athletic/6071187/2025/01/17/penguins-goalie-goal-alex-nedeljkovic/
+
+**Wisconsin cornerback leaves for Miami without entering transfer portal**\
+`The NCAA requires schools to adhere to a player’s transfer request, but Lucas' name never appeared in the portal.`\
+https://nytimes.com/athletic/6071080/2025/01/17/xavier-lucas-transfer-portal-miami-wisconsin/
+
 **TikTok to ‘Go Dark’ on Sunday for Its 170 Million American Users**\
 `The Chinese-owned company said it will cut off its services unless the U.S. assures Apple, Google and other companies that they will not be punished for hosting and distributing TikTok.`\
 https://nytimes.com/2025/01/17/technology/17tiktok-goes-dark-sunday-apple-google.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/17/nyregion/manuel-chang-mozambique-tuna.html
 **Braves takeaways: Teen throws 102 mph, Charlie Morton on his exit, and more**\
 `Raudy Reyes, signed at 16 out of the Dominican Republic, is "an intimidating young man, for sure."`\
 https://nytimes.com/athletic/6071075/2025/01/17/braves-takeaways-teen-throws-102-mph-charlie-morton-on-his-exit-and-more/
-
-**Rosenthal: The Dodgers landed Roki Sasaki. Now they have a special duty to keep him healthy**\
-`The addition of Sasaki only increases the urgency for the Dodgers to do better in preventing pitching injuries.`\
-https://nytimes.com/athletic/6071082/2025/01/17/roki-sasaki-dodgers-health-pitching/
-
-**Pence Is Said to Be Planning to Attend Trump’s Inauguration**\
-`The relationship between President-elect Trump and his former vice president, Mike Pence, was irreparably broken when Mr. Pence refused Mr. Trump’s efforts to overturn the election.`\
-https://nytimes.com/2025/01/17/us/politics/mike-pence-trump-inauguration.html
 
