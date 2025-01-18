@@ -1,3 +1,11 @@
+**Trump Officials Plan Immigration Raids in Chicago Next Week**\
+`The size of the planned operation is unclear, but it would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
+https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
+
+**Greenberg: Sammy Sosa returns to Chicago and apologizes to Cubs fans for being away so long**\
+`When Sosa was asked specifically about apologizing for PEDs, he said, “No.” He said he was apologizing to the fans.`\
+https://nytimes.com/athletic/6071198/2025/01/17/sammy-sosa-chicago-cubs-return/
+
 **How did Unrivaled do on opening night? Did the new 3x3 league perform in the arena and on TV?**\
 `The new league looked sharp on television and in person. Our experts share their first impressions.`\
 https://nytimes.com/athletic/6071162/2025/01/17/unrivaled-debut-womens-basketball-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-o
 **Who Are the Millions of Immigrants Trump Wants to Deport?**\
 `Trump wants to end several programs that offered new arrivals temporary relief. Millions of others without legal status may also be vulnerable to deportation.`\
 https://nytimes.com/interactive/2025/01/17/us/immigrants-trump-deportations.html
-
-**Corrections: Jan. 18, 2025**\
-`Corrections that appeared in print on Saturday, Jan. 18, 2025.`\
-https://nytimes.com/2025/01/17/pageoneplus/corrections-jan-18-2025.html
-
-**Mozambique’s Ex-Finance Minister Sentenced to Prison Over ‘Tuna Affair’**\
-`Manuel Chang will spend eight and a half years in prison for taking about $7 million in bribes and kickbacks in a loan scandal that sent the country’s economy into a crisis.`\
-https://nytimes.com/2025/01/17/nyregion/manuel-chang-mozambique-tuna.html
 
