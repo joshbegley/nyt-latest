@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Aston Villa 2 - Late VAR anguish as Arteta's side let two-goal lead slip**\
+`Analysis of the main talking points from Saturday's Premier League game at the Emirates Stadium`\
+https://nytimes.com/athletic/6069638/2025/01/18/arsenal-aston-villa-result-analysis-premier-league/
+
 **USMNT's Weah scores in Juventus win over rivals Milan**\
 `USMNT attacker Tim Weah emerged from the bench to settle Juventus’s 2-0 win over Milan and boost his club’s hopes of Champions League qualification.`\
 https://nytimes.com/athletic/6071865/2025/01/18/tim-weah-juventus-milan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/world/middleeast/cecilia-sala-italy-iran-revoluti
 **A List of Those Who Could Be in Line for Trump’s ‘Retribution’**\
 `President-elect Donald J. Trump believes he has been wronged by current and former officials, members of the media and more.`\
 https://nytimes.com/2025/01/18/us/politics/trump-retribution-list.html
-
-**For Those Deemed Trump’s Enemies, a Time of Anxiety and Fear**\
-`Donald Trump is returning to the White House vowing to seek retribution. Those in his sights are worried both about him — and his supporters.`\
-https://nytimes.com/2025/01/18/us/politics/trump-officials-retribution.html
 

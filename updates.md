@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Aston Villa 2 - Late VAR anguish as Arteta's side let two-goal lead slip**\
+`Analysis of the main talking points from Saturday's Premier League game at the Emirates Stadium`\
+https://nytimes.com/athletic/6069638/2025/01/18/arsenal-aston-villa-result-analysis-premier-league/
+
 **USMNT's Weah scores in Juventus win over rivals Milan**\
 `USMNT attacker Tim Weah emerged from the bench to settle Juventus’s 2-0 win over Milan and boost his club’s hopes of Champions League qualification.`\
 https://nytimes.com/athletic/6071865/2025/01/18/tim-weah-juventus-milan/
