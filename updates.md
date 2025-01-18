@@ -1,3 +1,7 @@
+**Vanderbilt knocks off Tennessee, Xavier beats Marquette as two top-10 teams fall**\
+`Vanderbilt, which won nine games last season, improved to 15-3 overall and 3-2 in the SEC.`\
+https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upsets/
+
 **USMNT beats Venezuela 3-1 in friendly to open 2025**\
 `A pair of goals late in the first half gave the hosts a comfortable lead heading into the break.`\
 https://nytimes.com/athletic/6072094/2025/01/18/usmnt-venezuela-friendly-score-takeaways/
