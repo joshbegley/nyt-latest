@@ -18,8 +18,8 @@ https://nytimes.com/2025/01/17/world/europe/explosions-ukraine.html
 `In the Penguins' 5-2 win in Buffalo, Nedeljkovic became the first goalie in NHL history to notch a goal and an assist in a single game.`\
 https://nytimes.com/athletic/6071167/2025/01/17/penguins-alex-nedeljkovic-goalie-goal/
 
-**Trump Officials Plan Immigration Raids in Chicago Next Week**\
-`The size of the planned operation is unclear, but it would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
+**Trump’s Deportation Plan Is Said to Start Next Week in Chicago**\
+`The size of the planned immigration raids are unclear, but they would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
 https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
 
 **Greenberg: Sammy Sosa returns to Chicago and apologizes to Cubs fans for being away so long**\
