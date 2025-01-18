@@ -1,3 +1,11 @@
+**How Sels has 'solved' Nottingham Forest's problem position**\
+`Unheralded on signing a year ago, Sels has been superb this season. So how has he turned Forest's biggest question mark into a strength?`\
+https://nytimes.com/athletic/6067111/2025/01/18/sels-nottingham-forest-problem-position/
+
+**Chelsea's hopes of Champions League qualification hinge on reviving home form**\
+`Enzo Maresca's side have taken only 16 points from 10 games at Stamford Bridge this season with their home form ranking them 10th`\
+https://nytimes.com/athletic/6066338/2025/01/18/chelsea-champions-league-home-away-maresca/
+
 **Consistency, solidity and ruthlessness - Why Arsenal hired Renee Slegers as their new head coach**\
 `Slegers impressed the hierarchy and built a good bond with the players - the results then followed`\
 https://nytimes.com/athletic/6066264/2025/01/18/why-arsenal-hired-renee-slegers-as-head-coach/
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6069211/2025/01/18/what-are-footballs-longest-contr
 https://nytimes.com/athletic/6069910/2025/01/18/what-does-ansu-fatis-future-look-like/
 
 **Roki Sasaki's addition further separates the Dodgers from rest of the league: Law**\
-`Sasaki's addition widens the gap between the Dodgers and the rest of the league. It also deepens a rotation that struggled with injury.`\
+`Sasaki's addition widens the gap between the Dodgers and the rest of the league. It also deepens a rotation that struggled with injuries.`\
 https://nytimes.com/athletic/6071216/2025/01/18/roki-sasaki-dodgers-signing-analysis/
 
 **Pints, playmakers and burner accounts - talking Aston Villa with Prince William in the pub**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6069777/2025/01/18/tactics-podcast-myth-busting-pun
 **Prince Harry Takes On Rupert Murdoch’s U.K. Tabloids in a High-Stakes Trial**\
 `Barring a late settlement, Harry’s lawsuit against News Group Newspapers will begin Monday, with potential consequences for the royal family, the media baron and even The Washington Post.`\
 https://nytimes.com/2025/01/18/world/europe/prince-harry-murdoch-news-group-trial.html
-
-**Arsenal vs Aston Villa preview: Storylines, odds, prediction as Gunners try to keep rolling**\
-`Arsenal are trying to chase down leaders Liverpool while Aston Villa are trying to stay in the Champions League race.`\
-https://nytimes.com/athletic/6070380/2025/01/18/arsenal-aston-villa-preview-odds-prediction/
-
-**Explosions Heard in Ukraine’s Capital**\
-`A countrywide alert warned of incoming ballistic missiles.`\
-https://nytimes.com/2025/01/17/world/europe/explosions-ukraine.html
 
