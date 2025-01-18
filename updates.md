@@ -1,3 +1,7 @@
+**In TikTok’s Final Hours, a Mix of Silliness and Sadness**\
+`Users in the United States react to a nationwide ban of the app.`\
+https://nytimes.com/2025/01/18/style/tiktok-ban-final-hours.html
+
 **To Be From L.A. Is to Know Its Twin Temptations, Beauty and Danger**\
 `Somini Sengupta, a Times climate reporter, on the city, its mythology, and a reckoning with disaster.`\
 https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html

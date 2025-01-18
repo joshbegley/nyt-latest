@@ -1,3 +1,7 @@
+**In TikTok’s Final Hours, a Mix of Silliness and Sadness**\
+`Users in the United States react to a nationwide ban of the app.`\
+https://nytimes.com/2025/01/18/style/tiktok-ban-final-hours.html
+
 **Becerra, With No Regrets, Defends Vaccine Mandates and Misinformation Fight**\
 `In a wide-ranging interview, Xavier Becerra, President Biden’s health secretary, defended his tenure and hinted that he might run for governor of California.`\
 https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/01/18/us/politics/trump-meme-coin-crypto.html
 **Two Prominent Judges Are Shot Dead Outside Iran’s Supreme Court**\
 `The gunman took his own life after killing two judges and wounding a third in what officials described as a terrorist attack.`\
 https://nytimes.com/2025/01/18/world/middleeast/iran-judges-killed-supreme-court.html
-
-**As the Living Fled, a Race to Save the Dead at an Altadena Cemetery**\
-`Workers at the Mountain View cemetery had unique concerns the night the Eaton fire broke out. The 55-acre expanse may also have spared some homes from the flames.`\
-https://nytimes.com/2025/01/18/us/altadena-eaton-fire-cemetery.html
 
