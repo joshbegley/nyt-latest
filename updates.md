@@ -1,3 +1,7 @@
+**USMNT beats Venezuela 3-1 in friendly to open 2025**\
+`A pair of goals late in the first half gave the hosts a comfortable lead heading into the break.`\
+https://nytimes.com/athletic/6072094/2025/01/18/usmnt-venezuela-friendly-score-takeaways/
+
 **'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
 `Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
 `\

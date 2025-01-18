@@ -1,3 +1,7 @@
+**USMNT beats Venezuela 3-1 in friendly to open 2025**\
+`A pair of goals late in the first half gave the hosts a comfortable lead heading into the break.`\
+https://nytimes.com/athletic/6072094/2025/01/18/usmnt-venezuela-friendly-score-takeaways/
+
 **People’s March in Washington Draws Thousands of Demonstrators**\
 `Just two days before Donald Trump’s inauguration, thousands of people attended the People’s March across Washington.`\
 https://nytimes.com/video/us/politics/100000009935546/dc-peoples-march-trump-inauguration.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6071998/2025/01/18/dick-vitale-accident-duke-wake-f
 **Texas, head coach Steve Sarkisian agree to contract extension**\
 `Sarkisian, who is 38-17 in four years at Texas, led the Longhorns to the College Football Playoff semifinals for the second year in a row.`\
 https://nytimes.com/athletic/6072024/2025/01/18/texas-steve-sarkisian-contract-extension/
-
-**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
-`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
-`\
-https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 
