@@ -1,8 +1,12 @@
+**Powerful Santa Ana Winds Expected to Elevate Fire Risk in Southern California**\
+`Meteorologists said there was a chance the winds would be as severe as those that fueled the Palisades and Eaton fires, but that different locations would likely be affected.`\
+https://nytimes.com/2025/01/18/weather/santa-ana-winds-wildfire-california.html
+
 **Virginia Governor Criticizes Biden for Commuting Sentences of 2 Men**\
 `The men had been acquitted by a jury of the murder of a police officer, but the judge had concluded that they had been involved and sentenced them to life in prison.`\
 https://nytimes.com/2025/01/18/us/politics/biden-commutation-criticism.html
 
-**Vanderbilt knocks off Tennessee, Xavier beats Marquette as two top-10 teams fall**\
+**Three top-10 teams fall on Saturday, 17 Top-25 teams have suffered a loss this week**\
 `Vanderbilt, which won nine games last season, improved to 15-3 overall and 3-2 in the SEC.`\
 https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upsets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/crosswords/daily-puzzle-2025-01-19.html
 **New York Rescuers Break the Ice to Save Moose From a Frozen Lake**\
 `The bull moose had fallen into a lake in the Adirondacks and been in the frigid waters for about two hours before rescuers arrived and used a chain saw to free it.`\
 https://nytimes.com/2025/01/18/nyregion/moose-rescue-indian-lake.html
-
-**John Mozeliak on Cardinals and trading Nolan Arenado: 'It's a top priority'**\
-`The Cardinals remain hindered by Alex Bregman's free-agent market and Arenado's no-trade clause.`\
-https://nytimes.com/athletic/6071825/2025/01/18/cardinals-nolan-arenado-trade-priority/
 
