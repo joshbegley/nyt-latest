@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
 `When Sosa was asked specifically about apologizing for PEDs, he said, “No.” He said he was apologizing to the fans.`\
 https://nytimes.com/athletic/6071198/2025/01/17/sammy-sosa-chicago-cubs-return/
 
-**How did Unrivaled do on opening night? Did the new 3x3 league perform in the arena and on TV?**\
+**How did Unrivaled do on opening night? Did new 3x3 league perform in the arena and on TV?**\
 `The new league looked sharp on television and in person. Our experts share their first impressions.`\
 https://nytimes.com/athletic/6071162/2025/01/17/unrivaled-debut-womens-basketball-league/
 
