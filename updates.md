@@ -1,3 +1,11 @@
+**Trump Officials Plan Immigration Raids in Chicago Next Week**\
+`The size of the planned operation is unclear, but it would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
+https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
+
+**Greenberg: Sammy Sosa returns to Chicago and apologizes to Cubs fans for being away so long**\
+`When Sosa was asked specifically about apologizing for PEDs, he said, “No.” He said he was apologizing to the fans.`\
+https://nytimes.com/athletic/6071198/2025/01/17/sammy-sosa-chicago-cubs-return/
+
 **How did Unrivaled do on opening night? Did the new 3x3 league perform in the arena and on TV?**\
 `The new league looked sharp on television and in person. Our experts share their first impressions.`\
 https://nytimes.com/athletic/6071162/2025/01/17/unrivaled-debut-womens-basketball-league/
