@@ -1,3 +1,7 @@
+**A List of Those Who Could Be in Line for Trump’s ‘Retribution’**\
+`President-elect Donald J. Trump believes he has been wronged by current and former officials, members of the media and more.`\
+https://nytimes.com/2025/01/18/us/politics/trump-retribution-list.html
+
 **For Those Deemed Trump’s Enemies, a Time of Anxiety and Fear**\
 `Donald Trump is returning to the White House vowing to seek retribution. Those in his sights are worried both about him — and his supporters.`\
 https://nytimes.com/2025/01/18/us/politics/trump-officials-retribution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071307/2025/01/18/tom-ricketts-state-of-the-cubs/
 **The Briefing: Brentford 0 Liverpool 2 - Has Nunez just given the title race a decisive turn?**\
 `Analysing the big talking points from the Premier League clash at the Gtech Community Stadium`\
 https://nytimes.com/athletic/6066782/2025/01/18/brentford-liverpool-premier-league-result-analysis/
-
-**Mark Zuckerberg’s New Bromance Is Off to a Strange Start**\
-`The standards of masculine energy have fallen.`\
-https://nytimes.com/2025/01/18/opinion/zuckerberg-masculine-energy-rogan-trump.html
 
