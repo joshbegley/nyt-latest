@@ -1,40 +1,40 @@
-**Hundreds of Palestinians imprisoned by Israel will be freed under the cease-fire deal.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/hundreds-of-palestinians-imprisoned-by-israel-will-be-freed-under-the-cease-fire-deal
+**Liverpool Women's Beard calls on PGMOL to protect Smith**\
+`Liverpool Women head coach Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; and has called on Professional Game Match Officials Limited (PGMOL) to protect her.`\
+https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
 
-**Palace sign Esse from Millwall**\
-`Crystal Palace have completed the signing of teenage winger Romain Esse from Millwall.`\
-https://nytimes.com/athletic/6051963/2025/01/18/romain-esse-joins-crystal-palace/
+**Trump Vowed a Crackdown on the Mexican Border, but It’s Already Quiet**\
+`Ahead of the inauguration, migrant shelters south of the Rio Grande are far from full, a reflection of the tougher measures imposed on both sides of the border.`\
+https://nytimes.com/2025/01/18/world/americas/migrants-trump-inauguration-border.html
 
-**UNRWA’s head warns of catastrophe for Gaza if Israel stops its work.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/unrwas-head-warns-of-catastrophe-for-gaza-if-israel-stops-its-work
+**What if No One Misses TikTok?**\
+`TikTok’s cultural footprint in America is huge. Why is its potential disappearance being met with a shrug?`\
+https://nytimes.com/2025/01/18/technology/what-if-no-one-misses-tiktok.html
 
-**Messi the latest star to headline in Vegas, now a sporting destination**\
-`Once rejected by major sports leagues, Las Vegas is now the place to be for big events`\
-https://nytimes.com/athletic/6068014/2025/01/18/lionel-messi-vegas-sports/
+**A Simple Brown Coat That Set the Tone for the U.S. Presidency**\
+`For a limited time, George Washington’s inaugural coat, which distanced his office from the military and from European royalty, will be on display at Mount Vernon.`\
+https://nytimes.com/2025/01/18/style/george-washington-inauguration-coat.html
 
-**Will Cuomo Run for Mayor? Racial Politics Complicate His Decision.**\
-`An ill-fated run against a Black opponent nearly ended the career of Andrew Cuomo. As he weighs challenging Mayor Eric Adams, he cannot afford a repeat.`\
-https://nytimes.com/2025/01/18/nyregion/andrew-cuomo-mayor-nyc.html
+**When the Retirement Community Goes Bankrupt**\
+`It doesn’t happen often. But when it does, some residents risk losing everything.`\
+https://nytimes.com/2025/01/18/health/retirement-community-bankruptcy.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/18/crosswords/spelling-bee-forum.html
+**Even Before TikTok’s Troubles, Chinese Companies Were Wary of Washington**\
+`Start-ups with Chinese ties have found it increasingly difficult to do business and list shares in the United States.`\
+https://nytimes.com/2025/01/18/business/tiktok-shein-grindr-china-ipo.html
 
-**Latest updates on the cease-fire deal.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/latest-updates-on-the-cease-fire-deal
+**Support for Trump’s Policies Exceeds Support for Trump**\
+`A new poll found the public is sympathetic to the president-elect’s plans to deport migrants and reduce America’s presence overseas.`\
+https://nytimes.com/2025/01/18/us/politics/trump-policies-immigration-tariffs-economy.html
 
-**Live Updates: Israel’s Cease-Fire Deal With Hamas to Take Effect Sunday**\
-`The truce will begin at 8:30 a.m., according to the Foreign Ministry of Qatar, a mediator in the talks. U.S. and other diplomats see the deal as the best chance to end the 15-month war that has devastated Gaza.`\
-https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire
+**What Is So Irresistible About Wearing Toast?**\
+`A low-key brand, founded by archaeologists in Wales, has quietly expanded in New York.`\
+https://nytimes.com/2025/01/18/style/what-is-so-irresistible-about-wearing-toast.html
 
-**A goalie goal, missed opportunities and another lousy Sabres loss: 3 takeaways**\
-`With a home record that's among the worst in the NHL, Buffalo found another way to lose against Pittsburgh.`\
-https://nytimes.com/athletic/6071340/2025/01/18/sabres-lose-penguins-takeaways/
+**5 Key Changes That Will Affect Your Money in 2025**\
+`This year, older workers will have ways to save more for retirement, spend less on medicine and see other ways to improve their finances.`\
+https://nytimes.com/2025/01/18/business/retirement-money-2025.html
 
-**The 24 Hours When L.A. Went Up in Flames**\
-`Poor planning, delayed evacuations, strained resources and treacherous conditions allowed firestorms to overrun a region that thought it knew how to fight wildfires.`\
-https://nytimes.com/interactive/2025/01/18/us/los-angeles-fires-palisades-eaton-timeline.html
+**Why the Supreme Court Upheld a Ban on TikTok**\
+`A unanimous Supreme Court on Friday upheld a law that effectively bans the wildly popular app TikTok in the United States starting on Sunday, Jan. 19. Adam Liptak, who covers the Supreme Court for The New York Times, explains how free speech and national security collided in this decision.`\
+https://nytimes.com/video/us/politics/100000009928246/why-the-supreme-court-upheld-a-ban-on-tiktok.html
 
