@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 `\
 https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
 **Texas, head coach Steve Sarkisian agree to contract extension**\
 `Sarkisian, who is 38-17 in four years at Texas, led the Longhorns to the College Football Playoff semifinals for the second year in a row.`\
 https://nytimes.com/athletic/6072024/2025/01/18/texas-steve-sarkisian-contract-extension/
