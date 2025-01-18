@@ -83,6 +83,11 @@ https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 `\
 https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
 **Dick vitale's return suffers another setback, not related to cancer scares**\
 `Vitale was slated to provide color commentary for Duke vs. Wake Forest on Jan. 25 in what would have been his first game since 2023`\
 https://nytimes.com/athletic/6071998/2025/01/18/dick-vitale-accident-duke-wake-forest/
