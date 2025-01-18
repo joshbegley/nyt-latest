@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-up
 `RIcketts on Sosa reunion: "We can just accept the fact that there were a lot of guys doing things that the league was discouraging."`\
 https://nytimes.com/athletic/6071307/2025/01/18/tom-ricketts-state-of-the-cubs/
 
-**The Briefing: Brentford 0 Liverpool 0 - Has Nunez just given the title race a decisive turn?**\
+**The Briefing: Brentford 0 Liverpool 2 - Has Nunez just given the title race a decisive turn?**\
 `Analysing the big talking points from the Premier League clash at the Gtech Community Stadium`\
 https://nytimes.com/athletic/6066782/2025/01/18/brentford-liverpool-premier-league-result-analysis/
 
