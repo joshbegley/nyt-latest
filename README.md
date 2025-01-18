@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6066781/2025/01/18/newcastle-1-bournemouth-4-howe-g
 
 **Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
 `Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
-https://nytimes.com/2025/01/18/world/middleeast/here-are-some-prominent-palestinian-prisoners-set-to-be-released.html
+https://nytimes.com/2025/01/18/world/middleeast/palestine-prisoners-release-israel-hamas-ceasefire.html
 
 **Collins: Australian Open controversy has sparked 'six sponsorship opportunities'**\
 `Danielle Collins has hit back at criticism of her goading of the Australian Open crowd, saying: “I don&#8217;t care what some guy living in his basement is writing on the internet.`\
