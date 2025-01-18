@@ -1,3 +1,7 @@
+**Trump’s Inauguration: What to Know About the Schedule**\
+`The president-elect will host a party at his golf club in Virginia on Saturday, kicking off four days of celebrations.`\
+https://nytimes.com/2025/01/18/us/politics/trump-inauguration-schedule.html
+
 **Timberwolves are 'still a work in progress' at season's midpoint**\
 `There are many reasons to blame for the uninspiring start to the season and many reasons to believe that it can turn around.`\
 https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nba/

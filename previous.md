@@ -1,3 +1,7 @@
+**Trump’s Inauguration: What to Know About the Schedule**\
+`The president-elect will host a party at his golf club in Virginia on Saturday, kicking off four days of celebrations.`\
+https://nytimes.com/2025/01/18/us/politics/trump-inauguration-schedule.html
+
 **Timberwolves are 'still a work in progress' at season's midpoint**\
 `There are many reasons to blame for the uninspiring start to the season and many reasons to believe that it can turn around.`\
 https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071293/2025/01/18/lonzo-lamelo-ball-head-to-head-b
 **Alaba could make Madrid return against Las Palmas, says Ancelotti**\
 `David Alaba could make his first Real Madrid appearance in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
 https://nytimes.com/athletic/6071477/2025/01/18/madrid-david-alaba-injury-return/
-
-**Trump Brings a Chill to Washington**\
-`A more seasoned Trump prepares to work his will in a more biddable D.C.`\
-https://nytimes.com/2025/01/18/opinion/trump-inauguration-indoors-cold.html
 
