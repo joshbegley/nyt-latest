@@ -1,3 +1,7 @@
+**Liverpool Women's Beard calls on PGMOL to protect Smith**\
+`Liverpool Women head coach Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
+https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
+
 **Hit by Wildfire? Here’s How to Deal With Insurers and FEMA.**\
 `You don’t need to settle for what your insurance company or the government first offers. And you don’t have to fight alone.`\
 https://nytimes.com/2025/01/18/climate/fires-insurance-fema.html

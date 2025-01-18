@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/18/arts/earthling-raoul-minot-nazi-paris.html
 https://nytimes.com/2025/01/18/us/politics/donald-trump-inauguration-republican-party.html
 
 **Liverpool Women's Beard calls on PGMOL to protect Smith**\
-`Liverpool Women head coach Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; and has called on Professional Game Match Officials Limited (PGMOL) to protect her.`\
+`Liverpool Women head coach Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
 https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
 
 **Trump Vowed a Crackdown on the Mexican Border, but It’s Already Quiet**\
