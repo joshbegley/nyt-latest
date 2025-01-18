@@ -1,3 +1,7 @@
+**Hundreds of Palestinians imprisoned by Israel will be freed under the cease-fire deal.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/hundreds-of-palestinians-imprisoned-by-israel-will-be-freed-under-the-cease-fire-deal
+
 **Palace sign Esse from Millwall**\
 `Crystal Palace have completed the signing of teenage winger Romain Esse from Millwall.`\
 https://nytimes.com/athletic/6051963/2025/01/18/romain-esse-joins-crystal-palace/
