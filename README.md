@@ -1,3 +1,7 @@
+**The Last Migrant Caravans Before Trump’s Inauguration**\
+`A Times photographer made two trips to southern Mexico to follow groups of migrants as they walked toward the United States.`\
+https://nytimes.com/card/2025/01/18/world/americas/mexico-migrants-border-trump
+
 **Word Problems**\
 `Emily Sharp and Kunal Nabar collaborate on a puzzle that’s greater than the sum of its parts.`\
 https://nytimes.com/2025/01/18/crosswords/daily-puzzle-2025-01-19.html
