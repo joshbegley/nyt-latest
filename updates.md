@@ -1,3 +1,11 @@
+**Catchers of Waves**\
+`Scott McMahon’s New York Times Crossword debut stacks up against all comparisons.`\
+https://nytimes.com/2025/01/17/crosswords/daily-puzzle-2025-01-18.html
+
+**Christen Press signs 1-year contract extension with Angel City**\
+`Press, 36, was Angel City's first-ever signing on its inaugural roster in 2021.`\
+https://nytimes.com/athletic/6071149/2025/01/17/christen-press-angel-city-fc-contract-extension/
+
 **Who Are the Millions of Immigrants Trump Wants to Deport?**\
 `Trump wants to end several programs that offered new arrivals temporary relief. Millions of others without legal status may also be vulnerable to deportation.`\
 https://nytimes.com/interactive/2025/01/17/us/immigrants-trump-deportations.html
