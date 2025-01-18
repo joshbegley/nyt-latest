@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/18/us/wildfires-home-dreams.html
 
 **Trump begins selling a new crypto token, in a move assailed as an ethical breach.**\
 `The president-elect and his family have a direct and potentially lucrative stake in the sale of a cryptocurrency product that surged in value in the hours after going on sale, days before his inauguration.`\
-https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/trump-meme-coin-crypto
+https://nytimes.com/2025/01/18/us/politics/trump-meme-coin-crypto.html
 
 **Two Prominent Judges Are Shot Dead Outside Iran’s Supreme Court**\
 `The gunman took his own life after killing two judges and wounding a third in what officials described as a terrorist attack.`\
