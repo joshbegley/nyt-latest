@@ -1,3 +1,7 @@
+**Tom Ricketts on state of the Cubs: Payroll, Jed Hoyer, Sammy Sosa, the Kyle Tucker trade, and more**\
+`RIcketts on Sosa reunion: "We can just accept the fact that there were a lot of guys doing things that the league was discouraging."`\
+https://nytimes.com/athletic/6071307/2025/01/18/tom-ricketts-state-of-the-cubs/
+
 **The Briefing: Brentford 0 Liverpool 0 - Has Nunez just given the title race a decisive turn?**\
 `Analysing the big talking points from the Premier League clash at the Gtech Community Stadium`\
 https://nytimes.com/athletic/6066782/2025/01/18/brentford-liverpool-premier-league-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071140/2025/01/18/australian-open-recap-analysis-s
 **Trump’s Inauguration: What to Know About the Schedule**\
 `The president-elect will host a party at his golf club in Virginia on Saturday, kicking off four days of celebrations.`\
 https://nytimes.com/2025/01/18/us/politics/trump-inauguration-schedule.html
-
-**Timberwolves are 'still a work in progress' at season's midpoint**\
-`There are many reasons to blame for the uninspiring start to the season and many reasons to believe that it can turn around.`\
-https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nba/
 
