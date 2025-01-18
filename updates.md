@@ -1,3 +1,7 @@
+**To Be From L.A. Is to Know Its Twin Temptations, Beauty and Danger**\
+`Somini Sengupta, a Times climate reporter, on the city, its mythology, and a reckoning with disaster.`\
+https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html
+
 **Becerra, With No Regrets, Defends Vaccine Mandates and Misinformation Fight**\
 `In a wide-ranging interview, Xavier Becerra, President Biden’s health secretary, defended his tenure and hinted that he might run for governor of California.`\
 https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
