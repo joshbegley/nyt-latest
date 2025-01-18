@@ -1,3 +1,11 @@
+**Timberwolves are 'still a work in progress' at season's midpoint**\
+`There are many reasons to blame for the uninspiring start to the season and many reasons to believe that it can turn around.`\
+https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nba/
+
+**The Briefing: Newcastle 1 Bournemouth 4 - Winning run ended, Isak nullified, should Howe have changed it?**\
+`Newcastle's winning run came to an end and they can have few complaints - Chris Waugh analyses a first defeat in 2025`\
+https://nytimes.com/athletic/6066781/2025/01/18/newcastle-1-bournemouth-4-howe-guimaraes-isak/
+
 **Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
 `Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
 https://nytimes.com/2025/01/18/world/middleeast/here-are-some-prominent-palestinian-prisoners-set-to-be-released.html
