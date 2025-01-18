@@ -1,3 +1,7 @@
+**Roki Sasaki signs with the Dodgers: MLB experts discuss his fit and the fallout**\
+`Sasaki announced that he would be joining the Dodgers on Friday, ending a monthlong free agency period.`\
+https://nytimes.com/athletic/6070996/2025/01/17/roki-sasaki-los-angeles-dodgers-roundtable/
+
 **Mets and reliever A.J. Minter agree on 2-year, $22 million deal: Sources**\
 `Minter is believed to be the first non-closer reliever to receive an eight-figure AAV with an opt-out inside a multiyear deal.`\
 https://nytimes.com/athletic/6071055/2025/01/17/mets-reliever-aj-minter-deal/
