@@ -1,3 +1,7 @@
+**TikTok to ‘Go Dark’ on Sunday for Its 170 Million American Users**\
+`The Chinese-owned company said it will cut off its services unless the U.S. assures Apple, Google and other companies that it will not be punished for hosting and distributing TikTok.`\
+https://nytimes.com/2025/01/17/technology/17tiktok-goes-dark-sunday-apple-google.html
+
 **Emma Navarro's reluctant step into the tennis limelight**\
 `The American's incremental assent to the top 10 has brought a burst of attention and expectation. For Navarro, it's an adjustment`\
 https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-open/

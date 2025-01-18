@@ -1,3 +1,7 @@
+**TikTok to ‘Go Dark’ on Sunday for Its 170 Million American Users**\
+`The Chinese-owned company said it will cut off its services unless the U.S. assures Apple, Google and other companies that it will not be punished for hosting and distributing TikTok.`\
+https://nytimes.com/2025/01/17/technology/17tiktok-goes-dark-sunday-apple-google.html
+
 **Catchers of Waves**\
 `Scott McMahon’s New York Times Crossword debut stacks up against all comparisons.`\
 https://nytimes.com/2025/01/17/crosswords/daily-puzzle-2025-01-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071082/2025/01/17/roki-sasaki-dodgers-health-pitch
 **Pence Is Said to Be Planning to Attend Trump’s Inauguration**\
 `The relationship between President-elect Trump and his former vice president, Mike Pence, was irreparably broken when Mr. Pence refused Mr. Trump’s efforts to overturn the election.`\
 https://nytimes.com/2025/01/17/us/politics/mike-pence-trump-inauguration.html
-
-**Cubs' Jed Hoyer will turn his focus to a bullpen in need of a veteran**\
-`At Cubs Convention, Hoyer spoke to reporters and discussed his desire to "supplement" Chicago's roster as much as possible. `\
-https://nytimes.com/athletic/6071044/2025/01/17/chicago-cubs-jed-hoyer-bullpen-search/
 
