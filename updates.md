@@ -33,6 +33,11 @@ https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 `\
 https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
 
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
 **Word Problems**\
 `Emily Sharp and Kunal Nabar collaborate on a puzzle that’s greater than the sum of its parts.`\
 https://nytimes.com/2025/01/18/crosswords/daily-puzzle-2025-01-19.html
