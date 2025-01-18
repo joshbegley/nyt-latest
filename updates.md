@@ -1,3 +1,19 @@
+**How many football-pundit tactical cliches can we prove or disprove?**\
+`Football punditry is awash with well-established cliches and assumptions. Many of them are flimsy at best...`\
+https://nytimes.com/athletic/6069777/2025/01/18/tactics-podcast-myth-busting-pundits/
+
+**Prince Harry Takes On Rupert Murdoch’s U.K. Tabloids in a High-Stakes Trial**\
+`Barring a late settlement, Harry’s lawsuit against News Group Newspapers will begin Monday, with potential consequences for the royal family, the media baron and even The Washington Post.`\
+https://nytimes.com/2025/01/18/world/europe/prince-harry-murdoch-news-group-trial.html
+
+**Arsenal vs Aston Villa preview: Storylines, odds, prediction as Gunners try to keep rolling**\
+`Arsenal are trying to chase down leaders Liverpool while Aston Villa are trying to stay in the Champions League race.`\
+https://nytimes.com/athletic/6070380/2025/01/18/arsenal-aston-villa-preview-odds-prediction/
+
+**Trump’s Deportation Plan Is Said to Start Next Week in Chicago**\
+`The size of the planned immigration raids are unclear, but they would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
+https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
+
 **Explosions Heard in Ukraine’s Capital**\
 `A countrywide alert warned of incoming ballistic missiles.`\
 https://nytimes.com/2025/01/17/world/europe/explosions-ukraine.html
