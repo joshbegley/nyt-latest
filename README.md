@@ -1,3 +1,7 @@
+**The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
+`In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
+https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
+
 **How much are Playoff experiences worth to Notre Dame fans? ‘I didn’t debate anything’**\
 `In a college football season like no other, these Notre Dame fans couldn't help but commit to the full Playoff journey.`\
 https://nytimes.com/athletic/6070592/2025/01/18/notre-dame-fans-playoff-national-championship-tickets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/arts/earthling-raoul-minot-nazi-paris.html
 **Under Trump’s Big Tent, Republicans Are Starting to Clash**\
 `Donald J. Trump won his battle with establishment Republicans. Now, it’s disputes over immigration, taxes and foreign policy that will test his party’s unity.`\
 https://nytimes.com/2025/01/18/us/politics/donald-trump-inauguration-republican-party.html
-
-**Liverpool Women manager calls on PGMOL to protect Smith**\
-`Liverpool Women manager Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
-https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
 
