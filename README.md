@@ -1,3 +1,7 @@
+**Vanderbilt knocks off Tennessee, Xavier beats Marquette as two top-10 teams fall**\
+`Vanderbilt, which won nine games last season, improved to 15-3 overall and 3-2 in the SEC.`\
+https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upsets/
+
 **USMNT beats Venezuela 3-1 in friendly to open 2025**\
 `A pair of goals late in the first half gave the hosts a comfortable lead heading into the break.`\
 https://nytimes.com/athletic/6072094/2025/01/18/usmnt-venezuela-friendly-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071825/2025/01/18/cardinals-nolan-arenado-trade-pr
 **Dick vitale's return suffers another setback, not related to cancer scares**\
 `Vitale was slated to provide color commentary for Duke vs. Wake Forest on Jan. 25 in what would have been his first game since 2023`\
 https://nytimes.com/athletic/6071998/2025/01/18/dick-vitale-accident-duke-wake-forest/
-
-**Texas, head coach Steve Sarkisian agree to contract extension**\
-`Sarkisian, who is 38-17 in four years at Texas, led the Longhorns to the College Football Playoff semifinals for the second year in a row.`\
-https://nytimes.com/athletic/6072024/2025/01/18/texas-steve-sarkisian-contract-extension/
 
