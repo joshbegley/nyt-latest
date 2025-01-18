@@ -1,3 +1,12 @@
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
+**Israel and Palestinians Prepare for Long-Sought Truce in Gaza**\
+`Qatar, which mediated the agreement, said the cease-fire deal was set to begin at 8:30 a.m. local time on Sunday.`\
+https://nytimes.com/2025/01/18/world/middleeast/israel-gaza-ceasefire.html
+
 **In TikTok’s Final Hours, a Mix of Silliness and Sadness**\
 `Users in the United States react to a nationwide ban of the app.`\
 https://nytimes.com/2025/01/18/style/tiktok-ban-final-hours.html

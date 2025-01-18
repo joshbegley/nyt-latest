@@ -1,3 +1,12 @@
+**'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
+`Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
+`\
+https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
+
+**Israel and Palestinians Prepare for Long-Sought Truce in Gaza**\
+`Qatar, which mediated the agreement, said the cease-fire deal was set to begin at 8:30 a.m. local time on Sunday.`\
+https://nytimes.com/2025/01/18/world/middleeast/israel-gaza-ceasefire.html
+
 **In TikTok’s Final Hours, a Mix of Silliness and Sadness**\
 `Users in the United States react to a nationwide ban of the app.`\
 https://nytimes.com/2025/01/18/style/tiktok-ban-final-hours.html
@@ -25,12 +34,4 @@ https://nytimes.com/2025/01/18/style/mens-fashion-milan-ralph-lauren-cucinelli.h
 **Losing Homes, and the Dream of One**\
 `Emily Baumgaertner, a national health reporter who lives in Los Angeles, reflects on covering the fires while trying to buy a home.`\
 https://nytimes.com/2025/01/18/us/wildfires-home-dreams.html
-
-**Trump Begins Selling New Crypto Token, Raising Ethical Concerns**\
-`The president-elect and his family have a direct and potentially lucrative stake in the sale of a cryptocurrency product that surged in value in the hours after going on sale, days before his inauguration.`\
-https://nytimes.com/2025/01/18/us/politics/trump-meme-coin-crypto.html
-
-**Two Prominent Judges Are Shot Dead Outside Iran’s Supreme Court**\
-`The gunman took his own life after killing two judges and wounding a third in what officials described as a terrorist attack.`\
-https://nytimes.com/2025/01/18/world/middleeast/iran-judges-killed-supreme-court.html
 
