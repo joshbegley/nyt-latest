@@ -1,3 +1,7 @@
+**Man Utd exploring Malacia January loan**\
+`Manchester United are exploring a January loan move for defender Tyrell Malacia.`\
+https://nytimes.com/athletic/6054005/2025/01/18/tyrell-malacia-manchester-united-transfers/
+
 **Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
 `President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
 https://nytimes.com/2025/01/18/world/asia/bread-soup-soy-milk-south-korean-leaders-life-in-jail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/realestate/condominium-maintenance-fees-construct
 **Amid Wildfires, a New Reality for L.A.’s Reality TV Stars**\
 `Binge-worthy guilty pleasures like “The Real Housewives of Beverly Hills” and “Selling Sunset” document luxury real estate in Los Angeles, a market that now faces an uncertain future.`\
 https://nytimes.com/2025/01/18/realestate/wildfires-reality-tv-stars.html
-
-**Saliba misses Arsenal vs Aston Villa with muscular injury**\
-`Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
-https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
 
