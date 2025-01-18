@@ -1,3 +1,15 @@
+**Lamar Jackson or Josh Allen? Quiz yourself on the MVP front-runners**\
+`Answer a quick 10 questions to see how much you know about the remarkable seasons of Allen and Jackson.`\
+https://nytimes.com/athletic/6067330/2025/01/18/lamar-jackson-josh-allen-quiz/
+
+**A Vibe Shift at Davos**\
+`For years, C.E.O.s have used the annual gathering at the World Economic Forum to emphasize commitments to D.E.I., E.S.G. and globalization. Now the politics have changed.`\
+https://nytimes.com/2025/01/18/business/dealbook/a-vibe-shift-at-davos.html
+
+**Lonzo, LaMelo Ball match up for first time in three years with awe for each other**\
+`Friday's game was only the fourth meeting between the Ball brothers due to injuries to both players. The head-to-head series is tied, 2-2.`\
+https://nytimes.com/athletic/6071293/2025/01/18/lonzo-lamelo-ball-head-to-head-bulls-hornets-nba/
+
 **Alaba could make Madrid return against Las Palmas, says Ancelotti**\
 `David Alaba is set to feature for Real Madrid for the first time in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
 https://nytimes.com/athletic/6071477/2025/01/18/madrid-david-alaba-injury-return/
