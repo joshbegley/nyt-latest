@@ -1,3 +1,7 @@
+**Hostages are to be freed after more than a year of talks. Here are some key moments.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/hostage-deal-timeline
+
 **'It's monumental': Marcus Freeman's moment is significant for Black coaches**\
 `Black college football coaches share what it means to see a Black coach contend for the national title for the first time.`\
 https://nytimes.com/athletic/6068254/2025/01/18/marcus-freeman-first-black-coach-national-title-game-notre-dame/

@@ -1,3 +1,7 @@
+**Hostages are to be freed after more than a year of talks. Here are some key moments.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/hostage-deal-timeline
+
 **'It's monumental': Marcus Freeman's moment is significant for Black coaches**\
 `Black college football coaches share what it means to see a Black coach contend for the national title for the first time.`\
 https://nytimes.com/athletic/6068254/2025/01/18/marcus-freeman-first-black-coach-national-title-game-notre-dame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6070867/2025/01/18/justin-tucker-tyler-bass-bills-r
 **Wordle Review No. 1,310**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Jan. 19, 2025.`\
 https://nytimes.com/2025/01/18/crosswords/wordle-review-1310.html
-
-**Solskjaer confirmed as new Besiktas head coach**\
-`Ole Gunnar Solskjaer has been confirmed as the new head coach of Turkish club Besiktas.`\
-https://nytimes.com/athletic/5995138/2025/01/18/ole-gunnar-solskjaer-besiktas-manager-appointment/
 
