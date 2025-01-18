@@ -1,3 +1,7 @@
+**Explosions Heard in Ukraine’s Capital**\
+`A countrywide alert warned of incoming ballistic missiles.`\
+https://nytimes.com/2025/01/17/world/europe/explosions-ukraine.html
+
 **Yohe: With historic goal and assist, goalie Alex Nedeljkovic delivers remarkable performance**\
 `In the Penguins' 5-2 win in Buffalo, Nedeljkovic became the first goalie in NHL history to notch a goal and an assist in a single game.`\
 https://nytimes.com/athletic/6071167/2025/01/17/penguins-alex-nedeljkovic-goalie-goal/

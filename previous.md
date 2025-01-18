@@ -1,3 +1,7 @@
+**Explosions Heard in Ukraine’s Capital**\
+`A countrywide alert warned of incoming ballistic missiles.`\
+https://nytimes.com/2025/01/17/world/europe/explosions-ukraine.html
+
 **Yohe: With historic goal and assist, goalie Alex Nedeljkovic delivers remarkable performance**\
 `In the Penguins' 5-2 win in Buffalo, Nedeljkovic became the first goalie in NHL history to notch a goal and an assist in a single game.`\
 https://nytimes.com/athletic/6071167/2025/01/17/penguins-alex-nedeljkovic-goalie-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/crosswords/daily-puzzle-2025-01-18.html
 **Christen Press signs 1-year contract extension with Angel City**\
 `Press, 36, was Angel City's first-ever signing on its inaugural roster in 2021.`\
 https://nytimes.com/athletic/6071149/2025/01/17/christen-press-angel-city-fc-contract-extension/
-
-**Emma Navarro's reluctant step into the tennis limelight**\
-`The American's incremental assent to the top 10 has brought a burst of attention and expectation. For Navarro, it's an adjustment`\
-https://nytimes.com/athletic/6069003/2025/01/17/emma-navarro-tennis-australian-open/
 
