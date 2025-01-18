@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6069211/2025/01/18/what-are-footballs-longest-contr
 https://nytimes.com/athletic/6069910/2025/01/18/what-does-ansu-fatis-future-look-like/
 
 **Roki Sasaki's addition further separates the Dodgers from rest of the league: Law**\
-`Sasaki's addition widens the gap between the Dodgers and the rest of the league. It also deepens a rotation that struggled with injuries.`\
+`Sasaki's addition widens the gap between the Dodgers and the rest of the league. It also deepens a rotation that struggled with injury.`\
 https://nytimes.com/athletic/6071216/2025/01/18/roki-sasaki-dodgers-signing-analysis/
 
 **Pints, playmakers and burner accounts - talking Aston Villa with Prince William in the pub**\
