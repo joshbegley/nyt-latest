@@ -1,3 +1,7 @@
+**Overtures to Trump Put Mayor Adams on a Political Tightrope**\
+`Mayor Eric Adams said that a meeting with President-elect Donald J. Trump was about New York City’s future. Each man has his own reasons to forge close ties.`\
+https://nytimes.com/2025/01/17/nyregion/adams-trump-pardon.html
+
 **DOJ urges judge of House case to modify $20.5M cap on school-athlete revenue sharing**\
 `The House lawsuit will pave the way for schools to begin sharing revenue directly with its athletes next school year.`\
 https://nytimes.com/athletic/6070948/2025/01/17/house-case-ncaa-salary-cap-department-of-justice/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/world/middleeast/israel-cabinet-ceasefire-gaza.ht
 **Roki Sasaki is signing with the Dodgers. Will the Giants ever get their superstar?**\
 `The Giants won't get a Sasaki until they are an It Franchise. They have work to do on three fronts to become one.`\
 https://nytimes.com/athletic/6061606/2025/01/17/roki-sasaki-dodgers-sf-giants-impact/
-
-**Supreme Court to Hear Case on Religious Objections to L.G.B.T.Q. Storybooks**\
-`Parents in Maryland said a school board’s refusal to notify them and to excuse their children from discussions of the storybooks violated the First Amendment.`\
-https://nytimes.com/2025/01/17/us/supreme-court-lgbtq-school-books.html
 
