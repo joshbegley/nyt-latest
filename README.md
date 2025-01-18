@@ -1,3 +1,11 @@
+**Catchers of Waves**\
+`Scott McMahon’s New York Times Crossword debut stacks up against all comparisons.`\
+https://nytimes.com/2025/01/17/crosswords/daily-puzzle-2025-01-18.html
+
+**Christen Press signs 1-year contract extension with Angel City**\
+`Press, 36, was Angel City's first-ever signing on its inaugural roster in 2021.`\
+https://nytimes.com/athletic/6071149/2025/01/17/christen-press-angel-city-fc-contract-extension/
+
 **Who Are the Millions of Immigrants Trump Wants to Deport?**\
 `Trump wants to end several programs that offered new arrivals temporary relief. Millions of others without legal status may also be vulnerable to deportation.`\
 https://nytimes.com/interactive/2025/01/17/us/immigrants-trump-deportations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071044/2025/01/17/chicago-cubs-jed-hoyer-bullpen-s
 **Can I Go to Church When I Don’t Believe?**\
 `The magazine’s Ethicist columnist on separating belief from an appreciation of the arts and rituals produced by a religious organization.`\
 https://nytimes.com/2025/01/17/magazine/catholic-church-arts-rituals-ethics.html
-
-**Roki Sasaki signs with the Dodgers: MLB experts discuss his fit and the fallout**\
-`Sasaki announced that he would be joining the Dodgers on Friday, ending a monthlong free agency period.`\
-https://nytimes.com/athletic/6070996/2025/01/17/roki-sasaki-los-angeles-dodgers-roundtable/
-
-**Mets and reliever A.J. Minter agree on 2-year, $22 million deal: Sources**\
-`Minter is believed to be the first non-closer reliever to receive an eight-figure AAV with an opt-out inside a multiyear deal.`\
-https://nytimes.com/athletic/6071055/2025/01/17/mets-reliever-aj-minter-deal/
 
