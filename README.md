@@ -1,3 +1,11 @@
+**Latest updates on the cease-fire deal.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/latest-updates-on-the-cease-fire-deal
+
+**Live Updates: Israel’s Cease-Fire Deal With Hamas to Take Effect Sunday**\
+`The truce will begin at 8:30 a.m., according to the Foreign Ministry of Qatar, a mediator in the talks. U.S. and other diplomats see the deal as the best chance to end the 15-month war that has devastated Gaza.`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire
+
 **A goalie goal, missed opportunities and another lousy Sabres loss: 3 takeaways**\
 `With a home record that's among the worst in the NHL, Buffalo found another way to lose against Pittsburgh.`\
 https://nytimes.com/athletic/6071340/2025/01/18/sabres-lose-penguins-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6069204/2025/01/18/arsenal-liverpool-premier-league
 **How Sels has 'solved' Nottingham Forest's problem position**\
 `Unheralded on signing a year ago, Sels has been superb this season. So how has he turned Forest's biggest question mark into a strength?`\
 https://nytimes.com/athletic/6067111/2025/01/18/sels-nottingham-forest-problem-position/
-
-**Chelsea's hopes of Champions League qualification hinge on reviving home form**\
-`Enzo Maresca's side have taken only 16 points from 10 games at Stamford Bridge this season with their home form ranking them 10th`\
-https://nytimes.com/athletic/6066338/2025/01/18/chelsea-champions-league-home-away-maresca/
-
-**Consistency, solidity and ruthlessness - Why Arsenal hired Renee Slegers as their new head coach**\
-`Slegers impressed the hierarchy and built a good bond with the players - the results then followed`\
-https://nytimes.com/athletic/6066264/2025/01/18/why-arsenal-hired-renee-slegers-as-head-coach/
 
