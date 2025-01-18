@@ -1,3 +1,11 @@
+**To Be From L.A. Is to Know Its Twin Temptations, Beauty and Danger**\
+`Somini Sengupta, a Times climate reporter, on her relationship with the city, its mythology, and a reckoning with disaster.`\
+https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html
+
+**Fashion’s TikTok Conundrum**\
+`At the men’s shows in Europe, Ralph Lauren and Brunello Cucinelli brushed off virality in favor of reliable classics, while Philipp Plein had a bit of an identity crisis.`\
+https://nytimes.com/2025/01/18/style/mens-fashion-milan-ralph-lauren-cucinelli.html
+
 **Losing Homes, and the Dream of One**\
 `Emily Baumgaertner, a national health reporter who lives in Los Angeles, reflects on covering the fires while trying to buy a home.`\
 https://nytimes.com/2025/01/18/us/wildfires-home-dreams.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071854/2025/01/18/creighton-uconn-big-east-upset/
 **The Briefing: Arsenal 2 Aston Villa 2 - Late VAR anguish as Arteta's side let two-goal lead slip**\
 `Analysis of the main talking points from Saturday's Premier League game at the Emirates Stadium`\
 https://nytimes.com/athletic/6069638/2025/01/18/arsenal-aston-villa-result-analysis-premier-league/
-
-**USMNT's Weah scores in Juventus win over rivals Milan**\
-`USMNT attacker Tim Weah emerged from the bench to settle Juventus’s 2-0 win over Milan and boost his club’s hopes of Champions League qualification.`\
-https://nytimes.com/athletic/6071865/2025/01/18/tim-weah-juventus-milan/
-
-**What We Know About the Hostage Release**\
-`The first phase of the cease-fire deal calls for the release of 33 hostages, including women, children, men over 50 and sick and wounded people.`\
-https://nytimes.com/2025/01/18/world/middleeast/what-we-know-hostage-release.html
 

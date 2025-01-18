@@ -1,3 +1,11 @@
+**To Be From L.A. Is to Know Its Twin Temptations, Beauty and Danger**\
+`Somini Sengupta, a Times climate reporter, on her relationship with the city, its mythology, and a reckoning with disaster.`\
+https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html
+
+**Fashion’s TikTok Conundrum**\
+`At the men’s shows in Europe, Ralph Lauren and Brunello Cucinelli brushed off virality in favor of reliable classics, while Philipp Plein had a bit of an identity crisis.`\
+https://nytimes.com/2025/01/18/style/mens-fashion-milan-ralph-lauren-cucinelli.html
+
 **Losing Homes, and the Dream of One**\
 `Emily Baumgaertner, a national health reporter who lives in Los Angeles, reflects on covering the fires while trying to buy a home.`\
 https://nytimes.com/2025/01/18/us/wildfires-home-dreams.html
