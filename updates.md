@@ -1,3 +1,7 @@
+**Collins: Australian Open controversy has sparked 'six sponsorship opportunities'**\
+`Danielle Collins has hit back at criticism of her goading of the Australian Open crowd, saying: “I don&#8217;t care what some guy living in his basement is writing on the internet.`\
+https://nytimes.com/athletic/6071531/2025/01/18/danielle-collins-australian-open-controversy-sponsorship/
+
 **As deadly strikes continue, Gazans anticipate first moments of peace.**\
 `By Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/as-deadly-strikes-continue-gazans-anticipate-first-moments-of-peace
