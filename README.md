@@ -1,3 +1,15 @@
+**Lamar Jackson or Josh Allen? Quiz yourself on the MVP front-runners**\
+`Answer a quick 10 questions to see how much you know about the remarkable seasons of Allen and Jackson.`\
+https://nytimes.com/athletic/6067330/2025/01/18/lamar-jackson-josh-allen-quiz/
+
+**A Vibe Shift at Davos**\
+`For years, C.E.O.s have used the annual gathering at the World Economic Forum to emphasize commitments to D.E.I., E.S.G. and globalization. Now the politics have changed.`\
+https://nytimes.com/2025/01/18/business/dealbook/a-vibe-shift-at-davos.html
+
+**Lonzo, LaMelo Ball match up for first time in three years with awe for each other**\
+`Friday's game was only the fourth meeting between the Ball brothers due to injuries to both players. The head-to-head series is tied, 2-2.`\
+https://nytimes.com/athletic/6071293/2025/01/18/lonzo-lamelo-ball-head-to-head-bulls-hornets-nba/
+
 **Alaba could make Madrid return against Las Palmas, says Ancelotti**\
 `David Alaba is set to feature for Real Madrid for the first time in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
 https://nytimes.com/athletic/6071477/2025/01/18/madrid-david-alaba-injury-return/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/18/opinion/california-fire-lost-home.html
 **Two of the World’s Leading Thinkers on How the Left Went Astray**\
 `Thomas Piketty and Michael Sandel debate the value of open borders and what we owe migrants.`\
 https://nytimes.com/2025/01/18/opinion/piketty-sandel-liberals-open-borders.html
-
-**A Racist Purge Almost Destroyed My Family. Another One Is Coming.**\
-`If Trump issues his own order on Day 1, as he’s vowed, the first people could enter detention camps by February.`\
-https://nytimes.com/2025/01/18/opinion/immigration-trump-ww2-japanese-internment.html
-
-**The Delights and the Challenges of Expat Life**\
-`Readers discuss a guest essay by Paul Theroux about his experiences as an American expat.`\
-https://nytimes.com/2025/01/18/opinion/expat-life.html
-
-**NHL predictions 4.0: New Stanley Cup favorite, Vezina sweep and tight Eastern playoff race**\
-`Past the season's midpoint, our staff's updated picks for Cup winner, dark horse, biggest disappointment, awards, playoff fields and more.`\
-https://nytimes.com/athletic/6065688/2025/01/18/nhl-stanley-cup-predictions-playoff-standings/
 
