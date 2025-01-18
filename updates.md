@@ -1,3 +1,7 @@
+**Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
+`Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
+https://nytimes.com/2025/01/18/world/middleeast/palestine-prisoners-release-israel-hamas-ceasefire.html
+
 **Trump’s Inauguration: What to Know About the Schedule**\
 `The president-elect will host a party at his golf club in Virginia on Saturday, kicking off four days of celebrations.`\
 https://nytimes.com/2025/01/18/us/politics/trump-inauguration-schedule.html
