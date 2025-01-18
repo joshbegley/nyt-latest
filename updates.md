@@ -1,3 +1,7 @@
+**George Kalinsky, 88, Madison Square Garden’s First Official Lensman, Dies**\
+`With camera in hand, he parlayed a chance encounter with Muhammad Ali into a photography career documenting the Knicks, the Rangers and Garden headliners like Elvis Presley.`\
+https://nytimes.com/2025/01/18/sports/george-kalinsky-dead.html
+
 **Frank: Liverpool ‘best team in the world’**\
 `Brentford head coach Thomas Frank has labelled Liverpool “the best team in the world” following his side’s 2-0 defeat against the Premier League leaders on Saturday.`\
 https://nytimes.com/athletic/6071834/2025/01/18/thomas-frank-brentford-liverpool/

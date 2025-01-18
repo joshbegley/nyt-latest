@@ -1,3 +1,7 @@
+**George Kalinsky, 88, Madison Square Garden’s First Official Lensman, Dies**\
+`With camera in hand, he parlayed a chance encounter with Muhammad Ali into a photography career documenting the Knicks, the Rangers and Garden headliners like Elvis Presley.`\
+https://nytimes.com/2025/01/18/sports/george-kalinsky-dead.html
+
 **Frank: Liverpool ‘best team in the world’**\
 `Brentford head coach Thomas Frank has labelled Liverpool “the best team in the world” following his side’s 2-0 defeat against the Premier League leaders on Saturday.`\
 https://nytimes.com/athletic/6071834/2025/01/18/thomas-frank-brentford-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071693/2025/01/18/panama-president-cox-fat-comment
 **Steelers shut down Bears' trade inquiry for Mike Tomlin: Source**\
 `The Steelers have rejected at least two inquiring teams, informing them of Tomlin’s no-trade clause.`\
 https://nytimes.com/athletic/6071781/2025/01/18/steelers-coach-mike-tomlin-bears-trade-request/
-
-**A Killer Was Taken Back Into Custody. Was It Because of His Drill Rap Songs?**\
-`A man convicted of murder in London was taken back into custody after a report emerged that he was anonymously making drill rap music. The victim’s family worries his music could bring him more fame.`\
-https://nytimes.com/2025/01/18/world/europe/drill-rap-ten-jake-fahri.html
 
