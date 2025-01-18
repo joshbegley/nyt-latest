@@ -1,3 +1,7 @@
+**Mark Zuckerberg’s New Bromance Is Off to a Strange Start**\
+`The standards of masculine energy have fallen.`\
+https://nytimes.com/2025/01/18/opinion/zuckerberg-masculine-energy-rogan-trump.html
+
 **In State Capitals, Republicans Propose New Limits on Transgender Identity**\
 `The new lawmaking sessions open after a campaign year in which Republicans leaned on messaging that tapped into fears about transgender issues.`\
 https://nytimes.com/2025/01/18/us/republicans-state-limits-transgender-identity.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nb
 **The Briefing: Newcastle 1 Bournemouth 4 - Winning run ended, Isak nullified, should Howe have changed it?**\
 `Newcastle's winning run came to an end and they can have few complaints - Chris Waugh analyses a first defeat in 2025`\
 https://nytimes.com/athletic/6066781/2025/01/18/newcastle-1-bournemouth-4-howe-guimaraes-isak/
-
-**Man City reach verbal agreement to sign Marmoush**\
-`Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
-https://nytimes.com/athletic/6047775/2025/01/18/omar-marmoush-transfer-manchester-city/
 
