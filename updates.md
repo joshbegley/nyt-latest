@@ -1,3 +1,15 @@
+**Pence Is Said to Be Planning to Attend Trump’s Inauguration**\
+`The relationship between President-elect Trump and his former vice president, Mike Pence, was irreparably broken when Mr. Pence refused Mr. Trump’s efforts to overturn the election.`\
+https://nytimes.com/2025/01/17/us/politics/mike-pence-trump-inauguration.html
+
+**Cubs' Jed Hoyer will turn his focus to a bullpen in need of a veteran**\
+`At Cubs Convention, Hoyer spoke to reporters and discussed his desire to "supplement" Chicago's roster as much as possible. `\
+https://nytimes.com/athletic/6071044/2025/01/17/chicago-cubs-jed-hoyer-bullpen-search/
+
+**Can I Go to Church When I Don’t Believe?**\
+`The magazine’s Ethicist columnist on separating belief from an appreciation of the arts and rituals produced by a religious organization.`\
+https://nytimes.com/2025/01/17/magazine/catholic-church-arts-rituals-ethics.html
+
 **Roki Sasaki signs with the Dodgers: MLB experts discuss his fit and the fallout**\
 `Sasaki announced that he would be joining the Dodgers on Friday, ending a monthlong free agency period.`\
 https://nytimes.com/athletic/6070996/2025/01/17/roki-sasaki-los-angeles-dodgers-roundtable/

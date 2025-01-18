@@ -1,3 +1,15 @@
+**Pence Is Said to Be Planning to Attend Trump’s Inauguration**\
+`The relationship between President-elect Trump and his former vice president, Mike Pence, was irreparably broken when Mr. Pence refused Mr. Trump’s efforts to overturn the election.`\
+https://nytimes.com/2025/01/17/us/politics/mike-pence-trump-inauguration.html
+
+**Cubs' Jed Hoyer will turn his focus to a bullpen in need of a veteran**\
+`At Cubs Convention, Hoyer spoke to reporters and discussed his desire to "supplement" Chicago's roster as much as possible. `\
+https://nytimes.com/athletic/6071044/2025/01/17/chicago-cubs-jed-hoyer-bullpen-search/
+
+**Can I Go to Church When I Don’t Believe?**\
+`The magazine’s Ethicist columnist on separating belief from an appreciation of the arts and rituals produced by a religious organization.`\
+https://nytimes.com/2025/01/17/magazine/catholic-church-arts-rituals-ethics.html
+
 **Roki Sasaki signs with the Dodgers: MLB experts discuss his fit and the fallout**\
 `Sasaki announced that he would be joining the Dodgers on Friday, ending a monthlong free agency period.`\
 https://nytimes.com/athletic/6070996/2025/01/17/roki-sasaki-los-angeles-dodgers-roundtable/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/17/sports/basketball/gus-williams-dead.html
 **Border Patrol sweeps in California could offer a preview of Trump’s plans.**\
 `By Steve Eder and Miriam Jordan`\
 https://nytimes.com/live/2025/01/17/us/trump-confirmation-hearings-news/border-patrol-sweeps-in-california-could-offer-a-preview-of-trumps-plans
-
-**Little-Known Intelligence Agency Outlines Limits on Spying**\
-`The move by an agency within the Department of Homeland Security was part of a broader effort by the Biden administration to strengthen oversight and set clear guidelines for handling intelligence.`\
-https://nytimes.com/2025/01/17/us/politics/homeland-security-intelligence.html
-
-**Democrats Frame Trump’s Friends as Foes**\
-`Some Democrats see Elon Musk as an ideal foil. But not everyone agrees.`\
-https://nytimes.com/2025/01/17/us/politics/democrats-frame-trumps-friends-as-foes.html
-
-**Jimmy Butler returns to Miami's lineup following 7-game suspension**\
-`Though Butler is returning to the court as his team-issued seven-game suspension ends, his dispute with the Heat remains far from resolved.`\
-https://nytimes.com/athletic/6067921/2025/01/17/jimmy-butler-heat-returns-suspended-miami-heat-denver-nuggets/
 
