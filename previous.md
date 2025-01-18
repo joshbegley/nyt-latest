@@ -1,3 +1,15 @@
+**Frank: Liverpool ‘best team in the world’**\
+`Brentford head coach Thomas Frank has labelled Liverpool “the best team in the world” following his side’s 2-0 defeat against the Premier League leaders on Saturday.`\
+https://nytimes.com/athletic/6071834/2025/01/18/thomas-frank-brentford-liverpool/
+
+**Winter Storm Expected to Bring at Least 6 Inches of Snow to the Northeast**\
+`The snow is likely to fall on Sunday from the Appalachians to New England. Some areas could see snowfall rates of one inch per hour at times.`\
+https://nytimes.com/2025/01/18/weather/winter-storm-northeast-snow.html
+
+**Man Utd exploring Malacia January loan**\
+`Manchester United are exploring a January loan move for defender Tyrell Malacia.`\
+https://nytimes.com/athletic/6054005/2025/01/18/tyrell-malacia-manchester-united-transfers/
+
 **Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
 `President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
 https://nytimes.com/2025/01/18/world/asia/bread-soup-soy-milk-south-korean-leaders-life-in-jail.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6071781/2025/01/18/steelers-coach-mike-tomlin-bears
 **A Killer Was Taken Back Into Custody. Was It Because of His Drill Rap Songs?**\
 `A man convicted of murder in London was taken back into custody after a report emerged that he was anonymously making drill rap music. The victim’s family worries his music could bring him more fame.`\
 https://nytimes.com/2025/01/18/world/europe/drill-rap-ten-jake-fahri.html
-
-**My Building Is Doing Unexplained Work. Can I Stop Paying Dues Until They Explain?**\
-`Most condo associations must provide a record of all receipts and expenses. But they also need residents’ maintenance fees to operate.`\
-https://nytimes.com/2025/01/18/realestate/condominium-maintenance-fees-construction-work.html
-
-**Amid Wildfires, a New Reality for L.A.’s Reality TV Stars**\
-`Binge-worthy guilty pleasures like “The Real Housewives of Beverly Hills” and “Selling Sunset” document luxury real estate in Los Angeles, a market that now faces an uncertain future.`\
-https://nytimes.com/2025/01/18/realestate/wildfires-reality-tv-stars.html
-
-**Saliba misses Arsenal vs Aston Villa with muscular injury**\
-`Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
-https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
 

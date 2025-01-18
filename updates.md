@@ -1,3 +1,15 @@
+**Frank: Liverpool ‘best team in the world’**\
+`Brentford head coach Thomas Frank has labelled Liverpool “the best team in the world” following his side’s 2-0 defeat against the Premier League leaders on Saturday.`\
+https://nytimes.com/athletic/6071834/2025/01/18/thomas-frank-brentford-liverpool/
+
+**Winter Storm Expected to Bring at Least 6 Inches of Snow to the Northeast**\
+`The snow is likely to fall on Sunday from the Appalachians to New England. Some areas could see snowfall rates of one inch per hour at times.`\
+https://nytimes.com/2025/01/18/weather/winter-storm-northeast-snow.html
+
+**Man Utd exploring Malacia January loan**\
+`Manchester United are exploring a January loan move for defender Tyrell Malacia.`\
+https://nytimes.com/athletic/6054005/2025/01/18/tyrell-malacia-manchester-united-transfers/
+
 **Saliba misses Arsenal vs Aston Villa with muscular injury**\
 `Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
 https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
