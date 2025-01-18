@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6054005/2025/01/18/tyrell-malacia-manchester-united
 
 **Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
 `President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
-https://nytimes.com/2025/01/18/world/asia/bread-soup-soy-milk-south-korean-leaders-life-in-jail.html
+https://nytimes.com/2025/01/18/world/asia/south-korea-president-yoon-jail-life.html
 
 **Italian Reporter’s Ordeal in Iranian Prison: ‘I Was Trapped in a Game’**\
 `Cecilia Sala found herself in the middle of Iran’s hostage diplomacy.`\
