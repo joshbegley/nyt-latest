@@ -1,3 +1,7 @@
+**Australian Open week one: What we learned about Swiatek, Alcaraz, and tennis being stuffy**\
+`Two of the best players fly under the radar, conditions flummox players and Danielle Collins shakes things up.`\
+https://nytimes.com/athletic/6071140/2025/01/18/australian-open-recap-analysis-swiatek-alcaraz-collins-crowds/
+
 **Trump’s Inauguration: What to Know About the Schedule**\
 `The president-elect will host a party at his golf club in Virginia on Saturday, kicking off four days of celebrations.`\
 https://nytimes.com/2025/01/18/us/politics/trump-inauguration-schedule.html
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nb
 **The Briefing: Newcastle 1 Bournemouth 4 - Winning run ended, Isak nullified, should Howe have changed it?**\
 `Newcastle's winning run came to an end and they can have few complaints - Chris Waugh analyses a first defeat in 2025`\
 https://nytimes.com/athletic/6066781/2025/01/18/newcastle-1-bournemouth-4-howe-guimaraes-isak/
+
+**Man City reach verbal agreement to sign Marmoush**\
+`Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
+https://nytimes.com/athletic/6047775/2025/01/18/omar-marmoush-transfer-manchester-city/
 
 **Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
 `Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6067330/2025/01/18/lamar-jackson-josh-allen-quiz/
 **A Vibe Shift at Davos**\
 `For years, C.E.O.s have used the annual gathering at the World Economic Forum to emphasize commitments to D.E.I., E.S.G. and globalization. Now the politics have changed.`\
 https://nytimes.com/2025/01/18/business/dealbook/a-vibe-shift-at-davos.html
-
-**Lonzo, LaMelo Ball match up for first time in three years with awe for each other**\
-`Friday's game was only the fourth meeting between the Ball brothers due to injuries to both players. The head-to-head series is tied, 2-2.`\
-https://nytimes.com/athletic/6071293/2025/01/18/lonzo-lamelo-ball-head-to-head-bulls-hornets-nba/
-
-**Alaba could make Madrid return against Las Palmas, says Ancelotti**\
-`David Alaba could make his first Real Madrid appearance in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
-https://nytimes.com/athletic/6071477/2025/01/18/madrid-david-alaba-injury-return/
 

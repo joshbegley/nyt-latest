@@ -1,3 +1,11 @@
+**Australian Open week one: What we learned about Swiatek, Alcaraz, and tennis being stuffy**\
+`Two of the best players fly under the radar, conditions flummox players and Danielle Collins shakes things up.`\
+https://nytimes.com/athletic/6071140/2025/01/18/australian-open-recap-analysis-swiatek-alcaraz-collins-crowds/
+
+**Man City reach verbal agreement to sign Marmoush**\
+`Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
+https://nytimes.com/athletic/6047775/2025/01/18/omar-marmoush-transfer-manchester-city/
+
 **Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
 `Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
 https://nytimes.com/2025/01/18/world/middleeast/palestine-prisoners-release-israel-hamas-ceasefire.html
