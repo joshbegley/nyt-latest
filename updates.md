@@ -1,3 +1,15 @@
+**Expect the Ravens to go heavy against a Bills defense known to play small**\
+`Buffalo likes to line up in its nickel personnel on defense, which should give Baltimore an advantage in the run game with Derrick Henry.`\
+https://nytimes.com/athletic/6070889/2025/01/18/ravens-bills-afc-divisional-round/
+
+**Curtis Yarvin Says Democracy Is Done. Powerful Conservatives Are Listening.**\
+`The once-fringe writer has long argued for an American monarchy. His ideas have found an audience in the incoming administration and Silicon Valley.`\
+https://nytimes.com/2025/01/18/magazine/curtis-yarvin-interview.html
+
+**Liverpool Women manager calls on PGMOL to protect Smith**\
+`Liverpool Women manager Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
+https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
+
 **Liverpool Women's Beard calls on PGMOL to protect Smith**\
 `Liverpool Women head coach Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
 https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
