@@ -1,3 +1,7 @@
+**A goalie goal, missed opportunities and another lousy Sabres loss: 3 takeaways**\
+`With a home record that's among the worst in the NHL, Buffalo found another way to lose against Pittsburgh.`\
+https://nytimes.com/athletic/6071340/2025/01/18/sabres-lose-penguins-takeaways/
+
 **The 24 Hours When L.A. Went Up in Flames**\
 `Poor planning, delayed evacuations, strained resources and treacherous conditions allowed firestorms to overrun a region that thought it knew how to fight wildfires.`\
 https://nytimes.com/interactive/2025/01/18/us/los-angeles-fires-palisades-eaton-timeline.html

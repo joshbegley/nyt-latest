@@ -1,3 +1,7 @@
+**A goalie goal, missed opportunities and another lousy Sabres loss: 3 takeaways**\
+`With a home record that's among the worst in the NHL, Buffalo found another way to lose against Pittsburgh.`\
+https://nytimes.com/athletic/6071340/2025/01/18/sabres-lose-penguins-takeaways/
+
 **The 24 Hours When L.A. Went Up in Flames**\
 `Poor planning, delayed evacuations, strained resources and treacherous conditions allowed firestorms to overrun a region that thought it knew how to fight wildfires.`\
 https://nytimes.com/interactive/2025/01/18/us/los-angeles-fires-palisades-eaton-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066338/2025/01/18/chelsea-champions-league-home-aw
 **Consistency, solidity and ruthlessness - Why Arsenal hired Renee Slegers as their new head coach**\
 `Slegers impressed the hierarchy and built a good bond with the players - the results then followed`\
 https://nytimes.com/athletic/6066264/2025/01/18/why-arsenal-hired-renee-slegers-as-head-coach/
-
-**Finding magic in the FA Youth Cup - the students who took on Chelsea's stars of the future**\
-`Merstham U18s are students from London schools 12 miles apart. The Athletic went behind the scenes for the biggest game of their lives`\
-https://nytimes.com/athletic/6069580/2025/01/18/fa-youth-cup-merstham-chelsea/
 
