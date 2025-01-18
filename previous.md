@@ -1,3 +1,7 @@
+**Texas, head coach Steve Sarkisian agree to contract extension**\
+`Sarkisian, who is 38-17 in four years at Texas, led the Longhorns to the College Football Playoff semifinals for the second year in a row.`\
+https://nytimes.com/athletic/6072024/2025/01/18/texas-steve-sarkisian-contract-extension/
+
 **'He's got an engine I've never seen before': Travis Konecny continues emergence as a leader**\
 `Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
 `\
@@ -30,8 +34,4 @@ https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html
 **Fashion’s TikTok Conundrum**\
 `At the men’s shows in Europe, Ralph Lauren and Brunello Cucinelli brushed off virality in favor of reliable classics, while Philipp Plein had a bit of an identity crisis.`\
 https://nytimes.com/2025/01/18/style/mens-fashion-milan-ralph-lauren-cucinelli.html
-
-**Losing Homes, and the Dream of One**\
-`Emily Baumgaertner, a national health reporter who lives in Los Angeles, reflects on covering the fires while trying to buy a home.`\
-https://nytimes.com/2025/01/18/us/wildfires-home-dreams.html
 
