@@ -23,7 +23,7 @@ https://nytimes.com/2025/01/18/business/dealbook/a-vibe-shift-at-davos.html
 https://nytimes.com/athletic/6071293/2025/01/18/lonzo-lamelo-ball-head-to-head-bulls-hornets-nba/
 
 **Alaba could make Madrid return against Las Palmas, says Ancelotti**\
-`David Alaba is set to feature for Real Madrid for the first time in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
+`David Alaba could make his first Real Madrid appearance in over a year after recovering from an anterior cruciate ligament (ACL) rupture.`\
 https://nytimes.com/athletic/6071477/2025/01/18/madrid-david-alaba-injury-return/
 
 **Trump Brings a Chill to Washington**\
