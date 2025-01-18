@@ -1,3 +1,23 @@
+**Hit by Wildfire? Here’s How to Deal With Insurers and FEMA.**\
+`You don’t need to settle for what your insurance company or the government first offers. And you don’t have to fight alone.`\
+https://nytimes.com/2025/01/18/climate/fires-insurance-fema.html
+
+**How the Oct. 7 Attacks Transformed the Middle East**\
+`With an Israel-Hamas cease-fire set to begin, the shock waves from their war have reshaped the region in unexpected ways.`\
+https://nytimes.com/2025/01/18/world/europe/israel-hamas-oct-7.html
+
+**Restaurant Workers Bring Unique Skills to the L.A. Fire Crisis**\
+`Even as it faces economic setbacks of its own, the hospitality industry is stepping up to feed emergency workers and evacuees.`\
+https://nytimes.com/2025/01/18/dining/los-angeles-wildfires-restaurants.html
+
+**An Earthling Reflects on a Wartime Salesman’s Bold Act of Resistance**\
+`The French photographer Raoul Minot took clandestine photos of Nazi-occupied Paris. Now, his images serve as a reminder of the power of art.`\
+https://nytimes.com/2025/01/18/arts/earthling-raoul-minot-nazi-paris.html
+
+**Under Trump’s Big Tent, Republicans Are Starting to Clash**\
+`Donald J. Trump won his battle with establishment Republicans. Now, it’s disputes over immigration, taxes and foreign policy that will test his party’s unity.`\
+https://nytimes.com/2025/01/18/us/politics/donald-trump-inauguration-republican-party.html
+
 **Liverpool Women's Beard calls on PGMOL to protect Smith**\
 `Liverpool Women head coach Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; and has called on Professional Game Match Officials Limited (PGMOL) to protect her.`\
 https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/18/style/george-washington-inauguration-coat.html
 **When the Retirement Community Goes Bankrupt**\
 `It doesn’t happen often. But when it does, some residents risk losing everything.`\
 https://nytimes.com/2025/01/18/health/retirement-community-bankruptcy.html
-
-**Even Before TikTok’s Troubles, Chinese Companies Were Wary of Washington**\
-`Start-ups with Chinese ties have found it increasingly difficult to do business and list shares in the United States.`\
-https://nytimes.com/2025/01/18/business/tiktok-shein-grindr-china-ipo.html
-
-**Support for Trump’s Policies Exceeds Support for Trump**\
-`A new poll found the public is sympathetic to the president-elect’s plans to deport migrants and reduce America’s presence overseas.`\
-https://nytimes.com/2025/01/18/us/politics/trump-policies-immigration-tariffs-economy.html
-
-**What Is So Irresistible About Wearing Toast?**\
-`A low-key brand, founded by archaeologists in Wales, has quietly expanded in New York.`\
-https://nytimes.com/2025/01/18/style/what-is-so-irresistible-about-wearing-toast.html
-
-**5 Key Changes That Will Affect Your Money in 2025**\
-`This year, older workers will have ways to save more for retirement, spend less on medicine and see other ways to improve their finances.`\
-https://nytimes.com/2025/01/18/business/retirement-money-2025.html
-
-**Why the Supreme Court Upheld a Ban on TikTok**\
-`A unanimous Supreme Court on Friday upheld a law that effectively bans the wildly popular app TikTok in the United States starting on Sunday, Jan. 19. Adam Liptak, who covers the Supreme Court for The New York Times, explains how free speech and national security collided in this decision.`\
-https://nytimes.com/video/us/politics/100000009928246/why-the-supreme-court-upheld-a-ban-on-tiktok.html
 
