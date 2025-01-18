@@ -1,3 +1,11 @@
+**How much are Playoff experiences worth to Notre Dame fans? ‘I didn’t debate anything’**\
+`In a college football season like no other, these Notre Dame fans couldn't help but commit to the full Playoff journey.`\
+https://nytimes.com/athletic/6070592/2025/01/18/notre-dame-fans-playoff-national-championship-tickets/
+
+**Frankfurt CEO confirms interest in signing Arsenal defender Heaven**\
+`Eintracht Frankfurt’s CEO Markus Krosche has confirmed their interest in signing 18-year-old Arsenal centre-back Ayden Heaven.`\
+https://nytimes.com/athletic/6071439/2025/01/18/eintracht-frankfurt-heaven-arsenal/
+
 **Expect the Ravens to go heavy against a Bills defense known to play small**\
 `Buffalo likes to line up in its nickel personnel on defense, which should give Baltimore an advantage in the run game with Derrick Henry.`\
 https://nytimes.com/athletic/6070889/2025/01/18/ravens-bills-afc-divisional-round/

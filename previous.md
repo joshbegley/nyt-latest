@@ -1,3 +1,11 @@
+**How much are Playoff experiences worth to Notre Dame fans? ‘I didn’t debate anything’**\
+`In a college football season like no other, these Notre Dame fans couldn't help but commit to the full Playoff journey.`\
+https://nytimes.com/athletic/6070592/2025/01/18/notre-dame-fans-playoff-national-championship-tickets/
+
+**Frankfurt CEO confirms interest in signing Arsenal defender Heaven**\
+`Eintracht Frankfurt’s CEO Markus Krosche has confirmed their interest in signing 18-year-old Arsenal centre-back Ayden Heaven.`\
+https://nytimes.com/athletic/6071439/2025/01/18/eintracht-frankfurt-heaven-arsenal/
+
 **Expect the Ravens to go heavy against a Bills defense known to play small**\
 `Buffalo likes to line up in its nickel personnel on defense, which should give Baltimore an advantage in the run game with Derrick Henry.`\
 https://nytimes.com/athletic/6070889/2025/01/18/ravens-bills-afc-divisional-round/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/18/us/politics/donald-trump-inauguration-republican-
 **Liverpool Women manager calls on PGMOL to protect Smith**\
 `Liverpool Women manager Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
 https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
-
-**Trump Vowed a Crackdown on the Mexican Border, but It’s Already Quiet**\
-`Ahead of the inauguration, migrant shelters south of the Rio Grande are far from full, a reflection of the tougher measures imposed on both sides of the border.`\
-https://nytimes.com/2025/01/18/world/americas/migrants-trump-inauguration-border.html
-
-**What if No One Misses TikTok?**\
-`TikTok’s cultural footprint in America is huge. Why is its potential disappearance being met with a shrug?`\
-https://nytimes.com/2025/01/18/technology/what-if-no-one-misses-tiktok.html
 
