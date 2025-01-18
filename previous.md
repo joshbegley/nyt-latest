@@ -1,3 +1,7 @@
+**John Mozeliak on Cardinals and trading Nolan Arenado: 'It's a top priority'**\
+`The Cardinals remain hindered by Alex Bregman's free-agent market and Arenado's no-trade clause.`\
+https://nytimes.com/athletic/6071825/2025/01/18/cardinals-nolan-arenado-trade-priority/
+
 **Dick vitale's return suffers another setback, not related to cancer scares**\
 `Vitale was slated to provide color commentary for Duke vs. Wake Forest on Jan. 25 in what would have been his first game since 2023`\
 https://nytimes.com/athletic/6071998/2025/01/18/dick-vitale-accident-duke-wake-forest/
@@ -28,10 +32,6 @@ https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
 https://nytimes.com/2025/01/18/us/politics/who-is-coming-trump-inauguration.html
 
 **‘Angry and Frustrated’: Thousands Protest Trump Days Before His Inauguration**\
-`Voters nervous about the return of a Trump presidency demonstrated in Washington, D.C., New York and other cities to show support for women’s rights, racial justice and other causes.`\
+`People nervous about the return of a Trump presidency demonstrated in Washington, D.C., New York and other cities to show support for women’s rights, racial justice and other causes.`\
 https://nytimes.com/2025/01/18/us/trump-protests-inauguration.html
-
-**To Be From L.A. Is to Know Its Twin Temptations, Beauty and Danger**\
-`Somini Sengupta, a Times climate reporter, on the city, its mythology, and a reckoning with disaster.`\
-https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html
 
