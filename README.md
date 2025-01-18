@@ -1,3 +1,7 @@
+**Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
+`President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
+https://nytimes.com/2025/01/18/world/asia/bread-soup-soy-milk-south-korean-leaders-life-in-jail.html
+
 **Italian Reporter’s Ordeal in Iranian Prison: ‘I Was Trapped in a Game’**\
 `Cecilia Sala found herself in the middle of Iran’s hostage diplomacy.`\
 https://nytimes.com/2025/01/18/world/middleeast/cecilia-sala-italy-iran-revolutionary-guards.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/realestate/wildfires-reality-tv-stars.html
 **Saliba misses Arsenal vs Aston Villa with muscular injury**\
 `Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
 https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
-
-**Tom Ricketts on state of the Cubs: Payroll, Jed Hoyer, Sammy Sosa, the Kyle Tucker trade, and more**\
-`RIcketts on Sosa reunion: "We can just accept the fact that there were a lot of guys doing things that the league was discouraging."`\
-https://nytimes.com/athletic/6071307/2025/01/18/tom-ricketts-state-of-the-cubs/
 
