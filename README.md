@@ -1,3 +1,7 @@
+**Celtics rediscover the joy of winning as starting 5 comes together against Magic**\
+`After going 7-7 recently, Boston snapped back following what Kristaps Porziņģis called an "unacceptable" performance against Toronto.`\
+https://nytimes.com/athletic/6071309/2025/01/18/celtics-defeat-magic/
+
 **Taylor Fritz out of Australian Open as Gael Monfils rolls back the years in Melbourne**\
 `38-year-old Gael Monfils continued his vintage run at the Australian Open by knocking out the No. 4 seed.`\
 https://nytimes.com/athletic/6071281/2025/01/18/taylor-fritz-gael-monfils-australian-open-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069211/2025/01/18/what-are-footballs-longest-contr
 **What's going on with Ansu Fati and what does his future look like?**\
 `The young forward has started just once this season and is now being left out of Barca's matchday squads despite being fit`\
 https://nytimes.com/athletic/6069910/2025/01/18/what-does-ansu-fatis-future-look-like/
-
-**Roki Sasaki's addition further separates the Dodgers from rest of the league: Law**\
-`Sasaki's addition widens the gap between the Dodgers and the rest of the league. It also deepens a rotation that struggled with injury.`\
-https://nytimes.com/athletic/6071216/2025/01/18/roki-sasaki-dodgers-signing-analysis/
 
