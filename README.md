@@ -1,3 +1,7 @@
+**In State Capitals, Republicans Propose New Limits on Transgender Identity**\
+`The new lawmaking sessions open after a campaign year in which Republicans leaned on messaging that tapped into fears about transgender issues.`\
+https://nytimes.com/2025/01/18/us/republicans-state-limits-transgender-identity.html
+
 **USWNT goalkeeper Alyssa Naeher named U.S. Soccer Female Player of the Year**\
 `Naeher is only the second goalkeeper to win the award in its 40 year history.`\
 https://nytimes.com/athletic/6071634/2025/01/18/alyssa-naeher-us-soccer-female-player-year/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066781/2025/01/18/newcastle-1-bournemouth-4-howe-g
 **Man City reach verbal agreement to sign Marmoush**\
 `Manchester City have reached a verbal agreement with Eintracht Frankfurt for the transfer of forward Omar Marmoush.`\
 https://nytimes.com/athletic/6047775/2025/01/18/omar-marmoush-transfer-manchester-city/
-
-**Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
-`Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
-https://nytimes.com/2025/01/18/world/middleeast/palestine-prisoners-release-israel-hamas-ceasefire.html
 
