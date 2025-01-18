@@ -1,3 +1,7 @@
+**Creighton upsets No. 14 UConn, snaps Huskies’ 28-game home win streak**\
+`It was another moment of mortality for the Huskies (13-5, 5-2 Big East), who suffered their second Big East loss in the past three games.`\
+https://nytimes.com/athletic/6071854/2025/01/18/creighton-uconn-big-east-upset/
+
 **The Briefing: Arsenal 2 Aston Villa 2 - Late VAR anguish as Arteta's side let two-goal lead slip**\
 `Analysis of the main talking points from Saturday's Premier League game at the Emirates Stadium`\
 https://nytimes.com/athletic/6069638/2025/01/18/arsenal-aston-villa-result-analysis-premier-league/
