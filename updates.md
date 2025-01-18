@@ -1,3 +1,7 @@
+**Becerra, With No Regrets, Defends Vaccine Mandates and Misinformation Fight**\
+`In a wide-ranging interview, Xavier Becerra, President Biden’s health secretary, defended his tenure and hinted that he might run for governor of California.`\
+https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
+
 **Trump Begins Selling New Crypto Token, Raising Ethical Concerns**\
 `The president-elect and his family have a direct and potentially lucrative stake in the sale of a cryptocurrency product that surged in value in the hours after going on sale, days before his inauguration.`\
 https://nytimes.com/2025/01/18/us/politics/trump-meme-coin-crypto.html
