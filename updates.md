@@ -1,3 +1,7 @@
+**Trump Begins Selling New Crypto Token, Raising Ethical Concerns**\
+`The president-elect and his family have a direct and potentially lucrative stake in the sale of a cryptocurrency product that surged in value in the hours after going on sale, days before his inauguration.`\
+https://nytimes.com/2025/01/18/us/politics/trump-meme-coin-crypto.html
+
 **Trump’s Unlikely Return To Power**\
 `Donald J.`\
 https://nytimes.com/video/us/politics/100000009933010/how-donald-trump-took-back-power.html
