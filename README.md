@@ -1,3 +1,7 @@
+**The Briefing: Brentford 0 Liverpool 0 - Has Nunez just given the title race a decisive turn?**\
+`Analysing the big talking points from the Premier League clash at the Gtech Community Stadium`\
+https://nytimes.com/athletic/6066782/2025/01/18/brentford-liverpool-premier-league-result-analysis/
+
 **Mark Zuckerberg’s New Bromance Is Off to a Strange Start**\
 `The standards of masculine energy have fallen.`\
 https://nytimes.com/2025/01/18/opinion/zuckerberg-masculine-energy-rogan-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/us/politics/trump-inauguration-schedule.html
 **Timberwolves are 'still a work in progress' at season's midpoint**\
 `There are many reasons to blame for the uninspiring start to the season and many reasons to believe that it can turn around.`\
 https://nytimes.com/athletic/6070839/2025/01/18/timberwolves-midseason-report-nba/
-
-**The Briefing: Newcastle 1 Bournemouth 4 - Winning run ended, Isak nullified, should Howe have changed it?**\
-`Newcastle's winning run came to an end and they can have few complaints - Chris Waugh analyses a first defeat in 2025`\
-https://nytimes.com/athletic/6066781/2025/01/18/newcastle-1-bournemouth-4-howe-guimaraes-isak/
 
