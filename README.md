@@ -1,3 +1,7 @@
+**Becerra, With No Regrets, Defends Vaccine Mandates and Misinformation Fight**\
+`In a wide-ranging interview, Xavier Becerra, President Biden’s health secretary, defended his tenure and hinted that he might run for governor of California.`\
+https://nytimes.com/2025/01/18/us/politics/xavier-becerra-health.html
+
 **Trump’s Unlikely Return To Power**\
 `Donald J.`\
 https://nytimes.com/video/us/politics/100000009933010/how-donald-trump-took-back-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/world/middleeast/iran-judges-killed-supreme-court
 **As the Living Fled, a Race to Save the Dead at an Altadena Cemetery**\
 `Workers at the Mountain View cemetery had unique concerns the night the Eaton fire broke out. The 55-acre expanse may also have spared some homes from the flames.`\
 https://nytimes.com/2025/01/18/us/altadena-eaton-fire-cemetery.html
-
-**Thousands of Capital One Customers Are Locked Out of Accounts for Days**\
-`The company said a technical issue with a third-party vendor was to blame for a disruption with deposits and payment processing that stretched into the weekend.`\
-https://nytimes.com/2025/01/18/business/capital-one-outage-direct-deposits.html
 
