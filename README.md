@@ -1,3 +1,7 @@
+**Collins: Australian Open controversy has sparked 'six sponsorship opportunities'**\
+`Danielle Collins has hit back at criticism of her goading of the Australian Open crowd, saying: “I don&#8217;t care what some guy living in his basement is writing on the internet.`\
+https://nytimes.com/athletic/6071531/2025/01/18/danielle-collins-australian-open-controversy-sponsorship/
+
 **As deadly strikes continue, Gazans anticipate first moments of peace.**\
 `By Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/as-deadly-strikes-continue-gazans-anticipate-first-moments-of-peace
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/opinion/2024-child-mortality-poverty-growth.html
 **On Its 10th Anniversary, ‘Hamilton’ Looks Heartbreakingly Different**\
 `It’s a glimpse at a long-lost era, but not the one the characters sing about.`\
 https://nytimes.com/2025/01/18/opinion/hamilton-musical-history.html
-
-**Losing Everything to Fire Changed How I Lived**\
-`I realized I could live more simply, as I’d always wished to do.`\
-https://nytimes.com/2025/01/18/opinion/california-fire-lost-home.html
 
