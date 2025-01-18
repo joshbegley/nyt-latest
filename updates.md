@@ -1,3 +1,7 @@
+**A Big, Bold TikTok Ban**\
+`Shutting down the popular app is audacious. It’s also a sign that  officials really believe the alternative is unacceptable.`\
+https://nytimes.com/2025/01/18/briefing/a-big-bold-tiktok-ban.html
+
 **'It's good to have that in D.C.': Commanders' celebrity fans can cheer again with both eyes open**\
 `Commanders fans, including the ones who are more well-known than most, are giddy about their team's success and bright future.`\
 https://nytimes.com/athletic/6067253/2025/01/18/commanders-celebrity-fans-kevin-durant/
