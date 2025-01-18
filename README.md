@@ -1,3 +1,7 @@
+**How did Unrivaled do on opening night? Did the new 3x3 league perform in the arena and on TV?**\
+`The new league looked sharp on television and in person. Our experts share their first impressions.`\
+https://nytimes.com/athletic/6071162/2025/01/17/unrivaled-debut-womens-basketball-league/
+
 **Penguins goalie Nedeljkovic makes history with goal, assist in single game**\
 `Nedeljkovic scored into an empty net at 17:18 of the third period after the Sabres pulled their goalie for an extra skater.`\
 https://nytimes.com/athletic/6071187/2025/01/17/penguins-goalie-goal-alex-nedeljkovic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/17/pageoneplus/corrections-jan-18-2025.html
 **Mozambique’s Ex-Finance Minister Sentenced to Prison Over ‘Tuna Affair’**\
 `Manuel Chang will spend eight and a half years in prison for taking about $7 million in bribes and kickbacks in a loan scandal that sent the country’s economy into a crisis.`\
 https://nytimes.com/2025/01/17/nyregion/manuel-chang-mozambique-tuna.html
-
-**Braves takeaways: Teen throws 102 mph, Charlie Morton on his exit, and more**\
-`Raudy Reyes, signed at 16 out of the Dominican Republic, is "an intimidating young man, for sure."`\
-https://nytimes.com/athletic/6071075/2025/01/17/braves-takeaways-teen-throws-102-mph-charlie-morton-on-his-exit-and-more/
 
