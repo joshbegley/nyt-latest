@@ -1,3 +1,15 @@
+**Messi the latest star to headline in Vegas, now a sporting destination**\
+`Once rejected by major sports leagues, Las Vegas is now the place to be for big events`\
+https://nytimes.com/athletic/6068014/2025/01/18/lionel-messi-vegas-sports/
+
+**Will Cuomo Run for Mayor? Racial Politics Complicate His Decision.**\
+`An ill-fated run against a Black opponent nearly ended the career of Andrew Cuomo. As he weighs challenging Mayor Eric Adams, he cannot afford a repeat.`\
+https://nytimes.com/2025/01/18/nyregion/andrew-cuomo-mayor-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/18/crosswords/spelling-bee-forum.html
+
 **Latest updates on the cease-fire deal.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/latest-updates-on-the-cease-fire-deal
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6071309/2025/01/18/celtics-defeat-magic/
 **Taylor Fritz out of Australian Open as Gael Monfils rolls back the years in Melbourne**\
 `38-year-old Gael Monfils continued his vintage run at the Australian Open by knocking out the No. 4 seed.`\
 https://nytimes.com/athletic/6071281/2025/01/18/taylor-fritz-gael-monfils-australian-open-result-analysis/
-
-**Ignored by Farke, heading to Hull - does Gelhardt have a future at Leeds?**\
-`The diminutive striker made a flying start at Elland Road but has barely been seen under Daniel Farke - will Hull loan ignite his career?`\
-https://nytimes.com/athletic/6070256/2025/01/18/joe-gelhardt-leeds-united-hull-city-loan/
-
-**Whisper it, but do Arsenal have an easier run-in than Liverpool?**\
-`The Athletic has analysed the remaining fixtures to determine how Liverpool and Arsenal's compare in terms of difficulty...`\
-https://nytimes.com/athletic/6069204/2025/01/18/arsenal-liverpool-premier-league-run-in/
-
-**How Sels has 'solved' Nottingham Forest's problem position**\
-`Unheralded on signing a year ago, Sels has been superb this season. So how has he turned Forest's biggest question mark into a strength?`\
-https://nytimes.com/athletic/6067111/2025/01/18/sels-nottingham-forest-problem-position/
 
