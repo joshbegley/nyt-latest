@@ -1,3 +1,11 @@
+**Expect the Ravens to go heavy against a Bills defense known to play small**\
+`Buffalo likes to line up in its nickel personnel on defense, which should give Baltimore an advantage in the run game with Derrick Henry.`\
+https://nytimes.com/athletic/6070889/2025/01/18/ravens-bills-afc-divisional-round/
+
+**Curtis Yarvin Says Democracy Is Done. Powerful Conservatives Are Listening.**\
+`The once-fringe writer has long argued for an American monarchy. His ideas have found an audience in the incoming administration and Silicon Valley.`\
+https://nytimes.com/2025/01/18/magazine/curtis-yarvin-interview.html
+
 **Hit by Wildfire? Here’s How to Deal With Insurers and FEMA.**\
 `You don’t need to settle for what your insurance company or the government first offers. And you don’t have to fight alone.`\
 https://nytimes.com/2025/01/18/climate/fires-insurance-fema.html
@@ -18,8 +26,8 @@ https://nytimes.com/2025/01/18/arts/earthling-raoul-minot-nazi-paris.html
 `Donald J. Trump won his battle with establishment Republicans. Now, it’s disputes over immigration, taxes and foreign policy that will test his party’s unity.`\
 https://nytimes.com/2025/01/18/us/politics/donald-trump-inauguration-republican-party.html
 
-**Liverpool Women's Beard calls on PGMOL to protect Smith**\
-`Liverpool Women head coach Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
+**Liverpool Women manager calls on PGMOL to protect Smith**\
+`Liverpool Women manager Matt Beard says striker Olivia Smith is at risk of getting a &#8220;serious injury&#8221; unless more is done to protect her.`\
 https://nytimes.com/athletic/6070937/2025/01/18/liverpool-women-olivia-smith/
 
 **Trump Vowed a Crackdown on the Mexican Border, but It’s Already Quiet**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/18/world/americas/migrants-trump-inauguration-border
 **What if No One Misses TikTok?**\
 `TikTok’s cultural footprint in America is huge. Why is its potential disappearance being met with a shrug?`\
 https://nytimes.com/2025/01/18/technology/what-if-no-one-misses-tiktok.html
-
-**A Simple Brown Coat That Set the Tone for the U.S. Presidency**\
-`For a limited time, George Washington’s inaugural coat, which distanced his office from the military and from European royalty, will be on display at Mount Vernon.`\
-https://nytimes.com/2025/01/18/style/george-washington-inauguration-coat.html
-
-**When the Retirement Community Goes Bankrupt**\
-`It doesn’t happen often. But when it does, some residents risk losing everything.`\
-https://nytimes.com/2025/01/18/health/retirement-community-bankruptcy.html
 
