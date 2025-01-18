@@ -1,3 +1,11 @@
+**Penguins goalie Nedeljkovic makes history with goal, assist in single game**\
+`Nedeljkovic scored into an empty net at 17:18 of the third period after the Sabres pulled their goalie for an extra skater.`\
+https://nytimes.com/athletic/6071187/2025/01/17/penguins-goalie-goal-alex-nedeljkovic/
+
+**Wisconsin cornerback leaves for Miami without entering transfer portal**\
+`The NCAA requires schools to adhere to a player’s transfer request, but Lucas' name never appeared in the portal.`\
+https://nytimes.com/athletic/6071080/2025/01/17/xavier-lucas-transfer-portal-miami-wisconsin/
+
 **TikTok to ‘Go Dark’ on Sunday for Its 170 Million American Users**\
 `The Chinese-owned company said it will cut off its services unless the U.S. assures Apple, Google and other companies that they will not be punished for hosting and distributing TikTok.`\
 https://nytimes.com/2025/01/17/technology/17tiktok-goes-dark-sunday-apple-google.html
