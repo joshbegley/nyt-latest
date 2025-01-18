@@ -1,3 +1,7 @@
+**In State Capitals, Republicans Propose New Limits on Transgender Identity**\
+`The new lawmaking sessions open after a campaign year in which Republicans leaned on messaging that tapped into fears about transgender issues.`\
+https://nytimes.com/2025/01/18/us/republicans-state-limits-transgender-identity.html
+
 **USWNT goalkeeper Alyssa Naeher named U.S. Soccer Female Player of the Year**\
 `Naeher is only the second goalkeeper to win the award in its 40 year history.`\
 https://nytimes.com/athletic/6071634/2025/01/18/alyssa-naeher-us-soccer-female-player-year/
