@@ -1,3 +1,11 @@
+**Man Utd exploring Malacia January loan**\
+`Manchester United are exploring a January loan move for defender Tyrell Malacia.`\
+https://nytimes.com/athletic/6054005/2025/01/18/tyrell-malacia-manchester-united-transfers/
+
+**Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
+`President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
+https://nytimes.com/2025/01/18/world/asia/bread-soup-soy-milk-south-korean-leaders-life-in-jail.html
+
 **Italian Reporter’s Ordeal in Iranian Prison: ‘I Was Trapped in a Game’**\
 `Cecilia Sala found herself in the middle of Iran’s hostage diplomacy.`\
 https://nytimes.com/2025/01/18/world/middleeast/cecilia-sala-italy-iran-revolutionary-guards.html
