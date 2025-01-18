@@ -1,3 +1,7 @@
+**Trump’s Return Has Unnerved World Leaders. But Not India.**\
+`An upward trajectory in relations is “almost inevitable,” the U.S. ambassador, Eric Garcetti, said in an interview before leaving his post.`\
+https://nytimes.com/2025/01/18/world/asia/india-eric-garcetti-interview.html
+
 **Creighton upsets No. 14 UConn, snaps Huskies’ 28-game home win streak**\
 `It was another moment of mortality for the Huskies (13-5, 5-2 Big East), who suffered their second Big East loss in the past three games.`\
 https://nytimes.com/athletic/6071854/2025/01/18/creighton-uconn-big-east-upset/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6054005/2025/01/18/tyrell-malacia-manchester-united
 **Bread, Soup, Soy Milk: South Korean Leader’s Life in Jail**\
 `President Yoon Suk Yeol, a former prosecutor, used to put people in jail. Now, after his formal arrest, he himself is in a cell, alone.`\
 https://nytimes.com/2025/01/18/world/asia/south-korea-president-yoon-jail-life.html
-
-**Italian Reporter’s Ordeal in Iranian Prison: ‘I Was Trapped in a Game’**\
-`Cecilia Sala found herself in the middle of Iran’s hostage diplomacy.`\
-https://nytimes.com/2025/01/18/world/middleeast/cecilia-sala-italy-iran-revolutionary-guards.html
 
