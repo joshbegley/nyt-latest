@@ -1,3 +1,11 @@
+**Roki Sasaki announces he's going to the Dodgers: Where do the Padres turn?**\
+`With ownership turmoil and no offseason additions, the Padres must figure out how to contend without the Japanese phenom they coveted.`\
+https://nytimes.com/athletic/6069906/2025/01/17/padres-roki-sasaki-future-transactions/
+
+**Jimmy Butler returns to Miami's lineup following 7-game suspension**\
+`Though Butler is returning to the court as his team-issued seven-game suspension ends, his dispute with the Heat remains far from resolved.`\
+https://nytimes.com/athletic/6067921/2025/01/17/jimmy-butler-heat-returns-suspended-miami-heat-denver-nuggets/
+
 **Overtures to Trump Put Mayor Adams on a Political Tightrope**\
 `Mayor Eric Adams said that a meeting with President-elect Donald J. Trump was about New York City’s future. Each man has his own reasons to forge close ties.`\
 https://nytimes.com/2025/01/17/nyregion/adams-trump-pardon.html

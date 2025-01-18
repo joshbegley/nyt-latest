@@ -1,3 +1,7 @@
+**Roki Sasaki announces he's going to the Dodgers: Where do the Padres turn?**\
+`With ownership turmoil and no offseason additions, the Padres must figure out how to contend without the Japanese phenom they coveted.`\
+https://nytimes.com/athletic/6069906/2025/01/17/padres-roki-sasaki-future-transactions/
+
 **Overtures to Trump Put Mayor Adams on a Political Tightrope**\
 `Mayor Eric Adams said that a meeting with President-elect Donald J. Trump was about New York City’s future. Each man has his own reasons to forge close ties.`\
 https://nytimes.com/2025/01/17/nyregion/adams-trump-pardon.html
@@ -22,7 +26,7 @@ https://nytimes.com/2025/01/17/us/politics/homeland-security-intelligence.html
 `Some Democrats see Elon Musk as an ideal foil. But not everyone agrees.`\
 https://nytimes.com/2025/01/17/us/politics/democrats-frame-trumps-friends-as-foes.html
 
-**Jimmy Butler expected to return from Miami's 7-game suspension**\
+**Jimmy Butler returns to Miami's lineup following 7-game suspension**\
 `Though Butler is returning to the court as his team-issued seven-game suspension ends, his dispute with the Heat remains far from resolved.`\
 https://nytimes.com/athletic/6067921/2025/01/17/jimmy-butler-heat-returns-suspended-miami-heat-denver-nuggets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6062386/2025/01/17/cowboys-head-coach-odds-deion-sa
 **Israeli Government Approves Cease-Fire Deal for Gaza**\
 `The full Israeli cabinet passed the agreement during a meeting that continued into the Jewish Sabbath, setting up the first reprieve in Gaza in over a year.`\
 https://nytimes.com/2025/01/17/world/middleeast/israel-cabinet-ceasefire-gaza.html
-
-**Roki Sasaki is signing with the Dodgers. Will the Giants ever get their superstar?**\
-`The Giants won't get a Sasaki until they are an It Franchise. They have work to do on three fronts to become one.`\
-https://nytimes.com/athletic/6061606/2025/01/17/roki-sasaki-dodgers-sf-giants-impact/
 
