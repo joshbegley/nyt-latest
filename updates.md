@@ -1,3 +1,7 @@
+**Who Are the Millions of Immigrants Trump Wants to Deport?**\
+`Trump wants to end several programs that offered new arrivals temporary relief. Millions of others without legal status may also be vulnerable to deportation.`\
+https://nytimes.com/interactive/2025/01/17/us/immigrants-trump-deportations.html
+
 **Corrections: Jan. 18, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 18, 2025.`\
 https://nytimes.com/2025/01/17/pageoneplus/corrections-jan-18-2025.html

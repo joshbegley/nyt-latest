@@ -1,3 +1,7 @@
+**Who Are the Millions of Immigrants Trump Wants to Deport?**\
+`Trump wants to end several programs that offered new arrivals temporary relief. Millions of others without legal status may also be vulnerable to deportation.`\
+https://nytimes.com/interactive/2025/01/17/us/immigrants-trump-deportations.html
+
 **Corrections: Jan. 18, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 18, 2025.`\
 https://nytimes.com/2025/01/17/pageoneplus/corrections-jan-18-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6070996/2025/01/17/roki-sasaki-los-angeles-dodgers-
 **Mets and reliever A.J. Minter agree on 2-year, $22 million deal: Sources**\
 `Minter is believed to be the first non-closer reliever to receive an eight-figure AAV with an opt-out inside a multiyear deal.`\
 https://nytimes.com/athletic/6071055/2025/01/17/mets-reliever-aj-minter-deal/
-
-**Roki Sasaki announces he's going to the Dodgers: Where do the Padres turn?**\
-`With ownership turmoil and no offseason additions, the Padres must figure out how to contend without the Japanese phenom they coveted.`\
-https://nytimes.com/athletic/6069906/2025/01/17/padres-roki-sasaki-future-transactions/
 
