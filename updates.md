@@ -1,3 +1,11 @@
+**Ignored by Farke, heading to Hull - does Gelhardt have a future at Leeds?**\
+`The diminutive striker made a flying start at Elland Road but has barely been seen under Daniel Farke - will Hull loan ignite his career?`\
+https://nytimes.com/athletic/6070256/2025/01/18/joe-gelhardt-leeds-united-hull-city-loan/
+
+**Whisper it, but do Arsenal have an easier run-in than Liverpool?**\
+`The Athletic has analysed the remaining fixtures to determine how Liverpool and Arsenal's compare in terms of difficulty...`\
+https://nytimes.com/athletic/6069204/2025/01/18/arsenal-liverpool-premier-league-run-in/
+
 **How Sels has 'solved' Nottingham Forest's problem position**\
 `Unheralded on signing a year ago, Sels has been superb this season. So how has he turned Forest's biggest question mark into a strength?`\
 https://nytimes.com/athletic/6067111/2025/01/18/sels-nottingham-forest-problem-position/

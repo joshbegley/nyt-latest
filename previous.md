@@ -1,3 +1,11 @@
+**Ignored by Farke, heading to Hull - does Gelhardt have a future at Leeds?**\
+`The diminutive striker made a flying start at Elland Road but has barely been seen under Daniel Farke - will Hull loan ignite his career?`\
+https://nytimes.com/athletic/6070256/2025/01/18/joe-gelhardt-leeds-united-hull-city-loan/
+
+**Whisper it, but do Arsenal have an easier run-in than Liverpool?**\
+`The Athletic has analysed the remaining fixtures to determine how Liverpool and Arsenal's compare in terms of difficulty...`\
+https://nytimes.com/athletic/6069204/2025/01/18/arsenal-liverpool-premier-league-run-in/
+
 **How Sels has 'solved' Nottingham Forest's problem position**\
 `Unheralded on signing a year ago, Sels has been superb this season. So how has he turned Forest's biggest question mark into a strength?`\
 https://nytimes.com/athletic/6067111/2025/01/18/sels-nottingham-forest-problem-position/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071216/2025/01/18/roki-sasaki-dodgers-signing-anal
 **Pints, playmakers and burner accounts - talking Aston Villa with Prince William in the pub**\
 `A group of Villa fans will never have a pre-match drink like this one - when the future King of England joined them in a Birmingham pub`\
 https://nytimes.com/athletic/6070260/2025/01/18/prince-william-aston-villa-fans-pub/
-
-**How many football-pundit tactical cliches can we prove or disprove?**\
-`Football punditry is awash with well-established cliches and assumptions. Many of them are flimsy at best...`\
-https://nytimes.com/athletic/6069777/2025/01/18/tactics-podcast-myth-busting-pundits/
-
-**Prince Harry Takes On Rupert Murdoch’s U.K. Tabloids in a High-Stakes Trial**\
-`Barring a late settlement, Harry’s lawsuit against News Group Newspapers will begin Monday, with potential consequences for the royal family, the media baron and even The Washington Post.`\
-https://nytimes.com/2025/01/18/world/europe/prince-harry-murdoch-news-group-trial.html
 
