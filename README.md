@@ -22,7 +22,7 @@ https://nytimes.com/2025/01/18/style/mens-fashion-milan-ralph-lauren-cucinelli.h
 `Emily Baumgaertner, a national health reporter who lives in Los Angeles, reflects on covering the fires while trying to buy a home.`\
 https://nytimes.com/2025/01/18/us/wildfires-home-dreams.html
 
-**Trump begins selling a new crypto token, in a move assailed as an ethical breach.**\
+**Trump Begins Selling New Crypto Token, Raising Ethical Concerns**\
 `The president-elect and his family have a direct and potentially lucrative stake in the sale of a cryptocurrency product that surged in value in the hours after going on sale, days before his inauguration.`\
 https://nytimes.com/2025/01/18/us/politics/trump-meme-coin-crypto.html
 
