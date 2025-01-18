@@ -1,3 +1,11 @@
+**Trump’s Unlikely Return To Power**\
+`Donald J.`\
+https://nytimes.com/video/us/politics/100000009933010/how-donald-trump-took-back-power.html
+
+**Who Is Coming to the Inauguration — and Who Isn’t**\
+`Billionaires, foreign leaders and celebrities including Mike Tyson and Carrie Underwood will appear at the inauguration. Some prominent Democrats are taking a pass.`\
+https://nytimes.com/2025/01/18/us/politics/who-is-coming-trump-inauguration.html
+
 **‘Angry and Frustrated’: Thousands Protest Trump Days Before His Inauguration**\
 `Voters nervous about the return of a Trump presidency demonstrated in Washington, D.C., New York and other cities to show support for women’s rights, racial justice and other causes.`\
 https://nytimes.com/2025/01/18/us/trump-protests-inauguration.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/18/us/altadena-eaton-fire-cemetery.html
 **Thousands of Capital One Customers Are Locked Out of Accounts for Days**\
 `The company said a technical issue with a third-party vendor was to blame for a disruption with deposits and payment processing that stretched into the weekend.`\
 https://nytimes.com/2025/01/18/business/capital-one-outage-direct-deposits.html
-
-**Trump’s Return Has Unnerved World Leaders. But Not India.**\
-`An upward trajectory in relations is “almost inevitable,” the U.S. ambassador, Eric Garcetti, said in an interview before leaving his post.`\
-https://nytimes.com/2025/01/18/world/asia/india-eric-garcetti-interview.html
-
-**Creighton upsets No. 14 UConn, snaps Huskies’ 28-game home win streak**\
-`It was another moment of mortality for the Huskies (13-5, 5-2 Big East), who suffered their second Big East loss in the past three games.`\
-https://nytimes.com/athletic/6071854/2025/01/18/creighton-uconn-big-east-upset/
 
