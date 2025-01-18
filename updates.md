@@ -1,3 +1,7 @@
+**Mark Zuckerberg’s New Bromance Is Off to a Strange Start**\
+`The standards of masculine energy have fallen.`\
+https://nytimes.com/2025/01/18/opinion/zuckerberg-masculine-energy-rogan-trump.html
+
 **In State Capitals, Republicans Propose New Limits on Transgender Identity**\
 `The new lawmaking sessions open after a campaign year in which Republicans leaned on messaging that tapped into fears about transgender issues.`\
 https://nytimes.com/2025/01/18/us/republicans-state-limits-transgender-identity.html
