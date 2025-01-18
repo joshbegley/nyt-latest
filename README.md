@@ -1,3 +1,7 @@
+**A Big, Bold TikTok Ban**\
+`Shutting down the popular app is audacious. It’s also a sign that  officials really believe the alternative is unacceptable.`\
+https://nytimes.com/2025/01/18/briefing/a-big-bold-tiktok-ban.html
+
 **'It's good to have that in D.C.': Commanders' celebrity fans can cheer again with both eyes open**\
 `Commanders fans, including the ones who are more well-known than most, are giddy about their team's success and bright future.`\
 https://nytimes.com/athletic/6067253/2025/01/18/commanders-celebrity-fans-kevin-durant/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995138/2025/01/18/ole-gunnar-solskjaer-besiktas-ma
 **The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
 `In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
 https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
-
-**How much are Playoff experiences worth to Notre Dame fans? ‘I didn’t debate anything’**\
-`In a college football season like no other, these Notre Dame fans couldn't help but commit to the full Playoff journey.`\
-https://nytimes.com/athletic/6070592/2025/01/18/notre-dame-fans-playoff-national-championship-tickets/
 
