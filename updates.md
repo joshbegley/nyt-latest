@@ -1,3 +1,7 @@
+**Virginia Governor Criticizes Biden for Commuting Sentences of 2 Men**\
+`The men had been acquitted by a jury of the murder of a police officer, but the judge had concluded that they had been involved and sentenced them to life in prison.`\
+https://nytimes.com/2025/01/18/us/politics/biden-commutation-criticism.html
+
 **Vanderbilt knocks off Tennessee, Xavier beats Marquette as two top-10 teams fall**\
 `Vanderbilt, which won nine games last season, improved to 15-3 overall and 3-2 in the SEC.`\
 https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upsets/
