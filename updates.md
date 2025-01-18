@@ -1,3 +1,7 @@
+**The Briefing: Brentford 0 Liverpool 0 - Has Nunez just given the title race a decisive turn?**\
+`Analysing the big talking points from the Premier League clash at the Gtech Community Stadium`\
+https://nytimes.com/athletic/6066782/2025/01/18/brentford-liverpool-premier-league-result-analysis/
+
 **Mark Zuckerberg’s New Bromance Is Off to a Strange Start**\
 `The standards of masculine energy have fallen.`\
 https://nytimes.com/2025/01/18/opinion/zuckerberg-masculine-energy-rogan-trump.html
