@@ -1,3 +1,7 @@
+**'It's monumental': Marcus Freeman's moment is significant for Black coaches**\
+`Black college football coaches share what it means to see a Black coach contend for the national title for the first time.`\
+https://nytimes.com/athletic/6068254/2025/01/18/marcus-freeman-first-black-coach-national-title-game-notre-dame/
+
 **A Big, Bold TikTok Ban**\
 `Shutting down the popular app is audacious. It’s also a sign that  officials really believe the alternative is unacceptable.`\
 https://nytimes.com/2025/01/18/briefing/a-big-bold-tiktok-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/crosswords/wordle-review-1310.html
 **Solskjaer confirmed as new Besiktas head coach**\
 `Ole Gunnar Solskjaer has been confirmed as the new head coach of Turkish club Besiktas.`\
 https://nytimes.com/athletic/5995138/2025/01/18/ole-gunnar-solskjaer-besiktas-manager-appointment/
-
-**The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
-`In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
-https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
 
