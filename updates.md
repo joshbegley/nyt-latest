@@ -1,3 +1,7 @@
+**Steelers shut down Bears' trade inquiry for Mike Tomlin: Source**\
+`The Steelers have rejected at least two inquiring teams, informing them of Tomlin’s no-trade clause.`\
+https://nytimes.com/athletic/6071781/2025/01/18/steelers-coach-mike-tomlin-bears-trade-request/
+
 **A Killer Was Taken Back Into Custody. Was It Because of His Drill Rap Songs?**\
 `A man convicted of murder in London was taken back into custody after a report emerged that he was anonymously making drill rap music. The victim’s family worries his music could bring him more fame.`\
 https://nytimes.com/2025/01/18/world/europe/drill-rap-ten-jake-fahri.html
