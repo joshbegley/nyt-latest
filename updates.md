@@ -1,3 +1,7 @@
+**How did Unrivaled do on opening night? Did the new 3x3 league perform in the arena and on TV?**\
+`The new league looked sharp on television and in person. Our experts share their first impressions.`\
+https://nytimes.com/athletic/6071162/2025/01/17/unrivaled-debut-womens-basketball-league/
+
 **Penguins goalie Nedeljkovic makes history with goal, assist in single game**\
 `Nedeljkovic scored into an empty net at 17:18 of the third period after the Sabres pulled their goalie for an extra skater.`\
 https://nytimes.com/athletic/6071187/2025/01/17/penguins-goalie-goal-alex-nedeljkovic/
