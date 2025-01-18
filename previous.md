@@ -1,3 +1,11 @@
+**People’s March in Washington Draws Thousands of Demonstrators**\
+`Just two days before Donald Trump’s inauguration, thousands of people attended the People’s March across Washington.`\
+https://nytimes.com/video/us/politics/100000009935546/dc-peoples-march-trump-inauguration.html
+
+**André Soltner, Famed Chef at New York’s Lutèce, Dies at 92**\
+`Customers returned again and again for his impeccable French dishes at a restaurant that one food critic said “set the gold standard.”`\
+https://nytimes.com/2025/01/18/dining/andre-soltner-dead.html
+
 **TikTok Fueled Travel Crazes, What Happens Now?**\
 `The app gave places like an ice cream shop/wine bar fame, and sometimes overwhelmed them with crowds. Influencers and destinations await the fallout.`\
 https://nytimes.com/2025/01/18/travel/tiktok-travel-trends.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6072024/2025/01/18/texas-steve-sarkisian-contract-e
 `Konecny is the Flyers’ most dangerous and consistent offensive player and his intense disposition and passion have been impossible to miss.
 `\
 https://nytimes.com/athletic/6071942/2025/01/18/flyers-travis-konecny-leader/
-
-**Israel and Palestinians Prepare for Long-Sought Truce in Gaza**\
-`Qatar, which mediated the agreement, said the cease-fire deal was set to begin at 8:30 a.m. local time on Sunday.`\
-https://nytimes.com/2025/01/18/world/middleeast/israel-gaza-ceasefire.html
-
-**In TikTok’s Final Hours, a Mix of Silliness and Sadness**\
-`Users in the United States react to a nationwide ban of the app.`\
-https://nytimes.com/2025/01/18/style/tiktok-ban-final-hours.html
 
