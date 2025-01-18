@@ -1,3 +1,15 @@
+**When the U.S. Hit Canada With Steep Tariffs Before, Canada Had a Plan B**\
+`But economic, political and technological changes have left Canada with few ways to handle trade restrictions now.`\
+https://nytimes.com/2025/01/18/world/canada/us-canada-trade-war-1930s.html
+
+**The Connections Companion No. 588**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 19, 2025.`\
+https://nytimes.com/2025/01/18/crosswords/connections-companion-588.html
+
+**Wordle Review No. 1,310**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 19, 2025.`\
+https://nytimes.com/2025/01/18/crosswords/wordle-review-1310.html
+
 **The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
 `In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
 https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/18/climate/fires-insurance-fema.html
 **How the Oct. 7 Attacks Transformed the Middle East**\
 `With an Israel-Hamas cease-fire set to begin, the shock waves from their war have reshaped the region in unexpected ways.`\
 https://nytimes.com/2025/01/18/world/europe/israel-hamas-oct-7.html
-
-**Restaurant Workers Bring Unique Skills to the L.A. Fire Crisis**\
-`Even as it faces economic setbacks of its own, the hospitality industry is stepping up to feed emergency workers and evacuees.`\
-https://nytimes.com/2025/01/18/dining/los-angeles-wildfires-restaurants.html
-
-**An Earthling Reflects on a Wartime Salesman’s Bold Act of Resistance**\
-`The French photographer Raoul Minot took clandestine photos of Nazi-occupied Paris. Now, his images serve as a reminder of the power of art.`\
-https://nytimes.com/2025/01/18/arts/earthling-raoul-minot-nazi-paris.html
-
-**Under Trump’s Big Tent, Republicans Are Starting to Clash**\
-`Donald J. Trump won his battle with establishment Republicans. Now, it’s disputes over immigration, taxes and foreign policy that will test his party’s unity.`\
-https://nytimes.com/2025/01/18/us/politics/donald-trump-inauguration-republican-party.html
 

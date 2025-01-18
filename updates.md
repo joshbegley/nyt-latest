@@ -1,3 +1,15 @@
+**When the U.S. Hit Canada With Steep Tariffs Before, Canada Had a Plan B**\
+`But economic, political and technological changes have left Canada with few ways to handle trade restrictions now.`\
+https://nytimes.com/2025/01/18/world/canada/us-canada-trade-war-1930s.html
+
+**The Connections Companion No. 588**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 19, 2025.`\
+https://nytimes.com/2025/01/18/crosswords/connections-companion-588.html
+
+**Wordle Review No. 1,310**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 19, 2025.`\
+https://nytimes.com/2025/01/18/crosswords/wordle-review-1310.html
+
 **The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
 `In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
 https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
