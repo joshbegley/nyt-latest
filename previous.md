@@ -1,3 +1,7 @@
+**Palace sign Esse from Millwall**\
+`Crystal Palace have completed the signing of teenage winger Romain Esse from Millwall.`\
+https://nytimes.com/athletic/6051963/2025/01/18/romain-esse-joins-crystal-palace/
+
 **UNRWA’s head warns of catastrophe for Gaza if Israel stops its work.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/unrwas-head-warns-of-catastrophe-for-gaza-if-israel-stops-its-work
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/18/us/los-angeles-fires-palisades-eaton-
 **Brighton's transfer plans for the rest of the January window: What I'm hearing**\
 `A possible move for Tosin, interest in Tzimas, and a couple of potential loan departures`\
 https://nytimes.com/athletic/6067018/2025/01/18/brighton-transfer-window-plans-adarabioyo-tzimas/
-
-**Celtics rediscover the joy of winning as starting 5 comes together against Magic**\
-`After going 7-7 recently, Boston snapped back following what Kristaps Porziņģis called an "unacceptable" performance against Toronto.`\
-https://nytimes.com/athletic/6071309/2025/01/18/celtics-defeat-magic/
 

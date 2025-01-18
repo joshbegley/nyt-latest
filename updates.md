@@ -1,3 +1,7 @@
+**Palace sign Esse from Millwall**\
+`Crystal Palace have completed the signing of teenage winger Romain Esse from Millwall.`\
+https://nytimes.com/athletic/6051963/2025/01/18/romain-esse-joins-crystal-palace/
+
 **UNRWA’s head warns of catastrophe for Gaza if Israel stops its work.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/unrwas-head-warns-of-catastrophe-for-gaza-if-israel-stops-its-work
