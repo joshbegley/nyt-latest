@@ -1,3 +1,7 @@
+**Trump chooses school choice supporter to help lead Education Department.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/trump-chooses-school-choice-supporter-to-help-lead-education-department
+
 **Australian Open week one: What we learned about Swiatek, Alcaraz, and tennis being stuffy**\
 `Two of the best players fly under the radar, conditions flummox players and Danielle Collins shakes things up.`\
 https://nytimes.com/athletic/6071140/2025/01/18/australian-open-recap-analysis-swiatek-alcaraz-collins-crowds/

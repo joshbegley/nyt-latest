@@ -1,3 +1,7 @@
+**Trump chooses school choice supporter to help lead Education Department.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/trump-chooses-school-choice-supporter-to-help-lead-education-department
+
 **Australian Open week one: What we learned about Swiatek, Alcaraz, and tennis being stuffy**\
 `Two of the best players fly under the radar, conditions flummox players and Danielle Collins shakes things up.`\
 https://nytimes.com/athletic/6071140/2025/01/18/australian-open-recap-analysis-swiatek-alcaraz-collins-crowds/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/as-deadly-
 **Lamar Jackson or Josh Allen? Quiz yourself on the MVP front-runners**\
 `Answer a quick 10 questions to see how much you know about the remarkable seasons of Allen and Jackson.`\
 https://nytimes.com/athletic/6067330/2025/01/18/lamar-jackson-josh-allen-quiz/
-
-**A Vibe Shift at Davos**\
-`For years, C.E.O.s have used the annual gathering at the World Economic Forum to emphasize commitments to D.E.I., E.S.G. and globalization. Now the politics have changed.`\
-https://nytimes.com/2025/01/18/business/dealbook/a-vibe-shift-at-davos.html
 
