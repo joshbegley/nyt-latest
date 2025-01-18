@@ -1,3 +1,7 @@
+**As deadly strikes continue, Gazans anticipate first moments of peace.**\
+`By Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2025/01/18/world/israel-hamas-gaza-ceasefire/as-deadly-strikes-continue-gazans-anticipate-first-moments-of-peace
+
 **Lamar Jackson or Josh Allen? Quiz yourself on the MVP front-runners**\
 `Answer a quick 10 questions to see how much you know about the remarkable seasons of Allen and Jackson.`\
 https://nytimes.com/athletic/6067330/2025/01/18/lamar-jackson-josh-allen-quiz/
