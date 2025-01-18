@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/17/world/europe/explosions-ukraine.html
 https://nytimes.com/athletic/6071167/2025/01/17/penguins-alex-nedeljkovic-goalie-goal/
 
 **Trump’s Deportation Plan Is Said to Start Next Week in Chicago**\
-`The size of the planned immigration raids are unclear, but they would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
+`The size of the planned immigration raids is unclear, but they would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
 https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
 
 **Greenberg: Sammy Sosa returns to Chicago and apologizes to Cubs fans for being away so long**\

@@ -1,3 +1,7 @@
+**Trump’s Deportation Plan Is Said to Start Next Week in Chicago**\
+`The size of the planned immigration raids is unclear, but they would be the opening step in the president-elect’s goal of overseeing the largest deportation program in history.`\
+https://nytimes.com/2025/01/17/us/politics/trump-immigration-raids-chicago.html
+
 **How many football-pundit tactical cliches can we prove or disprove?**\
 `Football punditry is awash with well-established cliches and assumptions. Many of them are flimsy at best...`\
 https://nytimes.com/athletic/6069777/2025/01/18/tactics-podcast-myth-busting-pundits/
