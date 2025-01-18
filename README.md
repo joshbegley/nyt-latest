@@ -1,3 +1,7 @@
+**A Killer Was Taken Back Into Custody. Was It Because of His Drill Rap Songs?**\
+`A man convicted of murder in London was taken back into custody after a report emerged that he was anonymously making drill rap music. The victim’s family worries his music could bring him more fame.`\
+https://nytimes.com/2025/01/18/world/europe/drill-rap-ten-jake-fahri.html
+
 **My Building Is Doing Unexplained Work. Can I Stop Paying Dues Until They Explain?**\
 `Most condo associations must provide a record of all receipts and expenses. But they also need residents’ maintenance fees to operate.`\
 https://nytimes.com/2025/01/18/realestate/condominium-maintenance-fees-construction-work.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071634/2025/01/18/alyssa-naeher-us-soccer-female-p
 **Chana Masala, Roast Orange Chicken and a Flexible Cabbage Salad**\
 `Or: a chickpea favorite, the roast chicken I want to make this Sunday and how I plan to use the leftovers of said chicken.`\
 https://nytimes.com/2025/01/18/dining/chana-masala-roast-orange-chicken-more-dinner-recipes.html
-
-**Bournemouth believe 'anything is possible' after Newcastle win - Adams**\
-`Tyler Adams says Bournemouth believe &#8220;anything is possible&#8221; after moving to within one point of the Champions League places following Saturday&#8217;s win over in-form Newcastle United.`\
-https://nytimes.com/athletic/6071636/2025/01/18/tyler-adams-bournemouth-newcastle/
 
