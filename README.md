@@ -1,3 +1,7 @@
+**Taylor Fritz out of Australian Open as Gael Monfils rolls back the years in Melbourne**\
+`38-year-old Gael Monfils continued his vintage run at the Australian Open by knocking out the No. 4 seed.`\
+https://nytimes.com/athletic/6071281/2025/01/18/taylor-fritz-gael-monfils-australian-open-result-analysis/
+
 **Ignored by Farke, heading to Hull - does Gelhardt have a future at Leeds?**\
 `The diminutive striker made a flying start at Elland Road but has barely been seen under Daniel Farke - will Hull loan ignite his career?`\
 https://nytimes.com/athletic/6070256/2025/01/18/joe-gelhardt-leeds-united-hull-city-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069910/2025/01/18/what-does-ansu-fatis-future-look
 **Roki Sasaki's addition further separates the Dodgers from rest of the league: Law**\
 `Sasaki's addition widens the gap between the Dodgers and the rest of the league. It also deepens a rotation that struggled with injury.`\
 https://nytimes.com/athletic/6071216/2025/01/18/roki-sasaki-dodgers-signing-analysis/
-
-**Pints, playmakers and burner accounts - talking Aston Villa with Prince William in the pub**\
-`A group of Villa fans will never have a pre-match drink like this one - when the future King of England joined them in a Birmingham pub`\
-https://nytimes.com/athletic/6070260/2025/01/18/prince-william-aston-villa-fans-pub/
 
