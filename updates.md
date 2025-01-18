@@ -1,3 +1,7 @@
+**Saliba misses Arsenal vs Aston Villa with muscular injury**\
+`Mikel Arteta says William Saliba has been ruled out of Arsenal&#8217;s Premier League fixture against Aston Villa due to a muscular injury.`\
+https://nytimes.com/athletic/6071732/2025/01/18/william-saliba-arsenal-injury-update/
+
 **Man Utd exploring Malacia January loan**\
 `Manchester United are exploring a January loan move for defender Tyrell Malacia.`\
 https://nytimes.com/athletic/6054005/2025/01/18/tyrell-malacia-manchester-united-transfers/
