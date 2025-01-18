@@ -1,3 +1,7 @@
+**USWNT goalkeeper Alyssa Naeher named U.S. Soccer Female Player of the Year**\
+`Naeher is only the second goalkeeper to win the award in its 40 year history.`\
+https://nytimes.com/athletic/6071634/2025/01/18/alyssa-naeher-us-soccer-female-player-year/
+
 **Chana Masala, Roast Orange Chicken and a Flexible Cabbage Salad**\
 `Or: a chickpea favorite, the roast chicken I want to make this Sunday and how I plan to use the leftovers of said chicken.`\
 https://nytimes.com/2025/01/18/dining/chana-masala-roast-orange-chicken-more-dinner-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6047775/2025/01/18/omar-marmoush-transfer-mancheste
 **Here Are Some Prominent Palestinian Prisoners Set to Be Released**\
 `Israel is expected on Sunday to begin releasing hundreds of Palestinian prisoners, according to the terms of the cease-fire and hostage release agreement with Hamas.`\
 https://nytimes.com/2025/01/18/world/middleeast/palestine-prisoners-release-israel-hamas-ceasefire.html
-
-**Collins: Australian Open controversy has sparked 'six sponsorship opportunities'**\
-`Danielle Collins has hit back at criticism of her goading of the Australian Open crowd, saying: “I don&#8217;t care what some guy living in his basement is writing on the internet.`\
-https://nytimes.com/athletic/6071531/2025/01/18/danielle-collins-australian-open-controversy-sponsorship/
 
