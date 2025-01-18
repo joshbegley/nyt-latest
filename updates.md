@@ -1,3 +1,7 @@
+**Italian Reporter’s Ordeal in Iranian Prison: ‘I Was Trapped in a Game’**\
+`Cecilia Sala found herself in the middle of Iran’s hostage diplomacy.`\
+https://nytimes.com/2025/01/18/world/middleeast/cecilia-sala-italy-iran-revolutionary-guards.html
+
 **A List of Those Who Could Be in Line for Trump’s ‘Retribution’**\
 `President-elect Donald J. Trump believes he has been wronged by current and former officials, members of the media and more.`\
 https://nytimes.com/2025/01/18/us/politics/trump-retribution-list.html
