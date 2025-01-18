@@ -1,3 +1,7 @@
+**Dick vitale's return suffers another setback, not related to cancer scares**\
+`Vitale was slated to provide color commentary for Duke vs. Wake Forest on Jan. 25 in what would have been his first game since 2023`\
+https://nytimes.com/athletic/6071998/2025/01/18/dick-vitale-accident-duke-wake-forest/
+
 **Texas, head coach Steve Sarkisian agree to contract extension**\
 `Sarkisian, who is 38-17 in four years at Texas, led the Longhorns to the College Football Playoff semifinals for the second year in a row.`\
 https://nytimes.com/athletic/6072024/2025/01/18/texas-steve-sarkisian-contract-extension/
@@ -30,8 +34,4 @@ https://nytimes.com/2025/01/18/us/trump-protests-inauguration.html
 **To Be From L.A. Is to Know Its Twin Temptations, Beauty and Danger**\
 `Somini Sengupta, a Times climate reporter, on the city, its mythology, and a reckoning with disaster.`\
 https://nytimes.com/2025/01/18/climate/los-angeles-beauty-and-danger.html
-
-**Fashion’s TikTok Conundrum**\
-`At the men’s shows in Europe, Ralph Lauren and Brunello Cucinelli brushed off virality in favor of reliable classics, while Philipp Plein had a bit of an identity crisis.`\
-https://nytimes.com/2025/01/18/style/mens-fashion-milan-ralph-lauren-cucinelli.html
 
