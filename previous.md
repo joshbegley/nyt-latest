@@ -1,3 +1,7 @@
+**Accused 9/11 Mastermind Agrees to Use of Disputed Confession for Life Sentence**\
+`Lawyers for Khalid Shaikh Mohammed have said for years that parts of the confession were tainted by torture. Mr. Mohammed has now agreed they can be used at his sentencing trial if prosecutors agree to settle his case.`\
+https://nytimes.com/2025/01/19/us/politics/khalid-shaikh-mohammed-plea-deal-torture-sept-11.html
+
 **Maresca hits back at Chelsea critics and claims club received PGMOL apology**\
 `Chelsea head coach Enzo Maresca says his players should not be embarrassed by criticism that they go down easily to try and influence decisions after claiming the club received a written apology from the Professional Game Match Officials Limited (PGMOL) for not being awarded a penalty this month.`\
 https://nytimes.com/athletic/6073560/2025/01/19/enzo-maresca-chelsea-pgmol/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/white-house-chang
 **TikTok Ban Behind Fire Set at a Mall With Congressman’s Office, Police Say**\
 `No one was injured. The building, which includes a district office of a Wisconsin congressman who has been a critic of TikTok, sustained moderate damage in the fire on Sunday.`\
 https://nytimes.com/2025/01/19/us/wisconsin-arson-tiktok-ban.html
-
-**Lynne Taylor-Corbett, ‘Footloose’ Choreographer, Dies at 78**\
-`Striving to widen the audience of dance, she brought vitality to Broadway musicals like “Swing!” as well as ballets and Hollywood films.`\
-https://nytimes.com/2025/01/19/arts/dance/lynne-taylor-corbett-dead.html
 
