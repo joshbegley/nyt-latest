@@ -1,3 +1,15 @@
+**Washington guard Sam Cosmi out for playoffs with torn ACL**\
+`Washington's red-hot offensive line loses Cosmi after he allowed just one sack all season.`\
+https://nytimes.com/athletic/6073748/2025/01/19/commanders-sam-cosmi-acl-injury-season-over/
+
+**Perez re-elected Real Madrid president, three new board members added**\
+`Former Wolfsburg chairman Francisco Garcia Sanz has joined Real Madrid&#8217;s board in one of three executive additions following president Florentino Perez&#8217;s re-election.`\
+https://nytimes.com/athletic/6073723/2025/01/19/real-madrid-president-board/
+
+**TikTok Butters Up Trump, Again and Again**\
+`The app has repeatedly name checked the president-elect in pop-up messages and statements, as it navigates a ban in the United States unless it is sold to a non-Chinese owner.`\
+https://nytimes.com/2025/01/19/technology/tiktok-trump-messages-ban.html
+
 **White House changes hands and so do fortunes for lobbyists in Washington.**\
 `By Elisabeth Bumiller and Kenneth P. Vogel`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/white-house-changes-hands-and-so-do-fortunes-for-lobbyists-in-washington
