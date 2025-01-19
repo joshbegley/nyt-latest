@@ -1,3 +1,7 @@
+**Lowetide: Setting up the Oilers' 2025 spring amateur signing season**\
+`For a few reasons, the Oilers can't afford a false spring in identifying and signing quality amateur talent.`\
+https://nytimes.com/athletic/6071667/2025/01/19/edmonton-oilers-2025-amateur-signings/
+
 **Trump Says He Will Sign Executive Order to Stall TikTok Ban**\
 `The social media app went dark late Saturday as a federal law went into effect requiring a sale or ban.`\
 https://nytimes.com/2025/01/19/technology/trump-tiktok-ban-executive-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/us/politics/trump-inauguration-watch-time-stream.
 **Chappelle on ‘S.N.L.’: Easing Us Into a Transition as No One Else Can**\
 `The comic took his usual jabs at everyone and everything, then invited Americans, including the president-elect, to be their best, most compassionate selves.`\
 https://nytimes.com/2025/01/19/arts/television/arts-television-saturday-night-live-recap.html
-
-**Olmo suffers calf injury, ruled out of Barcelona's Benfica trip**\
-`Dani Olmo has suffered a calf injury that Barcelona say will rule him out of Tuesday&#8217;s Champions League trip to Benfica.`\
-https://nytimes.com/athletic/6073020/2025/01/19/barcelona-dani-olmo-injury-calf/
 
