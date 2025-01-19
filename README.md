@@ -1,3 +1,7 @@
+**What We Know About the TikTok Ban and if It May Be Lifted**\
+`The popular video app went dark in the United States late Saturday, as a law banning it took effect. Now, the company is hoping President-elect Donald J. Trump can bring it back.`\
+https://nytimes.com/2025/01/19/business/what-we-know-tiktok.html
+
 **Hamas Tries to Show It’s Back in Charge of Gaza**\
 `Rarely seen in the open while the war raged, masked and armed fighters spread out publicly through Gaza’s cities in a show of force on Sunday.`\
 https://nytimes.com/2025/01/19/world/middleeast/hamas-in-charge-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071736/2025/01/19/everton-tottenham-premier-league
 **The Briefing: Man United 1 Brighton 3: Defensive issues, Onana fumble and where does Amorim go from here?**\
 `We break down the talking points from a disappointing defeat for Ruben Amorim's side at Old Trafford.`\
 https://nytimes.com/athletic/6071737/2025/01/19/manchester-united-brighton-premier-league-analysis/
-
-**Practice Makes Perfect Fish**\
-`I’m cooking Kenji López-Alt’s gorgeous Cantonese-style fish this weekend so that I have the technique nailed in time for Lunar New Year.`\
-https://nytimes.com/2025/01/19/dining/cantonese-fish-lunar-new-year.html
 
