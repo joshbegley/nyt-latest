@@ -1,3 +1,7 @@
+**Get Your Scorecards: Global Opportunities for Trump the Deal Maker**\
+`President-elect Donald J. Trump has made big promises on Ukraine, Iran, China and crises around the globe. But he will have to make difficult choices.`\
+https://nytimes.com/2025/01/18/us/politics/trump-deal-maker.html
+
 **Washington’s liberal inauguration-weekend party won’t be held at the African American history museum this year.**\
 `The founder of the Peace Ball, a party held since Barack Obama’s inauguration, said it was ousted after the museum received complaints about its “tone.”`\
 https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/washingtons-liberal-inauguration-weekend-party-wont-be-held-at-the-african-american-history-museum-this-year
