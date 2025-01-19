@@ -1,7 +1,3 @@
-**Is Neymar's career in epilogue territory? He deserves to be remembered as a great**\
-`Neymar's future is unclear - it seems he's not wanted in Saudi but whatever happens his career is worth celebrating in Brazil and beyond `\
-https://nytimes.com/athletic/6069792/2025/01/19/neymar-brazil-saudi-arabia-mls/
-
 **The 'Purples' who support Man Utd and Man City: 'I'm the human version of a half and half scarf'**\
 `Before the Manchester derby in the Women's Super League, fans talk about their split loyalties`\
 https://nytimes.com/athletic/6069352/2025/01/19/the-purples-who-support-man-utd-and-man-city/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/19/pageoneplus/quote-of-the-day-inside-copter-17s-te
 **'It's not normal': Patrick Mahomes, Chiefs make it 7 straight AFC title games**\
 `The Chiefs, seeking the first Super Bowl three-peat, will host the AFC Championship Game for the sixth time in the last seven years.`\
 https://nytimes.com/athletic/6072424/2025/01/18/chiefs-patrick-mahomes-texans-afc-playoffs/
+
+**Coco Gauff escapes Belinda Bencic to reach Australian Open quarterfinals**\
+`MELBOURNE, Australia — Coco Gauff got over the speed bump that tripped her up in the past two Grand Slams, beating Belinda Bencic of Switzerland in three sets Sunday to advance to the Australian Open quarterfinals.`\
+https://nytimes.com/athletic/6072475/2025/01/18/coco-gauff-australian-open-result-analysis-belinda-bencic/
 
