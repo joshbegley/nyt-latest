@@ -1,3 +1,7 @@
+**How Tom Brady handled his ownership-analyst conflict on TV: Takeaways**\
+`Tom Brady called his best game yet as a TV analyst, but he was clearly avoiding the name Ben Johnson.`\
+https://nytimes.com/athletic/6069493/2025/01/19/tom-brady-ownership-conflict-fox-takeaways/
+
 **Wild drop the gloves but show little fight in 6-2 drubbing by Predators: Takeaways**\
 `After L'Heureux slew-footed Jared Spurgeon, sidelining the Wild captain, payback was expected in the rematch — and it came early. `\
 https://nytimes.com/athletic/6072479/2025/01/19/wild-lose-to-predators/
