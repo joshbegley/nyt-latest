@@ -1,3 +1,11 @@
+**CFP officials ask conference commissioners to review 12-team playoff format**\
+`Any format changes in 2025 would require a unanimous vote by the FBS conferences and Notre Dame.`\
+https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-changes/
+
+**Monday Briefing: A Gaza Cease-Fire Begins**\
+`Plus, how Oscar contenders are rethinking sex scenes.`\
+https://nytimes.com/2025/01/19/briefing/gaza-cease-fire-tik-tok-ban-trump-inauguration.html
+
 **Raiders next regime hiring could be accelerated after Lions' early playoff exit**\
 `Ben Johnson, believed to be the top target, can now conduct an in-person interview as soon as Monday after Detroit's season ended Saturday.`\
 https://nytimes.com/athletic/6073431/2025/01/19/raiders-coach-gm-hiring-update-timeline/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/19/insider/a-flag-from-four-years-ago.html
 **Heinz Kluetmeier, Inventive Sports Photographer, Dies at 82**\
 `His work for Sports Illustrated included the renowned cover photo of the United States men’s hockey team celebrating their upset win at the 1980 Winter Olympics.`\
 https://nytimes.com/2025/01/19/sports/heinz-kluetmeier-dead.html
-
-**Blue Jackets Sunday Gathering: Is playoff push real? Two-week road stretch may determine**\
-`The Blue Jackets are underway in a key stretch that could go a long way in deciding whether their fans are doing “playoff math” this spring.`\
-https://nytimes.com/athletic/6072958/2025/01/19/blue-jackets-nhl-playoffs-stadium-series/
-
-**The Briefing: Ipswich 0 Manchester City 6: Phil Foden and City rediscover the old magic**\
-`Manchester City thrashed Ipswich to move back into the Premier League's top four for the first time since early December`\
-https://nytimes.com/athletic/6071739/2025/01/19/ipswich-0-manchester-city-6-phil-foden/
 

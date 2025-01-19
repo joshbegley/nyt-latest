@@ -1,3 +1,11 @@
+**CFP officials ask conference commissioners to review 12-team playoff format**\
+`Any format changes in 2025 would require a unanimous vote by the FBS conferences and Notre Dame.`\
+https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-changes/
+
+**Monday Briefing: A Gaza Cease-Fire Begins**\
+`Plus, how Oscar contenders are rethinking sex scenes.`\
+https://nytimes.com/2025/01/19/briefing/gaza-cease-fire-tik-tok-ban-trump-inauguration.html
+
 **Raiders next regime hiring could be accelerated after Lions' early playoff exit**\
 `Ben Johnson, believed to be the top target, can now conduct an in-person interview as soon as Monday after Detroit's season ended Saturday.`\
 https://nytimes.com/athletic/6073431/2025/01/19/raiders-coach-gm-hiring-update-timeline/
