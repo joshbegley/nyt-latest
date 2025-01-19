@@ -198,6 +198,16 @@ https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-anal
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
+**Maple Leafs report cards: 7 unanswered goals erase bad start**\
+`The Maple Leafs scored seven straight to overcome a 3-0 first-period deficit for a 7-3 win over the Canadiens.
+`\
+https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-analysis-grades/
+
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
 `The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
 `\
