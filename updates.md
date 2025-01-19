@@ -1,3 +1,7 @@
+**Melba Montgomery, Country Singer Known for Her Duets, Dies at 86**\
+`Her high harmonies put an emotional charge into her work with George Jones and others. She also had solo hits, including “No Charge,” a country No. 1.`\
+https://nytimes.com/2025/01/19/arts/music/melba-montgomery-dead.html
+
 **Aid trucks began moving into Gaza as part of the cease-fire deal.**\
 `By Matthew Mpoke Bigg and Vivian Yee`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/aid-trucks-began-moving-into-gaza-as-part-of-the-cease-fire-deal
