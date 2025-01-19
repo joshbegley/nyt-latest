@@ -35,6 +35,6 @@ https://nytimes.com/live/2025/01/19/us/los-angeles-wildfires-california/how-to-m
 https://nytimes.com/athletic/6073767/2025/01/19/michigan-state-illinois-big-ten-purdue/
 
 **Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
-`The new business venture by the Trump family is generating intensifying criticism, even as it has turned into an overnight phenomenon, generating a windfall on paper.`\
+`The new business venture by the Trump family is generating intensifying criticism and ethics questions, even as it has turned into an overnight phenomenon, generating a windfall on paper.`\
 https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
 
