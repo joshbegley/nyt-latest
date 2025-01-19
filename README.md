@@ -1,4 +1,8 @@
-**What went wrong for the Texans in 23-14 loss to Chiefs: Takeaways**\
+**Alabama feasts on Kentucky defense, regains its swagger with big win in Lexington**\
+`The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
+https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
+
+**What went wrong for Texans in 23-14 loss to Chiefs: Takeaways**\
 `The Chiefs' pressure thwarted Houston’s attempt to come from behind.`\
 https://nytimes.com/athletic/6071527/2025/01/18/texans-score-result-takeaways-nfl-playoffs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/us/politics/biden-commutation-criticism.html
 **Four top-10 teams fall on Saturday, 17 Top-25 teams have suffered a loss this week**\
 `Vanderbilt, which won nine games last season, improved to 15-3 overall and 3-2 in the SEC.`\
 https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upsets/
-
-**USMNT beats Venezuela 3-1 in friendly to open 2025**\
-`A pair of goals late in the first half gave the hosts a comfortable lead heading into the break.`\
-https://nytimes.com/athletic/6072094/2025/01/18/usmnt-venezuela-friendly-score-takeaways/
 
