@@ -4,7 +4,7 @@
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
 **The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
-`In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
+`In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager with a ranking under three figures.`\
 https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
 
 **Kelce sets playoff record as Chiefs top Texans, advance to AFC Championship Game: Takeaways**\
