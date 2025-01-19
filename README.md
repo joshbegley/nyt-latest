@@ -1,3 +1,7 @@
+**Gazans and Israelis Dare to Hope as Cease-Fire Takes Hold**\
+`After the fighting paused, Hamas began to free some of its hostages, and Israel prepared to release Palestinian prisoners.`\
+https://nytimes.com/2025/01/19/world/middleeast/gazans-and-israelis-dare-to-hope-as-cease-fire-takes-hold.html
+
 **Trump Faithful Descended on D.C., but Not Everyone Made It Onto a Yacht**\
 `The celebrations ahead of Donald J. Trump’s inauguration included passionate members of his base along with Trump-loving power brokers partying wildly all around them, but just out of reach.`\
 https://nytimes.com/2025/01/19/us/politics/trump-inauguration-dc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073748/2025/01/19/commanders-sam-cosmi-acl-injury-
 **Perez re-elected Real Madrid president, three new board members added**\
 `Former Wolfsburg chairman Francisco Garcia Sanz has joined Real Madrid&#8217;s board in one of three executive additions following president Florentino Perez&#8217;s re-election.`\
 https://nytimes.com/athletic/6073723/2025/01/19/real-madrid-president-board/
-
-**TikTok Butters Up Trump, Again and Again**\
-`The app has repeatedly name checked the president-elect in pop-up messages and statements, as it navigates a ban in the United States unless it is sold to a non-Chinese owner.`\
-https://nytimes.com/2025/01/19/technology/tiktok-trump-messages-ban.html
 
