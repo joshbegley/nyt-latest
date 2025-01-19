@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-pl
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **How a lesson from Joe Mazzulla helped Nate Oats and Alabama beat Kentucky at Rupp Arena**\
 `The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
 https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
