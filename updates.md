@@ -1,3 +1,7 @@
+**Nunez is Liverpool's late, late agent of chaos - whatever his future holds**\
+`The Uruguyan is a frustrating figure but his brace at Brentford showed why Liverpool must persist with him - for now at least`\
+https://nytimes.com/athletic/6071905/2025/01/19/darwin-nunez-liverpool-chaos-late-goal/
+
 **Moses Moody steps into power forward role for Warriors with Draymond Green out**\
 `The Warriors defeated the Wizards 122-114. With Green's injury, Moody will likely have his clearest path to consistent playing time.`\
 https://nytimes.com/athletic/6072447/2025/01/19/moses-moody-warriors-draymond-green-injury/

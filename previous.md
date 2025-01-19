@@ -1,3 +1,7 @@
+**Nunez is Liverpool's late, late agent of chaos - whatever his future holds**\
+`The Uruguyan is a frustrating figure but his brace at Brentford showed why Liverpool must persist with him - for now at least`\
+https://nytimes.com/athletic/6071905/2025/01/19/darwin-nunez-liverpool-chaos-late-goal/
+
 **Moses Moody steps into power forward role for Warriors with Draymond Green out**\
 `The Warriors defeated the Wizards 122-114. With Green's injury, Moody will likely have his clearest path to consistent playing time.`\
 https://nytimes.com/athletic/6072447/2025/01/19/moses-moody-warriors-draymond-green-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071442/2025/01/19/romain-esse-to-crystal-palace-th
 **Arsenal's season is being derailed by a combination of injury and in-game fragility**\
 `The 2-2 draw with Aston Villa means they have dropped 12 points from winning positions this season - eight more than Liverpool`\
 https://nytimes.com/athletic/6060719/2025/01/19/arsenal-injuries-fragility-aston-villa-premier-league/
-
-**Is Neymar's career in epilogue territory? He deserves to be remembered as a great**\
-`Neymar's future is unclear - it seems he's not wanted in Saudi but whatever happens his career is worth celebrating in Brazil and beyond `\
-https://nytimes.com/athletic/6069792/2025/01/19/neymar-brazil-saudi-arabia-mls/
 
