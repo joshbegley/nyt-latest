@@ -1,3 +1,7 @@
+**Commanders at Eagles: How to watch, pick, odds, with Philly opening as a 5-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **Commanders at Eagles: How to watch, pick, odds with Philly opening as a 5-point favorite**\
 `Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
 https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
