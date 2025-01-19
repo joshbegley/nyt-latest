@@ -1,3 +1,7 @@
+**Sean Spicer on Trump 2.0: ‘It’s Going to Be Cataclysmic’**\
+`The former White House press secretary shares his predictions for Trump’s second term.`\
+https://nytimes.com/video/opinion/100000009931177/sean-spicer-trump-president.html
+
 **Israeli attacks continued during a nearly three-hour delay in the cease-fire.**\
 `By Matthew Mpoke Bigg, Isabel Kershner and Hiba Yazbek`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israeli-attacks-continued-during-a-nearly-three-hour-delay-in-the-cease-fire
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/us/politics/trump-billionaires-washington-homes.h
 **How ‘Mufasa: The Lion King’ Became a Sleeper Hit**\
 `The “Lion King” prequel arrived to weak ticket sales last month, but moviegoers have since embraced it, pushing global box office returns toward $700 million.`\
 https://nytimes.com/2025/01/19/business/media/mufasa-lion-king-box-office.html
-
-**Biden Made a Global Push to Constrain China. What Will Trump Do?**\
-`Jake Sullivan, the national security adviser, said in an interview that “we’ve just stuck with our theory, which is managed competition.” Trump and Xi Jinping might have other plans.`\
-https://nytimes.com/2025/01/19/us/politics/biden-trump-china.html
 

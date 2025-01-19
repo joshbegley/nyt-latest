@@ -1,3 +1,7 @@
+**Sean Spicer on Trump 2.0: ‘It’s Going to Be Cataclysmic’**\
+`The former White House press secretary shares his predictions for Trump’s second term.`\
+https://nytimes.com/video/opinion/100000009931177/sean-spicer-trump-president.html
+
 **Israeli attacks continued during a nearly three-hour delay in the cease-fire.**\
 `By Matthew Mpoke Bigg, Isabel Kershner and Hiba Yazbek`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israeli-attacks-continued-during-a-nearly-three-hour-delay-in-the-cease-fire
