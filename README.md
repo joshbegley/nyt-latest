@@ -1,3 +1,7 @@
+**A Trump Party Hosted by Peter Thiel, With All of Silicon Valley**\
+`The party symbolized the euphoria of the tech industry on the cusp of the Trump presidency. The guest list included Mark Zuckerberg, Sam Altman, Miriam Adelson and the vice president-elect, JD Vance.`\
+https://nytimes.com/2025/01/18/us/politics/trump-party-peter-thiel-zuckerberg-vance.html
+
 **Corrections: Jan. 19, 2025**\
 `Corrections that appeared in print on Sunday, Jan. 19, 2025.`\
 https://nytimes.com/2025/01/18/pageoneplus/corrections-jan-19-2025.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate
 **What went wrong for Texans in 23-14 loss to Chiefs: Takeaways**\
 `The Chiefs' pressure thwarted Houston’s attempt to come from behind in the AFC divisional game.`\
 https://nytimes.com/athletic/6071527/2025/01/18/texans-score-result-takeaways-nfl-playoffs/
-
-**Falcons hire the Jets' Jeff Ulbrich as defensive coordinator**\
-`The former New York interim head coach and DC reunites with his friend, Falcons coach Raheem Morris.`\
-https://nytimes.com/athletic/6072197/2025/01/18/jeff-ulbrich-falcons-defensive-coordinator-hiring/
 
