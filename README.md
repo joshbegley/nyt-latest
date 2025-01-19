@@ -1,3 +1,27 @@
+**Aid trucks began moving into Gaza as part of the cease-fire deal.**\
+`By Matthew Mpoke Bigg and Vivian Yee`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/aid-trucks-began-moving-into-gaza-as-part-of-the-cease-fire-deal
+
+**The Briefing: Everton 3-2 Tottenham - How long can Postecoglou survive?**\
+`The major talking points from Goodison Parn analysed after Spurs slumped to another bad defeat`\
+https://nytimes.com/athletic/6071736/2025/01/19/everton-tottenham-premier-league-analysis/
+
+**The Briefing: Man United 1 Brighton 3: Defensive issues, Onana fumble and where does Amorim go from here?**\
+`We break down the talking points from a disappointing defeat for Ruben Amorim's side at Old Trafford.`\
+https://nytimes.com/athletic/6071737/2025/01/19/manchester-united-brighton-premier-league-analysis/
+
+**Practice Makes Perfect Fish**\
+`I’m cooking Kenji López-Alt’s gorgeous Cantonese-style fish this weekend so that I have the technique nailed in time for Lunar New Year.`\
+https://nytimes.com/2025/01/19/dining/cantonese-fish-lunar-new-year.html
+
+**Significant Winter Storm Heads to the Mid-Atlantic and the Northeast**\
+`Heavy snow is expected on Sunday in the Northeast before the coldest air in several years descends across much of the country starting on Monday, forecasters warned.`\
+https://nytimes.com/2025/01/19/weather/snow-winter-storm-northeast-polar-vortex.html
+
+**Israel-Hamas Truce Leaves Big Questions Unresolved for Now**\
+`It remains unclear whether the six-week truce will lead to a permanent cease-fire and the release of the remaining hostages in Gaza, or if fighting will resume.`\
+https://nytimes.com/2025/01/19/world/middleeast/israel-hamas-cease-fire-next-steps.html
+
 **Biden Pardons Five More, Including Late Civil Rights Leader Marcus Garvey**\
 `Civil rights leaders and lawmakers have long said that Mr. Garvey’s 1923 conviction for mail fraud was unjust, arguing that he was targeted for his work.`\
 https://nytimes.com/2025/01/19/us/politics/biden-pardons-marcus-garvey.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/19/technology/trump-tiktok-ban-executive-order.html
 **The Push and Pull of Los Angeles: Beauty and Danger**\
 `Somini Sengupta, a climate reporter who has lived across Los Angeles, reflects on the city, its mythology and its reckoning with disaster.`\
 https://nytimes.com/2025/01/19/us/los-angeles-beauty-danger.html
-
-**The Pulse: A No. 1 seed goes down ... bad**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/6073121/2025/01/19/nfl-commanders-lions-unrivaled-the-pulse/
-
-**Trump returns to D.C. with a full day of pre-inauguration events.**\
-`By Michael D. Shear and Maggie Haberman`\
-https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/trump-returns-to-dc-with-a-full-day-of-pre-inauguration-events
-
-**Nugent-Bowman: Connor McDavid deserves a suspension — but where were the referees?**\
-`It wasn't just Saturday night against the Canucks. The Oilers star hasn't been drawing penalty calls all season.`\
-https://nytimes.com/athletic/6072795/2025/01/19/oilers-canucks-connor-mcdavid-suspension-referees-nhl/
-
-**Gazans greet the cease-fire with joy — and sadness for all that was lost.**\
-`Palestinians race back to the homes they fled, uncertain about what they will find or what lies ahead.`\
-https://nytimes.com/2025/01/19/world/middleeast/gaza-residents-return.html
-
-**An Invitation to Join America? Mr. Douthat, We Canadians ‘Politely Decline.’**\
-`Readers give reasons to turn down Ross Douthat’s invitation. Also: The 2024 election; helping the hurting; reasons not to fly.`\
-https://nytimes.com/2025/01/19/opinion/us-canada-ross-douthat.html
-
-**How to Watch Trump’s Inauguration**\
-`We’ll have more than two dozen reporters and visual journalists covering the events in real time, starting early Monday morning.`\
-https://nytimes.com/2025/01/19/us/politics/trump-inauguration-watch-time-stream.html
 
