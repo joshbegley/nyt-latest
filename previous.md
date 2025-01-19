@@ -1,3 +1,7 @@
+**Trump Aims for Show of Strength as He Returns to Power**\
+`The incoming president has told allies he wants to seize momentum and avoid the missteps of his first administration.`\
+https://nytimes.com/2025/01/19/us/politics/trump-return-power.html
+
 **TikTok’s shutdown notice included a politically attuned message for Trump.**\
 `The ego-stroking message to the man who once famously declared, “I Alone Can Fix It,” was clear.`\
 https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/19/us/los-angeles-wildfires-california/how-to-m
 **Michigan State tops Illinois to remain unbeaten in the Big Ten**\
 `The Spartans' 7-0 start in Big Ten play is their best since the 2018-19 season when they last played in the Final Four.`\
 https://nytimes.com/athletic/6073767/2025/01/19/michigan-state-illinois-big-ten-purdue/
-
-**Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
-`The new business venture by the Trump family is generating intensifying criticism and ethics questions, even as it has turned into an overnight phenomenon, generating a windfall on paper.`\
-https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
 
