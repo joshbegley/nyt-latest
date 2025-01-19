@@ -1,3 +1,7 @@
+**For most hostage families, an agonizing wait for news and reunions goes on.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israel-hostage-families
+
 **Dodgers sign Tanner Scott to 4-year, $72 million deal**\
 `Scott's deal landed him the biggest payday of any reliever in his free-agent class.`\
 https://nytimes.com/athletic/5969529/2025/01/19/tanner-scott-dodgers-contract-free-agency/
