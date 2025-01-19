@@ -1,3 +1,11 @@
+**Open Houses in Los Angeles Take on an Eerie Feeling**\
+`Though thousands of residents who have lost their homes are desperately searching for somewhere to live, potential home buyers are weighing risks.`\
+https://nytimes.com/2025/01/19/realestate/los-angeles-open-houses-wildfires.html
+
+**Bears set to interview Eddie George for head-coaching job: Source**\
+`George, the former Titans star running back, will be the third candidate to interview in person as Chicago ramps up its search.`\
+https://nytimes.com/athletic/6073361/2025/01/19/bears-coach-interview-tennessee-state/
+
 **As Israel loosened its own bombing rules, civilians paid a heavy price.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/as-israel-loosened-its-own-bombing-rules-civilians-paid-a-heavy-price
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/19/business/what-we-know-tiktok.html
 **Hamas Tries to Show It’s Back in Charge of Gaza**\
 `Rarely seen in the open while the war raged, masked and armed fighters spread out publicly through Gaza’s cities in a show of force on Sunday.`\
 https://nytimes.com/2025/01/19/world/middleeast/hamas-in-charge-gaza.html
-
-**How Antonio Conte's free roles for McTominay and Anguissa could win Napoli another title**\
-`The manager has loosened up his tactics and it's working`\
-https://nytimes.com/athletic/6073040/2025/01/19/how-contes-free-roles-for-mctominay-and-anguissa-could-win-napoli-another-title/
-
-**Dele returns to club football with Como**\
-`Former Premier League midfielder Dele Alli has signed a deal with Italian side Como until 2026.`\
-https://nytimes.com/athletic/6029225/2025/01/19/dele-alli-como-transfer/
 

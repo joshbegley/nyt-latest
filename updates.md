@@ -1,3 +1,11 @@
+**Open Houses in Los Angeles Take on an Eerie Feeling**\
+`Though thousands of residents who have lost their homes are desperately searching for somewhere to live, potential home buyers are weighing risks.`\
+https://nytimes.com/2025/01/19/realestate/los-angeles-open-houses-wildfires.html
+
+**Bears set to interview Eddie George for head-coaching job: Source**\
+`George, the former Titans star running back, will be the third candidate to interview in person as Chicago ramps up its search.`\
+https://nytimes.com/athletic/6073361/2025/01/19/bears-coach-interview-tennessee-state/
+
 **As Israel loosened its own bombing rules, civilians paid a heavy price.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/as-israel-loosened-its-own-bombing-rules-civilians-paid-a-heavy-price
