@@ -1,3 +1,7 @@
+**Zay Flowers out for Ravens' divisional round showdown vs. Bills**\
+`The Ravens' leading receiver hasn't taken the field since suffering a knee injury in the regular season finale on Jan. 4.`\
+https://nytimes.com/athletic/6067648/2025/01/19/zay-flowers-knee-injury-practice-divisional-round-ravens-bills/
+
 **Trump Aims for Show of Strength as He Returns to Power**\
 `The incoming president has told allies he wants to seize momentum and avoid the missteps of his first administration.`\
 https://nytimes.com/2025/01/19/us/politics/trump-return-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/arts/dance/lynne-taylor-corbett-dead.html
 **How to make sure your donations count, according to aid organizations.**\
 `By Kate Selig`\
 https://nytimes.com/live/2025/01/19/us/los-angeles-wildfires-california/how-to-make-sure-your-donations-count-according-to-aid-organizations
-
-**Michigan State tops Illinois to remain unbeaten in the Big Ten**\
-`The Spartans' 7-0 start in Big Ten play is their best since the 2018-19 season when they last played in the Final Four.`\
-https://nytimes.com/athletic/6073767/2025/01/19/michigan-state-illinois-big-ten-purdue/
 
