@@ -1,4 +1,8 @@
 **Accused 9/11 Mastermind Agrees to Use of Disputed Confession for Life Sentence**\
+`Lawyers for Khalid Shaikh Mohammed have said for years that the confession was tainted by torture. Mr. Mohammed has now agreed that portions can be used at his sentencing trial if prosecutors agree to settle his case.`\
+https://nytimes.com/2025/01/19/us/politics/khalid-shaikh-mohammed-plea-deal-torture-sept-11.html
+
+**Accused 9/11 Mastermind Agrees to Use of Disputed Confession for Life Sentence**\
 `Lawyers for Khalid Shaikh Mohammed have said for years that parts of the confession were tainted by torture. Mr. Mohammed has now agreed they can be used at his sentencing trial if prosecutors agree to settle his case.`\
 https://nytimes.com/2025/01/19/us/politics/khalid-shaikh-mohammed-plea-deal-torture-sept-11.html
 
