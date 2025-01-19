@@ -1,3 +1,7 @@
+**TikTok’s shutdown notice included a politically attuned message for Trump.**\
+`The ego-stroking message to the man who once famously declared, “I Alone Can Fix It,” was clear.`\
+https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
+
 **Washington guard Sam Cosmi out for playoffs with torn ACL**\
 `Washington's red-hot offensive line loses Cosmi after he allowed just one sack all season.`\
 https://nytimes.com/athletic/6073748/2025/01/19/commanders-sam-cosmi-acl-injury-season-over/
