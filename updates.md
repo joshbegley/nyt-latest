@@ -1,3 +1,7 @@
+**Prada Creates Genuine Pants Anxiety**\
+`In the label’s sexiest men’s runway show in recent memory, tight trousers waged a comeback.`\
+https://nytimes.com/2025/01/19/style/prada-mens-fashion-tight-pants-milan.html
+
 **What’s With All the Dancing at Fashion Shows?**\
 `In Milan, arty dance routines seemed more prevalent than runway shows, as fashion houses aimed to give their audiences something — anything — to Instagram about.`\
 https://nytimes.com/2025/01/19/style/milan-mens-fashion-week-dance.html
