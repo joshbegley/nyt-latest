@@ -1,4 +1,4 @@
-**Hamas Names First 3 Hostages to Be Freed Under Cease-Fire**\
+**First 3 Israeli Hostages to Be Freed Under Gaza Cease-Fire Are Named**\
 `Thirty-three people will be released during the first 6-week phase, including female soldiers and civilians, children and men over 50. Here is a look at those expected to be released on Sunday.`\
 https://nytimes.com/2025/01/19/world/middleeast/hostages-emily-tamari-doron-steinbrecher-romi-gonen.html
 
