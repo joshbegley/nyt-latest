@@ -1,5 +1,5 @@
 **The Briefing: Ipswich 0 Manchester City 6: Phil Foden and City rediscover the old magic**\
-`Manchester City romped to a 6-0 victory at Ipswich to move back into the Premier League's top four for the first time since early December`\
+`Manchester City thrashed Ipswich to move back into the Premier League's top four for the first time since early December`\
 https://nytimes.com/athletic/6071739/2025/01/19/ipswich-0-manchester-city-6-phil-foden/
 
 **In the United States, Users React to Life (Briefly) Without TikTok**\
