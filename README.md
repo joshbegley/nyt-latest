@@ -1,15 +1,3 @@
-**Washington guard Sam Cosmi out for playoffs with torn ACL**\
-`Washington's red-hot offensive line loses Cosmi after he allowed just one sack all season.`\
-https://nytimes.com/athletic/6073748/2025/01/19/commanders-sam-cosmi-acl-injury-season-over/
-
-**Perez re-elected Real Madrid president, three new board members added**\
-`Former Wolfsburg chairman Francisco Garcia Sanz has joined Real Madrid&#8217;s board in one of three executive additions following president Florentino Perez&#8217;s re-election.`\
-https://nytimes.com/athletic/6073723/2025/01/19/real-madrid-president-board/
-
-**TikTok Butters Up Trump, Again and Again**\
-`The app has repeatedly name checked the president-elect in pop-up messages and statements, as it navigates a ban in the United States unless it is sold to a non-Chinese owner.`\
-https://nytimes.com/2025/01/19/technology/tiktok-trump-messages-ban.html
-
 **White House changes hands and so do fortunes for lobbyists in Washington.**\
 `By Elisabeth Bumiller and Kenneth P. Vogel`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/white-house-changes-hands-and-so-do-fortunes-for-lobbyists-in-washington
@@ -37,4 +25,16 @@ https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
 **What’s behind the uneven exchange of Israeli hostages for Palestinian prisoners?**\
 `By Ephrat Livni and Aaron Boxerman`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/whats-behind-the-uneven-exchange-of-israeli-hostages-for-palestinian-prisoners
+
+**David Schneiderman, Village Voice Editor and Publisher, Dies at 77**\
+`Named editor in chief of the venerable alternative weekly in 1978, he was not welcomed with open arms. But his commitment to strong journalism won people over.`\
+https://nytimes.com/2025/01/19/business/media/david-schneiderman-dead.html
+
+**CFP officials ask conference commissioners to review 12-team Playoff format**\
+`Any format changes in 2025 would require a unanimous vote by the FBS conferences and Notre Dame.`\
+https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-changes/
+
+**Monday Briefing: A Gaza Cease-Fire Begins**\
+`Plus, how Oscar contenders are rethinking sex scenes.`\
+https://nytimes.com/2025/01/19/briefing/gaza-cease-fire-tik-tok-ban-trump-inauguration.html
 
