@@ -1,3 +1,7 @@
+**Texans can't take next step, beat themselves in divisional round loss to Chiefs**\
+`You have to be all but perfect to upset Patrick Mahomes and the Chiefs at Arrowhead. The Texans were far from it.`\
+https://nytimes.com/athletic/6072405/2025/01/18/texans-chiefs-penalties-cj-stroud/
+
 **Blue Jackets' Daniil Tarasov records first career shutout in loss, makes NHL history**\
 `Tarasov became the first goaltender in NHL history to record his first career shutout and suffer a loss in the same game.
 `\
@@ -13,7 +17,7 @@ https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-anal
 https://nytimes.com/athletic/6072323/2025/01/18/teddy-bridgewater-lions-nfl-return-score/
 
 **TikTok Starts Going Dark in the U.S.**\
-`The popular video app stopped working shortly after signaling to users it might go offline, with a federal law barring U.S. companies from hosting or distributing TikTok set to take effect on Sunday.`\
+`The popular video app stopped working shortly before a federal law barring U.S. companies from hosting or distributing TikTok was set to take effect on Sunday.`\
 https://nytimes.com/2025/01/18/technology/tiktok-ban.html
 
 **Penguins, Capitals continue to move in different directions: Observations**\
@@ -35,9 +39,4 @@ https://nytimes.com/athletic/6072240/2025/01/18/texans-chiefs-controversial-pena
 **Wisconsin alleges Miami had impermissible contact with Xavier Lucas**\
 `The NCAA requires schools to adhere to a player’s transfer request, but Lucas' name never appeared in the portal.`\
 https://nytimes.com/athletic/6071080/2025/01/18/xavier-lucas-transfer-portal-miami-wisconsin/
-
-**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
-`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
-`\
-https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
