@@ -1,3 +1,7 @@
+**Novak Djokovic will not do on-court interviews at Australian Open after 'disrespect' from TV presenter**\
+`MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “disrespect” from an Australian television presenter.`\
+https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-interviews-channel-9-tony-jones/
+
 **As Truce Takes Hold, Gazans and Israelis Express Elation Tinged With Doubt**\
 `After 470 days of death, a tentative cease-fire began on Sunday in Gaza. But Palestinians could not be sure that the war had ended, and Israelis fear that many hostages will still remain in Gaza.`\
 https://nytimes.com/2025/01/19/world/middleeast/gaza-israel-mood.html
