@@ -1,3 +1,11 @@
+**The fire chief in L.A. warned years ago of a ‘weakness’ in wildfire response.**\
+`The memo revealed that L`\
+https://nytimes.com/live/2025/01/18/us/los-angeles-wildfires-california/the-fire-chief-in-la-warned-years-ago-of-a-weakness-in-wildfire-response
+
+**Four top-10 teams fall on Saturday, 17 Top-25 teams have suffered a loss this week**\
+`Vanderbilt, which won nine games last season, improved to 15-3 overall and 3-2 in the SEC.`\
+https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upsets/
+
 **Powerful Santa Ana Winds Expected to Elevate Fire Risk in Southern California**\
 `Meteorologists said there was a chance the winds would be as severe as those that fueled the Palisades and Eaton fires, but that different locations would likely be affected.`\
 https://nytimes.com/2025/01/18/weather/santa-ana-winds-wildfire-california.html
