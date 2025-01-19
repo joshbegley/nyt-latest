@@ -1,3 +1,7 @@
+**Dodgers sign Tanner Scott to 4-year, $72 million deal**\
+`Scott's deal landed him the biggest payday of any reliever in his free-agent class.`\
+https://nytimes.com/athletic/5969529/2025/01/19/tanner-scott-dodgers-contract-free-agency/
+
 **Melba Montgomery, Country Singer Known for Her Duets, Dies at 86**\
 `Her high harmonies put an emotional charge into her work with George Jones and others. She also had solo hits, including “No Charge,” a country No. 1.`\
 https://nytimes.com/2025/01/19/arts/music/melba-montgomery-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/us/politics/biden-pardons-marcus-garvey.html
 **Lowetide: Setting up the Oilers' 2025 spring amateur signing season**\
 `For a few reasons, the Oilers can't afford a false spring in identifying and signing quality amateur talent.`\
 https://nytimes.com/athletic/6071667/2025/01/19/edmonton-oilers-2025-amateur-signings/
-
-**Trump Says He Will Sign Executive Order to Stall TikTok Ban**\
-`The social media app went dark late Saturday as a federal law went into effect requiring a sale or ban.`\
-https://nytimes.com/2025/01/19/technology/trump-tiktok-ban-executive-order.html
 

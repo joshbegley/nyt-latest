@@ -1,3 +1,7 @@
+**Dodgers sign Tanner Scott to 4-year, $72 million deal**\
+`Scott's deal landed him the biggest payday of any reliever in his free-agent class.`\
+https://nytimes.com/athletic/5969529/2025/01/19/tanner-scott-dodgers-contract-free-agency/
+
 **Melba Montgomery, Country Singer Known for Her Duets, Dies at 86**\
 `Her high harmonies put an emotional charge into her work with George Jones and others. She also had solo hits, including “No Charge,” a country No. 1.`\
 https://nytimes.com/2025/01/19/arts/music/melba-montgomery-dead.html
