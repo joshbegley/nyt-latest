@@ -1,3 +1,11 @@
+**Moses Moody steps into power forward role for Warriors with Draymond Green out**\
+`The Warriors defeated the Wizards 122-114. With Green's injury, Moody will likely have his clearest path to consistent playing time.`\
+https://nytimes.com/athletic/6072447/2025/01/19/moses-moody-warriors-draymond-green-injury/
+
+**Why ongoing J.T. Miller trade saga overshadowed Canucks' solid win: 3 takeaways**\
+`Saturday's impressive Canucks victory felt more like a fun last ride for a once-promising core that seems bound for a breakup.`\
+https://nytimes.com/athletic/6072474/2025/01/19/canucks-oilers-jt-miller-trade-saga-3-takeaways/
+
 **Inside Alaba's return: 399 days out, holidays with physio and inspirational bench role**\
 `Alaba is set to feature today after a long spell on the sidelines with an ACL injury. This is the full story of his recovery`\
 https://nytimes.com/athletic/6069881/2025/01/19/david-alaba-real-madrid-acl-return/
