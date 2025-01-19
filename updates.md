@@ -1,3 +1,11 @@
+**White House changes hands and so do fortunes for lobbyists in Washington.**\
+`By Elisabeth Bumiller and Kenneth P. Vogel`\
+https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/white-house-changes-hands-and-so-do-fortunes-for-lobbyists-in-washington
+
+**TikTok Ban Behind Fire Set at a Mall With Congressman’s Office, Police Say**\
+`No one was injured. The building, which includes a district office of a Wisconsin congressman who has been a critic of TikTok, sustained moderate damage in the fire on Sunday.`\
+https://nytimes.com/2025/01/19/us/wisconsin-arson-tiktok-ban.html
+
 **Lynne Taylor-Corbett, ‘Footloose’ Choreographer, Dies at 78**\
 `Striving to widen the audience of dance, she brought vitality to Broadway musicals like “Swing!” as well as ballets and Hollywood films.`\
 https://nytimes.com/2025/01/19/arts/dance/lynne-taylor-corbett-dead.html

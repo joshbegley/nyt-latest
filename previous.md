@@ -1,3 +1,11 @@
+**White House changes hands and so do fortunes for lobbyists in Washington.**\
+`By Elisabeth Bumiller and Kenneth P. Vogel`\
+https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/white-house-changes-hands-and-so-do-fortunes-for-lobbyists-in-washington
+
+**TikTok Ban Behind Fire Set at a Mall With Congressman’s Office, Police Say**\
+`No one was injured. The building, which includes a district office of a Wisconsin congressman who has been a critic of TikTok, sustained moderate damage in the fire on Sunday.`\
+https://nytimes.com/2025/01/19/us/wisconsin-arson-tiktok-ban.html
+
 **Lynne Taylor-Corbett, ‘Footloose’ Choreographer, Dies at 78**\
 `Striving to widen the audience of dance, she brought vitality to Broadway musicals like “Swing!” as well as ballets and Hollywood films.`\
 https://nytimes.com/2025/01/19/arts/dance/lynne-taylor-corbett-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-
 **Monday Briefing: A Gaza Cease-Fire Begins**\
 `Plus, how Oscar contenders are rethinking sex scenes.`\
 https://nytimes.com/2025/01/19/briefing/gaza-cease-fire-tik-tok-ban-trump-inauguration.html
-
-**Raiders next regime hiring could be accelerated after Lions' early playoff exit**\
-`Ben Johnson, believed to be the top target, can now conduct an in-person interview as soon as Monday after Detroit's season ended Saturday.`\
-https://nytimes.com/athletic/6073431/2025/01/19/raiders-coach-gm-hiring-update-timeline/
-
-**Guardiola: Foden 'happy again' after recent scoring run**\
-`Pep Guardiola says he is pleased to see Phil Foden &#8220;happy again&#8221; after the midfielder scored two goals for the second time in the space of six days during Sunday&#8217;s win over Ipswich Town.`\
-https://nytimes.com/athletic/6073641/2025/01/19/phil-foden-pep-guardiola-form/
 
