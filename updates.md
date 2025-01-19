@@ -1,3 +1,7 @@
+**Learner Tien, Alex Michelsen and the bootcamp propelling them through the Australian Open**\
+`There are three American men aged 23 and under in the second week of a Grand Slam. That hasn't happened since 2003`\
+https://nytimes.com/athletic/6071514/2025/01/19/learner-tien-australian-open-alex-michelsen-american-tennis/
+
 **Man United making progress in talks over Antony loan to Real Betis**\
 `Manchester United are making progress in talks over winger Antony’s proposed loan move to Real Betis.`\
 https://nytimes.com/athletic/6069215/2025/01/19/antony-manchester-united-transfers-betis/
