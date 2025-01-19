@@ -1,3 +1,7 @@
+**Dele returns to club football with Como**\
+`Former Premier League midfielder Dele Alli has signed a deal with Italian side Como until 2026.`\
+https://nytimes.com/athletic/6029225/2025/01/19/dele-alli-como-transfer/
+
 **For most hostage families, an agonizing wait for news and reunions goes on.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israel-hostage-families
