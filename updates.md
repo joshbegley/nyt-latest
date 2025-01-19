@@ -1,3 +1,15 @@
+**Alabama feasts on Kentucky defense, regains its swagger with big win in Lexington**\
+`The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
+https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
+
+**What went wrong for Texans in 23-14 loss to Chiefs: Takeaways**\
+`The Chiefs' pressure thwarted Houston’s attempt to come from behind.`\
+https://nytimes.com/athletic/6071527/2025/01/18/texans-score-result-takeaways-nfl-playoffs/
+
+**Falcons hire the Jets' Jeff Ulbrich as defensive coordinator**\
+`The former New York interim head coach and DC reunites with his friend, Falcons coach Raheem Morris.`\
+https://nytimes.com/athletic/6072197/2025/01/18/jeff-ulbrich-falcons-defensive-coordinator-hiring/
+
 **Get Your Scorecards: Global Opportunities for Trump the Deal Maker**\
 `President-elect Donald J. Trump has made big promises on Ukraine, Iran, China and crises around the globe. But he will have to make difficult choices.`\
 https://nytimes.com/2025/01/18/us/politics/trump-deal-maker.html
