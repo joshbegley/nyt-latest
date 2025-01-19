@@ -1,3 +1,7 @@
+**Guardiola: Foden 'happy again' after recent scoring run**\
+`Pep Guardiola says he is pleased to see Phil Foden &#8220;happy again&#8221; after the midfielder scored two goals for the second time in the space of six days during Sunday&#8217;s win over Ipswich Town.`\
+https://nytimes.com/athletic/6073641/2025/01/19/phil-foden-pep-guardiola-form/
+
 **Instagram Debuts New Video-Editing App, as TikTok Deals With a Ban**\
 `Instagram on Sunday rolled out Edits, a video-editing product that appeared similar to CapCut, which is owned by TikTok’s parent company, ByteDance.`\
 https://nytimes.com/2025/01/19/technology/instagram-video-app-tiktok-ban.html

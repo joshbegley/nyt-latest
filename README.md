@@ -1,3 +1,7 @@
+**Raiders next regime hiring could be accelerated after Lions' early playoff exit**\
+`Ben Johnson, believed to be the top target, can now conduct an in-person interview as soon as Monday after Detroit's season ended Saturday.`\
+https://nytimes.com/athletic/6073431/2025/01/19/raiders-coach-gm-hiring-update-timeline/
+
 **Guardiola: Foden 'happy again' after recent scoring run**\
 `Pep Guardiola says he is pleased to see Phil Foden &#8220;happy again&#8221; after the midfielder scored two goals for the second time in the space of six days during Sunday&#8217;s win over Ipswich Town.`\
 https://nytimes.com/athletic/6073641/2025/01/19/phil-foden-pep-guardiola-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072958/2025/01/19/blue-jackets-nhl-playoffs-stadiu
 **The Briefing: Ipswich 0 Manchester City 6: Phil Foden and City rediscover the old magic**\
 `Manchester City thrashed Ipswich to move back into the Premier League's top four for the first time since early December`\
 https://nytimes.com/athletic/6071739/2025/01/19/ipswich-0-manchester-city-6-phil-foden/
-
-**In the United States, Users React to Life (Briefly) Without TikTok**\
-`The app went dark nationwide on Saturday night, but the company indicated it was in the process of restoring the service after assurances from President-elect Donald J. Trump.`\
-https://nytimes.com/2025/01/19/style/tiktok-reaction.html
 

@@ -1,3 +1,7 @@
+**Guardiola: Foden 'happy again' after recent scoring run**\
+`Pep Guardiola says he is pleased to see Phil Foden &#8220;happy again&#8221; after the midfielder scored two goals for the second time in the space of six days during Sunday&#8217;s win over Ipswich Town.`\
+https://nytimes.com/athletic/6073641/2025/01/19/phil-foden-pep-guardiola-form/
+
 **Instagram Debuts New Video-Editing App, as TikTok Deals With a Ban**\
 `Instagram on Sunday rolled out Edits, a video-editing product that appeared similar to CapCut, which is owned by TikTok’s parent company, ByteDance.`\
 https://nytimes.com/2025/01/19/technology/instagram-video-app-tiktok-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071739/2025/01/19/ipswich-0-manchester-city-6-phil
 **In the United States, Users React to Life (Briefly) Without TikTok**\
 `The app went dark nationwide on Saturday night, but the company indicated it was in the process of restoring the service after assurances from President-elect Donald J. Trump.`\
 https://nytimes.com/2025/01/19/style/tiktok-reaction.html
-
-**Open Houses in Los Angeles Take on an Eerie Feeling**\
-`Though thousands of residents who have lost their homes are desperately searching for somewhere to live, potential home buyers are weighing risks.`\
-https://nytimes.com/2025/01/19/realestate/los-angeles-open-houses-wildfires.html
 
