@@ -1,3 +1,7 @@
+**The Commanders are a win away from the Super Bowl. Let that marinate for a bit**\
+`The Commanders, who were 4-13 a year ago, a franchise of ill repute for a generation, are going to the NFC Championship Game next Sunday.`\
+https://nytimes.com/athletic/6072041/2025/01/19/commanders-a-win-away-from-the-super-bowl/
+
 **Oilers' McDavid faces likely suspension after cross-checking Canucks' Garland**\
 `The captain was assessed a match penalty for the incident, which comes with an automatic suspension pending a review by the commissioner.`\
 https://nytimes.com/athletic/6072628/2025/01/19/connor-mcdavid-suspension-penalty-oilers/
