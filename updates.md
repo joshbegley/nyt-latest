@@ -1,3 +1,12 @@
+**Penguins, Capitals continue to move in different directions: Observations**\
+`The Penguins and Capitals renewed arguably the highest-profile rivalry of the salary-cap era on Saturday night.`\
+https://nytimes.com/athletic/6072329/2025/01/18/penguins-capitals-crosby-ovechkin-observations/
+
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
 `The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
 `\
