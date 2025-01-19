@@ -1,3 +1,43 @@
+**Texas Has a Perverse Idea of Religious Freedom**\
+`MAGA’s cruelty toward immigrants and its disregard for civil liberties are on full display in the Lone Star State.`\
+https://nytimes.com/2025/01/19/opinion/texas-catholic-immigration-paxton.html
+
+**Kyle MacLachlan: How David Lynch Invented Me**\
+`How could words possibly do justice to an experience like that?`\
+https://nytimes.com/2025/01/19/opinion/kyle-maclachlan-david-lynch.html
+
+**I’m a 17-Year-Old TikTok Junkie. I Need This Ban.**\
+`What worries me most right now is the future of my generation.`\
+https://nytimes.com/2025/01/19/opinion/tiktok-ban-teenagers.html
+
+**Trump Barely Won the Election. Why Doesn’t It Feel That Way?**\
+`The president-elect’s cultural victory has lapped his political victory.`\
+https://nytimes.com/2025/01/19/opinion/trump-mandate-zuckerberg-masculinity.html
+
+**‘We’d Have Been Better Off if Trump Won in 2020’: Three Columnists Brace for the First 100 Days**\
+`What kind of disruptions does America need? And what will Trump not actually follow through on?`\
+https://nytimes.com/2025/01/19/opinion/trump-second-term.html
+
+**Sean Spicer Has Regrets. But He Still Believes in Trump.**\
+`A former White House press secretary shares his predictions for Trump’s second term.`\
+https://nytimes.com/2025/01/19/opinion/sean-spicer-trump-president.html
+
+**The Sunday Read: ‘Opioids Ravaged a Kentucky Town. Then Rehab Became Its Business.’**\
+`In Louisa, Ky., an unbearable social crisis has become the main source of economic opportunity.`\
+https://nytimes.com/2025/01/19/podcasts/the-daily/the-sunday-read-opioids-ravaged-a-kentucky-town-then-rehab-became-its-business.html
+
+**There Is No Way to Retreat From the Risk of Wildfires**\
+`Some more realistic ways to think about the challenges ahead.`\
+https://nytimes.com/2025/01/19/opinion/los-angeles-wildfires-burn.html
+
+**Checking In on America’s Vibes as Trump Takes the Stage**\
+`After Trump won, Americans seem to have traded anger for hope.`\
+https://nytimes.com/interactive/2025/01/19/opinion/democrat-republican-post-election-vibes-mood.html
+
+**The Connections Companion No. 589**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 20, 2025.`\
+https://nytimes.com/2025/01/19/crosswords/connections-companion-589.html
+
 **Sean Spicer on Trump 2.0: ‘It’s Going to Be Cataclysmic’**\
 `The former White House press secretary shares his predictions for Trump’s second term.`\
 https://nytimes.com/video/opinion/100000009931177/sean-spicer-trump-president.html
