@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6069352/2025/01/19/the-purples-who-support-man-utd-
 https://nytimes.com/athletic/6071552/2025/01/19/commanders-score-result-takeaways-nfl-playoffs/
 
 **What's next for Lions after turnovers sink Detroit in divisional loss to Commanders: Key takeaways**\
-`Lions committed five turnovers and had no answers for Jayden Daniels,`\
+`Lions committed five turnovers and had no answers for Jayden Daniels in the NFC divisional round playoff game. `\
 https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl-playoffs/
 
