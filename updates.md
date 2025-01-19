@@ -1,3 +1,7 @@
+**The Pulse: A No. 1 seed goes down ... bad**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6073121/2025/01/19/nfl-commanders-lions-unrivaled-the-pulse/
+
 **Trump returns to D.C. with a full day of pre-inauguration events.**\
 `By Michael D. Shear and Maggie Haberman`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/trump-returns-to-dc-with-a-full-day-of-pre-inauguration-events

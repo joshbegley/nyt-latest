@@ -1,3 +1,7 @@
+**The Pulse: A No. 1 seed goes down ... bad**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6073121/2025/01/19/nfl-commanders-lions-unrivaled-the-pulse/
+
 **Trump returns to D.C. with a full day of pre-inauguration events.**\
 `By Michael D. Shear and Maggie Haberman`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/trump-returns-to-dc-with-a-full-day-of-pre-inauguration-events
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072708/2025/01/19/celtics-slump-hawks-loss-nba/
 **The Wild have 'got to act fast' before slide continues**\
 `Saturday's loss isn't a reason to sound the alarms, but there should be a little concern about the way things are trending.`\
 https://nytimes.com/athletic/6072580/2025/01/19/wild-loss-predators/
-
-**Dissecting Justin Kluivert's incredible performance and hat-trick against Newcastle**\
-`The Dutchman scored a second hat-trick of the season, but on top of the goals, his overall display showed his development.`\
-https://nytimes.com/athletic/6072643/2025/01/19/justin-kluivert-hat-trick-newcastle/
 
