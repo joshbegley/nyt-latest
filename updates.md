@@ -1,3 +1,12 @@
+**TikTok Starts Going Dark in the U.S.**\
+`The popular video app stopped working shortly after signaling to users it might go offline, with a federal law barring U.S. companies from hosting or distributing TikTok set to take effect on Sunday.`\
+https://nytimes.com/2025/01/18/technology/tiktok-ban.html
+
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
 `The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
 `\

@@ -2,8 +2,8 @@
 `Bridgewater handed the ball off to Jameson Williams, who broke free and ran for 61 yards and the TD in the second quarter.`\
 https://nytimes.com/athletic/6072323/2025/01/18/teddy-bridgewater-lions-nfl-return-score/
 
-**TikTok Tells Users It Will Be ‘Temporarily Unavailable’ in the U.S.**\
-`The popular video app displayed a message signaling it might go offline, with a federal law barring U.S. companies from hosting or distributing TikTok set to take effect on Sunday.`\
+**TikTok Starts Going Dark in the U.S.**\
+`The popular video app stopped working shortly after signaling to users it might go offline, with a federal law barring U.S. companies from hosting or distributing TikTok set to take effect on Sunday.`\
 https://nytimes.com/2025/01/18/technology/tiktok-ban.html
 
 **Penguins, Capitals continue to move in different directions: Observations**\
