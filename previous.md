@@ -1,3 +1,7 @@
+**First 3 Israeli Hostages to Be Freed Under Gaza Cease-Fire Are Named**\
+`Thirty-three people will be released during the first 6-week phase, including female soldiers and civilians, children and men over 50. Here is a look at those expected to be released on Sunday.`\
+https://nytimes.com/2025/01/19/world/middleeast/hostages-emily-tamari-doron-steinbrecher-romi-gonen.html
+
 **Texas Has a Perverse Idea of Religious Freedom**\
 `MAGA’s cruelty toward immigrants and its disregard for civil liberties are on full display in the Lone Star State.`\
 https://nytimes.com/2025/01/19/opinion/texas-catholic-immigration-paxton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/opinion/los-angeles-wildfires-burn.html
 **Checking In on America’s Vibes as Trump Takes the Stage**\
 `After Trump won, Americans seem to have traded anger for hope.`\
 https://nytimes.com/interactive/2025/01/19/opinion/democrat-republican-post-election-vibes-mood.html
-
-**The Connections Companion No. 589**\
-`Scroll down for hints and conversation about the puzzle for Monday, Jan. 20, 2025.`\
-https://nytimes.com/2025/01/19/crosswords/connections-companion-589.html
 
