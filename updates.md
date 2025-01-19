@@ -1,3 +1,7 @@
+**Instagram Debuts New Video-Editing App, as TikTok Deals With a Ban**\
+`Instagram on Sunday rolled out Edits, a video-editing product that appeared similar to CapCut, which is owned by TikTok’s parent company, ByteDance.`\
+https://nytimes.com/2025/01/19/technology/instagram-video-app-tiktok-ban.html
+
 **Prada Creates Genuine Pants Anxiety**\
 `In the label’s sexiest men’s runway show in recent memory, tight trousers waged a comeback.`\
 https://nytimes.com/2025/01/19/style/prada-mens-fashion-tight-pants-milan.html
