@@ -1,3 +1,7 @@
+**Commanders quiet doubters, lock up spot in NFC Championship: 'It’s a feeling like no other'**\
+`If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed did the trick. `\
+https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
+
 **Dissecting Justin Kluivert's incredible performance and hat-trick against Newcastle**\
 `The Dutchman scored a second hat-trick of the season, but on top of the goals, his overall display showed his development.`\
 https://nytimes.com/athletic/6072643/2025/01/19/justin-kluivert-hat-trick-newcastle/
