@@ -1,3 +1,7 @@
+**Nugent-Bowman: Connor McDavid deserves a suspension — but where were the referees?**\
+`It wasn't just Saturday night against the Canucks. The Oilers star hasn't been drawing penalty calls all season.`\
+https://nytimes.com/athletic/6072795/2025/01/19/oilers-canucks-connor-mcdavid-suspension-referees-nhl/
+
 **Gazans greet the cease-fire with joy — and sadness for all that was lost.**\
 `Palestinians race back to the homes they fled, uncertain about what they will find or what lies ahead.`\
 https://nytimes.com/2025/01/19/world/middleeast/gaza-residents-return.html

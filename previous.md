@@ -1,3 +1,7 @@
+**Nugent-Bowman: Connor McDavid deserves a suspension — but where were the referees?**\
+`It wasn't just Saturday night against the Canucks. The Oilers star hasn't been drawing penalty calls all season.`\
+https://nytimes.com/athletic/6072795/2025/01/19/oilers-canucks-connor-mcdavid-suspension-referees-nhl/
+
 **Gazans greet the cease-fire with joy — and sadness for all that was lost.**\
 `Palestinians race back to the homes they fled, uncertain about what they will find or what lies ahead.`\
 https://nytimes.com/2025/01/19/world/middleeast/gaza-residents-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072643/2025/01/19/justin-kluivert-hat-trick-newcas
 **Fearing Deportation, Uyghurs Held in Thailand Go on Hunger Strike**\
 `Dozens of men from the ethnic minority sought escape from repression in China a decade ago, but have been detained in Thailand ever since.`\
 https://nytimes.com/2025/01/19/world/asia/uyghurs-thailand-hunger-strike.html
-
-**Djokovic refuses Australian Open on-court interview after 'insulting and offensive' comments**\
-`MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “insulting and offensive comments” from an Australian television presenter.`\
-https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-interviews-channel-9-tony-jones/
 
