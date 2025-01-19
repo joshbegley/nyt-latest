@@ -1,3 +1,7 @@
+**Zay Flowers out for Ravens' divisional round showdown vs. Bills**\
+`The Ravens' leading receiver hasn't taken the field since suffering a knee injury in the regular season finale on Jan. 4.`\
+https://nytimes.com/athletic/6067648/2025/01/19/zay-flowers-knee-injury-practice-divisional-round-ravens-bills/
+
 **Trump Aims for Show of Strength as He Returns to Power**\
 `The incoming president has told allies he wants to seize momentum and avoid the missteps of his first administration.`\
 https://nytimes.com/2025/01/19/us/politics/trump-return-power.html
