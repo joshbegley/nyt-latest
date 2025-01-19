@@ -1,3 +1,15 @@
+**A Flag From Four Years Ago**\
+`At President Biden’s inauguration in 2021, nearly 200,000 American flags filled the National Mall. Visitors were invited to take them.`\
+https://nytimes.com/2025/01/19/insider/a-flag-from-four-years-ago.html
+
+**Heinz Kluetmeier, Inventive Sports Photographer, Dies at 82**\
+`His work for Sports Illustrated included the renowned cover photo of the United States men’s hockey team celebrating their upset win at the 1980 Winter Olympics.`\
+https://nytimes.com/2025/01/19/sports/heinz-kluetmeier-dead.html
+
+**Blue Jackets Sunday Gathering: Is playoff push real? Two-week road stretch may determine**\
+`The Blue Jackets are underway in a key stretch that could go a long way in deciding whether their fans are doing “playoff math” this spring.`\
+https://nytimes.com/athletic/6072958/2025/01/19/blue-jackets-nhl-playoffs-stadium-series/
+
 **The Briefing: Ipswich 0 Manchester City 6: Phil Foden and City rediscover the old magic**\
 `Manchester City thrashed Ipswich to move back into the Premier League's top four for the first time since early December`\
 https://nytimes.com/athletic/6071739/2025/01/19/ipswich-0-manchester-city-6-phil-foden/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6073373/2025/01/19/kaoru-mitoma-brighton-manchester
 **Long-Awaited Cease-Fire Between Hamas and Israel Takes Effect**\
 `Hamas released three hostages after more than 15 months of captivity, while residents of the Gaza Strip celebrated a long-awaited respite from the war.`\
 https://nytimes.com/video/world/middleeast/100000009935991/gaza-hamas-israel-ceasefire-hostages-.html
-
-**Adams Accuses Former Prosecutor of Bringing Case to Help His Own Career**\
-`A lawyer for Mayor Eric Adams argued in court documents that Damian Williams, the former federal prosecutor who charged the mayor with bribery, had brought the case for his own political benefit.`\
-https://nytimes.com/2025/01/19/nyregion/eric-adams-lawyer-accusations-prosecutor-corruption-case.html
-
-**Tottenham's Solanke and Johnson out for 'weeks' with injuries**\
-`Ange Postecoglou says Dominic Solanke and Brennan Johnson are both set to be sidelined for a number of weeks through injury.`\
-https://nytimes.com/athletic/6073344/2025/01/19/tottenham-injuries-solanke-johnson-latest/
-
-**Amorim: 'We are being maybe the worst team in the history of Man Utd'**\
-`Ruben Amorim called his Manchester United side &#8220;maybe the worst team in the history&#8221; of the club after they fell to yet another defeat in the Premier League, this time at the hands of Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/6073311/2025/01/19/manchester-united-ruben-amorim-worst-team/
 
