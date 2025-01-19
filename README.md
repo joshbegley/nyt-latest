@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6069352/2025/01/19/the-purples-who-support-man-utd-
 `Washington followed its first playoff win since the 2005 season with a historic divisional upset against Detroit on the road.`\
 https://nytimes.com/athletic/6071552/2025/01/19/commanders-score-result-takeaways-nfl-playoffs/
 
-**What went wrong for the Lions in 45-31 loss to Commanders: Takeaways**\
+**What's next for Lions after turnovers sink Detroit in divisional loss to Commanders: Key takeaways**\
 `Lions committed five turnovers and had no answers for Jayden Daniels,`\
 https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl-playoffs/
 
