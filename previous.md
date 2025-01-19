@@ -1,3 +1,11 @@
+**A Major Change in College Football**\
+`General managers — once purely the domain of professional sports — are taking over.`\
+https://nytimes.com/2025/01/19/briefing/college-football-general-managers.html
+
+**Lindsey Vonn crashes while on pace for podium finish in Super-G at 2026 Olympic venue**\
+`On Sunday, Lindsey Vonn had the first setback in her strong return to alpine skiing, crashing while on pace for a top-three Super-G finish.`\
+https://nytimes.com/athletic/6072868/2025/01/19/lindsey-vonn-crashes-super-g-cortina-olympics/
+
 **Commanders quiet doubters, lock up spot in NFC championship: 'It’s a feeling like no other'**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed indeed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/19/opinion/trump-mandate-zuckerberg-masculinity.html
 **‘We’d Have Been Better Off if Trump Won in 2020’: Three Columnists Brace for the First 100 Days**\
 `What kind of disruptions does America need? And what will Trump not actually follow through on?`\
 https://nytimes.com/2025/01/19/opinion/trump-second-term.html
-
-**Sean Spicer Has Regrets. But He Still Believes in Trump.**\
-`A former White House press secretary shares his predictions for Trump’s second term.`\
-https://nytimes.com/2025/01/19/opinion/sean-spicer-trump-president.html
-
-**The Sunday Read: ‘Opioids Ravaged a Kentucky Town. Then Rehab Became Its Business.’**\
-`In Louisa, Ky., an unbearable social crisis has become the main source of economic opportunity.`\
-https://nytimes.com/2025/01/19/podcasts/the-daily/the-sunday-read-opioids-ravaged-a-kentucky-town-then-rehab-became-its-business.html
 

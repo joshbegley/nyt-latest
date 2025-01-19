@@ -1,3 +1,11 @@
+**A Major Change in College Football**\
+`General managers — once purely the domain of professional sports — are taking over.`\
+https://nytimes.com/2025/01/19/briefing/college-football-general-managers.html
+
+**Lindsey Vonn crashes while on pace for podium finish in Super-G at 2026 Olympic venue**\
+`On Sunday, Lindsey Vonn had the first setback in her strong return to alpine skiing, crashing while on pace for a top-three Super-G finish.`\
+https://nytimes.com/athletic/6072868/2025/01/19/lindsey-vonn-crashes-super-g-cortina-olympics/
+
 **Commanders quiet doubters, lock up spot in NFC championship: 'It’s a feeling like no other'**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed indeed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
