@@ -1,3 +1,7 @@
+**What's next for Lions after turnovers sink Detroit in divisional loss to Commanders: Key takeaways**\
+`Lions committed five turnovers and had no answers for Jayden Daniels,`\
+https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl-playoffs/
+
 **The Pistons need a secondary ballhandler and playmaker to aid Cade Cunningham**\
 `When the Pistons' lead guard is on the sideline, they often become stagnant offensively and concede leads or dig a deeper hole.`\
 https://nytimes.com/athletic/6072374/2025/01/19/pistons-suns-cade-cunningham/
