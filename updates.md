@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **Texans' Ryans on controversial flags: 'It was us vs. everybody'**\
 `The two particular calls involved hits against Chiefs quarterback Patrick Mahomes and came on scoring drives for Kansas City. `\
 https://nytimes.com/athletic/6072240/2025/01/18/texans-chiefs-controversial-penalty/
