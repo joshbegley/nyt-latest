@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-pl
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
 `In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager with a ranking under three figures.`\
 https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
