@@ -1,3 +1,15 @@
+**The 'Purples' who support Man Utd and Man City: 'I'm the human version of a half and half scarf'**\
+`Before the Manchester derby in the Women's Super League, fans talk about their split loyalties`\
+https://nytimes.com/athletic/6069352/2025/01/19/the-purples-who-support-man-utd-and-man-city/
+
+**Daniels, Commanders stun Lions 45-31 for NFC Championship trip: Takeaways**\
+`Washington followed its first playoff win since the 2005 season with a historic divisional upset against Detroit on the road.`\
+https://nytimes.com/athletic/6071552/2025/01/19/commanders-score-result-takeaways-nfl-playoffs/
+
+**What went wrong for the Lions in 45-31 loss to Commanders: Takeaways**\
+`Lions committed five turnovers and had no answers for Jayden Daniels,`\
+https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl-playoffs/
+
 **Here’s what to know about the cease-fire.**\
 `By Aaron Boxerman, Rawan Sheikh Ahmad and Alan Yuhas`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/heres-what-to-know-about-the-cease-fire
@@ -25,18 +37,4 @@ https://nytimes.com/athletic/6072424/2025/01/18/chiefs-patrick-mahomes-texans-af
 **Coco Gauff escapes Belinda Bencic to reach Australian Open quarterfinals**\
 `MELBOURNE, Australia — Coco Gauff got over the speed bump that tripped her up in the past two Grand Slams, beating Belinda Bencic of Switzerland in three sets Sunday to advance to the Australian Open quarterfinals.`\
 https://nytimes.com/athletic/6072475/2025/01/18/coco-gauff-australian-open-result-analysis-belinda-bencic/
-
-**Texans can't take next step, beat themselves in divisional round loss to Chiefs**\
-`You have to be all but perfect to upset Patrick Mahomes and the Chiefs at Arrowhead. The Texans were far from it.`\
-https://nytimes.com/athletic/6072405/2025/01/18/texans-chiefs-penalties-cj-stroud/
-
-**Blue Jackets' Daniil Tarasov records first career shutout in loss, makes NHL history**\
-`Tarasov became the first goaltender in NHL history to record his first career shutout and suffer a loss in the same game.
-`\
-https://nytimes.com/athletic/6070042/2025/01/18/blue-jackets-daniil-tarasov-nhl/
-
-**Maple Leafs report cards: 7 unanswered goals erase bad start**\
-`The Maple Leafs scored seven straight to overcome a 3-0 first-period deficit for a 7-3 win over the Canadiens.
-`\
-https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-analysis-grades/
 

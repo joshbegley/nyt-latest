@@ -1,3 +1,15 @@
+**The 'Purples' who support Man Utd and Man City: 'I'm the human version of a half and half scarf'**\
+`Before the Manchester derby in the Women's Super League, fans talk about their split loyalties`\
+https://nytimes.com/athletic/6069352/2025/01/19/the-purples-who-support-man-utd-and-man-city/
+
+**Daniels, Commanders stun Lions 45-31 for NFC Championship trip: Takeaways**\
+`Washington followed its first playoff win since the 2005 season with a historic divisional upset against Detroit on the road.`\
+https://nytimes.com/athletic/6071552/2025/01/19/commanders-score-result-takeaways-nfl-playoffs/
+
+**What went wrong for the Lions in 45-31 loss to Commanders: Takeaways**\
+`Lions committed five turnovers and had no answers for Jayden Daniels,`\
+https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl-playoffs/
+
 **Blue Jackets' Daniil Tarasov records first career shutout in loss, makes NHL history**\
 `Tarasov became the first goaltender in NHL history to record his first career shutout and suffer a loss in the same game.
 `\
