@@ -1,3 +1,7 @@
+**Corrections: Jan. 19, 2025**\
+`Corrections that appeared in print on Sunday, Jan. 19, 2025.`\
+https://nytimes.com/2025/01/18/pageoneplus/corrections-jan-19-2025.html
+
 **Texans' Ryans on controversial flags: 'It was us vs. everybody'**\
 `The two particular calls involved hits against Chiefs quarterback Patrick Mahomes and came on scoring drives for Kansas City. `\
 https://nytimes.com/athletic/6072240/2025/01/18/texans-chiefs-controversial-penalty/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6071527/2025/01/18/texans-score-result-takeaways-nf
 **Falcons hire the Jets' Jeff Ulbrich as defensive coordinator**\
 `The former New York interim head coach and DC reunites with his friend, Falcons coach Raheem Morris.`\
 https://nytimes.com/athletic/6072197/2025/01/18/jeff-ulbrich-falcons-defensive-coordinator-hiring/
-
-**Get Your Scorecards: Global Opportunities for Trump the Deal Maker**\
-`President-elect Donald J. Trump has made big promises on Ukraine, Iran, China and crises around the globe. But he will have to make difficult choices.`\
-https://nytimes.com/2025/01/18/us/politics/trump-deal-maker.html
 
