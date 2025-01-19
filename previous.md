@@ -1,3 +1,7 @@
+**How to make sure your donations count, according to aid organizations.**\
+`By Kate Selig`\
+https://nytimes.com/live/2025/01/19/us/los-angeles-wildfires-california/how-to-make-sure-your-donations-count-according-to-aid-organizations
+
 **Michigan State tops Illinois to remain unbeaten in the Big Ten**\
 `The Spartans' 7-0 start in Big Ten play is their best since the 2018-19 season when they last played in the Final Four.`\
 https://nytimes.com/athletic/6073767/2025/01/19/michigan-state-illinois-big-ten-purdue/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073641/2025/01/19/phil-foden-pep-guardiola-form/
 **Instagram Debuts New Video-Editing App, as TikTok Deals With a Ban**\
 `Instagram on Sunday rolled out Edits, a video-editing product that appeared similar to CapCut, which is owned by TikTok’s parent company, ByteDance.`\
 https://nytimes.com/2025/01/19/technology/instagram-video-app-tiktok-ban.html
-
-**Prada Creates Genuine Pants Anxiety**\
-`In the label’s sexiest men’s runway show in recent memory, tight trousers waged a comeback.`\
-https://nytimes.com/2025/01/19/style/prada-mens-fashion-tight-pants-milan.html
 
