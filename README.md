@@ -1,3 +1,7 @@
+**Oilers' McDavid faces likely suspension after cross-checking Canucks' Garland**\
+`The captain was assessed a match penalty for the incident, which comes with an automatic suspension pending a review by the commissioner.`\
+https://nytimes.com/athletic/6072628/2025/01/19/connor-mcdavid-suspension-penalty-oilers/
+
 **Nunez is Liverpool's late, late agent of chaos - whatever his future holds**\
 `The Uruguyan is a frustrating figure but his brace at Brentford showed why Liverpool must persist with him - for now at least`\
 https://nytimes.com/athletic/6071905/2025/01/19/darwin-nunez-liverpool-chaos-late-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072498/2025/01/19/blackhawks-lukas-reichel-future/
 **Romain Esse to Crystal Palace: The Athletic 500 transfer ratings**\
 `We rate Crystal Palace's new wide attacker, signed from Millwall, as part of The Athletic 500`\
 https://nytimes.com/athletic/6071442/2025/01/19/romain-esse-to-crystal-palace-the-athletic-500-transfer-ratings/
-
-**Arsenal's season is being derailed by a combination of injury and in-game fragility**\
-`The 2-2 draw with Aston Villa means they have dropped 12 points from winning positions this season - eight more than Liverpool`\
-https://nytimes.com/athletic/6060719/2025/01/19/arsenal-injuries-fragility-aston-villa-premier-league/
 
