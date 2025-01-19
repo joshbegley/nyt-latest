@@ -1,3 +1,7 @@
+**TikTok’s Shutdown Notice Included a Politically Attuned Message for Trump**\
+`The ego-stroking message to the man who once famously declared, “I alone can fix it,” was clear.`\
+https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
+
 **Trump Faithful Descended on D.C., but Not Everyone Made It Onto a Yacht**\
 `The celebrations ahead of Donald J. Trump’s inauguration included passionate members of his base along with Trump-loving power brokers partying wildly all around them, but just out of reach.`\
 https://nytimes.com/2025/01/19/us/politics/trump-inauguration-dc.html
