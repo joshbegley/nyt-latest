@@ -1,3 +1,7 @@
+**Coco Gauff escapes Belinda Bencic to reach Australian Open quarterfinals**\
+`MELBOURNE, Australia — Coco Gauff got over the speed bump that tripped her up in the past two Grand Slams, beating Belinda Bencic of Switzerland in three sets Sunday to advance to the Australian Open quarterfinals.`\
+https://nytimes.com/athletic/6072475/2025/01/18/coco-gauff-australian-open-result-analysis-belinda-bencic/
+
 **Texans can't take next step, beat themselves in divisional round loss to Chiefs**\
 `You have to be all but perfect to upset Patrick Mahomes and the Chiefs at Arrowhead. The Texans were far from it.`\
 https://nytimes.com/athletic/6072405/2025/01/18/texans-chiefs-penalties-cj-stroud/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/01/18/pageoneplus/corrections-jan-19-2025.html
 **Texans' Ryans on controversial flags: 'It was us vs. everybody'**\
 `The two particular calls involved hits against Chiefs quarterback Patrick Mahomes and came on scoring drives for Kansas City. `\
 https://nytimes.com/athletic/6072240/2025/01/18/texans-chiefs-controversial-penalty/
-
-**Wisconsin alleges Miami had impermissible contact with Xavier Lucas**\
-`The NCAA requires schools to adhere to a player’s transfer request, but Lucas' name never appeared in the portal.`\
-https://nytimes.com/athletic/6071080/2025/01/18/xavier-lucas-transfer-portal-miami-wisconsin/
 
