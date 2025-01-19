@@ -1,3 +1,15 @@
+**Lukas Reichel recalibrating his expectations, (maybe) reinserting himself into Blackhawks' future**\
+`If Reichel can emerge as a useful player for Chicago, it would be a huge development for a team that has all but written him off already.`\
+https://nytimes.com/athletic/6072498/2025/01/19/blackhawks-lukas-reichel-future/
+
+**Romain Esse to Crystal Palace: The Athletic 500 transfer ratings**\
+`We rate Crystal Palace's new wide attacker, signed from Millwall, as part of The Athletic 500`\
+https://nytimes.com/athletic/6071442/2025/01/19/romain-esse-to-crystal-palace-the-athletic-500-transfer-ratings/
+
+**Arsenal's season is being derailed by a combination of injury and in-game fragility**\
+`The 2-2 draw with Aston Villa means they have dropped 12 points from winning positions this season - eight more than Liverpool`\
+https://nytimes.com/athletic/6060719/2025/01/19/arsenal-injuries-fragility-aston-villa-premier-league/
+
 **Is Neymar's career in epilogue territory? He deserves to be remembered as a great**\
 `Neymar's future is unclear - it seems he's not wanted in Saudi but whatever happens his career is worth celebrating in Brazil and beyond `\
 https://nytimes.com/athletic/6069792/2025/01/19/neymar-brazil-saudi-arabia-mls/
