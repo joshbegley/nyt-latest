@@ -1,3 +1,7 @@
+**La Liga investigating after Barcelona's Balde alleges racist abuse at Getafe**\
+`La Liga are investigating after Alejandro Balde alleged he was the subject of racist abuse during Barcelona&#8217;s game at Getafe on Saturday night.`\
+https://nytimes.com/athletic/6072775/2025/01/19/barcelona-balde-racism-la-liga/
+
 **Learner Tien, Alex Michelsen and the bootcamp propelling them through the Australian Open**\
 `There are three American men aged 23 and under in the second week of a Grand Slam. That hasn't happened since 2003`\
 https://nytimes.com/athletic/6071514/2025/01/19/learner-tien-australian-open-alex-michelsen-american-tennis/
