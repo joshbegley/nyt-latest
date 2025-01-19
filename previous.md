@@ -1,3 +1,15 @@
+**An Invitation to Join America? Mr. Douthat, We Canadians ‘Politely Decline.’**\
+`Readers give reasons to turn down Ross Douthat’s invitation. Also: The 2024 election; helping the hurting; reasons not to fly.`\
+https://nytimes.com/2025/01/19/opinion/us-canada-ross-douthat.html
+
+**How to Watch Trump’s Inauguration**\
+`We’ll have more than two dozen reporters and visual journalists covering the events in real time, starting early Monday morning.`\
+https://nytimes.com/2025/01/19/us/politics/trump-inauguration-watch-time-stream.html
+
+**Chappelle on‘S.N.L.’: Easing Us Into a Transition as No One Else Can**\
+`The comic took his usual jabs at everyone and everything, then invited Americans, including the president-elect, to be their best, most compassionate selves.`\
+https://nytimes.com/2025/01/19/arts/television/arts-television-saturday-night-live-recap.html
+
 **Olmo suffers calf injury, ruled out of Barcelona's Benfica trip**\
 `Dani Olmo has suffered a calf injury that Barcelona say will rule him out of Tuesday&#8217;s Champions League trip to Benfica.`\
 https://nytimes.com/athletic/6073020/2025/01/19/barcelona-dani-olmo-injury-calf/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-i
 **As Truce Takes Hold, Gazans and Israelis Express Elation Tinged With Doubt**\
 `After 470 days of death, a tentative cease-fire began on Sunday in Gaza. But Palestinians could not be sure that the war had ended, and Israelis fear that many hostages will still remain in Gaza.`\
 https://nytimes.com/2025/01/19/world/middleeast/gaza-israel-mood.html
-
-**A Major Change in College Football**\
-`General managers — once purely the domain of professional sports — are taking over.`\
-https://nytimes.com/2025/01/19/briefing/college-football-general-managers.html
-
-**Lindsey Vonn crashes while on pace for podium finish in Super-G at 2026 Olympic venue**\
-`On Sunday, Lindsey Vonn had the first setback in her strong return to alpine skiing, crashing while on pace for a top-three Super-G finish.`\
-https://nytimes.com/athletic/6072868/2025/01/19/lindsey-vonn-crashes-super-g-cortina-olympics/
-
-**Elliott dismisses Liverpool exit speculation: 'This is my club'**\
-`Harvey Elliott has dismissed speculation linking him with a possible move away from Liverpool as he insisted: “This is my club and I’ll fight for my place.`\
-https://nytimes.com/athletic/6072902/2025/01/19/liverpool-harvey-elliott-exit-transfer/
 
