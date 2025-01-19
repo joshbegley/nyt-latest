@@ -2,7 +2,7 @@
 `Barkley's two touchdowns and 205 rushing yards put the Eagles in the NFC Championship Game for the second time in the last three seasons.`\
 https://nytimes.com/athletic/6072993/2025/01/19/eagles-score-result-takeaways-nfl-nfc-divisional-round/
 
-**Commanders at Eagles: How to watch, pick, odds with Philly opening as a 5-point favorite**\
+**Commanders at Eagles: How to watch, pick, odds, with Philly opening as a 5-point favorite**\
 `Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
 https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
 
