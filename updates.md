@@ -1,3 +1,7 @@
+**Dissecting Justin Kluivert's incredible performance and hat-trick against Newcastle**\
+`The Dutchman scored a second hat-trick of the season, but on top of the goals, his overall display showed his development.`\
+https://nytimes.com/athletic/6072643/2025/01/19/justin-kluivert-hat-trick-newcastle/
+
 **Fearing Deportation, Uyghurs Held in Thailand Go on Hunger Strike**\
 `Dozens of men from the ethnic minority sought escape from repression in China a decade ago, but have been detained in Thailand ever since.`\
 https://nytimes.com/2025/01/19/world/asia/uyghurs-thailand-hunger-strike.html
