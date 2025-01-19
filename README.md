@@ -1,3 +1,7 @@
+**Joe Mazzulla, Celtics embrace conflict amid 8-8 slump: 'This is the fun part'**\
+`“There is no fear,” coach Joe Mazzulla said. “I'm actually more excited at this juncture of the season than I was at the beginning.”`\
+https://nytimes.com/athletic/6072708/2025/01/19/celtics-slump-hawks-loss-nba/
+
 **The Wild have 'got to act fast' before slide continues**\
 `Saturday's loss isn't a reason to sound the alarms, but there should be a little concern about the way things are trending.`\
 https://nytimes.com/athletic/6072580/2025/01/19/wild-loss-predators/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072902/2025/01/19/liverpool-harvey-elliott-exit-tr
 **Commanders quiet doubters, lock up spot in NFC Championship: 'It’s a feeling like no other'**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
-
-**Novak Djokovic and Carlos Alcaraz set up Australian Open quarterfinal by swapping roles**\
-`Before their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne.`\
-https://nytimes.com/athletic/6072809/2025/01/19/novak-djokovic-carlos-alcaraz-australian-open-quarterfinal-preview/
 
