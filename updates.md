@@ -1,3 +1,7 @@
+**Raiders next regime hiring could be accelerated after Lions' early playoff exit**\
+`Ben Johnson, believed to be the top target, can now conduct an in-person interview as soon as Monday after Detroit's season ended Saturday.`\
+https://nytimes.com/athletic/6073431/2025/01/19/raiders-coach-gm-hiring-update-timeline/
+
 **Guardiola: Foden 'happy again' after recent scoring run**\
 `Pep Guardiola says he is pleased to see Phil Foden &#8220;happy again&#8221; after the midfielder scored two goals for the second time in the space of six days during Sunday&#8217;s win over Ipswich Town.`\
 https://nytimes.com/athletic/6073641/2025/01/19/phil-foden-pep-guardiola-form/
