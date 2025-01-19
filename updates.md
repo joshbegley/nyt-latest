@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **A Trump Party Hosted by Peter Thiel, With All of Silicon Valley**\
 `The party symbolized the euphoria of the tech industry on the cusp of the Trump presidency. The guest list included Mark Zuckerberg, Sam Altman, Miriam Adelson and the vice president-elect, JD Vance.`\
 https://nytimes.com/2025/01/18/us/politics/trump-party-peter-thiel-zuckerberg-vance.html
