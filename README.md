@@ -1,3 +1,11 @@
+**The Briefing: Ipswich 0 Manchester City 6: Phil Foden and City rediscover the old magic**\
+`Manchester City romped to a 6-0 victory at Ipswich to move back into the Premier League's top four for the first time since early December`\
+https://nytimes.com/athletic/6071739/2025/01/19/ipswich-0-manchester-city-6-phil-foden/
+
+**In the United States, Users React to Life (Briefly) Without TikTok**\
+`The app went dark nationwide on Saturday night, but the company indicated it was in the process of restoring the service after assurances from President-elect Donald J. Trump.`\
+https://nytimes.com/2025/01/19/style/tiktok-reaction.html
+
 **Open Houses in Los Angeles Take on an Eerie Feeling**\
 `Though thousands of residents who have lost their homes are desperately searching for somewhere to live, potential home buyers are weighing risks.`\
 https://nytimes.com/2025/01/19/realestate/los-angeles-open-houses-wildfires.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6073344/2025/01/19/tottenham-injuries-solanke-johns
 **Amorim: 'We are being maybe the worst team in the history of Man Utd'**\
 `Ruben Amorim called his Manchester United side &#8220;maybe the worst team in the history&#8221; of the club after they fell to yet another defeat in the Premier League, this time at the hands of Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/6073311/2025/01/19/manchester-united-ruben-amorim-worst-team/
-
-**What We Know About the TikTok Ban**\
-`The popular video app went dark in the United States late Saturday and then came back around noon on Sunday, even as a law banning it took effect.`\
-https://nytimes.com/2025/01/19/business/what-we-know-tiktok.html
-
-**Hamas Tries to Show It’s Back in Charge of Gaza**\
-`Rarely seen in the open while the war raged, masked and armed fighters spread out publicly through Gaza’s cities in a show of force on Sunday.`\
-https://nytimes.com/2025/01/19/world/middleeast/hamas-in-charge-gaza.html
 
