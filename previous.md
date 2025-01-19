@@ -1,40 +1,40 @@
-**A year of Pau Cubarsi**\
-`Cubarsi could not mark the first anniversary of his debut as he would have liked, but his maturity and development is something to celebrate`\
-https://nytimes.com/athletic/6072723/2025/01/19/pau-cubarsi-barcelona-year/
+**Man United making progress in talks over Antony loan to Real Betis**\
+`Manchester United are making progress in talks over winger Antony’s proposed loan move to Real Betis.`\
+https://nytimes.com/athletic/6069215/2025/01/19/antony-manchester-united-transfers-betis/
 
-**Man City considering midfield signing in January**\
-`Manchester City are considering whether to continue their January recruitment by adding a midfielder to manager Pep Guardiola’s squad.`\
-https://nytimes.com/athletic/6072787/2025/01/19/man-city-transfers-douglas-luiz/
+**Inside Notre Dame's training and recovery amid the longest season in school history**\
+`Notre Dame's players have been using many recovery methods — both on and off campus — to make it through the 2024 season. `\
+https://nytimes.com/athletic/6072020/2025/01/19/notre-dame-injuries-training-college-football-playoff/
 
-**A Veteran Photographer Still Wants to Improve on Inauguration Day**\
-`Doug Mills has photographed every presidential swearing-in ceremony since 1985. “I’ve learned a lot from all of them,” he said.`\
-https://nytimes.com/2025/01/19/pageoneplus/trump-photographer-doug-mills.html
+**Biden to Spend a Last Day as President in Charleston**\
+`President Biden will spend his final full day in office in Charleston, S.C., where five years ago he revived his flailing campaign.`\
+https://nytimes.com/2025/01/19/us/politics/biden-president-trump-charleston-south-carolina.html
 
-**80 Years of First Lady Fashion**\
-`From Eleanor Roosevelt to Jill Biden, first ladies have often made statements through what they wore on Inauguration Day and to the inaugural balls.`\
-https://nytimes.com/2025/01/19/style/first-lady-fashion-inauguration.html
+**Jake Sullivan, White House National Security Adviser, Reflects on China Policy**\
+`President Biden and his team saw China as the one nation with the intent and capability to displace American primacy — and crafted policies to defend U.S. power.`\
+https://nytimes.com/2025/01/19/us/politics/jake-sullivan-china.html
 
-**A Long Career in Black Rock Music Comes to a Tragic End in the Bronx**\
-`Peter Forrest was the charismatic lead singer of 24-7 Spyz, which did shows with Jane’s Addiction. Last week, Mr. Forrest, 64, was found beaten to death in the ambulette he drove for a living.`\
-https://nytimes.com/2025/01/19/nyregion/peter-forrest-24-7-spyz-death-legacy.html
+**A Trump Oligarchy Is Moving to Washington, and Buying Up Prime Addresses**\
+`Billionaires and multimillionaires are flocking to a city where power has been more important than money, but is now deeply intertwined with it.`\
+https://nytimes.com/2025/01/19/us/politics/trump-billionaires-washington-homes.html
 
-**With ‘City of Yes,’ New York Finally Gets Real About the Housing Crisis**\
-`A new rezoning plan for the city aims to remove long-outdated barriers to building housing and to spread development across all the city’s neighborhoods.`\
-https://nytimes.com/2025/01/19/nyregion/city-of-yes-nyc-housing-crisis.html
+**How ‘Mufasa: The Lion King’ Became a Sleeper Hit**\
+`The “Lion King” prequel arrived to weak ticket sales last month, but moviegoers have since embraced it, pushing global box office returns toward $700 million.`\
+https://nytimes.com/2025/01/19/business/media/mufasa-lion-king-box-office.html
 
-**A Woman, on Full Show**\
-`In “The Last Showgirl,” Jamie Lee Curtis upends a host of cinematic clichés about women.`\
-https://nytimes.com/2025/01/19/style/jamie-lee-curtis-last-showgirl.html
+**Biden Made a Global Push to Constrain China. What Will Trump Do?**\
+`Jake Sullivan, the national security adviser, said in an interview that “we’ve just stuck with our theory, which is managed competition.” Trump and Xi Jinping might have other plans.`\
+https://nytimes.com/2025/01/19/us/politics/biden-trump-china.html
 
-**‘After I Got Into the Cab, the Driver and I Began Chatting’**\
-`A familiar face on the way to the airport, a surprise on the F train and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/01/19/nyregion/metropolitan-diary.html
+**Defiance Is Out, Deference Is in: Trump Returns to a Different Washington**\
+`As Donald J. Trump prepares to take the oath of office for a second time, much of the world seems to be bowing down to him and demoralized opponents are rethinking the future.`\
+https://nytimes.com/2025/01/19/us/politics/trump-washington.html
 
-**How A.I. Tools Helped the Travel Team Study Its ‘Places to Go’ Lists**\
-`Two decades of destinations amount to more than 300,000 words. To take a closer look, we needed more than the human eye.`\
-https://nytimes.com/2025/01/19/travel/how-ai-tools-helped-the-travel-team-study-its-places-to-go-lists.html
+**Donald Trump’s Promises**\
+`President-elect Donald J. Trump, over the course of the 2024 campaign and after his election, made big promises to the American people on everything from the economy to foreign policy. Here’s what he said he would do with a second term.`\
+https://nytimes.com/interactive/2025/01/19/us/politics/trump-president-promises.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/19/crosswords/spelling-bee-forum.html
+**The One Thing Americans Remember About Biden**\
+`A survey of more than 2,000 people offers an early look at his legacy.`\
+https://nytimes.com/interactive/2025/01/19/upshot/biden-memories-poll.html
 
