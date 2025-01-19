@@ -1,3 +1,7 @@
+**Dele returns to club football with Como**\
+`Former Premier League midfielder Dele Alli has signed a deal with Italian side Como until 2026.`\
+https://nytimes.com/athletic/6029225/2025/01/19/dele-alli-como-transfer/
+
 **For most hostage families, an agonizing wait for news and reunions goes on.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israel-hostage-families
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/weather/snow-winter-storm-northeast-polar-vortex.
 **Israel-Hamas Truce Leaves Big Questions Unresolved for Now**\
 `It remains unclear whether the six-week truce will lead to a permanent cease-fire and the release of the remaining hostages in Gaza, or if fighting will resume.`\
 https://nytimes.com/2025/01/19/world/middleeast/israel-hamas-cease-fire-next-steps.html
-
-**Biden Pardons Five More, Including Late Civil Rights Leader Marcus Garvey**\
-`Civil rights leaders and lawmakers have long said that Mr. Garvey’s 1923 conviction for mail fraud was unjust, arguing that he was targeted for his work.`\
-https://nytimes.com/2025/01/19/us/politics/biden-pardons-marcus-garvey.html
 
