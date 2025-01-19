@@ -1,3 +1,11 @@
+**A year of Pau Cubarsi**\
+`Cubarsi could not mark the first anniversary of his debut as he would have liked, but his maturity and development is something to celebrate`\
+https://nytimes.com/athletic/6072723/2025/01/19/pau-cubarsi-barcelona-year/
+
+**Man City considering midfield signing in January**\
+`Manchester City are considering whether to continue their January recruitment by adding a midfielder to manager Pep Guardiola’s squad.`\
+https://nytimes.com/athletic/6072787/2025/01/19/man-city-transfers-douglas-luiz/
+
 **A Veteran Photographer Still Wants to Improve on Inauguration Day**\
 `Doug Mills has photographed every presidential swearing-in ceremony since 1985. “I’ve learned a lot from all of them,” he said.`\
 https://nytimes.com/2025/01/19/pageoneplus/trump-photographer-doug-mills.html
