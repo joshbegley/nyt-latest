@@ -1,3 +1,7 @@
+**As Israel loosened its own bombing rules, civilians paid a heavy price.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/as-israel-loosened-its-own-bombing-rules-civilians-paid-a-heavy-price
+
 **Hurzeler: Mitoma 'has everything' after role in Brighton's Man Utd win**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler says Kaoru Mitoma “has everything” after the left-winger&#8217;s influential role in the 3-1 win at Manchester United.`\
 https://nytimes.com/athletic/6073373/2025/01/19/kaoru-mitoma-brighton-manchester-united/
