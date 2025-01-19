@@ -6,12 +6,12 @@ https://nytimes.com/athletic/6071519/2025/01/18/chiefs-game-score-playoffs-takea
 `How a yearslong selection process ended with a sushi chef, a Bel Air mansion, and a text from the most famous baseball player on the planet.`\
 https://nytimes.com/athletic/6071231/2025/01/18/roki-sasaki-dodgers-inside-signing-selection-process/
 
-**Alabama feasts on Kentucky defense, regains its swagger with big win in Lexington**\
+**How a lesson from Joe Mazzulla helped Nate Oats and Alabama beat Kentucky at Rupp Arena**\
 `The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
 https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
 
 **What went wrong for Texans in 23-14 loss to Chiefs: Takeaways**\
-`The Chiefs' pressure thwarted Houston’s attempt to come from behind.`\
+`The Chiefs' pressure thwarted Houston’s attempt to come from behind in the AFC divisional game.`\
 https://nytimes.com/athletic/6071527/2025/01/18/texans-score-result-takeaways-nfl-playoffs/
 
 **Falcons hire the Jets' Jeff Ulbrich as defensive coordinator**\
