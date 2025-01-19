@@ -3,7 +3,7 @@
 https://nytimes.com/2025/01/19/us/politics/trump-promise-ending-ukraine-war.html
 
 **Gazans and Israelis Dare to Hope as Cease-Fire Takes Hold**\
-`After the fighting paused, Hamas began to free some of its hostages, and Israel prepared to release Palestinian prisoners.`\
+`After the fighting paused, Hamas began to free some of its hostages, releasing 3, and Israel said it had released 90 Palestinian prisoners.`\
 https://nytimes.com/2025/01/19/world/middleeast/gazans-and-israelis-dare-to-hope-as-cease-fire-takes-hold.html
 
 **Trump Faithful Descended on D.C., but Not Everyone Made It Onto a Yacht**\

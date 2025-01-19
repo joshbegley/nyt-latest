@@ -1,3 +1,7 @@
+**Gazans and Israelis Dare to Hope as Cease-Fire Takes Hold**\
+`After the fighting paused, Hamas began to free some of its hostages, releasing 3, and Israel said it had released 90 Palestinian prisoners.`\
+https://nytimes.com/2025/01/19/world/middleeast/gazans-and-israelis-dare-to-hope-as-cease-fire-takes-hold.html
+
 **Trump Vowed to End the Ukraine War Before Taking Office. The War Rages On.**\
 `Donald J. Trump’s promise to broker peace between Russia and Ukraine in 24 hours, “before I even become president,” proved to be hyperbole.`\
 https://nytimes.com/2025/01/19/us/politics/trump-promise-ending-ukraine-war.html
