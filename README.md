@@ -1,40 +1,40 @@
-**Sean Spicer on Trump 2.0: ‘It’s Going to Be Cataclysmic’**\
-`The former White House press secretary shares his predictions for Trump’s second term.`\
-https://nytimes.com/video/opinion/100000009931177/sean-spicer-trump-president.html
+**Texas Has a Perverse Idea of Religious Freedom**\
+`MAGA’s cruelty toward immigrants and its disregard for civil liberties are on full display in the Lone Star State.`\
+https://nytimes.com/2025/01/19/opinion/texas-catholic-immigration-paxton.html
 
-**Israeli attacks continued during a nearly three-hour delay in the cease-fire.**\
-`By Matthew Mpoke Bigg, Isabel Kershner and Hiba Yazbek`\
-https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israeli-attacks-continued-during-a-nearly-three-hour-delay-in-the-cease-fire
+**Kyle MacLachlan: How David Lynch Invented Me**\
+`How could words possibly do justice to an experience like that?`\
+https://nytimes.com/2025/01/19/opinion/kyle-maclachlan-david-lynch.html
 
-**La Liga investigating after Barcelona's Balde alleges racist abuse at Getafe**\
-`La Liga are investigating after Alejandro Balde alleged he was the subject of racist abuse during Barcelona&#8217;s game at Getafe on Saturday night.`\
-https://nytimes.com/athletic/6072775/2025/01/19/barcelona-balde-racism-la-liga/
+**I’m a 17-Year-Old TikTok Junkie. I Need This Ban.**\
+`What worries me most right now is the future of my generation.`\
+https://nytimes.com/2025/01/19/opinion/tiktok-ban-teenagers.html
 
-**Learner Tien, Alex Michelsen and the bootcamp propelling them through the Australian Open**\
-`There are three American men aged 23 and under in the second week of a Grand Slam. That hasn't happened since 2003`\
-https://nytimes.com/athletic/6071514/2025/01/19/learner-tien-australian-open-alex-michelsen-american-tennis/
+**Trump Barely Won the Election. Why Doesn’t It Feel That Way?**\
+`The president-elect’s cultural victory has lapped his political victory.`\
+https://nytimes.com/2025/01/19/opinion/trump-mandate-zuckerberg-masculinity.html
 
-**Man United making progress in talks over Antony loan to Real Betis**\
-`Manchester United are making progress in talks over winger Antony’s proposed loan move to Real Betis.`\
-https://nytimes.com/athletic/6069215/2025/01/19/antony-manchester-united-transfers-betis/
+**‘We’d Have Been Better Off if Trump Won in 2020’: Three Columnists Brace for the First 100 Days**\
+`What kind of disruptions does America need? And what will Trump not actually follow through on?`\
+https://nytimes.com/2025/01/19/opinion/trump-second-term.html
 
-**Inside Notre Dame's training and recovery amid the longest season in school history**\
-`Notre Dame's players have been using many recovery methods — both on and off campus — to make it through the 2024 season. `\
-https://nytimes.com/athletic/6072020/2025/01/19/notre-dame-injuries-training-college-football-playoff/
+**Sean Spicer Has Regrets. But He Still Believes in Trump.**\
+`A former White House press secretary shares his predictions for Trump’s second term.`\
+https://nytimes.com/2025/01/19/opinion/sean-spicer-trump-president.html
 
-**Biden to Spend a Last Day as President in Charleston**\
-`President Biden will spend his final full day in office in Charleston, S.C., where five years ago he revived his flailing campaign.`\
-https://nytimes.com/2025/01/19/us/politics/biden-president-trump-charleston-south-carolina.html
+**The Sunday Read: ‘Opioids Ravaged a Kentucky Town. Then Rehab Became Its Business.’**\
+`In Louisa, Ky., an unbearable social crisis has become the main source of economic opportunity.`\
+https://nytimes.com/2025/01/19/podcasts/the-daily/the-sunday-read-opioids-ravaged-a-kentucky-town-then-rehab-became-its-business.html
 
-**Jake Sullivan, White House National Security Adviser, Reflects on China Policy**\
-`President Biden and his team saw China as the one nation with the intent and capability to displace American primacy — and crafted policies to defend U.S. power.`\
-https://nytimes.com/2025/01/19/us/politics/jake-sullivan-china.html
+**There Is No Way to Retreat From the Risk of Wildfires**\
+`Some more realistic ways to think about the challenges ahead.`\
+https://nytimes.com/2025/01/19/opinion/los-angeles-wildfires-burn.html
 
-**A Trump Oligarchy Is Moving to Washington, and Buying Up Prime Addresses**\
-`Billionaires and multimillionaires are flocking to a city where power has been more important than money, but is now deeply intertwined with it.`\
-https://nytimes.com/2025/01/19/us/politics/trump-billionaires-washington-homes.html
+**Checking In on America’s Vibes as Trump Takes the Stage**\
+`After Trump won, Americans seem to have traded anger for hope.`\
+https://nytimes.com/interactive/2025/01/19/opinion/democrat-republican-post-election-vibes-mood.html
 
-**How ‘Mufasa: The Lion King’ Became a Sleeper Hit**\
-`The “Lion King” prequel arrived to weak ticket sales last month, but moviegoers have since embraced it, pushing global box office returns toward $700 million.`\
-https://nytimes.com/2025/01/19/business/media/mufasa-lion-king-box-office.html
+**The Connections Companion No. 589**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 20, 2025.`\
+https://nytimes.com/2025/01/19/crosswords/connections-companion-589.html
 
