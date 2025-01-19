@@ -1,3 +1,7 @@
+**The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
+`In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
+https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
+
 **The fire chief in L.A. warned years ago of a ‘weakness’ in wildfire response.**\
 `The memo revealed that L`\
 https://nytimes.com/live/2025/01/18/us/los-angeles-wildfires-california/the-fire-chief-in-la-warned-years-ago-of-a-weakness-in-wildfire-response

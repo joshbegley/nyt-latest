@@ -2,6 +2,10 @@
 `The memo revealed that L`\
 https://nytimes.com/live/2025/01/18/us/los-angeles-wildfires-california/the-fire-chief-in-la-warned-years-ago-of-a-weakness-in-wildfire-response
 
+**The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
+`In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
+https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
+
 **Powerful Santa Ana Winds Expected to Elevate Fire Risk in Southern California**\
 `Meteorologists said there was a chance the winds would be as severe as those that fueled the Palisades and Eaton fires, but that different locations would likely be affected.`\
 https://nytimes.com/2025/01/18/weather/santa-ana-winds-wildfire-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/travel/tiktok-travel-trends.html
 **The Last Migrant Caravans Before Trump’s Inauguration**\
 `A Times photographer made two trips to southern Mexico to follow groups of migrants as they walked toward the United States.`\
 https://nytimes.com/card/2025/01/18/world/americas/mexico-migrants-border-trump
-
-**Word Problems**\
-`Emily Sharp and Kunal Nabar collaborate on a puzzle that’s greater than the sum of its parts.`\
-https://nytimes.com/2025/01/18/crosswords/daily-puzzle-2025-01-19.html
 
