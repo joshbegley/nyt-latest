@@ -1,4 +1,8 @@
-**CFP officials ask conference commissioners to review 12-team playoff format**\
+**David Schneiderman, Village Voice Editor and Publisher, Dies at 77**\
+`Named editor in chief of the venerable alternative weekly in 1978, he was not welcomed with open arms. But his commitment to strong journalism won people over.`\
+https://nytimes.com/2025/01/19/business/media/david-schneiderman-dead.html
+
+**CFP officials ask conference commissioners to review 12-team Playoff format**\
 `Any format changes in 2025 would require a unanimous vote by the FBS conferences and Notre Dame.`\
 https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-changes/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/awaiting-p
 **A Flag From Four Years Ago**\
 `At President Biden’s inauguration in 2021, nearly 200,000 American flags filled the National Mall. Visitors were invited to take them.`\
 https://nytimes.com/2025/01/19/insider/a-flag-from-four-years-ago.html
-
-**Heinz Kluetmeier, Inventive Sports Photographer, Dies at 82**\
-`His work for Sports Illustrated included the renowned cover photo of the United States men’s hockey team celebrating their upset win at the 1980 Winter Olympics.`\
-https://nytimes.com/2025/01/19/sports/heinz-kluetmeier-dead.html
 
