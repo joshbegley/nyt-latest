@@ -1,3 +1,7 @@
+**Maresca hits back at Chelsea critics and claims club received PGMOL apology**\
+`Chelsea head coach Enzo Maresca says his players should not be embarrassed by criticism that they go down easily to try and influence decisions after claiming the club received a written apology from the Professional Game Match Officials Limited (PGMOL) for not being awarded a penalty this month.`\
+https://nytimes.com/athletic/6073560/2025/01/19/enzo-maresca-chelsea-pgmol/
+
 **Zay Flowers out for Ravens' divisional round showdown vs. Bills**\
 `The Ravens' leading receiver hasn't taken the field since suffering a knee injury in the regular season finale on Jan. 4.`\
 https://nytimes.com/athletic/6067648/2025/01/19/zay-flowers-knee-injury-practice-divisional-round-ravens-bills/
