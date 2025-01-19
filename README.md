@@ -1,3 +1,11 @@
+**What went wrong for the Texans in 23-14 loss to Chiefs: Takeaways**\
+`The Chiefs' pressure thwarted Houston’s attempt to come from behind.`\
+https://nytimes.com/athletic/6071527/2025/01/18/texans-score-result-takeaways-nfl-playoffs/
+
+**Falcons hire the Jets' Jeff Ulbrich as defensive coordinator**\
+`The former New York interim head coach and DC reunites with his friend, Falcons coach Raheem Morris.`\
+https://nytimes.com/athletic/6072197/2025/01/18/jeff-ulbrich-falcons-defensive-coordinator-hiring/
+
 **Get Your Scorecards: Global Opportunities for Trump the Deal Maker**\
 `President-elect Donald J. Trump has made big promises on Ukraine, Iran, China and crises around the globe. But he will have to make difficult choices.`\
 https://nytimes.com/2025/01/18/us/politics/trump-deal-maker.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upse
 **USMNT beats Venezuela 3-1 in friendly to open 2025**\
 `A pair of goals late in the first half gave the hosts a comfortable lead heading into the break.`\
 https://nytimes.com/athletic/6072094/2025/01/18/usmnt-venezuela-friendly-score-takeaways/
-
-**People’s March in Washington Draws Thousands of Demonstrators**\
-`Just two days before Donald Trump’s inauguration, thousands of people attended the People’s March across Washington.`\
-https://nytimes.com/video/us/politics/100000009935546/dc-peoples-march-trump-inauguration.html
-
-**André Soltner, Famed Chef at New York’s Lutèce, Dies at 92**\
-`Customers returned again and again for his impeccable French dishes at a restaurant that one food critic said “set the gold standard.”`\
-https://nytimes.com/2025/01/18/dining/andre-soltner-dead.html
 
