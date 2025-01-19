@@ -1,3 +1,7 @@
+**Biden Pardons Five More, Including Late Civil Rights Leader Marcus Garvey**\
+`Civil rights leaders and lawmakers have long said that Mr. Garvey’s 1923 conviction for mail fraud was unjust, arguing that he was targeted for his work.`\
+https://nytimes.com/2025/01/19/us/politics/biden-pardons-marcus-garvey.html
+
 **Lowetide: Setting up the Oilers' 2025 spring amateur signing season**\
 `For a few reasons, the Oilers can't afford a false spring in identifying and signing quality amateur talent.`\
 https://nytimes.com/athletic/6071667/2025/01/19/edmonton-oilers-2025-amateur-signings/
