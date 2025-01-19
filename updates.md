@@ -1,3 +1,7 @@
+**CFP officials ask conference commissioners to review 12-team Playoff format**\
+`Any format changes in 2025 would require a unanimous vote by the FBS conferences and Notre Dame.`\
+https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-changes/
+
 **CFP officials ask conference commissioners to review 12-team playoff format**\
 `Any format changes in 2025 would require a unanimous vote by the FBS conferences and Notre Dame.`\
 https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-changes/
