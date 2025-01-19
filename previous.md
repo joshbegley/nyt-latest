@@ -1,3 +1,7 @@
+**Trump Says He Will Sign Executive Order to Stall TikTok Ban**\
+`The social media app went dark late Saturday as a federal law went into effect requiring a sale or ban.`\
+https://nytimes.com/2025/01/19/technology/trump-tiktok-ban-executive-order.html
+
 **The Push and Pull of Los Angeles: Beauty and Danger**\
 `Somini Sengupta, a climate reporter who has lived across Los Angeles, reflects on the city, its mythology and its reckoning with disaster.`\
 https://nytimes.com/2025/01/19/us/los-angeles-beauty-danger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/arts/television/arts-television-saturday-night-li
 **Olmo suffers calf injury, ruled out of Barcelona's Benfica trip**\
 `Dani Olmo has suffered a calf injury that Barcelona say will rule him out of Tuesday&#8217;s Champions League trip to Benfica.`\
 https://nytimes.com/athletic/6073020/2025/01/19/barcelona-dani-olmo-injury-calf/
-
-**Joe Mazzulla, Celtics embrace conflict amid 8-8 slump: 'This is the fun part'**\
-`“There is no fear,” coach Joe Mazzulla said. “I'm actually more excited at this juncture of the season than I was at the beginning.”`\
-https://nytimes.com/athletic/6072708/2025/01/19/celtics-slump-hawks-loss-nba/
 
