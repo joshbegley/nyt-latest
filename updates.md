@@ -1,3 +1,11 @@
+**Hamas Tries to Show It’s Back in Charge of Gaza**\
+`Rarely seen in the open while the war raged, masked and armed fighters spread out publicly through Gaza’s cities in a show of force on Sunday.`\
+https://nytimes.com/2025/01/19/world/middleeast/hamas-in-charge-gaza.html
+
+**How Antonio Conte's free roles for McTominay and Anguissa could win Napoli another title**\
+`The manager has loosened up his tactics and it's working`\
+https://nytimes.com/athletic/6073040/2025/01/19/how-contes-free-roles-for-mctominay-and-anguissa-could-win-napoli-another-title/
+
 **Dele returns to club football with Como**\
 `Former Premier League midfielder Dele Alli has signed a deal with Italian side Como until 2026.`\
 https://nytimes.com/athletic/6029225/2025/01/19/dele-alli-como-transfer/
