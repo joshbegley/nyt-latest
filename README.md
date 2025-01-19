@@ -1,3 +1,7 @@
+**Instagram Debuts New Video-Editing App, as TikTok Deals With a Ban**\
+`Instagram on Sunday rolled out Edits, a video-editing product that appeared similar to CapCut, which is owned by TikTok’s parent company, ByteDance.`\
+https://nytimes.com/2025/01/19/technology/instagram-video-app-tiktok-ban.html
+
 **Prada Creates Genuine Pants Anxiety**\
 `In the label’s sexiest men’s runway show in recent memory, tight trousers waged a comeback.`\
 https://nytimes.com/2025/01/19/style/prada-mens-fashion-tight-pants-milan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/style/tiktok-reaction.html
 **Open Houses in Los Angeles Take on an Eerie Feeling**\
 `Though thousands of residents who have lost their homes are desperately searching for somewhere to live, potential home buyers are weighing risks.`\
 https://nytimes.com/2025/01/19/realestate/los-angeles-open-houses-wildfires.html
-
-**Bears set to interview Eddie George for head-coaching job: Source**\
-`George, the former Titans star running back, will be the third candidate to interview in person as Chicago ramps up its search.`\
-https://nytimes.com/athletic/6073361/2025/01/19/bears-coach-interview-tennessee-state/
 
