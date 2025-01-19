@@ -68,6 +68,11 @@ https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-pl
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **Wisconsin alleges Miami had impermissible contact with Xavier Lucas**\
 `The NCAA requires schools to adhere to a player’s transfer request, but Lucas' name never appeared in the portal.`\
 https://nytimes.com/athletic/6071080/2025/01/18/xavier-lucas-transfer-portal-miami-wisconsin/
