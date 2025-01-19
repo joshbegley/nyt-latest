@@ -1,3 +1,7 @@
+**The Wild have 'got to act fast' before slide continues**\
+`Saturday's loss isn't a reason to sound the alarms, but there should be a little concern about the way things are trending.`\
+https://nytimes.com/athletic/6072580/2025/01/19/wild-loss-predators/
+
 **Commanders quiet doubters, lock up spot in NFC Championship: 'It’s a feeling like no other'**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/

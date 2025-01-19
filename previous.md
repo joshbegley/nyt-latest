@@ -1,3 +1,7 @@
+**The Wild have 'got to act fast' before slide continues**\
+`Saturday's loss isn't a reason to sound the alarms, but there should be a little concern about the way things are trending.`\
+https://nytimes.com/athletic/6072580/2025/01/19/wild-loss-predators/
+
 **Dissecting Justin Kluivert's incredible performance and hat-trick against Newcastle**\
 `The Dutchman scored a second hat-trick of the season, but on top of the goals, his overall display showed his development.`\
 https://nytimes.com/athletic/6072643/2025/01/19/justin-kluivert-hat-trick-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-li
 **Novak Djokovic and Carlos Alcaraz set up Australian Open quarterfinal by swapping roles**\
 `Ahead of their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne`\
 https://nytimes.com/athletic/6072809/2025/01/19/novak-djokovic-carlos-alcaraz-australian-open-quarterfinal-preview/
-
-**First 3 Israeli Hostages to Be Freed Under Gaza Cease-Fire Are Named**\
-`Thirty-three people will be released during the first 6-week phase, including female soldiers and civilians, children and men over 50. Here is a look at those expected to be released on Sunday.`\
-https://nytimes.com/2025/01/19/world/middleeast/hostages-emily-tamari-doron-steinbrecher-romi-gonen.html
 
