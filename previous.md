@@ -1,4 +1,4 @@
-**'It’s a feeling like no other': Commanders quiet doubters, lock up spot in NFC championship**\
+**Commanders quiet doubters, lock up spot in NFC championship: 'It’s a feeling like no other'**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed indeed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
 
