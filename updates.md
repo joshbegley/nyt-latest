@@ -1,3 +1,7 @@
+**Gazans greet the cease-fire with joy — and sadness for all that was lost.**\
+`Palestinians race back to the homes they fled, uncertain about what they will find or what lies ahead.`\
+https://nytimes.com/2025/01/19/world/middleeast/gaza-residents-return.html
+
 **Chappelle on ‘S.N.L.’: Easing Us Into a Transition as No One Else Can**\
 `The comic took his usual jabs at everyone and everything, then invited Americans, including the president-elect, to be their best, most compassionate selves.`\
 https://nytimes.com/2025/01/19/arts/television/arts-television-saturday-night-live-recap.html
