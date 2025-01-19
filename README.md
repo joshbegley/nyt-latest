@@ -1,3 +1,7 @@
+**Michigan State holds off Illinois to remain unbeaten in the Big Ten**\
+`The Spartans' 7-0 start in Big Ten play is their best since the 2018-19 season when they last played in the Final Four.`\
+https://nytimes.com/athletic/6073767/2025/01/19/michigan-state-illinois-big-ten-purdue/
+
 **Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
 `The new business venture by the Trump family has turned into an overnight phenomenon, generating a windfall on paper but also intensifying criticism.`\
 https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/technology/instagram-video-app-tiktok-ban.html
 **Prada Creates Genuine Pants Anxiety**\
 `In the label’s sexiest men’s runway show in recent memory, tight trousers waged a comeback.`\
 https://nytimes.com/2025/01/19/style/prada-mens-fashion-tight-pants-milan.html
-
-**What’s With All the Dancing at Fashion Shows?**\
-`In Milan, arty dance routines seemed more prevalent than runway shows, as fashion houses aimed to give their audiences something — anything — to Instagram about.`\
-https://nytimes.com/2025/01/19/style/milan-mens-fashion-week-dance.html
 
