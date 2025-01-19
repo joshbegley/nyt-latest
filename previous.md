@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6060719/2025/01/19/arsenal-injuries-fragility-aston
 `Neymar's future is unclear - it seems he's not wanted in Saudi but whatever happens his career is worth celebrating in Brazil and beyond `\
 https://nytimes.com/athletic/6069792/2025/01/19/neymar-brazil-saudi-arabia-mls/
 
+**Inside Alaba's return: 399 days out, holidays with physio and inspirational bench role**\
+`Alaba is set to feature today after a long spell on the sidelines with an ACL injury. This is the full story of his recovery`\
+https://nytimes.com/athletic/6069881/2025/01/19/david-alaba-real-madrid-acl-return/
+
 **The 'Purples' who support Man Utd and Man City: 'I'm the human version of a half and half scarf'**\
 `Before the Manchester derby in the Women's Super League, fans talk about their split loyalties`\
 https://nytimes.com/athletic/6069352/2025/01/19/the-purples-who-support-man-utd-and-man-city/
-
-**Daniels, Commanders stun Lions 45-31 for NFC championship trip: Takeaways**\
-`Washington followed its first playoff win since the 2005 season with a historic divisional upset against Detroit on the road.`\
-https://nytimes.com/athletic/6071552/2025/01/19/commanders-score-result-takeaways-nfl-playoffs/
 

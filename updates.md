@@ -1,3 +1,7 @@
+**Inside Alaba's return: 399 days out, holidays with physio and inspirational bench role**\
+`Alaba is set to feature today after a long spell on the sidelines with an ACL injury. This is the full story of his recovery`\
+https://nytimes.com/athletic/6069881/2025/01/19/david-alaba-real-madrid-acl-return/
+
 **How Tom Brady handled his ownership-analyst conflict on TV: Takeaways**\
 `Tom Brady called his best game yet as a TV analyst, but he was clearly avoiding the name Ben Johnson.`\
 https://nytimes.com/athletic/6069493/2025/01/19/tom-brady-ownership-conflict-fox-takeaways/
