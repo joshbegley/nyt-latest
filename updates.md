@@ -1,3 +1,7 @@
+**Joe Mazzulla, Celtics embrace conflict amid 8-8 slump: 'This is the fun part'**\
+`“There is no fear,” coach Joe Mazzulla said. “I'm actually more excited at this juncture of the season than I was at the beginning.”`\
+https://nytimes.com/athletic/6072708/2025/01/19/celtics-slump-hawks-loss-nba/
+
 **Djokovic refuses Australian Open on-court interview after 'insulting and offensive' comments**\
 `MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “insulting and offensive comments” from an Australian television presenter.`\
 https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-interviews-channel-9-tony-jones/
