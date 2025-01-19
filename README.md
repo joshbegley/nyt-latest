@@ -1,3 +1,7 @@
+**Texans' Ryans on controversial flags: 'It was us vs. everybody'**\
+`The two particular calls involved hits against Chiefs quarterback Patrick Mahomes and came on scoring drives for Kansas City. `\
+https://nytimes.com/athletic/6072240/2025/01/18/texans-chiefs-controversial-penalty/
+
 **How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
 `The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/18/us/politics/trump-deal-maker.html
 **Washington’s liberal inauguration-weekend party won’t be held at the African American history museum this year.**\
 `The founder of the Peace Ball, a party held since Barack Obama’s inauguration, said it was ousted after the museum received complaints about its “tone.”`\
 https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/washingtons-liberal-inauguration-weekend-party-wont-be-held-at-the-african-american-history-museum-this-year
-
-**The fire chief in L.A. warned years ago of a ‘weakness’ in wildfire response.**\
-`The memo revealed that L`\
-https://nytimes.com/live/2025/01/18/us/los-angeles-wildfires-california/the-fire-chief-in-la-warned-years-ago-of-a-weakness-in-wildfire-response
 
