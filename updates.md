@@ -1,3 +1,7 @@
+**Trump Faithful Descended on D.C., but Not Everyone Made It Onto a Yacht**\
+`The celebrations ahead of Donald J. Trump’s inauguration included passionate members of his base along with Trump-loving power brokers partying wildly all around them, but just out of reach.`\
+https://nytimes.com/2025/01/19/us/politics/trump-inauguration-dc.html
+
 **Manual for Consistency in Writing**\
 `Katie Byl and Jeff Chen make their collaboration debut.`\
 https://nytimes.com/2025/01/19/crosswords/daily-puzzle-2025-01-20.html
