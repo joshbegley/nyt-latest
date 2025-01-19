@@ -1,3 +1,11 @@
+**Michigan State tops Illinois to remain unbeaten in the Big Ten**\
+`The Spartans' 7-0 start in Big Ten play is their best since the 2018-19 season when they last played in the Final Four.`\
+https://nytimes.com/athletic/6073767/2025/01/19/michigan-state-illinois-big-ten-purdue/
+
+**Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
+`The new business venture by the Trump family is generating intensifying criticism, even as it has turned into an overnight phenomenon, generating a windfall on paper.`\
+https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
+
 **Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
 `The new business venture by the Trump family has turned into an overnight phenomenon, generating a windfall on paper but also intensifying criticism.`\
 https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
