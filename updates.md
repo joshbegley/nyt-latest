@@ -1,3 +1,11 @@
+**Djokovic refuses Australian Open on-court interview after 'insulting and offensive' comments**\
+`MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “insulting and offensive comments” from an Australian television presenter.`\
+https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-interviews-channel-9-tony-jones/
+
+**Novak Djokovic and Carlos Alcaraz set up Australian Open quarterfinal by swapping roles**\
+`Before their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne.`\
+https://nytimes.com/athletic/6072809/2025/01/19/novak-djokovic-carlos-alcaraz-australian-open-quarterfinal-preview/
+
 **The Wild have 'got to act fast' before slide continues**\
 `Saturday's loss isn't a reason to sound the alarms, but there should be a little concern about the way things are trending.`\
 https://nytimes.com/athletic/6072580/2025/01/19/wild-loss-predators/

@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6072643/2025/01/19/justin-kluivert-hat-trick-newcas
 `Dozens of men from the ethnic minority sought escape from repression in China a decade ago, but have been detained in Thailand ever since.`\
 https://nytimes.com/2025/01/19/world/asia/uyghurs-thailand-hunger-strike.html
 
-**Novak Djokovic will not do on-court interviews at Australian Open after 'disrespect' from TV presenter**\
-`MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “disrespect” from an Australian television presenter.`\
+**Djokovic refuses Australian Open on-court interview after 'insulting and offensive' comments**\
+`MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “insulting and offensive comments” from an Australian television presenter.`\
 https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-interviews-channel-9-tony-jones/
 
 **As Truce Takes Hold, Gazans and Israelis Express Elation Tinged With Doubt**\
@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6072902/2025/01/19/liverpool-harvey-elliott-exit-tr
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
 
 **Novak Djokovic and Carlos Alcaraz set up Australian Open quarterfinal by swapping roles**\
-`Ahead of their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne`\
+`Before their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne.`\
 https://nytimes.com/athletic/6072809/2025/01/19/novak-djokovic-carlos-alcaraz-australian-open-quarterfinal-preview/
 
