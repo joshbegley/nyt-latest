@@ -1,3 +1,7 @@
+**Lynne Taylor-Corbett, ‘Footloose’ Choreographer, Dies at 78**\
+`Striving to widen the audience of dance, she brought vitality to Broadway musicals like “Swing!” as well as ballets and Hollywood films.`\
+https://nytimes.com/2025/01/19/arts/dance/lynne-taylor-corbett-dead.html
+
 **How to make sure your donations count, according to aid organizations.**\
 `By Kate Selig`\
 https://nytimes.com/live/2025/01/19/us/los-angeles-wildfires-california/how-to-make-sure-your-donations-count-according-to-aid-organizations

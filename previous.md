@@ -1,3 +1,7 @@
+**Lynne Taylor-Corbett, ‘Footloose’ Choreographer, Dies at 78**\
+`Striving to widen the audience of dance, she brought vitality to Broadway musicals like “Swing!” as well as ballets and Hollywood films.`\
+https://nytimes.com/2025/01/19/arts/dance/lynne-taylor-corbett-dead.html
+
 **How to make sure your donations count, according to aid organizations.**\
 `By Kate Selig`\
 https://nytimes.com/live/2025/01/19/us/los-angeles-wildfires-california/how-to-make-sure-your-donations-count-according-to-aid-organizations
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073431/2025/01/19/raiders-coach-gm-hiring-update-t
 **Guardiola: Foden 'happy again' after recent scoring run**\
 `Pep Guardiola says he is pleased to see Phil Foden &#8220;happy again&#8221; after the midfielder scored two goals for the second time in the space of six days during Sunday&#8217;s win over Ipswich Town.`\
 https://nytimes.com/athletic/6073641/2025/01/19/phil-foden-pep-guardiola-form/
-
-**Instagram Debuts New Video-Editing App, as TikTok Deals With a Ban**\
-`Instagram on Sunday rolled out Edits, a video-editing product that appeared similar to CapCut, which is owned by TikTok’s parent company, ByteDance.`\
-https://nytimes.com/2025/01/19/technology/instagram-video-app-tiktok-ban.html
 
