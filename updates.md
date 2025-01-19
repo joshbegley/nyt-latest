@@ -1,3 +1,11 @@
+**Manual for Consistency in Writing**\
+`Katie Byl and Jeff Chen make their collaboration debut.`\
+https://nytimes.com/2025/01/19/crosswords/daily-puzzle-2025-01-20.html
+
+**TikTok’s Shutdown Notice Included a Politically Attuned Message for Trump**\
+`The ego-stroking message to the man who once famously declared, “I Alone Can Fix It,” was clear.`\
+https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
+
 **Accused 9/11 Mastermind Agrees to Use of Disputed Confession for Life Sentence**\
 `Lawyers for Khalid Shaikh Mohammed have said for years that the confession was tainted by torture. Mr. Mohammed has now agreed that portions can be used at his sentencing trial if prosecutors agree to settle his case.`\
 https://nytimes.com/2025/01/19/us/politics/khalid-shaikh-mohammed-plea-deal-torture-sept-11.html
