@@ -1,3 +1,7 @@
+**La Liga investigating after Barcelona's Balde alleges racist abuse at Getafe**\
+`La Liga are investigating after Alejandro Balde alleged he was the subject of racist abuse during Barcelona&#8217;s game at Getafe on Saturday night.`\
+https://nytimes.com/athletic/6072775/2025/01/19/barcelona-balde-racism-la-liga/
+
 **Learner Tien, Alex Michelsen and the bootcamp propelling them through the Australian Open**\
 `There are three American men aged 23 and under in the second week of a Grand Slam. That hasn't happened since 2003`\
 https://nytimes.com/athletic/6071514/2025/01/19/learner-tien-australian-open-alex-michelsen-american-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/us/politics/biden-trump-china.html
 **Defiance Is Out, Deference Is in: Trump Returns to a Different Washington**\
 `As Donald J. Trump prepares to take the oath of office for a second time, much of the world seems to be bowing down to him and demoralized opponents are rethinking the future.`\
 https://nytimes.com/2025/01/19/us/politics/trump-washington.html
-
-**Donald Trump’s Promises**\
-`President-elect Donald J. Trump, over the course of the 2024 campaign and after his election, made big promises to the American people on everything from the economy to foreign policy. Here’s what he said he would do with a second term.`\
-https://nytimes.com/interactive/2025/01/19/us/politics/trump-president-promises.html
 
