@@ -1,3 +1,7 @@
+**Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
+`The new business venture by the Trump family is generating intensifying criticism and ethics questions, even as it has turned into an overnight phenomenon, generating a windfall on paper.`\
+https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
+
 **TikTok’s shutdown notice included a politically attuned message for Trump.**\
 `The ego-stroking message to the man who once famously declared, “I Alone Can Fix It,” was clear.`\
 https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
