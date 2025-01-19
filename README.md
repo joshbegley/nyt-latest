@@ -1,3 +1,7 @@
+**Canadiens add another embarrassing loss to the ledger, but this one seems less meaningful**\
+`A 7-3 loss to Toronto on home ice is never good, but for the first time this season, Montreal has earned some benefit of the doubt. `\
+https://nytimes.com/athletic/6072607/2025/01/19/canadiens-leafs-another-embarrassing-loss/
+
 **The Commanders are a win away from the Super Bowl. Let that marinate for a bit**\
 `The Commanders, who were 4-13 a year ago, a franchise of ill repute for a generation, are going to the NFC Championship Game next Sunday.`\
 https://nytimes.com/athletic/6072041/2025/01/19/commanders-a-win-away-from-the-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072374/2025/01/19/pistons-suns-cade-cunningham/
 **Newcastle's remarkable run is over - it's what happens next that matters**\
 `A big defeat and a poor performance should not leave Newcastle disheartened but they need to react strongly`\
 https://nytimes.com/athletic/6071778/2025/01/19/newcastle-premier-league-run-over/
-
-**Lukas Reichel recalibrating his expectations, (maybe) reinserting himself into Blackhawks' future**\
-`If Reichel can emerge as a useful player for Chicago, it would be a huge development for a team that has all but written him off already.`\
-https://nytimes.com/athletic/6072498/2025/01/19/blackhawks-lukas-reichel-future/
 
