@@ -1,3 +1,7 @@
+**Wild drop the gloves but show little fight in 6-2 drubbing by Predators: Takeaways**\
+`After L'Heureux slew-footed Jared Spurgeon, sidelining the Wild captain, payback was expected in the rematch — and it came early. `\
+https://nytimes.com/athletic/6072479/2025/01/19/wild-lose-to-predators/
+
 **The Pistons need a secondary ballhandler and playmaker to aid Cade Cunningham**\
 `When the Pistons' lead guard is on the sideline, they often become stagnant offensively and concede leads or dig a deeper hole.`\
 https://nytimes.com/athletic/6072374/2025/01/19/pistons-suns-cade-cunningham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071552/2025/01/19/commanders-score-result-takeaway
 **What's next for Lions after turnovers sink Detroit in divisional loss to Commanders: Key takeaways**\
 `Lions committed five turnovers and had no answers for Jayden Daniels,`\
 https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl-playoffs/
-
-**Here’s what to know about the cease-fire.**\
-`By Aaron Boxerman, Rawan Sheikh Ahmad and Alan Yuhas`\
-https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/heres-what-to-know-about-the-cease-fire
 
