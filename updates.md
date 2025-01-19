@@ -8,6 +8,16 @@ https://nytimes.com/athletic/6070042/2025/01/18/blue-jackets-daniil-tarasov-nhl/
 `\
 https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-analysis-grades/
 
+**Blue Jackets' Daniil Tarasov records first career shutout in loss, makes NHL history**\
+`Tarasov became the first goaltender in NHL history to record his first career shutout and suffer a loss in the same game.
+`\
+https://nytimes.com/athletic/6070042/2025/01/18/blue-jackets-daniil-tarasov-nhl/
+
+**Maple Leafs report cards: 7 unanswered goals erase bad start**\
+`The Maple Leafs scored seven straight to overcome a 3-0 first-period deficit for a 7-3 win over the Canadiens.
+`\
+https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-analysis-grades/
+
 **Texans can't take next step, beat themselves in divisional round loss to Chiefs**\
 `You have to be all but perfect to upset Patrick Mahomes and the Chiefs at Arrowhead. The Texans were far from it.`\
 https://nytimes.com/athletic/6072405/2025/01/18/texans-chiefs-penalties-cj-stroud/
