@@ -1,3 +1,11 @@
+**Hurzeler: Mitoma 'has everything' after role in Brighton's Man Utd win**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says Kaoru Mitoma “has everything” after the left-winger&#8217;s influential role in the 3-1 win at Manchester United.`\
+https://nytimes.com/athletic/6073373/2025/01/19/kaoru-mitoma-brighton-manchester-united/
+
+**What We Know About the TikTok Ban**\
+`The popular video app went dark in the United States late Saturday and then came back around noon on Sunday, even as a law banning it took effect.`\
+https://nytimes.com/2025/01/19/business/what-we-know-tiktok.html
+
 **Long-Awaited Cease-Fire Between Hamas and Israel Takes Effect**\
 `Hamas released three hostages after more than 15 months of captivity, while residents of the Gaza Strip celebrated a long-awaited respite from the war.`\
 https://nytimes.com/video/world/middleeast/100000009935991/gaza-hamas-israel-ceasefire-hostages-.html
