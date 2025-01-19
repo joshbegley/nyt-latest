@@ -1,3 +1,7 @@
+**The Push and Pull of Los Angeles: Beauty and Danger**\
+`Somini Sengupta, a climate reporter who has lived across Los Angeles, reflects on the city, its mythology and its reckoning with disaster.`\
+https://nytimes.com/2025/01/19/us/los-angeles-beauty-danger.html
+
 **The Pulse: A No. 1 seed goes down ... bad**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6073121/2025/01/19/nfl-commanders-lions-unrivaled-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073020/2025/01/19/barcelona-dani-olmo-injury-calf/
 **Joe Mazzulla, Celtics embrace conflict amid 8-8 slump: 'This is the fun part'**\
 `“There is no fear,” coach Joe Mazzulla said. “I'm actually more excited at this juncture of the season than I was at the beginning.”`\
 https://nytimes.com/athletic/6072708/2025/01/19/celtics-slump-hawks-loss-nba/
-
-**The Wild have 'got to act fast' before slide continues**\
-`Saturday's loss isn't a reason to sound the alarms, but there should be a little concern about the way things are trending.`\
-https://nytimes.com/athletic/6072580/2025/01/19/wild-loss-predators/
 

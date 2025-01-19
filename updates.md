@@ -1,3 +1,7 @@
+**The Push and Pull of Los Angeles: Beauty and Danger**\
+`Somini Sengupta, a climate reporter who has lived across Los Angeles, reflects on the city, its mythology and its reckoning with disaster.`\
+https://nytimes.com/2025/01/19/us/los-angeles-beauty-danger.html
+
 **The Pulse: A No. 1 seed goes down ... bad**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6073121/2025/01/19/nfl-commanders-lions-unrivaled-the-pulse/
