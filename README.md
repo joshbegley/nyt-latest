@@ -1,3 +1,11 @@
+**A year of Pau Cubarsi**\
+`Cubarsi could not mark the first anniversary of his debut as he would have liked, but his maturity and development is something to celebrate`\
+https://nytimes.com/athletic/6072723/2025/01/19/pau-cubarsi-barcelona-year/
+
+**Man City considering midfield signing in January**\
+`Manchester City are considering whether to continue their January recruitment by adding a midfielder to manager Pep Guardiola’s squad.`\
+https://nytimes.com/athletic/6072787/2025/01/19/man-city-transfers-douglas-luiz/
+
 **A Veteran Photographer Still Wants to Improve on Inauguration Day**\
 `Doug Mills has photographed every presidential swearing-in ceremony since 1985. “I’ve learned a lot from all of them,” he said.`\
 https://nytimes.com/2025/01/19/pageoneplus/trump-photographer-doug-mills.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/19/travel/how-ai-tools-helped-the-travel-team-study-
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/19/crosswords/spelling-bee-forum.html
-
-**Canadiens add another embarrassing loss to the ledger, but this one seems less meaningful**\
-`A 7-3 loss to Toronto on home ice is never good, but for the first time this season, Montreal has earned some benefit of the doubt. `\
-https://nytimes.com/athletic/6072607/2025/01/19/canadiens-leafs-another-embarrassing-loss/
-
-**The Commanders are a win away from the Super Bowl. Let that marinate for a bit**\
-`The Commanders, who were 4-13 a year ago, a franchise of ill repute for a generation, are going to the NFC Championship Game next Sunday.`\
-https://nytimes.com/athletic/6072041/2025/01/19/commanders-a-win-away-from-the-super-bowl/
 
