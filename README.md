@@ -1,3 +1,23 @@
+**Here’s what to know about the cease-fire.**\
+`By Aaron Boxerman, Rawan Sheikh Ahmad and Alan Yuhas`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/heres-what-to-know-about-the-cease-fire
+
+**We need to talk about fouls**\
+`Why crediting a fouled player with the xG of the subsequent set-piece shot can help better illustrate their attacking involvement`\
+https://nytimes.com/athletic/6069070/2025/01/19/premier-league-fouls-tactical-value/
+
+**Why is there no winter break in the Premier League?**\
+`Players across Europe are given a break at this time of year - so why is it different in England's top tier?`\
+https://nytimes.com/athletic/6064269/2025/01/19/premier-league-winter-break/
+
+**These Rooms Give Young Indian Lovers Rare Privacy. Cue the Complaints.**\
+`A policy change by a popular hotel platform shows the tension between traditional values and modern ideals in India.`\
+https://nytimes.com/2025/01/19/world/asia/india-oyo.html
+
+**Quote of the Day: Inside Copter 17’s Terrifying Ride Above an Inferno**\
+`Quotation of the Day for Sunday, January 19, 2025.`\
+https://nytimes.com/2025/01/19/pageoneplus/quote-of-the-day-inside-copter-17s-terrifying-ride-above-an-inferno.html
+
 **'It's not normal': Patrick Mahomes, Chiefs make it 7 straight AFC title games**\
 `The Chiefs, seeking the first Super Bowl three-peat, will host the AFC Championship Game for the sixth time in the last seven years.`\
 https://nytimes.com/athletic/6072424/2025/01/18/chiefs-patrick-mahomes-texans-afc-playoffs/
@@ -19,24 +39,4 @@ https://nytimes.com/athletic/6070042/2025/01/18/blue-jackets-daniil-tarasov-nhl/
 `The Maple Leafs scored seven straight to overcome a 3-0 first-period deficit for a 7-3 win over the Canadiens.
 `\
 https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-analysis-grades/
-
-**Bridgewater, in NFL return, leads Lions on playoff scoring drive**\
-`Bridgewater handed the ball off to Jameson Williams, who broke free and ran for 61 yards and the TD in the second quarter.`\
-https://nytimes.com/athletic/6072323/2025/01/18/teddy-bridgewater-lions-nfl-return-score/
-
-**TikTok Starts Going Dark in the U.S.**\
-`The popular video app stopped working shortly before a federal law barring U.S. companies from hosting or distributing TikTok was set to take effect on Sunday.`\
-https://nytimes.com/2025/01/18/technology/tiktok-ban.html
-
-**Penguins, Capitals continue to move in different directions: Observations**\
-`The Penguins and Capitals renewed arguably the highest-profile rivalry of the salary-cap era on Saturday night.`\
-https://nytimes.com/athletic/6072329/2025/01/18/penguins-capitals-crosby-ovechkin-observations/
-
-**A Trump Party Hosted by Peter Thiel, With All of Silicon Valley**\
-`The party symbolized the euphoria of the tech industry on the cusp of the Trump presidency. The guest list included Mark Zuckerberg, Sam Altman, Miriam Adelson and the vice president-elect, JD Vance.`\
-https://nytimes.com/2025/01/18/us/politics/trump-party-peter-thiel-zuckerberg-vance.html
-
-**Corrections: Jan. 19, 2025**\
-`Corrections that appeared in print on Sunday, Jan. 19, 2025.`\
-https://nytimes.com/2025/01/18/pageoneplus/corrections-jan-19-2025.html
 
