@@ -1,3 +1,7 @@
+**Trump returns to D.C. with a full day of pre-inauguration events.**\
+`By Michael D. Shear and Maggie Haberman`\
+https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/trump-returns-to-dc-with-a-full-day-of-pre-inauguration-events
+
 **Nugent-Bowman: Connor McDavid deserves a suspension — but where were the referees?**\
 `It wasn't just Saturday night against the Canucks. The Oilers star hasn't been drawing penalty calls all season.`\
 https://nytimes.com/athletic/6072795/2025/01/19/oilers-canucks-connor-mcdavid-suspension-referees-nhl/
