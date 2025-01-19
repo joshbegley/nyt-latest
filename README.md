@@ -1,3 +1,8 @@
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
 `In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager — and the last one standing in Melbourne.`\
 https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
@@ -33,8 +38,4 @@ https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/washingtons-liber
 **The fire chief in L.A. warned years ago of a ‘weakness’ in wildfire response.**\
 `The memo revealed that L`\
 https://nytimes.com/live/2025/01/18/us/los-angeles-wildfires-california/the-fire-chief-in-la-warned-years-ago-of-a-weakness-in-wildfire-response
-
-**Powerful Santa Ana Winds Expected to Elevate Fire Risk in Southern California**\
-`Meteorologists said there was a chance the winds would be as severe as those that fueled the Palisades and Eaton fires, but that different locations would likely be affected.`\
-https://nytimes.com/2025/01/18/weather/santa-ana-winds-wildfire-california.html
 
