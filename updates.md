@@ -1,3 +1,11 @@
+**Kelce sets playoff record as Chiefs top Texans, advance to AFC Championship Game: Takeaways**\
+`For the seventh straight season, Kansas City is heading to the AFC Championship Game.`\
+https://nytimes.com/athletic/6071519/2025/01/18/chiefs-game-score-playoffs-takeaways-divisional-round/
+
+**'The homework assignment': Inside the final weeks of the chase for Roki Sasaki**\
+`How a yearslong selection process ended with a sushi chef, a Bel Air mansion, and a text from the most famous baseball player on the planet.`\
+https://nytimes.com/athletic/6071231/2025/01/18/roki-sasaki-dodgers-inside-signing-selection-process/
+
 **Alabama feasts on Kentucky defense, regains its swagger with big win in Lexington**\
 `The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
 https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
