@@ -1,3 +1,7 @@
+**Amorim: 'We are being maybe the worst team in the history of Man Utd'**\
+`Ruben Amorim called his Manchester United side &#8220;maybe the worst team in the history&#8221; of the club after they fell to yet another defeat in the Premier League, this time at the hands of Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/6073311/2025/01/19/manchester-united-ruben-amorim-worst-team/
+
 **The Briefing: Everton 3-2 Tottenham - How long can Postecoglou survive?**\
 `The major talking points from Goodison Park analysed after Spurs slumped to another bad defeat`\
 https://nytimes.com/athletic/6071736/2025/01/19/everton-tottenham-premier-league-analysis/
