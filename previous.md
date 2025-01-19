@@ -1,3 +1,7 @@
+**Barkley, Eagles advance to NFC Championship Game after 28-22 win vs. Rams: Takeaways**\
+`Barkley's two touchdowns and 205 rushing yards put the Eagles in the NFC Championship Game for the second time in the last three seasons.`\
+https://nytimes.com/athletic/6072993/2025/01/19/eagles-score-result-takeaways-nfl-nfc-divisional-round/
+
 **Commanders at Eagles: How to watch, odds with Philly opening as a 5-point favorite**\
 `Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
 https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6067648/2025/01/19/zay-flowers-knee-injury-practice
 **Trump Aims for Show of Strength as He Returns to Power**\
 `The incoming president has told allies he wants to seize momentum and avoid the missteps of his first administration.`\
 https://nytimes.com/2025/01/19/us/politics/trump-return-power.html
-
-**TikTok’s Shutdown Notice Included a Politically Attuned Message for Trump**\
-`The ego-stroking message to the man who once famously declared, “I alone can fix it,” was clear.`\
-https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
 
