@@ -1,3 +1,8 @@
+**Blue Jackets' Daniil Tarasov records first career shutout in loss, makes NHL history**\
+`Tarasov became the first goaltender in NHL history to record his first career shutout and suffer a loss in the same game.
+`\
+https://nytimes.com/athletic/6070042/2025/01/18/blue-jackets-daniil-tarasov-nhl/
+
 **Maple Leafs report cards: 7 unanswered goals erase bad start**\
 `The Maple Leafs scored seven straight to overcome a 3-0 first-period deficit for a 7-3 win over the Canadiens.
 `\
@@ -35,8 +40,4 @@ https://nytimes.com/athletic/6071080/2025/01/18/xavier-lucas-transfer-portal-mia
 `The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
-
-**The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
-`In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager with a ranking under three figures.`\
-https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
 
