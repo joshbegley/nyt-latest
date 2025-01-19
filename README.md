@@ -1,3 +1,7 @@
+**Get Your Scorecards: Global Opportunities for Trump the Deal Maker**\
+`President-elect Donald J. Trump has made big promises on Ukraine, Iran, China and crises around the globe. But he will have to make difficult choices.`\
+https://nytimes.com/2025/01/18/us/politics/trump-deal-maker.html
+
 **Washington’s liberal inauguration-weekend party won’t be held at the African American history museum this year.**\
 `The founder of the Peace Ball, a party held since Barack Obama’s inauguration, said it was ousted after the museum received complaints about its “tone.”`\
 https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/washingtons-liberal-inauguration-weekend-party-wont-be-held-at-the-african-american-history-museum-this-year
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009935546/dc-peoples-march-trump-ina
 **André Soltner, Famed Chef at New York’s Lutèce, Dies at 92**\
 `Customers returned again and again for his impeccable French dishes at a restaurant that one food critic said “set the gold standard.”`\
 https://nytimes.com/2025/01/18/dining/andre-soltner-dead.html
-
-**TikTok Fueled Travel Crazes, What Happens Now?**\
-`The app gave places like an ice cream shop/wine bar fame, and sometimes overwhelmed them with crowds. Influencers and destinations await the fallout.`\
-https://nytimes.com/2025/01/18/travel/tiktok-travel-trends.html
 
