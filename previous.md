@@ -6,6 +6,10 @@ https://nytimes.com/2025/01/19/briefing/college-football-general-managers.html
 `On Sunday, Lindsey Vonn had the first setback in her strong return to alpine skiing, crashing while on pace for a top-three Super-G finish.`\
 https://nytimes.com/athletic/6072868/2025/01/19/lindsey-vonn-crashes-super-g-cortina-olympics/
 
+**Elliott dismisses Liverpool exit speculation: 'This is my club'**\
+`Harvey Elliott has dismissed speculation linking him with a possible move away from Liverpool as he insisted: “This is my club and I’ll fight for my place.`\
+https://nytimes.com/athletic/6072902/2025/01/19/liverpool-harvey-elliott-exit-transfer/
+
 **Commanders quiet doubters, lock up spot in NFC championship: 'It’s a feeling like no other'**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed indeed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/opinion/tiktok-ban-teenagers.html
 **Trump Barely Won the Election. Why Doesn’t It Feel That Way?**\
 `The president-elect’s cultural victory has lapped his political victory.`\
 https://nytimes.com/2025/01/19/opinion/trump-mandate-zuckerberg-masculinity.html
-
-**‘We’d Have Been Better Off if Trump Won in 2020’: Three Columnists Brace for the First 100 Days**\
-`What kind of disruptions does America need? And what will Trump not actually follow through on?`\
-https://nytimes.com/2025/01/19/opinion/trump-second-term.html
 

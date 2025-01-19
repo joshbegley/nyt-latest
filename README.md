@@ -1,3 +1,7 @@
+**As Truce Takes Hold, Gazans and Israelis Express Elation Tinged With Doubt**\
+`After 470 days of death, a tentative cease-fire began on Sunday in Gaza. But Palestinians could not be sure that the war had ended, and Israelis fear that many hostages will still remain in Gaza.`\
+https://nytimes.com/2025/01/19/world/middleeast/gaza-israel-mood.html
+
 **A Major Change in College Football**\
 `General managers — once purely the domain of professional sports — are taking over.`\
 https://nytimes.com/2025/01/19/briefing/college-football-general-managers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/opinion/kyle-maclachlan-david-lynch.html
 **I’m a 17-Year-Old TikTok Junkie. I Need This Ban.**\
 `What worries me most right now is the future of my generation.`\
 https://nytimes.com/2025/01/19/opinion/tiktok-ban-teenagers.html
-
-**Trump Barely Won the Election. Why Doesn’t It Feel That Way?**\
-`The president-elect’s cultural victory has lapped his political victory.`\
-https://nytimes.com/2025/01/19/opinion/trump-mandate-zuckerberg-masculinity.html
 

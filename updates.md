@@ -1,3 +1,7 @@
+**Elliott dismisses Liverpool exit speculation: 'This is my club'**\
+`Harvey Elliott has dismissed speculation linking him with a possible move away from Liverpool as he insisted: “This is my club and I’ll fight for my place.`\
+https://nytimes.com/athletic/6072902/2025/01/19/liverpool-harvey-elliott-exit-transfer/
+
 **A Major Change in College Football**\
 `General managers — once purely the domain of professional sports — are taking over.`\
 https://nytimes.com/2025/01/19/briefing/college-football-general-managers.html
