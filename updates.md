@@ -1,3 +1,7 @@
+**As Truce Takes Hold, Gazans and Israelis Express Elation Tinged With Doubt**\
+`After 470 days of death, a tentative cease-fire began on Sunday in Gaza. But Palestinians could not be sure that the war had ended, and Israelis fear that many hostages will still remain in Gaza.`\
+https://nytimes.com/2025/01/19/world/middleeast/gaza-israel-mood.html
+
 **Elliott dismisses Liverpool exit speculation: 'This is my club'**\
 `Harvey Elliott has dismissed speculation linking him with a possible move away from Liverpool as he insisted: “This is my club and I’ll fight for my place.`\
 https://nytimes.com/athletic/6072902/2025/01/19/liverpool-harvey-elliott-exit-transfer/
