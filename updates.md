@@ -1,3 +1,11 @@
+**What’s With All the Dancing at Fashion Shows?**\
+`In Milan, arty dance routines seemed more prevalent than runway shows, as fashion houses aimed to give their audiences something — anything — to Instagram about.`\
+https://nytimes.com/2025/01/19/style/milan-mens-fashion-week-dance.html
+
+**Awaiting prisoner releases, West Bank Palestinians hold off celebrating.**\
+`By Fatima AbdulKarim`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/awaiting-prisoner-releases-west-bank-palestinians-hold-off-celebrating
+
 **A Flag From Four Years Ago**\
 `At President Biden’s inauguration in 2021, nearly 200,000 American flags filled the National Mall. Visitors were invited to take them.`\
 https://nytimes.com/2025/01/19/insider/a-flag-from-four-years-ago.html
