@@ -1,3 +1,11 @@
+**'It’s a feeling like no other': Commanders quiet doubters, lock up spot in NFC championship**\
+`If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed indeed did the trick. `\
+https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
+
+**Novak Djokovic and Carlos Alcaraz set up Australian Open quarterfinal by swapping roles**\
+`Ahead of their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne.`\
+https://nytimes.com/athletic/6072809/2025/01/19/novak-djokovic-carlos-alcaraz-australian-open-quarterfinal-preview/
+
 **First 3 Israeli Hostages to Be Freed Under Gaza Cease-Fire Are Named**\
 `Thirty-three people will be released during the first 6-week phase, including female soldiers and civilians, children and men over 50. Here is a look at those expected to be released on Sunday.`\
 https://nytimes.com/2025/01/19/world/middleeast/hostages-emily-tamari-doron-steinbrecher-romi-gonen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/19/opinion/sean-spicer-trump-president.html
 **The Sunday Read: ‘Opioids Ravaged a Kentucky Town. Then Rehab Became Its Business.’**\
 `In Louisa, Ky., an unbearable social crisis has become the main source of economic opportunity.`\
 https://nytimes.com/2025/01/19/podcasts/the-daily/the-sunday-read-opioids-ravaged-a-kentucky-town-then-rehab-became-its-business.html
-
-**There Is No Way to Retreat From the Risk of Wildfires**\
-`Some more realistic ways to think about the challenges ahead.`\
-https://nytimes.com/2025/01/19/opinion/los-angeles-wildfires-burn.html
-
-**Checking In on America’s Vibes as Trump Takes the Stage**\
-`After Trump won, Americans seem to have traded anger for hope.`\
-https://nytimes.com/interactive/2025/01/19/opinion/democrat-republican-post-election-vibes-mood.html
 
