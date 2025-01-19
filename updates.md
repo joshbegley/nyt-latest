@@ -1,3 +1,7 @@
+**Oilers' McDavid faces likely suspension after cross-checking Canucks' Garland**\
+`The captain was assessed a match penalty for the incident, which comes with an automatic suspension pending a review by the commissioner.`\
+https://nytimes.com/athletic/6072628/2025/01/19/connor-mcdavid-suspension-penalty-oilers/
+
 **Nunez is Liverpool's late, late agent of chaos - whatever his future holds**\
 `The Uruguyan is a frustrating figure but his brace at Brentford showed why Liverpool must persist with him - for now at least`\
 https://nytimes.com/athletic/6071905/2025/01/19/darwin-nunez-liverpool-chaos-late-goal/
