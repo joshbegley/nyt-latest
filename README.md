@@ -1,3 +1,7 @@
+**Amorim: 'We are being maybe the worst team in the history of Man Utd'**\
+`Ruben Amorim called his Manchester United side &#8220;maybe the worst team in the history&#8221; of the club after they fell to yet another defeat in the Premier League, this time at the hands of Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/6073311/2025/01/19/manchester-united-ruben-amorim-worst-team/
+
 **What We Know About the TikTok Ban and if It May Be Lifted**\
 `The popular video app went dark in the United States late Saturday, as a law banning it took effect. Now, the company is hoping President-elect Donald J. Trump can bring it back.`\
 https://nytimes.com/2025/01/19/business/what-we-know-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/aid-trucks
 **The Briefing: Everton 3-2 Tottenham - How long can Postecoglou survive?**\
 `The major talking points from Goodison Park analysed after Spurs slumped to another bad defeat`\
 https://nytimes.com/athletic/6071736/2025/01/19/everton-tottenham-premier-league-analysis/
-
-**The Briefing: Man United 1 Brighton 3: Defensive issues, Onana fumble and where does Amorim go from here?**\
-`We break down the talking points from a disappointing defeat for Ruben Amorim's side at Old Trafford.`\
-https://nytimes.com/athletic/6071737/2025/01/19/manchester-united-brighton-premier-league-analysis/
 
