@@ -1,3 +1,17 @@
+**'It's not normal': Patrick Mahomes, Chiefs make it 7 straight AFC title games**\
+`The Chiefs, seeking the first Super Bowl three-peat, will host the AFC Championship Game for the sixth time in the last seven years.`\
+https://nytimes.com/athletic/6072424/2025/01/18/chiefs-patrick-mahomes-texans-afc-playoffs/
+
+**Blue Jackets' Daniil Tarasov records first career shutout in loss, makes NHL history**\
+`Tarasov became the first goaltender in NHL history to record his first career shutout and suffer a loss in the same game.
+`\
+https://nytimes.com/athletic/6070042/2025/01/18/blue-jackets-daniil-tarasov-nhl/
+
+**Maple Leafs report cards: 7 unanswered goals erase bad start**\
+`The Maple Leafs scored seven straight to overcome a 3-0 first-period deficit for a 7-3 win over the Canadiens.
+`\
+https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-analysis-grades/
+
 **Blue Jackets' Daniil Tarasov records first career shutout in loss, makes NHL history**\
 `Tarasov became the first goaltender in NHL history to record his first career shutout and suffer a loss in the same game.
 `\
