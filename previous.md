@@ -1,3 +1,7 @@
+**Commanders at Eagles: How to watch, odds with Philly opening as a 5-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **Trump Vowed to End the Ukraine War Before Taking Office. The War Rages On.**\
 `Donald J. Trump’s promise to broker peace between Russia and Ukraine in 24 hours, “before I even become president,” proved to be hyperbole.`\
 https://nytimes.com/2025/01/19/us/politics/trump-promise-ending-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/us/politics/trump-return-power.html
 **TikTok’s Shutdown Notice Included a Politically Attuned Message for Trump**\
 `The ego-stroking message to the man who once famously declared, “I alone can fix it,” was clear.`\
 https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
-
-**Washington guard Sam Cosmi out for playoffs with torn ACL**\
-`Washington's red-hot offensive line loses Cosmi after he allowed just one sack all season.`\
-https://nytimes.com/athletic/6073748/2025/01/19/commanders-sam-cosmi-acl-injury-season-over/
 

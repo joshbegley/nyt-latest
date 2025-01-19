@@ -1,3 +1,7 @@
+**Commanders at Eagles: How to watch, odds with Philly opening as a 5-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **Gazans and Israelis Dare to Hope as Cease-Fire Takes Hold**\
 `After the fighting paused, Hamas began to free some of its hostages, releasing 3, and Israel said it had released 90 Palestinian prisoners.`\
 https://nytimes.com/2025/01/19/world/middleeast/gazans-and-israelis-dare-to-hope-as-cease-fire-takes-hold.html
