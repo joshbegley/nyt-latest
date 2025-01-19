@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
 
 **Novak Djokovic and Carlos Alcaraz set up Australian Open quarterfinal by swapping roles**\
-`Ahead of their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne.`\
+`Ahead of their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne`\
 https://nytimes.com/athletic/6072809/2025/01/19/novak-djokovic-carlos-alcaraz-australian-open-quarterfinal-preview/
 
 **First 3 Israeli Hostages to Be Freed Under Gaza Cease-Fire Are Named**\
