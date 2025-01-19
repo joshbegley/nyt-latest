@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-pl
 `\
 https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
 
+**How Senators pulled off comeback vs. Bruins in 'preview of what's to come': 3 takeaways**\
+`The Senators came back and emerged victorious in a playoff-like atmosphere against the Bruins at the Canadian Tire Centre.
+`\
+https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-playoffs/
+
 **Corrections: Jan. 19, 2025**\
 `Corrections that appeared in print on Sunday, Jan. 19, 2025.`\
 https://nytimes.com/2025/01/18/pageoneplus/corrections-jan-19-2025.html
