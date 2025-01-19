@@ -1,3 +1,11 @@
+**Bridgewater, in NFL return, leads Lions on playoff scoring drive**\
+`Bridgewater handed the ball off to Jameson Williams, who broke free and ran for 61 yards and the TD in the second quarter.`\
+https://nytimes.com/athletic/6072323/2025/01/18/teddy-bridgewater-lions-nfl-return-score/
+
+**TikTok Tells Users It Will Be ‘Temporarily Unavailable’ in the U.S.**\
+`The popular video app displayed a message signaling it might go offline, with a federal law barring U.S. companies from hosting or distributing TikTok set to take effect on Sunday.`\
+https://nytimes.com/2025/01/18/technology/tiktok-ban.html
+
 **Penguins, Capitals continue to move in different directions: Observations**\
 `The Penguins and Capitals renewed arguably the highest-profile rivalry of the salary-cap era on Saturday night.`\
 https://nytimes.com/athletic/6072329/2025/01/18/penguins-capitals-crosby-ovechkin-observations/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-
 **Kelce sets playoff record as Chiefs top Texans, advance to AFC Championship Game: Takeaways**\
 `For the seventh straight season, Kansas City is heading to the AFC Championship Game.`\
 https://nytimes.com/athletic/6071519/2025/01/18/chiefs-game-score-playoffs-takeaways-divisional-round/
-
-**'The homework assignment': Inside the final weeks of the chase for Roki Sasaki**\
-`How a yearslong selection process ended with a sushi chef, a Bel Air mansion, and a text from the most famous baseball player on the planet.`\
-https://nytimes.com/athletic/6071231/2025/01/18/roki-sasaki-dodgers-inside-signing-selection-process/
-
-**How a lesson from Joe Mazzulla helped Nate Oats and Alabama beat Kentucky at Rupp Arena**\
-`The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
-https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
 
