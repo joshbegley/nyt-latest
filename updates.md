@@ -1,3 +1,7 @@
+**Olmo suffers calf injury, ruled out of Barcelona's Benfica trip**\
+`Dani Olmo has suffered a calf injury that Barcelona say will rule him out of Tuesday&#8217;s Champions League trip to Benfica.`\
+https://nytimes.com/athletic/6073020/2025/01/19/barcelona-dani-olmo-injury-calf/
+
 **Joe Mazzulla, Celtics embrace conflict amid 8-8 slump: 'This is the fun part'**\
 `“There is no fear,” coach Joe Mazzulla said. “I'm actually more excited at this juncture of the season than I was at the beginning.”`\
 https://nytimes.com/athletic/6072708/2025/01/19/celtics-slump-hawks-loss-nba/
