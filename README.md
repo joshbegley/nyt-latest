@@ -1,3 +1,7 @@
+**How Tom Brady handled his ownership-analyst conflict on TV: Takeaways**\
+`Tom Brady called his best game yet as a TV analyst, but he was clearly avoiding the name Ben Johnson.`\
+https://nytimes.com/athletic/6069493/2025/01/19/tom-brady-ownership-conflict-fox-takeaways/
+
 **Wild drop the gloves but show little fight in 6-2 drubbing by Predators: Takeaways**\
 `After L'Heureux slew-footed Jared Spurgeon, sidelining the Wild captain, payback was expected in the rematch — and it came early. `\
 https://nytimes.com/athletic/6072479/2025/01/19/wild-lose-to-predators/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069352/2025/01/19/the-purples-who-support-man-utd-
 **Daniels, Commanders stun Lions 45-31 for NFC championship trip: Takeaways**\
 `Washington followed its first playoff win since the 2005 season with a historic divisional upset against Detroit on the road.`\
 https://nytimes.com/athletic/6071552/2025/01/19/commanders-score-result-takeaways-nfl-playoffs/
-
-**What's next for Lions after turnovers sink Detroit in divisional loss to Commanders: Key takeaways**\
-`Lions committed five turnovers and had no answers for Jayden Daniels in the NFC divisional round playoff game. `\
-https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl-playoffs/
 
