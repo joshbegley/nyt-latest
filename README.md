@@ -1,3 +1,11 @@
+**Hamas Tries to Show It’s Back in Charge of Gaza**\
+`Rarely seen in the open while the war raged, masked and armed fighters spread out publicly through Gaza’s cities in a show of force on Sunday.`\
+https://nytimes.com/2025/01/19/world/middleeast/hamas-in-charge-gaza.html
+
+**How Antonio Conte's free roles for McTominay and Anguissa could win Napoli another title**\
+`The manager has loosened up his tactics and it's working`\
+https://nytimes.com/athletic/6073040/2025/01/19/how-contes-free-roles-for-mctominay-and-anguissa-could-win-napoli-another-title/
+
 **Dele returns to club football with Como**\
 `Former Premier League midfielder Dele Alli has signed a deal with Italian side Como until 2026.`\
 https://nytimes.com/athletic/6029225/2025/01/19/dele-alli-como-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071737/2025/01/19/manchester-united-brighton-premi
 **Practice Makes Perfect Fish**\
 `I’m cooking Kenji López-Alt’s gorgeous Cantonese-style fish this weekend so that I have the technique nailed in time for Lunar New Year.`\
 https://nytimes.com/2025/01/19/dining/cantonese-fish-lunar-new-year.html
-
-**Significant Winter Storm Heads to the Mid-Atlantic and the Northeast**\
-`Heavy snow is expected on Sunday in the Northeast before the coldest air in several years descends across much of the country starting on Monday, forecasters warned.`\
-https://nytimes.com/2025/01/19/weather/snow-winter-storm-northeast-polar-vortex.html
-
-**Israel-Hamas Truce Leaves Big Questions Unresolved for Now**\
-`It remains unclear whether the six-week truce will lead to a permanent cease-fire and the release of the remaining hostages in Gaza, or if fighting will resume.`\
-https://nytimes.com/2025/01/19/world/middleeast/israel-hamas-cease-fire-next-steps.html
 
