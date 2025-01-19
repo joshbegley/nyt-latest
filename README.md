@@ -1,3 +1,7 @@
+**Penguins, Capitals continue to move in different directions: Observations**\
+`The Penguins and Capitals renewed arguably the highest-profile rivalry of the salary-cap era on Saturday night.`\
+https://nytimes.com/athletic/6072329/2025/01/18/penguins-capitals-crosby-ovechkin-observations/
+
 **A Trump Party Hosted by Peter Thiel, With All of Silicon Valley**\
 `The party symbolized the euphoria of the tech industry on the cusp of the Trump presidency. The guest list included Mark Zuckerberg, Sam Altman, Miriam Adelson and the vice president-elect, JD Vance.`\
 https://nytimes.com/2025/01/18/us/politics/trump-party-peter-thiel-zuckerberg-vance.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6071231/2025/01/18/roki-sasaki-dodgers-inside-signi
 **How a lesson from Joe Mazzulla helped Nate Oats and Alabama beat Kentucky at Rupp Arena**\
 `The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
 https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
-
-**What went wrong for Texans in 23-14 loss to Chiefs: Takeaways**\
-`The Chiefs' pressure thwarted Houston’s attempt to come from behind in the AFC divisional game.`\
-https://nytimes.com/athletic/6071527/2025/01/18/texans-score-result-takeaways-nfl-playoffs/
 
