@@ -31,7 +31,7 @@ https://nytimes.com/2025/01/19/arts/music/melba-montgomery-dead.html
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/aid-trucks-began-moving-into-gaza-as-part-of-the-cease-fire-deal
 
 **The Briefing: Everton 3-2 Tottenham - How long can Postecoglou survive?**\
-`The major talking points from Goodison Parn analysed after Spurs slumped to another bad defeat`\
+`The major talking points from Goodison Park analysed after Spurs slumped to another bad defeat`\
 https://nytimes.com/athletic/6071736/2025/01/19/everton-tottenham-premier-league-analysis/
 
 **The Briefing: Man United 1 Brighton 3: Defensive issues, Onana fumble and where does Amorim go from here?**\

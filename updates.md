@@ -1,3 +1,7 @@
+**The Briefing: Everton 3-2 Tottenham - How long can Postecoglou survive?**\
+`The major talking points from Goodison Park analysed after Spurs slumped to another bad defeat`\
+https://nytimes.com/athletic/6071736/2025/01/19/everton-tottenham-premier-league-analysis/
+
 **What We Know About the TikTok Ban and if It May Be Lifted**\
 `The popular video app went dark in the United States late Saturday, as a law banning it took effect. Now, the company is hoping President-elect Donald J. Trump can bring it back.`\
 https://nytimes.com/2025/01/19/business/what-we-know-tiktok.html
