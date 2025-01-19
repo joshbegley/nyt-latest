@@ -1,3 +1,15 @@
+**Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
+`The new business venture by the Trump family has turned into an overnight phenomenon, generating a windfall on paper but also intensifying criticism.`\
+https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
+
+**What’s behind the uneven exchange of Israeli hostages for Palestinian prisoners?**\
+`By Ephrat Livni and Aaron Boxerman`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/whats-behind-the-uneven-exchange-of-israeli-hostages-for-palestinian-prisoners
+
+**David Schneiderman, Village Voice Editor and Publisher, Dies at 77**\
+`Named editor in chief of the venerable alternative weekly in 1978, he was not welcomed with open arms. But his commitment to strong journalism won people over.`\
+https://nytimes.com/2025/01/19/business/media/david-schneiderman-dead.html
+
 **CFP officials ask conference commissioners to review 12-team Playoff format**\
 `Any format changes in 2025 would require a unanimous vote by the FBS conferences and Notre Dame.`\
 https://nytimes.com/athletic/6073665/2025/01/19/college-football-playoff-format-changes/
