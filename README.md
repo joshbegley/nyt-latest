@@ -1,3 +1,7 @@
+**TikTok’s shutdown notice included a politically attuned message for Trump.**\
+`The ego-stroking message to the man who once famously declared, “I Alone Can Fix It,” was clear.`\
+https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
+
 **Washington guard Sam Cosmi out for playoffs with torn ACL**\
 `Washington's red-hot offensive line loses Cosmi after he allowed just one sack all season.`\
 https://nytimes.com/athletic/6073748/2025/01/19/commanders-sam-cosmi-acl-injury-season-over/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073767/2025/01/19/michigan-state-illinois-big-ten-
 **Trump’s Cryptocurrency Surges to Become One of the World’s Most Valuable**\
 `The new business venture by the Trump family is generating intensifying criticism, even as it has turned into an overnight phenomenon, generating a windfall on paper.`\
 https://nytimes.com/2025/01/19/us/politics/trump-cryptocurrency-surges.html
-
-**What’s behind the uneven exchange of Israeli hostages for Palestinian prisoners?**\
-`By Ephrat Livni and Aaron Boxerman`\
-https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/whats-behind-the-uneven-exchange-of-israeli-hostages-for-palestinian-prisoners
 
