@@ -1,3 +1,7 @@
+**Gazans and Israelis Dare to Hope as Cease-Fire Takes Hold**\
+`After the fighting paused, Hamas began to free some of its hostages, and Israel prepared to release Palestinian prisoners.`\
+https://nytimes.com/2025/01/19/world/middleeast/gazans-and-israelis-dare-to-hope-as-cease-fire-takes-hold.html
+
 **TikTok’s Shutdown Notice Included a Politically Attuned Message for Trump**\
 `The ego-stroking message to the man who once famously declared, “I alone can fix it,” was clear.`\
 https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
