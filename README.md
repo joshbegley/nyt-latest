@@ -1,3 +1,15 @@
+**Lukas Reichel recalibrating his expectations, (maybe) reinserting himself into Blackhawks' future**\
+`If Reichel can emerge as a useful player for Chicago, it would be a huge development for a team that has all but written him off already.`\
+https://nytimes.com/athletic/6072498/2025/01/19/blackhawks-lukas-reichel-future/
+
+**Romain Esse to Crystal Palace: The Athletic 500 transfer ratings**\
+`We rate Crystal Palace's new wide attacker, signed from Millwall, as part of The Athletic 500`\
+https://nytimes.com/athletic/6071442/2025/01/19/romain-esse-to-crystal-palace-the-athletic-500-transfer-ratings/
+
+**Arsenal's season is being derailed by a combination of injury and in-game fragility**\
+`The 2-2 draw with Aston Villa means they have dropped 12 points from winning positions this season - eight more than Liverpool`\
+https://nytimes.com/athletic/6060719/2025/01/19/arsenal-injuries-fragility-aston-villa-premier-league/
+
 **Is Neymar's career in epilogue territory? He deserves to be remembered as a great**\
 `Neymar's future is unclear - it seems he's not wanted in Saudi but whatever happens his career is worth celebrating in Brazil and beyond `\
 https://nytimes.com/athletic/6069792/2025/01/19/neymar-brazil-saudi-arabia-mls/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6069070/2025/01/19/premier-league-fouls-tactical-va
 **Why is there no winter break in the Premier League?**\
 `Players across Europe are given a break at this time of year - so why is it different in England's top tier?`\
 https://nytimes.com/athletic/6064269/2025/01/19/premier-league-winter-break/
-
-**These Rooms Give Young Indian Lovers Rare Privacy. Cue the Complaints.**\
-`A policy change by a popular hotel platform shows the tension between traditional values and modern ideals in India.`\
-https://nytimes.com/2025/01/19/world/asia/india-oyo.html
-
-**Quote of the Day: Inside Copter 17’s Terrifying Ride Above an Inferno**\
-`Quotation of the Day for Sunday, January 19, 2025.`\
-https://nytimes.com/2025/01/19/pageoneplus/quote-of-the-day-inside-copter-17s-terrifying-ride-above-an-inferno.html
-
-**'It's not normal': Patrick Mahomes, Chiefs make it 7 straight AFC title games**\
-`The Chiefs, seeking the first Super Bowl three-peat, will host the AFC Championship Game for the sixth time in the last seven years.`\
-https://nytimes.com/athletic/6072424/2025/01/18/chiefs-patrick-mahomes-texans-afc-playoffs/
 
