@@ -1,3 +1,7 @@
+**Washington’s liberal inauguration-weekend party won’t be held at the African American history museum this year.**\
+`The founder of the Peace Ball, a party held since Barack Obama’s inauguration, said it was ousted after the museum received complaints about its “tone.”`\
+https://nytimes.com/live/2025/01/18/us/trump-inauguration-news/washingtons-liberal-inauguration-weekend-party-wont-be-held-at-the-african-american-history-museum-this-year
+
 **The fire chief in L.A. warned years ago of a ‘weakness’ in wildfire response.**\
 `The memo revealed that L`\
 https://nytimes.com/live/2025/01/18/us/los-angeles-wildfires-california/the-fire-chief-in-la-warned-years-ago-of-a-weakness-in-wildfire-response
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/18/dining/andre-soltner-dead.html
 **TikTok Fueled Travel Crazes, What Happens Now?**\
 `The app gave places like an ice cream shop/wine bar fame, and sometimes overwhelmed them with crowds. Influencers and destinations await the fallout.`\
 https://nytimes.com/2025/01/18/travel/tiktok-travel-trends.html
-
-**The Last Migrant Caravans Before Trump’s Inauguration**\
-`A Times photographer made two trips to southern Mexico to follow groups of migrants as they walked toward the United States.`\
-https://nytimes.com/card/2025/01/18/world/americas/mexico-migrants-border-trump
 
