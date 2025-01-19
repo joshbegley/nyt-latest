@@ -1,3 +1,7 @@
+**Learner Tien, Alex Michelsen and the bootcamp propelling them through the Australian Open**\
+`There are three American men aged 23 and under in the second week of a Grand Slam. That hasn't happened since 2003`\
+https://nytimes.com/athletic/6071514/2025/01/19/learner-tien-australian-open-alex-michelsen-american-tennis/
+
 **Man United making progress in talks over Antony loan to Real Betis**\
 `Manchester United are making progress in talks over winger Antony’s proposed loan move to Real Betis.`\
 https://nytimes.com/athletic/6069215/2025/01/19/antony-manchester-united-transfers-betis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/us/politics/trump-washington.html
 **Donald Trump’s Promises**\
 `President-elect Donald J. Trump, over the course of the 2024 campaign and after his election, made big promises to the American people on everything from the economy to foreign policy. Here’s what he said he would do with a second term.`\
 https://nytimes.com/interactive/2025/01/19/us/politics/trump-president-promises.html
-
-**The One Thing Americans Remember About Biden**\
-`A survey of more than 2,000 people offers an early look at his legacy.`\
-https://nytimes.com/interactive/2025/01/19/upshot/biden-memories-poll.html
 
