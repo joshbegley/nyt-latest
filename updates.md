@@ -1,3 +1,7 @@
+**Chappelle on ‘S.N.L.’: Easing Us Into a Transition as No One Else Can**\
+`The comic took his usual jabs at everyone and everything, then invited Americans, including the president-elect, to be their best, most compassionate selves.`\
+https://nytimes.com/2025/01/19/arts/television/arts-television-saturday-night-live-recap.html
+
 **An Invitation to Join America? Mr. Douthat, We Canadians ‘Politely Decline.’**\
 `Readers give reasons to turn down Ross Douthat’s invitation. Also: The 2024 election; helping the hurting; reasons not to fly.`\
 https://nytimes.com/2025/01/19/opinion/us-canada-ross-douthat.html

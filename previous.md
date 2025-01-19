@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/19/opinion/us-canada-ross-douthat.html
 `We’ll have more than two dozen reporters and visual journalists covering the events in real time, starting early Monday morning.`\
 https://nytimes.com/2025/01/19/us/politics/trump-inauguration-watch-time-stream.html
 
-**Chappelle on‘S.N.L.’: Easing Us Into a Transition as No One Else Can**\
+**Chappelle on ‘S.N.L.’: Easing Us Into a Transition as No One Else Can**\
 `The comic took his usual jabs at everyone and everything, then invited Americans, including the president-elect, to be their best, most compassionate selves.`\
 https://nytimes.com/2025/01/19/arts/television/arts-television-saturday-night-live-recap.html
 
