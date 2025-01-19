@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6072868/2025/01/19/lindsey-vonn-crashes-super-g-cor
 `Harvey Elliott has dismissed speculation linking him with a possible move away from Liverpool as he insisted: “This is my club and I’ll fight for my place.`\
 https://nytimes.com/athletic/6072902/2025/01/19/liverpool-harvey-elliott-exit-transfer/
 
-**Commanders quiet doubters, lock up spot in NFC championship: 'It’s a feeling like no other'**\
+**Commanders quiet doubters, lock up spot in NFC Championship: 'It’s a feeling like no other'**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
 
