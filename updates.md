@@ -1,3 +1,7 @@
+**Novak Djokovic and Carlos Alcaraz set up Australian Open quarterfinal by swapping roles**\
+`Ahead of their eighth meeting, Alcaraz and Djokovic are borrowing each other's signature moves in Melbourne`\
+https://nytimes.com/athletic/6072809/2025/01/19/novak-djokovic-carlos-alcaraz-australian-open-quarterfinal-preview/
+
 **'It’s a feeling like no other': Commanders quiet doubters, lock up spot in NFC championship**\
 `If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed indeed did the trick. `\
 https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
