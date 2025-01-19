@@ -1,7 +1,3 @@
-**Fearing Deportation, Uyghurs Held in Thailand Go on Hunger Strike**\
-`Dozens of men from the ethnic minority sought escape from repression in China a decade ago, but have been detained in Thailand ever since.`\
-https://nytimes.com/2025/01/19/world/asia/uyghurs-thailand-hunger-strike.html
-
 **Novak Djokovic will not do on-court interviews at Australian Open after 'disrespect' from TV presenter**\
 `MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “disrespect” from an Australian television presenter.`\
 https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-interviews-channel-9-tony-jones/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/19/world/middleeast/hostages-emily-tamari-doron-stei
 **Texas Has a Perverse Idea of Religious Freedom**\
 `MAGA’s cruelty toward immigrants and its disregard for civil liberties are on full display in the Lone Star State.`\
 https://nytimes.com/2025/01/19/opinion/texas-catholic-immigration-paxton.html
+
+**Kyle MacLachlan: How David Lynch Invented Me**\
+`How could words possibly do justice to an experience like that?`\
+https://nytimes.com/2025/01/19/opinion/kyle-maclachlan-david-lynch.html
 

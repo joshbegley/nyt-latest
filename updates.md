@@ -1,3 +1,11 @@
+**Fearing Deportation, Uyghurs Held in Thailand Go on Hunger Strike**\
+`Dozens of men from the ethnic minority sought escape from repression in China a decade ago, but have been detained in Thailand ever since.`\
+https://nytimes.com/2025/01/19/world/asia/uyghurs-thailand-hunger-strike.html
+
+**Commanders quiet doubters, lock up spot in NFC championship: 'It’s a feeling like no other'**\
+`If a 12-5 record and the wild-card win over the Bucs didn’t convince remaining skeptics, hammering the NFC's top seed did the trick. `\
+https://nytimes.com/athletic/6072748/2025/01/19/commanders-win-jayden-daniels-lions-nfc-divisional-round/
+
 **Novak Djokovic will not do on-court interviews at Australian Open after 'disrespect' from TV presenter**\
 `MELBOURNE, Australia — Novak Djokovic says he will not conduct on-court interviews at the Australian Open until he receives an apology for “disrespect” from an Australian television presenter.`\
 https://nytimes.com/athletic/6072879/2025/01/19/novak-djokovic-australian-open-interviews-channel-9-tony-jones/
