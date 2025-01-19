@@ -1,3 +1,11 @@
+**The Pistons need a secondary ballhandler and playmaker to aid Cade Cunningham**\
+`When the Pistons' lead guard is on the sideline, they often become stagnant offensively and concede leads or dig a deeper hole.`\
+https://nytimes.com/athletic/6072374/2025/01/19/pistons-suns-cade-cunningham/
+
+**Newcastle's remarkable run is over - it's what happens next that matters**\
+`A big defeat and a poor performance should not leave Newcastle disheartened but they need to react strongly`\
+https://nytimes.com/athletic/6071778/2025/01/19/newcastle-premier-league-run-over/
+
 **Lukas Reichel recalibrating his expectations, (maybe) reinserting himself into Blackhawks' future**\
 `If Reichel can emerge as a useful player for Chicago, it would be a huge development for a team that has all but written him off already.`\
 https://nytimes.com/athletic/6072498/2025/01/19/blackhawks-lukas-reichel-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071546/2025/01/19/lions-score-result-takeaways-nfl
 **Here’s what to know about the cease-fire.**\
 `By Aaron Boxerman, Rawan Sheikh Ahmad and Alan Yuhas`\
 https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/heres-what-to-know-about-the-cease-fire
-
-**We need to talk about fouls**\
-`Why crediting a fouled player with the xG of the subsequent set-piece shot can help better illustrate their attacking involvement`\
-https://nytimes.com/athletic/6069070/2025/01/19/premier-league-fouls-tactical-value/
-
-**Why is there no winter break in the Premier League?**\
-`Players across Europe are given a break at this time of year - so why is it different in England's top tier?`\
-https://nytimes.com/athletic/6064269/2025/01/19/premier-league-winter-break/
 
