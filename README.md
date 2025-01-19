@@ -1,3 +1,11 @@
+**Kelce sets playoff record as Chiefs top Texans, advance to AFC Championship Game: Takeaways**\
+`For the seventh straight season, Kansas City is heading to the AFC Championship Game.`\
+https://nytimes.com/athletic/6071519/2025/01/18/chiefs-game-score-playoffs-takeaways-divisional-round/
+
+**'The homework assignment': Inside the final weeks of the chase for Roki Sasaki**\
+`How a yearslong selection process ended with a sushi chef, a Bel Air mansion, and a text from the most famous baseball player on the planet.`\
+https://nytimes.com/athletic/6071231/2025/01/18/roki-sasaki-dodgers-inside-signing-selection-process/
+
 **Alabama feasts on Kentucky defense, regains its swagger with big win in Lexington**\
 `The Crimson Tide bounced back from a loss at home to Ole Miss on Tuesday by scoring 100-plus points for the fifth time this season. `\
 https://nytimes.com/athletic/6072165/2025/01/18/alabama-kentucky-mark-sears-nate-oats/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-
 **Powerful Santa Ana Winds Expected to Elevate Fire Risk in Southern California**\
 `Meteorologists said there was a chance the winds would be as severe as those that fueled the Palisades and Eaton fires, but that different locations would likely be affected.`\
 https://nytimes.com/2025/01/18/weather/santa-ana-winds-wildfire-california.html
-
-**Virginia Governor Criticizes Biden for Commuting Sentences of 2 Men**\
-`The men had been acquitted by a jury of the murder of a police officer, but the judge had concluded that they had been involved and sentenced them to life in prison.`\
-https://nytimes.com/2025/01/18/us/politics/biden-commutation-criticism.html
-
-**Four top-10 teams fall on Saturday, 17 Top-25 teams have suffered a loss this week**\
-`Vanderbilt, which won nine games last season, improved to 15-3 overall and 3-2 in the SEC.`\
-https://nytimes.com/athletic/6072133/2025/01/18/vanderbilt-tennessee-xavier-upsets/
 
