@@ -1,3 +1,7 @@
+**Trump returns to D.C. with a full day of pre-inauguration events.**\
+`By Michael D. Shear and Maggie Haberman`\
+https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/trump-returns-to-dc-with-a-full-day-of-pre-inauguration-events
+
 **Nugent-Bowman: Connor McDavid deserves a suspension — but where were the referees?**\
 `It wasn't just Saturday night against the Canucks. The Oilers star hasn't been drawing penalty calls all season.`\
 https://nytimes.com/athletic/6072795/2025/01/19/oilers-canucks-connor-mcdavid-suspension-referees-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072580/2025/01/19/wild-loss-predators/
 **Dissecting Justin Kluivert's incredible performance and hat-trick against Newcastle**\
 `The Dutchman scored a second hat-trick of the season, but on top of the goals, his overall display showed his development.`\
 https://nytimes.com/athletic/6072643/2025/01/19/justin-kluivert-hat-trick-newcastle/
-
-**Fearing Deportation, Uyghurs Held in Thailand Go on Hunger Strike**\
-`Dozens of men from the ethnic minority sought escape from repression in China a decade ago, but have been detained in Thailand ever since.`\
-https://nytimes.com/2025/01/19/world/asia/uyghurs-thailand-hunger-strike.html
 
