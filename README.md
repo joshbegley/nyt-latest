@@ -1,3 +1,7 @@
+**Israeli attacks continued during a nearly three-hour delay in the cease-fire.**\
+`By Matthew Mpoke Bigg, Isabel Kershner and Hiba Yazbek`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israeli-attacks-continued-during-a-nearly-three-hour-delay-in-the-cease-fire
+
 **La Liga investigating after Barcelona's Balde alleges racist abuse at Getafe**\
 `La Liga are investigating after Alejandro Balde alleged he was the subject of racist abuse during Barcelona&#8217;s game at Getafe on Saturday night.`\
 https://nytimes.com/athletic/6072775/2025/01/19/barcelona-balde-racism-la-liga/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/business/media/mufasa-lion-king-box-office.html
 **Biden Made a Global Push to Constrain China. What Will Trump Do?**\
 `Jake Sullivan, the national security adviser, said in an interview that “we’ve just stuck with our theory, which is managed competition.” Trump and Xi Jinping might have other plans.`\
 https://nytimes.com/2025/01/19/us/politics/biden-trump-china.html
-
-**Defiance Is Out, Deference Is in: Trump Returns to a Different Washington**\
-`As Donald J. Trump prepares to take the oath of office for a second time, much of the world seems to be bowing down to him and demoralized opponents are rethinking the future.`\
-https://nytimes.com/2025/01/19/us/politics/trump-washington.html
 
