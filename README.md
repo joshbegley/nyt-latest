@@ -1,3 +1,7 @@
+**Manual for Consistency in Writing**\
+`Katie Byl and Jeff Chen make their collaboration debut.`\
+https://nytimes.com/2025/01/19/crosswords/daily-puzzle-2025-01-20.html
+
 **Accused 9/11 Mastermind Agrees to Use of Disputed Confession for Life Sentence**\
 `Lawyers for Khalid Shaikh Mohammed have said for years that the confession was tainted by torture. Mr. Mohammed has now agreed that portions can be used at his sentencing trial if prosecutors agree to settle his case.`\
 https://nytimes.com/2025/01/19/us/politics/khalid-shaikh-mohammed-plea-deal-torture-sept-11.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6067648/2025/01/19/zay-flowers-knee-injury-practice
 `The incoming president has told allies he wants to seize momentum and avoid the missteps of his first administration.`\
 https://nytimes.com/2025/01/19/us/politics/trump-return-power.html
 
-**TikTok’s shutdown notice included a politically attuned message for Trump.**\
+**TikTok’s Shutdown Notice Included a Politically Attuned Message for Trump**\
 `The ego-stroking message to the man who once famously declared, “I Alone Can Fix It,” was clear.`\
 https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/technology/tiktok-trump-messages-ban.html
 **White House changes hands and so do fortunes for lobbyists in Washington.**\
 `By Elisabeth Bumiller and Kenneth P. Vogel`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/white-house-changes-hands-and-so-do-fortunes-for-lobbyists-in-washington
-
-**TikTok Ban Behind Fire Set at a Mall With Congressman’s Office, Police Say**\
-`No one was injured. The building, which includes a district office of a Wisconsin congressman who has been a critic of TikTok, sustained moderate damage in the fire on Sunday.`\
-https://nytimes.com/2025/01/19/us/wisconsin-arson-tiktok-ban.html
 
