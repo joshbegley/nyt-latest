@@ -1,3 +1,7 @@
+**Israeli attacks continued during a nearly three-hour delay in the cease-fire.**\
+`By Matthew Mpoke Bigg, Isabel Kershner and Hiba Yazbek`\
+https://nytimes.com/live/2025/01/19/world/israel-hamas-gaza-ceasefire/israeli-attacks-continued-during-a-nearly-three-hour-delay-in-the-cease-fire
+
 **La Liga investigating after Barcelona's Balde alleges racist abuse at Getafe**\
 `La Liga are investigating after Alejandro Balde alleged he was the subject of racist abuse during Barcelona&#8217;s game at Getafe on Saturday night.`\
 https://nytimes.com/athletic/6072775/2025/01/19/barcelona-balde-racism-la-liga/
