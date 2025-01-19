@@ -1,3 +1,8 @@
+**Maple Leafs report cards: 7 unanswered goals erase bad start**\
+`The Maple Leafs scored seven straight to overcome a 3-0 first-period deficit for a 7-3 win over the Canadiens.
+`\
+https://nytimes.com/athletic/6072369/2025/01/18/maple-leafs-canadiens-score-analysis-grades/
+
 **Bridgewater, in NFL return, leads Lions on playoff scoring drive**\
 `Bridgewater handed the ball off to Jameson Williams, who broke free and ran for 61 yards and the TD in the second quarter.`\
 https://nytimes.com/athletic/6072323/2025/01/18/teddy-bridgewater-lions-nfl-return-score/
@@ -34,8 +39,4 @@ https://nytimes.com/athletic/6072003/2025/01/18/senators-bruins-takeaways-nhl-pl
 **The kids were alright: Why women's tennis is no longer a world of teenage prodigies**\
 `In January 2000, 17 of the WTA top 100 were under 20. In 2025, Mirra Andreeva is the sole teenager with a ranking under three figures.`\
 https://nytimes.com/athletic/6071284/2025/01/18/womens-tennis-wta-tour-rankings-teenagers-history-andreeva/
-
-**Kelce sets playoff record as Chiefs top Texans, advance to AFC Championship Game: Takeaways**\
-`For the seventh straight season, Kansas City is heading to the AFC Championship Game.`\
-https://nytimes.com/athletic/6071519/2025/01/18/chiefs-game-score-playoffs-takeaways-divisional-round/
 
