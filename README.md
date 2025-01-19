@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6067648/2025/01/19/zay-flowers-knee-injury-practice
 https://nytimes.com/2025/01/19/us/politics/trump-return-power.html
 
 **TikTok’s Shutdown Notice Included a Politically Attuned Message for Trump**\
-`The ego-stroking message to the man who once famously declared, “I Alone Can Fix It,” was clear.`\
+`The ego-stroking message to the man who once famously declared, “I alone can fix it,” was clear.`\
 https://nytimes.com/2025/01/19/us/politics/tiktoks-shutdown-notice-trump.html
 
 **Washington guard Sam Cosmi out for playoffs with torn ACL**\
