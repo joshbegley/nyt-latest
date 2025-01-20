@@ -1,3 +1,7 @@
+**Projecting final 4 NFL playoff teams' odds to win Super Bowl, with conference title game analysis**\
+`The NFL's Final Four is set. Which of the remaining teams has the best chance to win the Super Bowl? `\
+https://nytimes.com/athletic/6073512/2025/01/19/nfl-super-bowl-playoff-chances-conference-championship/
+
 **At Trump’s Rally, the Contradictions Are in the Music**\
 `The president-elect danced along with Village People as his rally closed with a live performance of “Y.M.C.A.,” after Kid Rock and Lee Greenwood played.`\
 https://nytimes.com/2025/01/19/arts/music/trump-village-people-kid-rock.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/miller-tells-repu
 **Barkley, Eagles advance to NFC Championship Game after 28-22 win vs. Rams: Takeaways**\
 `Barkley's two touchdowns and 205 rushing yards put the Eagles in the NFC Championship Game for the second time in the last three seasons.`\
 https://nytimes.com/athletic/6072993/2025/01/19/eagles-score-result-takeaways-nfl-nfc-divisional-round/
-
-**Commanders at Eagles: How to watch, pick, odds, with Philly opening as a 5-point favorite**\
-`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
-https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
 
