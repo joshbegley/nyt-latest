@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/20/opinion/trump-tariffs-trade.html
 https://nytimes.com/athletic/6075863/2025/01/20/divisional-round-nfl-key-plays-jayden-daniels-scoop-city/
 
 **Trump Cites His Own Victories as Sign He Will Lift a Country in ‘Decline’**\
-`In his second inaugural address, the president reprised dark themes from his first and laid out an expansive policy agenda.`\
+`In his second Inaugural Address, the president reprised dark themes from his first and laid out an expansive policy agenda.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inaugural-address.html
 
 **Trump Plans to Order U.S. Exit From World’s Main Climate Pact**\
