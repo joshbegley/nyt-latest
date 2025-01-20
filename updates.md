@@ -1,3 +1,11 @@
+**Marco Rubio is confirmed by Senate as secretary of state.**\
+`The Florida senator becomes the United States’ 72nd chief diplomat, and the first Latino to hold the job.`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/marco-rubio-confirmed-secretary-of-state
+
+**Small crowds gather in some cities to protest Trump policies.**\
+`By Matthew Eadie, Olivia Bensimon, Grace Gorenflo and Emily Cochrane`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/small-crowds-gather-in-some-cities-to-protest-trump-policies
+
 **Trump Swears Oath Without His Hand on Bible, but He Wasn’t Required To**\
 `The tradition of swearing the oath of office on a Bible stretches back to George Washington, but not all presidents have observed it.`\
 https://nytimes.com/2025/01/20/us/politics/trump-hand-bible-oath.html
