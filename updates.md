@@ -1,3 +1,11 @@
+**Olympic Medals From Paris Games Are Falling Apart. Who Is to Blame?**\
+`The medals were designed by a jewelry maker owned by the French luxury conglomerate LVMH, which has declined to comment on their deterioration.`\
+https://nytimes.com/2025/01/20/business/medals-paris-olympics-lvmh.html
+
+**Scarred, but Still Standing**\
+`Eli Saslow, a Times writer at large, reflects on visiting relatives who were forced to evacuate, and the little kindnesses everywhere.`\
+https://nytimes.com/2025/01/20/us/wildfires-scarred-los-angeles.html
+
 **Victor Wembanyama returns to France for first time as NBA star**\
 `Victor Wembanyama returned to the French gym where he played as a young boy and teenage pro. This time, he's with the Spurs.`\
 https://nytimes.com/athletic/6075519/2025/01/20/victor-wembanyama-france-return-nba-spurs/
