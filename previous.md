@@ -31,7 +31,7 @@ https://nytimes.com/2025/01/20/weather/cold-snow-texas-forecast.html
 https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html
 
 **Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
-`Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, ever ounce of their energy is on the task at hand`\
+`Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, every ounce of energy is on the task at hand`\
 https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
 
 **FPL: What we learned from Gameweek 22 - target Bournemouth plus Saliba, Solanke worries**\

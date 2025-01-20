@@ -1,3 +1,7 @@
+**Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
+`Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, every ounce of energy is on the task at hand`\
+https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
+
 **In NASCAR, a TikTok ban would have ramifications for a sponsor-reliant sport**\
 `TikTok is a popular platform for drivers to build a following and make a case they're worth the sponsor money that is so vital to the sport.`\
 https://nytimes.com/athletic/6073386/2025/01/20/nascar-tiktok-ban-drivers-sponsors-ryan-vargas/
