@@ -1,40 +1,40 @@
-**Trump will be sworn in at noon. Here’s what to know.**\
-`By Peter Baker`\
-https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-will-be-sworn-in-at-noon-heres-what-to-know
+**Southern California Is Poised for More Damaging and Dangerous Winds**\
+`With more critical fire weather this week in Los Angeles, the National Weather Service once again issued one of its strongest warnings possible.`\
+https://nytimes.com/2025/01/20/weather/los-angeles-wind-warning-santa-ana.html
 
-**Inauguration Live Updates: Trump to Take Oath as 47th President**\
-`The ceremony, which will be held inside the Capitol Rotunda because of the cold, will cap his remarkable return to the presidency after a loss in 2020 and a conviction on 34 felony counts.`\
-https://nytimes.com/live/2025/01/20/us/trump-inauguration-president
+**What to make of Lamar Jackson's legacy after another playoff loss**\
+`A soon-to-be three-time MVP, Jackson has improved in the playoffs over the last two seasons, but he still has much to prove.`\
+https://nytimes.com/athletic/6074753/2025/01/20/lamar-jackson-legacy-playoffs-bills/
 
-**Man United in talks to sign Dorgu from Lecce**\
-`Manchester United are in talks to sign left-back Patrick Dorgu from Lecce.`\
-https://nytimes.com/athletic/6074821/2025/01/20/patrick-dorgu-manchester-united-transfers/
+**Sick of Patrick Mahomes drawing penalties? You're hardly the only one**\
+`No, the refs aren't rigging games for the Chiefs, but Mahomes is clearly manipulating the league's QB-friendly rules.`\
+https://nytimes.com/athletic/6074720/2025/01/20/patrick-mahomes-refs-penalties-chiefs/
 
-**How Cooper Flagg has cemented his status as 2025's top draft prospect**\
-`What makes Flagg so special, and why is the race for No. 1 essentially over barring a drastic turn of events?`\
-https://nytimes.com/athletic/6072159/2025/01/20/duke-cooper-flagg-nba-draft-top-pick-status/
+**Can Dan Campbell evolve? The Lions' future hopes might depend on it**\
+`Campbell has built his philosophy in Detroit on aggressiveness, but does he need to find a different gear in the playoffs?`\
+https://nytimes.com/athletic/6074756/2025/01/20/dan-campbell-lions-playoffs-aggressiveness/
 
-**Buckeyes big favorites over Fighting Irish for CFP title, according to our experts**\
-`We're down to two teams for the national title. Who will come out on top Monday night in Atlanta?`\
-https://nytimes.com/athletic/6059529/2025/01/20/college-football-playoff-championship-game-predictions-ohio-state-notre-dame/
+**With shades of Magic, Jayden Daniels steals spotlight on wild NFL weekend: Sando’s Pick Six**\
+`No rookie QB has ever lifted his team like Daniels, prompting a cross-sport comparison. Plus, Mahomes and the refs, Lamar's legacy and more.`\
+https://nytimes.com/athletic/6040110/2025/01/20/jayden-daniels-magic-johnson-commanders-kliff-kingsbury/
 
-**How did Joe Buck and Troy Aikman cap their season, plus more NFL Divisional TV takeaways**\
-`"Troy has won, lost, bled, sweated, and he's earned his opinion," Buck said. "That's what makes for great, honest TV."`\
-https://nytimes.com/athletic/6071713/2025/01/20/joe-buck-troy-aikman-tom-brady-kirk-cousins-nfl-tv-divisional/
+**How the Red Wings' top prospects are trending in Grand Rapids**\
+`An update on five top Red Wings prospects after a trip to Grand Rapids.`\
+https://nytimes.com/athletic/6073681/2025/01/20/red-wings-prospects-update-grand-rapids/
 
-**Browns QB tracker: Which veteran options in free agency could be intriguing?**\
-`Is there a QB who might realistically fit in Cleveland, and could the team find a starter in free agency if it really wanted to?`\
-https://nytimes.com/athletic/6072043/2025/01/20/browns-quarterback-tracker-2025-free-agents/
+**Early Commanders-Eagles thoughts as the division rivals clash in NFC title game**\
+`The NFC East rivals meet with a trip to Super Bowl LIX on the line. Washington will have its hands full with Saquon Barkley, Jalen Carter. `\
+https://nytimes.com/athletic/6074525/2025/01/20/commanders-eagles-nfc-championship-game/
 
-**After knocking off Ravens, 'different' Bills turn their attention to all-too-familiar Chiefs**\
-`The previous playoff meetings with the Chiefs are filled with painful memories.`\
-https://nytimes.com/athletic/6074638/2025/01/20/bills-chiefs-afc-championship-game/
+**Through 20 games, are the Blackhawks better or worse under Anders Sorensen? Notebook**\
+`Has Sorensen’s hiring made a difference? What does it all mean for his hopes of keeping the Blackhawks head coaching job going forward?`\
+https://nytimes.com/athletic/6073589/2025/01/20/blackhawks-anders-sorensen-nhl-coach-analysis/
 
-**Falcons' offseason to-do list: Fix the defense, figure out free agency, find backup QB**\
-`The Falcons have a lot to do this offseason. These are the five things that should be at the top of that list.`\
-https://nytimes.com/athletic/6070395/2025/01/20/falcons-offseason-to-do-list-2025/
+**Trump Takes Office, and the TikTok Roller Coaster**\
+`Plus, women’s history in the National Mall.`\
+https://nytimes.com/2025/01/20/podcasts/trump-tiktok-ban.html
 
-**Panthers' offseason to-do list: Fix the run defense, find another receiver**\
-`Carolina head coach Dave Canales and GM Dan Morgan should prioritize strengthening the defensive line, among other things.`\
-https://nytimes.com/athletic/6070777/2025/01/20/panthers-offseason-to-do-list-defensive-line/
+**The TikTok Flip-Flop**\
+`What happened to the popular video app? And what can Donald Trump actually do about it?`\
+https://nytimes.com/2025/01/20/podcasts/the-daily/tiktok-ban-trump.html
 
