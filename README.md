@@ -1,3 +1,7 @@
+**Allen, Bills edge Ravens 27-25 to reach AFC title game vs. Chiefs: Takeaways**\
+`The MVP candidate threw for a season low in passing yards but rushed for two scores in the AFC divisional round win.`\
+https://nytimes.com/athletic/6073017/2025/01/19/bills-score-result-takeaways-nfl-afc-divisional-round/
+
 **Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
 `For the AFC Crown, the Chiefs open as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
 https://nytimes.com/athletic/6073696/2025/01/19/bills-chiefs-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074099/2025/01/19/novak-djokovic-tony-jones-austra
 **Fact-checking Trump’s rally the eve before his inauguration.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-rally
-
-**How Rams fell short vs. Eagles in snowy, season-ending divisional round loss: Key takeaways**\
-`Frigid weather and a formidable Philadelphia squad spelled the end of gutsy Los Angeles' season on Sunday.`\
-https://nytimes.com/athletic/6072979/2025/01/19/rams-score-result-takeaways-nfl-nfc-divisional-round/
 
