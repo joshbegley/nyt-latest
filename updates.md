@@ -1,3 +1,11 @@
+**Victor Wembanyama returns to France for first time as NBA star**\
+`Victor Wembanyama returned to the French gym where he played as a young boy and teenage pro. This time, he's with the Spurs.`\
+https://nytimes.com/athletic/6075519/2025/01/20/victor-wembanyama-france-return-nba-spurs/
+
+**Fan survey: Should the Islanders rebuild? What's the first thing they need to fix? Faith in Lamoriello?**\
+`Here’s our midseason fan survey on the Islanders, who are headed for a lottery pick and haven’t won a playoff series since 2021.`\
+https://nytimes.com/athletic/6075595/2025/01/20/islanders-fan-survey-roy-lamoriello-trades/
+
 **Headlines and takeaways from the Bucks' first half of the NBA season**\
 `Giannis Antetokounmpo and Damian Lillard have been great, but the Bucks still have work to do if they want to be in the East's top three.`\
 https://nytimes.com/athletic/6073111/2025/01/20/milwaukee-bucks-nba-midway-point-season-2025/

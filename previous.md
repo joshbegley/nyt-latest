@@ -1,3 +1,11 @@
+**Victor Wembanyama returns to France for first time as NBA star**\
+`Victor Wembanyama returned to the French gym where he played as a young boy and teenage pro. This time, he's with the Spurs.`\
+https://nytimes.com/athletic/6075519/2025/01/20/victor-wembanyama-france-return-nba-spurs/
+
+**Fan survey: Should the Islanders rebuild? What's the first thing they need to fix? Faith in Lamoriello?**\
+`Here’s our midseason fan survey on the Islanders, who are headed for a lottery pick and haven’t won a playoff series since 2021.`\
+https://nytimes.com/athletic/6075595/2025/01/20/islanders-fan-survey-roy-lamoriello-trades/
+
 **Headlines and takeaways from the Bucks' first half of the NBA season**\
 `Giannis Antetokounmpo and Damian Lillard have been great, but the Bucks still have work to do if they want to be in the East's top three.`\
 https://nytimes.com/athletic/6073111/2025/01/20/milwaukee-bucks-nba-midway-point-season-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6075382/2025/01/20/manchester-united-shirt-sponsor-
 **Scores of Senior Diplomats Are Leaving Posts as Trump Takes Office**\
 `The departures are common when a transition takes place, but it is now happening more quickly and on a larger scale than under previous administrations, a U.S. official said.`\
 https://nytimes.com/2025/01/20/us/politics/state-department-departures-trump.html
-
-**The Bounce: It's already a two-horse race for NBA MVP**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6075272/2025/01/20/shai-gilgeous-alexander-nikola-jokic-thunder-nuggets-mvp-nba-the-bounce/
-
-**Dan Campbell, Lions learn hard lesson: 'Humbling' setbacks can stop any team, at any time**\
-`Football isn't fair. There are no guarantees. And as expectations rise, it only hurts that much more when a team falls short. `\
-https://nytimes.com/athletic/6073309/2025/01/20/detroit-lions-dan-campbell-playoffs-commanders/
 
