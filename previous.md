@@ -1,3 +1,19 @@
+**Big Banks Quit Climate Change Groups Ahead of Trump’s Term**\
+`Several large U.S. financial institutions, including the Federal Reserve, have withdrawn from the networks after years of growing political and legal pressure.`\
+https://nytimes.com/2025/01/20/business/trump-climate-action-banks.html
+
+**The Search for Lessons in Trump’s Return on Martin Luther King Day**\
+`The dual celebrations of a second Trump inauguration and the civil rights leader’s birth raise profound questions about Black leadership and progress toward the Rev. Dr. Martin Luther King Jr.’s dream.`\
+https://nytimes.com/2025/01/20/us/politics/trump-martin-luther-king.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/20/crosswords/spelling-bee-forum.html
+
+**Broken net delays Sinner, Rune's Australian Open fourth-round match**\
+`Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
+https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
+
 **Jannik Sinner wins topsy-turvy Australian Open match with Holger Rune after illness, net problems**\
 `MELBOURNE, Australia — Jannik Sinner is through to the Australian Open quarterfinals after a drama-filled fourth-round win over Holger Rune.`\
 https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-injury-holger-rune/
@@ -7,16 +23,12 @@ https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-in
 https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
 
 **How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
-`Given Savinho’s form in recent weeks, you would have been forgiven for thinking the 20-year-old was a nailed-on starter to play on the left side of Pep Guardiola’s attack against Ipswich Town on Sunday afternoon.`\
-https://nytimes.com/athletic/6074085/2025/01/20/how-man-city-used-brilliant-doku-to-dominate-the-left-flank-against-ipswich/
+`Doku received full praise from his manager after having a hand in each of City’s first five goals, including scoring their fourth`\
+https://nytimes.com/athletic/6074085/2025/01/20/man-city-brilliant-doku-left-ipswich/
 
 **'Let’s see who’s better': Bills' defense heard the haters, used motivation to upend Ravens**\
 `The defense peppered the game with big plays that set up the offense.`\
 https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-video-motivation/
-
-**Broken net delays Sinner, Rune's Australian Open fourth-round match**\
-`Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
-https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
 
 **‘Prime Target,’ Plus 7 Things to Watch on TV This Week**\
 `The new Apple TV+ series stars Leo Woodall as a math genius, and President-elect Donald J. Trump is inaugurated for his second term.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/20/arts/television/prime-target-plus-7-things-to-wat
 **This Day Calls for Martin Luther King’s Vision**\
 `The troubled times many of us feel we are in make his message especially relevant.`\
 https://nytimes.com/2025/01/20/opinion/martin-luther-king-trump.html
-
-**It’s Trump’s Messy, Dangerous World Now**\
-`The key to peace is strength, and the key to strength is leadership.`\
-https://nytimes.com/2025/01/20/opinion/trump-foreign-policy-defense.html
-
-**Another Brighton win at Old Trafford - you can't possibly be surprised...**\
-`Sunday's 3-1 triumph was Brighton's third Premier League victory in as many seasons at Old Trafford`\
-https://nytimes.com/athletic/6071844/2025/01/20/brighton-manchester-united-old-trafford/
-
-**The day it turned toxic: Leicester fans are demanding answers, and rightly so**\
-`Director of football Jon Rudkin, manager Ruud van Nistelrooy and the Leicester board were all criticised by the home support.`\
-https://nytimes.com/athletic/6072807/2025/01/20/rudkin-leicester-fans-protests/
 

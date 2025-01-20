@@ -1,3 +1,19 @@
+**Big Banks Quit Climate Change Groups Ahead of Trump’s Term**\
+`Several large U.S. financial institutions, including the Federal Reserve, have withdrawn from the networks after years of growing political and legal pressure.`\
+https://nytimes.com/2025/01/20/business/trump-climate-action-banks.html
+
+**The Search for Lessons in Trump’s Return on Martin Luther King Day**\
+`The dual celebrations of a second Trump inauguration and the civil rights leader’s birth raise profound questions about Black leadership and progress toward the Rev. Dr. Martin Luther King Jr.’s dream.`\
+https://nytimes.com/2025/01/20/us/politics/trump-martin-luther-king.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/20/crosswords/spelling-bee-forum.html
+
+**How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
+`Doku received full praise from his manager after having a hand in each of City’s first five goals, including scoring their fourth`\
+https://nytimes.com/athletic/6074085/2025/01/20/man-city-brilliant-doku-left-ipswich/
+
 **Jannik Sinner wins topsy-turvy Australian Open match with Holger Rune after illness, net problems**\
 `MELBOURNE, Australia — Jannik Sinner is through to the Australian Open quarterfinals after a drama-filled fourth-round win over Holger Rune.`\
 https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-injury-holger-rune/
