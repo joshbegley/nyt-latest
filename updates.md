@@ -1,3 +1,11 @@
+**Liverpool's attacking variety and Tottenham's flimsy house of cards**\
+`Liverpool's variety of attacking options has flipped an old adage on its head`\
+https://nytimes.com/athletic/6075697/2025/01/20/the-totally-football-show-nunez-tottenham-everton/
+
+**‘We will be stranded.’ Migrants shocked after Trump cancels border appointments.**\
+`In Tijuana, migrants who had scheduled meetings to plead their cases at U.S. ports of entry were devastated to learn the new administration had canceled those appointments and the program that facilitated them.`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/migrants-cbpone-appointments-mexico
+
 **Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
 `DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
 https://nytimes.com/athletic/6075833/2025/01/20/donte-divincenzo-injury-timberwolves/

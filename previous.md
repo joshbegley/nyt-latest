@@ -1,3 +1,11 @@
+**Liverpool's attacking variety and Tottenham's flimsy house of cards**\
+`Liverpool's variety of attacking options has flipped an old adage on its head`\
+https://nytimes.com/athletic/6075697/2025/01/20/the-totally-football-show-nunez-tottenham-everton/
+
+**‘We will be stranded.’ Migrants shocked after Trump cancels border appointments.**\
+`In Tijuana, migrants who had scheduled meetings to plead their cases at U.S. ports of entry were devastated to learn the new administration had canceled those appointments and the program that facilitated them.`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/migrants-cbpone-appointments-mexico
+
 **Lions' Dan Campbell expects to lose both coordinators to head-coaching jobs**\
 `Ben Johnson and Aaron Glenn have been hot names this coaching cycle and Detroit's head coach is preparing to have to replace both of them.`\
 https://nytimes.com/athletic/6075828/2025/01/20/lions-dan-campbell-ben-johnson-aaron-glenn-head-coaching/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6075339/2025/01/20/the-athletic-football-show-divis
 **AP men's basketball Top 25: Auburn and Duke hold top spots**\
 `Michigan State jumped four spots in the poll while Houston jumped three spots to move well within the top 10`\
 https://nytimes.com/athletic/6075340/2025/01/20/ap-mens-basketball-top-25-poll-auburn-duke-michigan-state/
-
-**Armani Takes Inspiration From … Armani**\
-`As a new generation seeks out vintage Armani on eBay, the label is leaning into its own archive. The Armani renaissance is officially on.`\
-https://nytimes.com/2025/01/20/style/armani-takes-inspiration-from-armani.html
-
-**Trump Holds Off on Tariffs, but Paves the Way for Future Trade Action**\
-`The president’s executive action on trade will keep all possibilities on the table, including eventual tariffs against China, Canada and Mexico.`\
-https://nytimes.com/2025/01/20/us/politics/trump-tariffs-executive-order.html
 
