@@ -1,3 +1,11 @@
+**Australian Open recap: Gael Monfils' run ends as Melbourne heat and long matches dash dreams**\
+`The Frenchman's phenomenal run comes to an end on a day that saw incredible exploits catch up to players all over the tournament.`\
+https://nytimes.com/athletic/6074185/2025/01/20/australian-open-recap-gael-monfils/
+
+**Fixing America’s Immigration System**\
+`Readers respond to an editorial with their own suggestions. Also: The benefits of virtual therapy; in praise of solitude; our warming planet.`\
+https://nytimes.com/2025/01/20/opinion/immigration-system.html
+
 **Chelsea set to sign Sarr from BlueCo-owned Strasbourg**\
 `Chelsea are set to sign teenage defender Mamadou Sarr from Strasbourg.`\
 https://nytimes.com/athletic/6074978/2025/01/20/chelsea-transfer-mamadou-sarr-strasbourg/
