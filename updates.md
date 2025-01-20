@@ -1,3 +1,7 @@
+**The Line in Trump’s Speech That Will Echo in Time**\
+`By Frank Bruni`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/the-line-in-trumps-speech-that-will-echo-in-time
+
 **Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
 `DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
 https://nytimes.com/athletic/6075833/2025/01/20/donte-divincenzo-injurytimberwolves/
