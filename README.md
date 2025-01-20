@@ -1,3 +1,7 @@
+**Chelsea set to sign Sarr from BlueCo-owned Strasbourg**\
+`Chelsea are set to sign teenage defender Mamadou Sarr from Strasbourg.`\
+https://nytimes.com/athletic/6074978/2025/01/20/chelsea-transfer-mamadou-sarr-strasbourg/
+
 **How would Kyle Kuzma react if a team wants to trade for him? His answer: 'I don't know'**\
 `Last year, the Wizards' forward didn't want to be traded. This year, his answer might be different.`\
 https://nytimes.com/athletic/6074668/2025/01/20/kyle-kuzma-potential-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/weather/cold-snow-texas-forecast.html
 **Biden in Final Hours Pardons Cheney, Fauci and Milley to Thwart Reprisals**\
 `Acting on the day he leaves office, President Biden used his executive clemency power to protect people targeted by his incoming successor, Donald J. Trump, who has vowed “retribution.”`\
 https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html
-
-**Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
-`Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, every ounce of energy is on the task at hand`\
-https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
 
