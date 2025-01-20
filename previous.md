@@ -1,4 +1,4 @@
-**Jannik Sinner wins topsy-turvy Australian Open match with Holger Rune after injury, net issues**\
+**Jannik Sinner wins topsy-turvy Australian Open match with Holger Rune after illness, net problems**\
 `MELBOURNE, Australia — Jannik Sinner is through to the Australian Open quarterfinals after a drama-filled fourth-round win over Holger Rune.`\
 https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-injury-holger-rune/
 
