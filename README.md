@@ -1,3 +1,7 @@
+**At Trump’s Rally, the Contradictions Are in the Music**\
+`The president-elect danced along with Village People as his rally closed with a live performance of “Y.M.C.A.,” after Kid Rock and Lee Greenwood played.`\
+https://nytimes.com/2025/01/19/arts/music/trump-village-people-kid-rock.html
+
 **Sepp Straka cruises to 2-shot win at The American Express**\
 `Straka played with his first 54-hole lead on the PGA Tour on Sunday, and he managed to maintain control of the tournament until the end.`\
 https://nytimes.com/athletic/6074191/2025/01/19/sepp-straka-american-express-pga-tour/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072993/2025/01/19/eagles-score-result-takeaways-nf
 **Commanders at Eagles: How to watch, pick, odds, with Philly opening as a 5-point favorite**\
 `Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
 https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
-
-**Trump Vowed to End the Ukraine War Before Taking Office. The War Rages On.**\
-`Donald J. Trump’s promise to broker peace between Russia and Ukraine in 24 hours, “before I even become president,” proved to be hyperbole.`\
-https://nytimes.com/2025/01/19/us/politics/trump-promise-ending-ukraine-war.html
 
