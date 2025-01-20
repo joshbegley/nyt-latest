@@ -1,3 +1,7 @@
+**Men's college basketball Top 25: Lessons from a week of upsets, thrillers**\
+`The teams that made up last Monday's AP Top 25 combined for 22 losses over the ensuing week.`\
+https://nytimes.com/athletic/6074630/2025/01/20/mens-college-basketball-top-25-houston-alabama/
+
 **Costly mistakes have put Khiara Keating in the spotlight. Can she bounce back from Manchester derby errors?**\
 `Khiara Keating was thrust into the spotlight last season. Gareth Taylor must decide whether now is the time to take her out of it`\
 https://nytimes.com/athletic/6074200/2025/01/20/khiara-keating-manchester-city-derby-errors/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/business/dealbook/trump-president-inauguration-bu
 **The Athletic FC: Prince William's Villa pub trip, Iraola brilliance, worst Man Utd team ever?**\
 `Today in TAFC: the future king of England talks Tielemans and double pivots, Iraola can do no wrong, how bad is this Manchester United team?`\
 https://nytimes.com/athletic/6074849/2025/01/20/prince-william-pub-villa-worst-united-team/
-
-**Rotunda Ransacked by Pro-Trump Mob on Jan. 6 Will Be His Inauguration Backdrop**\
-`The large domed expanse, a breathtaking and solemn space in the Capitol, was the scene of mayhem wrought by Trump supporters four years ago. A very different crowd of his backers will be on hand Monday.`\
-https://nytimes.com/2025/01/20/us/politics/trump-inauguration-capitol-rotunda-jan-6.html
 
