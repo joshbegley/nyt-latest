@@ -1,3 +1,19 @@
+**‘American Carnage 2: Ultimate Carnage’: Best and Worst Moments From Trump’s Inaugural Address**\
+`: Best and Worst Moments From Trump’s Inaugural Address`\
+https://nytimes.com/2025/01/20/opinion/scorecard-best-worst-moments-trump-inaugural-address.html
+
+**Tuesday Briefing: Trump Takes Office**\
+`Plus, exploring Indonesia’s spiritual hub.`\
+https://nytimes.com/2025/01/20/briefing/trump-inauguration-executive-orders-gaza-cease-fire.html
+
+**Trump promised to end electric vehicle ‘mandates.’ Here’s what that means.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-promised-to-end-electric-vehicle-mandates-heres-what-that-means
+
+**Colts to hire Lou Anarumo as defensive coordinator: Sources**\
+`Anarumo replaces Gus Bradley, who the Colts “parted ways” with earlier this month`\
+https://nytimes.com/athletic/6075864/2025/01/20/indianapolis-colts-lou-anarumo-defensive-coordinator/
+
 **Portrait of General Milley Is Removed From Pentagon**\
 `The decision was an early salvo by the new administration against a military that President Trump has assailed for a variety of perceived offenses.`\
 https://nytimes.com/2025/01/20/us/politics/general-mark-milley-portrait.html
