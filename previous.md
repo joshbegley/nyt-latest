@@ -1,40 +1,40 @@
-**How should the final AP poll react to the 12-team Playoff's results?**\
-`Even with a 12-team College Football Playoff, who’s No. 3 at the end of the season still matters. So does No. 13. And No. 18. And No. 25.`\
-https://nytimes.com/athletic/6073973/2025/01/20/college-football-playoff-ap-poll-rankings/
+**How Canadiens navigated demanding schedule to gain third-period push against Rangers**\
+`Montreal snapped a string of 16 straight games with travel by finding a reserve of energy to come back and beat New York.`\
+https://nytimes.com/athletic/6074572/2025/01/20/canadiens-third-period-push-against-rangers/
 
-**Here’s the latest on the cease-fire.**\
-`By Yan Zhuang`\
-https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/heres-the-latest-on-the-cease-fire
+**Four More Years! Four More Years! Wait. Four More Years?**\
+`Meet the new boss. Same as the old boss.`\
+https://nytimes.com/2025/01/20/opinion/trump-inauguration-democrats-republicans.html
 
-**'This one is going to hurt for a while': Ravens again fail to get it done on playoff stage**\
-`The painful loss to Buffalo was an all-too-familiar feeling for a Baltimore team that thought it was peaking at the right time. `\
-https://nytimes.com/athletic/6074535/2025/01/20/ravens-playoff-loss-bills-afc-divisional-round/
+**Fighting Has Halted in Gaza, but the War Is Not Over**\
+`Sunday’s delayed start to the truce was a minor problem compared with the difficult choices and American leverage needed to get both parties to the second phase, which could end the war.`\
+https://nytimes.com/2025/01/20/world/europe/fighting-has-halted-in-gaza-but-the-war-is-not-over.html
 
-**Real Madrid 4-1 Las Palmas: Mbappe the 'best centre-forward in the world'**\
-`The Athletic dissects the key talking points from a win that took Real Madrid top of La Liga`\
-https://nytimes.com/athletic/6073859/2025/01/20/real-madrid-mbappe-las-palmas-result/
+**Their Homes Are Intact, but the Fire Damage Inside Is Unbearable**\
+`Some evacuees from the Eaton fire have been allowed back into their homes, only to find that smoke and ash have made living there impossible for now.`\
+https://nytimes.com/2025/01/20/us/los-angeles-fires-smoke-ash-damage.html
 
-**Big Banks Quit Climate Change Groups Ahead of Trump’s Term**\
-`Several large U.S. financial institutions, including the Federal Reserve, have withdrawn from the networks after years of growing political and legal pressure.`\
-https://nytimes.com/2025/01/20/business/trump-climate-action-banks.html
+**Trump’s Unlikely Return To Power**\
+`Donald J.`\
+https://nytimes.com/video/us/elections/100000009935497/trumps-unlikely-return-to-power.html
 
-**The Search for Lessons in Trump’s Return on Martin Luther King Day**\
-`The dual celebrations of a second Trump inauguration and the civil rights leader’s birth raise profound questions about Black leadership and progress toward the Rev. Dr. Martin Luther King Jr.’s dream.`\
-https://nytimes.com/2025/01/20/us/politics/trump-martin-luther-king.html
+**It’s Going to Be a Big News Day. Here’s What to Watch For.**\
+`From Donald J. Trump’s swearing-in to pardons, executive orders and more, the first day of the new administration promises to be busy and eventful.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-2025.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/20/crosswords/spelling-bee-forum.html
+**A year after trade to Mavs, P.J. Washington 'wants to win on both ends'**\
+`Washington grew up in the Dallas area. Following a trade from Charlotte, he has shown himself to be a glue guy for the Mavericks.`\
+https://nytimes.com/athletic/6073456/2025/01/20/pj-washington-dallas-mavericks-year-trade/
 
-**'I was lucky today': Broken net helps Jannik Sinner during Holger Rune match**\
-`Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
-https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
+**Paula Badosa imploded in her last Grand Slam quarterfinal. She doesn't like to make mistakes twice**\
+`In her last Grand Slam quarterfinal, the Spaniard imploded in New York. She is taking the lessons into her match with Gauff in Melbourne.`\
+https://nytimes.com/athletic/6074434/2025/01/20/paula-badosa-australian-open-coco-gauff/
 
-**Jannik Sinner wins topsy-turvy Australian Open match with Holger Rune after illness, net problems**\
-`MELBOURNE, Australia — Jannik Sinner is through to the Australian Open quarterfinals after a drama-filled fourth-round win over Holger Rune.`\
-https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-injury-holger-rune/
+**I Was an Undocumented Immigrant. I Beg You to See the Nuance in Our Stories.**\
+`The situations of undocumented immigrants are varied, and call for a variety of solutions.`\
+https://nytimes.com/2025/01/20/opinion/undocumented-immigrant-stories.html
 
-**Madison Keys knocks No. 6 seed Elena Rybakina out of Australian Open**\
-`The No. 6 seed missed multiple break points to seize the advantage in the third set and Keys profited to move into the quarterfinals.`\
-https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
+**On a Cold, Dark Inauguration Day, a Message From the Birds**\
+`Seeing those cardinals watching over each other, I wondered: What can I, too, do to be watchful? To take care?`\
+https://nytimes.com/2025/01/20/opinion/winter-birds-cooperation-survival.html
 
