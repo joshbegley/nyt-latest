@@ -1,3 +1,11 @@
+**Villa reach verbal agreement with Fenerbahce for Carlos transfer**\
+`Aston Villa have reached a verbal agreement with Fenerbahce for the sale of Diego Carlos.`\
+https://nytimes.com/athletic/6074942/2025/01/20/diego-carlos-fenerbahce-aston-villa-transfers/
+
+**Weekend NHL rankings: Connor McDavid's cross-check, an imminent trade and a goalie goal**\
+`It's been an eventful week in the NHL, from coast to coast and all over the ice to boot.`\
+https://nytimes.com/athletic/6073832/2025/01/20/nhl-weekend-rankings-mcdavid-canucks-goalie-goal/
+
 **Suspect in Fatal Stabbing Attack at U.K. Dance Class Pleads Guilty to Murder**\
 `Axel Rudakubana admitted to the murder of three girls and the attempted murder of 10 other people at a Taylor Swift-themed class in Southport, England, last July, as well as three additional charges.`\
 https://nytimes.com/2025/01/20/world/europe/trial-southport-stabbings-uk-axel-rudakubana.html
