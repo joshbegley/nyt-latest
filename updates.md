@@ -1,3 +1,11 @@
+**Dele Alli has a new start – can his career have a happy ending?**\
+`The former England midfielder's talent is beyond dispute but his off-field issues have derailed him — he now has another chance in Italy`\
+https://nytimes.com/athletic/6073600/2025/01/20/dele-alli-como-serie-a/
+
+**We need to talk (less) about Trent Alexander-Arnold**\
+`The right-back is someone to hang strong opinions on, a player perfectly suited to the bitesize, quickfire content mill`\
+https://nytimes.com/athletic/6066698/2025/01/20/trent-alexander-arnold-the-most-discussed-player-in-the-world/
+
 **Explaining why left-footed centre-back pairings have been a rarity - and why that might be changing**\
 `It feels strange to see two left-footers in the middle of defence but it is common with right-footers. Why?`\
 https://nytimes.com/athletic/6064639/2025/01/20/left-footed-centre-back-pairings-change/

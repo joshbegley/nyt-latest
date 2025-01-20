@@ -1,3 +1,11 @@
+**Dele Alli has a new start – can his career have a happy ending?**\
+`The former England midfielder's talent is beyond dispute but his off-field issues have derailed him — he now has another chance in Italy`\
+https://nytimes.com/athletic/6073600/2025/01/20/dele-alli-como-serie-a/
+
+**We need to talk (less) about Trent Alexander-Arnold**\
+`The right-back is someone to hang strong opinions on, a player perfectly suited to the bitesize, quickfire content mill`\
+https://nytimes.com/athletic/6066698/2025/01/20/trent-alexander-arnold-the-most-discussed-player-in-the-world/
+
 **Explaining why left-footed centre-back pairings have been a rarity - and why that might be changing**\
 `It feels strange to see two left-footers in the middle of defence but it is common with right-footers. Why?`\
 https://nytimes.com/athletic/6064639/2025/01/20/left-footed-centre-back-pairings-change/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6074345/2025/01/19/rangers-quick-compete-canadiens-
 **What’s next for Ravens after latest playoff exit, loss to Bills: Takeaways**\
 `Baltimore is now 0-12 in franchise history when losing the turnover battle during the playoffs.`\
 https://nytimes.com/athletic/6073011/2025/01/19/ravens-score-result-takeaways-nfl-afc-divisional-round/
-
-**Allen, Bills edge Ravens 27-25 to reach AFC title game vs. Chiefs: Takeaways**\
-`The MVP candidate threw for a season low in passing yards but rushed for two scores in the AFC divisional round win.`\
-https://nytimes.com/athletic/6073017/2025/01/19/bills-score-result-takeaways-nfl-afc-divisional-round/
-
-**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
-`For the AFC Crown, the Chiefs open as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
-https://nytimes.com/athletic/6073696/2025/01/19/bills-chiefs-how-to-watch-odds-picks-betting/
 
