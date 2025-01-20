@@ -1,3 +1,7 @@
+**Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
+`DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
+https://nytimes.com/athletic/6075833/2025/01/20/donte-divincenzo-injury-timberwolves/
+
 **Lions' Dan Campbell expects to lose both coordinators to head-coaching jobs**\
 `Ben Johnson and Aaron Glenn have been hot names this coaching cycle and Detroit's head coach is preparing to have to replace both of them.`\
 https://nytimes.com/athletic/6075828/2025/01/20/lions-dan-campbell-ben-johnson-aaron-glenn-head-coaching/
