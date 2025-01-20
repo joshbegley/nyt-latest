@@ -1,3 +1,15 @@
+**‘Prime Target,’ Plus 7 Things to Watch on TV This Week**\
+`The new Apple TV+ series stars Leo Woodall as a math genius, and President-elect Donald J. Trump is inaugurated for his second term.`\
+https://nytimes.com/2025/01/20/arts/television/prime-target-plus-7-things-to-watch-on-tv-this-week.html
+
+**This Day Calls for Martin Luther King’s Vision**\
+`The troubled times many of us feel we are in make his message especially relevant.`\
+https://nytimes.com/2025/01/20/opinion/martin-luther-king-trump.html
+
+**It’s Trump’s Messy, Dangerous World Now**\
+`The key to peace is strength, and the key to strength is leadership.`\
+https://nytimes.com/2025/01/20/opinion/trump-foreign-policy-defense.html
+
 **Another Brighton win at Old Trafford - you can't possibly be surprised...**\
 `Sunday's 3-1 triumph was Brighton's third Premier League victory in as many seasons at Old Trafford`\
 https://nytimes.com/athletic/6071844/2025/01/20/brighton-manchester-united-old-trafford/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6073405/2025/01/20/suddenly-forest-are-expected-to-
 **Everton's six big changes under David Moyes that stopped the rot**\
 `The manager's return to Goodison had the retro vibes of 2012`\
 https://nytimes.com/athletic/6073568/2025/01/20/evertons-six-big-changes-that-stopped-the-rot-under-new-manager-david-moyes/
-
-**West Ham's central defence isn't working**\
-`The centre-backs are making bad decisions and a solution is needed`\
-https://nytimes.com/athletic/6071638/2025/01/20/west-hams-central-defence-isnt-working/
-
-**Eze's not at his best but is still winning games for Palace - and that's enough**\
-`Why the forward's game has changed and how it might benefit the team`\
-https://nytimes.com/athletic/6065412/2025/01/20/ebere-eze-is-not-at-his-best-but-is-still-winning-games-for-palace/
-
-**Mikel Arteta's struggles with tactical Whac-A-Mole**\
-`Arsenal's season has required their manager to find solutions for old problems, but just as he solves one issue, another seems to emerge`\
-https://nytimes.com/athletic/6072028/2025/01/20/mikel-arteta-tactical-arsenal-injuires-crossing/
 

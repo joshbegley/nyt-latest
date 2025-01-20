@@ -1,3 +1,15 @@
+**‘Prime Target,’ Plus 7 Things to Watch on TV This Week**\
+`The new Apple TV+ series stars Leo Woodall as a math genius, and President-elect Donald J. Trump is inaugurated for his second term.`\
+https://nytimes.com/2025/01/20/arts/television/prime-target-plus-7-things-to-watch-on-tv-this-week.html
+
+**This Day Calls for Martin Luther King’s Vision**\
+`The troubled times many of us feel we are in make his message especially relevant.`\
+https://nytimes.com/2025/01/20/opinion/martin-luther-king-trump.html
+
+**It’s Trump’s Messy, Dangerous World Now**\
+`The key to peace is strength, and the key to strength is leadership.`\
+https://nytimes.com/2025/01/20/opinion/trump-foreign-policy-defense.html
+
 **Another Brighton win at Old Trafford - you can't possibly be surprised...**\
 `Sunday's 3-1 triumph was Brighton's third Premier League victory in as many seasons at Old Trafford`\
 https://nytimes.com/athletic/6071844/2025/01/20/brighton-manchester-united-old-trafford/
