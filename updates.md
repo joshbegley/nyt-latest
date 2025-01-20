@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By The New York Times`\
+https://nytimes.com/2025/01/20/us/politics/heres-the-latest.html
+
 **Scenes of Elation as Hostages Released, but the Path Ahead Is Uncertain**\
 `Doctors at Sheba Medical Center said the three women are in stable condition, but little is known about what the former captives went through in Gaza.`\
 https://nytimes.com/2025/01/20/world/middleeast/israel-gaza-hostages.html
