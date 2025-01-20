@@ -1,3 +1,23 @@
+**Food and other vital aid surges into Gaza after 15 months of hunger and scarcity.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/food-and-other-vital-aid-surges-into-gaza-after-15-months-of-hunger-and-scarcity
+
+**Trump has promised an immigration crackdown as his first order of business.**\
+`One of his advisers announced a slew of executive actions to be signed during his first hours in the White House, including some that would seal off the border.`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-has-promised-an-immigration-crackdown-as-his-first-order-of-business
+
+**Lowetide: McDavid's cross-check and the questions about Oilers' physical play**\
+`The Oilers are viewed as a team that can be intimidated, and that liberties can be taken against them.`\
+https://nytimes.com/athletic/6073302/2025/01/20/connor-mcdavid-oilers-conor-garland/
+
+**Tuchel contacts players ahead of first England squad selection**\
+`England head coach Thomas Tuchel has begun contacting players ahead of naming his first squad since taking charge of the national team.`\
+https://nytimes.com/athletic/6075015/2025/01/20/thomas-tuchel-england-squad/
+
+**Is this really 'the worst team in the history of Manchester United'?**\
+`Ruben Amorim is right to highlight how bad his team are - but the history books show United have fielded inferior sides in the past`\
+https://nytimes.com/athletic/6075006/2025/01/20/worst-manchester-united-team-ever/
+
 **This Quick Noodle Soup Is Vivid in Every Sense of the Word**\
 `This creamy butternut squash and coconut noodle soup from Christian Reynoso boasts an incredible color and a perfectly calibrated sour-spicy tang.`\
 https://nytimes.com/2025/01/20/dining/quick-noodle-soup.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/20/world/middleeast/syria-austin-tice-mother.html
 **West Ham submit £57m offer to sign Villa striker Duran**\
 `West Ham United have submitted an offer worth £57million ($70m) to sign Aston Villa striker Jhon Duran.`\
 https://nytimes.com/athletic/6075345/2025/01/20/west-ham-transfers-jhon-duran-aston-villa/
-
-**Plenty of tech billionaires are expected to be in attendance.**\
-`By Cecilia Kang`\
-https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/plenty-of-tech-billionaires-are-expected-to-be-in-attendance
-
-**The Windup: Sheesh, Dodgers**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6075315/2025/01/20/dodgers-free-agency-roki-sasaki-the-windup/
-
-**Madrid to be without recognised right-back against RB Salzburg in CL**\
-`Real Madrid are set to be without a recognised right-back for their Champions League game against Red Bull Salzburg on Wednesday.`\
-https://nytimes.com/athletic/6075236/2025/01/20/real-madrid-right-back-injuries/
-
-**What to Know About the Singers Who Will Perform at the Inauguration**\
-`The country singers Carrie Underwood and Lee Greenwood and the tenor Christopher Macchio are all scheduled to sing at the swearing-in ceremony.`\
-https://nytimes.com/2025/01/20/us/politics/trump-inauguration-singers.html
-
-**At Least 80 Dead Amid a New Surge of Violence in Colombia**\
-`Thousands have fled clashes between armed groups on the border with Venezuela, dashing hopes of peace in Colombia.`\
-https://nytimes.com/2025/01/20/world/americas/colombia-catatumbo-rebel-violence.html
 
