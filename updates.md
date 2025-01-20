@@ -1,3 +1,15 @@
+**Sepp Straka cruises to 2-shot win at The American Express**\
+`Straka played with his first 54-hole lead on the PGA Tour on Sunday, and he managed to maintain control of the tournament until the end.`\
+https://nytimes.com/athletic/6074191/2025/01/19/sepp-straka-american-express-pga-tour/
+
+**Lions process stunning season-ending loss, focus on offseason during locker room cleanout**\
+`Plus, rookies reflect on their first seasons in the NFL.`\
+https://nytimes.com/athletic/6074145/2025/01/19/lions-locker-room-cleanout-offseason-outlook/
+
+**Claire van Kampen, 71, Playwright and Arranger of Early Music World, Dies**\
+`After she married Mark Rylance, the two often collaborated; her specialty was arranging music for Tudor-era plays. Then she wrote a period piece of her own.`\
+https://nytimes.com/2025/01/19/obituaries/claire-van-kampen-dead.html
+
 **Fact-checking Trump’s rally the eve before his inauguration.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-rally
