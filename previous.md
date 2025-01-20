@@ -1,3 +1,7 @@
+**The Athletic FC: Prince William's Villa pub trip, Iraola brilliance, worst Man Utd team ever?**\
+`Today in TAFC: the future king of England talks Tielemans and double pivots, Iraola can do no wrong, how bad is this Manchester United team?`\
+https://nytimes.com/athletic/6074849/2025/01/20/prince-william-pub-villa-worst-united-team/
+
 **Rotunda Ransacked by Pro-Trump Mob on Jan. 6 Will Be His Inauguration Backdrop**\
 `The large domed expanse, a breathtaking and solemn space in the Capitol, was the scene of mayhem wrought by Trump supporters four years ago. A very different crowd of his backers will be on hand Monday.`\
 https://nytimes.com/2025/01/20/us/politics/rotunda-ransacked-by-pro-trump-mob-on-jan-6-will-be-his-inauguration-backdrop.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/previously-rel
 **The Trump Changes Begin**\
 `We cover the start of Donald Trump’s second term.`\
 https://nytimes.com/2025/01/20/briefing/donald-trump-inauguration.html
-
-**A father and son return to their Gaza neighborhood to find their home destroyed.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/a-father-and-son-return-to-their-gaza-neighborhood-to-find-their-home-destroyed
 
