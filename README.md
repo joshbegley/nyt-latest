@@ -1,3 +1,7 @@
+**Biden Issues Pre-Emptive Pardons to Guard Against Trump’s Reprisals**\
+`President Biden, hours before leaving office, used his executive clemency power to protect people targeted for reprisals by his successor, including Mark A. Milley, Anthony S. Fauci and Liz Cheney.`\
+https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html
+
 **Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
 `Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, ever ounce of their energy is on the task at hand`\
 https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074942/2025/01/20/diego-carlos-fenerbahce-aston-vi
 **Weekend NHL rankings: Connor McDavid's cross-check, an imminent trade and a goalie goal**\
 `It's been an eventful week in the NHL, from coast to coast and all over the ice to boot.`\
 https://nytimes.com/athletic/6073832/2025/01/20/nhl-weekend-rankings-mcdavid-canucks-goalie-goal/
-
-**TikTok Got a Reprieve, but Americans and Chinese Are Still on RedNote**\
-`The Chinese social media app, popular in the United States a week after being flooded by TikTok users, has added language translation features.`\
-https://nytimes.com/2025/01/20/business/tiktok-ban-rednote-xiaohongshu-adapts.html
 
