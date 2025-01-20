@@ -1,3 +1,7 @@
+**More encouraging Rangers moments over the weekend: 2 games, 3 points, 5 takeaways**\
+`The Rangers couldn't pull off all four points in a weekend back-to-back, but they looked like a team heading in the right direction.`\
+https://nytimes.com/athletic/6074345/2025/01/19/rangers-quick-compete-canadiens-blue-jackets/
+
 **What’s next for Ravens after latest playoff exit, loss to Bills: Takeaways**\
 `Baltimore is now 0-12 in franchise history when losing the turnover battle during the playoffs. `\
 https://nytimes.com/athletic/6073011/2025/01/19/ravens-score-result-takeaways-nfl-afc-divisional-round/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074145/2025/01/19/lions-locker-room-cleanout-offse
 **Claire van Kampen, 71, Playwright and Arranger of Early Music World, Dies**\
 `After she married Mark Rylance, the two often collaborated; her specialty was arranging music for Tudor-era plays. Then she wrote a period piece of her own.`\
 https://nytimes.com/2025/01/19/obituaries/claire-van-kampen-dead.html
-
-**'I overstepped': Presenter apologizes to Djokovic after 'insulting and offensive' comments**\
-`MELBOURNE, Australia — The presenter at the center of Novak Djokovic&#8217;s decision to boycott on-court interviews at the Australian Open has apologized to the 24-time Grand Slam champion, saying that he “overstepped the mark.`\
-https://nytimes.com/athletic/6074099/2025/01/19/novak-djokovic-tony-jones-australian-open-channel-9-interviews/
 
