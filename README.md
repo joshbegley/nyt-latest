@@ -31,7 +31,7 @@ https://nytimes.com/interactive/2025/01/20/us/trump-inauguration-speech-annotate
 https://nytimes.com/athletic/6064952/2025/01/20/ben-johnson-hired-bears-head-coach/
 
 **Trump Announces a Raft of Measures to Promote Fossil Fuels**\
-`The president said at his inauguration he would declare an energy “emergency,” open new land to drilling and end federal support for electric cars.`\
+`The president said he would declare an energy “emergency,” open new land to drilling and end support for electric cars. His pivot to oil and gas comes after the hottest year in recorded history.`\
 https://nytimes.com/2025/01/20/climate/trump-emergency-oil-gas.html
 
 **Trump says he’ll take action to rename the Gulf of Mexico. It might not be that easy.**\
