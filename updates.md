@@ -1,3 +1,7 @@
+**Democrats Are Out of Power. But for How Long?**\
+`Democrats need a course correction, but the 1980s are a reminder that it doesn’t always happen naturally.`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/democrats-trump-inauguration-elections
+
 **At Inauguration, Melania and Barron Trump Greet a Limelight They Once Avoided**\
 `The returning first lady and Barron Trump, the son she had once shielded from the public eye, used Monday’s inauguration to reintroduce themselves.`\
 https://nytimes.com/2025/01/20/us/politics/at-inauguration-melania-and-barron-trump-greet-a-limelight-they-once-avoided.html
