@@ -1,3 +1,11 @@
+**Rotunda Ransacked by Pro-Trump Mob on Jan. 6 Will Be His Inauguration Backdrop**\
+`The large domed expanse, a breathtaking and solemn space in the Capitol, was the scene of mayhem wrought by Trump supporters four years ago. A very different crowd of his backers will be on hand Monday.`\
+https://nytimes.com/2025/01/20/us/politics/rotunda-ransacked-by-pro-trump-mob-on-jan-6-will-be-his-inauguration-backdrop.html
+
+**Appreciate Lamar Jackson's brilliance, even if football cruelty dealt Ravens a loss**\
+`It’s tempting to view quarterbacks through the prism of "Did he win the big one?" But nuance exists, even in the playoffs. `\
+https://nytimes.com/athletic/6074596/2025/01/20/lamar-jackson-ravens-loss-playoffs/
+
 **Villa reach verbal agreement with Fenerbahce for Carlos transfer**\
 `Aston Villa have reached a verbal agreement with Fenerbahce for the sale of Diego Carlos.`\
 https://nytimes.com/athletic/6074942/2025/01/20/diego-carlos-fenerbahce-aston-villa-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/briefing/donald-trump-inauguration.html
 **A father and son return to their Gaza neighborhood to find their home destroyed.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/a-father-and-son-return-to-their-gaza-neighborhood-to-find-their-home-destroyed
-
-**Trump aims for a show of strength as he returns to power.**\
-`By Jonathan Swan and Maggie Haberman`\
-https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-aims-for-a-show-of-strength-as-he-returns-to-power
-
-**Suspect in Fatal Stabbing Attack at U.K. Dance Class Pleads Guilty to Murder**\
-`Axel Rudakubana admitted to the murder of three girls and the attempted murder of 10 other people at a Taylor Swift-themed class in Southport, England, last July, as well as three additional charges.`\
-https://nytimes.com/2025/01/20/world/europe/trial-southport-stabbings-uk-axel-rudakubana.html
 
