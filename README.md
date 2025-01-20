@@ -1,3 +1,11 @@
+**Olympic Medals From Paris Games Are Falling Apart. Who Is to Blame?**\
+`The medals were designed by a jewelry maker owned by the French luxury conglomerate LVMH, which has declined to comment on their deterioration.`\
+https://nytimes.com/2025/01/20/business/medals-paris-olympics-lvmh.html
+
+**Scarred, but Still Standing**\
+`Eli Saslow, a Times writer at large, reflects on visiting relatives who were forced to evacuate, and the little kindnesses everywhere.`\
+https://nytimes.com/2025/01/20/us/wildfires-scarred-los-angeles.html
+
 **Victor Wembanyama returns to France for first time as NBA star**\
 `Victor Wembanyama returned to the French gym where he played as a young boy and teenage pro. This time, he's with the Spurs.`\
 https://nytimes.com/athletic/6075519/2025/01/20/victor-wembanyama-france-return-nba-spurs/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/west-bank-pale
 **Slot: Jota out for 'weeks rather than months'**\
 `Arne Slot says that Diogo Jota will be out for “weeks rather than months” after the Liverpool attacker suffered another agonising injury setback.`\
 https://nytimes.com/athletic/6075471/2025/01/20/diogo-jota-liverpool-injury-arne-slot/
-
-**Man Utd announce global AIDS charity as shirt sponsor for West Ham**\
-`Manchester United will showcase a global health charity as its front-of-shirt sponsor for their Premier League match against West Ham United later this season.`\
-https://nytimes.com/athletic/6075382/2025/01/20/manchester-united-shirt-sponsor-charity/
-
-**Scores of Senior Diplomats Are Leaving Posts as Trump Takes Office**\
-`The departures are common when a transition takes place, but it is now happening more quickly and on a larger scale than under previous administrations, a U.S. official said.`\
-https://nytimes.com/2025/01/20/us/politics/state-department-departures-trump.html
 
