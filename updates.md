@@ -1,3 +1,7 @@
+**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
+`For the AFC Crown, the Chiefs open as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
+https://nytimes.com/athletic/6073696/2025/01/19/bills-chiefs-how-to-watch-odds-picks-betting/
+
 **If Rams' beautifully improbable season had to end, Matthew Stafford got a last word**\
 `"I love this group. I love this coaching staff. I love these players," Sean McVay said after the Rams were eliminated Sunday.`\
 https://nytimes.com/athletic/6074132/2025/01/19/rams-playoff-loss-matthew-stafford-comeback/
