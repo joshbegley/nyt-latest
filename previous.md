@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6074318/2025/01/19/eagles-saquon-barkley-nfc-divisi
 https://nytimes.com/athletic/6074345/2025/01/19/rangers-quick-compete-canadiens-blue-jackets/
 
 **What’s next for Ravens after latest playoff exit, loss to Bills: Takeaways**\
-`Baltimore is now 0-12 in franchise history when losing the turnover battle during the playoffs. `\
+`Baltimore is now 0-12 in franchise history when losing the turnover battle during the playoffs.`\
 https://nytimes.com/athletic/6073011/2025/01/19/ravens-score-result-takeaways-nfl-afc-divisional-round/
 
 **Allen, Bills edge Ravens 27-25 to reach AFC title game vs. Chiefs: Takeaways**\
