@@ -1,3 +1,23 @@
+**Abdukodir Khusanov to Manchester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we take a look at Abdukodir Khusanov's move to Manchester City`\
+https://nytimes.com/athletic/6050327/2025/01/20/abdukodir-khusanov-man-city-transfer-rating/
+
+**USMNT Player Tracker: Weah downs Milan, Richards' consistency and Adams' 'controlled chaos'**\
+`Our weekly round-up of U.S. players in action in Europe's top leagues looks at Weah's star turn in Italy and Christian Pulisic's fatigue`\
+https://nytimes.com/athletic/6075479/2025/01/20/usmnt-tracker-weah-pulisic-adams-richards/
+
+**FIFA president Infantino attends Trump's inauguration**\
+`FIFA president Gianni Infantino was in attendance for Donald Trump&#8217;s inauguration in Washington D.`\
+https://nytimes.com/athletic/6075661/2025/01/20/fifa-president-trump-inauguration/
+
+**What we're hearing about the nixed J.T. Miller trade and a new Canucks direction**\
+`The Canucks and Rangers came close to a trade involving J.T. Miller but the deal fell apart.`\
+https://nytimes.com/athletic/6074372/2025/01/20/jt-miller-canucks-rangers-trade-direction/
+
+**Trump’s Family Stands by His Side at His Inauguration**\
+`President Trump’s relatives return to Washington with more political and cultural support — and a far better understanding of how to wield their soft power.`\
+https://nytimes.com/2025/01/20/us/politics/trump-family-baron-melania-kids.html
+
 **After near-misses on big names, Blue Jays sign OF Anthony Santander**\
 `Santander, 30, is coming off of a career year with the Orioles, making his first All-Star team and hitting a career-best 44 homers.`\
 https://nytimes.com/athletic/5930845/2025/01/20/anthony-santander-signs-free-agent-deal/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/donald-trump-age-oldest-presidents.ht
 **Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
 `Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
 https://nytimes.com/athletic/6053790/2025/01/20/notre-dame-ohio-state-picks-odds-national-championship-game/
-
-**Paris Olympics Medals Are Tarnishing, Putting LVMH in the Spotlight**\
-`The medals were designed by a jewelry maker owned by the French luxury conglomerate, which has declined to comment on their deterioration.`\
-https://nytimes.com/2025/01/20/business/medals-paris-olympics-lvmh.html
-
-**Scarred, but Still Standing**\
-`Eli Saslow, a Times writer at large, reflects on visiting relatives who were forced to evacuate, and the little kindnesses everywhere.`\
-https://nytimes.com/2025/01/20/us/wildfires-scarred-los-angeles.html
-
-**Victor Wembanyama returns to France, childhood gym as NBA star**\
-`A group of Wembanyama’s former coaches, teammates and trainers greeted him and the Spurs at Palais des Sports Maurice Thorez on Monday.`\
-https://nytimes.com/athletic/6075519/2025/01/20/victor-wembanyama-france-return-nba-spurs/
-
-**Fan survey: Should the Islanders rebuild? What's the first thing they need to fix? Faith in Lamoriello?**\
-`Here’s our midseason fan survey on the Islanders, who are headed for a lottery pick and haven’t won a playoff series since 2021.`\
-https://nytimes.com/athletic/6075595/2025/01/20/islanders-fan-survey-roy-lamoriello-trades/
-
-**Headlines and takeaways from the Bucks' first half of the NBA season**\
-`Giannis Antetokounmpo and Damian Lillard have been great, but the Bucks still have work to do if they want to be in the East's top three.`\
-https://nytimes.com/athletic/6073111/2025/01/20/milwaukee-bucks-nba-midway-point-season-2025/
 
