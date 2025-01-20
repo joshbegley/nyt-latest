@@ -15,7 +15,7 @@ https://nytimes.com/live/2025/01/20/us/los-angeles-fires-california/winds-return
 https://nytimes.com/2025/01/20/us/politics/trump-shuts-down-migrant-entry-app-cbp-one.html
 
 **The Line in Trump’s Speech That Will Echo in Time**\
-`By Frank Bruni`\
+`The niceties of Donald Trump’s first speech as president couldn’t mask the darkness within — or the way he views his mission now.`\
 https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html
 
 **Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
