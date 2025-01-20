@@ -1,3 +1,7 @@
+**Headlines and takeaways from the Bucks' first half of the NBA season**\
+`Giannis Antetokounmpo and Damian Lillard have been great, but the Bucks still have work to do if they want to be in the East's top three.`\
+https://nytimes.com/athletic/6073111/2025/01/20/milwaukee-bucks-nba-midway-point-season-2025/
+
 **Why sportsbooks celebrated Detroit Lions' loss to Washington Commanders**\
 `Detroit's loss was devastating for its fans, but sportsbooks were smiling thanks to Washington's upset.`\
 https://nytimes.com/athletic/6075224/2025/01/20/sportsbooks-breathe-easier-why-lions-loss-to-the-commanders-was-a-win-for-the-book/
