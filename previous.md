@@ -1,3 +1,7 @@
+**Another Brighton win at Old Trafford - you can't possibly be surprised...**\
+`Sunday's 3-1 triumph was Brighton's third Premier League victory in as many seasons at Old Trafford`\
+https://nytimes.com/athletic/6071844/2025/01/20/brighton-manchester-united-old-trafford/
+
 **The day it turned toxic: Leicester fans are demanding answers, and rightly so**\
 `Director of football Jon Rudkin, manager Ruud van Nistelrooy and the Leicester board were all criticised by the home support.`\
 https://nytimes.com/athletic/6072807/2025/01/20/rudkin-leicester-fans-protests/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6065412/2025/01/20/ebere-eze-is-not-at-his-best-but
 **Mikel Arteta's struggles with tactical Whac-A-Mole**\
 `Arsenal's season has required their manager to find solutions for old problems, but just as he solves one issue, another seems to emerge`\
 https://nytimes.com/athletic/6072028/2025/01/20/mikel-arteta-tactical-arsenal-injuires-crossing/
-
-**Champions League matchday seven: Who can qualify for the knockout phase? Who could be eliminated?**\
-`Liverpool could seal their place in the top eight but the picture is lot less rosy for Manchester City, Real Madrid and PSG`\
-https://nytimes.com/athletic/6066425/2025/01/20/champions-league-matchday-seven/
 

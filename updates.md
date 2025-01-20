@@ -1,3 +1,7 @@
+**Another Brighton win at Old Trafford - you can't possibly be surprised...**\
+`Sunday's 3-1 triumph was Brighton's third Premier League victory in as many seasons at Old Trafford`\
+https://nytimes.com/athletic/6071844/2025/01/20/brighton-manchester-united-old-trafford/
+
 **The day it turned toxic: Leicester fans are demanding answers, and rightly so**\
 `Director of football Jon Rudkin, manager Ruud van Nistelrooy and the Leicester board were all criticised by the home support.`\
 https://nytimes.com/athletic/6072807/2025/01/20/rudkin-leicester-fans-protests/
