@@ -1,3 +1,7 @@
+**TikTok Got a Reprieve, but Americans and Chinese Are Still on RedNote**\
+`The Chinese social media app, popular in the United States a week after being flooded by TikTok users, has added language translation features.`\
+https://nytimes.com/2025/01/20/business/tiktok-ban-rednote-xiaohongshu-adapts.html
+
 **The Pulse: Now there are four**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6074516/2025/01/20/lamar-jackson-josh-allen-bills-ravens-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073942/2025/01/20/bears-coaching-search-mike-mccar
 **Southern California Is Poised for More Damaging and Dangerous Winds**\
 `With more critical fire weather this week in Los Angeles, the National Weather Service once again issued one of its strongest warnings possible.`\
 https://nytimes.com/2025/01/20/weather/los-angeles-wind-warning-santa-ana.html
-
-**What to make of Lamar Jackson's legacy after another playoff loss**\
-`A soon-to-be three-time MVP, Jackson has improved in the playoffs over the last two seasons, but he still has much to prove.`\
-https://nytimes.com/athletic/6074753/2025/01/20/lamar-jackson-legacy-playoffs-bills/
 
