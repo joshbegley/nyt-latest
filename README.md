@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/20/us/politics/paul-abbate-fbi-director.html
 `Fans of Donald J. Trump spent millions for the opportunity to jump from ballrooms to rooftops for lavish events held across Washington this weekend.`\
 https://nytimes.com/2025/01/20/style/inauguration-weekend-parties-guests-trump.html
 
-**Watching inside Capital One Arena, the crowd plays favorites as guests appear on screen.**\
+**Watching inside Capital One Arena, the crowd boos Pence and cheers Musk.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/watching-inside-capital-one-arena-the-crowd-plays-favorites-as-guests-appear-on-screen
 
