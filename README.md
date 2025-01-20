@@ -1,4 +1,4 @@
-**Marco Rubio Is Confirmed by Senate as Secretary of State**\
+**Marco Rubio is confirmed by Senate as secretary of state.**\
 `The Florida senator becomes the United States’ 72nd chief diplomat, and the first Latino to hold the job.`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/marco-rubio-confirmed-secretary-of-state
 
