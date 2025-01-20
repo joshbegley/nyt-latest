@@ -1,3 +1,7 @@
+**Fact-checking Trump’s rally the eve before his inauguration.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-rally
+
 **How Rams fell short vs. Eagles in snowy, season-ending divisional round loss: Key takeaways**\
 `Frigid weather and a formidable Philadelphia squad spelled the end of gutsy Los Angeles' season on Sunday.`\
 https://nytimes.com/athletic/6072979/2025/01/19/rams-score-result-takeaways-nfl-nfc-divisional-round/
