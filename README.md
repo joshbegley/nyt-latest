@@ -1,3 +1,7 @@
+**Trump Is Sworn In as President**\
+`Also, Biden issued several final-hour pardons. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/20/briefing/trump-is-sworn-in-as-president.html
+
 **Blue Jays get a costly consolation prize in Anthony Santander: Law**\
 `Santander should help the Jays this season, but he is a very poor bet to maintain his productivity through the length of the contract.`\
 https://nytimes.com/athletic/6076231/2025/01/20/blue-jays-anthony-santander-signing-analysis/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/01/20/science/contagious-peeing-chimps.html
 https://nytimes.com/athletic/6076312/2025/01/20/raiders-coaching-search-ben-johnson-bears/
 
 **‘Golden Age of America Begins,’ Trump Says at Inauguration**\
-`After being sworn in as the 47th President of the United States, President Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
+`After being sworn in as the 47th president of the United States, Donald Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
 https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-ceremony.html
 
 **Pardoned Biden Family Members Were Targets of Republicans**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6076347/2025/01/20/rams-cooper-kupp-future/
 **Biden Ends a Half-Century in Public Life on a Somber Note**\
 `“We’re not leaving the fight,” he told supporters and members of his staff as he prepared to leave Washington.`\
 https://nytimes.com/2025/01/20/us/politics/biden-final-day.html
-
-**The White House Website Got a Quick Trump Makeover**\
-`New administrations move quickly to replace the site, and Mr. Trump’s struck a starkly different tone from the message the Biden administration had offered.`\
-https://nytimes.com/2025/01/20/us/politics/white-house-website-trump.html
 
