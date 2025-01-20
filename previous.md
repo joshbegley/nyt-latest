@@ -1,3 +1,7 @@
+**If Rams' beautifully improbable season had to end, Matthew Stafford got a last word**\
+`"I love this group. I love this coaching staff. I love these players," Sean McVay said after the Rams were eliminated Sunday.`\
+https://nytimes.com/athletic/6074132/2025/01/19/rams-playoff-loss-matthew-stafford-comeback/
+
 **Projecting final 4 NFL playoff teams' odds to win Super Bowl, with conference title game analysis**\
 `The NFL's Final Four is set. Which of the remaining teams has the best chance to win the Super Bowl? `\
 https://nytimes.com/athletic/6073512/2025/01/19/nfl-super-bowl-playoff-chances-conference-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072979/2025/01/19/rams-score-result-takeaways-nfl-
 **Miller tells Republican leaders Trump will strip protections from career civil servants.**\
 `The president-elect’s incoming deputy chief of staff told lawmakers that early action would include directives to give the president more control over federal workers, as well as on energy and immigration.`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/miller-tells-republican-leaders-trump-will-strip-protections-from-career-civil-servants
-
-**Barkley, Eagles advance to NFC Championship Game after 28-22 win vs. Rams: Takeaways**\
-`Barkley's two touchdowns and 205 rushing yards put the Eagles in the NFC Championship Game for the second time in the last three seasons.`\
-https://nytimes.com/athletic/6072993/2025/01/19/eagles-score-result-takeaways-nfl-nfc-divisional-round/
 
