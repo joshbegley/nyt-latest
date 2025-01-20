@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6074145/2025/01/19/lions-locker-room-cleanout-offse
 `After she married Mark Rylance, the two often collaborated; her specialty was arranging music for Tudor-era plays. Then she wrote a period piece of her own.`\
 https://nytimes.com/2025/01/19/obituaries/claire-van-kampen-dead.html
 
+**'I overstepped': Presenter apologizes to Djokovic after 'insulting and offensive' comments**\
+`MELBOURNE, Australia — The presenter at the center of Novak Djokovic&#8217;s decision to boycott on-court interviews at the Australian Open has apologized to the 24-time Grand Slam champion, saying that he “overstepped the mark.`\
+https://nytimes.com/athletic/6074099/2025/01/19/novak-djokovic-tony-jones-australian-open-channel-9-interviews/
+
 **Fact-checking Trump’s rally the eve before his inauguration.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-rally
@@ -21,10 +25,6 @@ https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-
 **How Rams fell short vs. Eagles in snowy, season-ending divisional round loss: Key takeaways**\
 `Frigid weather and a formidable Philadelphia squad spelled the end of gutsy Los Angeles' season on Sunday.`\
 https://nytimes.com/athletic/6072979/2025/01/19/rams-score-result-takeaways-nfl-nfc-divisional-round/
-
-**'I overstepped': Presenter apologizes to Djokovic after 'insulting and offensive' comments**\
-`MELBOURNE, Australia — The presenter at the center of Novak Djokovic&#8217;s decision to boycott on-court interviews at the Australian Open has apologized to the 24-time Grand Slam champion, saying that he “overstepped the mark.`\
-https://nytimes.com/athletic/6074099/2025/01/19/novak-djokovic-tony-jones-australian-open-channel-9-interviews/
 
 **Miller tells Republican leaders Trump will strip protections from career civil servants.**\
 `The president-elect’s incoming deputy chief of staff told lawmakers that early action would include directives to give the president more control over federal workers, as well as on energy and immigration.`\
