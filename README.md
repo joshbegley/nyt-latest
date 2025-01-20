@@ -1,3 +1,23 @@
+**The return of the 'Welsh wall' could soften potential Pascal Struijk blow**\
+`Ampadu was man of the match in Leeds' win over Sheffield Wednesday – could history be about to repeat itself?`\
+https://nytimes.com/athletic/6073262/2025/01/20/leeds-sheffield-wednesday-ampadu/
+
+**Suddenly Forest are expected to win - it is a welcome vibe shift they must manage**\
+`It's very different going into matches as favourites, having been underdogs for so long`\
+https://nytimes.com/athletic/6073405/2025/01/20/suddenly-forest-are-expected-to-win-it-is-a-welcome-vibe-shift-they-must-manage/
+
+**Everton's six big changes under David Moyes that stopped the rot**\
+`The manager's return to Goodison had the retro vibes of 2012`\
+https://nytimes.com/athletic/6073568/2025/01/20/evertons-six-big-changes-that-stopped-the-rot-under-new-manager-david-moyes/
+
+**West Ham's central defence isn't working**\
+`The centre-backs are making bad decisions and a solution is needed`\
+https://nytimes.com/athletic/6071638/2025/01/20/west-hams-central-defence-isnt-working/
+
+**Eze's not at his best but is still winning games for Palace - and that's enough**\
+`Why the forward's game has changed and how it might benefit the team`\
+https://nytimes.com/athletic/6065412/2025/01/20/ebere-eze-is-not-at-his-best-but-is-still-winning-games-for-palace/
+
 **Mikel Arteta's struggles with tactical Whac-A-Mole**\
 `Arsenal's season has required their manager to find solutions for old problems, but just as he solves one issue, another seems to emerge`\
 https://nytimes.com/athletic/6072028/2025/01/20/mikel-arteta-tactical-arsenal-injuires-crossing/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/20/briefing/israel-gaza-trump.html
 **The Briefing: Is Levy the problem at Spurs and what can Man Utd learn from Brighton?**\
 `The major talking points from the Premier League weekend - dissected by Matt Slater`\
 https://nytimes.com/athletic/6073077/2025/01/20/daniel-levy-tottenham-manchester-united-brighton/
-
-**Dele Alli has a new start – can his career have a happy ending?**\
-`The former England midfielder's talent is beyond dispute but his off-field issues have derailed him — he now has another chance in Italy`\
-https://nytimes.com/athletic/6073600/2025/01/20/dele-alli-como-serie-a/
-
-**We need to talk (less) about Trent Alexander-Arnold**\
-`The right-back is someone to hang strong opinions on, a player perfectly suited to the bitesize, quickfire content mill`\
-https://nytimes.com/athletic/6066698/2025/01/20/trent-alexander-arnold-the-most-discussed-player-in-the-world/
-
-**Explaining why left-footed centre-back pairings have been a rarity - and why that might be changing**\
-`It feels strange to see two left-footers in the middle of defence but it is common with right-footers. Why?`\
-https://nytimes.com/athletic/6064639/2025/01/20/left-footed-centre-back-pairings-change/
-
-**In victory over Rams, Eagles outran their passing-game problems for one more day**\
-`Explosive runs and another dominating performance from the defense propelled the Eagles to the NFC title game.`\
-https://nytimes.com/athletic/6073590/2025/01/20/eagles-rams-score-jalen-hurts-offense-struggles/
-
-**Battle of the benches: Watching Arsenal vs Villa through the theatre of Jover vs MacPhee**\
-`Villa and Arsenal have two of the Premier League's most well-known set-piece coaches - we watched their touchline theatre play out.`\
-https://nytimes.com/athletic/6071639/2025/01/20/aston-villa-set-pieces-arsenal/
 
