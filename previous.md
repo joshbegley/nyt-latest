@@ -1,3 +1,11 @@
+**The Windup: Sheesh, Dodgers**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6075315/2025/01/20/dodgers-free-agency-roki-sasaki-the-windup/
+
+**Madrid to be without recognised right-back against RB Salzburg in CL**\
+`Real Madrid are set to be without a recognised right-back for their Champions League game against Red Bull Salzburg on Wednesday.`\
+https://nytimes.com/athletic/6075236/2025/01/20/real-madrid-right-back-injuries/
+
 **What to Know About the Singers Who Will Perform at the Inauguration**\
 `The country singers Carrie Underwood and Lee Greenwood and the tenor Christopher Macchio are all scheduled to sing at the swearing-in ceremony.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inauguration-singers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6066743/2025/01/20/rewind-all-star-voting-nikola-jo
 **Some Jan. 6 Rioters Are Expected to Be in Washington for the Inauguration**\
 `At least eight rioters who have faced criminal charges have been granted permission to attend. Most were accused of relatively minor offenses.`\
 https://nytimes.com/2025/01/20/us/politics/jan-6-rioters-trump-inauguration.html
-
-**Scenes of Elation as Hostages Released, but the Path Ahead Is Uncertain**\
-`Doctors at Sheba Medical Center said the three women are in stable condition, but little is known about what the former captives went through in Gaza.`\
-https://nytimes.com/2025/01/20/world/middleeast/israel-gaza-hostages.html
-
-**Here’s the latest.**\
-`By Noah Weiland`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/overview
 

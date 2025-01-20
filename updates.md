@@ -1,3 +1,11 @@
+**The Windup: Sheesh, Dodgers**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6075315/2025/01/20/dodgers-free-agency-roki-sasaki-the-windup/
+
+**Madrid to be without recognised right-back against RB Salzburg in CL**\
+`Real Madrid are set to be without a recognised right-back for their Champions League game against Red Bull Salzburg on Wednesday.`\
+https://nytimes.com/athletic/6075236/2025/01/20/real-madrid-right-back-injuries/
+
 **What to Know About the Singers Who Will Perform at the Inauguration**\
 `The country singers Carrie Underwood and Lee Greenwood and the tenor Christopher Macchio are all scheduled to sing at the swearing-in ceremony.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inauguration-singers.html
