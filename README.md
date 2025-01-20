@@ -1,3 +1,7 @@
+**Relatives of freed hostages thank Trump, and call on Israel to win the freedom of remaining captives.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/relatives-of-freed-hostages-thank-trump-and-call-on-israel-to-win-the-freedom-of-remaining-captives
+
 **Melania Trump Tips Her Hat**\
 `Inauguration fashion statements from the first lady — as well as the second.`\
 https://nytimes.com/2025/01/20/style/melania-trump-hat-inauguration-outfit.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/01/20/opinion/scorecard-best-worst-moments-trump-inaugu
 **Tuesday Briefing: Trump Takes Office**\
 `Plus, exploring Indonesia’s spiritual hub.`\
 https://nytimes.com/2025/01/20/briefing/trump-inauguration-executive-orders-gaza-cease-fire.html
-
-**Trump promised to end electric vehicle ‘mandates.’ Here’s what that means.**\
-`By Jack Ewing`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-promised-to-end-electric-vehicle-mandates-heres-what-that-means
 
