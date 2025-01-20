@@ -1,3 +1,15 @@
+**Trump Takes Office as a Newly Minted Crypto Billionaire**\
+`The Trump family’s new crypto tokens, which went on sale over the weekend, have soared in value — along with crypto markets in general.`\
+https://nytimes.com/2025/01/20/business/trump-memcoins-crypto.html
+
+**Religious leaders of different faiths are set to lead inaugural prayers.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/religious-leaders-of-different-faiths-are-set-to-lead-inaugural-prayers
+
+**Mother of Missing U.S. Journalist Asks Syria’s New Leaders for Help**\
+`Debra Tice, whose son Austin was abducted near Damascus in 2012, said the rebel group that toppled the Assad regime promised support in helping to find him.`\
+https://nytimes.com/2025/01/20/world/middleeast/syria-austin-tice-mother.html
+
 **West Ham submit £57m offer to sign Villa striker Duran**\
 `West Ham United have submitted an offer worth £57million ($70m) to sign Aston Villa striker Jhon Duran.`\
 https://nytimes.com/athletic/6075345/2025/01/20/west-ham-transfers-jhon-duran-aston-villa/

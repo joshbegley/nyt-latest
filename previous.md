@@ -1,3 +1,15 @@
+**Trump Takes Office as a Newly Minted Crypto Billionaire**\
+`The Trump family’s new crypto tokens, which went on sale over the weekend, have soared in value — along with crypto markets in general.`\
+https://nytimes.com/2025/01/20/business/trump-memcoins-crypto.html
+
+**Religious leaders of different faiths are set to lead inaugural prayers.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/religious-leaders-of-different-faiths-are-set-to-lead-inaugural-prayers
+
+**Mother of Missing U.S. Journalist Asks Syria’s New Leaders for Help**\
+`Debra Tice, whose son Austin was abducted near Damascus in 2012, said the rebel group that toppled the Assad regime promised support in helping to find him.`\
+https://nytimes.com/2025/01/20/world/middleeast/syria-austin-tice-mother.html
+
 **West Ham submit £57m offer to sign Villa striker Duran**\
 `West Ham United have submitted an offer worth £57million ($70m) to sign Aston Villa striker Jhon Duran.`\
 https://nytimes.com/athletic/6075345/2025/01/20/west-ham-transfers-jhon-duran-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/20/world/americas/colombia-catatumbo-rebel-violence.
 **‘Starry Night,’ All Night Long, as a Van Gogh Blockbuster Ends**\
 `The National Gallery in London stayed open all night for die-hard fans of the Dutch painter. “Midnight offers more room for reflection,” one attendee said.`\
 https://nytimes.com/2025/01/20/arts/design/van-gogh-national-gallery-all-nighter.html
-
-**West Ham set to reunite Chelsea recruitment analyst with Potter**\
-`West Ham United are closing in on an agreement with Chelsea to reunite Kyle Macaulay with newly-appointed head coach Graham Potter as a recruitment analyst.`\
-https://nytimes.com/athletic/6075194/2025/01/20/west-ham-chelsea-kyle-macaulay/
-
-**Here Are Trump’s Expected Executive Orders**\
-`The incoming president’s team said he would take unilateral action on a variety of fronts during his first hours in office, including 10 executive orders cracking down on immigration and immigrants.`\
-https://nytimes.com/2025/01/20/us/politics/trump-executive-orders-list.html
-
-**West Bank settlers attack Palestinian villages, angry about prisoner releases.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/west-bank-settlers-attack-palestinian-villages-angry-about-prisoner-releases
 
