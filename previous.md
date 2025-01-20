@@ -1,3 +1,19 @@
+**A father and son return to their Gaza neighborhood to find their home destroyed.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/a-father-and-son-return-to-their-gaza-neighborhood-to-find-their-home-destroyed
+
+**Trump aims for a show of strength as he returns to power.**\
+`By Jonathan Swan and Maggie Haberman`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-aims-for-a-show-of-strength-as-he-returns-to-power
+
+**Trial Begins of Suspect in Fatal Stabbing Attack at U.K. Dance Class**\
+`Axel Rudakubana is accused of the murder of three girls and the attempted murder of 10 other people at a Taylor Swift-themed class in Southport, England, last July.`\
+https://nytimes.com/2025/01/20/world/europe/trial-southport-stabbings-uk-axel-rudakubana.html
+
+**Mike McCarthy, Ben Johnson or the field? The Bears' coaching search is about to intensify**\
+`The Bears have interviewed many candidates over video but only three in person at Halas Hall so far.`\
+https://nytimes.com/athletic/6073942/2025/01/20/bears-coaching-search-mike-mccarthy-ben-johnson/
+
 **Southern California Is Poised for More Damaging and Dangerous Winds**\
 `With more critical fire weather this week in Los Angeles, the National Weather Service once again issued one of its strongest warnings possible.`\
 https://nytimes.com/2025/01/20/weather/los-angeles-wind-warning-santa-ana.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6040110/2025/01/20/jayden-daniels-magic-johnson-com
 **How the Red Wings' top prospects are trending in Grand Rapids**\
 `An update on five top Red Wings prospects after a trip to Grand Rapids.`\
 https://nytimes.com/athletic/6073681/2025/01/20/red-wings-prospects-update-grand-rapids/
-
-**Early Commanders-Eagles thoughts as the division rivals clash in NFC title game**\
-`The NFC East rivals meet with a trip to Super Bowl LIX on the line. Washington will have its hands full with Saquon Barkley, Jalen Carter. `\
-https://nytimes.com/athletic/6074525/2025/01/20/commanders-eagles-nfc-championship-game/
-
-**Through 20 games, are the Blackhawks better or worse under Anders Sorensen? Notebook**\
-`Has Sorensen’s hiring made a difference? What does it all mean for his hopes of keeping the Blackhawks head coaching job going forward?`\
-https://nytimes.com/athletic/6073589/2025/01/20/blackhawks-anders-sorensen-nhl-coach-analysis/
-
-**Trump Takes Office, and the TikTok Roller Coaster**\
-`Plus, women’s history in the National Mall.`\
-https://nytimes.com/2025/01/20/podcasts/trump-tiktok-ban.html
-
-**The TikTok Flip-Flop**\
-`What happened to the popular video app? And what can Donald Trump actually do about it?`\
-https://nytimes.com/2025/01/20/podcasts/the-daily/tiktok-ban-trump.html
 
