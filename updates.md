@@ -1,3 +1,7 @@
+**Suspect in Fatal Stabbing Attack at U.K. Dance Class Pleads Guilty to Murder**\
+`Axel Rudakubana admitted to the murder of three girls and the attempted murder of 10 other people at a Taylor Swift-themed class in Southport, England, last July, as well as three additional charges.`\
+https://nytimes.com/2025/01/20/world/europe/trial-southport-stabbings-uk-axel-rudakubana.html
+
 **TikTok Got a Reprieve, but Americans and Chinese Are Still on RedNote**\
 `The Chinese social media app, popular in the United States a week after being flooded by TikTok users, has added language translation features.`\
 https://nytimes.com/2025/01/20/business/tiktok-ban-rednote-xiaohongshu-adapts.html
