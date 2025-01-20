@@ -1,3 +1,19 @@
+**Blue Jays get a costly consolation prize in Anthony Santander: Law**\
+`Santander should help the Jays this season, but he is a very poor bet to maintain his productivity through the length of the contract.`\
+https://nytimes.com/athletic/6076231/2025/01/20/blue-jays-anthony-santander-signing-analysis/
+
+**Wild shut down Avalanche's potent offense in impressive road win: 3 takeaways**\
+`The Wild overcame a hot goalie to pick up a rare win against a Western Conference playoff rival.`\
+https://nytimes.com/athletic/6076274/2025/01/20/wild-jiricek-faber-blackwood-avalanche/
+
+**Do Chimps Who Urinate Together Stay Together?**\
+`Scientists suspect that contagious urination, a behavior they observed among a troop of apes in Japan, may play an important role in primate social life.`\
+https://nytimes.com/2025/01/20/science/contagious-peeing-chimps.html
+
+**Raiders turn page on coaching search after losing out to Bears on Ben Johnson**\
+`Johnson seemed like the Raiders' Plan A. Now, where will Mark Davis, Tom Brady and the franchise turn to find their new head coach?`\
+https://nytimes.com/athletic/6076312/2025/01/20/raiders-coaching-search-ben-johnson-bears/
+
 **‘Golden Age of America Begins,’ Trump Says at Inauguration**\
 `After being sworn in as the 47th President of the United States, President Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
 https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-ceremony.html
