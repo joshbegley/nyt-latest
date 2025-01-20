@@ -1,3 +1,7 @@
+**Broken net delays Jannik Sinner and Holger Rune's Australian Open fourth-round match**\
+`Play was delayed for over 20 minutes after a Sinner first serve broke the net.`\
+https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
+
 **‘Prime Target,’ Plus 7 Things to Watch on TV This Week**\
 `The new Apple TV+ series stars Leo Woodall as a math genius, and President-elect Donald J. Trump is inaugurated for his second term.`\
 https://nytimes.com/2025/01/20/arts/television/prime-target-plus-7-things-to-watch-on-tv-this-week.html
