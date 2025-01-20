@@ -21,7 +21,7 @@ https://nytimes.com/2025/01/20/briefing/trump-inauguration-executive-orders-gaza
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-promised-to-end-electric-vehicle-mandates-heres-what-that-means
 
 **Colts to hire Lou Anarumo as defensive coordinator: Sources**\
-`Anarumo replaces Gus Bradley, who the Colts “parted ways” with earlier this month`\
+`Anarumo will replace Gus Bradley, whom the Colts “parted ways” with earlier this month.`\
 https://nytimes.com/athletic/6075864/2025/01/20/indianapolis-colts-lou-anarumo-defensive-coordinator/
 
 **Portrait of General Milley Is Removed From Pentagon**\
