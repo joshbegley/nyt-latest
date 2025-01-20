@@ -1,3 +1,7 @@
+**Biden Pardons 5 Members of His Family in Final Minutes in Office**\
+`Mr. Biden emphasized that he did not believe his family did anything wrong, but he feared political attacks by Donald J. Trump.`\
+https://nytimes.com/2025/01/20/us/politics/biden-pardons-family.html
+
 **Bob Dylan’s Draft of Lyrics, Once Tossed in Trash, Sells for $500,000**\
 `Two pages of lyrics, written in the kitchen of a pioneering rock ‘n’ roll journalist, offer glimpses into the Nobel Prize-winning musician’s writing process.`\
 https://nytimes.com/2025/01/20/arts/music/bob-dylan-tambourine-man-lyrics-sold.html
