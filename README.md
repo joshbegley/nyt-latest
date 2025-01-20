@@ -1,5 +1,9 @@
+**Jannik Sinner wins topsy-turvy Australian Open match with Holger Rune after injury, net issues**\
+`MELBOURNE, Australia — Jannik Sinner is through to the Australian Open quarterfinals after a drama-filled fourth-round win over Holger Rune.`\
+https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-injury-holger-rune/
+
 **Madison Keys knocks No. 6 seed Elena Rybakina out of Australian Open**\
-`The No. 6 seed missed multiple break points to seize the advantage in the third-set and Keys profited to move into the quarterfinals.`\
+`The No. 6 seed missed multiple break points to seize the advantage in the third set and Keys profited to move into the quarterfinals.`\
 https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
 
 **How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071844/2025/01/20/brighton-manchester-united-old-t
 **The day it turned toxic: Leicester fans are demanding answers, and rightly so**\
 `Director of football Jon Rudkin, manager Ruud van Nistelrooy and the Leicester board were all criticised by the home support.`\
 https://nytimes.com/athletic/6072807/2025/01/20/rudkin-leicester-fans-protests/
-
-**Ruben Amorim's starting XI is starting to take shape... and there's some bad news**\
-`Brighton illustrated what a well organised club can achieve. United need to learn from that`\
-https://nytimes.com/athletic/6057533/2025/01/20/ruben-amorims-starting-xi-is-starting-to-take-shape-and-theres-some-bad-news/
 

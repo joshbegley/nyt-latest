@@ -1,3 +1,7 @@
+**Madison Keys knocks No. 6 seed Elena Rybakina out of Australian Open**\
+`The No. 6 seed missed multiple break points to seize the advantage in the third-set and Keys profited to move into the quarterfinals.`\
+https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
+
 **How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
 `Given Savinho’s form in recent weeks, you would have been forgiven for thinking the 20-year-old was a nailed-on starter to play on the left side of Pep Guardiola’s attack against Ipswich Town on Sunday afternoon.`\
 https://nytimes.com/athletic/6074085/2025/01/20/how-man-city-used-brilliant-doku-to-dominate-the-left-flank-against-ipswich/
