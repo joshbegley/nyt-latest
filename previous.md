@@ -1,40 +1,40 @@
-**Dele Alli has a new start – can his career have a happy ending?**\
-`The former England midfielder's talent is beyond dispute but his off-field issues have derailed him — he now has another chance in Italy`\
-https://nytimes.com/athletic/6073600/2025/01/20/dele-alli-como-serie-a/
+**The return of the 'Welsh wall' could soften potential Pascal Struijk blow**\
+`Ampadu was man of the match in Leeds' win over Sheffield Wednesday – could history be about to repeat itself?`\
+https://nytimes.com/athletic/6073262/2025/01/20/leeds-sheffield-wednesday-ampadu/
 
-**We need to talk (less) about Trent Alexander-Arnold**\
-`The right-back is someone to hang strong opinions on, a player perfectly suited to the bitesize, quickfire content mill`\
-https://nytimes.com/athletic/6066698/2025/01/20/trent-alexander-arnold-the-most-discussed-player-in-the-world/
+**Suddenly Forest are expected to win - it is a welcome vibe shift they must manage**\
+`It's very different going into matches as favourites, having been underdogs for so long`\
+https://nytimes.com/athletic/6073405/2025/01/20/suddenly-forest-are-expected-to-win-it-is-a-welcome-vibe-shift-they-must-manage/
 
-**Explaining why left-footed centre-back pairings have been a rarity - and why that might be changing**\
-`It feels strange to see two left-footers in the middle of defence but it is common with right-footers. Why?`\
-https://nytimes.com/athletic/6064639/2025/01/20/left-footed-centre-back-pairings-change/
+**Everton's six big changes under David Moyes that stopped the rot**\
+`The manager's return to Goodison had the retro vibes of 2012`\
+https://nytimes.com/athletic/6073568/2025/01/20/evertons-six-big-changes-that-stopped-the-rot-under-new-manager-david-moyes/
 
-**In victory over Rams, Eagles outran their passing-game problems for one more day**\
-`Explosive runs and another dominating performance from the defense propelled the Eagles to the NFC title game.`\
-https://nytimes.com/athletic/6073590/2025/01/20/eagles-rams-score-jalen-hurts-offense-struggles/
+**West Ham's central defence isn't working**\
+`The centre-backs are making bad decisions and a solution is needed`\
+https://nytimes.com/athletic/6071638/2025/01/20/west-hams-central-defence-isnt-working/
 
-**Battle of the benches: Watching Arsenal vs Villa through the theatre of Jover vs MacPhee**\
-`Villa and Arsenal have two of the Premier League's most well-known set-piece coaches - we watched their touchline theatre play out.`\
-https://nytimes.com/athletic/6071639/2025/01/20/aston-villa-set-pieces-arsenal/
+**Eze's not at his best but is still winning games for Palace - and that's enough**\
+`Why the forward's game has changed and how it might benefit the team`\
+https://nytimes.com/athletic/6065412/2025/01/20/ebere-eze-is-not-at-his-best-but-is-still-winning-games-for-palace/
 
-**Quote of the Day: Wagner Waits and Hopes Voters Don’t Close Out His Hall Candidacy**\
-`Quotation of the Day for Monday, January 20, 2025.`\
-https://nytimes.com/2025/01/20/pageoneplus/quote-of-the-day-wagner-waits-and-hopes-voters-dont-close-out-his-hall-candidacy.html
+**Mikel Arteta's struggles with tactical Whac-A-Mole**\
+`Arsenal's season has required their manager to find solutions for old problems, but just as he solves one issue, another seems to emerge`\
+https://nytimes.com/athletic/6072028/2025/01/20/mikel-arteta-tactical-arsenal-injuires-crossing/
 
-**TikTok, RedNote and the Crushed Promise of the Chinese Internet**\
-`China’s internet companies and their hard-working, resourceful professionals make world-class products, in spite of censorship and malign neglect by Beijing.`\
-https://nytimes.com/2025/01/20/business/tiktok-red-note-china-internet.html
+**Champions League matchday seven: Who can qualify for the knockout phase? Who could be eliminated?**\
+`Liverpool could seal their place in the top eight but the picture is lot less rosy for Manchester City, Real Madrid and PSG`\
+https://nytimes.com/athletic/6066425/2025/01/20/champions-league-matchday-seven/
 
-**How the Eagles leaned into their identity — and Saquon Barkley — to reach NFC title game**\
-`Philadelphia opened the season 2-2. Players say a Week 5 bye sparked a change that has them just one win shy of another Super Bowl trip.`\
-https://nytimes.com/athletic/6074318/2025/01/19/eagles-saquon-barkley-nfc-divisional-win/
+**Manchester United's intensity forced City into the errors that sealed historic win**\
+`Coach Marc Skinner ranked this first away win against neighbours Man City as “one of the very best”`\
+https://nytimes.com/athletic/6074018/2025/01/20/manchester-united-city-wsl-pressing/
 
-**More encouraging Rangers moments over the weekend: 2 games, 3 points, 5 takeaways**\
-`The Rangers couldn't pull off all 4 points in a weekend back-to-back, but they seemed to be heading in the right direction.`\
-https://nytimes.com/athletic/6074345/2025/01/19/rangers-quick-compete-canadiens-blue-jackets/
+**Monday Briefing**\
+`The start of a truce in Gaza.`\
+https://nytimes.com/2025/01/20/briefing/israel-gaza-trump.html
 
-**What’s next for Ravens after latest playoff exit, loss to Bills: Takeaways**\
-`Baltimore is now 0-12 in franchise history when losing the turnover battle during the playoffs.`\
-https://nytimes.com/athletic/6073011/2025/01/19/ravens-score-result-takeaways-nfl-afc-divisional-round/
+**The Briefing: Is Levy the problem at Spurs and what can Man Utd learn from Brighton?**\
+`The major talking points from the Premier League weekend - dissected by Matt Slater`\
+https://nytimes.com/athletic/6073077/2025/01/20/daniel-levy-tottenham-manchester-united-brighton/
 
