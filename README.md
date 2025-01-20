@@ -1,3 +1,7 @@
+**The Line in Trump’s Speech That Will Echo in Time**\
+`By Frank Bruni`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/the-line-in-trumps-speech-that-will-echo-in-time
+
 **Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
 `DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
 https://nytimes.com/athletic/6075833/2025/01/20/donte-divincenzo-injurytimberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075479/2025/01/20/usmnt-tracker-weah-pulisic-adams
 **FIFA president Infantino attends Trump's inauguration**\
 `FIFA president Gianni Infantino was in attendance for Donald Trump&#8217;s inauguration in Washington D.`\
 https://nytimes.com/athletic/6075661/2025/01/20/fifa-president-trump-inauguration/
-
-**What we're hearing about the nixed J.T. Miller trade and a new Canucks direction**\
-`The Canucks and Rangers came close to a trade involving J.T. Miller but the deal fell apart.`\
-https://nytimes.com/athletic/6074372/2025/01/20/jt-miller-canucks-rangers-trade-direction/
 
