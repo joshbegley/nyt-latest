@@ -1,3 +1,15 @@
+**Pereira critical of Cunha after Chelsea loss: 'I don't like his body language'**\
+`Wolverhampton Wanderers head coach Vitor Pereira has warned attacking talisman Matheus Cunha that his body language in Monday’s 3-1 defeat at Chelsea was unacceptable.`\
+https://nytimes.com/athletic/6076371/2025/01/20/matheus-cunha-wolves-chelsea/
+
+**In renaming Denali for McKinley, Trump invokes a presidential idol**\
+`The move is likely to face some pushback in Alaska, where the Alaska Native name has long been favored for the continent’s tallest mountain.`\
+https://nytimes.com/2025/01/20/us/politics/denali-mckinley-rename-trump.html
+
+**Trump Is Sworn In as President**\
+`Also, Biden issued several final-hour pardons. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/20/briefing/trump-is-sworn-in-as-president.html
+
 **Blue Jays get a costly consolation prize in Anthony Santander: Law**\
 `Santander should help the Jays this season, but he is a very poor bet to maintain his productivity through the length of the contract.`\
 https://nytimes.com/athletic/6076231/2025/01/20/blue-jays-anthony-santander-signing-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/pardoned-biden-family-members-were-ta
 **Armed Services Panel Rushes Through Hegseth Nomination Along Party Lines**\
 `Republicans moved in private over the objections of Democrats. A last-minute bid to delay the vote failed.`\
 https://nytimes.com/2025/01/20/us/hegseth-armed-services-senate.html
-
-**Rams’ Cooper Kupp: ‘I will be playing football next year, that much I know’**\
-`Cooper Kupp's targets dwindled during the back stretch of the regular season and into the playoffs.`\
-https://nytimes.com/athletic/6076347/2025/01/20/rams-cooper-kupp-future/
-
-**Biden Ends a Half-Century in Public Life on a Somber Note**\
-`“We’re not leaving the fight,” he told supporters and members of his staff as he prepared to leave Washington.`\
-https://nytimes.com/2025/01/20/us/politics/biden-final-day.html
-
-**The White House Website Got a Quick Trump Makeover**\
-`New administrations move quickly to replace the site, and Mr. Trump’s struck a starkly different tone from the message the Biden administration had offered.`\
-https://nytimes.com/2025/01/20/us/politics/white-house-website-trump.html
 

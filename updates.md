@@ -1,3 +1,15 @@
+**Pereira critical of Cunha after Chelsea loss: 'I don't like his body language'**\
+`Wolverhampton Wanderers head coach Vitor Pereira has warned attacking talisman Matheus Cunha that his body language in Monday’s 3-1 defeat at Chelsea was unacceptable.`\
+https://nytimes.com/athletic/6076371/2025/01/20/matheus-cunha-wolves-chelsea/
+
+**In renaming Denali for McKinley, Trump invokes a presidential idol**\
+`The move is likely to face some pushback in Alaska, where the Alaska Native name has long been favored for the continent’s tallest mountain.`\
+https://nytimes.com/2025/01/20/us/politics/denali-mckinley-rename-trump.html
+
+**Trump Is Sworn In as President**\
+`Also, Biden issued several final-hour pardons. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/20/briefing/trump-is-sworn-in-as-president.html
+
 **‘Golden Age of America Begins,’ Trump Says at Inauguration**\
 `After being sworn in as the 47th president of the United States, Donald Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
 https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-ceremony.html
