@@ -1,3 +1,7 @@
+**Madison Keys knocks No. 6 seed Elena Rybakina out of Australian Open**\
+`The No. 6 seed missed multiple break points to seize the advantage in the third-set and Keys profited to move into the quarterfinals.`\
+https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
+
 **How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
 `Given Savinho’s form in recent weeks, you would have been forgiven for thinking the 20-year-old was a nailed-on starter to play on the left side of Pep Guardiola’s attack against Ipswich Town on Sunday afternoon.`\
 https://nytimes.com/athletic/6074085/2025/01/20/how-man-city-used-brilliant-doku-to-dominate-the-left-flank-against-ipswich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072807/2025/01/20/rudkin-leicester-fans-protests/
 **Ruben Amorim's starting XI is starting to take shape... and there's some bad news**\
 `Brighton illustrated what a well organised club can achieve. United need to learn from that`\
 https://nytimes.com/athletic/6057533/2025/01/20/ruben-amorims-starting-xi-is-starting-to-take-shape-and-theres-some-bad-news/
-
-**Tottenham Hotspur are a club drifting - who is going to take control?**\
-`Ange Postecoglou needs new player to save the season - Tottenham can't just wait for injured players to return`\
-https://nytimes.com/athletic/6061187/2025/01/20/spurs-everton-postecoglou-levy/
 
