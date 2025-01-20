@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders-new/heres-the-latest
+
+**Life in Prison for Hospital Rape and Murder That Shocked India**\
+`The police had sought the death penalty in a horrific but familiar crime. Its handling by the local authorities had outraged the nation.`\
+https://nytimes.com/2025/01/20/business/india-doctor-rape-sentence.html
+
 **Australian Open recap: Gael Monfils' run ends as Melbourne heat and long matches dash dreams**\
 `The Frenchman's phenomenal run comes to an end on a day that saw incredible exploits catch up to players all over the tournament.`\
 https://nytimes.com/athletic/6074185/2025/01/20/australian-open-recap-gael-monfils/
