@@ -1,3 +1,7 @@
+**How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
+`Given Savinho’s form in recent weeks, you would have been forgiven for thinking the 20-year-old was a nailed-on starter to play on the left side of Pep Guardiola’s attack against Ipswich Town on Sunday afternoon.`\
+https://nytimes.com/athletic/6074085/2025/01/20/how-man-city-used-brilliant-doku-to-dominate-the-left-flank-against-ipswich/
+
 **'Let’s see who’s better': Bills' defense heard the haters, used motivation to upend Ravens**\
 `The defense peppered the game with big plays that set up the offense.`\
 https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-video-motivation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6057533/2025/01/20/ruben-amorims-starting-xi-is-sta
 **Tottenham Hotspur are a club drifting - who is going to take control?**\
 `Ange Postecoglou needs new player to save the season - Tottenham can't just wait for injured players to return`\
 https://nytimes.com/athletic/6061187/2025/01/20/spurs-everton-postecoglou-levy/
-
-**The return of the 'Welsh wall' could soften potential Pascal Struijk blow**\
-`Ampadu was man of the match in Leeds' win over Sheffield Wednesday – could history be about to repeat itself?`\
-https://nytimes.com/athletic/6073262/2025/01/20/leeds-sheffield-wednesday-ampadu/
 

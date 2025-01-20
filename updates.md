@@ -1,3 +1,7 @@
+**How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
+`Given Savinho’s form in recent weeks, you would have been forgiven for thinking the 20-year-old was a nailed-on starter to play on the left side of Pep Guardiola’s attack against Ipswich Town on Sunday afternoon.`\
+https://nytimes.com/athletic/6074085/2025/01/20/how-man-city-used-brilliant-doku-to-dominate-the-left-flank-against-ipswich/
+
 **'Let’s see who’s better': Bills' defense heard the haters, used motivation to upend Ravens**\
 `The defense peppered the game with big plays that set up the offense.`\
 https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-video-motivation/
