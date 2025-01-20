@@ -1,3 +1,15 @@
+**Scenes of Elation as Hostages Released, but the Path Ahead Is Uncertain**\
+`Doctors at Sheba Medical Center said the three women are in stable condition, but little is known about what the former captives went through in Gaza.`\
+https://nytimes.com/2025/01/20/world/middleeast/israel-gaza-hostages.html
+
+**Here’s the latest.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/overview
+
+**Airborne Lead and Chlorine Levels Soared as L.A. Wildfires Raged**\
+`The findings give new insight into the dangers of urban wildfires that burn plastics and other chemicals in homes and property.`\
+https://nytimes.com/2025/01/20/climate/los-angeles-wildfires-lead-chlorine-air-quality.html
+
 **Trump to Release Records on the Assassinations of the Kennedys and Martin Luther King**\
 `The president-elect said the move was aimed at improving government transparency.`\
 https://nytimes.com/2025/01/20/us/politics/trump-kennedy-mlk-assassinations-records-release.html
