@@ -1,3 +1,7 @@
+**This Quick Noodle Soup Is Vivid in Every Sense of the Word**\
+`This creamy butternut squash and coconut noodle soup from Christian Reynoso boasts an incredible color and a perfectly calibrated sour-spicy tang.`\
+https://nytimes.com/2025/01/20/dining/quick-noodle-soup.html
+
 **Trump Takes Office as a Newly Minted Crypto Billionaire**\
 `The Trump family’s new crypto tokens, which went on sale over the weekend, have soared in value — along with crypto markets in general.`\
 https://nytimes.com/2025/01/20/business/trump-memcoins-crypto.html

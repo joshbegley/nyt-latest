@@ -1,3 +1,7 @@
+**This Quick Noodle Soup Is Vivid in Every Sense of the Word**\
+`This creamy butternut squash and coconut noodle soup from Christian Reynoso boasts an incredible color and a perfectly calibrated sour-spicy tang.`\
+https://nytimes.com/2025/01/20/dining/quick-noodle-soup.html
+
 **Trump Takes Office as a Newly Minted Crypto Billionaire**\
 `The Trump family’s new crypto tokens, which went on sale over the weekend, have soared in value — along with crypto markets in general.`\
 https://nytimes.com/2025/01/20/business/trump-memcoins-crypto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-inauguration-singers.html
 **At Least 80 Dead Amid a New Surge of Violence in Colombia**\
 `Thousands have fled clashes between armed groups on the border with Venezuela, dashing hopes of peace in Colombia.`\
 https://nytimes.com/2025/01/20/world/americas/colombia-catatumbo-rebel-violence.html
-
-**‘Starry Night,’ All Night Long, as a Van Gogh Blockbuster Ends**\
-`The National Gallery in London stayed open all night for die-hard fans of the Dutch painter. “Midnight offers more room for reflection,” one attendee said.`\
-https://nytimes.com/2025/01/20/arts/design/van-gogh-national-gallery-all-nighter.html
 
