@@ -1,3 +1,15 @@
+**Trump Plans to Order U.S. Exit From World’s Main Climate Pact**\
+`The United States would be one of only four countries outside the Paris Agreement, which is designed to reduce global greenhouse gas emissions.`\
+https://nytimes.com/2025/01/20/climate/trump-paris-agreement-climate.html
+
+**For Trump, a Vindication for the Man and His Movement**\
+`Donald John Trump took the oath of office again during a ceremony in the Capitol, promising a new “golden age of America” four years after he was evicted by voters.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration.html
+
+**Dan Campbell owns up to whole team loss, plus possible Lions coordinator candidates**\
+`There are several internal possibilities if Aaron Glenn and Ben Johnson leave for head coaching jobs.`\
+https://nytimes.com/athletic/6075784/2025/01/20/lions-loss-dan-campbell-coordinator-candidates/
+
 **Liverpool's attacking variety and Tottenham's flimsy house of cards**\
 `Liverpool's variety of attacking options has flipped an old adage on its head`\
 https://nytimes.com/athletic/6075697/2025/01/20/the-totally-football-show-nunez-tottenham-everton/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-shuts-down-migrant-entry-app-cb
 **The Line in Trump’s Speech That Will Echo in Time**\
 `The niceties of Donald Trump’s first speech as president couldn’t mask the darkness within — or the way he views his mission now.`\
 https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html
-
-**Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
-`DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
-https://nytimes.com/athletic/6075833/2025/01/20/donte-divincenzo-injury-timberwolves/
-
-**Jayden Daniels' impressive rookie season and what next for the Ravens?**\
-`“Jayden Daniels is in the conversation for the best rookie quarterback I have seen."`\
-https://nytimes.com/athletic/6075339/2025/01/20/the-athletic-football-show-divisional-round-recap/
-
-**AP men's basketball Top 25: Auburn and Duke hold top spots**\
-`Michigan State jumped four spots in the poll while Houston jumped three spots to move well within the top 10`\
-https://nytimes.com/athletic/6075340/2025/01/20/ap-mens-basketball-top-25-poll-auburn-duke-michigan-state/
 

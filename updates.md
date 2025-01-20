@@ -1,3 +1,15 @@
+**Trump Plans to Order U.S. Exit From World’s Main Climate Pact**\
+`The United States would be one of only four countries outside the Paris Agreement, which is designed to reduce global greenhouse gas emissions.`\
+https://nytimes.com/2025/01/20/climate/trump-paris-agreement-climate.html
+
+**For Trump, a Vindication for the Man and His Movement**\
+`Donald John Trump took the oath of office again during a ceremony in the Capitol, promising a new “golden age of America” four years after he was evicted by voters.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration.html
+
+**Dan Campbell owns up to whole team loss, plus possible Lions coordinator candidates**\
+`There are several internal possibilities if Aaron Glenn and Ben Johnson leave for head coaching jobs.`\
+https://nytimes.com/athletic/6075784/2025/01/20/lions-loss-dan-campbell-coordinator-candidates/
+
 **Liverpool's attacking variety and Tottenham's flimsy house of cards**\
 `Liverpool's variety of attacking options has flipped an old adage on its head`\
 https://nytimes.com/athletic/6075697/2025/01/20/the-totally-football-show-nunez-tottenham-everton/
