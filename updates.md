@@ -1,3 +1,15 @@
+**Explaining why left-footed centre-back pairings have been a rarity - and why that might be changing**\
+`It feels strange to see two left-footers in the middle of defence but it is common with right-footers. Why?`\
+https://nytimes.com/athletic/6064639/2025/01/20/left-footed-centre-back-pairings-change/
+
+**In victory over Rams, Eagles outran their passing-game problems for one more day**\
+`Explosive runs and another dominating performance from the defense propelled the Eagles to the NFC title game.`\
+https://nytimes.com/athletic/6073590/2025/01/20/eagles-rams-score-jalen-hurts-offense-struggles/
+
+**Battle of the benches: Watching Arsenal vs Villa through the theatre of Jover vs MacPhee**\
+`Villa and Arsenal have two of the Premier League's most well-known set-piece coaches - we watched their touchline theatre play out.`\
+https://nytimes.com/athletic/6071639/2025/01/20/aston-villa-set-pieces-arsenal/
+
 **Quote of the Day: Wagner Waits and Hopes Voters Don’t Close Out His Hall Candidacy**\
 `Quotation of the Day for Monday, January 20, 2025.`\
 https://nytimes.com/2025/01/20/pageoneplus/quote-of-the-day-wagner-waits-and-hopes-voters-dont-close-out-his-hall-candidacy.html
