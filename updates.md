@@ -1,3 +1,11 @@
+**Officer Beaten by the Jan. 6 Mob on Is On Duty Again, This Time to Protect Trump**\
+`Officer Daniel Hodges said he had come to grips with the idea that his professional duty now required him to protect a man whose supporters beat him, kicked him and tried to gouge his eyes out in 2021.`\
+https://nytimes.com/2025/01/20/us/politics/officer-jan-6-trump-protection.html
+
+**Cecile Richards, Former Planned Parenthood President, Dies at 67**\
+`Ms. Richards oversaw the United States’ largest provider of reproductive health care and sex education from 2006 to 2018.`\
+https://nytimes.com/2025/01/20/us/cecile-richards-dead-planned-parenthood.html
+
 **Food and other vital aid surges into Gaza after 15 months of hunger and scarcity.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/food-and-other-vital-aid-surges-into-gaza-after-15-months-of-hunger-and-scarcity

@@ -1,3 +1,11 @@
+**Officer Beaten by the Jan. 6 Mob on Is On Duty Again, This Time to Protect Trump**\
+`Officer Daniel Hodges said he had come to grips with the idea that his professional duty now required him to protect a man whose supporters beat him, kicked him and tried to gouge his eyes out in 2021.`\
+https://nytimes.com/2025/01/20/us/politics/officer-jan-6-trump-protection.html
+
+**Cecile Richards, Former Planned Parenthood President, Dies at 67**\
+`Ms. Richards oversaw the United States’ largest provider of reproductive health care and sex education from 2006 to 2018.`\
+https://nytimes.com/2025/01/20/us/cecile-richards-dead-planned-parenthood.html
+
 **Food and other vital aid surges into Gaza after 15 months of hunger and scarcity.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/food-and-other-vital-aid-surges-into-gaza-after-15-months-of-hunger-and-scarcity
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/business/trump-memcoins-crypto.html
 **Religious leaders of different faiths are set to lead inaugural prayers.**\
 `By Elizabeth Dias`\
 https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/religious-leaders-of-different-faiths-are-set-to-lead-inaugural-prayers
-
-**Mother of Missing U.S. Journalist Asks Syria’s New Leaders for Help**\
-`Debra Tice, whose son Austin was abducted near Damascus in 2012, said the rebel group that toppled the Assad regime promised support in helping to find him.`\
-https://nytimes.com/2025/01/20/world/middleeast/syria-austin-tice-mother.html
-
-**West Ham submit £57m offer to sign Villa striker Duran**\
-`West Ham United have submitted an offer worth £57million ($70m) to sign Aston Villa striker Jhon Duran.`\
-https://nytimes.com/athletic/6075345/2025/01/20/west-ham-transfers-jhon-duran-aston-villa/
 
