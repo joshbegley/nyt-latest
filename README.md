@@ -1,3 +1,7 @@
+**Elon Musk’s Hand Gestures During Speech Draw Speculation**\
+`Elon Musk made two hand gestures during a speech at an event celebrating President Trump’s inauguration that drew comparisons online to the “Fascist salute.”`\
+https://nytimes.com/video/us/elections/100000009938558/trump-inauguration-elon-musk.html
+
 **Better goaltending, better structure: Flyers confident in their game ahead of vital stretch**\
 `After a rough start to the season in net, the Flyers are on a 4-0-1 run backed by confidence and dedication.`\
 https://nytimes.com/athletic/6075948/2025/01/20/flyers-goaltending-ersson-structure-seeler/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/world/middleeast/gaza-israel-cease-fire.html
 **The Briefing: Chelsea 3-1 Wolves - winless run ends, Chalobah's return and Jackson's lack of goals**\
 `Simon Johnson analyses the key talking points from Chelsea's hard-fought win over Wolves`\
 https://nytimes.com/athletic/6071740/2025/01/20/chelsea-wolves-analysis/
-
-**MSNBC Mourns and Fox Makes Merry as Trump Season 2 Premieres**\
-`The inaugural’s pageantry was interpreted in sharply different ways across the media spectrum. Podcasters weighed in, too.`\
-https://nytimes.com/2025/01/20/business/media/media-msnbc-fox-news-inaugural.html
 
