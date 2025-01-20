@@ -1,3 +1,7 @@
+**Israel tells its military to prevent West Bank celebrations for released Palestinians.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/israel-tells-its-military-to-prevent-west-bank-celebrations-for-released-palestinians
+
 **After no Biden appointee agreed to take the job, Pentagon taps midlevel official as acting defense secretary.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/after-no-biden-appointee-agreed-to-take-the-job-pentagon-taps-midlevel-official-as-acting-defense-secretary
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075784/2025/01/20/lions-loss-dan-campbell-coordina
 **Liverpool's attacking variety and Tottenham's flimsy house of cards**\
 `Liverpool's variety of attacking options has flipped an old adage on its head`\
 https://nytimes.com/athletic/6075697/2025/01/20/the-totally-football-show-nunez-tottenham-everton/
-
-**‘We will be stranded.’ Migrants shocked after Trump cancels border appointments.**\
-`In Tijuana, migrants who had scheduled meetings to plead their cases at U.S. ports of entry were devastated to learn the new administration had canceled those appointments and the program that facilitated them.`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/migrants-cbpone-appointments-mexico
 
