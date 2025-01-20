@@ -1,3 +1,7 @@
+**Here’s the latest on the cease-fire.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/heres-the-latest-on-the-cease-fire
+
 **'This one is going to hurt for a while': Ravens again fail to get it done on playoff stage**\
 `The painful loss to Buffalo was an all-too-familiar feeling for a Baltimore team that thought it was peaking at the right time. `\
 https://nytimes.com/athletic/6074535/2025/01/20/ravens-playoff-loss-bills-afc-divisional-round/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-r
 **How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
 `Doku received full praise from his manager after having a hand in each of City’s first five goals, including scoring their fourth`\
 https://nytimes.com/athletic/6074085/2025/01/20/man-city-brilliant-doku-left-ipswich/
-
-**'Let’s see who’s better': Bills' defense heard the haters, used motivation to upend Ravens**\
-`The defense peppered the game with big plays that set up the offense.`\
-https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-video-motivation/
 
