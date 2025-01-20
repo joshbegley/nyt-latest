@@ -26,8 +26,8 @@ https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/a-father-and-s
 `By Jonathan Swan and Maggie Haberman`\
 https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-aims-for-a-show-of-strength-as-he-returns-to-power
 
-**Trial Begins of Suspect in Fatal Stabbing Attack at U.K. Dance Class**\
-`Axel Rudakubana is accused of the murder of three girls and the attempted murder of 10 other people at a Taylor Swift-themed class in Southport, England, last July.`\
+**Suspect in Fatal Stabbing Attack at U.K. Dance Class Pleads Guilty to Murder**\
+`Axel Rudakubana admitted to the murder of three girls and the attempted murder of 10 other people at a Taylor Swift-themed class in Southport, England, last July, as well as three additional charges.`\
 https://nytimes.com/2025/01/20/world/europe/trial-southport-stabbings-uk-axel-rudakubana.html
 
 **Mike McCarthy, Ben Johnson or the field? The Bears' coaching search is about to intensify**\
