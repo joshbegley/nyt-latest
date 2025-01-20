@@ -1,3 +1,7 @@
+**A Closer Look at Who Attended President Donald J. Trump’s Second Inauguration**\
+`Former presidents, members of Congress, and tech C.E.O.s were among those present to witness Mr. Trump take the oath of office.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/trump-inauguration-attendees.html
+
 **Israel tells its military to prevent West Bank celebrations for released Palestinians.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/israel-tells-its-military-to-prevent-west-bank-celebrations-for-released-palestinians

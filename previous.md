@@ -1,3 +1,7 @@
+**A Closer Look at Who Attended President Donald J. Trump’s Second Inauguration**\
+`Former presidents, members of Congress, and tech C.E.O.s were among those present to witness Mr. Trump take the oath of office.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/trump-inauguration-attendees.html
+
 **Israel tells its military to prevent West Bank celebrations for released Palestinians.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/israel-tells-its-military-to-prevent-west-bank-celebrations-for-released-palestinians
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-inauguration.html
 **Dan Campbell owns up to whole team loss, plus possible Lions coordinator candidates**\
 `There are several internal possibilities if Aaron Glenn and Ben Johnson leave for head coaching jobs.`\
 https://nytimes.com/athletic/6075784/2025/01/20/lions-loss-dan-campbell-coordinator-candidates/
-
-**Liverpool's attacking variety and Tottenham's flimsy house of cards**\
-`Liverpool's variety of attacking options has flipped an old adage on its head`\
-https://nytimes.com/athletic/6075697/2025/01/20/the-totally-football-show-nunez-tottenham-everton/
 
