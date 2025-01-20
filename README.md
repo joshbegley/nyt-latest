@@ -1,3 +1,11 @@
+**Quote of the Day: Wagner Waits and Hopes Voters Don’t Close Out His Hall Candidacy**\
+`Quotation of the Day for Monday, January 20, 2025.`\
+https://nytimes.com/2025/01/20/pageoneplus/quote-of-the-day-wagner-waits-and-hopes-voters-dont-close-out-his-hall-candidacy.html
+
+**TikTok, RedNote and the Crushed Promise of the Chinese Internet**\
+`China’s internet companies and their hard-working, resourceful professionals make world-class products, in spite of censorship and malign neglect by Beijing.`\
+https://nytimes.com/2025/01/20/business/tiktok-red-note-china-internet.html
+
 **How the Eagles leaned into their identity — and Saquon Barkley — to reach NFC title game**\
 `Philadelphia opened the season 2-2. Players say a Week 5 bye sparked a change that has them just one win shy of another Super Bowl trip.`\
 https://nytimes.com/athletic/6074318/2025/01/19/eagles-saquon-barkley-nfc-divisional-win/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6073512/2025/01/19/nfl-super-bowl-playoff-chances-c
 **At Trump’s Rally, the Contradictions Are in the Music**\
 `The president-elect danced along with Village People as his rally closed with a live performance of “Y.M.C.A.,” after Kid Rock and Lee Greenwood played.`\
 https://nytimes.com/2025/01/19/arts/music/trump-village-people-kid-rock.html
-
-**Sepp Straka cruises to 2-shot win at The American Express**\
-`Straka played with his first 54-hole lead on the PGA Tour on Sunday, and he managed to maintain control of the tournament until the end.`\
-https://nytimes.com/athletic/6074191/2025/01/19/sepp-straka-american-express-pga-tour/
-
-**Lions process stunning season-ending loss, focus on offseason during locker room cleanout**\
-`Plus, rookies reflect on their first seasons in the NFL.`\
-https://nytimes.com/athletic/6074145/2025/01/19/lions-locker-room-cleanout-offseason-outlook/
 
