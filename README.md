@@ -1,3 +1,7 @@
+**Real Madrid 4-1 Las Palmas: Mbappe the 'best centre-forward in the world'**\
+`The Athletic dissects the key talking points from a win that took Real Madrid top of La Liga`\
+https://nytimes.com/athletic/6073859/2025/01/20/real-madrid-mbappe-las-palmas-result/
+
 **Big Banks Quit Climate Change Groups Ahead of Trump’s Term**\
 `Several large U.S. financial institutions, including the Federal Reserve, have withdrawn from the networks after years of growing political and legal pressure.`\
 https://nytimes.com/2025/01/20/business/trump-climate-action-banks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-v
 **‘Prime Target,’ Plus 7 Things to Watch on TV This Week**\
 `The new Apple TV+ series stars Leo Woodall as a math genius, and President-elect Donald J. Trump is inaugurated for his second term.`\
 https://nytimes.com/2025/01/20/arts/television/prime-target-plus-7-things-to-watch-on-tv-this-week.html
-
-**This Day Calls for Martin Luther King’s Vision**\
-`The troubled times many of us feel we are in make his message especially relevant.`\
-https://nytimes.com/2025/01/20/opinion/martin-luther-king-trump.html
 
