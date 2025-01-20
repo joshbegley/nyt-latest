@@ -1,3 +1,7 @@
+**Eric Adams to Attend Inauguration After Invite From Trump**\
+`Mayor Eric Adams will attend Donald J. Trump’s inauguration after a last-minute invite. Mr. Trump has said he is considering offering Mr. Adams a pardon in his federal corruption case.`\
+https://nytimes.com/2025/01/20/nyregion/adams-trump-inauguration.html
+
 **Here’s the latest.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders-new/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/defiance-is-
 **Jets' plan at centre, the stats behind Comrie's record, Ehlers' future: Mailbag, part 1**\
 `What's the likely outcome for Nikolaj Ehlers, and why doesn't Eric Comrie get run support?`\
 https://nytimes.com/athletic/6071929/2025/01/20/winnipeg-jets-nhl-nikolaj-ehlers-eric-comrie/
-
-**Men's college basketball Top 25: Lessons from a week of upsets, thrillers**\
-`The teams that made up last Monday's AP Top 25 combined for 22 losses over the ensuing week.`\
-https://nytimes.com/athletic/6074630/2025/01/20/mens-college-basketball-top-25-houston-alabama/
 

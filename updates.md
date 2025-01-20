@@ -1,3 +1,7 @@
+**Eric Adams to Attend Inauguration After Invite From Trump**\
+`Mayor Eric Adams will attend Donald J. Trump’s inauguration after a last-minute invite. Mr. Trump has said he is considering offering Mr. Adams a pardon in his federal corruption case.`\
+https://nytimes.com/2025/01/20/nyregion/adams-trump-inauguration.html
+
 **Here’s the latest.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders-new/heres-the-latest
