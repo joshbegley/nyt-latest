@@ -1,3 +1,15 @@
+**Inauguration Draws Leaders From Europe’s Right**\
+`Many of the European politicians expected to be in Washington on Monday share President-elect Donald J. Trump’s anti-immigrant stance.`\
+https://nytimes.com/2025/01/20/us/politics/inauguration-draws-leaders-from-europes-right.html
+
+**Previously released hostages have described harrowing experiences in captivity.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/previously-released-hostages-have-described-harrowing-experiences-in-captivity
+
+**The Trump Changes Begin**\
+`We cover the start of Donald Trump’s second term.`\
+https://nytimes.com/2025/01/20/briefing/donald-trump-inauguration.html
+
 **A father and son return to their Gaza neighborhood to find their home destroyed.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/a-father-and-son-return-to-their-gaza-neighborhood-to-find-their-home-destroyed

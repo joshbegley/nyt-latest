@@ -1,3 +1,15 @@
+**Inauguration Draws Leaders From Europe’s Right**\
+`Many of the European politicians expected to be in Washington on Monday share President-elect Donald J. Trump’s anti-immigrant stance.`\
+https://nytimes.com/2025/01/20/us/politics/inauguration-draws-leaders-from-europes-right.html
+
+**Previously released hostages have described harrowing experiences in captivity.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/previously-released-hostages-have-described-harrowing-experiences-in-captivity
+
+**The Trump Changes Begin**\
+`We cover the start of Donald Trump’s second term.`\
+https://nytimes.com/2025/01/20/briefing/donald-trump-inauguration.html
+
 **A father and son return to their Gaza neighborhood to find their home destroyed.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/a-father-and-son-return-to-their-gaza-neighborhood-to-find-their-home-destroyed
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6074753/2025/01/20/lamar-jackson-legacy-playoffs-bi
 **Sick of Patrick Mahomes drawing penalties? You're hardly the only one**\
 `No, the refs aren't rigging games for the Chiefs, but Mahomes is clearly manipulating the league's QB-friendly rules.`\
 https://nytimes.com/athletic/6074720/2025/01/20/patrick-mahomes-refs-penalties-chiefs/
-
-**Can Dan Campbell evolve? The Lions' future hopes might depend on it**\
-`Campbell has built his philosophy in Detroit on aggressiveness, but does he need to find a different gear in the playoffs?`\
-https://nytimes.com/athletic/6074756/2025/01/20/dan-campbell-lions-playoffs-aggressiveness/
-
-**With shades of Magic, Jayden Daniels steals spotlight on wild NFL weekend: Sando’s Pick Six**\
-`No rookie QB has ever lifted his team like Daniels, prompting a cross-sport comparison. Plus, Mahomes and the refs, Lamar's legacy and more.`\
-https://nytimes.com/athletic/6040110/2025/01/20/jayden-daniels-magic-johnson-commanders-kliff-kingsbury/
-
-**How the Red Wings' top prospects are trending in Grand Rapids**\
-`An update on five top Red Wings prospects after a trip to Grand Rapids.`\
-https://nytimes.com/athletic/6073681/2025/01/20/red-wings-prospects-update-grand-rapids/
 
