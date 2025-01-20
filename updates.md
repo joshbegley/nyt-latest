@@ -1,3 +1,7 @@
+**Real Madrid 4-1 Las Palmas: Mbappe the 'best centre-forward in the world'**\
+`The Athletic dissects the key talking points from a win that took Real Madrid top of La Liga`\
+https://nytimes.com/athletic/6073859/2025/01/20/real-madrid-mbappe-las-palmas-result/
+
 **Big Banks Quit Climate Change Groups Ahead of Trump’s Term**\
 `Several large U.S. financial institutions, including the Federal Reserve, have withdrawn from the networks after years of growing political and legal pressure.`\
 https://nytimes.com/2025/01/20/business/trump-climate-action-banks.html
