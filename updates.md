@@ -1,3 +1,7 @@
+**How would Kyle Kuzma react if a team wants to trade for him? His answer: 'I don't know'**\
+`Last year, the Wizards' forward didn't want to be traded. This year, his answer might be different.`\
+https://nytimes.com/athletic/6074668/2025/01/20/kyle-kuzma-potential-trade/
+
 **Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
 `Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, every ounce of energy is on the task at hand`\
 https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/

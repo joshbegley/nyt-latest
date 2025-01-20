@@ -1,3 +1,7 @@
+**How would Kyle Kuzma react if a team wants to trade for him? His answer: 'I don't know'**\
+`Last year, the Wizards' forward didn't want to be traded. This year, his answer might be different.`\
+https://nytimes.com/athletic/6074668/2025/01/20/kyle-kuzma-potential-trade/
+
 **In NASCAR, a TikTok ban would have ramifications for a sponsor-reliant sport**\
 `TikTok is a popular platform for drivers to build a following and make a case they're worth the sponsor money that is so vital to the sport.`\
 https://nytimes.com/athletic/6073386/2025/01/20/nascar-tiktok-ban-drivers-sponsors-ryan-vargas/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan
 **Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
 `Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, every ounce of energy is on the task at hand`\
 https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
-
-**FPL: What we learned from Gameweek 22 - target Bournemouth plus Saliba, Solanke worries**\
-`Abdul Rehman breaks down the main FPL talking points from Gameweek 22 so far`\
-https://nytimes.com/athletic/6073933/2025/01/20/fantasy-premier-league-what-we-learned-from-gameweek-22-buy-bournemouth-and-saliba-and-solanke-worries/
 
