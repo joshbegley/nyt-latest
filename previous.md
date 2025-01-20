@@ -1,3 +1,7 @@
+**Trump Agenda Heralds an Economic Experiment for the U.S.**\
+`Tariffs and tax cuts amid high interest rates and lingering inflation will pose a test for the U.S. economy.`\
+https://nytimes.com/2025/01/20/us/politics/trump-agenda-heralds-an-economic-experiment-for-the-us.html
+
 **Paul Abbate Retires as F.B.I. Acting Director After Wray Departs**\
 `A veteran of the bureau, Mr. Abbate has served as deputy director since early 2021 and took the helm from Christopher A. Wray as the agency faces an uncertain future.`\
 https://nytimes.com/2025/01/20/us/politics/paul-abbate-fbi-director.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073302/2025/01/20/connor-mcdavid-oilers-conor-garl
 **Tuchel contacts players ahead of first England squad selection**\
 `England head coach Thomas Tuchel has begun contacting players ahead of naming his first squad since taking charge of the national team.`\
 https://nytimes.com/athletic/6075015/2025/01/20/thomas-tuchel-england-squad/
-
-**Is this really 'the worst team in the history of Manchester United'?**\
-`Ruben Amorim is right to highlight how bad his team are - but the history books show United have fielded inferior sides in the past`\
-https://nytimes.com/athletic/6075006/2025/01/20/worst-manchester-united-team-ever/
 

@@ -1,3 +1,7 @@
+**Trump Agenda Heralds an Economic Experiment for the U.S.**\
+`Tariffs and tax cuts amid high interest rates and lingering inflation will pose a test for the U.S. economy.`\
+https://nytimes.com/2025/01/20/us/politics/trump-agenda-heralds-an-economic-experiment-for-the-us.html
+
 **Paul Abbate Retires as F.B.I. Acting Director After Wray Departs**\
 `A veteran of the bureau, Mr. Abbate has served as deputy director since early 2021 and took the helm from Christopher A. Wray as the agency faces an uncertain future.`\
 https://nytimes.com/2025/01/20/us/politics/paul-abbate-fbi-director.html
