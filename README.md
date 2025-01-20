@@ -1,3 +1,7 @@
+**How should the final AP poll react to the 12-team Playoff's results?**\
+`Even with a 12-team College Football Playoff, who’s No. 3 at the end of the season still matters. So does No. 13. And No. 18. And No. 25.`\
+https://nytimes.com/athletic/6073973/2025/01/20/college-football-playoff-ap-poll-rankings/
+
 **Here’s the latest on the cease-fire.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/heres-the-latest-on-the-cease-fire
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-in
 **Madison Keys knocks No. 6 seed Elena Rybakina out of Australian Open**\
 `The No. 6 seed missed multiple break points to seize the advantage in the third set and Keys profited to move into the quarterfinals.`\
 https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
-
-**How Man City used 'brilliant' Doku to dominate the left flank against Ipswich**\
-`Doku received full praise from his manager after having a hand in each of City’s first five goals, including scoring their fourth`\
-https://nytimes.com/athletic/6074085/2025/01/20/man-city-brilliant-doku-left-ipswich/
 
