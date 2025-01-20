@@ -1,3 +1,15 @@
+**The Debate Over Trump’s Favorite Word Needs a Reset**\
+`Are tariffs good or bad policy? The answer is less simple than you might think.`\
+https://nytimes.com/2025/01/20/opinion/trump-tariffs-trade.html
+
+**Scoop City: Pivotal, underappreciated plays from the divisional round**\
+`What a weekend.`\
+https://nytimes.com/athletic/6075863/2025/01/20/divisional-round-nfl-key-plays-jayden-daniels-scoop-city/
+
+**Trump Cites His Own Victories as Sign He Will Lift a Country in ‘Decline’**\
+`In his second Inaugural Address, the president reprised dark themes from his first and laid out an expansive policy agenda.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inaugural-address.html
+
 **Trump Plans to Order U.S. Exit From World’s Main Climate Pact**\
 `The United States would be one of only four countries outside the Paris Agreement, which is designed to reduce global greenhouse gas emissions.`\
 https://nytimes.com/2025/01/20/climate/trump-paris-agreement-climate.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6075828/2025/01/20/lions-dan-campbell-ben-johnson-a
 **Nonprofit Groups Sue Trump Administration Moments After Oath**\
 `Their lawsuits said the so-called Department of Government Efficiency, President Trump’s cost-cutting operation, violated a law requiring federal advisory committees to include a balance of views.`\
 https://nytimes.com/2025/01/20/us/politics/doge-sued-elon-musk-trump.html
-
-**As dangerous winds resume, L.A. officials say they are prepared.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2025/01/20/us/los-angeles-fires-california/winds-return
-
-**Trump Shuts Down Migrant Entry App, Signaling the Start of His Crackdown**\
-`The president moved quickly to cancel the CPB One app, which allowed migrants to schedule appointments to gain entry into the United States, turning away potentially tens of thousands of migrants.`\
-https://nytimes.com/2025/01/20/us/politics/trump-shuts-down-migrant-entry-app-cbp-one.html
-
-**The Line in Trump’s Speech That Will Echo in Time**\
-`The niceties of Donald Trump’s first speech as president couldn’t mask the darkness within — or the way he views his mission now.`\
-https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html
 
