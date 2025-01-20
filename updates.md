@@ -1,3 +1,7 @@
+**Here Are Trump’s Expected Executive Orders**\
+`The incoming president’s team said he would take unilateral action on a variety of fronts during his first hours in office, including 10 executive orders cracking down on immigration and immigrants.`\
+https://nytimes.com/2025/01/20/us/politics/trump-executive-orders-list.html
+
 **West Bank settlers attack Palestinian villages, angry about prisoner releases.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/west-bank-settlers-attack-palestinian-villages-angry-about-prisoner-releases

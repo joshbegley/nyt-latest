@@ -1,3 +1,7 @@
+**Here Are Trump’s Expected Executive Orders**\
+`The incoming president’s team said he would take unilateral action on a variety of fronts during his first hours in office, including 10 executive orders cracking down on immigration and immigrants.`\
+https://nytimes.com/2025/01/20/us/politics/trump-executive-orders-list.html
+
 **West Bank settlers attack Palestinian villages, angry about prisoner releases.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/west-bank-settlers-attack-palestinian-villages-angry-about-prisoner-releases
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074693/2025/01/20/clipper-lakers-rivalry-lebron-ja
 **Trump is set to take office with some important work already done.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-is-set-to-take-office-with-some-important-work-already-done
-
-**Eric Adams to Attend Inauguration After Invite From Trump**\
-`Mayor Eric Adams will attend Donald J. Trump’s inauguration after a last-minute invite. Mr. Trump has said he is considering offering Mr. Adams a pardon in his federal corruption case.`\
-https://nytimes.com/2025/01/20/nyregion/adams-trump-inauguration.html
 
