@@ -1,3 +1,11 @@
+**Portrait of General Milley Is Removed From Pentagon**\
+`The decision was an early salvo by the new administration against a military that President Trump has assailed for a variety of perceived offenses.`\
+https://nytimes.com/2025/01/20/us/politics/general-mark-milley-portrait.html
+
+**On a Quiet U.S.-Mexico Border, a Feeling of Disquieted Anticipation**\
+`Law enforcement officials and migrants on the U.S.-Mexico border were not sure what might come next, now that President Trump is back.`\
+https://nytimes.com/2025/01/20/us/politics/us-mexico-border-trump.html
+
 **Portrait of General Milley Removed Is From Pentagon**\
 `The decision was an early salvo by the new administration against a military that President Trump has assailed for a variety of perceived offenses.`\
 https://nytimes.com/2025/01/20/us/politics/general-mark-milley-portrait.html

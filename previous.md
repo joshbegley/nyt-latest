@@ -1,10 +1,10 @@
-**Portrait of General Milley Removed Is From Pentagon**\
+**Portrait of General Milley Is Removed From Pentagon**\
 `The decision was an early salvo by the new administration against a military that President Trump has assailed for a variety of perceived offenses.`\
 https://nytimes.com/2025/01/20/us/politics/general-mark-milley-portrait.html
 
 **On a Quiet U.S.-Mexico Border, a Feeling of Disquieted Anticipation**\
 `Law enforcement officials and migrants on the U.S.-Mexico border were not sure what might come next, now that President Trump is back.`\
-https://nytimes.com/2025/01/20/us/politics/on-a-quiet-us-mexico-border-a-feeling-of-disquieted-anticipation.html
+https://nytimes.com/2025/01/20/us/politics/us-mexico-border-trump.html
 
 **Donald Trump’s Second Inaugural Speech, Annotated**\
 `In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
