@@ -1,3 +1,11 @@
+**Biden pardoned Leonard Peltier, an Indigenous rights activist convicted in F.B.I. killings.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/biden-pardoned-leonard-peltier-an-indigenous-rights-activist-convicted-in-fbi-killings
+
+**Border Patrol Shooting Under Investigation in Vermont**\
+`State Police said the shooting happened on Interstate 91, but provided no additional details.`\
+https://nytimes.com/2025/01/20/us/border-patrol-shooting-vermont.html
+
 **Elon Musk’s Hand Gestures During Speech Draw Speculation**\
 `Elon Musk made two hand gestures during a speech at an event celebrating President Trump’s inauguration that drew comparisons online to the “Fascist salute.”`\
 https://nytimes.com/video/us/elections/100000009938558/trump-inauguration-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/ramaswamy-doge-ohio-governor.html
 **Cardinals' chairman Bill DeWitt Jr. addresses lowered payroll: 'It's a revenue game'**\
 `It is unclear how soon payroll will rise again. That timeline will be decided by gate revenue, television money and performance. `\
 https://nytimes.com/athletic/6075844/2025/01/20/cardinals-payroll-2025-ownership/
-
-**Gazans Return to Vast Destruction in Old Neighborhoods**\
-`Palestinians returning to parts of the enclave have been picking their way through vast piles of rubble and trying to salvage what they can.`\
-https://nytimes.com/2025/01/20/world/middleeast/gaza-israel-cease-fire.html
-
-**The Briefing: Chelsea 3-1 Wolves - winless run ends, Chalobah's return and Jackson's lack of goals**\
-`Simon Johnson analyses the key talking points from Chelsea's hard-fought win over Wolves`\
-https://nytimes.com/athletic/6071740/2025/01/20/chelsea-wolves-analysis/
 
