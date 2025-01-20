@@ -1,3 +1,7 @@
+**Greenberg: Bears got it right with Ben Johnson, bringing hope to Chicago at pivotal time**\
+`We don’t know whether Johnson will lead Caleb Williams and the Bears to great heights, but he feels like the right guy for a very big job.`\
+https://nytimes.com/athletic/6076348/2025/01/20/ben-johnson-chicago-bears-head-coach-hire/
+
 **Pereira critical of Cunha after Chelsea loss: 'I don't like his body language'**\
 `Wolverhampton Wanderers head coach Vitor Pereira has warned attacking talisman Matheus Cunha that his body language in Monday’s 3-1 defeat at Chelsea was unacceptable.`\
 https://nytimes.com/athletic/6076371/2025/01/20/matheus-cunha-wolves-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-
 **Pardoned Biden Family Members Were Targets of Republicans**\
 `The relatives who were granted clemency in the final minutes of Joseph R. Biden Jr.’s presidency had not been charged with wrongdoing, but some had drawn scrutiny.`\
 https://nytimes.com/2025/01/20/us/politics/pardoned-biden-family-members-were-targets-of-republicans.html
-
-**Armed Services Panel Rushes Through Hegseth Nomination Along Party Lines**\
-`Republicans moved in private over the objections of Democrats. A last-minute bid to delay the vote failed.`\
-https://nytimes.com/2025/01/20/us/hegseth-armed-services-senate.html
 

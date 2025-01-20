@@ -1,3 +1,7 @@
+**Greenberg: Bears got it right with Ben Johnson, bringing hope to Chicago at pivotal time**\
+`We don’t know whether Johnson will lead Caleb Williams and the Bears to great heights, but he feels like the right guy for a very big job.`\
+https://nytimes.com/athletic/6076348/2025/01/20/ben-johnson-chicago-bears-head-coach-hire/
+
 **Pereira critical of Cunha after Chelsea loss: 'I don't like his body language'**\
 `Wolverhampton Wanderers head coach Vitor Pereira has warned attacking talisman Matheus Cunha that his body language in Monday’s 3-1 defeat at Chelsea was unacceptable.`\
 https://nytimes.com/athletic/6076371/2025/01/20/matheus-cunha-wolves-chelsea/
