@@ -1,3 +1,11 @@
+**Trump Swears Oath Without His Hand on Bible, but He Wasn’t Required To**\
+`The tradition of swearing the oath of office on a Bible stretches back to George Washington, but not all presidents have observed it.`\
+https://nytimes.com/2025/01/20/us/politics/trump-hand-bible-oath.html
+
+**Scenes From Across an America Bracing Itself Against Brutal Winter Cold**\
+`An intense blast of arctic air blanketed the Mid-Atlantic and the Northeast with frigid temperatures, and a rare winter storm was expected along the Gulf Coast.`\
+https://nytimes.com/2025/01/20/weather/20polar-vortex-stack.html
+
 **Greenberg: Bears got it right with Ben Johnson, bringing hope to Chicago at pivotal time**\
 `We don’t know whether Johnson will lead Caleb Williams and the Bears to great heights, but he feels like the right guy for a very big job.`\
 https://nytimes.com/athletic/6076348/2025/01/20/ben-johnson-chicago-bears-head-coach-hire/

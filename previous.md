@@ -1,3 +1,11 @@
+**Trump Swears Oath Without His Hand on Bible, but He Wasn’t Required To**\
+`The tradition of swearing the oath of office on a Bible stretches back to George Washington, but not all presidents have observed it.`\
+https://nytimes.com/2025/01/20/us/politics/trump-hand-bible-oath.html
+
+**Scenes From Across an America Bracing Itself Against Brutal Winter Cold**\
+`An intense blast of arctic air blanketed the Mid-Atlantic and the Northeast with frigid temperatures, and a rare winter storm was expected along the Gulf Coast.`\
+https://nytimes.com/2025/01/20/weather/20polar-vortex-stack.html
+
 **Greenberg: Bears got it right with Ben Johnson, bringing hope to Chicago at pivotal time**\
 `We don’t know whether Johnson will lead Caleb Williams and the Bears to great heights, but he feels like the right guy for a very big job.`\
 https://nytimes.com/athletic/6076348/2025/01/20/ben-johnson-chicago-bears-head-coach-hire/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/science/contagious-peeing-chimps.html
 **Raiders turn page on coaching search after losing out to Bears on Ben Johnson**\
 `Johnson seemed like the Raiders' Plan A. Now, where will Mark Davis, Tom Brady and the franchise turn to find their new head coach?`\
 https://nytimes.com/athletic/6076312/2025/01/20/raiders-coaching-search-ben-johnson-bears/
-
-**‘Golden Age of America Begins,’ Trump Says at Inauguration**\
-`After being sworn in as the 47th president of the United States, Donald Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
-https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-ceremony.html
-
-**Pardoned Biden Family Members Were Targets of Republicans**\
-`The relatives who were granted clemency in the final minutes of Joseph R. Biden Jr.’s presidency had not been charged with wrongdoing, but some had drawn scrutiny.`\
-https://nytimes.com/2025/01/20/us/politics/pardoned-biden-family-members-were-targets-of-republicans.html
 
