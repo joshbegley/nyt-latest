@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6074191/2025/01/19/sepp-straka-american-express-pga
 `Plus, rookies reflect on their first seasons in the NFL.`\
 https://nytimes.com/athletic/6074145/2025/01/19/lions-locker-room-cleanout-offseason-outlook/
 
-**Claire van Kampen, Playwright and Arranger of Early Music World, Dies at 71**\
+**Claire van Kampen, 71, Playwright and Arranger of Early Music World, Dies**\
 `After she married Mark Rylance, the two often collaborated; her specialty was arranging music for Tudor-era plays. Then she wrote a period piece of her own.`\
 https://nytimes.com/2025/01/19/obituaries/claire-van-kampen-dead.html
 
