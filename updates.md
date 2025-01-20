@@ -1,3 +1,11 @@
+**Jannik Sinner wins topsy-turvy Australian Open match with Holger Rune after injury, net issues**\
+`MELBOURNE, Australia — Jannik Sinner is through to the Australian Open quarterfinals after a drama-filled fourth-round win over Holger Rune.`\
+https://nytimes.com/athletic/6074490/2025/01/20/jannik-sinner-australian-open-injury-holger-rune/
+
+**Madison Keys knocks No. 6 seed Elena Rybakina out of Australian Open**\
+`The No. 6 seed missed multiple break points to seize the advantage in the third set and Keys profited to move into the quarterfinals.`\
+https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
+
 **Madison Keys knocks No. 6 seed Elena Rybakina out of Australian Open**\
 `The No. 6 seed missed multiple break points to seize the advantage in the third-set and Keys profited to move into the quarterfinals.`\
 https://nytimes.com/athletic/6074548/2025/01/20/elena-rybakina-australian-open-result-madison-keys/
