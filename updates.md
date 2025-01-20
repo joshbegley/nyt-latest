@@ -1,3 +1,7 @@
+**Elon Musk’s Hand Gestures During Speech Draw Speculation**\
+`Elon Musk made two hand gestures during a speech at an event celebrating President Trump’s inauguration that drew comparisons online to the “Fascist salute.”`\
+https://nytimes.com/video/us/elections/100000009938558/trump-inauguration-elon-musk.html
+
 **Better goaltending, better structure: Flyers confident in their game ahead of vital stretch**\
 `After a rough start to the season in net, the Flyers are on a 4-0-1 run backed by confidence and dedication.`\
 https://nytimes.com/athletic/6075948/2025/01/20/flyers-goaltending-ersson-structure-seeler/
