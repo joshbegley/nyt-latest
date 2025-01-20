@@ -1,3 +1,7 @@
+**'This one is going to hurt for a while': Ravens again fail to get it done on playoff stage**\
+`The painful loss to Buffalo was an all-too-familiar feeling for a Baltimore team that thought it was peaking at the right time. `\
+https://nytimes.com/athletic/6074535/2025/01/20/ravens-playoff-loss-bills-afc-divisional-round/
+
 **'I was lucky today': Broken net helps Jannik Sinner during Holger Rune match**\
 `Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
 https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/

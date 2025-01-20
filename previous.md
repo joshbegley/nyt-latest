@@ -1,3 +1,7 @@
+**'This one is going to hurt for a while': Ravens again fail to get it done on playoff stage**\
+`The painful loss to Buffalo was an all-too-familiar feeling for a Baltimore team that thought it was peaking at the right time. `\
+https://nytimes.com/athletic/6074535/2025/01/20/ravens-playoff-loss-bills-afc-divisional-round/
+
 **Real Madrid 4-1 Las Palmas: Mbappe the 'best centre-forward in the world'**\
 `The Athletic dissects the key talking points from a win that took Real Madrid top of La Liga`\
 https://nytimes.com/athletic/6073859/2025/01/20/real-madrid-mbappe-las-palmas-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074085/2025/01/20/man-city-brilliant-doku-left-ips
 **'Let’s see who’s better': Bills' defense heard the haters, used motivation to upend Ravens**\
 `The defense peppered the game with big plays that set up the offense.`\
 https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-video-motivation/
-
-**‘Prime Target,’ Plus 7 Things to Watch on TV This Week**\
-`The new Apple TV+ series stars Leo Woodall as a math genius, and President-elect Donald J. Trump is inaugurated for his second term.`\
-https://nytimes.com/2025/01/20/arts/television/prime-target-plus-7-things-to-watch-on-tv-this-week.html
 
