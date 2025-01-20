@@ -1,3 +1,15 @@
+**Sepp Straka cruises to 2-shot win at The American Express**\
+`Straka played with his first 54-hole lead on the PGA Tour on Sunday, and he managed to maintain control of the tournament until the end.`\
+https://nytimes.com/athletic/6074191/2025/01/19/sepp-straka-american-express-pga-tour/
+
+**Lions process stunning season-ending loss, focus on offseason during locker room cleanout**\
+`Plus, rookies reflect on their first seasons in the NFL.`\
+https://nytimes.com/athletic/6074145/2025/01/19/lions-locker-room-cleanout-offseason-outlook/
+
+**Claire van Kampen, Playwright and Arranger of Early Music World, Dies at 71**\
+`After she married Mark Rylance, the two often collaborated; her specialty was arranging music for Tudor-era plays. Then she wrote a period piece of her own.`\
+https://nytimes.com/2025/01/19/obituaries/claire-van-kampen-dead.html
+
 **Fact-checking Trump’s rally the eve before his inauguration.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-rally
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6073644/2025/01/19/commanders-eagles-how-to-watch-o
 **Trump Vowed to End the Ukraine War Before Taking Office. The War Rages On.**\
 `Donald J. Trump’s promise to broker peace between Russia and Ukraine in 24 hours, “before I even become president,” proved to be hyperbole.`\
 https://nytimes.com/2025/01/19/us/politics/trump-promise-ending-ukraine-war.html
-
-**Gazans and Israelis Dare to Hope as Cease-Fire Takes Hold**\
-`After the fighting paused, Hamas began to free some of its hostages, releasing 3, and Israel said it had released 90 Palestinian prisoners.`\
-https://nytimes.com/2025/01/19/world/middleeast/gazans-and-israelis-dare-to-hope-as-cease-fire-takes-hold.html
-
-**Trump Faithful Descended on D.C., but Not Everyone Made It Onto a Yacht**\
-`The celebrations ahead of Donald J. Trump’s inauguration included passionate members of his base along with Trump-loving power brokers partying wildly all around them, but just out of reach.`\
-https://nytimes.com/2025/01/19/us/politics/trump-inauguration-dc.html
-
-**Manual for Consistency in Writing**\
-`Katie Byl and Jeff Chen make their collaboration debut.`\
-https://nytimes.com/2025/01/19/crosswords/daily-puzzle-2025-01-20.html
 
