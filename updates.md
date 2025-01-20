@@ -1,3 +1,11 @@
+**In NASCAR, a TikTok ban would have ramifications for a sponsor-reliant sport**\
+`TikTok is a popular platform for drivers to build a following and make a case they're worth the sponsor money that is so vital to the sport.`\
+https://nytimes.com/athletic/6073386/2025/01/20/nascar-tiktok-ban-drivers-sponsors-ryan-vargas/
+
+**WSL Briefing: City's Khiara Keating had costly errors in the Manchester derby. Can she bounce back?**\
+`Khiara Keating was thrust into the spotlight last season. Gareth Taylor must decide whether now is the time to take her out of it`\
+https://nytimes.com/athletic/6074200/2025/01/20/khiara-keating-manchester-city-derby-errors/
+
 **Defiance is out and deference is in as Trump returns to Washington.**\
 `By Peter Baker`\
 https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/defiance-is-out-and-deference-is-in-as-trump-returns-to-washington
