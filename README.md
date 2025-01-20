@@ -18,8 +18,8 @@ https://nytimes.com/2025/01/20/us/politics/biden-final-day.html
 `New administrations move quickly to replace the site, and Mr. Trump’s struck a starkly different tone from the message the Biden administration had offered.`\
 https://nytimes.com/2025/01/20/us/politics/white-house-website-trump.html
 
-**'Got to find a way to give him more minutes': Why Poitras' AHL days may be over**\
-`Matt Poitras' first stint up with Boston this season didn't go as he might have hoped. This time, he might have figured it out.`\
+**'Got to find a way to give him more minutes': Why Matt Poitras' AHL days might be over**\
+`Poitras' first stint up with Boston this season didn't go as he might have hoped. This time, he might have figured it out.`\
 https://nytimes.com/athletic/6076321/2025/01/20/bruins-matt-poitras-breakthrough-providence/
 
 **Biden pardoned Leonard Peltier, an Indigenous rights activist convicted in F.B.I. killings.**\
