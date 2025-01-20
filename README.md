@@ -1,3 +1,11 @@
+**Villa reach verbal agreement with Fenerbahce for Carlos transfer**\
+`Aston Villa have reached a verbal agreement with Fenerbahce for the sale of Diego Carlos.`\
+https://nytimes.com/athletic/6074942/2025/01/20/diego-carlos-fenerbahce-aston-villa-transfers/
+
+**Weekend NHL rankings: Connor McDavid's cross-check, an imminent trade and a goalie goal**\
+`It's been an eventful week in the NHL, from coast to coast and all over the ice to boot.`\
+https://nytimes.com/athletic/6073832/2025/01/20/nhl-weekend-rankings-mcdavid-canucks-goalie-goal/
+
 **TikTok Got a Reprieve, but Americans and Chinese Are Still on RedNote**\
 `The Chinese social media app, popular in the United States a week after being flooded by TikTok users, has added language translation features.`\
 https://nytimes.com/2025/01/20/business/tiktok-ban-rednote-xiaohongshu-adapts.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-aims-f
 **Suspect in Fatal Stabbing Attack at U.K. Dance Class Pleads Guilty to Murder**\
 `Axel Rudakubana admitted to the murder of three girls and the attempted murder of 10 other people at a Taylor Swift-themed class in Southport, England, last July, as well as three additional charges.`\
 https://nytimes.com/2025/01/20/world/europe/trial-southport-stabbings-uk-axel-rudakubana.html
-
-**Mike McCarthy, Ben Johnson or the field? The Bears' coaching search is about to intensify**\
-`The Bears have interviewed many candidates over video but only three in person at Halas Hall so far.`\
-https://nytimes.com/athletic/6073942/2025/01/20/bears-coaching-search-mike-mccarthy-ben-johnson/
-
-**Southern California Is Poised for More Damaging and Dangerous Winds**\
-`With more critical fire weather this week in Los Angeles, the National Weather Service once again issued one of its strongest warnings possible.`\
-https://nytimes.com/2025/01/20/weather/los-angeles-wind-warning-santa-ana.html
 
