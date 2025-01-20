@@ -1,3 +1,15 @@
+**Trump will be sworn in at noon. Here’s what to know.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-will-be-sworn-in-at-noon-heres-what-to-know
+
+**Inauguration Live Updates: Trump to Take Oath as 47th President**\
+`The ceremony, which will be held inside the Capitol Rotunda because of the cold, will cap his remarkable return to the presidency after a loss in 2020 and a conviction on 34 felony counts.`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president
+
+**Man United in talks to sign Dorgu from Lecce**\
+`Manchester United are in talks to sign left-back Patrick Dorgu from Lecce.`\
+https://nytimes.com/athletic/6074821/2025/01/20/patrick-dorgu-manchester-united-transfers/
+
 **How Cooper Flagg has cemented his status as 2025's top draft prospect**\
 `What makes Flagg so special, and why is the race for No. 1 essentially over barring a drastic turn of events?`\
 https://nytimes.com/athletic/6072159/2025/01/20/duke-cooper-flagg-nba-draft-top-pick-status/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6070395/2025/01/20/falcons-offseason-to-do-list-202
 **Panthers' offseason to-do list: Fix the run defense, find another receiver**\
 `Carolina head coach Dave Canales and GM Dan Morgan should prioritize strengthening the defensive line, among other things.`\
 https://nytimes.com/athletic/6070777/2025/01/20/panthers-offseason-to-do-list-defensive-line/
-
-**Cowboys coaching search: Front-runner emerges, interview schedule, more candidates**\
-`Kellen Moore and the Eagles are in the NFC Championship Game. Is the Philly OC the leader to replace Mike McCarthy in Dallas?`\
-https://nytimes.com/athletic/6074281/2025/01/20/cowboys-head-coaching-search-frontrunner-candidates-update/
-
-**What should the Patriots do with the No. 4 pick in the draft?**\
-`A top pass rusher, trading down or the Heisman Trophy winner? If all goes well, New England should have great options with the No. 4 pick.`\
-https://nytimes.com/athletic/6067532/2025/01/20/patriots-nfl-draft-no-4-pick-experts/
-
-**Ohio State or Notre Dame? This quiz will tell you who to root for to win (or lose) it all**\
-`Do you have a favorite equine-related nickname? Thoughts on time zones? An opinion on "Hang on Sloopy"? This quiz is for you. `\
-https://nytimes.com/athletic/6071797/2025/01/20/ohio-state-notre-dame-national-championship/
 

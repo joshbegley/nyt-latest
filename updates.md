@@ -1,3 +1,15 @@
+**Trump will be sworn in at noon. Here’s what to know.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-will-be-sworn-in-at-noon-heres-what-to-know
+
+**Inauguration Live Updates: Trump to Take Oath as 47th President**\
+`The ceremony, which will be held inside the Capitol Rotunda because of the cold, will cap his remarkable return to the presidency after a loss in 2020 and a conviction on 34 felony counts.`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president
+
+**Man United in talks to sign Dorgu from Lecce**\
+`Manchester United are in talks to sign left-back Patrick Dorgu from Lecce.`\
+https://nytimes.com/athletic/6074821/2025/01/20/patrick-dorgu-manchester-united-transfers/
+
 **How Cooper Flagg has cemented his status as 2025's top draft prospect**\
 `What makes Flagg so special, and why is the race for No. 1 essentially over barring a drastic turn of events?`\
 https://nytimes.com/athletic/6072159/2025/01/20/duke-cooper-flagg-nba-draft-top-pick-status/
