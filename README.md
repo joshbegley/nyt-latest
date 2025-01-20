@@ -1,3 +1,7 @@
+**Elon Musk Ignites Online Speculation Over the Meaning of a Hand Gesture**\
+`Speaking at a celebratory rally in Washington, Mr. Musk twice extended his arm out with his palm facing down, drawing comparisons to the Nazi salute.`\
+https://nytimes.com/2025/01/20/us/politics/elon-musk-hand-gesture-speech.html
+
 **Democrats Are Out of Power. But for How Long?**\
 `Democrats need a course correction, but the 1980s are a reminder that it doesn’t always happen naturally.`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/democrats-trump-inauguration-elections
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/business/media/media-msnbc-fox-news-inaugural.htm
 **Relatives of freed hostages thank Trump, and call on Israel to win the freedom of remaining captives.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/relatives-of-freed-hostages-thank-trump-and-call-on-israel-to-win-the-freedom-of-remaining-captives
-
-**Melania Trump Tips Her Hat**\
-`Inauguration fashion statements from the first lady — as well as the second.`\
-https://nytimes.com/2025/01/20/style/melania-trump-hat-inauguration-outfit.html
 
