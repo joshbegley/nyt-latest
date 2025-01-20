@@ -1,3 +1,7 @@
+**Projecting final 4 NFL playoff teams' odds to win Super Bowl, with conference title game analysis**\
+`The NFL's Final Four is set. Which of the remaining teams has the best chance to win the Super Bowl? `\
+https://nytimes.com/athletic/6073512/2025/01/19/nfl-super-bowl-playoff-chances-conference-championship/
+
 **At Trump’s Rally, the Contradictions Are in the Music**\
 `The president-elect danced along with Village People as his rally closed with a live performance of “Y.M.C.A.,” after Kid Rock and Lee Greenwood played.`\
 https://nytimes.com/2025/01/19/arts/music/trump-village-people-kid-rock.html
