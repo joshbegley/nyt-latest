@@ -1,3 +1,7 @@
+**As Brutal Cold Settles Across U.S., Gulf Coast Braces for Rare Winter Storm**\
+`Amid a dangerous arctic blast over much of the U.S. this week, snow and ice may bring major travel disruptions and power outages in the South, forecasters warned.`\
+https://nytimes.com/2025/01/20/weather/cold-snow-texas-forecast.html
+
 **Biden Issues Pre-Emptive Pardons to Guard Against Trump’s Reprisals**\
 `President Biden, hours before leaving office, used his executive clemency power to protect people targeted for reprisals by his successor, including Mark A. Milley, Anthony S. Fauci and Liz Cheney.`\
 https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html

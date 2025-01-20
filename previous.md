@@ -1,3 +1,7 @@
+**As Brutal Cold Settles Across U.S., Gulf Coast Braces for Rare Winter Storm**\
+`Amid a dangerous arctic blast over much of the U.S. this week, snow and ice may bring major travel disruptions and power outages in the South, forecasters warned.`\
+https://nytimes.com/2025/01/20/weather/cold-snow-texas-forecast.html
+
 **Biden Issues Pre-Emptive Pardons to Guard Against Trump’s Reprisals**\
 `President Biden, hours before leaving office, used his executive clemency power to protect people targeted for reprisals by his successor, including Mark A. Milley, Anthony S. Fauci and Liz Cheney.`\
 https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074596/2025/01/20/lamar-jackson-ravens-loss-playof
 **Villa reach verbal agreement with Fenerbahce for Carlos transfer**\
 `Aston Villa have reached a verbal agreement with Fenerbahce for the sale of Diego Carlos.`\
 https://nytimes.com/athletic/6074942/2025/01/20/diego-carlos-fenerbahce-aston-villa-transfers/
-
-**Weekend NHL rankings: Connor McDavid's cross-check, an imminent trade and a goalie goal**\
-`It's been an eventful week in the NHL, from coast to coast and all over the ice to boot.`\
-https://nytimes.com/athletic/6073832/2025/01/20/nhl-weekend-rankings-mcdavid-canucks-goalie-goal/
 
