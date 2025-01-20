@@ -1,3 +1,7 @@
+**Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
+`DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
+https://nytimes.com/athletic/6075833/2025/01/20/donte-divincenzo-injurytimberwolves/
+
 **Jayden Daniels' impressive rookie season and what next for the Ravens?**\
 `“Jayden Daniels is in the conversation for the best rookie quarterback I have seen."`\
 https://nytimes.com/athletic/6075339/2025/01/20/the-athletic-football-show-divisional-round-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075661/2025/01/20/fifa-president-trump-inauguratio
 **What we're hearing about the nixed J.T. Miller trade and a new Canucks direction**\
 `The Canucks and Rangers came close to a trade involving J.T. Miller but the deal fell apart.`\
 https://nytimes.com/athletic/6074372/2025/01/20/jt-miller-canucks-rangers-trade-direction/
-
-**Trump’s Family Stands by His Side at His Inauguration**\
-`President Trump’s relatives return to Washington with more political and cultural support — and a far better understanding of how to wield their soft power.`\
-https://nytimes.com/2025/01/20/us/politics/trump-family-baron-melania-kids.html
 

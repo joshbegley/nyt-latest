@@ -1,3 +1,7 @@
+**Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
+`DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
+https://nytimes.com/athletic/6075833/2025/01/20/donte-divincenzo-injurytimberwolves/
+
 **Jayden Daniels' impressive rookie season and what next for the Ravens?**\
 `“Jayden Daniels is in the conversation for the best rookie quarterback I have seen."`\
 https://nytimes.com/athletic/6075339/2025/01/20/the-athletic-football-show-divisional-round-recap/
