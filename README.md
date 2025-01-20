@@ -1,3 +1,7 @@
+**MSNBC Mourns and Fox Makes Merry as Trump Season 2 Premieres**\
+`The inaugural’s pageantry was interpreted in sharply different ways across the media spectrum. Podcasters weighed in, too.`\
+https://nytimes.com/2025/01/20/business/media/media-msnbc-fox-news-inaugural.html
+
 **Relatives of freed hostages thank Trump, and call on Israel to win the freedom of remaining captives.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/relatives-of-freed-hostages-thank-trump-and-call-on-israel-to-win-the-freedom-of-remaining-captives
@@ -35,8 +39,4 @@ https://nytimes.com/2025/01/20/us/politics/vances-vice-president-legacy.html
 **‘American Carnage 2: Ultimate Carnage’: Best and Worst Moments From Trump’s Inaugural Address**\
 `Best and Worst Moments From Trump’s Inaugural Address`\
 https://nytimes.com/2025/01/20/opinion/scorecard-best-worst-moments-trump-inaugural-address.html
-
-**Tuesday Briefing: Trump Takes Office**\
-`Plus, exploring Indonesia’s spiritual hub.`\
-https://nytimes.com/2025/01/20/briefing/trump-inauguration-executive-orders-gaza-cease-fire.html
 
