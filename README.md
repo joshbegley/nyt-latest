@@ -1,5 +1,5 @@
 **Paul Abbate Retires as F.B.I. Acting Director After Wray Departs**\
-`A veteran of the bureau, Mr. Abbate has served as deputy director since early 2021 and takes the helm from Christopher A. Wray as the agency faces an uncertain future.`\
+`A veteran of the bureau, Mr. Abbate has served as deputy director since early 2021 and took the helm from Christopher A. Wray as the agency faces an uncertain future.`\
 https://nytimes.com/2025/01/20/us/politics/paul-abbate-fbi-director.html
 
 **Tech Titans and Donors Hit D.C. to Toast Trump’s Inauguration**\
