@@ -1,3 +1,7 @@
+**Houthi rebels say they will limit attacks in the Red Sea to ships linked to Israel.**\
+`The Yemeni rebels have targeted ships since the early days of the war in Gaza in what they say is solidarity with Hamas.`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/houthi-rebels-say-they-will-limit-attacks-in-the-red-sea-to-ships-linked-to-israel
+
 **As Brutal Cold Settles Across U.S., Gulf Coast Braces for Rare Winter Storm**\
 `Amid a dangerous arctic blast over much of the U.S. this week, snow and ice may bring major travel disruptions and power outages in the South, forecasters warned.`\
 https://nytimes.com/2025/01/20/weather/cold-snow-texas-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-inauguration-capitol-rotunda-ja
 **Appreciate Lamar Jackson's brilliance, even if football cruelty dealt Ravens a loss**\
 `It’s tempting to view quarterbacks through the prism of "Did he win the big one?" But nuance exists, even in the playoffs. `\
 https://nytimes.com/athletic/6074596/2025/01/20/lamar-jackson-ravens-loss-playoffs/
-
-**Villa reach verbal agreement with Fenerbahce for Carlos transfer**\
-`Aston Villa have reached a verbal agreement with Fenerbahce for the sale of Diego Carlos.`\
-https://nytimes.com/athletic/6074942/2025/01/20/diego-carlos-fenerbahce-aston-villa-transfers/
 
