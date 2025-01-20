@@ -1,3 +1,7 @@
+**Costly mistakes have put Khiara Keating in the spotlight. Can she bounce back from Manchester derby errors?**\
+`Khiara Keating was thrust into the spotlight last season. Gareth Taylor must decide whether now is the time to take her out of it`\
+https://nytimes.com/athletic/6074200/2025/01/20/khiara-keating-manchester-city-derby-errors/
+
 **Houthi rebels say they will limit attacks in the Red Sea to ships linked to Israel.**\
 `The Yemeni rebels have targeted ships since the early days of the war in Gaza in what they say is solidarity with Hamas.`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/houthi-rebels-say-they-will-limit-attacks-in-the-red-sea-to-ships-linked-to-israel
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074849/2025/01/20/prince-william-pub-villa-worst-u
 **Rotunda Ransacked by Pro-Trump Mob on Jan. 6 Will Be His Inauguration Backdrop**\
 `The large domed expanse, a breathtaking and solemn space in the Capitol, was the scene of mayhem wrought by Trump supporters four years ago. A very different crowd of his backers will be on hand Monday.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inauguration-capitol-rotunda-jan-6.html
-
-**Appreciate Lamar Jackson's brilliance, even if football cruelty dealt Ravens a loss**\
-`It’s tempting to view quarterbacks through the prism of "Did he win the big one?" But nuance exists, even in the playoffs. `\
-https://nytimes.com/athletic/6074596/2025/01/20/lamar-jackson-ravens-loss-playoffs/
 
