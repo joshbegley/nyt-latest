@@ -1,3 +1,7 @@
+**Fact-checking Trump’s rally the eve before his inauguration.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-rally
+
 **How Rams fell short vs. Eagles in snowy, season-ending divisional round loss: Key takeaways**\
 `Frigid weather and a formidable Philadelphia squad spelled the end of gutsy Los Angeles' season on Sunday.`\
 https://nytimes.com/athletic/6072979/2025/01/19/rams-score-result-takeaways-nfl-nfc-divisional-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/us/politics/trump-inauguration-dc.html
 **Manual for Consistency in Writing**\
 `Katie Byl and Jeff Chen make their collaboration debut.`\
 https://nytimes.com/2025/01/19/crosswords/daily-puzzle-2025-01-20.html
-
-**Accused 9/11 Mastermind Agrees to Use of Disputed Confession for Life Sentence**\
-`Lawyers for Khalid Shaikh Mohammed have said for years that the confession was tainted by torture. Mr. Mohammed has now agreed that portions can be used at his sentencing trial if prosecutors agree to settle his case.`\
-https://nytimes.com/2025/01/19/us/politics/khalid-shaikh-mohammed-plea-deal-torture-sept-11.html
 
