@@ -1,5 +1,5 @@
 **More encouraging Rangers moments over the weekend: 2 games, 3 points, 5 takeaways**\
-`The Rangers couldn't pull off all four points in a weekend back-to-back, but they looked like a team heading in the right direction.`\
+`The Rangers couldn't pull off all 4 points in a weekend back-to-back, but they seemed to be heading in the right direction.`\
 https://nytimes.com/athletic/6074345/2025/01/19/rangers-quick-compete-canadiens-blue-jackets/
 
 **What’s next for Ravens after latest playoff exit, loss to Bills: Takeaways**\
