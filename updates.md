@@ -1,3 +1,11 @@
+**Trump Promises Americans the Moon (Well, Mars)**\
+`Donald Trump’s pledge-filled speech made him sound like a candidate trying to run up the score.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-promises.html
+
+**A Determined Trump Vows Not to Be Thwarted at Home or Abroad**\
+`Wiser about the use of power, the newly sworn-in president suggests that this time he will not take no for an answer, whether in enacting an ambitious domestic agenda or in his expansionist worldview.`\
+https://nytimes.com/2025/01/20/us/politics/trump-sworn-in-president.html
+
 **Marco Rubio Is Confirmed by Senate as Secretary of State**\
 `The Florida senator becomes the United States’ 72nd chief diplomat, and the first Latino to hold the job.`\
 https://nytimes.com/2025/01/20/us/politics/marco-rubio-confirmed-secretary-of-state.html
