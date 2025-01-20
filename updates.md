@@ -1,3 +1,11 @@
+**West Ham submit £57m offer to sign Villa striker Duran**\
+`West Ham United have submitted an offer worth £57million ($70m) to sign Aston Villa striker Jhon Duran.`\
+https://nytimes.com/athletic/6075345/2025/01/20/west-ham-transfers-jhon-duran-aston-villa/
+
+**Plenty of tech billionaires are expected to be in attendance.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/plenty-of-tech-billionaires-are-expected-to-be-in-attendance
+
 **The Windup: Sheesh, Dodgers**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6075315/2025/01/20/dodgers-free-agency-roki-sasaki-the-windup/
