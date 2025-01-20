@@ -1,3 +1,7 @@
+**TikTok Got a Reprieve, but Americans and Chinese Are Still on RedNote**\
+`The Chinese social media app, popular in the United States a week after being flooded by TikTok users, has added language translation features.`\
+https://nytimes.com/2025/01/20/business/tiktok-ban-rednote-xiaohongshu-adapts.html
+
 **The Pulse: Now there are four**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6074516/2025/01/20/lamar-jackson-josh-allen-bills-ravens-the-pulse/
