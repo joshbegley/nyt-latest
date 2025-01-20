@@ -1,3 +1,15 @@
+**Biden Ends a Half-Century in Public Life on a Somber Note**\
+`“We’re not leaving the fight,” he told supporters and members of his staff as he prepared to leave Washington.`\
+https://nytimes.com/2025/01/20/us/politics/biden-final-day.html
+
+**The White House Website Got a Quick Trump Makeover**\
+`New administrations move quickly to replace the site, and Mr. Trump’s struck a starkly different tone from the message the Biden administration had offered.`\
+https://nytimes.com/2025/01/20/us/politics/white-house-website-trump.html
+
+**'Got to find a way to give him more minutes': Why Poitras' AHL days may be over**\
+`Matt Poitras' first stint up with Boston this season didn't go as he might have hoped. This time, he might have figured it out.`\
+https://nytimes.com/athletic/6076321/2025/01/20/bruins-matt-poitras-breakthrough-providence/
+
 **Biden pardoned Leonard Peltier, an Indigenous rights activist convicted in F.B.I. killings.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/biden-pardoned-leonard-peltier-an-indigenous-rights-activist-convicted-in-fbi-killings

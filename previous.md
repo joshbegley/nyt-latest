@@ -1,3 +1,15 @@
+**Biden Ends a Half-Century in Public Life on a Somber Note**\
+`“We’re not leaving the fight,” he told supporters and members of his staff as he prepared to leave Washington.`\
+https://nytimes.com/2025/01/20/us/politics/biden-final-day.html
+
+**The White House Website Got a Quick Trump Makeover**\
+`New administrations move quickly to replace the site, and Mr. Trump’s struck a starkly different tone from the message the Biden administration had offered.`\
+https://nytimes.com/2025/01/20/us/politics/white-house-website-trump.html
+
+**'Got to find a way to give him more minutes': Why Poitras' AHL days may be over**\
+`Matt Poitras' first stint up with Boston this season didn't go as he might have hoped. This time, he might have figured it out.`\
+https://nytimes.com/athletic/6076321/2025/01/20/bruins-matt-poitras-breakthrough-providence/
+
 **Biden pardoned Leonard Peltier, an Indigenous rights activist convicted in F.B.I. killings.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/biden-pardoned-leonard-peltier-an-indigenous-rights-activist-convicted-in-fbi-killings
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/20/opinion/thepoint/democrats-trump-inauguratio
 **At Inauguration, Melania and Barron Trump Greet a Limelight They Once Avoided**\
 `The returning first lady and Barron Trump, the son she had once shielded from the public eye, used Monday’s inauguration to reintroduce themselves.`\
 https://nytimes.com/2025/01/20/us/politics/baron-melania-trump-inauguration.html
-
-**Trump Repeats Inaccurate Claims in Inaugural Remarks**\
-`In his Inaugural Address, President Trump delivered a more tempered version of election talking points. But in remarks afterward, he reprised his grievances about the 2020 election.`\
-https://nytimes.com/2025/01/20/us/politics/trump-fact-check-inaugural-address.html
-
-**Ramaswamy Will Bow Out of Cost-Cutting Project and Run for Governor in Ohio**\
-`The billionaire decided he could not campaign while helping lead the so-called Department of Government Efficiency, but tensions with Elon Musk were also evident.`\
-https://nytimes.com/2025/01/20/us/politics/ramaswamy-doge-ohio-governor.html
-
-**Cardinals' chairman Bill DeWitt Jr. addresses lowered payroll: 'It's a revenue game'**\
-`It is unclear how soon payroll will rise again. That timeline will be decided by gate revenue, television money and performance. `\
-https://nytimes.com/athletic/6075844/2025/01/20/cardinals-payroll-2025-ownership/
 
