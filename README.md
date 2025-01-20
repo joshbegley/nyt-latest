@@ -1,7 +1,3 @@
-**Cardinals' chairman Bill DeWitt Jr. addresses lowered payroll: 'It's a revenue game'**\
-`It is unclear how soon payroll will rise again. That timeline will be decided by gate revenue, television money and performance. `\
-https://nytimes.com/athletic/6075844/2025/01/20/cardinals-payroll-2025-ownership/
-
 **Gazans Return to Vast Destruction in Old Neighborhoods**\
 `Palestinians returning to parts of the enclave have been picking their way through vast piles of rubble and trying to salvage what they can.`\
 https://nytimes.com/2025/01/20/world/middleeast/gaza-israel-cease-fire.html
@@ -37,4 +33,10 @@ https://nytimes.com/2025/01/20/us/politics/elon-musk-office-west-wing.html
 **Reports of sporadic violence cast a shadow over the Gaza cease-fire.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/reports-of-sporadic-violence-cast-a-shadow-over-the-gaza-cease-fire
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>The longest season in college football history has sadly come to a close. But what a ride it was.</p>
+<p>This week&#8217;s Mailbag is your chance to ask about the season that was and start asking about the season ahead.</p>
+`\
+https://nytimes.com/athletic/6076173/2025/01/20/submit-a-question-for-stewart-mandels-college-football-mailbag-289/
 
