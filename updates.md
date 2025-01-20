@@ -1,3 +1,15 @@
+**The day it turned toxic: Leicester fans are demanding answers, and rightly so**\
+`Director of football Jon Rudkin, manager Ruud van Nistelrooy and the Leicester board were all criticised by the home support.`\
+https://nytimes.com/athletic/6072807/2025/01/20/rudkin-leicester-fans-protests/
+
+**Ruben Amorim's starting XI is starting to take shape... and there's some bad news**\
+`Brighton illustrated what a well organised club can achieve. United need to learn from that`\
+https://nytimes.com/athletic/6057533/2025/01/20/ruben-amorims-starting-xi-is-starting-to-take-shape-and-theres-some-bad-news/
+
+**Tottenham Hotspur are a club drifting - who is going to take control?**\
+`Ange Postecoglou needs new player to save the season - Tottenham can't just wait for injured players to return`\
+https://nytimes.com/athletic/6061187/2025/01/20/spurs-everton-postecoglou-levy/
+
 **The return of the 'Welsh wall' could soften potential Pascal Struijk blow**\
 `Ampadu was man of the match in Leeds' win over Sheffield Wednesday – could history be about to repeat itself?`\
 https://nytimes.com/athletic/6073262/2025/01/20/leeds-sheffield-wednesday-ampadu/
