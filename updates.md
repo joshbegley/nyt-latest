@@ -1,3 +1,11 @@
+**‘Golden Age of America Begins,’ Trump Says at Inauguration**\
+`After being sworn in as the 47th President of the United States, President Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
+https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-ceremony.html
+
+**Biden commutes prison sentence of Leonard Peltier, an Indigenous rights activist convicted in F.B.I. killings.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/biden-pardoned-leonard-peltier-an-indigenous-rights-activist-convicted-in-fbi-killings
+
 **Pardoned Biden Family Members Were Targets of Republicans**\
 `The relatives who were granted clemency in the final minutes of Joseph R. Biden Jr.’s presidency had not been charged with wrongdoing, but some had drawn scrutiny.`\
 https://nytimes.com/2025/01/20/us/politics/pardoned-biden-family-members-were-targets-of-republicans.html
