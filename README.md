@@ -28,7 +28,7 @@ https://nytimes.com/2025/01/20/nyregion/adams-trump-inauguration.html
 
 **Here’s the latest.**\
 `By The New York Times`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/heres-the-latest
+https://nytimes.com/2025/01/20/us/politics/heres-the-latest.html
 
 **Life in Prison for Hospital Rape and Murder That Shocked India**\
 `The police had sought the death penalty in a horrific but familiar crime. Its handling by the local authorities had outraged the nation.`\
