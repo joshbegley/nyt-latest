@@ -1,3 +1,11 @@
+**Biden Issues Pre-Emptive Pardons to Guard Against Trump’s Reprisals**\
+`President Biden, hours before leaving office, used his executive clemency power to protect people targeted for reprisals by his successor, including Mark A. Milley, Anthony S. Fauci and Liz Cheney.`\
+https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html
+
+**Rotunda Ransacked by Pro-Trump Mob on Jan. 6 Will Be His Inauguration Backdrop**\
+`The large domed expanse, a breathtaking and solemn space in the Capitol, was the scene of mayhem wrought by Trump supporters four years ago. A very different crowd of his backers will be on hand Monday.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-capitol-rotunda-jan-6.html
+
 **Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
 `Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, ever ounce of their energy is on the task at hand`\
 https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
