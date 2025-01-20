@@ -1,3 +1,15 @@
+**Melania Trump Tips Her Hat**\
+`Inauguration fashion statements from the first lady — as well as the second.`\
+https://nytimes.com/2025/01/20/style/melania-trump-hat-inauguration-outfit.html
+
+**At Trump’s luncheon, billionaires mingle with senators and Supreme Court justices.**\
+`The traditional inaugural luncheon at the Capitol, normally a staid affair attended primarily by government officials, this time featured an extraordinary commingling of money and power.`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/at-trumps-luncheon-billionaires-mingle-with-senators-and-supreme-court-justices
+
+**In Car-Loving Los Angeles, the Charred Remains of Vehicles Cut Deep**\
+`For many residents, a set of wheels is an extension of their home, a key to their income or a source of priceless memories.`\
+https://nytimes.com/2025/01/20/us/los-angeles-wildfires-cars-transport.html
+
 **Musk Is Likely to Get Office Space in the West Wing**\
 `The world’s richest man had been expected to be situated in the Eisenhower Executive Office Building, but a West Wing office would give him closer access to President Trump.`\
 https://nytimes.com/2025/01/20/us/politics/elon-musk-office-west-wing.html
@@ -27,16 +39,4 @@ https://nytimes.com/2025/01/20/briefing/trump-inauguration-executive-orders-gaza
 **Trump promised to end electric vehicle ‘mandates.’ Here’s what that means.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-promised-to-end-electric-vehicle-mandates-heres-what-that-means
-
-**Colts to hire Lou Anarumo as defensive coordinator: Sources**\
-`Anarumo will replace Gus Bradley, whom the Colts “parted ways” with earlier this month.`\
-https://nytimes.com/athletic/6075864/2025/01/20/indianapolis-colts-lou-anarumo-defensive-coordinator/
-
-**Portrait of General Milley Is Removed From Pentagon**\
-`The decision was an early salvo by the new administration against a military that President Trump has assailed for a variety of perceived offenses.`\
-https://nytimes.com/2025/01/20/us/politics/general-mark-milley-portrait.html
-
-**On a Quiet U.S.-Mexico Border, a Feeling of Disquieted Anticipation**\
-`Law enforcement officials and migrants on the U.S.-Mexico border were not sure what might come next, now that President Trump is back.`\
-https://nytimes.com/2025/01/20/us/politics/us-mexico-border-trump.html
 
