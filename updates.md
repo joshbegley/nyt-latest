@@ -1,3 +1,11 @@
+**Biden pardoned Leonard Peltier, an Indigenous rights activist convicted in F.B.I. killings.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/biden-pardoned-leonard-peltier-an-indigenous-rights-activist-convicted-in-fbi-killings
+
+**Border Patrol Shooting Under Investigation in Vermont**\
+`State Police said the shooting happened on Interstate 91, but provided no additional details.`\
+https://nytimes.com/2025/01/20/us/border-patrol-shooting-vermont.html
+
 **Elon Musk’s Hand Gestures During Speech Draw Speculation**\
 `Elon Musk made two hand gestures during a speech at an event celebrating President Trump’s inauguration that drew comparisons online to the “Fascist salute.”`\
 https://nytimes.com/video/us/elections/100000009938558/trump-inauguration-elon-musk.html
