@@ -1,3 +1,15 @@
+**West Bank settlers attack Palestinian villages, angry about prisoner releases.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/west-bank-settlers-attack-palestinian-villages-angry-about-prisoner-releases
+
+**NBA Rewind: Checking in on All-Star voting and season awards odds**\
+`It's time to check in on NBA awards and All-Star voting. Who are your picks?`\
+https://nytimes.com/athletic/6066743/2025/01/20/rewind-all-star-voting-nikola-jokic-shai-gilgeous-alexander-mvp-cavaliers-nba/
+
+**Some Jan. 6 Rioters Are Expected to Be in Washington for the Inauguration**\
+`At least eight rioters who have faced criminal charges have been granted permission to attend. Most were accused of relatively minor offenses.`\
+https://nytimes.com/2025/01/20/us/politics/jan-6-rioters-trump-inauguration.html
+
 **Here’s the latest.**\
 `By The New York Times`\
 https://nytimes.com/2025/01/20/us/politics/heres-the-latest.html

@@ -1,3 +1,15 @@
+**West Bank settlers attack Palestinian villages, angry about prisoner releases.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/west-bank-settlers-attack-palestinian-villages-angry-about-prisoner-releases
+
+**NBA Rewind: Checking in on All-Star voting and season awards odds**\
+`It's time to check in on NBA awards and All-Star voting. Who are your picks?`\
+https://nytimes.com/athletic/6066743/2025/01/20/rewind-all-star-voting-nikola-jokic-shai-gilgeous-alexander-mvp-cavaliers-nba/
+
+**Some Jan. 6 Rioters Are Expected to Be in Washington for the Inauguration**\
+`At least eight rioters who have faced criminal charges have been granted permission to attend. Most were accused of relatively minor offenses.`\
+https://nytimes.com/2025/01/20/us/politics/jan-6-rioters-trump-inauguration.html
+
 **Scenes of Elation as Hostages Released, but the Path Ahead Is Uncertain**\
 `Doctors at Sheba Medical Center said the three women are in stable condition, but little is known about what the former captives went through in Gaza.`\
 https://nytimes.com/2025/01/20/world/middleeast/israel-gaza-hostages.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-is-set
 **Eric Adams to Attend Inauguration After Invite From Trump**\
 `Mayor Eric Adams will attend Donald J. Trump’s inauguration after a last-minute invite. Mr. Trump has said he is considering offering Mr. Adams a pardon in his federal corruption case.`\
 https://nytimes.com/2025/01/20/nyregion/adams-trump-inauguration.html
-
-**Here’s the latest.**\
-`By The New York Times`\
-https://nytimes.com/2025/01/20/us/politics/heres-the-latest.html
-
-**Life in Prison for Hospital Rape and Murder That Shocked India**\
-`The police had sought the death penalty in a horrific but familiar crime. Its handling by the local authorities had outraged the nation.`\
-https://nytimes.com/2025/01/20/business/india-doctor-rape-sentence.html
-
-**Australian Open recap: Gael Monfils' run ends as Melbourne heat and long matches dash dreams**\
-`The Frenchman's phenomenal run comes to an end on a day that saw incredible exploits catch up to players all over the tournament.`\
-https://nytimes.com/athletic/6074185/2025/01/20/australian-open-recap-gael-monfils/
 
