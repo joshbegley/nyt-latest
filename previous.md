@@ -1,3 +1,7 @@
+**Reports of sporadic violence cast a shadow over the Gaza cease-fire.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/reports-of-sporadic-violence-cast-a-shadow-over-the-gaza-cease-fire
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>The longest season in college football history has sadly come to a close. But what a ride it was.</p>
 <p>This week&#8217;s Mailbag is your chance to ask about the season that was and start asking about the season ahead.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2025/01/20/us/politics/us-mexico-border-trump.html
 **Donald Trump’s Second Inaugural Speech, Annotated**\
 `In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
 https://nytimes.com/interactive/2025/01/20/us/trump-inauguration-speech-annotated.html
-
-**Bears hiring Lions OC Ben Johnson as head coach: Sources**\
-`Johnson introduced one of the most prolific offensive periods in Detroit Lions history. Now, he'll lead the way in Chicago.`\
-https://nytimes.com/athletic/6064952/2025/01/20/ben-johnson-hired-bears-head-coach/
 

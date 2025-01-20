@@ -1,3 +1,7 @@
+**Reports of sporadic violence cast a shadow over the Gaza cease-fire.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/reports-of-sporadic-violence-cast-a-shadow-over-the-gaza-cease-fire
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>The longest season in college football history has sadly come to a close. But what a ride it was.</p>
 <p>This week&#8217;s Mailbag is your chance to ask about the season that was and start asking about the season ahead.</p>
