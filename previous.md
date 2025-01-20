@@ -1,3 +1,11 @@
+**Defiance is out and deference is in as Trump returns to Washington.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/defiance-is-out-and-deference-is-in-as-trump-returns-to-washington
+
+**Jets' plan at centre, the stats behind Comrie's record, Ehlers' future: Mailbag, part 1**\
+`What's the likely outcome for Nikolaj Ehlers, and why doesn't Eric Comrie get run support?`\
+https://nytimes.com/athletic/6071929/2025/01/20/winnipeg-jets-nhl-nikolaj-ehlers-eric-comrie/
+
 **Men's college basketball Top 25: Lessons from a week of upsets, thrillers**\
 `The teams that made up last Monday's AP Top 25 combined for 22 losses over the ensuing week.`\
 https://nytimes.com/athletic/6074630/2025/01/20/mens-college-basketball-top-25-houston-alabama/
@@ -14,8 +22,8 @@ https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/houthi-rebels-
 `Amid a dangerous arctic blast over much of the U.S. this week, snow and ice may bring major travel disruptions and power outages in the South, forecasters warned.`\
 https://nytimes.com/2025/01/20/weather/cold-snow-texas-forecast.html
 
-**Biden Issues Pre-Emptive Pardons to Guard Against Trump’s Reprisals**\
-`President Biden, hours before leaving office, used his executive clemency power to protect people targeted for reprisals by his successor, including Mark A. Milley, Anthony S. Fauci and Liz Cheney.`\
+**Biden in Final Hours Pardons Cheney, Fauci and Milley to Thwart Reprisals**\
+`Acting on the day he leaves office, President Biden used his executive clemency power to protect people targeted by his incoming successor, Donald J. Trump, who has vowed “retribution.”`\
 https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html
 
 **Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6073933/2025/01/20/fantasy-premier-league-what-we-l
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Pose your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET).`\
 https://nytimes.com/athletic/6074847/2025/01/20/newcastle-questions-howe-tactics-discussion/
-
-**The Deal Maker in Chief Is Back**\
-`The business world is expecting big changes — and potential disruptions — as Donald Trump returns to the White House.`\
-https://nytimes.com/2025/01/20/business/dealbook/trump-president-inauguration-business.html
-
-**The Athletic FC: Prince William's Villa pub trip, Iraola brilliance, worst Man Utd team ever?**\
-`Today in TAFC: the future king of England talks Tielemans and double pivots, Iraola can do no wrong, how bad is this Manchester United team?`\
-https://nytimes.com/athletic/6074849/2025/01/20/prince-william-pub-villa-worst-united-team/
 

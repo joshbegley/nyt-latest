@@ -1,3 +1,15 @@
+**Defiance is out and deference is in as Trump returns to Washington.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/defiance-is-out-and-deference-is-in-as-trump-returns-to-washington
+
+**Jets' plan at centre, the stats behind Comrie's record, Ehlers' future: Mailbag, part 1**\
+`What's the likely outcome for Nikolaj Ehlers, and why doesn't Eric Comrie get run support?`\
+https://nytimes.com/athletic/6071929/2025/01/20/winnipeg-jets-nhl-nikolaj-ehlers-eric-comrie/
+
+**Biden in Final Hours Pardons Cheney, Fauci and Milley to Thwart Reprisals**\
+`Acting on the day he leaves office, President Biden used his executive clemency power to protect people targeted by his incoming successor, Donald J. Trump, who has vowed “retribution.”`\
+https://nytimes.com/2025/01/20/us/politics/biden-pardons-fauci-milley-cheney-jan-6.html
+
 **Men's college basketball Top 25: Lessons from a week of upsets, thrillers**\
 `The teams that made up last Monday's AP Top 25 combined for 22 losses over the ensuing week.`\
 https://nytimes.com/athletic/6074630/2025/01/20/mens-college-basketball-top-25-houston-alabama/
