@@ -1,3 +1,7 @@
+**Portrait of General Milley Removed Is From Pentagon**\
+`The decision was an early salvo by the new administration against a military that President Trump has assailed for a variety of perceived offenses.`\
+https://nytimes.com/2025/01/20/us/politics/general-mark-milley-portrait.html
+
 **On a Quiet U.S.-Mexico Border, a Feeling of Disquieted Anticipation**\
 `Law enforcement officials and migrants on the U.S.-Mexico border were not sure what might come next, now that President Trump is back.`\
 https://nytimes.com/2025/01/20/us/politics/on-a-quiet-us-mexico-border-a-feeling-of-disquieted-anticipation.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-executive-orders/after-no-biden-app
 **Words Used in Donald Trump’s Second Inaugural Address**\
 `Frequently mentioned words in historic speeches from Donald J. Trump to George Washington.`\
 https://nytimes.com/interactive/2025/01/20/us/politics/presidents-inaugural-address-speech.html
-
-**The Debate Over Trump’s Favorite Word Needs a Reset**\
-`Are tariffs good or bad policy? The answer is less simple than you might think.`\
-https://nytimes.com/2025/01/20/opinion/trump-tariffs-trade.html
 
