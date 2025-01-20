@@ -1,3 +1,7 @@
+**Chelsea set to sign Sarr from BlueCo-owned Strasbourg**\
+`Chelsea are set to sign teenage defender Mamadou Sarr from Strasbourg.`\
+https://nytimes.com/athletic/6074978/2025/01/20/chelsea-transfer-mamadou-sarr-strasbourg/
+
 **How would Kyle Kuzma react if a team wants to trade for him? His answer: 'I don't know'**\
 `Last year, the Wizards' forward didn't want to be traded. This year, his answer might be different.`\
 https://nytimes.com/athletic/6074668/2025/01/20/kyle-kuzma-potential-trade/
