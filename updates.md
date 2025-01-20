@@ -1,3 +1,7 @@
+**Costly mistakes have put Khiara Keating in the spotlight. Can she bounce back from Manchester derby errors?**\
+`Khiara Keating was thrust into the spotlight last season. Gareth Taylor must decide whether now is the time to take her out of it`\
+https://nytimes.com/athletic/6074200/2025/01/20/khiara-keating-manchester-city-derby-errors/
+
 **Houthi rebels say they will limit attacks in the Red Sea to ships linked to Israel.**\
 `The Yemeni rebels have targeted ships since the early days of the war in Gaza in what they say is solidarity with Hamas.`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/houthi-rebels-say-they-will-limit-attacks-in-the-red-sea-to-ships-linked-to-israel
