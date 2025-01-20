@@ -1,3 +1,11 @@
+**Gazans Return to Vast Destruction in Old Neighborhoods**\
+`Palestinians returning to parts of the enclave have been picking their way through vast piles of rubble and trying to salvage what they can.`\
+https://nytimes.com/2025/01/20/world/middleeast/gaza-israel-cease-fire.html
+
+**The Briefing: Chelsea 3-1 Wolves - winless run ended, Chalobah's return and Jackson's lack of goals**\
+`Simon Johnson analyses the key talking points from Chelsea's hard-fought win over Wolves`\
+https://nytimes.com/athletic/6071740/2025/01/20/chelsea-wolves-analysis/
+
 **MSNBC Mourns and Fox Makes Merry as Trump Season 2 Premieres**\
 `The inaugural’s pageantry was interpreted in sharply different ways across the media spectrum. Podcasters weighed in, too.`\
 https://nytimes.com/2025/01/20/business/media/media-msnbc-fox-news-inaugural.html
@@ -31,12 +39,4 @@ https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/reports-of-spo
 <p>This week&#8217;s Mailbag is your chance to ask about the season that was and start asking about the season ahead.</p>
 `\
 https://nytimes.com/athletic/6076173/2025/01/20/submit-a-question-for-stewart-mandels-college-football-mailbag-289/
-
-**Vance’s Swift Rise to Vice President Leaves Time to Determine Legacy**\
-`At age 40, a relative newcomer who made his name on the campaign trail for his fierce attacks on Democrats is first in the line of succession for president.`\
-https://nytimes.com/2025/01/20/us/politics/vances-vice-president-legacy.html
-
-**‘American Carnage 2: Ultimate Carnage’: Best and Worst Moments From Trump’s Inaugural Address**\
-`Best and Worst Moments From Trump’s Inaugural Address`\
-https://nytimes.com/2025/01/20/opinion/scorecard-best-worst-moments-trump-inaugural-address.html
 

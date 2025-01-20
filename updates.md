@@ -1,3 +1,11 @@
+**Gazans Return to Vast Destruction in Old Neighborhoods**\
+`Palestinians returning to parts of the enclave have been picking their way through vast piles of rubble and trying to salvage what they can.`\
+https://nytimes.com/2025/01/20/world/middleeast/gaza-israel-cease-fire.html
+
+**The Briefing: Chelsea 3-1 Wolves - winless run ended, Chalobah's return and Jackson's lack of goals**\
+`Simon Johnson analyses the key talking points from Chelsea's hard-fought win over Wolves`\
+https://nytimes.com/athletic/6071740/2025/01/20/chelsea-wolves-analysis/
+
 **MSNBC Mourns and Fox Makes Merry as Trump Season 2 Premieres**\
 `The inaugural’s pageantry was interpreted in sharply different ways across the media spectrum. Podcasters weighed in, too.`\
 https://nytimes.com/2025/01/20/business/media/media-msnbc-fox-news-inaugural.html
