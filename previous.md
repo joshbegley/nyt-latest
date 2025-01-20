@@ -1,3 +1,7 @@
+**Transcript: Donald Trump’s Second Inaugural Speech**\
+`In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
+https://nytimes.com/2025/01/20/us/politics/trump-inaugural-speech.html
+
 **Abdukodir Khusanov to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Abdukodir Khusanov's move to Manchester City`\
 https://nytimes.com/athletic/6050327/2025/01/20/abdukodir-khusanov-man-city-transfer-rating/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009937428/gaza-destruction-ceas
 **Trump Is the Oldest President to Take the Oath, Again**\
 `Before Joseph R. Biden Jr. was sworn in 2021, Donald J. Trump held the record for the country’s oldest commander in chief. He reclaimed the record on Monday.`\
 https://nytimes.com/2025/01/20/us/politics/donald-trump-age-oldest-presidents.html
-
-**Notre Dame vs. Ohio State picks, odds: Buckeyes heavily favored in national title game**\
-`Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
-https://nytimes.com/athletic/6053790/2025/01/20/notre-dame-ohio-state-picks-odds-national-championship-game/
 

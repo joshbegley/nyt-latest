@@ -1,3 +1,7 @@
+**Transcript: Donald Trump’s Second Inaugural Speech**\
+`In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
+https://nytimes.com/2025/01/20/us/politics/trump-inaugural-speech.html
+
 **Abdukodir Khusanov to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Abdukodir Khusanov's move to Manchester City`\
 https://nytimes.com/athletic/6050327/2025/01/20/abdukodir-khusanov-man-city-transfer-rating/
