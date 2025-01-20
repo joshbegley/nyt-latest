@@ -1,3 +1,7 @@
+**What to Know About the Singers Who Will Perform at the Inauguration**\
+`The country singers Carrie Underwood and Lee Greenwood and the tenor Christopher Macchio are all scheduled to sing at the swearing-in ceremony.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-singers.html
+
 **At Least 80 Dead Amid a New Surge of Violence in Colombia**\
 `Thousands have fled clashes between armed groups on the border with Venezuela, dashing hopes of peace in Colombia.`\
 https://nytimes.com/2025/01/20/world/americas/colombia-catatumbo-rebel-violence.html
