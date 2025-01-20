@@ -1,3 +1,7 @@
+**Men's college basketball Top 25: Lessons from a week of upsets, thrillers**\
+`The teams that made up last Monday's AP Top 25 combined for 22 losses over the ensuing week.`\
+https://nytimes.com/athletic/6074630/2025/01/20/mens-college-basketball-top-25-houston-alabama/
+
 **Costly mistakes have put Khiara Keating in the spotlight. Can she bounce back from Manchester derby errors?**\
 `Khiara Keating was thrust into the spotlight last season. Gareth Taylor must decide whether now is the time to take her out of it`\
 https://nytimes.com/athletic/6074200/2025/01/20/khiara-keating-manchester-city-derby-errors/
