@@ -1,5 +1,9 @@
-**Broken net delays Jannik Sinner and Holger Rune's Australian Open fourth-round match**\
-`Play was delayed for over 20 minutes after a Sinner first serve broke the net.`\
+**'Let’s see who’s better': Bills' defense heard the haters, used motivation to upend Ravens**\
+`The defense peppered the game with big plays that set up the offense.`\
+https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-video-motivation/
+
+**Broken net delays Sinner, Rune's Australian Open fourth-round match**\
+`Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
 https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
 
 **‘Prime Target,’ Plus 7 Things to Watch on TV This Week**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061187/2025/01/20/spurs-everton-postecoglou-levy/
 **The return of the 'Welsh wall' could soften potential Pascal Struijk blow**\
 `Ampadu was man of the match in Leeds' win over Sheffield Wednesday – could history be about to repeat itself?`\
 https://nytimes.com/athletic/6073262/2025/01/20/leeds-sheffield-wednesday-ampadu/
-
-**Suddenly Forest are expected to win - it is a welcome vibe shift they must manage**\
-`It's very different going into matches as favourites, having been underdogs for so long`\
-https://nytimes.com/athletic/6073405/2025/01/20/suddenly-forest-are-expected-to-win-it-is-a-welcome-vibe-shift-they-must-manage/
 

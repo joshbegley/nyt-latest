@@ -1,3 +1,11 @@
+**'Let’s see who’s better': Bills' defense heard the haters, used motivation to upend Ravens**\
+`The defense peppered the game with big plays that set up the offense.`\
+https://nytimes.com/athletic/6074559/2025/01/20/bills-ravens-turnovers-defense-video-motivation/
+
+**Broken net delays Sinner, Rune's Australian Open fourth-round match**\
+`Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
+https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
+
 **Broken net delays Jannik Sinner and Holger Rune's Australian Open fourth-round match**\
 `Play was delayed for over 20 minutes after a Sinner first serve broke the net.`\
 https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
