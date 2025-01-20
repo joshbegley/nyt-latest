@@ -1,3 +1,15 @@
+**Scenes of Elation as Hostages Released, but the Path Ahead Is Uncertain**\
+`Doctors at Sheba Medical Center said the three women are in stable condition, but little is known about what the former captives went through in Gaza.`\
+https://nytimes.com/2025/01/20/world/middleeast/israel-gaza-hostages.html
+
+**Here’s the latest.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/overview
+
+**Airborne Lead and Chlorine Levels Soared as L.A. Wildfires Raged**\
+`The findings give new insight into the dangers of urban wildfires that burn plastics and other chemicals in homes and property.`\
+https://nytimes.com/2025/01/20/climate/los-angeles-wildfires-lead-chlorine-air-quality.html
+
 **Trump to Release Records on the Assassinations of the Kennedys and Martin Luther King**\
 `The president-elect said the move was aimed at improving government transparency.`\
 https://nytimes.com/2025/01/20/us/politics/trump-kennedy-mlk-assassinations-records-release.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/20/business/india-doctor-rape-sentence.html
 **Australian Open recap: Gael Monfils' run ends as Melbourne heat and long matches dash dreams**\
 `The Frenchman's phenomenal run comes to an end on a day that saw incredible exploits catch up to players all over the tournament.`\
 https://nytimes.com/athletic/6074185/2025/01/20/australian-open-recap-gael-monfils/
-
-**Fixing America’s Immigration System**\
-`Readers respond to an editorial with their own suggestions. Also: The benefits of virtual therapy; in praise of solitude; our warming planet.`\
-https://nytimes.com/2025/01/20/opinion/immigration-system.html
-
-**Chelsea set to sign Sarr from BlueCo-owned Strasbourg**\
-`Chelsea are set to sign teenage defender Mamadou Sarr from Strasbourg.`\
-https://nytimes.com/athletic/6074978/2025/01/20/chelsea-transfer-mamadou-sarr-strasbourg/
-
-**How would Kyle Kuzma react if a team wants to trade for him? His answer: 'I don't know'**\
-`Last year, the Wizards' forward didn't want to be traded. This year, his answer might be different.`\
-https://nytimes.com/athletic/6074668/2025/01/20/kyle-kuzma-potential-trade/
 
