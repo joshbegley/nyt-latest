@@ -1,3 +1,7 @@
+**What to Know About the Singers Who Will Perform at the Inauguration**\
+`The country singers Carrie Underwood and Lee Greenwood and the tenor Christopher Macchio are all scheduled to sing at the swearing-in ceremony.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-singers.html
+
 **At Least 80 Dead Amid a New Surge of Violence in Colombia**\
 `Thousands have fled clashes between armed groups on the border with Venezuela, dashing hopes of peace in Colombia.`\
 https://nytimes.com/2025/01/20/world/americas/colombia-catatumbo-rebel-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/world/middleeast/israel-gaza-hostages.html
 **Here’s the latest.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/overview
-
-**Airborne Lead and Chlorine Levels Soared as L.A. Wildfires Raged**\
-`The findings give new insight into the dangers of urban wildfires that burn plastics and other chemicals in homes and property.`\
-https://nytimes.com/2025/01/20/climate/los-angeles-wildfires-lead-chlorine-air-quality.html
 

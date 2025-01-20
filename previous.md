@@ -1,3 +1,7 @@
+**At Least 80 Dead Amid a New Surge of Violence in Colombia**\
+`Thousands have fled clashes between armed groups on the border with Venezuela, dashing hopes of peace in Colombia.`\
+https://nytimes.com/2025/01/20/world/americas/colombia-catatumbo-rebel-violence.html
+
 **‘Starry Night,’ All Night Long, as a Van Gogh Blockbuster Ends**\
 `The National Gallery in London stayed open all night for die-hard fans of the Dutch painter. “Midnight offers more room for reflection,” one attendee said.`\
 https://nytimes.com/2025/01/20/arts/design/van-gogh-national-gallery-all-nighter.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-executive-orders/overview
 **Airborne Lead and Chlorine Levels Soared as L.A. Wildfires Raged**\
 `The findings give new insight into the dangers of urban wildfires that burn plastics and other chemicals in homes and property.`\
 https://nytimes.com/2025/01/20/climate/los-angeles-wildfires-lead-chlorine-air-quality.html
-
-**Trump to Release Records on the Assassinations of the Kennedys and Martin Luther King**\
-`The president-elect said the move was aimed at improving government transparency.`\
-https://nytimes.com/2025/01/20/us/politics/trump-kennedy-mlk-assassinations-records-release.html
 
