@@ -1,3 +1,11 @@
+**Musk Is Likely to Get Office Space in the West Wing**\
+`The world’s richest man had been expected to be situated in the Eisenhower Executive Office Building, but a West Wing office would give him closer access to President Trump.`\
+https://nytimes.com/2025/01/20/us/politics/elon-musk-office-west-wing.html
+
+**‘American Carnage 2: Ultimate Carnage’: Best and Worst Moments From Trump’s Inaugural Address**\
+`Best and Worst Moments From Trump’s Inaugural Address`\
+https://nytimes.com/2025/01/20/opinion/scorecard-best-worst-moments-trump-inaugural-address.html
+
 **Reports of sporadic violence cast a shadow over the Gaza cease-fire.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/reports-of-sporadic-violence-cast-a-shadow-over-the-gaza-cease-fire

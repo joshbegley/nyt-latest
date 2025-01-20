@@ -1,3 +1,7 @@
+**Musk Is Likely to Get Office Space in the West Wing**\
+`The world’s richest man had been expected to be situated in the Eisenhower Executive Office Building, but a West Wing office would give him closer access to President Trump.`\
+https://nytimes.com/2025/01/20/us/politics/elon-musk-office-west-wing.html
+
 **Reports of sporadic violence cast a shadow over the Gaza cease-fire.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/reports-of-sporadic-violence-cast-a-shadow-over-the-gaza-cease-fire
@@ -13,7 +17,7 @@ https://nytimes.com/athletic/6076173/2025/01/20/submit-a-question-for-stewart-ma
 https://nytimes.com/2025/01/20/us/politics/vances-vice-president-legacy.html
 
 **‘American Carnage 2: Ultimate Carnage’: Best and Worst Moments From Trump’s Inaugural Address**\
-`: Best and Worst Moments From Trump’s Inaugural Address`\
+`Best and Worst Moments From Trump’s Inaugural Address`\
 https://nytimes.com/2025/01/20/opinion/scorecard-best-worst-moments-trump-inaugural-address.html
 
 **Tuesday Briefing: Trump Takes Office**\
@@ -35,8 +39,4 @@ https://nytimes.com/2025/01/20/us/politics/general-mark-milley-portrait.html
 **On a Quiet U.S.-Mexico Border, a Feeling of Disquieted Anticipation**\
 `Law enforcement officials and migrants on the U.S.-Mexico border were not sure what might come next, now that President Trump is back.`\
 https://nytimes.com/2025/01/20/us/politics/us-mexico-border-trump.html
-
-**Donald Trump’s Second Inaugural Speech, Annotated**\
-`In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
-https://nytimes.com/interactive/2025/01/20/us/trump-inauguration-speech-annotated.html
 
