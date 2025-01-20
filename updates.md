@@ -1,3 +1,11 @@
+**Better goaltending, better structure: Flyers confident in their game ahead of vital stretch**\
+`After a rough start to the season in net, the Flyers are on a 4-0-1 run backed by confidence and dedication.`\
+https://nytimes.com/athletic/6075948/2025/01/20/flyers-goaltending-ersson-structure-seeler/
+
+**At Inauguration, Melania and Barron Trump Greet a Limelight They Once Avoided**\
+`The returning first lady and Barron Trump, the son she had once shielded from the public eye, used Monday’s inauguration to reintroduce themselves.`\
+https://nytimes.com/2025/01/20/us/politics/baron-melania-trump-inauguration.html
+
 **Elon Musk Ignites Online Speculation Over the Meaning of a Hand Gesture**\
 `Speaking at a celebratory rally in Washington, Mr. Musk twice extended his arm out with his palm facing down, drawing comparisons to the Nazi salute.`\
 https://nytimes.com/2025/01/20/us/politics/elon-musk-hand-gesture-speech.html
