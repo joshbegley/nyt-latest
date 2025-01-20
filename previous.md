@@ -18,8 +18,8 @@ https://nytimes.com/2025/01/20/us/politics/donald-trump-age-oldest-presidents.ht
 `Ohio State is favored by more than a touchdown against Notre Dame in the College Football Playoff National Championship Game.`\
 https://nytimes.com/athletic/6053790/2025/01/20/notre-dame-ohio-state-picks-odds-national-championship-game/
 
-**Olympic Medals From Paris Games Are Falling Apart. Who Is to Blame?**\
-`The medals were designed by a jewelry maker owned by the French luxury conglomerate LVMH, which has declined to comment on their deterioration.`\
+**Paris Olympics Medals Are Tarnishing, Putting LVMH in the Spotlight**\
+`The medals were designed by a jewelry maker owned by the French luxury conglomerate, which has declined to comment on their deterioration.`\
 https://nytimes.com/2025/01/20/business/medals-paris-olympics-lvmh.html
 
 **Scarred, but Still Standing**\
