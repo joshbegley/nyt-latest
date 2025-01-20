@@ -1,3 +1,11 @@
+**Paul Abbate Retires as F.B.I. Acting Director After Wray Departs**\
+`A veteran of the bureau, Mr. Abbate has served as deputy director since early 2021 and took the helm from Christopher A. Wray as the agency faces an uncertain future.`\
+https://nytimes.com/2025/01/20/us/politics/paul-abbate-fbi-director.html
+
+**Watching inside Capital One Arena, the crowd boos Pence and cheers Musk.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/watching-inside-capital-one-arena-the-crowd-plays-favorites-as-guests-appear-on-screen
+
 **Tech Titans and Donors Hit D.C. to Toast Trump’s Inauguration**\
 `Fans of Donald J. Trump spent millions for the opportunity to jump from ballrooms to rooftops for lavish events held across Washington this weekend.`\
 https://nytimes.com/2025/01/20/style/inauguration-weekend-parties-guests-trump.html

@@ -1,8 +1,12 @@
+**Paul Abbate Retires as F.B.I. Acting Director After Wray Departs**\
+`A veteran of the bureau, Mr. Abbate has served as deputy director since early 2021 and took the helm from Christopher A. Wray as the agency faces an uncertain future.`\
+https://nytimes.com/2025/01/20/us/politics/paul-abbate-fbi-director.html
+
 **Tech Titans and Donors Hit D.C. to Toast Trump’s Inauguration**\
 `Fans of Donald J. Trump spent millions for the opportunity to jump from ballrooms to rooftops for lavish events held across Washington this weekend.`\
 https://nytimes.com/2025/01/20/style/inauguration-weekend-parties-guests-trump.html
 
-**Watching inside Capital One Arena, the crowd plays favorites as guests appear on screen.**\
+**Watching inside Capital One Arena, the crowd boos Pence and cheers Musk.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/watching-inside-capital-one-arena-the-crowd-plays-favorites-as-guests-appear-on-screen
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075015/2025/01/20/thomas-tuchel-england-squad/
 **Is this really 'the worst team in the history of Manchester United'?**\
 `Ruben Amorim is right to highlight how bad his team are - but the history books show United have fielded inferior sides in the past`\
 https://nytimes.com/athletic/6075006/2025/01/20/worst-manchester-united-team-ever/
-
-**This Quick Noodle Soup Is Vivid in Every Sense of the Word**\
-`This creamy butternut squash and coconut noodle soup from Christian Reynoso boasts an incredible color and a perfectly calibrated sour-spicy tang.`\
-https://nytimes.com/2025/01/20/dining/quick-noodle-soup.html
 
