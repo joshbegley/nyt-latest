@@ -1,3 +1,7 @@
+**The Deal Maker in Chief Is Back**\
+`The business world is expecting big changes — and potential disruptions — as Donald Trump returns to the White House.`\
+https://nytimes.com/2025/01/20/business/dealbook/trump-president-inauguration-business.html
+
 **The Athletic FC: Prince William's Villa pub trip, Iraola brilliance, worst Man Utd team ever?**\
 `Today in TAFC: the future king of England talks Tielemans and double pivots, Iraola can do no wrong, how bad is this Manchester United team?`\
 https://nytimes.com/athletic/6074849/2025/01/20/prince-william-pub-villa-worst-united-team/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-inauguration-europe-leaders-rig
 **Previously released hostages have described harrowing experiences in captivity.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/previously-released-hostages-have-described-harrowing-experiences-in-captivity
-
-**The Trump Changes Begin**\
-`We cover the start of Donald Trump’s second term.`\
-https://nytimes.com/2025/01/20/briefing/donald-trump-inauguration.html
 
