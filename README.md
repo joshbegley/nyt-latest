@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6075272/2025/01/20/shai-gilgeous-alexander-nikola-j
 `Football isn't fair. There are no guarantees. And as expectations rise, it only hurts that much more when a team falls short. `\
 https://nytimes.com/athletic/6073309/2025/01/20/detroit-lions-dan-campbell-playoffs-commanders/
 
-**Biden Pardons Five Members of His Family in Final Minutes in Office**\
+**Biden Pardons 5 Members of His Family in Final Minutes in Office**\
 `Mr. Biden emphasized that he did not believe his family did anything wrong, but he feared political attacks by Donald J. Trump.`\
 https://nytimes.com/2025/01/20/us/politics/biden-pardons-family.html
 
