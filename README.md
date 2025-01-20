@@ -1,3 +1,11 @@
+**Marco Rubio Is Confirmed by Senate as Secretary of State**\
+`The Florida senator becomes the United States’ 72nd chief diplomat, and the first Latino to hold the job.`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/marco-rubio-confirmed-secretary-of-state
+
+**Small crowds gather in some cities to protest Trump policies.**\
+`By Matthew Eadie, Olivia Bensimon, Grace Gorenflo and Emily Cochrane`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/small-crowds-gather-in-some-cities-to-protest-trump-policies
+
 **Trump Swears Oath Without His Hand on Bible, but He Wasn’t Required To**\
 `The tradition of swearing the oath of office on a Bible stretches back to George Washington, but not all presidents have observed it.`\
 https://nytimes.com/2025/01/20/us/politics/trump-hand-bible-oath.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6076231/2025/01/20/blue-jays-anthony-santander-sign
 **Wild shut down Avalanche's potent offense in impressive road win: 3 takeaways**\
 `The Wild overcame a hot goalie to pick up a rare win against a Western Conference playoff rival.`\
 https://nytimes.com/athletic/6076274/2025/01/20/wild-jiricek-faber-blackwood-avalanche/
-
-**Do Chimps Who Urinate Together Stay Together?**\
-`Scientists suspect that contagious urination, a behavior they observed among a troop of apes in Japan, may play an important role in primate social life.`\
-https://nytimes.com/2025/01/20/science/contagious-peeing-chimps.html
-
-**Raiders turn page on coaching search after losing out to Bears on Ben Johnson**\
-`Johnson seemed like the Raiders' Plan A. Now, where will Mark Davis, Tom Brady and the franchise turn to find their new head coach?`\
-https://nytimes.com/athletic/6076312/2025/01/20/raiders-coaching-search-ben-johnson-bears/
 
