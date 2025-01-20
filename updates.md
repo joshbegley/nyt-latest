@@ -1,3 +1,7 @@
+**At Trump’s Rally, the Contradictions Are in the Music**\
+`The president-elect danced along with Village People as his rally closed with a live performance of “Y.M.C.A.,” after Kid Rock and Lee Greenwood played.`\
+https://nytimes.com/2025/01/19/arts/music/trump-village-people-kid-rock.html
+
 **Sepp Straka cruises to 2-shot win at The American Express**\
 `Straka played with his first 54-hole lead on the PGA Tour on Sunday, and he managed to maintain control of the tournament until the end.`\
 https://nytimes.com/athletic/6074191/2025/01/19/sepp-straka-american-express-pga-tour/
