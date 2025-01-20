@@ -1,4 +1,4 @@
-**After near-misses on big names, Toronto Blue Jays sign OF Anthony Santander**\
+**After near-misses on big names, Blue Jays sign OF Anthony Santander**\
 `Santander, 30, is coming off of a career year with the Orioles, making his first All-Star team and hitting a career-best 44 homers.`\
 https://nytimes.com/athletic/5930845/2025/01/20/anthony-santander-signs-free-agent-deal/
 

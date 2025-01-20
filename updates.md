@@ -1,3 +1,7 @@
+**After near-misses on big names, Blue Jays sign OF Anthony Santander**\
+`Santander, 30, is coming off of a career year with the Orioles, making his first All-Star team and hitting a career-best 44 homers.`\
+https://nytimes.com/athletic/5930845/2025/01/20/anthony-santander-signs-free-agent-deal/
+
 **Paris Olympics Medals Are Tarnishing, Putting LVMH in the Spotlight**\
 `The medals were designed by a jewelry maker owned by the French luxury conglomerate, which has declined to comment on their deterioration.`\
 https://nytimes.com/2025/01/20/business/medals-paris-olympics-lvmh.html
