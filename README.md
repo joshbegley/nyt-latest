@@ -1,3 +1,11 @@
+**After no Biden appointee agreed to take the job, Pentagon taps midlevel official as acting defense secretary.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/after-no-biden-appointee-agreed-to-take-the-job-pentagon-taps-midlevel-official-as-acting-defense-secretary
+
+**Words Used in Donald Trump’s Second Inaugural Address**\
+`Frequently mentioned words in historic speeches from Donald J. Trump to George Washington.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/presidents-inaugural-address-speech.html
+
 **The Debate Over Trump’s Favorite Word Needs a Reset**\
 `Are tariffs good or bad policy? The answer is less simple than you might think.`\
 https://nytimes.com/2025/01/20/opinion/trump-tariffs-trade.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6075697/2025/01/20/the-totally-football-show-nunez-
 **‘We will be stranded.’ Migrants shocked after Trump cancels border appointments.**\
 `In Tijuana, migrants who had scheduled meetings to plead their cases at U.S. ports of entry were devastated to learn the new administration had canceled those appointments and the program that facilitated them.`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/migrants-cbpone-appointments-mexico
-
-**Lions' Dan Campbell expects to lose both coordinators to head-coaching jobs**\
-`Ben Johnson and Aaron Glenn have been hot names this coaching cycle and Detroit's head coach is preparing to have to replace both of them.`\
-https://nytimes.com/athletic/6075828/2025/01/20/lions-dan-campbell-ben-johnson-aaron-glenn-head-coaching/
-
-**Nonprofit Groups Sue Trump Administration Moments After Oath**\
-`Their lawsuits said the so-called Department of Government Efficiency, President Trump’s cost-cutting operation, violated a law requiring federal advisory committees to include a balance of views.`\
-https://nytimes.com/2025/01/20/us/politics/doge-sued-elon-musk-trump.html
 
