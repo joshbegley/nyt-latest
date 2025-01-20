@@ -14,7 +14,7 @@ https://nytimes.com/2025/01/20/us/politics/trump-martin-luther-king.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/20/crosswords/spelling-bee-forum.html
 
-**Broken net delays Sinner, Rune's Australian Open fourth-round match**\
+**'I was lucky today': Broken net helps Jannik Sinner during Holger Rune match**\
 `Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
 https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
 

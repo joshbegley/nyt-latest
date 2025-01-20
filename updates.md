@@ -1,3 +1,7 @@
+**'I was lucky today': Broken net helps Jannik Sinner during Holger Rune match**\
+`Play was delayed for more than 20 minutes after a Sinner serve broke the net.`\
+https://nytimes.com/athletic/6074595/2025/01/20/broken-net-australian-open-sinner-rune-rod-laver-arena/
+
 **Real Madrid 4-1 Las Palmas: Mbappe the 'best centre-forward in the world'**\
 `The Athletic dissects the key talking points from a win that took Real Madrid top of La Liga`\
 https://nytimes.com/athletic/6073859/2025/01/20/real-madrid-mbappe-las-palmas-result/
