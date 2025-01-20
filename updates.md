@@ -1,3 +1,7 @@
+**Trump to Release Records on the Assassinations of the Kennedys and Martin Luther King**\
+`The president-elect said the move was aimed at improving government transparency.`\
+https://nytimes.com/2025/01/20/us/politics/trump-kennedy-mlk-assassinations-records-release.html
+
 **Out of Lakers' arena, Clippers finally host crosstown rivals: 'Felt like home'**\
 `After 25 years of sharing an arena with the Lakers in downtown Los Angeles, the Clippers finally showed them Intuit Dome.`\
 https://nytimes.com/athletic/6074693/2025/01/20/clipper-lakers-rivalry-lebron-james-intuit-dome-wall/
