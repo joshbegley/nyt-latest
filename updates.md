@@ -1,3 +1,11 @@
+**Lions' Dan Campbell expects to lose both coordinators to head-coaching jobs**\
+`Ben Johnson and Aaron Glenn have been hot names this coaching cycle and Detroit's head coach is preparing to have to replace both of them.`\
+https://nytimes.com/athletic/6075828/2025/01/20/lions-dan-campbell-ben-johnson-aaron-glenn-head-coaching/
+
+**The Line in Trump’s Speech That Will Echo in Time**\
+`The niceties of Donald Trump’s first speech as president couldn’t mask the darkness within — or the way he views his mission now.`\
+https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html
+
 **The Line in Trump’s Speech That Will Echo in Time**\
 `By Frank Bruni`\
 https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html

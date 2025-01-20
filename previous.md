@@ -1,3 +1,7 @@
+**Lions' Dan Campbell expects to lose both coordinators to head-coaching jobs**\
+`Ben Johnson and Aaron Glenn have been hot names this coaching cycle and Detroit's head coach is preparing to have to replace both of them.`\
+https://nytimes.com/athletic/6075828/2025/01/20/lions-dan-campbell-ben-johnson-aaron-glenn-head-coaching/
+
 **Nonprofit Groups Sue Trump Administration Moments After Oath**\
 `Their lawsuits said the so-called Department of Government Efficiency, President Trump’s cost-cutting operation, violated a law requiring federal advisory committees to include a balance of views.`\
 https://nytimes.com/2025/01/20/us/politics/doge-sued-elon-musk-trump.html
@@ -11,7 +15,7 @@ https://nytimes.com/live/2025/01/20/us/los-angeles-fires-california/winds-return
 https://nytimes.com/2025/01/20/us/politics/trump-shuts-down-migrant-entry-app-cbp-one.html
 
 **The Line in Trump’s Speech That Will Echo in Time**\
-`By Frank Bruni`\
+`The niceties of Donald Trump’s first speech as president couldn’t mask the darkness within — or the way he views his mission now.`\
 https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html
 
 **Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/style/armani-takes-inspiration-from-armani.html
 **Trump Holds Off on Tariffs, but Paves the Way for Future Trade Action**\
 `The president’s executive action on trade will keep all possibilities on the table, including eventual tariffs against China, Canada and Mexico.`\
 https://nytimes.com/2025/01/20/us/politics/trump-tariffs-executive-order.html
-
-**Transcript: Donald Trump’s Second Inaugural Speech**\
-`In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
-https://nytimes.com/2025/01/20/us/politics/trump-inaugural-speech.html
 
