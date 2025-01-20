@@ -1,3 +1,7 @@
+**Trump says he’ll take action to rename the Gulf of Mexico. It might not be that easy.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-says-hell-take-action-to-rename-the-gulf-of-mexico-it-might-not-be-that-easy
+
 **A Closer Look at Who Attended President Donald J. Trump’s Second Inauguration**\
 `Former presidents, members of Congress, and tech C.E.O.s were among those present to witness Mr. Trump take the oath of office.`\
 https://nytimes.com/interactive/2025/01/20/us/politics/trump-inauguration-attendees.html
