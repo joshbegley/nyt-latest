@@ -1,3 +1,7 @@
+**Trump to Release Records on the Assassinations of the Kennedys and Martin Luther King**\
+`The president-elect said the move was aimed at improving government transparency.`\
+https://nytimes.com/2025/01/20/us/politics/trump-kennedy-mlk-assassinations-records-release.html
+
 **Out of Lakers' arena, Clippers finally host crosstown rivals: 'Felt like home'**\
 `After 25 years of sharing an arena with the Lakers in downtown Los Angeles, the Clippers finally showed them Intuit Dome.`\
 https://nytimes.com/athletic/6074693/2025/01/20/clipper-lakers-rivalry-lebron-james-intuit-dome-wall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074978/2025/01/20/chelsea-transfer-mamadou-sarr-st
 **How would Kyle Kuzma react if a team wants to trade for him? His answer: 'I don't know'**\
 `Last year, the Wizards' forward didn't want to be traded. This year, his answer might be different.`\
 https://nytimes.com/athletic/6074668/2025/01/20/kyle-kuzma-potential-trade/
-
-**In NASCAR, a TikTok ban would have ramifications for a sponsor-reliant sport**\
-`TikTok is a popular platform for drivers to build a following and make a case they're worth the sponsor money that is so vital to the sport.`\
-https://nytimes.com/athletic/6073386/2025/01/20/nascar-tiktok-ban-drivers-sponsors-ryan-vargas/
 
