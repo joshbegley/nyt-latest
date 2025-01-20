@@ -1,3 +1,11 @@
+**Tech Titans and Donors Hit D.C. to Toast Trump’s Inauguration**\
+`Fans of Donald J. Trump spent millions for the opportunity to jump from ballrooms to rooftops for lavish events held across Washington this weekend.`\
+https://nytimes.com/2025/01/20/style/inauguration-weekend-parties-guests-trump.html
+
+**Watching inside Capital One Arena, the crowd plays favorites as guests appear on screen.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/watching-inside-capital-one-arena-the-crowd-plays-favorites-as-guests-appear-on-screen
+
 **Officer Beaten by the Jan. 6 Mob on Is On Duty Again, This Time to Protect Trump**\
 `Officer Daniel Hodges said he had come to grips with the idea that his professional duty now required him to protect a man whose supporters beat him, kicked him and tried to gouge his eyes out in 2021.`\
 https://nytimes.com/2025/01/20/us/politics/officer-jan-6-trump-protection.html

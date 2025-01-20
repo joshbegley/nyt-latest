@@ -1,3 +1,11 @@
+**Tech Titans and Donors Hit D.C. to Toast Trump’s Inauguration**\
+`Fans of Donald J. Trump spent millions for the opportunity to jump from ballrooms to rooftops for lavish events held across Washington this weekend.`\
+https://nytimes.com/2025/01/20/style/inauguration-weekend-parties-guests-trump.html
+
+**Watching inside Capital One Arena, the crowd plays favorites as guests appear on screen.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/watching-inside-capital-one-arena-the-crowd-plays-favorites-as-guests-appear-on-screen
+
 **Officer Beaten by the Jan. 6 Mob on Is On Duty Again, This Time to Protect Trump**\
 `Officer Daniel Hodges said he had come to grips with the idea that his professional duty now required him to protect a man whose supporters beat him, kicked him and tried to gouge his eyes out in 2021.`\
 https://nytimes.com/2025/01/20/us/politics/officer-jan-6-trump-protection.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6075006/2025/01/20/worst-manchester-united-team-eve
 **This Quick Noodle Soup Is Vivid in Every Sense of the Word**\
 `This creamy butternut squash and coconut noodle soup from Christian Reynoso boasts an incredible color and a perfectly calibrated sour-spicy tang.`\
 https://nytimes.com/2025/01/20/dining/quick-noodle-soup.html
-
-**Trump Takes Office as a Newly Minted Crypto Billionaire**\
-`The Trump family’s new crypto tokens, which went on sale over the weekend, have soared in value — along with crypto markets in general.`\
-https://nytimes.com/2025/01/20/business/trump-memcoins-crypto.html
-
-**Religious leaders of different faiths are set to lead inaugural prayers.**\
-`By Elizabeth Dias`\
-https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/religious-leaders-of-different-faiths-are-set-to-lead-inaugural-prayers
 
