@@ -1,3 +1,11 @@
+**The Pulse: Now there are four**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6074516/2025/01/20/lamar-jackson-josh-allen-bills-ravens-the-pulse/
+
+**Inauguration Draws Leaders From Europe’s Right**\
+`Many of the European politicians expected to be in Washington on Monday share President-elect Donald J. Trump’s anti-immigrant stance.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-europe-leaders-right.html
+
 **Inauguration Draws Leaders From Europe’s Right**\
 `Many of the European politicians expected to be in Washington on Monday share President-elect Donald J. Trump’s anti-immigrant stance.`\
 https://nytimes.com/2025/01/20/us/politics/inauguration-draws-leaders-from-europes-right.html
