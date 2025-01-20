@@ -1,6 +1,6 @@
-**Marco Rubio is confirmed by Senate as secretary of state.**\
+**Marco Rubio Is Confirmed by Senate as Secretary of State**\
 `The Florida senator becomes the United States’ 72nd chief diplomat, and the first Latino to hold the job.`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/marco-rubio-confirmed-secretary-of-state
+https://nytimes.com/2025/01/20/us/politics/marco-rubio-confirmed-secretary-of-state.html
 
 **Small crowds gather in some cities to protest Trump policies.**\
 `By Matthew Eadie, Olivia Bensimon, Grace Gorenflo and Emily Cochrane`\
