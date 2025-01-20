@@ -1,3 +1,15 @@
+**Out of Lakers' arena, Clippers finally host crosstown rivals: 'Felt like home'**\
+`After 25 years of sharing an arena with the Lakers in downtown Los Angeles, the Clippers finally showed them Intuit Dome.`\
+https://nytimes.com/athletic/6074693/2025/01/20/clipper-lakers-rivalry-lebron-james-intuit-dome-wall/
+
+**Trump is set to take office with some important work already done.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-is-set-to-take-office-with-some-important-work-already-done
+
+**Here’s the latest.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/heres-the-latest
+
 **Eric Adams to Attend Inauguration After Invite From Trump**\
 `Mayor Eric Adams will attend Donald J. Trump’s inauguration after a last-minute invite. Mr. Trump has said he is considering offering Mr. Adams a pardon in his federal corruption case.`\
 https://nytimes.com/2025/01/20/nyregion/adams-trump-inauguration.html

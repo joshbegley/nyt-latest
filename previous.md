@@ -1,10 +1,18 @@
+**Out of Lakers' arena, Clippers finally host crosstown rivals: 'Felt like home'**\
+`After 25 years of sharing an arena with the Lakers in downtown Los Angeles, the Clippers finally showed them Intuit Dome.`\
+https://nytimes.com/athletic/6074693/2025/01/20/clipper-lakers-rivalry-lebron-james-intuit-dome-wall/
+
+**Trump is set to take office with some important work already done.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/trump-is-set-to-take-office-with-some-important-work-already-done
+
 **Eric Adams to Attend Inauguration After Invite From Trump**\
 `Mayor Eric Adams will attend Donald J. Trump’s inauguration after a last-minute invite. Mr. Trump has said he is considering offering Mr. Adams a pardon in his federal corruption case.`\
 https://nytimes.com/2025/01/20/nyregion/adams-trump-inauguration.html
 
 **Here’s the latest.**\
 `By The New York Times`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders-new/heres-the-latest
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/heres-the-latest
 
 **Life in Prison for Hospital Rape and Murder That Shocked India**\
 `The police had sought the death penalty in a horrific but familiar crime. Its handling by the local authorities had outraged the nation.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6074668/2025/01/20/kyle-kuzma-potential-trade/
 **In NASCAR, a TikTok ban would have ramifications for a sponsor-reliant sport**\
 `TikTok is a popular platform for drivers to build a following and make a case they're worth the sponsor money that is so vital to the sport.`\
 https://nytimes.com/athletic/6073386/2025/01/20/nascar-tiktok-ban-drivers-sponsors-ryan-vargas/
-
-**Defiance is out and deference is in as Trump returns to Washington.**\
-`By Peter Baker`\
-https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/defiance-is-out-and-deference-is-in-as-trump-returns-to-washington
-
-**Jets' plan at centre, the stats behind Comrie's record, Ehlers' future: Mailbag, part 1**\
-`What's the likely outcome for Nikolaj Ehlers, and why doesn't Eric Comrie get run support?`\
-https://nytimes.com/athletic/6071929/2025/01/20/winnipeg-jets-nhl-nikolaj-ehlers-eric-comrie/
 
