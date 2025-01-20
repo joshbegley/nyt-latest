@@ -1,3 +1,15 @@
+**Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
+`Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, ever ounce of their energy is on the task at hand`\
+https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
+
+**FPL: What we learned from Gameweek 22 - target Bournemouth plus Saliba, Solanke worries**\
+`Abdul Rehman breaks down the main FPL talking points from Gameweek 22 so far`\
+https://nytimes.com/athletic/6073933/2025/01/20/fantasy-premier-league-what-we-learned-from-gameweek-22-buy-bournemouth-and-saliba-and-solanke-worries/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Pose your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET).`\
+https://nytimes.com/athletic/6074847/2025/01/20/newcastle-questions-howe-tactics-discussion/
+
 **The Deal Maker in Chief Is Back**\
 `The business world is expecting big changes — and potential disruptions — as Donald Trump returns to the White House.`\
 https://nytimes.com/2025/01/20/business/dealbook/trump-president-inauguration-business.html

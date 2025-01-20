@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6074849/2025/01/20/prince-william-pub-villa-worst-u
 
 **Rotunda Ransacked by Pro-Trump Mob on Jan. 6 Will Be His Inauguration Backdrop**\
 `The large domed expanse, a breathtaking and solemn space in the Capitol, was the scene of mayhem wrought by Trump supporters four years ago. A very different crowd of his backers will be on hand Monday.`\
-https://nytimes.com/2025/01/20/us/politics/rotunda-ransacked-by-pro-trump-mob-on-jan-6-will-be-his-inauguration-backdrop.html
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-capitol-rotunda-jan-6.html
 
 **Appreciate Lamar Jackson's brilliance, even if football cruelty dealt Ravens a loss**\
 `It’s tempting to view quarterbacks through the prism of "Did he win the big one?" But nuance exists, even in the playoffs. `\

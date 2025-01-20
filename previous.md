@@ -1,3 +1,15 @@
+**Inside Novak Djokovic and Carlos Alcaraz's tennis rivalry of the mind**\
+`Alcaraz and Djokovic are highlight reels and attention magnets. When they play each other, ever ounce of their energy is on the task at hand`\
+https://nytimes.com/athletic/6074498/2025/01/20/novak-djokovic-carlos-alcaraz-rivalry-head-to-head-australian-open/
+
+**FPL: What we learned from Gameweek 22 - target Bournemouth plus Saliba, Solanke worries**\
+`Abdul Rehman breaks down the main FPL talking points from Gameweek 22 so far`\
+https://nytimes.com/athletic/6073933/2025/01/20/fantasy-premier-league-what-we-learned-from-gameweek-22-buy-bournemouth-and-saliba-and-solanke-worries/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Pose your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET).`\
+https://nytimes.com/athletic/6074847/2025/01/20/newcastle-questions-howe-tactics-discussion/
+
 **The Deal Maker in Chief Is Back**\
 `The business world is expecting big changes — and potential disruptions — as Donald Trump returns to the White House.`\
 https://nytimes.com/2025/01/20/business/dealbook/trump-president-inauguration-business.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6073832/2025/01/20/nhl-weekend-rankings-mcdavid-can
 **TikTok Got a Reprieve, but Americans and Chinese Are Still on RedNote**\
 `The Chinese social media app, popular in the United States a week after being flooded by TikTok users, has added language translation features.`\
 https://nytimes.com/2025/01/20/business/tiktok-ban-rednote-xiaohongshu-adapts.html
-
-**The Pulse: Now there are four**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6074516/2025/01/20/lamar-jackson-josh-allen-bills-ravens-the-pulse/
-
-**Inauguration Draws Leaders From Europe’s Right**\
-`Many of the European politicians expected to be in Washington on Monday share President-elect Donald J. Trump’s anti-immigrant stance.`\
-https://nytimes.com/2025/01/20/us/politics/trump-inauguration-europe-leaders-right.html
-
-**Previously released hostages have described harrowing experiences in captivity.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/previously-released-hostages-have-described-harrowing-experiences-in-captivity
 
