@@ -1,3 +1,15 @@
+**Nonprofit Groups Sue Trump Administration Moments After Oath**\
+`Their lawsuits said the so-called Department of Government Efficiency, President Trump’s cost-cutting operation, violated a law requiring federal advisory committees to include a balance of views.`\
+https://nytimes.com/2025/01/20/us/politics/doge-sued-elon-musk-trump.html
+
+**As dangerous winds resume, L.A. officials say they are prepared.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/01/20/us/los-angeles-fires-california/winds-return
+
+**Trump Shuts Down Migrant Entry App, Signaling the Start of His Crackdown**\
+`The president moved quickly to cancel the CPB One app, which allowed migrants to schedule appointments to gain entry into the United States, turning away potentially tens of thousands of migrants.`\
+https://nytimes.com/2025/01/20/us/politics/trump-shuts-down-migrant-entry-app-cbp-one.html
+
 **The Line in Trump’s Speech That Will Echo in Time**\
 `By Frank Bruni`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/the-line-in-trumps-speech-that-will-echo-in-time

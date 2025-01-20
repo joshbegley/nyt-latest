@@ -1,18 +1,6 @@
-**Nonprofit Groups Sue Trump Administration Moments After Oath**\
-`Their lawsuits said the so-called Department of Government Efficiency, President Trump’s cost-cutting operation, violated a law requiring federal advisory committees to include a balance of views.`\
-https://nytimes.com/2025/01/20/us/politics/doge-sued-elon-musk-trump.html
-
-**As dangerous winds resume, L.A. officials say they are prepared.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2025/01/20/us/los-angeles-fires-california/winds-return
-
-**Trump Shuts Down Migrant Entry App, Signaling the Start of His Crackdown**\
-`The president moved quickly to cancel the CPB One app, which allowed migrants to schedule appointments to gain entry into the United States, turning away potentially tens of thousands of migrants.`\
-https://nytimes.com/2025/01/20/us/politics/trump-shuts-down-migrant-entry-app-cbp-one.html
-
 **The Line in Trump’s Speech That Will Echo in Time**\
 `By Frank Bruni`\
-https://nytimes.com/live/2025/01/20/opinion/thepoint/the-line-in-trumps-speech-that-will-echo-in-time
+https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html
 
 **Timberwolves' Donte DiVincenzo out indefinitely with big toe injury**\
 `DiVincenzo has a Grade 3 sprain in his left big toe after suffering the injury against the Golden State Warriors last week.`\
@@ -37,4 +25,16 @@ https://nytimes.com/2025/01/20/us/politics/trump-tariffs-executive-order.html
 **Transcript: Donald Trump’s Second Inaugural Speech**\
 `In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
 https://nytimes.com/2025/01/20/us/politics/trump-inaugural-speech.html
+
+**Abdukodir Khusanov to Manchester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we take a look at Abdukodir Khusanov's move to Manchester City`\
+https://nytimes.com/athletic/6050327/2025/01/20/abdukodir-khusanov-man-city-transfer-rating/
+
+**USMNT Player Tracker: Weah downs Milan, Richards' consistency and Adams' 'controlled chaos'**\
+`Our weekly round-up of U.S. players in action in Europe's top leagues looks at Weah's star turn in Italy and Christian Pulisic's fatigue`\
+https://nytimes.com/athletic/6075479/2025/01/20/usmnt-tracker-weah-pulisic-adams-richards/
+
+**FIFA president Infantino attends Trump's inauguration**\
+`FIFA president Gianni Infantino was in attendance for Donald Trump&#8217;s inauguration in Washington D.`\
+https://nytimes.com/athletic/6075661/2025/01/20/fifa-president-trump-inauguration/
 
