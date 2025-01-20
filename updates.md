@@ -1,3 +1,7 @@
+**Victor Wembanyama returns to France, childhood gym as NBA star**\
+`A group of Wembanyama’s former coaches, teammates and trainers greeted him and the Spurs at Palais des Sports Maurice Thorez on Monday.`\
+https://nytimes.com/athletic/6075519/2025/01/20/victor-wembanyama-france-return-nba-spurs/
+
 **Olympic Medals From Paris Games Are Falling Apart. Who Is to Blame?**\
 `The medals were designed by a jewelry maker owned by the French luxury conglomerate LVMH, which has declined to comment on their deterioration.`\
 https://nytimes.com/2025/01/20/business/medals-paris-olympics-lvmh.html
