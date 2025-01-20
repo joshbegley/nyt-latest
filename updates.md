@@ -1,3 +1,11 @@
+**Trump Repeats Inaccurate Claims in Inaugural Remarks**\
+`In his Inaugural Address, President Trump delivered a more tempered version of election talking points. But in remarks afterward, he reprised his grievances about the 2020 election.`\
+https://nytimes.com/2025/01/20/us/politics/trump-fact-check-inaugural-address.html
+
+**Ramaswamy Will Bow Out of Cost-Cutting Project and Run for Governor in Ohio**\
+`The billionaire decided he could not campaign while helping lead the so-called Department of Government Efficiency, but tensions with Elon Musk were also evident.`\
+https://nytimes.com/2025/01/20/us/politics/ramaswamy-doge-ohio-governor.html
+
 **Biden Ends a Half-Century in Public Life on a Somber Note**\
 `“We’re not leaving the fight,” he told supporters and members of his staff as he prepared to leave Washington.`\
 https://nytimes.com/2025/01/20/us/politics/biden-final-day.html
