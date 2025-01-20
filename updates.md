@@ -1,3 +1,15 @@
+**Israel tells its military to prevent West Bank celebrations for released Palestinians.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/israel-tells-its-military-to-prevent-west-bank-celebrations-for-released-palestinians
+
+**After no Biden appointee agreed to take the job, Pentagon taps midlevel official as acting defense secretary.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/after-no-biden-appointee-agreed-to-take-the-job-pentagon-taps-midlevel-official-as-acting-defense-secretary
+
+**Words Used in Donald Trump’s Second Inaugural Address**\
+`Frequently mentioned words in historic speeches from Donald J. Trump to George Washington.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/presidents-inaugural-address-speech.html
+
 **The Debate Over Trump’s Favorite Word Needs a Reset**\
 `Are tariffs good or bad policy? The answer is less simple than you might think.`\
 https://nytimes.com/2025/01/20/opinion/trump-tariffs-trade.html
