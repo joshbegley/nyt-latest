@@ -1,3 +1,7 @@
+**Trump says he’ll take action to rename the Gulf of Mexico. It might not be that easy.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-says-hell-take-action-to-rename-the-gulf-of-mexico-it-might-not-be-that-easy
+
 **A Closer Look at Who Attended President Donald J. Trump’s Second Inauguration**\
 `Former presidents, members of Congress, and tech C.E.O.s were among those present to witness Mr. Trump take the oath of office.`\
 https://nytimes.com/interactive/2025/01/20/us/politics/trump-inauguration-attendees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/climate/trump-paris-agreement-climate.html
 **For Trump, a Vindication for the Man and His Movement**\
 `Donald John Trump took the oath of office again during a ceremony in the Capitol, promising a new “golden age of America” four years after he was evicted by voters.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inauguration.html
-
-**Dan Campbell owns up to whole team loss, plus possible Lions coordinator candidates**\
-`There are several internal possibilities if Aaron Glenn and Ben Johnson leave for head coaching jobs.`\
-https://nytimes.com/athletic/6075784/2025/01/20/lions-loss-dan-campbell-coordinator-candidates/
 
