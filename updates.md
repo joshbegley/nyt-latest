@@ -1,3 +1,7 @@
+**How should the final AP poll react to the 12-team Playoff's results?**\
+`Even with a 12-team College Football Playoff, who’s No. 3 at the end of the season still matters. So does No. 13. And No. 18. And No. 25.`\
+https://nytimes.com/athletic/6073973/2025/01/20/college-football-playoff-ap-poll-rankings/
+
 **Here’s the latest on the cease-fire.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2025/01/20/world/israel-hamas-cease-fire/heres-the-latest-on-the-cease-fire
