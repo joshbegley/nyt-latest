@@ -1,3 +1,7 @@
+**After another season cut short by turnovers, how do Ravens get over the hump?: Takeaways**\
+`Baltimore is now 0-12 in franchise history when losing the turnover battle during the playoffs. `\
+https://nytimes.com/athletic/6073011/2025/01/19/ravens-score-result-takeaways-nfl-afc-divisional-round/
+
 **Allen, Bills edge Ravens 27-25 to reach AFC title game vs. Chiefs: Takeaways**\
 `The MVP candidate threw for a season low in passing yards but rushed for two scores in the AFC divisional round win.`\
 https://nytimes.com/athletic/6073017/2025/01/19/bills-score-result-takeaways-nfl-afc-divisional-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/19/obituaries/claire-van-kampen-dead.html
 **'I overstepped': Presenter apologizes to Djokovic after 'insulting and offensive' comments**\
 `MELBOURNE, Australia — The presenter at the center of Novak Djokovic&#8217;s decision to boycott on-court interviews at the Australian Open has apologized to the 24-time Grand Slam champion, saying that he “overstepped the mark.`\
 https://nytimes.com/athletic/6074099/2025/01/19/novak-djokovic-tony-jones-australian-open-channel-9-interviews/
-
-**Fact-checking Trump’s rally the eve before his inauguration.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2025/01/19/us/trump-inauguration-news/fact-check-trump-rally
 
