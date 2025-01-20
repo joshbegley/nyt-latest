@@ -1,3 +1,7 @@
+**The Line in Trump’s Speech That Will Echo in Time**\
+`By Frank Bruni`\
+https://nytimes.com/2025/01/20/opinion/the-line-in-trumps-speech-that-will-echo-in-time.html
+
 **Nonprofit Groups Sue Trump Administration Moments After Oath**\
 `Their lawsuits said the so-called Department of Government Efficiency, President Trump’s cost-cutting operation, violated a law requiring federal advisory committees to include a balance of views.`\
 https://nytimes.com/2025/01/20/us/politics/doge-sued-elon-musk-trump.html
