@@ -1,3 +1,11 @@
+**‘Starry Night,’ All Night Long, as a Van Gogh Blockbuster Ends**\
+`The National Gallery in London stayed open all night for die-hard fans of the Dutch painter. “Midnight offers more room for reflection,” one attendee said.`\
+https://nytimes.com/2025/01/20/arts/design/van-gogh-national-gallery-all-nighter.html
+
+**West Ham set to reunite Chelsea recruitment analyst with Potter**\
+`West Ham United are closing in on an agreement with Chelsea to reunite Kyle Macaulay with newly-appointed head coach Graham Potter as a recruitment analyst.`\
+https://nytimes.com/athletic/6075194/2025/01/20/west-ham-chelsea-kyle-macaulay/
+
 **Here Are Trump’s Expected Executive Orders**\
 `The incoming president’s team said he would take unilateral action on a variety of fronts during his first hours in office, including 10 executive orders cracking down on immigration and immigrants.`\
 https://nytimes.com/2025/01/20/us/politics/trump-executive-orders-list.html
