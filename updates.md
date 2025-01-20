@@ -1,3 +1,7 @@
+**Trump Announces a Raft of Measures to Promote Fossil Fuels**\
+`The president said he would declare an energy “emergency,” open new land to drilling and end support for electric cars. His pivot to oil and gas comes after the hottest year in recorded history.`\
+https://nytimes.com/2025/01/20/climate/trump-emergency-oil-gas.html
+
 **‘American Carnage 2: Ultimate Carnage’: Best and Worst Moments From Trump’s Inaugural Address**\
 `: Best and Worst Moments From Trump’s Inaugural Address`\
 https://nytimes.com/2025/01/20/opinion/scorecard-best-worst-moments-trump-inaugural-address.html
