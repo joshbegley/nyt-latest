@@ -15,7 +15,7 @@ https://nytimes.com/2025/01/20/science/contagious-peeing-chimps.html
 https://nytimes.com/athletic/6076312/2025/01/20/raiders-coaching-search-ben-johnson-bears/
 
 **‘Golden Age of America Begins,’ Trump Says at Inauguration**\
-`After being sworn in as the 47th President of the United States, President Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
+`After being sworn in as the 47th president of the United States, Donald Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
 https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-ceremony.html
 
 **Pardoned Biden Family Members Were Targets of Republicans**\

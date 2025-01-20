@@ -1,3 +1,7 @@
+**‘Golden Age of America Begins,’ Trump Says at Inauguration**\
+`After being sworn in as the 47th president of the United States, Donald Trump laid out parts of his policy agenda, including taking back the Panama Canal and renaming the Gulf of Mexico to the Gulf of America.`\
+https://nytimes.com/video/us/politics/100000009938159/donald-trump-inauguration-ceremony.html
+
 **Blue Jays get a costly consolation prize in Anthony Santander: Law**\
 `Santander should help the Jays this season, but he is a very poor bet to maintain his productivity through the length of the contract.`\
 https://nytimes.com/athletic/6076231/2025/01/20/blue-jays-anthony-santander-signing-analysis/
