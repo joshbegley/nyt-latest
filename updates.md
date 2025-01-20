@@ -1,3 +1,15 @@
+**Browns QB tracker: Which veteran options in free agency could be intriguing?**\
+`Is there a QB who might realistically fit in Cleveland, and could the team find a starter in free agency if it really wanted to?`\
+https://nytimes.com/athletic/6072043/2025/01/20/browns-quarterback-tracker-2025-free-agents/
+
+**After knocking off Ravens, 'different' Bills turn their attention to all-too-familiar Chiefs**\
+`The previous playoff meetings with the Chiefs are filled with painful memories.`\
+https://nytimes.com/athletic/6074638/2025/01/20/bills-chiefs-afc-championship-game/
+
+**Panthers' offseason to-do list: Fix the run defense, find another receiver**\
+`Carolina head coach Dave Canales and GM Dan Morgan should prioritize strengthening the defensive line, among other things.`\
+https://nytimes.com/athletic/6070777/2025/01/20/panthers-offseason-to-do-list-defensive-line/
+
 **Falcons' offseason to-do list: Fix the defense, figure out free agency, find backup QB**\
 `The Falcons have a lot to do this offseason. These are the five things that should be at the top of that list.`\
 https://nytimes.com/athletic/6070395/2025/01/20/falcons-offseason-to-do-list-2025/
