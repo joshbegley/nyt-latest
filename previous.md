@@ -1,3 +1,19 @@
+**Jayden Daniels' impressive rookie season and what next for the Ravens?**\
+`“Jayden Daniels is in the conversation for the best rookie quarterback I have seen."`\
+https://nytimes.com/athletic/6075339/2025/01/20/the-athletic-football-show-divisional-round-recap/
+
+**AP men's basketball Top 25: Auburn and Duke hold top spots**\
+`Michigan State jumped four spots in the poll while Houston jumped three spots to move well within the top 10`\
+https://nytimes.com/athletic/6075340/2025/01/20/ap-mens-basketball-top-25-poll-auburn-duke-michigan-state/
+
+**Armani Takes Inspiration From … Armani**\
+`As a new generation seeks out vintage Armani on eBay, the label is leaning into its own archive. The Armani renaissance is officially on.`\
+https://nytimes.com/2025/01/20/style/armani-takes-inspiration-from-armani.html
+
+**Trump Holds Off on Tariffs, but Paves the Way for Future Trade Action**\
+`The president’s executive action on trade will keep all possibilities on the table, including eventual tariffs against China, Canada and Mexico.`\
+https://nytimes.com/2025/01/20/us/politics/trump-tariffs-executive-order.html
+
 **Transcript: Donald Trump’s Second Inaugural Speech**\
 `In the first remarks of his second term, President Trump painted a grim portrait of the country while declaring that “the golden age of America begins right now.”`\
 https://nytimes.com/2025/01/20/us/politics/trump-inaugural-speech.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6074372/2025/01/20/jt-miller-canucks-rangers-trade-
 **Trump’s Family Stands by His Side at His Inauguration**\
 `President Trump’s relatives return to Washington with more political and cultural support — and a far better understanding of how to wield their soft power.`\
 https://nytimes.com/2025/01/20/us/politics/trump-family-baron-melania-kids.html
-
-**After near-misses on big names, Blue Jays sign OF Anthony Santander**\
-`Santander, 30, is coming off of a career year with the Orioles, making his first All-Star team and hitting a career-best 44 homers.`\
-https://nytimes.com/athletic/5930845/2025/01/20/anthony-santander-signs-free-agent-deal/
-
-**City confirm Khusanov signing from Lens**\
-`Manchester City have completed the signing of defender Abdukodir Khusanov from Lens.`\
-https://nytimes.com/athletic/6053414/2025/01/20/abdukodir-khusanov-manchester-city-transfer/
-
-**‘There’s Nothing Left’: Gaza Lies in Ruin**\
-`As a pause in fighting came into effect, displaced Gazans took stock of how destroyed their cities were after 15 months of a devastating war.`\
-https://nytimes.com/video/world/middleeast/100000009937428/gaza-destruction-ceasefire-war-israel-hamas.html
-
-**Trump Is the Oldest President to Take the Oath, Again**\
-`Before Joseph R. Biden Jr. was sworn in 2021, Donald J. Trump held the record for the country’s oldest commander in chief. He reclaimed the record on Monday.`\
-https://nytimes.com/2025/01/20/us/politics/donald-trump-age-oldest-presidents.html
 
