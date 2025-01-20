@@ -1,3 +1,15 @@
+**The day it turned toxic: Leicester fans are demanding answers, and rightly so**\
+`Director of football Jon Rudkin, manager Ruud van Nistelrooy and the Leicester board were all criticised by the home support.`\
+https://nytimes.com/athletic/6072807/2025/01/20/rudkin-leicester-fans-protests/
+
+**Ruben Amorim's starting XI is starting to take shape... and there's some bad news**\
+`Brighton illustrated what a well organised club can achieve. United need to learn from that`\
+https://nytimes.com/athletic/6057533/2025/01/20/ruben-amorims-starting-xi-is-starting-to-take-shape-and-theres-some-bad-news/
+
+**Tottenham Hotspur are a club drifting - who is going to take control?**\
+`Ange Postecoglou needs new player to save the season - Tottenham can't just wait for injured players to return`\
+https://nytimes.com/athletic/6061187/2025/01/20/spurs-everton-postecoglou-levy/
+
 **The return of the 'Welsh wall' could soften potential Pascal Struijk blow**\
 `Ampadu was man of the match in Leeds' win over Sheffield Wednesday – could history be about to repeat itself?`\
 https://nytimes.com/athletic/6073262/2025/01/20/leeds-sheffield-wednesday-ampadu/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6072028/2025/01/20/mikel-arteta-tactical-arsenal-in
 **Champions League matchday seven: Who can qualify for the knockout phase? Who could be eliminated?**\
 `Liverpool could seal their place in the top eight but the picture is lot less rosy for Manchester City, Real Madrid and PSG`\
 https://nytimes.com/athletic/6066425/2025/01/20/champions-league-matchday-seven/
-
-**Manchester United's intensity forced City into the errors that sealed historic win**\
-`Coach Marc Skinner ranked this first away win against neighbours Man City as “one of the very best”`\
-https://nytimes.com/athletic/6074018/2025/01/20/manchester-united-city-wsl-pressing/
-
-**Monday Briefing**\
-`The start of a truce in Gaza.`\
-https://nytimes.com/2025/01/20/briefing/israel-gaza-trump.html
-
-**The Briefing: Is Levy the problem at Spurs and what can Man Utd learn from Brighton?**\
-`The major talking points from the Premier League weekend - dissected by Matt Slater`\
-https://nytimes.com/athletic/6073077/2025/01/20/daniel-levy-tottenham-manchester-united-brighton/
 
