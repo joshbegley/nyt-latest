@@ -1,3 +1,7 @@
+**Trump Administration Fires Immigration Judges as Crackdown Begins**\
+`Four immigration court officials were removed from their positions on Monday. It’s unclear who is in charge at this point.`\
+https://nytimes.com/2025/01/20/us/politics/trump-administration-fires-immigration-judges.html
+
 **Trump Promises Americans the Moon (Well, Mars)**\
 `Donald Trump’s pledge-filled speech made him sound like a candidate trying to run up the score.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inauguration-promises.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6076371/2025/01/20/matheus-cunha-wolves-chelsea/
 **In renaming Denali for McKinley, Trump invokes a presidential idol**\
 `The move is likely to face some pushback in Alaska, where the Alaska Native name has long been favored for the continent’s tallest mountain.`\
 https://nytimes.com/2025/01/20/us/politics/denali-mckinley-rename-trump.html
-
-**Trump Is Sworn In as President**\
-`Also, Biden issued several final-hour pardons. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/01/20/briefing/trump-is-sworn-in-as-president.html
 

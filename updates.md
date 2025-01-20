@@ -1,3 +1,7 @@
+**Trump Administration Fires Immigration Judges as Crackdown Begins**\
+`Four immigration court officials were removed from their positions on Monday. It’s unclear who is in charge at this point.`\
+https://nytimes.com/2025/01/20/us/politics/trump-administration-fires-immigration-judges.html
+
 **Trump Promises Americans the Moon (Well, Mars)**\
 `Donald Trump’s pledge-filled speech made him sound like a candidate trying to run up the score.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inauguration-promises.html
