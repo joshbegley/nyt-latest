@@ -1,3 +1,11 @@
+**How Cooper Flagg has cemented his status as 2025's top draft prospect**\
+`What makes Flagg so special, and why is the race for No. 1 essentially over barring a drastic turn of events?`\
+https://nytimes.com/athletic/6072159/2025/01/20/duke-cooper-flagg-nba-draft-top-pick-status/
+
+**Buckeyes big favorites over Fighting Irish for CFP title, according to our experts**\
+`We're down to two teams for the national title. Who will come out on top Monday night in Atlanta?`\
+https://nytimes.com/athletic/6059529/2025/01/20/college-football-playoff-championship-game-predictions-ohio-state-notre-dame/
+
 **Browns QB tracker: Which veteran options in free agency could be intriguing?**\
 `Is there a QB who might realistically fit in Cleveland, and could the team find a starter in free agency if it really wanted to?`\
 https://nytimes.com/athletic/6072043/2025/01/20/browns-quarterback-tracker-2025-free-agents/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6071797/2025/01/20/ohio-state-notre-dame-national-c
 **How Canadiens navigated demanding schedule to gain third-period push against Rangers**\
 `Montreal snapped a string of 16 straight games with travel by finding a reserve of energy to come back and beat New York.`\
 https://nytimes.com/athletic/6074572/2025/01/20/canadiens-third-period-push-against-rangers/
-
-**Four More Years! Four More Years! Wait. Four More Years?**\
-`Meet the new boss. Same as the old boss.`\
-https://nytimes.com/2025/01/20/opinion/trump-inauguration-democrats-republicans.html
-
-**Fighting Has Halted in Gaza, but the War Is Not Over**\
-`Sunday’s delayed start to the truce was a minor problem compared with the difficult choices and American leverage needed to get both parties to the second phase, which could end the war.`\
-https://nytimes.com/2025/01/20/world/europe/fighting-has-halted-in-gaza-but-the-war-is-not-over.html
 
