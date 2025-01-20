@@ -1,3 +1,7 @@
+**How the Eagles leaned into their identity — and Saquon Barkley — to reach NFC title game**\
+`Philadelphia opened the season 2-2. Players say a Week 5 bye sparked a change that has them just one win shy of another Super Bowl trip.`\
+https://nytimes.com/athletic/6074318/2025/01/19/eagles-saquon-barkley-nfc-divisional-win/
+
 **More encouraging Rangers moments over the weekend: 2 games, 3 points, 5 takeaways**\
 `The Rangers couldn't pull off all 4 points in a weekend back-to-back, but they seemed to be heading in the right direction.`\
 https://nytimes.com/athletic/6074345/2025/01/19/rangers-quick-compete-canadiens-blue-jackets/

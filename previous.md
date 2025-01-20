@@ -1,3 +1,7 @@
+**How the Eagles leaned into their identity — and Saquon Barkley — to reach NFC title game**\
+`Philadelphia opened the season 2-2. Players say a Week 5 bye sparked a change that has them just one win shy of another Super Bowl trip.`\
+https://nytimes.com/athletic/6074318/2025/01/19/eagles-saquon-barkley-nfc-divisional-win/
+
 **More encouraging Rangers moments over the weekend: 2 games, 3 points, 5 takeaways**\
 `The Rangers couldn't pull off all 4 points in a weekend back-to-back, but they seemed to be heading in the right direction.`\
 https://nytimes.com/athletic/6074345/2025/01/19/rangers-quick-compete-canadiens-blue-jackets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074191/2025/01/19/sepp-straka-american-express-pga
 **Lions process stunning season-ending loss, focus on offseason during locker room cleanout**\
 `Plus, rookies reflect on their first seasons in the NFL.`\
 https://nytimes.com/athletic/6074145/2025/01/19/lions-locker-room-cleanout-offseason-outlook/
-
-**Claire van Kampen, 71, Playwright and Arranger of Early Music World, Dies**\
-`After she married Mark Rylance, the two often collaborated; her specialty was arranging music for Tudor-era plays. Then she wrote a period piece of her own.`\
-https://nytimes.com/2025/01/19/obituaries/claire-van-kampen-dead.html
 
