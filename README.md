@@ -1,3 +1,11 @@
+**Trump Promises Americans the Moon (Well, Mars)**\
+`Donald Trump’s pledge-filled speech made him sound like a candidate trying to run up the score.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inauguration-promises.html
+
+**A Determined Trump Vows Not to Be Thwarted at Home or Abroad**\
+`Wiser about the use of power, the newly sworn-in president suggests that this time he will not take no for an answer, whether in enacting an ambitious domestic agenda or in his expansionist worldview.`\
+https://nytimes.com/2025/01/20/us/politics/trump-sworn-in-president.html
+
 **Marco Rubio Is Confirmed by Senate as Secretary of State**\
 `The Florida senator becomes the United States’ 72nd chief diplomat, and the first Latino to hold the job.`\
 https://nytimes.com/2025/01/20/us/politics/marco-rubio-confirmed-secretary-of-state.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/denali-mckinley-rename-trump.html
 **Trump Is Sworn In as President**\
 `Also, Biden issued several final-hour pardons. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/01/20/briefing/trump-is-sworn-in-as-president.html
-
-**Blue Jays get a costly consolation prize in Anthony Santander: Law**\
-`Santander should help the Jays this season, but he is a very poor bet to maintain his productivity through the length of the contract.`\
-https://nytimes.com/athletic/6076231/2025/01/20/blue-jays-anthony-santander-signing-analysis/
-
-**Wild shut down Avalanche's potent offense in impressive road win: 3 takeaways**\
-`The Wild overcame a hot goalie to pick up a rare win against a Western Conference playoff rival.`\
-https://nytimes.com/athletic/6076274/2025/01/20/wild-jiricek-faber-blackwood-avalanche/
 
