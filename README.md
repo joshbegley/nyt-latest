@@ -1,3 +1,27 @@
+**A Nobel Laureate Who Mines Her Country’s Nightmares, and Her Own**\
+`Han Kang’s latest novel, about a South Korean massacre, delves into why atrocities must be remembered. “It’s pain and it is blood, but it’s the current of life,” she said.`\
+https://nytimes.com/2025/01/21/world/asia/han-kang-jeju-book.html
+
+**Hostages Are Being Freed. Some Israelis Ask: At What Cost?**\
+`More than 30 hostages are set to be released during the cease-fire in Gaza. But many Israelis have mixed feelings about the deal because they feel it came at a high price.`\
+https://nytimes.com/2025/01/21/world/europe/gaza-israel-hostages-ambivalence.html
+
+**Jake Ciely’s 2024 fantasy football RB projections review: Calling the Rachaad White letdown, missing James Cook TD monster**\
+`Jake Ciely reviews his running back projections for 2024 and details the reasons behind his hits (Rachaad White) and misses (James Cook).`\
+https://nytimes.com/athletic/6068498/2025/01/21/jake-cielys-2024-fantasy-football-rb-projections-review-calling-the-rachaad-white-letdown-missing-james-cook-td-monster-and-more/
+
+**Liverpool vs Lille in Champions League: Storylines, odds, prediction**\
+`Liverpool are top of both the Premier League and the Champions League tables and take on a Lille side also among the top eight in the UCL.`\
+https://nytimes.com/athletic/6075840/2025/01/21/liverpool-lille-preview-odds-prediction-champions-league/
+
+**India’s Economy Slows Down Just When It Was Supposed to Speed Up**\
+`Industrial growth, the stock market and the rupee are sinking, and most consumers earn too little to buoy them, stymieing India’s drive to become a developed economy.`\
+https://nytimes.com/2025/01/21/business/indian-economy-rupee.html
+
+**Quote of the Day: Portrait of U.S. Is Even Bleaker, But Cure, One Man, Is the Same**\
+`Quotation of the Day for Tuesday, January 21, 2025`\
+https://nytimes.com/2025/01/20/pageoneplus/quote-of-the-day-portrait-of-us-is-even-bleaker-but-cure-one-man-is-the-same.html
+
 **Trump Moves to End Entry Program for Migrants From 4 Nations**\
 `The president sought to end a program that allowed migrants fleeing Cuba, Nicaragua, Venezuela and Haiti to fly into the United States and remain in the country for up to two years.`\
 https://nytimes.com/2025/01/20/us/politics/migrant-flights-us-trump-program.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6076896/2025/01/20/columbus-blue-jackets-streak-end
 **2025-26 college football national title odds: Ohio State opens as favorite to defend crown**\
 `Ohio State opened as the favorite to defend its national title, leading a field of contenders that mostly have questions at quarterback.`\
 https://nytimes.com/athletic/6064739/2025/01/20/2026-college-football-national-title-odds-ohio-state-texas-georgia/
-
-**College Football Playoff 2024 projections: How big of a favorite is Ohio State vs. Notre Dame?**\
-`Who will win the first 12-team College Football Playoff? Here's our model's predictions for Ohio State vs. Notre Dame.`\
-https://nytimes.com/athletic/5701128/2025/01/20/college-football-playoff-projections-odds/
-
-**How Ohio State downed Notre Dame for first championship in 10 years**\
-`The longest college football season ever, starting in August and ending on Inauguration Day, became an Ohio State coronation.`\
-https://nytimes.com/athletic/6076854/2025/01/20/ohio-state-notre-dame-cfp-national-championship-result/
-
-**Latin American Leaders Welcome and Warn Trump**\
-`Several chafed at his plans as President Trump enacted immigration measures affecting their countries and vowed to impose tariffs on Mexico and Canada.`\
-https://nytimes.com/2025/01/20/world/americas/latin-america-trump-reaction.html
-
-**'This is normal': Steve Kerr isn't worried about challenges facing Celtics**\
-`Kerr provided his perspective hours before Golden State was soundly defeated by Boston, 125-85.`\
-https://nytimes.com/athletic/6076849/2025/01/20/celtics-steve-kerr-warriors/
-
-**Maple Leafs report cards: Routine play executed well tops Lightning**\
-`The Leafs led the Lightning all game with a solid if unspectacular performance.`\
-https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightning-matthews-nylander/
-
-**Trump declared an emergency at the southern border. Here’s what that means.**\
-`Invoking presidential emergency powers gives the president the ability to go around Congress and unlock federal funding to crack down at the border.`\
-https://nytimes.com/2025/01/20/us/politics/trump-border-emergency-declaration-immigration.html
 
