@@ -1,3 +1,15 @@
+**States Sued to Stop Trump’s Birthright Citizenship Order**\
+`Also, Jan. 6 defendants were set free. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/21/briefing/lawsuit-trump-birthright-citizenship-snow-gulf-coast.html
+
+**What Trump’s Pledge to Plant the U.S. Flag on Mars Really Means**\
+`The president’s Inaugural Address linked landing on the Red Planet with Manifest Destiny, but left many of the specifics unclear.`\
+https://nytimes.com/2025/01/21/science/trump-mars-flag.html
+
+**Bishop Tells Trump to ‘Have Mercy’ on Immigrants and Gay Children**\
+`The direct appeal to President Trump at the start of the first full day of his presidency was a remarkable moment at a National Cathedral event that has not historically been political.`\
+https://nytimes.com/2025/01/21/us/politics/trump-bishop.html
+
 **The Briefing: Benfica 4 Barca 5 - Late winner, Szczesny errors, a hat-trick and an own goal in thriller**\
 `Jack Lang and Mark Carey break down the action from a ridiculous encounter at Estadio da Luz`\
 https://nytimes.com/athletic/6075369/2025/01/21/benfica-barcelona-champions-league/

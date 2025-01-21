@@ -1,3 +1,15 @@
+**States Sued to Stop Trump’s Birthright Citizenship Order**\
+`Also, Jan. 6 defendants were set free. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/21/briefing/lawsuit-trump-birthright-citizenship-snow-gulf-coast.html
+
+**What Trump’s Pledge to Plant the U.S. Flag on Mars Really Means**\
+`The president’s Inaugural Address linked landing on the Red Planet with Manifest Destiny, but left many of the specifics unclear.`\
+https://nytimes.com/2025/01/21/science/trump-mars-flag.html
+
+**Bishop Tells Trump to ‘Have Mercy’ on Immigrants and Gay Children**\
+`The direct appeal to President Trump at the start of the first full day of his presidency was a remarkable moment at a National Cathedral event that has not historically been political.`\
+https://nytimes.com/2025/01/21/us/politics/trump-bishop.html
+
 **Josh McDaniels returning to Patriots as OC under Mike Vrabel: Source**\
 `McDaniels returns to New England for his third stint with the franchise, this time to work with talented young quarterback Drake Maye.`\
 https://nytimes.com/athletic/6078010/2025/01/21/patriots-josh-mcdaniels-offensive-coordinator/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/ne
 **Vikings, HC Kevin O'Connell agree to multi-year extension**\
 `O'Connell, 39, lands a contract extension after guiding Vikings to 14-3 record with Sam Darnold at quarterback.`\
 https://nytimes.com/athletic/6079150/2025/01/21/vikings-head-coach-kevin-oconnell-extension/
-
-**The Briefing: Benfica 4 Barca 5 - Late winner, Szczesny errors, a hat-trick and an own goal in thriller**\
-`Jack Lang and Mark Carey break down the action from a ridiculous encounter at Estadio da Luz`\
-https://nytimes.com/athletic/6075369/2025/01/21/benfica-barcelona-champions-league/
-
-**Trump Wants to Unleash Energy, as Long as It’s Not Wind or Solar**\
-`Legal experts said the president was testing the boundaries of executive power with aggressive orders designed to stop the country from transitioning to renewable energy.`\
-https://nytimes.com/2025/01/21/climate/trump-energy-fossil-fuels.html
-
-**Documenting a Historic Return: Photos of Trump’s Day 1**\
-`A New York Times photographer followed President Trump for more than 18 hours on Inauguration Day. Here’s what he saw.`\
-https://nytimes.com/2025/01/21/us/politics/trump-photos-inauguration-day.html
 
