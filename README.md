@@ -1,3 +1,15 @@
+**The secrets of scouting: 'Four corners', watching warm-ups and personality profiling**\
+`As clubs scramble to complete transfers this month, what goes into tracking players in 2025?`\
+https://nytimes.com/athletic/6066430/2025/01/21/football-transfers-scouting-secrets/
+
+**Lamine Yamal, the brand, and how Adidas used Lionel Messi to help sign Barcelona superstar**\
+`Yamal has established himself as one of the best players in the world at the age of 17 and big brands are queing up to be part of his rise`\
+https://nytimes.com/athletic/6059238/2025/01/21/lamine-yamal-adidas-messi-deal-beats-unicef/
+
+**Ten years on: Revisiting Odegaard's Real Madrid move - and why it did not work out**\
+`The Norwegian signed for the Spanish giants as a 16-year-old amid huge media interest but had a difficult time in Madrid`\
+https://nytimes.com/athletic/6074868/2025/01/21/martin-odegaard-real-madrid/
+
 **2 Americans Held in Afghanistan Are Freed in Prisoner Swap**\
 `In exchange, the Biden administration released an Afghan man convicted on narcotics charges in 2008.`\
 https://nytimes.com/2025/01/21/us/politics/americans-taliban-prisoner-swap.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/21/world/asia/han-kang-jeju-book.html
 **Hostages Are Being Freed. Some Israelis Ask: At What Cost?**\
 `More than 30 hostages are set to be released during the cease-fire in Gaza. But many Israelis have mixed feelings about the deal because they feel it came at a high price.`\
 https://nytimes.com/2025/01/21/world/europe/gaza-israel-hostages-ambivalence.html
-
-**Jake Ciely’s 2024 fantasy football RB projections review: Calling the Rachaad White letdown, missing James Cook TD monster**\
-`Jake Ciely reviews his running back projections for 2024 and details the reasons behind his hits (Rachaad White) and misses (James Cook).`\
-https://nytimes.com/athletic/6068498/2025/01/21/jake-cielys-2024-fantasy-football-rb-projections-review-calling-the-rachaad-white-letdown-missing-james-cook-td-monster-and-more/
-
-**Liverpool vs Lille in Champions League: Storylines, odds, prediction**\
-`Liverpool are top of both the Premier League and the Champions League tables and take on a Lille side also among the top eight in the UCL.`\
-https://nytimes.com/athletic/6075840/2025/01/21/liverpool-lille-preview-odds-prediction-champions-league/
-
-**India’s Economy Slows Down Just When It Was Supposed to Speed Up**\
-`Industrial growth, the stock market and the rupee are sinking, and most consumers earn too little to buoy them, stymieing India’s drive to become a developed economy.`\
-https://nytimes.com/2025/01/21/business/indian-economy-rupee.html
 
