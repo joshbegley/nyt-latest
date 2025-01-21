@@ -1,3 +1,11 @@
+**Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
+`Shortly after taking office Monday, the president issued the order to delay the app’s ban by at least 75 days. The law went into effect on Sunday.`\
+https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html
+
+**Trump singles out the I.R.S. work force in his hiring freeze executive order.**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-singles-out-the-irs-work-force-in-his-hiring-freeze-executive-order
+
 **How Every Senator Voted to Confirm Marco Rubio as Secretary of State**\
 `The Senate unanimously approved Mr. Rubio in the first vote on President Trump’s cabinet selections.`\
 https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/nyregion/new-jersey-murphy-congestion-pricing-tru
 **Oilers' Connor McDavid suspended 3 games for cross-checking Conor Garland**\
 `McDavid received a match penalty in Saturday's game, meaning a suspension was all but inevitable.`\
 https://nytimes.com/athletic/6075192/2025/01/20/connor-mcdavid-suspended-oilers-canucks-conor-garland/
-
-**Senate Passes Border Crackdown Bill, Teeing Up Final House Vote**\
-`The measure, which increases deportations for undocumented migrants charged with crimes, is likely to be the first bill to reach President Trump’s desk. It must pass one more House vote to clear Congress.`\
-https://nytimes.com/2025/01/20/us/politics/senate-passes-border-crackdown-bill.html
-
-**Trump Administration Fires Immigration Court Officials as Crackdown Begins**\
-`Four immigration court officials were removed from their positions on Monday. It’s unclear who is in charge at this point.`\
-https://nytimes.com/2025/01/20/us/politics/trump-administration-fires-immigration-judges.html
 
