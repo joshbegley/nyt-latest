@@ -1,3 +1,7 @@
+**The Briefing: Benfica 4 Barca 5 - Late winner, Szczesny errors, a hat-trick and an own goal in thriller**\
+`Jack Lang and Mark Carey break down the action from a ridiculous encounter at Estadio da Luz`\
+https://nytimes.com/athletic/6075369/2025/01/21/benfica-barcelona-champions-league/
+
 **Josh McDaniels returning to Patriots as OC under Mike Vrabel: Source**\
 `McDaniels returns to New England for his third stint with the franchise, this time to work with talented young quarterback Drake Maye.`\
 https://nytimes.com/athletic/6078010/2025/01/21/patriots-josh-mcdaniels-offensive-coordinator/

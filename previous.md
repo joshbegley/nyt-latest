@@ -27,7 +27,7 @@ https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/ne
 https://nytimes.com/athletic/6079150/2025/01/21/vikings-head-coach-kevin-oconnell-extension/
 
 **The Briefing: Benfica 4 Barca 5 - Late winner, Szczesny errors, a hat-trick and an own goal in thriller**\
-`Jack Lang and Mark Carey break down the action from a ridiculous encounter at Estadio da Luz.`\
+`Jack Lang and Mark Carey break down the action from a ridiculous encounter at Estadio da Luz`\
 https://nytimes.com/athletic/6075369/2025/01/21/benfica-barcelona-champions-league/
 
 **Trump Wants to Unleash Energy, as Long as It’s Not Wind or Solar**\
