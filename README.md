@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/21/us/politics/trump-us-attorneys-justice-department
 https://nytimes.com/2025/01/21/nyregion/hochul-state-budget-ny.html
 
 **Fire Kills Dozens of People at Turkish Ski Resort**\
-`At least 66 people were killed and several others injured in a blaze that broke out overnight at the 12-story Grand Kartal Hotel in Kartalkaya, Turkey.`\
+`At least 76 people were killed and several others injured in a blaze that broke out overnight at the 12-story Grand Kartal Hotel in Kartalkaya, Turkey.`\
 https://nytimes.com/video/world/europe/100000009939455/turkey-ski-resort-hotel-fire-kartalkaya.html
 
 **David Lynch’s Enchanting Sound Worlds**\
