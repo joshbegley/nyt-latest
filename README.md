@@ -1,3 +1,11 @@
+**Manchester United transfers: Why Amorim wants Dorgu, Rashford's options and other possible deals**\
+`United are attempting to give coach Ruben Amorim the wing-backs he needs but it is proving a very tricky transfer window`\
+https://nytimes.com/athletic/6076243/2025/01/21/manchester-united-transfers-dorgu-rashford/
+
+**The Transfer DealSheet: The latest on your club and the January window**\
+`Welcome to the third January edition of The Transfer DealSheet — our team of dedicated writers will take you inside the market`\
+https://nytimes.com/athletic/6074946/2025/01/21/arsenal-manchester-united-transfer-news-latest-liverpool-real-madrid-january/
+
 **Why Chelsea are looking to add another winger to their ranks**\
 `With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a left-sided winger is on their wish list`\
 https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6031809/2025/01/21/goran-ivanisevic-quits-elena-ryb
 **President Trump, You Can Remake the Middle East if You Dare**\
 `While the wages of success in the region will be enormous, the consequences of failure will be utterly hellish.`\
 https://nytimes.com/2025/01/21/opinion/trump-middle-east.html
-
-**Trump Dreams of a New American Empire**\
-`He is tapping into a vision of a United States that is forever growing, forever moving outward.`\
-https://nytimes.com/2025/01/21/opinion/trump-american-empire-panama.html
-
-**Ryan Donato's relentless attack mentality makes him an intriguing Blackhawks trade chip**\
-`Chicago's other players will likely generate more interest at the trade deadline, but Donato can beat them all for sheer effort.`\
-https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-trade-chip-hurricanes/
 
