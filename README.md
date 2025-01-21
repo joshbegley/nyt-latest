@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6076243/2025/01/21/manchester-united-transfers-dorg
 https://nytimes.com/athletic/6074946/2025/01/21/arsenal-manchester-united-transfer-news-latest-liverpool-real-madrid-january/
 
 **Why Chelsea are looking to add another winger to their ranks**\
-`With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a left-sided winger is on their wish list`\
+`With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a right-footed winger on their wish list`\
 https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
 
 **Without Rakell, Penguins dominate Kings for impressive victory: Yohe's 10 observations**\
