@@ -1,3 +1,11 @@
+**Murillo signs new long-term Forest contract**\
+`Brazilian defender Murillo has signed a new four-and-a-half-year contract with Nottingham Forest.`\
+https://nytimes.com/athletic/6075550/2025/01/21/nottingham-forest-murillo-contract/
+
+**In the Sun Belt, There’s Never a Snowplow Around When You Need One**\
+`As Gov. Ron DeSantis of Florida noted, “We’re not necessarily used to walking in a winter wonderland here.”`\
+https://nytimes.com/2025/01/21/weather/snow-plows-trucks-texas-florida.html
+
 **Heat Today: After a slow NBA adjustment, 7-footer Kel'el Ware is raising Miami's ceiling**\
 `Kel'el Ware's adjustment to the Heat rotation has been gradual, but it's paying dividends.`\
 https://nytimes.com/athletic/6078105/2025/01/21/kelel-ware-bam-adebayo-tyler-herro-jimmy-butler-heat-nba/
