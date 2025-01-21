@@ -1,3 +1,15 @@
+**Leicester fan survey: Let us know your views on the club's current situation**\
+`With issues on and off the field, we want to know your views on what's going on at Leicester`\
+https://nytimes.com/athletic/6077519/2025/01/21/leicester-fan-survey-transfers-ownership-manager/
+
+**Ohio State senior class ends bumpy ride with a national title: 'This bonds us for life'**\
+`Ohio State's seniors arrived with great expectations. They will leave Columbus with a national championship.`\
+https://nytimes.com/athletic/6077565/2025/01/21/ohio-state-seniors-national-championship/
+
+**NFL divisional round coaching decisions: Commanders' Kliff Kingsbury rises to challenge**\
+`Also, Eagles DC Vic Fangio used a timely counter, the Bills sold out on Derrick Henry and the Lions' mistakes compounded D's injury issues.`\
+https://nytimes.com/athletic/6075710/2025/01/21/nfl-divisional-round-results-scores-coaching-decisions/
+
 **Who is to blame for Tottenham's rut?**\
 `Jack Pitt-Brooke ponders how to end Tottenham's slump on The Athletic FC Podcast`\
 https://nytimes.com/athletic/6077517/2025/01/21/athletic-fc-podcast-tottenham-postecoglou/

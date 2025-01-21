@@ -1,3 +1,15 @@
+**Leicester fan survey: Let us know your views on the club's current situation**\
+`With issues on and off the field, we want to know your views on what's going on at Leicester`\
+https://nytimes.com/athletic/6077519/2025/01/21/leicester-fan-survey-transfers-ownership-manager/
+
+**Ohio State senior class ends bumpy ride with a national title: 'This bonds us for life'**\
+`Ohio State's seniors arrived with great expectations. They will leave Columbus with a national championship.`\
+https://nytimes.com/athletic/6077565/2025/01/21/ohio-state-seniors-national-championship/
+
+**NFL divisional round coaching decisions: Commanders' Kliff Kingsbury rises to challenge**\
+`Also, Eagles DC Vic Fangio used a timely counter, the Bills sold out on Derrick Henry and the Lions' mistakes compounded D's injury issues.`\
+https://nytimes.com/athletic/6075710/2025/01/21/nfl-divisional-round-results-scores-coaching-decisions/
+
 **Who is to blame for Tottenham's rut?**\
 `Jack Pitt-Brooke ponders how to end Tottenham's slump on The Athletic FC Podcast`\
 https://nytimes.com/athletic/6077517/2025/01/21/athletic-fc-podcast-tottenham-postecoglou/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6066869/2025/01/21/minnesota-twins-front-office-hib
 **2025 NFL Draft consensus Big Board: Which players have climbed into the top 50?**\
 `As the 2025 NFL Draft class takes shape, let's take stock of which prospects are likely to dominate the early round conversation.`\
 https://nytimes.com/athletic/6076102/2025/01/21/nfl-draft-2025-consensus-rankings-tyler-warren/
-
-**How Oilers' John Klingberg got healthy and ready to play in the NHL again**\
-`Klingberg said he’ll have to readjust to the pace of the league but feels much better now about being able to handle it.`\
-https://nytimes.com/athletic/6076439/2025/01/21/john-klingberg-oilers-hip-return/
-
-**Arsenal live Q&A: Our club correspondent Jordan Campbell answers your questions**\
-`Get your questions in now for Jordan Campbell and he will join between 4pm and 5pm GMT (11am to 12pm ET) to answer as many as he can`\
-https://nytimes.com/athletic/6075775/2025/01/21/arsenal-questions-arteta-transfers/
-
-**Ryan Day's family celebrates a long-awaited triumph after a trying season**\
-`As much as Ohio State's passionate supporters — and some within the media — had written off Day, his family and his team never lost hope.`\
-https://nytimes.com/athletic/6076258/2025/01/21/ryan-day-ohio-state-notre-dame-cfp/
 
