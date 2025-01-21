@@ -1,3 +1,15 @@
+**The Gulf Coast Storm Will Soon Blanket Southern Beaches With Snow**\
+`As the system moves around the coast, it should bring a wintry mix of snow, sleet and freezing rain to the Florida Panhandle.`\
+https://nytimes.com/2025/01/21/weather/snow-storm-forecast-georgia-florida.html
+
+**As Trump Takes Office, Zelensky Urges Europe to Stand Firm Against Russia**\
+`Speaking a day after Trump’s inauguration, Ukraine’s president told world leaders at Davos that Europe needs to remain united and “learn how to take care of itself.”`\
+https://nytimes.com/2025/01/21/world/europe/ukraine-zelensky-us-europe.html
+
+**Trump’s Order to End E.V. Subsidies Draws Pushback and Doubt**\
+`Automakers and even some Republicans may fight to preserve funds, and environmental activists will likely sue, but some experts said that some changes may not survive legal challenges.`\
+https://nytimes.com/2025/01/21/business/trump-ev-subsidies.html
+
 **Joel Paley, Writer of ‘Ruthless,’ an Off Broadway Hit, Dies at 69**\
 `The show, with music by Marvin Laird, portrayed a schoolgirl’s murderous theatrical ambition. Paley also performed in the parody dance group Les Ballets Trockadero.`\
 https://nytimes.com/2025/01/21/theater/joel-paley-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6066943/2025/01/21/champions-league-knockout-play-o
 **Trump Is at the Peak of His Power. The Question Is for How Long.**\
 `Republicans are defined today more by a single man than perhaps either party has been in decades, even as the clock starts ticking on Donald Trump’s tenure.`\
 https://nytimes.com/2025/01/21/us/politics/trump-power-era.html
-
-**Supreme Court Questions Prosecutors’ Focus on Sex in Capital Case**\
-`The court instructed an appeals court to reconsider whether lurid evidence tainted the trial of Brenda Andrew, the only woman on Oklahoma’s death row.`\
-https://nytimes.com/2025/01/21/us/supreme-court-sex-capital-case.html
-
-**Novak Djokovic and Carlos Alcaraz's generational tennis rivalry descends into a fever dream**\
-`What promised to be the next chapter in a phenomenal rivalry was overcome by strangeness on Rod Laver Arena in Melbourne`\
-https://nytimes.com/athletic/6078131/2025/01/21/novak-djokovic-carlos-alcaraz-tennis-rivalry-australian-open-quarterfinal/
-
-**Dodgers in serious discussions with veteran reliever Kirby Yates**\
-`Yates had a 1.17 ERA and a 2.50 FIP in 61 appearances for the Texas Rangers last season. `\
-https://nytimes.com/athletic/6078354/2025/01/21/dodgers-discussions-kirby-yates-reliever/
 
