@@ -1,3 +1,7 @@
+**Trump Plans to Announce $100 Billion A.I. Initiative**\
+`OpenAI, Oracle and SoftBank are planning to form a new joint venture called Stargate to invest in data centers, building on major U.S. investments in the technology.`\
+https://nytimes.com/2025/01/21/technology/trump-openai-stargate-artificial-intelligence.html
+
 **Rubio Oversees Halt to Foreign Aid and Meets With Asian Diplomats on Day 1**\
 `Marco Rubio told State Department employees that changes under President Trump “are not meant to be destructive, they’re not meant to be punitive.”`\
 https://nytimes.com/2025/01/21/us/politics/marco-rubio-trump-administration.html
