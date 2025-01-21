@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: The Lane Hutson bounce-back, 200-foot Alex Newhook and more**\
+`Also in this week's notebook, a gaffe early against the Rangers, St. Louis on the early season negativity, Suzuki on Slafkovský's progress.`\
+https://nytimes.com/athletic/6077278/2025/01/21/canadiens-lane-hutson-alex-newhook-rangers/
+
 **3 Small Fires Break Out in San Diego Area, Forcing Evacuations**\
 `The blazes ignited in San Diego County early Tuesday, keeping Southern California on edge as dangerous fire conditions persisted.`\
 https://nytimes.com/2025/01/21/us/california-fires-pala-lilac-riverview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6057966/2025/01/21/premier-leauge-ligue-1-france-tr
 **Is Zach Wilson primed for second starting chance after reset year with Broncos?**\
 `Wilson was a valuable member of Denver's QB room during "a year away from the stress" in 2024.`\
 https://nytimes.com/athletic/6075119/2025/01/21/zach-wilson-broncos-free-agent/
-
-**Bayern confirm signing of Hoffenheim's Bischof, 19, on pre-contract deal**\
-`Bayern Munich have announced the signing of midfielder Tom Bischof from Hoffenheim on a pre-contract agreement.`\
-https://nytimes.com/athletic/6077613/2025/01/21/bayern-munich-transfers-tom-bischof-contract/
 
