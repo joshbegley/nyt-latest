@@ -1,5 +1,9 @@
 **Garth Hudson, Multifaceted Musician With the Band, Dies at 87**\
 `He was the last surviving original member of one of the most influential groups of the 1960s and ’70s, with their blend of rock, r&b and country.`\
+https://nytimes.com/2025/01/21/arts/music/garth-hudson-dead.html
+
+**Garth Hudson, Multifaceted Musician With the Band, Dies at 87**\
+`He was the last surviving original member of one of the most influential groups of the 1960s and ’70s, with their blend of rock, r&b and country.`\
 https://nytimes.com/2025/01/21/obituaries/garth-hudson-multifaceted-musician-with-the-band-dies-at-87.html
 
 **Watch: The 'Until Saturday' reaction podcast — Ohio State wins the crown!**\
