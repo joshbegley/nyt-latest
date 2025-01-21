@@ -1,3 +1,11 @@
+**Oilers' Connor McDavid won't appeal 3-game suspension: Sources**\
+`McDavid received the supplemental discipline after cross-checking Vancouver Canucks forward Conor Garland late in Saturday's game`\
+https://nytimes.com/athletic/6078472/2025/01/21/oilers-connor-mcdavid-suspension-appeal/
+
+**I Spent Trump’s Inauguration in Ukraine. This Is What I Saw.**\
+`“And Panama!” a Ukrainian military analyst said. “What did calm, peaceful Panama do?”`\
+https://nytimes.com/2025/01/21/opinion/i-spent-trumps-inauguration-in-ukraine-this-is-what-i-saw.html
+
 **Top fantasy basketball targets, Ja Morant and the Grizzlies' new game plan**\
 `Stan Son checks in on the Memphis Grizzlies and gives advice on which players to grab as the fantasy landscape shifts. `\
 https://nytimes.com/athletic/6077999/2025/01/21/fantasy-basketball-targets-ja-morant/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6078499/2025/01/21/angel-city-fc-signs-alanna-kenne
 **Guinness, Scotch eggs and Notre Dame football. The only thing missing was an Irish victory**\
 `Notre Dame fans flocked to local establishments to watch their beloved Fighting Irish play for the national championship. `\
 https://nytimes.com/athletic/6078363/2025/01/21/notre-dame-fans-south-bend-ohio-state/
-
-**Bimla Bissell, Vital Aide to Four U.S. Ambassadors to India, Dies at 92**\
-`Her house was a hub for generations of heads of state, diplomats, journalists and artists, who relied on her for her political acumen and were buoyed by her friendship.`\
-https://nytimes.com/2025/01/21/world/asia/bimla-bissell-dead.html
-
-**Spurs at NBA midpoint: Losing Gregg Popovich, highs and lows, but 'this is not easy'**\
-`“We know in a season it is not going to be a straight line,” Spurs star Victor Wembanyama said. “The long term is never being questioned."`\
-https://nytimes.com/athletic/6076929/2025/01/21/spurs-nba-midpoint-gregg-popovich/
 
