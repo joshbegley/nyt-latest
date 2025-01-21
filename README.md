@@ -1,6 +1,6 @@
-**Joy, anger and little remorse outside the D.C. jail that became a hub for Jan. 6 detainees.**\
-`Dozens of people with ties to the Jan. 6, 2021, attack on the Capitol gathered outside the detention facility in Washington on Monday to celebrate Trump’s pardons of those convicted of crimes that day.`\
-https://nytimes.com/2025/01/20/us/politics/dc-jail-jan-6-supporters.html
+**Joy, Anger and Little Remorse Outside D.C. Jail After Trump’s Jan. 6 Pardons**\
+`Dozens of people with ties to the Jan. 6, 2021, attack on the Capitol gathered outside the detention facility in Washington to celebrate Trump’s pardons of those convicted of crimes that day.`\
+https://nytimes.com/2025/01/20/us/politics/joy-anger-and-little-remorse-outside-dc-jail-after-trumps-jan-6-pardons.html
 
 **President Trump, You Can Remake the Middle East if You Dare**\
 `While the wages of success in the region will be enormous, the consequences of failure will be utterly hellish.`\
