@@ -1,3 +1,15 @@
+**UK minister says opposition trying to 'kill off' Football Governance Bill**\
+`UK culture minister Lisa Nandy has accused some members of the Conservative opposition of trying to use a “wrecking amendment” to “kill off” the government bill that will introduce an independent regulator for men’s professional football in England.`\
+https://nytimes.com/athletic/6077532/2025/01/21/football-governance-bill-lisa-nandy/
+
+**Trump’s First Day Back**\
+`We’re covering President Trump’s inauguration, executive orders and pardons.`\
+https://nytimes.com/2025/01/21/briefing/trump-inauguration-executive-orders-pardons.html
+
+**The Pulse: Ohio State's incredible about-face**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6076714/2025/01/21/ohio-state-notre-dame-the-pulse/
+
 **Which top prospects could the Canucks target in a J.T. Miller trade?**\
 `The Canucks should be able to acquire at least one good prospect as part of a package for Miller.`\
 https://nytimes.com/athletic/6076611/2025/01/21/jt-miller-canucks-prospects-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6075941/2025/01/21/vikings-mailbag-sam-darnold-dall
 **Ben Johnson a good bet to get the most out of Bears QB Caleb Williams**\
 `The Johnson-Williams match might have drawn Johnson to Chicago, and it's what will give the Bears the best chance at success.`\
 https://nytimes.com/athletic/6076596/2025/01/21/bears-ben-johnson-caleb-williams/
-
-**Mandel's Final Thoughts: The remarkable hero's journey of Ryan Day's Ohio State team**\
-`Ohio State's $20 million roster did exactly what it intended — and kept it interesting along the way. `\
-https://nytimes.com/athletic/6077345/2025/01/21/mandels-final-thoughts-ohio-state-national-championship-notre-dame/
-
-**NHL midseason concern-o-meter: The Canucks' drama, Bruins woes and more**\
-`Midway through the season, there are a number of teams and players underperforming. These are the ones with the most cause for concern.`\
-https://nytimes.com/athletic/6075735/2025/01/21/nhl-concern-o-meter-canucks-bruins/
-
-**Way too early Top 25 for the 2025 college football season**\
-`Only three SEC teams in the top 10. Ohio State outside of the top five. Florida ranked head of Alabama.`\
-https://nytimes.com/athletic/6075387/2025/01/21/college-football-top-25-rankings-predictions-2025-mandel/
 

@@ -1,3 +1,15 @@
+**UK minister says opposition trying to 'kill off' Football Governance Bill**\
+`UK culture minister Lisa Nandy has accused some members of the Conservative opposition of trying to use a “wrecking amendment” to “kill off” the government bill that will introduce an independent regulator for men’s professional football in England.`\
+https://nytimes.com/athletic/6077532/2025/01/21/football-governance-bill-lisa-nandy/
+
+**Trump’s First Day Back**\
+`We’re covering President Trump’s inauguration, executive orders and pardons.`\
+https://nytimes.com/2025/01/21/briefing/trump-inauguration-executive-orders-pardons.html
+
+**The Pulse: Ohio State's incredible about-face**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6076714/2025/01/21/ohio-state-notre-dame-the-pulse/
+
 **Trump Rescinds Biden-Era Sanctions on Israeli Settlers**\
 `The move came shortly after President Trump took office, and as Jewish extremists raided villages in the Israeli-occupied West Bank in protest against the cease-fire in Gaza.`\
 https://nytimes.com/2025/01/21/world/middleeast/israel-trump-settlers-west-bank-gaza.html
