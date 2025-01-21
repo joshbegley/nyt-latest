@@ -1,3 +1,11 @@
+**Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
+`This short scene conceals the names of 13 books published in the middle decades of the 20th century. See if you can find them all and build a reading list along the way.`\
+https://nytimes.com/interactive/2025/01/21/books/review/midcentury-books-search.html
+
+**Brush Fires Force Evacuations in San Diego County**\
+`Firefighters quickly controlled a fire Monday afternoon in Poway, Calif., about 23 miles from San Diego. But new fires ignited Tuesday, and a red flag warning, indicating a high risk of blazes, was issued for mountains and valleys in San Diego County through the night.`\
+https://nytimes.com/video/us/100000009939402/brush-fires-force-evacuations-in-san-diego-county.html
+
 **Ancelotti plans to have 'four more years' with Madrid's Perez**\
 `Carlo Ancelotti says he plans to spend four more years together with Florentino Perez after the Real Madrid president was re-elected for a fresh term.`\
 https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
