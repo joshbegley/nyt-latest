@@ -1,3 +1,7 @@
+**Why Chelsea are looking to add another winger to their ranks**\
+`With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a left-sided winger is on their wish list`\
+https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
+
 **Without Rakell, Penguins dominate Kings for impressive victory: Yohe's 10 observations**\
 `The Penguins played one of their finest games of the season, beating the Kings in Los Angeles, 5-1. `\
 https://nytimes.com/athletic/6077049/2025/01/21/penguins-dominate-kings-yohe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/opinion/trump-american-empire-panama.html
 **Ryan Donato's relentless attack mentality makes him an intriguing Blackhawks trade chip**\
 `Chicago's other players will likely generate more interest at the trade deadline, but Donato can beat them all for sheer effort.`\
 https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-trade-chip-hurricanes/
-
-**Why Monaco away is Aston Villa's biggest game of the season (so far)**\
-`Victory in Monaco would move Villa within touching distance of the Champions League knockout stage - Emery and his players will be ready`\
-https://nytimes.com/athletic/6074884/2025/01/21/aston-villa-monaco-champions-league-unai-emery/
 

@@ -1,3 +1,7 @@
+**Why Chelsea are looking to add another winger to their ranks**\
+`With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a left-sided winger is on their wish list`\
+https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
+
 **Without Rakell, Penguins dominate Kings for impressive victory: Yohe's 10 observations**\
 `The Penguins played one of their finest games of the season, beating the Kings in Los Angeles, 5-1. `\
 https://nytimes.com/athletic/6077049/2025/01/21/penguins-dominate-kings-yohe/
