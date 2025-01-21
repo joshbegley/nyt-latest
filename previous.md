@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6076714/2025/01/21/ohio-state-notre-dame-the-pulse/
 `The Canucks should be able to acquire at least one good prospect as part of a package for Miller.`\
 https://nytimes.com/athletic/6076611/2025/01/21/jt-miller-canucks-prospects-trade/
 
-**Trump Rescinds Biden-Era Sanctions on Israeli Settlers**\
-`The move came shortly after President Trump took office, and as Jewish extremists raided villages in the Israeli-occupied West Bank in protest against the cease-fire in Gaza.`\
+**Israeli Military Begins West Bank Raids**\
+`Amid rising tensions, Israeli troops embarked on what Israel described as a counterterrorism operation. That came hours after Jewish extremists attacked several Palestinian villages.`\
 https://nytimes.com/2025/01/21/world/middleeast/israel-trump-settlers-west-bank-gaza.html
 
 **Where do Notre Dame, Marcus Freeman go after loss to Ohio State?**\

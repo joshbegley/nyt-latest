@@ -1,3 +1,7 @@
+**Israeli Military Begins West Bank Raids**\
+`Amid rising tensions, Israeli troops embarked on what Israel described as a counterterrorism operation. That came hours after Jewish extremists attacked several Palestinian villages.`\
+https://nytimes.com/2025/01/21/world/middleeast/israel-trump-settlers-west-bank-gaza.html
+
 **UK minister says opposition trying to 'kill off' Football Governance Bill**\
 `UK culture minister Lisa Nandy has accused some members of the Conservative opposition of trying to use a “wrecking amendment” to “kill off” the government bill that will introduce an independent regulator for men’s professional football in England.`\
 https://nytimes.com/athletic/6077532/2025/01/21/football-governance-bill-lisa-nandy/
