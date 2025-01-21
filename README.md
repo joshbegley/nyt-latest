@@ -1,3 +1,7 @@
+**Who Is Mariann Edgar Budde, the Bishop Who Made a Plea to Trump?**\
+`The first woman to serve as the spiritual leader of the Episcopal Diocese of Washington, Bishop Budde had a message for President Trump during his first term, too.`\
+https://nytimes.com/2025/01/21/us/politics/bishop-mariann-edgar-budde-trump.html
+
 **Ichiro, Sabathia and Wagner elected to Baseball Hall of Fame**\
 `The trio will join Dave Parker and Dick Allen as the Class of 2025 in Cooperstown this summer.`\
 https://nytimes.com/athletic/6079085/2025/01/21/baseball-hall-of-fame-election-ichiro-sabathia-wagner/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/sports/baseball/jeff-torborg-dead.html
 **How Trump’s Department of Government Efficiency Will Work**\
 `The structure and goals of the cost-cutting effort have changed over the past 10 weeks. Here’s how.`\
 https://nytimes.com/2025/01/21/us/politics/doge-government-efficiency-trump-musk.html
-
-**States Sued to Stop Trump’s Birthright Citizenship Order**\
-`Also, Jan. 6 defendants were set free. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/01/21/briefing/lawsuit-trump-birthright-citizenship-snow-gulf-coast.html
 
