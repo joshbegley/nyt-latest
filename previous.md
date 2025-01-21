@@ -1,3 +1,7 @@
+**At Least 10 Are Killed in Fire at Ski Resort in Turkey**\
+`The blaze broke out overnight at a popular ski resort during a school break, when many families head to the slopes.`\
+https://nytimes.com/2025/01/21/world/asia/turkey-ski-resort-fire.html
+
 **The Voices in His Head Would Not Stop. Then a Boy Was Stabbed to Death.**\
 `Waldo Mejia’s psyche had been showing cracks, a longtime friend said. Now he is charged with killing 14-year-old Caleb Rijos at random.`\
 https://nytimes.com/2025/01/21/nyregion/waldo-meija-caleb-rijos-stabbing-voices.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009938053/trumps-inaugural-address-c
 **ESPN's Herbstreit, OSU alum, gets emotional on-air after Buckeyes title win**\
 `Herbstreit — a Centerville, Ohio, native — graduated from Ohio State after playing with the Buckeyes from 1989 to 1992.`\
 https://nytimes.com/athletic/6077036/2025/01/21/kirk-herbstreit-ohio-state-notre-dame-emotional-comments-cfp/
-
-**Joy, Anger and Little Remorse Outside D.C. Jail After Trump’s Jan. 6 Pardons**\
-`Dozens of people with ties to the Jan. 6, 2021, attack on the Capitol gathered outside the detention facility in Washington to celebrate Trump’s pardons of those convicted of crimes that day.`\
-https://nytimes.com/2025/01/20/us/politics/joy-anger-and-little-remorse-outside-dc-jail-after-trumps-jan-6-pardons.html
 

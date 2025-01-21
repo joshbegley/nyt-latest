@@ -1,3 +1,7 @@
+**At Least 10 Are Killed in Fire at Ski Resort in Turkey**\
+`The blaze broke out overnight at a popular ski resort during a school break, when many families head to the slopes.`\
+https://nytimes.com/2025/01/21/world/asia/turkey-ski-resort-fire.html
+
 **The Voices in His Head Would Not Stop. Then a Boy Was Stabbed to Death.**\
 `Waldo Mejia’s psyche had been showing cracks, a longtime friend said. Now he is charged with killing 14-year-old Caleb Rijos at random.`\
 https://nytimes.com/2025/01/21/nyregion/waldo-meija-caleb-rijos-stabbing-voices.html
