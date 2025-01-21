@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6076724/2025/01/21/aj-dybantsa-2026-nba-draft-hooph
 `The former defender "found it a pressure and a privilege" to provide for the next generation of women footballers`\
 https://nytimes.com/athletic/6070201/2025/01/21/jen-beattie-retirement-cancer-soccer-nwsl-wsl/
 
-**‘I Feel Rage, I Feel Sadness.’ With Border Closed, Migrants Have Few Options.**\
-`On Monday, President Trump took action to seal the nation’s southern border and terminate the widely used CBP One app, leaving migrants in Mexico feeling desperate and disheartened.`\
+**‘I Feel Rage, I Feel Sadness.’ With Border Closed, Migrants Face Few Options.**\
+`On Monday, President Trump took action to close the nation’s southern border and terminate a widely used app. Many migrants expressed despair, and some moved to cross the border anyway.`\
 https://nytimes.com/2025/01/21/world/americas/trump-us-mexico-border.html
 
