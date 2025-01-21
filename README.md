@@ -1,3 +1,7 @@
+**Trump Pardons Creator of Silk Road Drug Marketplace**\
+`Ross Ulbricht was serving a life sentence for creating a site in a shady corner of the internet to sell heroin, cocaine and other illicit substances.`\
+https://nytimes.com/2025/01/21/technology/trump-ross-ulbricht-silk-road.html
+
 **Ichiro Suzuki falls 1 vote shy of unanimous vote to Baseball Hall of Fame**\
 `Suzuki easily cleared the bar for first-ballot induction. But like Derek Jeter, he missed getting in unanimously by one vote.`\
 https://nytimes.com/athletic/6079440/2025/01/21/ichiro-suzuki-one-vote-shy-unanimous-baseball-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009938392/trumps-day-1-crackdown-on-
 **How a Florida mayor is managing snow. Hint: He’s learning.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-a-florida-mayor-is-managing-snow-hint-hes-learning
-
-**Senate Questionnaire Sheds Light on F.B.I. Pick’s Early Years**\
-`In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
-https://nytimes.com/2025/01/21/us/politics/trump-fbi-kash-patel-dei.html
 
