@@ -1,3 +1,7 @@
+**Ichiro, Sabathia and Wagner elected to Baseball Hall of Fame**\
+`The trio will join Dave Parker and Dick Allen as the Class of 2025 in Cooperstown this summer.`\
+https://nytimes.com/athletic/6079085/2025/01/21/baseball-hall-of-fame-election-ichiro-sabathia-wagner/
+
 **Trump’s Day 1 Crackdown on Immigration**\
 `President Trump’s executive actions on immigration were the leading edge of an effort to upend the United States’ role as a sanctuary for refugees and immigrants. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what Trump has done so far.`\
 https://nytimes.com/video/us/politics/100000009938392/trumps-day-1-crackdown-on-immigration.html
