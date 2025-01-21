@@ -1,3 +1,7 @@
+**Judges Begin Freeing Jan. 6 Defendants and Dismissing Their Cases**\
+`Two prominent far-right extremists with central roles in the Capitol attack, Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers militia, have been set free.`\
+https://nytimes.com/2025/01/21/us/politics/jan-6-defendants-freed.html
+
 **Oilers' Connor McDavid won't appeal 3-game suspension: Sources**\
 `McDavid received the supplemental discipline after cross-checking Vancouver Canucks forward Conor Garland late in Saturday's game`\
 https://nytimes.com/athletic/6078472/2025/01/21/oilers-connor-mcdavid-suspension-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/us/trump-birthright-citizenship.html
 **Angel City FC signs Kennedy from Man City**\
 `Angel City FC has completed the signing of defender Alanna Kennedy from Manchester City.`\
 https://nytimes.com/athletic/6078499/2025/01/21/angel-city-fc-signs-alanna-kennedy/
-
-**Guinness, Scotch eggs and Notre Dame football. The only thing missing was an Irish victory**\
-`Notre Dame fans flocked to local establishments to watch their beloved Fighting Irish play for the national championship. `\
-https://nytimes.com/athletic/6078363/2025/01/21/notre-dame-fans-south-bend-ohio-state/
 
