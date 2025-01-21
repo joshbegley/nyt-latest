@@ -1,9 +1,13 @@
+**Chelsea fined for penalty decision protests in Ipswich loss**\
+`Chelsea have been fined £40,000 for surrounding referee John Brooks during December&#8217;s defeat to Ipswich Town.`\
+https://nytimes.com/athletic/6077702/2025/01/21/chelsea-ipswich-penalty-fine/
+
 **Leicester fan survey: Let us know your views on the club's current situation**\
 `With issues on and off the field, we want to know your views on what's going on at Leicester`\
 https://nytimes.com/athletic/6077519/2025/01/21/leicester-fan-survey-transfers-ownership-manager/
 
 **Ohio State senior class ends bumpy ride with a national title: 'This bonds us for life'**\
-`Ohio State's seniors arrived with great expectations. They will leave Columbus with a national championship.`\
+`The Class of 2021 arrived with great expectations. It will leave Columbus with a national championship.`\
 https://nytimes.com/athletic/6077565/2025/01/21/ohio-state-seniors-national-championship/
 
 **NFL divisional round coaching decisions: Commanders' Kliff Kingsbury rises to challenge**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6076554/2025/01/21/chiefs-defense-bills-afc-title-g
 **Gleeman: Twins' front office has been in hibernation for 24 months since signing Carlos Correa**\
 `After signing Correa for $200 million and ending a two-decade playoff drought, the Twins have all but stopped making trades and signings.`\
 https://nytimes.com/athletic/6066869/2025/01/21/minnesota-twins-front-office-hibernation/
-
-**2025 NFL Draft consensus Big Board: Which players have climbed into the top 50?**\
-`As the 2025 NFL Draft class takes shape, let's take stock of which prospects are likely to dominate the early round conversation.`\
-https://nytimes.com/athletic/6076102/2025/01/21/nfl-draft-2025-consensus-rankings-tyler-warren/
 
