@@ -1,3 +1,7 @@
+**Bimla Bissell, Vital Aide to Four U.S. Ambassadors to India, Dies at 92**\
+`Her house was a hub for generations of heads of state, diplomats, journalists and artists, who relied on her for her political acumen and were buoyed by her friendship.`\
+https://nytimes.com/2025/01/21/world/asia/bimla-bissell-dead.html
+
 **Spurs at NBA midpoint: Losing Gregg Popovich, highs and lows, but 'this is not easy'**\
 `“We know in a season it is not going to be a straight line,” Spurs star Victor Wembanyama said. “The long term is never being questioned."`\
 https://nytimes.com/athletic/6076929/2025/01/21/spurs-nba-midpoint-gregg-popovich/
