@@ -1,3 +1,11 @@
+**Fresh Off ‘Severance,’ John Turturro Tries Modeling**\
+`With a Turturro cameo and a very surreal set, Zegna’s latest presentation brought to mind the hit Apple TV show. Though, the clothes were far from corporate.`\
+https://nytimes.com/2025/01/21/style/john-turturro-zegna-severance.html
+
+**Can the Wizards build with their young corps despite a rough go?**\
+`Midway through the season, Wizards officials believe their youngsters playing extensive minutes is the best way for them to grow quickly`\
+https://nytimes.com/athletic/6077027/2025/01/21/washington-wizards-midseason-report-alex-sarr-jordan-poole/
+
 **Ancelotti plans to have 'four more years' with Madrid's Perez**\
 `Carlo Ancelotti has said he plans to spend four more years together with Florentino Perez after the Real Madrid president was re-elected for a fresh term.`\
 https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
