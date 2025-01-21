@@ -1,3 +1,19 @@
+**Ryan Donato's relentless attack mentality makes him an intriguing Blackhawks trade chip**\
+`Other players on the Blackhawks will likely generate more interest at the trade deadline, but Donato can beat them all for sheer effort.`\
+https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-trade-chip-hurricanes/
+
+**Why Monaco away is Aston Villa's biggest game of the season (so far)**\
+`Victory in Monaco would move Villa within touching distance of the Champions League knockout stage - Emery and his players will be ready`\
+https://nytimes.com/athletic/6074884/2025/01/21/aston-villa-monaco-champions-league-unai-emery/
+
+**Tuesday Briefing**\
+`Donald Trump takes office.`\
+https://nytimes.com/2025/01/21/briefing/trump-gaza-climate.html
+
+**Inside Newcastle Q&A: Isak's contract, Kelly offers and PSR clarity at last (not really)**\
+`Chris Waugh answers your questions about what's happening at Newcastle`\
+https://nytimes.com/athletic/6074780/2025/01/21/inside-newcastle-qa-isaks-contract-lloyd-kelly-offers-and-psr-clarity-at-last-not-really/
+
 **The story behind Erling Haaland's huge Manchester City contract and why he signed up until 2034**\
 `How Haaland's contract was agreed, who was involved and why the striker decided to sign up for nine and a half years`\
 https://nytimes.com/athletic/6075164/2025/01/21/inside-erling-haaland-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/21/us/politics/americans-taliban-prisoner-swap.html
 **Deepdale at 150 years old: The story of one of the world's oldest football grounds**\
 `Daniel Taylor visits the home of Preston North End, the 'Original Invincibles' who were the first giants of football's professional era`\
 https://nytimes.com/athletic/6052578/2025/01/21/deepdale-150-world-oldest-football-grounds/
-
-**Liverpool's biggest achievement this season? Jurgen Klopp is rarely mentioned now**\
-`Liverpool's immediate upward trajectory under Arne Slot means that Klopp's reign hasn't been pined for by Liverpool supporters `\
-https://nytimes.com/athletic/6055407/2025/01/21/jurgen-klopp-liverpool-slot-manager/
-
-**Sahin is at the centre of Borussia Dortmund's crisis but the problems run much deeper**\
-`The manager is taking the brunt of the criticism for a poor season but issues off the pitch are as significant as those on it`\
-https://nytimes.com/athletic/6075254/2025/01/21/nuris-sahin-borussia-dortmund/
-
-**Champions League projections: Analysing potential joy and jeopardy ahead of Matchday Seven**\
-`Breaking down all the permutations as the new-look Champions League reaches a critical juncture`\
-https://nytimes.com/athletic/6075454/2025/01/21/champions-league-projections-matchday-7/
-
-**A Nobel Laureate Who Mines Her Country’s Nightmares, and Her Own**\
-`Han Kang’s latest novel, about a South Korean massacre, delves into why atrocities must be remembered. “It’s pain and it is blood, but it’s the current of life,” she said.`\
-https://nytimes.com/2025/01/21/world/asia/han-kang-jeju-book.html
 
