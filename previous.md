@@ -1,3 +1,7 @@
+**Trump’s Day 1 Crackdown on Immigration**\
+`President Trump’s executive actions on immigration were the leading edge of an effort to upend the United States’ role as a sanctuary for refugees and immigrants. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what Trump has done so far.`\
+https://nytimes.com/video/us/politics/100000009938392/trumps-day-1-crackdown-on-immigration.html
+
 **How a Florida mayor is managing snow. Hint: He’s learning.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-a-florida-mayor-is-managing-snow-hint-hes-learning
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/briefing/lawsuit-trump-birthright-citizenship-sno
 **What Trump’s Pledge to Plant the U.S. Flag on Mars Really Means**\
 `The president’s Inaugural Address linked landing on the Red Planet with Manifest Destiny, but left many of the specifics unclear.`\
 https://nytimes.com/2025/01/21/science/trump-mars-flag.html
-
-**Bishop Tells Trump to ‘Have Mercy’ on Immigrants and Gay Children**\
-`The direct appeal to President Trump at the start of the first full day of his presidency was a remarkable moment at a National Cathedral event that has not historically been political.`\
-https://nytimes.com/2025/01/21/us/politics/trump-bishop.html
 
