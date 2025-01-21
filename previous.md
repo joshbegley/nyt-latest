@@ -1,3 +1,11 @@
+**Rubio Oversees Halt to Foreign Aid and Meets With Asian Diplomats on Day 1**\
+`Marco Rubio told State Department employees that changes under President Trump “are not meant to be destructive, they’re not meant to be punitive.”`\
+https://nytimes.com/2025/01/21/us/politics/marco-rubio-trump-administration.html
+
+**Leaders at Davos Economic Forum Vow to ‘Stay the Course’ on Climate Action**\
+`Officials and business executives at the annual gathering in Switzerland said the fight against global would continue with or without the United States.`\
+https://nytimes.com/2025/01/21/business/trump-climate-davos.html
+
 **New Orleans, a City That Has Seen It All, Gets Its First Snow in 15 Years**\
 `Many roadways were impassable, classes were canceled in local schools, and many businesses could not open as a winter storm essentially brought New Orleans to a standstill.`\
 https://nytimes.com/2025/01/21/weather/new-orleans-snow.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6077623/2025/01/21/murillo-deal-nottingham-forest-g
 **Paul Skenes Topps' Rookie Debut Patch card found by 11-year-old collector**\
 `Many collectors have offered up bounties for the card, most notably the Pittsburgh Pirates.`\
 https://nytimes.com/athletic/6078677/2025/01/21/paul-skenes-topps-debut-patch-card-found/
-
-**Chelsea and San Diego finalizing record $1.1 million transfer for Naomi Girma: Sources**\
-`The defender is expected to become the first million-dollar transfer in women's soccer `\
-https://nytimes.com/athletic/6066148/2025/01/21/naomi-girma-chelsea-transfer-record-san-diego-wave/
-
-**Trump Moves Quickly to Install New Leaders at Key U.S. Attorneys’ Offices**\
-`The interim appointments, two in New York and one in Washington, signaled a break from past practice that reflects the importance of frontline prosecutors to the administration’s plans.`\
-https://nytimes.com/2025/01/21/us/politics/trump-us-attorneys-justice-department.html
 
