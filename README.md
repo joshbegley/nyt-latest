@@ -1,3 +1,7 @@
+**The story behind Erling Haaland's huge Manchester City contract and why he signed up until 2034**\
+`How Haaland's contract was agreed, who was involved and why the striker decided to sign up for nine and a half years`\
+https://nytimes.com/athletic/6075164/2025/01/21/inside-erling-haaland-contract/
+
 **The secrets of scouting: 'Four corners', watching warm-ups and personality profiling**\
 `As clubs scramble to complete transfers this month, what goes into tracking players in 2025?`\
 https://nytimes.com/athletic/6066430/2025/01/21/football-transfers-scouting-secrets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075454/2025/01/21/champions-league-projections-mat
 **A Nobel Laureate Who Mines Her Country’s Nightmares, and Her Own**\
 `Han Kang’s latest novel, about a South Korean massacre, delves into why atrocities must be remembered. “It’s pain and it is blood, but it’s the current of life,” she said.`\
 https://nytimes.com/2025/01/21/world/asia/han-kang-jeju-book.html
-
-**Hostages Are Being Freed. Some Israelis Ask: At What Cost?**\
-`More than 30 hostages are set to be released during the cease-fire in Gaza. But many Israelis have mixed feelings about the deal because they feel it came at a high price.`\
-https://nytimes.com/2025/01/21/world/europe/gaza-israel-hostages-ambivalence.html
 
