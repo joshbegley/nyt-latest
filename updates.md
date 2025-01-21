@@ -1,3 +1,7 @@
+**Trump Pardons Creator of Silk Road Drug Marketplace**\
+`Ross Ulbricht was serving a life sentence for creating a site in a shady corner of the internet to sell heroin, cocaine and other illicit substances.`\
+https://nytimes.com/2025/01/21/technology/trump-ross-ulbricht-silk-road.html
+
 **Ichiro Suzuki falls 1 vote shy of unanimous vote to Baseball Hall of Fame**\
 `Suzuki easily cleared the bar for first-ballot induction. But like Derek Jeter, he missed getting in unanimously by one vote.`\
 https://nytimes.com/athletic/6079440/2025/01/21/ichiro-suzuki-one-vote-shy-unanimous-baseball-hall-of-fame/
