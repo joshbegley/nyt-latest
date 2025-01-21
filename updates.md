@@ -1,3 +1,11 @@
+**How Every Senator Voted to Confirm Marco Rubio as Secretary of State**\
+`The Senate unanimously approved Mr. Rubio in the first vote on President Trump’s cabinet selections.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation-vote.html
+
+**Crosby unfazed by McDavid's outburst vs. Canucks: 'That's hockey'**\
+`Crosby's cross-check of Vancouver's Conor Garland on Saturday earned him a three-game suspension.`\
+https://nytimes.com/athletic/6076456/2025/01/20/sidney-crosby-comments-connor-mcdavid-suspension-nhl/
+
 **Trump Grants Broad Clemency to Jan. 6 Rioters**\
 `The extraordinary pardons and commutations extended to those who committed both violent and nonviolent crimes on Jan. 6, including assaulting police officers and seditious conspiracy.`\
 https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan-6.html
