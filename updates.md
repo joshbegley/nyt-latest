@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Routine play executed well tops Lightning**\
+`The Leafs held the Lightning without the lead all game with a solid if unspectacular performance.`\
+https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightning-matthews-nylander/
+
 **Trump declared an emergency at the southern border. Here’s what that means.**\
 `Invoking presidential emergency powers gives the president the ability to go around Congress and unlock federal funding to crack down at the border.`\
 https://nytimes.com/2025/01/20/us/politics/trump-border-emergency-declaration-immigration.html
