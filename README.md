@@ -1,3 +1,7 @@
+**Rubio Oversees Halt to Foreign Aid and Meets With Asian Diplomats on Day 1**\
+`Marco Rubio told State Department employees that changes under President Trump “are not meant to be destructive, they’re not meant to be punitive.”`\
+https://nytimes.com/2025/01/21/us/politics/marco-rubio-trump-administration.html
+
 **Leaders at Davos Economic Forum Vow to ‘Stay the Course’ on Climate Action**\
 `Officials and business executives at the annual gathering in Switzerland said the fight against global would continue with or without the United States.`\
 https://nytimes.com/2025/01/21/business/trump-climate-davos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077623/2025/01/21/murillo-deal-nottingham-forest-g
 **Paul Skenes Topps' Rookie Debut Patch card found by 11-year-old collector**\
 `Many collectors have offered up bounties for the card, most notably the Pittsburgh Pirates.`\
 https://nytimes.com/athletic/6078677/2025/01/21/paul-skenes-topps-debut-patch-card-found/
-
-**Chelsea and San Diego finalizing record $1.1 million transfer for Naomi Girma: Sources**\
-`The defender is expected to become the first million-dollar transfer in women's soccer `\
-https://nytimes.com/athletic/6066148/2025/01/21/naomi-girma-chelsea-transfer-record-san-diego-wave/
 
