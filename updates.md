@@ -1,3 +1,15 @@
+**3 Small Fires Break Out in San Diego Area, Forcing Evacuations**\
+`The blazes ignited in San Diego County early Tuesday, keeping Southern California on edge as dangerous fire conditions persisted.`\
+https://nytimes.com/2025/01/21/us/california-fires-pala-lilac-riverview.html
+
+**Chiefs defense determined to stop the Bills this time after struggling in first meeting**\
+`The Chiefs’ defenders know penalties and poor open-field tackling cost them in the first meeting against the Bills this season.`\
+https://nytimes.com/athletic/6076554/2025/01/21/chiefs-defense-bills-afc-title-game/
+
+**Gleeman: Twins' front office has been in hibernation for 24 months since signing Carlos Correa**\
+`After signing Correa for $200 million and ending a two-decade playoff drought, the Twins have all but stopped making trades and signings.`\
+https://nytimes.com/athletic/6066869/2025/01/21/minnesota-twins-front-office-hibernation/
+
 **2025 NFL Draft consensus Big Board: Which players have climbed into the top 50?**\
 `As the 2025 NFL Draft class takes shape, let's take stock of which prospects are likely to dominate the early round conversation.`\
 https://nytimes.com/athletic/6076102/2025/01/21/nfl-draft-2025-consensus-rankings-tyler-warren/
