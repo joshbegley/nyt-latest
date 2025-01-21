@@ -1,3 +1,7 @@
+**Who is to blame for Tottenham's rut?**\
+`Jack Pitt-Brooke ponders how to end Tottenham's slump on The Athletic FC Podcast`\
+https://nytimes.com/athletic/6077517/2025/01/21/athletic-fc-podcast-tottenham-postecoglou/
+
 **The Athletic FC: Worst ever Man Utd side? Plus: transfer latest, inside Haaland deal**\
 `Today in TAFC: What the numbers say about this being the 'worst ever' Manchester United side. Plus: how to scout in a transfer window`\
 https://nytimes.com/athletic/6077498/2025/01/21/worst-manchester-united-side-transfer-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075775/2025/01/21/arsenal-questions-arteta-transfe
 **Ryan Day's family celebrates a long-awaited triumph after a trying season**\
 `As much as Ohio State's passionate supporters — and some within the media — had written off Day, his family and his team never lost hope.`\
 https://nytimes.com/athletic/6076258/2025/01/21/ryan-day-ohio-state-notre-dame-cfp/
-
-**Why do Premier League clubs sign so many defenders from Ligue 1?**\
-`From a focus on youth to its unforgiving physicality, there are a raft of factors that make France's top flight a fertile recruiting ground`\
-https://nytimes.com/athletic/6057966/2025/01/21/premier-leauge-ligue-1-france-transfers-defenders/
 
