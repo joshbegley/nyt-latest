@@ -1,3 +1,11 @@
+**Penguins Today: Mike Sullivan explains the inexplicable**\
+`The old Penguins are better with less rest because nothing about this team makes much sense. `\
+https://nytimes.com/athletic/6077388/2025/01/21/penguins-today-mike-sullivan-back-to-backs/
+
+**Brock Nelson to the Wild? Danila Yurov's arrival? Marco Rossi's future? Ask Russo and Smith**\
+`Plus predicting the Wild's future blue line, updates on prospects and more.`\
+https://nytimes.com/athletic/6075649/2025/01/21/minnesota-wild-nhl-yurov-nelson-trade-russo/
+
 **Anthony Edwards, Rudy Gobert and Chris Finch are struggling in clutch games for Wolves**\
 `"I’m not always going to get it right," Finch said in December about his closing lineups.`\
 https://nytimes.com/athletic/6076024/2025/01/21/anthony-edwards-rudy-gobert-chris-finch-struggling-timberwolves/
