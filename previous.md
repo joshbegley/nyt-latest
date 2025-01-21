@@ -1,3 +1,11 @@
+**Angel City FC signs Kennedy from Man City**\
+`Angel City FC has completed the signing of defender Alanna Kennedy from Manchester City.`\
+https://nytimes.com/athletic/6078499/2025/01/21/angel-city-fc-signs-alanna-kennedy/
+
+**Guinness, Scotch eggs and Notre Dame football. The only thing missing was an Irish victory**\
+`Notre Dame fans flocked to local establishments to watch their beloved Fighting Irish play for the national championship. `\
+https://nytimes.com/athletic/6078363/2025/01/21/notre-dame-fans-south-bend-ohio-state/
+
 **Bimla Bissell, Vital Aide to Four U.S. Ambassadors to India, Dies at 92**\
 `Her house was a hub for generations of heads of state, diplomats, journalists and artists, who relied on her for her political acumen and were buoyed by her friendship.`\
 https://nytimes.com/2025/01/21/world/asia/bimla-bissell-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/21/world/europe/ukraine-zelensky-us-europe.html
 **Trump’s Order to End E.V. Subsidies Draws Pushback and Doubt**\
 `Automakers and even some Republicans may fight to preserve funds, and environmental activists will likely sue, but some experts said that some changes may not survive legal challenges.`\
 https://nytimes.com/2025/01/21/business/trump-ev-subsidies.html
-
-**Joel Paley, Writer of ‘Ruthless,’ an Off Broadway Hit, Dies at 69**\
-`The show, with music by Marvin Laird, portrayed a schoolgirl’s murderous theatrical ambition. Paley also performed in the parody dance group Les Ballets Trockadero.`\
-https://nytimes.com/2025/01/21/theater/joel-paley-dead.html
-
-**Trump’s Proposed Tariff Agency Raises Questions, and Confusion, for Experts**\
-`President Trump wants an External Revenue Service to collect tariffs on imports. But one trade expert said the move may be “more branding than substance.”`\
-https://nytimes.com/2025/01/21/us/politics/trump-tariffs-external-revenue-service.html
 

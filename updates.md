@@ -1,3 +1,11 @@
+**Angel City FC signs Kennedy from Man City**\
+`Angel City FC has completed the signing of defender Alanna Kennedy from Manchester City.`\
+https://nytimes.com/athletic/6078499/2025/01/21/angel-city-fc-signs-alanna-kennedy/
+
+**Guinness, Scotch eggs and Notre Dame football. The only thing missing was an Irish victory**\
+`Notre Dame fans flocked to local establishments to watch their beloved Fighting Irish play for the national championship. `\
+https://nytimes.com/athletic/6078363/2025/01/21/notre-dame-fans-south-bend-ohio-state/
+
 **Bimla Bissell, Vital Aide to Four U.S. Ambassadors to India, Dies at 92**\
 `Her house was a hub for generations of heads of state, diplomats, journalists and artists, who relied on her for her political acumen and were buoyed by her friendship.`\
 https://nytimes.com/2025/01/21/world/asia/bimla-bissell-dead.html
