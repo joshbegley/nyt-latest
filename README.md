@@ -1,5 +1,5 @@
 **Leicester fan survey: Let us know your views on the club's current situation**\
-`With issues on and off the field, we want to know your views on what's going on at the club.`\
+`With issues on and off the field, we want to know your views on what's going on at Leicester`\
 https://nytimes.com/athletic/6077519/2025/01/21/leicester-fan-survey-transfers-ownership-manager/
 
 **Ohio State senior class ends bumpy ride with a national title: 'This bonds us for life'**\
