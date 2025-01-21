@@ -1,3 +1,11 @@
+**Trump Says He Has Granted Broad Clemency to Jan. 6 Rioters**\
+`The extraordinary pardons and commutations extended to those who committed both violent and nonviolent crimes on Jan. 6, including assaulting police officers and seditious conspiracy.`\
+https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan-6.html
+
+**DeSantis Adopts ‘Gulf of America’ Language Even Before a Trump Order**\
+`The Florida governor used the wording in issuing a state of emergency over a cold snap expected in his state.`\
+https://nytimes.com/2025/01/20/us/politics/desantis-gulf-of-america-executive-order-trump.html
+
 **Sidney Crosby unfazed by Connor McDavid's temper outburst against Vancouver**\
 `Sidney Crosby can understand the frustration Connor McDavid was feeling on Saturday night against the Vancouver Canucks. `\
 https://nytimes.com/athletic/6076456/2025/01/20/sidney-crosby-comments-connor-mcdavid-suspension-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-administration-fires-immigratio
 **Trump Promises Americans the Moon (Well, Mars)**\
 `Donald Trump’s pledge-filled speech made him sound like a candidate trying to run up the score.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inauguration-promises.html
-
-**A Determined Trump Vows Not to Be Thwarted at Home or Abroad**\
-`Wiser about the use of power, the newly sworn-in president suggests that this time he will not take no for an answer, whether in enacting an ambitious domestic agenda or in his expansionist worldview.`\
-https://nytimes.com/2025/01/20/us/politics/trump-sworn-in-president.html
-
-**Marco Rubio Is Confirmed by Senate as Secretary of State**\
-`The Florida senator becomes the United States’ 72nd chief diplomat, and the first Latino to hold the job.`\
-https://nytimes.com/2025/01/20/us/politics/marco-rubio-confirmed-secretary-of-state.html
 
