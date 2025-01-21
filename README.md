@@ -1,3 +1,11 @@
+**Fresh Off ‘Severance,’ John Turturro Tries Modeling**\
+`With a Turturro cameo and a very surreal set, Zegna’s latest presentation brought to mind the hit Apple TV show. Though, the clothes were far from corporate.`\
+https://nytimes.com/2025/01/21/style/john-turturro-zegna-severance.html
+
+**Can the Wizards build with their young corps despite a rough go?**\
+`Midway through the season, Wizards officials believe their youngsters playing extensive minutes is the best way for them to grow quickly`\
+https://nytimes.com/athletic/6077027/2025/01/21/washington-wizards-midseason-report-alex-sarr-jordan-poole/
+
 **The Billionaires’ Row at the Inauguration**\
 `The sight of Jeff Bezos, Mark Zuckerberg and others at President Trump’s swearing-in was another sign of how business is adapting to a new Washington.`\
 https://nytimes.com/2025/01/21/business/dealbook/billionaires-trump-zuckerberg-bezos-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6077519/2025/01/21/leicester-fan-survey-transfers-o
 **Ohio State senior class ends bumpy ride with a national title: 'This bonds us for life'**\
 `The Class of 2021 arrived with great expectations. It will leave Columbus with a national championship.`\
 https://nytimes.com/athletic/6077565/2025/01/21/ohio-state-seniors-national-championship/
-
-**NFL divisional round coaching decisions: Commanders' Kliff Kingsbury rises to challenge**\
-`Also, Eagles DC Vic Fangio used a timely counter, the Bills sold out on Derrick Henry and the Lions' mistakes compounded D's injury issues.`\
-https://nytimes.com/athletic/6075710/2025/01/21/nfl-divisional-round-results-scores-coaching-decisions/
-
-**Who is to blame for Tottenham's rut?**\
-`Jack Pitt-Brooke ponders how to end Tottenham's slump on The Athletic FC Podcast`\
-https://nytimes.com/athletic/6077517/2025/01/21/athletic-fc-podcast-tottenham-postecoglou/
 
