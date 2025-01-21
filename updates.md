@@ -1,3 +1,11 @@
+**When Google Altered Its Ad Rules, Charities Paid the Price**\
+`After the search giant welcomed more ads from small rivals like Ask.com, Google ad costs for some nonprofits ballooned.`\
+https://nytimes.com/2025/01/21/technology/google-online-ads-philanthropies.html
+
+**'My biggest backer': Tom McVie remembered as caring voice who pushed others to aim higher**\
+`Ex-NHL coach — part of the Bruins organization for more than three decades — was great hockey mind who "livened up every room he entered." `\
+https://nytimes.com/athletic/6077330/2025/01/21/tom-mcvie-boston-bruins-obit-column/
+
 **New York Sirens trade Jill Saulnier to Boston Fleet for Taylor Girard**\
 `The trade looks to be a change of scenery for both players, who've seen limited minutes and stretches out of the lineup early this season.`\
 https://nytimes.com/athletic/6077986/2025/01/21/pwhl-trade-sirens-fleet-saulnier-girard/

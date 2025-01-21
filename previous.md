@@ -1,3 +1,11 @@
+**When Google Altered Its Ad Rules, Charities Paid the Price**\
+`After the search giant welcomed more ads from small rivals like Ask.com, Google ad costs for some nonprofits ballooned.`\
+https://nytimes.com/2025/01/21/technology/google-online-ads-philanthropies.html
+
+**'My biggest backer': Tom McVie remembered as caring voice who pushed others to aim higher**\
+`Ex-NHL coach — part of the Bruins organization for more than three decades — was great hockey mind who "livened up every room he entered." `\
+https://nytimes.com/athletic/6077330/2025/01/21/tom-mcvie-boston-bruins-obit-column/
+
 **AP Top 25: Ohio State No. 1 ahead of Notre Dame, Oregon in final poll**\
 `Ohio State is No. 1 in the final AP Top 25 college football poll of the 2024 season, the sixth time its has finished atop the AP poll.`\
 https://nytimes.com/athletic/6078016/2025/01/21/ap-top-25-final-rankings-ohio-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6076918/2025/01/21/historic-nba-records-to-watch-ni
 **Amazon Liverpool documentary to focus on Klopp's entire tenure**\
 `The Liverpool FC documentary featuring Jurgen Klopp’s time as manager will be available to watch on Amazon next month.`\
 https://nytimes.com/athletic/5929227/2025/01/21/amazon-liverpool-documentary-klopp/
-
-**Here’s the latest on the start of the Trump administration.**\
-`By Noah Weiland, Catie Edmondson and Zolan Kanno-Youngs`\
-https://nytimes.com/live/2025/01/21/us/trump-president-news/heres-the-latest-on-the-start-of-the-trump-administration
-
-**New York Sirens trade Jill Saulnier to Boston Fleet for Taylor Girard**\
-`The trade looks to be a change of scenery for both players, who've seen limited minutes and stretches out of the lineup early this season.`\
-https://nytimes.com/athletic/6077986/2025/01/21/pwhl-trade-sirens-fleet-saulnier-girard/
 
