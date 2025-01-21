@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6076664/2025/01/21/wolves-pereira-cunha-lemina-coach/
 
 **At Least 10 Are Killed in Fire at Ski Resort in Turkey**\
-`The blaze broke out overnight at a popular ski resort during a school break, when many families head to the slopes.`\
+`The blaze broke out overnight at a popular ski resort during a school break when many families head to the slopes.`\
 https://nytimes.com/2025/01/21/world/europe/turkey-ski-resort-fire.html
 
 **The Voices in His Head Would Not Stop. Then a Boy Was Stabbed to Death.**\
