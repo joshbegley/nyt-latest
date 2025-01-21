@@ -1,3 +1,7 @@
+**Why is the South so cold right now?**\
+`A mass of air called the polar vortex has escaped the Arctic and plunged southward, causing freezing temperatures and snow as far away as Florida.`\
+https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/why-is-the-south-so-cold-right-now
+
 **Thousands of Flights Delayed or Canceled as Winter Storm Disrupts Travel in Southeast**\
 `Snow and cold temperatures hitting a broad swath of the region also disrupted travel via rails and roadways.`\
 https://nytimes.com/2025/01/21/weather/flight-cancellations-delays-winter-storm.html
