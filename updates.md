@@ -1,3 +1,11 @@
+**J.T. Miller trade watch: 6 potential destinations and what the Canucks could get in return**\
+`Miller’s days as a member of the Canucks could be numbered. What does he bring, where could he land and what does Vancouver need?`\
+https://nytimes.com/athletic/6077232/2025/01/21/nhl-jt-miller-trade-canucks-destinations/
+
+**Super Bowl odds: Eagles emerge as favorite, but AFC champ will likely be favored in Super Bowl**\
+`The Eagles are the new favorite to win the Super Bowl entering the conference championship games, mostly due to facing the Commanders.`\
+https://nytimes.com/athletic/6076426/2025/01/21/super-bowl-odds-eagles-chiefs-bills-commanders/
+
 **Read These Books Before They Hit Your Screens in 2025**\
 `Hilary Mantel’s “The Mirror and the Light,” a new “Bridget Jones” and Michael Bond’s Paddington Bear series are some of this year’s most anticipated adaptations.`\
 https://nytimes.com/article/book-movie-tv-adaptations-2025.html

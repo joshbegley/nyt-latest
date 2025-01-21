@@ -1,3 +1,11 @@
+**J.T. Miller trade watch: 6 potential destinations and what the Canucks could get in return**\
+`Miller’s days as a member of the Canucks could be numbered. What does he bring, where could he land and what does Vancouver need?`\
+https://nytimes.com/athletic/6077232/2025/01/21/nhl-jt-miller-trade-canucks-destinations/
+
+**Super Bowl odds: Eagles emerge as favorite, but AFC champ will likely be favored in Super Bowl**\
+`The Eagles are the new favorite to win the Super Bowl entering the conference championship games, mostly due to facing the Commanders.`\
+https://nytimes.com/athletic/6076426/2025/01/21/super-bowl-odds-eagles-chiefs-bills-commanders/
+
 **Read These Books Before They Hit Your Screens in 2025**\
 `Hilary Mantel’s “The Mirror and the Light,” a new “Bridget Jones” and Michael Bond’s Paddington Bear series are some of this year’s most anticipated adaptations.`\
 https://nytimes.com/article/book-movie-tv-adaptations-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6075649/2025/01/21/minnesota-wild-nhl-yurov-nelson-
 **Anthony Edwards, Rudy Gobert and Chris Finch are struggling in clutch games for Wolves**\
 `"I’m not always going to get it right," Finch said in December about his closing lineups.`\
 https://nytimes.com/athletic/6076024/2025/01/21/anthony-edwards-rudy-gobert-chris-finch-struggling-timberwolves/
-
-**How concerned should the Senators be about Brady Tkachuk's 7-game point-less skid?**\
-`The Athletic takes a closer look at Tkachuk's advanced numbers during his longest point-less streak since his rookie season.`\
-https://nytimes.com/athletic/6075235/2025/01/21/senators-brady-tkachuk-nhl-defense-offense/
-
-**Was That a 900 or 1080 on the Halfpipe? X Games Can Now Ask A.I.**\
-`Snowboarding is the latest sport to embrace technology as a judge, at least partly, at this week’s X Games.`\
-https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html
 
