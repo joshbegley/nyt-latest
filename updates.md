@@ -1,3 +1,11 @@
+**John Lennon Came to My School When I Was 8. Or Did I Imagine It?**\
+`A story of hazy memories, a reluctant rock star and a mysterious woman.`\
+https://nytimes.com/2025/01/21/nyregion/john-lennon-friends-seminary-school-visit.html
+
+**Southern U.S. Braced for Power Outages Due to Snow: How to Stay Safe**\
+`Officials are warning of the dangers of carbon monoxide poisoning and fires.`\
+https://nytimes.com/2025/01/21/weather/winter-storm-power-outage-generator-safety.html
+
 **Are Americans Doing Fitness Wrong?**\
 `Four lessons about exercise from around the world.`\
 https://nytimes.com/2025/01/21/well/move/international-fitness-lessons.html

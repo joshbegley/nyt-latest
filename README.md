@@ -1,11 +1,3 @@
-**John Lennon Came to My School When I Was 8. Or Did I Imagine It?**\
-`A story of hazy memories, a reluctant rock star and a mysterious woman.`\
-https://nytimes.com/2025/01/21/nyregion/john-lennon-friends-seminary-school-visit.html
-
-**Southern U.S. Braced for Power Outages Due to Snow: How to Stay Safe**\
-`Officials are warning of the dangers of carbon monoxide poisoning and fires.`\
-https://nytimes.com/2025/01/21/weather/winter-storm-power-outage-generator-safety.html
-
 **Are Americans Doing Fitness Wrong?**\
 `Four lessons about exercise from around the world.`\
 https://nytimes.com/2025/01/21/well/move/international-fitness-lessons.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6077934/2025/01/21/nba-power-rankings-thunder-caval
 **Could AJ Dybantsa fall from being the No. 1 overall pick in 2026 NBA Draft?**\
 `The Hoophall Classic brought together the best high school players and showed changes could occur at the top of the 2026 NBA Draft.`\
 https://nytimes.com/athletic/6076724/2025/01/21/aj-dybantsa-2026-nba-draft-hoophall-classic/
+
+**Former Scotland defender Jen Beattie announces retirement**\
+`The former defender "found it a pressure and a privilege" to provide for the next generation of women footballers`\
+https://nytimes.com/athletic/6070201/2025/01/21/jen-beattie-retirement-cancer-soccer-nwsl-wsl/
+
+**‘I Feel Rage, I Feel Sadness.’ With Border Closed, Migrants Face Few Options.**\
+`On Monday, President Trump took action to close the nation’s southern border and terminate a widely used app. Many migrants expressed despair, and some moved to cross the border anyway.`\
+https://nytimes.com/2025/01/21/world/americas/trump-us-mexico-border.html
 
