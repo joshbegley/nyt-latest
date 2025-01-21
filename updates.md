@@ -1,3 +1,7 @@
+**Winds relax in Southern California, but wildfire risk remains.**\
+`Bone-dry air, warm temperatures and another round of winds are all in the forecast this week for Los Angeles and Ventura Counties.`\
+https://nytimes.com/live/2025/01/21/us/los-angeles-wildfires-california/winds-relax-in-southern-california-but-wildfire-risk-remains
+
 **Pitt’s Offers Fried Saltines and Country Captain in Red Hook**\
 `Periyali becomes Opto, Nerina opens a location in Brooklyn and more restaurant news.`\
 https://nytimes.com/2025/01/21/dining/pitts-red-hook-brooklyn.html
