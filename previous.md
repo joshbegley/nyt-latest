@@ -1,3 +1,7 @@
+**Top fantasy basketball targets, Ja Morant and the Grizzlies' new game plan**\
+`Stan Son checks in on the Memphis Grizzlies and gives advice on which players to grab as the fantasy landscape shifts. `\
+https://nytimes.com/athletic/6077999/2025/01/21/fantasy-basketball-targets-ja-morant/
+
 **Trump Just Pardoned Himself**\
 `Because presidents exercise such unfettered discretion in granting clemency, these actions provide useful insights into their true character.`\
 https://nytimes.com/2025/01/21/opinion/trump-pardon-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/world/asia/bimla-bissell-dead.html
 **Spurs at NBA midpoint: Losing Gregg Popovich, highs and lows, but 'this is not easy'**\
 `“We know in a season it is not going to be a straight line,” Spurs star Victor Wembanyama said. “The long term is never being questioned."`\
 https://nytimes.com/athletic/6076929/2025/01/21/spurs-nba-midpoint-gregg-popovich/
-
-**3 of the Most Important Trump Executive Orders on Climate**\
-`President Trump’s wave of executive orders yesterday sent an undeniable signal to the world about the United States’ role in fighting climate change.`\
-https://nytimes.com/2025/01/21/climate/trump-climate-change-executive-orders.html
 

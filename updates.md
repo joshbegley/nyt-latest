@@ -1,3 +1,7 @@
+**Top fantasy basketball targets, Ja Morant and the Grizzlies' new game plan**\
+`Stan Son checks in on the Memphis Grizzlies and gives advice on which players to grab as the fantasy landscape shifts. `\
+https://nytimes.com/athletic/6077999/2025/01/21/fantasy-basketball-targets-ja-morant/
+
 **Trump Just Pardoned Himself**\
 `Because presidents exercise such unfettered discretion in granting clemency, these actions provide useful insights into their true character.`\
 https://nytimes.com/2025/01/21/opinion/trump-pardon-jan-6.html
