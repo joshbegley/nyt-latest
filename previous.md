@@ -1,3 +1,7 @@
+**How Trump Plans to Kill the Refugee System**\
+`President Trump, who has criticized refugee resettlement, moved on his first day in office to suspend the decades-old program to admit persecuted people to the United States.`\
+https://nytimes.com/2025/01/20/us/politics/trump-refugee-explainer.html
+
 **Trump signs an executive order stripping security clearances from some former intelligence officials.**\
 `By Julian E. Barnes and Devlin Barrett`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-signs-an-executive-order-stripping-security-clearances-from-some-former-intelligence-officials
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6076711/2025/01/20/coco-gauff-australian-open-resul
 **Paula Badosa imploded in her last Grand Slam quarterfinal. She doesn't make the same mistake twice**\
 `In her last Grand Slam quarterfinal, the Spaniard fell apart in New York. She took the lessons to Gauff in Melbourne, and won.`\
 https://nytimes.com/athletic/6074434/2025/01/20/paula-badosa-australian-open-coco-gauff/
-
-**Trump Tries to Stall TikTok Ban With Executive Order**\
-`President Trump signed an executive order on Monday to delay enforcing a federal ban of TikTok for at least 75 days. It’s unclear if the order could override the federal law.`\
-https://nytimes.com/video/us/politics/100000009938946/trump-tiktok-executive-order.html
 

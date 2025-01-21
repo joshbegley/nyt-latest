@@ -1,3 +1,7 @@
+**How Trump Plans to Kill the Refugee System**\
+`President Trump, who has criticized refugee resettlement, moved on his first day in office to suspend the decades-old program to admit persecuted people to the United States.`\
+https://nytimes.com/2025/01/20/us/politics/trump-refugee-explainer.html
+
 **Trump signs an executive order stripping security clearances from some former intelligence officials.**\
 `By Julian E. Barnes and Devlin Barrett`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-signs-an-executive-order-stripping-security-clearances-from-some-former-intelligence-officials
