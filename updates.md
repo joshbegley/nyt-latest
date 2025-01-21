@@ -1,3 +1,7 @@
+**How concerned should the Senators be about Brady Tkachuk's 7-game point-less skid?**\
+`The Athletic takes a closer look at Tkachuk's advanced numbers during his longest point-less streak since his rookie season.`\
+https://nytimes.com/athletic/6075235/2025/01/21/senators-brady-tkachuk-nhl-defense-offense/
+
 **Was That a 900 or 1080 on the Halfpipe? X Games Can Now Ask A.I.**\
 `Snowboarding is the latest sport to embrace technology as a judge, at least partly, at this week’s X Games.`\
 https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html

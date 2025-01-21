@@ -1,3 +1,7 @@
+**How concerned should the Senators be about Brady Tkachuk's 7-game point-less skid?**\
+`The Athletic takes a closer look at Tkachuk's advanced numbers during his longest point-less streak since his rookie season.`\
+https://nytimes.com/athletic/6075235/2025/01/21/senators-brady-tkachuk-nhl-defense-offense/
+
 **Was That a 900 or 1080 on the Halfpipe? X Games Can Now Ask A.I.**\
 `Snowboarding is the latest sport to embrace technology as a judge, at least partly, at this week’s X Games.`\
 https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/21/books/review/midcentury-books-search.
 **Brush Fires Force Evacuations in San Diego County**\
 `Firefighters quickly controlled a fire Monday afternoon in Poway, Calif., about 23 miles from San Diego. But new fires ignited Tuesday, and a red flag warning, indicating a high risk of blazes, was issued for mountains and valleys in San Diego County through the night.`\
 https://nytimes.com/video/us/100000009939402/brush-fires-force-evacuations-in-san-diego-county.html
-
-**Fresh Off ‘Severance,’ John Turturro Tries Modeling**\
-`With a Turturro cameo and a very surreal set, Zegna’s latest presentation brought to mind the hit Apple TV show. Though, the clothes were far from corporate.`\
-https://nytimes.com/2025/01/21/style/john-turturro-zegna-severance.html
 
