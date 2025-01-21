@@ -1,5 +1,5 @@
 **How concerned should the Senators be about Brady Tkachuk's 7-game point-less skid?**\
-`The Athletic takes a closer look at Brady Tkachuk's advanced numbers during his point-less streak.`\
+`The Athletic takes a closer look at Tkachuk's advanced numbers during his longest point-less streak since his rookie season.`\
 https://nytimes.com/athletic/6075235/2025/01/21/senators-brady-tkachuk-nhl-defense-offense/
 
 **Was That a 900 or 1080 on the Halfpipe? X Games Can Now Ask A.I.**\
