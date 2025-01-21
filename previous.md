@@ -1,3 +1,7 @@
+**How Trump’s Department of Government Efficiency Will Work**\
+`The structure and goals of the cost-cutting effort have changed over the past 10 weeks. Here’s how.`\
+https://nytimes.com/2025/01/21/us/politics/doge-government-efficiency-trump-musk.html
+
 **States Sued to Stop Trump’s Birthright Citizenship Order**\
 `Also, Jan. 6 defendants were set free. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/21/briefing/lawsuit-trump-birthright-citizenship-snow-gulf-coast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/us/politics/trump-executive-order-retribution.htm
 **They’ve never seen snow like this before. They wanted to make the most of It.**\
 `By Katy Reckdahl, Alex Stuckey, Marie Elizabeth Oliver and Rick Rojas`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/new-orleans-snow-residents
-
-**Vikings, HC Kevin O'Connell agree to multi-year extension**\
-`O'Connell, 39, lands a contract extension after guiding Vikings to 14-3 record with Sam Darnold at quarterback.`\
-https://nytimes.com/athletic/6079150/2025/01/21/vikings-head-coach-kevin-oconnell-extension/
 

@@ -1,3 +1,7 @@
+**How Trump’s Department of Government Efficiency Will Work**\
+`The structure and goals of the cost-cutting effort have changed over the past 10 weeks. Here’s how.`\
+https://nytimes.com/2025/01/21/us/politics/doge-government-efficiency-trump-musk.html
+
 **States Sued to Stop Trump’s Birthright Citizenship Order**\
 `Also, Jan. 6 defendants were set free. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/21/briefing/lawsuit-trump-birthright-citizenship-snow-gulf-coast.html
