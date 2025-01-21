@@ -1,3 +1,7 @@
+**Trump Tries to Stall TikTok Ban With Executive Order**\
+`President Trump signed an executive order on Monday to delay enforcing a federal ban of TikTok for at least 75 days. It’s unclear if the order could override the federal law.`\
+https://nytimes.com/video/us/politics/100000009938946/trump-tiktok-executive-order.html
+
 **‘A Quiet Force’: Harris Returns Home After Making History in Washington**\
 `The former vice president’s first acts as a nonelected official for the first time in decades could be a sign of what comes next.`\
 https://nytimes.com/2025/01/20/us/politics/harris-legacy-vp.html

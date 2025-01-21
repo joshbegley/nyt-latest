@@ -1,3 +1,7 @@
+**Trump Tries to Stall TikTok Ban With Executive Order**\
+`President Trump signed an executive order on Monday to delay enforcing a federal ban of TikTok for at least 75 days. It’s unclear if the order could override the federal law.`\
+https://nytimes.com/video/us/politics/100000009938946/trump-tiktok-executive-order.html
+
 **‘A Quiet Force’: Harris Returns Home After Making History in Washington**\
 `The former vice president’s first acts as a nonelected official for the first time in decades could be a sign of what comes next.`\
 https://nytimes.com/2025/01/20/us/politics/harris-legacy-vp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/stewart-rhodes-trump-jan-6-oath-keepe
 **Mentality vs. Avalanche earned Wild one of the season's more impressive wins: Smith**\
 `After a bad loss to Nashville on Saturday, the Wild bounced back with a smart, structured game plan against the rival Avalanche.`\
 https://nytimes.com/athletic/6076505/2025/01/20/minnesota-wild-mentality-defense-faber-avalanche-smith/
-
-**Ex-Proud Boys Leader, Pardoned by Trump, Helped Initiate Capitol Riot**\
-`Until President Trump’s pardon, Enrique Tarrio was serving a 22-year prison term, the longest sentence handed down to any of the nearly 1,600 people charged in connection with Jan. 6.`\
-https://nytimes.com/2025/01/20/nyregion/enrique-tarrio-proud-boys-pardon-jan-6.html
 
