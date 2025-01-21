@@ -1,3 +1,7 @@
+**Trump Withdraws U.S. from World Health Organization**\
+`Public health experts say U.S. withdrawal from the W.H.O. would undermine the nation’s standing as a global health leader and make it harder to fight the next pandemic.`\
+https://nytimes.com/2025/01/20/us/politics/trump-world-health-organization.html
+
 **Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
 `Shortly after taking office Monday, the president issued the order to delay the app’s ban by at least 75 days. The law went into effect on Sunday.`\
 https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html

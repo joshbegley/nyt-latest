@@ -1,3 +1,7 @@
+**Trump Withdraws U.S. from World Health Organization**\
+`Public health experts say U.S. withdrawal from the W.H.O. would undermine the nation’s standing as a global health leader and make it harder to fight the next pandemic.`\
+https://nytimes.com/2025/01/20/us/politics/trump-world-health-organization.html
+
 **Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
 `Shortly after taking office Monday, the president issued the order to delay the app’s ban by at least 75 days. The law went into effect on Sunday.`\
 https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/01/21/us/politics/trump-inauguration-photos
 **New Jersey’s Governor Asks Trump to Move Swiftly on Congestion Pricing**\
 `Gov. Phil Murphy wrote a letter to the president saying that the surcharge on drivers entering Manhattan’s busiest area was a “disaster” for commuters and residents in his state.`\
 https://nytimes.com/2025/01/20/nyregion/new-jersey-murphy-congestion-pricing-trump.html
-
-**Oilers' Connor McDavid suspended 3 games for cross-checking Conor Garland**\
-`McDavid received a match penalty in Saturday's game, meaning a suspension was all but inevitable.`\
-https://nytimes.com/athletic/6075192/2025/01/20/connor-mcdavid-suspended-oilers-canucks-conor-garland/
 
