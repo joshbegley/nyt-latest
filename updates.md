@@ -1,3 +1,7 @@
+**Word of the Day: cognizant**\
+`This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/21/learning/word-of-the-day-cognizant.html
+
 **Goran Ivanisevic quits as Elena Rybakina's coach after the suspended Stefano Vukov returns to team**\
 `The world No. 6 announced her partnership with Novak Djokovic's former coach just two months ago.`\
 https://nytimes.com/athletic/6031809/2025/01/21/goran-ivanisevic-quits-elena-rybakina-coach-stefano-vukov/
