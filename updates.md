@@ -1,3 +1,7 @@
+**Forest submit £22m transfer bid for Brentford's Wissa**\
+`Nottingham Forest have submitted a £22million bid to sign Yoane Wissa from Brentford.`\
+https://nytimes.com/athletic/6076154/2025/01/21/nottingham-forest-wissa-transfer-brentford/
+
 **Jimmy Fallon: Melania’s Hat Is Her ‘Very Own Border Wall’**\
 `The “Tonight Show” host donned his own version of the first lady’s inaugural hat, which seemed to prevent the president from kissing her.`\
 https://nytimes.com/2025/01/21/arts/television/jimmy-fallon-melania-trump-hat.html
