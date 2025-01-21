@@ -1,3 +1,7 @@
+**A Day of Triumph, Jubilation and Gloating in Washington**\
+`There were Proud Boys, billionaires, stiletto heels, cowboy hats, the Village People, icy cold and happy Canadians at President Trump’s inaugural.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inaugural.html
+
 **Trump’s border emergency declaration comes as crossings are near a 4-year low.**\
 `By Albert Sun and Allison McCann`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trumps-border-emergency-declaration-comes-as-crossings-are-near-a-4-year-low
