@@ -1,3 +1,15 @@
+**Hochul Proposes a Budget Aimed More at Pocketbook Issues Than at Trump**\
+`The $252 billion spending plan for New York addressed concerns about affordability, crime and the cost of living, but did little to anticipate President Trump’s policies.`\
+https://nytimes.com/2025/01/21/nyregion/hochul-state-budget-ny.html
+
+**Fire Kills Dozens of People at Turkish Ski Resort**\
+`At least 66 people were killed and several others injured in a blaze that broke out overnight at the 12-story Grand Kartal Hotel in Kartalkaya, Turkey.`\
+https://nytimes.com/video/world/europe/100000009939455/turkey-ski-resort-hotel-fire-kartalkaya.html
+
+**David Lynch’s Enchanting Sound Worlds**\
+`Music played a huge role in defining the filmmaker’s distinctive atmosphere on the big and small screens. Hear 13 examples.`\
+https://nytimes.com/2025/01/21/arts/music/amplifier-newsletter-david-lynch-music.html
+
 **Murillo signs new long-term Forest contract**\
 `Brazilian defender Murillo has signed a new four-and-a-half-year contract with Nottingham Forest.`\
 https://nytimes.com/athletic/6075550/2025/01/21/nottingham-forest-murillo-contract/
