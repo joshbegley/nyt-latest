@@ -1,3 +1,11 @@
+**4 Charged in String of Burglaries at Luxury Homes in Ohio**\
+`The defendants, all from Chile, are accused of participating in a South American crime group targeting multimillion-dollar homes, the authorities said. One of them appeared to belong to the Cincinnati Bengals quarterback Joe Burrow.`\
+https://nytimes.com/2025/01/21/us/joe-burrow-ohio-burglary-arrests.html
+
+**Five things we learned from the 2025 Baseball Hall of Fame election**\
+`Takeaways from an election in which Ichiro, CC Sabathia and Billy Wagner punched their tickets to Cooperstown. `\
+https://nytimes.com/athletic/6078322/2025/01/21/baseball-hall-of-fame-election-2025-takeaways/
+
 **Record Snowfall Blankets New Orleans**\
 `A powerful winter storm tore across the Gulf Coast on Tuesday, bring record snowfall to parts of Louisiana and Texas.`\
 https://nytimes.com/video/weather/100000009941357/louisiana-texas-snow-storm.html
