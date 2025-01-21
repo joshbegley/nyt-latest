@@ -1,3 +1,15 @@
+**L.A. faces a new threat: Rain, and maybe floods laden with ash and debris.**\
+`By Jacey Fortin`\
+https://nytimes.com/live/2025/01/21/us/los-angeles-wildfires-california/la-faces-a-new-threat-rain-and-maybe-floods-laden-with-ash-and-debris
+
+**Until Saturday: Ohio State, just too much**\
+`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
+https://nytimes.com/athletic/6078933/2025/01/21/ohio-state-notre-dame-college-football-playoff-until-saturday/
+
+**NFL announces officiating crew for Super Bowl LIX**\
+`Super Bowl LIX will take place Feb. 9 at the Caesars Superdome in New Orleans.`\
+https://nytimes.com/athletic/6078679/2025/01/21/nfl-announces-officiating-crew-for-super-bowl-lix/
+
 **Panama Alerts United Nations to Trump’s Inaugural Remarks**\
 `On Monday, President Trump said of the Panama Canal, “We’re taking it back.” The letter from Panama cited articles of the U.N. charter that prohibit member states from using threats and force.`\
 https://nytimes.com/2025/01/21/us/panama-canal-trump-un.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6074942/2025/01/21/diego-carlos-fenerbahce-aston-vi
 **Trump Plans to Announce $100 Billion A.I. Initiative**\
 `OpenAI, Oracle and SoftBank are planning to form a new joint venture called Stargate to invest in data centers, building on major U.S. investments in the technology.`\
 https://nytimes.com/2025/01/21/technology/trump-openai-stargate-artificial-intelligence.html
-
-**Rubio Oversees Halt to Foreign Aid and Meets With Asian Diplomats on Day 1**\
-`Marco Rubio told State Department employees that changes under President Trump “are not meant to be destructive, they’re not meant to be punitive.”`\
-https://nytimes.com/2025/01/21/us/politics/marco-rubio-trump-administration.html
-
-**Leaders at Davos Economic Forum Vow to ‘Stay the Course’ on Climate Action**\
-`Officials and business executives at the annual gathering in Switzerland said the fight against global would continue with or without the United States.`\
-https://nytimes.com/2025/01/21/business/trump-climate-davos.html
-
-**New Orleans, a City That Has Seen It All, Gets Its First Snow in 15 Years**\
-`Many roadways were impassable, classes were canceled in local schools and many businesses could not open as a winter storm essentially brought New Orleans to a standstill.`\
-https://nytimes.com/2025/01/21/weather/new-orleans-snow.html
 
