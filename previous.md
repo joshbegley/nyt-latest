@@ -1,3 +1,11 @@
+**Are Americans Doing Fitness Wrong?**\
+`Four lessons about exercise from around the world.`\
+https://nytimes.com/2025/01/21/well/move/international-fitness-lessons.html
+
+**Scoop City: What's next after Bears' big get?**\
+`Inside: A quick look at what Ben Johnson brings to Chicago, Aaron Glenn in New York and what&#8217;s next for Detroit.`\
+https://nytimes.com/athletic/6078330/2025/01/21/bears-hire-ben-johnson-caleb-williams-nfl-scoop-city/
+
 **Garth Hudson, Multifaceted Musician With the Band, Dies at 87**\
 `He was the last surviving original member of one of the most influential groups of the 1960s and ’70s, with their blend of rock, r&b and country.`\
 https://nytimes.com/2025/01/21/arts/music/garth-hudson-dead.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6076724/2025/01/21/aj-dybantsa-2026-nba-draft-hooph
 `The former defender "found it a pressure and a privilege" to provide for the next generation of women footballers`\
 https://nytimes.com/athletic/6070201/2025/01/21/jen-beattie-retirement-cancer-soccer-nwsl-wsl/
 
-**‘I Feel Rage, I Feel Sadness.’ With Border Closed, Migrants Have Few Options.**\
-`On Monday, President Trump took action to seal the nation’s southern border and terminate the widely used CBP One app, leaving migrants in Mexico feeling desperate and disheartened.`\
+**‘I Feel Rage, I Feel Sadness.’ With Border Closed, Migrants Face Few Options.**\
+`On Monday, President Trump took action to close the nation’s southern border and terminate a widely used app. Many migrants expressed despair, and some moved to cross the border anyway.`\
 https://nytimes.com/2025/01/21/world/americas/trump-us-mexico-border.html
-
-**Vitor Reis to Manchester City: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we take a look at Vitor Reis' move to Manchester City`\
-https://nytimes.com/athletic/6063584/2025/01/21/vitor-reis-to-manchester-city-the-athletic-500-transfer-ratings/
-
-**Just Think of the Leftovers**\
-`Meatballs, scallion chicken and cauliflower adobo are quick and delicious dinners, but they really shine when repurposed or reheated.`\
-https://nytimes.com/2025/01/21/dining/recipes-using-leftovers.html
 
