@@ -1,3 +1,15 @@
+**How Ohio State downed Notre Dame for first championship in 10 years**\
+`The longest college football season ever, starting in August and ending on Inauguration Day, became an Ohio State coronation.`\
+https://nytimes.com/athletic/6076854/2025/01/20/ohio-state-notre-dame-cfp-national-championship-result/
+
+**Latin American Leaders Welcome and Warn Trump**\
+`Several chafed at his plans as President Trump enacted immigration measures affecting their countries and vowed to impose tariffs on Mexico and Canada.`\
+https://nytimes.com/2025/01/20/world/americas/latin-america-trump-reaction.html
+
+**'This is normal': Steve Kerr isn't worried about challenges facing Celtics**\
+`Kerr provided his perspective hours before Golden State was soundly defeated by Boston, 125-85.`\
+https://nytimes.com/athletic/6076849/2025/01/20/celtics-steve-kerr-warriors/
+
 **Maple Leafs report cards: Routine play executed well tops Lightning**\
 `The Leafs led the Lightning all game with a solid if unspectacular performance.`\
 https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightning-matthews-nylander/
