@@ -1,4 +1,8 @@
-**Trump Says He Has Granted Broad Clemency to Jan. 6 Rioters**\
+**How Every Senator Voted to Confirm Marco Rubio as Secretary of State**\
+`The Senate unanimously approved Mr. Rubio in the first vote on President Trump’s cabinet selections.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation-vote.html
+
+**Trump Grants Broad Clemency to Jan. 6 Rioters**\
 `The extraordinary pardons and commutations extended to those who committed both violent and nonviolent crimes on Jan. 6, including assaulting police officers and seditious conspiracy.`\
 https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan-6.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/senate-passes-border-crackdown-bill.h
 **Trump Administration Fires Immigration Court Officials as Crackdown Begins**\
 `Four immigration court officials were removed from their positions on Monday. It’s unclear who is in charge at this point.`\
 https://nytimes.com/2025/01/20/us/politics/trump-administration-fires-immigration-judges.html
-
-**Trump Promises Americans the Moon (Well, Mars)**\
-`Donald Trump’s pledge-filled speech made him sound like a candidate trying to run up the score.`\
-https://nytimes.com/2025/01/20/us/politics/trump-inauguration-promises.html
 
