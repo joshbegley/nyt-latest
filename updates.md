@@ -1,3 +1,15 @@
+**Joel Paley, Writer of ‘Ruthless,’ an Off Broadway Hit, Dies at 69**\
+`The show, with music by Marvin Laird, portrayed a schoolgirl’s murderous theatrical ambition. Paley also performed in the parody dance group Les Ballets Trockadero.`\
+https://nytimes.com/2025/01/21/theater/joel-paley-dead.html
+
+**Trump’s Proposed Tariff Agency Raises Questions, and Confusion, for Experts**\
+`President Trump wants an External Revenue Service to collect tariffs on imports. But one trade expert said the move may be “more branding than substance.”`\
+https://nytimes.com/2025/01/21/us/politics/trump-tariffs-external-revenue-service.html
+
+**Chicago shivers through an Arctic blast.**\
+`Temperatures in the Upper Midwest plunged below zero on Tuesday.`\
+https://nytimes.com/2025/01/21/weather/chicago-shivers-through-an-arctic-blast.html
+
 **The Ichiro Collection: 6 stories from our archives as Cooperstown beckons**\
 `Six stories that encapsulate Ichiro's impact on baseball as he prepares to be voted into the Hall of Fame`\
 https://nytimes.com/athletic/6078291/2025/01/21/ichiro-suzuki-hall-of-fame-archives/
