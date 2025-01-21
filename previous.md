@@ -1,3 +1,11 @@
+**Garth Hudson, Multifaceted Musician With the Band, Dies at 87**\
+`He was the last surviving original member of one of the most influential groups of the 1960s and ’70s, with their blend of rock, r&b and country.`\
+https://nytimes.com/2025/01/21/obituaries/garth-hudson-multifaceted-musician-with-the-band-dies-at-87.html
+
+**Watch: The 'Until Saturday' reaction podcast — Ohio State wins the crown!**\
+`David Ubben, Chris Vannini and Damien Harris offer their thoughts and takeaways from Ohio State’s 34-23 win over Notre Dame.`\
+https://nytimes.com/athletic/6078033/2025/01/21/ohio-state-wins-the-crown-the-until-saturday-national-championship-reaction-podcast/
+
 **A Silent, Snowy Houston Has Its Residents Joyful but Also Wary**\
 `With memories of the deadly 2021 winter storm still fresh, Houston residents greeted the city’s blanket of snow with joy but also concern.`\
 https://nytimes.com/2025/01/21/weather/houston-snow-winter-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6063584/2025/01/21/vitor-reis-to-manchester-city-th
 **Just Think of the Leftovers**\
 `Meatballs, scallion chicken and cauliflower adobo are quick and delicious dinners, but they really shine when repurposed or reheated.`\
 https://nytimes.com/2025/01/21/dining/recipes-using-leftovers.html
-
-**Europe Braces for a New Trump Era, Uncertain About What It Means**\
-`President Trump appears willing to shake up almost every policy area, and a behind-the-scenes E.U. task force has been trying to prepare. But is Europe ready?`\
-https://nytimes.com/2025/01/21/world/europe/trump-eu-policy.html
-
-**When Google Altered Its Ad Rules, Charities Paid the Price**\
-`After the search giant welcomed more ads from small rivals like Ask.com, Google ad costs for some nonprofits ballooned.`\
-https://nytimes.com/2025/01/21/technology/google-online-ads-philanthropies.html
 

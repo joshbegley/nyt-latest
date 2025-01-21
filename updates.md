@@ -1,3 +1,11 @@
+**Garth Hudson, Multifaceted Musician With the Band, Dies at 87**\
+`He was the last surviving original member of one of the most influential groups of the 1960s and ’70s, with their blend of rock, r&b and country.`\
+https://nytimes.com/2025/01/21/obituaries/garth-hudson-multifaceted-musician-with-the-band-dies-at-87.html
+
+**Watch: The 'Until Saturday' reaction podcast — Ohio State wins the crown!**\
+`David Ubben, Chris Vannini and Damien Harris offer their thoughts and takeaways from Ohio State’s 34-23 win over Notre Dame.`\
+https://nytimes.com/athletic/6078033/2025/01/21/ohio-state-wins-the-crown-the-until-saturday-national-championship-reaction-podcast/
+
 **A Silent, Snowy Houston Has Its Residents Joyful but Also Wary**\
 `With memories of the deadly 2021 winter storm still fresh, Houston residents greeted the city’s blanket of snow with joy but also concern.`\
 https://nytimes.com/2025/01/21/weather/houston-snow-winter-storm.html
