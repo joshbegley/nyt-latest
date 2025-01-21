@@ -1,3 +1,7 @@
+**Forest submit £22m transfer bid for Brentford's Wissa**\
+`Nottingham Forest have submitted a £22million bid to sign Yoane Wissa from Brentford.`\
+https://nytimes.com/athletic/6076154/2025/01/21/nottingham-forest-wissa-transfer-brentford/
+
 **Jimmy Fallon: Melania’s Hat Is Her ‘Very Own Border Wall’**\
 `The “Tonight Show” host donned his own version of the first lady’s inaugural hat, which seemed to prevent the president from kissing her.`\
 https://nytimes.com/2025/01/21/arts/television/jimmy-fallon-melania-trump-hat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnach
 **Without Rakell, Penguins dominate Kings for impressive victory: Yohe's 10 observations**\
 `The Penguins played one of their finest games of the season, beating the Kings in Los Angeles, 5-1. `\
 https://nytimes.com/athletic/6077049/2025/01/21/penguins-dominate-kings-yohe/
-
-**Word of the Day: cognizant**\
-`This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/21/learning/word-of-the-day-cognizant.html
 
