@@ -1,3 +1,11 @@
+**Sidney Crosby unfazed by Connor McDavid's temper outburst against Vancouver**\
+`Sidney Crosby can understand the frustration Connor McDavid was feeling on Saturday night against the Vancouver Canucks. `\
+https://nytimes.com/athletic/6076456/2025/01/20/sidney-crosby-comments-connor-mcdavid-suspension-nhl/
+
+**In Dueling Pardons, an Intensified Fight Over the Meaning of Jan. 6**\
+`President Trump’s grant of clemency to those who assaulted the Capitol in his name four years ago clashed with his predecessor’s decision to shield from retribution those who had sought to hold him to account.`\
+https://nytimes.com/2025/01/20/us/politics/biden-trump-jan6-pardons.html
+
 **Trump’s Second Inauguration in Pictures**\
 `A change of venue and a subdued swearing-in ceremony marked Donald J. Trump’s return to power.`\
 https://nytimes.com/card/2025/01/21/us/politics/trump-inauguration-photos
