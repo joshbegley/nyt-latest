@@ -1,3 +1,19 @@
+**Spurs at NBA midpoint: Losing Gregg Popovich, highs and lows, but 'this is not easy'**\
+`“We know in a season it is not going to be a straight line,” Spurs star Victor Wembanyama said. “The long term is never being questioned."`\
+https://nytimes.com/athletic/6076929/2025/01/21/spurs-nba-midpoint-gregg-popovich/
+
+**3 of the Most Important Trump Executive Orders on Climate**\
+`President Trump’s wave of executive orders yesterday sent an undeniable signal to the world about the United States’ role in fighting climate change.`\
+https://nytimes.com/2025/01/21/climate/trump-climate-change-executive-orders.html
+
+**Judge Stops Justice Dept. From Releasing Report on Trump Documents Case**\
+`Judge Aileen M. Cannon said prosecutors should not be allowed to share the report outside the Justice Department, adding that it contained information that had not been made public.`\
+https://nytimes.com/2025/01/21/us/politics/trump-documents-jack-smith-report.html
+
+**Andres Garcia to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at Andres Garcia's move to Aston Villa from Levante`\
+https://nytimes.com/athletic/6071446/2025/01/21/andres-garcia-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **Ohio State, Day laugh off post-title cart crash video**\
 `Ohio State entered the postseason as the No. 8 seed in the bracket and beat Tennessee, Oregon, Texas and Notre Dame, all by double digits`\
 https://nytimes.com/athletic/6078146/2025/01/21/ohio-state-ryan-day-will-howard/
