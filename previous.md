@@ -1,3 +1,11 @@
+**Trump’s Pardons Will Encourage More Political Violence**\
+`To open his term with such an act of contempt toward the legal system is audacious, even for Mr. Trump.`\
+https://nytimes.com/2025/01/20/opinion/editorials/trump-jan-6-pardons.html
+
+**How Devon Levi handled his latest NHL action and more takeaways from Sabres' loss**\
+`Levi got the first start of the team’s four-game road trip and wasn’t as sharp as the Sabres hoped.`\
+https://nytimes.com/athletic/6076708/2025/01/20/sabres-kraken-score-devon-levi/
+
 **Trump Demands Search for Political Bias in Justice Dept., Other Agencies**\
 `His ‘weaponization’ executive order begins with a list of misleading accusations against the Biden administration.`\
 https://nytimes.com/2025/01/20/us/politics/weaponization-government-executive-order-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-world-health-organization.html
 **Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
 `Shortly after taking office Monday, the president issued the order to delay the app’s ban for 75 days. The law went into effect on Sunday.`\
 https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html
-
-**Trump singles out the I.R.S. work force in his hiring freeze executive order.**\
-`By Andrew Duehren`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-singles-out-the-irs-work-force-in-his-hiring-freeze-executive-order
-
-**How Every Senator Voted to Confirm Marco Rubio as Secretary of State**\
-`The Senate unanimously approved Mr. Rubio in the first vote on President Trump’s cabinet selections.`\
-https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation-vote.html
 
