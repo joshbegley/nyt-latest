@@ -1,40 +1,40 @@
-**Forest submit £22m transfer bid for Brentford's Wissa**\
-`Nottingham Forest have submitted a £22million bid to sign Yoane Wissa from Brentford.`\
-https://nytimes.com/athletic/6076154/2025/01/21/nottingham-forest-wissa-transfer-brentford/
+**At 90, the Ghanaian Highlife Pioneer Ebo Taylor Finds a New Voice**\
+`The singer, guitarist and composer released heralded music in the 1970s and early ’80s before retreating. The label Jazz Is Dead is boosting his rediscovery.`\
+https://nytimes.com/2025/01/21/arts/music/ebo-taylor-jazz-is-dead.html
 
-**Jimmy Fallon: Melania’s Hat Is Her ‘Very Own Border Wall’**\
-`The “Tonight Show” host donned his own version of the first lady’s inaugural hat, which seemed to prevent the president from kissing her.`\
-https://nytimes.com/2025/01/21/arts/television/jimmy-fallon-melania-trump-hat.html
+**Want an Authentic Travel Experience? Try McDonald’s.**\
+`It’s a much realer version of the supposed authenticity we so often seek.`\
+https://nytimes.com/2025/01/21/magazine/travel-fast-food.html
 
-**First Mario Lemina, now Matheus Cunha: Vitor Pereira's bright start at Wolves is over**\
-`Pereira has publicly criticised a second key player after Cunha's display against Chelsea. Welcome to Molineux, coach`\
-https://nytimes.com/athletic/6076664/2025/01/21/wolves-pereira-cunha-lemina-coach/
+**TikTok, Trump and What Crony Capitalism Does to Our Economy**\
+`The fealty that corporate chieftains are showing the new president is a worrying sign for our economy.`\
+https://nytimes.com/2025/01/21/opinion/trump-zuckerberg-bezos-chew.html
 
-**At Least 10 Are Killed in Fire at Ski Resort in Turkey**\
-`The blaze broke out overnight at a popular ski resort during a school break when many families head to the slopes.`\
-https://nytimes.com/2025/01/21/world/europe/turkey-ski-resort-fire.html
+**Doug Collins, a Key Trump Impeachment Player, Will Face Senators as V.A. Pick**\
+`Former Representative Doug Collins does not have a traditional résumé for a V.A. secretary, but he fits the mold of a Trump loyalist.`\
+https://nytimes.com/2025/01/21/us/politics/doug-collins-va-confirmation.html
 
-**The Voices in His Head Would Not Stop. Then a Boy Was Stabbed to Death.**\
-`Waldo Mejia’s psyche had been showing cracks, a longtime friend said. Now he is charged with killing 14-year-old Caleb Rijos at random.`\
-https://nytimes.com/2025/01/21/nyregion/waldo-meija-caleb-rijos-stabbing-voices.html
+**Are Dental X-Rays Safe?**\
+`We asked experts if regular exposure to low levels of radiation could be harmful to health.`\
+https://nytimes.com/2025/01/21/well/dental-x-ray-health-risks.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/21/crosswords/spelling-bee-forum.html
+**Did Christopher Columbus Jump-Start the Climate Crisis?**\
+`In “Dark Laboratory,” Tao Leigh Goffe traces the origins of global environmental collapse to the explorer’s conquest of the Caribbean.`\
+https://nytimes.com/2025/01/21/books/review/dark-laboratory-tao-leigh-goffe.html
 
-**Manchester United transfers: Why Amorim wants Dorgu, Rashford's options and other possible deals**\
-`United are attempting to give coach Ruben Amorim the wing-backs he needs but it is proving a very tricky transfer window`\
-https://nytimes.com/athletic/6076243/2025/01/21/manchester-united-transfers-dorgu-rashford/
+**In ‘Mona Acts Out,’ #MeToo Shakes Up a Downtown Theater**\
+`Mischa Berlinski’s shrewd comic novel finds a veteran actress reconnecting with her deposed mentor while facing the challenge of playing Cleopatra.`\
+https://nytimes.com/2025/01/21/books/review/mona-acts-out-mischa-berlinski.html
 
-**The Transfer DealSheet: The latest on your club and the January window**\
-`Welcome to the third January edition of The Transfer DealSheet — our team of dedicated writers will take you inside the market`\
-https://nytimes.com/athletic/6074946/2025/01/21/arsenal-manchester-united-transfer-news-latest-liverpool-real-madrid-january/
+**Loving an ‘Untouched’ Modernist House, and Then Getting Down to Work**\
+`A couple bought a home in Palo Alto, Calif., that was designed by an associate of Frank Lloyd Wright. Happily, they were also smitten with the two-year renovation.`\
+https://nytimes.com/2025/01/21/realestate/location-modernist-house-palo-alto.html
 
-**Why Chelsea are looking to add another winger**\
-`With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a right-footed winger on their wish list`\
-https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
+**At Least 10 Are Killed At Ski Resort Fire in Turkey**\
+`The fire at the Grand Kartal Hotel, in a ski resort in Bolu Province, started when most of the 200 guests were asleep. The cause of the fire was unclear.`\
+https://nytimes.com/video/world/europe/100000009939297/turkey-ski-resort-hotel-fire-deaths.html
 
-**Without Rakell, Penguins dominate Kings for impressive victory: Yohe's 10 observations**\
-`The Penguins played one of their finest games of the season, beating the Kings in Los Angeles, 5-1. `\
-https://nytimes.com/athletic/6077049/2025/01/21/penguins-dominate-kings-yohe/
+**Haas names F1's first female race engineer**\
+`Laura Muller will become the first female race engineer in Formula One history after being promoted into the role by Haas ahead of the 2025 season.`\
+https://nytimes.com/athletic/6077463/2025/01/21/laura-muller-haas-f1-female-race-engineer/
 
