@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Routine play executed well tops Lightning**\
+`The Leafs held the Lightning without the lead all game with a solid if unspectacular performance.`\
+https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightning-matthews-nylander/
+
 **Trump declared an emergency at the southern border. Here’s what that means.**\
 `Invoking presidential emergency powers gives the president the ability to go around Congress and unlock federal funding to crack down at the border.`\
 https://nytimes.com/2025/01/20/us/politics/trump-border-emergency-declaration-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-executive-orders/in-an-instant-the-
 **How Trump Plans to Kill the Refugee System**\
 `President Trump, who has criticized refugee resettlement, moved on his first day in office to suspend the decades-old program to admit persecuted people to the United States.`\
 https://nytimes.com/2025/01/20/us/politics/trump-refugee-explainer.html
-
-**Trump signs an executive order stripping security clearances from some former intelligence officials.**\
-`By Julian E. Barnes and Devlin Barrett`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-signs-an-executive-order-stripping-security-clearances-from-some-former-intelligence-officials
 
