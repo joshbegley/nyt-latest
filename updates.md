@@ -1,3 +1,19 @@
+**San Diego FC signs USMNT midfielder Luca De La Torre through 2025 season**\
+`MLS club also announced that it has a purchase option that could keep the San Diego native at home beyond this season`\
+https://nytimes.com/athletic/6078893/2025/01/21/san-diego-fc-luca-de-la-torre-signed-loan/
+
+**On Capitol Hill, Only a Handful of Republicans Object to Jan. 6 Pardons**\
+`Even Republicans who once said violent rioters should be prosecuted to the fullest extent of the law declined to criticize the presidential clemency for violent offenders, saying it was time to move on.`\
+https://nytimes.com/2025/01/21/us/politics/trump-jan-6-pardons-republicans.html
+
+**How Could Trump’s Tariffs Affect the U.S., Canada and Mexico?**\
+`While much about the threatened tariffs is still unclear, experts predict they would be bad news for all three economies, with few winners.`\
+https://nytimes.com/2025/01/21/world/canada/trumps-tariffs-us-canada-mexico.html
+
+**Federal Employees Union Sues Trump Over Worker Protections**\
+`The National Treasury Employees Union argues a move to “radically reshape the civil service” by making it easier to fire federal workers violates the will of Congress.`\
+https://nytimes.com/2025/01/21/us/politics/trump-schedule-f-federal-workers.html
+
 **Three Opinion Writers on Trump Day 1: He Is Exploiting ‘Civic Ignorance’**\
 `The president’s executive orders show us where things are headed.`\
 https://nytimes.com/2025/01/21/opinion/trump-day-one-round-table.html

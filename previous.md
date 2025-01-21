@@ -1,3 +1,19 @@
+**San Diego FC signs USMNT midfielder Luca De La Torre through 2025 season**\
+`MLS club also announced that it has a purchase option that could keep the San Diego native at home beyond this season`\
+https://nytimes.com/athletic/6078893/2025/01/21/san-diego-fc-luca-de-la-torre-signed-loan/
+
+**On Capitol Hill, Only a Handful of Republicans Object to Jan. 6 Pardons**\
+`Even Republicans who once said violent rioters should be prosecuted to the fullest extent of the law declined to criticize the presidential clemency for violent offenders, saying it was time to move on.`\
+https://nytimes.com/2025/01/21/us/politics/trump-jan-6-pardons-republicans.html
+
+**How Could Trump’s Tariffs Affect the U.S., Canada and Mexico?**\
+`While much about the threatened tariffs is still unclear, experts predict they would be bad news for all three economies, with few winners.`\
+https://nytimes.com/2025/01/21/world/canada/trumps-tariffs-us-canada-mexico.html
+
+**Federal Employees Union Sues Trump Over Worker Protections**\
+`The National Treasury Employees Union argues a move to “radically reshape the civil service” by making it easier to fire federal workers violates the will of Congress.`\
+https://nytimes.com/2025/01/21/us/politics/trump-schedule-f-federal-workers.html
+
 **Three Opinion Writers on Trump Day 1: He Is Exploiting ‘Civic Ignorance’**\
 `The president’s executive orders show us where things are headed.`\
 https://nytimes.com/2025/01/21/opinion/trump-day-one-round-table.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/21/us/politics/jan-6-pardons-police.html
 **'We're trying': Flyers fans, Daniel Briere hears your pleas for a top-level center**\
 `Briere also is pushing back on the idea that goaltending is the Flyers' primary problem.`\
 https://nytimes.com/athletic/6078832/2025/01/21/flyers-trade-center-briere/
-
-**L.A. faces a new threat: Rain, and maybe floods laden with ash and debris.**\
-`By Jacey Fortin`\
-https://nytimes.com/live/2025/01/21/us/los-angeles-wildfires-california/la-faces-a-new-threat-rain-and-maybe-floods-laden-with-ash-and-debris
-
-**Until Saturday: Ohio State, just too much**\
-`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
-https://nytimes.com/athletic/6078933/2025/01/21/ohio-state-notre-dame-college-football-playoff-until-saturday/
-
-**NFL announces officiating crew for Super Bowl LIX**\
-`Super Bowl LIX will take place Feb. 9 at the Caesars Superdome in New Orleans.`\
-https://nytimes.com/athletic/6078679/2025/01/21/nfl-announces-officiating-crew-for-super-bowl-lix/
-
-**Panama Alerts United Nations to Trump’s Inaugural Remarks**\
-`On Monday, President Trump said of the Panama Canal, “We’re taking it back.” The letter from Panama cited articles of the U.N. charter that prohibit member states from using threats and force.`\
-https://nytimes.com/2025/01/21/us/panama-canal-trump-un.html
 
