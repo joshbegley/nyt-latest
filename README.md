@@ -1,3 +1,11 @@
+**The King of Gilt Kicks Off the Golden Age**\
+`A boast and a warning as the 45th president becomes the 47th.`\
+https://nytimes.com/2025/01/20/opinion/president-trump-inauguration.html
+
+**Coco Gauff out of the Australian Open after straight-sets defeat to Paula Badosa**\
+`The world No. 3 missed the chance to return to semifinal stage after an inspired performance from the former world No. 2`\
+https://nytimes.com/athletic/6076711/2025/01/20/coco-gauff-australian-open-result-analysis-paula-badosa/
+
 **Trump Tries to Stall TikTok Ban With Executive Order**\
 `President Trump signed an executive order on Monday to delay enforcing a federal ban of TikTok for at least 75 days. It’s unclear if the order could override the federal law.`\
 https://nytimes.com/video/us/politics/100000009938946/trump-tiktok-executive-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-inaugural.html
 **Trump’s border emergency declaration comes as crossings are near a 4-year low.**\
 `By Albert Sun and Allison McCann`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trumps-border-emergency-declaration-comes-as-crossings-are-near-a-4-year-low
-
-**Trump Commutes Sentence of Stewart Rhodes, Founder of Oath Keepers Militia**\
-`The move, in effect, validated the far-right leader’s defiant claim that his criminal prosecution was a kind of political persecution.`\
-https://nytimes.com/2025/01/20/us/politics/stewart-rhodes-trump-jan-6-oath-keepers.html
-
-**Mentality vs. Avalanche earned Wild one of the season's more impressive wins: Smith**\
-`After a bad loss to Nashville on Saturday, the Wild bounced back with a smart, structured game plan against the rival Avalanche.`\
-https://nytimes.com/athletic/6076505/2025/01/20/minnesota-wild-mentality-defense-faber-avalanche-smith/
 
