@@ -1,3 +1,15 @@
+**3 Small Fires Break Out in San Diego Area, Forcing Evacuations**\
+`The blazes ignited in San Diego County early Tuesday, keeping Southern California on edge as dangerous fire conditions persisted.`\
+https://nytimes.com/2025/01/21/us/california-fires-pala-lilac-riverview.html
+
+**Chiefs defense determined to stop the Bills this time after struggling in first meeting**\
+`The Chiefs’ defenders know penalties and poor open-field tackling cost them in the first meeting against the Bills this season.`\
+https://nytimes.com/athletic/6076554/2025/01/21/chiefs-defense-bills-afc-title-game/
+
+**Gleeman: Twins' front office has been in hibernation for 24 months since signing Carlos Correa**\
+`After signing Correa for $200 million and ending a two-decade playoff drought, the Twins have all but stopped making trades and signings.`\
+https://nytimes.com/athletic/6066869/2025/01/21/minnesota-twins-front-office-hibernation/
+
 **2025 NFL Draft consensus Big Board: Which players have climbed into the top 50?**\
 `As the 2025 NFL Draft class takes shape, let's take stock of which prospects are likely to dominate the early round conversation.`\
 https://nytimes.com/athletic/6076102/2025/01/21/nfl-draft-2025-consensus-rankings-tyler-warren/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6075119/2025/01/21/zach-wilson-broncos-free-agent/
 **Bayern confirm signing of Hoffenheim's Bischof, 19, on pre-contract deal**\
 `Bayern Munich have announced the signing of midfielder Tom Bischof from Hoffenheim on a pre-contract agreement.`\
 https://nytimes.com/athletic/6077613/2025/01/21/bayern-munich-transfers-tom-bischof-contract/
-
-**UK minister says opposition trying to 'kill off' Football Governance Bill**\
-`UK culture minister Lisa Nandy has accused some members of the Conservative opposition of trying to use a “wrecking amendment” to “kill off” the government bill that will introduce an independent regulator for men’s professional football in England.`\
-https://nytimes.com/athletic/6077532/2025/01/21/football-governance-bill-lisa-nandy/
-
-**Trump’s First Day Back**\
-`We’re covering President Trump’s inauguration, executive orders and pardons.`\
-https://nytimes.com/2025/01/21/briefing/trump-inauguration-executive-orders-pardons.html
-
-**The Pulse: Ohio State's incredible about-face**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6076714/2025/01/21/ohio-state-notre-dame-the-pulse/
 
