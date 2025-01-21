@@ -1,3 +1,7 @@
+**Without Rakell, Penguins dominate Kings for impressive victory: Yohe's 10 observations**\
+`The Penguins played one of their finest games of the season, beating the Kings in Los Angeles, 5-1. `\
+https://nytimes.com/athletic/6077049/2025/01/21/penguins-dominate-kings-yohe/
+
 **Word of the Day: cognizant**\
 `This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/21/learning/word-of-the-day-cognizant.html

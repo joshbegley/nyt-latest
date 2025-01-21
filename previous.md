@@ -1,3 +1,7 @@
+**Without Rakell, Penguins dominate Kings for impressive victory: Yohe's 10 observations**\
+`The Penguins played one of their finest games of the season, beating the Kings in Los Angeles, 5-1. `\
+https://nytimes.com/athletic/6077049/2025/01/21/penguins-dominate-kings-yohe/
+
 **Word of the Day: cognizant**\
 `This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/21/learning/word-of-the-day-cognizant.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-t
 **Why Monaco away is Aston Villa's biggest game of the season (so far)**\
 `Victory in Monaco would move Villa within touching distance of the Champions League knockout stage - Emery and his players will be ready`\
 https://nytimes.com/athletic/6074884/2025/01/21/aston-villa-monaco-champions-league-unai-emery/
-
-**Tuesday Briefing**\
-`Donald Trump takes office.`\
-https://nytimes.com/2025/01/21/briefing/trump-gaza-climate.html
 
