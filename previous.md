@@ -1,3 +1,19 @@
+**New York City Seeks Jolt for Midtown With Plan to Build 10,000 Homes**\
+`The plan, which rezones parts of the Manhattan neighborhood, aims to address the city’s housing shortage and the area’s beleaguered commercial sector.`\
+https://nytimes.com/2025/01/21/nyregion/midtown-manhattan-housing-crisis.html
+
+**How Trump’s Plan to Label Some Drug Cartels ‘Terrorists’ Would Work**\
+`His administration would have more power to impose economic penalties and travel restrictions, and potentially even take military action inside foreign countries.`\
+https://nytimes.com/2025/01/21/us/politics/trump-drug-cartels-terrorist-mexico.html
+
+**‘Prime Target’ Is a Charming Popcorn Thriller**\
+`Don’t think overly hard about the premise. Just enjoy the constant cliffhangers and beautiful people.`\
+https://nytimes.com/2025/01/21/arts/television/prime-target-apple-leo-woodall.html
+
+**Villa reach verbal agreement with Fenerbahce for Carlos transfer**\
+`Aston Villa have reached a verbal agreement with Fenerbahce for the sale of Diego Carlos.`\
+https://nytimes.com/athletic/6074942/2025/01/21/diego-carlos-fenerbahce-aston-villa-transfers/
+
 **Trump Plans to Announce $100 Billion A.I. Initiative**\
 `OpenAI, Oracle and SoftBank are planning to form a new joint venture called Stargate to invest in data centers, building on major U.S. investments in the technology.`\
 https://nytimes.com/2025/01/21/technology/trump-openai-stargate-artificial-intelligence.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6078568/2025/01/21/ruben-amorim-breaking-tv-charact
 **Elise Stefanik Pledges to Back Trump’s Vision of a ‘Reformed’ U.N.**\
 `During her Senate confirmation hearing, President Trump’s pick for ambassador to the United Nations said she was willing to leverage U.S. contributions to force changes in pursuit of his “America First” agenda.`\
 https://nytimes.com/2025/01/21/us/politics/elise-stefanik-senate-confirmation-hearing.html
-
-**Admiral Fagan Is Fired as Coast Guard Commandant**\
-`The first woman to lead a branch of the armed forces was relieved of command within 24 hours of President Trump’s inauguration.`\
-https://nytimes.com/2025/01/21/us/politics/admiral-fagan-fired-coast-guard.html
-
-**After Trump’s Orders, Mexico’s Leader Says She’ll ‘Always Defend’ Her Country**\
-`On Tuesday, President Claudia Sheinbaum responded point by point to President Trump’s executive orders on migration, trade and other issues.`\
-https://nytimes.com/2025/01/21/us/politics/trump-mexico-sheinbaum.html
-
-**The Look, and Scent, of the Surreal**\
-`Jennifer Medina, a political reporter who lives in Los Angeles, writes about a reporting trip that took her to both the Palisades and Eaton fire zones.`\
-https://nytimes.com/2025/01/21/us/los-angeles-surreal-fires.html
-
-**Nottingham Forest transformation: Murillo deal is huge statement... now for Gibbs-White**\
-`Murillo's new contract shows Forest's transformation into a much smoother machine, with a push for the Champions League looming`\
-https://nytimes.com/athletic/6077623/2025/01/21/murillo-deal-nottingham-forest-gibbs-white-wood/
 
