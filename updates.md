@@ -1,3 +1,11 @@
+**Just Think of the Leftovers**\
+`Meatballs, scallion chicken and cauliflower adobo are quick and delicious dinners, but they really shine when repurposed or reheated.`\
+https://nytimes.com/2025/01/21/dining/recipes-using-leftovers.html
+
+**Europe Braces for a New Trump Era, Uncertain About What It Means**\
+`President Trump appears willing to shake up almost every policy area, and a behind-the-scenes E.U. task force has been trying to prepare. But is Europe ready?`\
+https://nytimes.com/2025/01/21/world/europe/trump-eu-policy.html
+
 **When Google Altered Its Ad Rules, Charities Paid the Price**\
 `After the search giant welcomed more ads from small rivals like Ask.com, Google ad costs for some nonprofits ballooned.`\
 https://nytimes.com/2025/01/21/technology/google-online-ads-philanthropies.html
