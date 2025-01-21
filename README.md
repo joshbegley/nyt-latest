@@ -1,3 +1,7 @@
+**4 Charged in String of Burglaries at Luxury Homes in Ohio**\
+`The defendants, all from Chile, are accused of participating in a South American crime group targeting multimillion-dollar homes, the authorities said. One of them appeared to belong to the Cincinnati Bengals quarterback Joe Burrow.`\
+https://nytimes.com/2025/01/21/us/joe-burrow-ohio-burglary-arrests.html
+
 **Record Snowfall Blankets New Orleans**\
 `A powerful winter storm tore across the Gulf Coast on Tuesday, bring record snowfall to parts of Louisiana and Texas.`\
 https://nytimes.com/video/weather/100000009941357/louisiana-texas-snow-storm.html
@@ -7,7 +11,7 @@ https://nytimes.com/video/weather/100000009941357/louisiana-texas-snow-storm.htm
 https://nytimes.com/2025/01/21/us/politics/birthright-citizenship-visa-holders.html
 
 **Five things we learned from the 2025 Baseball Hall of Fame election**\
-`Here are Five Things We Learned from the 2025 Baseball Hall of Fame election.`\
+`Takeaways from an election in which Ichiro, CC Sabathia and Billy Wagner punched their tickets to Cooperstown. `\
 https://nytimes.com/athletic/6078322/2025/01/21/baseball-hall-of-fame-election-2025-takeaways/
 
 **Trump Pardons Creator of Silk Road Drug Marketplace**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6079461/2025/01/21/unrivaled-wnba-tv-ratings-debut/
 **Scientists Finally Make Heads of Giant Stingray Tails**\
 `The long structures seen in manta rays and their relatives function as an early warning system, rather than a defensive weapon.`\
 https://nytimes.com/2025/01/21/science/stingray-tail-antenna.html
-
-**Who Is Mariann Edgar Budde, the Bishop Who Made a Plea to Trump?**\
-`The first woman to serve as the spiritual leader of the Episcopal Diocese of Washington, Bishop Budde had a message for President Trump during his first term, too.`\
-https://nytimes.com/2025/01/21/us/politics/bishop-mariann-edgar-budde-trump.html
 
