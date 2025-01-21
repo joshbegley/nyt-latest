@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6076243/2025/01/21/manchester-united-transfers-dorg
 `Welcome to the third January edition of The Transfer DealSheet — our team of dedicated writers will take you inside the market`\
 https://nytimes.com/athletic/6074946/2025/01/21/arsenal-manchester-united-transfer-news-latest-liverpool-real-madrid-january/
 
-**Why Chelsea are looking to add another winger to their ranks**\
+**Why Chelsea are looking to add another winger**\
 `With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a right-footed winger on their wish list`\
 https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
 
