@@ -1,3 +1,7 @@
+**New Orleans, a City That Has Seen It All, Gets Its First Snow in 15 Years**\
+`Many roadways were impassable, classes were canceled in local schools and many businesses could not open as a winter storm essentially brought New Orleans to a standstill.`\
+https://nytimes.com/2025/01/21/weather/new-orleans-snow.html
+
 **Panama Alerts United Nations to Trump’s Inaugural Remarks**\
 `On Monday, President Trump said of the Panama Canal, “We’re taking it back.” The letter from Panama cited articles of the U.N. charter that prohibit member states from using threats and force.`\
 https://nytimes.com/2025/01/21/us/panama-canal-trump-un.html
