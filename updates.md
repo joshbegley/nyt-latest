@@ -1,3 +1,7 @@
+**First Mario Lemina, now Matheus Cunha: Vitor Pereira's Wolves honeymoon period is over**\
+`Pereira has publicly criticised a second key player after Cunha's display against Chelsea. Welcome to Molineux, coach`\
+https://nytimes.com/athletic/6076664/2025/01/21/wolves-pereira-cunha-lemina-coach/
+
 **At Least 10 Are Killed in Fire at Ski Resort in Turkey**\
 `The blaze broke out overnight at a popular ski resort during a school break, when many families head to the slopes.`\
 https://nytimes.com/2025/01/21/world/asia/turkey-ski-resort-fire.html
