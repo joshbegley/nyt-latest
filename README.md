@@ -1,3 +1,7 @@
+**Trump Demands Search for Political Bias in Justice Dept., Other Agencies**\
+`His ‘weaponization’ executive order begins with a list of misleading accusations against the Biden administration.`\
+https://nytimes.com/2025/01/20/us/politics/weaponization-government-executive-order-trump.html
+
 **A Day of Triumph, Jubilation and Gloating in Washington**\
 `There were Proud Boys, billionaires, stiletto heels, cowboy hats, the Village People, icy cold and happy Canadians at President Trump’s inaugural.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inaugural.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/01/20/nyregion/enrique-tarrio-proud-boys-pardon-jan-6.h
 https://nytimes.com/2025/01/20/us/politics/trump-world-health-organization.html
 
 **Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
-`Shortly after taking office Monday, the president issued the order to delay the app’s ban by at least 75 days. The law went into effect on Sunday.`\
+`Shortly after taking office Monday, the president issued the order to delay the app’s ban for 75 days. The law went into effect on Sunday.`\
 https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html
 
 **Trump singles out the I.R.S. work force in his hiring freeze executive order.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-singles-out-
 **How Every Senator Voted to Confirm Marco Rubio as Secretary of State**\
 `The Senate unanimously approved Mr. Rubio in the first vote on President Trump’s cabinet selections.`\
 https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation-vote.html
-
-**Trump Grants Sweeping Clemency to All Jan. 6 Rioters**\
-`The extraordinary pardons and commutations extended to those who committed both violent and nonviolent crimes on Jan. 6, including assaulting police officers and seditious conspiracy.`\
-https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan-6.html
 
