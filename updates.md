@@ -1,3 +1,7 @@
+**So, So, So Long**\
+`Tap into your animal instincts to solve Dan Caprera’s crossword puzzle.`\
+https://nytimes.com/2025/01/20/crosswords/daily-puzzle-2025-01-21.html
+
 **Corrections: Jan. 21, 2025**\
 `Corrections that appeared in print on Tuesday, Jan. 21, 2025.`\
 https://nytimes.com/2025/01/20/pageoneplus/corrections-jan-21-2025.html
