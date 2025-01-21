@@ -1,3 +1,7 @@
+**Trump moves to undermine Biden’s international tax deal.**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-moves-to-undermine-bidens-international-tax-deal
+
 **Coco Gauff out of the Australian Open after straight-sets defeat to Paula Badosa**\
 `The world No. 3 missed the chance to return to the semifinal stage after an inspired performance from the former world No. 2`\
 https://nytimes.com/athletic/6076711/2025/01/20/coco-gauff-australian-open-result-analysis-paula-badosa/
