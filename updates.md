@@ -1,3 +1,7 @@
+**Ichiro, Sabathia and Wagner elected to Baseball Hall of Fame**\
+`The trio will join Dave Parker and Dick Allen as the Class of 2025 in Cooperstown this summer.`\
+https://nytimes.com/athletic/6079085/2025/01/21/baseball-hall-of-fame-election-ichiro-sabathia-wagner/
+
 **What Trump’s Pledge to Plant the U.S. Flag on Mars Really Means**\
 `The president’s Inaugural Address linked landing on the Red Planet with Manifest Destiny, but left many of the specifics unclear.`\
 https://nytimes.com/2025/01/21/science/trump-mars-flag.html
