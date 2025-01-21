@@ -1,3 +1,23 @@
+**Ruben Amorim breaking a TV adds to intrigue over how he deals with turbulence at Man Utd**\
+`Amorim's coaching career has been largely successful until he arrived at Old Trafford where he is attempting to deliver 'shocks'`\
+https://nytimes.com/athletic/6078568/2025/01/21/ruben-amorim-breaking-tv-character/
+
+**Elise Stefanik Pledges to Back Trump’s Vision of a ‘Reformed’ U.N.**\
+`During her Senate confirmation hearing, President Trump’s pick for ambassador to the United Nations said she was willing to leverage U.S. contributions to force changes in pursuit of his “America First” agenda.`\
+https://nytimes.com/2025/01/21/us/politics/elise-stefanik-senate-confirmation-hearing.html
+
+**Admiral Fagan Is Fired as Coast Guard Commandant**\
+`The first woman to lead a branch of the armed forces was relieved of command within 24 hours of President Trump’s inauguration.`\
+https://nytimes.com/2025/01/21/us/politics/admiral-fagan-fired-coast-guard.html
+
+**After Trump’s Orders, Mexico’s Leader Says She’ll ‘Always Defend’ Her Country**\
+`On Tuesday, President Claudia Sheinbaum responded point by point to President Trump’s executive orders on migration, trade and other issues.`\
+https://nytimes.com/2025/01/21/us/politics/trump-mexico-sheinbaum.html
+
+**The Look, and Scent, of the Surreal**\
+`Jennifer Medina, a political reporter who lives in Los Angeles, writes about a reporting trip that took her to both the Palisades and Eaton fire zones.`\
+https://nytimes.com/2025/01/21/us/los-angeles-surreal-fires.html
+
 **Nottingham Forest transformation: Murillo deal is huge statement... now for Gibbs-White**\
 `Murillo's new contract shows Forest's transformation into a much smoother machine, with a push for the Champions League looming`\
 https://nytimes.com/athletic/6077623/2025/01/21/murillo-deal-nottingham-forest-gibbs-white-wood/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/21/us/politics/trump-us-attorneys-justice-department
 **N.Y. Governor’s Budget Aims More at Pocketbook Issues Than at Trump**\
 `The $252 billion spending plan for New York addressed concerns about affordability, crime and the cost of living, but did little to anticipate President Trump’s policies.`\
 https://nytimes.com/2025/01/21/nyregion/hochul-state-budget-ny.html
-
-**Fire Kills Dozens of People at Turkish Ski Resort**\
-`At least 76 people were killed and several others injured in a blaze that broke out overnight at the 12-story Grand Kartal Hotel in Kartalkaya, Turkey.`\
-https://nytimes.com/video/world/europe/100000009939455/turkey-ski-resort-hotel-fire-kartalkaya.html
-
-**David Lynch’s Enchanting Sound Worlds**\
-`Music played a huge role in defining the filmmaker’s distinctive atmosphere on the big and small screens. Hear 13 examples.`\
-https://nytimes.com/2025/01/21/arts/music/amplifier-newsletter-david-lynch-music.html
-
-**Murillo signs new long-term Forest contract**\
-`Brazilian defender Murillo has signed a new four-and-a-half-year contract with Nottingham Forest.`\
-https://nytimes.com/athletic/6075550/2025/01/21/nottingham-forest-murillo-contract/
-
-**In the Sun Belt, There’s Never a Snowplow Around When You Need One**\
-`As Gov. Ron DeSantis of Florida noted, “We’re not necessarily used to walking in a winter wonderland here.”`\
-https://nytimes.com/2025/01/21/weather/snow-plows-trucks-texas-florida.html
-
-**Heat Today: After a slow NBA adjustment, 7-footer Kel'el Ware is raising Miami's ceiling**\
-`Kel'el Ware's adjustment to the Heat rotation has been gradual, but it's paying dividends.`\
-https://nytimes.com/athletic/6078105/2025/01/21/kelel-ware-bam-adebayo-tyler-herro-jimmy-butler-heat-nba/
 
