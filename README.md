@@ -1,3 +1,7 @@
+**A Day of Triumph, Jubilation and Gloating in Washington**\
+`There were Proud Boys, billionaires, stiletto heels, cowboy hats, the Village People, icy cold and happy Canadians at President Trump’s inaugural.`\
+https://nytimes.com/2025/01/20/us/politics/trump-inaugural.html
+
 **Trump’s border emergency declaration comes as crossings are near a 4-year low.**\
 `By Albert Sun and Allison McCann`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trumps-border-emergency-declaration-comes-as-crossings-are-near-a-4-year-low
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation
 **Trump Grants Sweeping Clemency to All Jan. 6 Rioters**\
 `The extraordinary pardons and commutations extended to those who committed both violent and nonviolent crimes on Jan. 6, including assaulting police officers and seditious conspiracy.`\
 https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan-6.html
-
-**DeSantis Adopts ‘Gulf of America’ Language Even Before a Trump Order**\
-`The Florida governor used the wording in issuing a state of emergency over a cold snap expected in his state.`\
-https://nytimes.com/2025/01/20/us/politics/desantis-gulf-of-america-executive-order-trump.html
 
