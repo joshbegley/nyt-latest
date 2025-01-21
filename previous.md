@@ -1,3 +1,15 @@
+**Riding out the winter blast under a Houston freeway.**\
+`By Shannon Sims`\
+https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/riding-out-the-winter-blast-under-a-houston-freeway
+
+**What do Unrivaled's first TV ratings mean for the new league?**\
+`The new winter pro league co-founded by WNBA stars Napheesa Collier and Breanna Stewart averaged 313,000 viewers in its opening game.`\
+https://nytimes.com/athletic/6079461/2025/01/21/unrivaled-wnba-tv-ratings-debut/
+
+**Scientists Finally Make Heads of Giant Stingray Tails**\
+`The long structures seen in manta rays and their relatives function as an early warning system, rather than a defensive weapon.`\
+https://nytimes.com/2025/01/21/science/stingray-tail-antenna.html
+
 **Who Is Mariann Edgar Budde, the Bishop Who Made a Plea to Trump?**\
 `The first woman to serve as the spiritual leader of the Episcopal Diocese of Washington, Bishop Budde had a message for President Trump during his first term, too.`\
 https://nytimes.com/2025/01/21/us/politics/bishop-mariann-edgar-budde-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/21/learning/lesson-plans/the-start-of-a-new-trump-pr
 **What Are Your Hopes and Fears for President Trump’s Second Term?**\
 `Donald J. Trump was sworn in on Monday as the 47th president of the United States. What does this transition in leadership mean to you?`\
 https://nytimes.com/2025/01/21/learning/what-are-your-hopes-and-fears-for-president-trumps-second-term.html
-
-**A New Fear for Undocumented Women: Will My Unborn Child Be a Citizen?**\
-`President Trump’s executive order seeking to end birthright citizenship is already facing lawsuits, but that has been little comfort to women who expect to give birth after the order goes into effect.`\
-https://nytimes.com/2025/01/21/us/birthright-citizen-children-migrant.html
-
-**Jeff Torborg, Catcher of Three No-Hitters and a Manager, Dies at 83**\
-`He called every pitch of Sandy Koufax’s perfect game in 1965. After 10 seasons playing in the majors, he skippered the White Sox and the Mets.`\
-https://nytimes.com/2025/01/21/sports/baseball/jeff-torborg-dead.html
-
-**How Trump’s Department of Government Efficiency Will Work**\
-`The structure and goals of the cost-cutting effort have changed over the past 10 weeks. Here’s how.`\
-https://nytimes.com/2025/01/21/us/politics/doge-government-efficiency-trump-musk.html
 

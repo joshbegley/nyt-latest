@@ -1,3 +1,15 @@
+**Riding out the winter blast under a Houston freeway.**\
+`By Shannon Sims`\
+https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/riding-out-the-winter-blast-under-a-houston-freeway
+
+**What do Unrivaled's first TV ratings mean for the new league?**\
+`The new winter pro league co-founded by WNBA stars Napheesa Collier and Breanna Stewart averaged 313,000 viewers in its opening game.`\
+https://nytimes.com/athletic/6079461/2025/01/21/unrivaled-wnba-tv-ratings-debut/
+
+**Scientists Finally Make Heads of Giant Stingray Tails**\
+`The long structures seen in manta rays and their relatives function as an early warning system, rather than a defensive weapon.`\
+https://nytimes.com/2025/01/21/science/stingray-tail-antenna.html
+
 **Who Is Mariann Edgar Budde, the Bishop Who Made a Plea to Trump?**\
 `The first woman to serve as the spiritual leader of the Episcopal Diocese of Washington, Bishop Budde had a message for President Trump during his first term, too.`\
 https://nytimes.com/2025/01/21/us/politics/bishop-mariann-edgar-budde-trump.html
