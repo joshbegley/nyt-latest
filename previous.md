@@ -1,3 +1,7 @@
+**Draymond Green sidelined as Warriors enter 'make or break' stretch of schedule**\
+`The Warriors will be without Green and Jonathan Kuminga against the Kings, Bulls and Lakers this week.`\
+https://nytimes.com/athletic/6076090/2025/01/20/warriors-draymond-green-sidelined/
+
 **Pelosi says pardoning the Jan. 6 rioters was an ‘outrageous insult to our justice system’.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/pelosi-executive-order-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/pageoneplus/corrections-jan-21-2025.html
 **Trump Returns, and So Does His TV Spectacle**\
 `The president’s second inauguration began with somber pageantry and ended with a reality-TV document signing.`\
 https://nytimes.com/2025/01/20/arts/television/trump-inauguration-rally.html
-
-**Trump moves to undermine Biden’s international tax deal.**\
-`By Andrew Duehren`\
-https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-moves-to-undermine-bidens-international-tax-deal
 

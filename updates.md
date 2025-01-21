@@ -1,3 +1,7 @@
+**Draymond Green sidelined as Warriors enter 'make or break' stretch of schedule**\
+`The Warriors will be without Green and Jonathan Kuminga against the Kings, Bulls and Lakers this week.`\
+https://nytimes.com/athletic/6076090/2025/01/20/warriors-draymond-green-sidelined/
+
 **Pelosi says pardoning the Jan. 6 rioters was an ‘outrageous insult to our justice system’.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/pelosi-executive-order-trump
