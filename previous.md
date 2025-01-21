@@ -1,3 +1,15 @@
+**Amazon Liverpool documentary to focus on Klopp's entire tenure**\
+`The Liverpool FC documentary featuring Jurgen Klopp’s time as manager will be available to watch on Amazon next month.`\
+https://nytimes.com/athletic/5929227/2025/01/21/amazon-liverpool-documentary-klopp/
+
+**Here’s the latest on the start of the Trump administration.**\
+`By Noah Weiland, Catie Edmondson and Zolan Kanno-Youngs`\
+https://nytimes.com/live/2025/01/21/us/trump-president-news/heres-the-latest-on-the-start-of-the-trump-administration
+
+**New York Sirens trade Jill Saulnier to Boston Fleet for Taylor Girard**\
+`The trade looks to be a change of scenery for both players, who've seen limited minutes and stretches out of the lineup early this season.`\
+https://nytimes.com/athletic/6077986/2025/01/21/pwhl-trade-sirens-fleet-saulnier-girard/
+
 **Penguins Today: Mike Sullivan explains the inexplicable**\
 `The old Penguins are better with less rest because nothing about this team makes much sense. `\
 https://nytimes.com/athletic/6077388/2025/01/21/penguins-today-mike-sullivan-back-to-backs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/21/style/street-style-look-clashing-prints.html
 **Game, Set, Match: Novak Djokovic beats Carlos Alcaraz to reach Australian Open semifinals**\
 `The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets`\
 https://nytimes.com/athletic/6077461/2025/01/21/carlos-alcaraz-novak-djokovic-australian-open-result-analysis/
-
-**CFP confidential: College coaches dish on Ohio State-Notre Dame title game decisions**\
-`The Athletic spoke to six FBS coaches to break down the key moments of Ohio State's championship win Monday night.`\
-https://nytimes.com/athletic/6077742/2025/01/21/college-football-playoff-championship-coaches-confidential/
-
-**Amorim damages dressing room TV in angry criticism of Man United players**\
-`Ruben Amorim caused damage to the big screen television in Manchester United’s dressing room during a furious critique of his players’ performance in the 3-1 defeat to Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/6077915/2025/01/21/manchester-united-ruben-amorim-dressing-room/
-
-**Israel’s Military Chief to Step Down Over Oct. 7 Attack**\
-`Lt. Gen. Herzi Halevi, who has commanded the Israeli military throughout 15 months of war in Gaza, said he was resigning over its failure to protect against the 2023 Hamas-led assault.`\
-https://nytimes.com/2025/01/21/world/middleeast/israel-military-chief-resignation.html
 

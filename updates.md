@@ -1,3 +1,15 @@
+**Amazon Liverpool documentary to focus on Klopp's entire tenure**\
+`The Liverpool FC documentary featuring Jurgen Klopp’s time as manager will be available to watch on Amazon next month.`\
+https://nytimes.com/athletic/5929227/2025/01/21/amazon-liverpool-documentary-klopp/
+
+**Here’s the latest on the start of the Trump administration.**\
+`By Noah Weiland, Catie Edmondson and Zolan Kanno-Youngs`\
+https://nytimes.com/live/2025/01/21/us/trump-president-news/heres-the-latest-on-the-start-of-the-trump-administration
+
+**New York Sirens trade Jill Saulnier to Boston Fleet for Taylor Girard**\
+`The trade looks to be a change of scenery for both players, who've seen limited minutes and stretches out of the lineup early this season.`\
+https://nytimes.com/athletic/6077986/2025/01/21/pwhl-trade-sirens-fleet-saulnier-girard/
+
 **Penguins Today: Mike Sullivan explains the inexplicable**\
 `The old Penguins are better with less rest because nothing about this team makes much sense. `\
 https://nytimes.com/athletic/6077388/2025/01/21/penguins-today-mike-sullivan-back-to-backs/
