@@ -35,6 +35,6 @@ https://nytimes.com/2025/01/21/us/politics/marco-rubio-trump-administration.html
 https://nytimes.com/2025/01/21/business/trump-climate-davos.html
 
 **New Orleans, a City That Has Seen It All, Gets Its First Snow in 15 Years**\
-`Many roadways were impassable, classes were canceled in local schools, and many businesses could not open as a winter storm essentially brought New Orleans to a standstill.`\
+`Many roadways were impassable, classes were canceled in local schools and many businesses could not open as a winter storm essentially brought New Orleans to a standstill.`\
 https://nytimes.com/2025/01/21/weather/new-orleans-snow.html
 
