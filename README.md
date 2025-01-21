@@ -1,3 +1,7 @@
+**Start of Prince Harry’s Trial Against Murdoch’s U.K. Tabloids Is Delayed**\
+`The case represents the last major legal reckoning for victims and perpetrators of the phone hacking scandal that tarnished Britain’s news media more than a decade ago.`\
+https://nytimes.com/2025/01/21/world/europe/prince-harry-trial-delay.html
+
 **Mbappe says his 'mentality changed' at Madrid after Athletic Club defeat**\
 `Kylian Mbappe has said his &#8220;mentality changed&#8221; at Real Madrid after December&#8217;s La Liga defeat against Athletic Club — a game in which he missed a penalty.`\
 https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077517/2025/01/21/athletic-fc-podcast-tottenham-po
 **The Athletic FC: Worst ever Man Utd side? Plus: transfer latest, inside Haaland deal**\
 `Today in TAFC: What the numbers say about this being the 'worst ever' Manchester United side. Plus: how to scout in a transfer window`\
 https://nytimes.com/athletic/6077498/2025/01/21/worst-manchester-united-side-transfer-latest/
-
-**Canadiens weekly notebook: The Lane Hutson bounce-back, 200-foot Alex Newhook and more**\
-`Also in this week's notebook, a gaffe early against the Rangers, St. Louis on the early season negativity, Suzuki on Slafkovský's progress.`\
-https://nytimes.com/athletic/6077278/2025/01/21/canadiens-lane-hutson-alex-newhook-rangers/
 
