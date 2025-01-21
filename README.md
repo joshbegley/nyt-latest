@@ -1,3 +1,7 @@
+**The importance of the Giants adding veteran pitching depth**\
+`The Giants were burned by a lack of veteran starting pitching depth last season. Joey Lucchesi will help them avoid a repeat in 2025.`\
+https://nytimes.com/athletic/6078441/2025/01/21/sf-giants-starting-pitching-depth-joey-lucchesi/
+
 **Wednesday Briefing: Trump Opponents Push Back**\
 `Plus, an interview with the Nobel laureate Han Kang.`\
 https://nytimes.com/2025/01/21/briefing/trump-opponents-west-bank-turkey-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/opinion/trump-day-one-round-table.html
 **Mayor Adams Won’t Criticize Trump. He Will Sit Down With Tucker Carlson.**\
 `Mayor Eric Adams of New York City, a Democrat, declined to say anything negative about Donald J. Trump’s early executive orders, saying he would bring any concerns directly to the president.`\
 https://nytimes.com/2025/01/21/nyregion/adams-trump-tucker-carlson.html
-
-**Why is the South so cold right now?**\
-`A mass of air called the polar vortex has escaped the Arctic and plunged southward, causing freezing temperatures and snow as far away as Florida.`\
-https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/why-is-the-south-so-cold-right-now
 
