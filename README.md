@@ -1,3 +1,11 @@
+**Trump declared an emergency at the southern border. Here’s what that means.**\
+`Invoking presidential emergency powers gives the president the ability to go around Congress and unlock federal funding to crack down at the border.`\
+https://nytimes.com/2025/01/20/us/politics/trump-border-emergency-declaration-immigration.html
+
+**Trump Starts Immigration Crackdown, Enlisting the Military and Testing the Law**\
+`The president’s Day 1 actions included directives that fly in the face of legal limits on involving the military in domestic operations and the constitutional guarantee of birthright citizenship.`\
+https://nytimes.com/2025/01/20/us/politics/trump-starts-immigration-crackdown-enlisting-the-military-and-testing-the-law.html
+
 **Trump Signs Two Orders to Dismantle Equity Policies**\
 `The administration will take steps to roll back federal support for racial equity and protections for transgender people.`\
 https://nytimes.com/2025/01/20/us/politics/trump-transgender-race-education.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/trump-refugee-explainer.html
 **Trump signs an executive order stripping security clearances from some former intelligence officials.**\
 `By Julian E. Barnes and Devlin Barrett`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-signs-an-executive-order-stripping-security-clearances-from-some-former-intelligence-officials
-
-**Read President Trump’s Proclamation Granting Clemency to Jan. 6 Rioters**\
-`President Trump has given sweeping pardons to nearly all of the 1,600 rioters charged with storming the Capitol on Jan. 6, 2021, and commuted the sentences of several others.`\
-https://nytimes.com/interactive/2025/01/20/us/politics/20executive-orders-Jan6.html
-
-**So, So, So Long**\
-`Tap into your animal instincts to solve Dan Caprera’s crossword puzzle.`\
-https://nytimes.com/2025/01/20/crosswords/daily-puzzle-2025-01-21.html
 
