@@ -1,3 +1,11 @@
+**Penguins Today: Mike Sullivan explains the inexplicable**\
+`The old Penguins are better with less rest because nothing about this team makes much sense. `\
+https://nytimes.com/athletic/6077388/2025/01/21/penguins-today-mike-sullivan-back-to-backs/
+
+**Brock Nelson to the Wild? Danila Yurov's arrival? Marco Rossi's future? Ask Russo and Smith**\
+`Plus predicting the Wild's future blue line, updates on prospects and more.`\
+https://nytimes.com/athletic/6075649/2025/01/21/minnesota-wild-nhl-yurov-nelson-trade-russo/
+
 **Anthony Edwards, Rudy Gobert and Chris Finch are struggling in clutch games for Wolves**\
 `"I’m not always going to get it right," Finch said in December about his closing lineups.`\
 https://nytimes.com/athletic/6076024/2025/01/21/anthony-edwards-rudy-gobert-chris-finch-struggling-timberwolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6077915/2025/01/21/manchester-united-ruben-amorim-d
 **Israel’s Military Chief to Step Down Over Oct. 7 Attack**\
 `Lt. Gen. Herzi Halevi, who has commanded the Israeli military throughout 15 months of war in Gaza, said he was resigning over its failure to protect against the 2023 Hamas-led assault.`\
 https://nytimes.com/2025/01/21/world/middleeast/israel-military-chief-resignation.html
-
-**Facing Setbacks and Desertions at the Front, Ukraine Detains Commanders**\
-`Two generals and a colonel blamed for the loss of territory in eastern Ukraine to Russian forces last year have been held, the country’s security service said.`\
-https://nytimes.com/2025/01/21/world/europe/ukraine-commanders-detained.html
-
-**Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
-`This short scene conceals the names of 13 books published in the middle decades of the 20th century. See if you can find them all and build a reading list along the way.`\
-https://nytimes.com/interactive/2025/01/21/books/review/midcentury-books-search.html
 
