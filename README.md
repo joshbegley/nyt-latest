@@ -2,8 +2,8 @@
 `A New York Times photographer followed President Trump for more than 18 hours on Inauguration Day. Here’s what he saw.`\
 https://nytimes.com/2025/01/21/us/politics/trump-photos-inauguration-day.html
 
-**The Briefing: Liverpool 2 Lille 1 - Salah scores, Nunez impresses, Elliot the super-sub**\
-`Liverpool’s formidable form in the Champions League continued with a comfortable 2-1 victory over Lille.`\
+**The Briefing: Liverpool 2 Lille 1 - Salah scores, Nunez impresses, Elliott the supersub**\
+`Liverpool secured victory over Lille at Anfield as Arne Slot's men guarantee a top-eight finish in the Champions League group stage`\
 https://nytimes.com/athletic/6075370/2025/01/21/liverpool-2-lille-1-champions-league-matchday-7-recap/
 
 **CapCut, a Video-Editing App From ByteDance, Returns for U.S. Users**\
