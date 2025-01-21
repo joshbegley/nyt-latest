@@ -1,3 +1,7 @@
+**The Athletic FC: Worst ever Man Utd side? Plus: transfer latest, inside Haaland deal**\
+`Today in TAFC: What the numbers say about this being the 'worst ever' Manchester United side. Plus: how to scout in a transfer window`\
+https://nytimes.com/athletic/6077498/2025/01/21/worst-manchester-united-side-transfer-latest/
+
 **Canadiens weekly notebook: The Lane Hutson bounce-back, 200-foot Alex Newhook and more**\
 `Also in this week's notebook, a gaffe early against the Rangers, St. Louis on the early season negativity, Suzuki on Slafkovský's progress.`\
 https://nytimes.com/athletic/6077278/2025/01/21/canadiens-lane-hutson-alex-newhook-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6076258/2025/01/21/ryan-day-ohio-state-notre-dame-c
 **Why do Premier League clubs sign so many defenders from Ligue 1?**\
 `From a focus on youth to its unforgiving physicality, there are a raft of factors that make France's top flight a fertile recruiting ground`\
 https://nytimes.com/athletic/6057966/2025/01/21/premier-leauge-ligue-1-france-transfers-defenders/
-
-**Is Zach Wilson primed for second starting chance after reset year with Broncos?**\
-`Wilson was a valuable member of Denver's QB room during "a year away from the stress" in 2024.`\
-https://nytimes.com/athletic/6075119/2025/01/21/zach-wilson-broncos-free-agent/
 
