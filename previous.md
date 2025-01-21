@@ -1,3 +1,15 @@
+**Trump Moves to End Entry Program for Migrants From 4 Nations**\
+`The president sought to end a program that allowed migrants fleeing Cuba, Nicaragua, Venezuela and Haiti to fly into the United States and remain in the country for up to two years.`\
+https://nytimes.com/2025/01/20/us/politics/migrant-flights-us-trump-program.html
+
+**Trump’s Suspension of Refugee Admissions Puts Afghans at Risk, Advocate Says**\
+`The order “risks abandoning thousands of Afghan wartime allies” who worked with Americans before the Taliban takeover, the head of a resettlement group said.`\
+https://nytimes.com/2025/01/20/world/asia/refugees-afghanistan-trump.html
+
+**Blue Jackets 'stuck in a bit of mud' in loss to Islanders as streak ends**\
+`The Blue Jackets never quite got going in a lackluster 3-1 loss to the Islanders to end their seven-game point streak.`\
+https://nytimes.com/athletic/6076896/2025/01/20/columbus-blue-jackets-streak-ends-pace-islanders/
+
 **2025-26 college football national title odds: Ohio State opens as favorite to defend crown**\
 `Ohio State opened as the favorite to defend its national title, leading a field of contenders that mostly have questions at quarterback.`\
 https://nytimes.com/athletic/6064739/2025/01/20/2026-college-football-national-title-odds-ohio-state-texas-georgia/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightni
 **Trump declared an emergency at the southern border. Here’s what that means.**\
 `Invoking presidential emergency powers gives the president the ability to go around Congress and unlock federal funding to crack down at the border.`\
 https://nytimes.com/2025/01/20/us/politics/trump-border-emergency-declaration-immigration.html
-
-**Trump Starts Immigration Crackdown, Enlisting the Military and Testing the Law**\
-`The president’s Day 1 actions included directives that fly in the face of legal limits on involving the military in domestic operations and the constitutional guarantee of birthright citizenship.`\
-https://nytimes.com/2025/01/20/us/politics/trump-starts-immigration-crackdown-enlisting-the-military-and-testing-the-law.html
-
-**Trump Signs Two Orders to Dismantle Equity Policies**\
-`The administration will take steps to roll back federal support for racial equity and protections for transgender people.`\
-https://nytimes.com/2025/01/20/us/politics/trump-transgender-race-education.html
-
-**What to Know About Trump’s Broad Grant of Clemency to Jan. 6 Rioters**\
-`He issued formal pardons to more than 1,550 rioters charged with a wide range of crimes and commuted the sentences of 14 members of far-right groups.`\
-https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan6.html
 
