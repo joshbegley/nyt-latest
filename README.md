@@ -1,3 +1,11 @@
+**Three Opinion Writers on Trump Day 1: He Is Exploiting ‘Civic Ignorance’**\
+`The president’s executive orders show us where things are headed.`\
+https://nytimes.com/2025/01/21/opinion/trump-day-one-round-table.html
+
+**Mayor Adams Won’t Criticize Trump. He Will Sit Down With Tucker Carlson.**\
+`Mayor Eric Adams of New York City, a Democrat, declined to say anything negative about Donald J. Trump’s early executive orders, saying he would bring any concerns directly to the president.`\
+https://nytimes.com/2025/01/21/nyregion/adams-trump-tucker-carlson.html
+
 **Why is the South so cold right now?**\
 `A mass of air called the polar vortex has escaped the Arctic and plunged southward, causing freezing temperatures and snow as far away as Florida.`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/why-is-the-south-so-cold-right-now
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6078679/2025/01/21/nfl-announces-officiating-crew-f
 **Panama Alerts United Nations to Trump’s Inaugural Remarks**\
 `On Monday, President Trump said of the Panama Canal, “We’re taking it back.” The letter from Panama cited articles of the U.N. charter that prohibit member states from using threats and force.`\
 https://nytimes.com/2025/01/21/us/panama-canal-trump-un.html
-
-**New York City Seeks Jolt for Midtown With Plan to Build 10,000 Homes**\
-`The plan, which rezones parts of the Manhattan neighborhood, aims to address the city’s housing shortage and the area’s beleaguered commercial sector.`\
-https://nytimes.com/2025/01/21/nyregion/midtown-manhattan-housing-crisis.html
-
-**How Trump’s Plan to Label Some Drug Cartels ‘Terrorists’ Would Work**\
-`His administration would have more power to impose economic penalties and travel restrictions, and potentially even take military action inside foreign countries.`\
-https://nytimes.com/2025/01/21/us/politics/trump-drug-cartels-terrorist-mexico.html
 
