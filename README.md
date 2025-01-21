@@ -1,3 +1,7 @@
+**Trump Plans to Announce $100 Billion A.I. Initiative**\
+`OpenAI, Oracle and SoftBank are planning to form a new joint venture called Stargate to invest in data centers, building on major U.S. investments in the technology.`\
+https://nytimes.com/2025/01/21/technology/trump-openai-stargate-artificial-intelligence.html
+
 **Rubio Oversees Halt to Foreign Aid and Meets With Asian Diplomats on Day 1**\
 `Marco Rubio told State Department employees that changes under President Trump “are not meant to be destructive, they’re not meant to be punitive.”`\
 https://nytimes.com/2025/01/21/us/politics/marco-rubio-trump-administration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/us/los-angeles-surreal-fires.html
 **Nottingham Forest transformation: Murillo deal is huge statement... now for Gibbs-White**\
 `Murillo's new contract shows Forest's transformation into a much smoother machine, with a push for the Champions League looming`\
 https://nytimes.com/athletic/6077623/2025/01/21/murillo-deal-nottingham-forest-gibbs-white-wood/
-
-**Paul Skenes Topps' Rookie Debut Patch card found by 11-year-old collector**\
-`Many collectors have offered up bounties for the card, most notably the Pittsburgh Pirates.`\
-https://nytimes.com/athletic/6078677/2025/01/21/paul-skenes-topps-debut-patch-card-found/
 
