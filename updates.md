@@ -1,3 +1,7 @@
+**Pelosi says pardoning the Jan. 6 rioters was an ‘outrageous insult to our justice system’.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/pelosi-executive-order-trump
+
 **How Trump could use the military in his immigration crackdown.**\
 `Longstanding U.S. laws limit the military’s ability to carry out operations on American soil, but President Trump could skirt those restrictions and use troops to help with deportations and border enforcement.`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-military-immigration-crackdown
