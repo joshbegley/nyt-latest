@@ -1,3 +1,7 @@
+**Aryna Sabalenka avoids Australian Open upset against Anastasia Pavlyuchenkova**\
+`MELBOURNE, Australia — Aryna Sabalenka, the world No.`\
+https://nytimes.com/athletic/6077472/2025/01/21/aryna-sabalenka-australian-open-result-anastasia-pavlyuchenkova/
+
 **Villa complete Garcia transfer from Levante**\
 `Aston Villa have completed the transfer of right-back Andres Garcia from Spanish side Levante.`\
 https://nytimes.com/athletic/6077489/2025/01/21/aston-villa-andres-garcia-transfer/

@@ -1,3 +1,7 @@
+**Aryna Sabalenka avoids Australian Open upset against Anastasia Pavlyuchenkova**\
+`MELBOURNE, Australia — Aryna Sabalenka, the world No.`\
+https://nytimes.com/athletic/6077472/2025/01/21/aryna-sabalenka-australian-open-result-anastasia-pavlyuchenkova/
+
 **Villa complete Garcia transfer from Levante**\
 `Aston Villa have completed the transfer of right-back Andres Garcia from Spanish side Levante.`\
 https://nytimes.com/athletic/6077489/2025/01/21/aston-villa-andres-garcia-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/learning/what-do-you-do-to-stay-healthy.html
 **In Minneapolis, a Layer of Hygge Warmth for a Top-Notch Orchestra**\
 `With the Nordic Soundscapes Festival, Thomas Sondergard puts his stamp on the Minnesota Orchestra (and its interior spaces).`\
 https://nytimes.com/2025/01/21/arts/music/minnesota-orchestra-thomas-sondergard-nordic-festival.html
-
-**How My Mother-in-Law Lost Her Mind and Found Herself**\
-`“I can’t change it. I’m not in control, so I have to listen.”`\
-https://nytimes.com/2025/01/21/opinion/cancer-mental-health-wisdom.html
 
