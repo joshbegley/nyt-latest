@@ -1,3 +1,7 @@
+**18 States Sue to Stop Trump’s Birthright Citizenship Order**\
+`The lawsuit to block the president’s executive order is the first salvo in what is likely to be a long-running legal fight over immigration policy.`\
+https://nytimes.com/2025/01/21/us/trump-birthright-citizenship.html
+
 **Angel City FC signs Kennedy from Man City**\
 `Angel City FC has completed the signing of defender Alanna Kennedy from Manchester City.`\
 https://nytimes.com/athletic/6078499/2025/01/21/angel-city-fc-signs-alanna-kennedy/
