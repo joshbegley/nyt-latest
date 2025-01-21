@@ -1,3 +1,11 @@
+**Brentford close to signing Fiorentina defender Kayode**\
+`Brentford are close to signing Michael Kayode on loan with an option to buy from Italian side Fiorentina.`\
+https://nytimes.com/athletic/6078341/2025/01/21/brentford-kayode-fiorentina/
+
+**Justin Thomas wants PGA Tour players to do more for TV. There shouldn't be disagreement**\
+`"Let’s be honest — this game can feel a little distant at times," Thomas told his fellow players. He had ideas for how to bridge that gap.`\
+https://nytimes.com/athletic/6079062/2025/01/21/justin-thomas-pga-tour-tv-cbs-nbc/
+
 **Pitt’s Offers Fried Saltines and Country Captain in Red Hook**\
 `Periyali becomes Opto, Nerina opens a location in Brooklyn and more restaurant news.`\
 https://nytimes.com/2025/01/21/dining/pitts-red-hook-brooklyn.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6077446/2025/01/21/chris-wood-contract-nottingham-f
 **The importance of the Giants adding veteran pitching depth**\
 `The Giants were burned by a lack of veteran starting pitching depth last season. Joey Lucchesi will help them avoid a repeat in 2025.`\
 https://nytimes.com/athletic/6078441/2025/01/21/sf-giants-starting-pitching-depth-joey-lucchesi/
-
-**Wednesday Briefing: Trump Opponents Push Back**\
-`Plus, an interview with the Nobel laureate Han Kang.`\
-https://nytimes.com/2025/01/21/briefing/trump-opponents-west-bank-turkey-fire.html
-
-**Netflix Adds 19 Million Subscribers in Quarter**\
-`The company said those results were buoyed by programming in recent months that exceeded internal expectations.`\
-https://nytimes.com/2025/01/21/business/media/netflix-earnings.html
 
