@@ -1,3 +1,11 @@
+**A Rare Winter Storm Is Sweeping Through the Gulf Coast**\
+`“So many of you have never seen an event like this,” Louisiana’s state climatologist warned, with New Orleans facing possibly the most snow it has ever seen.`\
+https://nytimes.com/2025/01/21/weather/cold-snow-storm-houston-texas-louisiana.html
+
+**Prospect of an Immigration Crackdown Leaves Some Chicago Neighborhoods Bracing**\
+`Activists are holding meetings to advise people about their legal rights and families have been drafting powers of attorney.`\
+https://nytimes.com/2025/01/21/us/prospect-of-an-immigration-crackdown-leaves-some-chicago-neighborhoods-bracing.html
+
 **U.K. Attacker Who Stabbed Girls at Dance Class Had ‘Sickening’ Interest in Violence**\
 `Axel Rudakubana, who killed three young girls in the Southport attack, appeared to have no particular ideology but was obsessed by death and genocide, investigators said.`\
 https://nytimes.com/2025/01/21/world/europe/uk-southport-axel-rudakubana-stabbing-violence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6076424/2025/01/21/cade-cunningham-jalen-green-pist
 **Villa complete Garcia transfer from Levante**\
 `Aston Villa have completed the transfer of right-back Andres Garcia from Spanish side Levante.`\
 https://nytimes.com/athletic/6077489/2025/01/21/aston-villa-andres-garcia-transfer/
-
-**A Heavy Favorite Emerges in the Race to Lead the Democratic Party**\
-`Ken Martin, the chair of the Minnesota Democrats, said he was nearing the level of support needed to become the next leader of the Democratic National Committee.`\
-https://nytimes.com/2025/01/21/us/politics/ken-martin-dnc-race.html
-
-**What Trump Did on Day 1: Tracking His Biggest Moves**\
-`President Trump made major policy moves immediately after taking office, withdrawing from major international agreements, promising steep tariffs and pardoning nearly all of the Jan. 6 rioters.`\
-https://nytimes.com/2025/01/21/us/politics/trump-first-day-recap.html
 
