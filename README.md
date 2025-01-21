@@ -8,7 +8,7 @@ https://nytimes.com/2025/01/20/us/politics/packed-in-for-trumps-indoor-inaugurat
 
 **Trump’s Pardons Will Encourage More Political Violence**\
 `To open his term with such an act of contempt toward the legal system is audacious, even for Mr. Trump.`\
-https://nytimes.com/2025/01/20/opinion/editorials/trump-jan-6-pardons.html
+https://nytimes.com/2025/01/20/opinion/trump-jan-6-pardons.html
 
 **How Devon Levi handled his latest NHL action and more takeaways from Sabres' loss**\
 `Levi got the first start of the team’s four-game road trip and wasn’t as sharp as the Sabres hoped.`\
