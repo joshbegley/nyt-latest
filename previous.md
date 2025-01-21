@@ -1,3 +1,7 @@
+**Wood close to signing new Forest contract**\
+`Chris Wood is close to following his Nottingham Forest team-mate Murillo by agreeing a new contract with the Premier League&#8217;s surprise Champions League contenders.`\
+https://nytimes.com/athletic/6077446/2025/01/21/chris-wood-contract-nottingham-forest/
+
 **The importance of the Giants adding veteran pitching depth**\
 `The Giants were burned by a lack of veteran starting pitching depth last season. Joey Lucchesi will help them avoid a repeat in 2025.`\
 https://nytimes.com/athletic/6078441/2025/01/21/sf-giants-starting-pitching-depth-joey-lucchesi/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/us/politics/trump-schedule-f-federal-workers.html
 **Three Opinion Writers on Trump Day 1: He Is Exploiting ‘Civic Ignorance’**\
 `The president’s executive orders show us where things are headed.`\
 https://nytimes.com/2025/01/21/opinion/trump-day-one-round-table.html
-
-**Mayor Adams Won’t Criticize Trump. He Will Sit Down With Tucker Carlson.**\
-`Mayor Eric Adams of New York City, a Democrat, declined to say anything negative about Donald J. Trump’s early executive orders, saying he would bring any concerns directly to the president.`\
-https://nytimes.com/2025/01/21/nyregion/adams-trump-tucker-carlson.html
 

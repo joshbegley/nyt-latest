@@ -1,3 +1,7 @@
+**Wood close to signing new Forest contract**\
+`Chris Wood is close to following his Nottingham Forest team-mate Murillo by agreeing a new contract with the Premier League&#8217;s surprise Champions League contenders.`\
+https://nytimes.com/athletic/6077446/2025/01/21/chris-wood-contract-nottingham-forest/
+
 **The importance of the Giants adding veteran pitching depth**\
 `The Giants were burned by a lack of veteran starting pitching depth last season. Joey Lucchesi will help them avoid a repeat in 2025.`\
 https://nytimes.com/athletic/6078441/2025/01/21/sf-giants-starting-pitching-depth-joey-lucchesi/
