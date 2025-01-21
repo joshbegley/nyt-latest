@@ -1,3 +1,7 @@
+**Cowboys Today: Dallas didn't play, but was hard to miss in the divisional round**\
+`From Dan Quinn and Kellen Moore to Dorance Armstrong and Neville Gallimore, former Cowboys were all over the scene.`\
+https://nytimes.com/athletic/6075817/2025/01/21/cowboys-today-divisional-round-reminders-commanders-eagles/
+
 **Vikings mailbag: Sam Darnold's trade value, Dallas Turner's future, the O-line and more**\
 `Would Minnesota get the most value by franchise-tagging its quarterback? Who actually makes the final decisions on draft night?`\
 https://nytimes.com/athletic/6075941/2025/01/21/vikings-mailbag-sam-darnold-dallas-turner-offensive-line/
