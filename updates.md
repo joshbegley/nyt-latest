@@ -1,3 +1,11 @@
+**Ichiro Suzuki falls 1 vote shy of unanimous vote to Baseball Hall of Fame**\
+`Suzuki easily cleared the bar for first-ballot induction. But like Derek Jeter, he missed getting in unanimously by one vote.`\
+https://nytimes.com/athletic/6079440/2025/01/21/ichiro-suzuki-one-vote-shy-unanimous-baseball-hall-of-fame/
+
+**‘Vanya on Huron Street’ Review: Chekhov in Brooklyn**\
+`Instead of a departure, the writer and director Matthew Gasda’s take on “Uncle Vanya” at the Brooklyn Center for Theater Research tends to adhere to the original.`\
+https://nytimes.com/2025/01/21/theater/vanya-on-huron-street-review.html
+
 **Riding out the winter blast under a Houston freeway.**\
 `By Shannon Sims`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/riding-out-the-winter-blast-under-a-houston-freeway

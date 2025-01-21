@@ -1,3 +1,11 @@
+**Ichiro Suzuki falls 1 vote shy of unanimous vote to Baseball Hall of Fame**\
+`Suzuki easily cleared the bar for first-ballot induction. But like Derek Jeter, he missed getting in unanimously by one vote.`\
+https://nytimes.com/athletic/6079440/2025/01/21/ichiro-suzuki-one-vote-shy-unanimous-baseball-hall-of-fame/
+
+**‘Vanya on Huron Street’ Review: Chekhov in Brooklyn**\
+`Instead of a departure, the writer and director Matthew Gasda’s take on “Uncle Vanya” at the Brooklyn Center for Theater Research tends to adhere to the original.`\
+https://nytimes.com/2025/01/21/theater/vanya-on-huron-street-review.html
+
 **Riding out the winter blast under a Houston freeway.**\
 `By Shannon Sims`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/riding-out-the-winter-blast-under-a-houston-freeway
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/ho
 **Senate Questionnaire Sheds Light on F.B.I. Pick’s Early Years**\
 `In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
 https://nytimes.com/2025/01/21/us/politics/trump-fbi-kash-patel-dei.html
-
-**The Start of a New Trump Presidency: A Lesson Plan for Assessing the Issues at Stake**\
-`President Trump immediately made major policy moves after taking office. Follow an issue that matters to you the most, and then share your voice.`\
-https://nytimes.com/2025/01/21/learning/lesson-plans/the-start-of-a-new-trump-presidency-a-lesson-plan-for-assessing-the-issues-at-stake.html
-
-**What Are Your Hopes and Fears for President Trump’s Second Term?**\
-`Donald J. Trump was sworn in on Monday as the 47th president of the United States. What does this transition in leadership mean to you?`\
-https://nytimes.com/2025/01/21/learning/what-are-your-hopes-and-fears-for-president-trumps-second-term.html
 
