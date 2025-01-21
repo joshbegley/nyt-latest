@@ -1,3 +1,11 @@
+**How a Florida mayor is managing snow. Hint: He’s learning.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-a-florida-mayor-is-managing-snow-hint-hes-learning
+
+**Senate Questionnaire Sheds Light on F.B.I. Pick’s Early Years**\
+`In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
+https://nytimes.com/2025/01/21/us/politics/trump-fbi-kash-patel-dei.html
+
 **The Start of a New Trump Presidency: A Lesson Plan for Assessing the Issues at Stake**\
 `President Trump immediately made major policy moves after taking office. Follow an issue that matters to you the most, and then share your voice.`\
 https://nytimes.com/2025/01/21/learning/lesson-plans/the-start-of-a-new-trump-presidency-a-lesson-plan-for-assessing-the-issues-at-stake.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/21/science/trump-mars-flag.html
 **Bishop Tells Trump to ‘Have Mercy’ on Immigrants and Gay Children**\
 `The direct appeal to President Trump at the start of the first full day of his presidency was a remarkable moment at a National Cathedral event that has not historically been political.`\
 https://nytimes.com/2025/01/21/us/politics/trump-bishop.html
-
-**Josh McDaniels returning to Patriots as OC under Mike Vrabel: Source**\
-`McDaniels returns to New England for his third stint with the franchise, this time to work with talented young quarterback Drake Maye.`\
-https://nytimes.com/athletic/6078010/2025/01/21/patriots-josh-mcdaniels-offensive-coordinator/
-
-**Bishop Asks Trump to ‘Have Mercy’ During Sermon**\
-`Bishop Mariann Edgar Budde addressed President Trump during an inaugural prayer service, and asked him to show mercy to immigrants and the L.G.B.T.Q. community.`\
-https://nytimes.com/video/us/politics/100000009941153/trump-bishop-prayer-service.html
 
