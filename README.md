@@ -1,3 +1,11 @@
+**President Trump, You Can Remake the Middle East if You Dare**\
+`While the wages of success in the region will be enormous, the consequences of failure will be utterly hellish.`\
+https://nytimes.com/2025/01/21/opinion/trump-middle-east.html
+
+**Trump Dreams of a New American Empire**\
+`He is tapping into a vision of a United States that is forever growing, forever moving outward.`\
+https://nytimes.com/2025/01/21/opinion/trump-american-empire-panama.html
+
 **Ryan Donato's relentless attack mentality makes him an intriguing Blackhawks trade chip**\
 `Chicago's other players will likely generate more interest at the trade deadline, but Donato can beat them all for sheer effort.`\
 https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-trade-chip-hurricanes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6059238/2025/01/21/lamine-yamal-adidas-messi-deal-b
 **Ten years on: Revisiting Odegaard's Real Madrid move - and why it did not work out**\
 `The Norwegian signed for the Spanish giants as a 16-year-old amid huge media interest but had a difficult time in Madrid`\
 https://nytimes.com/athletic/6074868/2025/01/21/martin-odegaard-real-madrid/
-
-**2 Americans Held in Afghanistan Are Freed in Prisoner Swap**\
-`In exchange, the Biden administration released an Afghan man convicted on narcotics charges in 2008.`\
-https://nytimes.com/2025/01/21/us/politics/americans-taliban-prisoner-swap.html
-
-**Deepdale at 150 years old: The story of one of the world's oldest football grounds**\
-`Daniel Taylor visits the home of Preston North End, the 'Original Invincibles' who were the first giants of football's professional era`\
-https://nytimes.com/athletic/6052578/2025/01/21/deepdale-150-world-oldest-football-grounds/
 
