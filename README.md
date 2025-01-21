@@ -1,3 +1,7 @@
+**So, So, So Long**\
+`Tap into your animal instincts to solve Dan Caprera’s crossword puzzle.`\
+https://nytimes.com/2025/01/20/crosswords/daily-puzzle-2025-01-21.html
+
 **Corrections: Jan. 21, 2025**\
 `Corrections that appeared in print on Tuesday, Jan. 21, 2025.`\
 https://nytimes.com/2025/01/20/pageoneplus/corrections-jan-21-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/20/us/politics/harris-legacy-vp.html
 **Packed In for Trump’s Indoor Inauguration, Awkwardness Abounds**\
 `Tech billionaires, foreign leaders, ex-presidents and political nemeses. How did everyone behave?`\
 https://nytimes.com/2025/01/20/us/politics/packed-in-for-trumps-indoor-inauguration-awkwardness-abounds.html
-
-**Trump’s Opening Act of Contempt**\
-`To open his term with such an act of contempt toward the legal system is audacious, even for Mr. Trump.`\
-https://nytimes.com/2025/01/20/opinion/trump-jan-6-pardons.html
 
