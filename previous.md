@@ -1,3 +1,7 @@
+**The Billionaires’ Row at the Inauguration**\
+`The sight of Jeff Bezos, Mark Zuckerberg and others at President Trump’s swearing-in was another sign of how business is adapting to a new Washington.`\
+https://nytimes.com/2025/01/21/business/dealbook/billionaires-trump-zuckerberg-bezos-musk.html
+
 **Start of Prince Harry’s Trial Against Murdoch’s U.K. Tabloids Is Delayed**\
 `The case represents the last major legal reckoning for victims and perpetrators of the phone hacking scandal that tarnished Britain’s news media more than a decade ago.`\
 https://nytimes.com/2025/01/21/world/europe/prince-harry-trial-delay.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075710/2025/01/21/nfl-divisional-round-results-sco
 **Who is to blame for Tottenham's rut?**\
 `Jack Pitt-Brooke ponders how to end Tottenham's slump on The Athletic FC Podcast`\
 https://nytimes.com/athletic/6077517/2025/01/21/athletic-fc-podcast-tottenham-postecoglou/
-
-**The Athletic FC: Worst ever Man Utd side? Plus: transfer latest, inside Haaland deal**\
-`Today in TAFC: What the numbers say about this being the 'worst ever' Manchester United side. Plus: how to scout in a transfer window`\
-https://nytimes.com/athletic/6077498/2025/01/21/worst-manchester-united-side-transfer-latest/
 

@@ -1,3 +1,7 @@
+**The Billionaires’ Row at the Inauguration**\
+`The sight of Jeff Bezos, Mark Zuckerberg and others at President Trump’s swearing-in was another sign of how business is adapting to a new Washington.`\
+https://nytimes.com/2025/01/21/business/dealbook/billionaires-trump-zuckerberg-bezos-musk.html
+
 **Start of Prince Harry’s Trial Against Murdoch’s U.K. Tabloids Is Delayed**\
 `The case represents the last major legal reckoning for victims and perpetrators of the phone hacking scandal that tarnished Britain’s news media more than a decade ago.`\
 https://nytimes.com/2025/01/21/world/europe/prince-harry-trial-delay.html
