@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/21/weather/cold-snow-storm-houston-texas-louisiana.h
 
 **Prospect of an Immigration Crackdown Leaves Some Chicago Neighborhoods Bracing**\
 `Activists are holding meetings to advise people about their legal rights and families have been drafting powers of attorney.`\
-https://nytimes.com/2025/01/21/us/prospect-of-an-immigration-crackdown-leaves-some-chicago-neighborhoods-bracing.html
+https://nytimes.com/2025/01/21/us/chicago-trump-immigrants.html
 
 **U.K. Attacker Who Stabbed Girls at Dance Class Had ‘Sickening’ Interest in Violence**\
 `Axel Rudakubana, who killed three young girls in the Southport attack, appeared to have no particular ideology but was obsessed by death and genocide, investigators said.`\
