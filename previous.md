@@ -1,3 +1,7 @@
+**Jimmy Fallon: Melania’s Hat Is Her ‘Very Own Border Wall’**\
+`The “Tonight Show” host donned his own version of the first lady’s inaugural hat, which seemed to prevent the president from kissing her.`\
+https://nytimes.com/2025/01/21/arts/television/jimmy-fallon-melania-trump-hat.html
+
 **First Mario Lemina, now Matheus Cunha: Vitor Pereira's bright start at Wolves is over**\
 `Pereira has publicly criticised a second key player after Cunha's display against Chelsea. Welcome to Molineux, coach`\
 https://nytimes.com/athletic/6076664/2025/01/21/wolves-pereira-cunha-lemina-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077049/2025/01/21/penguins-dominate-kings-yohe/
 **Word of the Day: cognizant**\
 `This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/21/learning/word-of-the-day-cognizant.html
-
-**Trump’s Inaugural Address: 2017 vs. 2025**\
-`The Inaugural Address that President Trump gave on Monday was in some ways even darker than his “American carnage” inaugural address eight years ago. Michael D. Shear, a White House correspondent for The New York Times, explains.`\
-https://nytimes.com/video/us/politics/100000009938053/trumps-inaugural-address-compared.html
 
