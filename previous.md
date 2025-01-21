@@ -1,3 +1,19 @@
+**Trump’s border emergency declaration comes as crossings are near a 4-year low.**\
+`By Albert Sun and Allison McCann`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trumps-border-emergency-declaration-comes-as-crossings-are-near-a-4-year-low
+
+**Trump Commutes Sentence of Stewart Rhodes, Founder of Oath Keepers Militia**\
+`The move, in effect, validated the far-right leader’s defiant claim that his criminal prosecution was a kind of political persecution.`\
+https://nytimes.com/2025/01/20/us/politics/stewart-rhodes-trump-jan-6-oath-keepers.html
+
+**Smith: Mentality vs. Avalanche earned Wild one of the season's more impressive wins**\
+`After a bad loss to Nashville on Saturday, the Wild bounced back with a smart, structured game plan against the rival Avalanche.`\
+https://nytimes.com/athletic/6076505/2025/01/20/minnesota-wild-mentality-defense-faber-avalanche-smith/
+
+**Ex-Proud Boys Leader, Pardoned by Trump, Helped Initiate Capitol Riot**\
+`Until President Trump’s pardon, Enrique Tarrio was serving a 22-year prison term, the longest sentence handed down to any of the nearly 1,600 people charged in connection with Jan. 6.`\
+https://nytimes.com/2025/01/20/nyregion/enrique-tarrio-proud-boys-pardon-jan-6.html
+
 **Trump Withdraws U.S. from World Health Organization**\
 `Public health experts say U.S. withdrawal from the W.H.O. would undermine the nation’s standing as a global health leader and make it harder to fight the next pandemic.`\
 https://nytimes.com/2025/01/20/us/politics/trump-world-health-organization.html
@@ -14,27 +30,11 @@ https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-singles-out-
 `The Senate unanimously approved Mr. Rubio in the first vote on President Trump’s cabinet selections.`\
 https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation-vote.html
 
-**Trump Grants Broad Clemency to Jan. 6 Rioters**\
+**Trump Grants Sweeping Clemency to All Jan. 6 Rioters**\
 `The extraordinary pardons and commutations extended to those who committed both violent and nonviolent crimes on Jan. 6, including assaulting police officers and seditious conspiracy.`\
 https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan-6.html
 
 **DeSantis Adopts ‘Gulf of America’ Language Even Before a Trump Order**\
 `The Florida governor used the wording in issuing a state of emergency over a cold snap expected in his state.`\
 https://nytimes.com/2025/01/20/us/politics/desantis-gulf-of-america-executive-order-trump.html
-
-**Crosby unfazed by McDavid's outburst vs. Canucks: 'That's hockey'**\
-`Crosby's cross-check of Vancouver's Conor Garland on Saturday earned him a three-game suspension.`\
-https://nytimes.com/athletic/6076456/2025/01/20/sidney-crosby-comments-connor-mcdavid-suspension-nhl/
-
-**In Dueling Pardons, an Intensified Fight Over the Meaning of Jan. 6**\
-`President Trump’s grant of clemency to those who assaulted the Capitol in his name four years ago clashed with his predecessor’s decision to shield from retribution those who had sought to hold him to account.`\
-https://nytimes.com/2025/01/20/us/politics/biden-trump-jan6-pardons.html
-
-**Trump’s Second Inauguration in Pictures**\
-`A change of venue and a subdued swearing-in ceremony marked Donald J. Trump’s return to power.`\
-https://nytimes.com/card/2025/01/21/us/politics/trump-inauguration-photos
-
-**New Jersey’s Governor Asks Trump to Move Swiftly on Congestion Pricing**\
-`Gov. Phil Murphy wrote a letter to the president saying that the surcharge on drivers entering Manhattan’s busiest area was a “disaster” for commuters and residents in his state.`\
-https://nytimes.com/2025/01/20/nyregion/new-jersey-murphy-congestion-pricing-trump.html
 
