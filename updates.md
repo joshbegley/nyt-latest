@@ -1,4 +1,8 @@
 **Maple Leafs report cards: Routine play executed well tops Lightning**\
+`The Leafs led the Lightning all game with a solid if unspectacular performance.`\
+https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightning-matthews-nylander/
+
+**Maple Leafs report cards: Routine play executed well tops Lightning**\
 `The Leafs held the Lightning without the lead all game with a solid if unspectacular performance.`\
 https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightning-matthews-nylander/
 

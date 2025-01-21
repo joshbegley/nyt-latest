@@ -1,5 +1,5 @@
 **Maple Leafs report cards: Routine play executed well tops Lightning**\
-`The Leafs held the Lightning without the lead all game with a solid if unspectacular performance.`\
+`The Leafs led the Lightning all game with a solid if unspectacular performance.`\
 https://nytimes.com/athletic/6076602/2025/01/20/maple-leafs-report-cards-lightning-matthews-nylander/
 
 **Trump declared an emergency at the southern border. Here’s what that means.**\
