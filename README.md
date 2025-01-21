@@ -15,7 +15,7 @@ https://nytimes.com/2025/01/21/business/dealbook/billionaires-trump-zuckerberg-b
 https://nytimes.com/2025/01/21/world/europe/prince-harry-trial-delay.html
 
 **Ancelotti plans to have 'four more years' with Madrid's Perez**\
-`Carlo Ancelotti has said he plans to spend four more years together with Florentino Perez after the Real Madrid president was re-elected for a fresh term.`\
+`Carlo Ancelotti says he plans to spend four more years together with Florentino Perez after the Real Madrid president was re-elected for a fresh term.`\
 https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
 
 **Southport Killings Are a New Kind of Terrorism, U.K. Prime Minister Says**\
