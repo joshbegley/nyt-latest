@@ -1,3 +1,7 @@
+**The story behind Erling Haaland's huge Manchester City contract and why he signed up until 2034**\
+`How Haaland's contract was agreed, who was involved and why the striker decided to sign up for nine and a half years`\
+https://nytimes.com/athletic/6075164/2025/01/21/inside-erling-haaland-contract/
+
 **The secrets of scouting: 'Four corners', watching warm-ups and personality profiling**\
 `As clubs scramble to complete transfers this month, what goes into tracking players in 2025?`\
 https://nytimes.com/athletic/6066430/2025/01/21/football-transfers-scouting-secrets/
