@@ -1,3 +1,11 @@
+**Brentford close to signing Fiorentina defender Kayode**\
+`Brentford are close to signing Michael Kayode on loan with an option to buy from Italian side Fiorentina.`\
+https://nytimes.com/athletic/6078341/2025/01/21/brentford-kayode-fiorentina/
+
+**Justin Thomas wants PGA Tour players to do more for TV. There shouldn't be disagreement**\
+`"Let’s be honest — this game can feel a little distant at times," Thomas told his fellow players. He had ideas for how to bridge that gap.`\
+https://nytimes.com/athletic/6079062/2025/01/21/justin-thomas-pga-tour-tv-cbs-nbc/
+
 **Winds relax in Southern California, but wildfire risk remains.**\
 `Bone-dry air, warm temperatures and another round of winds are all in the forecast this week for Los Angeles and Ventura Counties.`\
 https://nytimes.com/live/2025/01/21/us/los-angeles-wildfires-california/winds-relax-in-southern-california-but-wildfire-risk-remains
