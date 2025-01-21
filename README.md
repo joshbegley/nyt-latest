@@ -1,3 +1,7 @@
+**Jeff Torborg, Catcher in Three No-Hitters, Dies at 83**\
+`He called every pitch of Sandy Koufax’s perfect game in 1965. After 10 seasons playing in the majors, he became a manager for the White Sox and the Mets.`\
+https://nytimes.com/2025/01/21/sports/baseball/jeff-torborg-dead.html
+
 **How Trump’s Department of Government Efficiency Will Work**\
 `The structure and goals of the cost-cutting effort have changed over the past 10 weeks. Here’s how.`\
 https://nytimes.com/2025/01/21/us/politics/doge-government-efficiency-trump-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/us/fire-chief-shot-deer-alabama.html
 **A Trump Executive Order Sets Out What Could Be a Road Map for Retribution**\
 `The order is titled “Ending the Weaponization of the Federal Government,” but it asserts that the Biden administration might have acted illegally and directs agencies to seek evidence.`\
 https://nytimes.com/2025/01/21/us/politics/trump-executive-order-retribution.html
-
-**They’ve never seen snow like this before. They wanted to make the most of It.**\
-`By Katy Reckdahl, Alex Stuckey, Marie Elizabeth Oliver and Rick Rojas`\
-https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/new-orleans-snow-residents
 
