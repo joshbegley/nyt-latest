@@ -1,4 +1,4 @@
-**The Ichiro Collection: A sampling from our archives as Cooperstown beckons**\
+**The Ichiro Collection: 6 stories from our archives as Cooperstown beckons**\
 `Six stories that encapsulate Ichiro's impact on baseball as he prepares to be voted into the Hall of Fame`\
 https://nytimes.com/athletic/6078291/2025/01/21/ichiro-suzuki-hall-of-fame-archives/
 
