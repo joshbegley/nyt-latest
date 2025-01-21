@@ -1,15 +1,3 @@
-**Joel Paley, Writer of ‘Ruthless,’ an Off Broadway Hit, Dies at 69**\
-`The show, with music by Marvin Laird, portrayed a schoolgirl’s murderous theatrical ambition. Paley also performed in the parody dance group Les Ballets Trockadero.`\
-https://nytimes.com/2025/01/21/theater/joel-paley-dead.html
-
-**Trump’s Proposed Tariff Agency Raises Questions, and Confusion, for Experts**\
-`President Trump wants an External Revenue Service to collect tariffs on imports. But one trade expert said the move may be “more branding than substance.”`\
-https://nytimes.com/2025/01/21/us/politics/trump-tariffs-external-revenue-service.html
-
-**Chicago shivers through an Arctic blast.**\
-`Temperatures in the Upper Midwest plunged below zero on Tuesday.`\
-https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/chicago-shivers-through-an-arctic-blast
-
 **The Ichiro Collection: 6 stories from our archives as Cooperstown beckons**\
 `Six stories that encapsulate Ichiro's impact on baseball as he prepares to be voted into the Hall of Fame`\
 https://nytimes.com/athletic/6078291/2025/01/21/ichiro-suzuki-hall-of-fame-archives/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6078131/2025/01/21/novak-djokovic-carlos-alcaraz-te
 **Dodgers in serious discussions with veteran reliever Kirby Yates**\
 `Yates had a 1.17 ERA and a 2.50 FIP in 61 appearances for the Texas Rangers last season. `\
 https://nytimes.com/athletic/6078354/2025/01/21/dodgers-discussions-kirby-yates-reliever/
+
+**The Ball Gowns of Trump’s New ‘Golden Age’**\
+`Melania and Ivanka Trump and Usha Vance wore a pastiche of bygone eras — perhaps a glimpse of what they hope the future looks like.`\
+https://nytimes.com/2025/01/21/style/trump-inaugural-ball-fashion.html
+
+**John Lennon Came to My School When I Was 8. Or Did I Imagine It?**\
+`A story of hazy memories, a reluctant rock star and a mysterious woman.`\
+https://nytimes.com/2025/01/21/nyregion/john-lennon-friends-seminary-school-visit.html
+
+**Southern U.S. Braced for Power Outages Due to Snow: How to Stay Safe**\
+`Officials are warning of the dangers of carbon monoxide poisoning and fires.`\
+https://nytimes.com/2025/01/21/weather/winter-storm-power-outage-generator-safety.html
 
