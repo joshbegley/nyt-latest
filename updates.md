@@ -1,3 +1,7 @@
+**A Silent, Snowy Houston Has Its Residents Joyful but Also Wary**\
+`With memories of the deadly 2021 winter storm still fresh, Houston residents greeted the city’s blanket of snow with joy but also concern.`\
+https://nytimes.com/2025/01/21/weather/houston-snow-winter-storm.html
+
 **Jules Feiffer, Acerbic Cartoonist, Writer and Much Else, Dies at 95**\
 `In his long-running Village Voice comic strip and in his many plays and screenplays, he took delight in skewering politics, relationships and human nature.`\
 https://nytimes.com/2025/01/21/arts/jules-feiffer-dead.html
