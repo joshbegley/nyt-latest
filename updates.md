@@ -1,3 +1,7 @@
+**Trump Rescinds Biden-Era Sanctions on Israeli Settlers**\
+`The move came shortly after President Trump took office, and as Jewish extremists raided villages in the Israeli-occupied West Bank in protest against the cease-fire in Gaza.`\
+https://nytimes.com/2025/01/21/world/middleeast/israel-trump-settlers-west-bank-gaza.html
+
 **Which top prospects could the Canucks target in a J.T. Miller trade?**\
 `The Canucks should be able to acquire at least one good prospect as part of a package for Miller.`\
 https://nytimes.com/athletic/6076611/2025/01/21/jt-miller-canucks-prospects-trade/
