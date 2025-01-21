@@ -6,12 +6,12 @@ https://nytimes.com/2025/01/21/business/dealbook/billionaires-trump-zuckerberg-b
 `The case represents the last major legal reckoning for victims and perpetrators of the phone hacking scandal that tarnished Britain’s news media more than a decade ago.`\
 https://nytimes.com/2025/01/21/world/europe/prince-harry-trial-delay.html
 
-**Mbappe says his 'mentality changed' at Madrid after Athletic Club defeat**\
-`Kylian Mbappe has said his &#8220;mentality changed&#8221; at Real Madrid after December&#8217;s La Liga defeat against Athletic Club — a game in which he missed a penalty.`\
+**Ancelotti plans to have 'four more years' with Madrid's Perez**\
+`Carlo Ancelotti has said he plans to spend four more years together with Florentino Perez after the Real Madrid president was re-elected for a fresh term.`\
 https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
 
-**Online Violence Poses New Extremist Threat to U.K., Prime Minister Says**\
-`After a teenager admitted murdering three girls in the town of Southport, Keir Starmer said people were being radicalized into violence for its own sake and terrorism laws might need to change.`\
+**Southport Killings Are a New Kind of Terrorism, U.K. Prime Minister Says**\
+`After a teenager admitted murdering three girls at a dance class, Keir Starmer said people were being radicalized into violence for its own sake and terrorism laws might need to change.`\
 https://nytimes.com/2025/01/21/world/europe/uk-terrorism-law-southport-attack-starmer.html
 
 **In Rare Criticism, Trump Says Putin Is ‘Destroying Russia’**\

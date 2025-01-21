@@ -1,3 +1,11 @@
+**Ancelotti plans to have 'four more years' with Madrid's Perez**\
+`Carlo Ancelotti has said he plans to spend four more years together with Florentino Perez after the Real Madrid president was re-elected for a fresh term.`\
+https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
+
+**Southport Killings Are a New Kind of Terrorism, U.K. Prime Minister Says**\
+`After a teenager admitted murdering three girls at a dance class, Keir Starmer said people were being radicalized into violence for its own sake and terrorism laws might need to change.`\
+https://nytimes.com/2025/01/21/world/europe/uk-terrorism-law-southport-attack-starmer.html
+
 **The Billionaires’ Row at the Inauguration**\
 `The sight of Jeff Bezos, Mark Zuckerberg and others at President Trump’s swearing-in was another sign of how business is adapting to a new Washington.`\
 https://nytimes.com/2025/01/21/business/dealbook/billionaires-trump-zuckerberg-bezos-musk.html
