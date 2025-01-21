@@ -1,3 +1,15 @@
+**‘A Quiet Force’: Harris Returns Home After Making History in Washington**\
+`The former vice president’s first acts as a nonelected official for the first time in decades could be a sign of what comes next.`\
+https://nytimes.com/2025/01/20/us/politics/harris-legacy-vp.html
+
+**Packed In for Trump’s Indoor Inauguration, Awkwardness Abounds**\
+`Tech billionaires, foreign leaders, ex-presidents and political nemeses. How did everyone behave?`\
+https://nytimes.com/2025/01/20/us/politics/packed-in-for-trumps-indoor-inauguration-awkwardness-abounds.html
+
+**Trump’s Pardons Will Encourage More Political Violence**\
+`To open his term with such an act of contempt toward the legal system is audacious, even for Mr. Trump.`\
+https://nytimes.com/2025/01/20/opinion/trump-jan-6-pardons.html
+
 **Trump’s Pardons Will Encourage More Political Violence**\
 `To open his term with such an act of contempt toward the legal system is audacious, even for Mr. Trump.`\
 https://nytimes.com/2025/01/20/opinion/editorials/trump-jan-6-pardons.html

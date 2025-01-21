@@ -1,6 +1,14 @@
+**‘A Quiet Force’: Harris Returns Home After Making History in Washington**\
+`The former vice president’s first acts as a nonelected official for the first time in decades could be a sign of what comes next.`\
+https://nytimes.com/2025/01/20/us/politics/harris-legacy-vp.html
+
+**Packed In for Trump’s Indoor Inauguration, Awkwardness Abounds**\
+`Tech billionaires, foreign leaders, ex-presidents and political nemeses. How did everyone behave?`\
+https://nytimes.com/2025/01/20/us/politics/packed-in-for-trumps-indoor-inauguration-awkwardness-abounds.html
+
 **Trump’s Pardons Will Encourage More Political Violence**\
 `To open his term with such an act of contempt toward the legal system is audacious, even for Mr. Trump.`\
-https://nytimes.com/2025/01/20/opinion/editorials/trump-jan-6-pardons.html
+https://nytimes.com/2025/01/20/opinion/trump-jan-6-pardons.html
 
 **How Devon Levi handled his latest NHL action and more takeaways from Sabres' loss**\
 `Levi got the first start of the team’s four-game road trip and wasn’t as sharp as the Sabres hoped.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6076505/2025/01/20/minnesota-wild-mentality-defense
 **Ex-Proud Boys Leader, Pardoned by Trump, Helped Initiate Capitol Riot**\
 `Until President Trump’s pardon, Enrique Tarrio was serving a 22-year prison term, the longest sentence handed down to any of the nearly 1,600 people charged in connection with Jan. 6.`\
 https://nytimes.com/2025/01/20/nyregion/enrique-tarrio-proud-boys-pardon-jan-6.html
-
-**Trump Withdraws U.S. from World Health Organization**\
-`Public health experts say U.S. withdrawal from the W.H.O. would undermine the nation’s standing as a global health leader and make it harder to fight the next pandemic.`\
-https://nytimes.com/2025/01/20/us/politics/trump-world-health-organization.html
-
-**Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
-`Shortly after taking office Monday, the president issued the order to delay the app’s ban for 75 days. The law went into effect on Sunday.`\
-https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html
 
