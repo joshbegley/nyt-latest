@@ -1,3 +1,7 @@
+**Who Is Mariann Edgar Budde, the Bishop Who Made a Plea to Trump?**\
+`The first woman to serve as the spiritual leader of the Episcopal Diocese of Washington, Bishop Budde had a message for President Trump during his first term, too.`\
+https://nytimes.com/2025/01/21/us/politics/bishop-mariann-edgar-budde-trump.html
+
 **Ichiro, Sabathia and Wagner elected to Baseball Hall of Fame**\
 `The trio will join Dave Parker and Dick Allen as the Class of 2025 in Cooperstown this summer.`\
 https://nytimes.com/athletic/6079085/2025/01/21/baseball-hall-of-fame-election-ichiro-sabathia-wagner/
