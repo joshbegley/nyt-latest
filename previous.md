@@ -1,3 +1,7 @@
+**Anthony Edwards, Rudy Gobert and Chris Finch are struggling in clutch games for Wolves**\
+`"I’m not always going to get it right," Finch said in December about his closing lineups.`\
+https://nytimes.com/athletic/6076024/2025/01/21/anthony-edwards-rudy-gobert-chris-finch-struggling-timberwolves/
+
 **How concerned should the Senators be about Brady Tkachuk's 7-game point-less skid?**\
 `The Athletic takes a closer look at Tkachuk's advanced numbers during his longest point-less streak since his rookie season.`\
 https://nytimes.com/athletic/6075235/2025/01/21/senators-brady-tkachuk-nhl-defense-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/world/europe/ukraine-commanders-detained.html
 **Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
 `This short scene conceals the names of 13 books published in the middle decades of the 20th century. See if you can find them all and build a reading list along the way.`\
 https://nytimes.com/interactive/2025/01/21/books/review/midcentury-books-search.html
-
-**Brush Fires Force Evacuations in San Diego County**\
-`Firefighters quickly controlled a fire Monday afternoon in Poway, Calif., about 23 miles from San Diego. But new fires ignited Tuesday, and a red flag warning, indicating a high risk of blazes, was issued for mountains and valleys in San Diego County through the night.`\
-https://nytimes.com/video/us/100000009939402/brush-fires-force-evacuations-in-san-diego-county.html
 

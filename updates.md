@@ -1,3 +1,7 @@
+**Anthony Edwards, Rudy Gobert and Chris Finch are struggling in clutch games for Wolves**\
+`"I’m not always going to get it right," Finch said in December about his closing lineups.`\
+https://nytimes.com/athletic/6076024/2025/01/21/anthony-edwards-rudy-gobert-chris-finch-struggling-timberwolves/
+
 **Game, Set, Match: Novak Djokovic beats Carlos Alcaraz to reach Australian Open semifinals**\
 `The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets`\
 https://nytimes.com/athletic/6077461/2025/01/21/carlos-alcaraz-novak-djokovic-australian-open-result-analysis/
