@@ -1,7 +1,3 @@
-**Ichiro, Sabathia and Wagner elected to Baseball Hall of Fame**\
-`The trio will join Dave Parker and Dick Allen as the Class of 2025 in Cooperstown this summer.`\
-https://nytimes.com/athletic/6079085/2025/01/21/baseball-hall-of-fame-election-ichiro-sabathia-wagner/
-
 **Trump’s Day 1 Crackdown on Immigration**\
 `President Trump’s executive actions on immigration were the leading edge of an effort to upend the United States’ role as a sanctuary for refugees and immigrants. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what Trump has done so far.`\
 https://nytimes.com/video/us/politics/100000009938392/trumps-day-1-crackdown-on-immigration.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/21/us/politics/doge-government-efficiency-trump-musk
 **States Sued to Stop Trump’s Birthright Citizenship Order**\
 `Also, Jan. 6 defendants were set free. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/21/briefing/lawsuit-trump-birthright-citizenship-snow-gulf-coast.html
+
+**What Trump’s Pledge to Plant the U.S. Flag on Mars Really Means**\
+`The president’s Inaugural Address linked landing on the Red Planet with Manifest Destiny, but left many of the specifics unclear.`\
+https://nytimes.com/2025/01/21/science/trump-mars-flag.html
 
