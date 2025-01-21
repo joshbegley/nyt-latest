@@ -1,3 +1,7 @@
+**Bimla Bissell, Vital Aide to Four U.S. Ambassadors to India, Dies at 92**\
+`Her house was a hub for generations of heads of state, diplomats, journalists and artists, who relied on her for her political acumen and were buoyed by her friendship.`\
+https://nytimes.com/2025/01/21/world/asia/bimla-bissell-dead.html
+
 **Spurs at NBA midpoint: Losing Gregg Popovich, highs and lows, but 'this is not easy'**\
 `“We know in a season it is not going to be a straight line,” Spurs star Victor Wembanyama said. “The long term is never being questioned."`\
 https://nytimes.com/athletic/6076929/2025/01/21/spurs-nba-midpoint-gregg-popovich/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/theater/joel-paley-dead.html
 **Trump’s Proposed Tariff Agency Raises Questions, and Confusion, for Experts**\
 `President Trump wants an External Revenue Service to collect tariffs on imports. But one trade expert said the move may be “more branding than substance.”`\
 https://nytimes.com/2025/01/21/us/politics/trump-tariffs-external-revenue-service.html
-
-**Chicago shivers through an Arctic blast.**\
-`Temperatures in the Upper Midwest plunged below zero on Tuesday.`\
-https://nytimes.com/2025/01/21/weather/chicago-shivers-through-an-arctic-blast.html
 
