@@ -1,3 +1,7 @@
+**Why is the South so cold right now?**\
+`A mass of air called the polar vortex has escaped the Arctic and plunged southward, causing freezing temperatures and snow as far away as Florida.`\
+https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/why-is-the-south-so-cold-right-now
+
 **Thousands of Flights Delayed or Canceled as Winter Storm Disrupts Travel in Southeast**\
 `Snow and cold temperatures hitting a broad swath of the region also disrupted travel via rails and roadways.`\
 https://nytimes.com/2025/01/21/weather/flight-cancellations-delays-winter-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/nyregion/midtown-manhattan-housing-crisis.html
 **How Trump’s Plan to Label Some Drug Cartels ‘Terrorists’ Would Work**\
 `His administration would have more power to impose economic penalties and travel restrictions, and potentially even take military action inside foreign countries.`\
 https://nytimes.com/2025/01/21/us/politics/trump-drug-cartels-terrorist-mexico.html
-
-**Commanders at Eagles: How to watch, pick, odds, with Philly opening as a 5-point favorite**\
-`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
-https://nytimes.com/athletic/6073644/2025/01/21/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
 
