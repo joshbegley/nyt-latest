@@ -1,3 +1,11 @@
+**Trump’s Second Inauguration in Pictures**\
+`A change of venue and a subdued swearing-in ceremony marked Donald J. Trump’s return to power.`\
+https://nytimes.com/card/2025/01/21/us/politics/trump-inauguration-photos
+
+**New Jersey’s Governor Asks Trump to Move Swiftly on Congestion Pricing**\
+`Gov. Phil Murphy wrote a letter to the president saying that the surcharge on drivers entering Manhattan’s busiest area was a “disaster” for commuters and residents in his state.`\
+https://nytimes.com/2025/01/20/nyregion/new-jersey-murphy-congestion-pricing-trump.html
+
 **Oilers' Connor McDavid suspended 3 games for cross-checking Conor Garland**\
 `McDavid received a match penalty in Saturday's game, meaning a suspension was all but inevitable.`\
 https://nytimes.com/athletic/6075192/2025/01/20/connor-mcdavid-suspended-oilers-canucks-conor-garland/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-inauguration-president/small-crowds
 **Trump Swears Oath Without His Hand on Bible, but He Wasn’t Required To**\
 `The tradition of swearing the oath of office on a Bible stretches back to George Washington, but not all presidents have observed it.`\
 https://nytimes.com/2025/01/20/us/politics/trump-hand-bible-oath.html
-
-**Scenes From Across an America Bracing Itself Against Brutal Winter Cold**\
-`An intense blast of arctic air blanketed the Mid-Atlantic and the Northeast with frigid temperatures, and a rare winter storm was expected along the Gulf Coast.`\
-https://nytimes.com/2025/01/20/weather/20polar-vortex-stack.html
-
-**Greenberg: Bears got it right with Ben Johnson, bringing hope to Chicago at pivotal time**\
-`We don’t know whether Johnson will lead Caleb Williams and the Bears to great heights, but he feels like the right guy for a very big job.`\
-https://nytimes.com/athletic/6076348/2025/01/20/ben-johnson-chicago-bears-head-coach-hire/
 
