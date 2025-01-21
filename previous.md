@@ -1,40 +1,40 @@
-**At 90, the Ghanaian Highlife Pioneer Ebo Taylor Finds a New Voice**\
-`The singer, guitarist and composer released heralded music in the 1970s and early ’80s before retreating. The label Jazz Is Dead is boosting his rediscovery.`\
-https://nytimes.com/2025/01/21/arts/music/ebo-taylor-jazz-is-dead.html
+**Villa complete Garcia transfer from Levante**\
+`Aston Villa have completed the transfer of right-back Andres Garcia from Spanish side Levante.`\
+https://nytimes.com/athletic/6077489/2025/01/21/aston-villa-andres-garcia-transfer/
 
-**Want an Authentic Travel Experience? Try McDonald’s.**\
-`It’s a much realer version of the supposed authenticity we so often seek.`\
-https://nytimes.com/2025/01/21/magazine/travel-fast-food.html
+**A Heavy Favorite Emerges in the Race to Lead the Democratic Party**\
+`Ken Martin, the chair of the Minnesota Democrats, said he was nearing the level of support needed to become the next leader of the Democratic National Committee.`\
+https://nytimes.com/2025/01/21/us/politics/ken-martin-dnc-race.html
 
-**TikTok, Trump and What Crony Capitalism Does to Our Economy**\
-`The fealty that corporate chieftains are showing the new president is a worrying sign for our economy.`\
-https://nytimes.com/2025/01/21/opinion/trump-zuckerberg-bezos-chew.html
+**What Trump Did on Day 1: Tracking His Biggest Moves**\
+`President Trump made major policy moves immediately after taking office, withdrawing from major international agreements, promising steep tariffs and pardoning nearly all of the Jan. 6 rioters.`\
+https://nytimes.com/2025/01/21/us/politics/trump-first-day-recap.html
 
-**Doug Collins, a Key Trump Impeachment Player, Will Face Senators as V.A. Pick**\
-`Former Representative Doug Collins does not have a traditional résumé for a V.A. secretary, but he fits the mold of a Trump loyalist.`\
-https://nytimes.com/2025/01/21/us/politics/doug-collins-va-confirmation.html
+**What 7 Americans Thought About Trump’s Inauguration Speech**\
+`We’ll be regularly checking in with this group of people during President Trump’s first 100 days in office. Here’s what they thought on Day 1.`\
+https://nytimes.com/2025/01/21/us/americans-trump-inauguration-speech.html
 
-**Are Dental X-Rays Safe?**\
-`We asked experts if regular exposure to low levels of radiation could be harmful to health.`\
-https://nytimes.com/2025/01/21/well/dental-x-ray-health-risks.html
+**The Right Is Winning the Battle for Hearts and Minds**\
+`The full-scale assault by the conservative movement on liberal domination of the nation’s culture has begun to deliver key victories.`\
+https://nytimes.com/2025/01/21/opinion/trump-maga-hearts-minds.html
 
-**Did Christopher Columbus Jump-Start the Climate Crisis?**\
-`In “Dark Laboratory,” Tao Leigh Goffe traces the origins of global environmental collapse to the explorer’s conquest of the Caribbean.`\
-https://nytimes.com/2025/01/21/books/review/dark-laboratory-tao-leigh-goffe.html
+**Thomas Friedman: The Global Challenges Facing Trump**\
+`The columnist on why the president is facing a rare moment of opportunity in the Middle East.`\
+https://nytimes.com/2025/01/21/opinion/friedman-trump-netanyahu.html
 
-**In ‘Mona Acts Out,’ #MeToo Shakes Up a Downtown Theater**\
-`Mischa Berlinski’s shrewd comic novel finds a veteran actress reconnecting with her deposed mentor while facing the challenge of playing Cleopatra.`\
-https://nytimes.com/2025/01/21/books/review/mona-acts-out-mischa-berlinski.html
+**It’s Zinc Bar vs. Barista in a Paris Battle of the Buzz**\
+`The city’s traditional cafes and bistros are staking out their cultural territory in an emerging duel against highly caffeinated upstarts serving up latte art.`\
+https://nytimes.com/2025/01/21/travel/paris-coffee-shops-bistro.html
 
-**Loving an ‘Untouched’ Modernist House, and Then Getting Down to Work**\
-`A couple bought a home in Palo Alto, Calif., that was designed by an associate of Frank Lloyd Wright. Happily, they were also smitten with the two-year renovation.`\
-https://nytimes.com/2025/01/21/realestate/location-modernist-house-palo-alto.html
+**What Do You Do to Stay Healthy?**\
+`The Times asked 35 experts to share one health tip they swore by. Which resonate most with you? What advice can you offer to other teenagers?`\
+https://nytimes.com/2025/01/21/learning/what-do-you-do-to-stay-healthy.html
 
-**At Least 10 Are Killed At Ski Resort Fire in Turkey**\
-`The fire at the Grand Kartal Hotel, in a ski resort in Bolu Province, started when most of the 200 guests were asleep. The cause of the fire was unclear.`\
-https://nytimes.com/video/world/europe/100000009939297/turkey-ski-resort-hotel-fire-deaths.html
+**In Minneapolis, a Layer of Hygge Warmth for a Top-Notch Orchestra**\
+`With the Nordic Soundscapes Festival, Thomas Sondergard puts his stamp on the Minnesota Orchestra (and its interior spaces).`\
+https://nytimes.com/2025/01/21/arts/music/minnesota-orchestra-thomas-sondergard-nordic-festival.html
 
-**Haas names F1's first female race engineer**\
-`Laura Muller will become the first female race engineer in Formula One history after being promoted into the role by Haas ahead of the 2025 season.`\
-https://nytimes.com/athletic/6077463/2025/01/21/laura-muller-haas-f1-female-race-engineer/
+**How My Mother-in-Law Lost Her Mind and Found Herself**\
+`“I can’t change it. I’m not in control, so I have to listen.”`\
+https://nytimes.com/2025/01/21/opinion/cancer-mental-health-wisdom.html
 
