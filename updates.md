@@ -1,3 +1,7 @@
+**Judges Begin Freeing Jan. 6 Defendants and Dismissing Their Cases**\
+`Two prominent far-right extremists with central roles in the Capitol attack, Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers militia, have been set free.`\
+https://nytimes.com/2025/01/21/us/politics/jan-6-defendants-freed.html
+
 **Oilers' Connor McDavid won't appeal 3-game suspension: Sources**\
 `McDavid received the supplemental discipline after cross-checking Vancouver Canucks forward Conor Garland late in Saturday's game`\
 https://nytimes.com/athletic/6078472/2025/01/21/oilers-connor-mcdavid-suspension-appeal/
