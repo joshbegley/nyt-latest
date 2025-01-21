@@ -1,3 +1,7 @@
+**Facing Setbacks and Desertions at the Front, Ukraine Detains Commanders**\
+`Two generals and a colonel blamed for the loss of territory in eastern Ukraine to Russian forces last year have been held, the country’s security service said.`\
+https://nytimes.com/2025/01/21/world/europe/ukraine-commanders-detained.html
+
 **Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
 `This short scene conceals the names of 13 books published in the middle decades of the 20th century. See if you can find them all and build a reading list along the way.`\
 https://nytimes.com/interactive/2025/01/21/books/review/midcentury-books-search.html
