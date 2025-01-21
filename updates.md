@@ -1,3 +1,19 @@
+**Ravens pack their bags, say goodbye to another season that ends prematurely**\
+`The feeling of regret and disappointment is palpable as Baltimore's season abruptly ends after building momentum for a Super Bowl run.`\
+https://nytimes.com/athletic/6076292/2025/01/21/ravens-locker-cleanout-nfl-playoffs/
+
+**Why Darius Garland has an excellent — and difficult — All-Star case to be made**\
+`The Cavs are rolling thanks in large part to Garland's play, but the East — and Cleveland's — backcourt is a crowded one.`\
+https://nytimes.com/athletic/6074212/2025/01/21/cavaliers-darius-garland-all-star-nba/
+
+**2025 NCAA Tournament Bracket Watch: Can the Big Ten produce a contender?**\
+`Illinois lost at Michigan State on Sunday but might have the highest ceiling of any team in the league. `\
+https://nytimes.com/athletic/6075196/2025/01/21/college-basketball-bracket-watch-big-ten-michigan-state-illinois/
+
+**Pistons edge Rockets in Cade Cunningham and Jalen Green's latest rivalry matchup**\
+`There's seemingly no love lost between Cunningham and Green as they met again.`\
+https://nytimes.com/athletic/6076424/2025/01/21/cade-cunningham-jalen-green-pistons-rockets/
+
 **Aryna Sabalenka avoids Australian Open upset against Anastasia Pavlyuchenkova**\
 `MELBOURNE, Australia — Aryna Sabalenka, the world No.`\
 https://nytimes.com/athletic/6077472/2025/01/21/aryna-sabalenka-australian-open-result-anastasia-pavlyuchenkova/

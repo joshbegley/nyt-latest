@@ -1,6 +1,22 @@
+**Ravens pack their bags, say goodbye to another season that ends prematurely**\
+`The feeling of regret and disappointment is palpable as Baltimore's season abruptly ends after building momentum for a Super Bowl run.`\
+https://nytimes.com/athletic/6076292/2025/01/21/ravens-locker-cleanout-nfl-playoffs/
+
+**Why Darius Garland has an excellent — and difficult — All-Star case to be made**\
+`The Cavs are rolling thanks in large part to Garland's play, but the East — and Cleveland's — backcourt is a crowded one.`\
+https://nytimes.com/athletic/6074212/2025/01/21/cavaliers-darius-garland-all-star-nba/
+
+**2025 NCAA Tournament Bracket Watch: Can the Big Ten produce a contender?**\
+`Illinois lost at Michigan State on Sunday but might have the highest ceiling of any team in the league. `\
+https://nytimes.com/athletic/6075196/2025/01/21/college-basketball-bracket-watch-big-ten-michigan-state-illinois/
+
 **Aryna Sabalenka avoids Australian Open upset against Anastasia Pavlyuchenkova**\
 `MELBOURNE, Australia — Aryna Sabalenka, the world No.`\
 https://nytimes.com/athletic/6077472/2025/01/21/aryna-sabalenka-australian-open-result-anastasia-pavlyuchenkova/
+
+**Pistons edge Rockets in Cade Cunningham and Jalen Green's latest rivalry matchup**\
+`There's seemingly no love lost between Cunningham and Green as they met again.`\
+https://nytimes.com/athletic/6076424/2025/01/21/cade-cunningham-jalen-green-pistons-rockets/
 
 **Villa complete Garcia transfer from Levante**\
 `Aston Villa have completed the transfer of right-back Andres Garcia from Spanish side Levante.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/21/us/americans-trump-inauguration-speech.html
 **The Right Is Winning the Battle for Hearts and Minds**\
 `The full-scale assault by the conservative movement on liberal domination of the nation’s culture has begun to deliver key victories.`\
 https://nytimes.com/2025/01/21/opinion/trump-maga-hearts-minds.html
-
-**Thomas Friedman: The Global Challenges Facing Trump**\
-`The columnist on why the president is facing a rare moment of opportunity in the Middle East.`\
-https://nytimes.com/2025/01/21/opinion/friedman-trump-netanyahu.html
-
-**It’s Zinc Bar vs. Barista in a Paris Battle of the Buzz**\
-`The city’s traditional cafes and bistros are staking out their cultural territory in an emerging duel against highly caffeinated upstarts serving up latte art.`\
-https://nytimes.com/2025/01/21/travel/paris-coffee-shops-bistro.html
-
-**What Do You Do to Stay Healthy?**\
-`The Times asked 35 experts to share one health tip they swore by. Which resonate most with you? What advice can you offer to other teenagers?`\
-https://nytimes.com/2025/01/21/learning/what-do-you-do-to-stay-healthy.html
-
-**In Minneapolis, a Layer of Hygge Warmth for a Top-Notch Orchestra**\
-`With the Nordic Soundscapes Festival, Thomas Sondergard puts his stamp on the Minnesota Orchestra (and its interior spaces).`\
-https://nytimes.com/2025/01/21/arts/music/minnesota-orchestra-thomas-sondergard-nordic-festival.html
 
