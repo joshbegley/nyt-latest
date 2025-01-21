@@ -11,7 +11,7 @@ https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html
 https://nytimes.com/2025/01/21/style/street-style-look-clashing-prints.html
 
 **Game, Set, Match: Novak Djokovic beats Carlos Alcaraz to reach Australian Open semifinals**\
-`The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets.`\
+`The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets`\
 https://nytimes.com/athletic/6077461/2025/01/21/carlos-alcaraz-novak-djokovic-australian-open-result-analysis/
 
 **CFP confidential: College coaches dish on Ohio State-Notre Dame title game decisions**\

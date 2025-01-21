@@ -1,3 +1,7 @@
+**Game, Set, Match: Novak Djokovic beats Carlos Alcaraz to reach Australian Open semifinals**\
+`The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets`\
+https://nytimes.com/athletic/6077461/2025/01/21/carlos-alcaraz-novak-djokovic-australian-open-result-analysis/
+
 **How concerned should the Senators be about Brady Tkachuk's 7-game point-less skid?**\
 `The Athletic takes a closer look at Tkachuk's advanced numbers during his longest point-less streak since his rookie season.`\
 https://nytimes.com/athletic/6075235/2025/01/21/senators-brady-tkachuk-nhl-defense-offense/
