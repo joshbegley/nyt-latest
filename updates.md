@@ -1,3 +1,15 @@
+**Vikings, HC Kevin O'Connell agree to multi-year extension**\
+`O'Connell, 39, lands a contract extension after guiding Vikings to 14-3 record with Sam Darnold at quarterback.`\
+https://nytimes.com/athletic/6079150/2025/01/21/vikings-head-coach-kevin-oconnell-extension/
+
+**The Briefing: Benfica 4 Barca 5 - Late winner, Szczesny errors, a hat-trick and an own goal in thriller**\
+`Jack Lang and Mark Carey break down the action from a ridiculous encounter at Estadio da Luz.`\
+https://nytimes.com/athletic/6075369/2025/01/21/benfica-barcelona-champions-league/
+
+**Trump Wants to Unleash Energy, as Long as It’s Not Wind or Solar**\
+`Legal experts said the president was testing the boundaries of executive power with aggressive orders designed to stop the country from transitioning to renewable energy.`\
+https://nytimes.com/2025/01/21/climate/trump-energy-fossil-fuels.html
+
 **The Briefing: Liverpool 2 Lille 1 - Salah scores, Nunez impresses, Elliott the supersub**\
 `Liverpool secured victory over Lille at Anfield as Arne Slot's men guarantee a top-eight finish in the Champions League group stage`\
 https://nytimes.com/athletic/6075370/2025/01/21/liverpool-2-lille-1-champions-league-matchday-7-recap/
