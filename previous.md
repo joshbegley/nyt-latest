@@ -1,4 +1,12 @@
-**Trump Administration Fires Immigration Judges as Crackdown Begins**\
+**Oilers' Connor McDavid suspended 3 games for cross-checking Conor Garland**\
+`McDavid received a match penalty in Saturday's game, meaning a suspension was all but inevitable.`\
+https://nytimes.com/athletic/6075192/2025/01/20/connor-mcdavid-suspended-oilers-canucks-conor-garland/
+
+**Senate Passes Border Crackdown Bill, Teeing Up Final House Vote**\
+`The measure, which increases deportations for undocumented migrants charged with crimes, is likely to be the first bill to reach President Trump’s desk. It must pass one more House vote to clear Congress.`\
+https://nytimes.com/2025/01/20/us/politics/senate-passes-border-crackdown-bill.html
+
+**Trump Administration Fires Immigration Court Officials as Crackdown Begins**\
 `Four immigration court officials were removed from their positions on Monday. It’s unclear who is in charge at this point.`\
 https://nytimes.com/2025/01/20/us/politics/trump-administration-fires-immigration-judges.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/20/weather/20polar-vortex-stack.html
 **Greenberg: Bears got it right with Ben Johnson, bringing hope to Chicago at pivotal time**\
 `We don’t know whether Johnson will lead Caleb Williams and the Bears to great heights, but he feels like the right guy for a very big job.`\
 https://nytimes.com/athletic/6076348/2025/01/20/ben-johnson-chicago-bears-head-coach-hire/
-
-**Pereira critical of Cunha after Chelsea loss: 'I don't like his body language'**\
-`Wolverhampton Wanderers head coach Vitor Pereira has warned attacking talisman Matheus Cunha that his body language in Monday’s 3-1 defeat at Chelsea was unacceptable.`\
-https://nytimes.com/athletic/6076371/2025/01/20/matheus-cunha-wolves-chelsea/
-
-**In renaming Denali for McKinley, Trump invokes a presidential idol**\
-`The move is likely to face some pushback in Alaska, where the Alaska Native name has long been favored for the continent’s tallest mountain.`\
-https://nytimes.com/2025/01/20/us/politics/denali-mckinley-rename-trump.html
 
