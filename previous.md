@@ -1,3 +1,11 @@
+**Trump signs an executive order stripping security clearances from some former intelligence officials.**\
+`By Julian E. Barnes and Devlin Barrett`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-signs-an-executive-order-stripping-security-clearances-from-some-former-intelligence-officials
+
+**Read President Trump’s Proclamation Granting Clemency to Jan. 6 Rioters**\
+`President Trump has given sweeping pardons to nearly all of the 1,600 rioters charged with storming the Capitol on Jan. 6, 2021, and commuted the sentences of several others.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/20executive-orders-Jan6.html
+
 **So, So, So Long**\
 `Tap into your animal instincts to solve Dan Caprera’s crossword puzzle.`\
 https://nytimes.com/2025/01/20/crosswords/daily-puzzle-2025-01-21.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6074434/2025/01/20/paula-badosa-australian-open-coc
 **Trump Tries to Stall TikTok Ban With Executive Order**\
 `President Trump signed an executive order on Monday to delay enforcing a federal ban of TikTok for at least 75 days. It’s unclear if the order could override the federal law.`\
 https://nytimes.com/video/us/politics/100000009938946/trump-tiktok-executive-order.html
-
-**‘A Quiet Force’: Harris Returns Home After Making History in Washington**\
-`The former vice president’s first acts as a nonelected official for the first time in decades could be a sign of what comes next.`\
-https://nytimes.com/2025/01/20/us/politics/harris-legacy-vp.html
-
-**Packed In for Trump’s Indoor Inauguration, Awkwardness Abounds**\
-`Tech billionaires, foreign leaders, ex-presidents and political nemeses. How did everyone behave?`\
-https://nytimes.com/2025/01/20/us/politics/packed-in-for-trumps-indoor-inauguration-awkwardness-abounds.html
 

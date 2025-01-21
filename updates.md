@@ -1,3 +1,11 @@
+**Trump signs an executive order stripping security clearances from some former intelligence officials.**\
+`By Julian E. Barnes and Devlin Barrett`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-signs-an-executive-order-stripping-security-clearances-from-some-former-intelligence-officials
+
+**Read President Trump’s Proclamation Granting Clemency to Jan. 6 Rioters**\
+`President Trump has given sweeping pardons to nearly all of the 1,600 rioters charged with storming the Capitol on Jan. 6, 2021, and commuted the sentences of several others.`\
+https://nytimes.com/interactive/2025/01/20/us/politics/20executive-orders-Jan6.html
+
 **So, So, So Long**\
 `Tap into your animal instincts to solve Dan Caprera’s crossword puzzle.`\
 https://nytimes.com/2025/01/20/crosswords/daily-puzzle-2025-01-21.html
