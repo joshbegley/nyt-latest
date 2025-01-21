@@ -1,3 +1,19 @@
+**Nottingham Forest transformation: Murillo deal is huge statement... now for Gibbs-White**\
+`Murillo's new contract shows Forest's transformation into a much smoother machine, with a push for the Champions League looming`\
+https://nytimes.com/athletic/6077623/2025/01/21/murillo-deal-nottingham-forest-gibbs-white-wood/
+
+**Paul Skenes Topps' Rookie Debut Patch card found by 11-year-old collector**\
+`Many collectors have offered up bounties for the card, most notably the Pittsburgh Pirates.`\
+https://nytimes.com/athletic/6078677/2025/01/21/paul-skenes-topps-debut-patch-card-found/
+
+**Chelsea and San Diego finalizing record $1.1 million transfer for Naomi Girma: Sources**\
+`The defender is expected to become the first million-dollar transfer in women's soccer `\
+https://nytimes.com/athletic/6066148/2025/01/21/naomi-girma-chelsea-transfer-record-san-diego-wave/
+
+**Trump Moves Quickly to Install New Leaders at Key U.S. Attorney’s Offices**\
+`The interim appointments, two in New York and one in Washington, signaled a break from past practice that reflects the importance of frontline prosecutors to the administration’s plans.`\
+https://nytimes.com/2025/01/21/us/politics/trump-us-attorneys-justice-department.html
+
 **N.Y. Governor’s Budget Aims More at Pocketbook Issues Than at Trump**\
 `The $252 billion spending plan for New York addressed concerns about affordability, crime and the cost of living, but did little to anticipate President Trump’s policies.`\
 https://nytimes.com/2025/01/21/nyregion/hochul-state-budget-ny.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/21/weather/snow-plows-trucks-texas-florida.html
 **Heat Today: After a slow NBA adjustment, 7-footer Kel'el Ware is raising Miami's ceiling**\
 `Kel'el Ware's adjustment to the Heat rotation has been gradual, but it's paying dividends.`\
 https://nytimes.com/athletic/6078105/2025/01/21/kelel-ware-bam-adebayo-tyler-herro-jimmy-butler-heat-nba/
-
-**Gulati and Garber due to testify as NASL v. MLS trial continues**\
-`After roughly 30 hours inside the courtroom last week, witness testimony has begun to unveil the inner world of American professional soccer`\
-https://nytimes.com/athletic/6076471/2025/01/21/nasl-mls-trial-gulati-garber/
-
-**Judges Begin Freeing Jan. 6 Defendants and Dismissing Their Cases**\
-`Two prominent far-right extremists with central roles in the Capitol attack, Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers militia, have been set free.`\
-https://nytimes.com/2025/01/21/us/politics/jan-6-defendants-freed.html
-
-**Oilers' Connor McDavid won't appeal 3-game suspension: Sources**\
-`McDavid received the supplemental discipline after cross-checking Vancouver Canucks forward Conor Garland late in Saturday's game`\
-https://nytimes.com/athletic/6078472/2025/01/21/oilers-connor-mcdavid-suspension-appeal/
-
-**I Spent Trump’s Inauguration in Ukraine. This Is What I Saw.**\
-`“And Panama!” a Ukrainian military analyst said. “What did calm, peaceful Panama do?”`\
-https://nytimes.com/2025/01/21/opinion/i-spent-trumps-inauguration-in-ukraine-this-is-what-i-saw.html
 

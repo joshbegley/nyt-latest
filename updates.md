@@ -1,3 +1,7 @@
+**N.Y. Governor’s Budget Aims More at Pocketbook Issues Than at Trump**\
+`The $252 billion spending plan for New York addressed concerns about affordability, crime and the cost of living, but did little to anticipate President Trump’s policies.`\
+https://nytimes.com/2025/01/21/nyregion/hochul-state-budget-ny.html
+
 **Hochul Proposes a Budget Aimed More at Pocketbook Issues Than at Trump**\
 `The $252 billion spending plan for New York addressed concerns about affordability, crime and the cost of living, but did little to anticipate President Trump’s policies.`\
 https://nytimes.com/2025/01/21/nyregion/hochul-state-budget-ny.html
