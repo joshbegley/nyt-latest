@@ -1,4 +1,8 @@
 **Ryan Donato's relentless attack mentality makes him an intriguing Blackhawks trade chip**\
+`Chicago's other players will likely generate more interest at the trade deadline, but Donato can beat them all for sheer effort.`\
+https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-trade-chip-hurricanes/
+
+**Ryan Donato's relentless attack mentality makes him an intriguing Blackhawks trade chip**\
 `Other players on the Blackhawks will likely generate more interest at the trade deadline, but Donato can beat them all for sheer effort.`\
 https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-trade-chip-hurricanes/
 
