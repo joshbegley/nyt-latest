@@ -1,4 +1,4 @@
-**First Mario Lemina, now Matheus Cunha: Vitor Pereira's Wolves honeymoon period is over**\
+**First Mario Lemina, now Matheus Cunha: Vitor Pereira's bright start at Wolves is over**\
 `Pereira has publicly criticised a second key player after Cunha's display against Chelsea. Welcome to Molineux, coach`\
 https://nytimes.com/athletic/6076664/2025/01/21/wolves-pereira-cunha-lemina-coach/
 

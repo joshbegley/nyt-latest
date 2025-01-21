@@ -1,3 +1,7 @@
+**At Least 10 Are Killed in Fire at Ski Resort in Turkey**\
+`The blaze broke out overnight at a popular ski resort during a school break, when many families head to the slopes.`\
+https://nytimes.com/2025/01/21/world/europe/turkey-ski-resort-fire.html
+
 **Why Chelsea are looking to add another winger**\
 `With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a right-footed winger on their wish list`\
 https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
