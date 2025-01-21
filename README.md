@@ -1,3 +1,7 @@
+**Read These Books Before They Hit Your Screens in 2025**\
+`Hilary Mantel’s “The Mirror and the Light,” a new “Bridget Jones” and Michael Bond’s Paddington Bear series are some of this year’s most anticipated adaptations.`\
+https://nytimes.com/article/book-movie-tv-adaptations-2025.html
+
 **Hollinger's Week That Was: Historic second-half stats; Richards trade minutiae; scouting Buzelis**\
 `Heading into the season's second half, it's amazing how many season-level records could be in play. Plus, Nick Richards trade minutiae.`\
 https://nytimes.com/athletic/6076918/2025/01/21/historic-nba-records-to-watch-nick-richards-matas-buzelis-jeremiah-fears/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075235/2025/01/21/senators-brady-tkachuk-nhl-defen
 **Was That a 900 or 1080 on the Halfpipe? X Games Can Now Ask A.I.**\
 `Snowboarding is the latest sport to embrace technology as a judge, at least partly, at this week’s X Games.`\
 https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html
-
-**Piled On Prints and an ‘Upstate Vibe’**\
-`Camouflage, animal, scenic — oh my!`\
-https://nytimes.com/2025/01/21/style/street-style-look-clashing-prints.html
 
