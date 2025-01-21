@@ -1,3 +1,7 @@
+**Goran Ivanisevic quits as Elena Rybakina's coach after the suspended Stefano Vukov returns to team**\
+`The world No. 6 announced her partnership with Novak Djokovic's former coach just two months ago.`\
+https://nytimes.com/athletic/6031809/2025/01/21/goran-ivanisevic-quits-elena-rybakina-coach-stefano-vukov/
+
 **Trump’s Inaugural Address: 2017 vs. 2025**\
 `The Inaugural Address that President Trump gave on Monday was in some ways even darker than his “American carnage” inaugural address eight years ago. Michael D. Shear, a White House correspondent for The New York Times, explains.`\
 https://nytimes.com/video/us/politics/100000009938053/trumps-inaugural-address-compared.html
