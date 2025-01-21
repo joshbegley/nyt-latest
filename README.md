@@ -1,3 +1,15 @@
+**AP Top 25: Ohio State tops Notre Dame, Oregon in final 2024 poll**\
+`Ohio State is No. 1 in the final AP Top 25 college football poll of the 2024 season, the sixth time its has finished atop the AP poll.`\
+https://nytimes.com/athletic/6078016/2025/01/21/ap-top-25-ohio-state-no-1-ahead-of-notre-dame-oregon-in-final-2024-college-football-poll/
+
+**Saliba 'evolving well' after injury but will miss Dinamo Zagreb game**\
+`Mikel Arteta says that Arsenal defender William Saliba is &#8220;evolving well&#8221; after sustaining a muscular injury last week but will miss his side&#8217;s Champions League game against Dinamo Zagreb on Wednesday.`\
+https://nytimes.com/athletic/6072847/2025/01/21/arsenal-william-saliba-injury-latest/
+
+**Ohio State's win sparks gleeful, cathartic party in Columbus: ‘We need to have a Ryan Apology Day’ **\
+`A campus, city and fan base that expects success finally broke through, reclaiming its spot atop the college football throne.`\
+https://nytimes.com/athletic/6078060/2025/01/21/ohio-state-college-football-championship-celebration/
+
 **J.T. Miller trade watch: 6 potential destinations and what the Canucks could get in return**\
 `Miller’s days as a member of the Canucks could be numbered. What does he bring, where could he land and what does Vancouver need?`\
 https://nytimes.com/athletic/6077232/2025/01/21/nhl-jt-miller-trade-canucks-destinations/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/21/us/trump-president-news/heres-the-latest-on-
 **New York Sirens trade Jill Saulnier to Boston Fleet for Taylor Girard**\
 `The trade looks to be a change of scenery for both players, who've seen limited minutes and stretches out of the lineup early this season.`\
 https://nytimes.com/athletic/6077986/2025/01/21/pwhl-trade-sirens-fleet-saulnier-girard/
-
-**Penguins Today: Mike Sullivan explains the inexplicable**\
-`The old Penguins are better with less rest because nothing about this team makes much sense. `\
-https://nytimes.com/athletic/6077388/2025/01/21/penguins-today-mike-sullivan-back-to-backs/
-
-**Brock Nelson to the Wild? Danila Yurov's arrival? Marco Rossi's future? Ask Russo and Smith**\
-`Plus predicting the Wild's future blue line, updates on prospects and more.`\
-https://nytimes.com/athletic/6075649/2025/01/21/minnesota-wild-nhl-yurov-nelson-trade-russo/
-
-**Anthony Edwards, Rudy Gobert and Chris Finch are struggling in clutch games for Wolves**\
-`"I’m not always going to get it right," Finch said in December about his closing lineups.`\
-https://nytimes.com/athletic/6076024/2025/01/21/anthony-edwards-rudy-gobert-chris-finch-struggling-timberwolves/
 
