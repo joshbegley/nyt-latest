@@ -2,7 +2,7 @@
 `The Athletic spoke to six FBS coaches to break down the key moments of Ohio State's championship win Monday night.`\
 https://nytimes.com/athletic/6077742/2025/01/21/college-football-playoff-championship-coaches-confidential/
 
-**Amorim damages TV in dressing room in angry criticism of Man United players**\
+**Amorim damages dressing room TV in angry criticism of Man United players**\
 `Ruben Amorim caused damage to the big screen television in Manchester United’s dressing room during a furious critique of his players’ performance in the 3-1 defeat to Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/6077915/2025/01/21/manchester-united-ruben-amorim-dressing-room/
 
