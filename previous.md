@@ -1,3 +1,11 @@
+**Trump Signs Two Orders to Dismantle Equity Policies**\
+`The administration will take steps to roll back federal support for racial equity and protections for transgender people.`\
+https://nytimes.com/2025/01/20/us/politics/trump-transgender-race-education.html
+
+**What to Know About Trump’s Broad Grant of Clemency to Jan. 6 Rioters**\
+`He issued formal pardons to more than 1,550 rioters charged with a wide range of crimes and commuted the sentences of 14 members of far-right groups.`\
+https://nytimes.com/2025/01/20/us/politics/trump-pardons-jan6.html
+
 **Draymond Green sidelined as Warriors enter 'make or break' stretch of schedule**\
 `The Warriors will be without Green and Jonathan Kuminga against the Kings, Bulls and Lakers this week.`\
 https://nytimes.com/athletic/6076090/2025/01/20/warriors-draymond-green-sidelined/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/01/20/us/politics/20executive-orders-Jan6.h
 **So, So, So Long**\
 `Tap into your animal instincts to solve Dan Caprera’s crossword puzzle.`\
 https://nytimes.com/2025/01/20/crosswords/daily-puzzle-2025-01-21.html
-
-**Corrections: Jan. 21, 2025**\
-`Corrections that appeared in print on Tuesday, Jan. 21, 2025.`\
-https://nytimes.com/2025/01/20/pageoneplus/corrections-jan-21-2025.html
-
-**Trump Returns, and So Does His TV Spectacle**\
-`The president’s second inauguration began with somber pageantry and ended with a reality-TV document signing.`\
-https://nytimes.com/2025/01/20/arts/television/trump-inauguration-rally.html
 
