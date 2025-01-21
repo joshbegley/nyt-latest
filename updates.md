@@ -1,3 +1,11 @@
+**Three Opinion Writers on Trump Day 1: He Is Exploiting ‘Civic Ignorance’**\
+`The president’s executive orders show us where things are headed.`\
+https://nytimes.com/2025/01/21/opinion/trump-day-one-round-table.html
+
+**Mayor Adams Won’t Criticize Trump. He Will Sit Down With Tucker Carlson.**\
+`Mayor Eric Adams of New York City, a Democrat, declined to say anything negative about Donald J. Trump’s early executive orders, saying he would bring any concerns directly to the president.`\
+https://nytimes.com/2025/01/21/nyregion/adams-trump-tucker-carlson.html
+
 **Why is the South so cold right now?**\
 `A mass of air called the polar vortex has escaped the Arctic and plunged southward, causing freezing temperatures and snow as far away as Florida.`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/why-is-the-south-so-cold-right-now
