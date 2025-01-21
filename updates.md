@@ -1,3 +1,15 @@
+**Teenager arrested on suspicion of sending online abuse to Havertz's wife**\
+`Police have arrested a teenager on suspicion of sending online abuse to Arsenal forward Kai Havertz&#8217;s pregnant wife.`\
+https://nytimes.com/athletic/6078588/2025/01/21/kai-havertz-wife-online-abuse/
+
+**Reds invite No. 2 overall pick Chase Burns to big-league camp**\
+`Burns, a right-hander out of Wake Forest, joins Jose Acuña and Zach Maxwell as non-roster pitchers invited to camp.`\
+https://nytimes.com/athletic/6079100/2025/01/21/cincinnati-reds-spring-training-non-roster-invites/
+
+**Trump Revokes John Bolton’s Secret Service Protection**\
+`President Joseph R. Biden Jr. had granted Bolton and another Trump national security adviser protection in 2021 after threats from Iran.`\
+https://nytimes.com/2025/01/21/us/politics/trump-john-bolton-security.html
+
 **Brentford close to signing Fiorentina defender Kayode**\
 `Brentford are close to signing Michael Kayode on loan with an option to buy from Italian side Fiorentina.`\
 https://nytimes.com/athletic/6078341/2025/01/21/brentford-kayode-fiorentina/

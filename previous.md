@@ -1,3 +1,11 @@
+**Teenager arrested on suspicion of sending online abuse to Havertz's wife**\
+`Police have arrested a teenager on suspicion of sending online abuse to Arsenal forward Kai Havertz&#8217;s pregnant wife.`\
+https://nytimes.com/athletic/6078588/2025/01/21/kai-havertz-wife-online-abuse/
+
+**Reds invite No. 2 overall pick Chase Burns to big-league camp**\
+`Burns, a right-hander out of Wake Forest, joins Jose Acuña and Zach Maxwell as non-roster pitchers invited to camp.`\
+https://nytimes.com/athletic/6079100/2025/01/21/cincinnati-reds-spring-training-non-roster-invites/
+
 **Brentford close to signing Fiorentina defender Kayode**\
 `Brentford are close to signing Michael Kayode on loan with an option to buy from Italian side Fiorentina.`\
 https://nytimes.com/athletic/6078341/2025/01/21/brentford-kayode-fiorentina/
@@ -22,19 +30,11 @@ https://nytimes.com/2025/01/21/business/auto-tariffs-trump-canada-mexico.html
 `USMNT midfielder Lennard Maloney has joined Mainz from Bundesliga rivals Heidenheim.`\
 https://nytimes.com/athletic/6078903/2025/01/21/usmnt-lennard-maloney-mainz/
 
-**Trump revokes John Bolton’s Secret Service protection.**\
+**Trump Revokes John Bolton’s Secret Service Protection**\
 `President Joseph R. Biden Jr. had granted Bolton and another Trump national security adviser protection in 2021 after threats from Iran.`\
-https://nytimes.com/live/2025/01/21/us/trump-executive-orders-news/trump-john-bolton-security
+https://nytimes.com/2025/01/21/us/politics/trump-john-bolton-security.html
 
 **Hegseth Ex-Sister-in-Law Tells Senators He Was ‘Abusive’ to Second Wife**\
 `A woman once married to the brother of Pete Hegseth, the defense secretary nominee, submitted a sworn statement to the Senate in a late-hour complication to his confirmation. His attorney denied her account.`\
 https://nytimes.com/2025/01/21/us/politics/hegseth-senators-affidavit.html
-
-**Wood close to signing new Forest contract**\
-`Chris Wood is close to following his Nottingham Forest team-mate Murillo by agreeing a new contract with the Premier League&#8217;s surprise Champions League contenders.`\
-https://nytimes.com/athletic/6077446/2025/01/21/chris-wood-contract-nottingham-forest/
-
-**The importance of the Giants adding veteran pitching depth**\
-`The Giants were burned by a lack of veteran starting pitching depth last season. Joey Lucchesi will help them avoid a repeat in 2025.`\
-https://nytimes.com/athletic/6078441/2025/01/21/sf-giants-starting-pitching-depth-joey-lucchesi/
 

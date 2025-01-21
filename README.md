@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 2 Lille 1 - Salah scores, Nunez impresses, Elliot the super-sub**\
+`Liverpool’s formidable form in the Champions League continued with a comfortable 2-1 victory over Lille.`\
+https://nytimes.com/athletic/6075370/2025/01/21/liverpool-2-lille-1-champions-league-matchday-7-recap/
+
+**CapCut, a Video-Editing App From ByteDance, Returns for U.S. Users**\
+`Other apps from the company behind TikTok, including CapCut and Lemon8, went dark this weekend before flickering back. The federal law banning TikTok also applies to them.`\
+https://nytimes.com/2025/01/21/technology/capcut-tiktok-ban-bytedance.html
+
 **Teenager arrested on suspicion of sending online abuse to Havertz's wife**\
 `Police have arrested a teenager on suspicion of sending online abuse to Arsenal forward Kai Havertz&#8217;s pregnant wife.`\
 https://nytimes.com/athletic/6078588/2025/01/21/kai-havertz-wife-online-abuse/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/21/business/auto-tariffs-trump-canada-mexico.html
 **USMNT midfielder Maloney joins Mainz from Heidenheim**\
 `USMNT midfielder Lennard Maloney has joined Mainz from Bundesliga rivals Heidenheim.`\
 https://nytimes.com/athletic/6078903/2025/01/21/usmnt-lennard-maloney-mainz/
-
-**Trump Revokes John Bolton’s Secret Service Protection**\
-`President Joseph R. Biden Jr. had granted Bolton and another Trump national security adviser protection in 2021 after threats from Iran.`\
-https://nytimes.com/2025/01/21/us/politics/trump-john-bolton-security.html
-
-**Hegseth Ex-Sister-in-Law Tells Senators He Was ‘Abusive’ to Second Wife**\
-`A woman once married to the brother of Pete Hegseth, the defense secretary nominee, submitted a sworn statement to the Senate in a late-hour complication to his confirmation. His attorney denied her account.`\
-https://nytimes.com/2025/01/21/us/politics/hegseth-senators-affidavit.html
 
