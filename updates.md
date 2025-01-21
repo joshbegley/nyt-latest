@@ -1,3 +1,11 @@
+**Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
+`Shortly after taking office Monday, the president issued the order to delay the app’s ban by at least 75 days. The law went into effect on Sunday.`\
+https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html
+
+**Trump singles out the I.R.S. work force in his hiring freeze executive order.**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-singles-out-the-irs-work-force-in-his-hiring-freeze-executive-order
+
 **How Every Senator Voted to Confirm Marco Rubio as Secretary of State**\
 `The Senate unanimously approved Mr. Rubio in the first vote on President Trump’s cabinet selections.`\
 https://nytimes.com/interactive/2025/01/20/us/politics/rubio-senate-confirmation-vote.html
