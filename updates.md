@@ -1,3 +1,11 @@
+**Panama Alerts United Nations to Trump’s Inaugural Remarks**\
+`On Monday, President Trump said of the Panama Canal, “We’re taking it back.” The letter from Panama cited articles of the U.N. charter that prohibit member states from using threats and force.`\
+https://nytimes.com/2025/01/21/us/panama-canal-trump-un.html
+
+**Commanders at Eagles: How to watch, pick, odds, with Philly opening as a 5-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/21/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **New York City Seeks Jolt for Midtown With Plan to Build 10,000 Homes**\
 `The plan, which rezones parts of the Manhattan neighborhood, aims to address the city’s housing shortage and the area’s beleaguered commercial sector.`\
 https://nytimes.com/2025/01/21/nyregion/midtown-manhattan-housing-crisis.html
