@@ -1,3 +1,7 @@
+**Why Chelsea are looking to add another winger**\
+`With Mykhailo Mudryk suspended, Chelsea have an imbalance in their wide department, with a right-footed winger on their wish list`\
+https://nytimes.com/athletic/6076610/2025/01/21/chelsea-transfers-winger-garnacho-gittens-madueke/
+
 **First Mario Lemina, now Matheus Cunha: Vitor Pereira's Wolves honeymoon period is over**\
 `Pereira has publicly criticised a second key player after Cunha's display against Chelsea. Welcome to Molineux, coach`\
 https://nytimes.com/athletic/6076664/2025/01/21/wolves-pereira-cunha-lemina-coach/
