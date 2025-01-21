@@ -1,3 +1,11 @@
+**Trump’s Second Inauguration in Pictures**\
+`A change of venue and a subdued swearing-in ceremony marked Donald J. Trump’s return to power.`\
+https://nytimes.com/card/2025/01/21/us/politics/trump-inauguration-photos
+
+**New Jersey’s Governor Asks Trump to Move Swiftly on Congestion Pricing**\
+`Gov. Phil Murphy wrote a letter to the president saying that the surcharge on drivers entering Manhattan’s busiest area was a “disaster” for commuters and residents in his state.`\
+https://nytimes.com/2025/01/20/nyregion/new-jersey-murphy-congestion-pricing-trump.html
+
 **Oilers' Connor McDavid suspended 3 games for cross-checking Conor Garland**\
 `McDavid received a match penalty in Saturday's game, meaning a suspension was all but inevitable.`\
 https://nytimes.com/athletic/6075192/2025/01/20/connor-mcdavid-suspended-oilers-canucks-conor-garland/
