@@ -1,3 +1,11 @@
+**Trump declared an emergency at the southern border. Here’s what that means.**\
+`Invoking presidential emergency powers gives the president the ability to go around Congress and unlock federal funding to crack down at the border.`\
+https://nytimes.com/2025/01/20/us/politics/trump-border-emergency-declaration-immigration.html
+
+**Trump Starts Immigration Crackdown, Enlisting the Military and Testing the Law**\
+`The president’s Day 1 actions included directives that fly in the face of legal limits on involving the military in domestic operations and the constitutional guarantee of birthright citizenship.`\
+https://nytimes.com/2025/01/20/us/politics/trump-starts-immigration-crackdown-enlisting-the-military-and-testing-the-law.html
+
 **Trump Signs Two Orders to Dismantle Equity Policies**\
 `The administration will take steps to roll back federal support for racial equity and protections for transgender people.`\
 https://nytimes.com/2025/01/20/us/politics/trump-transgender-race-education.html
