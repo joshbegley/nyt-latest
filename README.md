@@ -1,3 +1,7 @@
+**First Mario Lemina, now Matheus Cunha: Vitor Pereira's Wolves honeymoon period is over**\
+`Pereira has publicly criticised a second key player after Cunha's display against Chelsea. Welcome to Molineux, coach`\
+https://nytimes.com/athletic/6076664/2025/01/21/wolves-pereira-cunha-lemina-coach/
+
 **At Least 10 Are Killed in Fire at Ski Resort in Turkey**\
 `The blaze broke out overnight at a popular ski resort during a school break, when many families head to the slopes.`\
 https://nytimes.com/2025/01/21/world/asia/turkey-ski-resort-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/learning/word-of-the-day-cognizant.html
 **Trump’s Inaugural Address: 2017 vs. 2025**\
 `The Inaugural Address that President Trump gave on Monday was in some ways even darker than his “American carnage” inaugural address eight years ago. Michael D. Shear, a White House correspondent for The New York Times, explains.`\
 https://nytimes.com/video/us/politics/100000009938053/trumps-inaugural-address-compared.html
-
-**ESPN's Herbstreit, OSU alum, gets emotional on-air after Buckeyes title win**\
-`Herbstreit — a Centerville, Ohio, native — graduated from Ohio State after playing with the Buckeyes from 1989 to 1992.`\
-https://nytimes.com/athletic/6077036/2025/01/21/kirk-herbstreit-ohio-state-notre-dame-emotional-comments-cfp/
 
