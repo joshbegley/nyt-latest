@@ -1,3 +1,15 @@
+**Trump Demands Search for Political Bias in Justice Dept., Other Agencies**\
+`His ‘weaponization’ executive order begins with a list of misleading accusations against the Biden administration.`\
+https://nytimes.com/2025/01/20/us/politics/weaponization-government-executive-order-trump.html
+
+**Mentality vs. Avalanche earned Wild one of the season's more impressive wins: Smith**\
+`After a bad loss to Nashville on Saturday, the Wild bounced back with a smart, structured game plan against the rival Avalanche.`\
+https://nytimes.com/athletic/6076505/2025/01/20/minnesota-wild-mentality-defense-faber-avalanche-smith/
+
+**Trump Signs Executive Order in Attempt to Stall TikTok Ban**\
+`Shortly after taking office Monday, the president issued the order to delay the app’s ban for 75 days. The law went into effect on Sunday.`\
+https://nytimes.com/2025/01/20/technology/trump-tiktok-ban-delay-executive-order.html
+
 **A Day of Triumph, Jubilation and Gloating in Washington**\
 `There were Proud Boys, billionaires, stiletto heels, cowboy hats, the Village People, icy cold and happy Canadians at President Trump’s inaugural.`\
 https://nytimes.com/2025/01/20/us/politics/trump-inaugural.html
