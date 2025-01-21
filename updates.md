@@ -1,3 +1,7 @@
+**2025-26 college football national title odds: Ohio State opens as favorite to defend crown**\
+`Ohio State opened as the favorite to defend its national title, leading a field of contenders that mostly have questions at quarterback.`\
+https://nytimes.com/athletic/6064739/2025/01/20/2026-college-football-national-title-odds-ohio-state-texas-georgia/
+
 **College Football Playoff 2024 projections: How big of a favorite is Ohio State vs. Notre Dame?**\
 `Who will win the first 12-team College Football Playoff? Here's our model's predictions for Ohio State vs. Notre Dame.`\
 https://nytimes.com/athletic/5701128/2025/01/20/college-football-playoff-projections-odds/
