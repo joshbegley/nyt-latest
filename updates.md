@@ -1,3 +1,11 @@
+**How Trump could use the military in his immigration crackdown.**\
+`Longstanding U.S. laws limit the military’s ability to carry out operations on American soil, but President Trump could skirt those restrictions and use troops to help with deportations and border enforcement.`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-military-immigration-crackdown
+
+**In an instant, the Justice Department’s biggest investigation in history evaporated.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/in-an-instant-the-justice-departments-biggest-investigation-in-history-evaporated
+
 **How Trump Plans to Kill the Refugee System**\
 `President Trump, who has criticized refugee resettlement, moved on his first day in office to suspend the decades-old program to admit persecuted people to the United States.`\
 https://nytimes.com/2025/01/20/us/politics/trump-refugee-explainer.html

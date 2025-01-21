@@ -1,3 +1,11 @@
+**How Trump could use the military in his immigration crackdown.**\
+`Longstanding U.S. laws limit the military’s ability to carry out operations on American soil, but President Trump could skirt those restrictions and use troops to help with deportations and border enforcement.`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-military-immigration-crackdown
+
+**In an instant, the Justice Department’s biggest investigation in history evaporated.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/01/20/us/trump-executive-orders/in-an-instant-the-justice-departments-biggest-investigation-in-history-evaporated
+
 **How Trump Plans to Kill the Refugee System**\
 `President Trump, who has criticized refugee resettlement, moved on his first day in office to suspend the decades-old program to admit persecuted people to the United States.`\
 https://nytimes.com/2025/01/20/us/politics/trump-refugee-explainer.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-moves-to-und
 **The King of Gilt Kicks Off the Golden Age**\
 `A boast and a warning as the 45th president becomes the 47th.`\
 https://nytimes.com/2025/01/20/opinion/president-trump-inauguration.html
-
-**Coco Gauff out of the Australian Open after straight-sets defeat to Paula Badosa**\
-`The world No. 3 missed the chance to return to the semifinal stage after an inspired performance from the former world No. 2`\
-https://nytimes.com/athletic/6076711/2025/01/20/coco-gauff-australian-open-result-analysis-paula-badosa/
-
-**Paula Badosa imploded in her last Grand Slam quarterfinal. She doesn't make the same mistake twice**\
-`In her last Grand Slam quarterfinal, the Spaniard fell apart in New York. She took the lessons to Gauff in Melbourne, and won.`\
-https://nytimes.com/athletic/6074434/2025/01/20/paula-badosa-australian-open-coco-gauff/
 
