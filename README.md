@@ -1,3 +1,7 @@
+**New Orleans, a City That Has Seen It All, Gets Its First Snow in 15 Years**\
+`Many roadways were impassable, classes were canceled in local schools, and many businesses could not open as a winter storm essentially brought New Orleans to a standstill.`\
+https://nytimes.com/2025/01/21/weather/new-orleans-snow.html
+
 **Ruben Amorim breaking a TV adds to intrigue over how he deals with turbulence at Man Utd**\
 `Amorim's coaching career has been largely successful until he arrived at Old Trafford where he is attempting to deliver 'shocks'`\
 https://nytimes.com/athletic/6078568/2025/01/21/ruben-amorim-breaking-tv-character/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6078677/2025/01/21/paul-skenes-topps-debut-patch-ca
 `The defender is expected to become the first million-dollar transfer in women's soccer `\
 https://nytimes.com/athletic/6066148/2025/01/21/naomi-girma-chelsea-transfer-record-san-diego-wave/
 
-**Trump Moves Quickly to Install New Leaders at Key U.S. Attorney’s Offices**\
+**Trump Moves Quickly to Install New Leaders at Key U.S. Attorneys’ Offices**\
 `The interim appointments, two in New York and one in Washington, signaled a break from past practice that reflects the importance of frontline prosecutors to the administration’s plans.`\
 https://nytimes.com/2025/01/21/us/politics/trump-us-attorneys-justice-department.html
-
-**N.Y. Governor’s Budget Aims More at Pocketbook Issues Than at Trump**\
-`The $252 billion spending plan for New York addressed concerns about affordability, crime and the cost of living, but did little to anticipate President Trump’s policies.`\
-https://nytimes.com/2025/01/21/nyregion/hochul-state-budget-ny.html
 
