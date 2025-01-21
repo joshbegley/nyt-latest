@@ -1,3 +1,15 @@
+**Mbappe says his 'mentality changed' at Madrid after Athletic Club defeat**\
+`Kylian Mbappe has said his &#8220;mentality changed&#8221; at Real Madrid after December&#8217;s La Liga defeat against Athletic Club — a game in which he missed a penalty.`\
+https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
+
+**Online Violence Poses New Extremist Threat to U.K., Prime Minister Says**\
+`After a teenager admitted murdering three girls in the town of Southport, Keir Starmer said people were being radicalized into violence for its own sake and terrorism laws might need to change.`\
+https://nytimes.com/2025/01/21/world/europe/uk-terrorism-law-southport-attack-starmer.html
+
+**In Rare Criticism, Trump Says Putin Is ‘Destroying Russia’**\
+`President Vladimir V. Putin of Russia praised President Trump’s second inauguration, but the American leader did not return the compliment.`\
+https://nytimes.com/2025/01/21/us/politics/trump-putin-russia-ukraine.html
+
 **Chelsea fined for penalty decision protests in Ipswich loss**\
 `Chelsea have been fined £40,000 for surrounding referee John Brooks during December&#8217;s defeat to Ipswich Town.`\
 https://nytimes.com/athletic/6077702/2025/01/21/chelsea-ipswich-penalty-fine/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6077498/2025/01/21/worst-manchester-united-side-tra
 **Canadiens weekly notebook: The Lane Hutson bounce-back, 200-foot Alex Newhook and more**\
 `Also in this week's notebook, a gaffe early against the Rangers, St. Louis on the early season negativity, Suzuki on Slafkovský's progress.`\
 https://nytimes.com/athletic/6077278/2025/01/21/canadiens-lane-hutson-alex-newhook-rangers/
-
-**3 Small Fires Break Out in San Diego Area, Forcing Evacuations**\
-`The blazes ignited in San Diego County early Tuesday, keeping Southern California on edge as dangerous fire conditions persisted.`\
-https://nytimes.com/2025/01/21/us/california-fires-pala-lilac-riverview.html
-
-**Chiefs defense determined to stop the Bills this time after struggling in first meeting**\
-`The Chiefs’ defenders know penalties and poor open-field tackling cost them in the first meeting against the Bills this season.`\
-https://nytimes.com/athletic/6076554/2025/01/21/chiefs-defense-bills-afc-title-game/
-
-**Gleeman: Twins' front office has been in hibernation for 24 months since signing Carlos Correa**\
-`After signing Correa for $200 million and ending a two-decade playoff drought, the Twins have all but stopped making trades and signings.`\
-https://nytimes.com/athletic/6066869/2025/01/21/minnesota-twins-front-office-hibernation/
 
