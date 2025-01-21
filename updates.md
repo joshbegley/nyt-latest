@@ -1,3 +1,15 @@
+**Mbappe says his 'mentality changed' at Madrid after Athletic Club defeat**\
+`Kylian Mbappe has said his &#8220;mentality changed&#8221; at Real Madrid after December&#8217;s La Liga defeat against Athletic Club — a game in which he missed a penalty.`\
+https://nytimes.com/athletic/6077704/2025/01/21/kylian-mbappe-real-madrid-form/
+
+**Online Violence Poses New Extremist Threat to U.K., Prime Minister Says**\
+`After a teenager admitted murdering three girls in the town of Southport, Keir Starmer said people were being radicalized into violence for its own sake and terrorism laws might need to change.`\
+https://nytimes.com/2025/01/21/world/europe/uk-terrorism-law-southport-attack-starmer.html
+
+**In Rare Criticism, Trump Says Putin Is ‘Destroying Russia’**\
+`President Vladimir V. Putin of Russia praised President Trump’s second inauguration, but the American leader did not return the compliment.`\
+https://nytimes.com/2025/01/21/us/politics/trump-putin-russia-ukraine.html
+
 **Chelsea fined for penalty decision protests in Ipswich loss**\
 `Chelsea have been fined £40,000 for surrounding referee John Brooks during December&#8217;s defeat to Ipswich Town.`\
 https://nytimes.com/athletic/6077702/2025/01/21/chelsea-ipswich-penalty-fine/
