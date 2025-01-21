@@ -1,3 +1,11 @@
+**President Trump, You Can Remake the Middle East if You Dare**\
+`While the wages of success in the region will be enormous, the consequences of failure will be utterly hellish.`\
+https://nytimes.com/2025/01/21/opinion/trump-middle-east.html
+
+**Trump Dreams of a New American Empire**\
+`He is tapping into a vision of a United States that is forever growing, forever moving outward.`\
+https://nytimes.com/2025/01/21/opinion/trump-american-empire-panama.html
+
 **Ryan Donato's relentless attack mentality makes him an intriguing Blackhawks trade chip**\
 `Chicago's other players will likely generate more interest at the trade deadline, but Donato can beat them all for sheer effort.`\
 https://nytimes.com/athletic/6077068/2025/01/21/ryan-donato-chicago-blackhawks-trade-chip-hurricanes/
