@@ -1,3 +1,11 @@
+**Corrections: Jan. 21, 2025**\
+`Corrections that appeared in print on Tuesday, Jan. 21, 2025.`\
+https://nytimes.com/2025/01/20/pageoneplus/corrections-jan-21-2025.html
+
+**Paula Badosa imploded in her last Grand Slam quarterfinal. She doesn't make the same mistake twice**\
+`In her last Grand Slam quarterfinal, the Spaniard fell apart in New York. She took the lessons to Gauff in Melbourne, and won.`\
+https://nytimes.com/athletic/6074434/2025/01/20/paula-badosa-australian-open-coco-gauff/
+
 **Trump Returns, and So Does His TV Spectacle**\
 `The president’s second inauguration began with somber pageantry and ended with a reality-TV document signing.`\
 https://nytimes.com/2025/01/20/arts/television/trump-inauguration-rally.html
