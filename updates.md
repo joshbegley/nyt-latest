@@ -1,3 +1,7 @@
+**Ohio State, Day laugh off post-title cart crash video**\
+`Ohio State entered the postseason as the No. 8 seed in the bracket and beat Tennessee, Oregon, Texas and Notre Dame, all by double digits`\
+https://nytimes.com/athletic/6078146/2025/01/21/ohio-state-ryan-day-will-howard/
+
 **The Gulf Coast Storm Will Soon Blanket Southern Beaches With Snow**\
 `As the system moves around the coast, it should bring a wintry mix of snow, sleet and freezing rain to the Florida Panhandle.`\
 https://nytimes.com/2025/01/21/weather/snow-storm-forecast-georgia-florida.html

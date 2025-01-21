@@ -1,3 +1,19 @@
+**Spurs at NBA midpoint: Losing Gregg Popovich, highs and lows, but 'this is not easy'**\
+`“We know in a season it is not going to be a straight line,” Spurs star Victor Wembanyama said. “The long term is never being questioned."`\
+https://nytimes.com/athletic/6076929/2025/01/21/spurs-nba-midpoint-gregg-popovich/
+
+**3 of the Most Important Trump Executive Orders on Climate**\
+`President Trump’s wave of executive orders yesterday sent an undeniable signal to the world about the United States’ role in fighting climate change.`\
+https://nytimes.com/2025/01/21/climate/trump-climate-change-executive-orders.html
+
+**Judge Stops Justice Dept. From Releasing Report on Trump Documents Case**\
+`Judge Aileen M. Cannon said prosecutors should not be allowed to share the report outside the Justice Department, adding that it contained information that had not been made public.`\
+https://nytimes.com/2025/01/21/us/politics/trump-documents-jack-smith-report.html
+
+**Andres Garcia to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at Andres Garcia's move to Aston Villa from Levante.`\
+https://nytimes.com/athletic/6071446/2025/01/21/andres-garcia-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **The Gulf Coast Storm Will Soon Blanket Southern Beaches With Snow**\
 `As the system moves around the coast, it should bring a wintry mix of snow, sleet and freezing rain to the Florida Panhandle.`\
 https://nytimes.com/2025/01/21/weather/snow-storm-forecast-georgia-florida.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/21/us/politics/trump-tariffs-external-revenue-servic
 **Chicago shivers through an Arctic blast.**\
 `Temperatures in the Upper Midwest plunged below zero on Tuesday.`\
 https://nytimes.com/2025/01/21/weather/chicago-shivers-through-an-arctic-blast.html
-
-**The Ichiro Collection: 6 stories from our archives as Cooperstown beckons**\
-`Six stories that encapsulate Ichiro's impact on baseball as he prepares to be voted into the Hall of Fame`\
-https://nytimes.com/athletic/6078291/2025/01/21/ichiro-suzuki-hall-of-fame-archives/
-
-**Ohio State, Day laugh off post-title cart crash video**\
-`Ohio State entered the postseason as the No. 8 seed in the bracket and beat Tennessee, Oregon, Texas and Notre Dame, all by double digits`\
-https://nytimes.com/athletic/6078146/2025/01/21/ohio-state-ryan-day-will-howard/
-
-**How will the Champions League knockout play-offs work?**\
-`Much has changed in this season's Champions League, the knockout play-off phase being one major new introduction`\
-https://nytimes.com/athletic/6066943/2025/01/21/champions-league-knockout-play-off-phase-explained/
-
-**Trump Is at the Peak of His Power. The Question Is for How Long.**\
-`Republicans are defined today more by a single man than perhaps either party has been in decades, even as the clock starts ticking on Donald Trump’s tenure.`\
-https://nytimes.com/2025/01/21/us/politics/trump-power-era.html
 
