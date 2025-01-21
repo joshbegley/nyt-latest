@@ -1,7 +1,3 @@
-**'My biggest backer': Tom McVie remembered as caring voice who pushed others to aim higher**\
-`Ex-NHL coach — part of the Bruins organization for more than three decades.— was great hockey mind who "livened up every room he entered." `\
-https://nytimes.com/athletic/6077330/2025/01/21/tom-mcvie-boston-bruins-obit-column/
-
 **AP Top 25: Ohio State No. 1 ahead of Notre Dame, Oregon in final poll**\
 `Ohio State is No. 1 in the final AP Top 25 college football poll of the 2024 season, the sixth time its has finished atop the AP poll.`\
 https://nytimes.com/athletic/6078016/2025/01/21/ap-top-25-final-rankings-ohio-state/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5929227/2025/01/21/amazon-liverpool-documentary-klo
 **Here’s the latest on the start of the Trump administration.**\
 `By Noah Weiland, Catie Edmondson and Zolan Kanno-Youngs`\
 https://nytimes.com/live/2025/01/21/us/trump-president-news/heres-the-latest-on-the-start-of-the-trump-administration
+
+**New York Sirens trade Jill Saulnier to Boston Fleet for Taylor Girard**\
+`The trade looks to be a change of scenery for both players, who've seen limited minutes and stretches out of the lineup early this season.`\
+https://nytimes.com/athletic/6077986/2025/01/21/pwhl-trade-sirens-fleet-saulnier-girard/
 
