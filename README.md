@@ -11,7 +11,7 @@ https://nytimes.com/2025/01/21/climate/trump-climate-change-executive-orders.htm
 https://nytimes.com/2025/01/21/us/politics/trump-documents-jack-smith-report.html
 
 **Andres Garcia to Aston Villa: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we look at Andres Garcia's move to Aston Villa from Levante.`\
+`As part of The Athletic 500, we look at Andres Garcia's move to Aston Villa from Levante`\
 https://nytimes.com/athletic/6071446/2025/01/21/andres-garcia-to-aston-villa-the-athletic-500-transfer-ratings/
 
 **The Gulf Coast Storm Will Soon Blanket Southern Beaches With Snow**\
