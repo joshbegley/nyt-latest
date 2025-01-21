@@ -14,13 +14,13 @@ https://nytimes.com/video/us/politics/100000009938053/trumps-inaugural-address-c
 `Herbstreit — a Centerville, Ohio, native — graduated from Ohio State after playing with the Buckeyes from 1989 to 1992.`\
 https://nytimes.com/athletic/6077036/2025/01/21/kirk-herbstreit-ohio-state-notre-dame-emotional-comments-cfp/
 
-**Goran Ivanisevic quits as Elena Rybakina's coach after the suspended Stefano Vukov returns to team**\
-`The world No. 6 announced her partnership with Novak Djokovic's former coach just two months ago.`\
-https://nytimes.com/athletic/6031809/2025/01/21/goran-ivanisevic-quits-elena-rybakina-coach-stefano-vukov/
-
 **Joy, Anger and Little Remorse Outside D.C. Jail After Trump’s Jan. 6 Pardons**\
 `Dozens of people with ties to the Jan. 6, 2021, attack on the Capitol gathered outside the detention facility in Washington to celebrate Trump’s pardons of those convicted of crimes that day.`\
 https://nytimes.com/2025/01/20/us/politics/joy-anger-and-little-remorse-outside-dc-jail-after-trumps-jan-6-pardons.html
+
+**Goran Ivanisevic quits as Elena Rybakina's coach after the suspended Stefano Vukov returns to team**\
+`The world No. 6 announced her partnership with Novak Djokovic's former coach just two months ago.`\
+https://nytimes.com/athletic/6031809/2025/01/21/goran-ivanisevic-quits-elena-rybakina-coach-stefano-vukov/
 
 **President Trump, You Can Remake the Middle East if You Dare**\
 `While the wages of success in the region will be enormous, the consequences of failure will be utterly hellish.`\
