@@ -1,3 +1,15 @@
+**Record Snowfall Blankets New Orleans**\
+`A powerful winter storm tore across the Gulf Coast on Tuesday, bring record snowfall to parts of Louisiana and Texas.`\
+https://nytimes.com/video/weather/100000009941357/louisiana-texas-snow-storm.html
+
+**Change to Birthright Citizenship Would Affect Visa Holders, Too**\
+`President Trump’s public rhetoric has focused on undocumented immigrants, but the raft of new orders he signed would also affect those seeking to enter the U.S. legally.`\
+https://nytimes.com/2025/01/21/us/politics/birthright-citizenship-visa-holders.html
+
+**Five things we learned from the 2025 Baseball Hall of Fame election**\
+`Here are Five Things We Learned from the 2025 Baseball Hall of Fame election.`\
+https://nytimes.com/athletic/6078322/2025/01/21/baseball-hall-of-fame-election-2025-takeaways/
+
 **Trump Pardons Creator of Silk Road Drug Marketplace**\
 `Ross Ulbricht was serving a life sentence for creating a site in a shady corner of the internet to sell heroin, cocaine and other illicit substances.`\
 https://nytimes.com/2025/01/21/technology/trump-ross-ulbricht-silk-road.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/21/science/stingray-tail-antenna.html
 **Who Is Mariann Edgar Budde, the Bishop Who Made a Plea to Trump?**\
 `The first woman to serve as the spiritual leader of the Episcopal Diocese of Washington, Bishop Budde had a message for President Trump during his first term, too.`\
 https://nytimes.com/2025/01/21/us/politics/bishop-mariann-edgar-budde-trump.html
-
-**Ichiro, Sabathia and Wagner elected to Baseball Hall of Fame**\
-`The trio will join Dave Parker and Dick Allen as the Class of 2025 in Cooperstown this summer.`\
-https://nytimes.com/athletic/6079085/2025/01/21/baseball-hall-of-fame-election-ichiro-sabathia-wagner/
-
-**Trump’s Day 1 Crackdown on Immigration**\
-`President Trump’s executive actions on immigration were the leading edge of an effort to upend the United States’ role as a sanctuary for refugees and immigrants. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what Trump has done so far.`\
-https://nytimes.com/video/us/politics/100000009938392/trumps-day-1-crackdown-on-immigration.html
-
-**How a Florida mayor is managing snow. Hint: He’s learning.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-a-florida-mayor-is-managing-snow-hint-hes-learning
 

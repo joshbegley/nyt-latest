@@ -1,3 +1,15 @@
+**Record Snowfall Blankets New Orleans**\
+`A powerful winter storm tore across the Gulf Coast on Tuesday, bring record snowfall to parts of Louisiana and Texas.`\
+https://nytimes.com/video/weather/100000009941357/louisiana-texas-snow-storm.html
+
+**Change to Birthright Citizenship Would Affect Visa Holders, Too**\
+`President Trump’s public rhetoric has focused on undocumented immigrants, but the raft of new orders he signed would also affect those seeking to enter the U.S. legally.`\
+https://nytimes.com/2025/01/21/us/politics/birthright-citizenship-visa-holders.html
+
+**Five things we learned from the 2025 Baseball Hall of Fame election**\
+`Here are Five Things We Learned from the 2025 Baseball Hall of Fame election.`\
+https://nytimes.com/athletic/6078322/2025/01/21/baseball-hall-of-fame-election-2025-takeaways/
+
 **Trump Pardons Creator of Silk Road Drug Marketplace**\
 `Ross Ulbricht was serving a life sentence for creating a site in a shady corner of the internet to sell heroin, cocaine and other illicit substances.`\
 https://nytimes.com/2025/01/21/technology/trump-ross-ulbricht-silk-road.html
