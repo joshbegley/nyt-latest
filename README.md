@@ -1,5 +1,5 @@
-**Jeff Torborg, Catcher in Three No-Hitters, Dies at 83**\
-`He called every pitch of Sandy Koufax’s perfect game in 1965. After 10 seasons playing in the majors, he became a manager for the White Sox and the Mets.`\
+**Jeff Torborg, Catcher of Three No-Hitters and Manager, Dies at 83**\
+`He called every pitch of Sandy Koufax’s perfect game in 1965. After 10 seasons playing in the majors, he skippered the White Sox and the Mets.`\
 https://nytimes.com/2025/01/21/sports/baseball/jeff-torborg-dead.html
 
 **How Trump’s Department of Government Efficiency Will Work**\
