@@ -1,3 +1,11 @@
+**Wednesday Briefing: Trump Opponents Push Back**\
+`Plus, an interview with the Nobel laureate Han Kang.`\
+https://nytimes.com/2025/01/21/briefing/trump-opponents-west-bank-turkey-fire.html
+
+**Netflix Adds 19 Million Subscribers in Quarter**\
+`The company said those results were buoyed by programming in recent months that exceeded internal expectations.`\
+https://nytimes.com/2025/01/21/business/media/netflix-earnings.html
+
 **Enciso set to join Ipswich on loan**\
 `Brighton &amp; Hove Albion forward Julio Enciso is set to join Premier League rivals Ipswich Town on loan for the rest of the season.`\
 https://nytimes.com/athletic/6071609/2025/01/21/julio-enciso-ipswich/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/21/nyregion/adams-trump-tucker-carlson.html
 **Why is the South so cold right now?**\
 `A mass of air called the polar vortex has escaped the Arctic and plunged southward, causing freezing temperatures and snow as far away as Florida.`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/why-is-the-south-so-cold-right-now
-
-**Thousands of Flights Delayed or Canceled as Winter Storm Disrupts Travel in Southeast**\
-`Snow and cold temperatures hitting a broad swath of the region also disrupted travel via rails and roadways.`\
-https://nytimes.com/2025/01/21/weather/flight-cancellations-delays-winter-storm.html
-
-**‘A Betrayal, a Mockery’: Police Express Outrage Over Trump’s Jan. 6 Pardons**\
-`More than 150 officers from the Capitol Police and the D.C. police were injured when a pro-Trump mob stormed the Capitol four years ago.`\
-https://nytimes.com/2025/01/21/us/politics/jan-6-pardons-police.html
 

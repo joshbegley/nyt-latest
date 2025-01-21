@@ -1,3 +1,11 @@
+**Wednesday Briefing: Trump Opponents Push Back**\
+`Plus, an interview with the Nobel laureate Han Kang.`\
+https://nytimes.com/2025/01/21/briefing/trump-opponents-west-bank-turkey-fire.html
+
+**Netflix Adds 19 Million Subscribers in Quarter**\
+`The company said those results were buoyed by programming in recent months that exceeded internal expectations.`\
+https://nytimes.com/2025/01/21/business/media/netflix-earnings.html
+
 **Enciso set to join Ipswich on loan**\
 `Brighton &amp; Hove Albion forward Julio Enciso is set to join Premier League rivals Ipswich Town on loan for the rest of the season.`\
 https://nytimes.com/athletic/6071609/2025/01/21/julio-enciso-ipswich/
