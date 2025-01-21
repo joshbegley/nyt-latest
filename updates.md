@@ -1,3 +1,7 @@
+**The importance of the Giants adding veteran pitching depth**\
+`The Giants were burned by a lack of veteran starting pitching depth last season. Joey Lucchesi will help them avoid a repeat in 2025.`\
+https://nytimes.com/athletic/6078441/2025/01/21/sf-giants-starting-pitching-depth-joey-lucchesi/
+
 **Wednesday Briefing: Trump Opponents Push Back**\
 `Plus, an interview with the Nobel laureate Han Kang.`\
 https://nytimes.com/2025/01/21/briefing/trump-opponents-west-bank-turkey-fire.html
