@@ -1,40 +1,40 @@
-**A Rare Winter Storm Is Sweeping Through the Gulf Coast**\
-`“So many of you have never seen an event like this,” Louisiana’s state climatologist warned, with New Orleans facing possibly the most snow it has ever seen.`\
-https://nytimes.com/2025/01/21/weather/cold-snow-storm-houston-texas-louisiana.html
+**Vikings mailbag: Sam Darnold's trade value, Dallas Turner's future, the O-line and more**\
+`Would Minnesota get the most value by franchise-tagging its quarterback? Who actually makes the final decisions on draft night?`\
+https://nytimes.com/athletic/6075941/2025/01/21/vikings-mailbag-sam-darnold-dallas-turner-offensive-line/
 
-**Prospect of an Immigration Crackdown Leaves Some Chicago Neighborhoods Bracing**\
-`Activists are holding meetings to advise people about their legal rights and families have been drafting powers of attorney.`\
-https://nytimes.com/2025/01/21/us/chicago-trump-immigrants.html
+**Ben Johnson a good bet to get the most out of Bears QB Caleb Williams**\
+`The Johnson-Williams match might have drawn Johnson to Chicago, and it's what will give the Bears the best chance at success.`\
+https://nytimes.com/athletic/6076596/2025/01/21/bears-ben-johnson-caleb-williams/
 
-**U.K. Attacker Who Stabbed Girls at Dance Class Had ‘Sickening’ Interest in Violence**\
-`Axel Rudakubana, who killed three young girls in the Southport attack, appeared to have no particular ideology but was obsessed by death and genocide, investigators said.`\
-https://nytimes.com/2025/01/21/world/europe/uk-southport-axel-rudakubana-stabbing-violence.html
+**Mandel's Final Thoughts: The remarkable hero's journey of Ryan Day's Ohio State team**\
+`Ohio State's $20 million roster did exactly what it intended — and kept it interesting along the way. `\
+https://nytimes.com/athletic/6077345/2025/01/21/mandels-final-thoughts-ohio-state-national-championship-notre-dame/
 
-**Why a simple 3 x 5 notecard with two words explains Andy Reid's leadership style**\
-`Tight end Travis Kelce, a raw third-round pick who became a future Hall of Famer, is a peak example of Reid’s “Don’t Judge” philosophy.`\
-https://nytimes.com/athletic/6075302/2025/01/21/andy-reid-leadership-style-chiefs-eagles-notecard/
+**NHL midseason concern-o-meter: The Canucks' drama, Bruins woes and more**\
+`Midway through the season, there are a number of teams and players underperforming. These are the ones with the most cause for concern.`\
+https://nytimes.com/athletic/6075735/2025/01/21/nhl-concern-o-meter-canucks-bruins/
 
-**Ravens pack their bags, say goodbye to another season that ends prematurely**\
-`The feeling of regret and disappointment is palpable as Baltimore's season abruptly ends after building momentum for a Super Bowl run.`\
-https://nytimes.com/athletic/6076292/2025/01/21/ravens-locker-cleanout-nfl-playoffs/
+**Way too early Top 25 for the 2025 college football season**\
+`Only three SEC teams in the top 10. Ohio State outside of the top five. Florida ranked head of Alabama.`\
+https://nytimes.com/athletic/6075387/2025/01/21/college-football-top-25-rankings-predictions-2025-mandel/
 
-**Why Darius Garland has an excellent — and difficult — All-Star case to be made**\
-`The Cavs are rolling thanks in large part to Garland's play, but the East — and Cleveland's — backcourt is a crowded one.`\
-https://nytimes.com/athletic/6074212/2025/01/21/cavaliers-darius-garland-all-star-nba/
+**Pardons and Populism: Trump’s First Day Back in the White House**\
+`The message President Trump sent in his inaugural address, and the actions he took in his first hours.`\
+https://nytimes.com/2025/01/21/podcasts/the-daily/trump-inauguration-pardons.html
 
-**2025 NCAA Tournament Bracket Watch: Can the Big Ten produce a contender?**\
-`Illinois lost at Michigan State on Sunday but might have the highest ceiling of any team in the league. `\
-https://nytimes.com/athletic/6075196/2025/01/21/college-basketball-bracket-watch-big-ten-michigan-state-illinois/
+**Cubs Convention takeaways: Kyle Tucker's lineup impact, Seiya Suzuki at DH**\
+`Team president Jed Hoyer also discussed the fine balance of needing talent in order to trade for talent.`\
+https://nytimes.com/athletic/6076246/2025/01/21/chicago-cubs-convention-takeaways/
 
-**Aryna Sabalenka avoids Australian Open upset against Anastasia Pavlyuchenkova**\
-`MELBOURNE, Australia — Aryna Sabalenka, the world No.`\
-https://nytimes.com/athletic/6077472/2025/01/21/aryna-sabalenka-australian-open-result-anastasia-pavlyuchenkova/
+**Wordle Review No. 1,313**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 22, 2025.`\
+https://nytimes.com/2025/01/21/crosswords/wordle-review-1313.html
 
-**Pistons edge Rockets in Cade Cunningham and Jalen Green's latest rivalry matchup**\
-`There's seemingly no love lost between Cunningham and Green as they met again.`\
-https://nytimes.com/athletic/6076424/2025/01/21/cade-cunningham-jalen-green-pistons-rockets/
+**The Connections Companion No. 591**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 22, 2025.`\
+https://nytimes.com/2025/01/21/crosswords/connections-companion-591.html
 
-**Villa complete Garcia transfer from Levante**\
-`Aston Villa have completed the transfer of right-back Andres Garcia from Spanish side Levante.`\
-https://nytimes.com/athletic/6077489/2025/01/21/aston-villa-andres-garcia-transfer/
+**Man City complete Reis signing from Palmeiras**\
+`Manchester City have completed the signing of Vitor Reis from Palmeiras.`\
+https://nytimes.com/athletic/6069422/2025/01/21/vitor-reis-manchester-city-transfer-complete/
 
