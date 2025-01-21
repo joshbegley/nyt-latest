@@ -1,3 +1,7 @@
+**Enciso set to join Ipswich on loan**\
+`Brighton &amp; Hove Albion forward Julio Enciso is set to join Premier League rivals Ipswich Town on loan for the rest of the season.`\
+https://nytimes.com/athletic/6071609/2025/01/21/julio-enciso-ipswich/
+
 **San Diego FC signs USMNT midfielder Luca De La Torre through 2025 season**\
 `MLS club also announced that it has a purchase option that could keep the San Diego native at home beyond this season`\
 https://nytimes.com/athletic/6078893/2025/01/21/san-diego-fc-luca-de-la-torre-signed-loan/

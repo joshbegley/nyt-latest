@@ -1,3 +1,7 @@
+**Enciso set to join Ipswich on loan**\
+`Brighton &amp; Hove Albion forward Julio Enciso is set to join Premier League rivals Ipswich Town on loan for the rest of the season.`\
+https://nytimes.com/athletic/6071609/2025/01/21/julio-enciso-ipswich/
+
 **San Diego FC signs USMNT midfielder Luca De La Torre through 2025 season**\
 `MLS club also announced that it has a purchase option that could keep the San Diego native at home beyond this season`\
 https://nytimes.com/athletic/6078893/2025/01/21/san-diego-fc-luca-de-la-torre-signed-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/weather/flight-cancellations-delays-winter-storm.
 **‘A Betrayal, a Mockery’: Police Express Outrage Over Trump’s Jan. 6 Pardons**\
 `More than 150 officers from the Capitol Police and the D.C. police were injured when a pro-Trump mob stormed the Capitol four years ago.`\
 https://nytimes.com/2025/01/21/us/politics/jan-6-pardons-police.html
-
-**'We're trying': Flyers fans, Daniel Briere hears your pleas for a top-level center**\
-`Briere also is pushing back on the idea that goaltending is the Flyers' primary problem.`\
-https://nytimes.com/athletic/6078832/2025/01/21/flyers-trade-center-briere/
 
