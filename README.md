@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6076611/2025/01/21/jt-miller-canucks-prospects-trad
 
 **Trump Rescinds Biden-Era Sanctions on Israeli Settlers**\
 `The move came shortly after President Trump took office, and as Jewish extremists raided villages in the Israeli-occupied West Bank in protest against the cease-fire in Gaza.`\
-https://nytimes.com/2025/01/21/world/middleeast/21israel-trump-settlers-west-bank-gaza.html
+https://nytimes.com/2025/01/21/world/middleeast/israel-trump-settlers-west-bank-gaza.html
 
 **Where do Notre Dame, Marcus Freeman go after loss to Ohio State?**\
 `If Notre Dame ever lifts the CFP trophy under Freeman, Monday night must become part of the reason why.`\
