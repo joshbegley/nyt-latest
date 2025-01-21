@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: How big of a favorite is Ohio State vs. Notre Dame?**\
+`Who will win the first 12-team College Football Playoff? Here's our model's predictions for Ohio State vs. Notre Dame.`\
+https://nytimes.com/athletic/5701128/2025/01/20/college-football-playoff-projections-odds/
+
 **How Ohio State downed Notre Dame for first championship in 10 years**\
 `The longest college football season ever, starting in August and ending on Inauguration Day, became an Ohio State coronation.`\
 https://nytimes.com/athletic/6076854/2025/01/20/ohio-state-notre-dame-cfp-national-championship-result/
