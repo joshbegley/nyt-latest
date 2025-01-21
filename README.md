@@ -1,3 +1,11 @@
+**The Voices in His Head Would Not Stop. Then a Boy Was Stabbed to Death.**\
+`Waldo Mejia’s psyche had been showing cracks, a longtime friend said. Now he is charged with killing 14-year-old Caleb Rijos at random.`\
+https://nytimes.com/2025/01/21/nyregion/waldo-meija-caleb-rijos-stabbing-voices.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/21/crosswords/spelling-bee-forum.html
+
 **Manchester United transfers: Why Amorim wants Dorgu, Rashford's options and other possible deals**\
 `United are attempting to give coach Ruben Amorim the wing-backs he needs but it is proving a very tricky transfer window`\
 https://nytimes.com/athletic/6076243/2025/01/21/manchester-united-transfers-dorgu-rashford/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6077036/2025/01/21/kirk-herbstreit-ohio-state-notre
 **Joy, Anger and Little Remorse Outside D.C. Jail After Trump’s Jan. 6 Pardons**\
 `Dozens of people with ties to the Jan. 6, 2021, attack on the Capitol gathered outside the detention facility in Washington to celebrate Trump’s pardons of those convicted of crimes that day.`\
 https://nytimes.com/2025/01/20/us/politics/joy-anger-and-little-remorse-outside-dc-jail-after-trumps-jan-6-pardons.html
-
-**Goran Ivanisevic quits as Elena Rybakina's coach after the suspended Stefano Vukov returns to team**\
-`The world No. 6 announced her partnership with Novak Djokovic's former coach just two months ago.`\
-https://nytimes.com/athletic/6031809/2025/01/21/goran-ivanisevic-quits-elena-rybakina-coach-stefano-vukov/
-
-**President Trump, You Can Remake the Middle East if You Dare**\
-`While the wages of success in the region will be enormous, the consequences of failure will be utterly hellish.`\
-https://nytimes.com/2025/01/21/opinion/trump-middle-east.html
 
