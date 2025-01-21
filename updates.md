@@ -1,3 +1,11 @@
+**Trump Returns, and So Does His TV Spectacle**\
+`The president’s second inauguration began with somber pageantry and ended with a reality-TV document signing.`\
+https://nytimes.com/2025/01/20/arts/television/trump-inauguration-rally.html
+
+**Trump’s Opening Act of Contempt**\
+`To open his term with such an act of contempt toward the legal system is audacious, even for Mr. Trump.`\
+https://nytimes.com/2025/01/20/opinion/trump-jan-6-pardons.html
+
 **Trump moves to undermine Biden’s international tax deal.**\
 `By Andrew Duehren`\
 https://nytimes.com/live/2025/01/20/us/trump-executive-orders/trump-moves-to-undermine-bidens-international-tax-deal
