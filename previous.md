@@ -1,3 +1,15 @@
+**Was That a 900 or 1080 on the Halfpipe? X Games Can Now Ask A.I.**\
+`Snowboarding is the latest sport to embrace technology as a judge, at least partly, at this week’s X Games.`\
+https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html
+
+**Piled On Prints and an ‘Upstate Vibe’**\
+`Camouflage, animal, scenic — oh my!`\
+https://nytimes.com/2025/01/21/style/street-style-look-clashing-prints.html
+
+**Game, Set, Match: Novak Djokovic beats Carlos Alcaraz to reach Australian Open semifinals**\
+`The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets.`\
+https://nytimes.com/athletic/6077461/2025/01/21/carlos-alcaraz-novak-djokovic-australian-open-result-analysis/
+
 **CFP confidential: College coaches dish on Ohio State-Notre Dame title game decisions**\
 `The Athletic spoke to six FBS coaches to break down the key moments of Ohio State's championship win Monday night.`\
 https://nytimes.com/athletic/6077742/2025/01/21/college-football-playoff-championship-coaches-confidential/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000009939402/brush-fires-force-evacuations-in-sa
 **Fresh Off ‘Severance,’ John Turturro Tries Modeling**\
 `With a Turturro cameo and a very surreal set, Zegna’s latest presentation brought to mind the hit Apple TV show. Though, the clothes were far from corporate.`\
 https://nytimes.com/2025/01/21/style/john-turturro-zegna-severance.html
-
-**Can the Wizards build with their young corps despite a rough go?**\
-`Midway through the season, Wizards officials believe their youngsters playing extensive minutes is the best way for them to grow quickly`\
-https://nytimes.com/athletic/6077027/2025/01/21/washington-wizards-midseason-report-alex-sarr-jordan-poole/
-
-**The Billionaires’ Row at the Inauguration**\
-`The sight of Jeff Bezos, Mark Zuckerberg and others at President Trump’s swearing-in was another sign of how business is adapting to a new Washington.`\
-https://nytimes.com/2025/01/21/business/dealbook/billionaires-trump-zuckerberg-bezos-musk.html
-
-**Start of Prince Harry’s Trial Against Murdoch’s U.K. Tabloids Is Delayed**\
-`The case represents the last major legal reckoning for victims and perpetrators of the phone hacking scandal that tarnished Britain’s news media more than a decade ago.`\
-https://nytimes.com/2025/01/21/world/europe/prince-harry-trial-delay.html
 

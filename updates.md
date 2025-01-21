@@ -1,3 +1,15 @@
+**Was That a 900 or 1080 on the Halfpipe? X Games Can Now Ask A.I.**\
+`Snowboarding is the latest sport to embrace technology as a judge, at least partly, at this week’s X Games.`\
+https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html
+
+**Piled On Prints and an ‘Upstate Vibe’**\
+`Camouflage, animal, scenic — oh my!`\
+https://nytimes.com/2025/01/21/style/street-style-look-clashing-prints.html
+
+**Game, Set, Match: Novak Djokovic beats Carlos Alcaraz to reach Australian Open semifinals**\
+`The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets.`\
+https://nytimes.com/athletic/6077461/2025/01/21/carlos-alcaraz-novak-djokovic-australian-open-result-analysis/
+
 **CFP confidential: College coaches dish on Ohio State-Notre Dame title game decisions**\
 `The Athletic spoke to six FBS coaches to break down the key moments of Ohio State's championship win Monday night.`\
 https://nytimes.com/athletic/6077742/2025/01/21/college-football-playoff-championship-coaches-confidential/
