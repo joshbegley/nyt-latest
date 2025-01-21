@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6077330/2025/01/21/tom-mcvie-boston-bruins-obit-col
 
 **AP Top 25: Ohio State No. 1 ahead of Notre Dame, Oregon in final poll**\
 `Ohio State is No. 1 in the final AP Top 25 college football poll of the 2024 season, the sixth time its has finished atop the AP poll.`\
-https://nytimes.com/athletic/6078016/2025/01/21/ap-top-25-ohio-state-no-1-ahead-of-notre-dame-oregon-in-final-2024-college-football-poll/
+https://nytimes.com/athletic/6078016/2025/01/21/ap-top-25-final-rankings-ohio-state/
 
 **Saliba 'evolving well' after injury but will miss Dinamo Zagreb game**\
 `Mikel Arteta says that Arsenal defender William Saliba is &#8220;evolving well&#8221; after sustaining a muscular injury last week but will miss his side&#8217;s Champions League game against Dinamo Zagreb on Wednesday.`\
