@@ -1,3 +1,15 @@
+**CFP confidential: College coaches dish on Ohio State-Notre Dame title game decisions**\
+`The Athletic spoke to six FBS coaches to break down the key moments of Ohio State's championship win Monday night.`\
+https://nytimes.com/athletic/6077742/2025/01/21/college-football-playoff-championship-coaches-confidential/
+
+**Amorim damages dressing room TV in angry criticism of Man United players**\
+`Ruben Amorim caused damage to the big screen television in Manchester United’s dressing room during a furious critique of his players’ performance in the 3-1 defeat to Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/6077915/2025/01/21/manchester-united-ruben-amorim-dressing-room/
+
+**Israel’s Military Chief to Step Down Over Oct. 7 Attack**\
+`Lt. Gen. Herzi Halevi, who has commanded the Israeli military throughout 15 months of war in Gaza, said he was resigning over its failure to protect against the 2023 Hamas-led assault.`\
+https://nytimes.com/2025/01/21/world/middleeast/israel-military-chief-resignation.html
+
 **Facing Setbacks and Desertions at the Front, Ukraine Detains Commanders**\
 `Two generals and a colonel blamed for the loss of territory in eastern Ukraine to Russian forces last year have been held, the country’s security service said.`\
 https://nytimes.com/2025/01/21/world/europe/ukraine-commanders-detained.html
