@@ -1,3 +1,11 @@
+**Heat Today: After a slow NBA adjustment, 7-footer Kel'el Ware is raising Miami's ceiling**\
+`Kel'el Ware's adjustment to the Heat rotation has been gradual, but it's paying dividends.`\
+https://nytimes.com/athletic/6078105/2025/01/21/kelel-ware-bam-adebayo-tyler-herro-jimmy-butler-heat-nba/
+
+**Gulati and Garber due to testify as NASL v. MLS trial continues**\
+`After roughly 30 hours inside the courtroom last week, witness testimony has begun to unveil the inner world of American professional soccer`\
+https://nytimes.com/athletic/6076471/2025/01/21/nasl-mls-trial-gulati-garber/
+
 **Judges Begin Freeing Jan. 6 Defendants and Dismissing Their Cases**\
 `Two prominent far-right extremists with central roles in the Capitol attack, Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers militia, have been set free.`\
 https://nytimes.com/2025/01/21/us/politics/jan-6-defendants-freed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6078530/2025/01/21/ohio-state-quarterback-devin-bro
 **U.S. Wind Power Faces Huge Challenges After Trump Orders a Crackdown**\
 `In a sweeping order, President Trump halted federal approvals for new wind farms, in a move that could affect projects on land and in the ocean.`\
 https://nytimes.com/2025/01/21/climate/wind-power-executive-order-trump.html
-
-**18 States Sue to Stop Trump’s Birthright Citizenship Order**\
-`The lawsuit to block the president’s executive order is the first salvo in what is likely to be a long-running legal fight over immigration policy.`\
-https://nytimes.com/2025/01/21/us/trump-birthright-citizenship.html
-
-**Angel City FC signs Kennedy from Man City**\
-`Angel City FC has completed the signing of defender Alanna Kennedy from Manchester City.`\
-https://nytimes.com/athletic/6078499/2025/01/21/angel-city-fc-signs-alanna-kennedy/
 

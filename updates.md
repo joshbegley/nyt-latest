@@ -1,3 +1,11 @@
+**Heat Today: After a slow NBA adjustment, 7-footer Kel'el Ware is raising Miami's ceiling**\
+`Kel'el Ware's adjustment to the Heat rotation has been gradual, but it's paying dividends.`\
+https://nytimes.com/athletic/6078105/2025/01/21/kelel-ware-bam-adebayo-tyler-herro-jimmy-butler-heat-nba/
+
+**Gulati and Garber due to testify as NASL v. MLS trial continues**\
+`After roughly 30 hours inside the courtroom last week, witness testimony has begun to unveil the inner world of American professional soccer`\
+https://nytimes.com/athletic/6076471/2025/01/21/nasl-mls-trial-gulati-garber/
+
 **Judges Begin Freeing Jan. 6 Defendants and Dismissing Their Cases**\
 `Two prominent far-right extremists with central roles in the Capitol attack, Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers militia, have been set free.`\
 https://nytimes.com/2025/01/21/us/politics/jan-6-defendants-freed.html
