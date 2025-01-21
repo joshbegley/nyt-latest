@@ -1,3 +1,19 @@
+**The Briefing: Liverpool 2 Lille 1 - Salah scores, Nunez impresses, Elliott the supersub**\
+`Liverpool secured victory over Lille at Anfield as Arne Slot's men guarantee a top-eight finish in the Champions League group stage`\
+https://nytimes.com/athletic/6075370/2025/01/21/liverpool-2-lille-1-champions-league-matchday-7-recap/
+
+**Pitt’s Offers Fried Saltines and Country Captain in Red Hook**\
+`Periyali becomes Opto, Nerina opens a location in Brooklyn and more restaurant news.`\
+https://nytimes.com/2025/01/21/dining/pitts-red-hook-brooklyn.html
+
+**Winds relax in Southern California, but wildfire risk remains.**\
+`Bone-dry air, warm temperatures and another round of winds are all in the forecast this week for Los Angeles and Ventura Counties.`\
+https://nytimes.com/live/2025/01/21/us/los-angeles-wildfires-california/winds-relax-in-southern-california-but-wildfire-risk-remains
+
+**Automakers Brace for Impact of Trump Tariff Plan for Canada and Mexico**\
+`North American car companies have operated across borders for three decades. Tariffs would raise prices and cost jobs in the short run, analysts say.`\
+https://nytimes.com/2025/01/21/business/auto-tariffs-trump-canada-mexico.html
+
 **Vikings, HC Kevin O'Connell agree to multi-year extension**\
 `O'Connell, 39, lands a contract extension just over a week after a disappointing end to his successful third season at the helm`\
 https://nytimes.com/athletic/6079150/2025/01/21/vikings-head-coach-kevin-oconnell-extension/
