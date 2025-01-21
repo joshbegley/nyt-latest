@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Historic second-half stats; Richards trade minutiae; scouting Buzelis**\
+`Heading into the season's second half, it's amazing how many season-level records could be in play. Plus, Nick Richards trade minutiae.`\
+https://nytimes.com/athletic/6076918/2025/01/21/historic-nba-records-to-watch-nick-richards-matas-buzelis-jeremiah-fears/
+
 **Amazon Liverpool documentary to focus on Klopp's entire tenure**\
 `The Liverpool FC documentary featuring Jurgen Klopp’s time as manager will be available to watch on Amazon next month.`\
 https://nytimes.com/athletic/5929227/2025/01/21/amazon-liverpool-documentary-klopp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/sports/skiing/x-games-ai-judging.html
 **Piled On Prints and an ‘Upstate Vibe’**\
 `Camouflage, animal, scenic — oh my!`\
 https://nytimes.com/2025/01/21/style/street-style-look-clashing-prints.html
-
-**Game, Set, Match: Novak Djokovic beats Carlos Alcaraz to reach Australian Open semifinals**\
-`The 10-time Australian Open champion reconfigured his tactics and dragged Alcaraz out of his comfort zone to win in four sets`\
-https://nytimes.com/athletic/6077461/2025/01/21/carlos-alcaraz-novak-djokovic-australian-open-result-analysis/
 
