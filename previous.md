@@ -1,3 +1,19 @@
+**Which top prospects could the Canucks target in a J.T. Miller trade?**\
+`The Canucks should be able to acquire at least one good prospect as part of a package for Miller.`\
+https://nytimes.com/athletic/6076611/2025/01/21/jt-miller-canucks-prospects-trade/
+
+**Trump Rescinds Biden-Era Sanctions on Israeli Settlers**\
+`The move came shortly after President Trump took office, and as Jewish extremists raided villages in the Israeli-occupied West Bank in protest against the cease-fire in Gaza.`\
+https://nytimes.com/2025/01/21/world/middleeast/21israel-trump-settlers-west-bank-gaza.html
+
+**Where do Notre Dame, Marcus Freeman go after loss to Ohio State?**\
+`If Notre Dame ever lifts the CFP trophy under Freeman, Monday night must become part of the reason why.`\
+https://nytimes.com/athletic/6077282/2025/01/21/notre-dame-national-championship-game-loss-marcus-freeman/
+
+**The unsung quarterback who tied Ohio State's national title run together**\
+`Will Howard was surrounded by higher-profile players at Ohio State, but in the end he tied the Buckeyes' national title run together.`\
+https://nytimes.com/athletic/6077333/2025/01/21/will-howard-ohio-state-national-championship/
+
 **Cowboys Today: Dallas didn't play, but was hard to miss in the divisional round**\
 `From Dan Quinn and Kellen Moore to Dorance Armstrong and Neville Gallimore, former Cowboys were all over the scene.`\
 https://nytimes.com/athletic/6075817/2025/01/21/cowboys-today-divisional-round-reminders-commanders-eagles/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6075735/2025/01/21/nhl-concern-o-meter-canucks-brui
 **Way too early Top 25 for the 2025 college football season**\
 `Only three SEC teams in the top 10. Ohio State outside of the top five. Florida ranked head of Alabama.`\
 https://nytimes.com/athletic/6075387/2025/01/21/college-football-top-25-rankings-predictions-2025-mandel/
-
-**Pardons and Populism: Trump’s First Day Back in the White House**\
-`The message President Trump sent in his inaugural address, and the actions he took in his first hours.`\
-https://nytimes.com/2025/01/21/podcasts/the-daily/trump-inauguration-pardons.html
-
-**Cubs Convention takeaways: Kyle Tucker's lineup impact, Seiya Suzuki at DH**\
-`Team president Jed Hoyer also discussed the fine balance of needing talent in order to trade for talent.`\
-https://nytimes.com/athletic/6076246/2025/01/21/chicago-cubs-convention-takeaways/
-
-**Wordle Review No. 1,313**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 22, 2025.`\
-https://nytimes.com/2025/01/21/crosswords/wordle-review-1313.html
-
-**The Connections Companion No. 591**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 22, 2025.`\
-https://nytimes.com/2025/01/21/crosswords/connections-companion-591.html
 

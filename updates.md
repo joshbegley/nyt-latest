@@ -1,3 +1,19 @@
+**Which top prospects could the Canucks target in a J.T. Miller trade?**\
+`The Canucks should be able to acquire at least one good prospect as part of a package for Miller.`\
+https://nytimes.com/athletic/6076611/2025/01/21/jt-miller-canucks-prospects-trade/
+
+**Trump Rescinds Biden-Era Sanctions on Israeli Settlers**\
+`The move came shortly after President Trump took office, and as Jewish extremists raided villages in the Israeli-occupied West Bank in protest against the cease-fire in Gaza.`\
+https://nytimes.com/2025/01/21/world/middleeast/21israel-trump-settlers-west-bank-gaza.html
+
+**Where do Notre Dame, Marcus Freeman go after loss to Ohio State?**\
+`If Notre Dame ever lifts the CFP trophy under Freeman, Monday night must become part of the reason why.`\
+https://nytimes.com/athletic/6077282/2025/01/21/notre-dame-national-championship-game-loss-marcus-freeman/
+
+**The unsung quarterback who tied Ohio State's national title run together**\
+`Will Howard was surrounded by higher-profile players at Ohio State, but in the end he tied the Buckeyes' national title run together.`\
+https://nytimes.com/athletic/6077333/2025/01/21/will-howard-ohio-state-national-championship/
+
 **Cowboys Today: Dallas didn't play, but was hard to miss in the divisional round**\
 `From Dan Quinn and Kellen Moore to Dorance Armstrong and Neville Gallimore, former Cowboys were all over the scene.`\
 https://nytimes.com/athletic/6075817/2025/01/21/cowboys-today-divisional-round-reminders-commanders-eagles/
