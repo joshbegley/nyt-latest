@@ -1,3 +1,23 @@
+**Dortmund part ways with head coach Sahin following Bologna defeat**\
+`Borussia Dortmund have parted ways with head coach Nuri Sahin.`\
+https://nytimes.com/athletic/6066088/2025/01/22/borussia-dortmund-sahin-future/
+
+**Working With Your Hands**\
+`When was the last time you made something?`\
+https://nytimes.com/2025/01/22/learning/working-with-your-hands.html
+
+**At a Deluxe Dining Room on the 100th Floor, a Chef Toils in Obscurity**\
+`In New York, private restaurants in luxury towers are a popular amenity. The public cannot eat there, and residents only drop in occasionally.`\
+https://nytimes.com/2025/01/22/nyregion/condo-tower-restaurants.html
+
+**Bee-Dazzler**\
+`Fasten your seatbelts, solvers — it’s going to be a bumpy ride.`\
+https://nytimes.com/2025/01/22/crosswords/daily-puzzle-2025-01-23.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/22/crosswords/spelling-bee-forum.html
+
 **Simeone vs Alonso: A meeting of coaching minds - and one that could happen again soon**\
 `Xabi Alonso's Bayer Leverkusen travelled to face Diego Simeone's Atletico Madrid on Tuesday night`\
 https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atletico-leverkusen/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-mona
 **Jarell Quansah is back on track after a false start under Arne Slot**\
 `The Liverpool manager utilised his squad against Lille and the likes of Quansah, Harvey Elliott and Federico Chiesa all impressed`\
 https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
-
-**Once-promising Canucks struggle against lowly Sabres, give up late lead: 3 takeaways**\
-`Vancouver surrendered two third-period goals by JJ Peterka and a poor Buffalo team playing in the second leg of a back-to-back.`\
-https://nytimes.com/athletic/6079872/2025/01/22/canucks-lose-to-sabres-takeaways/
-
-**You Asked for This Cease-Fire, Mr. President. Make Sure It Holds.**\
-`The fate of the Israel-Hamas agreement will require huge effort.`\
-https://nytimes.com/2025/01/22/opinion/trump-gaza-cease-fire.html
-
-**U.S. Orders Federal D.E.I. Efforts to Shut Down by Wednesday Night**\
-`Staff members overseeing diversity, equity and inclusion efforts were to be placed on paid administrative leave by 5 p.m. Wednesday.`\
-https://nytimes.com/2025/01/22/us/politics/trump-dei-diversity-officials-orders.html
-
-**How Malick Yalcouye is readying himself for Brighton - in the Champions League**\
-`The 19-year-old midfielder is cutting his teeth in Europe's top club competition during his loan with Sturm Graz`\
-https://nytimes.com/athletic/6052145/2025/01/22/malick-yalcouye-brighton-champions-league/
-
-**How Moyes is trying to fix Everton's attack: Tactical tweaks, support for Calvert-Lewin, new signings?**\
-`It is early days, but Moyes’ Everton look like they are in a much better position to remedy their attacking woes`\
-https://nytimes.com/athletic/6077568/2025/01/22/everton-david-moyes-attack-calvert-lewin-lindstrom/
 

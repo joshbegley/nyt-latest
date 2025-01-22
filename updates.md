@@ -1,3 +1,23 @@
+**Dortmund part ways with head coach Sahin following Bologna defeat**\
+`Borussia Dortmund have parted ways with head coach Nuri Sahin.`\
+https://nytimes.com/athletic/6066088/2025/01/22/borussia-dortmund-sahin-future/
+
+**Working With Your Hands**\
+`When was the last time you made something?`\
+https://nytimes.com/2025/01/22/learning/working-with-your-hands.html
+
+**At a Deluxe Dining Room on the 100th Floor, a Chef Toils in Obscurity**\
+`In New York, private restaurants in luxury towers are a popular amenity. The public cannot eat there, and residents only drop in occasionally.`\
+https://nytimes.com/2025/01/22/nyregion/condo-tower-restaurants.html
+
+**Bee-Dazzler**\
+`Fasten your seatbelts, solvers — it’s going to be a bumpy ride.`\
+https://nytimes.com/2025/01/22/crosswords/daily-puzzle-2025-01-23.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/22/crosswords/spelling-bee-forum.html
+
 **Simeone vs Alonso: A meeting of coaching minds - and one that could happen again soon**\
 `Xabi Alonso's Bayer Leverkusen travelled to face Diego Simeone's Atletico Madrid on Tuesday night`\
 https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atletico-leverkusen/
