@@ -1,3 +1,7 @@
+**Here Is How Trump Moved to Seal the Southern Border on Day 1**\
+`President Trump issued a raft of executive orders that effectively block migrants from entering the United States and applying for asylum, closing off major legal channels for immigration.`\
+https://nytimes.com/2025/01/22/us/politics/trump-border-asylum-explainer.html
+
 **The lingering cold causes additional disruptions to air and road travel.**\
 `By Christine Chung`\
 https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/the-lingering-cold-causes-additional-disruptions-to-air-and-road-travel
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/white-house-website-spanish.html
 **Heat Today: To climb East standings, Heat must start taking care of schedule's soft spots**\
 `The Heat's habits of blowing leads and playing down to weaker opponents could hurt them in April.`\
 https://nytimes.com/athletic/6080661/2025/01/22/erik-spoelstra-bam-adebayo-jimmy-butler-heat-nba/
-
-**When Will the South Warm Up Again? Not for a While.**\
-`Although the last remaining precipitation was expected to wind down Wednesday, Thursday’s temperatures in some areas of the South were not likely to rise above freezing.`\
-https://nytimes.com/2025/01/22/weather/south-warm-weather-forecast.html
 
