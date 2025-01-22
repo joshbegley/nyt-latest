@@ -1,3 +1,7 @@
+**U.S. Orders Federal D.E.I. Efforts to Shut Down by Wednesday Night**\
+`Staff members overseeing diversity, equity and inclusion efforts were to be placed on paid administrative leave by 5 p.m. Wednesday.`\
+https://nytimes.com/2025/01/22/us/politics/trump-dei-diversity-officials-orders.html
+
 **Trump Administration Orders D.E.I. Officials Be Put on Leave**\
 `Staff members tasked with overseeing diversity, equity and inclusion efforts were to be placed on paid administrative leave by 5 p.m. Wednesday.`\
 https://nytimes.com/2025/01/22/us/politics/trump-dei-diversity-officials-orders.html
