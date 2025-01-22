@@ -1,3 +1,7 @@
+**Simeone vs Alonso: A meeting of coaching minds - and one that could happen again soon**\
+`Alonso's Bayer Leverkusen visited Simeone's Atletico Madrid on Tuesday night - The Athletic was watching both men`\
+https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atletico-leverkusen/
+
 **Late Night Tries to Keep Up With Trump’s Executive Orders**\
 `“If you could put anything in front of him yesterday, he would have signed it,” said Ronny Chieng. “Melania, now’s your chance to update the prenup.”`\
 https://nytimes.com/2025/01/22/arts/television/late-night-trump-executive-orders.html
