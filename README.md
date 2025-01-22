@@ -1,3 +1,7 @@
+**Word of the Day: dismantle**\
+`This word has appeared in 375 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html
+
 **The three passes that summed up Aston Villa's bad night in Monaco**\
 `Aston Villa fell to a difficult defeat against Monaco in the Champions League`\
 https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-monaco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075002/2025/01/22/has-mikel-arteta-finally-reached
 **Do Chelsea have a problem to resolve in midfield?**\
 `Chelsea's limited options in midfield against Wolves on Monday night highlighted a growing issue for Enzo Maresca`\
 https://nytimes.com/athletic/6078208/2025/01/22/chelsea-midfield-options-lavia/
-
-**Farke wants a quiet transfer window - but do Leeds have the depth to win promotion?**\
-`It’s going to take Premier League quality to improve on what Leeds have. It’s why there has been a reluctance to add for the sake of it`\
-https://nytimes.com/athletic/6077990/2025/01/22/leeds-squad-depth-analysis-transfer/
 
