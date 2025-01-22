@@ -1,3 +1,7 @@
+**Trump Expands Quick Deportations Across the U.S.**\
+`President Trump’s first administration tried to implement a similarly sped-up process for removing unauthorized immigrants, but those efforts were hampered by federal courts.`\
+https://nytimes.com/live/2025/01/21/us/trump-executive-orders-news/trump-deportations-immigration
+
 **Submit questions for Jayson Stark's Baseball Hall of Fame mailbag**\
 `Got a question about this year's Hall of Fame vote, next year’s election or the HOF outlook in the years after that? Ask away. `\
 https://nytimes.com/athletic/6079558/2025/01/21/hall-of-fame-mailbag-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000009941357/louisiana-texas-snow-storm.htm
 **Change to Birthright Citizenship Would Affect Visa Holders, Too**\
 `President Trump’s public rhetoric has focused on undocumented immigrants, but the raft of new orders he signed would also affect those seeking to enter the U.S. legally.`\
 https://nytimes.com/2025/01/21/us/politics/birthright-citizenship-visa-holders.html
-
-**Five things we learned from the 2025 Baseball Hall of Fame election**\
-`Takeaways from an election in which Ichiro, CC Sabathia and Billy Wagner punched their tickets to Cooperstown. `\
-https://nytimes.com/athletic/6078322/2025/01/21/baseball-hall-of-fame-election-2025-takeaways/
 
