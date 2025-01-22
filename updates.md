@@ -1,3 +1,19 @@
+**Legendary Nebraska DC Charlie McBride honored 30 years after he tried — and failed — to retire**\
+`McBride was the DC at Nebraska for 18 seasons and led some of the Huskers' most successful defenses.`\
+https://nytimes.com/athletic/6081545/2025/01/22/charlie-mcbride-nebraska-defensive-coordinator-legacy-award/
+
+**Kennedy Would Keep Stake in H.P.V. Vaccine Suit if Confirmed**\
+`Robert F. Kennedy Jr., President Trump’s nominee to be health secretary, would have oversight power over the vaccine’s maker, Merck, if confirmed.`\
+https://nytimes.com/2025/01/22/us/politics/rfk-hpv-vaccine-merck.html
+
+**Senate Democrats Block G.O.P. Effort to Criminalize Some Abortion Providers**\
+`The bill would require that infants born alive after an attempted abortion receive the same protection as any newborn baby, and threaten medical providers with prison time for failing to resuscitate them.`\
+https://nytimes.com/2025/01/22/us/politics/senate-abortion-vote-republicans.html
+
+**Reddit Users Boycott X Links After Elon Musk’s Gesture at Inaugural Event**\
+`A boycott of links to Mr. Musk’s social media platform spread on Reddit this week, after he made a gesture that some likened to a Nazi salute. Others worried about censorship.`\
+https://nytimes.com/2025/01/22/business/reddit-x-boycott-elon-musk.html
+
 **Jaguars, GM Trent Baalke parting ways amid coaching search**\
 `Baalke initially served as director of player personnel for the Jaguars in 2020 before being being promoted to GM in 2021.`\
 https://nytimes.com/athletic/6081568/2025/01/22/jaguars-trent-baalke-parting-ways/

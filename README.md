@@ -1,3 +1,11 @@
+**Here’s what to know.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/01/22/us/los-angeles-wildfires-california/heres-what-to-know
+
+**Teen Opens Fire Inside Nashville High School Cafeteria, Police Say**\
+`At a news conference, an official said that a 17-year-old male student shot two other students and then himself.`\
+https://nytimes.com/video/us/100000009943043/nashville-antioch-school-shooting.html
+
 **Legendary Nebraska DC Charlie McBride honored 30 years after he tried — and failed — to retire**\
 `McBride was the DC at Nebraska for 18 seasons and led some of the Huskers' most successful defenses.`\
 https://nytimes.com/athletic/6081545/2025/01/22/charlie-mcbride-nebraska-defensive-coordinator-legacy-award/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/business/energy-environment/south-carolina-nuclea
 **Jets centre Adam Lowry out week-to-week with upper-body injury**\
 `Adam Lowry is Winnipeg's de facto No. 2 centre, making his extended absence a troubling item for the top team in the West.`\
 https://nytimes.com/athletic/6081410/2025/01/22/winnipeg-jets-adam-lowry-injury/
-
-**Super Bowl MVP odds: Could Saquon Barkley vault Patrick Mahomes or Josh Allen?**\
-`Barkley is third in the odds to win Super Bowl MVP. How likely is a win for a running back or pass catcher over quarterbacks?`\
-https://nytimes.com/athletic/6081421/2025/01/22/super-bowl-mvp-odds-saquon-barkley-patrick-mahomes-josh-allen/
-
-**An Ancient Headless Statue Is Found Amid Trash in Greece**\
-`The police said a man handed over a statue that he said he found in a plastic bag among trash bins.`\
-https://nytimes.com/2025/01/22/world/europe/ancient-greece-statue-trash-thessaloniki.html
 
