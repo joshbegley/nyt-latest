@@ -1,3 +1,7 @@
+**Trump Is Said to Push for Early Reopening of North American Trade Deal**\
+`The president wants to begin renegotiating a U.S. trade deal with Canada and Mexico earlier than a scheduled 2026 review, people familiar with his thinking said.`\
+https://nytimes.com/2025/01/21/business/economy/trump-usmca-trade-deal-mexico-canada-autos.html
+
 **Matt Rempe Mania returns as Igor Shesterkin gets 'feisty': 4 takeaways vs. Senators**\
 `Team togetherness was on full display as New York beat Ottawa and improved to 7-1-3 in January.`\
 https://nytimes.com/athletic/6079737/2025/01/21/rangers-senators-matt-rempe-igor-shesterkin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6079498/2025/01/21/ichiro-sabathia-wagner-hof-cards
 **How to be a tennis pigeon: The worst matchups and how players prepare for them**\
 `A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
 https://nytimes.com/athletic/6077048/2025/01/21/worst-tennis-head-to-head-matchup-pigeon/
-
-**NHL rumblings: Latest on Canucks-Miller, Blue Jackets-Provorov, Penguins' plans, Oilers' needs and more**\
-`Add the Hurricanes and Devils to the list of a handful of teams that have had talks with the Canucks about a J.T. Miller trade.`\
-https://nytimes.com/athletic/6079538/2025/01/21/nhl-trade-rumblings-jt-miller-ivan-provorov/
 
