@@ -1,3 +1,31 @@
+**Oilers' Connor McDavid says 3-game suspension was 'little bit harsh'**\
+`McDavid was speaking to the media for the first time since he struck Garland in the head in the dying seconds of Saturday’s 3-2 loss.`\
+https://nytimes.com/athletic/6081517/2025/01/22/oilers-connor-mcdavid-comments-suspension/
+
+**Why Deportations Were Higher Under Biden Than in Trump’s First Term**\
+`A record number of border crossers and the continuation of a Trump-era policy were factors.`\
+https://nytimes.com/2025/01/22/us/trump-biden-immigrants-deportations.html
+
+**Brazil in discussions with NFL about long-term contract for international games**\
+`A long-term contract could last as many as six years with as many as two games per season.`\
+https://nytimes.com/athletic/6081655/2025/01/22/brazil-nfl-long-term-contract-international-games/
+
+**Heat plan to suspend Jimmy Butler for 2 games after missing flight**\
+`The latest adds to the ongoing dispute between Butler and the Heat front office that seems increasingly likely to end with a trade.`\
+https://nytimes.com/athletic/6081930/2025/01/22/jimmy-butler-heat-suspended-missed-team-flight/
+
+**The Justice Dept. Asserted Its Immigration Authority**\
+`Also, a storm dumped snow on the Carolinas. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/01/22/briefing/justice-department-immigration-memo-snow-south.html
+
+**Want to Look Like Chappell Roan? She Tells You How.**\
+`In a new series, the pop star discusses the mechanics of modern fame, including her instructions to fans of what to wear to her concerts.`\
+https://nytimes.com/2025/01/22/style/chappell-roan-faces-of-music-hulu.html
+
+**Trump Sees National Emergencies Where Experts Say There Are None**\
+`Mr. Trump had the authority to declare two emergencies. But they also happened to advance his favorite targets: more fossil fuels and less immigration.`\
+https://nytimes.com/2025/01/22/climate/trump-national-emergencies.html
+
 **Authenticated snow from Eagles-Rams playoff game sells out**\
 `An unusual collectible from a memorable game`\
 https://nytimes.com/athletic/6081888/2025/01/22/snow-eagles-rams-nfl-playoffs/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6081845/2025/01/22/ben-johnson-ready-to-build-bears
 **Congress Clears Measure to Deport Immigrants Accused of Crimes**\
 `Final approval by the House sent the legislation, which requires the detention and deportation of unauthorized migrants charged with crimes, to President Trump’s desk.`\
 https://nytimes.com/2025/01/22/us/politics/laken-riley-act.html
-
-**Wild excited to get Spurgeon and Kaprizov back: 'We all miss his smile, that beautiful smile'**\
-`After missing nine and 12 games respectively, two of the Wild's key players are set to return against Utah.`\
-https://nytimes.com/athletic/6081833/2025/01/22/wild-kirill-kaprizov-jared-spurgeon-injury-return-zuccarello/
-
-**Nearly 50 Years After Honolulu Teen’s Killing, Police Arrest an Ex-Schoolmate**\
-`DNA evidence helped lead long-stymied detectives to a suspect in the murder of Dawn Momohara, 16, who was strangled and found dead at her high school.`\
-https://nytimes.com/2025/01/22/us/dawn-momohara-hawaii-murder-arrest.html
-
-**Why Is Israel Targeting Jenin, in the West Bank?**\
-`As Israel withdraws some of its troops from Gaza during a cease-fire there, it has turned attention to another Palestinian territory — in particular a city with a history of militant activity.`\
-https://nytimes.com/2025/01/22/world/middleeast/why-israel-targeting-jenin.html
-
-**José Jiménez Dies at 76; Turned a Gang Into a Voice for Puerto Ricans**\
-`He retooled the Young Lords into a militant advocacy and service organization, modeled after the Black Panthers. Based in Chicago, it had chapters nationwide.`\
-https://nytimes.com/2025/01/22/us/jose-jimenez-dead.html
-
-**College Football Playoff championship averages 22.1 million viewers, down from previous year**\
-`Monday’s championship between Notre Dame and Ohio State peaked with more than 26 million viewers.`\
-https://nytimes.com/athletic/6081817/2025/01/22/college-football-playoff-championship-viewership-espn/
-
-**Mavericks' Dereck Lively II out at least 1 month with ankle injury**\
-`The Mavericks have been plagued by injury issues since Christmas and will miss Lively’s lob-finishing ability and rim protection.`\
-https://nytimes.com/athletic/6081265/2025/01/22/dereck-lively-out-ankle-injury-mavericks/
-
-**Here’s Where It Snowed the Most Across the South**\
-`The figures are unofficial because National Weather Service officials must assess totals, but Florida appears to have broken a state snow record.`\
-https://nytimes.com/2025/01/22/weather/winter-storm-records-florida.html
 
