@@ -1,3 +1,11 @@
+**Amazon Closes Its Operations in Quebec, Laying Off 1,700 Workers**\
+`Unions had gained a foothold in one of the company’s warehouses in the province, though Amazon would not say if there was a connection.`\
+https://nytimes.com/2025/01/22/technology/amazon-quebec-closures.html
+
+**Roki Sasaki dons new uniform in Dodgers' introduction**\
+`In his first year as a Dodger, Sasaki will earn the league minimum of $760,000 after classifying as an international amateur.`\
+https://nytimes.com/athletic/6081600/2025/01/22/roki-sasaki-dodgers-introduction/
+
 **The Bishop Who Pleaded With Trump: ‘Was Anyone Going to Say Anything?’**\
 `Bishop Budde locked eyes with President Trump and made a plea for mercy — and the war over spiritual authority in America was ignited anew.`\
 https://nytimes.com/2025/01/22/us/trump-bishop-plea.html
