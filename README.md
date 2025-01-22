@@ -1,3 +1,7 @@
+**Corrections: Jan. 22, 2025**\
+`Corrections that appeared in print on Wednesday, Jan. 22, 2025.`\
+https://nytimes.com/2025/01/22/pageoneplus/corrections-jan-22-2025.html
+
 **Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
 `“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
 https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6080602/2025/01/22/wilfried-zaha-charlotte-loan-tra
 `Ezra Klein discusses the oligarchic power dynamics of the second Trump administration.`\
 https://nytimes.com/video/opinion/100000009942078/the-new-rules-of-the-trump-era.html
 
-**The Bounce: NBA midseason report cards! Plus, January 22 is a day for buckets**\
+**The Bounce: NBA midseason report cards! Plus, Jan. 22 is a day for buckets**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6080173/2025/01/22/nba-report-cards-kobe-bryant-lakers-81-nba-the-bounce/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/opinion/religious-institutions-church.html
 **My Son Wants to Pay for His Sister to Freeze Her Eggs. Too Weird?**\
 `A mother wonders whether such an offer from her well-off son would be overstepping, and if not, whether she should be the one to float the idea.`\
 https://nytimes.com/2025/01/22/style/egg-freezing-siblings.html
-
-**MoneyCall: What next for the CFP?**\
-`Welcome to MoneyCall, The Athletic's weekly sports business newsletter.`\
-https://nytimes.com/athletic/6079787/2025/01/22/cfp-business-expansion-moneycall-newsletter/
 
