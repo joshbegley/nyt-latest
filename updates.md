@@ -1,3 +1,19 @@
+**Mavericks' Dereck Lively II out at least 1 month with ankle injury**\
+`The Mavericks have been plagued by injury issues since Christmas and will miss Lively’s lob-finishing ability and rim protection.`\
+https://nytimes.com/athletic/6081265/2025/01/22/dereck-lively-out-ankle-injury-mavericks/
+
+**Here’s Where It Snowed the Most Across the South**\
+`The figures are unofficial because National Weather Service officials must assess totals, but Florida appears to have broken a state snow record.`\
+https://nytimes.com/2025/01/22/weather/winter-storm-records-florida.html
+
+**The Briefing: Paris Saint-Germain 4 Manchester City 2 - City capitulate as Champions League top-eight hopes end**\
+`Thom Harris, Sam Lee and Oliver Kay break down the main talking points Manchester City's 4-2 loss to PSG in the Champions League`\
+https://nytimes.com/athletic/6077832/2025/01/22/paris-saint-germain-4-manchester-city-2-champions-league/
+
+**House Republicans Create New Jan. 6 Inquiry to Recast the Assault**\
+`Speaker Mike Johnson said the panel would counter “false narratives” about the Jan. 6, 2021, riot and what led up to it, a sign that the G.O.P. would continue to try shift blame for the attack.`\
+https://nytimes.com/2025/01/22/us/politics/jan6-house-committee.html
+
 **Ravens appear unlikely to make massive changes after disappointing playoff exit**\
 `General manager Eric DeCosta and head coach John Harbaugh are already preparing themselves for what next season brings. `\
 https://nytimes.com/athletic/6081718/2025/01/22/ravens-roster-offseason-john-harbaugh-eric-decosta/
