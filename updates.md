@@ -1,3 +1,11 @@
+**Britain Says Russian Spy Ship Returned to U.K. Waters in Sign of Kremlin Threat**\
+`The British defense secretary told Parliament that the Yantar, which he described as a Russian spy ship, had come near Britain’s coast for the second time in a few months.`\
+https://nytimes.com/2025/01/22/world/europe/britain-russia-spy-ship.html
+
+**Postecoglou: 'Potentially' no more signings at Spurs this month**\
+`Tottenham Hotspur head coach Ange Postecoglou has said that it remains a possibility that there are no further signings at the club this month.`\
+https://nytimes.com/athletic/6081460/2025/01/22/tottenham-transfers-postecoglou-latest/
+
 **Five deaths in Texas crash occurred after tractor-trailer struck three vehicles.**\
 `It started as a minor crash on a bridge between two vans, but a tractor-trailer wasn’t able to keep from hitting those gathered on the bridge.`\
 https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/five-deaths-in-texas-crash-occurred-after-tractor-trailer-struck-three-vehicles

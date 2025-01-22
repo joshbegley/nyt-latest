@@ -1,3 +1,11 @@
+**Britain Says Russian Spy Ship Returned to U.K. Waters in Sign of Kremlin Threat**\
+`The British defense secretary told Parliament that the Yantar, which he described as a Russian spy ship, had come near Britain’s coast for the second time in a few months.`\
+https://nytimes.com/2025/01/22/world/europe/britain-russia-spy-ship.html
+
+**Postecoglou: 'Potentially' no more signings at Spurs this month**\
+`Tottenham Hotspur head coach Ange Postecoglou has said that it remains a possibility that there are no further signings at the club this month.`\
+https://nytimes.com/athletic/6081460/2025/01/22/tottenham-transfers-postecoglou-latest/
+
 **Five deaths in Texas crash occurred after tractor-trailer struck three vehicles.**\
 `It started as a minor crash on a bridge between two vans, but a tractor-trailer wasn’t able to keep from hitting those gathered on the bridge.`\
 https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/five-deaths-in-texas-crash-occurred-after-tractor-trailer-struck-three-vehicles
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/pamela-hemphill-trump-jan-6-pardon-re
 **Tiny Love Stories: ‘Because of You I Have a Husband’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/01/22/style/tiny-modern-love-stories-because-of-you-i-have-a-husband.html
-
-**Pentagon to Send 1,500 Additional Troops to U.S.-Mexico Border**\
-`The troops will join 2,500 Army Reserve and National Guard soldiers called to active duty in recent months.`\
-https://nytimes.com/2025/01/22/us/politics/troops-border-trump.html
-
-**These Corals Are Made for Walking**\
-`With time-lapse video, scientists show how tiny mushroom corals can move themselves to influence their fate.`\
-https://nytimes.com/2025/01/22/science/walking-coral.html
 
