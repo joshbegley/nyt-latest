@@ -1,3 +1,7 @@
+**You Asked for This Cease-Fire, Mr. President. Make Sure It Holds.**\
+`The fate of the Israel-Hamas agreement will require huge effort.`\
+https://nytimes.com/2025/01/22/opinion/trump-gaza-cease-fire.html
+
 **U.S. Orders Federal D.E.I. Efforts to Shut Down by Wednesday Night**\
 `Staff members overseeing diversity, equity and inclusion efforts were to be placed on paid administrative leave by 5 p.m. Wednesday.`\
 https://nytimes.com/2025/01/22/us/politics/trump-dei-diversity-officials-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6078771/2025/01/22/haaland-mbappe-media-interviews-
 **Running with Alex Yee: The Paris 2024 gold medallist inspired by Crystal Palace**\
 `The Athletic interviews - and tries to keep up with - the most decorated triathlete in Olympic history `\
 https://nytimes.com/athletic/6072840/2025/01/22/alex-yee-interview-paris-olympics-crystal-palace/
-
-**Understanding Real Madrid's season: The injuries, the balance and the big-game struggles**\
-`The European champions have not had it all their own way in 2024-25 and they have work to do to advance to the Champions League knockouts`\
-https://nytimes.com/athletic/6076212/2025/01/22/real-madrid-analysis-la-liga-champions-league/
 
