@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6081726/2025/01/22/why-jayden-daniels-is-thriving-w
 https://nytimes.com/2025/01/22/nyregion/fake-botox-joey-grant-luther.html
 
 **Real Madrid 5 Salzburg 1 - Rodrygo demands respect, brilliant Bellingham, Vinicius Jr to miss Brest**\
-`Madrid ran rampant against Salzburg thanks to fine performances from Rodrygo, Bellingham and Vinicius Jr`\
+`Madrid were rampant against Salzburg thanks to fine performances from Rodrygo, Bellingham and Vinicius Jr`\
 https://nytimes.com/athletic/6078533/2025/01/22/real-madrid-4-red-bull-salzburg-0-rodrygo-bellingham-vinicius/
 
 **Judges in Washington Push Back on Trump’s Reprieve of Jan. 6 Defendants**\
