@@ -1,3 +1,7 @@
+**Border, Asylum, Citizenship: Trump Kicks Off Vast Immigration Changes**\
+`More is coming, but many directives will take time to be implemented or will face political, legal or practical obstacles.`\
+https://nytimes.com/2025/01/22/us/politics/trump-birthright-citizenship-border-asylum-immigration.html
+
 **Amid a Wintry Mess, New Orleans Also Savors a Spectacle**\
 `The storm brought both dazzling landscapes of ice and snow and challenges to a city unaccustomed to such severe winter weather.`\
 https://nytimes.com/2025/01/22/weather/snow-winter-new-orleans.html
