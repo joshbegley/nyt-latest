@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-c
 https://nytimes.com/athletic/6074790/2025/01/22/keylor-navas-transfer-newells-old-boys/
 
 **Lukas Podolski interview: Playing at 39, Arteta memories and why Havertz is 'not a striker'**\
-`The former Arsenal forward is considering retirement but is still keeping a keen eye on events at his former club`\
+`The ex-Arsenal forward is considering retirement but is still keeping a keen eye on events at his former Premier League club`\
 https://nytimes.com/athletic/6072936/2025/01/22/lukas-podolski-interview/
 
 **What next for Kuol, Newcastle's 'project' player facing a pivotal six months?**\
