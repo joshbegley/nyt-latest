@@ -1,3 +1,11 @@
+**The lingering cold causes additional disruptions to air and road travel.**\
+`By Christine Chung`\
+https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/the-lingering-cold-causes-additional-disruptions-to-air-and-road-travel
+
+**Ohio State final thoughts: Ryan Day's moment caps one of CFB's most impressive runs ever**\
+`Takeaways from Ohio State's national championship on Day, a historically great resume, Will Howard, keys to the title run and what's next.`\
+https://nytimes.com/athletic/6080987/2025/01/22/ohio-state-ryan-day-national-title-playoff/
+
 **New Bears coach Ben Johnson excited to take charge of 'sleeping giant'**\
 `Johnson acknowledged that QB Caleb Williams was a key factor in him taking the job and "this offense will be calibrated with him in mind."`\
 https://nytimes.com/athletic/6081309/2025/01/22/bears-ben-johnson-introduction-caleb-williams/

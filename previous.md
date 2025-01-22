@@ -1,3 +1,11 @@
+**The lingering cold causes additional disruptions to air and road travel.**\
+`By Christine Chung`\
+https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/the-lingering-cold-causes-additional-disruptions-to-air-and-road-travel
+
+**Ohio State final thoughts: Ryan Day's moment caps one of CFB's most impressive runs ever**\
+`Takeaways from Ohio State's national championship on Day, a historically great resume, Will Howard, keys to the title run and what's next.`\
+https://nytimes.com/athletic/6080987/2025/01/22/ohio-state-ryan-day-national-title-playoff/
+
 **New Bears coach Ben Johnson excited to take charge of 'sleeping giant'**\
 `Johnson acknowledged that QB Caleb Williams was a key factor in him taking the job and "this offense will be calibrated with him in mind."`\
 https://nytimes.com/athletic/6081309/2025/01/22/bears-ben-johnson-introduction-caleb-williams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6080661/2025/01/22/erik-spoelstra-bam-adebayo-jimmy
 **When Will the South Warm Up Again? Not for a While.**\
 `Although the last remaining precipitation was expected to wind down Wednesday, Thursday’s temperatures in some areas of the South were not likely to rise above freezing.`\
 https://nytimes.com/2025/01/22/weather/south-warm-weather-forecast.html
-
-**Araujo set to sign new Barcelona deal; Pedri in contract extension talks**\
-`Ronald Araujo is set to sign a new six-and-a-half-year deal with Barcelona, while the club are negotiating with Pedri over extending his contract.`\
-https://nytimes.com/athletic/6080498/2025/01/22/ronald-araujo-barcelona-contract-new-pedri/
-
-**Far-Right Leaders Granted Clemency by Trump Express Desire for Retribution**\
-`Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers asserted that they wanted President Trump to seek revenge on their behalf for being prosecuted in connection with the Jan. 6 riot.`\
-https://nytimes.com/2025/01/22/us/politics/enrique-tarrio-stewart-rhodes.html
 
