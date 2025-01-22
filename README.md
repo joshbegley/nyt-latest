@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6081056/2025/01/22/nfl-draft-first-overall-pick-odd
 `By David Wallace-Wells`\
 https://nytimes.com/2025/01/22/opinion/trumps-paris-climate-withdrawal-executive-orders.html
 
-**Navy SEAL Veteran Said to Be Interim Head of FEMA**\
+**Former Navy SEAL Said to Be Interim Head of FEMA**\
 `Cameron Hamilton does not appear to have experience coordinating responses to large-scale disasters, like the wildfires in California.`\
 https://nytimes.com/2025/01/22/climate/fema-announcement-cameron-hamilton.html
 
