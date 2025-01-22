@@ -1,3 +1,11 @@
+**Roki Sasaki dons new uniform in Dodgers' introduction**\
+`The latest sterling Los Angeles Dodger officially arrived on Wednesday afternoon as the franchise formally introduced Roki Sasaki.`\
+https://nytimes.com/athletic/6081600/2025/01/22/roki-sasaki-dodgers-introduction/
+
+**‘Deadly Conspiracy’ Described at Trial of 3 Charged in Gay Bar Murders**\
+`Three men have been accused of murder as part of a plot to drug and rob revelers in Midtown in 2022. Two of their targets ended up dead.`\
+https://nytimes.com/2025/01/22/nyregion/nyc-gay-bar-drug-murder-trial.html
+
 **The Political Stories We’re Watching**\
 `The nation’s politics are going to change in President Trump’s second term — though we don’t yet know how.`\
 https://nytimes.com/2025/01/22/us/politics/trump-us-politics-future.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6081517/2025/01/22/oilers-connor-mcdavid-comments-s
 **Why Deportations Were Higher Under Biden Than in Trump’s First Term**\
 `A record number of border crossers and the continuation of a Trump-era policy were factors.`\
 https://nytimes.com/2025/01/22/us/trump-biden-immigrants-deportations.html
-
-**Brazil in discussions with NFL about long-term contract for international games**\
-`A long-term contract could last as many as six years with as many as two games per season.`\
-https://nytimes.com/athletic/6081655/2025/01/22/brazil-nfl-long-term-contract-international-games/
-
-**Heat plan to suspend Jimmy Butler for 2 games after missing flight**\
-`The latest adds to the ongoing dispute between Butler and the Heat front office that seems increasingly likely to end with a trade.`\
-https://nytimes.com/athletic/6081930/2025/01/22/jimmy-butler-heat-suspended-missed-team-flight/
 

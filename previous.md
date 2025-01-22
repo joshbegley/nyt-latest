@@ -1,3 +1,23 @@
+**The Political Stories We’re Watching**\
+`The nation’s politics are going to change in President Trump’s second term — though we don’t yet know how.`\
+https://nytimes.com/2025/01/22/us/politics/trump-us-politics-future.html
+
+**Key Trump Nominee Hints at Push for Work Requirements in Medicaid**\
+`Russell T. Vought, President Trump’s nominee to run the Office of Management and Budget, said he supported work requirements for the program that supports low-income Americans.`\
+https://nytimes.com/2025/01/22/us/politics/russell-vought-trump-healthcare.html
+
+**Local officials respond to Trump’s immigration plans with silence or defiance.**\
+`By Tim Arango, Heather Knight, Mitch Smith and Julie Bosman`\
+https://nytimes.com/live/2025/01/22/us/trump-news/local-officials-respond-to-trumps-immigration-plans-with-silence-or-defiance
+
+**Greenberg: Can Ben Johnson break with the past and take the Bears into the future?**\
+`Halas Hall is haunted by past failures, but the Bears may have stumbled into a good hire. He’s creative and fiery and he runs the dang ball.`\
+https://nytimes.com/athletic/6081860/2025/01/22/ben-johnson-chicago-bears-coach/
+
+**Titans won't pass on 'generational talent' in draft, GM Borgonzi looks to build through draft**\
+`Borgonzi will be in charge of making all selections in this year's draft, but the Titans are not afraid of trading back to acquire assets.`\
+https://nytimes.com/athletic/6081967/2025/01/22/mike-borgonzi-titans-2025-nfl-draft/
+
 **Winter storm, heavy snow causes multiple postponements across sports world**\
 `NBA game, huge women's college basketball matchup among games impacted by weather.`\
 https://nytimes.com/athletic/6081188/2025/01/22/winter-storm-heavy-snow-postponements/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6081655/2025/01/22/brazil-nfl-long-term-contract-in
 **Heat plan to suspend Jimmy Butler for 2 games after missing flight**\
 `The latest adds to the ongoing dispute between Butler and the Heat front office that seems increasingly likely to end with a trade.`\
 https://nytimes.com/athletic/6081930/2025/01/22/jimmy-butler-heat-suspended-missed-team-flight/
-
-**The Justice Dept. Asserted Its Immigration Authority**\
-`Also, a storm dumped snow on the Carolinas. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/01/22/briefing/justice-department-immigration-memo-snow-south.html
-
-**Want to Look Like Chappell Roan? She Tells You How.**\
-`In a new series, the pop star discusses the mechanics of modern fame, including her instructions to fans of what to wear to her concerts.`\
-https://nytimes.com/2025/01/22/style/chappell-roan-faces-of-music-hulu.html
-
-**Trump Sees National Emergencies Where Experts Say There Are None**\
-`Mr. Trump had the authority to declare two emergencies. But they also happened to advance his favorite targets: more fossil fuels and less immigration.`\
-https://nytimes.com/2025/01/22/climate/trump-national-emergencies.html
-
-**Authenticated snow from Eagles-Rams playoff game sells out**\
-`An unusual collectible from a memorable game`\
-https://nytimes.com/athletic/6081888/2025/01/22/snow-eagles-rams-nfl-playoffs/
-
-**Ben Johnson ready to build Bears offense around Caleb Williams: 'He is a phenomenal talent'**\
-`Williams is excited for his new head coach, who wants to make sure the new playbook is "calibrated" for the quarterback.`\
-https://nytimes.com/athletic/6081845/2025/01/22/ben-johnson-ready-to-build-bears-offense-around-caleb-williams-he-is-a-phenomenal-talent/
 
