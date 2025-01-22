@@ -1,3 +1,7 @@
+**Late Night Tries to Keep Up With Trump’s Executive Orders**\
+`“If you could put anything in front of him yesterday, he would have signed it,” said Ronny Chieng. “Melania, now’s your chance to update the prenup.”`\
+https://nytimes.com/2025/01/22/arts/television/late-night-trump-executive-orders.html
+
 **Dortmund part ways with head coach Sahin following Bologna defeat**\
 `Borussia Dortmund have parted ways with head coach Nuri Sahin.`\
 https://nytimes.com/athletic/6066088/2025/01/22/borussia-dortmund-sahin-future/
