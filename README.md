@@ -1,7 +1,3 @@
-**Champions League Briefing: A Barcelona win for the ages. Why did City sell Alvarez? Can anyone stop Liverpool?**\
-`Tim Spiers recaps the best talking points from Tuesday's Champions League action, as Liverpool and Barcelona secured spots in the last 16`\
-https://nytimes.com/athletic/6078681/2025/01/21/champions-league-barcelona-best-game-liverpool-alvarez/
-
 **4 Charged in String of Burglaries at Luxury Homes in Ohio**\
 `The defendants, all from Chile, are accused of participating in a South American crime group targeting multimillion-dollar homes, the authorities said. One of them appeared to belong to the Cincinnati Bengals quarterback Joe Burrow.`\
 https://nytimes.com/2025/01/21/us/joe-burrow-ohio-burglary-arrests.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/ri
 **What do Unrivaled's first TV ratings mean for the new league?**\
 `The new winter pro league co-founded by WNBA stars Napheesa Collier and Breanna Stewart averaged 313,000 viewers in its opening game.`\
 https://nytimes.com/athletic/6079461/2025/01/21/unrivaled-wnba-tv-ratings-debut/
+
+**Scientists Finally Make Heads of Giant Stingray Tails**\
+`The long structures seen in manta rays and their relatives function as an early warning system, rather than a defensive weapon.`\
+https://nytimes.com/2025/01/21/science/stingray-tail-antenna.html
 
