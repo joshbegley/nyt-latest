@@ -1,3 +1,11 @@
+**Harvard Adopts a Definition of Antisemitism for Discipline Cases**\
+`Many universities have been reluctant to embrace a definition that, among other things, considers some criticisms of Israel as antisemitic. The university’s decision was part of a lawsuit settlement.`\
+https://nytimes.com/2025/01/21/us/harvard-antisemitism-definition-discipline.html
+
+**Garth Hudson: 11 Essential Songs**\
+`The last surviving original member of the Band died on Tuesday. He was a master on keys and saxophones who could conjure a panoply of scenes and eras.`\
+https://nytimes.com/2025/01/21/arts/music/garth-hudson-songs.html
+
 **Trump Says He Will Impose 10% Tariffs on Chinese Imports on Feb. 1**\
 `The president said the planned duties were a response to China’s failure to curb fentanyl exports.`\
 https://nytimes.com/2025/01/21/business/trump-tariffs-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6078322/2025/01/21/baseball-hall-of-fame-election-2
 **Trump Pardons Creator of Silk Road Drug Marketplace**\
 `Ross Ulbricht was serving a life sentence for creating a site in a shady corner of the internet to sell heroin, cocaine and other illicit substances.`\
 https://nytimes.com/2025/01/21/technology/trump-ross-ulbricht-silk-road.html
-
-**Ichiro Suzuki falls 1 vote shy of unanimous vote to Baseball Hall of Fame**\
-`Suzuki easily cleared the bar for first-ballot induction. But like Derek Jeter, he missed getting in unanimously by one vote.`\
-https://nytimes.com/athletic/6079440/2025/01/21/ichiro-suzuki-one-vote-shy-unanimous-baseball-hall-of-fame/
-
-**‘Vanya on Huron Street’ Review: Chekhov in Brooklyn**\
-`Instead of a departure, the writer and director Matthew Gasda’s take on “Uncle Vanya” at the Brooklyn Center for Theater Research tends to adhere to the original.`\
-https://nytimes.com/2025/01/21/theater/vanya-on-huron-street-review.html
 

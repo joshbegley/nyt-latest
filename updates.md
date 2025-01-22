@@ -1,3 +1,11 @@
+**Harvard Adopts a Definition of Antisemitism for Discipline Cases**\
+`Many universities have been reluctant to embrace a definition that, among other things, considers some criticisms of Israel as antisemitic. The university’s decision was part of a lawsuit settlement.`\
+https://nytimes.com/2025/01/21/us/harvard-antisemitism-definition-discipline.html
+
+**Garth Hudson: 11 Essential Songs**\
+`The last surviving original member of the Band died on Tuesday. He was a master on keys and saxophones who could conjure a panoply of scenes and eras.`\
+https://nytimes.com/2025/01/21/arts/music/garth-hudson-songs.html
+
 **Trump Says He Will Impose 10% Tariffs on Chinese Imports on Feb. 1**\
 `The president said the planned duties were a response to China’s failure to curb fentanyl exports.`\
 https://nytimes.com/2025/01/21/business/trump-tariffs-china.html
