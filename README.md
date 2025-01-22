@@ -22,7 +22,7 @@ https://nytimes.com/2025/01/22/business/dealbook/trump-tariffs-money.html
 `PARIS – Legendary San Antonio Spurs coach Gregg Popovich is “attacking his rehab with the same resilience” after suffering a stroke in November that he’d shown on the bench, chief executive RC Buford said, but his return to the team this season remains in question.`\
 https://nytimes.com/athletic/6080269/2025/01/22/gregg-popovich-spurs-return-stroke/
 
-**Why Ben Johnson chose the Chicago Bears, and it means for Caleb Williams' future**\
+**Why Ben Johnson chose the Chicago Bears, and what it means for Caleb Williams' future**\
 `On the "Scoop City" podcast, a breakdown of perhaps the most consequential hiring of this coaching cycle.`\
 https://nytimes.com/athletic/6078674/2025/01/22/ben-johnson-hired-chicago-bears-caleb-williams/
 
