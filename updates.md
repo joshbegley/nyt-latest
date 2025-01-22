@@ -1,3 +1,11 @@
+**Super Bowl MVP odds: Could Saquon Barkley vault Patrick Mahomes or Josh Allen?**\
+`Barkley is third in the odds to win Super Bowl MVP. How likely is a win for a running back or pass catcher over quarterbacks?`\
+https://nytimes.com/athletic/6081421/2025/01/22/super-bowl-mvp-odds-saquon-barkley-patrick-mahomes-josh-allen/
+
+**An Ancient Headless Statue Is Found Amid Trash in Greece**\
+`The police said a man handed over a statue that he said he found in a plastic bag among trash bins.`\
+https://nytimes.com/2025/01/22/world/europe/ancient-greece-statue-trash-thessaloniki.html
+
 **Wars and Rumors of Wars**\
 `Hollywood’s silence reveals the contours of our escalating conflict with China; we’re digesting the war on TikTok, instead.`\
 https://nytimes.com/2025/01/22/opinion/china-tiktok.html

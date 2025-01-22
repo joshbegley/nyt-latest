@@ -1,3 +1,11 @@
+**Super Bowl MVP odds: Could Saquon Barkley vault Patrick Mahomes or Josh Allen?**\
+`Barkley is third in the odds to win Super Bowl MVP. How likely is a win for a running back or pass catcher over quarterbacks?`\
+https://nytimes.com/athletic/6081421/2025/01/22/super-bowl-mvp-odds-saquon-barkley-patrick-mahomes-josh-allen/
+
+**An Ancient Headless Statue Is Found Amid Trash in Greece**\
+`The police said a man handed over a statue that he said he found in a plastic bag among trash bins.`\
+https://nytimes.com/2025/01/22/world/europe/ancient-greece-statue-trash-thessaloniki.html
+
 **Wars and Rumors of Wars**\
 `Hollywood’s silence reveals the contours of our escalating conflict with China; we’re digesting the war on TikTok, instead.`\
 https://nytimes.com/2025/01/22/opinion/china-tiktok.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/arts/judi-dench-vision-loss.html
 **What will new Wisconsin OC Jeff Grimes bring to Badgers?**\
 `Head coach Luke Fickell hired Grimes from Kansas after experimenting with an air raid scheme under Phil Longo.`\
 https://nytimes.com/athletic/6081266/2025/01/22/wisconsin-football-offensive-coordinator-jeff-grimes/
-
-**Trump pushes Putin to end war in Ukraine, threatening Russia with tariffs and sanctions.**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2025/01/22/us/trump-news/trump-pushes-putin-to-end-war-in-ukraine-threatening-russia-with-tariffs-and-sanctions
-
-**Is now the time for Trevor Zegras to 'uplift' the Ducks? What can he bring?**\
-`Zegras didn't score in his return, but brought elements that might help the struggling Ducks.`\
-https://nytimes.com/athletic/6081333/2025/01/22/zegras-ducks-injury-trade-return/
 
