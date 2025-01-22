@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6079967/2025/01/22/madison-keys-australian-open-coach-bjorn-fratangelo/
 
 **Prince Harry Agrees to Last-Minute Settlement With Murdoch’s U.K. Tabloids**\
-`Harry had presented the lawsuit as a moral crusade and a legal reckoning for Rupert Murdoch’s media empire. In the end, he joined hundreds of other claimants in agreeing to avoid a full trial.`\
+`Rupert Murdoch’s News Group Newspapers offered Harry a “full and unequivocal apology” for hacking his cellphone and intruding into his personal life and agreed to pay “substantial” damages.`\
 https://nytimes.com/2025/01/22/world/europe/prince-harry-murdoch-lawsuit.html
 
 **OG Anunoby in the film room: Knicks' lockdown 'stunter' shares his defensive secrets**\

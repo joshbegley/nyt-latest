@@ -1,3 +1,7 @@
+**Prince Harry Agrees to Last-Minute Settlement With Murdoch’s U.K. Tabloids**\
+`Rupert Murdoch’s News Group Newspapers offered Harry a “full and unequivocal apology” for hacking his cellphone and intruding into his personal life and agreed to pay “substantial” damages.`\
+https://nytimes.com/2025/01/22/world/europe/prince-harry-murdoch-lawsuit.html
+
 **Madison Keys will win or lose, her way**\
 `The American is back in the last four in Melbourne, with her husband in her coaching box. This is how they work it out`\
 https://nytimes.com/athletic/6079967/2025/01/22/madison-keys-australian-open-coach-bjorn-fratangelo/
