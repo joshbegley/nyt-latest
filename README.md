@@ -1,3 +1,7 @@
+**Border, Asylum, Citizenship: Trump Kicks Off Vast Immigration Changes**\
+`More is coming, but many directives will take time to be implemented or will face political, legal or practical obstacles.`\
+https://nytimes.com/2025/01/22/us/politics/trump-birthright-citizenship-border-asylum-immigration.html
+
 **Real Madrid out-earned Manchester City by nearly £180m last season as stadium income becomes key**\
 `Deloitte’s Money League reveals growing revenue gap between Premier League teams and the Spanish champions`\
 https://nytimes.com/athletic/6080474/2025/01/22/real-madrid-out-earned-manchester-city-by-nearly-180m-last-season-as-stadium-income-becomes-key/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/trump-bishop-plea.html
 **Laken Riley Act Is an Effort to Target Migrants Accused of Crimes**\
 `Republicans have promised that more measures to accelerate and expand immigration enforcement will follow.`\
 https://nytimes.com/2025/01/22/us/laken-riley-act-explained.html
-
-**Champions League Briefing: Playoffs take shape; Bellingham's backheel; Wembanyama sees City's collapse**\
-`The NBA star witnessed a Man City capitulation, the playoffs are taking shape and Real Madrid are back on it`\
-https://nytimes.com/athletic/6081300/2025/01/22/champions-league-playoffs-wembanyama/
 
