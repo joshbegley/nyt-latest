@@ -1,3 +1,11 @@
+**A New Fear in Schools: Will ICE Agents Come?**\
+`Readers worry about immigration raids in schools. Also: Immigrants who fear seeking health care; military shortcomings; women’s slow progress; betting on Bitcoin.`\
+https://nytimes.com/2025/01/22/opinion/immigration-ice-schools.html
+
+**Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/22/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **Submit your questions for Audrey Snyder's Penn State mailbag**\
 `With the bulk of the roster returning, Penn State carries high expectations into the offseason. `\
 https://nytimes.com/athletic/6080906/2025/01/22/penn-state-football-offseason-2025-james-franklin/
