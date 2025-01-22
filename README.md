@@ -1,3 +1,11 @@
+**Houthis Say They Will Free the Crew of a Cargo Ship They Hijacked 14 Months Ago**\
+`The Iranian-backed rebel group in Yemen made the announcement after the Houthis said they would scale back attacks given the cease-fire in the conflict in Gaza.`\
+https://nytimes.com/2025/01/22/world/middleeast/houthis-yemen-ship-seized.html
+
+**These New Yorkers Were Jailed for Jan. 6 Crimes. Trump Set Them Free.**\
+`Two former New York City police officers and members of the Proud Boys and the Oath Keepers were among the nearly 1,600 who received an extraordinary legal reprieve.`\
+https://nytimes.com/2025/01/22/nyregion/nyc-trump-jan-6-pardons.html
+
 **At the Cloisters, Sor Juana’s Words Ring Out in Song**\
 `The opera “Primero Sueño” translates Sor Juana Inés de la Cruz’s poem about the soul’s journey into a musical promenade around the Cloisters.`\
 https://nytimes.com/2025/01/22/arts/music/the-cloisters-sor-juana-primero-sueno-opera.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/style/louis-vuitton-pharrell-williams-nigo-paris.
 **Arkansas star freshman Fland likely out for season; Razorbacks 0-5 in SEC**\
 `In John Calipari's first season, Arkansas is one of just four high-major teams yet to win a conference game.`\
 https://nytimes.com/athletic/6080632/2025/01/22/boogie-fland-injury-arkansas-basketball-calipari/
-
-**​Families, a Dean, a Young Swimmer: ​​Lives Lost in the Turkish Ski Resort Fire**\
-`Some had returned to the hotel year after year. Their deaths have stirred grief and outrage.`\
-https://nytimes.com/2025/01/22/world/middleeast/turkey-ski-resort-fire-families-grief.html
-
-**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
-`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
-https://nytimes.com/athletic/6073696/2025/01/22/bills-chiefs-how-to-watch-odds-picks-betting/
 
