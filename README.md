@@ -1,3 +1,7 @@
+**As Netflix stock surges, 'anti-ESPN' sports strategy emerges**\
+`Netflix's earnings report sent its stock surging — and made it a bit more clear how sports content impacts the company's present and future.`\
+https://nytimes.com/athletic/6080706/2025/01/22/netflix-espn-nfl-jake-paul-beyonce-wwe-ufc-earnings-nflx/
+
 **Carolyn Brown, a Shaper of Revolutionary Dance, Dies at 97**\
 `With Merce Cunningham, she forged one of the great partnerships in dance history. She later recounted those years in an incisive, unsparing memoir.`\
 https://nytimes.com/2025/01/22/arts/dance/carolyn-brown-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/dining/i-simply-love-cabbage.html
 **The oldest rivalry in world football may not be where you think**\
 `Hallam FC and Sheffield FC first met in 1860, and their 2025 meeting drew interest from the U.S, Cuba and Kazakhstan`\
 https://nytimes.com/athletic/6033248/2025/01/22/oldest-derby-world-football-hallam-sheffield-fc/
-
-**Bucs OC Liam Coen to return to Tampa Bay on new contract: Source**\
-`In one season as the Buccaneers offensive coordinator, Coen guided Baker Mayfield to career highs in multiple statistical categories. `\
-https://nytimes.com/athletic/6076590/2025/01/22/liam-coen-tampa-bay-buccaneers-jacksonville-jaguars/
 
