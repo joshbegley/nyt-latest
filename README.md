@@ -1,3 +1,7 @@
+**The three passes that summed up Aston Villa's bad night in Monaco**\
+`Aston Villa fell to a difficult defeat against Monaco in the Champions League`\
+https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-monaco/
+
 **Jarell Quansah is back on track after a notably slow start under Arne Slot**\
 `The Liverpool manager utilised his squad against Lille and the likes of Quansah, Harvey Elliott and Federico Chiesa all impressed`\
 https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6078208/2025/01/22/chelsea-midfield-options-lavia/
 **Farke wants a quiet transfer window - but do Leeds have the depth to win promotion?**\
 `It’s going to take Premier League quality to improve on what Leeds have. It’s why there has been a reluctance to add for the sake of it`\
 https://nytimes.com/athletic/6077990/2025/01/22/leeds-squad-depth-analysis-transfer/
-
-**Manchester City, Paris Saint-Germain and the threat to football's state-owned superpowers**\
-`Both European giants have struggled in the revamped Champions League and both need to win when they meet in Paris tonight`\
-https://nytimes.com/athletic/6078455/2025/01/22/manchester-city-paris-saint-germain-and-the-humbling-of-footballs-state-owned-superpowers/
 
