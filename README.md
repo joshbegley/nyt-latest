@@ -1,3 +1,7 @@
+**The New Rules of the Trump Era**\
+`Ezra Klein discusses the oligarchic power dynamics of the second Trump administration.`\
+https://nytimes.com/video/opinion/100000009942078/the-new-rules-of-the-trump-era.html
+
 **The Bounce: NBA midseason report cards! Plus, January 22 is a day for buckets**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6080173/2025/01/22/nba-report-cards-kobe-bryant-lakers-81-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080411/2025/01/22/terrell-williams-hired-lions-pat
 **'Frustrated' Amorim clarifies 'worst Man United team' comments**\
 `Ruben Amorim has moved to clarify his comments that his Manchester United side are “maybe the worst team in the history&#8221; of the club, saying that he &#8220;finds it hard to hide frustrations.`\
 https://nytimes.com/athletic/6080436/2025/01/22/ruben-amorim-manchester-united-worst-team/
-
-**Listen: Chelsea's Sanchez problem and do they need more signings?**\
-`Ayo Akinwolere was joined by Liam Twomey and Phil Hay on the latest episode of ‘The Athletic FC Podcast’ to assess the situation at Chelsea`\
-https://nytimes.com/athletic/6080280/2025/01/22/athletic-fc-podcast-chelsea-signings/
 
