@@ -1,3 +1,7 @@
+**If You Work for the Federal Government, How Are You Feeling About D.E.I.?**\
+`We want to know how workers are processing President Trump’s decision to end hiring practices meant to further diversity, equity and inclusion in the federal work force.`\
+https://nytimes.com/2025/01/22/us/politics/federal-government-dei-callout.html
+
 **Amazon Closes Its Operations in Quebec, Laying Off 1,700 Workers**\
 `Unions had gained a foothold in one of the company’s warehouses in the province, though Amazon would not say if there was a connection.`\
 https://nytimes.com/2025/01/22/technology/amazon-quebec-closures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/trump-us-politics-future.html
 **Key Trump Nominee Hints at Push for Work Requirements in Medicaid**\
 `Russell T. Vought, President Trump’s nominee to run the Office of Management and Budget, said he supported work requirements for the program that supports low-income Americans.`\
 https://nytimes.com/2025/01/22/us/politics/russell-vought-trump-healthcare.html
-
-**Local officials respond to Trump’s immigration plans with silence or defiance.**\
-`By Tim Arango, Heather Knight, Mitch Smith and Julie Bosman`\
-https://nytimes.com/live/2025/01/22/us/trump-news/local-officials-respond-to-trumps-immigration-plans-with-silence-or-defiance
 
