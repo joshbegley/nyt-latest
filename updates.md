@@ -1,3 +1,7 @@
+**As Netflix stock surges, 'anti-ESPN' sports strategy emerges**\
+`Netflix's earnings report sent its stock surging — and made it a bit more clear how sports content impacts the company's present and future.`\
+https://nytimes.com/athletic/6080706/2025/01/22/netflix-espn-nfl-jake-paul-beyonce-wwe-ufc-earnings-nflx/
+
 **Carolyn Brown, a Shaper of Revolutionary Dance, Dies at 97**\
 `With Merce Cunningham, she forged one of the great partnerships in dance history. She later recounted those years in an incisive, unsparing memoir.`\
 https://nytimes.com/2025/01/22/arts/dance/carolyn-brown-dead.html
