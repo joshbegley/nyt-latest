@@ -1,3 +1,7 @@
+**Penguins Today: Kevin Hayes and Los Angeles first responders**\
+`Hayes, who honors first responders after every game, scored the opening goal against the Kings.`\
+https://nytimes.com/athletic/6080749/2025/01/22/penguins-today-los-angeles-fires-kevin-hayes/
+
 **Rangers fan survey results: Confidence in the playoffs and Laviolette, but not Drury**\
 `More than 1,000 Rangers fans participated in our fan survey, giving their preferred trade candidates, thoughts on a rebuild and more.`\
 https://nytimes.com/athletic/6078143/2025/01/22/rangers-fan-survey-results-drury-laviolette/

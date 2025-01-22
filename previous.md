@@ -1,3 +1,7 @@
+**Penguins Today: Kevin Hayes and Los Angeles first responders**\
+`Hayes, who honors first responders after every game, scored the opening goal against the Kings.`\
+https://nytimes.com/athletic/6080749/2025/01/22/penguins-today-los-angeles-fires-kevin-hayes/
+
 **Rangers fan survey results: Confidence in the playoffs and Laviolette, but not Drury**\
 `More than 1,000 Rangers fans participated in our fan survey, giving their preferred trade candidates, thoughts on a rebuild and more.`\
 https://nytimes.com/athletic/6078143/2025/01/22/rangers-fan-survey-results-drury-laviolette/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/pageoneplus/corrections-jan-22-2025.html
 **Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
 `“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
 https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
-
-**Zaha joins MLS club Charlotte FC from Galatasaray on loan**\
-`Wilfried Zaha has joined MLS club Charlotte FC on a year-long loan from Galatasaray.`\
-https://nytimes.com/athletic/6080602/2025/01/22/wilfried-zaha-charlotte-loan-transfer-galatasaray/
 
