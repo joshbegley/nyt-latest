@@ -1,3 +1,7 @@
+**Carolyn Brown, a Shaper of Revolutionary Dance, Dies at 97**\
+`With Merce Cunningham, she forged one of the great partnerships in dance history. She later recounted those years in an incisive, unsparing memoir.`\
+https://nytimes.com/2025/01/22/arts/dance/carolyn-brown-dead.html
+
 **A New Fear in Schools: Will ICE Agents Come?**\
 `Readers worry about immigration raids in schools. Also: Immigrants who fear seeking health care; military shortcomings; women’s slow progress; betting on Bitcoin.`\
 https://nytimes.com/2025/01/22/opinion/immigration-ice-schools.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6033248/2025/01/22/oldest-derby-world-football-hall
 **Bucs OC Liam Coen to return to Tampa Bay on new contract: Source**\
 `In one season as the Buccaneers offensive coordinator, Coen guided Baker Mayfield to career highs in multiple statistical categories. `\
 https://nytimes.com/athletic/6076590/2025/01/22/liam-coen-tampa-bay-buccaneers-jacksonville-jaguars/
-
-**The Justice Dept. orders investigations of any city and state officials who obstruct immigration enforcement.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2025/01/22/us/trump-news/justice-dept-to-investigate-local-officials-who-obstruct-immigration-enforcement
 
