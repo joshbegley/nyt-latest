@@ -1,3 +1,7 @@
+**As NBA trade deadline nears, the Jimmy Butler-Heat countdown ticks louder and louder**\
+`How much uglier can things get between Butler and Miami between now and Feb. 6? `\
+https://nytimes.com/athletic/6075545/2025/01/22/jimmy-butler-heat-trade-deadline-nba/
+
 **In This Math Thriller, Leo Woodall’s Numbers Add Up**\
 `A brilliant young mathematician becomes an enemy of the deep state in a paranoid new potboiler streaming on Apple TV+.`\
 https://nytimes.com/2025/01/22/arts/television/prime-target-leo-woodall.html
