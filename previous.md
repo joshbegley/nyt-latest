@@ -1,3 +1,11 @@
+**New Bears coach Ben Johnson excited to take charge of 'sleeping giant'**\
+`Johnson acknowledged that QB Caleb Williams was a key factor in him taking the job and "this offense will be calibrated with him in mind."`\
+https://nytimes.com/athletic/6081309/2025/01/22/bears-ben-johnson-introduction-caleb-williams/
+
+**Divvy Homes, Once Valued at $2 Billion, Is in Talks to be Sold for Parts**\
+`The company, backed by high-flying Silicon Valley investors like Andreessen Horowitz, had promised it would reinvent the rent-to-own model and make it more consumer friendly. High interest rates and mortgage rates thwarted those plans.`\
+https://nytimes.com/2025/01/22/business/divvy-homes-acquisition-brookfield-properties.html
+
 **Musk Casts Doubt on Trump’s $100 Billion A.I. Announcement**\
 `Mr. Trump had claimed the A.I. announcement as an early trophy, taking credit for the companies’ decision to spend up to $500 billion building data centers.`\
 https://nytimes.com/2025/01/22/us/politics/elon-musk-trump-stargate-ai-announcement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6080498/2025/01/22/ronald-araujo-barcelona-contract
 **Far-Right Leaders Granted Clemency by Trump Express Desire for Retribution**\
 `Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers asserted that they wanted President Trump to seek revenge on their behalf for being prosecuted in connection with the Jan. 6 riot.`\
 https://nytimes.com/2025/01/22/us/politics/enrique-tarrio-stewart-rhodes.html
-
-**Newcastle supporters call on club to freeze St. James' Park ticket prices**\
-`The Newcastle United Supporters&#8217; Trust (NUST) has called on the club to freeze ticket prices and “recognise the financial strain many fans are facing”.`\
-https://nytimes.com/athletic/6081204/2025/01/22/newcastle-ticket-prices-nust/
-
-**NFL Draft No. 1 pick odds: Cam Ward has taken favored spot from Shedeur Sanders**\
-`Shedeur Sanders had been the favorite to be the first player taken in the NFL Draft, but that honor belongs to Cam Ward now.`\
-https://nytimes.com/athletic/6081056/2025/01/22/nfl-draft-first-overall-pick-odds-cam-ward-shedeur-sanders/
 
