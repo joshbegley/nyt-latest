@@ -1,3 +1,11 @@
+**Patriots expected to hire Lions' Terrell Williams as defensive coordinator**\
+`Williams will reunite with coach Mike Vrabel in New England after working on Vrabel's staff for six years with the Titans.`\
+https://nytimes.com/athletic/6080411/2025/01/22/terrell-williams-hired-lions-patriots/
+
+**'Frustrated' Amorim clarifies 'worst Man United team' comments**\
+`Ruben Amorim has moved to clarify his comments that his Manchester United side are “maybe the worst team in the history&#8221; of the club, saying that he &#8220;finds it hard to hide frustrations.`\
+https://nytimes.com/athletic/6080436/2025/01/22/ruben-amorim-manchester-united-worst-team/
+
 **Listen: Chelsea's Sanchez problem and do they need more signings?**\
 `Ayo Akinwolere was joined by Liam Twomey and Phil Hay on the latest episode of ‘The Athletic FC Podcast’ to assess the situation at Chelsea`\
 https://nytimes.com/athletic/6080280/2025/01/22/athletic-fc-podcast-chelsea-signings/

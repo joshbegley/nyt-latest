@@ -1,3 +1,11 @@
+**Patriots expected to hire Lions' Terrell Williams as defensive coordinator**\
+`Williams will reunite with coach Mike Vrabel in New England after working on Vrabel's staff for six years with the Titans.`\
+https://nytimes.com/athletic/6080411/2025/01/22/terrell-williams-hired-lions-patriots/
+
+**'Frustrated' Amorim clarifies 'worst Man United team' comments**\
+`Ruben Amorim has moved to clarify his comments that his Manchester United side are “maybe the worst team in the history&#8221; of the club, saying that he &#8220;finds it hard to hide frustrations.`\
+https://nytimes.com/athletic/6080436/2025/01/22/ruben-amorim-manchester-united-worst-team/
+
 **Listen: Chelsea's Sanchez problem and do they need more signings?**\
 `Ayo Akinwolere was joined by Liam Twomey and Phil Hay on the latest episode of ‘The Athletic FC Podcast’ to assess the situation at Chelsea`\
 https://nytimes.com/athletic/6080280/2025/01/22/athletic-fc-podcast-chelsea-signings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/business/dealbook/trump-tariffs-money.html
 **Popovich’s return to Spurs this season from a stroke still in question**\
 `PARIS – Legendary San Antonio Spurs coach Gregg Popovich is “attacking his rehab with the same resilience” after suffering a stroke in November that he’d shown on the bench, chief executive RC Buford said, but his return to the team this season remains in question.`\
 https://nytimes.com/athletic/6080269/2025/01/22/gregg-popovich-spurs-return-stroke/
-
-**Why Ben Johnson chose the Chicago Bears, and what it means for Caleb Williams' future**\
-`On the "Scoop City" podcast, a breakdown of perhaps the most consequential hiring of this coaching cycle.`\
-https://nytimes.com/athletic/6078674/2025/01/22/ben-johnson-hired-chicago-bears-caleb-williams/
-
-**As NBA trade deadline nears, the Jimmy Butler-Heat countdown ticks louder and louder**\
-`How much uglier can things get between Butler and Miami between now and Feb. 6? `\
-https://nytimes.com/athletic/6075545/2025/01/22/jimmy-butler-heat-trade-deadline-nba/
 
