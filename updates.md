@@ -1,3 +1,7 @@
+**Drum Location**\
+`Landon Horton makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/01/21/crosswords/daily-puzzle-2025-01-22.html
+
 **How do coldblooded creatures stay warm in a winter storm?**\
 `By Alexandra E. Petri and Patricia Mazzei`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-do-coldblooded-creatures-stay-warm-in-a-winter-storm

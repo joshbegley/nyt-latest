@@ -1,3 +1,7 @@
+**Drum Location**\
+`Landon Horton makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/01/21/crosswords/daily-puzzle-2025-01-22.html
+
 **How do coldblooded creatures stay warm in a winter storm?**\
 `By Alexandra E. Petri and Patricia Mazzei`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-do-coldblooded-creatures-stay-warm-in-a-winter-storm
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/arts/music/garth-hudson-songs.html
 **Trump Says He Will Impose 10% Tariffs on Chinese Imports on Feb. 1**\
 `The president said the planned duties were a response to China’s failure to curb fentanyl exports.`\
 https://nytimes.com/2025/01/21/business/trump-tariffs-china.html
-
-**Cole Hamels, Ryan Braun headline 2026 Hall of Fame ballot newcomers**\
-`We take a look at the players the BBWAA’s screening committee might consider over the next four Hall of Fame voting cycles.`\
-https://nytimes.com/athletic/6079263/2025/01/21/hamels-braun-2026-hall-of-fame-ballot/
 
