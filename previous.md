@@ -1,3 +1,7 @@
+**Once promising Canucks struggle against lowly Sabres, give up late lead: 3 takeaways**\
+`Vancouver surrendered twof third-period goals by JJ Peterka and a poor Buffalo team playing in the second leg of a back-to-back.`\
+https://nytimes.com/athletic/6079872/2025/01/22/canucks-lose-to-sabres-takeaways/
+
 **You Asked for This Cease-Fire, Mr. President. Make Sure It Holds.**\
 `The fate of the Israel-Hamas agreement will require huge effort.`\
 https://nytimes.com/2025/01/22/opinion/trump-gaza-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6078455/2025/01/22/manchester-city-paris-saint-germ
 **An audience with Haaland and Mbappe, two superstars who rarely talk to the media**\
 `Haaland and Mbappe are two of the sport's biggest stars. But they rarely speak to the media. On Tuesday, hundreds of miles apart, they did`\
 https://nytimes.com/athletic/6078771/2025/01/22/haaland-mbappe-media-interviews-champions-league/
-
-**Running with Alex Yee: The Paris 2024 gold medallist inspired by Crystal Palace**\
-`The Athletic interviews - and tries to keep up with - the most decorated triathlete in Olympic history `\
-https://nytimes.com/athletic/6072840/2025/01/22/alex-yee-interview-paris-olympics-crystal-palace/
 
