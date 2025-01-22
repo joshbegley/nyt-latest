@@ -1,3 +1,15 @@
+**The D.E.I. Retreat Has Some Notable Holdouts**\
+`As racial and gender equity programs come under attack, many companies have scaled back. But Costco, Microsoft and others have forged ahead.`\
+https://nytimes.com/2025/01/22/business/dei-programs-initiatives-costco-microsoft.html
+
+**Trump Wants to Rename Denali. Alaska Lawmakers Don’t.**\
+`The president wants to honor a predecessor, William McKinley, by returning his name to North America’s highest peak. The state’s senators prefer the Native name.`\
+https://nytimes.com/2025/01/22/climate/denali-mckinley-alaska-trump.html
+
+**What’s the Rule About Looking at Women in Public?**\
+`The magazine’s Ethicist columnist on the difference between noticing women’s attractiveness and ogling them.`\
+https://nytimes.com/2025/01/22/magazine/staring-women-public-ethics.html
+
 **As Netflix stock surges, 'anti-ESPN' sports strategy emerges**\
 `Netflix's earnings report sent its stock surging — and made it a bit more clear how sports content impacts the company's present and future.`\
 https://nytimes.com/athletic/6080706/2025/01/22/netflix-espn-nfl-jake-paul-beyonce-wwe-ufc-earnings-nflx/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/22/world/middleeast/houthis-yemen-ship-seized.html
 **These New Yorkers Were Jailed for Jan. 6 Crimes. Trump Set Them Free.**\
 `Two former New York City police officers and members of the Proud Boys and the Oath Keepers were among the nearly 1,600 who received an extraordinary legal reprieve.`\
 https://nytimes.com/2025/01/22/nyregion/nyc-trump-jan-6-pardons.html
-
-**At the Cloisters, Sor Juana’s Words Ring Out in Song**\
-`The opera “Primero Sueño” translates Sor Juana Inés de la Cruz’s poem about the soul’s journey into a musical promenade around the Cloisters.`\
-https://nytimes.com/2025/01/22/arts/music/the-cloisters-sor-juana-primero-sueno-opera.html
-
-**I Simply Love Cabbage**\
-`And you probably will, too, after trying brown butter bucatini with charred cabbage, cabbage Parm and yamitsuki (Japanese “addictive” cabbage).`\
-https://nytimes.com/2025/01/22/dining/i-simply-love-cabbage.html
-
-**The oldest rivalry in world football may not be where you think**\
-`Hallam FC and Sheffield FC first met in 1860, and their 2025 meeting drew interest from the U.S, Cuba and Kazakhstan`\
-https://nytimes.com/athletic/6033248/2025/01/22/oldest-derby-world-football-hallam-sheffield-fc/
 
