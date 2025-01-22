@@ -1,3 +1,11 @@
+**Wild excited to get Spurgeon and Kaprizov back: 'We all miss his smile, that beautiful smile'**\
+`After missing nine and 12 games respectively, two of the Wild's key players are set to return against Utah.`\
+https://nytimes.com/athletic/6081833/2025/01/22/wild-kirill-kaprizov-jared-spurgeon-injury-return-zuccarello/
+
+**Nearly 50 Years After Honolulu Teen’s Killing, Police Arrest an Ex-Schoolmate**\
+`DNA evidence helped lead long-stymied detectives to a suspect in the murder of Dawn Momohara, 16, who was strangled and found dead at her high school.`\
+https://nytimes.com/2025/01/22/us/dawn-momohara-hawaii-murder-arrest.html
+
 **Why Is Israel Targeting Jenin, in the West Bank?**\
 `As Israel withdraws some of its troops from Gaza during a cease-fire there, it has turned attention to another Palestinian territory — in particular a city with a history of militant activity.`\
 https://nytimes.com/2025/01/22/world/middleeast/why-israel-targeting-jenin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/jan6-house-committee.html
 **Ravens appear unlikely to make massive changes after disappointing playoff exit**\
 `General manager Eric DeCosta and head coach John Harbaugh are already preparing themselves for what next season brings. `\
 https://nytimes.com/athletic/6081718/2025/01/22/ravens-roster-offseason-john-harbaugh-eric-decosta/
-
-**Covering an Mpox Outbreak in Congo: Mile After Mile of Muck**\
-`A reporter made a long journey, much of it spent fighting through mud on a motorbike, to reach the epicenter of a viral outbreak in Africa.`\
-https://nytimes.com/2025/01/22/insider/covering-an-mpox-outbreak-in-congo-mile-after-mile-of-muck.html
-
-**How Europe Is Preparing for a New Era of Trump**\
-`World leaders gathered in Davos, Switzerland for the annual meeting of the World Economic Forum. Jeanna Smialek, a New York Times reporter, describes how there was a veneer of anxiety over the event, with attendees wondering: How will the new Trump administration affect Europe?`\
-https://nytimes.com/video/world/europe/100000009937069/how-europe-is-preparing-for-a-new-era-of-trump.html
 
