@@ -1,3 +1,7 @@
+**Submit questions for Jayson Stark's Baseball Hall of Fame mailbag**\
+`Got a question about this year's Hall of Fame vote, next year’s election or the HOF outlook in the years after that? Ask away. `\
+https://nytimes.com/athletic/6079558/2025/01/21/hall-of-fame-mailbag-questions/
+
 **Harvard Adopts a Definition of Antisemitism for Discipline Cases**\
 `Many universities have been reluctant to embrace a definition that, among other things, considers some criticisms of Israel as antisemitic. The university’s decision was part of a lawsuit settlement.`\
 https://nytimes.com/2025/01/21/us/harvard-antisemitism-definition-discipline.html
