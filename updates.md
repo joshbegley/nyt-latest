@@ -1,3 +1,11 @@
+**What will new Wisconsin OC Jeff Grimes bring to Badgers?**\
+`Head coach Luke Fickell hired Grimes from Kansas after experimenting with an air raid scheme under Phil Longo.`\
+https://nytimes.com/athletic/6081266/2025/01/22/wisconsin-football-offensive-coordinator-jeff-grimes/
+
+**Trump pushes Putin to end war in Ukraine, threatening Russia with tariffs and sanctions.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2025/01/22/us/trump-news/trump-pushes-putin-to-end-war-in-ukraine-threatening-russia-with-tariffs-and-sanctions
+
 **Is now the time for Trevor Zegras to 'uplift' the Ducks? What can he bring?**\
 `Zegras didn't score in his return, but brought elements that might help the struggling Ducks.`\
 https://nytimes.com/athletic/6081333/2025/01/22/zegras-ducks-injury-trade-return/

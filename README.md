@@ -1,3 +1,7 @@
+**Judi Dench Says She No Longer Goes to Events Alone, Citing Vision Loss**\
+`The veteran English actress said that she now needed to attend public events with someone else, because of her worsening macular degeneration.`\
+https://nytimes.com/2025/01/22/arts/judi-dench-vision-loss.html
+
 **What will new Wisconsin OC Jeff Grimes bring to Badgers?**\
 `Head coach Luke Fickell hired Grimes from Kansas after experimenting with an air raid scheme under Phil Longo.`\
 https://nytimes.com/athletic/6081266/2025/01/22/wisconsin-football-offensive-coordinator-jeff-grimes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/world/middleeast/clinton-bailey-dead.html
 **Trump Revokes Order That Banned Discrimination in Federal Hiring**\
 `His order revokes one signed by President Lyndon B. Johnson in 1965 that prohibited discriminatory practices in hiring and employment in government contracting.`\
 https://nytimes.com/2025/01/22/us/politics/trump-order-discrimination-federal-hiring.html
-
-**Supreme Court Seems Ready to Reject Limit on Excessive-Force Suits**\
-`The justices heard arguments over whether courts must limit their scrutiny of challenges to police shootings to “the moment of threat.”`\
-https://nytimes.com/2025/01/22/us/supreme-court-excessive-force-lawsuits.html
 
