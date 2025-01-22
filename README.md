@@ -1,5 +1,5 @@
 **How to be a tennis pigeon: The worst matchups and how players prepare for them**\
-`A lopsided head-to-head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
+`A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
 https://nytimes.com/athletic/6077048/2025/01/21/worst-tennis-head-to-head-matchup-pigeon/
 
 **NHL rumblings: Latest on Canucks-Miller, Blue Jackets-Provorov, Penguins' plans, Oilers' needs and more**\
