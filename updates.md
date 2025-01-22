@@ -1,3 +1,7 @@
+**Trump Pardoned Her for Storming the Capitol. ‘Absolutely Not,’ She Said.**\
+`Pamela Hemphill, 71, of Boise, Idaho, who served 60 days in prison, said it would be “an insult to the Capitol Police” if she accepted the pardon.`\
+https://nytimes.com/2025/01/22/us/politics/pamela-hemphill-trump-jan-6-pardon-rejection.html
+
 **Judi Dench Says She No Longer Goes to Events Alone, Citing Vision Loss**\
 `The veteran English actress said that she now needed to attend public events with someone else, because of her worsening macular degeneration.`\
 https://nytimes.com/2025/01/22/arts/judi-dench-vision-loss.html

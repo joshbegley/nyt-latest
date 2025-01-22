@@ -15,7 +15,7 @@ https://nytimes.com/live/2025/01/22/us/trump-news/trump-pushes-putin-to-end-war-
 https://nytimes.com/athletic/6081333/2025/01/22/zegras-ducks-injury-trade-return/
 
 **Trump Pardoned Her for Storming the Capitol. ‘Absolutely Not,’ She Said.**\
-`Pamela Hemphill, 71, of Boise Idaho, who served 60 days in prison, said it would be “an insult to the Capitol Police” if she accepted the pardon.`\
+`Pamela Hemphill, 71, of Boise, Idaho, who served 60 days in prison, said it would be “an insult to the Capitol Police” if she accepted the pardon.`\
 https://nytimes.com/2025/01/22/us/politics/pamela-hemphill-trump-jan-6-pardon-rejection.html
 
 **Tiny Love Stories: ‘Because of You I Have a Husband’**\
