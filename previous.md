@@ -1,3 +1,7 @@
+**Ex-Executive Who Oversaw South Korean Airport Renovations Is Found Dead**\
+`Son Chang-wan was in office while works were undertaken at Muan International Airport. Last month, a plane crashed into a concrete barrier there, killing 179 people.`\
+https://nytimes.com/2025/01/22/world/asia/south-korea-crash-executive-dead.html
+
 **Louisiana Shuts 100-Mile Stretch of I-10 as Rare Snowstorm Hits Gulf Coast**\
 `The latest closure means that nearly three-quarters of Louisiana’s portion of the coast-to-coast highway is shut. A rare winter storm brought record snowfall to the state on Tuesday.`\
 https://nytimes.com/2025/01/22/us/louisiana-snow-blizzard-i10-road-closure.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atleti
 **Barcelona have been linked with Marcus Rashford - but do they need him?**\
 `Hansi Flick has the best-performing attack in the Champions League so the Manchester United forward feels like an odd fit `\
 https://nytimes.com/athletic/6079596/2025/01/22/marcus-rashford-barcelona-benfica-champions-league/
-
-**Word of the Day: dismantle**\
-`This word has appeared in 375 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html
 

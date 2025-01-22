@@ -1,3 +1,7 @@
+**Ex-Executive Who Oversaw South Korean Airport Renovations Is Found Dead**\
+`Son Chang-wan was in office while works were undertaken at Muan International Airport. Last month, a plane crashed into a concrete barrier there, killing 179 people.`\
+https://nytimes.com/2025/01/22/world/asia/south-korea-crash-executive-dead.html
+
 **Louisiana Shuts 100-Mile Stretch of I-10 as Rare Snowstorm Hits Gulf Coast**\
 `The latest closure means that nearly three-quarters of Louisiana’s portion of the coast-to-coast highway is shut. A rare winter storm brought record snowfall to the state on Tuesday.`\
 https://nytimes.com/2025/01/22/us/louisiana-snow-blizzard-i10-road-closure.html
