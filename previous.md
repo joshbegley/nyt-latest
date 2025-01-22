@@ -1,3 +1,11 @@
+**Rewriting Jan. 6**\
+`We’re covering President Trump’s pardons.`\
+https://nytimes.com/2025/01/22/briefing/donald-trump-jan-6-pardons.html
+
+**The glitching cartoon stars of the Australian Open and the future of sports media**\
+`A YouTube stream of the Australian Open has gone viral for its glitches, but it's also a sign of the future of sports media.`\
+https://nytimes.com/athletic/6072324/2025/01/22/australian-open-ao-animated-youtube-sports-media-streaming/
+
 **Brentford close to agreement over new Damsgaard contract**\
 `Mikkel Damsgaard is close to signing a new contract with Brentford until 2030.`\
 https://nytimes.com/athletic/6080169/2025/01/22/brentford-mikkel-damsgaard-contract-new/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6079452/2025/01/22/kevin-oconnell-vikings-contract-
 **What I'm hearing about the Penguins: Trade deadline whispers and slam dunks**\
 `Here's the latest buzz surrounding the Penguins, Kyle Dubas and the looming NHL trade deadline.`\
 https://nytimes.com/athletic/6078731/2025/01/22/penguins-nhl-trade-deadline-marcus-pettersson/
-
-**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
-`A memorable Notre Dame football season ended one win short of the program's first national championship since 1988. What's on your mind?`\
-https://nytimes.com/athletic/6079047/2025/01/22/notre-dame-football-mailbag-questions-16/
-
-**Zion Williamson's first five years in the NBA were full of highs, lows and drama. What's next?**\
-`Five years ago, anything seemed possible for Zion Williamson and the Pelicans. Now, the future is murky. `\
-https://nytimes.com/athletic/6074320/2025/01/22/zion-williamson-nba-debut-anniversary-pelicans/
 

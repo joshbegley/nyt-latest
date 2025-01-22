@@ -1,3 +1,11 @@
+**Rewriting Jan. 6**\
+`We’re covering President Trump’s pardons.`\
+https://nytimes.com/2025/01/22/briefing/donald-trump-jan-6-pardons.html
+
+**The glitching cartoon stars of the Australian Open and the future of sports media**\
+`A YouTube stream of the Australian Open has gone viral for its glitches, but it's also a sign of the future of sports media.`\
+https://nytimes.com/athletic/6072324/2025/01/22/australian-open-ao-animated-youtube-sports-media-streaming/
+
 **Brentford close to agreement over new Damsgaard contract**\
 `Mikkel Damsgaard is close to signing a new contract with Brentford until 2030.`\
 https://nytimes.com/athletic/6080169/2025/01/22/brentford-mikkel-damsgaard-contract-new/
