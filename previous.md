@@ -1,3 +1,23 @@
+**Stellantis Will Restart Illinois Factory That U.A.W. Pushed to Revive**\
+`The United Automobile Workers union has been pressing the automaker, which owns Chrysler and Jeep, to revive the plant in Belvidere, Ill.`\
+https://nytimes.com/2025/01/22/business/economy/stellantis-illinois-factory-uaw.html
+
+**Jets' trade deadline plans, interest in Jonathan Toews: 5 takeaways from GM Kevin Cheveldayoff**\
+`The Jets GM gave a midseason address Tuesday in which he also spoke about Logan Stanley's role, plans for Winnipeg's UFAs and more.`\
+https://nytimes.com/athletic/6079595/2025/01/22/winnipeg-jets-nhl-ehlers-cheveldayoff/
+
+**NWSL schedule release: Key matchups, how to watch and Decision Day return**\
+`Here's what to expect from the 2025 NWSL season.`\
+https://nytimes.com/athletic/6080738/2025/01/22/nwsl-schedule-release-2025-how-to-watch/
+
+**Man United and Lecce €10m apart on Dorgu valuation**\
+`Manchester United and Lecce are €10million apart in negotiations over wing-back Patrick Dorgu.`\
+https://nytimes.com/athletic/6074938/2025/01/22/manchester-united-transfer-patrick-dorgu-fee/
+
+**A New Thriller Is Coy About Its Director. (It’s Mel Gibson.)**\
+`For “Flight Risk,” his first outing as a director in nearly a decade, the Oscar winner isn’t quite taking center stage.`\
+https://nytimes.com/2025/01/22/movies/mel-gibson-flight-risk.html
+
 **The D.E.I. Retreat Has Some Notable Holdouts**\
 `As racial and gender equity programs come under attack, many companies have scaled back. But Costco, Microsoft and others have forged ahead.`\
 https://nytimes.com/2025/01/22/business/dei-programs-initiatives-costco-microsoft.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6080706/2025/01/22/netflix-espn-nfl-jake-paul-beyon
 **Carolyn Brown, a Shaper of Revolutionary Dance, Dies at 97**\
 `With Merce Cunningham, she forged one of the great partnerships in dance history. She later recounted those years in an incisive, unsparing memoir.`\
 https://nytimes.com/2025/01/22/arts/dance/carolyn-brown-dead.html
-
-**A New Fear in Schools: Will ICE Agents Come?**\
-`Readers worry about immigration raids in schools. Also: Immigrants who fear seeking health care; military shortcomings; women’s slow progress; betting on Bitcoin.`\
-https://nytimes.com/2025/01/22/opinion/immigration-ice-schools.html
-
-**Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
-`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
-https://nytimes.com/athletic/6073644/2025/01/22/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
-
-**Submit your questions for Audrey Snyder's Penn State mailbag**\
-`With the bulk of the roster returning, Penn State carries high expectations into the offseason. `\
-https://nytimes.com/athletic/6080906/2025/01/22/penn-state-football-offseason-2025-james-franklin/
-
-**Houthis Say They Will Free the Crew of a Cargo Ship They Hijacked 14 Months Ago**\
-`The Iranian-backed rebel group in Yemen made the announcement after the Houthis said they would scale back attacks given the cease-fire in the conflict in Gaza.`\
-https://nytimes.com/2025/01/22/world/middleeast/houthis-yemen-ship-seized.html
-
-**These New Yorkers Were Jailed for Jan. 6 Crimes. Trump Set Them Free.**\
-`Two former New York City police officers and members of the Proud Boys and the Oath Keepers were among the nearly 1,600 who received an extraordinary legal reprieve.`\
-https://nytimes.com/2025/01/22/nyregion/nyc-trump-jan-6-pardons.html
 

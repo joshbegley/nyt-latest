@@ -1,3 +1,23 @@
+**Stellantis Will Restart Illinois Factory That U.A.W. Pushed to Revive**\
+`The United Automobile Workers union has been pressing the automaker, which owns Chrysler and Jeep, to revive the plant in Belvidere, Ill.`\
+https://nytimes.com/2025/01/22/business/economy/stellantis-illinois-factory-uaw.html
+
+**Jets' trade deadline plans, interest in Jonathan Toews: 5 takeaways from GM Kevin Cheveldayoff**\
+`The Jets GM gave a midseason address Tuesday in which he also spoke about Logan Stanley's role, plans for Winnipeg's UFAs and more.`\
+https://nytimes.com/athletic/6079595/2025/01/22/winnipeg-jets-nhl-ehlers-cheveldayoff/
+
+**NWSL schedule release: Key matchups, how to watch and Decision Day return**\
+`Here's what to expect from the 2025 NWSL season.`\
+https://nytimes.com/athletic/6080738/2025/01/22/nwsl-schedule-release-2025-how-to-watch/
+
+**Man United and Lecce €10m apart on Dorgu valuation**\
+`Manchester United and Lecce are €10million apart in negotiations over wing-back Patrick Dorgu.`\
+https://nytimes.com/athletic/6074938/2025/01/22/manchester-united-transfer-patrick-dorgu-fee/
+
+**A New Thriller Is Coy About Its Director. (It’s Mel Gibson.)**\
+`For “Flight Risk,” his first outing as a director in nearly a decade, the Oscar winner isn’t quite taking center stage.`\
+https://nytimes.com/2025/01/22/movies/mel-gibson-flight-risk.html
+
 **The D.E.I. Retreat Has Some Notable Holdouts**\
 `As racial and gender equity programs come under attack, many companies have scaled back. But Costco, Microsoft and others have forged ahead.`\
 https://nytimes.com/2025/01/22/business/dei-programs-initiatives-costco-microsoft.html
