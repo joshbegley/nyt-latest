@@ -1,3 +1,11 @@
+**OG Anunoby in the film room: Knicks' lockdown 'stunter' shares his defensive secrets**\
+`The All-Defense contender can reel off the details of thefts he has no business recalling.`\
+https://nytimes.com/athletic/6079326/2025/01/22/og-anunoby-defensive-secrets-knicks-nba/
+
+**Deadly Winter Storm Barrels Into the Carolinas and Brings Icy Roads**\
+`The powerful storm, fueled by a whirling mass of cold air that usually extends across the Arctic, was expected to leave much of the South in the low-teens or single-digit degrees.`\
+https://nytimes.com/2025/01/22/weather/winter-storm-snow-cold-south.html
+
 **‘Living Through Hell’: How North Africa Keeps Migrants From Europe**\
 `Libya deported more than 600 men from Niger last month as North African countries — financed by the European Union to tackle migration — have ramped up expulsions of sub-Saharan Africans.`\
 https://nytimes.com/2025/01/22/world/africa/libya-migrants-niger.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/world/americas/mexico-cartel-terrorists-trade.htm
 **One Family in Gaza Returned Home. But Home Was Gone.**\
 `“It took us a few minutes to accept that this pile of rubble was our home,” said Islam Dahliz, whose family was ordered by Israeli forces to evacuate Rafah in May.`\
 https://nytimes.com/2025/01/22/world/middleeast/gaze-destruction.html
-
-**Trump Asserts a Muscular Vision of Presidential Power on First Day Back**\
-`In a flurry of unilateral executive actions, Mr. Trump revived disputed claims of broad presidential authority from his first term — and made some new ones. Court battles seem likely.`\
-https://nytimes.com/2025/01/22/us/politics/trump-executive-orders.html
-
-**Bringing Anne Frank’s Secret Annex to New York, and the World**\
-`Covered windows, peeling wallpaper: For the first time outside of Amsterdam, an exhibition reconstructs Anne’s hiding place during the devastation of the Holocaust.`\
-https://nytimes.com/2025/01/22/arts/design/anne-frank-annex-new-york.html
 
