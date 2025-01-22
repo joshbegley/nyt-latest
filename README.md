@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
 
 **Once-promising Canucks struggle against lowly Sabres, give up late lead: 3 takeaways**\
-`Vancouver surrendered two third-period goals to JJ Peterka and a poor Buffalo team playing in the second leg of a back-to-back.`\
+`Vancouver surrendered two third-period goals by JJ Peterka and a poor Buffalo team playing in the second leg of a back-to-back.`\
 https://nytimes.com/athletic/6079872/2025/01/22/canucks-lose-to-sabres-takeaways/
 
 **You Asked for This Cease-Fire, Mr. President. Make Sure It Holds.**\
