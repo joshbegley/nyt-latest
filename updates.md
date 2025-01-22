@@ -1,3 +1,11 @@
+**2 Families, in Business for 50 Years, Wage War in a South Korean Boardroom**\
+`Control of Korea Zinc, the world’s largest producer of zinc, is at stake in a battle challenging the country’s entrenched chaebol system of powerful conglomerates.`\
+https://nytimes.com/2025/01/21/business/korea-zinc-young-poong.html
+
+**Source: Chances of Jimmy Butler deal to Suns increase after Phoenix-Utah trade**\
+`On Tuesday, the Suns traded their 2031 unprotected first-round pick to the Jazz in exchange for first-round picks in 2025, 2027 and 2029.`\
+https://nytimes.com/athletic/6079497/2025/01/21/jimmy-butler-suns-jazz-trade-heat/
+
 **Drum Location**\
 `Landon Horton makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/01/21/crosswords/daily-puzzle-2025-01-22.html
