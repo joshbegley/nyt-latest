@@ -1,3 +1,15 @@
+**The Pistons at midseason: Optimism abound, and the playoffs are in sight**\
+`Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
+https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
+
+**Keylor Navas joins Newell's Old Boys**\
+`Keylor Navas has joined Argentinean club Newell&#8217;s Old Boys.`\
+https://nytimes.com/athletic/6074790/2025/01/22/keylor-navas-transfer-newells-old-boys/
+
+**Why Ben Johnson chose the Chicago Bears, and what it means for Caleb Williams' future**\
+`On the "Scoop City" podcast, a breakdown of perhaps the most consequential hiring of this coaching cycle.`\
+https://nytimes.com/athletic/6078674/2025/01/22/ben-johnson-hired-chicago-bears-caleb-williams/
+
 **Lukas Podolski interview: Playing at 39, Arteta memories and why Havertz is 'not a striker'**\
 `The former Arsenal forward is considering retirement but is still keeping a keen eye on events at his former club`\
 https://nytimes.com/athletic/6072936/2025/01/22/lukas-podolski-interview/

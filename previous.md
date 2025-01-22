@@ -1,3 +1,11 @@
+**The Pistons at midseason: Optimism abound, and the playoffs are in sight**\
+`Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
+https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
+
+**Keylor Navas joins Newell's Old Boys**\
+`Keylor Navas has joined Argentinean club Newell&#8217;s Old Boys.`\
+https://nytimes.com/athletic/6074790/2025/01/22/keylor-navas-transfer-newells-old-boys/
+
 **Lukas Podolski interview: Playing at 39, Arteta memories and why Havertz is 'not a striker'**\
 `The former Arsenal forward is considering retirement but is still keeping a keen eye on events at his former club`\
 https://nytimes.com/athletic/6072936/2025/01/22/lukas-podolski-interview/
@@ -14,7 +22,7 @@ https://nytimes.com/2025/01/22/business/dealbook/trump-tariffs-money.html
 `PARIS – Legendary San Antonio Spurs coach Gregg Popovich is “attacking his rehab with the same resilience” after suffering a stroke in November that he’d shown on the bench, chief executive RC Buford said, but his return to the team this season remains in question.`\
 https://nytimes.com/athletic/6080269/2025/01/22/gregg-popovich-spurs-return-stroke/
 
-**Why Ben Johnson chose the Chicago Bears, and it means for Caleb Williams' future**\
+**Why Ben Johnson chose the Chicago Bears, and what it means for Caleb Williams' future**\
 `On the "Scoop City" podcast, a breakdown of perhaps the most consequential hiring of this coaching cycle.`\
 https://nytimes.com/athletic/6078674/2025/01/22/ben-johnson-hired-chicago-bears-caleb-williams/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/arts/television/prime-target-leo-woodall.html
 **Israel Keeps Up Raids in West Bank, Arresting 25, Palestinian Reports Say**\
 `As many as 600 people were held in a hospital overnight, the mayor of the city of Jenin told a Palestinian news agency. The death toll from the two-day operation rose to 10, officials said.`\
 https://nytimes.com/2025/01/22/world/middleeast/israel-west-bank-jenin-raids.html
-
-**Single Parents Should Get as Much Paid Leave as Couples, Spanish Court Rules**\
-`The decision follows a constitutional court ruling that barred discrimination against babies born into single-parent families.`\
-https://nytimes.com/2025/01/22/world/europe/spain-single-parents-paid-leave.html
-
-**Spate of Violent Antisemitic Attacks Rattles Australia**\
-`The police said they were investigating whether “overseas actors” were involved the vandalizing of synagogues and a day care center.`\
-https://nytimes.com/2025/01/22/world/asia/australia-antisemitic-attacks.html
 
