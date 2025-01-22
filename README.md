@@ -1,4 +1,4 @@
-**Justice Dept. to investigate local officials who obstruct immigration enforcement.**\
+**The Justice Dept. orders investigations of any city and state officials who obstruct immigration enforcement.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2025/01/22/us/trump-news/justice-dept-to-investigate-local-officials-who-obstruct-immigration-enforcement
 
