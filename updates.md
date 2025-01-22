@@ -1,3 +1,11 @@
+**Madison Keys will win or lose, her way**\
+`The American is back in the last four in Melbourne, with her husband in her coaching box. They work it out`\
+https://nytimes.com/athletic/6079967/2025/01/22/madison-keys-australian-open-coach-bjorn-fratangelo/
+
+**Prince Harry Agrees to Last-Minute Settlement With Murdoch’s U.K. Tabloids**\
+`Harry had presented the lawsuit as a moral crusade and a legal reckoning for Rupert Murdoch’s media empire. In the end, he joined hundreds of other claimants in agreeing to avoid a full trial.`\
+https://nytimes.com/2025/01/22/world/europe/prince-harry-murdoch-lawsuit.html
+
 **OG Anunoby in the film room: Knicks' lockdown 'stunter' shares his defensive secrets**\
 `The All-Defense contender can reel off the details of thefts he has no business recalling.`\
 https://nytimes.com/athletic/6079326/2025/01/22/og-anunoby-defensive-secrets-knicks-nba/

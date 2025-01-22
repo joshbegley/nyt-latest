@@ -1,3 +1,11 @@
+**Madison Keys will win or lose, her way**\
+`The American is back in the last four in Melbourne, with her husband in her coaching box. They work it out`\
+https://nytimes.com/athletic/6079967/2025/01/22/madison-keys-australian-open-coach-bjorn-fratangelo/
+
+**Prince Harry Agrees to Last-Minute Settlement With Murdoch’s U.K. Tabloids**\
+`Harry had presented the lawsuit as a moral crusade and a legal reckoning for Rupert Murdoch’s media empire. In the end, he joined hundreds of other claimants in agreeing to avoid a full trial.`\
+https://nytimes.com/2025/01/22/world/europe/prince-harry-murdoch-lawsuit.html
+
 **OG Anunoby in the film room: Knicks' lockdown 'stunter' shares his defensive secrets**\
 `The All-Defense contender can reel off the details of thefts he has no business recalling.`\
 https://nytimes.com/athletic/6079326/2025/01/22/og-anunoby-defensive-secrets-knicks-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6079319/2025/01/22/cowboys-brian-schottenheimer-coa
 **From Day 1, Trump Shows He’ll Test Limits of What He Can Get Away With**\
 `It is unclear how much is left in Washington to restrain him.`\
 https://nytimes.com/2025/01/22/us/politics/trump-pardons-jan-6-day-1.html
-
-**How Labeling Cartels ‘Terrorists’ Could Hurt the U.S. Economy**\
-`Isolating U.S. companies from cartel activities could be almost impossible given that the criminal groups operate in sectors like agriculture and tourism, leaving some American businesses vulnerable to sanctions.`\
-https://nytimes.com/2025/01/22/world/americas/mexico-cartel-terrorists-trade.html
-
-**One Family in Gaza Returned Home. But Home Was Gone.**\
-`“It took us a few minutes to accept that this pile of rubble was our home,” said Islam Dahliz, whose family was ordered by Israeli forces to evacuate Rafah in May.`\
-https://nytimes.com/2025/01/22/world/middleeast/gaze-destruction.html
 
