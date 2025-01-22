@@ -1,3 +1,15 @@
+**Amad, the Rangers loanee: 'He was the best trainer every day'**\
+`The Ivorian endured a difficult six-month spell at Rangers but the quality and work ethic he's known for now still shone through at Ibrox`\
+https://nytimes.com/athletic/6058566/2025/01/22/amad-manchester-united-loan-rangers/
+
+**Remembering the House on Revello Drive**\
+`Claire Fahy, who attended U.C.L.A. and helped cover the fires for The Times, reflects on her own ties to the Palisades fire.`\
+https://nytimes.com/2025/01/22/us/fires-revello-drive.html
+
+**Ashley Bouder, New York City Ballet Veteran, to Retire**\
+`The ballerina is leaving the company in February after 25 years. She will dance the lead in “Firebird” in her final program.`\
+https://nytimes.com/2025/01/22/arts/dance/ashley-bouder-retiring-new-york-city-ballet.html
+
 **Stellantis Will Restart Illinois Factory That U.A.W. Pushed to Revive**\
 `The United Automobile Workers union has been pressing the automaker, which owns Chrysler and Jeep, to revive the plant in Belvidere, Ill.`\
 https://nytimes.com/2025/01/22/business/economy/stellantis-illinois-factory-uaw.html
