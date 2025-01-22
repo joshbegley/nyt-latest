@@ -1,3 +1,11 @@
+**Barcelona have been linked with Marcus Rashford - but do they need him?**\
+`Hansi Flick has the best-performing attack in the Champions League so the Manchester United forward feels like an odd fit `\
+https://nytimes.com/athletic/6079596/2025/01/22/marcus-rashford-barcelona-benfica-champions-league/
+
+**Jarell Quansah is back on track after a false start under Arne Slot**\
+`The Liverpool manager utilised his squad against Lille and the likes of Quansah, Harvey Elliott and Federico Chiesa all impressed`\
+https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
+
 **Word of the Day: dismantle**\
 `This word has appeared in 375 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html

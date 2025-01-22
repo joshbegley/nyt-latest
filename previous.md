@@ -1,3 +1,7 @@
+**Barcelona have been linked with Marcus Rashford - but do they need him?**\
+`Hansi Flick has the best-performing attack in the Champions League so the Manchester United forward feels like an odd fit `\
+https://nytimes.com/athletic/6079596/2025/01/22/marcus-rashford-barcelona-benfica-champions-league/
+
 **Word of the Day: dismantle**\
 `This word has appeared in 375 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html
 `Aston Villa fell to a difficult defeat against Monaco in the Champions League`\
 https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-monaco/
 
-**Jarell Quansah is back on track after a notably slow start under Arne Slot**\
+**Jarell Quansah is back on track after a false start under Arne Slot**\
 `The Liverpool manager utilised his squad against Lille and the likes of Quansah, Harvey Elliott and Federico Chiesa all impressed`\
 https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077568/2025/01/22/everton-david-moyes-attack-calve
 **Has Arteta reached a conclusion after his wing experiments?**\
 `With Saka out, here's our analysis of the current wide combinations and how they've fared`\
 https://nytimes.com/athletic/6075002/2025/01/22/has-mikel-arteta-finally-reached-a-conclusion-after-his-arsenal-wing-experiments/
-
-**Do Chelsea have a problem to resolve in midfield?**\
-`Chelsea's limited options in midfield against Wolves on Monday night highlighted a growing issue for Enzo Maresca`\
-https://nytimes.com/athletic/6078208/2025/01/22/chelsea-midfield-options-lavia/
 
