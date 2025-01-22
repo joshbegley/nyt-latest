@@ -1,3 +1,19 @@
+**At the Cloisters, Sor Juana’s Words Ring Out in Song**\
+`The opera “Primero Sueño” translates Sor Juana Inés de la Cruz’s poem about the soul’s journey into a musical promenade around the Cloisters.`\
+https://nytimes.com/2025/01/22/arts/music/the-cloisters-sor-juana-primero-sueno-opera.html
+
+**I Simply Love Cabbage**\
+`And you probably will, too, after trying brown butter bucatini with charred cabbage, cabbage Parm and yamitsuki (Japanese “addictive” cabbage).`\
+https://nytimes.com/2025/01/22/dining/i-simply-love-cabbage.html
+
+**The oldest rivalry in world football may not be where you think**\
+`Hallam FC and Sheffield FC first met in 1860, and their 2025 meeting drew interest from the U.S, Cuba and Kazakhstan`\
+https://nytimes.com/athletic/6033248/2025/01/22/oldest-derby-world-football-hallam-sheffield-fc/
+
+**Bucs OC Liam Coen to return to Tampa Bay on new contract: Source**\
+`In one season as the Buccaneers offensive coordinator, Coen guided Baker Mayfield to career highs in multiple statistical categories. `\
+https://nytimes.com/athletic/6076590/2025/01/22/liam-coen-tampa-bay-buccaneers-jacksonville-jaguars/
+
 **The Justice Dept. orders investigations of any city and state officials who obstruct immigration enforcement.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2025/01/22/us/trump-news/justice-dept-to-investigate-local-officials-who-obstruct-immigration-enforcement
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/22/world/middleeast/turkey-ski-resort-fire-families-
 **Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
 `For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
 https://nytimes.com/athletic/6073696/2025/01/22/bills-chiefs-how-to-watch-odds-picks-betting/
-
-**Why are Colts entrusting Lou Anarumo to fix their defense after his Bengals D crumbled?**\
-`Some around the NFL, including Chiefs star Travis Kelce, were shocked Cincinnati fired Anarumo. "I’ve always respected the hell out of him."`\
-https://nytimes.com/athletic/6080598/2025/01/22/lou-anarumo-colts-defensive-coordinator-bengals/
-
-**Penguins Today: Kevin Hayes and Los Angeles first responders**\
-`Hayes, who honors first responders after every game, scored the opening goal against the Kings.`\
-https://nytimes.com/athletic/6080749/2025/01/22/penguins-today-los-angeles-fires-kevin-hayes/
-
-**Rangers fan survey results: Confidence in the playoffs and Laviolette, but not Drury**\
-`More than 1,000 Rangers fans participated in our fan survey, giving their preferred trade candidates, thoughts on a rebuild and more.`\
-https://nytimes.com/athletic/6078143/2025/01/22/rangers-fan-survey-results-drury-laviolette/
-
-**Live Updates: Sun Belt Iced Over After Record Snowfall**\
-`A powerful storm, fueled by a whirling mass of cold air originating from the Arctic, plunged temperatures into the teens. At least 10 people have died.`\
-https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south
 

@@ -1,3 +1,19 @@
+**At the Cloisters, Sor Juana’s Words Ring Out in Song**\
+`The opera “Primero Sueño” translates Sor Juana Inés de la Cruz’s poem about the soul’s journey into a musical promenade around the Cloisters.`\
+https://nytimes.com/2025/01/22/arts/music/the-cloisters-sor-juana-primero-sueno-opera.html
+
+**I Simply Love Cabbage**\
+`And you probably will, too, after trying brown butter bucatini with charred cabbage, cabbage Parm and yamitsuki (Japanese “addictive” cabbage).`\
+https://nytimes.com/2025/01/22/dining/i-simply-love-cabbage.html
+
+**The oldest rivalry in world football may not be where you think**\
+`Hallam FC and Sheffield FC first met in 1860, and their 2025 meeting drew interest from the U.S, Cuba and Kazakhstan`\
+https://nytimes.com/athletic/6033248/2025/01/22/oldest-derby-world-football-hallam-sheffield-fc/
+
+**Bucs OC Liam Coen to return to Tampa Bay on new contract: Source**\
+`In one season as the Buccaneers offensive coordinator, Coen guided Baker Mayfield to career highs in multiple statistical categories. `\
+https://nytimes.com/athletic/6076590/2025/01/22/liam-coen-tampa-bay-buccaneers-jacksonville-jaguars/
+
 **The Justice Dept. orders investigations of any city and state officials who obstruct immigration enforcement.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2025/01/22/us/trump-news/justice-dept-to-investigate-local-officials-who-obstruct-immigration-enforcement
