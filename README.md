@@ -1,3 +1,7 @@
+**Jets hiring Aaron Glenn, Lions defensive coordinator, as head coach: Sources**\
+`The former Detroit Lions defensive coordinator is also a former Jets star cornerback.`\
+https://nytimes.com/athletic/6074341/2025/01/22/aaron-glenn-jets-head-coach-hired/
+
 **Here Is How Trump Moved to Seal the Southern Border on Day 1**\
 `President Trump issued a raft of executive orders that effectively block migrants from entering the United States and applying for asylum, closing off major legal channels for immigration.`\
 https://nytimes.com/2025/01/22/us/politics/trump-border-asylum-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/nashville-shooting-antioch-high-school.html
 **Spanish Version of White House Website Has Vanished (Again)**\
 `The Spanish-language website also vanished at the start of President Trump’s first term. No time frame was set for restoring it.`\
 https://nytimes.com/2025/01/22/us/politics/white-house-website-spanish.html
-
-**Heat Today: To climb East standings, Heat must start taking care of schedule's soft spots**\
-`The Heat's habits of blowing leads and playing down to weaker opponents could hurt them in April.`\
-https://nytimes.com/athletic/6080661/2025/01/22/erik-spoelstra-bam-adebayo-jimmy-butler-heat-nba/
 
