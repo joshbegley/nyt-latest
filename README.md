@@ -1,3 +1,11 @@
+**Bengals hire Notre Dame's Al Golden as defensive coordinator**\
+`Golden returns to the Bengals after serving as the franchise's linebackers coach in 2020 and 2021.`\
+https://nytimes.com/athletic/6067810/2025/01/22/al-golden-defensive-coordinator-hired-bengals/
+
+**Let’s Discuss: Inside 100 Years of the Harlem Renaissance**\
+`What do you know about the Harlem Renaissance? How does the movement still resonate today? Post your comments and questions for our journalist Veronica Chambers by Jan. 30.`\
+https://nytimes.com/2025/01/22/learning/lesson-plans/lets-discuss-inside-100-years-of-the-harlem-renaissance.html
+
 **Lynn Ban, Jewelry Designer and ‘Bling Empire’ Star, Dies After Ski Accident**\
 `The designer’s son confirmed her death in a post on Instagram. Ms. Ban had designed jewelry worn by celebrities including Rihanna and Beyoncé.`\
 https://nytimes.com/2025/01/22/fashion/lynn-ban-dead-bling-empire.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009943043/nashville-antioch-school-shooting.h
 **Legendary Nebraska DC Charlie McBride honored 30 years after he tried — and failed — to retire**\
 `McBride was the DC at Nebraska for 18 seasons and led some of the Huskers' most successful defenses.`\
 https://nytimes.com/athletic/6081545/2025/01/22/charlie-mcbride-nebraska-defensive-coordinator-legacy-award/
-
-**Kennedy Would Keep Stake in H.P.V. Vaccine Suit if Confirmed**\
-`Robert F. Kennedy Jr., President Trump’s nominee to be health secretary, would have oversight power over the vaccine’s maker, Merck, if confirmed.`\
-https://nytimes.com/2025/01/22/us/politics/rfk-hpv-vaccine-merck.html
-
-**Senate Democrats Block G.O.P. Effort to Criminalize Some Abortion Providers**\
-`The bill would require that infants born alive after an attempted abortion receive the same protection as any newborn baby, and threaten medical providers with prison time for failing to resuscitate them.`\
-https://nytimes.com/2025/01/22/us/politics/senate-abortion-vote-republicans.html
 
