@@ -1,3 +1,7 @@
+**Listen: Chelsea's Sanchez problem and do they need more signings?**\
+`Ayo Akinwolere was joined by Liam Twomey and Phil Hay on the latest episode of ‘The Athletic FC Podcast’ to assess the situation at Chelsea`\
+https://nytimes.com/athletic/6080280/2025/01/22/athletic-fc-podcast-chelsea-signings/
+
 **Pistons at midseason: Optimism is present and playoffs are in sight**\
 `Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
 https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
