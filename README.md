@@ -1,3 +1,11 @@
+**Real Madrid out-earned Manchester City by nearly £180m last season as stadium income becomes key**\
+`Deloitte’s Money League reveals growing revenue gap between Premier League teams and the Spanish champions`\
+https://nytimes.com/athletic/6080474/2025/01/22/real-madrid-out-earned-manchester-city-by-nearly-180m-last-season-as-stadium-income-becomes-key/
+
+**Amid a Wintry Mess, New Orleans Also Savors a Spectacle**\
+`The storm brought both dazzling landscapes of ice and snow and challenges to a city unaccustomed to such severe winter weather.`\
+https://nytimes.com/2025/01/22/weather/amid-a-wintry-mess-new-orleans-also-savors-a-spectacle.html
+
 **Ex-N.Y.P.D. Sergeant Guilty of Punching Man 13 Times Gets No Jail Time**\
 `Christian Zapata hit a man repeatedly after being called to help calm an autistic teenager. Mr. Zapata got into a confrontation with the man after the sergeant refused to wear a mask.`\
 https://nytimes.com/2025/01/22/nyregion/nypd-officer-convicted.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/laken-riley-act-explained.html
 **Champions League Briefing: Playoffs take shape; Bellingham's backheel; Wembanyama sees City's collapse**\
 `The NBA star witnessed a Man City capitulation, the playoffs are taking shape and Real Madrid are back on it`\
 https://nytimes.com/athletic/6081300/2025/01/22/champions-league-playoffs-wembanyama/
-
-**Does D.E.I. Help or Hurt Jewish Students?**\
-`Some students and professors are questioning whether campus diversity, equity and inclusion offices should do more to combat antisemitism, or whether D.E.I. itself is the problem.`\
-https://nytimes.com/2025/01/22/us/dei-jewish-students-campus-protests.html
-
-**Roki Sasaki dons new uniform in Dodgers' introduction**\
-`In his first year as a Dodger, Sasaki will earn the league minimum of $760,000 after classifying as an international amateur.`\
-https://nytimes.com/athletic/6081600/2025/01/22/roki-sasaki-dodgers-introduction/
 
