@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Can Ohio State build a 12-team CFP dynasty?**\
+`Plus, more questions on whether the CFP format was a success, next year's rising teams and college football's longest season ever.`\
+https://nytimes.com/athletic/6080378/2025/01/22/college-football-dynasties-cfp-ohio-state/
+
 **Trump Starts Countdown Toward Tariffs on America’s Largest Trading Partners**\
 `The president said he will impose tariffs Feb. 1 on products from Canada, Mexico and China, which together account for more than a third of U.S. trade`\
 https://nytimes.com/2025/01/22/us/politics/trump-tariffs-trade-mexico-canada-china.html
