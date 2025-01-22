@@ -1,3 +1,15 @@
+**The D.E.I. Retreat Has Some Notable Holdouts**\
+`As racial and gender equity programs come under attack, many companies have scaled back. But Costco, Microsoft and others have forged ahead.`\
+https://nytimes.com/2025/01/22/business/dei-programs-initiatives-costco-microsoft.html
+
+**Trump Wants to Rename Denali. Alaska Lawmakers Don’t.**\
+`The president wants to honor a predecessor, William McKinley, by returning his name to North America’s highest peak. The state’s senators prefer the Native name.`\
+https://nytimes.com/2025/01/22/climate/denali-mckinley-alaska-trump.html
+
+**What’s the Rule About Looking at Women in Public?**\
+`The magazine’s Ethicist columnist on the difference between noticing women’s attractiveness and ogling them.`\
+https://nytimes.com/2025/01/22/magazine/staring-women-public-ethics.html
+
 **As Netflix stock surges, 'anti-ESPN' sports strategy emerges**\
 `Netflix's earnings report sent its stock surging — and made it a bit more clear how sports content impacts the company's present and future.`\
 https://nytimes.com/athletic/6080706/2025/01/22/netflix-espn-nfl-jake-paul-beyonce-wwe-ufc-earnings-nflx/
