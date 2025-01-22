@@ -1,3 +1,11 @@
+**Hollinger: As Jimmy Butler rumors swirl, Suns keep chasing short-term highs**\
+`Multiple teams have made bets of some size that Phoenix will be terrible between 2026 and 2031. And those bets may pay off.`\
+https://nytimes.com/athletic/6079964/2025/01/22/jimmy-butler-trade-rumors-suns-mat-ishbia/
+
+**UConn's Dan Hurley berates ref during timeout: 'I'm the best coach'**\
+`Hurley got heated with the referee during a timeout when he thought there was a foul on a defensive rebound attempt.`\
+https://nytimes.com/athletic/6080546/2025/01/22/dan-hurley-uconn-referee-best-coach/
+
 **Jocelyn Benson, Michigan’s Secretary of State, Is Running for Governor**\
 `Ms. Benson, a Democrat, jumped into a high-profile and potentially crowded race to lead one of the country’s top battleground states.`\
 https://nytimes.com/2025/01/22/us/politics/jocelyn-benson-michigan-governor.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000009942078/the-new-rules-of-the-trump-era
 **The Bounce: NBA midseason report cards! Plus, Jan. 22 is a day for buckets**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6080173/2025/01/22/nba-report-cards-kobe-bryant-lakers-81-nba-the-bounce/
-
-**Mandel's Mailbag: Can Ohio State build a 12-team CFP dynasty?**\
-`Plus, more questions on whether the CFP format was a success, next year's rising teams and college football's longest season ever.`\
-https://nytimes.com/athletic/6080378/2025/01/22/college-football-dynasties-cfp-ohio-state/
-
-**Trump Starts Countdown Toward Tariffs on America’s Largest Trading Partners**\
-`The president said he will impose tariffs Feb. 1 on products from Canada, Mexico and China, which together account for more than a third of U.S. trade`\
-https://nytimes.com/2025/01/22/us/politics/trump-tariffs-trade-mexico-canada-china.html
 
