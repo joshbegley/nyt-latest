@@ -1,3 +1,11 @@
+**How do coldblooded creatures stay warm in a winter storm?**\
+`By Alexandra E. Petri and Patricia Mazzei`\
+https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-do-coldblooded-creatures-stay-warm-in-a-winter-storm
+
+**The impact Hall of Fame induction has on players' baseball cards**\
+`Where the card market stands for the latest class of Baseball Hall of Famers `\
+https://nytimes.com/athletic/6079498/2025/01/21/ichiro-sabathia-wagner-hof-cards/
+
 **How to be a tennis pigeon: The worst matchups and how players prepare for them**\
 `A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
 https://nytimes.com/athletic/6077048/2025/01/21/worst-tennis-head-to-head-matchup-pigeon/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/21/business/trump-tariffs-china.html
 **Cole Hamels, Ryan Braun headline 2026 Hall of Fame ballot newcomers**\
 `We take a look at the players the BBWAA’s screening committee might consider over the next four Hall of Fame voting cycles.`\
 https://nytimes.com/athletic/6079263/2025/01/21/hamels-braun-2026-hall-of-fame-ballot/
-
-**Champions League Briefing: A Barcelona win for the ages. Why did City sell Alvarez? Can anyone stop Liverpool?**\
-`Tim Spiers recaps the best talking points from Tuesday's Champions League action, as Liverpool and Barcelona secured spots in the last 16`\
-https://nytimes.com/athletic/6078681/2025/01/21/champions-league-barcelona-best-game-liverpool-alvarez/
-
-**4 Charged in String of Burglaries at Luxury Homes in Ohio**\
-`The defendants, all from Chile, are accused of participating in a South American crime group targeting multimillion-dollar homes, the authorities said. One of them appeared to belong to the Cincinnati Bengals quarterback Joe Burrow.`\
-https://nytimes.com/2025/01/21/us/joe-burrow-ohio-burglary-arrests.html
 
