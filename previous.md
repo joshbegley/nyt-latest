@@ -1,3 +1,19 @@
+**Lukas Podolski interview: Playing at 39, Arteta memories and why Havertz is 'not a striker'**\
+`The former Arsenal forward is considering retirement but is still keeping a keen eye on events at his former club`\
+https://nytimes.com/athletic/6072936/2025/01/22/lukas-podolski-interview/
+
+**What next for Kuol, Newcastle's 'project' player facing a pivotal six months?**\
+`The Australian has yet to make a competitive appearance for the first team, so what might the future hold for him?`\
+https://nytimes.com/athletic/6080072/2025/01/22/garang-kuol-newcastle-future/
+
+**Taking Trump’s Tariffs Threats Seriously and Literally**\
+`Some analysts increasingly believe the president sees levies as more than a negotiating ploy. To him, they’re a potential source of revenue.`\
+https://nytimes.com/2025/01/22/business/dealbook/trump-tariffs-money.html
+
+**Popovich’s return to Spurs this season from a stroke still in question**\
+`PARIS – Legendary San Antonio Spurs coach Gregg Popovich is “attacking his rehab with the same resilience” after suffering a stroke in November that he’d shown on the bench, chief executive RC Buford said, but his return to the team this season remains in question.`\
+https://nytimes.com/athletic/6080269/2025/01/22/gregg-popovich-spurs-return-stroke/
+
 **Why Ben Johnson chose the Chicago Bears, and it means for Caleb Williams' future**\
 `On the "Scoop City" podcast, a breakdown of perhaps the most consequential hiring of this coaching cycle.`\
 https://nytimes.com/athletic/6078674/2025/01/22/ben-johnson-hired-chicago-bears-caleb-williams/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/22/world/europe/spain-single-parents-paid-leave.html
 **Spate of Violent Antisemitic Attacks Rattles Australia**\
 `The police said they were investigating whether “overseas actors” were involved the vandalizing of synagogues and a day care center.`\
 https://nytimes.com/2025/01/22/world/asia/australia-antisemitic-attacks.html
-
-**Cardinals confident in prioritizing development as spring training nears**\
-`There are the questions the Cardinals want to answer this year. They need to know who they can build around — and who they can't.`\
-https://nytimes.com/athletic/6078586/2025/01/22/cardinals-development-spring-training/
-
-**Lowetide: What should the Oilers expect from new defenceman John Klingberg?**\
-`Klingberg will either be a brilliant addition for the Oilers or a quick audition that will be forgotten by fall.`\
-https://nytimes.com/athletic/6078380/2025/01/22/oilers-john-klingberg-outcomes/
-
-**Josh Allen cruises, Kliff Kingsbury calls a gem, more divisional round thoughts: Quick Outs**\
-`The Bills didn't need their star QB to be a superhero Sunday, while Saquon Barkley, Travis Kelce and Kliff Kingsbury all excelled.`\
-https://nytimes.com/athletic/6079098/2025/01/22/nfl-divisional-round-bills-saquon-barkley-quick-outs/
-
-**Why Wrexham vs Birmingham symbolises English football's new financial landscape**\
-`The involvement of Ryan Reynolds, Rob McElhenney and Tom Brady has helped make League One an increasingly high-stakes affair`\
-https://nytimes.com/athletic/6051860/2025/01/22/wrexham-birmingham-spending-power-english-football/
 
