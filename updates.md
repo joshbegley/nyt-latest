@@ -1,3 +1,11 @@
+**OG Anunoby in the film room: Knicks' lockdown 'stunter' shares his defensive secrets**\
+`The All-Defense contender can reel off the details of thefts he has no business recalling.`\
+https://nytimes.com/athletic/6079326/2025/01/22/og-anunoby-defensive-secrets-knicks-nba/
+
+**Deadly Winter Storm Barrels Into the Carolinas and Brings Icy Roads**\
+`The powerful storm, fueled by a whirling mass of cold air that usually extends across the Arctic, was expected to leave much of the South in the low-teens or single-digit degrees.`\
+https://nytimes.com/2025/01/22/weather/winter-storm-snow-cold-south.html
+
 **‘Living Through Hell’: How North Africa Keeps Migrants From Europe**\
 `Libya deported more than 600 men from Niger last month as North African countries — financed by the European Union to tackle migration — have ramped up expulsions of sub-Saharan Africans.`\
 https://nytimes.com/2025/01/22/world/africa/libya-migrants-niger.html
