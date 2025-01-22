@@ -1,3 +1,11 @@
+**Champions League Briefing: Playoffs take shape; Bellingham's backheel; Wembanyama sees City's collapse**\
+`The NBA star witnessed a Man City capitulation, the playoffs are taking shape and Real Madrid are back on it`\
+https://nytimes.com/athletic/6081300/2025/01/22/champions-league-playoffs-wembanyama/
+
+**Does D.E.I. Help or Hurt Jewish Students?**\
+`Some students and professors are questioning whether campus diversity, equity and inclusion offices should do more to combat antisemitism, or whether D.E.I. itself is the problem.`\
+https://nytimes.com/2025/01/22/us/dei-jewish-students-campus-protests.html
+
 **Roki Sasaki dons new uniform in Dodgers' introduction**\
 `The latest sterling Los Angeles Dodger officially arrived on Wednesday afternoon as the franchise formally introduced Roki Sasaki.`\
 https://nytimes.com/athletic/6081600/2025/01/22/roki-sasaki-dodgers-introduction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6081967/2025/01/22/mike-borgonzi-titans-2025-nfl-dr
 **Winter storm, heavy snow causes multiple postponements across sports world**\
 `NBA game, huge women's college basketball matchup among games impacted by weather.`\
 https://nytimes.com/athletic/6081188/2025/01/22/winter-storm-heavy-snow-postponements/
-
-**Oilers' Connor McDavid says 3-game suspension was 'little bit harsh'**\
-`McDavid was speaking to the media for the first time since he struck Garland in the head in the dying seconds of Saturday’s 3-2 loss.`\
-https://nytimes.com/athletic/6081517/2025/01/22/oilers-connor-mcdavid-comments-suspension/
-
-**Why Deportations Were Higher Under Biden Than in Trump’s First Term**\
-`A record number of border crossers and the continuation of a Trump-era policy were factors.`\
-https://nytimes.com/2025/01/22/us/trump-biden-immigrants-deportations.html
 
