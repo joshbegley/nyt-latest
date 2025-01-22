@@ -1,3 +1,7 @@
+**Pistons at midseason: Optimism abound, playoffs are in sight**\
+`Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
+https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
+
 **Wrexham captain McClean involved in car accident on way to training**\
 `Wrexham captain James McClean was involved in a car accident on his way to training Wednesday, the club has confirmed.`\
 https://nytimes.com/athletic/6080312/2025/01/22/wrexham-captain-james-mcclean-involved-in-car-accident-on-way-to-training/
