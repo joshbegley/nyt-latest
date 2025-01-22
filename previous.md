@@ -1,3 +1,11 @@
+**José Jiménez Dies at 76; Turned a Gang Into a Voice for Puerto Ricans**\
+`He retooled the Young Lords into a militant advocacy and service organization, modeled after the Black Panthers. Based in Chicago, it had chapters nationwide.`\
+https://nytimes.com/2025/01/22/us/jose-jimenez-dead.html
+
+**College Football Playoff championship averages 22.1 million viewers, down from previous year**\
+`Monday’s championship between Notre Dame and Ohio State peaked with more than 26 million viewers.`\
+https://nytimes.com/athletic/6081817/2025/01/22/college-football-playoff-championship-viewership-espn/
+
 **Mavericks' Dereck Lively II out at least 1 month with ankle injury**\
 `The Mavericks have been plagued by injury issues since Christmas and will miss Lively’s lob-finishing ability and rim protection.`\
 https://nytimes.com/athletic/6081265/2025/01/22/dereck-lively-out-ankle-injury-mavericks/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009937069/how-europe-is-preparing-f
 **Trump Is Already Making America Weaker and More Vulnerable**\
 `Favoring TikTok over national security, releasing rioters, undermining global health efforts — these actions put all of us at risk.`\
 https://nytimes.com/2025/01/22/opinion/trump-tiktok-who.html
-
-**Scoop City: Jayden Daniels is thriving, Lamar heads home & HC predictions**\
-`In today&#8217;s newsletter, we looked at offensive wizardry in Washington, Lamar Jackson&#8217;s playoff woes and the remaining coaching vacancies.`\
-https://nytimes.com/athletic/6081726/2025/01/22/why-jayden-daniels-is-thriving-washington-nfl-scoop-city/
-
-**Man Charged With Giving Fake Botox Injections That Sickened Clients**\
-`A Manhattan aesthetician was arrested and charged with injecting patients at his medical spa with counterfeit Botox, prosecutors said, sending some to the hospital.`\
-https://nytimes.com/2025/01/22/nyregion/fake-botox-joey-grant-luther.html
 
