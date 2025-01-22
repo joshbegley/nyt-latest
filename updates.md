@@ -1,3 +1,11 @@
+**South Carolina Utility Seeks Buyers for Failed Nuclear Project**\
+`The utility, Santee Cooper, is trying to sell two nuclear reactors that it abandoned in 2017 as tech companies seek new sources of electricity for data centers.`\
+https://nytimes.com/2025/01/22/business/energy-environment/south-carolina-nuclear-power-data-centers.html
+
+**Jets centre Adam Lowry out week-to-week with upper-body injury**\
+`Adam Lowry is Winnipeg's de facto No. 2 centre, making his extended absence a troubling item for the top team in the West.`\
+https://nytimes.com/athletic/6081410/2025/01/22/winnipeg-jets-adam-lowry-injury/
+
 **Super Bowl MVP odds: Could Saquon Barkley vault Patrick Mahomes or Josh Allen?**\
 `Barkley is third in the odds to win Super Bowl MVP. How likely is a win for a running back or pass catcher over quarterbacks?`\
 https://nytimes.com/athletic/6081421/2025/01/22/super-bowl-mvp-odds-saquon-barkley-patrick-mahomes-josh-allen/
