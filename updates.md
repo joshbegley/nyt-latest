@@ -1,3 +1,7 @@
+**Five Ways Trump Made It Suddenly Harder to Face Climate Risks**\
+`From national security to home insurance, the president has quickly changed America’s climate adaptation policies in important ways.`\
+https://nytimes.com/2025/01/22/climate/five-ways-trump-made-it-suddenly-harder-to-face-climate-risks.html
+
 **If You Work for the Federal Government, How Are You Feeling About D.E.I.?**\
 `We want to know how workers are processing President Trump’s decision to end hiring practices meant to further diversity, equity and inclusion in the federal work force.`\
 https://nytimes.com/2025/01/22/us/politics/federal-government-dei-callout.html

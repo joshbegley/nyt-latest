@@ -1,3 +1,7 @@
+**Five Ways Trump Made It Suddenly Harder to Face Climate Risks**\
+`From national security to home insurance, the president has quickly changed America’s climate adaptation policies in important ways.`\
+https://nytimes.com/2025/01/22/climate/five-ways-trump-made-it-suddenly-harder-to-face-climate-risks.html
+
 **If You Work for the Federal Government, How Are You Feeling About D.E.I.?**\
 `We want to know how workers are processing President Trump’s decision to end hiring practices meant to further diversity, equity and inclusion in the federal work force.`\
 https://nytimes.com/2025/01/22/us/politics/federal-government-dei-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/nyregion/nyc-gay-bar-drug-murder-trial.html
 **The Political Stories We’re Watching**\
 `The nation’s politics are going to change in President Trump’s second term — though we don’t yet know how.`\
 https://nytimes.com/2025/01/22/us/politics/trump-us-politics-future.html
-
-**Key Trump Nominee Hints at Push for Work Requirements in Medicaid**\
-`Russell T. Vought, President Trump’s nominee to run the Office of Management and Budget, said he supported work requirements for the program that supports low-income Americans.`\
-https://nytimes.com/2025/01/22/us/politics/russell-vought-trump-healthcare.html
 
