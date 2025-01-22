@@ -1,3 +1,15 @@
+**Musk Casts Doubt on Trump’s $100 Billion A.I. Announcement**\
+`Mr. Trump had claimed the A.I. announcement as an early trophy, taking credit for the companies’ decision to spend up to $500 billion building data centers.`\
+https://nytimes.com/2025/01/22/us/politics/elon-musk-trump-stargate-ai-announcement.html
+
+**Nachos on the ice at the Oilers-Capitals game: A quick breakdown**\
+`A fan tossed a plate of nachos onto the ice Tuesday night in Edmonton. What happened next, and how did it affect the game?`\
+https://nytimes.com/athletic/6081096/2025/01/22/capitals-oilers-nhl-nachos-perry-lindgren/
+
+**Gunman Injures 2 at Nashville High School, Then Shoots Himself, Police Say**\
+`The suspect opened fire inside Antioch High School, southeast of downtown Nashville, the authorities said. The police said there was no longer a threat.`\
+https://nytimes.com/2025/01/22/us/nashville-shooting-antioch-high-school.html
+
 **Spanish Version of White House Website Has Vanished (Again)**\
 `The Spanish-language website also vanished at the start of President Trump’s first term. No time frame was set for restoring it.`\
 https://nytimes.com/2025/01/22/us/politics/white-house-website-spanish.html
