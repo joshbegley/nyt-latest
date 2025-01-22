@@ -1,40 +1,40 @@
-**How Tyranny Begins**\
-`Tyranny doesn’t happen overnight. Take it from the people who missed the first signs.`\
-https://nytimes.com/video/opinion/100000009923409/government-oppression-power-tyranny.html
+**Questlove on Parsing 50 Years of Music for His ‘S.N.L.’ Documentary**\
+`Digging through more than 900 episodes was bound to yield some surprises — and some warm memories. The experience didn’t disappoint.`\
+https://nytimes.com/2025/01/22/arts/television/questlove-snl-music-documentary.html
 
-**Hamilton test Ferrari F1 car for first time**\
-`Lewis Hamilton got behind the wheel of a Ferrari Formula One car for the first time in a test for his new team on Wednesday.`\
-https://nytimes.com/athletic/6080033/2025/01/22/lewis-hamilton-ferrari-car-first-test/
+**The Dubious History of America’s Most Famous Monarchist**\
+`It’s not hard to understand how Curtis Yarvin won the admiration of powerful patrons.`\
+https://nytimes.com/2025/01/22/opinion/trump-vance-yarvin-monarchy.html
 
-**NBA All-Star ballots: Our voters’ picks for East and West starters**\
-`Some choices are easy. Others, like the ones in the Western Conference frontcourt, are a bit more difficult.`\
-https://nytimes.com/athletic/6078267/2025/01/22/nba-all-star-voting-2025-lebron-giannis-wembanyama/
+**A Child Is Killed, and a Suspect’s Arrest History Raises Questions**\
+`Caleb Rijos, 14, was fatally stabbed on his way to school. The man who the police say is responsible has a long criminal record.`\
+https://nytimes.com/2025/01/22/nyregion/a-child-is-killed-and-a-suspects-arrest-history-raises-questions.html
 
-**It's Jan. 22, so get ready for something noteworthy to happen in the NBA**\
-`Counting last year's two big individual performances, this date has been a day when larger-than-life moments happen in the NBA.`\
-https://nytimes.com/athletic/6079050/2025/01/22/nba-kobe-zion-barkley-embiid-kat/
+**It Wasn’t Just a Diner. It Was a Hub for Altadena.**\
+`The Little Red Hen Coffee Shop offered grits and community for decades before it was lost in the Eaton fire.`\
+https://nytimes.com/2025/01/22/us/eaton-fire-altadena-california.html
 
-**Ex-Executive Who Oversaw South Korean Airport Renovations Is Found Dead**\
-`Son Chang-wan was in office while works were undertaken at Muan International Airport. Last month, a plane crashed into a concrete barrier there, killing 179 people.`\
-https://nytimes.com/2025/01/22/world/asia/south-korea-crash-executive-dead.html
+**$850,000 Homes in New Mexico, Virginia and Montana**\
+`An adobe home in Santa Fe, a Craftsman bungalow in Norfolk, and a Victorian-style house in Missoula.`\
+https://nytimes.com/2025/01/22/realestate/850000-homes-in-new-mexico-virginia-and-montana.html
 
-**Louisiana Shuts 100-Mile Stretch of I-10 as Rare Snowstorm Hits Gulf Coast**\
-`The latest closure means that nearly three-quarters of Louisiana’s portion of the coast-to-coast highway is shut. A rare winter storm brought record snowfall to the state on Tuesday.`\
-https://nytimes.com/2025/01/22/us/louisiana-snow-blizzard-i10-road-closure.html
+**The New Rules of the Trump Era**\
+`Ezra Klein and Aaron Retica discuss the oligarchic power dynamics of the second Trump administration.`\
+https://nytimes.com/2025/01/22/opinion/ezra-klein-podcast-trump-inauguration.html
 
-**Late Night Tries to Keep Up With Trump’s Executive Orders**\
-`“If you could put anything in front of him yesterday, he would have signed it,” said Ronny Chieng. “Melania, now’s your chance to update the prenup.”`\
-https://nytimes.com/2025/01/22/arts/television/late-night-trump-executive-orders.html
+**Fighting Alongside Russia, North Koreans Wage Their Own War**\
+`Ukrainian forces described a different kind of enemy, fighting with unfamiliar tactics and little option to retreat.`\
+https://nytimes.com/2025/01/22/world/europe/north-korea-soldiers-ukraine.html
 
-**Dortmund part ways with head coach Sahin following Bologna defeat**\
-`Borussia Dortmund have parted ways with head coach Nuri Sahin.`\
-https://nytimes.com/athletic/6066088/2025/01/22/borussia-dortmund-sahin-future/
+**Evacuation Orders Given Late to Area Where Fire Deaths Were Concentrated**\
+`All 17 people who died in the Eaton fire lived in an area where evacuation orders came hours later than others, even as homes nearby were already burning. Some people never received warnings at all.`\
+https://nytimes.com/2025/01/22/us/evacuation-orders-given-late-to-area-where-fire-deaths-were-concentrated.html
 
-**Working With Your Hands**\
-`When was the last time you made something?`\
-https://nytimes.com/2025/01/22/learning/working-with-your-hands.html
+**It’s Not Your Mother’s Kidz Bop Anymore**\
+`Kidz Bop 50 is here, marking the latest of the enduring brand’s kid-friendly sanitization of pop music.`\
+https://nytimes.com/2025/01/22/arts/music/kidz-bop-50.html
 
-**At a Deluxe Dining Room on the 100th Floor, a Chef Toils in Obscurity**\
-`In New York, private restaurants in luxury towers are a popular amenity. The public cannot eat there, and residents only drop in occasionally.`\
-https://nytimes.com/2025/01/22/nyregion/condo-tower-restaurants.html
+**Oil and Gas Companies Should Pay for the Los Angeles Fires**\
+`It’s time to require these companies to compensate communities, homeowners, businesses and even insurers for the losses.`\
+https://nytimes.com/2025/01/22/opinion/los-angeles-wildfires-insurance.html
 
