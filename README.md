@@ -1,3 +1,7 @@
+**Bucks-Pelicans game postponed due to snow in New Orleans**\
+`New Orleans received 10 inches of snow Tuesday from a stunning blizzard that blanked much of the city.`\
+https://nytimes.com/athletic/6081013/2025/01/22/nba-postponement-bucks-pelicans-game/
+
 **Review: Muti and Chicago Give a Singing Account of a Rare Verdi**\
 `Riccardo Muti led the Chicago Symphony Orchestra at Carnegie Hall in a program that featured Verdi’s “Four Seasons” and Tchaikovsky.`\
 https://nytimes.com/2025/01/22/arts/music/review-riccardo-muti-chicago-symphony-verdi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6074938/2025/01/22/manchester-united-transfer-patri
 **A New Thriller Is Coy About Its Director. (It’s Mel Gibson.)**\
 `For “Flight Risk,” his first outing as a director in nearly a decade, the Oscar winner isn’t quite taking center stage.`\
 https://nytimes.com/2025/01/22/movies/mel-gibson-flight-risk.html
-
-**The D.E.I. Retreat Has Some Notable Holdouts**\
-`As racial and gender equity programs come under attack, many companies have scaled back. But Costco, Microsoft and others have forged ahead.`\
-https://nytimes.com/2025/01/22/business/dei-programs-initiatives-costco-microsoft.html
 
