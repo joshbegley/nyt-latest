@@ -1,3 +1,7 @@
+**Ben Shelton slams 'embarrassing and disrespectful' Australian Open interviews**\
+`Shelton criticized Tony Jones' comments about Novak Djokovic as well as on-court interviews at the tournament.`\
+https://nytimes.com/athletic/6080163/2025/01/22/ben-shelton-australian-open-interviews/
+
 **Why Kevin O'Connell's extension with the Vikings was an absolute no-brainer**\
 `The Vikings were never going to trade O'Connell, who led the team to a 14-3 record and within one win of the No. 1 seed in the NFC.`\
 https://nytimes.com/athletic/6079452/2025/01/22/kevin-oconnell-vikings-contract-extension/
