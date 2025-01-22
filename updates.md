@@ -1,3 +1,11 @@
+**Corrections: Jan. 22, 2025**\
+`Corrections that appeared in print on Wednesday, Jan. 22, 2025.`\
+https://nytimes.com/2025/01/22/pageoneplus/corrections-jan-22-2025.html
+
+**The Bounce: NBA midseason report cards! Plus, Jan. 22 is a day for buckets**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6080173/2025/01/22/nba-report-cards-kobe-bryant-lakers-81-nba-the-bounce/
+
 **Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
 `“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
 https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
