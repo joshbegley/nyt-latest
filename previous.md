@@ -1,3 +1,11 @@
+**Five deaths in Texas crash occurred after tractor-trailer struck three vehicles.**\
+`It started as a minor crash on a bridge between two vans, but a tractor-trailer wasn’t able to keep from hitting those gathered on the bridge.`\
+https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/five-deaths-in-texas-crash-occurred-after-tractor-trailer-struck-three-vehicles
+
+**Why You Might Suddenly Be Following Trump on Instagram and Facebook**\
+`Many Instagram and Facebook users say they are confused about why they are seeing posts from the president and vice president in their feeds. Here’s what to know.`\
+https://nytimes.com/2025/01/22/technology/personaltech/trump-instagram-facebook.html
+
 **Judi Dench Says She No Longer Goes to Events Alone, Citing Vision Loss**\
 `The veteran English actress said that she now needed to attend public events with someone else, because of her worsening macular degeneration.`\
 https://nytimes.com/2025/01/22/arts/judi-dench-vision-loss.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/troops-border-trump.html
 **These Corals Are Made for Walking**\
 `With time-lapse video, scientists show how tiny mushroom corals can move themselves to influence their fate.`\
 https://nytimes.com/2025/01/22/science/walking-coral.html
-
-**Clinton Bailey, American-Israeli Who Preserved Bedouin Culture, Dies at 88**\
-`Armed with a camera and tape recorder, he spent decades documenting the ancient traditions of nomadic Bedouin tribes, creating a record of a vanishing culture.`\
-https://nytimes.com/2025/01/22/world/middleeast/clinton-bailey-dead.html
-
-**Trump Revokes Order That Banned Discrimination in Federal Hiring**\
-`His order revokes one signed by President Lyndon B. Johnson in 1965 that prohibited discriminatory practices in hiring and employment in government contracting.`\
-https://nytimes.com/2025/01/22/us/politics/trump-order-discrimination-federal-hiring.html
 

@@ -1,3 +1,11 @@
+**Five deaths in Texas crash occurred after tractor-trailer struck three vehicles.**\
+`It started as a minor crash on a bridge between two vans, but a tractor-trailer wasn’t able to keep from hitting those gathered on the bridge.`\
+https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/five-deaths-in-texas-crash-occurred-after-tractor-trailer-struck-three-vehicles
+
+**Why You Might Suddenly Be Following Trump on Instagram and Facebook**\
+`Many Instagram and Facebook users say they are confused about why they are seeing posts from the president and vice president in their feeds. Here’s what to know.`\
+https://nytimes.com/2025/01/22/technology/personaltech/trump-instagram-facebook.html
+
 **Trump Pardoned Her for Storming the Capitol. ‘Absolutely Not,’ She Said.**\
 `Pamela Hemphill, 71, of Boise, Idaho, who served 60 days in prison, said it would be “an insult to the Capitol Police” if she accepted the pardon.`\
 https://nytimes.com/2025/01/22/us/politics/pamela-hemphill-trump-jan-6-pardon-rejection.html
