@@ -1,5 +1,9 @@
+**Trump’s Hint at Deal Making Gives China a Little Breathing Room**\
+`Whether it is over TikTok, fentanyl or trade, Beijing might welcome a compromise to buy time to address its ailing economy and bolster its position globally.`\
+https://nytimes.com/2025/01/22/world/asia/trump-china-deal-making.html
+
 **The Athletic FC: Breaking down Benfica vs Barca chaos, Amorim anger, first $1m women's player?**\
-`Today in TAFC we break down the chaos of Barca's comeback win over Benfica, Amorim smashes a TV, and Girma set to be the first $1m player.`\
+`Today in TAFC, we break down the chaos of Barca's comeback win over Benfica, Amorim smashes a TV, and Girma set to be the first $1m player.`\
 https://nytimes.com/athletic/6080122/2025/01/22/benfica-barcelona-amorim-tv-girma-1m/
 
 **Rewriting Jan. 6**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077048/2025/01/22/worst-tennis-head-to-head-matchu
 **Ben Shelton slams 'embarrassing and disrespectful' Australian Open interviews**\
 `Shelton criticized Tony Jones' comments about Novak Djokovic as well as on-court interviews at the tournament.`\
 https://nytimes.com/athletic/6080163/2025/01/22/ben-shelton-australian-open-interviews/
-
-**Why Kevin O'Connell's extension with the Vikings was an absolute no-brainer**\
-`The Vikings were never going to trade O'Connell, who led the team to a 14-3 record and within one win of the No. 1 seed in the NFC.`\
-https://nytimes.com/athletic/6079452/2025/01/22/kevin-oconnell-vikings-contract-extension/
 
