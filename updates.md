@@ -1,3 +1,7 @@
+**Louisiana Shuts 100-Mile Stretch of I-10 as Rare Snowstorm Hits Gulf Coast**\
+`The latest closure means that nearly three-quarters of Louisiana’s portion of the coast-to-coast highway is shut. A rare winter storm brought record snowfall to the state on Tuesday.`\
+https://nytimes.com/2025/01/22/us/louisiana-snow-blizzard-i10-road-closure.html
+
 **Simeone vs Alonso: A meeting of coaching minds - and one that could happen again soon**\
 `Alonso's Bayer Leverkusen visited Simeone's Atletico Madrid on Tuesday night - The Athletic was watching both men`\
 https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atletico-leverkusen/

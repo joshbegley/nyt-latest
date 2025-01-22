@@ -1,3 +1,7 @@
+**Louisiana Shuts 100-Mile Stretch of I-10 as Rare Snowstorm Hits Gulf Coast**\
+`The latest closure means that nearly three-quarters of Louisiana’s portion of the coast-to-coast highway is shut. A rare winter storm brought record snowfall to the state on Tuesday.`\
+https://nytimes.com/2025/01/22/us/louisiana-snow-blizzard-i10-road-closure.html
+
 **Late Night Tries to Keep Up With Trump’s Executive Orders**\
 `“If you could put anything in front of him yesterday, he would have signed it,” said Ronny Chieng. “Melania, now’s your chance to update the prenup.”`\
 https://nytimes.com/2025/01/22/arts/television/late-night-trump-executive-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6079596/2025/01/22/marcus-rashford-barcelona-benfic
 **Word of the Day: dismantle**\
 `This word has appeared in 375 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html
-
-**The three passes that summed up Aston Villa's bad night in Monaco**\
-`Aston Villa fell to a difficult defeat against Monaco in the Champions League`\
-https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-monaco/
 
