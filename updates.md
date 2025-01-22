@@ -1,3 +1,7 @@
+**Thursday Briefing: Trump’s Immigration Crackdown**\
+`Plus, predictions for today’s Oscar nominations.`\
+https://nytimes.com/2025/01/22/briefing/trump-immigration-prince-harry-murdoch-north-korea-russia.html
+
 **Democrats Slow G.O.P. Rush to Confirm Trump Nominees**\
 `Republicans will be able to win approval of President Trump’s top picks if they remain united, but they are frustrated by Democratic tactics.`\
 https://nytimes.com/2025/01/22/us/politics/democrats-trump-nominees.html
