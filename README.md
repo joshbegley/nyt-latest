@@ -1,3 +1,7 @@
+**Simeone vs Alonso: A meeting of coaching minds - and one that could happen again soon**\
+`Xabi Alonso's Bayer Leverkusen travelled to face Diego Simeone's Atletico Madrid on Tuesday night`\
+https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atletico-leverkusen/
+
 **Barcelona have been linked with Marcus Rashford - but do they need him?**\
 `Hansi Flick has the best-performing attack in the Champions League so the Manchester United forward feels like an odd fit `\
 https://nytimes.com/athletic/6079596/2025/01/22/marcus-rashford-barcelona-benfica-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6052145/2025/01/22/malick-yalcouye-brighton-champio
 **How Moyes is trying to fix Everton's attack: Tactical tweaks, support for Calvert-Lewin, new signings?**\
 `It is early days, but Moyes’ Everton look like they are in a much better position to remedy their attacking woes`\
 https://nytimes.com/athletic/6077568/2025/01/22/everton-david-moyes-attack-calvert-lewin-lindstrom/
-
-**Has Arteta reached a conclusion after his wing experiments?**\
-`With Saka out, here's our analysis of the current wide combinations and how they've fared`\
-https://nytimes.com/athletic/6075002/2025/01/22/has-mikel-arteta-finally-reached-a-conclusion-after-his-arsenal-wing-experiments/
 
