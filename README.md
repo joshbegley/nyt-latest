@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6081056/2025/01/22/nfl-draft-first-overall-pick-odd
 
 **Trump’s Paris Withdrawal Is Grimmer This Time**\
 `By David Wallace-Wells`\
-https://nytimes.com/live/2025/01/20/opinion/thepoint/trumps-paris-climate-withdrawal-executive-orders
+https://nytimes.com/2025/01/22/opinion/trumps-paris-climate-withdrawal-executive-orders.html
 
 **Navy SEAL Veteran Said to Be Interim Head of FEMA**\
 `Cameron Hamilton does not appear to have experience coordinating responses to large-scale disasters, like the wildfires in California.`\
