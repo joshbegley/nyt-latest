@@ -1,3 +1,7 @@
+**Why Is Israel Targeting Jenin, in the West Bank?**\
+`As Israel withdraws some of its troops from Gaza during a cease-fire there, it has turned attention to another Palestinian territory — in particular a city with a history of militant activity.`\
+https://nytimes.com/2025/01/22/world/middleeast/why-israel-targeting-jenin.html
+
 **José Jiménez Dies at 76; Turned a Gang Into a Voice for Puerto Ricans**\
 `He retooled the Young Lords into a militant advocacy and service organization, modeled after the Black Panthers. Based in Chicago, it had chapters nationwide.`\
 https://nytimes.com/2025/01/22/us/jose-jimenez-dead.html

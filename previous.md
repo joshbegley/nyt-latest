@@ -1,3 +1,7 @@
+**Why Is Israel Targeting Jenin, in the West Bank?**\
+`As Israel withdraws some of its troops from Gaza during a cease-fire there, it has turned attention to another Palestinian territory — in particular a city with a history of militant activity.`\
+https://nytimes.com/2025/01/22/world/middleeast/why-israel-targeting-jenin.html
+
 **José Jiménez Dies at 76; Turned a Gang Into a Voice for Puerto Ricans**\
 `He retooled the Young Lords into a militant advocacy and service organization, modeled after the Black Panthers. Based in Chicago, it had chapters nationwide.`\
 https://nytimes.com/2025/01/22/us/jose-jimenez-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/insider/covering-an-mpox-outbreak-in-congo-mile-a
 **How Europe Is Preparing for a New Era of Trump**\
 `World leaders gathered in Davos, Switzerland for the annual meeting of the World Economic Forum. Jeanna Smialek, a New York Times reporter, describes how there was a veneer of anxiety over the event, with attendees wondering: How will the new Trump administration affect Europe?`\
 https://nytimes.com/video/world/europe/100000009937069/how-europe-is-preparing-for-a-new-era-of-trump.html
-
-**Trump Is Already Making America Weaker and More Vulnerable**\
-`Favoring TikTok over national security, releasing rioters, undermining global health efforts — these actions put all of us at risk.`\
-https://nytimes.com/2025/01/22/opinion/trump-tiktok-who.html
 
