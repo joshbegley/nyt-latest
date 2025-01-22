@@ -1,3 +1,7 @@
+**Trump Administration Orders D.E.I. Officials Be Put on Leave**\
+`Staff members tasked with overseeing diversity, equity and inclusion efforts were to be placed on paid administrative leave by 5 p.m. Wednesday.`\
+https://nytimes.com/2025/01/22/us/politics/trump-dei-diversity-officials-orders.html
+
 **How Malick Yalcouye is readying himself for Brighton - in the Champions League**\
 `The 19-year-old midfielder is cutting his teeth in Europe's top club competition during his loan with Sturm Graz`\
 https://nytimes.com/athletic/6052145/2025/01/22/malick-yalcouye-brighton-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072840/2025/01/22/alex-yee-interview-paris-olympic
 **Understanding Real Madrid's season: The injuries, the balance and the big-game struggles**\
 `The European champions have not had it all their own way in 2024-25 and they have work to do to advance to the Champions League knockouts`\
 https://nytimes.com/athletic/6076212/2025/01/22/real-madrid-analysis-la-liga-champions-league/
-
-**Why did Manchester United's performance vs Brighton make Ruben Amorim so angry?**\
-`The closing stages of Sunday's game infuriated the United boss. But what was it his players did wrong?`\
-https://nytimes.com/athletic/6078603/2025/01/22/ruben-amorim-manchester-united-positional-indiscipline/
 
