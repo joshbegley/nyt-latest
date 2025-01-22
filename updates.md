@@ -1,3 +1,11 @@
+**Cole Hamels, Ryan Braun headline 2026 Hall of Fame ballot newcomers**\
+`We take a look at the players the BBWAA’s screening committee might consider over the next four Hall of Fame voting cycles.`\
+https://nytimes.com/athletic/6079263/2025/01/21/hamels-braun-2026-hall-of-fame-ballot/
+
+**Champions League Briefing: A Barcelona win for the ages. Why did City sell Alvarez? Can anyone stop Liverpool?**\
+`Tim Spiers recaps the best talking points from Tuesday's Champions League action, as Liverpool and Barcelona secured spots in the last 16`\
+https://nytimes.com/athletic/6078681/2025/01/21/champions-league-barcelona-best-game-liverpool-alvarez/
+
 **4 Charged in String of Burglaries at Luxury Homes in Ohio**\
 `The defendants, all from Chile, are accused of participating in a South American crime group targeting multimillion-dollar homes, the authorities said. One of them appeared to belong to the Cincinnati Bengals quarterback Joe Burrow.`\
 https://nytimes.com/2025/01/21/us/joe-burrow-ohio-burglary-arrests.html
