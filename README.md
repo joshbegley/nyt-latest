@@ -1,40 +1,40 @@
-**‘The Rizzler’ and the Creeping Childishness of Pop Culture**\
-`Some corners of American entertainment are becoming worrisomely infantile.`\
-https://nytimes.com/2025/01/22/magazine/the-rizzler-costco-guys.html
+**Questlove on Parsing 50 Years of Music for His ‘S.N.L.’ Documentary**\
+`Digging through more than 900 episodes was bound to yield some surprises — and some warm memories. The experience didn’t disappoint.`\
+https://nytimes.com/2025/01/22/arts/television/questlove-snl-music-documentary.html
 
-**In Pop Culture, the End of the World Is Always Nigh**\
-`A new book by the British cultural journalist Dorian Lynskey chronicles our centuries-old obsession with doomsday scenarios.`\
-https://nytimes.com/2025/01/22/books/review/everything-must-go-dorian-lynskey.html
+**The Dubious History of America’s Most Famous Monarchist**\
+`It’s not hard to understand how Curtis Yarvin won the admiration of powerful patrons.`\
+https://nytimes.com/2025/01/22/opinion/trump-vance-yarvin-monarchy.html
 
-**How the Debt Could Hamstring Trump’s Agenda**\
-`Republicans are hunting for ways to pay for President Trump’s expensive plans while avoiding a freakout on Wall Street.`\
-https://nytimes.com/2025/01/22/us/politics/trump-agenda-debt-republicans.html
+**A Child Is Killed, and a Suspect’s Arrest History Raises Questions**\
+`Caleb Rijos, 14, was fatally stabbed on his way to school. The man who the police say is responsible has a long criminal record.`\
+https://nytimes.com/2025/01/22/nyregion/a-child-is-killed-and-a-suspects-arrest-history-raises-questions.html
 
-**Why Did ‘Woj’ Take a 99% Pay Cut? To Save the Team He Loves.**\
-`Adrian Wojnarowski is trying to help St. Bonaventure’s tiny basketball program thrive in the scary new world of college sports.`\
-https://nytimes.com/2025/01/22/magazine/adrian-wojnarowski-college-basketball.html
+**It Wasn’t Just a Diner. It Was a Hub for Altadena.**\
+`The Little Red Hen Coffee Shop offered grits and community for decades before it was lost in the Eaton fire.`\
+https://nytimes.com/2025/01/22/us/eaton-fire-altadena-california.html
 
-**How Tyranny Begins**\
-`Tyranny doesn’t happen overnight. Take it from the people who missed the first signs.`\
-https://nytimes.com/2025/01/22/opinion/trump-government-oppression-power-tyranny.html
+**$850,000 Homes in New Mexico, Virginia and Montana**\
+`An adobe home in Santa Fe, a Craftsman bungalow in Norfolk, and a Victorian-style house in Missoula.`\
+https://nytimes.com/2025/01/22/realestate/850000-homes-in-new-mexico-virginia-and-montana.html
 
-**Susie Wiles Is Trump’s Best Hope**\
-`The incoming White House chief of staff may well represent the thin line between the president and disaster.`\
-https://nytimes.com/2025/01/22/opinion/susie-wiles-trump.html
+**The New Rules of the Trump Era**\
+`Ezra Klein and Aaron Retica discuss the oligarchic power dynamics of the second Trump administration.`\
+https://nytimes.com/2025/01/22/opinion/ezra-klein-podcast-trump-inauguration.html
 
-**Travel 2025: ‘Friend-Finding Tours,’ Private Islands and a Mixed Bag of Prices**\
-`The year is shaping up to be a record-breaker, with an increasing number of travelers setting out for destinations around the world. Here’s what they can expect.`\
-https://nytimes.com/explain/2025/01/22/travel/2025-travel-trends-vacation
+**Fighting Alongside Russia, North Koreans Wage Their Own War**\
+`Ukrainian forces described a different kind of enemy, fighting with unfamiliar tactics and little option to retreat.`\
+https://nytimes.com/2025/01/22/world/europe/north-korea-soldiers-ukraine.html
 
-**This Soup Should Always Be on the Table**\
-`A beefy, brothy Korean soup, is as reliable as it is ubiquitous.`\
-https://nytimes.com/2025/01/22/magazine/gukbap-recipe.html
+**Evacuation Orders Given Late to Area Where Fire Deaths Were Concentrated**\
+`All 17 people who died in the Eaton fire lived in an area where evacuation orders came hours later than others, even as homes nearby were already burning. Some people never received warnings at all.`\
+https://nytimes.com/2025/01/22/us/evacuation-orders-given-late-to-area-where-fire-deaths-were-concentrated.html
 
-**Predicting the Oscar Nominations in a Wild and Wide-Open Season**\
-`You can count on films like “Emilia Pérez” and big stars like Timothée Chalamet and Ariana Grande, but this year may hold some surprises, too.`\
-https://nytimes.com/2025/01/22/movies/oscar-nominations-predictions.html
+**It’s Not Your Mother’s Kidz Bop Anymore**\
+`Kidz Bop 50 is here, marking the latest of the enduring brand’s kid-friendly sanitization of pop music.`\
+https://nytimes.com/2025/01/22/arts/music/kidz-bop-50.html
 
-**Wayne Taylor Racing Rejoins Cadillac and Goes for Its Fifth Win at Daytona**\
-`The team had success with the brand before moving to Acura for 2021. Now it’s back.`\
-https://nytimes.com/2025/01/22/sports/daytona-wayne-taylor-cadillac.html
+**Oil and Gas Companies Should Pay for the Los Angeles Fires**\
+`It’s time to require these companies to compensate communities, homeowners, businesses and even insurers for the losses.`\
+https://nytimes.com/2025/01/22/opinion/los-angeles-wildfires-insurance.html
 
