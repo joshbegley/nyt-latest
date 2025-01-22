@@ -1,3 +1,7 @@
+**Submit your questions for Audrey Snyder's Penn State mailbag**\
+`With the bulk of the roster returning, Penn State carries high expectations into the offseason. `\
+https://nytimes.com/athletic/6080906/2025/01/22/penn-state-football-offseason-2025-james-franklin/
+
 **Houthis Say They Will Free the Crew of a Cargo Ship They Hijacked 14 Months Ago**\
 `The Iranian-backed rebel group in Yemen made the announcement after the Houthis said they would scale back attacks given the cease-fire in the conflict in Gaza.`\
 https://nytimes.com/2025/01/22/world/middleeast/houthis-yemen-ship-seized.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/jamie-dimon-jpmorgan-trump-tariffs.ht
 **The World’s Richest Men, Their Friends and Their Frocks**\
 `For his latest Vuitton collection, Pharrell Williams tapped his best bud Nigo to be co-creative director. And Bernard Arnault made it back from the Trump inauguration to see it.`\
 https://nytimes.com/2025/01/22/style/louis-vuitton-pharrell-williams-nigo-paris.html
-
-**Arkansas star freshman Fland likely out for season; Razorbacks 0-5 in SEC**\
-`In John Calipari's first season, Arkansas is one of just four high-major teams yet to win a conference game.`\
-https://nytimes.com/athletic/6080632/2025/01/22/boogie-fland-injury-arkansas-basketball-calipari/
 
