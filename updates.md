@@ -1,3 +1,7 @@
+**Why Ben Johnson chose the Chicago Bears, and it means for Caleb Williams' future**\
+`On the "Scoop City" podcast, a breakdown of perhaps the most consequential hiring of this coaching cycle.`\
+https://nytimes.com/athletic/6078674/2025/01/22/ben-johnson-hired-chicago-bears-caleb-williams/
+
 **As NBA trade deadline nears, the Jimmy Butler-Heat countdown ticks louder and louder**\
 `How much uglier can things get between Butler and Miami between now and Feb. 6? `\
 https://nytimes.com/athletic/6075545/2025/01/22/jimmy-butler-heat-trade-deadline-nba/

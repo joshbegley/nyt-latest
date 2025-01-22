@@ -1,3 +1,7 @@
+**Why Ben Johnson chose the Chicago Bears, and it means for Caleb Williams' future**\
+`On the "Scoop City" podcast, a breakdown of perhaps the most consequential hiring of this coaching cycle.`\
+https://nytimes.com/athletic/6078674/2025/01/22/ben-johnson-hired-chicago-bears-caleb-williams/
+
 **As NBA trade deadline nears, the Jimmy Butler-Heat countdown ticks louder and louder**\
 `How much uglier can things get between Butler and Miami between now and Feb. 6? `\
 https://nytimes.com/athletic/6075545/2025/01/22/jimmy-butler-heat-trade-deadline-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6079098/2025/01/22/nfl-divisional-round-bills-saquo
 **Why Wrexham vs Birmingham symbolises English football's new financial landscape**\
 `The involvement of Ryan Reynolds, Rob McElhenney and Tom Brady has helped make League One an increasingly high-stakes affair`\
 https://nytimes.com/athletic/6051860/2025/01/22/wrexham-birmingham-spending-power-english-football/
-
-**Trump’s Hint at Deal Making Gives China a Little Breathing Room**\
-`Whether it is over TikTok, fentanyl or trade, Beijing might welcome a compromise to buy time to address its ailing economy and bolster its position globally.`\
-https://nytimes.com/2025/01/22/world/asia/trump-china-deal-making.html
 
