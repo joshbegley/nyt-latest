@@ -1,3 +1,7 @@
+**Submit questions for Jayson Stark's Baseball Hall of Fame mailbag**\
+`Got a question about this year's Hall of Fame vote, next year’s election or the HOF outlook in the years after that? Ask away. `\
+https://nytimes.com/athletic/6079558/2025/01/21/hall-of-fame-mailbag-questions/
+
 **Harvard Adopts a Definition of Antisemitism for Discipline Cases**\
 `Many universities have been reluctant to embrace a definition that, among other things, considers some criticisms of Israel as antisemitic. The university’s decision was part of a lawsuit settlement.`\
 https://nytimes.com/2025/01/21/us/harvard-antisemitism-definition-discipline.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/21/us/politics/birthright-citizenship-visa-holders.h
 **Five things we learned from the 2025 Baseball Hall of Fame election**\
 `Takeaways from an election in which Ichiro, CC Sabathia and Billy Wagner punched their tickets to Cooperstown. `\
 https://nytimes.com/athletic/6078322/2025/01/21/baseball-hall-of-fame-election-2025-takeaways/
-
-**Trump Pardons Creator of Silk Road Drug Marketplace**\
-`Ross Ulbricht was serving a life sentence for creating a site in a shady corner of the internet to sell heroin, cocaine and other illicit substances.`\
-https://nytimes.com/2025/01/21/technology/trump-ross-ulbricht-silk-road.html
 
