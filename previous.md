@@ -1,3 +1,15 @@
+**Kneeling, wheeling, dealing: Tyler Bertuzzi racking up goals for Blackhawks**\
+`Bertuzzi has a knack for scoring goals from close to the net. Now, on a line with Connor Bedard, that unique skill is paying off more often.`\
+https://nytimes.com/athletic/6078907/2025/01/22/blackhawks-tyler-bertuzzi-goals/
+
+**The Pulse: One mysterious vote shy**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6079653/2025/01/22/ichiro-suzuki-hall-of-fame-the-pulse/
+
+**What Is an Executive Order?**\
+`President Trump began the first hours of his second administration by signing dozens of the orders.`\
+https://nytimes.com/2025/01/22/us/politics/what-is-an-executive-order.html
+
 **Ben Shelton slams 'embarrassing and disrespectful' Australian Open interviews**\
 `Shelton criticized Tony Jones' comments about Novak Djokovic as well as on-court interviews at the tournament.`\
 https://nytimes.com/athletic/6080163/2025/01/22/ben-shelton-australian-open-interviews/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6078596/2025/01/22/packers-offseason-to-do-list-202
 **Mike Vrabel’s winding path made him the coach the Patriots need now**\
 `A coaching journey he needed to take, and the former star linebacker uniquely suited to put a faltering franchise back on track.`\
 https://nytimes.com/athletic/6079189/2025/01/22/mike-vrabel-coaching-path-patriots-head-coach/
-
-**Astros spring training: Cam Smith headlines non-roster invitees**\
-`A total of 23 non-roster invitees will invade the Astros’ major-league clubhouse in hopes of opening eyes or winning an Opening Day spot.`\
-https://nytimes.com/athletic/6079400/2025/01/22/houston-astros-spring-training-non-roster-invitees/
-
-**How William Nylander mastered the art of the breakaway**\
-`Nylander has become the NHL’s breakaway king. How does he do it?`\
-https://nytimes.com/athletic/6078917/2025/01/22/maple-leafs-william-nylander-nhl-breakaways/
-
-**Alperen Şengün unplugged: Rockets big man on Jokić comparisons, All-Star hopes and more**\
-`Nearing real stardom, Şengün reflects on Rockets' belief in him: "Whoever trusts me, or backs me up, I will take care of them all my life."`\
-https://nytimes.com/athletic/6079651/2025/01/22/alperen-sengun-rockets-nba-all-star-nikola-jokic/
 
