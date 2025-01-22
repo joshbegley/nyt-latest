@@ -1,3 +1,7 @@
+**Review: Muti and Chicago Give a Singing Account of a Rare Verdi**\
+`Riccardo Muti led the Chicago Symphony Orchestra at Carnegie Hall in a program that featured Verdi’s “Four Seasons” and Tchaikovsky.`\
+https://nytimes.com/2025/01/22/arts/music/review-riccardo-muti-chicago-symphony-verdi.html
+
 **Amad, the Rangers loanee: 'He was the best trainer every day'**\
 `The Ivorian endured a difficult six-month spell at Rangers but the quality and work ethic he's known for now still shone through at Ibrox`\
 https://nytimes.com/athletic/6058566/2025/01/22/amad-manchester-united-loan-rangers/
