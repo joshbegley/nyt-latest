@@ -2,8 +2,8 @@
 `More than 1,000 Rangers fans participated in our fan survey, giving their preferred trade candidates, thoughts on a rebuild and more.`\
 https://nytimes.com/athletic/6078143/2025/01/22/rangers-fan-survey-results-drury-laviolette/
 
-**Live Updates: Rare Winter Storm Brings Snow, Ice and Cold to South**\
-`The powerful storm, fueled by a whirling mass of cold air originating from the Arctic, was expected to plunge temperatures into the teens. At least 10 people have died.`\
+**Live Updates: Sun Belt Iced Over After Record Snowfall**\
+`A powerful storm, fueled by a whirling mass of cold air originating from the Arctic, plunged temperatures into the teens. At least 10 people have died.`\
 https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south
 
 **Hollinger: As Jimmy Butler rumors swirl, Suns keep chasing short-term highs**\
