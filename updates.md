@@ -1,3 +1,7 @@
+**Congress Clears Measure to Deport Immigrants Accused of Crimes**\
+`Final approval by the House sent the legislation, which requires the detention and deportation of unauthorized migrants charged with crimes, to President Trump’s desk.`\
+https://nytimes.com/2025/01/22/us/politics/laken-riley-act.html
+
 **Wild excited to get Spurgeon and Kaprizov back: 'We all miss his smile, that beautiful smile'**\
 `After missing nine and 12 games respectively, two of the Wild's key players are set to return against Utah.`\
 https://nytimes.com/athletic/6081833/2025/01/22/wild-kirill-kaprizov-jared-spurgeon-injury-return-zuccarello/

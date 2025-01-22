@@ -1,3 +1,7 @@
+**Congress Clears Measure to Deport Immigrants Accused of Crimes**\
+`Final approval by the House sent the legislation, which requires the detention and deportation of unauthorized migrants charged with crimes, to President Trump’s desk.`\
+https://nytimes.com/2025/01/22/us/politics/laken-riley-act.html
+
 **Wild excited to get Spurgeon and Kaprizov back: 'We all miss his smile, that beautiful smile'**\
 `After missing nine and 12 games respectively, two of the Wild's key players are set to return against Utah.`\
 https://nytimes.com/athletic/6081833/2025/01/22/wild-kirill-kaprizov-jared-spurgeon-injury-return-zuccarello/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077832/2025/01/22/paris-saint-germain-4-manchester
 **House Republicans Create New Jan. 6 Inquiry to Recast the Assault**\
 `Speaker Mike Johnson said the panel would counter “false narratives” about the Jan. 6, 2021, riot and what led up to it, a sign that the G.O.P. would continue to try shift blame for the attack.`\
 https://nytimes.com/2025/01/22/us/politics/jan6-house-committee.html
-
-**Ravens appear unlikely to make massive changes after disappointing playoff exit**\
-`General manager Eric DeCosta and head coach John Harbaugh are already preparing themselves for what next season brings. `\
-https://nytimes.com/athletic/6081718/2025/01/22/ravens-roster-offseason-john-harbaugh-eric-decosta/
 
