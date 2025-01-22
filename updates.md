@@ -1,3 +1,7 @@
+**Trump Expands Quick Deportations Across the U.S.**\
+`President Trump’s first administration tried to implement a similarly sped-up process for removing unauthorized immigrants, but those efforts were hampered by federal courts.`\
+https://nytimes.com/2025/01/21/us/politics/trump-deportations-immigration.html
+
 **Submit questions for Jayson Stark's Baseball Hall of Fame mailbag**\
 `Got a question about this year's Hall of Fame vote, next year’s election or the HOF outlook in the years after that? Ask away. `\
 https://nytimes.com/athletic/6079558/2025/01/21/hall-of-fame-mailbag-questions/
