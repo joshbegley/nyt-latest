@@ -1,3 +1,7 @@
+**Winter storm, heavy snow causes multiple postponements across sports world**\
+`NBA game, huge women's college basketball matchup among games impacted by weather.`\
+https://nytimes.com/athletic/6081188/2025/01/22/winter-storm-heavy-snow-postponements/
+
 **Oilers' Connor McDavid says 3-game suspension was 'little bit harsh'**\
 `McDavid was speaking to the media for the first time since he struck Garland in the head in the dying seconds of Saturday’s 3-2 loss.`\
 https://nytimes.com/athletic/6081517/2025/01/22/oilers-connor-mcdavid-comments-suspension/

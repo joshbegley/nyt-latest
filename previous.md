@@ -1,3 +1,7 @@
+**Winter storm, heavy snow causes multiple postponements across sports world**\
+`NBA game, huge women's college basketball matchup among games impacted by weather.`\
+https://nytimes.com/athletic/6081188/2025/01/22/winter-storm-heavy-snow-postponements/
+
 **Oilers' Connor McDavid says 3-game suspension was 'little bit harsh'**\
 `McDavid was speaking to the media for the first time since he struck Garland in the head in the dying seconds of Saturday’s 3-2 loss.`\
 https://nytimes.com/athletic/6081517/2025/01/22/oilers-connor-mcdavid-comments-suspension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6081888/2025/01/22/snow-eagles-rams-nfl-playoffs/
 **Ben Johnson ready to build Bears offense around Caleb Williams: 'He is a phenomenal talent'**\
 `Williams is excited for his new head coach, who wants to make sure the new playbook is "calibrated" for the quarterback.`\
 https://nytimes.com/athletic/6081845/2025/01/22/ben-johnson-ready-to-build-bears-offense-around-caleb-williams-he-is-a-phenomenal-talent/
-
-**Congress Clears Measure to Deport Immigrants Accused of Crimes**\
-`Final approval by the House sent the legislation, which requires the detention and deportation of unauthorized migrants charged with crimes, to President Trump’s desk.`\
-https://nytimes.com/2025/01/22/us/politics/laken-riley-act.html
 
