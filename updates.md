@@ -1,3 +1,11 @@
+**The three passes that summed up Aston Villa's bad night in Monaco**\
+`Aston Villa fell to a difficult defeat against Monaco in the Champions League`\
+https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-monaco/
+
+**Once-promising Canucks struggle against lowly Sabres, give up late lead: 3 takeaways**\
+`Vancouver surrendered two third-period goals by JJ Peterka and a poor Buffalo team playing in the second leg of a back-to-back.`\
+https://nytimes.com/athletic/6079872/2025/01/22/canucks-lose-to-sabres-takeaways/
+
 **Jarell Quansah is back on track after a notably slow start under Arne Slot**\
 `The Liverpool manager utilised his squad against Lille and the likes of Quansah, Harvey Elliott and Federico Chiesa all impressed`\
 https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
