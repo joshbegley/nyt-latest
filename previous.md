@@ -1,3 +1,7 @@
+**The Bounce: NBA midseason report cards! Plus, January 22 is a day for buckets**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6080173/2025/01/22/nba-report-cards-kobe-bryant-lakers-81-nba-the-bounce/
+
 **Mandel's Mailbag: Can Ohio State build a 12-team CFP dynasty?**\
 `Plus, more questions on whether the CFP format was a success, next year's rising teams and college football's longest season ever.`\
 https://nytimes.com/athletic/6080378/2025/01/22/college-football-dynasties-cfp-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080436/2025/01/22/ruben-amorim-manchester-united-w
 **Listen: Chelsea's Sanchez problem and do they need more signings?**\
 `Ayo Akinwolere was joined by Liam Twomey and Phil Hay on the latest episode of ‘The Athletic FC Podcast’ to assess the situation at Chelsea`\
 https://nytimes.com/athletic/6080280/2025/01/22/athletic-fc-podcast-chelsea-signings/
-
-**Wrexham captain McClean involved in car accident on way to training**\
-`Wrexham captain James McClean was involved in a car accident on his way to training Wednesday, the club has confirmed.`\
-https://nytimes.com/athletic/6080312/2025/01/22/wrexham-captain-james-mcclean-involved-in-car-accident-on-way-to-training/
 
