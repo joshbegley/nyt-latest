@@ -1,4 +1,8 @@
 **Lynn Ban, Jewelry Designer and ‘Bling Empire’ Star, Dies After Ski Accident**\
+`The designer’s son confirmed her death in a post on Instagram. Ms. Ban had designed jewelry worn by celebrities including Rihanna and Beyoncé.`\
+https://nytimes.com/2025/01/22/fashion/lynn-ban-dead-bling-empire.html
+
+**Lynn Ban, Jewelry Designer and ‘Bling Empire’ Star, Dies After Ski Accident**\
 `The designer’s son confirmed her death in a heartbreaking post on Instagram. Ms. Ban had designed jewelry worn by celebrities including Rihanna and Beyoncé.`\
 https://nytimes.com/2025/01/22/fashion/lynn-ban-dead-bling-empire.html
 
