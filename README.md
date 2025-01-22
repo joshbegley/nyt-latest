@@ -10,7 +10,7 @@ https://nytimes.com/2025/01/22/weather/winter-storm-records-florida.html
 `Thom Harris, Sam Lee and Oliver Kay break down the main talking points Manchester City's 4-2 loss to PSG in the Champions League`\
 https://nytimes.com/athletic/6077832/2025/01/22/paris-saint-germain-4-manchester-city-2-champions-league/
 
-**House Republicans create a new Jan. 6 inquiry to recast the pro-Trump assault.**\
+**House Republicans Create New Jan. 6 Inquiry to Recast the Assault**\
 `Speaker Mike Johnson said the panel would counter “false narratives” about the Jan. 6, 2021, riot and what led up to it, a sign that the G.O.P. would continue to try shift blame for the attack.`\
 https://nytimes.com/2025/01/22/us/politics/jan6-house-committee.html
 
