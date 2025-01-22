@@ -1,3 +1,7 @@
+**Amid a Wintry Mess, New Orleans Also Savors a Spectacle**\
+`The storm brought both dazzling landscapes of ice and snow and challenges to a city unaccustomed to such severe winter weather.`\
+https://nytimes.com/2025/01/22/weather/snow-winter-new-orleans.html
+
 **Real Madrid out-earned Manchester City by nearly £180m last season as stadium income becomes key**\
 `Deloitte’s Money League reveals growing revenue gap between Premier League teams and the Spanish champions`\
 https://nytimes.com/athletic/6080474/2025/01/22/real-madrid-out-earned-manchester-city-by-nearly-180m-last-season-as-stadium-income-becomes-key/
