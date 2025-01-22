@@ -1,3 +1,15 @@
+**In This Math Thriller, Leo Woodall’s Numbers Add Up**\
+`A brilliant young mathematician becomes an enemy of the deep state in a paranoid new potboiler streaming on Apple TV+.`\
+https://nytimes.com/2025/01/22/arts/television/prime-target-leo-woodall.html
+
+**Israel Keeps Up Raids in West Bank, Arresting 25, Palestinian Reports Say**\
+`As many as 600 people were held in a hospital overnight, the mayor of the city of Jenin told a Palestinian news agency. The death toll from the two-day operation rose to 10, officials said.`\
+https://nytimes.com/2025/01/22/world/middleeast/israel-west-bank-jenin-raids.html
+
+**Single Parents Should Get as Much Paid Leave as Couples, Spanish Court Rules**\
+`The decision follows a constitutional court ruling that barred discrimination against babies born into single-parent families.`\
+https://nytimes.com/2025/01/22/world/europe/spain-single-parents-paid-leave.html
+
 **Spate of Violent Antisemitic Attacks Rattles Australia**\
 `The police said they were investigating whether “overseas actors” were involved the vandalizing of synagogues and a day care center.`\
 https://nytimes.com/2025/01/22/world/asia/australia-antisemitic-attacks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/22/world/asia/trump-china-deal-making.html
 **The Athletic FC: Breaking down Benfica vs Barca chaos, Amorim anger, first $1m women's player?**\
 `Today in TAFC, we break down the chaos of Barca's comeback win over Benfica, Amorim smashes a TV, and Girma set to be the first $1m player.`\
 https://nytimes.com/athletic/6080122/2025/01/22/benfica-barcelona-amorim-tv-girma-1m/
-
-**Rewriting Jan. 6**\
-`We’re covering President Trump’s pardons.`\
-https://nytimes.com/2025/01/22/briefing/donald-trump-jan-6-pardons.html
-
-**The glitching cartoon stars of the Australian Open and the future of sports media**\
-`A YouTube stream of the Australian Open has gone viral for its glitches, but it's also a sign of the future of sports media.`\
-https://nytimes.com/athletic/6072324/2025/01/22/australian-open-ao-animated-youtube-sports-media-streaming/
-
-**Brentford close to agreement over new Damsgaard contract**\
-`Mikkel Damsgaard is close to signing a new contract with Brentford until 2030.`\
-https://nytimes.com/athletic/6080169/2025/01/22/brentford-mikkel-damsgaard-contract-new/
 

@@ -1,3 +1,15 @@
+**In This Math Thriller, Leo Woodall’s Numbers Add Up**\
+`A brilliant young mathematician becomes an enemy of the deep state in a paranoid new potboiler streaming on Apple TV+.`\
+https://nytimes.com/2025/01/22/arts/television/prime-target-leo-woodall.html
+
+**Israel Keeps Up Raids in West Bank, Arresting 25, Palestinian Reports Say**\
+`As many as 600 people were held in a hospital overnight, the mayor of the city of Jenin told a Palestinian news agency. The death toll from the two-day operation rose to 10, officials said.`\
+https://nytimes.com/2025/01/22/world/middleeast/israel-west-bank-jenin-raids.html
+
+**Single Parents Should Get as Much Paid Leave as Couples, Spanish Court Rules**\
+`The decision follows a constitutional court ruling that barred discrimination against babies born into single-parent families.`\
+https://nytimes.com/2025/01/22/world/europe/spain-single-parents-paid-leave.html
+
 **Spate of Violent Antisemitic Attacks Rattles Australia**\
 `The police said they were investigating whether “overseas actors” were involved the vandalizing of synagogues and a day care center.`\
 https://nytimes.com/2025/01/22/world/asia/australia-antisemitic-attacks.html
