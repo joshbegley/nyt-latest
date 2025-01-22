@@ -1,3 +1,15 @@
+**Spanish Version of White House Website Has Vanished (Again)**\
+`The Spanish-language website also vanished at the start of President Trump’s first term. No time frame was set for restoring it.`\
+https://nytimes.com/2025/01/22/us/politics/white-house-website-spanish.html
+
+**Heat Today: To climb East standings, Heat must start taking care of schedule's soft spots**\
+`The Heat's habits of blowing leads and playing down to weaker opponents could hurt them in April.`\
+https://nytimes.com/athletic/6080661/2025/01/22/erik-spoelstra-bam-adebayo-jimmy-butler-heat-nba/
+
+**Far-Right Leaders Granted Clemency by Trump Express Desire for Retribution**\
+`Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers asserted that they wanted President Trump to seek revenge on their behalf for being prosecuted in connection with the Jan. 6 riot.`\
+https://nytimes.com/2025/01/22/us/politics/enrique-tarrio-stewart-rhodes.html
+
 **When Will the South Warm Up Again? Not for a While.**\
 `Although the last remaining precipitation was expected to wind down Wednesday, Thursday’s temperatures in some areas of the South were not likely to rise above freezing.`\
 https://nytimes.com/2025/01/22/weather/south-warm-weather-forecast.html
