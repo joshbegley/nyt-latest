@@ -1,3 +1,11 @@
+**Zaha joins MLS club Charlotte FC from Galatasaray on loan**\
+`Wilfried Zaha has joined MLS club Charlotte FC on a year-long loan from Galatasaray.`\
+https://nytimes.com/athletic/6080602/2025/01/22/wilfried-zaha-charlotte-loan-transfer-galatasaray/
+
+**The New Rules of the Trump Era**\
+`Ezra Klein discusses the oligarchic power dynamics of the second Trump administration.`\
+https://nytimes.com/video/opinion/100000009942078/the-new-rules-of-the-trump-era.html
+
 **The Bounce: NBA midseason report cards! Plus, January 22 is a day for buckets**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6080173/2025/01/22/nba-report-cards-kobe-bryant-lakers-81-nba-the-bounce/
