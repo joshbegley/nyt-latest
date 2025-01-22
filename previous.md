@@ -1,3 +1,11 @@
+**Manchester City, Paris Saint-Germain and the threat to football's state-owned superpowers**\
+`Both European giants have struggled in the revamped Champions League and both need to win when they meet in Paris tonight`\
+https://nytimes.com/athletic/6078455/2025/01/22/manchester-city-paris-saint-germain-and-the-humbling-of-footballs-state-owned-superpowers/
+
+**An audience with Haaland and Mbappe, two superstars who rarely talk to the media**\
+`Haaland and Mbappe are two of the sport's biggest stars. But they rarely speak to the media. On Tuesday, hundreds of miles apart, they did`\
+https://nytimes.com/athletic/6078771/2025/01/22/haaland-mbappe-media-interviews-champions-league/
+
 **Running with Alex Yee: The Paris 2024 gold medallist inspired by Crystal Palace**\
 `The Athletic interviews - and tries to keep up with - the most decorated triathlete in Olympic history `\
 https://nytimes.com/athletic/6072840/2025/01/22/alex-yee-interview-paris-olympics-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6079786/2025/01/21/gradey-dick-raptors-magic/
 **Trump Is Said to Push for Early Reopening of North American Trade Deal**\
 `The president wants to begin renegotiating a U.S. trade deal with Canada and Mexico earlier than a scheduled 2026 review, people familiar with his thinking said.`\
 https://nytimes.com/2025/01/21/business/economy/trump-usmca-trade-deal-mexico-canada-autos.html
-
-**Matt Rempe Mania returns as Igor Shesterkin gets 'feisty': 4 takeaways vs. Senators**\
-`Team togetherness was on full display as New York beat Ottawa and improved to 7-1-3 in January.`\
-https://nytimes.com/athletic/6079737/2025/01/21/rangers-senators-matt-rempe-igor-shesterkin/
-
-**Full Time: Women’s soccer’s first $1 million transfer**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6079744/2025/01/21/girma-chelsea-wave-1-million-full-time/
 

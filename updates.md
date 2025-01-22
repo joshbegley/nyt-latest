@@ -1,3 +1,11 @@
+**Manchester City, Paris Saint-Germain and the threat to football's state-owned superpowers**\
+`Both European giants have struggled in the revamped Champions League and both need to win when they meet in Paris tonight`\
+https://nytimes.com/athletic/6078455/2025/01/22/manchester-city-paris-saint-germain-and-the-humbling-of-footballs-state-owned-superpowers/
+
+**An audience with Haaland and Mbappe, two superstars who rarely talk to the media**\
+`Haaland and Mbappe are two of the sport's biggest stars. But they rarely speak to the media. On Tuesday, hundreds of miles apart, they did`\
+https://nytimes.com/athletic/6078771/2025/01/22/haaland-mbappe-media-interviews-champions-league/
+
 **Running with Alex Yee: The Paris 2024 gold medallist inspired by Crystal Palace**\
 `The Athletic interviews - and tries to keep up with - the most decorated triathlete in Olympic history `\
 https://nytimes.com/athletic/6072840/2025/01/22/alex-yee-interview-paris-olympics-crystal-palace/
