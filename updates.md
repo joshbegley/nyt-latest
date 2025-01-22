@@ -1,3 +1,7 @@
+**Submit your questions for Audrey Snyder's Penn State mailbag**\
+`With the bulk of the roster returning, Penn State carries high expectations into the offseason. `\
+https://nytimes.com/athletic/6080906/2025/01/22/penn-state-football-offseason-2025-james-franklin/
+
 **Houthis Say They Will Free the Crew of a Cargo Ship They Hijacked 14 Months Ago**\
 `The Iranian-backed rebel group in Yemen made the announcement after the Houthis said they would scale back attacks given the cease-fire in the conflict in Gaza.`\
 https://nytimes.com/2025/01/22/world/middleeast/houthis-yemen-ship-seized.html
