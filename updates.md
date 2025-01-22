@@ -1,3 +1,7 @@
+**Matt Rempe Mania returns as Igor Shesterkin gets 'feisty': 4 takeaways vs. Senators**\
+`Team togetherness was on full display as New York beat Ottawa and improved to 7-1-3 in January.`\
+https://nytimes.com/athletic/6079737/2025/01/21/rangers-senators-matt-rempe-igor-shesterkin/
+
 **Full Time: Women’s soccer’s first $1 million transfer**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6079744/2025/01/21/girma-chelsea-wave-1-million-full-time/
