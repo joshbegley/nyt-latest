@@ -1,3 +1,7 @@
+**Russell Wilson on his future with Steelers: 'Hopefully finish my career there'**\
+`Despite the late-season struggles, Wilson, 36, remained optimistic about his ability to play into the future.`\
+https://nytimes.com/athletic/6082029/2025/01/22/russell-wilson-pittsburgh-steelers-pat-mcafee/
+
 **Border, Asylum, Citizenship: Trump Kicks Off Vast Immigration Changes**\
 `More is coming, but many directives will take time to be implemented or will face political, legal or practical obstacles.`\
 https://nytimes.com/2025/01/22/us/politics/trump-birthright-citizenship-border-asylum-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/technology/amazon-quebec-closures.html
 **The Bishop Who Pleaded With Trump: ‘Was Anyone Going to Say Anything?’**\
 `Bishop Budde locked eyes with President Trump and made a plea for mercy — and the war over spiritual authority in America was ignited anew.`\
 https://nytimes.com/2025/01/22/us/trump-bishop-plea.html
-
-**Laken Riley Act Is an Effort to Target Migrants Accused of Crimes**\
-`Republicans have promised that more measures to accelerate and expand immigration enforcement will follow.`\
-https://nytimes.com/2025/01/22/us/laken-riley-act-explained.html
 
