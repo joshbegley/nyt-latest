@@ -1,3 +1,7 @@
+**Neko Case: ‘If I Didn’t Yell the Truth, What Good Was I?’**\
+`The singer-songwriter speaks out about her troubled family history and reads a Modern Love essay about an estranged mother and daughter.`\
+https://nytimes.com/2025/01/22/podcasts/neko-case-yells-the-truth.html
+
 **Why Brian Schottenheimer has entered the mix to be Cowboys' next head coach**\
 `Schottenheimer has never been a head coach but he's been the Cowboys' OC and has a good rapport with Dak Prescott.`\
 https://nytimes.com/athletic/6079319/2025/01/22/cowboys-brian-schottenheimer-coach-search-candidate/
