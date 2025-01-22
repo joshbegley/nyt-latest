@@ -1,3 +1,11 @@
+**Is now the time for Trevor Zegras to 'uplift' the Ducks? What can he bring?**\
+`Zegras didn't score in his return, but brought elements that might help the struggling Ducks.`\
+https://nytimes.com/athletic/6081333/2025/01/22/zegras-ducks-injury-trade-return/
+
+**Trump Pardoned Her for Storming the Capitol. ‘Absolutely Not,’ She Said.**\
+`Pamela Hemphill, 71, of Boise Idaho, who served 60 days in prison, said it would be “an insult to the Capitol Police” if she accepted the pardon.`\
+https://nytimes.com/2025/01/22/us/politics/pamela-hemphill-trump-jan-6-pardon-rejection.html
+
 **Tiny Love Stories: ‘Because of You I Have a Husband’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/01/22/style/tiny-modern-love-stories-because-of-you-i-have-a-husband.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6081338/2025/01/22/raiders-to-hire-bucs-assistant-g
 **Jets hiring Aaron Glenn, Lions defensive coordinator, as head coach: Sources**\
 `The former Detroit Lions defensive coordinator is also a former Jets star cornerback.`\
 https://nytimes.com/athletic/6074341/2025/01/22/aaron-glenn-jets-head-coach-hired/
-
-**Here Is How Trump Moved to Seal the Southern Border on Day 1**\
-`President Trump issued a raft of executive orders that effectively block migrants from entering the United States and applying for asylum, closing off major legal channels for immigration.`\
-https://nytimes.com/2025/01/22/us/politics/trump-border-asylum-explainer.html
-
-**The lingering cold causes additional disruptions to air and road travel.**\
-`By Christine Chung`\
-https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/the-lingering-cold-causes-additional-disruptions-to-air-and-road-travel
 
