@@ -1,3 +1,7 @@
+**NBA All-Star ballots: Our voters’ picks for East and West starters**\
+`Some choices are easy. Others, like the ones in the Western Conference frontcourt, are a bit more difficult.`\
+https://nytimes.com/athletic/6078267/2025/01/22/nba-all-star-voting-2025-lebron-giannis-wembanyama/
+
 **It's Jan. 22, so get ready for something noteworthy to happen in the NBA**\
 `Counting last year's two big individual performances, this date has been a day when larger-than-life moments happen in the NBA.`\
 https://nytimes.com/athletic/6079050/2025/01/22/nba-kobe-zion-barkley-embiid-kat/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/crosswords/daily-puzzle-2025-01-23.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/22/crosswords/spelling-bee-forum.html
-
-**Simeone vs Alonso: A meeting of coaching minds - and one that could happen again soon**\
-`Alonso's Bayer Leverkusen visited Simeone's Atletico Madrid on Tuesday night - The Athletic was watching both men`\
-https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atletico-leverkusen/
 

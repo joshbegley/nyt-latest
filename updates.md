@@ -1,3 +1,7 @@
+**NBA All-Star ballots: Our voters’ picks for East and West starters**\
+`Some choices are easy. Others, like the ones in the Western Conference frontcourt, are a bit more difficult.`\
+https://nytimes.com/athletic/6078267/2025/01/22/nba-all-star-voting-2025-lebron-giannis-wembanyama/
+
 **It's Jan. 22, so get ready for something noteworthy to happen in the NBA**\
 `Counting last year's two big individual performances, this date has been a day when larger-than-life moments happen in the NBA.`\
 https://nytimes.com/athletic/6079050/2025/01/22/nba-kobe-zion-barkley-embiid-kat/
