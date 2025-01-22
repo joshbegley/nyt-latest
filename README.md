@@ -34,7 +34,3 @@ https://nytimes.com/2025/01/22/us/fires-revello-drive.html
 `The ballerina is leaving the company in February after 25 years. She will dance the lead in “Firebird” in her final program.`\
 https://nytimes.com/2025/01/22/arts/dance/ashley-bouder-retiring-new-york-city-ballet.html
 
-**Stellantis Will Restart Illinois Factory That U.A.W. Pushed to Revive**\
-`The United Automobile Workers union has been pressing the automaker, which owns Chrysler and Jeep, to revive the plant in Belvidere, Ill.`\
-https://nytimes.com/2025/01/22/business/economy/stellantis-illinois-factory-uaw.html
-
