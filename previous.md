@@ -1,3 +1,11 @@
+**10 Gut Myths, Corrected**\
+`We asked leading authorities for the truth about probiotics, elimination diets, leaky gut and more.`\
+https://nytimes.com/2025/01/22/well/gut-health-myths.html
+
+**Two Chemical-Industry Officials Expected to Help Oversee E.P.A. Chemical Rules**\
+`Nancy Beck and Lynn Ann Dekleva worked in the first Trump administration, where they fought chemical restrictions.`\
+https://nytimes.com/2025/01/22/climate/epa-chemical-industry-beck-dekleva.html
+
 **Corrections: Jan. 22, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 22, 2025.`\
 https://nytimes.com/2025/01/22/pageoneplus/corrections-jan-22-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/trump-tariffs-trade-mexico-canada-chi
 **Man City Women sign Kerolin from North Carolina Courage**\
 `Manchester City have completed the signing of Brazil forward Kerolin from North Carolina Courage.`\
 https://nytimes.com/athletic/6080373/2025/01/22/kerolin-manchester-city-transfer/
-
-**Even Religious People Don’t Trust Religious Institutions**\
-`And why secular people should care`\
-https://nytimes.com/2025/01/22/opinion/religious-institutions-church.html
-
-**My Son Wants to Pay for His Sister to Freeze Her Eggs. Too Weird?**\
-`A mother wonders whether such an offer from her well-off son would be overstepping, and if not, whether she should be the one to float the idea.`\
-https://nytimes.com/2025/01/22/style/egg-freezing-siblings.html
 

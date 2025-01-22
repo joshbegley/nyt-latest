@@ -1,3 +1,11 @@
+**10 Gut Myths, Corrected**\
+`We asked leading authorities for the truth about probiotics, elimination diets, leaky gut and more.`\
+https://nytimes.com/2025/01/22/well/gut-health-myths.html
+
+**Two Chemical-Industry Officials Expected to Help Oversee E.P.A. Chemical Rules**\
+`Nancy Beck and Lynn Ann Dekleva worked in the first Trump administration, where they fought chemical restrictions.`\
+https://nytimes.com/2025/01/22/climate/epa-chemical-industry-beck-dekleva.html
+
 **Corrections: Jan. 22, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 22, 2025.`\
 https://nytimes.com/2025/01/22/pageoneplus/corrections-jan-22-2025.html
