@@ -1,3 +1,11 @@
+**The Bishop Who Pleaded With Trump: ‘Was Anyone Going to Say Anything?’**\
+`Bishop Budde locked eyes with President Trump and made a plea for mercy — and the war over spiritual authority in America was ignited anew.`\
+https://nytimes.com/2025/01/22/us/trump-bishop-plea.html
+
+**Laken Riley Act Is an Effort to Target Migrants Accused of Crimes**\
+`Republicans have promised that more measures to accelerate and expand immigration enforcement will follow.`\
+https://nytimes.com/2025/01/22/us/laken-riley-act-explained.html
+
 **Champions League Briefing: Playoffs take shape; Bellingham's backheel; Wembanyama sees City's collapse**\
 `The NBA star witnessed a Man City capitulation, the playoffs are taking shape and Real Madrid are back on it`\
 https://nytimes.com/athletic/6081300/2025/01/22/champions-league-playoffs-wembanyama/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/22/us/trump-news/local-officials-respond-to-tru
 **Greenberg: Can Ben Johnson break with the past and take the Bears into the future?**\
 `Halas Hall is haunted by past failures, but the Bears may have stumbled into a good hire. He’s creative and fiery and he runs the dang ball.`\
 https://nytimes.com/athletic/6081860/2025/01/22/ben-johnson-chicago-bears-coach/
-
-**Titans won't pass on 'generational talent' in draft, GM Borgonzi looks to build through draft**\
-`Borgonzi will be in charge of making all selections in this year's draft, but the Titans are not afraid of trading back to acquire assets.`\
-https://nytimes.com/athletic/6081967/2025/01/22/mike-borgonzi-titans-2025-nfl-draft/
-
-**Winter storm, heavy snow causes multiple postponements across sports world**\
-`NBA game, huge women's college basketball matchup among games impacted by weather.`\
-https://nytimes.com/athletic/6081188/2025/01/22/winter-storm-heavy-snow-postponements/
 

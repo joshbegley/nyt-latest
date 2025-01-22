@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6081300/2025/01/22/champions-league-playoffs-wemban
 https://nytimes.com/2025/01/22/us/dei-jewish-students-campus-protests.html
 
 **Roki Sasaki dons new uniform in Dodgers' introduction**\
-`The latest sterling Los Angeles Dodger officially arrived on Wednesday afternoon as the franchise formally introduced Roki Sasaki.`\
+`In his first year as a Dodger, Sasaki will earn the league minimum of $760,000 after classifying as an international amateur.`\
 https://nytimes.com/athletic/6081600/2025/01/22/roki-sasaki-dodgers-introduction/
 
 **‘Deadly Conspiracy’ Described at Trial of 3 Charged in Gay Bar Murders**\

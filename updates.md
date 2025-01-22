@@ -1,3 +1,11 @@
+**The Bishop Who Pleaded With Trump: ‘Was Anyone Going to Say Anything?’**\
+`Bishop Budde locked eyes with President Trump and made a plea for mercy — and the war over spiritual authority in America was ignited anew.`\
+https://nytimes.com/2025/01/22/us/trump-bishop-plea.html
+
+**Laken Riley Act Is an Effort to Target Migrants Accused of Crimes**\
+`Republicans have promised that more measures to accelerate and expand immigration enforcement will follow.`\
+https://nytimes.com/2025/01/22/us/laken-riley-act-explained.html
+
 **Champions League Briefing: Playoffs take shape; Bellingham's backheel; Wembanyama sees City's collapse**\
 `The NBA star witnessed a Man City capitulation, the playoffs are taking shape and Real Madrid are back on it`\
 https://nytimes.com/athletic/6081300/2025/01/22/champions-league-playoffs-wembanyama/
