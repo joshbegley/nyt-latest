@@ -1,3 +1,11 @@
+**Wars and Rumors of Wars**\
+`Hollywood’s silence reveals the contours of our escalating conflict with China; we’re digesting the war on TikTok, instead.`\
+https://nytimes.com/2025/01/22/opinion/china-tiktok.html
+
+**Villa's Onana out for next few games with hamstring injury**\
+`Amadou Onana is set to miss Aston Villa&#8217;s upcoming games with a hamstring injury.`\
+https://nytimes.com/athletic/6081450/2025/01/22/amadou-onana-injury-aston-villa/
+
 **Britain Says Russian Spy Ship Returned to U.K. Waters in Sign of Kremlin Threat**\
 `The British defense secretary told Parliament that the Yantar, which he described as a Russian spy ship, had come near Britain’s coast for the second time in a few months.`\
 https://nytimes.com/2025/01/22/world/europe/britain-russia-spy-ship.html
