@@ -1,6 +1,18 @@
+**‘Living Through Hell’: How North Africa Keeps Migrants From Europe**\
+`Libya deported more than 600 men from Niger last month as North African countries — financed by the European Union to tackle migration — have ramped up expulsions of sub-Saharan Africans.`\
+https://nytimes.com/2025/01/22/world/africa/libya-migrants-niger.html
+
+**Thompson: NBA's 3-point surge isn't Steph Curry's fault — and it won't last forever**\
+`Don't blame the player and the team that did it right. Blame the less-efficient copycats, who surely will find a new thing to copy soon.`\
+https://nytimes.com/athletic/6078643/2025/01/22/nba-3-pointers-stephen-curry-daryl-morey/
+
 **Neko Case: ‘If I Didn’t Yell the Truth, What Good Was I?’**\
 `The singer-songwriter speaks out about her troubled family history and reads a Modern Love essay about an estranged mother and daughter.`\
 https://nytimes.com/2025/01/22/podcasts/neko-case-yells-the-truth.html
+
+**Will Ohio State's national title experience be like Michigan's? 8 things to know**\
+`As someone who covered Michigan’s national championship and its aftermath, I thought I’d give Ohio State a few pointers about what’s next.`\
+https://nytimes.com/athletic/6078897/2025/01/22/ohio-state-michigan-national-championship/
 
 **Why Brian Schottenheimer has entered the mix to be Cowboys' next head coach**\
 `Schottenheimer has never been a head coach but he's been the Cowboys' OC and has a good rapport with Dak Prescott.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/trump-executive-orders.html
 **Bringing Anne Frank’s Secret Annex to New York, and the World**\
 `Covered windows, peeling wallpaper: For the first time outside of Amsterdam, an exhibition reconstructs Anne’s hiding place during the devastation of the Holocaust.`\
 https://nytimes.com/2025/01/22/arts/design/anne-frank-annex-new-york.html
-
-**America Never Could Decide if It Is a Nation of Immigrants**\
-`The huddled masses yearning to breathe free have not always been received with open arms.`\
-https://nytimes.com/2025/01/22/opinion/trump-immigrants-deportations.html
-
-**Questlove on Parsing 50 Years of Music for His ‘S.N.L.’ Documentary**\
-`Digging through more than 900 episodes was bound to yield some surprises — and some warm memories. The experience didn’t disappoint.`\
-https://nytimes.com/2025/01/22/arts/television/questlove-snl-music-documentary.html
-
-**The Dubious History of America’s Most Famous Monarchist**\
-`It’s not hard to understand how Curtis Yarvin won the admiration of powerful patrons.`\
-https://nytimes.com/2025/01/22/opinion/trump-vance-yarvin-monarchy.html
 
