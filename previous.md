@@ -1,3 +1,7 @@
+**Jarell Quansah is back on track after a notably slow start under Arne Slot**\
+`The Liverpool manager utilised his squad against Lille and the likes of Quansah, Harvey Elliott and Federico Chiesa all impressed`\
+https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
+
 **Once-promising Canucks struggle against lowly Sabres, give up late lead: 3 takeaways**\
 `Vancouver surrendered two third-period goals to JJ Peterka and a poor Buffalo team playing in the second leg of a back-to-back.`\
 https://nytimes.com/athletic/6079872/2025/01/22/canucks-lose-to-sabres-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077990/2025/01/22/leeds-squad-depth-analysis-trans
 **Manchester City, Paris Saint-Germain and the threat to football's state-owned superpowers**\
 `Both European giants have struggled in the revamped Champions League and both need to win when they meet in Paris tonight`\
 https://nytimes.com/athletic/6078455/2025/01/22/manchester-city-paris-saint-germain-and-the-humbling-of-footballs-state-owned-superpowers/
-
-**An audience with Haaland and Mbappe, two superstars who rarely talk to the media**\
-`Haaland and Mbappe are two of the sport's biggest stars. But they rarely speak to the media. On Tuesday, hundreds of miles apart, they did`\
-https://nytimes.com/athletic/6078771/2025/01/22/haaland-mbappe-media-interviews-champions-league/
 
