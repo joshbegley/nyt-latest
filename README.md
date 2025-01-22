@@ -1,3 +1,11 @@
+**A New Fear in Schools: Will ICE Agents Come?**\
+`Readers worry about immigration raids in schools. Also: Immigrants who fear seeking health care; military shortcomings; women’s slow progress; betting on Bitcoin.`\
+https://nytimes.com/2025/01/22/opinion/immigration-ice-schools.html
+
+**Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/22/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **Submit your questions for Audrey Snyder's Penn State mailbag**\
 `With the bulk of the roster returning, Penn State carries high expectations into the offseason. `\
 https://nytimes.com/athletic/6080906/2025/01/22/penn-state-football-offseason-2025-james-franklin/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6076590/2025/01/22/liam-coen-tampa-bay-buccaneers-j
 **The Justice Dept. orders investigations of any city and state officials who obstruct immigration enforcement.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2025/01/22/us/trump-news/justice-dept-to-investigate-local-officials-who-obstruct-immigration-enforcement
-
-**In Shift, Jamie Dimon Backs Trump’s Tariffs, Saying ‘Get Over It’**\
-`The JPMorgan Chase chief executive, who had warned of the negative effect of tariffs, said they could be justified for national security reasons.`\
-https://nytimes.com/2025/01/22/us/politics/jamie-dimon-jpmorgan-trump-tariffs.html
-
-**The World’s Richest Men, Their Friends and Their Frocks**\
-`For his latest Vuitton collection, Pharrell Williams tapped his best bud Nigo to be co-creative director. And Bernard Arnault made it back from the Trump inauguration to see it.`\
-https://nytimes.com/2025/01/22/style/louis-vuitton-pharrell-williams-nigo-paris.html
 
