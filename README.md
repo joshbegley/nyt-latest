@@ -1,3 +1,31 @@
+**Justice Dept. to investigate local officials who obstruct immigration enforcement.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/01/22/us/trump-news/justice-dept-to-investigate-local-officials-who-obstruct-immigration-enforcement
+
+**In Shift, Jamie Dimon Backs Trump’s Tariffs, Saying ‘Get Over It’**\
+`The JPMorgan Chase chief executive, who had warned of the negative effect of tariffs, said they could be justified for national security reasons.`\
+https://nytimes.com/2025/01/22/us/politics/jamie-dimon-jpmorgan-trump-tariffs.html
+
+**The World’s Richest Men, Their Friends and Their Frocks**\
+`For his latest Vuitton collection, Pharrell Williams tapped his best bud Nigo to be co-creative director. And Bernard Arnault made it back from the Trump inauguration to see it.`\
+https://nytimes.com/2025/01/22/style/louis-vuitton-pharrell-williams-nigo-paris.html
+
+**Arkansas star freshman Fland likely out for season; Razorbacks 0-5 in SEC**\
+`In John Calipari's first season, Arkansas is one of just four high-major teams yet to win a conference game.`\
+https://nytimes.com/athletic/6080632/2025/01/22/boogie-fland-injury-arkansas-basketball-calipari/
+
+**​Families, a Dean, a Young Swimmer: ​​Lives Lost in the Turkish Ski Resort Fire**\
+`Some had returned to the hotel year after year. Their deaths have stirred grief and outrage.`\
+https://nytimes.com/2025/01/22/world/middleeast/turkey-ski-resort-fire-families-grief.html
+
+**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
+`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
+https://nytimes.com/athletic/6073696/2025/01/22/bills-chiefs-how-to-watch-odds-picks-betting/
+
+**Why are Colts entrusting Lou Anarumo to fix their defense after his Bengals D crumbled?**\
+`Some around the NFL, including Chiefs star Travis Kelce, were shocked Cincinnati fired Anarumo. "I’ve always respected the hell out of him."`\
+https://nytimes.com/athletic/6080598/2025/01/22/lou-anarumo-colts-defensive-coordinator-bengals/
+
 **Penguins Today: Kevin Hayes and Los Angeles first responders**\
 `Hayes, who honors first responders after every game, scored the opening goal against the Kings.`\
 https://nytimes.com/athletic/6080749/2025/01/22/penguins-today-los-angeles-fires-kevin-hayes/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6078143/2025/01/22/rangers-fan-survey-results-drury
 **Live Updates: Sun Belt Iced Over After Record Snowfall**\
 `A powerful storm, fueled by a whirling mass of cold air originating from the Arctic, plunged temperatures into the teens. At least 10 people have died.`\
 https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south
-
-**Hollinger: As Jimmy Butler rumors swirl, Suns keep chasing short-term highs**\
-`Multiple teams have made bets of some size that Phoenix will be terrible between 2026 and 2031. And those bets may pay off.`\
-https://nytimes.com/athletic/6079964/2025/01/22/jimmy-butler-trade-rumors-suns-mat-ishbia/
-
-**UConn's Dan Hurley berates ref during timeout: 'I'm the best coach'**\
-`Hurley got heated with the referee during a timeout when he thought there was a foul on a defensive rebound attempt.`\
-https://nytimes.com/athletic/6080546/2025/01/22/dan-hurley-uconn-referee-best-coach/
-
-**Jocelyn Benson, Michigan’s Secretary of State, Is Running for Governor**\
-`Ms. Benson, a Democrat, jumped into a high-profile and potentially crowded race to lead one of the country’s top battleground states.`\
-https://nytimes.com/2025/01/22/us/politics/jocelyn-benson-michigan-governor.html
-
-**10 Gut Myths, Corrected**\
-`We asked leading authorities for the truth about probiotics, elimination diets, leaky gut and more.`\
-https://nytimes.com/2025/01/22/well/gut-health-myths.html
-
-**Two Industry Officials Expected to Help Oversee E.P.A. Chemical Rules**\
-`Nancy Beck and Lynn Ann Dekleva worked in the first Trump administration, where they fought chemical restrictions.`\
-https://nytimes.com/2025/01/22/climate/epa-chemical-industry-beck-dekleva.html
-
-**Corrections: Jan. 22, 2025**\
-`Corrections that appeared in print on Wednesday, Jan. 22, 2025.`\
-https://nytimes.com/2025/01/22/pageoneplus/corrections-jan-22-2025.html
-
-**Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
-`“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
-https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
 

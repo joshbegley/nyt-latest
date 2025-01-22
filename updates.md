@@ -1,3 +1,7 @@
+**Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
+`“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
+https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
+
 **Why are Colts entrusting Lou Anarumo to fix their defense after his Bengals D crumbled?**\
 `Some around the NFL, including Chiefs star Travis Kelce, were shocked Cincinnati fired Anarumo. "I’ve always respected the hell out of him."`\
 https://nytimes.com/athletic/6080598/2025/01/22/lou-anarumo-colts-defensive-coordinator-bengals/
