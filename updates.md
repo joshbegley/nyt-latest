@@ -1,3 +1,11 @@
+**Trump’s Paris Withdrawal Is Grimmer This Time**\
+`By David Wallace-Wells`\
+https://nytimes.com/2025/01/22/opinion/trumps-paris-climate-withdrawal-executive-orders.html
+
+**Former Navy SEAL Said to Be Interim Head of FEMA**\
+`Cameron Hamilton does not appear to have experience coordinating responses to large-scale disasters, like the wildfires in California.`\
+https://nytimes.com/2025/01/22/climate/fema-announcement-cameron-hamilton.html
+
 **NFL Draft No. 1 pick odds: Cam Ward has taken favored spot from Shedeur Sanders**\
 `Shedeur Sanders had been the favorite to be the first player taken in the NFL Draft, but that honor belongs to Cam Ward now.`\
 https://nytimes.com/athletic/6081056/2025/01/22/nfl-draft-first-overall-pick-odds-cam-ward-shedeur-sanders/
