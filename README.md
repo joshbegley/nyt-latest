@@ -1,4 +1,4 @@
-**Madison Keys will win or lose, her way – with some help from her coach and husband**\
+**Madison Keys will win or lose, her way**\
 `The American is back in the last four in Melbourne, with her husband in her coaching box. They work it out`\
 https://nytimes.com/athletic/6079967/2025/01/22/madison-keys-australian-open-coach-bjorn-fratangelo/
 
