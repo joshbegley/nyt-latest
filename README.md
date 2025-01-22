@@ -1,3 +1,15 @@
+**NFL Draft No. 1 pick odds: Cam Ward has taken favored spot from Shedeur Sanders**\
+`Shedeur Sanders had been the favorite to be the first player taken in the NFL Draft, but that honor belongs to Cam Ward now.`\
+https://nytimes.com/athletic/6081056/2025/01/22/nfl-draft-first-overall-pick-odds-cam-ward-shedeur-sanders/
+
+**Trump’s Paris Withdrawal Is Grimmer This Time**\
+`By David Wallace-Wells`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/trumps-paris-climate-withdrawal-executive-orders
+
+**Navy SEAL Veteran Said to Be Interim Head of FEMA**\
+`Cameron Hamilton does not appear to have experience coordinating responses to large-scale disasters, like the wildfires in California.`\
+https://nytimes.com/2025/01/22/climate/fema-announcement-cameron-hamilton.html
+
 **Trump Seeks to Paralyze Independent Privacy and Civil Liberties Watchdog**\
 `The Trump White House has told three Democratic-selected members of the Privacy and Civil Liberties Oversight Board to resign or be fired, which would stop the independent agency from functioning.`\
 https://nytimes.com/2025/01/22/us/trump-privacy-civil-liberties-oversight-board.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6081013/2025/01/22/nba-postponement-bucks-pelicans-
 **Review: Muti and Chicago Give a Singing Account of a Rare Verdi**\
 `Riccardo Muti led the Chicago Symphony Orchestra at Carnegie Hall in a program that featured Verdi’s “Four Seasons” and Tchaikovsky.`\
 https://nytimes.com/2025/01/22/arts/music/review-riccardo-muti-chicago-symphony-verdi.html
-
-**Amad, the Rangers loanee: 'He was the best trainer every day'**\
-`The Ivorian endured a difficult six-month spell at Rangers but the quality and work ethic he's known for now still shone through at Ibrox`\
-https://nytimes.com/athletic/6058566/2025/01/22/amad-manchester-united-loan-rangers/
-
-**Remembering the House on Revello Drive**\
-`Claire Fahy, who attended U.C.L.A. and helped cover the fires for The Times, reflects on her own ties to the Palisades fire.`\
-https://nytimes.com/2025/01/22/us/fires-revello-drive.html
-
-**Ashley Bouder, New York City Ballet Veteran, to Retire**\
-`The ballerina is leaving the company in February after 25 years. She will dance the lead in “Firebird” in her final program.`\
-https://nytimes.com/2025/01/22/arts/dance/ashley-bouder-retiring-new-york-city-ballet.html
-
-**Stellantis Will Restart Illinois Factory That U.A.W. Pushed to Revive**\
-`The United Automobile Workers union has been pressing the automaker, which owns Chrysler and Jeep, to revive the plant in Belvidere, Ill.`\
-https://nytimes.com/2025/01/22/business/economy/stellantis-illinois-factory-uaw.html
 
