@@ -1,3 +1,11 @@
+**Spanish Version of White House Website Has Vanished (Again)**\
+`The Spanish-language website also vanished at the start of President Trump’s first term. No time frame was set for restoring it.`\
+https://nytimes.com/2025/01/22/us/politics/white-house-website-spanish.html
+
+**Heat Today: To climb East standings, Heat must start taking care of schedule's soft spots**\
+`The Heat's habits of blowing leads and playing down to weaker opponents could hurt them in April.`\
+https://nytimes.com/athletic/6080661/2025/01/22/erik-spoelstra-bam-adebayo-jimmy-butler-heat-nba/
+
 **When Will the South Warm Up Again? Not for a While.**\
 `Although the last remaining precipitation was expected to wind down Wednesday, Thursday’s temperatures in some areas of the South were not likely to rise above freezing.`\
 https://nytimes.com/2025/01/22/weather/south-warm-weather-forecast.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/01/22/opinion/trumps-paris-climate-withdrawal-executive
 **Former Navy SEAL Said to Be Interim Head of FEMA**\
 `Cameron Hamilton does not appear to have experience coordinating responses to large-scale disasters, like the wildfires in California.`\
 https://nytimes.com/2025/01/22/climate/fema-announcement-cameron-hamilton.html
-
-**Trump Seeks to Paralyze Independent Privacy and Civil Liberties Watchdog**\
-`The Trump White House has told three Democratic-selected members of the Privacy and Civil Liberties Oversight Board to resign or be fired, which would stop the independent agency from functioning.`\
-https://nytimes.com/2025/01/22/us/trump-privacy-civil-liberties-oversight-board.html
-
-**Phillies notes: Tapping into upside in 2025, life on the roster bubble, new names to watch**\
-`The Phillies are an older team, and one of the bigger bets they are making in 2025 is that veteran players can apply adjustments.`\
-https://nytimes.com/athletic/6081002/2025/01/22/phillies-2025-storylines-spring-training-roster/
 

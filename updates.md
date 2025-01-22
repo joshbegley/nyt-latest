@@ -1,5 +1,9 @@
 **When Will the South Warm Up Again? Not for a While.**\
 `Although the last remaining precipitation was expected to wind down Wednesday, Thursday’s temperatures in some areas of the South were not likely to rise above freezing.`\
+https://nytimes.com/2025/01/22/weather/south-warm-weather-forecast.html
+
+**When Will the South Warm Up Again? Not for a While.**\
+`Although the last remaining precipitation was expected to wind down Wednesday, Thursday’s temperatures in some areas of the South were not likely to rise above freezing.`\
 https://nytimes.com/2025/01/22/weather/when-will-the-south-warm-up-again-not-for-a-while.html
 
 **Araujo set to sign new Barcelona deal; Pedri in contract extension talks**\
