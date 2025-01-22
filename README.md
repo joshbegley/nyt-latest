@@ -1,3 +1,7 @@
+**Why are Colts entrusting Lou Anarumo to fix their defense after his Bengals D crumbled?**\
+`Some around the NFL, including Chiefs star Travis Kelce, were shocked Cincinnati fired Anarumo. "I’ve always respected the hell out of him."`\
+https://nytimes.com/athletic/6080598/2025/01/22/lou-anarumo-colts-defensive-coordinator-bengals/
+
 **Penguins Today: Kevin Hayes and Los Angeles first responders**\
 `Hayes, who honors first responders after every game, scored the opening goal against the Kings.`\
 https://nytimes.com/athletic/6080749/2025/01/22/penguins-today-los-angeles-fires-kevin-hayes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/climate/epa-chemical-industry-beck-dekleva.html
 **Corrections: Jan. 22, 2025**\
 `Corrections that appeared in print on Wednesday, Jan. 22, 2025.`\
 https://nytimes.com/2025/01/22/pageoneplus/corrections-jan-22-2025.html
-
-**Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
-`“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
-https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
 
