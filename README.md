@@ -1,3 +1,11 @@
+**Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
+`“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
+https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
+
+**Zaha joins MLS club Charlotte FC from Galatasaray on loan**\
+`Wilfried Zaha has joined MLS club Charlotte FC on a year-long loan from Galatasaray.`\
+https://nytimes.com/athletic/6080602/2025/01/22/wilfried-zaha-charlotte-loan-transfer-galatasaray/
+
 **The New Rules of the Trump Era**\
 `Ezra Klein discusses the oligarchic power dynamics of the second Trump administration.`\
 https://nytimes.com/video/opinion/100000009942078/the-new-rules-of-the-trump-era.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/style/egg-freezing-siblings.html
 **MoneyCall: What next for the CFP?**\
 `Welcome to MoneyCall, The Athletic's weekly sports business newsletter.`\
 https://nytimes.com/athletic/6079787/2025/01/22/cfp-business-expansion-moneycall-newsletter/
-
-**Patriots expected to hire Lions' Terrell Williams as defensive coordinator**\
-`Williams will reunite with coach Mike Vrabel in New England after working on Vrabel's staff for six years with the Titans.`\
-https://nytimes.com/athletic/6080411/2025/01/22/terrell-williams-hired-lions-patriots/
-
-**Amorim says dressing room TV damage 'a mistake': 'I didn’t think'**\
-`Ruben Amorim has conceded he may have made a mistake by getting angry during his post-Brighton briefing in the dressing room that left a big screen television damaged.`\
-https://nytimes.com/athletic/6080436/2025/01/22/ruben-amorim-manchester-united-worst-team/
 
