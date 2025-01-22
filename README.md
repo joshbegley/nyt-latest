@@ -1,3 +1,23 @@
+**Spate of Violent Antisemitic Attacks Rattles Australia**\
+`The police said they were investigating whether “overseas actors” were involved the vandalizing of synagogues and a day care center.`\
+https://nytimes.com/2025/01/22/world/asia/australia-antisemitic-attacks.html
+
+**Cardinals confident in prioritizing development as spring training nears**\
+`There are the questions the Cardinals want to answer this year. They need to know who they can build around — and who they can't.`\
+https://nytimes.com/athletic/6078586/2025/01/22/cardinals-development-spring-training/
+
+**Lowetide: What should the Oilers expect from new defenceman John Klingberg?**\
+`Klingberg will either be a brilliant addition for the Oilers or a quick audition that will be forgotten by fall.`\
+https://nytimes.com/athletic/6078380/2025/01/22/oilers-john-klingberg-outcomes/
+
+**Josh Allen cruises, Kliff Kingsbury calls a gem, more divisional round thoughts: Quick Outs**\
+`The Bills didn't need their star QB to be a superhero Sunday, while Saquon Barkley, Travis Kelce and Kliff Kingsbury all excelled.`\
+https://nytimes.com/athletic/6079098/2025/01/22/nfl-divisional-round-bills-saquon-barkley-quick-outs/
+
+**Why Wrexham vs Birmingham symbolises English football's new financial landscape**\
+`The involvement of Ryan Reynolds, Rob McElhenney and Tom Brady has helped make League One an increasingly high-stakes affair`\
+https://nytimes.com/athletic/6051860/2025/01/22/wrexham-birmingham-spending-power-english-football/
+
 **Trump’s Hint at Deal Making Gives China a Little Breathing Room**\
 `Whether it is over TikTok, fentanyl or trade, Beijing might welcome a compromise to buy time to address its ailing economy and bolster its position globally.`\
 https://nytimes.com/2025/01/22/world/asia/trump-china-deal-making.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6072324/2025/01/22/australian-open-ao-animated-yout
 **Brentford close to agreement over new Damsgaard contract**\
 `Mikkel Damsgaard is close to signing a new contract with Brentford until 2030.`\
 https://nytimes.com/athletic/6080169/2025/01/22/brentford-mikkel-damsgaard-contract-new/
-
-**Kneeling, wheeling, dealing: Tyler Bertuzzi racking up goals for Blackhawks**\
-`Bertuzzi has a knack for scoring goals from close to the net. Now, on a line with Connor Bedard, that unique skill is paying off more often.`\
-https://nytimes.com/athletic/6078907/2025/01/22/blackhawks-tyler-bertuzzi-goals/
-
-**The Pulse: One mysterious vote shy**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6079653/2025/01/22/ichiro-suzuki-hall-of-fame-the-pulse/
-
-**What Is an Executive Order?**\
-`President Trump began the first hours of his second administration by signing dozens of the orders.`\
-https://nytimes.com/2025/01/22/us/politics/what-is-an-executive-order.html
-
-**How to be a tennis pigeon: The worst matchups and how players prepare for them**\
-`A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
-https://nytimes.com/athletic/6077048/2025/01/22/worst-tennis-head-to-head-matchup-pigeon/
-
-**Ben Shelton slams 'embarrassing and disrespectful' Australian Open interviews**\
-`Shelton criticized Tony Jones' comments about Novak Djokovic as well as on-court interviews at the tournament.`\
-https://nytimes.com/athletic/6080163/2025/01/22/ben-shelton-australian-open-interviews/
 
