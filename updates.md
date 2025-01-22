@@ -1,3 +1,15 @@
+**Ex-N.Y.P.D. Sergeant Guilty of Punching Man 13 Times Gets No Jail Time**\
+`Christian Zapata hit a man repeatedly after being called to help calm an autistic teenager. Mr. Zapata got into a confrontation with the man after the sergeant refused to wear a mask.`\
+https://nytimes.com/2025/01/22/nyregion/nypd-officer-convicted.html
+
+**Trump Administration Cancels Flights for Refugees Already Approved for Travel**\
+`The decision leaves refugees who have completed a lengthy process stranded abroad and facing extended separation from loved ones already in the U.S.`\
+https://nytimes.com/2025/01/22/us/politics/trump-administration-refugee-flights-canceled.html
+
+**Five Ways Trump Made It Suddenly Harder to Face Climate Risks**\
+`From national security to home insurance, the president has quickly changed America’s climate adaptation policies in important ways.`\
+https://nytimes.com/2025/01/22/climate/trump-climate-policies.html
+
 **Five Ways Trump Made It Suddenly Harder to Face Climate Risks**\
 `From national security to home insurance, the president has quickly changed America’s climate adaptation policies in important ways.`\
 https://nytimes.com/2025/01/22/climate/five-ways-trump-made-it-suddenly-harder-to-face-climate-risks.html
