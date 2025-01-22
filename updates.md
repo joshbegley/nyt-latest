@@ -1,3 +1,7 @@
+**Jets hiring Aaron Glenn, Lions defensive coordinator, as head coach: Sources**\
+`The former Detroit Lions defensive coordinator is also a former Jets star cornerback.`\
+https://nytimes.com/athletic/6074341/2025/01/22/aaron-glenn-jets-head-coach-hired/
+
 **Here Is How Trump Moved to Seal the Southern Border on Day 1**\
 `President Trump issued a raft of executive orders that effectively block migrants from entering the United States and applying for asylum, closing off major legal channels for immigration.`\
 https://nytimes.com/2025/01/22/us/politics/trump-border-asylum-explainer.html
