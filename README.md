@@ -1,3 +1,11 @@
+**Jaguars, GM Trent Baalke parting ways amid coaching search**\
+`Baalke initially served as director of player personnel for the Jaguars in 2020 before being being promoted to GM in 2021.`\
+https://nytimes.com/athletic/6081568/2025/01/22/jaguars-trent-baalke-parting-ways/
+
+**Tell Us About the One Who Got Away**\
+`Have you ever had a “missed connection” or a big, deep love that slipped through your fingers? We want to hear about it.`\
+https://nytimes.com/2025/01/22/well/callout-the-one-who-got-away.html
+
 **South Carolina Utility Seeks Buyers for Failed Nuclear Project**\
 `The utility, Santee Cooper, is trying to sell two nuclear reactors that it abandoned in 2017 as tech companies seek new sources of electricity for data centers.`\
 https://nytimes.com/2025/01/22/business/energy-environment/south-carolina-nuclear-power-data-centers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/world/europe/britain-russia-spy-ship.html
 **Postecoglou: 'Potentially' no more signings at Spurs this month**\
 `Tottenham Hotspur head coach Ange Postecoglou has said that it remains a possibility that there are no further signings at the club this month.`\
 https://nytimes.com/athletic/6081460/2025/01/22/tottenham-transfers-postecoglou-latest/
-
-**Five deaths in Texas crash occurred after tractor-trailer struck three vehicles.**\
-`It started as a minor crash on a bridge between two vans, but a tractor-trailer wasn’t able to keep from hitting those gathered on the bridge.`\
-https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/five-deaths-in-texas-crash-occurred-after-tractor-trailer-struck-three-vehicles
-
-**Why You Might Suddenly Be Following Trump on Instagram and Facebook**\
-`Many Instagram and Facebook users say they are confused about why they are seeing posts from the president and vice president in their feeds. Here’s what to know.`\
-https://nytimes.com/2025/01/22/technology/personaltech/trump-instagram-facebook.html
 
