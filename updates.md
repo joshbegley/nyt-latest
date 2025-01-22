@@ -1,3 +1,11 @@
+**Brentford close to agreement over new Damsgaard contract**\
+`Mikkel Damsgaard is close to signing a new contract with Brentford until 2030.`\
+https://nytimes.com/athletic/6080169/2025/01/22/brentford-mikkel-damsgaard-contract-new/
+
+**How to be a tennis pigeon: The worst matchups and how players prepare for them**\
+`A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
+https://nytimes.com/athletic/6077048/2025/01/22/worst-tennis-head-to-head-matchup-pigeon/
+
 **Kneeling, wheeling, dealing: Tyler Bertuzzi racking up goals for Blackhawks**\
 `Bertuzzi has a knack for scoring goals from close to the net. Now, on a line with Connor Bedard, that unique skill is paying off more often.`\
 https://nytimes.com/athletic/6078907/2025/01/22/blackhawks-tyler-bertuzzi-goals/

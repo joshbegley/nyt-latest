@@ -1,3 +1,7 @@
+**Brentford close to agreement over new Damsgaard contract**\
+`Mikkel Damsgaard is close to signing a new contract with Brentford until 2030.`\
+https://nytimes.com/athletic/6080169/2025/01/22/brentford-mikkel-damsgaard-contract-new/
+
 **Kneeling, wheeling, dealing: Tyler Bertuzzi racking up goals for Blackhawks**\
 `Bertuzzi has a knack for scoring goals from close to the net. Now, on a line with Connor Bedard, that unique skill is paying off more often.`\
 https://nytimes.com/athletic/6078907/2025/01/22/blackhawks-tyler-bertuzzi-goals/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/6079653/2025/01/22/ichiro-suzuki-hall-of-fame-the-p
 **What Is an Executive Order?**\
 `President Trump began the first hours of his second administration by signing dozens of the orders.`\
 https://nytimes.com/2025/01/22/us/politics/what-is-an-executive-order.html
+
+**How to be a tennis pigeon: The worst matchups and how players prepare for them**\
+`A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
+https://nytimes.com/athletic/6077048/2025/01/22/worst-tennis-head-to-head-matchup-pigeon/
 
 **Ben Shelton slams 'embarrassing and disrespectful' Australian Open interviews**\
 `Shelton criticized Tony Jones' comments about Novak Djokovic as well as on-court interviews at the tournament.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6079047/2025/01/22/notre-dame-football-mailbag-ques
 **Zion Williamson's first five years in the NBA were full of highs, lows and drama. What's next?**\
 `Five years ago, anything seemed possible for Zion Williamson and the Pelicans. Now, the future is murky. `\
 https://nytimes.com/athletic/6074320/2025/01/22/zion-williamson-nba-debut-anniversary-pelicans/
-
-**Packers' 8-part offseason to-do list: Move on from Jaire Alexander, add edge rusher**\
-`General manager Brian Gutekunst said he thinks it's time for the Packers to start competing for championships in 2025.`\
-https://nytimes.com/athletic/6078596/2025/01/22/packers-offseason-to-do-list-2025/
-
-**Mike Vrabel’s winding path made him the coach the Patriots need now**\
-`A coaching journey he needed to take, and the former star linebacker uniquely suited to put a faltering franchise back on track.`\
-https://nytimes.com/athletic/6079189/2025/01/22/mike-vrabel-coaching-path-patriots-head-coach/
 
