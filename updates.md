@@ -1,3 +1,11 @@
+**Wednesday Briefing**\
+`Trump’s opponents push back.`\
+https://nytimes.com/2025/01/22/briefing/trump-europe-gaza.html
+
+**PSG vs Manchester City preview: Storylines, odds, prediction with both in need of points**\
+`Manchester City and Paris Saint-Germain are both struggling in the Champions League and in need of points as the league phase nears its end.`\
+https://nytimes.com/athletic/6079008/2025/01/22/psg-manchester-city-preview-odds-prediction/
+
 **Quote of the Day: Pardoning of Rioters Angers the Police**\
 `Quotation of the Day for Wednesday, January 22, 2025.`\
 https://nytimes.com/2025/01/21/pageoneplus/quote-of-the-day-pardoning-of-rioters-angers-the-police.html

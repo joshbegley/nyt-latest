@@ -1,3 +1,11 @@
+**Wednesday Briefing**\
+`Trump’s opponents push back.`\
+https://nytimes.com/2025/01/22/briefing/trump-europe-gaza.html
+
+**PSG vs Manchester City preview: Storylines, odds, prediction with both in need of points**\
+`Manchester City and Paris Saint-Germain are both struggling in the Champions League and in need of points as the league phase nears its end.`\
+https://nytimes.com/athletic/6079008/2025/01/22/psg-manchester-city-preview-odds-prediction/
+
 **Quote of the Day: Pardoning of Rioters Angers the Police**\
 `Quotation of the Day for Wednesday, January 22, 2025.`\
 https://nytimes.com/2025/01/21/pageoneplus/quote-of-the-day-pardoning-of-rioters-angers-the-police.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/21/business/korea-zinc-young-poong.html
 **Source: Chances of Jimmy Butler deal to Suns increase after Phoenix-Utah trade**\
 `On Tuesday, the Suns traded their 2031 unprotected first-round pick to the Jazz in exchange for first-round picks in 2025, 2027 and 2029.`\
 https://nytimes.com/athletic/6079497/2025/01/21/jimmy-butler-suns-jazz-trade-heat/
-
-**Drum Location**\
-`Landon Horton makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/01/21/crosswords/daily-puzzle-2025-01-22.html
-
-**How do coldblooded creatures stay warm in a winter storm?**\
-`By Alexandra E. Petri and Patricia Mazzei`\
-https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-do-coldblooded-creatures-stay-warm-in-a-winter-storm
 
