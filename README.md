@@ -1,3 +1,7 @@
+**'Keep Billieving': In Bills' lifetime of heartbreak, a glimmer of hope shines in underdog season**\
+`The Bills' season hasn't gone the way many thought it would, but in a good way.`\
+https://nytimes.com/athletic/6080066/2025/01/22/bills-chiefs-super-bowl-heartbreak/
+
 **Bucks-Pelicans game postponed due to snow in New Orleans**\
 `New Orleans received 10 inches of snow Tuesday from a stunning blizzard that blanked much of the city.`\
 https://nytimes.com/athletic/6081013/2025/01/22/nba-postponement-bucks-pelicans-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080738/2025/01/22/nwsl-schedule-release-2025-how-t
 **Man United and Lecce €10m apart on Dorgu valuation**\
 `Manchester United and Lecce are €10million apart in negotiations over wing-back Patrick Dorgu.`\
 https://nytimes.com/athletic/6074938/2025/01/22/manchester-united-transfer-patrick-dorgu-fee/
-
-**A New Thriller Is Coy About Its Director. (It’s Mel Gibson.)**\
-`For “Flight Risk,” his first outing as a director in nearly a decade, the Oscar winner isn’t quite taking center stage.`\
-https://nytimes.com/2025/01/22/movies/mel-gibson-flight-risk.html
 
