@@ -1,3 +1,11 @@
+**How Tyranny Begins**\
+`Tyranny doesn’t happen overnight. Take it from the people who missed the first signs.`\
+https://nytimes.com/video/opinion/100000009923409/government-oppression-power-tyranny.html
+
+**Hamilton test Ferrari F1 car for first time**\
+`Lewis Hamilton got behind the wheel of a Ferrari Formula One car for the first time in a test for his new team on Wednesday.`\
+https://nytimes.com/athletic/6080033/2025/01/22/lewis-hamilton-ferrari-car-first-test/
+
 **NBA All-Star ballots: Our voters’ picks for East and West starters**\
 `Some choices are easy. Others, like the ones in the Western Conference frontcourt, are a bit more difficult.`\
 https://nytimes.com/athletic/6078267/2025/01/22/nba-all-star-voting-2025-lebron-giannis-wembanyama/
