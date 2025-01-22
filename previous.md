@@ -1,3 +1,15 @@
+**Running with Alex Yee: The Paris 2024 gold medallist inspired by Crystal Palace**\
+`The Athletic interviews - and tries to keep up with - the most decorated triathlete in Olympic history `\
+https://nytimes.com/athletic/6072840/2025/01/22/alex-yee-interview-paris-olympics-crystal-palace/
+
+**Understanding Real Madrid's season: The injuries, the balance and the big-game struggles**\
+`The European champions have not had it all their own way in 2024-25 and they have work to do to advance to the Champions League knockouts`\
+https://nytimes.com/athletic/6076212/2025/01/22/real-madrid-analysis-la-liga-champions-league/
+
+**Why did Manchester United's performance vs Brighton make Ruben Amorim so angry?**\
+`The closing stages of Sunday's game infuriated the United boss. But what was it his players did wrong?`\
+https://nytimes.com/athletic/6078603/2025/01/22/ruben-amorim-manchester-united-positional-indiscipline/
+
 **Wednesday Briefing**\
 `Trump’s opponents push back.`\
 https://nytimes.com/2025/01/22/briefing/trump-europe-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6079737/2025/01/21/rangers-senators-matt-rempe-igor
 **Full Time: Women’s soccer’s first $1 million transfer**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6079744/2025/01/21/girma-chelsea-wave-1-million-full-time/
-
-**Ohio State overcomes No. 11 Purdue, ending 26-game home win streak**\
-`With the loss, Purdue falls into a virtual second-place tie with Michigan (14-4, 6-1) in the Big Ten.`\
-https://nytimes.com/athletic/6079718/2025/01/21/ohio-state-purdue-mens-basketball-result-analysis/
-
-**2 Families, in Business for 50 Years, Wage War in a South Korean Boardroom**\
-`Control of Korea Zinc, the world’s largest producer of zinc, is at stake in a battle challenging the country’s entrenched chaebol system of powerful conglomerates.`\
-https://nytimes.com/2025/01/21/business/korea-zinc-young-poong.html
-
-**Source: Chances of Jimmy Butler deal to Suns increase after Phoenix-Utah trade**\
-`On Tuesday, the Suns traded their 2031 unprotected first-round pick to the Jazz in exchange for first-round picks in 2025, 2027 and 2029.`\
-https://nytimes.com/athletic/6079497/2025/01/21/jimmy-butler-suns-jazz-trade-heat/
 
