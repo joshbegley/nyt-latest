@@ -1,3 +1,7 @@
+**Trump Starts Countdown Toward Tariffs on America’s Largest Trading Partners**\
+`The president said he will impose tariffs Feb. 1 on products from Canada, Mexico and China, which together account for more than a third of U.S. trade`\
+https://nytimes.com/2025/01/22/us/politics/trump-tariffs-trade-mexico-canada-china.html
+
 **Man City Women sign Kerolin from North Carolina Courage**\
 `Manchester City have completed the signing of Brazil forward Kerolin from North Carolina Courage.`\
 https://nytimes.com/athletic/6080373/2025/01/22/kerolin-manchester-city-transfer/

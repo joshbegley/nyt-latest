@@ -1,3 +1,7 @@
+**Trump Starts Countdown Toward Tariffs on America’s Largest Trading Partners**\
+`The president said he will impose tariffs Feb. 1 on products from Canada, Mexico and China, which together account for more than a third of U.S. trade`\
+https://nytimes.com/2025/01/22/us/politics/trump-tariffs-trade-mexico-canada-china.html
+
 **Man City Women sign Kerolin from North Carolina Courage**\
 `Manchester City have completed the signing of Brazil forward Kerolin from North Carolina Courage.`\
 https://nytimes.com/athletic/6080373/2025/01/22/kerolin-manchester-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080312/2025/01/22/wrexham-captain-james-mcclean-in
 **Pistons at midseason: Optimism is present and playoffs are in sight**\
 `Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
 https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
-
-**Keylor Navas joins Newell's Old Boys**\
-`Keylor Navas has joined Argentinean club Newell&#8217;s Old Boys.`\
-https://nytimes.com/athletic/6074790/2025/01/22/keylor-navas-transfer-newells-old-boys/
 
