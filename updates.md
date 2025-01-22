@@ -1,3 +1,11 @@
+**Full Time: Women’s soccer’s first $1 million transfer**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6079744/2025/01/21/girma-chelsea-wave-1-million-full-time/
+
+**Ohio State overcomes No. 11 Purdue, ending 26-game home win streak**\
+`With the loss, Purdue falls into a virtual second-place tie with Michigan (14-4, 6-1) in the Big Ten.`\
+https://nytimes.com/athletic/6079718/2025/01/21/ohio-state-purdue-mens-basketball-result-analysis/
+
 **2 Families, in Business for 50 Years, Wage War in a South Korean Boardroom**\
 `Control of Korea Zinc, the world’s largest producer of zinc, is at stake in a battle challenging the country’s entrenched chaebol system of powerful conglomerates.`\
 https://nytimes.com/2025/01/21/business/korea-zinc-young-poong.html

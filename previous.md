@@ -1,3 +1,11 @@
+**Full Time: Women’s soccer’s first $1 million transfer**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6079744/2025/01/21/girma-chelsea-wave-1-million-full-time/
+
+**Ohio State overcomes No. 11 Purdue, ending 26-game home win streak**\
+`With the loss, Purdue falls into a virtual second-place tie with Michigan (14-4, 6-1) in the Big Ten.`\
+https://nytimes.com/athletic/6079718/2025/01/21/ohio-state-purdue-mens-basketball-result-analysis/
+
 **2 Families, in Business for 50 Years, Wage War in a South Korean Boardroom**\
 `Control of Korea Zinc, the world’s largest producer of zinc, is at stake in a battle challenging the country’s entrenched chaebol system of powerful conglomerates.`\
 https://nytimes.com/2025/01/21/business/korea-zinc-young-poong.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6079538/2025/01/21/nhl-trade-rumblings-jt-miller-iv
 **Trump Expands Quick Deportations Across the U.S.**\
 `President Trump’s first administration tried to implement a similarly sped-up process for removing unauthorized immigrants, but those efforts were hampered by federal courts.`\
 https://nytimes.com/2025/01/21/us/politics/trump-deportations-immigration.html
-
-**Submit questions for Jayson Stark's Baseball Hall of Fame mailbag**\
-`Got a question about this year's Hall of Fame vote, next year’s election or the HOF outlook in the years after that? Ask away. `\
-https://nytimes.com/athletic/6079558/2025/01/21/hall-of-fame-mailbag-questions/
-
-**Harvard Adopts a Definition of Antisemitism for Discipline Cases**\
-`Many universities have been reluctant to embrace a definition that, among other things, considers some criticisms of Israel as antisemitic. The university’s decision was part of a lawsuit settlement.`\
-https://nytimes.com/2025/01/21/us/harvard-antisemitism-definition-discipline.html
 
