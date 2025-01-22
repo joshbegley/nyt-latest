@@ -1,3 +1,7 @@
+**The Athletic FC: Breaking down Benfica vs Barca chaos, Amorim anger, first $1m women's player?**\
+`Today in TAFC we break down the chaos of Barca's comeback win over Benfica, Amorim smashes a TV, and Girma set to be the first $1m player.`\
+https://nytimes.com/athletic/6080122/2025/01/22/benfica-barcelona-amorim-tv-girma-1m/
+
 **Rewriting Jan. 6**\
 `We’re covering President Trump’s pardons.`\
 https://nytimes.com/2025/01/22/briefing/donald-trump-jan-6-pardons.html
