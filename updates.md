@@ -1,3 +1,11 @@
+**How do coldblooded creatures stay warm in a winter storm?**\
+`By Alexandra E. Petri and Patricia Mazzei`\
+https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-do-coldblooded-creatures-stay-warm-in-a-winter-storm
+
+**The impact Hall of Fame induction has on players' baseball cards**\
+`Where the card market stands for the latest class of Baseball Hall of Famers `\
+https://nytimes.com/athletic/6079498/2025/01/21/ichiro-sabathia-wagner-hof-cards/
+
 **How to be a tennis pigeon: The worst matchups and how players prepare for them**\
 `A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
 https://nytimes.com/athletic/6077048/2025/01/21/worst-tennis-head-to-head-matchup-pigeon/
