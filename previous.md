@@ -1,3 +1,7 @@
+**Wrexham captain McClean involved in car accident on way to training**\
+`Wrexham captain James McClean was involved in a car accident on his way to training Wednesday, the club has confirmed.`\
+https://nytimes.com/athletic/6080312/2025/01/22/wrexham-captain-james-mcclean-involved-in-car-accident-on-way-to-training/
+
 **The Pistons at midseason: Optimism abound, and the playoffs are in sight**\
 `Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
 https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075545/2025/01/22/jimmy-butler-heat-trade-deadline
 **In This Math Thriller, Leo Woodall’s Numbers Add Up**\
 `A brilliant young mathematician becomes an enemy of the deep state in a paranoid new potboiler streaming on Apple TV+.`\
 https://nytimes.com/2025/01/22/arts/television/prime-target-leo-woodall.html
-
-**Israel Keeps Up Raids in West Bank, Arresting 25, Palestinian Reports Say**\
-`As many as 600 people were held in a hospital overnight, the mayor of the city of Jenin told a Palestinian news agency. The death toll from the two-day operation rose to 10, officials said.`\
-https://nytimes.com/2025/01/22/world/middleeast/israel-west-bank-jenin-raids.html
 

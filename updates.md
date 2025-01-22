@@ -1,3 +1,7 @@
+**Wrexham captain McClean involved in car accident on way to training**\
+`Wrexham captain James McClean was involved in a car accident on his way to training Wednesday, the club has confirmed.`\
+https://nytimes.com/athletic/6080312/2025/01/22/wrexham-captain-james-mcclean-involved-in-car-accident-on-way-to-training/
+
 **Lukas Podolski interview: Playing at 39, Arteta memories and why Havertz is 'not a striker'**\
 `The ex-Arsenal forward is considering retirement but is still keeping a keen eye on events at his former Premier League club`\
 https://nytimes.com/athletic/6072936/2025/01/22/lukas-podolski-interview/
