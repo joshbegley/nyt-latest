@@ -1,3 +1,15 @@
+**What Are Sanctuary Cities?**\
+`States, counties and cities across the U.S. have adopted policies to limit cooperation with immigration agents who seek to deport undocumented immigrants.`\
+https://nytimes.com/2025/01/22/us/sanctuary-cities-trump-immigration.html
+
+**Here’s what to know.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/01/22/us/los-angeles-wildfires-california/heres-what-to-know
+
+**Teen Opens Fire Inside Nashville High School Cafeteria, Police Say**\
+`At a news conference, an official said that a 17-year-old male student shot two other students and then himself.`\
+https://nytimes.com/video/us/100000009943043/nashville-antioch-school-shooting.html
+
 **Legendary Nebraska DC Charlie McBride honored 30 years after he tried — and failed — to retire**\
 `McBride was the DC at Nebraska for 18 seasons and led some of the Huskers' most successful defenses.`\
 https://nytimes.com/athletic/6081545/2025/01/22/charlie-mcbride-nebraska-defensive-coordinator-legacy-award/
