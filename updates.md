@@ -1,3 +1,7 @@
+**Judi Dench Says She No Longer Goes to Events Alone, Citing Vision Loss**\
+`The veteran English actress said that she now needed to attend public events with someone else, because of her worsening macular degeneration.`\
+https://nytimes.com/2025/01/22/arts/judi-dench-vision-loss.html
+
 **What will new Wisconsin OC Jeff Grimes bring to Badgers?**\
 `Head coach Luke Fickell hired Grimes from Kansas after experimenting with an air raid scheme under Phil Longo.`\
 https://nytimes.com/athletic/6081266/2025/01/22/wisconsin-football-offensive-coordinator-jeff-grimes/
