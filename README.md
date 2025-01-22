@@ -1,3 +1,23 @@
+**How Malick Yalcouye is readying himself for Brighton - in the Champions League**\
+`The 19-year-old midfielder is cutting his teeth in Europe's top club competition during his loan with Sturm Graz`\
+https://nytimes.com/athletic/6052145/2025/01/22/malick-yalcouye-brighton-champions-league/
+
+**How Moyes is trying to fix Everton's attack: Tactical tweaks, support for Calvert-Lewin, new signings?**\
+`It is early days, but Moyes’ Everton look like they are in a much better position to remedy their attacking woes`\
+https://nytimes.com/athletic/6077568/2025/01/22/everton-david-moyes-attack-calvert-lewin-lindstrom/
+
+**Has Arteta reached a conclusion after his wing experiments?**\
+`With Saka out, here's our analysis of the current wide combinations and how they've fared`\
+https://nytimes.com/athletic/6075002/2025/01/22/has-mikel-arteta-finally-reached-a-conclusion-after-his-arsenal-wing-experiments/
+
+**Do Chelsea have a problem to resolve in midfield?**\
+`Chelsea's limited options in midfield against Wolves on Monday night highlighted a growing issue for Enzo Maresca`\
+https://nytimes.com/athletic/6078208/2025/01/22/chelsea-midfield-options-lavia/
+
+**Farke wants a quiet transfer window - but do Leeds have the depth to win promotion?**\
+`It’s going to take Premier League quality to improve on what Leeds have. It’s why there has been a reluctance to add for the sake of it`\
+https://nytimes.com/athletic/6077990/2025/01/22/leeds-squad-depth-analysis-transfer/
+
 **Manchester City, Paris Saint-Germain and the threat to football's state-owned superpowers**\
 `Both European giants have struggled in the revamped Champions League and both need to win when they meet in Paris tonight`\
 https://nytimes.com/athletic/6078455/2025/01/22/manchester-city-paris-saint-germain-and-the-humbling-of-footballs-state-owned-superpowers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6076212/2025/01/22/real-madrid-analysis-la-liga-cha
 **Why did Manchester United's performance vs Brighton make Ruben Amorim so angry?**\
 `The closing stages of Sunday's game infuriated the United boss. But what was it his players did wrong?`\
 https://nytimes.com/athletic/6078603/2025/01/22/ruben-amorim-manchester-united-positional-indiscipline/
-
-**Wednesday Briefing**\
-`Trump’s opponents push back.`\
-https://nytimes.com/2025/01/22/briefing/trump-europe-gaza.html
-
-**PSG vs Manchester City preview: Storylines, odds, prediction with both in need of points**\
-`Manchester City and Paris Saint-Germain are both struggling in the Champions League and in need of points as the league phase nears its end.`\
-https://nytimes.com/athletic/6079008/2025/01/22/psg-manchester-city-preview-odds-prediction/
-
-**Quote of the Day: Pardoning of Rioters Angers the Police**\
-`Quotation of the Day for Wednesday, January 22, 2025.`\
-https://nytimes.com/2025/01/21/pageoneplus/quote-of-the-day-pardoning-of-rioters-angers-the-police.html
-
-**Gradey Dick is working to burst through the sophomore wall for Toronto**\
-`The 21-year-old guard will get every opportunity to end his second NBA season on a positive note.`\
-https://nytimes.com/athletic/6079786/2025/01/21/gradey-dick-raptors-magic/
-
-**Trump Is Said to Push for Early Reopening of North American Trade Deal**\
-`The president wants to begin renegotiating a U.S. trade deal with Canada and Mexico earlier than a scheduled 2026 review, people familiar with his thinking said.`\
-https://nytimes.com/2025/01/21/business/economy/trump-usmca-trade-deal-mexico-canada-autos.html
 
