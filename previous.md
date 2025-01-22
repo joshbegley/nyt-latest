@@ -1,40 +1,40 @@
-**Madison Keys will win or lose, her way**\
-`The American is back in the last four in Melbourne, with her husband in her coaching box. This is how they work it out`\
-https://nytimes.com/athletic/6079967/2025/01/22/madison-keys-australian-open-coach-bjorn-fratangelo/
+**What I'm hearing about the Penguins: Trade deadline whispers and slam dunks**\
+`Here's the latest buzz surrounding the Penguins, Kyle Dubas and the looming NHL trade deadline.`\
+https://nytimes.com/athletic/6078731/2025/01/22/penguins-nhl-trade-deadline-marcus-pettersson/
 
-**Prince Harry Agrees to Last-Minute Settlement With Murdoch’s U.K. Tabloids**\
-`Rupert Murdoch’s News Group Newspapers offered Harry a “full and unequivocal apology” for hacking his cellphone and intruding into his personal life and agreed to pay “substantial” damages.`\
-https://nytimes.com/2025/01/22/world/europe/prince-harry-murdoch-lawsuit.html
+**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
+`A memorable Notre Dame football season ended one win short of the program's first national championship since 1988. What's on your mind?`\
+https://nytimes.com/athletic/6079047/2025/01/22/notre-dame-football-mailbag-questions-16/
 
-**OG Anunoby in the film room: Knicks' lockdown 'stunter' shares his defensive secrets**\
-`The All-Defense contender can reel off the details of thefts he has no business recalling.`\
-https://nytimes.com/athletic/6079326/2025/01/22/og-anunoby-defensive-secrets-knicks-nba/
+**Zion Williamson's first five years in the NBA were full of highs, lows and drama. What's next?**\
+`Five years ago, anything seemed possible for Zion Williamson and the Pelicans. Now, the future is murky. `\
+https://nytimes.com/athletic/6074320/2025/01/22/zion-williamson-nba-debut-anniversary-pelicans/
 
-**Deadly Winter Storm Barrels Into the Carolinas and Brings Icy Roads**\
-`The powerful storm, fueled by a whirling mass of cold air that usually extends across the Arctic, was expected to leave much of the South in the low-teens or single-digit degrees.`\
-https://nytimes.com/2025/01/22/weather/winter-storm-snow-cold-south.html
+**Packers' 8-part offseason to-do list: Move on from Jaire Alexander, add edge rusher**\
+`General manager Brian Gutekunst said he thinks it's time for the Packers to start competing for championships in 2025.`\
+https://nytimes.com/athletic/6078596/2025/01/22/packers-offseason-to-do-list-2025/
 
-**‘Living Through Hell’: How North Africa Keeps Migrants From Europe**\
-`Libya deported more than 600 men from Niger last month as North African countries — financed by the European Union to tackle migration — have ramped up expulsions of sub-Saharan Africans.`\
-https://nytimes.com/2025/01/22/world/africa/libya-migrants-niger.html
+**Mike Vrabel’s winding path made him the coach the Patriots need now**\
+`A coaching journey he needed to take, and the former star linebacker uniquely suited to put a faltering franchise back on track.`\
+https://nytimes.com/athletic/6079189/2025/01/22/mike-vrabel-coaching-path-patriots-head-coach/
 
-**Thompson: NBA's 3-point surge isn't Steph Curry's fault — and it won't last forever**\
-`Don't blame the player and the team that did it right. Blame the less-efficient copycats, who surely will find a new thing to copy soon.`\
-https://nytimes.com/athletic/6078643/2025/01/22/nba-3-pointers-stephen-curry-daryl-morey/
+**Astros spring training: Cam Smith headlines non-roster invitees**\
+`A total of 23 non-roster invitees will invade the Astros’ major-league clubhouse in hopes of opening eyes or winning an Opening Day spot.`\
+https://nytimes.com/athletic/6079400/2025/01/22/houston-astros-spring-training-non-roster-invitees/
 
-**Neko Case: ‘If I Didn’t Yell the Truth, What Good Was I?’**\
-`The singer-songwriter speaks out about her troubled family history and reads a Modern Love essay about an estranged mother and daughter.`\
-https://nytimes.com/2025/01/22/podcasts/neko-case-yells-the-truth.html
+**How William Nylander mastered the art of the breakaway**\
+`Nylander has become the NHL’s breakaway king. How does he do it?`\
+https://nytimes.com/athletic/6078917/2025/01/22/maple-leafs-william-nylander-nhl-breakaways/
 
-**Will Ohio State's national title experience be like Michigan's? 8 things to know**\
-`As someone who covered Michigan’s national championship and its aftermath, I thought I’d give Ohio State a few pointers about what’s next.`\
-https://nytimes.com/athletic/6078897/2025/01/22/ohio-state-michigan-national-championship/
+**Alperen Şengün unplugged: Rockets big man on Jokić comparisons, All-Star hopes and more**\
+`Nearing real stardom, Şengün reflects on Rockets' belief in him: "Whoever trusts me, or backs me up, I will take care of them all my life."`\
+https://nytimes.com/athletic/6079651/2025/01/22/alperen-sengun-rockets-nba-all-star-nikola-jokic/
 
-**Why Brian Schottenheimer has entered the mix to be Cowboys' next head coach**\
-`Schottenheimer has never been a head coach but he's been the Cowboys' OC and has a good rapport with Dak Prescott.`\
-https://nytimes.com/athletic/6079319/2025/01/22/cowboys-brian-schottenheimer-coach-search-candidate/
+**What we’re hearing about the Cubs: Bullpen, Dansby Swanson, Pete Crow-Armstrong and more**\
+`Where can the Cubs go for bullpen help? Can Swanson bounce back from surgery? Where will Crow-Armstrong hit in the lineup?`\
+https://nytimes.com/athletic/6079683/2025/01/22/cubs-bullpen-possibilities-dansby-swanson-surgery/
 
-**From Day 1, Trump Shows He’ll Test Limits of What He Can Get Away With**\
-`It is unclear how much is left in Washington to restrain him.`\
-https://nytimes.com/2025/01/22/us/politics/trump-pardons-jan-6-day-1.html
+**How new Bears coach Ben Johnson 'created a monster' of an offense from many influences**\
+`Johnson doesn't come from one coaching tree. After learning from many coaches, he crafted one of the NFL's best offenses.`\
+https://nytimes.com/athletic/6079602/2025/01/22/bears-ben-johnson-dominant-offense/
 
