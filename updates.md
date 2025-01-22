@@ -1,3 +1,7 @@
+**Trump Administration Orders D.E.I. Officials Be Put on Leave**\
+`Staff members tasked with overseeing diversity, equity and inclusion efforts were to be placed on paid administrative leave by 5 p.m. Wednesday.`\
+https://nytimes.com/2025/01/22/us/politics/trump-dei-diversity-officials-orders.html
+
 **How Malick Yalcouye is readying himself for Brighton - in the Champions League**\
 `The 19-year-old midfielder is cutting his teeth in Europe's top club competition during his loan with Sturm Graz`\
 https://nytimes.com/athletic/6052145/2025/01/22/malick-yalcouye-brighton-champions-league/
