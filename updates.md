@@ -1,3 +1,7 @@
+**Trump Is Said to Push for Early Reopening of North American Trade Deal**\
+`The president wants to begin renegotiating a U.S. trade deal with Canada and Mexico earlier than a scheduled 2026 review, people familiar with his thinking said.`\
+https://nytimes.com/2025/01/21/business/economy/trump-usmca-trade-deal-mexico-canada-autos.html
+
 **Matt Rempe Mania returns as Igor Shesterkin gets 'feisty': 4 takeaways vs. Senators**\
 `Team togetherness was on full display as New York beat Ottawa and improved to 7-1-3 in January.`\
 https://nytimes.com/athletic/6079737/2025/01/21/rangers-senators-matt-rempe-igor-shesterkin/
