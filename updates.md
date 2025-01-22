@@ -1,3 +1,19 @@
+**Man City Women sign Kerolin from North Carolina Courage**\
+`Manchester City have completed the signing of Brazil forward Kerolin from North Carolina Courage.`\
+https://nytimes.com/athletic/6080373/2025/01/22/kerolin-manchester-city-transfer/
+
+**Even Religious People Don’t Trust Religious Institutions**\
+`And why secular people should care`\
+https://nytimes.com/2025/01/22/opinion/religious-institutions-church.html
+
+**My Son Wants to Pay for His Sister to Freeze Her Eggs. Too Weird?**\
+`A mother wonders whether such an offer from her well-off son would be overstepping, and if not, whether she should be the one to float the idea.`\
+https://nytimes.com/2025/01/22/style/egg-freezing-siblings.html
+
+**MoneyCall: What next for the CFP?**\
+`Welcome to MoneyCall, The Athletic's weekly sports business newsletter.`\
+https://nytimes.com/athletic/6079787/2025/01/22/cfp-business-expansion-moneycall-newsletter/
+
 **Patriots expected to hire Lions' Terrell Williams as defensive coordinator**\
 `Williams will reunite with coach Mike Vrabel in New England after working on Vrabel's staff for six years with the Titans.`\
 https://nytimes.com/athletic/6080411/2025/01/22/terrell-williams-hired-lions-patriots/
