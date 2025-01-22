@@ -1,3 +1,11 @@
+**Authenticated snow from Eagles-Rams playoff game sells out**\
+`An unusual collectible from a memorable game`\
+https://nytimes.com/athletic/6081888/2025/01/22/snow-eagles-rams-nfl-playoffs/
+
+**Ben Johnson ready to build Bears offense around Caleb Williams: 'He is a phenomenal talent'**\
+`Williams is excited for his new head coach, who wants to make sure the new playbook is "calibrated" for the quarterback.`\
+https://nytimes.com/athletic/6081845/2025/01/22/ben-johnson-ready-to-build-bears-offense-around-caleb-williams-he-is-a-phenomenal-talent/
+
 **Congress Clears Measure to Deport Immigrants Accused of Crimes**\
 `Final approval by the House sent the legislation, which requires the detention and deportation of unauthorized migrants charged with crimes, to President Trump’s desk.`\
 https://nytimes.com/2025/01/22/us/politics/laken-riley-act.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6081265/2025/01/22/dereck-lively-out-ankle-injury-m
 **Here’s Where It Snowed the Most Across the South**\
 `The figures are unofficial because National Weather Service officials must assess totals, but Florida appears to have broken a state snow record.`\
 https://nytimes.com/2025/01/22/weather/winter-storm-records-florida.html
-
-**The Briefing: Paris Saint-Germain 4 Manchester City 2 - City capitulate as Champions League top-eight hopes end**\
-`Thom Harris, Sam Lee and Oliver Kay break down the main talking points Manchester City's 4-2 loss to PSG in the Champions League`\
-https://nytimes.com/athletic/6077832/2025/01/22/paris-saint-germain-4-manchester-city-2-champions-league/
-
-**House Republicans Create New Jan. 6 Inquiry to Recast the Assault**\
-`Speaker Mike Johnson said the panel would counter “false narratives” about the Jan. 6, 2021, riot and what led up to it, a sign that the G.O.P. would continue to try shift blame for the attack.`\
-https://nytimes.com/2025/01/22/us/politics/jan6-house-committee.html
 
