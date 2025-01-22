@@ -14,7 +14,7 @@ https://nytimes.com/2025/01/22/weather/south-warm-weather-forecast.html
 `Ronald Araujo is set to sign a new six-and-a-half-year deal with Barcelona, while the club are negotiating with Pedri over extending his contract.`\
 https://nytimes.com/athletic/6080498/2025/01/22/ronald-araujo-barcelona-contract-new-pedri/
 
-**Far-Right Leaders Granted Clemency by Trump Speak Out**\
+**Far-Right Leaders Granted Clemency by Trump Express Desire for Retribution**\
 `Enrique Tarrio of the Proud Boys and Stewart Rhodes of the Oath Keepers asserted that they wanted President Trump to seek revenge on their behalf for being prosecuted in connection with the Jan. 6 riot.`\
 https://nytimes.com/2025/01/22/us/politics/enrique-tarrio-stewart-rhodes.html
 
