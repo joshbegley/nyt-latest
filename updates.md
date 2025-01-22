@@ -1,3 +1,7 @@
+**It's Jan. 22, so get ready for something noteworthy to happen in the NBA**\
+`Counting last year's two big individual performances, this date has been a day when larger-than-life moments happen in the NBA.`\
+https://nytimes.com/athletic/6079050/2025/01/22/nba-kobe-zion-barkley-embiid-kat/
+
 **Ex-Executive Who Oversaw South Korean Airport Renovations Is Found Dead**\
 `Son Chang-wan was in office while works were undertaken at Muan International Airport. Last month, a plane crashed into a concrete barrier there, killing 179 people.`\
 https://nytimes.com/2025/01/22/world/asia/south-korea-crash-executive-dead.html

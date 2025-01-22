@@ -1,3 +1,7 @@
+**It's Jan. 22, so get ready for something noteworthy to happen in the NBA**\
+`Counting last year's two big individual performances, this date has been a day when larger-than-life moments happen in the NBA.`\
+https://nytimes.com/athletic/6079050/2025/01/22/nba-kobe-zion-barkley-embiid-kat/
+
 **Ex-Executive Who Oversaw South Korean Airport Renovations Is Found Dead**\
 `Son Chang-wan was in office while works were undertaken at Muan International Airport. Last month, a plane crashed into a concrete barrier there, killing 179 people.`\
 https://nytimes.com/2025/01/22/world/asia/south-korea-crash-executive-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/crosswords/spelling-bee-forum.html
 **Simeone vs Alonso: A meeting of coaching minds - and one that could happen again soon**\
 `Alonso's Bayer Leverkusen visited Simeone's Atletico Madrid on Tuesday night - The Athletic was watching both men`\
 https://nytimes.com/athletic/6066253/2025/01/22/diego-simeone-xabi-alonso-atletico-leverkusen/
-
-**Barcelona have been linked with Marcus Rashford - but do they need him?**\
-`Hansi Flick has the best-performing attack in the Champions League so the Manchester United forward feels like an odd fit `\
-https://nytimes.com/athletic/6079596/2025/01/22/marcus-rashford-barcelona-benfica-champions-league/
 
