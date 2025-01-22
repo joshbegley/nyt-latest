@@ -1,3 +1,7 @@
+**Pistons at midseason: Optimism is present and playoffs are in sight**\
+`Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
+https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
+
 **Pistons at midseason: Optimism abound, playoffs are in sight**\
 `Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
 https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
