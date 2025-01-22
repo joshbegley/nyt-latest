@@ -1,3 +1,7 @@
+**Jocelyn Benson, Michigan’s Secretary of State, Is Running for Governor**\
+`Ms. Benson, a Democrat, jumped into a high-profile and potentially crowded race to lead one of the country’s top battleground states.`\
+https://nytimes.com/2025/01/22/us/politics/jocelyn-benson-michigan-governor.html
+
 **10 Gut Myths, Corrected**\
 `We asked leading authorities for the truth about probiotics, elimination diets, leaky gut and more.`\
 https://nytimes.com/2025/01/22/well/gut-health-myths.html

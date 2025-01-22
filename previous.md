@@ -1,3 +1,7 @@
+**Jocelyn Benson, Michigan’s Secretary of State, Is Running for Governor**\
+`Ms. Benson, a Democrat, jumped into a high-profile and potentially crowded race to lead one of the country’s top battleground states.`\
+https://nytimes.com/2025/01/22/us/politics/jocelyn-benson-michigan-governor.html
+
 **10 Gut Myths, Corrected**\
 `We asked leading authorities for the truth about probiotics, elimination diets, leaky gut and more.`\
 https://nytimes.com/2025/01/22/well/gut-health-myths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080378/2025/01/22/college-football-dynasties-cfp-o
 **Trump Starts Countdown Toward Tariffs on America’s Largest Trading Partners**\
 `The president said he will impose tariffs Feb. 1 on products from Canada, Mexico and China, which together account for more than a third of U.S. trade`\
 https://nytimes.com/2025/01/22/us/politics/trump-tariffs-trade-mexico-canada-china.html
-
-**Man City Women sign Kerolin from North Carolina Courage**\
-`Manchester City have completed the signing of Brazil forward Kerolin from North Carolina Courage.`\
-https://nytimes.com/athletic/6080373/2025/01/22/kerolin-manchester-city-transfer/
 
