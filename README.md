@@ -1,3 +1,7 @@
+**Thursday Briefing: Trump’s Immigration Crackdown**\
+`Plus, predictions for today’s Oscar nominations.`\
+https://nytimes.com/2025/01/22/briefing/trump-immigration-prince-harry-murdoch-north-korea-russia.html
+
 **Democrats Slow G.O.P. Rush to Confirm Trump Nominees**\
 `Republicans will be able to win approval of President Trump’s top picks if they remain united, but they are frustrated by Democratic tactics.`\
 https://nytimes.com/2025/01/22/us/politics/democrats-trump-nominees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/business/reddit-x-boycott-elon-musk.html
 **Jaguars, GM Trent Baalke parting ways amid coaching search**\
 `Baalke initially served as director of player personnel for the Jaguars in 2020 before being being promoted to GM in 2021.`\
 https://nytimes.com/athletic/6081568/2025/01/22/jaguars-trent-baalke-parting-ways/
-
-**Tell Us About the One Who Got Away**\
-`Have you ever had a “missed connection” or a big, deep love that slipped through your fingers? We want to hear about it.`\
-https://nytimes.com/2025/01/22/well/callout-the-one-who-got-away.html
 

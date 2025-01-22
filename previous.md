@@ -1,3 +1,7 @@
+**Democrats Slow G.O.P. Rush to Confirm Trump Nominees**\
+`Republicans will be able to win approval of President Trump’s top picks if they remain united, but they are frustrated by Democratic tactics.`\
+https://nytimes.com/2025/01/22/us/politics/democrats-trump-nominees.html
+
 **What Are Sanctuary Cities?**\
 `States, counties and cities across the U.S. have adopted policies to limit cooperation with immigration agents who seek to deport undocumented immigrants.`\
 https://nytimes.com/2025/01/22/us/sanctuary-cities-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6081568/2025/01/22/jaguars-trent-baalke-parting-way
 **Tell Us About the One Who Got Away**\
 `Have you ever had a “missed connection” or a big, deep love that slipped through your fingers? We want to hear about it.`\
 https://nytimes.com/2025/01/22/well/callout-the-one-who-got-away.html
-
-**South Carolina Utility Seeks Buyers for Failed Nuclear Project**\
-`The utility, Santee Cooper, is trying to sell two nuclear reactors that it abandoned in 2017 as tech companies seek new sources of electricity for data centers.`\
-https://nytimes.com/2025/01/22/business/energy-environment/south-carolina-nuclear-power-data-centers.html
 

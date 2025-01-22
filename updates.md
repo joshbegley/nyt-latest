@@ -1,3 +1,7 @@
+**Democrats Slow G.O.P. Rush to Confirm Trump Nominees**\
+`Republicans will be able to win approval of President Trump’s top picks if they remain united, but they are frustrated by Democratic tactics.`\
+https://nytimes.com/2025/01/22/us/politics/democrats-trump-nominees.html
+
 **What Are Sanctuary Cities?**\
 `States, counties and cities across the U.S. have adopted policies to limit cooperation with immigration agents who seek to deport undocumented immigrants.`\
 https://nytimes.com/2025/01/22/us/sanctuary-cities-trump-immigration.html
