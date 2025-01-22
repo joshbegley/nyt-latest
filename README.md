@@ -1,3 +1,19 @@
+**Mavericks' Dereck Lively II out at least 1 month with ankle injury**\
+`The Mavericks have been plagued by injury issues since Christmas and will miss Lively’s lob-finishing ability and rim protection.`\
+https://nytimes.com/athletic/6081265/2025/01/22/dereck-lively-out-ankle-injury-mavericks/
+
+**Here’s Where It Snowed the Most Across the South**\
+`The figures are unofficial because National Weather Service officials must assess totals, but Florida appears to have broken a state snow record.`\
+https://nytimes.com/2025/01/22/weather/winter-storm-records-florida.html
+
+**The Briefing: Paris Saint-Germain 4 Manchester City 2 - City capitulate as Champions League top-eight hopes end**\
+`Thom Harris, Sam Lee and Oliver Kay break down the main talking points Manchester City's 4-2 loss to PSG in the Champions League`\
+https://nytimes.com/athletic/6077832/2025/01/22/paris-saint-germain-4-manchester-city-2-champions-league/
+
+**House Republicans create a new Jan. 6 inquiry to recast the pro-Trump assault.**\
+`Speaker Mike Johnson said the panel would counter “false narratives” about the Jan. 6, 2021, riot and what led up to it, a sign that the G.O.P. would continue to try shift blame for the attack.`\
+https://nytimes.com/2025/01/22/us/politics/jan6-house-committee.html
+
 **Ravens appear unlikely to make massive changes after disappointing playoff exit**\
 `General manager Eric DeCosta and head coach John Harbaugh are already preparing themselves for what next season brings. `\
 https://nytimes.com/athletic/6081718/2025/01/22/ravens-roster-offseason-john-harbaugh-eric-decosta/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6081726/2025/01/22/why-jayden-daniels-is-thriving-w
 **Man Charged With Giving Fake Botox Injections That Sickened Clients**\
 `A Manhattan aesthetician was arrested and charged with injecting patients at his medical spa with counterfeit Botox, prosecutors said, sending some to the hospital.`\
 https://nytimes.com/2025/01/22/nyregion/fake-botox-joey-grant-luther.html
-
-**Real Madrid 5 Salzburg 1 - Rodrygo demands respect, brilliant Bellingham, Vinicius Jr to miss Brest**\
-`Madrid were rampant against Salzburg thanks to fine performances from Rodrygo, Bellingham and Vinicius Jr`\
-https://nytimes.com/athletic/6078533/2025/01/22/real-madrid-4-red-bull-salzburg-0-rodrygo-bellingham-vinicius/
-
-**Judges in Washington Push Back on Trump’s Reprieve of Jan. 6 Defendants**\
-`While dismissing cases, judges who have overseen the prosecutions made clear that the orders did nothing to change the reality of the attack on the Capitol.`\
-https://nytimes.com/2025/01/22/us/politics/trump-pardons-jan-6.html
-
-**The Briefing: Arsenal 3 D Zagreb 0 - Nwaneri makes welcome return as Arteta's side close in on knockouts**\
-`We break down the talking points as Arsenal secured victory at the Emirates`\
-https://nytimes.com/athletic/6076179/2025/01/22/arsenal-champions-league-havertz-nwaneri/
-
-**Bengals to hire Notre Dame's Al Golden as defensive coordinator: Source**\
-`Golden returns to the Bengals after serving as the franchise's linebackers coach in 2020 and 2021.`\
-https://nytimes.com/athletic/6067810/2025/01/22/al-golden-defensive-coordinator-hired-bengals/
 
