@@ -1,3 +1,19 @@
+**Man City Women sign Kerolin from North Carolina Courage**\
+`Manchester City have completed the signing of Brazil forward Kerolin from North Carolina Courage.`\
+https://nytimes.com/athletic/6080373/2025/01/22/kerolin-manchester-city-transfer/
+
+**Even Religious People Don’t Trust Religious Institutions**\
+`And why secular people should care`\
+https://nytimes.com/2025/01/22/opinion/religious-institutions-church.html
+
+**My Son Wants to Pay for His Sister to Freeze Her Eggs. Too Weird?**\
+`A mother wonders whether such an offer from her well-off son would be overstepping, and if not, whether she should be the one to float the idea.`\
+https://nytimes.com/2025/01/22/style/egg-freezing-siblings.html
+
+**MoneyCall: What next for the CFP?**\
+`Welcome to MoneyCall, The Athletic's weekly sports business newsletter.`\
+https://nytimes.com/athletic/6079787/2025/01/22/cfp-business-expansion-moneycall-newsletter/
+
 **Patriots expected to hire Lions' Terrell Williams as defensive coordinator**\
 `Williams will reunite with coach Mike Vrabel in New England after working on Vrabel's staff for six years with the Titans.`\
 https://nytimes.com/athletic/6080411/2025/01/22/terrell-williams-hired-lions-patriots/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-c
 **Keylor Navas joins Newell's Old Boys**\
 `Keylor Navas has joined Argentinean club Newell&#8217;s Old Boys.`\
 https://nytimes.com/athletic/6074790/2025/01/22/keylor-navas-transfer-newells-old-boys/
-
-**Lukas Podolski interview: Playing at 39, Arteta memories and why Havertz is 'not a striker'**\
-`The ex-Arsenal forward is considering retirement but is still keeping a keen eye on events at his former Premier League club`\
-https://nytimes.com/athletic/6072936/2025/01/22/lukas-podolski-interview/
-
-**What next for Kuol, Newcastle's 'project' player facing a pivotal six months?**\
-`The Australian has yet to make a competitive appearance for the first team, so what might the future hold for him?`\
-https://nytimes.com/athletic/6080072/2025/01/22/garang-kuol-newcastle-future/
-
-**Taking Trump’s Tariffs Threats Seriously and Literally**\
-`Some analysts increasingly believe the president sees levies as more than a negotiating ploy. To him, they’re a potential source of revenue.`\
-https://nytimes.com/2025/01/22/business/dealbook/trump-tariffs-money.html
-
-**Popovich’s return to Spurs this season from a stroke still in question**\
-`PARIS – Legendary San Antonio Spurs coach Gregg Popovich is “attacking his rehab with the same resilience” after suffering a stroke in November that he’d shown on the bench, chief executive RC Buford said, but his return to the team this season remains in question.`\
-https://nytimes.com/athletic/6080269/2025/01/22/gregg-popovich-spurs-return-stroke/
 
