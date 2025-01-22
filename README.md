@@ -1,3 +1,11 @@
+**Man United and Lecce €10m apart on Dorgu valuation**\
+`Manchester United and Lecce are €10million apart in negotiations over wing-back Patrick Dorgu.`\
+https://nytimes.com/athletic/6074938/2025/01/22/manchester-united-transfer-patrick-dorgu-fee/
+
+**A New Thriller Is Coy About Its Director. (It’s Mel Gibson.)**\
+`For “Flight Risk,” his first outing as a director in nearly a decade, the Oscar winner isn’t quite taking center stage.`\
+https://nytimes.com/2025/01/22/movies/mel-gibson-flight-risk.html
+
 **The D.E.I. Retreat Has Some Notable Holdouts**\
 `As racial and gender equity programs come under attack, many companies have scaled back. But Costco, Microsoft and others have forged ahead.`\
 https://nytimes.com/2025/01/22/business/dei-programs-initiatives-costco-microsoft.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6073644/2025/01/22/commanders-eagles-how-to-watch-o
 **Submit your questions for Audrey Snyder's Penn State mailbag**\
 `With the bulk of the roster returning, Penn State carries high expectations into the offseason. `\
 https://nytimes.com/athletic/6080906/2025/01/22/penn-state-football-offseason-2025-james-franklin/
-
-**Houthis Say They Will Free the Crew of a Cargo Ship They Hijacked 14 Months Ago**\
-`The Iranian-backed rebel group in Yemen made the announcement after the Houthis said they would scale back attacks given the cease-fire in the conflict in Gaza.`\
-https://nytimes.com/2025/01/22/world/middleeast/houthis-yemen-ship-seized.html
-
-**These New Yorkers Were Jailed for Jan. 6 Crimes. Trump Set Them Free.**\
-`Two former New York City police officers and members of the Proud Boys and the Oath Keepers were among the nearly 1,600 who received an extraordinary legal reprieve.`\
-https://nytimes.com/2025/01/22/nyregion/nyc-trump-jan-6-pardons.html
 
