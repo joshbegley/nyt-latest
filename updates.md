@@ -1,3 +1,11 @@
+**Bengals hire Notre Dame's Al Golden as defensive coordinator**\
+`Golden returns to the Bengals after serving as the franchise's linebackers coach in 2020 and 2021.`\
+https://nytimes.com/athletic/6067810/2025/01/22/al-golden-defensive-coordinator-hired-bengals/
+
+**Let’s Discuss: Inside 100 Years of the Harlem Renaissance**\
+`What do you know about the Harlem Renaissance? How does the movement still resonate today? Post your comments and questions for our journalist Veronica Chambers by Jan. 30.`\
+https://nytimes.com/2025/01/22/learning/lesson-plans/lets-discuss-inside-100-years-of-the-harlem-renaissance.html
+
 **Lynn Ban, Jewelry Designer and ‘Bling Empire’ Star, Dies After Ski Accident**\
 `The designer’s son confirmed her death in a post on Instagram. Ms. Ban had designed jewelry worn by celebrities including Rihanna and Beyoncé.`\
 https://nytimes.com/2025/01/22/fashion/lynn-ban-dead-bling-empire.html
