@@ -1,7 +1,3 @@
-**Titans won't pass on 'generational talent' in draft, GM Borgonzi looks to build through draft**\
-`Borgonzi will be in charge of making all selections in this year's draft, but the Titans are not afraid of trading back to acquire assets.`\
-https://nytimes.com/athletic/6081967/2025/01/22/mike-borgonzi-titans-2025-nfl-draft/
-
 **Winter storm, heavy snow causes multiple postponements across sports world**\
 `NBA game, huge women's college basketball matchup among games impacted by weather.`\
 https://nytimes.com/athletic/6081188/2025/01/22/winter-storm-heavy-snow-postponements/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/22/climate/trump-national-emergencies.html
 **Authenticated snow from Eagles-Rams playoff game sells out**\
 `An unusual collectible from a memorable game`\
 https://nytimes.com/athletic/6081888/2025/01/22/snow-eagles-rams-nfl-playoffs/
+
+**Ben Johnson ready to build Bears offense around Caleb Williams: 'He is a phenomenal talent'**\
+`Williams is excited for his new head coach, who wants to make sure the new playbook is "calibrated" for the quarterback.`\
+https://nytimes.com/athletic/6081845/2025/01/22/ben-johnson-ready-to-build-bears-offense-around-caleb-williams-he-is-a-phenomenal-talent/
 
