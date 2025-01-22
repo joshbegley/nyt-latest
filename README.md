@@ -1,3 +1,11 @@
+**Lynn Ban, Jewelry Designer and ‘Bling Empire’ Star, Dies After Ski Accident**\
+`The designer’s son confirmed her death in a heartbreaking post on Instagram. Ms. Ban had designed jewelry worn by celebrities including Rihanna and Beyoncé.`\
+https://nytimes.com/2025/01/22/fashion/lynn-ban-dead-bling-empire.html
+
+**Bannon Gets New Lawyer and Brief Delay, With Trial Set for March 4**\
+`The adviser to President Trump faces charges that he fleeced donors who thought they were helping to build a wall on the U.S.-Mexico border.`\
+https://nytimes.com/2025/01/22/nyregion/steve-bannon-fraud-trial-date.html
+
 **Thursday Briefing: Trump’s Immigration Crackdown**\
 `Plus, predictions for today’s Oscar nominations.`\
 https://nytimes.com/2025/01/22/briefing/trump-immigration-prince-harry-murdoch-north-korea-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/rfk-hpv-vaccine-merck.html
 **Senate Democrats Block G.O.P. Effort to Criminalize Some Abortion Providers**\
 `The bill would require that infants born alive after an attempted abortion receive the same protection as any newborn baby, and threaten medical providers with prison time for failing to resuscitate them.`\
 https://nytimes.com/2025/01/22/us/politics/senate-abortion-vote-republicans.html
-
-**Reddit Users Boycott X Links After Elon Musk’s Gesture at Inaugural Event**\
-`A boycott of links to Mr. Musk’s social media platform spread on Reddit this week, after he made a gesture that some likened to a Nazi salute. Others worried about censorship.`\
-https://nytimes.com/2025/01/22/business/reddit-x-boycott-elon-musk.html
-
-**Jaguars, GM Trent Baalke parting ways amid coaching search**\
-`Baalke initially served as director of player personnel for the Jaguars in 2020 before being being promoted to GM in 2021.`\
-https://nytimes.com/athletic/6081568/2025/01/22/jaguars-trent-baalke-parting-ways/
 
