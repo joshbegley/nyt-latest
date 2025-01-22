@@ -1,3 +1,11 @@
+**Lynn Ban, Jewelry Designer and ‘Bling Empire’ Star, Dies After Ski Accident**\
+`The designer’s son confirmed her death in a heartbreaking post on Instagram. Ms. Ban had designed jewelry worn by celebrities including Rihanna and Beyoncé.`\
+https://nytimes.com/2025/01/22/fashion/lynn-ban-dead-bling-empire.html
+
+**Bannon Gets New Lawyer and Brief Delay, With Trial Set for March 4**\
+`The adviser to President Trump faces charges that he fleeced donors who thought they were helping to build a wall on the U.S.-Mexico border.`\
+https://nytimes.com/2025/01/22/nyregion/steve-bannon-fraud-trial-date.html
+
 **Thursday Briefing: Trump’s Immigration Crackdown**\
 `Plus, predictions for today’s Oscar nominations.`\
 https://nytimes.com/2025/01/22/briefing/trump-immigration-prince-harry-murdoch-north-korea-russia.html
