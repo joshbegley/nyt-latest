@@ -1,3 +1,7 @@
+**Word of the Day: dismantle**\
+`This word has appeared in 375 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html
+
 **The three passes that summed up Aston Villa's bad night in Monaco**\
 `Aston Villa fell to a difficult defeat against Monaco in the Champions League`\
 https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-monaco/
