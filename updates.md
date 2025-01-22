@@ -1,3 +1,7 @@
+**Bucks-Pelicans game postponed due to snow in New Orleans**\
+`New Orleans received 10 inches of snow Tuesday from a stunning blizzard that blanked much of the city.`\
+https://nytimes.com/athletic/6081013/2025/01/22/nba-postponement-bucks-pelicans-game/
+
 **Review: Muti and Chicago Give a Singing Account of a Rare Verdi**\
 `Riccardo Muti led the Chicago Symphony Orchestra at Carnegie Hall in a program that featured Verdi’s “Four Seasons” and Tchaikovsky.`\
 https://nytimes.com/2025/01/22/arts/music/review-riccardo-muti-chicago-symphony-verdi.html
