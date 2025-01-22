@@ -1,3 +1,7 @@
+**The Athletic FC: Breaking down Benfica vs Barca chaos, Amorim anger, first $1m women's player?**\
+`Today in TAFC we break down the chaos of Barca's comeback win over Benfica, Amorim smashes a TV, and Girma set to be the first $1m player.`\
+https://nytimes.com/athletic/6080122/2025/01/22/benfica-barcelona-amorim-tv-girma-1m/
+
 **Rewriting Jan. 6**\
 `We’re covering President Trump’s pardons.`\
 https://nytimes.com/2025/01/22/briefing/donald-trump-jan-6-pardons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080163/2025/01/22/ben-shelton-australian-open-inte
 **Why Kevin O'Connell's extension with the Vikings was an absolute no-brainer**\
 `The Vikings were never going to trade O'Connell, who led the team to a 14-3 record and within one win of the No. 1 seed in the NFC.`\
 https://nytimes.com/athletic/6079452/2025/01/22/kevin-oconnell-vikings-contract-extension/
-
-**What I'm hearing about the Penguins: Trade deadline whispers and slam dunks**\
-`Here's the latest buzz surrounding the Penguins, Kyle Dubas and the looming NHL trade deadline.`\
-https://nytimes.com/athletic/6078731/2025/01/22/penguins-nhl-trade-deadline-marcus-pettersson/
 
