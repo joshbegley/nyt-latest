@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6080474/2025/01/22/real-madrid-out-earned-mancheste
 
 **Amid a Wintry Mess, New Orleans Also Savors a Spectacle**\
 `The storm brought both dazzling landscapes of ice and snow and challenges to a city unaccustomed to such severe winter weather.`\
-https://nytimes.com/2025/01/22/weather/amid-a-wintry-mess-new-orleans-also-savors-a-spectacle.html
+https://nytimes.com/2025/01/22/weather/snow-winter-new-orleans.html
 
 **Ex-N.Y.P.D. Sergeant Guilty of Punching Man 13 Times Gets No Jail Time**\
 `Christian Zapata hit a man repeatedly after being called to help calm an autistic teenager. Mr. Zapata got into a confrontation with the man after the sergeant refused to wear a mask.`\
