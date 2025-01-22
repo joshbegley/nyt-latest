@@ -1,3 +1,11 @@
+**Rangers fan survey results: Confidence in the playoffs and Laviolette, but not Drury**\
+`More than 1,000 Rangers fans participated in our fan survey, giving their preferred trade candidates, thoughts on a rebuild and more.`\
+https://nytimes.com/athletic/6078143/2025/01/22/rangers-fan-survey-results-drury-laviolette/
+
+**Live Updates: Sun Belt Iced Over After Record Snowfall**\
+`A powerful storm, fueled by a whirling mass of cold air originating from the Arctic, plunged temperatures into the teens. At least 10 people have died.`\
+https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south
+
 **Hollinger: As Jimmy Butler rumors swirl, Suns keep chasing short-term highs**\
 `Multiple teams have made bets of some size that Phoenix will be terrible between 2026 and 2031. And those bets may pay off.`\
 https://nytimes.com/athletic/6079964/2025/01/22/jimmy-butler-trade-rumors-suns-mat-ishbia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris
 **Zaha joins MLS club Charlotte FC from Galatasaray on loan**\
 `Wilfried Zaha has joined MLS club Charlotte FC on a year-long loan from Galatasaray.`\
 https://nytimes.com/athletic/6080602/2025/01/22/wilfried-zaha-charlotte-loan-transfer-galatasaray/
-
-**The New Rules of the Trump Era**\
-`Ezra Klein discusses the oligarchic power dynamics of the second Trump administration.`\
-https://nytimes.com/video/opinion/100000009942078/the-new-rules-of-the-trump-era.html
-
-**The Bounce: NBA midseason report cards! Plus, Jan. 22 is a day for buckets**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6080173/2025/01/22/nba-report-cards-kobe-bryant-lakers-81-nba-the-bounce/
 

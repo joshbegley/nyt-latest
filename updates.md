@@ -1,3 +1,11 @@
+**Rangers fan survey results: Confidence in the playoffs and Laviolette, but not Drury**\
+`More than 1,000 Rangers fans participated in our fan survey, giving their preferred trade candidates, thoughts on a rebuild and more.`\
+https://nytimes.com/athletic/6078143/2025/01/22/rangers-fan-survey-results-drury-laviolette/
+
+**Live Updates: Sun Belt Iced Over After Record Snowfall**\
+`A powerful storm, fueled by a whirling mass of cold air originating from the Arctic, plunged temperatures into the teens. At least 10 people have died.`\
+https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south
+
 **Hollinger: As Jimmy Butler rumors swirl, Suns keep chasing short-term highs**\
 `Multiple teams have made bets of some size that Phoenix will be terrible between 2026 and 2031. And those bets may pay off.`\
 https://nytimes.com/athletic/6079964/2025/01/22/jimmy-butler-trade-rumors-suns-mat-ishbia/
