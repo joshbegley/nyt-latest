@@ -1,3 +1,7 @@
+**Ex-N.Y.P.D. Sergeant Guilty of Punching Man 13 Times Gets No Jail Time**\
+`Christian Zapata hit a man repeatedly after being called to help calm an autistic teenager. Mr. Zapata got into a confrontation with the man after the sergeant refused to wear a mask.`\
+https://nytimes.com/2025/01/22/nyregion/nypd-officer-convicted.html
+
 **Trump Administration Cancels Flights for Refugees Already Approved for Travel**\
 `The decision leaves refugees who have completed a lengthy process stranded abroad and facing extended separation from loved ones already in the U.S.`\
 https://nytimes.com/2025/01/22/us/politics/trump-administration-refugee-flights-canceled.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/dei-jewish-students-campus-protests.html
 **Roki Sasaki dons new uniform in Dodgers' introduction**\
 `In his first year as a Dodger, Sasaki will earn the league minimum of $760,000 after classifying as an international amateur.`\
 https://nytimes.com/athletic/6081600/2025/01/22/roki-sasaki-dodgers-introduction/
-
-**‘Deadly Conspiracy’ Described at Trial of 3 Charged in Gay Bar Murders**\
-`Three men have been accused of murder as part of a plot to drug and rob revelers in Midtown in 2022. Two of their targets ended up dead.`\
-https://nytimes.com/2025/01/22/nyregion/nyc-gay-bar-drug-murder-trial.html
 
