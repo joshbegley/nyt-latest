@@ -1,3 +1,7 @@
+**Late Night Tries to Keep Up With Trump’s Executive Orders**\
+`“If you could put anything in front of him yesterday, he would have signed it,” said Ronny Chieng. “Melania, now’s your chance to update the prenup.”`\
+https://nytimes.com/2025/01/22/arts/television/late-night-trump-executive-orders.html
+
 **Dortmund part ways with head coach Sahin following Bologna defeat**\
 `Borussia Dortmund have parted ways with head coach Nuri Sahin.`\
 https://nytimes.com/athletic/6066088/2025/01/22/borussia-dortmund-sahin-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/learning/word-of-the-day-dismantle.html
 **The three passes that summed up Aston Villa's bad night in Monaco**\
 `Aston Villa fell to a difficult defeat against Monaco in the Champions League`\
 https://nytimes.com/athletic/6078898/2025/01/22/aston-villa-passes-analysis-monaco/
-
-**Jarell Quansah is back on track after a false start under Arne Slot**\
-`The Liverpool manager utilised his squad against Lille and the likes of Quansah, Harvey Elliott and Federico Chiesa all impressed`\
-https://nytimes.com/athletic/6079480/2025/01/22/quansah-liverpool-champions-league-lille/
 
