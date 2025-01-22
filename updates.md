@@ -1,3 +1,7 @@
+**Lukas Podolski interview: Playing at 39, Arteta memories and why Havertz is 'not a striker'**\
+`The ex-Arsenal forward is considering retirement but is still keeping a keen eye on events at his former Premier League club`\
+https://nytimes.com/athletic/6072936/2025/01/22/lukas-podolski-interview/
+
 **The Pistons at midseason: Optimism abound, and the playoffs are in sight**\
 `Detroit has already won eight more games than it did all of last season thanks to Cade Cunningham's star turn and other improvements.`\
 https://nytimes.com/athletic/6079917/2025/01/22/detroit-pistons-midseason-cade-cunningham-jaden-ivey/
