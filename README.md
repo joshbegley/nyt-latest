@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6079737/2025/01/21/rangers-senators-matt-rempe-igor
 https://nytimes.com/athletic/6079744/2025/01/21/girma-chelsea-wave-1-million-full-time/
 
 **Ohio State overcomes No. 11 Purdue, ending 26-game home win streak**\
-`With the loss, Purdue falls into a virtual second-place tie with Michigan (14-4, 6-1) in the Big Ten.`\
+`UCLA also pulled off an upset Tuesday night in an 85-83 win over No. 18 Wisconsin.`\
 https://nytimes.com/athletic/6079718/2025/01/21/ohio-state-purdue-mens-basketball-result-analysis/
 
 **2 Families, in Business for 50 Years, Wage War in a South Korean Boardroom**\
