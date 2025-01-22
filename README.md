@@ -1,3 +1,7 @@
+**Ben Shelton slams 'embarrassing and disrespectful' Australian Open interviews**\
+`Shelton criticized Tony Jones' comments about Novak Djokovic as well as on-court interviews at the tournament.`\
+https://nytimes.com/athletic/6080163/2025/01/22/ben-shelton-australian-open-interviews/
+
 **Why Kevin O'Connell's extension with the Vikings was an absolute no-brainer**\
 `The Vikings were never going to trade O'Connell, who led the team to a 14-3 record and within one win of the No. 1 seed in the NFC.`\
 https://nytimes.com/athletic/6079452/2025/01/22/kevin-oconnell-vikings-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6078917/2025/01/22/maple-leafs-william-nylander-nhl
 **Alperen Şengün unplugged: Rockets big man on Jokić comparisons, All-Star hopes and more**\
 `Nearing real stardom, Şengün reflects on Rockets' belief in him: "Whoever trusts me, or backs me up, I will take care of them all my life."`\
 https://nytimes.com/athletic/6079651/2025/01/22/alperen-sengun-rockets-nba-all-star-nikola-jokic/
-
-**What we’re hearing about the Cubs: Bullpen, Dansby Swanson, Pete Crow-Armstrong and more**\
-`Where can the Cubs go for bullpen help? Can Swanson bounce back from surgery? Where will Crow-Armstrong hit in the lineup?`\
-https://nytimes.com/athletic/6079683/2025/01/22/cubs-bullpen-possibilities-dansby-swanson-surgery/
 
