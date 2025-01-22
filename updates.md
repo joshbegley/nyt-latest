@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Because of You I Have a Husband’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/01/22/style/tiny-modern-love-stories-because-of-you-i-have-a-husband.html
+
 **Pentagon to Send 1,500 Additional Troops to U.S.-Mexico Border**\
 `The troops will join 2,500 Army Reserve and National Guard soldiers called to active duty in recent months.`\
 https://nytimes.com/2025/01/22/us/politics/troops-border-trump.html
