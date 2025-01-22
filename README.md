@@ -1,3 +1,11 @@
+**2 Families, in Business for 50 Years, Wage War in a South Korean Boardroom**\
+`Control of Korea Zinc, the world’s largest producer of zinc, is at stake in a battle challenging the country’s entrenched chaebol system of powerful conglomerates.`\
+https://nytimes.com/2025/01/21/business/korea-zinc-young-poong.html
+
+**Source: Chances of Jimmy Butler deal to Suns increase after Phoenix-Utah trade**\
+`On Tuesday, the Suns traded their 2031 unprotected first-round pick to the Jazz in exchange for first-round picks in 2025, 2027 and 2029.`\
+https://nytimes.com/athletic/6079497/2025/01/21/jimmy-butler-suns-jazz-trade-heat/
+
 **Drum Location**\
 `Landon Horton makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/01/21/crosswords/daily-puzzle-2025-01-22.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6079558/2025/01/21/hall-of-fame-mailbag-questions/
 **Harvard Adopts a Definition of Antisemitism for Discipline Cases**\
 `Many universities have been reluctant to embrace a definition that, among other things, considers some criticisms of Israel as antisemitic. The university’s decision was part of a lawsuit settlement.`\
 https://nytimes.com/2025/01/21/us/harvard-antisemitism-definition-discipline.html
-
-**Garth Hudson: 11 Essential Songs**\
-`The last surviving original member of the Band died on Tuesday. He was a master on keys and saxophones who could conjure a panoply of scenes and eras.`\
-https://nytimes.com/2025/01/21/arts/music/garth-hudson-songs.html
-
-**Trump Says He Will Impose 10% Tariffs on Chinese Imports on Feb. 1**\
-`The president said the planned duties were a response to China’s failure to curb fentanyl exports.`\
-https://nytimes.com/2025/01/21/business/trump-tariffs-china.html
 
