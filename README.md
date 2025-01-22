@@ -1,3 +1,11 @@
+**How to be a tennis pigeon: The worst matchups and how players prepare for them**\
+`A lopsided head-to-head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
+https://nytimes.com/athletic/6077048/2025/01/21/worst-tennis-head-to-head-matchup-pigeon/
+
+**NHL rumblings: Latest on Canucks-Miller, Blue Jackets-Provorov, Penguins' plans, Oilers' needs and more**\
+`Add the Hurricanes and Devils to the list of a handful of teams that have had talks with the Canucks about a J.T. Miller trade.`\
+https://nytimes.com/athletic/6079538/2025/01/21/nhl-trade-rumblings-jt-miller-ivan-provorov/
+
 **Trump Expands Quick Deportations Across the U.S.**\
 `President Trump’s first administration tried to implement a similarly sped-up process for removing unauthorized immigrants, but those efforts were hampered by federal courts.`\
 https://nytimes.com/2025/01/21/us/politics/trump-deportations-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6078681/2025/01/21/champions-league-barcelona-best-
 **4 Charged in String of Burglaries at Luxury Homes in Ohio**\
 `The defendants, all from Chile, are accused of participating in a South American crime group targeting multimillion-dollar homes, the authorities said. One of them appeared to belong to the Cincinnati Bengals quarterback Joe Burrow.`\
 https://nytimes.com/2025/01/21/us/joe-burrow-ohio-burglary-arrests.html
-
-**Record Snowfall Blankets New Orleans**\
-`A powerful winter storm tore across the Gulf Coast on Tuesday, bring record snowfall to parts of Louisiana and Texas.`\
-https://nytimes.com/video/weather/100000009941357/louisiana-texas-snow-storm.html
-
-**Change to Birthright Citizenship Would Affect Visa Holders, Too**\
-`President Trump’s public rhetoric has focused on undocumented immigrants, but the raft of new orders he signed would also affect those seeking to enter the U.S. legally.`\
-https://nytimes.com/2025/01/21/us/politics/birthright-citizenship-visa-holders.html
 
