@@ -1,3 +1,7 @@
+**Bengals to hire Notre Dame's Al Golden as defensive coordinator**\
+`Golden returns to the Bengals after serving as the franchise's linebackers coach in 2020 and 2021.`\
+https://nytimes.com/athletic/6067810/2025/01/22/al-golden-defensive-coordinator-hired-bengals/
+
 **Bengals hire Notre Dame's Al Golden as defensive coordinator**\
 `Golden returns to the Bengals after serving as the franchise's linebackers coach in 2020 and 2021.`\
 https://nytimes.com/athletic/6067810/2025/01/22/al-golden-defensive-coordinator-hired-bengals/
