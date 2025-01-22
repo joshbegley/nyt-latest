@@ -1,3 +1,7 @@
+**Trump Says He Will Impose 10% Tariffs on Chinese Imports on Feb. 1**\
+`The president said the planned duties were a response to China’s failure to curb fentanyl exports.`\
+https://nytimes.com/2025/01/21/business/trump-tariffs-china.html
+
 **Cole Hamels, Ryan Braun headline 2026 Hall of Fame ballot newcomers**\
 `We take a look at the players the BBWAA’s screening committee might consider over the next four Hall of Fame voting cycles.`\
 https://nytimes.com/athletic/6079263/2025/01/21/hamels-braun-2026-hall-of-fame-ballot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6079440/2025/01/21/ichiro-suzuki-one-vote-shy-unani
 **‘Vanya on Huron Street’ Review: Chekhov in Brooklyn**\
 `Instead of a departure, the writer and director Matthew Gasda’s take on “Uncle Vanya” at the Brooklyn Center for Theater Research tends to adhere to the original.`\
 https://nytimes.com/2025/01/21/theater/vanya-on-huron-street-review.html
-
-**Riding out the winter blast under a Houston freeway.**\
-`By Shannon Sims`\
-https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/riding-out-the-winter-blast-under-a-houston-freeway
 

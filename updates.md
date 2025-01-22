@@ -1,3 +1,7 @@
+**Trump Says He Will Impose 10% Tariffs on Chinese Imports on Feb. 1**\
+`The president said the planned duties were a response to China’s failure to curb fentanyl exports.`\
+https://nytimes.com/2025/01/21/business/trump-tariffs-china.html
+
 **Cole Hamels, Ryan Braun headline 2026 Hall of Fame ballot newcomers**\
 `We take a look at the players the BBWAA’s screening committee might consider over the next four Hall of Fame voting cycles.`\
 https://nytimes.com/athletic/6079263/2025/01/21/hamels-braun-2026-hall-of-fame-ballot/
