@@ -1,3 +1,15 @@
+**Here Is How Trump Moved to Seal the Southern Border on Day 1**\
+`President Trump issued a raft of executive orders that effectively block migrants from entering the United States and applying for asylum, closing off major legal channels for immigration.`\
+https://nytimes.com/2025/01/22/us/politics/trump-border-asylum-explainer.html
+
+**The lingering cold is causing additional disruptions to air and road travel.**\
+`By Christine Chung`\
+https://nytimes.com/live/2025/01/22/weather/winter-storm-snow-cold-south/the-lingering-cold-causes-additional-disruptions-to-air-and-road-travel
+
+**Ohio State final thoughts: Ryan Day's moment caps one of CFB's most impressive runs ever**\
+`Takeaways from Ohio State's national championship on Day, a historically great resume, Will Howard, keys to the title run and what's next.`\
+https://nytimes.com/athletic/6080987/2025/01/22/ohio-state-ryan-day-national-title-playoff/
+
 **Is now the time for Trevor Zegras to 'uplift' the Ducks? What can he bring?**\
 `Zegras didn't score in his return, but brought elements that might help the struggling Ducks.`\
 https://nytimes.com/athletic/6081333/2025/01/22/zegras-ducks-injury-trade-return/
