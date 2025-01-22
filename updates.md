@@ -1,3 +1,23 @@
+**How Malick Yalcouye is readying himself for Brighton - in the Champions League**\
+`The 19-year-old midfielder is cutting his teeth in Europe's top club competition during his loan with Sturm Graz`\
+https://nytimes.com/athletic/6052145/2025/01/22/malick-yalcouye-brighton-champions-league/
+
+**How Moyes is trying to fix Everton's attack: Tactical tweaks, support for Calvert-Lewin, new signings?**\
+`It is early days, but Moyes’ Everton look like they are in a much better position to remedy their attacking woes`\
+https://nytimes.com/athletic/6077568/2025/01/22/everton-david-moyes-attack-calvert-lewin-lindstrom/
+
+**Has Arteta reached a conclusion after his wing experiments?**\
+`With Saka out, here's our analysis of the current wide combinations and how they've fared`\
+https://nytimes.com/athletic/6075002/2025/01/22/has-mikel-arteta-finally-reached-a-conclusion-after-his-arsenal-wing-experiments/
+
+**Do Chelsea have a problem to resolve in midfield?**\
+`Chelsea's limited options in midfield against Wolves on Monday night highlighted a growing issue for Enzo Maresca`\
+https://nytimes.com/athletic/6078208/2025/01/22/chelsea-midfield-options-lavia/
+
+**Farke wants a quiet transfer window - but do Leeds have the depth to win promotion?**\
+`It’s going to take Premier League quality to improve on what Leeds have. It’s why there has been a reluctance to add for the sake of it`\
+https://nytimes.com/athletic/6077990/2025/01/22/leeds-squad-depth-analysis-transfer/
+
 **Manchester City, Paris Saint-Germain and the threat to football's state-owned superpowers**\
 `Both European giants have struggled in the revamped Champions League and both need to win when they meet in Paris tonight`\
 https://nytimes.com/athletic/6078455/2025/01/22/manchester-city-paris-saint-germain-and-the-humbling-of-footballs-state-owned-superpowers/
