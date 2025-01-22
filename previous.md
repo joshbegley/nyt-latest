@@ -1,3 +1,11 @@
+**Quote of the Day: Pardoning of Rioters Angers the Police**\
+`Quotation of the Day for Wednesday, January 22, 2025.`\
+https://nytimes.com/2025/01/21/pageoneplus/quote-of-the-day-pardoning-of-rioters-angers-the-police.html
+
+**Gradey Dick is working to burst through the sophomore wall for Toronto**\
+`The 21-year-old guard will get every opportunity to end his second NBA season on a positive note.`\
+https://nytimes.com/athletic/6079786/2025/01/21/gradey-dick-raptors-magic/
+
 **Trump Is Said to Push for Early Reopening of North American Trade Deal**\
 `The president wants to begin renegotiating a U.S. trade deal with Canada and Mexico earlier than a scheduled 2026 review, people familiar with his thinking said.`\
 https://nytimes.com/2025/01/21/business/economy/trump-usmca-trade-deal-mexico-canada-autos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/21/crosswords/daily-puzzle-2025-01-22.html
 **How do coldblooded creatures stay warm in a winter storm?**\
 `By Alexandra E. Petri and Patricia Mazzei`\
 https://nytimes.com/live/2025/01/21/weather/snow-winter-storm-texas-louisiana/how-do-coldblooded-creatures-stay-warm-in-a-winter-storm
-
-**The impact Hall of Fame induction has on players' baseball cards**\
-`Where the card market stands for the latest class of Baseball Hall of Famers `\
-https://nytimes.com/athletic/6079498/2025/01/21/ichiro-sabathia-wagner-hof-cards/
-
-**How to be a tennis pigeon: The worst matchups and how players prepare for them**\
-`A lopsided head to head can scramble players' brains and create strange dynamics. Here is how tennis pigeons cope.`\
-https://nytimes.com/athletic/6077048/2025/01/21/worst-tennis-head-to-head-matchup-pigeon/
 
