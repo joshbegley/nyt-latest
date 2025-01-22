@@ -1,3 +1,11 @@
+**Why are Colts entrusting Lou Anarumo to fix their defense after his Bengals D crumbled?**\
+`Some around the NFL, including Chiefs star Travis Kelce, were shocked Cincinnati fired Anarumo. "I’ve always respected the hell out of him."`\
+https://nytimes.com/athletic/6080598/2025/01/22/lou-anarumo-colts-defensive-coordinator-bengals/
+
+**Two Industry Officials Expected to Help Oversee E.P.A. Chemical Rules**\
+`Nancy Beck and Lynn Ann Dekleva worked in the first Trump administration, where they fought chemical restrictions.`\
+https://nytimes.com/2025/01/22/climate/epa-chemical-industry-beck-dekleva.html
+
 **Penguins Today: Kevin Hayes and Los Angeles first responders**\
 `Hayes, who honors first responders after every game, scored the opening goal against the Kings.`\
 https://nytimes.com/athletic/6080749/2025/01/22/penguins-today-los-angeles-fires-kevin-hayes/
