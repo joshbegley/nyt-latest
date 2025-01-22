@@ -1,3 +1,7 @@
+**Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
+`“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
+https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
+
 **Zaha joins MLS club Charlotte FC from Galatasaray on loan**\
 `Wilfried Zaha has joined MLS club Charlotte FC on a year-long loan from Galatasaray.`\
 https://nytimes.com/athletic/6080602/2025/01/22/wilfried-zaha-charlotte-loan-transfer-galatasaray/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/style/egg-freezing-siblings.html
 **MoneyCall: What next for the CFP?**\
 `Welcome to MoneyCall, The Athletic's weekly sports business newsletter.`\
 https://nytimes.com/athletic/6079787/2025/01/22/cfp-business-expansion-moneycall-newsletter/
-
-**Patriots expected to hire Lions' Terrell Williams as defensive coordinator**\
-`Williams will reunite with coach Mike Vrabel in New England after working on Vrabel's staff for six years with the Titans.`\
-https://nytimes.com/athletic/6080411/2025/01/22/terrell-williams-hired-lions-patriots/
 

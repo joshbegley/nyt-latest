@@ -1,3 +1,7 @@
+**Tyrese Haliburton reminded of Team USA glory, personal struggle in return to Paris**\
+`“I’m excited to play and actually play in this arena,” Haliburton cracked Wednesday.`\
+https://nytimes.com/athletic/6080550/2025/01/22/tyrese-haliburton-team-usa-paris/
+
 **Zaha joins MLS club Charlotte FC from Galatasaray on loan**\
 `Wilfried Zaha has joined MLS club Charlotte FC on a year-long loan from Galatasaray.`\
 https://nytimes.com/athletic/6080602/2025/01/22/wilfried-zaha-charlotte-loan-transfer-galatasaray/
