@@ -1,3 +1,7 @@
+**Matt Rempe Mania returns as Igor Shesterkin gets 'feisty': 4 takeaways vs. Senators**\
+`Team togetherness was on full display as New York beat Ottawa and improved to 7-1-3 in January.`\
+https://nytimes.com/athletic/6079737/2025/01/21/rangers-senators-matt-rempe-igor-shesterkin/
+
 **Full Time: Women’s soccer’s first $1 million transfer**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6079744/2025/01/21/girma-chelsea-wave-1-million-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077048/2025/01/21/worst-tennis-head-to-head-matchu
 **NHL rumblings: Latest on Canucks-Miller, Blue Jackets-Provorov, Penguins' plans, Oilers' needs and more**\
 `Add the Hurricanes and Devils to the list of a handful of teams that have had talks with the Canucks about a J.T. Miller trade.`\
 https://nytimes.com/athletic/6079538/2025/01/21/nhl-trade-rumblings-jt-miller-ivan-provorov/
-
-**Trump Expands Quick Deportations Across the U.S.**\
-`President Trump’s first administration tried to implement a similarly sped-up process for removing unauthorized immigrants, but those efforts were hampered by federal courts.`\
-https://nytimes.com/2025/01/21/us/politics/trump-deportations-immigration.html
 
