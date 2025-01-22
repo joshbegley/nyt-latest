@@ -1,3 +1,11 @@
+**Real Madrid out-earned Manchester City by nearly £180m last season as stadium income becomes key**\
+`Deloitte’s Money League reveals growing revenue gap between Premier League teams and the Spanish champions`\
+https://nytimes.com/athletic/6080474/2025/01/22/real-madrid-out-earned-manchester-city-by-nearly-180m-last-season-as-stadium-income-becomes-key/
+
+**Amid a Wintry Mess, New Orleans Also Savors a Spectacle**\
+`The storm brought both dazzling landscapes of ice and snow and challenges to a city unaccustomed to such severe winter weather.`\
+https://nytimes.com/2025/01/22/weather/amid-a-wintry-mess-new-orleans-also-savors-a-spectacle.html
+
 **Ex-N.Y.P.D. Sergeant Guilty of Punching Man 13 Times Gets No Jail Time**\
 `Christian Zapata hit a man repeatedly after being called to help calm an autistic teenager. Mr. Zapata got into a confrontation with the man after the sergeant refused to wear a mask.`\
 https://nytimes.com/2025/01/22/nyregion/nypd-officer-convicted.html
