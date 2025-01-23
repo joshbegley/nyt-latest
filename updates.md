@@ -1,3 +1,11 @@
+**FPL: Foden, Savio and that man Haaland - are Manchester City players worth it again?**\
+`Holly Shand analyses the best assets to target from Manchester City despite their tricky fixture list`\
+https://nytimes.com/athletic/6080035/2025/01/23/fantasy-premier-league-manchester-city-foden-haaland/
+
+**Harrison Armstrong is Everton's future - can he be the present, too?**\
+`The teenage midfielder is pushing for first team action but played his part as Everton progressed in the Youth Cup — he is highly thought of`\
+https://nytimes.com/athletic/6080188/2025/01/23/harrison-armstrong-everton-david-moyes/
+
 **Forest's signature throw-in explained - and how it finally resulted in a goal for Elliot Anderson**\
 `Forest have been persevering with an interesting throw-in routine this season - and it resulted in a goal against Southampton on Sunday`\
 https://nytimes.com/athletic/6077310/2025/01/23/nottingham-forest-signature-throw-in/
