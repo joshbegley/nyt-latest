@@ -1,3 +1,11 @@
+**Who are the Warriors? Trade deadline begs for some Zach LaVine-level boldness**\
+`Are the Warriors still the franchise that takes risks to try and stay great? We're about to find out over the next two weeks.`\
+https://nytimes.com/athletic/6082707/2025/01/23/warriors-zach-lavine-trade-deadline-identity/
+
+**Despite Quick Spread, Laguna Fire Is Largely Under Control**\
+`Firefighters were able to stop the progress of the blaze, which had prompted the evacuation of a nearby college campus.`\
+https://nytimes.com/2025/01/23/us/laguna-fire-grew-halted-quickly.html
+
 **Mark Andrews shares first public comments since Ravens' playoff loss to Bills**\
 `Andrews took to Instagram with a message after not speaking to media on Monday and Tuesday following the loss to the Bills.`\
 https://nytimes.com/athletic/6084269/2025/01/23/mark-andrews-instagram-comments-ravens-bills/
