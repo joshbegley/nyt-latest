@@ -1,3 +1,7 @@
+**Trump Drive to Cut Safety Net Could Hit His Voters**\
+`The new administration wants to slash aid for health, food, and housing, but many of those programs now reach the struggling working class he is courting.`\
+https://nytimes.com/2025/01/23/us/politics/trump-social-safety-net.html
+
 **Friday Briefing: Trump Criticizes Europe**\
 `Plus, the Oscar nominations.`\
 https://nytimes.com/2025/01/23/briefing/trump-davos-ukraine-war-deaths-oscar-nominations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/nyregion/frank-carone-loophole-lobbying.html
 **Why the Maple Leafs' goalie swap makes sense, now and for the future**\
 `Matt Murray has returned in a backup role, allowing Dennis Hildeby more time and opportunities to develop.`\
 https://nytimes.com/athletic/6084095/2025/01/23/maple-leafs-goalies-murray-hildeby/
-
-**What Prince Harry’s Settlement Means for Him and Britain’s Royal Family**\
-`Harry won an apology and damages from Rupert Murdoch’s U.K. tabloids. Could the lawsuit’s end also help heal the rift with his brother, William, and his father, King Charles III?`\
-https://nytimes.com/2025/01/23/world/europe/prince-harry-murdoch-trial-royals.html
 
