@@ -1,3 +1,7 @@
+**Man Pleads Guilty to Murder in Fatal Stabbing of Brooklyn Activist**\
+`Ryan Carson, a well-known policy advocate, was killed on a Bedford-Stuyvesant sidewalk in October 2023 in what prosecutors called a random attack.`\
+https://nytimes.com/2025/01/22/nyregion/ryan-carson-stabbing-brooklyn-guilty-plea.html
+
 **U.S. South Digs Out After Record Snow**\
 `A rare winter storm dumped record amounts of snow on much of the Gulf Coast and the Carolinas.`\
 https://nytimes.com/video/weather/100000009943819/us-south-storm-snow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/climate/trump-climate-policies.html
 **If You Work for the Federal Government, How Are You Feeling About D.E.I.?**\
 `We want to know how workers are processing President Trump’s decision to end hiring practices meant to further diversity, equity and inclusion in the federal work force.`\
 https://nytimes.com/2025/01/22/us/politics/federal-government-dei-callout.html
-
-**Amazon Closes Its Operations in Quebec, Laying Off 1,700 Workers**\
-`Unions had gained a foothold in one of the company’s warehouses in the province, though Amazon would not say if there was a connection.`\
-https://nytimes.com/2025/01/22/technology/amazon-quebec-closures.html
 

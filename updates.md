@@ -1,3 +1,7 @@
+**Man Pleads Guilty to Murder in Fatal Stabbing of Brooklyn Activist**\
+`Ryan Carson, a well-known policy advocate, was killed on a Bedford-Stuyvesant sidewalk in October 2023 in what prosecutors called a random attack.`\
+https://nytimes.com/2025/01/22/nyregion/ryan-carson-stabbing-brooklyn-guilty-plea.html
+
 **U.S. South Digs Out After Record Snow**\
 `A rare winter storm dumped record amounts of snow on much of the Gulf Coast and the Carolinas.`\
 https://nytimes.com/video/weather/100000009943819/us-south-storm-snow.html
