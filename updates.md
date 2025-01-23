@@ -1,3 +1,7 @@
+**PSG's display against Man City was full of verve and potential. It felt like the start of something**\
+`Luis Enrique's team produced a performance that demonstrated what this new project could deliver`\
+https://nytimes.com/athletic/6082746/2025/01/23/psg-manchester-city-champions-league/
+
 **Word of the Day: imprimatur**\
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/23/learning/word-of-the-day-imprimatur.html
