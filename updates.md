@@ -1,3 +1,15 @@
+**Trump Vows to Release Records on Kennedy and King Killings**\
+`President Trump told security agencies to develop plans to make public all documents related to the assassinations of John F. Kennedy, Robert F. Kennedy and the Rev. Dr. Martin Luther King Jr.`\
+https://nytimes.com/2025/01/23/us/politics/trump-declassify-jfk-mlk-assassinations.html
+
+**How Every Senator Voted to Confirm John Ratcliffe as C.I.A. Director**\
+`The Senate voted 74 to 25 to confirm Mr. Ratcliffe, the second Trump pick to be confirmed.`\
+https://nytimes.com/interactive/2025/01/23/us/politics/ratcliffe-senate-confirmation-vote.html
+
+**Aaron De Groft, Museum Director Accused in Fake Basquiat Scheme, Dies at 59**\
+`In Orlando, he staged a blockbuster exhibit of works said to be newly discovered paintings by Jean-Michel Basquiat. He was fired when the paintings turned out to be forgeries.`\
+https://nytimes.com/2025/01/23/arts/aaron-de-groft-dead.html
+
 **Trump Lashes Out at Banks Over Treatment of Conservatives**\
 `The president revived Republican criticisms over purportedly politically motivated “debanking,” or closing of customer bank accounts.`\
 https://nytimes.com/2025/01/23/business/trump-bank-of-america-davos.html

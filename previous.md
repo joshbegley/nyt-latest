@@ -1,3 +1,15 @@
+**Trump Vows to Release Records on Kennedy and King Killings**\
+`President Trump told security agencies to develop plans to make public all documents related to the assassinations of John F. Kennedy, Robert F. Kennedy and the Rev. Dr. Martin Luther King Jr.`\
+https://nytimes.com/2025/01/23/us/politics/trump-declassify-jfk-mlk-assassinations.html
+
+**How Every Senator Voted to Confirm John Ratcliffe as C.I.A. Director**\
+`The Senate voted 74 to 25 to confirm Mr. Ratcliffe, the second Trump pick to be confirmed.`\
+https://nytimes.com/interactive/2025/01/23/us/politics/ratcliffe-senate-confirmation-vote.html
+
+**Aaron De Groft, Museum Director Accused in Fake Basquiat Scheme, Dies at 59**\
+`In Orlando, he staged a blockbuster exhibit of works said to be newly discovered paintings by Jean-Michel Basquiat. He was fired when the paintings turned out to be forgeries.`\
+https://nytimes.com/2025/01/23/arts/aaron-de-groft-dead.html
+
 **Trump Lashes Out at Banks Over Treatment of Conservatives**\
 `The president revived Republican criticisms over purportedly politically motivated “debanking,” or closing of customer bank accounts.`\
 https://nytimes.com/2025/01/23/business/trump-bank-of-america-davos.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6080712/2025/01/23/manchester-united-rangers-goals-
 **The Briefing - Wrexham 1 Birmingham 1: No Reynolds, McElhenney or Brady, but McClean makes rapid recovery**\
 `Wrexham and Birmingham City battled to a 1-1 draw in a potentially crucial match in the League One promotion battle...`\
 https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
-
-**How Trump Will Fail**\
-`The problem with populism is that it doesn’t work.`\
-https://nytimes.com/2025/01/23/opinion/trump-mckinley-populism.html
-
-**Wembanyama delights Paris crowd with dominating performance vs. Pacers**\
-`Wemby’s first NBA game in France was a smashing success, as he went off for 30 points in the Spurs’ 140-110 win over the Pacers.`\
-https://nytimes.com/athletic/6084414/2025/01/23/victor-wembanyama-spurs-pacers-nba-france/
-
-**Charles Phan, Whose Slanted Door Elevated Vietnamese Food, Dies at 62**\
-`The restaurant, which opened in San Francisco in 1995, married local ingredients with the food he grew up on and buoyed other chefs from immigrant families.`\
-https://nytimes.com/2025/01/23/dining/charles-phan-dead.html
 
