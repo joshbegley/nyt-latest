@@ -1,3 +1,11 @@
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/01/23/books/review/8-new-books-we-recommend-this-week.html
+
+**Manchester United 2 Rangers 1 - How close are Amorim's team to qualifying? What was Butland doing?**\
+`Analysis of Manchester United's victory over Rangers`\
+https://nytimes.com/athletic/6080712/2025/01/23/manchester-united-rangers-goals-highlights/
+
 **The Briefing: Wrexham 1 Birmingham 1: No Reynolds, McElhenney nor Brady, but McClean makes rapid recovery**\
 `Wrexham and Birmingham City battled to a 1-1 draw in a potentially crucial match in the League One promotion battle...`\
 https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6083801/2025/01/23/sf-giants-catching-depth-chart/
 **Trump Issues Executive Order to Support the Growth of Cryptocurrencies**\
 `The order signaled that the president intends to promote an industry that faced scrutiny during the Biden administration — and that he has a personal stake in.`\
 https://nytimes.com/2025/01/23/technology/trump-crypto-executive-order.html
-
-**‘Lovers Anonymous’ Is a Clever Turkish Dramatic Comedy**\
-`Set at the Love Hospital, where love is treated as a disease, the Netflix series is in turns biting and dreamy, cynical and cute.`\
-https://nytimes.com/2025/01/23/arts/television/lovers-anonymous-netflix.html
-
-**Do You Have a Health Question for Our Reporters?**\
-`It could be answered by Times journalists and experts in a future Ask Well column.`\
-https://nytimes.com/article/health-questions-readers-nyt-well.html
 
