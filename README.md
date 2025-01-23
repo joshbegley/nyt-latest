@@ -1,3 +1,19 @@
+**The Oscar Nominations Are a Sign Hollywood Still Wants to Counter Conservative Cultural Vibes**\
+`There are more than a few examples of progressive politics on display in what Hollywood is choosing to celebrate with its highest honor.`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/oscar-nominations-trump-progressive-reaction
+
+**F.B.I. Pick Pushed False and Misleading Claims About Trump Investigations**\
+`Kash Patel, Donald J. Trump’s choice to run the bureau, has made a series of spurious assertions about the Russia, Jan. 6 and classified documents inquiries.`\
+https://nytimes.com/2025/01/23/us/politics/kash-patel-trump-fbi-inquiries.html
+
+**The Bounce: The NBA's midseason Bouncies are here!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6083304/2025/01/23/nba-ja-morant-victor-wembanyama-jimmy-butler-heat-trade-suspend-nba-the-bounce/
+
+**Why Nets' Cam Johnson is one of the most coveted players as NBA trade deadline nears**\
+`Johnson is having a career season for a Brooklyn team offloading its vets. So where could he end up?`\
+https://nytimes.com/athletic/6082511/2025/01/23/cam-johnson-coveted-player-nba-trade-deadline/
+
 **Trump Re-Labels Yemen’s Houthi Rebels as Terrorists**\
 `The move will authorize harsher penalties on the Iran-backed group, which has attacked Israel and disrupted global shipping trade in the Red Sea for over a year.`\
 https://nytimes.com/2025/01/23/world/middleeast/trump-yemen-houthi-rebels-terrorists.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/23/arts/music/fka-twigs-eusexua-review.html
 **Trump Revels in a Presidential Perk: The Omnipresent Press Pool**\
 `His volubility in his first few days back in office underscores that President Trump is in charge of his own show.`\
 https://nytimes.com/2025/01/23/us/politics/trump-press-reporters.html
-
-**Charlie Adam added to Moyes' backroom staff at Everton**\
-`Everton have added Alan Irvine and Charlie Adam to new manager David Moyes’ backroom staff.`\
-https://nytimes.com/athletic/6083579/2025/01/23/everton-charlie-adam-moyes-irvine-staff/
-
-**Canada's Davies suffers 'muscle strain' in Bayern game, out indefinitely**\
-`Bayern Munich left-back Alphonso Davies has suffered a &#8220;muscle strain&#8221; in his left hamstring.`\
-https://nytimes.com/athletic/6082027/2025/01/23/alphonso-davies-bayern-munich-injury/
-
-**Lamar Jackson, Josh Allen, Saquon Barkley headline NFL MVP finalists**\
-`Jackson, Barkley and Allen are joined by Lions quarterback Jared Goff and Bengals quarterback Joe Burrow on the list.`\
-https://nytimes.com/athletic/6083507/2025/01/23/lamar-jackson-josh-allen-saquon-barkley-nfl-award-mvp-finalists/
-
-**Trump Revokes Security Detail for Pompeo and Others Despite Threats From Iran**\
-`The officials had been part of an aggressive posture against Iran during President Trump’s first term.`\
-https://nytimes.com/2025/01/23/us/politics/trump-pompeo-security-iran.html
 
