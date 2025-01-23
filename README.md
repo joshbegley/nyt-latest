@@ -1,3 +1,7 @@
+**NBA Trade Board 2.0: Jimmy Butler, Zach LaVine and more big names on market**\
+`We're two weeks away from the deadline, and new names who could have a market have emerged. But No. 1 remains the same.`\
+https://nytimes.com/athletic/6057514/2025/01/23/nba-trade-rumors-jimmy-butler-heat-suns-bulls-lakers/
+
 **'Super impressive' Jaden Springer emerges from nowhere to lead Celtics over Clippers**\
 `The little-used guard got the call when Boston couldn't stop the Clippers' guards. He delivered stout defense and more in an overtime win.`\
 https://nytimes.com/athletic/6082889/2025/01/23/celtics-jaden-springer-clippers-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6075483/2025/01/23/nfl-draft-2025-shrine-bowl-shede
 **Celtic USMNT duo star in Champions League, may solve Pochettino issue**\
 `Mauricio Pochettino is searching for his World Cup central defensive duo. He might find them both in the same place`\
 https://nytimes.com/athletic/6082724/2025/01/23/celtic-carter-vickers-trusty-usmnt/
-
-**‘Rose’ Review: After Loss, a New Lease on Life**\
-`The French New Wave veteran Françoise Fabian plays a widow who discovers that it’s not too late to be delighted.`\
-https://nytimes.com/2025/01/23/movies/rose-review.html
 
