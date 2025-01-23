@@ -1,3 +1,7 @@
+**Lots of shots, zero goals: Analysing European football's most wasteful players**\
+`The most profligate players in Europe's top five leagues are a mixture of ambitious defenders, hopeful midfielders and wasteful strikers`\
+https://nytimes.com/athletic/6075957/2025/01/23/european-top-five-leagues-worst-shooters/
+
 **Thursday Briefing**\
 `Trump’s D.E.I. crackdown.`\
 https://nytimes.com/2025/01/23/briefing/trump-prince-harry-europe.html
