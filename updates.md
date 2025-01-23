@@ -1,3 +1,15 @@
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/01/23/books/review/8-new-books-we-recommend-this-week.html
+
+**Manchester United 2 Rangers 1 - How close are Amorim's team to qualifying? What was Butland doing?**\
+`Analysis of Manchester United's victory over Rangers`\
+https://nytimes.com/athletic/6080712/2025/01/23/manchester-united-rangers-goals-highlights/
+
+**Wembanyama delights Paris crowd with dominating performance vs. Pacers**\
+`Wemby’s first NBA game in France was a smashing success, as he went off for 30 points in the Spurs’ 140-110 win over the Pacers.`\
+https://nytimes.com/athletic/6084414/2025/01/23/victor-wembanyama-spurs-pacers-nba-france/
+
 **The Briefing: Wrexham 1 Birmingham 1: No Reynolds, McElhenney nor Brady, but McClean makes rapid recovery**\
 `Wrexham and Birmingham City battled to a 1-1 draw in a potentially crucial match in the League One promotion battle...`\
 https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
