@@ -1,3 +1,7 @@
+**Trump Re-Labels Yemen’s Houthi Rebels as Terrorists**\
+`The move will authorize harsher penalties on the Iran-backed group, which has attacked Israel and disrupted global shipping trade in the Red Sea for over a year.`\
+https://nytimes.com/2025/01/23/world/middleeast/trump-yemen-houthi-rebels-terrorists.html
+
 **‘Liza: A Truly Terrific Absolutely True Story’ Review: Her Life as a Cabaret**\
 `The fizzy, determinedly upbeat documentary charts how Liza Minnelli survived Hollywood. It’s inspiring, jaw-dropping and conspicuously incomplete.`\
 https://nytimes.com/2025/01/23/movies/liza-a-truly-terrific-absolutely-true-story-review.html
