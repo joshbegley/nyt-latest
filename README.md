@@ -1,3 +1,7 @@
+**Browns coach Kevin Stefanski takes over play-calling duties again**\
+`Stefanski called the plays for his first four seasons with the Browns before making ex-OC Ken Dorsey the play-caller late in the season.`\
+https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
+
 **150 Years of See and Be Seen at Paris’s Grandest Opera House**\
 `It’s been 150 years since the Palais Garnier opera house opened in Paris. Today, it is still a working theater — with 172 performances scheduled for this season.`\
 https://nytimes.com/2025/01/23/arts/music/palais-garnier-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6082511/2025/01/23/cam-johnson-coveted-player-nba-t
 **Trump Re-Labels Yemen’s Houthi Rebels as Terrorists**\
 `The move will authorize harsher penalties on the Iran-backed group, which has attacked Israel and disrupted global shipping trade in the Red Sea for over a year.`\
 https://nytimes.com/2025/01/23/world/middleeast/trump-yemen-houthi-rebels-terrorists.html
-
-**‘Liza: A Truly Terrific Absolutely True Story’ Review: Her Life as a Cabaret**\
-`The fizzy, determinedly upbeat documentary charts how Liza Minnelli survived Hollywood. It’s inspiring, jaw-dropping and conspicuously incomplete.`\
-https://nytimes.com/2025/01/23/movies/liza-a-truly-terrific-absolutely-true-story-review.html
 
