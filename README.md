@@ -1,3 +1,11 @@
+**Hornets' Brandon Miller undergoes surgery, out for rest of season**\
+`Miller, 22, sustained the injury on Jan. 15 during the Hornets’ 117-112 victory over the Utah Jazz.`\
+https://nytimes.com/athletic/6084491/2025/01/23/brandon-miller-out-for-season-wrist-surgery/
+
+**French Crypto Entrepreneur and Wife Are Freed After Kidnapping**\
+`David Balland, a founder of Ledger, a prominent cryptocurrency company, and his wife were freed after a 48-hour police search. Ten people have been arrested.`\
+https://nytimes.com/2025/01/23/world/europe/france-crypto-kidnapping.html
+
 **Yankees pluck pitchers from the Braves, Orioles, including former prospect**\
 `Roansy Contreras returns to the Yankees, who traded him to the Pirates in 2021 in the deal that brought Jameson Taillon to New York.`\
 https://nytimes.com/athletic/6084592/2025/01/23/yankees-roansy-contreras-allan-winans-waivers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/business/trump-bank-of-america-davos.html
 **Trump says he is ‘open’ to meeting with Jan. 6 rioters he gave clemency to.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2025/01/23/us/trump-news/trump-jan-6-pardons-rioters
-
-**Bertrand Blier, Acclaimed Director of Sexually Blunt Films, Dies at 85**\
-`A much-decorated French filmmaker, he divided audiences and critics with explorations, often darkly comic but brutal, of misogyny and the male sexual imagination.`\
-https://nytimes.com/2025/01/23/movies/bertrand-blier-dead.html
-
-**Braves agree sign free-agent outfielder Jurickson Profar to 3-year, $42 million deal**\
-`He wasn’t the National League Comeback Player of the Year, but no hitter did more for his stock in 2024 than Jurickson Profar.`\
-https://nytimes.com/athletic/5969498/2025/01/23/jurickson-profar-contract-braves-mlb-free-agency/
 
