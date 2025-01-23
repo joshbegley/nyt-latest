@@ -1,3 +1,11 @@
+**Vinicius brings up Real Madrid century - but will (another) booking prove costly?**\
+`There were blemishes, a yellow card but two goals for the Brazil star as Real Madrid powered past Salzburg to stay in hunt for top eight`\
+https://nytimes.com/athletic/6082397/2025/01/23/real-madrid-vinicius-100-goals-booking-champions-league/
+
+**Saudi Arabia Says It Will Increase U.S. Trade and Investment by $600 Billion**\
+`Crown Prince Mohammed bin Salman spoke with President Trump, who has warned of retaliation against governments he sees as acting against U.S. interests.`\
+https://nytimes.com/2025/01/23/us/politics/trump-us-saudi-arabia-investment-trade.html
+
 **People With A.D.H.D. Are Likely to Die Significantly Earlier Than Their Peers, Study Finds**\
 `A large study found that men lost seven years of life expectancy and women lost nine years, compared with counterparts without the disorder.`\
 https://nytimes.com/2025/01/23/health/adhd-life-expectancy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6082469/2025/01/23/daniel-farke-leeds-norwich/
 **PSG's display against Man City was full of verve and potential. It felt like the start of something**\
 `Luis Enrique's team produced a performance that demonstrated what this new project could deliver`\
 https://nytimes.com/athletic/6082746/2025/01/23/psg-manchester-city-champions-league/
-
-**Word of the Day: imprimatur**\
-`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/23/learning/word-of-the-day-imprimatur.html
-
-**Arteta wants more goals from midfield and Arsenal delivered against Dinamo Zagreb**\
-`Declan Rice and Martin Odegaard both scored on Wednesday and Arsenal do need an uplift in goals from that area of the pitch`\
-https://nytimes.com/athletic/6082260/2025/01/23/arsenal-dinamo-zagreb-midfield-goals/
 
