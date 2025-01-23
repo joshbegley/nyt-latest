@@ -1,3 +1,7 @@
+**Robbie Williams to perform at inaugural Club World Cup**\
+`British singer and songwriter Robbie Williams’ new ambassadorial role at FIFA will see him perform a song for this year’s FIFA Club World Cup in the United States.`\
+https://nytimes.com/athletic/6082791/2025/01/23/robbie-williams-club-world-cup/
+
 **Farke is loved at Norwich but is still searching for that same affection at Leeds**\
 `The visit of Norwich to Elland Road demonstrated how much their fans still love their former manager but Leeds supporters are still divided`\
 https://nytimes.com/athletic/6082469/2025/01/23/daniel-farke-leeds-norwich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080035/2025/01/23/fantasy-premier-league-mancheste
 **Harrison Armstrong is Everton's future - can he be the present, too?**\
 `The teenage midfielder is pushing for first team action but played his part as Everton progressed in the Youth Cup — he is highly thought of`\
 https://nytimes.com/athletic/6080188/2025/01/23/harrison-armstrong-everton-david-moyes/
-
-**Forest's signature throw-in explained - and how it finally resulted in a goal for Elliot Anderson**\
-`Forest have been persevering with an interesting throw-in routine this season - and it resulted in a goal against Southampton on Sunday`\
-https://nytimes.com/athletic/6077310/2025/01/23/nottingham-forest-signature-throw-in/
 
