@@ -1,3 +1,11 @@
+**What Lions GM Brad Holmes said about a 'humbling' loss and a crucial offseason**\
+`Plus, Holmes weighs in on the standouts of the rookie class.`\
+https://nytimes.com/athletic/6083749/2025/01/23/detroit-lions-gm-brad-holmes-season-recap/
+
+**What to watch in college basketball this weekend: Ranked matchups in SEC, Big 12, Big Ten**\
+`What to watch, and why to watch it, as college basketball offers conference matchups on national TV.`\
+https://nytimes.com/athletic/6081998/2025/01/23/college-basketball-what-to-watch-tennessee-auburn-houston-kansas/
+
 **Trump Threatens E.U. With Tariffs at World Economic Forum**\
 `Speaking at the World Economic Forum, President Trump criticized the European Union for what he described as “unfair” trading practices.`\
 https://nytimes.com/video/us/politics/100000009945063/trump-davos-address-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000009944735/thailand-same-sex-marriage-
 **Of course, the Bears wanted Ben Johnson. Surprisingly, he wanted them even more**\
 `Johnson wasn't scared off by coaching in the ultra-competitive NFC North and said his family is excited about living in the Chicago area.`\
 https://nytimes.com/athletic/6083968/2025/01/23/bears-ben-johnson-ryan-poles-hiring-process/
-
-**Trump Is Leading a Global Surge to the Right**\
-`But not all of the leading conservative populist parties in the world are the same — in rhetoric or on policy.`\
-https://nytimes.com/2025/01/23/world/europe/trump-europe-right-immigration-ukraine.html
-
-**Heat Today: Dwyane Wade on Jimmy Butler-Miami relationship: It’s ending tragically**\
-`Heat legend shared candid remarks on Jimmy Butler's relationship with the franchise as tension keeps growing`\
-https://nytimes.com/athletic/6083584/2025/01/23/dwyane-wade-jimmy-butler-pat-riley-trade-deadline-heat-nba/
 
