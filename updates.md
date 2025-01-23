@@ -1,3 +1,11 @@
+**With Sahin gone, what next for Borussia Dortmund?**\
+`Niko Kovac is a contender to take charge but whoever comes in is going to find a club far removed from its previous position of strength`\
+https://nytimes.com/athletic/6083109/2025/01/23/borussia-dortmund-niko-kovac/
+
+**Madison Keys will win or lose, her way**\
+`The American is into the final in Melbourne, with husband Bjorn Fratangelo as her coach. This is how the married couple work it out`\
+https://nytimes.com/athletic/6079967/2025/01/23/madison-keys-australian-open-coach-bjorn-fratangelo/
+
 **Kolo Muani joins Juventus on loan**\
 `Juventus have confirmed the signing of Paris Saint-Germain forward Randal Kolo Muani on loan for the rest of the season.`\
 https://nytimes.com/athletic/6042134/2025/01/23/randal-kolo-muani-juventus-transfer/
