@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes the Philippines**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/22/world/22wea-quake-tracker-philippines-nytduwzp.html
+
 **Cavs drop rare game vs. West as Garland misses potential game-winning FTs**\
 `Garland is a 90 percent free-throw shooter.`\
 https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/hawaii-tourist-murder-brothers-framed.html
 **Twins-Padres trade talks have focused on Christian Vázquez: Sources**\
 `The Twins would like to reallocate resources and they could find a willing trade partner in San Diego.`\
 https://nytimes.com/athletic/6082484/2025/01/22/twins-padres-trade-talks-christian-vazquez/
-
-**Bee-Dazzler**\
-`Fasten your seatbelts, solvers — it’s going to be a bumpy ride.`\
-https://nytimes.com/2025/01/22/crosswords/daily-puzzle-2025-01-23.html
 
