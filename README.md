@@ -1,3 +1,7 @@
+**PSG's display against Man City was full of verve and potential. It felt like the start of something**\
+`Luis Enrique's team produced a performance that demonstrated what this new project could deliver`\
+https://nytimes.com/athletic/6082746/2025/01/23/psg-manchester-city-champions-league/
+
 **Word of the Day: imprimatur**\
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/23/learning/word-of-the-day-imprimatur.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077310/2025/01/23/nottingham-forest-signature-thro
 **West Ham plan to honour their obligation to buy Todibo - and he wants to repay them**\
 `Jean-Clair Todibo feels settled in east London and wants to reciprocate the club’s faith shown in him following a cluster of calf injuries`\
 https://nytimes.com/athletic/6080098/2025/01/23/west-ham-jean-clair-todibo-transfer-latest/
-
-**Jackson isn't the problem for Chelsea. They need more consistent goal threats**\
-`While Jackson still has plenty of room for improvement, Chelsea’s issue in attack is that they need more production from their wingers`\
-https://nytimes.com/athletic/6080450/2025/01/23/nicolas-jackson-chelsea-finishing-analysis/
 
