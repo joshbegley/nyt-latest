@@ -1,3 +1,7 @@
+**Tell Us How It Feels to Be a Federal Employee Right Now**\
+`We want to know what you think about the changes President Trump is making to federal government jobs. How are the administration’s new policies going to affect you and your work?`\
+https://nytimes.com/2025/01/23/us/politics/federal-workers-callout-trump.html
+
 **Scoop City: Comparing Mahomes and Allen ahead of the AFC Championship**\
 `&nbsp;
 Today, we&#8217;re covering the quarterbacks in the AFC Championship, Jacksonville&#8217;s big change, the new Jets head coach and your thoughts on Lamar Jackson&#8217;s playoff struggles.`\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/23/technology/openai-operator-launch.html
 **Where to Stream the 2025 Oscar Nominees**\
 `Many of the top contenders can be watched at home. Here’s a guide to help you get a jump on the field.`\
 https://nytimes.com/2025/01/23/movies/oscar-nominees-movies-streaming.html
-
-**The Bishop and the President: A Plea, Unrequited**\
-`Reaction to Bishop Mariann Edgar Budde’s plea to President Trump. Also: Birthright citizenship; reporting on co-workers; a road to autocracy; post-disaster trauma.`\
-https://nytimes.com/2025/01/23/opinion/bishop-trump-plea.html
 

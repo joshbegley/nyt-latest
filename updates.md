@@ -1,3 +1,7 @@
+**Tell Us How It Feels to Be a Federal Employee Right Now**\
+`We want to know what you think about the changes President Trump is making to federal government jobs. How are the administration’s new policies going to affect you and your work?`\
+https://nytimes.com/2025/01/23/us/politics/federal-workers-callout-trump.html
+
 **Scoop City: Comparing Mahomes and Allen ahead of the AFC Championship**\
 `&nbsp;
 Today, we&#8217;re covering the quarterbacks in the AFC Championship, Jacksonville&#8217;s big change, the new Jets head coach and your thoughts on Lamar Jackson&#8217;s playoff struggles.`\
