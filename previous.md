@@ -1,8 +1,16 @@
+**Thai Couples Marry After Same-Sex Marriage Is Legalized**\
+`Hundreds of people were married during a mass wedding in Bangkok as Thailand became the first country in Southeast Asia to legalize same-sex marriage.`\
+https://nytimes.com/video/world/asia/100000009944735/thailand-same-sex-marriage-legalized-wedding.html
+
+**Of course, the Bears wanted Ben Johnson. Surprisingly, he wanted them even more**\
+`Johnson wasn't scared off by coaching in the ultra-competitive NFC North and said his family is excited about living in the Chicago area.`\
+https://nytimes.com/athletic/6083968/2025/01/23/bears-ben-johnson-ryan-poles-hiring-process/
+
 **Trump Is Leading a Global Surge to the Right**\
 `But not all of the leading conservative populist parties in the world are the same — in rhetoric or on policy.`\
 https://nytimes.com/2025/01/23/world/europe/trump-europe-right-immigration-ukraine.html
 
-**Heat Today: Dwyane Wade on Jimmy Butler-Miami relationship: "It’s ending tragically"**\
+**Heat Today: Dwyane Wade on Jimmy Butler-Miami relationship: It’s ending tragically**\
 `Heat legend shared candid remarks on Jimmy Butler's relationship with the franchise as tension keeps growing`\
 https://nytimes.com/athletic/6083584/2025/01/23/dwyane-wade-jimmy-butler-pat-riley-trade-deadline-heat-nba/
 
@@ -30,12 +38,4 @@ https://nytimes.com/2025/01/23/us/wildfires-rubble.html
 **Major Olympic broadcaster told L.A. fires will not affect 2028 Games**\
 `The fires have been ablaze for two weeks and have caused millions of dollars worth of damage across L.A.`\
 https://nytimes.com/athletic/6083499/2025/01/23/la-2028-olympics-fires/
-
-**You’re a Friend, Tofu**\
-`In my quest to cook all of my January meals, tofu has come through, whether as a hearty breakfast scramble, a spicy braise or a companion to crispy coconut rice.`\
-https://nytimes.com/2025/01/23/dining/youre-a-friend-tofu.html
-
-**New Research Finds Potential Alternative to Abortion Pill Mifepristone**\
-`The research could further complicate the polarized politics of abortion because the drug in the study is the key ingredient in a pill used for emergency contraception.`\
-https://nytimes.com/2025/01/23/health/abortion-pill-ella.html
 

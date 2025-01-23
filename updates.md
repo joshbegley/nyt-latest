@@ -1,3 +1,15 @@
+**Thai Couples Marry After Same-Sex Marriage Is Legalized**\
+`Hundreds of people were married during a mass wedding in Bangkok as Thailand became the first country in Southeast Asia to legalize same-sex marriage.`\
+https://nytimes.com/video/world/asia/100000009944735/thailand-same-sex-marriage-legalized-wedding.html
+
+**Of course, the Bears wanted Ben Johnson. Surprisingly, he wanted them even more**\
+`Johnson wasn't scared off by coaching in the ultra-competitive NFC North and said his family is excited about living in the Chicago area.`\
+https://nytimes.com/athletic/6083968/2025/01/23/bears-ben-johnson-ryan-poles-hiring-process/
+
+**Heat Today: Dwyane Wade on Jimmy Butler-Miami relationship: It’s ending tragically**\
+`Heat legend shared candid remarks on Jimmy Butler's relationship with the franchise as tension keeps growing`\
+https://nytimes.com/athletic/6083584/2025/01/23/dwyane-wade-jimmy-butler-pat-riley-trade-deadline-heat-nba/
+
 **Trump Is Leading a Global Surge to the Right**\
 `But not all of the leading conservative populist parties in the world are the same — in rhetoric or on policy.`\
 https://nytimes.com/2025/01/23/world/europe/trump-europe-right-immigration-ukraine.html
