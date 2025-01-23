@@ -1,3 +1,19 @@
+**Omar Marmoush to Manchester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we take a look at Omar Marmoush's move to Manchester City`\
+https://nytimes.com/athletic/6050329/2025/01/23/omar-marmoush-to-manchester-city-the-athletic-500-transfer-ratings/
+
+**Which 2025 NFL Draft prospects could rise during Shrine Bowl week?**\
+`With Shrine Bowl practices scheduled to start Saturday, let's take a look at 15 players to watch.`\
+https://nytimes.com/athletic/6075483/2025/01/23/nfl-draft-2025-shrine-bowl-shedeur-sanders/
+
+**Celtic USMNT duo star in Champions League, may solve Pochettino issue**\
+`Mauricio Pochettino is searching for his World Cup central defensive duo. He might find them both in the same place`\
+https://nytimes.com/athletic/6082724/2025/01/23/celtic-carter-vickers-trusty-usmnt/
+
+**‘Rose’ Review: After Loss, a New Lease on Life**\
+`The French New Wave veteran Françoise Fabian plays a widow who discovers that it’s not too late to be delighted.`\
+https://nytimes.com/2025/01/23/movies/rose-review.html
+
 **Trump criticized California and repeated familiar attacks in the first one-on-one interview of his new term.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/23/us/trump-news/trump-criticized-california-and-repeated-familiar-attacks-in-the-first-one-on-one-interview-of-his-new-term
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6080099/2025/01/23/juma-bah-manchester-city-vallado
 **Ipswich sign Brighton's Enciso on loan**\
 `Ipswich Town have completed the signing of forward Julio Enciso on loan for the rest of the season.`\
 https://nytimes.com/athletic/6080232/2025/01/23/brighton-ipswich-enciso-transfer/
-
-**New Takes on a Classic Taiwanese Treat**\
-`Plus: trompe l’oeil ceramics, a Madrid hotel designed by Philippe Starck and more recommendations from T Magazine.`\
-https://nytimes.com/2025/01/23/t-magazine/pineapple-cake.html
-
-**Carmelo Anthony gave emotional testimony in $500m U.S. soccer trial**\
-`An NBA great cut an unusual figure on the witness stand in American soccer's biggest trial in years`\
-https://nytimes.com/athletic/6082785/2025/01/23/why-carmelo-anthony-provided-emotional-testimony-in-a-500m-american-soccer-trial/
-
-**How the Browns' offseason could play out: Draft a QB, consider trading Myles Garrett**\
-`Zac Jackson shares some of his gut feelings as we inch closer toward decisions being made on Cleveland 2025 roster. `\
-https://nytimes.com/athletic/6081690/2025/01/23/browns-offseason-myles-garrett-quarterback-draft/
-
-**What makes Andy Reid the screen master? Chiefs players and coaches reveal his genius**\
-`In his 26 years as a head coach, Reid has been an innovator in creating successful screen plays.`\
-https://nytimes.com/athletic/6044189/2025/01/23/kc-chiefs-coach-andy-reid-nfl-playoffs/
 
