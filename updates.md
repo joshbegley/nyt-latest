@@ -1,3 +1,7 @@
+**Bitter Boardroom Feud for Korea Zinc Takes a Dramatic Turn**\
+`An eventful shareholder meeting provided the latest twist in the dispute between the families whose deceased patriarchs founded the company 50 years ago.`\
+https://nytimes.com/2025/01/23/business/korea-zinc-young-poong-shareholders.html
+
 **NBA Trade Board 2.0: Jimmy Butler, Zach LaVine and more big names on market**\
 `We're two weeks away from the deadline, and new names who could have a market have emerged. But No. 1 remains the same.`\
 https://nytimes.com/athletic/6057514/2025/01/23/nba-trade-rumors-jimmy-butler-heat-suns-bulls-lakers/

@@ -1,3 +1,7 @@
+**Bitter Boardroom Feud for Korea Zinc Takes a Dramatic Turn**\
+`An eventful shareholder meeting provided the latest twist in the dispute between the families whose deceased patriarchs founded the company 50 years ago.`\
+https://nytimes.com/2025/01/23/business/korea-zinc-young-poong-shareholders.html
+
 **NBA Trade Board 2.0: Jimmy Butler, Zach LaVine and more big names on market**\
 `We're two weeks away from the deadline, and new names who could have a market have emerged. But No. 1 remains the same.`\
 https://nytimes.com/athletic/6057514/2025/01/23/nba-trade-rumors-jimmy-butler-heat-suns-bulls-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6050329/2025/01/23/omar-marmoush-to-manchester-city
 **Which 2025 NFL Draft prospects could rise during Shrine Bowl week?**\
 `With Shrine Bowl practices scheduled to start Saturday, let's take a look at 15 players to watch.`\
 https://nytimes.com/athletic/6075483/2025/01/23/nfl-draft-2025-shrine-bowl-shedeur-sanders/
-
-**Celtic USMNT duo star in Champions League, may solve Pochettino issue**\
-`Mauricio Pochettino is searching for his World Cup central defensive duo. He might find them both in the same place`\
-https://nytimes.com/athletic/6082724/2025/01/23/celtic-carter-vickers-trusty-usmnt/
 
