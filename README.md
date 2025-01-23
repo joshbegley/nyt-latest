@@ -1,3 +1,7 @@
+**John Ratcliffe Confirmed as C.I.A. Director**\
+`He has offered a vision for a more aggressive spy agency, and his focus on the threat from China is widely shared by Republican and Democratic lawmakers.`\
+https://nytimes.com/2025/01/23/us/politics/john-ratcliffe-cia-director-trump.html
+
 **The Dissonance of Climate Promises at Davos**\
 `C.E.O.s, policymakers and billionaires at the World Economic Forum’s conference have long pledged to fight climate change. Has it done any good?`\
 https://nytimes.com/2025/01/23/climate/davos-climate-change-promises.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084108/2025/01/23/manchester-united-psr-cash-losse
 **Forest confirm Wood's two-year contract extension**\
 `Nottingham Forest have confirmed that striker Chris Wood has signed a new contract through until the summer of 2027.`\
 https://nytimes.com/athletic/6081783/2025/01/23/chris-wood-new-contract-nottingham-forest/
-
-**A Ravens Player Dropped a Pass. The Hate It Brought Moved Rivals to Give.**\
-`A charitable drive for diabetes research in the name of the Ravens receiver Mark Andrews, who missed a pivotal play in a game against the Buffalo Bills, has raised more than $100,000.`\
-https://nytimes.com/2025/01/23/sports/football/bills-fans-diabetes-charity-mark-andrews-ravens.html
 
