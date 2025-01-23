@@ -1,3 +1,7 @@
+**Browns coach Kevin Stefanski takes over play-calling duties again**\
+`Stefanski called the plays for his first four seasons with the Browns before making ex-OC Ken Dorsey the play-caller late in the season.`\
+https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
+
 **150 Years of See and Be Seen at Paris’s Grandest Opera House**\
 `It’s been 150 years since the Palais Garnier opera house opened in Paris. Today, it is still a working theater — with 172 performances scheduled for this season.`\
 https://nytimes.com/2025/01/23/arts/music/palais-garnier-paris.html
