@@ -1,3 +1,7 @@
+**Norwegian clubs vote to scrap VAR**\
+`Clubs in Norway&#8217;s top two divisions have voted to discontinue the use of video assistant referees (VAR) in their domestic leagues.`\
+https://nytimes.com/athletic/6082887/2025/01/23/norway-var-clubs-vote/
+
 **Walker set to join Milan on loan from Man City**\
 `Manchester City defender Kyle Walker is flying to Milan today (Thursday) to complete his loan move to the Serie A club.`\
 https://nytimes.com/athletic/6054654/2025/01/23/kyle-walker-milan-transfer-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/learning/longevity.html
 **Late Night Enjoys Trump’s Uncomfortable Moment in Church**\
 `“New executive order: We are banning church,” said Ronny Chieng, channeling the president’s apparent annoyance when a bishop asked him to be merciful.`\
 https://nytimes.com/2025/01/23/arts/television/late-night-trump-bishop-church.html
-
-**Inside the injury crisis that threatens to wreck Tottenham's season**\
-`Spurs had high hopes for this season, but an ever-worsening injury crisis has stifled them - could it have been avoided?`\
-https://nytimes.com/athletic/6077551/2025/01/23/tottenham-injury-crisis/
 
