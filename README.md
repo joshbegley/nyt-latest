@@ -1,5 +1,5 @@
 **The New Politics of Immigration**\
-`We’re covering Trump’s deportation plans.`\
+`We’re covering President Trump’s deportation plans.`\
 https://nytimes.com/2025/01/23/briefing/immigration-donald-trump.html
 
 **U.K. Teenager Who Killed 3 Girls in Southport Stabbing to Be Sentenced Today**\
