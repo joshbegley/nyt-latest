@@ -1,3 +1,7 @@
+**Al Horford, LeBron James and the art of aging gracefully in the NBA**\
+`At 38, Horford knows a thing or two about longevity, and what he's seen from LeBron impressed him. `\
+https://nytimes.com/athletic/6079691/2025/01/23/lebron-james-al-horford-celtics-lakers-older-players/
+
 **ChatGPT Outage Reported by Thousands of Users**\
 `The site was unavailable to many people early Thursday.`\
 https://nytimes.com/2025/01/23/business/chatgpt-down-open-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/business/korea-zinc-young-poong-shareholders.html
 **NBA Trade Board 2.0: Jimmy Butler, Zach LaVine and more big names on market**\
 `We're two weeks away from the deadline, and new names who could have a market have emerged. But No. 1 remains the same.`\
 https://nytimes.com/athletic/6057514/2025/01/23/nba-trade-rumors-jimmy-butler-heat-suns-bulls-lakers/
-
-**'Super impressive' Jaden Springer emerges from nowhere to lead Celtics over Clippers**\
-`The little-used guard got the call when Boston couldn't stop the Clippers' guards. He delivered stout defense and more in an overtime win.`\
-https://nytimes.com/athletic/6082889/2025/01/23/celtics-jaden-springer-clippers-win/
 
