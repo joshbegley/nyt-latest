@@ -1,3 +1,7 @@
+**U.S. South Digs Out of Record Snow**\
+`A rare winter storm dumped record amounts of snow on much of the Gulf Coast and the Carolinas.`\
+https://nytimes.com/video/weather/100000009943819/us-south-storm-snow.html
+
 **Prosecutors Attack Adams’s Claims That Biden Targeted Him as Payback**\
 `In a filing, they said the investigation into the mayor began more than a year before he criticized the former president’s response to the migrant crisis.`\
 https://nytimes.com/2025/01/22/nyregion/adams-prosecutors-biden-trump.html
