@@ -1,3 +1,7 @@
+**Cowboys Today: How frustrated fans feel about Dallas' coaching candidates**\
+`"We need the right coach for everybody, on the football field and off the football field,” Cowboys great Michael Irvin said.`\
+https://nytimes.com/athletic/6083688/2025/01/23/cowboys-today-coach-search-frustration-schottenheimer/
+
 **Browns coach Kevin Stefanski takes over play-calling duties again**\
 `Stefanski called the plays for his first four seasons with the Browns before making ex-OC Ken Dorsey the play-caller late in the season.`\
 https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083304/2025/01/23/nba-ja-morant-victor-wembanyama-
 **Why Nets' Cam Johnson is one of the most coveted players as NBA trade deadline nears**\
 `Johnson is having a career season for a Brooklyn team offloading its vets. So where could he end up?`\
 https://nytimes.com/athletic/6082511/2025/01/23/cam-johnson-coveted-player-nba-trade-deadline/
-
-**Trump Re-Labels Yemen’s Houthi Rebels as Terrorists**\
-`The move will authorize harsher penalties on the Iran-backed group, which has attacked Israel and disrupted global shipping trade in the Red Sea for over a year.`\
-https://nytimes.com/2025/01/23/world/middleeast/trump-yemen-houthi-rebels-terrorists.html
 
