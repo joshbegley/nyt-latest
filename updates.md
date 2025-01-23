@@ -1,3 +1,11 @@
+**Two Hawaiian Brothers Say That Police Framed Them in a 1991 Murder**\
+`Ian and Shawn Schweitzer argued in a federal lawsuit that local police had failed to arrest a leading suspect.`\
+https://nytimes.com/2025/01/22/us/hawaii-tourist-murder-brothers-framed.html
+
+**Twins-Padres trade talks have focused on Christian Vázquez: Sources**\
+`The Twins would like to reallocate resources and they could find a willing trade partner in San Diego.`\
+https://nytimes.com/athletic/6082484/2025/01/22/twins-padres-trade-talks-christian-vazquez/
+
 **Bee-Dazzler**\
 `Fasten your seatbelts, solvers — it’s going to be a bumpy ride.`\
 https://nytimes.com/2025/01/22/crosswords/daily-puzzle-2025-01-23.html
