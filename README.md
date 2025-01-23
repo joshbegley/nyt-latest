@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
 `The problem with populism is that it doesn’t work.`\
 https://nytimes.com/2025/01/23/opinion/trump-mckinley-populism.html
 
-**Wembanyama delights Paris crowd as Spurs beat Pacers**\
+**Wembanyama delights Paris crowd with dominating performance vs. Pacers**\
 `Wemby’s first NBA game in France was a smashing success, as he went off for 30 points in the Spurs’ 140-110 win over the Pacers.`\
 https://nytimes.com/athletic/6084414/2025/01/23/victor-wembanyama-spurs-pacers-nba-france/
 
