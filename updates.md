@@ -1,3 +1,11 @@
+**Trump criticized California and repeated familiar attacks in the first one-on-one interview of his new term.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/23/us/trump-news/trump-criticized-california-and-repeated-familiar-attacks-in-the-first-one-on-one-interview-of-his-new-term
+
+**Israeli Forces Kill 2 Men in Jenin Who They Say Were Wanted for Murder**\
+`The men were affiliated with a militant group, Palestinian Islamic Jihad, that carried out an attack earlier this month, the military said.`\
+https://nytimes.com/2025/01/23/world/middleeast/israel-west-bank-jenin.html
+
 **The New Politics of Immigration**\
 `We’re covering President Trump’s deportation plans.`\
 https://nytimes.com/2025/01/23/briefing/immigration-donald-trump.html
