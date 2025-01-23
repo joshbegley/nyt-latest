@@ -1,3 +1,15 @@
+**5 Paths Through the Winter Show, an Exhibition of Earthly Delights**\
+`The fair, with 77 exhibitors, is a mini-museum, featuring arts, antiquities and design objects, from old masters to art jewelry.`\
+https://nytimes.com/2025/01/23/arts/design/winter-show-park-avenue-armory.html
+
+**McVay not definitive yet on futures of Rams stars Stafford, Kupp**\
+`Rams coach Sean McVay spoke about contributions from Matthew Stafford and Cooper Kupp, as well as Rob Havenstein and Tyler Higbee. `\
+https://nytimes.com/athletic/6083657/2025/01/23/rams-matthew-stafford-cooper-kupp-future-sean-mcvay/
+
+**Sheffield United sign Cannon from Leicester in £10m transfer**\
+`Leicester City striker Tom Cannon has joined Sheffield United in a £10million transfer.`\
+https://nytimes.com/athletic/6077431/2025/01/23/tom-cannon-sheffield-united-transfers/
+
 **Champions League projections: Are we heading for El Clasico in the last 16?**\
 `With the initial stage of the Champions League almost over — we use our projections to work out how who is likely to progress `\
 https://nytimes.com/athletic/6082982/2025/01/23/champions-league-projections-matchday-eight/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/opinion/trump-january-6.html
 **Novak Djokovic spent years among the final bosses of men's tennis. He's back there now**\
 `The world No. 7 spent most his career with two otherworldly rivals. He is in that situation once again, with one beaten so far in Melbourne.`\
 https://nytimes.com/athletic/6082770/2025/01/23/novak-djokovic-australian-open-semifinal-zverev-sinner-alcaraz/
-
-**Cowboys Today: How frustrated fans feel about Dallas' coaching candidates**\
-`"We need the right coach for everybody, on the football field and off the football field,” Cowboys great Michael Irvin said.`\
-https://nytimes.com/athletic/6083688/2025/01/23/cowboys-today-coach-search-frustration-schottenheimer/
-
-**Browns coach Kevin Stefanski again takes over play-calling duties**\
-`Stefanski called plays for his first four years with the Browns before making ex-OC Ken Dorsey the play caller late in the 2024 season.`\
-https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
-
-**150 Years of See and Be Seen at Paris’s Grandest Opera House**\
-`It’s been 150 years since the Palais Garnier opera house opened in Paris. Today, it is still a working theater — with 172 performances scheduled for this season.`\
-https://nytimes.com/2025/01/23/arts/music/palais-garnier-paris.html
 
