@@ -1,3 +1,7 @@
+**NBA Trade Board 2.0: Jimmy Butler, Zach LaVine and more big names on market**\
+`We're two weeks away from the deadline, and new names who could have a market have emerged. But No. 1 remains the same.`\
+https://nytimes.com/athletic/6057514/2025/01/23/nba-trade-rumors-jimmy-butler-heat-suns-bulls-lakers/
+
 **'Super impressive' Jaden Springer emerges from nowhere to lead Celtics over Clippers**\
 `The little-used guard got the call when Boston couldn't stop the Clippers' guards. He delivered stout defense and more in an overtime win.`\
 https://nytimes.com/athletic/6082889/2025/01/23/celtics-jaden-springer-clippers-win/
