@@ -1,3 +1,7 @@
+**The Briefing: Wrexham 1 Birmingham 1: No Reynolds, McElhenney nor Brady, but McClean makes rapid recovery**\
+`Wrexham and Birmingham City battled to a 1-1 draw in a potentially crucial match in the League One promotion battle...`\
+https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
+
 **How Trump Will Fail**\
 `The problem with populism is that it doesn’t work.`\
 https://nytimes.com/2025/01/23/opinion/trump-mckinley-populism.html

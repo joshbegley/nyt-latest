@@ -1,3 +1,7 @@
+**The Briefing: Wrexham 1 Birmingham 1: No Reynolds, McElhenney nor Brady, but McClean makes rapid recovery**\
+`Wrexham and Birmingham City battled to a 1-1 draw in a potentially crucial match in the League One promotion battle...`\
+https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
+
 **How Trump Will Fail**\
 `The problem with populism is that it doesn’t work.`\
 https://nytimes.com/2025/01/23/opinion/trump-mckinley-populism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/arts/television/lovers-anonymous-netflix.html
 **Do You Have a Health Question for Our Reporters?**\
 `It could be answered by Times journalists and experts in a future Ask Well column.`\
 https://nytimes.com/article/health-questions-readers-nyt-well.html
-
-**Who are the Warriors? Trade deadline begs for some Zach LaVine-level boldness**\
-`Are the Warriors still the franchise that takes risks to try and stay great? We're about to find out over the next two weeks.`\
-https://nytimes.com/athletic/6082707/2025/01/23/warriors-zach-lavine-trade-deadline-identity/
 
