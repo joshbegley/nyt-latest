@@ -1,3 +1,15 @@
+**Champions League projections: Are we heading for El Clasico in the last 16?**\
+`With the initial stage of the Champions League almost over — we use our projections to work out how who is likely to progress `\
+https://nytimes.com/athletic/6082982/2025/01/23/champions-league-projections-matchday-eight/
+
+**Tips to Stay Safe if a Hotel Fire Erupts**\
+`On a vacation, the potential for fires is often far from mind. But in rare instances, terrifying tragedy can come fast.`\
+https://nytimes.com/2025/01/23/travel/hotel-fire-safety-tips.html
+
+**‘A Bounty on My Head’: Congress’s First Transgender Member Faces the Trump Era**\
+`Representative Sarah McBride did not run for Congress emphasizing L.G.B.T.Q. issues. But since her arrival in Washington, her identity has come under attack from newly empowered Republicans.`\
+https://nytimes.com/2025/01/23/us/politics/sarah-mcbride-transgender-trump-congress.html
+
 **Leeds defender Struijk avoids tendon damage, to return to training next week**\
 `Fears Leeds United would lose Pascal Struijk until April with a hamstring injury have been allayed.`\
 https://nytimes.com/athletic/6083754/2025/01/23/pascal-struijk-leeds-injury-update/
@@ -19,22 +31,10 @@ https://nytimes.com/athletic/6082770/2025/01/23/novak-djokovic-australian-open-s
 https://nytimes.com/athletic/6083688/2025/01/23/cowboys-today-coach-search-frustration-schottenheimer/
 
 **Browns coach Kevin Stefanski again takes over play-calling duties**\
-`Stefanski called the plays for his first four seasons with the Browns before making ex-OC Ken Dorsey the play-caller late in the season.`\
+`Stefanski called plays for his first four years with the Browns before making ex-OC Ken Dorsey the play caller late in the 2024 season.`\
 https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
 
 **150 Years of See and Be Seen at Paris’s Grandest Opera House**\
 `It’s been 150 years since the Palais Garnier opera house opened in Paris. Today, it is still a working theater — with 172 performances scheduled for this season.`\
 https://nytimes.com/2025/01/23/arts/music/palais-garnier-paris.html
-
-**‘Seriously, I Crave This Salad’**\
-`Ali Slagle’s flexible, assertively lemony quinoa salad has five stars and many fans (me included).`\
-https://nytimes.com/2025/01/23/dining/quinoa-salad-five-stars.html
-
-**A 10-Minute Pilates Routine You Can Do at Home**\
-`If you’re don’t have all the equipment, there are a few simple moves you can do to a simple workout.`\
-https://nytimes.com/2025/01/23/well/move/10-minute-home-pilates-workout.html
-
-**6 Things We Get Wrong About Sleep**\
-`And how to actually get better rest, according to experts.`\
-https://nytimes.com/2025/01/23/well/mind/sleep-myths.html
 

@@ -1,3 +1,19 @@
+**Champions League projections: Are we heading for El Clasico in the last 16?**\
+`With the initial stage of the Champions League almost over — we use our projections to work out how who is likely to progress `\
+https://nytimes.com/athletic/6082982/2025/01/23/champions-league-projections-matchday-eight/
+
+**Tips to Stay Safe if a Hotel Fire Erupts**\
+`On a vacation, the potential for fires is often far from mind. But in rare instances, terrifying tragedy can come fast.`\
+https://nytimes.com/2025/01/23/travel/hotel-fire-safety-tips.html
+
+**‘A Bounty on My Head’: Congress’s First Transgender Member Faces the Trump Era**\
+`Representative Sarah McBride did not run for Congress emphasizing L.G.B.T.Q. issues. But since her arrival in Washington, her identity has come under attack from newly empowered Republicans.`\
+https://nytimes.com/2025/01/23/us/politics/sarah-mcbride-transgender-trump-congress.html
+
+**Browns coach Kevin Stefanski again takes over play-calling duties**\
+`Stefanski called plays for his first four years with the Browns before making ex-OC Ken Dorsey the play caller late in the 2024 season.`\
+https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
+
 **Leeds defender Struijk avoids tendon damage, to return to training next week**\
 `Fears Leeds United would lose Pascal Struijk until April with a hamstring injury have been allayed.`\
 https://nytimes.com/athletic/6083754/2025/01/23/pascal-struijk-leeds-injury-update/
