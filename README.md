@@ -1,3 +1,7 @@
+**Lots of shots, zero goals: Analysing European football's most wasteful players**\
+`The most profligate players in Europe's top five leagues are a mixture of ambitious defenders, hopeful midfielders and wasteful strikers`\
+https://nytimes.com/athletic/6075957/2025/01/23/european-top-five-leagues-worst-shooters/
+
 **Thursday Briefing**\
 `Trump’s D.E.I. crackdown.`\
 https://nytimes.com/2025/01/23/briefing/trump-prince-harry-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/trump-pardons-police-officers-sutton-
 **Mariano Rivera and Wife Covered Up Sex Abuse of Child, Lawsuit Claims**\
 `The Yankees pitcher and his wife are named in a suit that says a young girl was assaulted at properties connected to a church they helped found and at their home in Westchester County, N.Y.`\
 https://nytimes.com/2025/01/22/nyregion/mariano-rivera-child-sex-abuse.html
-
-**Andrew Puzder Is Trump’s Choice for Ambassador to the European Union**\
-`Mr. Puzder, a former fast food executive, was nominated in 2017 to be President Trump’s labor secretary, but he withdrew amid bipartisan scrutiny of his business record and character.`\
-https://nytimes.com/2025/01/22/us/politics/andrew-puzder-trump-ambassador-european-union.html
 
