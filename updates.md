@@ -1,3 +1,7 @@
+**Man City accused of advising Valladolid defender to 'breach his contract'**\
+`Real Valladolid have accused Manchester City of &#8220;appearing to advise&#8221; their centre-back Juma Bah to &#8220;breach his contract&#8221; in order to sign for the Premier League side.`\
+https://nytimes.com/athletic/6080099/2025/01/23/juma-bah-manchester-city-valladolid/
+
 **Ipswich sign Brighton's Enciso on loan**\
 `Ipswich Town have completed the signing of forward Julio Enciso on loan for the rest of the season.`\
 https://nytimes.com/athletic/6080232/2025/01/23/brighton-ipswich-enciso-transfer/

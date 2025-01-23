@@ -1,3 +1,7 @@
+**Man City accused of advising Valladolid defender to 'breach his contract'**\
+`Real Valladolid have accused Manchester City of &#8220;appearing to advise&#8221; their centre-back Juma Bah to &#8220;breach his contract&#8221; in order to sign for the Premier League side.`\
+https://nytimes.com/athletic/6080099/2025/01/23/juma-bah-manchester-city-valladolid/
+
 **Ipswich sign Brighton's Enciso on loan**\
 `Ipswich Town have completed the signing of forward Julio Enciso on loan for the rest of the season.`\
 https://nytimes.com/athletic/6080232/2025/01/23/brighton-ipswich-enciso-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/technology/ai-test-humanitys-last-exam.html
 **Trump Plans to Abandon Clean Energy. Can He Do It?**\
 `The president is seeking to double down on oil. Here’s a guide to his chances, and what it would mean if he succeeded.`\
 https://nytimes.com/2025/01/23/podcasts/the-daily/trump-energy-order.html
-
-**What I'm hearing about the Blackhawks as the trade deadline approaches**\
-`What happens with Lukas Reichel will be interesting to watch, plus why Chris O'Hearn was hired as vice president of hockey operations.`\
-https://nytimes.com/athletic/6081169/2025/01/23/nhl-blackhawks-trade-deadline/
 
