@@ -1,3 +1,11 @@
+**FPL: Foden, Savio and that man Haaland - are Manchester City players worth it again?**\
+`Holly Shand analyses the best assets to target from Manchester City despite their tricky fixture list`\
+https://nytimes.com/athletic/6080035/2025/01/23/fantasy-premier-league-manchester-city-foden-haaland/
+
+**Harrison Armstrong is Everton's future - can he be the present, too?**\
+`The teenage midfielder is pushing for first team action but played his part as Everton progressed in the Youth Cup — he is highly thought of`\
+https://nytimes.com/athletic/6080188/2025/01/23/harrison-armstrong-everton-david-moyes/
+
 **Forest's signature throw-in explained - and how it finally resulted in a goal for Elliot Anderson**\
 `Forest have been persevering with an interesting throw-in routine this season - and it resulted in a goal against Southampton on Sunday`\
 https://nytimes.com/athletic/6077310/2025/01/23/nottingham-forest-signature-throw-in/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6082082/2025/01/23/manchester-city-defeat-paris-sai
 **'It's special': Blue Jackets' Adam Fantilli scores first career hat trick in hometown**\
 `Fantilli recorded his first career hat trick in front of his friends and family at Scotiabank Arena in Toronto.`\
 https://nytimes.com/athletic/6082580/2025/01/23/blue-jackets-adam-fantilli-hat-trick/
-
-**Why Manchester United have a cash problem**\
-`Manchester United are trying to reshape their squad to better suit Ruben Amorim, but they have a significant cash problem to solve, too`\
-https://nytimes.com/athletic/6080398/2025/01/23/manchester-united-transfer-cash-problem/
-
-**Lots of shots, zero goals: Analysing European football's most wasteful players**\
-`The most profligate players in Europe's top five leagues are a mixture of ambitious defenders, hopeful midfielders and wasteful strikers`\
-https://nytimes.com/athletic/6075957/2025/01/23/european-top-five-leagues-worst-shooters/
 
