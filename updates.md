@@ -1,3 +1,11 @@
+**Hornets' Brandon Miller undergoes surgery, out for rest of season**\
+`Miller, 22, sustained the injury on Jan. 15 during the Hornets’ 117-112 victory over the Utah Jazz.`\
+https://nytimes.com/athletic/6084491/2025/01/23/brandon-miller-out-for-season-wrist-surgery/
+
+**French Crypto Entrepreneur and Wife Are Freed After Kidnapping**\
+`David Balland, a founder of Ledger, a prominent cryptocurrency company, and his wife were freed after a 48-hour police search. Ten people have been arrested.`\
+https://nytimes.com/2025/01/23/world/europe/france-crypto-kidnapping.html
+
 **Yankees pluck pitchers from the Braves, Orioles, including former prospect**\
 `Roansy Contreras returns to the Yankees, who traded him to the Pirates in 2021 in the deal that brought Jameson Taillon to New York.`\
 https://nytimes.com/athletic/6084592/2025/01/23/yankees-roansy-contreras-allan-winans-waivers/
