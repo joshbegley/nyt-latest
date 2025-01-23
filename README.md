@@ -1,3 +1,7 @@
+**Bill Belichick's UNC debut vs. TCU gets Labor Day prime-time slot on ESPN**\
+`The NFL lifer will begin his college coaching tenure in a familiar spot: Monday night football.`\
+https://nytimes.com/athletic/6084390/2025/01/23/belichick-unc-tcu-first-game-esp/
+
 **Four candidates to be the Giants' backup catcher behind Patrick Bailey**\
 `Tom Murphy enters camp as the favorite to back up Bailey, but there are three other candidates who could steal the job.`\
 https://nytimes.com/athletic/6083801/2025/01/23/sf-giants-catching-depth-chart/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/world/europe/icc-afghanistan-leader-women.html
 **Despite Quick Spread, Laguna Fire Is Largely Under Control**\
 `Firefighters were able to stop the progress of the blaze, which had prompted the evacuation of a nearby college campus.`\
 https://nytimes.com/2025/01/23/us/laguna-fire-grew-halted-quickly.html
-
-**How Lou Anarumo intends to fix Colts defense, hold players accountable: 'I'm a truth-teller'**\
-`“Great players want to be coached. They want to know the truth. ... If they don't, then there's probably an issue there."`\
-https://nytimes.com/athletic/6084284/2025/01/23/lou-anarumo-colts-defensive-coordinator-accountable/
 
