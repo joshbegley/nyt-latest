@@ -1,11 +1,3 @@
-**Seven Police Officers Are Shot While Responding to Suicide Call in Texas**\
-`The officers went to an apartment in San Antonio and were shot by a barricaded man, who was found dead, the authorities said.`\
-https://nytimes.com/2025/01/23/us/police-shooting-texas-san-antonio.html
-
-**The Windup: Wagner should spark a HOF trend**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6083882/2025/01/23/baseball-hall-of-fame-wagner-ichiro-the-windup/
-
 **‘Anora’ Is More Than a Brooklyn Cinderella Story**\
 `A sex worker in a romantic comedy isn’t new. How the Oscar-nominated film uses immigrant Brooklyn to subvert the genre? That’s different.`\
 https://nytimes.com/2025/01/23/nyregion/anora-brooklyn-romantic-comedy.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/01/23/arts/design/winter-show-park-avenue-armory.html
 **McVay not definitive yet on futures of Rams stars Stafford, Kupp**\
 `Rams coach Sean McVay spoke about contributions from Matthew Stafford and Cooper Kupp, as well as Rob Havenstein and Tyler Higbee. `\
 https://nytimes.com/athletic/6083657/2025/01/23/rams-matthew-stafford-cooper-kupp-future-sean-mcvay/
+
+**Sheffield United sign Cannon from Leicester in £10m transfer**\
+`Leicester City striker Tom Cannon has joined Sheffield United in a £10million transfer.`\
+https://nytimes.com/athletic/6077431/2025/01/23/tom-cannon-sheffield-united-transfers/
+
+**Champions League projections: Are we heading for El Clasico in the last 16?**\
+`With the initial stage of the Champions League almost over, we use our projections to work out how who is likely to progress `\
+https://nytimes.com/athletic/6082982/2025/01/23/champions-league-projections-matchday-eight/
 
