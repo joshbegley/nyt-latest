@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Lack of finish wastes solid effort against Columbus**\
+`The Leafs looked like the better team for most of the game, but couldn't solve Columbus goalie Elvis Merzlikins.`\
+https://nytimes.com/athletic/6082573/2025/01/22/maple-leafs-report-cards-hildeby-nylander-blue-jackets/
+
 **Trump Pardons 2 D.C. Officers Convicted in Fatal Chase and Cover-Up**\
 `The death of a young Black man, Karon Hylton-Brown, led to days of protests in 2020, not long after the murder of George Floyd by a Minneapolis police officer.`\
 https://nytimes.com/2025/01/22/us/politics/trump-pardons-police-officers-sutton-zabavsky.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/hughes-fire-la-county.html
 **USMNT beats CONCACAF rival Costa Rica 3-0**\
 `It was the second consecutive win for Mauricio Pochettino’s reserve squad.`\
 https://nytimes.com/athletic/6082485/2025/01/22/usmnt-beats-costa-rica-concacaf/
-
-**Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
-`Hundreds of people began registering their marriages at a mall in Bangkok, as Thailand became one of the few places in Asia to legalize same-sex unions.`\
-https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
 
