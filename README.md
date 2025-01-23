@@ -1,15 +1,3 @@
-**Supreme Court Revives Law Meant to Fight Money Laundering**\
-`The Corporate Transparency Act, which requires businesses to disclose ownership information, was blocked by a federal judge as beyond Congress’s authority.`\
-https://nytimes.com/2025/01/23/us/supreme-court-money-laundering.html
-
-**Trump Criticizes Europe and Threatens Tariffs in Davos Speech**\
-`President Trump doubled down on the prospect of across-the-board tariffs in a video appearance to business executives and politicians gathered in Davos, Switzerland.`\
-https://nytimes.com/2025/01/23/us/politics/trump-davos-europe-tariffs.html
-
-**‘Flight Risk’ Review: A Rather Bumpy Landing**\
-`Mel Gibson directs an uneven action film with Mark Wahlberg that feels pulled out of an earlier era.`\
-https://nytimes.com/2025/01/23/movies/flight-risk-review.html
-
 **John Ratcliffe Confirmed as C.I.A. Director**\
 `He has offered a vision for a more aggressive spy agency, and his focus on the threat from China is widely shared by Republican and Democratic lawmakers.`\
 https://nytimes.com/2025/01/23/us/politics/john-ratcliffe-cia-director-trump.html
@@ -37,4 +25,16 @@ https://nytimes.com/video/us/politics/100000009945063/trump-davos-address-tariff
 **After his Jan. 6 case was dropped, a Florida man is arrested on a gun charge.**\
 `By Christine Hauser`\
 https://nytimes.com/live/2025/01/23/us/trump-news/after-his-jan-6-case-was-dropped-a-florida-man-is-arrested-on-a-gun-charge
+
+**Ichiro Suzuki wants to meet with Hall of Fame voter who didn't vote for him**\
+`At a Hall of Fame news conference, Ichiro joined the ranks of many people around the globe in wondering why he didn’t get that one vote. `\
+https://nytimes.com/athletic/6083972/2025/01/23/ichiro-invitiation-hall-of-fame-voter/
+
+**Man United admit financial losses put club at risk of PSR breach**\
+`Manchester United have admitted that they are at risk of breaching the Premier League&#8217;s profitability and sustainability rules (PSR) unless they reverse their repeated financial losses.`\
+https://nytimes.com/athletic/6084108/2025/01/23/manchester-united-psr-cash-losses/
+
+**Forest confirm Wood's two-year contract extension**\
+`Nottingham Forest have confirmed that striker Chris Wood has signed a new contract through until the summer of 2027.`\
+https://nytimes.com/athletic/6081783/2025/01/23/chris-wood-new-contract-nottingham-forest/
 
