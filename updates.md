@@ -1,3 +1,11 @@
+**How Trump Will Fail**\
+`The problem with populism is that it doesn’t work.`\
+https://nytimes.com/2025/01/23/opinion/trump-mckinley-populism.html
+
+**Wembanyama delights Paris crowd as Spurs beat Pacers**\
+`Wemby’s first NBA game in France was a smashing success, as he went off for 30 points in the Spurs’ 140-110 win over the Pacers.`\
+https://nytimes.com/athletic/6084414/2025/01/23/victor-wembanyama-spurs-pacers-nba-france/
+
 **Charles Phan, Whose Slanted Door Elevated Vietnamese Food, Dies at 62**\
 `The restaurant, which opened in San Francisco in 1995, married local ingredients with the food he grew up on and buoyed other chefs from immigrant families.`\
 https://nytimes.com/2025/01/23/dining/charles-phan-dead.html
