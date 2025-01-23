@@ -1,3 +1,27 @@
+**Mark Andrews shares first public comments since Ravens' playoff loss to Bills**\
+`Andrews took to Instagram with a message after not speaking to media on Monday and Tuesday following the loss to the Bills.`\
+https://nytimes.com/athletic/6084269/2025/01/23/mark-andrews-instagram-comments-ravens-bills/
+
+**House Passes Bill to Penalize Some Abortion Providers**\
+`The measure, which would require that medical providers resuscitate infants born alive during abortions, has no path to enactment after Democrats blocked it this week.`\
+https://nytimes.com/2025/01/23/us/politics/house-abortion-bill.html
+
+**I.C.C. Prosecutor Seeks Arrest of Taliban Leader for Persecution of Afghan Women**\
+`Karim Khan said that a crime against humanity was being committed by top officials against “Afghan women and girls, as well as the LGBTQI+ community.”`\
+https://nytimes.com/2025/01/23/world/europe/icc-afghanistan-leader-women.html
+
+**The Laguna fire grew quickly, then was halted quickly.**\
+`By Orlando Mayorquín`\
+https://nytimes.com/2025/01/23/us/the-laguna-fire-grew-quickly-then-was-halted-quickly.html
+
+**How Lou Anarumo intends to fix Colts defense, hold players accountable: 'I'm a truth-teller'**\
+`“Great players want to be coached. They want to know the truth. ... If they don't, then there's probably an issue there."`\
+https://nytimes.com/athletic/6084284/2025/01/23/lou-anarumo-colts-defensive-coordinator-accountable/
+
+**100,000 Ducks to Be Killed After Bird Flu Strikes Long Island Farm**\
+`The highly infectious H5N1 strain has caused outbreaks across the country. Now, Long Island’s last duck farm must kill its entire flock and may go out of business, its owner said.`\
+https://nytimes.com/2025/01/23/nyregion/long-island-duck-farm-bird-flu.html
+
 **Amanda Knox Slander Conviction Is Upheld by Italy’s Highest Court**\
 `An American who was convicted and later acquitted of the 2007 murder of her British housemate, Ms. Knox was found guilty of falsely accusing someone else of the crime.`\
 https://nytimes.com/2025/01/23/world/europe/amanda-knox-slander-upheld.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/23/realestate/alexander-brothers-lawsuit-dismissal.h
 **Where to Eat: Spicy dishes for frigid nights**\
 `These vibrant dishes will warm you from the inside.`\
 https://nytimes.com/2025/01/23/dining/where-to-eat-spicy-dishes-for-frigid-nights.html
-
-**What Students Are Saying About Being Graded on Excellence vs. Effort**\
-`A guest essayist said students shouldn’t get an A for simply putting in hard work. We asked teenagers what they thought.`\
-https://nytimes.com/2025/01/23/learning/what-students-are-saying-about-being-graded-on-excellence-vs-effort.html
-
-**Trump Pulls the Military Back Into the Political and Culture Wars**\
-`The removal of a portrait of Gen. Mark A. Milley, the former chairman of the Joint Chiefs of Staff, from a Pentagon hallway was among the president’s early actions.`\
-https://nytimes.com/2025/01/23/us/politics/trump-military.html
-
-**Stocks Hit a Record Amid Strong Earnings and Easing Inflation Concerns**\
-`Corporate earnings are coming in strong. Investors are also seeing the Trump administration take a less aggressive approach to tariffs than some had expected.`\
-https://nytimes.com/2025/01/23/business/stock-market-record-trump-inflation-earnings.html
-
-**Trump Drive to Cut Safety Net Could Hit His Voters**\
-`The new administration wants to slash aid for health, food, and housing, but many of those programs now reach the struggling working class he is courting.`\
-https://nytimes.com/2025/01/23/us/politics/trump-social-safety-net.html
-
-**Friday Briefing: Trump Criticizes Europe**\
-`Plus, the Oscar nominations.`\
-https://nytimes.com/2025/01/23/briefing/trump-davos-ukraine-war-deaths-oscar-nominations.html
-
-**Netflix dropping Paris Olympics basketball docuseries in February**\
-`The six-part series will follow the U.S., France, Serbia and Canada in their quest to win gold.`\
-https://nytimes.com/athletic/6084214/2025/01/23/netflix-paris-olympics-basketball-series-release-date/
 

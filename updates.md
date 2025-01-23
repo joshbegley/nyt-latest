@@ -1,3 +1,27 @@
+**Mark Andrews shares first public comments since Ravens' playoff loss to Bills**\
+`Andrews took to Instagram with a message after not speaking to media on Monday and Tuesday following the loss to the Bills.`\
+https://nytimes.com/athletic/6084269/2025/01/23/mark-andrews-instagram-comments-ravens-bills/
+
+**House Passes Bill to Penalize Some Abortion Providers**\
+`The measure, which would require that medical providers resuscitate infants born alive during abortions, has no path to enactment after Democrats blocked it this week.`\
+https://nytimes.com/2025/01/23/us/politics/house-abortion-bill.html
+
+**I.C.C. Prosecutor Seeks Arrest of Taliban Leader for Persecution of Afghan Women**\
+`Karim Khan said that a crime against humanity was being committed by top officials against “Afghan women and girls, as well as the LGBTQI+ community.”`\
+https://nytimes.com/2025/01/23/world/europe/icc-afghanistan-leader-women.html
+
+**The Laguna fire grew quickly, then was halted quickly.**\
+`By Orlando Mayorquín`\
+https://nytimes.com/2025/01/23/us/the-laguna-fire-grew-quickly-then-was-halted-quickly.html
+
+**How Lou Anarumo intends to fix Colts defense, hold players accountable: 'I'm a truth-teller'**\
+`“Great players want to be coached. They want to know the truth. ... If they don't, then there's probably an issue there."`\
+https://nytimes.com/athletic/6084284/2025/01/23/lou-anarumo-colts-defensive-coordinator-accountable/
+
+**100,000 Ducks to Be Killed After Bird Flu Strikes Long Island Farm**\
+`The highly infectious H5N1 strain has caused outbreaks across the country. Now, Long Island’s last duck farm must kill its entire flock and may go out of business, its owner said.`\
+https://nytimes.com/2025/01/23/nyregion/long-island-duck-farm-bird-flu.html
+
 **Judge Dismisses Lawsuit Against Brothers Accused of Sexual Assault**\
 `A federal judge found that a woman’s claim against Alon, Oren and Tal Alexander did not meet a filing deadline. Other lawsuits and the criminal cases against them are continuing.`\
 https://nytimes.com/2025/01/23/realestate/alexander-brothers-lawsuit-dismissal.html
