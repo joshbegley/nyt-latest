@@ -1,3 +1,7 @@
+**U.S. South Digs Out After Record Snow**\
+`A rare winter storm dumped record amounts of snow on much of the Gulf Coast and the Carolinas.`\
+https://nytimes.com/video/weather/100000009943819/us-south-storm-snow.html
+
 **Russell Wilson on his future with Steelers: 'Hopefully finish my career there'**\
 `Despite the late-season struggles, Wilson, 36, remained optimistic about his ability to play into the future.`\
 https://nytimes.com/athletic/6082029/2025/01/22/russell-wilson-pittsburgh-steelers-pat-mcafee/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/federal-government-dei-callout.html
 **Amazon Closes Its Operations in Quebec, Laying Off 1,700 Workers**\
 `Unions had gained a foothold in one of the company’s warehouses in the province, though Amazon would not say if there was a connection.`\
 https://nytimes.com/2025/01/22/technology/amazon-quebec-closures.html
-
-**The Bishop Who Pleaded With Trump: ‘Was Anyone Going to Say Anything?’**\
-`Bishop Budde locked eyes with President Trump and made a plea for mercy — and the war over spiritual authority in America was ignited anew.`\
-https://nytimes.com/2025/01/22/us/trump-bishop-plea.html
 
