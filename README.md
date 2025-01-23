@@ -1,3 +1,7 @@
+**The Real Protection Hegseth Has Is MAGA Loyalty — and Liberal Scorn**\
+`Party loyalty remains strong even for nominees who go down. Pete Hegseth’s no different, but the Trump era has strengthened it even more.`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/pete-hegseth-republicans-trump-loyalty
+
 **Trump Picks Conservative Activist to Lead U.S. Media Agency**\
 `L. Brent Bozell III, once a critic of President Trump, now runs an organization that criticizes the media for perceived bias against Republicans, particularly Mr. Trump.`\
 https://nytimes.com/2025/01/22/us/politics/trump-picks-conservative-activist-to-lead-us-media-agency.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/us/police-kentucky-deportation-fliers-ku-klux-kla
 **Prosecutors Attack Adams’s Claims That Biden Targeted Him as Payback**\
 `In a filing, they said the investigation into the mayor began more than a year before he criticized the former president’s response to the migrant crisis.`\
 https://nytimes.com/2025/01/22/nyregion/adams-prosecutors-biden-trump.html
-
-**An Invitation to a Witch Hunt to Root Out D.E.I.**\
-`A chilling message for federal employees: Rat out your colleagues, or else.`\
-https://nytimes.com/live/2025/01/20/opinion/thepoint/trump-dei-executive-order
 
