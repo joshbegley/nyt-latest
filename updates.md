@@ -1,3 +1,12 @@
+**Scoop City: Comparing Mahomes and Allen ahead of the AFC Championship**\
+`&nbsp;
+Today, we&#8217;re covering the quarterbacks in the AFC Championship, Jacksonville&#8217;s big change, the new Jets head coach and your thoughts on Lamar Jackson&#8217;s playoff struggles.`\
+https://nytimes.com/athletic/6083936/2025/01/23/afc-championships-quarterback-mahomes-allen-comparison-nfl-scoop-city/
+
+**Judge Temporarily Blocks Trump’s Plan to End Birthright Citizenship**\
+`A federal judge in Seattle has issued a temporary order halting the president’s plan.`\
+https://nytimes.com/2025/01/23/us/politics/judge-blocks-birthright-citizenship.html
+
 **Cubs reach agreement with utilityman Jon Berti on a $2 million deal: Source**\
 `Berti can move around the infield, and, if needed, play all three outfield positions.`\
 https://nytimes.com/athletic/6083923/2025/01/23/chicago-cubs-jon-berti-free-agent-deal/
