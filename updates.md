@@ -1,3 +1,15 @@
+**‘Seriously, I Crave This Salad’**\
+`Ali Slagle’s flexible, assertively lemony quinoa salad has five stars and many fans (me included).`\
+https://nytimes.com/2025/01/23/dining/quinoa-salad-five-stars.html
+
+**A 10-Minute Pilates Routine You Can Do at Home**\
+`If you’re don’t have all the equipment, there are a few simple moves you can do to a simple workout.`\
+https://nytimes.com/2025/01/23/well/move/10-minute-home-pilates-workout.html
+
+**6 Things We Get Wrong About Sleep**\
+`And how to actually get better rest, according to experts.`\
+https://nytimes.com/2025/01/23/well/mind/sleep-myths.html
+
 **The Oscar Nominations Are a Sign Hollywood Still Wants to Counter Conservative Cultural Vibes**\
 `There are more than a few examples of progressive politics on display in what Hollywood is choosing to celebrate with its highest honor.`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/oscar-nominations-trump-progressive-reaction

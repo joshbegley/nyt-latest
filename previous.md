@@ -1,3 +1,15 @@
+**‘Seriously, I Crave This Salad’**\
+`Ali Slagle’s flexible, assertively lemony quinoa salad has five stars and many fans (me included).`\
+https://nytimes.com/2025/01/23/dining/quinoa-salad-five-stars.html
+
+**A 10-Minute Pilates Routine You Can Do at Home**\
+`If you’re don’t have all the equipment, there are a few simple moves you can do to a simple workout.`\
+https://nytimes.com/2025/01/23/well/move/10-minute-home-pilates-workout.html
+
+**6 Things We Get Wrong About Sleep**\
+`And how to actually get better rest, according to experts.`\
+https://nytimes.com/2025/01/23/well/mind/sleep-myths.html
+
 **The Oscar Nominations Are a Sign Hollywood Still Wants to Counter Conservative Cultural Vibes**\
 `There are more than a few examples of progressive politics on display in what Hollywood is choosing to celebrate with its highest honor.`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/oscar-nominations-trump-progressive-reaction
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/movies/liza-a-truly-terrific-absolutely-true-stor
 **Hegseth’s Nomination as Defense Secretary to Face a Test Vote in the Senate**\
 `The vote may indicate whether fresh allegations about his personal conduct that surfaced this week are enough to stop his confirmation.`\
 https://nytimes.com/2025/01/23/us/politics/hegseth-defense-secretary.html
-
-**Ben Shelton's Grand Slam breakout was pure tennis vibes. Now he's doing the math**\
-`When the American is on form, his tennis looks like a flurry of winners and good times. But he's more interested in running the numbers.`\
-https://nytimes.com/athletic/6082818/2025/01/23/ben-shelton-australian-open-grand-slam-tennis-record/
-
-**FKA twigs Tests Her Pop Skills on ‘Eusexua’**\
-`For her third studio album, the shape-shifting English songwriter puts a beat behind her desires.`\
-https://nytimes.com/2025/01/23/arts/music/fka-twigs-eusexua-review.html
-
-**Trump Revels in a Presidential Perk: The Omnipresent Press Pool**\
-`His volubility in his first few days back in office underscores that President Trump is in charge of his own show.`\
-https://nytimes.com/2025/01/23/us/politics/trump-press-reporters.html
 
