@@ -1,3 +1,7 @@
+**Police in Kentucky Investigate Fliers Promoting Mass Deportation**\
+`Several cities in Northern Kentucky received reports of fliers calling on people to monitor and report all immigrants and encouraging membership in the Ku Klux Klan.`\
+https://nytimes.com/2025/01/22/us/police-kentucky-deportation-fliers-ku-klux-klan.html
+
 **U.S. South Digs Out of Record Snow**\
 `A rare winter storm dumped record amounts of snow on much of the Gulf Coast and the Carolinas.`\
 https://nytimes.com/video/weather/100000009943819/us-south-storm-snow.html
