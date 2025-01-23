@@ -1,3 +1,11 @@
+**Ipswich sign Brighton's Enciso on loan**\
+`Ipswich Town have completed the signing of forward Julio Enciso on loan for the rest of the season.`\
+https://nytimes.com/athletic/6080232/2025/01/23/brighton-ipswich-enciso-transfer/
+
+**New Takes on a Classic Taiwanese Treat**\
+`Plus: trompe l’oeil ceramics, a Madrid hotel designed by Philippe Starck and more recommendations from T Magazine.`\
+https://nytimes.com/2025/01/23/t-magazine/pineapple-cake.html
+
 **Carmelo Anthony gave emotional testimony in $500m U.S. soccer trial**\
 `An NBA great cut an unusual figure on the witness stand in American soccer's biggest trial in years`\
 https://nytimes.com/athletic/6082785/2025/01/23/why-carmelo-anthony-provided-emotional-testimony-in-a-500m-american-soccer-trial/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/podcasts/the-daily/trump-energy-order.html
 **What I'm hearing about the Blackhawks as the trade deadline approaches**\
 `What happens with Lukas Reichel will be interesting to watch, plus why Chris O'Hearn was hired as vice president of hockey operations.`\
 https://nytimes.com/athletic/6081169/2025/01/23/nhl-blackhawks-trade-deadline/
-
-**How women's football could change English football's 40-year alcohol ban**\
-`Will the alcohol trial in the women's Championship become permanent or end up on the cutting room floor? `\
-https://nytimes.com/athletic/6075103/2025/01/23/womens-championship-alcohol-trial/
-
-**The Connections Companion No. 593**\
-`Scroll down for hints and conversation about the puzzle for Friday, Jan. 24, 2025.`\
-https://nytimes.com/2025/01/23/crosswords/connections-companion-593.html
 

@@ -1,3 +1,11 @@
+**Ipswich sign Brighton's Enciso on loan**\
+`Ipswich Town have completed the signing of forward Julio Enciso on loan for the rest of the season.`\
+https://nytimes.com/athletic/6080232/2025/01/23/brighton-ipswich-enciso-transfer/
+
+**New Takes on a Classic Taiwanese Treat**\
+`Plus: trompe l’oeil ceramics, a Madrid hotel designed by Philippe Starck and more recommendations from T Magazine.`\
+https://nytimes.com/2025/01/23/t-magazine/pineapple-cake.html
+
 **Carmelo Anthony gave emotional testimony in $500m U.S. soccer trial**\
 `An NBA great cut an unusual figure on the witness stand in American soccer's biggest trial in years`\
 https://nytimes.com/athletic/6082785/2025/01/23/why-carmelo-anthony-provided-emotional-testimony-in-a-500m-american-soccer-trial/
