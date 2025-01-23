@@ -1,3 +1,7 @@
+**South Korea Tells Budget Airlines to Tighten Safety After Crash**\
+`Following the deadly Jeju Air accident, the government ordered low cost carriers to reduce flight times, boost pilot training and expand maintenance crews.`\
+https://nytimes.com/2025/01/23/world/asia/south-korea-air-crash-safety.html
+
 **Juventus agree loan deal for Chelsea's Veiga**\
 `Chelsea have verbally agreed a deal to send Renato Veiga on loan to Juventus.`\
 https://nytimes.com/athletic/6056379/2025/01/23/renato-veiga-juventus-chelsea/
