@@ -1,3 +1,11 @@
+**For Some Democrats, Talk of ‘Sanctuary Cities’ Has Grown Quieter**\
+`Many leaders say their policies to limit local cooperation with federal immigration officials stand. But signs of division have emerged.`\
+https://nytimes.com/2025/01/23/us/for-some-democrats-talk-of-sanctuary-cities-has-grown-quieter.html
+
+**U.S. Army Asks to Eliminate Office for Reducing Civilian Harm in War**\
+`A Jan. 20 memo asks the defense secretary to ask Congress to close the Pentagon’s Civilian Protection Center of Excellence.`\
+https://nytimes.com/2025/01/23/us/pentagon-civilian-deaths.html
+
 **It Will Finally Rain in Southern California. Cue the Risk of Mudslides.**\
 `Cooler, wet weather is forecast to bring moisture to the parched landscape and reduce the fire threat. But heavy rainfall could also trigger flash floods in burn scars.`\
 https://nytimes.com/2025/01/23/us/southern-california-rain-forecast-mudslides.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/world/europe/france-crypto-kidnapping.html
 **Yankees pluck pitchers from the Braves, Orioles, including former prospect**\
 `Roansy Contreras returns to the Yankees, who traded him to the Pirates in 2021 in the deal that brought Jameson Taillon to New York.`\
 https://nytimes.com/athletic/6084592/2025/01/23/yankees-roansy-contreras-allan-winans-waivers/
-
-**A Judge Halted Trump’s Plan to End Birthright Citizenship**\
-`Also, the Sacklers increased their settlement offer, with a catch. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/01/23/briefing/judge-trump-birthright-citizenship-oscar-nominations.html
-
-**Eli Manning on Giants' QB situation, Hall of Fame and more**\
-`If anyone knows about the pressure and the honor of playing quarterback for the Giants, it's Eli Manning.`\
-https://nytimes.com/athletic/6084315/2025/01/23/eli-manning-giants-qb-coaching-staff-hall-of-fame/
 
