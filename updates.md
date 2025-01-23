@@ -1,3 +1,7 @@
+**The Briefing: Hoffenheim 2 Tottenham 3 - exactly what Son needed, Bergvall shines again**\
+`Tottenham Hotspur won their first game in the Europa League since October to boost their chances of qualifying directly for the round of 16`\
+https://nytimes.com/athletic/6080711/2025/01/23/hoffenheim-2-tottenham-3/
+
 **How Dubai Chocolate Took Over the World**\
 `Inspired by a beloved childhood dessert, the gooey, crunchy “Can’t Get Knafeh of It” chocolate bar is a global sensation.`\
 https://nytimes.com/2025/01/23/dining/dubai-chocolate-cant-get-knafeh-it.html
