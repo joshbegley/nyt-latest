@@ -1,3 +1,7 @@
+**ChatGPT Outage Reported by Thousands of Users**\
+`The site was unavailable to many people early Thursday. OpenAI, the company behind the chatbot, said it had applied a fix.`\
+https://nytimes.com/2025/01/23/business/chatgpt-down-open-ai.html
+
 **NFL reissues fine to Mixon after incorrectly attributing comments to him, agent says**\
 `Mixon's agent said the NFL improperly fined Mixon for remarks to the media about the officiating in the Texans' loss to the Chiefs.`\
 https://nytimes.com/athletic/6082687/2025/01/23/joe-mixon-fine-nfl-officiating-comments/

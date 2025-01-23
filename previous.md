@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6083154/2025/01/23/andrew-omobamidele-strasbourg-tr
 https://nytimes.com/athletic/6079691/2025/01/23/lebron-james-al-horford-celtics-lakers-older-players/
 
 **ChatGPT Outage Reported by Thousands of Users**\
-`The site was unavailable to many people early Thursday.`\
+`The site was unavailable to many people early Thursday. OpenAI, the company behind the chatbot, said it had applied a fix.`\
 https://nytimes.com/2025/01/23/business/chatgpt-down-open-ai.html
 
 **CNN Plots Major Overhaul as It Enters a New Trump Era**\
