@@ -1,10 +1,14 @@
-**Black and White Weren’t Always as Black-and-White as They Seemed**\
-`The past was more racially fluid than we assume — and maybe even more than the current day.`\
-https://nytimes.com/2025/01/23/opinion/black-and-white-werent-always-as-black-and-white-as-they-seemed.html
+**What Prince Harry’s Settlement Means for Him and Britain’s Royal Family**\
+`Harry won an apology and damages from Rupert Murdoch’s U.K. tabloids. Could the lawsuit’s end also help heal the rift with his brother, William, and his father, King Charles III?`\
+https://nytimes.com/2025/01/23/world/europe/prince-harry-murdoch-trial-royals.html
 
 **The Dalai Lama Shares Thoughts on China and the Future in a New Book**\
 `The spiritual leader of Tibet has published amply but seldom written in depth about politics. Now, as he approaches 90, he shares a detailed and personal account of his decades dealing with China.`\
 https://nytimes.com/2025/01/23/books/dalai-lama-book-voice-for-the-voiceless.html
+
+**Black and White Weren’t Always as Black-and-White as They Seemed**\
+`The past was more racially fluid than we assume — and maybe even more than the current day.`\
+https://nytimes.com/2025/01/23/opinion/racecraft-study-history-race.html
 
 **Earth’s Mini-Moon Was Probably a Piece of Its Real Moon**\
 `Scientists think a small rock discovered near Earth last August was hurled into space by an ancient impact on the lunar surface.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/movies/flight-risk-review.html
 **John Ratcliffe Confirmed as C.I.A. Director**\
 `He has offered a vision for a more aggressive spy agency, and his focus on the threat from China is widely shared by Republican and Democratic lawmakers.`\
 https://nytimes.com/2025/01/23/us/politics/john-ratcliffe-cia-director-trump.html
-
-**The Dissonance of Climate Promises at Davos**\
-`C.E.O.s, policymakers and billionaires at the World Economic Forum’s conference have long pledged to fight climate change. Has it done any good?`\
-https://nytimes.com/2025/01/23/climate/davos-climate-change-promises.html
 
