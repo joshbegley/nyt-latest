@@ -1,3 +1,7 @@
+**How Migrants in a Brownsville, Texas, Shelter Feel About Trump **\
+`Text by Edgar Sandoval and Gabriel V. Cárdenas`\
+https://nytimes.com/card/2025/01/23/us/trump-migrants-border
+
 **What Lions GM Brad Holmes said about a 'humbling' loss and a crucial offseason**\
 `Plus, Holmes weighs in on the standouts of the rookie class.`\
 https://nytimes.com/athletic/6083749/2025/01/23/detroit-lions-gm-brad-holmes-season-recap/
@@ -14,8 +18,8 @@ https://nytimes.com/video/us/politics/100000009945063/trump-davos-address-tariff
 `By Christine Hauser`\
 https://nytimes.com/live/2025/01/23/us/trump-news/after-his-jan-6-case-was-dropped-a-florida-man-is-arrested-on-a-gun-charge
 
-**Ichiro to Hall of Fame voter who didn't vote for him: Let's have a drink and chat**\
-`At the Hall of Fame press conference, Ichiro joined the ranks of many people around the globe in wondering why he didn’t get that one vote. `\
+**Ichiro Suzuki wants to meet with Hall of Fame voter who didn't vote for him**\
+`At a Hall of Fame news conference, Ichiro joined the ranks of many people around the globe in wondering why he didn’t get that one vote. `\
 https://nytimes.com/athletic/6083972/2025/01/23/ichiro-invitiation-hall-of-fame-voter/
 
 **Man United admit financial losses put club at risk of PSR breach**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/sports/football/bills-fans-diabetes-charity-mark-
 **Thai Couples Marry After Same-Sex Marriage Is Legalized**\
 `Hundreds of people were married during a mass wedding in Bangkok as Thailand became the first country in Southeast Asia to legalize same-sex marriage.`\
 https://nytimes.com/video/world/asia/100000009944735/thailand-same-sex-marriage-legalized-wedding.html
-
-**Of course, the Bears wanted Ben Johnson. Surprisingly, he wanted them even more**\
-`Johnson wasn't scared off by coaching in the ultra-competitive NFC North and said his family is excited about living in the Chicago area.`\
-https://nytimes.com/athletic/6083968/2025/01/23/bears-ben-johnson-ryan-poles-hiring-process/
 
