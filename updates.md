@@ -1,3 +1,11 @@
+**John Ratcliffe Confirmed as C.I.A. Director**\
+`He has offered a vision for a more aggressive spy agency, and his focus on the threat from China is widely shared by Republican and Democratic lawmakers.`\
+https://nytimes.com/2025/01/23/us/politics/john-ratcliffe-cia-director-trump.html
+
+**The Dissonance of Climate Promises at Davos**\
+`C.E.O.s, policymakers and billionaires at the World Economic Forum’s conference have long pledged to fight climate change. Has it done any good?`\
+https://nytimes.com/2025/01/23/climate/davos-climate-change-promises.html
+
 **How Migrants in a Brownsville, Texas, Shelter Feel About Trump **\
 `Text by Edgar Sandoval and Gabriel V. Cárdenas`\
 https://nytimes.com/card/2025/01/23/us/trump-migrants-border
