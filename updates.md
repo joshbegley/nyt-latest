@@ -1,3 +1,11 @@
+**What Prince Harry’s Settlement Means for Him and Britain’s Royal Family**\
+`Harry won an apology and damages from Rupert Murdoch’s U.K. tabloids. Could the lawsuit’s end also help heal the rift with his brother, William, and his father, King Charles III?`\
+https://nytimes.com/2025/01/23/world/europe/prince-harry-murdoch-trial-royals.html
+
+**Black and White Weren’t Always as Black-and-White as They Seemed**\
+`The past was more racially fluid than we assume — and maybe even more than the current day.`\
+https://nytimes.com/2025/01/23/opinion/racecraft-study-history-race.html
+
 **Black and White Weren’t Always as Black-and-White as They Seemed**\
 `The past was more racially fluid than we assume — and maybe even more than the current day.`\
 https://nytimes.com/2025/01/23/opinion/black-and-white-werent-always-as-black-and-white-as-they-seemed.html
