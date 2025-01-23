@@ -1,3 +1,7 @@
+**Kolo Muani joins Juventus on loan**\
+`Juventus have confirmed the signing of Paris Saint-Germain forward Randal Kolo Muani on loan for the rest of the season.`\
+https://nytimes.com/athletic/6042134/2025/01/23/randal-kolo-muani-juventus-transfer/
+
 **Ferguson set for Brighton talks over January loan decision**\
 `Brighton &amp; Hove Albion striker Evan Ferguson is set for talks with the club to decide whether he will be loaned out before the end of the January transfer window.`\
 https://nytimes.com/athletic/6083420/2025/01/23/evan-ferguson-brighton-loan-talks/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6083420/2025/01/23/evan-ferguson-brighton-loan-talk
 **Mikaela Shiffrin to return to World Cup skiing two months after injury**\
 `Mikaela Shiffrin will return to World Cup racing next week in Courchevel, France, she announced Thursday. `\
 https://nytimes.com/athletic/6080343/2025/01/23/mikaela-shiffrin-return-injury-world-cup-olympics/
+
+**Lethal on the break, runs behind and a passing option: What Omar Marmoush brings to Manchester City**\
+`The 25-year-old striker's profile analysed - and a look at how he is likely to fit City manager Pep Guardiola's system`\
+https://nytimes.com/athletic/6063364/2025/01/23/omar-marmoush-profile-manchester-city-tactics/
 
 **Rebels Backed by Rwanda Close In on Major City in Congo**\
 `The last two towns before Goma, a provincial capital in Congo’s east, have just fallen to M23 rebels. They last captured the city in 2012.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/weather/storm-eowyn-uk-ireland.html
 **Call to Post: Warriors' ongoing search for a stretch five turns to a rookie**\
 `Quinten Post, a second-round pick brought up from the G League, could earn more time after playing well against Sacramento on Wednesday.`\
 https://nytimes.com/athletic/6082663/2025/01/23/warriors-quinten-post-steph-curry-kings/
-
-**NFL reissues fine to Mixon after incorrectly attributing comments to him, agent says**\
-`Mixon's agent said the NFL improperly fined Mixon for remarks to the media about the officiating in the Texans' loss to the Chiefs.`\
-https://nytimes.com/athletic/6082687/2025/01/23/joe-mixon-fine-nfl-officiating-comments/
-
-**Passengers Fled a Train Over Fears of a Fire. Then Another Train Hit Them.**\
-`Twelve people were killed in India after they disembarked a train bound for Mumbai, only to be struck by another train, the authorities said.`\
-https://nytimes.com/2025/01/23/world/asia/india-train-accident-maharashtra.html
 

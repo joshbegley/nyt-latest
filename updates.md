@@ -1,3 +1,11 @@
+**Kolo Muani joins Juventus on loan**\
+`Juventus have confirmed the signing of Paris Saint-Germain forward Randal Kolo Muani on loan for the rest of the season.`\
+https://nytimes.com/athletic/6042134/2025/01/23/randal-kolo-muani-juventus-transfer/
+
+**Lethal on the break, runs behind and a passing option: What Omar Marmoush brings to Manchester City**\
+`The 25-year-old striker's profile analysed - and a look at how he is likely to fit City manager Pep Guardiola's system`\
+https://nytimes.com/athletic/6063364/2025/01/23/omar-marmoush-profile-manchester-city-tactics/
+
 **Ferguson set for Brighton talks over January loan decision**\
 `Brighton &amp; Hove Albion striker Evan Ferguson is set for talks with the club to decide whether he will be loaned out before the end of the January transfer window.`\
 https://nytimes.com/athletic/6083420/2025/01/23/evan-ferguson-brighton-loan-talks/
