@@ -1,3 +1,7 @@
+**White House to Old Staff: Go Home. Don’t Call Us. We’ll Call You.**\
+`President Trump is taking dramatic steps in seeking to place his stamp on the federal bureaucracy.`\
+https://nytimes.com/2025/01/22/us/politics/trump-biden-white-house-nsc.html
+
 **Sean Combs Files Defamation Suit Against Man Who Said He Had Sex Tapes**\
 `The lawsuit names Courtney Burgess, a one-time music industry bit player, his lawyer and the owner of the cable network NewsNation, which aired an interview with Mr. Burgess.`\
 https://nytimes.com/2025/01/22/arts/music/sean-combs-diddy-sex-tapes-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/20/opinion/thepoint/trump-dei-executive-order
 **Lakers' Jarred Vanderbilt cleared to return Saturday after a year of recovery**\
 `Vanderbilt suffered a midfoot sprain on Feb. 1 that cost him the rest of the season and the first 41 games (and counting) of this season.`\
 https://nytimes.com/athletic/6082276/2025/01/22/jarred-vanderbilt-lakers-medically-cleared-return/
-
-**Justice Department Orders a Halt to Civil Rights Work**\
-`It also signaled it could seek to back out of Biden-era agreements with police departments that engaged in discrimination or violence.`\
-https://nytimes.com/2025/01/22/us/politics/justice-department-civil-rights-work.html
 
