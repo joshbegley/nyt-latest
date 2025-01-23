@@ -1,3 +1,11 @@
+**Late Night Enjoys Trump’s Uncomfortable Moment in Church**\
+`“New executive order: We are banning church,” said Ronny Chieng, channeling the president’s apparent annoyance when a bishop asked him to be merciful.`\
+https://nytimes.com/2025/01/23/arts/television/late-night-trump-bishop-church.html
+
+**Inside the injury crisis that threatens to wreck Tottenham's season**\
+`Spurs had high hopes for this season, but an ever-worsening injury crisis has stifled them - could it have been avoided?`\
+https://nytimes.com/athletic/6077551/2025/01/23/tottenham-injury-crisis/
+
 **Robbie Williams to perform song for inaugural Club World Cup**\
 `British singer and songwriter Robbie Williams’ new ambassadorial role at FIFA will see him perform a song for this year’s FIFA Club World Cup in the United States.`\
 https://nytimes.com/athletic/6082791/2025/01/23/robbie-williams-club-world-cup/

@@ -1,3 +1,11 @@
+**Late Night Enjoys Trump’s Uncomfortable Moment in Church**\
+`“New executive order: We are banning church,” said Ronny Chieng, channeling the president’s apparent annoyance when a bishop asked him to be merciful.`\
+https://nytimes.com/2025/01/23/arts/television/late-night-trump-bishop-church.html
+
+**Inside the injury crisis that threatens to wreck Tottenham's season**\
+`Spurs had high hopes for this season, but an ever-worsening injury crisis has stifled them - could it have been avoided?`\
+https://nytimes.com/athletic/6077551/2025/01/23/tottenham-injury-crisis/
+
 **Robbie Williams to perform song for inaugural Club World Cup**\
 `British singer and songwriter Robbie Williams’ new ambassadorial role at FIFA will see him perform a song for this year’s FIFA Club World Cup in the United States.`\
 https://nytimes.com/athletic/6082791/2025/01/23/robbie-williams-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6081753/2025/01/23/spurs-pacers-how-to-watch-odds-p
 **China Will Be Thrilled if Trump Kills America’s Green Economy**\
 `President Trump seems poised to roll back the very incentives that are reviving American manufacturing.`\
 https://nytimes.com/2025/01/23/opinion/trump-china-ev-batteries.html
-
-**FPL: Foden, Savio and that man Haaland - are Manchester City players worth it again?**\
-`Holly Shand analyses the best assets to target from Manchester City despite their tricky fixture list`\
-https://nytimes.com/athletic/6080035/2025/01/23/fantasy-premier-league-manchester-city-foden-haaland/
-
-**Harrison Armstrong is Everton's future - can he be the present, too?**\
-`The teenage midfielder is pushing for first team action but played his part as Everton progressed in the Youth Cup — he is highly thought of`\
-https://nytimes.com/athletic/6080188/2025/01/23/harrison-armstrong-everton-david-moyes/
 
