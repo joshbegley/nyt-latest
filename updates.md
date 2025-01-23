@@ -1,3 +1,7 @@
+**White House to Old Staff: Go Home. Don’t Call Us. We’ll Call You.**\
+`President Trump is taking dramatic steps in seeking to place his stamp on the federal bureaucracy.`\
+https://nytimes.com/2025/01/22/us/politics/trump-biden-white-house-nsc.html
+
 **Sean Combs Files Defamation Suit Against Man Who Said He Had Sex Tapes**\
 `The lawsuit names Courtney Burgess, a one-time music industry bit player, his lawyer and the owner of the cable network NewsNation, which aired an interview with Mr. Burgess.`\
 https://nytimes.com/2025/01/22/arts/music/sean-combs-diddy-sex-tapes-lawsuit.html
