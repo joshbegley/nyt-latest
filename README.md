@@ -1,3 +1,27 @@
+**‘Anora’ Is More Than a Brooklyn Cinderella Story**\
+`A sex worker in a romantic comedy isn’t new. How the Oscar-nominated film uses immigrant Brooklyn to subvert the genre? That’s different.`\
+https://nytimes.com/2025/01/23/nyregion/anora-brooklyn-romantic-comedy.html
+
+**Why Scott Turow Brought Back His Most Famous Hero: He ‘Changed My Life’**\
+`The novelist is 75. Rusty Sabich, the now-retired prosecutor he introduced in “Presumed Innocent,” is 77 — and taking on a new case in “Presumed Guilty.”`\
+https://nytimes.com/2025/01/23/books/review/scott-turow-presumed-guilty.html
+
+**What to Know About ASAP Rocky’s Assault Trial**\
+`The rapper rejected a plea deal and will stand trial on two counts of felony assault stemming from a 2021 shooting in Hollywood.`\
+https://nytimes.com/2025/01/23/arts/music/asap-rocky-trial-assault.html
+
+**Draymond Green apologizes again for punching Jordan Poole: 'Let's move on'**\
+`Conversations about the punch came up again when Poole scored 38 points against the Warriors at Chase Center.`\
+https://nytimes.com/athletic/6083695/2025/01/23/draymond-green-jordan-poole-punch-apology/
+
+**UNC releases Bill Belichick's signed contract, including bonus info, more**\
+`Belichick would make $750,000 if UNC reaches the College Football Playoff and $1.75 million for winning a national title.`\
+https://nytimes.com/athletic/6083741/2025/01/23/bill-belichick-contract-details-bonuses-salary-unc/
+
+**Arsenal's transfer dilemma - buy now or wait for summer?**\
+`Arsenal do need something more - but what appears a straightforward requirement is actually a big moment strategically`\
+https://nytimes.com/athletic/6083699/2025/01/23/arsenal-transfer-dilemma-options/
+
 **5 Paths Through the Winter Show, an Exhibition of Earthly Delights**\
 `The fair, with 77 exhibitors, is a mini-museum, featuring arts, antiquities and design objects, from old masters to art jewelry.`\
 https://nytimes.com/2025/01/23/arts/design/winter-show-park-avenue-armory.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6077431/2025/01/23/tom-cannon-sheffield-united-tran
 **Champions League projections: Are we heading for El Clasico in the last 16?**\
 `With the initial stage of the Champions League almost over, we use our projections to work out how who is likely to progress `\
 https://nytimes.com/athletic/6082982/2025/01/23/champions-league-projections-matchday-eight/
-
-**Tips to Stay Safe if a Hotel Fire Erupts**\
-`On a vacation, the potential for fires is often far from mind. But in rare instances, terrifying tragedy can come fast.`\
-https://nytimes.com/2025/01/23/travel/hotel-fire-safety-tips.html
-
-**‘A Bounty on My Head’: Congress’s First Transgender Member Faces the Trump Era**\
-`Representative Sarah McBride did not run for Congress emphasizing L.G.B.T.Q. issues. But since her arrival in Washington, her identity has come under attack from newly empowered Republicans.`\
-https://nytimes.com/2025/01/23/us/politics/sarah-mcbride-transgender-trump-congress.html
-
-**Leeds defender Struijk avoids tendon damage, to return to training next week**\
-`Fears Leeds United would lose Pascal Struijk until April with a hamstring injury have been allayed.`\
-https://nytimes.com/athletic/6083754/2025/01/23/pascal-struijk-leeds-injury-update/
-
-**Sacklers Up Their Offer to Settle Purdue Opioids Cases, With a New Condition**\
-`A group of 15 states have reached a tentative new deal that would require them to set aside hundreds of millions of dollars from the settlement in a legal-defense fund for the family.`\
-https://nytimes.com/2025/01/23/health/sacklers-purdue-settlement-opioids.html
-
-**Trump Takes a Red Pen to History**\
-`The president’s Jan. 6 pardons mark a terrifying new chapter in blurring the past.`\
-https://nytimes.com/2025/01/23/opinion/trump-january-6.html
-
-**Novak Djokovic spent years among the final bosses of men's tennis. He's back there now**\
-`The world No. 7 spent most his career with two otherworldly rivals. He is in that situation once again, with one beaten so far in Melbourne.`\
-https://nytimes.com/athletic/6082770/2025/01/23/novak-djokovic-australian-open-semifinal-zverev-sinner-alcaraz/
 
