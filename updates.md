@@ -1,3 +1,7 @@
+**Norwegian clubs vote to scrap VAR**\
+`Clubs in Norway&#8217;s top two divisions have voted to discontinue the use of video assistant referees (VAR) in their domestic leagues.`\
+https://nytimes.com/athletic/6082887/2025/01/23/norway-var-clubs-vote/
+
 **Walker set to join Milan on loan from Man City**\
 `Manchester City defender Kyle Walker is flying to Milan today (Thursday) to complete his loan move to the Serie A club.`\
 https://nytimes.com/athletic/6054654/2025/01/23/kyle-walker-milan-transfer-manchester-city/
