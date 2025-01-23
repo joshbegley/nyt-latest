@@ -1,3 +1,7 @@
+**Raiders GM John Spytek's to-do list: Hire a head coach, find a quarterback and more**\
+`Spytek will be in charge of the Raiders’ day-to-day operations and roster moves. Here are the top five items on his agenda.`\
+https://nytimes.com/athletic/6082188/2025/01/23/john-spytek-raiders-gm-hire-coach-qb/
+
 **Omar Marmoush to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Omar Marmoush's move to Manchester City`\
 https://nytimes.com/athletic/6050329/2025/01/23/omar-marmoush-to-manchester-city-the-athletic-500-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/world/europe/uk-southport-stabbing-sentence-axel-
 **Man City accused of advising Valladolid defender to 'breach his contract'**\
 `Real Valladolid have accused Manchester City of &#8220;appearing to advise&#8221; their centre-back Juma Bah to &#8220;breach his contract&#8221; in order to sign for the Premier League side.`\
 https://nytimes.com/athletic/6080099/2025/01/23/juma-bah-manchester-city-valladolid/
-
-**Ipswich sign Brighton's Enciso on loan**\
-`Ipswich Town have completed the signing of forward Julio Enciso on loan for the rest of the season.`\
-https://nytimes.com/athletic/6080232/2025/01/23/brighton-ipswich-enciso-transfer/
 
