@@ -1,3 +1,11 @@
+**Cubs emerging as serious suitor for Astros reliever Ryan Pressly: Sources**\
+`Pressly, who served as Houston's primary closer from 2020-23, will make $14 million in 2025 and has a full no-trade clause.`\
+https://nytimes.com/athletic/6084862/2025/01/23/cubs-astros-ryan-pressly-trade-talks/
+
+**Prosecution Seeks Pause in Sept. 11 Case Until Trump Administration Is in Place**\
+`The new administration does not yet have a confirmed defense secretary, attorney general or solicitor general in place.`\
+https://nytimes.com/2025/01/23/us/politics/911-khalid-shaikh-mohammed-plea-trump.html
+
 **Ichiro finds special joy in his place of peace, the Hall of Fame, which he's forever changed**\
 `No one has ever walked through these doors with the sport-changing, Hall-changing, planet-changing possibilities of Ichiro.`\
 https://nytimes.com/athletic/6084724/2025/01/23/ichiro-baseball-hall-of-fame-japan/

@@ -1,3 +1,11 @@
+**Cubs emerging as serious suitor for Astros reliever Ryan Pressly: Sources**\
+`Pressly, who served as Houston's primary closer from 2020-23, will make $14 million in 2025 and has a full no-trade clause.`\
+https://nytimes.com/athletic/6084862/2025/01/23/cubs-astros-ryan-pressly-trade-talks/
+
+**Prosecution Seeks Pause in Sept. 11 Case Until Trump Administration Is in Place**\
+`The new administration does not yet have a confirmed defense secretary, attorney general or solicitor general in place.`\
+https://nytimes.com/2025/01/23/us/politics/911-khalid-shaikh-mohammed-plea-trump.html
+
 **Ichiro finds special joy in his place of peace, the Hall of Fame, which he's forever changed**\
 `No one has ever walked through these doors with the sport-changing, Hall-changing, planet-changing possibilities of Ichiro.`\
 https://nytimes.com/athletic/6084724/2025/01/23/ichiro-baseball-hall-of-fame-japan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6084614/2025/01/23/astros-alex-bregman-free-agent-d
 **Los Angeles Schools Reopen to Relief, Though Some Parents Worry About Toxins**\
 `Many educators and families were thrilled to get back to some routines as a handful of schools reopened after weeks of closures. Others were worried about remaining dangers in fire-hit areas.`\
 https://nytimes.com/2025/01/23/us/los-angeles-fire-school-closures-toxins.html
-
-**Dressing for the Oscars: the Costume Design Nominees**\
-`They include the designers behind “Wicked,” “A Complete Unknown” and “Conclave.”`\
-https://nytimes.com/2025/01/23/style/best-costume-oscar-nominations.html
-
-**For Some Democrats, Talk of ‘Sanctuary Cities’ Has Grown Quieter**\
-`Many leaders say their policies to limit local cooperation with federal immigration officials stand. But signs of division have emerged.`\
-https://nytimes.com/2025/01/23/us/for-some-democrats-talk-of-sanctuary-cities-has-grown-quieter.html
 
