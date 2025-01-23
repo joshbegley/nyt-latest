@@ -1,3 +1,7 @@
+**Farke is loved at Norwich but is still searching for that same affection at Leeds**\
+`The visit of Norwich to Elland Road demonstrated how much their fans still love their former manager but Leeds supporters are still divided`\
+https://nytimes.com/athletic/6082469/2025/01/23/daniel-farke-leeds-norwich/
+
 **PSG's display against Man City was full of verve and potential. It felt like the start of something**\
 `Luis Enrique's team produced a performance that demonstrated what this new project could deliver`\
 https://nytimes.com/athletic/6082746/2025/01/23/psg-manchester-city-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080188/2025/01/23/harrison-armstrong-everton-david
 **Forest's signature throw-in explained - and how it finally resulted in a goal for Elliot Anderson**\
 `Forest have been persevering with an interesting throw-in routine this season - and it resulted in a goal against Southampton on Sunday`\
 https://nytimes.com/athletic/6077310/2025/01/23/nottingham-forest-signature-throw-in/
-
-**West Ham plan to honour their obligation to buy Todibo - and he wants to repay them**\
-`Jean-Clair Todibo feels settled in east London and wants to reciprocate the club’s faith shown in him following a cluster of calf injuries`\
-https://nytimes.com/athletic/6080098/2025/01/23/west-ham-jean-clair-todibo-transfer-latest/
 
