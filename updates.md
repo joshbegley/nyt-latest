@@ -1,3 +1,11 @@
+**City complete Marmoush signing from Frankfurt**\
+`Manchester City have completed the signing of Omar Marmoush from German side Eintracht Frankfurt.`\
+https://nytimes.com/athletic/6069243/2025/01/23/omar-marmoush-man-city-transfer/
+
+**Vinicius brings up Real Madrid century - but will (another) booking prove costly?**\
+`A yellow card rules him out of Brest game but Brazil star scored twice as Real Madrid powered past Salzburg to stay in hunt for top eight`\
+https://nytimes.com/athletic/6082397/2025/01/23/real-madrid-vinicius-100-goals-booking-champions-league/
+
 **New Brush Fire Breaks Out in L.A., Threatening Area Near U.C.L.A.**\
 `The 20-acre fire was burning on the Sepulveda Pass near Interstate 5, the Getty Museum and the campus of the University of California, Los Angeles.`\
 https://nytimes.com/2025/01/23/us/sepulveda-wildfire-california-los-angeles.html
