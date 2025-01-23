@@ -1,3 +1,11 @@
+**Leeds defender Struijk avoids tendon damage, to return to training next week**\
+`Fears Leeds United would lose Pascal Struijk until April with a hamstring injury have been allayed.`\
+https://nytimes.com/athletic/6083754/2025/01/23/pascal-struijk-leeds-injury-update/
+
+**Sacklers Up Their Offer to Settle Purdue Opioids Cases, With a New Condition**\
+`A group of 15 states have reached a tentative new deal that would require them to set aside hundreds of millions of dollars from the settlement in a legal-defense fund for the family.`\
+https://nytimes.com/2025/01/23/health/sacklers-purdue-settlement-opioids.html
+
 **Trump Takes a Red Pen to History**\
 `The president’s Jan. 6 pardons mark a terrifying new chapter in blurring the past.`\
 https://nytimes.com/2025/01/23/opinion/trump-january-6.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/well/move/10-minute-home-pilates-workout.html
 **6 Things We Get Wrong About Sleep**\
 `And how to actually get better rest, according to experts.`\
 https://nytimes.com/2025/01/23/well/mind/sleep-myths.html
-
-**The Oscar Nominations Are a Sign Hollywood Still Wants to Counter Conservative Cultural Vibes**\
-`There are more than a few examples of progressive politics on display in what Hollywood is choosing to celebrate with its highest honor.`\
-https://nytimes.com/live/2025/01/20/opinion/thepoint/oscar-nominations-trump-progressive-reaction
-
-**F.B.I. Pick Pushed False and Misleading Claims About Trump Investigations**\
-`Kash Patel, Donald J. Trump’s choice to run the bureau, has made a series of spurious assertions about the Russia, Jan. 6 and classified documents inquiries.`\
-https://nytimes.com/2025/01/23/us/politics/kash-patel-trump-fbi-inquiries.html
 

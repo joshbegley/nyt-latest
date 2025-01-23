@@ -1,3 +1,11 @@
+**Trump Takes a Red Pen to History**\
+`The president’s Jan. 6 pardons mark a terrifying new chapter in blurring the past.`\
+https://nytimes.com/2025/01/23/opinion/trump-january-6.html
+
+**Novak Djokovic spent years among the final bosses of men's tennis. He's back there now**\
+`The world No. 7 spent most his career with two otherworldly rivals. He is in that situation once again, with one beaten so far in Melbourne.`\
+https://nytimes.com/athletic/6082770/2025/01/23/novak-djokovic-australian-open-semifinal-zverev-sinner-alcaraz/
+
 **Cowboys Today: How frustrated fans feel about Dallas' coaching candidates**\
 `"We need the right coach for everybody, on the football field and off the football field,” Cowboys great Michael Irvin said.`\
 https://nytimes.com/athletic/6083688/2025/01/23/cowboys-today-coach-search-frustration-schottenheimer/

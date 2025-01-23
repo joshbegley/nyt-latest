@@ -1,3 +1,11 @@
+**Trump Takes a Red Pen to History**\
+`The president’s Jan. 6 pardons mark a terrifying new chapter in blurring the past.`\
+https://nytimes.com/2025/01/23/opinion/trump-january-6.html
+
+**Novak Djokovic spent years among the final bosses of men's tennis. He's back there now**\
+`The world No. 7 spent most his career with two otherworldly rivals. He is in that situation once again, with one beaten so far in Melbourne.`\
+https://nytimes.com/athletic/6082770/2025/01/23/novak-djokovic-australian-open-semifinal-zverev-sinner-alcaraz/
+
 **Cowboys Today: How frustrated fans feel about Dallas' coaching candidates**\
 `"We need the right coach for everybody, on the football field and off the football field,” Cowboys great Michael Irvin said.`\
 https://nytimes.com/athletic/6083688/2025/01/23/cowboys-today-coach-search-frustration-schottenheimer/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/20/opinion/thepoint/oscar-nominations-trump-pro
 **F.B.I. Pick Pushed False and Misleading Claims About Trump Investigations**\
 `Kash Patel, Donald J. Trump’s choice to run the bureau, has made a series of spurious assertions about the Russia, Jan. 6 and classified documents inquiries.`\
 https://nytimes.com/2025/01/23/us/politics/kash-patel-trump-fbi-inquiries.html
-
-**The Bounce: The NBA's midseason Bouncies are here!**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6083304/2025/01/23/nba-ja-morant-victor-wembanyama-jimmy-butler-heat-trade-suspend-nba-the-bounce/
-
-**Why Nets' Cam Johnson is one of the most coveted players as NBA trade deadline nears**\
-`Johnson is having a career season for a Brooklyn team offloading its vets. So where could he end up?`\
-https://nytimes.com/athletic/6082511/2025/01/23/cam-johnson-coveted-player-nba-trade-deadline/
 
