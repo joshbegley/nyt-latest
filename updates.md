@@ -1,3 +1,23 @@
+**Mikaela Shiffrin to return to World Cup skiing two months after injury**\
+`Mikaela Shiffrin will return to World Cup racing next week in Courchevel, France, she announced Thursday. `\
+https://nytimes.com/athletic/6080343/2025/01/23/mikaela-shiffrin-return-injury-world-cup-olympics/
+
+**Rebels Backed by Rwanda Close In on Major City in Congo**\
+`The last two towns before Goma, a provincial capital in Congo’s east, have just fallen to M23 rebels. They last captured the city in 2012.`\
+https://nytimes.com/2025/01/23/world/africa/rwanda-rebels-congo.html
+
+**Trump’s Agriculture Pick to Face Questioning from Lawmakers**\
+`Brooke Rollins, the president’s nominee to lead the Agriculture Department, will appear before the Senate agriculture committee on Thursday.`\
+https://nytimes.com/2025/01/23/us/politics/brooke-rollins-agriculture-trump.html
+
+**Demi Moore Caps a Career Comeback With an Oscar Nomination**\
+`She starred in “The Substance,” a body horror-satire that isn’t normally academy fare. But it earned her some of the best reviews of her career.`\
+https://nytimes.com/2025/01/23/movies/demi-moore-the-substance-oscar-nomination.html
+
+**Karla Sofía Gascón Makes Oscar History as First Openly Trans Actress to Be Nominated**\
+`The “Emilia Pérez” star isn’t the first trans Oscar nominee. Anohni was up for best song, and Elliot Page was a contender before coming out publicly as trans.`\
+https://nytimes.com/2025/01/23/movies/karla-sofia-gascon-oscar-history-trans-actress.html
+
 **2025 Oscar Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ Get Multiple Nods**\
 `The two films secured nominations in most of the major categories, including best picture, a wide-open race. Acting nominees include Demi Moore, Cynthia Erivo, Adrien Brody and Timothée Chalamet.`\
 https://nytimes.com/2025/01/23/movies/oscar-nominations-academy-awards.html
