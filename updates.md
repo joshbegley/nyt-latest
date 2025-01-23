@@ -1,3 +1,15 @@
+**Leeds defender Struijk avoids tendon damage, to return to training next week**\
+`Fears Leeds United would lose Pascal Struijk until April with a hamstring injury have been allayed.`\
+https://nytimes.com/athletic/6083754/2025/01/23/pascal-struijk-leeds-injury-update/
+
+**Sacklers Up Their Offer to Settle Purdue Opioids Cases, With a New Condition**\
+`A group of 15 states have reached a tentative new deal that would require them to set aside hundreds of millions of dollars from the settlement in a legal-defense fund for the family.`\
+https://nytimes.com/2025/01/23/health/sacklers-purdue-settlement-opioids.html
+
+**Browns coach Kevin Stefanski again takes over play-calling duties**\
+`Stefanski called the plays for his first four seasons with the Browns before making ex-OC Ken Dorsey the play-caller late in the season.`\
+https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
+
 **Trump Takes a Red Pen to History**\
 `The president’s Jan. 6 pardons mark a terrifying new chapter in blurring the past.`\
 https://nytimes.com/2025/01/23/opinion/trump-january-6.html
