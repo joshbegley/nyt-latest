@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
 
 **Leafs' Matthews after Reaves-Olivier fight: Wanted 'more energy' from crowd**\
-`Reaves dropped the gloves with Mathieu Olivier less than two minutes into the first period of the Leafs' loss Wednesday.`\
+`Reaves dropped the gloves with Olivier less than two minutes into the first period of the Leafs' loss Wednesday.`\
 https://nytimes.com/athletic/6082577/2025/01/22/auston-matthews-ryan-reaves-fight-comments-maple-leafs/
 
 **Maple Leafs report cards: Lack of finish wastes solid effort against Columbus**\
