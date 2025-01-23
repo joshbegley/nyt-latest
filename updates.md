@@ -1,3 +1,15 @@
+**Read: Draft Options for G.O.P. Cost Cuts for Tax Bill**\
+`Top Republicans are passing around a 50-page list of ideas on how to cover the cost of a tax cut and immigration crackdown bill.`\
+https://nytimes.com/interactive/2025/01/23/us/politics/republican-tax-spending-cuts-options.html
+
+**Aryna Sabalenka into third Australian Open final after beating Paula Badosa**\
+`Sabalenka overwhelmed her good friend to set up a final against Iga Swiatek or Madison Keys in Melbourne.`\
+https://nytimes.com/athletic/6082949/2025/01/23/aryna-sabalenka-australian-open-semifinal-result-analysis-paula-badosa/
+
+**The buzzer-beating Blakes siblings: Jaylen and Mikayla hit game-winners on same weekend**\
+`Jaylen, a senior, lifted Stanford to an upset at UNC. Mikayla, a freshman, delivered the game-winner for Vanderbilt over Tennessee.`\
+https://nytimes.com/athletic/6081175/2025/01/23/college-basketball-siblings-blakes-winning-shot/
+
 **Rob Dillingham believes he's ready for the NBA spotlight, but do the Timberwolves agree?**\
 `There will be ups and downs for a player so young in such a demanding position. But the juice Dillingham is bringing is undeniable.`\
 https://nytimes.com/athletic/6072278/2025/01/23/rob-dillingham-nba-spotlight-timberwolves/
