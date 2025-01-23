@@ -1,3 +1,7 @@
+**150 Years of See and Be Seen at Paris’s Grandest Opera House**\
+`It’s been 150 years since the Palais Garnier opera house opened in Paris. Today, it is still a working theater — with 172 performances scheduled for this season.`\
+https://nytimes.com/2025/01/23/arts/music/palais-garnier-paris.html
+
 **‘Seriously, I Crave This Salad’**\
 `Ali Slagle’s flexible, assertively lemony quinoa salad has five stars and many fans (me included).`\
 https://nytimes.com/2025/01/23/dining/quinoa-salad-five-stars.html
