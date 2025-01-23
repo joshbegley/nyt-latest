@@ -1,3 +1,7 @@
+**Isaiah Stewart leads Pistons' stifling defensive effort against Hawks: 'He's a dog'**\
+`Stewart's two key blocks were emblematic of Detroit's effort on Wednesday as it moved past Atlanta into the sixth seed in the East.`\
+https://nytimes.com/athletic/6082703/2025/01/23/pistons-isaiah-stewart-ausar-thompson-defense-hawks/
+
 **Bitter Boardroom Feud for Korea Zinc Takes a Dramatic Turn**\
 `An eventful shareholder meeting provided the latest twist in the dispute between the families whose deceased patriarchs founded the company 50 years ago.`\
 https://nytimes.com/2025/01/23/business/korea-zinc-young-poong-shareholders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6082188/2025/01/23/john-spytek-raiders-gm-hire-coac
 **Omar Marmoush to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Omar Marmoush's move to Manchester City`\
 https://nytimes.com/athletic/6050329/2025/01/23/omar-marmoush-to-manchester-city-the-athletic-500-transfer-ratings/
-
-**Which 2025 NFL Draft prospects could rise during Shrine Bowl week?**\
-`With Shrine Bowl practices scheduled to start Saturday, let's take a look at 15 players to watch.`\
-https://nytimes.com/athletic/6075483/2025/01/23/nfl-draft-2025-shrine-bowl-shedeur-sanders/
 
