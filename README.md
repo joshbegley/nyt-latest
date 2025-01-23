@@ -1,3 +1,15 @@
+**Garcia set to remain at Barcelona despite January interest**\
+`Eric Garcia is set to stay at Barcelona despite attracting interest from elsewhere in the January transfer window.`\
+https://nytimes.com/athletic/6082872/2025/01/23/eric-garcia-barcelona-transfer/
+
+**Terry McLaurin, the Commanders' 'Transformer' who's deeply respected throughout Washington**\
+`The two-time Pro Bowler is a mentor and tutor off the field and a leader his Washington teammates don't hesitate to follow. `\
+https://nytimes.com/athletic/6081357/2025/01/23/washington-commanders-terry-mclaurin-nfc-championship/
+
+**With Support Dwindling and Trump in Power, Zelensky Could Face Tough Re-election**\
+`The high popularity that the Ukrainian president had in the early days of the Russian invasion, with an approval rating of about 90 percent, has dipped badly.`\
+https://nytimes.com/2025/01/23/world/europe/ukraine-zelensky-trump.html
+
 **Read: Draft Options for G.O.P. Cost Cuts for Tax Bill**\
 `Top Republicans are passing around a 50-page list of ideas on how to cover the cost of a tax cut and immigration crackdown bill.`\
 https://nytimes.com/interactive/2025/01/23/us/politics/republican-tax-spending-cuts-options.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6081931/2025/01/23/rams-offseason-to-do-list-matthe
 **What the Patriots can learn from the Commanders' quick turnaround under Jayden Daniels**\
 `The Patriots might be wise to follow these five steps from the Commanders' plan for last offseason. `\
 https://nytimes.com/athletic/6081145/2025/01/23/patriots-commanders-jayden-daniels-turnaround/
-
-**Hughes Fire Burns 10,000 Acres Near L.A.**\
-`The blaze temporarily closed parts of Interstate 5 and prompted evacuation orders and warnings for more than 50,000 people.`\
-https://nytimes.com/2025/01/23/us/hughes-wildfire-california-los-angeles.html
-
-**After Snow and Frigid Temperatures, the Southeast Now Faces Icy Roads**\
-`Officials throughout much of the South have echoed the same message: The effects from the rare winter storm are not over, and driving remains a hazard.`\
-https://nytimes.com/2025/01/23/us/snow-cold-winter-storm-ice.html
-
-**Donald Trump Is Running Riot**\
-`Anyone wondering whether the president was going to pick up from 2017 or 2021 can stop wondering.`\
-https://nytimes.com/2025/01/23/opinion/trump-pardons-bolton-jan-6.html
 
