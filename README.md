@@ -1,3 +1,7 @@
+**'Super impressive' Jaden Springer emerges from nowhere to lead Celtics over Clippers**\
+`The little-used guard got the call when Boston couldn't stop the Clippers' guards. He delivered stout defense and more in an overtime win.`\
+https://nytimes.com/athletic/6082889/2025/01/23/celtics-jaden-springer-clippers-win/
+
 **Billie Jean King Cup Finals move to Shenzhen, China after ITF president speaks with Peng Shuai**\
 `The event will be held in Shenzhen from this year, with a date not yet agreed.`\
 https://nytimes.com/athletic/6082957/2025/01/23/billie-jean-king-cup-finals-tennis-shenzhen-china-peng-shuai/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6082724/2025/01/23/celtic-carter-vickers-trusty-usm
 **‘Rose’ Review: After Loss, a New Lease on Life**\
 `The French New Wave veteran Françoise Fabian plays a widow who discovers that it’s not too late to be delighted.`\
 https://nytimes.com/2025/01/23/movies/rose-review.html
-
-**Trump criticized California and repeated familiar attacks in the first one-on-one interview of his new term.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/01/23/us/trump-news/trump-criticized-california-and-repeated-familiar-attacks-in-the-first-one-on-one-interview-of-his-new-term
 
