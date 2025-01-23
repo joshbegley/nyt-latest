@@ -1,3 +1,15 @@
+**Read: Draft Options for G.O.P. Cost Cuts for Tax Bill**\
+`Top Republicans are passing around a 50-page list of ideas on how to cover the cost of a tax cut and immigration crackdown bill.`\
+https://nytimes.com/interactive/2025/01/23/us/politics/republican-tax-spending-cuts-options.html
+
+**Aryna Sabalenka into third Australian Open final after beating Paula Badosa**\
+`Sabalenka overwhelmed her good friend to set up a final against Iga Swiatek or Madison Keys in Melbourne.`\
+https://nytimes.com/athletic/6082949/2025/01/23/aryna-sabalenka-australian-open-semifinal-result-analysis-paula-badosa/
+
+**The buzzer-beating Blakes siblings: Jaylen and Mikayla hit game-winners on same weekend**\
+`Jaylen, a senior, lifted Stanford to an upset at UNC. Mikayla, a freshman, delivered the game-winner for Vanderbilt over Tennessee.`\
+https://nytimes.com/athletic/6081175/2025/01/23/college-basketball-siblings-blakes-winning-shot/
+
 **Rob Dillingham believes he's ready for the NBA spotlight, but do the Timberwolves agree?**\
 `There will be ups and downs for a player so young in such a demanding position. But the juice Dillingham is bringing is undeniable.`\
 https://nytimes.com/athletic/6072278/2025/01/23/rob-dillingham-nba-spotlight-timberwolves/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/us/snow-cold-winter-storm-ice.html
 **Donald Trump Is Running Riot**\
 `Anyone wondering whether the president was going to pick up from 2017 or 2021 can stop wondering.`\
 https://nytimes.com/2025/01/23/opinion/trump-pardons-bolton-jan-6.html
-
-**Two Houses, Alike in Dignity, in Fair Verona (Plus One in West Orange)**\
-`After their engagement, a couple searched Essex County, N.J., for a house that would suit their new life — and their four combined teenagers. Here’s what they found.`\
-https://nytimes.com/interactive/2025/01/23/realestate/essex-county-new-jersey-home-sale.html
-
-**Trump’s Retreat From Clean Energy Puts the U.S. Out of Step With the World**\
-`Most major economies are investing in ever-cheaper solar and wind power. The United States risks further ceding a global market to China.`\
-https://nytimes.com/2025/01/23/climate/trump-global-energy-transition.html
-
-**Inside the Plan to Receive Thousands of Mexicans Deported From the U.S.**\
-`The plan, called “Mexico Embraces You,” seeks to reassure undocumented migrants facing expulsion. Some experts question if the government is really ready to reabsorb them.`\
-https://nytimes.com/2025/01/23/world/americas/mexico-deportation-trump.html
 
