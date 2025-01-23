@@ -1,3 +1,15 @@
+**U.S. Security Contractors Going to Gaza to Oversee Truce, Officials Say**\
+`The contractors have been enlisted to do weapons checks on vehicles carrying displaced Palestinians back to their homes in the north under the terms of the new cease-fire.`\
+https://nytimes.com/2025/01/23/world/middleeast/gaza-us-contractors.html
+
+**City Council Takes Aim at Adams and Ally by Closing Lobbying Loophole**\
+`New York’s City Council passed a bill to limit top city officials from lobbying city agencies after leaving government. It was inspired by Frank Carone, an adviser to Mayor Eric Adams.`\
+https://nytimes.com/2025/01/23/nyregion/frank-carone-loophole-lobbying.html
+
+**Why the Maple Leafs' goalie swap makes sense, now and for the future**\
+`Matt Murray has returned in a backup role, allowing Dennis Hildeby more time and opportunities to develop.`\
+https://nytimes.com/athletic/6084095/2025/01/23/maple-leafs-goalies-murray-hildeby/
+
 **What Prince Harry’s Settlement Means for Him and Britain’s Royal Family**\
 `Harry won an apology and damages from Rupert Murdoch’s U.K. tabloids. Could the lawsuit’s end also help heal the rift with his brother, William, and his father, King Charles III?`\
 https://nytimes.com/2025/01/23/world/europe/prince-harry-murdoch-trial-royals.html
