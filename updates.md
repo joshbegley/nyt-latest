@@ -1,3 +1,7 @@
+**A Judge Halted Trump’s Plan to End Birthright Citizenship**\
+`Also, the Sacklers increased their settlement offer, with a catch. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/23/briefing/judge-trump-birthright-citizenship-oscar-nominations.html
+
 **Eli Manning on Giants' QB situation, Hall of Fame and more**\
 `If anyone knows about the pressure and the honor of playing quarterback for the Giants, it's Eli Manning.`\
 https://nytimes.com/athletic/6084315/2025/01/23/eli-manning-giants-qb-coaching-staff-hall-of-fame/
