@@ -1,3 +1,11 @@
+**With Sahin gone, what next for Borussia Dortmund?**\
+`Niko Kovac is a contender to take charge but whoever comes in is going to find a club far removed from its previous position of strength`\
+https://nytimes.com/athletic/6083109/2025/01/23/borussia-dortmund-niko-kovac/
+
+**Madison Keys will win or lose, her way**\
+`The American is into the final in Melbourne, with husband Bjorn Fratangelo as her coach. This is how the married couple work it out`\
+https://nytimes.com/athletic/6079967/2025/01/23/madison-keys-australian-open-coach-bjorn-fratangelo/
+
 **Kolo Muani joins Juventus on loan**\
 `Juventus have confirmed the signing of Paris Saint-Germain forward Randal Kolo Muani on loan for the rest of the season.`\
 https://nytimes.com/athletic/6042134/2025/01/23/randal-kolo-muani-juventus-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/movies/demi-moore-the-substance-oscar-nomination.
 **Karla Sofía Gascón Makes Oscar History as First Openly Trans Actress to Be Nominated**\
 `The “Emilia Pérez” star isn’t the first trans Oscar nominee. Anohni was up for best song, and Elliot Page was a contender before coming out publicly as trans.`\
 https://nytimes.com/2025/01/23/movies/karla-sofia-gascon-oscar-history-trans-actress.html
-
-**Fierce Storm Is Headed for Britain and Ireland**\
-`The storm, named Eowyn, is being fueled by the same weather pattern that has brought brutal cold and a rare winter storm to the Southern United States.`\
-https://nytimes.com/2025/01/23/weather/storm-eowyn-uk-ireland.html
-
-**Call to Post: Warriors' ongoing search for a stretch five turns to a rookie**\
-`Quinten Post, a second-round pick brought up from the G League, could earn more time after playing well against Sacramento on Wednesday.`\
-https://nytimes.com/athletic/6082663/2025/01/23/warriors-quinten-post-steph-curry-kings/
 
