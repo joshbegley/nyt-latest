@@ -1,3 +1,27 @@
+**ChatGPT Outage Reported by Thousands of Users**\
+`The site was unavailable to many people early Thursday.`\
+https://nytimes.com/2025/01/23/business/chatgpt-down-open-ai.html
+
+**CNN Plots Major Overhaul as It Enters a New Trump Era**\
+`Mark Thompson has promised to reinvent CNN since he arrived in 2023. Now, he is remaking the network’s TV lineup and its work force.`\
+https://nytimes.com/2025/01/23/business/media/cnn-layoffs-mark-thompson.html
+
+**An afterthought in Philadelphia, Scott Kingery hopes for long-awaited second chance in Anaheim**\
+`“Last year was a good indicator that there’s still a lot of juice left in the tank,” said Kingery's Triple-A manager. `\
+https://nytimes.com/athletic/6079217/2025/01/23/scott-kingery-second-chance-angels/
+
+**Ranking the 49ers' free agents: How will teams judge Dre Greenlaw's value?**\
+`Among the 49ers' offseason questions: What to do with running back Jordan Mason, who's scheduled to become a restricted free agent.`\
+https://nytimes.com/athletic/6081951/2025/01/23/49ers-2025-free-agent-rankings/
+
+**Chargers 2025 offseason handbook: Cap space, roster needs, free agency and more**\
+`After building around the margins last offseason, the Chargers are positioned to make a splash in Jim Harbaugh's second season.`\
+https://nytimes.com/athletic/6079417/2025/01/23/chargers-2025-offseason-handbook/
+
+**2025 Oscar Nominations: Updating List**\
+`The movies competing for the 97th Academy Awards. The ceremony will air on March 2.`\
+https://nytimes.com/2025/01/23/movies/oscar-nominees-full-list.html
+
 **Isaiah Stewart leads Pistons' stifling defensive effort against Hawks: 'He's a dog'**\
 `Stewart's two key blocks were emblematic of Detroit's effort on Wednesday as it moved past Atlanta into the sixth seed in the East.`\
 https://nytimes.com/athletic/6082703/2025/01/23/pistons-isaiah-stewart-ausar-thompson-defense-hawks/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6057514/2025/01/23/nba-trade-rumors-jimmy-butler-he
 **'Super impressive' Jaden Springer emerges from nowhere to lead Celtics over Clippers**\
 `The little-used guard got the call when Boston couldn't stop the Clippers' guards. He delivered stout defense and more in an overtime win.`\
 https://nytimes.com/athletic/6082889/2025/01/23/celtics-jaden-springer-clippers-win/
-
-**Billie Jean King Cup Finals move to Shenzhen, China after ITF president speaks with Peng Shuai**\
-`The event will be held in Shenzhen from this year, with a date not yet agreed.`\
-https://nytimes.com/athletic/6082957/2025/01/23/billie-jean-king-cup-finals-tennis-shenzhen-china-peng-shuai/
-
-**The Pulse: Another NFL coaching spot gone**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6081964/2025/01/23/nfl-coaching-carousel-aaron-glenn-the-pulse/
-
-**The Athletic FC: City slippers - Does Euro exit await? Plus: Bellingham's beautiful backheel**\
-`Today in TAFC: City on the brink of Champions league exit, full standings, Bellingham's backheel brilliance and the oldest football rivalry `\
-https://nytimes.com/athletic/6082986/2025/01/23/manchester-city-champions-league-exit-bellingham-backheel/
-
-**Listen: How would Andoni Iraola fare at a 'bigger' club?**\
-`High-flying Bournemouth and their manager Andoni Iraola are discussed on the latest episode of The Athletic FC Podcast`\
-https://nytimes.com/athletic/6082935/2025/01/23/athletic-fc-podcast-andoni-iraola/
-
-**Raiders GM John Spytek's to-do list: Hire a head coach, find a quarterback and more**\
-`Spytek will be in charge of the Raiders’ day-to-day operations and roster moves. Here are the top five items on his agenda.`\
-https://nytimes.com/athletic/6082188/2025/01/23/john-spytek-raiders-gm-hire-coach-qb/
-
-**Omar Marmoush to Manchester City: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we take a look at Omar Marmoush's move to Manchester City`\
-https://nytimes.com/athletic/6050329/2025/01/23/omar-marmoush-to-manchester-city-the-athletic-500-transfer-ratings/
 
