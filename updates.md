@@ -1,3 +1,11 @@
+**Charles Phan, Whose Slanted Door Elevated Vietnamese Food, Dies at 62**\
+`The restaurant, which opened in San Francisco in 1995, married local ingredients with the food he grew up on and buoyed other chefs from immigrant families.`\
+https://nytimes.com/2025/01/23/dining/charles-phan-dead.html
+
+**In TikTok Theater, All the World’s an Audience**\
+`“Famehungry,” a show that’s performed simultaneously for in-person and online crowds, comes to New York in the wake of the app’s brief ban in the United States.`\
+https://nytimes.com/2025/01/23/theater/tiktok-theater-famehungry-louise-orwin.html
+
 **Bill Belichick's UNC debut vs. TCU gets Labor Day prime-time slot on ESPN**\
 `The NFL lifer will begin his college coaching tenure in a familiar spot: Monday night football.`\
 https://nytimes.com/athletic/6084390/2025/01/23/belichick-unc-tcu-first-game-esp/
