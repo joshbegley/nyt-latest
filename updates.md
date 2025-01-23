@@ -1,3 +1,7 @@
+**Walker set to join Milan on loan from Man City**\
+`Manchester City defender Kyle Walker is flying to Milan today (Thursday) to complete his loan move to the Serie A club.`\
+https://nytimes.com/athletic/6054654/2025/01/23/kyle-walker-milan-transfer-manchester-city/
+
 **New Brush Fire Breaks Out in L.A., Threatening Bel-Air**\
 `The 20-acre fire was burning on the Sepulveda Pass near Interstate 405, the Getty Museum and the campus of the University of California, Los Angeles.`\
 https://nytimes.com/2025/01/23/us/sepulveda-wildfire-california-los-angeles.html
