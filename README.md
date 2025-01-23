@@ -1,3 +1,15 @@
+**Mikaela Shiffrin to return to World Cup skiing two months after injury**\
+`Mikaela Shiffrin will return to World Cup racing next week in Courchevel, France, she announced Thursday. `\
+https://nytimes.com/athletic/6080343/2025/01/23/mikaela-shiffrin-return-injury-world-cup-olympics/
+
+**Rebels Backed by Rwanda Close In on Major City in Congo**\
+`The last two towns before Goma, a provincial capital in Congo’s east, have just fallen to M23 rebels. They last captured the city in 2012.`\
+https://nytimes.com/2025/01/23/world/africa/rwanda-rebels-congo.html
+
+**Trump’s Agriculture Pick to Face Questioning from Lawmakers**\
+`Brooke Rollins, the president’s nominee to lead the Agriculture Department, will appear before the Senate agriculture committee on Thursday.`\
+https://nytimes.com/2025/01/23/us/politics/brooke-rollins-agriculture-trump.html
+
 **Demi Moore Caps a Career Comeback With an Oscar Nomination**\
 `She starred in “The Substance,” a body horror-satire that isn’t normally academy fare. But it earned her some of the best reviews of her career.`\
 https://nytimes.com/2025/01/23/movies/demi-moore-the-substance-oscar-nomination.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/world/asia/india-train-accident-maharashtra.html
 **The War on D.E.I. Heats Up**\
 `President Trump’s campaign to end diversity, equity and inclusion policies has begun in federal agencies, and is jolting corporate America as well.`\
 https://nytimes.com/2025/01/23/business/dealbook/trump-diversity-equity-inclusion.html
-
-**2025 Oscar Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ Get Multiple Nods**\
-`The two films secured nominations in most of the major categories, including best picture, a wide-open race. Acting nominees include Demi Moore, Cynthia Erivo, Adrien Brody and Timothée Chalamet.`\
-https://nytimes.com/2025/01/23/movies/oscar-nominations-academy-awards.html
-
-**Madison Keys upsets Iga Swiatek to reach Australian Open final against Aryna Sabalenka**\
-`The American will face world No. 1 Sabalenka in search of her first Grand Slam title.`\
-https://nytimes.com/athletic/6083180/2025/01/23/iga-swiatek-australian-open-semifinal-result-analysis-madison-keys/
-
-**Omobamidele set to move on loan to Strasbourg**\
-`Nottingham Forest defender Andrew Omobamidele is expected to complete a move to French club Strasbourg.`\
-https://nytimes.com/athletic/6083154/2025/01/23/andrew-omobamidele-strasbourg-transfer/
 
