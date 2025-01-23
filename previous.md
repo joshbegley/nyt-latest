@@ -1,3 +1,11 @@
+**What’s Next for D.E.I. With Trump Back in Office?**\
+`Former President Joseph R. Biden Jr. had emphasized diversity, equity and inclusion programs in the federal government.`\
+https://nytimes.com/2025/01/22/us/trump-dei.html
+
+**How Trump Was Persuaded to Pardon an Online Drug Kingpin**\
+`Libertarian and crypto allies of Ross Ulbricht, who was serving a life sentence for distributing drugs on his Silk Road website, leveraged President Trump’s desire for political support to secure his release.`\
+https://nytimes.com/2025/01/22/technology/ross-ulbricht-trump-pardon.html
+
 **Police in Kentucky Investigate Fliers Promoting Mass Deportation**\
 `Several cities in Northern Kentucky received reports of fliers calling on people to monitor and report all immigrants and encouraging membership in the Ku Klux Klan.`\
 https://nytimes.com/2025/01/22/us/police-kentucky-deportation-fliers-ku-klux-klan.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/weather/100000009943819/us-south-storm-snow.html
 **Russell Wilson on his future with Steelers: 'Hopefully finish my career there'**\
 `Despite the late-season struggles, Wilson, 36, remained optimistic about his ability to play into the future.`\
 https://nytimes.com/athletic/6082029/2025/01/22/russell-wilson-pittsburgh-steelers-pat-mcafee/
-
-**Border, Asylum, Citizenship: Trump Kicks Off Vast Immigration Changes**\
-`More is coming, but many directives will take time to be implemented or will face political, legal or practical obstacles.`\
-https://nytimes.com/2025/01/22/us/politics/trump-birthright-citizenship-border-asylum-immigration.html
-
-**Real Madrid out-earned Manchester City by nearly £180m last season as stadium income becomes key**\
-`Deloitte’s Money League reveals growing revenue gap between Premier League teams and the Spanish champions`\
-https://nytimes.com/athletic/6080474/2025/01/22/real-madrid-out-earned-manchester-city-by-nearly-180m-last-season-as-stadium-income-becomes-key/
 
