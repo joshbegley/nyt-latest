@@ -1,3 +1,19 @@
+**Prosecutors Attack Adams’s Claims That Biden Targeted Him as Payback**\
+`In a filing, they said the investigation into the mayor began more than a year before he criticized the former president’s response to the migrant crisis.`\
+https://nytimes.com/2025/01/22/nyregion/adams-prosecutors-biden-trump.html
+
+**An Invitation to a Witch Hunt to Root Out D.E.I.**\
+`A chilling message for federal employees: Rat out your colleagues, or else.`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/trump-dei-executive-order
+
+**Lakers' Jarred Vanderbilt cleared to return Saturday after a year of recovery**\
+`Vanderbilt suffered a midfoot sprain on Feb. 1 that cost him the rest of the season and the first 41 games (and counting) of this season.`\
+https://nytimes.com/athletic/6082276/2025/01/22/jarred-vanderbilt-lakers-medically-cleared-return/
+
+**Justice Department Orders a Halt to Civil Rights Work**\
+`It also signaled it could seek to back out of Biden-era agreements with police departments that engaged in discrimination or violence.`\
+https://nytimes.com/2025/01/22/us/politics/justice-department-civil-rights-work.html
+
 **Man Pleads Guilty to Murder in Fatal Stabbing of Brooklyn Activist**\
 `Ryan Carson, a well-known policy advocate, was killed on a Bedford-Stuyvesant sidewalk in October 2023 in what prosecutors called a random attack.`\
 https://nytimes.com/2025/01/22/nyregion/ryan-carson-stabbing-brooklyn-guilty-plea.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6080474/2025/01/22/real-madrid-out-earned-mancheste
 **Amid a Wintry Mess, New Orleans Also Savors a Spectacle**\
 `The storm brought both dazzling landscapes of ice and snow and challenges to a city unaccustomed to such severe winter weather.`\
 https://nytimes.com/2025/01/22/weather/snow-winter-new-orleans.html
-
-**Ex-N.Y.P.D. Sergeant Guilty of Punching Man 13 Times Gets No Jail Time**\
-`Christian Zapata hit a man repeatedly after being called to help calm an autistic teenager. Mr. Zapata got into a confrontation with the man after the sergeant refused to wear a mask.`\
-https://nytimes.com/2025/01/22/nyregion/nypd-officer-convicted.html
-
-**Trump Administration Cancels Flights for Refugees Already Approved for Travel**\
-`The decision leaves refugees who have completed a lengthy process stranded abroad and facing extended separation from loved ones already in the U.S.`\
-https://nytimes.com/2025/01/22/us/politics/trump-administration-refugee-flights-canceled.html
-
-**Five Ways Trump Made It Suddenly Harder to Face Climate Risks**\
-`From national security to home insurance, the president has quickly changed America’s climate adaptation policies in important ways.`\
-https://nytimes.com/2025/01/22/climate/trump-climate-policies.html
-
-**If You Work for the Federal Government, How Are You Feeling About D.E.I.?**\
-`We want to know how workers are processing President Trump’s decision to end hiring practices meant to further diversity, equity and inclusion in the federal work force.`\
-https://nytimes.com/2025/01/22/us/politics/federal-government-dei-callout.html
 
