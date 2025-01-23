@@ -1,3 +1,15 @@
+**Thursday Briefing**\
+`Trump’s D.E.I. crackdown.`\
+https://nytimes.com/2025/01/23/briefing/trump-prince-harry-europe.html
+
+**Spain Seeks to Curb Foreign Buyers Amid Growing Housing Crisis**\
+`The country is at the forefront of a wider crunch spreading across Europe, and its prime minister has proposed a 100 percent tax aimed at foreign real estate investors.`\
+https://nytimes.com/2025/01/23/business/spain-housing-crisis-short-term-rentals.html
+
+**Wembanyama Prepares to Become ‘Genuine’ Face of the N.B.A.**\
+`As the N.B.A. confronts a fast-approaching time without LeBron James, Stephen Curry and Kevin Durant, the 21-year-old Spurs star has embraced the idea that he is the league’s future.`\
+https://nytimes.com/2025/01/23/business/victor-wembanyama-nba-france.html
+
 **Map: 5.7-Magnitude Earthquake Strikes the Philippines**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/22/world/22wea-quake-tracker-philippines-nytduwzp.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/22/nyregion/mariano-rivera-child-sex-abuse.html
 **Andrew Puzder Is Trump’s Choice for Ambassador to the European Union**\
 `Mr. Puzder, a former fast food executive, was nominated in 2017 to be President Trump’s labor secretary, but he withdrew amid bipartisan scrutiny of his business record and character.`\
 https://nytimes.com/2025/01/22/us/politics/andrew-puzder-trump-ambassador-european-union.html
-
-**Trump Administration Temporarily Mutes Federal Health Officials**\
-`Scientific meetings were canceled, and research data on the bird flu outbreak was delayed, amid confusion over the directive.`\
-https://nytimes.com/2025/01/22/health/trump-health-communications.html
-
-**Two Hawaiian Brothers Say That Police Framed Them in a 1991 Murder**\
-`Ian and Shawn Schweitzer argued in a federal lawsuit that local police had failed to arrest a leading suspect.`\
-https://nytimes.com/2025/01/22/us/hawaii-tourist-murder-brothers-framed.html
-
-**Twins-Padres trade talks have focused on Christian Vázquez: Sources**\
-`The Twins would like to reallocate resources and they could find a willing trade partner in San Diego.`\
-https://nytimes.com/athletic/6082484/2025/01/22/twins-padres-trade-talks-christian-vazquez/
 
