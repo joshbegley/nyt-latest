@@ -1,3 +1,15 @@
+**The War on D.E.I. Heats Up**\
+`President Trump’s campaign to end diversity, equity and inclusion policies has begun in federal agencies, and is jolting corporate America as well.`\
+https://nytimes.com/2025/01/23/business/dealbook/trump-diversity-equity-inclusion.html
+
+**2025 Oscar Nominations to Be Unveiled**\
+`The nominations are being announced at the academy’s Beverly Hills headquarters in an early-morning ceremony.`\
+https://nytimes.com/2025/01/23/movies/oscar-nominations-academy-awards.html
+
+**Madison Keys upsets Iga Swiatek to reach Australian Open final against Aryna Sabalenka**\
+`The American will face world No. 1 Sabalenka in search of her first Grand Slam title.`\
+https://nytimes.com/athletic/6083180/2025/01/23/iga-swiatek-australian-open-semifinal-result-analysis-madison-keys/
+
 **Omobamidele set to move on loan to Strasbourg**\
 `Nottingham Forest defender Andrew Omobamidele is expected to complete a move to French club Strasbourg.`\
 https://nytimes.com/athletic/6083154/2025/01/23/andrew-omobamidele-strasbourg-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6081951/2025/01/23/49ers-2025-free-agent-rankings/
 **Chargers 2025 offseason handbook: Cap space, roster needs, free agency and more**\
 `After building around the margins last offseason, the Chargers are positioned to make a splash in Jim Harbaugh's second season.`\
 https://nytimes.com/athletic/6079417/2025/01/23/chargers-2025-offseason-handbook/
-
-**2025 Oscar Nominations: Updating List**\
-`The movies competing for the 97th Academy Awards. The ceremony will air on March 2.`\
-https://nytimes.com/2025/01/23/movies/oscar-nominees-full-list.html
-
-**Isaiah Stewart leads Pistons' stifling defensive effort against Hawks: 'He's a dog'**\
-`Stewart's two key blocks were emblematic of Detroit's effort on Wednesday as it moved past Atlanta into the sixth seed in the East.`\
-https://nytimes.com/athletic/6082703/2025/01/23/pistons-isaiah-stewart-ausar-thompson-defense-hawks/
-
-**Bitter Boardroom Feud for Korea Zinc Takes a Dramatic Turn**\
-`An eventful shareholder meeting provided the latest twist in the dispute between the families whose deceased patriarchs founded the company 50 years ago.`\
-https://nytimes.com/2025/01/23/business/korea-zinc-young-poong-shareholders.html
 
