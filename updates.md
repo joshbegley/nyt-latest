@@ -1,3 +1,7 @@
+**Word of the Day: imprimatur**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/23/learning/word-of-the-day-imprimatur.html
+
 **Arteta wants more goals from midfield and Arsenal delivered against Dinamo Zagreb**\
 `Declan Rice and Martin Odegaard both scored on Wednesday and Arsenal do need an uplift in goals from that area of the pitch`\
 https://nytimes.com/athletic/6082260/2025/01/23/arsenal-dinamo-zagreb-midfield-goals/
