@@ -1,3 +1,7 @@
+**Trump Picks Conservative Activist to Lead U.S. Media Agency**\
+`L. Brent Bozell III, once a critic of President Trump, now runs an organization that criticizes the media for perceived bias against Republicans, particularly Mr. Trump.`\
+https://nytimes.com/2025/01/22/us/politics/trump-picks-conservative-activist-to-lead-us-media-agency.html
+
 **White House to Old Staff: Go Home. Don’t Call Us. We’ll Call You.**\
 `President Trump is taking dramatic steps in seeking to place his stamp on the federal bureaucracy.`\
 https://nytimes.com/2025/01/22/us/politics/trump-biden-white-house-nsc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/nyregion/adams-prosecutors-biden-trump.html
 **An Invitation to a Witch Hunt to Root Out D.E.I.**\
 `A chilling message for federal employees: Rat out your colleagues, or else.`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/trump-dei-executive-order
-
-**Lakers' Jarred Vanderbilt cleared to return Saturday after a year of recovery**\
-`Vanderbilt suffered a midfoot sprain on Feb. 1 that cost him the rest of the season and the first 41 games (and counting) of this season.`\
-https://nytimes.com/athletic/6082276/2025/01/22/jarred-vanderbilt-lakers-medically-cleared-return/
 
