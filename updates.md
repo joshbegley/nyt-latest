@@ -1,3 +1,7 @@
+**Juventus agree loan deal for Chelsea's Veiga**\
+`Chelsea have verbally agreed a deal to send Renato Veiga on loan to Juventus.`\
+https://nytimes.com/athletic/6056379/2025/01/23/renato-veiga-juventus-chelsea/
+
 **Garcia set to remain at Barcelona despite January interest**\
 `Eric Garcia is set to stay at Barcelona despite attracting interest from elsewhere in the January transfer window.`\
 https://nytimes.com/athletic/6082872/2025/01/23/eric-garcia-barcelona-transfer/
