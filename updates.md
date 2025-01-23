@@ -1,3 +1,15 @@
+**Trump Lashes Out at Banks Over Treatment of Conservatives**\
+`The president revived Republican criticisms over purportedly politically motivated “debanking,” or closing of customer bank accounts.`\
+https://nytimes.com/2025/01/23/business/trump-bank-of-america-davos.html
+
+**Trump says he is ‘open’ to meeting with Jan. 6 rioters he gave clemency to.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/01/23/us/trump-news/trump-jan-6-pardons-rioters
+
+**Bertrand Blier, Acclaimed Director of Sexually Blunt Films, Dies at 85**\
+`A much-decorated French filmmaker, he divided audiences and critics with explorations, often darkly comic but brutal, of misogyny and the male sexual imagination.`\
+https://nytimes.com/2025/01/23/movies/bertrand-blier-dead.html
+
 **Braves agree to sign free-agent outfielder Jurickson Profar: Source**\
 `He wasn’t the National League Comeback Player of the Year, but no hitter did more for his stock in 2024 than Jurickson Profar.`\
 https://nytimes.com/athletic/5969498/2025/01/23/jurickson-profar-contract-braves-mlb-free-agency/

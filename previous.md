@@ -1,3 +1,15 @@
+**Trump Lashes Out at Banks Over Treatment of Conservatives**\
+`The president revived Republican criticisms over purportedly politically motivated “debanking,” or closing of customer bank accounts.`\
+https://nytimes.com/2025/01/23/business/trump-bank-of-america-davos.html
+
+**Trump says he is ‘open’ to meeting with Jan. 6 rioters he gave clemency to.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/01/23/us/trump-news/trump-jan-6-pardons-rioters
+
+**Bertrand Blier, Acclaimed Director of Sexually Blunt Films, Dies at 85**\
+`A much-decorated French filmmaker, he divided audiences and critics with explorations, often darkly comic but brutal, of misogyny and the male sexual imagination.`\
+https://nytimes.com/2025/01/23/movies/bertrand-blier-dead.html
+
 **Braves agree to sign free-agent outfielder Jurickson Profar: Source**\
 `He wasn’t the National League Comeback Player of the Year, but no hitter did more for his stock in 2024 than Jurickson Profar.`\
 https://nytimes.com/athletic/5969498/2025/01/23/jurickson-profar-contract-braves-mlb-free-agency/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6084414/2025/01/23/victor-wembanyama-spurs-pacers-n
 **Charles Phan, Whose Slanted Door Elevated Vietnamese Food, Dies at 62**\
 `The restaurant, which opened in San Francisco in 1995, married local ingredients with the food he grew up on and buoyed other chefs from immigrant families.`\
 https://nytimes.com/2025/01/23/dining/charles-phan-dead.html
-
-**In TikTok Theater, All the World’s an Audience**\
-`“Famehungry,” a show that’s performed simultaneously for in-person and online crowds, comes to New York in the wake of the app’s brief ban in the United States.`\
-https://nytimes.com/2025/01/23/theater/tiktok-theater-famehungry-louise-orwin.html
-
-**Bill Belichick's UNC debut vs. TCU gets Labor Day prime-time slot on ESPN**\
-`The NFL lifer will begin his college coaching tenure in a familiar spot: Monday night football.`\
-https://nytimes.com/athletic/6084390/2025/01/23/belichick-unc-tcu-first-game-esp/
-
-**Four candidates to be the Giants' backup catcher behind Patrick Bailey**\
-`Tom Murphy enters camp as the favorite to back up Bailey, but there are three other candidates who could steal the job.`\
-https://nytimes.com/athletic/6083801/2025/01/23/sf-giants-catching-depth-chart/
 
