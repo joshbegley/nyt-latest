@@ -1,3 +1,11 @@
+**Spurs vs. Pacers: How to watch the NBA's Paris showcase, with Wemby returning to France**\
+`The sensational Victor Wembanyama gets to bring his San Antonio Spurs to his home country. They face the scorching-hot Indiana Pacers.`\
+https://nytimes.com/athletic/6081753/2025/01/23/spurs-pacers-how-to-watch-odds-preview-wembanyama-paris/
+
+**China Will Be Thrilled if Trump Kills America’s Green Economy**\
+`President Trump seems poised to roll back the very incentives that are reviving American manufacturing.`\
+https://nytimes.com/2025/01/23/opinion/trump-china-ev-batteries.html
+
 **FPL: Foden, Savio and that man Haaland - are Manchester City players worth it again?**\
 `Holly Shand analyses the best assets to target from Manchester City despite their tricky fixture list`\
 https://nytimes.com/athletic/6080035/2025/01/23/fantasy-premier-league-manchester-city-foden-haaland/
