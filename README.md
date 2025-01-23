@@ -18,7 +18,7 @@ https://nytimes.com/2025/01/23/us/politics/house-abortion-bill.html
 `Andrews took to Instagram with a message after not speaking to media on Monday and Tuesday following the loss to the Bills.`\
 https://nytimes.com/athletic/6084269/2025/01/23/mark-andrews-instagram-comments-ravens-bills/
 
-**I.C.C. Prosecutor Seeks Arrest of Taliban Leader for Persecution of Afghan Women**\
+**I.C.C. Prosecutor Seeks Arrest of Taliban Leader for Persecution of Afghan Women and Girls**\
 `Karim Khan said that a crime against humanity was being committed by top officials against “Afghan women and girls, as well as the LGBTQI+ community.”`\
 https://nytimes.com/2025/01/23/world/europe/icc-afghanistan-leader-women.html
 
