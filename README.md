@@ -1,3 +1,7 @@
+**Videos Show Pardoned Capitol Rioters Attacking Police**\
+`Videos recorded on Jan. 6, 2021, show how several of the Capitol rioters pardoned by President Trump attacked police officers. Alan Feuer, a reporter covering extremism and political violence for The New York Times, describes some of the cases against these rioters.`\
+https://nytimes.com/video/us/politics/100000009943734/videos-show-pardoned-capitol-rioters-attacking-police.html
+
 **A Chef’s Secret to Homemade Chicken Broth**\
 `Yann Nury explains how to make stock with a golden color and clean taste, and shares a recipe for a hearty root vegetable soup.`\
 https://nytimes.com/2025/01/23/t-magazine/chicken-broth-winter-soup-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084315/2025/01/23/eli-manning-giants-qb-coaching-s
 **Trump Vows to Release Records on Kennedy and King Killings**\
 `President Trump told security agencies to develop plans to make public all documents related to the assassinations of John F. Kennedy, Robert F. Kennedy and the Rev. Dr. Martin Luther King Jr.`\
 https://nytimes.com/2025/01/23/us/politics/trump-declassify-jfk-mlk-assassinations.html
-
-**How Every Senator Voted to Confirm John Ratcliffe as C.I.A. Director**\
-`The Senate voted 74 to 25 to confirm Mr. Ratcliffe, the second Trump pick to be confirmed.`\
-https://nytimes.com/interactive/2025/01/23/us/politics/ratcliffe-senate-confirmation-vote.html
 

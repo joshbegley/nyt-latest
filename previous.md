@@ -1,3 +1,11 @@
+**A Chef’s Secret to Homemade Chicken Broth**\
+`Yann Nury explains how to make stock with a golden color and clean taste, and shares a recipe for a hearty root vegetable soup.`\
+https://nytimes.com/2025/01/23/t-magazine/chicken-broth-winter-soup-recipe.html
+
+**Yann Nury’s Easy Chicken Stock**\
+`This recipe produces a flavorful golden broth with excellent clarity — achieved with a surprisingly simple technique.`\
+https://nytimes.com/video/t-magazine/100000009926528/yann-nurys-easy-chicken-stock.html
+
 **Man United's Garnacho 'improving in every aspect' - Amorim**\
 `Ruben Amorim has said Alejandro Garnacho is &#8220;improving in every aspect of the game&#8221; amid speculation over his Manchester United future.`\
 https://nytimes.com/athletic/6084706/2025/01/23/alejandro-garnacho-manchester-united-future/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/us/politics/trump-declassify-jfk-mlk-assassinatio
 **How Every Senator Voted to Confirm John Ratcliffe as C.I.A. Director**\
 `The Senate voted 74 to 25 to confirm Mr. Ratcliffe, the second Trump pick to be confirmed.`\
 https://nytimes.com/interactive/2025/01/23/us/politics/ratcliffe-senate-confirmation-vote.html
-
-**Aaron De Groft, Museum Director Accused in Fake Basquiat Scheme, Dies at 59**\
-`In Orlando, he staged a blockbuster exhibit of works said to be newly discovered paintings by Jean-Michel Basquiat. He was fired when the paintings turned out to be forgeries.`\
-https://nytimes.com/2025/01/23/arts/aaron-de-groft-dead.html
-
-**Trump Lashes Out at Banks Over Treatment of Conservatives**\
-`The president revived Republican criticisms over purportedly politically motivated “debanking,” or closing of customer bank accounts.`\
-https://nytimes.com/2025/01/23/business/trump-bank-of-america-davos.html
 

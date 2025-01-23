@@ -1,3 +1,11 @@
+**A Chef’s Secret to Homemade Chicken Broth**\
+`Yann Nury explains how to make stock with a golden color and clean taste, and shares a recipe for a hearty root vegetable soup.`\
+https://nytimes.com/2025/01/23/t-magazine/chicken-broth-winter-soup-recipe.html
+
+**Yann Nury’s Easy Chicken Stock**\
+`This recipe produces a flavorful golden broth with excellent clarity — achieved with a surprisingly simple technique.`\
+https://nytimes.com/video/t-magazine/100000009926528/yann-nurys-easy-chicken-stock.html
+
 **Man United's Garnacho 'improving in every aspect' - Amorim**\
 `Ruben Amorim has said Alejandro Garnacho is &#8220;improving in every aspect of the game&#8221; amid speculation over his Manchester United future.`\
 https://nytimes.com/athletic/6084706/2025/01/23/alejandro-garnacho-manchester-united-future/
