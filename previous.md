@@ -1,3 +1,7 @@
+**Sean Combs Files Defamation Suit Against Man Who Said He Had Sex Tapes**\
+`The lawsuit names Courtney Burgess, a one-time music industry bit player, his lawyer and the owner of the cable network NewsNation, which aired an interview with Mr. Burgess.`\
+https://nytimes.com/2025/01/22/arts/music/sean-combs-courtney-burgess-sex-tapes-lawsuit.html
+
 **Why Is This Long-Dead President Trump’s New Hero?**\
 `William McKinley, the 25th president, loved tariffs and expanded American territory. What more do you need to know?`\
 https://nytimes.com/2025/01/22/us/politics/william-mckinley-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6082276/2025/01/22/jarred-vanderbilt-lakers-medical
 **Justice Department Orders a Halt to Civil Rights Work**\
 `It also signaled it could seek to back out of Biden-era agreements with police departments that engaged in discrimination or violence.`\
 https://nytimes.com/2025/01/22/us/politics/justice-department-civil-rights-work.html
-
-**Man Pleads Guilty to Murder in Fatal Stabbing of Brooklyn Activist**\
-`Ryan Carson, a well-known policy advocate, was killed on a Bedford-Stuyvesant sidewalk in October 2023 in what prosecutors called a random attack.`\
-https://nytimes.com/2025/01/22/nyregion/ryan-carson-stabbing-brooklyn-guilty-plea.html
 
