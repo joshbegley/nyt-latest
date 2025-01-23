@@ -1,3 +1,15 @@
+**At Trump Luncheon, Billionaires Cozy Up to Policymakers**\
+`At President Trump’s inauguration luncheon, billionaires and policymakers came together in an extraordinary commingling of money and power. Theodore Schleifer, who reports on billionaires’ influence in American politics, gives a tour.`\
+https://nytimes.com/video/us/politics/100000009942342/at-trump-luncheon-billionaires-cozy-up-to-policymakers.html
+
+**Trump’s F.B.I. Pick Sees ‘Deep State’ Plotters in Government, and Some Good in QAnon**\
+`Kash Patel’s public praise of the QAnon conspiracy theory suggests he sees its adherents more as an audience to be courted rather than an ideology to follow.`\
+https://nytimes.com/2025/01/23/us/politics/kash-patel-conspiracy-theories-qanon.html
+
+**Solanke to miss 'six weeks' with knee injury, avoids surgery - Postecoglou**\
+`Tottenham Hotspur striker Dominic Solanke is set to be unavailable for six weeks with a knee injury but he does not require surgery, Ange Postecoglou has said.`\
+https://nytimes.com/athletic/6072040/2025/01/23/tottenham-dominic-solanke-injury-update/
+
 **U.S. Security Contractors Going to Gaza to Oversee Truce, Officials Say**\
 `The contractors have been enlisted to do weapons checks on vehicles carrying displaced Palestinians back to their homes in the north under the terms of the new cease-fire.`\
 https://nytimes.com/2025/01/23/world/middleeast/gaza-us-contractors.html
