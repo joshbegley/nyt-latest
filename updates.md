@@ -1,3 +1,7 @@
+**Omobamidele set to move on loan to Strasbourg**\
+`Nottingham Forest defender Andrew Omobamidele is expected to complete a move to French club Strasbourg.`\
+https://nytimes.com/athletic/6083154/2025/01/23/andrew-omobamidele-strasbourg-transfer/
+
 **Al Horford, LeBron James and the art of aging gracefully in the NBA**\
 `At 38, Horford knows a thing or two about longevity, and what he's seen from LeBron impressed him. `\
 https://nytimes.com/athletic/6079691/2025/01/23/lebron-james-al-horford-celtics-lakers-older-players/

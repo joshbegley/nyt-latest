@@ -1,7 +1,3 @@
-**Omobamidele set to move on loan to Strasbourg**\
-`Nottingham Forest defender Andrew Omobamidele is expected to complete a move to French club Strasbourg.`\
-https://nytimes.com/athletic/6083154/2025/01/23/andrew-omobamidele-strasbourg-transfer/
-
 **Al Horford, LeBron James and the art of aging gracefully in the NBA**\
 `At 38, Horford knows a thing or two about longevity, and what he's seen from LeBron impressed him. `\
 https://nytimes.com/athletic/6079691/2025/01/23/lebron-james-al-horford-celtics-lakers-older-players/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6082703/2025/01/23/pistons-isaiah-stewart-ausar-tho
 **Bitter Boardroom Feud for Korea Zinc Takes a Dramatic Turn**\
 `An eventful shareholder meeting provided the latest twist in the dispute between the families whose deceased patriarchs founded the company 50 years ago.`\
 https://nytimes.com/2025/01/23/business/korea-zinc-young-poong-shareholders.html
+
+**NBA Trade Board 2.0: Jimmy Butler, Zach LaVine and more big names on market**\
+`We're two weeks away from the deadline, and new names who could have a market have emerged. But No. 1 remains the same.`\
+https://nytimes.com/athletic/6057514/2025/01/23/nba-trade-rumors-jimmy-butler-heat-suns-bulls-lakers/
 
