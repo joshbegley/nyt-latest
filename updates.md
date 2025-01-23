@@ -1,3 +1,7 @@
+**Yankees pluck pitchers from the Braves, Orioles, including former prospect**\
+`Roansy Contreras returns to the Yankees, who traded him to the Pirates in 2021 in the deal that brought Jameson Taillon to New York.`\
+https://nytimes.com/athletic/6084592/2025/01/23/yankees-roansy-contreras-allan-winans-waivers/
+
 **A Judge Halted Trump’s Plan to End Birthright Citizenship**\
 `Also, the Sacklers increased their settlement offer, with a catch. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/01/23/briefing/judge-trump-birthright-citizenship-oscar-nominations.html
