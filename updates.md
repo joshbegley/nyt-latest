@@ -1,3 +1,11 @@
+**Bee-Dazzler**\
+`Fasten your seatbelts, solvers — it’s going to be a bumpy ride.`\
+https://nytimes.com/2025/01/22/crosswords/daily-puzzle-2025-01-23.html
+
+**Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
+`Hundreds of people began registering their marriages at a mall in Bangkok, as Thailand became one of the few places in Asia to legalize same-sex unions.`\
+https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
+
 **Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
 `Hundreds of people to began registering their marriages at a mall in Bangkok, as Thailand became one of the few places in Asia to legalize same-sex unions.`\
 https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
