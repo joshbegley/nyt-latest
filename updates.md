@@ -1,3 +1,11 @@
+**Braves agree to sign free-agent outfielder Jurickson Profar: Source**\
+`He wasn’t the National League Comeback Player of the Year, but no hitter did more for his stock in 2024 than Jurickson Profar.`\
+https://nytimes.com/athletic/5969498/2025/01/23/jurickson-profar-contract-braves-mlb-free-agency/
+
+**The Briefing - Wrexham 1 Birmingham 1: No Reynolds, McElhenney or Brady, but McClean makes rapid recovery**\
+`Wrexham and Birmingham City battled to a 1-1 draw in a potentially crucial match in the League One promotion battle...`\
+https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
+
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/01/23/books/review/8-new-books-we-recommend-this-week.html
