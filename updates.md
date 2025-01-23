@@ -1,3 +1,7 @@
+**Man United admit financial losses put club at risk of PSR breach**\
+`Manchester United have admitted that they are at risk of breaching the Premier League&#8217;s profitability and sustainability rules (PSR) unless they reverse their repeated financial losses.`\
+https://nytimes.com/athletic/6084108/2025/01/23/manchester-united-psr-cash-losses/
+
 **Forest confirm Wood's two-year contract extension**\
 `Nottingham Forest have confirmed that striker Chris Wood has signed a new contract through until the summer of 2027.`\
 https://nytimes.com/athletic/6081783/2025/01/23/chris-wood-new-contract-nottingham-forest/

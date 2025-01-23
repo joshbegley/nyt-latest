@@ -1,3 +1,7 @@
+**Man United admit financial losses put club at risk of PSR breach**\
+`Manchester United have admitted that they are at risk of breaching the Premier League&#8217;s profitability and sustainability rules (PSR) unless they reverse their repeated financial losses.`\
+https://nytimes.com/athletic/6084108/2025/01/23/manchester-united-psr-cash-losses/
+
 **Forest confirm Wood's two-year contract extension**\
 `Nottingham Forest have confirmed that striker Chris Wood has signed a new contract through until the summer of 2027.`\
 https://nytimes.com/athletic/6081783/2025/01/23/chris-wood-new-contract-nottingham-forest/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6083936/2025/01/23/afc-championships-quarterback-ma
 **Judge Temporarily Blocks Trump’s Plan to End Birthright Citizenship**\
 `A federal judge in Seattle has issued a temporary order halting the president’s plan.`\
 https://nytimes.com/2025/01/23/us/politics/judge-blocks-birthright-citizenship.html
-
-**Cubs reach agreement with utilityman Jon Berti on a $2 million deal: Source**\
-`Berti can move around the infield, and, if needed, play all three outfield positions.`\
-https://nytimes.com/athletic/6083923/2025/01/23/chicago-cubs-jon-berti-free-agent-deal/
 
