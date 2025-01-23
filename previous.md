@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/23/world/asia/india-train-accident-maharashtra.html
 https://nytimes.com/2025/01/23/business/dealbook/trump-diversity-equity-inclusion.html
 
 **2025 Oscar Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ Get Multiple Nods**\
-`The nominations were announced at the academy’s Beverly Hills headquarters in an early-morning ceremony.`\
+`The two films secured nominations in most of the major categories, including best picture, a wide-open race. Acting nominees include Demi Moore, Cynthia Erivo, Adrien Brody and Timothée Chalamet.`\
 https://nytimes.com/2025/01/23/movies/oscar-nominations-academy-awards.html
 
 **Madison Keys upsets Iga Swiatek to reach Australian Open final against Aryna Sabalenka**\

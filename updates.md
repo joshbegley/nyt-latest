@@ -1,3 +1,7 @@
+**2025 Oscar Nominations: ‘Emilia Pérez’ and ‘The Brutalist’ Get Multiple Nods**\
+`The two films secured nominations in most of the major categories, including best picture, a wide-open race. Acting nominees include Demi Moore, Cynthia Erivo, Adrien Brody and Timothée Chalamet.`\
+https://nytimes.com/2025/01/23/movies/oscar-nominations-academy-awards.html
+
 **Fierce Storm Is Headed for Britain and Ireland**\
 `The storm, named Eowyn, is being fueled by the same weather pattern that has brought brutal cold and a rare winter storm to the Southern United States.`\
 https://nytimes.com/2025/01/23/weather/storm-eowyn-uk-ireland.html
