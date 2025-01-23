@@ -1,3 +1,15 @@
+**Billie Jean King Cup Finals move to Shenzhen, China after ITF president speaks with Peng Shuai**\
+`The event will be held in Shenzhen from this year, with a date not yet agreed.`\
+https://nytimes.com/athletic/6082957/2025/01/23/billie-jean-king-cup-finals-tennis-shenzhen-china-peng-shuai/
+
+**The Pulse: Another NFL coaching spot gone**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6081964/2025/01/23/nfl-coaching-carousel-aaron-glenn-the-pulse/
+
+**The Athletic FC: City slippers - Does Euro exit await? Plus: Bellingham's beautiful backheel**\
+`Today in TAFC: City on the brink of Champions league exit, full standings, Bellingham's backheel brilliance and the oldest football rivalry `\
+https://nytimes.com/athletic/6082986/2025/01/23/manchester-city-champions-league-exit-bellingham-backheel/
+
 **Listen: How would Andoni Iraola fare at a 'bigger' club?**\
 `High-flying Bournemouth and their manager Andoni Iraola are discussed on the latest episode of The Athletic FC Podcast`\
 https://nytimes.com/athletic/6082935/2025/01/23/athletic-fc-podcast-andoni-iraola/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/movies/rose-review.html
 **Trump criticized California and repeated familiar attacks in the first one-on-one interview of his new term.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/01/23/us/trump-news/trump-criticized-california-and-repeated-familiar-attacks-in-the-first-one-on-one-interview-of-his-new-term
-
-**Israeli Forces Kill 2 Men in Jenin Who They Say Were Wanted for Murder**\
-`The men were affiliated with a militant group, Palestinian Islamic Jihad, that carried out an attack earlier this month, the military said.`\
-https://nytimes.com/2025/01/23/world/middleeast/israel-west-bank-jenin.html
-
-**The New Politics of Immigration**\
-`We’re covering President Trump’s deportation plans.`\
-https://nytimes.com/2025/01/23/briefing/immigration-donald-trump.html
-
-**U.K. Teenager Who Killed 3 Girls in Southport Stabbing to Be Sentenced Today**\
-`Axel Rudakubana, 18, pleaded guilty to murder and attempted murder after attacking children and two adults at a dance class last July.`\
-https://nytimes.com/2025/01/23/world/europe/uk-southport-stabbing-sentence-axel-rudakubana.html
 
