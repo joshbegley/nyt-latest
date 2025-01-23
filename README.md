@@ -1,3 +1,11 @@
+**Netflix dropping Paris Olympics basketball docuseries in February**\
+`The six-part series will follow the U.S., France, Serbia and Canada in their quest to win gold.`\
+https://nytimes.com/athletic/6084214/2025/01/23/netflix-paris-olympics-basketball-series-release-date/
+
+**Adam Silver: American kids play too many games, don't practice enough**\
+`Speaking in Paris, Silver said he thought some of the NBA's injury problems were caused by "repetition," and kids need to play more sports.`\
+https://nytimes.com/athletic/6084318/2025/01/23/adam-silver-nba-euroleague-youth-basketball/
+
 **At Trump Luncheon, Billionaires Cozy Up to Policymakers**\
 `At President Trump’s inauguration luncheon, billionaires and policymakers came together in an extraordinary commingling of money and power. Theodore Schleifer, who reports on billionaires’ influence in American politics, gives a tour.`\
 https://nytimes.com/video/us/politics/100000009942342/at-trump-luncheon-billionaires-cozy-up-to-policymakers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/world/europe/prince-harry-murdoch-trial-royals.ht
 **The Dalai Lama Shares Thoughts on China and the Future in a New Book**\
 `The spiritual leader of Tibet has published amply but seldom written in depth about politics. Now, as he approaches 90, he shares a detailed and personal account of his decades dealing with China.`\
 https://nytimes.com/2025/01/23/books/dalai-lama-book-voice-for-the-voiceless.html
-
-**Black and White Weren’t Always as Black-and-White as They Seemed**\
-`The past was more racially fluid than we assume — and maybe even more than the current day.`\
-https://nytimes.com/2025/01/23/opinion/racecraft-study-history-race.html
-
-**Earth’s Mini-Moon Was Probably a Piece of Its Real Moon**\
-`Scientists think a small rock discovered near Earth last August was hurled into space by an ancient impact on the lunar surface.`\
-https://nytimes.com/2025/01/23/science/earth-mini-moon-asteroid.html
 
