@@ -1,3 +1,19 @@
+**Forest's signature throw-in explained - and how it finally resulted in a goal for Elliot Anderson**\
+`Forest have been persevering with an interesting throw-in routine this season - and it resulted in a goal against Southampton on Sunday`\
+https://nytimes.com/athletic/6077310/2025/01/23/nottingham-forest-signature-throw-in/
+
+**West Ham plan to honour their obligation to buy Todibo - and he wants to repay them**\
+`Jean-Clair Todibo feels settled in east London and wants to reciprocate the club’s faith shown in him following a cluster of calf injuries`\
+https://nytimes.com/athletic/6080098/2025/01/23/west-ham-jean-clair-todibo-transfer-latest/
+
+**Jackson isn't the problem for Chelsea. They need more consistent goal threats**\
+`While Jackson still has plenty of room for improvement, Chelsea’s issue in attack is that they need more production from their wingers`\
+https://nytimes.com/athletic/6080450/2025/01/23/nicolas-jackson-chelsea-finishing-analysis/
+
+**How Wolves handle the Cunha situation could define their season**\
+`There are no offers for Cunha on the table but that might change in the coming days and Wolves could then have a very big call to make`\
+https://nytimes.com/athletic/6080410/2025/01/23/matheus-cunha-wolves-future/
+
 **The next 11 days could be make or break for Leicester's season**\
 `The club need signings in the final two weeks of the winter window and to end their losing run - failing to do either may prove disastrous`\
 https://nytimes.com/athletic/6080149/2025/01/23/leicester-fans-ownership-problems/
