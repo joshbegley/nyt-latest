@@ -1,3 +1,7 @@
+**Bill Belichick's UNC debut vs. TCU gets Labor Day prime-time slot on ESPN**\
+`The NFL lifer will begin his college coaching tenure in a familiar spot: Monday night football.`\
+https://nytimes.com/athletic/6084390/2025/01/23/belichick-unc-tcu-first-game-esp/
+
 **Four candidates to be the Giants' backup catcher behind Patrick Bailey**\
 `Tom Murphy enters camp as the favorite to back up Bailey, but there are three other candidates who could steal the job.`\
 https://nytimes.com/athletic/6083801/2025/01/23/sf-giants-catching-depth-chart/
