@@ -1,3 +1,7 @@
+**Cavs drop rare game vs. West as Garland misses potential game-winning FTs**\
+`Garland is a 90 percent free-throw shooter.`\
+https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
+
 **Cavs lose as Garland misses potential game-winning free throws**\
 `Garland is a 90 percent free-throw shooter.`\
 https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
