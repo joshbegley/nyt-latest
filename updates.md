@@ -1,3 +1,15 @@
+**Thursday Briefing**\
+`Trump’s D.E.I. crackdown.`\
+https://nytimes.com/2025/01/23/briefing/trump-prince-harry-europe.html
+
+**Spain Seeks to Curb Foreign Buyers Amid Growing Housing Crisis**\
+`The country is at the forefront of a wider crunch spreading across Europe, and its prime minister has proposed a 100 percent tax aimed at foreign real estate investors.`\
+https://nytimes.com/2025/01/23/business/spain-housing-crisis-short-term-rentals.html
+
+**Wembanyama Prepares to Become ‘Genuine’ Face of the N.B.A.**\
+`As the N.B.A. confronts a fast-approaching time without LeBron James, Stephen Curry and Kevin Durant, the 21-year-old Spurs star has embraced the idea that he is the league’s future.`\
+https://nytimes.com/2025/01/23/business/victor-wembanyama-nba-france.html
+
 **Map: 5.7-Magnitude Earthquake Strikes the Philippines**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/22/world/22wea-quake-tracker-philippines-nytduwzp.html
