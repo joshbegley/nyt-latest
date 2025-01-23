@@ -1,3 +1,11 @@
+**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
+`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
+https://nytimes.com/athletic/6073696/2025/01/23/bills-chiefs-how-to-watch-odds-picks-betting/
+
+**Patrick Mahomes pushes back on notion referees favor Chiefs**\
+`"I think there were a lot of other plays that decided the outcome of that football game," Mahomes said of the controversial calls.`\
+https://nytimes.com/athletic/6083364/2025/01/23/patrick-mahomes-chiefs-texans-referees/
+
 **With Sahin gone, what next for Borussia Dortmund?**\
 `Niko Kovac is a contender to take charge but whoever comes in is going to find a club far removed from its previous position of strength`\
 https://nytimes.com/athletic/6083109/2025/01/23/borussia-dortmund-niko-kovac/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/world/africa/rwanda-rebels-congo.html
 **Trump’s Agriculture Pick to Face Questioning from Lawmakers**\
 `Brooke Rollins, the president’s nominee to lead the Agriculture Department, will appear before the Senate agriculture committee on Thursday.`\
 https://nytimes.com/2025/01/23/us/politics/brooke-rollins-agriculture-trump.html
-
-**Demi Moore Caps a Career Comeback With an Oscar Nomination**\
-`She starred in “The Substance,” a body horror-satire that isn’t normally academy fare. But it earned her some of the best reviews of her career.`\
-https://nytimes.com/2025/01/23/movies/demi-moore-the-substance-oscar-nomination.html
-
-**Karla Sofía Gascón Makes Oscar History as First Openly Trans Actress to Be Nominated**\
-`The “Emilia Pérez” star isn’t the first trans Oscar nominee. Anohni was up for best song, and Elliot Page was a contender before coming out publicly as trans.`\
-https://nytimes.com/2025/01/23/movies/karla-sofia-gascon-oscar-history-trans-actress.html
 
