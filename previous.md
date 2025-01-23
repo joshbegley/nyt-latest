@@ -1,3 +1,7 @@
+**John Calipari gets first SEC win with Arkansas vs. Georgia**\
+`Adou Thiero, who followed Calipari from Kentucky to Arkansas, had five points in the final minute to end the team's five-game losing skid.`\
+https://nytimes.com/athletic/6082690/2025/01/23/georgia-arkansas-calipari-mens-basketball/
+
 **Spurs vs. Pacers: How to watch the NBA's Paris showcase, with Wemby returning to France**\
 `The sensational Victor Wembanyama gets to bring his San Antonio Spurs to his home country. They face the scorching-hot Indiana Pacers.`\
 https://nytimes.com/athletic/6081753/2025/01/23/spurs-pacers-how-to-watch-odds-preview-wembanyama-paris/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080410/2025/01/23/matheus-cunha-wolves-future/
 **The next 11 days could be make or break for Leicester's season**\
 `The club need signings in the final two weeks of the winter window and to end their losing run - failing to do either may prove disastrous`\
 https://nytimes.com/athletic/6080149/2025/01/23/leicester-fans-ownership-problems/
-
-**Stefan Bajcetic's Salzburg struggles: What next for the Liverpool loanee?**\
-`It is nearly two years since Bajcetic started for Liverpool against Real Madrid but he has found limited opportunities at Salzburg`\
-https://nytimes.com/athletic/6080808/2025/01/23/stefan-bajcetic-salzburg-liverpool-madrid/
 

@@ -1,3 +1,7 @@
+**John Calipari gets first SEC win with Arkansas vs. Georgia**\
+`Adou Thiero, who followed Calipari from Kentucky to Arkansas, had five points in the final minute to end the team's five-game losing skid.`\
+https://nytimes.com/athletic/6082690/2025/01/23/georgia-arkansas-calipari-mens-basketball/
+
 **Spurs vs. Pacers: How to watch the NBA's Paris showcase, with Wemby returning to France**\
 `The sensational Victor Wembanyama gets to bring his San Antonio Spurs to his home country. They face the scorching-hot Indiana Pacers.`\
 https://nytimes.com/athletic/6081753/2025/01/23/spurs-pacers-how-to-watch-odds-preview-wembanyama-paris/
