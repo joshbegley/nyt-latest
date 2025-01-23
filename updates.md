@@ -1,3 +1,11 @@
+**Why Is This Long-Dead President Trump’s New Hero?**\
+`William McKinley, the 25th president, loved tariffs and expanded American territory. What more do you need to know?`\
+https://nytimes.com/2025/01/22/us/politics/william-mckinley-trump.html
+
+**Trump Picks Sean Curran, Head of His Campaign Detail, to Lead the Secret Service**\
+`Mr. Curran, a current agent, will take the helm of an agency that has been the focus of several investigations since the July assassination attempt against President Trump.`\
+https://nytimes.com/2025/01/22/us/politics/sean-curran-secret-service-trump.html
+
 **What’s Next for D.E.I. With Trump Back in Office?**\
 `Former President Joseph R. Biden Jr. had emphasized diversity, equity and inclusion programs in the federal government.`\
 https://nytimes.com/2025/01/22/us/trump-dei.html

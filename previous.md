@@ -1,3 +1,11 @@
+**Why Is This Long-Dead President Trump’s New Hero?**\
+`William McKinley, the 25th president, loved tariffs and expanded American territory. What more do you need to know?`\
+https://nytimes.com/2025/01/22/us/politics/william-mckinley-trump.html
+
+**Trump Picks Sean Curran, Head of His Campaign Detail, to Lead the Secret Service**\
+`Mr. Curran, a current agent, will take the helm of an agency that has been the focus of several investigations since the July assassination attempt against President Trump.`\
+https://nytimes.com/2025/01/22/us/politics/sean-curran-secret-service-trump.html
+
 **What’s Next for D.E.I. With Trump Back in Office?**\
 `Former President Joseph R. Biden Jr. had emphasized diversity, equity and inclusion programs in the federal government.`\
 https://nytimes.com/2025/01/22/us/trump-dei.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/justice-department-civil-rights-work.
 **Man Pleads Guilty to Murder in Fatal Stabbing of Brooklyn Activist**\
 `Ryan Carson, a well-known policy advocate, was killed on a Bedford-Stuyvesant sidewalk in October 2023 in what prosecutors called a random attack.`\
 https://nytimes.com/2025/01/22/nyregion/ryan-carson-stabbing-brooklyn-guilty-plea.html
-
-**U.S. South Digs Out of Record Snow**\
-`A rare winter storm dumped record amounts of snow on much of the Gulf Coast and the Carolinas.`\
-https://nytimes.com/video/weather/100000009943819/us-south-storm-snow.html
-
-**Russell Wilson on his future with Steelers: 'Hopefully finish my career there'**\
-`Despite the late-season struggles, Wilson, 36, remained optimistic about his ability to play into the future.`\
-https://nytimes.com/athletic/6082029/2025/01/22/russell-wilson-pittsburgh-steelers-pat-mcafee/
 
