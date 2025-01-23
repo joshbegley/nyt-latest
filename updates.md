@@ -1,3 +1,7 @@
+**Al Horford, LeBron James and the art of aging gracefully in the NBA**\
+`At 38, Horford knows a thing or two about longevity, and what he's seen from LeBron impressed him. `\
+https://nytimes.com/athletic/6079691/2025/01/23/lebron-james-al-horford-celtics-lakers-older-players/
+
 **ChatGPT Outage Reported by Thousands of Users**\
 `The site was unavailable to many people early Thursday.`\
 https://nytimes.com/2025/01/23/business/chatgpt-down-open-ai.html
