@@ -1,3 +1,7 @@
+**‘At Least We Found These’**\
+`Ken Bensinger, a politics reporter based in Los Angeles, explores the pain of families digging through the rubble.`\
+https://nytimes.com/2025/01/23/us/wildfires-rubble.html
+
 **Major Olympic broadcaster told L.A. fires will not affect 2028 Games**\
 `The fires have been ablaze for two weeks and have caused millions of dollars worth of damage across L.A.`\
 https://nytimes.com/athletic/6083499/2025/01/23/la-2028-olympics-fires/
