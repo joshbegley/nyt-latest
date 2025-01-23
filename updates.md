@@ -1,3 +1,11 @@
+**Listen: How would Andoni Iraola fare at a 'bigger' club?**\
+`High-flying Bournemouth and their manager Andoni Iraola are discussed on the latest episode of The Athletic FC Podcast`\
+https://nytimes.com/athletic/6082935/2025/01/23/athletic-fc-podcast-andoni-iraola/
+
+**Raiders GM John Spytek's to-do list: Hire a head coach, find a quarterback and more**\
+`Spytek will be in charge of the Raiders’ day-to-day operations and roster moves. Here are the top five items on his agenda.`\
+https://nytimes.com/athletic/6082188/2025/01/23/john-spytek-raiders-gm-hire-coach-qb/
+
 **Omar Marmoush to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Omar Marmoush's move to Manchester City`\
 https://nytimes.com/athletic/6050329/2025/01/23/omar-marmoush-to-manchester-city-the-athletic-500-transfer-ratings/
