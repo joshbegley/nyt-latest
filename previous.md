@@ -1,3 +1,15 @@
+**People With A.D.H.D. Are Likely to Die Significantly Earlier Than Their Peers, Study Finds**\
+`A large study found that men lost seven years of life expectancy and women lost nine years, compared with counterparts without the disorder.`\
+https://nytimes.com/2025/01/23/health/adhd-life-expectancy.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/23/crosswords/spelling-bee-forum.html
+
+**Longevity**\
+`Would you want to live forever? If not, how long do you hope your life will be?`\
+https://nytimes.com/2025/01/23/learning/longevity.html
+
 **Late Night Enjoys Trump’s Uncomfortable Moment in Church**\
 `“New executive order: We are banning church,” said Ronny Chieng, channeling the president’s apparent annoyance when a bishop asked him to be merciful.`\
 https://nytimes.com/2025/01/23/arts/television/late-night-trump-bishop-church.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/learning/word-of-the-day-imprimatur.html
 **Arteta wants more goals from midfield and Arsenal delivered against Dinamo Zagreb**\
 `Declan Rice and Martin Odegaard both scored on Wednesday and Arsenal do need an uplift in goals from that area of the pitch`\
 https://nytimes.com/athletic/6082260/2025/01/23/arsenal-dinamo-zagreb-midfield-goals/
-
-**John Calipari gets first SEC win with Arkansas vs. Georgia**\
-`Adou Thiero, who followed Calipari from Kentucky to Arkansas, had five points in the final minute to end the team's five-game losing skid.`\
-https://nytimes.com/athletic/6082690/2025/01/23/arkansas-georgia-calipari-mens-basketball/
-
-**Spurs vs. Pacers: How to watch the NBA's Paris showcase, with Wemby returning to France**\
-`The sensational Victor Wembanyama gets to bring his San Antonio Spurs to his home country. They face the scorching-hot Indiana Pacers.`\
-https://nytimes.com/athletic/6081753/2025/01/23/spurs-pacers-how-to-watch-odds-preview-wembanyama-paris/
-
-**China Will Be Thrilled if Trump Kills America’s Green Economy**\
-`President Trump seems poised to roll back the very incentives that are reviving American manufacturing.`\
-https://nytimes.com/2025/01/23/opinion/trump-china-ev-batteries.html
 

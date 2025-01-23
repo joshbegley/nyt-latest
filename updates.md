@@ -1,3 +1,15 @@
+**People With A.D.H.D. Are Likely to Die Significantly Earlier Than Their Peers, Study Finds**\
+`A large study found that men lost seven years of life expectancy and women lost nine years, compared with counterparts without the disorder.`\
+https://nytimes.com/2025/01/23/health/adhd-life-expectancy.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/23/crosswords/spelling-bee-forum.html
+
+**Longevity**\
+`Would you want to live forever? If not, how long do you hope your life will be?`\
+https://nytimes.com/2025/01/23/learning/longevity.html
+
 **Late Night Enjoys Trump’s Uncomfortable Moment in Church**\
 `“New executive order: We are banning church,” said Ronny Chieng, channeling the president’s apparent annoyance when a bishop asked him to be merciful.`\
 https://nytimes.com/2025/01/23/arts/television/late-night-trump-bishop-church.html
