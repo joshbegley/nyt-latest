@@ -1,3 +1,11 @@
+**Trump Is Leading a Global Surge to the Right**\
+`But not all of the leading conservative populist parties in the world are the same — in rhetoric or on policy.`\
+https://nytimes.com/2025/01/23/world/europe/trump-europe-right-immigration-ukraine.html
+
+**Heat Today: Dwyane Wade on Jimmy Butler-Miami relationship: "It’s ending tragically"**\
+`Heat legend shared candid remarks on Jimmy Butler's relationship with the franchise as tension keeps growing`\
+https://nytimes.com/athletic/6083584/2025/01/23/dwyane-wade-jimmy-butler-pat-riley-trade-deadline-heat-nba/
+
 **Tell Us How It Feels to Be a Federal Employee Right Now**\
 `We want to know what you think about the changes President Trump is making to federal government jobs. How are the administration’s new policies going to affect you and your work?`\
 https://nytimes.com/2025/01/23/us/politics/federal-workers-callout-trump.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/01/23/dining/youre-a-friend-tofu.html
 **New Research Finds Potential Alternative to Abortion Pill Mifepristone**\
 `The research could further complicate the polarized politics of abortion because the drug in the study is the key ingredient in a pill used for emergency contraception.`\
 https://nytimes.com/2025/01/23/health/abortion-pill-ella.html
-
-**OpenAI Unveils A.I. Agent That Can Use Websites on Its Own**\
-`The new tool, called Operator, can shop for groceries or book a restaurant reservation. But it still needs help from humans.`\
-https://nytimes.com/2025/01/23/technology/openai-operator-launch.html
-
-**Where to Stream the 2025 Oscar Nominees**\
-`Many of the top contenders can be watched at home. Here’s a guide to help you get a jump on the field.`\
-https://nytimes.com/2025/01/23/movies/oscar-nominees-movies-streaming.html
 
