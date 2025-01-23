@@ -1,3 +1,7 @@
+**The Real Protection Hegseth Has Is MAGA Loyalty — and Liberal Scorn**\
+`Party loyalty remains strong even for nominees who go down. Pete Hegseth’s no different, but the Trump era has strengthened it even more.`\
+https://nytimes.com/live/2025/01/20/opinion/thepoint/pete-hegseth-republicans-trump-loyalty
+
 **Trump Picks Conservative Activist to Lead U.S. Media Agency**\
 `L. Brent Bozell III, once a critic of President Trump, now runs an organization that criticizes the media for perceived bias against Republicans, particularly Mr. Trump.`\
 https://nytimes.com/2025/01/22/us/politics/trump-picks-conservative-activist-to-lead-us-media-agency.html
