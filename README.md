@@ -1,3 +1,7 @@
+**Man United's Garnacho 'improving in every aspect' - Amorim**\
+`Ruben Amorim has said Alejandro Garnacho is &#8220;improving in every aspect of the game&#8221; amid speculation over his Manchester United future.`\
+https://nytimes.com/athletic/6084706/2025/01/23/alejandro-garnacho-manchester-united-future/
+
 **Hornets' Brandon Miller undergoes surgery, out for rest of season**\
 `Miller, 22, sustained the injury on Jan. 15 during the Hornets’ 117-112 victory over the Utah Jazz.`\
 https://nytimes.com/athletic/6084491/2025/01/23/brandon-miller-out-for-season-wrist-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/arts/aaron-de-groft-dead.html
 **Trump Lashes Out at Banks Over Treatment of Conservatives**\
 `The president revived Republican criticisms over purportedly politically motivated “debanking,” or closing of customer bank accounts.`\
 https://nytimes.com/2025/01/23/business/trump-bank-of-america-davos.html
-
-**Trump says he is ‘open’ to meeting with Jan. 6 rioters he gave clemency to.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2025/01/23/us/trump-news/trump-jan-6-pardons-rioters
 
