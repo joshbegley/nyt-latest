@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes the Philippines**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/22/world/22wea-quake-tracker-philippines-nytduwzp.html
+
 **Cavs drop rare game vs. West as Garland misses potential game-winning FTs**\
 `Garland is a 90 percent free-throw shooter.`\
 https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
