@@ -1,3 +1,15 @@
+**5 Paths Through the Winter Show, an Exhibition of Earthly Delights**\
+`The fair, with 77 exhibitors, is a mini-museum, featuring arts, antiquities and design objects, from old masters to art jewelry.`\
+https://nytimes.com/2025/01/23/arts/design/winter-show-park-avenue-armory.html
+
+**McVay not definitive yet on futures of Rams stars Stafford, Kupp**\
+`Rams coach Sean McVay spoke about contributions from Matthew Stafford and Cooper Kupp, as well as Rob Havenstein and Tyler Higbee. `\
+https://nytimes.com/athletic/6083657/2025/01/23/rams-matthew-stafford-cooper-kupp-future-sean-mcvay/
+
+**Sheffield United sign Cannon from Leicester in £10m transfer**\
+`Leicester City striker Tom Cannon has joined Sheffield United in a £10million transfer.`\
+https://nytimes.com/athletic/6077431/2025/01/23/tom-cannon-sheffield-united-transfers/
+
 **Champions League projections: Are we heading for El Clasico in the last 16?**\
 `With the initial stage of the Champions League almost over — we use our projections to work out how who is likely to progress `\
 https://nytimes.com/athletic/6082982/2025/01/23/champions-league-projections-matchday-eight/
