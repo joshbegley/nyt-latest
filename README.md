@@ -1,3 +1,19 @@
+**Amanda Knox Slander Conviction Is Upheld by Italy’s Highest Court**\
+`An American who was convicted and later acquitted of the 2007 murder of her British housemate, Ms. Knox was found guilty of falsely accusing someone else of the crime.`\
+https://nytimes.com/2025/01/23/world/europe/amanda-knox-slander-upheld.html
+
+**Many Jan. 6 Rioters Pardoned by Trump Attacked Police, Videos Show**\
+`President Trump pardoned men who violently attacked police officers on Jan. 6 along with nearly 1,600 other people who had been charged in connection with the riot. But his grant of clemency did not erase the video evidence of their crimes.`\
+https://nytimes.com/2025/01/23/us/politics/jan-6-trump-pardon-capitol-riots-video-evidence.html
+
+**Judge Dismisses Lawsuit Against Brothers Accused of Sexual Assault**\
+`A federal judge found that a woman’s claim against Alon, Oren and Tal Alexander did not meet a filing deadline. Other lawsuits and the criminal cases against them are continuing.`\
+https://nytimes.com/2025/01/23/realestate/judge-dismisses-lawsuit-against-brothers-accused-of-sexual-assault.html
+
+**Where to Eat: Spicy dishes for frigid nights**\
+`These vibrant dishes will warm you from the inside.`\
+https://nytimes.com/2025/01/23/dining/where-to-eat-spicy-dishes-for-frigid-nights.html
+
 **What Students Are Saying About Being Graded on Excellence vs. Effort**\
 `A guest essayist said students shouldn’t get an A for simply putting in hard work. We asked teenagers what they thought.`\
 https://nytimes.com/2025/01/23/learning/what-students-are-saying-about-being-graded-on-excellence-vs-effort.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/23/briefing/trump-davos-ukraine-war-deaths-oscar-nom
 **Netflix dropping Paris Olympics basketball docuseries in February**\
 `The six-part series will follow the U.S., France, Serbia and Canada in their quest to win gold.`\
 https://nytimes.com/athletic/6084214/2025/01/23/netflix-paris-olympics-basketball-series-release-date/
-
-**Adam Silver: American kids play too many games, leading to overuse injuries**\
-`Speaking in Paris, Silver said he thought some of the NBA's injury problems were caused by "repetition," and kids need to play more sports.`\
-https://nytimes.com/athletic/6084318/2025/01/23/adam-silver-nba-euroleague-youth-basketball/
-
-**At Trump Luncheon, Billionaires Cozy Up to Policymakers**\
-`At President Trump’s inauguration luncheon, billionaires and policymakers came together in an extraordinary commingling of money and power. Theodore Schleifer, who reports on billionaires’ influence in American politics, gives a tour.`\
-https://nytimes.com/video/us/politics/100000009942342/at-trump-luncheon-billionaires-cozy-up-to-policymakers.html
-
-**Trump’s F.B.I. Pick Sees ‘Deep State’ Plotters in Government, and Some Good in QAnon**\
-`Kash Patel’s public praise of the QAnon conspiracy theory suggests he sees its adherents more as an audience to be courted rather than an ideology to follow.`\
-https://nytimes.com/2025/01/23/us/politics/kash-patel-conspiracy-theories-qanon.html
-
-**Solanke to miss 'six weeks' with knee injury, avoids surgery - Postecoglou**\
-`Tottenham Hotspur striker Dominic Solanke is set to be unavailable for six weeks with a knee injury but he does not require surgery, Ange Postecoglou has said.`\
-https://nytimes.com/athletic/6072040/2025/01/23/tottenham-dominic-solanke-injury-update/
 
