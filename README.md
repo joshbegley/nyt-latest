@@ -1,3 +1,15 @@
+**At Trump Luncheon, Billionaires Cozy Up to Policymakers**\
+`At President Trump’s inauguration luncheon, billionaires and policymakers came together in an extraordinary commingling of money and power. Theodore Schleifer, who reports on billionaires’ influence in American politics, gives a tour.`\
+https://nytimes.com/video/us/politics/100000009942342/at-trump-luncheon-billionaires-cozy-up-to-policymakers.html
+
+**Trump’s F.B.I. Pick Sees ‘Deep State’ Plotters in Government, and Some Good in QAnon**\
+`Kash Patel’s public praise of the QAnon conspiracy theory suggests he sees its adherents more as an audience to be courted rather than an ideology to follow.`\
+https://nytimes.com/2025/01/23/us/politics/kash-patel-conspiracy-theories-qanon.html
+
+**Solanke to miss 'six weeks' with knee injury, avoids surgery - Postecoglou**\
+`Tottenham Hotspur striker Dominic Solanke is set to be unavailable for six weeks with a knee injury but he does not require surgery, Ange Postecoglou has said.`\
+https://nytimes.com/athletic/6072040/2025/01/23/tottenham-dominic-solanke-injury-update/
+
 **U.S. Security Contractors Going to Gaza to Oversee Truce, Officials Say**\
 `The contractors have been enlisted to do weapons checks on vehicles carrying displaced Palestinians back to their homes in the north under the terms of the new cease-fire.`\
 https://nytimes.com/2025/01/23/world/middleeast/gaza-us-contractors.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/opinion/racecraft-study-history-race.html
 **Earth’s Mini-Moon Was Probably a Piece of Its Real Moon**\
 `Scientists think a small rock discovered near Earth last August was hurled into space by an ancient impact on the lunar surface.`\
 https://nytimes.com/2025/01/23/science/earth-mini-moon-asteroid.html
-
-**The Briefing: Hoffenheim 2 Tottenham 3 - exactly what Son needed, Bergvall shines again**\
-`Tottenham Hotspur won their first game in the Europa League since October to boost their chances of qualifying directly for the round of 16`\
-https://nytimes.com/athletic/6080711/2025/01/23/hoffenheim-2-tottenham-3/
-
-**How Dubai Chocolate Took Over the World**\
-`Inspired by a beloved childhood dessert, the gooey, crunchy “Can’t Get Knafeh of It” chocolate bar is a global sensation.`\
-https://nytimes.com/2025/01/23/dining/dubai-chocolate-cant-get-knafeh-it.html
-
-**Supreme Court Revives Law Meant to Fight Money Laundering**\
-`The Corporate Transparency Act, which requires businesses to disclose ownership information, was blocked by a federal judge as beyond Congress’s authority.`\
-https://nytimes.com/2025/01/23/us/supreme-court-money-laundering.html
 
