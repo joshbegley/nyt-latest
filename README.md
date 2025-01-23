@@ -1,3 +1,7 @@
+**Juventus agree loan deal for Chelsea's Veiga**\
+`Chelsea have verbally agreed a deal to send Renato Veiga on loan to Juventus.`\
+https://nytimes.com/athletic/6056379/2025/01/23/renato-veiga-juventus-chelsea/
+
 **Garcia set to remain at Barcelona despite January interest**\
 `Eric Garcia is set to stay at Barcelona despite attracting interest from elsewhere in the January transfer window.`\
 https://nytimes.com/athletic/6082872/2025/01/23/eric-garcia-barcelona-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6081684/2025/01/23/panthers-unrestricted-free-agent
 **Top offseason to-do list items for Rams, starting with QB Matthew Stafford**\
 `Figuring out Stafford's next step is key for the Rams, along with decisions on high-priced veterans and the O-line.`\
 https://nytimes.com/athletic/6081931/2025/01/23/rams-offseason-to-do-list-matthew-stafford/
-
-**What the Patriots can learn from the Commanders' quick turnaround under Jayden Daniels**\
-`The Patriots might be wise to follow these five steps from the Commanders' plan for last offseason. `\
-https://nytimes.com/athletic/6081145/2025/01/23/patriots-commanders-jayden-daniels-turnaround/
 
