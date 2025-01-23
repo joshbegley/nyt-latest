@@ -1,3 +1,7 @@
+**Call to Post: Warriors' ongoing search for a stretch five turns to a rookie**\
+`Quinten Post, a second-round pick brought up from the G League, could earn more time after playing well against Sacramento on Wednesday.`\
+https://nytimes.com/athletic/6082663/2025/01/23/warriors-quinten-post-steph-curry-kings/
+
 **NFL reissues fine to Mixon after incorrectly attributing comments to him, agent says**\
 `Mixon's agent said the NFL improperly fined Mixon for remarks to the media about the officiating in the Texans' loss to the Chiefs.`\
 https://nytimes.com/athletic/6082687/2025/01/23/joe-mixon-fine-nfl-officiating-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/business/chatgpt-down-open-ai.html
 **CNN Plots Major Overhaul as It Enters a New Trump Era**\
 `Mark Thompson has promised to reinvent CNN since he arrived in 2023. Now, he is remaking the network’s TV lineup and its work force.`\
 https://nytimes.com/2025/01/23/business/media/cnn-layoffs-mark-thompson.html
-
-**An afterthought in Philadelphia, Scott Kingery hopes for long-awaited second chance in Anaheim**\
-`“Last year was a good indicator that there’s still a lot of juice left in the tank,” said Kingery's Triple-A manager. `\
-https://nytimes.com/athletic/6079217/2025/01/23/scott-kingery-second-chance-angels/
 
