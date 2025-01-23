@@ -1,3 +1,11 @@
+**Trump Issues Executive Order to Support the Growth of Cryptocurrencies**\
+`The order signaled that the president intends to promote an industry that faced scrutiny during the Biden administration — and that he has a personal stake in.`\
+https://nytimes.com/2025/01/23/technology/trump-crypto-executive-order.html
+
+**I.C.C. Prosecutor Seeks Arrest of Taliban Leader for Persecution of Afghan Women and Girls**\
+`Karim Khan said that a crime against humanity was being committed by top officials against “Afghan women and girls, as well as the LGBTQI+ community.”`\
+https://nytimes.com/2025/01/23/world/europe/icc-afghanistan-leader-women.html
+
 **‘Lovers Anonymous’ Is a Clever Turkish Dramatic Comedy**\
 `Set at the Love Hospital, where love is treated as a disease, the Netflix series is in turns biting and dreamy, cynical and cute.`\
 https://nytimes.com/2025/01/23/arts/television/lovers-anonymous-netflix.html

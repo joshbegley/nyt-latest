@@ -1,3 +1,7 @@
+**Four candidates to be the Giants' backup catcher behind Patrick Bailey**\
+`Tom Murphy enters camp as the favorite to back up Bailey, but there are three other candidates who could steal the job.`\
+https://nytimes.com/athletic/6083801/2025/01/23/sf-giants-catching-depth-chart/
+
 **Trump Issues Executive Order to Support the Growth of Cryptocurrencies**\
 `The order signaled that the president intends to promote an industry that faced scrutiny during the Biden administration — and that he has a personal stake in.`\
 https://nytimes.com/2025/01/23/technology/trump-crypto-executive-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/us/laguna-fire-grew-halted-quickly.html
 **How Lou Anarumo intends to fix Colts defense, hold players accountable: 'I'm a truth-teller'**\
 `“Great players want to be coached. They want to know the truth. ... If they don't, then there's probably an issue there."`\
 https://nytimes.com/athletic/6084284/2025/01/23/lou-anarumo-colts-defensive-coordinator-accountable/
-
-**100,000 Ducks to Be Killed After Bird Flu Strikes Long Island Farm**\
-`The highly infectious H5N1 strain has caused outbreaks across the country. Now, Long Island’s last duck farm must kill its entire flock and may go out of business, its owner said.`\
-https://nytimes.com/2025/01/23/nyregion/long-island-duck-farm-bird-flu.html
 
