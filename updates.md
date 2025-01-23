@@ -1,3 +1,7 @@
+**Judge Dismisses Lawsuit Against Brothers Accused of Sexual Assault**\
+`A federal judge found that a woman’s claim against Alon, Oren and Tal Alexander did not meet a filing deadline. Other lawsuits and the criminal cases against them are continuing.`\
+https://nytimes.com/2025/01/23/realestate/alexander-brothers-lawsuit-dismissal.html
+
 **Amanda Knox Slander Conviction Is Upheld by Italy’s Highest Court**\
 `An American who was convicted and later acquitted of the 2007 murder of her British housemate, Ms. Knox was found guilty of falsely accusing someone else of the crime.`\
 https://nytimes.com/2025/01/23/world/europe/amanda-knox-slander-upheld.html

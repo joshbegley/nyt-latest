@@ -8,7 +8,7 @@ https://nytimes.com/2025/01/23/us/politics/jan-6-trump-pardon-capitol-riots-vide
 
 **Judge Dismisses Lawsuit Against Brothers Accused of Sexual Assault**\
 `A federal judge found that a woman’s claim against Alon, Oren and Tal Alexander did not meet a filing deadline. Other lawsuits and the criminal cases against them are continuing.`\
-https://nytimes.com/2025/01/23/realestate/judge-dismisses-lawsuit-against-brothers-accused-of-sexual-assault.html
+https://nytimes.com/2025/01/23/realestate/alexander-brothers-lawsuit-dismissal.html
 
 **Where to Eat: Spicy dishes for frigid nights**\
 `These vibrant dishes will warm you from the inside.`\
