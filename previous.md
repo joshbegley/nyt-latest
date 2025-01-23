@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/22/us/hughes-fire-la-county.html
 https://nytimes.com/athletic/6082485/2025/01/22/usmnt-beats-costa-rica-concacaf/
 
 **Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
-`Hundreds of people to began registering their marriages at a mall in Bangkok, as Thailand became the third country in Asia to legalize same-sex unions.`\
+`Hundreds of people to began registering their marriages at a mall in Bangkok, as Thailand became one of the few places in Asia to legalize same-sex unions.`\
 https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
 
 **The Real Protection Hegseth Has Is MAGA Loyalty — and Liberal Scorn**\
