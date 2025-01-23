@@ -1,3 +1,7 @@
+**Eli Manning on Giants' QB situation, Hall of Fame and more**\
+`If anyone knows about the pressure and the honor of playing quarterback for the Giants, it's Eli Manning.`\
+https://nytimes.com/athletic/6084315/2025/01/23/eli-manning-giants-qb-coaching-staff-hall-of-fame/
+
 **Trump Vows to Release Records on Kennedy and King Killings**\
 `President Trump told security agencies to develop plans to make public all documents related to the assassinations of John F. Kennedy, Robert F. Kennedy and the Rev. Dr. Martin Luther King Jr.`\
 https://nytimes.com/2025/01/23/us/politics/trump-declassify-jfk-mlk-assassinations.html
@@ -22,7 +26,7 @@ https://nytimes.com/live/2025/01/23/us/trump-news/trump-jan-6-pardons-rioters
 `A much-decorated French filmmaker, he divided audiences and critics with explorations, often darkly comic but brutal, of misogyny and the male sexual imagination.`\
 https://nytimes.com/2025/01/23/movies/bertrand-blier-dead.html
 
-**Braves agree to sign free-agent outfielder Jurickson Profar: Source**\
+**Braves agree sign free-agent outfielder Jurickson Profar to 3-year, $42 million deal**\
 `He wasn’t the National League Comeback Player of the Year, but no hitter did more for his stock in 2024 than Jurickson Profar.`\
 https://nytimes.com/athletic/5969498/2025/01/23/jurickson-profar-contract-braves-mlb-free-agency/
 
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5969498/2025/01/23/jurickson-profar-contract-braves
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/01/23/books/review/8-new-books-we-recommend-this-week.html
 
-**Manchester United 2 Rangers 1 - How close are Amorim's team to qualifying? What was Butland doing?**\
+**The Briefing: Manchester United 2 Rangers 1 - How close are Amorim's team to qualifying? What was Butland doing?**\
 `Analysis of Manchester United's victory over Rangers`\
 https://nytimes.com/athletic/6080712/2025/01/23/manchester-united-rangers-goals-highlights/
-
-**The Briefing - Wrexham 1 Birmingham 1: No Reynolds, McElhenney or Brady, but McClean makes rapid recovery**\
-`Wrexham and Birmingham City battled to a 1-1 draw in a potentially crucial match in the League One promotion battle...`\
-https://nytimes.com/athletic/6083547/2025/01/23/wrexham-1-birmingham-1-mcclean/
 

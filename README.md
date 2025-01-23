@@ -1,3 +1,7 @@
+**A Judge Halted Trump’s Plan to End Birthright Citizenship**\
+`Also, the Sacklers increased their settlement offer, with a catch. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/23/briefing/judge-trump-birthright-citizenship-oscar-nominations.html
+
 **Eli Manning on Giants' QB situation, Hall of Fame and more**\
 `If anyone knows about the pressure and the honor of playing quarterback for the Giants, it's Eli Manning.`\
 https://nytimes.com/athletic/6084315/2025/01/23/eli-manning-giants-qb-coaching-staff-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969498/2025/01/23/jurickson-profar-contract-braves
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/01/23/books/review/8-new-books-we-recommend-this-week.html
-
-**The Briefing: Manchester United 2 Rangers 1 - How close are Amorim's team to qualifying? What was Butland doing?**\
-`Analysis of Manchester United's victory over Rangers`\
-https://nytimes.com/athletic/6080712/2025/01/23/manchester-united-rangers-goals-highlights/
 
