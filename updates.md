@@ -1,3 +1,7 @@
+**'Super impressive' Jaden Springer emerges from nowhere to lead Celtics over Clippers**\
+`The little-used guard got the call when Boston couldn't stop the Clippers' guards. He delivered stout defense and more in an overtime win.`\
+https://nytimes.com/athletic/6082889/2025/01/23/celtics-jaden-springer-clippers-win/
+
 **Billie Jean King Cup Finals move to Shenzhen, China after ITF president speaks with Peng Shuai**\
 `The event will be held in Shenzhen from this year, with a date not yet agreed.`\
 https://nytimes.com/athletic/6082957/2025/01/23/billie-jean-king-cup-finals-tennis-shenzhen-china-peng-shuai/
