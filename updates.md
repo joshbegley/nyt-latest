@@ -1,3 +1,11 @@
+**‘Liza: A Truly Terrific Absolutely True Story’ Review: Her Life as a Cabaret**\
+`The fizzy, determinedly upbeat documentary charts how Liza Minnelli survived Hollywood. It’s inspiring, jaw-dropping and conspicuously incomplete.`\
+https://nytimes.com/2025/01/23/movies/liza-a-truly-terrific-absolutely-true-story-review.html
+
+**Hegseth’s Nomination as Defense Secretary to Face a Test Vote in the Senate**\
+`The vote may indicate whether fresh allegations about his personal conduct that surfaced this week are enough to stop his confirmation.`\
+https://nytimes.com/2025/01/23/us/politics/hegseth-defense-secretary.html
+
 **Ben Shelton's Grand Slam breakout was pure tennis vibes. Now he's doing the math**\
 `When the American is on form, his tennis looks like a flurry of winners and good times. But he's more interested in running the numbers.`\
 https://nytimes.com/athletic/6082818/2025/01/23/ben-shelton-australian-open-grand-slam-tennis-record/

@@ -1,3 +1,11 @@
+**‘Liza: A Truly Terrific Absolutely True Story’ Review: Her Life as a Cabaret**\
+`The fizzy, determinedly upbeat documentary charts how Liza Minnelli survived Hollywood. It’s inspiring, jaw-dropping and conspicuously incomplete.`\
+https://nytimes.com/2025/01/23/movies/liza-a-truly-terrific-absolutely-true-story-review.html
+
+**Hegseth’s Nomination as Defense Secretary to Face a Test Vote in the Senate**\
+`The vote may indicate whether fresh allegations about his personal conduct that surfaced this week are enough to stop his confirmation.`\
+https://nytimes.com/2025/01/23/us/politics/hegseth-defense-secretary.html
+
 **Ben Shelton's Grand Slam breakout was pure tennis vibes. Now he's doing the math**\
 `When the American is on form, his tennis looks like a flurry of winners and good times. But he's more interested in running the numbers.`\
 https://nytimes.com/athletic/6082818/2025/01/23/ben-shelton-australian-open-grand-slam-tennis-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/us/politics/trump-pompeo-security-iran.html
 **Ukraine Is Losing Fewer Soldiers Than Russia — but It’s Still Losing the War**\
 `Russia has lost about twice as many men to death and serious injury as Ukraine. But the trends favor the Kremlin.`\
 https://nytimes.com/2025/01/23/world/europe/ukraine-russia-soldiers-loss.html
-
-**Cats May Have Gotten Bird Flu From Raw Pet Food. Here’s What to Know.**\
-`The cases have spurred new pet food safety rules and poultry surveillance efforts.`\
-https://nytimes.com/2025/01/23/health/bird-flu-cats-food.html
-
-**California Wildfires: A fast-growing fire northwest of L.A. forces thousands to evacuate.**\
-``\
-https://nytimes.com/live/2025/01/23/us/los-angeles-wildfires-california
 
