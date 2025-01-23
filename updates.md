@@ -1,3 +1,7 @@
+**New Brush Fire Breaks Out in L.A., Threatening Bel-Air**\
+`The 20-acre fire was burning on the Sepulveda Pass near Interstate 405, the Getty Museum and the campus of the University of California, Los Angeles.`\
+https://nytimes.com/2025/01/23/us/sepulveda-wildfire-california-los-angeles.html
+
 **City complete Marmoush signing from Frankfurt**\
 `Manchester City have completed the signing of Omar Marmoush from German side Eintracht Frankfurt.`\
 https://nytimes.com/athletic/6069243/2025/01/23/omar-marmoush-man-city-transfer/
