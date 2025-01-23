@@ -1,3 +1,11 @@
+**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
+`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
+https://nytimes.com/athletic/6073696/2025/01/23/bills-chiefs-how-to-watch-odds-picks-betting/
+
+**Patrick Mahomes pushes back on notion referees favor Chiefs**\
+`"I think there were a lot of other plays that decided the outcome of that football game," Mahomes said of the controversial calls.`\
+https://nytimes.com/athletic/6083364/2025/01/23/patrick-mahomes-chiefs-texans-referees/
+
 **With Sahin gone, what next for Borussia Dortmund?**\
 `Niko Kovac is a contender to take charge but whoever comes in is going to find a club far removed from its previous position of strength`\
 https://nytimes.com/athletic/6083109/2025/01/23/borussia-dortmund-niko-kovac/
