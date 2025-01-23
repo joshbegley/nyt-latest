@@ -1,3 +1,15 @@
+**Friday Briefing: Trump Criticizes Europe**\
+`Plus, the Oscar nominations.`\
+https://nytimes.com/2025/01/23/briefing/trump-davos-ukraine-war-deaths-oscar-nominations.html
+
+**Netflix dropping Paris Olympics basketball docuseries in February**\
+`The six-part series will follow the U.S., France, Serbia and Canada in their quest to win gold.`\
+https://nytimes.com/athletic/6084214/2025/01/23/netflix-paris-olympics-basketball-series-release-date/
+
+**Adam Silver: American kids play too many games, leading to overuse injuries**\
+`Speaking in Paris, Silver said he thought some of the NBA's injury problems were caused by "repetition," and kids need to play more sports.`\
+https://nytimes.com/athletic/6084318/2025/01/23/adam-silver-nba-euroleague-youth-basketball/
+
 **At Trump Luncheon, Billionaires Cozy Up to Policymakers**\
 `At President Trump’s inauguration luncheon, billionaires and policymakers came together in an extraordinary commingling of money and power. Theodore Schleifer, who reports on billionaires’ influence in American politics, gives a tour.`\
 https://nytimes.com/video/us/politics/100000009942342/at-trump-luncheon-billionaires-cozy-up-to-policymakers.html
