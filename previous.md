@@ -1,3 +1,11 @@
+**The New Politics of Immigration**\
+`We’re covering President Trump’s deportation plans.`\
+https://nytimes.com/2025/01/23/briefing/immigration-donald-trump.html
+
+**U.K. Teenager Who Killed 3 Girls in Southport Stabbing to Be Sentenced Today**\
+`Axel Rudakubana, 18, pleaded guilty to murder and attempted murder after attacking children and two adults at a dance class last July.`\
+https://nytimes.com/2025/01/23/world/europe/uk-southport-stabbing-sentence-axel-rudakubana.html
+
 **Man City accused of advising Valladolid defender to 'breach his contract'**\
 `Real Valladolid have accused Manchester City of &#8220;appearing to advise&#8221; their centre-back Juma Bah to &#8220;breach his contract&#8221; in order to sign for the Premier League side.`\
 https://nytimes.com/athletic/6080099/2025/01/23/juma-bah-manchester-city-valladolid/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/podcasts/trump-agenda-adhd-study.html
 **Suddenly hot Alex Nedeljkovic hopes to duplicate last season's run that nearly led to playoff berth**\
 `Many of the Penguins think the spark Nedeljkovic provides on and off the ice might be just what they need to make a postseason push. `\
 https://nytimes.com/athletic/6082210/2025/01/23/penguins-alex-nedeljkovic-nhl-playoffs/
-
-**When A.I. Passes This Test, Look Out**\
-`The creators of a new test called “Humanity’s Last Exam” argue we may soon lose the ability to create tests hard enough for A.I. models.`\
-https://nytimes.com/2025/01/23/technology/ai-test-humanitys-last-exam.html
-
-**Trump Plans to Abandon Clean Energy. Can He Do It?**\
-`The president is seeking to double down on oil. Here’s a guide to his chances, and what it would mean if he succeeded.`\
-https://nytimes.com/2025/01/23/podcasts/the-daily/trump-energy-order.html
 

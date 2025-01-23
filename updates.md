@@ -1,3 +1,11 @@
+**The New Politics of Immigration**\
+`We’re covering President Trump’s deportation plans.`\
+https://nytimes.com/2025/01/23/briefing/immigration-donald-trump.html
+
+**U.K. Teenager Who Killed 3 Girls in Southport Stabbing to Be Sentenced Today**\
+`Axel Rudakubana, 18, pleaded guilty to murder and attempted murder after attacking children and two adults at a dance class last July.`\
+https://nytimes.com/2025/01/23/world/europe/uk-southport-stabbing-sentence-axel-rudakubana.html
+
 **Man City accused of advising Valladolid defender to 'breach his contract'**\
 `Real Valladolid have accused Manchester City of &#8220;appearing to advise&#8221; their centre-back Juma Bah to &#8220;breach his contract&#8221; in order to sign for the Premier League side.`\
 https://nytimes.com/athletic/6080099/2025/01/23/juma-bah-manchester-city-valladolid/
