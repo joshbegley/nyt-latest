@@ -1,3 +1,15 @@
+**Garcia set to remain at Barcelona despite January interest**\
+`Eric Garcia is set to stay at Barcelona despite attracting interest from elsewhere in the January transfer window.`\
+https://nytimes.com/athletic/6082872/2025/01/23/eric-garcia-barcelona-transfer/
+
+**Terry McLaurin, the Commanders' 'Transformer' who's deeply respected throughout Washington**\
+`The two-time Pro Bowler is a mentor and tutor off the field and a leader his Washington teammates don't hesitate to follow. `\
+https://nytimes.com/athletic/6081357/2025/01/23/washington-commanders-terry-mclaurin-nfc-championship/
+
+**With Support Dwindling and Trump in Power, Zelensky Could Face Tough Re-election**\
+`The high popularity that the Ukrainian president had in the early days of the Russian invasion, with an approval rating of about 90 percent, has dipped badly.`\
+https://nytimes.com/2025/01/23/world/europe/ukraine-zelensky-trump.html
+
 **Read: Draft Options for G.O.P. Cost Cuts for Tax Bill**\
 `Top Republicans are passing around a 50-page list of ideas on how to cover the cost of a tax cut and immigration crackdown bill.`\
 https://nytimes.com/interactive/2025/01/23/us/politics/republican-tax-spending-cuts-options.html
