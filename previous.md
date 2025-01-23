@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6083657/2025/01/23/rams-matthew-stafford-cooper-kup
 https://nytimes.com/athletic/6077431/2025/01/23/tom-cannon-sheffield-united-transfers/
 
 **Champions League projections: Are we heading for El Clasico in the last 16?**\
-`With the initial stage of the Champions League almost over — we use our projections to work out how who is likely to progress `\
+`With the initial stage of the Champions League almost over, we use our projections to work out how who is likely to progress `\
 https://nytimes.com/athletic/6082982/2025/01/23/champions-league-projections-matchday-eight/
 
 **Tips to Stay Safe if a Hotel Fire Erupts**\
