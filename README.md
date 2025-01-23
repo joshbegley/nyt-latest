@@ -1,3 +1,11 @@
+**Trump criticized California and repeated familiar attacks in the first one-on-one interview of his new term.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/01/23/us/trump-news/trump-criticized-california-and-repeated-familiar-attacks-in-the-first-one-on-one-interview-of-his-new-term
+
+**Israeli Forces Kill 2 Men in Jenin Who They Say Were Wanted for Murder**\
+`The men were affiliated with a militant group, Palestinian Islamic Jihad, that carried out an attack earlier this month, the military said.`\
+https://nytimes.com/2025/01/23/world/middleeast/israel-west-bank-jenin.html
+
 **The New Politics of Immigration**\
 `We’re covering President Trump’s deportation plans.`\
 https://nytimes.com/2025/01/23/briefing/immigration-donald-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6081690/2025/01/23/browns-offseason-myles-garrett-q
 **What makes Andy Reid the screen master? Chiefs players and coaches reveal his genius**\
 `In his 26 years as a head coach, Reid has been an innovator in creating successful screen plays.`\
 https://nytimes.com/athletic/6044189/2025/01/23/kc-chiefs-coach-andy-reid-nfl-playoffs/
-
-**How Republicans Will Try to Pay for Trump’s Agenda, and a New A.D.H.D. Study**\
-`Plus, an A.I. judge at the X Games.`\
-https://nytimes.com/2025/01/23/podcasts/trump-agenda-adhd-study.html
-
-**Suddenly hot Alex Nedeljkovic hopes to duplicate last season's run that nearly led to playoff berth**\
-`Many of the Penguins think the spark Nedeljkovic provides on and off the ice might be just what they need to make a postseason push. `\
-https://nytimes.com/athletic/6082210/2025/01/23/penguins-alex-nedeljkovic-nhl-playoffs/
 
