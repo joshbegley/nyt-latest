@@ -1,3 +1,11 @@
+**‘Truck Stop Serial Killer’ Is Found Guilty of a Third Murder**\
+`Bruce Mendenhall was convicted Wednesday in the 2007 killing of Carma Purpura, an Indiana woman with whom he had been speaking at a truck stop.`\
+https://nytimes.com/2025/01/23/us/truck-stop-serial-killer-guilty.html
+
+**Astros re-engage in talks with Alex Bregman: Sources**\
+`Houston is also shopping reliever Ryan Pressly, who has a no-trade clause.`\
+https://nytimes.com/athletic/6084614/2025/01/23/astros-alex-bregman-free-agent-discussions/
+
 **Los Angeles Schools Reopen to Relief, Though Some Parents Worry About Toxins**\
 `Many educators and families were thrilled to get back to some routines as a handful of schools reopened after weeks of closures. Others were worried about remaining dangers in fire-hit areas.`\
 https://nytimes.com/2025/01/23/us/los-angeles-fire-school-closures-toxins.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/t-magazine/chicken-broth-winter-soup-recipe.html
 **Yann Nury’s Easy Chicken Stock**\
 `This recipe produces a flavorful golden broth with excellent clarity — achieved with a surprisingly simple technique.`\
 https://nytimes.com/video/t-magazine/100000009926528/yann-nurys-easy-chicken-stock.html
-
-**Man United's Garnacho 'improving in every aspect' - Amorim**\
-`Ruben Amorim has said Alejandro Garnacho is &#8220;improving in every aspect of the game&#8221; amid speculation over his Manchester United future.`\
-https://nytimes.com/athletic/6084706/2025/01/23/alejandro-garnacho-manchester-united-future/
-
-**Hornets' Brandon Miller undergoes surgery, out for rest of season**\
-`Miller, 22, sustained the injury on Jan. 15 during the Hornets’ 117-112 victory over the Utah Jazz.`\
-https://nytimes.com/athletic/6084491/2025/01/23/brandon-miller-out-for-season-wrist-surgery/
 

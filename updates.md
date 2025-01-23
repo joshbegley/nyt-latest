@@ -1,3 +1,11 @@
+**‘Truck Stop Serial Killer’ Is Found Guilty of a Third Murder**\
+`Bruce Mendenhall was convicted Wednesday in the 2007 killing of Carma Purpura, an Indiana woman with whom he had been speaking at a truck stop.`\
+https://nytimes.com/2025/01/23/us/truck-stop-serial-killer-guilty.html
+
+**Astros re-engage in talks with Alex Bregman: Sources**\
+`Houston is also shopping reliever Ryan Pressly, who has a no-trade clause.`\
+https://nytimes.com/athletic/6084614/2025/01/23/astros-alex-bregman-free-agent-discussions/
+
 **Los Angeles Schools Reopen to Relief, Though Some Parents Worry About Toxins**\
 `Many educators and families were thrilled to get back to some routines as a handful of schools reopened after weeks of closures. Others were worried about remaining dangers in fire-hit areas.`\
 https://nytimes.com/2025/01/23/us/los-angeles-fire-school-closures-toxins.html
