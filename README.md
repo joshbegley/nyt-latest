@@ -1,3 +1,7 @@
+**Walker set to join Milan on loan from Man City**\
+`Manchester City defender Kyle Walker is flying to Milan today (Thursday) to complete his loan move to the Serie A club.`\
+https://nytimes.com/athletic/6054654/2025/01/23/kyle-walker-milan-transfer-manchester-city/
+
 **City complete Marmoush signing from Frankfurt**\
 `Manchester City have completed the signing of Omar Marmoush from German side Eintracht Frankfurt.`\
 https://nytimes.com/athletic/6069243/2025/01/23/omar-marmoush-man-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/arts/television/late-night-trump-bishop-church.ht
 **Inside the injury crisis that threatens to wreck Tottenham's season**\
 `Spurs had high hopes for this season, but an ever-worsening injury crisis has stifled them - could it have been avoided?`\
 https://nytimes.com/athletic/6077551/2025/01/23/tottenham-injury-crisis/
-
-**Robbie Williams to perform song for inaugural Club World Cup**\
-`British singer and songwriter Robbie Williams’ new ambassadorial role at FIFA will see him perform a song for this year’s FIFA Club World Cup in the United States.`\
-https://nytimes.com/athletic/6082791/2025/01/23/robbie-williams-club-world-cup/
 
