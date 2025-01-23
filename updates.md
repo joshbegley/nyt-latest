@@ -1,3 +1,11 @@
+**The Bishop and the President: A Plea, Unrequited**\
+`Reaction to Bishop Mariann Edgar Budde’s plea to President Trump. Also: Birthright citizenship; reporting on co-workers; a road to autocracy; post-disaster trauma.`\
+https://nytimes.com/2025/01/23/opinion/bishop-trump-plea.html
+
+**West Ham negotiating to sign RB Leipzig's Silva on loan**\
+`West Ham United are in negotiations with RB Leipzig to sign Andre Silva on a loan deal with an option to buy.`\
+https://nytimes.com/athletic/6083902/2025/01/23/andre-silva-west-ham-transfers/
+
 **Seven Police Officers Are Shot While Responding to Suicide Call in Texas**\
 `The officers went to an apartment in San Antonio and were shot by a barricaded man, who was found dead, the authorities said.`\
 https://nytimes.com/2025/01/23/us/police-shooting-texas-san-antonio.html

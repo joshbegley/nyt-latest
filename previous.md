@@ -1,3 +1,11 @@
+**The Bishop and the President: A Plea, Unrequited**\
+`Reaction to Bishop Mariann Edgar Budde’s plea to President Trump. Also: Birthright citizenship; reporting on co-workers; a road to autocracy; post-disaster trauma.`\
+https://nytimes.com/2025/01/23/opinion/bishop-trump-plea.html
+
+**West Ham negotiating to sign RB Leipzig's Silva on loan**\
+`West Ham United are in negotiations with RB Leipzig to sign Andre Silva on a loan deal with an option to buy.`\
+https://nytimes.com/athletic/6083902/2025/01/23/andre-silva-west-ham-transfers/
+
 **Seven Police Officers Are Shot While Responding to Suicide Call in Texas**\
 `The officers went to an apartment in San Antonio and were shot by a barricaded man, who was found dead, the authorities said.`\
 https://nytimes.com/2025/01/23/us/police-shooting-texas-san-antonio.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6083741/2025/01/23/bill-belichick-contract-details-
 **Arsenal's transfer dilemma - buy now or wait for summer?**\
 `Arsenal do need something more - but what appears a straightforward requirement is actually a big moment strategically`\
 https://nytimes.com/athletic/6083699/2025/01/23/arsenal-transfer-dilemma-options/
-
-**5 Paths Through the Winter Show, an Exhibition of Earthly Delights**\
-`The fair, with 77 exhibitors, is a mini-museum, featuring arts, antiquities and design objects, from old masters to art jewelry.`\
-https://nytimes.com/2025/01/23/arts/design/winter-show-park-avenue-armory.html
-
-**McVay not definitive yet on futures of Rams stars Stafford, Kupp**\
-`Rams coach Sean McVay spoke about contributions from Matthew Stafford and Cooper Kupp, as well as Rob Havenstein and Tyler Higbee. `\
-https://nytimes.com/athletic/6083657/2025/01/23/rams-matthew-stafford-cooper-kupp-future-sean-mcvay/
 
