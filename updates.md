@@ -1,3 +1,43 @@
+**Carmelo Anthony gave emotional testimony in $500m U.S. soccer trial**\
+`An NBA great cut an unusual figure on the witness stand in American soccer's biggest trial in years`\
+https://nytimes.com/athletic/6082785/2025/01/23/why-carmelo-anthony-provided-emotional-testimony-in-a-500m-american-soccer-trial/
+
+**How the Browns' offseason could play out: Draft a QB, consider trading Myles Garrett**\
+`Zac Jackson shares some of his gut feelings as we inch closer toward decisions being made on Cleveland 2025 roster. `\
+https://nytimes.com/athletic/6081690/2025/01/23/browns-offseason-myles-garrett-quarterback-draft/
+
+**What makes Andy Reid the screen master? Chiefs players and coaches reveal his genius**\
+`In his 26 years as a head coach, Reid has been an innovator in creating successful screen plays.`\
+https://nytimes.com/athletic/6044189/2025/01/23/kc-chiefs-coach-andy-reid-nfl-playoffs/
+
+**How Republicans Will Try to Pay for Trump’s Agenda, and a New A.D.H.D. Study**\
+`Plus, an A.I. judge at the X Games.`\
+https://nytimes.com/2025/01/23/podcasts/trump-agenda-adhd-study.html
+
+**Suddenly hot Alex Nedeljkovic hopes to duplicate last season's run that nearly led to playoff berth**\
+`Many of the Penguins think the spark Nedeljkovic provides on and off the ice might be just what they need to make a postseason push. `\
+https://nytimes.com/athletic/6082210/2025/01/23/penguins-alex-nedeljkovic-nhl-playoffs/
+
+**When A.I. Passes This Test, Look Out**\
+`The creators of a new test called “Humanity’s Last Exam” argue we may soon lose the ability to create tests hard enough for A.I. models.`\
+https://nytimes.com/2025/01/23/technology/ai-test-humanitys-last-exam.html
+
+**Trump Plans to Abandon Clean Energy. Can He Do It?**\
+`The president is seeking to double down on oil. Here’s a guide to his chances, and what it would mean if he succeeded.`\
+https://nytimes.com/2025/01/23/podcasts/the-daily/trump-energy-order.html
+
+**What I'm hearing about the Blackhawks as the trade deadline approaches**\
+`What happens with Lukas Reichel will be interesting to watch, plus why Chris O'Hearn was hired as vice president of hockey operations.`\
+https://nytimes.com/athletic/6081169/2025/01/23/nhl-blackhawks-trade-deadline/
+
+**How women's football could change English football's 40-year alcohol ban**\
+`Will the alcohol trial in the women's Championship become permanent or end up on the cutting room floor? `\
+https://nytimes.com/athletic/6075103/2025/01/23/womens-championship-alcohol-trial/
+
+**The Connections Companion No. 593**\
+`Scroll down for hints and conversation about the puzzle for Friday, Jan. 24, 2025.`\
+https://nytimes.com/2025/01/23/crosswords/connections-companion-593.html
+
 **South Korea Tells Budget Airlines to Tighten Safety After Crash**\
 `Following the deadly Jeju Air accident, the government ordered low cost carriers to reduce flight times, boost pilot training and expand maintenance crews.`\
 https://nytimes.com/2025/01/23/world/asia/south-korea-air-crash-safety.html

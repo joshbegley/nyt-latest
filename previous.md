@@ -1,40 +1,40 @@
-**South Korea Tells Budget Airlines to Tighten Safety After Crash**\
-`Following the deadly Jeju Air accident, the government ordered low cost carriers to reduce flight times, boost pilot training and expand maintenance crews.`\
-https://nytimes.com/2025/01/23/world/asia/south-korea-air-crash-safety.html
+**Carmelo Anthony gave emotional testimony in $500m U.S. soccer trial**\
+`An NBA great cut an unusual figure on the witness stand in American soccer's biggest trial in years`\
+https://nytimes.com/athletic/6082785/2025/01/23/why-carmelo-anthony-provided-emotional-testimony-in-a-500m-american-soccer-trial/
 
-**Juventus agree loan deal for Chelsea's Veiga**\
-`Chelsea have verbally agreed a deal to send Renato Veiga on loan to Juventus.`\
-https://nytimes.com/athletic/6056379/2025/01/23/renato-veiga-juventus-chelsea/
+**How the Browns' offseason could play out: Draft a QB, consider trading Myles Garrett**\
+`Zac Jackson shares some of his gut feelings as we inch closer toward decisions being made on Cleveland 2025 roster. `\
+https://nytimes.com/athletic/6081690/2025/01/23/browns-offseason-myles-garrett-quarterback-draft/
 
-**Garcia set to remain at Barcelona despite January interest**\
-`Eric Garcia is set to stay at Barcelona despite attracting interest from elsewhere in the January transfer window.`\
-https://nytimes.com/athletic/6082872/2025/01/23/eric-garcia-barcelona-transfer/
+**What makes Andy Reid the screen master? Chiefs players and coaches reveal his genius**\
+`In his 26 years as a head coach, Reid has been an innovator in creating successful screen plays.`\
+https://nytimes.com/athletic/6044189/2025/01/23/kc-chiefs-coach-andy-reid-nfl-playoffs/
 
-**Terry McLaurin, the Commanders' 'Transformer' who's deeply respected throughout Washington**\
-`The two-time Pro Bowler is a mentor and tutor off the field and a leader his Washington teammates don't hesitate to follow. `\
-https://nytimes.com/athletic/6081357/2025/01/23/washington-commanders-terry-mclaurin-nfc-championship/
+**How Republicans Will Try to Pay for Trump’s Agenda, and a New A.D.H.D. Study**\
+`Plus, an A.I. judge at the X Games.`\
+https://nytimes.com/2025/01/23/podcasts/trump-agenda-adhd-study.html
 
-**With Support Dwindling and Trump in Power, Zelensky Could Face Tough Re-election**\
-`The high popularity that the Ukrainian president had in the early days of the Russian invasion, with an approval rating of about 90 percent, has dipped badly.`\
-https://nytimes.com/2025/01/23/world/europe/ukraine-zelensky-trump.html
+**Suddenly hot Alex Nedeljkovic hopes to duplicate last season's run that nearly led to playoff berth**\
+`Many of the Penguins think the spark Nedeljkovic provides on and off the ice might be just what they need to make a postseason push. `\
+https://nytimes.com/athletic/6082210/2025/01/23/penguins-alex-nedeljkovic-nhl-playoffs/
 
-**Read: Draft Options for G.O.P. Cost Cuts for Tax Bill**\
-`Top Republicans are passing around a 50-page list of ideas on how to cover the cost of a tax cut and immigration crackdown bill.`\
-https://nytimes.com/interactive/2025/01/23/us/politics/republican-tax-spending-cuts-options.html
+**When A.I. Passes This Test, Look Out**\
+`The creators of a new test called “Humanity’s Last Exam” argue we may soon lose the ability to create tests hard enough for A.I. models.`\
+https://nytimes.com/2025/01/23/technology/ai-test-humanitys-last-exam.html
 
-**Aryna Sabalenka into third Australian Open final after beating Paula Badosa**\
-`Sabalenka overwhelmed her good friend to set up a final against Iga Swiatek or Madison Keys in Melbourne.`\
-https://nytimes.com/athletic/6082949/2025/01/23/aryna-sabalenka-australian-open-semifinal-result-analysis-paula-badosa/
+**Trump Plans to Abandon Clean Energy. Can He Do It?**\
+`The president is seeking to double down on oil. Here’s a guide to his chances, and what it would mean if he succeeded.`\
+https://nytimes.com/2025/01/23/podcasts/the-daily/trump-energy-order.html
 
-**The buzzer-beating Blakes siblings: Jaylen and Mikayla hit game-winners on same weekend**\
-`Jaylen, a senior, lifted Stanford to an upset at UNC. Mikayla, a freshman, delivered the game-winner for Vanderbilt over Tennessee.`\
-https://nytimes.com/athletic/6081175/2025/01/23/college-basketball-siblings-blakes-winning-shot/
+**What I'm hearing about the Blackhawks as the trade deadline approaches**\
+`What happens with Lukas Reichel will be interesting to watch, plus why Chris O'Hearn was hired as vice president of hockey operations.`\
+https://nytimes.com/athletic/6081169/2025/01/23/nhl-blackhawks-trade-deadline/
 
-**Rob Dillingham believes he's ready for the NBA spotlight, but do the Timberwolves agree?**\
-`There will be ups and downs for a player so young in such a demanding position. But the juice Dillingham is bringing is undeniable.`\
-https://nytimes.com/athletic/6072278/2025/01/23/rob-dillingham-nba-spotlight-timberwolves/
+**How women's football could change English football's 40-year alcohol ban**\
+`Will the alcohol trial in the women's Championship become permanent or end up on the cutting room floor? `\
+https://nytimes.com/athletic/6075103/2025/01/23/womens-championship-alcohol-trial/
 
-**Ranking Panthers' unrestricted free agents: Does Andy Dalton return? New kicker in 2025?**\
-`Brian Burns and Frankie Luvu were among the players who left last season. Who will the Panthers prioritize among their own this time?`\
-https://nytimes.com/athletic/6081684/2025/01/23/panthers-unrestricted-free-agent-rankings/
+**The Connections Companion No. 593**\
+`Scroll down for hints and conversation about the puzzle for Friday, Jan. 24, 2025.`\
+https://nytimes.com/2025/01/23/crosswords/connections-companion-593.html
 
