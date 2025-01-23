@@ -1,3 +1,7 @@
+**Ferguson set for Brighton talks over January loan decision**\
+`Brighton &amp; Hove Albion striker Evan Ferguson is set for talks with the club to decide whether he will be loaned out before the end of the January transfer window.`\
+https://nytimes.com/athletic/6083420/2025/01/23/evan-ferguson-brighton-loan-talks/
+
 **Mikaela Shiffrin to return to World Cup skiing two months after injury**\
 `Mikaela Shiffrin will return to World Cup racing next week in Courchevel, France, she announced Thursday. `\
 https://nytimes.com/athletic/6080343/2025/01/23/mikaela-shiffrin-return-injury-world-cup-olympics/

@@ -1,3 +1,7 @@
+**Ferguson set for Brighton talks over January loan decision**\
+`Brighton &amp; Hove Albion striker Evan Ferguson is set for talks with the club to decide whether he will be loaned out before the end of the January transfer window.`\
+https://nytimes.com/athletic/6083420/2025/01/23/evan-ferguson-brighton-loan-talks/
+
 **Mikaela Shiffrin to return to World Cup skiing two months after injury**\
 `Mikaela Shiffrin will return to World Cup racing next week in Courchevel, France, she announced Thursday. `\
 https://nytimes.com/athletic/6080343/2025/01/23/mikaela-shiffrin-return-injury-world-cup-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6082687/2025/01/23/joe-mixon-fine-nfl-officiating-c
 **Passengers Fled a Train Over Fears of a Fire. Then Another Train Hit Them.**\
 `Twelve people were killed in India after they disembarked a train bound for Mumbai, only to be struck by another train, the authorities said.`\
 https://nytimes.com/2025/01/23/world/asia/india-train-accident-maharashtra.html
-
-**The War on D.E.I. Heats Up**\
-`President Trump’s campaign to end diversity, equity and inclusion policies has begun in federal agencies, and is jolting corporate America as well.`\
-https://nytimes.com/2025/01/23/business/dealbook/trump-diversity-equity-inclusion.html
 
