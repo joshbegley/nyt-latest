@@ -1,3 +1,15 @@
+**The War on D.E.I. Heats Up**\
+`President Trump’s campaign to end diversity, equity and inclusion policies has begun in federal agencies, and is jolting corporate America as well.`\
+https://nytimes.com/2025/01/23/business/dealbook/trump-diversity-equity-inclusion.html
+
+**2025 Oscar Nominations to Be Unveiled**\
+`The nominations are being announced at the academy’s Beverly Hills headquarters in an early-morning ceremony.`\
+https://nytimes.com/2025/01/23/movies/oscar-nominations-academy-awards.html
+
+**Madison Keys upsets Iga Swiatek to reach Australian Open final against Aryna Sabalenka**\
+`The American will face world No. 1 Sabalenka in search of her first Grand Slam title.`\
+https://nytimes.com/athletic/6083180/2025/01/23/iga-swiatek-australian-open-semifinal-result-analysis-madison-keys/
+
 **Omobamidele set to move on loan to Strasbourg**\
 `Nottingham Forest defender Andrew Omobamidele is expected to complete a move to French club Strasbourg.`\
 https://nytimes.com/athletic/6083154/2025/01/23/andrew-omobamidele-strasbourg-transfer/
