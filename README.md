@@ -1,3 +1,7 @@
+**South Korea Tells Budget Airlines to Tighten Safety After Crash**\
+`Following the deadly Jeju Air accident, the government ordered low cost carriers to reduce flight times, boost pilot training and expand maintenance crews.`\
+https://nytimes.com/2025/01/23/world/asia/south-korea-air-crash-safety.html
+
 **Juventus agree loan deal for Chelsea's Veiga**\
 `Chelsea have verbally agreed a deal to send Renato Veiga on loan to Juventus.`\
 https://nytimes.com/athletic/6056379/2025/01/23/renato-veiga-juventus-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6072278/2025/01/23/rob-dillingham-nba-spotlight-tim
 **Ranking Panthers' unrestricted free agents: Does Andy Dalton return? New kicker in 2025?**\
 `Brian Burns and Frankie Luvu were among the players who left last season. Who will the Panthers prioritize among their own this time?`\
 https://nytimes.com/athletic/6081684/2025/01/23/panthers-unrestricted-free-agent-rankings/
-
-**Top offseason to-do list items for Rams, starting with QB Matthew Stafford**\
-`Figuring out Stafford's next step is key for the Rams, along with decisions on high-priced veterans and the O-line.`\
-https://nytimes.com/athletic/6081931/2025/01/23/rams-offseason-to-do-list-matthew-stafford/
 
