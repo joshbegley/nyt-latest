@@ -1,3 +1,7 @@
+**Trump Re-Labels Yemen’s Houthi Rebels as Terrorists**\
+`The move will authorize harsher penalties on the Iran-backed group, which has attacked Israel and disrupted global shipping trade in the Red Sea for over a year.`\
+https://nytimes.com/2025/01/23/world/middleeast/trump-yemen-houthi-rebels-terrorists.html
+
 **‘Liza: A Truly Terrific Absolutely True Story’ Review: Her Life as a Cabaret**\
 `The fizzy, determinedly upbeat documentary charts how Liza Minnelli survived Hollywood. It’s inspiring, jaw-dropping and conspicuously incomplete.`\
 https://nytimes.com/2025/01/23/movies/liza-a-truly-terrific-absolutely-true-story-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083507/2025/01/23/lamar-jackson-josh-allen-saquon-
 **Trump Revokes Security Detail for Pompeo and Others Despite Threats From Iran**\
 `The officials had been part of an aggressive posture against Iran during President Trump’s first term.`\
 https://nytimes.com/2025/01/23/us/politics/trump-pompeo-security-iran.html
-
-**Ukraine Is Losing Fewer Soldiers Than Russia — but It’s Still Losing the War**\
-`Russia has lost about twice as many men to death and serious injury as Ukraine. But the trends favor the Kremlin.`\
-https://nytimes.com/2025/01/23/world/europe/ukraine-russia-soldiers-loss.html
 
