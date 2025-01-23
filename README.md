@@ -1,3 +1,15 @@
+**Trump Threatens E.U. With Tariffs at World Economic Forum**\
+`Speaking at the World Economic Forum, President Trump criticized the European Union for what he described as “unfair” trading practices.`\
+https://nytimes.com/video/us/politics/100000009945063/trump-davos-address-tariffs.html
+
+**After his Jan. 6 case was dropped, a Florida man is arrested on a gun charge.**\
+`By Christine Hauser`\
+https://nytimes.com/live/2025/01/23/us/trump-news/after-his-jan-6-case-was-dropped-a-florida-man-is-arrested-on-a-gun-charge
+
+**Ichiro to Hall of Fame voter who didn't vote for him: Let's have a drink and chat**\
+`At the Hall of Fame press conference, Ichiro joined the ranks of many people around the globe in wondering why he didn’t get that one vote. `\
+https://nytimes.com/athletic/6083972/2025/01/23/ichiro-invitiation-hall-of-fame-voter/
+
 **Man United admit financial losses put club at risk of PSR breach**\
 `Manchester United have admitted that they are at risk of breaching the Premier League&#8217;s profitability and sustainability rules (PSR) unless they reverse their repeated financial losses.`\
 https://nytimes.com/athletic/6084108/2025/01/23/manchester-united-psr-cash-losses/
@@ -25,17 +37,4 @@ https://nytimes.com/2025/01/23/world/europe/trump-europe-right-immigration-ukrai
 **Heat Today: Dwyane Wade on Jimmy Butler-Miami relationship: It’s ending tragically**\
 `Heat legend shared candid remarks on Jimmy Butler's relationship with the franchise as tension keeps growing`\
 https://nytimes.com/athletic/6083584/2025/01/23/dwyane-wade-jimmy-butler-pat-riley-trade-deadline-heat-nba/
-
-**Tell Us How It Feels to Be a Federal Employee Right Now**\
-`We want to know what you think about the changes President Trump is making to federal government jobs. How are the administration’s new policies going to affect you and your work?`\
-https://nytimes.com/2025/01/23/us/politics/federal-workers-callout-trump.html
-
-**Scoop City: Comparing Mahomes and Allen ahead of the AFC Championship**\
-`&nbsp;
-Today, we&#8217;re covering the quarterbacks in the AFC Championship, Jacksonville&#8217;s big change, the new Jets head coach and your thoughts on Lamar Jackson&#8217;s playoff struggles.`\
-https://nytimes.com/athletic/6083936/2025/01/23/afc-championships-quarterback-mahomes-allen-comparison-nfl-scoop-city/
-
-**Judge Temporarily Blocks Trump’s Plan to End Birthright Citizenship**\
-`A federal judge in Seattle has issued a temporary order halting the president’s plan.`\
-https://nytimes.com/2025/01/23/us/politics/judge-blocks-birthright-citizenship.html
 
