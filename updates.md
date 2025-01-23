@@ -1,3 +1,7 @@
+**Trump Picks Conservative Activist to Lead U.S. Media Agency**\
+`L. Brent Bozell III, once a critic of President Trump, now runs an organization that criticizes the media for perceived bias against Republicans, particularly Mr. Trump.`\
+https://nytimes.com/2025/01/22/us/politics/trump-picks-conservative-activist-to-lead-us-media-agency.html
+
 **White House to Old Staff: Go Home. Don’t Call Us. We’ll Call You.**\
 `President Trump is taking dramatic steps in seeking to place his stamp on the federal bureaucracy.`\
 https://nytimes.com/2025/01/22/us/politics/trump-biden-white-house-nsc.html
