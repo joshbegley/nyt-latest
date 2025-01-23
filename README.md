@@ -1,9 +1,13 @@
+**City complete Marmoush signing from Frankfurt**\
+`Manchester City have completed the signing of Omar Marmoush from German side Eintracht Frankfurt.`\
+https://nytimes.com/athletic/6069243/2025/01/23/omar-marmoush-man-city-transfer/
+
 **New Brush Fire Breaks Out in L.A., Threatening Area Near U.C.L.A.**\
 `The 20-acre fire was burning on the Sepulveda Pass near Interstate 5, the Getty Museum and the campus of the University of California, Los Angeles.`\
 https://nytimes.com/2025/01/23/us/sepulveda-wildfire-california-los-angeles.html
 
 **Vinicius brings up Real Madrid century - but will (another) booking prove costly?**\
-`There were blemishes, a yellow card but two goals for the Brazil star as Real Madrid powered past Salzburg to stay in hunt for top eight`\
+`A yellow card rules him out of Brest game but Brazil star scored twice as Real Madrid powered past Salzburg to stay in hunt for top eight`\
 https://nytimes.com/athletic/6082397/2025/01/23/real-madrid-vinicius-100-goals-booking-champions-league/
 
 **Saudi Arabia Says It Will Increase U.S. Trade and Investment by $600 Billion**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077551/2025/01/23/tottenham-injury-crisis/
 **Robbie Williams to perform song for inaugural Club World Cup**\
 `British singer and songwriter Robbie Williams’ new ambassadorial role at FIFA will see him perform a song for this year’s FIFA Club World Cup in the United States.`\
 https://nytimes.com/athletic/6082791/2025/01/23/robbie-williams-club-world-cup/
-
-**Farke is loved at Norwich but is still searching for that same affection at Leeds**\
-`The visit of Norwich to Elland Road demonstrated how much their fans still love their former manager but Leeds supporters are still divided`\
-https://nytimes.com/athletic/6082469/2025/01/23/daniel-farke-leeds-norwich/
 
