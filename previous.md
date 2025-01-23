@@ -1,3 +1,15 @@
+**Mariano Rivera and Wife Covered Up Sex Abuse of Child, Lawsuit Claims**\
+`The Yankees pitcher and his wife are named in a suit that says a young girl was assaulted at properties connected to a church they helped found and at their home in Westchester County, N.Y.`\
+https://nytimes.com/2025/01/22/nyregion/mariano-rivera-child-sex-abuse.html
+
+**Andrew Puzder Is Trump’s Choice for Ambassador to the European Union**\
+`Mr. Puzder, a former fast food executive, was nominated in 2017 to be President Trump’s labor secretary, but he withdrew amid bipartisan scrutiny of his business record and character.`\
+https://nytimes.com/2025/01/22/us/politics/andrew-puzder-trump-ambassador-european-union.html
+
+**Trump Administration Temporarily Mutes Federal Health Officials**\
+`Scientific meetings were canceled, and research data on the bird flu outbreak was delayed, amid confusion over the directive.`\
+https://nytimes.com/2025/01/22/health/trump-health-communications.html
+
 **Two Hawaiian Brothers Say That Police Framed Them in a 1991 Murder**\
 `Ian and Shawn Schweitzer argued in a federal lawsuit that local police had failed to arrest a leading suspect.`\
 https://nytimes.com/2025/01/22/us/hawaii-tourist-murder-brothers-framed.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
 **The Real Protection Hegseth Has Is MAGA Loyalty — and Liberal Scorn**\
 `Party loyalty remains strong even for nominees who go down. Pete Hegseth’s no different, but the Trump era has strengthened it even more.`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/pete-hegseth-republicans-trump-loyalty
-
-**Trump Picks Conservative Activist to Lead U.S. Media Agency**\
-`L. Brent Bozell III, once a critic of President Trump, now runs an organization that criticizes the media for perceived bias against Republicans, particularly Mr. Trump.`\
-https://nytimes.com/2025/01/22/us/politics/trump-picks-conservative-activist-to-lead-us-media-agency.html
-
-**White House to Old Staff: Go Home. Don’t Call Us. We’ll Call You.**\
-`President Trump is taking dramatic steps in seeking to place his stamp on the federal bureaucracy.`\
-https://nytimes.com/2025/01/22/us/politics/trump-biden-white-house-nsc.html
-
-**Sean Combs Files Defamation Suit Against Man Who Said He Had Sex Tapes**\
-`The lawsuit names Courtney Burgess, a one-time music industry bit player, his lawyer and the owner of the cable network NewsNation, which aired an interview with Mr. Burgess.`\
-https://nytimes.com/2025/01/22/arts/music/sean-combs-diddy-sex-tapes-lawsuit.html
 
