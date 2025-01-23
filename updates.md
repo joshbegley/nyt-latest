@@ -1,3 +1,7 @@
+**Man United's Garnacho 'improving in every aspect' - Amorim**\
+`Ruben Amorim has said Alejandro Garnacho is &#8220;improving in every aspect of the game&#8221; amid speculation over his Manchester United future.`\
+https://nytimes.com/athletic/6084706/2025/01/23/alejandro-garnacho-manchester-united-future/
+
 **Hornets' Brandon Miller undergoes surgery, out for rest of season**\
 `Miller, 22, sustained the injury on Jan. 15 during the Hornets’ 117-112 victory over the Utah Jazz.`\
 https://nytimes.com/athletic/6084491/2025/01/23/brandon-miller-out-for-season-wrist-surgery/
