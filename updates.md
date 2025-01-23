@@ -1,3 +1,15 @@
+**Billie Jean King Cup Finals move to Shenzhen, China after ITF president speaks with Peng Shuai**\
+`The event will be held in Shenzhen from this year, with a date not yet agreed.`\
+https://nytimes.com/athletic/6082957/2025/01/23/billie-jean-king-cup-finals-tennis-shenzhen-china-peng-shuai/
+
+**The Pulse: Another NFL coaching spot gone**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6081964/2025/01/23/nfl-coaching-carousel-aaron-glenn-the-pulse/
+
+**The Athletic FC: City slippers - Does Euro exit await? Plus: Bellingham's beautiful backheel**\
+`Today in TAFC: City on the brink of Champions league exit, full standings, Bellingham's backheel brilliance and the oldest football rivalry `\
+https://nytimes.com/athletic/6082986/2025/01/23/manchester-city-champions-league-exit-bellingham-backheel/
+
 **Listen: How would Andoni Iraola fare at a 'bigger' club?**\
 `High-flying Bournemouth and their manager Andoni Iraola are discussed on the latest episode of The Athletic FC Podcast`\
 https://nytimes.com/athletic/6082935/2025/01/23/athletic-fc-podcast-andoni-iraola/
