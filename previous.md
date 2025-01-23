@@ -1,4 +1,4 @@
-**Robbie Williams to perform at inaugural Club World Cup**\
+**Robbie Williams to perform song for inaugural Club World Cup**\
 `British singer and songwriter Robbie Williams’ new ambassadorial role at FIFA will see him perform a song for this year’s FIFA Club World Cup in the United States.`\
 https://nytimes.com/athletic/6082791/2025/01/23/robbie-williams-club-world-cup/
 
