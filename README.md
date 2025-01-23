@@ -1,3 +1,7 @@
+**Word of the Day: imprimatur**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/23/learning/word-of-the-day-imprimatur.html
+
 **Arteta wants more goals from midfield and Arsenal delivered against Dinamo Zagreb**\
 `Declan Rice and Martin Odegaard both scored on Wednesday and Arsenal do need an uplift in goals from that area of the pitch`\
 https://nytimes.com/athletic/6082260/2025/01/23/arsenal-dinamo-zagreb-midfield-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080098/2025/01/23/west-ham-jean-clair-todibo-trans
 **Jackson isn't the problem for Chelsea. They need more consistent goal threats**\
 `While Jackson still has plenty of room for improvement, Chelsea’s issue in attack is that they need more production from their wingers`\
 https://nytimes.com/athletic/6080450/2025/01/23/nicolas-jackson-chelsea-finishing-analysis/
-
-**How Wolves handle the Cunha situation could define their season**\
-`There are no offers for Cunha on the table but that might change in the coming days and Wolves could then have a very big call to make`\
-https://nytimes.com/athletic/6080410/2025/01/23/matheus-cunha-wolves-future/
 
