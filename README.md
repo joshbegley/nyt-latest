@@ -1,3 +1,23 @@
+**The next 11 days could be make or break for Leicester's season**\
+`The club need signings in the final two weeks of the winter window and to end their losing run - failing to do either may prove disastrous`\
+https://nytimes.com/athletic/6080149/2025/01/23/leicester-fans-ownership-problems/
+
+**Stefan Bajcetic's Salzburg struggles: What next for the Liverpool loanee?**\
+`It is nearly two years since Bajcetic started for Liverpool against Real Madrid but he has found limited opportunities at Salzburg`\
+https://nytimes.com/athletic/6080808/2025/01/23/stefan-bajcetic-salzburg-liverpool-madrid/
+
+**Manchester City's cycle of woe: Recurring injuries, tired bodies and weak displays**\
+`Manchester City's Champions League loss to PSG was caused by the same issues that have plagued them all season long. The cycle continues`\
+https://nytimes.com/athletic/6082082/2025/01/23/manchester-city-defeat-paris-saint-germain/
+
+**'It's special': Blue Jackets' Adam Fantilli scores first career hat trick in hometown**\
+`Fantilli recorded his first career hat trick in front of his friends and family at Scotiabank Arena in Toronto.`\
+https://nytimes.com/athletic/6082580/2025/01/23/blue-jackets-adam-fantilli-hat-trick/
+
+**Why Manchester United have a cash problem**\
+`Manchester United are trying to reshape their squad to better suit Ruben Amorim, but they have a significant cash problem to solve, too`\
+https://nytimes.com/athletic/6080398/2025/01/23/manchester-united-transfer-cash-problem/
+
 **Lots of shots, zero goals: Analysing European football's most wasteful players**\
 `The most profligate players in Europe's top five leagues are a mixture of ambitious defenders, hopeful midfielders and wasteful strikers`\
 https://nytimes.com/athletic/6075957/2025/01/23/european-top-five-leagues-worst-shooters/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/23/business/victor-wembanyama-nba-france.html
 **Map: 5.7-Magnitude Earthquake Strikes the Philippines**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/22/world/22wea-quake-tracker-philippines-nytduwzp.html
-
-**Cavs drop rare game vs. West as Garland misses potential game-winning FTs**\
-`Garland is a 90 percent free-throw shooter.`\
-https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
-
-**Leafs' Matthews after Reaves-Olivier fight: Wanted 'more energy' from crowd**\
-`Reaves dropped the gloves with Olivier less than two minutes into the first period of the Leafs' loss Wednesday.`\
-https://nytimes.com/athletic/6082577/2025/01/22/auston-matthews-ryan-reaves-fight-comments-maple-leafs/
-
-**Maple Leafs report cards: Lack of finish wastes solid effort against Columbus**\
-`The Leafs looked like the better team for most of the game, but couldn't solve Columbus goalie Elvis Merzlikins.`\
-https://nytimes.com/athletic/6082573/2025/01/22/maple-leafs-report-cards-hildeby-nylander-blue-jackets/
-
-**Trump Pardons 2 D.C. Officers Convicted in Fatal Chase and Cover-Up**\
-`The death of a young Black man, Karon Hylton-Brown, led to days of protests in 2020, not long after the murder of George Floyd by a Minneapolis police officer.`\
-https://nytimes.com/2025/01/22/us/politics/trump-pardons-police-officers-sutton-zabavsky.html
-
-**Mariano Rivera and Wife Covered Up Sex Abuse of Child, Lawsuit Claims**\
-`The Yankees pitcher and his wife are named in a suit that says a young girl was assaulted at properties connected to a church they helped found and at their home in Westchester County, N.Y.`\
-https://nytimes.com/2025/01/22/nyregion/mariano-rivera-child-sex-abuse.html
 
