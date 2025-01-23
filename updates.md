@@ -1,3 +1,7 @@
+**Trump Drive to Cut Safety Net Could Hit His Voters**\
+`The new administration wants to slash aid for health, food, and housing, but many of those programs now reach the struggling working class he is courting.`\
+https://nytimes.com/2025/01/23/us/politics/trump-social-safety-net.html
+
 **Friday Briefing: Trump Criticizes Europe**\
 `Plus, the Oscar nominations.`\
 https://nytimes.com/2025/01/23/briefing/trump-davos-ukraine-war-deaths-oscar-nominations.html

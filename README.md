@@ -1,3 +1,15 @@
+**What Students Are Saying About Being Graded on Excellence vs. Effort**\
+`A guest essayist said students shouldn’t get an A for simply putting in hard work. We asked teenagers what they thought.`\
+https://nytimes.com/2025/01/23/learning/what-students-are-saying-about-being-graded-on-excellence-vs-effort.html
+
+**Trump Pulls the Military Back Into the Political and Culture Wars**\
+`The removal of a portrait of Gen. Mark A. Milley, the former chairman of the Joint Chiefs of Staff, from a Pentagon hallway was among the president’s early actions.`\
+https://nytimes.com/2025/01/23/us/politics/trump-military.html
+
+**Stocks Hit a Record Amid Strong Earnings and Easing Inflation Concerns**\
+`Corporate earnings are coming in strong. Investors are also seeing the Trump administration take a less aggressive approach to tariffs than some had expected.`\
+https://nytimes.com/2025/01/23/business/stock-market-record-trump-inflation-earnings.html
+
 **Trump Drive to Cut Safety Net Could Hit His Voters**\
 `The new administration wants to slash aid for health, food, and housing, but many of those programs now reach the struggling working class he is courting.`\
 https://nytimes.com/2025/01/23/us/politics/trump-social-safety-net.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/us/politics/kash-patel-conspiracy-theories-qanon.
 **Solanke to miss 'six weeks' with knee injury, avoids surgery - Postecoglou**\
 `Tottenham Hotspur striker Dominic Solanke is set to be unavailable for six weeks with a knee injury but he does not require surgery, Ange Postecoglou has said.`\
 https://nytimes.com/athletic/6072040/2025/01/23/tottenham-dominic-solanke-injury-update/
-
-**U.S. Security Contractors Going to Gaza to Oversee Truce, Officials Say**\
-`The contractors have been enlisted to do weapons checks on vehicles carrying displaced Palestinians back to their homes in the north under the terms of the new cease-fire.`\
-https://nytimes.com/2025/01/23/world/middleeast/gaza-us-contractors.html
-
-**City Council Takes Aim at Adams and Ally by Closing Lobbying Loophole**\
-`New York’s City Council passed a bill to limit top city officials from lobbying city agencies after leaving government. It was inspired by Frank Carone, an adviser to Mayor Eric Adams.`\
-https://nytimes.com/2025/01/23/nyregion/frank-carone-loophole-lobbying.html
-
-**Why the Maple Leafs' goalie swap makes sense, now and for the future**\
-`Matt Murray has returned in a backup role, allowing Dennis Hildeby more time and opportunities to develop.`\
-https://nytimes.com/athletic/6084095/2025/01/23/maple-leafs-goalies-murray-hildeby/
 
