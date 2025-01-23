@@ -1,3 +1,11 @@
+**As Another Fire Explodes, Weary Californians Decide: Stay or Go?**\
+`The Hughes fire has grown rapidly in northern Los Angeles County, with the devastating Eaton and Palisades fires still burning in the region.`\
+https://nytimes.com/2025/01/22/us/hughes-fire-la-county.html
+
+**USMNT beats CONCACAF rival Costa Rica 3-0**\
+`It was the second consecutive win for Mauricio Pochettino’s reserve squad.`\
+https://nytimes.com/athletic/6082485/2025/01/22/usmnt-beats-costa-rica-concacaf/
+
 **Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
 `Hundreds of people to began registering their marriages at a mall in Bangkok, as Thailand became the third country in Asia to legalize same-sex unions.`\
 https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html

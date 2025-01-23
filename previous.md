@@ -1,3 +1,11 @@
+**As Another Fire Explodes, Weary Californians Decide: Stay or Go?**\
+`The Hughes fire has grown rapidly in northern Los Angeles County, with the devastating Eaton and Palisades fires still burning in the region.`\
+https://nytimes.com/2025/01/22/us/hughes-fire-la-county.html
+
+**USMNT beats CONCACAF rival Costa Rica 3-0**\
+`It was the second consecutive win for Mauricio Pochettino’s reserve squad.`\
+https://nytimes.com/athletic/6082485/2025/01/22/usmnt-beats-costa-rica-concacaf/
+
 **Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
 `Hundreds of people to began registering their marriages at a mall in Bangkok, as Thailand became the third country in Asia to legalize same-sex unions.`\
 https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/22/us/politics/sean-curran-secret-service-trump.html
 **What’s Next for D.E.I. With Trump Back in Office?**\
 `Former President Joseph R. Biden Jr. had emphasized diversity, equity and inclusion programs in the federal government.`\
 https://nytimes.com/2025/01/22/us/trump-dei.html
-
-**How Trump Was Persuaded to Pardon an Online Drug Kingpin**\
-`Libertarian and crypto allies of Ross Ulbricht, who was serving a life sentence for distributing drugs on his Silk Road website, leveraged President Trump’s desire for political support to secure his release.`\
-https://nytimes.com/2025/01/22/technology/ross-ulbricht-trump-pardon.html
-
-**Police in Kentucky Investigate Fliers Promoting Mass Deportation**\
-`Several cities in Northern Kentucky received reports of fliers calling on people to monitor and report all immigrants and encouraging membership in the Ku Klux Klan.`\
-https://nytimes.com/2025/01/22/us/police-kentucky-deportation-fliers-ku-klux-klan.html
 
