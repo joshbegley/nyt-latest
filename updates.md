@@ -1,3 +1,11 @@
+**Seven Police Officers Are Shot While Responding to Suicide Call in Texas**\
+`The officers went to an apartment in San Antonio and were shot by a barricaded man, who was found dead, the authorities said.`\
+https://nytimes.com/2025/01/23/us/police-shooting-texas-san-antonio.html
+
+**The Windup: Wagner should spark a HOF trend**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6083882/2025/01/23/baseball-hall-of-fame-wagner-ichiro-the-windup/
+
 **‘Anora’ Is More Than a Brooklyn Cinderella Story**\
 `A sex worker in a romantic comedy isn’t new. How the Oscar-nominated film uses immigrant Brooklyn to subvert the genre? That’s different.`\
 https://nytimes.com/2025/01/23/nyregion/anora-brooklyn-romantic-comedy.html
