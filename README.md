@@ -1,3 +1,7 @@
+**Karla Sofía Gascón Makes Oscar History as First Openly Trans Actress to Be Nominated**\
+`The “Emilia Pérez” star isn’t the first trans Oscar nominee. Anohni was up for best song, and Elliot Page was a contender before coming out publicly as trans.`\
+https://nytimes.com/2025/01/23/movies/karla-sofia-gascon-oscar-history-trans-actress.html
+
 **Fierce Storm Is Headed for Britain and Ireland**\
 `The storm, named Eowyn, is being fueled by the same weather pattern that has brought brutal cold and a rare winter storm to the Southern United States.`\
 https://nytimes.com/2025/01/23/weather/storm-eowyn-uk-ireland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083154/2025/01/23/andrew-omobamidele-strasbourg-tr
 **Al Horford, LeBron James and the art of aging gracefully in the NBA**\
 `At 38, Horford knows a thing or two about longevity, and what he's seen from LeBron impressed him. `\
 https://nytimes.com/athletic/6079691/2025/01/23/lebron-james-al-horford-celtics-lakers-older-players/
-
-**ChatGPT Outage Reported by Thousands of Users**\
-`The site was unavailable to many people early Thursday. OpenAI, the company behind the chatbot, said it had applied a fix.`\
-https://nytimes.com/2025/01/23/business/chatgpt-down-open-ai.html
 
