@@ -1,3 +1,7 @@
+**Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
+`Hundreds of people to began registering their marriages at a mall in Bangkok, as Thailand became the third country in Asia to legalize same-sex unions.`\
+https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
+
 **The Real Protection Hegseth Has Is MAGA Loyalty — and Liberal Scorn**\
 `Party loyalty remains strong even for nominees who go down. Pete Hegseth’s no different, but the Trump era has strengthened it even more.`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/pete-hegseth-republicans-trump-loyalty

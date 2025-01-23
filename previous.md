@@ -1,3 +1,7 @@
+**Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
+`Hundreds of people to began registering their marriages at a mall in Bangkok, as Thailand became the third country in Asia to legalize same-sex unions.`\
+https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
+
 **The Real Protection Hegseth Has Is MAGA Loyalty — and Liberal Scorn**\
 `Party loyalty remains strong even for nominees who go down. Pete Hegseth’s no different, but the Trump era has strengthened it even more.`\
 https://nytimes.com/live/2025/01/20/opinion/thepoint/pete-hegseth-republicans-trump-loyalty
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/22/technology/ross-ulbricht-trump-pardon.html
 **Police in Kentucky Investigate Fliers Promoting Mass Deportation**\
 `Several cities in Northern Kentucky received reports of fliers calling on people to monitor and report all immigrants and encouraging membership in the Ku Klux Klan.`\
 https://nytimes.com/2025/01/22/us/police-kentucky-deportation-fliers-ku-klux-klan.html
-
-**Prosecutors Attack Adams’s Claims That Biden Targeted Him as Payback**\
-`In a filing, they said the investigation into the mayor began more than a year before he criticized the former president’s response to the migrant crisis.`\
-https://nytimes.com/2025/01/22/nyregion/adams-prosecutors-biden-trump.html
 
