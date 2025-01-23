@@ -1,3 +1,23 @@
+**Cats May Have Gotten Bird Flu From Raw Pet Food. Here’s What to Know.**\
+`The cases have spurred new pet food safety rules and poultry surveillance efforts.`\
+https://nytimes.com/2025/01/23/health/bird-flu-cats-food.html
+
+**Oscar Snubs and Surprises: Daniel Craig Misses; Fernanda Torres Scores**\
+`Sebastian Stan’s Trump portrayal is also rewarded after the film had a hard time getting distribution, while Marianne Jean-Baptiste was overlooked.`\
+https://nytimes.com/2025/01/23/movies/oscar-nominations-snubs-surprises.html
+
+**Justice Dept. Cancels Entry-Level Job Offers in Honors Program**\
+`The program, which has functioned quietly for decades, is the latest target of Trump administration appointees who are eager to exert more control over who gets government jobs.`\
+https://nytimes.com/2025/01/23/us/politics/justice-honors-program-trump.html
+
+**NBA Lookahead: Why are trades around the NBA so complicated these days?**\
+`As Jimmy Butler's future in Miami grows more uncertain, Zach Harper explains why NBA trades are so complex these days.`\
+https://nytimes.com/athletic/6074528/2025/01/23/nba-lookahead-jimmy-butler-bradley-beal-heat-suns-trade-deadline/
+
+**Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/23/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
 `For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
 https://nytimes.com/athletic/6073696/2025/01/23/bills-chiefs-how-to-watch-odds-picks-betting/
