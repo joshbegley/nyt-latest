@@ -1,3 +1,7 @@
+**Ukraine Is Losing Fewer Soldiers Than Russia — But It’s Still Losing the War**\
+`Russia has lost about twice as many men to death and serious injury as Ukraine. But the trends favor the Kremlin.`\
+https://nytimes.com/2025/01/23/world/europe/ukraine-russia-soldiers-loss.html
+
 **Cats May Have Gotten Bird Flu From Raw Pet Food. Here’s What to Know.**\
 `The cases have spurred new pet food safety rules and poultry surveillance efforts.`\
 https://nytimes.com/2025/01/23/health/bird-flu-cats-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083109/2025/01/23/borussia-dortmund-niko-kovac/
 **Madison Keys will win or lose, her way**\
 `The American is into the final in Melbourne, with husband Bjorn Fratangelo as her coach. This is how the married couple work it out`\
 https://nytimes.com/athletic/6079967/2025/01/23/madison-keys-australian-open-coach-bjorn-fratangelo/
-
-**Kolo Muani joins Juventus on loan**\
-`Juventus have confirmed the signing of Paris Saint-Germain forward Randal Kolo Muani on loan for the rest of the season.`\
-https://nytimes.com/athletic/6042134/2025/01/23/randal-kolo-muani-juventus-transfer/
 

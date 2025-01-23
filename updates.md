@@ -1,3 +1,7 @@
+**Ukraine Is Losing Fewer Soldiers Than Russia — But It’s Still Losing the War**\
+`Russia has lost about twice as many men to death and serious injury as Ukraine. But the trends favor the Kremlin.`\
+https://nytimes.com/2025/01/23/world/europe/ukraine-russia-soldiers-loss.html
+
 **Cats May Have Gotten Bird Flu From Raw Pet Food. Here’s What to Know.**\
 `The cases have spurred new pet food safety rules and poultry surveillance efforts.`\
 https://nytimes.com/2025/01/23/health/bird-flu-cats-food.html
