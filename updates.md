@@ -1,3 +1,7 @@
+**Isaiah Stewart leads Pistons' stifling defensive effort against Hawks: 'He's a dog'**\
+`Stewart's two key blocks were emblematic of Detroit's effort on Wednesday as it moved past Atlanta into the sixth seed in the East.`\
+https://nytimes.com/athletic/6082703/2025/01/23/pistons-isaiah-stewart-ausar-thompson-defense-hawks/
+
 **Bitter Boardroom Feud for Korea Zinc Takes a Dramatic Turn**\
 `An eventful shareholder meeting provided the latest twist in the dispute between the families whose deceased patriarchs founded the company 50 years ago.`\
 https://nytimes.com/2025/01/23/business/korea-zinc-young-poong-shareholders.html
