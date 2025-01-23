@@ -1,3 +1,7 @@
+**It Will Finally Rain in Southern California. Cue the Risk of Mudslides.**\
+`Cooler, wet weather is forecast to bring moisture to the parched landscape and reduce the fire threat. But heavy rainfall could also trigger flash floods in burn scars.`\
+https://nytimes.com/2025/01/23/us/southern-california-rain-forecast-mudslides.html
+
 **Videos Show Pardoned Capitol Rioters Attacking Police**\
 `Videos recorded on Jan. 6, 2021, show how several of the Capitol rioters pardoned by President Trump attacked police officers. Alan Feuer, a reporter covering extremism and political violence for The New York Times, describes some of the cases against these rioters.`\
 https://nytimes.com/video/us/politics/100000009943734/videos-show-pardoned-capitol-rioters-attacking-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/briefing/judge-trump-birthright-citizenship-oscar
 **Eli Manning on Giants' QB situation, Hall of Fame and more**\
 `If anyone knows about the pressure and the honor of playing quarterback for the Giants, it's Eli Manning.`\
 https://nytimes.com/athletic/6084315/2025/01/23/eli-manning-giants-qb-coaching-staff-hall-of-fame/
-
-**Trump Vows to Release Records on Kennedy and King Killings**\
-`President Trump told security agencies to develop plans to make public all documents related to the assassinations of John F. Kennedy, Robert F. Kennedy and the Rev. Dr. Martin Luther King Jr.`\
-https://nytimes.com/2025/01/23/us/politics/trump-declassify-jfk-mlk-assassinations.html
 

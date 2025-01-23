@@ -1,3 +1,7 @@
+**It Will Finally Rain in Southern California. Cue the Risk of Mudslides.**\
+`Cooler, wet weather is forecast to bring moisture to the parched landscape and reduce the fire threat. But heavy rainfall could also trigger flash floods in burn scars.`\
+https://nytimes.com/2025/01/23/us/southern-california-rain-forecast-mudslides.html
+
 **Videos Show Pardoned Capitol Rioters Attacking Police**\
 `Videos recorded on Jan. 6, 2021, show how several of the Capitol rioters pardoned by President Trump attacked police officers. Alan Feuer, a reporter covering extremism and political violence for The New York Times, describes some of the cases against these rioters.`\
 https://nytimes.com/video/us/politics/100000009943734/videos-show-pardoned-capitol-rioters-attacking-police.html
