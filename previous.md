@@ -1,40 +1,40 @@
-**Norwegian clubs vote to scrap VAR**\
-`Clubs in Norway&#8217;s top two divisions have voted to discontinue the use of video assistant referees (VAR) in their domestic leagues.`\
-https://nytimes.com/athletic/6082887/2025/01/23/norway-var-clubs-vote/
+**Hughes Fire Burns 10,000 Acres Near L.A.**\
+`The blaze temporarily closed parts of Interstate 5 and prompted evacuation orders and warnings for more than 50,000 people.`\
+https://nytimes.com/2025/01/23/us/hughes-wildfire-california-los-angeles.html
 
-**Walker set to join Milan on loan from Man City**\
-`Manchester City defender Kyle Walker is flying to Milan today (Thursday) to complete his loan move to the Serie A club.`\
-https://nytimes.com/athletic/6054654/2025/01/23/kyle-walker-milan-transfer-manchester-city/
+**After Snow and Frigid Temperatures, the Southeast Now Faces Icy Roads**\
+`Officials throughout much of the South have echoed the same message: The effects from the rare winter storm are not over, and driving remains a hazard.`\
+https://nytimes.com/2025/01/23/us/snow-cold-winter-storm-ice.html
 
-**City complete Marmoush signing from Frankfurt**\
-`Manchester City have completed the signing of Omar Marmoush from German side Eintracht Frankfurt.`\
-https://nytimes.com/athletic/6069243/2025/01/23/omar-marmoush-man-city-transfer/
+**Donald Trump Is Running Riot**\
+`Anyone wondering whether the president was going to pick up from 2017 or 2021 can stop wondering.`\
+https://nytimes.com/2025/01/23/opinion/trump-pardons-bolton-jan-6.html
 
-**New Brush Fire Breaks Out in L.A., Threatening Bel-Air**\
-`The 20-acre fire was burning on the Sepulveda Pass near Interstate 405, the Getty Museum and the campus of the University of California, Los Angeles.`\
-https://nytimes.com/2025/01/23/us/sepulveda-wildfire-california-los-angeles.html
+**Two Houses, Alike in Dignity, in Fair Verona (Plus One in West Orange)**\
+`After their engagement, a couple searched Essex County, N.J., for a house that would suit their new life — and their four combined teenagers. Here’s what they found.`\
+https://nytimes.com/interactive/2025/01/23/realestate/essex-county-new-jersey-home-sale.html
 
-**Vinicius brings up Real Madrid century - but will (another) booking prove costly?**\
-`A yellow card rules him out of Brest game but Brazil star scored twice as Real Madrid powered past Salzburg to stay in hunt for top eight`\
-https://nytimes.com/athletic/6082397/2025/01/23/real-madrid-vinicius-100-goals-booking-champions-league/
+**Trump’s Retreat From Clean Energy Puts the U.S. Out of Step With the World**\
+`Most major economies are investing in ever-cheaper solar and wind power. The United States risks further ceding a global market to China.`\
+https://nytimes.com/2025/01/23/climate/trump-global-energy-transition.html
 
-**Saudi Arabia Says It Will Increase U.S. Trade and Investment by $600 Billion**\
-`Crown Prince Mohammed bin Salman spoke with President Trump, who has warned of retaliation against governments he sees as acting against U.S. interests.`\
-https://nytimes.com/2025/01/23/us/politics/trump-us-saudi-arabia-investment-trade.html
+**Inside the Plan to Receive Thousands of Mexicans Deported From the U.S.**\
+`The plan, called “Mexico Embraces You,” seeks to reassure undocumented migrants facing expulsion. Some experts question if the government is really ready to reabsorb them.`\
+https://nytimes.com/2025/01/23/world/americas/mexico-deportation-trump.html
 
-**People With A.D.H.D. Are Likely to Die Significantly Earlier Than Their Peers, Study Finds**\
-`A large study found that men lost seven years of life expectancy and women lost nine years, compared with counterparts without the disorder.`\
-https://nytimes.com/2025/01/23/health/adhd-life-expectancy.html
+**Residents Return to See What the Fire Left Behind, and to Say Goodbye**\
+`Altadena residents were allowed back into their neighborhoods this week. Most were prepared for the worst but needed to find closure in their own way.`\
+https://nytimes.com/2025/01/23/us/la-fires-residents-return-home.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/23/crosswords/spelling-bee-forum.html
+**Trump’s D.E.I. Order Creates ‘Fear and Confusion’ Among Corporate Leaders**\
+`The executive order signals that private businesses and organizations could be investigated over their diversity policies.`\
+https://nytimes.com/2025/01/23/business/trump-dei-corporate-reaction.html
 
-**Longevity**\
-`Would you want to live forever? If not, how long do you hope your life will be?`\
-https://nytimes.com/2025/01/23/learning/longevity.html
+**‘C.B. Strike’ Review: Cancellation With Extreme Prejudice**\
+`In a new season of the HBO and BBC series based on J.K. Rowling’s mystery novels, a misunderstood artist is the victim.`\
+https://nytimes.com/2025/01/23/arts/television/cb-strike-the-ink-black-heart-review.html
 
-**Late Night Enjoys Trump’s Uncomfortable Moment in Church**\
-`“New executive order: We are banning church,” said Ronny Chieng, channeling the president’s apparent annoyance when a bishop asked him to be merciful.`\
-https://nytimes.com/2025/01/23/arts/television/late-night-trump-bishop-church.html
+**‘Grab, Grab, Grab’: Trump’s First 100 Days**\
+`In this first episode of a new series, David Wallace-Wells joins Patrick Healy to examine what President Trump’s position on climate change tells us about how he plans to wield power more broadly.`\
+https://nytimes.com/2025/01/23/opinion/trump-executive-orders-climate.html
 
