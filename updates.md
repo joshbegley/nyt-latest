@@ -1,3 +1,11 @@
+**Ichiro finds special joy in his place of peace, the Hall of Fame, which he's forever changed**\
+`No one has ever walked through these doors with the sport-changing, Hall-changing, planet-changing possibilities of Ichiro.`\
+https://nytimes.com/athletic/6084724/2025/01/23/ichiro-baseball-hall-of-fame-japan/
+
+**Exclusive: Audio reveals Ohtani’s former interpreter impersonating Dodgers star in call with bank**\
+`Prosecutors ask for nearly five years in prison for Ohtani interpreter in fraud case`\
+https://nytimes.com/athletic/6084445/2025/01/23/shohei-ohtani-interpreter-audio-money-transfer-ippei/
+
 **Dodgers introduce Tanner Scott, call their spending 'really good for baseball'**\
 `Asked if his team was overrunning baseball, GM Brandon Gomes answered: “The goal is to win every single year.”`\
 https://nytimes.com/athletic/6084716/2025/01/23/dodgers-ruining-baseball-tanner-scott/
