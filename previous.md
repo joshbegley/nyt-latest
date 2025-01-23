@@ -1,3 +1,15 @@
+**Black and White Weren’t Always as Black-and-White as They Seemed**\
+`The past was more racially fluid than we assume — and maybe even more than the current day.`\
+https://nytimes.com/2025/01/23/opinion/black-and-white-werent-always-as-black-and-white-as-they-seemed.html
+
+**The Dalai Lama Shares Thoughts on China and the Future in a New Book**\
+`The spiritual leader of Tibet has published amply but seldom written in depth about politics. Now, as he approaches 90, he shares a detailed and personal account of his decades dealing with China.`\
+https://nytimes.com/2025/01/23/books/dalai-lama-book-voice-for-the-voiceless.html
+
+**Earth’s Mini-Moon Was Probably a Piece of Its Real Moon**\
+`Scientists think a small rock discovered near Earth last August was hurled into space by an ancient impact on the lunar surface.`\
+https://nytimes.com/2025/01/23/science/earth-mini-moon-asteroid.html
+
 **The Briefing: Hoffenheim 2 Tottenham 3 - exactly what Son needed, Bergvall shines again**\
 `Tottenham Hotspur won their first game in the Europa League since October to boost their chances of qualifying directly for the round of 16`\
 https://nytimes.com/athletic/6080711/2025/01/23/hoffenheim-2-tottenham-3/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/us/politics/john-ratcliffe-cia-director-trump.htm
 **The Dissonance of Climate Promises at Davos**\
 `C.E.O.s, policymakers and billionaires at the World Economic Forum’s conference have long pledged to fight climate change. Has it done any good?`\
 https://nytimes.com/2025/01/23/climate/davos-climate-change-promises.html
-
-**What Lions GM Brad Holmes said about a 'humbling' loss and a crucial offseason**\
-`Plus, Holmes weighs in on the standouts of the rookie class.`\
-https://nytimes.com/athletic/6083749/2025/01/23/detroit-lions-gm-brad-holmes-season-recap/
-
-**What to watch in college basketball this weekend: Ranked matchups in SEC, Big 12, Big Ten**\
-`What to watch, and why to watch it, as college basketball offers conference matchups on national TV.`\
-https://nytimes.com/athletic/6081998/2025/01/23/college-basketball-what-to-watch-tennessee-auburn-houston-kansas/
-
-**Trump Threatens E.U. With Tariffs at World Economic Forum**\
-`Speaking at the World Economic Forum, President Trump criticized the European Union for what he described as “unfair” trading practices.`\
-https://nytimes.com/video/us/politics/100000009945063/trump-davos-address-tariffs.html
 

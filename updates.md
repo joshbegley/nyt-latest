@@ -1,3 +1,15 @@
+**Black and White Weren’t Always as Black-and-White as They Seemed**\
+`The past was more racially fluid than we assume — and maybe even more than the current day.`\
+https://nytimes.com/2025/01/23/opinion/black-and-white-werent-always-as-black-and-white-as-they-seemed.html
+
+**The Dalai Lama Shares Thoughts on China and the Future in a New Book**\
+`The spiritual leader of Tibet has published amply but seldom written in depth about politics. Now, as he approaches 90, he shares a detailed and personal account of his decades dealing with China.`\
+https://nytimes.com/2025/01/23/books/dalai-lama-book-voice-for-the-voiceless.html
+
+**Earth’s Mini-Moon Was Probably a Piece of Its Real Moon**\
+`Scientists think a small rock discovered near Earth last August was hurled into space by an ancient impact on the lunar surface.`\
+https://nytimes.com/2025/01/23/science/earth-mini-moon-asteroid.html
+
 **The Briefing: Hoffenheim 2 Tottenham 3 - exactly what Son needed, Bergvall shines again**\
 `Tottenham Hotspur won their first game in the Europa League since October to boost their chances of qualifying directly for the round of 16`\
 https://nytimes.com/athletic/6080711/2025/01/23/hoffenheim-2-tottenham-3/
