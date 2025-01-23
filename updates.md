@@ -1,3 +1,7 @@
+**Four candidates to be the Giants' backup catcher behind Patrick Bailey**\
+`Tom Murphy enters camp as the favorite to back up Bailey, but there are three other candidates who could steal the job.`\
+https://nytimes.com/athletic/6083801/2025/01/23/sf-giants-catching-depth-chart/
+
 **Trump Issues Executive Order to Support the Growth of Cryptocurrencies**\
 `The order signaled that the president intends to promote an industry that faced scrutiny during the Biden administration — and that he has a personal stake in.`\
 https://nytimes.com/2025/01/23/technology/trump-crypto-executive-order.html
