@@ -1,3 +1,11 @@
+**How Migrants in a Brownsville, Texas, Shelter Feel About Trump **\
+`Text by Edgar Sandoval and Gabriel V. Cárdenas`\
+https://nytimes.com/card/2025/01/23/us/trump-migrants-border
+
+**Ichiro Suzuki wants to meet with Hall of Fame voter who didn't vote for him**\
+`At a Hall of Fame news conference, Ichiro joined the ranks of many people around the globe in wondering why he didn’t get that one vote. `\
+https://nytimes.com/athletic/6083972/2025/01/23/ichiro-invitiation-hall-of-fame-voter/
+
 **What Lions GM Brad Holmes said about a 'humbling' loss and a crucial offseason**\
 `Plus, Holmes weighs in on the standouts of the rookie class.`\
 https://nytimes.com/athletic/6083749/2025/01/23/detroit-lions-gm-brad-holmes-season-recap/
