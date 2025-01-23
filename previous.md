@@ -1,3 +1,7 @@
+**Cubs reach agreement with utilityman Jon Berti on a $2 million deal: Source**\
+`Berti can move around the infield, and, if needed, play all three outfield positions.`\
+https://nytimes.com/athletic/6083923/2025/01/23/chicago-cubs-jon-berti-free-agent-deal/
+
 **‘At Least We Found These’**\
 `Ken Bensinger, a politics reporter based in Los Angeles, explores the pain of families digging through the rubble.`\
 https://nytimes.com/2025/01/23/us/wildfires-rubble.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083902/2025/01/23/andre-silva-west-ham-transfers/
 **Seven Police Officers Are Shot While Responding to Suicide Call in Texas**\
 `The officers went to an apartment in San Antonio and were shot by a barricaded man, who was found dead, the authorities said.`\
 https://nytimes.com/2025/01/23/us/police-shooting-texas-san-antonio.html
-
-**The Windup: Wagner should spark a HOF trend**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6083882/2025/01/23/baseball-hall-of-fame-wagner-ichiro-the-windup/
 
