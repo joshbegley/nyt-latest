@@ -1,3 +1,11 @@
+**Spurs vs. Pacers: How to watch the NBA's Paris showcase, with Wemby returning to France**\
+`The sensational Victor Wembanyama gets to bring his San Antonio Spurs to his home country. They face the scorching-hot Indiana Pacers.`\
+https://nytimes.com/athletic/6081753/2025/01/23/spurs-pacers-how-to-watch-odds-preview-wembanyama-paris/
+
+**China Will Be Thrilled if Trump Kills America’s Green Economy**\
+`President Trump seems poised to roll back the very incentives that are reviving American manufacturing.`\
+https://nytimes.com/2025/01/23/opinion/trump-china-ev-batteries.html
+
 **FPL: Foden, Savio and that man Haaland - are Manchester City players worth it again?**\
 `Holly Shand analyses the best assets to target from Manchester City despite their tricky fixture list`\
 https://nytimes.com/athletic/6080035/2025/01/23/fantasy-premier-league-manchester-city-foden-haaland/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6080149/2025/01/23/leicester-fans-ownership-problem
 **Stefan Bajcetic's Salzburg struggles: What next for the Liverpool loanee?**\
 `It is nearly two years since Bajcetic started for Liverpool against Real Madrid but he has found limited opportunities at Salzburg`\
 https://nytimes.com/athletic/6080808/2025/01/23/stefan-bajcetic-salzburg-liverpool-madrid/
-
-**Manchester City's cycle of woe: Recurring injuries, tired bodies and weak displays**\
-`Manchester City's Champions League loss to PSG was caused by the same issues that have plagued them all season long. The cycle continues`\
-https://nytimes.com/athletic/6082082/2025/01/23/manchester-city-defeat-paris-saint-germain/
-
-**'It's special': Blue Jackets' Adam Fantilli scores first career hat trick in hometown**\
-`Fantilli recorded his first career hat trick in front of his friends and family at Scotiabank Arena in Toronto.`\
-https://nytimes.com/athletic/6082580/2025/01/23/blue-jackets-adam-fantilli-hat-trick/
 
