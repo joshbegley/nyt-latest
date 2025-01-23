@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6082770/2025/01/23/novak-djokovic-australian-open-s
 `"We need the right coach for everybody, on the football field and off the football field,” Cowboys great Michael Irvin said.`\
 https://nytimes.com/athletic/6083688/2025/01/23/cowboys-today-coach-search-frustration-schottenheimer/
 
-**Browns coach Kevin Stefanski takes over play-calling duties again**\
+**Browns coach Kevin Stefanski again takes over play-calling duties**\
 `Stefanski called the plays for his first four seasons with the Browns before making ex-OC Ken Dorsey the play-caller late in the season.`\
 https://nytimes.com/athletic/6083681/2025/01/23/kevin-stefanski-browns-play-calling/
 
