@@ -1,3 +1,11 @@
+**Ben Shelton's Grand Slam breakout was pure tennis vibes. Now he's doing the math**\
+`When the American is on form, his tennis looks like a flurry of winners and good times. But he's more interested in running the numbers.`\
+https://nytimes.com/athletic/6082818/2025/01/23/ben-shelton-australian-open-grand-slam-tennis-record/
+
+**FKA twigs Tests Her Pop Skills on ‘Eusexua’**\
+`For her third studio album, the shape-shifting English songwriter puts a beat behind her desires.`\
+https://nytimes.com/2025/01/23/arts/music/fka-twigs-eusexua-review.html
+
 **Trump Revels in a Presidential Perk: The Omnipresent Press Pool**\
 `His volubility in his first few days back in office underscores that President Trump is in charge of his own show.`\
 https://nytimes.com/2025/01/23/us/politics/trump-press-reporters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/health/bird-flu-cats-food.html
 **California Wildfires: A fast-growing fire northwest of L.A. forces thousands to evacuate.**\
 ``\
 https://nytimes.com/live/2025/01/23/us/los-angeles-wildfires-california
-
-**Oscar Snubs and Surprises: Daniel Craig Misses; Fernanda Torres Scores**\
-`Sebastian Stan’s Trump portrayal is also rewarded after the film had a hard time getting distribution, while Marianne Jean-Baptiste was overlooked.`\
-https://nytimes.com/2025/01/23/movies/oscar-nominations-snubs-surprises.html
-
-**Justice Dept. Cancels Entry-Level Job Offers in Honors Program**\
-`The program, which has functioned quietly for decades, is the latest target of Trump administration appointees who are eager to exert more control over who gets government jobs.`\
-https://nytimes.com/2025/01/23/us/politics/justice-honors-program-trump.html
 
