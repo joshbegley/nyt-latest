@@ -1,3 +1,7 @@
+**Arteta wants more goals from midfield and Arsenal delivered against Dinamo Zagreb**\
+`Declan Rice and Martin Odegaard both scored on Wednesday and Arsenal do need an uplift in goals from that area of the pitch`\
+https://nytimes.com/athletic/6082260/2025/01/23/arsenal-dinamo-zagreb-midfield-goals/
+
 **John Calipari gets first SEC win with Arkansas vs. Georgia**\
 `Adou Thiero, who followed Calipari from Kentucky to Arkansas, had five points in the final minute to end the team's five-game losing skid.`\
 https://nytimes.com/athletic/6082690/2025/01/23/arkansas-georgia-calipari-mens-basketball/
