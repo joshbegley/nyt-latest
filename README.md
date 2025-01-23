@@ -1,3 +1,11 @@
+**Forest confirm Wood's two-year contract extension**\
+`Nottingham Forest have confirmed that striker Chris Wood has signed a new contract through until the summer of 2027.`\
+https://nytimes.com/athletic/6081783/2025/01/23/chris-wood-new-contract-nottingham-forest/
+
+**A Ravens Player Dropped a Pass. The Hate It Brought Moved Rivals to Give.**\
+`A charitable drive for diabetes research in the name of the Ravens receiver Mark Andrews, who missed a pivotal play in a game against the Buffalo Bills, has raised more than $100,000.`\
+https://nytimes.com/2025/01/23/sports/football/bills-fans-diabetes-charity-mark-andrews-ravens.html
+
 **Thai Couples Marry After Same-Sex Marriage Is Legalized**\
 `Hundreds of people were married during a mass wedding in Bangkok as Thailand became the first country in Southeast Asia to legalize same-sex marriage.`\
 https://nytimes.com/video/world/asia/100000009944735/thailand-same-sex-marriage-legalized-wedding.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/01/23/us/politics/judge-blocks-birthright-citizenship.h
 **Cubs reach agreement with utilityman Jon Berti on a $2 million deal: Source**\
 `Berti can move around the infield, and, if needed, play all three outfield positions.`\
 https://nytimes.com/athletic/6083923/2025/01/23/chicago-cubs-jon-berti-free-agent-deal/
-
-**‘At Least We Found These’**\
-`Ken Bensinger, a politics reporter based in Los Angeles, explores the pain of families digging through the rubble.`\
-https://nytimes.com/2025/01/23/us/wildfires-rubble.html
-
-**Major Olympic broadcaster not expecting L.A. 2028 Games to be called off**\
-`The fires have been ablaze for two weeks and have caused millions of dollars worth of damage across L.A.`\
-https://nytimes.com/athletic/6083499/2025/01/23/la-2028-olympics-fires/
 
