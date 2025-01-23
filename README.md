@@ -1,3 +1,11 @@
+**Ichiro finds special joy in his place of peace, the Hall of Fame, which he's forever changed**\
+`No one has ever walked through these doors with the sport-changing, Hall-changing, planet-changing possibilities of Ichiro.`\
+https://nytimes.com/athletic/6084724/2025/01/23/ichiro-baseball-hall-of-fame-japan/
+
+**Exclusive: Audio reveals Ohtani’s former interpreter impersonating Dodgers star in call with bank**\
+`Prosecutors ask for nearly five years in prison for Ohtani interpreter in fraud case`\
+https://nytimes.com/athletic/6084445/2025/01/23/shohei-ohtani-interpreter-audio-money-transfer-ippei/
+
 **Dodgers introduce Tanner Scott, call their spending 'really good for baseball'**\
 `Asked if his team was overrunning baseball, GM Brandon Gomes answered: “The goal is to win every single year.”`\
 https://nytimes.com/athletic/6084716/2025/01/23/dodgers-ruining-baseball-tanner-scott/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/23/style/best-costume-oscar-nominations.html
 **For Some Democrats, Talk of ‘Sanctuary Cities’ Has Grown Quieter**\
 `Many leaders say their policies to limit local cooperation with federal immigration officials stand. But signs of division have emerged.`\
 https://nytimes.com/2025/01/23/us/for-some-democrats-talk-of-sanctuary-cities-has-grown-quieter.html
-
-**U.S. Army Asks to Eliminate Office for Reducing Civilian Harm in War**\
-`A Jan. 20 memo asks the defense secretary to ask Congress to close the Pentagon’s Civilian Protection Center of Excellence.`\
-https://nytimes.com/2025/01/23/us/pentagon-civilian-deaths.html
-
-**It Will Finally Rain in Southern California. Cue the Risk of Mudslides.**\
-`Cooler, wet weather is forecast to bring moisture to the parched landscape and reduce the fire threat. But heavy rainfall could also trigger flash floods in burn scars.`\
-https://nytimes.com/2025/01/23/us/southern-california-rain-forecast-mudslides.html
 
