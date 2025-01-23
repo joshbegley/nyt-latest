@@ -1,3 +1,11 @@
+**Cavs lose rare game as Garland misses potential game-winning free throws**\
+`Garland is a 90 percent free-throw shooter.`\
+https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
+
+**Leafs' Matthews after Reaves-Olivier fight: Wanted 'more energy' from crowd**\
+`Reaves dropped the gloves with Olivier less than two minutes into the first period of the Leafs' loss Wednesday.`\
+https://nytimes.com/athletic/6082577/2025/01/22/auston-matthews-ryan-reaves-fight-comments-maple-leafs/
+
 **Maple Leafs report cards: Lack of finish wastes solid effort against Columbus**\
 `The Leafs looked like the better team for most of the game, but couldn't solve Columbus goalie Elvis Merzlikins.`\
 https://nytimes.com/athletic/6082573/2025/01/22/maple-leafs-report-cards-hildeby-nylander-blue-jackets/

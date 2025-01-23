@@ -1,3 +1,11 @@
+**Cavs lose rare game as Garland misses potential game-winning free throws**\
+`Garland is a 90 percent free-throw shooter.`\
+https://nytimes.com/athletic/6082589/2025/01/22/rockets-cavaliers-results-analysis-2025/
+
+**Leafs' Matthews after Reaves-Olivier fight: Wanted 'more energy' from crowd**\
+`Reaves dropped the gloves with Olivier less than two minutes into the first period of the Leafs' loss Wednesday.`\
+https://nytimes.com/athletic/6082577/2025/01/22/auston-matthews-ryan-reaves-fight-comments-maple-leafs/
+
 **Maple Leafs report cards: Lack of finish wastes solid effort against Columbus**\
 `The Leafs looked like the better team for most of the game, but couldn't solve Columbus goalie Elvis Merzlikins.`\
 https://nytimes.com/athletic/6082573/2025/01/22/maple-leafs-report-cards-hildeby-nylander-blue-jackets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6082484/2025/01/22/twins-padres-trade-talks-christi
 **Bee-Dazzler**\
 `Fasten your seatbelts, solvers — it’s going to be a bumpy ride.`\
 https://nytimes.com/2025/01/22/crosswords/daily-puzzle-2025-01-23.html
-
-**As Another Fire Explodes, Weary Californians Decide: Stay or Go?**\
-`The Hughes fire has grown rapidly in northern Los Angeles County, with the devastating Eaton and Palisades fires still burning in the region.`\
-https://nytimes.com/2025/01/22/us/hughes-fire-la-county.html
-
-**USMNT beats CONCACAF rival Costa Rica 3-0**\
-`It was the second consecutive win for Mauricio Pochettino’s reserve squad.`\
-https://nytimes.com/athletic/6082485/2025/01/22/usmnt-beats-costa-rica-concacaf/
 
