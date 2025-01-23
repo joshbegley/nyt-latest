@@ -1,3 +1,11 @@
+**Lamar Jackson, Josh Allen, Saquon Barkley headline NFL MVP finalists**\
+`Jackson, Barkley and Allen are joined by Lions quarterback Jared Goff and Bengals quarterback Joe Burrow on the list.`\
+https://nytimes.com/athletic/6083507/2025/01/23/lamar-jackson-josh-allen-saquon-barkley-nfl-award-mvp-finalists/
+
+**Trump Revokes Security Detail for Pompeo and Others Despite Threats From Iran**\
+`The officials had been part of an aggressive posture against Iran during President Trump’s first term.`\
+https://nytimes.com/2025/01/23/us/politics/trump-pompeo-security-iran.html
+
 **Ukraine Is Losing Fewer Soldiers Than Russia — But It’s Still Losing the War**\
 `Russia has lost about twice as many men to death and serious injury as Ukraine. But the trends favor the Kremlin.`\
 https://nytimes.com/2025/01/23/world/europe/ukraine-russia-soldiers-loss.html

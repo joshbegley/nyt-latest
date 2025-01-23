@@ -1,3 +1,11 @@
+**Lamar Jackson, Josh Allen, Saquon Barkley headline NFL MVP finalists**\
+`Jackson, Barkley and Allen are joined by Lions quarterback Jared Goff and Bengals quarterback Joe Burrow on the list.`\
+https://nytimes.com/athletic/6083507/2025/01/23/lamar-jackson-josh-allen-saquon-barkley-nfl-award-mvp-finalists/
+
+**Trump Revokes Security Detail for Pompeo and Others Despite Threats From Iran**\
+`The officials had been part of an aggressive posture against Iran during President Trump’s first term.`\
+https://nytimes.com/2025/01/23/us/politics/trump-pompeo-security-iran.html
+
 **Ukraine Is Losing Fewer Soldiers Than Russia — But It’s Still Losing the War**\
 `Russia has lost about twice as many men to death and serious injury as Ukraine. But the trends favor the Kremlin.`\
 https://nytimes.com/2025/01/23/world/europe/ukraine-russia-soldiers-loss.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6073696/2025/01/23/bills-chiefs-how-to-watch-odds-p
 **Patrick Mahomes pushes back on notion referees favor Chiefs**\
 `"I think there were a lot of other plays that decided the outcome of that football game," Mahomes said of the controversial calls.`\
 https://nytimes.com/athletic/6083364/2025/01/23/patrick-mahomes-chiefs-texans-referees/
-
-**With Sahin gone, what next for Borussia Dortmund?**\
-`Niko Kovac is a contender to take charge but whoever comes in is going to find a club far removed from its previous position of strength`\
-https://nytimes.com/athletic/6083109/2025/01/23/borussia-dortmund-niko-kovac/
-
-**Madison Keys will win or lose, her way**\
-`The American is into the final in Melbourne, with husband Bjorn Fratangelo as her coach. This is how the married couple work it out`\
-https://nytimes.com/athletic/6079967/2025/01/23/madison-keys-australian-open-coach-bjorn-fratangelo/
 
