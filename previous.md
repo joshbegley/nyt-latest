@@ -1,3 +1,7 @@
+**Trump Pardons 2 D.C. Officers Convicted in Fatal Chase and Cover-Up**\
+`The death of a young Black man, Karon Hylton-Brown, led to days of protests in 2020, not long after the murder of George Floyd by a Minneapolis police officer.`\
+https://nytimes.com/2025/01/22/us/politics/trump-pardons-police-officers-sutton-zabavsky.html
+
 **Mariano Rivera and Wife Covered Up Sex Abuse of Child, Lawsuit Claims**\
 `The Yankees pitcher and his wife are named in a suit that says a young girl was assaulted at properties connected to a church they helped found and at their home in Westchester County, N.Y.`\
 https://nytimes.com/2025/01/22/nyregion/mariano-rivera-child-sex-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6082485/2025/01/22/usmnt-beats-costa-rica-concacaf/
 **Thailand Celebrates New Same-Sex Marriage Law With Mass Wedding**\
 `Hundreds of people began registering their marriages at a mall in Bangkok, as Thailand became one of the few places in Asia to legalize same-sex unions.`\
 https://nytimes.com/2025/01/22/world/asia/thailand-same-sex-marriage-law.html
-
-**The Real Protection Hegseth Has Is MAGA Loyalty — and Liberal Scorn**\
-`Party loyalty remains strong even for nominees who go down. Pete Hegseth’s no different, but the Trump era has strengthened it even more.`\
-https://nytimes.com/live/2025/01/20/opinion/thepoint/pete-hegseth-republicans-trump-loyalty
 
