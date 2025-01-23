@@ -1,3 +1,15 @@
+**U.S. Security Contractors Going to Gaza to Oversee Truce, Officials Say**\
+`The contractors have been enlisted to do weapons checks on vehicles carrying displaced Palestinians back to their homes in the north under the terms of the new cease-fire.`\
+https://nytimes.com/2025/01/23/world/middleeast/gaza-us-contractors.html
+
+**City Council Takes Aim at Adams and Ally by Closing Lobbying Loophole**\
+`New York’s City Council passed a bill to limit top city officials from lobbying city agencies after leaving government. It was inspired by Frank Carone, an adviser to Mayor Eric Adams.`\
+https://nytimes.com/2025/01/23/nyregion/frank-carone-loophole-lobbying.html
+
+**Why the Maple Leafs' goalie swap makes sense, now and for the future**\
+`Matt Murray has returned in a backup role, allowing Dennis Hildeby more time and opportunities to develop.`\
+https://nytimes.com/athletic/6084095/2025/01/23/maple-leafs-goalies-murray-hildeby/
+
 **What Prince Harry’s Settlement Means for Him and Britain’s Royal Family**\
 `Harry won an apology and damages from Rupert Murdoch’s U.K. tabloids. Could the lawsuit’s end also help heal the rift with his brother, William, and his father, King Charles III?`\
 https://nytimes.com/2025/01/23/world/europe/prince-harry-murdoch-trial-royals.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/23/dining/dubai-chocolate-cant-get-knafeh-it.html
 **Supreme Court Revives Law Meant to Fight Money Laundering**\
 `The Corporate Transparency Act, which requires businesses to disclose ownership information, was blocked by a federal judge as beyond Congress’s authority.`\
 https://nytimes.com/2025/01/23/us/supreme-court-money-laundering.html
-
-**Trump Criticizes Europe and Threatens Tariffs in Davos Speech**\
-`President Trump doubled down on the prospect of across-the-board tariffs in a video appearance to business executives and politicians gathered in Davos, Switzerland.`\
-https://nytimes.com/2025/01/23/us/politics/trump-davos-europe-tariffs.html
-
-**‘Flight Risk’ Review: A Rather Bumpy Landing**\
-`Mel Gibson directs an uneven action film with Mark Wahlberg that feels pulled out of an earlier era.`\
-https://nytimes.com/2025/01/23/movies/flight-risk-review.html
-
-**John Ratcliffe Confirmed as C.I.A. Director**\
-`He has offered a vision for a more aggressive spy agency, and his focus on the threat from China is widely shared by Republican and Democratic lawmakers.`\
-https://nytimes.com/2025/01/23/us/politics/john-ratcliffe-cia-director-trump.html
 
