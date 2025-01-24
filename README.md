@@ -1,3 +1,11 @@
+**Fantasy Trends and Hidden Gems: 14 players worth picking up**\
+`Sure the Canucks face a soft schedule, but there are far better additions given Vancouver's struggles.`\
+https://nytimes.com/athletic/6085297/2025/01/24/fantasy-trends-and-hidden-gems-canucks-schedule-is-juicy-but-these-are-better-options/
+
+**New Jersey Devils goalie Jacob Markstrom out 4 to 6 weeks with MCL sprain**\
+`Markstrom suffered the injury in the first period of Wednesday night’s matchup against the Boston Bruins.`\
+https://nytimes.com/athletic/6086236/2025/01/24/new-jersey-devils-jacob-markstrom-out-mcl-sprain/
+
 **More Ships May Return to the Red Sea if Houthis Hold Their Fire**\
 `Shipping companies expressed caution about using the shorter route between Asia and Europe that many ships have avoided for more than a year.`\
 https://nytimes.com/2025/01/24/business/more-ships-may-return-to-the-red-sea-if-houthis-hold-their-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/world/europe/france-woman-divorce-europe-court.ht
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 23?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6082962/2025/01/24/premier-league-predicted-lineups-gameweek-23/
-
-**Smashing Smashed Beef Kebab With Cucumber Yogurt**\
-`Zaynab Issa’s quick skillet dinner combines two Persian classics: kebab koobideh (grilled kebabs) and mast-o khiar (cucumber yogurt).`\
-https://nytimes.com/2025/01/24/dining/smashing-smashed-beef-kebab-with-cucumber-yogurt.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include craven rich kids, retired assassins and a cat cult.`\
-https://nytimes.com/2025/01/24/movies/action-movies-streaming.html
 
