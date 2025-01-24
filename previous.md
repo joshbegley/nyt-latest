@@ -1,3 +1,7 @@
+**NBA trade deadline: What every team should do before the buzzer sounds**\
+`Buy, sell or stand pat: What's the best course of action for the Lakers, Warriors, Bulls and others?`\
+https://nytimes.com/athletic/6083567/2025/01/24/nba-trade-deadline-2025-team-buyers-sellers/
+
 **Andy Murray says no decision has been made on his partnership with Novak Djokovic**\
 `MELBOURNE, Australia — Andy Murray has said that he and Novak Djokovic will hold talks about whether to extend their partnership beyond the Australian Open.`\
 https://nytimes.com/athletic/6085496/2025/01/24/andy-murray-novak-djokovic-partnership/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069440/2025/01/24/man-city-bennell-victims-support
 **Yohe's 10 observations: Bryan Rust injured as Penguins get outclassed in Anaheim**\
 `The Penguins fail to stay hot in California, getting outclassed in a 5-1 loss against the Ducks in Anaheim on Thursday.`\
 https://nytimes.com/athletic/6084201/2025/01/24/bryan-rust-injured-penguins-ducks/
-
-**Tottenham's youngsters are performing superbly - but at what cost?**\
-`Too much is being asked of Spurs' decimated squad - these players have earned the right to some reinforcements before the window shuts`\
-https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
 

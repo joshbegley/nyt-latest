@@ -1,3 +1,7 @@
+**NBA trade deadline: What every team should do before the buzzer sounds**\
+`Buy, sell or stand pat: What's the best course of action for the Lakers, Warriors, Bulls and others?`\
+https://nytimes.com/athletic/6083567/2025/01/24/nba-trade-deadline-2025-team-buyers-sellers/
+
 **How Wrexham captain James McClean went from car crash to starring against Birmingham in just 36 hours**\
 `Wrexham's unflappable captain was - as usual - the driving force in an entertaining game at the top of League One`\
 https://nytimes.com/athletic/6084541/2025/01/24/wrexham-birmingham-james-mcclean/
