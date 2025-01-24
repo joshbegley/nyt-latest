@@ -1,3 +1,11 @@
+**Hegseth Confirmation on the Line With Senate Vote Outcome Uncertain**\
+`With two G.O.P. senators opposed, Pete Hegseth, President Trump’s pick for defense secretary, can afford to lose only one more. If he is confirmed, it is likely to be by the smallest margin for that post in modern times.`\
+https://nytimes.com/2025/01/24/us/politics/pete-hegseth-defense-secretary-trump.html
+
+**Patriots' Jabrill Peppers acquitted of domestic violence charges**\
+`A jury deliberated for less than two hours before acquitting the former first-round pick of assault and battery charges.`\
+https://nytimes.com/athletic/6086796/2025/01/24/patriots-jabrill-peppers-acquitted-domestic-violence-case/
+
 **Islanders bring in Tony DeAngelo for remainder of 2024-25 season**\
 `DeAngelo played last season for the Hurricanes, appearing in 34 games along with nine playoff games.`\
 https://nytimes.com/athletic/6086774/2025/01/24/islanders-sign-tony-deangelo-one-year-contract/
