@@ -1,3 +1,11 @@
+**Italy Arrested a Libyan Wanted for Crimes Against Humanity. Then It Sent Him Home.**\
+`The government attributed the release to procedural reasons. But critics say it is because Italy depends on Libya to stem the flow of migrants from Africa.`\
+https://nytimes.com/2025/01/24/world/europe/italy-libya-migrants-international-criminal-court.html
+
+**NFL Playoffs betting sees $1.3M bet on Chiefs, sportsbooks ‘rooting for Eagles’**\
+`Read for big bets, plus sportsbooks are seeing a lot of action on the playoff-darling Commanders ahead of the conference championship games.`\
+https://nytimes.com/athletic/6084439/2025/01/24/nfl-playoffs-betting-odds-chiefs-bills-commanders-eagles/
+
 **Will Chiefs-Bills smash NFL TV viewership records? Here's why it could**\
 `The record to beat: 55.47 million viewers.`\
 https://nytimes.com/athletic/6081469/2025/01/24/kansas-city-chiefs-buffalo-bills-nfl-afc-championship-game-cbs-taylor-swift-hailee-steinfeld-patrick-mahomes-josh-allen/
