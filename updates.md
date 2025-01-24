@@ -1,3 +1,11 @@
+**Sanchez has a lot of improving to do, says Maresca**\
+`Enzo Maresca admits Chelsea’s first-choice goalkeeper Robert Sanchez still has a lot of improving to do and believes he needs to cope better with criticism from the club&#8217;s fans.`\
+https://nytimes.com/athletic/6085896/2025/01/24/enzo-maresca-robert-sanchez-chelsea/
+
+**While Visiting Flood Survivors, Trump Suggested Eliminating FEMA**\
+`Also, egg prices are high. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/24/briefing/trump-visits-disaster-areas-high-egg-prices.html
+
 **Honduras Says Trump’s Deportation Plan Could Push It Closer to China**\
 `Many Latin American countries are trying to distance themselves from Beijing. But in response to President Trump’s sweeping deportation plans, Honduras is doing the opposite.`\
 https://nytimes.com/2025/01/24/us/honduras-china-trump-deportation.html
