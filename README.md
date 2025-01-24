@@ -10,7 +10,7 @@ https://nytimes.com/2025/01/24/health/derek-humphry-dead.html
 `It was not immediately clear the scope of a move to request assistance, though it is sure to raise legal challenges.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-officials-seek-to-deputize-local-and-state-officers-in-immigration-enforcement
 
-**Utah HC strikes out on initial trademark applications for all team name finalists, including Yeti**\
+**Utah HC strikes out on initial trademark applications for all team names**\
 `The team has work to do before securing a name, whether it's the Yeti, Yetis, Blizzard, Outlaws, Mammoth, Venom or HC.`\
 https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
 
