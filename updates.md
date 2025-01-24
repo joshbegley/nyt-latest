@@ -1,3 +1,7 @@
+**A Guide to the Austrian Alps, Where Skiing Is a Way of Life**\
+`Insiders share their favorite après-ski spots, springtime hikes and typically Tyrolean souvenirs.`\
+https://nytimes.com/2025/01/24/t-magazine/austrian-alps-ski-hotel-guide.html
+
 **Greece Tightens Laws on Domestic Violence (but Not Enough, Critics Say)**\
 `Amid a surge in reported cases, lawmakers imposed harsher punishments on perpetrators. Victims’ advocacy groups said the legislation was too thin on preventative measures.`\
 https://nytimes.com/2025/01/24/world/europe/greece-domestic-violence-law.html
