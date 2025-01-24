@@ -1,3 +1,7 @@
+**Nagelsmann extends contract with Germany men's team until Euro 2028**\
+`Germany men’s head coach Julian Nagelsmann has extended his contract through to the 2028 European Championship.`\
+https://nytimes.com/athletic/6085622/2025/01/24/julian-nagelsmann-germany-contract-extension/
+
 **Rudi Garcia appointed Belgium head coach**\
 `Rudi Garcia has been appointed Belgium head coach.`\
 https://nytimes.com/athletic/6085605/2025/01/24/rudi-garcia-belgium-manager/

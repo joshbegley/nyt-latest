@@ -1,3 +1,7 @@
+**Nagelsmann extends contract with Germany men's team until Euro 2028**\
+`Germany men’s head coach Julian Nagelsmann has extended his contract through to the 2028 European Championship.`\
+https://nytimes.com/athletic/6085622/2025/01/24/julian-nagelsmann-germany-contract-extension/
+
 **Rudi Garcia appointed Belgium head coach**\
 `Rudi Garcia has been appointed Belgium head coach.`\
 https://nytimes.com/athletic/6085605/2025/01/24/rudi-garcia-belgium-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/business/egg-shortage-prices.html
 **Trump’s Plan to Crush the Academic Left**\
 `The administration is trying to assert political control over American higher education.`\
 https://nytimes.com/2025/01/24/opinion/trump-dei-education-harvard.html
-
-**Penn State's defensive coordinator search continues: Who are the favorites?**\
-`Aside from hiring a new DC, Penn State also has to reshape its wide receivers group this offseason. `\
-https://nytimes.com/athletic/6083778/2025/01/24/penn-state-defensive-coordinator-search-college-football-james-franklin/
 
