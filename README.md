@@ -1,3 +1,7 @@
+**Supreme Court to Hear Oklahoma Religious Charter School Case**\
+`The proposal to create the nation’s first religious charter school paid for by taxpayer funds could move the line between church and state in education.`\
+https://nytimes.com/2025/01/24/us/supreme-court-oklahoma-religious-charter-school.html
+
 **The House oversight committee will investigate Republican complaints about banks.**\
 `Venture capital and cryptocurrency companies have claimed that they are subject to politically motivated discrimination, though the banks firmly deny that.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news/house-oversight-committee-to-investigate-republican-complaints-about-banks
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086796/2025/01/24/patriots-jabrill-peppers-acquitt
 **Islanders bring in Tony DeAngelo for remainder of 2024-25 season**\
 `DeAngelo played last season for the Hurricanes, appearing in 34 games along with nine playoff games.`\
 https://nytimes.com/athletic/6086774/2025/01/24/islanders-sign-tony-deangelo-one-year-contract/
-
-**Trump Pauses Disbursements to Program Supplying H.I.V. Treatment Worldwide**\
-`Pepfar, which is estimated to have delivered lifesaving treatment as many as 25 million people in 54 countries, faces a funding delay of as long as 180 days.`\
-https://nytimes.com/2025/01/24/us/politics/trump-hiv-aids-pepfar.html
 
