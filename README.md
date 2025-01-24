@@ -1,3 +1,7 @@
+**Without the United States, Global Health Will Fall Apart**\
+`It’s a mistake for President Trump to order to the United States to leave the World Health Organization. He should reverse course immediately.`\
+https://nytimes.com/2025/01/24/opinion/who-trump-us-global-health.html
+
 **FPL: Hall? Konate? Munoz? Who are the best Saliba replacements?**\
 `Abdul Rehman runs the rule over the best options to replace the injured Arsenal defender in FPL`\
 https://nytimes.com/athletic/6079325/2025/01/24/fantasy-premier-league-saliba-defenders-hall-konate/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/briefing/europe-trump-gaza.html
 **Novak Djokovic retires from Australian Open semifinal against Alexander Zverev**\
 `MELBOURNE, Australia — Novak Djokovic has retired from his Australian Open semifinal against Alexander Zverev after losing the first set in a tiebreak.`\
 https://nytimes.com/athletic/6085341/2025/01/24/novak-djokovic-retires-australian-open-semifinal-alexander-zverev/
-
-**Watching Max Dowman live: Arsenal's 'unbelievable' 15-year-old who seems destined for first team**\
-`Mikel Arteta has heaped praise on the young Arsenal midfielder, and The Athletic went along to watch Dowman up close in the FA Youth Cup`\
-https://nytimes.com/athletic/6083022/2025/01/24/max-dowman-arsenal-arteta-first-team/
 
