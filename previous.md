@@ -1,3 +1,11 @@
+**Trump Reinstates Longstanding Republican Anti-Abortion Policy**\
+`The move came after he addressed thousands of abortion opponents in Washington to mark the 52nd anniversary of the Supreme Court’s 1973 decision in Roe v. Wade.`\
+https://nytimes.com/2025/01/24/us/politics/trump-republican-anti-abortion-policy.html
+
+**Jo Baer, Minimalist Painter Who Rejected Abstraction, Dies at 95**\
+`After establishing herself as a leading proponent of nonrepresentational art, she left it behind — along with, to a significant extent, her position in the art world.`\
+https://nytimes.com/2025/01/24/arts/jo-baer-dead.html
+
 **Trump is touring Pacific Palisades. Altadena residents wonder why not them.**\
 `Residents of Altadena have expressed frustration that their town and their losses have been overshadowed by those in Pacific Palisades.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-is-touring-pacific-palisades-altadena-residents-wonder-why-not-them
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/trump-administration-gulf-of-america-
 **Thomas Gaither, Who Chose Jail After Civil Rights Sit-ins, Dies at 86**\
 `When he and other Black protesters were arrested at a whites-only lunch counter in 1961, they tried a new strategy — ‘Jail No Bail’ — and energized a movement.`\
 https://nytimes.com/2025/01/24/us/thomas-gaither-dead.html
-
-**Scheffler, McIlroy and Spieth making PGA Tour season debuts at Pebble**\
-`Scheffler was forced to delay his 2025 season after cutting his hand.`\
-https://nytimes.com/athletic/6087065/2025/01/24/scheffler-mcilroy-spieth-pga-tour-pebble-beach/
-
-**Contenders to Lead the Democratic Party Scramble to Show Momentum**\
-`As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
-https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
 

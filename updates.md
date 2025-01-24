@@ -1,3 +1,11 @@
+**Trump Reinstates Longstanding Republican Anti-Abortion Policy**\
+`The move came after he addressed thousands of abortion opponents in Washington to mark the 52nd anniversary of the Supreme Court’s 1973 decision in Roe v. Wade.`\
+https://nytimes.com/2025/01/24/us/politics/trump-republican-anti-abortion-policy.html
+
+**Jo Baer, Minimalist Painter Who Rejected Abstraction, Dies at 95**\
+`After establishing herself as a leading proponent of nonrepresentational art, she left it behind — along with, to a significant extent, her position in the art world.`\
+https://nytimes.com/2025/01/24/arts/jo-baer-dead.html
+
 **Trump is touring Pacific Palisades. Altadena residents wonder why not them.**\
 `Residents of Altadena have expressed frustration that their town and their losses have been overshadowed by those in Pacific Palisades.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-is-touring-pacific-palisades-altadena-residents-wonder-why-not-them
