@@ -1,3 +1,7 @@
+**Instagram and Facebook Blocked and Hid Abortion Pill Providers’ Posts**\
+`Some posts related to obtaining abortion pills were recently hidden on Instagram and Facebook and some accounts were suspended, before being later restored.`\
+https://nytimes.com/2025/01/23/technology/instagram-facebook-abortion-pill-providers.html
+
 **Breaking: NHL has begun preparation for Gary Bettman retirement 'in a couple years'**\
 `Bettman says he hasn't given the Board of Governors a timeline, but the executive committee is in a formal process of finding a successor.`\
 https://nytimes.com/athletic/6084164/2025/01/23/gary-bettman-retirement-succession/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/business/tiktok-app-iphones.html
 **MLB makes two minor rules changes for 2025, policing shifts, base running**\
 `The changes attempt to avoid rare instances where the old rules could have incentivized teams to try to game the system.`\
 https://nytimes.com/athletic/6084928/2025/01/23/mlb-rule-changes-2025-season-shift-violations/
-
-**Jurickson Profar gives Atlanta an answer to their left field void: Law**\
-`Profar may not be a strong bet to repeat his 2024 performance, but even if he regresses some, he'll be a big upgrade for Atlanta in left.`\
-https://nytimes.com/athletic/6084902/2025/01/23/jurickson-profar-atlanta-signing-analysis/
 
