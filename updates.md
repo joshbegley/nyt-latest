@@ -1,3 +1,7 @@
+**Tech’s TikTok Dilemma: Follow the Law or President Trump?**\
+`The federal law banning TikTok has revealed a major schism among American tech companies: Some are willing to flout the law — and some, including Apple and Google, are not.`\
+https://nytimes.com/2025/01/24/technology/tiktok-ban-trump-amazon-apple-google.html
+
 **Ryan Pressly weighing options as Astros and Cubs also pursue Alex Bregman: Sources**\
 `Pressly is deliberating on a fresh start versus staying where his family considers home.`\
 https://nytimes.com/athletic/6086590/2025/01/24/ryan-pressly-alex-bregman-cubs-astros-update/
