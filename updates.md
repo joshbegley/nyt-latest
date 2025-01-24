@@ -1,3 +1,19 @@
+**Julio Enciso to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we take a look at Julio Enciso's loan move to Ipswich Town`\
+https://nytimes.com/athletic/6085723/2025/01/24/julio-enciso-to-ipswich-town-the-athletic-500-transfer-ratings/
+
+**Israel Appears Poised to Keep Its Troops in Lebanon Beyond Deadline**\
+`Israel and Hezbollah agreed to withdraw from southern Lebanon, but Israel says that Hezbollah hasn’t upheld its promise and that the Lebanese Army isn’t ready to fill the void.`\
+https://nytimes.com/2025/01/24/world/middleeast/israel-lebanon-hezbollah-withdrawal-deadline.html
+
+**What's it like to face Aryna Sabalenka in full flow?**\
+`The world No. 1 is seeking a third Australian Open title in a row. This is what makes her the best player in the world.`\
+https://nytimes.com/athletic/6085614/2025/01/24/aryna-sabalenka-tennis-play-opponent-experience/
+
+**Guardiola says Man City signings available for Chelsea**\
+`Pep Guardiola has said Manchester City&#8217;s January signings Vitor Reis, Abdukodir Khusanov and Omar Marmoush could make their debuts against Chelsea on Saturday.`\
+https://nytimes.com/athletic/6085938/2025/01/24/manchester-city-signings-debut-chelsea/
+
 **‘Debanking,’ and the Trump Diss Heard Around Davos**\
 `President Trump’s accusation that Bank of America’ dropped conservatives as clients serves as a reminder C.E.O.s may face unexpected attacks by the White House.`\
 https://nytimes.com/2025/01/24/business/dealbook/debanking-davos-trump-bofa-moynihan.html
