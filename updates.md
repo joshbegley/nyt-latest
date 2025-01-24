@@ -1,3 +1,7 @@
+**Instagram and Facebook Blocked and Hid Abortion Pill Providers’ Posts**\
+`Some posts related to obtaining abortion pills were recently hidden on Instagram and Facebook and some accounts were suspended, before being later restored.`\
+https://nytimes.com/2025/01/23/technology/instagram-facebook-abortion-pill-providers.html
+
 **Breaking: NHL has begun preparation for Gary Bettman retirement 'in a couple years'**\
 `Bettman says he hasn't given the Board of Governors a timeline, but the executive committee is in a formal process of finding a successor.`\
 https://nytimes.com/athletic/6084164/2025/01/23/gary-bettman-retirement-succession/
