@@ -1,3 +1,7 @@
+**Bowden: 7 MLB moves — signings, trades and extensions — I'd like to see right now**\
+`Teams, players and agents are on the clock. With spring training only weeks away, there are several moves that need to be made now.`\
+https://nytimes.com/athletic/6085178/2025/01/24/mlb-trade-signing-extension-scenarios/
+
 **What coaching candidate Pete Carroll could bring to the table for the Raiders**\
 `The 73-year-old former Seahawks coach is reportedly the front-runner for the Raiders job. Would he be a good fit in Las Vegas?`\
 https://nytimes.com/athletic/6082305/2025/01/24/pete-carroll-raiders-coaching-job/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083943/2025/01/24/broncos-injury-prevention/
 **The Pulse: Exclusive audio from the Ohtani case**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6083860/2025/01/24/shohei-ohtani-translator-audio-mizuhara-the-pulse/
-
-**Court Vision: Florida and Texas A&M's late steals, what's going on with UConn, UNC**\
-`Don't forget about Houston, which probably belongs in the mix with the best teams in the country. `\
-https://nytimes.com/athletic/6085037/2025/01/24/mens-college-basketball-florida-texas-am-uconn-unc/
 
