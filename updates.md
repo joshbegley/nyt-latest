@@ -1,3 +1,7 @@
+**What Puts the ‘New York’ in New York Cheesecake?**\
+`The answer may have more to do with New York than you might think.`\
+https://nytimes.com/2025/01/24/dining/new-york-cheesecake-juniors-recipe.html
+
 **Betting for (by) dummies: Split on Chiefs-Bills and not an under in sight**\
 `Greenberg and Jackson make their picks for the Conference Championship games.`\
 https://nytimes.com/athletic/6085172/2025/01/24/betting-for-by-dummies-odds-chiefs-bills-commanders-eagles/

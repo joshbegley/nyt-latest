@@ -1,3 +1,7 @@
+**What Puts the ‘New York’ in New York Cheesecake?**\
+`The answer may have more to do with New York than you might think.`\
+https://nytimes.com/2025/01/24/dining/new-york-cheesecake-juniors-recipe.html
+
 **Betting for (by) dummies: Split on Chiefs-Bills and not an under in sight**\
 `Greenberg and Jackson make their picks for the Conference Championship games.`\
 https://nytimes.com/athletic/6085172/2025/01/24/betting-for-by-dummies-odds-chiefs-bills-commanders-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/well/dry-january-maintenance.html
 **Everton's McNeil 'probably needs surgery' on knee injury - Moyes**\
 `Everton manager David Moyes says Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury.`\
 https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
-
-**As Trump Visits North Carolina, Battered Communities Hope for More Aid**\
-`Residents of Asheville and the rest of western North Carolina are still recovering from catastrophic flooding in September.`\
-https://nytimes.com/2025/01/24/us/trump-north-carolina-floods-asheville.html
 
