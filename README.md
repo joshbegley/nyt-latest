@@ -1,3 +1,7 @@
+**Trump Says California Failed to Send Water to L.A. to Fight Fires, but Experts Say He’s Wrong**\
+`President Trump has blamed a lack of water during the Los Angeles fires on California decisions that benefit a small fish. Yet experts say he’s confusing different issues.`\
+https://nytimes.com/2025/01/23/us/trump-newsom-water-fires.html
+
 **Trump Officials Move to Quickly Expel Migrants Biden Allowed In Temporarily**\
 `A memo appears to allow Immigration and Customs Enforcement officers to target programs that let in more than a million people.`\
 https://nytimes.com/2025/01/23/us/politics/trump-immigrants-deportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/us/politics/trump-pardon-abortion-clinic-activist
 **Trump Bars Transgender Women From U.S. Prisons for Female Inmates**\
 `In an executive order, the president also moved to end gender-related medical treatments for transgender people in prison.`\
 https://nytimes.com/2025/01/23/us/trump-transgender-inmates-prison.html
-
-**Tennessee's Kim Caldwell to miss Texas game following birth of first child**\
-`Caldwell told The Athletic last week that her plan was “to return to basketball as quick as possible."`\
-https://nytimes.com/athletic/6084992/2025/01/23/tennessee-kim-caldwell-birth-texas/
 
