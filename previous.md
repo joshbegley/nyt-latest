@@ -22,7 +22,7 @@ https://nytimes.com/2025/01/24/crosswords/spelling-bee-forum.html
 `The Celtics weren't at their best Thursday, falling to the Lakers 117-96 on the second leg of a back-to-back.`\
 https://nytimes.com/athletic/6085475/2025/01/24/celtics-recent-struggles-loss-to-lakers/
 
-**How Wrexham captain James McClean went from car crash to star vs Birmingham in just 36 hours**\
+**How Wrexham captain James McClean went from car crash to starring against Birmingham in just 36 hours**\
 `Wrexham's unflappable captain was - as usual - the driving force in an entertaining game at the top of League One`\
 https://nytimes.com/athletic/6084541/2025/01/24/wrexham-birmingham-james-mcclean/
 

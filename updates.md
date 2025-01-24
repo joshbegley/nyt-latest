@@ -1,3 +1,7 @@
+**How Wrexham captain James McClean went from car crash to starring against Birmingham in just 36 hours**\
+`Wrexham's unflappable captain was - as usual - the driving force in an entertaining game at the top of League One`\
+https://nytimes.com/athletic/6084541/2025/01/24/wrexham-birmingham-james-mcclean/
+
 **Andy Murray says no decision has been made on his partnership with Novak Djokovic**\
 `MELBOURNE, Australia — Andy Murray has said that he and Novak Djokovic will hold talks about whether to extend their partnership beyond the Australian Open.`\
 https://nytimes.com/athletic/6085496/2025/01/24/andy-murray-novak-djokovic-partnership/
