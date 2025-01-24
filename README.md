@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6085219/2025/01/23/rangers-playoffs-race-kandre-mil
 https://nytimes.com/2025/01/23/us/trump-newsom-water-fires.html
 
 **Trump Officials Move to Quickly Expel Migrants Biden Allowed In Temporarily**\
-`A memo appears to allow Immigration and Customs Enforcement officers to target programs that let in more than a million people.`\
+`A memo appears to allow Immigration and Customs Enforcement officials to target programs that let in more than a million people.`\
 https://nytimes.com/2025/01/23/us/politics/trump-immigrants-deportation.html
 
 **Japan Raises Interest Rates to Highest Level Since 2008**\
