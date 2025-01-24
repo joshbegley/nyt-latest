@@ -1,3 +1,7 @@
+**Pirates' offer for Paul Skenes MLB Debut Patch declined, card going to auction**\
+`The card will be featured in a March auction and proceeds from the card will be donated to L.A. fire relief funds.`\
+https://nytimes.com/athletic/6086660/2025/01/24/paul-skenes-debut-patch-topps-auction/
+
 **Existing-Home Sales in 2024 Were Slowest in Decades**\
 `The market perked up late in the year when interest rates eased, but affordability challenges yielded the fewest transactions since 1995.`\
 https://nytimes.com/2025/01/24/business/economy/home-sales-mortgage-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/arts/dance/review-malpaso-cuban-contemporary-joyc
 **Heat Today: Erik Spoelstra's tells players to 'get over it' amid Jimmy Butler drama**\
 `Spoelstra isn't interested in entertaining excuses. "This is the NBA life."`\
 https://nytimes.com/athletic/6086271/2025/01/24/erik-spoelstra-jimmy-butler-bam-adebayo-heat-trade-deadline-nba/
-
-**Hegseth Could Be Confirmed With Smallest Margin of Any Defense Secretary**\
-`For the last 50 years, almost every nominee to lead the Pentagon has been a consensus pick who drew lopsided margins of support in the Senate. Pete Hegseth’s nomination has been a notable exception.`\
-https://nytimes.com/2025/01/24/us/politics/hegseth-defense-secretary-vote-margin.html
 

@@ -1,3 +1,7 @@
+**Pirates' offer for Paul Skenes MLB Debut Patch declined, card going to auction**\
+`The card will be featured in a March auction and proceeds from the card will be donated to L.A. fire relief funds.`\
+https://nytimes.com/athletic/6086660/2025/01/24/paul-skenes-debut-patch-topps-auction/
+
 **Existing-Home Sales in 2024 Were Slowest in Decades**\
 `The market perked up late in the year when interest rates eased, but affordability challenges yielded the fewest transactions since 1995.`\
 https://nytimes.com/2025/01/24/business/economy/home-sales-mortgage-rates.html
