@@ -1,3 +1,11 @@
+**Why Manchester United selling Alejandro Garnacho would be a bad idea**\
+`A Garnacho departure would be an indictment of the club’s ownership and management and the decisions they have taken over the past decade`\
+https://nytimes.com/athletic/6085149/2025/01/24/manchester-united-garnacho-sale-questions/
+
+**Jimmy Kimmel Mocks Trump Ahead of His L.A. Visit**\
+`The comedian, who is based in Los Angeles, said that President Trump was visiting California on Friday “to blame us for the fires in person.”`\
+https://nytimes.com/2025/01/24/arts/television/jimmy-kimmel-trump-wildfire.html
+
 **North Carolina Tar Heels land top-10 basketball recruit Caleb Wilson**\
 `Caleb Wilson chose the Tar Heels over fellow finalists Kentucky and Ohio State.`\
 https://nytimes.com/athletic/6081081/2025/01/24/unc-lands-top-10-recruit-caleb-wilson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6082833/2025/01/24/should-newcastle-stick-with-mart
 **Arne Slot vs the low block: Finding a way past Liverpool's latest challenge**\
 `Liverpool may need to find a solution against teams parking the bus`\
 https://nytimes.com/athletic/6082846/2025/01/24/arne-slot-v-the-low-block/
-
-**Why Renato Veiga is joining Juventus on loan six months after Chelsea transfer**\
-`Events in January crystallised the reality that Veiga would not get an opportunity at Stamford Bridge this season under Enzo Maresca`\
-https://nytimes.com/athletic/6083712/2025/01/24/renato-veiga-chelsea-transfer-loan-juventus-analysis/
-
-**Friday Briefing**\
-`Trump criticizes Europe.`\
-https://nytimes.com/2025/01/24/briefing/europe-trump-gaza.html
 

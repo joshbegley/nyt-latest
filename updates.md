@@ -1,3 +1,11 @@
+**Why Manchester United selling Alejandro Garnacho would be a bad idea**\
+`A Garnacho departure would be an indictment of the club’s ownership and management and the decisions they have taken over the past decade`\
+https://nytimes.com/athletic/6085149/2025/01/24/manchester-united-garnacho-sale-questions/
+
+**Jimmy Kimmel Mocks Trump Ahead of His L.A. Visit**\
+`The comedian, who is based in Los Angeles, said that President Trump was visiting California on Friday “to blame us for the fires in person.”`\
+https://nytimes.com/2025/01/24/arts/television/jimmy-kimmel-trump-wildfire.html
+
 **North Carolina Tar Heels land top-10 basketball recruit Caleb Wilson**\
 `Caleb Wilson chose the Tar Heels over fellow finalists Kentucky and Ohio State.`\
 https://nytimes.com/athletic/6081081/2025/01/24/unc-lands-top-10-recruit-caleb-wilson/
