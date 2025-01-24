@@ -1,3 +1,7 @@
+**USC expected to hire Notre Dame GM Chad Bowden**\
+`Bowden played a huge role in reshaping Notre Dame's approach to talent acquisition. Can he do the same at USC?`\
+https://nytimes.com/athletic/6087046/2025/01/24/usc-football-gm-chad-bowden-notre-dame/
+
 **Twins provide more details about digital streaming, TV broadcast for 2025 season**\
 `Fans can begin purchasing the package Feb. 11. It will cost $99.99 annually or $19.99 per month, with discounts for season ticket holders.`\
 https://nytimes.com/athletic/6087078/2025/01/24/minnesota-twins-tv-streaming-2025-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
 **Appeals Court Upholds Injunction on Iowa’s State-Level Immigration Enforcement Law**\
 `A lower court had blocked the Republican-backed law that made it a state crime to enter Iowa after being deported or denied entry to the United States.`\
 https://nytimes.com/2025/01/24/us/iowa-immigration-case.html
-
-**This Rare Plant Smells Horrible, but People Can’t Wait to Get a Whiff**\
-`At the Brooklyn Botanic Garden, a so-called corpse flower bloomed for the first time on Friday. The smell was not unlike rotting flesh.`\
-https://nytimes.com/2025/01/24/nyregion/brooklyn-corpse-flower-bloom.html
 
