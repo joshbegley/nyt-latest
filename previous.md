@@ -1,8 +1,12 @@
+**Ryan Pressly weighing options as Astros and Cubs also pursue Alex Bregman: Sources**\
+`Pressly is deliberating on a fresh start versus staying where his family considers home.`\
+https://nytimes.com/athletic/6086590/2025/01/24/ryan-pressly-alex-bregman-cubs-astros-update/
+
 **Gary Bettman on Connor McDavid's suspension, 4 Nations attendance, salary cap forecasting, more: Q&A**\
 `On McDavid, Bettman said Thursday, "I understand the frustration, and it's something we're going to continue to monitor."`\
 https://nytimes.com/athletic/6086564/2025/01/24/gary-bettman-mcdavid-4-nations-cap/
 
-**Executive order removes X third-gender option for passports.**\
+**A Trump directive orders the third-gender option removed from passports and other government-issued IDs.**\
 `By Ceylan Yeğinsu`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news-hegseth/executive-order-removes-x-third-gender-option-for-passports
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/movies/nickel-boys-clip.html
 **Adam Schiff, Trump’s Favorite Foil, Tries to Insulate California From His Wrath**\
 `As a congressman who led the first impeachment of President Trump, Mr. Schiff relished his role in the resistance. Now a senator, he must protect his state’s interests at a perilous time.`\
 https://nytimes.com/2025/01/24/us/politics/adam-schiff-interview.html
-
-**‘Nickel Boys’ | Anatomy of a Scene**\
-`The director RaMell Ross narrates a sequence from his film, which has been nominated for best picture.`\
-https://nytimes.com/video/movies/100000009947211/nickel-boys-scene.html
 

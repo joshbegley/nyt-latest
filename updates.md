@@ -1,3 +1,11 @@
+**Ryan Pressly weighing options as Astros and Cubs also pursue Alex Bregman: Sources**\
+`Pressly is deliberating on a fresh start versus staying where his family considers home.`\
+https://nytimes.com/athletic/6086590/2025/01/24/ryan-pressly-alex-bregman-cubs-astros-update/
+
+**A Trump directive orders the third-gender option removed from passports and other government-issued IDs.**\
+`By Ceylan Yeğinsu`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news-hegseth/executive-order-removes-x-third-gender-option-for-passports
+
 **Gary Bettman on Connor McDavid's suspension, 4 Nations attendance, salary cap forecasting, more: Q&A**\
 `On McDavid, Bettman said Thursday, "I understand the frustration, and it's something we're going to continue to monitor."`\
 https://nytimes.com/athletic/6086564/2025/01/24/gary-bettman-mcdavid-4-nations-cap/
