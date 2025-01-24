@@ -1,3 +1,7 @@
+**Review: Malpaso Returns, With Boundless Energy but Little Risk**\
+`The Cuban company’s program at the Joyce Theater includes three U.S. premieres.`\
+https://nytimes.com/2025/01/24/arts/dance/review-malpaso-cuban-contemporary-joyce-theater.html
+
 **Heat Today: Erik Spoelstra's tells players to 'get over it' amid Jimmy Butler drama**\
 `Spoelstra isn't interested in entertaining excuses. "This is the NBA life."`\
 https://nytimes.com/athletic/6086271/2025/01/24/erik-spoelstra-jimmy-butler-bam-adebayo-heat-trade-deadline-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/theater/tiago-rodrigues-no-yogurt-for-the-dead.ht
 **Live Q&A: Talking baseball with Eno Sarris on Friday 1/24 at 1:00 p.m. ET**\
 `Submit your questions for Eno Sarris' latest live chat about all things MLB and fantasy baseball.`\
 https://nytimes.com/athletic/6083950/2025/01/24/eno-sarris-live-mlb-chat-1-24/
-
-**Review: Yuja Wang Tries Something New With the Philharmonic**\
-`This star pianist fascinatingly, and with mixed success, led a trio of 20th-century chamber concertos from the keyboard.`\
-https://nytimes.com/2025/01/24/arts/music/review-yuja-wang-new-york-philharmonic.html
 

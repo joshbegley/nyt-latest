@@ -1,3 +1,11 @@
+**Heat Today: Erik Spoelstra's tells players to 'get over it' amid Jimmy Butler drama**\
+`Spoelstra isn't interested in entertaining excuses. "This is the NBA life."`\
+https://nytimes.com/athletic/6086271/2025/01/24/erik-spoelstra-jimmy-butler-bam-adebayo-heat-trade-deadline-nba/
+
+**Hegseth Could Be Confirmed With Smallest Margin of Any Defense Secretary**\
+`For the last 50 years, almost every nominee to lead the Pentagon has been a consensus pick who drew lopsided margins of support in the Senate. Pete Hegseth’s nomination has been a notable exception.`\
+https://nytimes.com/2025/01/24/us/politics/hegseth-defense-secretary-vote-margin.html
+
 **The Lumber Sexual Returns**\
 `With a Filson partnership, Junya Watanabe takes us on a time warp back to the hipstery 2000s — plaid checks and all.`\
 https://nytimes.com/2025/01/24/style/junya-watanabe-mens-wear-paris.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6083950/2025/01/24/eno-sarris-live-mlb-chat-1-24/
 **Review: Yuja Wang Tries Something New With the Philharmonic**\
 `This star pianist fascinatingly, and with mixed success, led a trio of 20th-century chamber concertos from the keyboard.`\
 https://nytimes.com/2025/01/24/arts/music/review-yuja-wang-new-york-philharmonic.html
-
-**Ontario Premier Calls Early Election in Response to Trump Tariff Threat**\
-`Doug Ford, Ontario’s Conservative leader, has recently said that President Trump was “going to try to devastate our country” with a plan to impose tariffs on Canadian exports.`\
-https://nytimes.com/2025/01/24/world/canada/ontario-tariffs-doug-ford-trump.html
-
-**Trump Executive Order Prompts National Gallery to End Diversity Programs**\
-`The National Gallery of Art said it had closed its office of belonging and inclusion to comply with a presidential order.`\
-https://nytimes.com/2025/01/24/arts/design/national-gallery-diversity-equity-inclusion.html
 

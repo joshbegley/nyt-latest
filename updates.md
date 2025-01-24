@@ -1,3 +1,11 @@
+**Heat Today: Erik Spoelstra's tells players to 'get over it' amid Jimmy Butler drama**\
+`Spoelstra isn't interested in entertaining excuses. "This is the NBA life."`\
+https://nytimes.com/athletic/6086271/2025/01/24/erik-spoelstra-jimmy-butler-bam-adebayo-heat-trade-deadline-nba/
+
+**Hegseth Could Be Confirmed With Smallest Margin of Any Defense Secretary**\
+`For the last 50 years, almost every nominee to lead the Pentagon has been a consensus pick who drew lopsided margins of support in the Senate. Pete Hegseth’s nomination has been a notable exception.`\
+https://nytimes.com/2025/01/24/us/politics/hegseth-defense-secretary-vote-margin.html
+
 **Get a Hug From Aunjanue Ellis-Taylor in ‘Nickel Boys’**\
 `The director RaMell Ross narrates a sequence from his film, which is shot from the point of view of its characters. The movie is nominated for best picture.`\
 https://nytimes.com/2025/01/24/movies/nickel-boys-clip.html
