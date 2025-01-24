@@ -1,4 +1,4 @@
-**Trump’s Interior Department Says Gulf of Mexico Is Now ‘Gulf of America’**\
+**Interior Department Says Gulf of Mexico Is Now ‘Gulf of America’**\
 `Trump also renamed Denali, North America’s tallest peak, as Mount McKinley, despite objections from Alaska’s senators.`\
 https://nytimes.com/2025/01/24/us/politics/trump-administration-gulf-of-america-change.html
 
