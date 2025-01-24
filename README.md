@@ -1,3 +1,7 @@
+**Existing-Home Sales in 2024 Were Slowest in Decades**\
+`The market perked up late in the year when interest rates eased, but affordability challenges yielded the fewest transactions since 1995.`\
+https://nytimes.com/2025/01/24/business/economy/home-sales-mortgage-rates.html
+
 **Arsenal working on deal for Rosenborg's Nypan**\
 `Arsenal are working on a deal to sign midfielder Sverre Nypan from Rosenborg.`\
 https://nytimes.com/athletic/6077514/2025/01/24/sverre-nypan-arsenal-transfer-who/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086271/2025/01/24/erik-spoelstra-jimmy-butler-bam-
 **Hegseth Could Be Confirmed With Smallest Margin of Any Defense Secretary**\
 `For the last 50 years, almost every nominee to lead the Pentagon has been a consensus pick who drew lopsided margins of support in the Senate. Pete Hegseth’s nomination has been a notable exception.`\
 https://nytimes.com/2025/01/24/us/politics/hegseth-defense-secretary-vote-margin.html
-
-**The Lumber Sexual Returns**\
-`With a Filson partnership, Junya Watanabe takes us on a time warp back to the hipstery 2000s — plaid checks and all.`\
-https://nytimes.com/2025/01/24/style/junya-watanabe-mens-wear-paris.html
 
