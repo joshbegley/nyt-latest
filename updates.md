@@ -1,3 +1,7 @@
+**Trump Officials Move to Quickly Expel Migrants Biden Allowed In Temporarily**\
+`A memo appears to allow Immigration and Customs Enforcement officials to target programs that let in more than a million people.`\
+https://nytimes.com/2025/01/23/us/politics/trump-immigrants-deportation.html
+
 **Blue Jackets' back-to-back struggles continue with lopsided loss to Hurricanes**\
 `Columbus ran out of gas in the second period and fell to 0-7 on the second half of a back-to-back.`\
 https://nytimes.com/athletic/6085154/2025/01/23/blue-jackets-back-to-back-struggles-hurricanes/
