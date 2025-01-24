@@ -30,7 +30,7 @@ https://nytimes.com/2025/01/24/business/shipping-red-sea-houthis.html
 `After being snowbound in New Orleans, the Bucks arrived in Milwaukee a little more than two hours before game time and then routed Miami.`\
 https://nytimes.com/athletic/6085727/2025/01/24/bucks-heat-lillard-antetokounmpo/
 
-**Hegseth Said He Paid the Woman Who Accused Him of Rape $50,000, Senator Says**\
+**Hegseth Told Senator He Paid $50,000 to Woman Who Accused Him of Rape**\
 `The settlement’s existence after a 2017 accusation had been documented before the defense secretary nominee’s confirmation hearing this month, but the amount had not been known publicly.`\
 https://nytimes.com/2025/01/24/us/politics/hegseth-payment.html
 
