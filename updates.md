@@ -1,3 +1,7 @@
+**Arsenal working on deal for Rosenborg's Nypan**\
+`Arsenal are working on a deal to sign midfielder Sverre Nypan from Rosenborg.`\
+https://nytimes.com/athletic/6077514/2025/01/24/sverre-nypan-arsenal-transfer-who/
+
 **Tech’s TikTok Dilemma: Follow the Law or President Trump?**\
 `The federal law banning TikTok has revealed a major schism among American tech companies: Some are willing to flout the law — and some, including Apple and Google, are not.`\
 https://nytimes.com/2025/01/24/technology/tiktok-ban-trump-amazon-apple-google.html
