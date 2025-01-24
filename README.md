@@ -1,3 +1,7 @@
+**How Wrexham captain James McClean went from car crash to star vs Birmingham in just 36 hours**\
+`Wrexham's unflappable captain was - as usual - the driving force in an entertaining game at the top of League One`\
+https://nytimes.com/athletic/6084541/2025/01/24/wrexham-birmingham-james-mcclean/
+
 **How Manchester City have built bridges with victims of Barry Bennell who tried to sue the club**\
 `Prominent members of the club have been involved in supporting the victims in person and have been praised for their sensitivities`\
 https://nytimes.com/athletic/6069440/2025/01/24/man-city-bennell-victims-support/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/opinion/who-trump-us-global-health.html
 **FPL: Hall? Konate? Munoz? Who are the best Saliba replacements?**\
 `Abdul Rehman runs the rule over the best options to replace the injured Arsenal defender in FPL`\
 https://nytimes.com/athletic/6079325/2025/01/24/fantasy-premier-league-saliba-defenders-hall-konate/
-
-**Yasin Ayari: Understated and underrated**\
-`Ayari has has worked hard to get into the first team after loan spells last season and he is now thriving under Hurzeler`\
-https://nytimes.com/athletic/6074786/2025/01/24/yasin-ayari-brighton-midfielder/
 
