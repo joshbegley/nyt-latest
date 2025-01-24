@@ -1,3 +1,7 @@
+**Quote of the Day: Fewer Battlefield Deaths, But Still Losing to Russia**\
+`Quotation of the Day for Friday, January 24, 2025`\
+https://nytimes.com/2025/01/23/pageoneplus/quote-of-the-day-fewer-battlefield-deaths-but-still-losing-to-russia.html
+
 **Red Wings thoughts: Larkin's memorable night, Kasper's opportunity and more**\
 `Larkin recorded a key goal and assist in his 700th NHL game, leading the Red Wings to a 4-2 win over the Canadiens.`\
 https://nytimes.com/athletic/6085179/2025/01/23/red-wings-dylan-larkin-marco-kasper/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/business/bank-of-japan-interest-rates.html
 **Paying Half for Quarters**\
 `Ernest Lim makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/01/23/crosswords/daily-puzzle-2025-01-24.html
-
-**Instagram and Facebook Blocked and Hid Abortion Pill Providers’ Posts**\
-`Some posts related to obtaining abortion pills were recently hidden on Instagram and Facebook and some accounts were suspended, before being later restored.`\
-https://nytimes.com/2025/01/23/technology/instagram-facebook-abortion-pill-providers.html
 
