@@ -1,3 +1,7 @@
+**Trump Executive Order Prompts National Gallery to End Diversity Programs**\
+`The National Gallery of Art said it had closed its office of belonging and inclusion to comply with a presidential order.`\
+https://nytimes.com/2025/01/24/arts/design/national-gallery-diversity-equity-inclusion.html
+
 **Cherry Pies, Severed Ears and the Making of a David Lynch Memorial**\
 `Fans of the late American filmmaker built a distinctly Lynchian shrine outside the Burbank restaurant Bob’s Big Boy.`\
 https://nytimes.com/2025/01/24/dining/david-lynch-bobs-big-boy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073696/2025/01/24/bills-chiefs-how-to-watch-odds-p
 **Genesis Invitational moves to Torrey Pines due to L.A. fires**\
 `Riviera Country Club, the original location, is located in the Palisades not far from the devastation of the fires.`\
 https://nytimes.com/athletic/6086402/2025/01/24/genesis-invitational-move-torrey-pines/
-
-**Ohio State running back Quinshon Judkins declares for NFL Draft**\
-`Ole Miss transfer rushed for 1,060 yards and 14 touchdowns in helping Buckeyes to national championship.`\
-https://nytimes.com/athletic/6086368/2025/01/24/ohio-state-running-back-quinshon-judkins-declares-for-nfl-draft/
 
