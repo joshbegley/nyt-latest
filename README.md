@@ -1,3 +1,7 @@
+**What Is the Future of the Paris Agreement?**\
+`On President Trump’s first day in office, he pulled out of the Paris Agreement, a pact among nearly all nations to fight climate change. Reporting from Davos, Switzerland, David Gelles, a climate journalist for The New York Times, explains what this decision means for the rest of the world.`\
+https://nytimes.com/video/climate/100000009939986/what-is-the-future-of-the-paris-agreement.html
+
 **Target Becomes the Latest Brand to Roll Back D.E.I.**\
 `The retailer joins a growing group of companies dropping commitments and policies on diversity and equity as President Trump fights the programs.`\
 https://nytimes.com/2025/01/24/business/target-dei-rollback.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/pence-kennedy-abortion.html
 **Texans fire OC Bobby Slowik after 2 seasons: Sources**\
 `Slowik spent two seasons as Houston's offensive coordinator, both with C.J. Stroud at quarterback.`\
 https://nytimes.com/athletic/6086661/2025/01/24/bobby-slowik-fired-texans-oc-coach/
-
-**An Evacuation, and a Haunting Question**\
-`Alexandra Berzon, an investigative reporter who lives in Los Angeles, reflects on her family’s evacuation from the Eaton fire.`\
-https://nytimes.com/2025/01/24/us/wildfires-evacuation-question.html
 
