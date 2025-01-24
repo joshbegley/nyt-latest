@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6084902/2025/01/23/jurickson-profar-atlanta-signing
 `Cori Clingman was arrested Thursday and indicted on 13 counts, including negligent manslaughter and driving under the influence of alcohol.a`\
 https://nytimes.com/athletic/6084704/2025/01/23/driver-charged-in-car-crash-that-killed-vikings-khyree-jackson-two-others/
 
-**LeBron James named NBA All-Star starter for 21st straight season**\
+**LeBron named NBA All-Star starter for 21st straight season; Wemby left out**\
 `NBA's All-Star starters for newly formatted event revealed. Reserves will be announced Jan. 30.`\
 https://nytimes.com/athletic/6084741/2025/01/23/lebron-james-named-nba-all-star-starter-for-21st-straight-season/
 
