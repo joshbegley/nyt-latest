@@ -1,3 +1,7 @@
+**Israel and Hamas Prepare for Next Round of Hostage and Prisoner Releases**\
+`Under the terms of the Gaza cease-fire, Hamas was expected to share the names of four female hostages to be released Saturday, and Israel would name the more than 100 Palestinian prisoners to be freed in exchange.`\
+https://nytimes.com/2025/01/24/world/middleeast/israel-hamas-hostage-cease-fire-deal.html
+
 **How Rockets got Cam Whitmore out of 'la la land' and unlocked his defensive potential**\
 `Kelly Iko looks at the resurgence of both Cam Whitmore in Houston and Jay Huff in Memphis in the the latest Ikosystem. `\
 https://nytimes.com/athletic/6070316/2025/01/24/rockets-cam-whitmore-defense-jay-huff-grizzlies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084217/2025/01/24/weston-mckennie-interview-juvent
 **NHL rumblings: Goalie market twists and turns, and what's next on Jonathan Toews?**\
 `The Capitals are ramping up efforts to extend Logan Thompson while the goaltending situation in Carolina has gotten less dire.`\
 https://nytimes.com/athletic/6084949/2025/01/24/logan-thompson-jonathan-toews-nhl-rumblings/
-
-**Would the Bruins trade Brad Marchand? ‘All bets are off’**\
-`The Bruins must determine if a trade is worth the fallout of trading one of the club’s best players of all time.`\
-https://nytimes.com/athletic/6084291/2025/01/24/bruins-brad-marchand-trade-deadline/
 
