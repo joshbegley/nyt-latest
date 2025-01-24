@@ -1,3 +1,7 @@
+**Everton's  McNeil 'probably needs surgery' on knee injury - Moyes**\
+`Everton&#8217;s Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury, manager David Moyes has said.`\
+https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
+
 **As Trump Visits North Carolina, Battered Communities Hope for More Aid**\
 `Residents of Asheville and the rest of western North Carolina are still recovering from catastrophic flooding in September.`\
 https://nytimes.com/2025/01/24/us/trump-north-carolina-floods-asheville.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085196/2025/01/24/lebron-james-anthony-davis-laker
 **'Where the ego dies': Bills' utility drawer of receivers happy to get the job done when called upon**\
 `Their individual numbers may not look great, but the receivers are focused on the greater goal of winning.`\
 https://nytimes.com/athletic/6085528/2025/01/24/bills-receivers-mack-hollins-khalil-shakir-amari-cooper/
-
-**Angel Blue Doubted Her Path in Opera. Now She’s a Star.**\
-`Once used to frequent rejection letters, Blue has become a regular on major stages and is singing the title role in “Aida” at the Metropolitan Opera.`\
-https://nytimes.com/2025/01/24/arts/music/angel-blue-aida-met-opera.html
 

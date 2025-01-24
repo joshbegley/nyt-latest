@@ -1,3 +1,7 @@
+**Everton's  McNeil 'probably needs surgery' on knee injury - Moyes**\
+`Everton&#8217;s Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury, manager David Moyes has said.`\
+https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
+
 **As Trump Visits North Carolina, Battered Communities Hope for More Aid**\
 `Residents of Asheville and the rest of western North Carolina are still recovering from catastrophic flooding in September.`\
 https://nytimes.com/2025/01/24/us/trump-north-carolina-floods-asheville.html
