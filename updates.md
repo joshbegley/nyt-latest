@@ -1,5 +1,9 @@
 **The House oversight committee will investigate Republican complaints about banks.**\
 `Venture capital and cryptocurrency companies have claimed that they are subject to politically motivated discrimination, though the banks firmly deny that.`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news/house-oversight-committee-to-investigate-republican-complaints-about-banks
+
+**The House oversight committee will investigate Republican complaints about banks.**\
+`Venture capital and cryptocurrency companies have claimed that they are subject to politically motivated discrimination, though the banks firmly deny that.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news-hegseth/house-oversight-committee-to-investigate-republican-complaints-about-banks
 
 **Amid the Pain of Separation and Surveillance, Life Continues**\
