@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6069440/2025/01/24/man-city-bennell-victims-support
 https://nytimes.com/athletic/6084201/2025/01/24/bryan-rust-injured-penguins-ducks/
 
 **Tottenham's youngsters are performing superbly - but at what cost?**\
-`Too much is being asked of Spurs' decimated squad - they have earned the right to some reinforcements`\
+`Too much is being asked of Spurs' decimated squad - these players have earned the right to some reinforcements before the window shuts`\
 https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
 
 **Word of the Day: zhuzh**\
