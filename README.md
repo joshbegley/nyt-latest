@@ -1,3 +1,11 @@
+**49ers expected to hire Robert Saleh as DC: Sources**\
+`Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
+https://nytimes.com/athletic/6076242/2025/01/23/robert-saleh-hired-49ers-defensive-coordinator/
+
+**$3,000 for a Used iPhone? If It Has TikTok, Maybe.**\
+`Phones with TikTok are being listed for eye-watering sums as the social media platform remains absent from app stores.`\
+https://nytimes.com/2025/01/23/business/tiktok-app-iphones.html
+
 **MLB makes two minor rules changes for 2025, policing shifts, base running**\
 `The changes attempt to avoid rare instances where the old rules could have incentivized teams to try to game the system.`\
 https://nytimes.com/athletic/6084928/2025/01/23/mlb-rule-changes-2025-season-shift-violations/
@@ -7,8 +15,8 @@ https://nytimes.com/athletic/6084928/2025/01/23/mlb-rule-changes-2025-season-shi
 https://nytimes.com/athletic/6084902/2025/01/23/jurickson-profar-atlanta-signing-analysis/
 
 **Driver charged in crash that killed Vikings' Khyree Jackson, two others**\
-`Cori Clingman was arrested Thursday and indicted on 13 counts, including negligent manslaughter and driving under the influence of alcohol.a`\
-https://nytimes.com/athletic/6084704/2025/01/23/driver-charged-in-car-crash-that-killed-vikings-khyree-jackson-two-others/
+`Cori Clingman was arrested Thursday and indicted on 13 counts, including negligent manslaughter and driving under the influence of alcohol.`\
+https://nytimes.com/athletic/6084704/2025/01/23/khyree-jackson-vikings-crash-driver-charges/
 
 **LeBron named NBA All-Star starter for 21st straight season; Wemby left out**\
 `NBA's All-Star starters for newly formatted event revealed. Reserves will be announced Jan. 30.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6084724/2025/01/23/ichiro-baseball-hall-of-fame-jap
 **Exclusive: Audio reveals Ohtani’s former interpreter impersonating Dodgers star in call with bank**\
 `Prosecutors ask for nearly five years in prison for Ohtani interpreter in fraud case`\
 https://nytimes.com/athletic/6084445/2025/01/23/shohei-ohtani-interpreter-audio-money-transfer-ippei/
-
-**Dodgers introduce Tanner Scott, call their spending 'really good for baseball'**\
-`Asked if his team was overrunning baseball, GM Brandon Gomes answered: “The goal is to win every single year.”`\
-https://nytimes.com/athletic/6084716/2025/01/23/dodgers-ruining-baseball-tanner-scott/
-
-**Liam Coen re-engages with Jaguars for coach opening, day after withdrawing name: Source**\
-`The Jaguars fired GM Trent Baalke Wednesday and are trying to lure Tampa Bay's offensive coordinator to take Jacksonville's head coach job.`\
-https://nytimes.com/athletic/6084740/2025/01/23/liam-coen-jaguars-coaching-opening/
 

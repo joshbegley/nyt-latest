@@ -1,4 +1,4 @@
-**MLB makes two minor rules changes for 2025, policing shifts, baserunning**\
+**MLB makes two minor rules changes for 2025, policing shifts, base running**\
 `The changes attempt to avoid rare instances where the old rules could have incentivized teams to try to game the system.`\
 https://nytimes.com/athletic/6084928/2025/01/23/mlb-rule-changes-2025-season-shift-violations/
 
