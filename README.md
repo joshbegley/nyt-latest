@@ -1,3 +1,7 @@
+**The Pulse: Exclusive audio from the Ohtani case**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6083860/2025/01/24/shohei-ohtani-translator-audio-mizuhara-the-pulse/
+
 **Court Vision: Florida and Texas A&M's late steals, what's going on with UConn, UNC**\
 `Don't forget about Houston, which probably belongs in the mix with the best teams in the country. `\
 https://nytimes.com/athletic/6085037/2025/01/24/mens-college-basketball-florida-texas-am-uconn-unc/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/world/middleeast/israel-hamas-hostage-cease-fire-
 **How Rockets got Cam Whitmore out of 'la la land' and unlocked his defensive potential**\
 `Kelly Iko looks at the resurgence of both Cam Whitmore in Houston and Jay Huff in Memphis in the the latest Ikosystem. `\
 https://nytimes.com/athletic/6070316/2025/01/24/rockets-cam-whitmore-defense-jay-huff-grizzlies/
-
-**Vikings free-agent targets: 10 offensive linemen and defenders who'd make sense**\
-`The Vikings need help on the interior offensive and defensive lines and in the defensive backfield. Can they find it in free agency?`\
-https://nytimes.com/athletic/6084289/2025/01/24/vikings-free-agency-targets-positions/
 
