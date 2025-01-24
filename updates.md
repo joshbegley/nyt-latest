@@ -1,3 +1,11 @@
+**Review: Yuja Wang Tries Something New With the Philharmonic**\
+`This star pianist fascinatingly, and with mixed success, led a trio of 20th-century chamber concertos from the keyboard.`\
+https://nytimes.com/2025/01/24/arts/music/review-yuja-wang-new-york-philharmonic.html
+
+**Ontario Premier Calls Early Election in Response to Trump Tariff Threat**\
+`Doug Ford, Ontario’s Conservative leader, has recently said that President Trump was “going to try to devastate our country” with a plan to impose tariffs on Canadian exports.`\
+https://nytimes.com/2025/01/24/world/canada/ontario-tariffs-doug-ford-trump.html
+
 **Trump Executive Order Prompts National Gallery to End Diversity Programs**\
 `The National Gallery of Art said it had closed its office of belonging and inclusion to comply with a presidential order.`\
 https://nytimes.com/2025/01/24/arts/design/national-gallery-diversity-equity-inclusion.html
