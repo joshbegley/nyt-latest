@@ -1,3 +1,19 @@
+**As Trump Visits North Carolina, Battered Communities Hope for More Aid**\
+`Residents of Asheville and the rest of western North Carolina are still recovering from catastrophic flooding in September.`\
+https://nytimes.com/2025/01/24/us/trump-north-carolina-floods-asheville.html
+
+**MeToo Outrage Leaves Japanese Broadcaster Without a Single Advertiser**\
+`A popular TV host admitted trying to conceal a sexual assault complaint. This time, the reaction was swift and harsh, and aimed not only at him but also his employers.`\
+https://nytimes.com/2025/01/24/world/asia/japan-me-too-sex-scandal.html
+
+**Wolves forward Cunha not for sale in January, says Pereira**\
+`Wolverhampton Wanderers head coach Vitor Pereira says Matheus Cunha is not for sale this month — and confirmed he wants two more signings before the transfer deadline.`\
+https://nytimes.com/athletic/6086092/2025/01/24/matheus-cunha-wolves-future-update/
+
+**Meta to Increase Spending to $65 Billion This Year in A.I. Push**\
+`Much of the investment will go into increasing the company’s footprint in data centers, which provide the computing power that A.I. products and algorithms require.`\
+https://nytimes.com/2025/01/24/technology/meta-data-center.html
+
 **Man Utd make €30m offer for Lecce's Dorgu**\
 `Manchester United have tabled a €30million (£25.`\
 https://nytimes.com/athletic/6081060/2025/01/24/patrick-dorgu-manchester-united-transfer-update/
