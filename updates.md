@@ -1,3 +1,27 @@
+**Get a Hug From Aunjanue Ellis-Taylor in ‘Nickel Boys’**\
+`The director RaMell Ross narrates a sequence from his film, which is shot from the point of view of its characters. The movie is nominated for best picture.`\
+https://nytimes.com/2025/01/24/movies/nickel-boys-clip.html
+
+**Adam Schiff, Trump’s Favorite Foil, Tries to Insulate California From His Wrath**\
+`As a congressman who led the first impeachment of President Trump, Mr. Schiff relished his role in the resistance. Now a senator, he must protect his state’s interests at a perilous time.`\
+https://nytimes.com/2025/01/24/us/politics/adam-schiff-interview.html
+
+**‘Nickel Boys’ | Anatomy of a Scene**\
+`The director RaMell Ross narrates a sequence from his film, which has been nominated for best picture.`\
+https://nytimes.com/video/movies/100000009947211/nickel-boys-scene.html
+
+**Scoop City: Why this Commanders-Eagles NFC Championship rematch is different**\
+`Today, we cover three NFC championship matchups, yesterday&#8217;s Liam Coen chaos in Jacksonville and Mark Andrews breaking his silence.`\
+https://nytimes.com/athletic/6086510/2025/01/24/commanders-eagles-nfc-championship-matchups-nfl-scoop-city/
+
+**The Lumber Sexual Returns**\
+`With a Filson partnership, Junya Watanabe takes us on a time warp back to the hipstery 2000s — plaid checks and all.`\
+https://nytimes.com/2025/01/24/style/junya-watanabe-mens-wear-paris.html
+
+**Putting His Father’s Final Words Onstage, With a Little Ambivalence**\
+`The Portuguese director Tiago Rodrigues’s latest show, “No Yogurt for the Dead,” is based on his dying father’s scribbles but resists sharing much emotion.`\
+https://nytimes.com/2025/01/24/theater/tiago-rodrigues-no-yogurt-for-the-dead.html
+
 **Cherry Pies, Severed Ears and the Making of a David Lynch Memorial**\
 `Fans of the late American filmmaker built a distinctly Lynchian shrine outside the Burbank restaurant Bob’s Big Boy.`\
 https://nytimes.com/2025/01/24/dining/david-lynch-bobs-big-boy.html
