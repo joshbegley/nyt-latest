@@ -1,40 +1,40 @@
-**Quote of the Day: Fewer Battlefield Deaths, But Still Losing to Russia**\
-`Quotation of the Day for Friday, January 24, 2025`\
-https://nytimes.com/2025/01/23/pageoneplus/quote-of-the-day-fewer-battlefield-deaths-but-still-losing-to-russia.html
+**What sort of manager uses expected goals? Pretty much all of them**\
+`Using data is not just reserved for ‘nerds who think football is played on spreadsheets’ — it is increasingly used by the managers too`\
+https://nytimes.com/athletic/6080274/2025/01/24/premier-league-managers-expected-goals/
 
-**Red Wings thoughts: Dylan Larkin's memorable night, Marco Kasper's opportunity and more**\
-`Larkin recorded a key goal and assist in his 700th NHL game, leading the Red Wings to a 4-2 win over the Canadiens.`\
-https://nytimes.com/athletic/6085179/2025/01/23/red-wings-dylan-larkin-marco-kasper/
+**'I like a fight,' says Maite Oroz, the Tottenham midfielder with a superpower**\
+`If there is one player upon whom Spurs' success rests it is Maite Oroz, the 'brilliant' midfielder who 'never loses the ball' `\
+https://nytimes.com/athletic/6082968/2025/01/24/maite-oroz-tottenham-hotspur-women-interview/
 
-**Blue Jackets' back-to-back struggles continue with lopsided loss to Hurricanes**\
-`Columbus ran out of gas in the second period and fell to 0-7 on the second half of a back-to-back.`\
-https://nytimes.com/athletic/6085154/2025/01/23/blue-jackets-back-to-back-struggles-hurricanes/
+**What Haaland's new contract at City means for commercial appeal: 'He has become the poster child'**\
+`The City striker has been on a one-way trajectory since scoring on his professional debut at age 16 for Norwegian side Molde`\
+https://nytimes.com/athletic/6073067/2025/01/24/erling-haaland-new-contract-commercial/
 
-**Firefighters Battle Growing Blaze Near U.S.-Mexico Border**\
-`Officials said the fire, which had spread to more than 500 acres by Thursday night, was miles away from threatening any homes or buildings.`\
-https://nytimes.com/2025/01/23/us/wildfire-san-diego-mexico-border.html
+**Did Ukraine Kill Its Own by Downing a Russian Plane? A Year Later, It Hasn’t Said.**\
+`Russia says Ukraine shot down a military transport carrying 65 captured Ukrainians. Ukraine has not confirmed its role, identified the bodies it received, or said how it happened.`\
+https://nytimes.com/2025/01/24/world/europe/ukraine-russia-belgorod-plane-pows.html
 
-**Flyers blown out by Rangers, but consider final score deceiving**\
-`The score was lopsided. The game, though, was not, according to the Flyers, who lost in regulation for the first time in seven games.`\
-https://nytimes.com/athletic/6085214/2025/01/23/flyers-rangers-owen-tippett/
+**Why the Canucks look broken and in need of change: 3 takeaways**\
+`In a marquee rematch against the Oilers, the Canucks didn't start to find their legs until they were down by five goals.`\
+https://nytimes.com/athletic/6085098/2025/01/24/vancouver-canucks-demko-tocchet-desharnais-oilers/
 
-**New York back in playoff picture, K'Andre Miller's confidence grows, more: Rangers takeaways**\
-`The Rangers exploded in the third period for a dominant win and points in each of their last 10 games.`\
-https://nytimes.com/athletic/6085219/2025/01/23/rangers-playoffs-race-kandre-miller-flyers/
+**As Colleagues, He Thought She Was Beautiful. So He Played the Long Game.**\
+`After meeting at Barstool Sports in New York, Kendyl Klein and Benjamin DiGiulio found themselves, years later, making sudden changes to their wedding celebration amid the California wildfires.`\
+https://nytimes.com/2025/01/24/style/kendyl-klein-benjamin-digiulio-wedding.html
 
-**Trump Says California Failed to Send Water to L.A. to Fight Fires, but Experts Say He’s Wrong**\
-`President Trump has blamed a lack of water during the Los Angeles fires on California decisions that benefit a small fish. Yet experts say he’s confusing different issues.`\
-https://nytimes.com/2025/01/23/us/trump-newsom-water-fires.html
+**They Might Have Bumped Into Each Other Years Ago**\
+`Kaley Lockwood and Michael Friedman, who met on Hinge, had once lived a few blocks from each other and had the same commute to work.`\
+https://nytimes.com/2025/01/24/style/kaley-lockwood-michael-friedman-wedding.html
 
-**Trump Officials Move to Quickly Expel Migrants Biden Allowed In Temporarily**\
-`A memo appears to allow Immigration and Customs Enforcement officials to target programs that let in more than a million people.`\
-https://nytimes.com/2025/01/23/us/politics/trump-immigrants-deportation.html
+**‘I Didn’t Just Want to Hear Her Story — I Wanted to Be in It’**\
+`When Rema Matevosyan and Bessie Schwarz were set up for work, they discovered they had more in common than A.I., including an address.`\
+https://nytimes.com/2025/01/24/style/rema-matevosyan-bessie-schwarz-wedding.html
 
-**Japan Raises Interest Rates to Highest Level Since 2008**\
-`After a long period of stagnation, the return of inflation and wage growth is giving the Bank of Japan room to raise interest rates.`\
-https://nytimes.com/2025/01/23/business/bank-of-japan-interest-rates.html
+**The Kind of Pain I Wanted**\
+`To get out of my head and be more in the moment, I turned to bondage.`\
+https://nytimes.com/2025/01/24/style/modern-love-the-kind-of-pain-i-wanted.html
 
-**Paying Half for Quarters**\
-`Ernest Lim makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/01/23/crosswords/daily-puzzle-2025-01-24.html
+**A Proposal — and a Wedding Date — That Were Suddenly Moved Up**\
+`The current political climate caused Josey Nett and Grace Duncan, who met as sophomores in college, to change their long-term plans.`\
+https://nytimes.com/2025/01/24/style/josey-nett-grace-duncan-wedding.html
 
