@@ -1,3 +1,15 @@
+**Breaking: NHL has begun preparation for Gary Bettman retirement 'in a couple years'**\
+`Bettman says he hasn't given the Board of Governors a timeline, but the executive committee is in a formal process of finding a successor.`\
+https://nytimes.com/athletic/6084164/2025/01/23/gary-bettman-retirement-succession/
+
+**Review: In ‘English,’ Looking for a Language to Live In**\
+`For the students in Sanaz Toossi’s dramedy about mother tongues and other tongues, the world’s lingua franca is not exactly free.`\
+https://nytimes.com/2025/01/23/theater/english-review-broadway-toossi.html
+
+**Corrections: Jan. 24, 2025**\
+`Corrections that appeared in print on Friday, Jan. 24, 2025.`\
+https://nytimes.com/2025/01/23/pageoneplus/corrections-jan-24-2025.html
+
 **Trump Pardons Anti-Abortion Activists Who Blockaded Clinic**\
 `The move came ahead of the March for Life, the annual anti-abortion rally in Washington where Vice President JD Vance is expected to address attendees.`\
 https://nytimes.com/2025/01/23/us/politics/trump-pardon-abortion-clinic-activists.html
