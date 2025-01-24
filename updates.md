@@ -1,3 +1,7 @@
+**Tennessee's Kim Caldwell to miss Texas game following birth of first child**\
+`Caldwell told The Athletic last week that her plan was “to return to basketball as quick as possible."`\
+https://nytimes.com/athletic/6084992/2025/01/23/tennessee-kim-caldwell-birth-texas/
+
 **LeBron named NBA All-Star starter for 21st straight season; Wemby misses cut**\
 `NBA's All-Star starters for newly formatted event revealed. Reserves will be announced Jan. 30.`\
 https://nytimes.com/athletic/6084741/2025/01/23/lebron-james-named-nba-all-star-starter-for-21st-straight-season/

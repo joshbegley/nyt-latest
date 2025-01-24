@@ -1,3 +1,7 @@
+**Tennessee's Kim Caldwell to miss Texas game following birth of first child**\
+`Caldwell told The Athletic last week that her plan was “to return to basketball as quick as possible."`\
+https://nytimes.com/athletic/6084992/2025/01/23/tennessee-kim-caldwell-birth-texas/
+
 **49ers expected to hire Robert Saleh as DC: Sources**\
 `Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
 https://nytimes.com/athletic/6076242/2025/01/23/robert-saleh-hired-49ers-defensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/us/politics/911-khalid-shaikh-mohammed-plea-trump
 **Ichiro finds special joy in his place of peace, the Hall of Fame, which he's forever changed**\
 `No one has ever walked through these doors with the sport-changing, Hall-changing, planet-changing possibilities of Ichiro.`\
 https://nytimes.com/athletic/6084724/2025/01/23/ichiro-baseball-hall-of-fame-japan/
-
-**Exclusive: Audio reveals Ohtani’s former interpreter impersonating Dodgers star in call with bank**\
-`Prosecutors ask for nearly five years in prison for Ohtani interpreter in fraud case`\
-https://nytimes.com/athletic/6084445/2025/01/23/shohei-ohtani-interpreter-audio-money-transfer-ippei/
 
