@@ -1,3 +1,11 @@
+**Who will Raiders coach Pete Carroll hire to his staff? Potential candidates for OC, DC**\
+`A number of potential candidates for the coordinator roles with the Raiders have ties to Carroll from his 14 years with the Seahawks.`\
+https://nytimes.com/athletic/6086799/2025/01/24/raiders-pete-carroll-coordinator-staff-hires/
+
+**Commanders' Daniels brushes aside fan chatter in lead-up to NFC title game**\
+`A week after knocking off the heavily favored Lions, Daniels is again ready to "let my play do my talking” in Sunday's NFC championship.`\
+https://nytimes.com/athletic/6086890/2025/01/24/jayden-daniels-commanders-nfc-championship-trash-talk/
+
 **Jurickson Profar excited to continue Curaçao-Braves ties, prove 2024 was no outlier**\
 `After pretending he was Andruw Jones or Chipper Jones in backyard games as a kid, Profar will be the Braves' everyday left fielder.`\
 https://nytimes.com/athletic/6086933/2025/01/24/jurickson-profar-curacao-braves-ties/
