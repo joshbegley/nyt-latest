@@ -1,3 +1,7 @@
+**‘Debanking,’ and the Trump Diss Heard Around Davos**\
+`President Trump’s accusation that Bank of America’ dropped conservatives as clients serves as a reminder C.E.O.s may face unexpected attacks by the White House.`\
+https://nytimes.com/2025/01/24/business/dealbook/debanking-davos-trump-bofa-moynihan.html
+
 **Italy Arrested a Libyan Wanted for Crimes Against Humanity. Then It Sent Him Home.**\
 `The government attributed the release to procedural reasons. But critics say it is because Italy depends on Libya to stem the flow of migrants from Africa.`\
 https://nytimes.com/2025/01/24/world/europe/italy-libya-migrants-international-criminal-court.html
