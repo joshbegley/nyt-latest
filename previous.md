@@ -1,6 +1,26 @@
+**Ohio State running back Quinshon Judkins declares for NFL Draft**\
+`Ole Miss transfer rushed for 1,060 yards and 14 touchdowns in helping Buckeyes to national championship.`\
+https://nytimes.com/athletic/6086368/2025/01/24/ohio-state-running-back-quinshon-judkins-declares-for-nfl-draft/
+
+**Putin Dismisses Trump’s Sanctions Threat While Heaping New Praise on Him**\
+`Russia’s president flattered his American counterpart as “smart” and “pragmatic,” and repeated Mr. Trump’s baseless claim that the 2020 election was stolen.`\
+https://nytimes.com/2025/01/24/us/politics/trump-putin-sanctions.html
+
+**Teams looking for free-agent bats find that their options are running low**\
+`With Profar signed, above-average hitters have grown few and far between in free agency, and needy teams are looking for creative solutions.`\
+https://nytimes.com/athletic/6086291/2025/01/24/pete-alonso-alex-bregman-free-agent-hitter-market/
+
+**Fantasy Trends and Hidden Gems: 14 players worth picking up**\
+`Sure the Canucks face a soft schedule, but there are far better additions given Vancouver's struggles.`\
+https://nytimes.com/athletic/6085297/2025/01/24/fantasy-trends-and-hidden-gems-canucks-schedule-is-juicy-but-these-are-better-options/
+
+**New Jersey Devils goalie Jacob Markstrom out 4 to 6 weeks with MCL sprain**\
+`Markstrom suffered the injury in the first period of Wednesday night’s matchup against the Boston Bruins.`\
+https://nytimes.com/athletic/6086236/2025/01/24/new-jersey-devils-jacob-markstrom-out-mcl-sprain/
+
 **More Ships May Return to the Red Sea if Houthis Hold Their Fire**\
 `Shipping companies expressed caution about using the shorter route between Asia and Europe that many ships have avoided for more than a year.`\
-https://nytimes.com/2025/01/24/business/more-ships-may-return-to-the-red-sea-if-houthis-hold-their-fire.html
+https://nytimes.com/2025/01/24/business/shipping-red-sea-houthis.html
 
 **'Ain't gonna be no excuses tonight': Bucks cap wild travel day with blowout win over Heat**\
 `After being snowbound in New Orleans for three days, the Bucks arrived a little more than two hours before game time and then routed Miami.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/24/world/europe/elon-musk-roman-salute-nazi.html
 **UnitedHealthcare Announces New C.E.O.**\
 `The health insurer named Tim Noel, a longtime employee of its parent company, for the job. The previous chief executive, Brian Thompson, was killed in Manhattan.`\
 https://nytimes.com/2025/01/24/science/unitedhealthcare-new-ceo.html
-
-**New details emerge on MLB’s upcoming test of robo-umps in spring training**\
-`All players in major-league camp have to have their height measured by mid-February so the automated zone will work properly.`\
-https://nytimes.com/athletic/6085976/2025/01/24/roboumps-test-spring-training-mlb/
-
-**She Was Faulted in Her Divorce for Refusing Sex. A European Court Disagreed.**\
-`A French court had ruled that a woman had violated her marital duties by not having sex with her husband. The European Court of Human Rights condemned that decision.`\
-https://nytimes.com/2025/01/24/world/europe/france-woman-divorce-europe-court.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 23?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6082962/2025/01/24/premier-league-predicted-lineups-gameweek-23/
-
-**Smashing Smashed Beef Kebab With Cucumber Yogurt**\
-`Zaynab Issa’s quick skillet dinner combines two Persian classics: kebab koobideh (grilled kebabs) and mast-o khiar (cucumber yogurt).`\
-https://nytimes.com/2025/01/24/dining/smashing-smashed-beef-kebab-with-cucumber-yogurt.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include craven rich kids, retired assassins and a cat cult.`\
-https://nytimes.com/2025/01/24/movies/action-movies-streaming.html
 
