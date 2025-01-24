@@ -1,3 +1,7 @@
+**Existing-Home Sales in 2024 Were Slowest in Decades**\
+`The market perked up late in the year when interest rates eased, but affordability challenges yielded the fewest transactions since 1995.`\
+https://nytimes.com/2025/01/24/business/economy/home-sales-mortgage-rates.html
+
 **Arsenal working on deal for Rosenborg's Nypan**\
 `Arsenal are working on a deal to sign midfielder Sverre Nypan from Rosenborg.`\
 https://nytimes.com/athletic/6077514/2025/01/24/sverre-nypan-arsenal-transfer-who/
