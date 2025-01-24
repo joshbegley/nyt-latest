@@ -1,3 +1,15 @@
+**Scoop City: Why this Commanders-Eagles NFC Championship rematch is different**\
+`Today, we cover three NFC championship matchups, yesterday&#8217;s Liam Coen chaos in Jacksonville and Mark Andrews breaking his silence.`\
+https://nytimes.com/athletic/6086510/2025/01/24/commanders-eagles-nfc-championship-matchups-nfl-scoop-city/
+
+**The Lumber Sexual Returns**\
+`With a Filson partnership, Junya Watanabe takes us on a time warp back to the hipstery 2000s — plaid checks and all.`\
+https://nytimes.com/2025/01/24/style/junya-watanabe-mens-wear-paris.html
+
+**Putting His Father’s Final Words Onstage, With a Little Ambivalence**\
+`The Portuguese director Tiago Rodrigues’s latest show, “No Yogurt for the Dead,” is based on his dying father’s scribbles but resists sharing much emotion.`\
+https://nytimes.com/2025/01/24/theater/putting-his-fathers-final-words-onstage-with-a-little-ambivalence.html
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 1/24 at 1:00 p.m. ET**\
 `Submit your questions for Eno Sarris' latest live chat about all things MLB and fantasy baseball.`\
 https://nytimes.com/athletic/6083950/2025/01/24/eno-sarris-live-mlb-chat-1-24/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/24/t-magazine/austrian-alps-ski-hotel-guide.html
 **Greece Tightens Laws on Domestic Violence (but Not Enough, Critics Say)**\
 `Amid a surge in reported cases, lawmakers imposed harsher punishments on perpetrators. Victims’ advocacy groups said the legislation was too thin on preventative measures.`\
 https://nytimes.com/2025/01/24/world/europe/greece-domestic-violence-law.html
-
-**Fauci Stripped of Government Security Protection**\
-`Dr. Anthony S. Fauci, who was one of the nation’s top health officials for decades, had received death threats during the coronavirus pandemic. He has hired his own security detail.`\
-https://nytimes.com/2025/01/24/us/politics/fauci-security-protection.html
-
-**Plymouth accept Whittaker transfer offer from Middlesbrough**\
-`Plymouth Argyle have accepted a transfer bid from Championship rivals Middlesbrough for forward Morgan Whittaker.`\
-https://nytimes.com/athletic/6086374/2025/01/24/morgan-whittaker-middlesbrough-transfer/
-
-**An Unearthed Tina Turner Outtake, and 9 More New Songs**\
-`Hear tracks by Kane Brown and Jelly Roll, Sexyy Red and Bruno Mars, Teddy Swims and others.`\
-https://nytimes.com/2025/01/24/arts/music/playlist-tina-turner-sexyy-red-bruno-mars.html
 
