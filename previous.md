@@ -1,3 +1,7 @@
+**Firefighters Battle Growing Blaze Near U.S.-Mexico Border**\
+`Officials said the fire, which had spread to more than 500 acres by Thursday night, was miles away from threatening any homes or buildings.`\
+https://nytimes.com/2025/01/23/us/wildfire-san-diego-mexico-border.html
+
 **Flyers blown out by Rangers, but consider final score deceiving**\
 `The score was lopsided. The game, though, was not, according to the Flyers, who lost in regulation for the first time in seven games.`\
 https://nytimes.com/athletic/6085214/2025/01/23/flyers-rangers-owen-tippett/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084164/2025/01/23/gary-bettman-retirement-successi
 **Review: In ‘English,’ Looking for a Language to Live In**\
 `For the students in Sanaz Toossi’s dramedy about mother tongues and other tongues, the world’s lingua franca is not exactly free.`\
 https://nytimes.com/2025/01/23/theater/english-review-broadway-toossi.html
-
-**Corrections: Jan. 24, 2025**\
-`Corrections that appeared in print on Friday, Jan. 24, 2025.`\
-https://nytimes.com/2025/01/23/pageoneplus/corrections-jan-24-2025.html
 

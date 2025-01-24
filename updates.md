@@ -1,3 +1,7 @@
+**Firefighters Battle Growing Blaze Near U.S.-Mexico Border**\
+`Officials said the fire, which had spread to more than 500 acres by Thursday night, was miles away from threatening any homes or buildings.`\
+https://nytimes.com/2025/01/23/us/wildfire-san-diego-mexico-border.html
+
 **Flyers blown out by Rangers, but consider final score deceiving**\
 `The score was lopsided. The game, though, was not, according to the Flyers, who lost in regulation for the first time in seven games.`\
 https://nytimes.com/athletic/6085214/2025/01/23/flyers-rangers-owen-tippett/
