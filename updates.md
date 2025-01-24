@@ -1,3 +1,11 @@
+**Court Vision: Florida and Texas A&M's late steals, what's going on with UConn, UNC**\
+`Don't forget about Houston, which probably belongs in the mix with the best teams in the country. `\
+https://nytimes.com/athletic/6085037/2025/01/24/mens-college-basketball-florida-texas-am-uconn-unc/
+
+**Maresca says Chelsea do not need midfield signings despite Lavia injury**\
+`Enzo Maresca believes Chelsea do not need to sign another midfielder in this window despite Romeo Lavia being ruled out with injury for the third time this season.`\
+https://nytimes.com/athletic/6085734/2025/01/24/chelsea-january-transfers-update/
+
 **Ukraine Sends Volley of Drones at Russia, Hitting Oil Refinery**\
 `Videos showed fireballs over a facility in Ryazan, 110 miles southeast of Moscow. Kyiv is seeking to disrupt Russian military logistics and put pressure on the country’s economy by striking its oil industry.`\
 https://nytimes.com/2025/01/24/world/europe/ukraine-russia-oil-drone.html
