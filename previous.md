@@ -1,3 +1,7 @@
+**Target Becomes the Latest Brand to Roll Back D.E.I.**\
+`The retailer joins a growing group of companies dropping commitments and policies on diversity and equity as President Trump fights the programs.`\
+https://nytimes.com/2025/01/24/business/target-dei-rollback.html
+
 **Where the Thriller Writer Alafair Burke Gets Her Ideas**\
 `A Hamptons vacation and a prank gone wrong anchor Burke’s new book, “The Note.” It started with real life.`\
 https://nytimes.com/2025/01/24/books/review/podcast-alafair-burke-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086661/2025/01/24/bobby-slowik-fired-texans-oc-coa
 **An Evacuation, and a Haunting Question**\
 `Alexandra Berzon, an investigative reporter who lives in Los Angeles, reflects on her family’s evacuation from the Eaton fire.`\
 https://nytimes.com/2025/01/24/us/wildfires-evacuation-question.html
-
-**Independent Watchdog, in Trump’s Cross Hairs, Scrutinizes Terrorism Watch List**\
-`The Privacy and Civil Liberties Oversight Board, which the White House has threatened to purge, called for new limits on the list in a report issued on Friday.`\
-https://nytimes.com/2025/01/24/us/politics/terrorism-watch-list-trump.html
 
