@@ -1,3 +1,7 @@
+**Scheffler, McIlroy and Spieth making PGA Tour season debuts at Pebble**\
+`Scheffler was forced to delay his 2025 season after cutting his hand.`\
+https://nytimes.com/athletic/6087065/2025/01/24/scheffler-mcilroy-spieth-pga-tour-pebble-beach/
+
 **Utah HC strikes out on initial trademark applications for all team names**\
 `The team has work to do before securing a name, whether it's the Yeti, Yetis, Blizzard, Outlaws, Mammoth, Venom or HC.`\
 https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
