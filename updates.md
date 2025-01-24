@@ -1,3 +1,7 @@
+**'Ain't gonna be no excuses tonight': Bucks cap wild travel day with blowout win over Heat**\
+`After being snowbound in New Orleans, the Bucks arrived in Milwaukee a little more than two hours before game time and then routed Miami.`\
+https://nytimes.com/athletic/6085727/2025/01/24/bucks-heat-lillard-antetokounmpo/
+
 **Ohio State running back Quinshon Judkins declares for NFL Draft**\
 `Ole Miss transfer rushed for 1,060 yards and 14 touchdowns in helping Buckeyes to national championship.`\
 https://nytimes.com/athletic/6086368/2025/01/24/ohio-state-running-back-quinshon-judkins-declares-for-nfl-draft/

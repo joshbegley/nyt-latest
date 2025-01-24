@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6086236/2025/01/24/new-jersey-devils-jacob-markstro
 https://nytimes.com/2025/01/24/business/shipping-red-sea-houthis.html
 
 **'Ain't gonna be no excuses tonight': Bucks cap wild travel day with blowout win over Heat**\
-`After being snowbound in New Orleans for three days, the Bucks arrived a little more than two hours before game time and then routed Miami.`\
+`After being snowbound in New Orleans, the Bucks arrived in Milwaukee a little more than two hours before game time and then routed Miami.`\
 https://nytimes.com/athletic/6085727/2025/01/24/bucks-heat-lillard-antetokounmpo/
 
 **Hegseth Said He Paid the Woman Who Accused Him of Rape $50,000, Senator Says**\
