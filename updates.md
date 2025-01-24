@@ -1,3 +1,7 @@
+**Trump Officials Move to Quickly Expel Migrants Biden Allowed In Temporarily**\
+`A memo appears to allow Immigration and Customs Enforcement officers to target programs that let in more than a million people.`\
+https://nytimes.com/2025/01/23/us/politics/trump-immigrants-deportation.html
+
 **Paying Half for Quarters**\
 `Ernest Lim makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/01/23/crosswords/daily-puzzle-2025-01-24.html

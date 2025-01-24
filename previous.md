@@ -1,3 +1,7 @@
+**Trump Officials Move to Quickly Expel Migrants Biden Allowed In Temporarily**\
+`A memo appears to allow Immigration and Customs Enforcement officers to target programs that let in more than a million people.`\
+https://nytimes.com/2025/01/23/us/politics/trump-immigrants-deportation.html
+
 **Japan Raises Interest Rates to Highest Level Since 2008**\
 `After a long period of stagnation, the return of inflation and wage growth is giving the Bank of Japan room to raise interest rates.`\
 https://nytimes.com/2025/01/23/business/bank-of-japan-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/us/trump-transgender-inmates-prison.html
 **Tennessee's Kim Caldwell to miss Texas game following birth of first child**\
 `Caldwell told The Athletic last week that her plan was “to return to basketball as quick as possible."`\
 https://nytimes.com/athletic/6084992/2025/01/23/tennessee-kim-caldwell-birth-texas/
-
-**49ers expected to hire Robert Saleh as DC: Sources**\
-`Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
-https://nytimes.com/athletic/6076242/2025/01/23/robert-saleh-hired-49ers-defensive-coordinator/
 
