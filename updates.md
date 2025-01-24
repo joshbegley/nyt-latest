@@ -1,3 +1,7 @@
+**Dry January Is Almost Over. Now What?**\
+`Here’s how to make the most of what you’ve learned.`\
+https://nytimes.com/2025/01/24/well/dry-january-maintenance.html
+
 **Everton's  McNeil 'probably needs surgery' on knee injury - Moyes**\
 `Everton&#8217;s Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury, manager David Moyes has said.`\
 https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
