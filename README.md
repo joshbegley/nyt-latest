@@ -1,3 +1,7 @@
+**Feed the Post: Warriors rookie, once rescued by Steph Curry, is returning the favor**\
+`In his second night in the Golden State rotation, the 7-footer on a two-way contract delivered 20 points in 20 minutes. Is this for real?`\
+https://nytimes.com/athletic/6085372/2025/01/24/warriors-quinten-post-rookie-steph-curry-bulls/
+
 **Where the NBA stands on expanding its footprint in Europe**\
 `NBA commissioner Adam Silver said Thursday that the league is still exploring a standalone European league but talks remain "exploratory." `\
 https://nytimes.com/athletic/6084222/2025/01/24/nba-europe-euroleague-expansion-adam-silver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085407/2025/01/24/oilers-win-retribution-canucks/
 **Quantum TikTok + Memecoin Mania + Chris Hayes on the Attention Wars**\
 `“We are starting to see how Silicon Valley wants to do business during the Trump administration.”`\
 https://nytimes.com/2025/01/24/podcasts/hardfork-tiktok-memecoin-hayes.html
-
-**The behind-the-scenes shift that helped the Broncos snap their playoff drought**\
-`The Broncos ended the 2024 season with only three players on injured lists, a major reduction from the 21 such players in 2022.`\
-https://nytimes.com/athletic/6083943/2025/01/24/broncos-injury-prevention/
 
