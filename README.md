@@ -1,3 +1,7 @@
+**Vinicius Jr 'wants to make history' at Real Madrid - Ancelotti**\
+`Carlo Ancelotti has insisted that Vinicius Junior is &#8220;very happy&#8221; at Real Madrid and &#8220;wants to make history&#8221; at the club amid speculation over his future.`\
+https://nytimes.com/athletic/6085819/2025/01/24/vinicius-junior-real-madrid-saudi-transfer/
+
 **Feed the Post: Warriors rookie, once rescued by Steph Curry, is returning the favor**\
 `In his second night in the Golden State rotation, the 7-footer on a two-way contract delivered 20 points in 20 minutes. Is this for real?`\
 https://nytimes.com/athletic/6085372/2025/01/24/warriors-quinten-post-rookie-steph-curry-bulls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085573/2025/01/24/the-athletics-friday-football-qu
 **How the Oilers got retribution their way against the Canucks**\
 `The Oilers crushed the Canucks the way they know best — on the scoreboard in the form of a 6-2 rout.`\
 https://nytimes.com/athletic/6085407/2025/01/24/oilers-win-retribution-canucks/
-
-**Quantum TikTok + Memecoin Mania + Chris Hayes on the Attention Wars**\
-`“We are starting to see how Silicon Valley wants to do business during the Trump administration.”`\
-https://nytimes.com/2025/01/24/podcasts/hardfork-tiktok-memecoin-hayes.html
 
