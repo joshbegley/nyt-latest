@@ -1,3 +1,7 @@
+**Bowden: 7 MLB moves — signings, trades and extensions — I'd like to see right now**\
+`Teams, players and agents are on the clock. With spring training only weeks away, there are several moves that need to be made now.`\
+https://nytimes.com/athletic/6085178/2025/01/24/mlb-trade-signing-extension-scenarios/
+
 **What coaching candidate Pete Carroll could bring to the table for the Raiders**\
 `The 73-year-old former Seahawks coach is reportedly the front-runner for the Raiders job. Would he be a good fit in Las Vegas?`\
 https://nytimes.com/athletic/6082305/2025/01/24/pete-carroll-raiders-coaching-job/
