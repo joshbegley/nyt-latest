@@ -1,3 +1,11 @@
+**Can Accepting Money for Volunteering Be the Right Thing to Do?**\
+`The magazine’s Ethicist columnist on the wages of charitable work.`\
+https://nytimes.com/2025/01/24/magazine/doctor-volunteer-donation-ethics.html
+
+**San Diego Wave signs France midfielder Dali from Aston Villa**\
+`San Diego Wave has completed the signing of France midfielder Kenza Dali from Aston Villa.`\
+https://nytimes.com/athletic/6086885/2025/01/24/kenza-dali-san-diego-wave-transfer/
+
 **Hegseth Confirmation on the Line With Senate Vote Outcome Uncertain**\
 `With two G.O.P. senators opposed, Pete Hegseth, President Trump’s pick for defense secretary, can afford to lose only one more. If he is confirmed, it is likely to be by the smallest margin for that post in modern times.`\
 https://nytimes.com/2025/01/24/us/politics/pete-hegseth-defense-secretary-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/business/target-dei-rollback.html
 **Where the Thriller Writer Alafair Burke Gets Her Ideas**\
 `A Hamptons vacation and a prank gone wrong anchor Burke’s new book, “The Note.” It started with real life.`\
 https://nytimes.com/2025/01/24/books/review/podcast-alafair-burke-interview.html
-
-**How ‘Nickel Boys’ Achieved Its Singular Visual Style**\
-`The cinematographer and camera operator behind the Oscar-nominated film — shot almost entirely from the first-person perspective — explain how they did it.`\
-https://nytimes.com/2025/01/24/movies/nickel-boys-cinematography-camera.html
-
-**Did This Real Wedding Toast Inspire ‘S.N.L.’ to Create Domingo?**\
-`A bridesmaid celebrated her sister’s wedding with a lengthy parody of “Satisfied” from “Hamilton.” The rest, it seems, is sketch-show history.`\
-https://nytimes.com/2025/01/24/style/snl-domingo-sketch-toast.html
 
