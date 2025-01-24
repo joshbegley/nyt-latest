@@ -1,3 +1,7 @@
+**The Bounce: Do we have controversy with NBA All-Star voting?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6085848/2025/01/24/nba-all-star-voting-victor-wembanyama-nikola-jokic-shai-gilgeous-alexander-nba-the-bounce/
+
 **What Puts the ‘New York’ in New York Cheesecake?**\
 `The answer may have more to do with New York than you might think.`\
 https://nytimes.com/2025/01/24/dining/new-york-cheesecake-juniors-recipe.html
