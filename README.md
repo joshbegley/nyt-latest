@@ -1,3 +1,7 @@
+**Commanders (and 76ers) owner Josh Harris knows what awaits him in Philadelphia**\
+`The subplot involving Harris, Philadelphia and the 76ers is so twisted. But it shouldn't overshadow the main focus for Washington on Sunday.`\
+https://nytimes.com/athletic/6079316/2025/01/24/washington-commanders-josh-harris-philadelphia-eagles-76ers/
+
 **Chevron to Increase Output at Huge Oil Field in Kazakhstan**\
 `The energy giant is spending nearly $50 billion to expand the Tengiz oil field, allowing it to pump one million barrels a day.`\
 https://nytimes.com/2025/01/24/business/chevron-kazakhstan-oil-field.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083778/2025/01/24/penn-state-defensive-coordinator
 **Trump Hints at New Talks With Kim Jong-un. It Might Be Harder This Time.**\
 `North Korea’s leader has grown more assertive since their last efforts at diplomacy ended in failure — and now has Russia at his side.`\
 https://nytimes.com/2025/01/24/world/asia/trump-north-korea-nuclear-talks.html
-
-**A decade in the making: Kenny Guiton's path to coaching Wisconsin's QBs**\
-`As a player, Guiton was a backup quarterback at Ohio State. In his new role at Wisconsin, he'll return to his roots.`\
-https://nytimes.com/athletic/6084165/2025/01/24/wisconsin-quarterbacks-coach0kenny-guiton-college-football/
 
