@@ -1,3 +1,7 @@
+**Meta to Increase Spending to $65 Billion This Year in A.I. Push**\
+`Much of the capital investment, a big jump from 2024, will fund expansion of Meta’s data centers, which provide the computing power needed by A.I. products and algorithms.`\
+https://nytimes.com/2025/01/24/technology/meta-data-center.html
+
 **Dry January Is Almost Over. Now What?**\
 `Here’s how to make the most of what you’ve learned.`\
 https://nytimes.com/2025/01/24/well/dry-january-maintenance.html
