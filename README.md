@@ -1,3 +1,11 @@
+**How Manchester City have built bridges with victims of Barry Bennell who tried to sue the club**\
+`Prominent members of the club have been involved in supporting the victims in person and have been praised for their sensitivities`\
+https://nytimes.com/athletic/6069440/2025/01/24/man-city-bennell-victims-support/
+
+**Yohe's 10 observations: Bryan Rust injured as Penguins get outclassed in Anaheim**\
+`The Penguins fail to stay hot in California, getting outclassed in a 5-1 loss against the Ducks in Anaheim on Thursday.`\
+https://nytimes.com/athletic/6084201/2025/01/24/bryan-rust-injured-penguins-ducks/
+
 **Tottenham's youngsters are performing superbly - but at what cost?**\
 `Too much is being asked of Spurs' decimated squad - they have earned the right to some reinforcements`\
 https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6079325/2025/01/24/fantasy-premier-league-saliba-de
 **Yasin Ayari: Understated and underrated**\
 `Ayari has has worked hard to get into the first team after loan spells last season and he is now thriving under Hurzeler`\
 https://nytimes.com/athletic/6074786/2025/01/24/yasin-ayari-brighton-midfielder/
-
-**Wild post another clunker at home, hear jeers from their fans: 4 takeaways**\
-`The Wild have struggled mightily at home this season and continued the trend by getting shut out by Utah.`\
-https://nytimes.com/athletic/6085164/2025/01/24/wild-home-record-gustavsson-spurgeon-utah/
-
-**Glut of midfielders a positive problem for Nottingham Forest**\
-`Nottingham Forest had issues with their midfield for so long. Now their depth is the biggest problem`\
-https://nytimes.com/athletic/6083602/2025/01/24/nottingham-forest-midfield-options/
 
