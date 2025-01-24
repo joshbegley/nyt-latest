@@ -1,3 +1,7 @@
+**Where the NBA stands on expanding its footprint in Europe**\
+`NBA commissioner Adam Silver said Thursday that the league is still exploring a standalone European league but talks remain "exploratory." `\
+https://nytimes.com/athletic/6084222/2025/01/24/nba-europe-euroleague-expansion-adam-silver/
+
 **Bowden: 7 MLB moves — signings, trades and extensions — I'd like to see right now**\
 `Teams, players and agents are on the clock. With spring training only weeks away, there are several moves that need to be made now.`\
 https://nytimes.com/athletic/6085178/2025/01/24/mlb-trade-signing-extension-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/podcasts/hardfork-tiktok-memecoin-hayes.html
 **The behind-the-scenes shift that helped the Broncos snap their playoff drought**\
 `The Broncos ended the 2024 season with only three players on injured lists, a major reduction from the 21 such players in 2022.`\
 https://nytimes.com/athletic/6083943/2025/01/24/broncos-injury-prevention/
-
-**The Pulse: Exclusive audio from the Ohtani case**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6083860/2025/01/24/shohei-ohtani-translator-audio-mizuhara-the-pulse/
 
