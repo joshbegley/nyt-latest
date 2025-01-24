@@ -1,3 +1,7 @@
+**Gaza at Last Welcomes More Aid. It Needs a Deluge.**\
+`Hundreds of truckloads of food, fuel and other supplies have arrived in Gaza each day since the cease-fire took effect. But the need is vast after 15 months of war, aid groups point out.`\
+https://nytimes.com/2025/01/24/world/middleeast/gaza-israel-cease-fire-aid.html
+
 **'He's unstoppable': In Jalen Carter, Eagles have a bold new leader on a young defensive line**\
 `Jalen Carter stepped up on the field and in the locker room when the Eagles' defense was struggling.`\
 https://nytimes.com/athletic/6083212/2025/01/24/eagles-jalen-carter-defense/
