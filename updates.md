@@ -1,3 +1,7 @@
+**Paying Half for Quarters**\
+`Ernest Lim makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/01/23/crosswords/paying-half-for-quarters.html
+
 **Instagram and Facebook Blocked and Hid Abortion Pill Providers’ Posts**\
 `Some posts related to obtaining abortion pills were recently hidden on Instagram and Facebook and some accounts were suspended, before being later restored.`\
 https://nytimes.com/2025/01/23/technology/instagram-facebook-abortion-pill-providers.html

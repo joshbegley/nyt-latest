@@ -1,3 +1,7 @@
+**Paying Half for Quarters**\
+`Ernest Lim makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/01/23/crosswords/paying-half-for-quarters.html
+
 **Instagram and Facebook Blocked and Hid Abortion Pill Providers’ Posts**\
 `Some posts related to obtaining abortion pills were recently hidden on Instagram and Facebook and some accounts were suspended, before being later restored.`\
 https://nytimes.com/2025/01/23/technology/instagram-facebook-abortion-pill-providers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6076242/2025/01/23/robert-saleh-hired-49ers-defensi
 **$3,000 for a Used iPhone? If It Has TikTok, Maybe.**\
 `Phones with TikTok are being listed for eye-watering sums as the social media platform remains absent from app stores.`\
 https://nytimes.com/2025/01/23/business/tiktok-app-iphones.html
-
-**MLB makes two minor rules changes for 2025, policing shifts, base running**\
-`The changes attempt to avoid rare instances where the old rules could have incentivized teams to try to game the system.`\
-https://nytimes.com/athletic/6084928/2025/01/23/mlb-rule-changes-2025-season-shift-violations/
 
