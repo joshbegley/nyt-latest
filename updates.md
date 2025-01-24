@@ -1,3 +1,7 @@
+**Word of the Day: zhuzh**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/24/learning/word-of-the-day-zhuzh.html
+
 **Why Manchester United selling Alejandro Garnacho would be a bad idea**\
 `A Garnacho departure would be an indictment of the club’s ownership and management and the decisions they have taken over the past decade`\
 https://nytimes.com/athletic/6085149/2025/01/24/manchester-united-garnacho-sale-questions/
