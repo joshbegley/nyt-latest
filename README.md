@@ -1,3 +1,15 @@
+**An Unearthed Tina Turner Outtake, and 9 More New Songs**\
+`Hear tracks by Kane Brown and Jelly Roll, Sexyy Red and Bruno Mars, Teddy Swims and others.`\
+https://nytimes.com/2025/01/24/arts/music/playlist-tina-turner-sexyy-red-bruno-mars.html
+
+**Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/24/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
+**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
+`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
+https://nytimes.com/athletic/6073696/2025/01/24/bills-chiefs-how-to-watch-odds-picks-betting/
+
 **Genesis Invitational moves to Torrey Pines due to L.A. fires**\
 `Riviera Country Club, the original location, is located in the Palisades not far from the devastation of the fires.`\
 https://nytimes.com/athletic/6086402/2025/01/24/genesis-invitational-move-torrey-pines/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6086236/2025/01/24/new-jersey-devils-jacob-markstro
 **More Ships May Return to the Red Sea if Houthis Hold Their Fire**\
 `Shipping companies expressed caution about using the shorter route between Asia and Europe that many ships have avoided for more than a year.`\
 https://nytimes.com/2025/01/24/business/shipping-red-sea-houthis.html
-
-**'Ain't gonna be no excuses tonight': Bucks cap wild travel day with blowout win over Heat**\
-`After being snowbound in New Orleans, the Bucks arrived in Milwaukee a little more than two hours before game time and then routed Miami.`\
-https://nytimes.com/athletic/6085727/2025/01/24/bucks-heat-lillard-antetokounmpo/
-
-**Hegseth Told Senator He Paid $50,000 to Woman Who Accused Him of Rape**\
-`The settlement’s existence after a 2017 accusation had been documented before the defense secretary nominee’s confirmation hearing this month, but the amount had not been known publicly.`\
-https://nytimes.com/2025/01/24/us/politics/hegseth-payment.html
-
-**What Elon Musk’s Salute Was All About**\
-`A gesture associated with the Nazis has a surprising history. But in Germany, there was little doubt about its meaning.`\
-https://nytimes.com/2025/01/24/world/europe/elon-musk-roman-salute-nazi.html
 
