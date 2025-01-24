@@ -1,3 +1,7 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 1/24 at 1:00 p.m. ET**\
+`Submit your questions for Eno Sarris' latest live chat about all things MLB and fantasy baseball.`\
+https://nytimes.com/athletic/6083950/2025/01/24/eno-sarris-live-mlb-chat-1-24/
+
 **Review: Yuja Wang Tries Something New With the Philharmonic**\
 `This star pianist fascinatingly, and with mixed success, led a trio of 20th-century chamber concertos from the keyboard.`\
 https://nytimes.com/2025/01/24/arts/music/review-yuja-wang-new-york-philharmonic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086374/2025/01/24/morgan-whittaker-middlesbrough-t
 **An Unearthed Tina Turner Outtake, and 9 More New Songs**\
 `Hear tracks by Kane Brown and Jelly Roll, Sexyy Red and Bruno Mars, Teddy Swims and others.`\
 https://nytimes.com/2025/01/24/arts/music/playlist-tina-turner-sexyy-red-bruno-mars.html
-
-**Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
-`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
-https://nytimes.com/athletic/6073644/2025/01/24/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
 
