@@ -1,3 +1,27 @@
+**Get a Hug From Aunjanue Ellis-Taylor in ‘Nickel Boys’**\
+`The director RaMell Ross narrates a sequence from his film, which is shot from the point of view of its characters. The movie is nominated for best picture.`\
+https://nytimes.com/2025/01/24/movies/nickel-boys-clip.html
+
+**Adam Schiff, Trump’s Favorite Foil, Tries to Insulate California From His Wrath**\
+`As a congressman who led the first impeachment of President Trump, Mr. Schiff relished his role in the resistance. Now a senator, he must protect his state’s interests at a perilous time.`\
+https://nytimes.com/2025/01/24/us/politics/adam-schiff-interview.html
+
+**‘Nickel Boys’ | Anatomy of a Scene**\
+`The director RaMell Ross narrates a sequence from his film, which has been nominated for best picture.`\
+https://nytimes.com/video/movies/100000009947211/nickel-boys-scene.html
+
+**Scoop City: Why this Commanders-Eagles NFC Championship rematch is different**\
+`Today, we cover three NFC championship matchups, yesterday&#8217;s Liam Coen chaos in Jacksonville and Mark Andrews breaking his silence.`\
+https://nytimes.com/athletic/6086510/2025/01/24/commanders-eagles-nfc-championship-matchups-nfl-scoop-city/
+
+**The Lumber Sexual Returns**\
+`With a Filson partnership, Junya Watanabe takes us on a time warp back to the hipstery 2000s — plaid checks and all.`\
+https://nytimes.com/2025/01/24/style/junya-watanabe-mens-wear-paris.html
+
+**Putting His Father’s Final Words Onstage, With a Little Ambivalence**\
+`The Portuguese director Tiago Rodrigues’s latest show, “No Yogurt for the Dead,” is based on his dying father’s scribbles but resists sharing much emotion.`\
+https://nytimes.com/2025/01/24/theater/tiago-rodrigues-no-yogurt-for-the-dead.html
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 1/24 at 1:00 p.m. ET**\
 `Submit your questions for Eno Sarris' latest live chat about all things MLB and fantasy baseball.`\
 https://nytimes.com/athletic/6083950/2025/01/24/eno-sarris-live-mlb-chat-1-24/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/24/world/canada/ontario-tariffs-doug-ford-trump.html
 **Trump Executive Order Prompts National Gallery to End Diversity Programs**\
 `The National Gallery of Art said it had closed its office of belonging and inclusion to comply with a presidential order.`\
 https://nytimes.com/2025/01/24/arts/design/national-gallery-diversity-equity-inclusion.html
-
-**Cherry Pies, Severed Ears and the Making of a David Lynch Memorial**\
-`Fans of the late American filmmaker built a distinctly Lynchian shrine outside the Burbank restaurant Bob’s Big Boy.`\
-https://nytimes.com/2025/01/24/dining/david-lynch-bobs-big-boy.html
-
-**A Guide to the Austrian Alps, Where Skiing Is a Way of Life**\
-`Insiders share their favorite après-ski spots, springtime hikes and typically Tyrolean souvenirs.`\
-https://nytimes.com/2025/01/24/t-magazine/austrian-alps-ski-hotel-guide.html
-
-**Greece Tightens Laws on Domestic Violence (but Not Enough, Critics Say)**\
-`Amid a surge in reported cases, lawmakers imposed harsher punishments on perpetrators. Victims’ advocacy groups said the legislation was too thin on preventative measures.`\
-https://nytimes.com/2025/01/24/world/europe/greece-domestic-violence-law.html
-
-**Fauci Stripped of Government Security Protection**\
-`Dr. Anthony S. Fauci, who was one of the nation’s top health officials for decades, had received death threats during the coronavirus pandemic. He has hired his own security detail.`\
-https://nytimes.com/2025/01/24/us/politics/fauci-security-protection.html
-
-**Plymouth accept Whittaker transfer offer from Middlesbrough**\
-`Plymouth Argyle have accepted a transfer bid from Championship rivals Middlesbrough for forward Morgan Whittaker.`\
-https://nytimes.com/athletic/6086374/2025/01/24/morgan-whittaker-middlesbrough-transfer/
-
-**An Unearthed Tina Turner Outtake, and 9 More New Songs**\
-`Hear tracks by Kane Brown and Jelly Roll, Sexyy Red and Bruno Mars, Teddy Swims and others.`\
-https://nytimes.com/2025/01/24/arts/music/playlist-tina-turner-sexyy-red-bruno-mars.html
 
