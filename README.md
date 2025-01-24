@@ -1,3 +1,11 @@
+**Amid the Pain of Separation and Surveillance, Life Continues**\
+`“Picturing the Border” collects photographs of the United States-Mexico boundary dating back to the 1960s.`\
+https://nytimes.com/2025/01/24/books/review/picturing-the-border-nadiah-rivera-fellah.html
+
+**N.Y. Migrants Fear Expulsion After Trump Expands Deportation Targets**\
+`Those who followed Biden-era guidelines are dismayed that the rules have changed. The app that helped them enter the country now may make them targets.`\
+https://nytimes.com/2025/01/24/nyregion/nyc-migrant-shelter-deportation.html
+
 **‘Offensive’ Tattoos and Revealing Clothing Are Now on Spirit Airlines’ No-Fly List**\
 `The airline clarified (somewhat) the attire and appearance that might prevent passengers from being allowed to board or remain on a plane, a move that goes a step further than other major U.S. airlines.`\
 https://nytimes.com/2025/01/24/travel/spirit-airlines-dress-code-tattoos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/trump-hiv-aids-pepfar.html
 **Cincinnati set to sign Middlesbrough's Engel on loan**\
 `FC Cincinnati are set to complete the loan signing of Middlesbrough defender Lukas Engel.`\
 https://nytimes.com/athletic/6086791/2025/01/24/lukas-engel-cincinnati-loan/
-
-**What Is the Future of the Paris Agreement?**\
-`On President Trump’s first day in office, he pulled out of the Paris Agreement, a pact among nearly all nations to fight climate change. Reporting from Davos, Switzerland, David Gelles, a climate journalist for The New York Times, explains what this decision means for the rest of the world.`\
-https://nytimes.com/video/climate/100000009939986/what-is-the-future-of-the-paris-agreement.html
-
-**Target Becomes the Latest Brand to Roll Back D.E.I.**\
-`The retailer joins a growing group of companies dropping commitments and policies on diversity and equity as President Trump fights the programs.`\
-https://nytimes.com/2025/01/24/business/target-dei-rollback.html
 
