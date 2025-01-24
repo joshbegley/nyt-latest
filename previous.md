@@ -1,3 +1,11 @@
+**Man United give Antony permission to finalise Betis loan move**\
+`Manchester United have given Antony permission to travel to Seville to complete a loan move to Real Betis.`\
+https://nytimes.com/athletic/6072863/2025/01/24/antony-manchester-united-transfer-loan/
+
+**NBA trends I'm watching: Darius Garland's bad luck, the Thunder's jolt of Joe and more**\
+`Jake LaRavia is proving that hang time can be overrated, while a Phoenix rookie has turned into a long snapper.`\
+https://nytimes.com/athletic/6085307/2025/01/24/darius-garland-isaiah-joe-cavaliers-thunder-nba-trends/
+
 **Julio Enciso to Ipswich Town: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Julio Enciso's loan move to Ipswich Town`\
 https://nytimes.com/athletic/6085723/2025/01/24/julio-enciso-to-ipswich-town-the-athletic-500-transfer-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6083924/2025/01/24/jonathan-allen-commanders-nfc-ch
 **The Logan Stanley debate, big swings and a prospect check-in: Jets mailbag, part 2**\
 `One topic for this month's mailbag drew more attention than all of the others combined.`\
 https://nytimes.com/athletic/6074450/2025/01/24/winnipeg-jets-logan-stanley-mailbag-walton-he-barlow/
-
-**NFL Playoffs betting sees $1.3M bet on Chiefs, sportsbooks ‘rooting for Eagles’**\
-`Read for big bets, plus sportsbooks are seeing a lot of action on the playoff-darling Commanders ahead of the conference championship games.`\
-https://nytimes.com/athletic/6084439/2025/01/24/nfl-playoffs-betting-odds-chiefs-bills-commanders-eagles/
-
-**Drew Doughty is coming back — how much should the Kings alter their successful blue line?**\
-`Doughty, who has played this season because of a fractured ankle, isn't known for easing into things.`\
-https://nytimes.com/athletic/6084594/2025/01/24/drew-doughty-kings-injury-return/
 

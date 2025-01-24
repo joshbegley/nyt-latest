@@ -1,3 +1,11 @@
+**Man United give Antony permission to finalise Betis loan move**\
+`Manchester United have given Antony permission to travel to Seville to complete a loan move to Real Betis.`\
+https://nytimes.com/athletic/6072863/2025/01/24/antony-manchester-united-transfer-loan/
+
+**NBA trends I'm watching: Darius Garland's bad luck, the Thunder's jolt of Joe and more**\
+`Jake LaRavia is proving that hang time can be overrated, while a Phoenix rookie has turned into a long snapper.`\
+https://nytimes.com/athletic/6085307/2025/01/24/darius-garland-isaiah-joe-cavaliers-thunder-nba-trends/
+
 **Julio Enciso to Ipswich Town: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we take a look at Julio Enciso's loan move to Ipswich Town`\
 https://nytimes.com/athletic/6085723/2025/01/24/julio-enciso-to-ipswich-town-the-athletic-500-transfer-ratings/
