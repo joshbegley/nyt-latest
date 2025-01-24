@@ -1,3 +1,7 @@
+**Cherry Pies, Severed Ears and the Making of a David Lynch Memorial**\
+`Fans of the late American filmmaker built a distinctly Lynchian shrine outside the Burbank restaurant Bob’s Big Boy.`\
+https://nytimes.com/2025/01/24/dining/david-lynch-bobs-big-boy.html
+
 **A Guide to the Austrian Alps, Where Skiing Is a Way of Life**\
 `Insiders share their favorite après-ski spots, springtime hikes and typically Tyrolean souvenirs.`\
 https://nytimes.com/2025/01/24/t-magazine/austrian-alps-ski-hotel-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086402/2025/01/24/genesis-invitational-move-torrey
 **Ohio State running back Quinshon Judkins declares for NFL Draft**\
 `Ole Miss transfer rushed for 1,060 yards and 14 touchdowns in helping Buckeyes to national championship.`\
 https://nytimes.com/athletic/6086368/2025/01/24/ohio-state-running-back-quinshon-judkins-declares-for-nfl-draft/
-
-**Putin Dismisses Trump’s Sanctions Threat While Heaping New Praise on Him**\
-`Russia’s president flattered his American counterpart as “smart” and “pragmatic,” and repeated Mr. Trump’s baseless claim that the 2020 election was stolen.`\
-https://nytimes.com/2025/01/24/us/politics/trump-putin-sanctions.html
 
