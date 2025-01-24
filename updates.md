@@ -1,3 +1,11 @@
+**Ukraine Sends Volley of Drones at Russia, Hitting Oil Refinery**\
+`Videos showed fireballs over a facility in Ryazan, 110 miles southeast of Moscow. Kyiv is seeking to disrupt Russian military logistics and put pressure on the country’s economy by striking its oil industry.`\
+https://nytimes.com/2025/01/24/world/europe/ukraine-russia-oil-drone.html
+
+**Jannik Sinner beats Ben Shelton to reach second Australian Open final in a row**\
+`The world No. 1 will face Alexander Zverev Sunday in Melbourne.`\
+https://nytimes.com/athletic/6085718/2025/01/24/jannik-sinner-australian-open-semifinal-result-analysis-ben-shelton/
+
 **Why Tariffs Are Different**\
 `The Trump administration is off to a slow start on tariffs.`\
 https://nytimes.com/2025/01/24/briefing/trump-tariffs.html

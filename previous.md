@@ -1,3 +1,11 @@
+**Ukraine Sends Volley of Drones at Russia, Hitting Oil Refinery**\
+`Videos showed fireballs over a facility in Ryazan, 110 miles southeast of Moscow. Kyiv is seeking to disrupt Russian military logistics and put pressure on the country’s economy by striking its oil industry.`\
+https://nytimes.com/2025/01/24/world/europe/ukraine-russia-oil-drone.html
+
+**Jannik Sinner beats Ben Shelton to reach second Australian Open final in a row**\
+`The world No. 1 will face Alexander Zverev Sunday in Melbourne.`\
+https://nytimes.com/athletic/6085718/2025/01/24/jannik-sinner-australian-open-semifinal-result-analysis-ben-shelton/
+
 **Why Tariffs Are Different**\
 `The Trump administration is off to a slow start on tariffs.`\
 https://nytimes.com/2025/01/24/briefing/trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/weather/storm-eowyn-ireland-uk-weather-power-cut.
 **Novak Djokovic's tennis is good enough to win more Grand Slams, but his body is at its limit**\
 `Djokovic is only interested in tennis' biggest prizes. He still has the game to win them, but at age 37 his body is letting him down`\
 https://nytimes.com/athletic/6085438/2025/01/24/novak-djokovic-injuries-tennis-grand-slams/
-
-**'In the suffering comes passion': Blues' Robert Thomas opens up on his offensive slump**\
-`The St. Louis center has one goal and two assists in his last six games.`\
-https://nytimes.com/athletic/6085239/2025/01/24/blues-robert-thomas-offensive-slump/
-
-**Frank Nazar gets more comfortable with Blackhawks, feeling NHL game slow down**\
-`Through 18 games with the Blackhawks, Frank Nazar is following a familiar development pattern.`\
-https://nytimes.com/athletic/6084262/2025/01/24/blackhawks-frank-nazar-nhl-speed-adjustment/
 
