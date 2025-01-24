@@ -1,3 +1,7 @@
+**Education Dept. Ends Book Ban Investigations**\
+`The department said it would relinquish its role investigating schools that had received civil rights complaints after removing books dealing with sexual and racial identity.`\
+https://nytimes.com/2025/01/24/us/politics/education-dept-ends-book-ban-investigations.html
+
 **USC expected to hire Notre Dame GM Chad Bowden**\
 `Bowden played a huge role in reshaping Notre Dame's approach to talent acquisition. Can he do the same at USC?`\
 https://nytimes.com/athletic/6087046/2025/01/24/usc-football-gm-chad-bowden-notre-dame/
