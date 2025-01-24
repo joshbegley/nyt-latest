@@ -1,3 +1,7 @@
+**Islanders bring in Tony DeAngelo for remainder of 2024-25 season**\
+`DeAngelo played last season for the Hurricanes, appearing in 34 games along with nine playoff games.`\
+https://nytimes.com/athletic/6086774/2025/01/24/islanders-sign-tony-deangelo-one-year-contract/
+
 **Trump Pauses Disbursements to Program Supplying H.I.V. Treatment Worldwide**\
 `Pepfar, which is estimated to have delivered lifesaving treatment as many as 25 million people in 54 countries, faces a funding delay of as long as 180 days.`\
 https://nytimes.com/2025/01/24/us/politics/trump-hiv-aids-pepfar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/opinion/trump-bond-market-stocks.html
 **Trump Supports the Police, Just as Long as They Support Him**\
 `President Trump’s flurry of pardons this week sent a message to law enforcement: He will “back the blue” if they back him.`\
 https://nytimes.com/2025/01/24/us/politics/trump-pardons-bias.html
-
-**Walker joins Milan on loan from Manchester City**\
-`Milan have completed the loan signing of Kyle Walker from Manchester City.`\
-https://nytimes.com/athletic/6086756/2025/01/24/kyle-walker-milan-loan/
 

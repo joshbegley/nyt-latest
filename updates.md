@@ -1,3 +1,7 @@
+**Islanders bring in Tony DeAngelo for remainder of 2024-25 season**\
+`DeAngelo played last season for the Hurricanes, appearing in 34 games along with nine playoff games.`\
+https://nytimes.com/athletic/6086774/2025/01/24/islanders-sign-tony-deangelo-one-year-contract/
+
 **Trump Pauses Disbursements to Program Supplying H.I.V. Treatment Worldwide**\
 `Pepfar, which is estimated to have delivered lifesaving treatment as many as 25 million people in 54 countries, faces a funding delay of as long as 180 days.`\
 https://nytimes.com/2025/01/24/us/politics/trump-hiv-aids-pepfar.html
