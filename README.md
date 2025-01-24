@@ -1,3 +1,7 @@
+**‘Debanking,’ and the Trump Diss Heard Around Davos**\
+`President Trump’s accusation that Bank of America’ dropped conservatives as clients serves as a reminder C.E.O.s may face unexpected attacks by the White House.`\
+https://nytimes.com/2025/01/24/business/dealbook/debanking-davos-trump-bofa-moynihan.html
+
 **Italy Arrested a Libyan Wanted for Crimes Against Humanity. Then It Sent Him Home.**\
 `The government attributed the release to procedural reasons. But critics say it is because Italy depends on Libya to stem the flow of migrants from Africa.`\
 https://nytimes.com/2025/01/24/world/europe/italy-libya-migrants-international-criminal-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085819/2025/01/24/vinicius-junior-real-madrid-saud
 **Jannik Sinner beats Ben Shelton to reach second Australian Open final in a row**\
 `The world No. 1 will face Alexander Zverev Sunday in Melbourne.`\
 https://nytimes.com/athletic/6085718/2025/01/24/jannik-sinner-australian-open-semifinal-result-analysis-ben-shelton/
-
-**Feed the Post: Warriors rookie, once rescued by Steph Curry, is returning the favor**\
-`In his second night in the Golden State rotation, the 7-footer on a two-way contract delivered 20 points in 20 minutes. Is this for real?`\
-https://nytimes.com/athletic/6085372/2025/01/24/warriors-quinten-post-rookie-steph-curry-bulls/
 
