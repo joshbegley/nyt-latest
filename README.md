@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6084716/2025/01/23/dodgers-ruining-baseball-tanner-
 `The Jaguars fired GM Trent Baalke Wednesday and are trying to lure Tampa Bay's offensive coordinator to take Jacksonville's head coach job.`\
 https://nytimes.com/athletic/6084740/2025/01/23/liam-coen-jaguars-coaching-opening/
 
-**First Officer Convicted Under A Washington State Law Gets 16-Year Sentence**\
+**First Officer Convicted Under a Washington State Law Gets 16-Year Sentence**\
 `The police officer, Jeffrey Nelson, shot and killed Jesse Sarey, 26, while attempting to arrest him in May 2019. Mr. Nelson was found guilty of murder and assault last June.`\
 https://nytimes.com/2025/01/23/us/police-officer-sentenced-jesse-sarey-death.html
 
