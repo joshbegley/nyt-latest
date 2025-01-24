@@ -1,3 +1,7 @@
+**Review: Malpaso Returns, With Boundless Energy but Little Risk**\
+`The Cuban company’s program at the Joyce Theater includes three U.S. premieres.`\
+https://nytimes.com/2025/01/24/arts/dance/review-malpaso-cuban-contemporary-joyce-theater.html
+
 **Heat Today: Erik Spoelstra's tells players to 'get over it' amid Jimmy Butler drama**\
 `Spoelstra isn't interested in entertaining excuses. "This is the NBA life."`\
 https://nytimes.com/athletic/6086271/2025/01/24/erik-spoelstra-jimmy-butler-bam-adebayo-heat-trade-deadline-nba/
