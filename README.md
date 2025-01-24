@@ -1,3 +1,11 @@
+**Review: Yuja Wang Tries Something New With the Philharmonic**\
+`This star pianist fascinatingly, and with mixed success, led a trio of 20th-century chamber concertos from the keyboard.`\
+https://nytimes.com/2025/01/24/arts/music/review-yuja-wang-new-york-philharmonic.html
+
+**Ontario Premier Calls Early Election in Response to Trump Tariff Threat**\
+`Doug Ford, Ontario’s Conservative leader, has recently said that President Trump was “going to try to devastate our country” with a plan to impose tariffs on Canadian exports.`\
+https://nytimes.com/2025/01/24/world/canada/ontario-tariffs-doug-ford-trump.html
+
 **Trump Executive Order Prompts National Gallery to End Diversity Programs**\
 `The National Gallery of Art said it had closed its office of belonging and inclusion to comply with a presidential order.`\
 https://nytimes.com/2025/01/24/arts/design/national-gallery-diversity-equity-inclusion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/arts/music/playlist-tina-turner-sexyy-red-bruno-m
 **Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
 `Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
 https://nytimes.com/athletic/6073644/2025/01/24/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
-
-**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
-`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
-https://nytimes.com/athletic/6073696/2025/01/24/bills-chiefs-how-to-watch-odds-picks-betting/
-
-**Genesis Invitational moves to Torrey Pines due to L.A. fires**\
-`Riviera Country Club, the original location, is located in the Palisades not far from the devastation of the fires.`\
-https://nytimes.com/athletic/6086402/2025/01/24/genesis-invitational-move-torrey-pines/
 
