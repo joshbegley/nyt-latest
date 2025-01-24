@@ -1,3 +1,7 @@
+**Rudi Garcia appointed Belgium head coach**\
+`Rudi Garcia has been appointed Belgium head coach.`\
+https://nytimes.com/athletic/6085605/2025/01/24/rudi-garcia-belgium-manager/
+
 **Commanders (and 76ers) owner Josh Harris knows what awaits him in Philadelphia**\
 `The subplot involving Harris, Philadelphia and the 76ers is so twisted. But it shouldn't overshadow the main focus for Washington on Sunday.`\
 https://nytimes.com/athletic/6079316/2025/01/24/washington-commanders-josh-harris-philadelphia-eagles-76ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/opinion/trump-dei-education-harvard.html
 **Penn State's defensive coordinator search continues: Who are the favorites?**\
 `Aside from hiring a new DC, Penn State also has to reshape its wide receivers group this offseason. `\
 https://nytimes.com/athletic/6083778/2025/01/24/penn-state-defensive-coordinator-search-college-football-james-franklin/
-
-**Trump Hints at New Talks With Kim Jong-un. It Might Be Harder This Time.**\
-`North Korea’s leader has grown more assertive since their last efforts at diplomacy ended in failure — and now has Russia at his side.`\
-https://nytimes.com/2025/01/24/world/asia/trump-north-korea-nuclear-talks.html
 
