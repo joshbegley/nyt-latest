@@ -1,3 +1,7 @@
+**Dry January Is Almost Over. Now What?**\
+`Here’s how to make the most of what you’ve learned.`\
+https://nytimes.com/2025/01/24/well/dry-january-maintenance.html
+
 **Everton's  McNeil 'probably needs surgery' on knee injury - Moyes**\
 `Everton&#8217;s Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury, manager David Moyes has said.`\
 https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/arts/music/grammy-performers-billie-eilish-chappe
 **LeBron James, Anthony Davis ramp up pressure on Lakers' front office: 'We need another big'**\
 `Davis publicly called for roster help shortly before tipoff of Thursday's 117-96 win over defending champion Boston.`\
 https://nytimes.com/athletic/6085196/2025/01/24/lebron-james-anthony-davis-lakers-pressure-front-office/
-
-**'Where the ego dies': Bills' utility drawer of receivers happy to get the job done when called upon**\
-`Their individual numbers may not look great, but the receivers are focused on the greater goal of winning.`\
-https://nytimes.com/athletic/6085528/2025/01/24/bills-receivers-mack-hollins-khalil-shakir-amari-cooper/
 
