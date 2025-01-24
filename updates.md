@@ -1,3 +1,7 @@
+**LeBron named NBA All-Star starter for 21st straight season; Wemby misses cut**\
+`NBA's All-Star starters for newly formatted event revealed. Reserves will be announced Jan. 30.`\
+https://nytimes.com/athletic/6084741/2025/01/23/lebron-james-named-nba-all-star-starter-for-21st-straight-season/
+
 **49ers expected to hire Robert Saleh as DC: Sources**\
 `Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
 https://nytimes.com/athletic/6076242/2025/01/23/robert-saleh-hired-49ers-defensive-coordinator/
