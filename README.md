@@ -2,8 +2,8 @@
 `Curtis Jones has been ruled out of Liverpool&#8217;s Premier League match against Ipswich Town due to injury.`\
 https://nytimes.com/athletic/6085581/2025/01/24/curtis-jones-injury-liverpool/
 
-**Arsenal's Lewis-Skelly knee injury 'nothing serious' - Arteta**\
-`Arsenal defender Myles Lewis-Skelly&#8217;s knee injury is &#8220;nothing serious&#8221; and a late call will be made for his availability against Wolverhampton Wanderers this weekend, Mikel Arteta has said.`\
+**Arsenal's Lewis-Skelly, Saliba to be assessed ahead of Wolves - Mikel Arteta**\
+`Arsenal defender Myles Lewis-Skelly&#8217;s knee injury is &#8220;nothing serious&#8221; and a late call will be made for his availability against Wolverhampton Wanderers this weekend alongside William Saliba, Mikel Arteta has said.`\
 https://nytimes.com/athletic/6083031/2025/01/24/myles-lewis-skelly-injury-update/
 
 **NBA trade deadline: What every team should do before the buzzer sounds**\
