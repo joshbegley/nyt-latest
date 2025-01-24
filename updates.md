@@ -1,3 +1,7 @@
+**Why Tariffs Are Different**\
+`The Trump administration is off to a slow start on tariffs.`\
+https://nytimes.com/2025/01/24/briefing/trump-tariffs.html
+
 **Why Tariffs are Different**\
 `The Trump administration is off to a slow start on tariffs.`\
 https://nytimes.com/2025/01/24/briefing/trump-tariffs.html
