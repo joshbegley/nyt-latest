@@ -1,3 +1,7 @@
+**Trump’s New U.S. Attorney in D.C. Comes to Aid of Oath Keepers Leader**\
+`Ed Martin, a longtime advocate for Jan. 6 defendants recently named to run the prosecutors’ office, sought to undo a judge’s order barring Stewart Rhodes from visiting Washington.`\
+https://nytimes.com/2025/01/24/us/politics/steward-rhodes-oath-keepers-legal.html
+
 **Supreme Court to Hear Oklahoma Religious Charter School Case**\
 `The proposal to create the nation’s first religious charter school paid for by taxpayer funds could move the line between church and state in education.`\
 https://nytimes.com/2025/01/24/us/supreme-court-oklahoma-religious-charter-school.html

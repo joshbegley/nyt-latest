@@ -1,3 +1,7 @@
+**Trump’s New U.S. Attorney in D.C. Comes to Aid of Oath Keepers Leader**\
+`Ed Martin, a longtime advocate for Jan. 6 defendants recently named to run the prosecutors’ office, sought to undo a judge’s order barring Stewart Rhodes from visiting Washington.`\
+https://nytimes.com/2025/01/24/us/politics/steward-rhodes-oath-keepers-legal.html
+
 **Supreme Court to Hear Oklahoma Religious Charter School Case**\
 `The proposal to create the nation’s first religious charter school paid for by taxpayer funds could move the line between church and state in education.`\
 https://nytimes.com/2025/01/24/us/supreme-court-oklahoma-religious-charter-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/pete-hegseth-defense-secretary-trump.
 **Patriots' Jabrill Peppers acquitted of domestic violence charges**\
 `A jury deliberated for less than two hours before acquitting the former first-round pick of assault and battery charges.`\
 https://nytimes.com/athletic/6086796/2025/01/24/patriots-jabrill-peppers-acquitted-domestic-violence-case/
-
-**Islanders bring in Tony DeAngelo for remainder of 2024-25 season**\
-`DeAngelo played last season for the Hurricanes, appearing in 34 games along with nine playoff games.`\
-https://nytimes.com/athletic/6086774/2025/01/24/islanders-sign-tony-deangelo-one-year-contract/
 
