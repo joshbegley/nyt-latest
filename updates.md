@@ -1,3 +1,7 @@
+**The Pulse: Exclusive audio from the Ohtani case**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6083860/2025/01/24/shohei-ohtani-translator-audio-mizuhara-the-pulse/
+
 **Court Vision: Florida and Texas A&M's late steals, what's going on with UConn, UNC**\
 `Don't forget about Houston, which probably belongs in the mix with the best teams in the country. `\
 https://nytimes.com/athletic/6085037/2025/01/24/mens-college-basketball-florida-texas-am-uconn-unc/
