@@ -1,3 +1,11 @@
+**Jones out of Ipswich game, Slot 'not expecting months' out**\
+`Curtis Jones has been ruled out of Liverpool&#8217;s Premier League match against Ipswich Town due to injury.`\
+https://nytimes.com/athletic/6085581/2025/01/24/curtis-jones-injury-liverpool/
+
+**Arsenal's Lewis-Skelly, Saliba to be assessed ahead of Wolves - Mikel Arteta**\
+`Arsenal defender Myles Lewis-Skelly&#8217;s knee injury is &#8220;nothing serious&#8221; and a late call will be made for his availability against Wolverhampton Wanderers this weekend alongside William Saliba, Mikel Arteta has said.`\
+https://nytimes.com/athletic/6083031/2025/01/24/myles-lewis-skelly-injury-update/
+
 **NBA trade deadline: What every team should do before the buzzer sounds**\
 `Buy, sell or stand pat: What's the best course of action for the Lakers, Warriors, Bulls and others?`\
 https://nytimes.com/athletic/6083567/2025/01/24/nba-trade-deadline-2025-team-buyers-sellers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6085475/2025/01/24/celtics-recent-struggles-loss-to
 **How Wrexham captain James McClean went from car crash to starring against Birmingham in just 36 hours**\
 `Wrexham's unflappable captain was - as usual - the driving force in an entertaining game at the top of League One`\
 https://nytimes.com/athletic/6084541/2025/01/24/wrexham-birmingham-james-mcclean/
-
-**How Manchester City have built bridges with victims of Barry Bennell who tried to sue the club**\
-`Prominent members of the club have been involved in supporting the victims in person and have been praised for their sensitivities`\
-https://nytimes.com/athletic/6069440/2025/01/24/man-city-bennell-victims-support/
-
-**Yohe's 10 observations: Bryan Rust injured as Penguins get outclassed in Anaheim**\
-`The Penguins fail to stay hot in California, getting outclassed in a 5-1 loss against the Ducks in Anaheim on Thursday.`\
-https://nytimes.com/athletic/6084201/2025/01/24/bryan-rust-injured-penguins-ducks/
 
