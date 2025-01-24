@@ -1,3 +1,7 @@
+**‘Offensive’ Tattoos and Revealing Clothing Are Now on Spirit Airlines’ No-Fly List**\
+`The airline clarified (somewhat) the attire and appearance that might prevent passengers from being allowed to board or remain on a plane, a move that goes a step further than other major U.S. airlines.`\
+https://nytimes.com/2025/01/24/travel/spirit-airlines-dress-code-tattoos.html
+
 **Can Accepting Money for Volunteering Be the Right Thing to Do?**\
 `The magazine’s Ethicist columnist on the wages of charitable work.`\
 https://nytimes.com/2025/01/24/magazine/doctor-volunteer-donation-ethics.html
