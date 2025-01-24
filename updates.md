@@ -1,3 +1,7 @@
+**Trump to Visit North Carolina and California, With Disaster Aid an Open Question**\
+`While he has expressed support for North Carolina residents, the president has criticized California’s Democratic leaders and threatened to withhold federal aid from the state.`\
+https://nytimes.com/2025/01/24/us/politics/trump-north-carolina-california-disaster-aid.html
+
 **Gaza at Last Welcomes More Aid. It Needs a Deluge.**\
 `Hundreds of truckloads of food, fuel and other supplies have arrived in Gaza each day since the cease-fire took effect. But the need is vast after 15 months of war, aid groups point out.`\
 https://nytimes.com/2025/01/24/world/middleeast/gaza-israel-cease-fire-aid.html

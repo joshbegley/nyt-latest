@@ -1,7 +1,3 @@
-**Gaza at Last Welcomes More Aid. It Needs a Deluge.**\
-`Hundreds of truckloads of food, fuel and other supplies have arrived in Gaza each day since the cease-fire took effect. But the need is vast after 15 months of war, aid groups point out.`\
-https://nytimes.com/2025/01/24/world/middleeast/gaza-israel-cease-fire-aid.html
-
 **'He's unstoppable': In Jalen Carter, Eagles have a bold new leader on a young defensive line**\
 `Jalen Carter stepped up on the field and in the locker room when the Eagles' defense was struggling.`\
 https://nytimes.com/athletic/6083212/2025/01/24/eagles-jalen-carter-defense/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6079755/2025/01/24/trae-young-hawks-improving/
 **Hollinger: Why SGA has MVP edge and more midseason awards**\
 `The MVP race appears to be a two-person competition. Rookie of the Year, well ... who knows.`\
 https://nytimes.com/athletic/6083927/2025/01/24/nba-awards-midseason-shai-gilgeous-alexander-mvp/
+
+**Trump to Visit North Carolina and California, With Disaster Aid an Open Question**\
+`While he has expressed support for North Carolina residents, the president has criticized California’s Democratic leaders and threatened to withhold federal aid from the state.`\
+https://nytimes.com/2025/01/24/us/politics/trump-north-carolina-california-disaster-aid.html
 
