@@ -1,3 +1,7 @@
+**Contenders to Lead the Democratic Party Scramble to Show Momentum**\
+`As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
+https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
+
 **Derek Humphry, Pivotal Figure in Right-to-Die Movement, Dies at 94**\
 `His own experience assisting his terminally ill wife in ending her life set him on a path to founding the Hemlock Society and writing a best-selling guide.`\
 https://nytimes.com/2025/01/24/health/derek-humphry-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/briefing/trump-visits-disaster-areas-high-egg-pri
 **Honduras Says Trump’s Deportation Plan Could Push It Closer to China**\
 `Many Latin American countries are trying to distance themselves from Beijing. But in response to President Trump’s sweeping deportation plans, Honduras is doing the opposite.`\
 https://nytimes.com/2025/01/24/us/honduras-china-trump-deportation.html
-
-**McMann — not Domi — to the top line: 4 thoughts on the injury-plagued Leafs**\
-`Matthew Knies joins a long list of injured Leafs that has had a trickle-down effect on the rest of the lineup.`\
-https://nytimes.com/athletic/6086964/2025/01/24/maple-leafs-matthew-knies-injury-mcmann-domi/
 
