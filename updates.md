@@ -1,3 +1,7 @@
+**First Officer Convicted Under a Washington State Law Gets 16-Year Sentence**\
+`The police officer, Jeffrey Nelson, shot and killed Jesse Sarey, 26, while attempting to arrest him in May 2019. Mr. Nelson was found guilty of murder and assault last June.`\
+https://nytimes.com/2025/01/23/us/police-officer-sentenced-jesse-sarey-death.html
+
 **Cubs emerging as serious suitor for Astros reliever Ryan Pressly: Sources**\
 `Pressly, who served as Houston's primary closer from 2020-23, will make $14 million in 2025 and has a full no-trade clause.`\
 https://nytimes.com/athletic/6084862/2025/01/23/cubs-astros-ryan-pressly-trade-talks/
