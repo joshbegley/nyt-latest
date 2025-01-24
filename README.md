@@ -1,3 +1,15 @@
+**MeToo Outrage Leaves Japanese Broadcaster Without a Single Advertiser**\
+`A popular TV host admitted trying to conceal a sexual assault complaint. This time, the reaction was swift and harsh, and aimed not only at him but also his employers.`\
+https://nytimes.com/2025/01/24/world/asia/japan-me-too-sex-scandal.html
+
+**Wolves forward Cunha not for sale in January, says Pereira**\
+`Wolverhampton Wanderers head coach Vitor Pereira says Matheus Cunha is not for sale this month — and confirmed he wants two more signings before the transfer deadline.`\
+https://nytimes.com/athletic/6086092/2025/01/24/matheus-cunha-wolves-future-update/
+
+**Meta to Increase Spending to $65 Billion This Year in A.I. Push**\
+`Much of the investment will go into increasing the company’s footprint in data centers, which provide the computing power that A.I. products and algorithms require.`\
+https://nytimes.com/2025/01/24/technology/meta-data-center.html
+
 **Man Utd make €30m offer for Lecce's Dorgu**\
 `Manchester United have tabled a €30million (£25.`\
 https://nytimes.com/athletic/6081060/2025/01/24/patrick-dorgu-manchester-united-transfer-update/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/24/arts/music/angel-blue-aida-met-opera.html
 **NHL Power Rankings: Can the Capitals hang on to the top spot?**\
 `The Capitals underlying numbers haven't been good but they keep winning, while the Sharks do not.`\
 https://nytimes.com/athletic/6085452/2025/01/24/nhl-power-rankings-capitals-2/
-
-**I.R.S. Expands Its Free Tax Filing Option**\
-`The Direct File system will be open to millions of taxpayers in 25 states, up from 12 last year. But it’s unclear what will happen to the program next year.`\
-https://nytimes.com/2025/01/24/your-money/irs-tax-filing-free-online.html
-
-**West Ham technical director Tim Steidten set to leave club**\
-`West Ham United technical director Tim Steidten is set to leave the club, with the terms of his departure in the process of being finalised.`\
-https://nytimes.com/athletic/6083173/2025/01/24/tim-steidten-west-ham-future/
-
-**Man United give Antony permission to finalise Betis loan move**\
-`Manchester United have given Antony permission to travel to Seville to complete a loan move to Real Betis.`\
-https://nytimes.com/athletic/6072863/2025/01/24/antony-manchester-united-transfer-loan/
 
