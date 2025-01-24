@@ -1,3 +1,15 @@
+**Angel Blue Doubted Her Path in Opera. Now She’s a Star.**\
+`Once used to frequent rejection letters, Blue has become a regular on major stages and is singing the title role in “Aida” at the Metropolitan Opera.`\
+https://nytimes.com/2025/01/24/arts/music/angel-blue-aida-met-opera.html
+
+**NHL Power Rankings: Can the Capitals hang on to the top spot?**\
+`The Capitals underlying numbers haven't been good but they keep winning, while the Sharks do not.`\
+https://nytimes.com/athletic/6085452/2025/01/24/nhl-power-rankings-capitals-2/
+
+**I.R.S. Expands Its Free Tax Filing Option**\
+`The Direct File system will be open to millions of taxpayers in 25 states, up from 12 last year. But it’s unclear what will happen to the program next year.`\
+https://nytimes.com/2025/01/24/your-money/irs-tax-filing-free-online.html
+
 **West Ham technical director Tim Steidten set to leave club**\
 `West Ham United technical director Tim Steidten is set to leave the club, with the terms of his departure in the process of being finalised.`\
 https://nytimes.com/athletic/6083173/2025/01/24/tim-steidten-west-ham-future/
