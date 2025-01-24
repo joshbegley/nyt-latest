@@ -1,3 +1,11 @@
+**Scheffler, McIlroy and Spieth making PGA Tour season debuts at Pebble**\
+`Scheffler was forced to delay his 2025 season after cutting his hand.`\
+https://nytimes.com/athletic/6087065/2025/01/24/scheffler-mcilroy-spieth-pga-tour-pebble-beach/
+
+**Contenders to Lead the Democratic Party Scramble to Show Momentum**\
+`As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
+https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
+
 **Trump Reinstates Longstanding Republican Anti-Abortion Policy**\
 `The move came after he addressed thousands of abortion opponents in Washington to mark the 52nd anniversary of the Supreme Court’s 1973 decision in Roe v. Wade.`\
 https://nytimes.com/2025/01/24/us/politics/trump-republican-anti-abortion-policy.html
