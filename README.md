@@ -1,3 +1,7 @@
+**The Bounce: Do we have controversy with NBA All-Star voting?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6085848/2025/01/24/nba-all-star-voting-victor-wembanyama-nikola-jokic-shai-gilgeous-alexander-nba-the-bounce/
+
 **What Puts the ‘New York’ in New York Cheesecake?**\
 `The answer may have more to do with New York than you might think.`\
 https://nytimes.com/2025/01/24/dining/new-york-cheesecake-juniors-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085736/2025/01/24/row-z-man-city-robbie-williams/
 **Dry January Is Almost Over. Now What?**\
 `Here’s how to make the most of what you’ve learned.`\
 https://nytimes.com/2025/01/24/well/dry-january-maintenance.html
-
-**Everton's McNeil 'probably needs surgery' on knee injury - Moyes**\
-`Everton manager David Moyes says Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury.`\
-https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
 
