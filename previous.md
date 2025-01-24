@@ -1,3 +1,7 @@
+**Trump Is Touring Pacific Palisades. Altadena Residents Wonder Why Not Them.**\
+`Residents of Altadena have expressed frustration that their town and their losses have been overshadowed by those in Pacific Palisades.`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-is-touring-pacific-palisades-altadena-residents-wonder-why-not-them
+
 **Immigration Arrests Prompt Fear that Mass Deportations Loom**\
 `The arrest of three people at a seafood distribution warehouse in Newark has led to a heightened sense of alarm in the region.`\
 https://nytimes.com/2025/01/24/nyregion/newark-immigration-raid-deportation-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087065/2025/01/24/scheffler-mcilroy-spieth-pga-tou
 **Contenders to Lead the Democratic Party Scramble to Show Momentum**\
 `As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
 https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
-
-**Derek Humphry, Pivotal Figure in Right-to-Die Movement, Dies at 94**\
-`His own experience assisting his terminally ill wife in ending her life set him on a path to founding the Hemlock Society and writing a best-selling guide.`\
-https://nytimes.com/2025/01/24/health/derek-humphry-dead.html
 
