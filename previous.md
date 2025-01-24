@@ -1,3 +1,11 @@
+**Trump Pardons Anti-Abortion Activists Who Blockaded Clinic**\
+`The move came ahead of the March for Life, the annual anti-abortion rally in Washington where Vice President JD Vance is expected to address attendees.`\
+https://nytimes.com/2025/01/23/us/politics/trump-pardon-abortion-clinic-activists.html
+
+**Trump Bars Transgender Women From U.S. Prisons for Female Inmates**\
+`In an executive order, the president also moved to end gender-related medical treatments for transgender people in prison.`\
+https://nytimes.com/2025/01/23/us/trump-transgender-inmates-prison.html
+
 **Tennessee's Kim Caldwell to miss Texas game following birth of first child**\
 `Caldwell told The Athletic last week that her plan was “to return to basketball as quick as possible."`\
 https://nytimes.com/athletic/6084992/2025/01/23/tennessee-kim-caldwell-birth-texas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6084741/2025/01/23/lebron-james-named-nba-all-star-
 **Cubs emerging as serious suitor for Astros reliever Ryan Pressly: Sources**\
 `Pressly, who served as Houston's primary closer from 2020-23, will make $14 million in 2025 and has a full no-trade clause.`\
 https://nytimes.com/athletic/6084862/2025/01/23/cubs-astros-ryan-pressly-trade-talks/
-
-**Prosecution Seeks Pause in Sept. 11 Case Until Trump Administration Is in Place**\
-`The new administration does not yet have a confirmed defense secretary, attorney general or solicitor general in place.`\
-https://nytimes.com/2025/01/23/us/politics/911-khalid-shaikh-mohammed-plea-trump.html
-
-**Ichiro finds special joy in his place of peace, the Hall of Fame, which he's forever changed**\
-`No one has ever walked through these doors with the sport-changing, Hall-changing, planet-changing possibilities of Ichiro.`\
-https://nytimes.com/athletic/6084724/2025/01/23/ichiro-baseball-hall-of-fame-japan/
 
