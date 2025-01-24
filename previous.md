@@ -1,3 +1,7 @@
+**More Ships May Return to the Red Sea if Houthis Hold Their Fire**\
+`Shipping companies expressed caution about using the shorter route between Asia and Europe that many ships have avoided for more than a year.`\
+https://nytimes.com/2025/01/24/business/more-ships-may-return-to-the-red-sea-if-houthis-hold-their-fire.html
+
 **'Ain't gonna be no excuses tonight': Bucks cap wild travel day with blowout win over Heat**\
 `After being snowbound in New Orleans for three days, the Bucks arrived a little more than two hours before game time and then routed Miami.`\
 https://nytimes.com/athletic/6085727/2025/01/24/bucks-heat-lillard-antetokounmpo/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/dining/smashing-smashed-beef-kebab-with-cucumber-
 **Five Action Movies to Stream Now**\
 `This month’s picks include craven rich kids, retired assassins and a cat cult.`\
 https://nytimes.com/2025/01/24/movies/action-movies-streaming.html
-
-**The Perfect Cacio e Pepe Recipe, According to Science**\
-`Italian scientists have drawn from thermodynamic principles to prevent a famous pasta from turning into a gooey mess.`\
-https://nytimes.com/2025/01/24/science/cacio-e-pepe-recipe-corn-starch.html
 
