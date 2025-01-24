@@ -1,3 +1,11 @@
+**Pence Wages Lonely Crusade Against Kennedy as Abortion Opponents Avoid Fight**\
+`Robert F. Kennedy Jr., who has taken different positions on the issue, has pledged to promote President Trump’s anti-abortion agenda in a bid to get confirmed as health secretary.`\
+https://nytimes.com/2025/01/24/us/politics/pence-kennedy-abortion.html
+
+**Texans fire OC Bobby Slowik after 2 seasons: Sources**\
+`Slowik spent two seasons as Houston's offensive coordinator, both with C.J. Stroud at quarterback.`\
+https://nytimes.com/athletic/6086661/2025/01/24/bobby-slowik-fired-texans-oc-coach/
+
 **An Evacuation, and a Haunting Question**\
 `Alexandra Berzon, an investigative reporter who lives in Los Angeles, reflects on her family’s evacuation from the Eaton fire.`\
 https://nytimes.com/2025/01/24/us/wildfires-evacuation-question.html
