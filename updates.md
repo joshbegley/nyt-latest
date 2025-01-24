@@ -1,3 +1,15 @@
+**Greece Tightens Laws on Domestic Violence (but Not Enough, Critics Say)**\
+`Amid a surge in reported cases, lawmakers imposed harsher punishments on perpetrators. Victims’ advocacy groups said the legislation was too thin on preventative measures.`\
+https://nytimes.com/2025/01/24/world/europe/greece-domestic-violence-law.html
+
+**Fauci Stripped of Government Security Protection**\
+`Dr. Anthony S. Fauci, who was one of the nation’s top health officials for decades, had received death threats during the coronavirus pandemic. He has hired his own security detail.`\
+https://nytimes.com/2025/01/24/us/politics/fauci-security-protection.html
+
+**Plymouth accept Whittaker transfer offer from Middlesbrough**\
+`Plymouth Argyle have accepted a transfer bid from Championship rivals Middlesbrough for forward Morgan Whittaker.`\
+https://nytimes.com/athletic/6086374/2025/01/24/morgan-whittaker-middlesbrough-transfer/
+
 **An Unearthed Tina Turner Outtake, and 9 More New Songs**\
 `Hear tracks by Kane Brown and Jelly Roll, Sexyy Red and Bruno Mars, Teddy Swims and others.`\
 https://nytimes.com/2025/01/24/arts/music/playlist-tina-turner-sexyy-red-bruno-mars.html

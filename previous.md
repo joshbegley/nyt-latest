@@ -1,3 +1,15 @@
+**Greece Tightens Laws on Domestic Violence (but Not Enough, Critics Say)**\
+`Amid a surge in reported cases, lawmakers imposed harsher punishments on perpetrators. Victims’ advocacy groups said the legislation was too thin on preventative measures.`\
+https://nytimes.com/2025/01/24/world/europe/greece-domestic-violence-law.html
+
+**Fauci Stripped of Government Security Protection**\
+`Dr. Anthony S. Fauci, who was one of the nation’s top health officials for decades, had received death threats during the coronavirus pandemic. He has hired his own security detail.`\
+https://nytimes.com/2025/01/24/us/politics/fauci-security-protection.html
+
+**Plymouth accept Whittaker transfer offer from Middlesbrough**\
+`Plymouth Argyle have accepted a transfer bid from Championship rivals Middlesbrough for forward Morgan Whittaker.`\
+https://nytimes.com/athletic/6086374/2025/01/24/morgan-whittaker-middlesbrough-transfer/
+
 **An Unearthed Tina Turner Outtake, and 9 More New Songs**\
 `Hear tracks by Kane Brown and Jelly Roll, Sexyy Red and Bruno Mars, Teddy Swims and others.`\
 https://nytimes.com/2025/01/24/arts/music/playlist-tina-turner-sexyy-red-bruno-mars.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/trump-putin-sanctions.html
 **Teams looking for free-agent bats find that their options are running low**\
 `With Profar signed, above-average hitters have grown few and far between in free agency, and needy teams are looking for creative solutions.`\
 https://nytimes.com/athletic/6086291/2025/01/24/pete-alonso-alex-bregman-free-agent-hitter-market/
-
-**Fantasy Trends and Hidden Gems: 14 players worth picking up**\
-`Sure the Canucks face a soft schedule, but there are far better additions given Vancouver's struggles.`\
-https://nytimes.com/athletic/6085297/2025/01/24/fantasy-trends-and-hidden-gems-canucks-schedule-is-juicy-but-these-are-better-options/
-
-**New Jersey Devils goalie Jacob Markstrom out 4 to 6 weeks with MCL sprain**\
-`Markstrom suffered the injury in the first period of Wednesday night’s matchup against the Boston Bruins.`\
-https://nytimes.com/athletic/6086236/2025/01/24/new-jersey-devils-jacob-markstrom-out-mcl-sprain/
-
-**More Ships May Return to the Red Sea if Houthis Hold Their Fire**\
-`Shipping companies expressed caution about using the shorter route between Asia and Europe that many ships have avoided for more than a year.`\
-https://nytimes.com/2025/01/24/business/shipping-red-sea-houthis.html
 
