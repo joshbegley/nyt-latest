@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Split on Chiefs-Bills and not an under in sight**\
+`Greenberg and Jackson make their picks for the Conference Championship games.`\
+https://nytimes.com/athletic/6085172/2025/01/24/betting-for-by-dummies-odds-chiefs-bills-commanders-eagles/
+
+**Kasey Kahne returning for Xfinity Series race at Rockingham Speedway**\
+`Kahne will drive Richard Childress Racing’s No. 33 Chevrolet on April 19, when he will make his first NASCAR series start since Sept. 2018.`\
+https://nytimes.com/athletic/6086161/2025/01/24/kasey-kahne-xfinity-series-rockingham-speedway/
+
 **Everton's McNeil 'probably needs surgery' on knee injury - Moyes**\
 `Everton manager David Moyes says Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury.`\
 https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/

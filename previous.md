@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Split on Chiefs-Bills and not an under in sight**\
+`Greenberg and Jackson make their picks for the Conference Championship games.`\
+https://nytimes.com/athletic/6085172/2025/01/24/betting-for-by-dummies-odds-chiefs-bills-commanders-eagles/
+
+**Kasey Kahne returning for Xfinity Series race at Rockingham Speedway**\
+`Kahne will drive Richard Childress Racing’s No. 33 Chevrolet on April 19, when he will make his first NASCAR series start since Sept. 2018.`\
+https://nytimes.com/athletic/6086161/2025/01/24/kasey-kahne-xfinity-series-rockingham-speedway/
+
 **Adam Silver: 'Potentially some adjustments we can make' to NBA's style of play, 3-point volume**\
 `"I’m listening to the critics," the NBA commissioner said ahead of competition committee and general managers meetings next week.`\
 https://nytimes.com/athletic/6086116/2025/01/24/adam-silver-nba-efficiency-trap-3-pointers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-upd
 **As Trump Visits North Carolina, Battered Communities Hope for More Aid**\
 `Residents of Asheville and the rest of western North Carolina are still recovering from catastrophic flooding in September.`\
 https://nytimes.com/2025/01/24/us/trump-north-carolina-floods-asheville.html
-
-**MeToo Outrage Leaves Japanese Broadcaster Without a Single Advertiser**\
-`A popular TV host admitted trying to conceal a sexual assault complaint. This time, the reaction was swift and harsh, and aimed not only at him but also his employers.`\
-https://nytimes.com/2025/01/24/world/asia/japan-me-too-sex-scandal.html
-
-**Wolves forward Cunha not for sale in January, says Pereira**\
-`Wolverhampton Wanderers head coach Vitor Pereira says Matheus Cunha is not for sale this month — and confirmed he wants two more signings before the transfer deadline.`\
-https://nytimes.com/athletic/6086092/2025/01/24/matheus-cunha-wolves-future-update/
 
