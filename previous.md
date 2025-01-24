@@ -1,3 +1,11 @@
+**Independent Watchdog, in Trump’s Cross Hairs, Scrutinizes Terrorism Watch List**\
+`The Privacy and Civil Liberties Oversight Board, which the White House has threatened to purge, called for new limits on the list in a report issued on Friday.`\
+https://nytimes.com/2025/01/24/us/politics/terrorism-watch-list-trump.html
+
+**Arthur Blessitt, Who Carried a Cross Around the World, Dies at 84**\
+`A street preacher from Hollywood, he set out on a walk to New York City in 1969 with a 110-pound cross on his back. Then he kept going.`\
+https://nytimes.com/2025/01/24/us/arthur-blessitt-dead.html
+
 **Meet Arsenal target Sverre Nypan, the Rosenborg teenager with 4,000 minutes under his belt**\
 `The midfielder made his debut aged 15 and is the latest exciting prospect to come out of Norway, in the footsteps of Odegaard and Haaland`\
 https://nytimes.com/athletic/6037173/2025/01/24/sverre-nypan-arsenal-transfer-target-rosenborg-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6086660/2025/01/24/paul-skenes-debut-patch-topps-au
 **Existing-Home Sales in 2024 Were Slowest in Decades**\
 `The market perked up late in the year when interest rates eased, but affordability challenges yielded the fewest transactions since 1995.`\
 https://nytimes.com/2025/01/24/business/economy/home-sales-mortgage-rates.html
-
-**Arsenal working on deal for Rosenborg's Nypan**\
-`Arsenal are working on a deal to sign midfielder Sverre Nypan from Rosenborg.`\
-https://nytimes.com/athletic/6077514/2025/01/24/sverre-nypan-arsenal-transfer-who/
-
-**Tech’s TikTok Dilemma: Follow the Law or President Trump?**\
-`The federal law banning TikTok has revealed a major schism among American tech companies: Some are willing to flout the law — and some, including Apple and Google, are not.`\
-https://nytimes.com/2025/01/24/technology/tiktok-ban-trump-amazon-apple-google.html
 
