@@ -1,3 +1,11 @@
+**This Rare Plant Smells Horrible, but People Can’t Wait to Get a Whiff**\
+`At the Brooklyn Botanic Garden, a so-called corpse flower bloomed for the first time on Friday. The smell was not unlike rotting flesh.`\
+https://nytimes.com/2025/01/24/nyregion/brooklyn-corpse-flower-bloom.html
+
+**Trump Administration Tells Embassies That ‘Activist’ Flags Won’t Fly**\
+`The State Department has ordered that diplomatic outposts fly only U.S. flags.`\
+https://nytimes.com/2025/01/24/us/embassy-us-flag-blm-gay-pride.html
+
 **Sanchez has a lot of improving to do, says Maresca**\
 `Enzo Maresca admits Chelsea’s first-choice goalkeeper Robert Sanchez still has a lot of improving to do and believes he needs to cope better with criticism from the club&#8217;s fans.`\
 https://nytimes.com/athletic/6085896/2025/01/24/enzo-maresca-robert-sanchez-chelsea/
