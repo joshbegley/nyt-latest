@@ -1,3 +1,7 @@
+**LeBron James named NBA All-Star starter for 21st straight season**\
+`NBA's All-Star starters for newly formatted event revealed. Reserves will be announced Jan. 30.`\
+https://nytimes.com/athletic/6084741/2025/01/23/lebron-james-named-nba-all-star-starter-for-21st-straight-season/
+
 **Cubs emerging as serious suitor for Astros reliever Ryan Pressly: Sources**\
 `Pressly, who served as Houston's primary closer from 2020-23, will make $14 million in 2025 and has a full no-trade clause.`\
 https://nytimes.com/athletic/6084862/2025/01/23/cubs-astros-ryan-pressly-trade-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/us/truck-stop-serial-killer-guilty.html
 **Astros re-engage in talks with Alex Bregman: Sources**\
 `Houston is also shopping reliever Ryan Pressly, who has a no-trade clause.`\
 https://nytimes.com/athletic/6084614/2025/01/23/astros-alex-bregman-free-agent-discussions/
-
-**Los Angeles Schools Reopen to Relief, Though Some Parents Worry About Toxins**\
-`Many educators and families were thrilled to get back to some routines as a handful of schools reopened after weeks of closures. Others were worried about remaining dangers in fire-hit areas.`\
-https://nytimes.com/2025/01/23/us/los-angeles-fire-school-closures-toxins.html
 
