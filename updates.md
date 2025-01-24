@@ -1,3 +1,7 @@
+**Jurickson Profar excited to continue Curaçao-Braves ties, prove 2024 was no outlier**\
+`After pretending he was Andruw Jones or Chipper Jones in backyard games as a kid, Profar will be the Braves' everyday left fielder.`\
+https://nytimes.com/athletic/6086933/2025/01/24/jurickson-profar-curacao-braves-ties/
+
 **Trump’s New U.S. Attorney in D.C. Comes to Aid of Oath Keepers Leader**\
 `Ed Martin, a longtime advocate for Jan. 6 defendants recently named to run the prosecutors’ office, sought to undo a judge’s order barring Stewart Rhodes from visiting Washington.`\
 https://nytimes.com/2025/01/24/us/politics/steward-rhodes-oath-keepers-legal.html
