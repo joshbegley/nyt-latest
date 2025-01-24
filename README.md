@@ -1,3 +1,7 @@
+**No decision made on extending partnership with Djokovic, says Murray**\
+`MELBOURNE, Australia — Andy Murray has said that he and Novak Djokovic will hold talks about whether to extend their partnership beyond the Australian Open.`\
+https://nytimes.com/athletic/6085496/2025/01/24/andy-murray-novak-djokovic-partnership/
+
 **‘I’ve Been Pushed, and I’m Going to Get Hit by the Train’**\
 `Joseph Lynskey was waiting for the subway in Manhattan last month when a random act of violence transformed his life.`\
 https://nytimes.com/2025/01/24/nyregion/new-york-subway-shove-survivor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084201/2025/01/24/bryan-rust-injured-penguins-duck
 **Tottenham's youngsters are performing superbly - but at what cost?**\
 `Too much is being asked of Spurs' decimated squad - these players have earned the right to some reinforcements before the window shuts`\
 https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
-
-**Word of the Day: zhuzh**\
-`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/24/learning/word-of-the-day-zhuzh.html
 
