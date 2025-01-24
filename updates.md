@@ -1,3 +1,7 @@
+**Honduras Says Trump’s Deportation Plan Could Push It Closer to China**\
+`Many Latin American countries are trying to distance themselves from Beijing. But in response to President Trump’s sweeping deportation plans, Honduras is doing the opposite.`\
+https://nytimes.com/2025/01/24/us/honduras-china-trump-deportation.html
+
 **McMann — not Domi — to the top line: 4 thoughts on the injury-plagued Leafs**\
 `Matthew Knies joins a long list of injured Leafs that has had a trickle-down effect on the rest of the lineup.`\
 https://nytimes.com/athletic/6086964/2025/01/24/maple-leafs-matthew-knies-injury-mcmann-domi/

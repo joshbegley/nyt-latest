@@ -1,3 +1,7 @@
+**Honduras Says Trump’s Deportation Plan Could Push It Closer to China**\
+`Many Latin American countries are trying to distance themselves from Beijing. But in response to President Trump’s sweeping deportation plans, Honduras is doing the opposite.`\
+https://nytimes.com/2025/01/24/us/honduras-china-trump-deportation.html
+
 **McMann — not Domi — to the top line: 4 thoughts on the injury-plagued Leafs**\
 `Matthew Knies joins a long list of injured Leafs that has had a trickle-down effect on the rest of the lineup.`\
 https://nytimes.com/athletic/6086964/2025/01/24/maple-leafs-matthew-knies-injury-mcmann-domi/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/24/us/president-trump-news/house-oversight-comm
 **Amid the Pain of Separation and Surveillance, Life Continues**\
 `“Picturing the Border” collects photographs of the United States-Mexico boundary dating back to the 1960s.`\
 https://nytimes.com/2025/01/24/books/review/picturing-the-border-nadiah-rivera-fellah.html
-
-**N.Y. Migrants Fear Expulsion After Trump Expands Deportation Targets**\
-`Those who followed Biden-era guidelines are dismayed that the rules have changed. The app that helped them enter the country now may make them targets.`\
-https://nytimes.com/2025/01/24/nyregion/nyc-migrant-shelter-deportation.html
 
