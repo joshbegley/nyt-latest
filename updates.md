@@ -1,3 +1,7 @@
+**Trump’s New U.S. Attorney in D.C. Comes to Aid of Oath Keepers Leader**\
+`Ed Martin, a longtime advocate for Jan. 6 defendants recently named to run the prosecutors’ office, sought to undo a judge’s order barring Stewart Rhodes from visiting Washington.`\
+https://nytimes.com/2025/01/24/us/politics/steward-rhodes-oath-keepers-legal.html
+
 **This Rare Plant Smells Horrible, but People Can’t Wait to Get a Whiff**\
 `At the Brooklyn Botanic Garden, a so-called corpse flower bloomed for the first time on Friday. The smell was not unlike rotting flesh.`\
 https://nytimes.com/2025/01/24/nyregion/brooklyn-corpse-flower-bloom.html
