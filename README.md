@@ -1,3 +1,7 @@
+**Angel Blue Doubted Her Path in Opera. Now She’s a Star.**\
+`Once used to frequent rejection letters, Blue has become a regular on major stages and is singing the title role in “Aida” at the Metropolitan Opera.`\
+https://nytimes.com/2025/01/24/arts/music/angel-blue-aida-met-opera.html
+
 **NHL Power Rankings: Can the Capitals hang on to the top spot?**\
 `The Capitals underlying numbers haven't been good but they keep winning, while the Sharks do not.`\
 https://nytimes.com/athletic/6085452/2025/01/24/nhl-power-rankings-capitals-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085614/2025/01/24/aryna-sabalenka-tennis-play-oppo
 **Guardiola says Man City signings available for Chelsea**\
 `Pep Guardiola has said Manchester City&#8217;s January signings Vitor Reis, Abdukodir Khusanov and Omar Marmoush could make their debuts against Chelsea on Saturday.`\
 https://nytimes.com/athletic/6085938/2025/01/24/manchester-city-signings-debut-chelsea/
-
-**‘Debanking,’ and the Trump Diss Heard Around Davos**\
-`President Trump’s accusation that Bank of America’ dropped conservatives as clients serves as a reminder C.E.O.s may face unexpected attacks by the White House.`\
-https://nytimes.com/2025/01/24/business/dealbook/debanking-davos-trump-bofa-moynihan.html
 
