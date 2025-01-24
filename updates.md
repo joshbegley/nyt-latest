@@ -1,3 +1,7 @@
+**Supreme Court to Hear Oklahoma Religious Charter School Case**\
+`The proposal to create the nation’s first religious charter school paid for by taxpayer funds could move the line between church and state in education.`\
+https://nytimes.com/2025/01/24/us/supreme-court-oklahoma-religious-charter-school.html
+
 **The House oversight committee will investigate Republican complaints about banks.**\
 `Venture capital and cryptocurrency companies have claimed that they are subject to politically motivated discrimination, though the banks firmly deny that.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news/house-oversight-committee-to-investigate-republican-complaints-about-banks
