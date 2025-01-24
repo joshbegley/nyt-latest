@@ -1,3 +1,7 @@
+**What Is the Future of the Paris Agreement?**\
+`On President Trump’s first day in office, he pulled out of the Paris Agreement, a pact among nearly all nations to fight climate change. Reporting from Davos, Switzerland, David Gelles, a climate journalist for The New York Times, explains what this decision means for the rest of the world.`\
+https://nytimes.com/video/climate/100000009939986/what-is-the-future-of-the-paris-agreement.html
+
 **Target Becomes the Latest Brand to Roll Back D.E.I.**\
 `The retailer joins a growing group of companies dropping commitments and policies on diversity and equity as President Trump fights the programs.`\
 https://nytimes.com/2025/01/24/business/target-dei-rollback.html
