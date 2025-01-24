@@ -1,3 +1,7 @@
+**Tottenham's youngsters are performing superbly - but at what cost?**\
+`Too much is being asked of Spurs' decimated squad - they have earned the right to some reinforcements`\
+https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
+
 **Word of the Day: zhuzh**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/24/learning/word-of-the-day-zhuzh.html

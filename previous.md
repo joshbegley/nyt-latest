@@ -1,3 +1,7 @@
+**Tottenham's youngsters are performing superbly - but at what cost?**\
+`Too much is being asked of Spurs' decimated squad - they have earned the right to some reinforcements`\
+https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
+
 **Word of the Day: zhuzh**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/24/learning/word-of-the-day-zhuzh.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085164/2025/01/24/wild-home-record-gustavsson-spur
 **Glut of midfielders a positive problem for Nottingham Forest**\
 `Nottingham Forest had issues with their midfield for so long. Now their depth is the biggest problem`\
 https://nytimes.com/athletic/6083602/2025/01/24/nottingham-forest-midfield-options/
-
-**Eddie's choice: Should Newcastle stick with Martin Dubravka or bring back Nick Pope?**\
-`Analysis of both goalkeepers' pros and cons`\
-https://nytimes.com/athletic/6082833/2025/01/24/should-newcastle-stick-with-martin-dubravka-or-bring-back-nick-pope/
 
