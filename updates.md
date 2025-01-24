@@ -1,3 +1,7 @@
+**Blue Jackets' back-to-back struggles continue with lopsided loss to Hurricanes**\
+`Columbus ran out of gas in the second period and fell to 0-7 on the second half of a back-to-back.`\
+https://nytimes.com/athletic/6085154/2025/01/23/blue-jackets-back-to-back-struggles-hurricanes/
+
 **Firefighters Battle Growing Blaze Near U.S.-Mexico Border**\
 `Officials said the fire, which had spread to more than 500 acres by Thursday night, was miles away from threatening any homes or buildings.`\
 https://nytimes.com/2025/01/23/us/wildfire-san-diego-mexico-border.html
