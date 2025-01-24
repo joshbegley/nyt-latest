@@ -1,3 +1,7 @@
+**FPL: Hall? Konate? Munoz? Who are the best Saliba replacements?**\
+`Abdul Rehman runs the rule over the best options to replace the injured Arsenal defender in FPL`\
+https://nytimes.com/athletic/6079325/2025/01/24/fantasy-premier-league-saliba-defenders-hall-konate/
+
 **Yasin Ayari: Understated and underrated**\
 `Ayari has has worked hard to get into the first team after loan spells last season and he is now thriving under Hurzeler`\
 https://nytimes.com/athletic/6074786/2025/01/24/yasin-ayari-brighton-midfielder/
