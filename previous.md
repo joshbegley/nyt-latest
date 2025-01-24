@@ -1,3 +1,7 @@
+**Genesis Invitational moves to Torrey Pines due to L.A. fires**\
+`Riviera Country Club, the original location, is located in the Palisades not far from the devastation of the fires.`\
+https://nytimes.com/athletic/6086402/2025/01/24/genesis-invitational-move-torrey-pines/
+
 **Ohio State running back Quinshon Judkins declares for NFL Draft**\
 `Ole Miss transfer rushed for 1,060 yards and 14 touchdowns in helping Buckeyes to national championship.`\
 https://nytimes.com/athletic/6086368/2025/01/24/ohio-state-running-back-quinshon-judkins-declares-for-nfl-draft/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/01/24/business/shipping-red-sea-houthis.html
 `After being snowbound in New Orleans, the Bucks arrived in Milwaukee a little more than two hours before game time and then routed Miami.`\
 https://nytimes.com/athletic/6085727/2025/01/24/bucks-heat-lillard-antetokounmpo/
 
-**Hegseth Said He Paid the Woman Who Accused Him of Rape $50,000, Senator Says**\
+**Hegseth Told Senator He Paid $50,000 to Woman Who Accused Him of Rape**\
 `The settlement’s existence after a 2017 accusation had been documented before the defense secretary nominee’s confirmation hearing this month, but the amount had not been known publicly.`\
 https://nytimes.com/2025/01/24/us/politics/hegseth-payment.html
 
 **What Elon Musk’s Salute Was All About**\
 `A gesture associated with the Nazis has a surprising history. But in Germany, there was little doubt about its meaning.`\
 https://nytimes.com/2025/01/24/world/europe/elon-musk-roman-salute-nazi.html
-
-**UnitedHealthcare Announces New C.E.O.**\
-`The health insurer named Tim Noel, a longtime employee of its parent company, for the job. The previous chief executive, Brian Thompson, was killed in Manhattan.`\
-https://nytimes.com/2025/01/24/science/unitedhealthcare-new-ceo.html
 

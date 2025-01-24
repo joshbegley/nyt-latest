@@ -1,3 +1,11 @@
+**Genesis Invitational moves to Torrey Pines due to L.A. fires**\
+`Riviera Country Club, the original location, is located in the Palisades not far from the devastation of the fires.`\
+https://nytimes.com/athletic/6086402/2025/01/24/genesis-invitational-move-torrey-pines/
+
+**Hegseth Told Senator He Paid $50,000 to Woman Who Accused Him of Rape**\
+`The settlement’s existence after a 2017 accusation had been documented before the defense secretary nominee’s confirmation hearing this month, but the amount had not been known publicly.`\
+https://nytimes.com/2025/01/24/us/politics/hegseth-payment.html
+
 **'Ain't gonna be no excuses tonight': Bucks cap wild travel day with blowout win over Heat**\
 `After being snowbound in New Orleans, the Bucks arrived in Milwaukee a little more than two hours before game time and then routed Miami.`\
 https://nytimes.com/athletic/6085727/2025/01/24/bucks-heat-lillard-antetokounmpo/
