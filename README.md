@@ -1,4 +1,4 @@
-**Trump Is Touring Pacific Palisades. Altadena Residents Wonder Why Not Them.**\
+**Trump is touring Pacific Palisades. Altadena residents wonder why not them.**\
 `Residents of Altadena have expressed frustration that their town and their losses have been overshadowed by those in Pacific Palisades.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-is-touring-pacific-palisades-altadena-residents-wonder-why-not-them
 
