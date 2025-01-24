@@ -1,3 +1,27 @@
+**Yasin Ayari: Understated and underrated**\
+`Ayari has has worked hard to get into the first team after loan spells last season and he is now thriving under Hurzeler`\
+https://nytimes.com/athletic/6074786/2025/01/24/yasin-ayari-brighton-midfielder/
+
+**Wild post another clunker at home, hear jeers from their fans: 4 takeaways**\
+`The Wild have struggled mightily at home this season and continued the trend by getting shut out by Utah.`\
+https://nytimes.com/athletic/6085164/2025/01/24/wild-home-record-gustavsson-spurgeon-utah/
+
+**Glut of midfielders a positive problem for Nottingham Forest**\
+`Nottingham Forest had issues with their midfield for so long. Now their depth is the biggest problem`\
+https://nytimes.com/athletic/6083602/2025/01/24/nottingham-forest-midfield-options/
+
+**Eddie's choice: Should Newcastle stick with Martin Dubravka or bring back Nick Pope?**\
+`Analysis of both goalkeepers' pros and cons`\
+https://nytimes.com/athletic/6082833/2025/01/24/should-newcastle-stick-with-martin-dubravka-or-bring-back-nick-pope/
+
+**Arne Slot vs the low block: Finding a way past Liverpool's latest challenge**\
+`Liverpool may need to find a solution against teams parking the bus`\
+https://nytimes.com/athletic/6082846/2025/01/24/arne-slot-v-the-low-block/
+
+**Why Renato Veiga is joining Juventus on loan six months after Chelsea transfer**\
+`Events in January crystallised the reality that Veiga would not get an opportunity at Stamford Bridge this season under Enzo Maresca`\
+https://nytimes.com/athletic/6083712/2025/01/24/renato-veiga-chelsea-transfer-loan-juventus-analysis/
+
 **Friday Briefing**\
 `Trump criticizes Europe.`\
 https://nytimes.com/2025/01/24/briefing/europe-trump-gaza.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6083022/2025/01/24/max-dowman-arsenal-arteta-first-
 **What sort of manager uses expected goals? Pretty much all of them**\
 `Using data is not just reserved for ‘nerds who think football is played on spreadsheets’ — it is increasingly used by the managers too`\
 https://nytimes.com/athletic/6080274/2025/01/24/premier-league-managers-expected-goals/
-
-**'I like a fight,' says Maite Oroz, the Tottenham midfielder with a superpower**\
-`If there is one player upon whom Spurs' success rests it is Maite Oroz, the 'brilliant' midfielder who 'never loses the ball' `\
-https://nytimes.com/athletic/6082968/2025/01/24/maite-oroz-tottenham-hotspur-women-interview/
-
-**What Haaland's new contract at City means for commercial appeal: 'He has become the poster child'**\
-`The City striker has been on a one-way trajectory since scoring on his professional debut at age 16 for Norwegian side Molde`\
-https://nytimes.com/athletic/6073067/2025/01/24/erling-haaland-new-contract-commercial/
-
-**Did Ukraine Kill Its Own by Downing a Russian Plane? A Year Later, It Hasn’t Said.**\
-`Russia says Ukraine shot down a military transport carrying 65 captured Ukrainians. Ukraine has not confirmed its role, identified the bodies it received, or said how it happened.`\
-https://nytimes.com/2025/01/24/world/europe/ukraine-russia-belgorod-plane-pows.html
-
-**Why the Canucks look broken and in need of change: 3 takeaways**\
-`In a marquee rematch against the Oilers, the Canucks didn't start to find their legs until they were down by five goals.`\
-https://nytimes.com/athletic/6085098/2025/01/24/vancouver-canucks-demko-tocchet-desharnais-oilers/
-
-**As Colleagues, He Thought She Was Beautiful. So He Played the Long Game.**\
-`After meeting at Barstool Sports in New York, Kendyl Klein and Benjamin DiGiulio found themselves, years later, making sudden changes to their wedding celebration amid the California wildfires.`\
-https://nytimes.com/2025/01/24/style/kendyl-klein-benjamin-digiulio-wedding.html
-
-**They Might Have Bumped Into Each Other Years Ago**\
-`Kaley Lockwood and Michael Friedman, who met on Hinge, had once lived a few blocks from each other and had the same commute to work.`\
-https://nytimes.com/2025/01/24/style/kaley-lockwood-michael-friedman-wedding.html
 
