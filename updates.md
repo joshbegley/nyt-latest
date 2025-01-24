@@ -1,3 +1,7 @@
+**How Wrexham captain James McClean went from car crash to star vs Birmingham in just 36 hours**\
+`Wrexham's unflappable captain was - as usual - the driving force in an entertaining game at the top of League One`\
+https://nytimes.com/athletic/6084541/2025/01/24/wrexham-birmingham-james-mcclean/
+
 **How Manchester City have built bridges with victims of Barry Bennell who tried to sue the club**\
 `Prominent members of the club have been involved in supporting the victims in person and have been praised for their sensitivities`\
 https://nytimes.com/athletic/6069440/2025/01/24/man-city-bennell-victims-support/
