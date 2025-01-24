@@ -1,3 +1,19 @@
+**The Debate About Land Acknowledgments**\
+`Readers’ different perspectives on land acknowledgments. Also: Outrage over the Jan. 6 pardons; Robert F. Kennedy Jr. and the A.M.A.; return to office.`\
+https://nytimes.com/2025/01/24/opinion/land-acknowledgments.html
+
+**Watch: Why Aaron Glenn has the temperament to fix the Jets**\
+`The New York Jets have hired Aaron Glenn as their new head coach, The Athletic Football Show breaks down why it just might work.`\
+https://nytimes.com/athletic/6084310/2025/01/24/the-athletic-football-show-aaron-glenn-jets/
+
+**Raiders hire Pete Carroll as next head coach**\
+`Carroll, 73, is set to return to the NFL sideline as a head coach for the first time since the conclusion of the 2023 regular season.`\
+https://nytimes.com/athletic/6074463/2025/01/24/pete-carroll-hired-raiders-head-coach/
+
+**Musk Plan for Retooling Government Takes Shape, but Big Questions Loom**\
+`The rebranding of a former White House digital office into the new Department of Government Efficiency signals its potential limits, budget experts said.`\
+https://nytimes.com/2025/01/24/us/politics/musk-doge-government-overhaul.html
+
 **The Bounce: Do we have controversy with NBA All-Star voting?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6085848/2025/01/24/nba-all-star-voting-victor-wembanyama-nikola-jokic-shai-gilgeous-alexander-nba-the-bounce/
