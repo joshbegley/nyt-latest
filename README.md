@@ -1,3 +1,7 @@
+**Blue Jackets' back-to-back struggles continue with lopsided loss to Hurricanes**\
+`Columbus ran out of gas in the second period and fell to 0-7 on the second half of a back-to-back.`\
+https://nytimes.com/athletic/6085154/2025/01/23/blue-jackets-back-to-back-struggles-hurricanes/
+
 **Firefighters Battle Growing Blaze Near U.S.-Mexico Border**\
 `Officials said the fire, which had spread to more than 500 acres by Thursday night, was miles away from threatening any homes or buildings.`\
 https://nytimes.com/2025/01/23/us/wildfire-san-diego-mexico-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/technology/instagram-facebook-abortion-pill-provi
 **Breaking: NHL has begun preparation for Gary Bettman retirement 'in a couple years'**\
 `Bettman says he hasn't given the Board of Governors a timeline, but the executive committee is in a formal process of finding a successor.`\
 https://nytimes.com/athletic/6084164/2025/01/23/gary-bettman-retirement-succession/
-
-**Review: In ‘English,’ Looking for a Language to Live In**\
-`For the students in Sanaz Toossi’s dramedy about mother tongues and other tongues, the world’s lingua franca is not exactly free.`\
-https://nytimes.com/2025/01/23/theater/english-review-broadway-toossi.html
 
