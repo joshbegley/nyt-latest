@@ -1,3 +1,11 @@
+**Trump Pauses Disbursements to Program Supplying H.I.V. Treatment Worldwide**\
+`Pepfar, which is estimated to have delivered lifesaving treatment as many as 25 million people in 54 countries, faces a funding delay of as long as 180 days.`\
+https://nytimes.com/2025/01/24/us/politics/trump-hiv-aids-pepfar.html
+
+**Cincinnati set to sign Middlesbrough's Engel on loan**\
+`FC Cincinnati are set to complete the loan signing of Middlesbrough defender Lukas Engel.`\
+https://nytimes.com/athletic/6086791/2025/01/24/lukas-engel-cincinnati-loan/
+
 **What Is the Future of the Paris Agreement?**\
 `On President Trump’s first day in office, he pulled out of the Paris Agreement, a pact among nearly all nations to fight climate change. Reporting from Davos, Switzerland, David Gelles, a climate journalist for The New York Times, explains what this decision means for the rest of the world.`\
 https://nytimes.com/video/climate/100000009939986/what-is-the-future-of-the-paris-agreement.html

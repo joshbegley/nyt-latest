@@ -1,3 +1,11 @@
+**Trump Pauses Disbursements to Program Supplying H.I.V. Treatment Worldwide**\
+`Pepfar, which is estimated to have delivered lifesaving treatment as many as 25 million people in 54 countries, faces a funding delay of as long as 180 days.`\
+https://nytimes.com/2025/01/24/us/politics/trump-hiv-aids-pepfar.html
+
+**Cincinnati set to sign Middlesbrough's Engel on loan**\
+`FC Cincinnati are set to complete the loan signing of Middlesbrough defender Lukas Engel.`\
+https://nytimes.com/athletic/6086791/2025/01/24/lukas-engel-cincinnati-loan/
+
 **What Is the Future of the Paris Agreement?**\
 `On President Trump’s first day in office, he pulled out of the Paris Agreement, a pact among nearly all nations to fight climate change. Reporting from Davos, Switzerland, David Gelles, a climate journalist for The New York Times, explains what this decision means for the rest of the world.`\
 https://nytimes.com/video/climate/100000009939986/what-is-the-future-of-the-paris-agreement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/trump-pardons-bias.html
 **Walker joins Milan on loan from Manchester City**\
 `Milan have completed the loan signing of Kyle Walker from Manchester City.`\
 https://nytimes.com/athletic/6086756/2025/01/24/kyle-walker-milan-loan/
-
-**Pence Wages Lonely Crusade Against Kennedy as Abortion Opponents Avoid Fight**\
-`Robert F. Kennedy Jr., who has taken different positions on the issue, has pledged to promote President Trump’s anti-abortion agenda in a bid to get confirmed as health secretary.`\
-https://nytimes.com/2025/01/24/us/politics/pence-kennedy-abortion.html
-
-**Texans fire OC Bobby Slowik after 2 seasons: Sources**\
-`Slowik spent two seasons as Houston's offensive coordinator, both with C.J. Stroud at quarterback.`\
-https://nytimes.com/athletic/6086661/2025/01/24/bobby-slowik-fired-texans-oc-coach/
 
