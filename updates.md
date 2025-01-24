@@ -1,3 +1,7 @@
+**Andy Murray says no decision has been made on his partnership with Novak Djokovic**\
+`MELBOURNE, Australia — Andy Murray has said that he and Novak Djokovic will hold talks about whether to extend their partnership beyond the Australian Open.`\
+https://nytimes.com/athletic/6085496/2025/01/24/andy-murray-novak-djokovic-partnership/
+
 **Tottenham's youngsters are performing superbly - but at what cost?**\
 `Too much is being asked of Spurs' decimated squad - these players have earned the right to some reinforcements before the window shuts`\
 https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
