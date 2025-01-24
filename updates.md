@@ -1,3 +1,7 @@
+**Cherry Pies, Severed Ears and the Making of a David Lynch Memorial**\
+`Fans of the late American filmmaker built a distinctly Lynchian shrine outside the Burbank restaurant Bob’s Big Boy.`\
+https://nytimes.com/2025/01/24/dining/david-lynch-bobs-big-boy.html
+
 **A Guide to the Austrian Alps, Where Skiing Is a Way of Life**\
 `Insiders share their favorite après-ski spots, springtime hikes and typically Tyrolean souvenirs.`\
 https://nytimes.com/2025/01/24/t-magazine/austrian-alps-ski-hotel-guide.html
