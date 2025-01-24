@@ -1,3 +1,15 @@
+**Man Utd make €30m offer for Lecce's Dorgu**\
+`Manchester United have tabled a €30million (£25.`\
+https://nytimes.com/athletic/6081060/2025/01/24/patrick-dorgu-manchester-united-transfer-update/
+
+**Fantasy Trends and Hidden Gems: 14 players worth picking up**\
+`Sure the Canucks face a soft schedule, but there are far better additions given Vancouver's struggles.`\
+https://nytimes.com/athletic/6085297/2025/01/24/fantasy-trends-and-hidden-gems-canucks-schedule-is-juicy-but-these-are-better-options/
+
+**Billie Eilish, Chappell Roan and Shakira Will Perform at the Grammys**\
+`The Recording Academy, moving forward with the show as planned on Feb. 2 in Los Angeles, has also booked Sabrina Carpenter, Charli XCX and other stars.`\
+https://nytimes.com/2025/01/24/arts/music/grammy-performers-billie-eilish-chappell-roan.html
+
 **LeBron James, Anthony Davis ramp up pressure on Lakers' front office: 'We need another big'**\
 `Davis publicly called for roster help shortly before tipoff of Thursday's 117-96 win over defending champion Boston.`\
 https://nytimes.com/athletic/6085196/2025/01/24/lebron-james-anthony-davis-lakers-pressure-front-office/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6083173/2025/01/24/tim-steidten-west-ham-future/
 **Man United give Antony permission to finalise Betis loan move**\
 `Manchester United have given Antony permission to travel to Seville to complete a loan move to Real Betis.`\
 https://nytimes.com/athletic/6072863/2025/01/24/antony-manchester-united-transfer-loan/
-
-**NBA trends I'm watching: Darius Garland's bad luck, the Thunder's jolt of Joe and more**\
-`Jake LaRavia is proving that hang time can be overrated, while a Phoenix rookie has turned into a long snapper.`\
-https://nytimes.com/athletic/6085307/2025/01/24/darius-garland-isaiah-joe-cavaliers-thunder-nba-trends/
-
-**Julio Enciso to Ipswich Town: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we take a look at Julio Enciso's loan move from Brighton to Ipswich for the rest of the season`\
-https://nytimes.com/athletic/6085723/2025/01/24/julio-enciso-to-ipswich-town-the-athletic-500-transfer-ratings/
-
-**Israel Appears Poised to Keep Its Troops in Lebanon Beyond Deadline**\
-`Israel and Hezbollah agreed to withdraw from southern Lebanon, but Israel says that Hezbollah hasn’t upheld its promise and that the Lebanese Army isn’t ready to fill the void.`\
-https://nytimes.com/2025/01/24/world/middleeast/israel-lebanon-hezbollah-withdrawal-deadline.html
 
