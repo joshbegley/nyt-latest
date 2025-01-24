@@ -1,3 +1,11 @@
+**Everton's McNeil 'probably needs surgery' on knee injury - Moyes**\
+`Everton manager David Moyes says Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury.`\
+https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
+
+**Wolves forward Cunha not for sale in January, says Pereira**\
+`Wolverhampton Wanderers head coach Vitor Pereira says Matheus Cunha is not for sale this month — and confirmed he wants two more signings before the transfer deadline.`\
+https://nytimes.com/athletic/6086092/2025/01/24/matheus-cunha-wolves-future-update/
+
 **Kasey Kahne returning for Xfinity Series race at Rockingham Speedway**\
 `Kahne will drive Richard Childress Racing’s No. 33 Chevrolet on April 19, when he will make his first NASCAR series start since Sept. 2018.`\
 https://nytimes.com/athletic/6086161/2025/01/24/kasey-kahne-xfinity-series-rockingham-speedway/
