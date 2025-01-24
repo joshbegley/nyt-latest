@@ -1,3 +1,11 @@
+**Trump’s Interior Department Says Gulf of Mexico Is Now ‘Gulf of America’**\
+`Trump also renamed Denali, North America’s tallest peak, as Mount McKinley, despite objections from Alaska’s senators.`\
+https://nytimes.com/2025/01/24/us/politics/trump-administration-gulf-of-america-change.html
+
+**Thomas Gaither, Who Chose Jail After Civil Rights Sit-ins, Dies at 86**\
+`When he and other Black protesters were arrested at a whites-only lunch counter in 1961, they tried a new strategy — ‘Jail No Bail’ — and energized a movement.`\
+https://nytimes.com/2025/01/24/us/thomas-gaither-dead.html
+
 **Scheffler, McIlroy and Spieth making PGA Tour season debuts at Pebble**\
 `Scheffler was forced to delay his 2025 season after cutting his hand.`\
 https://nytimes.com/athletic/6087065/2025/01/24/scheffler-mcilroy-spieth-pga-tour-pebble-beach/

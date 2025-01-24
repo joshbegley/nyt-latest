@@ -1,3 +1,11 @@
+**Trump’s Interior Department Says Gulf of Mexico Is Now ‘Gulf of America’**\
+`Trump also renamed Denali, North America’s tallest peak, as Mount McKinley, despite objections from Alaska’s senators.`\
+https://nytimes.com/2025/01/24/us/politics/trump-administration-gulf-of-america-change.html
+
+**Thomas Gaither, Who Chose Jail After Civil Rights Sit-ins, Dies at 86**\
+`When he and other Black protesters were arrested at a whites-only lunch counter in 1961, they tried a new strategy — ‘Jail No Bail’ — and energized a movement.`\
+https://nytimes.com/2025/01/24/us/thomas-gaither-dead.html
+
 **Scheffler, McIlroy and Spieth making PGA Tour season debuts at Pebble**\
 `Scheffler was forced to delay his 2025 season after cutting his hand.`\
 https://nytimes.com/athletic/6087065/2025/01/24/scheffler-mcilroy-spieth-pga-tour-pebble-beach/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/nyregion/brooklyn-corpse-flower-bloom.html
 **Trump Administration Tells Embassies That ‘Activist’ Flags Won’t Fly**\
 `The State Department has ordered that diplomatic outposts fly only U.S. flags.`\
 https://nytimes.com/2025/01/24/us/embassy-us-flag-blm-gay-pride.html
-
-**Sanchez has a lot of improving to do, says Maresca**\
-`Enzo Maresca admits Chelsea’s first-choice goalkeeper Robert Sanchez still has a lot of improving to do and believes he needs to cope better with criticism from the club&#8217;s fans.`\
-https://nytimes.com/athletic/6085896/2025/01/24/enzo-maresca-robert-sanchez-chelsea/
-
-**While Visiting Flood Survivors, Trump Suggested Eliminating FEMA**\
-`Also, egg prices are high. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/01/24/briefing/trump-visits-disaster-areas-high-egg-prices.html
 
