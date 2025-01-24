@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6085736/2025/01/24/row-z-man-city-robbie-williams/
 https://nytimes.com/2025/01/24/well/dry-january-maintenance.html
 
 **Everton's  McNeil 'probably needs surgery' on knee injury - Moyes**\
-`Everton&#8217;s Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury, manager David Moyes has said.`\
+`Everton manager David Moyes says Dwight McNeil &#8220;probably needs surgery&#8221; on his knee injury.`\
 https://nytimes.com/athletic/6086138/2025/01/24/dwight-mcneil-everton-injury-update/
 
 **As Trump Visits North Carolina, Battered Communities Hope for More Aid**\
