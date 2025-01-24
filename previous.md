@@ -1,3 +1,15 @@
+**Friday Briefing**\
+`Trump criticizes Europe.`\
+https://nytimes.com/2025/01/24/briefing/europe-trump-gaza.html
+
+**Novak Djokovic retires from Australian Open semifinal against Alexander Zverev**\
+`MELBOURNE, Australia — Novak Djokovic has retired from his Australian Open semifinal against Alexander Zverev after losing the first set in a tiebreak.`\
+https://nytimes.com/athletic/6085341/2025/01/24/novak-djokovic-retires-australian-open-semifinal-alexander-zverev/
+
+**Watching Max Dowman live: Arsenal's 'unbelievable' 15-year-old who seems destined for first team**\
+`Mikel Arteta has heaped praise on the young Arsenal midfielder, and The Athletic went along to watch Dowman up close in the FA Youth Cup`\
+https://nytimes.com/athletic/6083022/2025/01/24/max-dowman-arsenal-arteta-first-team/
+
 **What sort of manager uses expected goals? Pretty much all of them**\
 `Using data is not just reserved for ‘nerds who think football is played on spreadsheets’ — it is increasingly used by the managers too`\
 https://nytimes.com/athletic/6080274/2025/01/24/premier-league-managers-expected-goals/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/24/style/kendyl-klein-benjamin-digiulio-wedding.html
 **They Might Have Bumped Into Each Other Years Ago**\
 `Kaley Lockwood and Michael Friedman, who met on Hinge, had once lived a few blocks from each other and had the same commute to work.`\
 https://nytimes.com/2025/01/24/style/kaley-lockwood-michael-friedman-wedding.html
-
-**‘I Didn’t Just Want to Hear Her Story — I Wanted to Be in It’**\
-`When Rema Matevosyan and Bessie Schwarz were set up for work, they discovered they had more in common than A.I., including an address.`\
-https://nytimes.com/2025/01/24/style/rema-matevosyan-bessie-schwarz-wedding.html
-
-**The Kind of Pain I Wanted**\
-`To get out of my head and be more in the moment, I turned to bondage.`\
-https://nytimes.com/2025/01/24/style/modern-love-the-kind-of-pain-i-wanted.html
-
-**A Proposal — and a Wedding Date — That Were Suddenly Moved Up**\
-`The current political climate caused Josey Nett and Grace Duncan, who met as sophomores in college, to change their long-term plans.`\
-https://nytimes.com/2025/01/24/style/josey-nett-grace-duncan-wedding.html
 

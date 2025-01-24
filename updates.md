@@ -1,3 +1,15 @@
+**Friday Briefing**\
+`Trump criticizes Europe.`\
+https://nytimes.com/2025/01/24/briefing/europe-trump-gaza.html
+
+**Novak Djokovic retires from Australian Open semifinal against Alexander Zverev**\
+`MELBOURNE, Australia — Novak Djokovic has retired from his Australian Open semifinal against Alexander Zverev after losing the first set in a tiebreak.`\
+https://nytimes.com/athletic/6085341/2025/01/24/novak-djokovic-retires-australian-open-semifinal-alexander-zverev/
+
+**Watching Max Dowman live: Arsenal's 'unbelievable' 15-year-old who seems destined for first team**\
+`Mikel Arteta has heaped praise on the young Arsenal midfielder, and The Athletic went along to watch Dowman up close in the FA Youth Cup`\
+https://nytimes.com/athletic/6083022/2025/01/24/max-dowman-arsenal-arteta-first-team/
+
 **What sort of manager uses expected goals? Pretty much all of them**\
 `Using data is not just reserved for ‘nerds who think football is played on spreadsheets’ — it is increasingly used by the managers too`\
 https://nytimes.com/athletic/6080274/2025/01/24/premier-league-managers-expected-goals/
