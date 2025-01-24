@@ -1,3 +1,15 @@
+**Gary Bettman on Connor McDavid's suspension, 4 Nations attendance, salary cap forecasting, more: Q&A**\
+`On McDavid, Bettman said Thursday, "I understand the frustration, and it's something we're going to continue to monitor."`\
+https://nytimes.com/athletic/6086564/2025/01/24/gary-bettman-mcdavid-4-nations-cap/
+
+**Executive order removes X third-gender option for passports.**\
+`By Ceylan Yeğinsu`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news-hegseth/executive-order-removes-x-third-gender-option-for-passports
+
+**Jokić and Wilt: Denver star's epic triple-double puts him in elite company**\
+`Jokić joins Wilt Chamberlain as the only players in NBA history to record at least 35 points, 20 rebounds and 15 assists in a game.`\
+https://nytimes.com/athletic/6086528/2025/01/24/nuggets-nba-nikola-jokic-triple-double-history/
+
 **Review: Malpaso Returns, With Boundless Energy but Little Risk**\
 `The Cuban company’s program at the Joyce Theater includes three U.S. premieres.`\
 https://nytimes.com/2025/01/24/arts/dance/review-malpaso-cuban-contemporary-joyce-theater.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/adam-schiff-interview.html
 **‘Nickel Boys’ | Anatomy of a Scene**\
 `The director RaMell Ross narrates a sequence from his film, which has been nominated for best picture.`\
 https://nytimes.com/video/movies/100000009947211/nickel-boys-scene.html
-
-**Scoop City: Why this Commanders-Eagles NFC Championship rematch is different**\
-`Today, we cover three NFC championship matchups, yesterday&#8217;s Liam Coen chaos in Jacksonville and Mark Andrews breaking his silence.`\
-https://nytimes.com/athletic/6086510/2025/01/24/commanders-eagles-nfc-championship-matchups-nfl-scoop-city/
-
-**Putting His Father’s Final Words Onstage, With a Little Ambivalence**\
-`The Portuguese director Tiago Rodrigues’s latest show, “No Yogurt for the Dead,” is based on his dying father’s scribbles but resists sharing much emotion.`\
-https://nytimes.com/2025/01/24/theater/tiago-rodrigues-no-yogurt-for-the-dead.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 1/24 at 1:00 p.m. ET**\
-`Submit your questions for Eno Sarris' latest live chat about all things MLB and fantasy baseball.`\
-https://nytimes.com/athletic/6083950/2025/01/24/eno-sarris-live-mlb-chat-1-24/
 

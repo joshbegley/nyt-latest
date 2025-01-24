@@ -1,3 +1,15 @@
+**Gary Bettman on Connor McDavid's suspension, 4 Nations attendance, salary cap forecasting, more: Q&A**\
+`On McDavid, Bettman said Thursday, "I understand the frustration, and it's something we're going to continue to monitor."`\
+https://nytimes.com/athletic/6086564/2025/01/24/gary-bettman-mcdavid-4-nations-cap/
+
+**Executive order removes X third-gender option for passports.**\
+`By Ceylan Yeğinsu`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news-hegseth/executive-order-removes-x-third-gender-option-for-passports
+
+**Jokić and Wilt: Denver star's epic triple-double puts him in elite company**\
+`Jokić joins Wilt Chamberlain as the only players in NBA history to record at least 35 points, 20 rebounds and 15 assists in a game.`\
+https://nytimes.com/athletic/6086528/2025/01/24/nuggets-nba-nikola-jokic-triple-double-history/
+
 **Review: Malpaso Returns, With Boundless Energy but Little Risk**\
 `The Cuban company’s program at the Joyce Theater includes three U.S. premieres.`\
 https://nytimes.com/2025/01/24/arts/dance/review-malpaso-cuban-contemporary-joyce-theater.html
