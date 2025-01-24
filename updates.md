@@ -1,3 +1,11 @@
+**West Ham technical director Tim Steidten set to leave club**\
+`West Ham United technical director Tim Steidten is set to leave the club, with the terms of his departure in the process of being finalised.`\
+https://nytimes.com/athletic/6083173/2025/01/24/tim-steidten-west-ham-future/
+
+**Julio Enciso to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we take a look at Julio Enciso's loan move from Brighton to Ipswich for the rest of the season`\
+https://nytimes.com/athletic/6085723/2025/01/24/julio-enciso-to-ipswich-town-the-athletic-500-transfer-ratings/
+
 **Man United give Antony permission to finalise Betis loan move**\
 `Manchester United have given Antony permission to travel to Seville to complete a loan move to Real Betis.`\
 https://nytimes.com/athletic/6072863/2025/01/24/antony-manchester-united-transfer-loan/
