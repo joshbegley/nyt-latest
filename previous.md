@@ -1,3 +1,7 @@
+**Trump’s Pick for Commerce Secretary Has Sprawling Business Network**\
+`Howard Lutnick disclosed details of complex financial interests, including at least $800 million in assets and positions in more than 800 companies.`\
+https://nytimes.com/2025/01/24/us/politics/trump-howard-lutnick-commerce-secretary.html
+
 **Hegseth’s Ex-Wife Is Bound by a Nondisparagement Clause**\
 `Samantha Hegseth is contractually obligated not to speak ill of him, according to the terms of their divorce. A former sister-in-law has said Pete Hegseth was threatening and abusive toward Samantha Hegseth.`\
 https://nytimes.com/2025/01/24/us/politics/hegseths-ex-wife-nondisparagement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/technology/tiktok-ban-trump-amazon-apple-google.h
 **Ryan Pressly weighing options as Astros and Cubs also pursue Alex Bregman: Sources**\
 `Pressly is deliberating on a fresh start versus staying where his family considers home.`\
 https://nytimes.com/athletic/6086590/2025/01/24/ryan-pressly-alex-bregman-cubs-astros-update/
-
-**Gary Bettman on Connor McDavid's suspension, 4 Nations attendance, salary cap forecasting, more: Q&A**\
-`On McDavid, Bettman said Thursday, "I understand the frustration, and it's something we're going to continue to monitor."`\
-https://nytimes.com/athletic/6086564/2025/01/24/gary-bettman-mcdavid-4-nations-cap/
 

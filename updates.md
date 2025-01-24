@@ -1,3 +1,7 @@
+**Trump’s Pick for Commerce Secretary Has Sprawling Business Network**\
+`Howard Lutnick disclosed details of complex financial interests, including at least $800 million in assets and positions in more than 800 companies.`\
+https://nytimes.com/2025/01/24/us/politics/trump-howard-lutnick-commerce-secretary.html
+
 **Hegseth’s Ex-Wife Is Bound by a Nondisparagement Clause**\
 `Samantha Hegseth is contractually obligated not to speak ill of him, according to the terms of their divorce. A former sister-in-law has said Pete Hegseth was threatening and abusive toward Samantha Hegseth.`\
 https://nytimes.com/2025/01/24/us/politics/hegseths-ex-wife-nondisparagement.html
