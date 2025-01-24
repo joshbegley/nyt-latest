@@ -1,3 +1,7 @@
+**Japan Raises Interest Rates to Highest Level Since 2008**\
+`After a long period of stagnation, the return of inflation and wage growth is giving the Bank of Japan room to raise interest rates.`\
+https://nytimes.com/2025/01/23/business/bank-of-japan-interest-rates.html
+
 **Paying Half for Quarters**\
 `Ernest Lim makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/01/23/crosswords/paying-half-for-quarters.html
