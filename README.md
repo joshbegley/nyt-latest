@@ -1,3 +1,7 @@
+**House oversight committee to investigate Republican complaints about banks.**\
+`Venture capital and cryptocurrency companies have claimed that they are subject to politically motivated discrimination, though the banks firmly deny that.`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news-hegseth/house-oversight-committee-to-investigate-republican-complaints-about-banks
+
 **Amid the Pain of Separation and Surveillance, Life Continues**\
 `“Picturing the Border” collects photographs of the United States-Mexico boundary dating back to the 1960s.`\
 https://nytimes.com/2025/01/24/books/review/picturing-the-border-nadiah-rivera-fellah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086774/2025/01/24/islanders-sign-tony-deangelo-one
 **Trump Pauses Disbursements to Program Supplying H.I.V. Treatment Worldwide**\
 `Pepfar, which is estimated to have delivered lifesaving treatment as many as 25 million people in 54 countries, faces a funding delay of as long as 180 days.`\
 https://nytimes.com/2025/01/24/us/politics/trump-hiv-aids-pepfar.html
-
-**Cincinnati set to sign Middlesbrough's Engel on loan**\
-`FC Cincinnati are set to complete the loan signing of Middlesbrough defender Lukas Engel.`\
-https://nytimes.com/athletic/6086791/2025/01/24/lukas-engel-cincinnati-loan/
 
