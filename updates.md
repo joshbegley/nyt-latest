@@ -1,3 +1,7 @@
+**Utah HC strikes out on initial trademark applications for all team names**\
+`The team has work to do before securing a name, whether it's the Yeti, Yetis, Blizzard, Outlaws, Mammoth, Venom or HC.`\
+https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
+
 **Contenders to Lead the Democratic Party Scramble to Show Momentum**\
 `As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
 https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
