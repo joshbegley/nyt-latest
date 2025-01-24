@@ -1,3 +1,7 @@
+**Where the NBA stands on expanding its footprint in Europe**\
+`NBA commissioner Adam Silver said Thursday that the league is still exploring a standalone European league but talks remain "exploratory." `\
+https://nytimes.com/athletic/6084222/2025/01/24/nba-europe-euroleague-expansion-adam-silver/
+
 **Bowden: 7 MLB moves — signings, trades and extensions — I'd like to see right now**\
 `Teams, players and agents are on the clock. With spring training only weeks away, there are several moves that need to be made now.`\
 https://nytimes.com/athletic/6085178/2025/01/24/mlb-trade-signing-extension-scenarios/
