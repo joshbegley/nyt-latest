@@ -1,3 +1,7 @@
+**A Guide to the Austrian Alps, Where Skiing Is a Way of Life**\
+`Insiders share their favorite après-ski spots, springtime hikes and typically Tyrolean souvenirs.`\
+https://nytimes.com/2025/01/24/t-magazine/austrian-alps-ski-hotel-guide.html
+
 **Greece Tightens Laws on Domestic Violence (but Not Enough, Critics Say)**\
 `Amid a surge in reported cases, lawmakers imposed harsher punishments on perpetrators. Victims’ advocacy groups said the legislation was too thin on preventative measures.`\
 https://nytimes.com/2025/01/24/world/europe/greece-domestic-violence-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086368/2025/01/24/ohio-state-running-back-quinshon
 **Putin Dismisses Trump’s Sanctions Threat While Heaping New Praise on Him**\
 `Russia’s president flattered his American counterpart as “smart” and “pragmatic,” and repeated Mr. Trump’s baseless claim that the 2020 election was stolen.`\
 https://nytimes.com/2025/01/24/us/politics/trump-putin-sanctions.html
-
-**Teams looking for free-agent bats find that their options are running low**\
-`With Profar signed, above-average hitters have grown few and far between in free agency, and needy teams are looking for creative solutions.`\
-https://nytimes.com/athletic/6086291/2025/01/24/pete-alonso-alex-bregman-free-agent-hitter-market/
 
