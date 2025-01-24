@@ -1,3 +1,7 @@
+**Commanders (and 76ers) owner Josh Harris knows what awaits him in Philadelphia**\
+`The subplot involving Harris, Philadelphia and the 76ers is so twisted. But it shouldn't overshadow the main focus for Washington on Sunday.`\
+https://nytimes.com/athletic/6079316/2025/01/24/washington-commanders-josh-harris-philadelphia-eagles-76ers/
+
 **Chevron to Increase Output at Huge Oil Field in Kazakhstan**\
 `The energy giant is spending nearly $50 billion to expand the Tengiz oil field, allowing it to pump one million barrels a day.`\
 https://nytimes.com/2025/01/24/business/chevron-kazakhstan-oil-field.html
