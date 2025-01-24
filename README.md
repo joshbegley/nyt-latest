@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/24/world/asia/japan-me-too-sex-scandal.html
 https://nytimes.com/athletic/6086092/2025/01/24/matheus-cunha-wolves-future-update/
 
 **Meta to Increase Spending to $65 Billion This Year in A.I. Push**\
-`Much of the investment will go into increasing the company’s footprint in data centers, which provide the computing power that A.I. products and algorithms require.`\
+`Much of the capital investment, a big jump from 2024, will fund expansion of Meta’s data centers, which provide the computing power needed by A.I. products and algorithms.`\
 https://nytimes.com/2025/01/24/technology/meta-data-center.html
 
 **Man Utd make €30m offer for Lecce's Dorgu**\
