@@ -1,3 +1,11 @@
+**Immigration Arrests Prompt Fear that Mass Deportations Loom**\
+`The arrest of three people at a seafood distribution warehouse in Newark has led to a heightened sense of alarm in the region.`\
+https://nytimes.com/2025/01/24/nyregion/newark-immigration-raid-deportation-fear.html
+
+**What Trump Knows Now**\
+`The new president’s advisers have become masters of the government bureaucracy they have promised to upend.`\
+https://nytimes.com/2025/01/24/us/politics/trump-second-term-differences-lessons.html
+
 **Education Dept. Ends Book Ban Investigations**\
 `The department said it would relinquish its role investigating schools that had received civil rights complaints after removing books dealing with sexual and racial identity.`\
 https://nytimes.com/2025/01/24/us/politics/education-dept-ends-book-ban-investigations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
 **Derek Humphry, Pivotal Figure in Right-to-Die Movement, Dies at 94**\
 `His own experience assisting his terminally ill wife in ending her life set him on a path to founding the Hemlock Society and writing a best-selling guide.`\
 https://nytimes.com/2025/01/24/health/derek-humphry-dead.html
-
-**Trump officials seek to deputize local and state officers in immigration enforcement.**\
-`It was not immediately clear the scope of a move to request assistance, though it is sure to raise legal challenges.`\
-https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-officials-seek-to-deputize-local-and-state-officers-in-immigration-enforcement
-
-**Utah HC strikes out on initial trademark applications for all team names**\
-`The team has work to do before securing a name, whether it's the Yeti, Yetis, Blizzard, Outlaws, Mammoth, Venom or HC.`\
-https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
 

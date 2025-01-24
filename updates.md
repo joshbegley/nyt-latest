@@ -1,3 +1,11 @@
+**Immigration Arrests Prompt Fear that Mass Deportations Loom**\
+`The arrest of three people at a seafood distribution warehouse in Newark has led to a heightened sense of alarm in the region.`\
+https://nytimes.com/2025/01/24/nyregion/newark-immigration-raid-deportation-fear.html
+
+**What Trump Knows Now**\
+`The new president’s advisers have become masters of the government bureaucracy they have promised to upend.`\
+https://nytimes.com/2025/01/24/us/politics/trump-second-term-differences-lessons.html
+
 **Education Dept. Ends Book Ban Investigations**\
 `The department said it would relinquish its role investigating schools that had received civil rights complaints after removing books dealing with sexual and racial identity.`\
 https://nytimes.com/2025/01/24/us/politics/education-dept-ends-book-ban-investigations.html
