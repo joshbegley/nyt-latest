@@ -1,3 +1,27 @@
+**Contenders to Lead the Democratic Party Scramble to Show Momentum**\
+`As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
+https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
+
+**Derek Humphry, Pivotal Figure in Right-to-Die Movement, Dies at 94**\
+`His own experience assisting his terminally ill wife in ending her life set him on a path to founding the Hemlock Society and writing a best-selling guide.`\
+https://nytimes.com/2025/01/24/health/derek-humphry-dead.html
+
+**Trump officials seek to deputize local and state officers in immigration enforcement.**\
+`It was not immediately clear the scope of a move to request assistance, though it is sure to raise legal challenges.`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-officials-seek-to-deputize-local-and-state-officers-in-immigration-enforcement
+
+**Utah HC strikes out on initial trademark applications for all team name finalists, including Yeti**\
+`The team has work to do before securing a name, whether it's the Yeti, Yetis, Blizzard, Outlaws, Mammoth, Venom or HC.`\
+https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
+
+**Appeals Court Upholds Injunction on Iowa’s State-Level Immigration Enforcement Law**\
+`A lower court had blocked the Republican-backed law that made it a state crime to enter Iowa after being deported or denied entry to the United States.`\
+https://nytimes.com/2025/01/24/us/iowa-immigration-case.html
+
+**This Rare Plant Smells Horrible, but People Can’t Wait to Get a Whiff**\
+`At the Brooklyn Botanic Garden, a so-called corpse flower bloomed for the first time on Friday. The smell was not unlike rotting flesh.`\
+https://nytimes.com/2025/01/24/nyregion/brooklyn-corpse-flower-bloom.html
+
 **Trump’s New U.S. Attorney in D.C. Comes to Aid of Oath Keepers Leader**\
 `Ed Martin, a longtime advocate for Jan. 6 defendants recently named to run the prosecutors’ office, sought to undo a judge’s order barring Stewart Rhodes from visiting Washington.`\
 https://nytimes.com/2025/01/24/us/politics/steward-rhodes-oath-keepers-legal.html

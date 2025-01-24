@@ -1,3 +1,27 @@
+**Contenders to Lead the Democratic Party Scramble to Show Momentum**\
+`As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
+https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
+
+**Derek Humphry, Pivotal Figure in Right-to-Die Movement, Dies at 94**\
+`His own experience assisting his terminally ill wife in ending her life set him on a path to founding the Hemlock Society and writing a best-selling guide.`\
+https://nytimes.com/2025/01/24/health/derek-humphry-dead.html
+
+**Trump officials seek to deputize local and state officers in immigration enforcement.**\
+`It was not immediately clear the scope of a move to request assistance, though it is sure to raise legal challenges.`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-officials-seek-to-deputize-local-and-state-officers-in-immigration-enforcement
+
+**Utah HC strikes out on initial trademark applications for all team name finalists, including Yeti**\
+`The team has work to do before securing a name, whether it's the Yeti, Yetis, Blizzard, Outlaws, Mammoth, Venom or HC.`\
+https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
+
+**Appeals Court Upholds Injunction on Iowa’s State-Level Immigration Enforcement Law**\
+`A lower court had blocked the Republican-backed law that made it a state crime to enter Iowa after being deported or denied entry to the United States.`\
+https://nytimes.com/2025/01/24/us/iowa-immigration-case.html
+
+**This Rare Plant Smells Horrible, but People Can’t Wait to Get a Whiff**\
+`At the Brooklyn Botanic Garden, a so-called corpse flower bloomed for the first time on Friday. The smell was not unlike rotting flesh.`\
+https://nytimes.com/2025/01/24/nyregion/brooklyn-corpse-flower-bloom.html
+
 **Trump Administration Tells Embassies That ‘Activist’ Flags Won’t Fly**\
 `The State Department has ordered that diplomatic outposts fly only U.S. flags.`\
 https://nytimes.com/2025/01/24/us/embassy-us-flag-blm-gay-pride.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/24/briefing/trump-visits-disaster-areas-high-egg-pri
 **Honduras Says Trump’s Deportation Plan Could Push It Closer to China**\
 `Many Latin American countries are trying to distance themselves from Beijing. But in response to President Trump’s sweeping deportation plans, Honduras is doing the opposite.`\
 https://nytimes.com/2025/01/24/us/honduras-china-trump-deportation.html
-
-**McMann — not Domi — to the top line: 4 thoughts on the injury-plagued Leafs**\
-`Matthew Knies joins a long list of injured Leafs that has had a trickle-down effect on the rest of the lineup.`\
-https://nytimes.com/athletic/6086964/2025/01/24/maple-leafs-matthew-knies-injury-mcmann-domi/
-
-**Arrest Made in Connection With Shooting Death of Border Patrol Agent**\
-`The shooting on Monday in Vermont near the Canadian border followed the surveillance of an armed couple who dressed in black tactical-style clothing.`\
-https://nytimes.com/2025/01/24/us/border-patrol-agent-shooting-arrest.html
-
-**Who will Raiders coach Pete Carroll hire to his staff? Potential candidates for OC, DC**\
-`A number of potential candidates for the coordinator roles with the Raiders have ties to Carroll from his 14 years with the Seahawks.`\
-https://nytimes.com/athletic/6086799/2025/01/24/raiders-pete-carroll-coordinator-staff-hires/
-
-**Commanders' Daniels brushes aside fan chatter in lead-up to NFC title game**\
-`A week after knocking off the heavily favored Lions, Daniels is again ready to "let my play do my talking” in Sunday's NFC championship.`\
-https://nytimes.com/athletic/6086890/2025/01/24/jayden-daniels-commanders-nfc-championship-trash-talk/
-
-**Jurickson Profar excited to continue Curaçao-Braves ties, prove 2024 was no outlier**\
-`After pretending he was Andruw Jones or Chipper Jones in backyard games as a kid, Profar will be the Braves' everyday left fielder.`\
-https://nytimes.com/athletic/6086933/2025/01/24/jurickson-profar-curacao-braves-ties/
-
-**Trump’s New U.S. Attorney in D.C. Comes to Aid of Oath Keepers Leader**\
-`Ed Martin, a longtime advocate for Jan. 6 defendants recently named to run the prosecutors’ office, sought to undo a judge’s order barring Stewart Rhodes from visiting Washington.`\
-https://nytimes.com/2025/01/24/us/politics/steward-rhodes-oath-keepers-legal.html
 
