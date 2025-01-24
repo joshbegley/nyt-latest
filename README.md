@@ -1,3 +1,7 @@
+**Tech’s TikTok Dilemma: Follow the Law or President Trump?**\
+`The federal law banning TikTok has revealed a major schism among American tech companies: Some are willing to flout the law — and some, including Apple and Google, are not.`\
+https://nytimes.com/2025/01/24/technology/tiktok-ban-trump-amazon-apple-google.html
+
 **Ryan Pressly weighing options as Astros and Cubs also pursue Alex Bregman: Sources**\
 `Pressly is deliberating on a fresh start versus staying where his family considers home.`\
 https://nytimes.com/athletic/6086590/2025/01/24/ryan-pressly-alex-bregman-cubs-astros-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/style/junya-watanabe-mens-wear-paris.html
 **Get a Hug From Aunjanue Ellis-Taylor in ‘Nickel Boys’**\
 `The director RaMell Ross narrates a sequence from his film, which is shot from the point of view of its characters. The movie is nominated for best picture.`\
 https://nytimes.com/2025/01/24/movies/nickel-boys-clip.html
-
-**Adam Schiff, Trump’s Favorite Foil, Tries to Insulate California From His Wrath**\
-`As a congressman who led the first impeachment of President Trump, Mr. Schiff relished his role in the resistance. Now a senator, he must protect his state’s interests at a perilous time.`\
-https://nytimes.com/2025/01/24/us/politics/adam-schiff-interview.html
 
