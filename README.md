@@ -1,3 +1,7 @@
+**Meet Arsenal target Sverre Nypan, the Rosenborg teenager with 4,000 minutes under his belt**\
+`The midfielder made his debut aged 15 and is the latest exciting prospect to come out of Norway, in the footsteps of Odegaard and Haaland`\
+https://nytimes.com/athletic/6037173/2025/01/24/sverre-nypan-arsenal-transfer-target-rosenborg-future/
+
 **Trump’s Pick for Commerce Secretary Has Sprawling Business Network**\
 `Howard Lutnick disclosed details of complex financial interests, including at least $800 million in assets and positions in more than 800 companies.`\
 https://nytimes.com/2025/01/24/us/politics/trump-howard-lutnick-commerce-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077514/2025/01/24/sverre-nypan-arsenal-transfer-wh
 **Tech’s TikTok Dilemma: Follow the Law or President Trump?**\
 `The federal law banning TikTok has revealed a major schism among American tech companies: Some are willing to flout the law — and some, including Apple and Google, are not.`\
 https://nytimes.com/2025/01/24/technology/tiktok-ban-trump-amazon-apple-google.html
-
-**Ryan Pressly weighing options as Astros and Cubs also pursue Alex Bregman: Sources**\
-`Pressly is deliberating on a fresh start versus staying where his family considers home.`\
-https://nytimes.com/athletic/6086590/2025/01/24/ryan-pressly-alex-bregman-cubs-astros-update/
 
