@@ -1,3 +1,11 @@
+**NHL Power Rankings: Can the Capitals hang on to the top spot?**\
+`The Capitals underlying numbers haven't been good but they keep winning, while the Sharks do not.`\
+https://nytimes.com/athletic/6085452/2025/01/24/nhl-power-rankings-capitals-2/
+
+**I.R.S. Expands Its Free Tax Filing Option**\
+`The Direct File system will be open to millions of taxpayers in 25 states, up from 12 last year. But it’s unclear what will happen to the program next year.`\
+https://nytimes.com/2025/01/24/your-money/irs-tax-filing-free-online.html
+
 **West Ham technical director Tim Steidten set to leave club**\
 `West Ham United technical director Tim Steidten is set to leave the club, with the terms of his departure in the process of being finalised.`\
 https://nytimes.com/athletic/6083173/2025/01/24/tim-steidten-west-ham-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6085938/2025/01/24/manchester-city-signings-debut-c
 **‘Debanking,’ and the Trump Diss Heard Around Davos**\
 `President Trump’s accusation that Bank of America’ dropped conservatives as clients serves as a reminder C.E.O.s may face unexpected attacks by the White House.`\
 https://nytimes.com/2025/01/24/business/dealbook/debanking-davos-trump-bofa-moynihan.html
-
-**Italy Arrested a Libyan Wanted for Crimes Against Humanity. Then It Sent Him Home.**\
-`The government attributed the release to procedural reasons. But critics say it is because Italy depends on Libya to stem the flow of migrants from Africa.`\
-https://nytimes.com/2025/01/24/world/europe/italy-libya-migrants-international-criminal-court.html
-
-**Jonathan Allen is risking his health for this Commanders’ run: ‘If I tear it, I tear it’**\
-`For Allen, who grew up in Ashburn, Va., as a Washington fan, "winning here means twice as much as winning somewhere else."`\
-https://nytimes.com/athletic/6083924/2025/01/24/jonathan-allen-commanders-nfc-championship-torn-pec/
 
