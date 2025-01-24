@@ -1,3 +1,7 @@
+**Walker joins Milan on loan from Manchester City**\
+`Milan have completed the loan signing of Kyle Walker from Manchester City.`\
+https://nytimes.com/athletic/6086756/2025/01/24/kyle-walker-milan-loan/
+
 **Pence Wages Lonely Crusade Against Kennedy as Abortion Opponents Avoid Fight**\
 `Robert F. Kennedy Jr., who has taken different positions on the issue, has pledged to promote President Trump’s anti-abortion agenda in a bid to get confirmed as health secretary.`\
 https://nytimes.com/2025/01/24/us/politics/pence-kennedy-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/hegseths-ex-wife-nondisparagement.htm
 **Marchand: NBC's Mike Florio is wrong in his Fox criticism about Tom Brady**\
 `A noted NFL media personality overstepped saying NBC would never have a deal like Fox's with Tom Brady, says The Athletic's Andrew Marchand`\
 https://nytimes.com/athletic/6086525/2025/01/24/tom-brady-fox-nbc-mike-florio-pft/
-
-**Not for Kids Only: 9 Children’s Songs Worth a Listen**\
-`Hear tracks from Kermit the Frog, Caspar Babypants, Carole King and more.`\
-https://nytimes.com/2025/01/24/arts/music/amplifier-newsletter-kids-songs.html
 
