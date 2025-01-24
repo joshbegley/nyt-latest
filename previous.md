@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/23/business/bank-of-japan-interest-rates.html
 
 **Paying Half for Quarters**\
 `Ernest Lim makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/01/23/crosswords/paying-half-for-quarters.html
+https://nytimes.com/2025/01/23/crosswords/daily-puzzle-2025-01-24.html
 
 **Instagram and Facebook Blocked and Hid Abortion Pill Providers’ Posts**\
 `Some posts related to obtaining abortion pills were recently hidden on Instagram and Facebook and some accounts were suspended, before being later restored.`\
