@@ -1,40 +1,40 @@
-**Jones out of Ipswich game, Slot 'not expecting months' out**\
-`Curtis Jones has been ruled out of Liverpool&#8217;s Premier League match against Ipswich Town due to injury.`\
-https://nytimes.com/athletic/6085581/2025/01/24/curtis-jones-injury-liverpool/
+**Trump Hints at New Talks With Kim Jong-un. It Might Be Harder This Time.**\
+`North Korea’s leader has grown more assertive since their last efforts at diplomacy ended in failure — and now has Russia at his side.`\
+https://nytimes.com/2025/01/24/world/asia/trump-north-korea-nuclear-talks.html
 
-**Arsenal's Lewis-Skelly, Saliba to be assessed ahead of Wolves - Mikel Arteta**\
-`Arsenal defender Myles Lewis-Skelly&#8217;s knee injury is &#8220;nothing serious&#8221; and a late call will be made for his availability against Wolverhampton Wanderers this weekend alongside William Saliba, Mikel Arteta has said.`\
-https://nytimes.com/athletic/6083031/2025/01/24/myles-lewis-skelly-injury-update/
+**From Fires to Mudslides, Catastrophe Has Defined Newsom’s Tenure**\
+`Gov. Gavin Newsom faces what may be his greatest political test and leadership challenge. He planned to greet President Trump upon his arrival in Southern California on Friday.`\
+https://nytimes.com/2025/01/24/us/politics/gavin-newsom-california-fires-disasters.html
 
-**NBA trade deadline: What every team should do before the buzzer sounds**\
-`Buy, sell or stand pat: What's the best course of action for the Lakers, Warriors, Bulls and others?`\
-https://nytimes.com/athletic/6083567/2025/01/24/nba-trade-deadline-2025-team-buyers-sellers/
+**Trump Says States Should Manage Disasters. Former FEMA Leaders Agree.**\
+`“I’d rather see the states take care of their own problems,” the president said. Federal emergency managers from both parties have made the same argument.`\
+https://nytimes.com/2025/01/24/climate/trump-says-states-should-manage-disasters-former-fema-leaders-agree.html
 
-**Andy Murray says no decision has been made on his partnership with Novak Djokovic**\
-`MELBOURNE, Australia — Andy Murray has said that he and Novak Djokovic will hold talks about whether to extend their partnership beyond the Australian Open.`\
-https://nytimes.com/athletic/6085496/2025/01/24/andy-murray-novak-djokovic-partnership/
+**Trump Said, ‘We Have More Coal Than Anybody.’ See Where We Burn It.**\
+`There are 206 coal-burning power plants left in the United States, which supply about 16 percent of the country’s energy. Experts say burning more doesn’t make financial sense.`\
+https://nytimes.com/2025/01/24/climate/coal-plants-united-states.html
 
-**‘I’ve Been Pushed, and I’m Going to Get Hit by the Train’**\
-`Joseph Lynskey was waiting for the subway in Manhattan last month when a random act of violence transformed his life.`\
-https://nytimes.com/2025/01/24/nyregion/new-york-subway-shove-survivor.html
+**4 Things Therapists Want You to Know Before You Start Therapy**\
+`Here’s how to make the most of your visits.`\
+https://nytimes.com/2025/01/24/well/start-therapy-tips.html
 
-**January**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/01/24/learning/january.html
+**The New York Times News Quiz, Jan. 24, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/01/24/briefing/trump-inauguration-snow-oscars-news-quiz.html
 
-**Faulty Wiring Caused Fires at 3 Buildings Owned by Notorious Landlord**\
-`The fire at a Bronx apartment building on Jan. 10 was the third to break out in recent years at a property owned by Ved Parkash, who has been sued by tenants over building conditions.`\
-https://nytimes.com/2025/01/24/nyregion/bronx-fire-landlord.html
+**Trump’s Inflation Fix Centers on Energy Emergency That Doesn’t Exist**\
+`Economists and analysts aren’t convinced that an expansion of oil and gas production will lower consumer prices.`\
+https://nytimes.com/2025/01/24/business/trump-energy-emergency-inflation.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/24/crosswords/spelling-bee-forum.html
+**Bad Bunny’s Unforgettable Dance**\
+`Plus four more new songs for your weekend.`\
+https://nytimes.com/2025/01/24/podcasts/bad-bunnys-unforgettable-dance.html
 
-**'Stay the course': Celtics confident they will overcome recent struggles**\
-`The Celtics weren't at their best Thursday, falling to the Lakers 117-96 on the second leg of a back-to-back.`\
-https://nytimes.com/athletic/6085475/2025/01/24/celtics-recent-struggles-loss-to-lakers/
+**Sensing Political Support, Abortion Opponents Raise Ambitions**\
+`The March for Life on Friday will bring together a movement invigorated by some early moves of the second Trump administration.`\
+https://nytimes.com/2025/01/24/us/sensing-political-support-abortion-opponents-raise-ambitions.html
 
-**How Wrexham captain James McClean went from car crash to starring against Birmingham in just 36 hours**\
-`Wrexham's unflappable captain was - as usual - the driving force in an entertaining game at the top of League One`\
-https://nytimes.com/athletic/6084541/2025/01/24/wrexham-birmingham-james-mcclean/
+**Trump Is Trying to Force America to Use More Fossil Fuels**\
+`His executive orders ultimately seek to make the market for oil and gas as big as possible.`\
+https://nytimes.com/2025/01/24/opinion/trump-energy-oil-gas-prices.html
 
