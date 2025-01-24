@@ -1,40 +1,40 @@
-**'He's unstoppable': In Jalen Carter, Eagles have a bold new leader on a young defensive line**\
-`Jalen Carter stepped up on the field and in the locker room when the Eagles' defense was struggling.`\
-https://nytimes.com/athletic/6083212/2025/01/24/eagles-jalen-carter-defense/
+**'In the suffering comes passion': Blues' Robert Thomas opens up on his offensive slump**\
+`The St. Louis center has one goal and two assists in his last six games.`\
+https://nytimes.com/athletic/6085239/2025/01/24/blues-robert-thomas-offensive-slump/
 
-**NFL insider playoff predictions: Coaches, execs pick conference championship winners**\
-`Bills-Chiefs, the NFL's most exciting rivalry, has our panel split on who will win the AFC title game and advance to the Super Bowl. `\
-https://nytimes.com/athletic/6083812/2025/01/24/nfl-insider-playoff-predictions-conference-championship-bills-chiefs-eagles-commanders/
+**Frank Nazar gets more comfortable with Blackhawks, feeling NHL game slow down**\
+`Through 18 games with the Blackhawks, Frank Nazar is following a familiar development pattern.`\
+https://nytimes.com/athletic/6084262/2025/01/24/blackhawks-frank-nazar-nhl-speed-adjustment/
 
-**West Coast college football survey: What do former Pac-12 fans think now?**\
-`The Pac-12 implosion sent 10 teams to a new conferences. New rivals. New towns. New time zones. And a different style of play. `\
-https://nytimes.com/athletic/6075857/2025/01/24/west-coast-college-football-fan-survey-pac-12/
+**Travis Kelce hits a different level come playoff time: 'He has the heart of a champion'**\
+`After being a decoy for most of the Chiefs' season, Kelce is back in the spotlight because of another impressive postseason performance.`\
+https://nytimes.com/athletic/6084605/2025/01/24/chiefs-travis-kelce-afc-championship-game/
 
-**Nagelsmann extends contract with Germany men's team until Euro 2028**\
-`Germany men’s head coach Julian Nagelsmann has extended his contract through to the 2028 European Championship.`\
-https://nytimes.com/athletic/6085622/2025/01/24/julian-nagelsmann-germany-contract-extension/
+**Weston McKennie has what he wants this January - no transfer talk.**\
+`Whether he's being played in midfield or at left back, McKennie seems more settled than ever at Juventus`\
+https://nytimes.com/athletic/6084217/2025/01/24/weston-mckennie-interview-juventus-usmnt/
 
-**Rudi Garcia appointed Belgium head coach**\
-`Rudi Garcia has been appointed Belgium head coach.`\
-https://nytimes.com/athletic/6085605/2025/01/24/rudi-garcia-belgium-manager/
+**NHL rumblings: Goalie market twists and turns, and what's next on Jonathan Toews?**\
+`The Capitals are ramping up efforts to extend Logan Thompson while the goaltending situation in Carolina has gotten less dire.`\
+https://nytimes.com/athletic/6084949/2025/01/24/logan-thompson-jonathan-toews-nhl-rumblings/
 
-**Commanders (and 76ers) owner Josh Harris knows what awaits him in Philadelphia**\
-`The subplot involving Harris, Philadelphia and the 76ers is so twisted. But it shouldn't overshadow the main focus for Washington on Sunday.`\
-https://nytimes.com/athletic/6079316/2025/01/24/washington-commanders-josh-harris-philadelphia-eagles-76ers/
+**Would the Bruins trade Brad Marchand? ‘All bets are off’**\
+`The Bruins must determine if a trade is worth the fallout of trading one of the club’s best players of all time.`\
+https://nytimes.com/athletic/6084291/2025/01/24/bruins-brad-marchand-trade-deadline/
 
-**Chevron to Increase Output at Huge Oil Field in Kazakhstan**\
-`The energy giant is spending nearly $50 billion to expand the Tengiz oil field, allowing it to pump one million barrels a day.`\
-https://nytimes.com/2025/01/24/business/chevron-kazakhstan-oil-field.html
+**NFL playoffs: Key Bills-Chiefs matchups to watch in AFC Championship Game**\
+`Kansas City's offense holds an advantage over Buffalo's defense, but Josh Allen will be tough for the Chiefs to contain.`\
+https://nytimes.com/athletic/6082809/2025/01/24/nfl-playoffs-afc-championship-game-bills-chiefs/
 
-**How Trae Young has taken a step back, so Hawks can take a step forward: 'We’re not overachieving'**\
-`Young was ready to get off the ball to open up Atlanta's offense. It's worked and the Hawks' rebuild is ahead of schedule.`\
-https://nytimes.com/athletic/6079755/2025/01/24/trae-young-hawks-improving/
+**Trump 2.0: Bans, Purges and Retribution**\
+`Maggie Haberman, Zolan Kanno-Youngs and David Sanger join us for a roundtable discussion about Trump’s first week in office.`\
+https://nytimes.com/video/podcasts/the-daily/100000009945701/trump-2-0-bans-purges-and-retribution.html
 
-**Hollinger: Why SGA has MVP edge and more midseason awards**\
-`The MVP race appears to be a two-person competition. Rookie of the Year, well ... who knows.`\
-https://nytimes.com/athletic/6083927/2025/01/24/nba-awards-midseason-shai-gilgeous-alexander-mvp/
+**Trump 2.0: Bans, Purges and Retribution**\
+`We break down how President Trump’s first week in office unfolded — and what to expect over the next few weeks.`\
+https://nytimes.com/2025/01/24/podcasts/the-daily/trump-executive-orders-office.html
 
-**Trump to Visit North Carolina and California, With Disaster Aid an Open Question**\
-`While he has expressed support for North Carolina residents, the president has criticized California’s Democratic leaders and threatened to withhold federal aid from the state.`\
-https://nytimes.com/2025/01/24/us/politics/trump-north-carolina-california-disaster-aid.html
+**Trump 2.0: Bans, Purges and Retribution**\
+`Maggie Haberman, Zolan Kanno-Youngs and David Sanger join Michael Barbaro for a roundtable discussion about President Trump’s first week in office.`\
+https://nytimes.com/video/podcasts/the-daily/100000009942561/trump-news-jan-6-dei.html
 

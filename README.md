@@ -1,3 +1,19 @@
+**How Rockets got Cam Whitmore out of 'la la land' and unlocked his defensive potential**\
+`Kelly Iko looks at the resurgence of both Cam Whitmore in Houston and Jay Huff in Memphis in the the latest Ikosystem. `\
+https://nytimes.com/athletic/6070316/2025/01/24/rockets-cam-whitmore-defense-jay-huff-grizzlies/
+
+**Vikings free-agent targets: 10 offensive linemen and defenders who'd make sense**\
+`The Vikings need help on the interior offensive and defensive lines and in the defensive backfield. Can they find it in free agency?`\
+https://nytimes.com/athletic/6084289/2025/01/24/vikings-free-agency-targets-positions/
+
+**Storm Eowyn Leaves a Third of Ireland Without Power**\
+`The storm brought record-breaking winds as it battered Ireland, Scotland and northern England on Friday. Hundreds of thousands of electricity customers were in the dark.`\
+https://nytimes.com/2025/01/24/world/europe/storm-eowyn-ireland-uk-weather-power-cut.html
+
+**Novak Djokovic's tennis is good enough to win more Grand Slams, but his body is at its limit**\
+`Djokovic is only interested in tennis' biggest prizes. He still has the game to win them, but at age 37 his body is letting him down`\
+https://nytimes.com/athletic/6085438/2025/01/24/novak-djokovic-injuries-tennis-grand-slams/
+
 **'In the suffering comes passion': Blues' Robert Thomas opens up on his offensive slump**\
 `The St. Louis center has one goal and two assists in his last six games.`\
 https://nytimes.com/athletic/6085239/2025/01/24/blues-robert-thomas-offensive-slump/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6084949/2025/01/24/logan-thompson-jonathan-toews-nh
 **Would the Bruins trade Brad Marchand? ‘All bets are off’**\
 `The Bruins must determine if a trade is worth the fallout of trading one of the club’s best players of all time.`\
 https://nytimes.com/athletic/6084291/2025/01/24/bruins-brad-marchand-trade-deadline/
-
-**NFL playoffs: Key Bills-Chiefs matchups to watch in AFC Championship Game**\
-`Kansas City's offense holds an advantage over Buffalo's defense, but Josh Allen will be tough for the Chiefs to contain.`\
-https://nytimes.com/athletic/6082809/2025/01/24/nfl-playoffs-afc-championship-game-bills-chiefs/
-
-**Trump 2.0: Bans, Purges and Retribution**\
-`Maggie Haberman, Zolan Kanno-Youngs and David Sanger join us for a roundtable discussion about Trump’s first week in office.`\
-https://nytimes.com/video/podcasts/the-daily/100000009945701/trump-2-0-bans-purges-and-retribution.html
-
-**Trump 2.0: Bans, Purges and Retribution**\
-`We break down how President Trump’s first week in office unfolded — and what to expect over the next few weeks.`\
-https://nytimes.com/2025/01/24/podcasts/the-daily/trump-executive-orders-office.html
-
-**Trump 2.0: Bans, Purges and Retribution**\
-`Maggie Haberman, Zolan Kanno-Youngs and David Sanger join Michael Barbaro for a roundtable discussion about President Trump’s first week in office.`\
-https://nytimes.com/video/podcasts/the-daily/100000009942561/trump-news-jan-6-dei.html
 
