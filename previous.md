@@ -1,3 +1,7 @@
+**Red Wings thoughts: Larkin's memorable night, Kasper's opportunity and more**\
+`Larkin recorded a key goal and assist in his 700th NHL game, leading the Red Wings to a 4-2 win over the Canadiens.`\
+https://nytimes.com/athletic/6085179/2025/01/23/red-wings-dylan-larkin-marco-kasper/
+
 **Blue Jackets' back-to-back struggles continue with lopsided loss to Hurricanes**\
 `Columbus ran out of gas in the second period and fell to 0-7 on the second half of a back-to-back.`\
 https://nytimes.com/athletic/6085154/2025/01/23/blue-jackets-back-to-back-struggles-hurricanes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/23/crosswords/daily-puzzle-2025-01-24.html
 **Instagram and Facebook Blocked and Hid Abortion Pill Providers’ Posts**\
 `Some posts related to obtaining abortion pills were recently hidden on Instagram and Facebook and some accounts were suspended, before being later restored.`\
 https://nytimes.com/2025/01/23/technology/instagram-facebook-abortion-pill-providers.html
-
-**Breaking: NHL has begun preparation for Gary Bettman retirement 'in a couple years'**\
-`Bettman says he hasn't given the Board of Governors a timeline, but the executive committee is in a formal process of finding a successor.`\
-https://nytimes.com/athletic/6084164/2025/01/23/gary-bettman-retirement-succession/
 

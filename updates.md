@@ -1,3 +1,7 @@
+**Red Wings thoughts: Larkin's memorable night, Kasper's opportunity and more**\
+`Larkin recorded a key goal and assist in his 700th NHL game, leading the Red Wings to a 4-2 win over the Canadiens.`\
+https://nytimes.com/athletic/6085179/2025/01/23/red-wings-dylan-larkin-marco-kasper/
+
 **Trump Officials Move to Quickly Expel Migrants Biden Allowed In Temporarily**\
 `A memo appears to allow Immigration and Customs Enforcement officials to target programs that let in more than a million people.`\
 https://nytimes.com/2025/01/23/us/politics/trump-immigrants-deportation.html
