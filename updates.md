@@ -1,3 +1,7 @@
+**Walker joins Milan on loan from Manchester City**\
+`Milan have completed the loan signing of Kyle Walker from Manchester City.`\
+https://nytimes.com/athletic/6086756/2025/01/24/kyle-walker-milan-loan/
+
 **Pence Wages Lonely Crusade Against Kennedy as Abortion Opponents Avoid Fight**\
 `Robert F. Kennedy Jr., who has taken different positions on the issue, has pledged to promote President Trump’s anti-abortion agenda in a bid to get confirmed as health secretary.`\
 https://nytimes.com/2025/01/24/us/politics/pence-kennedy-abortion.html
