@@ -1,3 +1,7 @@
+**Will Chiefs-Bills smash NFL TV viewership records? Here's why it could**\
+`The record to beat: 55.47 million viewers.`\
+https://nytimes.com/athletic/6081469/2025/01/24/kansas-city-chiefs-buffalo-bills-nfl-afc-championship-game-cbs-taylor-swift-hailee-steinfeld-patrick-mahomes-josh-allen/
+
 **Jonathan Allen is risking his health for this Commanders’ run: ‘If I tear it, I tear it’**\
 `For Allen, who grew up in Ashburn, Va., as a Washington fan, "winning here means twice as much as winning somewhere else."`\
 https://nytimes.com/athletic/6083924/2025/01/24/jonathan-allen-commanders-nfc-championship-torn-pec/

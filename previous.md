@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6084439/2025/01/24/nfl-playoffs-betting-odds-chiefs
 `Doughty, who has played this season because of a fractured ankle, isn't known for easing into things.`\
 https://nytimes.com/athletic/6084594/2025/01/24/drew-doughty-kings-injury-return/
 
+**Will Chiefs-Bills smash NFL TV viewership records? Here's why it could**\
+`The record to beat: 55.47 million viewers.`\
+https://nytimes.com/athletic/6081469/2025/01/24/kansas-city-chiefs-buffalo-bills-nfl-afc-championship-game-cbs-taylor-swift-hailee-steinfeld-patrick-mahomes-josh-allen/
+
 **Do you know your defensive defensemen? The ‘Who Didn’t He Play For?’ quiz returns**\
 `It’s time to honor the defensive defenseman. Which team(s) didn't these players play for?`\
 https://nytimes.com/athletic/6081638/2025/01/24/nhl-defense-players-quiz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085372/2025/01/24/warriors-quinten-post-rookie-ste
 **Where the NBA stands on expanding its footprint in Europe**\
 `NBA commissioner Adam Silver said Thursday that the league is still exploring a standalone European league but talks remain "exploratory." `\
 https://nytimes.com/athletic/6084222/2025/01/24/nba-europe-euroleague-expansion-adam-silver/
-
-**Bowden: 7 MLB moves — signings, trades and extensions — I'd like to see right now**\
-`Teams, players and agents are on the clock. With spring training only weeks away, there are several moves that need to be made now.`\
-https://nytimes.com/athletic/6085178/2025/01/24/mlb-trade-signing-extension-scenarios/
 
