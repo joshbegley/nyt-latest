@@ -1,3 +1,7 @@
+**Without the United States, Global Health Will Fall Apart**\
+`It’s a mistake for President Trump to order to the United States to leave the World Health Organization. He should reverse course immediately.`\
+https://nytimes.com/2025/01/24/opinion/who-trump-us-global-health.html
+
 **FPL: Hall? Konate? Munoz? Who are the best Saliba replacements?**\
 `Abdul Rehman runs the rule over the best options to replace the injured Arsenal defender in FPL`\
 https://nytimes.com/athletic/6079325/2025/01/24/fantasy-premier-league-saliba-defenders-hall-konate/
