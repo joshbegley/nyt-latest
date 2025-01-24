@@ -1,3 +1,7 @@
+**Word of the Day: zhuzh**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/24/learning/word-of-the-day-zhuzh.html
+
 **Why Manchester United selling Alejandro Garnacho would be a bad idea**\
 `A Garnacho departure would be an indictment of the club’s ownership and management and the decisions they have taken over the past decade`\
 https://nytimes.com/athletic/6085149/2025/01/24/manchester-united-garnacho-sale-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083602/2025/01/24/nottingham-forest-midfield-optio
 **Eddie's choice: Should Newcastle stick with Martin Dubravka or bring back Nick Pope?**\
 `Analysis of both goalkeepers' pros and cons`\
 https://nytimes.com/athletic/6082833/2025/01/24/should-newcastle-stick-with-martin-dubravka-or-bring-back-nick-pope/
-
-**Arne Slot vs the low block: Finding a way past Liverpool's latest challenge**\
-`Liverpool may need to find a solution against teams parking the bus`\
-https://nytimes.com/athletic/6082846/2025/01/24/arne-slot-v-the-low-block/
 
