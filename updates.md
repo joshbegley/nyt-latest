@@ -1,3 +1,19 @@
+**How Rockets got Cam Whitmore out of 'la la land' and unlocked his defensive potential**\
+`Kelly Iko looks at the resurgence of both Cam Whitmore in Houston and Jay Huff in Memphis in the the latest Ikosystem. `\
+https://nytimes.com/athletic/6070316/2025/01/24/rockets-cam-whitmore-defense-jay-huff-grizzlies/
+
+**Vikings free-agent targets: 10 offensive linemen and defenders who'd make sense**\
+`The Vikings need help on the interior offensive and defensive lines and in the defensive backfield. Can they find it in free agency?`\
+https://nytimes.com/athletic/6084289/2025/01/24/vikings-free-agency-targets-positions/
+
+**Storm Eowyn Leaves a Third of Ireland Without Power**\
+`The storm brought record-breaking winds as it battered Ireland, Scotland and northern England on Friday. Hundreds of thousands of electricity customers were in the dark.`\
+https://nytimes.com/2025/01/24/weather/storm-eowyn-ireland-uk-weather-power-cut.html
+
+**Novak Djokovic's tennis is good enough to win more Grand Slams, but his body is at its limit**\
+`Djokovic is only interested in tennis' biggest prizes. He still has the game to win them, but at age 37 his body is letting him down`\
+https://nytimes.com/athletic/6085438/2025/01/24/novak-djokovic-injuries-tennis-grand-slams/
+
 **'In the suffering comes passion': Blues' Robert Thomas opens up on his offensive slump**\
 `The St. Louis center has one goal and two assists in his last six games.`\
 https://nytimes.com/athletic/6085239/2025/01/24/blues-robert-thomas-offensive-slump/
