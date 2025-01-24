@@ -1,3 +1,7 @@
+**Education Dept. Ends Book Ban Investigations**\
+`The department said it would relinquish its role investigating schools that had received civil rights complaints after removing books dealing with sexual and racial identity.`\
+https://nytimes.com/2025/01/24/us/politics/education-dept-ends-book-ban-investigations.html
+
 **USC expected to hire Notre Dame GM Chad Bowden**\
 `Bowden played a huge role in reshaping Notre Dame's approach to talent acquisition. Can he do the same at USC?`\
 https://nytimes.com/athletic/6087046/2025/01/24/usc-football-gm-chad-bowden-notre-dame/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-officials-seek
 **Utah HC strikes out on initial trademark applications for all team names**\
 `The team has work to do before securing a name, whether it's the Yeti, Yetis, Blizzard, Outlaws, Mammoth, Venom or HC.`\
 https://nytimes.com/athletic/6086798/2025/01/24/utah-nhl-team-name-trademarks/
-
-**Appeals Court Upholds Injunction on Iowa’s State-Level Immigration Enforcement Law**\
-`A lower court had blocked the Republican-backed law that made it a state crime to enter Iowa after being deported or denied entry to the United States.`\
-https://nytimes.com/2025/01/24/us/iowa-immigration-case.html
 
