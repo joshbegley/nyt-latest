@@ -1,3 +1,7 @@
+**FPL: Hall? Konate? Munoz? Who are the best Saliba replacements?**\
+`Abdul Rehman runs the rule over the best options to replace the injured Arsenal defender in FPL`\
+https://nytimes.com/athletic/6079325/2025/01/24/fantasy-premier-league-saliba-defenders-hall-konate/
+
 **Yasin Ayari: Understated and underrated**\
 `Ayari has has worked hard to get into the first team after loan spells last season and he is now thriving under Hurzeler`\
 https://nytimes.com/athletic/6074786/2025/01/24/yasin-ayari-brighton-midfielder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085341/2025/01/24/novak-djokovic-retires-australia
 **Watching Max Dowman live: Arsenal's 'unbelievable' 15-year-old who seems destined for first team**\
 `Mikel Arteta has heaped praise on the young Arsenal midfielder, and The Athletic went along to watch Dowman up close in the FA Youth Cup`\
 https://nytimes.com/athletic/6083022/2025/01/24/max-dowman-arsenal-arteta-first-team/
-
-**What sort of manager uses expected goals? Pretty much all of them**\
-`Using data is not just reserved for ‘nerds who think football is played on spreadsheets’ — it is increasingly used by the managers too`\
-https://nytimes.com/athletic/6080274/2025/01/24/premier-league-managers-expected-goals/
 
