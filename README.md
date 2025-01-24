@@ -1,3 +1,7 @@
+**As Trump Visits North Carolina, Battered Communities Hope for More Aid**\
+`Residents of Asheville and the rest of western North Carolina are still recovering from catastrophic flooding in September.`\
+https://nytimes.com/2025/01/24/us/trump-north-carolina-floods-asheville.html
+
 **MeToo Outrage Leaves Japanese Broadcaster Without a Single Advertiser**\
 `A popular TV host admitted trying to conceal a sexual assault complaint. This time, the reaction was swift and harsh, and aimed not only at him but also his employers.`\
 https://nytimes.com/2025/01/24/world/asia/japan-me-too-sex-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085528/2025/01/24/bills-receivers-mack-hollins-kha
 **Angel Blue Doubted Her Path in Opera. Now She’s a Star.**\
 `Once used to frequent rejection letters, Blue has become a regular on major stages and is singing the title role in “Aida” at the Metropolitan Opera.`\
 https://nytimes.com/2025/01/24/arts/music/angel-blue-aida-met-opera.html
-
-**NHL Power Rankings: Can the Capitals hang on to the top spot?**\
-`The Capitals underlying numbers haven't been good but they keep winning, while the Sharks do not.`\
-https://nytimes.com/athletic/6085452/2025/01/24/nhl-power-rankings-capitals-2/
 
