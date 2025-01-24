@@ -1,3 +1,7 @@
+**Italy Arrested a Libyan Wanted for Crimes Against Humanity. Then It Sent Him Home.**\
+`The government attributed the release to procedural reasons. But critics say it is because Italy depends on Libya to stem the flow of migrants from Africa.`\
+https://nytimes.com/2025/01/24/world/europe/italy-libya-migrants-international-criminal-court.html
+
 **Jonathan Allen is risking his health for this Commanders’ run: ‘If I tear it, I tear it’**\
 `For Allen, who grew up in Ashburn, Va., as a Washington fan, "winning here means twice as much as winning somewhere else."`\
 https://nytimes.com/athletic/6083924/2025/01/24/jonathan-allen-commanders-nfc-championship-torn-pec/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6083924/2025/01/24/jonathan-allen-commanders-nfc-ch
 https://nytimes.com/athletic/6074450/2025/01/24/winnipeg-jets-logan-stanley-mailbag-walton-he-barlow/
 
 **NFL Playoffs betting sees $1.3M bet on Chiefs, sportsbooks ‘rooting for Eagles’**\
-`Sportsbooks are seeing a lot of action on the playoff-darling Commanders ahead of the conference championship games. `\
+`Read for big bets, plus sportsbooks are seeing a lot of action on the playoff-darling Commanders ahead of the conference championship games.`\
 https://nytimes.com/athletic/6084439/2025/01/24/nfl-playoffs-betting-odds-chiefs-bills-commanders-eagles/
 
 **Drew Doughty is coming back — how much should the Kings alter their successful blue line?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085718/2025/01/24/jannik-sinner-australian-open-se
 **Feed the Post: Warriors rookie, once rescued by Steph Curry, is returning the favor**\
 `In his second night in the Golden State rotation, the 7-footer on a two-way contract delivered 20 points in 20 minutes. Is this for real?`\
 https://nytimes.com/athletic/6085372/2025/01/24/warriors-quinten-post-rookie-steph-curry-bulls/
-
-**Where the NBA stands on expanding its footprint in Europe**\
-`NBA commissioner Adam Silver said Thursday that the league is still exploring a standalone European league but talks remain "exploratory." `\
-https://nytimes.com/athletic/6084222/2025/01/24/nba-europe-euroleague-expansion-adam-silver/
 
