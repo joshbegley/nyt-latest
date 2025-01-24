@@ -1,3 +1,11 @@
+**McMann — not Domi — to the top line: 4 thoughts on the injury-plagued Leafs**\
+`Matthew Knies joins a long list of injured Leafs that has had a trickle-down effect on the rest of the lineup.`\
+https://nytimes.com/athletic/6086964/2025/01/24/maple-leafs-matthew-knies-injury-mcmann-domi/
+
+**Arrest Made in Connection With Shooting Death of Border Patrol Agent**\
+`The shooting on Monday in Vermont near the Canadian border followed the surveillance of an armed couple who dressed in black tactical-style clothing.`\
+https://nytimes.com/2025/01/24/us/border-patrol-agent-shooting-arrest.html
+
 **Who will Raiders coach Pete Carroll hire to his staff? Potential candidates for OC, DC**\
 `A number of potential candidates for the coordinator roles with the Raiders have ties to Carroll from his 14 years with the Seahawks.`\
 https://nytimes.com/athletic/6086799/2025/01/24/raiders-pete-carroll-coordinator-staff-hires/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/books/review/picturing-the-border-nadiah-rivera-f
 **N.Y. Migrants Fear Expulsion After Trump Expands Deportation Targets**\
 `Those who followed Biden-era guidelines are dismayed that the rules have changed. The app that helped them enter the country now may make them targets.`\
 https://nytimes.com/2025/01/24/nyregion/nyc-migrant-shelter-deportation.html
-
-**‘Offensive’ Tattoos and Revealing Clothing Are Now on Spirit Airlines’ No-Fly List**\
-`The airline clarified (somewhat) the attire and appearance that might prevent passengers from being allowed to board or remain on a plane, a move that goes a step further than other major U.S. airlines.`\
-https://nytimes.com/2025/01/24/travel/spirit-airlines-dress-code-tattoos.html
-
-**Can Accepting Money for Volunteering Be the Right Thing to Do?**\
-`The magazine’s Ethicist columnist on the wages of charitable work.`\
-https://nytimes.com/2025/01/24/magazine/doctor-volunteer-donation-ethics.html
 
