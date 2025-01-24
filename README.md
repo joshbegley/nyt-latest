@@ -1,3 +1,11 @@
+**Sanchez has a lot of improving to do, says Maresca**\
+`Enzo Maresca admits Chelsea’s first-choice goalkeeper Robert Sanchez still has a lot of improving to do and believes he needs to cope better with criticism from the club&#8217;s fans.`\
+https://nytimes.com/athletic/6085896/2025/01/24/enzo-maresca-robert-sanchez-chelsea/
+
+**While Visiting Flood Survivors, Trump Suggested Eliminating FEMA**\
+`Also, egg prices are high. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/24/briefing/trump-visits-disaster-areas-high-egg-prices.html
+
 **Honduras Says Trump’s Deportation Plan Could Push It Closer to China**\
 `Many Latin American countries are trying to distance themselves from Beijing. But in response to President Trump’s sweeping deportation plans, Honduras is doing the opposite.`\
 https://nytimes.com/2025/01/24/us/honduras-china-trump-deportation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/steward-rhodes-oath-keepers-legal.htm
 **Supreme Court to Hear Oklahoma Religious Charter School Case**\
 `The proposal to create the nation’s first religious charter school paid for by taxpayer funds could move the line between church and state in education.`\
 https://nytimes.com/2025/01/24/us/supreme-court-oklahoma-religious-charter-school.html
-
-**The House oversight committee will investigate Republican complaints about banks.**\
-`Venture capital and cryptocurrency companies have claimed that they are subject to politically motivated discrimination, though the banks firmly deny that.`\
-https://nytimes.com/live/2025/01/24/us/president-trump-news/house-oversight-committee-to-investigate-republican-complaints-about-banks
-
-**Amid the Pain of Separation and Surveillance, Life Continues**\
-`“Picturing the Border” collects photographs of the United States-Mexico boundary dating back to the 1960s.`\
-https://nytimes.com/2025/01/24/books/review/picturing-the-border-nadiah-rivera-fellah.html
 
