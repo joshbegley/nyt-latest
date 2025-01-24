@@ -1,3 +1,11 @@
+**How Manchester City have built bridges with victims of Barry Bennell who tried to sue the club**\
+`Prominent members of the club have been involved in supporting the victims in person and have been praised for their sensitivities`\
+https://nytimes.com/athletic/6069440/2025/01/24/man-city-bennell-victims-support/
+
+**Yohe's 10 observations: Bryan Rust injured as Penguins get outclassed in Anaheim**\
+`The Penguins fail to stay hot in California, getting outclassed in a 5-1 loss against the Ducks in Anaheim on Thursday.`\
+https://nytimes.com/athletic/6084201/2025/01/24/bryan-rust-injured-penguins-ducks/
+
 **Tottenham's youngsters are performing superbly - but at what cost?**\
 `Too much is being asked of Spurs' decimated squad - they have earned the right to some reinforcements`\
 https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
