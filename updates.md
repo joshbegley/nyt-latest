@@ -1,3 +1,11 @@
+**Amid the Pain of Separation and Surveillance, Life Continues**\
+`“Picturing the Border” collects photographs of the United States-Mexico boundary dating back to the 1960s.`\
+https://nytimes.com/2025/01/24/books/review/picturing-the-border-nadiah-rivera-fellah.html
+
+**N.Y. Migrants Fear Expulsion After Trump Expands Deportation Targets**\
+`Those who followed Biden-era guidelines are dismayed that the rules have changed. The app that helped them enter the country now may make them targets.`\
+https://nytimes.com/2025/01/24/nyregion/nyc-migrant-shelter-deportation.html
+
 **‘Offensive’ Tattoos and Revealing Clothing Are Now on Spirit Airlines’ No-Fly List**\
 `The airline clarified (somewhat) the attire and appearance that might prevent passengers from being allowed to board or remain on a plane, a move that goes a step further than other major U.S. airlines.`\
 https://nytimes.com/2025/01/24/travel/spirit-airlines-dress-code-tattoos.html
