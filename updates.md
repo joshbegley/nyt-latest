@@ -1,3 +1,7 @@
+**Tottenham's youngsters are performing superbly - but at what cost?**\
+`Too much is being asked of Spurs' decimated squad - these players have earned the right to some reinforcements before the window shuts`\
+https://nytimes.com/athletic/6084607/2025/01/24/tottenham-youngsters-injuries-transfer-window/
+
 **‘I’ve Been Pushed, and I’m Going to Get Hit by the Train’**\
 `Joseph Lynskey was waiting for the subway in Manhattan last month when a random act of violence transformed his life.`\
 https://nytimes.com/2025/01/24/nyregion/new-york-subway-shove-survivor.html
