@@ -1,3 +1,15 @@
+**Hegseth Said He Paid the Woman Who Accused Him of Rape $50,000, Senator Says**\
+`The settlement’s existence after a 2017 accusation had been documented before the defense secretary nominee’s confirmation hearing this month, but the amount had not been known publicly.`\
+https://nytimes.com/2025/01/24/us/politics/hegseth-payment.html
+
+**What Elon Musk’s Salute Was All About**\
+`A gesture associated with the Nazis has a surprising history. But in Germany, there was little doubt about its meaning.`\
+https://nytimes.com/2025/01/24/world/europe/elon-musk-roman-salute-nazi.html
+
+**UnitedHealthcare Announces New C.E.O.**\
+`The health insurer named Tim Noel, a longtime employee of its parent company, for the job. The previous chief executive, Brian Thompson, was killed in Manhattan.`\
+https://nytimes.com/2025/01/24/science/unitedhealthcare-new-ceo.html
+
 **New details emerge on MLB’s upcoming test of robo-umps in spring training**\
 `All players in major-league camp have to have their height measured by mid-February so the automated zone will work properly.`\
 https://nytimes.com/athletic/6085976/2025/01/24/roboumps-test-spring-training-mlb/
