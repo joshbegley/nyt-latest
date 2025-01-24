@@ -1,3 +1,7 @@
+**Arsenal working on deal for Rosenborg's Nypan**\
+`Arsenal are working on a deal to sign midfielder Sverre Nypan from Rosenborg.`\
+https://nytimes.com/athletic/6077514/2025/01/24/sverre-nypan-arsenal-transfer-who/
+
 **Tech’s TikTok Dilemma: Follow the Law or President Trump?**\
 `The federal law banning TikTok has revealed a major schism among American tech companies: Some are willing to flout the law — and some, including Apple and Google, are not.`\
 https://nytimes.com/2025/01/24/technology/tiktok-ban-trump-amazon-apple-google.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/hegseth-defense-secretary-vote-margin
 **The Lumber Sexual Returns**\
 `With a Filson partnership, Junya Watanabe takes us on a time warp back to the hipstery 2000s — plaid checks and all.`\
 https://nytimes.com/2025/01/24/style/junya-watanabe-mens-wear-paris.html
-
-**Get a Hug From Aunjanue Ellis-Taylor in ‘Nickel Boys’**\
-`The director RaMell Ross narrates a sequence from his film, which is shot from the point of view of its characters. The movie is nominated for best picture.`\
-https://nytimes.com/2025/01/24/movies/nickel-boys-clip.html
 
