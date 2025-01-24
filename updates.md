@@ -1,3 +1,11 @@
+**Flyers blown out by Rangers, but consider final score deceiving**\
+`The score was lopsided. The game, though, was not, according to the Flyers, who lost in regulation for the first time in seven games.`\
+https://nytimes.com/athletic/6085214/2025/01/23/flyers-rangers-owen-tippett/
+
+**New York back in playoff picture, K'Andre Miller's confidence grows, more: Rangers takeaways**\
+`The Rangers exploded in the third period for a dominant win and points in each of their last 10 games.`\
+https://nytimes.com/athletic/6085219/2025/01/23/rangers-playoffs-race-kandre-miller-flyers/
+
 **Trump Says California Failed to Send Water to L.A. to Fight Fires, but Experts Say He’s Wrong**\
 `President Trump has blamed a lack of water during the Los Angeles fires on California decisions that benefit a small fish. Yet experts say he’s confusing different issues.`\
 https://nytimes.com/2025/01/23/us/trump-newsom-water-fires.html
