@@ -1,3 +1,7 @@
+**Scheffler, McIlroy and Spieth making PGA Tour season debuts at Pebble**\
+`Scheffler was forced to delay his 2025 season after cutting his hand.`\
+https://nytimes.com/athletic/6087065/2025/01/24/scheffler-mcilroy-spieth-pga-tour-pebble-beach/
+
 **Contenders to Lead the Democratic Party Scramble to Show Momentum**\
 `As two Midwesterners battle for control of the Democratic National Committee, they are making loud yet unverifiable claims about their levels of support.`\
 https://nytimes.com/2025/01/24/us/politics/dnc-race-ben-wikler-ken-martin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085896/2025/01/24/enzo-maresca-robert-sanchez-chel
 **While Visiting Flood Survivors, Trump Suggested Eliminating FEMA**\
 `Also, egg prices are high. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/01/24/briefing/trump-visits-disaster-areas-high-egg-prices.html
-
-**Honduras Says Trump’s Deportation Plan Could Push It Closer to China**\
-`Many Latin American countries are trying to distance themselves from Beijing. But in response to President Trump’s sweeping deportation plans, Honduras is doing the opposite.`\
-https://nytimes.com/2025/01/24/us/honduras-china-trump-deportation.html
 
