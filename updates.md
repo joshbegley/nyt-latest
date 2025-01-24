@@ -1,3 +1,7 @@
+**Twins provide more details about digital streaming, TV broadcast for 2025 season**\
+`Fans can begin purchasing the package Feb. 11. It will cost $99.99 annually or $19.99 per month, with discounts for season ticket holders.`\
+https://nytimes.com/athletic/6087078/2025/01/24/minnesota-twins-tv-streaming-2025-season/
+
 **Interior Department Says Gulf of Mexico Is Now ‘Gulf of America’**\
 `Trump also renamed Denali, North America’s tallest peak, as Mount McKinley, despite objections from Alaska’s senators.`\
 https://nytimes.com/2025/01/24/us/politics/trump-administration-gulf-of-america-change.html

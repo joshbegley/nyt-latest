@@ -1,3 +1,7 @@
+**Twins provide more details about digital streaming, TV broadcast for 2025 season**\
+`Fans can begin purchasing the package Feb. 11. It will cost $99.99 annually or $19.99 per month, with discounts for season ticket holders.`\
+https://nytimes.com/athletic/6087078/2025/01/24/minnesota-twins-tv-streaming-2025-season/
+
 **Interior Department Says Gulf of Mexico Is Now ‘Gulf of America’**\
 `Trump also renamed Denali, North America’s tallest peak, as Mount McKinley, despite objections from Alaska’s senators.`\
 https://nytimes.com/2025/01/24/us/politics/trump-administration-gulf-of-america-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/iowa-immigration-case.html
 **This Rare Plant Smells Horrible, but People Can’t Wait to Get a Whiff**\
 `At the Brooklyn Botanic Garden, a so-called corpse flower bloomed for the first time on Friday. The smell was not unlike rotting flesh.`\
 https://nytimes.com/2025/01/24/nyregion/brooklyn-corpse-flower-bloom.html
-
-**Trump Administration Tells Embassies That ‘Activist’ Flags Won’t Fly**\
-`The State Department has ordered that diplomatic outposts fly only U.S. flags.`\
-https://nytimes.com/2025/01/24/us/embassy-us-flag-blm-gay-pride.html
 
