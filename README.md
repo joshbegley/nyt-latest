@@ -1,3 +1,11 @@
+**LeBron James, Anthony Davis ramp up pressure on Lakers' front office: 'We need another big'**\
+`Davis publicly called for roster help shortly before tipoff of Thursday's 117-96 win over defending champion Boston.`\
+https://nytimes.com/athletic/6085196/2025/01/24/lebron-james-anthony-davis-lakers-pressure-front-office/
+
+**'Where the ego dies': Bills' utility drawer of receivers happy to get the job done when called upon**\
+`Their individual numbers may not look great, but the receivers are focused on the greater goal of winning.`\
+https://nytimes.com/athletic/6085528/2025/01/24/bills-receivers-mack-hollins-khalil-shakir-amari-cooper/
+
 **Angel Blue Doubted Her Path in Opera. Now She’s a Star.**\
 `Once used to frequent rejection letters, Blue has become a regular on major stages and is singing the title role in “Aida” at the Metropolitan Opera.`\
 https://nytimes.com/2025/01/24/arts/music/angel-blue-aida-met-opera.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6085723/2025/01/24/julio-enciso-to-ipswich-town-the
 **Israel Appears Poised to Keep Its Troops in Lebanon Beyond Deadline**\
 `Israel and Hezbollah agreed to withdraw from southern Lebanon, but Israel says that Hezbollah hasn’t upheld its promise and that the Lebanese Army isn’t ready to fill the void.`\
 https://nytimes.com/2025/01/24/world/middleeast/israel-lebanon-hezbollah-withdrawal-deadline.html
-
-**What's it like to face Aryna Sabalenka in full flow?**\
-`The world No. 1 is seeking a third Australian Open title in a row. This is what makes her the best player in the world.`\
-https://nytimes.com/athletic/6085614/2025/01/24/aryna-sabalenka-tennis-play-opponent-experience/
-
-**Guardiola says Man City signings available for Chelsea**\
-`Pep Guardiola has said Manchester City&#8217;s January signings Vitor Reis, Abdukodir Khusanov and Omar Marmoush could make their debuts against Chelsea on Saturday.`\
-https://nytimes.com/athletic/6085938/2025/01/24/manchester-city-signings-debut-chelsea/
 
