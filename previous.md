@@ -1,3 +1,7 @@
+**North Carolina Tar Heels land top-10 basketball recruit Caleb Wilson**\
+`Caleb Wilson chose the Tar Heels over fellow finalists Kentucky and Ohio State.`\
+https://nytimes.com/athletic/6081081/2025/01/24/unc-lands-top-10-recruit-caleb-wilson/
+
 **Without the United States, Global Health Will Fall Apart**\
 `It’s a mistake for President Trump to order to the United States to leave the World Health Organization. He should reverse course immediately.`\
 https://nytimes.com/2025/01/24/opinion/who-trump-us-global-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083712/2025/01/24/renato-veiga-chelsea-transfer-lo
 **Friday Briefing**\
 `Trump criticizes Europe.`\
 https://nytimes.com/2025/01/24/briefing/europe-trump-gaza.html
-
-**Novak Djokovic retires from Australian Open semifinal against Alexander Zverev**\
-`MELBOURNE, Australia — Novak Djokovic has retired from his Australian Open semifinal against Alexander Zverev after losing the first set in a tiebreak.`\
-https://nytimes.com/athletic/6085341/2025/01/24/novak-djokovic-retires-australian-open-semifinal-alexander-zverev/
 

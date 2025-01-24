@@ -1,3 +1,7 @@
+**North Carolina Tar Heels land top-10 basketball recruit Caleb Wilson**\
+`Caleb Wilson chose the Tar Heels over fellow finalists Kentucky and Ohio State.`\
+https://nytimes.com/athletic/6081081/2025/01/24/unc-lands-top-10-recruit-caleb-wilson/
+
 **Without the United States, Global Health Will Fall Apart**\
 `It’s a mistake for President Trump to order to the United States to leave the World Health Organization. He should reverse course immediately.`\
 https://nytimes.com/2025/01/24/opinion/who-trump-us-global-health.html
