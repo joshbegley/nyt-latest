@@ -2,7 +2,7 @@
 `Quotation of the Day for Friday, January 24, 2025`\
 https://nytimes.com/2025/01/23/pageoneplus/quote-of-the-day-fewer-battlefield-deaths-but-still-losing-to-russia.html
 
-**Red Wings thoughts: Larkin's memorable night, Kasper's opportunity and more**\
+**Red Wings thoughts: Dylan Larkin's memorable night, Marco Kasper's opportunity and more**\
 `Larkin recorded a key goal and assist in his 700th NHL game, leading the Red Wings to a 4-2 win over the Canadiens.`\
 https://nytimes.com/athletic/6085179/2025/01/23/red-wings-dylan-larkin-marco-kasper/
 
