@@ -1,3 +1,7 @@
+**Trump Executive Order Prompts National Gallery to End Diversity Programs**\
+`The National Gallery of Art said it had closed its office of belonging and inclusion to comply with a presidential order.`\
+https://nytimes.com/2025/01/24/arts/design/national-gallery-diversity-equity-inclusion.html
+
 **Cherry Pies, Severed Ears and the Making of a David Lynch Memorial**\
 `Fans of the late American filmmaker built a distinctly Lynchian shrine outside the Burbank restaurant Bob’s Big Boy.`\
 https://nytimes.com/2025/01/24/dining/david-lynch-bobs-big-boy.html
