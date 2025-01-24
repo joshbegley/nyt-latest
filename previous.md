@@ -1,3 +1,15 @@
+**MLB makes two minor rules changes for 2025, policing shifts, baserunning**\
+`The changes attempt to avoid rare instances where the old rules could have incentivized teams to try to game the system.`\
+https://nytimes.com/athletic/6084928/2025/01/23/mlb-rule-changes-2025-season-shift-violations/
+
+**Jurickson Profar gives Atlanta an answer to their left field void: Law**\
+`Profar may not be a strong bet to repeat his 2024 performance, but even if he regresses some, he'll be a big upgrade for Atlanta in left.`\
+https://nytimes.com/athletic/6084902/2025/01/23/jurickson-profar-atlanta-signing-analysis/
+
+**Driver charged in crash that killed Vikings' Khyree Jackson, two others**\
+`Cori Clingman was arrested Thursday and indicted on 13 counts, including negligent manslaughter and driving under the influence of alcohol.a`\
+https://nytimes.com/athletic/6084704/2025/01/23/driver-charged-in-car-crash-that-killed-vikings-khyree-jackson-two-others/
+
 **LeBron James named NBA All-Star starter for 21st straight season**\
 `NBA's All-Star starters for newly formatted event revealed. Reserves will be announced Jan. 30.`\
 https://nytimes.com/athletic/6084741/2025/01/23/lebron-james-named-nba-all-star-starter-for-21st-straight-season/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6084716/2025/01/23/dodgers-ruining-baseball-tanner-
 **Liam Coen re-engages with Jaguars for coach opening, day after withdrawing name: Source**\
 `The Jaguars fired GM Trent Baalke Wednesday and are trying to lure Tampa Bay's offensive coordinator to take Jacksonville's head coach job.`\
 https://nytimes.com/athletic/6084740/2025/01/23/liam-coen-jaguars-coaching-opening/
-
-**First Officer Convicted Under a Washington State Law Gets 16-Year Sentence**\
-`The police officer, Jeffrey Nelson, shot and killed Jesse Sarey, 26, while attempting to arrest him in May 2019. Mr. Nelson was found guilty of murder and assault last June.`\
-https://nytimes.com/2025/01/23/us/police-officer-sentenced-jesse-sarey-death.html
-
-**‘Truck Stop Serial Killer’ Is Found Guilty of a Third Murder**\
-`Bruce Mendenhall was convicted Wednesday in the 2007 killing of Carma Purpura, an Indiana woman with whom he had been speaking at a truck stop.`\
-https://nytimes.com/2025/01/23/us/truck-stop-serial-killer-guilty.html
-
-**Astros re-engage in talks with Alex Bregman: Sources**\
-`Houston is also shopping reliever Ryan Pressly, who has a no-trade clause.`\
-https://nytimes.com/athletic/6084614/2025/01/23/astros-alex-bregman-free-agent-discussions/
 
