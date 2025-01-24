@@ -1,3 +1,7 @@
+**An Evacuation, and a Haunting Question**\
+`Alexandra Berzon, an investigative reporter who lives in Los Angeles, reflects on her family’s evacuation from the Eaton fire.`\
+https://nytimes.com/2025/01/24/us/wildfires-evacuation-question.html
+
 **Independent Watchdog, in Trump’s Cross Hairs, Scrutinizes Terrorism Watch List**\
 `The Privacy and Civil Liberties Oversight Board, which the White House has threatened to purge, called for new limits on the list in a report issued on Friday.`\
 https://nytimes.com/2025/01/24/us/politics/terrorism-watch-list-trump.html

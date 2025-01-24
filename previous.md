@@ -1,3 +1,7 @@
+**An Evacuation, and a Haunting Question**\
+`Alexandra Berzon, an investigative reporter who lives in Los Angeles, reflects on her family’s evacuation from the Eaton fire.`\
+https://nytimes.com/2025/01/24/us/wildfires-evacuation-question.html
+
 **Independent Watchdog, in Trump’s Cross Hairs, Scrutinizes Terrorism Watch List**\
 `The Privacy and Civil Liberties Oversight Board, which the White House has threatened to purge, called for new limits on the list in a report issued on Friday.`\
 https://nytimes.com/2025/01/24/us/politics/terrorism-watch-list-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009947662/trump-fema-north-carolina.
 **Pirates' offer for Paul Skenes MLB Debut Patch declined, card going to auction**\
 `The card will be featured in a March auction and proceeds from the card will be donated to L.A. fire relief funds.`\
 https://nytimes.com/athletic/6086660/2025/01/24/paul-skenes-debut-patch-topps-auction/
-
-**Existing-Home Sales in 2024 Were Slowest in Decades**\
-`The market perked up late in the year when interest rates eased, but affordability challenges yielded the fewest transactions since 1995.`\
-https://nytimes.com/2025/01/24/business/economy/home-sales-mortgage-rates.html
 
