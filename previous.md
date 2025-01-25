@@ -1,3 +1,31 @@
+**'He’s a coach’s dream': Why Jacob Quillan is making his NHL debut with the Leafs**\
+`Quillan offers exactly the attributes that a bottom-six player in Leafs head coach Craig Berube’s system needs to have.`\
+https://nytimes.com/athletic/6087099/2025/01/25/maple-leafs-jacob-quillan-nhl-debut/
+
+**Dan Quinn's 'Commander Standard,' and how it quickly changed a team's culture**\
+`Quinn ignored 20-plus years of organizational dysfunction to lead Washington to the NFC title game in his first season as head coach.`\
+https://nytimes.com/athletic/6081688/2025/01/25/dan-quinn-commanders-culture-change-nfl/
+
+**Was the emotional Flyers-Ducks game Jamie Drysdale's Trea Turner moment?**\
+`Could the ovation Drysdale received Jan. 11 versus the Ducks be leading him to turn his season around for the Flyers?`\
+https://nytimes.com/athletic/6086942/2025/01/25/flyers-ducks-jamie-drysdale/
+
+**Quebec’s Ban on Religious Symbols Will Be Tested at the Supreme Court**\
+`Canada’s highest court will decide whether a law that Quebec enacted in 2019, barring public-sector workers from wearing religious symbols, violates their rights.`\
+https://nytimes.com/2025/01/25/world/canada/quebec-religious-symbols-bill-21.html
+
+**Wordle Review No. 1,317**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 26, 2025.`\
+https://nytimes.com/2025/01/25/crosswords/wordle-review-1317.html
+
+**The Connections Companion No. 595**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 26, 2025.`\
+https://nytimes.com/2025/01/25/crosswords/connections-companion-595.html
+
+**Who will win Bills-Chiefs AFC title game? X-factors, pivotal matchups and keys to victory**\
+`Will Patrick Mahomes lead the Chiefs to another Super Bowl? Or is this the year Josh Allen and the Bills finally get past Kansas City?`\
+https://nytimes.com/athletic/6086607/2025/01/25/bills-vs-chiefs-afc-championship-preview-key-matchups/
+
 **Cheers and cries as their friend is released from Hamas captivity.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/cheers-and-cries-as-their-friend-is-released-from-hamas-captivity
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6087426/2025/01/25/sabalenka-keys-australian-open-f
 **Israel Welcomes the Return of the Women Who Warned of a Raid From Gaza**\
 `Young female “spotters” for Israel’s army reported suspicious activity across the border. When Hamas attacked, 15 were killed and seven abducted. Four came home on Saturday.`\
 https://nytimes.com/2025/01/25/world/middleeast/israel-spotters-hostages.html
-
-**Here’s How President Trump Shifted Policy in His First Week**\
-`Through a flurry of orders, the new president quickly began driving the country in a different direction on many contentious issues.`\
-https://nytimes.com/2025/01/25/us/politics/trump-immigration-climate-dei-policies.html
-
-**Forget the Rumor Mill. These Were Just Some Really Great Clothes.**\
-`Kim Jones of Dior remains the subject of rampant speculation in the fashion industry, but at his latest runway show, he reaffirmed his men’s wear mastery.`\
-https://nytimes.com/2025/01/25/style/dior-mens-wear-kim-jones-paris.html
-
-**Snakeskin: It’s Fashionable, and It Scares Predators Away From Bird Nests**\
-`A museum curator with a ladder showed that birds that build cavity-style nests are able to protect their eggs with the skin shed by snakes.`\
-https://nytimes.com/2025/01/25/science/snakeskin-birds-nests.html
-
-**Trump Stocks E.P.A. With Oil, Gas and Chemical Lobbyists**\
-`Top political appointees are already at the E.P.A. preparing to erase the agency’s climate rules and pollution controls. Many of them have tried it before.`\
-https://nytimes.com/2025/01/25/climate/epa-staff-oil-gas-chemical-industry-lobbyists.html
-
-**Trump’s Crypto Venture Divides the Industry He Aims to Support**\
-`The president’s promotion of a speculative digital coin left some crypto investors feeling blindsided, while others saw it as a gimmick that undermined the industry’s credibility.`\
-https://nytimes.com/2025/01/25/us/politics/trumps-crypto-venture-divides-the-industry-he-aims-to-support.html
-
-**Can Improv Comedians Make a Living? Yes, in Your Office.**\
-`For some improv comedians, Fortune 1000 companies can help make the funny business more lucrative.`\
-https://nytimes.com/2025/01/25/business/corporate-improv-comedians.html
-
-**Goodbye, ‘Resistance.’ The Era of Hyperpolitics Is Over.**\
-`Where has the anti-Trump energy gone?`\
-https://nytimes.com/2025/01/25/magazine/trump-hyperpolitics-resistance.html
 
