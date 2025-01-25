@@ -1,3 +1,7 @@
+**Israel and Hamas Dispute Over Hostage Leaves Displaced Palestinians Waiting**\
+`Israel is preventing movement to the north of Gaza until plans are set for the release of Arbel Yehud, one of the last civilian women held in Gaza.`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-hamas-gaza-hostage-yehud.html
+
 **The Briefing: Southampton 1 Newcastle 3 - Howe's team fight back, Isak does it again**\
 `Analysis of Newcastle United's Premier League game away to Southampton`\
 https://nytimes.com/athletic/6080716/2025/01/25/southampton-1-newcastle-3-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/us/politics/cia-covid-lab-leak.html
 **Will Mikko Rantanen re-sign with the Hurricanes? Projecting his next contract**\
 `Carolina can re-sign Rantanen and maintain a formidable supporting cast around him, which might have been tough for Colorado.`\
 https://nytimes.com/athletic/6087286/2025/01/25/rantanen-contract-hurricanes-trade/
-
-**Trump Doesn’t Get to Decide What the Constitution Means**\
-`There is no plausible justification for the administration’s interpretation of the 14th Amendment`\
-https://nytimes.com/2025/01/25/opinion/trump-birthright-citizenship-constitution.html
 
