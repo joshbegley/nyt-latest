@@ -1,3 +1,7 @@
+**How does the Mikko Rantanen trade affect Carolina's Stanley Cup chances?**\
+`After the blockbuster trade, the Hurricanes are the favorites to come out of the East with a 12.7 percent chance of winning the Cup.`\
+https://nytimes.com/athletic/6087275/2025/01/24/mikko-rantanen-hurricanes-stanley-cup-chances/
+
 **In Visit to Pacific Palisades, Trump Praises Firefighters and Blames Democratic Officials**\
 `After a tour of areas damaged by the California wildfires, the president sparred with local leaders and blamed them for a wide variety of issues affecting the disaster response.`\
 https://nytimes.com/2025/01/24/us/politics/tour-pacific-palisades-wildfire-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/crosswords/daily-puzzle-2025-01-25.html
 **Hurricanes trade for Mikko Rantanen, Taylor Hall in 3-team deal**\
 `The trade is a stunning midseason swap of point-per-game players in their primes, an anomaly in the NHL trade market in the salary-cap era.`\
 https://nytimes.com/athletic/6087207/2025/01/24/rantanen-necas-hall-drury-hurricanes-avalanche-3-way-trade/
-
-**Quotation of the Day: The Perfect Cacio e Pepe Recipe Does Exist. Just Ask Scientists.**\
-`Quotation of the Day for Saturday, January 25, 2025.`\
-https://nytimes.com/2025/01/24/pageoneplus/quotation-of-the-day-the-perfect-cacio-e-pepe-recipe-does-exist-just-ask-scientists.html
 
