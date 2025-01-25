@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Aaron Boxerman and Qasim Nauman`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
+
+**Israel and Hamas Set to Exchange More Hostages and Prisoners**\
+`Hamas said on Friday that it would release four female soldiers held hostage for over a year in Gaza. Under the terms of a cease-fire deal, Israel would be expected to release around 200 Palestinian prisoners.`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire
+
 **Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
 `As Chicago's rebuild moves forward, the three-team blockbuster trade is about the major details, not the minor ones.`\
 https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6086418/2025/01/25/ruben-amorim-honesty-communicati
 **The stark reality of watching a Pep Guardiola midfield in 2025**\
 `It is a source of some bewilderment that Guardiola, of all coaches, should have allowed such a key part of his team to fall into decline`\
 https://nytimes.com/athletic/6086107/2025/01/25/pep-guardiola-midfield-decline-manchester-city/
-
-**'He made me proud beyond words - I don’t know why that night he felt he couldn’t ring us'**\
-`In Newcastle and Northern Ireland they are mourning Michael Newberry — a footballer, friend and family man gone far too soon`\
-https://nytimes.com/athletic/6080225/2025/01/25/michael-newberry-northern-ireland/
-
-**Nico Paz is flying under Fabregas at Como but a return to Real Madrid would be too soon**\
-`The 20-year-old Argentina international has been superb in Serie A and has created more chances than any other under-21 in top five leagues`\
-https://nytimes.com/athletic/6085642/2025/01/25/nico-paz-como-real-madrid/
 
