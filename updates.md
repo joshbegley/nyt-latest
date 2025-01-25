@@ -1,3 +1,11 @@
+**Trump Fires 17 Inspectors General in Late-Night Purge**\
+`The internal government watchdogs were believed to have been dismissed at several major agencies, though the Justice Department’s was not said to have been among them.`\
+https://nytimes.com/2025/01/24/us/politics/trump-fires-inspectors-general.html
+
+**Cowboys hire Schottenheimer as coach; Eberflus a candidate for DC job**\
+`Serving as Cowboys offensive coordinator the last two seaosns, Schottenheimer brings 25 years of NFL coaching experience to the job.`\
+https://nytimes.com/athletic/6081269/2025/01/24/brian-schottenheimer-dallas-cowboys-head-coach-hired/
+
 **U.S. Military Planes Carrying Migrants Land in Guatemala**\
 `The Department of Defense said this week that it would provide planes for deportation flights.`\
 https://nytimes.com/2025/01/24/us/politics/trump-us-guatemala-military-migrants.html
