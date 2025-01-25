@@ -1,9 +1,13 @@
+**Trump Officials Pause Programs to Let In Immigrants, Including Ukrainians**\
+`The pause on several initiatives that allowed immigrants to enter the country temporarily will block the entrance of people fleeing some of the most unstable and desperate places in the world.`\
+https://nytimes.com/2025/01/24/us/politics/trump-immigration-pause.html
+
 **Corrections: Jan. 25, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 25, 2025.`\
 https://nytimes.com/2025/01/24/pageoneplus/corrections-jan-25-2025.html
 
 **Live Senate Tally: Pete Hegseth Confirmation Vote**\
-`Follow the vote count live.`\
+`Follow the secretary of defense confirmation vote count live.`\
 https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
 
 **No. 2 South Carolina hands No. 5 LSU women's hoops first loss of season**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/texas-murder-dna-evidence.html
 **New Luxury Hotel in Serbia Will Be a Trump-Kushner Joint Project**\
 `The plan illustrates the continued ambitions of the Trump family to forge new international deals even as President Trump has returned to the White House.`\
 https://nytimes.com/2025/01/24/us/politics/trump-kushner-serbia-hotel.html
-
-**Jo Baer Evolving**\
-`After becoming famous for extreme abstraction, she left Minimalism behind.`\
-https://nytimes.com/2025/01/24/obituaries/jo-baer-evolving.html
 
