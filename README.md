@@ -1,5 +1,5 @@
 **AJ Dybantsa gets taste of NBA in Paris, Team USA future awaiting him**\
-`AJ Dybantsa is the top recruit of the 2025 class, has committed to BYU and is already the presumptive No. 1 pick for the 2026 NBA Draft.`\
+`Dybantsa is the top recruit of the 2025 class, has committed to BYU and is already the presumptive No. 1 pick for the 2026 NBA Draft.`\
 https://nytimes.com/athletic/6087724/2025/01/25/aj-dybantsa-paris-spurs-pacers-nba/
 
 **The Briefing: Wolves 0 Arsenal 1: Was Lewis-Skelly's red card harsh? How did Arsenal play with 10 men?**\
