@@ -32,7 +32,7 @@ https://nytimes.com/athletic/6076242/2025/01/24/robert-saleh-hired-49ers-defensi
 
 **Two military jets carrying migrants landed in Guatemala, the U.S. Embassy and local authorities said.**\
 `By Annie Correal and Jody García`\
-https://nytimes.com/live/2025/01/24/us/president-trump-news/two-military-jets-carrying-migrants-landed-in-guatemala-the-us-embassy-and-local-authorities-said
+https://nytimes.com/2025/01/24/us/politics/two-military-jets-carrying-migrants-landed-in-guatemala-the-us-embassy-and-local-authorities-said.html
 
 **NHL trade grades: Hurricanes acquire Mikko Rantanen in stunning blockbuster with Avalanche**\
 `The Hurricanes added a superstar to their lineup and win the trade, but how much will depend on if he re-signs in Carolina.`\
