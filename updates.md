@@ -1,3 +1,11 @@
+**Eric Tulsky exclusive: Hurricanes GM on pulling off the Mikko Rantanen trade — 'You have to be willing to stretch'**\
+`The Canes aren't done after this blockbuster: "Until we have the 20 best players in the league … there’s always somewhere we can upgrade."`\
+https://nytimes.com/athletic/6088081/2025/01/25/eric-tulsky-mikko-rantanen-hurricanes-trade/
+
+**Spurs' Wembanyama gets emotional following France homecoming loss to Pacers**\
+`Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
+https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
+
 **Lions promote LBs coach Kelvin Sheppard to defensive coordinator**\
 `Sheppard earned the promotion following his third season as LBs coach and fourth overall with Detroit.`\
 https://nytimes.com/athletic/6088170/2025/01/25/lions-defensive-coordinator-kelvin-sheppard-promoted/

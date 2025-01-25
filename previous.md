@@ -1,3 +1,11 @@
+**Eric Tulsky exclusive: Hurricanes GM on pulling off the Mikko Rantanen trade — 'You have to be willing to stretch'**\
+`The Canes aren't done after this blockbuster: "Until we have the 20 best players in the league … there’s always somewhere we can upgrade."`\
+https://nytimes.com/athletic/6088081/2025/01/25/eric-tulsky-mikko-rantanen-hurricanes-trade/
+
+**Spurs' Wembanyama gets emotional following France homecoming loss to Pacers**\
+`Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
+https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
+
 **Lions promote LBs coach Kelvin Sheppard to defensive coordinator**\
 `Sheppard earned the promotion following his third season as LBs coach and fourth overall with Detroit.`\
 https://nytimes.com/athletic/6088170/2025/01/25/lions-defensive-coordinator-kelvin-sheppard-promoted/
@@ -26,15 +34,7 @@ https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
 `Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
 https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
 
-**Pacers, Tyrese Haliburton avenge loss to Spurs with 30-point win in Paris**\
-`Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
-https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
-
 **Trump’s Moves to Upend Federal Bureaucracy Touch Off Fear and Confusion**\
 `Agencies are gripped with uncertainty about how to implement the blizzard of new policies as workers frantically try to assess the impact on their lives.`\
 https://nytimes.com/2025/01/25/us/politics/trump-federal-workers.html
-
-**Sweeping Halt to Foreign Aid Does Not Apply to Arms for Israel and Egypt**\
-`Secretary of State Marco Rubio’s orders could force many groups working on global aid to stop their programs. And the White House has approved sending more 2,000-pound bombs to Israel.`\
-https://nytimes.com/2025/01/25/us/politics/us-foreign-aid-egypt-israel.html
 
