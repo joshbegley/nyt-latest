@@ -1,3 +1,11 @@
+**Leicester Choudhury set to join Sheffield United on loan**\
+`Leicester City midfielder Hamza Choudhury is set to join Sheffield United on loan.`\
+https://nytimes.com/athletic/6087549/2025/01/25/leicester-choudhury-sheffield-united-loan-tranfer/
+
+**As Immigration Crackdown Looms, Restaurants Are Racked With Fear**\
+`In Los Angeles, Chicago, Washington and other cities, chefs and owners are worried for their workers and their businesses.`\
+https://nytimes.com/2025/01/25/dining/trump-immigration-undocumented-workers-restaurants.html
+
 **Madison Keys fulfils her tennis destiny on a breezy night in Melbourne**\
 `At 14, Madison Keys appeared destined for a Grand Slam trophy. Sixteen years later on a breezy night in Melbourne, she held it in her hands.`\
 https://nytimes.com/athletic/6087504/2025/01/25/madison-keys-australian-open/
