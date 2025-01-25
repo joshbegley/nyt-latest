@@ -1,3 +1,7 @@
+**Game, Set, Match: Madison Keys beats Aryna Sabalenka for first Grand Slam title at Australian Open**\
+`A tense third set ended with the American lifting her first major, ending Sabalenka's dominance in Australia.`\
+https://nytimes.com/athletic/6087426/2025/01/25/sabalenka-keys-australian-open-final-result-analysis/
+
 **Hamas choreographs a show of force as it hands over the hostages.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/hamas-choreographs-a-show-of-force-as-it-hands-over-the-hostages
