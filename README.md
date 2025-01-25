@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6080716/2025/01/25/southampton-1-newcastle-3-highli
 https://nytimes.com/athletic/6087724/2025/01/25/aj-dybantsa-paris-spurs-pacers-nba/
 
 **The Briefing - Wolves 0 Arsenal 1: Was Lewis-Skelly's red card harsh? How did Arteta's 10 men play?**\
-`Arsenal managed to beat Wolverhampton Wanderers 1-0 on Saturday afternoon`\
+`Arsenal managed to beat hosts Wolverhampton Wanderers 1-0 on Saturday despite a first-half dismissal`\
 https://nytimes.com/athletic/6080714/2025/01/25/wolves-arsenal-result-report-analysis/
 
 **The Briefing: Liverpool 4 Ipswich 1 - Is Konate adding more in attack? Have Slot's side cracked low blocks?**\
