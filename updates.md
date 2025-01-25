@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Aaron Boxerman and Qasim Nauman`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
+
+**Israel and Hamas Set to Exchange More Hostages and Prisoners**\
+`Hamas said on Friday that it would release four female soldiers held hostage for over a year in Gaza. Under the terms of a cease-fire deal, Israel would be expected to release around 200 Palestinian prisoners.`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire
+
 **Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
 `As Chicago's rebuild moves forward, the three-team blockbuster trade is about the major details, not the minor ones.`\
 https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
