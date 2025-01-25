@@ -1,3 +1,11 @@
+**Alex Bregman, Astros reunion 'a long shot' in free agency, GM says**\
+`Astros GM Dana Brown said the door is “cracked” for Bregman to return to the team.`\
+https://nytimes.com/athletic/6087917/2025/01/25/alex-bregman-astros-mlb-free-agency-rumors/
+
+**As Los Angeles welcomes rain, it tries to reduce the risk of mudslides.**\
+`The chances of flash flooding are not high according to forecasts, but city crews are reinforcing roads and telling residents to take warnings seriously.`\
+https://nytimes.com/2025/01/25/us/la-wildfires-mudslides-rain.html
+
 **Greenberg: In wake of historically bad season, White Sox bring back their winter fan fest**\
 `It may not have been the best timing, but at least the team revealed it is planning a 2005 White Sox reunion and a statue for Mark Buehrle.`\
 https://nytimes.com/athletic/6087782/2025/01/25/chicago-white-sox-mark-buehrle-fan-fest/
