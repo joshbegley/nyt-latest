@@ -1,3 +1,19 @@
+**Idaho Lawmakers Want Supreme Court to Overturn Same-Sex Marriage Decision**\
+`A state legislative committee has advanced a resolution asking that the power to regulate marriage be returned to the states.`\
+https://nytimes.com/2025/01/24/us/idaho-same-sex-marriage-supreme-court.html
+
+**Last 4 Monkeys That Escaped in South Carolina Are Captured**\
+`Finally, all 43 of the rhesus macaques have been found, according to the primate research facility in Yemassee, S.C., from which they fled in November.`\
+https://nytimes.com/2025/01/24/us/escaped-monkeys-captured-south-carolina.html
+
+**Two military jets carrying migrants landed in Guatemala, the U.S. Embassy and local authorities said.**\
+`By Annie Correal and Jody García`\
+https://nytimes.com/live/2025/01/24/us/president-trump-news/two-military-jets-carrying-migrants-landed-in-guatemala-the-us-embassy-and-local-authorities-said
+
+**How Each Senator Voted to Confirm Pete Hegseth as Secretary of Defense**\
+`The Senate voted 51 to 50 to confirm Mr. Hegseth, a former Fox News host, as the new Pentagon chief.`\
+https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
+
 **NHL trade grades: Hurricanes acquire Mikko Rantanen in stunning blockbuster with Avalanche**\
 `The Hurricanes added a superstar to their lineup and win the trade, but how much will depend on if he re-signs in Carolina.`\
 https://nytimes.com/athletic/6087230/2025/01/24/nhl-trade-grades-avalanche-hurricanes-rantanen/
