@@ -1,40 +1,40 @@
-**Here’s What We Know About the 4 Released Hostages**\
-`The young women were working as “spotters” for Israel’s army when they were abducted in the Hamas-led attack on Oct. 7, 2023.`\
-https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostages.html
+**The Best Cozy Romance Novels to Steam Up Your Nights**\
+`Books by Alyssa Cole, Talia Hibbert and more offer heartwarming banter and plenty of heat.`\
+https://nytimes.com/2025/01/25/books/steamy-romance-books.html
 
-**Lewis Hamilton’s first week at Ferrari: Louboutin boots, a dream fulfilled and a proud mom**\
-`We saw Lewis Hamilton in classic Ferrari red for the first time this week. Here's what happened...`\
-https://nytimes.com/athletic/6086153/2025/01/25/lewis-hamilton-ferrari-f1-louboutin/
+**How My Trip to Quit Sugar Quickly Became a Journey Into Hell**\
+`For my whole life, I’ve been a hard-core sweets junkie. Could a spa help me quit in a week?`\
+https://nytimes.com/2025/01/25/magazine/quit-sugar.html
 
-**What's it like to face Aryna Sabalenka in full flow?**\
-`The world No. 1 is seeking a third Australian Open title in a row. This is what makes her the best player in the world.`\
-https://nytimes.com/athletic/6085614/2025/01/25/aryna-sabalenka-tennis-play-opponent-experience/
+**Tom Green, Former Provocateur, Is Building Something New**\
+`A Y2K-era phenomenon most famous for his MTV prank show and surreal brand of comedy, Green pioneered ideas that thrive today.`\
+https://nytimes.com/2025/01/25/arts/television/tom-green-show-amazon-prime.html
 
-**Hawaii Has ‘Aloha.’ In Buffalo, It’s ‘Go Bills.’**\
-`Devotion runs deep in western New York for an N.F.L. team that has never won a Super Bowl. Will this be the year that loyalty is rewarded?`\
-https://nytimes.com/2025/01/25/nyregion/buffalo-bills-fans.html
+**The Tech Arsenal That Could Power Trump’s Immigration Crackdown**\
+`Border enforcement agencies have spent billions assembling surveillance tools to track and find people. These could be critical in President Trump’s immigration agenda.`\
+https://nytimes.com/2025/01/25/technology/trump-immigration-deportation-surveillance.html
 
-**The Gavel Is Fake. The Advice Is Real.**\
-`Judge John Hodgman, who is not a judge, resolves small disputes with a touch of humor in his New York Times Magazine column.`\
-https://nytimes.com/2025/01/25/insider/judge-john-hodgman.html
+**William Stanford Davis’s Brooch**\
+`The “Abbott Elementary” actor talks about how his grandmother inspired his sense of style.`\
+https://nytimes.com/2025/01/25/style/william-stanford-daviss-brooch.html
 
-**How a Tony-Winning Actress Spends Her Sundays**\
-`Kara Young spends a rare day off brunching with her family in Harlem and popping into beauty supply stores along 125th Street.`\
-https://nytimes.com/2025/01/25/nyregion/kara-young-broadway.html
+**A ‘Groundhog Day’ Time Loop So Long It Spans 7 Enthralling Books**\
+`Solvej Balle’s “On the Calculation of Volume” rethinks the familiar story of the endlessly repeating day.`\
+https://nytimes.com/2025/01/25/books/review/solvej-balle-on-the-calculation-of-volume.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/25/crosswords/spelling-bee-forum.html
+**A Lonely 20-Something Finds Her Ideal Mate. It’s a Blob.**\
+`In Maggie Su’s funny debut novel, a Frankenstein-like monster turns on his flailing creator.`\
+https://nytimes.com/2025/01/25/books/review/blob-maggie-su.html
 
-**Here is the latest on the hostage and prisoner releases.**\
-`By Aaron Boxerman and Patrick Kingsley`\
-https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
+**The Race for All-Powerful Pot**\
+`Inside the $32 billion industry transforming marijuana, its consumption and beliefs about its ability to heal.`\
+https://nytimes.com/2025/01/25/us/marijuana-thc-health-claims-potency.html
 
-**Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
-`As Chicago's rebuild moves forward, the three-team blockbuster trade is about the major details, not the minor ones.`\
-https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
+**What’s Your Major? Some Say ‘Sports’ Should Be an Acceptable Answer.**\
+`The idea of offering a degree in sports has gained momentum now that college athletes can be paid. Now Nike is joining some academics in pushing for it to become a reality.`\
+https://nytimes.com/2025/01/25/business/college-sports-academic-major.html
 
-**Mark Jackson and the Leeds United influence making a mark in Australia**\
-`The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
-https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
+**Europe Is Pouring Money Into Defense. Is It Enough?**\
+`With a full-blown land war in Ukraine and an isolationist American president back in the White House, European leaders have come to a stark conclusion: They must spend more on their militaries.`\
+https://nytimes.com/interactive/2025/01/25/world/europe/nato-europe-defense-spending.html
 
