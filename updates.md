@@ -1,3 +1,7 @@
+**Hamas Releases Four Hostages to Red Cross**\
+`Israel’s military said the Red Cross had confirmed it had the hostages and that they would be handed over to Israeli forces. Under the terms of a cease-fire deal, Israel is expected to release around 200 Palestinian prisoners.`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire
+
 **Lewis Hamilton’s first week at Ferrari: Louboutin boots, a dream fulfilled and a proud mom**\
 `We saw Lewis Hamilton in classic Ferrari red for the first time this week. Here's what happened...`\
 https://nytimes.com/athletic/6086153/2025/01/25/lewis-hamilton-ferrari-f1-louboutin/
