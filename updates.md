@@ -1,3 +1,11 @@
+**Arteta 'absolutely fuming' about Lewis-Skelly red card**\
+`Arsenal manager Mikel Arteta says he is &#8220;absolutely fuming&#8221; about Myles Lewis-Skelly&#8217;s sending off during his side&#8217;s 1-0 win at Wolverhampton Wanderers on Saturday.`\
+https://nytimes.com/athletic/6087836/2025/01/25/lewis-skelly-red-card-arsenal-arteta/
+
+**How Every Senator Voted to Confirm Kristi Noem as Secretary of Homeland Security**\
+`The Senate voted 59 to 34 to confirm Ms. Noem, the governor of South Dakota, as the new head of the Homeland Security Department.`\
+https://nytimes.com/interactive/2025/01/25/us/politics/noem-senate-confirmation-vote.html
+
 **The Briefing: Wolves 0 Arsenal 1 - Was Lewis-Skelly's red card harsh? How did Arteta's 10 men play?**\
 `Arsenal managed to beat hosts Wolverhampton Wanderers 1-0 on Saturday despite a first-half dismissal for their young full-back`\
 https://nytimes.com/athletic/6080714/2025/01/25/wolves-arsenal-result-report-analysis/
