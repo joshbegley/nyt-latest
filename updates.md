@@ -1,3 +1,7 @@
+**Man Utd's Antony completes Betis loan**\
+`Real Betis have completed the signing of Antony on loan from Manchester United until the end of the season.`\
+https://nytimes.com/athletic/6086235/2025/01/25/antony-manchester-united-real-betis-loan/
+
 **Pete Hegseth, New Defense Secretary, Outlines Pentagon’s Priorities**\
 `After being sworn-in by Vice President JD Vance, the Pentagon’s new leader addressed the Defense Department’s three million employees.`\
 https://nytimes.com/2025/01/25/us/politics/pete-hegseth-pentagon-defense-secretary.html
