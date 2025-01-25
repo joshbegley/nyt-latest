@@ -1,4 +1,8 @@
 **Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
+`As Chicago's rebuild moves forward, the three-team blockbuster trade is about the major details, not the minor ones.`\
+https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
+
+**Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
 `As Chicago's rebuild moves forward, the 3-team blockbuster trade is about the major details, not the minor ones.`\
 https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
 
