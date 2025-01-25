@@ -1,3 +1,7 @@
+**Here’s What We Know About the 4 Released Hostages**\
+`The young women were working as “spotters” for Israel’s army when they were abducted in the Hamas-led attack on Oct. 7, 2023.`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostages.html
+
 **Diego Carlos: A defensive contradiction**\
 `Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
 https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
