@@ -1,3 +1,7 @@
+**Here is the latest on the hostage and prisoner releases.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
+
 **Hawaii Has ‘Aloha.’ In Buffalo, It’s ‘Go Bills.’**\
 `Devotion runs deep in western New York for an N.F.L. team that has never won a Super Bowl. Will this be the year that loyalty is rewarded?`\
 https://nytimes.com/2025/01/25/nyregion/buffalo-bills-fans.html

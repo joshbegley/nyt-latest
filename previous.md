@@ -14,8 +14,8 @@ https://nytimes.com/2025/01/25/nyregion/kara-young-broadway.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/25/crosswords/spelling-bee-forum.html
 
-**Here is the latest.**\
-`By Aaron Boxerman and Qasim Nauman`\
+**Here is the latest on the hostage and prisoner releases.**\
+`By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
 
 **Israel and Hamas Set to Exchange More Hostages and Prisoners**\
