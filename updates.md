@@ -1,3 +1,7 @@
+**Mike Hynson, Surfing Star of ‘The Endless Summer,’ Dies at 82**\
+`The hit 1966 surfing documentary immortalized the maverick California wave rider as an archetype of the footloose rebel surfer.`\
+https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
+
 **Ed Cooley drops to 0-4 against Providence as Georgetown's slide continues**\
 `Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
 https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
