@@ -18,8 +18,8 @@ https://nytimes.com/2025/01/25/us/la-wildfires-mudslides-rain.html
 `It may not have been the best timing, but at least the team revealed it is planning a 2005 White Sox reunion and a statue for Mark Buehrle.`\
 https://nytimes.com/athletic/6087782/2025/01/25/chicago-white-sox-mark-buehrle-fan-fest/
 
-**Auburn center Johni Broome a game-time decision in matchup vs. Tennessee**\
-`Broome will test the ankle out during warmups and see how he feels before making a final decision.`\
+**Auburn's Johni Broome a game-time decision in Saturday's game vs. Tennessee**\
+`Broome will test out his ankle during warmups and see how he feels before making a final decision.`\
 https://nytimes.com/athletic/6087900/2025/01/25/auburn-johni-broome-tennessee-sec/
 
 **Trump names a new acting director for national intelligence, ousting a Biden official associated with D.E.I. initiatives.**\

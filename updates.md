@@ -1,3 +1,7 @@
+**Auburn's Johni Broome a game-time decision in Saturday's game vs. Tennessee**\
+`Broome will test out his ankle during warmups and see how he feels before making a final decision.`\
+https://nytimes.com/athletic/6087900/2025/01/25/auburn-johni-broome-tennessee-sec/
+
 **They Were Waiting for Flights. Then Trump Closed a Door for Afghan Allies.**\
 `An executive order has halted refugee flights for Afghans who supported the American mission in Afghanistan and had been approved to resettle in the U.S.`\
 https://nytimes.com/2025/01/25/world/asia/trump-executive-order-immigration-afghanistan.html
