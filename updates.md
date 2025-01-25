@@ -1,3 +1,11 @@
+**Wolves' Pereira confident new signings will arrive before transfer window closes**\
+`Wolverhampton Wanderers head coach Vitor Pereira has claimed he is confident his side will land the signings he wants before the end of the transfer window and stay in the Premier League.`\
+https://nytimes.com/athletic/6087975/2025/01/25/wolves-transfers-vitor-pereira/
+
+**LeBrun: Unpacking the Mikko Rantanen trade — a rare NHL in-season blockbuster**\
+`Where does the NHL's biggest in-season trade in decades leave the Canes, Avs and Blackhawks ... and the Canucks and Rangers? Let's dig in.`\
+https://nytimes.com/athletic/6087889/2025/01/25/mikko-rantanen-trade-unpacked/
+
 **Auburn's Johni Broome a game-time decision in Saturday's game vs. Tennessee**\
 `Broome will test out his ankle during warmups and see how he feels before making a final decision.`\
 https://nytimes.com/athletic/6087900/2025/01/25/auburn-johni-broome-tennessee-sec/
