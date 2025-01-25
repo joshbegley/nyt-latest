@@ -1,3 +1,7 @@
+**Who Are the Three Republican Senators Who Voted Against Pete Hegseth?**\
+`Senators Lisa Murkowski, Susan Collins and Mitch McConnell voted against confirming Donald Trump’s pick for defense secretary. To Capitol insiders, their decisions weren’t surprising.`\
+https://nytimes.com/2025/01/25/us/politics/hegseth-confirmation-republican-senators-votes.html
+
 **Sundance Kicks Off With Cynthia Erivo, Jon Hamm and Abby Wambach**\
 `Filmmakers and celebrities reflected on the festival’s lineup and future beyond the mountains of Park City.`\
 https://nytimes.com/2025/01/25/style/sundance-film-festival-2025-utah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087676/2025/01/25/emi-buendia-bayer-leverkusen-ast
 **Arsenal captain Odegaard misses Wolves clash due to illness**\
 `Arsenal captain Martin Odegaard will miss his side&#8217;s Premier League trip to Wolverhampton Wanderers due to illness.`\
 https://nytimes.com/athletic/6087580/2025/01/25/arsenal-team-news-martin-odegaard-injury/
-
-**Crafting a Haggis for American Tastes (and Import Restrictions)**\
-`Macsween, a popular maker of the distinctive Scottish dish, has developed a recipe for the U.S. market that swaps sheep lung for lamb heart as a main ingredient.`\
-https://nytimes.com/2025/01/25/dining/scotland-haggis-macsween-burns-night.html
 
