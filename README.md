@@ -14,7 +14,7 @@ https://nytimes.com/2025/01/24/us/idaho-same-sex-marriage-supreme-court.html
 `Finally, all 43 of the rhesus macaques have been found, according to the primate research facility in Yemassee, S.C., from which they fled in November.`\
 https://nytimes.com/2025/01/24/us/escaped-monkeys-captured-south-carolina.html
 
-**49ers to hire Robert Saleh as DC: Sources**\
+**49ers hire Robert Saleh as defensive coordinator**\
 `Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
 https://nytimes.com/athletic/6076242/2025/01/24/robert-saleh-hired-49ers-defensive-coordinator/
 
