@@ -108,6 +108,11 @@ https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Letter Openers**\
 `Rich Proulx presents a puzzle with pictures and sound.`\
 https://nytimes.com/2025/01/25/crosswords/daily-puzzle-2025-01-26.html
