@@ -1,3 +1,35 @@
+**In the Gaza Rubble, the Living Envy the Dead**\
+`So many children killed and injured, yet a lasting Middle East peace seems no closer.`\
+https://nytimes.com/2025/01/25/opinion/gaza-israel-ceasefire.html
+
+**Fast Times at West Wing High**\
+`Tech tycoons joining political big shots equals an ego explosion.`\
+https://nytimes.com/2025/01/25/opinion/donald-trump-alliances-tech-billionaires.html
+
+**Let’s Get to the Marrow of What Trump Just Did**\
+`Three policy wonks dissect President Donald Trump’s executive orders on border security, immigration, government efficiency and beyond.`\
+https://nytimes.com/2025/01/25/opinion/ezra-klein-podcast-dara-lind-matthew-yglesias.html
+
+**What I'm hearing about the Oilers' plans 6 weeks from trade deadline day**\
+`The Oilers are heading toward the March 7 deadline in a position of strength but will explore avenues to improve.`\
+https://nytimes.com/athletic/6087154/2025/01/25/oilers-hearing-trade-deadline-plans-2025/
+
+**Antisemitism Is a Bipartisan Problem**\
+`Calling out the other side for it is often a political smoke screen.`\
+https://nytimes.com/2025/01/25/opinion/antisemitism-left-right.html
+
+**We Australians Have Learned From Our Bushfires. Can Californians?**\
+`In California’s fire-stoked debate over how aggressively to manage both nature and urban sprawl, Australia can share both empathy and insight.`\
+https://nytimes.com/2025/01/25/opinion/australians-california-fires.html
+
+**The Wars Within Trump’s Court**\
+`The second Trump White House is starting out with a remarkable degree of conflict between different individuals, constituencies and worldviews.`\
+https://nytimes.com/2025/01/25/opinion/donald-trump-musk-altman.html
+
+**How Greater Autonomy Can Benefit Children**\
+`Readers offer examples in response to a guest essay.`\
+https://nytimes.com/2025/01/25/opinion/children-autonomy.html
+
 **Lindsey Vonn, in first race after crash, skis out of World Cup downhill in Germany**\
 `In her first race since falling in Cortina, Lindsey Vonn skied out and did not finish while three of her U.S. teammates earned top-11 spots.`\
 https://nytimes.com/athletic/6086300/2025/01/25/lindsey-vonn-dnf-downhill-world-cup-olympics-germany/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6086300/2025/01/25/lindsey-vonn-dnf-downhill-world-
 **Changing Tunes**\
 `The artists we love are always changing. But there’s part of all of us that’s impervious to external forces.`\
 https://nytimes.com/2025/01/25/briefing/changing-tunes.html
-
-**Game, Set, Match: Madison Keys beats Aryna Sabalenka for first Grand Slam title at Australian Open**\
-`A tense third set ended with the American lifting her first major, ending Sabalenka's dominance in Australia.`\
-https://nytimes.com/athletic/6087426/2025/01/25/sabalenka-keys-australian-open-final-result-analysis/
-
-**Hamas choreographs a show of force as it hands over the hostages.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/hamas-choreographs-a-show-of-force-as-it-hands-over-the-hostages
-
-**Madison Keys wins the Australian Open on her terms**\
-`The American is into the final in Melbourne, with husband Bjorn Fratangelo as her coach. This is how the married couple work it out`\
-https://nytimes.com/athletic/6079967/2025/01/25/madison-keys-australian-open-coach-bjorn-fratangelo/
-
-**Bears 2024 defense: What stats tell us about the drop-off and who ascended**\
-`The Bears had some bright spots on defense individually, but as a unit, had too big of a drop-off during the losing streak.`\
-https://nytimes.com/athletic/6069996/2025/01/25/bears-2024-defense-montez-sweat-jaylon-johnson/
-
-**'He’s a coach’s dream': Why Jacob Quillan is making his NHL debut with the Leafs**\
-`Quillan offers exactly the attributes that a bottom-six player in Leafs head coach Craig Berube’s system needs to have.`\
-https://nytimes.com/athletic/6087099/2025/01/25/maple-leafs-jacob-quillan-nhl-debut/
-
-**Dan Quinn's 'Commander Standard,' and how it quickly changed a team's culture**\
-`Quinn ignored 20-plus years of organizational dysfunction to lead Washington to the NFC title game in his first season as head coach.`\
-https://nytimes.com/athletic/6081688/2025/01/25/dan-quinn-commanders-culture-change-nfl/
-
-**Was the emotional Flyers-Ducks game Jamie Drysdale's Trea Turner moment?**\
-`Could the ovation Drysdale received Jan. 11 versus the Ducks be leading him to turn his season around for the Flyers?`\
-https://nytimes.com/athletic/6086942/2025/01/25/flyers-ducks-jamie-drysdale/
-
-**Quebec’s Ban on Religious Symbols Will Be Tested at the Supreme Court**\
-`Canada’s highest court will decide whether a law that Quebec enacted in 2019, barring public-sector workers from wearing religious symbols, violates their rights.`\
-https://nytimes.com/2025/01/25/world/canada/quebec-religious-symbols-bill-21.html
 
