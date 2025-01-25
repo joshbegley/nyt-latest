@@ -1,3 +1,7 @@
+**Israel Welcomes the Return of the Women Who Warned of a Raid From Gaza**\
+`Young female “spotters” for Israel’s army reported suspicious activity across the border. When Hamas attacked, 15 were killed and seven abducted. Four came home on Saturday.`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-spotters-hostages.html
+
 **Here’s How President Trump Shifted Policy in His First Week**\
 `Through a flurry of orders, the new president quickly began driving the country in a different direction on many contentious issues.`\
 https://nytimes.com/2025/01/25/us/politics/trump-immigration-climate-dei-policies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/magazine/trump-supporters-maga-america-future.htm
 **We Can Make A.I. Work for Us**\
 `A.I. can be designed to dramatically enhance individual empowerment.`\
 https://nytimes.com/2025/01/25/opinion/ai-chatgpt-empower-bot.html
-
-**Tamara Lawrance Wants Another Season of ‘The Traitors,’ but for Actors**\
-`The “Get Millie Black” star is a fan of reality TV in general. “Sometimes mindless things are very, very healthy for you,” she said.`\
-https://nytimes.com/2025/01/25/arts/television/tamara-lawrance-get-millie-black.html
 
