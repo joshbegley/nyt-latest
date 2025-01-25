@@ -26,10 +26,6 @@ https://nytimes.com/2025/01/25/crosswords/spelling-bee-forum.html
 `By Aaron Boxerman and Patrick Kingsley`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
 
-**Hamas Hostages Are Released to Israeli Forces**\
-`Israel’s military said the four hostages, all female soldiers, were being brought back to Israel from Gaza. Israel is now expected to release around 200 Palestinian prisoners.`\
-https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire
-
 **Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
 `As Chicago's rebuild moves forward, the three-team blockbuster trade is about the major details, not the minor ones.`\
 https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
 **Mark Jackson and the Leeds United influence making a mark in Australia**\
 `The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
 https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
+
+**Diego Carlos: A defensive contradiction**\
+`Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
+https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
 
