@@ -1,3 +1,7 @@
+**Hegseth Is Second Cabinet Secretary in History to Advance on Tiebreaker Vote**\
+`In 2017, Betsy DeVos barely survived her confirmation vote to become President Trump’s secretary of education.`\
+https://nytimes.com/2025/01/24/us/politics/hegseth-vote-devos-tiebreaker.html
+
 **Hegseth is the second cabinet secretary in history to advance on a tiebreaker vote.**\
 `By Annie Karni and Chris Cameron`\
 https://nytimes.com/2025/01/24/us/politics/hegseth-is-the-second-cabinet-secretary-in-history-to-advance-on-a-tiebreaker-vote.html
