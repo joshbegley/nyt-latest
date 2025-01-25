@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6087275/2025/01/24/mikko-rantanen-hurricanes-stanle
 https://nytimes.com/2025/01/24/us/politics/tour-pacific-palisades-wildfire-damage.html
 
 **Cowboys hire Brian Schottenheimer as next coach**\
-`Serving as Cowboys offensive coordinator the last two seaosns, Schottenheimer brings 24 years of NFL coaching experience to the job.`\
+`Serving as Cowboys offensive coordinator the last two seaosns, Schottenheimer brings 25 years of NFL coaching experience to the job.`\
 https://nytimes.com/athletic/6081269/2025/01/24/brian-schottenheimer-dallas-cowboys-head-coach-hired/
 
 **Idaho Lawmakers Want Supreme Court to Overturn Same-Sex Marriage Decision**\
