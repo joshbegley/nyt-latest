@@ -1,3 +1,19 @@
+**Greenberg: In wake of historically bad season, White Sox bring back their winter fan fest**\
+`It may not have been the best timing, but at least the team revealed it is planning a 2005 White Sox reunion and a statue for Mark Buehrle.`\
+https://nytimes.com/athletic/6087782/2025/01/25/chicago-white-sox-mark-buehrle-fan-fest/
+
+**Auburn center Johni Broome a game-time decision in matchup vs. Tennessee**\
+`Broome will test the ankle out during warmups and see how he feels before making a final decision.`\
+https://nytimes.com/athletic/6087900/2025/01/25/auburn-johni-broome-tennessee-sec/
+
+**Trump names a new acting director for national intelligence, ousting a Biden official associated with D.E.I. initiatives.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/01/25/us/trump-administration-news/trump-names-a-new-acting-director-for-national-intelligence-ousting-a-biden-official-associated-with-dei-initiatives
+
+**Minteh left out of Brighton XI for Everton game after arriving late**\
+`Yankuba Minteh was left out of Brighton &amp; Hove Albion&#8217;s starting line-up for the 1-0 home defeat by Everton after turning up late.`\
+https://nytimes.com/athletic/6087849/2025/01/25/yankuba-minteh-brighton-everton/
+
 **Man Utd's Antony completes Betis loan**\
 `Real Betis have completed the signing of Antony on loan from Manchester United until the end of the season.`\
 https://nytimes.com/athletic/6086235/2025/01/25/antony-manchester-united-real-betis-loan/
