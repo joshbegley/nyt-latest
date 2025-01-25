@@ -1,3 +1,11 @@
+**Underwhelming hire latest example of Cowboys being one of NFL's most conservative franchises**\
+`This might not be the best move to get the franchise another ring, but it keeps continuity and to Jones it probably feels safe.`\
+https://nytimes.com/athletic/6084066/2025/01/24/cowboys-brian-schottenheimer-hire-jerry-jones/
+
+**Deportation Fears Spread Among Immigrants With Provisional Legal Status**\
+`President Trump is targeting people who have been living in the country under Biden immigration programs that shielded them from deportation and allowed them to work.`\
+https://nytimes.com/2025/01/24/us/trump-deportation-legal-immigrant-fears.html
+
 **How does the Mikko Rantanen trade affect Carolina's Stanley Cup chances?**\
 `After the blockbuster trade, the Hurricanes are the favorites to come out of the East with a 12.7 percent chance of winning the Cup.`\
 https://nytimes.com/athletic/6087275/2025/01/24/mikko-rantanen-hurricanes-stanley-cup-chances/

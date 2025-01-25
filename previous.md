@@ -1,3 +1,11 @@
+**Underwhelming hire latest example of Cowboys being one of NFL's most conservative franchises**\
+`This might not be the best move to get the franchise another ring, but it keeps continuity and to Jones it probably feels safe.`\
+https://nytimes.com/athletic/6084066/2025/01/24/cowboys-brian-schottenheimer-hire-jerry-jones/
+
+**Deportation Fears Spread Among Immigrants With Provisional Legal Status**\
+`President Trump is targeting people who have been living in the country under Biden immigration programs that shielded them from deportation and allowed them to work.`\
+https://nytimes.com/2025/01/24/us/trump-deportation-legal-immigrant-fears.html
+
 **How does the Mikko Rantanen trade affect Carolina's Stanley Cup chances?**\
 `After the blockbuster trade, the Hurricanes are the favorites to come out of the East with a 12.7 percent chance of winning the Cup.`\
 https://nytimes.com/athletic/6087275/2025/01/24/mikko-rantanen-hurricanes-stanley-cup-chances/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/24/us/president-trump-news/two-military-jets-ca
 **NHL trade grades: Hurricanes acquire Mikko Rantanen in stunning blockbuster with Avalanche**\
 `The Hurricanes added a superstar to their lineup and win the trade, but how much will depend on if he re-signs in Carolina.`\
 https://nytimes.com/athletic/6087230/2025/01/24/nhl-trade-grades-avalanche-hurricanes-rantanen/
-
-**Take Another Direction**\
-`Michael Lieberman’s Saturday debut puts up an imposing defense.`\
-https://nytimes.com/2025/01/24/crosswords/daily-puzzle-2025-01-25.html
-
-**Hurricanes trade for Mikko Rantanen, Taylor Hall in 3-team deal**\
-`The trade is a stunning midseason swap of point-per-game players in their primes, an anomaly in the NHL trade market in the salary-cap era.`\
-https://nytimes.com/athletic/6087207/2025/01/24/rantanen-necas-hall-drury-hurricanes-avalanche-3-way-trade/
 
