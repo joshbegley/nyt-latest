@@ -1,3 +1,7 @@
+**Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
+`As Chicago's rebuild moves forward, the 3-team blockbuster trade is about the major details, not the minor ones.`\
+https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
+
 **Mark Jackson and the Leeds United influence making a mark in Australia**\
 `The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
 https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
