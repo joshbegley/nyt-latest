@@ -1,3 +1,7 @@
+**Will Mikko Rantanen re-sign with the Hurricanes? Projecting his next contract**\
+`Carolina can re-sign Rantanen and maintain a formidable supporting cast around him, which might have been tough for Colorado.`\
+https://nytimes.com/athletic/6087286/2025/01/25/rantanen-contract-hurricanes-trade/
+
 **Trump Doesn’t Get to Decide What the Constitution Means**\
 `There is no plausible justification for the administration’s interpretation of the 14th Amendment`\
 https://nytimes.com/2025/01/25/opinion/trump-birthright-citizenship-constitution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/dining/trump-immigration-undocumented-workers-res
 **Jerry Jones' worst nightmare: Approach to Cowboys' hire could invoke fan apathy**\
 `Although postseason wins have been scarce for the Cowboys, business has been booming.`\
 https://nytimes.com/athletic/6087415/2025/01/25/cowboys-jerry-jones-hire-brian-schottenheimer-fans-reaction/
-
-**It’s a day of mixed emotions for families of the freed Palestinian prisoners.**\
-`By Fatima AbdulKarim`\
-https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/its-a-day-of-mixed-emotions-for-families-of-the-freed-palestinian-prisoners
 
