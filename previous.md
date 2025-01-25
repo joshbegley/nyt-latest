@@ -1,3 +1,7 @@
+**Vanderbilt's court-storming encore, Texas' 22-point rally top SEC's wild day**\
+`Holding serve at home is critical to the SEC's chances of packing the bracket, and two prominent bubble-bound squads are helping the cause.`\
+https://nytimes.com/athletic/6088341/2025/01/25/vanderbilt-kentucky-texas-tamu-sec-basketball/
+
 **Letter Openers**\
 `Rich Proulx presents a puzzle with pictures and sound.`\
 https://nytimes.com/2025/01/25/crosswords/daily-puzzle-2025-01-26.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.ht
 **After 3 Days Trapped in Lake Erie Ice, a Canadian Ship Is Finally Freed**\
 `The 17-member crew of the freighter, stuck a mile off the Buffalo shore, was never in serious danger, but its predicament drew news media attention and a crowd of curious onlookers.`\
 https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
-
-**38 Injured After ‘Unexpected Aircraft Movement’ on a United Flight**\
-`The authorities in Nigeria said that the United Airlines plane had to return to Lagos, Nigeria, after the episode. Six people were treated at a hospital, officials said.`\
-https://nytimes.com/2025/01/25/business/united-airlines-emergency-landing-nigeria.html
 
