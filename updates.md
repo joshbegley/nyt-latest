@@ -1,3 +1,11 @@
+**Hamas choreographs a show of force as it hands over the hostages.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/hamas-choreographs-a-show-of-force-as-it-hands-over-the-hostages
+
+**Madison Keys wins the Australian Open on her terms**\
+`The American is into the final in Melbourne, with husband Bjorn Fratangelo as her coach. This is how the married couple work it out`\
+https://nytimes.com/athletic/6079967/2025/01/25/madison-keys-australian-open-coach-bjorn-fratangelo/
+
 **Bears 2024 defense: What stats tell us about the drop-off and who ascended**\
 `The Bears had some bright spots on defense individually, but as a unit, had too big of a drop-off during the losing streak.`\
 https://nytimes.com/athletic/6069996/2025/01/25/bears-2024-defense-montez-sweat-jaylon-johnson/
