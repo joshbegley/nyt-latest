@@ -1,3 +1,7 @@
+**Live Senate Tally: Pete Hegseth Confirmation Vote**\
+`Follow the vote count live.`\
+https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
+
 **No. 2 South Carolina hands No. 5 LSU women's hoops first loss of season**\
 `The Gamecocks are 19-1 while playing the toughest schedule in the country this season.`\
 https://nytimes.com/athletic/6087146/2025/01/24/south-carolina-basketball-lsu-score-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/obituaries/jo-baer-evolving.html
 **Trump and Newsom Promise to Work Together for California, Putting Sparring Aside**\
 `Gov. Gavin Newsom told the president that California needed his help, and President Trump said he would work to “get something completed.”`\
 https://nytimes.com/2025/01/24/us/politics/trump-newsom-california-wildfires-relief.html
-
-**Wildfires Are Revealing the Limits of Our Hydrant Systems**\
-`While hydrants can play a role in fighting a wildfire in its early stages, the systems weren’t designed to combat the large blazes currently ravaging the Los Angeles area.`\
-https://nytimes.com/interactive/2025/01/24/us/la-fires-hydrants-water.html
 

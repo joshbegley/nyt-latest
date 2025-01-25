@@ -1,3 +1,7 @@
+**Live Senate Tally: Pete Hegseth Confirmation Vote**\
+`Follow the vote count live.`\
+https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
+
 **No. 2 South Carolina hands No. 5 LSU women's hoops first loss of season**\
 `The Gamecocks are 19-1 while playing the toughest schedule in the country this season.`\
 https://nytimes.com/athletic/6087146/2025/01/24/south-carolina-basketball-lsu-score-analysis/
