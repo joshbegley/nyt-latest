@@ -1,3 +1,7 @@
+**Ed Cooley drops to 0-4 against Providence as Georgetown's slide continues**\
+`Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
+https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
+
 **Pacers, Tyrese Haliburton avenge loss to Spurs with 30-point win in Paris**\
 `Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
 https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087975/2025/01/25/wolves-transfers-vitor-pereira/
 **LeBrun: Unpacking the Mikko Rantanen trade — a rare NHL in-season blockbuster**\
 `Where does the NHL's biggest in-season trade in decades leave the Canes, Avs and Blackhawks ... and the Canucks and Rangers? Let's dig in.`\
 https://nytimes.com/athletic/6087889/2025/01/25/mikko-rantanen-trade-unpacked/
-
-**They Were Waiting for Flights. Then Trump Closed a Door for Afghan Allies.**\
-`An executive order has halted refugee flights for Afghans who supported the American mission in Afghanistan and had been approved to resettle in the U.S.`\
-https://nytimes.com/2025/01/25/world/asia/trump-executive-order-immigration-afghanistan.html
 
