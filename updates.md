@@ -1,3 +1,7 @@
+**Mark Jackson and the Leeds United influence making a mark in Australia**\
+`The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
+https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
+
 **Diego Carlos: A defensive contradiction**\
 `Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
 https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
