@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Hegseth’s Views May Clash With Reality at the Pentagon**\
 `The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
 https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html
