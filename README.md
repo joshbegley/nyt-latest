@@ -1,3 +1,7 @@
+**Arsenal captain Odegaard misses Wolves clash due to illness, Merino also absent**\
+`Arsenal captain Martin Odegaard will miss his side&#8217;s Premier League trip to Wolverhampton Wanderers due to illness.`\
+https://nytimes.com/athletic/6087580/2025/01/25/arsenal-team-news-martin-odegaard-injury/
+
 **Crafting a Haggis for American Tastes (and Import Restrictions)**\
 `Macsween, a popular maker of the distinctive Scottish dish, has developed a recipe for the U.S. market that swaps sheep lung for lamb heart as a main ingredient.`\
 https://nytimes.com/2025/01/25/dining/scotland-haggis-macsween-burns-night.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084227/2025/01/25/reaching-the-super-bowl-is-hard-
 **Barry Sternlicht Is Reviving the Starwood Hotel Brand**\
 `Twenty years ago, the hotel magnate stepped down from Starwood, which later sold to Marriott for $13 billion. Now, he wants to give it another go.`\
 https://nytimes.com/2025/01/25/business/dealbook/starwood-hotels-barry-sternlicht.html
-
-**Why Raiders believe Pete Carroll and John Spytek are the right fits to get franchise on track**\
-`The word “culture” will be thrown around a lot when Carroll and Spytek are introduced, but "continuity" might be the bigger word.`\
-https://nytimes.com/athletic/6086880/2025/01/25/raiders-pete-carroll-john-spytek/
 
