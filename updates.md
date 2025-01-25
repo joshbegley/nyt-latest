@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Rangers, Will Borgen agree to 5-year, $20.5 million extension**\
 `The Rangers' front office hoped an extension would be the end result when it targeted Borgen in the trade market, per a league source.`\
 https://nytimes.com/athletic/6088413/2025/01/25/will-borgen-rangers-extend-contract-nhl/
