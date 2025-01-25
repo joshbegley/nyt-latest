@@ -1,3 +1,15 @@
+**After 3 Days Trapped in Lake Erie Ice, a Canadian Ship Is Finally Freed**\
+`The 17-member crew of the freighter, stuck a mile off the Buffalo shore, was never in serious danger, but its predicament drew news media attention and a crowd of curious onlookers.`\
+https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
+
+**38 Injured After ‘Unexpected Aircraft Movement’ on a United Flight**\
+`The authorities in Nigeria said that the United Airlines plane had to return to Lagos, Nigeria, after the episode. Six people were treated at a hospital, officials said.`\
+https://nytimes.com/2025/01/25/business/united-airlines-emergency-landing-nigeria.html
+
+**Jets to hire Broncos' Darren Mougey as team's new general manager**\
+`Darren Mougey replaces Joe Douglas, who was fired as GM late in the 2024 season after failing to make the playoffs over a six-year tenure.`\
+https://nytimes.com/athletic/6086559/2025/01/25/darren-mougey-hired-ny-jets-general-manager/
+
 **Mike Hynson, Surfing Star of ‘The Endless Summer,’ Dies at 82**\
 `The hit 1966 surfing documentary immortalized the maverick California wave rider as an archetype of the footloose rebel surfer.`\
 https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6088099/2025/01/25/robert-sanchez-chelsea-maresca/
 **Kristi Noem Is Confirmed as Homeland Security Secretary**\
 `The former South Dakota governor now leads the agency that runs the nation’s immigration system.`\
 https://nytimes.com/2025/01/25/us/politics/kristi-noem-homeland-security-confirmation.html
-
-**Mets owner Steve Cohen 'brutally honest' about Pete Alonso negotiations**\
-`Last week, the Mets made a counteroffer of three years to Alonso and agent Scott Bora and it was rejected.`\
-https://nytimes.com/athletic/6088030/2025/01/25/mets-pete-alonso-contract-free-agency-steve-cohen/
-
-**The Briefing - Man City 3 Chelsea 1: Is Sanchez's position becoming untenable? How did Guardiola unpick Maresca's plan?**\
-`Champions City beat visitors Chelsea on Saturday to climb above them into fourth place in the Premier League table`\
-https://nytimes.com/athletic/6080717/2025/01/25/manchester-city-chelsea-result-report-analysis/
-
-**Wolves' Pereira confident new signings will arrive before transfer window closes**\
-`Wolverhampton Wanderers head coach Vitor Pereira has claimed he is confident his side will land the signings he wants before the end of the transfer window and stay in the Premier League.`\
-https://nytimes.com/athletic/6087975/2025/01/25/wolves-transfers-vitor-pereira/
 

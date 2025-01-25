@@ -1,3 +1,15 @@
+**After 3 Days Trapped in Lake Erie Ice, a Canadian Ship Is Finally Freed**\
+`The 17-member crew of the freighter, stuck a mile off the Buffalo shore, was never in serious danger, but its predicament drew news media attention and a crowd of curious onlookers.`\
+https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
+
+**38 Injured After ‘Unexpected Aircraft Movement’ on a United Flight**\
+`The authorities in Nigeria said that the United Airlines plane had to return to Lagos, Nigeria, after the episode. Six people were treated at a hospital, officials said.`\
+https://nytimes.com/2025/01/25/business/united-airlines-emergency-landing-nigeria.html
+
+**Jets to hire Broncos' Darren Mougey as team's new general manager**\
+`Darren Mougey replaces Joe Douglas, who was fired as GM late in the 2024 season after failing to make the playoffs over a six-year tenure.`\
+https://nytimes.com/athletic/6086559/2025/01/25/darren-mougey-hired-ny-jets-general-manager/
+
 **Mike Hynson, Surfing Star of ‘The Endless Summer,’ Dies at 82**\
 `The hit 1966 surfing documentary immortalized the maverick California wave rider as an archetype of the footloose rebel surfer.`\
 https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
