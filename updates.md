@@ -1,3 +1,7 @@
+**Minutes for Scarles and Orford show Potter is keen to turn to West Ham's academy**\
+`The wealth of youth players available to the new West Ham manager should feel optimistic he will give them first-team opportunities`\
+https://nytimes.com/athletic/6057877/2025/01/25/minutes-for-scarles-and-orford-show-graham-potter-keen-to-make-use-of-west-hams-academy/
+
 **Kylian Mbappe, the owner: This club 'is not your toy'**\
 `The Real Madrid star is the majority owner of French side Stade Malherbe Caen. It is not going particularly well so far`\
 https://nytimes.com/athletic/6085900/2025/01/25/kylian-mbappe-the-owner-this-club-is-not-your-toy/
