@@ -1,3 +1,11 @@
+**Nearly 3 Decades After Texas Woman’s Murder, a Former Tenant Is Charged**\
+`Mary Moore Searight, a prominent landowner and benefactor, was killed in 1996 at her home in Paris, Texas. In 2023, DNA obtained from a tenant, David Paul Cady Jr., linked him to her final moments, the authorities say.`\
+https://nytimes.com/2025/01/24/us/texas-murder-dna-evidence.html
+
+**New Luxury Hotel in Serbia Will Be a Trump-Kushner Joint Project**\
+`The plan illustrates the continued ambitions of the Trump family to forge new international deals even as President Trump has returned to the White House.`\
+https://nytimes.com/2025/01/24/us/politics/trump-kushner-serbia-hotel.html
+
 **Jo Baer Evolving**\
 `After becoming famous for extreme abstraction, she left Minimalism behind.`\
 https://nytimes.com/2025/01/24/obituaries/jo-baer-evolving.html
