@@ -1,3 +1,11 @@
+**Diego Carlos: A defensive contradiction**\
+`Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
+https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
+
+**Barcelona's midfielders assessed: Who should be in Hansi Flick's starting XI?**\
+`Gavi, Pedri, Olmo, De Jong, Casado — what's the strongest combination?`\
+https://nytimes.com/athletic/6086112/2025/01/25/barcelonas-midfield-options-assessed-who-should-be-in-hansi-flicks-starting-xi/
+
 **Minutes for Scarles and Orford show Potter is keen to turn to West Ham's academy**\
 `The wealth of youth players available to the new West Ham manager should feel optimistic he will give them first-team opportunities`\
 https://nytimes.com/athletic/6057877/2025/01/25/minutes-for-scarles-and-orford-show-graham-potter-keen-to-make-use-of-west-hams-academy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6082940/2025/01/25/man-city-chelsea-champions-leagu
 **'He's just living his best life' - meet the six-year-old Liverpool fan who became a social media star**\
 `A video of Isaac Kearney has been viewed more than 140million times and moved fans across the world to get in touch`\
 https://nytimes.com/athletic/6083122/2025/01/25/isaac-kearney-liverpool-fan-social-media/
-
-**Student Life in Rebel Territory: Bombs, Snakes and Hungry Cows**\
-`As Myanmar’s civil war heads into a fifth year, anti-junta forces are opening universities and colleges as part of their pursuit of a federal democracy.`\
-https://nytimes.com/2025/01/25/world/asia/myanmar-rebels-colleges.html
-
-**Spurs vs. Pacers, Part Deux: Wembanyama and San Antonio seek Parisian sweep**\
-`The Spurs and Pacers play a second Paris game, this time on ESPN. Victor Wembanyama was sensational in Thursday's blowout win.`\
-https://nytimes.com/athletic/6084711/2025/01/25/spurs-pacers-wemby-paris-espn-how-to-watch-odds-preview/
 
