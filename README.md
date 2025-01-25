@@ -1,3 +1,7 @@
+**Crafting a Haggis for American Tastes (and Import Restrictions)**\
+`Macsween, a popular maker of the distinctive Scottish dish, has developed a recipe for the U.S. market that swaps sheep lung for lamb heart as a main ingredient.`\
+https://nytimes.com/2025/01/25/dining/scotland-haggis-macsween-burns-night.html
+
 **Leicester Choudhury set to join Sheffield United on loan**\
 `Leicester City midfielder Hamza Choudhury is set to join Sheffield United on loan.`\
 https://nytimes.com/athletic/6087549/2025/01/25/leicester-choudhury-sheffield-united-loan-tranfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/business/dealbook/starwood-hotels-barry-sternlich
 **Why Raiders believe Pete Carroll and John Spytek are the right fits to get franchise on track**\
 `The word “culture” will be thrown around a lot when Carroll and Spytek are introduced, but "continuity" might be the bigger word.`\
 https://nytimes.com/athletic/6086880/2025/01/25/raiders-pete-carroll-john-spytek/
-
-**The Cheat Sheet on Trump’s First Week**\
-`It was a whirlwind. Here’s what business leaders need to know.`\
-https://nytimes.com/2025/01/25/business/dealbook/trump-first-week.html
 
