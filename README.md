@@ -1,4 +1,4 @@
-**The Briefing: Man City 3 Chelsea 1: Is Sanchez's position becoming untenable? Did Guardiola unpick Chelsea?**\
+**The Briefing - Man City 3 Chelsea 1: Is Sanchez's position becoming untenable? Did Guardiola unpick Maresca's plan?**\
 `Manchester City beat Chelsea 3-1 on Saturday evening to climb above them in the Premier League table`\
 https://nytimes.com/athletic/6080717/2025/01/25/manchester-city-chelsea-result-report-analysis/
 
