@@ -1,3 +1,7 @@
+**Madison Keys fulfils her tennis destiny on a breezy night in Melbourne**\
+`At 14, Madison Keys appeared destined for a Grand Slam trophy. Sixteen years later on a breezy night in Melbourne, she held it in her hands.`\
+https://nytimes.com/athletic/6087504/2025/01/25/madison-keys-australian-open/
+
 **Jerry Jones' worst nightmare: Approach to Cowboys' hire could invoke fan apathy**\
 `Although postseason wins have been scarce for the Cowboys, business has been booming.`\
 https://nytimes.com/athletic/6087415/2025/01/25/cowboys-jerry-jones-hire-brian-schottenheimer-fans-reaction/
