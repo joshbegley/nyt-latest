@@ -1,3 +1,11 @@
+**Kylian Mbappe, the owner: This club 'is not your toy'**\
+`The Real Madrid star is the majority owner of French side Stade Malherbe Caen. It is not going particularly well so far`\
+https://nytimes.com/athletic/6085900/2025/01/25/kylian-mbappe-the-owner-this-club-is-not-your-toy/
+
+**'Good or bad, he tells us everything' - Understanding Ruben Amorim's brutal honesty**\
+`Amorim is a firm believer that honesty is the best policy, and he has not held back in his assessment of Manchester United`\
+https://nytimes.com/athletic/6086418/2025/01/25/ruben-amorim-honesty-communication/
+
 **The stark reality of watching a Pep Guardiola midfield in 2025**\
 `It is a source of some bewilderment that Guardiola, of all coaches, should have allowed such a key part of his team to fall into decline`\
 https://nytimes.com/athletic/6086107/2025/01/25/pep-guardiola-midfield-decline-manchester-city/

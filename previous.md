@@ -1,3 +1,11 @@
+**Kylian Mbappe, the owner: This club 'is not your toy'**\
+`The Real Madrid star is the majority owner of French side Stade Malherbe Caen. It is not going particularly well so far`\
+https://nytimes.com/athletic/6085900/2025/01/25/kylian-mbappe-the-owner-this-club-is-not-your-toy/
+
+**'Good or bad, he tells us everything' - Understanding Ruben Amorim's brutal honesty**\
+`Amorim is a firm believer that honesty is the best policy, and he has not held back in his assessment of Manchester United`\
+https://nytimes.com/athletic/6086418/2025/01/25/ruben-amorim-honesty-communication/
+
 **The stark reality of watching a Pep Guardiola midfield in 2025**\
 `It is a source of some bewilderment that Guardiola, of all coaches, should have allowed such a key part of his team to fall into decline`\
 https://nytimes.com/athletic/6086107/2025/01/25/pep-guardiola-midfield-decline-manchester-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6084711/2025/01/25/spurs-pacers-wemby-paris-espn-ho
 **Manchester City vs Chelsea: Can City surge ahead after their slump?**\
 `Chelsea are fourth in the Premier League, but only two points ahead of Manchester City ahead of Saturday's massive clash.`\
 https://nytimes.com/athletic/6079131/2025/01/25/manchester-city-vs-chelsea-preview-storylines-odds-prediction-for-massive-match-in-champions-league-race/
-
-**In China, Rare Dissent Over a Program to Save on Drug Costs**\
-`Top doctors raised concerns about domestically made drugs, saying Beijing’s effort to lower costs is sacrificing quality.`\
-https://nytimes.com/2025/01/25/business/china-pharma-drugs.html
-
-**Johnston: Inside the Mikko Rantanen trade — how it went down, why now and what next?**\
-`The trade "stunned" execs around the league, but the Canes and Avs had been in talks since June. And now? "What else is Colorado up to?"`\
-https://nytimes.com/athletic/6087363/2025/01/24/hurricanes-avalanche-mikko-rantanen-trade/
 
