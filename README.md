@@ -10,9 +10,9 @@ https://nytimes.com/athletic/6087889/2025/01/25/mikko-rantanen-trade-unpacked/
 `An executive order has halted refugee flights for Afghans who supported the American mission in Afghanistan and had been approved to resettle in the U.S.`\
 https://nytimes.com/2025/01/25/world/asia/trump-executive-order-immigration-afghanistan.html
 
-**The State Dept. halts global mine-clearing programs.**\
+**State Dept. Halts Global Mine-Clearing Programs**\
 `Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
-https://nytimes.com/2025/01/25/us/politics/state-dept-halts-global-mine-clearing-programs.html
+https://nytimes.com/2025/01/25/us/politics/mine-clearing-programs-state-dept.html
 
 **Alex Bregman, Astros reunion 'a long shot' in free agency, GM says**\
 `Astros GM Dana Brown said the door is “cracked” for Bregman to return to the team.`\
