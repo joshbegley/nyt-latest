@@ -37,5 +37,5 @@ https://nytimes.com/athletic/6088170/2025/01/25/lions-defensive-coordinator-kelv
 
 **Hegseth’s Views May Clash With Reality at the Pentagon**\
 `The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
-https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html
+https://nytimes.com/live/2025/01/25/us/trump-administration-news/pete-hegseth-new-defense-secretary
 
