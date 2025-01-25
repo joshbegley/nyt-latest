@@ -1,3 +1,7 @@
+**Jo Baer Evolving**\
+`After becoming famous for extreme abstraction, she left Minimalism behind.`\
+https://nytimes.com/2025/01/24/obituaries/jo-baer-evolving.html
+
 **Trump and Newsom Promise to Work Together for California, Putting Sparring Aside**\
 `Gov. Gavin Newsom told the president that California needed his help, and President Trump said he would work to “get something completed.”`\
 https://nytimes.com/2025/01/24/us/politics/trump-newsom-california-wildfires-relief.html

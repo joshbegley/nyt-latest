@@ -1,3 +1,7 @@
+**Jo Baer Evolving**\
+`After becoming famous for extreme abstraction, she left Minimalism behind.`\
+https://nytimes.com/2025/01/24/obituaries/jo-baer-evolving.html
+
 **Trump and Newsom Promise to Work Together for California, Putting Sparring Aside**\
 `Gov. Gavin Newsom told the president that California needed his help, and President Trump said he would work to “get something completed.”`\
 https://nytimes.com/2025/01/24/us/politics/trump-newsom-california-wildfires-relief.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/trump-second-term-differences-lessons
 **Education Dept. Ends Book Ban Investigations**\
 `The department said it would relinquish its role investigating schools that had received civil rights complaints after removing books dealing with sexual and racial identity.`\
 https://nytimes.com/2025/01/24/us/politics/education-dept-ends-book-ban-investigations.html
-
-**USC expected to hire Notre Dame GM Chad Bowden**\
-`Bowden played a huge role in reshaping Notre Dame's approach to talent acquisition. Can he do the same at USC?`\
-https://nytimes.com/athletic/6087046/2025/01/24/usc-football-gm-chad-bowden-notre-dame/
 
