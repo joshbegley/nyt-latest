@@ -1,3 +1,7 @@
+**Johnston: Inside the Mikko Rantanen trade — how it went down, why now and what next?**\
+`The trade "stunned" execs around the league, but the Canes and Avs had been in talks since June. And now? "What else is Colorado up to?"`\
+https://nytimes.com/athletic/6087363/2025/01/24/hurricanes-avalanche-mikko-rantanen-trade/
+
 **Trump Fires 17 Inspectors General in Late-Night Purge**\
 `The internal government watchdogs were believed to have been dismissed at several major agencies, though the Justice Department’s was not said to have been among them.`\
 https://nytimes.com/2025/01/24/us/politics/trump-fires-inspectors-general.html

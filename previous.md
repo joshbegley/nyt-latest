@@ -1,3 +1,7 @@
+**Johnston: Inside the Mikko Rantanen trade — how it went down, why now and what next?**\
+`The trade "stunned" execs around the league, but the Canes and Avs had been in talks since June. And now? "What else is Colorado up to?"`\
+https://nytimes.com/athletic/6087363/2025/01/24/hurricanes-avalanche-mikko-rantanen-trade/
+
 **Trump Fires 17 Inspectors General in Late-Night Purge**\
 `The internal government watchdogs were believed to have been dismissed at several major agencies, though the Justice Department’s was not said to have been among them.`\
 https://nytimes.com/2025/01/24/us/politics/trump-fires-inspectors-general.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/idaho-same-sex-marriage-supreme-court.html
 **Last 4 Monkeys That Escaped in South Carolina Are Captured**\
 `Finally, all 43 of the rhesus macaques have been found, according to the primate research facility in Yemassee, S.C., from which they fled in November.`\
 https://nytimes.com/2025/01/24/us/escaped-monkeys-captured-south-carolina.html
-
-**49ers hire Robert Saleh as defensive coordinator**\
-`Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
-https://nytimes.com/athletic/6076242/2025/01/24/robert-saleh-hired-49ers-defensive-coordinator/
 
