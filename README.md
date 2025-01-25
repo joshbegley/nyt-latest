@@ -1,3 +1,7 @@
+**Take Another Direction**\
+`Michael Lieberman’s Saturday debut puts up an imposing defense.`\
+https://nytimes.com/2025/01/24/crosswords/daily-puzzle-2025-01-25.html
+
 **Hurricanes trade for Mikko Rantanen, Taylor Hall in 3-team deal**\
 `The trade is a stunning midseason swap of point-per-game players in their primes, an anomaly in the NHL trade market in the salary-cap era.`\
 https://nytimes.com/athletic/6087207/2025/01/24/rantanen-necas-hall-drury-hurricanes-avalanche-3-way-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/world/middleeast/israel-unrwa-palestinian-refugee
 **Reports of Immigration Agents at Chicago School Set Off Fear, but Are Proved False**\
 `The agents turned out to be unrelated to immigration, officials said hours later. They were from the Secret Service, investigating a threat.`\
 https://nytimes.com/2025/01/24/us/chicago-school-immigration-secret-service.html
-
-**Court Sides With Democrats in Fight Over Control of Minnesota House**\
-`Minnesota’s top court ruled that Republicans had overstepped their authority by conducting business in the Legislature even as Democrats boycotted the session.`\
-https://nytimes.com/2025/01/24/us/court-democrats-control-minnesota-house.html
 

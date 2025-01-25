@@ -1,3 +1,7 @@
+**How The Senate Voted to Confirm Pete Hegseth as Secretary of Defense**\
+`Follow the secretary of defense confirmation vote count live.`\
+https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
+
 **Hurricanes trade for Mikko Rantanen, Taylor Hall in 3-team deal**\
 `The trade is a stunning midseason swap of point-per-game players in their primes, an anomaly in the NHL trade market in the salary-cap era.`\
 https://nytimes.com/athletic/6087207/2025/01/24/rantanen-necas-hall-drury-hurricanes-avalanche-3-way-trade/
