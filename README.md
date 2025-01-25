@@ -1,4 +1,4 @@
-**Arsenal captain Odegaard misses Wolves clash due to illness, Merino also absent**\
+**Arsenal captain Odegaard misses Wolves clash due to illness**\
 `Arsenal captain Martin Odegaard will miss his side&#8217;s Premier League trip to Wolverhampton Wanderers due to illness.`\
 https://nytimes.com/athletic/6087580/2025/01/25/arsenal-team-news-martin-odegaard-injury/
 
