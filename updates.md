@@ -1,3 +1,7 @@
+**Israel Welcomes the Return of the Women Who Warned of a Raid From Gaza**\
+`Young female “spotters” for Israel’s army reported suspicious activity across the border. When Hamas attacked, 15 were killed and seven abducted. Four came home on Saturday.`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-spotters-hostages.html
+
 **Here’s How President Trump Shifted Policy in His First Week**\
 `Through a flurry of orders, the new president quickly began driving the country in a different direction on many contentious issues.`\
 https://nytimes.com/2025/01/25/us/politics/trump-immigration-climate-dei-policies.html
