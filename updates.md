@@ -1,3 +1,7 @@
+**Israel and Hamas Dispute Over Hostage Leaves Displaced Palestinians Waiting**\
+`Israel is preventing movement to the north of Gaza until plans are set for the release of Arbel Yehud, one of the last civilian women held in Gaza.`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-hamas-gaza-hostage-yehud.html
+
 **The Briefing: Southampton 1 Newcastle 3 - Howe's team fight back, Isak does it again**\
 `Analysis of Newcastle United's Premier League game away to Southampton`\
 https://nytimes.com/athletic/6080716/2025/01/25/southampton-1-newcastle-3-highlights/
