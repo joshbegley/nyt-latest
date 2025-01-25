@@ -1,3 +1,7 @@
+**Israel releases 200 Palestinian prisoners, many of whom were serving life sentences.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/israel-releases-200-palestinian-prisoners-many-of-whom-were-serving-life-sentences
+
 **2 Novels for Cold Weather**\
 `Joan Aiken’s neo-Gothic; Joseph Roth’s family epic.`\
 https://nytimes.com/2025/01/25/books/2-novels-for-cold-weather.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/opinion/australians-california-fires.html
 **The Wars Within Trump’s Court**\
 `The second Trump White House is starting out with a remarkable degree of conflict between different individuals, constituencies and worldviews.`\
 https://nytimes.com/2025/01/25/opinion/donald-trump-musk-altman.html
-
-**How Greater Autonomy Can Benefit Children**\
-`Readers offer examples in response to a guest essay.`\
-https://nytimes.com/2025/01/25/opinion/children-autonomy.html
 

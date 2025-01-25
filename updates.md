@@ -1,3 +1,7 @@
+**2 Novels for Cold Weather**\
+`Joan Aiken’s neo-Gothic; Joseph Roth’s family epic.`\
+https://nytimes.com/2025/01/25/books/2-novels-for-cold-weather.html
+
 **Wembymania: What Paris feels like when Victor Wembanyama is in town**\
 `It takes a lot to turn heads during Paris Fashion Week, but the homecoming of an NBA phenom did just that.`\
 https://nytimes.com/athletic/6083573/2025/01/25/victor-wembanyama-paris-excitement-nba/
