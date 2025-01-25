@@ -1,3 +1,19 @@
+**Getting to the Super Bowl is hard, so here's a tough quiz about the contenders**\
+`How ready are you for Commanders-Eagles and Bills-Chiefs on Sunday? Take our quiz to find out.`\
+https://nytimes.com/athletic/6084227/2025/01/25/reaching-the-super-bowl-is-hard-this-quiz-on-the-afc-and-nfc-contenders-is-no-cakewalk-either/
+
+**Barry Sternlicht Is Reviving the Starwood Hotel Brand**\
+`Twenty years ago, the hotel magnate stepped down from Starwood, which later sold to Marriott for $13 billion. Now, he wants to give it another go.`\
+https://nytimes.com/2025/01/25/business/dealbook/starwood-hotels-barry-sternlicht.html
+
+**Why Raiders believe Pete Carroll and John Spytek are the right fits to get franchise on track**\
+`The word “culture” will be thrown around a lot when Carroll and Spytek are introduced, but "continuity" might be the bigger word.`\
+https://nytimes.com/athletic/6086880/2025/01/25/raiders-pete-carroll-john-spytek/
+
+**The Cheat Sheet on Trump’s First Week**\
+`It was a whirlwind. Here’s what business leaders need to know.`\
+https://nytimes.com/2025/01/25/business/dealbook/trump-first-week.html
+
 **Israel releases 200 Palestinian prisoners, many of whom were serving life sentences.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/israel-releases-200-palestinian-prisoners-many-of-whom-were-serving-life-sentences
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/25/opinion/donald-trump-alliances-tech-billionaires.
 **Let’s Get to the Marrow of What Trump Just Did**\
 `Three policy wonks dissect President Donald Trump’s executive orders on border security, immigration, government efficiency and beyond.`\
 https://nytimes.com/2025/01/25/opinion/ezra-klein-podcast-dara-lind-matthew-yglesias.html
-
-**What I'm hearing about the Oilers' plans 6 weeks from trade deadline day**\
-`The Oilers are heading toward the March 7 deadline in a position of strength but will explore avenues to improve.`\
-https://nytimes.com/athletic/6087154/2025/01/25/oilers-hearing-trade-deadline-plans-2025/
-
-**Antisemitism Is a Bipartisan Problem**\
-`Calling out the other side for it is often a political smoke screen.`\
-https://nytimes.com/2025/01/25/opinion/antisemitism-left-right.html
-
-**We Australians Have Learned From Our Bushfires. Can Californians?**\
-`In California’s fire-stoked debate over how aggressively to manage both nature and urban sprawl, Australia can share both empathy and insight.`\
-https://nytimes.com/2025/01/25/opinion/australians-california-fires.html
-
-**The Wars Within Trump’s Court**\
-`The second Trump White House is starting out with a remarkable degree of conflict between different individuals, constituencies and worldviews.`\
-https://nytimes.com/2025/01/25/opinion/donald-trump-musk-altman.html
 
