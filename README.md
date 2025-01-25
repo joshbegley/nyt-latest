@@ -1,3 +1,8 @@
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Fernandes says Amorim's criticisms fired him up**\
 `Manchester United captain Bruno Fernandes has defended Ruben Amorim’s criticisms of the team and says the head coach’s comments fired him up.`\
 https://nytimes.com/athletic/6088005/2025/01/25/bruno-fernandes-man-utd-amorim/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/01/25/business/united-airlines-emergency-landing-nigeri
 **Jets to hire Broncos' Darren Mougey as general manager**\
 `Darren Mougey replaces Joe Douglas, who the Je fired late in the 2024 season after failing to make the playoffs over a six-year tenure.`\
 https://nytimes.com/athletic/6086559/2025/01/25/darren-mougey-hired-ny-jets-general-manager/
-
-**Mike Hynson, Surfing Star of ‘The Endless Summer,’ Dies at 82**\
-`The hit 1966 surfing documentary immortalized the maverick California wave rider as an archetype of the footloose rebel surfer.`\
-https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
 
