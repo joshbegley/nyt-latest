@@ -1,3 +1,7 @@
+**Pacers, Tyrese Haliburton avenge loss to Spurs with 30-point win in Paris**\
+`Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
+https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
+
 **Trump’s Moves to Upend Federal Bureaucracy Touch Off Fear and Confusion**\
 `Agencies are gripped with uncertainty about how to implement the blizzard of new policies as workers frantically try to assess the impact on their lives.`\
 https://nytimes.com/2025/01/25/us/politics/trump-federal-workers.html
