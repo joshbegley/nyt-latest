@@ -1,3 +1,7 @@
+**Fernandes says Amorim's criticisms fired him up**\
+`Manchester United captain Bruno Fernandes has defended Ruben Amorim’s criticisms of the team and says the head coach’s comments fired him up.`\
+https://nytimes.com/athletic/6088005/2025/01/25/bruno-fernandes-man-utd-amorim/
+
 **As Hamas Exchanges Gaza Hostages, It Puts on a Show of Force**\
 `The handover of four female Israeli soldiers by Hamas on Saturday came as Israel released 200 prisoners. But a dispute arose over the hostage release timetable.`\
 https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostage-prisoner-swap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086559/2025/01/25/darren-mougey-hired-ny-jets-gene
 **Mike Hynson, Surfing Star of ‘The Endless Summer,’ Dies at 82**\
 `The hit 1966 surfing documentary immortalized the maverick California wave rider as an archetype of the footloose rebel surfer.`\
 https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
-
-**Ed Cooley drops to 0-4 against Providence as Georgetown's slide continues**\
-`Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
-https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
 
