@@ -1,3 +1,7 @@
+**Pete Hegseth, New Defense Secretary, Outlines Pentagon’s Priorities**\
+`After being sworn-in by Vice President JD Vance, the Pentagon’s new leader addressed the Defense Department’s three million employees.`\
+https://nytimes.com/2025/01/25/us/politics/pete-hegseth-pentagon-defense-secretary.html
+
 **Arteta 'absolutely fuming' about Lewis-Skelly red card**\
 `Arsenal manager Mikel Arteta says he is &#8220;absolutely fuming&#8221; about Myles Lewis-Skelly&#8217;s sending off during his side&#8217;s 1-0 win at Wolverhampton Wanderers on Saturday.`\
 https://nytimes.com/athletic/6087836/2025/01/25/lewis-skelly-red-card-arsenal-arteta/

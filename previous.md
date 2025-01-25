@@ -1,3 +1,7 @@
+**Pete Hegseth, New Defense Secretary, Outlines Pentagon’s Priorities**\
+`After being sworn-in by Vice President JD Vance, the Pentagon’s new leader addressed the Defense Department’s three million employees.`\
+https://nytimes.com/2025/01/25/us/politics/pete-hegseth-pentagon-defense-secretary.html
+
 **Arteta 'absolutely fuming' about Lewis-Skelly red card**\
 `Arsenal manager Mikel Arteta says he is &#8220;absolutely fuming&#8221; about Myles Lewis-Skelly&#8217;s sending off during his side&#8217;s 1-0 win at Wolverhampton Wanderers on Saturday.`\
 https://nytimes.com/athletic/6087836/2025/01/25/lewis-skelly-red-card-arsenal-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/us/politics/hegseth-confirmation-republican-senat
 **Sundance Kicks Off With Cynthia Erivo, Jon Hamm and Abby Wambach**\
 `Filmmakers and celebrities reflected on the festival’s lineup and future beyond the mountains of Park City.`\
 https://nytimes.com/2025/01/25/style/sundance-film-festival-2025-utah.html
-
-**For Uncertain Times, Some Clothes That Genuinely Shock**\
-`At the Kenzo and Comme des Garçons shows, designers gave the audience a jolt — for very different reasons.`\
-https://nytimes.com/2025/01/25/style/mens-wear-kenzo-paris-fashion-week.html
 
