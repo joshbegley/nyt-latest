@@ -1,3 +1,11 @@
+**Arteta 'absolutely fuming' about Lewis-Skelly red card**\
+`Arsenal manager Mikel Arteta says he is &#8220;absolutely fuming&#8221; about Myles Lewis-Skelly&#8217;s sending off during his side&#8217;s 1-0 win at Wolverhampton Wanderers on Saturday.`\
+https://nytimes.com/athletic/6087836/2025/01/25/lewis-skelly-red-card-arsenal-arteta/
+
+**How Every Senator Voted to Confirm Kristi Noem as Secretary of Homeland Security**\
+`The Senate voted 59 to 34 to confirm Ms. Noem, the governor of South Dakota, as the new head of the Homeland Security Department.`\
+https://nytimes.com/interactive/2025/01/25/us/politics/noem-senate-confirmation-vote.html
+
 **Israel and Hamas Dispute Over Hostage Leaves Displaced Palestinians Waiting**\
 `Israel is preventing movement to the north of Gaza until plans are set for the release of Arbel Yehud, one of the last civilian women held in Gaza.`\
 https://nytimes.com/2025/01/25/world/middleeast/israel-hamas-gaza-hostage-yehud.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/25/style/sundance-film-festival-2025-utah.html
 **For Uncertain Times, Some Clothes That Genuinely Shock**\
 `At the Kenzo and Comme des Garçons shows, designers gave the audience a jolt — for very different reasons.`\
 https://nytimes.com/2025/01/25/style/mens-wear-kenzo-paris-fashion-week.html
-
-**C.I.A. Now Favors Lab Leak Theory to Explain Covid’s Origins**\
-`A new analysis that began under the Biden administration is released by the C.I.A.’s new director, John Ratcliffe, who wants the agency to get “off the sidelines” in the debate.`\
-https://nytimes.com/2025/01/25/us/politics/cia-covid-lab-leak.html
-
-**Will Mikko Rantanen re-sign with the Hurricanes? Projecting his next contract**\
-`Carolina can re-sign Rantanen and maintain a formidable supporting cast around him, which might have been tough for Colorado.`\
-https://nytimes.com/athletic/6087286/2025/01/25/rantanen-contract-hurricanes-trade/
 
