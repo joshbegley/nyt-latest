@@ -1,3 +1,7 @@
+**Greenberg: In wake of historically bad season, White Sox bring back their winter fan fest**\
+`It may not have been the best timing, but at least the team revealed it is planning a 2005 White Sox reunion and a statue for Mark Buehrle.`\
+https://nytimes.com/athletic/6087782/2025/01/25/chicago-white-sox-mark-buehrle-fan-fest/
+
 **Auburn center Johni Broome a game-time decision in matchup vs. Tennessee**\
 `Broome will test the ankle out during warmups and see how he feels before making a final decision.`\
 https://nytimes.com/athletic/6087900/2025/01/25/auburn-johni-broome-tennessee-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/world/middleeast/israel-hamas-gaza-hostage-yehud.
 **The Briefing: Southampton 1 Newcastle 3 - Howe's team fight back, Isak does it again**\
 `Analysis of Newcastle United's Premier League game away to Southampton`\
 https://nytimes.com/athletic/6080716/2025/01/25/southampton-1-newcastle-3-highlights/
-
-**AJ Dybantsa gets taste of NBA in Paris, Team USA future awaiting him**\
-`Dybantsa is the top recruit of the 2025 class, has committed to BYU and is already the presumptive No. 1 pick for the 2026 NBA Draft.`\
-https://nytimes.com/athletic/6087724/2025/01/25/aj-dybantsa-paris-spurs-pacers-nba/
 
