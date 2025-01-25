@@ -14,7 +14,7 @@ https://nytimes.com/2025/01/24/us/politics/trump-immigration-pause.html
 `Corrections that appeared in print on Saturday, Jan. 25, 2025.`\
 https://nytimes.com/2025/01/24/pageoneplus/corrections-jan-25-2025.html
 
-**Live Senate Tally: Pete Hegseth Confirmation Vote**\
+**How The Senate Voted to Confirm Pete Hegseth as Secretary of Defense**\
 `Follow the secretary of defense confirmation vote count live.`\
 https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
 
