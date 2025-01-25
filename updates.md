@@ -1,3 +1,7 @@
+**Take Another Direction**\
+`Michael Lieberman’s Saturday debut puts up an imposing defense.`\
+https://nytimes.com/2025/01/24/crosswords/daily-puzzle-2025-01-25.html
+
 **How The Senate Voted to Confirm Pete Hegseth as Secretary of Defense**\
 `Follow the secretary of defense confirmation vote count live.`\
 https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
