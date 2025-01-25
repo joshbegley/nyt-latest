@@ -1,3 +1,7 @@
+**Mark Jackson and the Leeds United influence making a mark in Australia**\
+`The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
+https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
+
 **Diego Carlos: A defensive contradiction**\
 `Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
 https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085642/2025/01/25/nico-paz-como-real-madrid/
 **Man City vs Chelsea: Who needs Champions League qualification more?**\
 `The financial incentives are obvious but there is also a prestige and importance beyond money to being in Europe's premier competition`\
 https://nytimes.com/athletic/6082940/2025/01/25/man-city-chelsea-champions-league-qualification/
-
-**'He's just living his best life' - meet the six-year-old Liverpool fan who became a social media star**\
-`A video of Isaac Kearney has been viewed more than 140million times and moved fans across the world to get in touch`\
-https://nytimes.com/athletic/6083122/2025/01/25/isaac-kearney-liverpool-fan-social-media/
 
