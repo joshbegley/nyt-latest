@@ -1,3 +1,7 @@
+**Diego Carlos: A defensive contradiction**\
+`Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
+https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
+
 **Here is the latest on the hostage and prisoner releases.**\
 `By Aaron Boxerman and Patrick Kingsley`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
