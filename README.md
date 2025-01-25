@@ -34,7 +34,7 @@ https://nytimes.com/2025/01/24/us/escaped-monkeys-captured-south-carolina.html
 `Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
 https://nytimes.com/athletic/6076242/2025/01/24/robert-saleh-hired-49ers-defensive-coordinator/
 
-**Two military jets carrying migrants landed in Guatemala, the U.S. Embassy and local authorities said.**\
-`By Annie Correal and Jody García`\
-https://nytimes.com/2025/01/24/us/politics/two-military-jets-carrying-migrants-landed-in-guatemala-the-us-embassy-and-local-authorities-said.html
+**U.S. Military Planes Carrying Migrants Land in Guatemala**\
+`The Department of Defense said this week that it would provide planes for deportation flights.`\
+https://nytimes.com/2025/01/24/us/politics/trump-us-guatemala-military-migrants.html
 
