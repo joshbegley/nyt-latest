@@ -1,3 +1,7 @@
+**Rangers, Will Borgen agree to 5-year, $20.5 million extension**\
+`The Rangers' front office hoped an extension would be the end result when it targeted Borgen in the trade market, per a league source.`\
+https://nytimes.com/athletic/6088413/2025/01/25/will-borgen-rangers-extend-contract-nhl/
+
 **Blue Jackets' Sean Monahan expected to be out until March after injury setback**\
 `COLUMBUS, Ohio — Sean Monahan, who has centered one of the NHL&#8217;s best lines and been an invaluable veteran presence for the Columbus Blue Jackets this season, is expected to be out of the lineup until mid-to-late March after suffering a setback in his recovery from a wrist injury, a team source told The Athletic.`\
 https://nytimes.com/athletic/6088411/2025/01/25/monahan-blue-jackets-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostage-prisoner-swa
 **Eric Tulsky exclusive: Hurricanes GM on pulling off the Mikko Rantanen trade — 'You have to be willing to stretch'**\
 `The Canes aren't done after this blockbuster: "Until we have the 20 best players in the league … there’s always somewhere we can upgrade."`\
 https://nytimes.com/athletic/6088081/2025/01/25/eric-tulsky-mikko-rantanen-hurricanes-trade/
-
-**Spurs' Wembanyama gets emotional following France homecoming loss to Pacers**\
-`Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
-https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
 
