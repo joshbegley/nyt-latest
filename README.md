@@ -1,3 +1,7 @@
+**Lewis Hamilton’s first week at Ferrari: Louboutin boots, a dream fulfilled and a proud mom**\
+`We saw Lewis Hamilton in classic Ferrari red for the first time this week. Here's what happened...`\
+https://nytimes.com/athletic/6086153/2025/01/25/lewis-hamilton-ferrari-f1-louboutin/
+
 **What's it like to face Aryna Sabalenka in full flow?**\
 `The world No. 1 is seeking a third Australian Open title in a row. This is what makes her the best player in the world.`\
 https://nytimes.com/athletic/6085614/2025/01/25/aryna-sabalenka-tennis-play-opponent-experience/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
 **Mark Jackson and the Leeds United influence making a mark in Australia**\
 `The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
 https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
-
-**Diego Carlos: A defensive contradiction**\
-`Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
-https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
 
