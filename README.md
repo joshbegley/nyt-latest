@@ -1,3 +1,7 @@
+**2 Novels for Cold Weather**\
+`Joan Aiken’s neo-Gothic; Joseph Roth’s family epic.`\
+https://nytimes.com/2025/01/25/books/2-novels-for-cold-weather.html
+
 **Wembymania: What Paris feels like when Victor Wembanyama is in town**\
 `It takes a lot to turn heads during Paris Fashion Week, but the homecoming of an NBA phenom did just that.`\
 https://nytimes.com/athletic/6083573/2025/01/25/victor-wembanyama-paris-excitement-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/opinion/donald-trump-musk-altman.html
 **How Greater Autonomy Can Benefit Children**\
 `Readers offer examples in response to a guest essay.`\
 https://nytimes.com/2025/01/25/opinion/children-autonomy.html
-
-**Lindsey Vonn, in first race after crash, skis out of World Cup downhill in Germany**\
-`In her first race since falling in Cortina, Lindsey Vonn skied out and did not finish while three of her U.S. teammates earned top-11 spots.`\
-https://nytimes.com/athletic/6086300/2025/01/25/lindsey-vonn-dnf-downhill-world-cup-olympics-germany/
 
