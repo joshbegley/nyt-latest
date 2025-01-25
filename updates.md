@@ -1,3 +1,7 @@
+**Two military jets carrying migrants landed in Guatemala, the U.S. Embassy and local authorities said.**\
+`By Annie Correal and Jody García`\
+https://nytimes.com/2025/01/24/us/politics/two-military-jets-carrying-migrants-landed-in-guatemala-the-us-embassy-and-local-authorities-said.html
+
 **Underwhelming hire latest example of Cowboys being one of NFL's most conservative franchises**\
 `This might not be the best move to get the franchise another ring, but it keeps continuity and to Jones it probably feels safe.`\
 https://nytimes.com/athletic/6084066/2025/01/24/cowboys-brian-schottenheimer-hire-jerry-jones/
