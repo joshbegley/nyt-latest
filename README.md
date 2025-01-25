@@ -1,3 +1,7 @@
+**Court Sides With Democrats in Fight Over Control of Minnesota House**\
+`Minnesota’s top court ruled that Republicans had overstepped their authority by conducting business in the Legislature even as Democrats boycotted the session.`\
+https://nytimes.com/2025/01/24/us/court-democrats-control-minnesota-house.html
+
 **Nearly 3 Decades After Texas Woman’s Murder, a Former Tenant Is Charged**\
 `Mary Moore Searight, a prominent landowner and benefactor, was killed in 1996 at her home in Paris, Texas. In 2023, DNA obtained from a tenant, David Paul Cady Jr., linked him to her final moments, the authorities say.`\
 https://nytimes.com/2025/01/24/us/texas-murder-dna-evidence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/arts/jo-baer-dead.html
 **Trump is touring Pacific Palisades. Altadena residents wonder why not them.**\
 `Residents of Altadena have expressed frustration that their town and their losses have been overshadowed by those in Pacific Palisades.`\
 https://nytimes.com/live/2025/01/24/us/president-trump-news/trump-is-touring-pacific-palisades-altadena-residents-wonder-why-not-them
-
-**Immigration Arrests Prompt Fear that Mass Deportations Loom**\
-`The arrest of three people at a seafood distribution warehouse in Newark has led to a heightened sense of alarm in the region.`\
-https://nytimes.com/2025/01/24/nyregion/newark-immigration-raid-deportation-fear.html
 
