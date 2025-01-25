@@ -1,3 +1,11 @@
+**Diego Carlos: A defensive contradiction**\
+`Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
+https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
+
+**Barcelona's midfielders assessed: Who should be in Hansi Flick's starting XI?**\
+`Gavi, Pedri, Olmo, De Jong, Casado — what's the strongest combination?`\
+https://nytimes.com/athletic/6086112/2025/01/25/barcelonas-midfield-options-assessed-who-should-be-in-hansi-flicks-starting-xi/
+
 **Minutes for Scarles and Orford show Potter is keen to turn to West Ham's academy**\
 `The wealth of youth players available to the new West Ham manager should feel optimistic he will give them first-team opportunities`\
 https://nytimes.com/athletic/6057877/2025/01/25/minutes-for-scarles-and-orford-show-graham-potter-keen-to-make-use-of-west-hams-academy/
