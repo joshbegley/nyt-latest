@@ -26,8 +26,8 @@ https://nytimes.com/2025/01/25/crosswords/spelling-bee-forum.html
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
 
-**Israel and Hamas Set to Exchange More Hostages and Prisoners**\
-`Hamas said on Friday that it would release four female soldiers held hostage for over a year in Gaza. Under the terms of a cease-fire deal, Israel would be expected to release around 200 Palestinian prisoners.`\
+**Hamas Releases Four Hostages to Red Cross**\
+`Israel’s military said the Red Cross had confirmed it had the hostages and that they would be handed over to Israeli forces. Under the terms of a cease-fire deal, Israel is expected to release around 200 Palestinian prisoners.`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire
 
 **Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
