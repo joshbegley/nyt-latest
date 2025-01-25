@@ -1,3 +1,7 @@
+**The Briefing: Southampton 1 Newcastle 3 - Howe's team fight back, Isak does it again**\
+`Analysis of Newcastle United's Premier League game away to Southampton`\
+https://nytimes.com/athletic/6080716/2025/01/25/southampton-1-newcastle-3-highlights/
+
 **AJ Dybantsa gets taste of NBA in Paris, Team USA future awaiting him**\
 `Dybantsa is the top recruit of the 2025 class, has committed to BYU and is already the presumptive No. 1 pick for the 2026 NBA Draft.`\
 https://nytimes.com/athletic/6087724/2025/01/25/aj-dybantsa-paris-spurs-pacers-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087286/2025/01/25/rantanen-contract-hurricanes-tra
 **Trump Doesn’t Get to Decide What the Constitution Means**\
 `There is no plausible justification for the administration’s interpretation of the 14th Amendment`\
 https://nytimes.com/2025/01/25/opinion/trump-birthright-citizenship-constitution.html
-
-**The Tangled Tale of The Times’s URL**\
-`The Times wanted to go online in 1996 with nytimes.com. But the domain was already owned — by a Times reporter.`\
-https://nytimes.com/2025/01/25/insider/nyt-website-url.html
 
