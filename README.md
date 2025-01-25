@@ -1,3 +1,7 @@
+**Trump Fires 17 Inspectors General in Late-Night Purge**\
+`The internal government watchdogs were believed to have been dismissed at several major agencies, though the Justice Department’s was not said to have been among them.`\
+https://nytimes.com/2025/01/24/us/politics/trump-fires-inspectors-general.html
+
 **Hegseth Is Second Cabinet Secretary in History to Advance on Tiebreaker Vote**\
 `In 2017, Betsy DeVos barely survived her confirmation vote to become President Trump’s secretary of education.`\
 https://nytimes.com/2025/01/24/us/politics/hegseth-vote-devos-tiebreaker.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6087275/2025/01/24/mikko-rantanen-hurricanes-stanle
 `After a tour of areas damaged by the California wildfires, the president sparred with local leaders and blamed them for a wide variety of issues affecting the disaster response.`\
 https://nytimes.com/2025/01/24/us/politics/tour-pacific-palisades-wildfire-damage.html
 
-**Cowboys hire Brian Schottenheimer as next coach**\
+**Cowboys hire Schottenheimer as coach; Eberflus a candidate for DC job**\
 `Serving as Cowboys offensive coordinator the last two seaosns, Schottenheimer brings 25 years of NFL coaching experience to the job.`\
 https://nytimes.com/athletic/6081269/2025/01/24/brian-schottenheimer-dallas-cowboys-head-coach-hired/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/us/escaped-monkeys-captured-south-carolina.html
 **49ers hire Robert Saleh as defensive coordinator**\
 `Saleh ran the 49ers defense from 2017 to 2021 and helped build that unit into one of the best in football. `\
 https://nytimes.com/athletic/6076242/2025/01/24/robert-saleh-hired-49ers-defensive-coordinator/
-
-**U.S. Military Planes Carrying Migrants Land in Guatemala**\
-`The Department of Defense said this week that it would provide planes for deportation flights.`\
-https://nytimes.com/2025/01/24/us/politics/trump-us-guatemala-military-migrants.html
 
