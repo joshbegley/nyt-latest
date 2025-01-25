@@ -1,3 +1,7 @@
+**The Briefing: Man City 3 Chelsea 1: Is Sanchez's position becoming untenable? Did Guardiola unpick Chelsea?**\
+`Manchester City beat Chelsea 3-1 on Saturday evening to climb above them in the Premier League table`\
+https://nytimes.com/athletic/6080717/2025/01/25/manchester-city-chelsea-result-report-analysis/
+
 **Wolves' Pereira confident new signings will arrive before transfer window closes**\
 `Wolverhampton Wanderers head coach Vitor Pereira has claimed he is confident his side will land the signings he wants before the end of the transfer window and stay in the Premier League.`\
 https://nytimes.com/athletic/6087975/2025/01/25/wolves-transfers-vitor-pereira/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087900/2025/01/25/auburn-johni-broome-tennessee-se
 **Trump names a new acting director for national intelligence, ousting a Biden official associated with D.E.I. initiatives.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/01/25/us/trump-administration-news/trump-names-a-new-acting-director-for-national-intelligence-ousting-a-biden-official-associated-with-dei-initiatives
-
-**Minteh left out of Brighton XI for Everton game after arriving late**\
-`Yankuba Minteh was left out of Brighton &amp; Hove Albion&#8217;s starting line-up for the 1-0 home defeat by Everton after turning up late.`\
-https://nytimes.com/athletic/6087849/2025/01/25/yankuba-minteh-brighton-everton/
 

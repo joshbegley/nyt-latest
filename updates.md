@@ -1,3 +1,7 @@
+**The Briefing: Man City 3 Chelsea 1: Is Sanchez's position becoming untenable? Did Guardiola unpick Chelsea?**\
+`Manchester City beat Chelsea 3-1 on Saturday evening to climb above them in the Premier League table`\
+https://nytimes.com/athletic/6080717/2025/01/25/manchester-city-chelsea-result-report-analysis/
+
 **State Dept. Halts Global Mine-Clearing Programs**\
 `Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
 https://nytimes.com/2025/01/25/us/politics/mine-clearing-programs-state-dept.html
