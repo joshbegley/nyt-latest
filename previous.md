@@ -1,3 +1,15 @@
+**Sundance Kicks Off With Cynthia Erivo, Jon Hamm and Abby Wambach**\
+`Filmmakers and celebrities reflected on the festival’s lineup and future beyond the mountains of Park City.`\
+https://nytimes.com/2025/01/25/style/sundance-film-festival-2025-utah.html
+
+**For Uncertain Times, Some Clothes That Genuinely Shock**\
+`At the Kenzo and Comme des Garçons shows, designers gave the audience a jolt — for very different reasons.`\
+https://nytimes.com/2025/01/25/style/mens-wear-kenzo-paris-fashion-week.html
+
+**C.I.A. Now Favors Lab Leak Theory to Explain Covid’s Origins**\
+`A new analysis that began under the Biden administration is released by the C.I.A.’s new director, John Ratcliffe, who wants the agency to get “off the sidelines” in the debate.`\
+https://nytimes.com/2025/01/25/us/politics/cia-covid-lab-leak.html
+
 **Will Mikko Rantanen re-sign with the Hurricanes? Projecting his next contract**\
 `Carolina can re-sign Rantanen and maintain a formidable supporting cast around him, which might have been tough for Colorado.`\
 https://nytimes.com/athletic/6087286/2025/01/25/rantanen-contract-hurricanes-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6087580/2025/01/25/arsenal-team-news-martin-odegaar
 **Crafting a Haggis for American Tastes (and Import Restrictions)**\
 `Macsween, a popular maker of the distinctive Scottish dish, has developed a recipe for the U.S. market that swaps sheep lung for lamb heart as a main ingredient.`\
 https://nytimes.com/2025/01/25/dining/scotland-haggis-macsween-burns-night.html
-
-**Leicester Choudhury set to join Sheffield United on loan**\
-`Leicester City midfielder Hamza Choudhury is set to join Sheffield United on loan.`\
-https://nytimes.com/athletic/6087549/2025/01/25/leicester-choudhury-sheffield-united-loan-tranfer/
-
-**As Immigration Crackdown Looms, Restaurants Are Racked With Fear**\
-`In Los Angeles, Chicago, Washington and other cities, chefs and owners are worried for their workers and their businesses.`\
-https://nytimes.com/2025/01/25/dining/trump-immigration-undocumented-workers-restaurants.html
-
-**Jerry Jones' worst nightmare: Approach to Cowboys' hire could invoke fan apathy**\
-`Although postseason wins have been scarce for the Cowboys, business has been booming.`\
-https://nytimes.com/athletic/6087415/2025/01/25/cowboys-jerry-jones-hire-brian-schottenheimer-fans-reaction/
 

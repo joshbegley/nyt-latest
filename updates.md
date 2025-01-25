@@ -1,3 +1,15 @@
+**Sundance Kicks Off With Cynthia Erivo, Jon Hamm and Abby Wambach**\
+`Filmmakers and celebrities reflected on the festival’s lineup and future beyond the mountains of Park City.`\
+https://nytimes.com/2025/01/25/style/sundance-film-festival-2025-utah.html
+
+**For Uncertain Times, Some Clothes That Genuinely Shock**\
+`At the Kenzo and Comme des Garçons shows, designers gave the audience a jolt — for very different reasons.`\
+https://nytimes.com/2025/01/25/style/mens-wear-kenzo-paris-fashion-week.html
+
+**C.I.A. Now Favors Lab Leak Theory to Explain Covid’s Origins**\
+`A new analysis that began under the Biden administration is released by the C.I.A.’s new director, John Ratcliffe, who wants the agency to get “off the sidelines” in the debate.`\
+https://nytimes.com/2025/01/25/us/politics/cia-covid-lab-leak.html
+
 **Will Mikko Rantanen re-sign with the Hurricanes? Projecting his next contract**\
 `Carolina can re-sign Rantanen and maintain a formidable supporting cast around him, which might have been tough for Colorado.`\
 https://nytimes.com/athletic/6087286/2025/01/25/rantanen-contract-hurricanes-trade/
