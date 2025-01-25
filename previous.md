@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6088099/2025/01/25/robert-sanchez-chelsea-maresca/
 `The former South Dakota governor now leads the agency that runs the nation’s immigration system.`\
 https://nytimes.com/2025/01/25/us/politics/kristi-noem-homeland-security-confirmation.html
 
-**Mets owner Steve Cohen 'brutally honest' Pete Alonso negotiations**\
+**Mets owner Steve Cohen 'brutally honest' about Pete Alonso negotiations**\
 `Last week, the Mets made a counteroffer of three years to Alonso and agent Scott Bora and it was rejected.`\
 https://nytimes.com/athletic/6088030/2025/01/25/mets-pete-alonso-contract-free-agency-steve-cohen/
 

@@ -1,3 +1,7 @@
+**Mets owner Steve Cohen 'brutally honest' about Pete Alonso negotiations**\
+`Last week, the Mets made a counteroffer of three years to Alonso and agent Scott Bora and it was rejected.`\
+https://nytimes.com/athletic/6088030/2025/01/25/mets-pete-alonso-contract-free-agency-steve-cohen/
+
 **Pacers, Tyrese Haliburton avenge loss to Spurs with 30-point win in Paris**\
 `Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
 https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
