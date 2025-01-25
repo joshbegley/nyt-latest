@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Why Morgan Geekie is the model of a retool target**\
 `Young, inexpensive and room to grow: Geekie has become the type of presence the Bruins would love to acquire before the trade deadline.`\
 https://nytimes.com/athletic/6088256/2025/01/25/bruins-morgan-geekie-retool/
