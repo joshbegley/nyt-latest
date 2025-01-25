@@ -1,3 +1,11 @@
+**Cheers and cries as their friend is released from Hamas captivity.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/cheers-and-cries-as-their-friend-is-released-from-hamas-captivity
+
+**Game, Set, Match: Madison Keys beats Aryna Sabalenka for first Grand Slam title at Australian Open**\
+`A tense third set ended with the American lifting her first ever major, ending Sabalenka's dominance in Australia.`\
+https://nytimes.com/athletic/6087426/2025/01/25/sabalenka-keys-australian-open-final-result-analysis/
+
 **Israel Welcomes the Return of the Women Who Warned of a Raid From Gaza**\
 `Young female “spotters” for Israel’s army reported suspicious activity across the border. When Hamas attacked, 15 were killed and seven abducted. Four came home on Saturday.`\
 https://nytimes.com/2025/01/25/world/middleeast/israel-spotters-hostages.html
