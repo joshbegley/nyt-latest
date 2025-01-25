@@ -1,3 +1,7 @@
+**Israel Gives UNRWA Six Days to Halt Operations in East Jerusalem**\
+`The directive came in a letter to the U.N., after the Israeli Parliament banned the relief agency that has aided Palestinian refugees for decades.`\
+https://nytimes.com/2025/01/24/world/middleeast/israel-unrwa-palestinian-refugees.html
+
 **Reports of Immigration Agents at Chicago School Set Off Fear, but Are Proved False**\
 `The agents turned out to be unrelated to immigration, officials said hours later. They were from the Secret Service, investigating a threat.`\
 https://nytimes.com/2025/01/24/us/chicago-school-immigration-secret-service.html

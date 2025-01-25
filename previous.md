@@ -1,3 +1,7 @@
+**Israel Gives UNRWA Six Days to Halt Operations in East Jerusalem**\
+`The directive came in a letter to the U.N., after the Israeli Parliament banned the relief agency that has aided Palestinian refugees for decades.`\
+https://nytimes.com/2025/01/24/world/middleeast/israel-unrwa-palestinian-refugees.html
+
 **Reports of Immigration Agents at Chicago School Set Off Fear, but Are Proved False**\
 `The agents turned out to be unrelated to immigration, officials said hours later. They were from the Secret Service, investigating a threat.`\
 https://nytimes.com/2025/01/24/us/chicago-school-immigration-secret-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/24/obituaries/nancy-leftenant-colon-dead.html
 **Trump Reinstates Longstanding Republican Anti-Abortion Policy**\
 `The move came after he addressed thousands of abortion opponents in Washington to mark the 52nd anniversary of the Supreme Court’s 1973 decision in Roe v. Wade.`\
 https://nytimes.com/2025/01/24/us/politics/trump-republican-anti-abortion-policy.html
-
-**Jo Baer, Minimalist Painter Who Rejected Abstraction, Dies at 95**\
-`After establishing herself as a leading proponent of nonrepresentational art, she left it behind — along with, to a significant extent, her position in the art world.`\
-https://nytimes.com/2025/01/24/arts/jo-baer-dead.html
 
