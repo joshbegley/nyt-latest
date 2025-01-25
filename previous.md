@@ -1,3 +1,7 @@
+**Bears 2024 defense: What stats tell us about the drop-off and who ascended**\
+`The Bears had some bright spots on defense individually, but as a unit, had too big of a drop-off during the losing streak.`\
+https://nytimes.com/athletic/6069996/2025/01/25/bears-2024-defense-montez-sweat-jaylon-johnson/
+
 **'He’s a coach’s dream': Why Jacob Quillan is making his NHL debut with the Leafs**\
 `Quillan offers exactly the attributes that a bottom-six player in Leafs head coach Craig Berube’s system needs to have.`\
 https://nytimes.com/athletic/6087099/2025/01/25/maple-leafs-jacob-quillan-nhl-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/cheer
 **Game, Set, Match: Madison Keys beats Aryna Sabalenka for first Grand Slam title at Australian Open**\
 `A tense third set ended with the American lifting her first ever major, ending Sabalenka's dominance in Australia.`\
 https://nytimes.com/athletic/6087426/2025/01/25/sabalenka-keys-australian-open-final-result-analysis/
-
-**Israel Welcomes the Return of the Women Who Warned of a Raid From Gaza**\
-`Young female “spotters” for Israel’s army reported suspicious activity across the border. When Hamas attacked, 15 were killed and seven abducted. Four came home on Saturday.`\
-https://nytimes.com/2025/01/25/world/middleeast/israel-spotters-hostages.html
 
