@@ -1,3 +1,16 @@
+**Why Morgan Geekie is the model of a retool target**\
+`Young, inexpensive and room to grow: Geekie has become the type of presence the Bruins would love to acquire before the trade deadline.`\
+https://nytimes.com/athletic/6088256/2025/01/25/bruins-morgan-geekie-retool/
+
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
+**Hegseth’s Views May Clash With Reality at the Pentagon**\
+`The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
+https://nytimes.com/live/2025/01/25/us/trump-administration-news/pete-hegseth-new-defense-secretary
+
 **Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
 `The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
 `\

@@ -1,3 +1,7 @@
+**Why Morgan Geekie is the model of a retool target**\
+`Young, inexpensive and room to grow: Geekie has become the type of presence the Bruins would love to acquire before the trade deadline.`\
+https://nytimes.com/athletic/6088256/2025/01/25/bruins-morgan-geekie-retool/
+
 **Vanderbilt's court-storming encore, Texas' 22-point rally top SEC's wild day**\
 `Holding serve at home is critical to the SEC's chances of packing the bracket, and two prominent bubble-bound squads are helping the cause.`\
 https://nytimes.com/athletic/6088341/2025/01/25/vanderbilt-kentucky-texas-tamu-sec-basketball/
@@ -33,9 +37,5 @@ https://nytimes.com/athletic/6088170/2025/01/25/lions-defensive-coordinator-kelv
 
 **Hegseth’s Views May Clash With Reality at the Pentagon**\
 `The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
-https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html
-
-**After 3 Days Trapped in Lake Erie Ice, a Canadian Ship Is Finally Freed**\
-`The 17-member crew of the freighter, stuck a mile off the Buffalo shore, was never in serious danger, but its predicament drew news media attention and a crowd of curious onlookers.`\
-https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
+https://nytimes.com/live/2025/01/25/us/trump-administration-news/pete-hegseth-new-defense-secretary
 
