@@ -1,3 +1,7 @@
+**Ed Cooley drops to 0-4 against Providence as Georgetown's slide continues**\
+`Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
+https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
+
 **Mets owner Steve Cohen 'brutally honest' about Pete Alonso negotiations**\
 `Last week, the Mets made a counteroffer of three years to Alonso and agent Scott Bora and it was rejected.`\
 https://nytimes.com/athletic/6088030/2025/01/25/mets-pete-alonso-contract-free-agency-steve-cohen/
