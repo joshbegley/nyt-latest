@@ -1,3 +1,11 @@
+**Trump and Newsom Promise to Work Together for California, Putting Sparring Aside**\
+`Gov. Gavin Newsom told the president that California needed his help, and President Trump said he would work to “get something completed.”`\
+https://nytimes.com/2025/01/24/us/politics/trump-newsom-california-wildfires-relief.html
+
+**Wildfires Are Revealing the Limits of Our Hydrant Systems**\
+`While hydrants can play a role in fighting a wildfire in its early stages, the systems weren’t designed to combat the large blazes currently ravaging the Los Angeles area.`\
+https://nytimes.com/interactive/2025/01/24/us/la-fires-hydrants-water.html
+
 **Nancy Leftenant-Colon, 104, Dies; Army Nurse Broke a Color Barrier**\
 `After years of being barred from a segregated military, she became the first Black nurse in the regular U.S. armed forces. She was later an Air Force officer.`\
 https://nytimes.com/2025/01/24/obituaries/nancy-leftenant-colon-dead.html

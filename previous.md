@@ -1,3 +1,11 @@
+**Trump and Newsom Promise to Work Together for California, Putting Sparring Aside**\
+`Gov. Gavin Newsom told the president that California needed his help, and President Trump said he would work to “get something completed.”`\
+https://nytimes.com/2025/01/24/us/politics/trump-newsom-california-wildfires-relief.html
+
+**Wildfires Are Revealing the Limits of Our Hydrant Systems**\
+`While hydrants can play a role in fighting a wildfire in its early stages, the systems weren’t designed to combat the large blazes currently ravaging the Los Angeles area.`\
+https://nytimes.com/interactive/2025/01/24/us/la-fires-hydrants-water.html
+
 **Nancy Leftenant-Colon, 104, Dies; Army Nurse Broke a Color Barrier**\
 `After years of being barred from a segregated military, she became the first Black nurse in the regular U.S. armed forces. She was later an Air Force officer.`\
 https://nytimes.com/2025/01/24/obituaries/nancy-leftenant-colon-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/education-dept-ends-book-ban-investig
 **USC expected to hire Notre Dame GM Chad Bowden**\
 `Bowden played a huge role in reshaping Notre Dame's approach to talent acquisition. Can he do the same at USC?`\
 https://nytimes.com/athletic/6087046/2025/01/24/usc-football-gm-chad-bowden-notre-dame/
-
-**Twins provide more details about digital streaming, TV broadcast for 2025 season**\
-`Fans can begin purchasing the package Feb. 11. It will cost $99.99 annually or $19.99 per month, with discounts for season ticket holders.`\
-https://nytimes.com/athletic/6087078/2025/01/24/minnesota-twins-tv-streaming-2025-season/
-
-**Interior Department Says Gulf of Mexico Is Now ‘Gulf of America’**\
-`Trump also renamed Denali, North America’s tallest peak, as Mount McKinley, despite objections from Alaska’s senators.`\
-https://nytimes.com/2025/01/24/us/politics/trump-administration-gulf-of-america-change.html
 
