@@ -1,3 +1,7 @@
+**The Briefing - Wolves 0 Arsenal 1: Was Lewis-Skelly's red card harsh? How did Arteta's 10 men play?**\
+`Arsenal managed to beat hosts Wolverhampton Wanderers 1-0 on Saturday despite a first-half dismissal`\
+https://nytimes.com/athletic/6080714/2025/01/25/wolves-arsenal-result-report-analysis/
+
 **Israel and Hamas Dispute Over Hostage Leaves Displaced Palestinians Waiting**\
 `Israel is preventing movement to the north of Gaza until plans are set for the release of Arbel Yehud, one of the last civilian women held in Gaza.`\
 https://nytimes.com/2025/01/25/world/middleeast/israel-hamas-gaza-hostage-yehud.html
