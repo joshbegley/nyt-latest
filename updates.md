@@ -1,3 +1,11 @@
+**Trump Officials Pause Programs to Let In Immigrants, Including Ukrainians**\
+`The pause on several initiatives that allowed immigrants to enter the country temporarily will block the entrance of people fleeing some of the most unstable and desperate places in the world.`\
+https://nytimes.com/2025/01/24/us/politics/trump-immigration-pause.html
+
+**Live Senate Tally: Pete Hegseth Confirmation Vote**\
+`Follow the secretary of defense confirmation vote count live.`\
+https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
+
 **Corrections: Jan. 25, 2025**\
 `Corrections that appeared in print on Saturday, Jan. 25, 2025.`\
 https://nytimes.com/2025/01/24/pageoneplus/corrections-jan-25-2025.html
