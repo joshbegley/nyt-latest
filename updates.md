@@ -1,3 +1,19 @@
+**Jerry Jones' worst nightmare: Approach to Cowboys' hire could invoke fan apathy**\
+`Although postseason wins have been scarce for the Cowboys, business has been booming.`\
+https://nytimes.com/athletic/6087415/2025/01/25/cowboys-jerry-jones-hire-brian-schottenheimer-fans-reaction/
+
+**It’s a day of mixed emotions for families of the freed Palestinian prisoners.**\
+`By Fatima AbdulKarim`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/its-a-day-of-mixed-emotions-for-families-of-the-freed-palestinian-prisoners
+
+**How the Liberal Cathedral Cracked Up**\
+`Cultural hegemony requires a light touch, not an inquisition`\
+https://nytimes.com/2025/01/25/opinion/trump-broke-liberal-cathedral.html
+
+**Israel releases 200 Palestinian prisoners, many of whom were serving life sentences.**\
+`By Aaron Boxerman`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-releases-200-palestinian-prisoners-many-of-whom-were-serving-life-sentences.html
+
 **Madison Keys fulfils her tennis destiny on a breezy night in Melbourne**\
 `At 14, Madison Keys appeared destined for a Grand Slam trophy. 16 years later on a breezy night in Melbourne, she held it in her hands.`\
 https://nytimes.com/athletic/6087504/2025/01/25/madison-keys-australian-open/
