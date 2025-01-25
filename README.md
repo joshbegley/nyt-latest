@@ -1,3 +1,7 @@
+**Mike Hynson, Surfing Star of ‘The Endless Summer,’ Dies at 82**\
+`The hit 1966 surfing documentary immortalized the maverick California wave rider as an archetype of the footloose rebel surfer.`\
+https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
+
 **Ed Cooley drops to 0-4 against Providence as Georgetown's slide continues**\
 `Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
 https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080717/2025/01/25/manchester-city-chelsea-result-r
 **Wolves' Pereira confident new signings will arrive before transfer window closes**\
 `Wolverhampton Wanderers head coach Vitor Pereira has claimed he is confident his side will land the signings he wants before the end of the transfer window and stay in the Premier League.`\
 https://nytimes.com/athletic/6087975/2025/01/25/wolves-transfers-vitor-pereira/
-
-**LeBrun: Unpacking the Mikko Rantanen trade — a rare NHL in-season blockbuster**\
-`Where does the NHL's biggest in-season trade in decades leave the Canes, Avs and Blackhawks ... and the Canucks and Rangers? Let's dig in.`\
-https://nytimes.com/athletic/6087889/2025/01/25/mikko-rantanen-trade-unpacked/
 
