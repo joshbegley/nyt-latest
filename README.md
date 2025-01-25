@@ -1,3 +1,7 @@
+**Hegseth’s Views May Clash With Reality at the Pentagon**\
+`The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
+https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html
+
 **After 3 Days Trapped in Lake Erie Ice, a Canadian Ship Is Finally Freed**\
 `The 17-member crew of the freighter, stuck a mile off the Buffalo shore, was never in serious danger, but its predicament drew news media attention and a crowd of curious onlookers.`\
 https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/us/politics/us-foreign-aid-egypt-israel.html
 **Maresca: I still trust Sanchez, he knows he has to do better**\
 `Enzo Maresca insisted he still trusts Robert Sanchez to be Chelsea’s starting goalkeeper but added that he wants to see a reaction from the Spaniard to another costly error in Saturday’s 3-1 defeat against Manchester City at the Etihad Stadium.`\
 https://nytimes.com/athletic/6088099/2025/01/25/robert-sanchez-chelsea-maresca/
-
-**Kristi Noem Is Confirmed as Homeland Security Secretary**\
-`The former South Dakota governor now leads the agency that runs the nation’s immigration system.`\
-https://nytimes.com/2025/01/25/us/politics/kristi-noem-homeland-security-confirmation.html
 
