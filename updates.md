@@ -1,3 +1,7 @@
+**Lindsey Vonn, in first race after crash, skis out of World Cup downhill in Germany**\
+`In her first race since falling in Cortina, Lindsey Vonn skied out and did not finish while three of her U.S. teammates earned top-11 spots.`\
+https://nytimes.com/athletic/6086300/2025/01/25/lindsey-vonn-dnf-downhill-world-cup-olympics-germany/
+
 **Changing Tunes**\
 `The artists we love are always changing. But there’s part of all of us that’s impervious to external forces.`\
 https://nytimes.com/2025/01/25/briefing/changing-tunes.html
