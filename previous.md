@@ -1,3 +1,15 @@
+**Trump Doesn’t Get to Decide What the Constitution Means**\
+`There is no plausible justification for the administration’s interpretation of the 14th Amendment`\
+https://nytimes.com/2025/01/25/opinion/trump-birthright-citizenship-constitution.html
+
+**The Tangled Tale of The Times’s URL**\
+`The Times wanted to go online in 1996 with nytimes.com. But the domain was already owned — by a Times reporter.`\
+https://nytimes.com/2025/01/25/insider/nyt-website-url.html
+
+**This Salmon Tastes Like a Vacation**\
+`Yasmin Fahr’s new recipe for salmon with avocado and cilantro salad is a vibrant counterpoint to gray slush and cold temperatures.`\
+https://nytimes.com/2025/01/25/dining/this-salmon-tastes-like-a-vacation.html
+
 **Leverkusen interested in Villa's Buendia**\
 `Bayer Leverkusen are interested in signing Aston Villa midfielder Emiliano Buendia.`\
 https://nytimes.com/athletic/6087676/2025/01/25/emi-buendia-bayer-leverkusen-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6087415/2025/01/25/cowboys-jerry-jones-hire-brian-s
 **It’s a day of mixed emotions for families of the freed Palestinian prisoners.**\
 `By Fatima AbdulKarim`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/its-a-day-of-mixed-emotions-for-families-of-the-freed-palestinian-prisoners
-
-**How the Liberal Cathedral Cracked Up**\
-`Cultural hegemony requires a light touch, not an inquisition`\
-https://nytimes.com/2025/01/25/opinion/trump-broke-liberal-cathedral.html
-
-**Madison Keys fulfils her tennis destiny on a breezy night in Melbourne**\
-`At 14, Madison Keys appeared destined for a Grand Slam trophy. Sixteen years later on a breezy night in Melbourne, she held it in her hands.`\
-https://nytimes.com/athletic/6087504/2025/01/25/madison-keys-australian-open/
-
-**Getting to the Super Bowl is hard, so here's a tough quiz about the contenders**\
-`How ready are you for Commanders-Eagles and Bills-Chiefs on Sunday? Take our quiz to find out.`\
-https://nytimes.com/athletic/6084227/2025/01/25/reaching-the-super-bowl-is-hard-this-quiz-on-the-afc-and-nfc-contenders-is-no-cakewalk-either/
 

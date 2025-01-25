@@ -1,3 +1,15 @@
+**Trump Doesn’t Get to Decide What the Constitution Means**\
+`There is no plausible justification for the administration’s interpretation of the 14th Amendment`\
+https://nytimes.com/2025/01/25/opinion/trump-birthright-citizenship-constitution.html
+
+**The Tangled Tale of The Times’s URL**\
+`The Times wanted to go online in 1996 with nytimes.com. But the domain was already owned — by a Times reporter.`\
+https://nytimes.com/2025/01/25/insider/nyt-website-url.html
+
+**This Salmon Tastes Like a Vacation**\
+`Yasmin Fahr’s new recipe for salmon with avocado and cilantro salad is a vibrant counterpoint to gray slush and cold temperatures.`\
+https://nytimes.com/2025/01/25/dining/this-salmon-tastes-like-a-vacation.html
+
 **Leverkusen interested in Villa's Buendia**\
 `Bayer Leverkusen are interested in signing Aston Villa midfielder Emiliano Buendia.`\
 https://nytimes.com/athletic/6087676/2025/01/25/emi-buendia-bayer-leverkusen-aston-villa/
