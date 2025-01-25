@@ -1,3 +1,7 @@
+**Taylor Hall trade cleared a path for Blackhawks to develop prospects**\
+`As Chicago's rebuild moves forward, the 3-team blockbuster trade is about the major details, not the minor ones.`\
+https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
+
 **Mark Jackson and the Leeds United influence making a mark in Australia**\
 `The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
 https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080225/2025/01/25/michael-newberry-northern-irelan
 **Nico Paz is flying under Fabregas at Como but a return to Real Madrid would be too soon**\
 `The 20-year-old Argentina international has been superb in Serie A and has created more chances than any other under-21 in top five leagues`\
 https://nytimes.com/athletic/6085642/2025/01/25/nico-paz-como-real-madrid/
-
-**Man City vs Chelsea: Who needs Champions League qualification more?**\
-`The financial incentives are obvious but there is also a prestige and importance beyond money to being in Europe's premier competition`\
-https://nytimes.com/athletic/6082940/2025/01/25/man-city-chelsea-champions-league-qualification/
 
