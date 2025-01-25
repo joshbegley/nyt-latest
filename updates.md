@@ -1,3 +1,7 @@
+**Wembymania: What Paris feels like when Victor Wembanyama is in town**\
+`It takes a lot to turn heads during Paris Fashion Week, but the homecoming of an NBA phenom did just that.`\
+https://nytimes.com/athletic/6083573/2025/01/25/victor-wembanyama-paris-excitement-nba/
+
 **In the Gaza Rubble, the Living Envy the Dead**\
 `So many children killed and injured, yet a lasting Middle East peace seems no closer.`\
 https://nytimes.com/2025/01/25/opinion/gaza-israel-ceasefire.html
