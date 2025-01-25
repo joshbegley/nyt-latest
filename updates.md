@@ -1,3 +1,7 @@
+**Hegseth’s Views May Clash With Reality at the Pentagon**\
+`The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
+https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html
+
 **After 3 Days Trapped in Lake Erie Ice, a Canadian Ship Is Finally Freed**\
 `The 17-member crew of the freighter, stuck a mile off the Buffalo shore, was never in serious danger, but its predicament drew news media attention and a crowd of curious onlookers.`\
 https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
