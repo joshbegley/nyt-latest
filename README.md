@@ -11,7 +11,7 @@ https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/its-a
 https://nytimes.com/2025/01/25/opinion/trump-broke-liberal-cathedral.html
 
 **Madison Keys fulfils her tennis destiny on a breezy night in Melbourne**\
-`At 14, Madison Keys appeared destined for a Grand Slam trophy. 16 years later on a breezy night in Melbourne, she held it in her hands.`\
+`At 14, Madison Keys appeared destined for a Grand Slam trophy. Sixteen years later on a breezy night in Melbourne, she held it in her hands.`\
 https://nytimes.com/athletic/6087504/2025/01/25/madison-keys-australian-open/
 
 **Getting to the Super Bowl is hard, so here's a tough quiz about the contenders**\
