@@ -1,3 +1,11 @@
+**Hurricanes trade for Mikko Rantanen, Taylor Hall in 3-team deal**\
+`The trade is a stunning midseason swap of point-per-game players in their primes, an anomaly in the NHL trade market in the salary-cap era.`\
+https://nytimes.com/athletic/6087207/2025/01/24/rantanen-necas-hall-drury-hurricanes-avalanche-3-way-trade/
+
+**Quotation of the Day: The Perfect Cacio e Pepe Recipe Does Exist. Just Ask Scientists.**\
+`Quotation of the Day for Saturday, January 25, 2025.`\
+https://nytimes.com/2025/01/24/pageoneplus/quotation-of-the-day-the-perfect-cacio-e-pepe-recipe-does-exist-just-ask-scientists.html
+
 **Trump Officials Pause Programs to Let In Immigrants, Including Ukrainians**\
 `The pause on several initiatives that allowed immigrants to enter the country temporarily will block the entrance of people fleeing some of the most unstable and desperate places in the world.`\
 https://nytimes.com/2025/01/24/us/politics/trump-immigration-pause.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/chicago-school-immigration-secret-service.html
 **Court Sides With Democrats in Fight Over Control of Minnesota House**\
 `Minnesota’s top court ruled that Republicans had overstepped their authority by conducting business in the Legislature even as Democrats boycotted the session.`\
 https://nytimes.com/2025/01/24/us/court-democrats-control-minnesota-house.html
-
-**Nearly 3 Decades After Texas Woman’s Murder, a Former Tenant Is Charged**\
-`Mary Moore Searight, a prominent landowner and benefactor, was killed in 1996 at her home in Paris, Texas. In 2023, DNA obtained from a tenant, David Paul Cady Jr., linked him to her final moments, the authorities say.`\
-https://nytimes.com/2025/01/24/us/texas-murder-dna-evidence.html
-
-**New Luxury Hotel in Serbia Will Be a Trump-Kushner Joint Project**\
-`The plan illustrates the continued ambitions of the Trump family to forge new international deals even as President Trump has returned to the White House.`\
-https://nytimes.com/2025/01/24/us/politics/trump-kushner-serbia-hotel.html
 

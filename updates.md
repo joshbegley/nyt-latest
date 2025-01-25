@@ -1,3 +1,11 @@
+**Hurricanes trade for Mikko Rantanen, Taylor Hall in 3-team deal**\
+`The trade is a stunning midseason swap of point-per-game players in their primes, an anomaly in the NHL trade market in the salary-cap era.`\
+https://nytimes.com/athletic/6087207/2025/01/24/rantanen-necas-hall-drury-hurricanes-avalanche-3-way-trade/
+
+**Quotation of the Day: The Perfect Cacio e Pepe Recipe Does Exist. Just Ask Scientists.**\
+`Quotation of the Day for Saturday, January 25, 2025.`\
+https://nytimes.com/2025/01/24/pageoneplus/quotation-of-the-day-the-perfect-cacio-e-pepe-recipe-does-exist-just-ask-scientists.html
+
 **Trump Officials Pause Programs to Let In Immigrants, Including Ukrainians**\
 `The pause on several initiatives that allowed immigrants to enter the country temporarily will block the entrance of people fleeing some of the most unstable and desperate places in the world.`\
 https://nytimes.com/2025/01/24/us/politics/trump-immigration-pause.html
