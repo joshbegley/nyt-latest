@@ -1,3 +1,15 @@
+**The Briefing: Southampton 1 Newcastle 3 - Howe's team fight back, Isak does it again**\
+`Analysis of Newcastle United's Premier League game away to Southampton`\
+https://nytimes.com/athletic/6080716/2025/01/25/southampton-1-newcastle-3-highlights/
+
+**The Briefing - Wolves 0 Arsenal 1: Was Lewis-Skelly's red card harsh? How did Arteta's 10 men play?**\
+`Arsenal managed to beat Wolverhampton Wanderers 1-0 on Saturday afternoon`\
+https://nytimes.com/athletic/6080714/2025/01/25/wolves-arsenal-result-report-analysis/
+
+**The Briefing: Liverpool 4 Ipswich 1 - Is Konate adding more in attack? Have Slot's side cracked low blocks?**\
+`Analysis of Liverpool's Premier League victory over Ipswich Town, which takes them six points clear at the top of the table`\
+https://nytimes.com/athletic/6080715/2025/01/25/liverpool-4-ipswich-1-goals-highlights/
+
 **AJ Dybantsa gets taste of NBA in Paris, Team USA future awaiting him**\
 `Dybantsa is the top recruit of the 2025 class, has committed to BYU and is already the presumptive No. 1 pick for the 2026 NBA Draft.`\
 https://nytimes.com/athletic/6087724/2025/01/25/aj-dybantsa-paris-spurs-pacers-nba/
