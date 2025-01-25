@@ -1,3 +1,11 @@
+**How does the Mikko Rantanen trade affect Carolina's Stanley Cup chances?**\
+`After the blockbuster trade, the Hurricanes are the favorites to come out of the East with a 12.7 percent chance of winning the Cup.`\
+https://nytimes.com/athletic/6087275/2025/01/24/mikko-rantanen-hurricanes-stanley-cup-chances/
+
+**Cowboys hire Brian Schottenheimer as next coach**\
+`Serving as Cowboys offensive coordinator the last two seaosns, Schottenheimer brings 25 years of NFL coaching experience to the job.`\
+https://nytimes.com/athletic/6081269/2025/01/24/brian-schottenheimer-dallas-cowboys-head-coach-hired/
+
 **In Visit to Pacific Palisades, Trump Praises Firefighters and Blames Democratic Officials**\
 `After a tour of areas damaged by the California wildfires, the president sparred with local leaders and blamed them for a wide variety of issues affecting the disaster response.`\
 https://nytimes.com/2025/01/24/us/politics/tour-pacific-palisades-wildfire-damage.html
