@@ -1,3 +1,7 @@
+**What's it like to face Aryna Sabalenka in full flow?**\
+`The world No. 1 is seeking a third Australian Open title in a row. This is what makes her the best player in the world.`\
+https://nytimes.com/athletic/6085614/2025/01/25/aryna-sabalenka-tennis-play-opponent-experience/
+
 **Here is the latest on the hostage and prisoner releases.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest

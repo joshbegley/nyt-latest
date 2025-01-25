@@ -1,3 +1,7 @@
+**What's it like to face Aryna Sabalenka in full flow?**\
+`The world No. 1 is seeking a third Australian Open title in a row. This is what makes her the best player in the world.`\
+https://nytimes.com/athletic/6085614/2025/01/25/aryna-sabalenka-tennis-play-opponent-experience/
+
 **Hawaii Has ‘Aloha.’ In Buffalo, It’s ‘Go Bills.’**\
 `Devotion runs deep in western New York for an N.F.L. team that has never won a Super Bowl. Will this be the year that loyalty is rewarded?`\
 https://nytimes.com/2025/01/25/nyregion/buffalo-bills-fans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast
 **Diego Carlos: A defensive contradiction**\
 `Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
 https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
-
-**Barcelona's midfielders assessed: Who should be in Hansi Flick's starting XI?**\
-`Gavi, Pedri, Olmo, De Jong, Casado — what's the strongest combination?`\
-https://nytimes.com/athletic/6086112/2025/01/25/barcelonas-midfield-options-assessed-who-should-be-in-hansi-flicks-starting-xi/
 
