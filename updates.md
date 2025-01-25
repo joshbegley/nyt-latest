@@ -1,3 +1,7 @@
+**Israel releases 200 Palestinian prisoners, many of whom were serving life sentences.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/israel-releases-200-palestinian-prisoners-many-of-whom-were-serving-life-sentences
+
 **2 Novels for Cold Weather**\
 `Joan Aiken’s neo-Gothic; Joseph Roth’s family epic.`\
 https://nytimes.com/2025/01/25/books/2-novels-for-cold-weather.html
