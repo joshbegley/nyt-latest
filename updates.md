@@ -1,3 +1,7 @@
+**Corrections: Jan. 25, 2025**\
+`Corrections that appeared in print on Saturday, Jan. 25, 2025.`\
+https://nytimes.com/2025/01/24/pageoneplus/corrections-jan-25-2025.html
+
 **Live Senate Tally: Pete Hegseth Confirmation Vote**\
 `Follow the vote count live.`\
 https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
