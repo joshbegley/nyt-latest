@@ -1,3 +1,7 @@
+**Who Are the Three Republican Senators Who Voted Against Pete Hegseth?**\
+`Senators Lisa Murkowski, Susan Collins and Mitch McConnell voted against confirming Donald Trump’s pick for defense secretary. To Capitol insiders, their decisions weren’t surprising.`\
+https://nytimes.com/2025/01/25/us/politics/hegseth-confirmation-republican-senators-votes.html
+
 **Sundance Kicks Off With Cynthia Erivo, Jon Hamm and Abby Wambach**\
 `Filmmakers and celebrities reflected on the festival’s lineup and future beyond the mountains of Park City.`\
 https://nytimes.com/2025/01/25/style/sundance-film-festival-2025-utah.html
