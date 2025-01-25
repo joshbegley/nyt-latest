@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Fernandes says Amorim's criticisms fired him up**\
 `Manchester United captain Bruno Fernandes has defended Ruben Amorim’s criticisms of the team and says the head coach’s comments fired him up.`\
 https://nytimes.com/athletic/6088005/2025/01/25/bruno-fernandes-man-utd-amorim/

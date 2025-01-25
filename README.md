@@ -1,3 +1,7 @@
+**Letter Openers**\
+`Rich Proulx presents a puzzle with pictures and sound.`\
+https://nytimes.com/2025/01/25/crosswords/daily-puzzle-2025-01-26.html
+
 **Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
 `The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
 **38 Injured After ‘Unexpected Aircraft Movement’ on a United Flight**\
 `The authorities in Nigeria said that the United Airlines plane had to return to Lagos, Nigeria, after the episode. Six people were treated at a hospital, officials said.`\
 https://nytimes.com/2025/01/25/business/united-airlines-emergency-landing-nigeria.html
-
-**Jets to hire Broncos' Darren Mougey as general manager**\
-`Darren Mougey replaces Joe Douglas, who the Je fired late in the 2024 season after failing to make the playoffs over a six-year tenure.`\
-https://nytimes.com/athletic/6086559/2025/01/25/darren-mougey-hired-ny-jets-general-manager/
 
