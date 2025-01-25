@@ -1,3 +1,7 @@
+**State Dept. Halts Global Mine-Clearing Programs**\
+`Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
+https://nytimes.com/2025/01/25/us/politics/mine-clearing-programs-state-dept.html
+
 **The State Dept. halts global mine-clearing programs.**\
 `Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
 https://nytimes.com/2025/01/25/us/politics/state-dept-halts-global-mine-clearing-programs.html
