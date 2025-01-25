@@ -26,7 +26,7 @@ https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
 `Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
 https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
 
-**Pacers, Tyrese Haliburton avenge loss to Spurs with 30-point win in Paris**\
+**Spurs' Wembanyama gets emotional following France homecoming loss to Pacers**\
 `Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
 https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
 

@@ -1,3 +1,11 @@
+**Lions promote LBs coach Kelvin Sheppard to defensive coordinator**\
+`Sheppard earned the promotion following his third season as LBs coach and fourth overall with Detroit.`\
+https://nytimes.com/athletic/6088170/2025/01/25/lions-defensive-coordinator-kelvin-sheppard-promoted/
+
+**Jets to hire Broncos' Darren Mougey as general manager**\
+`Darren Mougey replaces Joe Douglas, who the Je fired late in the 2024 season after failing to make the playoffs over a six-year tenure.`\
+https://nytimes.com/athletic/6086559/2025/01/25/darren-mougey-hired-ny-jets-general-manager/
+
 **Hegseth’s Views May Clash With Reality at the Pentagon**\
 `The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
 https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html

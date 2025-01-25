@@ -1,3 +1,7 @@
+**Lions promote LBs coach Kelvin Sheppard to defensive coordinator**\
+`Sheppard earned the promotion following his third season as LBs coach and fourth overall with Detroit.`\
+https://nytimes.com/athletic/6088170/2025/01/25/lions-defensive-coordinator-kelvin-sheppard-promoted/
+
 **Hegseth’s Views May Clash With Reality at the Pentagon**\
 `The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
 https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/01/25/nyregion/canada-freighter-ship-lake-erie.html
 `The authorities in Nigeria said that the United Airlines plane had to return to Lagos, Nigeria, after the episode. Six people were treated at a hospital, officials said.`\
 https://nytimes.com/2025/01/25/business/united-airlines-emergency-landing-nigeria.html
 
-**Jets to hire Broncos' Darren Mougey as team's new general manager**\
-`Darren Mougey replaces Joe Douglas, who was fired as GM late in the 2024 season after failing to make the playoffs over a six-year tenure.`\
+**Jets to hire Broncos' Darren Mougey as general manager**\
+`Darren Mougey replaces Joe Douglas, who the Je fired late in the 2024 season after failing to make the playoffs over a six-year tenure.`\
 https://nytimes.com/athletic/6086559/2025/01/25/darren-mougey-hired-ny-jets-general-manager/
 
 **Mike Hynson, Surfing Star of ‘The Endless Summer,’ Dies at 82**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/us/politics/trump-federal-workers.html
 **Sweeping Halt to Foreign Aid Does Not Apply to Arms for Israel and Egypt**\
 `Secretary of State Marco Rubio’s orders could force many groups working on global aid to stop their programs. And the White House has approved sending more 2,000-pound bombs to Israel.`\
 https://nytimes.com/2025/01/25/us/politics/us-foreign-aid-egypt-israel.html
-
-**Maresca: I still trust Sanchez, he knows he has to do better**\
-`Enzo Maresca insisted he still trusts Robert Sanchez to be Chelsea’s starting goalkeeper but added that he wants to see a reaction from the Spaniard to another costly error in Saturday’s 3-1 defeat against Manchester City at the Etihad Stadium.`\
-https://nytimes.com/athletic/6088099/2025/01/25/robert-sanchez-chelsea-maresca/
 
