@@ -22,8 +22,8 @@ https://nytimes.com/2025/01/24/us/politics/trump-immigration-pause.html
 `Corrections that appeared in print on Saturday, Jan. 25, 2025.`\
 https://nytimes.com/2025/01/24/pageoneplus/corrections-jan-25-2025.html
 
-**How The Senate Voted to Confirm Pete Hegseth as Secretary of Defense**\
-`Follow the secretary of defense confirmation vote count live.`\
+**How Each Senator Voted to Confirm Pete Hegseth as Secretary of Defense**\
+`The Senate voted 51 to 50 to confirm Mr. Hegseth, a former Fox News host, as the new Pentagon chief.`\
 https://nytimes.com/interactive/2025/01/24/us/politics/hegseth-senate-confirmation-vote.html
 
 **No. 2 South Carolina hands No. 5 LSU women's hoops first loss of season**\
