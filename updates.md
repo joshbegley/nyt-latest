@@ -1,3 +1,7 @@
+**Will Mikko Rantanen re-sign with the Hurricanes? Projecting his next contract**\
+`Carolina can re-sign Rantanen and maintain a formidable supporting cast around him, which might have been tough for Colorado.`\
+https://nytimes.com/athletic/6087286/2025/01/25/rantanen-contract-hurricanes-trade/
+
 **Trump Doesn’t Get to Decide What the Constitution Means**\
 `There is no plausible justification for the administration’s interpretation of the 14th Amendment`\
 https://nytimes.com/2025/01/25/opinion/trump-birthright-citizenship-constitution.html
