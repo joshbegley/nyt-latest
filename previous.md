@@ -1,40 +1,40 @@
-**The Best Cozy Romance Novels to Steam Up Your Nights**\
-`Books by Alyssa Cole, Talia Hibbert and more offer heartwarming banter and plenty of heat.`\
-https://nytimes.com/2025/01/25/books/steamy-romance-books.html
+**Here’s How President Trump Shifted Policy in His First Week**\
+`Through a flurry of orders, the new president quickly began driving the country in a different direction on many contentious issues.`\
+https://nytimes.com/2025/01/25/us/politics/trump-immigration-climate-dei-policies.html
 
-**How My Trip to Quit Sugar Quickly Became a Journey Into Hell**\
-`For my whole life, I’ve been a hard-core sweets junkie. Could a spa help me quit in a week?`\
-https://nytimes.com/2025/01/25/magazine/quit-sugar.html
+**Forget the Rumor Mill. These Were Just Some Really Great Clothes.**\
+`Kim Jones of Dior remains the subject of rampant speculation in the fashion industry, but at his latest runway show, he reaffirmed his men’s wear mastery.`\
+https://nytimes.com/2025/01/25/style/dior-mens-wear-kim-jones-paris.html
 
-**Tom Green, Former Provocateur, Is Building Something New**\
-`A Y2K-era phenomenon most famous for his MTV prank show and surreal brand of comedy, Green pioneered ideas that thrive today.`\
-https://nytimes.com/2025/01/25/arts/television/tom-green-show-amazon-prime.html
+**Snakeskin: It’s Fashionable, and It Scares Predators Away From Bird Nests**\
+`A museum curator with a ladder showed that birds that build cavity-style nests are able to protect their eggs with the skin shed by snakes.`\
+https://nytimes.com/2025/01/25/science/snakeskin-birds-nests.html
 
-**The Tech Arsenal That Could Power Trump’s Immigration Crackdown**\
-`Border enforcement agencies have spent billions assembling surveillance tools to track and find people. These could be critical in President Trump’s immigration agenda.`\
-https://nytimes.com/2025/01/25/technology/trump-immigration-deportation-surveillance.html
+**Trump Stocks E.P.A. With Oil, Gas and Chemical Lobbyists**\
+`Top political appointees are already at the E.P.A. preparing to erase the agency’s climate rules and pollution controls. Many of them have tried it before.`\
+https://nytimes.com/2025/01/25/climate/epa-staff-oil-gas-chemical-industry-lobbyists.html
 
-**William Stanford Davis’s Brooch**\
-`The “Abbott Elementary” actor talks about how his grandmother inspired his sense of style.`\
-https://nytimes.com/2025/01/25/style/william-stanford-daviss-brooch.html
+**Trump’s Crypto Venture Divides the Industry He Aims to Support**\
+`The president’s promotion of a speculative digital coin left some crypto investors feeling blindsided, while others saw it as a gimmick that undermined the industry’s credibility.`\
+https://nytimes.com/2025/01/25/us/politics/trumps-crypto-venture-divides-the-industry-he-aims-to-support.html
 
-**A ‘Groundhog Day’ Time Loop So Long It Spans 7 Enthralling Books**\
-`Solvej Balle’s “On the Calculation of Volume” rethinks the familiar story of the endlessly repeating day.`\
-https://nytimes.com/2025/01/25/books/review/solvej-balle-on-the-calculation-of-volume.html
+**Can Improv Comedians Make a Living? Yes, in Your Office.**\
+`For some improv comedians, Fortune 1000 companies can help make the funny business more lucrative.`\
+https://nytimes.com/2025/01/25/business/corporate-improv-comedians.html
 
-**A Lonely 20-Something Finds Her Ideal Mate. It’s a Blob.**\
-`In Maggie Su’s funny debut novel, a Frankenstein-like monster turns on his flailing creator.`\
-https://nytimes.com/2025/01/25/books/review/blob-maggie-su.html
+**Goodbye, ‘Resistance.’ The Era of Hyperpolitics Is Over.**\
+`Where has the anti-Trump energy gone?`\
+https://nytimes.com/2025/01/25/magazine/trump-hyperpolitics-resistance.html
 
-**The Race for All-Powerful Pot**\
-`Inside the $32 billion industry transforming marijuana, its consumption and beliefs about its ability to heal.`\
-https://nytimes.com/2025/01/25/us/marijuana-thc-health-claims-potency.html
+**What Trump’s Supporters Want for the Future of America**\
+`Scenes from a return to power in Washington.`\
+https://nytimes.com/2025/01/25/magazine/trump-supporters-maga-america-future.html
 
-**What’s Your Major? Some Say ‘Sports’ Should Be an Acceptable Answer.**\
-`The idea of offering a degree in sports has gained momentum now that college athletes can be paid. Now Nike is joining some academics in pushing for it to become a reality.`\
-https://nytimes.com/2025/01/25/business/college-sports-academic-major.html
+**We Can Make A.I. Work for Us**\
+`A.I. can be designed to dramatically enhance individual empowerment.`\
+https://nytimes.com/2025/01/25/opinion/ai-chatgpt-empower-bot.html
 
-**Europe Is Pouring Money Into Defense. Is It Enough?**\
-`With a full-blown land war in Ukraine and an isolationist American president back in the White House, European leaders have come to a stark conclusion: They must spend more on their militaries.`\
-https://nytimes.com/interactive/2025/01/25/world/europe/nato-europe-defense-spending.html
+**Tamara Lawrance Wants Another Season of ‘The Traitors,’ but for Actors**\
+`The “Get Millie Black” star is a fan of reality TV in general. “Sometimes mindless things are very, very healthy for you,” she said.`\
+https://nytimes.com/2025/01/25/arts/television/tamara-lawrance-get-millie-black.html
 

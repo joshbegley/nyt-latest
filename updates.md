@@ -1,3 +1,43 @@
+**Here’s How President Trump Shifted Policy in His First Week**\
+`Through a flurry of orders, the new president quickly began driving the country in a different direction on many contentious issues.`\
+https://nytimes.com/2025/01/25/us/politics/trump-immigration-climate-dei-policies.html
+
+**Forget the Rumor Mill. These Were Just Some Really Great Clothes.**\
+`Kim Jones of Dior remains the subject of rampant speculation in the fashion industry, but at his latest runway show, he reaffirmed his men’s wear mastery.`\
+https://nytimes.com/2025/01/25/style/dior-mens-wear-kim-jones-paris.html
+
+**Snakeskin: It’s Fashionable, and It Scares Predators Away From Bird Nests**\
+`A museum curator with a ladder showed that birds that build cavity-style nests are able to protect their eggs with the skin shed by snakes.`\
+https://nytimes.com/2025/01/25/science/snakeskin-birds-nests.html
+
+**Trump Stocks E.P.A. With Oil, Gas and Chemical Lobbyists**\
+`Top political appointees are already at the E.P.A. preparing to erase the agency’s climate rules and pollution controls. Many of them have tried it before.`\
+https://nytimes.com/2025/01/25/climate/epa-staff-oil-gas-chemical-industry-lobbyists.html
+
+**Trump’s Crypto Venture Divides the Industry He Aims to Support**\
+`The president’s promotion of a speculative digital coin left some crypto investors feeling blindsided, while others saw it as a gimmick that undermined the industry’s credibility.`\
+https://nytimes.com/2025/01/25/us/politics/trumps-crypto-venture-divides-the-industry-he-aims-to-support.html
+
+**Can Improv Comedians Make a Living? Yes, in Your Office.**\
+`For some improv comedians, Fortune 1000 companies can help make the funny business more lucrative.`\
+https://nytimes.com/2025/01/25/business/corporate-improv-comedians.html
+
+**Goodbye, ‘Resistance.’ The Era of Hyperpolitics Is Over.**\
+`Where has the anti-Trump energy gone?`\
+https://nytimes.com/2025/01/25/magazine/trump-hyperpolitics-resistance.html
+
+**What Trump’s Supporters Want for the Future of America**\
+`Scenes from a return to power in Washington.`\
+https://nytimes.com/2025/01/25/magazine/trump-supporters-maga-america-future.html
+
+**We Can Make A.I. Work for Us**\
+`A.I. can be designed to dramatically enhance individual empowerment.`\
+https://nytimes.com/2025/01/25/opinion/ai-chatgpt-empower-bot.html
+
+**Tamara Lawrance Wants Another Season of ‘The Traitors,’ but for Actors**\
+`The “Get Millie Black” star is a fan of reality TV in general. “Sometimes mindless things are very, very healthy for you,” she said.`\
+https://nytimes.com/2025/01/25/arts/television/tamara-lawrance-get-millie-black.html
+
 **The Best Cozy Romance Novels to Steam Up Your Nights**\
 `Books by Alyssa Cole, Talia Hibbert and more offer heartwarming banter and plenty of heat.`\
 https://nytimes.com/2025/01/25/books/steamy-romance-books.html
