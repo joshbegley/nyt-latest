@@ -1,3 +1,7 @@
+**As Hamas Exchanges Gaza Hostages, It Puts on a Show of Force**\
+`The handover of four female Israeli soldiers by Hamas on Saturday came as Israel released 200 prisoners. But a dispute arose over the hostage release timetable.`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostage-prisoner-swap.html
+
 **Eric Tulsky exclusive: Hurricanes GM on pulling off the Mikko Rantanen trade — 'You have to be willing to stretch'**\
 `The Canes aren't done after this blockbuster: "Until we have the 20 best players in the league … there’s always somewhere we can upgrade."`\
 https://nytimes.com/athletic/6088081/2025/01/25/eric-tulsky-mikko-rantanen-hurricanes-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/us/mike-hynson-dead.html
 **Ed Cooley drops to 0-4 against Providence as Georgetown's slide continues**\
 `Ed Cooley has won 125 Big East games as a head coach, but he still has yet to claim a win over the program he spent 12 seasons leading.`\
 https://nytimes.com/athletic/6088129/2025/01/25/georgetown-providence-ed-cooley-big-east/
-
-**Trump’s Moves to Upend Federal Bureaucracy Touch Off Fear and Confusion**\
-`Agencies are gripped with uncertainty about how to implement the blizzard of new policies as workers frantically try to assess the impact on their lives.`\
-https://nytimes.com/2025/01/25/us/politics/trump-federal-workers.html
 
