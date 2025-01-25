@@ -1,3 +1,7 @@
+**U.S. Military Planes Carrying Migrants Land in Guatemala**\
+`The Department of Defense said this week that it would provide planes for deportation flights.`\
+https://nytimes.com/2025/01/24/us/politics/trump-us-guatemala-military-migrants.html
+
 **Hegseth Is Second Cabinet Secretary in History to Advance on Tiebreaker Vote**\
 `In 2017, Betsy DeVos barely survived her confirmation vote to become President Trump’s secretary of education.`\
 https://nytimes.com/2025/01/24/us/politics/hegseth-vote-devos-tiebreaker.html
