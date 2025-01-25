@@ -1,3 +1,7 @@
+**Changing Tunes**\
+`The artists we love are always changing. But there’s part of all of us that’s impervious to external forces.`\
+https://nytimes.com/2025/01/25/briefing/changing-tunes.html
+
 **Game, Set, Match: Madison Keys beats Aryna Sabalenka for first Grand Slam title at Australian Open**\
 `A tense third set ended with the American lifting her first major, ending Sabalenka's dominance in Australia.`\
 https://nytimes.com/athletic/6087426/2025/01/25/sabalenka-keys-australian-open-final-result-analysis/
