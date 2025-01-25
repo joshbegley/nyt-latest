@@ -1,3 +1,7 @@
+**Man Utd's Antony completes Betis loan**\
+`Real Betis have completed the signing of Antony on loan from Manchester United until the end of the season.`\
+https://nytimes.com/athletic/6086235/2025/01/25/antony-manchester-united-real-betis-loan/
+
 **Pete Hegseth, New Defense Secretary, Outlines Pentagon’s Priorities**\
 `After being sworn-in by Vice President JD Vance, the Pentagon’s new leader addressed the Defense Department’s three million employees.`\
 https://nytimes.com/2025/01/25/us/politics/pete-hegseth-pentagon-defense-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6080715/2025/01/25/liverpool-4-ipswich-1-goals-high
 **Who Are the Three Republican Senators Who Voted Against Pete Hegseth?**\
 `Senators Lisa Murkowski, Susan Collins and Mitch McConnell voted against confirming Donald Trump’s pick for defense secretary. To Capitol insiders, their decisions weren’t surprising.`\
 https://nytimes.com/2025/01/25/us/politics/hegseth-confirmation-republican-senators-votes.html
-
-**Sundance Kicks Off With Cynthia Erivo, Jon Hamm and Abby Wambach**\
-`Filmmakers and celebrities reflected on the festival’s lineup and future beyond the mountains of Park City.`\
-https://nytimes.com/2025/01/25/style/sundance-film-festival-2025-utah.html
 
