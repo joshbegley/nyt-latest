@@ -1,3 +1,7 @@
+**Reports of Immigration Agents at Chicago School Set Off Fear, but Are Proved False**\
+`The agents turned out to be unrelated to immigration, officials said hours later. They were from the Secret Service, investigating a threat.`\
+https://nytimes.com/2025/01/24/us/chicago-school-immigration-secret-service.html
+
 **Court Sides With Democrats in Fight Over Control of Minnesota House**\
 `Minnesota’s top court ruled that Republicans had overstepped their authority by conducting business in the Legislature even as Democrats boycotted the session.`\
 https://nytimes.com/2025/01/24/us/court-democrats-control-minnesota-house.html
