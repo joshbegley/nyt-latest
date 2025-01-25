@@ -1,3 +1,7 @@
+**Here’s What We Know About the 4 Released Hostages**\
+`The young women were working as “spotters” for Israel’s army when they were abducted in the Hamas-led attack on Oct. 7, 2023.`\
+https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostages.html
+
 **Lewis Hamilton’s first week at Ferrari: Louboutin boots, a dream fulfilled and a proud mom**\
 `We saw Lewis Hamilton in classic Ferrari red for the first time this week. Here's what happened...`\
 https://nytimes.com/athletic/6086153/2025/01/25/lewis-hamilton-ferrari-f1-louboutin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087349/2025/01/25/blackhawks-taylor-hall-trade/
 **Mark Jackson and the Leeds United influence making a mark in Australia**\
 `The former Leeds defender had huge success as a coach in the Elland Road youth ranks - he's doing the same Down Under`\
 https://nytimes.com/athletic/6086123/2025/01/25/leeds-mark-jackson-central-coast-mariners/
-
-**Diego Carlos: A defensive contradiction**\
-`Diego Carlos had the raw materials and pedigree when he signed - his time at Villa was punctuated by extreme highs and lows`\
-https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfer-fenerbahce/
 
