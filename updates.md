@@ -1,3 +1,7 @@
+**Hegseth is the second cabinet secretary in history to advance on a tiebreaker vote.**\
+`By Annie Karni and Chris Cameron`\
+https://nytimes.com/live/2025/01/24/us/pete-hegseth-defense-secretary-vote/hegseth-is-the-second-cabinet-secretary-in-history-to-advance-on-a-tiebreaker-vote
+
 **Two military jets carrying migrants landed in Guatemala, the U.S. Embassy and local authorities said.**\
 `By Annie Correal and Jody García`\
 https://nytimes.com/2025/01/24/us/politics/two-military-jets-carrying-migrants-landed-in-guatemala-the-us-embassy-and-local-authorities-said.html
