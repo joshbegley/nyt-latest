@@ -1,3 +1,7 @@
+**Minutes for Scarles and Orford show Potter is keen to turn to West Ham's academy**\
+`The wealth of youth players available to the new West Ham manager should feel optimistic he will give them first-team opportunities`\
+https://nytimes.com/athletic/6057877/2025/01/25/minutes-for-scarles-and-orford-show-graham-potter-keen-to-make-use-of-west-hams-academy/
+
 **Kylian Mbappe, the owner: This club 'is not your toy'**\
 `The Real Madrid star is the majority owner of French side Stade Malherbe Caen. It is not going particularly well so far`\
 https://nytimes.com/athletic/6085900/2025/01/25/kylian-mbappe-the-owner-this-club-is-not-your-toy/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/world/asia/myanmar-rebels-colleges.html
 **Spurs vs. Pacers, Part Deux: Wembanyama and San Antonio seek Parisian sweep**\
 `The Spurs and Pacers play a second Paris game, this time on ESPN. Victor Wembanyama was sensational in Thursday's blowout win.`\
 https://nytimes.com/athletic/6084711/2025/01/25/spurs-pacers-wemby-paris-espn-how-to-watch-odds-preview/
-
-**Manchester City vs Chelsea: Can City surge ahead after their slump?**\
-`Chelsea are fourth in the Premier League, but only two points ahead of Manchester City ahead of Saturday's massive clash.`\
-https://nytimes.com/athletic/6079131/2025/01/25/manchester-city-vs-chelsea-preview-storylines-odds-prediction-for-massive-match-in-champions-league-race/
 
