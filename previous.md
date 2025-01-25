@@ -1,3 +1,11 @@
+**Blue Jackets' Sean Monahan expected to be out until March after injury setback**\
+`COLUMBUS, Ohio — Sean Monahan, who has centered one of the NHL&#8217;s best lines and been an invaluable veteran presence for the Columbus Blue Jackets this season, is expected to be out of the lineup until mid-to-late March after suffering a setback in his recovery from a wrist injury, a team source told The Athletic.`\
+https://nytimes.com/athletic/6088411/2025/01/25/monahan-blue-jackets-injury/
+
+**Bills OC Joe Brady pulls out of Saints' HC search, will stay with Buffalo**\
+`Brady's decision is a boon for the Bills, who posted a 13-4 record this season and won their fifth straight AFC East title.`\
+https://nytimes.com/athletic/6088401/2025/01/25/joe-brady-bills-offensive-coordinator-saints-coach-search/
+
 **Why Morgan Geekie is the model of a retool target**\
 `Young, inexpensive and room to grow: Geekie has become the type of presence the Bruins would love to acquire before the trade deadline.`\
 https://nytimes.com/athletic/6088256/2025/01/25/bruins-morgan-geekie-retool/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6088081/2025/01/25/eric-tulsky-mikko-rantanen-hurri
 **Spurs' Wembanyama gets emotional following France homecoming loss to Pacers**\
 `Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
 https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
-
-**Lions promote LBs coach Kelvin Sheppard to defensive coordinator**\
-`Sheppard earned the promotion following his third season as LBs coach and fourth overall with Detroit.`\
-https://nytimes.com/athletic/6088170/2025/01/25/lions-defensive-coordinator-kelvin-sheppard-promoted/
-
-**Hegseth’s Views May Clash With Reality at the Pentagon**\
-`The new defense secretary’s goals run counter to the military’s apolitical tradition and efforts to build a force that mirrors America.`\
-https://nytimes.com/2025/01/25/us/politics/pete-hegseth-new-defense-secretary.html
 
