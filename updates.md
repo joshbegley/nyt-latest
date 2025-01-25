@@ -1,3 +1,7 @@
+**NHL trade grades: Hurricanes acquire Mikko Rantanen in stunning blockbuster with Avalanche**\
+`The Hurricanes added a superstar to their lineup and win the trade, but how much will depend on if he re-signs in Carolina.`\
+https://nytimes.com/athletic/6087230/2025/01/24/nhl-trade-grades-avalanche-hurricanes-rantanen/
+
 **Take Another Direction**\
 `Michael Lieberman’s Saturday debut puts up an imposing defense.`\
 https://nytimes.com/2025/01/24/crosswords/daily-puzzle-2025-01-25.html
