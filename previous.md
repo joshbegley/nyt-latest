@@ -1,3 +1,19 @@
+**Hawaii Has ‘Aloha.’ In Buffalo, It’s ‘Go Bills.’**\
+`Devotion runs deep in western New York for an N.F.L. team that has never won a Super Bowl. Will this be the year that loyalty is rewarded?`\
+https://nytimes.com/2025/01/25/nyregion/buffalo-bills-fans.html
+
+**The Gavel Is Fake. The Advice Is Real.**\
+`Judge John Hodgman, who is not a judge, resolves small disputes with a touch of humor in his New York Times Magazine column.`\
+https://nytimes.com/2025/01/25/insider/judge-john-hodgman.html
+
+**How a Tony-Winning Actress Spends Her Sundays**\
+`Kara Young spends a rare day off brunching with her family in Harlem and popping into beauty supply stores along 125th Street.`\
+https://nytimes.com/2025/01/25/nyregion/kara-young-broadway.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/25/crosswords/spelling-bee-forum.html
+
 **Here is the latest.**\
 `By Aaron Boxerman and Qasim Nauman`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6058943/2025/01/25/diego-carlos-aston-villa-transfe
 **Barcelona's midfielders assessed: Who should be in Hansi Flick's starting XI?**\
 `Gavi, Pedri, Olmo, De Jong, Casado — what's the strongest combination?`\
 https://nytimes.com/athletic/6086112/2025/01/25/barcelonas-midfield-options-assessed-who-should-be-in-hansi-flicks-starting-xi/
-
-**Minutes for Scarles and Orford show Potter is keen to turn to West Ham's academy**\
-`The wealth of youth players available to the new West Ham manager should feel optimistic he will give them first-team opportunities`\
-https://nytimes.com/athletic/6057877/2025/01/25/minutes-for-scarles-and-orford-show-graham-potter-keen-to-make-use-of-west-hams-academy/
-
-**Kylian Mbappe, the owner: This club 'is not your toy'**\
-`The Real Madrid star is the majority owner of French side Stade Malherbe Caen. It is not going particularly well so far`\
-https://nytimes.com/athletic/6085900/2025/01/25/kylian-mbappe-the-owner-this-club-is-not-your-toy/
-
-**'Good or bad, he tells us everything' - Understanding Ruben Amorim's brutal honesty**\
-`Amorim is a firm believer that honesty is the best policy, and he has not held back in his assessment of Manchester United`\
-https://nytimes.com/athletic/6086418/2025/01/25/ruben-amorim-honesty-communication/
-
-**The stark reality of watching a Pep Guardiola midfield in 2025**\
-`It is a source of some bewilderment that Guardiola, of all coaches, should have allowed such a key part of his team to fall into decline`\
-https://nytimes.com/athletic/6086107/2025/01/25/pep-guardiola-midfield-decline-manchester-city/
 

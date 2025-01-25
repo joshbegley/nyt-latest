@@ -1,3 +1,19 @@
+**Hawaii Has ‘Aloha.’ In Buffalo, It’s ‘Go Bills.’**\
+`Devotion runs deep in western New York for an N.F.L. team that has never won a Super Bowl. Will this be the year that loyalty is rewarded?`\
+https://nytimes.com/2025/01/25/nyregion/buffalo-bills-fans.html
+
+**The Gavel Is Fake. The Advice Is Real.**\
+`Judge John Hodgman, who is not a judge, resolves small disputes with a touch of humor in his New York Times Magazine column.`\
+https://nytimes.com/2025/01/25/insider/judge-john-hodgman.html
+
+**How a Tony-Winning Actress Spends Her Sundays**\
+`Kara Young spends a rare day off brunching with her family in Harlem and popping into beauty supply stores along 125th Street.`\
+https://nytimes.com/2025/01/25/nyregion/kara-young-broadway.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/25/crosswords/spelling-bee-forum.html
+
 **Here is the latest.**\
 `By Aaron Boxerman and Qasim Nauman`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
