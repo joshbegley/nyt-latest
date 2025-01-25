@@ -1,3 +1,7 @@
+**Madison Keys fulfils her tennis destiny on a breezy night in Melbourne**\
+`At 14, Madison Keys appeared destined for a Grand Slam trophy. 16 years later on a breezy night in Melbourne, she held it in her hands.`\
+https://nytimes.com/athletic/6087504/2025/01/25/madison-keys-australian-open/
+
 **Getting to the Super Bowl is hard, so here's a tough quiz about the contenders**\
 `How ready are you for Commanders-Eagles and Bills-Chiefs on Sunday? Take our quiz to find out.`\
 https://nytimes.com/athletic/6084227/2025/01/25/reaching-the-super-bowl-is-hard-this-quiz-on-the-afc-and-nfc-contenders-is-no-cakewalk-either/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/25/opinion/gaza-israel-ceasefire.html
 **Fast Times at West Wing High**\
 `Tech tycoons joining political big shots equals an ego explosion.`\
 https://nytimes.com/2025/01/25/opinion/donald-trump-alliances-tech-billionaires.html
-
-**Let’s Get to the Marrow of What Trump Just Did**\
-`Three policy wonks dissect President Donald Trump’s executive orders on border security, immigration, government efficiency and beyond.`\
-https://nytimes.com/2025/01/25/opinion/ezra-klein-podcast-dara-lind-matthew-yglesias.html
 
