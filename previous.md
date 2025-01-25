@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/25/world/asia/trump-executive-order-immigration-afgh
 
 **The State Dept. halts global mine-clearing programs.**\
 `Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
-https://nytimes.com/live/2025/01/25/us/trump-administration-news/state-dept-halts-global-mine-clearing-programs
+https://nytimes.com/2025/01/25/us/politics/state-dept-halts-global-mine-clearing-programs.html
 
 **Alex Bregman, Astros reunion 'a long shot' in free agency, GM says**\
 `Astros GM Dana Brown said the door is “cracked” for Bregman to return to the team.`\

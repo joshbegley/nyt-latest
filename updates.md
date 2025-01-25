@@ -1,3 +1,7 @@
+**The State Dept. halts global mine-clearing programs.**\
+`Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
+https://nytimes.com/2025/01/25/us/politics/state-dept-halts-global-mine-clearing-programs.html
+
 **Wolves' Pereira confident new signings will arrive before transfer window closes**\
 `Wolverhampton Wanderers head coach Vitor Pereira has claimed he is confident his side will land the signings he wants before the end of the transfer window and stay in the Premier League.`\
 https://nytimes.com/athletic/6087975/2025/01/25/wolves-transfers-vitor-pereira/
