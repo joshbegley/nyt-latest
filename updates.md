@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Vanderbilt's court-storming encore, Texas' 22-point rally top SEC's wild day**\
 `Holding serve at home is critical to the SEC's chances of packing the bracket, and two prominent bubble-bound squads are helping the cause.`\
 https://nytimes.com/athletic/6088341/2025/01/25/vanderbilt-kentucky-texas-tamu-sec-basketball/
