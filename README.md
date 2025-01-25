@@ -23,7 +23,7 @@ https://nytimes.com/2025/01/25/nyregion/kara-young-broadway.html
 https://nytimes.com/2025/01/25/crosswords/spelling-bee-forum.html
 
 **Here is the latest on the hostage and prisoner releases.**\
-`By Aaron Boxerman`\
+`By Aaron Boxerman and Patrick Kingsley`\
 https://nytimes.com/live/2025/01/25/world/israel-hamas-hostages-cease-fire/here-is-the-latest
 
 **Hamas Releases Four Hostages to Red Cross**\
