@@ -1,3 +1,7 @@
+**Pacers, Tyrese Haliburton avenge loss to Spurs with 30-point win in Paris**\
+`Haliburton scored 18 points in the third quarter, including 16 straight, to finish with 28 points in Saturday's win.`\
+https://nytimes.com/athletic/6088037/2025/01/25/pacers-spurs-paris-tyrese-haliburton/
+
 **Trump’s Moves to Upend Federal Bureaucracy Touch Off Fear and Confusion**\
 `Agencies are gripped with uncertainty about how to implement the blizzard of new policies as workers frantically try to assess the impact on their lives.`\
 https://nytimes.com/2025/01/25/us/politics/trump-federal-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087889/2025/01/25/mikko-rantanen-trade-unpacked/
 **They Were Waiting for Flights. Then Trump Closed a Door for Afghan Allies.**\
 `An executive order has halted refugee flights for Afghans who supported the American mission in Afghanistan and had been approved to resettle in the U.S.`\
 https://nytimes.com/2025/01/25/world/asia/trump-executive-order-immigration-afghanistan.html
-
-**State Dept. Halts Global Mine-Clearing Programs**\
-`Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
-https://nytimes.com/2025/01/25/us/politics/mine-clearing-programs-state-dept.html
 
