@@ -1,3 +1,11 @@
+**They Were Waiting for Flights. Then Trump Closed a Door for Afghan Allies.**\
+`An executive order has halted refugee flights for Afghans who supported the American mission in Afghanistan and had been approved to resettle in the U.S.`\
+https://nytimes.com/2025/01/25/world/asia/trump-executive-order-immigration-afghanistan.html
+
+**The State Dept. halts global mine-clearing programs.**\
+`Efforts to clear unexploded munitions in places like Iraq and Southeast Asia will stop for at least three months, according to a surprise announcement.`\
+https://nytimes.com/live/2025/01/25/us/trump-administration-news/state-dept-halts-global-mine-clearing-programs
+
 **Alex Bregman, Astros reunion 'a long shot' in free agency, GM says**\
 `Astros GM Dana Brown said the door is “cracked” for Bregman to return to the team.`\
 https://nytimes.com/athletic/6087917/2025/01/25/alex-bregman-astros-mlb-free-agency-rumors/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6086235/2025/01/25/antony-manchester-united-real-be
 **Pete Hegseth, New Defense Secretary, Outlines Pentagon’s Priorities**\
 `After being sworn-in by Vice President JD Vance, the Pentagon’s new leader addressed the Defense Department’s three million employees.`\
 https://nytimes.com/2025/01/25/us/politics/pete-hegseth-pentagon-defense-secretary.html
-
-**Arteta 'absolutely fuming' about Lewis-Skelly red card**\
-`Arsenal manager Mikel Arteta says he is &#8220;absolutely fuming&#8221; about Myles Lewis-Skelly&#8217;s sending off during his side&#8217;s 1-0 win at Wolverhampton Wanderers on Saturday.`\
-https://nytimes.com/athletic/6087836/2025/01/25/lewis-skelly-red-card-arsenal-arteta/
-
-**How Every Senator Voted to Confirm Kristi Noem as Secretary of Homeland Security**\
-`The Senate voted 59 to 34 to confirm Ms. Noem, the governor of South Dakota, as the new head of the Homeland Security Department.`\
-https://nytimes.com/interactive/2025/01/25/us/politics/noem-senate-confirmation-vote.html
 
