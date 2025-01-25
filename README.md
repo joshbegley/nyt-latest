@@ -1,3 +1,11 @@
+**Leicester Choudhury set to join Sheffield United on loan**\
+`Leicester City midfielder Hamza Choudhury is set to join Sheffield United on loan.`\
+https://nytimes.com/athletic/6087549/2025/01/25/leicester-choudhury-sheffield-united-loan-tranfer/
+
+**As Immigration Crackdown Looms, Restaurants Are Racked With Fear**\
+`In Los Angeles, Chicago, Washington and other cities, chefs and owners are worried for their workers and their businesses.`\
+https://nytimes.com/2025/01/25/dining/trump-immigration-undocumented-workers-restaurants.html
+
 **Jerry Jones' worst nightmare: Approach to Cowboys' hire could invoke fan apathy**\
 `Although postseason wins have been scarce for the Cowboys, business has been booming.`\
 https://nytimes.com/athletic/6087415/2025/01/25/cowboys-jerry-jones-hire-brian-schottenheimer-fans-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6086880/2025/01/25/raiders-pete-carroll-john-spytek
 **The Cheat Sheet on Trump’s First Week**\
 `It was a whirlwind. Here’s what business leaders need to know.`\
 https://nytimes.com/2025/01/25/business/dealbook/trump-first-week.html
-
-**Israel releases 200 Palestinian prisoners, many of whom were serving life sentences.**\
-`By Aaron Boxerman`\
-https://nytimes.com/2025/01/25/world/middleeast/israel-releases-200-palestinian-prisoners-many-of-whom-were-serving-life-sentences.html
-
-**2 Novels for Cold Weather**\
-`Joan Aiken’s neo-Gothic; Joseph Roth’s family epic.`\
-https://nytimes.com/2025/01/25/books/2-novels-for-cold-weather.html
 
