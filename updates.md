@@ -1,3 +1,11 @@
+**No. 2 South Carolina hands No. 5 LSU women's hoops first loss of season**\
+`The Gamecocks are 19-1 while playing the toughest schedule in the country this season.`\
+https://nytimes.com/athletic/6087146/2025/01/24/south-carolina-basketball-lsu-score-analysis/
+
+**Fitbit Agrees to Pay $12 Million for Not Quickly Reporting Burn Risk With Watches**\
+`After consumer complaints of overheating batteries, the company did not immediately report the defect with its Ionic smartwatches, according to a settlement with the U.S. government.`\
+https://nytimes.com/2025/01/24/business/fitbit-smartwatch-burn-hazard-penalty.html
+
 **Israel Gives UNRWA Six Days to Halt Operations in East Jerusalem**\
 `The directive came in a letter to the U.N., after the Israeli Parliament banned the relief agency that has aided Palestinian refugees for decades.`\
 https://nytimes.com/2025/01/24/world/middleeast/israel-unrwa-palestinian-refugees.html

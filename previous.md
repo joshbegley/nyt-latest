@@ -1,3 +1,11 @@
+**No. 2 South Carolina hands No. 5 LSU women's hoops first loss of season**\
+`The Gamecocks are 19-1 while playing the toughest schedule in the country this season.`\
+https://nytimes.com/athletic/6087146/2025/01/24/south-carolina-basketball-lsu-score-analysis/
+
+**Fitbit Agrees to Pay $12 Million for Not Quickly Reporting Burn Risk With Watches**\
+`After consumer complaints of overheating batteries, the company did not immediately report the defect with its Ionic smartwatches, according to a settlement with the U.S. government.`\
+https://nytimes.com/2025/01/24/business/fitbit-smartwatch-burn-hazard-penalty.html
+
 **Israel Gives UNRWA Six Days to Halt Operations in East Jerusalem**\
 `The directive came in a letter to the U.N., after the Israeli Parliament banned the relief agency that has aided Palestinian refugees for decades.`\
 https://nytimes.com/2025/01/24/world/middleeast/israel-unrwa-palestinian-refugees.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/24/us/politics/trump-newsom-california-wildfires-rel
 **Wildfires Are Revealing the Limits of Our Hydrant Systems**\
 `While hydrants can play a role in fighting a wildfire in its early stages, the systems weren’t designed to combat the large blazes currently ravaging the Los Angeles area.`\
 https://nytimes.com/interactive/2025/01/24/us/la-fires-hydrants-water.html
-
-**Nancy Leftenant-Colon, 104, Dies; Army Nurse Broke a Color Barrier**\
-`After years of being barred from a segregated military, she became the first Black nurse in the regular U.S. armed forces. She was later an Air Force officer.`\
-https://nytimes.com/2025/01/24/obituaries/nancy-leftenant-colon-dead.html
-
-**Trump Reinstates Longstanding Republican Anti-Abortion Policy**\
-`The move came after he addressed thousands of abortion opponents in Washington to mark the 52nd anniversary of the Supreme Court’s 1973 decision in Roe v. Wade.`\
-https://nytimes.com/2025/01/24/us/politics/trump-republican-anti-abortion-policy.html
 
