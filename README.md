@@ -1,6 +1,6 @@
 **Hegseth is the second cabinet secretary in history to advance on a tiebreaker vote.**\
 `By Annie Karni and Chris Cameron`\
-https://nytimes.com/live/2025/01/24/us/pete-hegseth-defense-secretary-vote/hegseth-is-the-second-cabinet-secretary-in-history-to-advance-on-a-tiebreaker-vote
+https://nytimes.com/2025/01/24/us/politics/hegseth-is-the-second-cabinet-secretary-in-history-to-advance-on-a-tiebreaker-vote.html
 
 **Underwhelming hire latest example of Cowboys being one of NFL's most conservative franchises**\
 `This might not be the best move to get the franchise another ring, but it keeps continuity and to Jones it probably feels safe.`\
