@@ -1,3 +1,7 @@
+**Kirill Marchenko's 'engine' powers Blue Jackets to OT win with acrobatic goal**\
+`Marchenko's acrobatic, airborne goal off a powerful drive to the net in overtime led the Blue Jackets to a 3-2 win over the Kings.`\
+https://nytimes.com/athletic/6088584/2025/01/25/blue-jackets-kirill-marchenko-goal/
+
 **'I love you': Derrick White's third quarter and the words that helped spur a Celtics win**\
 `White's 16-point, highest-scoring quarter of the season aided Boston in a 122-107 road win over the Dallas Mavericks. `\
 https://nytimes.com/athletic/6088583/2025/01/25/celtics-win-mavericks-derrick-white-third-quarter/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/25/us/politics/trump-rally-vegas-tips-taxes.html
 **Shedeur Sanders may not throw at NFL Combine, met with teams at Shrine Bowl**\
 `Sanders said his father, Hall of Famer Deion Sanders, called him several times to check in during his interview with the Titans.`\
 https://nytimes.com/athletic/6088439/2025/01/25/shedeur-sanders-shrine-bowl-team-talks-nfl-combine/
-
-**Corrections: Jan. 26, 2025**\
-`Corrections that appeared in print on Sunday, Jan. 26, 2025.`\
-https://nytimes.com/2025/01/25/pageoneplus/corrections-jan-26-2025.html
 
