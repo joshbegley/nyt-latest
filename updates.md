@@ -1,3 +1,11 @@
+**Penn State expected to hire former Ohio State DC Jim Knowles**\
+`Knowles fills the void on Penn State’s staff left by Tom Allen, who accepted the same position with Clemson earlier this month.`\
+https://nytimes.com/athletic/6089544/2025/01/26/penn-state-jim-knowles-defensive-coordinator-ohio-state-hire/
+
+**Villa's Mings to undergo scan on knee injury sustained during West Ham draw**\
+`Aston Villa defender Tyrone Mings is set to undergo a scan after sustaining an injury to his left knee during his side’s 1-1 draw with West Ham United on Sunday.`\
+https://nytimes.com/athletic/6089615/2025/01/26/tyrone-mings-injury-scan-villa-west-ham/
+
 **Belarus’s Strong-Arm Leader, Aleksandr Lukashenko, Cruises to Re-Election**\
 `Europe’s longest-serving leader won re-election in a contest widely believe to have been rigged. The result cements the power of a leader whose country is considered Russia’s staunchest ally.`\
 https://nytimes.com/2025/01/26/world/europe/belarus-lukashenko-re-election.html
