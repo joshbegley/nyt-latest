@@ -1,9 +1,29 @@
+**India, a Big Source of Illegal Migration, Hopes to Navigate the Trump Storm**\
+`Fear and uncertainty are rippling through India, which sends more undocumented migrants to the United States than any other country outside Latin America.`\
+https://nytimes.com/2025/01/26/world/asia/india-illegal-immigration-trump.html
+
+**Quote of the Day: Guns and Bandits Make School an Impossible Dream in Haiti**\
+`Quotation of the Day for Sunday, January 26, 2025.`\
+https://nytimes.com/2025/01/26/pageoneplus/quote-of-the-day-guns-and-bandits-make-school-an-impossible-dream-in-haiti.html
+
+**New Leaders in Lebanon Face Test as Israel Is Poised to Keep Troops There**\
+`Any prolonged Israeli occupation of southern Lebanon could breathe new life into Hezbollah, challenging the political momentum of Lebanon’s new president and prime minister.`\
+https://nytimes.com/2025/01/26/world/middleeast/lebanon-israel-hezbollah.html
+
+**Fulham vs Manchester United: United look to continue success away from home**\
+`Manchester United are still struggling to get into the top half of the Premier League table and face a Fulham side sitting in 10th.`\
+https://nytimes.com/athletic/6079158/2025/01/26/fulham-manchester-united-preview-odds-prediction/
+
+**Kirill Marchenko's 'engine' powers Blue Jackets to OT win with acrobatic goal**\
+`Marchenko's acrobatic, airborne goal off a powerful drive to the net in overtime led the Blue Jackets to a 3-2 win over the Kings.`\
+https://nytimes.com/athletic/6088584/2025/01/25/blue-jackets-kirill-marchenko-goal/
+
 **'I love you': Derrick White's third quarter and the words that helped spur a Celtics win**\
 `White's 16-point, highest-scoring quarter of the season aided Boston in a 122-107 road win over the Dallas Mavericks. `\
 https://nytimes.com/athletic/6088583/2025/01/25/celtics-win-mavericks-derrick-white-third-quarter/
 
 **Tim Stützle's buzz cut, Shane Pinto's defence, Anton Forsberg's goaltending: 4 takeaways**\
-`Tim Stützle and Shane Pinto powered Ottawa to a 2-1 victory over Toronto on Saturday night. `\
+`Stützle and Pinto powered Ottawa to a 2-1 victory over the Toronto Maple Leafs on Saturday night. `\
 https://nytimes.com/athletic/6087955/2025/01/25/senators-maple-leafs-takeaways/
 
 **Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
@@ -18,24 +38,4 @@ https://nytimes.com/2025/01/25/us/politics/trump-palestinians-jordan-egypt-refug
 **Duke discovers another defensive tool in a rare ACC test at Wake Forest**\
 `The Blue Devils finally faced some adversity. They were down against the Demon Deacons with 10 minutes to play. The solution? Go zone.`\
 https://nytimes.com/athletic/6088561/2025/01/25/duke-defeats-wake-forest-acc/
-
-**Jiri Kulich's emergence, other takeaways from Sabres' lousy trip out West**\
-`Kulich is emerging as a top-of-the-lineup player, plus is Sabres coach Lindy Ruff out of buttons to push?`\
-https://nytimes.com/athletic/6088545/2025/01/25/sabres-jiri-kulich-oilers-flames-canucks-kraken/
-
-**'Welcome to the club': Brooklyn Nets retire high-flying Hall of Famer Vince Carter's number**\
-`Carter's number 15 was raised to the rafters Saturday with legends Buck Williams and Julius Erving in attendance.`\
-https://nytimes.com/athletic/6088530/2025/01/25/brooklyn-nets-vince-carter-number-retired/
-
-**‘Here to Say Thank You’: Trump Takes Victory Lap in Las Vegas**\
-`The president reiterated a pledge to end taxes on tips, but the message was an afterthought as the president celebrated his blitz of orders in his first week in office.`\
-https://nytimes.com/2025/01/25/us/politics/trump-rally-vegas-tips-taxes.html
-
-**Shedeur Sanders may not throw at NFL Combine, met with teams at Shrine Bowl**\
-`Sanders said his father, Hall of Famer Deion Sanders, called him several times to check in during his interview with the Titans.`\
-https://nytimes.com/athletic/6088439/2025/01/25/shedeur-sanders-shrine-bowl-team-talks-nfl-combine/
-
-**Corrections: Jan. 26, 2025**\
-`Corrections that appeared in print on Sunday, Jan. 26, 2025.`\
-https://nytimes.com/2025/01/25/pageoneplus/corrections-jan-26-2025.html
 

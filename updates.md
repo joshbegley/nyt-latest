@@ -1,3 +1,32 @@
+**India, a Big Source of Illegal Migration, Hopes to Navigate the Trump Storm**\
+`Fear and uncertainty are rippling through India, which sends more undocumented migrants to the United States than any other country outside Latin America.`\
+https://nytimes.com/2025/01/26/world/asia/india-illegal-immigration-trump.html
+
+**Quote of the Day: Guns and Bandits Make School an Impossible Dream in Haiti**\
+`Quotation of the Day for Sunday, January 26, 2025.`\
+https://nytimes.com/2025/01/26/pageoneplus/quote-of-the-day-guns-and-bandits-make-school-an-impossible-dream-in-haiti.html
+
+**New Leaders in Lebanon Face Test as Israel Is Poised to Keep Troops There**\
+`Any prolonged Israeli occupation of southern Lebanon could breathe new life into Hezbollah, challenging the political momentum of Lebanon’s new president and prime minister.`\
+https://nytimes.com/2025/01/26/world/middleeast/lebanon-israel-hezbollah.html
+
+**Fulham vs Manchester United: United look to continue success away from home**\
+`Manchester United are still struggling to get into the top half of the Premier League table and face a Fulham side sitting in 10th.`\
+https://nytimes.com/athletic/6079158/2025/01/26/fulham-manchester-united-preview-odds-prediction/
+
+**Kirill Marchenko's 'engine' powers Blue Jackets to OT win with acrobatic goal**\
+`Marchenko's acrobatic, airborne goal off a powerful drive to the net in overtime led the Blue Jackets to a 3-2 win over the Kings.`\
+https://nytimes.com/athletic/6088584/2025/01/25/blue-jackets-kirill-marchenko-goal/
+
+**Tim Stützle's buzz cut, Shane Pinto's defence, Anton Forsberg's goaltending: 4 takeaways**\
+`Stützle and Pinto powered Ottawa to a 2-1 victory over the Toronto Maple Leafs on Saturday night. `\
+https://nytimes.com/athletic/6087955/2025/01/25/senators-maple-leafs-takeaways/
+
+**Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
+`Bobby McMann — who made his debut on the top line — had the lone goal as Toronto fell short 2-1 to Ottawa.
+`\
+https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
+
 **Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
 `Bobby McMann — who made his debut on the top line — had the lone goal as Toronto fell short 2-1 to Ottawa.
 `\
