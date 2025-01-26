@@ -1,3 +1,12 @@
+**Harris English wins Farmers Insurance Open for fifth PGA Tour victory**\
+`Playing in windy conditions at Torrey Pines this week, English battled with Andrew Novak and Sam Stevens atop the leaderboard.`\
+https://nytimes.com/athletic/6088494/2025/01/25/harris-english-farmers-open-pga-tour/
+
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
 `The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
 `\
