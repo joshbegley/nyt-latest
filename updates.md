@@ -1,3 +1,7 @@
+**The numbers show Van Dijk is playing as well as ever - 300 games into his Liverpool career**\
+`The 4-1 win against Ipswich was a milestone fixture for Van Dijk, whose form makes waving goodbye in May unthinkable`\
+https://nytimes.com/athletic/6088047/2025/01/26/van-dijk-300-games-liverpool-leadership/
+
 **President Trump’s Aggressive Week**\
 `He is already challenging the expectations of what a president can and should do.`\
 https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.html
