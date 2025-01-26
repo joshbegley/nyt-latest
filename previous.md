@@ -1,3 +1,11 @@
+**PGMOL 'appalled' at threats and abuse aimed at Michael Oliver after Wolves vs Arsenal**\
+`The Professional Game Match Officials Limited (PGMOL) says it is appalled at social media threats and abuse aimed at Premier League referee Michael Oliver.`\
+https://nytimes.com/athletic/6089571/2025/01/26/michael-oliver-threats-abuse-pgmol-investigation/
+
+**Ryan Pressly approves trade from Astros to Cubs: Source**\
+`The Astros shopped Pressly throughout the winter to lower payroll.`\
+https://nytimes.com/athletic/6087095/2025/01/26/cubs-astros-trade-ryan-pressly/
+
 **British Prime Minister Starmer Thanks Trump for Role in Cease-Fire Deal**\
 `The prime minister’s office said the two leaders agreed to meet soon and discussed trade, the economy and the Middle East.`\
 https://nytimes.com/2025/01/26/us/politics/trump-keir-starmer-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6089544/2025/01/26/penn-state-jim-knowles-defensive
 **Villa's Mings to undergo scan on knee injury sustained during West Ham draw**\
 `Aston Villa defender Tyrone Mings is set to undergo a scan after sustaining an injury to his left knee during his side’s 1-1 draw with West Ham United on Sunday.`\
 https://nytimes.com/athletic/6089615/2025/01/26/tyrone-mings-injury-scan-villa-west-ham/
-
-**Belarus’s Strong-Arm Leader, Aleksandr Lukashenko, Cruises to Re-election**\
-`Europe’s longest-serving leader won re-election in a contest widely believe to have been rigged. The result cements the power of a leader whose country is considered Russia’s staunchest ally.`\
-https://nytimes.com/2025/01/26/world/europe/belarus-lukashenko-re-election.html
-
-**Charges Dropped Against Doctor Who Leaked About Minors’ Transgender Care**\
-`The decision by federal prosecutors came at a time when President Trump was rolling back protections for transgender people.`\
-https://nytimes.com/2025/01/26/us/trump-transgender-texas-doctor.html
 

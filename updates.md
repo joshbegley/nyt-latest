@@ -1,3 +1,11 @@
+**PGMOL 'appalled' at threats and abuse aimed at Michael Oliver after Wolves vs Arsenal**\
+`The Professional Game Match Officials Limited (PGMOL) says it is appalled at social media threats and abuse aimed at Premier League referee Michael Oliver.`\
+https://nytimes.com/athletic/6089571/2025/01/26/michael-oliver-threats-abuse-pgmol-investigation/
+
+**Ryan Pressly approves trade from Astros to Cubs: Source**\
+`The Astros shopped Pressly throughout the winter to lower payroll.`\
+https://nytimes.com/athletic/6087095/2025/01/26/cubs-astros-trade-ryan-pressly/
+
 **British Prime Minister Starmer Thanks Trump for Role in Cease-Fire Deal**\
 `The prime minister’s office said the two leaders agreed to meet soon and discussed trade, the economy and the Middle East.`\
 https://nytimes.com/2025/01/26/us/politics/trump-keir-starmer-ceasefire.html
