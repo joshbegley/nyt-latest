@@ -1,3 +1,7 @@
+**In NBA Finals rematch, Mavericks get even further from where they need to be**\
+`As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month, minus Luka Dončić.`\
+https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
+
 **Even in a 40-point game, it's the little things that stand out with James Harden**\
 `Before Saturday, Harden hadn't had a 40-point game since March 2021. But two factors made Saturday night impressive.`\
 https://nytimes.com/athletic/6088773/2025/01/26/james-harden-40-points-clippers-bucks-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088297/2025/01/26/twins-carlos-correa-injury-updat
 **Lindsey Vonn takes 13th in World Cup Super-G day after skiing out of downhill**\
 `Lindsey Vonn bounced back with a 13th-place finish in the Super-G a day after skiing out of the downhill in Germany.`\
 https://nytimes.com/athletic/6086300/2025/01/26/lindsey-vonn-skis-out-downhill-world-cup-olympics-germany/
-
-**Game, Set, Match: Jannik Sinner beats Alexander Zverev for second Australian Open title**\
-`The world No. 1 has his third Grand Slam title and a second in a row in Australia.`\
-https://nytimes.com/athletic/6087427/2025/01/26/jannik-sinner-australian-open-final-result-analysis-zverev/
 
