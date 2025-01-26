@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/26/arts/television/snl-call-the-musical-guest-by-the
 https://nytimes.com/athletic/6088858/2025/01/26/cowboys-brian-schottenheimer-to-do-list-dak-prescott/
 
 **In NBA Finals rematch, Mavericks get even further from where they need to be**\
-`As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month, minus Luka Dončić.`\
+`As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month without Luka Dončić.`\
 https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
 
 **Even in a 40-point game, it's the little things that stand out with James Harden**\
