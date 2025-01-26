@@ -1,3 +1,7 @@
+**Chelsea are regressing and Enzo Maresca needs more than optimism to fix them**\
+`As Saturday demonstrated, visits to play Manchester City often expose the unvarnished reality of where Chelsea really are`\
+https://nytimes.com/athletic/6088310/2025/01/26/chelsea-regression-form-premier-league-maresca-sanchez/
+
 **Houston coach Kelvin Sampson gets his win in Cougars-Jayhawks thriller**\
 `Hard work pays off for Houston sixth-years Mylik Wilson and J'Wan Roberts in victory in Kansas. `\
 https://nytimes.com/athletic/6088719/2025/01/26/houston-kansas-thriller-mylik-wilson-jwan-roberts/
