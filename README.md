@@ -1,3 +1,7 @@
+**A hidden threat from rain on a burn scar: poisons in the runoff.**\
+`By Kate Selig`\
+https://nytimes.com/live/2025/01/26/us/california-wildfires-los-angeles/a-hidden-threat-from-rain-on-a-burn-scar-poisons-in-the-runoff
+
 **Jalen Hurts sets rushing TD mark for quarterbacks in playoffs**\
 `The Eagles quarterback is one of two QBs to run for three touchdowns in a playoff game. `\
 https://nytimes.com/athletic/6089864/2025/01/26/jalen-hurts-josh-allen-nfl-playoffs-rushing-touchdown-record/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6087095/2025/01/26/cubs-astros-trade-ryan-pressly/
 `The prime minister’s office said the two leaders agreed to meet soon and discussed trade, the economy and the Middle East.`\
 https://nytimes.com/2025/01/26/us/politics/trump-keir-starmer-ceasefire.html
 
-**As Thousands Try to Return Home, Mideast Cease-Fires Appear Fragile**\
+**As Thousands Try to Return Home, Fragile Mideast Cease-Fires Are Tested**\
 `Israeli forces killed at least 22 people and injured dozens more in southern Lebanon on Sunday, Lebanese officials said. In Gaza, Israel said Hamas had violated the terms of the truce.`\
 https://nytimes.com/2025/01/26/world/middleeast/lebanon-gaza-cease-fires.html
-
-**Vance Offers Fierce Endorsement of Trump’s First Week**\
-`In his first television interview as vice president, JD Vance defended President Trump on a variety of policies, including some he had previously second-guessed.`\
-https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
 
