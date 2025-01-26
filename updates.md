@@ -1,3 +1,7 @@
+**Amorim on Rashford return: 'If things don't change, I will not change'**\
+`Ruben Amorim has said he would rather name his 63-year-old goalkeeping coach as a substitute than pick a player who fails to give his all every day at Carrington when addressing a question about Marcus Rashford’s reintegration.`\
+https://nytimes.com/athletic/6089823/2025/01/26/man-united-rashford-amorim-return-transfer-update/
+
 **PGMOL 'appalled' at threats and abuse aimed at Michael Oliver after Wolves vs Arsenal**\
 `The Professional Game Match Officials Limited (PGMOL) says it is appalled at social media threats and abuse aimed at Premier League referee Michael Oliver.`\
 https://nytimes.com/athletic/6089571/2025/01/26/michael-oliver-threats-abuse-pgmol-investigation/
