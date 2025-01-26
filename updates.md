@@ -1,3 +1,7 @@
+**Trump Alarms Denmark in an Icy Exchange Over Greenland**\
+`President Trump told Denmark’s leader he wanted to take over Greenland, European officials say. Denmark has asked its E.U. allies not to inflame the situation until Mr. Trump’s intentions are clearer.`\
+https://nytimes.com/2025/01/26/world/europe/trump-alarms-denmark-in-an-icy-exchange-over-greenland.html
+
 **Colombia’s President Says He Will Not Accept U.S. Deportation Flights**\
 `Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and needs to establish a dignified protocol before his country will allow their return.`\
 https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.html
