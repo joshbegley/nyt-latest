@@ -1,6 +1,5 @@
 **Yohe's 10 observations: Evgeni Malkin injured as Penguins crumble once again**\
-`The Penguins forward left Saturday's game against the Kraken with a lower-body injury after colliding with Chandler Stephenson.
-`\
+`The Penguins forward left Saturday's game against the Kraken with a lower-body injury after colliding with Chandler Stephenson.`\
 https://nytimes.com/athletic/6086974/2025/01/25/penguins-evgeni-malkin-injury/
 
 **Harris English wins Farmers Insurance Open for fifth PGA Tour victory**\
