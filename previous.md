@@ -1,3 +1,11 @@
+**Hiring Freeze Creates Confusion and Concern at F.B.I.**\
+`President Trump’s directive is supposed to exempt national security and public safety positions, but the F.B.I. has put an immediate hiring freeze in place.`\
+https://nytimes.com/2025/01/26/us/politics/fbi-hiring-freeze-trump.html
+
+**Italy Begins Shipping Migrants to Albania, Reviving Stalled Program**\
+`Prime Minister Giorgia Meloni’s first attempt to have asylum seekers held for assessment overseas was immediately blocked by judges. Now another is underway.`\
+https://nytimes.com/2025/01/26/world/europe/italy-migrants-albania.html
+
 **Trump Alarms Denmark in an Icy Exchange Over Greenland**\
 `President Trump told Denmark’s leader he wanted to take over Greenland, European officials say. Denmark has asked its E.U. allies not to inflame the situation until Mr. Trump’s intentions are clearer.`\
 https://nytimes.com/2025/01/26/world/europe/trump-alarms-denmark-in-an-icy-exchange-over-greenland.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/style/hermes-mens-wear-paris.html
 **Jannik Sinner's tennis brilliance shines through a darkness he cannot lift**\
 `Everything that Jannik Sinner means to the summit of men's tennis could be temporarily wiped away in just a few months.`\
 https://nytimes.com/athletic/6088971/2025/01/26/jannik-sinner-tennis-grand-slams-record-doping-ban-appeal/
-
-**Thieves Blow Up a Dutch Museum Door to Steal a Golden Helmet**\
-`The police said the golden helmet of Cotofenesti, a highly regarded artifact from Romania, was among the items stolen from the Drents Museum in the Netherlands.`\
-https://nytimes.com/2025/01/26/world/europe/art-theft-drents-contofenesti-amsterdam.html
-
-**For Patrick Williams, is his time running out with Bulls?  'I got game'**\
-`Williams is averaging career lows in his fifth year with Chicago — somewhat unexpected after he signed a five-year, $90 million extension.`\
-https://nytimes.com/athletic/6088763/2025/01/26/patrick-williams-bulls-nba/
 

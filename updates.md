@@ -1,3 +1,11 @@
+**Hiring Freeze Creates Confusion and Concern at F.B.I.**\
+`President Trump’s directive is supposed to exempt national security and public safety positions, but the F.B.I. has put an immediate hiring freeze in place.`\
+https://nytimes.com/2025/01/26/us/politics/fbi-hiring-freeze-trump.html
+
+**Italy Begins Shipping Migrants to Albania, Reviving Stalled Program**\
+`Prime Minister Giorgia Meloni’s first attempt to have asylum seekers held for assessment overseas was immediately blocked by judges. Now another is underway.`\
+https://nytimes.com/2025/01/26/world/europe/italy-migrants-albania.html
+
 **Trump Alarms Denmark in an Icy Exchange Over Greenland**\
 `President Trump told Denmark’s leader he wanted to take over Greenland, European officials say. Denmark has asked its E.U. allies not to inflame the situation until Mr. Trump’s intentions are clearer.`\
 https://nytimes.com/2025/01/26/world/europe/trump-alarms-denmark-in-an-icy-exchange-over-greenland.html
