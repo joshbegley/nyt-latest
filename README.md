@@ -1,3 +1,11 @@
+**Charges Dropped Against Doctor Who Leaked About Minors’ Transgender Care**\
+`The decision by federal prosecutors came at a time when President Trump was rolling back protections for transgender people.`\
+https://nytimes.com/2025/01/26/us/trump-transgender-texas-doctor.html
+
+**Republican Senators Call on Trump to Rethink Revoked Security Details**\
+`Senators Lindsey Graham and Tom Cotton said that the former Trump aides faced continuing threats from Iran and that the decision could affect how current officials do their jobs.`\
+https://nytimes.com/2025/01/26/us/politics/graham-cotton-trump-security.html
+
 **Why the Blackhawks could be major players for Mikko Rantanen, others this NHL offseason**\
 `The Blackhawks could expedite their painstaking rebuilding process and be significant players in free agency this summer.`\
 https://nytimes.com/athletic/6089407/2025/01/26/blackhawks-mikko-rantanen-nhl-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.h
 **Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
 `Ange Postecoglou says Pape Matar Sarr “shouldn’t have played” in Tottenham Hotspur’s 2-1 home defeat by Leicester City.`\
 https://nytimes.com/athletic/6089376/2025/01/26/tottenham-pape-sarr-injury-postecoglou/
-
-**Hiring Freeze Creates Confusion and Concern at F.B.I.**\
-`President Trump’s directive is supposed to exempt national security and public safety positions, but the F.B.I. has put an immediate hiring freeze in place.`\
-https://nytimes.com/2025/01/26/us/politics/fbi-hiring-freeze-trump.html
-
-**Italy Begins Shipping Migrants to Albania, Reviving Stalled Program**\
-`Prime Minister Giorgia Meloni’s first attempt to have asylum seekers held for assessment overseas was immediately blocked by judges. Now another is underway.`\
-https://nytimes.com/2025/01/26/world/europe/italy-migrants-albania.html
 
