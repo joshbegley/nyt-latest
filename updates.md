@@ -1,3 +1,7 @@
+**Trump Says He Wants Jordan and Egypt to Take in Palestinians From Gaza**\
+`President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s on Sunday. Most of Gaza’s two million residents have been displaced in 15 months of fighting.`\
+https://nytimes.com/2025/01/25/us/politics/trump-palestinians-jordan-egypt-refugees.html
+
 **Duke discovers another defensive tool in a rare ACC test at Wake Forest**\
 `The Blue Devils finally faced some adversity. They were down against the Demon Deacons with 10 minutes to play. The solution? Go zone.`\
 https://nytimes.com/athletic/6088561/2025/01/25/duke-defeats-wake-forest-acc/
