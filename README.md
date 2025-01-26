@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6088791/2025/01/26/bucks-clippers-giannis-damian-li
 
 **Here’s the latest.**\
 `By Isabel Kershner, Christina Goldbaum and Euan Ward`\
-https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/heres-the-latest
+https://nytimes.com/2025/01/26/world/middleeast/heres-the-latest.html
 
 **Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
 `For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
