@@ -3,7 +3,7 @@
 https://nytimes.com/2025/01/26/us/politics/trump-pardons-jan-6-lindsey-graham.html
 
 **The week Leicester showed character: Standards, keeping it simple and five minutes of magic**\
-`Leicester fans still want accountability off the field, but for one week at least they can see fight from their team and a window of hope.`\
+`Leicester fans still want accountability off the field, but for one week at least, they can see fight from their team and a window of hope`\
 https://nytimes.com/athletic/6089346/2025/01/26/leicester-van-nistelrooy-tottenham/
 
 **Carol Downer, Feminist Leader in Women’s Health, Dies at 91**\
