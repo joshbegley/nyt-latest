@@ -1,3 +1,7 @@
+**The Briefing - Valladolid 0 Real Madrid 3: 'Pressure monster' Kylian Mbappe scores first hat-trick**\
+`Guillermo Rai breaks down the key points from Real Madrid's win in Valladolid on Saturday`\
+https://nytimes.com/athletic/6088568/2025/01/26/mbappe-hat-trick-real-madrid-valladolid-analysis/
+
 **‘People Will Be Shocked’: Trump Tests the Boundaries of the Presidency**\
 `Even more than in his first term, President Trump has mounted a fundamental challenge to the norms and expectations of what a president can and should do.`\
 https://nytimes.com/2025/01/26/us/politics/trump-boundaries-presidency.html
