@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6088583/2025/01/25/celtics-win-mavericks-derrick-white-third-quarter/
 
 **Tim Stützle's buzz cut, Shane Pinto's defence, Anton Forsberg's goaltending: 4 takeaways**\
-`Tim Stützle and Shane Pinto powered Ottawa to a 2-1 victory over Toronto on Saturday night. `\
+`Stützle and Pinto powered Ottawa to a 2-1 victory over the Toronto Maple Leafs on Saturday night. `\
 https://nytimes.com/athletic/6087955/2025/01/25/senators-maple-leafs-takeaways/
 
 **Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
