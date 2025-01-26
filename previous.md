@@ -1,3 +1,7 @@
+**It's gut-check time for Wild to 'choose their hard' again: Takeaways**\
+`"We're choosing to lose," coach John Hynes said after the Wild's woes at home continued with a 5-4 loss to the Flames.`\
+https://nytimes.com/athletic/6088597/2025/01/26/wild-flames-takeaways-jakub-lauko/
+
 **Explaining Myles Lewis-Skelly's shock red card - and how Arsenal recovered from it**\
 `Exploring why Lewis-Skelly was sent off against Wolves, whether it was the right decision, what happens next and how Arsenal responded`\
 https://nytimes.com/athletic/6087575/2025/01/26/lewis-skelly-red-card-why/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/world/asia/india-illegal-immigration-trump.html
 **Quote of the Day: Guns and Bandits Make School an Impossible Dream in Haiti**\
 `Quotation of the Day for Sunday, January 26, 2025.`\
 https://nytimes.com/2025/01/26/pageoneplus/quote-of-the-day-guns-and-bandits-make-school-an-impossible-dream-in-haiti.html
-
-**New Leaders in Lebanon Face Test as Israel Is Poised to Keep Troops There**\
-`Any prolonged Israeli occupation of southern Lebanon could breathe new life into Hezbollah, challenging the political momentum of Lebanon’s new president and prime minister.`\
-https://nytimes.com/2025/01/26/world/middleeast/lebanon-israel-hezbollah.html
 
