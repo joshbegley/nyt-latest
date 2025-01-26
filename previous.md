@@ -1,3 +1,7 @@
+**Does the Mikko Rantanen trade signal a transition for the Avalanche? One-on-one with GM Chris MacFarland**\
+`Despite trading one of the NHL's scoring leaders and a franchise stalwart, MacFarland says the Avalanche are still "all-in."`\
+https://nytimes.com/athletic/6089182/2025/01/26/chris-macfarland-avalanche-mikko-rantanen-trade/
+
 **Eleven Madison Park Granola, Surprisingly Easy and Very Snackable**\
 `I like it with Greek yogurt, but it’s terrific with whole milk, too, and doesn’t do poorly at all on its own, like a kind of trail mix.`\
 https://nytimes.com/2025/01/26/dining/eleven-madison-park-granola-surprisingly-easy-and-very-snackable.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/the-deadline-
 **The Pulse: A stunning American breakthrough**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6089141/2025/01/26/madison-keys-australian-open-the-pulse/
-
-**In Ashes of Eaton Fire, New Questions for the Power Company**\
-`Investigators are still trying to determine what started a fire that raged through Altadena, Calif. A new video appears to show sparking on a power line near the origin of the blaze.`\
-https://nytimes.com/2025/01/26/us/los-angeles-eaton-fire-cause.html
 

@@ -1,3 +1,7 @@
+**Does the Mikko Rantanen trade signal a transition for the Avalanche? One-on-one with GM Chris MacFarland**\
+`Despite trading one of the NHL's scoring leaders and a franchise stalwart, MacFarland says the Avalanche are still "all-in."`\
+https://nytimes.com/athletic/6089182/2025/01/26/chris-macfarland-avalanche-mikko-rantanen-trade/
+
 **Jannik Sinner's tennis brilliance shines through a darkness he cannot lift**\
 `Everything that Jannik Sinner means to the summit of men's tennis could be temporarily wiped away in just a few months.`\
 https://nytimes.com/athletic/6088971/2025/01/26/jannik-sinner-tennis-grand-slams-record-doping-ban-appeal/
