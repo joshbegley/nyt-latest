@@ -1,3 +1,7 @@
+**Harris English wins Farmers Insurance Open for fifth PGA Tour victory**\
+`Playing in windy conditions at Torrey Pines this week, English battled with Andrew Novak and Sam Stevens atop the leaderboard.`\
+https://nytimes.com/athletic/6088494/2025/01/25/harris-english-farmers-open-pga-tour/
+
 **Rangers, Will Borgen agree to 5-year, $20.5 million extension**\
 `The Rangers' front office hoped an extension would be the end result when it targeted Borgen in the trade market, per a league source.`\
 https://nytimes.com/athletic/6088413/2025/01/25/will-borgen-rangers-extend-contract-nhl/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6088005/2025/01/25/bruno-fernandes-man-utd-amorim/
 **As Hamas Exchanges Gaza Hostages, It Puts on a Show of Force**\
 `The handover of four female Israeli soldiers by Hamas on Saturday came as Israel released 200 prisoners. But a dispute arose over the hostage release timetable.`\
 https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostage-prisoner-swap.html
-
-**Eric Tulsky exclusive: Hurricanes GM on pulling off the Mikko Rantanen trade — 'You have to be willing to stretch'**\
-`The Canes aren't done after this blockbuster: "Until we have the 20 best players in the league … there’s always somewhere we can upgrade."`\
-https://nytimes.com/athletic/6088081/2025/01/25/eric-tulsky-mikko-rantanen-hurricanes-trade/
 
