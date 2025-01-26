@@ -1,3 +1,7 @@
+**Timothée Chalamet Dug Deep for Bob Dylan Songs on ‘S.N.L.’**\
+`“Outlaw Blues,” “Three Angels” and “Tomorrow Is a Long Time” were personal favorites from Dylan’s monumental catalog.`\
+https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
+
 **The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
 `Analysis of Manchester United's Premier League game away to Fulham`\
 https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
