@@ -1,3 +1,7 @@
+**Lindsey Graham Says Trump Was Wrong to Pardon Violent Jan. 6 Rioters**\
+`The South Carolina Republican told CNN that he “did not like” how Trump pardoned people who “beat up cops,” and suggested he would be open to curtailing the presidential pardon power.`\
+https://nytimes.com/2025/01/26/us/politics/trump-pardons-jan-6-lindsey-graham.html
+
 **The week Leicester showed character: Standards, keeping it simple and five minutes of magic**\
 `Leicester fans still want accountability off the field, but for one week at least they can see fight from their team and a window of hope.`\
 https://nytimes.com/athletic/6089346/2025/01/26/leicester-van-nistelrooy-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/world/europe/trump-greenland-denmark.html
 **Colombia’s President Says He Will Not Accept U.S. Military Deportation Flights**\
 `Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and that he had already turned away U.S. military flights carrying deportees.`\
 https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.html
-
-**Outside one village along Lebanon’s southern border, hundreds wait anxiously to return home.**\
-`By Christina Goldbaum, Hwaida Saad and Euan Ward`\
-https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/outside-one-village-along-lebanons-southern-border-hundreds-wait-anxiously-to-return-home
 
