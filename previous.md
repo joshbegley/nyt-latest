@@ -1,3 +1,11 @@
+**The Briefing: Spurs 1 Leicester 2 - Nightmare for Postecoglou and Levy protests in embarrassing defeat**\
+`We break down the talking points from a poor defeat for Spurs in Sunday's Premier League match at the Tottenham Hotspur Stadium.`\
+https://nytimes.com/athletic/6087682/2025/01/26/tottenham-postecoglou-leicester-levy/
+
+**The Fashion Brand That Even Other Fashion Brands Revere**\
+`For a glimpse at what other fashion brands may take inspiration from in 30 years, look at the latest Hermès runway show.`\
+https://nytimes.com/2025/01/26/style/hermes-mens-wear-paris.html
+
 **Jannik Sinner's tennis brilliance shines through a cloud he cannot lift**\
 `Everything that Jannik Sinner means to the summit of men's tennis could be temporarily wiped away in just a few months.`\
 https://nytimes.com/athletic/6088971/2025/01/26/jannik-sinner-tennis-grand-slams-record-doping-ban-appeal/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/us/los-angeles-eaton-fire-cause.html
 **Little things add up to a lot as Bucks drop first game of road trip to Clippers**\
 `Late turnovers and poor perimeter defense were the culprits for Milwaukee on Saturday night at Intuit Dome.`\
 https://nytimes.com/athletic/6088791/2025/01/26/bucks-clippers-giannis-damian-lillard/
-
-**Here’s the latest.**\
-`By Isabel Kershner, Christina Goldbaum and Euan Ward`\
-https://nytimes.com/2025/01/26/world/middleeast/heres-the-latest.html
-
-**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
-`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
-https://nytimes.com/athletic/6073696/2025/01/26/bills-chiefs-how-to-watch-odds-picks-betting/
 
