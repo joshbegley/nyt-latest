@@ -1,7 +1,3 @@
-**Coffee and Flowers Could Cost Americans More in a Colombian Trade War**\
-`Colombia is a relatively minor trading partner to the United States, but some industries are much more exposed than others.`\
-https://nytimes.com/2025/01/26/us/politics/colombia-tariffs-trump-exports.html
-
 **Little-known NFL rule nearly awards Eagles free touchdown in NFC Championship**\
 `Washington nearly drew what would likely be the NFL's first implementation of the "Fouls to Prevent Score" penalty.`\
 https://nytimes.com/athletic/6089915/2025/01/26/eagles-commanders-rule-referees-award-score/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6089823/2025/01/26/man-united-rashford-amorim-retur
 **PGMOL 'appalled' at threats and abuse aimed at Michael Oliver after Wolves vs Arsenal**\
 `The Professional Game Match Officials Limited (PGMOL) says it is appalled at social media threats and abuse aimed at Premier League referee Michael Oliver.`\
 https://nytimes.com/athletic/6089571/2025/01/26/michael-oliver-threats-abuse-pgmol-investigation/
+
+**Ryan Pressly approves trade from Astros to Cubs: Source**\
+`The Astros shopped Pressly throughout the winter to lower payroll.`\
+https://nytimes.com/athletic/6087095/2025/01/26/cubs-astros-trade-ryan-pressly/
 
