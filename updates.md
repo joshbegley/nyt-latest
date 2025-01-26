@@ -1,3 +1,7 @@
+**The numbers show Van Dijk is playing as well as ever - 300 games into his Liverpool career**\
+`The 4-1 win against Ipswich was a milestone fixture for Van Dijk, whose form makes waving goodbye in May unthinkable`\
+https://nytimes.com/athletic/6088047/2025/01/26/van-dijk-300-games-liverpool-leadership/
+
 **‘Googly Eye Bandit’ in Oregon Comes Forward**\
 `Jeff Keith, who runs a nonprofit, claimed he was behind some of the googly eyes that mysteriously appeared on public art in Bend, Ore.`\
 https://nytimes.com/2025/01/26/us/googly-eyes-sculptures-oregon.html
