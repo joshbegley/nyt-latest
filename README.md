@@ -1,3 +1,7 @@
+**Chelsea complete signing of USWNT's Girma for record fee**\
+`Sources briefed on the matter have confirmed Chelsea will pay $1.1m to acquire Girma from the San Diego Wave.`\
+https://nytimes.com/athletic/6080652/2025/01/26/naomi-girma-chelsea-uswnt-record/
+
 **The numbers that show Virgil van Dijk is playing as well as ever - 300 games into his Liverpool career**\
 `The 4-1 win against Ipswich was a milestone fixture for Van Dijk, whose form makes waving goodbye in May unthinkable`\
 https://nytimes.com/athletic/6088047/2025/01/26/van-dijk-300-games-liverpool-leadership/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/opinion/trump-musk-zuckerberg-attention.html
 **Five years after Kobe Bryant's death, reminders remain everywhere in Los Angeles**\
 `The impact of Bryant’s career, and the ‘Mamba Mentality,’ carry on in the kind of way that almost makes you forget that he’s gone.`\
 https://nytimes.com/athletic/6087423/2025/01/26/kobe-bryant-death-five-years-nba-lakers/
-
-**Us and Them Is All the Rage**\
-`A German political theorist helps explain MAGA morality.`\
-https://nytimes.com/2025/01/26/opinion/trump-maga-schmitt.html
 
