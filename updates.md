@@ -1,3 +1,11 @@
+**Charges Dropped Against Doctor Who Leaked About Minors’ Transgender Care**\
+`The decision by federal prosecutors came at a time when President Trump was rolling back protections for transgender people.`\
+https://nytimes.com/2025/01/26/us/trump-transgender-texas-doctor.html
+
+**Republican Senators Call on Trump to Rethink Revoked Security Details**\
+`Senators Lindsey Graham and Tom Cotton said that the former Trump aides faced continuing threats from Iran and that the decision could affect how current officials do their jobs.`\
+https://nytimes.com/2025/01/26/us/politics/graham-cotton-trump-security.html
+
 **Why the Blackhawks could be major players for Mikko Rantanen, others this NHL offseason**\
 `The Blackhawks could expedite their painstaking rebuilding process and be significant players in free agency this summer.`\
 https://nytimes.com/athletic/6089407/2025/01/26/blackhawks-mikko-rantanen-nhl-free-agency/
