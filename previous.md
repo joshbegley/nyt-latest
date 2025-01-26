@@ -1,40 +1,40 @@
-**How Kobe Bryant helped grow women's hoops: 'His fingerprints are all over our game today'**\
-`Kobe's value to female players and their game is unquestioned. Though he’s gone, they still feel it.`\
-https://nytimes.com/athletic/6088118/2025/01/26/how-kobe-bryant-helped-grow-womens-hoops-his-fingerprints-are-all-over-our-game-today/
+**NFL title games top storylines: Can Josh Allen beat Chiefs? Will Jayden Daniels make history?**\
+`The NFL's final four teams compete Sunday for a spot in Super Bowl LIX in New Orleans. Here's what to know about both games.`\
+https://nytimes.com/athletic/6084192/2025/01/26/afc-nfc-championship-games-storylines/
 
-**Israel Blocks Gazans From North, Accusing Hamas of Cease-Fire Breach**\
-`Some troops had been expected to withdraw to allow hundreds of thousands of displaced Gazans to go home. But the military said the hostage exchange before that step had not gone as agreed.`\
-https://nytimes.com/2025/01/26/world/middleeast/israel-gaza-cease-fire.html
+**Attention Is the Fuel of American Politics, and Trump Knows It**\
+`Money is no longer the main driver of American politics, if it ever was.`\
+https://nytimes.com/2025/01/26/opinion/trump-musk-zuckerberg-attention.html
 
-**Man Utd get UK government support for Old Trafford regeneration project**\
-`Manchester United have received a major boost in plans for the redevelopment of Old Trafford with UK Chancellor Rachel Reeves throwing her support behind the project.`\
-https://nytimes.com/athletic/6088894/2025/01/26/manchester-united-old-trafford-government/
+**Five years after Kobe Bryant's death, reminders remain everywhere in Los Angeles**\
+`The impact of Bryant’s career, and the ‘Mamba Mentality,’ carry on in the kind of way that almost makes you forget that he’s gone.`\
+https://nytimes.com/athletic/6087423/2025/01/26/kobe-bryant-death-five-years-nba-lakers/
 
-**South Korea’s Impeached Leader Is Indicted on Insurrection Charges**\
-`President Yoon Suk Yeol will stand trial along with his former defense minister and others who participated in his short-lived imposition of martial law.`\
-https://nytimes.com/2025/01/26/world/asia/south-korea-yoon-indicted-martial-law.html
+**Us and Them Is All the Rage**\
+`A German political theorist helps explain MAGA morality.`\
+https://nytimes.com/2025/01/26/opinion/trump-maga-schmitt.html
 
-**What It’s Like to Be a Kid After a Fire Took Almost Everything**\
-`Ten children talked about losing their homes, their schools and their neighborhoods in the Los Angeles fires. They discussed what they’re worried about and what’s cheering them up.`\
-https://nytimes.com/2025/01/26/us/children-los-angeles-fires.html
+**The Sunday Read: ‘Do Our Dogs Have Something to Tell the World?’**\
+`Many owners think so, thanks to the “talking buttons” craze on TikTok and Instagram. Scientists are less convinced.`\
+https://nytimes.com/2025/01/26/podcasts/the-daily/dogs-talking-buttons.html
 
-**Hefty Sweaters for Heavy Times**\
-`Thick, woolly and oversize knitwear has for some become a form of soft armor.`\
-https://nytimes.com/2025/01/26/style/sweaters-knitwear-women.html
+**A Renewed Liberalism Can Meet the Populist Challenge**\
+`It should be abundantly clear that “establishment liberalism” is no longer viable.`\
+https://nytimes.com/2025/01/26/opinion/liberalism-democrats-trump.html
 
-**Elon Musk, Video Game King? Well, Maybe Not.**\
-`Gaming is a big part of the billionaire’s public persona. But other players are questioning whether he has the time or the skill to be as accomplished as he claims.`\
-https://nytimes.com/2025/01/26/technology/elon-musk-video-games-diablo-path-of-exile.html
+**The Singular Tragedy of Anne Frank**\
+`The more Anne Frank becomes a generic symbol of all historical tragedy, the less we remember who she was and what happened to her.`\
+https://nytimes.com/2025/01/26/opinion/anne-frank-today.html
 
-**Heartbreak and History in a Single Color**\
-`Imani Perry’s impressionistic “Black in Blues” finds shades of meaning — beautiful and ugly — in art, artifacts, music, fashion and more.`\
-https://nytimes.com/2025/01/26/books/review/imani-perry-black-in-blues.html
+**The Connections Companion No. 596**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 27, 2025.`\
+https://nytimes.com/2025/01/26/crosswords/connections-companion-596.html
 
-**Hollywood Work Was Already Drying Up. Then the Fires Hit.**\
-`The wildfires have given new urgency to discussions about how to revive one of Los Angeles’s defining, and dominant, industries: film and television production.`\
-https://nytimes.com/2025/01/26/movies/los-angeles-wildfires-hollywood-production.html
+**Our Kids Cannot Learn About Sex Just From Squeamish Gym Teachers**\
+`American students are not getting adequate sex ed, just when they need it most.`\
+https://nytimes.com/2025/01/26/opinion/sex-education-consent-middle-school.html
 
-**A Storm, a Spill and a Disaster for the Black Sea’s Beaches**\
-`Vast stretches of Russian coast have been tarred by heavy fuel oil from two freighters that foundered in a storm.`\
-https://nytimes.com/2025/01/26/world/europe/russia-oil-spill-black-sea.html
+**Wordle Review No. 1,318**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 27, 2025.`\
+https://nytimes.com/2025/01/26/crosswords/wordle-review-1318.html
 
