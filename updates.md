@@ -1,3 +1,7 @@
+**The week Leicester showed character: Standards, keeping it simple and five minutes of magic**\
+`Leicester fans still want accountability off the field, but for one week at least, they can see fight from their team and a window of hope`\
+https://nytimes.com/athletic/6089346/2025/01/26/leicester-van-nistelrooy-tottenham/
+
 **Lindsey Graham Says Trump Was Wrong to Pardon Violent Jan. 6 Rioters**\
 `The South Carolina Republican told CNN that he “did not like” how Trump pardoned people who “beat up cops,” and suggested he would be open to curtailing the presidential pardon power.`\
 https://nytimes.com/2025/01/26/us/politics/trump-pardons-jan-6-lindsey-graham.html
