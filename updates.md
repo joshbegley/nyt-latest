@@ -1,3 +1,11 @@
+**Trump Pushes Jordan and Egypt to Take in Palestinians to ‘Clean Out’ Gaza**\
+`President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s. Mr. Trump’s suggestion echoes proposals from far-right Israelis. A Hamas official rejected the idea.`\
+https://nytimes.com/2025/01/26/world/middleeast/trump-gaza-jordan-egypt.html
+
+**In NBA Finals rematch, Mavericks get even further from where they need to be**\
+`As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month without Luka Dončić.`\
+https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
+
 **‘Googly Eye Bandit’ in Oregon Comes Forward**\
 `Jeff Keith, who runs a nonprofit, claimed he was behind some of the googly eyes that mysteriously appeared on public art in Bend, Ore.`\
 https://nytimes.com/2025/01/26/us/googly-eyes-sculptures-oregon.html

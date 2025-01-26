@@ -1,3 +1,7 @@
+**Trump Pushes Jordan and Egypt to Take in Palestinians to ‘Clean Out’ Gaza**\
+`President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s. Mr. Trump’s suggestion echoes proposals from far-right Israelis. A Hamas official rejected the idea.`\
+https://nytimes.com/2025/01/26/world/middleeast/trump-gaza-jordan-egypt.html
+
 **‘Googly Eye Bandit’ in Oregon Comes Forward**\
 `Jeff Keith, who runs a nonprofit, claimed he was behind some of the googly eyes that mysteriously appeared on public art in Bend, Ore.`\
 https://nytimes.com/2025/01/26/us/googly-eyes-sculptures-oregon.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/01/26/arts/television/snl-call-the-musical-guest-by-the
 https://nytimes.com/athletic/6088858/2025/01/26/cowboys-brian-schottenheimer-to-do-list-dak-prescott/
 
 **In NBA Finals rematch, Mavericks get even further from where they need to be**\
-`As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month, minus Luka Dončić.`\
+`As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month without Luka Dončić.`\
 https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
 
 **Even in a 40-point game, it's the little things that stand out with James Harden**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088859/2025/01/26/jarred-vanderbilt-lakers-season-
 **President Trump’s Aggressive Week**\
 `He is already challenging the expectations of what a president can and should do.`\
 https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.html
-
-**Chelsea complete signing of USWNT's Girma for record fee**\
-`Sources briefed on the matter have confirmed Chelsea will pay $1.1m to acquire Girma from the San Diego Wave.`\
-https://nytimes.com/athletic/6080652/2025/01/26/naomi-girma-chelsea-uswnt-record/
 
