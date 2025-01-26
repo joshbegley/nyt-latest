@@ -1,3 +1,7 @@
+**Some Protestants Felt Invisible. Then Came Bishop Budde.**\
+`The bishop asked President Trump publicly to “have mercy,” electrifying some liberal churchgoers in an era dominated by conservative versions of Christianity.`\
+https://nytimes.com/2025/01/26/us/bishop-mariann-budde-trump-christian.html
+
 **Snowy Getaway**\
 `Don’t turn a blind eye to Alexander Liebeskind’s crossword.`\
 https://nytimes.com/2025/01/26/crosswords/daily-puzzle-2025-01-27.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
 **Timothée Chalamet Dug Deep for Bob Dylan Songs on ‘S.N.L.’**\
 `“Outlaw Blues,” “Three Angels” and “Tomorrow Is a Long Time” were personal favorites from Dylan’s monumental catalog.`\
 https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
-
-**The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
-`Manchester United edged a tight game at Craven Cottage but Rasmus Hojlund is among their players struggling for form`\
-https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
 
