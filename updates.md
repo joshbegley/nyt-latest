@@ -53,6 +53,11 @@ https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-gr
 `\
 https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
 
+**Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
+`Bobby McMann — who made his debut on the top line — had the lone goal for the Leafs as Toronto fell short 2-1 to Ottawa.
+`\
+https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
+
 **Trump Says He Wants Jordan and Egypt to Take in Palestinians From Gaza**\
 `President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s on Sunday. Most of Gaza’s two million residents have been displaced in 15 months of fighting.`\
 https://nytimes.com/2025/01/25/us/politics/trump-palestinians-jordan-egypt-refugees.html
