@@ -1,7 +1,3 @@
-**The Briefing - Valladolid 0 Real Madrid 3: 'Pressure monster' Kylian Mbappe scores first hat-trick**\
-`Guillermo Rai breaks down the key points from Real Madrid's win in Valladolid on Saturday`\
-https://nytimes.com/athletic/6088568/2025/01/26/mbappe-hat-trick-real-madrid-valladolid-analysis/
-
 **‘People Will Be Shocked’: Trump Tests the Boundaries of the Presidency**\
 `Even more than in his first term, President Trump has mounted a fundamental challenge to the norms and expectations of what a president can and should do.`\
 https://nytimes.com/2025/01/26/us/politics/trump-boundaries-presidency.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6088740/2025/01/26/auburn-statement-win-against-ten
 **Chelsea are regressing and Enzo Maresca needs more than optimism to fix them**\
 `As Saturday demonstrated, visits to play Manchester City often expose the unvarnished reality of where Chelsea really are`\
 https://nytimes.com/athletic/6088310/2025/01/26/chelsea-regression-form-premier-league-maresca-sanchez/
+
+**Houston coach Kelvin Sampson gets his win in Cougars-Jayhawks thriller**\
+`Hard work pays off for Houston sixth-years Mylik Wilson and J'Wan Roberts in victory in Kansas. `\
+https://nytimes.com/athletic/6088719/2025/01/26/houston-kansas-thriller-mylik-wilson-jwan-roberts/
 
