@@ -1,3 +1,7 @@
+**Jiri Kulich's emergence, other takeaways from Sabres' lousy trip out West**\
+`Kulich is emerging as a top-of-the-lineup player, plus is Sabres coach Lindy Ruff out of buttons to push?`\
+https://nytimes.com/athletic/6088545/2025/01/25/sabres-jiri-kulich-oilers-flames-canucks-kraken/
+
 **'Welcome to the club': Brooklyn Nets retire high-flying Hall of Famer Vince Carter's number**\
 `Carter's number 15 was raised to the rafters Saturday with legends Buck Williams and Julius Erving in attendance.`\
 https://nytimes.com/athletic/6088530/2025/01/25/brooklyn-nets-vince-carter-number-retired/
