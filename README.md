@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
 https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
 
 **The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
-`Analysis of Manchester United's Premier League game away to Fulham`\
+`Manchester United edged a tight game at Craven Cottage but Rasmus Hojlund is among their players struggling for form`\
 https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
 
 **Monday Briefing: Fragile Israeli Cease-Fires**\
