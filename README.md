@@ -1,3 +1,11 @@
+**British Prime Minister Starmer Thanks Trump for Role in Cease-Fire Deal**\
+`The prime minister’s office said the two leaders agreed to meet soon and discussed trade, the economy and the Middle East.`\
+https://nytimes.com/2025/01/26/us/politics/trump-keir-starmer-ceasefire.html
+
+**As Thousands Try to Return Home, Mideast Cease-Fires Appear Fragile**\
+`Israeli forces killed at least 22 people and injured dozens more in southern Lebanon on Sunday, Lebanese officials said. In Gaza, Israel said Hamas had violated the terms of the truce.`\
+https://nytimes.com/2025/01/26/world/middleeast/lebanon-gaza-cease-fires.html
+
 **Vance Offers Fierce Endorsement of Trump’s First Week**\
 `In his first television interview as vice president, JD Vance defended President Trump on a variety of policies, including some he had previously second-guessed.`\
 https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/world/europe/belarus-lukashenko-re-election.html
 **Charges Dropped Against Doctor Who Leaked About Minors’ Transgender Care**\
 `The decision by federal prosecutors came at a time when President Trump was rolling back protections for transgender people.`\
 https://nytimes.com/2025/01/26/us/trump-transgender-texas-doctor.html
-
-**Republican Senators Call on Trump to Rethink Revoked Security Details**\
-`Senators Lindsey Graham and Tom Cotton said that the former Trump aides faced continuing threats from Iran and that the decision could affect how current officials do their jobs.`\
-https://nytimes.com/2025/01/26/us/politics/graham-cotton-trump-security.html
-
-**Why the Blackhawks could be major players for Mikko Rantanen, others this NHL offseason**\
-`The Blackhawks could expedite their painstaking rebuilding process and be significant players in free agency this summer.`\
-https://nytimes.com/athletic/6089407/2025/01/26/blackhawks-mikko-rantanen-nhl-free-agency/
 
