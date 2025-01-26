@@ -1,3 +1,7 @@
+**How Quinn Hughes, Kevin Lankinen carried the Canucks (again): 3 takeaways**\
+`It was, nonetheless, a much-needed 2-1 victory for Vancouver over a very good Washington Capitals side.`\
+https://nytimes.com/athletic/6088648/2025/01/26/canucks-win-capitals-quinn-hughes-kevin-lankinen/
+
 **What Did the World Learn From Syria?**\
 `It is easy to look at a dark past and warn of a dark future.`\
 https://nytimes.com/2025/01/26/opinion/syria-assad.html

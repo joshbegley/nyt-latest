@@ -1,3 +1,7 @@
+**How Quinn Hughes, Kevin Lankinen carried the Canucks (again): 3 takeaways**\
+`It was, nonetheless, a much-needed 2-1 victory for Vancouver over a very good Washington Capitals side.`\
+https://nytimes.com/athletic/6088648/2025/01/26/canucks-win-capitals-quinn-hughes-kevin-lankinen/
+
 **What Did the World Learn From Syria?**\
 `It is easy to look at a dark past and warn of a dark future.`\
 https://nytimes.com/2025/01/26/opinion/syria-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086259/2025/01/26/palmeiras-president-endrick-este
 **Gumshields to headbands: What accessories can players wear in the Premier League?**\
 `From snoods to headbands and gumshields, the accessories players are allowed and want to wear on the pitch has changed over the years`\
 https://nytimes.com/athletic/6058414/2025/01/26/premier-league-accessories-rules/
-
-**India, a Big Source of Illegal Migration, Hopes to Navigate the Trump Storm**\
-`Fear and uncertainty are rippling through India, which sends more undocumented migrants to the United States than any other country outside Latin America.`\
-https://nytimes.com/2025/01/26/world/asia/india-illegal-immigration-trump.html
 
