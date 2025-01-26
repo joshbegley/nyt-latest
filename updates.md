@@ -1,3 +1,7 @@
+**In Ashes of Eaton Fire, New Questions for the Power Company**\
+`Investigators are still trying to determine what started a fire that raged through Altadena, Calif. A new video appears to show sparking on a power line near the origin of the blaze.`\
+https://nytimes.com/2025/01/26/us/los-angeles-eaton-fire-cause.html
+
 **‘S.N.L.’: Call the Musical Guest by the Guest Host’s Name**\
 `Timothée Chalamet, star of “A Complete Unknown,” doubled up this week, and, in a cameo, Lin-Manuel Miranda rapped about freedom from royal tyranny.`\
 https://nytimes.com/2025/01/26/arts/television/snl-chalamet-miranda-trump.html
