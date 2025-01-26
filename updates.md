@@ -1,3 +1,7 @@
+**In NBA Finals rematch, Mavericks get even further from where they need to be**\
+`As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month, minus Luka Dončić.`\
+https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
+
 **Zverev heckled in apparent reference to domestic abuse allegations at Australian Open final**\
 `Zverev's defeat by Jannik Sinner was his third loss in three Grand Slam finals.`\
 https://nytimes.com/athletic/6088956/2025/01/26/alexander-zverev-australian-open-olya-brenda/
