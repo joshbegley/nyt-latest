@@ -1,3 +1,7 @@
+**Monuments in Australia Are Vandalized to Protest National Day**\
+`The vandalism unfolded in Sydney, Melbourne and Canberra. Australia Day is a divisive holiday that critics see as a symbol of racism and oppression.`\
+https://nytimes.com/2025/01/26/world/australia/australia-day-statues-vandalized.html
+
 **Canadiens are not good enough, and the best part is they know it**\
 `The Canadiens might be collecting points, but they know their game has dipped and they're not happy, which is the most important thing.`\
 https://nytimes.com/athletic/6088728/2025/01/26/canadiens-lose-overtime-to-devils/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6063594/2025/01/26/jamal-khashoggi-saudi-arabia-wor
 **Is this football's most boring team? (And is that actually a good thing?)**\
 `Europe's top leagues have passed their halfway points - and one team stands out for doing things completely their own way`\
 https://nytimes.com/athletic/6085907/2025/01/26/most-boring-football-team/
-
-**Leila Pereira interview: The Palmeiras president on Endrick, Estevao and blazing a trail for women**\
-`The Brazilian has become one of the most important figures in South American and world football`\
-https://nytimes.com/athletic/6086259/2025/01/26/palmeiras-president-endrick-estevao-reis/
 
