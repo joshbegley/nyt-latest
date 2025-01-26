@@ -1,9 +1,13 @@
+**Carol Downer, Feminist Leader in Women’s Health, Dies at 91**\
+`She opened clinics, worked to educate women about their reproductive health, and promoted an abortion technique she felt was safe enough for laypeople.`\
+https://nytimes.com/2025/01/26/health/carol-downer-dead.html
+
 **Blue Jackets Sunday Gathering: NHL greats weigh in on Zach Werenski's season, streak**\
 `Saturday marked the 19th straight game at home in which Werenski has registered at least a point, the longest streak in franchise history.`\
 https://nytimes.com/athletic/6088982/2025/01/26/blue-jackets-zach-werenski-nhl-season/
 
 **Senior Justice Department Official in Chicago to Oversee Immigration Crackdown**\
-`Emil Bove, the active attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
+`Emil Bove, the acting deputy attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
 https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
 
 **Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/outside-one-v
 **Does the Mikko Rantanen trade signal a transition for the Avalanche? One-on-one with GM Chris MacFarland**\
 `Despite trading one of the NHL's scoring leaders and a franchise stalwart, MacFarland says the Avalanche are still "all-in."`\
 https://nytimes.com/athletic/6089182/2025/01/26/chris-macfarland-avalanche-mikko-rantanen-trade/
-
-**Eleven Madison Park Granola, Surprisingly Easy and Very Snackable**\
-`I like it with Greek yogurt, but it’s terrific with whole milk, too, and doesn’t do poorly at all on its own, like a kind of trail mix.`\
-https://nytimes.com/2025/01/26/dining/eleven-madison-park-granola-surprisingly-easy-and-very-snackable.html
 

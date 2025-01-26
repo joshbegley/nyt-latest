@@ -1,3 +1,11 @@
+**Carol Downer, Feminist Leader in Women’s Health, Dies at 91**\
+`She opened clinics, worked to educate women about their reproductive health, and promoted an abortion technique she felt was safe enough for laypeople.`\
+https://nytimes.com/2025/01/26/health/carol-downer-dead.html
+
+**Senior Justice Department Official in Chicago to Oversee Immigration Crackdown**\
+`Emil Bove, the acting deputy attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
+https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
+
 **Blue Jackets Sunday Gathering: NHL greats weigh in on Zach Werenski's season, streak**\
 `Saturday marked the 19th straight game at home in which Werenski has registered at least a point, the longest streak in franchise history.`\
 https://nytimes.com/athletic/6088982/2025/01/26/blue-jackets-zach-werenski-nhl-season/
