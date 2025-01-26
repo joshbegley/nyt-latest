@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
 
+**Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
+`Bobby McMann — who made his debut on the top line — had the lone goal as Toronto fell short 2-1 to Ottawa.
+`\
+https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
+
 **India, a Big Source of Illegal Migration, Hopes to Navigate the Trump Storm**\
 `Fear and uncertainty are rippling through India, which sends more undocumented migrants to the United States than any other country outside Latin America.`\
 https://nytimes.com/2025/01/26/world/asia/india-illegal-immigration-trump.html
