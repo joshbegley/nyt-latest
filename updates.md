@@ -1,3 +1,7 @@
+**The deadline for the withdrawal of Israeli troops in Lebanon comes at a precarious time for Hezbollah.**\
+`By Christina Goldbaum`\
+https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/the-deadline-for-the-withdrawal-of-israeli-troops-in-lebanon-comes-at-a-precarious-time-for-hezbollah
+
 **The Pulse: A stunning American breakthrough**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6089141/2025/01/26/madison-keys-australian-open-the-pulse/
