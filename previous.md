@@ -1,3 +1,7 @@
+**Auburn's statement against Tennessee: We can miss everything and still win huge games**\
+`College basketball's best offense had more air balls, weird passes and shot-clock violations than pleasing plays and still won. `\
+https://nytimes.com/athletic/6088740/2025/01/26/auburn-statement-win-against-tennessee/
+
 **Chelsea are regressing and Enzo Maresca needs more than optimism to fix them**\
 `As Saturday demonstrated, visits to play Manchester City often expose the unvarnished reality of where Chelsea really are`\
 https://nytimes.com/athletic/6088310/2025/01/26/chelsea-regression-form-premier-league-maresca-sanchez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087575/2025/01/26/lewis-skelly-red-card-why/
 **Why Pep Guardiola had Manchester City play like a long-ball team against Chelsea**\
 `Guardiola has spent his entire Manchester City career urging the team to slow their play, now he's telling them to go direct. Why? `\
 https://nytimes.com/athletic/6088148/2025/01/26/pep-guardiola-manchester-city-long-ball/
-
-**The Premier League's financial rules are working - just not in the way you might think**\
-`One of the unexpected effects of PSR is that there has been a change to the transfers ecosystem. Plenty of English clubs are benefitting`\
-https://nytimes.com/athletic/6083459/2025/01/26/premier-league-psr-financial-rules/
 

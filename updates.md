@@ -1,3 +1,7 @@
+**Auburn's statement against Tennessee: We can miss everything and still win huge games**\
+`College basketball's best offense had more air balls, weird passes and shot-clock violations than pleasing plays and still won. `\
+https://nytimes.com/athletic/6088740/2025/01/26/auburn-statement-win-against-tennessee/
+
 **Chelsea are regressing and Enzo Maresca needs more than optimism to fix them**\
 `As Saturday demonstrated, visits to play Manchester City often expose the unvarnished reality of where Chelsea really are`\
 https://nytimes.com/athletic/6088310/2025/01/26/chelsea-regression-form-premier-league-maresca-sanchez/
