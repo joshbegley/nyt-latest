@@ -1,3 +1,7 @@
+**Los Angeles Faces Risk of Mudslides With the Arrival of Rain**\
+`The wet weather will bring relief to Southern California after a prolonged period of dryness, but there’s concern that any bursts of heavy rainfall could cause flooding.`\
+https://nytimes.com/2025/01/25/us/los-angeles-fires-rain-risk-mudslides.html
+
 **Yohe's 10 observations: Evgeni Malkin injured as Penguins crumble once again**\
 `The Penguins forward left Saturday's game against the Kraken with a lower-body injury after colliding with Chandler Stephenson.`\
 https://nytimes.com/athletic/6086974/2025/01/25/penguins-evgeni-malkin-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/25/crosswords/daily-puzzle-2025-01-26.html
 `The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
-
-**Fernandes says Amorim's criticisms fired him up**\
-`Manchester United captain Bruno Fernandes has defended Ruben Amorim’s criticisms of the team and says the head coach’s comments fired him up.`\
-https://nytimes.com/athletic/6088005/2025/01/25/bruno-fernandes-man-utd-amorim/
 
