@@ -1,3 +1,7 @@
+**Duke discovers another defensive tool in a rare ACC test at Wake Forest**\
+`The Blue Devils finally faced some adversity. They were down against the Demon Deacons with 10 minutes to play. The solution? Go zone.`\
+https://nytimes.com/athletic/6088561/2025/01/25/duke-defeats-wake-forest-acc/
+
 **Jiri Kulich's emergence, other takeaways from Sabres' lousy trip out West**\
 `Kulich is emerging as a top-of-the-lineup player, plus is Sabres coach Lindy Ruff out of buttons to push?`\
 https://nytimes.com/athletic/6088545/2025/01/25/sabres-jiri-kulich-oilers-flames-canucks-kraken/
