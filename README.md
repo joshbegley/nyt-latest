@@ -1,3 +1,7 @@
+**Amorim on Rashford return: 'If things don't change, I will not change'**\
+`Ruben Amorim has said he would rather name his 63-year-old goalkeeping coach as a substitute than pick a player who fails to give his all every day at Carrington when addressing a question about Marcus Rashford’s reintegration.`\
+https://nytimes.com/athletic/6089823/2025/01/26/man-united-rashford-amorim-return-transfer-update/
+
 **PGMOL 'appalled' at threats and abuse aimed at Michael Oliver after Wolves vs Arsenal**\
 `The Professional Game Match Officials Limited (PGMOL) says it is appalled at social media threats and abuse aimed at Premier League referee Michael Oliver.`\
 https://nytimes.com/athletic/6089571/2025/01/26/michael-oliver-threats-abuse-pgmol-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/briefing/israel-lebanon-gaza-cease-fires-yoon-ind
 **Penn State expected to hire former Ohio State DC Jim Knowles**\
 `Knowles fills the void on Penn State’s staff left by Tom Allen, who accepted the same position with Clemson earlier this month.`\
 https://nytimes.com/athletic/6089544/2025/01/26/penn-state-jim-knowles-defensive-coordinator-ohio-state-hire/
-
-**Villa's Mings to undergo scan on knee injury sustained during West Ham draw**\
-`Aston Villa defender Tyrone Mings is set to undergo a scan after sustaining an injury to his left knee during his side’s 1-1 draw with West Ham United on Sunday.`\
-https://nytimes.com/athletic/6089615/2025/01/26/tyrone-mings-injury-scan-villa-west-ham/
 
