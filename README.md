@@ -1,3 +1,7 @@
+**Duke discovers another defensive tool in a rare ACC test at Wake Forest**\
+`The Blue Devils finally faced some adversity. They were down against the Demon Deacons with 10 minutes to play. The solution? Go zone.`\
+https://nytimes.com/athletic/6088561/2025/01/25/duke-defeats-wake-forest-acc/
+
 **Jiri Kulich's emergence, other takeaways from Sabres' lousy trip out West**\
 `Kulich is emerging as a top-of-the-lineup player, plus is Sabres coach Lindy Ruff out of buttons to push?`\
 https://nytimes.com/athletic/6088545/2025/01/25/sabres-jiri-kulich-oilers-flames-canucks-kraken/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088494/2025/01/25/harris-english-farmers-open-pga-
 **Rangers, Will Borgen agree to 5-year, $20.5 million extension**\
 `The Rangers' front office hoped an extension would be the end result when it targeted Borgen in the trade market, per a league source.`\
 https://nytimes.com/athletic/6088413/2025/01/25/will-borgen-rangers-extend-contract-nhl/
-
-**Blue Jackets' Sean Monahan expected to be out until March after injury setback**\
-`Doctors have projected a longer recovery timeline than expected for the 30-year-old, who injured his right wrist on Jan. 7.`\
-https://nytimes.com/athletic/6088411/2025/01/25/monahan-blue-jackets-injury/
 
