@@ -1,3 +1,11 @@
+**Even in a 40-point game, it's the little things that stand out with James Harden**\
+`Before Saturday, Harden hadn't had a 40-point game since March 2021. But two factors made Saturday night impressive.`\
+https://nytimes.com/athletic/6088773/2025/01/26/james-harden-40-points-clippers-bucks-nba/
+
+**Alexander Zverev heckled in reference to domestic abuse allegations at Australian Open final**\
+`Zverev's defeat by Jannik Sinner was his third loss in three Grand Slam finals.`\
+https://nytimes.com/athletic/6088956/2025/01/26/alexander-zverev-australian-open-olya-brenda/
+
 **Jarred Vanderbilt gives Lakers defensive versatility as they weigh options ahead of trade deadline**\
 `In his season debut, Vanderbilt shows he can ease the defensive burden on Anthony Davis, Dorian Finney-Smith, Max Christie and even LeBron.`\
 https://nytimes.com/athletic/6088859/2025/01/26/jarred-vanderbilt-lakers-season-debut-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6086300/2025/01/26/lindsey-vonn-skis-out-downhill-w
 **Game, Set, Match: Jannik Sinner beats Alexander Zverev for second Australian Open title**\
 `The world No. 1 has his third Grand Slam title and a second in a row in Australia.`\
 https://nytimes.com/athletic/6087427/2025/01/26/jannik-sinner-australian-open-final-result-analysis-zverev/
-
-**Buendia agrees to extend Villa contract until 2027**\
-`Aston Villa have reached an agreement with Emiliano Buendia over a one-year contract extension.`\
-https://nytimes.com/athletic/6088922/2025/01/26/emi-buendia-contract-aston-villa/
-
-**NFL title games top storylines: Can Josh Allen beat Chiefs? Will Jayden Daniels make history?**\
-`The NFL's final four teams compete Sunday for a spot in Super Bowl LIX in New Orleans. Here's what to know about both games.`\
-https://nytimes.com/athletic/6084192/2025/01/26/afc-nfc-championship-games-storylines/
 
