@@ -1,3 +1,11 @@
+**How Kobe Bryant helped grow women's hoops: 'His fingerprints are all over our game today'**\
+`Kobe's value to female players and their game is unquestioned. Though he’s gone, they still feel it.`\
+https://nytimes.com/athletic/6088118/2025/01/26/how-kobe-bryant-helped-grow-womens-hoops-his-fingerprints-are-all-over-our-game-today/
+
+**Israel Blocks Gazans From North, Accusing Hamas of Cease-Fire Breach**\
+`Some troops had been expected to withdraw to allow hundreds of thousands of displaced Gazans to go home. But the military said the hostage exchange before that step had not gone as agreed.`\
+https://nytimes.com/2025/01/26/world/middleeast/israel-gaza-cease-fire.html
+
 **Man Utd get UK government support for Old Trafford regeneration project**\
 `Manchester United have received a major boost in plans for the redevelopment of Old Trafford with UK Chancellor Rachel Reeves throwing her support behind the project.`\
 https://nytimes.com/athletic/6088894/2025/01/26/manchester-united-old-trafford-government/
