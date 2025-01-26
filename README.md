@@ -1,3 +1,7 @@
+**Vance Offers Fierce Endorsement of Trump’s First Week**\
+`In his first television interview as vice president, JD Vance defended President Trump on a variety of policies, including some he had previously second-guessed.`\
+https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
+
 **Timothée Chalamet Dug Deep for Bob Dylan Songs on ‘S.N.L.’**\
 `“Outlaw Blues,” “Three Angels” and “Tomorrow Is a Long Time” were personal favorites from Dylan’s monumental catalog.`\
 https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/politics/graham-cotton-trump-security.html
 **Why the Blackhawks could be major players for Mikko Rantanen, others this NHL offseason**\
 `The Blackhawks could expedite their painstaking rebuilding process and be significant players in free agency this summer.`\
 https://nytimes.com/athletic/6089407/2025/01/26/blackhawks-mikko-rantanen-nhl-free-agency/
-
-**Who is Arbel Yehud, the Israeli hostage at the center of the dispute?**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/who-is-arbel-yehud-the-israeli-hostage-at-the-center-of-the-dispute
 
