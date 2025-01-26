@@ -1,3 +1,7 @@
+**Israel’s continued presence in Lebanon poses a critical test for Lebanese leaders.**\
+`By Christina Goldbaum`\
+https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/israels-continued-presence-in-lebanon-poses-a-critical-test-for-lebanese-leaders
+
 **The deadline for the withdrawal of Israeli troops in Lebanon comes at a precarious time for Hezbollah.**\
 `By Christina Goldbaum`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/the-deadline-for-the-withdrawal-of-israeli-troops-in-lebanon-comes-at-a-precarious-time-for-hezbollah
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073644/2025/01/26/commanders-eagles-how-to-watch-o
 **Trump Pushes Jordan and Egypt to Take in Palestinians to ‘Clean Out’ Gaza**\
 `President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s. Mr. Trump’s suggestion echoes proposals from far-right Israelis. A Hamas official rejected the idea.`\
 https://nytimes.com/2025/01/26/world/middleeast/trump-gaza-jordan-egypt.html
-
-**‘Googly Eye Bandit’ in Oregon Comes Forward**\
-`Jeff Keith, who runs a nonprofit, claimed he was behind some of the googly eyes that mysteriously appeared on public art in Bend, Ore.`\
-https://nytimes.com/2025/01/26/us/googly-eyes-sculptures-oregon.html
 
