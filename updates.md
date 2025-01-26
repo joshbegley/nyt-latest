@@ -8,6 +8,16 @@ https://nytimes.com/athletic/6086974/2025/01/25/penguins-evgeni-malkin-injury/
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Yohe's 10 observations: Evgeni Malkin injured as Penguins crumble once again**\
+`The Penguins forward left Saturday's game against the Kraken with a lower-body injury after colliding with Chandler Stephenson.
+`\
+https://nytimes.com/athletic/6086974/2025/01/25/penguins-evgeni-malkin-injury/
+
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
 `The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
 `\
