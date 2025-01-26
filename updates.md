@@ -1,3 +1,11 @@
+**SEC fines Vanderbilt $500,000 for fans storming court vs. Kentucky**\
+`It’s Vanderbilt’s third offense under the SEC’s revised court-storming policy, which was updated in 2023.`\
+https://nytimes.com/athletic/6089880/2025/01/26/vanderbilt-fined-sec-court-storming/
+
+**Little-known NFL rule nearly awards Eagles free touchdown**\
+`Washington nearly drew what would likely be the NFL's first implementation of the "Fouls to Prevent Score" penalty.`\
+https://nytimes.com/athletic/6089915/2025/01/26/eagles-commanders-rule-referees-award-score/
+
 **Coffee and Flowers Could Cost Americans More in a Colombian Trade War**\
 `Colombia is a relatively minor trading partner to the United States, but some industries are much more exposed than others.`\
 https://nytimes.com/2025/01/26/us/politics/colombia-tariffs-trump-exports.html
