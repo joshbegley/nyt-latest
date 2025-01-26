@@ -1,3 +1,11 @@
+**Little-known NFL rule nearly awards Eagles free touchdown in NFC Championship**\
+`Washington nearly drew what would likely be the NFL's first implementation of the "Fouls to Prevent Score" penalty.`\
+https://nytimes.com/athletic/6089915/2025/01/26/eagles-commanders-rule-referees-award-score/
+
+**Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
+`Philly stars combine for six rushing touchdowns as Eagles force four turnovers in ending Washington's dream run.`\
+https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
+
 **A hidden threat from rain on a burn scar: poisons in the runoff.**\
 `By Kate Selig`\
 https://nytimes.com/live/2025/01/26/us/california-wildfires-los-angeles/a-hidden-threat-from-rain-on-a-burn-scar-poisons-in-the-runoff
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6089571/2025/01/26/michael-oliver-threats-abuse-pgm
 **Ryan Pressly approves trade from Astros to Cubs: Source**\
 `The Astros shopped Pressly throughout the winter to lower payroll.`\
 https://nytimes.com/athletic/6087095/2025/01/26/cubs-astros-trade-ryan-pressly/
-
-**British Prime Minister Starmer Thanks Trump for Role in Cease-Fire Deal**\
-`The prime minister’s office said the two leaders agreed to meet soon and discussed trade, the economy and the Middle East.`\
-https://nytimes.com/2025/01/26/us/politics/trump-keir-starmer-ceasefire.html
-
-**As Thousands Try to Return Home, Fragile Mideast Cease-Fires Are Tested**\
-`Israeli forces killed at least 22 people and injured dozens more in southern Lebanon on Sunday, Lebanese officials said. In Gaza, Israel said Hamas had violated the terms of the truce.`\
-https://nytimes.com/2025/01/26/world/middleeast/lebanon-gaza-cease-fires.html
 
