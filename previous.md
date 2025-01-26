@@ -1,3 +1,7 @@
+**Houston coach Kelvin Sampson gets his win in Cougars-Jayhawks thriller**\
+`Hard work pays off for Houston sixth-years Mylik Wilson and J'Wan Roberts in victory in Kansas. `\
+https://nytimes.com/athletic/6088719/2025/01/26/houston-kansas-thriller-mylik-wilson-jwan-roberts/
+
 **Monuments in Australia Are Vandalized to Protest National Day**\
 `The vandalism unfolded in Sydney, Melbourne and Canberra. Australia Day is a divisive holiday that critics see as a symbol of racism and oppression.`\
 https://nytimes.com/2025/01/26/world/australia/australia-day-statues-vandalized.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083459/2025/01/26/premier-league-psr-financial-rul
 **Jamal Khashoggi's widow says FIFA should commemorate him at Saudi Arabia World Cup**\
 `'They could name a stand in a stadium after him, or print his picture on tickets for the public. His sacrifice should be valued'`\
 https://nytimes.com/athletic/6063594/2025/01/26/jamal-khashoggi-saudi-arabia-world-cup/
-
-**Is this football's most boring team? (And is that actually a good thing?)**\
-`Europe's top leagues have passed their halfway points - and one team stands out for doing things completely their own way`\
-https://nytimes.com/athletic/6085907/2025/01/26/most-boring-football-team/
 

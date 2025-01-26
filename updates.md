@@ -1,3 +1,7 @@
+**Houston coach Kelvin Sampson gets his win in Cougars-Jayhawks thriller**\
+`Hard work pays off for Houston sixth-years Mylik Wilson and J'Wan Roberts in victory in Kansas. `\
+https://nytimes.com/athletic/6088719/2025/01/26/houston-kansas-thriller-mylik-wilson-jwan-roberts/
+
 **Monuments in Australia Are Vandalized to Protest National Day**\
 `The vandalism unfolded in Sydney, Melbourne and Canberra. Australia Day is a divisive holiday that critics see as a symbol of racism and oppression.`\
 https://nytimes.com/2025/01/26/world/australia/australia-day-statues-vandalized.html
