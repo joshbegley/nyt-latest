@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: NHL greats weigh in on Zach Werenski's season, streak**\
+`Saturday marked the 19th straight game at home in which Werenski has registered at least a point, the longest streak in franchise history.`\
+https://nytimes.com/athletic/6088982/2025/01/26/blue-jackets-zach-werenski-nhl-season/
+
+**Senior Justice Department Official in Chicago to Oversee Immigration Crackdown**\
+`Emil Bove, the active attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
+https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
+
 **Senior Justice Department Official to Oversee Chicago Immigration Crackdown**\
 `Emil Bove, the active attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
 https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
