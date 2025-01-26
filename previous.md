@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6087682/2025/01/26/tottenham-postecoglou-leicester-
 `For a glimpse at what other fashion brands may take inspiration from in 30 years, look at the latest Hermès runway show.`\
 https://nytimes.com/2025/01/26/style/hermes-mens-wear-paris.html
 
-**Jannik Sinner's tennis brilliance shines through a cloud he cannot lift**\
+**Jannik Sinner's tennis brilliance shines through a darkness he cannot lift**\
 `Everything that Jannik Sinner means to the summit of men's tennis could be temporarily wiped away in just a few months.`\
 https://nytimes.com/athletic/6088971/2025/01/26/jannik-sinner-tennis-grand-slams-record-doping-ban-appeal/
 
