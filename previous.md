@@ -1,3 +1,7 @@
+**Seahawks hire Klint Kubiak as offensive coordinator**\
+`Kubiak, who turns 38 next month, is the son of former NFL head coach Gary Kubiak.`\
+https://nytimes.com/athletic/6079420/2025/01/26/seahawks-offensive-coordinator-klint-kubiak-saints/
+
 **Southern California Rainstorms Raise Risks of Mudslides**\
 `The charred soil left by the wildfires could create conditions ripe for mudslides because the rain, which will last into Monday, will just run off, forecasters said.`\
 https://nytimes.com/2025/01/26/us/california-fires-rain-mudslides.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/bishop-mariann-budde-trump-christian.html
 **Snowy Getaway**\
 `Don’t turn a blind eye to Alexander Liebeskind’s crossword.`\
 https://nytimes.com/2025/01/26/crosswords/daily-puzzle-2025-01-27.html
-
-**Eagles' Cam Jurgens replaces Landon Dickerson at center**\
-`Jurgens, initially downgraded from his starting spot with a back injury, replaced Dickerson after the latter suffered a knee injury.`\
-https://nytimes.com/athletic/6089838/2025/01/26/eagles-center-cam-jurgens-landon-dickerson/
 

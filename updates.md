@@ -1,3 +1,7 @@
+**Seahawks hire Klint Kubiak as offensive coordinator**\
+`Kubiak, who turns 38 next month, is the son of former NFL head coach Gary Kubiak.`\
+https://nytimes.com/athletic/6079420/2025/01/26/seahawks-offensive-coordinator-klint-kubiak-saints/
+
 **Southern California Rainstorms Raise Risks of Mudslides**\
 `The charred soil left by the wildfires could create conditions ripe for mudslides because the rain, which will last into Monday, will just run off, forecasters said.`\
 https://nytimes.com/2025/01/26/us/california-fires-rain-mudslides.html
