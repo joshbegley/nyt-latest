@@ -1,3 +1,7 @@
+**South Korea’s Impeached Leader Is Indicted on Insurrection Charges**\
+`President Yoon Suk Yeol will stand trial along with his former defense minister and others who participated in his short-lived imposition of martial law.`\
+https://nytimes.com/2025/01/26/world/asia/south-korea-yoon-indicted-martial-law.html
+
 **What It’s Like to Be a Kid After a Fire Took Almost Everything**\
 `Ten children talked about losing their homes, their schools and their neighborhoods in the Los Angeles fires. They discussed what they’re worried about and what’s cheering them up.`\
 https://nytimes.com/2025/01/26/us/children-los-angeles-fires.html

@@ -1,3 +1,7 @@
+**South Korea’s Impeached Leader Is Indicted on Insurrection Charges**\
+`President Yoon Suk Yeol will stand trial along with his former defense minister and others who participated in his short-lived imposition of martial law.`\
+https://nytimes.com/2025/01/26/world/asia/south-korea-yoon-indicted-martial-law.html
+
 **What It’s Like to Be a Kid After a Fire Took Almost Everything**\
 `Ten children talked about losing their homes, their schools and their neighborhoods in the Los Angeles fires. They discussed what they’re worried about and what’s cheering them up.`\
 https://nytimes.com/2025/01/26/us/children-los-angeles-fires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/politics/2024-elections-congress-state-redistr
 **Which Says Luxury: Specialty Work or Gobs of Gems?**\
 `Brands still pile on the glitter, but skills such as enamel and miniature work have become the real distinguishing characteristics of high-end watches.`\
 https://nytimes.com/2025/01/26/fashion/watches-jewels-craftsmanship.html
-
-**In Santa Fe, Native American Jewelry Has a Showcase**\
-`All year long, makers sell their creations on the portal at the historic Palace of the Governors.`\
-https://nytimes.com/2025/01/26/fashion/native-american-jewelry-santa-fe-new-mexico.html
 
