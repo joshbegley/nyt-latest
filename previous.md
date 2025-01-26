@@ -1,3 +1,7 @@
+**Kyle Kuzma says he’s done fitting in. How does that impact the NBA trade deadline?**\
+`The Wizards' forward says he'll be more aggressive. Is that at odds with the team's plan to develop its youngsters? `\
+https://nytimes.com/athletic/6088754/2025/01/26/kyle-kuzma-wizards-nba-trade-deadline/
+
 **Auburn's statement against Tennessee: We can miss everything and still win huge games**\
 `College basketball's best offense had more air balls, weird passes and shot-clock violations than pleasing plays and still won. `\
 https://nytimes.com/athletic/6088740/2025/01/26/auburn-statement-win-against-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088597/2025/01/26/wild-flames-takeaways-jakub-lauk
 **Explaining Myles Lewis-Skelly's shock red card - and how Arsenal recovered from it**\
 `Exploring why Lewis-Skelly was sent off against Wolves, whether it was the right decision, what happens next and how Arsenal responded`\
 https://nytimes.com/athletic/6087575/2025/01/26/lewis-skelly-red-card-why/
-
-**Why Pep Guardiola had Manchester City play like a long-ball team against Chelsea**\
-`Guardiola has spent his entire Manchester City career urging the team to slow their play, now he's telling them to go direct. Why? `\
-https://nytimes.com/athletic/6088148/2025/01/26/pep-guardiola-manchester-city-long-ball/
 

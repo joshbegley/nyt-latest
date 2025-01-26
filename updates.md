@@ -1,3 +1,7 @@
+**Kyle Kuzma says he’s done fitting in. How does that impact the NBA trade deadline?**\
+`The Wizards' forward says he'll be more aggressive. Is that at odds with the team's plan to develop its youngsters? `\
+https://nytimes.com/athletic/6088754/2025/01/26/kyle-kuzma-wizards-nba-trade-deadline/
+
 **Auburn's statement against Tennessee: We can miss everything and still win huge games**\
 `College basketball's best offense had more air balls, weird passes and shot-clock violations than pleasing plays and still won. `\
 https://nytimes.com/athletic/6088740/2025/01/26/auburn-statement-win-against-tennessee/
