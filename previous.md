@@ -1,3 +1,7 @@
+**Man Utd get UK government support for Old Trafford regeneration project**\
+`Manchester United have received a major boost in plans for the redevelopment of Old Trafford with UK Chancellor Rachel Reeves throwing her support behind the project.`\
+https://nytimes.com/athletic/6088894/2025/01/26/manchester-united-old-trafford-government/
+
 **South Korea’s Impeached Leader Is Indicted on Insurrection Charges**\
 `President Yoon Suk Yeol will stand trial along with his former defense minister and others who participated in his short-lived imposition of martial law.`\
 https://nytimes.com/2025/01/26/world/asia/south-korea-yoon-indicted-martial-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/arts/design/kobe-bryant-murals-los-angeles.html
 **How Redistricting Helped Republicans Win the House**\
 `A New York Times analysis shows new maps stifled partisan competition for seats in the House of Representatives and state legislatures.`\
 https://nytimes.com/2025/01/26/us/politics/2024-elections-congress-state-redistricting.html
-
-**Which Says Luxury: Specialty Work or Gobs of Gems?**\
-`Brands still pile on the glitter, but skills such as enamel and miniature work have become the real distinguishing characteristics of high-end watches.`\
-https://nytimes.com/2025/01/26/fashion/watches-jewels-craftsmanship.html
 

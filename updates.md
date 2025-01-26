@@ -1,3 +1,7 @@
+**Man Utd get UK government support for Old Trafford regeneration project**\
+`Manchester United have received a major boost in plans for the redevelopment of Old Trafford with UK Chancellor Rachel Reeves throwing her support behind the project.`\
+https://nytimes.com/athletic/6088894/2025/01/26/manchester-united-old-trafford-government/
+
 **South Korea’s Impeached Leader Is Indicted on Insurrection Charges**\
 `President Yoon Suk Yeol will stand trial along with his former defense minister and others who participated in his short-lived imposition of martial law.`\
 https://nytimes.com/2025/01/26/world/asia/south-korea-yoon-indicted-martial-law.html
