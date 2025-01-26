@@ -1,4 +1,8 @@
-**Senior Justice Department Official to Oversee Chicago Immigration Crackdown**\
+**Blue Jackets Sunday Gathering: NHL greats weigh in on Zach Werenski's season, streak**\
+`Saturday marked the 19th straight game at home in which Werenski has registered at least a point, the longest streak in franchise history.`\
+https://nytimes.com/athletic/6088982/2025/01/26/blue-jackets-zach-werenski-nhl-season/
+
+**Senior Justice Department Official in Chicago to Oversee Immigration Crackdown**\
 `Emil Bove, the active attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
 https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089182/2025/01/26/chris-macfarland-avalanche-mikko
 **Eleven Madison Park Granola, Surprisingly Easy and Very Snackable**\
 `I like it with Greek yogurt, but it’s terrific with whole milk, too, and doesn’t do poorly at all on its own, like a kind of trail mix.`\
 https://nytimes.com/2025/01/26/dining/eleven-madison-park-granola-surprisingly-easy-and-very-snackable.html
-
-**The Briefing: Spurs 1 Leicester 2 - Nightmare for Postecoglou and Levy protests in embarrassing defeat**\
-`We break down the talking points from a poor defeat for Spurs in Sunday's Premier League match at the Tottenham Hotspur Stadium.`\
-https://nytimes.com/athletic/6087682/2025/01/26/tottenham-postecoglou-leicester-levy/
 

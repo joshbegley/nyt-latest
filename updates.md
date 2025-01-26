@@ -1,3 +1,7 @@
+**Senior Justice Department Official to Oversee Chicago Immigration Crackdown**\
+`Emil Bove, the active attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
+https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
+
 **Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
 `Ange Postecoglou says Pape Matar Sarr “shouldn’t have played” in Tottenham Hotspur’s 2-1 home defeat by Leicester City.`\
 https://nytimes.com/athletic/6089376/2025/01/26/tottenham-pape-sarr-injury-postecoglou/
