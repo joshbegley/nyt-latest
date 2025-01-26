@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
+`Bobby McMann — who made his debut on the top line — had the lone goal as Toronto fell short 2-1 to Ottawa.
+`\
+https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
+
 **'I love you': Derrick White's third quarter and the words that helped spur a Celtics win**\
 `White's 16-point, highest-scoring quarter of the season aided Boston in a 122-107 road win over the Dallas Mavericks. `\
 https://nytimes.com/athletic/6088583/2025/01/25/celtics-win-mavericks-derrick-white-third-quarter/
