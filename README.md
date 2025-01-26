@@ -1,6 +1,6 @@
 **Game, Set, Match: Jannik Sinner beats Alexander Zverev for second Australian Open title**\
 `The world No. 1 has his third Grand Slam title and a second in a row in Australia.`\
-https://nytimes.com/athletic/6087427/2025/01/26/australian-open-final-jannik-sinner-beats-alexander-zverev-for-third-grand-slam-title/
+https://nytimes.com/athletic/6087427/2025/01/26/jannik-sinner-australian-open-final-result-analysis-zverev/
 
 **Buendia agrees to extend Villa contract until 2027**\
 `Aston Villa have reached an agreement with Emiliano Buendia over a one-year contract extension.`\
