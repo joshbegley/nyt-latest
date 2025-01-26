@@ -1,3 +1,11 @@
+**‘Here to Say Thank You’: Trump Takes Victory Lap in Las Vegas**\
+`The president reiterated a pledge to end taxes on tips, but the message was an afterthought as the president celebrated his blitz of orders in his first week in office.`\
+https://nytimes.com/2025/01/25/us/politics/trump-rally-vegas-tips-taxes.html
+
+**Shedeur Sanders may not throw at NFL Combine, met with teams at Shrine Bowl**\
+`Sanders said his father, Hall of Famer Deion Sanders, called him several times to check in during his interview with the Titans.`\
+https://nytimes.com/athletic/6088439/2025/01/25/shedeur-sanders-shrine-bowl-team-talks-nfl-combine/
+
 **Corrections: Jan. 26, 2025**\
 `Corrections that appeared in print on Sunday, Jan. 26, 2025.`\
 https://nytimes.com/2025/01/25/pageoneplus/corrections-jan-26-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6088401/2025/01/25/joe-brady-bills-offensive-coordi
 **Why Morgan Geekie is the model of a retool target**\
 `Young, inexpensive and room to grow: Geekie has become the type of presence the Bruins would love to acquire before the trade deadline.`\
 https://nytimes.com/athletic/6088256/2025/01/25/bruins-morgan-geekie-retool/
-
-**Vanderbilt's court-storming encore, Texas' 22-point rally top SEC's wild day**\
-`Holding serve at home is critical to the SEC's chances of packing the bracket, and two prominent bubble-bound squads are helping the cause.`\
-https://nytimes.com/athletic/6088341/2025/01/25/vanderbilt-kentucky-texas-tamu-sec-basketball/
-
-**Letter Openers**\
-`Rich Proulx presents a puzzle with pictures and sound.`\
-https://nytimes.com/2025/01/25/crosswords/daily-puzzle-2025-01-26.html
 
