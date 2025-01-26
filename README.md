@@ -1,3 +1,7 @@
+**The Pulse: A stunning American breakthrough**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6089141/2025/01/26/madison-keys-australian-open-the-pulse/
+
 **In Ashes of Eaton Fire, New Questions for the Power Company**\
 `Investigators are still trying to determine what started a fire that raged through Altadena, Calif. A new video appears to show sparking on a power line near the origin of the blaze.`\
 https://nytimes.com/2025/01/26/us/los-angeles-eaton-fire-cause.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/googly-eyes-sculptures-oregon.html
 **A Family’s Heirloom China: The Echoes of History**\
 `Responses to a “sad but lovely tale of doomed heirloom dishes.” Also: Protecting federal workers from President Trump. Also: An “interabled” couple.`\
 https://nytimes.com/2025/01/26/opinion/heirloom-china.html
-
-**‘S.N.L.’: Call the Musical Guest by the Guest Host’s Name**\
-`Timothée Chalamet, star of “A Complete Unknown,” doubled up this week, and, in a cameo, Lin-Manuel Miranda rapped about freedom from royal tyranny.`\
-https://nytimes.com/2025/01/26/arts/television/snl-chalamet-miranda-trump.html
 
