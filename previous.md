@@ -1,3 +1,7 @@
+**Jarred Vanderbilt gives Lakers defensive versatility as they weigh options ahead of trade deadline**\
+`In his season debut, Vanderbilt shows he can ease the defensive burden on Anthony Davis, Dorian Finney-Smith, Max Christie and even LeBron.`\
+https://nytimes.com/athletic/6088859/2025/01/26/jarred-vanderbilt-lakers-season-debut-nba/
+
 **President Trump’s Aggressive Week**\
 `He is already challenging the expectations of what a president can and should do.`\
 https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088922/2025/01/26/emi-buendia-contract-aston-villa
 **NFL title games top storylines: Can Josh Allen beat Chiefs? Will Jayden Daniels make history?**\
 `The NFL's final four teams compete Sunday for a spot in Super Bowl LIX in New Orleans. Here's what to know about both games.`\
 https://nytimes.com/athletic/6084192/2025/01/26/afc-nfc-championship-games-storylines/
-
-**Attention Is the Fuel of American Politics, and Trump Knows It**\
-`Money is no longer the main driver of American politics, if it ever was.`\
-https://nytimes.com/2025/01/26/opinion/trump-musk-zuckerberg-attention.html
 

@@ -1,3 +1,7 @@
+**Jarred Vanderbilt gives Lakers defensive versatility as they weigh options ahead of trade deadline**\
+`In his season debut, Vanderbilt shows he can ease the defensive burden on Anthony Davis, Dorian Finney-Smith, Max Christie and even LeBron.`\
+https://nytimes.com/athletic/6088859/2025/01/26/jarred-vanderbilt-lakers-season-debut-nba/
+
 **The numbers show Van Dijk is playing as well as ever - 300 games into his Liverpool career**\
 `The 4-1 win against Ipswich was a milestone fixture for Van Dijk, whose form makes waving goodbye in May unthinkable`\
 https://nytimes.com/athletic/6088047/2025/01/26/van-dijk-300-games-liverpool-leadership/
