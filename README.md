@@ -1,3 +1,7 @@
+**Trump Pushes Jordan and Egypt to Take in Palestinians to ‘Clean Out’ Gaza**\
+`President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s. Mr. Trump’s suggestion echoes proposals from far-right Israelis. A Hamas official rejected the idea.`\
+https://nytimes.com/2025/01/26/world/middleeast/trump-gaza-jordan-egypt.html
+
 **‘Googly Eye Bandit’ in Oregon Comes Forward**\
 `Jeff Keith, who runs a nonprofit, claimed he was behind some of the googly eyes that mysteriously appeared on public art in Bend, Ore.`\
 https://nytimes.com/2025/01/26/us/googly-eyes-sculptures-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088859/2025/01/26/jarred-vanderbilt-lakers-season-
 **President Trump’s Aggressive Week**\
 `He is already challenging the expectations of what a president can and should do.`\
 https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.html
-
-**Chelsea complete signing of USWNT's Girma for record fee**\
-`Sources briefed on the matter have confirmed Chelsea will pay $1.1m to acquire Girma from the San Diego Wave.`\
-https://nytimes.com/athletic/6080652/2025/01/26/naomi-girma-chelsea-uswnt-record/
 
