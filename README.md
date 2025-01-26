@@ -11,7 +11,7 @@ https://nytimes.com/2025/01/26/world/europe/italy-migrants-albania.html
 https://nytimes.com/2025/01/26/world/europe/trump-greenland-denmark.html
 
 **Colombia’s President Says He Will Not Accept U.S. Deportation Flights**\
-`Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and needs to establish a dignified protocol before his country will allow their return.`\
+`Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and that he had already turned away U.S. military flights carrying deportees.`\
 https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.html
 
 **Outside one village along Lebanon’s southern border, hundreds wait anxiously to return home.**\
