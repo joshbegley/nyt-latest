@@ -1,3 +1,11 @@
+**A Family’s Heirloom China: The Echoes of History**\
+`Responses to a “sad but lovely tale of doomed heirloom dishes.” Also: Protecting federal workers from President Trump. Also: An “interabled” couple.`\
+https://nytimes.com/2025/01/26/opinion/heirloom-china.html
+
+**‘S.N.L.’: Call the Musical Guest by the Guest Host’s Name**\
+`Timothée Chalamet, star of “A Complete Unknown,” doubled up this week, and, in a cameo, Lin-Manuel Miranda rapped about freedom from royal tyranny.`\
+https://nytimes.com/2025/01/26/arts/television/snl-call-the-musical-guest-by-the-guest-hosts-name.html
+
 **Brian Schottenheimer and the Cowboys: 5 priorities as he begins big new role**\
 `Filling out his staff and figuring out how the offense is going to run are top-of-the-list items for Brian Schottenheimer.`\
 https://nytimes.com/athletic/6088858/2025/01/26/cowboys-brian-schottenheimer-to-do-list-dak-prescott/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6080652/2025/01/26/naomi-girma-chelsea-uswnt-record
 **The numbers show Van Dijk is playing as well as ever - 300 games into his Liverpool career**\
 `The 4-1 win against Ipswich was a milestone fixture for Van Dijk, whose form makes waving goodbye in May unthinkable`\
 https://nytimes.com/athletic/6088047/2025/01/26/van-dijk-300-games-liverpool-leadership/
-
-**Lowetide: 4 AHL trade targets who could help the Oilers**\
-`In the pursuit of smaller, measured deals, these players could help the Oilers organization now and into the future.`\
-https://nytimes.com/athletic/6087822/2025/01/26/edmonton-oilers-trade-targets-ahl-2025/
-
-**Twins notes: Carlos Correa ready for spring training, Griffin Jax staying in bullpen**\
-`Correa declared himself ready to go and commented on the team's lack of offseason additions. Plus notes on Joe Ryan's progress and more.`\
-https://nytimes.com/athletic/6088297/2025/01/26/twins-carlos-correa-injury-update/
 
