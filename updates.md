@@ -1,3 +1,7 @@
+**The week Leicester showed character: Standards, keeping it simple and five minutes of magic**\
+`Leicester fans still want accountability off the field, but for one week at least they can see fight from their team and a window of hope.`\
+https://nytimes.com/athletic/6089346/2025/01/26/leicester-van-nistelrooy-tottenham/
+
 **Trump Administration Begins Immigration Arrests in Chicago**\
 `Emil Bove, the acting deputy attorney general, went to Chicago to observe as a host of agencies launched the operation as part of the Trump administration’s stepped-up deportation efforts.`\
 https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
