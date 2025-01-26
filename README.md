@@ -1,3 +1,7 @@
+**Corrections: Jan. 26, 2025**\
+`Corrections that appeared in print on Sunday, Jan. 26, 2025.`\
+https://nytimes.com/2025/01/25/pageoneplus/corrections-jan-26-2025.html
+
 **Los Angeles Faces Risk of Mudslides With the Arrival of Rain**\
 `The wet weather will bring relief to Southern California after a prolonged period of dryness, but there’s concern that any bursts of heavy rainfall could cause flooding.`\
 https://nytimes.com/2025/01/25/us/los-angeles-fires-rain-risk-mudslides.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6088341/2025/01/25/vanderbilt-kentucky-texas-tamu-s
 **Letter Openers**\
 `Rich Proulx presents a puzzle with pictures and sound.`\
 https://nytimes.com/2025/01/25/crosswords/daily-puzzle-2025-01-26.html
-
-**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
-`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
-`\
-https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
