@@ -1,3 +1,7 @@
+**Corrections: Jan. 26, 2025**\
+`Corrections that appeared in print on Sunday, Jan. 26, 2025.`\
+https://nytimes.com/2025/01/25/pageoneplus/corrections-jan-26-2025.html
+
 **Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
 `The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
 `\
