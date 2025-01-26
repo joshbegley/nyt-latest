@@ -1,3 +1,7 @@
+**Vance Offers Fierce Endorsement of Trump’s First Week**\
+`In his first television interview as vice president, JD Vance defended President Trump on a variety of policies, including some he had previously second-guessed.`\
+https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
+
 **Timothée Chalamet Dug Deep for Bob Dylan Songs on ‘S.N.L.’**\
 `“Outlaw Blues,” “Three Angels” and “Tomorrow Is a Long Time” were personal favorites from Dylan’s monumental catalog.`\
 https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
