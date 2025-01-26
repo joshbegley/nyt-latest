@@ -1,3 +1,7 @@
+**Colombia’s President Says He Will Not Accept U.S. Military Deportation Flights**\
+`Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and that he had already turned away U.S. military flights carrying deportees.`\
+https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.html
+
 **Carol Downer, Feminist Leader in Women’s Health, Dies at 91**\
 `She opened clinics, worked to educate women about their reproductive health, and promoted an abortion technique she felt was safe enough for laypeople.`\
 https://nytimes.com/2025/01/26/health/carol-downer-dead.html
