@@ -1,3 +1,7 @@
+**Canadiens are not good enough, and the best part is they know it**\
+`The Canadiens might be collecting points, but they know their game has dipped and they're not happy, which is the most important thing.`\
+https://nytimes.com/athletic/6088728/2025/01/26/canadiens-lose-overtime-to-devils/
+
 **How Quinn Hughes, Kevin Lankinen carried the Canucks (again): 3 takeaways**\
 `It was, nonetheless, a much-needed 2-1 victory for Vancouver over a very good Washington Capitals side.`\
 https://nytimes.com/athletic/6088648/2025/01/26/canucks-win-capitals-quinn-hughes-kevin-lankinen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6085907/2025/01/26/most-boring-football-team/
 **Leila Pereira interview: The Palmeiras president on Endrick, Estevao and blazing a trail for women**\
 `The Brazilian has become one of the most important figures in South American and world football`\
 https://nytimes.com/athletic/6086259/2025/01/26/palmeiras-president-endrick-estevao-reis/
-
-**Gumshields to headbands: What accessories can players wear in the Premier League?**\
-`From snoods to headbands and gumshields, the accessories players are allowed and want to wear on the pitch has changed over the years`\
-https://nytimes.com/athletic/6058414/2025/01/26/premier-league-accessories-rules/
 

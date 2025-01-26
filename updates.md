@@ -1,3 +1,7 @@
+**Canadiens are not good enough, and the best part is they know it**\
+`The Canadiens might be collecting points, but they know their game has dipped and they're not happy, which is the most important thing.`\
+https://nytimes.com/athletic/6088728/2025/01/26/canadiens-lose-overtime-to-devils/
+
 **How Quinn Hughes, Kevin Lankinen carried the Canucks (again): 3 takeaways**\
 `It was, nonetheless, a much-needed 2-1 victory for Vancouver over a very good Washington Capitals side.`\
 https://nytimes.com/athletic/6088648/2025/01/26/canucks-win-capitals-quinn-hughes-kevin-lankinen/
