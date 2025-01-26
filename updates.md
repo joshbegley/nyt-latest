@@ -1,3 +1,11 @@
+**Explaining Myles Lewis-Skelly's shock red card - and how Arsenal recovered from it**\
+`Exploring why Lewis-Skelly was sent off against Wolves, whether it was the right decision, what happens next and how Arsenal responded`\
+https://nytimes.com/athletic/6087575/2025/01/26/lewis-skelly-red-card-why/
+
+**Why Pep Guardiola had Manchester City play like a long-ball team against Chelsea**\
+`Guardiola has spent his entire Manchester City career urging the team to slow their play, now he's telling them to go direct. Why? `\
+https://nytimes.com/athletic/6088148/2025/01/26/pep-guardiola-manchester-city-long-ball/
+
 **The Premier League's financial rules are working - just not in the way you might think**\
 `One of the unexpected effects of PSR is that there has been a change to the transfers ecosystem. Plenty of English clubs are benefitting`\
 https://nytimes.com/athletic/6083459/2025/01/26/premier-league-psr-financial-rules/
