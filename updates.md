@@ -1,3 +1,7 @@
+**Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
+`Philly's stars combined for six rushing touchdowns and the Eagles forced four turnovers Sunday, ending Washington's dream run.`\
+https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
+
 **Seahawks hire Klint Kubiak as offensive coordinator**\
 `Kubiak, who turns 38 next month, is the son of former NFL head coach Gary Kubiak.`\
 https://nytimes.com/athletic/6079420/2025/01/26/seahawks-offensive-coordinator-klint-kubiak-saints/
