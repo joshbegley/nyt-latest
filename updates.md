@@ -1,3 +1,7 @@
+**Trump Administration Begins Immigration Arrests in Chicago**\
+`Emil Bove, the acting deputy attorney general, went to Chicago to observe as a host of agencies launched the operation as part of the Trump administration’s stepped-up deportation efforts.`\
+https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
+
 **Colombia’s President Says He Will Not Accept U.S. Military Deportation Flights**\
 `Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and that he had already turned away U.S. military flights carrying deportees.`\
 https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.html
