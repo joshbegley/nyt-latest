@@ -1,3 +1,8 @@
+**Yohe's 10 observations: Evgeni Malkin injured as Penguins crumble once again**\
+`The Penguins forward left Saturday's game against the Kraken with a lower-body injury after colliding with Chandler Stephenson.
+`\
+https://nytimes.com/athletic/6086974/2025/01/25/penguins-evgeni-malkin-injury/
+
 **Harris English wins Farmers Insurance Open for fifth PGA Tour victory**\
 `Playing in windy conditions at Torrey Pines this week, English battled with Andrew Novak and Sam Stevens atop the leaderboard.`\
 https://nytimes.com/athletic/6088494/2025/01/25/harris-english-farmers-open-pga-tour/
@@ -34,8 +39,4 @@ https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 **Fernandes says Amorim's criticisms fired him up**\
 `Manchester United captain Bruno Fernandes has defended Ruben Amorim’s criticisms of the team and says the head coach’s comments fired him up.`\
 https://nytimes.com/athletic/6088005/2025/01/25/bruno-fernandes-man-utd-amorim/
-
-**As Hamas Exchanges Gaza Hostages, It Puts on a Show of Force**\
-`The handover of four female Israeli soldiers by Hamas on Saturday came as Israel released 200 prisoners. But a dispute arose over the hostage release timetable.`\
-https://nytimes.com/2025/01/25/world/middleeast/israel-gaza-hostage-prisoner-swap.html
 
