@@ -1,3 +1,7 @@
+**Israel’s continued presence in Lebanon poses a critical test for Lebanese leaders.**\
+`By Christina Goldbaum`\
+https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/israels-continued-presence-in-lebanon-poses-a-critical-test-for-lebanese-leaders
+
 **The deadline for the withdrawal of Israeli troops in Lebanon comes at a precarious time for Hezbollah.**\
 `By Christina Goldbaum`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/the-deadline-for-the-withdrawal-of-israeli-troops-in-lebanon-comes-at-a-precarious-time-for-hezbollah
