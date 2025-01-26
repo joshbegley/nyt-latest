@@ -6,7 +6,7 @@ https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.
 `Sources briefed on the matter have confirmed Chelsea will pay $1.1m to acquire Girma from the San Diego Wave.`\
 https://nytimes.com/athletic/6080652/2025/01/26/naomi-girma-chelsea-uswnt-record/
 
-**The numbers that show Virgil van Dijk is playing as well as ever - 300 games into his Liverpool career**\
+**The numbers show Van Dijk is playing as well as ever - 300 games into his Liverpool career**\
 `The 4-1 win against Ipswich was a milestone fixture for Van Dijk, whose form makes waving goodbye in May unthinkable`\
 https://nytimes.com/athletic/6088047/2025/01/26/van-dijk-300-games-liverpool-leadership/
 
