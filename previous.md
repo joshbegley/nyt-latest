@@ -1,3 +1,11 @@
+**Game, Set, Match: Jannik Sinner beats Alexander Zverev for second Australian Open title**\
+`The world No. 1 has his third Grand Slam title and a second in a row in Australia.`\
+https://nytimes.com/athletic/6087427/2025/01/26/jannik-sinner-australian-open-final-result-analysis-zverev/
+
+**Buendia agrees to extend Villa contract until 2027**\
+`Aston Villa have reached an agreement with Emiliano Buendia over a one-year contract extension.`\
+https://nytimes.com/athletic/6088922/2025/01/26/emi-buendia-contract-aston-villa/
+
 **NFL title games top storylines: Can Josh Allen beat Chiefs? Will Jayden Daniels make history?**\
 `The NFL's final four teams compete Sunday for a spot in Super Bowl LIX in New Orleans. Here's what to know about both games.`\
 https://nytimes.com/athletic/6084192/2025/01/26/afc-nfc-championship-games-storylines/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/opinion/anne-frank-today.html
 **The Connections Companion No. 596**\
 `Scroll down for hints and conversation about the puzzle for Monday, Jan. 27, 2025.`\
 https://nytimes.com/2025/01/26/crosswords/connections-companion-596.html
-
-**Our Kids Cannot Learn About Sex Just From Squeamish Gym Teachers**\
-`American students are not getting adequate sex ed, just when they need it most.`\
-https://nytimes.com/2025/01/26/opinion/sex-education-consent-middle-school.html
-
-**Wordle Review No. 1,318**\
-`Scroll down for hints and conversation about the puzzle for Monday, Jan. 27, 2025.`\
-https://nytimes.com/2025/01/26/crosswords/wordle-review-1318.html
 
