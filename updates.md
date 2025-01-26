@@ -1,3 +1,7 @@
+**Belarus’s Strong-Arm Leader, Aleksandr Lukashenko, Cruises to Re-election**\
+`Europe’s longest-serving leader won re-election in a contest widely believe to have been rigged. The result cements the power of a leader whose country is considered Russia’s staunchest ally.`\
+https://nytimes.com/2025/01/26/world/europe/belarus-lukashenko-re-election.html
+
 **Penn State expected to hire former Ohio State DC Jim Knowles**\
 `Knowles fills the void on Penn State’s staff left by Tom Allen, who accepted the same position with Clemson earlier this month.`\
 https://nytimes.com/athletic/6089544/2025/01/26/penn-state-jim-knowles-defensive-coordinator-ohio-state-hire/
