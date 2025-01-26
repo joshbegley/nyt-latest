@@ -1,3 +1,7 @@
+**Why the Blackhawks could be major players for Mikko Rantanen, others this NHL offseason**\
+`The Blackhawks could expedite their painstaking rebuilding process and be significant players in free agency this summer.`\
+https://nytimes.com/athletic/6089407/2025/01/26/blackhawks-mikko-rantanen-nhl-free-agency/
+
 **Who is Arbel Yehud, the Israeli hostage at the center of the dispute?**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/who-is-arbel-yehud-the-israeli-hostage-at-the-center-of-the-dispute
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/politics/fbi-hiring-freeze-trump.html
 **Italy Begins Shipping Migrants to Albania, Reviving Stalled Program**\
 `Prime Minister Giorgia Meloni’s first attempt to have asylum seekers held for assessment overseas was immediately blocked by judges. Now another is underway.`\
 https://nytimes.com/2025/01/26/world/europe/italy-migrants-albania.html
-
-**Trump Alarms Denmark in an Icy Exchange Over Greenland**\
-`President Trump told Denmark’s leader he wanted to take over Greenland, European officials say. Denmark has asked its E.U. allies not to inflame the situation until Mr. Trump’s intentions are clearer.`\
-https://nytimes.com/2025/01/26/world/europe/trump-greenland-denmark.html
 
