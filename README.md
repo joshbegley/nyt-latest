@@ -1,3 +1,11 @@
+**How Kobe Bryant helped grow women's hoops: 'His fingerprints are all over our game today'**\
+`Kobe's value to female players and their game is unquestioned. Though he’s gone, they still feel it.`\
+https://nytimes.com/athletic/6088118/2025/01/26/how-kobe-bryant-helped-grow-womens-hoops-his-fingerprints-are-all-over-our-game-today/
+
+**Israel Blocks Gazans From North, Accusing Hamas of Cease-Fire Breach**\
+`Some troops had been expected to withdraw to allow hundreds of thousands of displaced Gazans to go home. But the military said the hostage exchange before that step had not gone as agreed.`\
+https://nytimes.com/2025/01/26/world/middleeast/israel-gaza-cease-fire.html
+
 **Man Utd get UK government support for Old Trafford regeneration project**\
 `Manchester United have received a major boost in plans for the redevelopment of Old Trafford with UK Chancellor Rachel Reeves throwing her support behind the project.`\
 https://nytimes.com/athletic/6088894/2025/01/26/manchester-united-old-trafford-government/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/movies/los-angeles-wildfires-hollywood-production
 **A Storm, a Spill and a Disaster for the Black Sea’s Beaches**\
 `Vast stretches of Russian coast have been tarred by heavy fuel oil from two freighters that foundered in a storm.`\
 https://nytimes.com/2025/01/26/world/europe/russia-oil-spill-black-sea.html
-
-**Kobe Bryant Still Reigns Over Los Angeles on Hundreds of Murals**\
-`“There’s always a few athletes that cross over into almost superhero world,” said an artist whose mural became a site of mourning when the N.B.A. star died in a helicopter crash.`\
-https://nytimes.com/2025/01/26/arts/design/kobe-bryant-murals-los-angeles.html
-
-**How Redistricting Helped Republicans Win the House**\
-`A New York Times analysis shows new maps stifled partisan competition for seats in the House of Representatives and state legislatures.`\
-https://nytimes.com/2025/01/26/us/politics/2024-elections-congress-state-redistricting.html
 
