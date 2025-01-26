@@ -1,3 +1,7 @@
+**Jiri Kulich's emergence, other takeaways from Sabres' lousy trip out West**\
+`Kulich is emerging as a top-of-the-lineup player, plus is Sabres coach Lindy Ruff out of buttons to push?`\
+https://nytimes.com/athletic/6088545/2025/01/25/sabres-jiri-kulich-oilers-flames-canucks-kraken/
+
 **'Welcome to the club': Brooklyn Nets retire high-flying Hall of Famer Vince Carter's number**\
 `Carter's number 15 was raised to the rafters Saturday with legends Buck Williams and Julius Erving in attendance.`\
 https://nytimes.com/athletic/6088530/2025/01/25/brooklyn-nets-vince-carter-number-retired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088413/2025/01/25/will-borgen-rangers-extend-contr
 **Blue Jackets' Sean Monahan expected to be out until March after injury setback**\
 `Doctors have projected a longer recovery timeline than expected for the 30-year-old, who injured his right wrist on Jan. 7.`\
 https://nytimes.com/athletic/6088411/2025/01/25/monahan-blue-jackets-injury/
-
-**Bills OC Joe Brady pulls out of Saints' HC search, will stay with Buffalo**\
-`Brady's decision is a boon for the Bills, who posted a 13-4 record this season and won their fifth straight AFC East title.`\
-https://nytimes.com/athletic/6088401/2025/01/25/joe-brady-bills-offensive-coordinator-saints-coach-search/
 
