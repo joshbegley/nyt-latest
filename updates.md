@@ -1,3 +1,7 @@
+**Brian Schottenheimer and the Cowboys: 5 priorities as he begins big new role**\
+`Filling out his staff and figuring out how the offense is going to run are top-of-the-list items for Brian Schottenheimer.`\
+https://nytimes.com/athletic/6088858/2025/01/26/cowboys-brian-schottenheimer-to-do-list-dak-prescott/
+
 **In NBA Finals rematch, Mavericks get even further from where they need to be**\
 `As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month, minus Luka Dončić.`\
 https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
