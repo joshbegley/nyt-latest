@@ -1,3 +1,7 @@
+**Belarus’s Strong-Arm Leader, Aleksandr Lukashenko, Cruises to Re-Election**\
+`Europe’s longest-serving leader won re-election in a contest widely believe to have been rigged. The result cements the power of a leader whose country is considered Russia’s staunchest ally.`\
+https://nytimes.com/2025/01/26/world/europe/belarus-lukashenko-re-election.html
+
 **Charges Dropped Against Doctor Who Leaked About Minors’ Transgender Care**\
 `The decision by federal prosecutors came at a time when President Trump was rolling back protections for transgender people.`\
 https://nytimes.com/2025/01/26/us/trump-transgender-texas-doctor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088982/2025/01/26/blue-jackets-zach-werenski-nhl-s
 **Trump Administration Begins Immigration Arrests in Chicago**\
 `Emil Bove, the acting deputy attorney general, went to Chicago to observe as a host of agencies launched the operation as part of the Trump administration’s stepped-up deportation efforts.`\
 https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
-
-**Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
-`Ange Postecoglou says Pape Matar Sarr “shouldn’t have played” in Tottenham Hotspur’s 2-1 home defeat by Leicester City.`\
-https://nytimes.com/athletic/6089376/2025/01/26/tottenham-pape-sarr-injury-postecoglou/
 

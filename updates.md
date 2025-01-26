@@ -1,3 +1,7 @@
+**Belarus’s Strong-Arm Leader, Aleksandr Lukashenko, Cruises to Re-Election**\
+`Europe’s longest-serving leader won re-election in a contest widely believe to have been rigged. The result cements the power of a leader whose country is considered Russia’s staunchest ally.`\
+https://nytimes.com/2025/01/26/world/europe/belarus-lukashenko-re-election.html
+
 **Charges Dropped Against Doctor Who Leaked About Minors’ Transgender Care**\
 `The decision by federal prosecutors came at a time when President Trump was rolling back protections for transgender people.`\
 https://nytimes.com/2025/01/26/us/trump-transgender-texas-doctor.html
