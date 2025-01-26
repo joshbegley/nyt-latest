@@ -1,3 +1,7 @@
+**Timothée Chalamet Dug Deep for Bob Dylan Songs on ‘S.N.L.’**\
+`“Outlaw Blues,” “Three Angels” and “Tomorrow Is a Long Time” were personal favorites from Dylan’s monumental catalog.`\
+https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
+
 **The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
 `Analysis of Manchester United's Premier League game away to Fulham`\
 https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089407/2025/01/26/blackhawks-mikko-rantanen-nhl-fr
 **Who is Arbel Yehud, the Israeli hostage at the center of the dispute?**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/who-is-arbel-yehud-the-israeli-hostage-at-the-center-of-the-dispute
-
-**Lindsey Graham Says Trump Was Wrong to Pardon Violent Jan. 6 Rioters**\
-`The South Carolina Republican told CNN that he “did not like” how Trump pardoned people who “beat up cops,” and suggested he would be open to curtailing the presidential pardon power.`\
-https://nytimes.com/2025/01/26/us/politics/trump-pardons-jan-6-lindsey-graham.html
 
