@@ -1,3 +1,11 @@
+**Explaining Myles Lewis-Skelly's shock red card - and how Arsenal recovered from it**\
+`Exploring why Lewis-Skelly was sent off against Wolves, whether it was the right decision, what happens next and how Arsenal responded`\
+https://nytimes.com/athletic/6087575/2025/01/26/lewis-skelly-red-card-why/
+
+**Why Pep Guardiola had Manchester City play like a long-ball team against Chelsea**\
+`Guardiola has spent his entire Manchester City career urging the team to slow their play, now he's telling them to go direct. Why? `\
+https://nytimes.com/athletic/6088148/2025/01/26/pep-guardiola-manchester-city-long-ball/
+
 **The Premier League's financial rules are working - just not in the way you might think**\
 `One of the unexpected effects of PSR is that there has been a change to the transfers ecosystem. Plenty of English clubs are benefitting`\
 https://nytimes.com/athletic/6083459/2025/01/26/premier-league-psr-financial-rules/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/pageoneplus/quote-of-the-day-guns-and-bandits-mak
 **New Leaders in Lebanon Face Test as Israel Is Poised to Keep Troops There**\
 `Any prolonged Israeli occupation of southern Lebanon could breathe new life into Hezbollah, challenging the political momentum of Lebanon’s new president and prime minister.`\
 https://nytimes.com/2025/01/26/world/middleeast/lebanon-israel-hezbollah.html
-
-**Fulham vs Manchester United: United look to continue success away from home**\
-`Manchester United are still struggling to get into the top half of the Premier League table and face a Fulham side sitting in 10th.`\
-https://nytimes.com/athletic/6079158/2025/01/26/fulham-manchester-united-preview-odds-prediction/
-
-**Kirill Marchenko's 'engine' powers Blue Jackets to OT win with acrobatic goal**\
-`Marchenko's acrobatic, airborne goal off a powerful drive to the net in overtime led the Blue Jackets to a 3-2 win over the Kings.`\
-https://nytimes.com/athletic/6088584/2025/01/25/blue-jackets-kirill-marchenko-goal/
 
