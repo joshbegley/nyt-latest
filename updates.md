@@ -1,3 +1,7 @@
+**What Did the World Learn From Syria?**\
+`It is easy to look at a dark past and warn of a dark future.`\
+https://nytimes.com/2025/01/26/opinion/syria-assad.html
+
 **It's gut-check time for Wild to 'choose their hard' again: Takeaways**\
 `"We're choosing to lose," coach John Hynes said after the Wild's woes at home continued with a 5-4 loss to the Flames.`\
 https://nytimes.com/athletic/6088597/2025/01/26/wild-flames-takeaways-jakub-lauko/
