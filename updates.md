@@ -1,3 +1,11 @@
+**British Prime Minister Starmer Thanks Trump for Role in Cease-Fire Deal**\
+`The prime minister’s office said the two leaders agreed to meet soon and discussed trade, the economy and the Middle East.`\
+https://nytimes.com/2025/01/26/us/politics/trump-keir-starmer-ceasefire.html
+
+**As Thousands Try to Return Home, Mideast Cease-Fires Appear Fragile**\
+`Israeli forces killed at least 22 people and injured dozens more in southern Lebanon on Sunday, Lebanese officials said. In Gaza, Israel said Hamas had violated the terms of the truce.`\
+https://nytimes.com/2025/01/26/world/middleeast/lebanon-gaza-cease-fires.html
+
 **The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
 `Manchester United edged a tight game at Craven Cottage but Rasmus Hojlund is among their players struggling for form`\
 https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
