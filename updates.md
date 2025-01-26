@@ -1,3 +1,7 @@
+**Who is Arbel Yehud, the Israeli hostage at the center of the dispute?**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/who-is-arbel-yehud-the-israeli-hostage-at-the-center-of-the-dispute
+
 **The week Leicester showed character: Standards, keeping it simple and five minutes of magic**\
 `Leicester fans still want accountability off the field, but for one week at least, they can see fight from their team and a window of hope`\
 https://nytimes.com/athletic/6089346/2025/01/26/leicester-van-nistelrooy-tottenham/
