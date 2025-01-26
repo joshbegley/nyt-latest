@@ -1,3 +1,7 @@
+**'Welcome to the club': Brooklyn Nets retire high-flying Hall of Famer Vince Carter's number**\
+`Carter's number 15 was raised to the rafters Saturday with legends Buck Williams and Julius Erving in attendance.`\
+https://nytimes.com/athletic/6088530/2025/01/25/brooklyn-nets-vince-carter-number-retired/
+
 **‘Here to Say Thank You’: Trump Takes Victory Lap in Las Vegas**\
 `The president reiterated a pledge to end taxes on tips, but the message was an afterthought as the president celebrated his blitz of orders in his first week in office.`\
 https://nytimes.com/2025/01/25/us/politics/trump-rally-vegas-tips-taxes.html

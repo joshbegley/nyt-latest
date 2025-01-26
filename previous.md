@@ -1,3 +1,7 @@
+**'Welcome to the club': Brooklyn Nets retire high-flying Hall of Famer Vince Carter's number**\
+`Carter's number 15 was raised to the rafters Saturday with legends Buck Williams and Julius Erving in attendance.`\
+https://nytimes.com/athletic/6088530/2025/01/25/brooklyn-nets-vince-carter-number-retired/
+
 **‘Here to Say Thank You’: Trump Takes Victory Lap in Las Vegas**\
 `The president reiterated a pledge to end taxes on tips, but the message was an afterthought as the president celebrated his blitz of orders in his first week in office.`\
 https://nytimes.com/2025/01/25/us/politics/trump-rally-vegas-tips-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088411/2025/01/25/monahan-blue-jackets-injury/
 **Bills OC Joe Brady pulls out of Saints' HC search, will stay with Buffalo**\
 `Brady's decision is a boon for the Bills, who posted a 13-4 record this season and won their fifth straight AFC East title.`\
 https://nytimes.com/athletic/6088401/2025/01/25/joe-brady-bills-offensive-coordinator-saints-coach-search/
-
-**Why Morgan Geekie is the model of a retool target**\
-`Young, inexpensive and room to grow: Geekie has become the type of presence the Bruins would love to acquire before the trade deadline.`\
-https://nytimes.com/athletic/6088256/2025/01/25/bruins-morgan-geekie-retool/
 
