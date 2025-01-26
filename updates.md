@@ -1,3 +1,7 @@
+**President Trump’s Aggressive Week**\
+`He is already challenging the expectations of what a president can and should do.`\
+https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.html
+
 **Chelsea complete signing of USWNT's Girma for record fee**\
 `Sources briefed on the matter have confirmed Chelsea will pay $1.1m to acquire Girma from the San Diego Wave.`\
 https://nytimes.com/athletic/6080652/2025/01/26/naomi-girma-chelsea-uswnt-record/

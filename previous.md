@@ -1,3 +1,7 @@
+**President Trump’s Aggressive Week**\
+`He is already challenging the expectations of what a president can and should do.`\
+https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.html
+
 **Chelsea complete signing of USWNT's Girma for record fee**\
 `Sources briefed on the matter have confirmed Chelsea will pay $1.1m to acquire Girma from the San Diego Wave.`\
 https://nytimes.com/athletic/6080652/2025/01/26/naomi-girma-chelsea-uswnt-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084192/2025/01/26/afc-nfc-championship-games-story
 **Attention Is the Fuel of American Politics, and Trump Knows It**\
 `Money is no longer the main driver of American politics, if it ever was.`\
 https://nytimes.com/2025/01/26/opinion/trump-musk-zuckerberg-attention.html
-
-**Five years after Kobe Bryant's death, reminders remain everywhere in Los Angeles**\
-`The impact of Bryant’s career, and the ‘Mamba Mentality,’ carry on in the kind of way that almost makes you forget that he’s gone.`\
-https://nytimes.com/athletic/6087423/2025/01/26/kobe-bryant-death-five-years-nba-lakers/
 
