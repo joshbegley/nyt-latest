@@ -1,3 +1,7 @@
+**In Ashes of Eaton Fire, New Questions for the Power Company**\
+`Investigators are still trying to determine what started a fire that raged through Altadena, Calif. A new video appears to show sparking on a power line near the origin of the blaze.`\
+https://nytimes.com/2025/01/26/us/los-angeles-eaton-fire-cause.html
+
 **Little things add up to a lot as Bucks drop first game of road trip to Clippers**\
 `Late turnovers and poor perimeter defense were the culprits for Milwaukee on Saturday night at Intuit Dome.`\
 https://nytimes.com/athletic/6088791/2025/01/26/bucks-clippers-giannis-damian-lillard/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/opinion/heirloom-china.html
 **‘S.N.L.’: Call the Musical Guest by the Guest Host’s Name**\
 `Timothée Chalamet, star of “A Complete Unknown,” doubled up this week, and, in a cameo, Lin-Manuel Miranda rapped about freedom from royal tyranny.`\
 https://nytimes.com/2025/01/26/arts/television/snl-chalamet-miranda-trump.html
-
-**Brian Schottenheimer and the Cowboys: 5 priorities as he begins big new role**\
-`Filling out his staff and figuring out how the offense is going to run are top-of-the-list items for Brian Schottenheimer.`\
-https://nytimes.com/athletic/6088858/2025/01/26/cowboys-brian-schottenheimer-to-do-list-dak-prescott/
 
