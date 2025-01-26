@@ -1,3 +1,7 @@
+**Why the Blackhawks could be major players for Mikko Rantanen, others this NHL offseason**\
+`The Blackhawks could expedite their painstaking rebuilding process and be significant players in free agency this summer.`\
+https://nytimes.com/athletic/6089407/2025/01/26/blackhawks-mikko-rantanen-nhl-free-agency/
+
 **Who is Arbel Yehud, the Israeli hostage at the center of the dispute?**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/who-is-arbel-yehud-the-israeli-hostage-at-the-center-of-the-dispute
