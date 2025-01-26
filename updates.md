@@ -1,3 +1,7 @@
+**‘S.N.L.’: Call the Musical Guest by the Guest Host’s Name**\
+`Timothée Chalamet, star of “A Complete Unknown,” doubled up this week, and, in a cameo, Lin-Manuel Miranda rapped about freedom from royal tyranny.`\
+https://nytimes.com/2025/01/26/arts/television/snl-chalamet-miranda-trump.html
+
 **Here’s the latest.**\
 `By Isabel Kershner, Christina Goldbaum and Euan Ward`\
 https://nytimes.com/2025/01/26/world/middleeast/heres-the-latest.html
