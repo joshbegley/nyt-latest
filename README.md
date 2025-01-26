@@ -1,3 +1,7 @@
+**The deadline for the withdrawal of Israeli troops in Lebanon comes at a precarious time for Hezbollah.**\
+`By Christina Goldbaum`\
+https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/the-deadline-for-the-withdrawal-of-israeli-troops-in-lebanon-comes-at-a-precarious-time-for-hezbollah
+
 **The Pulse: A stunning American breakthrough**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6089141/2025/01/26/madison-keys-australian-open-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/world/middleeast/trump-gaza-jordan-egypt.html
 **‘Googly Eye Bandit’ in Oregon Comes Forward**\
 `Jeff Keith, who runs a nonprofit, claimed he was behind some of the googly eyes that mysteriously appeared on public art in Bend, Ore.`\
 https://nytimes.com/2025/01/26/us/googly-eyes-sculptures-oregon.html
-
-**A Family’s Heirloom China: The Echoes of History**\
-`Responses to a “sad but lovely tale of doomed heirloom dishes.” Also: Protecting federal workers from President Trump. Also: An “interabled” couple.`\
-https://nytimes.com/2025/01/26/opinion/heirloom-china.html
 
