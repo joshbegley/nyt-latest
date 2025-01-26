@@ -1,3 +1,15 @@
+**The numbers that show Virgil van Dijk is playing as well as ever - 300 games into his Liverpool career**\
+`The 4-1 win against Ipswich was a milestone fixture for Van Dijk, whose form makes waving goodbye in May unthinkable`\
+https://nytimes.com/athletic/6088047/2025/01/26/van-dijk-300-games-liverpool-leadership/
+
+**Lowetide: 4 AHL trade targets who could help the Oilers**\
+`In the pursuit of smaller, measured deals, these players could help the Oilers organization now and into the future.`\
+https://nytimes.com/athletic/6087822/2025/01/26/edmonton-oilers-trade-targets-ahl-2025/
+
+**Twins notes: Carlos Correa ready for spring training, Griffin Jax staying in bullpen**\
+`Correa declared himself ready to go and commented on the team's lack of offseason additions. Plus notes on Joe Ryan's progress and more.`\
+https://nytimes.com/athletic/6088297/2025/01/26/twins-carlos-correa-injury-update/
+
 **Lindsey Vonn takes 13th in World Cup Super-G day after skiing out of downhill**\
 `Lindsey Vonn bounced back with a 13th-place finish in the Super-G a day after skiing out of the downhill in Germany.`\
 https://nytimes.com/athletic/6086300/2025/01/26/lindsey-vonn-skis-out-downhill-world-cup-olympics-germany/
