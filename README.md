@@ -1,3 +1,7 @@
+**Snowy Getaway**\
+`Don’t turn a blind eye to Alexander Liebeskind’s crossword.`\
+https://nytimes.com/2025/01/26/crosswords/daily-puzzle-2025-01-27.html
+
 **Eagles' Cam Jurgens replaces Landon Dickerson at center**\
 `Jurgens, initially downgraded from his starting spot with a back injury, replaced Dickerson after the latter suffered a knee injury.`\
 https://nytimes.com/athletic/6089838/2025/01/26/eagles-center-cam-jurgens-landon-dickerson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
 **The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
 `Manchester United edged a tight game at Craven Cottage but Rasmus Hojlund is among their players struggling for form`\
 https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
-
-**Monday Briefing: Fragile Israeli Cease-Fires**\
-`Plus, solving an art fraud scheme.`\
-https://nytimes.com/2025/01/26/briefing/israel-lebanon-gaza-cease-fires-yoon-indicted-colombia-deportation-flights.html
 
