@@ -1,3 +1,7 @@
+**The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
+`Manchester United edged a tight game at Craven Cottage but Rasmus Hojlund is among their players struggling for form`\
+https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
+
 **Vance Offers Fierce Endorsement of Trump’s First Week**\
 `In his first television interview as vice president, JD Vance defended President Trump on a variety of policies, including some he had previously second-guessed.`\
 https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
