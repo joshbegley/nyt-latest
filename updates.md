@@ -1,3 +1,11 @@
+**Fine Jewelry Designs Exhibit an Urban Flair**\
+`Motifs inspired by city architecture are highlighted in collections from brands such as Chopard, Louis Vuitton, Dior and Jessica McCormack.`\
+https://nytimes.com/2025/01/26/fashion/jewelry-architectural-design.html
+
+**Charles Woodson maintains a Hall of Famer's commitment with off-the-field activities**\
+`From his television work to volunteer coaching and everything in between, Woodson maintains a respected voice among his peers.`\
+https://nytimes.com/athletic/6082464/2025/01/26/charles-woodson-nfl-fox-raiders-packers/
+
 **Houston coach Kelvin Sampson gets his win in Cougars-Jayhawks thriller**\
 `Hard work pays off for Houston sixth-years Mylik Wilson and J'Wan Roberts in victory in Kansas. `\
 https://nytimes.com/athletic/6088719/2025/01/26/houston-kansas-thriller-mylik-wilson-jwan-roberts/
