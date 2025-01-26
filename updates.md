@@ -1,3 +1,7 @@
+**Jalen Hurts sets rushing TD mark for quarterbacks in playoffs**\
+`The Eagles quarterback is one of two QBs to run for three touchdowns in a playoff game. `\
+https://nytimes.com/athletic/6089864/2025/01/26/jalen-hurts-josh-allen-nfl-playoffs-rushing-touchdown-record/
+
 **Some Protestants Felt Invisible. Then Came Bishop Budde.**\
 `The bishop asked President Trump publicly to “have mercy,” electrifying some liberal churchgoers in an era dominated by conservative versions of Christianity.`\
 https://nytimes.com/2025/01/26/us/bishop-mariann-budde-trump-christian.html

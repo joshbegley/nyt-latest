@@ -1,3 +1,7 @@
+**Jalen Hurts sets rushing TD mark for quarterbacks in playoffs**\
+`The Eagles quarterback is one of two QBs to run for three touchdowns in a playoff game. `\
+https://nytimes.com/athletic/6089864/2025/01/26/jalen-hurts-josh-allen-nfl-playoffs-rushing-touchdown-record/
+
 **Some Protestants Felt Invisible. Then Came Bishop Budde.**\
 `The bishop asked President Trump publicly to “have mercy,” electrifying some liberal churchgoers in an era dominated by conservative versions of Christianity.`\
 https://nytimes.com/2025/01/26/us/bishop-mariann-budde-trump-christian.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/world/middleeast/lebanon-gaza-cease-fires.html
 **Vance Offers Fierce Endorsement of Trump’s First Week**\
 `In his first television interview as vice president, JD Vance defended President Trump on a variety of policies, including some he had previously second-guessed.`\
 https://nytimes.com/2025/01/26/us/politics/jd-vance-interview-trump.html
-
-**Timothée Chalamet Dug Deep for Bob Dylan Songs on ‘S.N.L.’**\
-`“Outlaw Blues,” “Three Angels” and “Tomorrow Is a Long Time” were personal favorites from Dylan’s monumental catalog.`\
-https://nytimes.com/2025/01/26/arts/music/timothee-chalamet-bob-dylan-snl.html
 
