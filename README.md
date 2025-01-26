@@ -1,3 +1,7 @@
+**The week Leicester showed character: Standards, keeping it simple and five minutes of magic**\
+`Leicester fans still want accountability off the field, but for one week at least they can see fight from their team and a window of hope.`\
+https://nytimes.com/athletic/6089346/2025/01/26/leicester-van-nistelrooy-tottenham/
+
 **Carol Downer, Feminist Leader in Women’s Health, Dies at 91**\
 `She opened clinics, worked to educate women about their reproductive health, and promoted an abortion technique she felt was safe enough for laypeople.`\
 https://nytimes.com/2025/01/26/health/carol-downer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.ht
 **Outside one village along Lebanon’s southern border, hundreds wait anxiously to return home.**\
 `By Christina Goldbaum, Hwaida Saad and Euan Ward`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/outside-one-village-along-lebanons-southern-border-hundreds-wait-anxiously-to-return-home
-
-**Does the Mikko Rantanen trade signal a transition for the Avalanche? One-on-one with GM Chris MacFarland**\
-`Despite trading one of the NHL's scoring leaders and a franchise stalwart, MacFarland says the Avalanche are still "all-in."`\
-https://nytimes.com/athletic/6089182/2025/01/26/chris-macfarland-avalanche-mikko-rantanen-trade/
 
