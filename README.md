@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/26/health/carol-downer-dead.html
 https://nytimes.com/athletic/6088982/2025/01/26/blue-jackets-zach-werenski-nhl-season/
 
 **Senior Justice Department Official in Chicago to Oversee Immigration Crackdown**\
-`Emil Bove, the active attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
+`Emil Bove, the acting deputy attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
 https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
 
 **Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
