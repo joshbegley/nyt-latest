@@ -1,3 +1,7 @@
+**Southern California Rainstorms Raise Risks of Mudslides**\
+`The charred soil left by the wildfires could create conditions ripe for mudslides because the rain, which will last into Monday, will just run off, forecasters said.`\
+https://nytimes.com/2025/01/26/us/california-fires-rain-mudslides.html
+
 **SEC fines Vanderbilt $500,000 for fans storming court vs. Kentucky**\
 `It’s Vanderbilt’s third offense under the SEC’s revised court-storming policy, which was updated in 2023.`\
 https://nytimes.com/athletic/6089880/2025/01/26/vanderbilt-fined-sec-court-storming/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/crosswords/daily-puzzle-2025-01-27.html
 **Eagles' Cam Jurgens replaces Landon Dickerson at center**\
 `Jurgens, initially downgraded from his starting spot with a back injury, replaced Dickerson after the latter suffered a knee injury.`\
 https://nytimes.com/athletic/6089838/2025/01/26/eagles-center-cam-jurgens-landon-dickerson/
-
-**Amorim on Rashford return: 'If things don't change, I will not change'**\
-`Ruben Amorim has said he would rather name his 63-year-old goalkeeping coach as a substitute than pick a player who fails to give his all every day at Carrington when addressing a question about Marcus Rashford’s reintegration.`\
-https://nytimes.com/athletic/6089823/2025/01/26/man-united-rashford-amorim-return-transfer-update/
 
