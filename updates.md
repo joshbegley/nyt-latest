@@ -1,3 +1,7 @@
+**Little things add up to a lot as Bucks drop first game of road trip to Clippers**\
+`Late turnovers and poor perimeter defense were the culprits for Milwaukee on Saturday night at Intuit Dome.`\
+https://nytimes.com/athletic/6088791/2025/01/26/bucks-clippers-giannis-damian-lillard/
+
 **Here’s the latest.**\
 `By Isabel Kershner, Christina Goldbaum and Euan Ward`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/heres-the-latest
