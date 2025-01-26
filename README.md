@@ -1,3 +1,7 @@
+**Who is Arbel Yehud, the Israeli hostage at the center of the dispute?**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/who-is-arbel-yehud-the-israeli-hostage-at-the-center-of-the-dispute
+
 **Lindsey Graham Says Trump Was Wrong to Pardon Violent Jan. 6 Rioters**\
 `The South Carolina Republican told CNN that he “did not like” how Trump pardoned people who “beat up cops,” and suggested he would be open to curtailing the presidential pardon power.`\
 https://nytimes.com/2025/01/26/us/politics/trump-pardons-jan-6-lindsey-graham.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/world/europe/italy-migrants-albania.html
 **Trump Alarms Denmark in an Icy Exchange Over Greenland**\
 `President Trump told Denmark’s leader he wanted to take over Greenland, European officials say. Denmark has asked its E.U. allies not to inflame the situation until Mr. Trump’s intentions are clearer.`\
 https://nytimes.com/2025/01/26/world/europe/trump-greenland-denmark.html
-
-**Colombia’s President Says He Will Not Accept U.S. Military Deportation Flights**\
-`Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and that he had already turned away U.S. military flights carrying deportees.`\
-https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.html
 
