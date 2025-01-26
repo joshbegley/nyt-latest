@@ -1,3 +1,11 @@
+**The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
+`Analysis of Manchester United's Premier League game away to Fulham`\
+https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
+
+**Monday Briefing: Fragile Israeli Cease-Fires**\
+`Plus, solving an art fraud scheme.`\
+https://nytimes.com/2025/01/26/briefing/israel-lebanon-gaza-cease-fires-yoon-indicted-colombia-deportation-flights.html
+
 **Penn State expected to hire former Ohio State DC Jim Knowles**\
 `Knowles fills the void on Penn State’s staff left by Tom Allen, who accepted the same position with Clemson earlier this month.`\
 https://nytimes.com/athletic/6089544/2025/01/26/penn-state-jim-knowles-defensive-coordinator-ohio-state-hire/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/who-is-arbel-
 **Lindsey Graham Says Trump Was Wrong to Pardon Violent Jan. 6 Rioters**\
 `The South Carolina Republican told CNN that he “did not like” how Trump pardoned people who “beat up cops,” and suggested he would be open to curtailing the presidential pardon power.`\
 https://nytimes.com/2025/01/26/us/politics/trump-pardons-jan-6-lindsey-graham.html
-
-**The week Leicester showed character: Standards, keeping it simple and five minutes of magic**\
-`Leicester fans still want accountability off the field, but for one week at least, they can see fight from their team and a window of hope`\
-https://nytimes.com/athletic/6089346/2025/01/26/leicester-van-nistelrooy-tottenham/
-
-**Carol Downer, Feminist Leader in Women’s Health, Dies at 91**\
-`She opened clinics, worked to educate women about their reproductive health, and promoted an abortion technique she felt was safe enough for laypeople.`\
-https://nytimes.com/2025/01/26/health/carol-downer-dead.html
 

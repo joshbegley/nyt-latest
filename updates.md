@@ -1,3 +1,11 @@
+**The Briefing: Fulham 0 Manchester United 1 - Are Martinez's goals part of Amorim's plan?**\
+`Analysis of Manchester United's Premier League game away to Fulham`\
+https://nytimes.com/athletic/6087734/2025/01/26/fulham-manchester-united-highlights/
+
+**Monday Briefing: Fragile Israeli Cease-Fires**\
+`Plus, solving an art fraud scheme.`\
+https://nytimes.com/2025/01/26/briefing/israel-lebanon-gaza-cease-fires-yoon-indicted-colombia-deportation-flights.html
+
 **Belarus’s Strong-Arm Leader, Aleksandr Lukashenko, Cruises to Re-election**\
 `Europe’s longest-serving leader won re-election in a contest widely believe to have been rigged. The result cements the power of a leader whose country is considered Russia’s staunchest ally.`\
 https://nytimes.com/2025/01/26/world/europe/belarus-lukashenko-re-election.html
