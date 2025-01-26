@@ -1,3 +1,7 @@
+**Cam Jurgens replaces starting C Landon Dickerson to start second half**\
+`Jurgens was initially downgraded from his starting spot with a back injury, replacing Dickerson after sustaining a knee injury`\
+https://nytimes.com/athletic/6089838/2025/01/26/eagles-center-cam-jurgens-landon-dickerson/
+
 **Amorim on Rashford return: 'If things don't change, I will not change'**\
 `Ruben Amorim has said he would rather name his 63-year-old goalkeeping coach as a substitute than pick a player who fails to give his all every day at Carrington when addressing a question about Marcus Rashford’s reintegration.`\
 https://nytimes.com/athletic/6089823/2025/01/26/man-united-rashford-amorim-return-transfer-update/
