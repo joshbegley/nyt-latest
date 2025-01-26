@@ -1,3 +1,11 @@
+**'I love you': Derrick White's third quarter and the words that helped spur a Celtics win**\
+`White's 16-point, highest-scoring quarter of the season aided Boston in a 122-107 road win over the Dallas Mavericks. `\
+https://nytimes.com/athletic/6088583/2025/01/25/celtics-win-mavericks-derrick-white-third-quarter/
+
+**Tim Stützle's buzz cut, Shane Pinto's defence, Anton Forsberg's goaltending: 4 takeaways**\
+`Tim Stützle and Shane Pinto powered Ottawa to a 2-1 victory over Toronto on Saturday night. `\
+https://nytimes.com/athletic/6087955/2025/01/25/senators-maple-leafs-takeaways/
+
 **Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
 `Bobby McMann — who made his debut on the top line — had the lone goal as Toronto fell short 2-1 to Ottawa.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6088439/2025/01/25/shedeur-sanders-shrine-bowl-team
 **Corrections: Jan. 26, 2025**\
 `Corrections that appeared in print on Sunday, Jan. 26, 2025.`\
 https://nytimes.com/2025/01/25/pageoneplus/corrections-jan-26-2025.html
-
-**Los Angeles Faces Risk of Mudslides With the Arrival of Rain**\
-`The wet weather will bring relief to Southern California after a prolonged period of dryness, but there’s concern that any bursts of heavy rainfall could cause flooding.`\
-https://nytimes.com/2025/01/25/us/los-angeles-fires-rain-risk-mudslides.html
-
-**Yohe's 10 observations: Evgeni Malkin injured as Penguins crumble once again**\
-`The Penguins forward left Saturday's game against the Kraken with a lower-body injury after colliding with Chandler Stephenson.`\
-https://nytimes.com/athletic/6086974/2025/01/25/penguins-evgeni-malkin-injury/
 
