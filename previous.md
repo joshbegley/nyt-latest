@@ -1,3 +1,27 @@
+**‘People Will Be Shocked’: Trump Tests the Boundaries of the Presidency**\
+`Even more than in his first term, President Trump has mounted a fundamental challenge to the norms and expectations of what a president can and should do.`\
+https://nytimes.com/2025/01/26/us/politics/trump-boundaries-presidency.html
+
+**When Is Neurodiversity an Excuse for Rudeness?**\
+`How to deal with a colleague who won’t even try to make nice.`\
+https://nytimes.com/2025/01/26/business/neurodiversity-rudeness-workplace.html
+
+**Congestion Pricing Results Are Mixed but Some Commutes Improve**\
+`Many commuters continue to oppose the new tolling program in New York City even as some drivers and bus riders are spending less time trapped in traffic.`\
+https://nytimes.com/2025/01/26/nyregion/nyc-congestion-pricing-results.html
+
+**The Secrets Under Stephen Jones’s Hat**\
+`An exhibition in Paris spotlights the witty work of one of the most innovative designers of the 20th and 21st centuries.`\
+https://nytimes.com/2025/01/26/style/stephen-jones-hats-retrospective-paris.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/26/crosswords/spelling-bee-forum.html
+
+**‘ I Heard a Man Behind Me Explaining the Work to His Group’**\
+`A lesson in art appreciation at the Met, a bathtub in the kitchen and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/01/26/nyregion/metropolitan-diary.html
+
 **Kyle Kuzma says he’s done fitting in. How does that impact the NBA trade deadline?**\
 `The Wizards' forward says he'll be more aggressive. Is that at odds with the team's plan to develop its youngsters? `\
 https://nytimes.com/athletic/6088754/2025/01/26/kyle-kuzma-wizards-nba-trade-deadline/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6088310/2025/01/26/chelsea-regression-form-premier-
 **Houston coach Kelvin Sampson gets his win in Cougars-Jayhawks thriller**\
 `Hard work pays off for Houston sixth-years Mylik Wilson and J'Wan Roberts in victory in Kansas. `\
 https://nytimes.com/athletic/6088719/2025/01/26/houston-kansas-thriller-mylik-wilson-jwan-roberts/
-
-**Monuments in Australia Are Vandalized to Protest National Day**\
-`The vandalism unfolded in Sydney, Melbourne and Canberra. Australia Day is a divisive holiday that critics see as a symbol of racism and oppression.`\
-https://nytimes.com/2025/01/26/world/australia/australia-day-statues-vandalized.html
-
-**Canadiens are not good enough, and the best part is they know it**\
-`The Canadiens might be collecting points, but they know their game has dipped and they're not happy, which is the most important thing.`\
-https://nytimes.com/athletic/6088728/2025/01/26/canadiens-lose-overtime-to-devils/
-
-**How Quinn Hughes, Kevin Lankinen carried the Canucks (again): 3 takeaways**\
-`It was, nonetheless, a much-needed 2-1 victory for Vancouver over a very good Washington Capitals side.`\
-https://nytimes.com/athletic/6088648/2025/01/26/canucks-win-capitals-quinn-hughes-kevin-lankinen/
-
-**What Did the World Learn From Syria?**\
-`It is easy to look at a dark past and warn of a dark future.`\
-https://nytimes.com/2025/01/26/opinion/syria-assad.html
-
-**It's gut-check time for Wild to 'choose their hard' again: Takeaways**\
-`"We're choosing to lose," coach John Hynes said after the Wild's woes at home continued with a 5-4 loss to the Flames.`\
-https://nytimes.com/athletic/6088597/2025/01/26/wild-flames-takeaways-jakub-lauko/
-
-**Explaining Myles Lewis-Skelly's shock red card - and how Arsenal recovered from it**\
-`Exploring why Lewis-Skelly was sent off against Wolves, whether it was the right decision, what happens next and how Arsenal responded`\
-https://nytimes.com/athletic/6087575/2025/01/26/lewis-skelly-red-card-why/
 
