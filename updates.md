@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
+`Bobby McMann — who made his debut on the top line — had the lone goal as Toronto fell short 2-1 to Ottawa.
+`\
+https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
+
 **Gumshields to headbands: What accessories can players wear in the Premier League?**\
 `From snoods to headbands and gumshields, the accessories players are allowed and want to wear on the pitch has changed over the years`\
 https://nytimes.com/athletic/6058414/2025/01/26/premier-league-accessories-rules/
