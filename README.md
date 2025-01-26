@@ -1,3 +1,7 @@
+**For Patrick Williams, is his time running out with Bulls?  'I got game'**\
+`Williams is averaging career lows in his fifth year with Chicago — somewhat unexpected after he signed a five-year, $90 million extension.`\
+https://nytimes.com/athletic/6088763/2025/01/26/patrick-williams-bulls-nba/
+
 **Israel’s continued presence in Lebanon poses a critical test for Lebanese leaders.**\
 `By Christina Goldbaum`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/israels-continued-presence-in-lebanon-poses-a-critical-test-for-lebanese-leaders
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088094/2025/01/26/rudy-gobert-timberwolves-nuggets
 **Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
 `Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
 https://nytimes.com/athletic/6073644/2025/01/26/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
-
-**Trump Pushes Jordan and Egypt to Take in Palestinians to ‘Clean Out’ Gaza**\
-`President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s. Mr. Trump’s suggestion echoes proposals from far-right Israelis. A Hamas official rejected the idea.`\
-https://nytimes.com/2025/01/26/world/middleeast/trump-gaza-jordan-egypt.html
 
