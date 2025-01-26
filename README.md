@@ -2,7 +2,7 @@
 `Before Saturday, Harden hadn't had a 40-point game since March 2021. But two factors made Saturday night impressive.`\
 https://nytimes.com/athletic/6088773/2025/01/26/james-harden-40-points-clippers-bucks-nba/
 
-**Alexander Zverev heckled in reference to domestic abuse allegations at Australian Open final**\
+**Zverev heckled in apparent reference to domestic abuse allegations at Australian Open final**\
 `Zverev's defeat by Jannik Sinner was his third loss in three Grand Slam finals.`\
 https://nytimes.com/athletic/6088956/2025/01/26/alexander-zverev-australian-open-olya-brenda/
 
