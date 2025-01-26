@@ -1,3 +1,7 @@
+**Brian Schottenheimer and the Cowboys: 5 priorities as he begins big new role**\
+`Filling out his staff and figuring out how the offense is going to run are top-of-the-list items for Brian Schottenheimer.`\
+https://nytimes.com/athletic/6088858/2025/01/26/cowboys-brian-schottenheimer-to-do-list-dak-prescott/
+
 **In NBA Finals rematch, Mavericks get even further from where they need to be**\
 `As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month, minus Luka Dončić.`\
 https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087822/2025/01/26/edmonton-oilers-trade-targets-ah
 **Twins notes: Carlos Correa ready for spring training, Griffin Jax staying in bullpen**\
 `Correa declared himself ready to go and commented on the team's lack of offseason additions. Plus notes on Joe Ryan's progress and more.`\
 https://nytimes.com/athletic/6088297/2025/01/26/twins-carlos-correa-injury-update/
-
-**Lindsey Vonn takes 13th in World Cup Super-G day after skiing out of downhill**\
-`Lindsey Vonn bounced back with a 13th-place finish in the Super-G a day after skiing out of the downhill in Germany.`\
-https://nytimes.com/athletic/6086300/2025/01/26/lindsey-vonn-skis-out-downhill-world-cup-olympics-germany/
 
