@@ -1,3 +1,7 @@
+**Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
+`Philly's stars combined for six rushing touchdowns as Eagles forced four turnovers in ending Washington's dream run.`\
+https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
+
 **SEC fines Vanderbilt $500,000 for fans storming court vs. Kentucky**\
 `It’s Vanderbilt’s third offense under the SEC’s revised court-storming policy, which was updated in 2023.`\
 https://nytimes.com/athletic/6089880/2025/01/26/vanderbilt-fined-sec-court-storming/

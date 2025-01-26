@@ -11,7 +11,7 @@ https://nytimes.com/2025/01/26/us/politics/colombia-tariffs-trump-exports.html
 https://nytimes.com/athletic/6089915/2025/01/26/eagles-commanders-rule-referees-award-score/
 
 **Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
-`Philly stars combine for six rushing touchdowns as Eagles force four turnovers in ending Washington's dream run.`\
+`Philly's stars combined for six rushing touchdowns as Eagles forced four turnovers in ending Washington's dream run.`\
 https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
 
 **A hidden threat from rain on a burn scar: poisons in the runoff.**\
