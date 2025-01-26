@@ -1,3 +1,7 @@
+**For Patrick Williams, is his time running out with Bulls?  'I got game'**\
+`Williams is averaging career lows in his fifth year with Chicago — somewhat unexpected after he signed a five-year, $90 million extension.`\
+https://nytimes.com/athletic/6088763/2025/01/26/patrick-williams-bulls-nba/
+
 **Israel’s continued presence in Lebanon poses a critical test for Lebanese leaders.**\
 `By Christina Goldbaum`\
 https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/israels-continued-presence-in-lebanon-poses-a-critical-test-for-lebanese-leaders
