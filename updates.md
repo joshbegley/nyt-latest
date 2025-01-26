@@ -1,3 +1,7 @@
+**Coffee and Flowers Could Cost Americans More in a Colombian Trade War**\
+`Colombia is a relatively minor trading partner to the United States, but some industries are much more exposed than others.`\
+https://nytimes.com/2025/01/26/us/politics/colombia-tariffs-trump-exports.html
+
 **Little-known NFL rule nearly awards Eagles free touchdown in NFC Championship**\
 `Washington nearly drew what would likely be the NFL's first implementation of the "Fouls to Prevent Score" penalty.`\
 https://nytimes.com/athletic/6089915/2025/01/26/eagles-commanders-rule-referees-award-score/
