@@ -1,3 +1,11 @@
+**Little-known NFL rule nearly awards Eagles free touchdown in NFC Championship**\
+`Washington nearly drew what would likely be the NFL's first implementation of the "Fouls to Prevent Score" penalty.`\
+https://nytimes.com/athletic/6089915/2025/01/26/eagles-commanders-rule-referees-award-score/
+
+**Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
+`Philly stars combine for six rushing touchdowns as Eagles force four turnovers in ending Washington's dream run.`\
+https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
+
 **A hidden threat from rain on a burn scar: poisons in the runoff.**\
 `By Kate Selig`\
 https://nytimes.com/live/2025/01/26/us/california-wildfires-los-angeles/a-hidden-threat-from-rain-on-a-burn-scar-poisons-in-the-runoff
