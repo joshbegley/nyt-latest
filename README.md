@@ -32,7 +32,7 @@ https://nytimes.com/2025/01/26/opinion/heirloom-china.html
 
 **‘S.N.L.’: Call the Musical Guest by the Guest Host’s Name**\
 `Timothée Chalamet, star of “A Complete Unknown,” doubled up this week, and, in a cameo, Lin-Manuel Miranda rapped about freedom from royal tyranny.`\
-https://nytimes.com/2025/01/26/arts/television/snl-call-the-musical-guest-by-the-guest-hosts-name.html
+https://nytimes.com/2025/01/26/arts/television/snl-chalamet-miranda-trump.html
 
 **Brian Schottenheimer and the Cowboys: 5 priorities as he begins big new role**\
 `Filling out his staff and figuring out how the offense is going to run are top-of-the-list items for Brian Schottenheimer.`\
