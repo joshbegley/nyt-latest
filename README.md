@@ -1,7 +1,3 @@
-**SEC fines Vanderbilt $500,000 for fans storming court vs. Kentucky**\
-`It’s Vanderbilt’s third offense under the SEC’s revised court-storming policy, which was updated in 2023.`\
-https://nytimes.com/athletic/6089880/2025/01/26/vanderbilt-fined-sec-court-storming/
-
 **Coffee and Flowers Could Cost Americans More in a Colombian Trade War**\
 `Colombia is a relatively minor trading partner to the United States, but some industries are much more exposed than others.`\
 https://nytimes.com/2025/01/26/us/politics/colombia-tariffs-trump-exports.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6089838/2025/01/26/eagles-center-cam-jurgens-landon
 **Amorim on Rashford return: 'If things don't change, I will not change'**\
 `Ruben Amorim has said he would rather name his 63-year-old goalkeeping coach as a substitute than pick a player who fails to give his all every day at Carrington when addressing a question about Marcus Rashford’s reintegration.`\
 https://nytimes.com/athletic/6089823/2025/01/26/man-united-rashford-amorim-return-transfer-update/
+
+**PGMOL 'appalled' at threats and abuse aimed at Michael Oliver after Wolves vs Arsenal**\
+`The Professional Game Match Officials Limited (PGMOL) says it is appalled at social media threats and abuse aimed at Premier League referee Michael Oliver.`\
+https://nytimes.com/athletic/6089571/2025/01/26/michael-oliver-threats-abuse-pgmol-investigation/
 
