@@ -1,3 +1,7 @@
+**Eleven Madison Park Granola, Surprisingly Easy and Very Snackable**\
+`I like it with Greek yogurt, but it’s terrific with whole milk, too, and doesn’t do poorly at all on its own, like a kind of trail mix.`\
+https://nytimes.com/2025/01/26/dining/eleven-madison-park-granola-surprisingly-easy-and-very-snackable.html
+
 **The Briefing: Spurs 1 Leicester 2 - Nightmare for Postecoglou and Levy protests in embarrassing defeat**\
 `We break down the talking points from a poor defeat for Spurs in Sunday's Premier League match at the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6087682/2025/01/26/tottenham-postecoglou-leicester-levy/
