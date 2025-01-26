@@ -1,3 +1,15 @@
+**Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
+`For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
+https://nytimes.com/athletic/6073696/2025/01/26/bills-chiefs-how-to-watch-odds-picks-betting/
+
+**Rudy Gobert shows what the Timberwolves can be when he is at his best**\
+`At 32, Gobert is amid one of his worst statistical seasons but offered his most forceful performance of the season Saturday against Denver.`\
+https://nytimes.com/athletic/6088094/2025/01/26/rudy-gobert-timberwolves-nuggets-nba/
+
+**Commanders at Eagles: How to watch, odds, expert picks with Philly as a 6-point favorite**\
+`Early favorites, the Eagles will try to keep soaring against Jayden Daniels, who's led the Commanders to their best season since 1991. `\
+https://nytimes.com/athletic/6073644/2025/01/26/commanders-eagles-how-to-watch-odds-picks-betting-playoffs/
+
 **Trump Pushes Jordan and Egypt to Take in Palestinians to ‘Clean Out’ Gaza**\
 `President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s. Mr. Trump’s suggestion echoes proposals from far-right Israelis. A Hamas official rejected the idea.`\
 https://nytimes.com/2025/01/26/world/middleeast/trump-gaza-jordan-egypt.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-m
 **Even in a 40-point game, it's the little things that stand out with James Harden**\
 `Before Saturday, Harden hadn't had a 40-point game since March 2021. But two factors made Saturday night impressive.`\
 https://nytimes.com/athletic/6088773/2025/01/26/james-harden-40-points-clippers-bucks-nba/
-
-**Zverev heckled in apparent reference to domestic abuse allegations at Australian Open final**\
-`Zverev's defeat by Jannik Sinner was his third loss in three Grand Slam finals.`\
-https://nytimes.com/athletic/6088956/2025/01/26/alexander-zverev-australian-open-olya-brenda/
-
-**Jarred Vanderbilt gives Lakers defensive versatility as they weigh options ahead of trade deadline**\
-`In his season debut, Vanderbilt shows he can ease the defensive burden on Anthony Davis, Dorian Finney-Smith, Max Christie and even LeBron.`\
-https://nytimes.com/athletic/6088859/2025/01/26/jarred-vanderbilt-lakers-season-debut-nba/
-
-**President Trump’s Aggressive Week**\
-`He is already challenging the expectations of what a president can and should do.`\
-https://nytimes.com/2025/01/26/briefing/president-donald-trump-executive-orders.html
 
