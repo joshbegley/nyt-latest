@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 `\
 https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
 
+**Sleepless, shocked and hurt: Avalanche try to move on after Mikko Rantanen trade**\
+`The trade that saw the superstar dealt to Carolina sent shockwaves through the league and up and down the Colorado franchise.
+`\
+https://nytimes.com/athletic/6088174/2025/01/25/avalanche-mikko-rantanen-trade/
+
 **Blue Jackets' Sean Monahan expected to be out until March after injury setback**\
 `Doctors have projected a longer recovery timeline than expected for the 30-year-old, who injured his right wrist on Jan. 7.`\
 https://nytimes.com/athletic/6088411/2025/01/25/monahan-blue-jackets-injury/
