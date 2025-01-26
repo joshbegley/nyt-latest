@@ -1,3 +1,7 @@
+**Southern California Rainstorms Raise Risks of Mudslides**\
+`The charred soil left by the wildfires could create conditions ripe for mudslides because the rain, which will last into Monday, will just run off, forecasters said.`\
+https://nytimes.com/2025/01/26/us/california-fires-rain-mudslides.html
+
 **Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
 `Philly's stars combined for six rushing touchdowns as Eagles forced four turnovers in ending Washington's dream run.`\
 https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
