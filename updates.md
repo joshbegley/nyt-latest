@@ -1,3 +1,7 @@
+**Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
+`Ange Postecoglou says Pape Matar Sarr “shouldn’t have played” in Tottenham Hotspur’s 2-1 home defeat by Leicester City.`\
+https://nytimes.com/athletic/6089376/2025/01/26/tottenham-pape-sarr-injury-postecoglou/
+
 **Colombia’s President Says He Will Not Accept U.S. Deportation Flights**\
 `Gustavo Petro said on X that the United States should not treat Colombian migrants as criminals and that he had already turned away U.S. military flights carrying deportees.`\
 https://nytimes.com/2025/01/26/world/americas/colombia-us-deportation-flights.html

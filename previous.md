@@ -1,3 +1,7 @@
+**Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
+`Ange Postecoglou says Pape Matar Sarr “shouldn’t have played” in Tottenham Hotspur’s 2-1 home defeat by Leicester City.`\
+https://nytimes.com/athletic/6089376/2025/01/26/tottenham-pape-sarr-injury-postecoglou/
+
 **Hiring Freeze Creates Confusion and Concern at F.B.I.**\
 `President Trump’s directive is supposed to exempt national security and public safety positions, but the F.B.I. has put an immediate hiring freeze in place.`\
 https://nytimes.com/2025/01/26/us/politics/fbi-hiring-freeze-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087682/2025/01/26/tottenham-postecoglou-leicester-
 **The Fashion Brand That Even Other Fashion Brands Revere**\
 `For a glimpse at what other fashion brands may take inspiration from in 30 years, look at the latest Hermès runway show.`\
 https://nytimes.com/2025/01/26/style/hermes-mens-wear-paris.html
-
-**Jannik Sinner's tennis brilliance shines through a darkness he cannot lift**\
-`Everything that Jannik Sinner means to the summit of men's tennis could be temporarily wiped away in just a few months.`\
-https://nytimes.com/athletic/6088971/2025/01/26/jannik-sinner-tennis-grand-slams-record-doping-ban-appeal/
 

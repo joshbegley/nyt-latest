@@ -1,3 +1,7 @@
+**Senior Justice Department Official to Oversee Chicago Immigration Crackdown**\
+`Emil Bove, the active attorney general, is in Chicago to observe the Trump administration’s stepped-up deportation efforts.`\
+https://nytimes.com/2025/01/26/us/politics/chicago-deportation-emil-bove-trump.html
+
 **Postecoglou admits Sarr was not fit enough to play in Leicester defeat**\
 `Ange Postecoglou says Pape Matar Sarr “shouldn’t have played” in Tottenham Hotspur’s 2-1 home defeat by Leicester City.`\
 https://nytimes.com/athletic/6089376/2025/01/26/tottenham-pape-sarr-injury-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/dining/eleven-madison-park-granola-surprisingly-e
 **The Briefing: Spurs 1 Leicester 2 - Nightmare for Postecoglou and Levy protests in embarrassing defeat**\
 `We break down the talking points from a poor defeat for Spurs in Sunday's Premier League match at the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6087682/2025/01/26/tottenham-postecoglou-leicester-levy/
-
-**The Fashion Brand That Even Other Fashion Brands Revere**\
-`For a glimpse at what other fashion brands may take inspiration from in 30 years, look at the latest Hermès runway show.`\
-https://nytimes.com/2025/01/26/style/hermes-mens-wear-paris.html
 
