@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Isabel Kershner, Christina Goldbaum and Euan Ward`\
+https://nytimes.com/live/2025/01/26/world/lebanon-israel-hezbollah/heres-the-latest
+
 **Bills at Chiefs: How to watch, odds, expert picks for what should be an instant classic**\
 `For the AFC Crown, the Chiefs opened as narrow favorites against the Bills who eked out a win over the Ravens in the divisional round. `\
 https://nytimes.com/athletic/6073696/2025/01/26/bills-chiefs-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088858/2025/01/26/cowboys-brian-schottenheimer-to-
 **In NBA Finals rematch, Mavericks get even further from where they need to be**\
 `As well as Kyrie Irving has played, the hobbled Mavericks have been a bottom-seven offense over the past month without Luka Dončić.`\
 https://nytimes.com/athletic/6088628/2025/01/26/mavericks-injuries-celtics-nba-maxi-kleber/
-
-**Even in a 40-point game, it's the little things that stand out with James Harden**\
-`Before Saturday, Harden hadn't had a 40-point game since March 2021. But two factors made Saturday night impressive.`\
-https://nytimes.com/athletic/6088773/2025/01/26/james-harden-40-points-clippers-bucks-nba/
 
