@@ -1,5 +1,5 @@
-**Cam Jurgens replaces starting C Landon Dickerson to start second half**\
-`Jurgens was initially downgraded from his starting spot with a back injury, replacing Dickerson after sustaining a knee injury`\
+**Eagles' Cam Jurgens replaces Landon Dickerson at center**\
+`Jurgens, initially downgraded from his starting spot with a back injury, replaced Dickerson after the latter suffered a knee injury.`\
 https://nytimes.com/athletic/6089838/2025/01/26/eagles-center-cam-jurgens-landon-dickerson/
 
 **Amorim on Rashford return: 'If things don't change, I will not change'**\
