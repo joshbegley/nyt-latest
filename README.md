@@ -1,3 +1,19 @@
+**The Premier League's financial rules are working - just not in the way you might think**\
+`One of the unexpected effects of PSR is that there has been a change to the transfers ecosystem. Plenty of English clubs are benefitting`\
+https://nytimes.com/athletic/6083459/2025/01/26/premier-league-psr-financial-rules/
+
+**Jamal Khashoggi's widow says FIFA should commemorate him at Saudi Arabia World Cup**\
+`'They could name a stand in a stadium after him, or print his picture on tickets for the public. His sacrifice should be valued'`\
+https://nytimes.com/athletic/6063594/2025/01/26/jamal-khashoggi-saudi-arabia-world-cup/
+
+**Is this football's most boring team? (And is that actually a good thing?)**\
+`Europe's top leagues have passed their halfway points - and one team stands out for doing things completely their own way`\
+https://nytimes.com/athletic/6085907/2025/01/26/most-boring-football-team/
+
+**Leila Pereira interview: The Palmeiras president on Endrick, Estevao and blazing a trail for women**\
+`The Brazilian has become one of the most important figures in South American and world football`\
+https://nytimes.com/athletic/6086259/2025/01/26/palmeiras-president-endrick-estevao-reis/
+
 **Gumshields to headbands: What accessories can players wear in the Premier League?**\
 `From snoods to headbands and gumshields, the accessories players are allowed and want to wear on the pitch has changed over the years`\
 https://nytimes.com/athletic/6058414/2025/01/26/premier-league-accessories-rules/
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/6079158/2025/01/26/fulham-manchester-united-preview
 **Kirill Marchenko's 'engine' powers Blue Jackets to OT win with acrobatic goal**\
 `Marchenko's acrobatic, airborne goal off a powerful drive to the net in overtime led the Blue Jackets to a 3-2 win over the Kings.`\
 https://nytimes.com/athletic/6088584/2025/01/25/blue-jackets-kirill-marchenko-goal/
-
-**'I love you': Derrick White's third quarter and the words that helped spur a Celtics win**\
-`White's 16-point, highest-scoring quarter of the season aided Boston in a 122-107 road win over the Dallas Mavericks. `\
-https://nytimes.com/athletic/6088583/2025/01/25/celtics-win-mavericks-derrick-white-third-quarter/
-
-**Tim Stützle's buzz cut, Shane Pinto's defence, Anton Forsberg's goaltending: 4 takeaways**\
-`Stützle and Pinto powered Ottawa to a 2-1 victory over the Toronto Maple Leafs on Saturday night. `\
-https://nytimes.com/athletic/6087955/2025/01/25/senators-maple-leafs-takeaways/
-
-**Maple Leafs report cards: Joseph Woll solid but scoring struggles continue**\
-`Bobby McMann — who made his debut on the top line — had the lone goal as Toronto fell short 2-1 to Ottawa.
-`\
-https://nytimes.com/athletic/6088535/2025/01/25/maple-leafs-senators-analysis-grades/
-
-**Trump Says He Wants Jordan and Egypt to Take in Palestinians From Gaza**\
-`President Trump said he had spoken to Jordan’s leader and planned to call Egypt’s on Sunday. Most of Gaza’s two million residents have been displaced in 15 months of fighting.`\
-https://nytimes.com/2025/01/25/us/politics/trump-palestinians-jordan-egypt-refugees.html
 
