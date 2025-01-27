@@ -1,3 +1,7 @@
+**The suffering of Rasmus Hojlund**\
+`The Danish striker is starved of service and not posing a threat, but there do not seem to be any easy answers`\
+https://nytimes.com/athletic/6090434/2025/01/27/rasmus-hojlund-manchester-united-suffering/
+
 **Mayor Adams to Limit His Public Schedule, Citing Routine Medical Tests**\
 `Mayor Eric Adams of New York City will undergo tests and meet with doctors this week because he is not “feeling his best,” his office said. No other details were released.`\
 https://nytimes.com/2025/01/27/nyregion/eric-adams-limits-public-schedule.html

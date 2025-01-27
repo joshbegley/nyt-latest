@@ -1,3 +1,7 @@
+**The suffering of Rasmus Hojlund**\
+`The Danish striker is starved of service and not posing a threat, but there do not seem to be any easy answers`\
+https://nytimes.com/athletic/6090434/2025/01/27/rasmus-hojlund-manchester-united-suffering/
+
 **Mayor Adams to Limit His Public Schedule, Citing Routine Medical Tests**\
 `Mayor Eric Adams of New York City will undergo tests and meet with doctors this week because he is not “feeling his best,” his office said. No other details were released.`\
 https://nytimes.com/2025/01/27/nyregion/eric-adams-limits-public-schedule.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088158/2025/01/27/wolves-transfer-window-vitor-per
 **David Moyes has made Everton comfortable in their own skin again - as Brighton found out**\
 `How a pragmatic masterclass on the south coast left the Brighton players and supporters enraged and deflated in equal measure`\
 https://nytimes.com/athletic/6088204/2025/01/27/everton-moyes-horribly-effective-premier-league/
-
-**What's going on with Jhon Duran? The Aston Villa and West Ham views**\
-`With Aston Villa striker Jhon Duran being linked to West Ham and the two clubs facing each other on Sunday, our writers looked at his future`\
-https://nytimes.com/athletic/6089574/2025/01/27/jhon-duran-villa-west-ham-transfer/
 
