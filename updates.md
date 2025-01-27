@@ -1,3 +1,11 @@
+**Aryna Sabalenka is at the top of women's tennis. Her endorsements and brand deals don't yet match up**\
+`The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport.`\
+https://nytimes.com/athletic/6088734/2025/01/27/aryna-sabalenka-tennis-brand-deals-endorsements-value/
+
+**Israeli Forces Again Open Fire as Lebanese Try to Return Home, Lebanese Officials Say**\
+`For a second day, Lebanese were defying Israeli warnings and attempting to reach southern border towns that remained occupied by Israeli troops. At least two people were injured, officials said.`\
+https://nytimes.com/2025/01/27/world/middleeast/israel-lebanon-hezbollah-strikes-ceasefire.html
+
 **Ben Johnson and the Bears: 5 lingering questions about the hire and what's next**\
 `Johnson has passed several tests already, but there are still questions about how it will all work out for the Bears' new coach.`\
 https://nytimes.com/athletic/6086754/2025/01/27/bears-ben-johnson-lingering-questions/
