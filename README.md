@@ -1,3 +1,11 @@
+**Mal Swanson to miss start of Stars training camp for personal reasons**\
+`The Stars didn't provide additional details but said they "are fully supportive" of Swanson's decision.`\
+https://nytimes.com/athletic/6091688/2025/01/27/mallory-swanson-chicago-stars-training-camp/
+
+**49ers hire Jets' Brant Boyer as special teams coordinator**\
+`Boyer will replace Brian Schneider, who the 49ers let go after they had a number of costly special teams lapses this season.`\
+https://nytimes.com/athletic/6091903/2025/01/27/49ers-special-teams-coordinator-hire-brant-boyer/
+
 **Activist Investor Seeks to Oust U.S. Steel Chief Over Nippon Deal**\
 `The two steel makers are seeking to revive Nippon Steel’s $14 billion takeover of U.S. Steel after it was blocked by the Biden administration.`\
 https://nytimes.com/2025/01/27/business/us-steel-nippon-activist.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/27/us/trump-executive-order-transgender-lawsuit.html
 **Fantasy hockey: Rest of season rankings and player projections for 2024-25**\
 `Dom Luszczyszyn offers up his seventh in-season update to his 2024-25 fantasy hockey rest-of-season rankings and player projections.`\
 https://nytimes.com/athletic/5882585/2025/01/27/fantasy-hockey-rest-of-season-rankings-player-projections-2024-25/
-
-**The Vote to Confirm ‘a Wildly Unfit’ Pete Hegseth**\
-`Readers criticize the vote on the defense secretary nomination. Also: President Trump and tariffs; silencing health officials; firing of inspectors general; longevity.`\
-https://nytimes.com/2025/01/27/opinion/pete-hegseth-confirmation.html
-
-**DeepSeek’s Two Seismic Possibilities for American A.I.**\
-`The much-ballyhooed U.S. advantage may be much smaller than previously thought.`\
-https://nytimes.com/live/2025/01/27/opinion/thepoint/deepseek-america-china-ai-advantage
 
