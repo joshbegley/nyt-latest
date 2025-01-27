@@ -1,3 +1,11 @@
+**It's Brian Schottenheimer's show: New Cowboys coach takes over offense, will call plays**\
+`The Cowboys will hire an offensive coordinator, but like Mike McCarthy before him, Brian Schottenheimer will call the offense.`\
+https://nytimes.com/athletic/6093027/2025/01/27/cowboys-brian-schottenheimer-offense-play-caller/
+
+**What to know 500 days from World Cup: USMNT, security, tickets, Trump**\
+`Some essential information as the soccer tournament approaches`\
+https://nytimes.com/athletic/6092535/2025/01/27/500-days-world-cup-usmnt-tickets-trump/
+
 **Liam Coen on Jaguars job: 'This was an opportunity you just can't pass up'**\
 `Jacksonville's new coach addressed last week's whirlwind of activity that saw him go from staying in Tampa Bay to joining the Jaguars.`\
 https://nytimes.com/athletic/6092883/2025/01/27/liam-coen-jaguars-job-shad-khan/
