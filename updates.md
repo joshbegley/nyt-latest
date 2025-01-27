@@ -1,3 +1,7 @@
+**How to watch South Carolina at Tennessee women's basketball: Reigning champs are on a roll**\
+`Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
+https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/
+
 **Fired Inspectors General Raise Alarms as Trump Administration Moves to Finalize Purge**\
 `The full scope of the Friday night mass firings was coming into sharper view as one fired watchdog official warned of “a never-ending cycle of politicization.”`\
 https://nytimes.com/2025/01/27/us/politics/trump-inspectors-general-fired.html
