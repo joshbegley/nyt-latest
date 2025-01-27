@@ -1,3 +1,7 @@
+**West Ham win legal battle with London Stadium landlords over disputed payment**\
+`West Ham United have won a legal battle with their landlords at the London Stadium over a disputed payment linked to Czech billionaire Daniel Kretinsky’s 2021 purchase of a 27 per cent stake in the Premier League club.`\
+https://nytimes.com/athletic/6092129/2025/01/27/west-ham-london-stadium-legal-battle/
+
 **Oil Companies Embrace Trump, but Not ‘Drill, Baby, Drill’**\
 `Oil and gas executives welcomed President Trump’s early moves on energy policy, but many said they did not plan to increase production unless prices rose significantly.`\
 https://nytimes.com/2025/01/27/business/energy-environment/oil-trump-drill-baby-drill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092059/2025/01/27/red-sox-mailbag-question-submiss
 **Mal Swanson to miss start of Stars training camp for personal reasons**\
 `The Stars didn't provide additional details but said they "are fully supportive" of Swanson's decision.`\
 https://nytimes.com/athletic/6091688/2025/01/27/mallory-swanson-chicago-stars-training-camp/
-
-**49ers hire Jets' Brant Boyer as special teams coordinator**\
-`Boyer will replace Brian Schneider, who the 49ers let go after they had a number of costly special teams lapses this season.`\
-https://nytimes.com/athletic/6091903/2025/01/27/49ers-special-teams-coordinator-hire-brant-boyer/
 
