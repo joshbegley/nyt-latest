@@ -1,3 +1,7 @@
+**Mayor Adams to Limit His Public Schedule, Citing Routine Medical Tests**\
+`Mayor Eric Adams of New York City will undergo tests and meet with doctors this week because he is not “feeling his best,” his office said. No other details were released.`\
+https://nytimes.com/2025/01/27/nyregion/eric-adams-limits-public-schedule.html
+
 **‘It Cannot Go On Like This’: Voices From Europe’s Swing to the Right**\
 `‘A lot of people simply haven’t been heard for a long time.’`\
 https://nytimes.com/2025/01/27/opinion/europe-elections-immigration-far-right.html

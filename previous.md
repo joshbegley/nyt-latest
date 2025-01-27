@@ -1,3 +1,7 @@
+**Mayor Adams to Limit His Public Schedule, Citing Routine Medical Tests**\
+`Mayor Eric Adams of New York City will undergo tests and meet with doctors this week because he is not “feeling his best,” his office said. No other details were released.`\
+https://nytimes.com/2025/01/27/nyregion/eric-adams-limits-public-schedule.html
+
 **‘It Cannot Go On Like This’: Voices From Europe’s Swing to the Right**\
 `‘A lot of people simply haven’t been heard for a long time.’`\
 https://nytimes.com/2025/01/27/opinion/europe-elections-immigration-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088204/2025/01/27/everton-moyes-horribly-effective
 **What's going on with Jhon Duran? The Aston Villa and West Ham views**\
 `With Aston Villa striker Jhon Duran being linked to West Ham and the two clubs facing each other on Sunday, our writers looked at his future`\
 https://nytimes.com/athletic/6089574/2025/01/27/jhon-duran-villa-west-ham-transfer/
-
-**The Briefing: Tipping point for Postecoglou? Champions League Bournemouth? Can Chelsea succeed with Sanchez?**\
-`The key talking points from the Premier League weekend`\
-https://nytimes.com/athletic/6089766/2025/01/27/tipping-point-for-postecoglou-champions-league-bournemouth-can-chelsea-succeed-with-sanchez-the-briefing/
 
