@@ -1,3 +1,7 @@
+**Men’s basketball Top 25: Defenses doing damage as February arrives**\
+`As we approach the midpoint of conference play, let's take a closer look at some teams rising up the rankings thanks to their defense.`\
+https://nytimes.com/athletic/6090436/2025/01/27/mens-college-basketball-top-25-auburn-houston/
+
 **What I saw in the PWHL this week: Sceptres get much-needed win, but what hasn't been working?**\
 `Toronto defeated New York 4-2 at Scotiabank Arena on Saturday but sits last in the PWHL standings. What's behind its struggles this season?`\
 https://nytimes.com/athletic/6090674/2025/01/27/pwhl-toronto-sceptres-win-new-york-sirens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090831/2025/01/27/chelsea-wsl-dominance-naomi-girm
 **Juventus captain Danilo leaves by mutual consent**\
 `Juventus captain Danilo has left the club by mutual consent.`\
 https://nytimes.com/athletic/6091108/2025/01/27/danilo-juventus-transfer-exit/
-
-**DeepSeek Forces a Global Technology Reckoning**\
-`The fast-growing popularity of the Chinese artificial intelligence software hit shares in tech giants like Nvidia, as Silicon Valley worried about what comes next.`\
-https://nytimes.com/2025/01/27/business/dealbook/deepseek-tech-stocks-reckoning.html
 
