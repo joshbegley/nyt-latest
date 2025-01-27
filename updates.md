@@ -1,3 +1,7 @@
+**One of Hegseth’s first directives at the Pentagon targets D.E.I.**\
+`By Eric Schmitt`\
+https://nytimes.com/2025/01/27/us/politics/one-of-hegseths-first-directives-at-the-pentagon-targets-dei.html
+
 **Gazans Crowd the Road North, Joyful but Anxious**\
 `For nearly 16 months, hundreds of thousands of displaced Palestinians have lived in tents, barred from returning to northern Gaza. On Monday, Israel allowed them to walk back.`\
 https://nytimes.com/2025/01/27/world/middleeast/northern-gaza-palestinians-return.html
