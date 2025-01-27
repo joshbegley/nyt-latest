@@ -24,7 +24,7 @@ https://nytimes.com/live/2025/01/27/us/trump-news/one-of-hegseths-first-directiv
 
 **Gazans Crowd the Road North, Joyful but Anxious**\
 `For nearly 16 months, hundreds of thousands of displaced Palestinians have lived in tents, barred from returning to northern Gaza. On Monday, Israel allowed them to walk back.`\
-https://nytimes.com/2025/01/27/world/middleeast/gaza-road-north.html
+https://nytimes.com/2025/01/27/world/middleeast/northern-gaza-palestinians-return.html
 
 **Three burning questions for Nebraska, Matt Rhule on special teams, roster limits and more**\
 `The spring calendar is yet to be finalized for Rhule and the Huskers. `\
