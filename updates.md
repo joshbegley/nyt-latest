@@ -1,3 +1,11 @@
+**Florida closes Title IX investigation into MBB coach Golden**\
+`Golden said little publicly about the allegations during the investigation, saying he was “respecting the situation.”`\
+https://nytimes.com/athletic/6092044/2025/01/27/todd-golden-florida-basketball-title-ix-closed/
+
+**Trump’s Colombia Tariff Threat Targeted a Vibrant Alternative to China**\
+`By declaring he’d put tariffs on goods from the South American country, the president imperiled a growing influx of foreign investment there.`\
+https://nytimes.com/2025/01/27/business/trump-colombia-tariffs-china.html
+
 **Blackhawks GM Davidson still optimistic about rebuild: 'This takes time'**\
 `Davidson spoke with the media Monday and acknowledged his team isn't where he wants it to be — but he's confident in its direction.`\
 https://nytimes.com/athletic/6091971/2025/01/27/blackhawks-rebuild-kyle-davidson/

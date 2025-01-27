@@ -1,3 +1,11 @@
+**Florida closes Title IX investigation into MBB coach Golden**\
+`Golden said little publicly about the allegations during the investigation, saying he was “respecting the situation.”`\
+https://nytimes.com/athletic/6092044/2025/01/27/todd-golden-florida-basketball-title-ix-closed/
+
+**Trump’s Colombia Tariff Threat Targeted a Vibrant Alternative to China**\
+`By declaring he’d put tariffs on goods from the South American country, the president imperiled a growing influx of foreign investment there.`\
+https://nytimes.com/2025/01/27/business/trump-colombia-tariffs-china.html
+
 **Blackhawks GM Davidson still optimistic about rebuild: 'This takes time'**\
 `Davidson spoke with the media Monday and acknowledged his team isn't where he wants it to be — but he's confident in its direction.`\
 https://nytimes.com/athletic/6091971/2025/01/27/blackhawks-rebuild-kyle-davidson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6091903/2025/01/27/49ers-special-teams-coordinator-
 **Activist Investor Seeks to Oust U.S. Steel Chief Over Nippon Deal**\
 `The two steel makers are seeking to revive Nippon Steel’s $14 billion takeover of U.S. Steel after it was blocked by the Biden administration.`\
 https://nytimes.com/2025/01/27/business/us-steel-nippon-activist.html
-
-**USMNT Player Tracker: Pulisic on the spot, commanding Adams and Sargent sticks to the plan**\
-`Our roundup of the U.S. contingent's contribution over the weekend also includes Jordan Pefok's continued toils at Union Berlin`\
-https://nytimes.com/athletic/6091566/2025/01/27/usmnt-pulisic-adams-sargent-tracker/
-
-**Notre Dame mailbag: What's next at defensive coordinator? How big are portal losses?**\
-`There's plenty to talk about at Notre Dame in the wake of the national title game loss. What's next and how have expectations changed?`\
-https://nytimes.com/athletic/6091854/2025/01/27/notre-dame-defensive-coordinator-candidates-transfer-portal/
 
