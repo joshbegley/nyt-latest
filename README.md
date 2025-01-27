@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lake
 https://nytimes.com/athletic/6090684/2025/01/27/patrick-mahomes-chiefs-super-bowl-superhero/
 
 **Aryna Sabalenka is at the top of women's tennis. Her endorsements and brand deals don't yet match up**\
-`The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport.`\
+`The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport`\
 https://nytimes.com/athletic/6088734/2025/01/27/aryna-sabalenka-tennis-brand-deals-endorsements-value/
 
 **Israeli Forces Again Open Fire as Lebanese Try to Return Home, Lebanese Officials Say**\
