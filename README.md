@@ -1,3 +1,7 @@
+**Nvidia Reels After China’s A.I. Breakthrough**\
+`The tech industry has had an insatiable appetite for Nvidia’s chips over the last two years. But the feast may be over sooner than many had expected.`\
+https://nytimes.com/2025/01/27/business/deepseek-nvidia-ai-chips.html
+
 **Bayern sign goalkeeper Urbig from Koln**\
 `Bayern Munich have completed the signing of goalkeeper Jonas Urbig from Koln.`\
 https://nytimes.com/athletic/6088950/2025/01/27/jonas-urbig-bayern-munich-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087259/2025/01/27/logan-thompson-contract-extensio
 **Jerry Jones likes his new coach's 'baggage,' says hiring was a 'risk'**\
 `Jones: 'He's had 25 years being around the kinds of things that he's gonna have to draw on to be a coach of the Dallas Cowboys."`\
 https://nytimes.com/athletic/6092435/2025/01/27/jerry-jones-brian-schottenheimer-risk-coach/
-
-**Ravens finalizing contract extension with OC Todd Monken: Source**\
-`Baltimore's offense led the NFL in total yards and rushing yards per game, and finished third in points per game this season.`\
-https://nytimes.com/athletic/6092408/2025/01/27/ravens-todd-monken-contract-extension/
 
