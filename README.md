@@ -1,3 +1,7 @@
+**Everything you need to know about the 2026 World Cup:**\
+`Everything you need to know about the 2026 men's World Cup - from how many teams will play to the stadiums that will be used`\
+https://nytimes.com/athletic/6085823/2025/01/27/2026-world-cup-united-states-canada-mexico/
+
 **Here’s the latest on the cease-fire.**\
 `By Mike Ives`\
 https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/heres-the-latest-on-the-cease-fire
@@ -22,7 +26,7 @@ https://nytimes.com/2025/01/27/world/americas/trump-putin-ukraine.html
 `Guerin didn't mince words in describing Minnesota's recent play during an intermission in Sunday's win over the Blackhawks.`\
 https://nytimes.com/athletic/6090603/2025/01/26/minnesota-wild-slump-bill-guerin-flames-blackhawks/
 
-**Commanders' magical season ends, but the foundation for long-term success is in place**\
+**Commanders' magical season ends, but the foundation for future success is in place**\
 `Washington was dominated by Philadelphia in the NFC championship, but it's hard not to believe this group won't be back on that stage soon.`\
 https://nytimes.com/athletic/6089439/2025/01/26/commanders-lose-eagles-nfc-championship-game/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084432/2025/01/26/super-bowl-59-odds-line-chiefs-e
 **Chiefs turn controversial fourth-down call into go-ahead TD in AFC title game**\
 `The Chiefs forced a turnover on downs after officials ruled that Kansas City stopped Bills QB Josh Allen short of the line.`\
 https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-afc-cahmpionship/
-
-**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch**\
-`The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
-https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
 
