@@ -1,3 +1,7 @@
+**Jerry Jones likes his new coach's 'baggage,' says hiring was a 'risk'**\
+`Jones: 'He's had 25 years being around the kinds of things that he's gonna have to draw on to be a coach of the Dallas Cowboys."`\
+https://nytimes.com/athletic/6092435/2025/01/27/jerry-jones-likes-brian-schottenheimers-baggage-but-says-new-cowboys-coaches-hiring-was-a-risk/
+
 **Ravens finalizing contract extension with OC Todd Monken: Source**\
 `Baltimore's offense led the NFL in total yards and rushing yards per game, and finished third in points per game this season.`\
 https://nytimes.com/athletic/6092408/2025/01/27/ravens-todd-monken-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092288/2025/01/27/phillies-mailbag-questions-sprin
 **Blues trade Scott Perunovich to Islanders: How he fits in New York**\
 `The pick heading to the Blues would be in the fifth round of the 2026 NHL Draft.`\
 https://nytimes.com/athletic/6092280/2025/01/27/blues-islanders-scott-perunovich-trade/
-
-**Penguins place Evgeni Malkin on IR**\
-`Malkin sustained an apparent knee injury in a 4-1 loss against the Kraken on Saturday.`\
-https://nytimes.com/athletic/6092282/2025/01/27/penguins-evgeni-malkin-injured-reserve/
 
