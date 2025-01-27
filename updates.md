@@ -1,3 +1,7 @@
+**Survivors Commemorate 80th Anniversary Auschwitz Liberation**\
+`Survivors of Auschwitz, where the Nazis murdered more than 1.1 million people, urged world leaders to be vigilant against a dangerous rise in antisemitism and extremism during a ceremony commemorating the anniversary of the death camp’s liberation in 1945.`\
+https://nytimes.com/video/world/europe/100000009951525/auschwitz-liberation-80th-anniversary.html
+
 **Trump’s Suit Against Pulitzer Board Faces a Hurdle: His Previous Arguments**\
 `Mr. Trump, the board noted, has argued that a state court should not be permitted to exert control over a sitting president.`\
 https://nytimes.com/2025/01/27/business/media/trump-libel-suit-pulitzer-prize-board.html
