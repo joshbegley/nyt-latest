@@ -1,3 +1,23 @@
+**Heat suspend Jimmy Butler indefinitely: Sources**\
+`Butler, the disgruntled forward who has sought a trade from Miami, left the team's shootaround on Monday.`\
+https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-heat-trade-rumors/
+
+**Oath Keepers Leader’s Travel Restrictions Lifted With New U.S. Attorney’s Help**\
+`Ed Martin, President Trump’s new U.S. attorney in Washington, came to the aid of the group’s leader, Stewart Rhodes. Mr. Rhodes had been sentenced to 18 years for his role in the Jan. 6, 2021, attack on the Capitol.`\
+https://nytimes.com/2025/01/27/us/politics/rhodes-oath-keepers-dc-capitol-trump.html
+
+**Tuesday Briefing: A.I. From China Rattles Markets**\
+`Plus, Venice in the winter.`\
+https://nytimes.com/2025/01/27/briefing/china-ai-markets-colombia-deportees-auschwitz-memorial.html
+
+**How to watch South Carolina at Tennessee women's basketball: Reigning champs are on fire**\
+`Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
+https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/
+
+**New coach Pete Carroll expects Raiders to win 'immediately'**\
+`The Raiders' new coach — and GM John Spytek — expressed plenty of optimism about their new roles with the team Monday in Las Vegas.`\
+https://nytimes.com/athletic/6092611/2025/01/27/raiders-pete-carroll-john-spytek-tom-brady/
+
 **François Ponchaud, Who Alerted World to Cambodian Atrocities, Dies at 86**\
 `A French Catholic priest, he wrote a book recounting horrors committed by the Khmer Rouge that were responsible for the death of almost two million people.`\
 https://nytimes.com/2025/01/27/world/europe/francois-ponchaud-dead.html
