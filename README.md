@@ -1,3 +1,7 @@
+**Inmate Sues the Trump Administration Over Transgender Executive Order**\
+`The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
+https://nytimes.com/2025/01/27/us/prison-inmate-transgender-lawsuit-trump.html
+
 **The Vote to Confirm ‘a Wildly Unfit’ Pete Hegseth**\
 `Readers criticize the vote on the defense secretary nomination. Also: President Trump and tariffs; silencing health officials; firing of inspectors general; longevity.`\
 https://nytimes.com/2025/01/27/opinion/pete-hegseth-confirmation.html
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6091634/2025/01/27/submit-your-reds-questions-for-c
 
 **Musk Says Germany Has ‘Too Much of a Focus on Past Guilt’**\
 `His comments to the hard-right Alternative for Germany party escalated efforts by the billionaire to influence the country’s election for chancellor next month.`\
-https://nytimes.com/2025/01/27/world/europe/musk-germany-comments.html
+https://nytimes.com/2025/01/27/world/europe/musk-germany-afd-auschwitz.html
 
 **In Exacting Retribution, Trump Aims at the Future as Well as the Past**\
 `The president made good on promises to seek revenge against enemies during his first week back in power, signaling in the process that anyone who crosses him in the future could also suffer.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031899/2025/01/27/louie-barry-aston-villa-transfer
 **Standoff at Ukrainian Procurement Agency Threatens to Disrupt Weapons Supply**\
 `Ukraine’s defense minister fired the head of a state agency that procured over $7 billion in armaments last year, citing “unsatisfactory” results. She says the move is illegal and vows to stay in her post.`\
 https://nytimes.com/2025/01/27/world/europe/ukraine-weapons-agency-standoff.html
-
-**Is there a conspiracy against Arsenal? Probably not, but the feeling is real**\
-`VAR, PGMOL statements and former referees' comments in the media can often enflame the discussion over refereeing decisions and anger fans`\
-https://nytimes.com/athletic/6090960/2025/01/27/referees-arsenal-pgmol-decisions/
 
