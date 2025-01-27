@@ -1,3 +1,11 @@
+**Inmate Sues the Trump Administration Over Transgender Executive Order**\
+`The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
+https://nytimes.com/2025/01/27/us/prison-inmate-transgender-lawsuit-trump.html
+
+**Musk Says Germany Has ‘Too Much of a Focus on Past Guilt’**\
+`His comments to the hard-right Alternative for Germany party escalated efforts by the billionaire to influence the country’s election for chancellor next month.`\
+https://nytimes.com/2025/01/27/world/europe/musk-germany-afd-auschwitz.html
+
 **The Vote to Confirm ‘a Wildly Unfit’ Pete Hegseth**\
 `Readers criticize the vote on the defense secretary nomination. Also: President Trump and tariffs; silencing health officials; firing of inspectors general; longevity.`\
 https://nytimes.com/2025/01/27/opinion/pete-hegseth-confirmation.html
