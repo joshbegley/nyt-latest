@@ -1,3 +1,7 @@
+**Oil Companies Embrace Trump, but Not ‘Drill, Baby, Drill’**\
+`Oil and gas executives welcomed President Trump’s early moves on energy policy, but many said they did not plan to increase production unless prices rose significantly.`\
+https://nytimes.com/2025/01/27/business/energy-environment/oil-trump-drill-baby-drill.html
+
 **Florida closes Title IX investigation into MBB coach Golden**\
 `Golden said little publicly about the allegations during the investigation, saying he was “respecting the situation.”`\
 https://nytimes.com/athletic/6092044/2025/01/27/todd-golden-florida-basketball-title-ix-closed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091688/2025/01/27/mallory-swanson-chicago-stars-tr
 **49ers hire Jets' Brant Boyer as special teams coordinator**\
 `Boyer will replace Brian Schneider, who the 49ers let go after they had a number of costly special teams lapses this season.`\
 https://nytimes.com/athletic/6091903/2025/01/27/49ers-special-teams-coordinator-hire-brant-boyer/
-
-**Activist Investor Seeks to Oust U.S. Steel Chief Over Nippon Deal**\
-`The two steel makers are seeking to revive Nippon Steel’s $14 billion takeover of U.S. Steel after it was blocked by the Biden administration.`\
-https://nytimes.com/2025/01/27/business/us-steel-nippon-activist.html
 
