@@ -1,3 +1,7 @@
+**Khris Middleton's lackluster game against the Clippers: Rust, regression or third wheel?**\
+`Middleton went scoreless for the second time this season and looked out of sync. We re-watched his performance to see what went wrong.`\
+https://nytimes.com/athletic/6089686/2025/01/27/khris-middleton-bucks-clippers/
+
 **The Bounce: Why the NBA has a surprising contender out West**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6091046/2025/01/27/rockets-alperen-sengun-west-kobe-bryant-lakers-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091254/2025/01/27/nebraska-matt-rhule-offseason-qu
 **Mason McTavish's huge week reminds all that he can be more than 'third-line guy'**\
 `The Ducks center has almost doubled his goal total in the past week with five goals in three games.`\
 https://nytimes.com/athletic/6090242/2025/01/27/mason-mctavish-anaheim-ducks-scoring-cronin/
-
-**Breaking down Keith Law's top 100 MLB prospects list: Risers, fallers and top systems**\
-`Which teams had the most top 100 prospects? Which ones had the most top 40 prospects? Who climbed the ranks? Who fell the most?`\
-https://nytimes.com/athletic/6088003/2025/01/27/mlb-top-100-prospects-by-the-numbers/
 
