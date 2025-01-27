@@ -1,3 +1,11 @@
+**Rebels Backed by Rwanda Announce Capture of Key City in Eastern Congo**\
+`The M23 militia, funded and directed by Rwanda, said it took the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
+https://nytimes.com/2025/01/27/world/africa/rebels-capture-goma-congo.html
+
+**How Miyazawa finally found her place at Manchester United**\
+`The Japan international is helping to turn United into credible WSL title contenders after her potential was unlocked`\
+https://nytimes.com/athletic/6090182/2025/01/27/hinata-miyazawa-manchester-united/
+
 **The Eagles did it their way in an NFC title game romp**\
 `Saquon Barkley did it again, Jalen Hurts had his best performance of the playoffs, and the Eagles are set for a Chiefs rematch.`\
 https://nytimes.com/athletic/6089664/2025/01/27/eagles-commanders-score-nfc-championship-game/
