@@ -1,3 +1,7 @@
+**Gazans head north on crutches, in wheelchairs and piled into strollers.**\
+`By Matthew Mpoke Bigg and Maud Bodoukian`\
+https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/gazans-head-north-on-crutches-in-wheelchairs-and-piled-into-strollers
+
 **Stocks Sink as Investors Worry About China’s A.I. Advances**\
 `Premarket trading implied steep declines for U.S. markets, with the pain concentrated at companies at the forefront of the artificial intelligence boom.`\
 https://nytimes.com/2025/01/27/business/us-stock-market-deepseek-ai-sp500-nvidia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089722/2025/01/27/nhl-weekend-rankings-rantanen-tr
 **E.U. Prepares to Cautiously Pare Back Sanctions on Syria**\
 `Member countries’ foreign ministers are meeting to discuss a “road map” to lift financial restrictions, but any change will happen in stages.`\
 https://nytimes.com/2025/01/27/world/europe/eu-syria-sanctions.html
-
-**Strong Dollar vs. Weak Dollar**\
-`President Trump is of two minds when it comes to America’s currency.`\
-https://nytimes.com/2025/01/27/briefing/donald-trump-currency.html
 
