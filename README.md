@@ -1,3 +1,7 @@
+**Scoop City: Controversial calls as Chiefs, Eagles head to Super Bowl**\
+`Inside: A weekend recap, controversial calls, brief Super Bowl preview and coaching updates from Las Vegas, Dallas and New Orleans.`\
+https://nytimes.com/athletic/6092194/2025/01/27/nfl-chiefs-controversial-call-super-bowl-scoop-city/
+
 **Weight Tossed in Indoor Hammer Throw Event Kills Spectator at Track Meet**\
 `The University of Colorado Colorado Springs, which hosted the event, said the implement had “cleared certified barriers.”`\
 https://nytimes.com/2025/01/27/sports/hammer-spectator-killed-colorado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092129/2025/01/27/west-ham-london-stadium-legal-ba
 **Oil Companies Embrace Trump, but Not ‘Drill, Baby, Drill’**\
 `Oil and gas executives welcomed President Trump’s early moves on energy policy, but many said they did not plan to increase production unless prices rose significantly.`\
 https://nytimes.com/2025/01/27/business/energy-environment/oil-trump-drill-baby-drill.html
-
-**Florida closes Title IX investigation into MBB coach Golden**\
-`Golden said little publicly about the allegations during the investigation, saying he was “respecting the situation.”`\
-https://nytimes.com/athletic/6092044/2025/01/27/todd-golden-florida-basketball-title-ix-closed/
 
