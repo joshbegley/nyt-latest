@@ -1,3 +1,7 @@
+**Super Bowl 59 MVP odds: Mahomes nearly even-money favorite ahead of Barkley, Hurts**\
+`Patrick Mahomes is roughly an even-money favorite to win Super Bowl MVP. Saquon Barkley is second ahead of Jalen Hurts.`\
+https://nytimes.com/athletic/6092340/2025/01/27/super-bowl-59-mvp-odds-patrick-mahomes/
+
 **Chelsea's Veiga completes Juventus loan move**\
 `Juventus have completed the signing of Renato Veiga on loan from Chelsea until the end of the season.`\
 https://nytimes.com/athletic/6083315/2025/01/27/renato-veiga-juventus-transfer-chelsea/
