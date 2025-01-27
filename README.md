@@ -1,3 +1,7 @@
+**What to Know About DeepSeek and How It Is Upending A.I.**\
+`How did a little-known Chinese start-up cause the markets and U.S. tech giants to quake? Here’s what to know.`\
+https://nytimes.com/2025/01/27/technology/what-is-deepseek-china-ai.html
+
 **Yohe: Unfounded Sidney Crosby trade rumors are a tired waste of time**\
 `The constant speculation about Crosby being traded to Colorado has run its course and then some.`\
 https://nytimes.com/athletic/6087837/2025/01/27/penguins-avalanche-sidney-crosby-trade-rumors/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/01/27/us/living-in-fire-zones.html
 **Mikko Rantanen on Avalanche contract talks and shock of being traded: 'Everything happened so quick'**\
 `Rantanen said he thought talks with the Avs had been productive before the shocking trade to the Canes: "I didn’t know we were in a rush."`\
 https://nytimes.com/athletic/6092377/2025/01/27/mikko-rantanen-avalanche-hurricanes-interview/
-
-**What’s Next in the Gaza Cease-Fire Negotiations?**\
-`Tens of thousands of displaced Palestinians trekked for hours toward their homes in northern Gaza on Monday, nearly 16 months after Israel launched an offensive there in response to Hamas’s Oct.`\
-https://nytimes.com/video/world/middleeast/100000009947068/explaining-future-of-gaza-cease-fire-deal.html
 
