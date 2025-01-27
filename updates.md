@@ -1,3 +1,7 @@
+**West Ham win legal battle with London Stadium landlords over disputed payment**\
+`West Ham United have won a legal battle with their landlords at the London Stadium over a disputed payment linked to Czech billionaire Daniel Kretinsky’s 2021 purchase of a 27 per cent stake in the Premier League club.`\
+https://nytimes.com/athletic/6092129/2025/01/27/west-ham-london-stadium-legal-battle/
+
 **Oil Companies Embrace Trump, but Not ‘Drill, Baby, Drill’**\
 `Oil and gas executives welcomed President Trump’s early moves on energy policy, but many said they did not plan to increase production unless prices rose significantly.`\
 https://nytimes.com/2025/01/27/business/energy-environment/oil-trump-drill-baby-drill.html
