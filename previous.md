@@ -1,3 +1,11 @@
+**Early dominance over Blackhawks falls apart in Wild's nail-biter win: 3 takeaways**\
+`After allowing just five shots in the first two periods, the Wild had to scramble to keep the lead against Chicago in a narrow 4-2 win.`\
+https://nytimes.com/athletic/6089947/2025/01/26/minnesota-wild-gustavsson-blackhawks-hynes/
+
+**Chiefs hold off Bills to set up Super Bowl rematch with Eagles, keep 3-peat bid alive**\
+`This year's Super Bowl is a rematch of Super Bowl LVII two years ago, which the Chiefs won 38-35 over the Eagles.`\
+https://nytimes.com/athletic/6090035/2025/01/26/chiefs-bills-afc-championship-result-score-takeaways/
+
 **Bears to hire Allen, Doyle as coordinators under new coach Johnson: Sources**\
 `Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
 https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/26/world/middleeast/israel-army-palestinian-prisoner
 **Seahawks hire Klint Kubiak as offensive coordinator**\
 `Kubiak, who turns 38 next month, is the son of former NFL head coach Gary Kubiak.`\
 https://nytimes.com/athletic/6079420/2025/01/26/seahawks-offensive-coordinator-klint-kubiak-saints/
-
-**Southern California Rainstorms Raise Risks of Mudslides**\
-`The charred soil left by the wildfires could create conditions ripe for mudslides because the rain, which will last into Monday, will just run off, forecasters said.`\
-https://nytimes.com/2025/01/26/us/california-fires-rain-mudslides.html
-
-**SEC fines Vanderbilt $500,000 for fans storming court vs. Kentucky**\
-`It’s Vanderbilt’s third offense under the SEC’s revised court-storming policy, which was updated in 2023.`\
-https://nytimes.com/athletic/6089880/2025/01/26/vanderbilt-fined-sec-court-storming/
 
