@@ -1,3 +1,11 @@
+**Commanders' magical season ends, but the foundation for long-term success is in place**\
+`Washington was dominated by Philadelphia in the NFC championship, but it's hard not to believe this group won't be back on that stage soon.`\
+https://nytimes.com/athletic/6089439/2025/01/26/commanders-lose-eagles-nfc-championship-game/
+
+**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch**\
+`The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
+https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
+
 **Super Bowl 59 odds: Chiefs open as favorites in rematch with Eagles**\
 `The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
 https://nytimes.com/athletic/6084432/2025/01/26/super-bowl-59-odds-line-chiefs-eagles/
