@@ -1,9 +1,13 @@
+**Map: 3.8-Magnitude Earthquake Strikes off the Coast of Maine**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/27/weather/quake-tracker-gulf-of-maine.html
+
 **Hollinger's Week That Was: What's next in Philly? Plus, scouting Jase Richardson**\
 `Two weekend wins didn't change the overall outlook in Philly. Are there signs of hope down the line?`\
 https://nytimes.com/athletic/6090659/2025/01/27/paul-george-sixers-nba-jase-richardson-michigan-state/
 
 **Trevor Bauer heading back to Japan after signing with Yokohama Bay Stars**\
-`Bauer hasn't pitched in the majors since 2021. The Yomiuri Giants are scheduled to play exhibitions against the Dodgers and Cubs in March.`\
+`Bauer spent 2023 with the Bay Stars and went 11-4 with a 2.59 ERA in 24 starts.`\
 https://nytimes.com/athletic/6088343/2025/01/27/trevor-bauer-japan-yokohama-bay-stars/
 
 **Displaced Palestinians Reunite With Loved Ones in Northern Gaza**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091506/2025/01/27/bundesliga-var-stadium-announcem
 **Wolves in talks to sign centre-back Danso from Lens**\
 `Wolverhampton Wanderers are in talks to sign centre-back Kevin Danso from Lens.`\
 https://nytimes.com/athletic/6091301/2025/01/27/kevin-danso-wolves-transfer-news/
-
-**Penguins Today: Crosby trade speculation, Malkin injury update**\
-`A lot happened with the Penguins over the weekend. Let's sift through it.`\
-https://nytimes.com/athletic/6091484/2025/01/27/penguins-sidney-crosby-trade-rumors-evgeni-malkin-injury-update/
 

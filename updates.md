@@ -1,3 +1,11 @@
+**Map: 3.8-Magnitude Earthquake Strikes off the Coast of Maine**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/01/27/weather/quake-tracker-gulf-of-maine.html
+
+**Trevor Bauer heading back to Japan after signing with Yokohama Bay Stars**\
+`Bauer spent 2023 with the Bay Stars and went 11-4 with a 2.59 ERA in 24 starts.`\
+https://nytimes.com/athletic/6088343/2025/01/27/trevor-bauer-japan-yokohama-bay-stars/
+
 **Hollinger's Week That Was: What's next in Philly? Plus, scouting Jase Richardson**\
 `Two weekend wins didn't change the overall outlook in Philly. Are there signs of hope down the line?`\
 https://nytimes.com/athletic/6090659/2025/01/27/paul-george-sixers-nba-jase-richardson-michigan-state/
