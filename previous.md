@@ -1,3 +1,7 @@
+**Yohe: Unfounded Sidney Crosby trade rumors are a tired waste of time**\
+`The constant speculation about Crosby being traded to Colorado has run its course and then some.`\
+https://nytimes.com/athletic/6087837/2025/01/27/penguins-avalanche-sidney-crosby-trade-rumors/
+
 **Palestinian Militant Group Releases Video of Civilian Hostage in Gaza**\
 `The civilian, Arbel Yehud, should have been among the first two groups of hostages released on Jan. 19 and Jan. 25 under the cease-fire deal, according to the Israeli authorities.`\
 https://nytimes.com/2025/01/27/world/middleeast/arbel-yehud-civilian-hostage-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009947068/explaining-future-of-
 **Trooper Who Said He Was Attacked Actually Shot Himself, Prosecutors Say**\
 `Thomas J. Mascia scattered casings around and then shot himself in the leg in a bid for attention, prosecutors said.`\
 https://nytimes.com/2025/01/27/nyregion/ny-state-trooper-fake-shooting.html
-
-**The Hitchhiker’s Guide to the Hummingbird**\
-`Tiny mites seem capable of relying on the power of static cling to hop into hummingbird nostrils and move between flowers.`\
-https://nytimes.com/2025/01/27/science/hummingbirds-flower-mites-static-cling.html
 

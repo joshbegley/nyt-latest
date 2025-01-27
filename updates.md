@@ -1,3 +1,7 @@
+**Yohe: Unfounded Sidney Crosby trade rumors are a tired waste of time**\
+`The constant speculation about Crosby being traded to Colorado has run its course and then some.`\
+https://nytimes.com/athletic/6087837/2025/01/27/penguins-avalanche-sidney-crosby-trade-rumors/
+
 **Palestinian Militant Group Releases Video of Civilian Hostage in Gaza**\
 `The civilian, Arbel Yehud, should have been among the first two groups of hostages released on Jan. 19 and Jan. 25 under the cease-fire deal, according to the Israeli authorities.`\
 https://nytimes.com/2025/01/27/world/middleeast/arbel-yehud-civilian-hostage-gaza.html
