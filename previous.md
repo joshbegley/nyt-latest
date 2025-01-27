@@ -1,3 +1,11 @@
+**Doug Emhoff to Return to Corporate Law**\
+`The husband of former Vice President Kamala Harris will advise companies in crisis as a partner at the law firm Willkie Farr & Gallagher.`\
+https://nytimes.com/2025/01/27/business/dealbook/doug-emhoff-kamala-harris-corporate-law.html
+
+**Palace's Riad expected to miss rest of season with serious knee injury**\
+`Crystal Palace are considering entering the transfer market this month for a centre-back after Chadi Riad sustained a serious knee injury in training.`\
+https://nytimes.com/athletic/6091098/2025/01/27/chadi-riad-crystal-palace-injury/
+
 **Bill Guerin on Wild's lackluster play: 'There's no excuse whatsoever for any of this'**\
 `Guerin didn't mince words in describing Minnesota's recent play during an intermission in Sunday's win over the Blackhawks.`\
 https://nytimes.com/athletic/6090603/2025/01/27/minnesota-wild-slump-bill-guerin-flames-blackhawks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6087757/2025/01/27/kansas-city-chiefs-buffalo-bills
 **Dodgers non-roster invitees: Who will accompany Roki Sasaki in big-league spring training?**\
 `Dalton Rushing, the Dodgers' top pick in the 2022 MLB Draft, ranks among the players who can make an impression this spring.`\
 https://nytimes.com/athletic/6088546/2025/01/27/dodgers-non-roster-invitees-roki-sasaki/
-
-**Willy Adames already connecting with Giants' next generation, including Josuar De Jesus**\
-`Adames met with several of the Giants international signees earlier this month, including Josuar De Jesus, who has the organization buzzing.`\
-https://nytimes.com/athletic/6090168/2025/01/27/sf-giants-willy-adames-leadership/
-
-**Chelsea are England's most dominant team, but they still need USWNT's Naomi Girma**\
-`Naomi Girma is one in a long line of big-name signings for Chelsea and she almost certainly won't be the last `\
-https://nytimes.com/athletic/6090831/2025/01/27/chelsea-wsl-dominance-naomi-girma-signing-column/
 

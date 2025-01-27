@@ -1,3 +1,11 @@
+**Doug Emhoff to Return to Corporate Law**\
+`The husband of former Vice President Kamala Harris will advise companies in crisis as a partner at the law firm Willkie Farr & Gallagher.`\
+https://nytimes.com/2025/01/27/business/dealbook/doug-emhoff-kamala-harris-corporate-law.html
+
+**Palace's Riad expected to miss rest of season with serious knee injury**\
+`Crystal Palace are considering entering the transfer market this month for a centre-back after Chadi Riad sustained a serious knee injury in training.`\
+https://nytimes.com/athletic/6091098/2025/01/27/chadi-riad-crystal-palace-injury/
+
 **Bill Guerin on Wild's lackluster play: 'There's no excuse whatsoever for any of this'**\
 `Guerin didn't mince words in describing Minnesota's recent play during an intermission in Sunday's win over the Blackhawks.`\
 https://nytimes.com/athletic/6090603/2025/01/27/minnesota-wild-slump-bill-guerin-flames-blackhawks/
