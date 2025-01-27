@@ -1,3 +1,15 @@
+**Chief Corruption Prosecutor Resigns From Justice Dept.**\
+`Corey Amundson chose to leave the department after being told he was being reassigned by the Trump administration to a position related to immigration enforcement.`\
+https://nytimes.com/2025/01/27/us/politics/chief-corruption-prosecutor.html
+
+**Behind the Colombia Blowup: Mapping Trump’s Rapid-Escalation Tactics**\
+`There were no Situation Room meetings and no quiet calls to de-escalate a dispute with an ally. Just threats, counterthreats, surrender and an indication of the president’s approach to Greenland and Panama.`\
+https://nytimes.com/2025/01/27/us/politics/trump-colombia-tariffs-deportation-flights.html
+
+**Submit your Ohio State football questions for Cameron Teague Robinson's mailbag**\
+`What's on your mind about the Buckeyes after their national championship run?`\
+https://nytimes.com/athletic/6092228/2025/01/27/ohio-state-football-mailbag-questions-8/
+
 **Denmark and Other Nations Under Pressure Seek Lobbyists With Trump Ties**\
 `The president’s confrontational foreign policy has created opportunity for his allies on K Street who are willing to take on clients he has targeted.`\
 https://nytimes.com/2025/01/27/us/politics/trump-denmark-panama-greenland-lobbyists.html
