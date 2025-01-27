@@ -1,3 +1,7 @@
+**Strong Dollar vs. Weak Dollar**\
+`President Trump is of two minds when it comes to America’s currency.`\
+https://nytimes.com/2025/01/27/briefing/donald-trump-currency.html
+
 **NBA Rewind: Predicting NBA All-Star reserves and remembering Kobe Bryant**\
 `On the fifth anniversary of Bryant's death, Zach Harper reflects on the Black Mamba's life and impact.`\
 https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lakers-nba-rewind/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090896/2025/01/27/cowboys-brian-schottenheimer-jer
 **'A third defenseman' — A strong puckhandling goalie can help your team in several ways**\
 `Goalies such as Seattle's Joey Daccord can help generate offense and also reduce the physical burden of their defensemen.`\
 https://nytimes.com/athletic/6087998/2025/01/27/goalie-puck-handling-daccord/
-
-**'No moral victories in this': Bills overachieved, just not for long enough**\
-`The Bills weren't expected to do much this season, but by the playoffs, looked like they could get over the hump.`\
-https://nytimes.com/athletic/6090708/2025/01/27/bills-chiefs-playoffs-loss-afc-championship/
 
