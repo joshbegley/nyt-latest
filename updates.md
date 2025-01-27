@@ -1,3 +1,11 @@
+**François Ponchaud, Who Alerted World to Cambodian Atrocities, Dies at 86**\
+`A French Catholic priest, he wrote a book recounting horrors committed by the Khmer Rouge that were responsible for the death of almost two million people.`\
+https://nytimes.com/2025/01/27/world/europe/francois-ponchaud-dead.html
+
+**Three lessons we can learn from looking back at decades of Giants top prospect lists**\
+`It's top MLB prospect list season. What can we learn from these lists?`\
+https://nytimes.com/athletic/6091873/2025/01/27/top-mlb-propspect-rankings-sf-giants-history/
+
 **What to Know About DeepSeek and How It Is Upending A.I.**\
 `How did a little-known Chinese start-up cause the markets and U.S. tech giants to quake? Here’s what to know.`\
 https://nytimes.com/2025/01/27/technology/what-is-deepseek-china-ai.html
