@@ -1,3 +1,7 @@
+**Bayern sign goalkeeper Urbig from Koln**\
+`Bayern Munich have completed the signing of goalkeeper Jonas Urbig from Koln.`\
+https://nytimes.com/athletic/6088950/2025/01/27/jonas-urbig-bayern-munich-transfer/
+
 **A Reporter Covering Wildfires Wonders: ‘Is My Home Next?’**\
 `Jack Healy, a Phoenix-based reporter who covered the aftermath of the Los Angeles fires, reflects on all he has in common with the evacuees he meets.`\
 https://nytimes.com/2025/01/27/us/living-in-fire-zones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092435/2025/01/27/jerry-jones-brian-schottenheimer
 **Ravens finalizing contract extension with OC Todd Monken: Source**\
 `Baltimore's offense led the NFL in total yards and rushing yards per game, and finished third in points per game this season.`\
 https://nytimes.com/athletic/6092408/2025/01/27/ravens-todd-monken-contract-extension/
-
-**Watch: What are the big offseason questions for the Commanders?**\
-`The Washington Commanders were the surprise team of the conference championships. The Athletic Football show explain why they can get back`\
-https://nytimes.com/athletic/6090925/2025/01/27/athletic-football-show-commanders-offseason/
 
