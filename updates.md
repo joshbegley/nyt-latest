@@ -1,3 +1,7 @@
+**Comic Book Publisher Drops Neil Gaiman Amid Sexual Misconduct Allegations**\
+`Dark Horse Comics announced it would no longer publish the author and canceled further publication of his “Anansi Boys” series.`\
+https://nytimes.com/2025/01/27/books/neil-gaiman-allegations-comic-book-publisher.html
+
 **Doug Emhoff to Return to Corporate Law**\
 `The husband of former Vice President Kamala Harris will advise companies in crisis as a partner at the law firm Willkie Farr & Gallagher.`\
 https://nytimes.com/2025/01/27/business/dealbook/doug-emhoff-kamala-harris-corporate-law.html
