@@ -1,3 +1,7 @@
+**Rebels Backed by Rwanda Announce Capture of Key City in Eastern Congo**\
+`The M23 militia, funded and directed by Rwanda, has seized the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
+https://nytimes.com/2025/01/27/world/africa/rebels-capture-goma-congo.html
+
 **Where Might Gov. Hochul Be Among Friends? At a Buffalo Bills Bar.**\
 `Gov. Kathy Hochul of New York, an unabashed fan of the Buffalo Bills, was perhaps never more popular than on Sunday in downtown Albany.`\
 https://nytimes.com/2025/01/27/nyregion/hochul-buffalo-bills-fans.html

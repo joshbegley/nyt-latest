@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6090790/2025/01/27/barcelona-valencia-la-liga-extre
 https://nytimes.com/2025/01/27/us/politics/trump-federal-government-california-water.html
 
 **Rebels Backed by Rwanda Announce Capture of Key City in Eastern Congo**\
-`The M23 militia, funded and directed by Rwanda, said it took the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
+`The M23 militia, funded and directed by Rwanda, has seized the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
 https://nytimes.com/2025/01/27/world/africa/rebels-capture-goma-congo.html
 
 **The Eagles did it their way in an NFC title game romp**\
