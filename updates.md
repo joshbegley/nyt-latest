@@ -1,3 +1,11 @@
+**The Bounce: Why the NBA has a surprising contender out West**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6091046/2025/01/27/rockets-alperen-sengun-west-kobe-bryant-lakers-nba-the-bounce/
+
+**Toumani Camara 'doesn’t give up': What opponents see in Trail Blazers' young defender**\
+`Opponents paint a portrait of one of the NBA’s up-and-coming defenders so convincing that they are open about wanting him on their team.`\
+https://nytimes.com/athletic/6081285/2025/01/27/toumani-camara-defense-trail-blazers-nba/
+
 **Heat Today: Kel'el Ware's NBA Rookie of the Year odds soar as playing time, impact increase**\
 `The 7-foot Ware has been a defensive force, and his offensive game is coming along as well. `\
 https://nytimes.com/athletic/6090131/2025/01/27/kelel-ware-tyler-herro-bam-adebayo-nba-rookie-of-the-year-heat/
