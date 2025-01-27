@@ -1,3 +1,7 @@
+**Submit your Reds questions for C. Trent Rosecrans' mailbag**\
+`With baseball season approaching, what questions are the Redleg faithful still asking leading up to the 2025 season?`\
+https://nytimes.com/athletic/6091634/2025/01/27/submit-your-reds-questions-for-c-trent-rosecrans-mailbag/
+
 **Musk Says Germany Has ‘Too Much of a Focus on Past Guilt’**\
 `His comments to the hard-right Alternative for Germany party escalated efforts by the billionaire to influence the country’s election for chancellor next month.`\
 https://nytimes.com/2025/01/27/world/europe/musk-germany-comments.html
