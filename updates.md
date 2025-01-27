@@ -1,3 +1,19 @@
+**What Kind of Dog Poop Bags Should I Use?**\
+`Are those green bags that claim to be compostable really better for the environment? We’ve got the scoop.`\
+https://nytimes.com/2025/01/27/climate/dog-poop-bags-biodegradable.html
+
+**The Easiest Way to Feel More Organized**\
+`Sometimes a little “soft decluttering” is all it takes.`\
+https://nytimes.com/2025/01/27/well/decluttering-small-projects.html
+
+**The 5 Best Full-Body Exercises, According to Trainers**\
+`We asked experts to to recommend the moves that offer the very most bang for your buck.`\
+https://nytimes.com/2025/01/27/well/the-5-best-full-body-exercises-according-to-trainers.html
+
+**Venice in Winter, With a Poet as Our Guide**\
+`A writer and his daughter wander the ancient city at night, inspired by Joseph Brodsky, the Russian writer who loved the city in its cold, quiet season.`\
+https://nytimes.com/2025/01/27/travel/venice-in-winter-joseph-brodsky.html
+
 **Clothes for Savvy, Elegant Adults? What an Idea.**\
 `The verdict on Peter Copping’s Lanvin debut.`\
 https://nytimes.com/2025/01/27/style/couture-lanvin-paris.html
