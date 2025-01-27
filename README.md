@@ -1,3 +1,11 @@
+**The Eagles did it their way in an NFC title game romp**\
+`Saquon Barkley did it again, Jalen Hurts had his best performance of the playoffs, and the Eagles are set for a Chiefs rematch.`\
+https://nytimes.com/athletic/6089664/2025/01/27/eagles-commanders-score-nfc-championship-game/
+
+**Word of the Day: inauspicious**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/27/learning/word-of-the-day-inauspicious.html
+
 **The suffering of Rasmus Hojlund**\
 `The Danish striker is starved of service and not posing a threat, but there do not seem to be any easy answers`\
 https://nytimes.com/athletic/6090434/2025/01/27/rasmus-hojlund-manchester-united-suffering/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6077697/2025/01/27/crystal-palace-esse-transfer-win
 **Forest's 5-0 loss hurts more than the last one - the dynamic at the club has changed**\
 `If Forest want to continue their remarkable journey, they cannot let their standards slip, even for a moment`\
 https://nytimes.com/athletic/6088888/2025/01/27/forest-bournemouth-defeat-nuno/
-
-**Why Vitor Pereira cannot be the latest Wolves manager to be left short-changed in a transfer window**\
-`Wolves cannot afford more near-misses or tales of deals that got away or the consequences for the club and their owners could be dire`\
-https://nytimes.com/athletic/6088158/2025/01/27/wolves-transfer-window-vitor-pereria/
-
-**David Moyes has made Everton comfortable in their own skin again - as Brighton found out**\
-`How a pragmatic masterclass on the south coast left the Brighton players and supporters enraged and deflated in equal measure`\
-https://nytimes.com/athletic/6088204/2025/01/27/everton-moyes-horribly-effective-premier-league/
 
