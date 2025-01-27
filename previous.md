@@ -1,3 +1,7 @@
+**Instant Esse impact is a timely lesson on squad depth for Crystal Palace**\
+`Palace's only signing of the transfer window had a debut to remember — no wonder Oliver Glasner is eager for more bodies to be added `\
+https://nytimes.com/athletic/6077697/2025/01/27/crystal-palace-esse-transfer-window/
+
 **Forest's 5-0 loss hurts more than the last one - the dynamic at the club has changed**\
 `If Forest want to continue their remarkable journey, they cannot let their standards slip, even for a moment`\
 https://nytimes.com/athletic/6088888/2025/01/27/forest-bournemouth-defeat-nuno/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089589/2025/01/27/tottenham-postecoglou-future-lev
 **'Fly high three beautiful butterflies' - how Southport FC helped a town in mourning**\
 `A football club is among those who have tried to help a shattered community through its darkest moments`\
 https://nytimes.com/athletic/6081054/2025/01/27/southport-town-in-mourning/
-
-**Gerard Pique interview: How his seven-a-side dream has gone global with help from Jake Paul**\
-`The former Barcelona defender on his Kings League project and his thoughts on Barcelona's problems`\
-https://nytimes.com/athletic/6080599/2025/01/27/gerard-pique-interview-how-his-7-a-side-dream-has-gone-global-with-help-from-jake-paul/
 
