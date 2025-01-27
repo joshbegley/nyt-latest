@@ -1,3 +1,7 @@
+**The Rebirth of the Library That Burned in Britain’s Anti-Immigrant Riots**\
+`After the Spellow Library in Liverpool was targeted during England’s unrest last summer, more than 10,000 people donated to its restoration.`\
+https://nytimes.com/2025/01/27/world/europe/library-riots-burned-uk-liverpool-spellow.html
+
 **In China, Government Data on Drugs Blocked From Public After Backlash**\
 `Criticism over how the Chinese government buys drugs for its public health care system has ignited frustration over the quality of medicine.`\
 https://nytimes.com/2025/01/27/business/china-drug-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/opinion/trump-immigration-jan6-pardons.html
 **Don’t Kill FEMA. Fix It.**\
 `Its long-term recovery efforts are terrible, but the agency’s crisis response remains critical.`\
 https://nytimes.com/2025/01/27/opinion/trump-fema-climate-change.html
-
-**Trump Administration Moves Swiftly to Shake Up Top Career Justice Dept. Ranks**\
-`The early days of the transition have been marked by dismissals, demotions and dread.`\
-https://nytimes.com/2025/01/27/us/trump-justice-department-career-ranks.html
 
