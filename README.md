@@ -1,3 +1,15 @@
+**Palestinian Militant Group Releases Video of Civilian Hostage in Gaza**\
+`The civilian, Arbel Yehud, should have been among the first two groups of hostages released on Jan. 19 and Jan. 25 under the cease-fire deal, according to the Israeli authorities.`\
+https://nytimes.com/2025/01/27/world/middleeast/arbel-yehud-civilian-hostage-gaza.html
+
+**AFCON 2025 draw: Morocco to open tournament against Comoros**\
+`Host nation Morocco have been drawn alongside Mali, Zambia and Comoros in the group stage of the 2025 Africa Cup of Nations (AFCON).`\
+https://nytimes.com/athletic/6092489/2025/01/27/afcon-2025-draw-morocco/
+
+**Why Al Golden's path home provided perfect connection for Zac Taylor, Bengals**\
+`The Bengals' new defensive coordinator kept his residence in Cincinnati after his first stint with the team and is excited to be back.`\
+https://nytimes.com/athletic/6092497/2025/01/27/al-golden-cincinnati-bengals-defensive-coordinator/
+
 **Nvidia Reels After China’s A.I. Breakthrough**\
 `The tech industry has had an insatiable appetite for Nvidia’s chips over the last two years. But the feast may be over sooner than many had expected.`\
 https://nytimes.com/2025/01/27/business/deepseek-nvidia-ai-chips.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/27/nyregion/ny-state-trooper-fake-shooting.html
 **The Hitchhiker’s Guide to the Hummingbird**\
 `Tiny mites seem capable of relying on the power of static cling to hop into hummingbird nostrils and move between flowers.`\
 https://nytimes.com/2025/01/27/science/hummingbirds-flower-mites-static-cling.html
-
-**Why Common Problems Are Often Worse Than We Realize**\
-`It’s called the “big problem paradox.”`\
-https://nytimes.com/2025/01/27/opinion/big-problem-paradox.html
-
-**Logan Thompson, Capitals agree to 6-year contract extension**\
-`Thompson ranks among the league leaders in save percentage (.925) and goals saved above expected (18) as a top goaltender this season.`\
-https://nytimes.com/athletic/6087259/2025/01/27/logan-thompson-contract-extension-capitals/
-
-**Jerry Jones likes his new coach's 'baggage,' says hiring was a 'risk'**\
-`Jones: 'He's had 25 years being around the kinds of things that he's gonna have to draw on to be a coach of the Dallas Cowboys."`\
-https://nytimes.com/athletic/6092435/2025/01/27/jerry-jones-brian-schottenheimer-risk-coach/
 
