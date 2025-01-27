@@ -1,3 +1,11 @@
+**The Vote to Confirm ‘a Wildly Unfit’ Pete Hegseth**\
+`Readers criticize the vote on the defense secretary nomination. Also: President Trump and tariffs; silencing health officials; firing of inspectors general; longevity.`\
+https://nytimes.com/2025/01/27/opinion/pete-hegseth-confirmation.html
+
+**DeepSeek’s Two Seismic Possibilities for American A.I.**\
+`The much-ballyhooed U.S. advantage may be much smaller than previously thought.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/deepseek-america-china-ai-advantage
+
 **Submit your Reds questions for C. Trent Rosecrans' mailbag**\
 `With baseball season approaching, what questions are the Redleg faithful still asking leading up to the 2025 season?`\
 https://nytimes.com/athletic/6091634/2025/01/27/submit-your-reds-questions-for-c-trent-rosecrans-mailbag/

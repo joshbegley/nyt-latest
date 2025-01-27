@@ -1,3 +1,11 @@
+**The Vote to Confirm ‘a Wildly Unfit’ Pete Hegseth**\
+`Readers criticize the vote on the defense secretary nomination. Also: President Trump and tariffs; silencing health officials; firing of inspectors general; longevity.`\
+https://nytimes.com/2025/01/27/opinion/pete-hegseth-confirmation.html
+
+**DeepSeek’s Two Seismic Possibilities for American A.I.**\
+`The much-ballyhooed U.S. advantage may be much smaller than previously thought.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/deepseek-america-china-ai-advantage
+
 **Submit your Reds questions for C. Trent Rosecrans' mailbag**\
 `With baseball season approaching, what questions are the Redleg faithful still asking leading up to the 2025 season?`\
 https://nytimes.com/athletic/6091634/2025/01/27/submit-your-reds-questions-for-c-trent-rosecrans-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/27/world/europe/ukraine-weapons-agency-standoff.html
 **Is there a conspiracy against Arsenal? Probably not, but the feeling is real**\
 `VAR, PGMOL statements and former referees' comments in the media can often enflame the discussion over refereeing decisions and anger fans`\
 https://nytimes.com/athletic/6090960/2025/01/27/referees-arsenal-pgmol-decisions/
-
-**A Ginger Scallion Chicken in Every Pot**\
-`Genevieve Ko’s brilliant one-pot take on Hainanese chicken rice is just the thing for a meh Monday. Also: It’s Dumpling Week!`\
-https://nytimes.com/2025/01/27/dining/a-ginger-scallion-chicken-in-every-pot.html
-
-**3.8-Magnitude Earthquake Felt in Boston and Maine**\
-`There were no immediate reports of injuries or damage after the light but rare earthquake on Monday morning.`\
-https://nytimes.com/2025/01/27/us/earthquake-boston-new-hampshire-maine.html
 
