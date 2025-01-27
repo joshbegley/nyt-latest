@@ -1,3 +1,7 @@
+**Listen: Why it's impossible to pick Bournemouth's standout player**\
+`After another masterful performance at the weekend, Bournemouth's stunning season is discussed on The Totally Football Show`\
+https://nytimes.com/athletic/6091025/2025/01/27/totally-football-show-best-bournemouth-players/
+
 **Listen: Why Chelsea have seen this movie before with their goalkeeper**\
 `After Robert Sanchez's costly mistake against Manchester City, Straight Outta Cobham question his future as Chelsea's first-choice keeper`\
 https://nytimes.com/athletic/6092157/2025/01/27/straight-outta-cobham-podcast-robert-sanchez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092194/2025/01/27/nfl-chiefs-controversial-call-su
 **Weight Tossed in Indoor Hammer Throw Event Kills Spectator at Track Meet**\
 `The University of Colorado Colorado Springs, which hosted the event, said the implement had “cleared certified barriers.”`\
 https://nytimes.com/2025/01/27/sports/hammer-spectator-killed-colorado.html
-
-**Chief Corruption Prosecutor Resigns From Justice Dept.**\
-`Corey Amundson chose to leave the department after being told he was being reassigned by the Trump administration to a position related to immigration enforcement.`\
-https://nytimes.com/2025/01/27/us/politics/chief-corruption-prosecutor.html
 
