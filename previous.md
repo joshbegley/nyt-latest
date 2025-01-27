@@ -1,3 +1,11 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Pose your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6090922/2025/01/27/newcastle-transfers-howe-isak/
+
+**FPL: What we learned from Gameweek 23 -Ndiaye flies and is it time to sell Wood?**\
+`Liverpool maintained their lead at the top of the table in Gameweek 23 and their best Fantasy Premier League assets gave us an emphatic reminder of their talents before a crucial double gameweek.`\
+https://nytimes.com/athletic/6089729/2025/01/27/fantasy-premier-league-gameweek-23-ndiaye-mbeumo-ouattara/
+
 **Gazans head north on crutches, in wheelchairs and piled into strollers.**\
 `By Matthew Mpoke Bigg and Maud Bodoukian`\
 https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/gazans-head-north-on-crutches-in-wheelchairs-and-piled-into-strollers
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6087121/2025/01/27/nfl-draft-2025-qb-prospects-seni
 **The Athletic FC: Fallout from Lewis-Skelly tackle, Amorim takes aim at Rashford**\
 `Today in TAFC: The Arsenal tackle that caused chaos and led to abuse, Wissa's early celebration, Amorim's dig at Rashford.`\
 https://nytimes.com/athletic/6090929/2025/01/27/lewis-skelly-tackle-red-amorim-rashford/
-
-**Weekend NHL rankings: The Mikko Rantanen blockbuster shakes up the league**\
-`The Hurricanes and Avalanche shook up the hockey world on Friday — and the top five as well.`\
-https://nytimes.com/athletic/6089722/2025/01/27/nhl-weekend-rankings-rantanen-trade-hurricanes/
-
-**E.U. Prepares to Cautiously Pare Back Sanctions on Syria**\
-`Member countries’ foreign ministers are meeting to discuss a “road map” to lift financial restrictions, but any change will happen in stages.`\
-https://nytimes.com/2025/01/27/world/europe/eu-syria-sanctions.html
 

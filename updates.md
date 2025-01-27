@@ -1,3 +1,11 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Pose your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6090922/2025/01/27/newcastle-transfers-howe-isak/
+
+**FPL: What we learned from Gameweek 23 -Ndiaye flies and is it time to sell Wood?**\
+`Liverpool maintained their lead at the top of the table in Gameweek 23 and their best Fantasy Premier League assets gave us an emphatic reminder of their talents before a crucial double gameweek.`\
+https://nytimes.com/athletic/6089729/2025/01/27/fantasy-premier-league-gameweek-23-ndiaye-mbeumo-ouattara/
+
 **Gazans head north on crutches, in wheelchairs and piled into strollers.**\
 `By Matthew Mpoke Bigg and Maud Bodoukian`\
 https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/gazans-head-north-on-crutches-in-wheelchairs-and-piled-into-strollers
