@@ -1,3 +1,7 @@
+**One of Hegseth’s first directives at the Pentagon targets D.E.I.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2025/01/27/us/trump-news/one-of-hegseths-first-directives-at-the-pentagon-targets-dei
+
 **Gazans Crowd the Road North, Joyful but Anxious**\
 `For nearly 16 months, hundreds of thousands of displaced Palestinians have lived in tents, barred from returning to northern Gaza. On Monday, Israel allowed them to walk back.`\
 https://nytimes.com/2025/01/27/world/middleeast/gaza-road-north.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090603/2025/01/27/minnesota-wild-slump-bill-guerin
 **Men’s basketball Top 25: Defenses doing damage as February arrives**\
 `As we approach the midpoint of conference play, let's take a closer look at some teams rising up the rankings thanks to their defense.`\
 https://nytimes.com/athletic/6090436/2025/01/27/mens-college-basketball-top-25-auburn-houston/
-
-**What I saw in the PWHL this week: Sceptres get much-needed win, but what hasn't been working?**\
-`Toronto defeated New York 4-2 at Scotiabank Arena on Saturday but sits last in the PWHL standings. What's behind its struggles this season?`\
-https://nytimes.com/athletic/6090674/2025/01/27/pwhl-toronto-sceptres-win-new-york-sirens/
 
