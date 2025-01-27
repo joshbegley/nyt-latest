@@ -1,3 +1,7 @@
+**Trump Paralyzes Independent Rights Watchdog, Firing Members Selected by Democrats**\
+`The move removed three of the four sitting members of the Privacy and Civil Liberties Oversight Board, leaving it unable to act as the Trump administration begins reshaping intelligence agencies.`\
+https://nytimes.com/2025/01/27/us/politics/trump-fires-independent-watchdog-officials.html
+
 **Thousands Flee as Rebel Militia Captures the City of Goma**\
 `A Rwandan-backed militia, called M23, said that hey captured the city of Goma in eastern Democratic Republic of Congo.`\
 https://nytimes.com/video/world/africa/100000009951749/rebels-capture-goma.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/us/desantis-florida-trump-immigration.html
 **Astros pursuing Jorge Polanco as Alex Bregman sweepstakes continue: Sources**\
 `With Bregman weighing his options, the Astros could look to target a less expensive player in Polanco who is coming off knee surgery.`\
 https://nytimes.com/athletic/6092721/2025/01/27/astros-jorge-polanco-alex-bregman-sweepstakes/
-
-**Heat suspend Jimmy Butler indefinitely**\
-`Butler, the disgruntled forward who has sought a trade from Miami, left the team's shootaround on Monday.`\
-https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-heat-trade-rumors/
 
