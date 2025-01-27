@@ -1,3 +1,7 @@
+**Sweden Suspects ‘Gross Sabotage’ After Damage to Cable Under Baltic Sea**\
+`The Nordic country has opened an investigation into the damage, just weeks after NATO stepped up its military presence in the area following a series of similar incidents.`\
+https://nytimes.com/2025/01/27/world/europe/cable-baltic-sea-sweden-damage.html
+
 **Is 2025 NFL Draft's sleeper QB prospect at the Senior Bowl? Storylines to watch in Mobile**\
 `There will be plenty of potential top-50 prospects on the field this week. Who's going to emerge as Senior Bowl standouts?`\
 https://nytimes.com/athletic/6087121/2025/01/27/nfl-draft-2025-qb-prospects-senior-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088734/2025/01/27/aryna-sabalenka-tennis-brand-dea
 **Israeli Forces Again Open Fire as Lebanese Try to Return Home, Lebanese Officials Say**\
 `For a second day, Lebanese were defying Israeli warnings and attempting to reach southern border towns that remained occupied by Israeli troops. At least two people were injured, officials said.`\
 https://nytimes.com/2025/01/27/world/middleeast/israel-lebanon-hezbollah-strikes-ceasefire.html
-
-**Ben Johnson and the Bears: 5 lingering questions about the hire and what's next**\
-`Johnson has passed several tests already, but there are still questions about how it will all work out for the Bears' new coach.`\
-https://nytimes.com/athletic/6086754/2025/01/27/bears-ben-johnson-lingering-questions/
 
