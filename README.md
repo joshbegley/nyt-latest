@@ -1,3 +1,7 @@
+**An attempt to explain Barcelona - a brilliant, bewildering team of extremes**\
+`Wild swings between superb wins and frustrating defeats are to be expected with a young side, but the future looks positive either way`\
+https://nytimes.com/athletic/6090790/2025/01/27/barcelona-valencia-la-liga-extremes/
+
 **Trump Seeks to Assert More Control Over California’s Water**\
 `The president, who has assailed California’s leaders over wildfires, issued the directive in an executive order that was dated Friday but released on Sunday.`\
 https://nytimes.com/2025/01/27/us/politics/trump-federal-government-california-water.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/arts/television/tv-this-week-mo-maine-cabin-maste
 **Monday Briefing**\
 `Cease-fires under pressure.`\
 https://nytimes.com/2025/01/27/briefing/gaza-lebanon-colombia-deportations.html
-
-**How Miyazawa finally found her place at Manchester United**\
-`The Japan international is helping to turn United into credible WSL title contenders after her potential was unlocked`\
-https://nytimes.com/athletic/6090182/2025/01/27/hinata-miyazawa-manchester-united/
 
