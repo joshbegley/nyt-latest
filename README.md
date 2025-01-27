@@ -1,3 +1,15 @@
+**Wolves in talks to sign centre-back Danso from Lens**\
+`Wolverhampton Wanderers are in talks to sign centre-back Kevin Danso from Lens.`\
+https://nytimes.com/athletic/6091301/2025/01/27/kevin-danso-wolves-transfer-news/
+
+**Penguins Today: Crosby trade speculation, Malkin injury update**\
+`A lot happened with the Penguins over the weekend. Let's sift through it.`\
+https://nytimes.com/athletic/6091484/2025/01/27/penguins-sidney-crosby-trade-rumors-evgeni-malkin-injury-update/
+
+**One of 2025’s Biggest Battles Over Abortion Rights Has Already Begun**\
+`A contest for control of Wisconsin’s top court may be even nastier and more expensive than its bitter 2023 predecessor, with the fate of an 1849 abortion ban and other policies at stake.`\
+https://nytimes.com/2025/01/27/us/politics/wisconsin-supreme-court-race.html
+
 **Khris Middleton's lackluster game against the Clippers: Rust, regression or third wheel?**\
 `Middleton went scoreless for the second time this season and looked out of sync. We re-watched his performance to see what went wrong.`\
 https://nytimes.com/athletic/6089686/2025/01/27/khris-middleton-bucks-clippers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6090734/2025/01/27/canadiens-lane-hutson-patrik-lai
 **One of Hegseth’s first directives at the Pentagon targets D.E.I.**\
 `By Eric Schmitt`\
 https://nytimes.com/2025/01/27/us/politics/one-of-hegseths-first-directives-at-the-pentagon-targets-dei.html
-
-**Gazans Crowd the Road North, Joyful but Anxious**\
-`For nearly 16 months, hundreds of thousands of displaced Palestinians have lived in tents, barred from returning to northern Gaza. On Monday, Israel allowed them to walk back.`\
-https://nytimes.com/2025/01/27/world/middleeast/northern-gaza-palestinians-return.html
-
-**Three burning questions for Nebraska, Matt Rhule on special teams, roster limits and more**\
-`The spring calendar is yet to be finalized for Rhule and the Huskers. `\
-https://nytimes.com/athletic/6091254/2025/01/27/nebraska-matt-rhule-offseason-questions-college-football-special-teams/
-
-**Mason McTavish's huge week reminds all that he can be more than 'third-line guy'**\
-`The Ducks center has almost doubled his goal total in the past week with five goals in three games.`\
-https://nytimes.com/athletic/6090242/2025/01/27/mason-mctavish-anaheim-ducks-scoring-cronin/
 
