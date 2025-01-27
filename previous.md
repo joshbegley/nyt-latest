@@ -1,3 +1,7 @@
+**Patrick Mahomes at his best as Chiefs return to Super Bowl with a chance to three-peat**\
+`The Chiefs outlasted the Bills in another postseason thriller to become the first team to reach five Super Bowls in six seasons.`\
+https://nytimes.com/athletic/6090813/2025/01/27/chiefs-patrick-mahomes-afc-championship-bills/
+
 **Analyzing Ravens' biggest offseason questions: What's next for Mark Andrews?**\
 `Plus, how will contract negotiations with John Harbaugh go? And what will Baltimore prioritize in this year's NFL Draft?`\
 https://nytimes.com/athletic/6088040/2025/01/27/ravens-offseason-questions-mark-andrews/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/us/politics/trump-birthright-citizenship-dred-sco
 **Is There Still a Rule Against Wearing Brown Shoes With Blue Pants?**\
 `Our fashion critic discusses the evolution of dress codes, including how rules — like one discouraging brown shoes with blue or black trousers — can come in and out of favor.`\
 https://nytimes.com/2025/01/27/style/brown-shoes-blue-pants-men.html
-
-**What We Know About Bird Flu**\
-`In recent months, bird flu has started raising red flags among scientists and public health officials. Apoorva Mandavilli, a New York Times reporter who covers infectious diseases, explains why we need to start taking bird flu seriously.`\
-https://nytimes.com/video/science/100000009949485/what-we-know-about-bird-flu.html
 

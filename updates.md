@@ -1,3 +1,7 @@
+**Patrick Mahomes at his best as Chiefs return to Super Bowl with a chance to three-peat**\
+`The Chiefs outlasted the Bills in another postseason thriller to become the first team to reach five Super Bowls in six seasons.`\
+https://nytimes.com/athletic/6090813/2025/01/27/chiefs-patrick-mahomes-afc-championship-bills/
+
 **Man Utd fans demand ticket price freeze in letter to Ratcliffe**\
 `Manchester United supporters have called on the club to freeze ticket prices and &#8220;end the war on season ticket holders&#8221; in an open letter to Sir Jim Ratcliffe.`\
 https://nytimes.com/athletic/6090867/2025/01/27/manchester-united-ticket-prices-ratcliffe/
