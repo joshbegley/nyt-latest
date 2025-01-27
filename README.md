@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6089952/2025/01/27/nhl-trades-jt-miller-elias-pette
 `The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
 https://nytimes.com/2025/01/27/us/trump-executive-order-transgender-lawsuit.html
 
+**Fantasy hockey: Rest of season rankings and player projections for 2024-25**\
+`Dom Luszczyszyn offers up his seventh in-season update to his 2024-25 fantasy hockey rest-of-season rankings and player projections.`\
+https://nytimes.com/athletic/5882585/2025/01/27/fantasy-hockey-rest-of-season-rankings-player-projections-2024-25/
+
 **The Vote to Confirm ‘a Wildly Unfit’ Pete Hegseth**\
 `Readers criticize the vote on the defense secretary nomination. Also: President Trump and tariffs; silencing health officials; firing of inspectors general; longevity.`\
 https://nytimes.com/2025/01/27/opinion/pete-hegseth-confirmation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/opinion/pete-hegseth-confirmation.html
 **DeepSeek’s Two Seismic Possibilities for American A.I.**\
 `The much-ballyhooed U.S. advantage may be much smaller than previously thought.`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/deepseek-america-china-ai-advantage
-
-**Submit your Reds questions for C. Trent Rosecrans' mailbag**\
-`With baseball season approaching, what questions are the Redleg faithful still asking leading up to the 2025 season?`\
-https://nytimes.com/athletic/6091634/2025/01/27/submit-your-reds-questions-for-c-trent-rosecrans-mailbag/
 
