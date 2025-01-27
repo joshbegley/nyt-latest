@@ -1,3 +1,15 @@
+**Is there a conspiracy against Arsenal? Probably not, but the feeling is real**\
+`VAR, PGMOL statements and former referees' comments in the media can often enflame the discussion over refereeing decisions and anger fans`\
+https://nytimes.com/athletic/6090960/2025/01/27/referees-arsenal-pgmol-decisions/
+
+**A Ginger Scallion Chicken in Every Pot**\
+`Genevieve Ko’s brilliant one-pot take on Hainanese chicken rice is just the thing for a meh Monday. Also: It’s Dumpling Week!`\
+https://nytimes.com/2025/01/27/dining/a-ginger-scallion-chicken-in-every-pot.html
+
+**3.8-Magnitude Earthquake Felt in Boston and Maine**\
+`There were no immediate reports of injuries or damage after the light but rare earthquake on Monday morning.`\
+https://nytimes.com/2025/01/27/us/earthquake-boston-new-hampshire-maine.html
+
 **Map: 3.8-Magnitude Earthquake Strikes off the Coast of Maine**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/27/weather/quake-tracker-gulf-of-maine.html
