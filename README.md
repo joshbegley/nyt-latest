@@ -1,3 +1,7 @@
+**Liam Coen on Jaguars job: 'This was an opportunity you just can't pass up'**\
+`Jacksonville's new coach addressed last week's whirlwind of activity that saw him going from staying in Tampa Bay to joining the Jaguars.`\
+https://nytimes.com/athletic/6092883/2025/01/27/liam-coen-jaguars-job-shad-khan/
+
 **Survivors Commemorate 80th Anniversary Auschwitz Liberation**\
 `Survivors of Auschwitz, where the Nazis murdered more than 1.1 million people, urged world leaders to be vigilant against a dangerous rise in antisemitism and extremism during a ceremony commemorating the anniversary of the death camp’s liberation in 1945.`\
 https://nytimes.com/video/world/europe/100000009951525/auschwitz-liberation-80th-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6083315/2025/01/27/renato-veiga-juventus-transfer-c
 **World Bank Warns Colombian Staff Against U.S. Travel After Trump Visa Edict**\
 `Several Colombians whose visas were revoked were World Bank employees traveling in the United States at the time. They were deported.`\
 https://nytimes.com/2025/01/20/us/politics/trump-visas-colombia-world-bank.html
-
-**Lions' Dan Campbell tabs John Morton as offensive coordinator: Source**\
-`Detroit coach Dan Campbell is turning to someone he has worked with in the past to replace Ben Johnson as OC. `\
-https://nytimes.com/athletic/6092650/2025/01/27/lions-john-morton-offensive-coordinator-dan-campbell/
 
