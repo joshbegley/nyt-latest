@@ -1,3 +1,11 @@
+**A Troubling Spike in Sleep-Related Infant Deaths**\
+`A new study found that U.S. infant mortality rates overall are dropping, but that rates of sudden unexpected infant death may have increased in recent years.`\
+https://nytimes.com/2025/01/27/well/mind/sids-suid-infant-deaths.html
+
+**Scoop City: Controversial calls as Chiefs, Eagles head to Super Bowl**\
+`Inside: A weekend recap, controversial calls, brief Super Bowl preview and coaching updates from Las Vegas, Dallas and New Orleans.`\
+https://nytimes.com/athletic/6092194/2025/01/27/nfl-chiefs-controversial-call-super-bowl-scoop-city/
+
 **Weight Tossed in Indoor Hammer Throw Event Kills Spectator at Track Meet**\
 `The University of Colorado Colorado Springs, which hosted the event, said the implement had “cleared certified barriers.”`\
 https://nytimes.com/2025/01/27/sports/hammer-spectator-killed-colorado.html
