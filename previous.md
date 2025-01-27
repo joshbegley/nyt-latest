@@ -1,3 +1,11 @@
+**Eagles' NFC Championship Game win by the numbers: Every stat to know**\
+`Philadelphia's Saquon Barkley-led rushing attack rewrote both NFL and team record books on Sunday.`\
+https://nytimes.com/athletic/6089973/2025/01/26/eagles-record-breaking-nfc-championship-statistics-superbowl/
+
+**The Question Trap**\
+`Loaded questions that serve as a proxy for something else.`\
+https://nytimes.com/2025/01/26/podcasts/the-question-trap-this-american-life-nyt-audio.html
+
 **Israeli Army Raids Home of Freed Hamas Member Amid Tensions Over Hostage Deal**\
 `Soldiers disrupted a Jerusalem gathering to mark the early release of an imprisoned Palestinian, arresting his brother and roughing up his father. A Times reporter conducting interviews was also assaulted.`\
 https://nytimes.com/2025/01/26/world/middleeast/israel-army-palestinian-prisoners.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championsh
 **A hidden threat from rain on a burn scar: poisons in the runoff.**\
 `By Kate Selig`\
 https://nytimes.com/live/2025/01/26/us/california-wildfires-los-angeles/a-hidden-threat-from-rain-on-a-burn-scar-poisons-in-the-runoff
-
-**Jalen Hurts sets rushing TD mark for quarterbacks in playoffs**\
-`The Eagles quarterback is one of two QBs to run for three touchdowns in a playoff game. `\
-https://nytimes.com/athletic/6089864/2025/01/26/jalen-hurts-josh-allen-nfl-playoffs-rushing-touchdown-record/
-
-**Some Protestants Felt Invisible. Then Came Bishop Budde.**\
-`The bishop asked President Trump publicly to “have mercy,” electrifying some liberal churchgoers in an era dominated by conservative versions of Christianity.`\
-https://nytimes.com/2025/01/26/us/bishop-mariann-budde-trump-christian.html
 

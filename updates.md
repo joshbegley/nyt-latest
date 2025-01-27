@@ -1,3 +1,11 @@
+**Eagles' NFC Championship Game win by the numbers: Every stat to know**\
+`Philadelphia's Saquon Barkley-led rushing attack rewrote both NFL and team record books on Sunday.`\
+https://nytimes.com/athletic/6089973/2025/01/26/eagles-record-breaking-nfc-championship-statistics-superbowl/
+
+**The Question Trap**\
+`Loaded questions that serve as a proxy for something else.`\
+https://nytimes.com/2025/01/26/podcasts/the-question-trap-this-american-life-nyt-audio.html
+
 **Israeli Army Raids Home of Freed Hamas Member Amid Tensions Over Hostage Deal**\
 `Soldiers disrupted a Jerusalem gathering to mark the early release of an imprisoned Palestinian, arresting his brother and roughing up his father. A Times reporter conducting interviews was also assaulted.`\
 https://nytimes.com/2025/01/26/world/middleeast/israel-army-palestinian-prisoners.html
