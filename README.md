@@ -1,3 +1,15 @@
+**The Athletic FC: Fallout from Lewis-Skelly tackle, Amorim takes aim at Rashford**\
+`Today in TAFC: The Arsenal tackle that caused chaos and led to abuse, Wissa's early celebration, Amorim's dig at Rashford.`\
+https://nytimes.com/athletic/6090929/2025/01/27/lewis-skelly-tackle-red-amorim-rashford/
+
+**Weekend NHL rankings: The Mikko Rantanen blockbuster shakes up the league**\
+`The Hurricanes and Avalanche shook up the hockey world on Friday — and the top five as well.`\
+https://nytimes.com/athletic/6089722/2025/01/27/nhl-weekend-rankings-rantanen-trade-hurricanes/
+
+**E.U. Prepares to Cautiously Pare Back Sanctions on Syria**\
+`Member countries’ foreign ministers are meeting to discuss a “road map” to lift financial restrictions, but any change will happen in stages.`\
+https://nytimes.com/2025/01/27/world/europe/eu-syria-sanctions.html
+
 **Strong Dollar vs. Weak Dollar**\
 `President Trump is of two minds when it comes to America’s currency.`\
 https://nytimes.com/2025/01/27/briefing/donald-trump-currency.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6086754/2025/01/27/bears-ben-johnson-lingering-ques
 **Midseason All-America team: Cooper Flagg, Johni Broome, Kam Jones and more**\
 `A Purdue guard filling huge shoes and a star transfer for Memphis are also among those honored on our midseason team.`\
 https://nytimes.com/athletic/6089499/2025/01/27/mens-college-basketball-all-america-team-cooper-flagg-midseason/
-
-**Trent Baalke and the Jaguars were once on the Lions' path. Where did it go wrong?**\
-`The Jaguars and Lions were tracking almost identically until about 14 months ago, but Detroit's build had a much sturdier foundation.`\
-https://nytimes.com/athletic/6090909/2025/01/27/trent-baalke-jaguars-brad-holmes-lions/
-
-**The Cowboys got crushed for hiring Brian Schottenheimer as head coach. Did they deserve it?**\
-`It shouldn't shock anyone if Schottenheimer wins more games over the next two seasons than Ben Johnson wins with the Chicago Bears.`\
-https://nytimes.com/athletic/6090896/2025/01/27/cowboys-brian-schottenheimer-jerry-jones/
-
-**'A third defenseman' — A strong puckhandling goalie can help your team in several ways**\
-`Goalies such as Seattle's Joey Daccord can help generate offense and also reduce the physical burden of their defensemen.`\
-https://nytimes.com/athletic/6087998/2025/01/27/goalie-puck-handling-daccord/
 
