@@ -1,3 +1,7 @@
+**Commanders filled with disappointment while appreciating this season's journey**\
+`“There’s a lot to take away from (this season),” said coach Dan Quinn as Washington fell to the Eagles in the NFC title game. `\
+https://nytimes.com/athletic/6086815/2025/01/27/commanders-nfc-championship-loss-eagles/
+
 **Instant Esse impact is a timely lesson on squad depth for Crystal Palace**\
 `Palace's only signing of the transfer window had a debut to remember — no wonder Oliver Glasner is eager for more bodies to be added `\
 https://nytimes.com/athletic/6077697/2025/01/27/crystal-palace-esse-transfer-window/
