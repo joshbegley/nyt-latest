@@ -1,3 +1,19 @@
+**Man Pardoned in Jan. 6 Riot Is Fatally Shot by Deputy During Traffic Stop**\
+`The police said that Matthew W. Huttle, 42, of Hobart, Ind., who was sentenced to six months for his role in the riot at the U.S. Capitol in 2021, resisted arrest after he was stopped by a deputy in Indiana on Sunday.`\
+https://nytimes.com/live/2025/01/27/us/trump-news/jan-6-rioter-shot-indiana-traffic-stop
+
+**Steelers aim to re-sign Wilson or Fields, 'probably' not both, owner says**\
+`Rooney said on Monday that he believes in both Russell Wilson and Justin Fields and would prefer to sign one of the two passers`\
+https://nytimes.com/athletic/6092672/2025/01/27/steelers-russell-wilson-justin-fields-art-rooney/
+
+**Trump Administration Halts H.I.V. Drug Distribution in Poor Countries**\
+`PEPFAR’s computer systems also are being taken offline, a sign that the program may not return, as Republican critics had hoped.`\
+https://nytimes.com/2025/01/27/health/pepfar-trump-freeze.html
+
+**Senate Confirms Scott Bessent as Treasury Secretary**\
+`Bessent, a hedge fund manager, becomes the nation’s 79th Treasury secretary. He will lead President Trump’s economic agenda.`\
+https://nytimes.com/2025/01/27/us/politics/scott-bessent-treasury-secretary-vote.html
+
 **A Chinese A.I. Company Rattled the Tech World**\
 `Also, bird flu has entered a new phase. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/01/27/briefing/chinese-ai-market-turmoil-beyond-dry-january.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/27/us/politics/trump-fires-independent-watchdog-offi
 **Thousands Flee as Rebel Militia Captures the City of Goma**\
 `A Rwandan-backed militia, called M23, said that hey captured the city of Goma in eastern Democratic Republic of Congo.`\
 https://nytimes.com/video/world/africa/100000009951749/rebels-capture-goma.html
-
-**Another U.S. and NWSL defender heads to Women's Super League in England**\
-`The 24-year-old defender is the most recent in a string of NWSL players to head to England.`\
-https://nytimes.com/athletic/6092728/2025/01/27/arsenal-gotham-transfer-jenna-nighswonger-nwsl/
-
-**Fired Inspectors General Raise Alarms as Trump Administration Moves to Finalize Purge**\
-`The full scope of the Friday night mass firings was coming into sharper view as one fired watchdog official warned of “a never-ending cycle of politicization.”`\
-https://nytimes.com/2025/01/27/us/politics/trump-inspectors-general-fired.html
-
-**Super Bowl 59 MVP odds: Mahomes nearly even-money favorite ahead of Barkley, Hurts**\
-`Patrick Mahomes is roughly an even-money favorite to win Super Bowl MVP. Saquon Barkley is second ahead of Jalen Hurts.`\
-https://nytimes.com/athletic/6092340/2025/01/27/super-bowl-59-mvp-odds-patrick-mahomes/
-
-**Chelsea's Veiga completes Juventus loan move**\
-`Juventus have completed the signing of Renato Veiga on loan from Chelsea until the end of the season.`\
-https://nytimes.com/athletic/6083315/2025/01/27/renato-veiga-juventus-transfer-chelsea/
 
