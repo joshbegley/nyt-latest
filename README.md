@@ -1,3 +1,11 @@
+**NBA Rewind: Predicting NBA All-Star reserves and remembering Kobe Bryant**\
+`On the fifth anniversary of Bryant's death, Zach Harper reflects on the Black Mamba's life and impact.`\
+https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lakers-nba-rewind/
+
+**Inside Patrick Mahomes 'superhero' transformation and another Chiefs AFC title**\
+`The Chiefs are AFC champions again it would be foolish to presume that Mahomes won’t find a way to seize another Lombardi Trophy.`\
+https://nytimes.com/athletic/6090684/2025/01/27/patrick-mahomes-chiefs-super-bowl-superhero/
+
 **Aryna Sabalenka is at the top of women's tennis. Her endorsements and brand deals don't yet match up**\
 `The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport.`\
 https://nytimes.com/athletic/6088734/2025/01/27/aryna-sabalenka-tennis-brand-deals-endorsements-value/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6087998/2025/01/27/goalie-puck-handling-daccord/
 **'No moral victories in this': Bills overachieved, just not for long enough**\
 `The Bills weren't expected to do much this season, but by the playoffs, looked like they could get over the hump.`\
 https://nytimes.com/athletic/6090708/2025/01/27/bills-chiefs-playoffs-loss-afc-championship/
-
-**Gazans Trek Home, and Trump’s Tariff Spat With Colombia**\
-`Plus, a Super Bowl three-peat?`\
-https://nytimes.com/2025/01/27/podcasts/headlines-israel-gaza-cease-fire.html
-
-**Matt LaFleur's playcalling, big trade chances, offseason needs: Packers mailbag**\
-`The Packers embark on an important offseason after their GM said it's time to start competing for championships.`\
-https://nytimes.com/athletic/6089362/2025/01/27/packers-mailbag-matt-lafleur-nfl-draft/
 
