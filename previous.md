@@ -1,3 +1,7 @@
+**Bill Guerin on Wild's lackluster play: 'There's no excuse whatsoever for any of this'**\
+`Guerin didn't mince words in describing Minnesota's recent play during an intermission in Sunday's win over the Blackhawks.`\
+https://nytimes.com/athletic/6090603/2025/01/26/minnesota-wild-slump-bill-guerin-flames-blackhawks/
+
 **Commanders' magical season ends, but the foundation for long-term success is in place**\
 `Washington was dominated by Philadelphia in the NFC championship, but it's hard not to believe this group won't be back on that stage soon.`\
 https://nytimes.com/athletic/6089439/2025/01/26/commanders-lose-eagles-nfc-championship-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-
 **Storm trade Jewell Loyd to Aces, Sparks get Kelsey Plum in 3-team trade**\
 `The three teams are also exchanging 2025 draft picks as part of the trade.`\
 https://nytimes.com/athletic/6090208/2025/01/26/kelsey-plum-jewell-loyd-aces-sparks-storm-trade/
-
-**Senators expected to announce training camp, possible preseason games in Quebec City**\
-`Senators owner Michael Andlauer is expected to attend a press conference at Quebec City's Videotron Centre to announce the news.`\
-https://nytimes.com/athletic/6090102/2025/01/26/ottawa-senators-preseason-quebec-city-andlauer/
 
