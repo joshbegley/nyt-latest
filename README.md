@@ -1,3 +1,15 @@
+**Chief Corruption Prosecutor Resigns From Justice Dept.**\
+`Corey Amundson chose to leave the department after being told he was being reassigned by the Trump administration to a position related to immigration enforcement.`\
+https://nytimes.com/2025/01/27/us/politics/chief-corruption-prosecutor.html
+
+**Behind the Colombia Blowup: Mapping Trump’s Rapid-Escalation Tactics**\
+`There were no Situation Room meetings and no quiet calls to de-escalate a dispute with an ally. Just threats, counterthreats, surrender and an indication of the president’s approach to Greenland and Panama.`\
+https://nytimes.com/2025/01/27/us/politics/trump-colombia-tariffs-deportation-flights.html
+
+**Submit your Ohio State football questions for Cameron Teague Robinson's mailbag**\
+`What's on your mind about the Buckeyes after their national championship run?`\
+https://nytimes.com/athletic/6092228/2025/01/27/ohio-state-football-mailbag-questions-8/
+
 **Denmark and Other Nations Under Pressure Seek Lobbyists With Trump Ties**\
 `The president’s confrontational foreign policy has created opportunity for his allies on K Street who are willing to take on clients he has targeted.`\
 https://nytimes.com/2025/01/27/us/politics/trump-denmark-panama-greenland-lobbyists.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6092044/2025/01/27/todd-golden-florida-basketball-t
 **Trump’s Colombia Tariff Threat Targeted a Vibrant Alternative to China**\
 `By declaring he’d put tariffs on goods from the South American country, the president imperiled a growing influx of foreign investment there.`\
 https://nytimes.com/2025/01/27/business/trump-colombia-tariffs-china.html
-
-**Blackhawks GM Davidson still optimistic about rebuild: 'This takes time'**\
-`Davidson spoke with the media Monday and acknowledged his team isn't where he wants it to be — but he's confident in its direction.`\
-https://nytimes.com/athletic/6091971/2025/01/27/blackhawks-rebuild-kyle-davidson/
-
-**Inside a New Plan to Bring Electricity to 300 Million in Africa**\
-`Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The World Bank chief called the project “foundational to everything.”`\
-https://nytimes.com/2025/01/27/climate/africa-world-bank-solar-electricity.html
-
-**Greg Olsen, one-on-one: Happy for Bryce Young, his thoughts on Tom Brady, Fox**\
-`The Fox analyst and former Panthers tight end holds no resentment, but definitely misses calling the top games.`\
-https://nytimes.com/athletic/6091819/2025/01/27/greg-olsen-panthers-bryce-young-tom-brady-fox/
 
