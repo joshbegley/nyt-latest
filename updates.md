@@ -1,3 +1,19 @@
+**New Zealand Loosens Visitor Visas to Court Remote Workers**\
+`The country, which sank into a recession last year, is trying to entice highly skilled “digital nomads” to work in the island nation for up to nine months.`\
+https://nytimes.com/2025/01/27/world/asia/new-zealand-visas-digital-nomad.html
+
+**Submit questions for Matt Gelb's Phillies mailbag**\
+`<p>With spring training right around the corner (pitchers and catchers report in about two weeks), what do you want to know about the Phillies? Submit your questions on anything Phillies-related here and they could be answered in Matt Gelb&#8217;s mailbag later this week.`\
+https://nytimes.com/athletic/6092288/2025/01/27/phillies-mailbag-questions-spring-training/
+
+**Blues trade Scott Perunovich to Islanders: Why he fizzled in St. Louis, and how he fits in New York**\
+`The pick heading to the Blues would be in the fifth round of the 2026 NHL Draft`\
+https://nytimes.com/athletic/6092280/2025/01/27/blues-islanders-scott-perunovich-trade/
+
+**Penguins place Evgeni Malkin on IR**\
+`Malkin sustained an apparent knee injury in a 4-1 loss against the Kraken on Saturday.`\
+https://nytimes.com/athletic/6092282/2025/01/27/penguins-evgeni-malkin-injured-reserve/
+
 **Blues trade Scott Perunovich to the Islanders for conditional draft pick**\
 `The pick heading to the Blues would be in the fifth round of the 2026 NHL Draft`\
 https://nytimes.com/athletic/6092280/2025/01/27/blues-islanders-scott-perunovich-trade/
