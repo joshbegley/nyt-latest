@@ -1,3 +1,7 @@
+**Do You Know These Books Made Into Popular Movies?**\
+`This week’s literary quiz tests your knowledge of films inspired by nonfiction books or deeply autobiographical novels.`\
+https://nytimes.com/interactive/2025/01/27/books/review/nonfiction-movies-quiz.html
+
 **Hegseth Promises a ‘Shift’ at the Pentagon and a Focus on Trump’s Immigration Priorities**\
 `“Whatever is needed at the border will be provided,” Pete Hegseth, the new defense secretary, told reporters.`\
 https://nytimes.com/2025/01/27/us/politics/hegseth-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089686/2025/01/27/khris-middleton-bucks-clippers/
 **The Bounce: Why the NBA has a surprising contender out West**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6091046/2025/01/27/rockets-alperen-sengun-west-kobe-bryant-lakers-nba-the-bounce/
-
-**Toumani Camara 'doesn’t give up': What opponents see in Trail Blazers' young defender**\
-`Opponents paint a portrait of one of the NBA’s up-and-coming defenders so convincing that they are open about wanting him on their team.`\
-https://nytimes.com/athletic/6081285/2025/01/27/toumani-camara-defense-trail-blazers-nba/
 

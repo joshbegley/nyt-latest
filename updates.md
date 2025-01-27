@@ -1,3 +1,7 @@
+**Do You Know These Books Made Into Popular Movies?**\
+`This week’s literary quiz tests your knowledge of films inspired by nonfiction books or deeply autobiographical novels.`\
+https://nytimes.com/interactive/2025/01/27/books/review/nonfiction-movies-quiz.html
+
 **Hegseth Promises a ‘Shift’ at the Pentagon and a Focus on Trump’s Immigration Priorities**\
 `“Whatever is needed at the border will be provided,” Pete Hegseth, the new defense secretary, told reporters.`\
 https://nytimes.com/2025/01/27/us/politics/hegseth-defense.html
