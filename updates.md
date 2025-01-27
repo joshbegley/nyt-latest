@@ -1,3 +1,7 @@
+**Listen: Why it's impossible to pick Bournemouth's standout player**\
+`After another masterful performance at the weekend, Bournemouth's stunning season is discussed on The Totally Football Show`\
+https://nytimes.com/athletic/6091025/2025/01/27/totally-football-show-best-bournemouth-players/
+
 **Listen: Why Chelsea have seen this movie before with their goalkeeper**\
 `After Robert Sanchez's costly mistake against Manchester City, Straight Outta Cobham question his future as Chelsea's first-choice keeper`\
 https://nytimes.com/athletic/6092157/2025/01/27/straight-outta-cobham-podcast-robert-sanchez/
