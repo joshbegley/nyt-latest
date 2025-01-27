@@ -1,3 +1,19 @@
+**Activist Investor Seeks to Oust U.S. Steel Chief Over Nippon Deal**\
+`The two steel makers are seeking to revive Nippon Steel’s $14 billion takeover of U.S. Steel after it was blocked by the Biden administration.`\
+https://nytimes.com/2025/01/27/business/us-steel-nippon-activist.html
+
+**USMNT Player Tracker: Pulisic on the spot, commanding Adams and Sargent sticks to the plan**\
+`Our roundup of the U.S. contingent's contribution over the weekend also includes Jordan Pefok's continued toils at Union Berlin`\
+https://nytimes.com/athletic/6091566/2025/01/27/usmnt-pulisic-adams-sargent-tracker/
+
+**Notre Dame mailbag: What's next at defensive coordinator? How big are portal losses?**\
+`There's plenty to talk about at Notre Dame in the wake of the national title game loss. What's next and how have expectations changed?`\
+https://nytimes.com/athletic/6091854/2025/01/27/notre-dame-defensive-coordinator-candidates-transfer-portal/
+
+**NYCFC confirms sale of McFarlane, 18, to Man City**\
+`New York City FC has confirmed the sale of 18-year-old defender Christian McFarlane to Manchester City.`\
+https://nytimes.com/athletic/6091948/2025/01/27/christian-mcfarlane-manchester-city-nycfc/
+
 **What I'm seeing from the Jets: How Perfetti wins battles, Kupari's impact, avoiding a slump**\
 `How are the Jets avoiding their annual second-half tailspin? Plus Cole Perfetti explains the 'how' of his battle-winning and more.`\
 https://nytimes.com/athletic/6026327/2025/01/27/winnipeg-jets-perfetti-kupari-lowry/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/01/27/opinion/thepoint/deepseek-america-china-ai-a
 **Submit your Reds questions for C. Trent Rosecrans' mailbag**\
 `With baseball season approaching, what questions are the Redleg faithful still asking leading up to the 2025 season?`\
 https://nytimes.com/athletic/6091634/2025/01/27/submit-your-reds-questions-for-c-trent-rosecrans-mailbag/
-
-**Musk Says Germany Has ‘Too Much of a Focus on Past Guilt’**\
-`His comments to the hard-right Alternative for Germany party escalated efforts by the billionaire to influence the country’s election for chancellor next month.`\
-https://nytimes.com/2025/01/27/world/europe/musk-germany-afd-auschwitz.html
-
-**In Exacting Retribution, Trump Aims at the Future as Well as the Past**\
-`The president made good on promises to seek revenge against enemies during his first week back in power, signaling in the process that anyone who crosses him in the future could also suffer.`\
-https://nytimes.com/2025/01/27/us/politics/trump-politics-enemies-pompeo-fauci.html
-
-**‘Firewall’ Around the Far Right Wobbles in Germany**\
-`Responding to the killing of a child, the poll-leading Christian Democrats are pushing to overhaul migration laws — possibly with votes from the Alternative for Germany.`\
-https://nytimes.com/2025/01/27/world/europe/germany-afd-merz-cdu-migration.html
-
-**Why didn't your team trade for Rantanen? Ranking NHL teams that could've/should've been in the mix**\
-`If the Avalanche had opened up a good old-fashioned bidding war on Mikko Rantanen, here are teams that would have been the best fit.`\
-https://nytimes.com/athletic/6091552/2025/01/27/mikko-rantanen-nhl-trade-tiers/
 
