@@ -1,3 +1,23 @@
+**Heat suspend Jimmy Butler indefinitely: Sources**\
+`Butler, the disgruntled forward who has sought a trade from Miami, left the team's shootaround on Monday.`\
+https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-heat-trade-rumors/
+
+**Oath Keepers Leader’s Travel Restrictions Lifted With New U.S. Attorney’s Help**\
+`Ed Martin, President Trump’s new U.S. attorney in Washington, came to the aid of the group’s leader, Stewart Rhodes. Mr. Rhodes had been sentenced to 18 years for his role in the Jan. 6, 2021, attack on the Capitol.`\
+https://nytimes.com/2025/01/27/us/politics/rhodes-oath-keepers-dc-capitol-trump.html
+
+**Tuesday Briefing: A.I. From China Rattles Markets**\
+`Plus, Venice in the winter.`\
+https://nytimes.com/2025/01/27/briefing/china-ai-markets-colombia-deportees-auschwitz-memorial.html
+
+**How to watch South Carolina at Tennessee women's basketball: Reigning champs are on fire**\
+`Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
+https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/
+
+**New coach Pete Carroll expects Raiders to win 'immediately'**\
+`The Raiders' new coach — and GM John Spytek — expressed plenty of optimism about their new roles with the team Monday in Las Vegas.`\
+https://nytimes.com/athletic/6092611/2025/01/27/raiders-pete-carroll-john-spytek-tom-brady/
+
 **François Ponchaud, Who Alerted World to Cambodian Atrocities, Dies at 86**\
 `A French Catholic priest, he wrote a book recounting horrors committed by the Khmer Rouge that were responsible for the death of almost two million people.`\
 https://nytimes.com/2025/01/27/world/europe/francois-ponchaud-dead.html
@@ -13,24 +33,4 @@ https://nytimes.com/2025/01/27/technology/what-is-deepseek-china-ai.html
 **Yohe: Unfounded Sidney Crosby trade rumors are a tired waste of time**\
 `The constant speculation about Crosby being traded to Colorado has run its course and then some.`\
 https://nytimes.com/athletic/6087837/2025/01/27/penguins-avalanche-sidney-crosby-trade-rumors/
-
-**Palestinian Militant Group Releases Video of Civilian Hostage in Gaza**\
-`The civilian, Arbel Yehud, should have been among the first two groups of hostages released on Jan. 19 and Jan. 25 under the cease-fire deal, according to the Israeli authorities.`\
-https://nytimes.com/2025/01/27/world/middleeast/arbel-yehud-civilian-hostage-gaza.html
-
-**AFCON 2025 draw: Morocco to open tournament against Comoros**\
-`Host nation Morocco have been drawn alongside Mali, Zambia and Comoros in the group stage of the 2025 Africa Cup of Nations (AFCON).`\
-https://nytimes.com/athletic/6092489/2025/01/27/afcon-2025-draw-morocco/
-
-**Why Al Golden's path home provided perfect connection for Zac Taylor, Bengals**\
-`The Bengals' new defensive coordinator kept his residence in Cincinnati after his first stint with the team and is excited to be back.`\
-https://nytimes.com/athletic/6092497/2025/01/27/al-golden-cincinnati-bengals-defensive-coordinator/
-
-**Nvidia Reels After China’s A.I. Breakthrough**\
-`The tech industry has had an insatiable appetite for Nvidia’s chips over the last two years. But the feast may be over sooner than many had expected.`\
-https://nytimes.com/2025/01/27/business/deepseek-nvidia-ai-chips.html
-
-**Bayern sign goalkeeper Urbig from Koln**\
-`Bayern Munich have completed the signing of goalkeeper Jonas Urbig from Koln.`\
-https://nytimes.com/athletic/6088950/2025/01/27/jonas-urbig-bayern-munich-transfer/
 
