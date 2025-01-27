@@ -1,3 +1,7 @@
+**Listen: Why Chelsea have seen this movie before with their goalkeeper**\
+`After Robert Sanchez's costly mistake against Manchester City, Straight Outta Cobham question his future as Chelsea's first-choice keeper`\
+https://nytimes.com/athletic/6092157/2025/01/27/straight-outta-cobham-podcast-robert-sanchez/
+
 **New Zealand Loosens Visitor Visas to Court Remote Workers**\
 `The country, which sank into a recession last year, is trying to entice highly skilled “digital nomads” to work in the island nation for up to nine months.`\
 https://nytimes.com/2025/01/27/world/asia/new-zealand-visas-digital-nomad.html
