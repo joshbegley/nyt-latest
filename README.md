@@ -1,3 +1,11 @@
+**It's Brian Schottenheimer's show: New Cowboys coach takes over offense, will call plays**\
+`The Cowboys will hire an offensive coordinator, but like Mike McCarthy before him, Brian Schottenheimer will call the offense.`\
+https://nytimes.com/athletic/6093027/2025/01/27/cowboys-brian-schottenheimer-offense-play-caller/
+
+**What to know 500 days from World Cup: USMNT, security, tickets, Trump**\
+`Some essential information as the soccer tournament approaches`\
+https://nytimes.com/athletic/6092535/2025/01/27/500-days-world-cup-usmnt-tickets-trump/
+
 **Bills clean out lockers, reflect on pivotal plays that got away in AFC title game**\
 `What does the future hold for Amari Cooper and Von Miller? Josh Allen takes ownership of Buffalo's final offensive play.`\
 https://nytimes.com/athletic/6092739/2025/01/27/bills-locker-cleanout-chiefs-afc-title-game/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/27/us/politics/scott-bessent-treasury-secretary-vote
 **A Chinese A.I. Company Rattled the Tech World**\
 `Also, bird flu has entered a new phase. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/01/27/briefing/chinese-ai-market-turmoil-beyond-dry-january.html
-
-**Liam Coen on Jaguars job: 'This was an opportunity you just can't pass up'**\
-`Jacksonville's new coach addressed last week's whirlwind of activity that saw him go from staying in Tampa Bay to joining the Jaguars.`\
-https://nytimes.com/athletic/6092883/2025/01/27/liam-coen-jaguars-job-shad-khan/
-
-**Survivors Commemorate 80th Anniversary of Auschwitz Liberation**\
-`Survivors of Auschwitz, where the Nazis murdered more than 1.1 million people, urged world leaders to be vigilant against a dangerous rise in antisemitism and extremism during a ceremony commemorating the anniversary of the death camp’s liberation in 1945.`\
-https://nytimes.com/video/world/europe/100000009951525/auschwitz-liberation-80th-anniversary.html
 
