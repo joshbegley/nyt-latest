@@ -1,3 +1,7 @@
+**Florida Scours College Textbooks, Looking for Antisemitism**\
+`State university officials began the effort in response to social media outrage over test questions about terrorism. The effort has infuriated professors.`\
+https://nytimes.com/2025/01/27/us/florida-college-textbooks-antisemitism.html
+
 **A Troubling Spike in Sleep-Related Infant Deaths**\
 `A new study found that U.S. infant mortality rates overall are dropping, but that rates of sudden unexpected infant death may have increased in recent years.`\
 https://nytimes.com/2025/01/27/well/mind/sids-suid-infant-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090868/2025/01/27/antony-manchester-united-loan-ex
 **New Gaza checkpoint provides clues to the cease-fire security arrangements.**\
 `By Matthew Mpoke Bigg and Fatima AbdulKarim`\
 https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/new-gaza-checkpoint-provides-clues-to-the-cease-fire-security-arrangements
-
-**West Ham win legal battle with London Stadium landlords over disputed payment**\
-`West Ham United have won a legal battle with their landlords at the London Stadium over a disputed payment linked to Czech billionaire Daniel Kretinsky’s 2021 purchase of a 27 per cent stake in the Premier League club.`\
-https://nytimes.com/athletic/6092129/2025/01/27/west-ham-london-stadium-legal-battle/
 
