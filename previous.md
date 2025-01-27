@@ -1,3 +1,11 @@
+**Another Chinese Builder Is Facing a Cash Crisis**\
+`China Vanke, one of the country’s largest developers, cleared out its top executives and said it anticipates a $6.2 billion loss, a sign the property meltdown is still raging.`\
+https://nytimes.com/2025/01/27/business/china-vanke-property-developer.html
+
+**The Pulse: It's a rematch**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6089777/2025/01/27/chiefs-bills-eagles-super-bowl-the-pulse/
+
 **Sweden Suspects ‘Gross Sabotage’ After Damage to Cable Under Baltic Sea**\
 `The Nordic country has opened an investigation into the damage, just weeks after NATO stepped up its military presence in the area following a series of similar incidents.`\
 https://nytimes.com/2025/01/27/world/europe/cable-baltic-sea-sweden-damage.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lake
 **Inside Patrick Mahomes 'superhero' transformation and another Chiefs AFC title**\
 `The Chiefs are AFC champions again it would be foolish to presume that Mahomes won’t find a way to seize another Lombardi Trophy.`\
 https://nytimes.com/athletic/6090684/2025/01/27/patrick-mahomes-chiefs-super-bowl-superhero/
-
-**Aryna Sabalenka is at the top of women's tennis. Her endorsements and brand deals don't yet match up**\
-`The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport`\
-https://nytimes.com/athletic/6088734/2025/01/27/aryna-sabalenka-tennis-brand-deals-endorsements-value/
-
-**Israeli Forces Again Open Fire as Lebanese Try to Return Home, Lebanese Officials Say**\
-`For a second day, Lebanese were defying Israeli warnings and attempting to reach southern border towns that remained occupied by Israeli troops. At least two people were injured, officials said.`\
-https://nytimes.com/2025/01/27/world/middleeast/israel-lebanon-hezbollah-strikes-ceasefire.html
 

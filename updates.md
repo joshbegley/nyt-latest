@@ -1,3 +1,11 @@
+**Another Chinese Builder Is Facing a Cash Crisis**\
+`China Vanke, one of the country’s largest developers, cleared out its top executives and said it anticipates a $6.2 billion loss, a sign the property meltdown is still raging.`\
+https://nytimes.com/2025/01/27/business/china-vanke-property-developer.html
+
+**The Pulse: It's a rematch**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6089777/2025/01/27/chiefs-bills-eagles-super-bowl-the-pulse/
+
 **Sweden Suspects ‘Gross Sabotage’ After Damage to Cable Under Baltic Sea**\
 `The Nordic country has opened an investigation into the damage, just weeks after NATO stepped up its military presence in the area following a series of similar incidents.`\
 https://nytimes.com/2025/01/27/world/europe/cable-baltic-sea-sweden-damage.html
