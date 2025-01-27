@@ -1,3 +1,11 @@
+**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2022 game**\
+`The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
+https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
+
+**What to know about Super Bowl 59: How to watch, halftime performer, more**\
+`The Chiefs and Eagles are set to meet in Super Bowl 59. Here is everything to know about the game.`\
+https://nytimes.com/athletic/6087335/2025/01/26/super-bowl-59-how-to-watch-team-team/
+
 **Early dominance over Blackhawks falls apart in Wild's nail-biter win: 3 takeaways**\
 `After allowing just five shots in the first two periods, the Wild had to scramble to keep the lead against Chicago in a narrow 4-2 win.`\
 https://nytimes.com/athletic/6089947/2025/01/26/minnesota-wild-gustavsson-blackhawks-hynes/
