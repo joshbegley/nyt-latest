@@ -1,3 +1,7 @@
+**In Exacting Retribution, Trump Aims at the Future as Well as the Past**\
+`The president made good on promises to seek revenge against enemies during his first week back in power, signaling in the process that anyone who crosses him in the future could also suffer.`\
+https://nytimes.com/2025/01/27/us/politics/trump-politics-enemies-pompeo-fauci.html
+
 **‘Firewall’ Around the Far Right Wobbles in Germany**\
 `Responding to the killing of a child, the poll-leading Christian Democrats are pushing to overhaul migration laws — possibly with votes from the Alternative for Germany.`\
 https://nytimes.com/2025/01/27/world/europe/germany-afd-merz-cdu-migration.html
