@@ -1,3 +1,19 @@
+**Hegseth Promises a ‘Shift’ at the Pentagon and a Focus on Trump’s Immigration Priorities**\
+`“Whatever is needed at the border will be provided,” Pete Hegseth, the new defense secretary, told reporters.`\
+https://nytimes.com/2025/01/27/us/politics/hegseth-defense.html
+
+**They Fled a Rebel Advance. Then the Rebels Marched on Their Refuge.**\
+`People who fled M23 rebels around Goma, in the eastern Democratic Republic of Congo, have found themselves with nowhere left to go.`\
+https://nytimes.com/card/2025/01/27/world/africa/photos-rebels-goma-congo
+
+**Lowetide: Why the Oilers' five-on-five scoring spike is a welcome turn**\
+`The Oilers' four lines are outscoring effectively in the last 20 games. Can they sustain it?`\
+https://nytimes.com/athletic/6089461/2025/01/27/edmonton-oilers-five-on-five-stats/
+
+**In-stadium VAR announcements to be trialled in Bundesliga**\
+`In-stadium video assistant referee (VAR) announcements will be trialled in the top two tiers of German football.`\
+https://nytimes.com/athletic/6091506/2025/01/27/bundesliga-var-stadium-announcement-trial/
+
 **Wolves in talks to sign centre-back Danso from Lens**\
 `Wolverhampton Wanderers are in talks to sign centre-back Kevin Danso from Lens.`\
 https://nytimes.com/athletic/6091301/2025/01/27/kevin-danso-wolves-transfer-news/
