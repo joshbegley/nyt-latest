@@ -1,3 +1,7 @@
+**Weight Tossed in Indoor Hammer Throw Event Kills Spectator at Track Meet**\
+`The University of Colorado Colorado Springs, which hosted the event, said the implement had “cleared certified barriers.”`\
+https://nytimes.com/2025/01/27/sports/hammer-spectator-killed-colorado.html
+
 **Chief Corruption Prosecutor Resigns From Justice Dept.**\
 `Corey Amundson chose to leave the department after being told he was being reassigned by the Trump administration to a position related to immigration enforcement.`\
 https://nytimes.com/2025/01/27/us/politics/chief-corruption-prosecutor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/business/energy-environment/oil-trump-drill-baby-
 **Florida closes Title IX investigation into MBB coach Golden**\
 `Golden said little publicly about the allegations during the investigation, saying he was “respecting the situation.”`\
 https://nytimes.com/athletic/6092044/2025/01/27/todd-golden-florida-basketball-title-ix-closed/
-
-**Trump’s Colombia Tariff Threat Targeted a Vibrant Alternative to China**\
-`By declaring he’d put tariffs on goods from the South American country, the president imperiled a growing influx of foreign investment there.`\
-https://nytimes.com/2025/01/27/business/trump-colombia-tariffs-china.html
 

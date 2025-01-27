@@ -1,3 +1,7 @@
+**Weight Tossed in Indoor Hammer Throw Event Kills Spectator at Track Meet**\
+`The University of Colorado Colorado Springs, which hosted the event, said the implement had “cleared certified barriers.”`\
+https://nytimes.com/2025/01/27/sports/hammer-spectator-killed-colorado.html
+
 **Chief Corruption Prosecutor Resigns From Justice Dept.**\
 `Corey Amundson chose to leave the department after being told he was being reassigned by the Trump administration to a position related to immigration enforcement.`\
 https://nytimes.com/2025/01/27/us/politics/chief-corruption-prosecutor.html
