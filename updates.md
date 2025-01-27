@@ -1,3 +1,11 @@
+**Everything you need to know about the 2026 World Cup:**\
+`Everything you need to know about the 2026 men's World Cup - from how many teams will play to the stadiums that will be used`\
+https://nytimes.com/athletic/6085823/2025/01/27/2026-world-cup-united-states-canada-mexico/
+
+**Commanders' magical season ends, but the foundation for future success is in place**\
+`Washington was dominated by Philadelphia in the NFC championship, but it's hard not to believe this group won't be back on that stage soon.`\
+https://nytimes.com/athletic/6089439/2025/01/26/commanders-lose-eagles-nfc-championship-game/
+
 **Here’s the latest on the cease-fire.**\
 `By Mike Ives`\
 https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/heres-the-latest-on-the-cease-fire
