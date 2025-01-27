@@ -1,3 +1,7 @@
+**Super Bowl 59 MVP odds: Mahomes nearly even-money favorite ahead of Barkley, Hurts**\
+`Patrick Mahomes is roughly an even-money favorite to win Super Bowl MVP. Saquon Barkley is second ahead of Jalen Hurts.`\
+https://nytimes.com/athletic/6092340/2025/01/27/super-bowl-59-mvp-odds-patrick-mahomes/
+
 **Chelsea's Veiga completes Juventus loan move**\
 `Juventus have completed the signing of Renato Veiga on loan from Chelsea until the end of the season.`\
 https://nytimes.com/athletic/6083315/2025/01/27/renato-veiga-juventus-transfer-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/briefing/china-ai-markets-colombia-deportees-ausc
 **How to watch South Carolina at Tennessee women's basketball: Reigning champs are on a roll**\
 `Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
 https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/
-
-**New coach Pete Carroll expects Raiders to win 'immediately'**\
-`The Raiders' new coach — and GM John Spytek — expressed plenty of optimism about their new roles with the team Monday in Las Vegas.`\
-https://nytimes.com/athletic/6092611/2025/01/27/raiders-pete-carroll-john-spytek-tom-brady/
 
