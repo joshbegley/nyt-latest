@@ -1,3 +1,7 @@
+**Comic Book Publisher Drops Neil Gaiman Amid Sexual Misconduct Allegations**\
+`Dark Horse Comics announced it would no longer publish the author and canceled further publication of his “Anansi Boys” series.`\
+https://nytimes.com/2025/01/27/books/neil-gaiman-allegations-comic-book-publisher.html
+
 **Doug Emhoff to Return to Corporate Law**\
 `The husband of former Vice President Kamala Harris will advise companies in crisis as a partner at the law firm Willkie Farr & Gallagher.`\
 https://nytimes.com/2025/01/27/business/dealbook/doug-emhoff-kamala-harris-corporate-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084371/2025/01/27/49ers-mailbag-robert-saleh-agend
 **Chiefs-Bills delivers, Tom Brady's sweet spot and more NFL media takeaways**\
 `NFL broadcasts Sunday delivered with Chiefs-Bills, Brady missed an opportunity, CBS was prepared for Taylor Swift and more media notes.`\
 https://nytimes.com/athletic/6087757/2025/01/27/kansas-city-chiefs-buffalo-bills-cbs-taylor-swift-tom-brady-philadelphia-eagles-commanders/
-
-**Dodgers non-roster invitees: Who will accompany Roki Sasaki in big-league spring training?**\
-`Dalton Rushing, the Dodgers' top pick in the 2022 MLB Draft, ranks among the players who can make an impression this spring.`\
-https://nytimes.com/athletic/6088546/2025/01/27/dodgers-non-roster-invitees-roki-sasaki/
 
