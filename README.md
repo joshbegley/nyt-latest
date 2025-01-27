@@ -1,5 +1,5 @@
 **Bills CB Christian Benford ruled out of AFC championship with concussion**\
-`Benford was just cleared from concussion protocol ahead of this game after suffering one last week against the Ravens.`\
+`Benford was just cleared from concussion protocol ahead of Sunday's game, after he suffered a concussion last week against the Ravens.`\
 https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-concussion-chiefs/
 
 **Eagles' NFC Championship Game win by the numbers: Every stat to know**\
