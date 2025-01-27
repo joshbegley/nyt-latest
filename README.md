@@ -1,3 +1,7 @@
+**What I saw in the PWHL this week: Sceptres get much-needed win, but what hasn't been working?**\
+`Toronto defeated New York 4-2 at Scotiabank Arena on Saturday but sits last in the PWHL standings. What's behind its struggles this season?`\
+https://nytimes.com/athletic/6090674/2025/01/27/pwhl-toronto-sceptres-win-new-york-sirens/
+
 **Iga Swiatek's form, Novak Djokovic and father time, and a media circus: Australian Open briefing**\
 `The first Grand Slam of 2025 is in the books: here's what the tennis world learned in Melbourne.`\
 https://nytimes.com/athletic/6082764/2025/01/27/australian-open-review-swiatek-hard-court-djokovic-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091108/2025/01/27/danilo-juventus-transfer-exit/
 **DeepSeek Forces a Global Technology Reckoning**\
 `The fast-growing popularity of the Chinese artificial intelligence software hit shares in tech giants like Nvidia, as Silicon Valley worried about what comes next.`\
 https://nytimes.com/2025/01/27/business/dealbook/deepseek-tech-stocks-reckoning.html
-
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`Pose your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
-https://nytimes.com/athletic/6090922/2025/01/27/newcastle-transfers-howe-isak/
 
