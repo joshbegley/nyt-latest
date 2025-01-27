@@ -1,3 +1,19 @@
+**Lions' Dan Campbell tabs John Morton as offensive coordinator: Source**\
+`Detroit coach Dan Campbell is turning to someone he has worked with in the past to replace Ben Johnson as OC. `\
+https://nytimes.com/athletic/6092650/2025/01/27/lions-john-morton-offensive-coordinator-dan-campbell/
+
+**Republican Lawmakers in Florida Rebel Against DeSantis in Rare Power Move**\
+`In a special session on Monday, leaders seemed to be declaring their independence from a governor who has wielded so much power that legislative sessions have become largely predictable rubber stamps.`\
+https://nytimes.com/2025/01/27/us/desantis-florida-trump-immigration.html
+
+**Astros pursuing Jorge Polanco as Alex Bregman sweepstakes continue: Sources**\
+`With Bregman weighing his options, the Astros could look to target a less expensive player in Polanco who is coming off knee surgery.`\
+https://nytimes.com/athletic/6092721/2025/01/27/astros-jorge-polanco-alex-bregman-sweepstakes/
+
+**How to watch South Carolina at Tennessee women's basketball: Reigning champs are on a roll**\
+`Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
+https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/
+
 **Heat suspend Jimmy Butler indefinitely: Sources**\
 `Butler, the disgruntled forward who has sought a trade from Miami, left the team's shootaround on Monday.`\
 https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-heat-trade-rumors/

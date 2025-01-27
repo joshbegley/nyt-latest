@@ -1,3 +1,15 @@
+**Lions' Dan Campbell tabs John Morton as offensive coordinator: Source**\
+`Detroit coach Dan Campbell is turning to someone he has worked with in the past to replace Ben Johnson as OC. `\
+https://nytimes.com/athletic/6092650/2025/01/27/lions-john-morton-offensive-coordinator-dan-campbell/
+
+**Republican Lawmakers in Florida Rebel Against DeSantis in Rare Power Move**\
+`In a special session on Monday, leaders seemed to be declaring their independence from a governor who has wielded so much power that legislative sessions have become largely predictable rubber stamps.`\
+https://nytimes.com/2025/01/27/us/desantis-florida-trump-immigration.html
+
+**Astros pursuing Jorge Polanco as Alex Bregman sweepstakes continue: Sources**\
+`With Bregman weighing his options, the Astros could look to target a less expensive player in Polanco who is coming off knee surgery.`\
+https://nytimes.com/athletic/6092721/2025/01/27/astros-jorge-polanco-alex-bregman-sweepstakes/
+
 **Heat suspend Jimmy Butler indefinitely: Sources**\
 `Butler, the disgruntled forward who has sought a trade from Miami, left the team's shootaround on Monday.`\
 https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-heat-trade-rumors/
@@ -10,7 +22,7 @@ https://nytimes.com/2025/01/27/us/politics/rhodes-oath-keepers-dc-capitol-trump.
 `Plus, Venice in the winter.`\
 https://nytimes.com/2025/01/27/briefing/china-ai-markets-colombia-deportees-auschwitz-memorial.html
 
-**How to watch South Carolina at Tennessee women's basketball: Reigning champs are on fire**\
+**How to watch South Carolina at Tennessee women's basketball: Reigning champs are on a roll**\
 `Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
 https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/
 
@@ -25,12 +37,4 @@ https://nytimes.com/2025/01/27/world/europe/francois-ponchaud-dead.html
 **Three lessons we can learn from looking back at decades of Giants top prospect lists**\
 `It's top MLB prospect list season. What can we learn from these lists?`\
 https://nytimes.com/athletic/6091873/2025/01/27/top-mlb-propspect-rankings-sf-giants-history/
-
-**What to Know About DeepSeek and How It Is Upending A.I.**\
-`How did a little-known Chinese start-up cause the markets and U.S. tech giants to quake? Here’s what to know.`\
-https://nytimes.com/2025/01/27/technology/what-is-deepseek-china-ai.html
-
-**Yohe: Unfounded Sidney Crosby trade rumors are a tired waste of time**\
-`The constant speculation about Crosby being traded to Colorado has run its course and then some.`\
-https://nytimes.com/athletic/6087837/2025/01/27/penguins-avalanche-sidney-crosby-trade-rumors/
 
