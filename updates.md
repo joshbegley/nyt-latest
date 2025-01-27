@@ -1,3 +1,7 @@
+**‘Firewall’ Around the Far Right Wobbles in Germany**\
+`Responding to the killing of a child, the poll-leading Christian Democrats are pushing to overhaul migration laws — possibly with votes from the Alternative for Germany.`\
+https://nytimes.com/2025/01/27/world/europe/germany-afd-merz-cdu-migration.html
+
 **Why didn't your team trade for Rantanen? Ranking NHL teams that could've/should've been in the mix**\
 `If the Avalanche had opened up a good old-fashioned bidding war on Mikko Rantanen, here are teams that would have been the best fit.`\
 https://nytimes.com/athletic/6091552/2025/01/27/mikko-rantanen-nhl-trade-tiers/
