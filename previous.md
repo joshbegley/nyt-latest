@@ -1,3 +1,15 @@
+**Gazans head north on crutches, in wheelchairs and piled into strollers.**\
+`By Matthew Mpoke Bigg and Maud Bodoukian`\
+https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/gazans-head-north-on-crutches-in-wheelchairs-and-piled-into-strollers
+
+**Stocks Sink as Investors Worry About China’s A.I. Advances**\
+`Premarket trading implied steep declines for U.S. markets, with the pain concentrated at companies at the forefront of the artificial intelligence boom.`\
+https://nytimes.com/2025/01/27/business/us-stock-market-deepseek-ai-sp500-nvidia.html
+
+**De la Fuente extends Spain contract until Euro 2028**\
+`Luis de la Fuente has agreed a new contract with the Spanish men’s national team through to the end of Euro 2028.`\
+https://nytimes.com/athletic/6029880/2025/01/27/luis-de-la-fuente-spain-contract/
+
 **Another Chinese Builder Is Facing a Cash Crisis**\
 `China Vanke, one of the country’s largest developers, cleared out its top executives and said it anticipates a $6.2 billion loss, a sign the property meltdown is still raging.`\
 https://nytimes.com/2025/01/27/business/china-vanke-property-developer.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6089722/2025/01/27/nhl-weekend-rankings-rantanen-tr
 **E.U. Prepares to Cautiously Pare Back Sanctions on Syria**\
 `Member countries’ foreign ministers are meeting to discuss a “road map” to lift financial restrictions, but any change will happen in stages.`\
 https://nytimes.com/2025/01/27/world/europe/eu-syria-sanctions.html
-
-**Strong Dollar vs. Weak Dollar**\
-`President Trump is of two minds when it comes to America’s currency.`\
-https://nytimes.com/2025/01/27/briefing/donald-trump-currency.html
-
-**NBA Rewind: Predicting NBA All-Star reserves and remembering Kobe Bryant**\
-`On the fifth anniversary of Bryant's death, Zach Harper reflects on the Black Mamba's life and impact.`\
-https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lakers-nba-rewind/
-
-**Inside Patrick Mahomes 'superhero' transformation and another Chiefs AFC title**\
-`The Chiefs are AFC champions again it would be foolish to presume that Mahomes won’t find a way to seize another Lombardi Trophy.`\
-https://nytimes.com/athletic/6090684/2025/01/27/patrick-mahomes-chiefs-super-bowl-superhero/
 
