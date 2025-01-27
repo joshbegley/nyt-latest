@@ -1,3 +1,7 @@
+**Khris Middleton's lackluster game against the Clippers: Rust, regression or third wheel?**\
+`Middleton went scoreless for the second time this season and looked out of sync. We re-watched his performance to see what went wrong.`\
+https://nytimes.com/athletic/6089686/2025/01/27/khris-middleton-bucks-clippers/
+
 **One of Hegseth’s first directives at the Pentagon targets D.E.I.**\
 `By Eric Schmitt`\
 https://nytimes.com/2025/01/27/us/politics/one-of-hegseths-first-directives-at-the-pentagon-targets-dei.html
