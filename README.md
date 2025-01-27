@@ -1,3 +1,7 @@
+**Why didn't your team trade for Rantanen? Ranking NHL teams that could've/should've been in the mix**\
+`If the Avalanche had opened up a good old-fashioned bidding war on Mikko Rantanen, here are teams that would have been the best fit.`\
+https://nytimes.com/athletic/6091552/2025/01/27/mikko-rantanen-nhl-trade-tiers/
+
 **Barry set for Hull loan and new Aston Villa contract**\
 `Aston Villa forward Louie Barry is set to join Hull City on loan for the rest of the season.`\
 https://nytimes.com/athletic/6031899/2025/01/27/louie-barry-aston-villa-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6088343/2025/01/27/trevor-bauer-japan-yokohama-bay-
 **Displaced Palestinians Reunite With Loved Ones in Northern Gaza**\
 `Large numbers of Palestinians headed to the north of the Gaza Strip for the first time in months after Israel withdrew part of its troops from the Netzarim corridor as part of a cease-fire agreement.`\
 https://nytimes.com/video/world/middleeast/100000009951318/gazans-return-north-reunite-families.html
-
-**Do You Know These Books Made Into Popular Movies?**\
-`This week’s literary quiz tests your knowledge of films inspired by nonfiction books or deeply autobiographical novels.`\
-https://nytimes.com/interactive/2025/01/27/books/review/nonfiction-movies-quiz.html
 
