@@ -1,3 +1,7 @@
+**These Bills were different, but the outcome was the same**\
+`The Bills outperformed expectations until they once again met the Chiefs in the playoffs.`\
+https://nytimes.com/athletic/6090739/2025/01/27/bills-lose-chiefs-josh-allen-playoffs/
+
 **Patrick Mahomes at his best as Chiefs return to Super Bowl with a chance to three-peat**\
 `The Chiefs outlasted the Bills in another postseason thriller to become the first team to reach five Super Bowls in six seasons.`\
 https://nytimes.com/athletic/6090813/2025/01/27/chiefs-patrick-mahomes-afc-championship-bills/
