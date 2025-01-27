@@ -1,3 +1,11 @@
+**Blues trade Scott Perunovich to the Islanders for conditional draft pick**\
+`The pick heading to the Blues would be in the fifth round of the 2026 NHL Draft`\
+https://nytimes.com/athletic/6092280/2025/01/27/blues-islanders-scott-perunovich-trade/
+
+**Penguins place Evgeni Malkin on IR**\
+`The Penguins have placed injured forward Evgeni Malkin on injured reserve following an apparent knee injury sustained on Saturday in a 4-1 loss against the Kraken in Seattle.`\
+https://nytimes.com/athletic/6092282/2025/01/27/penguins-evgeni-malkin-injured-reserve/
+
 **Florida Scours College Textbooks, Looking for Antisemitism**\
 `State university officials began the effort in response to social media outrage over test questions about terrorism. The effort has infuriated professors.`\
 https://nytimes.com/2025/01/27/us/florida-college-textbooks-antisemitism.html
