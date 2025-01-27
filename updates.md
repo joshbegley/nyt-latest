@@ -1,3 +1,23 @@
+**Where Might Gov. Hochul Be Among Friends? At a Buffalo Bills Bar.**\
+`Gov. Kathy Hochul of New York, an unabashed fan of the Buffalo Bills, was perhaps never more popular than on Sunday in downtown Albany.`\
+https://nytimes.com/2025/01/27/nyregion/hochul-buffalo-bills-fans.html
+
+**The Plane Crash Should Have Killed Her. Sometimes She Wishes It Had.**\
+`In 1990, Avianca Flight 52 crashed in suburban Long Island and a 17-year-old girl was pulled from the wreckage. Survival has been its own ordeal.`\
+https://nytimes.com/2025/01/27/nyregion/avianca-plane-crash-survivor-long-island.html
+
+**Can One of These 5 Progressives Defeat Mayor Adams?**\
+`Five Democrats are competing to become the left-leaning wing’s candidate of choice in the June mayoral primary.`\
+https://nytimes.com/2025/01/27/nyregion/mamdani-nyc-mayor-race.html
+
+**‘This Is a Dangerous Virus’**\
+`A bird-flu pandemic is far from inevitable. But health experts are closely monitoring an outbreak that could quickly escalate among people.`\
+https://nytimes.com/2025/01/27/health/bird-flu-h5n1.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/27/crosswords/spelling-bee-forum.html
+
 **An attempt to explain Barcelona - a brilliant, bewildering team of extremes**\
 `Wild swings between superb wins and frustrating defeats are to be expected with a young side, but the future looks positive either way`\
 https://nytimes.com/athletic/6090790/2025/01/27/barcelona-valencia-la-liga-extremes/
