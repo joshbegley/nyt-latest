@@ -1,3 +1,11 @@
+**Heat Today: Kel'el Ware's NBA Rookie of the Year odds soar as playing time, impact increase**\
+`The 7-foot Ware has been a defensive force, and his offensive game is coming along as well. `\
+https://nytimes.com/athletic/6090131/2025/01/27/kelel-ware-tyler-herro-bam-adebayo-nba-rookie-of-the-year-heat/
+
+**The Windup: Happy Top 100 Prospects Day**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6091376/2025/01/27/roman-anthony-red-sox-top-100-prospects-the-windup/
+
 **Canadiens weekly notebook: The most important practices of the season**\
 `Also in this week's notebook, Lane Hutson's self-evaluation, the second line's emergence and an update on an under-the-radar prospect.`\
 https://nytimes.com/athletic/6090734/2025/01/27/canadiens-lane-hutson-patrik-laine-alex-newhook/
