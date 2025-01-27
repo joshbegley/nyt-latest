@@ -1,3 +1,11 @@
+**The Eagles did it their way in an NFC title game romp**\
+`Saquon Barkley did it again, Jalen Hurts had his best performance of the playoffs, and the Eagles are set for a Chiefs rematch.`\
+https://nytimes.com/athletic/6089664/2025/01/27/eagles-commanders-score-nfc-championship-game/
+
+**Word of the Day: inauspicious**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/27/learning/word-of-the-day-inauspicious.html
+
 **The suffering of Rasmus Hojlund**\
 `The Danish striker is starved of service and not posing a threat, but there do not seem to be any easy answers`\
 https://nytimes.com/athletic/6090434/2025/01/27/rasmus-hojlund-manchester-united-suffering/
