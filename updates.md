@@ -1,3 +1,11 @@
+**Ben Johnson and the Bears: 5 lingering questions about the hire and what's next**\
+`Johnson has passed several tests already, but there are still questions about how it will all work out for the Bears' new coach.`\
+https://nytimes.com/athletic/6086754/2025/01/27/bears-ben-johnson-lingering-questions/
+
+**Midseason All-America team: Cooper Flagg, Johni Broome, Kam Jones and more**\
+`A Purdue guard filling huge shoes and a star transfer for Memphis are also among those honored on our midseason team.`\
+https://nytimes.com/athletic/6089499/2025/01/27/mens-college-basketball-all-america-team-cooper-flagg-midseason/
+
 **Trent Baalke and the Jaguars were once on the Lions' path. Where did it go wrong?**\
 `The Jaguars and Lions were tracking almost identically until about 14 months ago, but Detroit's build had a much sturdier foundation.`\
 https://nytimes.com/athletic/6090909/2025/01/27/trent-baalke-jaguars-brad-holmes-lions/

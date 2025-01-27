@@ -1,3 +1,11 @@
+**Ben Johnson and the Bears: 5 lingering questions about the hire and what's next**\
+`Johnson has passed several tests already, but there are still questions about how it will all work out for the Bears' new coach.`\
+https://nytimes.com/athletic/6086754/2025/01/27/bears-ben-johnson-lingering-questions/
+
+**Midseason All-America team: Cooper Flagg, Johni Broome, Kam Jones and more**\
+`A Purdue guard filling huge shoes and a star transfer for Memphis are also among those honored on our midseason team.`\
+https://nytimes.com/athletic/6089499/2025/01/27/mens-college-basketball-all-america-team-cooper-flagg-midseason/
+
 **Trent Baalke and the Jaguars were once on the Lions' path. Where did it go wrong?**\
 `The Jaguars and Lions were tracking almost identically until about 14 months ago, but Detroit's build had a much sturdier foundation.`\
 https://nytimes.com/athletic/6090909/2025/01/27/trent-baalke-jaguars-brad-holmes-lions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6090712/2025/01/27/chiefs-bills-mcduffie-spagnuolo-
 **The Chiefs' reach for immortality, Bills, Eagles (and refs) be damned: Sando's Pick Six**\
 `Patrick Mahomes and the Chiefs are one game from standing alone, leaving unfulfilled legacies and grousing fans in their wake.`\
 https://nytimes.com/athletic/6014459/2025/01/27/chiefs-bills-eagles-refs-super-bowl/
-
-**After a splashy offseason and terrible start, the Predators seem destined for the mushy middle**\
-`The Predators added two 40-goal scorers on July 1 but can't score. With an aging core and no easy fix, what does their future hold?`\
-https://nytimes.com/athletic/6070741/2025/01/27/nashville-predators-barry-trotz-offseason/
-
-**Stephen Miller’s Return to Power**\
-`The 39-year-old adviser whose ideas and ideology have driven President Trump’s executive orders.`\
-https://nytimes.com/2025/01/27/podcasts/the-daily/stephen-miller-trump.html
 
