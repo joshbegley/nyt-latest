@@ -1,6 +1,6 @@
-**Man Pardoned in Jan. 6 Riot Is Fatally Shot by Deputy During Traffic Stop**\
+**A man pardoned in the Jan. 6 riot is fatally shot by a deputy during a traffic stop.**\
 `The police said that Matthew W. Huttle, 42, of Hobart, Ind., who was sentenced to six months for his role in the riot at the U.S. Capitol in 2021, resisted arrest after he was stopped by a deputy in Indiana on Sunday.`\
-https://nytimes.com/live/2025/01/27/us/trump-news/jan-6-rioter-shot-indiana-traffic-stop
+https://nytimes.com/2025/01/27/us/politics/jan-6-rioter-shot-indiana-traffic-stop.html
 
 **Steelers aim to re-sign Wilson or Fields, 'probably' not both, owner says**\
 `Rooney said on Monday that he believes in both Russell Wilson and Justin Fields and would prefer to sign one of the two passers`\
