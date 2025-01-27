@@ -1,3 +1,7 @@
+**Inside a New Plan to Bring Electricity to 300 Million in Africa**\
+`Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The head of the World Bank, the project’s main backer, called it “foundational to everything.”`\
+https://nytimes.com/2025/01/27/climate/africa-world-bank-solar-electricity.html
+
 **Greg Olsen, one-on-one: Happy for Bryce Young, his thoughts on Tom Brady, Fox**\
 `The Fox analyst and former Panthers tight end holds no resentment, but definitely misses calling the top games.`\
 https://nytimes.com/athletic/6091819/2025/01/27/greg-olsen-panthers-bryce-young-tom-brady-fox/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091854/2025/01/27/notre-dame-defensive-coordinator
 **NYCFC confirms sale of McFarlane, 18, to Man City**\
 `New York City FC has confirmed the sale of 18-year-old defender Christian McFarlane to Manchester City.`\
 https://nytimes.com/athletic/6091948/2025/01/27/christian-mcfarlane-manchester-city-nycfc/
-
-**What I'm seeing from the Jets: How Perfetti wins battles, Kupari's impact, avoiding a slump**\
-`How are the Jets avoiding their annual second-half tailspin? Plus Cole Perfetti explains the 'how' of his battle-winning and more.`\
-https://nytimes.com/athletic/6026327/2025/01/27/winnipeg-jets-perfetti-kupari-lowry/
 
