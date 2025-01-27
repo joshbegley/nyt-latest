@@ -1,3 +1,7 @@
+**Kennedy Center’s Leader to Step Down, Adding to Uncertainty**\
+`The announced departure of Deborah F. Rutter, the center’s president since 2014, comes as the center continues to search for a new board chair while navigating a second Trump term.`\
+https://nytimes.com/2025/01/27/arts/music/deborah-rutter-leaving-kennedy-center.html
+
 **Listen: Why it's impossible to pick Bournemouth's standout player**\
 `After another masterful performance at the weekend, Bournemouth's stunning season is discussed on The Totally Football Show`\
 https://nytimes.com/athletic/6091025/2025/01/27/totally-football-show-best-bournemouth-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/well/mind/sids-suid-infant-deaths.html
 **Scoop City: Controversial calls as Chiefs, Eagles head to Super Bowl**\
 `Inside: A weekend recap, controversial calls, brief Super Bowl preview and coaching updates from Las Vegas, Dallas and New Orleans.`\
 https://nytimes.com/athletic/6092194/2025/01/27/nfl-chiefs-controversial-call-super-bowl-scoop-city/
-
-**Weight Tossed in Indoor Hammer Throw Event Kills Spectator at Track Meet**\
-`The University of Colorado Colorado Springs, which hosted the event, said the implement had “cleared certified barriers.”`\
-https://nytimes.com/2025/01/27/sports/hammer-spectator-killed-colorado.html
 
