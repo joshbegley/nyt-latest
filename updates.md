@@ -1,3 +1,7 @@
+**Survivors Commemorate 80th Anniversary of Auschwitz Liberation**\
+`Survivors of Auschwitz, where the Nazis murdered more than 1.1 million people, urged world leaders to be vigilant against a dangerous rise in antisemitism and extremism during a ceremony commemorating the anniversary of the death camp’s liberation in 1945.`\
+https://nytimes.com/video/world/europe/100000009951525/auschwitz-liberation-80th-anniversary.html
+
 **Liam Coen on Jaguars job: 'This was an opportunity you just can't pass up'**\
 `Jacksonville's new coach addressed last week's whirlwind of activity that saw him going from staying in Tampa Bay to joining the Jaguars.`\
 https://nytimes.com/athletic/6092883/2025/01/27/liam-coen-jaguars-job-shad-khan/
