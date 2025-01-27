@@ -1,3 +1,7 @@
+**Thousands Flee as Rebel Militia Captures the City of Goma**\
+`A Rwandan-backed militia, called M23, said that hey captured the city of Goma in eastern Democratic Republic of Congo.`\
+https://nytimes.com/video/world/africa/100000009951749/rebels-capture-goma.html
+
 **Another U.S. and NWSL defender heads to Women's Super League in England**\
 `The 24-year-old defender is the most recent in a string of NWSL players to head to England.`\
 https://nytimes.com/athletic/6092728/2025/01/27/arsenal-gotham-transfer-jenna-nighswonger-nwsl/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/01/27/us/desantis-florida-trump-immigration.html
 `With Bregman weighing his options, the Astros could look to target a less expensive player in Polanco who is coming off knee surgery.`\
 https://nytimes.com/athletic/6092721/2025/01/27/astros-jorge-polanco-alex-bregman-sweepstakes/
 
-**Heat suspend Jimmy Butler indefinitely: Sources**\
+**Heat suspend Jimmy Butler indefinitely**\
 `Butler, the disgruntled forward who has sought a trade from Miami, left the team's shootaround on Monday.`\
 https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-heat-trade-rumors/
-
-**Oath Keepers Leader’s Travel Restrictions Lifted With New U.S. Attorney’s Help**\
-`Ed Martin, President Trump’s new U.S. attorney in Washington, came to the aid of the group’s leader, Stewart Rhodes. Mr. Rhodes had been sentenced to 18 years for his role in the Jan. 6, 2021, attack on the Capitol.`\
-https://nytimes.com/2025/01/27/us/politics/rhodes-oath-keepers-dc-capitol-trump.html
 
