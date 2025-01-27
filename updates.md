@@ -1,3 +1,11 @@
+**Trevor Bauer heading back to Japan after signing with Yokohama Bay Stars**\
+`Bauer hasn't pitched in the majors since 2021. The Yomiuri Giants are scheduled to play exhibitions against the Dodgers and Cubs in March.`\
+https://nytimes.com/athletic/6088343/2025/01/27/trevor-bauer-japan-yokohama-bay-stars/
+
+**Displaced Palestinians Reunite With Loved Ones in Northern Gaza**\
+`Large numbers of Palestinians headed to the north of the Gaza Strip for the first time in months after Israel withdrew part of its troops from the Netzarim corridor as part of a cease-fire agreement.`\
+https://nytimes.com/video/world/middleeast/100000009951318/gazans-return-north-reunite-families.html
+
 **Do You Know These Books Made Into Popular Movies?**\
 `This week’s literary quiz tests your knowledge of films inspired by nonfiction books or deeply autobiographical novels.`\
 https://nytimes.com/interactive/2025/01/27/books/review/nonfiction-movies-quiz.html
