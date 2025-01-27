@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6089952/2025/01/27/nhl-trades-jt-miller-elias-pette
 
 **Inmate Sues the Trump Administration Over Transgender Executive Order**\
 `The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
-https://nytimes.com/2025/01/27/us/prison-inmate-transgender-lawsuit-trump.html
+https://nytimes.com/2025/01/27/us/trump-executive-order-transgender-lawsuit.html
 
 **The Vote to Confirm ‘a Wildly Unfit’ Pete Hegseth**\
 `Readers criticize the vote on the defense secretary nomination. Also: President Trump and tariffs; silencing health officials; firing of inspectors general; longevity.`\

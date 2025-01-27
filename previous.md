@@ -1,3 +1,11 @@
+**What I'm seeing from the Jets: How Perfetti wins battles, Kupari's impact, avoiding a slump**\
+`How are the Jets avoiding their annual second-half tailspin? Plus Cole Perfetti explains the 'how' of his battle-winning and more.`\
+https://nytimes.com/athletic/6026327/2025/01/27/winnipeg-jets-perfetti-kupari-lowry/
+
+**What near-miss deals tell us about trade value of Elias Pettersson, J.T. Miller**\
+`Canucks management's next steps with their star centers are crucial in the wake of Friday's three-team blockbuster.`\
+https://nytimes.com/athletic/6089952/2025/01/27/nhl-trades-jt-miller-elias-pettersson-canucks/
+
 **Inmate Sues the Trump Administration Over Transgender Executive Order**\
 `The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
 https://nytimes.com/2025/01/27/us/prison-inmate-transgender-lawsuit-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/27/world/europe/germany-afd-merz-cdu-migration.html
 **Why didn't your team trade for Rantanen? Ranking NHL teams that could've/should've been in the mix**\
 `If the Avalanche had opened up a good old-fashioned bidding war on Mikko Rantanen, here are teams that would have been the best fit.`\
 https://nytimes.com/athletic/6091552/2025/01/27/mikko-rantanen-nhl-trade-tiers/
-
-**Barry set for Hull loan and new Aston Villa contract**\
-`Aston Villa forward Louie Barry is set to join Hull City on loan for the rest of the season.`\
-https://nytimes.com/athletic/6031899/2025/01/27/louie-barry-aston-villa-transfer/
-
-**Standoff at Ukrainian Procurement Agency Threatens to Disrupt Weapons Supply**\
-`Ukraine’s defense minister fired the head of a state agency that procured over $7 billion in armaments last year, citing “unsatisfactory” results. She says the move is illegal and vows to stay in her post.`\
-https://nytimes.com/2025/01/27/world/europe/ukraine-weapons-agency-standoff.html
 
