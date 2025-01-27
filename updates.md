@@ -1,3 +1,15 @@
+**Bills clean out lockers, reflect on pivotal plays that got away in AFC title game**\
+`What does the future hold for Amari Cooper and Von Miller? Josh Allen takes ownership of Buffalo's final offensive play.`\
+https://nytimes.com/athletic/6092739/2025/01/27/bills-locker-cleanout-chiefs-afc-title-game/
+
+**Sacked referee Coote comes out as gay and says hiding sexuality contributed to behaviour**\
+`David Coote, the former Premier League referee sacked after making derogatory comments about former Liverpool manager Jurgen Klopp, has come out publicly as being gay and said that hiding his sexuality contributed to the behaviour that led to his dismissal.`\
+https://nytimes.com/athletic/6093040/2025/01/27/david-coote-gay-premier-league-referee/
+
+**First Impressions of DeepSeek’s A.I. Chatbot**\
+`The chatbot from China appears to perform a number of tasks as well as its American competitors do, but it censors topics such as Tiananmen Square.`\
+https://nytimes.com/2025/01/27/technology/deepseek-ai-chatbot-first-impressions.html
+
 **Man Pardoned in Jan. 6 Riot Is Fatally Shot by Sheriff’s Deputy During Traffic Stop**\
 `The police said that Matthew W. Huttle, 42, of Hobart, Ind., who was sentenced to six months for his role in the riot at the U.S. Capitol in 2021, resisted arrest after he was stopped in Indiana on Sunday.`\
 https://nytimes.com/2025/01/27/us/politics/jan-6-rioter-shot-indiana-traffic-stop.html
