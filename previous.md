@@ -1,3 +1,7 @@
+**Ravens finalizing contract extension with OC Todd Monken: Source**\
+`Baltimore's offense led the NFL in total yards and rushing yards per game, and finished third in points per game this season.`\
+https://nytimes.com/athletic/6092408/2025/01/27/ravens-todd-monken-contract-extension/
+
 **Watch: What are the big offseason questions for the Commanders?**\
 `The Washington Commanders were the surprise team of the conference championships. The Athletic Football show explain why they can get back`\
 https://nytimes.com/athletic/6090925/2025/01/27/athletic-football-show-commanders-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092280/2025/01/27/blues-islanders-scott-perunovich
 **Penguins place Evgeni Malkin on IR**\
 `Malkin sustained an apparent knee injury in a 4-1 loss against the Kraken on Saturday.`\
 https://nytimes.com/athletic/6092282/2025/01/27/penguins-evgeni-malkin-injured-reserve/
-
-**Florida Scours College Textbooks, Looking for Antisemitism**\
-`State university officials began the effort in response to social media outrage over test questions about terrorism. The effort has infuriated professors.`\
-https://nytimes.com/2025/01/27/us/florida-college-textbooks-antisemitism.html
 
