@@ -1,3 +1,19 @@
+**Palestinian Militant Group Releases Video of Civilian Hostage in Gaza**\
+`The civilian, Arbel Yehud, should have been among the first two groups of hostages released on Jan. 19 and Jan. 25 under the cease-fire deal, according to the Israeli authorities.`\
+https://nytimes.com/2025/01/27/world/middleeast/arbel-yehud-civilian-hostage-gaza.html
+
+**AFCON 2025 draw: Morocco to open tournament against Comoros**\
+`Host nation Morocco have been drawn alongside Mali, Zambia and Comoros in the group stage of the 2025 Africa Cup of Nations (AFCON).`\
+https://nytimes.com/athletic/6092489/2025/01/27/afcon-2025-draw-morocco/
+
+**Why Al Golden's path home provided perfect connection for Zac Taylor, Bengals**\
+`The Bengals' new defensive coordinator kept his residence in Cincinnati after his first stint with the team and is excited to be back.`\
+https://nytimes.com/athletic/6092497/2025/01/27/al-golden-cincinnati-bengals-defensive-coordinator/
+
+**Nvidia Reels After China’s A.I. Breakthrough**\
+`The tech industry has had an insatiable appetite for Nvidia’s chips over the last two years. But the feast may be over sooner than many had expected.`\
+https://nytimes.com/2025/01/27/business/deepseek-nvidia-ai-chips.html
+
 **Bayern sign goalkeeper Urbig from Koln**\
 `Bayern Munich have completed the signing of goalkeeper Jonas Urbig from Koln.`\
 https://nytimes.com/athletic/6088950/2025/01/27/jonas-urbig-bayern-munich-transfer/
