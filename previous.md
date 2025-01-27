@@ -1,3 +1,7 @@
+**Musk Says Germany Has ‘Too Much of a Focus on Past Guilt’**\
+`His comments to the hard-right Alternative for Germany party escalated efforts by the billionaire to influence the country’s election for chancellor next month.`\
+https://nytimes.com/2025/01/27/world/europe/musk-germany-comments.html
+
 **In Exacting Retribution, Trump Aims at the Future as Well as the Past**\
 `The president made good on promises to seek revenge against enemies during his first week back in power, signaling in the process that anyone who crosses him in the future could also suffer.`\
 https://nytimes.com/2025/01/27/us/politics/trump-politics-enemies-pompeo-fauci.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/us/earthquake-boston-new-hampshire-maine.html
 **Map: 3.8-Magnitude Earthquake Strikes off the Coast of Maine**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/01/27/weather/quake-tracker-gulf-of-maine.html
-
-**Hollinger's Week That Was: What's next in Philly? Plus, scouting Jase Richardson**\
-`Two weekend wins didn't change the overall outlook in Philly. Are there signs of hope down the line?`\
-https://nytimes.com/athletic/6090659/2025/01/27/paul-george-sixers-nba-jase-richardson-michigan-state/
 

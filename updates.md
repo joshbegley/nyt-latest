@@ -1,3 +1,7 @@
+**Musk Says Germany Has ‘Too Much of a Focus on Past Guilt’**\
+`His comments to the hard-right Alternative for Germany party escalated efforts by the billionaire to influence the country’s election for chancellor next month.`\
+https://nytimes.com/2025/01/27/world/europe/musk-germany-comments.html
+
 **In Exacting Retribution, Trump Aims at the Future as Well as the Past**\
 `The president made good on promises to seek revenge against enemies during his first week back in power, signaling in the process that anyone who crosses him in the future could also suffer.`\
 https://nytimes.com/2025/01/27/us/politics/trump-politics-enemies-pompeo-fauci.html
