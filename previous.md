@@ -1,3 +1,7 @@
+**Strong Dollar vs. Weak Dollar**\
+`President Trump is of two minds when it comes to America’s currency.`\
+https://nytimes.com/2025/01/27/briefing/donald-trump-currency.html
+
 **NBA Rewind: Predicting NBA All-Star reserves and remembering Kobe Bryant**\
 `On the fifth anniversary of Bryant's death, Zach Harper reflects on the Black Mamba's life and impact.`\
 https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lakers-nba-rewind/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lake
 https://nytimes.com/athletic/6090684/2025/01/27/patrick-mahomes-chiefs-super-bowl-superhero/
 
 **Aryna Sabalenka is at the top of women's tennis. Her endorsements and brand deals don't yet match up**\
-`The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport.`\
+`The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport`\
 https://nytimes.com/athletic/6088734/2025/01/27/aryna-sabalenka-tennis-brand-deals-endorsements-value/
 
 **Israeli Forces Again Open Fire as Lebanese Try to Return Home, Lebanese Officials Say**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090896/2025/01/27/cowboys-brian-schottenheimer-jer
 **'A third defenseman' — A strong puckhandling goalie can help your team in several ways**\
 `Goalies such as Seattle's Joey Daccord can help generate offense and also reduce the physical burden of their defensemen.`\
 https://nytimes.com/athletic/6087998/2025/01/27/goalie-puck-handling-daccord/
-
-**'No moral victories in this': Bills overachieved, just not for long enough**\
-`The Bills weren't expected to do much this season, but by the playoffs, looked like they could get over the hump.`\
-https://nytimes.com/athletic/6090708/2025/01/27/bills-chiefs-playoffs-loss-afc-championship/
 

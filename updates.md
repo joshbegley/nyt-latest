@@ -1,3 +1,11 @@
+**Strong Dollar vs. Weak Dollar**\
+`President Trump is of two minds when it comes to America’s currency.`\
+https://nytimes.com/2025/01/27/briefing/donald-trump-currency.html
+
+**Aryna Sabalenka is at the top of women's tennis. Her endorsements and brand deals don't yet match up**\
+`The world No. 1 and three-time Grand Slam champion lags behind her contemporaries in endorsements despite standing atop her sport`\
+https://nytimes.com/athletic/6088734/2025/01/27/aryna-sabalenka-tennis-brand-deals-endorsements-value/
+
 **NBA Rewind: Predicting NBA All-Star reserves and remembering Kobe Bryant**\
 `On the fifth anniversary of Bryant's death, Zach Harper reflects on the Black Mamba's life and impact.`\
 https://nytimes.com/athletic/6085310/2025/01/27/all-star-voting-kobe-bryant-lakers-nba-rewind/
