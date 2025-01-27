@@ -1,3 +1,11 @@
+**Barry set for Hull loan and new Aston Villa contract**\
+`Aston Villa forward Louie Barry is set to join Hull City on loan for the rest of the season.`\
+https://nytimes.com/athletic/6031899/2025/01/27/louie-barry-aston-villa-transfer/
+
+**Standoff at Ukrainian Procurement Agency Threatens to Disrupt Weapons Supply**\
+`Ukraine’s defense minister fired the head of a state agency that procured over $7 billion in armaments last year, citing “unsatisfactory” results. She says the move is illegal and vows to stay in her post.`\
+https://nytimes.com/2025/01/27/world/europe/ukraine-weapons-agency-standoff.html
+
 **Is there a conspiracy against Arsenal? Probably not, but the feeling is real**\
 `VAR, PGMOL statements and former referees' comments in the media can often enflame the discussion over refereeing decisions and anger fans`\
 https://nytimes.com/athletic/6090960/2025/01/27/referees-arsenal-pgmol-decisions/

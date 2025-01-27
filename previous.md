@@ -1,3 +1,11 @@
+**Barry set for Hull loan and new Aston Villa contract**\
+`Aston Villa forward Louie Barry is set to join Hull City on loan for the rest of the season.`\
+https://nytimes.com/athletic/6031899/2025/01/27/louie-barry-aston-villa-transfer/
+
+**Standoff at Ukrainian Procurement Agency Threatens to Disrupt Weapons Supply**\
+`Ukraine’s defense minister fired the head of a state agency that procured over $7 billion in armaments last year, citing “unsatisfactory” results. She says the move is illegal and vows to stay in her post.`\
+https://nytimes.com/2025/01/27/world/europe/ukraine-weapons-agency-standoff.html
+
 **Is there a conspiracy against Arsenal? Probably not, but the feeling is real**\
 `VAR, PGMOL statements and former referees' comments in the media can often enflame the discussion over refereeing decisions and anger fans`\
 https://nytimes.com/athletic/6090960/2025/01/27/referees-arsenal-pgmol-decisions/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009951318/gazans-return-north-r
 **Do You Know These Books Made Into Popular Movies?**\
 `This week’s literary quiz tests your knowledge of films inspired by nonfiction books or deeply autobiographical novels.`\
 https://nytimes.com/interactive/2025/01/27/books/review/nonfiction-movies-quiz.html
-
-**Hegseth Promises a ‘Shift’ at the Pentagon and a Focus on Trump’s Immigration Priorities**\
-`“Whatever is needed at the border will be provided,” Pete Hegseth, the new defense secretary, told reporters.`\
-https://nytimes.com/2025/01/27/us/politics/hegseth-defense.html
-
-**They Fled a Rebel Advance. Then the Rebels Marched on Their Refuge.**\
-`People who fled M23 rebels around Goma, in the eastern Democratic Republic of Congo, have found themselves with nowhere left to go.`\
-https://nytimes.com/card/2025/01/27/world/africa/photos-rebels-goma-congo
 
