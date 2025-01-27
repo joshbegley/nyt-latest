@@ -1,3 +1,11 @@
+**Another U.S. and NWSL defender heads to Women's Super League in England**\
+`The 24-year-old defender is the most recent in a string of NWSL players to head to England.`\
+https://nytimes.com/athletic/6092728/2025/01/27/arsenal-gotham-transfer-jenna-nighswonger-nwsl/
+
+**Fired Inspectors General Raise Alarms as Trump Administration Moves to Finalize Purge**\
+`The full scope of the Friday night mass firings was coming into sharper view as one fired watchdog official warned of “a never-ending cycle of politicization.”`\
+https://nytimes.com/2025/01/27/us/politics/trump-inspectors-general-fired.html
+
 **How to watch South Carolina at Tennessee women's basketball: Reigning champs are on a roll**\
 `Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
 https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/

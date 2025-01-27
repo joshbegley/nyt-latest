@@ -1,3 +1,11 @@
+**Another U.S. and NWSL defender heads to Women's Super League in England**\
+`The 24-year-old defender is the most recent in a string of NWSL players to head to England.`\
+https://nytimes.com/athletic/6092728/2025/01/27/arsenal-gotham-transfer-jenna-nighswonger-nwsl/
+
+**Fired Inspectors General Raise Alarms as Trump Administration Moves to Finalize Purge**\
+`The full scope of the Friday night mass firings was coming into sharper view as one fired watchdog official warned of “a never-ending cycle of politicization.”`\
+https://nytimes.com/2025/01/27/us/politics/trump-inspectors-general-fired.html
+
 **Super Bowl 59 MVP odds: Mahomes nearly even-money favorite ahead of Barkley, Hurts**\
 `Patrick Mahomes is roughly an even-money favorite to win Super Bowl MVP. Saquon Barkley is second ahead of Jalen Hurts.`\
 https://nytimes.com/athletic/6092340/2025/01/27/super-bowl-59-mvp-odds-patrick-mahomes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-hea
 **Oath Keepers Leader’s Travel Restrictions Lifted With New U.S. Attorney’s Help**\
 `Ed Martin, President Trump’s new U.S. attorney in Washington, came to the aid of the group’s leader, Stewart Rhodes. Mr. Rhodes had been sentenced to 18 years for his role in the Jan. 6, 2021, attack on the Capitol.`\
 https://nytimes.com/2025/01/27/us/politics/rhodes-oath-keepers-dc-capitol-trump.html
-
-**Tuesday Briefing: A.I. From China Rattles Markets**\
-`Plus, Venice in the winter.`\
-https://nytimes.com/2025/01/27/briefing/china-ai-markets-colombia-deportees-auschwitz-memorial.html
-
-**How to watch South Carolina at Tennessee women's basketball: Reigning champs are on a roll**\
-`Monday night's rematch has so much to offer. Dawn Staley and the Gamecocks are 7-0 in the SEC. Tennessee could use a big win.`\
-https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-watch-odds-womens-basketball/
 
