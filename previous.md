@@ -1,3 +1,23 @@
+**Here’s the latest on the cease-fire.**\
+`By Mike Ives`\
+https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/heres-the-latest-on-the-cease-fire
+
+**At Auschwitz, a Solemn Ceremony at a Time of Rising Nationalism**\
+`World leaders and a dwindling group of survivors are joining ceremonies to mark the 80th anniversary of the liberation of the Nazi death camp by the Red Army.`\
+https://nytimes.com/2025/01/27/world/europe/auschwitz-liberation-80th-anniversary.html
+
+**Quote of the Day: From ‘Presumed Innocent’ to ‘Presumed Guilty’**\
+`Quotation of the Day for Monday, January 27, 2025.`\
+https://nytimes.com/2025/01/27/pageoneplus/quote-of-the-day-from-presumed-innocent-to-presumed-guilty.html
+
+**China’s Large and Mysterious Dam Project Is Alarming Neighbors and Experts**\
+`The hydropower dam, in quake-prone Tibet, is set to be the world’s biggest. But China has said little about the project, which could affect nearby countries.`\
+https://nytimes.com/2025/01/27/world/asia/china-tibet-dam-india.html
+
+**As Trump and Putin Circle Each Other, an Agenda Beyond Ukraine Emerges**\
+`President Trump jabs at the Russian leader with threats; Vladimir Putin responds with flattery. But there are notable signals in their jousting, including a revived discussion about nuclear arms control.`\
+https://nytimes.com/2025/01/27/world/americas/trump-putin-ukraine.html
+
 **Bill Guerin on Wild's lackluster play: 'There's no excuse whatsoever for any of this'**\
 `Guerin didn't mince words in describing Minnesota's recent play during an intermission in Sunday's win over the Blackhawks.`\
 https://nytimes.com/athletic/6090603/2025/01/26/minnesota-wild-slump-bill-guerin-flames-blackhawks/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-
 **Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch**\
 `The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
 https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
-
-**What to know about Super Bowl 59: How to watch, halftime performer, more**\
-`The Chiefs and Eagles are set to meet in Super Bowl 59. Here is everything to know about the game.`\
-https://nytimes.com/athletic/6087335/2025/01/26/super-bowl-59-how-to-watch-team-team/
-
-**Early dominance over Blackhawks falls apart in Wild's nail-biter win: 3 takeaways**\
-`After allowing just five shots in the first two periods, the Wild had to scramble to keep the lead against Chicago in a narrow 4-2 win.`\
-https://nytimes.com/athletic/6089947/2025/01/26/minnesota-wild-gustavsson-blackhawks-hynes/
-
-**Chiefs hold off Bills to set up Super Bowl rematch with Eagles, keep 3-peat bid alive**\
-`This year's Super Bowl is a rematch of Super Bowl LVII two years ago, which the Chiefs won 38-35 over the Eagles.`\
-https://nytimes.com/athletic/6090035/2025/01/26/chiefs-bills-afc-championship-result-score-takeaways/
-
-**Bears to hire Allen, Doyle as coordinators for new coach: Sources**\
-`Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
-https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
-
-**Storm trade Jewell Loyd to Aces, Sparks get Kelsey Plum in 3-team trade**\
-`The three teams are also exchanging 2025 draft picks as part of the trade.`\
-https://nytimes.com/athletic/6090208/2025/01/26/kelsey-plum-jewell-loyd-aces-sparks-storm-trade/
 
