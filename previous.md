@@ -1,40 +1,40 @@
-**The Rebirth of the Library That Burned in Britain’s Anti-Immigrant Riots**\
-`After the Spellow Library in Liverpool was targeted during England’s unrest last summer, more than 10,000 people donated to its restoration.`\
-https://nytimes.com/2025/01/27/world/europe/library-riots-burned-uk-liverpool-spellow.html
+**Trent Baalke and the Jaguars were once on the Lions' path. Where did it go wrong?**\
+`The Jaguars and Lions were tracking almost identically until about 14 months ago, but Detroit's build had a much sturdier foundation.`\
+https://nytimes.com/athletic/6090909/2025/01/27/trent-baalke-jaguars-brad-holmes-lions/
 
-**In China, Government Data on Drugs Blocked From Public After Backlash**\
-`Criticism over how the Chinese government buys drugs for its public health care system has ignited frustration over the quality of medicine.`\
-https://nytimes.com/2025/01/27/business/china-drug-prices.html
+**The Cowboys got crushed for hiring Brian Schottenheimer as head coach. Did they deserve it?**\
+`It shouldn't shock anyone if Schottenheimer wins more games over the next two seasons than Ben Johnson wins with the Chicago Bears.`\
+https://nytimes.com/athletic/6090896/2025/01/27/cowboys-brian-schottenheimer-jerry-jones/
 
-**Patrick Mahomes at his best as Chiefs return to Super Bowl with a chance to three-peat**\
-`The Chiefs outlasted the Bills in another postseason thriller to become the first team to reach five Super Bowls in six seasons.`\
-https://nytimes.com/athletic/6090813/2025/01/27/chiefs-patrick-mahomes-afc-championship-bills/
+**'A third defenseman' — A strong puckhandling goalie can help your team in several ways**\
+`Goalies such as Seattle's Joey Daccord can help generate offense and also reduce the physical burden of their defensemen.`\
+https://nytimes.com/athletic/6087998/2025/01/27/goalie-puck-handling-daccord/
 
-**These Bills were different, but the outcome was the same**\
-`The Bills outperformed expectations until they once again met the Chiefs in the playoffs.`\
-https://nytimes.com/athletic/6090739/2025/01/27/bills-lose-chiefs-josh-allen-playoffs/
+**'No moral victories in this': Bills overachieved, just not for long enough**\
+`The Bills weren't expected to do much this season, but by the playoffs, looked like they could get over the hump.`\
+https://nytimes.com/athletic/6090708/2025/01/27/bills-chiefs-playoffs-loss-afc-championship/
 
-**Analyzing Ravens' biggest offseason questions: What's next for Mark Andrews?**\
-`Plus, how will contract negotiations with John Harbaugh go? And what will Baltimore prioritize in this year's NFL Draft?`\
-https://nytimes.com/athletic/6088040/2025/01/27/ravens-offseason-questions-mark-andrews/
+**Gazans Trek Home, and Trump’s Tariff Spat With Colombia**\
+`Plus, a Super Bowl three-peat?`\
+https://nytimes.com/2025/01/27/podcasts/headlines-israel-gaza-cease-fire.html
 
-**Browns QB tracker: Jalen Milroe, Jaxson Dart and others to watch at the Senior Bowl**\
-`The Senior Bowl can be a great place for strong first impressions, and Cleveland gets a chance to see all the QBs participating this week. `\
-https://nytimes.com/athletic/6089193/2025/01/27/browns-quarterback-tracker-nfl-draft-senior-bowl/
+**Matt LaFleur's playcalling, big trade chances, offseason needs: Packers mailbag**\
+`The Packers embark on an important offseason after their GM said it's time to start competing for championships.`\
+https://nytimes.com/athletic/6089362/2025/01/27/packers-mailbag-matt-lafleur-nfl-draft/
 
-**Man Utd fans demand ticket price freeze in letter to Ratcliffe**\
-`Manchester United supporters have called on the club to freeze ticket prices and &#8220;end the war on season ticket holders&#8221; in an open letter to Sir Jim Ratcliffe.`\
-https://nytimes.com/athletic/6090867/2025/01/27/manchester-united-ticket-prices-ratcliffe/
+**Chiefs' all-out blitz with Super Bowl berth on the line is defensive play call of the year**\
+`The latest instant classic in the AFC's best running rivalry rested on one play, and K.C. defensive coordinator Steve Spagnuolo took a risk.`\
+https://nytimes.com/athletic/6090712/2025/01/27/chiefs-bills-mcduffie-spagnuolo-blitz/
 
-**Ranking the Falcons' top unrestricted free agents: Will Drew Dalman, Justin Simmons return?**\
-`The Falcons have 22 unrestricted free agents. Our rankings of the most appealing players begins with an offensive lineman.`\
-https://nytimes.com/athletic/6080668/2025/01/27/falcons-2025-unrestricted-free-agents-ranking/
+**The Chiefs' reach for immortality, Bills, Eagles (and refs) be damned: Sando's Pick Six**\
+`Patrick Mahomes and the Chiefs are one game from standing alone, leaving unfulfilled legacies and grousing fans in their wake.`\
+https://nytimes.com/athletic/6014459/2025/01/27/chiefs-bills-eagles-refs-super-bowl/
 
-**Trump Explodes Out of the Gate**\
-`For the president’s opponents, it was a week that felt like a decade.`\
-https://nytimes.com/2025/01/27/opinion/trump-immigration-jan6-pardons.html
+**After a splashy offseason and terrible start, the Predators seem destined for the mushy middle**\
+`The Predators added two 40-goal scorers on July 1 but can't score. With an aging core and no easy fix, what does their future hold?`\
+https://nytimes.com/athletic/6070741/2025/01/27/nashville-predators-barry-trotz-offseason/
 
-**Don’t Kill FEMA. Fix It.**\
-`Its long-term recovery efforts are terrible, but the agency’s crisis response remains critical.`\
-https://nytimes.com/2025/01/27/opinion/trump-fema-climate-change.html
+**Stephen Miller’s Return to Power**\
+`The 39-year-old adviser whose ideas and ideology have driven President Trump’s executive orders.`\
+https://nytimes.com/2025/01/27/podcasts/the-daily/stephen-miller-trump.html
 
