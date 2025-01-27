@@ -1,3 +1,15 @@
+**Denmark and Other Nations Under Pressure Seek Lobbyists With Trump Ties**\
+`The president’s confrontational foreign policy has created opportunity for his allies on K Street who are willing to take on clients he has targeted.`\
+https://nytimes.com/2025/01/27/us/politics/trump-denmark-panama-greenland-lobbyists.html
+
+**Antony: From a €95m Man Utd signing to a low-key loan exit in under three years**\
+`United went to great lengths to sign Antony from Ajax in 2022. Two and a half years later, a loan move to Spain encapsulates his struggles`\
+https://nytimes.com/athletic/6090868/2025/01/27/antony-manchester-united-loan-exit-95m/
+
+**New Gaza checkpoint provides clues to the cease-fire security arrangements.**\
+`By Matthew Mpoke Bigg and Fatima AbdulKarim`\
+https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/new-gaza-checkpoint-provides-clues-to-the-cease-fire-security-arrangements
+
 **West Ham win legal battle with London Stadium landlords over disputed payment**\
 `West Ham United have won a legal battle with their landlords at the London Stadium over a disputed payment linked to Czech billionaire Daniel Kretinsky’s 2021 purchase of a 27 per cent stake in the Premier League club.`\
 https://nytimes.com/athletic/6092129/2025/01/27/west-ham-london-stadium-legal-battle/
