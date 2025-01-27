@@ -1,3 +1,19 @@
+**Activist Investor Seeks to Oust U.S. Steel Chief Over Nippon Deal**\
+`The two steel makers are seeking to revive Nippon Steel’s $14 billion takeover of U.S. Steel after it was blocked by the Biden administration.`\
+https://nytimes.com/2025/01/27/business/us-steel-nippon-activist.html
+
+**USMNT Player Tracker: Pulisic on the spot, commanding Adams and Sargent sticks to the plan**\
+`Our roundup of the U.S. contingent's contribution over the weekend also includes Jordan Pefok's continued toils at Union Berlin`\
+https://nytimes.com/athletic/6091566/2025/01/27/usmnt-pulisic-adams-sargent-tracker/
+
+**Notre Dame mailbag: What's next at defensive coordinator? How big are portal losses?**\
+`There's plenty to talk about at Notre Dame in the wake of the national title game loss. What's next and how have expectations changed?`\
+https://nytimes.com/athletic/6091854/2025/01/27/notre-dame-defensive-coordinator-candidates-transfer-portal/
+
+**NYCFC confirms sale of McFarlane, 18, to Man City**\
+`New York City FC has confirmed the sale of 18-year-old defender Christian McFarlane to Manchester City.`\
+https://nytimes.com/athletic/6091948/2025/01/27/christian-mcfarlane-manchester-city-nycfc/
+
 **Inmate Sues the Trump Administration Over Transgender Executive Order**\
 `The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
 https://nytimes.com/2025/01/27/us/trump-executive-order-transgender-lawsuit.html
