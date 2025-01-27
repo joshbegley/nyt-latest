@@ -1,3 +1,7 @@
+**Bill Guerin on Wild's lackluster play: 'There's no excuse whatsoever for any of this'**\
+`Guerin didn't mince words in describing Minnesota's recent play during an intermission in Sunday's win over the Blackhawks.`\
+https://nytimes.com/athletic/6090603/2025/01/27/minnesota-wild-slump-bill-guerin-flames-blackhawks/
+
 **Men’s basketball Top 25: Defenses doing damage as February arrives**\
 `As we approach the midpoint of conference play, let's take a closer look at some teams rising up the rankings thanks to their defense.`\
 https://nytimes.com/athletic/6090436/2025/01/27/mens-college-basketball-top-25-auburn-houston/
