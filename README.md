@@ -1,11 +1,3 @@
-**Chiefs turn controversial 4th down call into go-ahead TD in AFC Championship**\
-`Bills QB Josh Allen was ruled short of the line to gain on a rush attempt although he appeared to have `\
-https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-afc-cahmpionship/
-
-**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2022 game**\
-`The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
-https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
-
 **What to know about Super Bowl 59: How to watch, halftime performer, more**\
 `The Chiefs and Eagles are set to meet in Super Bowl 59. Here is everything to know about the game.`\
 https://nytimes.com/athletic/6087335/2025/01/26/super-bowl-59-how-to-watch-team-team/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-c
 **Eagles' NFC Championship Game win by the numbers: Every stat to know**\
 `Philadelphia's Saquon Barkley-led rushing attack rewrote NFL and team record books on Sunday.`\
 https://nytimes.com/athletic/6089973/2025/01/26/eagles-record-breaking-nfc-championship-statistics-superbowl/
+
+**The Question Trap**\
+`Loaded questions that serve as a proxy for something else.`\
+https://nytimes.com/2025/01/26/podcasts/the-question-trap-this-american-life-nyt-audio.html
+
+**Israeli Army Raids Home of Freed Hamas Member Amid Tensions Over Hostage Deal**\
+`Soldiers disrupted a Jerusalem gathering to mark the early release of an imprisoned Palestinian, arresting his brother and roughing up his father. A Times reporter conducting interviews was also assaulted.`\
+https://nytimes.com/2025/01/26/world/middleeast/israel-army-palestinian-prisoners.html
 
