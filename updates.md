@@ -1,3 +1,7 @@
+**Jerry Jones likes his new coach's 'baggage,' says hiring was a 'risk'**\
+`Jones: 'He's had 25 years being around the kinds of things that he's gonna have to draw on to be a coach of the Dallas Cowboys."`\
+https://nytimes.com/athletic/6092435/2025/01/27/jerry-jones-likes-brian-schottenheimers-baggage-but-says-new-cowboys-coaches-hiring-was-a-risk/
+
 **Ravens finalizing contract extension with OC Todd Monken: Source**\
 `Baltimore's offense led the NFL in total yards and rushing yards per game, and finished third in points per game this season.`\
 https://nytimes.com/athletic/6092408/2025/01/27/ravens-todd-monken-contract-extension/
