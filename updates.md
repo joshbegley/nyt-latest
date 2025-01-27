@@ -1,3 +1,7 @@
+**Bears to hire Allen, Doyle as coordinators under new coach Johnson: Sources**\
+`Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
+https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
+
 **Storm trade Jewell Loyd to Aces, Sparks get Kelsey Plum in 3-team trade**\
 `The three teams are also exchanging 2025 draft picks as part of the trade.`\
 https://nytimes.com/athletic/6090208/2025/01/26/kelsey-plum-jewell-loyd-aces-sparks-storm-trade/

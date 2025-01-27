@@ -1,3 +1,7 @@
+**Bears to hire Allen, Doyle as coordinators under new coach Johnson: Sources**\
+`Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
+https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
+
 **Storm trade Jewell Loyd to Aces, Sparks get Kelsey Plum in 3-team trade**\
 `The three teams are also exchanging 2025 draft picks as part of the trade.`\
 https://nytimes.com/athletic/6090208/2025/01/26/kelsey-plum-jewell-loyd-aces-sparks-storm-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/california-fires-rain-mudslides.html
 **SEC fines Vanderbilt $500,000 for fans storming court vs. Kentucky**\
 `It’s Vanderbilt’s third offense under the SEC’s revised court-storming policy, which was updated in 2023.`\
 https://nytimes.com/athletic/6089880/2025/01/26/vanderbilt-fined-sec-court-storming/
-
-**Coffee and Flowers Could Cost Americans More in a Colombian Trade War**\
-`Colombia is a relatively minor trading partner to the United States, but some industries are much more exposed than others.`\
-https://nytimes.com/2025/01/26/us/politics/colombia-tariffs-trump-exports.html
 
