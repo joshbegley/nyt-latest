@@ -1,3 +1,7 @@
+**Trump Seeks to Assert More Control Over California’s Water**\
+`The president, who has assailed California’s leaders over wildfires, issued the directive in an executive order that was dated Friday but released on Sunday.`\
+https://nytimes.com/2025/01/27/us/politics/trump-federal-government-california-water.html
+
 **Rebels Backed by Rwanda Announce Capture of Key City in Eastern Congo**\
 `The M23 militia, funded and directed by Rwanda, said it took the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
 https://nytimes.com/2025/01/27/world/africa/rebels-capture-goma-congo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/briefing/gaza-lebanon-colombia-deportations.html
 **How Miyazawa finally found her place at Manchester United**\
 `The Japan international is helping to turn United into credible WSL title contenders after her potential was unlocked`\
 https://nytimes.com/athletic/6090182/2025/01/27/hinata-miyazawa-manchester-united/
-
-**Commanders filled with disappointment while appreciating this season's journey**\
-`“There’s a lot to take away from (this season),” said coach Dan Quinn as Washington fell to the Eagles in the NFC title game. `\
-https://nytimes.com/athletic/6086815/2025/01/27/commanders-nfc-championship-loss-eagles/
 

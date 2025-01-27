@@ -1,3 +1,7 @@
+**Trump Seeks to Assert More Control Over California’s Water**\
+`The president, who has assailed California’s leaders over wildfires, issued the directive in an executive order that was dated Friday but released on Sunday.`\
+https://nytimes.com/2025/01/27/us/politics/trump-federal-government-california-water.html
+
 **Rebels Backed by Rwanda Announce Capture of Key City in Eastern Congo**\
 `The M23 militia, funded and directed by Rwanda, said it took the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
 https://nytimes.com/2025/01/27/world/africa/rebels-capture-goma-congo.html
