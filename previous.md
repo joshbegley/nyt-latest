@@ -1,3 +1,19 @@
+**Forest's 5-0 loss hurts more than the last one - the dynamic at the club has changed**\
+`If Forest want to continue their remarkable journey, they cannot let their standards slip, even for a moment`\
+https://nytimes.com/athletic/6088888/2025/01/27/forest-bournemouth-defeat-nuno/
+
+**Why Vitor Pereira cannot be the latest Wolves manager to be left short-changed in a transfer window**\
+`Wolves cannot afford more near-misses or tales of deals that got away or the consequences for the club and their owners could be dire`\
+https://nytimes.com/athletic/6088158/2025/01/27/wolves-transfer-window-vitor-pereria/
+
+**David Moyes has made Everton comfortable in their own skin again - as Brighton found out**\
+`How a pragmatic masterclass on the south coast left the Brighton players and supporters enraged and deflated in equal measure`\
+https://nytimes.com/athletic/6088204/2025/01/27/everton-moyes-horribly-effective-premier-league/
+
+**What's going on with Jhon Duran? The Aston Villa and West Ham views**\
+`With Aston Villa striker Jhon Duran being linked to West Ham and the two clubs facing each other on Sunday, our writers looked at his future`\
+https://nytimes.com/athletic/6089574/2025/01/27/jhon-duran-villa-west-ham-transfer/
+
 **Does the Premier League's Big Six still exist (on and off the pitch)?**\
 `With Manchester United and Tottenham languishing in the bottom half of the Premier League, what does it mean for the 'Big Six'?`\
 https://nytimes.com/athletic/6086082/2025/01/27/premier-league-big-six-on-off-pitch/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6081054/2025/01/27/southport-town-in-mourning/
 **Gerard Pique interview: How his seven-a-side dream has gone global with help from Jake Paul**\
 `The former Barcelona defender on his Kings League project and his thoughts on Barcelona's problems`\
 https://nytimes.com/athletic/6080599/2025/01/27/gerard-pique-interview-how-his-7-a-side-dream-has-gone-global-with-help-from-jake-paul/
-
-**How to move like Alexander Isak - a seven-part guide**\
-`Against Southampton, Isak managed to display at least seven types of movement — it is this variety which is key to his game.`\
-https://nytimes.com/athletic/6088349/2025/01/27/how-to-move-like-alexander-isak/
-
-**Josko Gvardiol has become one of Manchester City's most consistent attacking outlets**\
-`In a way, it's a damning indictment of City's form that a converted centre-back often offers their biggest goal threat… but he is`\
-https://nytimes.com/athletic/6089501/2025/01/27/josko-gvardiol-manchester-city-attacking/
-
-**Everything you need to know about the 2026 World Cup:**\
-`Everything you need to know about the 2026 men's World Cup - from how many teams will play to the stadiums that will be used`\
-https://nytimes.com/athletic/6085823/2025/01/27/2026-world-cup-united-states-canada-mexico/
-
-**Here’s the latest on the cease-fire.**\
-`By Mike Ives`\
-https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/heres-the-latest-on-the-cease-fire
 
