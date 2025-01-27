@@ -1,5 +1,9 @@
+**Senators expected to announce training camp, possible preseason games in Quebec City**\
+`Senators owner Michael Andlauer is expected to attend a press conference at Quebec City's Videotron Centre to announce the news.`\
+https://nytimes.com/athletic/6090102/2025/01/26/ottawa-senators-preseason-quebec-city-andlauer/
+
 **Bills CB Christian Benford ruled out of AFC championship with concussion**\
-`Benford was just cleared from concussion protocol ahead of this game after suffering one last week against the Ravens.`\
+`Benford was just cleared from concussion protocol ahead of Sunday's game, after he suffered a concussion last week against the Ravens.`\
 https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-concussion-chiefs/
 
 **Eagles' NFC Championship Game win by the numbers: Every stat to know**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/26/us/politics/colombia-tariffs-trump-exports.html
 **Little-known NFL rule nearly awards Eagles free touchdown**\
 `Washington nearly drew what would likely be the NFL's first implementation of the "Fouls to Prevent Score" penalty.`\
 https://nytimes.com/athletic/6089915/2025/01/26/eagles-commanders-rule-referees-award-score/
-
-**Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
-`Philly's stars combined for six rushing touchdowns and the Eagles forced four turnovers Sunday, ending Washington's dream run.`\
-https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
 

@@ -1,3 +1,11 @@
+**Senators expected to announce training camp, possible preseason games in Quebec City**\
+`Senators owner Michael Andlauer is expected to attend a press conference at Quebec City's Videotron Centre to announce the news.`\
+https://nytimes.com/athletic/6090102/2025/01/26/ottawa-senators-preseason-quebec-city-andlauer/
+
+**Bills CB Christian Benford ruled out of AFC championship with concussion**\
+`Benford was just cleared from concussion protocol ahead of Sunday's game, after he suffered a concussion last week against the Ravens.`\
+https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-concussion-chiefs/
+
 **Bills CB Christian Benford ruled out of AFC championship with concussion**\
 `Benford was just cleared from concussion protocol ahead of this game after suffering one last week against the Ravens.`\
 https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-concussion-chiefs/
