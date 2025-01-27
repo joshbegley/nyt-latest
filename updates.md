@@ -1,3 +1,15 @@
+**Wolves in talks to sign centre-back Danso from Lens**\
+`Wolverhampton Wanderers are in talks to sign centre-back Kevin Danso from Lens.`\
+https://nytimes.com/athletic/6091301/2025/01/27/kevin-danso-wolves-transfer-news/
+
+**Penguins Today: Crosby trade speculation, Malkin injury update**\
+`A lot happened with the Penguins over the weekend. Let's sift through it.`\
+https://nytimes.com/athletic/6091484/2025/01/27/penguins-sidney-crosby-trade-rumors-evgeni-malkin-injury-update/
+
+**One of 2025’s Biggest Battles Over Abortion Rights Has Already Begun**\
+`A contest for control of Wisconsin’s top court may be even nastier and more expensive than its bitter 2023 predecessor, with the fate of an 1849 abortion ban and other policies at stake.`\
+https://nytimes.com/2025/01/27/us/politics/wisconsin-supreme-court-race.html
+
 **Khris Middleton's lackluster game against the Clippers: Rust, regression or third wheel?**\
 `Middleton went scoreless for the second time this season and looked out of sync. We re-watched his performance to see what went wrong.`\
 https://nytimes.com/athletic/6089686/2025/01/27/khris-middleton-bucks-clippers/
