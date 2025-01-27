@@ -1,3 +1,11 @@
+**Thousands Flee as Rebel Militia Captures the City of Goma**\
+`A Rwandan-backed militia, called M23, said that hey captured the city of Goma in eastern Democratic Republic of Congo.`\
+https://nytimes.com/video/world/africa/100000009951749/rebels-capture-goma.html
+
+**Heat suspend Jimmy Butler indefinitely**\
+`Butler, the disgruntled forward who has sought a trade from Miami, left the team's shootaround on Monday.`\
+https://nytimes.com/athletic/6092729/2025/01/27/jimmy-butler-suspended-miami-heat-trade-rumors/
+
 **Another U.S. and NWSL defender heads to Women's Super League in England**\
 `The 24-year-old defender is the most recent in a string of NWSL players to head to England.`\
 https://nytimes.com/athletic/6092728/2025/01/27/arsenal-gotham-transfer-jenna-nighswonger-nwsl/
