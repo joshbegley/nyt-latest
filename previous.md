@@ -1,3 +1,11 @@
+**Chelsea's Veiga completes Juventus loan move**\
+`Juventus have completed the signing of Renato Veiga on loan from Chelsea until the end of the season.`\
+https://nytimes.com/athletic/6083315/2025/01/27/renato-veiga-juventus-transfer-chelsea/
+
+**World Bank Warns Colombian Staff Against U.S. Travel After Trump Visa Edict**\
+`Several Colombians whose visas were revoked were World Bank employees traveling in the United States at the time. They were deported.`\
+https://nytimes.com/2025/01/20/us/politics/trump-visas-colombia-world-bank.html
+
 **Lions' Dan Campbell tabs John Morton as offensive coordinator: Source**\
 `Detroit coach Dan Campbell is turning to someone he has worked with in the past to replace Ben Johnson as OC. `\
 https://nytimes.com/athletic/6092650/2025/01/27/lions-john-morton-offensive-coordinator-dan-campbell/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6092425/2025/01/27/south-carolina-tennessee-how-to-
 **New coach Pete Carroll expects Raiders to win 'immediately'**\
 `The Raiders' new coach — and GM John Spytek — expressed plenty of optimism about their new roles with the team Monday in Las Vegas.`\
 https://nytimes.com/athletic/6092611/2025/01/27/raiders-pete-carroll-john-spytek-tom-brady/
-
-**François Ponchaud, Who Alerted World to Cambodian Atrocities, Dies at 86**\
-`A French Catholic priest, he wrote a book recounting horrors committed by the Khmer Rouge that were responsible for the death of almost two million people.`\
-https://nytimes.com/2025/01/27/world/europe/francois-ponchaud-dead.html
-
-**Three lessons we can learn from looking back at decades of Giants top prospect lists**\
-`It's top MLB prospect list season. What can we learn from these lists?`\
-https://nytimes.com/athletic/6091873/2025/01/27/top-mlb-propspect-rankings-sf-giants-history/
 

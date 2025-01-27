@@ -1,3 +1,11 @@
+**Chelsea's Veiga completes Juventus loan move**\
+`Juventus have completed the signing of Renato Veiga on loan from Chelsea until the end of the season.`\
+https://nytimes.com/athletic/6083315/2025/01/27/renato-veiga-juventus-transfer-chelsea/
+
+**World Bank Warns Colombian Staff Against U.S. Travel After Trump Visa Edict**\
+`Several Colombians whose visas were revoked were World Bank employees traveling in the United States at the time. They were deported.`\
+https://nytimes.com/2025/01/20/us/politics/trump-visas-colombia-world-bank.html
+
 **Lions' Dan Campbell tabs John Morton as offensive coordinator: Source**\
 `Detroit coach Dan Campbell is turning to someone he has worked with in the past to replace Ben Johnson as OC. `\
 https://nytimes.com/athletic/6092650/2025/01/27/lions-john-morton-offensive-coordinator-dan-campbell/
