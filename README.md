@@ -1,5 +1,5 @@
 **Trump’s Suit Against Pulitzer Board Faces a Hurdle: His Previous Arguments**\
-`Mr. Trump, the board noted, has argued that  a state court should not be permitted to exert control over a sitting president.`\
+`Mr. Trump, the board noted, has argued that a state court should not be permitted to exert control over a sitting president.`\
 https://nytimes.com/2025/01/27/business/media/trump-libel-suit-pulitzer-prize-board.html
 
 **Trump Paralyzes Independent Rights Watchdog, Firing Members Selected by Democrats**\
