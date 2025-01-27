@@ -1,3 +1,11 @@
+**Clothes for Savvy, Elegant Adults? What an Idea.**\
+`The verdict on Peter Copping’s Lanvin debut.`\
+https://nytimes.com/2025/01/27/style/couture-lanvin-paris.html
+
+**Gaza and Lebanon Truces Are Fragile, but All Sides May Keep Them Going**\
+`Bloodshed over the weekend highlighted the brittleness of the cease-fires in both places. Still, Israel, Hamas and Hezbollah each have reasons to postpone a new escalation, at least for a few weeks.`\
+https://nytimes.com/2025/01/27/world/middleeast/gaza-lebanon-israel-ceasefire.html
+
 **Rebels Backed by Rwanda Announce Capture of Key City in Eastern Congo**\
 `The M23 militia, funded and directed by Rwanda, has seized the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
 https://nytimes.com/2025/01/27/world/africa/rebels-capture-goma-congo.html
