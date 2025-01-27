@@ -1,3 +1,11 @@
+**Storm trade Jewell Loyd to Aces, Sparks get Kelsey Plum in 3-team trade**\
+`The three teams are also exchanging 2025 draft picks as part of the trade.`\
+https://nytimes.com/athletic/6090208/2025/01/26/kelsey-plum-jewell-loyd-aces-sparks-storm-trade/
+
+**Eagles' NFC Championship Game win by the numbers: Every stat to know**\
+`Philadelphia's Saquon Barkley-led rushing attack rewrote NFL and team record books on Sunday.`\
+https://nytimes.com/athletic/6089973/2025/01/26/eagles-record-breaking-nfc-championship-statistics-superbowl/
+
 **Senators expected to announce training camp, possible preseason games in Quebec City**\
 `Senators owner Michael Andlauer is expected to attend a press conference at Quebec City's Videotron Centre to announce the news.`\
 https://nytimes.com/athletic/6090102/2025/01/26/ottawa-senators-preseason-quebec-city-andlauer/
