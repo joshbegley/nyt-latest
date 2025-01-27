@@ -1,3 +1,15 @@
+**‘It Cannot Go On Like This’: Voices From Europe’s Swing to the Right**\
+`‘A lot of people simply haven’t been heard for a long time.’`\
+https://nytimes.com/2025/01/27/opinion/europe-elections-immigration-far-right.html
+
+**‘Mo,’ Plus 4 Things to Watch on TV This Week**\
+`Tune in for a Netflix series’s second season more than two years after the first, and catch up on rustic reality TV.`\
+https://nytimes.com/2025/01/27/arts/television/tv-this-week-mo-maine-cabin-masters.html
+
+**Monday Briefing**\
+`Cease-fires under pressure.`\
+https://nytimes.com/2025/01/27/briefing/gaza-lebanon-colombia-deportations.html
+
 **Commanders filled with disappointment while appreciating this season's journey**\
 `“There’s a lot to take away from (this season),” said coach Dan Quinn as Washington fell to the Eagles in the NFC title game. `\
 https://nytimes.com/athletic/6086815/2025/01/27/commanders-nfc-championship-loss-eagles/
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/6088204/2025/01/27/everton-moyes-horribly-effective
 `With Aston Villa striker Jhon Duran being linked to West Ham and the two clubs facing each other on Sunday, our writers looked at his future`\
 https://nytimes.com/athletic/6089574/2025/01/27/jhon-duran-villa-west-ham-transfer/
 
-**Does the Premier League's Big Six still exist (on and off the pitch)?**\
-`With Manchester United and Tottenham languishing in the bottom half of the Premier League, what does it mean for the 'Big Six'?`\
-https://nytimes.com/athletic/6086082/2025/01/27/premier-league-big-six-on-off-pitch/
-
-**Jalen Hurts 'just wins,' and that's what matters to the Super Bowl-bound Eagles**\
-`Hurts isn't concerned with his personal stats, a selfless approach that has helped Philadelphia punch its ticket to New Orleans.`\
-https://nytimes.com/athletic/6090535/2025/01/27/jalen-hurts-eagles-super-bowl-team/
-
 **The Briefing: Tipping point for Postecoglou? Champions League Bournemouth? Can Chelsea succeed with Sanchez?**\
 `The key talking points from the Premier League weekend`\
 https://nytimes.com/athletic/6089766/2025/01/27/tipping-point-for-postecoglou-champions-league-bournemouth-can-chelsea-succeed-with-sanchez-the-briefing/
-
-**How long can Tottenham let this go on for?**\
-`The problems are mounting after a fourth straight Premier League defeat. We are entering a defining period for Postecoglou`\
-https://nytimes.com/athletic/6089589/2025/01/27/tottenham-postecoglou-future-levy/
 
