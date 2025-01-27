@@ -1,3 +1,19 @@
+**Gazans Crowd the Road North, Joyful but Anxious**\
+`For nearly 16 months, hundreds of thousands of displaced Palestinians have lived in tents, barred from returning to northern Gaza. On Monday, Israel allowed them to walk back.`\
+https://nytimes.com/2025/01/27/world/middleeast/gaza-road-north.html
+
+**Three burning questions for Nebraska, Matt Rhule on special teams, roster limits and more**\
+`The spring calendar is yet to be finalized for Rhule and the Huskers. `\
+https://nytimes.com/athletic/6091254/2025/01/27/nebraska-matt-rhule-offseason-questions-college-football-special-teams/
+
+**Mason McTavish's huge week reminds all that he can be more than 'third-line guy'**\
+`The Ducks center has almost doubled his goal total in the past week with five goals in three games.`\
+https://nytimes.com/athletic/6090242/2025/01/27/mason-mctavish-anaheim-ducks-scoring-cronin/
+
+**Breaking down Keith Law's top 100 MLB prospects list: Risers, fallers and top systems**\
+`Which teams had the most top 100 prospects? Which ones had the most top 40 prospects? Who climbed the ranks? Who fell the most?`\
+https://nytimes.com/athletic/6088003/2025/01/27/mlb-top-100-prospects-by-the-numbers/
+
 **Comic Book Publisher Drops Neil Gaiman Amid Sexual Misconduct Allegations**\
 `Dark Horse Comics announced it would no longer publish the author and canceled further publication of his “Anansi Boys” series.`\
 https://nytimes.com/2025/01/27/books/neil-gaiman-allegations-comic-book-publisher.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6090436/2025/01/27/mens-college-basketball-top-25-a
 **What I saw in the PWHL this week: Sceptres get much-needed win, but what hasn't been working?**\
 `Toronto defeated New York 4-2 at Scotiabank Arena on Saturday but sits last in the PWHL standings. What's behind its struggles this season?`\
 https://nytimes.com/athletic/6090674/2025/01/27/pwhl-toronto-sceptres-win-new-york-sirens/
-
-**Iga Swiatek's form, Novak Djokovic and father time, and a media circus: Australian Open briefing**\
-`The first Grand Slam of 2025 is in the books: here's what the tennis world learned in Melbourne.`\
-https://nytimes.com/athletic/6082764/2025/01/27/australian-open-review-swiatek-hard-court-djokovic-injury/
-
-**What could a Rashawn Slater extension look like for the Chargers?**\
-`Tampa Bay's Tristan Wirfs is the NFL's highest paid tackle at $28.125 million per year. Slater could top that. `\
-https://nytimes.com/athletic/6085012/2025/01/27/rashawn-slater-chargers-contract-projection/
-
-**49ers mailbag: What should be first on Robert Saleh's offseason agenda?**\
-`Among the questions in this week's mailbag: Does Saleh have a background as a blitzer? Which free agents might he attract?`\
-https://nytimes.com/athletic/6084371/2025/01/27/49ers-mailbag-robert-saleh-agenda/
-
-**Chiefs-Bills delivers, Tom Brady's sweet spot and more NFL media takeaways**\
-`NFL broadcasts Sunday delivered with Chiefs-Bills, Brady missed an opportunity, CBS was prepared for Taylor Swift and more media notes.`\
-https://nytimes.com/athletic/6087757/2025/01/27/kansas-city-chiefs-buffalo-bills-cbs-taylor-swift-tom-brady-philadelphia-eagles-commanders/
 
