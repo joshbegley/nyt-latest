@@ -1,3 +1,7 @@
+**Chiefs turn controversial 4th down call into go-ahead TD in AFC Championship**\
+`Bills QB Josh Allen was ruled short of the line to gain on a rush attempt although he appeared to have `\
+https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-afc-cahmpionship/
+
 **Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2022 game**\
 `The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
 https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6089947/2025/01/26/minnesota-wild-gustavsson-blackh
 `This year's Super Bowl is a rematch of Super Bowl LVII two years ago, which the Chiefs won 38-35 over the Eagles.`\
 https://nytimes.com/athletic/6090035/2025/01/26/chiefs-bills-afc-championship-result-score-takeaways/
 
-**Bears to hire Allen, Doyle as coordinators under new coach Johnson: Sources**\
+**Bears to hire Allen, Doyle as coordinators for new coach: Sources**\
 `Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
 https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-c
 **Eagles' NFC Championship Game win by the numbers: Every stat to know**\
 `Philadelphia's Saquon Barkley-led rushing attack rewrote NFL and team record books on Sunday.`\
 https://nytimes.com/athletic/6089973/2025/01/26/eagles-record-breaking-nfc-championship-statistics-superbowl/
-
-**The Question Trap**\
-`Loaded questions that serve as a proxy for something else.`\
-https://nytimes.com/2025/01/26/podcasts/the-question-trap-this-american-life-nyt-audio.html
 
