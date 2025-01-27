@@ -1,5 +1,9 @@
+**Blackhawks GM Davidson still optimistic about rebuild: 'This takes time'**\
+`Davidson spoke with the media Monday and acknowledged his team isn't where he wants it to be — but he's confident in its direction.`\
+https://nytimes.com/athletic/6091971/2025/01/27/blackhawks-rebuild-kyle-davidson/
+
 **Inside a New Plan to Bring Electricity to 300 Million in Africa**\
-`Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The head of the World Bank, the project’s main backer, called it “foundational to everything.”`\
+`Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The World Bank chief called the project “foundational to everything.”`\
 https://nytimes.com/2025/01/27/climate/africa-world-bank-solar-electricity.html
 
 **Greg Olsen, one-on-one: Happy for Bryce Young, his thoughts on Tom Brady, Fox**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091566/2025/01/27/usmnt-pulisic-adams-sargent-trac
 **Notre Dame mailbag: What's next at defensive coordinator? How big are portal losses?**\
 `There's plenty to talk about at Notre Dame in the wake of the national title game loss. What's next and how have expectations changed?`\
 https://nytimes.com/athletic/6091854/2025/01/27/notre-dame-defensive-coordinator-candidates-transfer-portal/
-
-**NYCFC confirms sale of McFarlane, 18, to Man City**\
-`New York City FC has confirmed the sale of 18-year-old defender Christian McFarlane to Manchester City.`\
-https://nytimes.com/athletic/6091948/2025/01/27/christian-mcfarlane-manchester-city-nycfc/
 

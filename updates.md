@@ -1,3 +1,11 @@
+**Blackhawks GM Davidson still optimistic about rebuild: 'This takes time'**\
+`Davidson spoke with the media Monday and acknowledged his team isn't where he wants it to be — but he's confident in its direction.`\
+https://nytimes.com/athletic/6091971/2025/01/27/blackhawks-rebuild-kyle-davidson/
+
+**Inside a New Plan to Bring Electricity to 300 Million in Africa**\
+`Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The World Bank chief called the project “foundational to everything.”`\
+https://nytimes.com/2025/01/27/climate/africa-world-bank-solar-electricity.html
+
 **Inside a New Plan to Bring Electricity to 300 Million in Africa**\
 `Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The head of the World Bank, the project’s main backer, called it “foundational to everything.”`\
 https://nytimes.com/2025/01/27/climate/africa-world-bank-solar-electricity.html
