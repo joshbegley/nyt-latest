@@ -1,3 +1,7 @@
+**What to Know About DeepSeek and How It Is Upending A.I.**\
+`How did a little-known Chinese start-up cause the markets and U.S. tech giants to quake? Here’s what to know.`\
+https://nytimes.com/2025/01/27/technology/what-is-deepseek-china-ai.html
+
 **Yohe: Unfounded Sidney Crosby trade rumors are a tired waste of time**\
 `The constant speculation about Crosby being traded to Colorado has run its course and then some.`\
 https://nytimes.com/athletic/6087837/2025/01/27/penguins-avalanche-sidney-crosby-trade-rumors/
