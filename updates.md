@@ -1,3 +1,7 @@
+**Oil Companies Embrace Trump, but Not ‘Drill, Baby, Drill’**\
+`Oil and gas executives welcomed President Trump’s early moves on energy policy, but many said they did not plan to increase production unless prices rose significantly.`\
+https://nytimes.com/2025/01/27/business/energy-environment/oil-trump-drill-baby-drill.html
+
 **Florida closes Title IX investigation into MBB coach Golden**\
 `Golden said little publicly about the allegations during the investigation, saying he was “respecting the situation.”`\
 https://nytimes.com/athletic/6092044/2025/01/27/todd-golden-florida-basketball-title-ix-closed/
