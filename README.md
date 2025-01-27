@@ -1,3 +1,7 @@
+**Rebels Backed by Rwanda Announce Capture of Key City in Eastern Congo**\
+`The M23 militia, funded and directed by Rwanda, said it took the city of Goma, terrifying its people, many of whom sought shelter there after fleeing the rebel advance.`\
+https://nytimes.com/2025/01/27/world/africa/rebels-capture-goma-congo.html
+
 **The Eagles did it their way in an NFC title game romp**\
 `Saquon Barkley did it again, Jalen Hurts had his best performance of the playoffs, and the Eagles are set for a Chiefs rematch.`\
 https://nytimes.com/athletic/6089664/2025/01/27/eagles-commanders-score-nfc-championship-game/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/01/27/arts/television/tv-this-week-mo-maine-cabin-maste
 `Cease-fires under pressure.`\
 https://nytimes.com/2025/01/27/briefing/gaza-lebanon-colombia-deportations.html
 
+**How Miyazawa finally found her place at Manchester United**\
+`The Japan international is helping to turn United into credible WSL title contenders after her potential was unlocked`\
+https://nytimes.com/athletic/6090182/2025/01/27/hinata-miyazawa-manchester-united/
+
 **Commanders filled with disappointment while appreciating this season's journey**\
 `“There’s a lot to take away from (this season),” said coach Dan Quinn as Washington fell to the Eagles in the NFC title game. `\
 https://nytimes.com/athletic/6086815/2025/01/27/commanders-nfc-championship-loss-eagles/
-
-**Instant Esse impact is a timely lesson on squad depth for Crystal Palace**\
-`Palace's only signing of the transfer window had a debut to remember — no wonder Oliver Glasner is eager for more bodies to be added `\
-https://nytimes.com/athletic/6077697/2025/01/27/crystal-palace-esse-transfer-window/
-
-**Forest's 5-0 loss hurts more than the last one - the dynamic at the club has changed**\
-`If Forest want to continue their remarkable journey, they cannot let their standards slip, even for a moment`\
-https://nytimes.com/athletic/6088888/2025/01/27/forest-bournemouth-defeat-nuno/
 
