@@ -1,3 +1,7 @@
+**Fantasy hockey: Rest of season rankings and player projections for 2024-25**\
+`Dom Luszczyszyn offers up his seventh in-season update to his 2024-25 fantasy hockey rest-of-season rankings and player projections.`\
+https://nytimes.com/athletic/5882585/2025/01/27/fantasy-hockey-rest-of-season-rankings-player-projections-2024-25/
+
 **Activist Investor Seeks to Oust U.S. Steel Chief Over Nippon Deal**\
 `The two steel makers are seeking to revive Nippon Steel’s $14 billion takeover of U.S. Steel after it was blocked by the Biden administration.`\
 https://nytimes.com/2025/01/27/business/us-steel-nippon-activist.html
