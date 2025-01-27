@@ -1,3 +1,19 @@
+**Does the Premier League's Big Six still exist (on and off the pitch)?**\
+`With Manchester United and Tottenham languishing in the bottom half of the Premier League, what does it mean for the 'Big Six'?`\
+https://nytimes.com/athletic/6086082/2025/01/27/premier-league-big-six-on-off-pitch/
+
+**Jalen Hurts 'just wins,' and that's what matters to the Super Bowl-bound Eagles**\
+`Hurts isn't concerned with his personal stats, a selfless approach that has helped Philadelphia punch its ticket to New Orleans.`\
+https://nytimes.com/athletic/6090535/2025/01/27/jalen-hurts-eagles-super-bowl-team/
+
+**The Briefing: Tipping point for Postecoglou? Champions League Bournemouth? Can Chelsea succeed with Sanchez?**\
+`The key talking points from the Premier League weekend`\
+https://nytimes.com/athletic/6089766/2025/01/27/tipping-point-for-postecoglou-champions-league-bournemouth-can-chelsea-succeed-with-sanchez-the-briefing/
+
+**How long can Tottenham let this go on for?**\
+`The problems are mounting after a fourth straight Premier League defeat. We are entering a defining period for Postecoglou`\
+https://nytimes.com/athletic/6089589/2025/01/27/tottenham-postecoglou-future-levy/
+
 **'Fly high three beautiful butterflies' - how Southport FC helped a town in mourning**\
 `A football club is among those who have tried to help a shattered community through its darkest moments`\
 https://nytimes.com/athletic/6081054/2025/01/27/southport-town-in-mourning/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6085823/2025/01/27/2026-world-cup-united-states-can
 **Here’s the latest on the cease-fire.**\
 `By Mike Ives`\
 https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/heres-the-latest-on-the-cease-fire
-
-**At Auschwitz, a Solemn Ceremony at a Time of Rising Nationalism**\
-`World leaders and a dwindling group of survivors are joining ceremonies to mark the 80th anniversary of the liberation of the Nazi death camp by the Red Army.`\
-https://nytimes.com/2025/01/27/world/europe/auschwitz-liberation-80th-anniversary.html
-
-**Quote of the Day: From ‘Presumed Innocent’ to ‘Presumed Guilty’**\
-`Quotation of the Day for Monday, January 27, 2025.`\
-https://nytimes.com/2025/01/27/pageoneplus/quote-of-the-day-from-presumed-innocent-to-presumed-guilty.html
-
-**China’s Large and Mysterious Dam Project Is Alarming Neighbors and Experts**\
-`The hydropower dam, in quake-prone Tibet, is set to be the world’s biggest. But China has said little about the project, which could affect nearby countries.`\
-https://nytimes.com/2025/01/27/world/asia/china-tibet-dam-india.html
-
-**As Trump and Putin Circle Each Other, an Agenda Beyond Ukraine Emerges**\
-`President Trump jabs at the Russian leader with threats; Vladimir Putin responds with flattery. But there are notable signals in their jousting, including a revived discussion about nuclear arms control.`\
-https://nytimes.com/2025/01/27/world/americas/trump-putin-ukraine.html
 
