@@ -1,3 +1,7 @@
+**Israeli Army Raids Home of Freed Hamas Member Amid Tensions Over Hostage Deal**\
+`Soldiers disrupted a Jerusalem gathering to mark the early release of an imprisoned Palestinian, arresting his brother and roughing up his father. A Times reporter conducting interviews was also assaulted.`\
+https://nytimes.com/2025/01/26/world/middleeast/israel-army-palestinian-prisoners.html
+
 **Seahawks hire Klint Kubiak as offensive coordinator**\
 `Kubiak, who turns 38 next month, is the son of former NFL head coach Gary Kubiak.`\
 https://nytimes.com/athletic/6079420/2025/01/26/seahawks-offensive-coordinator-klint-kubiak-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089864/2025/01/26/jalen-hurts-josh-allen-nfl-playo
 **Some Protestants Felt Invisible. Then Came Bishop Budde.**\
 `The bishop asked President Trump publicly to “have mercy,” electrifying some liberal churchgoers in an era dominated by conservative versions of Christianity.`\
 https://nytimes.com/2025/01/26/us/bishop-mariann-budde-trump-christian.html
-
-**Snowy Getaway**\
-`Don’t turn a blind eye to Alexander Liebeskind’s crossword.`\
-https://nytimes.com/2025/01/26/crosswords/daily-puzzle-2025-01-27.html
 

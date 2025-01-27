@@ -1,3 +1,7 @@
+**Israeli Army Raids Home of Freed Hamas Member Amid Tensions Over Hostage Deal**\
+`Soldiers disrupted a Jerusalem gathering to mark the early release of an imprisoned Palestinian, arresting his brother and roughing up his father. A Times reporter conducting interviews was also assaulted.`\
+https://nytimes.com/2025/01/26/world/middleeast/israel-army-palestinian-prisoners.html
+
 **Barkley, Hurts lead Eagles' return to Super Bowl, beat Commanders**\
 `Philly's stars combined for six rushing touchdowns and the Eagles forced four turnovers Sunday, ending Washington's dream run.`\
 https://nytimes.com/athletic/6089537/2025/01/26/commanders-eagles-nfc-championship-result-score-takeaways/
