@@ -1,3 +1,31 @@
+**Iga Swiatek's form, Novak Djokovic and father time, and a media circus: Australian Open briefing**\
+`The first Grand Slam of 2025 is in the books: here's what the tennis world learned in Melbourne.`\
+https://nytimes.com/athletic/6082764/2025/01/27/australian-open-review-swiatek-hard-court-djokovic-injury/
+
+**What could a Rashawn Slater extension look like for the Chargers?**\
+`Tampa Bay's Tristan Wirfs is the NFL's highest paid tackle at $28.125 million per year. Slater could top that. `\
+https://nytimes.com/athletic/6085012/2025/01/27/rashawn-slater-chargers-contract-projection/
+
+**49ers mailbag: What should be first on Robert Saleh's offseason agenda?**\
+`Among the questions in this week's mailbag: Does Saleh have a background as a blitzer? Which free agents might he attract?`\
+https://nytimes.com/athletic/6084371/2025/01/27/49ers-mailbag-robert-saleh-agenda/
+
+**Chiefs-Bills delivers, Tom Brady's sweet spot and more NFL media takeaways**\
+`NFL broadcasts Sunday delivered with Chiefs-Bills, Brady missed an opportunity, CBS was prepared for Taylor Swift and more media notes.`\
+https://nytimes.com/athletic/6087757/2025/01/27/kansas-city-chiefs-buffalo-bills-cbs-taylor-swift-tom-brady-philadelphia-eagles-commanders/
+
+**Dodgers non-roster invitees: Who will accompany Roki Sasaki in big-league spring training?**\
+`Dalton Rushing, the Dodgers' top pick in the 2022 MLB Draft, ranks among the players who can make an impression this spring.`\
+https://nytimes.com/athletic/6088546/2025/01/27/dodgers-non-roster-invitees-roki-sasaki/
+
+**Willy Adames already connecting with Giants' next generation, including Josuar De Jesus**\
+`Adames met with several of the Giants international signees earlier this month, including Josuar De Jesus, who has the organization buzzing.`\
+https://nytimes.com/athletic/6090168/2025/01/27/sf-giants-willy-adames-leadership/
+
+**Chelsea are England's most dominant team, but they still need USWNT's Naomi Girma**\
+`Naomi Girma is one in a long line of big-name signings for Chelsea and she almost certainly won't be the last `\
+https://nytimes.com/athletic/6090831/2025/01/27/chelsea-wsl-dominance-naomi-girma-signing-column/
+
 **Juventus captain Danilo leaves by mutual consent**\
 `Juventus captain Danilo has left the club by mutual consent.`\
 https://nytimes.com/athletic/6091108/2025/01/27/danilo-juventus-transfer-exit/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/01/27/business/dealbook/deepseek-tech-stocks-reckoning.
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Pose your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
 https://nytimes.com/athletic/6090922/2025/01/27/newcastle-transfers-howe-isak/
-
-**FPL: What we learned from Gameweek 23 -Ndiaye flies and is it time to sell Wood?**\
-`Liverpool maintained their lead at the top of the table in Gameweek 23 and their best Fantasy Premier League assets gave us an emphatic reminder of their talents before a crucial double gameweek.`\
-https://nytimes.com/athletic/6089729/2025/01/27/fantasy-premier-league-gameweek-23-ndiaye-mbeumo-ouattara/
-
-**Gazans head north on crutches, in wheelchairs and piled into strollers.**\
-`By Matthew Mpoke Bigg and Maud Bodoukian`\
-https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/gazans-head-north-on-crutches-in-wheelchairs-and-piled-into-strollers
-
-**Stocks Sink as Investors Worry About China’s A.I. Advances**\
-`Premarket trading implied steep declines for U.S. markets, with the pain concentrated at companies at the forefront of the artificial intelligence boom.`\
-https://nytimes.com/2025/01/27/business/us-stock-market-deepseek-ai-sp500-nvidia.html
-
-**De la Fuente extends Spain contract until Euro 2028**\
-`Luis de la Fuente has agreed a new contract with the Spanish men’s national team through to the end of Euro 2028.`\
-https://nytimes.com/athletic/6029880/2025/01/27/luis-de-la-fuente-spain-contract/
-
-**Another Chinese Builder Is Facing a Cash Crisis**\
-`China Vanke, one of the country’s largest developers, cleared out its top executives and said it anticipates a $6.2 billion loss, a sign the property meltdown is still raging.`\
-https://nytimes.com/2025/01/27/business/china-vanke-property-developer.html
-
-**The Pulse: It's a rematch**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6089777/2025/01/27/chiefs-bills-eagles-super-bowl-the-pulse/
-
-**Sweden Suspects ‘Gross Sabotage’ After Damage to Cable Under Baltic Sea**\
-`The Nordic country has opened an investigation into the damage, just weeks after NATO stepped up its military presence in the area following a series of similar incidents.`\
-https://nytimes.com/2025/01/27/world/europe/cable-baltic-sea-sweden-damage.html
 
