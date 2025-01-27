@@ -1,3 +1,23 @@
+**Where Might Gov. Hochul Be Among Friends? At a Buffalo Bills Bar.**\
+`Gov. Kathy Hochul of New York, an unabashed fan of the Buffalo Bills, was perhaps never more popular than on Sunday in downtown Albany.`\
+https://nytimes.com/2025/01/27/nyregion/hochul-buffalo-bills-fans.html
+
+**The Plane Crash Should Have Killed Her. Sometimes She Wishes It Had.**\
+`In 1990, Avianca Flight 52 crashed in suburban Long Island and a 17-year-old girl was pulled from the wreckage. Survival has been its own ordeal.`\
+https://nytimes.com/2025/01/27/nyregion/avianca-plane-crash-survivor-long-island.html
+
+**Can One of These 5 Progressives Defeat Mayor Adams?**\
+`Five Democrats are competing to become the left-leaning wing’s candidate of choice in the June mayoral primary.`\
+https://nytimes.com/2025/01/27/nyregion/mamdani-nyc-mayor-race.html
+
+**‘This Is a Dangerous Virus’**\
+`A bird-flu pandemic is far from inevitable. But health experts are closely monitoring an outbreak that could quickly escalate among people.`\
+https://nytimes.com/2025/01/27/health/bird-flu-h5n1.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/27/crosswords/spelling-bee-forum.html
+
 **An attempt to explain Barcelona - a brilliant, bewildering team of extremes**\
 `Wild swings between superb wins and frustrating defeats are to be expected with a young side, but the future looks positive either way`\
 https://nytimes.com/athletic/6090790/2025/01/27/barcelona-valencia-la-liga-extremes/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6089664/2025/01/27/eagles-commanders-score-nfc-cham
 **Word of the Day: inauspicious**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/27/learning/word-of-the-day-inauspicious.html
-
-**The suffering of Rasmus Hojlund**\
-`The Danish striker is starved of service and not posing a threat, but there do not seem to be any easy answers`\
-https://nytimes.com/athletic/6090434/2025/01/27/rasmus-hojlund-manchester-united-suffering/
-
-**Mayor Adams to Limit His Public Schedule, Citing Routine Medical Tests**\
-`Mayor Eric Adams of New York City will undergo tests and meet with doctors this week because he is not “feeling his best,” his office said. No other details were released.`\
-https://nytimes.com/2025/01/27/nyregion/eric-adams-limits-public-schedule.html
-
-**‘It Cannot Go On Like This’: Voices From Europe’s Swing to the Right**\
-`‘A lot of people simply haven’t been heard for a long time.’`\
-https://nytimes.com/2025/01/27/opinion/europe-elections-immigration-far-right.html
-
-**‘Mo,’ Plus 4 Things to Watch on TV This Week**\
-`Tune in for a Netflix series’s second season more than two years after the first, and catch up on rustic reality TV.`\
-https://nytimes.com/2025/01/27/arts/television/tv-this-week-mo-maine-cabin-masters.html
-
-**Monday Briefing**\
-`Cease-fires under pressure.`\
-https://nytimes.com/2025/01/27/briefing/gaza-lebanon-colombia-deportations.html
 
