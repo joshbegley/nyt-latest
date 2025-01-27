@@ -1,3 +1,11 @@
+**The Jets are Aaron Glenn's show now**\
+`The Jets' new head coach, along with newly hired GM Darren Mougey, met the press on Monday`\
+https://nytimes.com/athletic/6093001/2025/01/27/aaron-glenn-new-york-jets-introduction/
+
+**Neymar leaves Al Hilal after mutually agreeing to terminate contract**\
+`Neymar has left Saudi Pro League side Al Hilal after agreeing to a mutual termination of his contract.`\
+https://nytimes.com/athletic/6093149/2025/01/27/neymar-leave-al-hilal-contract-terminate/
+
 **It's Brian Schottenheimer's show: New Cowboys coach takes over offense, will call plays**\
 `The Cowboys will hire an offensive coordinator, but like Mike McCarthy before him, Brian Schottenheimer will call the offense.`\
 https://nytimes.com/athletic/6093027/2025/01/27/cowboys-brian-schottenheimer-offense-play-caller/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6092672/2025/01/27/steelers-russell-wilson-justin-f
 **Trump Administration Halts H.I.V. Drug Distribution in Poor Countries**\
 `PEPFAR’s computer systems also are being taken offline, a sign that the program may not return, as Republican critics had hoped.`\
 https://nytimes.com/2025/01/27/health/pepfar-trump-freeze.html
-
-**Senate Confirms Scott Bessent as Treasury Secretary**\
-`Bessent, a hedge fund manager, becomes the nation’s 79th Treasury secretary. He will lead President Trump’s economic agenda.`\
-https://nytimes.com/2025/01/27/us/politics/scott-bessent-treasury-secretary-vote.html
-
-**A Chinese A.I. Company Rattled the Tech World**\
-`Also, bird flu has entered a new phase. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/01/27/briefing/chinese-ai-market-turmoil-beyond-dry-january.html
 
