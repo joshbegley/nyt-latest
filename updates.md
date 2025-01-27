@@ -1,3 +1,7 @@
+**A Chinese A.I. Company Rattled the Tech World**\
+`Also, bird flu has entered a new phase. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/27/briefing/chinese-ai-market-turmoil-beyond-dry-january.html
+
 **Survivors Commemorate 80th Anniversary of Auschwitz Liberation**\
 `Survivors of Auschwitz, where the Nazis murdered more than 1.1 million people, urged world leaders to be vigilant against a dangerous rise in antisemitism and extremism during a ceremony commemorating the anniversary of the death camp’s liberation in 1945.`\
 https://nytimes.com/video/world/europe/100000009951525/auschwitz-liberation-80th-anniversary.html

@@ -1,3 +1,7 @@
+**A Chinese A.I. Company Rattled the Tech World**\
+`Also, bird flu has entered a new phase. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/01/27/briefing/chinese-ai-market-turmoil-beyond-dry-january.html
+
 **Liam Coen on Jaguars job: 'This was an opportunity you just can't pass up'**\
 `Jacksonville's new coach addressed last week's whirlwind of activity that saw him going from staying in Tampa Bay to joining the Jaguars.`\
 https://nytimes.com/athletic/6092883/2025/01/27/liam-coen-jaguars-job-shad-khan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092340/2025/01/27/super-bowl-59-mvp-odds-patrick-m
 **Chelsea's Veiga completes Juventus loan move**\
 `Juventus have completed the signing of Renato Veiga on loan from Chelsea until the end of the season.`\
 https://nytimes.com/athletic/6083315/2025/01/27/renato-veiga-juventus-transfer-chelsea/
-
-**World Bank Warns Colombian Staff Against U.S. Travel After Trump Visa Edict**\
-`Several Colombians whose visas were revoked were World Bank employees traveling in the United States at the time. They were deported.`\
-https://nytimes.com/2025/01/20/us/politics/trump-visas-colombia-world-bank.html
 
