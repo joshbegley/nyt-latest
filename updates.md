@@ -1,3 +1,19 @@
+**Man Pardoned in Jan. 6 Riot Is Fatally Shot by Deputy During Traffic Stop**\
+`The police said that Matthew W. Huttle, 42, of Hobart, Ind., who was sentenced to six months for his role in the riot at the U.S. Capitol in 2021, resisted arrest after he was stopped by a deputy in Indiana on Sunday.`\
+https://nytimes.com/live/2025/01/27/us/trump-news/jan-6-rioter-shot-indiana-traffic-stop
+
+**Steelers aim to re-sign Wilson or Fields, 'probably' not both, owner says**\
+`Rooney said on Monday that he believes in both Russell Wilson and Justin Fields and would prefer to sign one of the two passers`\
+https://nytimes.com/athletic/6092672/2025/01/27/steelers-russell-wilson-justin-fields-art-rooney/
+
+**Trump Administration Halts H.I.V. Drug Distribution in Poor Countries**\
+`PEPFAR’s computer systems also are being taken offline, a sign that the program may not return, as Republican critics had hoped.`\
+https://nytimes.com/2025/01/27/health/pepfar-trump-freeze.html
+
+**Senate Confirms Scott Bessent as Treasury Secretary**\
+`Bessent, a hedge fund manager, becomes the nation’s 79th Treasury secretary. He will lead President Trump’s economic agenda.`\
+https://nytimes.com/2025/01/27/us/politics/scott-bessent-treasury-secretary-vote.html
+
 **A Chinese A.I. Company Rattled the Tech World**\
 `Also, bird flu has entered a new phase. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/01/27/briefing/chinese-ai-market-turmoil-beyond-dry-january.html
