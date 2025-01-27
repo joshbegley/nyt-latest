@@ -1,3 +1,7 @@
+**Man Utd fans demand ticket price freeze in letter to Ratcliffe**\
+`Manchester United supporters have called on the club to freeze ticket prices and &#8220;end the war on season ticket holders&#8221; in an open letter to Sir Jim Ratcliffe.`\
+https://nytimes.com/athletic/6090867/2025/01/27/manchester-united-ticket-prices-ratcliffe/
+
 **Analyzing Ravens' biggest offseason questions: What's next for Mark Andrews?**\
 `Plus, how will contract negotiations with John Harbaugh go? And what will Baltimore prioritize in this year's NFL Draft?`\
 https://nytimes.com/athletic/6088040/2025/01/27/ravens-offseason-questions-mark-andrews/
