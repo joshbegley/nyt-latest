@@ -1,3 +1,15 @@
+**Greg Olsen, one-on-one: Happy for Bryce Young, his thoughts on Tom Brady, Fox**\
+`The Fox analyst and former Panthers tight end holds no resentment, but definitely misses calling the top games.`\
+https://nytimes.com/athletic/6091819/2025/01/27/greg-olsen-panthers-bryce-young-tom-brady-fox/
+
+**Tennessee Legislature Meets With Trump Playbook on its Agenda**\
+`A special session set to start Monday afternoon pairs disaster aid with two priorities for both the president and Gov. Bill Lee of Tennessee: tougher immigration laws and school vouchers.`\
+https://nytimes.com/2025/01/27/us/tennessee-legislature-trump.html
+
+**Submit your questions for Jen McCaffrey's next Red Sox mailbag!**\
+`<p>Spring training is two weeks away.`\
+https://nytimes.com/athletic/6092059/2025/01/27/red-sox-mailbag-question-submission/
+
 **Mal Swanson to miss start of Stars training camp for personal reasons**\
 `The Stars didn't provide additional details but said they "are fully supportive" of Swanson's decision.`\
 https://nytimes.com/athletic/6091688/2025/01/27/mallory-swanson-chicago-stars-training-camp/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6091948/2025/01/27/christian-mcfarlane-manchester-c
 **What I'm seeing from the Jets: How Perfetti wins battles, Kupari's impact, avoiding a slump**\
 `How are the Jets avoiding their annual second-half tailspin? Plus Cole Perfetti explains the 'how' of his battle-winning and more.`\
 https://nytimes.com/athletic/6026327/2025/01/27/winnipeg-jets-perfetti-kupari-lowry/
-
-**What near-miss deals tell us about trade value of Elias Pettersson, J.T. Miller**\
-`Canucks management's next steps with their star centers are crucial in the wake of Friday's three-team blockbuster.`\
-https://nytimes.com/athletic/6089952/2025/01/27/nhl-trades-jt-miller-elias-pettersson-canucks/
-
-**Inmate Sues the Trump Administration Over Transgender Executive Order**\
-`The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
-https://nytimes.com/2025/01/27/us/trump-executive-order-transgender-lawsuit.html
-
-**Fantasy hockey: Rest of season rankings and player projections for 2024-25**\
-`Dom Luszczyszyn offers up his seventh in-season update to his 2024-25 fantasy hockey rest-of-season rankings and player projections.`\
-https://nytimes.com/athletic/5882585/2025/01/27/fantasy-hockey-rest-of-season-rankings-player-projections-2024-25/
 

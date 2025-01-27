@@ -1,3 +1,15 @@
+**Greg Olsen, one-on-one: Happy for Bryce Young, his thoughts on Tom Brady, Fox**\
+`The Fox analyst and former Panthers tight end holds no resentment, but definitely misses calling the top games.`\
+https://nytimes.com/athletic/6091819/2025/01/27/greg-olsen-panthers-bryce-young-tom-brady-fox/
+
+**Tennessee Legislature Meets With Trump Playbook on its Agenda**\
+`A special session set to start Monday afternoon pairs disaster aid with two priorities for both the president and Gov. Bill Lee of Tennessee: tougher immigration laws and school vouchers.`\
+https://nytimes.com/2025/01/27/us/tennessee-legislature-trump.html
+
+**Submit your questions for Jen McCaffrey's next Red Sox mailbag!**\
+`<p>Spring training is two weeks away.`\
+https://nytimes.com/athletic/6092059/2025/01/27/red-sox-mailbag-question-submission/
+
 **Mal Swanson to miss start of Stars training camp for personal reasons**\
 `The Stars didn't provide additional details but said they "are fully supportive" of Swanson's decision.`\
 https://nytimes.com/athletic/6091688/2025/01/27/mallory-swanson-chicago-stars-training-camp/
