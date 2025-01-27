@@ -1,3 +1,7 @@
+**In China, Government Data on Drugs Blocked From Public After Backlash**\
+`Criticism over how the Chinese government buys drugs for its public health care system has ignited frustration over the quality of medicine.`\
+https://nytimes.com/2025/01/27/business/china-drug-prices.html
+
 **These Bills were different, but the outcome was the same**\
 `The Bills outperformed expectations until they once again met the Chiefs in the playoffs.`\
 https://nytimes.com/athletic/6090739/2025/01/27/bills-lose-chiefs-josh-allen-playoffs/
