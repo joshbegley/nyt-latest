@@ -1,3 +1,7 @@
+**Trump’s Suit Against Pulitzer Board Faces a Hurdle: His Previous Arguments**\
+`Mr. Trump, the board noted, has argued that  a state court should not be permitted to exert control over a sitting president.`\
+https://nytimes.com/2025/01/27/business/media/trump-libel-suit-pulitzer-prize-board.html
+
 **Trump Paralyzes Independent Rights Watchdog, Firing Members Selected by Democrats**\
 `The move removed three of the four sitting members of the Privacy and Civil Liberties Oversight Board, leaving it unable to act as the Trump administration begins reshaping intelligence agencies.`\
 https://nytimes.com/2025/01/27/us/politics/trump-fires-independent-watchdog-officials.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092650/2025/01/27/lions-john-morton-offensive-coor
 **Republican Lawmakers in Florida Rebel Against DeSantis in Rare Power Move**\
 `In a special session on Monday, leaders seemed to be declaring their independence from a governor who has wielded so much power that legislative sessions have become largely predictable rubber stamps.`\
 https://nytimes.com/2025/01/27/us/desantis-florida-trump-immigration.html
-
-**Astros pursuing Jorge Polanco as Alex Bregman sweepstakes continue: Sources**\
-`With Bregman weighing his options, the Astros could look to target a less expensive player in Polanco who is coming off knee surgery.`\
-https://nytimes.com/athletic/6092721/2025/01/27/astros-jorge-polanco-alex-bregman-sweepstakes/
 
