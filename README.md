@@ -26,8 +26,8 @@ https://nytimes.com/2025/01/27/world/asia/new-zealand-visas-digital-nomad.html
 `<p>With spring training right around the corner (pitchers and catchers report in about two weeks), what do you want to know about the Phillies? Submit your questions on anything Phillies-related here and they could be answered in Matt Gelb&#8217;s mailbag later this week.`\
 https://nytimes.com/athletic/6092288/2025/01/27/phillies-mailbag-questions-spring-training/
 
-**Blues trade Scott Perunovich to Islanders: Why he fizzled in St. Louis, and how he fits in New York**\
-`The pick heading to the Blues would be in the fifth round of the 2026 NHL Draft`\
+**Blues trade Scott Perunovich to Islanders: How he fits in New York**\
+`The pick heading to the Blues would be in the fifth round of the 2026 NHL Draft.`\
 https://nytimes.com/athletic/6092280/2025/01/27/blues-islanders-scott-perunovich-trade/
 
 **Penguins place Evgeni Malkin on IR**\
