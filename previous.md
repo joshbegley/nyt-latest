@@ -1,3 +1,11 @@
+**Analyzing Ravens' biggest offseason questions: What's next for Mark Andrews?**\
+`Plus, how will contract negotiations with John Harbaugh go? And what will Baltimore prioritize in this year's NFL Draft?`\
+https://nytimes.com/athletic/6088040/2025/01/27/ravens-offseason-questions-mark-andrews/
+
+**Browns QB tracker: Jalen Milroe, Jaxson Dart and others to watch at the Senior Bowl**\
+`The Senior Bowl can be a great place for strong first impressions, and Cleveland gets a chance to see all the QBs participating this week. `\
+https://nytimes.com/athletic/6089193/2025/01/27/browns-quarterback-tracker-nfl-draft-senior-bowl/
+
 **Man Utd fans demand ticket price freeze in letter to Ratcliffe**\
 `Manchester United supporters have called on the club to freeze ticket prices and &#8220;end to the war on season ticket holders&#8221; in an open letter to Sir Jim Ratcliffe.`\
 https://nytimes.com/athletic/6090867/2025/01/27/manchester-united-ticket-prices-ratcliffe/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/27/style/brown-shoes-blue-pants-men.html
 **What We Know About Bird Flu**\
 `In recent months, bird flu has started raising red flags among scientists and public health officials. Apoorva Mandavilli, a New York Times reporter who covers infectious diseases, explains why we need to start taking bird flu seriously.`\
 https://nytimes.com/video/science/100000009949485/what-we-know-about-bird-flu.html
-
-**Born in the U.S.A. Doesn’t Mean What It Used To**\
-`Trump wants to change what it means to be American.`\
-https://nytimes.com/2025/01/27/opinion/trump-birthright-citizenship-14th-amendment.html
-
-**Let’s Hear It for the Coyote Hiding in the Produce Aisle**\
-`The wild creatures who have adapted to our ways are adept at remaining out of sight. But they are here, and they will always be with us.`\
-https://nytimes.com/2025/01/27/opinion/chicago-coyote-aldi-wildlife-humans.html
 

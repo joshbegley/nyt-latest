@@ -1,3 +1,11 @@
+**Analyzing Ravens' biggest offseason questions: What's next for Mark Andrews?**\
+`Plus, how will contract negotiations with John Harbaugh go? And what will Baltimore prioritize in this year's NFL Draft?`\
+https://nytimes.com/athletic/6088040/2025/01/27/ravens-offseason-questions-mark-andrews/
+
+**Browns QB tracker: Jalen Milroe, Jaxson Dart and others to watch at the Senior Bowl**\
+`The Senior Bowl can be a great place for strong first impressions, and Cleveland gets a chance to see all the QBs participating this week. `\
+https://nytimes.com/athletic/6089193/2025/01/27/browns-quarterback-tracker-nfl-draft-senior-bowl/
+
 **Man Utd fans demand ticket price freeze in letter to Ratcliffe**\
 `Manchester United supporters have called on the club to freeze ticket prices and &#8220;end to the war on season ticket holders&#8221; in an open letter to Sir Jim Ratcliffe.`\
 https://nytimes.com/athletic/6090867/2025/01/27/manchester-united-ticket-prices-ratcliffe/
