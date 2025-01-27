@@ -1,3 +1,7 @@
+**A Troubling Spike in Sleep-Related Infant Deaths**\
+`A new study found that U.S. infant mortality rates overall are dropping, but that rates of sudden unexpected infant death may have increased in recent years.`\
+https://nytimes.com/2025/01/27/well/mind/sids-suid-infant-deaths.html
+
 **Scoop City: Controversial calls as Chiefs, Eagles head to Super Bowl**\
 `Inside: A weekend recap, controversial calls, brief Super Bowl preview and coaching updates from Las Vegas, Dallas and New Orleans.`\
 https://nytimes.com/athletic/6092194/2025/01/27/nfl-chiefs-controversial-call-super-bowl-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/new-gaza-che
 **West Ham win legal battle with London Stadium landlords over disputed payment**\
 `West Ham United have won a legal battle with their landlords at the London Stadium over a disputed payment linked to Czech billionaire Daniel Kretinsky’s 2021 purchase of a 27 per cent stake in the Premier League club.`\
 https://nytimes.com/athletic/6092129/2025/01/27/west-ham-london-stadium-legal-battle/
-
-**Oil Companies Embrace Trump, but Not ‘Drill, Baby, Drill’**\
-`Oil and gas executives welcomed President Trump’s early moves on energy policy, but many said they did not plan to increase production unless prices rose significantly.`\
-https://nytimes.com/2025/01/27/business/energy-environment/oil-trump-drill-baby-drill.html
 
