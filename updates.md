@@ -1,3 +1,7 @@
+**Fired Inspectors General Raise Alarms as Trump Administration Moves to Finalize Purge**\
+`The full scope of the Friday night mass firings was coming into sharper view as one fired watchdog official warned of “a never-ending cycle of politicization.”`\
+https://nytimes.com/2025/01/27/us/politics/trump-inspectors-general-fired.html
+
 **Super Bowl 59 MVP odds: Mahomes nearly even-money favorite ahead of Barkley, Hurts**\
 `Patrick Mahomes is roughly an even-money favorite to win Super Bowl MVP. Saquon Barkley is second ahead of Jalen Hurts.`\
 https://nytimes.com/athletic/6092340/2025/01/27/super-bowl-59-mvp-odds-patrick-mahomes/
