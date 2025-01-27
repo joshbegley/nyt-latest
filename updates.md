@@ -1,3 +1,7 @@
+**Bears to hire Allen, Doyle as coordinators for new coach: Sources**\
+`Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
+https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
+
 **Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2022 game**\
 `The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
 https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/

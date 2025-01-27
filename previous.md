@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6089947/2025/01/26/minnesota-wild-gustavsson-blackh
 `This year's Super Bowl is a rematch of Super Bowl LVII two years ago, which the Chiefs won 38-35 over the Eagles.`\
 https://nytimes.com/athletic/6090035/2025/01/26/chiefs-bills-afc-championship-result-score-takeaways/
 
-**Bears to hire Allen, Doyle as coordinators under new coach Johnson: Sources**\
+**Bears to hire Allen, Doyle as coordinators for new coach: Sources**\
 `Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
 https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
 
