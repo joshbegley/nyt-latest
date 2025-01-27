@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: What's next in Philly? Plus, scouting Jase Richardson**\
+`Two weekend wins didn't change the overall outlook in Philly. Are there signs of hope down the line?`\
+https://nytimes.com/athletic/6090659/2025/01/27/paul-george-sixers-nba-jase-richardson-michigan-state/
+
 **Trevor Bauer heading back to Japan after signing with Yokohama Bay Stars**\
 `Bauer hasn't pitched in the majors since 2021. The Yomiuri Giants are scheduled to play exhibitions against the Dodgers and Cubs in March.`\
 https://nytimes.com/athletic/6088343/2025/01/27/trevor-bauer-japan-yokohama-bay-stars/
