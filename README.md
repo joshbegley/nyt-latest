@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6091971/2025/01/27/blackhawks-rebuild-kyle-davidson/
 
 **Inside a New Plan to Bring Electricity to 300 Million in Africa**\
-`Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The head of the World Bank called it “foundational to everything.”`\
+`Some $35 billion is aimed at building small solar sites in rural areas and other improvements. The World Bank chief called the project “foundational to everything.”`\
 https://nytimes.com/2025/01/27/climate/africa-world-bank-solar-electricity.html
 
 **Greg Olsen, one-on-one: Happy for Bryce Young, his thoughts on Tom Brady, Fox**\
