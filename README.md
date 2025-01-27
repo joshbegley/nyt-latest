@@ -1,8 +1,8 @@
-**Chiefs turn controversial 4th down call into go-ahead TD in AFC Championship**\
-`Bills QB Josh Allen was ruled short of the line to gain on a rush attempt although he appeared to have `\
+**Chiefs turn controversial fourth-down call into go-ahead TD in AFC title game**\
+`The Chiefs forced a turnover on downs after officials ruled that Kansas City stopped Bills QB Josh Allen short of the line.`\
 https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-afc-cahmpionship/
 
-**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2022 game**\
+**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2 seasons ago**\
 `The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
 https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
 
