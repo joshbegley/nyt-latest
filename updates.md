@@ -1,3 +1,15 @@
+**The Athletic FC: Fallout from Lewis-Skelly tackle, Amorim takes aim at Rashford**\
+`Today in TAFC: The Arsenal tackle that caused chaos and led to abuse, Wissa's early celebration, Amorim's dig at Rashford.`\
+https://nytimes.com/athletic/6090929/2025/01/27/lewis-skelly-tackle-red-amorim-rashford/
+
+**Weekend NHL rankings: The Mikko Rantanen blockbuster shakes up the league**\
+`The Hurricanes and Avalanche shook up the hockey world on Friday — and the top five as well.`\
+https://nytimes.com/athletic/6089722/2025/01/27/nhl-weekend-rankings-rantanen-trade-hurricanes/
+
+**E.U. Prepares to Cautiously Pare Back Sanctions on Syria**\
+`Member countries’ foreign ministers are meeting to discuss a “road map” to lift financial restrictions, but any change will happen in stages.`\
+https://nytimes.com/2025/01/27/world/europe/eu-syria-sanctions.html
+
 **Strong Dollar vs. Weak Dollar**\
 `President Trump is of two minds when it comes to America’s currency.`\
 https://nytimes.com/2025/01/27/briefing/donald-trump-currency.html
