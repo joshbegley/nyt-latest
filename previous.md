@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: The most important practices of the season**\
+`Also in this week's notebook, Lane Hutson's self-evaluation, the second line's emergence and an update on an under-the-radar prospect.`\
+https://nytimes.com/athletic/6090734/2025/01/27/canadiens-lane-hutson-patrik-laine-alex-newhook/
+
 **One of Hegseth’s first directives at the Pentagon targets D.E.I.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2025/01/27/us/trump-news/one-of-hegseths-first-directives-at-the-pentagon-targets-dei
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091098/2025/01/27/chadi-riad-crystal-palace-injury
 **Bill Guerin on Wild's lackluster play: 'There's no excuse whatsoever for any of this'**\
 `Guerin didn't mince words in describing Minnesota's recent play during an intermission in Sunday's win over the Blackhawks.`\
 https://nytimes.com/athletic/6090603/2025/01/27/minnesota-wild-slump-bill-guerin-flames-blackhawks/
-
-**Men’s basketball Top 25: Defenses doing damage as February arrives**\
-`As we approach the midpoint of conference play, let's take a closer look at some teams rising up the rankings thanks to their defense.`\
-https://nytimes.com/athletic/6090436/2025/01/27/mens-college-basketball-top-25-auburn-houston/
 

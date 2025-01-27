@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: The most important practices of the season**\
+`Also in this week's notebook, Lane Hutson's self-evaluation, the second line's emergence and an update on an under-the-radar prospect.`\
+https://nytimes.com/athletic/6090734/2025/01/27/canadiens-lane-hutson-patrik-laine-alex-newhook/
+
 **One of Hegseth’s first directives at the Pentagon targets D.E.I.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2025/01/27/us/trump-news/one-of-hegseths-first-directives-at-the-pentagon-targets-dei
