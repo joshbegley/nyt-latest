@@ -1,3 +1,7 @@
+**Liam Coen on Jaguars job: 'This was an opportunity you just can't pass up'**\
+`Jacksonville's new coach addressed last week's whirlwind of activity that saw him go from staying in Tampa Bay to joining the Jaguars.`\
+https://nytimes.com/athletic/6092883/2025/01/27/liam-coen-jaguars-job-shad-khan/
+
 **Bills clean out lockers, reflect on pivotal plays that got away in AFC title game**\
 `What does the future hold for Amari Cooper and Von Miller? Josh Allen takes ownership of Buffalo's final offensive play.`\
 https://nytimes.com/athletic/6092739/2025/01/27/bills-locker-cleanout-chiefs-afc-title-game/

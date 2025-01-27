@@ -31,7 +31,7 @@ https://nytimes.com/2025/01/27/us/politics/scott-bessent-treasury-secretary-vote
 https://nytimes.com/2025/01/27/briefing/chinese-ai-market-turmoil-beyond-dry-january.html
 
 **Liam Coen on Jaguars job: 'This was an opportunity you just can't pass up'**\
-`Jacksonville's new coach addressed last week's whirlwind of activity that saw him going from staying in Tampa Bay to joining the Jaguars.`\
+`Jacksonville's new coach addressed last week's whirlwind of activity that saw him go from staying in Tampa Bay to joining the Jaguars.`\
 https://nytimes.com/athletic/6092883/2025/01/27/liam-coen-jaguars-job-shad-khan/
 
 **Survivors Commemorate 80th Anniversary of Auschwitz Liberation**\
