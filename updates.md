@@ -1,3 +1,7 @@
+**Why didn't your team trade for Rantanen? Ranking NHL teams that could've/should've been in the mix**\
+`If the Avalanche had opened up a good old-fashioned bidding war on Mikko Rantanen, here are teams that would have been the best fit.`\
+https://nytimes.com/athletic/6091552/2025/01/27/mikko-rantanen-nhl-trade-tiers/
+
 **Barry set for Hull loan and new Aston Villa contract**\
 `Aston Villa forward Louie Barry is set to join Hull City on loan for the rest of the season.`\
 https://nytimes.com/athletic/6031899/2025/01/27/louie-barry-aston-villa-transfer/
