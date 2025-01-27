@@ -1,3 +1,7 @@
+**Chiefs turn controversial 4th down call into go-ahead TD in AFC Championship**\
+`Bills QB Josh Allen was ruled short of the line to gain on a rush attempt although he appeared to have `\
+https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-afc-cahmpionship/
+
 **Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2022 game**\
 `The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
 https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-c
 **Eagles' NFC Championship Game win by the numbers: Every stat to know**\
 `Philadelphia's Saquon Barkley-led rushing attack rewrote NFL and team record books on Sunday.`\
 https://nytimes.com/athletic/6089973/2025/01/26/eagles-record-breaking-nfc-championship-statistics-superbowl/
-
-**The Question Trap**\
-`Loaded questions that serve as a proxy for something else.`\
-https://nytimes.com/2025/01/26/podcasts/the-question-trap-this-american-life-nyt-audio.html
 

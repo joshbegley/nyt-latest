@@ -1,3 +1,7 @@
+**Chiefs turn controversial 4th down call into go-ahead TD in AFC Championship**\
+`Bills QB Josh Allen was ruled short of the line to gain on a rush attempt although he appeared to have `\
+https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-afc-cahmpionship/
+
 **Bears to hire Allen, Doyle as coordinators for new coach: Sources**\
 `Additionally, Chicago is retaining special teams coordinator Richard Hightower. `\
 https://nytimes.com/athletic/6090158/2025/01/26/bears-coordinators-dennis-allen-declan-doyle/
