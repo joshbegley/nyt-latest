@@ -1,3 +1,11 @@
+**The Jets are Aaron Glenn's show now**\
+`The Jets' new head coach, along with newly hired GM Darren Mougey, met the press on Monday`\
+https://nytimes.com/athletic/6093001/2025/01/27/aaron-glenn-new-york-jets-introduction/
+
+**Neymar leaves Al Hilal after mutually agreeing to terminate contract**\
+`Neymar has left Saudi Pro League side Al Hilal after agreeing to a mutual termination of his contract.`\
+https://nytimes.com/athletic/6093149/2025/01/27/neymar-leave-al-hilal-contract-terminate/
+
 **It's Brian Schottenheimer's show: New Cowboys coach takes over offense, will call plays**\
 `The Cowboys will hire an offensive coordinator, but like Mike McCarthy before him, Brian Schottenheimer will call the offense.`\
 https://nytimes.com/athletic/6093027/2025/01/27/cowboys-brian-schottenheimer-offense-play-caller/
