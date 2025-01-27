@@ -1,3 +1,11 @@
+**Watch: What are the big offseason questions for the Commanders?**\
+`The Washington Commanders were the surprise team of the conference championships. The Athletic Football show explain why they can get back`\
+https://nytimes.com/athletic/6090925/2025/01/27/athletic-football-show-commanders-offseason/
+
+**Jets coach Aaron Glenn: Aaron Rodgers' future 'will be talked about'**\
+`New York's new regime has no timetable on a decision regarding the four-time MVP's place on the roster.`\
+https://nytimes.com/athletic/6092085/2025/01/27/jets-coach-aaron-glenn-aaron-rodgers-future-team/
+
 **Kennedy Center’s Leader to Step Down, Adding to Uncertainty**\
 `The announced departure of Deborah F. Rutter, the center’s president since 2014, comes as the center continues to search for a new board chair while navigating a second Trump term.`\
 https://nytimes.com/2025/01/27/arts/music/deborah-rutter-leaving-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6092282/2025/01/27/penguins-evgeni-malkin-injured-r
 **Florida Scours College Textbooks, Looking for Antisemitism**\
 `State university officials began the effort in response to social media outrage over test questions about terrorism. The effort has infuriated professors.`\
 https://nytimes.com/2025/01/27/us/florida-college-textbooks-antisemitism.html
-
-**A Troubling Spike in Sleep-Related Infant Deaths**\
-`A new study found that U.S. infant mortality rates overall are dropping, but that rates of sudden unexpected infant death may have increased in recent years.`\
-https://nytimes.com/2025/01/27/well/mind/sids-suid-infant-deaths.html
-
-**Scoop City: Controversial calls as Chiefs, Eagles head to Super Bowl**\
-`Inside: A weekend recap, controversial calls, brief Super Bowl preview and coaching updates from Las Vegas, Dallas and New Orleans.`\
-https://nytimes.com/athletic/6092194/2025/01/27/nfl-chiefs-controversial-call-super-bowl-scoop-city/
 
