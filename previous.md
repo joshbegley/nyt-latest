@@ -1,8 +1,12 @@
-**Chiefs turn controversial 4th down call into go-ahead TD in AFC Championship**\
-`Bills QB Josh Allen was ruled short of the line to gain on a rush attempt although he appeared to have `\
+**Super Bowl 59 odds: Chiefs open as favorites in rematch with Eagles**\
+`The Chiefs opened as 1.5-point favorites over the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
+https://nytimes.com/athletic/6084432/2025/01/26/super-bowl-59-odds-line-chiefs-eagles/
+
+**Chiefs turn controversial fourth-down call into go-ahead TD in AFC title game**\
+`The Chiefs forced a turnover on downs after officials ruled that Kansas City stopped Bills QB Josh Allen short of the line.`\
 https://nytimes.com/athletic/6090335/2025/01/26/chiefs-controversial-call-bills-afc-cahmpionship/
 
-**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2022 game**\
+**Super Bowl LIX projections, analysis: Chiefs meet Eagles in rematch of 2 seasons ago**\
 `The Chiefs' three-peat hopes are alive, as they advance to the Super Bowl to take on the Eagles. `\
 https://nytimes.com/athletic/6090255/2025/01/26/nfl-super-bowl-chiefs-eagles-odds-projections/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090102/2025/01/26/ottawa-senators-preseason-quebec
 **Bills CB Christian Benford ruled out of AFC championship with concussion**\
 `Benford was just cleared from concussion protocol ahead of Sunday's game, after he suffered a concussion last week against the Ravens.`\
 https://nytimes.com/athletic/6090154/2025/01/26/bills-christian-benford-second-concussion-chiefs/
-
-**Eagles' NFC Championship Game win by the numbers: Every stat to know**\
-`Philadelphia's Saquon Barkley-led rushing attack rewrote NFL and team record books on Sunday.`\
-https://nytimes.com/athletic/6089973/2025/01/26/eagles-record-breaking-nfc-championship-statistics-superbowl/
 
