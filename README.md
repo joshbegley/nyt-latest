@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6092377/2025/01/27/mikko-rantanen-avalanche-hurrica
 `Tens of thousands of displaced Palestinians trekked for hours toward their homes in northern Gaza on Monday, nearly 16 months after Israel launched an offensive there in response to Hamas’s Oct.`\
 https://nytimes.com/video/world/middleeast/100000009947068/explaining-future-of-gaza-cease-fire-deal.html
 
-**Trooper Who Said He Was Attacked Actually Shot Himself, Prosecutors Say**\
-`Thomas J. Mascia scattered casings around and then shot himself in the leg in a bid for attention, prosecutors said.`\
-https://nytimes.com/2025/01/27/nyregion/ny-state-trooper-fake-shooting.html
-
