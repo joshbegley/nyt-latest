@@ -1,5 +1,5 @@
 **Super Bowl 59 odds: Chiefs open as favorites in rematch with Eagles**\
-`The Chiefs opened as 1.5-point favorites over the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
+`The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
 https://nytimes.com/athletic/6084432/2025/01/26/super-bowl-59-odds-line-chiefs-eagles/
 
 **Chiefs turn controversial fourth-down call into go-ahead TD in AFC title game**\
