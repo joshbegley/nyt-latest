@@ -1,3 +1,7 @@
+**Inmate Sues the Trump Administration Over Transgender Executive Order**\
+`The suit challenges an executive action that required trans women to be housed in prisons for men, and ends transition-related medical treatment for prisoners.`\
+https://nytimes.com/2025/01/27/us/trump-executive-order-transgender-lawsuit.html
+
 **What I'm seeing from the Jets: How Perfetti wins battles, Kupari's impact, avoiding a slump**\
 `How are the Jets avoiding their annual second-half tailspin? Plus Cole Perfetti explains the 'how' of his battle-winning and more.`\
 https://nytimes.com/athletic/6026327/2025/01/27/winnipeg-jets-perfetti-kupari-lowry/
