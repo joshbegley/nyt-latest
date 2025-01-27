@@ -1,3 +1,7 @@
+**Florida Scours College Textbooks, Looking for Antisemitism**\
+`State university officials began the effort in response to social media outrage over test questions about terrorism. The effort has infuriated professors.`\
+https://nytimes.com/2025/01/27/us/florida-college-textbooks-antisemitism.html
+
 **A Troubling Spike in Sleep-Related Infant Deaths**\
 `A new study found that U.S. infant mortality rates overall are dropping, but that rates of sudden unexpected infant death may have increased in recent years.`\
 https://nytimes.com/2025/01/27/well/mind/sids-suid-infant-deaths.html

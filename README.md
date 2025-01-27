@@ -1,3 +1,7 @@
+**Penguins place Evgeni Malkin on IR**\
+`The Penguins have placed injured forward Evgeni Malkin on injured reserve following an apparent knee injury sustained on Saturday in a 4-1 loss against the Kraken in Seattle.`\
+https://nytimes.com/athletic/6092282/2025/01/27/penguins-evgeni-malkin-injured-reserve/
+
 **Florida Scours College Textbooks, Looking for Antisemitism**\
 `State university officials began the effort in response to social media outrage over test questions about terrorism. The effort has infuriated professors.`\
 https://nytimes.com/2025/01/27/us/florida-college-textbooks-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/us/politics/trump-denmark-panama-greenland-lobbyi
 **Antony: From a €95m Man Utd signing to a low-key loan exit in under three years**\
 `United went to great lengths to sign Antony from Ajax in 2022. Two and a half years later, a loan move to Spain encapsulates his struggles`\
 https://nytimes.com/athletic/6090868/2025/01/27/antony-manchester-united-loan-exit-95m/
-
-**New Gaza checkpoint provides clues to the cease-fire security arrangements.**\
-`By Matthew Mpoke Bigg and Fatima AbdulKarim`\
-https://nytimes.com/live/2025/01/27/world/israel-hamas-lebanon-gaza/new-gaza-checkpoint-provides-clues-to-the-cease-fire-security-arrangements
 
