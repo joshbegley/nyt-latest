@@ -1,9 +1,5 @@
-**Blues trade Scott Perunovich to the Islanders for conditional draft pick**\
-`The pick heading to the Blues would be in the fifth round of the 2026 NHL Draft`\
-https://nytimes.com/athletic/6092280/2025/01/27/blues-islanders-scott-perunovich-trade/
-
 **Penguins place Evgeni Malkin on IR**\
-`The Penguins have placed injured forward Evgeni Malkin on injured reserve following an apparent knee injury sustained on Saturday in a 4-1 loss against the Kraken in Seattle.`\
+`Malkin sustained an apparent knee injury in a 4-1 loss against the Kraken on Saturday.`\
 https://nytimes.com/athletic/6092282/2025/01/27/penguins-evgeni-malkin-injured-reserve/
 
 **Florida Scours College Textbooks, Looking for Antisemitism**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6092228/2025/01/27/ohio-state-football-mailbag-ques
 **Denmark and Other Nations Under Pressure Seek Lobbyists With Trump Ties**\
 `The president’s confrontational foreign policy has created opportunity for his allies on K Street who are willing to take on clients he has targeted.`\
 https://nytimes.com/2025/01/27/us/politics/trump-denmark-panama-greenland-lobbyists.html
+
+**Antony: From a €95m Man Utd signing to a low-key loan exit in under three years**\
+`United went to great lengths to sign Antony from Ajax in 2022. Two and a half years later, a loan move to Spain encapsulates his struggles`\
+https://nytimes.com/athletic/6090868/2025/01/27/antony-manchester-united-loan-exit-95m/
 
