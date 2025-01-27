@@ -1,3 +1,7 @@
+**Commanders filled with disappointment while appreciating this season's journey**\
+`“There’s a lot to take away from (this season),” said coach Dan Quinn as Washington fell to the Eagles in the NFC title game. `\
+https://nytimes.com/athletic/6086815/2025/01/27/commanders-nfc-championship-loss-eagles/
+
 **Instant Esse impact is a timely lesson on squad depth for Crystal Palace**\
 `Palace's only signing of the transfer window had a debut to remember — no wonder Oliver Glasner is eager for more bodies to be added `\
 https://nytimes.com/athletic/6077697/2025/01/27/crystal-palace-esse-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089766/2025/01/27/tipping-point-for-postecoglou-ch
 **How long can Tottenham let this go on for?**\
 `The problems are mounting after a fourth straight Premier League defeat. We are entering a defining period for Postecoglou`\
 https://nytimes.com/athletic/6089589/2025/01/27/tottenham-postecoglou-future-levy/
-
-**'Fly high three beautiful butterflies' - how Southport FC helped a town in mourning**\
-`A football club is among those who have tried to help a shattered community through its darkest moments`\
-https://nytimes.com/athletic/6081054/2025/01/27/southport-town-in-mourning/
 
