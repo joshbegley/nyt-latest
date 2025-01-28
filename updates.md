@@ -1,3 +1,19 @@
+**Balde 'surprised' by alleged racist abuse at Getafe: 'Their captain is black'**\
+`Alejandro Balde says he was unaffected by an incident that allegedly saw the Barcelona defender racially abused from the stands during a recent La Liga match against Getafe.`\
+https://nytimes.com/athletic/6094114/2025/01/28/alejandro-balde-barcelona-racism-la-liga/
+
+**What to watch this week in the NBA: Full TV slate features Nuggets-Knicks, Curry-Durant**\
+`The NBA has a crowded national TV schedule this week with plenty of eye-popping games. Here's what to watch for.`\
+https://nytimes.com/athletic/6091837/2025/01/28/nba-what-to-watch-nuggets-knicks-durant-curry-lakers-celtics-thunder-grizzlies/
+
+**The Climate Migration Question: Rebuild or Relocate?**\
+`After a flood destroyed their town, Kentucky residents faced the agonizing choice of whether to stay or to relocate to new communities built on former strip mines.`\
+https://nytimes.com/2025/01/28/climate/the-climate-migration-question-rebuild-or-relocate.html
+
+**Mona Lisa Will Move to Her Own Room at the Louvre**\
+`President Emanuel Macron announced sweeping plans to renovate the Paris museum and alleviate overcrowding.`\
+https://nytimes.com/2025/01/28/arts/design/mona-lisa-louvre-macron.html
+
 **The $8 Billion Children’s Vaccine Fund Kennedy Would Oversee**\
 `If confirmed by the Senate to be the nation’s health secretary, Robert F. Kennedy Jr. would have vast powers over immunization policies for children and adults.`\
 https://nytimes.com/2025/01/28/health/robert-f-kennedy-jr-children-vaccines-senate-confirmation.html
