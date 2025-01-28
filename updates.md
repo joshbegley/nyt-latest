@@ -1,3 +1,11 @@
+**How Google Maps Plans to Handle the ‘Gulf of America’**\
+`Google said it would follow the Trump administration in renaming the Gulf of Mexico once the new name is updated in government sources.`\
+https://nytimes.com/2025/01/27/technology/google-maps-gulf-of-america-trump.html
+
+**Trump’s Careful Abortion Calculus**\
+`His opening moves on abortion weren’t exactly “shock and awe.” Democrats see an opening.`\
+https://nytimes.com/2025/01/27/us/politics/trump-abortion-calculus.html
+
 **Full Time: Another USWNT defender going abroad**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6093285/2025/01/27/nwsl-uswnt-nighswonger-arsenal-full-time/
