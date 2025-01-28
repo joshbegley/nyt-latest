@@ -1,3 +1,23 @@
+**Bengals TE Erick All Jr. expected to miss 2025 season due to ACL: Sources**\
+`All's promising rookie season was cut short by an ACL injury and now it appears complications from it will cost him next season.`\
+https://nytimes.com/athletic/6094193/2025/01/28/erick-all-jr-bengals-acl-miss-season/
+
+**Brother of late Padres owner responds to widow's lawsuit in court filing**\
+`Sheel Seidler previously accused two of her brothers-in-law of breaches of fiduciary duty and fraud as executors of Peter Seidler’s estate.`\
+https://nytimes.com/athletic/6093531/2025/01/28/brother-padres-owner-responds-widows-lawsuit/
+
+**‘Paradise’ Is a Wild-Ride Political Thriller**\
+`The new Hulu series, starring Sterling K. Brown, is exhilarating in all the right ways, even if it sometimes tips over into ridiculousness.`\
+https://nytimes.com/2025/01/28/arts/television/paradise-hulu-sterling-k-brown.html
+
+**The Federal Funding Pause Does Not Apply to Student Loans and Pell Grants**\
+`Students and parents panicked after news of the order, but the Education Department said the guidance would not stop the flow of money to students and schools.`\
+https://nytimes.com/2025/01/28/business/trump-federal-freeze-grants-student-loans.html
+
+**Giorgia Meloni Investigated for Italy’s Release of Libyan Wanted for War Crimes**\
+`The Italian prime minister announced the investigation herself over social media, calling it “blackmail.”`\
+https://nytimes.com/2025/01/28/world/europe/italy-meloni-investigation-libya-war-crimes.html
+
 **Senate Democrats are outraged at Trump’s federal funding pause.**\
 `Senator Patty Murray of Washington called on Republicans to halt the nomination of Russell Vought, Trump’s pick to lead the Office of Management and Budget.`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/senate-democrats-are-outraged-at-trumps-federal-funding-pause
