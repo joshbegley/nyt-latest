@@ -1,3 +1,7 @@
+**Three Weeks Later, Still Trying to Make Sense of It All**\
+`Ryan Mac, who covers the tech industry and lives in Los Angeles, writes about suddenly becoming a fire reporter.`\
+https://nytimes.com/2025/01/28/us/wildfires-three-weeks.html
+
 **What Is M23, the Rwandan-Backed Group Fighting in Eastern Congo?**\
 `The militia seized the pivotal city of Goma, threatening a new humanitarian crisis in a region that has suffered decades of fighting.`\
 https://nytimes.com/2025/01/28/world/africa/congo-m23-rwanda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6094150/2025/01/28/manchester-united-chelsea-nkunku
 **I Crave This Chile Crisp Tofu**\
 `A dinner you can make with astonishing ease, as I do often.`\
 https://nytimes.com/2025/01/28/dining/i-crave-this-chile-crisp-tofu.html
-
-**CNN Anchor Jim Acosta to Step Down**\
-`The network wanted to move Mr. Acosta to the midnight time slot, a backwater in cable television news.`\
-https://nytimes.com/2025/01/28/business/media/jim-acosta-cnn-stepping-down.html
 
