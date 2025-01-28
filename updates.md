@@ -1,3 +1,11 @@
+**France, Finally, Wins the World’s Top Food Award Again**\
+`In 2023, the country failed to finish in the top three as Denmark won the Bocuse d’Or, a fine-dining competition. This year, France reclaimed the crown.`\
+https://nytimes.com/2025/01/28/world/europe/france-bocuse-winner-gastronomy-food.html
+
+**Buendia to join Leverkusen on loan from Villa**\
+`Aston Villa midfielder Emiliano Buendia is set to join Bayer Leverkusen on loan.`\
+https://nytimes.com/athletic/6091848/2025/01/28/aston-villa-transfers-buendia-leverkusen/
+
 **Caroline Kennedy Urges Senators to Reject Her Cousin’s Nomination**\
 `In a harsh letter to lawmakers considering Robert F. Kennedy Jr.’s nomination for health secretary, Ms. Kennedy called her cousin a “predator” who led other family members down the path of addiction.`\
 https://nytimes.com/2025/01/28/health/caroline-kennedy-rfk-jr-hhs-confirmation.html

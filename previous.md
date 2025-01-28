@@ -1,3 +1,11 @@
+**France, Finally, Wins the World’s Top Food Award Again**\
+`In 2023, the country failed to finish in the top three as Denmark won the Bocuse d’Or, a fine-dining competition. This year, France reclaimed the crown.`\
+https://nytimes.com/2025/01/28/world/europe/france-bocuse-winner-gastronomy-food.html
+
+**Buendia to join Leverkusen on loan from Villa**\
+`Aston Villa midfielder Emiliano Buendia is set to join Bayer Leverkusen on loan.`\
+https://nytimes.com/athletic/6091848/2025/01/28/aston-villa-transfers-buendia-leverkusen/
+
 **Caroline Kennedy Urges Senators to Reject Her Cousin’s Nomination**\
 `In a harsh letter to lawmakers considering Robert F. Kennedy Jr.’s nomination for health secretary, Ms. Kennedy called her cousin a “predator” who led other family members down the path of addiction.`\
 https://nytimes.com/2025/01/28/health/caroline-kennedy-rfk-jr-hhs-confirmation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-
 **Bengals TE Erick All Jr. expected to miss 2025 season due to ACL: Sources**\
 `All's promising rookie season was cut short by an ACL injury and now it appears complications from it will cost him next season.`\
 https://nytimes.com/athletic/6094193/2025/01/28/erick-all-jr-bengals-acl-miss-season/
-
-**Brother of late Padres owner responds to widow's lawsuit in court filing**\
-`Sheel Seidler previously accused two of her brothers-in-law of breaches of fiduciary duty and fraud as executors of Peter Seidler’s estate.`\
-https://nytimes.com/athletic/6093531/2025/01/28/brother-padres-owner-responds-widows-lawsuit/
-
-**‘Paradise’ Is a Wild-Ride Political Thriller**\
-`The new Hulu series, starring Sterling K. Brown, is exhilarating in all the right ways, even if it sometimes tips over into ridiculousness.`\
-https://nytimes.com/2025/01/28/arts/television/paradise-hulu-sterling-k-brown.html
 
