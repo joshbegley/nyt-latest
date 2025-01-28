@@ -1,3 +1,11 @@
+**The Pulse: The best prospects in baseball**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6091761/2025/01/28/mlb-top-100-prospects-the-pulse/
+
+**Bowden: 12 MLB breakout candidates I'm excited to scout in spring training**\
+`I reached out to all 30 MLB teams recently to learn which players their organization's evaluators think could break out in 2025. `\
+https://nytimes.com/athletic/6092048/2025/01/28/mlb-breakout-players-2025/
+
 **The Athletic FC: Curious case of Bah and Man City, Messi ally handed power at Inter Miami**\
 `Today in TAFC: Juma Bah, Man City and a row over his transfer. Plus: Messi's confidant gets promotion at Inter Miami and Coote speaks out.`\
 https://nytimes.com/athletic/6093879/2025/01/28/bah-man-city-messi-sanllehi-inter-miami/
