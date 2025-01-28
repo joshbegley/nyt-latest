@@ -1,3 +1,7 @@
+**DNA Match Yields Murder Arrest in 2005 Utah Cold Case**\
+`Mark Munoz, 53, a homeless man, was charged in the killing of Jason Royter, 33, a father of two from Magna, Utah.`\
+https://nytimes.com/2025/01/27/us/jason-royter-cold-case-arrest-utah.html
+
 **Inside Colombia’s Crisis Over Trump’s Deportations**\
 `When Colombia’s president, Gustavo Petro, refused military planes carrying deportees, infuriating President Trump, he revealed how heated the question of deportations has become.`\
 https://nytimes.com/2025/01/27/world/americas/colombia-trump-deportation-flights-migrants.html
