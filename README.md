@@ -1,3 +1,7 @@
+**Will Everton's mounting injuries change plans and speed up action in transfer window?**\
+`David Moyes' squad is depleted and signings are needed - how much business will Everton do before the window closes?`\
+https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tfg/
+
 **Inside Newcastle Q&A: Burn vs Botman, Almiron's PSR impact - and why the sponsor hold up?**\
 `Chris Waugh answers questions on Lloyd Kelly's wages, the Mitchell/Howe relationship, and press-conference pecking order`\
 https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botman-almirons-psr-impact-and-why-the-sponsor-hold-up/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092367/2025/01/28/man-city-transfer-juma-bah-valla
 **Khusanov's tough beginning to life in the Premier League: How soon is too soon to start?**\
 `Saturday was supposed to be a landmark day for the 20-year-old, the test now is how he recovers from the early setbacks of his debut`\
 https://nytimes.com/athletic/6089280/2025/01/28/khusanov-man-city-debut-chelsea/
-
-**Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/01/28/briefing/nvidia-gaza-trump.html
 
