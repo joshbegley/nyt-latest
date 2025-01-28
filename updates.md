@@ -1,3 +1,15 @@
+**Marshall Project Names Katrice Hardy as Chief Executive**\
+`Ms. Hardy, now the executive editor of The Dallas Morning News, will lead the business and newsroom sides of nonprofit news organization.`\
+https://nytimes.com/2025/01/28/business/media/marshall-project-katrice-hardy.html
+
+**State officials report being locked out of the federal Medicaid payment system.**\
+`By Sarah Kliff`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/medicaid-freeze
+
+**Five deaths in Leicester helicopter crash were accidental, inquest finds**\
+`An inquest into the 2018 helicopter crash outside Leicester City’s King Power Stadium has found the deaths of five people, including the club’s chairman Vichai Srivaddhanaprabha, were accidental.`\
+https://nytimes.com/athletic/6094596/2025/01/28/leicester-helicopter-crash-vichai/
+
 **Cool-Kid Restaurateur Andrew Tarlow Goes Grown-Up at Borgo**\
 `For his first Manhattan restaurant, elegance and timelessness replace the Brooklyn hipness that powered his previous places.`\
 https://nytimes.com/2025/01/28/dining/borgo-andrew-tarlow-nyc-restaurant-review.html
