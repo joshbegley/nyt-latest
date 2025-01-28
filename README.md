@@ -1,3 +1,19 @@
+**Live Q&A with Keith Law about his top 100 MLB prospects list at 1 pm ET**\
+`Law will discuss his new top-100 list, as well as MLB prospects and news.`\
+https://nytimes.com/athletic/6089277/2025/01/28/mlb-prospects-live-chat-keith-law/
+
+**What are USC's biggest roster needs as the Chad Bowden era begins?**\
+`USC finally ended its search for a general manager. Now the work begins. `\
+https://nytimes.com/athletic/6092318/2025/01/28/usc-chad-bowden-gm-roster/
+
+**Jeff Ulbrich is back with the Falcons, vowing to build something different on defense**\
+`Forget 4-3 or 3-4. The Falcons' new defensive coordinator envisions “something that’s maybe never been done before scheme-wise.”`\
+https://nytimes.com/athletic/6092088/2025/01/28/falcons-jeff-ulbrich-defensive-coordinator/
+
+**What we know so far about Mike Vrabel's coaching staff with the Patriots**\
+`Vrabel has a mix of experience and youth on his Patriots coaching staff, including Doug Marrone, Thomas Brown and Ashton Grant on offense.`\
+https://nytimes.com/athletic/6092307/2025/01/28/mike-vrabel-patriots-coaching-staff-josh-mcdaniels-doug-marrone/
+
 **The Future of A.I. May Not Be as Revolutionary as We Thought**\
 `Nvidia’s sharp turn of fortunes illustrates much deeper problems that investors are ignoring as they send the valuations of Big Tech to the heavens.`\
 https://nytimes.com/2025/01/28/opinion/nvidia-deepseek-ai-valuation-ouroboros.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/28/movies/charlie-chaplin-movie-restoration-shoulder
 **The Fed Is About to Hit Pause on Rate Cuts. Here’s Why.**\
 `Faced with a solid economy and mounting inflation concerns, the U.S. central bank has said it will “move cautiously” on cutting interest rates.`\
 https://nytimes.com/2025/01/28/business/the-fed-is-about-to-hit-pause-on-rate-cuts-heres-why.html
-
-**Trump Threatens Tariffs Over Immigration, Drugs and Greenland**\
-`The president is increasingly threatening other countries with tariffs for issues that have little to do with trade.`\
-https://nytimes.com/2025/01/28/us/politics/trump-tariffs-colombia-canada-greenland.html
-
-**Where Is This Man Taking Us?**\
-`Trump has resumed office fully equipped to push the national government in a radically new direction.`\
-https://nytimes.com/2025/01/28/opinion/trump-autocracy-democracy.html
-
-**Gulf of Mexico? Gulf of America? What’s in a Name, Anyway?**\
-`Following President Trump’s order renaming the Gulf of Mexico, at least in the United States, Mexicans and Cubans expressed annoyance, defiance, confusion and even amusement.`\
-https://nytimes.com/2025/01/28/world/americas/gulf-mexico-name-change.html
-
-**Indie Bookstores Will Soon Be Able to Sell E-Books to Customers**\
-`Bookshop, a site that lets independent, bricks-and-mortar bookshops sell their books online, is launching an app that will allow the sales of e-books, too.`\
-https://nytimes.com/2025/01/28/books/indie-bookshop-e-books.html
 
