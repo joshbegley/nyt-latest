@@ -1,3 +1,7 @@
+**Brighton open to permanent Ferguson exit in January**\
+`Brighton &amp; Hove Albion are prepared to allow Evan Ferguson to depart the club permanently in the January transfer window.`\
+https://nytimes.com/athletic/6094219/2025/01/28/evan-ferguson-brighton-permanent-transfer/
+
 **Air Busan Plane Catches Fire at South Korean Airport**\
 `The fire broke out on the aircraft’s tail, fire officials said. All 169 passengers and seven crew members were evacuated.`\
 https://nytimes.com/2025/01/28/world/asia/busan-plane-fire-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086579/2025/01/28/college-basketball-national-cham
 **Protesters Attack Embassies in Congo Amid Fury Over Rebel Violence**\
 `Many blame the United States, France and other allies for allowing neighboring Rwanda to fuel a conflict in the country’s east.`\
 https://nytimes.com/2025/01/28/world/africa/congo-protesters-embassies-rebels-rwanda.html
-
-**Russian Envoys Arrive in Syria for First Time Since al-Assad Fell**\
-`Russia’s deputy foreign minister and a special presidential envoy for Syria arrived in Damascus on Tuesday, according to Russian state news.`\
-https://nytimes.com/2025/01/28/world/europe/russia-syria.html
 

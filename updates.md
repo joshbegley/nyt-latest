@@ -1,3 +1,7 @@
+**Brighton open to permanent Ferguson exit in January**\
+`Brighton &amp; Hove Albion are prepared to allow Evan Ferguson to depart the club permanently in the January transfer window.`\
+https://nytimes.com/athletic/6094219/2025/01/28/evan-ferguson-brighton-permanent-transfer/
+
 **Air Busan Plane Catches Fire at South Korean Airport**\
 `The fire broke out on the aircraft’s tail, fire officials said. All 169 passengers and seven crew members were evacuated.`\
 https://nytimes.com/2025/01/28/world/asia/busan-plane-fire-south-korea.html
