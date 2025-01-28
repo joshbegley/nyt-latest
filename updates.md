@@ -1,3 +1,15 @@
+**White House Press Secretary Makes Steely and Unflinching Debut**\
+`Karoline Leavitt used her first briefing in the role to warn veteran reporters that they were increasingly irrelevant.`\
+https://nytimes.com/2025/01/28/us/politics/karoline-leavitt-debut.html
+
+**Across Justice Dept., Fear, Anxiety and Angry Bosses**\
+`At the department’s headquarters in downtown Washington, lawyers described the uncertainty that has rippled across the agency.`\
+https://nytimes.com/2025/01/28/us/politics/justice-department-trump.html
+
+**Man Planned to Kill New G.O.P. Leaders With Molotov Cocktails, U.S. Says**\
+`Ryan English, 24, was carrying makeshift explosives and knives near the U.S. Capitol building on Monday, police charge in court papers.`\
+https://nytimes.com/2025/01/28/us/us-capitol-molotov-cocktails-bessent-hegseth.html
+
 **Giants GM Joe Schoen on QB prospect Shedeur Sanders: "He's a great kid"**\
 `Schoen goes long on his meeting with Sanders, the Senior Bowl as a building ground for talent, and Mike Kafka's potential departure.`\
 https://nytimes.com/athletic/6095340/2025/01/28/giants-joe-schoen-shedeur-sanders-senior-bowl/
