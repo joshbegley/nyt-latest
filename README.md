@@ -1,3 +1,11 @@
+**Federal Judge Blocks Trump’s Freeze of Federal Grant Funds**\
+`A judge in Washington, D.C., has sided with activists who claimed the White House’s freezing of billions of dollars in already approved funding violated the law.`\
+https://nytimes.com/2025/01/28/us/politics/federal-judge-blocks-trumps-freeze-of-federal-grant-funds.html
+
+**Trump Fired E.E.O.C. Commissioners in Late-Night Purge**\
+`The removals of the commissioners, along with the general counsel, came during a whirlwind of actions since Mr. Trump was sworn into office, with many aimed at diversity policies.`\
+https://nytimes.com/2025/01/28/business/trump-eeoc-commissioners-fired.html
+
 **Sprawling Storm Brings Risk of Flooding Rains to Part of Central U.S.**\
 `Some of the most severe weather is expected on Thursday in East Texas.`\
 https://nytimes.com/2025/01/28/weather/texas-louisiana-rain-flood-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/opinion/dei-military-social-justice.html
 **Jay Mazur, Zealous Advocate for Garment Workers, Dies at 92**\
 `A blunt-speaking, Bronx-born labor leader, he successfully pushed to legalize undocumented union members but fought a losing battle against globalization.`\
 https://nytimes.com/2025/01/28/business/jay-mazur-dead.html
-
-**A Nutrition Program for Low-Income Americans Seeks Clarity on Funding Pause**\
-`It was not immediately known how the federal funding freeze would affect W.I.C., which provides vouchers for healthy foods to low-income pregnant and postpartum women, infants and children.`\
-https://nytimes.com/2025/01/28/health/funding-freeze-wic-nutrition.html
-
-**Mets notes: What would their lineup look like without Pete Alonso?**\
-`The Mets could shift their attention to the bullpen and might add someone who could provide infield depth.`\
-https://nytimes.com/athletic/6095373/2025/01/28/mets-pete-alonso-update-lineup/
 
