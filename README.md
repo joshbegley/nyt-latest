@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6094150/2025/01/28/manchester-united-chelsea-nkunku
 https://nytimes.com/2025/01/28/dining/i-crave-this-chile-crisp-tofu.html
 
 **CNN Anchor Jim Acosta to Step Down**\
-`The network wanted to move Mr. Acosta to the midnight time slot, a backwater in cable news.`\
+`The network wanted to move Mr. Acosta to the midnight time slot, a backwater in cable television news.`\
 https://nytimes.com/2025/01/28/business/media/jim-acosta-cnn-stepping-down.html
 
 **Israel Says 8 of the 26 Hostages Listed for Imminent Release Are Dead**\
