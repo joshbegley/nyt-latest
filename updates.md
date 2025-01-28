@@ -1,3 +1,7 @@
+**66 Million-Year-Old Fossilized Vomit Is Found in Denmark**\
+`In the Cretaceous period, a shark or another kind of fish found sea lilies less than digestible. What you might expect followed.`\
+https://nytimes.com/2025/01/28/science/vomit-fossil-denmark.html
+
 **Precious Gems in the West Village**\
 `The chef Jiho Kim opens a jewel box restaurant near the Hudson, a heart-shaped Valentine from Lysée and more restaurant news.`\
 https://nytimes.com/2025/01/28/dining/nyc-restaurant-news.html
