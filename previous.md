@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: President Trump, TikTok, College Football Champion**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/01/28/learning/28StudentNewsQuiz.html
+
+**The DeepSeek Winners and Losers**\
+`The sudden popularity of the Chinese chatbot drove a huge plunge in shares of Nvidia. But other A.I. powerhouses rallied. Here’s why.`\
+https://nytimes.com/2025/01/28/business/dealbook/deepseek-winners-losers-nvidia-apple-meta.html
+
+**Chevron Joins Race to Generate Power for A.I.**\
+`The oil company plans to build natural gas power plants that will be directly connected to data centers used by technology companies for artificial intelligence and other services.`\
+https://nytimes.com/2025/01/28/business/energy-environment/chevron-power-plant-ai.html
+
 **Denmark Announces More Spending on Security Around Greenland**\
 `The country said that it would bolster measures near its North Atlantic territories, which also include the Faroe Islands, promising to buy ships and increase basic military training.`\
 https://nytimes.com/2025/01/28/world/europe/greenland-trump-denmark-security.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6093053/2025/01/28/clippers-nba-trade-deadline-tier
 **The pitfalls and privileges of your child joining a Premier League academy**\
 `How do you handle the pressure and expectation? That is among the questions discussed at a workshop for parents of academy players`\
 https://nytimes.com/athletic/6093881/2025/01/28/arsenal-premier-league-academy-fan-club/
-
-**NFL conference championship coaching decisions: Chiefs nail right calls in the clutch**\
-`Andy Reid was ready for the Bills' man coverage and Steve Spagnuolo foiled Josh Allen. In the NFC, Kliff Kingsbury's game plan backfired.`\
-https://nytimes.com/athletic/6090854/2025/01/28/nfl-conference-championship-results-scores-coaching-decisions/
-
-**The Pulse: The best prospects in baseball**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6091761/2025/01/28/mlb-top-100-prospects-the-pulse/
-
-**Bowden: 12 MLB breakout candidates I'm excited to scout in spring training**\
-`I reached out to all 30 MLB teams recently to learn which players their organization's evaluators think could break out in 2025. `\
-https://nytimes.com/athletic/6092048/2025/01/28/mlb-breakout-players-2025/
 

@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: President Trump, TikTok, College Football Champion**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/01/28/learning/28StudentNewsQuiz.html
+
+**The DeepSeek Winners and Losers**\
+`The sudden popularity of the Chinese chatbot drove a huge plunge in shares of Nvidia. But other A.I. powerhouses rallied. Here’s why.`\
+https://nytimes.com/2025/01/28/business/dealbook/deepseek-winners-losers-nvidia-apple-meta.html
+
+**Chevron Joins Race to Generate Power for A.I.**\
+`The oil company plans to build natural gas power plants that will be directly connected to data centers used by technology companies for artificial intelligence and other services.`\
+https://nytimes.com/2025/01/28/business/energy-environment/chevron-power-plant-ai.html
+
 **Denmark Announces More Spending on Security Around Greenland**\
 `The country said that it would bolster measures near its North Atlantic territories, which also include the Faroe Islands, promising to buy ships and increase basic military training.`\
 https://nytimes.com/2025/01/28/world/europe/greenland-trump-denmark-security.html
