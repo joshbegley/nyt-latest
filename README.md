@@ -1,3 +1,11 @@
+**Corrections: Jan. 28, 2025**\
+`Corrections that appeared in print on Tuesday, Jan. 28, 2025.`\
+https://nytimes.com/2025/01/27/pageoneplus/corrections-jan-28-2025.html
+
+**Whole Foods Workers in Philadelphia Vote to Form Chain’s First Union**\
+`The union win comes as Amazon, which owns the grocery chain, is also fighting labor organizing in its warehouse and delivery businesses.`\
+https://nytimes.com/2025/01/27/business/whole-foods-union-vote.html
+
 **'The floor has risen': Commanders looking ahead as they work through season-ending pain**\
 `Dan Quinn and Adam Peters held their end-of-season news conference to discuss the team's next steps following the NFC championship loss.`\
 https://nytimes.com/athletic/6093239/2025/01/27/commanders-dan-quinn-adam-peters-locker-cleanout/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/27/technology/google-maps-gulf-of-america-trump.html
 **Trump’s Careful Abortion Calculus**\
 `His opening moves on abortion weren’t exactly “shock and awe.” Democrats see an opening.`\
 https://nytimes.com/2025/01/27/us/politics/trump-abortion-calculus.html
-
-**Full Time: Another USWNT defender going abroad**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/6093285/2025/01/27/nwsl-uswnt-nighswonger-arsenal-full-time/
-
-**How Each Senator Voted on Confirming Scott Bessent as Treasury Secretary**\
-`The Senate voted 68 to 29 to confirm Mr. Bessent, a billionaire hedge fund manager, as the next Treasury secretary.`\
-https://nytimes.com/interactive/2025/01/27/us/politics/bessent-senate-confirmation-vote.html
 
