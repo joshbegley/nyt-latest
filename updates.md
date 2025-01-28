@@ -1,3 +1,11 @@
+**A Judge Temporarily Blocked Trump’s Spending Freeze**\
+`Also, the U.S. urged its citizens to leave Congo. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/28/briefing/judge-block-trump-funding-freeze-mona-lisa-new-room.html
+
+**How the Trump Administration Is Scrutinizing Federal Spending**\
+`A sweeping directive from the Office of Management and Budget requires federal agencies to subject hundreds of grant programs to ideological litmus tests.`\
+https://nytimes.com/2025/01/28/us/politics/trump-spending-pause.html
+
 **Pableaux Johnson, the Heart of New Orleans Hospitality, Dies at 59**\
 `As a photographer, cook and writer, he united communities through shared meals, vivid storytelling and a deep love of the city’s traditions.`\
 https://nytimes.com/2025/01/28/dining/pableaux-johnson-dead.html

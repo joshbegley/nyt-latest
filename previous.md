@@ -1,3 +1,11 @@
+**A Judge Temporarily Blocked Trump’s Spending Freeze**\
+`Also, the U.S. urged its citizens to leave Congo. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/01/28/briefing/judge-block-trump-funding-freeze-mona-lisa-new-room.html
+
+**How the Trump Administration Is Scrutinizing Federal Spending**\
+`A sweeping directive from the Office of Management and Budget requires federal agencies to subject hundreds of grant programs to ideological litmus tests.`\
+https://nytimes.com/2025/01/28/us/politics/trump-spending-pause.html
+
 **Pableaux Johnson, the Heart of New Orleans Hospitality, Dies at 59**\
 `As a photographer, cook and writer, he united communities through shared meals, vivid storytelling and a deep love of the city’s traditions.`\
 https://nytimes.com/2025/01/28/dining/pableaux-johnson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/weather/texas-louisiana-rain-flood-forecast.html
 **Smithsonian Closes Diversity Office After Trump’s Executive Order**\
 `The museum’s move followed a similar one last week by the National Gallery, as museums try to comply with an executive order that called diversity programs “illegal and immoral.”`\
 https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.html
-
-**Doomsday Clock Moves One Second Closer to Catastrophe**\
-`The Bulletin of the Atomic Scientists shifted the hands of the symbolic clock to 89 seconds to midnight, citing the threat of climate change, nuclear war and the misuse of artificial intelligence.`\
-https://nytimes.com/2025/01/28/us/doomsday-clock-2025.html
-
-**Bannon Accuses Manhattan D.A. of Being ‘Vindictive’ in Fraud Case**\
-`The former Trump adviser, who faces trial in March, said that he was singled out for his politics. He took aim at the district attorney in much the way the president has.`\
-https://nytimes.com/2025/01/28/nyregion/bannon-fraud-filing-politics.html
 
