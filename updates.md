@@ -1,3 +1,7 @@
+**Russian Envoys Arrive in Syria for First Time Since al-Assad Fell**\
+`Russia’s deputy foreign minister and a special presidential envoy for Syria arrived in Damascus on Tuesday, according to Russian state news.`\
+https://nytimes.com/2025/01/28/world/europe/russia-syria.html
+
 **Weekly Student News Quiz: President Trump, TikTok, College Football Champion**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/01/28/learning/28StudentNewsQuiz.html
