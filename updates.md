@@ -1,3 +1,7 @@
+**Chris Finch fumes after Wolves' unimpressive win: 'We won and got cussed out. That’s cool'**\
+`Finch sees more in his team and he's demanding that they start showing it.`\
+https://nytimes.com/athletic/6093336/2025/01/28/chris-finch-fumes-timberwolves-unimpressive/
+
 **Who's returning on Ohio State's roster, staff after national championship run?**\
 `With the portal window closed, NFL Draft decisions finalized and DC Jim Knowles on his way to State College it's time to reset the roster.`\
 https://nytimes.com/athletic/6094124/2025/01/28/ohio-state-football-staff-roster-retruners-2025-season/

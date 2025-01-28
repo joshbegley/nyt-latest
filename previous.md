@@ -1,3 +1,7 @@
+**Chris Finch fumes after Wolves' unimpressive win: 'We won and got cussed out. That’s cool'**\
+`Finch sees more in his team and he's demanding that they start showing it.`\
+https://nytimes.com/athletic/6093336/2025/01/28/chris-finch-fumes-timberwolves-unimpressive/
+
 **Who's returning on Ohio State's roster, staff after national championship run?**\
 `With the portal window closed, NFL Draft decisions finalized and DC Jim Knowles on his way to State College it's time to reset the roster.`\
 https://nytimes.com/athletic/6094124/2025/01/28/ohio-state-football-staff-roster-retruners-2025-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/world/europe/russia-syria.html
 **Weekly Student News Quiz: President Trump, TikTok, College Football Champion**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/01/28/learning/28StudentNewsQuiz.html
-
-**The DeepSeek Winners and Losers**\
-`The sudden popularity of the Chinese chatbot drove a huge plunge in shares of Nvidia. But other A.I. powerhouses rallied. Here’s why.`\
-https://nytimes.com/2025/01/28/business/dealbook/deepseek-winners-losers-nvidia-apple-meta.html
 
