@@ -1,3 +1,11 @@
+**Quinn Hughes' wizardry, Tyler Myers' return power win over Blues: 3 takeaways**\
+`The Canucks hadn't won back-to-back games since Dec. 1, but looked more like their old selves against the Blues.`\
+https://nytimes.com/athletic/6093358/2025/01/27/canucks-hughes-myers-consecutive-wins-blues/
+
+**Scottie Barnes was a winner long before the Raptors started winning**\
+`Before this recent six-in-seven run of wins, and during a period when an injured Barnes missed 35 of 88 games, Toronto's record was 4-31.`\
+https://nytimes.com/athletic/6092711/2025/01/27/scottie-barnes-winner-raptors/
+
 **Whole Foods Workers Form First Union in Amazon’s Grocery Chain**\
 `The union win, at a Philadelphia store where workers are seeking higher wages, comes as Amazon is also fighting organizing efforts among some warehouse employees and delivery drivers.`\
 https://nytimes.com/2025/01/27/business/whole-foods-union-vote.html

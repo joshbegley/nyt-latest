@@ -1,3 +1,11 @@
+**Quinn Hughes' wizardry, Tyler Myers' return power win over Blues: 3 takeaways**\
+`The Canucks hadn't won back-to-back games since Dec. 1, but looked more like their old selves against the Blues.`\
+https://nytimes.com/athletic/6093358/2025/01/27/canucks-hughes-myers-consecutive-wins-blues/
+
+**Scottie Barnes was a winner long before the Raptors started winning**\
+`Before this recent six-in-seven run of wins, and during a period when an injured Barnes missed 35 of 88 games, Toronto's record was 4-31.`\
+https://nytimes.com/athletic/6092711/2025/01/27/scottie-barnes-winner-raptors/
+
 **Inter Miami puts Messi confidant in charge of sporting decisions**\
 `Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
 https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/27/podcasts/your-guide-to-the-deepseek-freakout-an-e
 **DNA Match Yields Murder Arrest in 2005 Utah Cold Case**\
 `Mark Munoz, 53, a homeless man, was charged in the killing of Jason Royter, 33, a father of two from Magna, Utah.`\
 https://nytimes.com/2025/01/27/us/jason-royter-cold-case-arrest-utah.html
-
-**Inside Colombia’s Crisis Over Trump’s Deportations**\
-`When Colombia’s president, Gustavo Petro, refused military planes carrying deportees, infuriating President Trump, he revealed how heated the question of deportations has become.`\
-https://nytimes.com/2025/01/27/world/americas/colombia-trump-deportation-flights-migrants.html
-
-**House Democrats urge Rubio to reverse Trump’s foreign aid pause and staff purge.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2025/01/27/us/trump-news/house-democrats-urge-rubio-to-reverse-trumps-foreign-aid-pause-and-staff-purge
 
