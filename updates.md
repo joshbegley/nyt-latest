@@ -1,3 +1,7 @@
+**How good can the Knicks' defense be? We just found out**\
+`The Knicks' dominant performance against Memphis showed how good the defense can be.`\
+https://nytimes.com/athletic/6093588/2025/01/28/knicks-win-defense-grizzlies/
+
 **Trump Moves Toward Pushing Openly Transgender People Out of Military**\
 `The president also ordered the Pentagon to end diversity programs, reinstate many service members dismissed for refusing the coronavirus vaccine and create a new missile defense system.`\
 https://nytimes.com/2025/01/28/us/politics/trump-military-transgender-dei-orders.html
