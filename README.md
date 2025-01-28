@@ -1,3 +1,15 @@
+**Kennedy, in His Own Words: Flu, Diabetes, Autism and More**\
+`Robert F. Kennedy Jr., President Trump’s nominee for health secretary, doesn’t just hold fringe views on vaccines. We fact-checked five recent statements.`\
+https://nytimes.com/2025/01/28/health/kennedy-vaccines-autism-video.html
+
+**Does Trump Have the Power to Block Spending That Congress Has Authorized?**\
+`The White House’s temporary pause on trillions in federal spending could set up a court fight over executive authority and Congress’s control of the purse.`\
+https://nytimes.com/2025/01/28/us/politics/trump-federal-grants-loans-power.html
+
+**Elon Musk’s X Partners With Visa to Provide Financial Services**\
+`The social media company said it would start a peer-to-peer payments service, moving to expand the app’s abilities.`\
+https://nytimes.com/2025/01/28/technology/x-visa-financial-services.html
+
 **'No doubt' Ancelotti will remain at Madrid if they win a major trophy**\
 `Carlo Ancelotti says there is &#8220;no doubt&#8221; he will continue with Real Madrid if they win the Champions League or La Liga.`\
 https://nytimes.com/athletic/6094879/2025/01/28/carlo-ancelotti-real-madrid-latest/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6094093/2025/01/28/pepi-usmnt-psv-liverpool-champio
 **Tiny Love Stories: ‘I Know You Don’t Watch the News’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/01/28/style/tiny-modern-love-stories-i-know-you-dont-watch-the-news.html
-
-**It’s Dumpling Week!**\
-`And I think we need a moment for these chile oil wontons from Sue Li, which look so, so good.`\
-https://nytimes.com/2025/01/28/dining/its-dumpling-week.html
-
-**Inside Trump’s Renewed Effort to Undo a Major Climate Rule**\
-`A rule known as the endangerment finding requires the E.P.A. to regulate greenhouse gases. It has proved resilient against earlier attacks.`\
-https://nytimes.com/2025/01/28/climate/trump-endangerment-finding-epa.html
-
-**Arsenal win appeal against Lewis-Skelly red card**\
-`Arsenal have won their appeal against the red card issued to Myles Lewis-Skelly during their 1-0 victory over Wolverhampton Wanderers on Saturday.`\
-https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-card/
 
