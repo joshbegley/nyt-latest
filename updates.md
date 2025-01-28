@@ -1,3 +1,7 @@
+**Your Guide to the DeepSeek Freakout: An Emergency Pod**\
+`“I think this is a big moment in the history of A.I. development”`\
+https://nytimes.com/2025/01/27/podcasts/your-guide-to-the-deepseek-freakout-an-emergency-pod.html
+
 **Trump Administration Puts Dozens of USAID Officials on Paid Leave**\
 `An email to the aid agency’s employees cited actions “that appear to be designed to circumvent” an executive order by President Trump.`\
 https://nytimes.com/2025/01/27/us/politics/trump-usaid-officials.html
