@@ -1,3 +1,11 @@
+**Coca-Cola Recalls Drinks in Parts of Europe Over High Levels of Chlorate**\
+`Elevated amounts of the chemical were found in some soft drinks sold in Belgium, Luxembourg and the Netherlands.`\
+https://nytimes.com/2025/01/28/business/coca-cola-recall-europe.html
+
+**A Trade Weapon**\
+`President Trump wants to use tariffs to solve a raft of policy problems.`\
+https://nytimes.com/2025/01/28/briefing/donald-trump-tariffs.html
+
 **Twins' Simeon Woods Richardson looks to ride lower arm slot to sophomore success**\
 `In the span of 12 months, Woods Richardson lowered his arm slot, raised his velocity and rediscovered what made him a top prospect.`\
 https://nytimes.com/athletic/6091287/2025/01/28/simeon-woods-richardson-twins-2025-season/
