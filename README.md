@@ -1,3 +1,11 @@
+**The Climate Migration Question: Rebuild or Relocate?**\
+`After a flood destroyed their town, Kentucky residents faced the agonizing choice of whether to stay or to relocate to new communities built on former strip mines.`\
+https://nytimes.com/2025/01/28/climate/the-climate-migration-question-rebuild-or-relocate.html
+
+**Mona Lisa Will Move to Her Own Room at the Louvre**\
+`President Emanuel Macron announced sweeping plans to renovate the Paris museum and alleviate overcrowding.`\
+https://nytimes.com/2025/01/28/arts/design/mona-lisa-louvre-macron.html
+
 **The $8 Billion Children’s Vaccine Fund Kennedy Would Oversee**\
 `If confirmed by the Senate to be the nation’s health secretary, Robert F. Kennedy Jr. would have vast powers over immunization policies for children and adults.`\
 https://nytimes.com/2025/01/28/health/robert-f-kennedy-jr-children-vaccines-senate-confirmation.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/trump-freeze-
 **Lyon expect to appoint Fonseca, one month after Milan exit**\
 `Lyon expect to appoint former Milan head coach Paulo Fonseca to replace Pierre Sage.`\
 https://nytimes.com/athletic/6093838/2025/01/28/paulo-fonseca-lyon-manager/
-
-**Wolves in talks with Ajax to end Carlos Forbs loan spell early**\
-`Wolverhampton Wanderers are in discussions with Ajax about the possibility of an early end to Carlos Forbs’ loan spell at Molineux.`\
-https://nytimes.com/athletic/6094312/2025/01/28/carlos-forbs-wolves-loan-ajax-return/
-
-**A ‘Shark Tank’ Star on Losing Her Home in the L.A. Fires**\
-`The mobile home of Barbara Corcoran, a real estate mogul and businesswoman, perished in the Palisades fire, along with those of all of her neighbors. “I feel like I lost my sweetheart.”`\
-https://nytimes.com/2025/01/28/realestate/barbara-corcoran-la-fires-mobile-home.html
 
