@@ -1,3 +1,7 @@
+**‘A Good Chance People Are Going to Die’, as U.S. Halts Funding for Mine Clearing**\
+`Large swaths of land in Southeast Asia are littered with unexploded bombs dropped by American forces during the Vietnam War.`\
+https://nytimes.com/2025/01/28/world/asia/trump-mines-vietnam-cambodia-laos.html
+
 **Can the Bears find future linemen at the Senior Bowl? Storylines to watch**\
 `The pre-draft process gets underway this week at the Senior Bowl. What will be relevant to the Bears ahead of another critical offseason?`\
 https://nytimes.com/athletic/6092962/2025/01/28/chicago-bears-senior-bowl-storylines/

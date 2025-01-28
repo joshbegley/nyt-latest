@@ -1,3 +1,7 @@
+**‘A Good Chance People Are Going to Die’, as U.S. Halts Funding for Mine Clearing**\
+`Large swaths of land in Southeast Asia are littered with unexploded bombs dropped by American forces during the Vietnam War.`\
+https://nytimes.com/2025/01/28/world/asia/trump-mines-vietnam-cambodia-laos.html
+
 **Can the Bears find future linemen at the Senior Bowl? Storylines to watch**\
 `The pre-draft process gets underway this week at the Senior Bowl. What will be relevant to the Bears ahead of another critical offseason?`\
 https://nytimes.com/athletic/6092962/2025/01/28/chicago-bears-senior-bowl-storylines/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6093542/2025/01/28/buffalo-sabres-mailbag-elias-pet
 **Rutherford: If Blues are lacking energy at this critical point, it's time to write them off**\
 `With their season on the line, the Blues are 1-4 in their last five games, and no one seems to have the solution.`\
 https://nytimes.com/athletic/6093444/2025/01/28/rutherford-blues-lacking-energy-critical-point/
-
-**Why Senators fans are cynical about the team's Quebec City plans**\
-`Ottawa owner Michael Andlauer expressed interest in the Senators playing regular season games in Quebec City.`\
-https://nytimes.com/athletic/6093089/2025/01/28/ottawa-senators-quebec-city-andlauer/
 
