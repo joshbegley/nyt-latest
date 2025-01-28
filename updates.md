@@ -1,3 +1,7 @@
+**Myles Garrett trade rumors shut down by Browns GM Andrew Berry**\
+`Berry told reporters that Cleveland will not be trading Garrett, who's currently signed through 2026.`\
+https://nytimes.com/athletic/6094997/2025/01/28/nfl-trade-rumors-myles-garrett-browns/
+
 **A Vatican Meeting Added to Scrutiny of Tulsi Gabbard’s Foreign Travels**\
 `Ms. Gabbard, President Trump’s nominee for director of national intelligence, was briefly subject to special scrutiny on airline flights last year, but not, officials say, for the partisan reasons she has alleged.`\
 https://nytimes.com/2025/01/28/us/politics/tulsi-gabbard-trump-intel-pick-watch-list.html
