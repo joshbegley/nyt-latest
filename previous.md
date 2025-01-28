@@ -1,3 +1,11 @@
+**A Vatican Meeting Added to Scrutiny of Tulsi Gabbard’s Foreign Travels**\
+`Ms. Gabbard, President Trump’s nominee for director of national intelligence, was briefly subject to special scrutiny on airline flights last year, but not, officials say, for the partisan reasons she has alleged.`\
+https://nytimes.com/2025/01/28/us/politics/tulsi-gabbard-trump-intel-pick-watch-list.html
+
+**Selena Gomez’s Deleted Post Becomes a Political Talking Point**\
+`An Instagram video in which the actress was seen crying over arrests of undocumented immigrants led to criticism from various political figures.`\
+https://nytimes.com/2025/01/28/style/selena-gomez-instagram-undocumented-workers-mexico.html
+
 **F.D.A. Approves Ozempic to Treat Kidney Disease**\
 `The decision will further broaden the use of the blockbuster drug.`\
 https://nytimes.com/2025/01/28/well/ozempic-kidney-disease.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6094941/2025/01/28/jose-altuve-2025-position-change
 **Cutting Medicaid, Taxing Scholarships and Killing Invasive Plants: A Guide to the G.O.P. Wishlist**\
 `208 policies that could become part of the congressional agenda this year.`\
 https://nytimes.com/interactive/2025/01/28/upshot/2025-republican-policy-proposals.html
-
-**Rodgers: Tierney has 'definitely' agreed to rejoin Celtic this summer**\
-`Celtic manager Brendan Rodgers says Arsenal left-back Kieran Tierney has “definitely” agreed to rejoin the Scottish club this summer.`\
-https://nytimes.com/athletic/6095006/2025/01/28/kieran-tierney-celtic-transfer-arsenal/
-
-**Chiefs-Bills smashes TV ratings, averages 57.7 million viewers**\
-`Sunday's clash ranks as the most-watched AFC Championship Game as fans tuned in to see the Chiefs beat the Bills.`\
-https://nytimes.com/athletic/6094872/2025/01/28/bills-chiefs-tv-ratings-afc-championship-cbs/
 

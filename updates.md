@@ -1,3 +1,11 @@
+**A Vatican Meeting Added to Scrutiny of Tulsi Gabbard’s Foreign Travels**\
+`Ms. Gabbard, President Trump’s nominee for director of national intelligence, was briefly subject to special scrutiny on airline flights last year, but not, officials say, for the partisan reasons she has alleged.`\
+https://nytimes.com/2025/01/28/us/politics/tulsi-gabbard-trump-intel-pick-watch-list.html
+
+**Selena Gomez’s Deleted Post Becomes a Political Talking Point**\
+`An Instagram video in which the actress was seen crying over arrests of undocumented immigrants led to criticism from various political figures.`\
+https://nytimes.com/2025/01/28/style/selena-gomez-instagram-undocumented-workers-mexico.html
+
 **F.D.A. Approves Ozempic to Treat Kidney Disease**\
 `The decision will further broaden the use of the blockbuster drug.`\
 https://nytimes.com/2025/01/28/well/ozempic-kidney-disease.html
