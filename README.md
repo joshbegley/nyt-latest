@@ -1,3 +1,7 @@
+**Trump Moves Toward Pushing Openly Transgender People Out of Military**\
+`The president also ordered the Pentagon to end diversity programs, reinstate many service members dismissed for refusing the coronavirus vaccine and create a new missile defense system.`\
+https://nytimes.com/2025/01/28/us/politics/trump-military-transgender-dei-orders.html
+
 **Elon Musk’s Bizarre, Frightening Obsession With Britain**\
 `The billionaire’s interest goes beyond trolling.`\
 https://nytimes.com/2025/01/28/opinion/elon-musk-britain-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091499/2025/01/28/tottenham-big-six-bottom-six-lev
 **Inside BlueCo's Strasbourg: Fan protests, Chelsea loan stars and Rosenior's ambition**\
 `The Ligue 1 club are not the easiest to manage but their young English coach is carving a formidable reputation this season`\
 https://nytimes.com/athletic/6088936/2025/01/28/inside-bluecos-strasbourg-fan-protests-chelsea-loan-stars-and-roseniors-sky-high-ambition/
-
-**Yamal, Raphinha, Lewandowski: What makes Barcelona's front three so deadly?**\
-`Second only to Liverpool's front three in terms of their productivity, Barca's frontline are rightly receiving plenty of praise`\
-https://nytimes.com/athletic/6091536/2025/01/28/barcelona-yamal-raphinha-lewandowski/
 
