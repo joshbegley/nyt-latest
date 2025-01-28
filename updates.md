@@ -1,3 +1,7 @@
+**Order to pause federal spending creates deep uncertainty for schools, nonprofits and companies.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/trump-freeze-funding
+
 **Lyon expect to appoint Fonseca, one month after Milan exit**\
 `Lyon expect to appoint former Milan head coach Paulo Fonseca to replace Pierre Sage.`\
 https://nytimes.com/athletic/6093838/2025/01/28/paulo-fonseca-lyon-manager/
