@@ -1,3 +1,11 @@
+**Sprawling Storm Brings Risk of Flooding Rains to Part of Central U.S.**\
+`Some of the most severe weather is expected on Thursday in East Texas.`\
+https://nytimes.com/2025/01/28/weather/texas-louisiana-rain-flood-forecast.html
+
+**Doomsday Clock Moves One Second Closer to Catastrophe**\
+`The Bulletin of the Atomic Scientists shifted the hands of the symbolic clock to 89 seconds to midnight, citing the threat of climate change, nuclear war and the misuse of artificial intelligence.`\
+https://nytimes.com/2025/01/28/us/doomsday-clock-2025.html
+
 **Bannon Accuses Manhattan D.A. of Being ‘Vindictive’ in Fraud Case**\
 `The former Trump adviser, who faces trial in March, said that he was singled out for his politics. He took aim at the district attorney in much the way the president has.`\
 https://nytimes.com/2025/01/28/nyregion/bannon-fraud-filing-politics.html
