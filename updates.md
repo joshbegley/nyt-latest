@@ -1,3 +1,7 @@
+**Mercury to acquire Alyssa Thomas in sign and trade with Sun: Source**\
+`The Sun gave Thomas the core designation earlier in January, meaning the only way for Thomas to be moved was via a sign-and-trade`\
+https://nytimes.com/athletic/6095146/2025/01/28/alyssa-thomas-trade-phoenix-mercury-connecticut-sun-wnba/
+
 **Jake, Logan Paul tease head-to-head match slated for March 27 on Max**\
 `There is skepticism surrounding the announcement given that there is no explicit mention of a fight in the brothers' social media posts.`\
 https://nytimes.com/athletic/6095067/2025/01/28/jake-paul-logan-fight-brother/
