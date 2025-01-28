@@ -1,3 +1,7 @@
+**Smithsonian Closes Diversity Office After Trump’s Executive Order**\
+`The museum’s move followed a similar one last week by the National Gallery, as museums try to comply with an executive order that called diversity programs “illegal and immoral.”`\
+https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.html
+
 **Senate Confirms Sean Duffy as Transportation Secretary**\
 `Mr. Duffy, a former congressman who had appeared on track to sail through with little opposition, overcame a last-minute swell of Democratic anger over the White House’s sweeping funding freeze.`\
 https://nytimes.com/2025/01/28/us/politics/sean-duffy-trump-transportation-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/nyregion/eric-adams-trump-freeze.html
 **USWNT's Dunn, Gotham FC agree to mutually part ways**\
 `The split comes just 13 months into a three-year contract, signed ahead of the 2024 NWSL season.`\
 https://nytimes.com/athletic/6095420/2025/01/28/crystal-dunn-gotham-nwsl-uswnt/
-
-**Welcome, Podcasters! White House Wants New Media at the Press Briefing**\
-`President Trump’s press secretary invited social media influencers and content creators to sit with the traditional press corps.`\
-https://nytimes.com/2025/01/28/business/media/white-house-press-briefing-podcasters-influencers.html
 
