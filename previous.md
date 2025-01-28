@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6093358/2025/01/27/canucks-hughes-myers-consecutive
 `Before this recent six-in-seven run of wins, and during a period when an injured Barnes missed 35 of 88 games, Toronto's record was 4-31.`\
 https://nytimes.com/athletic/6092711/2025/01/27/scottie-barnes-winner-raptors/
 
-**Inter Miami puts Messi confidant in charge of sporting decisions**\
+**Messi ally takes over sporting decisions in Inter Miami shake-up: Sources**\
 `Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
 https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
 

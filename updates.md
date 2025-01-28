@@ -1,3 +1,7 @@
+**Messi ally takes over sporting decisions in Inter Miami shake-up: Sources**\
+`Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
+https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
+
 **Dominik Shine's NHL moment finally arrives: 'Something I'll cherish forever'**\
 `Shine has been with the Red Wings' AHL affiliate since 2017, and finally got his shot in the NHL on Monday.`\
 https://nytimes.com/athletic/6093524/2025/01/27/red-wings-dominik-shine-nhl-debut/
