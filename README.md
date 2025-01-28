@@ -1,3 +1,7 @@
+**Who's returning on Ohio State's roster, staff after national championship run?**\
+`With the portal window closed, NFL Draft decisions finalized and DC Jim Knowles on his way to State College it's time to reset the roster.`\
+https://nytimes.com/athletic/6094124/2025/01/28/ohio-state-football-staff-roster-retruners-2025-season/
+
 **Japanese TV Executives Get 10-Hour Grilling Over Sex Abuse Case**\
 `Public mea culpas are a corporate ritual in Japan. For Fuji TV, the resignations and public apologies of two bosses didn’t assuage public anger.`\
 https://nytimes.com/2025/01/28/world/asia/japan-tv-executives-sex-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/28/learning/28StudentNewsQuiz.html
 **The DeepSeek Winners and Losers**\
 `The sudden popularity of the Chinese chatbot drove a huge plunge in shares of Nvidia. But other A.I. powerhouses rallied. Here’s why.`\
 https://nytimes.com/2025/01/28/business/dealbook/deepseek-winners-losers-nvidia-apple-meta.html
-
-**Chevron Joins Race to Generate Power for A.I.**\
-`The oil company plans to build natural gas power plants that will be directly connected to data centers used by technology companies for artificial intelligence and other services.`\
-https://nytimes.com/2025/01/28/business/energy-environment/chevron-power-plant-ai.html
 
