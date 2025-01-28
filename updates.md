@@ -1,3 +1,11 @@
+**Pableaux Johnson, the Heart of New Orleans Hospitality, Dies at 59**\
+`As a photographer, cook and writer, he united communities through shared meals, vivid storytelling and a deep love of the city’s traditions.`\
+https://nytimes.com/2025/01/28/dining/pableaux-johnson-dead.html
+
+**NBA All-Star Weekend participants tracker: Rising Stars pool unveiled**\
+`The player pool for the Rising Stars has been revealed, while Mac McClung will try to win a third straight dunk contest.`\
+https://nytimes.com/athletic/6095316/2025/01/28/nba-all-star-weekend-dunk-3-point-tracker-2/
+
 **How DeepSeek Changed the A.I. Game**\
 `What is DeepSeek, and why did it cause the markets and U.S. tech giants to quake? Cade Metz, a technology reporter for The New York Times who writes about artificial intelligence, explains.`\
 https://nytimes.com/video/technology/100000009951972/how-deepseek-changed-the-ai-game.html
