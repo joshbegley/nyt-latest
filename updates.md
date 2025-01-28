@@ -1,3 +1,15 @@
+**Homeland Security Begins Immigration Enforcement Operation in New York**\
+`The agency’s new secretary, Kristi Noem, announced that she was on hand to witness the arrest of an unauthorized immigrant connected to criminal activity.`\
+https://nytimes.com/2025/01/28/nyregion/ice-raid-nyc-noem.html
+
+**Marseille among clubs interested in loan for Brighton's Ferguson**\
+`Marseille are among the clubs interested in a loan move for Brighton &amp; Hove Albion striker Evan Ferguson.`\
+https://nytimes.com/athletic/6035347/2025/01/28/evan-ferguson-transfer-brighton-marseille-loan/
+
+**Arsenal appeal against Lewis-Skelly red card**\
+`Arsenal have appealed against the red card issued to Myles Lewis-Skelly during their 1-0 victory over Wolverhampton Wanderers on Saturday.`\
+https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-card/
+
 **Clippers trade tiers: What to watch with LA before the Feb. 6 deadline**\
 `Who could be moved before the NBA trade deadline for the Clippers? And for what deal? Here are some trade tiers.`\
 https://nytimes.com/athletic/6093053/2025/01/28/clippers-nba-trade-deadline-tiers/
