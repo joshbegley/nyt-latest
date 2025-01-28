@@ -1,3 +1,7 @@
+**Oklahoma Moves to Require Schools to Ask Students’ Immigration Status**\
+`The rule would not block undocumented students from enrolling, but it would supply the Trump administration with information to aid immigration enforcement.`\
+https://nytimes.com/2025/01/28/us/oklahoma-schools-immigration.html
+
 **Kings listening to trade offers for De'Aaron Fox: Source**\
 `Fox is known to have a preferred trade destination that his associates are not yet revealing.`\
 https://nytimes.com/athletic/6095410/2025/01/28/deaaron-fox-kings-trade-open-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/arts/music/on-site-opera-closes.html
 **Super Bowl 59 MVP odds: Staff picks with Mahomes favored ahead of Barkley, Hurts**\
 `Patrick Mahomes is roughly an even-money favorite to win Super Bowl MVP. Saquon Barkley is second ahead of Jalen Hurts.`\
 https://nytimes.com/athletic/6092340/2025/01/28/super-bowl-59-mvp-odds-patrick-mahomes/
-
-**Wednesday Briefing: Trump’s Funding Freeze**\
-`Plus, renovations at the Louvre.`\
-https://nytimes.com/2025/01/28/briefing/trump-funding-freeze-israel-hostages-congo-protests.html
 
