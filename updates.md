@@ -1,3 +1,7 @@
+**Inter Miami puts Messi confidant in charge of sporting decisions**\
+`Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
+https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
+
 **Listen Here**\
 `Dan Margolis raids the pantry.`\
 https://nytimes.com/2025/01/27/crosswords/daily-puzzle-2025-01-28.html

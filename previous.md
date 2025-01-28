@@ -1,3 +1,7 @@
+**Inter Miami puts Messi confidant in charge of sporting decisions**\
+`Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
+https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
+
 **Listen Here**\
 `Dan Margolis raids the pantry.`\
 https://nytimes.com/2025/01/27/crosswords/daily-puzzle-2025-01-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/27/world/americas/colombia-trump-deportation-flights
 **House Democrats urge Rubio to reverse Trump’s foreign aid pause and staff purge.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2025/01/27/us/trump-news/house-democrats-urge-rubio-to-reverse-trumps-foreign-aid-pause-and-staff-purge
-
-**How Google Maps Plans to Handle the ‘Gulf of America’**\
-`Google said it would follow the Trump administration in renaming the Gulf of Mexico once the new name is updated in government sources.`\
-https://nytimes.com/2025/01/27/technology/google-maps-gulf-of-america-trump.html
 
