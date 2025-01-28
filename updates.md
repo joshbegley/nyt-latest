@@ -1,3 +1,7 @@
+**Air Busan Plane Catches Fire at South Korean Airport**\
+`The fire broke out on the aircraft’s tail, fire officials said. All 169 passengers and seven crew members were evacuated.`\
+https://nytimes.com/2025/01/28/world/asia/busan-plane-fire-south-korea.html
+
 **Chris Finch fumes after Wolves' unimpressive win: 'We won and got cussed out. That’s cool'**\
 `Finch sees more in his team and he's demanding that they start showing it.`\
 https://nytimes.com/athletic/6093336/2025/01/28/chris-finch-fumes-timberwolves-unimpressive/
