@@ -1,3 +1,13 @@
+**Nigerian Man Is Extradited in Sextortion Case After Teen’s Suicide**\
+`The man, Hassanbunhussein Abolore Lawal, 24, is accused of posing as a teenage girl to convince a boy in South Carolina to send him sexually compromising images of himself.`\
+https://nytimes.com/2025/01/27/us/nigerian-extradited-sextortion-teen-death.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s the first edition of the 2025 offseason.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6093243/2025/01/27/submit-a-question-for-stewart-mandels-college-football-mailbag-290/
+
 **The Jets are Aaron Glenn's show now**\
 `The Jets' new head coach, along with newly hired GM Darren Mougey, met the press on Monday`\
 https://nytimes.com/athletic/6093001/2025/01/27/aaron-glenn-new-york-jets-introduction/

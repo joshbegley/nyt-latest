@@ -1,3 +1,13 @@
+**Nigerian Man Is Extradited in Sextortion Case After Teen’s Suicide**\
+`The man, Hassanbunhussein Abolore Lawal, 24, is accused of posing as a teenage girl to convince a boy in South Carolina to send him sexually compromising images of himself.`\
+https://nytimes.com/2025/01/27/us/nigerian-extradited-sextortion-teen-death.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s the first edition of the 2025 offseason.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6093243/2025/01/27/submit-a-question-for-stewart-mandels-college-football-mailbag-290/
+
 **The Jets are Aaron Glenn's show now**\
 `The Jets' new head coach, along with newly hired GM Darren Mougey, met the press on Monday`\
 https://nytimes.com/athletic/6093001/2025/01/27/aaron-glenn-new-york-jets-introduction/
@@ -29,12 +39,4 @@ https://nytimes.com/2025/01/27/technology/deepseek-ai-chatbot-first-impressions.
 **Man Pardoned in Jan. 6 Riot Is Fatally Shot by Sheriff’s Deputy During Traffic Stop**\
 `The police said that Matthew W. Huttle, 42, of Hobart, Ind., who was sentenced to six months for his role in the riot at the U.S. Capitol in 2021, resisted arrest after he was stopped in Indiana on Sunday.`\
 https://nytimes.com/2025/01/27/us/politics/jan-6-rioter-shot-indiana-traffic-stop.html
-
-**Steelers aim to re-sign Wilson or Fields, 'probably' not both, owner says**\
-`Rooney said on Monday that he believes in both Russell Wilson and Justin Fields and would prefer to sign one of the two passers`\
-https://nytimes.com/athletic/6092672/2025/01/27/steelers-russell-wilson-justin-fields-art-rooney/
-
-**Trump Administration Halts H.I.V. Drug Distribution in Poor Countries**\
-`PEPFAR’s computer systems also are being taken offline, a sign that the program may not return, as Republican critics had hoped.`\
-https://nytimes.com/2025/01/27/health/pepfar-trump-freeze.html
 
