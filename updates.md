@@ -1,3 +1,11 @@
+**Federal freeze on grants could have broad effect on housing.**\
+`From providing financing for homeless shelters to middle-class mortgage assistance, the federal role in housing extends across regions and income levels.`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/federal-freeze-on-grants-could-have-broad-effect-on-housing
+
+**N.Y.P.D. Chiefs Failed Public by Attacking Critics Online, Report Finds**\
+`John Chell, now the Police Department’s top uniformed officer, and other top officials behaved irresponsibly on social media, according to the Department of Investigation.`\
+https://nytimes.com/2025/01/28/nyregion/nypd-social-media-report.html
+
 **Democrats Block Bill to Impose Sanctions on International Criminal Court Officials**\
 `The failed Senate vote was a setback for the bill, which aims to punish the court for its decision to prosecute top Israeli officials for war crimes based on the military offensive in Gaza.`\
 https://nytimes.com/2025/01/28/us/politics/democrats-icc-sanctions.html
