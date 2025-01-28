@@ -1,3 +1,11 @@
+**Dominik Shine's NHL moment finally arrives: 'Something I'll cherish forever'**\
+`Shine has been with the Red Wings' AHL affiliate since 2017, and finally got his shot in the NHL on Monday.`\
+https://nytimes.com/athletic/6093524/2025/01/27/red-wings-dominik-shine-nhl-debut/
+
+**White House Budget Office Orders Pause in All Federal Loans and Grants**\
+`The full extent of the order was not immediately clear, but the directive sent to government agencies on Monday threatened to paralyze a vast swath of federal programs.`\
+https://nytimes.com/2025/01/27/us/politics/white-house-pauses-federal-grants.html
+
 **Tenacious Flyers take another 'growing step' in holding off Devils again**\
 `The Flyers kept their composure after what could have been a deflating goal to dispatch the Devils for the second time in 10 days.`\
 https://nytimes.com/athletic/6093568/2025/01/27/flyers-ersson-hathaway-devils-tortorella/
