@@ -1,5 +1,9 @@
+**The Joy of Escapism**\
+`Amid the fantasies of Schiaparelli and Dior.`\
+https://nytimes.com/2025/01/28/style/schiaparelli-dior-jacquemus-couture.html
+
 **Fading Penguins go down without a whimper vs. Sharks: Yohe's 10 observations**\
-`The Penguins looked lethargic and disinterested most of the night in a 2-1 loss to the lowly Sharks in San Jose.`\
+`The sad truth for the Penguins is that they are one of the NHL's worst teams. The eye test very much says so. So, too, do the standings.`\
 https://nytimes.com/athletic/6087852/2025/01/28/penguins-lose-to-sharks-yohe/
 
 **In Seattle, a Convergence of 5,444 Mathematical Minds**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/world/asia/india-china-direct-flights.html
 **Love hurts: Unranked Arizona stuns No. 3 Iowa State in overtime**\
 `The unexpected win gives the Wildcats sole possession of second place in the Big 12 at 8-1.`\
 https://nytimes.com/athletic/6093742/2025/01/28/arizona-stuns-iowa-state/
-
-**Word of the Day: truncate**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/28/learning/word-of-the-day-truncate.html
 
