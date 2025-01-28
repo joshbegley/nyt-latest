@@ -1,3 +1,7 @@
+**Myles Garrett trade rumors shut down by Browns GM Andrew Berry**\
+`Berry told reporters that Cleveland will not be trading Garrett, who's currently signed through 2026.`\
+https://nytimes.com/athletic/6094997/2025/01/28/nfl-trade-rumors-myles-garrett-browns/
+
 **A Vatican Meeting Added to Scrutiny of Tulsi Gabbard’s Foreign Travels**\
 `Ms. Gabbard, President Trump’s nominee for director of national intelligence, was briefly subject to special scrutiny on airline flights last year, but not, officials say, for the partisan reasons she has alleged.`\
 https://nytimes.com/2025/01/28/us/politics/tulsi-gabbard-trump-intel-pick-watch-list.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/africa/100000009953680/congo-protests-embassies.
 **Jose Altuve could split time between second base and left field in 2025**\
 `Altuve, who stands 5-foot-6, has never played the outfield at any point over his more than 15,000 defensive innings.`\
 https://nytimes.com/athletic/6094941/2025/01/28/jose-altuve-2025-position-change/
-
-**Cutting Medicaid, Taxing Scholarships and Killing Invasive Plants: A Guide to the G.O.P. Wishlist**\
-`208 policies that could become part of the congressional agenda this year.`\
-https://nytimes.com/interactive/2025/01/28/upshot/2025-republican-policy-proposals.html
 
