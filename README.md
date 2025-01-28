@@ -1,3 +1,11 @@
+**Federal freeze on grants could have broad effect on housing.**\
+`From providing financing for homeless shelters to middle-class mortgage assistance, the federal role in housing extends across regions and income levels.`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/federal-freeze-on-grants-could-have-broad-effect-on-housing
+
+**N.Y.P.D. Chiefs Failed Public by Attacking Critics Online, Report Finds**\
+`John Chell, now the Police Department’s top uniformed officer, and other top officials behaved irresponsibly on social media, according to the Department of Investigation.`\
+https://nytimes.com/2025/01/28/nyregion/nypd-social-media-report.html
+
 **Democrats Block Bill to Impose Sanctions on International Criminal Court Officials**\
 `The failed Senate vote was a setback for the bill, which aims to punish the court for its decision to prosecute top Israeli officials for war crimes based on the military offensive in Gaza.`\
 https://nytimes.com/2025/01/28/us/politics/democrats-icc-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/27/opinion/thepoint/iron-dome-america-missile-d
 **Nonprofits Fear Federal Grants Freeze Could Stop Critical Charity Work**\
 `After President Trump’s freeze on aid, administrators of health care, education and social service programs worried they would have to scale back operations.`\
 https://nytimes.com/2025/01/28/us/politics/nonprofits-federal-grant-freeze-charity.html
-
-**Do China’s A.I. Advances Mean U.S. Technology Controls Have Failed?**\
-`DeepSeek’s A.I. models show that China is making rapid gains in the field, despite American efforts to hinder it.`\
-https://nytimes.com/2025/01/28/business/economy/deepseek-china-us-chip-controls.html
-
-**Heat Today: Kevin Love has become Heat's meme man during Jimmy Butler drama**\
-`The veteran has mastered the art of levity amid tense times in Miami.`\
-https://nytimes.com/athletic/6094807/2025/01/28/jimmy-butler-heat-trade-rumors-kevin-love/
 
