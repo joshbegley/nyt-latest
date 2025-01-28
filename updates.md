@@ -1,3 +1,15 @@
+**New Yorkers’ Life Expectancy Has Dipped. Officials Want to Change That.**\
+`The city laid out a series of proposals to reduce cancer deaths by 20 percent, and deaths from heart- and diabetes-related ailments by 5 percent, over the next five years.`\
+https://nytimes.com/2025/01/28/nyregion/nyc-life-expectancy-health-department.html
+
+**A Soothing Array of Spring Colors**\
+`Wearing shades of lavender, blue, orange and green, a couple brought to mind the palette of a spring day.`\
+https://nytimes.com/2025/01/28/style/street-style-look-spring-colors.html
+
+**Bayer Leverkusen's Boniface excused from training as potential Saudi move nears**\
+`Bayer Leverkusen striker Victor Boniface has been excused from training as a potential move to Saudi Pro League side Al Nassr nears.`\
+https://nytimes.com/athletic/6094119/2025/01/28/bayer-leverkusen-boniface-transfer-saudi/
+
 **College hoops midseason catch-up: The contenders and bubble teams you need to know**\
 `When trying to predict future NCAA Tournament success, particularly the national champion, we turn to history and numbers for guidance.`\
 https://nytimes.com/athletic/6086579/2025/01/28/college-basketball-national-championship-favorites-sleepers/

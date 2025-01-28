@@ -1,3 +1,15 @@
+**New Yorkers’ Life Expectancy Has Dipped. Officials Want to Change That.**\
+`The city laid out a series of proposals to reduce cancer deaths by 20 percent, and deaths from heart- and diabetes-related ailments by 5 percent, over the next five years.`\
+https://nytimes.com/2025/01/28/nyregion/nyc-life-expectancy-health-department.html
+
+**A Soothing Array of Spring Colors**\
+`Wearing shades of lavender, blue, orange and green, a couple brought to mind the palette of a spring day.`\
+https://nytimes.com/2025/01/28/style/street-style-look-spring-colors.html
+
+**Bayer Leverkusen's Boniface excused from training as potential Saudi move nears**\
+`Bayer Leverkusen striker Victor Boniface has been excused from training as a potential move to Saudi Pro League side Al Nassr nears.`\
+https://nytimes.com/athletic/6094119/2025/01/28/bayer-leverkusen-boniface-transfer-saudi/
+
 **College hoops midseason catch-up: The contenders and bubble teams you need to know**\
 `When trying to predict future NCAA Tournament success, particularly the national champion, we turn to history and numbers for guidance.`\
 https://nytimes.com/athletic/6086579/2025/01/28/college-basketball-national-championship-favorites-sleepers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/28/business/energy-environment/chevron-power-plant-a
 **Denmark Announces More Spending on Security Around Greenland**\
 `The country said that it would bolster measures near its North Atlantic territories, which also include the Faroe Islands, promising to buy ships and increase basic military training.`\
 https://nytimes.com/2025/01/28/world/europe/greenland-trump-denmark-security.html
-
-**With game-winner over Celtics, Amen Thompson announces himself as a star**\
-`The Celtics had no answer for Thompson as Houston continued to soar past expectations.`\
-https://nytimes.com/athletic/6093586/2025/01/28/amen-thompson-rockets-celtics/
-
-**Homeland Security Begins Immigration Enforcement Operation in New York**\
-`The agency’s new secretary, Kristi Noem, announced that she was on hand to witness the arrest of an unauthorized immigrant connected to criminal activity.`\
-https://nytimes.com/2025/01/28/nyregion/ice-raid-nyc-noem.html
-
-**Marseille among clubs interested in loan for Brighton's Ferguson**\
-`Marseille are among the clubs interested in a loan move for Brighton &amp; Hove Albion striker Evan Ferguson.`\
-https://nytimes.com/athletic/6035347/2025/01/28/evan-ferguson-transfer-brighton-marseille-loan/
 
