@@ -1,3 +1,7 @@
+**'No doubt' Ancelotti will remain at Madrid if they win a major trophy**\
+`Carlo Ancelotti says there is &#8220;no doubt&#8221; he will continue with Real Madrid if they win the Champions League or La Liga.`\
+https://nytimes.com/athletic/6094879/2025/01/28/carlo-ancelotti-real-madrid-latest/
+
 **France, Finally, Wins the World’s Top Food Award Again**\
 `In 2023, the country failed to finish in the top three as Denmark won the Bocuse d’Or, a fine-dining competition. This year, France reclaimed the crown.`\
 https://nytimes.com/2025/01/28/world/europe/france-bocuse-winner-gastronomy-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/climate/trump-endangerment-finding-epa.html
 **Arsenal win appeal against Lewis-Skelly red card**\
 `Arsenal have won their appeal against the red card issued to Myles Lewis-Skelly during their 1-0 victory over Wolverhampton Wanderers on Saturday.`\
 https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-card/
-
-**Bengals TE Erick All Jr. expected to miss 2025 season due to ACL: Sources**\
-`All's promising rookie season was cut short by an ACL injury and now it appears complications from it will cost him next season.`\
-https://nytimes.com/athletic/6094193/2025/01/28/erick-all-jr-bengals-acl-miss-season/
 

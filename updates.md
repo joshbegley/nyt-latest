@@ -1,3 +1,7 @@
+**'No doubt' Ancelotti will remain at Madrid if they win a major trophy**\
+`Carlo Ancelotti says there is &#8220;no doubt&#8221; he will continue with Real Madrid if they win the Champions League or La Liga.`\
+https://nytimes.com/athletic/6094879/2025/01/28/carlo-ancelotti-real-madrid-latest/
+
 **France, Finally, Wins the World’s Top Food Award Again**\
 `In 2023, the country failed to finish in the top three as Denmark won the Bocuse d’Or, a fine-dining competition. This year, France reclaimed the crown.`\
 https://nytimes.com/2025/01/28/world/europe/france-bocuse-winner-gastronomy-food.html
