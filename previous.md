@@ -1,3 +1,7 @@
+**Leeds' Burnley bore draw will do little to quell calls for a January splurge**\
+`Leeds have been burned badly before but their stalemate with Burnley will only empower any voices calling for January reinforcements`\
+https://nytimes.com/athletic/6093197/2025/01/28/leeds-united-burnley-january-transfer-window/
+
 **India and China Agree to Resume Direct Flights After Nearly Five Years**\
 `It was the latest thaw in relations between the two countries, whose troops were involved in deadly skirmishes high in the Himalayas in 2020.`\
 https://nytimes.com/2025/01/28/world/asia/india-china-direct-flights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/opinion/elon-musk-britain-trump.html
 **Why China Loves Trump’s Right-Wing Wokeism**\
 `The president’s energy policies may not make America great again, but they will definitely help make China great again.`\
 https://nytimes.com/2025/01/28/opinion/deepseek-ai-trump.html
-
-**'Un-be-liev-able': How Szoboszlai became essential for Liverpool**\
-`The Hungarian has made himself into a key player for Arne Slot's side, one who is difficult to replace when he is not in the team`\
-https://nytimes.com/athletic/6092094/2025/01/28/dominik-szoboszlai-liverpool-form/
 

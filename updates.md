@@ -1,3 +1,7 @@
+**Leeds' Burnley bore draw will do little to quell calls for a January splurge**\
+`Leeds have been burned badly before but their stalemate with Burnley will only empower any voices calling for January reinforcements`\
+https://nytimes.com/athletic/6093197/2025/01/28/leeds-united-burnley-january-transfer-window/
+
 **India and China Agree to Resume Direct Flights After Nearly Five Years**\
 `It was the latest thaw in relations between the two countries, whose troops were involved in deadly skirmishes high in the Himalayas in 2020.`\
 https://nytimes.com/2025/01/28/world/asia/india-china-direct-flights.html
