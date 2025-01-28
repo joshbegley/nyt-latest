@@ -1,3 +1,11 @@
+**MLS revamps North American cups, all 30 teams to participate**\
+`The Open Cup is undergoing changes for 2025 and 2026 but the long-term future of the tournament remains unclear.`\
+https://nytimes.com/athletic/6080818/2025/01/28/mls-north-american-cup-competitions/
+
+**Hacking Democracy: How Elon Musk is Disrupting European Politics**\
+`The richest man in the world is backing far-right parties against a political establishment that has failed to deliver.`\
+https://nytimes.com/2025/01/28/world/europe/hacking-democracy-elon-musk-europe.html
+
 **Myles Garrett trade rumors shut down by Browns GM Andrew Berry**\
 `Berry told reporters that Cleveland will not be trading Garrett, who's currently signed through 2026.`\
 https://nytimes.com/athletic/6094997/2025/01/28/nfl-trade-rumors-myles-garrett-browns/
