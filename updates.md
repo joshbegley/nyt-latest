@@ -1,3 +1,7 @@
+**Your Guide to the DeepSeek Freakout: an Emergency Pod**\
+`“I think this is a big moment in the history of A.I. development”`\
+https://nytimes.com/2025/01/27/podcasts/your-guide-to-the-deepseek-freakout-an-emergency-pod.html
+
 **DNA Match Yields Murder Arrest in 2005 Utah Cold Case**\
 `Mark Munoz, 53, a homeless man, was charged in the killing of Jason Royter, 33, a father of two from Magna, Utah.`\
 https://nytimes.com/2025/01/27/us/jason-royter-cold-case-arrest-utah.html

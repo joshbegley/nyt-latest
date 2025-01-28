@@ -1,3 +1,7 @@
+**Your Guide to the DeepSeek Freakout: an Emergency Pod**\
+`“I think this is a big moment in the history of A.I. development”`\
+https://nytimes.com/2025/01/27/podcasts/your-guide-to-the-deepseek-freakout-an-emergency-pod.html
+
 **DNA Match Yields Murder Arrest in 2005 Utah Cold Case**\
 `Mark Munoz, 53, a homeless man, was charged in the killing of Jason Royter, 33, a father of two from Magna, Utah.`\
 https://nytimes.com/2025/01/27/us/jason-royter-cold-case-arrest-utah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6093260/2025/01/27/fenway-sports-group-looking-to-e
 **Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
 `The president, who was found liable for sexually abusing the writer E. Jean Carroll, is contending that he doesn’t have to pay the $83 million he owes for defaming her.`\
 https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
-
-**Nigerian Man Is Extradited in Sextortion Case After Teen’s Suicide**\
-`The man, Hassanbunhussein Abolore Lawal, 24, is accused of posing as a teenage girl to convince a boy in South Carolina to send him sexually compromising images of himself.`\
-https://nytimes.com/2025/01/27/us/nigerian-extradited-sextortion-teen-death.html
 
