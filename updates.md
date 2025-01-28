@@ -1,3 +1,7 @@
+**Rodgers: Tierney has 'definitely' agreed to rejoin Celtic this summer**\
+`Celtic manager Brendan Rodgers says Arsenal left-back Kieran Tierney has “definitely” agreed to rejoin the Scottish club this summer.`\
+https://nytimes.com/athletic/6095006/2025/01/28/kieran-tierney-celtic-transfer-arsenal/
+
 **Chiefs-Bills smashes TV ratings, averages 57.7 million viewers**\
 `Sunday's clash ranks as the most-watched AFC Championship Game as fans tuned in to see the Chiefs beat the Bills.`\
 https://nytimes.com/athletic/6094872/2025/01/28/bills-chiefs-tv-ratings-afc-championship-cbs/
