@@ -1,3 +1,7 @@
+**Kings listening to trade offers for De'Aaron Fox: Source**\
+`Fox is known to have a preferred trade destination that his associates are not yet revealing.`\
+https://nytimes.com/athletic/6095410/2025/01/28/deaaron-fox-kings-trade-open-nba/
+
 **Nonprofits in New York Are Told Their Contracts ‘Have Been Paused’**\
 `New York leaders were trying to determine how the state will be affected by a Trump administration order to freeze trillions of dollars in federal grants and loans.`\
 https://nytimes.com/2025/01/28/us/politics/nyc-nonprofit-contracts.html
