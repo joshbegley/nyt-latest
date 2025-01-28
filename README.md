@@ -1,6 +1,6 @@
 **Federal Judge Blocks Trump’s Freeze of Federal Grant Funds**\
 `A judge in Washington, D.C., has sided with activists who claimed the White House’s freezing of billions of dollars in already approved funding violated the law.`\
-https://nytimes.com/2025/01/28/us/politics/federal-judge-blocks-trumps-freeze-of-federal-grant-funds.html
+https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-blocked.html
 
 **Trump Fired E.E.O.C. Commissioners in Late-Night Purge**\
 `The removals of the commissioners, along with the general counsel, came during a whirlwind of actions since Mr. Trump was sworn into office, with many aimed at diversity policies.`\
