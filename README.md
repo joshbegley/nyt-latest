@@ -1,3 +1,7 @@
+**Full Time: Another USWNT defender going abroad**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6093285/2025/01/27/nwsl-uswnt-nighswonger-arsenal-full-time/
+
 **How Each Senator Voted on Confirming Scott Bessent as Treasury Secretary**\
 `The Senate voted 68 to 29 to confirm Mr. Bessent, a billionaire hedge fund manager, as the next Treasury secretary.`\
 https://nytimes.com/interactive/2025/01/27/us/politics/bessent-senate-confirmation-vote.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6093027/2025/01/27/cowboys-brian-schottenheimer-off
 **What to know 500 days from World Cup: USMNT, security, tickets, Trump**\
 `Some essential information as the soccer tournament approaches`\
 https://nytimes.com/athletic/6092535/2025/01/27/500-days-world-cup-usmnt-tickets-trump/
-
-**Bills clean out lockers, reflect on pivotal plays that got away in AFC title game**\
-`What does the future hold for Amari Cooper and Von Miller? Josh Allen takes ownership of Buffalo's final offensive play.`\
-https://nytimes.com/athletic/6092739/2025/01/27/bills-locker-cleanout-chiefs-afc-title-game/
 
