@@ -1,3 +1,7 @@
+**'The floor has risen': Commanders looking ahead as they work through season-ending pain**\
+`Dan Quinn and Adam Peters held their end-of-season news conference to discuss the team's next steps following the NFC championship loss.`\
+https://nytimes.com/athletic/6093239/2025/01/27/commanders-dan-quinn-adam-peters-locker-cleanout/
+
 **Trump Administration Puts Dozens of USAID Officials on Paid Leave**\
 `An email to the aid agency’s employees cited actions “that appear to be designed to circumvent” an executive order by President Trump.`\
 https://nytimes.com/2025/01/27/us/politics/trump-usaid-officials.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6093285/2025/01/27/nwsl-uswnt-nighswonger-arsenal-f
 **How Each Senator Voted on Confirming Scott Bessent as Treasury Secretary**\
 `The Senate voted 68 to 29 to confirm Mr. Bessent, a billionaire hedge fund manager, as the next Treasury secretary.`\
 https://nytimes.com/interactive/2025/01/27/us/politics/bessent-senate-confirmation-vote.html
-
-**Fenway Sports Group looking to expand Penguins ownership group: Sources**\
-`FSG, which owns several other properties, including the Boston Red Sox and Liverpool FC, plans to maintain controlling interest of Penguins.`\
-https://nytimes.com/athletic/6093260/2025/01/27/fenway-sports-group-looking-to-expand-penguins-ownership-group-sources/
 
