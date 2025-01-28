@@ -1,3 +1,7 @@
+**Inside Colombia’s Crisis Over Trump’s Deportations**\
+`When Colombia’s president, Gustavo Petro, refused military planes carrying deportees, infuriating President Trump, he revealed how heated the question of deportations has become.`\
+https://nytimes.com/2025/01/27/world/americas/colombia-trump-deportation-flights-migrants.html
+
 **House Democrats urge Rubio to reverse Trump’s foreign aid pause and staff purge.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2025/01/27/us/trump-news/house-democrats-urge-rubio-to-reverse-trumps-foreign-aid-pause-and-staff-purge
@@ -35,8 +39,4 @@ https://nytimes.com/2025/01/27/us/nigerian-extradited-sextortion-teen-death.html
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6093243/2025/01/27/submit-a-question-for-stewart-mandels-college-football-mailbag-290/
-
-**The Jets are Aaron Glenn's show now**\
-`The Jets' new head coach, along with newly hired GM Darren Mougey, met the press on Monday`\
-https://nytimes.com/athletic/6093001/2025/01/27/aaron-glenn-new-york-jets-introduction/
 
