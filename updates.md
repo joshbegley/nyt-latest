@@ -1,3 +1,7 @@
+**Defensive mistakes doom short-handed Celtics in late loss to Rockets**\
+`Boston nearly pulled off a great win, but fell for the seventh time this season after leading by at least 10 points.`\
+https://nytimes.com/athletic/6093679/2025/01/28/celtics-lose-to-rockets/
+
 **How good can the Knicks' defense be? We just found out**\
 `The Knicks' dominant performance against Memphis showed how good the defense can be.`\
 https://nytimes.com/athletic/6093588/2025/01/28/knicks-win-defense-grizzlies/

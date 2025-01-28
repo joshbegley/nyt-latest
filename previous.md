@@ -1,3 +1,7 @@
+**Defensive mistakes doom short-handed Celtics in late loss to Rockets**\
+`Boston nearly pulled off a great win, but fell for the seventh time this season after leading by at least 10 points.`\
+https://nytimes.com/athletic/6093679/2025/01/28/celtics-lose-to-rockets/
+
 **How good can the Knicks' defense be? We just found out**\
 `The Knicks' dominant performance against Memphis showed how good the defense can be.`\
 https://nytimes.com/athletic/6093588/2025/01/28/knicks-win-defense-grizzlies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botm
 **Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
 `The Athletic spoke to the project lead for the redeveloped Racecourse`\
 https://nytimes.com/athletic/6077794/2025/01/28/populous-on-their-designs-for-wrexhams-new-home-the-plan-is-to-create-a-real-cauldron/
-
-**Big Six to bottom six: How and why Tottenham have fallen away**\
-`How did a club that used to stand for consistency and stability suddenly find themselves trapped in this doom spiral?`\
-https://nytimes.com/athletic/6091499/2025/01/28/tottenham-big-six-bottom-six-levy/
 
