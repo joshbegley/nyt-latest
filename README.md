@@ -1,3 +1,11 @@
+**Pistons' lack of a secondary creator next to Cade Cunningham is a glaring problem**\
+`On a night in Cleveland when Cunningham struggled with his shot, Detroit lacked other answers. Can it find one before the trade deadline?`\
+https://nytimes.com/athletic/6093647/2025/01/28/pistons-cade-cunningham-jaden-ivey-cavaliers-loss/
+
+**Penguins Today: Injury, ownership and lottery odds — oh my!**\
+`It's been quite a week, and it's only Tuesday. Let's process it all together.`\
+https://nytimes.com/athletic/6094309/2025/01/28/penguins-today-fsg-ownership-malkin-injury/
+
 **Senator Gary Peters, Michigan Democrat, Says He Won’t Run Again in 2026**\
 `His decision makes the already tough Senate map for Democrats even tougher: They will need to defend an open seat in a battleground state that President Trump carried in 2024.`\
 https://nytimes.com/2025/01/28/us/politics/gary-peters-michigan-senate-2026.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/nyregion/nyc-life-expectancy-health-department.ht
 **A Soothing Array of Spring Colors**\
 `Wearing shades of lavender, blue, orange and green, a couple brought to mind the palette of a spring day.`\
 https://nytimes.com/2025/01/28/style/street-style-look-spring-colors.html
-
-**Bayer Leverkusen's Boniface excused from training as potential Saudi move nears**\
-`Bayer Leverkusen striker Victor Boniface has been excused from training as a potential move to Saudi Pro League side Al Nassr nears.`\
-https://nytimes.com/athletic/6094119/2025/01/28/bayer-leverkusen-boniface-transfer-saudi/
-
-**College hoops midseason catch-up: The contenders and bubble teams you need to know**\
-`When trying to predict future NCAA Tournament success, particularly the national champion, we turn to history and numbers for guidance.`\
-https://nytimes.com/athletic/6086579/2025/01/28/college-basketball-national-championship-favorites-sleepers/
 
