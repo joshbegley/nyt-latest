@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2025/01/27/us/politics/bessent-senate-confirmati
 https://nytimes.com/athletic/6093260/2025/01/27/fenway-sports-group-looking-to-expand-penguins-ownership-group-sources/
 
 **Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
-`The president and the writer E. Jean Carroll, whom he sexually abused, are fighting over whether he has to pay the $83 million he owes for defaming her.`\
+`The president, who was found liable for sexually abusing the writer E. Jean Carroll, is contending that he doesn’t have to pay the $83 million he owes for defaming her.`\
 https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
 
 **Nigerian Man Is Extradited in Sextortion Case After Teen’s Suicide**\
