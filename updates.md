@@ -1,3 +1,11 @@
+**Trudeau Government Left Canada Vulnerable to Foreign Interference, Report Finds**\
+`Prime Minister Justin Trudeau should have acted quicker to protect Canadian elections from outside meddling, a government commission said, shaking trust in democratic institutions.`\
+https://nytimes.com/2025/01/28/world/canada/canada-elections-foreign-interference-inquiry.html
+
+**California Historical Society to Dissolve and Transfer Collections to Stanford**\
+`The society faced financial challenges that were exacerbated by the coronavirus pandemic. Its nearly 600,000 items stretch back before the Gold Rush.`\
+https://nytimes.com/2025/01/28/arts/california-historical-society-stanford.html
+
 **Reform U.K. is Said to Land Over $1 Million in Populist Show of Force**\
 `Nigel Farage’s party is reshaping British conservatism and showing that it can raise money to do so.`\
 https://nytimes.com/2025/01/28/world/europe/reform-uk-nigel-farage.html
