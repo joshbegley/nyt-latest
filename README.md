@@ -1,3 +1,7 @@
+**Russian Envoys Arrive in Syria for First Time Since al-Assad Fell**\
+`Russia’s deputy foreign minister and a special presidential envoy for Syria arrived in Damascus on Tuesday, according to Russian state news.`\
+https://nytimes.com/2025/01/28/world/europe/russia-syria.html
+
 **Weekly Student News Quiz: President Trump, TikTok, College Football Champion**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/01/28/learning/28StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-
 **Clippers trade tiers: What to watch with LA before the Feb. 6 deadline**\
 `Who could be moved before the NBA trade deadline for the Clippers? And for what deal? Here are some trade tiers.`\
 https://nytimes.com/athletic/6093053/2025/01/28/clippers-nba-trade-deadline-tiers/
-
-**The pitfalls and privileges of your child joining a Premier League academy**\
-`How do you handle the pressure and expectation? That is among the questions discussed at a workshop for parents of academy players`\
-https://nytimes.com/athletic/6093881/2025/01/28/arsenal-premier-league-academy-fan-club/
 
