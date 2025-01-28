@@ -1,3 +1,15 @@
+**Trump Orders an ‘Iron Dome’-Style Defense System. Experts Are Skeptical.**\
+`An executive order said the United States faced a “catastrophic threat” from advanced aerial weapons. But a defense system like Israel’s may not be feasible in the country, which is more than 400 times larger.`\
+https://nytimes.com/2025/01/28/us/politics/trump-iron-dome-defense-system-feasibility.html
+
+**Wild's Kirill Kaprizov misses practice, could be headed for surgery: Sources**\
+`If Kaprizov has surgery this week for a lower-body injury that has been ailing him since December, he would miss six weeks, per sources.`\
+https://nytimes.com/athletic/6094482/2025/01/28/kirill-kaprizov-injury-surgery/
+
+**States Will Sue to Block Trump’s Freeze on Federal Grants**\
+`A coalition of states, including New York, California, Illinois, New Jersey, Rhode Island and Massachusetts, are expected to file the challenge later on Tuesday in the Southern District of New York.`\
+https://nytimes.com/2025/01/28/us/politics/state-lawsuits-trump-federal-grants-pause.html
+
 **Three Weeks Later, Still Trying to Make Sense of It All**\
 `Ryan Mac, who covers the tech industry and lives in Los Angeles, writes about suddenly becoming a fire reporter.`\
 https://nytimes.com/2025/01/28/us/wildfires-three-weeks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/28/climate/the-climate-migration-question-rebuild-or
 **Mona Lisa Will Move to Her Own Room at the Louvre**\
 `President Emanuel Macron announced sweeping plans to renovate the Paris museum and alleviate overcrowding.`\
 https://nytimes.com/2025/01/28/arts/design/mona-lisa-louvre-macron.html
-
-**The $8 Billion Children’s Vaccine Fund Kennedy Would Oversee**\
-`If confirmed by the Senate to be the nation’s health secretary, Robert F. Kennedy Jr. would have vast powers over immunization policies for children and adults.`\
-https://nytimes.com/2025/01/28/health/robert-f-kennedy-jr-children-vaccines-senate-confirmation.html
-
-**Should Man Utd and Chelsea push to do deals for Nkunku and Garnacho?**\
-`There are strong reasons why the deals look tempting on paper, with both players potentially better tactical fits under the other coach`\
-https://nytimes.com/athletic/6094150/2025/01/28/manchester-united-chelsea-nkunku-garnacho/
-
-**I Crave This Chile Crisp Tofu**\
-`A dinner you can make with astonishing ease, as I do often.`\
-https://nytimes.com/2025/01/28/dining/i-crave-this-chile-crisp-tofu.html
 
