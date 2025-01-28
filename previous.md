@@ -1,3 +1,7 @@
+**Clippers trade tiers: What to watch with LA before the Feb. 6 deadline**\
+`Who could be moved before the NBA trade deadline for the Clippers? And for what deal? Here are some trade tiers.`\
+https://nytimes.com/athletic/6093053/2025/01/28/clippers-nba-trade-deadline-tiers/
+
 **The pitfalls and privileges of your child joining a Premier League academy**\
 `How do you handle the pressure and expectation? That is among the questions discussed at a workshop for parents of academy players`\
 https://nytimes.com/athletic/6093881/2025/01/28/arsenal-premier-league-academy-fan-club/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091156/2025/01/28/bayern-neuer-urbig-nubel/
 **Wild insider: Bettman pushes for public funding of Xcel Energy Center renovations**\
 `Bettman on Xcel: “This building is what, 25 years old now? It was designed very well for hockey, but it's no longer state-of-the-art."`\
 https://nytimes.com/athletic/6089814/2025/01/28/wild-bettman-xcel-energy-center-renovations-funding/
-
-**Champions League matchday eight: Who can qualify automatically? Who needs a play-off? Who are out?**\
-`How the competition's inaugural league phase is likely to finish up, with all 36 clubs in action tomorrow`\
-https://nytimes.com/athletic/6090997/2025/01/28/champions-league-matchday-eight-who-can-qualify-automatically-who-needs-a-playoff-whos-out/
 

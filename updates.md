@@ -1,3 +1,7 @@
+**Clippers trade tiers: What to watch with LA before the Feb. 6 deadline**\
+`Who could be moved before the NBA trade deadline for the Clippers? And for what deal? Here are some trade tiers.`\
+https://nytimes.com/athletic/6093053/2025/01/28/clippers-nba-trade-deadline-tiers/
+
 **The pitfalls and privileges of your child joining a Premier League academy**\
 `How do you handle the pressure and expectation? That is among the questions discussed at a workshop for parents of academy players`\
 https://nytimes.com/athletic/6093881/2025/01/28/arsenal-premier-league-academy-fan-club/
