@@ -1,3 +1,11 @@
+**What Is M23, the Rwandan-Backed Group Fighting in Eastern Congo?**\
+`The militia seized the pivotal city of Goma, threatening a new humanitarian crisis in a region that has suffered decades of fighting.`\
+https://nytimes.com/2025/01/28/world/africa/congo-m23-rwanda.html
+
+**The Bulls and the NBA trade deadline: 6 names to watch as Chicago looks for answers**\
+`Here’s a look at the six Bulls who have the most trade value and why their individual circumstances warrant trades.`\
+https://nytimes.com/athletic/6093831/2025/01/28/bulls-nba-trade-deadline-lonzo-lavine/
+
 **Balde 'surprised' by alleged racist abuse at Getafe: 'Their captain is black'**\
 `Alejandro Balde says he was unaffected by an incident that allegedly saw the Barcelona defender racially abused from the stands during a recent La Liga match against Getafe.`\
 https://nytimes.com/athletic/6094114/2025/01/28/alejandro-balde-barcelona-racism-la-liga/
