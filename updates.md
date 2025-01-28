@@ -1,3 +1,7 @@
+**Jake, Logan Paul tease head-to-head match slated for March 27 on Max**\
+`There is skepticism surrounding the announcement given that there is no explicit mention of a fight in the brothers' social media posts.`\
+https://nytimes.com/athletic/6095067/2025/01/28/jake-paul-logan-fight-brother/
+
 **Trudeau Government Left Canada Vulnerable to Foreign Interference, Report Finds**\
 `Prime Minister Justin Trudeau should have acted quicker to protect Canadian elections from outside meddling, a government commission said, shaking trust in democratic institutions.`\
 https://nytimes.com/2025/01/28/world/canada/canada-elections-foreign-interference-inquiry.html

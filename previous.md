@@ -1,3 +1,7 @@
+**Jake, Logan Paul tease head-to-head match slated for March 27 on Max**\
+`There is skepticism surrounding the announcement given that there is no explicit mention of a fight in the brothers' social media posts.`\
+https://nytimes.com/athletic/6095067/2025/01/28/jake-paul-logan-fight-brother/
+
 **Trudeau Government Left Canada Vulnerable to Foreign Interference, Report Finds**\
 `Prime Minister Justin Trudeau should have acted quicker to protect Canadian elections from outside meddling, a government commission said, shaking trust in democratic institutions.`\
 https://nytimes.com/2025/01/28/world/canada/canada-elections-foreign-interference-inquiry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/style/selena-gomez-instagram-undocumented-workers
 **F.D.A. Approves Ozempic to Treat Kidney Disease**\
 `The decision will further broaden the use of the blockbuster drug.`\
 https://nytimes.com/2025/01/28/well/ozempic-kidney-disease.html
-
-**Mauricio Funes, Salvadoran President Who Fled to Nicaragua, Dies at 65**\
-`He was a popular TV journalist when elected as El Salvador’s first modern-day leftist leader in 2009, but he went into exile hounded by corruption charges.`\
-https://nytimes.com/2025/01/28/world/americas/mauricio-funes-dead.html
 
