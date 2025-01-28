@@ -1,3 +1,7 @@
+**Japanese TV Executives Get 10-Hour Grilling Over Sex Abuse Case**\
+`Public mea culpas are a corporate ritual in Japan. For Fuji TV, the resignations and public apologies of two bosses didn’t assuage public anger.`\
+https://nytimes.com/2025/01/28/world/asia/japan-tv-executives-sex-abuse.html
+
 **New Yorkers’ Life Expectancy Has Dipped. Officials Want to Change That.**\
 `The city laid out a series of proposals to reduce cancer deaths by 20 percent, and deaths from heart- and diabetes-related ailments by 5 percent, over the next five years.`\
 https://nytimes.com/2025/01/28/nyregion/nyc-life-expectancy-health-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/business/dealbook/deepseek-winners-losers-nvidia-
 **Chevron Joins Race to Generate Power for A.I.**\
 `The oil company plans to build natural gas power plants that will be directly connected to data centers used by technology companies for artificial intelligence and other services.`\
 https://nytimes.com/2025/01/28/business/energy-environment/chevron-power-plant-ai.html
-
-**Denmark Announces More Spending on Security Around Greenland**\
-`The country said that it would bolster measures near its North Atlantic territories, which also include the Faroe Islands, promising to buy ships and increase basic military training.`\
-https://nytimes.com/2025/01/28/world/europe/greenland-trump-denmark-security.html
 
