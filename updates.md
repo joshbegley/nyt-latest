@@ -1,3 +1,7 @@
+**Smithsonian Closes Diversity Office After Trump’s Executive Order**\
+`The museum’s move followed a similar one last week by the National Gallery, as museums try to comply with an executive order that called diversity programs “illegal and immoral.”`\
+https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.html
+
 **Senate Confirms Sean Duffy as Transportation Secretary**\
 `Mr. Duffy, a former congressman who had appeared on track to sail through with little opposition, overcame a last-minute swell of Democratic anger over the White House’s sweeping funding freeze.`\
 https://nytimes.com/2025/01/28/us/politics/sean-duffy-trump-transportation-secretary.html
