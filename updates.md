@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and the January window**\
+`Welcome to the fourth January edition of The Transfer DealSheet — our team of dedicated writers will take you inside the market`\
+https://nytimes.com/athletic/6091003/2025/01/28/transfer-news-latest-man-utd-arsenal-liverpool-real-madrid/
+
 **Leeds' Burnley bore draw will do little to quell calls for a January splurge**\
 `Leeds have been burned badly before but their stalemate with Burnley will only empower any voices calling for January reinforcements`\
 https://nytimes.com/athletic/6093197/2025/01/28/leeds-united-burnley-january-transfer-window/
