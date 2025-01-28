@@ -1,3 +1,7 @@
+**Rodgers: Tierney has 'definitely' agreed to rejoin Celtic this summer**\
+`Celtic manager Brendan Rodgers says Arsenal left-back Kieran Tierney has “definitely” agreed to rejoin the Scottish club this summer.`\
+https://nytimes.com/athletic/6095006/2025/01/28/kieran-tierney-celtic-transfer-arsenal/
+
 **Chiefs-Bills smashes TV ratings, averages 57.7 million viewers**\
 `Sunday's clash ranks as the most-watched AFC Championship Game as fans tuned in to see the Chiefs beat the Bills.`\
 https://nytimes.com/athletic/6094872/2025/01/28/bills-chiefs-tv-ratings-afc-championship-cbs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/trump-federal-grants-loans-power.html
 **Elon Musk’s X Partners With Visa to Provide Financial Services**\
 `The social media company said it would start a peer-to-peer payments service, moving to expand the app’s abilities.`\
 https://nytimes.com/2025/01/28/technology/x-visa-financial-services.html
-
-**'No doubt' Ancelotti will remain at Madrid if they win a major trophy**\
-`Carlo Ancelotti says there is &#8220;no doubt&#8221; he will continue with Real Madrid if they win the Champions League or La Liga.`\
-https://nytimes.com/athletic/6094879/2025/01/28/carlo-ancelotti-real-madrid-latest/
 
