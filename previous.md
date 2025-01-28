@@ -1,3 +1,19 @@
+**Blues place Brandon Saad on waivers, looking to 'open up some space for different players'**\
+`Saad has one year left at a $4.5 million cap hit and possesses a no-trade clause.`\
+https://nytimes.com/athletic/6095065/2025/01/28/blues-brandon-saad-waivers/
+
+**Hundreds of Protesters Attack Foreign Embassies in Congo**\
+`Protesters set fires and looted foreign embassies in the Democratic Republic of Congo’s capital, Kinshasa, amid anger at foreign allies over what many see as failure to stop an assault by M23, a Rwanda-backed militia group, on the city of Goma.`\
+https://nytimes.com/video/world/africa/100000009953680/congo-protests-embassies.html
+
+**Jose Altuve could split time between second base and left field in 2025**\
+`Altuve, who stands 5-foot-6, has never played the outfield at any point over his more than 15,000 defensive innings.`\
+https://nytimes.com/athletic/6094941/2025/01/28/jose-altuve-2025-position-change/
+
+**Cutting Medicaid, Taxing Scholarships and Killing Invasive Plants: A Guide to the G.O.P. Wishlist**\
+`208 policies that could become part of the congressional agenda this year.`\
+https://nytimes.com/interactive/2025/01/28/upshot/2025-republican-policy-proposals.html
+
 **Rodgers: Tierney has 'definitely' agreed to rejoin Celtic this summer**\
 `Celtic manager Brendan Rodgers says Arsenal left-back Kieran Tierney has “definitely” agreed to rejoin the Scottish club this summer.`\
 https://nytimes.com/athletic/6095006/2025/01/28/kieran-tierney-celtic-transfer-arsenal/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6095002/2025/01/28/wild-kirill-kaprizov-surgery-low
 **Astros GM Dana Brown details "fracture" in relationship with Ryan Pressly**\
 `Pressly never aired any grievances publicly and continued to serve as a model teammate throughout his uneven 2024 season. `\
 https://nytimes.com/athletic/6094928/2025/01/28/astros-gm-dana-brown-ryan-pressly-relationship/
-
-**Cowboys hire Matt Eberflus as defensive coordinator**\
-`Eberflus spent the last three years as the head coach of the Chicago Bears.`\
-https://nytimes.com/athletic/6087515/2025/01/28/cowboys-matt-eberflus-defensive-coordinator/
-
-**Kennedy, in His Own Words: Flu, Diabetes, Autism and More**\
-`Robert F. Kennedy Jr., President Trump’s nominee for health secretary, doesn’t just hold fringe views on vaccines. We fact-checked five recent statements.`\
-https://nytimes.com/2025/01/28/health/rfk-jr-vaccines-autism-video.html
-
-**Does Trump Have the Power to Block Spending That Congress Has Authorized?**\
-`The White House’s temporary pause on trillions in federal spending could set up a court fight over executive authority and Congress’s control of the purse.`\
-https://nytimes.com/2025/01/28/us/politics/trump-federal-grants-loans-power.html
-
-**Elon Musk’s X Partners With Visa to Provide Financial Services**\
-`The social media company said it would start a peer-to-peer payments service, moving to expand the app’s abilities.`\
-https://nytimes.com/2025/01/28/technology/x-visa-financial-services.html
 

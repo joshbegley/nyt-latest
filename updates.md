@@ -1,3 +1,19 @@
+**Blues place Brandon Saad on waivers, looking to 'open up some space for different players'**\
+`Saad has one year left at a $4.5 million cap hit and possesses a no-trade clause.`\
+https://nytimes.com/athletic/6095065/2025/01/28/blues-brandon-saad-waivers/
+
+**Hundreds of Protesters Attack Foreign Embassies in Congo**\
+`Protesters set fires and looted foreign embassies in the Democratic Republic of Congo’s capital, Kinshasa, amid anger at foreign allies over what many see as failure to stop an assault by M23, a Rwanda-backed militia group, on the city of Goma.`\
+https://nytimes.com/video/world/africa/100000009953680/congo-protests-embassies.html
+
+**Jose Altuve could split time between second base and left field in 2025**\
+`Altuve, who stands 5-foot-6, has never played the outfield at any point over his more than 15,000 defensive innings.`\
+https://nytimes.com/athletic/6094941/2025/01/28/jose-altuve-2025-position-change/
+
+**Cutting Medicaid, Taxing Scholarships and Killing Invasive Plants: A Guide to the G.O.P. Wishlist**\
+`208 policies that could become part of the congressional agenda this year.`\
+https://nytimes.com/interactive/2025/01/28/upshot/2025-republican-policy-proposals.html
+
 **Rodgers: Tierney has 'definitely' agreed to rejoin Celtic this summer**\
 `Celtic manager Brendan Rodgers says Arsenal left-back Kieran Tierney has “definitely” agreed to rejoin the Scottish club this summer.`\
 https://nytimes.com/athletic/6095006/2025/01/28/kieran-tierney-celtic-transfer-arsenal/
