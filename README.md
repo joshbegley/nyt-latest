@@ -1,3 +1,7 @@
+**Vecenie: 5 deals I'd love to see this NBA trade season**\
+`Cameron Johnson to the Spurs? A three-center swap? Could these moves actually happen?`\
+https://nytimes.com/athletic/6082331/2025/01/28/nba-trade-rumors-pistons-bulls-lonzo-ball/
+
 **Jon Stewart Can’t Keep Up With the Purges**\
 `As many as 17 inspectors general were fired by President Trump. “That only leaves — no one knows how many left,” Stewart said. “I have no idea.”`\
 https://nytimes.com/2025/01/28/arts/television/jon-stewart-trump-firings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091003/2025/01/28/transfer-news-latest-man-utd-ars
 **Leeds' Burnley bore draw will do little to quell calls for a January splurge**\
 `Leeds have been burned badly before but their stalemate with Burnley will only empower any voices calling for January reinforcements`\
 https://nytimes.com/athletic/6093197/2025/01/28/leeds-united-burnley-january-transfer-window/
-
-**India and China Agree to Resume Direct Flights After Nearly Five Years**\
-`It was the latest thaw in relations between the two countries, whose troops were involved in deadly skirmishes high in the Himalayas in 2020.`\
-https://nytimes.com/2025/01/28/world/asia/india-china-direct-flights.html
 
