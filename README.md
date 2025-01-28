@@ -1,3 +1,7 @@
+**Kings listening to trade offers for De'Aaron Fox: Source**\
+`Fox is known to have a preferred trade destination that his associates are not yet revealing.`\
+https://nytimes.com/athletic/6095410/2025/01/28/deaaron-fox-kings-trade-open-nba/
+
 **Nonprofits in New York Are Told Their Contracts ‘Have Been Paused’**\
 `New York leaders were trying to determine how the state will be affected by a Trump administration order to freeze trillions of dollars in federal grants and loans.`\
 https://nytimes.com/2025/01/28/us/politics/nyc-nonprofit-contracts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092340/2025/01/28/super-bowl-59-mvp-odds-patrick-m
 **Wednesday Briefing: Trump’s Funding Freeze**\
 `Plus, renovations at the Louvre.`\
 https://nytimes.com/2025/01/28/briefing/trump-funding-freeze-israel-hostages-congo-protests.html
-
-**What It Would Take to Build Trump’s Iron Dome Over America**\
-`It’s cheaper, quicker and easier to build missiles and offensive systems than it is to intricately engineer the shield to defeat them.`\
-https://nytimes.com/live/2025/01/27/opinion/thepoint/iron-dome-america-missile-defense
 
