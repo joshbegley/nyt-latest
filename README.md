@@ -1,3 +1,7 @@
+**Air Busan Plane Catches Fire at South Korean Airport**\
+`The fire broke out on the aircraft’s tail, fire officials said. All 169 passengers and seven crew members were evacuated.`\
+https://nytimes.com/2025/01/28/world/asia/busan-plane-fire-south-korea.html
+
 **Chris Finch fumes after Wolves' unimpressive win: 'We won and got cussed out. That’s cool'**\
 `Finch sees more in his team and he's demanding that they start showing it.`\
 https://nytimes.com/athletic/6093336/2025/01/28/chris-finch-fumes-timberwolves-unimpressive/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/world/africa/congo-protesters-embassies-rebels-rw
 **Russian Envoys Arrive in Syria for First Time Since al-Assad Fell**\
 `Russia’s deputy foreign minister and a special presidential envoy for Syria arrived in Damascus on Tuesday, according to Russian state news.`\
 https://nytimes.com/2025/01/28/world/europe/russia-syria.html
-
-**Weekly Student News Quiz: President Trump, TikTok, College Football Champion**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/01/28/learning/28StudentNewsQuiz.html
 
