@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and the January window**\
+`Welcome to the fourth January edition of The Transfer DealSheet — our team of dedicated writers will take you inside the market`\
+https://nytimes.com/athletic/6091003/2025/01/28/transfer-news-latest-man-utd-arsenal-liverpool-real-madrid/
+
 **Leeds' Burnley bore draw will do little to quell calls for a January splurge**\
 `Leeds have been burned badly before but their stalemate with Burnley will only empower any voices calling for January reinforcements`\
 https://nytimes.com/athletic/6093197/2025/01/28/leeds-united-burnley-january-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/trump-military-transgender-dei-orders
 **Elon Musk’s Bizarre, Frightening Obsession With Britain**\
 `The billionaire’s interest goes beyond trolling.`\
 https://nytimes.com/2025/01/28/opinion/elon-musk-britain-trump.html
-
-**Why China Loves Trump’s Right-Wing Wokeism**\
-`The president’s energy policies may not make America great again, but they will definitely help make China great again.`\
-https://nytimes.com/2025/01/28/opinion/deepseek-ai-trump.html
 
