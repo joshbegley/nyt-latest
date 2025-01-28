@@ -1,3 +1,15 @@
+**Senate Democrats are outraged at Trump’s federal funding pause.**\
+`Senator Patty Murray of Washington called on Republicans to halt the nomination of Russell Vought, Trump’s pick to lead the Office of Management and Budget.`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/senate-democrats-are-outraged-at-trumps-federal-funding-pause
+
+**Rwanda, the West’s ‘Donor Darling,’ Seizes an Opportunity in Congo**\
+`A conflict that has raged for decades reached a flashpoint this week when rebels backed by Rwanda marched on a key Congolese city in a bid to occupy territory and exploit minerals.`\
+https://nytimes.com/2025/01/28/world/africa/rwanda-congo-goma-conflict.html
+
+**Van Dijk, Salah, among key players rested for Liverpool's trip to PSV**\
+`Liverpool are travelling to PSV Eindhoven without the bulk of their first-team squad after deciding to rest a number of big-hitters.`\
+https://nytimes.com/athletic/6094672/2025/01/28/liverpool-team-news-psv-champions-league/
+
 **66 Million-Year-Old Fossilized Vomit Is Found in Denmark**\
 `In the Cretaceous period, a shark or another kind of fish found sea lilies less than digestible. What you might expect followed.`\
 https://nytimes.com/2025/01/28/science/vomit-fossil-denmark.html

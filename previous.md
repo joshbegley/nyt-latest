@@ -1,3 +1,15 @@
+**Senate Democrats are outraged at Trump’s federal funding pause.**\
+`Senator Patty Murray of Washington called on Republicans to halt the nomination of Russell Vought, Trump’s pick to lead the Office of Management and Budget.`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/senate-democrats-are-outraged-at-trumps-federal-funding-pause
+
+**Rwanda, the West’s ‘Donor Darling,’ Seizes an Opportunity in Congo**\
+`A conflict that has raged for decades reached a flashpoint this week when rebels backed by Rwanda marched on a key Congolese city in a bid to occupy territory and exploit minerals.`\
+https://nytimes.com/2025/01/28/world/africa/rwanda-congo-goma-conflict.html
+
+**Van Dijk, Salah, among key players rested for Liverpool's trip to PSV**\
+`Liverpool are travelling to PSV Eindhoven without the bulk of their first-team squad after deciding to rest a number of big-hitters.`\
+https://nytimes.com/athletic/6094672/2025/01/28/liverpool-team-news-psv-champions-league/
+
 **Precious Gems in the West Village**\
 `The chef Jiho Kim opens a jewel box restaurant near the Hudson, a heart-shaped Valentine from Lysée and more restaurant news.`\
 https://nytimes.com/2025/01/28/dining/nyc-restaurant-news.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6087420/2025/01/28/paul-skenes-gunnar-henderson-ell
 **Andre Iguodala will get first jersey retirement from Warriors dynasty: 'I'm just the oldest'**\
 `The franchise will retire Iguodala's No. 9 jersey on Feb. 23 after an afternoon game against the Mavericks.`\
 https://nytimes.com/athletic/6044885/2025/01/28/andre-iguodala-jersey-retired-warriors/
-
-**Scoop City: Three ways referees can award points, plus Chiefs controversy**\
-`Inside: We circle back to weird goal-line drama from the NFC Championship, your thoughts on the Chiefs&#8217; controversial calls and the Jaguars&#8217; coaching hire.`\
-https://nytimes.com/athletic/6094559/2025/01/28/how-nfl-referees-award-points-eagles-commanders-scoop-city/
-
-**Serbian Leader, Trying to Quell Protests, Jettisons a Key Ally**\
-`Demonstrations around Serbia pose a challenge to the decade-long hold on power by President Aleksandar Vucic, who spurred his prime minister to step down.`\
-https://nytimes.com/2025/01/28/world/europe/serbia-vucic-prime-minister-resigns.html
-
-**Spectator killed by errant hammer throw at Colorado youth track meet**\
-`Event organizers said a hammer thrown by a high school athlete cleared certified barriers and hit a man watching the event.`\
-https://nytimes.com/athletic/6094415/2025/01/28/hammer-throw-spectator-killed-track-colorado/
 
