@@ -1,3 +1,15 @@
+**Mauricio Funes, Salvadoran President Who Fled to Nicaragua, Dies at 65**\
+`He was a popular TV journalist when elected as El Salvador’s first modern-day leftist leader in 2009, but he went into exile hounded by corruption charges.`\
+https://nytimes.com/2025/01/28/world/americas/mauricio-funes-dead.html
+
+**Slot says he is making 'choice for the long-term' in resting Liverpool regulars**\
+`Arne Slot says he is protecting his squad for the key months ahead as tomorrow’s Champions League game with PSV Eindhoven has “no importance to the league table”.`\
+https://nytimes.com/athletic/6095123/2025/01/28/arne-slot-champions-league-liverpool-psv/
+
+**Amazon eyeing Cassidy Hubbarth for NBA sideline reporter role**\
+`Hubbarth moves to the top position with Prime Video where she will join play-by-play caller Ian Eagle on its lead crew.`\
+https://nytimes.com/athletic/6094783/2025/01/28/nba-amazon-prime-cassidy-hubbarth-leaving-espn/
+
 **Blues place Brandon Saad on waivers, looking to 'open up some space for different players'**\
 `Saad has one year left at a $4.5 million cap hit and possesses a no-trade clause.`\
 https://nytimes.com/athletic/6095065/2025/01/28/blues-brandon-saad-waivers/
