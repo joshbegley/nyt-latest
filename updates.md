@@ -1,3 +1,7 @@
+**Protesters Attack Embassies in Congo Amid Fury Over Rebel Violence**\
+`Many blame the United States, France and other allies for allowing neighboring Rwanda to fuel a conflict in the country’s east.`\
+https://nytimes.com/2025/01/28/world/africa/congo-protesters-embassies-rebels-rwanda.html
+
 **Russian Envoys Arrive in Syria for First Time Since al-Assad Fell**\
 `Russia’s deputy foreign minister and a special presidential envoy for Syria arrived in Damascus on Tuesday, according to Russian state news.`\
 https://nytimes.com/2025/01/28/world/europe/russia-syria.html
