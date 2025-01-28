@@ -1,3 +1,11 @@
+**How Google Maps Plans to Handle the ‘Gulf of America’**\
+`Google said it would follow the Trump administration in renaming the Gulf of Mexico once the new name is updated in government sources.`\
+https://nytimes.com/2025/01/27/technology/google-maps-gulf-of-america-trump.html
+
+**Trump’s Careful Abortion Calculus**\
+`His opening moves on abortion weren’t exactly “shock and awe.” Democrats see an opening.`\
+https://nytimes.com/2025/01/27/us/politics/trump-abortion-calculus.html
+
 **Full Time: Another USWNT defender going abroad**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6093285/2025/01/27/nwsl-uswnt-nighswonger-arsenal-full-time/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6093001/2025/01/27/aaron-glenn-new-york-jets-introd
 **Neymar leaves Al Hilal after mutually agreeing to terminate contract**\
 `Neymar has left Saudi Pro League side Al Hilal after agreeing to a mutual termination of his contract.`\
 https://nytimes.com/athletic/6093149/2025/01/27/neymar-leave-al-hilal-contract-terminate/
-
-**It's Brian Schottenheimer's show: New Cowboys coach takes over offense, will call plays**\
-`The Cowboys will hire an offensive coordinator, but like Mike McCarthy before him, Brian Schottenheimer will call the offense.`\
-https://nytimes.com/athletic/6093027/2025/01/27/cowboys-brian-schottenheimer-offense-play-caller/
-
-**What to know 500 days from World Cup: USMNT, security, tickets, Trump**\
-`Some essential information as the soccer tournament approaches`\
-https://nytimes.com/athletic/6092535/2025/01/27/500-days-world-cup-usmnt-tickets-trump/
 
