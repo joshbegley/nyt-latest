@@ -1,40 +1,40 @@
-**Chastened by Past Wars, Kremlin Tries to Elevate Its Veterans**\
-`Russians who fought in Chechnya and Afghanistan came home to silence and stigma. There’s a very public push to make things different this time.`\
-https://nytimes.com/2025/01/28/world/europe/russia-ukraine-veterans.html
+**How Cowboys came to decision that Brian Schottenheimer was best coach for them**\
+`Schottenheimer's skill set, energy and understanding of the Cowboys' current situation helped Jerry Jones make his decision.`\
+https://nytimes.com/athletic/6093767/2025/01/28/cowboys-brian-schottenheimer-decision-jerry-jones/
 
-**Live Q&A with Keith Law about his top 100 MLB prospects list at 1 pm ET**\
-`Law will discuss his new top-100 list, as well as MLB prospects and news.`\
-https://nytimes.com/athletic/6089277/2025/01/28/mlb-prospects-live-chat-keith-law/
+**Analyzing the East's Stanley Cup contenders: Signature strengths and fatal flaws**\
+`The East has six teams with a chance to win the Stanley Cup north of 2.5 percent. These are each team’s signature strengths and fatal flaws.`\
+https://nytimes.com/athletic/6092230/2025/01/28/nhl-eastern-conference-stanley-cup-signature-strengths-fatal-flaws/
 
-**What are USC's biggest roster needs as the Chad Bowden era begins?**\
-`USC finally ended its search for a general manager. Now the work begins. `\
-https://nytimes.com/athletic/6092318/2025/01/28/usc-chad-bowden-gm-roster/
+**Sabres mailbag: Should Buffalo make a run at Canucks' Elias Pettersson?**\
+`The Sabres have the assets to entice Vancouver into a trade. The bigger question is what, exactly, Buffalo might have to give up.`\
+https://nytimes.com/athletic/6093542/2025/01/28/buffalo-sabres-mailbag-elias-pettersson-pegula/
 
-**Jeff Ulbrich is back with the Falcons, vowing to build something different on defense**\
-`Forget 4-3 or 3-4. The Falcons' new defensive coordinator envisions “something that’s maybe never been done before scheme-wise.”`\
-https://nytimes.com/athletic/6092088/2025/01/28/falcons-jeff-ulbrich-defensive-coordinator/
+**Rutherford: If Blues are lacking energy at this critical point, it's time to write them off**\
+`With their season on the line, the Blues are 1-4 in their last five games, and no one seems to have the solution.`\
+https://nytimes.com/athletic/6093444/2025/01/28/rutherford-blues-lacking-energy-critical-point/
 
-**What we know so far about Mike Vrabel's coaching staff with the Patriots**\
-`Vrabel has a mix of experience and youth on his Patriots coaching staff, including Doug Marrone, Thomas Brown and Ashton Grant on offense.`\
-https://nytimes.com/athletic/6092307/2025/01/28/mike-vrabel-patriots-coaching-staff-josh-mcdaniels-doug-marrone/
+**Why Senators fans are cynical about the team's Quebec City plans**\
+`Ottawa owner Michael Andlauer expressed interest in the Senators playing regular season games in Quebec City.`\
+https://nytimes.com/athletic/6093089/2025/01/28/ottawa-senators-quebec-city-andlauer/
 
-**The Future of A.I. May Not Be as Revolutionary as We Thought**\
-`Nvidia’s sharp turn of fortunes illustrates much deeper problems that investors are ignoring as they send the valuations of Big Tech to the heavens.`\
-https://nytimes.com/2025/01/28/opinion/nvidia-deepseek-ai-valuation-ouroboros.html
+**What I'm Hearing: Canada's men's national team 500 days from World Cup**\
+`A pivotal year approaches for Jesse Marsch and Canada, with the CONCACAF Nations League Finals fast approaching`\
+https://nytimes.com/athletic/6092438/2025/01/28/canada-marsch-world-cup-2026/
 
-**Johnson Joins the Trump Entourage, Shrinking the Role of House Speaker**\
-`In positioning himself as a junior partner to the president and doing his bidding on matters large and small, the Louisiana Republican is diminishing a job that involves leading a coequal branch of government.`\
-https://nytimes.com/2025/01/28/us/politics/mike-johnson-trump-entourage.html
+**Analyzing the West's Stanley Cup contenders: Signature strengths and fatal flaws**\
+`The West has six teams with a chance to win the Stanley Cup north of 2.5 percent. These are each team’s signature strengths and fatal flaws.`\
+https://nytimes.com/athletic/6092161/2025/01/28/nhl-western-conference-stanley-cup-signature-strengths-fatal-flaws/
 
-**Why DeepSeek Could Change What Silicon Valley Believes About A.I.**\
-`A new A.I. model, released by a scrappy Chinese upstart, has rocked Silicon Valley and upended several fundamental assumptions about A.I. progress.`\
-https://nytimes.com/2025/01/28/technology/why-deepseek-could-change-what-silicon-valley-believes-about-ai.html
+**Pittsburgh-born hockey broadcaster makes NHL debut calling Penguins vs. Ducks**\
+`Aaron Cooney got the call up from the AHL to fill in for an sick Anaheim Ducks broadcaster.`\
+https://nytimes.com/athletic/6092432/2025/01/28/aaron-cooney-ducks-penguins/
 
-**Could Trump Use the ‘God Squad’ to Override Environmental Law?**\
-`The president wants to convene the rarely used panel, which has the power to carve out exemptions to the Endangered Species Act. Here’s what to know.`\
-https://nytimes.com/2025/01/28/climate/trump-endangered-species-god-squad.html
+**Trump’s Freezing Spree, and an ‘Invisible Threat’ in L.A.**\
+`Plus, a little-known start-up shocks the A.I. giants.`\
+https://nytimes.com/2025/01/28/podcasts/trump-la-fires-deepseek-ai.html
 
-**A Charlie Chaplin Movie Like You’ve Never Seen It Before**\
-`The Museum of Modern Art has worked on a meticulous restoration of Chaplin’s 1918 film “Shoulder Arms,” screening on Thursday, that likely differs in every frame from what viewers have seen.`\
-https://nytimes.com/2025/01/28/movies/charlie-chaplin-movie-restoration-shoulder-arms.html
+**The Legal Battle Riveting Hollywood**\
+`Blake Lively and Justin Baldoni are locked in a dispute over what happened as they made and promoted “It Ends with Us.”`\
+https://nytimes.com/2025/01/28/podcasts/the-daily/blake-lively-justin-baldoni-it-ends-with-us.html
 
