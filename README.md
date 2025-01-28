@@ -1,3 +1,15 @@
+**11 Teacher-Approved Strategies to Engage Students With The New York Times**\
+`Looking for new ways to get students reading and responding to nonfiction? Try these exercises for discussion, writing and speaking.`\
+https://nytimes.com/2025/01/28/learning/11-teacher-approved-strategies-to-engage-students-with-the-new-york-times.html
+
+**Cool-Kid Restaurateur Andrew Tarlow Goes Grown-Up at Borgo**\
+`For his first Manhattan restaurant, elegance and timelessness replace the Brooklyn hipness that powered his previous places.`\
+https://nytimes.com/2025/01/28/dining/cool-kid-restaurateur-andrew-tarlow-goes-grown-up-at-borgo.html
+
+**Watch: Why Pete Carroll appointment raises the Raiders' floor**\
+`The Las Vegas Raiders hired Pete Carroll as their new head coach, The Athletic Football Show hosts discuss the hire.`\
+https://nytimes.com/athletic/6093905/2025/01/28/athletic-football-show-raiders-pete-carroll/
+
 **Mercury to acquire Alyssa Thomas in sign and trade with Sun: Source**\
 `The Sun gave Thomas the core designation earlier in January, meaning the only way for Thomas to be moved was via a sign-and-trade`\
 https://nytimes.com/athletic/6095146/2025/01/28/alyssa-thomas-trade-phoenix-mercury-connecticut-sun-wnba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6080818/2025/01/28/mls-north-american-cup-competiti
 **Hacking Democracy: How Elon Musk Is Disrupting European Politics**\
 `The richest man in the world is backing far-right parties against a political establishment that has failed to deliver.`\
 https://nytimes.com/2025/01/28/world/europe/hacking-democracy-elon-musk-europe.html
-
-**Myles Garrett trade rumors shut down by Browns GM Andrew Berry**\
-`Berry told reporters that Cleveland will not be trading Garrett, who's currently signed through 2026.`\
-https://nytimes.com/athletic/6094997/2025/01/28/nfl-trade-rumors-myles-garrett-browns/
-
-**A Vatican Meeting Added to Scrutiny of Tulsi Gabbard’s Foreign Travels**\
-`Ms. Gabbard, President Trump’s nominee for director of national intelligence, was briefly subject to special scrutiny on airline flights last year, but not, officials say, for the partisan reasons she has alleged.`\
-https://nytimes.com/2025/01/28/us/politics/tulsi-gabbard-trump-intel-pick-watch-list.html
-
-**Selena Gomez’s Deleted Post Becomes a Political Talking Point**\
-`An Instagram video in which the actress was seen crying over arrests of undocumented immigrants led to criticism from various political figures.`\
-https://nytimes.com/2025/01/28/style/selena-gomez-instagram-undocumented-workers-mexico.html
 
