@@ -1,3 +1,7 @@
+**House Democrats urge Rubio to reverse Trump’s foreign aid pause and staff purge.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2025/01/27/us/trump-news/house-democrats-urge-rubio-to-reverse-trumps-foreign-aid-pause-and-staff-purge
+
 **How Google Maps Plans to Handle the ‘Gulf of America’**\
 `Google said it would follow the Trump administration in renaming the Gulf of Mexico once the new name is updated in government sources.`\
 https://nytimes.com/2025/01/27/technology/google-maps-gulf-of-america-trump.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6093243/2025/01/27/submit-a-question-for-stewart-ma
 **The Jets are Aaron Glenn's show now**\
 `The Jets' new head coach, along with newly hired GM Darren Mougey, met the press on Monday`\
 https://nytimes.com/athletic/6093001/2025/01/27/aaron-glenn-new-york-jets-introduction/
-
-**Neymar leaves Al Hilal after mutually agreeing to terminate contract**\
-`Neymar has left Saudi Pro League side Al Hilal after agreeing to a mutual termination of his contract.`\
-https://nytimes.com/athletic/6093149/2025/01/27/neymar-leave-al-hilal-contract-terminate/
 

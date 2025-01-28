@@ -1,3 +1,7 @@
+**House Democrats urge Rubio to reverse Trump’s foreign aid pause and staff purge.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2025/01/27/us/trump-news/house-democrats-urge-rubio-to-reverse-trumps-foreign-aid-pause-and-staff-purge
+
 **Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
 `The president, who was found liable for sexually abusing the writer E. Jean Carroll, is contending that he doesn’t have to pay the $83 million he owes for defaming her.`\
 https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
