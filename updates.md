@@ -1,3 +1,7 @@
+**Will Everton's mounting injuries change plans and speed up action in transfer window?**\
+`David Moyes' squad is depleted and signings are needed - how much business will Everton do before the window closes?`\
+https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tfg/
+
 **Inside Newcastle Q&A: Burn vs Botman, Almiron's PSR impact - and why the sponsor hold up?**\
 `Chris Waugh answers questions on Lloyd Kelly's wages, the Mitchell/Howe relationship, and press-conference pecking order`\
 https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botman-almirons-psr-impact-and-why-the-sponsor-hold-up/
