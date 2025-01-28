@@ -1,4 +1,8 @@
 **Caroline Kennedy Urges Senators to Reject Her Cousin’s Nomination**\
+`In a harsh letter to lawmakers considering Robert F. Kennedy Jr.’s nomination for health secretary, Ms. Kennedy called her cousin a “predator” who led other family members down the path of addiction.`\
+https://nytimes.com/2025/01/28/health/caroline-kennedy-rfk-jr-hhs-confirmation.html
+
+**Caroline Kennedy Urges Senators to Reject Her Cousin’s Nomination**\
 `In a harsh letter to lawmakers considering Robert F. Kennedy Jr.’s nomination for health secretary, Ms. Kennedy called her cousin a “predator” who led other families members down the path of addiction.`\
 https://nytimes.com/2025/01/28/health/caroline-kennedy-rfk-jr-hhs-confirmation.html
 
