@@ -1,3 +1,7 @@
+**Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
+`The Athletic speaks to the people in charge of building Wrexham's proposed new home`\
+https://nytimes.com/athletic/6077794/2025/01/28/wrexham-new-stadium-building-design/
+
 **Defensive mistakes doom short-handed Celtics in late loss to Rockets**\
 `Boston nearly pulled off a great win, but fell for the seventh time this season after leading by at least 10 points.`\
 https://nytimes.com/athletic/6093679/2025/01/28/celtics-lose-to-rockets/

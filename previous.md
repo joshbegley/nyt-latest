@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tf
 https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botman-almirons-psr-impact-and-why-the-sponsor-hold-up/
 
 **Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
-`The Athletic spoke to the project lead for the redeveloped Racecourse`\
-https://nytimes.com/athletic/6077794/2025/01/28/populous-on-their-designs-for-wrexhams-new-home-the-plan-is-to-create-a-real-cauldron/
+`The Athletic speaks to the people in charge of building Wrexham's proposed new home`\
+https://nytimes.com/athletic/6077794/2025/01/28/wrexham-new-stadium-building-design/
 
