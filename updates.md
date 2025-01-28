@@ -1,3 +1,15 @@
+**How DeepSeek Changed the A.I. Game**\
+`What is DeepSeek, and why did it cause the markets and U.S. tech giants to quake? Cade Metz, a technology reporter for The New York Times who writes about artificial intelligence, explains.`\
+https://nytimes.com/video/technology/100000009951972/how-deepseek-changed-the-ai-game.html
+
+**Ian Cole, Olli Maatta, John Marino, Robert Bortuzzo have formed a Pittsburgh faction in Utah**\
+`Four of Utah's defensemen once manned the blue line for the Penguins and a bond very much remains.`\
+https://nytimes.com/athletic/6087860/2025/01/28/penguins-utah-cole-maatta-marino-bortuzzo/
+
+**Trump Fired E.E.O.C. Commissioners in Late-Night Purge**\
+`The removals of the commissioners, along with the general counsel, was part of a whirlwind of actions since Mr. Trump took office, with many aiming to gut diversity policies.`\
+https://nytimes.com/2025/01/28/business/trump-eeoc-commissioners-fired.html
+
 **Federal Judge Blocks Trump’s Freeze of Federal Grant Funds**\
 `A judge in Washington, D.C., has sided with activists who claimed the White House’s freezing of billions of dollars in already approved funding violated the law.`\
 https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-blocked.html

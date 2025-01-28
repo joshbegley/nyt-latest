@@ -1,3 +1,7 @@
+**NBA All-Star Weekend participants tracker: Rising Stars pool unveiled**\
+`The player pool for the Rising Stars has been revealed, while Mac McClung will try to win a third straight dunk contest.`\
+https://nytimes.com/athletic/6095316/2025/01/28/nba-all-star-weekend-dunk-3-point-tracker-2/
+
 **How DeepSeek Changed the A.I. Game**\
 `What is DeepSeek, and why did it cause the markets and U.S. tech giants to quake? Cade Metz, a technology reporter for The New York Times who writes about artificial intelligence, explains.`\
 https://nytimes.com/video/technology/100000009951972/how-deepseek-changed-the-ai-game.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/nyregion/bannon-fraud-filing-politics.html
 **Senate Confirms Sean Duffy as Transportation Secretary**\
 `Mr. Duffy, a former congressman who had appeared on track to sail through with little opposition, overcame a last-minute swell of Democratic anger over the White House’s sweeping funding freeze.`\
 https://nytimes.com/2025/01/28/us/politics/sean-duffy-trump-transportation-secretary.html
-
-**In an Aging World, a Youthful Africa Steps Up**\
-`Forecasts suggest that by 2100 a majority of the world’s babies will be African, leading to predictions of an “African century.”`\
-https://nytimes.com/2025/01/28/opinion/africa-population-youth.html
 
