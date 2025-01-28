@@ -2,7 +2,7 @@
 `The San Diego Padres are on the verge of handing out their first major-league free-agent contract of the offseason.`\
 https://nytimes.com/athletic/6095723/2025/01/28/padres-sign-elias-diaz-sources/
 
-**Trump and Rubio’s Halt to Foreign Aid Cripples Programs Worldwide**\
+**U.S. Halt to Foreign Aid Cripples Programs Worldwide**\
 `Many of the frozen programs are aimed at alleviating disease and malnutrition, but even security programs with U.S. funding are shutting down.`\
 https://nytimes.com/2025/01/28/us/politics/trump-rubio-foreign-aid.html
 
