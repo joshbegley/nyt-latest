@@ -1,3 +1,7 @@
+**Bannon Accuses Manhattan D.A. of Being ‘Vindictive’ in Fraud Case**\
+`The former Trump adviser, who faces trial in March, said that he was singled out for his politics. He took aim at the district attorney in much the way the president has.`\
+https://nytimes.com/2025/01/28/nyregion/bannon-fraud-filing-politics.html
+
 **Smithsonian Closes Diversity Office After Trump’s Executive Order**\
 `The museum’s move followed a similar one last week by the National Gallery, as museums try to comply with an executive order that called diversity programs “illegal and immoral.”`\
 https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.html
