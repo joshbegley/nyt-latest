@@ -1,3 +1,7 @@
+**Word of the Day: truncate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/28/learning/word-of-the-day-truncate.html
+
 **Japan Stocks Sink as Rout in Technology Shares Spreads to Asia**\
 `U.S. markets sold off on Monday after a little-known Chinese artificial intelligence start-up ignited concerns about the valuations of technology companies.`\
 https://nytimes.com/2025/01/28/business/stocks-sp500-deepseek.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090891/2025/01/28/aston-villa-are-short-at-centre-
 **Will Everton's mounting injuries change plans and speed up action in transfer window?**\
 `David Moyes' squad is depleted and signings are needed - how much business will Everton do before the window closes?`\
 https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tfg/
-
-**Inside Newcastle Q&A: Burn vs Botman, Almiron's PSR impact - and why the sponsor hold up?**\
-`Chris Waugh answers questions on Lloyd Kelly's wages, the Mitchell/Howe relationship, and press-conference pecking order`\
-https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botman-almirons-psr-impact-and-why-the-sponsor-hold-up/
 
