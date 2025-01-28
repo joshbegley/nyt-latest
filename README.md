@@ -1,3 +1,7 @@
+**Tenacious Flyers take another 'growing step' in holding off Devils again**\
+`The Flyers kept their composure after what could have been a deflating goal to dispatch the Devils for the second time in 10 days.`\
+https://nytimes.com/athletic/6093568/2025/01/27/flyers-ersson-hathaway-devils-tortorella/
+
 **Read the Memo Pausing Federal Grants and Loans**\
 `The White House’s Office of Management and Budget issued a memo ordering a temporary halt to “all federal financial assistance,” potentially paralyzing a vast swath of federal programs.`\
 https://nytimes.com/interactive/2025/01/27/us/omb-memo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6093239/2025/01/27/commanders-dan-quinn-adam-peters
 **Trump Administration Puts Dozens of U.S.A.I.D. Officials on Paid Leave**\
 `An email to the aid agency’s employees cited actions “that appear to be designed to circumvent” an executive order by President Trump.`\
 https://nytimes.com/2025/01/27/us/politics/trump-usaid-officials.html
-
-**Your Guide to the DeepSeek Freakout: An Emergency Pod**\
-`“I think this is a big moment in the history of A.I. development”`\
-https://nytimes.com/2025/01/27/podcasts/your-guide-to-the-deepseek-freakout-an-emergency-pod.html
 
