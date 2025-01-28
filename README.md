@@ -1,3 +1,15 @@
+**Austin Hays agrees to one-year deal with Reds**\
+`The 29-year-old outfielder had a .699 OPS in 85 games for the Orioles and Phillies in 2024.`\
+https://nytimes.com/athletic/6094615/2025/01/28/austin-hays-contract-reds-mlb-free-agency/
+
+**Young stars 'changing what's possible in baseball' set to grace MLB The Show 25 cover**\
+`This year’s version of the game will mark the first time the cover features three players — three of baseball’s youngest stars.`\
+https://nytimes.com/athletic/6087420/2025/01/28/paul-skenes-gunnar-henderson-elly-de-la-cruz-mlb-the-show-25-cover/
+
+**Andre Iguodala will get first jersey retirement from Warriors dynasty: 'I'm just the oldest'**\
+`The franchise will retire Iguodala's No. 9 jersey on Feb. 23 after an afternoon game against the Mavericks.`\
+https://nytimes.com/athletic/6044885/2025/01/28/andre-iguodala-jersey-retired-warriors/
+
 **Scoop City: Three ways referees can award points, plus Chiefs controversy**\
 `Inside: We circle back to weird goal-line drama from the NFC Championship, your thoughts on the Chiefs&#8217; controversial calls and the Jaguars&#8217; coaching hire.`\
 https://nytimes.com/athletic/6094559/2025/01/28/how-nfl-referees-award-points-eagles-commanders-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/28/business/zuckerberg-meta-business-roundtable.html
 **Cubs acquire Ryan Pressly as Astros cover $5.5 million of salary to complete trade**\
 `The Astros will cover $5.5 million of Pressly’s $14 million salary, according to a league source, and receive pitcher Juan Bello in return.`\
 https://nytimes.com/athletic/6094472/2025/01/28/cubs-astros-trade-ryan-pressly-finalized/
-
-**At 85, This Maestro Finally Has His Philharmonic Debut**\
-`The renowned conductor Marek Janowski long ago gave up hope that he might conduct the New York Philharmonic. Then the orchestra came knocking.`\
-https://nytimes.com/2025/01/28/arts/music/marek-janowski-conductor.html
-
-**Many Ukrainian Aid Groups Stop Work After Trump’s Halt on Foreign Assistance**\
-`The Trump administration’s orders have sent a chill through humanitarian organizations in Ukraine, which depend heavily on such assistance.`\
-https://nytimes.com/2025/01/28/world/europe/ukraine-trump-aid-freeze.html
-
-**Inside China, DeepSeek Provides a National Mic Drop Moment**\
-`Social media exploded in a celebration after the news that a Chinese start-up had made an artificial intelligence tool that was more efficient than any in the United States.`\
-https://nytimes.com/2025/01/28/business/deepseek-china-reaction.html
 
