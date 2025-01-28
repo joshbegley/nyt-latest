@@ -1,3 +1,15 @@
+**Why facing Liverpool could be make or break for USMNT's Ricardo Pepi**\
+`The Texan has been prolific this season in Eindhoven, even when largely used off the bench - and suitors have taken note of Pepi’s progress`\
+https://nytimes.com/athletic/6094093/2025/01/28/pepi-usmnt-psv-liverpool-champions-league/
+
+**Tiny Love Stories: ‘I Know You Don’t Watch the News’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/01/28/style/tiny-modern-love-stories-i-know-you-dont-watch-the-news.html
+
+**It’s Dumpling Week!**\
+`And I think we need a moment for these chile oil wontons from Sue Li, which look so, so good.`\
+https://nytimes.com/2025/01/28/dining/its-dumpling-week.html
+
 **Inside Trump’s Renewed Effort to Undo a Major Climate Rule**\
 `A rule known as the endangerment finding requires the E.P.A. to regulate greenhouse gases. It has proved resilient against earlier attacks.`\
 https://nytimes.com/2025/01/28/climate/trump-endangerment-finding-epa.html
