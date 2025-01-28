@@ -1,3 +1,15 @@
+**Full Time: Another USWNT defender going abroad**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6093285/2025/01/27/nwsl-uswnt-nighswonger-arsenal-full-time/
+
+**How Each Senator Voted on Confirming Scott Bessent as Treasury Secretary**\
+`The Senate voted 68 to 29 to confirm Mr. Bessent, a billionaire hedge fund manager, as the next Treasury secretary.`\
+https://nytimes.com/interactive/2025/01/27/us/politics/bessent-senate-confirmation-vote.html
+
+**Fenway Sports Group looking to expand Penguins ownership group: Sources**\
+`FSG, which owns several other properties, including the Boston Red Sox and Liverpool FC, plans to maintain controlling interest of Penguins.`\
+https://nytimes.com/athletic/6093260/2025/01/27/fenway-sports-group-looking-to-expand-penguins-ownership-group-sources/
+
 **Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
 `The president and the writer E. Jean Carroll, whom he sexually abused, are fighting over whether he has to pay the $83 million he owes for defaming her.`\
 https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
