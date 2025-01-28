@@ -1,3 +1,11 @@
+**Corrections: Jan. 28, 2025**\
+`Corrections that appeared in print on Tuesday, Jan. 28, 2025.`\
+https://nytimes.com/2025/01/27/pageoneplus/corrections-jan-28-2025.html
+
+**Whole Foods Workers in Philadelphia Vote to Form Chain’s First Union**\
+`The union win comes as Amazon, which owns the grocery chain, is also fighting labor organizing in its warehouse and delivery businesses.`\
+https://nytimes.com/2025/01/27/business/whole-foods-union-vote.html
+
 **Trump Administration Puts Dozens of U.S.A.I.D. Officials on Paid Leave**\
 `An email to the aid agency’s employees cited actions “that appear to be designed to circumvent” an executive order by President Trump.`\
 https://nytimes.com/2025/01/27/us/politics/trump-usaid-officials.html
