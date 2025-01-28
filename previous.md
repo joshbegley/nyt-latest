@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6095685/2025/01/28/tyler-iveys-comeback-astros-spri
 https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
 
 **Giants GM Joe Schoen on QB prospect Shedeur Sanders: "He's a great kid"**\
-`Schoen goes long on his meeting with Shedeur Sanders, the Senior Bowl as a building ground for talent and Mike Kafka's potential departure.`\
+`Schoen goes long on his meeting with Sanders, the Senior Bowl as a building ground for talent, and Mike Kafka's potential departure.`\
 https://nytimes.com/athletic/6095340/2025/01/28/giants-joe-schoen-shedeur-sanders-senior-bowl/
 
 **Democrats find a voice in opposition to Trump’s funding halt.**\

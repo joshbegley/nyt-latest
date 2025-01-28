@@ -1,3 +1,7 @@
+**Giants GM Joe Schoen on QB prospect Shedeur Sanders: "He's a great kid"**\
+`Schoen goes long on his meeting with Sanders, the Senior Bowl as a building ground for talent, and Mike Kafka's potential departure.`\
+https://nytimes.com/athletic/6095340/2025/01/28/giants-joe-schoen-shedeur-sanders-senior-bowl/
+
 **Pardoned Jan. 6 Rioter Is Sought for Charges of Soliciting Minor**\
 `Andrew Taake, who pleaded guilty to attacking the police outside the Capitol, was just released from prison. He is being sought for charges in 2016 of soliciting a 17-year-old online for sex.`\
 https://nytimes.com/2025/01/28/us/politics/jan-6-rioter-minor-solicitation-pardon.html
