@@ -1,3 +1,11 @@
+**Coca-Cola Recalls Drinks in Parts of Europe Over High Levels of Chlorate**\
+`Elevated amounts of the chemical were found in some soft drinks sold in Belgium, Luxembourg and the Netherlands.`\
+https://nytimes.com/2025/01/28/business/coca-cola-recall-europe.html
+
+**A Trade Weapon**\
+`President Trump wants to use tariffs to solve a raft of policy problems.`\
+https://nytimes.com/2025/01/28/briefing/donald-trump-tariffs.html
+
 **Twins' Simeon Woods Richardson looks to ride lower arm slot to sophomore success**\
 `In the span of 12 months, Woods Richardson lowered his arm slot, raised his velocity and rediscovered what made him a top prospect.`\
 https://nytimes.com/athletic/6091287/2025/01/28/simeon-woods-richardson-twins-2025-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6093872/2025/01/28/andreas-christensen-barcelona-in
 **Vikings' 10-step offseason plan: Roster cuts, free-agent signings and a draft strategy**\
 `The Vikings have 20 meaningful contributors from 2024 who are set to become free agents. Here's our plan for staying competitive.`\
 https://nytimes.com/athletic/6092416/2025/01/28/vikings-offseason-plan-roster-cuts-free-agency-draft/
-
-**How Cowboys came to decision that Brian Schottenheimer was best coach for them**\
-`Schottenheimer's skill set, energy and understanding of the Cowboys' current situation helped Jerry Jones make his decision.`\
-https://nytimes.com/athletic/6093767/2025/01/28/cowboys-brian-schottenheimer-decision-jerry-jones/
-
-**Analyzing the East's Stanley Cup contenders: Signature strengths and fatal flaws**\
-`The East has six teams with a chance to win the Stanley Cup north of 2.5 percent. These are each team’s signature strengths and fatal flaws.`\
-https://nytimes.com/athletic/6092230/2025/01/28/nhl-eastern-conference-stanley-cup-signature-strengths-fatal-flaws/
 
