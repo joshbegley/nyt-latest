@@ -1,3 +1,7 @@
+**Vecenie: 5 deals I'd love to see this NBA trade season**\
+`Cameron Johnson to the Spurs? A three-center swap? Could these moves actually happen?`\
+https://nytimes.com/athletic/6082331/2025/01/28/nba-trade-rumors-pistons-bulls-lonzo-ball/
+
 **Jon Stewart Can’t Keep Up With the Purges**\
 `As many as 17 inspectors general were fired by President Trump. “That only leaves — no one knows how many left,” Stewart said. “I have no idea.”`\
 https://nytimes.com/2025/01/28/arts/television/jon-stewart-trump-firings.html
