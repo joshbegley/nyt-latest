@@ -1,3 +1,11 @@
+**Chiefs-Bills smashes TV ratings, averages 57.7 million viewers**\
+`Sunday's clash ranks as the most-watched AFC Championship Game as fans tuned in to see the Chiefs beat the Bills.`\
+https://nytimes.com/athletic/6094872/2025/01/28/bills-chiefs-tv-ratings-afc-championship-cbs/
+
+**Melania Trump’s New Portrait Breaks With the Past**\
+`The official FLOTUS photograph has arrived, and it sends a different message from any that have come before.`\
+https://nytimes.com/2025/01/28/style/melania-trump-portrait-first-lady.html
+
 **7 New Songs You Should Hear Now**\
 `Listnen to new music from Japanese Breakfast, Central Cee and Lucy Dacus.`\
 https://nytimes.com/2025/01/28/arts/music/amplifier-newsletter-japanese-breakfast-central-cee.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/technology/x-visa-financial-services.html
 **'No doubt' Ancelotti will remain at Madrid if they win a major trophy**\
 `Carlo Ancelotti says there is &#8220;no doubt&#8221; he will continue with Real Madrid if they win the Champions League or La Liga.`\
 https://nytimes.com/athletic/6094879/2025/01/28/carlo-ancelotti-real-madrid-latest/
-
-**France, Finally, Wins the World’s Top Food Award Again**\
-`In 2023, the country failed to finish in the top three as Denmark won the Bocuse d’Or, a fine-dining competition. This year, France reclaimed the crown.`\
-https://nytimes.com/2025/01/28/world/europe/france-bocuse-winner-gastronomy-food.html
-
-**Buendia to join Leverkusen on loan from Villa**\
-`Aston Villa midfielder Emiliano Buendia is set to join Bayer Leverkusen on loan.`\
-https://nytimes.com/athletic/6091848/2025/01/28/aston-villa-transfers-buendia-leverkusen/
 

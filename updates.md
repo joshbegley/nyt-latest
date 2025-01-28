@@ -1,3 +1,11 @@
+**Chiefs-Bills smashes TV ratings, averages 57.7 million viewers**\
+`Sunday's clash ranks as the most-watched AFC Championship Game as fans tuned in to see the Chiefs beat the Bills.`\
+https://nytimes.com/athletic/6094872/2025/01/28/bills-chiefs-tv-ratings-afc-championship-cbs/
+
+**Melania Trump’s New Portrait Breaks With the Past**\
+`The official FLOTUS photograph has arrived, and it sends a different message from any that have come before.`\
+https://nytimes.com/2025/01/28/style/melania-trump-portrait-first-lady.html
+
 **7 New Songs You Should Hear Now**\
 `Listnen to new music from Japanese Breakfast, Central Cee and Lucy Dacus.`\
 https://nytimes.com/2025/01/28/arts/music/amplifier-newsletter-japanese-breakfast-central-cee.html
