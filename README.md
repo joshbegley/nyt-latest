@@ -1,3 +1,11 @@
+**The Pulse: The best prospects in baseball**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6091761/2025/01/28/mlb-top-100-prospects-the-pulse/
+
+**Bowden: 12 MLB breakout candidates I'm excited to scout in spring training**\
+`I reached out to all 30 MLB teams recently to learn which players their organization's evaluators think could break out in 2025. `\
+https://nytimes.com/athletic/6092048/2025/01/28/mlb-breakout-players-2025/
+
 **The Athletic FC: Curious case of Bah and Man City, Messi ally handed power at Inter Miami**\
 `Today in TAFC: Juma Bah, Man City and a row over his transfer. Plus: Messi's confidant gets promotion at Inter Miami and Coote speaks out.`\
 https://nytimes.com/athletic/6093879/2025/01/28/bah-man-city-messi-sanllehi-inter-miami/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6092476/2025/01/28/anaheim-ducks-los-angeles-angels
 **For one night at least, Klay Thompson conjures some old shooting magic**\
 `"It reminds you that there’s greatness still within you," Thompson said after a blistering first quarter against the Wizards.`\
 https://nytimes.com/athletic/6093720/2025/01/28/klay-thompson-mavericks-3s/
-
-**An evening with CBS: Goals, glitterballs and what 'UCL Today' tells us about sport on TV**\
-`The Athletic goes behind the scenes on CBS's flagship soccer show to find out why it works and what it reveals about sports broadcasting`\
-https://nytimes.com/athletic/6091219/2025/01/28/cbs-golazo-champions-league/
-
-**For Gazans Returning North, Elation Mixes With Despair**\
-`As families reunite, they also confront the devastation wrought by the 15-month war that flattened neighborhoods and killed tens of thousands.`\
-https://nytimes.com/2025/01/28/world/middleeast/gaza-city-return-palestinians-israel.html
 
