@@ -1,3 +1,7 @@
+**Japanese TV Executives Get 10-Hour Grilling Over Sex Abuse Case**\
+`Public mea culpas are a corporate ritual in Japan. For Fuji TV, the resignations and public apologies of two bosses didn’t assuage public anger.`\
+https://nytimes.com/2025/01/28/world/asia/japan-tv-executives-sex-abuse.html
+
 **New Yorkers’ Life Expectancy Has Dipped. Officials Want to Change That.**\
 `The city laid out a series of proposals to reduce cancer deaths by 20 percent, and deaths from heart- and diabetes-related ailments by 5 percent, over the next five years.`\
 https://nytimes.com/2025/01/28/nyregion/nyc-life-expectancy-health-department.html
