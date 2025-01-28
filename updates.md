@@ -1,3 +1,15 @@
+**USWNT's Dunn, Gotham FC agree to mutually part ways**\
+`The split comes just 13 months into a three-year contract, signed ahead of the 2024 NWSL season.`\
+https://nytimes.com/athletic/6095420/2025/01/28/crystal-dunn-gotham-nwsl-uswnt/
+
+**Welcome, Podcasters! White House Wants New Media at the Press Briefing**\
+`President Trump’s press secretary invited social media influencers and content creators to sit with the traditional press corps.`\
+https://nytimes.com/2025/01/28/business/media/white-house-press-briefing-podcasters-influencers.html
+
+**White House Says F.A.A. Authorized N.J. Drones: ‘This Was Not the Enemy’**\
+`The remarks from Karoline Leavitt, the new White House press secretary, echoed earlier remarks by the Biden administration about the sightings.`\
+https://nytimes.com/2025/01/28/us/politics/new-jersey-drones-faa.html
+
 **Oklahoma Moves to Require Schools to Ask Students’ Immigration Status**\
 `The rule would not block undocumented students from enrolling, but it would supply the Trump administration with information to aid immigration enforcement.`\
 https://nytimes.com/2025/01/28/us/oklahoma-schools-immigration.html
