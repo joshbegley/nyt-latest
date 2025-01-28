@@ -1,3 +1,11 @@
+**Vatican Warns About the Risks of Artificial Intelligence**\
+`A new document examines the opportunities and risks of A.I. and calls for “moral and ethical considerations” to be enshrined in all of its applications.`\
+https://nytimes.com/2025/01/28/world/europe/vatican-artificial-intelligence-warning.html
+
+**66-Million-Year-Old Fossilized Vomit Is Found in Denmark**\
+`In the Cretaceous period, a shark or another kind of fish found sea lilies less than digestible. What you might expect followed.`\
+https://nytimes.com/2025/01/28/science/vomit-fossil-denmark.html
+
 **Austin Hays agrees to one-year deal with Reds**\
 `The 29-year-old outfielder had a .699 OPS in 85 games for the Orioles and Phillies in 2024.`\
 https://nytimes.com/athletic/6094615/2025/01/28/austin-hays-contract-reds-mlb-free-agency/

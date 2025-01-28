@@ -1,3 +1,11 @@
+**Vatican Warns About the Risks of Artificial Intelligence**\
+`A new document examines the opportunities and risks of A.I. and calls for “moral and ethical considerations” to be enshrined in all of its applications.`\
+https://nytimes.com/2025/01/28/world/europe/vatican-artificial-intelligence-warning.html
+
+**66-Million-Year-Old Fossilized Vomit Is Found in Denmark**\
+`In the Cretaceous period, a shark or another kind of fish found sea lilies less than digestible. What you might expect followed.`\
+https://nytimes.com/2025/01/28/science/vomit-fossil-denmark.html
+
 **Austin Hays agrees to one-year deal with Reds**\
 `The 29-year-old outfielder had a .699 OPS in 85 games for the Orioles and Phillies in 2024.`\
 https://nytimes.com/athletic/6094615/2025/01/28/austin-hays-contract-reds-mlb-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/opinion/president-trump-first-week.html
 **Here’s How Government Funding Works**\
 `Congress has the power to appropriate federal dollars, and the executive branch’s job is to spend it as lawmakers direct. But there are ways for presidents to challenge the will of Congress, within limits.`\
 https://nytimes.com/2025/01/28/us/politics/trump-grants-loans-aid.html
-
-**Mark Zuckerberg Joins the Business Roundtable**\
-`Meta’s chief executive has become a more visible presence in Washington since President Trump’s return to office after years of avoiding politics.`\
-https://nytimes.com/2025/01/28/business/zuckerberg-meta-business-roundtable.html
-
-**Cubs acquire Ryan Pressly as Astros cover $5.5 million of salary to complete trade**\
-`The Astros will cover $5.5 million of Pressly’s $14 million salary, according to a league source, and receive pitcher Juan Bello in return.`\
-https://nytimes.com/athletic/6094472/2025/01/28/cubs-astros-trade-ryan-pressly-finalized/
 
