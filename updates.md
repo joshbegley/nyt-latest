@@ -1,3 +1,7 @@
+**Word of the Day: truncate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/28/learning/word-of-the-day-truncate.html
+
 **Japan Stocks Sink as Rout in Technology Shares Spreads to Asia**\
 `U.S. markets sold off on Monday after a little-known Chinese artificial intelligence start-up ignited concerns about the valuations of technology companies.`\
 https://nytimes.com/2025/01/28/business/stocks-sp500-deepseek.html
