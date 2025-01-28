@@ -1,3 +1,15 @@
+**Kennedy, in His Own Words: Flu, Diabetes, Autism and More**\
+`Robert F. Kennedy Jr., President Trump’s nominee for health secretary, doesn’t just hold fringe views on vaccines. We fact-checked five recent statements.`\
+https://nytimes.com/2025/01/28/health/kennedy-vaccines-autism-video.html
+
+**Does Trump Have the Power to Block Spending That Congress Has Authorized?**\
+`The White House’s temporary pause on trillions in federal spending could set up a court fight over executive authority and Congress’s control of the purse.`\
+https://nytimes.com/2025/01/28/us/politics/trump-federal-grants-loans-power.html
+
+**Elon Musk’s X Partners With Visa to Provide Financial Services**\
+`The social media company said it would start a peer-to-peer payments service, moving to expand the app’s abilities.`\
+https://nytimes.com/2025/01/28/technology/x-visa-financial-services.html
+
 **'No doubt' Ancelotti will remain at Madrid if they win a major trophy**\
 `Carlo Ancelotti says there is &#8220;no doubt&#8221; he will continue with Real Madrid if they win the Champions League or La Liga.`\
 https://nytimes.com/athletic/6094879/2025/01/28/carlo-ancelotti-real-madrid-latest/
