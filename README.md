@@ -2,7 +2,7 @@
 `The White House’s Office of Management and Budget issued a memo ordering a temporary halt to “all federal financial assistance,” potentially paralyzing a vast swath of federal programs.`\
 https://nytimes.com/interactive/2025/01/27/us/omb-memo.html
 
-**Quinn Hughes' wizardry, Tyler Myers' return power win over Blues: 3 takeaways**\
+**Quinn Hughes' wizardry, Tyler Myers' return power Canucks win vs. Blues: 3 takeaways**\
 `The Canucks hadn't won back-to-back games since Dec. 1, but looked more like their old selves against the Blues.`\
 https://nytimes.com/athletic/6093358/2025/01/27/canucks-hughes-myers-consecutive-wins-blues/
 
