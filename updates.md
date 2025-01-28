@@ -1,3 +1,15 @@
+**11 Teacher-Approved Strategies to Engage Students With The New York Times**\
+`Looking for new ways to get students reading and responding to nonfiction? Try these exercises for discussion, writing and speaking.`\
+https://nytimes.com/2025/01/28/learning/11-teacher-approved-strategies-to-engage-students-with-the-new-york-times.html
+
+**Cool-Kid Restaurateur Andrew Tarlow Goes Grown-Up at Borgo**\
+`For his first Manhattan restaurant, elegance and timelessness replace the Brooklyn hipness that powered his previous places.`\
+https://nytimes.com/2025/01/28/dining/cool-kid-restaurateur-andrew-tarlow-goes-grown-up-at-borgo.html
+
+**Watch: Why Pete Carroll appointment raises the Raiders' floor**\
+`The Las Vegas Raiders hired Pete Carroll as their new head coach, The Athletic Football Show hosts discuss the hire.`\
+https://nytimes.com/athletic/6093905/2025/01/28/athletic-football-show-raiders-pete-carroll/
+
 **Mercury to acquire Alyssa Thomas in sign and trade with Sun: Source**\
 `The Sun gave Thomas the core designation earlier in January, meaning the only way for Thomas to be moved was via a sign-and-trade`\
 https://nytimes.com/athletic/6095146/2025/01/28/alyssa-thomas-trade-phoenix-mercury-connecticut-sun-wnba/
