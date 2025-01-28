@@ -1,3 +1,23 @@
+**Bengals TE Erick All Jr. expected to miss 2025 season due to ACL: Sources**\
+`All's promising rookie season was cut short by an ACL injury and now it appears complications from it will cost him next season.`\
+https://nytimes.com/athletic/6094193/2025/01/28/erick-all-jr-bengals-acl-miss-season/
+
+**Brother of late Padres owner responds to widow's lawsuit in court filing**\
+`Sheel Seidler previously accused two of her brothers-in-law of breaches of fiduciary duty and fraud as executors of Peter Seidler’s estate.`\
+https://nytimes.com/athletic/6093531/2025/01/28/brother-padres-owner-responds-widows-lawsuit/
+
+**‘Paradise’ Is a Wild-Ride Political Thriller**\
+`The new Hulu series, starring Sterling K. Brown, is exhilarating in all the right ways, even if it sometimes tips over into ridiculousness.`\
+https://nytimes.com/2025/01/28/arts/television/paradise-hulu-sterling-k-brown.html
+
+**The Federal Funding Pause Does Not Apply to Student Loans and Pell Grants**\
+`Students and parents panicked after news of the order, but the Education Department said the guidance would not stop the flow of money to students and schools.`\
+https://nytimes.com/2025/01/28/business/trump-federal-freeze-grants-student-loans.html
+
+**Giorgia Meloni Investigated for Italy’s Release of Libyan Wanted for War Crimes**\
+`The Italian prime minister announced the investigation herself over social media, calling it “blackmail.”`\
+https://nytimes.com/2025/01/28/world/europe/italy-meloni-investigation-libya-war-crimes.html
+
 **Senate Democrats are outraged at Trump’s federal funding pause.**\
 `Senator Patty Murray of Washington called on Republicans to halt the nomination of Russell Vought, Trump’s pick to lead the Office of Management and Budget.`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/senate-democrats-are-outraged-at-trumps-federal-funding-pause
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/28/dining/nyc-restaurant-news.html
 **U.S. Envoy to Meet Netanyahu in Israel, and Perhaps Visit Gaza**\
 `Steve Witkoff played an important role in brokering the cease-fire deal between Israel and Hamas.`\
 https://nytimes.com/2025/01/28/world/middleeast/witkoff-netanyahu-israel-gaza.html
-
-**Vatican Warns About the Risks of Artificial Intelligence**\
-`A new document examines the opportunities and risks of A.I. and calls for “moral and ethical considerations” to be enshrined in all of its applications.`\
-https://nytimes.com/2025/01/28/world/europe/vatican-artificial-intelligence-warning.html
-
-**66 Million-Year-Old Fossilized Vomit Is Found in Denmark**\
-`In the Cretaceous period, a shark or another kind of fish found sea lilies less than digestible. What you might expect followed.`\
-https://nytimes.com/2025/01/28/science/vomit-fossil-denmark.html
-
-**Austin Hays agrees to one-year deal with Reds**\
-`The 29-year-old outfielder had a .699 OPS in 85 games for the Orioles and Phillies in 2024.`\
-https://nytimes.com/athletic/6094615/2025/01/28/austin-hays-contract-reds-mlb-free-agency/
-
-**Young stars 'changing what's possible in baseball' set to grace MLB The Show 25 cover**\
-`This year’s version of the game will mark the first time the cover features three players — three of baseball’s youngest stars.`\
-https://nytimes.com/athletic/6087420/2025/01/28/paul-skenes-gunnar-henderson-elly-de-la-cruz-mlb-the-show-25-cover/
-
-**Andre Iguodala will get first jersey retirement from Warriors dynasty: 'I'm just the oldest'**\
-`The franchise will retire Iguodala's No. 9 jersey on Feb. 23 after an afternoon game against the Mavericks.`\
-https://nytimes.com/athletic/6044885/2025/01/28/andre-iguodala-jersey-retired-warriors/
 
