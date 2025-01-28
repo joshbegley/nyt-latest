@@ -1,3 +1,7 @@
+**College hoops midseason catch-up: The contenders and bubble teams you need to know**\
+`When trying to predict future NCAA Tournament success, particularly the national champion, we turn to history and numbers for guidance.`\
+https://nytimes.com/athletic/6086579/2025/01/28/college-basketball-national-championship-favorites-sleepers/
+
 **Protesters Attack Embassies in Congo Amid Fury Over Rebel Violence**\
 `Many blame the United States, France and other allies for allowing neighboring Rwanda to fuel a conflict in the country’s east.`\
 https://nytimes.com/2025/01/28/world/africa/congo-protesters-embassies-rebels-rwanda.html

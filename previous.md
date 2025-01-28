@@ -1,3 +1,7 @@
+**College hoops midseason catch-up: The contenders and bubble teams you need to know**\
+`When trying to predict future NCAA Tournament success, particularly the national champion, we turn to history and numbers for guidance.`\
+https://nytimes.com/athletic/6086579/2025/01/28/college-basketball-national-championship-favorites-sleepers/
+
 **Protesters Attack Embassies in Congo Amid Fury Over Rebel Violence**\
 `Many blame the United States, France and other allies for allowing neighboring Rwanda to fuel a conflict in the country’s east.`\
 https://nytimes.com/2025/01/28/world/africa/congo-protesters-embassies-rebels-rwanda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/nyregion/ice-raid-nyc-noem.html
 **Marseille among clubs interested in loan for Brighton's Ferguson**\
 `Marseille are among the clubs interested in a loan move for Brighton &amp; Hove Albion striker Evan Ferguson.`\
 https://nytimes.com/athletic/6035347/2025/01/28/evan-ferguson-transfer-brighton-marseille-loan/
-
-**Arsenal appeal against Lewis-Skelly red card**\
-`Arsenal have appealed against the red card issued to Myles Lewis-Skelly during their 1-0 victory over Wolverhampton Wanderers on Saturday.`\
-https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-card/
 
