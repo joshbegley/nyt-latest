@@ -1,3 +1,7 @@
+**The pitfalls and privileges of your child joining a Premier League academy**\
+`How do you handle the pressure and expectation? That is among the questions discussed at a workshop for parents of academy players`\
+https://nytimes.com/athletic/6093881/2025/01/28/arsenal-premier-league-academy-fan-club/
+
 **NFL conference championship coaching decisions: Chiefs nail right calls in the clutch**\
 `Andy Reid was ready for the Bills' man coverage and Steve Spagnuolo foiled Josh Allen. In the NFC, Kliff Kingsbury's game plan backfired.`\
 https://nytimes.com/athletic/6090854/2025/01/28/nfl-conference-championship-results-scores-coaching-decisions/
