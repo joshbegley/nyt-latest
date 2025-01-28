@@ -1,3 +1,7 @@
+**Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
+`The president, who was found liable for sexually abusing the writer E. Jean Carroll, is contending that he doesn’t have to pay the $83 million he owes for defaming her.`\
+https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
+
 **How Google Maps Plans to Handle the ‘Gulf of America’**\
 `Google said it would follow the Trump administration in renaming the Gulf of Mexico once the new name is updated in government sources.`\
 https://nytimes.com/2025/01/27/technology/google-maps-gulf-of-america-trump.html
