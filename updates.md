@@ -1,3 +1,11 @@
+**Precious Gems in the West Village**\
+`The chef Jiho Kim opens a jewel box restaurant near the Hudson, a heart-shaped Valentine from Lysée and more restaurant news.`\
+https://nytimes.com/2025/01/28/dining/nyc-restaurant-news.html
+
+**U.S. Envoy to Meet Netanyahu in Israel, and Perhaps Visit Gaza**\
+`Steve Witkoff played an important role in brokering the cease-fire deal between Israel and Hamas.`\
+https://nytimes.com/2025/01/28/world/middleeast/witkoff-netanyahu-israel-gaza.html
+
 **Vatican Warns About the Risks of Artificial Intelligence**\
 `A new document examines the opportunities and risks of A.I. and calls for “moral and ethical considerations” to be enshrined in all of its applications.`\
 https://nytimes.com/2025/01/28/world/europe/vatican-artificial-intelligence-warning.html
