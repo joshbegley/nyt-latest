@@ -1,3 +1,11 @@
+**Trump’s Order on Transgender Troops Will Likely Ban Their Service, Again**\
+`In an executive order issued Monday night, the president said transgender service members “cannot satisfy the rigorous standards necessary” for the military.`\
+https://nytimes.com/2025/01/28/us/politics/trump-transgender-troops.html
+
+**New CVS App Allows Customers to Unlock Cabinets to Access Products**\
+`The company said the unlocking function, part of a pilot program in New York City, will be expanded this year.`\
+https://nytimes.com/2025/01/28/business/cvs-app-pharmacy-locked-cabinets.html
+
 **A Judge Temporarily Blocked Trump’s Spending Freeze**\
 `Also, the U.S. urged its citizens to leave Congo. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/01/28/briefing/judge-block-trump-funding-freeze-mona-lisa-new-room.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-blocked.html
 **Trump Fired E.E.O.C. Commissioners in Late-Night Purge**\
 `The removals of the commissioners, along with the general counsel, was part of a whirlwind of actions since Mr. Trump took office, with many aiming to gut diversity policies.`\
 https://nytimes.com/2025/01/28/business/trump-eeoc-commissioners-fired.html
-
-**Sprawling Storm Brings Risk of Flooding Rains to Part of Central U.S.**\
-`Some of the most severe weather is expected on Thursday in East Texas.`\
-https://nytimes.com/2025/01/28/weather/texas-louisiana-rain-flood-forecast.html
-
-**Smithsonian Closes Diversity Office After Trump’s Executive Order**\
-`The museum’s move followed a similar one last week by the National Gallery, as museums try to comply with an executive order that called diversity programs “illegal and immoral.”`\
-https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.html
 
