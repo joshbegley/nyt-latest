@@ -1,3 +1,23 @@
+**Wednesday Briefing: Trump’s Funding Freeze**\
+`Plus, renovations at the Louvre.`\
+https://nytimes.com/2025/01/28/briefing/trump-funding-freeze-israel-hostages-congo-protests.html
+
+**What It Would Take to Build Trump’s Iron Dome Over America**\
+`It’s cheaper, quicker and easier to build missiles and offensive systems than it is to intricately engineer the shield to defeat them.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/iron-dome-america-missile-defense
+
+**Nonprofits Fear Federal Grants Freeze Could Stop Critical Charity Work**\
+`After President Trump’s freeze on aid, administrators of health care, education and social service programs worried they would have to scale back operations.`\
+https://nytimes.com/2025/01/28/us/politics/nonprofits-federal-grant-freeze-charity.html
+
+**Do China’s A.I. Advances Mean U.S. Technology Controls Have Failed?**\
+`DeepSeek’s A.I. models show that China is making rapid gains in the field, despite American efforts to hinder it.`\
+https://nytimes.com/2025/01/28/business/economy/deepseek-china-us-chip-controls.html
+
+**Heat Today: Kevin Love has become Heat's meme man during Jimmy Butler drama**\
+`The veteran has mastered the art of levity amid tense times in Miami.`\
+https://nytimes.com/athletic/6094807/2025/01/28/jimmy-butler-heat-trade-rumors-kevin-love/
+
 **Marshall Project Names Katrice Hardy as Chief Executive**\
 `Ms. Hardy, now the executive editor of The Dallas Morning News, will lead the business and newsroom sides of nonprofit news organization.`\
 https://nytimes.com/2025/01/28/business/media/marshall-project-katrice-hardy.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/28/learning/11-teacher-approved-strategies-to-engage
 **Cool-Kid Restaurateur Andrew Tarlow Goes Grown-Up at Borgo**\
 `For his first Manhattan restaurant, elegance and timelessness replace the Brooklyn hipness that powered his previous places.`\
 https://nytimes.com/2025/01/28/dining/borgo-andrew-tarlow-nyc-restaurant-review.html
-
-**Watch: Why Pete Carroll appointment raises the Raiders' floor**\
-`The Las Vegas Raiders hired Pete Carroll as their new head coach, The Athletic Football Show hosts discuss the hire.`\
-https://nytimes.com/athletic/6093905/2025/01/28/athletic-football-show-raiders-pete-carroll/
-
-**Mercury to acquire Alyssa Thomas in sign and trade with Sun: Source**\
-`The Sun gave Thomas the core designation earlier in January, meaning the only way for Thomas to be moved was via a sign-and-trade`\
-https://nytimes.com/athletic/6095146/2025/01/28/alyssa-thomas-trade-phoenix-mercury-connecticut-sun-wnba/
-
-**Jake, Logan Paul tease head-to-head match slated for March 27 on Max**\
-`There is skepticism surrounding the announcement given that there is no explicit mention of a fight in the brothers' social media posts.`\
-https://nytimes.com/athletic/6095067/2025/01/28/jake-paul-logan-fight-brother/
-
-**Trudeau Government Left Canada Vulnerable to Foreign Interference, Report Finds**\
-`Prime Minister Justin Trudeau should have acted quicker to protect Canadian elections from outside meddling, a government commission said, shaking trust in democratic institutions.`\
-https://nytimes.com/2025/01/28/world/canada/canada-elections-foreign-interference-inquiry.html
-
-**California Historical Society to Dissolve and Transfer Collections to Stanford**\
-`The society faced financial challenges that were exacerbated by the coronavirus pandemic. Its nearly 600,000 items stretch back before the Gold Rush.`\
-https://nytimes.com/2025/01/28/arts/california-historical-society-stanford.html
 
