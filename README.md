@@ -1,3 +1,15 @@
+**Why facing Liverpool could be make or break for USMNT's Ricardo Pepi**\
+`The Texan has been prolific this season in Eindhoven, even when largely used off the bench - and suitors have taken note of Pepi’s progress`\
+https://nytimes.com/athletic/6094093/2025/01/28/pepi-usmnt-psv-liverpool-champions-league/
+
+**Tiny Love Stories: ‘I Know You Don’t Watch the News’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/01/28/style/tiny-modern-love-stories-i-know-you-dont-watch-the-news.html
+
+**It’s Dumpling Week!**\
+`And I think we need a moment for these chile oil wontons from Sue Li, which look so, so good.`\
+https://nytimes.com/2025/01/28/dining/its-dumpling-week.html
+
 **Inside Trump’s Renewed Effort to Undo a Major Climate Rule**\
 `A rule known as the endangerment finding requires the E.P.A. to regulate greenhouse gases. It has proved resilient against earlier attacks.`\
 https://nytimes.com/2025/01/28/climate/trump-endangerment-finding-epa.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/28/business/trump-federal-freeze-grants-student-loan
 **Giorgia Meloni Investigated for Italy’s Release of Libyan Wanted for War Crimes**\
 `The Italian prime minister announced the investigation herself over social media, calling it “blackmail.”`\
 https://nytimes.com/2025/01/28/world/europe/italy-meloni-investigation-libya-war-crimes.html
-
-**Senate Democrats are outraged at Trump’s federal funding pause.**\
-`Senator Patty Murray of Washington called on Republicans to halt the nomination of Russell Vought, Trump’s pick to lead the Office of Management and Budget.`\
-https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/senate-democrats-are-outraged-at-trumps-federal-funding-pause
-
-**Rwanda, the West’s ‘Donor Darling,’ Seizes an Opportunity in Congo**\
-`A conflict that has raged for decades reached a flashpoint this week when rebels backed by Rwanda marched on a key Congolese city in a bid to occupy territory and exploit minerals.`\
-https://nytimes.com/2025/01/28/world/africa/rwanda-congo-goma-conflict.html
-
-**Van Dijk, Salah, among key players rested for Liverpool's trip to PSV**\
-`Liverpool are travelling to PSV Eindhoven without the bulk of their first-team squad after deciding to rest a number of big-hitters.`\
-https://nytimes.com/athletic/6094672/2025/01/28/liverpool-team-news-psv-champions-league/
 
