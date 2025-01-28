@@ -1,3 +1,7 @@
+**Khusanov's tough beginning to life in the Premier League: How soon is too soon to start?**\
+`Saturday was supposed to be a landmark day for the 20-year-old, the test now is how he recovers from the early setbacks of his debut`\
+https://nytimes.com/athletic/6089280/2025/01/28/khusanov-man-city-debut-chelsea/
+
 **Tuesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/28/briefing/nvidia-gaza-trump.html
