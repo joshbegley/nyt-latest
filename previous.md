@@ -1,3 +1,7 @@
+**Chastened by Past Wars, Kremlin Tries to Elevate Its Veterans**\
+`Russians who fought in Chechnya and Afghanistan came home to silence and stigma. There’s a very public push to make things different this time.`\
+https://nytimes.com/2025/01/28/world/europe/russia-ukraine-veterans.html
+
 **Live Q&A with Keith Law about his top 100 MLB prospects list at 1 pm ET**\
 `Law will discuss his new top-100 list, as well as MLB prospects and news.`\
 https://nytimes.com/athletic/6089277/2025/01/28/mlb-prospects-live-chat-keith-law/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/climate/trump-endangered-species-god-squad.html
 **A Charlie Chaplin Movie Like You’ve Never Seen It Before**\
 `The Museum of Modern Art has worked on a meticulous restoration of Chaplin’s 1918 film “Shoulder Arms,” screening on Thursday, that likely differs in every frame from what viewers have seen.`\
 https://nytimes.com/2025/01/28/movies/charlie-chaplin-movie-restoration-shoulder-arms.html
-
-**The Fed Is About to Hit Pause on Rate Cuts. Here’s Why.**\
-`Faced with a solid economy and mounting inflation concerns, the U.S. central bank has said it will “move cautiously” on cutting interest rates.`\
-https://nytimes.com/2025/01/28/business/the-fed-is-about-to-hit-pause-on-rate-cuts-heres-why.html
 
