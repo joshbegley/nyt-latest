@@ -1,3 +1,11 @@
+**Israel Says 8 of the 26 Hostages Listed for Imminent Release Are Dead**\
+`An accounting provided by Hamas over the weekend confirmed intelligence assessments, Israeli officials said.`\
+https://nytimes.com/2025/01/28/world/middleeast/israel-hostages-dead-hamas.html
+
+**Ask Us Anything About Our Reporting on the Trump Administration**\
+`Times journalists will answer your questions about our coverage.`\
+https://nytimes.com/2025/01/28/insider/ask-us-anything-about-times-reporting-on-the-trump-administration.html
+
 **Order to pause federal spending creates deep uncertainty for schools, nonprofits and companies.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/trump-freeze-funding
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/business/deepseek-owner-china-ai.html
 **Pistons' lack of a secondary creator next to Cade Cunningham is a glaring problem**\
 `On a night in Cleveland when Cunningham struggled with his shot, Detroit lacked other answers. Can it find one before the trade deadline?`\
 https://nytimes.com/athletic/6093647/2025/01/28/pistons-cade-cunningham-jaden-ivey-cavaliers-loss/
-
-**Penguins Today: Injury, ownership and lottery odds — oh my!**\
-`It's been quite a week, and it's only Tuesday. Let's process it all together.`\
-https://nytimes.com/athletic/6094309/2025/01/28/penguins-today-fsg-ownership-malkin-injury/
-
-**Senator Gary Peters, Michigan Democrat, Says He Won’t Run Again in 2026**\
-`His decision makes the already tough Senate map for Democrats even tougher: They will need to defend an open seat in a battleground state that President Trump carried in 2024.`\
-https://nytimes.com/2025/01/28/us/politics/gary-peters-michigan-senate-2026.html
 
