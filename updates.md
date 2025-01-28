@@ -1,3 +1,15 @@
+**Al Nassr to decide between deal for Boniface or Duran**\
+`Saudi Arabian side Al Nassr will decide on Wednesday whether to try to close a deal for Bayer Leverkusen&#8217;s Victor Boniface or Aston Villa&#8217;s Jhon Duran as they seek to add a striker to their squad.`\
+https://nytimes.com/athletic/6075913/2025/01/28/boniface-duran-al-nassr-transfer/
+
+**Schools Panic as Trump Administration Demands Scrutiny of Education Programs**\
+`The Trump administration has paused federal dollars to some grantees as it tries to uproot policies like diversity, equity and inclusion. Schools and universities are worried important programs could be halted.`\
+https://nytimes.com/2025/01/28/us/schools-panic-trump-federal-pause.html
+
+**Inside a Chaotic U.S. Deportation Flight to Brazil**\
+`The Trump administration’s first flight deporting Brazilians involved aborted takeoffs, sweltering heat, emergency exits and shackled deportees on a wing.`\
+https://nytimes.com/2025/01/28/world/americas/us-brazil-deportations.html
+
 **Trump’s Order on Transgender Troops Will Likely Ban Their Service, Again**\
 `In an executive order issued Monday night, the president said transgender service members “cannot satisfy the rigorous standards necessary” for the military.`\
 https://nytimes.com/2025/01/28/us/politics/trump-transgender-troops.html
