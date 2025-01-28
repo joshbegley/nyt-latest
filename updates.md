@@ -1,3 +1,11 @@
+**Hundreds of Protesters Attack Foreign Embassies in Congo**\
+`Protesters set fires and looted foreign embassies in the Democratic Republic of Congo’s capital, Kinshasa, amid anger at foreign allies over what many see as failure to stop an assault by M23, a Rwanda-backed militia group, on the city of Goma.`\
+https://nytimes.com/video/world/africa/100000009953680/congo-protests-embassies.html
+
+**Jose Altuve could split time between second base and left field in 2025**\
+`Altuve, who stands 5-foot-6, has never played the outfield at any point over his more than 15,000 defensive innings.`\
+https://nytimes.com/athletic/6094941/2025/01/28/jose-altuve-2025-position-change/
+
 **MLS revamps North American cups, all 30 teams to participate**\
 `The Open Cup is undergoing changes for 2025 and 2026 but the long-term future of the tournament remains unclear.`\
 https://nytimes.com/athletic/6080818/2025/01/28/mls-north-american-cup-competitions/
