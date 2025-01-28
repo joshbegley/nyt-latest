@@ -1,3 +1,7 @@
+**Oklahoma Moves to Require Schools to Ask Students’ Immigration Status**\
+`The rule would not block undocumented students from enrolling, but it would supply the Trump administration with information to aid immigration enforcement.`\
+https://nytimes.com/2025/01/28/us/oklahoma-schools-immigration.html
+
 **Kings listening to trade offers for De'Aaron Fox: Source**\
 `Fox is known to have a preferred trade destination that his associates are not yet revealing.`\
 https://nytimes.com/athletic/6095410/2025/01/28/deaaron-fox-kings-trade-open-nba/
