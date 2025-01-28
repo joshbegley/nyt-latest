@@ -1,3 +1,11 @@
+**Elon Musk’s Bizarre, Frightening Obsession With Britain**\
+`The billionaire’s interest goes beyond trolling.`\
+https://nytimes.com/2025/01/28/opinion/elon-musk-britain-trump.html
+
+**Why China Loves Trump’s Right-Wing Wokeism**\
+`The president’s energy policies may not make America great again, but they will definitely help make China great again.`\
+https://nytimes.com/2025/01/28/opinion/deepseek-ai-trump.html
+
 **'Un-be-liev-able': How Szoboszlai became essential for Liverpool**\
 `The Hungarian has made himself into a key player for Arne Slot's side, one who is difficult to replace when he is not in the team`\
 https://nytimes.com/athletic/6092094/2025/01/28/dominik-szoboszlai-liverpool-form/
