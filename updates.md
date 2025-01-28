@@ -1,3 +1,15 @@
+**Reform U.K. is Said to Land Over $1 Million in Populist Show of Force**\
+`Nigel Farage’s party is reshaping British conservatism and showing that it can raise money to do so.`\
+https://nytimes.com/2025/01/28/world/europe/reform-uk-nigel-farage.html
+
+**MLS revamps North American cups, all 30 teams to participate**\
+`The Open Cup is undergoing changes for 2025 and 2026 but the long-term future of the tournament remains unclear.`\
+https://nytimes.com/athletic/6080818/2025/01/28/mls-north-american-cup-competitions/
+
+**Hacking Democracy: How Elon Musk Is Disrupting European Politics**\
+`The richest man in the world is backing far-right parties against a political establishment that has failed to deliver.`\
+https://nytimes.com/2025/01/28/world/europe/hacking-democracy-elon-musk-europe.html
+
 **Hundreds of Protesters Attack Foreign Embassies in Congo**\
 `Protesters set fires and looted foreign embassies in the Democratic Republic of Congo’s capital, Kinshasa, amid anger at foreign allies over what many see as failure to stop an assault by M23, a Rwanda-backed militia group, on the city of Goma.`\
 https://nytimes.com/video/world/africa/100000009953680/congo-protests-embassies.html
