@@ -1,3 +1,11 @@
+**'Un-be-liev-able': How Szoboszlai became essential for Liverpool**\
+`The Hungarian has made himself into a key player for Arne Slot's side, one who is difficult to replace when he is not in the team`\
+https://nytimes.com/athletic/6092094/2025/01/28/dominik-szoboszlai-liverpool-form/
+
+**Aston Villa are short at centre-back - there is now urgency in the transfer window**\
+`After Diego Carlos' exit and Mings' injury, Unai Emery's squad is short in central defence - Juan Foyth and Axel Disasi are both targets`\
+https://nytimes.com/athletic/6090891/2025/01/28/aston-villa-are-short-at-centre-back-there-is-now-urgency-in-the-transfer-window/
+
 **Will Everton's mounting injuries change plans and speed up action in transfer window?**\
 `David Moyes' squad is depleted and signings are needed - how much business will Everton do before the window closes?`\
 https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tfg/

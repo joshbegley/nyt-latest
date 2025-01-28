@@ -1,3 +1,11 @@
+**'Un-be-liev-able': How Szoboszlai became essential for Liverpool**\
+`The Hungarian has made himself into a key player for Arne Slot's side, one who is difficult to replace when he is not in the team`\
+https://nytimes.com/athletic/6092094/2025/01/28/dominik-szoboszlai-liverpool-form/
+
+**Aston Villa are short at centre-back - there is now urgency in the transfer window**\
+`After Diego Carlos' exit and Mings' injury, Unai Emery's squad is short in central defence - Juan Foyth and Axel Disasi are both targets`\
+https://nytimes.com/athletic/6090891/2025/01/28/aston-villa-are-short-at-centre-back-there-is-now-urgency-in-the-transfer-window/
+
 **Will Everton's mounting injuries change plans and speed up action in transfer window?**\
 `David Moyes' squad is depleted and signings are needed - how much business will Everton do before the window closes?`\
 https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tfg/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6091331/2025/01/28/footballer-seagull-celebration/
 **One kick-off time, 18 matches: Our writers pick the Champions League game they will be watching**\
 `With 18 games kicking off at the same time on Wednesday, The Athletic writers explain which one they are most looking forward to - and why`\
 https://nytimes.com/athletic/6085544/2025/01/28/champions-league-game-to-watch/
-
-**Man City signing Juma Bah - the Sierra Leone teenager who paid his own €6m release clause in Spain**\
-`Six months ago, the 18-year-old centre-back was playing in Sierra Leone - and he only joined Real Valladolid permanently 26 days ago`\
-https://nytimes.com/athletic/6092367/2025/01/28/man-city-transfer-juma-bah-valladolid-release-clause/
-
-**Khusanov's tough beginning to life in the Premier League: How soon is too soon to start?**\
-`Saturday was supposed to be a landmark day for the 20-year-old, the test now is how he recovers from the early setbacks of his debut`\
-https://nytimes.com/athletic/6089280/2025/01/28/khusanov-man-city-debut-chelsea/
 
