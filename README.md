@@ -1,3 +1,15 @@
+**Marshall Project Names Katrice Hardy as Chief Executive**\
+`Ms. Hardy, now the executive editor of The Dallas Morning News, will lead the business and newsroom sides of nonprofit news organization.`\
+https://nytimes.com/2025/01/28/business/media/marshall-project-katrice-hardy.html
+
+**State officials report being locked out of the federal Medicaid payment system.**\
+`By Sarah Kliff`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/medicaid-freeze
+
+**Five deaths in Leicester helicopter crash were accidental, inquest finds**\
+`An inquest into the 2018 helicopter crash outside Leicester City’s King Power Stadium has found the deaths of five people, including the club’s chairman Vichai Srivaddhanaprabha, were accidental.`\
+https://nytimes.com/athletic/6094596/2025/01/28/leicester-helicopter-crash-vichai/
+
 **11 Teacher-Approved Strategies to Engage Students With The New York Times**\
 `Looking for new ways to get students reading and responding to nonfiction? Try these exercises for discussion, writing and speaking.`\
 https://nytimes.com/2025/01/28/learning/11-teacher-approved-strategies-to-engage-students-with-the-new-york-times.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/28/world/canada/canada-elections-foreign-interferenc
 **California Historical Society to Dissolve and Transfer Collections to Stanford**\
 `The society faced financial challenges that were exacerbated by the coronavirus pandemic. Its nearly 600,000 items stretch back before the Gold Rush.`\
 https://nytimes.com/2025/01/28/arts/california-historical-society-stanford.html
-
-**Reform U.K. is Said to Land Over $1 Million in Populist Show of Force**\
-`Nigel Farage’s party is reshaping British conservatism and showing that it can raise money to do so.`\
-https://nytimes.com/2025/01/28/world/europe/reform-uk-nigel-farage.html
-
-**MLS revamps North American cups, all 30 teams to participate**\
-`The Open Cup is undergoing changes for 2025 and 2026 but the long-term future of the tournament remains unclear.`\
-https://nytimes.com/athletic/6080818/2025/01/28/mls-north-american-cup-competitions/
-
-**Hacking Democracy: How Elon Musk Is Disrupting European Politics**\
-`The richest man in the world is backing far-right parties against a political establishment that has failed to deliver.`\
-https://nytimes.com/2025/01/28/world/europe/hacking-democracy-elon-musk-europe.html
 
