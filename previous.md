@@ -1,3 +1,7 @@
+**India and China Agree to Resume Direct Flights After Nearly Five Years**\
+`It was the latest thaw in relations between the two countries, whose troops were involved in deadly skirmishes high in the Himalayas in 2020.`\
+https://nytimes.com/2025/01/28/world/asia/india-china-direct-flights.html
+
 **Love hurts: Unranked Arizona stuns No. 3 Iowa State in overtime**\
 `The unexpected win gives the Wildcats sole possession of second place in the Big 12 at 8-1.`\
 https://nytimes.com/athletic/6093742/2025/01/28/arizona-stuns-iowa-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/opinion/deepseek-ai-trump.html
 **'Un-be-liev-able': How Szoboszlai became essential for Liverpool**\
 `The Hungarian has made himself into a key player for Arne Slot's side, one who is difficult to replace when he is not in the team`\
 https://nytimes.com/athletic/6092094/2025/01/28/dominik-szoboszlai-liverpool-form/
-
-**Aston Villa are short at centre-back - there is now urgency in the transfer window**\
-`After Diego Carlos' exit and Mings' injury, Unai Emery's squad is short in central defence - Juan Foyth and Axel Disasi are both targets`\
-https://nytimes.com/athletic/6090891/2025/01/28/aston-villa-are-short-at-centre-back-there-is-now-urgency-in-the-transfer-window/
 

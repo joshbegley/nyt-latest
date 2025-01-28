@@ -1,3 +1,7 @@
+**India and China Agree to Resume Direct Flights After Nearly Five Years**\
+`It was the latest thaw in relations between the two countries, whose troops were involved in deadly skirmishes high in the Himalayas in 2020.`\
+https://nytimes.com/2025/01/28/world/asia/india-china-direct-flights.html
+
 **Love hurts: Unranked Arizona stuns No. 3 Iowa State in overtime**\
 `The unexpected win gives the Wildcats sole possession of second place in the Big 12 at 8-1.`\
 https://nytimes.com/athletic/6093742/2025/01/28/arizona-stuns-iowa-state/
