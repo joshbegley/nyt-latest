@@ -1,3 +1,7 @@
+**Protesters Attack Embassies in Congo Amid Fury Over Rebel Violence**\
+`Many blame the United States, France and other allies for allowing neighboring Rwanda to fuel a conflict in the country’s east.`\
+https://nytimes.com/2025/01/28/world/africa/congo-protesters-embassies-rebels-rwanda.html
+
 **Russian Envoys Arrive in Syria for First Time Since al-Assad Fell**\
 `Russia’s deputy foreign minister and a special presidential envoy for Syria arrived in Damascus on Tuesday, according to Russian state news.`\
 https://nytimes.com/2025/01/28/world/europe/russia-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035347/2025/01/28/evan-ferguson-transfer-brighton-
 **Arsenal appeal against Lewis-Skelly red card**\
 `Arsenal have appealed against the red card issued to Myles Lewis-Skelly during their 1-0 victory over Wolverhampton Wanderers on Saturday.`\
 https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-card/
-
-**Clippers trade tiers: What to watch with LA before the Feb. 6 deadline**\
-`Who could be moved before the NBA trade deadline for the Clippers? And for what deal? Here are some trade tiers.`\
-https://nytimes.com/athletic/6093053/2025/01/28/clippers-nba-trade-deadline-tiers/
 
