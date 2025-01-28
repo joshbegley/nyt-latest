@@ -1,3 +1,11 @@
+**Federal Judge Blocks Trump’s Freeze of Federal Grant Funds**\
+`A judge in Washington, D.C., has sided with activists who claimed the White House’s freezing of billions of dollars in already approved funding violated the law.`\
+https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-blocked.html
+
+**Trump Fired E.E.O.C. Commissioners in Late-Night Purge**\
+`The removals of the commissioners, along with the general counsel, came during a whirlwind of actions since Mr. Trump was sworn into office, with many aimed at diversity policies.`\
+https://nytimes.com/2025/01/28/business/trump-eeoc-commissioners-fired.html
+
 **Sprawling Storm Brings Risk of Flooding Rains to Part of Central U.S.**\
 `Some of the most severe weather is expected on Thursday in East Texas.`\
 https://nytimes.com/2025/01/28/weather/texas-louisiana-rain-flood-forecast.html
