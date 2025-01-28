@@ -1,3 +1,7 @@
+**Woman in Disguise Took U.K. Citizenship Test for Others, Authorities Say**\
+`A 61-year-old woman was arrested after impersonating at least 14 people over the course of more than a year, the authorities said.`\
+https://nytimes.com/2025/01/28/world/europe/uk-citizenship-test-fraud-arrest.html
+
 **Why facing Liverpool could be make or break for USMNT's Ricardo Pepi**\
 `The Texan has been prolific this season in Eindhoven, even when largely used off the bench - and suitors have taken note of Pepi’s progress`\
 https://nytimes.com/athletic/6094093/2025/01/28/pepi-usmnt-psv-liverpool-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/arts/television/paradise-hulu-sterling-k-brown.ht
 **The Federal Funding Pause Does Not Apply to Student Loans and Pell Grants**\
 `Students and parents panicked after news of the order, but the Education Department said the guidance would not stop the flow of money to students and schools.`\
 https://nytimes.com/2025/01/28/business/trump-federal-freeze-grants-student-loans.html
-
-**Giorgia Meloni Investigated for Italy’s Release of Libyan Wanted for War Crimes**\
-`The Italian prime minister announced the investigation herself over social media, calling it “blackmail.”`\
-https://nytimes.com/2025/01/28/world/europe/italy-meloni-investigation-libya-war-crimes.html
 
