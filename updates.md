@@ -1,3 +1,7 @@
+**Love hurts: Unranked Arizona stuns No. 3 Iowa State in overtime**\
+`The unexpected win gives the Wildcats sole possession of second place in the Big 12 at 8-1.`\
+https://nytimes.com/athletic/6093742/2025/01/28/arizona-stuns-iowa-state/
+
 **Word of the Day: truncate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/28/learning/word-of-the-day-truncate.html
