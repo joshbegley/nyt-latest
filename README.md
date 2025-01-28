@@ -1,3 +1,7 @@
+**F.D.A. Approves Ozempic to Treat Kidney Disease**\
+`The decision will further broaden the use of the blockbuster drug.`\
+https://nytimes.com/2025/01/28/well/ozempic-kidney-disease.html
+
 **Mauricio Funes, Salvadoran President Who Fled to Nicaragua, Dies at 65**\
 `He was a popular TV journalist when elected as El Salvador’s first modern-day leftist leader in 2009, but he went into exile hounded by corruption charges.`\
 https://nytimes.com/2025/01/28/world/americas/mauricio-funes-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095006/2025/01/28/kieran-tierney-celtic-transfer-a
 **Chiefs-Bills smashes TV ratings, averages 57.7 million viewers**\
 `Sunday's clash ranks as the most-watched AFC Championship Game as fans tuned in to see the Chiefs beat the Bills.`\
 https://nytimes.com/athletic/6094872/2025/01/28/bills-chiefs-tv-ratings-afc-championship-cbs/
-
-**Melania Trump’s New Portrait Breaks With the Past**\
-`The official FLOTUS photograph has arrived, and it sends a different message from any that have come before.`\
-https://nytimes.com/2025/01/28/style/melania-trump-portrait-first-lady.html
 
