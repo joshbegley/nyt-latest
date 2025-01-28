@@ -1,3 +1,11 @@
+**Denmark Announces More Spending on Security Around Greenland**\
+`The country said that it would bolster measures near its North Atlantic territories, which also include the Faroe Islands, promising to buy ships and increase basic military training.`\
+https://nytimes.com/2025/01/28/world/europe/greenland-trump-denmark-security.html
+
+**With game-winner over Celtics, Amen Thompson announces himself as a star**\
+`The Celtics had no answer for Thompson as Houston continued to soar past expectations.`\
+https://nytimes.com/athletic/6093586/2025/01/28/amen-thompson-rockets-celtics/
+
 **Homeland Security Begins Immigration Enforcement Operation in New York**\
 `The agency’s new secretary, Kristi Noem, announced that she was on hand to witness the arrest of an unauthorized immigrant connected to criminal activity.`\
 https://nytimes.com/2025/01/28/nyregion/ice-raid-nyc-noem.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6091761/2025/01/28/mlb-top-100-prospects-the-pulse/
 **Bowden: 12 MLB breakout candidates I'm excited to scout in spring training**\
 `I reached out to all 30 MLB teams recently to learn which players their organization's evaluators think could break out in 2025. `\
 https://nytimes.com/athletic/6092048/2025/01/28/mlb-breakout-players-2025/
-
-**The Athletic FC: Curious case of Bah and Man City, Messi ally handed power at Inter Miami**\
-`Today in TAFC: Juma Bah, Man City and a row over his transfer. Plus: Messi's confidant gets promotion at Inter Miami and Coote speaks out.`\
-https://nytimes.com/athletic/6093879/2025/01/28/bah-man-city-messi-sanllehi-inter-miami/
-
-**Mark Davis hopeful new coach Pete Carroll and GM John Spytek can turn Raiders around**\
-`The Raiders owner expects that Carroll and Spytek will be the right fits for their jobs — and will be with the team for the duration. `\
-https://nytimes.com/athletic/6093047/2025/01/28/mark-davis-raiders-pete-carroll-john-spytek/
 

@@ -1,3 +1,11 @@
+**Denmark Announces More Spending on Security Around Greenland**\
+`The country said that it would bolster measures near its North Atlantic territories, which also include the Faroe Islands, promising to buy ships and increase basic military training.`\
+https://nytimes.com/2025/01/28/world/europe/greenland-trump-denmark-security.html
+
+**With game-winner over Celtics, Amen Thompson announces himself as a star**\
+`The Celtics had no answer for Thompson as Houston continued to soar past expectations.`\
+https://nytimes.com/athletic/6093586/2025/01/28/amen-thompson-rockets-celtics/
+
 **Homeland Security Begins Immigration Enforcement Operation in New York**\
 `The agency’s new secretary, Kristi Noem, announced that she was on hand to witness the arrest of an unauthorized immigrant connected to criminal activity.`\
 https://nytimes.com/2025/01/28/nyregion/ice-raid-nyc-noem.html
