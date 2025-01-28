@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botm
 
 **Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
 `The Athletic spoke to the project lead for the redeveloped Racecourse`\
-https://nytimes.com/athletic/6077794/2025/01/28/populous-on-their-designs-for-wrexhams-new-home-the-plan-is-to-create-a-real-cauldron/
+https://nytimes.com/athletic/6077794/2025/01/28/wrexham-new-stadium-populous/
 
