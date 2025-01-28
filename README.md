@@ -1,3 +1,7 @@
+**Trump Administration Puts Dozens of USAID Officials on Paid Leave**\
+`An email to the aid agency’s employees cited actions “that appear to be designed to circumvent” an executive order by President Trump.`\
+https://nytimes.com/2025/01/27/us/politics/trump-usaid-officials.html
+
 **Your Guide to the DeepSeek Freakout: an Emergency Pod**\
 `“I think this is a big moment in the history of A.I. development”`\
 https://nytimes.com/2025/01/27/podcasts/your-guide-to-the-deepseek-freakout-an-emergency-pod.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/27/us/politics/bessent-senate-confirmati
 **Fenway Sports Group looking to expand Penguins ownership group: Sources**\
 `FSG, which owns several other properties, including the Boston Red Sox and Liverpool FC, plans to maintain controlling interest of Penguins.`\
 https://nytimes.com/athletic/6093260/2025/01/27/fenway-sports-group-looking-to-expand-penguins-ownership-group-sources/
-
-**Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
-`The president, who was found liable for sexually abusing the writer E. Jean Carroll, is contending that he doesn’t have to pay the $83 million he owes for defaming her.`\
-https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
 
