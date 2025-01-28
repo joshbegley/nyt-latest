@@ -1,10 +1,18 @@
-**Bannon Accuses Manhattan D.A. of Being ‘Vindictive’ in Fraud Case**\
-`The former Trump adviser, who faces trial in March, said that he was singled out for his politics. He took aim at the district attorney in much the way the president has.`\
-https://nytimes.com/2025/01/28/nyregion/bannon-fraud-filing-politics.html
+**Sprawling Storm Brings Risk of Flooding Rains to Part of Central U.S.**\
+`Some of the most severe weather is expected on Thursday in East Texas.`\
+https://nytimes.com/2025/01/28/weather/texas-louisiana-rain-flood-forecast.html
 
 **Smithsonian Closes Diversity Office After Trump’s Executive Order**\
 `The museum’s move followed a similar one last week by the National Gallery, as museums try to comply with an executive order that called diversity programs “illegal and immoral.”`\
 https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.html
+
+**Doomsday Clock Moves One Second Closer to Catastrophe**\
+`The Bulletin of the Atomic Scientists shifted the hands of the symbolic clock to 89 seconds to midnight, citing the threat of climate change, nuclear war and the misuse of artificial intelligence.`\
+https://nytimes.com/2025/01/28/us/doomsday-clock-2025.html
+
+**Bannon Accuses Manhattan D.A. of Being ‘Vindictive’ in Fraud Case**\
+`The former Trump adviser, who faces trial in March, said that he was singled out for his politics. He took aim at the district attorney in much the way the president has.`\
+https://nytimes.com/2025/01/28/nyregion/bannon-fraud-filing-politics.html
 
 **Senate Confirms Sean Duffy as Transportation Secretary**\
 `Mr. Duffy, a former congressman who had appeared on track to sail through with little opposition, overcame a last-minute swell of Democratic anger over the White House’s sweeping funding freeze.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/health/funding-freeze-wic-nutrition.html
 **Mets notes: What would their lineup look like without Pete Alonso?**\
 `The Mets could shift their attention to the bullpen and might add someone who could provide infield depth.`\
 https://nytimes.com/athletic/6095373/2025/01/28/mets-pete-alonso-update-lineup/
-
-**Scott Laughton, still in trade rumors, returns to Flyers lineup after family tragedy**\
-`Laughton revealed that he missed the previous three games before Monday due to the sudden and unexpected death of his father-in-law.`\
-https://nytimes.com/athletic/6095288/2025/01/28/scott-laughton-flyers-nhl-trade-rumors/
-
-**Trump’s Funding Freeze Prompts Gentle Warning From Eric Adams**\
-`Mayor Adams of New York, a Democrat who has taken pains to ally himself with President Trump, said his administration was “assessing the full reach” of the directive.`\
-https://nytimes.com/2025/01/28/nyregion/eric-adams-trump-freeze.html
 
