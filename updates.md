@@ -1,3 +1,7 @@
+**Tenacious Flyers take another 'growing step' in holding off Devils again**\
+`The Flyers kept their composure after what could have been a deflating goal to dispatch the Devils for the second time in 10 days.`\
+https://nytimes.com/athletic/6093568/2025/01/27/flyers-ersson-hathaway-devils-tortorella/
+
 **Quinn Hughes' wizardry, Tyler Myers' return power Canucks win vs. Blues: 3 takeaways**\
 `The Canucks hadn't won back-to-back games since Dec. 1, but looked more like their old selves against the Blues.`\
 https://nytimes.com/athletic/6093358/2025/01/27/canucks-hughes-myers-consecutive-wins-blues/
