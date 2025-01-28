@@ -1,3 +1,11 @@
+**Astros GM Dana Brown details "fracture" in relationship with Ryan Pressly**\
+`Pressly never aired any grievances publicly and continued to serve as a model teammate throughout his uneven 2024 season. `\
+https://nytimes.com/athletic/6094928/2025/01/28/astros-gm-dana-brown-ryan-pressly-relationship/
+
+**Cowboys hire Matt Eberflus as defensive coordinator: Sources**\
+`Eberflus spent the last three years as the head coach of the Chicago Bears.`\
+https://nytimes.com/athletic/6087515/2025/01/28/cowboys-matt-eberflus-defensive-coordinator/
+
 **Kennedy, in His Own Words: Flu, Diabetes, Autism and More**\
 `Robert F. Kennedy Jr., President Trump’s nominee for health secretary, doesn’t just hold fringe views on vaccines. We fact-checked five recent statements.`\
 https://nytimes.com/2025/01/28/health/rfk-jr-vaccines-autism-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/health/caroline-kennedy-rfk-jr-hhs-confirmation.h
 **Woman in Disguise Took U.K. Citizenship Test for Others, Authorities Say**\
 `A 61-year-old woman was arrested after impersonating at least 14 people over the course of more than a year, the authorities said.`\
 https://nytimes.com/2025/01/28/world/europe/uk-citizenship-test-fraud-arrest.html
-
-**Why facing Liverpool could be make or break for USMNT's Ricardo Pepi**\
-`The Texan has been prolific this season in Eindhoven, even when largely used off the bench - and suitors have taken note of Pepi’s progress`\
-https://nytimes.com/athletic/6094093/2025/01/28/pepi-usmnt-psv-liverpool-champions-league/
-
-**Tiny Love Stories: ‘I Know You Don’t Watch the News’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/01/28/style/tiny-modern-love-stories-i-know-you-dont-watch-the-news.html
 

@@ -1,3 +1,11 @@
+**Astros GM Dana Brown details "fracture" in relationship with Ryan Pressly**\
+`Pressly never aired any grievances publicly and continued to serve as a model teammate throughout his uneven 2024 season. `\
+https://nytimes.com/athletic/6094928/2025/01/28/astros-gm-dana-brown-ryan-pressly-relationship/
+
+**Cowboys hire Matt Eberflus as defensive coordinator: Sources**\
+`Eberflus spent the last three years as the head coach of the Chicago Bears.`\
+https://nytimes.com/athletic/6087515/2025/01/28/cowboys-matt-eberflus-defensive-coordinator/
+
 **Kennedy, in His Own Words: Flu, Diabetes, Autism and More**\
 `Robert F. Kennedy Jr., President Trump’s nominee for health secretary, doesn’t just hold fringe views on vaccines. We fact-checked five recent statements.`\
 https://nytimes.com/2025/01/28/health/rfk-jr-vaccines-autism-video.html
