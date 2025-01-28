@@ -1,3 +1,7 @@
+**'The floor has risen': Commanders looking ahead as they work through season-ending pain**\
+`Dan Quinn and Adam Peters held their end-of-season news conference to discuss the team's next steps following the NFC championship loss.`\
+https://nytimes.com/athletic/6093239/2025/01/27/commanders-dan-quinn-adam-peters-locker-cleanout/
+
 **Your Guide to the DeepSeek Freakout: An Emergency Pod**\
 `“I think this is a big moment in the history of A.I. development”`\
 https://nytimes.com/2025/01/27/podcasts/your-guide-to-the-deepseek-freakout-an-emergency-pod.html
