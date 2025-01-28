@@ -1,3 +1,23 @@
+**Mark Zuckerberg Joins the Business Roundtable**\
+`Meta’s chief executive has become a more visible presence in Washington since President Trump’s return to office after years of avoiding politics.`\
+https://nytimes.com/2025/01/28/business/zuckerberg-meta-business-roundtable.html
+
+**Cubs acquire Ryan Pressly as Astros cover $5.5 million of salary to complete trade**\
+`The Astros will cover $5.5 million of Pressly’s $14 million salary, according to a league source, and receive pitcher Juan Bello in return.`\
+https://nytimes.com/athletic/6094472/2025/01/28/cubs-astros-trade-ryan-pressly-finalized/
+
+**At 85, This Maestro Finally Has His Philharmonic Debut**\
+`The renowned conductor Marek Janowski long ago gave up hope that he might conduct the New York Philharmonic. Then the orchestra came knocking.`\
+https://nytimes.com/2025/01/28/arts/music/marek-janowski-conductor.html
+
+**Many Ukrainian Aid Groups Stop Work After Trump’s Halt on Foreign Assistance**\
+`The Trump administration’s orders have sent a chill through humanitarian organizations in Ukraine, which depend heavily on such assistance.`\
+https://nytimes.com/2025/01/28/world/europe/ukraine-trump-aid-freeze.html
+
+**Inside China, DeepSeek Provides a National Mic Drop Moment**\
+`Social media exploded in a celebration after the news that a Chinese start-up had made an artificial intelligence tool that was more efficient than any in the United States.`\
+https://nytimes.com/2025/01/28/business/deepseek-china-reaction.html
+
 **Trump Orders an ‘Iron Dome’-Style Defense System. Experts Are Skeptical.**\
 `An executive order said the United States faced a “catastrophic threat” from advanced aerial weapons. But a defense system like Israel’s may not be feasible in the country, which is more than 400 times larger.`\
 https://nytimes.com/2025/01/28/us/politics/trump-iron-dome-defense-system-feasibility.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/28/us/wildfires-three-weeks.html
 **What Is M23, the Rwandan-Backed Group Fighting in Eastern Congo?**\
 `The militia seized the pivotal city of Goma, threatening a new humanitarian crisis in a region that has suffered decades of fighting.`\
 https://nytimes.com/2025/01/28/world/africa/congo-m23-rwanda.html
-
-**The Bulls and the NBA trade deadline: 6 names to watch as Chicago looks for answers**\
-`Here’s a look at the six Bulls who have the most trade value and why their individual circumstances warrant trades.`\
-https://nytimes.com/athletic/6093831/2025/01/28/bulls-nba-trade-deadline-lonzo-lavine/
-
-**Balde 'surprised' by alleged racist abuse at Getafe: 'Their captain is black'**\
-`Alejandro Balde says he was unaffected by an incident that allegedly saw the Barcelona defender racially abused from the stands during a recent La Liga match against Getafe.`\
-https://nytimes.com/athletic/6094114/2025/01/28/alejandro-balde-barcelona-racism-la-liga/
-
-**What to watch this week in the NBA: Full TV slate features Nuggets-Knicks, Curry-Durant**\
-`The NBA has a crowded national TV schedule this week with plenty of eye-popping games. Here's what to watch for.`\
-https://nytimes.com/athletic/6091837/2025/01/28/nba-what-to-watch-nuggets-knicks-durant-curry-lakers-celtics-thunder-grizzlies/
-
-**The Climate Migration Question: Rebuild or Relocate?**\
-`After a flood destroyed their town, Kentucky residents faced the agonizing choice of whether to stay or to relocate to new communities built on former strip mines.`\
-https://nytimes.com/2025/01/28/climate/the-climate-migration-question-rebuild-or-relocate.html
-
-**Mona Lisa Will Move to Her Own Room at the Louvre**\
-`President Emanuel Macron announced sweeping plans to renovate the Paris museum and alleviate overcrowding.`\
-https://nytimes.com/2025/01/28/arts/design/mona-lisa-louvre-macron.html
 

@@ -1,3 +1,23 @@
+**Mark Zuckerberg Joins the Business Roundtable**\
+`Meta’s chief executive has become a more visible presence in Washington since President Trump’s return to office after years of avoiding politics.`\
+https://nytimes.com/2025/01/28/business/zuckerberg-meta-business-roundtable.html
+
+**Cubs acquire Ryan Pressly as Astros cover $5.5 million of salary to complete trade**\
+`The Astros will cover $5.5 million of Pressly’s $14 million salary, according to a league source, and receive pitcher Juan Bello in return.`\
+https://nytimes.com/athletic/6094472/2025/01/28/cubs-astros-trade-ryan-pressly-finalized/
+
+**At 85, This Maestro Finally Has His Philharmonic Debut**\
+`The renowned conductor Marek Janowski long ago gave up hope that he might conduct the New York Philharmonic. Then the orchestra came knocking.`\
+https://nytimes.com/2025/01/28/arts/music/marek-janowski-conductor.html
+
+**Many Ukrainian Aid Groups Stop Work After Trump’s Halt on Foreign Assistance**\
+`The Trump administration’s orders have sent a chill through humanitarian organizations in Ukraine, which depend heavily on such assistance.`\
+https://nytimes.com/2025/01/28/world/europe/ukraine-trump-aid-freeze.html
+
+**Inside China, DeepSeek Provides a National Mic Drop Moment**\
+`Social media exploded in a celebration after the news that a Chinese start-up had made an artificial intelligence tool that was more efficient than any in the United States.`\
+https://nytimes.com/2025/01/28/business/deepseek-china-reaction.html
+
 **States Will Sue to Block Trump’s Freeze on Federal Grants**\
 `A coalition of states, including New York, California, Illinois, New Jersey, Rhode Island and Massachusetts, are expected to file the challenge later on Tuesday in the Southern District of New York.`\
 https://nytimes.com/2025/01/28/us/politics/states-lawsuit-trump-federal-grants-pause.html
