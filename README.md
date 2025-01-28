@@ -1,3 +1,11 @@
+**Elon Musk’s Bizarre, Frightening Obsession With Britain**\
+`The billionaire’s interest goes beyond trolling.`\
+https://nytimes.com/2025/01/28/opinion/elon-musk-britain-trump.html
+
+**Why China Loves Trump’s Right-Wing Wokeism**\
+`The president’s energy policies may not make America great again, but they will definitely help make China great again.`\
+https://nytimes.com/2025/01/28/opinion/deepseek-ai-trump.html
+
 **'Un-be-liev-able': How Szoboszlai became essential for Liverpool**\
 `The Hungarian has made himself into a key player for Arne Slot's side, one who is difficult to replace when he is not in the team`\
 https://nytimes.com/athletic/6092094/2025/01/28/dominik-szoboszlai-liverpool-form/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6088936/2025/01/28/inside-bluecos-strasbourg-fan-pr
 **Yamal, Raphinha, Lewandowski: What makes Barcelona's front three so deadly?**\
 `Second only to Liverpool's front three in terms of their productivity, Barca's frontline are rightly receiving plenty of praise`\
 https://nytimes.com/athletic/6091536/2025/01/28/barcelona-yamal-raphinha-lewandowski/
-
-**Should footballers be allowed to impersonate seagulls?**\
-`Under football's celebration laws, players are allowed to be personalities — until they aren’t`\
-https://nytimes.com/athletic/6091331/2025/01/28/footballer-seagull-celebration/
-
-**One kick-off time, 18 matches: Our writers pick the Champions League game they will be watching**\
-`With 18 games kicking off at the same time on Wednesday, The Athletic writers explain which one they are most looking forward to - and why`\
-https://nytimes.com/athletic/6085544/2025/01/28/champions-league-game-to-watch/
 
