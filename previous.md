@@ -1,3 +1,15 @@
+**Barry Michael Cooper, ‘New Jack City’ Screenwriter, Dies at 66**\
+`After chronicling the crack boom of the 1980s as an investigative reporter, he had a high-profile but brief second career in Hollywood.`\
+https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
+
+**Giants GM Joe Schoen on QB prospect Shedeur Sanders: "He's a great kid"**\
+`Schoen goes long on his meeting with Shedeur Sanders, the Senior Bowl as a building ground for talent and Mike Kafka's potential departure.`\
+https://nytimes.com/athletic/6095340/2025/01/28/giants-joe-schoen-shedeur-sanders-senior-bowl/
+
+**Democrats find a voice in opposition to Trump’s funding halt.**\
+`By Lisa Lerer and Reid J. Epstein`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/democrats-find-a-voice-in-opposition-to-trumps-funding-halt
+
 **Padres agree to re-sign catcher Elias Díaz: Sources**\
 `The San Diego Padres are on the verge of handing out their first major-league free-agent contract of the offseason.`\
 https://nytimes.com/athletic/6095723/2025/01/28/padres-sign-elias-diaz-sources/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6075913/2025/01/28/boniface-duran-al-nassr-transfer
 **Schools Panic as Trump Administration Demands Scrutiny of Education Programs**\
 `The Trump administration has paused federal dollars to some grantees as it tries to uproot policies like diversity, equity and inclusion. Schools and universities are worried important programs could be halted.`\
 https://nytimes.com/2025/01/28/us/schools-panic-trump-federal-pause.html
-
-**Inside a Chaotic U.S. Deportation Flight to Brazil**\
-`The Trump administration’s first flight deporting Brazilians involved aborted takeoffs, sweltering heat, emergency exits and shackled deportees on a wing.`\
-https://nytimes.com/2025/01/28/world/americas/us-brazil-deportations.html
-
-**Trump’s Order on Transgender Troops Will Likely Ban Their Service, Again**\
-`In an executive order issued Monday night, the president said transgender service members “cannot satisfy the rigorous standards necessary” for the military.`\
-https://nytimes.com/2025/01/28/us/politics/trump-transgender-troops.html
-
-**New CVS App Allows Customers to Unlock Cabinets to Access Products**\
-`The company said the unlocking function, part of a pilot program in New York City, will be expanded this year.`\
-https://nytimes.com/2025/01/28/business/cvs-app-pharmacy-locked-cabinets.html
 

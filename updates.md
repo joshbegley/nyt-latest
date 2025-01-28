@@ -1,3 +1,15 @@
+**Barry Michael Cooper, ‘New Jack City’ Screenwriter, Dies at 66**\
+`After chronicling the crack boom of the 1980s as an investigative reporter, he had a high-profile but brief second career in Hollywood.`\
+https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
+
+**Giants GM Joe Schoen on QB prospect Shedeur Sanders: "He's a great kid"**\
+`Schoen goes long on his meeting with Shedeur Sanders, the Senior Bowl as a building ground for talent and Mike Kafka's potential departure.`\
+https://nytimes.com/athletic/6095340/2025/01/28/giants-joe-schoen-shedeur-sanders-senior-bowl/
+
+**Democrats find a voice in opposition to Trump’s funding halt.**\
+`By Lisa Lerer and Reid J. Epstein`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/democrats-find-a-voice-in-opposition-to-trumps-funding-halt
+
 **Padres agree to re-sign catcher Elias Díaz: Sources**\
 `The San Diego Padres are on the verge of handing out their first major-league free-agent contract of the offseason.`\
 https://nytimes.com/athletic/6095723/2025/01/28/padres-sign-elias-diaz-sources/
