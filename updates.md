@@ -1,3 +1,7 @@
+**Vatican Warns About the Risks of Artificial Intelligence**\
+`A new document examines the opportunities and risks of A.I. and calls for “moral and ethical considerations” to be enshrined in all of its applications.`\
+https://nytimes.com/2025/01/28/world/europe/vatican-artificial-intelligence-warning.html
+
 **Bengals TE Erick All Jr. expected to miss 2025 season due to ACL: Sources**\
 `All's promising rookie season was cut short by an ACL injury and now it appears complications from it will cost him next season.`\
 https://nytimes.com/athletic/6094193/2025/01/28/erick-all-jr-bengals-acl-miss-season/
