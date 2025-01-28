@@ -1,3 +1,11 @@
+**The Athletic FC: Curious case of Bah and Man City, Messi ally handed power at Inter Miami**\
+`Today in TAFC: Juma Bah, Man City and a row over his transfer. Plus: Messi's confidant gets promotion at Inter Miami and Coote speaks out.`\
+https://nytimes.com/athletic/6093879/2025/01/28/bah-man-city-messi-sanllehi-inter-miami/
+
+**An evening with CBS: Goals, glitterballs and what 'UCL Today' tells us about sport on TV**\
+`The Athletic goes behind the scenes on CBS's flagship soccer show to find out why it works and what it reveals about sports broadcasting`\
+https://nytimes.com/athletic/6091219/2025/01/28/cbs-golazo-champions-league/
+
 **Mark Davis hopeful new coach Pete Carroll and GM John Spytek can turn Raiders around**\
 `The Raiders owner expects that Carroll and Spytek will be the right fits for their jobs — and will be with the team for the duration. `\
 https://nytimes.com/athletic/6093047/2025/01/28/mark-davis-raiders-pete-carroll-john-spytek/
