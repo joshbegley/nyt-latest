@@ -1,3 +1,11 @@
+**Inside Newcastle Q&A: Burn vs Botman, Almiron's PSR impact - and why the sponsor hold up?**\
+`Chris Waugh answers questions on Lloyd Kelly's wages, the Mitchell/Howe relationship, and press-conference pecking order`\
+https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botman-almirons-psr-impact-and-why-the-sponsor-hold-up/
+
+**Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
+`The Athletic spoke to the project lead for the redeveloped Racecourse`\
+https://nytimes.com/athletic/6077794/2025/01/28/populous-on-their-designs-for-wrexhams-new-home-the-plan-is-to-create-a-real-cauldron/
+
 **Big Six to bottom six: How and why Tottenham have fallen away**\
 `How did a club that used to stand for consistency and stability suddenly find themselves trapped in this doom spiral?`\
 https://nytimes.com/athletic/6091499/2025/01/28/tottenham-big-six-bottom-six-levy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6089280/2025/01/28/khusanov-man-city-debut-chelsea/
 **Tuesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/28/briefing/nvidia-gaza-trump.html
-
-**Caution Ahead! Vietnam’s Drivers Are Suddenly Following the Rules.**\
-`Steep new fines — more than many people make in a month — have made the streets of Ho Chi Minh City and Hanoi less freewheeling than they used to be.`\
-https://nytimes.com/2025/01/28/world/asia/vietnam-traffic-fines.html
-
-**Dominik Shine's NHL moment finally arrives: 'Something I'll cherish forever'**\
-`Shine has been with the Red Wings' AHL affiliate since 2017. He finally got his shot in the NHL on Monday.`\
-https://nytimes.com/athletic/6093524/2025/01/27/red-wings-dominik-shine-nhl-debut/
 

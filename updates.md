@@ -1,3 +1,11 @@
+**Inside Newcastle Q&A: Burn vs Botman, Almiron's PSR impact - and why the sponsor hold up?**\
+`Chris Waugh answers questions on Lloyd Kelly's wages, the Mitchell/Howe relationship, and press-conference pecking order`\
+https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botman-almirons-psr-impact-and-why-the-sponsor-hold-up/
+
+**Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
+`The Athletic spoke to the project lead for the redeveloped Racecourse`\
+https://nytimes.com/athletic/6077794/2025/01/28/populous-on-their-designs-for-wrexhams-new-home-the-plan-is-to-create-a-real-cauldron/
+
 **Big Six to bottom six: How and why Tottenham have fallen away**\
 `How did a club that used to stand for consistency and stability suddenly find themselves trapped in this doom spiral?`\
 https://nytimes.com/athletic/6091499/2025/01/28/tottenham-big-six-bottom-six-levy/
