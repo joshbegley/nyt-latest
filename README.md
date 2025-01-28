@@ -1,3 +1,23 @@
+**Democrats Block Bill to Impose Sanctions on International Criminal Court Officials**\
+`The failed Senate vote was a setback for the bill, which aims to punish the court for its decision to prosecute top Israeli officials for war crimes based on the military offensive in Gaza.`\
+https://nytimes.com/2025/01/28/us/politics/democrats-icc-sanctions.html
+
+**Rory McIlroy says he's comfortable with tech behind TGL simulator**\
+`Tiger Woods dramatically overshooting a green earlier this month raised eyebrows.`\
+https://nytimes.com/athletic/6095250/2025/01/28/rory-mcilroy-tgl-simulator-tech-full-swing/
+
+**Hawaii Governor, a Doctor, Blames Kennedy for Measles Deaths in Samoa**\
+`Gov. Josh Green battled a measles outbreak that killed 83 people, mostly children. President Trump wants Robert F. Kennedy, Jr., a vaccine skeptic, as his health policy chief.`\
+https://nytimes.com/2025/01/28/us/politics/measles-rfk-jr.html
+
+**On Site Opera Shuts Down, Citing Financial Woes**\
+`This innovative company, which won acclaim for staging operas in unconventional spaces and ways, said it could no longer keep up with rising costs.`\
+https://nytimes.com/2025/01/28/arts/music/on-site-opera-closes.html
+
+**Super Bowl 59 MVP odds: Staff picks with Mahomes favored ahead of Barkley, Hurts**\
+`Patrick Mahomes is roughly an even-money favorite to win Super Bowl MVP. Saquon Barkley is second ahead of Jalen Hurts.`\
+https://nytimes.com/athletic/6092340/2025/01/28/super-bowl-59-mvp-odds-patrick-mahomes/
+
 **Wednesday Briefing: Trump’s Funding Freeze**\
 `Plus, renovations at the Louvre.`\
 https://nytimes.com/2025/01/28/briefing/trump-funding-freeze-israel-hostages-congo-protests.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/28/business/economy/deepseek-china-us-chip-controls.
 **Heat Today: Kevin Love has become Heat's meme man during Jimmy Butler drama**\
 `The veteran has mastered the art of levity amid tense times in Miami.`\
 https://nytimes.com/athletic/6094807/2025/01/28/jimmy-butler-heat-trade-rumors-kevin-love/
-
-**Marshall Project Names Katrice Hardy as Chief Executive**\
-`Ms. Hardy, now the executive editor of The Dallas Morning News, will lead the business and newsroom sides of nonprofit news organization.`\
-https://nytimes.com/2025/01/28/business/media/marshall-project-katrice-hardy.html
-
-**State officials report being locked out of the federal Medicaid payment system.**\
-`By Sarah Kliff`\
-https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/medicaid-freeze
-
-**Five deaths in Leicester helicopter crash were accidental, inquest finds**\
-`An inquest into the 2018 helicopter crash outside Leicester City’s King Power Stadium has found the deaths of five people, including the club’s chairman Vichai Srivaddhanaprabha, were accidental.`\
-https://nytimes.com/athletic/6094596/2025/01/28/leicester-helicopter-crash-vichai/
-
-**11 Teacher-Approved Strategies to Engage Students With The New York Times**\
-`Looking for new ways to get students reading and responding to nonfiction? Try these exercises for discussion, writing and speaking.`\
-https://nytimes.com/2025/01/28/learning/11-teacher-approved-strategies-to-engage-students-with-the-new-york-times.html
-
-**Cool-Kid Restaurateur Andrew Tarlow Goes Grown-Up at Borgo**\
-`For his first Manhattan restaurant, elegance and timelessness replace the Brooklyn hipness that powered his previous places.`\
-https://nytimes.com/2025/01/28/dining/borgo-andrew-tarlow-nyc-restaurant-review.html
 
