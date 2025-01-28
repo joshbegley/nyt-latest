@@ -1,3 +1,7 @@
+**Listen Here**\
+`Dan Margolis raids the pantry.`\
+https://nytimes.com/2025/01/27/crosswords/daily-puzzle-2025-01-28.html
+
 **Corrections: Jan. 28, 2025**\
 `Corrections that appeared in print on Tuesday, Jan. 28, 2025.`\
 https://nytimes.com/2025/01/27/pageoneplus/corrections-jan-28-2025.html

@@ -1,3 +1,7 @@
+**Listen Here**\
+`Dan Margolis raids the pantry.`\
+https://nytimes.com/2025/01/27/crosswords/daily-puzzle-2025-01-28.html
+
 **Corrections: Jan. 28, 2025**\
 `Corrections that appeared in print on Tuesday, Jan. 28, 2025.`\
 https://nytimes.com/2025/01/27/pageoneplus/corrections-jan-28-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/27/us/trump-news/house-democrats-urge-rubio-to-
 **How Google Maps Plans to Handle the ‘Gulf of America’**\
 `Google said it would follow the Trump administration in renaming the Gulf of Mexico once the new name is updated in government sources.`\
 https://nytimes.com/2025/01/27/technology/google-maps-gulf-of-america-trump.html
-
-**Trump’s Careful Abortion Calculus**\
-`His opening moves on abortion weren’t exactly “shock and awe.” Democrats see an opening.`\
-https://nytimes.com/2025/01/27/us/politics/trump-abortion-calculus.html
 
