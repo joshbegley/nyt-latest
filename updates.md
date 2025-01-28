@@ -1,3 +1,11 @@
+**The Joy of Escapism**\
+`Amid the fantasies of Schiaparelli and Dior.`\
+https://nytimes.com/2025/01/28/style/schiaparelli-dior-jacquemus-couture.html
+
+**Fading Penguins go down without a whimper vs. Sharks: Yohe's 10 observations**\
+`The sad truth for the Penguins is that they are one of the NHL's worst teams. The eye test very much says so. So, too, do the standings.`\
+https://nytimes.com/athletic/6087852/2025/01/28/penguins-lose-to-sharks-yohe/
+
 **Fading Penguins go down without a whimper vs. Sharks: Yohe's 10 observations**\
 `The Penguins looked lethargic and disinterested most of the night in a 2-1 loss to the lowly Sharks in San Jose.`\
 https://nytimes.com/athletic/6087852/2025/01/28/penguins-lose-to-sharks-yohe/
