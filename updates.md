@@ -1,3 +1,7 @@
+**Jon Stewart Can’t Keep Up With the Purges**\
+`As many as 17 inspectors general were fired by President Trump. “That only leaves — no one knows how many left,” Stewart said. “I have no idea.”`\
+https://nytimes.com/2025/01/28/arts/television/jon-stewart-trump-firings.html
+
 **The Joy of Escapism**\
 `Amid the fantasies of Schiaparelli and Dior.`\
 https://nytimes.com/2025/01/28/style/schiaparelli-dior-jacquemus-couture.html
