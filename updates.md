@@ -1,3 +1,7 @@
+**NFL conference championship coaching decisions: Chiefs nail right calls in the clutch**\
+`Andy Reid was ready for the Bills' man coverage and Steve Spagnuolo foiled Josh Allen. In the NFC, Kliff Kingsbury's game plan backfired.`\
+https://nytimes.com/athletic/6090854/2025/01/28/nfl-conference-championship-results-scores-coaching-decisions/
+
 **The Pulse: The best prospects in baseball**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6091761/2025/01/28/mlb-top-100-prospects-the-pulse/
