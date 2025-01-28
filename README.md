@@ -1,3 +1,7 @@
+**Mercury to acquire Alyssa Thomas in sign and trade with Sun: Source**\
+`The Sun gave Thomas the core designation earlier in January, meaning the only way for Thomas to be moved was via a sign-and-trade`\
+https://nytimes.com/athletic/6095146/2025/01/28/alyssa-thomas-trade-phoenix-mercury-connecticut-sun-wnba/
+
 **Jake, Logan Paul tease head-to-head match slated for March 27 on Max**\
 `There is skepticism surrounding the announcement given that there is no explicit mention of a fight in the brothers' social media posts.`\
 https://nytimes.com/athletic/6095067/2025/01/28/jake-paul-logan-fight-brother/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/tulsi-gabbard-trump-intel-pick-watch-
 **Selena Gomez’s Deleted Post Becomes a Political Talking Point**\
 `An Instagram video in which the actress was seen crying over arrests of undocumented immigrants led to criticism from various political figures.`\
 https://nytimes.com/2025/01/28/style/selena-gomez-instagram-undocumented-workers-mexico.html
-
-**F.D.A. Approves Ozempic to Treat Kidney Disease**\
-`The decision will further broaden the use of the blockbuster drug.`\
-https://nytimes.com/2025/01/28/well/ozempic-kidney-disease.html
 
