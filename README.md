@@ -1,7 +1,3 @@
-**Bengals TE Erick All Jr. expected to miss 2025 season due to ACL: Sources**\
-`All's promising rookie season was cut short by an ACL injury and now it appears complications from it will cost him next season.`\
-https://nytimes.com/athletic/6094193/2025/01/28/erick-all-jr-bengals-acl-miss-season/
-
 **Brother of late Padres owner responds to widow's lawsuit in court filing**\
 `Sheel Seidler previously accused two of her brothers-in-law of breaches of fiduciary duty and fraud as executors of Peter Seidler’s estate.`\
 https://nytimes.com/athletic/6093531/2025/01/28/brother-padres-owner-responds-widows-lawsuit/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/28/dining/nyc-restaurant-news.html
 **U.S. Envoy to Meet Netanyahu in Israel, and Perhaps Visit Gaza**\
 `Steve Witkoff played an important role in brokering the cease-fire deal between Israel and Hamas.`\
 https://nytimes.com/2025/01/28/world/middleeast/witkoff-netanyahu-israel-gaza.html
+
+**Vatican Warns About the Risks of Artificial Intelligence**\
+`A new document examines the opportunities and risks of A.I. and calls for “moral and ethical considerations” to be enshrined in all of its applications.`\
+https://nytimes.com/2025/01/28/world/europe/vatican-artificial-intelligence-warning.html
 
