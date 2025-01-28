@@ -1,3 +1,7 @@
+**Senator Gary Peters, Michigan Democrat, Says He Won’t Run Again in 2026**\
+`His decision makes the already tough Senate map for Democrats even tougher: They will need to defend an open seat in a battleground state that President Trump carried in 2024.`\
+https://nytimes.com/2025/01/28/us/politics/gary-peters-michigan-senate-2026.html
+
 **Brighton open to permanent Ferguson exit in January**\
 `Brighton &amp; Hove Albion are prepared to allow Evan Ferguson to depart the club permanently in the January transfer window.`\
 https://nytimes.com/athletic/6094219/2025/01/28/evan-ferguson-brighton-permanent-transfer/
