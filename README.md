@@ -1,3 +1,7 @@
+**Bannon Accuses Manhattan D.A. of Being ‘Vindictive’ in Fraud Case**\
+`The former Trump adviser, who faces trial in March, said that he was singled out for his politics. He took aim at the district attorney in much the way the president has.`\
+https://nytimes.com/2025/01/28/nyregion/bannon-fraud-filing-politics.html
+
 **Smithsonian Closes Diversity Office After Trump’s Executive Order**\
 `The museum’s move followed a similar one last week by the National Gallery, as museums try to comply with an executive order that called diversity programs “illegal and immoral.”`\
 https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095288/2025/01/28/scott-laughton-flyers-nhl-trade-
 **Trump’s Funding Freeze Prompts Gentle Warning From Eric Adams**\
 `Mayor Adams of New York, a Democrat who has taken pains to ally himself with President Trump, said his administration was “assessing the full reach” of the directive.`\
 https://nytimes.com/2025/01/28/nyregion/eric-adams-trump-freeze.html
-
-**USWNT's Dunn, Gotham FC agree to mutually part ways**\
-`The split comes just 13 months into a three-year contract, signed ahead of the 2024 NWSL season.`\
-https://nytimes.com/athletic/6095420/2025/01/28/crystal-dunn-gotham-nwsl-uswnt/
 
