@@ -1,3 +1,15 @@
+**Mauricio Funes, Salvadoran President Who Fled to Nicaragua, Dies at 65**\
+`He was a popular TV journalist when elected as El Salvador’s first modern-day leftist leader in 2009, but he went into exile hounded by corruption charges.`\
+https://nytimes.com/2025/01/28/world/americas/mauricio-funes-dead.html
+
+**Slot says he is making 'choice for the long-term' in resting Liverpool regulars**\
+`Arne Slot says he is protecting his squad for the key months ahead as tomorrow’s Champions League game with PSV Eindhoven has “no importance to the league table”.`\
+https://nytimes.com/athletic/6095123/2025/01/28/arne-slot-champions-league-liverpool-psv/
+
+**Amazon eyeing Cassidy Hubbarth for NBA sideline reporter role**\
+`Hubbarth moves to the top position with Prime Video where she will join play-by-play caller Ian Eagle on its lead crew.`\
+https://nytimes.com/athletic/6094783/2025/01/28/nba-amazon-prime-cassidy-hubbarth-leaving-espn/
+
 **Blues place Brandon Saad on waivers, looking to 'open up some space for different players'**\
 `Saad has one year left at a $4.5 million cap hit and possesses a no-trade clause.`\
 https://nytimes.com/athletic/6095065/2025/01/28/blues-brandon-saad-waivers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6094872/2025/01/28/bills-chiefs-tv-ratings-afc-cham
 **Melania Trump’s New Portrait Breaks With the Past**\
 `The official FLOTUS photograph has arrived, and it sends a different message from any that have come before.`\
 https://nytimes.com/2025/01/28/style/melania-trump-portrait-first-lady.html
-
-**7 New Songs You Should Hear Now**\
-`Listnen to new music from Japanese Breakfast, Central Cee and Lucy Dacus.`\
-https://nytimes.com/2025/01/28/arts/music/amplifier-newsletter-japanese-breakfast-central-cee.html
-
-**Wild's Kirill Kaprizov to undergo surgery, miss 4-plus weeks: 'Going to get it fixed'**\
-`Sources close to Kaprizov said the winger is scheduled to undergo surgery for a lower-body injury on Friday.`\
-https://nytimes.com/athletic/6095002/2025/01/28/wild-kirill-kaprizov-surgery-lower-body/
-
-**Astros GM Dana Brown details "fracture" in relationship with Ryan Pressly**\
-`Pressly never aired any grievances publicly and continued to serve as a model teammate throughout his uneven 2024 season. `\
-https://nytimes.com/athletic/6094928/2025/01/28/astros-gm-dana-brown-ryan-pressly-relationship/
 
