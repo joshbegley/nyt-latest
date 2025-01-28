@@ -1,6 +1,6 @@
 **Kennedy, in His Own Words: Flu, Diabetes, Autism and More**\
 `Robert F. Kennedy Jr., President Trump’s nominee for health secretary, doesn’t just hold fringe views on vaccines. We fact-checked five recent statements.`\
-https://nytimes.com/2025/01/28/health/kennedy-vaccines-autism-video.html
+https://nytimes.com/2025/01/28/health/rfk-jr-vaccines-autism-video.html
 
 **Does Trump Have the Power to Block Spending That Congress Has Authorized?**\
 `The White House’s temporary pause on trillions in federal spending could set up a court fight over executive authority and Congress’s control of the purse.`\
