@@ -1,3 +1,11 @@
+**Israel Says 8 of the 26 Hostages Listed for Imminent Release Are Dead**\
+`An accounting provided by Hamas over the weekend confirmed intelligence assessments, Israeli officials said.`\
+https://nytimes.com/2025/01/28/world/middleeast/israel-hostages-dead-hamas.html
+
+**Ask Us Anything About Our Reporting on the Trump Administration**\
+`Times journalists will answer your questions about our coverage.`\
+https://nytimes.com/2025/01/28/insider/ask-us-anything-about-times-reporting-on-the-trump-administration.html
+
 **Order to pause federal spending creates deep uncertainty for schools, nonprofits and companies.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/trump-freeze-funding
