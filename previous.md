@@ -1,3 +1,7 @@
+**Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
+`The president and the writer E. Jean Carroll, whom he sexually abused, are fighting over whether he has to pay the $83 million he owes for defaming her.`\
+https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
+
 **Nigerian Man Is Extradited in Sextortion Case After Teen’s Suicide**\
 `The man, Hassanbunhussein Abolore Lawal, 24, is accused of posing as a teenage girl to convince a boy in South Carolina to send him sexually compromising images of himself.`\
 https://nytimes.com/2025/01/27/us/nigerian-extradited-sextortion-teen-death.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6093040/2025/01/27/david-coote-gay-premier-league-r
 **First Impressions of DeepSeek’s A.I. Chatbot**\
 `The chatbot from China appears to perform a number of tasks as well as its American competitors do, but it censors topics such as Tiananmen Square.`\
 https://nytimes.com/2025/01/27/technology/deepseek-ai-chatbot-first-impressions.html
-
-**Man Pardoned in Jan. 6 Riot Is Fatally Shot by Sheriff’s Deputy During Traffic Stop**\
-`The police said that Matthew W. Huttle, 42, of Hobart, Ind., who was sentenced to six months for his role in the riot at the U.S. Capitol in 2021, resisted arrest after he was stopped in Indiana on Sunday.`\
-https://nytimes.com/2025/01/27/us/politics/jan-6-rioter-shot-indiana-traffic-stop.html
 

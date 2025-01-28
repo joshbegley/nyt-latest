@@ -1,3 +1,7 @@
+**Trump Argues That His Immunity Extends to E. Jean Carroll’s Lawsuits**\
+`The president and the writer E. Jean Carroll, whom he sexually abused, are fighting over whether he has to pay the $83 million he owes for defaming her.`\
+https://nytimes.com/2025/01/27/nyregion/trump-immunity-defamation-lawsuit.html
+
 **Nigerian Man Is Extradited in Sextortion Case After Teen’s Suicide**\
 `The man, Hassanbunhussein Abolore Lawal, 24, is accused of posing as a teenage girl to convince a boy in South Carolina to send him sexually compromising images of himself.`\
 https://nytimes.com/2025/01/27/us/nigerian-extradited-sextortion-teen-death.html
