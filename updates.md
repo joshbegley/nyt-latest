@@ -1,3 +1,7 @@
+**Japan Stocks Sink as Rout in Technology Shares Spreads to Asia**\
+`U.S. markets sold off on Monday after a little-known Chinese artificial intelligence start-up ignited concerns about the valuations of technology companies.`\
+https://nytimes.com/2025/01/28/business/stocks-sp500-deepseek.html
+
 **Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
 `The Athletic speaks to the people in charge of building Wrexham's proposed new home`\
 https://nytimes.com/athletic/6077794/2025/01/28/wrexham-new-stadium-building-design/

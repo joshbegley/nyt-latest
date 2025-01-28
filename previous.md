@@ -1,3 +1,7 @@
+**Japan Stocks Sink as Rout in Technology Shares Spreads to Asia**\
+`U.S. markets sold off on Monday after a little-known Chinese artificial intelligence start-up ignited concerns about the valuations of technology companies.`\
+https://nytimes.com/2025/01/28/business/stocks-sp500-deepseek.html
+
 **Defensive mistakes doom short-handed Celtics in late loss to Rockets**\
 `Boston nearly pulled off a great win, but fell for the seventh time this season after leading by at least 10 points.`\
 https://nytimes.com/athletic/6093679/2025/01/28/celtics-lose-to-rockets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tf
 **Inside Newcastle Q&A: Burn vs Botman, Almiron's PSR impact - and why the sponsor hold up?**\
 `Chris Waugh answers questions on Lloyd Kelly's wages, the Mitchell/Howe relationship, and press-conference pecking order`\
 https://nytimes.com/athletic/6090855/2025/01/28/inside-newcastle-qa-burn-vs-botman-almirons-psr-impact-and-why-the-sponsor-hold-up/
-
-**Populous on their designs for Wrexham's new home: 'The plan is to create a real cauldron'**\
-`The Athletic speaks to the people in charge of building Wrexham's proposed new home`\
-https://nytimes.com/athletic/6077794/2025/01/28/wrexham-new-stadium-building-design/
 
