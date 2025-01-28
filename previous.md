@@ -1,3 +1,11 @@
+**Twins' Simeon Woods Richardson looks to ride lower arm slot to sophomore success**\
+`In the span of 12 months, Woods Richardson lowered his arm slot, raised his velocity and rediscovered what made him a top prospect.`\
+https://nytimes.com/athletic/6091287/2025/01/28/simeon-woods-richardson-twins-2025-season/
+
+**G.M. Has Plans Ready for Trump’s Canada and Mexico Tariffs**\
+`General Motors, the largest producer of cars in Mexico, won’t provide details on how it would react if President Trump imposes 25 percent tariffs from the two countries.`\
+https://nytimes.com/2025/01/28/business/general-motors-trump-mexico-canada-tariffs.html
+
 **‘A Good Chance People Are Going to Die’, as U.S. Halts Funding for Mine Clearing**\
 `Large swaths of land in Southeast Asia are littered with unexploded bombs dropped by American forces during the Vietnam War.`\
 https://nytimes.com/2025/01/28/world/asia/trump-mines-vietnam-cambodia-laos.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6093767/2025/01/28/cowboys-brian-schottenheimer-dec
 **Analyzing the East's Stanley Cup contenders: Signature strengths and fatal flaws**\
 `The East has six teams with a chance to win the Stanley Cup north of 2.5 percent. These are each team’s signature strengths and fatal flaws.`\
 https://nytimes.com/athletic/6092230/2025/01/28/nhl-eastern-conference-stanley-cup-signature-strengths-fatal-flaws/
-
-**Sabres mailbag: Should Buffalo make a run at Canucks' Elias Pettersson?**\
-`The Sabres have the assets to entice Vancouver into a trade. The bigger question is what, exactly, Buffalo might have to give up.`\
-https://nytimes.com/athletic/6093542/2025/01/28/buffalo-sabres-mailbag-elias-pettersson-pegula/
-
-**Rutherford: If Blues are lacking energy at this critical point, it's time to write them off**\
-`With their season on the line, the Blues are 1-4 in their last five games, and no one seems to have the solution.`\
-https://nytimes.com/athletic/6093444/2025/01/28/rutherford-blues-lacking-energy-critical-point/
 
