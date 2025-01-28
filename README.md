@@ -1,3 +1,15 @@
+**Inside Trump’s Renewed Effort to Undo a Major Climate Rule**\
+`A rule known as the endangerment finding requires the E.P.A. to regulate greenhouse gases. It has proved resilient against earlier attacks.`\
+https://nytimes.com/2025/01/28/climate/trump-endangerment-finding-epa.html
+
+**Arsenal win appeal against Lewis-Skelly red card**\
+`Arsenal have won their appeal against the red card issued to Myles Lewis-Skelly during their 1-0 victory over Wolverhampton Wanderers on Saturday.`\
+https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-card/
+
+**Bengals TE Erick All Jr. expected to miss 2025 season due to ACL: Sources**\
+`All's promising rookie season was cut short by an ACL injury and now it appears complications from it will cost him next season.`\
+https://nytimes.com/athletic/6094193/2025/01/28/erick-all-jr-bengals-acl-miss-season/
+
 **Brother of late Padres owner responds to widow's lawsuit in court filing**\
 `Sheel Seidler previously accused two of her brothers-in-law of breaches of fiduciary duty and fraud as executors of Peter Seidler’s estate.`\
 https://nytimes.com/athletic/6093531/2025/01/28/brother-padres-owner-responds-widows-lawsuit/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/28/world/africa/rwanda-congo-goma-conflict.html
 **Van Dijk, Salah, among key players rested for Liverpool's trip to PSV**\
 `Liverpool are travelling to PSV Eindhoven without the bulk of their first-team squad after deciding to rest a number of big-hitters.`\
 https://nytimes.com/athletic/6094672/2025/01/28/liverpool-team-news-psv-champions-league/
-
-**Precious Gems in the West Village**\
-`The chef Jiho Kim opens a jewel box restaurant near the Hudson, a heart-shaped Valentine from Lysée and more restaurant news.`\
-https://nytimes.com/2025/01/28/dining/nyc-restaurant-news.html
-
-**U.S. Envoy to Meet Netanyahu in Israel, and Perhaps Visit Gaza**\
-`Steve Witkoff played an important role in brokering the cease-fire deal between Israel and Hamas.`\
-https://nytimes.com/2025/01/28/world/middleeast/witkoff-netanyahu-israel-gaza.html
-
-**Vatican Warns About the Risks of Artificial Intelligence**\
-`A new document examines the opportunities and risks of A.I. and calls for “moral and ethical considerations” to be enshrined in all of its applications.`\
-https://nytimes.com/2025/01/28/world/europe/vatican-artificial-intelligence-warning.html
 
