@@ -1,3 +1,7 @@
+**Cool-Kid Restaurateur Andrew Tarlow Goes Grown-Up at Borgo**\
+`For his first Manhattan restaurant, elegance and timelessness replace the Brooklyn hipness that powered his previous places.`\
+https://nytimes.com/2025/01/28/dining/borgo-andrew-tarlow-nyc-restaurant-review.html
+
 **11 Teacher-Approved Strategies to Engage Students With The New York Times**\
 `Looking for new ways to get students reading and responding to nonfiction? Try these exercises for discussion, writing and speaking.`\
 https://nytimes.com/2025/01/28/learning/11-teacher-approved-strategies-to-engage-students-with-the-new-york-times.html

@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/28/learning/11-teacher-approved-strategies-to-engage
 
 **Cool-Kid Restaurateur Andrew Tarlow Goes Grown-Up at Borgo**\
 `For his first Manhattan restaurant, elegance and timelessness replace the Brooklyn hipness that powered his previous places.`\
-https://nytimes.com/2025/01/28/dining/cool-kid-restaurateur-andrew-tarlow-goes-grown-up-at-borgo.html
+https://nytimes.com/2025/01/28/dining/borgo-andrew-tarlow-nyc-restaurant-review.html
 
 **Watch: Why Pete Carroll appointment raises the Raiders' floor**\
 `The Las Vegas Raiders hired Pete Carroll as their new head coach, The Athletic Football Show hosts discuss the hire.`\
