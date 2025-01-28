@@ -1,3 +1,11 @@
+**NBA Power Rankings: Second-quarter grades are here!**\
+`The Thunder and Cavaliers continue to earn straight A's, while the Pelicans and Wizards may need to stay after school.`\
+https://nytimes.com/athletic/6093996/2025/01/28/nba-power-rankings-rockets-celtics-knicks-lakers/
+
+**DeepSeek’s Rise: How a Chinese Start-Up Went From Stock Trader to A.I. Star**\
+`The little-known artificial intelligence firm has emphasized research, even as it emerged as the brainchild of a hedge fund.`\
+https://nytimes.com/2025/01/28/business/deepseek-owner-china-ai.html
+
 **Pistons' lack of a secondary creator next to Cade Cunningham is a glaring problem**\
 `On a night in Cleveland when Cunningham struggled with his shot, Detroit lacked other answers. Can it find one before the trade deadline?`\
 https://nytimes.com/athletic/6093647/2025/01/28/pistons-cade-cunningham-jaden-ivey-cavaliers-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6094124/2025/01/28/ohio-state-football-staff-roster
 **Japanese TV Executives Get 10-Hour Grilling Over Sex Abuse Case**\
 `Public mea culpas are a corporate ritual in Japan. For Fuji TV, the resignations and public apologies of two bosses didn’t assuage public anger.`\
 https://nytimes.com/2025/01/28/world/asia/japan-tv-executives-sex-abuse.html
-
-**New Yorkers’ Life Expectancy Has Dipped. Officials Want to Change That.**\
-`The city laid out a series of proposals to reduce cancer deaths by 20 percent, and deaths from heart- and diabetes-related ailments by 5 percent, over the next five years.`\
-https://nytimes.com/2025/01/28/nyregion/nyc-life-expectancy-health-department.html
-
-**A Soothing Array of Spring Colors**\
-`Wearing shades of lavender, blue, orange and green, a couple brought to mind the palette of a spring day.`\
-https://nytimes.com/2025/01/28/style/street-style-look-spring-colors.html
 
