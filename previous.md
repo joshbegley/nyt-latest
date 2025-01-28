@@ -10,8 +10,8 @@ https://nytimes.com/2025/01/27/crosswords/daily-puzzle-2025-01-28.html
 `Corrections that appeared in print on Tuesday, Jan. 28, 2025.`\
 https://nytimes.com/2025/01/27/pageoneplus/corrections-jan-28-2025.html
 
-**Whole Foods Workers in Philadelphia Vote to Form Chain’s First Union**\
-`The union win comes as Amazon, which owns the grocery chain, is also fighting labor organizing in its warehouse and delivery businesses.`\
+**Whole Foods Workers Form First Union in Amazon’s Grocery Chain**\
+`The union win, at a Philadelphia store where workers are seeking higher wages, comes as Amazon is also fighting organizing efforts among some warehouse employees and delivery drivers.`\
 https://nytimes.com/2025/01/27/business/whole-foods-union-vote.html
 
 **'The floor has risen': Commanders looking ahead as they work through season-ending pain**\

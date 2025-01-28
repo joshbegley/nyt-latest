@@ -1,3 +1,7 @@
+**Whole Foods Workers Form First Union in Amazon’s Grocery Chain**\
+`The union win, at a Philadelphia store where workers are seeking higher wages, comes as Amazon is also fighting organizing efforts among some warehouse employees and delivery drivers.`\
+https://nytimes.com/2025/01/27/business/whole-foods-union-vote.html
+
 **Inter Miami puts Messi confidant in charge of sporting decisions**\
 `Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
 https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
