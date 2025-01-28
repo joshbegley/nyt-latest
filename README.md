@@ -1,3 +1,15 @@
+**Homeland Security Begins Immigration Enforcement Operation in New York**\
+`The agency’s new secretary, Kristi Noem, announced that she was on hand to witness the arrest of an unauthorized immigrant connected to criminal activity.`\
+https://nytimes.com/2025/01/28/nyregion/ice-raid-nyc-noem.html
+
+**Marseille among clubs interested in loan for Brighton's Ferguson**\
+`Marseille are among the clubs interested in a loan move for Brighton &amp; Hove Albion striker Evan Ferguson.`\
+https://nytimes.com/athletic/6035347/2025/01/28/evan-ferguson-transfer-brighton-marseille-loan/
+
+**Arsenal appeal against Lewis-Skelly red card**\
+`Arsenal have appealed against the red card issued to Myles Lewis-Skelly during their 1-0 victory over Wolverhampton Wanderers on Saturday.`\
+https://nytimes.com/athletic/6089273/2025/01/28/arsenal-appeal-lewis-skelly-red-card/
+
 **Clippers trade tiers: What to watch with LA before the Feb. 6 deadline**\
 `Who could be moved before the NBA trade deadline for the Clippers? And for what deal? Here are some trade tiers.`\
 https://nytimes.com/athletic/6093053/2025/01/28/clippers-nba-trade-deadline-tiers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6093879/2025/01/28/bah-man-city-messi-sanllehi-inte
 **Mark Davis hopeful new coach Pete Carroll and GM John Spytek can turn Raiders around**\
 `The Raiders owner expects that Carroll and Spytek will be the right fits for their jobs — and will be with the team for the duration. `\
 https://nytimes.com/athletic/6093047/2025/01/28/mark-davis-raiders-pete-carroll-john-spytek/
-
-**Ranking the Broncos' in-house free agents and predicting whether they will stay**\
-`Defensive tackle D.J. Jones played a critical role in Denver's turnaround as a run defense. Will the Broncos bring him back?`\
-https://nytimes.com/athletic/6091223/2025/01/28/broncos-free-agents-ranked/
-
-**Where does Jonas Urbig fit into Bayern Munich's succession plan for Manuel Neuer?**\
-`The 21-year-old has signed from second-tier Koln with the long term in mind while uncertainty reigns over the experienced No 1`\
-https://nytimes.com/athletic/6091156/2025/01/28/bayern-neuer-urbig-nubel/
-
-**Wild insider: Bettman pushes for public funding of Xcel Energy Center renovations**\
-`Bettman on Xcel: “This building is what, 25 years old now? It was designed very well for hockey, but it's no longer state-of-the-art."`\
-https://nytimes.com/athletic/6089814/2025/01/28/wild-bettman-xcel-energy-center-renovations-funding/
 
