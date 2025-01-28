@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/28/briefing/nvidia-gaza-trump.html
+
+**Caution Ahead! Vietnam’s Drivers Are Suddenly Following the Rules.**\
+`Steep new fines — more than many people make in a month — have made the streets of Ho Chi Minh City and Hanoi less freewheeling than they used to be.`\
+https://nytimes.com/2025/01/28/world/asia/vietnam-traffic-fines.html
+
+**Dominik Shine's NHL moment finally arrives: 'Something I'll cherish forever'**\
+`Shine has been with the Red Wings' AHL affiliate since 2017. He finally got his shot in the NHL on Monday.`\
+https://nytimes.com/athletic/6093524/2025/01/27/red-wings-dominik-shine-nhl-debut/
+
 **Messi ally takes over sporting decisions in Inter Miami shake-up: Sources**\
 `Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
 https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/

@@ -1,3 +1,7 @@
+**Khusanov's tough beginning to life in the Premier League: How soon is too soon to start?**\
+`Saturday was supposed to be a landmark day for the 20-year-old, the test now is how he recovers from the early setbacks of his debut`\
+https://nytimes.com/athletic/6089280/2025/01/28/khusanov-man-city-debut-chelsea/
+
 **Tuesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/28/briefing/nvidia-gaza-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092711/2025/01/27/scottie-barnes-winner-raptors/
 **Messi ally takes over sporting decisions in Inter Miami shake-up: Sources**\
 `Guillermo Hoyos will now be in charge of MLS club's football operations, replacing Raul Sanllehi.`\
 https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
-
-**Listen Here**\
-`Dan Margolis raids the pantry.`\
-https://nytimes.com/2025/01/27/crosswords/daily-puzzle-2025-01-28.html
 

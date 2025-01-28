@@ -1,5 +1,13 @@
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/01/28/briefing/nvidia-gaza-trump.html
+
+**Caution Ahead! Vietnam’s Drivers Are Suddenly Following the Rules.**\
+`Steep new fines — more than many people make in a month — have made the streets of Ho Chi Minh City and Hanoi less freewheeling than they used to be.`\
+https://nytimes.com/2025/01/28/world/asia/vietnam-traffic-fines.html
+
 **Dominik Shine's NHL moment finally arrives: 'Something I'll cherish forever'**\
-`Shine has been with the Red Wings' AHL affiliate since 2017, and finally got his shot in the NHL on Monday.`\
+`Shine has been with the Red Wings' AHL affiliate since 2017. He finally got his shot in the NHL on Monday.`\
 https://nytimes.com/athletic/6093524/2025/01/27/red-wings-dominik-shine-nhl-debut/
 
 **White House Budget Office Orders Pause in All Federal Loans and Grants**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6093456/2025/01/27/inter-miami-messi-sanllehi/
 **Listen Here**\
 `Dan Margolis raids the pantry.`\
 https://nytimes.com/2025/01/27/crosswords/daily-puzzle-2025-01-28.html
-
-**Corrections: Jan. 28, 2025**\
-`Corrections that appeared in print on Tuesday, Jan. 28, 2025.`\
-https://nytimes.com/2025/01/27/pageoneplus/corrections-jan-28-2025.html
-
-**Whole Foods Workers Form First Union in Amazon’s Grocery Chain**\
-`The union win, at a Philadelphia store where workers are seeking higher wages, comes as Amazon is also fighting organizing efforts among some warehouse employees and delivery drivers.`\
-https://nytimes.com/2025/01/27/business/whole-foods-union-vote.html
 
