@@ -1,3 +1,7 @@
+**Trump Moves Toward Pushing Openly Transgender People Out of Military**\
+`The president also ordered the Pentagon to end diversity programs, reinstate many service members dismissed for refusing the coronavirus vaccine and create a new missile defense system.`\
+https://nytimes.com/2025/01/28/us/politics/trump-military-transgender-dei-orders.html
+
 **Elon Musk’s Bizarre, Frightening Obsession With Britain**\
 `The billionaire’s interest goes beyond trolling.`\
 https://nytimes.com/2025/01/28/opinion/elon-musk-britain-trump.html
