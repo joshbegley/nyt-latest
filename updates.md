@@ -1,3 +1,11 @@
+**NBA Power Rankings: Second-quarter grades are here!**\
+`The Thunder and Cavaliers continue to earn straight A's, while the Pelicans and Wizards may need to stay after school.`\
+https://nytimes.com/athletic/6093996/2025/01/28/nba-power-rankings-rockets-celtics-knicks-lakers/
+
+**DeepSeek’s Rise: How a Chinese Start-Up Went From Stock Trader to A.I. Star**\
+`The little-known artificial intelligence firm has emphasized research, even as it emerged as the brainchild of a hedge fund.`\
+https://nytimes.com/2025/01/28/business/deepseek-owner-china-ai.html
+
 **Pistons' lack of a secondary creator next to Cade Cunningham is a glaring problem**\
 `On a night in Cleveland when Cunningham struggled with his shot, Detroit lacked other answers. Can it find one before the trade deadline?`\
 https://nytimes.com/athletic/6093647/2025/01/28/pistons-cade-cunningham-jaden-ivey-cavaliers-loss/
