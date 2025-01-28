@@ -1,3 +1,7 @@
+**NFL conference championship coaching decisions: Chiefs nail right calls in the clutch**\
+`Andy Reid was ready for the Bills' man coverage and Steve Spagnuolo foiled Josh Allen. In the NFC, Kliff Kingsbury's game plan backfired.`\
+https://nytimes.com/athletic/6090854/2025/01/28/nfl-conference-championship-results-scores-coaching-decisions/
+
 **The Pulse: The best prospects in baseball**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6091761/2025/01/28/mlb-top-100-prospects-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6090997/2025/01/28/champions-league-matchday-eight-
 **In Anaheim, the Ducks lean in to hometown pride while the Angels gaze longingly at L.A.**\
 `“The Ducks may be rock bottom. But at least they know who they are. They are proud to be from Anaheim," said Angels fan Jake Pineros.`\
 https://nytimes.com/athletic/6092476/2025/01/28/anaheim-ducks-los-angeles-angels-hometown-pride/
-
-**For one night at least, Klay Thompson conjures some old shooting magic**\
-`"It reminds you that there’s greatness still within you," Thompson said after a blistering first quarter against the Wizards.`\
-https://nytimes.com/athletic/6093720/2025/01/28/klay-thompson-mavericks-3s/
 
