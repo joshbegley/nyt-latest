@@ -1,3 +1,11 @@
+**Pardoned Jan. 6 Rioter Is Sought for Charges of Soliciting Minor**\
+`Andrew Taake, who pleaded guilty to attacking the police outside the Capitol, was just released from prison. He is being sought for charges in 2016 of soliciting a 17-year-old online for sex.`\
+https://nytimes.com/2025/01/28/us/politics/jan-6-rioter-minor-solicitation-pardon.html
+
+**Tyler Ivey's comeback to continue at Astros minor-league spring training: Sources**\
+`The Astros have retained Ivey’s contractual rights since he retired from baseball in May 2022 due to burnout`\
+https://nytimes.com/athletic/6095685/2025/01/28/tyler-iveys-comeback-astros-spring-training/
+
 **Barry Michael Cooper, ‘New Jack City’ Screenwriter, Dies at 66**\
 `After chronicling the crack boom of the 1980s as an investigative reporter, he had a high-profile but brief second career in Hollywood.`\
 https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/trump-policy-blitz.html
 **Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
 `The Seahawks have a new offensive coordinator, and the offseason is in full swing. What's on your mind?`\
 https://nytimes.com/athletic/6095711/2025/01/28/seahawks-mailbag-offensive-coordinator-hire/
-
-**Al Nassr to decide between deal for Boniface or Duran**\
-`Saudi Arabian side Al Nassr will decide on Wednesday whether to try to close a deal for Bayer Leverkusen&#8217;s Victor Boniface or Aston Villa&#8217;s Jhon Duran as they seek to add a striker to their squad.`\
-https://nytimes.com/athletic/6075913/2025/01/28/boniface-duran-al-nassr-transfer/
-
-**Schools Panic as Trump Administration Demands Scrutiny of Education Programs**\
-`The Trump administration has paused federal dollars to some grantees as it tries to uproot policies like diversity, equity and inclusion. Schools and universities are worried important programs could be halted.`\
-https://nytimes.com/2025/01/28/us/schools-panic-trump-federal-pause.html
 
