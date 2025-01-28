@@ -1,7 +1,3 @@
-**Caroline Kennedy Urges Senators to Reject Her Cousin’s Nomination**\
-`In a harsh letter to lawmakers considering Robert F. Kennedy Jr.’s nomination for health secretary, Ms. Kennedy called her cousin a “predator” who led other families members down the path of addiction.`\
-https://nytimes.com/2025/01/28/health/caroline-kennedy-rfk-jr-hhs-confirmation.html
-
 **Woman in Disguise Took U.K. Citizenship Test for Others, Authorities Say**\
 `A 61-year-old woman was arrested after impersonating at least 14 people over the course of more than a year, the authorities said.`\
 https://nytimes.com/2025/01/28/world/europe/uk-citizenship-test-fraud-arrest.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6093531/2025/01/28/brother-padres-owner-responds-wi
 **‘Paradise’ Is a Wild-Ride Political Thriller**\
 `The new Hulu series, starring Sterling K. Brown, is exhilarating in all the right ways, even if it sometimes tips over into ridiculousness.`\
 https://nytimes.com/2025/01/28/arts/television/paradise-hulu-sterling-k-brown.html
+
+**The Federal Funding Pause Does Not Apply to Student Loans and Pell Grants**\
+`Students and parents panicked after news of the order, but the Education Department said the guidance would not stop the flow of money to students and schools.`\
+https://nytimes.com/2025/01/28/business/trump-federal-freeze-grants-student-loans.html
 
