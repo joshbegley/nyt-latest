@@ -1,3 +1,11 @@
+**Trudeau Government Left Canada Vulnerable to Foreign Interference, Report Finds**\
+`Prime Minister Justin Trudeau should have acted quicker to protect Canadian elections from outside meddling, a government commission said, shaking trust in democratic institutions.`\
+https://nytimes.com/2025/01/28/world/canada/canada-elections-foreign-interference-inquiry.html
+
+**California Historical Society to Dissolve and Transfer Collections to Stanford**\
+`The society faced financial challenges that were exacerbated by the coronavirus pandemic. Its nearly 600,000 items stretch back before the Gold Rush.`\
+https://nytimes.com/2025/01/28/arts/california-historical-society-stanford.html
+
 **Reform U.K. is Said to Land Over $1 Million in Populist Show of Force**\
 `Nigel Farage’s party is reshaping British conservatism and showing that it can raise money to do so.`\
 https://nytimes.com/2025/01/28/world/europe/reform-uk-nigel-farage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/well/ozempic-kidney-disease.html
 **Mauricio Funes, Salvadoran President Who Fled to Nicaragua, Dies at 65**\
 `He was a popular TV journalist when elected as El Salvador’s first modern-day leftist leader in 2009, but he went into exile hounded by corruption charges.`\
 https://nytimes.com/2025/01/28/world/americas/mauricio-funes-dead.html
-
-**Slot says he is making 'choice for the long-term' in resting Liverpool regulars**\
-`Arne Slot says he is protecting his squad for the key months ahead as tomorrow’s Champions League game with PSV Eindhoven has “no importance to the league table”.`\
-https://nytimes.com/athletic/6095123/2025/01/28/arne-slot-champions-league-liverpool-psv/
-
-**Amazon eyeing Cassidy Hubbarth for NBA sideline reporter role**\
-`Hubbarth moves to the top position with Prime Video where she will join play-by-play caller Ian Eagle on its lead crew.`\
-https://nytimes.com/athletic/6094783/2025/01/28/nba-amazon-prime-cassidy-hubbarth-leaving-espn/
 
