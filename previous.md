@@ -1,3 +1,19 @@
+**Lyon expect to appoint Fonseca, one month after Milan exit**\
+`Lyon expect to appoint former Milan head coach Paulo Fonseca to replace Pierre Sage.`\
+https://nytimes.com/athletic/6093838/2025/01/28/paulo-fonseca-lyon-manager/
+
+**Wolves in talks with Ajax to end Carlos Forbs loan spell early**\
+`Wolverhampton Wanderers are in discussions with Ajax about the possibility of an early end to Carlos Forbs’ loan spell at Molineux.`\
+https://nytimes.com/athletic/6094312/2025/01/28/carlos-forbs-wolves-loan-ajax-return/
+
+**A ‘Shark Tank’ Star on Losing Her Home in the L.A. Fires**\
+`The mobile home of Barbara Corcoran, a real estate mogul and businesswoman, perished in the Palisades fire, along with those of all of her neighbors. “I feel like I lost my sweetheart.”`\
+https://nytimes.com/2025/01/28/realestate/barbara-corcoran-la-fires-mobile-home.html
+
+**Trump Fires Labor Board Prosecutor Who Drew Backlash From Corporations**\
+`Jennifer Abruzzo was removed as general counsel of the National Labor Relations Board. She was widely seen as having taken an aggressive approach in enforcing workers’ rights.`\
+https://nytimes.com/2025/01/28/us/politics/trump-nlrb-jennifer-abruzzo.html
+
 **NBA Power Rankings: Second-quarter grades are here!**\
 `The Thunder and Cavaliers continue to earn straight A's, while the Pelicans and Wizards may need to stay after school.`\
 https://nytimes.com/athletic/6093996/2025/01/28/nba-power-rankings-rockets-celtics-knicks-lakers/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/gary-peters-michigan-senate-2026.html
 **Brighton open to permanent Ferguson exit in January**\
 `Brighton &amp; Hove Albion are prepared to allow Evan Ferguson to depart the club permanently in the January transfer window.`\
 https://nytimes.com/athletic/6094219/2025/01/28/evan-ferguson-brighton-permanent-transfer/
-
-**Air Busan Plane Catches Fire at South Korean Airport**\
-`The fire broke out on the aircraft’s tail, fire officials said. All 169 passengers and seven crew members were evacuated.`\
-https://nytimes.com/2025/01/28/world/asia/busan-plane-fire-south-korea.html
-
-**Chris Finch fumes after Wolves' unimpressive win: 'We won and got cussed out. That’s cool'**\
-`Finch sees more in his team and he's demanding that they start showing it.`\
-https://nytimes.com/athletic/6093336/2025/01/28/chris-finch-fumes-timberwolves-unimpressive/
-
-**Who's returning on Ohio State's roster, staff after national championship run?**\
-`With the portal window closed, NFL Draft decisions finalized and DC Jim Knowles on his way to State College it's time to reset the roster.`\
-https://nytimes.com/athletic/6094124/2025/01/28/ohio-state-football-staff-roster-retruners-2025-season/
-
-**Japanese TV Executives Get 10-Hour Grilling Over Sex Abuse Case**\
-`Public mea culpas are a corporate ritual in Japan. For Fuji TV, the resignations and public apologies of two bosses didn’t assuage public anger.`\
-https://nytimes.com/2025/01/28/world/asia/japan-tv-executives-sex-abuse.html
 

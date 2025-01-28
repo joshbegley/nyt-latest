@@ -1,3 +1,19 @@
+**Lyon expect to appoint Fonseca, one month after Milan exit**\
+`Lyon expect to appoint former Milan head coach Paulo Fonseca to replace Pierre Sage.`\
+https://nytimes.com/athletic/6093838/2025/01/28/paulo-fonseca-lyon-manager/
+
+**Wolves in talks with Ajax to end Carlos Forbs loan spell early**\
+`Wolverhampton Wanderers are in discussions with Ajax about the possibility of an early end to Carlos Forbs’ loan spell at Molineux.`\
+https://nytimes.com/athletic/6094312/2025/01/28/carlos-forbs-wolves-loan-ajax-return/
+
+**A ‘Shark Tank’ Star on Losing Her Home in the L.A. Fires**\
+`The mobile home of Barbara Corcoran, a real estate mogul and businesswoman, perished in the Palisades fire, along with those of all of her neighbors. “I feel like I lost my sweetheart.”`\
+https://nytimes.com/2025/01/28/realestate/barbara-corcoran-la-fires-mobile-home.html
+
+**Trump Fires Labor Board Prosecutor Who Drew Backlash From Corporations**\
+`Jennifer Abruzzo was removed as general counsel of the National Labor Relations Board. She was widely seen as having taken an aggressive approach in enforcing workers’ rights.`\
+https://nytimes.com/2025/01/28/us/politics/trump-nlrb-jennifer-abruzzo.html
+
 **NBA Power Rankings: Second-quarter grades are here!**\
 `The Thunder and Cavaliers continue to earn straight A's, while the Pelicans and Wizards may need to stay after school.`\
 https://nytimes.com/athletic/6093996/2025/01/28/nba-power-rankings-rockets-celtics-knicks-lakers/
