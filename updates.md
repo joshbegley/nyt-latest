@@ -1,3 +1,11 @@
+**Pardoned Jan. 6 Rioter Is Sought for Charges of Soliciting Minor**\
+`Andrew Taake, who pleaded guilty to attacking the police outside the Capitol, was just released from prison. He is being sought for charges in 2016 of soliciting a 17-year-old online for sex.`\
+https://nytimes.com/2025/01/28/us/politics/jan-6-rioter-minor-solicitation-pardon.html
+
+**Tyler Ivey's comeback to continue at Astros minor-league spring training: Sources**\
+`The Astros have retained Ivey’s contractual rights since he retired from baseball in May 2022 due to burnout`\
+https://nytimes.com/athletic/6095685/2025/01/28/tyler-iveys-comeback-astros-spring-training/
+
 **Barry Michael Cooper, ‘New Jack City’ Screenwriter, Dies at 66**\
 `After chronicling the crack boom of the 1980s as an investigative reporter, he had a high-profile but brief second career in Hollywood.`\
 https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
