@@ -10,13 +10,13 @@ https://nytimes.com/2025/01/28/arts/design/smithsonian-diversity-office-trump.ht
 `Mr. Duffy, a former congressman who had appeared on track to sail through with little opposition, overcame a last-minute swell of Democratic anger over the White House’s sweeping funding freeze.`\
 https://nytimes.com/2025/01/28/us/politics/sean-duffy-trump-transportation-secretary.html
 
-**D.E.I. Will Not Be Missed**\
-`The Pentagon’s experience shows why.`\
-https://nytimes.com/2025/01/28/opinion/dei-military-social-justice.html
-
 **In an Aging World, a Youthful Africa Steps Up**\
 `Forecasts suggest that by 2100 a majority of the world’s babies will be African, leading to predictions of an “African century.”`\
 https://nytimes.com/2025/01/28/opinion/africa-population-youth.html
+
+**D.E.I. Will Not Be Missed**\
+`The Pentagon’s experience shows why.`\
+https://nytimes.com/2025/01/28/opinion/dei-military-social-justice.html
 
 **Jay Mazur, Zealous Advocate for Garment Workers, Dies at 92**\
 `A blunt-speaking, Bronx-born labor leader, he successfully pushed to legalize undocumented union members but fought a losing battle against globalization.`\
