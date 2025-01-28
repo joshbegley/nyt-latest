@@ -1,3 +1,15 @@
+**Al Nassr to decide between deal for Boniface or Duran**\
+`Saudi Arabian side Al Nassr will decide on Wednesday whether to try to close a deal for Bayer Leverkusen&#8217;s Victor Boniface or Aston Villa&#8217;s Jhon Duran as they seek to add a striker to their squad.`\
+https://nytimes.com/athletic/6075913/2025/01/28/boniface-duran-al-nassr-transfer/
+
+**Schools Panic as Trump Administration Demands Scrutiny of Education Programs**\
+`The Trump administration has paused federal dollars to some grantees as it tries to uproot policies like diversity, equity and inclusion. Schools and universities are worried important programs could be halted.`\
+https://nytimes.com/2025/01/28/us/schools-panic-trump-federal-pause.html
+
+**Inside a Chaotic U.S. Deportation Flight to Brazil**\
+`The Trump administration’s first flight deporting Brazilians involved aborted takeoffs, sweltering heat, emergency exits and shackled deportees on a wing.`\
+https://nytimes.com/2025/01/28/world/americas/us-brazil-deportations.html
+
 **Trump’s Order on Transgender Troops Will Likely Ban Their Service, Again**\
 `In an executive order issued Monday night, the president said transgender service members “cannot satisfy the rigorous standards necessary” for the military.`\
 https://nytimes.com/2025/01/28/us/politics/trump-transgender-troops.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6095316/2025/01/28/nba-all-star-weekend-dunk-3-poin
 **How DeepSeek Changed the A.I. Game**\
 `What is DeepSeek, and why did it cause the markets and U.S. tech giants to quake? Cade Metz, a technology reporter for The New York Times who writes about artificial intelligence, explains.`\
 https://nytimes.com/video/technology/100000009951972/how-deepseek-changed-the-ai-game.html
-
-**Ian Cole, Olli Maatta, John Marino, Robert Bortuzzo have formed a Pittsburgh faction in Utah**\
-`Four of Utah's defensemen once manned the blue line for the Penguins and a bond very much remains.`\
-https://nytimes.com/athletic/6087860/2025/01/28/penguins-utah-cole-maatta-marino-bortuzzo/
-
-**Federal Judge Blocks Trump’s Freeze of Federal Grant Funds**\
-`A judge in Washington, D.C., has sided with activists who claimed the White House’s freezing of billions of dollars in already approved funding violated the law.`\
-https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-blocked.html
-
-**Trump Fired E.E.O.C. Commissioners in Late-Night Purge**\
-`The removals of the commissioners, along with the general counsel, was part of a whirlwind of actions since Mr. Trump took office, with many aiming to gut diversity policies.`\
-https://nytimes.com/2025/01/28/business/trump-eeoc-commissioners-fired.html
 
