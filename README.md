@@ -1,3 +1,7 @@
+**Love hurts: Unranked Arizona stuns No. 3 Iowa State in overtime**\
+`The unexpected win gives the Wildcats sole possession of second place in the Big 12 at 8-1.`\
+https://nytimes.com/athletic/6093742/2025/01/28/arizona-stuns-iowa-state/
+
 **Word of the Day: truncate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/28/learning/word-of-the-day-truncate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092094/2025/01/28/dominik-szoboszlai-liverpool-for
 **Aston Villa are short at centre-back - there is now urgency in the transfer window**\
 `After Diego Carlos' exit and Mings' injury, Unai Emery's squad is short in central defence - Juan Foyth and Axel Disasi are both targets`\
 https://nytimes.com/athletic/6090891/2025/01/28/aston-villa-are-short-at-centre-back-there-is-now-urgency-in-the-transfer-window/
-
-**Will Everton's mounting injuries change plans and speed up action in transfer window?**\
-`David Moyes' squad is depleted and signings are needed - how much business will Everton do before the window closes?`\
-https://nytimes.com/athletic/6091783/2025/01/28/everton-transfers-david-moyes-tfg/
 
