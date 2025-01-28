@@ -1,3 +1,15 @@
+**7 New Songs You Should Hear Now**\
+`Listnen to new music from Japanese Breakfast, Central Cee and Lucy Dacus.`\
+https://nytimes.com/2025/01/28/arts/music/amplifier-newsletter-japanese-breakfast-central-cee.html
+
+**Wild's Kirill Kaprizov to undergo surgery, miss 4-plus weeks: 'Going to get it fixed'**\
+`Sources close to Kaprizov said the winger is scheduled to undergo surgery for a lower-body injury on Friday.`\
+https://nytimes.com/athletic/6095002/2025/01/28/wild-kirill-kaprizov-surgery-lower-body/
+
+**Cowboys hire Matt Eberflus as defensive coordinator**\
+`Eberflus spent the last three years as the head coach of the Chicago Bears.`\
+https://nytimes.com/athletic/6087515/2025/01/28/cowboys-matt-eberflus-defensive-coordinator/
+
 **Astros GM Dana Brown details "fracture" in relationship with Ryan Pressly**\
 `Pressly never aired any grievances publicly and continued to serve as a model teammate throughout his uneven 2024 season. `\
 https://nytimes.com/athletic/6094928/2025/01/28/astros-gm-dana-brown-ryan-pressly-relationship/

@@ -1,8 +1,16 @@
+**7 New Songs You Should Hear Now**\
+`Listnen to new music from Japanese Breakfast, Central Cee and Lucy Dacus.`\
+https://nytimes.com/2025/01/28/arts/music/amplifier-newsletter-japanese-breakfast-central-cee.html
+
+**Wild's Kirill Kaprizov to undergo surgery, miss 4-plus weeks: 'Going to get it fixed'**\
+`Sources close to Kaprizov said the winger is scheduled to undergo surgery for a lower-body injury on Friday.`\
+https://nytimes.com/athletic/6095002/2025/01/28/wild-kirill-kaprizov-surgery-lower-body/
+
 **Astros GM Dana Brown details "fracture" in relationship with Ryan Pressly**\
 `Pressly never aired any grievances publicly and continued to serve as a model teammate throughout his uneven 2024 season. `\
 https://nytimes.com/athletic/6094928/2025/01/28/astros-gm-dana-brown-ryan-pressly-relationship/
 
-**Cowboys hire Matt Eberflus as defensive coordinator: Sources**\
+**Cowboys hire Matt Eberflus as defensive coordinator**\
 `Eberflus spent the last three years as the head coach of the Chicago Bears.`\
 https://nytimes.com/athletic/6087515/2025/01/28/cowboys-matt-eberflus-defensive-coordinator/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/28/world/europe/france-bocuse-winner-gastronomy-food
 **Buendia to join Leverkusen on loan from Villa**\
 `Aston Villa midfielder Emiliano Buendia is set to join Bayer Leverkusen on loan.`\
 https://nytimes.com/athletic/6091848/2025/01/28/aston-villa-transfers-buendia-leverkusen/
-
-**Caroline Kennedy Urges Senators to Reject Her Cousin’s Nomination**\
-`In a harsh letter to lawmakers considering Robert F. Kennedy Jr.’s nomination for health secretary, Ms. Kennedy called her cousin a “predator” who led other family members down the path of addiction.`\
-https://nytimes.com/2025/01/28/health/caroline-kennedy-rfk-jr-hhs-confirmation.html
-
-**Woman in Disguise Took U.K. Citizenship Test for Others, Authorities Say**\
-`A 61-year-old woman was arrested after impersonating at least 14 people over the course of more than a year, the authorities said.`\
-https://nytimes.com/2025/01/28/world/europe/uk-citizenship-test-fraud-arrest.html
 
