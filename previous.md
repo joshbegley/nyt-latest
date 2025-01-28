@@ -1,3 +1,7 @@
+**Nonprofits in New York Are Told Their Contracts ‘Have Been Paused’**\
+`New York leaders were trying to determine how the state will be affected by a Trump administration order to freeze trillions of dollars in federal grants and loans.`\
+https://nytimes.com/2025/01/28/us/politics/nyc-nonprofit-contracts.html
+
 **Federal freeze on grants could have broad effect on housing.**\
 `From providing financing for homeless shelters to middle-class mortgage assistance, the federal role in housing extends across regions and income levels.`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/federal-freeze-on-grants-could-have-broad-effect-on-housing
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/briefing/trump-funding-freeze-israel-hostages-con
 **What It Would Take to Build Trump’s Iron Dome Over America**\
 `It’s cheaper, quicker and easier to build missiles and offensive systems than it is to intricately engineer the shield to defeat them.`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/iron-dome-america-missile-defense
-
-**Nonprofits Fear Federal Grants Freeze Could Stop Critical Charity Work**\
-`After President Trump’s freeze on aid, administrators of health care, education and social service programs worried they would have to scale back operations.`\
-https://nytimes.com/2025/01/28/us/politics/nonprofits-federal-grant-freeze-charity.html
 

@@ -1,3 +1,7 @@
+**Nonprofits in New York Are Told Their Contracts ‘Have Been Paused’**\
+`New York leaders were trying to determine how the state will be affected by a Trump administration order to freeze trillions of dollars in federal grants and loans.`\
+https://nytimes.com/2025/01/28/us/politics/nyc-nonprofit-contracts.html
+
 **Federal freeze on grants could have broad effect on housing.**\
 `From providing financing for homeless shelters to middle-class mortgage assistance, the federal role in housing extends across regions and income levels.`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/federal-freeze-on-grants-could-have-broad-effect-on-housing
