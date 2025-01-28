@@ -1,11 +1,3 @@
-**Across Justice Dept., Fear, Anxiety and Angry Bosses**\
-`At the department’s headquarters in downtown Washington, lawyers described the uncertainty that has rippled across the agency.`\
-https://nytimes.com/2025/01/28/us/politics/justice-department-trump.html
-
-**Man Planned to Kill New G.O.P. Leaders With Molotov Cocktails, U.S. Says**\
-`Ryan English, 24, was carrying makeshift explosives and knives near the U.S. Capitol building on Monday, police charge in court papers.`\
-https://nytimes.com/2025/01/28/us/us-capitol-molotov-cocktails-bessent-hegseth.html
-
 **Pardoned Jan. 6 Rioter Is Sought for Charges of Soliciting Minor**\
 `Andrew Taake, who pleaded guilty to attacking the police outside the Capitol, was just released from prison. He is being sought for charges in 2016 of soliciting a 17-year-old online for sex.`\
 https://nytimes.com/2025/01/28/us/politics/jan-6-rioter-minor-solicitation-pardon.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/01/28/us/politics/trump-rubio-foreign-aid.html
 **Kansas Is Dealing With Major Tuberculosis Outbreak**\
 `State health officials said that dozens of people in the Kansas City, Kan., area have the disease, which has drawn a federal response.`\
 https://nytimes.com/2025/01/28/us/tuberculosis-outbreak-kansas.html
+
+**Trump’s ‘Flood the Zone’ Strategy Leaves Opponents Gasping in Outrage**\
+`A deliberate effort by the president and his team to roll out an unceasing flow of initiatives has knocked his rivals off balance in the first days of the new administration.`\
+https://nytimes.com/2025/01/28/us/politics/trump-policy-blitz.html
+
+**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
+`The Seahawks have a new offensive coordinator, and the offseason is in full swing. What's on your mind?`\
+https://nytimes.com/athletic/6095711/2025/01/28/seahawks-mailbag-offensive-coordinator-hire/
 
