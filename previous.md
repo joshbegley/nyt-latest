@@ -1,3 +1,15 @@
+**Giants are unlikely to reinvest savings after shipping Taylor Rogers to Reds**\
+`The Giants will save $6 million by trading Rogers but aren't expected to spend that money on external additions this offseason.`\
+https://nytimes.com/athletic/6098444/2025/01/29/sf-giants-payroll-taylor-rogers-trade/
+
+**5 Takeaways From Robert F. Kennedy’s First Confirmation Hearing**\
+`Mr. Kennedy appears to have most Republicans behind him as he seeks the job of health secretary, though he couldn’t escape his past stances on vaccines and abortion.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-confirmation-hearing-takeaways.html
+
+**Trump Signs Order to Promote ‘Patriotic Education’ in the Classroom**\
+`The executive order was among several the president signed meant to steer American schools and universities to adopt Republican priorities, such as restricting how schools discuss racism and gender issues.`\
+https://nytimes.com/2025/01/29/us/politics/trump-executive-orders-schools-antisemitism-race-gender.html
+
 **Defense Agency Pauses Celebrations of Martin Luther King’s Birthday, Women’s History Month and Others**\
 `The Pentagon joined the scramble by federal agencies trying to conform to President Trump’s war on diversity programs.`\
 https://nytimes.com/2025/01/29/us/politics/trump-holiday-mlk-black-history-dei.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/29/science/asteroid-2024-yr4-earth.html
 **Slot: Nallo must learn from cruel red card**\
 `Arne Slot says Liverpool defender Amara Nallo must learn from his “cruel” red card in Wednesday&#8217;s 3-2 defeat to PSV Eindhoven in the Champions League.`\
 https://nytimes.com/athletic/6098310/2025/01/29/amara-nallo-liverpool-yonugest-red-card/
-
-**Explained: How do the Champions League play-offs work?**\
-`With the Champions League's revamped 'league' stage over, attention turns to the play-off round, which takes place in two weeks`\
-https://nytimes.com/athletic/6097204/2025/01/29/champions-league-play-offs-explained/
-
-**Duran, Watkins transfer interest shows Villa 'in the eyes of other strong teams' - Emery**\
-`Unai Emery has said strikers Jhon Duran and Ollie Watkins being wanted by other clubs is a sign of Aston Villa&#8217;s recent successes.`\
-https://nytimes.com/athletic/6098300/2025/01/29/jhon-duran-ollie-watkins-transfers-aston-villa/
-
-**Trump generates slightly more opposition than support in first poll of new term.**\
-`By Peter Baker`\
-https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/trump-opposition-first-poll-new-term
 
