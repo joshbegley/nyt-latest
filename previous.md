@@ -1,3 +1,11 @@
+**Herbert out as F1 steward after role deemed 'incompatible' with media punditry**\
+`Herbert's dual role attracted criticism last season, namely from Max Vertsappen's father Jos.`\
+https://nytimes.com/athletic/6096497/2025/01/29/johnny-herbert-f1-steward-why/
+
+**Hollinger: My All-Star reserves, and why Jaren Jackson Jr.'s breakout matters**\
+`We're not quite in barrel-scrapping territory in the East ... but it's pretty close. Out West, things are more competitive.`\
+https://nytimes.com/athletic/6094558/2025/01/29/nba-all-star-reserves-2025-jaren-jackson-kyrie-irving/
+
 **Pittsburgh native and rising NHL star Logan Cooley has 'found a home' with Utah**\
 `The 20-year-old Cooley is on the verge of league superstardom while only in his second NHL season. `\
 https://nytimes.com/athletic/6087873/2025/01/29/logan-cooley-nhl-utah-penguins/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/podcasts/the-headlines/federal-payouts-kennedy-se
 **Wordle Review No. 1,321**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Jan. 30, 2025.`\
 https://nytimes.com/2025/01/29/crosswords/wordle-review-1321.html
-
-**Connections Companion No. 599**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 30, 2025.`\
-https://nytimes.com/2025/01/29/crosswords/connections-companion-599.html
-
-**Packers free agency: Ranking 11 players from least to most important**\
-`The Packers' 2025 free-agent class is an underwhelming one, led by center Josh Myers and kicker Brandon McManus.`\
-https://nytimes.com/athletic/6095511/2025/01/29/packers-free-agent-ranking-2025/
 
