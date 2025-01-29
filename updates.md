@@ -1,3 +1,23 @@
+**What the Fed’s Rate Policy Means for Your Finances**\
+`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
+https://nytimes.com/2025/01/29/business/interest-rates-consumers-savings-loans.html
+
+**The Fed is expected to pause on rate cuts, but for how long?**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/01/29/business/fed-interest-rates/the-fed-is-expected-to-pause-on-rate-cuts-but-for-how-long
+
+**Live Updates: Fed Expected to Pause Rate-Cutting Campaign**\
+`After lowering interest rates by a full percentage point last year, officials at the central bank are weighing a solid economy and rising inflation risks.`\
+https://nytimes.com/live/2025/01/29/business/fed-interest-rates
+
+**As Trump Targets Universities, Schools Plan a Counteroffensive**\
+`Universities are hiring lobbyists connected to Republicans and opening offices in Washington to argue their causes amid threats to funding.`\
+https://nytimes.com/2025/01/29/us/trump-targets-universities-schools-plan-counteroffensive.html
+
+**Good Luck, Babes!**\
+`The Times critic Wesley Morris on the eight songs duking it out for Record of the Year.`\
+https://nytimes.com/2025/01/29/podcasts/2025-grammys.html
+
 **Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\
