@@ -1,3 +1,7 @@
+**Shaw returns to Man Utd full training after latest injury layoff**\
+`Luke Shaw has returned to Manchester United full training for the first time since December.`\
+https://nytimes.com/athletic/6096517/2025/01/29/manchester-united-team-news-luke-shaw-injury/
+
 **Trent Dilfer has 'been humbled' at UAB. But will 2025 be any different?**\
 `Last season featured self-inflicted public relations blunders, a six-game losing streak and three losses by more than 30 points.`\
 https://nytimes.com/athletic/6094452/2025/01/29/trent-dilfer-uab-football-turnaround/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095504/2025/01/29/red-wings-todd-mclellan-kasper-r
 **Australian Open champion Keys out of Austin tournament on WTA rule technicality**\
 `The American is unable to play in front of home fans because of a WTA entry rule.`\
 https://nytimes.com/athletic/6096448/2025/01/29/madison-keys-australian-open-atx-open-wta-rules/
-
-**Trump Freezes Trillions. Chaos Ensues.**\
-`What happened when the president ordered a pause in federal grants and loans — and what may come next.`\
-https://nytimes.com/2025/01/29/podcasts/the-daily/trump-freeze-chaos-grants-loans.html
 

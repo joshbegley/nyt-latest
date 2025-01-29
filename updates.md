@@ -1,3 +1,7 @@
+**Shaw returns to Man Utd full training after latest injury layoff**\
+`Luke Shaw has returned to Manchester United full training for the first time since December.`\
+https://nytimes.com/athletic/6096517/2025/01/29/manchester-united-team-news-luke-shaw-injury/
+
 **Trent Dilfer has 'been humbled' at UAB. But will 2025 be any different?**\
 `Last season featured self-inflicted public relations blunders, a six-game losing streak and three losses by more than 30 points.`\
 https://nytimes.com/athletic/6094452/2025/01/29/trent-dilfer-uab-football-turnaround/

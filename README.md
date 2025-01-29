@@ -1,3 +1,7 @@
+**The Pulse: Another NBA star on the move?**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6094487/2025/01/29/deaaron-fox-kings-trade-the-pulse/
+
 **Shaw returns to Man Utd full training after latest injury layoff**\
 `Luke Shaw has returned to Manchester United full training for the first time since December.`\
 https://nytimes.com/athletic/6096517/2025/01/29/manchester-united-team-news-luke-shaw-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092315/2025/01/29/mens-college-basketball-all-amer
 **Kasper's breakout, Raymond's dominance: What's driving Detroit's surge under McLellan?**\
 `Detroit is 11-4-1 under new head coach Todd McLellan. Here's some of the biggest factors driving that surge.`\
 https://nytimes.com/athletic/6095504/2025/01/29/red-wings-todd-mclellan-kasper-raymond/
-
-**Australian Open champion Keys out of Austin tournament on WTA rule technicality**\
-`The American is unable to play in front of home fans because of a WTA entry rule.`\
-https://nytimes.com/athletic/6096448/2025/01/29/madison-keys-australian-open-atx-open-wta-rules/
 
