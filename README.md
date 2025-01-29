@@ -1,3 +1,11 @@
+**Notre Dame hiring Chris Ash as defensive coordinator: Source**\
+`Chris Ash, a former Rutgers head coach who spent the past four years in the NFL, will be Notre Dame's new defensive coordinator.`\
+https://nytimes.com/athletic/6097759/2025/01/29/chris-ash-notre-dame-defensive-coordinator/
+
+**Caitlin Clark will not participate in NBA All-Star Weekend 3-point challenge**\
+`Clark wants her first 3-point contest to be at the WNBA All-Star festivities in Indianapolis this summer.`\
+https://nytimes.com/athletic/6097690/2025/01/29/caitlin-clark-nba-three-point-contest-wnba/
+
 **The Justice Dept. seeks to have criminal charges dismissed against a former Republican representative.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/the-justice-dept-seeks-to-have-criminal-charges-dismissed-against-a-former-republican-representative
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6096416/2025/01/29/jhon-duran-transfer-al-nassr-vil
 **‘Dean of American Historians’: Ken Burns on William E. Leuchtenburg**\
 `One was a filmmaker, the other a scholarly adviser (who sometimes appeared on camera), and the two became close friends, working together for more than 40 years.`\
 https://nytimes.com/2025/01/29/us/ken-burns-on-william-e-leuchtenburg.html
-
-**DeSantis Says He Will Veto Immigration Bill in Clash With Lawmakers**\
-`The veto pledge capped a dramatic few days in which Republican legislators publicly criticized Gov. Ron DeSantis and portrayed themselves as truer allies of President Trump.`\
-https://nytimes.com/2025/01/29/us/desantis-veto-immigration-bill.html
-
-**The weirdest and silliest Super Bowl 2025 prop bets: Will Kelce propose to Swift?**\
-`There are plenty of goofy bets relating to the Super Bowl, from a Travis Kelce proposal to Taylor Swift to tears during the national anthem.`\
-https://nytimes.com/athletic/6097463/2025/01/29/weirdest-silliest-super-bowl-2025-prop-bets/
 
