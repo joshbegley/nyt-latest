@@ -1,3 +1,23 @@
+**What the Fed’s Rate Policy Means for Your Finances**\
+`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
+https://nytimes.com/2025/01/29/business/interest-rates-consumers-savings-loans.html
+
+**The Fed is expected to pause on rate cuts, but for how long?**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/01/29/business/fed-interest-rates/the-fed-is-expected-to-pause-on-rate-cuts-but-for-how-long
+
+**Live Updates: Fed Expected to Pause Rate-Cutting Campaign**\
+`After lowering interest rates by a full percentage point last year, officials at the central bank are weighing a solid economy and rising inflation risks.`\
+https://nytimes.com/live/2025/01/29/business/fed-interest-rates
+
+**As Trump Targets Universities, Schools Plan a Counteroffensive**\
+`Universities are hiring lobbyists connected to Republicans and opening offices in Washington to argue their causes amid threats to funding.`\
+https://nytimes.com/2025/01/29/us/trump-targets-universities-schools-plan-counteroffensive.html
+
+**Good Luck, Babes!**\
+`The Times critic Wesley Morris on the eight songs duking it out for Record of the Year.`\
+https://nytimes.com/2025/01/29/podcasts/2025-grammys.html
+
 **Buendia joins Leverkusen on loan, signs new Villa contract**\
 `Bayer Leverkusen have completed the loan signing of Emi Buendia from Aston Villa.`\
 https://nytimes.com/athletic/6096644/2025/01/29/emi-buendia-leverkusen-loan/
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6060673/2025/01/29/mathys-tel-manchester-united-tra
 **Kennedy’s positions on abortion have shifted.**\
 `By Amy Schoenfeld Walker`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jrs-positions-on-abortion-have-shifted
-
-**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
-`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
-`\
-https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-best-players/
-
-**Browns not worried Deion would intervene if they draft Shedeur Sanders**\
-`Shedeur Sanders has faced questions about his father's involvement since declaring for the draft. `\
-https://nytimes.com/athletic/6097117/2025/01/29/browns-not-worried-deion-sanders-would-intervene-if-they-draft-shedeur-sanders/
-
-**Senator Bennet, channeling Democratic ire, pushes Kennedy on history of conspiracy theories.**\
-`By Christina Jewett, Sara Ruberg and Pam Belluck`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/senator-bennet-channeling-democratic-ire-pushes-kennedy-on-history-of-conspiracy-theories
-
-**Should I Renounce a Religious Group That’s Taken a Bad Turn?**\
-`The magazine’s Ethicist columnist on whether to remain a part of a religious organization that’s behaving in an unenlightened manner.`\
-https://nytimes.com/2025/01/29/magazine/religious-group-india-whatsapp-ethics.html
-
-**Lakers' Anthony Davis to be re-evaluated in a week for abdominal injury**\
-`Davis is averaging 25.7 points, 11.9 rebounds, 3.4 assists, 1.3 steals and 2.1 blocks in 34.3 minutes per game this season.`\
-https://nytimes.com/athletic/6097145/2025/01/29/lakers-anthony-davis-injury-timeline/
 
