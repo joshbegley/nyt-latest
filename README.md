@@ -1,3 +1,11 @@
+**Brittney Griner agrees to 1-year deal with Dream**\
+`Griner entered the offseason as the second-longest tenured WNBA player with one team, having spent her entire career in Phoenix.`\
+https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-phoenix-mercury-wnba/
+
+**Scheffler details 'stupid' kitchen accident that delayed his start to 2025**\
+`After injuring himself while making ravioli on Christmas, top-ranked player makes belated PGA Tour return this week at Pebble Beach Pro-Am.`\
+https://nytimes.com/athletic/6095904/2025/01/28/scottie-scheffler-hand-injury-update-ravioli/
+
 **Elon Musk Suggests SpaceX Will Accelerate Return of NASA Astronauts**\
 `SpaceX is scheduled to bring home two astronauts who have been on the International Space Station since June. Mr. Musk said President Trump had asked for that to occur “as soon as possible.”`\
 https://nytimes.com/2025/01/28/science/musk-spacex-trump-nasa.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000009953528/vietnam-kumquat-lunar-new-y
 **Caroline Kennedy’s Video Exposes the Fight Over a Fading Family Legacy**\
 `Caroline Kennedy stepped out of the shadows and onto social media to assail her cousin, Robert F. Kennedy Jr., on the eve of his Senate hearing.`\
 https://nytimes.com/2025/01/28/us/politics/caroline-robert-kennedy-trump.html
-
-**Steinbrenner: Dodgers’ spending ‘difficult’ for rest of MLB to match**\
-`The Yankees were valued at $7.55 billion by Forbes, the fourth-most valuable sports franchise in the world, ahead of the Dodgers.`\
-https://nytimes.com/athletic/6095925/2025/01/28/yankees-hal-steinbrenner-dodgers-spending-comments/
-
-**Casualties Feared After Stampede at Huge Hindu Festival in India**\
-`People were trampled as pilgrims at the Maha Kumbh Mela, one of the world’s biggest gatherings, were rushing to the confluence of two sacred rivers, officials said.`\
-https://nytimes.com/2025/01/28/world/asia/india-stampede-maha-kumbh-festival.html
 
