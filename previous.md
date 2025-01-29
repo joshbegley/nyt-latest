@@ -1,3 +1,7 @@
+**Patrick Dorgu - His position, strengths, weaknesses and what he'd bring to Man Utd**\
+`Patrick Dorgu is a potential solution to Amorim's wing-back problem - but the emphasis is on his potential`\
+https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-transfers-signing-strengths/
+
 **Frontier Airlines Offers to Buy Spirit Airlines, Again**\
 `Spirit, which filed for bankruptcy protection in November, called off a deal with Frontier in 2022 after receiving a higher bid from JetBlue that was ultimately thwarted by a federal judge.`\
 https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/world/middleeast/israel-gaza-witkoff-visit.html
 **Mark Daigneault and first-place Thunder practice being present: 'Be where our feet are'**\
 `What Oklahoma City calls a "0-0 mentality" is drilled into its members. That process has resulted in the team owning the NBA's best record.`\
 https://nytimes.com/athletic/6084483/2025/01/29/mark-daigneault-thunder-nba-standings/
-
-**Man United reach broad agreement to sign Dorgu from Lecce**\
-`Manchester United have reached a broad agreement with Lecce for the transfer of Patrick Dorgu for €30million (£25.`\
-https://nytimes.com/athletic/6086282/2025/01/29/patrick-dorgu-manchester-united-transfer/
 

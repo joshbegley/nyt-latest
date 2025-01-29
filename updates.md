@@ -1,3 +1,7 @@
+**Patrick Dorgu - His position, strengths, weaknesses and what he'd bring to Man Utd**\
+`Patrick Dorgu is a potential solution to Amorim's wing-back problem - but the emphasis is on his potential`\
+https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-transfers-signing-strengths/
+
 **Frontier Airlines Offers to Buy Spirit Airlines, Again**\
 `Spirit, which filed for bankruptcy protection in November, called off a deal with Frontier in 2022 after receiving a higher bid from JetBlue that was ultimately thwarted by a federal judge.`\
 https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
