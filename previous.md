@@ -1,3 +1,11 @@
+**Giants barely functional without healthy Andrew Thomas: 29 thoughts on 29 offensive players**\
+`It’s impossible to ignore how damaging Thomas’ extended absences have been to the Giants the past two seasons.`\
+https://nytimes.com/athletic/6095252/2025/01/29/giants-andrew-thomas-offense-malik-nabers/
+
+**A medical condition explains the sound of Kennedy’s voice.**\
+`By Teddy Rosenbluth`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/spasmodic-dysphonia-rfk-voice
+
 **Walker Kessler? Myles Turner? Lonzo Ball reunion? Lakers trade-target tiers**\
 `The Lakers have glaring needs, including another big and secondary playmaker. Here's who they should go after before the Feb. 6 deadline.`\
 https://nytimes.com/athletic/6094864/2025/01/29/lakers-trade-targets-walker-kessler-myles-turner-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6096843/2025/01/29/lewis-hamilton-ferrari-crash-bar
 **De'Aaron Fox trade scenarios: Could Kings star team up with Victor Wembanyama?**\
 `The clock is ticking on Sacramento. Would Houston or Orlando make a play for the point guard? Or will the Spurs form a dynamic duo?`\
 https://nytimes.com/athletic/6095447/2025/01/29/deaaron-fox-trade-rumors-kings-spurs-rockets-magic/
-
-**MoneyCall: Super Bowl LIX’s 5 best business storylines**\
-`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
-https://nytimes.com/athletic/6096124/2025/01/29/super-bowl-nfl-business-viewership-moneycall-newsletter/
-
-**The Republicans to Watch During Kennedy’s Confirmation Hearings**\
-`With most Democrats expected to vote against him, Robert F. Kennedy Jr.’s bid for health secretary will come down whether he can win over skeptics in President Trump’s party.`\
-https://nytimes.com/2025/01/29/us/politics/rfk-jr-republicans-mcconnell.html
 
