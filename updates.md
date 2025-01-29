@@ -1,3 +1,11 @@
+**Justice Dept. Is Said to Discuss Dropping Case Against Eric Adams**\
+`Senior officials under President Trump have talked with prosecutors in Manhattan about the possibility of abandoning the corruption case against Mr. Adams, the mayor of New York City.`\
+https://nytimes.com/2025/01/29/us/politics/justice-department-trump-charges-eric-adams.html
+
+**Dortmund set to appoint Kovac as head coach after Sahin exit**\
+`Borussia Dortmund are set to appoint Niko Kovac as their new head coach, with an agreement in place on a contract that will run through to 2026.`\
+https://nytimes.com/athletic/6080863/2025/01/29/niko-kovac-dortmund-manager-who/
+
 **Ryan Pressly details waiving no-trade clause: 'It's hard to leave your home'**\
 `Pressly has already spoken with Cubs manager Craig Counsell and Cubs president of baseball operations Jed Hoyer.`\
 https://nytimes.com/athletic/6097778/2025/01/29/ryan-pressly-chicago-cubs-trade-details/
