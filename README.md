@@ -1,3 +1,7 @@
+**How Does DeepSeek’s A.I. Chatbot Navigate China’s Censors? Awkwardly.**\
+`Asked about sensitive topics, the bot would begin to answer, then stop and delete its own work. It refused to answer questions like: “Who is Xi Jinping?”`\
+https://nytimes.com/2025/01/29/world/asia/deepseek-china-censorship.html
+
 **Michael Kosta Is More Than Happy to Be Protected by Trans Soldiers**\
 `The “Daily Show” host took issue with the latest Trump ban: “I think we should be grateful to anyone who’s willing to put their life on the line so I don’t have to.”`\
 https://nytimes.com/2025/01/29/arts/television/michael-kosta-transgender-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/learning/word-of-the-day-adulation.html
 **Kliff Kingsbury to stay with Commanders, Mike McCarthy out for Saints' vacancy**\
 `Kingsbury staying in Washington isn't a surprise for the NFC conference runner-ups.`\
 https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-saints-head-coach-withdrawal/
-
-**Wednesday Briefing**\
-`Confusion in the U.S. after a Trump spending freeze.`\
-https://nytimes.com/2025/01/29/briefing/trump-spending-hostages.html
 
