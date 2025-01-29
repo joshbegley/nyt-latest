@@ -1,3 +1,11 @@
+**Trump generates slightly more opposition than support in first poll of new term.**\
+`By Peter Baker`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/trump-opposition-first-poll-new-term
+
+**Nebraska volleyball coach John Cook retires; Dani Busboom Kelly to take over**\
+`Busboom Kelly is a former player and assistant under Cook who coached Louisville to the national title match last month.`\
+https://nytimes.com/athletic/6098308/2025/01/29/john-cook-retires-nebraska-volleyball-dani-busboom-kelly/
+
 **Trump’s Retribution Continues With Removal of General Milley’s Security Detail**\
 `Early in his first administration, President Trump noted the general’s “brilliance and fortitude.” And then the president got angry.`\
 https://nytimes.com/2025/01/29/us/politics/mark-milley-security-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/briefing/white-house-freeze-menendez-sentence.htm
 **Stuck on What to Get for Valentine’s Day? Here Are Some Unexpected Gift Ideas.**\
 `Glass portraits, rebellious perfumes and more recommendations from T Magazine.`\
 https://nytimes.com/2025/01/29/t-magazine/unique-valentines-day-gift-ideas.html
-
-**Inside the Chaotic Rollout of Trump’s Federal Funding Freeze**\
-`The order that froze trillions of dollars of federal grants and loans was published without vetting by key officials in the White House.`\
-https://nytimes.com/2025/01/29/us/politics/trump-funding-freeze-rollout.html
-
-**What Do Robert F. Kennedy Jr.’s Birds Mean?**\
-`As he seeks to lead the health department, Mr. Kennedy wore a thin tie dotted with feathered creatures to cap a classic suit.`\
-https://nytimes.com/2025/01/29/style/rfk-jr-birds-tie.html
 
