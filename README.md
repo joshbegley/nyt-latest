@@ -1,3 +1,16 @@
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-best-players/
+
+**Browns not worried Deion would intervene if they draft Shedeur Sanders**\
+`Since declaring for the draft, Sanders has faced questions about his father's involvement in his draft process.`\
+https://nytimes.com/athletic/6097117/2025/01/29/browns-not-worried-deion-sanders-would-intervene-if-they-draft-shedeur-sanders/
+
+**Senator Bennet, channeling Democratic ire, pushes Kennedy on history of conspiracy theories.**\
+`By Christina Jewett, Sara Ruberg and Pam Belluck`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/senator-bennet-channeling-democratic-ire-pushes-kennedy-on-history-of-conspiracy-theories
+
 **Should I Renounce a Religious Group That’s Taken a Bad Turn?**\
 `The magazine’s Ethicist columnist on whether to remain a part of a religious organization that’s behaving in an unenlightened manner.`\
 https://nytimes.com/2025/01/29/magazine/religious-group-india-whatsapp-ethics.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6097075/2025/01/29/jalen-johnson-shoulder-injury-su
 **Stream These Movies and TV Shows Before They Leave Netflix in February**\
 `A lot of great stuff is leaving this month for U.S. subscribers, including a favorite action-movie franchise and two excellent recent sitcoms.`\
 https://nytimes.com/2025/01/29/arts/television/stream-these-movies-and-tv-shows-before-they-leave-netflix-in-february.html
-
-**Scoop City: Key takeaways from this week's media sessions, including Raiders QB plans**\
-`Inside: What we&#8217;ve heard from teams amid big decisions, plus what&#8217;s next for the Ravens and Lions, Kliff Kingsbury&#8217;s plans and Travis Kelce&#8217;s playoff heroics.`\
-https://nytimes.com/athletic/6097139/2025/01/29/nfl-media-session-takeaways-raiders-steelers-pete-carroll-scoop-city/
-
-**Neymar set to rejoin Santos after 12 years**\
-`Neymar has reached an agreement to rejoin boyhood club Santos on a six-month contract after leaving Al Hilal.`\
-https://nytimes.com/athletic/5891198/2025/01/29/neymar-santos-transfer-contract/
-
-**Kennedy appears unfamiliar with key aspects of Medicare and Medicaid.**\
-`By Sarah Kliff and Reed Abelson`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/medicaid-medicare-rfk-jr
 
