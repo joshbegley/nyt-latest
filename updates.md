@@ -1,3 +1,11 @@
+**Democrats to Question Commerce Nominee’s Web of Financial Interests**\
+`Howard Lutnick, the wealthy financier Trump has picked to lead the Commerce Department, is set to be questioned by the Senate in a nomination hearing Wednesday.`\
+https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-nominees-web-of-financial-interests.html
+
+**What to Know About Trump’s Plan to Slash the Federal Work Force**\
+`The Office of Personnel Management sought to entice civilian federal employees to resign, as President Trump seeks to reshape the U.S. government. Here are details of the plan.`\
+https://nytimes.com/2025/01/29/us/politics/trump-federal-workers-buyout.html
+
 **Patrick Dorgu - His position, strengths, weaknesses and what he'd bring to Man Utd**\
 `Patrick Dorgu is a potential solution to Amorim's wing-back problem - but the emphasis is on his potential`\
 https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-transfers-signing-strengths/
