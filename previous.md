@@ -1,3 +1,11 @@
+**Attention Letter Writers: Have You Connected With Other Times Readers?**\
+`With a letter to the editor, readers can share their thoughts on articles. They can also build community with other readers. Have you developed friendships with others who have had their letters published?`\
+https://nytimes.com/2025/01/29/insider/attention-letter-writers-have-you-connected-with-other-times-readers.html
+
+**An unexpected salvo against Kennedy: a baby’s onesie.**\
+`By Teddy Rosenbluth`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/an-unexpected-salvo-against-kennedy-a-babys-onesie
+
 **A (Sort-Of) Bolognese Fast and Easy Enough for Hard Nights**\
 `This hearty, reviving recipe from Genevieve Ko isn’t just quick and budget-friendly, it’s full of deep, rich flavors.`\
 https://nytimes.com/2025/01/29/dining/quick-sort-of-bolognese-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/mexico-president-sheinbaum-trump-tari
 **Kennedy raised questions about rising rates of food allergies. What’s driving the increase?**\
 `By Katie Mogg`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-raised-questions-about-rising-rates-of-food-allergies-whats-driving-the-increase
-
-**Watch: Why January is undeniably quarterback season**\
-`The Athletic Football Show discusses why having an elite quarterback is so important to win in the NFL.`\
-https://nytimes.com/athletic/6097019/2025/01/29/athletic-football-show-quarterbacks-january/
-
-**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
-`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
-https://nytimes.com/athletic/6083468/2025/01/29/ovechkin-goals-record-wayne-gretzky-stats/
 

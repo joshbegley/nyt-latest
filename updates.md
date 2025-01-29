@@ -1,3 +1,11 @@
+**Attention Letter Writers: Have You Connected With Other Times Readers?**\
+`With a letter to the editor, readers can share their thoughts on articles. They can also build community with other readers. Have you developed friendships with others who have had their letters published?`\
+https://nytimes.com/2025/01/29/insider/attention-letter-writers-have-you-connected-with-other-times-readers.html
+
+**An unexpected salvo against Kennedy: a baby’s onesie.**\
+`By Teddy Rosenbluth`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/an-unexpected-salvo-against-kennedy-a-babys-onesie
+
 **Prime Tire: An F1 playoff system what-if; Inside driver development programs**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6097523/2025/01/29/formula-one-nascar-playoffs-prime-tire/
