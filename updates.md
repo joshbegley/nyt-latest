@@ -1,3 +1,23 @@
+**Stream These Movies and TV Shows Before They Leave Netflix in February**\
+`A lot of great stuff is leaving this month for U.S. subscribers, including a favorite action-movie franchise and two excellent recent sitcoms.`\
+https://nytimes.com/2025/01/29/arts/television/stream-these-movies-and-tv-shows-before-they-leave-netflix-in-february.html
+
+**Scoop City: Key takeaways from this week's media sessions, including Raiders QB plans**\
+`Inside: What we&#8217;ve heard from teams amid big decisions, plus what&#8217;s next for the Ravens and Lions, Kliff Kingsbury&#8217;s plans and Travis Kelce&#8217;s playoff heroics.`\
+https://nytimes.com/athletic/6097139/2025/01/29/nfl-media-session-takeaways-raiders-steelers-pete-carroll-scoop-city/
+
+**Neymar set to rejoin Santos after 12 years**\
+`Neymar has reached an agreement to rejoin boyhood club Santos on a six-month contract after leaving Al Hilal.`\
+https://nytimes.com/athletic/5891198/2025/01/29/neymar-santos-transfer-contract/
+
+**Kennedy appears unfamiliar with key aspects of Medicare and Medicaid.**\
+`By Sarah Kliff and Reed Abelson`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/medicaid-medicare-cassidy
+
+**With Tampons and Code, Silicon Valley Workers Quietly Protest Tech’s Rightward Shift**\
+`As Mark Zuckerberg and other tech titans have embraced President Trump and muffled internal dissent at their companies, their mostly left-leaning employees have objected with subtle acts of defiance.`\
+https://nytimes.com/2025/01/29/technology/tampons-silicon-valley-workers-protest.html
+
 **A Lush Chicken Curry for Lunar New Year**\
 `Serve this  deliciously savory dish with nasi biryani or draped over steamed rice; either way, it’s a stunning meal.`\
 https://nytimes.com/2025/01/29/dining/a-lush-chicken-curry-for-lunar-new-year.html
