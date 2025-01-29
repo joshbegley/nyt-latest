@@ -1,3 +1,15 @@
+**What Kennedy has said about weight loss drugs and the obesity epidemic.**\
+`By Gina Kolata`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-weight-loss-obesity
+
+**Higher-for-Longer Interest Rates Mean More Expensive Federal Debt**\
+`The Fed’s key rate has a bearing on the sustainability of public borrowing, which is heading to striking levels.`\
+https://nytimes.com/2025/01/29/business/government-debt-deficits-interest-rates.html
+
+**Giannis' long passes, reincorporating the big three and more: Bucks observations**\
+`Antetokounmpo is one of the greatest transition threats in NBA history, but his long passes have changed the Bucks' geometry on offense.`\
+https://nytimes.com/athletic/6094924/2025/01/29/giannis-antetokounmpo-gary-trent-bucks/
+
 **Prosecutors Move to Drop Classified Documents Case Against Trump’s Co-Defendants**\
 `If the appeals court agrees, it would be the formal end of the case in which Donald J. Trump was accused of illegally holding onto classified materials after he left office.`\
 https://nytimes.com/2025/01/29/us/politics/trump-classified-documents-case.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6096755/2025/01/29/mercedes-streamliner-sothebys-au
 **Ryne Stanek, Mets agree to 1-year deal: Source**\
 `The Mets and right-hander Ryne Stanek reached an agreement Wednesday on a one-year contract, league sources confirmed.`\
 https://nytimes.com/athletic/6097261/2025/01/29/ryne-stanek-mets-contract/
-
-**Trump’s Tariffs Scramble Fed’s Interest Rate Calculus**\
-`Economists predict that the Trump administration’s trade policies could push up prices for consumers, making it harder for Fed officials to cut rates.`\
-https://nytimes.com/2025/01/29/business/trumps-tariffs-interest-rates-fed.html
-
-**Kennedy sought to stop Covid vaccinations 6 months after rollout.**\
-`By Christina Jewett`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-sought-to-stop-covid-vaccinations-6-months-after-rollout
-
-**Caitlin Clark effect: Iowa generated more than $3.2 million in ticket sales in 2023-24**\
-`Iowa welcomes Clark back to Carver-Hawkeye Arena on Sunday for her jersey retirement ceremony against No. 4 USC.`\
-https://nytimes.com/athletic/6097170/2025/01/29/caitlin-clark-basketball-ticket-sales-iowa-hawkeyes/
 

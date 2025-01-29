@@ -1,3 +1,15 @@
+**What Kennedy has said about weight loss drugs and the obesity epidemic.**\
+`By Gina Kolata`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-weight-loss-obesity
+
+**Higher-for-Longer Interest Rates Mean More Expensive Federal Debt**\
+`The Fed’s key rate has a bearing on the sustainability of public borrowing, which is heading to striking levels.`\
+https://nytimes.com/2025/01/29/business/government-debt-deficits-interest-rates.html
+
+**Giannis' long passes, reincorporating the big three and more: Bucks observations**\
+`Antetokounmpo is one of the greatest transition threats in NBA history, but his long passes have changed the Bucks' geometry on offense.`\
+https://nytimes.com/athletic/6094924/2025/01/29/giannis-antetokounmpo-gary-trent-bucks/
+
 **Prosecutors Move to Drop Classified Documents Case Against Trump’s Co-Defendants**\
 `If the appeals court agrees, it would be the formal end of the case in which Donald J. Trump was accused of illegally holding onto classified materials after he left office.`\
 https://nytimes.com/2025/01/29/us/politics/trump-classified-documents-case.html
