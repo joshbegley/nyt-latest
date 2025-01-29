@@ -1,3 +1,7 @@
+**Bob Menendez Plans to Appeal After Being Sentenced to 11 Years in Prison**\
+`Former New Jersey Senator Bob Menendez called his trial a “political witch hunt” and claimed he was innocent.`\
+https://nytimes.com/video/us/politics/100000009957746/robert-menendez-sentencing.html
+
 **U.S. Open to start on Sunday in 2025 with 15 days of main-draw play**\
 `It becomes the third Grand Slam tournament to start on a Sunday.`\
 https://nytimes.com/athletic/6097916/2025/01/29/us-open-2025-start-date-sunday-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095624/2025/01/29/sf-giants-underrated-prospects-2
 **Senate Confirms Lee Zeldin to Head E.P.A.**\
 `The former New York congressman has little experience in environmental policy. He is expected to follow orders to weaken climate rules.`\
 https://nytimes.com/2025/01/29/climate/lee-zeldin-epa-confirmation.html
-
-**Warriors trade intel: What we're hearing about Jimmy Butler, Zach LaVine and more**\
-`As the clock ticks toward the deadline, the Warriors have floated a protected first-rounder as a sweetener in potential deals.`\
-https://nytimes.com/athletic/6096150/2025/01/29/nba-trade-intel-warriors-jimmy-butler/
 
