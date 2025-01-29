@@ -1,3 +1,7 @@
+**Sisters Alyssa and Gisele Thompson agree Angel City contract extensions**\
+`Alyssa Thompson and Gisele Thompson have agreed contract extensions at Angel City through to 2028.`\
+https://nytimes.com/athletic/6096417/2025/01/29/alyssa-gisele-thompson-angel-city-contracts/
+
 **Lurking Inside an Asteroid: Life’s Ingredients**\
 `Scientists studying samples that NASA collected from the asteroid Bennu found a wide assortment of organic molecules that shed light on how life arose.`\
 https://nytimes.com/2025/01/29/science/nasa-bennu-asteroid-molecules.html

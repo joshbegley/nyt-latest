@@ -1,3 +1,7 @@
+**Sisters Alyssa and Gisele Thompson agree Angel City contract extensions**\
+`Alyssa Thompson and Gisele Thompson have agreed contract extensions at Angel City through to 2028.`\
+https://nytimes.com/athletic/6096417/2025/01/29/alyssa-gisele-thompson-angel-city-contracts/
+
 **Lurking Inside an Asteroid: Life’s Ingredients**\
 `Scientists studying samples that NASA collected from the asteroid Bennu found a wide assortment of organic molecules that shed light on how life arose.`\
 https://nytimes.com/2025/01/29/science/nasa-bennu-asteroid-molecules.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/business/frito-lay-potato-chips-recall.html
 **William E. Leuchtenburg, Scholar of F.D.R. and the Presidency, Dies at 102**\
 `His writings, which stretched across eight decades, helped Americans understand a president who transformed the office and shaped the postwar years.`\
 https://nytimes.com/2025/01/29/books/william-e-leuchtenburg-dead.html
-
-**Elias Pettersson trade watch: 10 destinations and what the Canucks could get back**\
-`Elias Pettersson could be the odd man out in Vancouver. What does he bring, where could he land and what does Vancouver need?`\
-https://nytimes.com/athletic/6096332/2025/01/29/canucks-elias-pettersson-trade/
 
