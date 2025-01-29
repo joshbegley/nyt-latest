@@ -1,3 +1,7 @@
+**Frontier Airlines Offers to Buy Spirit Airlines, Again**\
+`Spirit, which filed for bankruptcy protection in November, called off a deal with Frontier in 2022 after receiving a higher bid from JetBlue that was ultimately thwarted by a federal judge.`\
+https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
+
 **‘Open the Door, Open the Door!’: How Dozens Fled an Inferno on a Plane**\
 `A month after the deadliest aviation disaster on South Korean soil, a fire destroyed another passenger jet in the country.`\
 https://nytimes.com/2025/01/29/world/asia/south-korea-busan-airplane-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6084483/2025/01/29/mark-daigneault-thunder-nba-stan
 **Man United reach broad agreement to sign Dorgu from Lecce**\
 `Manchester United have reached a broad agreement with Lecce for the transfer of Patrick Dorgu for €30million (£25.`\
 https://nytimes.com/athletic/6086282/2025/01/29/patrick-dorgu-manchester-united-transfer/
-
-**A Tropical, Chewy Lunar New Year Dessert**\
-`The writer and curator Su Wu’s version of tang yuan reflects her family’s history and her life in Mexico City.`\
-https://nytimes.com/2025/01/29/t-magazine/tang-yuan-dessert-recipe.html
 

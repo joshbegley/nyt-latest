@@ -1,3 +1,7 @@
+**Frontier Airlines Offers to Buy Spirit Airlines, Again**\
+`Spirit, which filed for bankruptcy protection in November, called off a deal with Frontier in 2022 after receiving a higher bid from JetBlue that was ultimately thwarted by a federal judge.`\
+https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
+
 **‘Open the Door, Open the Door!’: How Dozens Fled an Inferno on a Plane**\
 `A month after the deadliest aviation disaster on South Korean soil, a fire destroyed another passenger jet in the country.`\
 https://nytimes.com/2025/01/29/world/asia/south-korea-busan-airplane-fire.html
