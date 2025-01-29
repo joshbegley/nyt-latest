@@ -1,3 +1,11 @@
+**Ravens roster breakdown: Where will decisions need to be made this offseason?**\
+`Taking stock of a Baltimore roster that will have about 20 players preparing for either unrestricted or restricted free agency.`\
+https://nytimes.com/athletic/6095429/2025/01/29/baltimore-ravens-2025-roster-breakdown/
+
+**Canada's Buchanan set for Villarreal loan move**\
+`Villarreal are finalising a deal to sign Canada international Tajon Buchanan on loan from Inter Milan.`\
+https://nytimes.com/athletic/6095644/2025/01/29/tajon-buchanan-canada-villarreal-inter/
+
 **Canada's Buchanan set for Villarreal loan move**\
 `Villarreal are working to finalise a deal to sign Canada international Tajon Buchanan on loan from Inter Milan.`\
 https://nytimes.com/athletic/6095644/2025/01/29/canadas-tajon-buchanan-set-for-villarreal-loan-move/

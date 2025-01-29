@@ -1,6 +1,10 @@
+**Ravens roster breakdown: Where will decisions need to be made this offseason?**\
+`Taking stock of a Baltimore roster that will have about 20 players preparing for either unrestricted or restricted free agency.`\
+https://nytimes.com/athletic/6095429/2025/01/29/baltimore-ravens-2025-roster-breakdown/
+
 **Canada's Buchanan set for Villarreal loan move**\
-`Villarreal are working to finalise a deal to sign Canada international Tajon Buchanan on loan from Inter Milan.`\
-https://nytimes.com/athletic/6095644/2025/01/29/canadas-tajon-buchanan-set-for-villarreal-loan-move/
+`Villarreal are finalising a deal to sign Canada international Tajon Buchanan on loan from Inter Milan.`\
+https://nytimes.com/athletic/6095644/2025/01/29/tajon-buchanan-canada-villarreal-inter/
 
 **Citizenship by Birthright? By Bloodline? Migration Is Complicating Both.**\
 `In a world where people are more mobile than ever, nations are struggling to recalibrate who can be a citizen.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/business/howard-lutnick-greenland.html
 **Meta Gave Away Its A.I. Crown Jewels. DeepSeek Vindicated Its Strategy.**\
 `The Silicon Valley giant was criticized for giving away its core A.I. technology two years ago for anyone to use. Now that bet is having an impact.`\
 https://nytimes.com/2025/01/29/technology/meta-gave-away-its-ai-crown-jewels-deepseek-vindicated-its-strategy.html
-
-**They Invested Billions. Then the A.I. Script Got Flipped.**\
-`Venture capitalists plowed money into A.I. start-ups like OpenAI and Anthropic. But the rise of the Chinese A.I. start-up DeepSeek has called that funding frenzy into question.`\
-https://nytimes.com/2025/01/29/technology/deepseek-ai-startups-venture-capital.html
 
