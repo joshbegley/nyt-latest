@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-best-players/
+
 **FCSB or Steaua Bucharest: Who are Manchester United's Europa League opponents?**\
 `The argument over who owns the true history of Romania’s most successful club - and with it the 1986 European Cup - continues to rage`\
 https://nytimes.com/athletic/6096595/2025/01/29/fcsb-steaua-bucharest-manchester-united-becali/
