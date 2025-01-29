@@ -1,3 +1,15 @@
+**Lurking Inside an Asteroid: Life’s Ingredients**\
+`Scientists studying samples that NASA collected from the asteroid Bennu found a wide assortment of organic molecules that shed light on how life arose.`\
+https://nytimes.com/2025/01/29/science/nasa-bennu-asteroid-molecules.html
+
+**A Lush Chicken Curry for Lunar New Year**\
+`Serve this Singaporean chicken curry with nasi biryani or draped over steamed rice; either way, it’s a stunning meal.`\
+https://nytimes.com/2025/01/29/dining/a-lush-chicken-curry-for-lunar-new-year.html
+
+**7 Big Questions About Cancer, Answered**\
+`Can pollution cause it? What about inflammation? And how do tumors spread? Here’s what scientists are learning about this complex disease.`\
+https://nytimes.com/2025/01/29/well/7-big-questions-about-cancer-answered.html
+
 **Addiction and trauma are the forces that shaped Kennedy’s life.**\
 `By Sheryl Gay Stolberg, Susanne Craig and Rebecca Davis O’Brien`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/addiction-and-trauma-are-the-forces-that-shaped-kennedys-life
