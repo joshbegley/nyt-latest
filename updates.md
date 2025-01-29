@@ -1,3 +1,16 @@
+**Instakids**\
+`The pursuit of online fame and riches has corrupted parents, endangered young girls and led to a proliferation of explicit imagery encouraged by, and catering to, men.`\
+https://nytimes.com/spotlight/instakids
+
+**The Migrant Pipeline**\
+`The brimming pipeline of unauthorized workers in the United States has been popularly blamed on opportunistic migrants. Our investigation found another culprit: a corporate America addicted to cheap and plentiful labor.
+`\
+https://nytimes.com/spotlight/the-migrant-pipeline
+
+**Trump Administration Offers Millions of Federal Workers Payouts to Resign**\
+`The move, which could dramatically reduce the size of the federal work force, appeared to stretch the limits of President Trump’s authority.`\
+https://nytimes.com/2025/01/28/us/politics/trump-buyouts-federal-workers.html
+
 **How Extreme Weather Scrambled a Lunar New Year Tradition in Vietnam**\
 `A typhoon and extreme heat dramatically affected prices for the kumquat trees that are ubiquitous during the holiday.`\
 https://nytimes.com/2025/01/28/world/asia/lunar-new-year-vietnam-kumquats.html
