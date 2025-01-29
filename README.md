@@ -1,3 +1,7 @@
+**The freeze had caused mass confusion as groups checked whether their federal funding was affected.**\
+`The freeze caused outrage after it interrupted the Medicaid health care system and sent schools, hospitals and nonprofits scrambling to understand if they had lost their federal support.`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-freeze-grants
+
 **Hamas Is Expected to Release 8 Israeli and Thai Hostages**\
 `The release planned for Thursday would be the third so far as Israel and Hamas observe a six-week truce, part of a multiphase agreement that mediators hope will end the war in Gaza.`\
 https://nytimes.com/2025/01/29/world/middleeast/israel-hamas-gaza-hostages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/technology/openai-deepseek-data-harvest.html
 **At Gabbard’s Confirmation Hearing, Edward Snowden May Loom Large**\
 `Senators are expected to ask about her defense of the former government contractor, who released reams of data on U.S. surveillance programs and fled to Russia.`\
 https://nytimes.com/2025/01/29/us/politics/tulsi-gabbard-confirmation-edward-snowden.html
-
-**Submit your Guardians questions for Zack Meisel's mailbag**\
-`In two weeks, Cleveland Guardians pitchers and catchers will report to the team&#8217;s spring training camp in Goodyear, Ariz.`\
-https://nytimes.com/athletic/6097215/2025/01/29/submit-your-guardians-questions-for-zack-meisels-mailbag/
 
