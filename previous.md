@@ -1,3 +1,23 @@
+**Shadows of Musk in the Government’s Buyouts Plan**\
+`President Trump’s chief cost-cutter cheered an effort to persuade federal workers to quit — in a fashion that closely resembles a purge at Twitter.`\
+https://nytimes.com/2025/01/29/business/dealbook/musk-trump-federal-buyouts.html
+
+**Giants pitching coach J.P. Martinez on the staff: 'We will have 15 or 16 legitimate starters'**\
+`Martinez envisions Justin Verlander having a significant impact on the staff from both a performance and leadership perspective.`\
+https://nytimes.com/athletic/6095955/2025/01/29/sf-giants-jp-martinez-pitching-outlook/
+
+**Chargers salary cap breakdown: Why they are positioned for an aggressive offseason**\
+`The Chargers improved around the margins last offseason but GM Joe Hortiz will have the money to make a splash in free agency in 2025.`\
+https://nytimes.com/athletic/6095545/2025/01/29/chargers-salary-cap-aggressive-offseason/
+
+**What to Know About Trump’s Federal Worker Payout Plan**\
+`The Office of Personnel Management offered payouts to roughly two million civilian employees, as President Trump seeks to reshape the federal government. Here are details of the plan.`\
+https://nytimes.com/2025/01/29/us/politics/trump-federal-workers-buyout.html
+
+**Top U.S. Envoy Visits Israel in Show of Support for Gaza Cease-Fire**\
+`Steven Witkoff, who played an important role in brokering the truce between Israel and Hamas, was expected to meet with Israel’s prime minister and to visit Gaza.`\
+https://nytimes.com/2025/01/29/world/middleeast/israel-gaza-witkoff-visit.html
+
 **Mark Daigneault and first-place Thunder practice being present: 'Be where our feet are'**\
 `What Oklahoma City calls a "0-0 mentality" is drilled into its members. That process has resulted in the team owning the NBA's best record.`\
 https://nytimes.com/athletic/6084483/2025/01/29/mark-daigneault-thunder-nba-standings/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/29/world/africa/ecowas-burkina-faso-mali-niger.html
 **It’s Cold Outside! Warm Up With a Hot Romance Novel.**\
 `Our columnist on three spicy new releases.`\
 https://nytimes.com/2025/01/29/books/review/new-romance-books.html
-
-**Why Pete Carroll returned to the NFL with the Raiders: 'That pursuit of the passion'**\
-`Carroll's energy is known and obvious, but he cranked it up a notch while taking on the challenge of coaching the Las Vegas Raiders.`\
-https://nytimes.com/athletic/6095519/2025/01/29/pete-carroll-nfl-return-coaching/
-
-**Jalen Hurts and Xavier Worthy step up, more conference championship thoughts: Quick Outs**\
-`How did the Eagles and Chiefs get it done in their NFC and AFC title games, respectively? Let's take a closer look.`\
-https://nytimes.com/athletic/6095027/2025/01/29/nfl-playoffs-eagles-chiefs-jalen-hurts-quick-outs/
-
-**Broncos coaching vacancies: Where Sean Payton, team stand with four jobs to fill**\
-`Denver still hasn't filled its special teams coordinator role after moving on from Ben Kotwica after its wild-card loss in Buffalo.`\
-https://nytimes.com/athletic/6095347/2025/01/29/broncos-coaching-vacancies-2025/
-
-**Lowetide: Why Oilers and Bruins make great trade partners ahead of deadline**\
-`If Boston captain Brad Marchand is available, Edmonton should be aggressive in pursuing the veteran winger.`\
-https://nytimes.com/athletic/6094433/2025/01/29/oilers-bruins-2025-trade-deadline/
-
-**Making sense of Liam Coen's dramatic flip from Bucs OC to Jags head coach**\
-`Coen took an offer of "Ben Johnson money" plus the power to choose his own general manager in Jacksonville.`\
-https://nytimes.com/athletic/6095078/2025/01/29/scoop-city-liam-coen-jaguars-head-coach-buccaneers/
 
