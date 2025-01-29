@@ -1,7 +1,3 @@
-**Senate Confirms Lee Zeldin to Head E.P.A.**\
-`The former New York congressman has little experience in environmental policy. He is expected to follow orders to weaken climate rules.`\
-https://nytimes.com/2025/01/29/climate/lee-zeldin-epa-confirmation.html
-
 **Warriors trade intel: What we're hearing about Jimmy Butler, Zach LaVine and more**\
 `As the clock ticks toward the deadline, the Warriors have floated a protected first-rounder as a sweetener in potential deals.`\
 https://nytimes.com/athletic/6096150/2025/01/29/nba-trade-intel-warriors-jimmy-butler/
@@ -22,7 +18,7 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/democra
 `‘What the White House has done is it has created another crisis,’ said Lisa Rice, president and chief executive of the National Fair Housing Alliance.`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/funding-portals-reopen-for-programs-used-by-fair-housing-agencies
 
-**Kennedy’s Fate Rests In Hands of a Small Group of Republicans**\
+**Kennedy’s Fate Rests in Hands of a Small Group of Republicans**\
 `To be confirmed as health secretary, Robert F. Kennedy Jr. can afford to lose no more than three Republican votes if all Democrats are united in their opposition to him.`\
 https://nytimes.com/2025/01/29/us/politics/rfk-jr-senate-vote.html
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6097691/2025/01/29/jimmy-butler-nikola-jovic-heat-n
 **Democrat Appears to Flip Iowa State Senate Seat in a Boost for the Party**\
 `Republicans still have large legislative majorities in Iowa, but a Democrat’s apparent win in a solidly conservative area buoyed that party at a moment of uncertainty.`\
 https://nytimes.com/2025/01/29/us/democrat-iowa-state-senate-race.html
+
+**Thursday Briefing: Trump Reverses Spending Freeze**\
+`Plus, celebrating the Lunar New Year.`\
+https://nytimes.com/2025/01/29/briefing/trump-funding-reversal-india-stampede-hamas-hostages.html
 
