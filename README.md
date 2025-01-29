@@ -1,3 +1,7 @@
+**Democrats to Question Commerce Nominee’s Web of Financial Interests**\
+`Howard Lutnick, the wealthy financier Trump has picked to lead the Commerce Department, is set to be questioned by the Senate in a nomination hearing Wednesday.`\
+https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-nominees-web-of-financial-interests.html
+
 **Patrick Dorgu - His position, strengths, weaknesses and what he'd bring to Man Utd**\
 `Patrick Dorgu is a potential solution to Amorim's wing-back problem - but the emphasis is on his potential`\
 https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-transfers-signing-strengths/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/trump-federal-workers-buyout.html
 **Top U.S. Envoy Visits Israel in Show of Support for Gaza Cease-Fire**\
 `Steven Witkoff, who played an important role in brokering the truce between Israel and Hamas, was expected to meet with Israel’s prime minister and to visit Gaza.`\
 https://nytimes.com/2025/01/29/world/middleeast/israel-gaza-witkoff-visit.html
-
-**Mark Daigneault and first-place Thunder practice being present: 'Be where our feet are'**\
-`What Oklahoma City calls a "0-0 mentality" is drilled into its members. That process has resulted in the team owning the NBA's best record.`\
-https://nytimes.com/athletic/6084483/2025/01/29/mark-daigneault-thunder-nba-standings/
 
