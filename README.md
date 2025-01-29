@@ -1,3 +1,7 @@
+**Word of the Day: adulation**\
+`This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/29/learning/word-of-the-day-adulation.html
+
 **Kliff Kingsbury to stay with Commanders, Mike McCarthy out for Saints' vacancy**\
 `Kingsbury staying in Washington isn't a surprise for the NFC conference runner-ups.`\
 https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-saints-head-coach-withdrawal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6094140/2025/01/29/chelsea-robert-sanchez-goalkeepe
 **Forest don't need to overreact to 5-0 defeat - but could do with one versatile addition before the deadline**\
 `Brentford forward Wissa's ability to play all along the front line could be the signing Nuno needs to keep the season on track`\
 https://nytimes.com/athletic/6094252/2025/01/29/forest-winter-window-one-clever-addition/
-
-**Endo is becoming a Liverpool cult hero despite hardly ever starting**\
-`The midfielder hasn't started a Premier League game this season but is Arne Slot's go-to substitute when he needs to see out a result`\
-https://nytimes.com/athletic/6092397/2025/01/29/wataru-endo-liverpool-fans/
 
