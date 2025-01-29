@@ -1,3 +1,32 @@
+**FCSB or Steaua Bucharest: Who are Manchester United's Europa League opponents?**\
+`The argument over who owns the true history of Romania’s most successful club - and with it the 1986 European Cup - continues to rage`\
+https://nytimes.com/athletic/6096595/2025/01/29/fcsb-steaua-bucharest-manchester-united-becali/
+
+**‘Dog Man’ Review: Best Friends Forever**\
+`A police officer and a dog get fused into one crime-fighter in this antic, enjoyable adaptation of Dav Pilkey’s comic series.`\
+https://nytimes.com/2025/01/29/movies/dog-man-review.html
+
+**Man Utd interested in potential loan move for Bayern's Tel**\
+`Manchester United are interested in a potential move for Bayern Munich forward Mathys Tel, should the 19-year-old be made available to leave on loan before the transfer window closes.`\
+https://nytimes.com/athletic/6060673/2025/01/29/mathys-tel-manchester-united-transfer/
+
+**Kennedy’s positions on abortion have shifted.**\
+`By Amy Schoenfeld Walker`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jrs-positions-on-abortion-have-shifted
+
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-best-players/
+
+**Browns not worried Deion would intervene if they draft Shedeur Sanders**\
+`Shedeur Sanders has faced questions about his father's involvement since declaring for the draft. `\
+https://nytimes.com/athletic/6097117/2025/01/29/browns-not-worried-deion-sanders-would-intervene-if-they-draft-shedeur-sanders/
+
+**Senator Bennet, channeling Democratic ire, pushes Kennedy on history of conspiracy theories.**\
+`By Christina Jewett, Sara Ruberg and Pam Belluck`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/senator-bennet-channeling-democratic-ire-pushes-kennedy-on-history-of-conspiracy-theories
+
 **Should I Renounce a Religious Group That’s Taken a Bad Turn?**\
 `The magazine’s Ethicist columnist on whether to remain a part of a religious organization that’s behaving in an unenlightened manner.`\
 https://nytimes.com/2025/01/29/magazine/religious-group-india-whatsapp-ethics.html
@@ -9,32 +38,4 @@ https://nytimes.com/athletic/6097145/2025/01/29/lakers-anthony-davis-injury-time
 **N.I.H. Trials and Essential Hiring May Continue, Acting Director Says**\
 `The interim leader of the National Institutes of Health gave some clarification tied to Trump administrations restrictions on travel and communications, but questions remain.`\
 https://nytimes.com/2025/01/29/health/nih-trials-research.html
-
-**Even Jimmy Fallon Gets the Jitters When Making His Broadway Debut**\
-`The “Tonight Show” host is performing in the new comedy “All In,” which features a starry cast. “It’s a dream,” he said.`\
-https://nytimes.com/2025/01/29/theater/jimmy-fallon-all-in-broadway.html
-
-**Kennedy aims to “Make America Healthy Again.” Historians say Americans’ health was far worse in the past.**\
-`By Gina Kolata`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-aims-to-make-america-healthy-again-historians-say-americans-health-was-far-worse-in-the-past
-
-**Hawks' Jalen Johnson suffers season-ending shoulder injury**\
-`For the Hawks, this is a potentially disastrous development in terms of their chase for the playoffs.`\
-https://nytimes.com/athletic/6097075/2025/01/29/jalen-johnson-shoulder-injury-surgery-hawks/
-
-**Stream These Movies and TV Shows Before They Leave Netflix in February**\
-`A lot of great stuff is leaving this month for U.S. subscribers, including a favorite action-movie franchise and two excellent recent sitcoms.`\
-https://nytimes.com/2025/01/29/arts/television/stream-these-movies-and-tv-shows-before-they-leave-netflix-in-february.html
-
-**Scoop City: Key takeaways from this week's media sessions, including Raiders QB plans**\
-`Inside: What we&#8217;ve heard from teams amid big decisions, plus what&#8217;s next for the Ravens and Lions, Kliff Kingsbury&#8217;s plans and Travis Kelce&#8217;s playoff heroics.`\
-https://nytimes.com/athletic/6097139/2025/01/29/nfl-media-session-takeaways-raiders-steelers-pete-carroll-scoop-city/
-
-**Neymar set to rejoin Santos after 12 years**\
-`Neymar has reached an agreement to rejoin boyhood club Santos on a six-month contract after leaving Al Hilal.`\
-https://nytimes.com/athletic/5891198/2025/01/29/neymar-santos-transfer-contract/
-
-**R.F.K. Jr. Appears Unfamiliar With Key Elements of Medicare and Medicaid**\
-`In testimony to the Senate Finance Committee, Mr. Kennedy seemed to confuse the two government programs that cover more than 150 million Americans.`\
-https://nytimes.com/2025/01/29/health/medicaid-medicare-rfk-jr.html
 
