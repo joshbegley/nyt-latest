@@ -1,7 +1,3 @@
-**The Pentagon has revoked Gen. Mark Milley’s security detail and is reviewing his record.**\
-`The Pentagon has asked its inspector general to review the record and behavior of General Mark A. Milley, the retired chairman of the Joint Chiefs of Staff who stood up to President Trump in his first term.`\
-https://nytimes.com/2025/01/28/us/politics/the-pentagon-has-revoked-gen-mark-milleys-security-detail-and-is-reviewing-his-record.html
-
 **A poor start, missed opportunities and a game that got out of hand: Rangers takeaways**\
 `After dropping their second straight game, the Rangers have little room for error at this point in the season.
 `\
@@ -38,4 +34,8 @@ https://nytimes.com/2025/01/28/crosswords/daily-puzzle-2025-01-29.html
 **Trump Orders ‘Iron Dome’ for U.S., but Freezes Funds for Nuclear Protection**\
 `The United States is estimated to have spent more than $400 billion on the kinds of antimissile goals that the president now says will provide “for the common defense.”`\
 https://nytimes.com/2025/01/28/us/politics/trump-iron-dome.html
+
+**Brittney Griner agrees to 1-year deal with Dream**\
+`Griner entered the offseason as the second-longest tenured WNBA player with one team, having spent her entire career in Phoenix.`\
+https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-phoenix-mercury-wnba/
 
