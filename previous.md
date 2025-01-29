@@ -1,3 +1,7 @@
+**Three Countries Officially Quit Major West African ECOWAS Alliance**\
+`Burkina Faso, Mali and Niger accused the bloc of having double standards in punishing their military juntas. Negotiations failed to change their minds.`\
+https://nytimes.com/2025/01/29/world/africa/ecowas-burkina-faso-mali-niger.html
+
 **It’s Cold Outside! Warm Up With a Hot Romance Novel.**\
 `Our columnist on three spicy new releases.`\
 https://nytimes.com/2025/01/29/books/review/new-romance-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/briefing/donald-trump-federal-funding.html
 **Britain, in Push for Faster Growth, Backs Major Heathrow Expansion**\
 `The country’s top finance official supported adding a third runway to the London hub, a decision that has been held up for decades, and other measures intended to strengthen economic growth.`\
 https://nytimes.com/2025/01/29/business/uk-economy-growth-rachel-reeves.html
-
-**The Pulse: Another NBA star on the move?**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6094487/2025/01/29/deaaron-fox-kings-trade-the-pulse/
 

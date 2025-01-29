@@ -1,3 +1,7 @@
+**Three Countries Officially Quit Major West African ECOWAS Alliance**\
+`Burkina Faso, Mali and Niger accused the bloc of having double standards in punishing their military juntas. Negotiations failed to change their minds.`\
+https://nytimes.com/2025/01/29/world/africa/ecowas-burkina-faso-mali-niger.html
+
 **It’s Cold Outside! Warm Up With a Hot Romance Novel.**\
 `Our columnist on three spicy new releases.`\
 https://nytimes.com/2025/01/29/books/review/new-romance-books.html
