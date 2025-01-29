@@ -1,3 +1,11 @@
+**The Athletic FC: Brest's Euro fairytale, Boniface/Duran transfer option, rare Lasso card**\
+`Today in TAFC: Brest's incredible rise to the Champions League, the Boniface/Duran transfer saga, and the very rare Lasso trading card....`\
+https://nytimes.com/athletic/6096485/2025/01/29/brest-champions-league-duran-transfer-lasso-card/
+
+**Freezing the Government**\
+`We cover how President Trump is trying to reshape the government.`\
+https://nytimes.com/2025/01/29/briefing/donald-trump-federal-funding.html
+
 **Britain, in Push for Faster Growth, Backs Major Heathrow Expansion**\
 `The country’s top finance official supported adding a third runway to the London hub, a decision that has been held up for decades, and other measures intended to strengthen economic growth.`\
 https://nytimes.com/2025/01/29/business/uk-economy-growth-rachel-reeves.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6094558/2025/01/29/nba-all-star-reserves-2025-jaren
 **Pittsburgh native and rising NHL star Logan Cooley has 'found a home' with Utah**\
 `The 20-year-old Cooley is on the verge of league superstardom while only in his second NHL season. `\
 https://nytimes.com/athletic/6087873/2025/01/29/logan-cooley-nhl-utah-penguins/
-
-**Why Sabres sent down Nicolas Aube-Kubel, Tage Thompson dominant at wing: Takeaways**\
-`Thompson and JJ Peterka had hat tricks against the Bruins on Tuesday night — a good sign for Lindy Ruff's lineup tweaks.`\
-https://nytimes.com/athletic/6096256/2025/01/29/sabres-aube-kubel-thompson-peterka-hat-trick-bruins/
-
-**Duke's Cooper Flagg, Rutgers' Dylan Harper headline men's college basketball All-Freshman team**\
-`The freshman All-America team includes two SEC players, two Big Ten players and Player of the Year candidate Cooper Flagg from Duke.`\
-https://nytimes.com/athletic/6092315/2025/01/29/mens-college-basketball-all-america/
 
