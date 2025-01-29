@@ -1,3 +1,11 @@
+**Caitlin Clark effect: Iowa generated more than $3.2 million in ticket sales in 2023-24**\
+`Iowa welcomes Clark back to Carver-Hawkeye Arena on Sunday for her jersey retirement ceremony against No. 4 USC.`\
+https://nytimes.com/athletic/6097170/2025/01/29/caitlin-clark-basketball-ticket-sales-iowa-hawkeyes/
+
+**Yes, abortion pills are safe. Here’s what studies have shown.**\
+`By Amy Schoenfeld Walker`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/yes-abortion-pills-are-safe-heres-what-studies-have-shown
+
 **Gerrard set to leave role as head coach of Saudi club Al Ettifaq**\
 `Steven Gerrard is set to leave his role as head coach of Saudi Arabian club Al Ettifaq.`\
 https://nytimes.com/athletic/5887908/2025/01/29/steven-gerrard-exit-saudi-al-ettifaq/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6096644/2025/01/29/emi-buendia-leverkusen-loan/
 **FCSB or Steaua Bucharest: Who are Manchester United's Europa League opponents?**\
 `The argument over who owns the true history of Romania’s most successful club - and with it the 1986 European Cup - continues to rage`\
 https://nytimes.com/athletic/6096595/2025/01/29/fcsb-steaua-bucharest-manchester-united-becali/
-
-**‘Dog Man’ Review: Best Friends Forever**\
-`A police officer and a dog get fused into one crime-fighter in this antic, enjoyable adaptation of Dav Pilkey’s comic series.`\
-https://nytimes.com/2025/01/29/movies/dog-man-review.html
-
-**Man Utd interested in potential loan move for Bayern's Tel**\
-`Manchester United are interested in a potential move for Bayern Munich forward Mathys Tel, should the 19-year-old be made available to leave on loan before the transfer window closes.`\
-https://nytimes.com/athletic/6060673/2025/01/29/mathys-tel-manchester-united-transfer/
 
