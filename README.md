@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6097261/2025/01/29/ryne-stanek-mets-contract/
 
 **Trump’s Tariffs Scramble Fed’s Interest Rate Calculus**\
 `Economists predict that the Trump administration’s trade policies could push up prices for consumers, making it harder for Fed officials to cut rates.`\
-https://nytimes.com/2025/01/29/business/trumps-tariffs-scramble-feds-interest-rate-calculus.html
+https://nytimes.com/2025/01/29/business/trumps-tariffs-interest-rates-fed.html
 
 **Kennedy sought to stop Covid vaccinations 6 months after rollout.**\
 `By Christina Jewett`\
