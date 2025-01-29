@@ -1,3 +1,11 @@
+**It’s Cold Outside! Warm Up With a Hot Romance Novel.**\
+`Our columnist on three spicy new releases.`\
+https://nytimes.com/2025/01/29/books/review/new-romance-books.html
+
+**Why Pete Carroll returned to the NFL with the Raiders: 'That pursuit of the passion'**\
+`Carroll's energy is known and obvious, but he cranked it up a notch while taking on the challenge of coaching the Las Vegas Raiders.`\
+https://nytimes.com/athletic/6095519/2025/01/29/pete-carroll-nfl-return-coaching/
+
 **Jalen Hurts and Xavier Worthy step up, more conference championship thoughts: Quick Outs**\
 `How did the Eagles and Chiefs get it done in their NFC and AFC title games, respectively? Let's take a closer look.`\
 https://nytimes.com/athletic/6095027/2025/01/29/nfl-playoffs-eagles-chiefs-jalen-hurts-quick-outs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/business/uk-economy-growth-rachel-reeves.html
 **The Pulse: Another NBA star on the move?**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6094487/2025/01/29/deaaron-fox-kings-trade-the-pulse/
-
-**Shaw returns to Man Utd full training after latest injury layoff**\
-`Luke Shaw has returned to Manchester United full training for the first time since December.`\
-https://nytimes.com/athletic/6096517/2025/01/29/manchester-united-team-news-luke-shaw-injury/
-
-**Trent Dilfer has 'been humbled' at UAB. But will 2025 be any different?**\
-`Last season featured self-inflicted public relations blunders, a six-game losing streak and three losses by more than 30 points.`\
-https://nytimes.com/athletic/6094452/2025/01/29/trent-dilfer-uab-football-turnaround/
 
