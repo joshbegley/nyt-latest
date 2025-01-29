@@ -1,3 +1,7 @@
+**Trent Dilfer has 'been humbled' at UAB. But will 2025 be any different?**\
+`Last season featured self-inflicted public relations blunders, a six-game losing streak and three losses by more than 30 points.`\
+https://nytimes.com/athletic/6094452/2025/01/29/trent-dilfer-uab-football-turnaround/
+
 **Catholic Church in the Philippines Accused of Impunity Over Priest Abuse**\
 `A watchdog group, Bishop Accountability, said it had found scores of clerics with ties to the country who have been publicly accused of sexual abuse. But very few have been disciplined.`\
 https://nytimes.com/2025/01/29/world/asia/philippines-catholic-priests-abuse.html
