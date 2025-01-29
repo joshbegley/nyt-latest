@@ -1,3 +1,11 @@
+**Drance: In confirming Miller, Pettersson rift, Canucks accept it's time to move on**\
+`The Canucks have concluded that there's no workable way forward with both Miller and Pettersson on the roster.`\
+https://nytimes.com/athletic/6096311/2025/01/29/canucks-jim-rutherford-pettersson-miller/
+
+**5 Health Topics Likely to Come Up During Robert F. Kennedy Jr.’s Hearings**\
+`While Mr. Kennedy, seeking the job of health secretary, has been vocal about vaccines and his desire to overhaul the nation’s diet, he has said very little about other issues.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-medicaid-medicare-obamacare-vaccines-food.html
+
 **Hamilton unhurt after crash in Ferrari Barcelona testing**\
 `The incident happened during a three-day test at the Circuit de Barcelona-Catalunya in the team’s 2023 F1 car.`\
 https://nytimes.com/athletic/6096843/2025/01/29/lewis-hamilton-ferrari-crash-barcelona/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/heres-the-la
 **Live Updates: Robert F. Kennedy Jr. to Begin Health Secretary Confirmation Hearings**\
 `Mr. Kennedy, the scion of a Democratic dynasty and a prominent vaccine skeptic, faces questions from lawmakers as he seeks a job with vast authority over the lives of Americans.`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing
-
-**Disaster-Ravaged Families Are Begging: Put Schools First**\
-`Climate-related disruptions are here to stay, and children remain an afterthought`\
-https://nytimes.com/2025/01/29/opinion/los-angeles-fires-schools.html
-
-**My Friend Behaved Like a Lecher at Our Wedding. Should We Tell His Wife?**\
-`A high school friend whose wife skipped the wedding to stay home with the couple’s children showed up drunk to the reception and hit on guests.`\
-https://nytimes.com/2025/01/29/style/marital-intervention.html
 
