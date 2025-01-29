@@ -1,3 +1,7 @@
+**Michael Kosta Is More Than Happy to Be Protected by Trans Soldiers**\
+`The “Daily Show” host took issue with the latest Trump ban: “I think we should be grateful to anyone who’s willing to put their life on the line so I don’t have to.”`\
+https://nytimes.com/2025/01/29/arts/television/michael-kosta-transgender-military.html
+
 **Food-Shaped Furniture**\
 `Would you want to decorate your home or room with a strawberry table or a burger stool?`\
 https://nytimes.com/2025/01/29/learning/food-shaped-furniture.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-sa
 **Wednesday Briefing**\
 `Confusion in the U.S. after a Trump spending freeze.`\
 https://nytimes.com/2025/01/29/briefing/trump-spending-hostages.html
-
-**Racing for Pennies: A Day in the Life of a Chinese Food Delivery Worker**\
-`In China’s economic downturn, food-delivery workers toiling under unforgiving rules and dwindling pay say they don’t see a future.`\
-https://nytimes.com/interactive/2025/01/29/world/asia/china-delivery-driver.html
 
