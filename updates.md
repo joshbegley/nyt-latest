@@ -1,3 +1,7 @@
+**Rebel Leader Who Overthrew al-Assad is Declared Syria’s President**\
+`The new leadership of the country said the rebel coalition leader, Ahmed al-Shara, would serve as president during a transitional period.`\
+https://nytimes.com/2025/01/29/world/middleeast/syria-leader-al-shara-government.html
+
 **Attention Letter Writers: Have You Connected With Other Times Readers?**\
 `With a letter to the editor, readers can share their thoughts on articles. They can also build community with other readers. Have you developed friendships with others who have had their letters published?`\
 https://nytimes.com/2025/01/29/insider/attention-letter-writers-have-you-connected-with-other-times-readers.html
