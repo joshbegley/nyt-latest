@@ -1,3 +1,11 @@
+**Watch: Why January is undeniably quarterback season**\
+`The Athletic Football Show discusses why having an elite quarterback is so important to win in the NFL.`\
+https://nytimes.com/athletic/6097019/2025/01/29/athletic-football-show-quarterbacks-january/
+
+**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
+`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
+https://nytimes.com/athletic/6083468/2025/01/29/ovechkin-goals-record-wayne-gretzky-stats/
+
 **Office of Management and Budget Spreadsheet of 2,600 Federal Programs Under Review**\
 `The White House’s Office of Management and Budget sent this document to government agencies listing about 2,600 programs that were under review.`\
 https://nytimes.com/interactive/2025/01/29/upshot/trump-omb-spreadsheet.html
