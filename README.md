@@ -11,7 +11,7 @@ https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-n
 https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-transfers-signing-strengths/
 
 **Frontier Airlines Offers to Buy Spirit Airlines, Again**\
-`Spirit, which filed for bankruptcy protection in November, called off a deal with Frontier in 2022 after receiving a higher bid from JetBlue that was ultimately thwarted by a federal judge.`\
+`Spirit, which filed for bankruptcy protection in November after a federal court blocked its acquisition by JetBlue, says it has rejected the latest Frontier offer for being too low.`\
 https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
 
 **‘Open the Door, Open the Door!’: How Dozens Fled an Inferno on a Plane**\
