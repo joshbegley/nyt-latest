@@ -1,3 +1,19 @@
+**Addiction and trauma are the forces that shaped Kennedy’s life.**\
+`By Sheryl Gay Stolberg, Susanne Craig and Rebecca Davis O’Brien`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/addiction-and-trauma-are-the-forces-that-shaped-kennedys-life
+
+**Maison Margiela Didn’t Look Far for Its New Designer**\
+`Glenn Martens, the Diesel designer, has been named creative director at Margiela. He replaces John Galliano, who left the brand in December.`\
+https://nytimes.com/2025/01/29/style/glenn-martens-maison-margiela-john-galliano.html
+
+**Student Whose Racy Social Media Posts Riled a College Gets $250,000 Settlement**\
+`The University of Tennessee threatened to expel Kimberly Diei over posts the school said were inappropriate. She sued on First Amendment grounds.`\
+https://nytimes.com/2025/01/29/us/student-expelled-instagram-tennessee.html
+
+**The Bounce: 3 questions on De'Aaron Fox's trade value**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6096609/2025/01/29/deaaron-fox-kings-trade-deadline-joel-embiid-76ers-nba-the-bounce/
+
 **The F.D.A. Upgraded a Recall of Some Lay’s Potato Chips. Here’s What to Know.**\
 `The Food and Drug Administration is using its most severe notice in a recall of more than 6,000 bags of chips in two states because of “undeclared milk.”`\
 https://nytimes.com/2025/01/29/business/frito-lay-potato-chips-recall.html

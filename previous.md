@@ -1,3 +1,19 @@
+**Addiction and trauma are the forces that shaped Kennedy’s life.**\
+`By Sheryl Gay Stolberg, Susanne Craig and Rebecca Davis O’Brien`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/addiction-and-trauma-are-the-forces-that-shaped-kennedys-life
+
+**Maison Margiela Didn’t Look Far for Its New Designer**\
+`Glenn Martens, the Diesel designer, has been named creative director at Margiela. He replaces John Galliano, who left the brand in December.`\
+https://nytimes.com/2025/01/29/style/glenn-martens-maison-margiela-john-galliano.html
+
+**Student Whose Racy Social Media Posts Riled a College Gets $250,000 Settlement**\
+`The University of Tennessee threatened to expel Kimberly Diei over posts the school said were inappropriate. She sued on First Amendment grounds.`\
+https://nytimes.com/2025/01/29/us/student-expelled-instagram-tennessee.html
+
+**The Bounce: 3 questions on De'Aaron Fox's trade value**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6096609/2025/01/29/deaaron-fox-kings-trade-deadline-joel-embiid-76ers-nba-the-bounce/
+
 **The F.D.A. Upgraded a Recall of Some Lay’s Potato Chips. Here’s What to Know.**\
 `The Food and Drug Administration is using its most severe notice in a recall of more than 6,000 bags of chips in two states because of “undeclared milk.”`\
 https://nytimes.com/2025/01/29/business/frito-lay-potato-chips-recall.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6080517/2025/01/29/victor-wembanyama-wemby-spurs-fr
 **Kennedy was paid over $2 million for legal referrals against vaccine makers**\
 `By Christina Jewett`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-merck-hpv-cases
-
-**Gov. Tim Walz calls the federal grant and loan freezes ‘a trial balloon.’**\
-`In some of his first attacks on the president since his defeat in November, the former Democratic vice-presidential nominee called on Republican governors to speak up.`\
-https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/gov-tim-walz-calls-the-federal-grant-and-loan-freezes-a-trial-balloon
-
-**Giants barely functional without healthy Andrew Thomas: 29 thoughts on 29 offensive players**\
-`It’s impossible to ignore how damaging Thomas’ extended absences have been to the Giants the past two seasons.`\
-https://nytimes.com/athletic/6095252/2025/01/29/giants-andrew-thomas-offense-malik-nabers/
-
-**R.F.K. Jr Has Spasmodic Dysphonia, a Condition That Makes His Voice Raspy**\
-`Robert F. Kennedy Jr. started developing symptoms of the condition in 1996.`\
-https://nytimes.com/2025/01/29/health/rfk-jr-voice-spasmodic-dysphonia.html
-
-**Walker Kessler? Myles Turner? Lonzo Ball reunion? Lakers trade-target tiers**\
-`The Lakers have glaring needs, including another big and secondary playmaker. Here's who they should go after before the Feb. 6 deadline.`\
-https://nytimes.com/athletic/6094864/2025/01/29/lakers-trade-targets-walker-kessler-myles-turner-deadline/
 
