@@ -1,3 +1,15 @@
+**Who Is Liang Wenfeng, the Founder of A.I. Start-Up DeepSeek?**\
+`The Chinese company DeepSeek seemed to have come out of nowhere this week when it upturned markets. Here’s what to know about the engineer who started it.`\
+https://nytimes.com/2025/01/29/business/deepseek-china-liang-wenfeng.html
+
+**Victor Wembanyama was already a basketball phenom at 15 — and the Spurs took notice**\
+`"It's very possible that he'll be the face of basketball. Not just NBA basketball, but world basketball," said Pacers coach Rick Carlisle. `\
+https://nytimes.com/athletic/6080517/2025/01/29/victor-wembanyama-wemby-spurs-france-nba/
+
+**Kennedy was paid over $2 million for legal referrals against vaccine makers**\
+`By Christina Jewett`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-merck-hpv-cases
+
 **R.F.K. Jr Has Spasmodic Dysphonia, a Condition That Makes His Voice Raspy**\
 `Robert F. Kennedy Jr. started developing symptoms of the condition in 1996.`\
 https://nytimes.com/2025/01/29/health/rfk-jr-voice-spasmodic-dysphonia.html

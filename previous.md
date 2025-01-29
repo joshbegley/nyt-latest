@@ -1,3 +1,15 @@
+**Who Is Liang Wenfeng, the Founder of A.I. Start-Up DeepSeek?**\
+`The Chinese company DeepSeek seemed to have come out of nowhere this week when it upturned markets. Here’s what to know about the engineer who started it.`\
+https://nytimes.com/2025/01/29/business/deepseek-china-liang-wenfeng.html
+
+**Victor Wembanyama was already a basketball phenom at 15 — and the Spurs took notice**\
+`"It's very possible that he'll be the face of basketball. Not just NBA basketball, but world basketball," said Pacers coach Rick Carlisle. `\
+https://nytimes.com/athletic/6080517/2025/01/29/victor-wembanyama-wemby-spurs-france-nba/
+
+**Kennedy was paid over $2 million for legal referrals against vaccine makers**\
+`By Christina Jewett`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-merck-hpv-cases
+
 **Gov. Tim Walz calls the federal grant and loan freezes ‘a trial balloon.’**\
 `In some of his first attacks on the president since his defeat in November, the former Democratic vice-presidential nominee called on Republican governors to speak up.`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/gov-tim-walz-calls-the-federal-grant-and-loan-freezes-a-trial-balloon
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6096433/2025/01/29/barcelona-real-madrid-clasico-ro
 **Who is Kelvin Sheppard? What to know about Lions' new defensive coordinator**\
 `Kelvin Sheppard has been on the Lions' staff but is a first-time defensive coordinator.`\
 https://nytimes.com/athletic/6095767/2025/01/29/kelvin-sheppard-lions-defensive-coordinator/
-
-**Drance: In confirming Miller, Pettersson rift, Canucks accept it's time to move on**\
-`The Canucks have concluded that there's no workable way forward with both Miller and Pettersson on the roster.`\
-https://nytimes.com/athletic/6096311/2025/01/29/canucks-jim-rutherford-pettersson-miller/
-
-**5 Health Topics Likely to Come Up During Robert F. Kennedy Jr.’s Hearings**\
-`While Mr. Kennedy, seeking the job of health secretary, has been vocal about vaccines and his desire to overhaul the nation’s diet, he has said very little about other issues.`\
-https://nytimes.com/2025/01/29/us/politics/rfk-jr-medicaid-medicare-obamacare-vaccines-food.html
-
-**Hamilton unhurt after crash in Ferrari Barcelona testing**\
-`The incident happened during a three-day test at the Circuit de Barcelona-Catalunya in the team’s 2023 F1 car.`\
-https://nytimes.com/athletic/6096843/2025/01/29/lewis-hamilton-ferrari-crash-barcelona/
 
