@@ -1,3 +1,11 @@
+**Barcelona and Real Madrid don't know where El Clasico will be played - because of The Rolling Stones**\
+`Barcelona hope to be back at Camp Nou in early May, but there are no guarantees — and Montjuic is not an option because of concert plans`\
+https://nytimes.com/athletic/6096433/2025/01/29/barcelona-real-madrid-clasico-rolling-stones-venue/
+
+**Who is Kelvin Sheppard? What to know about Lions' new defensive coordinator**\
+`Kelvin Sheppard has been on the Lions' staff but is a first-time defensive coordinator.`\
+https://nytimes.com/athletic/6095767/2025/01/29/kelvin-sheppard-lions-defensive-coordinator/
+
 **Drance: In confirming Miller, Pettersson rift, Canucks accept it's time to move on**\
 `The Canucks have concluded that there's no workable way forward with both Miller and Pettersson on the roster.`\
 https://nytimes.com/athletic/6096311/2025/01/29/canucks-jim-rutherford-pettersson-miller/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-confi
 **Kennedy would oversee a vast portfolio including vaccines, food safety and Medicare and Medicaid.**\
 `By Hank Sanders, Sara Ruberg and Christina Jewett`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-would-oversee-a-vast-portfolio-including-vaccines-food-safety-and-medicare-and-medicaid
-
-**Here’s the latest.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/heres-the-latest
-
-**Live Updates: Robert F. Kennedy Jr. to Begin Health Secretary Confirmation Hearings**\
-`Mr. Kennedy, the scion of a Democratic dynasty and a prominent vaccine skeptic, faces questions from lawmakers as he seeks a job with vast authority over the lives of Americans.`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing
 
