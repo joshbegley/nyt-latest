@@ -1,3 +1,19 @@
+**Disaster-Ravaged Families Are Begging: Put Schools First**\
+`Climate-related disruptions are here to stay, and children remain an afterthought`\
+https://nytimes.com/2025/01/29/opinion/los-angeles-fires-schools.html
+
+**My Friend Behaved Like a Lecher at Our Wedding. Should We Tell His Wife?**\
+`A high school friend whose wife skipped the wedding to stay home with the couple’s children showed up drunk to the reception and hit on guests.`\
+https://nytimes.com/2025/01/29/style/marital-intervention.html
+
+**Lloyd to reunite with former USWNT team-mates in The Soccer Tournament**\
+`U.`\
+https://nytimes.com/athletic/6096480/2025/01/29/carli-lloyd-the-soccer-tournament/
+
+**Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
+`Championship club is under fire for rejecting a fan petition to retire shirt in honour of late former women's player`\
+https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
+
 **Frontier Airlines Offers to Buy Spirit Airlines, Again**\
 `Spirit, which filed for bankruptcy protection in November after a federal court blocked its acquisition by JetBlue, says it has rejected the latest Frontier offer for being too low.`\
 https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html

@@ -1,3 +1,19 @@
+**Disaster-Ravaged Families Are Begging: Put Schools First**\
+`Climate-related disruptions are here to stay, and children remain an afterthought`\
+https://nytimes.com/2025/01/29/opinion/los-angeles-fires-schools.html
+
+**My Friend Behaved Like a Lecher at Our Wedding. Should We Tell His Wife?**\
+`A high school friend whose wife skipped the wedding to stay home with the couple’s children showed up drunk to the reception and hit on guests.`\
+https://nytimes.com/2025/01/29/style/marital-intervention.html
+
+**Lloyd to reunite with former USWNT team-mates in The Soccer Tournament**\
+`U.`\
+https://nytimes.com/athletic/6096480/2025/01/29/carli-lloyd-the-soccer-tournament/
+
+**Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
+`Championship club is under fire for rejecting a fan petition to retire shirt in honour of late former women's player`\
+https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
+
 **Van de Ven in contention for Spurs return, Maddison out for around three weeks**\
 `Ange Postecoglou says Micky van de Ven could return for Tottenham in Thursday&#8217;s Europa League tie against Elfsborg, while James Maddison is expected to be sidelined for between two and three with a calf injury.`\
 https://nytimes.com/athletic/6096547/2025/01/29/tottenham-injuries-maddison-van-de-ven/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/29/world/asia/south-korea-busan-airplane-fire.html
 **14 Convicted in Death of Girl for Depriving Her of Insulin**\
 `The parents of Elizabeth Rose Struhs, who died in 2022, were part of a small religious sect in Australia that believed that medical care went against their faith.`\
 https://nytimes.com/2025/01/29/world/australia/struhs-sect-conviction-insulin.html
-
-**Shadows of Musk in the Government’s Buyouts Plan**\
-`President Trump’s chief cost-cutter cheered an effort to persuade federal workers to quit — in a fashion that closely resembles a purge at Twitter.`\
-https://nytimes.com/2025/01/29/business/dealbook/musk-trump-federal-buyouts.html
-
-**Giants pitching coach J.P. Martinez on the staff: 'We will have 15 or 16 legitimate starters'**\
-`Martinez envisions Justin Verlander having a significant impact on the staff from both a performance and leadership perspective.`\
-https://nytimes.com/athletic/6095955/2025/01/29/sf-giants-jp-martinez-pitching-outlook/
-
-**Chargers salary cap breakdown: Why they are positioned for an aggressive offseason**\
-`The Chargers improved around the margins last offseason but GM Joe Hortiz will have the money to make a splash in free agency in 2025.`\
-https://nytimes.com/athletic/6095545/2025/01/29/chargers-salary-cap-aggressive-offseason/
-
-**What to Know About Trump’s Plan to Slash the Federal Work Force**\
-`The Office of Personnel Management sought to entice civilian federal employees to resign, as President Trump seeks to reshape the U.S. government. Here are details of the plan.`\
-https://nytimes.com/2025/01/29/us/politics/trump-federal-workers-buyout.html
 
