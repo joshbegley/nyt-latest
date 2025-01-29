@@ -1,3 +1,7 @@
+**Gov. Tim Walz calls the federal grant and loan freezes ‘a trial balloon.’**\
+`In some of his first attacks on the president since his defeat in November, the former Democratic vice-presidential nominee called on Republican governors to speak up.`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/gov-tim-walz-calls-the-federal-grant-and-loan-freezes-a-trial-balloon
+
 **Giants barely functional without healthy Andrew Thomas: 29 thoughts on 29 offensive players**\
 `It’s impossible to ignore how damaging Thomas’ extended absences have been to the Giants the past two seasons.`\
 https://nytimes.com/athletic/6095252/2025/01/29/giants-andrew-thomas-offense-malik-nabers/

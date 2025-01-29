@@ -1,3 +1,7 @@
+**Gov. Tim Walz calls the federal grant and loan freezes ‘a trial balloon.’**\
+`In some of his first attacks on the president since his defeat in November, the former Democratic vice-presidential nominee called on Republican governors to speak up.`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/gov-tim-walz-calls-the-federal-grant-and-loan-freezes-a-trial-balloon
+
 **Giants barely functional without healthy Andrew Thomas: 29 thoughts on 29 offensive players**\
 `It’s impossible to ignore how damaging Thomas’ extended absences have been to the Giants the past two seasons.`\
 https://nytimes.com/athletic/6095252/2025/01/29/giants-andrew-thomas-offense-malik-nabers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/rfk-jr-medicaid-medicare-obamacare-va
 **Hamilton unhurt after crash in Ferrari Barcelona testing**\
 `The incident happened during a three-day test at the Circuit de Barcelona-Catalunya in the team’s 2023 F1 car.`\
 https://nytimes.com/athletic/6096843/2025/01/29/lewis-hamilton-ferrari-crash-barcelona/
-
-**De'Aaron Fox trade scenarios: Could Kings star team up with Victor Wembanyama?**\
-`The clock is ticking on Sacramento. Would Houston or Orlando make a play for the point guard? Or will the Spurs form a dynamic duo?`\
-https://nytimes.com/athletic/6095447/2025/01/29/deaaron-fox-trade-rumors-kings-spurs-rockets-magic/
 
