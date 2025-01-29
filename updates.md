@@ -1,3 +1,7 @@
+**Five under-the-radar San Francisco Giants prospects to follow in 2025**\
+`Players range from an older prospect the Giants got from the independent leagues to a splashy international signing who fell off the radar.`\
+https://nytimes.com/athletic/6095624/2025/01/29/sf-giants-underrated-prospects-2025/
+
 **Senate Confirms Lee Zeldin to Head E.P.A.**\
 `The former New York congressman has little experience in environmental policy. He is expected to follow orders to weaken climate rules.`\
 https://nytimes.com/2025/01/29/climate/lee-zeldin-epa-confirmation.html

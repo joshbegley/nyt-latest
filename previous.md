@@ -1,3 +1,7 @@
+**Five under-the-radar San Francisco Giants prospects to follow in 2025**\
+`Players range from an older prospect the Giants got from the independent leagues to a splashy international signing who fell off the radar.`\
+https://nytimes.com/athletic/6095624/2025/01/29/sf-giants-underrated-prospects-2025/
+
 **Senate Confirms Lee Zeldin to Head E.P.A.**\
 `The former New York congressman has little experience in environmental policy. He is expected to follow orders to weaken climate rules.`\
 https://nytimes.com/2025/01/29/climate/lee-zeldin-epa-confirmation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/business/tesla-earnings-elon-musk.html
 **Heat Today: Jimmy Butler's absence from Heat is team's new normal**\
 `Despite Butler's status, his impact on some of the team's younger players has been profound.`\
 https://nytimes.com/athletic/6097691/2025/01/29/jimmy-butler-nikola-jovic-heat-nba/
-
-**Democrat Appears to Flip Iowa State Senate Seat in a Boost for the Party**\
-`Republicans still have large legislative majorities in Iowa, but a Democrat’s apparent win in a solidly conservative area buoyed that party at a moment of uncertainty.`\
-https://nytimes.com/2025/01/29/us/democrat-iowa-state-senate-race.html
 
