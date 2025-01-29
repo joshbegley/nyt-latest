@@ -1,3 +1,19 @@
+**Jalen Hurts and Xavier Worthy step up, more conference championship thoughts: Quick Outs**\
+`How did the Eagles and Chiefs get it done in their NFC and AFC title games, respectively? Let's take a closer look.`\
+https://nytimes.com/athletic/6095027/2025/01/29/nfl-playoffs-eagles-chiefs-jalen-hurts-quick-outs/
+
+**Broncos coaching vacancies: Where Sean Payton, team stand with four jobs to fill**\
+`Denver still hasn't filled its special teams coordinator role after moving on from Ben Kotwica after its wild-card loss in Buffalo.`\
+https://nytimes.com/athletic/6095347/2025/01/29/broncos-coaching-vacancies-2025/
+
+**Lowetide: Why Oilers and Bruins make great trade partners ahead of deadline**\
+`If Boston captain Brad Marchand is available, Edmonton should be aggressive in pursuing the veteran winger.`\
+https://nytimes.com/athletic/6094433/2025/01/29/oilers-bruins-2025-trade-deadline/
+
+**Making sense of Liam Coen's dramatic flip from Bucs OC to Jags head coach**\
+`Coen took an offer of "Ben Johnson money" plus the power to choose his own general manager in Jacksonville.`\
+https://nytimes.com/athletic/6095078/2025/01/29/scoop-city-liam-coen-jaguars-head-coach-buccaneers/
+
 **The Athletic FC: Brest's Euro fairytale, Boniface/Duran transfer option, rare Lasso card**\
 `Today in TAFC: Brest's incredible rise to the Champions League, the Boniface/Duran transfer saga, and the very rare Lasso trading card....`\
 https://nytimes.com/athletic/6096485/2025/01/29/brest-champions-league-duran-transfer-lasso-card/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6096517/2025/01/29/manchester-united-team-news-luke
 **Trent Dilfer has 'been humbled' at UAB. But will 2025 be any different?**\
 `Last season featured self-inflicted public relations blunders, a six-game losing streak and three losses by more than 30 points.`\
 https://nytimes.com/athletic/6094452/2025/01/29/trent-dilfer-uab-football-turnaround/
-
-**Catholic Church in the Philippines Accused of Impunity Over Priest Abuse**\
-`A watchdog group, Bishop Accountability, said it had found scores of clerics with ties to the country who have been publicly accused of sexual abuse. But very few have been disciplined.`\
-https://nytimes.com/2025/01/29/world/asia/philippines-catholic-priests-abuse.html
-
-**Herbert out as F1 steward after role deemed 'incompatible' with media punditry**\
-`Herbert's dual role attracted criticism last season, namely from Max Vertsappen's father Jos.`\
-https://nytimes.com/athletic/6096497/2025/01/29/johnny-herbert-f1-steward-why/
-
-**Hollinger: My All-Star reserves, and why Jaren Jackson Jr.'s breakout matters**\
-`We're not quite in barrel-scrapping territory in the East ... but it's pretty close. Out West, things are more competitive.`\
-https://nytimes.com/athletic/6094558/2025/01/29/nba-all-star-reserves-2025-jaren-jackson-kyrie-irving/
-
-**Pittsburgh native and rising NHL star Logan Cooley has 'found a home' with Utah**\
-`The 20-year-old Cooley is on the verge of league superstardom while only in his second NHL season. `\
-https://nytimes.com/athletic/6087873/2025/01/29/logan-cooley-nhl-utah-penguins/
 
