@@ -1,3 +1,7 @@
+**How Does DeepSeek’s A.I. Chatbot Navigate China’s Censors? Awkwardly.**\
+`Asked about sensitive topics, the bot would begin to answer, then stop and delete its own work. It refused to answer questions like: “Who is Xi Jinping?”`\
+https://nytimes.com/2025/01/29/world/asia/deepseek-china-censorship.html
+
 **Man Utd draft in track and field coach to assist assist staff on players' running mechanics**\
 `Manchester United have invited a world-renowned track and field coach into the club as a consultant to offer his insight on athletics, including the mechanics of running.`\
 https://nytimes.com/athletic/6095507/2025/01/29/manchester-united-harry-marra-running-coach/
