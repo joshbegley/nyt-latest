@@ -1,3 +1,7 @@
+**How Tommy Kahnle fits the Tigers' bullpen: Pros, cons and what could be next**\
+`The Tigers signed relief pitcher Tommy Kahnle to a one-year deal worth $7.75 million, adding another piece to their bullpen puzzle. `\
+https://nytimes.com/athletic/6098266/2025/01/29/detroit-tigers-tommy-kahnle-bullpen-fit/
+
 **Is Going After Government Always Good Politics?**\
 `President Trump is betting that Americans will not care if he upends institutions most have lost faith in.`\
 https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/trump-o
 **Nebraska volleyball coach John Cook retires; Dani Busboom Kelly to take over**\
 `Busboom Kelly is a former player and assistant under Cook who coached Louisville to the national title match last month.`\
 https://nytimes.com/athletic/6098308/2025/01/29/john-cook-retires-nebraska-volleyball-dani-busboom-kelly/
-
-**Trump’s Retribution Continues With Removal of General Milley’s Security Detail**\
-`Early in his first administration, President Trump noted the general’s “brilliance and fortitude.” And then the president got angry.`\
-https://nytimes.com/2025/01/29/us/politics/mark-milley-security-trump.html
 
