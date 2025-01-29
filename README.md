@@ -1,3 +1,7 @@
+**How Extreme Weather Scrambled a Lunar New Year Tradition in Vietnam**\
+`A typhoon and extreme heat dramatically affected prices for the kumquat trees that are ubiquitous during the holiday.`\
+https://nytimes.com/2025/01/28/world/asia/lunar-new-year-vietnam-kumquats.html
+
 **Lack of Detail in Funding Freeze Leaves State and Local Agencies at a Loss**\
 `Democratic and Republican leaders alike voiced concern about the pause in federal dollars “creating chaos” and “jeopardizing the financial stability” of their states.`\
 https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-state-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/jan-6-rioter-minor-solicitation-pardo
 **Tyler Ivey's comeback to continue at Astros minor-league spring training: Sources**\
 `The Astros have retained Ivey’s contractual rights since he retired from baseball in May 2022 due to burnout`\
 https://nytimes.com/athletic/6095685/2025/01/28/tyler-iveys-comeback-astros-spring-training/
-
-**Barry Michael Cooper, ‘New Jack City’ Screenwriter, Dies at 66**\
-`After chronicling the crack boom of the 1980s as an investigative reporter, he had a high-profile but brief second career in Hollywood.`\
-https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
 
