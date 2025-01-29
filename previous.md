@@ -1,3 +1,7 @@
+**These Boots Were Made to Get Us Talking**\
+`Saint Laurent offers a radical proposition: thigh-high boots for men.`\
+https://nytimes.com/2025/01/29/style/saint-laurent-mens-wear-boots-paris.html
+
 **Barcelona and Real Madrid don't know where El Clasico will be played - because of The Rolling Stones**\
 `Barcelona hope to be back at Camp Nou in early May, but there are no guarantees — and Montjuic is not an option because of concert plans`\
 https://nytimes.com/athletic/6096433/2025/01/29/barcelona-real-madrid-clasico-rolling-stones-venue/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/rfk-jr-republicans-mcconnell.html
 **Trust in health agencies that Kennedy would oversee is in decline.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-confirmation-child-vaccinations
-
-**Kennedy would oversee a vast portfolio including vaccines, food safety and Medicare and Medicaid.**\
-`By Hank Sanders, Sara Ruberg and Christina Jewett`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-would-oversee-a-vast-portfolio-including-vaccines-food-safety-and-medicare-and-medicaid
 

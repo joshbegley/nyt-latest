@@ -1,3 +1,7 @@
+**These Boots Were Made to Get Us Talking**\
+`Saint Laurent offers a radical proposition: thigh-high boots for men.`\
+https://nytimes.com/2025/01/29/style/saint-laurent-mens-wear-boots-paris.html
+
 **Barcelona and Real Madrid don't know where El Clasico will be played - because of The Rolling Stones**\
 `Barcelona hope to be back at Camp Nou in early May, but there are no guarantees — and Montjuic is not an option because of concert plans`\
 https://nytimes.com/athletic/6096433/2025/01/29/barcelona-real-madrid-clasico-rolling-stones-venue/
