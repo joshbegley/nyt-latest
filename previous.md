@@ -1,10 +1,14 @@
+**Wednesday Briefing**\
+`Confusion in the U.S. after a Trump spending freeze.`\
+https://nytimes.com/2025/01/29/briefing/trump-spending-hostages.html
+
 **Racing for Pennies: A Day in the Life of a Chinese Food Delivery Worker**\
 `In China’s economic downturn, food-delivery workers toiling under unforgiving rules and dwindling pay say they don’t see a future.`\
 https://nytimes.com/interactive/2025/01/29/world/asia/china-delivery-driver.html
 
 **The new transportation secretary’s first move was to seek a rollback of Biden’s fuel economy standards.**\
 `By Mark Walker`\
-https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/the-new-transportation-secretarys-first-move-was-to-seek-a-rollback-of-bidens-fuel-economy-standards
+https://nytimes.com/2025/01/28/us/politics/the-new-transportation-secretarys-first-move-was-to-seek-a-rollback-of-bidens-fuel-economy-standards.html
 
 **Wrexham 2 Stevenage 3: A wobble or a worry? Striker search to step up?**\
 `Wrexham lost more ground on the top two and manager Phil Parkinson was furious - how will they respond on the pitch and in transfer market?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6092397/2025/01/29/wataru-endo-liverpool-fans/
 **The miracle of Brest, a club a world apart from Champions League opponents Real Madrid**\
 `Despite no European pedigree and limited resources, the French club are above Real Madrid, Man City and PSG in the table with one game to go`\
 https://nytimes.com/athletic/6093105/2025/01/29/the-miracle-of-brest-a-club-a-world-apart-from-champions-league-opponents-real-madrid/
-
-**Welcome to Matchday Mayhem, an event UEFA hopes will become a Champions League tradition**\
-`Twenty-seven of the competition's 36 teams are still alive - it's exactly what UEFA wanted when designing this new Champions League format`\
-https://nytimes.com/athletic/6093985/2025/01/29/champions-league-matchday-mayhem-tradition/
 
