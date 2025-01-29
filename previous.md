@@ -1,3 +1,7 @@
+**Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
+`The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
+https://nytimes.com/2025/01/29/technology/microsoft-continues-to-spend-big-on-ai-as-profit-grows-10.html
+
 **Man Utd a 'better team' with Rashford, says Amorim: 'We need goals'**\
 `Ruben Amorim has said Manchester United are &#8220;a better team&#8221; with Marcus Rashford and that they need to score more goals.`\
 https://nytimes.com/athletic/6097829/2025/01/29/marcus-rashford-manchester-united-amorim/
@@ -12,7 +16,7 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/funding
 
 **Kennedy’s fate rests in the hands of a small group of Republicans.**\
 `By Annie Karni`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedys-fate-rests-in-the-hands-of-a-small-group-of-republicans
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-senate-vote
 
 **Tesla’s Profit Fell Sharply Last Year**\
 `The electric car company run by Elon Musk is facing increasing competition, but investors have focused mostly on the prospects for Tesla’s self-driving technology.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/briefing/trump-funding-reversal-india-stampede-ha
 **How Menendez Destroyed His Legacy With Gold Bars and a Halal Hustle**\
 `The former New Jersey senator was sentenced to 11 years in prison after being convicted of bribery and corruption.`\
 https://nytimes.com/2025/01/29/nyregion/robert-menendez-senate-corruption-legacy.html
-
-**Defying Legal Limits, Trump Firings Set Up Tests That Could Expand His Power**\
-`The prospect of legal challenges to President Trump’s purges may be a feature, not a bug, for adherents of sweeping presidential authority.`\
-https://nytimes.com/2025/01/29/us/politics/trump-firings-officials-legal-test.html
 

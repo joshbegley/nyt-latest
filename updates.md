@@ -1,3 +1,11 @@
+**Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
+`The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
+https://nytimes.com/2025/01/29/technology/microsoft-continues-to-spend-big-on-ai-as-profit-grows-10.html
+
+**Kennedy’s fate rests in the hands of a small group of Republicans.**\
+`By Annie Karni`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-senate-vote
+
 **Man Utd a 'better team' with Rashford, says Amorim: 'We need goals'**\
 `Ruben Amorim has said Manchester United are &#8220;a better team&#8221; with Marcus Rashford and that they need to score more goals.`\
 https://nytimes.com/athletic/6097829/2025/01/29/marcus-rashford-manchester-united-amorim/
