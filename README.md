@@ -1,3 +1,7 @@
+**A Journey Through Toxic Fumes That’s a Breath of Fresh Air**\
+`Each boss in Ender Magnolia: Bloom in the Mist is more creatively imagined than the last.`\
+https://nytimes.com/2025/01/29/arts/ender-magnolia-bloom-in-the-mist-review.html
+
 **Sisters Alyssa and Gisele Thompson agree Angel City contract extensions**\
 `Alyssa Thompson and Gisele Thompson have agreed contract extensions at Angel City through to 2028.`\
 https://nytimes.com/athletic/6096417/2025/01/29/alyssa-gisele-thompson-angel-city-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096609/2025/01/29/deaaron-fox-kings-trade-deadline
 **The F.D.A. Upgraded a Recall of Some Lay’s Potato Chips. Here’s What to Know.**\
 `The Food and Drug Administration is using its most severe notice in a recall of more than 6,000 bags of chips in two states because of “undeclared milk.”`\
 https://nytimes.com/2025/01/29/business/frito-lay-potato-chips-recall.html
-
-**William E. Leuchtenburg, Scholar of F.D.R. and the Presidency, Dies at 102**\
-`His writings, which stretched across eight decades, helped Americans understand a president who transformed the office and shaped the postwar years.`\
-https://nytimes.com/2025/01/29/books/william-e-leuchtenburg-dead.html
 
