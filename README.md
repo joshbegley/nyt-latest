@@ -1,5 +1,5 @@
 **Which Federal Programs Are Under Scrutiny? The Budget Office Named 2,600 of Them.**\
-`A freeze in funding caused confusion for agency officials and organizations that rely on federal support.`\
+`The Trump administration ordered temporary freezes in funding for programs spanning virtually every part of the government. Here’s the full list.`\
 https://nytimes.com/interactive/2025/01/28/upshot/federal-programs-funding-trump-omb.html
 
 **Trump Officials Revoke Biden’s Extension of Protections for Venezuelans**\
