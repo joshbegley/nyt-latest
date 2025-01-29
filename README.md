@@ -1,3 +1,7 @@
+**Elon Musk’s Downplaying of Germany’s Nazi Past**\
+`Readers discuss the Auschwitz anniversary and a Musk speech. Also: Threats against Anthony Fauci; resign, or else; police use of tasers; aging women.`\
+https://nytimes.com/2025/01/29/opinion/elon-musk-germany-nazi-past.html
+
 **In a hearing with many fiery exchanges, one about antidepressants got personal.**\
 `By Ellen Barry`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/in-a-hearing-with-many-fiery-exchanges-one-about-antidepressants-got-personal
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says
 **‘Picnic at Hanging Rock’: A Classic Disappearing Act Reappears**\
 `Anointed Australia’s greatest movie by the country’s film institute, “Hanging Rock,” in a new restoration, opens Friday at the IFC Center.`\
 https://nytimes.com/2025/01/29/movies/picnic-at-hanging-rock-restoration.html
-
-**Ha-Seong Kim agrees to two-year, $29M deal with Rays**\
-`The free-agent infielder will start the season on the injured list while recovering from labrum repair surgery. `\
-https://nytimes.com/athletic/5969482/2025/01/29/ha-seong-kim-contract-rays-mlb-free-agency/
 
