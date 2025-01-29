@@ -1,3 +1,7 @@
+**Bernie Sanders Questions R.F.K. Jr. About His Stance on Vaccines**\
+`Senator Bernie Sanders, Independent of Vermont, asked Robert F. Kennedy Jr. to disavow baby onesies with anti-vaccination slogans. The clothes are sold by a nonprofit Mr. Kennedy co-founded.`\
+https://nytimes.com/video/us/politics/100000009957725/rfk-jr-confirmation-hearing-sanders.html
+
 **The White House Pulled Back Its Spending Freeze**\
 `Also, Menendez was sentenced to 11 years in prison. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/01/29/briefing/white-house-freeze-menendez-sentence.html

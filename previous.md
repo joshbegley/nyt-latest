@@ -1,3 +1,7 @@
+**Bernie Sanders Questions R.F.K. Jr. About His Stance on Vaccines**\
+`Senator Bernie Sanders, Independent of Vermont, asked Robert F. Kennedy Jr. to disavow baby onesies with anti-vaccination slogans. The clothes are sold by a nonprofit Mr. Kennedy co-founded.`\
+https://nytimes.com/video/us/politics/100000009957725/rfk-jr-confirmation-hearing-sanders.html
+
 **The White House Pulled Back Its Spending Freeze**\
 `Also, Menendez was sentenced to 11 years in prison. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/01/29/briefing/white-house-freeze-menendez-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097701/2025/01/29/utah-hockey-team-name-yeti-mammo
 **Gilgo Beach Killing Suspect Moves to Have Key DNA Evidence Thrown Out**\
 `The suspect’s lawyer has also called for the case against his client, Rex Heuermann, to be split into five trials. On Wednesday, the judge agreed to hold hearings to consider both requests.`\
 https://nytimes.com/2025/01/29/nyregion/gilgo-beach-murders-dna-evidence.html
-
-**The Briefing: Brest 0 Real Madrid 3 - Rodrygo and Vazquez show versatility, Tchouameni struggles again**\
-`Real Madrid finished the first stage of this season's Champions League with a comfortable win - but must now face the playoff round`\
-https://nytimes.com/athletic/6094554/2025/01/29/brest-0-real-madrid-3-rodrygo-vazquez/
 
