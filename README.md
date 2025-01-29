@@ -30,7 +30,7 @@ https://nytimes.com/2025/01/29/nyregion/gilgo-beach-murders-dna-evidence.html
 `Real Madrid finished the first stage of this season's Champions League with a comfortable win - but must now face the playoff round`\
 https://nytimes.com/athletic/6094554/2025/01/29/brest-0-real-madrid-3-rodrygo-vazquez/
 
-**Reds to add left-handed reliever Taylor Rogers in trade with Giants: Source**\
+**Reds to add left-handed reliever Taylor Rogers in trade with Giants: Sources**\
 `Rogers will add to a Reds bullpen that already has left-handers Brent Suter and Sam Moll, as well as non-roster invitee Alex Young.`\
 https://nytimes.com/athletic/6098079/2025/01/29/reds-giants-taylor-rogers-trade/
 
