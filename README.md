@@ -1,3 +1,7 @@
+**Trust in health agencies that Kennedy would oversee is in decline.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-confirmation-child-vaccinations
+
 **Kennedy would oversee a vast portfolio including vaccines, food safety and Medicare and Medicaid.**\
 `By Hank Sanders, Sara Ruberg and Christina Jewett`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-would-oversee-a-vast-portfolio-including-vaccines-food-safety-and-medicare-and-medicaid
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096547/2025/01/29/tottenham-injuries-maddison-van-
 **Democrats to Question Commerce Nominee’s Web of Financial Interests**\
 `Howard Lutnick, the wealthy financier Trump has picked to lead the Commerce Department, is set to be questioned by the Senate in a nomination hearing Wednesday.`\
 https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-nominees-web-of-financial-interests.html
-
-**Patrick Dorgu - His position, strengths, weaknesses and what he'd bring to Man Utd**\
-`Patrick Dorgu is a potential solution to Amorim's wing-back problem - but the emphasis is on his potential`\
-https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-transfers-signing-strengths/
 
