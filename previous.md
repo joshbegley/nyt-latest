@@ -1,3 +1,7 @@
+**Walker Kessler? Myles Turner? Lonzo Ball reunion? Lakers trade-target tiers**\
+`The Lakers have glaring needs, including another big and secondary playmaker. Here's who they should go after before the Feb. 6 deadline.`\
+https://nytimes.com/athletic/6094864/2025/01/29/lakers-trade-targets-walker-kessler-myles-turner-deadline/
+
 **These Boots Were Made to Get Us Talking**\
 `Saint Laurent offers a radical proposition: thigh-high boots for men.`\
 https://nytimes.com/2025/01/29/style/saint-laurent-mens-wear-boots-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096124/2025/01/29/super-bowl-nfl-business-viewersh
 **The Republicans to Watch During Kennedy’s Confirmation Hearings**\
 `With most Democrats expected to vote against him, Robert F. Kennedy Jr.’s bid for health secretary will come down whether he can win over skeptics in President Trump’s party.`\
 https://nytimes.com/2025/01/29/us/politics/rfk-jr-republicans-mcconnell.html
-
-**Trust in health agencies that Kennedy would oversee is in decline.**\
-`By Noah Weiland`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-confirmation-child-vaccinations
 

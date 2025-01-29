@@ -1,3 +1,7 @@
+**Walker Kessler? Myles Turner? Lonzo Ball reunion? Lakers trade-target tiers**\
+`The Lakers have glaring needs, including another big and secondary playmaker. Here's who they should go after before the Feb. 6 deadline.`\
+https://nytimes.com/athletic/6094864/2025/01/29/lakers-trade-targets-walker-kessler-myles-turner-deadline/
+
 **These Boots Were Made to Get Us Talking**\
 `Saint Laurent offers a radical proposition: thigh-high boots for men.`\
 https://nytimes.com/2025/01/29/style/saint-laurent-mens-wear-boots-paris.html
