@@ -1,3 +1,7 @@
+**Welcome to Matchday Mayhem, an event UEFA hopes will become a Champions League tradition**\
+`Twenty-seven of the competition's 36 teams are still alive - it's exactly what UEFA wanted when designing this new Champions League format`\
+https://nytimes.com/athletic/6093985/2025/01/29/champions-league-matchday-mayhem-tradition/
+
 **Why do so many play on after damaging an ACL? An expert explains**\
 `High-performance specialist Geoff Scott explains the procedure and why someone might play on`\
 https://nytimes.com/athletic/6075033/2025/01/29/why-its-difficult-to-diagnose-an-acl-injury-on-the-pitch-an-expert-explains/
@@ -34,4 +38,3 @@ https://nytimes.com/athletic/6094190/2025/01/29/why-i-joined-the-athletic-conor-
 `With a five-game winning streak and eight victories in their last 10 games, the Islanders are as confounding as ever.`\
 https://nytimes.com/athletic/6096164/2025/01/28/islanders-hottest-team-nhl-lee-lamoriello-avalanche/
 
-**Frantic Rescue Effort After Stampede at a Hindu Festival in India**\
