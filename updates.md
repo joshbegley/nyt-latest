@@ -1,3 +1,11 @@
+**Trump Signs Order Restricting Gender-Affirming Treatments for Minors**\
+`The directive built on a string of recent actions to roll back federal protections and services for transgender people.`\
+https://nytimes.com/2025/01/28/us/politics/trump-trans-gender-affirming-care.html
+
+**What Kennedy Could Mean for Public Health**\
+`Robert F.`\
+https://nytimes.com/video/us/politics/100000009954203/what-kennedy-could-mean-for-public-health.html
+
 **Vietnam’s Kumquat Trees, a Lunar New Year Staple, Have a Bad Year**\
 `Vietnamese families preparing for the Lunar New Year traditionally buy the citrus trees as a symbol of good luck. But extreme weather has hurt this year’s harvest.`\
 https://nytimes.com/video/world/asia/100000009953528/vietnam-kumquat-lunar-new-year.html

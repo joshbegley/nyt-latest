@@ -1,3 +1,7 @@
+**Practicing for When the Bombs Fall in ‘A Knock on the Roof’**\
+`In a new solo play about ordinary people under bombardment in Gaza, a woman rehearses how she would escape her building if Israeli forces were to strike.`\
+https://nytimes.com/2025/01/28/theater/a-knock-on-the-roof-review.html
+
 **Trump Signs Order Restricting Gender-Affirming Treatments for Minors**\
 `The directive built on a string of recent actions to roll back federal protections and services for transgender people.`\
 https://nytimes.com/2025/01/28/us/politics/trump-trans-gender-affirming-care.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/health/trump-pepfar-freeze.html
 **Trump’s Picks to Replace Gaetz and Waltz in the House Win Florida Primaries**\
 `The two candidates will move on to special general elections on April 1, when they will be strongly favored to expand the Republicans’ slim House majority.`\
 https://nytimes.com/2025/01/28/us/politics/gaetz-waltz-florida-special-primaries.html
-
-**Instakids**\
-`The pursuit of online fame and riches has corrupted parents, endangered young girls and led to a proliferation of explicit imagery encouraged by, and catering to, men.`\
-https://nytimes.com/spotlight/instakids
 
