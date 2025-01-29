@@ -1,3 +1,7 @@
+**Explosive Material**\
+`Sophia Maymudes doesn’t want this thing to end.`\
+https://nytimes.com/2025/01/28/crosswords/daily-puzzle-2025-01-29.html
+
 **Trump Orders ‘Iron Dome’ for U.S., but Freezes Funds for Nuclear Protection**\
 `The United States is estimated to have spent more than $400 billion on the kinds of antimissile goals that the president now says will provide “for the common defense.”`\
 https://nytimes.com/2025/01/28/us/politics/trump-iron-dome.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/us/politics/trump-trans-gender-affirming-care.htm
 **What Kennedy Could Mean for Public Health**\
 `Robert F.`\
 https://nytimes.com/video/us/politics/100000009954203/what-kennedy-could-mean-for-public-health.html
-
-**Vietnam’s Kumquat Trees, a Lunar New Year Staple, Have a Bad Year**\
-`Vietnamese families preparing for the Lunar New Year traditionally buy the citrus trees as a symbol of good luck. But extreme weather has hurt this year’s harvest.`\
-https://nytimes.com/video/world/asia/100000009953528/vietnam-kumquat-lunar-new-year.html
 

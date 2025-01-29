@@ -1,3 +1,7 @@
+**Explosive Material**\
+`Sophia Maymudes doesn’t want this thing to end.`\
+https://nytimes.com/2025/01/28/crosswords/daily-puzzle-2025-01-29.html
+
 **Trump Orders ‘Iron Dome’ for U.S., but Freezes Funds for Nuclear Protection**\
 `The United States is estimated to have spent more than $400 billion on the kinds of antimissile goals that the president now says will provide “for the common defense.”`\
 https://nytimes.com/2025/01/28/us/politics/trump-iron-dome.html
