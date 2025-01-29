@@ -1,3 +1,11 @@
+**Hawks' Jalen Johnson suffers season-ending shoulder injury**\
+`For the Hawks, this is a potentially disastrous development in terms of their chase for the playoffs.`\
+https://nytimes.com/athletic/6097075/2025/01/29/jalen-johnson-shoulder-injury-surgery-hawks/
+
+**Kennedy appears unfamiliar with key aspects of Medicare and Medicaid.**\
+`By Sarah Kliff and Reed Abelson`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/medicaid-medicare-rfk-jr
+
 **Should I Renounce a Religious Group That’s Taken a Bad Turn?**\
 `The magazine’s Ethicist columnist on whether to remain a part of a religious organization that’s behaving in an unenlightened manner.`\
 https://nytimes.com/2025/01/29/magazine/religious-group-india-whatsapp-ethics.html
