@@ -1,3 +1,7 @@
+**Trump’s Picks to Replace Gaetz and Waltz in the House Win Florida Primaries**\
+`The two candidates will move on to special general elections on April 1, when they will be strongly favored to expand the Republicans’ slim House majority.`\
+https://nytimes.com/2025/01/28/us/politics/gaetz-waltz-florida-special-primaries.html
+
 **Instakids**\
 `The pursuit of online fame and riches has corrupted parents, endangered young girls and led to a proliferation of explicit imagery encouraged by, and catering to, men.`\
 https://nytimes.com/spotlight/instakids
