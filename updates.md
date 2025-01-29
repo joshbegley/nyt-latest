@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-sco
 `\
 https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-score/
 
+**A poor start, missed opportunities and a game that got out of hand: Rangers takeaways**\
+`After dropping their second straight game, the Rangers have little room for error at this point in the season.
+`\
+https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-score/
+
 **Brittney Griner agrees to 1-year deal with Dream**\
 `Griner entered the offseason as the second-longest tenured WNBA player with one team, having spent her entire career in Phoenix.`\
 https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-phoenix-mercury-wnba/
