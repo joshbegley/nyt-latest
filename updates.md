@@ -1,3 +1,7 @@
+**Meta Gave Away Its A.I. Crown Jewels. DeepSeek Vindicated Its Strategy.**\
+`The Silicon Valley giant was criticized for giving away its core A.I. technology two years ago for anyone to use. Now that bet is having an impact.`\
+https://nytimes.com/2025/01/29/technology/meta-deepseek-ai-open-source.html
+
 **Ravens roster breakdown: Where will decisions need to be made this offseason?**\
 `Taking stock of a Baltimore roster that will have about 20 players preparing for either unrestricted or restricted free agency.`\
 https://nytimes.com/athletic/6095429/2025/01/29/baltimore-ravens-2025-roster-breakdown/

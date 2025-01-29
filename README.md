@@ -1,40 +1,40 @@
-**Ravens roster breakdown: Where will decisions need to be made this offseason?**\
-`Taking stock of a Baltimore roster that will have about 20 players preparing for either unrestricted or restricted free agency.`\
-https://nytimes.com/athletic/6095429/2025/01/29/baltimore-ravens-2025-roster-breakdown/
+**Pittsburgh native and rising NHL star Logan Cooley has 'found a home' with Utah**\
+`The 20-year-old Cooley is on the verge of league superstardom while only in his second NHL season. `\
+https://nytimes.com/athletic/6087873/2025/01/29/logan-cooley-nhl-utah-penguins/
 
-**Canada's Buchanan set for Villarreal loan move**\
-`Villarreal are finalising a deal to sign Canada international Tajon Buchanan on loan from Inter Milan.`\
-https://nytimes.com/athletic/6095644/2025/01/29/tajon-buchanan-canada-villarreal-inter/
+**Why Sabres sent down Nicolas Aube-Kubel, Tage Thompson dominant at wing: Takeaways**\
+`Thompson and JJ Peterka had hat tricks against the Bruins on Tuesday night — a good sign for Lindy Ruff's lineup tweaks.`\
+https://nytimes.com/athletic/6096256/2025/01/29/sabres-aube-kubel-thompson-peterka-hat-trick-bruins/
 
-**Citizenship by Birthright? By Bloodline? Migration Is Complicating Both.**\
-`In a world where people are more mobile than ever, nations are struggling to recalibrate who can be a citizen.`\
-https://nytimes.com/2025/01/29/world/europe/citizenship-rules-debate.html
+**Duke's Cooper Flagg, Rutgers' Dylan Harper headline men's college basketball All-Freshman team**\
+`The freshman All-America team includes two SEC players, two Big Ten players and Player of the Year candidate Cooper Flagg from Duke.`\
+https://nytimes.com/athletic/6092315/2025/01/29/mens-college-basketball-all-america/
 
-**What 4 Americans Thought About Trump’s First Week**\
-`We’ll be regularly checking in with this group of people during President Trump’s first 100 days in office. Here’s what they thought of the beginning.`\
-https://nytimes.com/2025/01/29/us/americans-trump-executive-action.html
+**Kasper's breakout, Raymond's dominance: What's driving Detroit's surge under McLellan?**\
+`Detroit is 11-4-1 under new head coach Todd McLellan. Here's some of the biggest factors driving that surge.`\
+https://nytimes.com/athletic/6095504/2025/01/29/red-wings-todd-mclellan-kasper-raymond/
 
-**These Are the Winds That Turn Wildfires Deadly in L.A.**\
-`The Santa Ana winds tend to cause the same corridors to burn over and over again. Experts say the region needs to adapt.`\
-https://nytimes.com/interactive/2025/01/29/climate/santa-ana-winds-fire-risk.html
+**Australian Open champion Keys out of Austin tournament on WTA rule technicality**\
+`The American is unable to play in front of home fans because of a WTA entry rule.`\
+https://nytimes.com/athletic/6096448/2025/01/29/madison-keys-australian-open-atx-open-wta-rules/
 
-**Amid the Chaos, Trump Has a Simple Message: He’s in Charge**\
-`The new president has moved with lightning speed to purge officials he deems disloyal and rid agencies of policies he considers liberal.`\
-https://nytimes.com/2025/01/29/us/politics/amid-the-chaos-trump-has-a-simple-message-hes-in-charge.html
+**Trump Freezes Trillions. Chaos Ensues.**\
+`What happened when the president ordered a pause in federal grants and loans — and what may come next.`\
+https://nytimes.com/2025/01/29/podcasts/the-daily/trump-freeze-chaos-grants-loans.html
 
-**Buttigieg Says Maybe, Whitmer Says No Way to Michigan Senate Race**\
-`The suddenly open seat in a top-tier battleground has several Michigan politicians taking a serious look.`\
-https://nytimes.com/2025/01/29/us/politics/michigan-senate-gretchen-whitmer.html
+**Millions of Federal Workers Offered Payouts, and Kennedy’s Senate Test**\
+`Plus, Mona Lisa makes moves.`\
+https://nytimes.com/2025/01/29/podcasts/the-headlines/federal-payouts-kennedy-senate-reading-mona-lisa.html
 
-**Elon Musk, With a Little Help From Friends, Plays Bureaucrat in Chief**\
-`The billionaire and his Silicon Valley allies landed in Washington and immediately moved to cut the size of the federal government, reprising the playbook he used after buying Twitter in 2022.`\
-https://nytimes.com/2025/01/29/us/politics/elon-musk-trump-administration.html
+**Wordle Review No. 1,321**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 30, 2025.`\
+https://nytimes.com/2025/01/29/crosswords/wordle-review-1321.html
 
-**Trump Is Eyeing Greenland. His Commerce Nominee Has Financial Ties There.**\
-`Howard Lutnick, who has agreed to divest his financial interests if he is confirmed, is one of several allies of President Trump who have held or explored potential mining investments on the island.`\
-https://nytimes.com/2025/01/29/business/howard-lutnick-greenland.html
+**Connections Companion No. 599**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 30, 2025.`\
+https://nytimes.com/2025/01/29/crosswords/connections-companion-599.html
 
-**Meta Gave Away Its A.I. Crown Jewels. DeepSeek Vindicated Its Strategy.**\
-`The Silicon Valley giant was criticized for giving away its core A.I. technology two years ago for anyone to use. Now that bet is having an impact.`\
-https://nytimes.com/2025/01/29/technology/meta-deepseek-ai-open-source.html
+**Packers free agency: Ranking 11 players from least to most important**\
+`The Packers' 2025 free-agent class is an underwhelming one, led by center Josh Myers and kicker Brandon McManus.`\
+https://nytimes.com/athletic/6095511/2025/01/29/packers-free-agent-ranking-2025/
 
