@@ -1,3 +1,7 @@
+**Senate Confirms Lee Zeldin to Head E.P.A.**\
+`The former New York congressman has little experience in environmental policy. He is expected to follow orders to weaken climate rules.`\
+https://nytimes.com/2025/01/29/climate/lee-zeldin-epa-confirmation.html
+
 **Kennedy’s Fate Rests in Hands of a Small Group of Republicans**\
 `To be confirmed as health secretary, Robert F. Kennedy Jr. can afford to lose no more than three Republican votes if all Democrats are united in their opposition to him.`\
 https://nytimes.com/2025/01/29/us/politics/rfk-jr-senate-vote.html
