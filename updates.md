@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/heres-the-latest
+
+**Live Updates: Robert F. Kennedy Jr. to Begin Health Secretary Confirmation Hearings**\
+`Mr. Kennedy, the scion of a Democratic dynasty and a prominent vaccine skeptic, faces questions from lawmakers as he seeks a job with vast authority over the lives of Americans.`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing
+
 **Disaster-Ravaged Families Are Begging: Put Schools First**\
 `Climate-related disruptions are here to stay, and children remain an afterthought`\
 https://nytimes.com/2025/01/29/opinion/los-angeles-fires-schools.html

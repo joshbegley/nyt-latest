@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/heres-the-latest
+
+**Live Updates: Robert F. Kennedy Jr. to Begin Health Secretary Confirmation Hearings**\
+`Mr. Kennedy, the scion of a Democratic dynasty and a prominent vaccine skeptic, faces questions from lawmakers as he seeks a job with vast authority over the lives of Americans.`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing
+
 **Disaster-Ravaged Families Are Begging: Put Schools First**\
 `Climate-related disruptions are here to stay, and children remain an afterthought`\
 https://nytimes.com/2025/01/29/opinion/los-angeles-fires-schools.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-
 **Frontier Airlines Offers to Buy Spirit Airlines, Again**\
 `Spirit, which filed for bankruptcy protection in November after a federal court blocked its acquisition by JetBlue, says it has rejected the latest Frontier offer for being too low.`\
 https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
-
-**‘Open the Door, Open the Door!’: How Dozens Fled an Inferno on a Plane**\
-`A month after the deadliest aviation disaster on South Korean soil, a fire destroyed another passenger jet in the country.`\
-https://nytimes.com/2025/01/29/world/asia/south-korea-busan-airplane-fire.html
-
-**14 Convicted in Death of Girl for Depriving Her of Insulin**\
-`The parents of Elizabeth Rose Struhs, who died in 2022, were part of a small religious sect in Australia that believed that medical care went against their faith.`\
-https://nytimes.com/2025/01/29/world/australia/struhs-sect-conviction-insulin.html
 
