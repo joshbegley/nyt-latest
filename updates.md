@@ -1,3 +1,11 @@
+**Gilgo Beach Killing Suspect Moves to Have Key DNA Evidence Thrown Out**\
+`The suspect’s lawyer has also called for the case against his client, Rex Heuermann, to be split into five trials. On Wednesday, the judge agreed to hold hearings to consider both requests.`\
+https://nytimes.com/2025/01/29/nyregion/gilgo-beach-murders-dna-evidence.html
+
+**Reds to add left-handed reliever Taylor Rogers in trade with Giants: Source**\
+`Rogers will add to a Reds bullpen that already has left-handers Brent Suter and Sam Moll, as well as non-roster invitee Alex Young.`\
+https://nytimes.com/athletic/6098079/2025/01/29/reds-giants-taylor-rogers-trade/
+
 **The Briefing: Brest 0 Real Madrid 3 - Rodrygo and Vazquez show versatility, Tchouameni struggles again**\
 `Real Madrid finished the first stage of this season's Champions League with a comfortable win - but must now face the playoff round`\
 https://nytimes.com/athletic/6094554/2025/01/29/brest-0-real-madrid-3-rodrygo-vazquez/

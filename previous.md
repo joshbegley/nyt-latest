@@ -1,8 +1,12 @@
+**Gilgo Beach Killing Suspect Moves to Have Key DNA Evidence Thrown Out**\
+`The suspect’s lawyer has also called for the case against his client, Rex Heuermann, to be split into five trials. On Wednesday, the judge agreed to hold hearings to consider both requests.`\
+https://nytimes.com/2025/01/29/nyregion/gilgo-beach-murders-dna-evidence.html
+
 **The Briefing: Brest 0 Real Madrid 3 - Rodrygo and Vazquez show versatility, Tchouameni struggles again**\
 `Real Madrid finished the first stage of this season's Champions League with a comfortable win - but must now face the playoff round`\
 https://nytimes.com/athletic/6094554/2025/01/29/brest-0-real-madrid-3-rodrygo-vazquez/
 
-**Reds to add left-handed reliever Taylor Rogers in trade with Giants**\
+**Reds to add left-handed reliever Taylor Rogers in trade with Giants: Source**\
 `Rogers will add to a Reds bullpen that already has left-handers Brent Suter and Sam Moll, as well as non-roster invitee Alex Young.`\
 https://nytimes.com/athletic/6098079/2025/01/29/reds-giants-taylor-rogers-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097221/2025/01/29/aston-villa-celtic-duran-watkins
 **The Briefing: Manchester City 3 Club Brugge 1 - Comeback win sends City into play-off with Bayern or Real Madrid**\
 `Sam Lee and Thom Harris break down the key moments from Wednesday's Champions League game`\
 https://nytimes.com/athletic/6093937/2025/01/29/manchester-city-club-brugge-champions-league-result-analysis/
-
-**What Inspired Billie Eilish’s Grammy-Nominated Album? Let Her Show You.**\
-`“Hit Me Hard and Soft,” the singer’s third straight album of the year nominee, is filled with recurring images (water, doors), hip-hop style and a pervasive blueness.`\
-https://nytimes.com/interactive/2025/01/29/arts/music/billie-eilish-grammys-hit-me-hard-and-soft.html
 
