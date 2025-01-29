@@ -1,3 +1,19 @@
+**Brittney Griner agrees to 1-year deal with Dream**\
+`Griner entered the offseason as the second-longest tenured WNBA player with one team, having spent her entire career in Phoenix.`\
+https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-phoenix-mercury-wnba/
+
+**Scheffler details 'stupid' kitchen accident that delayed his start to 2025**\
+`After injuring himself while making ravioli on Christmas, top-ranked player makes belated PGA Tour return this week at Pebble Beach Pro-Am.`\
+https://nytimes.com/athletic/6095904/2025/01/28/scottie-scheffler-hand-injury-update-ravioli/
+
+**Elon Musk Suggests SpaceX Will Accelerate Return of NASA Astronauts**\
+`SpaceX is scheduled to bring home two astronauts who have been on the International Space Station since June. Mr. Musk said President Trump had asked for that to occur “as soon as possible.”`\
+https://nytimes.com/2025/01/28/science/musk-spacex-trump-nasa.html
+
+**Bourbon, a Hog Farm and a Nun’s Van: Man Charged in Bizarre Murder Plot**\
+`Jeal Sutherland, of Colonie, N.Y., hatched a deadly scheme with a convicted killer who was an F.B.I. informer, court documents say.`\
+https://nytimes.com/2025/01/28/nyregion/murder-hire-hit-man-new-york.html
+
 **Transgender Americans say Trump’s orders are even worse than feared.**\
 `Three executive orders, including a push to end transition treatments for minors, have left advocates for trans people reeling.`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/transgender-americans-say-trump-orders-are-even-worse-than-feared
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/asia/100000009953528/vietnam-kumquat-lunar-new-y
 **Caroline Kennedy’s Video Exposes the Fight Over a Fading Family Legacy**\
 `Caroline Kennedy stepped out of the shadows and onto social media to assail her cousin, Robert F. Kennedy Jr., on the eve of his Senate hearing.`\
 https://nytimes.com/2025/01/28/us/politics/caroline-robert-kennedy-trump.html
-
-**Steinbrenner: Dodgers’ spending ‘difficult’ for rest of MLB to match**\
-`The Yankees were valued at $7.55 billion by Forbes, the fourth-most valuable sports franchise in the world, ahead of the Dodgers.`\
-https://nytimes.com/athletic/6095925/2025/01/28/yankees-hal-steinbrenner-dodgers-spending-comments/
-
-**Casualties Feared After Stampede at Huge Hindu Festival in India**\
-`People were trampled as pilgrims at the Maha Kumbh Mela, one of the world’s biggest gatherings, were rushing to the confluence of two sacred rivers, officials said.`\
-https://nytimes.com/2025/01/28/world/asia/india-stampede-maha-kumbh-festival.html
-
-**Sony Makes a Change at the Top Amid Entertainment Push**\
-`Kenichiro Yoshida, who has led Sony since 2018, will be succeeded as C.E.O. by the company’s chief financial officer.`\
-https://nytimes.com/2025/01/28/business/sony-ceo-kenichiro-yoshida.html
-
-**State Department Permits Distribution of H.I.V. Medications to Resume — for Now**\
-`Experts fear a resurgence of infections in low-income countries if the ban were to continue. The waiver remains in place, while officials review foreign aid programs.`\
-https://nytimes.com/2025/01/28/health/trump-pepfar-freeze.html
 

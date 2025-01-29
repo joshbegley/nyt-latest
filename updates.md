@@ -1,3 +1,19 @@
+**Brittney Griner agrees to 1-year deal with Dream**\
+`Griner entered the offseason as the second-longest tenured WNBA player with one team, having spent her entire career in Phoenix.`\
+https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-phoenix-mercury-wnba/
+
+**Scheffler details 'stupid' kitchen accident that delayed his start to 2025**\
+`After injuring himself while making ravioli on Christmas, top-ranked player makes belated PGA Tour return this week at Pebble Beach Pro-Am.`\
+https://nytimes.com/athletic/6095904/2025/01/28/scottie-scheffler-hand-injury-update-ravioli/
+
+**Elon Musk Suggests SpaceX Will Accelerate Return of NASA Astronauts**\
+`SpaceX is scheduled to bring home two astronauts who have been on the International Space Station since June. Mr. Musk said President Trump had asked for that to occur “as soon as possible.”`\
+https://nytimes.com/2025/01/28/science/musk-spacex-trump-nasa.html
+
+**Bourbon, a Hog Farm and a Nun’s Van: Man Charged in Bizarre Murder Plot**\
+`Jeal Sutherland, of Colonie, N.Y., hatched a deadly scheme with a convicted killer who was an F.B.I. informer, court documents say.`\
+https://nytimes.com/2025/01/28/nyregion/murder-hire-hit-man-new-york.html
+
 **Transgender Americans say Trump’s orders are even worse than feared.**\
 `Three executive orders, including a push to end transition treatments for minors, have left advocates for trans people reeling.`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/transgender-americans-say-trump-orders-are-even-worse-than-feared
