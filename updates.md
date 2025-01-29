@@ -1,3 +1,11 @@
+**How Gold Bars and a Halal Hustle Destroyed Menendez’s Legacy**\
+`The former New Jersey senator was sentenced to 11 years in prison after being convicted of bribery and corruption.`\
+https://nytimes.com/2025/01/29/nyregion/robert-menendez-senate-corruption-legacy.html
+
+**Defying Legal Limits, Trump Firings Set Up Tests That Could Expand His Power**\
+`The prospect of legal challenges to President Trump’s purges may be a feature, not a bug, for adherents of sweeping presidential authority.`\
+https://nytimes.com/2025/01/29/us/politics/trump-firings-officials-legal-test.html
+
 **Justice Dept. Is Said to Discuss Dropping Case Against Eric Adams**\
 `Senior officials under President Trump have talked with prosecutors in Manhattan about the possibility of abandoning the corruption case against Mr. Adams, the mayor of New York City.`\
 https://nytimes.com/2025/01/29/us/politics/justice-department-trump-charges-eric-adams.html
