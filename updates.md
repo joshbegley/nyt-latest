@@ -1,3 +1,19 @@
+**The weirdest and silliest Super Bowl 2025 prop bets: Will Kelce propose to Swift?**\
+`There are plenty of goofy bets relating to the Super Bowl, from a Travis Kelce proposal to Taylor Swift to tears during the national anthem.`\
+https://nytimes.com/athletic/6097463/2025/01/29/weirdest-silliest-super-bowl-2025-prop-bets/
+
+**Kennedy says processed foods are driving chronic disease. Here’s what the science shows.**\
+`By Alice Callahan`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-processed-foods-are-driving-chronic-disease-heres-what-the-science-shows
+
+**‘Picnic at Hanging Rock’: A Classic Disappearing Act Reappears**\
+`Anointed Australia’s greatest movie by the country’s film institute, “Hanging Rock,” in a new restoration, opens Friday at the IFC Center.`\
+https://nytimes.com/2025/01/29/movies/picnic-at-hanging-rock-restoration.html
+
+**Ha-Seong Kim agrees to two-year, $29M deal with Rays**\
+`The free-agent infielder will start the season on the injured list while recovering from labrum repair surgery. `\
+https://nytimes.com/athletic/5969482/2025/01/29/ha-seong-kim-contract-rays-mlb-free-agency/
+
 **Canadiens; Kaiden Guhle out indefinitely with lacerated quadriceps muscle**\
 `Guhle is third on the Canadiens in average time on ice at 21:14 per game and regularly faces top opponents.`\
 https://nytimes.com/athletic/6097694/2025/01/29/canadiens-kaiden-guhle-indefinitely-injury-leg/
