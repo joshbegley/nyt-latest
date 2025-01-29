@@ -1,3 +1,11 @@
+**The Briefing: Brest 0 Real Madrid 3 - Rodrygo and Vazquez show versatility, Tchouameni struggles again**\
+`Real Madrid finished the first stage of this season's Champions League with a comfortable win - but must now face the playoff round`\
+https://nytimes.com/athletic/6094554/2025/01/29/brest-0-real-madrid-3-rodrygo-vazquez/
+
+**Reds to add left-handed reliever Taylor Rogers in trade with Giants**\
+`Rogers will add to a Reds bullpen that already has left-handers Brent Suter and Sam Moll, as well as non-roster invitee Alex Young.`\
+https://nytimes.com/athletic/6098079/2025/01/29/reds-giants-taylor-rogers-trade/
+
 **Bob Menendez Plans to Appeal After Being Sentenced to 11 Years in Prison**\
 `Former New Jersey Senator Bob Menendez called his trial a “political witch hunt” and claimed he was innocent.`\
 https://nytimes.com/video/us/politics/100000009957746/robert-menendez-sentencing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6093937/2025/01/29/manchester-city-club-brugge-cham
 **What Inspired Billie Eilish’s Grammy-Nominated Album? Let Her Show You.**\
 `“Hit Me Hard and Soft,” the singer’s third straight album of the year nominee, is filled with recurring images (water, doors), hip-hop style and a pervasive blueness.`\
 https://nytimes.com/interactive/2025/01/29/arts/music/billie-eilish-grammys-hit-me-hard-and-soft.html
-
-**Five under-the-radar San Francisco Giants prospects to follow in 2025**\
-`Players range from an older prospect the Giants got from the independent leagues to a splashy international signing who fell off the radar.`\
-https://nytimes.com/athletic/6095624/2025/01/29/sf-giants-underrated-prospects-2025/
-
-**Senate Confirms Lee Zeldin to Head E.P.A.**\
-`The former New York congressman has little experience in environmental policy. He is expected to follow orders to weaken climate rules.`\
-https://nytimes.com/2025/01/29/climate/lee-zeldin-epa-confirmation.html
 
