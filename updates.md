@@ -1,4 +1,8 @@
 **The Aftermath of the Maha Kumbh Mela Stampede**\
+`Many were feared dead after millions of Hindu pilgrims at a huge Hindu festival in India rushed to bathe in holy river waters.`\
+https://nytimes.com/2025/01/29/world/asia/india-maha-kumbh-mela-stampede.html
+
+**The Aftermath of the Maha Kumbh Mela Stampede**\
 `It was the peak moment at one of the holiest gatherings on the Hindu calendar — the Maha Kumbh Mela, a 45-day celebration that brings hundreds of millions of the faithful to bathe in the joined Ganges and Yamuna rivers, washing away their sins.`\
 https://nytimes.com/2025/01/29/world/asia/india-maha-kumbh-mela-stampede.html
 
