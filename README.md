@@ -1,3 +1,7 @@
+**Lack of Detail in Funding Freeze Leaves State and Local Agencies at a Loss**\
+`Democratic and Republican leaders alike voiced concern about the pause in federal dollars “creating chaos” and “jeopardizing the financial stability” of their states.`\
+https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-state-reaction.html
+
 **Pentagon Allows ICE to Use Colorado Military Base to Detain Migrants**\
 `The decision to allow law enforcement officers to use facilities at Buckley Space Force Base in Aurora, Colo., plunges the U.S. military deeper into President Trump’s order to secure the southwestern border.`\
 https://nytimes.com/2025/01/28/us/politics/ice-deportations-colorado-base.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095685/2025/01/28/tyler-iveys-comeback-astros-spri
 **Barry Michael Cooper, ‘New Jack City’ Screenwriter, Dies at 66**\
 `After chronicling the crack boom of the 1980s as an investigative reporter, he had a high-profile but brief second career in Hollywood.`\
 https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
-
-**Giants GM Joe Schoen on QB prospect Shedeur Sanders: "He's a great kid"**\
-`Schoen goes long on his meeting with Sanders, the Senior Bowl as a building ground for talent, and Mike Kafka's potential departure.`\
-https://nytimes.com/athletic/6095340/2025/01/28/giants-joe-schoen-shedeur-sanders-senior-bowl/
 
