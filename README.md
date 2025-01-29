@@ -1,3 +1,11 @@
+**Watch: Why January is undeniably quarterback season**\
+`The Athletic Football Show discusses why having an elite quarterback is so important to win in the NFL.`\
+https://nytimes.com/athletic/6097019/2025/01/29/athletic-football-show-quarterbacks-january/
+
+**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
+`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
+https://nytimes.com/athletic/6083468/2025/01/29/ovechkin-goals-record-wayne-gretzky-stats/
+
 **Office of Management and Budget Spreadsheet of 2,600 Federal Programs Under Review**\
 `The White House’s Office of Management and Budget sent this document to government agencies listing about 2,600 programs that were under review.`\
 https://nytimes.com/interactive/2025/01/29/upshot/trump-omb-spreadsheet.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal
 **Hamas Is Expected to Release 8 Israeli and Thai Hostages**\
 `The release planned for Thursday would be the third so far as Israel and Hamas observe a six-week truce, part of a multiphase agreement that mediators hope will end the war in Gaza.`\
 https://nytimes.com/2025/01/29/world/middleeast/israel-hamas-gaza-hostages.html
-
-**Kennedy says too many children take A.D.H.D. medications, while inflating his figures.**\
-`By Ellen Barry`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-too-many-children-take-adhd-medications-while-inflating-his-figures
-
-**New Harvey Weinstein Sex Crimes Trial Is Set for April 15**\
-`The disgraced movie mogul asked for his trial to be accelerated, calling Rikers Island a “hellhole.” He faces three sex-crime charges.`\
-https://nytimes.com/2025/01/29/nyregion/weinstein-sex-charge-trial-date.html
 
