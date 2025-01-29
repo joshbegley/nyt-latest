@@ -1,3 +1,7 @@
+**Lack of Detail in Funding Freeze Leaves State and Local Agencies at a Loss**\
+`Democratic and Republican leaders alike voiced concern about the pause in federal dollars “creating chaos” and “jeopardizing the financial stability” of their states.`\
+https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-state-reaction.html
+
 **Pentagon Allows ICE to Use Colorado Military Base to Detain Migrants**\
 `The decision to allow law enforcement officers to use facilities at Buckley Space Force Base in Aurora, Colo., plunges the U.S. military deeper into President Trump’s order to secure the southwestern border.`\
 https://nytimes.com/2025/01/28/us/politics/ice-deportations-colorado-base.html
