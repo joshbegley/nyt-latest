@@ -1,5 +1,5 @@
 **Herbert out as F1 steward after role deemed 'incompatible' with media punditry**\
-`The FIA has confirmed that Johnny Herbert will no longer serve as a Formula One race steward after mutually agreeing the role was “incompatible” with his media duties.`\
+`Herbert's dual role attracted criticism last season, namely from Max Vertsappen's father Jos.`\
 https://nytimes.com/athletic/6096497/2025/01/29/johnny-herbert-f1-steward-why/
 
 **Hollinger: My All-Star reserves, and why Jaren Jackson Jr.'s breakout matters**\
