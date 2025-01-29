@@ -1,3 +1,7 @@
+**How Menendez Destroyed His Legacy With Gold Bars and a Halal Hustle**\
+`The former New Jersey senator was sentenced to 11 years in prison after being convicted of bribery and corruption.`\
+https://nytimes.com/2025/01/29/nyregion/robert-menendez-senate-corruption-legacy.html
+
 **How Gold Bars and a Halal Hustle Destroyed Menendez’s Legacy**\
 `The former New Jersey senator was sentenced to 11 years in prison after being convicted of bribery and corruption.`\
 https://nytimes.com/2025/01/29/nyregion/robert-menendez-senate-corruption-legacy.html
