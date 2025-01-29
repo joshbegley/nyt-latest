@@ -1,3 +1,11 @@
+**At Gabbard’s Confirmation Hearing, Edward Snowden May Loom Large**\
+`Senators are expected to ask about her defense of the former government contractor, who released reams of data on U.S. surveillance programs and fled to Russia.`\
+https://nytimes.com/2025/01/29/us/politics/tulsi-gabbard-confirmation-edward-snowden.html
+
+**Submit your Guardians questions for Zack Meisel's mailbag**\
+`In two weeks, Cleveland Guardians pitchers and catchers will report to the team&#8217;s spring training camp in Goodyear, Ariz.`\
+https://nytimes.com/athletic/6097215/2025/01/29/submit-your-guardians-questions-for-zack-meisels-mailbag/
+
 **MLS Sunday Night Soccer to be introduced in 2025**\
 `Major League Soccer will debut a new Sunday night primetime matchup in 2025 as part of the league’s push to expand its coverage.`\
 https://nytimes.com/athletic/6097264/2025/01/29/mls-sunday-night-soccer/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/yes-abortion
 **Gerrard set to leave role as head coach of Saudi club Al Ettifaq**\
 `Steven Gerrard is set to leave his role as head coach of Saudi Arabian club Al Ettifaq.`\
 https://nytimes.com/athletic/5887908/2025/01/29/steven-gerrard-exit-saudi-al-ettifaq/
-
-**What the Fed’s Rate Policy Means for Your Finances**\
-`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2025/01/29/business/interest-rates-consumers-savings-loans.html
-
-**The Fed is expected to pause on rate cuts, but for how long?**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/01/29/business/fed-interest-rates/the-fed-is-expected-to-pause-on-rate-cuts-but-for-how-long
 
