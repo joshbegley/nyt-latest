@@ -1,3 +1,7 @@
+**Trent Dilfer has 'been humbled' at UAB. But will 2025 be any different?**\
+`Last season featured self-inflicted public relations blunders, a six-game losing streak and three losses by more than 30 points.`\
+https://nytimes.com/athletic/6094452/2025/01/29/trent-dilfer-uab-football-turnaround/
+
 **Catholic Church in the Philippines Accused of Impunity Over Priest Abuse**\
 `A watchdog group, Bishop Accountability, said it had found scores of clerics with ties to the country who have been publicly accused of sexual abuse. But very few have been disciplined.`\
 https://nytimes.com/2025/01/29/world/asia/philippines-catholic-priests-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096448/2025/01/29/madison-keys-australian-open-atx
 **Trump Freezes Trillions. Chaos Ensues.**\
 `What happened when the president ordered a pause in federal grants and loans — and what may come next.`\
 https://nytimes.com/2025/01/29/podcasts/the-daily/trump-freeze-chaos-grants-loans.html
-
-**Millions of Federal Workers Offered Payouts, and Kennedy’s Senate Test**\
-`Plus, Mona Lisa makes moves.`\
-https://nytimes.com/2025/01/29/podcasts/the-headlines/federal-payouts-kennedy-senate-reading-mona-lisa.html
 
