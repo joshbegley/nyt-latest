@@ -1,3 +1,11 @@
+**Astronomers Are Keeping an Eye on This Asteroid’s Odds of Hitting Earth**\
+`Researchers say there’s a 1.3 percent chance that the space rock 2024 YR4 could strike our planet — but not until December 2032.`\
+https://nytimes.com/2025/01/29/science/asteroid-2024-yr4-earth.html
+
+**Slot: Nallo must learn from cruel red card**\
+`Arne Slot says Liverpool defender Amara Nallo must learn from his “cruel” red card in Wednesday&#8217;s 3-2 defeat to PSV Eindhoven in the Champions League.`\
+https://nytimes.com/athletic/6098310/2025/01/29/amara-nallo-liverpool-yonugest-red-card/
+
 **Explained: How do the Champions League play-offs work?**\
 `With the Champions League's revamped 'league' stage over, attention turns to the play-off round, which takes place in two weeks`\
 https://nytimes.com/athletic/6097204/2025/01/29/champions-league-play-offs-explained/
