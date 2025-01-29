@@ -1,9 +1,17 @@
+**Trump’s Retribution Continues With Removal of General Milley’s Security Detail**\
+`Early in his first administration, President Trump noted the general’s “brilliance and fortitude.” And then the president got angry.`\
+https://nytimes.com/2025/01/29/us/politics/mark-milley-security-trump.html
+
+**Federal Judge Says He Will Block Trump’s Attempt to Defund ‘Woke’**\
+`“I’m worried about the effect to the people,” said the federal judge about disruptions to federal grants that sent shock waves across the country.`\
+https://nytimes.com/2025/01/29/us/politics/trump-anti-woke-funding.html
+
 **Champions League odds: Liverpool favoured ahead of Arsenal, Real, Barca after league phase**\
 `Liverpool ended the league phase of the Champions League top of the table and is the favourite in the odds to lift the trophy.`\
 https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-favoured-ahead-of-arsenal-real-madrid-barcelona/
 
-**Iris Cummings Critchell, 104, Dies; Swimmer Turned Prominent Aviator**\
-`The last survivor of the American team that competed in the 1936 Olympics in Berlin, she went on to forge a career as an influential aeronautics instructor.`\
+**Iris Cummings Critchell, 104, Dies; Olympic Swimmer Turned Aviator**\
+`The last survivor of the American team that competed in Hitler’s 1936 Games in Berlin, she went on to become a wartime pilot and an aeronautics instructor.`\
 https://nytimes.com/2025/01/29/sports/iris-cummings-critchell-dead.html
 
 **Courtney Vandersloot agrees to 1-year deal with Chicago Sky**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/trump-funding-freeze-rollout.html
 **What Do Robert F. Kennedy Jr.’s Birds Mean?**\
 `As he seeks to lead the health department, Mr. Kennedy wore a thin tie dotted with feathered creatures to cap a classic suit.`\
 https://nytimes.com/2025/01/29/style/rfk-jr-birds-tie.html
-
-**Postal Worker Stole Sports Memorabilia Worth $100,000, U.S. Says**\
-`A former sorting clerk at a post office in New Jersey later sold the items, including valuable Michael Jordan and Mickey Mantle trading cards, prosecutors said.`\
-https://nytimes.com/2025/01/29/us/usps-employee-guilty-sports-memorabilia-theft.html
-
-**Should the Leafs make a run at acquiring Brandon Saad?**\
-`There’s a strong argument to be made that Toronto should be interested in the 32-year-old veteran winger.`\
-https://nytimes.com/athletic/6097921/2025/01/29/blues-brandon-saad-maple-leafs/
 

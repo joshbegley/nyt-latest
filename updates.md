@@ -1,3 +1,15 @@
+**Trump’s Retribution Continues With Removal of General Milley’s Security Detail**\
+`Early in his first administration, President Trump noted the general’s “brilliance and fortitude.” And then the president got angry.`\
+https://nytimes.com/2025/01/29/us/politics/mark-milley-security-trump.html
+
+**Federal Judge Says He Will Block Trump’s Attempt to Defund ‘Woke’**\
+`“I’m worried about the effect to the people,” said the federal judge about disruptions to federal grants that sent shock waves across the country.`\
+https://nytimes.com/2025/01/29/us/politics/trump-anti-woke-funding.html
+
+**Iris Cummings Critchell, 104, Dies; Olympic Swimmer Turned Aviator**\
+`The last survivor of the American team that competed in Hitler’s 1936 Games in Berlin, she went on to become a wartime pilot and an aeronautics instructor.`\
+https://nytimes.com/2025/01/29/sports/iris-cummings-critchell-dead.html
+
 **Champions League odds: Liverpool favoured ahead of Arsenal, Real, Barca after league phase**\
 `Liverpool ended the league phase of the Champions League top of the table and is the favourite in the odds to lift the trophy.`\
 https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-favoured-ahead-of-arsenal-real-madrid-barcelona/
