@@ -1,3 +1,19 @@
+**MLS Sunday Night Soccer to be introduced in 2025**\
+`Major League Soccer will debut a new Sunday night primetime matchup in 2025 as part of the league’s push to expand its coverage.`\
+https://nytimes.com/athletic/6097264/2025/01/29/mls-sunday-night-soccer/
+
+**1954 Mercedes could become most expensive F1 car sold at auction**\
+`The Mercedes once driven by Formula One greats Juan Manuel Fangio and Stirling Moss 70 years ago will be auctioned this weekend `\
+https://nytimes.com/athletic/6096755/2025/01/29/mercedes-streamliner-sothebys-auction-f1-record-expensive/
+
+**Trump’s Tariffs Scramble Fed’s Interest Rate Calculus**\
+`Economists predict that the Trump administration’s trade policies could push up prices for consumers, making it harder for Fed officials to cut rates.`\
+https://nytimes.com/2025/01/29/business/trumps-tariffs-interest-rates-fed.html
+
+**Abortion pills are safe, studies have shown.**\
+`By Amy Schoenfeld Walker`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/yes-abortion-pills-are-safe-heres-what-studies-have-shown
+
 **Ryne Stanek, Mets agree to 1-year deal: Source**\
 `The Mets and right-hander Ryne Stanek reached an agreement Wednesday on a one-year contract, league sources confirmed.`\
 https://nytimes.com/athletic/6097261/2025/01/29/ryne-stanek-mets-contract/
