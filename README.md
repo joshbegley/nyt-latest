@@ -1,3 +1,7 @@
+**Trump’s Picks to Replace Gaetz and Waltz in the House Win Florida Primaries**\
+`The two candidates will move on to special general elections on April 1, when they will be strongly favored to expand the Republicans’ slim House majority.`\
+https://nytimes.com/2025/01/28/us/politics/gaetz-waltz-florida-special-primaries.html
+
 **Instakids**\
 `The pursuit of online fame and riches has corrupted parents, endangered young girls and led to a proliferation of explicit imagery encouraged by, and catering to, men.`\
 https://nytimes.com/spotlight/instakids
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/28/world/middleeast/unrwa-israel-un.html
 **White House Press Secretary Makes Steely and Unflinching Debut**\
 `Karoline Leavitt used her first briefing in the role to warn veteran reporters that they were increasingly irrelevant.`\
 https://nytimes.com/2025/01/28/us/politics/karoline-leavitt-debut.html
-
-**Across Justice Dept., Fear, Anxiety and Angry Bosses**\
-`At the department’s headquarters in downtown Washington, lawyers described the uncertainty that has rippled across the agency.`\
-https://nytimes.com/2025/01/28/us/politics/justice-department-trump.html
 
