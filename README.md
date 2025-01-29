@@ -1,3 +1,11 @@
+**Stephan Thernstrom, Leading Critic of Affirmative Action, Dies at 90**\
+`A prizewinning historian, he, along and his wife, Abigail, was a conservative opponent of racial preferences, favoring school choice and voucher programs instead.`\
+https://nytimes.com/2025/01/29/us/stephan-thernstrom-dead.html
+
+**Blues' Brandon Saad unclaimed on waivers, assigned to AHL**\
+`Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
+https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-waivers-clears/
+
 **Mexico’s Sheinbaum Questions Whether U.S. Tariffs Will Really Be Imposed**\
 `“We don’t think it’s going to happen really,” she said during her daily morning news conference on Wednesday, just days before Trump’s threatened tariffs might begin. “And if it happens, we also have our plan.”`\
 https://nytimes.com/2025/01/29/us/politics/mexico-president-sheinbaum-trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/world/europe/farage-musk-uk-politics.html
 **As Establishment Warms to Trump, Elite Law Firm Takes On His Appeal**\
 `The involvement of Sullivan & Cromwell in the appeal of President Trump’s criminal conviction underscored how New York’s legal power players have moved toward Mr. Trump.`\
 https://nytimes.com/2025/01/29/nyregion/trump-criminal-conviction-appeal.html
-
-**Fact-Checking Kennedy’s Health Claims in His Confirmation Hearing**\
-`Robert F. Kennedy Jr., the nominee to lead the Department of Health and Human Services, made a number of disputed claims.`\
-https://nytimes.com/2025/01/29/health/rfk-jr-health-fact-check-obesity-covid.html
-
-**Tigers ink righty reliever Tommy Kahnle to one-year deal: Sources**\
-`Last season, Kahnle had a 2.11 ERA for the Yankees and can give the Tigers a needed swing-and-miss option.`\
-https://nytimes.com/athletic/6097371/2025/01/29/detroit-tigers-tommy-kahnle-deal/
 
