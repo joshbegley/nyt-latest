@@ -1,3 +1,7 @@
+**Kingsbury to stay with Commanders, McCarthy out for Saints' vacancy**\
+`Kingsbury staying in Washington isn’t a surprise for the NFC conference runner-ups.`\
+https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-saints-head-coach-withdrawal/
+
 **Transportation Secretary Seeks Rollback of Biden’s Fuel Economy Standards**\
 `The order is the latest Trump administration effort against Biden-era initiatives that intended to promote electric vehicles and reduce greenhouse gas emissions.`\
 https://nytimes.com/2025/01/28/us/politics/trump-fuel-economy-standards-rollback.html

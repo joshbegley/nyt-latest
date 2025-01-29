@@ -1,3 +1,7 @@
+**Kingsbury to stay with Commanders, McCarthy out for Saints' vacancy**\
+`Kingsbury staying in Washington isn’t a surprise for the NFC conference runner-ups.`\
+https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-saints-head-coach-withdrawal/
+
 **Wednesday Briefing**\
 `Confusion in the U.S. after a Trump spending freeze.`\
 https://nytimes.com/2025/01/29/briefing/trump-spending-hostages.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6094252/2025/01/29/forest-winter-window-one-clever-
 **Endo is becoming a Liverpool cult hero despite hardly ever starting**\
 `The midfielder hasn't started a Premier League game this season but is Arne Slot's go-to substitute when he needs to see out a result`\
 https://nytimes.com/athletic/6092397/2025/01/29/wataru-endo-liverpool-fans/
-
-**The miracle of Brest, a club a world apart from Champions League opponents Real Madrid**\
-`Despite no European pedigree and limited resources, the French club are above Real Madrid, Man City and PSG in the table with one game to go`\
-https://nytimes.com/athletic/6093105/2025/01/29/the-miracle-of-brest-a-club-a-world-apart-from-champions-league-opponents-real-madrid/
 
