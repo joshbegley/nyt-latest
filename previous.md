@@ -1,5 +1,9 @@
+**Hamilton unhurt after crash in Ferrari Barcelona testing**\
+`The incident happened during a three-day test at the Circuit de Barcelona-Catalunya in the team’s 2023 F1 car.`\
+https://nytimes.com/athletic/6096843/2025/01/29/lewis-hamilton-ferrari-crash-barcelona/
+
 **De'Aaron Fox trade scenarios: Could Kings star team up with Victor Wembanyama?**\
-`The clock is ticking on Sacramento. Would Houston or Orlando make a play for the point guard. Will the Spurs form a dynamic duo?`\
+`The clock is ticking on Sacramento. Would Houston or Orlando make a play for the point guard? Or will the Spurs form a dynamic duo?`\
 https://nytimes.com/athletic/6095447/2025/01/29/deaaron-fox-trade-rumors-kings-spurs-rockets-magic/
 
 **MoneyCall: Super Bowl LIX’s 5 best business storylines**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/opinion/los-angeles-fires-schools.html
 **My Friend Behaved Like a Lecher at Our Wedding. Should We Tell His Wife?**\
 `A high school friend whose wife skipped the wedding to stay home with the couple’s children showed up drunk to the reception and hit on guests.`\
 https://nytimes.com/2025/01/29/style/marital-intervention.html
-
-**Lloyd to reunite with former USWNT team-mates in The Soccer Tournament**\
-`U.`\
-https://nytimes.com/athletic/6096480/2025/01/29/carli-lloyd-the-soccer-tournament/
 

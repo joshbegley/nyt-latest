@@ -1,3 +1,11 @@
+**Hamilton unhurt after crash in Ferrari Barcelona testing**\
+`The incident happened during a three-day test at the Circuit de Barcelona-Catalunya in the team’s 2023 F1 car.`\
+https://nytimes.com/athletic/6096843/2025/01/29/lewis-hamilton-ferrari-crash-barcelona/
+
+**De'Aaron Fox trade scenarios: Could Kings star team up with Victor Wembanyama?**\
+`The clock is ticking on Sacramento. Would Houston or Orlando make a play for the point guard? Or will the Spurs form a dynamic duo?`\
+https://nytimes.com/athletic/6095447/2025/01/29/deaaron-fox-trade-rumors-kings-spurs-rockets-magic/
+
 **De'Aaron Fox trade scenarios: Could Kings star team up with Victor Wembanyama?**\
 `The clock is ticking on Sacramento. Would Houston or Orlando make a play for the point guard. Will the Spurs form a dynamic duo?`\
 https://nytimes.com/athletic/6095447/2025/01/29/deaaron-fox-trade-rumors-kings-spurs-rockets-magic/
