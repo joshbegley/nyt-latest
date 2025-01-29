@@ -1,3 +1,12 @@
+**The Pentagon has revoked Gen. Mark Milley’s security detail and is reviewing his record.**\
+`The Pentagon has asked its inspector general to review the record and behavior of General Mark A. Milley, the retired chairman of the Joint Chiefs of Staff who stood up to President Trump in his first term.`\
+https://nytimes.com/2025/01/28/us/politics/the-pentagon-has-revoked-gen-mark-milleys-security-detail-and-is-reviewing-his-record.html
+
+**A poor start, missed opportunities and a game that got out of hand: Rangers takeaways**\
+`After dropping their second straight game, the Rangers have little room for error at this point in the season.
+`\
+https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-score/
+
 **A poor start, missed opportunities and a game that got out of hand: Rangers takeaways**\
 `After dropping their second straight game, the Rangers have little room for error at this point in the season.
 `\
