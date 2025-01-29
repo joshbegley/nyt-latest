@@ -1,3 +1,7 @@
+**Fireworks and Family Feasts Kick Off Year of the Snake**\
+`More than a billion people around the world are celebrating the Lunar New Year.`\
+https://nytimes.com/2025/01/28/world/asia/lunar-new-year-photos.html
+
 **Dodgers keep spending, agree on 1-year deal with RP Kirby Yates**\
 `World Series champs make another big addition to their bullpen with Yates, who had a 1.17 ERA in 61 appearances for Texas last season.`\
 https://nytimes.com/athletic/6096097/2025/01/28/dodgers-agree-deal-kirby-yates/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/transgender-a
 **Practicing for When the Bombs Fall in ‘A Knock on the Roof’**\
 `In a new solo play about ordinary people under bombardment in Gaza, a woman rehearses how she would escape her building if Israeli forces were to strike.`\
 https://nytimes.com/2025/01/28/theater/a-knock-on-the-roof-review.html
-
-**Trump Signs Order Restricting Gender-Affirming Treatments for Minors**\
-`The directive built on a string of recent actions to roll back federal protections and services for transgender people.`\
-https://nytimes.com/2025/01/28/us/politics/trump-trans-gender-affirming-care.html
 

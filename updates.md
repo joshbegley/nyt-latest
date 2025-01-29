@@ -1,3 +1,7 @@
+**Fireworks and Family Feasts Kick Off Year of the Snake**\
+`More than a billion people around the world are celebrating the Lunar New Year.`\
+https://nytimes.com/2025/01/28/world/asia/lunar-new-year-photos.html
+
 **Dodgers keep spending, agree on 1-year deal with RP Kirby Yates**\
 `World Series champs make another big addition to their bullpen with Yates, who had a 1.17 ERA in 61 appearances for Texas last season.`\
 https://nytimes.com/athletic/6096097/2025/01/28/dodgers-agree-deal-kirby-yates/
