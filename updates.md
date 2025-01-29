@@ -1,3 +1,7 @@
+**Dodgers keep spending, agree on 1-year deal with RP Kirby Yates**\
+`World Series champs make another big addition to their bullpen with Yates, who had a 1.17 ERA in 61 appearances for Texas last season.`\
+https://nytimes.com/athletic/6096097/2025/01/28/dodgers-agree-deal-kirby-yates/
+
 **Explosive Material**\
 `Sophia Maymudes doesn’t want this thing to end.`\
 https://nytimes.com/2025/01/28/crosswords/daily-puzzle-2025-01-29.html

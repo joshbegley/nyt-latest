@@ -1,3 +1,7 @@
+**Dodgers keep spending, agree on 1-year deal with RP Kirby Yates**\
+`World Series champs make another big addition to their bullpen with Yates, who had a 1.17 ERA in 61 appearances for Texas last season.`\
+https://nytimes.com/athletic/6096097/2025/01/28/dodgers-agree-deal-kirby-yates/
+
 **Explosive Material**\
 `Sophia Maymudes doesn’t want this thing to end.`\
 https://nytimes.com/2025/01/28/crosswords/daily-puzzle-2025-01-29.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/theater/a-knock-on-the-roof-review.html
 **Trump Signs Order Restricting Gender-Affirming Treatments for Minors**\
 `The directive built on a string of recent actions to roll back federal protections and services for transgender people.`\
 https://nytimes.com/2025/01/28/us/politics/trump-trans-gender-affirming-care.html
-
-**What Kennedy Could Mean for Public Health**\
-`Robert F.`\
-https://nytimes.com/video/us/politics/100000009954203/what-kennedy-could-mean-for-public-health.html
 
