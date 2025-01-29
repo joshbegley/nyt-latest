@@ -1,3 +1,15 @@
+**Ryan Pressly details waiving no-trade clause: 'It's hard to leave your home'**\
+`Pressly has already spoken with Cubs manager Craig Counsell and Cubs president of baseball operations Jed Hoyer.`\
+https://nytimes.com/athletic/6097778/2025/01/29/ryan-pressly-chicago-cubs-trade-details/
+
+**The takeaways from the Fed’s meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/01/29/business/fed-interest-rates/the-takeaways-from-the-feds-meeting
+
+**Looking Fire, and Fear, Square in the Eye**\
+`Alyce McFadden, a reporting fellow on The Times’s Metro desk, writes about what covering a disaster for the first time brought home to her.`\
+https://nytimes.com/2025/01/29/us/looking-fire-and-fear-square-in-the-eye.html
+
 **Notre Dame hiring Chris Ash as defensive coordinator: Source**\
 `Chris Ash, a former Rutgers head coach who spent the past four years in the NFL, will be Notre Dame's new defensive coordinator.`\
 https://nytimes.com/athletic/6097759/2025/01/29/chris-ash-notre-dame-defensive-coordinator/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/in-a-hearing
 **The Hearing Confirmed That Kennedy Is Trump’s Kind of Guy**\
 `At this point, whether a nominee can explain himself coherently, much less convincingly, may not matter for the votes he needs.`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/robert-kennedy-rfk-hearing-republicans
-
-**After the L.A. Fires, a New Menace Lingers**\
-`Urban firestorms leave behind the detritus of entire neighborhoods in the air.`\
-https://nytimes.com/2025/01/29/opinion/los-angeles-fires-air.html
-
-**Aston Villa's Duran expected to undergo medical ahead of €77m Al Nassr transfer**\
-`Aston Villa forward Jhon Duran is expected to undergo a medical in London on Thursday ahead of a proposed permanent transfer to Saudi Arabian club Al Nassr.`\
-https://nytimes.com/athletic/6096416/2025/01/29/jhon-duran-transfer-al-nassr-villa/
-
-**‘Dean of American Historians’: Ken Burns on William E. Leuchtenburg**\
-`One was a filmmaker, the other a scholarly adviser (who sometimes appeared on camera), and the two became close friends, working together for more than 40 years.`\
-https://nytimes.com/2025/01/29/us/ken-burns-on-william-e-leuchtenburg.html
 

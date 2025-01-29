@@ -1,3 +1,15 @@
+**Ryan Pressly details waiving no-trade clause: 'It's hard to leave your home'**\
+`Pressly has already spoken with Cubs manager Craig Counsell and Cubs president of baseball operations Jed Hoyer.`\
+https://nytimes.com/athletic/6097778/2025/01/29/ryan-pressly-chicago-cubs-trade-details/
+
+**The takeaways from the Fed’s meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/01/29/business/fed-interest-rates/the-takeaways-from-the-feds-meeting
+
+**Looking Fire, and Fear, Square in the Eye**\
+`Alyce McFadden, a reporting fellow on The Times’s Metro desk, writes about what covering a disaster for the first time brought home to her.`\
+https://nytimes.com/2025/01/29/us/looking-fire-and-fear-square-in-the-eye.html
+
 **Notre Dame hiring Chris Ash as defensive coordinator: Source**\
 `Chris Ash, a former Rutgers head coach who spent the past four years in the NFL, will be Notre Dame's new defensive coordinator.`\
 https://nytimes.com/athletic/6097759/2025/01/29/chris-ash-notre-dame-defensive-coordinator/
