@@ -1,3 +1,7 @@
+**The Republicans to Watch During Kennedy’s Confirmation Hearings**\
+`With most Democrats expected to vote against him, Robert F. Kennedy Jr.’s bid for health secretary will come down whether he can win over skeptics in President Trump’s party.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-republicans-mcconnell.html
+
 **Hamilton unhurt after crash in Ferrari Barcelona testing**\
 `The incident happened during a three-day test at the Circuit de Barcelona-Catalunya in the team’s 2023 F1 car.`\
 https://nytimes.com/athletic/6096843/2025/01/29/lewis-hamilton-ferrari-crash-barcelona/
