@@ -1,3 +1,7 @@
+**Racing for Pennies: A Day in the Life of a Chinese Food Delivery Worker**\
+`In China’s economic downturn, food-delivery workers toiling under unforgiving rules and dwindling pay say they don’t see a future.`\
+https://nytimes.com/interactive/2025/01/29/world/asia/china-delivery-driver.html
+
 **The new transportation secretary’s first move was to seek a rollback of Biden’s fuel economy standards.**\
 `By Mark Walker`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/the-new-transportation-secretarys-first-move-was-to-seek-a-rollback-of-bidens-fuel-economy-standards
