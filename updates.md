@@ -1,3 +1,7 @@
+**Meta Agrees to Pay Trump $25 Million to Settle His Lawsuit**\
+`President Trump had sued Meta and other tech firms in 2021, arguing that he had been wrongfully censored by them. Meta also reported revenue and profit growth for the fourth quarter.`\
+https://nytimes.com/2025/01/29/technology/meta-trump-lawsuit-settlement.html
+
 **Gilgo Beach Killing Suspect Moves to Have Key DNA Evidence Thrown Out**\
 `The suspect’s lawyer has also called for the case against his client, Rex Heuermann, to be split into five trials. On Wednesday, the judge agreed to hold hearings to consider both requests.`\
 https://nytimes.com/2025/01/29/nyregion/gilgo-beach-murders-dna-evidence.html

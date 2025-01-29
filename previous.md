@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6097916/2025/01/29/us-open-2025-start-date-sunday-s
 https://nytimes.com/athletic/6097972/2025/01/29/chloe-kelly-manchester-city-future/
 
 **Meta Agrees to Pay Trump $25 Million to Settle His Lawsuit**\
-`President Trump had sued Meta and other tech firms in 2021, arguing that he had been wrongfully censored by them. Meta also reported a 21 percent increase in quarterly revenue.`\
+`President Trump had sued Meta and other tech firms in 2021, arguing that he had been wrongfully censored by them. Meta also reported revenue and profit growth for the fourth quarter.`\
 https://nytimes.com/2025/01/29/technology/meta-trump-lawsuit-settlement.html
 
 **Evacuations Are Ordered as Wildfire Breaks Out in Western North Carolina**\
