@@ -1,3 +1,7 @@
+**How Tommy Kahnle fits the Tigers' bullpen: Pros, cons and what could be next**\
+`The Tigers signed relief pitcher Tommy Kahnle to a one-year deal worth $7.75 million, adding another piece to their bullpen puzzle. `\
+https://nytimes.com/athletic/6098266/2025/01/29/detroit-tigers-tommy-kahnle-bullpen-fit/
+
 **Is Going After Government Always Good Politics?**\
 `President Trump is betting that Americans will not care if he upends institutions most have lost faith in.`\
 https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
