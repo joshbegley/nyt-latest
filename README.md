@@ -1,3 +1,11 @@
+**Kennedy says too many children take A.D.H.D. medications, while inflating his figures.**\
+`By Ellen Barry`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-too-many-children-take-adhd-medications-while-inflating-his-figures
+
+**New Harvey Weinstein Sex Crimes Trial Is Set for April 15**\
+`The disgraced movie mogul asked for his trial to be accelerated, calling Rikers Island a “hellhole.” He faces three sex-crime charges.`\
+https://nytimes.com/2025/01/29/nyregion/weinstein-sex-charge-trial-date.html
+
 **What Kennedy has said about weight loss drugs and the obesity epidemic.**\
 `By Gina Kolata`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-weight-loss-obesity
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6097215/2025/01/29/submit-your-guardians-questions-
 **MLS Sunday Night Soccer to be introduced in 2025**\
 `Major League Soccer will debut a new Sunday night primetime matchup in 2025 as part of the league’s push to expand its coverage.`\
 https://nytimes.com/athletic/6097264/2025/01/29/mls-sunday-night-soccer/
-
-**1954 Mercedes could become most expensive F1 car sold at auction**\
-`The Mercedes once driven by Formula One greats Juan Manuel Fangio and Stirling Moss 70 years ago will be auctioned this weekend `\
-https://nytimes.com/athletic/6096755/2025/01/29/mercedes-streamliner-sothebys-auction-f1-record-expensive/
-
-**Ryne Stanek, Mets agree to 1-year deal: Source**\
-`The Mets and right-hander Ryne Stanek reached an agreement Wednesday on a one-year contract, league sources confirmed.`\
-https://nytimes.com/athletic/6097261/2025/01/29/ryne-stanek-mets-contract/
 
