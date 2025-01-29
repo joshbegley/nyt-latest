@@ -1,3 +1,7 @@
+**Reds to add left-handed reliever Taylor Rogers in trade with Giants: Sources**\
+`Rogers will add to a Reds bullpen that already has left-handers Brent Suter and Sam Moll, as well as non-roster invitee Alex Young.`\
+https://nytimes.com/athletic/6098079/2025/01/29/reds-giants-taylor-rogers-trade/
+
 **Inside the Chaotic Rollout of Trump’s Federal Funding Freeze**\
 `The order that froze trillions of dollars of federal grants and loans was published without vetting by key officials in the White House.`\
 https://nytimes.com/2025/01/29/us/politics/trump-funding-freeze-rollout.html
