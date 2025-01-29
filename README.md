@@ -1,3 +1,11 @@
+**Astronomers Are Keeping an Eye on This Asteroid’s Odds of Hitting Earth**\
+`Researchers say there’s a 1.3 percent chance that the space rock 2024 YR4 could strike our planet — but not until December 2032.`\
+https://nytimes.com/2025/01/29/science/asteroid-2024-yr4-earth.html
+
+**Slot: Nallo must learn from cruel red card**\
+`Arne Slot says Liverpool defender Amara Nallo must learn from his “cruel” red card in Wednesday&#8217;s 3-2 defeat to PSV Eindhoven in the Champions League.`\
+https://nytimes.com/athletic/6098310/2025/01/29/amara-nallo-liverpool-yonugest-red-card/
+
 **Explained: How do the Champions League play-offs work?**\
 `With the Champions League's revamped 'league' stage over, attention turns to the play-off round, which takes place in two weeks`\
 https://nytimes.com/athletic/6097204/2025/01/29/champions-league-play-offs-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-
 **Iris Cummings Critchell, 104, Dies; Olympic Swimmer Turned Aviator**\
 `The last survivor of the American team that competed in Hitler’s 1936 Games in Berlin, she went on to become a wartime pilot and an aeronautics instructor.`\
 https://nytimes.com/2025/01/29/sports/iris-cummings-critchell-dead.html
-
-**Courtney Vandersloot agrees to 1-year deal with Chicago Sky**\
-`Vandersloot had free-agent interest from several teams, but only met with Chicago, Golden State and Seattle, league sources said.`\
-https://nytimes.com/athletic/6098304/2025/01/29/courtney-vandersloot-wnba-free-agency-chicago-sky/
-
-**Bernie Sanders Questions R.F.K. Jr. About His Stance on Vaccines**\
-`Senator Bernie Sanders, Independent of Vermont, asked Robert F. Kennedy Jr. to disavow baby onesies with anti-vaccination slogans. The clothes are sold by a nonprofit Mr. Kennedy co-founded.`\
-https://nytimes.com/video/us/politics/100000009957725/rfk-jr-confirmation-hearing-sanders.html
 

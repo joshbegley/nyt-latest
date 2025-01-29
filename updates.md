@@ -1,3 +1,7 @@
+**Explained: How do the Champions League play-offs work?**\
+`With the Champions League's revamped 'league' stage over, attention turns to the play-off round, which takes place in two weeks`\
+https://nytimes.com/athletic/6097204/2025/01/29/champions-league-play-offs-explained/
+
 **Duran, Watkins transfer interest shows Villa 'in the eyes of other strong teams' - Emery**\
 `Unai Emery has said strikers Jhon Duran and Ollie Watkins being wanted by other clubs is a sign of Aston Villa&#8217;s recent successes.`\
 https://nytimes.com/athletic/6098300/2025/01/29/jhon-duran-ollie-watkins-transfers-aston-villa/

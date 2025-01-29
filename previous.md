@@ -1,3 +1,7 @@
+**Explained: How do the Champions League play-offs work?**\
+`With the Champions League's revamped 'league' stage over, attention turns to the play-off round, which takes place in two weeks`\
+https://nytimes.com/athletic/6097204/2025/01/29/champions-league-play-offs-explained/
+
 **Duran, Watkins transfer interest shows Villa 'in the eyes of other strong teams' - Emery**\
 `Unai Emery has said strikers Jhon Duran and Ollie Watkins being wanted by other clubs is a sign of Aston Villa&#8217;s recent successes.`\
 https://nytimes.com/athletic/6098300/2025/01/29/jhon-duran-ollie-watkins-transfers-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098304/2025/01/29/courtney-vandersloot-wnba-free-a
 **Bernie Sanders Questions R.F.K. Jr. About His Stance on Vaccines**\
 `Senator Bernie Sanders, Independent of Vermont, asked Robert F. Kennedy Jr. to disavow baby onesies with anti-vaccination slogans. The clothes are sold by a nonprofit Mr. Kennedy co-founded.`\
 https://nytimes.com/video/us/politics/100000009957725/rfk-jr-confirmation-hearing-sanders.html
-
-**The White House Pulled Back Its Spending Freeze**\
-`Also, Menendez was sentenced to 11 years in prison. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/01/29/briefing/white-house-freeze-menendez-sentence.html
 
