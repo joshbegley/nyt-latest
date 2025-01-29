@@ -1,3 +1,19 @@
+**The weirdest and silliest Super Bowl 2025 prop bets: Will Kelce propose to Swift?**\
+`There are plenty of goofy bets relating to the Super Bowl, from a Travis Kelce proposal to Taylor Swift to tears during the national anthem.`\
+https://nytimes.com/athletic/6097463/2025/01/29/weirdest-silliest-super-bowl-2025-prop-bets/
+
+**Kennedy says processed foods are driving chronic disease. Here’s what the science shows.**\
+`By Alice Callahan`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-processed-foods-are-driving-chronic-disease-heres-what-the-science-shows
+
+**‘Picnic at Hanging Rock’: A Classic Disappearing Act Reappears**\
+`Anointed Australia’s greatest movie by the country’s film institute, “Hanging Rock,” in a new restoration, opens Friday at the IFC Center.`\
+https://nytimes.com/2025/01/29/movies/picnic-at-hanging-rock-restoration.html
+
+**Ha-Seong Kim agrees to two-year, $29M deal with Rays**\
+`The free-agent infielder will start the season on the injured list while recovering from labrum repair surgery. `\
+https://nytimes.com/athletic/5969482/2025/01/29/ha-seong-kim-contract-rays-mlb-free-agency/
+
 **Canadiens; Kaiden Guhle out indefinitely with lacerated quadriceps muscle**\
 `Guhle is third on the Canadiens in average time on ice at 21:14 per game and regularly faces top opponents.`\
 https://nytimes.com/athletic/6097694/2025/01/29/canadiens-kaiden-guhle-indefinitely-injury-leg/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/29/world/middleeast/syria-leader-al-shara-government
 **Attention Letter Writers: Have You Connected With Other Times Readers?**\
 `With a letter to the editor, readers can share their thoughts on articles. They can also build community with other readers. Have you developed friendships with others who have had their letters published?`\
 https://nytimes.com/2025/01/29/insider/attention-letter-writers-have-you-connected-with-other-times-readers.html
-
-**An unexpected salvo against Kennedy: a baby’s onesie.**\
-`By Teddy Rosenbluth`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/an-unexpected-salvo-against-kennedy-a-babys-onesie
-
-**A (Sort-Of) Bolognese Fast and Easy Enough for Hard Nights**\
-`This hearty, reviving recipe from Genevieve Ko isn’t just quick and budget-friendly, it’s full of deep, rich flavors.`\
-https://nytimes.com/2025/01/29/dining/quick-sort-of-bolognese-recipe.html
-
-**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
-`Send in your questions about the Denver Broncos as they approach the offseason.`\
-https://nytimes.com/athletic/6097593/2025/01/29/broncos-mailbag-submit-questions-2/
-
-**Prime Tire: An F1 playoff system what-if; Inside driver development programs**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6097523/2025/01/29/formula-one-nascar-playoffs-prime-tire/
 
