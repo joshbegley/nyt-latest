@@ -1,3 +1,15 @@
+**Mexico’s Sheinbaum Questions Whether U.S. Tariffs Will Really Be Imposed**\
+`“We don’t think it’s going to happen really,” she said during her daily morning news conference on Wednesday, just days before Trump’s threatened tariffs might begin. “And if it happens, we also have our plan.”`\
+https://nytimes.com/2025/01/29/us/politics/mexico-president-sheinbaum-trump-tariffs.html
+
+**Kennedy raised questions about rising rates of food allergies. What’s driving the increase?**\
+`By Katie Mogg`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-raised-questions-about-rising-rates-of-food-allergies-whats-driving-the-increase
+
+**Tigers ink righty reliever Tommy Kahnle to one-year deal: Sources**\
+`Last season, Kahnle had a 2.11 ERA for the Yankees and can give the Tigers a needed swing-and-miss option.`\
+https://nytimes.com/athletic/6097371/2025/01/29/detroit-tigers-tommy-kahnle-deal/
+
 **Watch: Why January is undeniably quarterback season**\
 `The Athletic Football Show discusses why having an elite quarterback is so important to win in the NFL.`\
 https://nytimes.com/athletic/6097019/2025/01/29/athletic-football-show-quarterbacks-january/

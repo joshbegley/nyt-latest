@@ -1,3 +1,11 @@
+**Mexico’s Sheinbaum Questions Whether U.S. Tariffs Will Really Be Imposed**\
+`“We don’t think it’s going to happen really,” she said during her daily morning news conference on Wednesday, just days before Trump’s threatened tariffs might begin. “And if it happens, we also have our plan.”`\
+https://nytimes.com/2025/01/29/us/politics/mexico-president-sheinbaum-trump-tariffs.html
+
+**Kennedy raised questions about rising rates of food allergies. What’s driving the increase?**\
+`By Katie Mogg`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-raised-questions-about-rising-rates-of-food-allergies-whats-driving-the-increase
+
 **Watch: Why January is undeniably quarterback season**\
 `The Athletic Football Show discusses why having an elite quarterback is so important to win in the NFL.`\
 https://nytimes.com/athletic/6097019/2025/01/29/athletic-football-show-quarterbacks-january/
@@ -27,14 +35,6 @@ https://nytimes.com/2025/01/29/nyregion/trump-criminal-conviction-appeal.html
 https://nytimes.com/2025/01/29/health/rfk-jr-health-fact-check-obesity-covid.html
 
 **Tigers ink righty reliever Tommy Kahnle to one-year deal: Sources**\
-`Last season, Kahnle, 35, had a 2.11 ERA for the New York Yankees, and gives the Tigers a needed swing-and-miss option.`\
+`Last season, Kahnle had a 2.11 ERA for the Yankees and can give the Tigers a needed swing-and-miss option.`\
 https://nytimes.com/athletic/6097371/2025/01/29/detroit-tigers-tommy-kahnle-deal/
-
-**The freeze had caused mass confusion as groups checked whether their federal funding was affected.**\
-`The freeze caused outrage after it interrupted the Medicaid health care system and sent schools, hospitals and nonprofits scrambling to understand if they had lost their federal support.`\
-https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-freeze-grants
-
-**Hamas Is Expected to Release 8 Israeli and Thai Hostages**\
-`The release planned for Thursday would be the third so far as Israel and Hamas observe a six-week truce, part of a multiphase agreement that mediators hope will end the war in Gaza.`\
-https://nytimes.com/2025/01/29/world/middleeast/israel-hamas-gaza-hostages.html
 
