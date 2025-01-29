@@ -1,3 +1,7 @@
+**Duran, Watkins transfer interest shows Villa 'in the eyes of other strong teams' - Emery**\
+`Unai Emery has said strikers Jhon Duran and Ollie Watkins being wanted by other clubs is a sign of Aston Villa&#8217;s recent successes.`\
+https://nytimes.com/athletic/6098300/2025/01/29/jhon-duran-ollie-watkins-transfers-aston-villa/
+
 **Trump generates slightly more opposition than support in first poll of new term.**\
 `By Peter Baker`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/trump-opposition-first-poll-new-term

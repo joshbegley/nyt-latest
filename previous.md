@@ -1,3 +1,7 @@
+**Duran, Watkins transfer interest shows Villa 'in the eyes of other strong teams' - Emery**\
+`Unai Emery has said strikers Jhon Duran and Ollie Watkins being wanted by other clubs is a sign of Aston Villa&#8217;s recent successes.`\
+https://nytimes.com/athletic/6098300/2025/01/29/jhon-duran-ollie-watkins-transfers-aston-villa/
+
 **Trump generates slightly more opposition than support in first poll of new term.**\
 `By Peter Baker`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/trump-opposition-first-poll-new-term
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009957725/rfk-jr-confirmation-hearin
 **The White House Pulled Back Its Spending Freeze**\
 `Also, Menendez was sentenced to 11 years in prison. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/01/29/briefing/white-house-freeze-menendez-sentence.html
-
-**Stuck on What to Get for Valentine’s Day? Here Are Some Unexpected Gift Ideas.**\
-`Glass portraits, rebellious perfumes and more recommendations from T Magazine.`\
-https://nytimes.com/2025/01/29/t-magazine/unique-valentines-day-gift-ideas.html
 
