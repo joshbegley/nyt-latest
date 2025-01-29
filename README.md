@@ -1,3 +1,7 @@
+**Dortmund set to appoint Kovac as head coach after Sahin exit**\
+`Borussia Dortmund are set to appoint Niko Kovac as their new head coach, with an agreement in place on a contract that will run through to 2026.`\
+https://nytimes.com/athletic/6080863/2025/01/29/niko-kovac-dortmund-manager-who/
+
 **Ryan Pressly details waiving no-trade clause: 'It's hard to leave your home'**\
 `Pressly has already spoken with Cubs manager Craig Counsell and Cubs president of baseball operations Jed Hoyer.`\
 https://nytimes.com/athletic/6097778/2025/01/29/ryan-pressly-chicago-cubs-trade-details/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-contract-term
 **Elon Musk’s Downplaying of Germany’s Nazi Past**\
 `Readers discuss the Auschwitz anniversary and a Musk speech. Also: Threats against Dr. Fauci; resign, or else; police use of tasers; aging women; an invitation to letter writers.`\
 https://nytimes.com/2025/01/29/opinion/elon-musk-germany-nazi-past.html
-
-**In a hearing with many fiery exchanges, one about antidepressants got personal.**\
-`By Ellen Barry`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/in-a-hearing-with-many-fiery-exchanges-one-about-antidepressants-got-personal
-
-**The Hearing Confirmed That Kennedy Is Trump’s Kind of Guy**\
-`At this point, whether a nominee can explain himself coherently, much less convincingly, may not matter for the votes he needs.`\
-https://nytimes.com/live/2025/01/27/opinion/thepoint/robert-kennedy-rfk-hearing-republicans
 
