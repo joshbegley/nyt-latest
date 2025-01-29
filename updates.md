@@ -1,4 +1,8 @@
 **Elon Musk’s Downplaying of Germany’s Nazi Past**\
+`Readers discuss the Auschwitz anniversary and a Musk speech. Also: Threats against Dr. Fauci; resign, or else; police use of tasers; aging women; an invitation to letter writers.`\
+https://nytimes.com/2025/01/29/opinion/elon-musk-germany-nazi-past.html
+
+**Elon Musk’s Downplaying of Germany’s Nazi Past**\
 `Readers discuss the Auschwitz anniversary and a Musk speech. Also: Threats against Anthony Fauci; resign, or else; police use of tasers; aging women.`\
 https://nytimes.com/2025/01/29/opinion/elon-musk-germany-nazi-past.html
 
