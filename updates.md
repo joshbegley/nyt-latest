@@ -1,3 +1,7 @@
+**Man Utd draft in track and field coach to assist assist staff on players' running mechanics**\
+`Manchester United have invited a world-renowned track and field coach into the club as a consultant to offer his insight on athletics, including the mechanics of running.`\
+https://nytimes.com/athletic/6095507/2025/01/29/manchester-united-harry-marra-running-coach/
+
 **Michael Kosta Is More Than Happy to Be Protected by Trans Soldiers**\
 `The “Daily Show” host took issue with the latest Trump ban: “I think we should be grateful to anyone who’s willing to put their life on the line so I don’t have to.”`\
 https://nytimes.com/2025/01/29/arts/television/michael-kosta-transgender-military.html

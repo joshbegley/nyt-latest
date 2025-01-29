@@ -22,7 +22,7 @@ https://nytimes.com/2025/01/29/nyregion/seuk-kim-rescue-dog-pilot.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/01/29/crosswords/spelling-bee-forum.html
 
-**Man Utd draft in track and field coach to assist players with running mechanics**\
+**Man Utd draft in track and field coach to assist assist staff on players' running mechanics**\
 `Manchester United have invited a world-renowned track and field coach into the club as a consultant to offer his insight on athletics, including the mechanics of running.`\
 https://nytimes.com/athletic/6095507/2025/01/29/manchester-united-harry-marra-running-coach/
 
