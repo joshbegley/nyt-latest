@@ -1,3 +1,11 @@
+**Warriors trade intel: What we're hearing about Jimmy Butler, Zach LaVine and more**\
+`As the clock ticks toward the deadline, the Warriors have floated a protected first-rounder as a sweetener in potential deals.`\
+https://nytimes.com/athletic/6096150/2025/01/29/nba-trade-intel-warriors-jimmy-butler/
+
+**Kennedy’s Fate Rests In Hands of a Small Group of Republicans**\
+`To be confirmed as health secretary, Robert F. Kennedy Jr. can afford to lose no more than three Republican votes if all Democrats are united in their opposition to him.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-senate-vote.html
+
 **Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
 `The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
 https://nytimes.com/2025/01/29/technology/microsoft-continues-to-spend-big-on-ai-as-profit-grows-10.html
