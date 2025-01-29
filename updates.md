@@ -1,3 +1,11 @@
+**Kennedy says too many children take A.D.H.D. medications, while inflating his figures.**\
+`By Ellen Barry`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-too-many-children-take-adhd-medications-while-inflating-his-figures
+
+**New Harvey Weinstein Sex Crimes Trial Is Set for April 15**\
+`The disgraced movie mogul asked for his trial to be accelerated, calling Rikers Island a “hellhole.” He faces three sex-crime charges.`\
+https://nytimes.com/2025/01/29/nyregion/weinstein-sex-charge-trial-date.html
+
 **What Kennedy has said about weight loss drugs and the obesity epidemic.**\
 `By Gina Kolata`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-weight-loss-obesity
