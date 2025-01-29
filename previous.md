@@ -36,5 +36,5 @@ https://nytimes.com/athletic/5891198/2025/01/29/neymar-santos-transfer-contract/
 
 **Kennedy appears unfamiliar with key aspects of Medicare and Medicaid.**\
 `By Sarah Kliff and Reed Abelson`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/medicaid-medicare-rfk-jr
+https://nytimes.com/2025/01/29/health/medicaid-medicare-rfk-jr.html
 

@@ -1,3 +1,7 @@
+**Kennedy appears unfamiliar with key aspects of Medicare and Medicaid.**\
+`By Sarah Kliff and Reed Abelson`\
+https://nytimes.com/2025/01/29/health/medicaid-medicare-rfk-jr.html
+
 **Hawks' Jalen Johnson suffers season-ending shoulder injury**\
 `For the Hawks, this is a potentially disastrous development in terms of their chase for the playoffs.`\
 https://nytimes.com/athletic/6097075/2025/01/29/jalen-johnson-shoulder-injury-surgery-hawks/
