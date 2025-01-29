@@ -1,3 +1,19 @@
+**Citizenship by Birthright? By Bloodline? Migration Is Complicating Both.**\
+`In a world where people are more mobile than ever, nations are struggling to recalibrate who can be a citizen.`\
+https://nytimes.com/2025/01/29/world/europe/citizenship-rules-debate.html
+
+**What 4 Americans Thought About Trump’s First Week**\
+`We’ll be regularly checking in with this group of people during President Trump’s first 100 days in office. Here’s what they thought of the beginning.`\
+https://nytimes.com/2025/01/29/us/americans-trump-executive-action.html
+
+**These Are the Winds That Turn Wildfires Deadly in L.A.**\
+`The Santa Ana winds tend to cause the same corridors to burn over and over again. Experts say the region needs to adapt.`\
+https://nytimes.com/interactive/2025/01/29/climate/santa-ana-winds-fire-risk.html
+
+**John Blackwell's breakout season has been decades in the making but is just on time for Wisconsin**\
+`"For him to only be a sophomore right now is unbelievable," Wisconsin assistant coach Sharif Chambliss said. "He's been a joy to coach."`\
+https://nytimes.com/athletic/6094865/2025/01/29/wisconsin-mens-basketball-john-blackwell/
+
 **Amid the Chaos, Trump Has a Simple Message: He’s in Charge**\
 `The new president has moved with lightning speed to purge officials he deems disloyal and rid agencies of policies he considers liberal.`\
 https://nytimes.com/2025/01/29/us/politics/amid-the-chaos-trump-has-a-simple-message-hes-in-charge.html

@@ -1,3 +1,15 @@
+**Citizenship by Birthright? By Bloodline? Migration Is Complicating Both.**\
+`In a world where people are more mobile than ever, nations are struggling to recalibrate who can be a citizen.`\
+https://nytimes.com/2025/01/29/world/europe/citizenship-rules-debate.html
+
+**What 4 Americans Thought About Trump’s First Week**\
+`We’ll be regularly checking in with this group of people during President Trump’s first 100 days in office. Here’s what they thought of the beginning.`\
+https://nytimes.com/2025/01/29/us/americans-trump-executive-action.html
+
+**These Are the Winds That Turn Wildfires Deadly in L.A.**\
+`The Santa Ana winds tend to cause the same corridors to burn over and over again. Experts say the region needs to adapt.`\
+https://nytimes.com/interactive/2025/01/29/climate/santa-ana-winds-fire-risk.html
+
 **Amid the Chaos, Trump Has a Simple Message: He’s in Charge**\
 `The new president has moved with lightning speed to purge officials he deems disloyal and rid agencies of policies he considers liberal.`\
 https://nytimes.com/2025/01/29/us/politics/amid-the-chaos-trump-has-a-simple-message-hes-in-charge.html
@@ -22,19 +34,7 @@ https://nytimes.com/2025/01/29/technology/meta-gave-away-its-ai-crown-jewels-dee
 `Venture capitalists plowed money into A.I. start-ups like OpenAI and Anthropic. But the rise of the Chinese A.I. start-up DeepSeek has called that funding frenzy into question.`\
 https://nytimes.com/2025/01/29/technology/deepseek-ai-startups-venture-capital.html
 
-**Powerless, Democrats Debate Just How Deep in the Wilderness They Are**\
-`Party leaders disagree sharply on how to interpret the losses that gave Republicans complete control of the federal government, with some calling for a reinvention and others a wait-and-see.`\
-https://nytimes.com/2025/01/29/us/politics/democratic-party-rebuild.html
-
-**In Her Own Messy Way, Bridget Jones Is a Trailblazer**\
-`We rarely see rom-com heroines after the happy ending, much less watch them age. In this way, she’s become a barometer for how we talk about women.`\
-https://nytimes.com/2025/01/29/movies/bridget-jones-mad-about-the-boy.html
-
-**Why Trump Picked a Science Adviser Who Isn’t a Scientist**\
-`Michael Kratsios, who served in the White House and Defense Department in the first Trump administration, is a policy specialist on artificial intelligence.`\
-https://nytimes.com/2025/01/29/science/trump-science-advisor-michael-kratsios.html
-
-**Kennedy, Polarizing Pick for Health Secretary, Makes His Senate Debut**\
-`Robert F. Kennedy Jr. testifies in confirmation hearings before the Senate’s Finance Committee on Wednesday, and will appear Thursday before the health committee.`\
-https://nytimes.com/2025/01/29/us/politics/rfk-jr-confirmation-hearing.html
+**John Blackwell's breakout season has been decades in the making but is just on time for Wisconsin**\
+`"For him to only be a sophomore right now is unbelievable," Wisconsin assistant coach Sharif Chambliss said. "He's been a joy to coach."`\
+https://nytimes.com/athletic/6094865/2025/01/29/wisconsin-mens-basketball-john-blackwell/
 
