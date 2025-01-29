@@ -1,3 +1,7 @@
+**The new transportation secretary’s first move was to seek a rollback of Biden’s fuel economy standards.**\
+`By Mark Walker`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/the-new-transportation-secretarys-first-move-was-to-seek-a-rollback-of-bidens-fuel-economy-standards
+
 **Wrexham 2 Stevenage 3: A wobble or a worry? Striker search to step up?**\
 `Wrexham lost more ground on the top two and manager Phil Parkinson was furious - how will they respond on the pitch and in transfer market?`\
 https://nytimes.com/athletic/6093847/2025/01/29/wrexham-stevenage-phil-parkinson-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6093985/2025/01/29/champions-league-matchday-mayhem
 **Why do so many play on after damaging an ACL? An expert explains**\
 `High-performance specialist Geoff Scott explains the procedure and why someone might play on`\
 https://nytimes.com/athletic/6075033/2025/01/29/why-its-difficult-to-diagnose-an-acl-injury-on-the-pitch-an-expert-explains/
-
-**What reaching the Champions League knockouts is worth (for Liverpool it could be about £135m)**\
-`How much teams are set to win - or lose - by climbing the new league format or qualifying for the next round`\
-https://nytimes.com/athletic/6094025/2025/01/29/what-reaching-the-champions-league-knockouts-is-worth-for-liverpool-it-could-be-about-135m/
 
