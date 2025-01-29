@@ -1,3 +1,7 @@
+**Canada's Buchanan set for Villarreal loan move**\
+`Villarreal are working to finalise a deal to sign Canada international Tajon Buchanan on loan from Inter Milan.`\
+https://nytimes.com/athletic/6095644/2025/01/29/canadas-tajon-buchanan-set-for-villarreal-loan-move/
+
 **Citizenship by Birthright? By Bloodline? Migration Is Complicating Both.**\
 `In a world where people are more mobile than ever, nations are struggling to recalibrate who can be a citizen.`\
 https://nytimes.com/2025/01/29/world/europe/citizenship-rules-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/technology/meta-gave-away-its-ai-crown-jewels-dee
 **They Invested Billions. Then the A.I. Script Got Flipped.**\
 `Venture capitalists plowed money into A.I. start-ups like OpenAI and Anthropic. But the rise of the Chinese A.I. start-up DeepSeek has called that funding frenzy into question.`\
 https://nytimes.com/2025/01/29/technology/deepseek-ai-startups-venture-capital.html
-
-**John Blackwell's breakout season has been decades in the making but is just on time for Wisconsin**\
-`"For him to only be a sophomore right now is unbelievable," Wisconsin assistant coach Sharif Chambliss said. "He's been a joy to coach."`\
-https://nytimes.com/athletic/6094865/2025/01/29/wisconsin-mens-basketball-john-blackwell/
 
