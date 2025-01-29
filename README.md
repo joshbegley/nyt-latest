@@ -16,7 +16,7 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/funding
 
 **Kennedy’s fate rests in the hands of a small group of Republicans.**\
 `By Annie Karni`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedys-fate-rests-in-the-hands-of-a-small-group-of-republicans
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-senate-vote
 
 **Tesla’s Profit Fell Sharply Last Year**\
 `The electric car company run by Elon Musk is facing increasing competition, but investors have focused mostly on the prospects for Tesla’s self-driving technology.`\
