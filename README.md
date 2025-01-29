@@ -1,3 +1,16 @@
+**Instakids**\
+`The pursuit of online fame and riches has corrupted parents, endangered young girls and led to a proliferation of explicit imagery encouraged by, and catering to, men.`\
+https://nytimes.com/spotlight/instakids
+
+**The Migrant Pipeline**\
+`The brimming pipeline of unauthorized workers in the United States has been popularly blamed on opportunistic migrants. Our investigation found another culprit: a corporate America addicted to cheap and plentiful labor.
+`\
+https://nytimes.com/spotlight/the-migrant-pipeline
+
+**Trump Administration Offers Millions of Federal Workers Payouts to Resign**\
+`The move, which could dramatically reduce the size of the federal work force, appeared to stretch the limits of President Trump’s authority.`\
+https://nytimes.com/2025/01/28/us/politics/trump-buyouts-federal-workers.html
+
 **How Extreme Weather Scrambled a Lunar New Year Tradition in Vietnam**\
 `A typhoon and extreme heat dramatically affected prices for the kumquat trees that are ubiquitous during the holiday.`\
 https://nytimes.com/2025/01/28/world/asia/lunar-new-year-vietnam-kumquats.html
@@ -25,16 +38,4 @@ https://nytimes.com/2025/01/28/us/politics/karoline-leavitt-debut.html
 **Across Justice Dept., Fear, Anxiety and Angry Bosses**\
 `At the department’s headquarters in downtown Washington, lawyers described the uncertainty that has rippled across the agency.`\
 https://nytimes.com/2025/01/28/us/politics/justice-department-trump.html
-
-**Man Planned to Kill New G.O.P. Leaders With Molotov Cocktails, U.S. Says**\
-`Ryan English, 24, was carrying makeshift explosives and knives near the U.S. Capitol building on Monday, police charge in court papers.`\
-https://nytimes.com/2025/01/28/us/us-capitol-molotov-cocktails-bessent-hegseth.html
-
-**Pardoned Jan. 6 Rioter Is Sought for Charges of Soliciting Minor**\
-`Andrew Taake, who pleaded guilty to attacking the police outside the Capitol, was just released from prison. He is being sought for charges in 2016 of soliciting a 17-year-old online for sex.`\
-https://nytimes.com/2025/01/28/us/politics/jan-6-rioter-minor-solicitation-pardon.html
-
-**Tyler Ivey's comeback to continue at Astros minor-league spring training: Sources**\
-`The Astros have retained Ivey’s contractual rights since he retired from baseball in May 2022 due to burnout`\
-https://nytimes.com/athletic/6095685/2025/01/28/tyler-iveys-comeback-astros-spring-training/
 
