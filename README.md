@@ -1,3 +1,11 @@
+**How Gold Bars and a Halal Hustle Destroyed Menendez’s Legacy**\
+`The former New Jersey senator was sentenced to 11 years in prison after being convicted of bribery and corruption.`\
+https://nytimes.com/2025/01/29/nyregion/robert-menendez-senate-corruption-legacy.html
+
+**Defying Legal Limits, Trump Firings Set Up Tests That Could Expand His Power**\
+`The prospect of legal challenges to President Trump’s purges may be a feature, not a bug, for adherents of sweeping presidential authority.`\
+https://nytimes.com/2025/01/29/us/politics/trump-firings-officials-legal-test.html
+
 **Justice Dept. Is Said to Discuss Dropping Case Against Eric Adams**\
 `Senior officials under President Trump have talked with prosecutors in Manhattan about the possibility of abandoning the corruption case against Mr. Adams, the mayor of New York City.`\
 https://nytimes.com/2025/01/29/us/politics/justice-department-trump-charges-eric-adams.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6097759/2025/01/29/chris-ash-notre-dame-defensive-c
 **Caitlin Clark will not participate in NBA All-Star Weekend 3-point challenge**\
 `Clark wants her first 3-point contest to be at the WNBA All-Star festivities in Indianapolis this summer.`\
 https://nytimes.com/athletic/6097690/2025/01/29/caitlin-clark-nba-three-point-contest-wnba/
-
-**The Justice Dept. seeks to have criminal charges dismissed against a former Republican representative.**\
-`By Devlin Barrett`\
-https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/the-justice-dept-seeks-to-have-criminal-charges-dismissed-against-a-former-republican-representative
-
-**Blues, Brandon Saad agree to mutual contract termination**\
-`Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
-https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-contract-termination/
 
