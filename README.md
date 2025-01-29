@@ -1,3 +1,7 @@
+**The miracle of Brest, a club a world apart from Champions League opponents Real Madrid**\
+`Despite no European pedigree and limited resources, the French club are above Real Madrid, Man City and PSG in the table with one game to go`\
+https://nytimes.com/athletic/6093105/2025/01/29/the-miracle-of-brest-a-club-a-world-apart-from-champions-league-opponents-real-madrid/
+
 **Welcome to Matchday Mayhem, an event UEFA hopes will become a Champions League tradition**\
 `Twenty-seven of the competition's 36 teams are still alive - it's exactly what UEFA wanted when designing this new Champions League format`\
 https://nytimes.com/athletic/6093985/2025/01/29/champions-league-matchday-mayhem-tradition/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6094871/2025/01/29/manchester-city-brugge-odds-pred
 **Why I Joined: Football Manager, Wes Hoolahan and creative data storytelling**\
 `Conor O'Neill, our new data and tactics writer at The Athletic, explains why he joined and his journey so far`\
 https://nytimes.com/athletic/6094190/2025/01/29/why-i-joined-the-athletic-conor-oneill/
-
-**The hottest team in the league? The Islanders — no, seriously**\
-`With a five-game winning streak and eight victories in their last 10 games, the Islanders are as confounding as ever.`\
-https://nytimes.com/athletic/6096164/2025/01/28/islanders-hottest-team-nhl-lee-lamoriello-avalanche/
 
