@@ -1,3 +1,7 @@
+**The new transportation secretary’s first move was to seek a rollback of Biden’s fuel economy standards.**\
+`By Mark Walker`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/the-new-transportation-secretarys-first-move-was-to-seek-a-rollback-of-bidens-fuel-economy-standards
+
 **Wrexham 2 Stevenage 3: A wobble or a worry? Striker search to step up?**\
 `Wrexham lost more ground on the top two and manager Phil Parkinson was furious - how will they respond on the pitch and in transfer market?`\
 https://nytimes.com/athletic/6093847/2025/01/29/wrexham-stevenage-phil-parkinson-transfers/
