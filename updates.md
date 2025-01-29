@@ -1,3 +1,7 @@
+**The Aftermath of the Maha Kumbh Mela Stampede**\
+`It was the peak moment at one of the holiest gatherings on the Hindu calendar — the Maha Kumbh Mela, a 45-day celebration that brings hundreds of millions of the faithful to bathe in the joined Ganges and Yamuna rivers, washing away their sins.`\
+https://nytimes.com/2025/01/29/world/asia/india-maha-kumbh-mela-stampede.html
+
 **How Does DeepSeek’s A.I. Chatbot Navigate China’s Censors? Awkwardly.**\
 `Asked about sensitive topics, the bot would begin to answer, then stop and delete its own work. It refused to answer questions like: “Who is Xi Jinping?”`\
 https://nytimes.com/2025/01/29/world/asia/deepseek-china-censorship.html

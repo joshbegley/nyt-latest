@@ -1,3 +1,7 @@
+**The Aftermath of the Maha Kumbh Mela Stampede**\
+`It was the peak moment at one of the holiest gatherings on the Hindu calendar — the Maha Kumbh Mela, a 45-day celebration that brings hundreds of millions of the faithful to bathe in the joined Ganges and Yamuna rivers, washing away their sins.`\
+https://nytimes.com/2025/01/29/world/asia/india-maha-kumbh-mela-stampede.html
+
 **How Does DeepSeek’s A.I. Chatbot Navigate China’s Censors? Awkwardly.**\
 `Asked about sensitive topics, the bot would begin to answer, then stop and delete its own work. It refused to answer questions like: “Who is Xi Jinping?”`\
 https://nytimes.com/2025/01/29/world/asia/deepseek-china-censorship.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095507/2025/01/29/manchester-united-harry-marra-ru
 **Word of the Day: adulation**\
 `This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/29/learning/word-of-the-day-adulation.html
-
-**Kliff Kingsbury to stay with Commanders, Mike McCarthy out for Saints' vacancy**\
-`Kingsbury staying in Washington isn't a surprise for the NFC conference runner-ups.`\
-https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-saints-head-coach-withdrawal/
 
