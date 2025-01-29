@@ -1,3 +1,11 @@
+**Blues, Brandon Saad agree to mutual contract termination**\
+`Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
+https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-contract-termination/
+
+**DeSantis Says He Will Veto Immigration Bill in Clash With Lawmakers**\
+`The veto pledge capped a dramatic few days in which Republican legislators publicly criticized Gov. Ron DeSantis and portrayed themselves as truer allies of President Trump.`\
+https://nytimes.com/2025/01/29/us/desantis-veto-immigration-bill.html
+
 **Elon Musk’s Downplaying of Germany’s Nazi Past**\
 `Readers discuss the Auschwitz anniversary and a Musk speech. Also: Threats against Dr. Fauci; resign, or else; police use of tasers; aging women; an invitation to letter writers.`\
 https://nytimes.com/2025/01/29/opinion/elon-musk-germany-nazi-past.html
