@@ -1,3 +1,11 @@
+**Which Federal Programs Are Under Scrutiny? The Budget Office Named 2,600 of Them.**\
+`A freeze in funding caused confusion for agency officials and organizations that rely on federal support.`\
+https://nytimes.com/interactive/2025/01/28/upshot/federal-programs-funding-trump-omb.html
+
+**Trump Officials Revoke Biden’s Extension of Protections for Venezuelans**\
+`The Biden administration had extended protections for more than 600,000 Venezuelans. The cancellation of the extension could open them up to deportation in the coming months.`\
+https://nytimes.com/2025/01/28/us/politics/trump-tps-venezuelan-immigrants.html
+
 **Waiving Saad may be start of more Blues moves, but what can Armstrong do?**\
 `The Blues' 5-2 loss to the Vancouver Canucks was the team's third in a row and was a signal that roster changes need to be made.`\
 https://nytimes.com/athletic/6095104/2025/01/28/blues-doug-armstrong-moves-saad-plans/

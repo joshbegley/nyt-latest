@@ -1,3 +1,11 @@
+**Which Federal Programs Are Under Scrutiny? The Budget Office Named 2,600 of Them.**\
+`A freeze in funding caused confusion for agency officials and organizations that rely on federal support.`\
+https://nytimes.com/interactive/2025/01/28/upshot/federal-programs-funding-trump-omb.html
+
+**Trump Officials Revoke Biden’s Extension of Protections for Venezuelans**\
+`The Biden administration had extended protections for more than 600,000 Venezuelans. The cancellation of the extension could open them up to deportation in the coming months.`\
+https://nytimes.com/2025/01/28/us/politics/trump-tps-venezuelan-immigrants.html
+
 **Waiving Saad may be start of more Blues moves, but what can Armstrong do?**\
 `The Blues' 5-2 loss to the Vancouver Canucks was the team's third in a row and was a signal that roster changes need to be made.`\
 https://nytimes.com/athletic/6095104/2025/01/28/blues-doug-armstrong-moves-saad-plans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6095904/2025/01/28/scottie-scheffler-hand-injury-up
 **Elon Musk Suggests SpaceX Will Accelerate Return of NASA Astronauts**\
 `SpaceX is scheduled to bring home two astronauts who have been on the International Space Station since June. Mr. Musk said President Trump had asked for that to occur “as soon as possible.”`\
 https://nytimes.com/2025/01/28/science/musk-spacex-trump-nasa.html
-
-**Bourbon, a Hog Farm and a Nun’s Van: Man Charged in Bizarre Murder Plot**\
-`Jeal Sutherland, of Colonie, N.Y., hatched a deadly scheme with a convicted killer who was an F.B.I. informer, court documents say.`\
-https://nytimes.com/2025/01/28/nyregion/murder-hire-hit-man-new-york.html
-
-**Transgender Americans say Trump’s orders are even worse than feared.**\
-`Three executive orders, including a push to end transition treatments for minors, have left advocates for trans people reeling.`\
-https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/transgender-americans-say-trump-orders-are-even-worse-than-feared
 
