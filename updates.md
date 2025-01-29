@@ -1,3 +1,7 @@
+**How Extreme Weather Scrambled a Lunar New Year Tradition in Vietnam**\
+`A typhoon and extreme heat dramatically affected prices for the kumquat trees that are ubiquitous during the holiday.`\
+https://nytimes.com/2025/01/28/world/asia/lunar-new-year-vietnam-kumquats.html
+
 **Lack of Detail in Funding Freeze Leaves State and Local Agencies at a Loss**\
 `Democratic and Republican leaders alike voiced concern about the pause in federal dollars “creating chaos” and “jeopardizing the financial stability” of their states.`\
 https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-state-reaction.html
