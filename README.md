@@ -1,3 +1,7 @@
+**Justice Dept. Is Said to Discuss Dropping Case Against Eric Adams**\
+`Senior officials under President Trump have talked with prosecutors in Manhattan about the possibility of abandoning the corruption case against Mr. Adams, the mayor of New York City.`\
+https://nytimes.com/2025/01/29/us/politics/justice-department-trump-charges-eric-adams.html
+
 **Dortmund set to appoint Kovac as head coach after Sahin exit**\
 `Borussia Dortmund are set to appoint Niko Kovac as their new head coach, with an agreement in place on a contract that will run through to 2026.`\
 https://nytimes.com/athletic/6080863/2025/01/29/niko-kovac-dortmund-manager-who/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/the-jus
 **Blues, Brandon Saad agree to mutual contract termination**\
 `Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
 https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-contract-termination/
-
-**Elon Musk’s Downplaying of Germany’s Nazi Past**\
-`Readers discuss the Auschwitz anniversary and a Musk speech. Also: Threats against Dr. Fauci; resign, or else; police use of tasers; aging women; an invitation to letter writers.`\
-https://nytimes.com/2025/01/29/opinion/elon-musk-germany-nazi-past.html
 
