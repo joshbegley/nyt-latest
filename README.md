@@ -1,3 +1,7 @@
+**The Justice Dept. seeks to have criminal charges dismissed against a former Republican representative.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/the-justice-dept-seeks-to-have-criminal-charges-dismissed-against-a-former-republican-representative
+
 **Blues, Brandon Saad agree to mutual contract termination**\
 `Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
 https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-contract-termination/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/desantis-veto-immigration-bill.html
 **The weirdest and silliest Super Bowl 2025 prop bets: Will Kelce propose to Swift?**\
 `There are plenty of goofy bets relating to the Super Bowl, from a Travis Kelce proposal to Taylor Swift to tears during the national anthem.`\
 https://nytimes.com/athletic/6097463/2025/01/29/weirdest-silliest-super-bowl-2025-prop-bets/
-
-**Kennedy says processed foods are driving chronic disease. Here’s what the science shows.**\
-`By Alice Callahan`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-processed-foods-are-driving-chronic-disease-heres-what-the-science-shows
 
