@@ -1,3 +1,7 @@
+**Man Utd draft in track and field coach to assist players with running mechanics**\
+`Manchester United have invited a world-renowned track and field coach into the club as a consultant to offer his insight on athletics, including the mechanics of running.`\
+https://nytimes.com/athletic/6095507/2025/01/29/manchester-united-harry-marra-running-coach/
+
 **Word of the Day: adulation**\
 `This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/29/learning/word-of-the-day-adulation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6086344/2025/01/29/brighton-home-form/
 **Why Chelsea won't sign a Sanchez replacement - but it might be time to look at Jorgensen**\
 `Robert Sanchez made a notable error against Manchester City at the weekend`\
 https://nytimes.com/athletic/6094140/2025/01/29/chelsea-robert-sanchez-goalkeeper-analysis/
-
-**Forest don't need to overreact to 5-0 defeat - but could do with one versatile addition before the deadline**\
-`Brentford forward Wissa's ability to play all along the front line could be the signing Nuno needs to keep the season on track`\
-https://nytimes.com/athletic/6094252/2025/01/29/forest-winter-window-one-clever-addition/
 
