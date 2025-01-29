@@ -1,3 +1,7 @@
+**Practicing for When the Bombs Fall in ‘A Knock on the Roof’**\
+`In a new solo play about ordinary people under bombardment in Gaza, a woman rehearses how she would escape her building if Israeli forces were to strike.`\
+https://nytimes.com/2025/01/28/theater/a-knock-on-the-roof-review.html
+
 **Trump Signs Order Restricting Gender-Affirming Treatments for Minors**\
 `The directive built on a string of recent actions to roll back federal protections and services for transgender people.`\
 https://nytimes.com/2025/01/28/us/politics/trump-trans-gender-affirming-care.html
