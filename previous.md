@@ -1,3 +1,11 @@
+**Trump Says U.S. Will Hold Migrants at Guantánamo**\
+`The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
+https://nytimes.com/2025/01/29/us/politics/trump-says-us-will-hold-migrants-at-guantanamo.html
+
+**New Data Shows Major Electrical Disruption Ahead of Eaton Fire**\
+`A private lab found evidence of two massive electrical faults in the Eaton Canyon area just before a fire erupted there and spread through much of Altadena, Calif.`\
+https://nytimes.com/interactive/2025/01/29/business/energy-environment/eaton-fire-electrical-faults-southern-california-edison.html
+
 **Giants are unlikely to reinvest savings after shipping Taylor Rogers to Reds**\
 `The Giants will save $6 million by trading Rogers but aren't expected to spend that money on external additions this offseason.`\
 https://nytimes.com/athletic/6098444/2025/01/29/sf-giants-payroll-taylor-rogers-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6094317/2025/01/29/world-cup-2026-heat-kick-off-tim
 **Stop Feeling Stunned and Wounded, Liberals. It’s Time to Fight Back.**\
 `Americans alarmed by President Trump’s agenda must reunite and recalibrate.`\
 https://nytimes.com/2025/01/29/opinion/democrats-trump-resistance.html
-
-**Astronomers Are Keeping an Eye on This Asteroid’s Odds of Hitting Earth**\
-`Researchers say there’s a 1.3 percent chance that the space rock 2024 YR4 could strike our planet — but not until December 2032.`\
-https://nytimes.com/2025/01/29/science/asteroid-2024-yr4-earth.html
-
-**Slot: Nallo must learn from cruel red card**\
-`Arne Slot says Liverpool defender Amara Nallo must learn from his “cruel” red card in Wednesday&#8217;s 3-2 defeat to PSV Eindhoven in the Champions League.`\
-https://nytimes.com/athletic/6098310/2025/01/29/amara-nallo-liverpool-yonugest-red-card/
 

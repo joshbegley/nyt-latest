@@ -1,3 +1,11 @@
+**Trump Says U.S. Will Hold Migrants at Guantánamo**\
+`The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
+https://nytimes.com/2025/01/29/us/politics/trump-says-us-will-hold-migrants-at-guantanamo.html
+
+**New Data Shows Major Electrical Disruption Ahead of Eaton Fire**\
+`A private lab found evidence of two massive electrical faults in the Eaton Canyon area just before a fire erupted there and spread through much of Altadena, Calif.`\
+https://nytimes.com/interactive/2025/01/29/business/energy-environment/eaton-fire-electrical-faults-southern-california-edison.html
+
 **Giants are unlikely to reinvest savings after shipping Taylor Rogers to Reds**\
 `The Giants will save $6 million by trading Rogers but aren't expected to spend that money on external additions this offseason.`\
 https://nytimes.com/athletic/6098444/2025/01/29/sf-giants-payroll-taylor-rogers-trade/
