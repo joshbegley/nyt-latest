@@ -6,9 +6,9 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/gov-tim
 `It’s impossible to ignore how damaging Thomas’ extended absences have been to the Giants the past two seasons.`\
 https://nytimes.com/athletic/6095252/2025/01/29/giants-andrew-thomas-offense-malik-nabers/
 
-**A medical condition explains the sound of Kennedy’s voice.**\
-`By Teddy Rosenbluth`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/spasmodic-dysphonia-rfk-voice
+**R.F.K. Jr Has Spasmodic Dysphonia, a Condition That Makes His Voice Raspy**\
+`Robert F. Kennedy Jr. started developing symptoms of the condition in 1996.`\
+https://nytimes.com/2025/01/29/health/rfk-jr-voice-spasmodic-dysphonia.html
 
 **Walker Kessler? Myles Turner? Lonzo Ball reunion? Lakers trade-target tiers**\
 `The Lakers have glaring needs, including another big and secondary playmaker. Here's who they should go after before the Feb. 6 deadline.`\

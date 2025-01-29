@@ -1,3 +1,7 @@
+**R.F.K. Jr Has Spasmodic Dysphonia, a Condition That Makes His Voice Raspy**\
+`Robert F. Kennedy Jr. started developing symptoms of the condition in 1996.`\
+https://nytimes.com/2025/01/29/health/rfk-jr-voice-spasmodic-dysphonia.html
+
 **Gov. Tim Walz calls the federal grant and loan freezes ‘a trial balloon.’**\
 `In some of his first attacks on the president since his defeat in November, the former Democratic vice-presidential nominee called on Republican governors to speak up.`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/gov-tim-walz-calls-the-federal-grant-and-loan-freezes-a-trial-balloon
