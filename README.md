@@ -1,3 +1,7 @@
+**Trump Orders ‘Iron Dome’ for U.S., but Freezes Funds for Nuclear Protection**\
+`The United States is estimated to have spent more than $400 billion on the kinds of antimissile goals that the president now says will provide “for the common defense.”`\
+https://nytimes.com/2025/01/28/us/politics/trump-iron-dome.html
+
 **Brittney Griner agrees to 1-year deal with Dream**\
 `Griner entered the offseason as the second-longest tenured WNBA player with one team, having spent her entire career in Phoenix.`\
 https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-phoenix-mercury-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009954203/what-kennedy-could-mean-fo
 **Vietnam’s Kumquat Trees, a Lunar New Year Staple, Have a Bad Year**\
 `Vietnamese families preparing for the Lunar New Year traditionally buy the citrus trees as a symbol of good luck. But extreme weather has hurt this year’s harvest.`\
 https://nytimes.com/video/world/asia/100000009953528/vietnam-kumquat-lunar-new-year.html
-
-**Caroline Kennedy’s Video Exposes the Fight Over a Fading Family Legacy**\
-`Caroline Kennedy stepped out of the shadows and onto social media to assail her cousin, Robert F. Kennedy Jr., on the eve of his Senate hearing.`\
-https://nytimes.com/2025/01/28/us/politics/caroline-robert-kennedy-trump.html
 
