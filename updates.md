@@ -1,3 +1,7 @@
+**Frontier Airlines Offers to Buy Spirit Airlines, Again**\
+`Spirit, which filed for bankruptcy protection in November after a federal court blocked its acquisition by JetBlue, says it has rejected the latest Frontier offer for being too low.`\
+https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
+
 **Van de Ven in contention for Spurs return, Maddison out for around three weeks**\
 `Ange Postecoglou says Micky van de Ven could return for Tottenham in Thursday&#8217;s Europa League tie against Elfsborg, while James Maddison is expected to be sidelined for between two and three with a calf injury.`\
 https://nytimes.com/athletic/6096547/2025/01/29/tottenham-injuries-maddison-van-de-ven/
