@@ -1,3 +1,15 @@
+**Canadiens; Kaiden Guhle out indefinitely with lacerated quadriceps muscle**\
+`Guhle is third on the Canadiens in average time on ice at 21:14 per game and regularly faces top opponents.`\
+https://nytimes.com/athletic/6097694/2025/01/29/canadiens-kaiden-guhle-indefinitely-injury-leg/
+
+**Kennedy tries to distance himself from his past vaccine skepticism.**\
+`By Sara Ruberg`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-tries-to-distance-himself-from-his-past-vaccine-skepticism
+
+**Trump Signs Bill Easing Deportation of Immigrants Accused of Crimes**\
+`The legislation, known as the Laken Riley Act, is the first to be signed by the president in his new term, and shows how the politics of immigration have shifted.`\
+https://nytimes.com/2025/01/29/us/politics/trump-signs-laken-riley-act.html
+
 **How the Bills will use loss to Chiefs to help shape offseason roster decisions**\
 `The Bills' deficiencies were on full display thanks to the Chiefs exposing them.`\
 https://nytimes.com/athletic/6097505/2025/01/29/bills-chiefs-offseason-roster-free-agents/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6097593/2025/01/29/broncos-mailbag-submit-questions
 **Prime Tire: An F1 playoff system what-if; Inside driver development programs**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6097523/2025/01/29/formula-one-nascar-playoffs-prime-tire/
-
-**Kennedy signals White House support for Medicare drug price negotiation.**\
-`By Margot Sanger-Katz`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-signals-white-house-support-for-medicare-drug-price-negotiation
-
-**Stephan Thernstrom, Leading Critic of Affirmative Action, Dies at 90**\
-`A prizewinning historian, he, along and his wife, Abigail, was a conservative opponent of racial preferences, favoring school choice and voucher programs instead.`\
-https://nytimes.com/2025/01/29/us/stephan-thernstrom-dead.html
-
-**Blues' Brandon Saad unclaimed on waivers, assigned to AHL**\
-`Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
-https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-waivers-clears/
 
