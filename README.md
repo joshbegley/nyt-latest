@@ -1,3 +1,11 @@
+**De'Aaron Fox trade scenarios: Could Kings star team up with Victor Wembanyama?**\
+`The clock is ticking on Sacramento. Would Houston or Orlando make a play for the point guard. Will the Spurs form a dynamic duo?`\
+https://nytimes.com/athletic/6095447/2025/01/29/deaaron-fox-trade-rumors-kings-spurs-rockets-magic/
+
+**MoneyCall: Super Bowl LIX’s 5 best business storylines**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6096124/2025/01/29/super-bowl-nfl-business-viewership-moneycall-newsletter/
+
 **Republicans to Watch During Kennedy’s Confirmation Hearings**\
 `With most Democrats likely to vote against him, Robert F. Kennedy Jr.’s bid for health secretary will come down whether he can win over skeptics in President Trump’s party.`\
 https://nytimes.com/2025/01/29/us/politics/rfk-jr-republicans-mcconnell.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/style/marital-intervention.html
 **Lloyd to reunite with former USWNT team-mates in The Soccer Tournament**\
 `U.`\
 https://nytimes.com/athletic/6096480/2025/01/29/carli-lloyd-the-soccer-tournament/
-
-**Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
-`Yorkshire club are under fire for rejecting a fan petition to retire women's team's No 8 shirt in honour of their late former player`\
-https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
-
-**Van de Ven in contention for Spurs return, Maddison out for around three weeks**\
-`Ange Postecoglou says Micky van de Ven could return for Tottenham in Thursday&#8217;s Europa League tie against Elfsborg, while James Maddison is expected to be sidelined for between two and three with a calf injury.`\
-https://nytimes.com/athletic/6096547/2025/01/29/tottenham-injuries-maddison-van-de-ven/
 
