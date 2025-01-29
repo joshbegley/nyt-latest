@@ -1,3 +1,15 @@
+**The Athletic FC: Brest's Euro fairytale, Boniface/Duran transfer option, rare Lasso card**\
+`Today in TAFC: Brest's incredible rise to the Champions League, the Boniface/Duran transfer saga, and the very rare Lasso trading card....`\
+https://nytimes.com/athletic/6096485/2025/01/29/brest-champions-league-duran-transfer-lasso-card/
+
+**Freezing the Government**\
+`We cover how President Trump is trying to reshape the government.`\
+https://nytimes.com/2025/01/29/briefing/donald-trump-federal-funding.html
+
+**Britain, in Push for Faster Growth, Backs Major Heathrow Expansion**\
+`The country’s top finance official supported adding a third runway to the London hub, a decision that has been held up for decades, and other measures intended to strengthen economic growth.`\
+https://nytimes.com/2025/01/29/business/uk-economy-growth-rachel-reeves.html
+
 **The Pulse: Another NBA star on the move?**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6094487/2025/01/29/deaaron-fox-kings-trade-the-pulse/
