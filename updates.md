@@ -1,3 +1,7 @@
+**Catholic Church in the Philippines Accused of Impunity Over Priest Abuse**\
+`A watchdog group, Bishop Accountability, said it had found scores of clerics with ties to the country who have been publicly accused of sexual abuse. But very few have been disciplined.`\
+https://nytimes.com/2025/01/29/world/asia/philippines-catholic-priests-abuse.html
+
 **Herbert out as F1 steward after role deemed 'incompatible' with media punditry**\
 `Herbert's dual role attracted criticism last season, namely from Max Vertsappen's father Jos.`\
 https://nytimes.com/athletic/6096497/2025/01/29/johnny-herbert-f1-steward-why/
