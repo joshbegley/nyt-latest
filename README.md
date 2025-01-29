@@ -10,7 +10,7 @@ https://nytimes.com/2025/01/29/style/marital-intervention.html
 `U.`\
 https://nytimes.com/athletic/6096480/2025/01/29/carli-lloyd-the-soccer-tournament/
 
-**Sheffield United labelled "disrespectful" after deciding not to retire Cusack shirt**\
+**Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
 `Championship club is under fire for rejecting a fan petition to retire shirt in honour of late former women's player`\
 https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
 
