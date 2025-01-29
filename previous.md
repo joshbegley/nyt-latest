@@ -1,5 +1,5 @@
-**Kingsbury to stay with Commanders, McCarthy out for Saints' vacancy**\
-`Kingsbury staying in Washington isn’t a surprise for the NFC conference runner-ups.`\
+**Kliff Kingsbury to stay with Commanders, Mike McCarthy out for Saints' vacancy**\
+`Kingsbury staying in Washington isn't a surprise for the NFC conference runner-ups.`\
 https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-saints-head-coach-withdrawal/
 
 **Wednesday Briefing**\
