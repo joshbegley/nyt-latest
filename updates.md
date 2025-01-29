@@ -1,3 +1,11 @@
+**Casualties Feared After Stampede at Huge Hindu Festival in India**\
+`People were trampled as pilgrims at the Maha Kumbh Mela, one of the world’s biggest gatherings, were rushing to the confluence of two sacred rivers, officials said.`\
+https://nytimes.com/2025/01/28/world/asia/india-stampede-maha-kumbh-festival.html
+
+**Sony Makes a Change at the Top Amid Entertainment Push**\
+`Kenichiro Yoshida, who has led Sony since 2018, will be succeeded as C.E.O. by the company’s chief financial officer.`\
+https://nytimes.com/2025/01/28/business/sony-ceo-kenichiro-yoshida.html
+
 **State Department Permits Distribution of H.I.V. Medications to Resume — for Now**\
 `Experts fear a resurgence of infections in low-income countries if the ban were to continue. The waiver remains in place, while officials review foreign aid programs.`\
 https://nytimes.com/2025/01/28/health/trump-pepfar-freeze.html

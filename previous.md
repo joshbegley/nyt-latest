@@ -1,3 +1,11 @@
+**Casualties Feared After Stampede at Huge Hindu Festival in India**\
+`People were trampled as pilgrims at the Maha Kumbh Mela, one of the world’s biggest gatherings, were rushing to the confluence of two sacred rivers, officials said.`\
+https://nytimes.com/2025/01/28/world/asia/india-stampede-maha-kumbh-festival.html
+
+**Sony Makes a Change at the Top Amid Entertainment Push**\
+`Kenichiro Yoshida, who has led Sony since 2018, will be succeeded as C.E.O. by the company’s chief financial officer.`\
+https://nytimes.com/2025/01/28/business/sony-ceo-kenichiro-yoshida.html
+
 **State Department Permits Distribution of H.I.V. Medications to Resume — for Now**\
 `Experts fear a resurgence of infections in low-income countries if the ban were to continue. The waiver remains in place, while officials review foreign aid programs.`\
 https://nytimes.com/2025/01/28/health/trump-pepfar-freeze.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-state-reaction.h
 **Pentagon Allows ICE to Use Colorado Military Base to Detain Migrants**\
 `The decision to allow law enforcement officers to use facilities at Buckley Space Force Base in Aurora, Colo., plunges the U.S. military deeper into President Trump’s order to secure the southwestern border.`\
 https://nytimes.com/2025/01/28/us/politics/ice-deportations-colorado-base.html
-
-**Starbucks Reports Weak Earnings as It Tries to Woo Back Customers**\
-`Traffic is down, but improving. “Much of our work is just beginning,” said Brian Niccol, the chief executive.`\
-https://nytimes.com/2025/01/28/business/starbucks-earnings.html
-
-**Israel Is Urged to Reverse Course on Palestinian Aid Agency Ban**\
-`Diplomats at the United Nations Security Council said planned restrictions on the agency, UNRWA, would imperil Palestinians. Only the U.S. sides with Israel.`\
-https://nytimes.com/2025/01/28/world/middleeast/unrwa-israel-un.html
 
