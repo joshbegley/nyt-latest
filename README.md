@@ -1,3 +1,7 @@
+**Warriors trade intel: What we're hearing about Jimmy Butler, Zach LaVine and more**\
+`As the clock ticks toward the deadline, the Warriors have floated a protected first-rounder as a sweetener in potential deals.`\
+https://nytimes.com/athletic/6096150/2025/01/29/nba-trade-intel-warriors-jimmy-butler/
+
 **Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
 `The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
 https://nytimes.com/2025/01/29/technology/microsoft-continues-to-spend-big-on-ai-as-profit-grows-10.html
@@ -14,9 +18,9 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/democra
 `‘What the White House has done is it has created another crisis,’ said Lisa Rice, president and chief executive of the National Fair Housing Alliance.`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/funding-portals-reopen-for-programs-used-by-fair-housing-agencies
 
-**Kennedy’s fate rests in the hands of a small group of Republicans.**\
-`By Annie Karni`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-senate-vote
+**Kennedy’s Fate Rests In Hands of a Small Group of Republicans**\
+`To be confirmed as health secretary, Robert F. Kennedy Jr. can afford to lose no more than three Republican votes if all Democrats are united in their opposition to him.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-senate-vote.html
 
 **Tesla’s Profit Fell Sharply Last Year**\
 `The electric car company run by Elon Musk is facing increasing competition, but investors have focused mostly on the prospects for Tesla’s self-driving technology.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/democrat-iowa-state-senate-race.html
 **Thursday Briefing: Trump Reverses Spending Freeze**\
 `Plus, celebrating the Lunar New Year.`\
 https://nytimes.com/2025/01/29/briefing/trump-funding-reversal-india-stampede-hamas-hostages.html
-
-**How Menendez Destroyed His Legacy With Gold Bars and a Halal Hustle**\
-`The former New Jersey senator was sentenced to 11 years in prison after being convicted of bribery and corruption.`\
-https://nytimes.com/2025/01/29/nyregion/robert-menendez-senate-corruption-legacy.html
 
