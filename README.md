@@ -18,7 +18,7 @@ https://nytimes.com/2025/01/29/theater/jimmy-fallon-all-in-broadway.html
 `By Gina Kolata`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-aims-to-make-america-healthy-again-historians-say-americans-health-was-far-worse-in-the-past
 
-**Hawks' Jalen Johnson to undergo season-ending shoulder surgery**\
+**Hawks' Jalen Johnson suffers season-ending shoulder injury**\
 `For the Hawks, this is a potentially disastrous development in terms of their chase for the playoffs.`\
 https://nytimes.com/athletic/6097075/2025/01/29/jalen-johnson-shoulder-injury-surgery-hawks/
 
