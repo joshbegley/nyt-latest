@@ -1,3 +1,15 @@
+**Vietnam’s Kumquat Trees, a Lunar New Year Staple, Have a Bad Year**\
+`Vietnamese families preparing for the Lunar New Year traditionally buy the citrus trees as a symbol of good luck. But extreme weather has hurt this year’s harvest.`\
+https://nytimes.com/video/world/asia/100000009953528/vietnam-kumquat-lunar-new-year.html
+
+**Caroline Kennedy’s Video Exposes the Fight Over a Fading Family Legacy**\
+`Caroline Kennedy stepped out of the shadows and onto social media to assail her cousin, Robert F. Kennedy Jr., on the eve of his Senate hearing.`\
+https://nytimes.com/2025/01/28/us/politics/caroline-robert-kennedy-trump.html
+
+**Steinbrenner: Dodgers’ spending ‘difficult’ for rest of MLB to match**\
+`The Yankees were valued at $7.55 billion by Forbes, the fourth-most valuable sports franchise in the world, ahead of the Dodgers.`\
+https://nytimes.com/athletic/6095925/2025/01/28/yankees-hal-steinbrenner-dodgers-spending-comments/
+
 **Casualties Feared After Stampede at Huge Hindu Festival in India**\
 `People were trampled as pilgrims at the Maha Kumbh Mela, one of the world’s biggest gatherings, were rushing to the confluence of two sacred rivers, officials said.`\
 https://nytimes.com/2025/01/28/world/asia/india-stampede-maha-kumbh-festival.html
@@ -26,16 +38,4 @@ https://nytimes.com/spotlight/the-migrant-pipeline
 **Trump Administration Offers Millions of Federal Workers Payouts to Resign**\
 `The move, which could dramatically reduce the size of the federal work force, appeared to stretch the limits of President Trump’s authority.`\
 https://nytimes.com/2025/01/28/us/politics/trump-buyouts-federal-workers.html
-
-**How Extreme Weather Scrambled a Lunar New Year Tradition in Vietnam**\
-`A typhoon and extreme heat dramatically affected prices for the kumquat trees that are ubiquitous during the holiday.`\
-https://nytimes.com/2025/01/28/world/asia/lunar-new-year-vietnam-kumquats.html
-
-**Lack of Detail in Funding Freeze Leaves State and Local Agencies at a Loss**\
-`Democratic and Republican leaders alike voiced concern about the pause in federal dollars “creating chaos” and “jeopardizing the financial stability” of their states.`\
-https://nytimes.com/2025/01/28/us/politics/trump-funding-freeze-state-reaction.html
-
-**Pentagon Allows ICE to Use Colorado Military Base to Detain Migrants**\
-`The decision to allow law enforcement officers to use facilities at Buckley Space Force Base in Aurora, Colo., plunges the U.S. military deeper into President Trump’s order to secure the southwestern border.`\
-https://nytimes.com/2025/01/28/us/politics/ice-deportations-colorado-base.html
 
