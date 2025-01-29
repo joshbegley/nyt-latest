@@ -1,3 +1,7 @@
+**State Department Permits Distribution of H.I.V. Medications to Resume — for Now**\
+`Experts fear a resurgence of infections in low-income countries if the ban were to continue. The waiver remains in place, while officials review foreign aid programs.`\
+https://nytimes.com/2025/01/28/health/trump-pepfar-freeze.html
+
 **Trump’s Picks to Replace Gaetz and Waltz in the House Win Florida Primaries**\
 `The two candidates will move on to special general elections on April 1, when they will be strongly favored to expand the Republicans’ slim House majority.`\
 https://nytimes.com/2025/01/28/us/politics/gaetz-waltz-florida-special-primaries.html

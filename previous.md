@@ -1,3 +1,7 @@
+**State Department Permits Distribution of H.I.V. Medications to Resume — for Now**\
+`Experts fear a resurgence of infections in low-income countries if the ban were to continue. The waiver remains in place, while officials review foreign aid programs.`\
+https://nytimes.com/2025/01/28/health/trump-pepfar-freeze.html
+
 **Trump’s Picks to Replace Gaetz and Waltz in the House Win Florida Primaries**\
 `The two candidates will move on to special general elections on April 1, when they will be strongly favored to expand the Republicans’ slim House majority.`\
 https://nytimes.com/2025/01/28/us/politics/gaetz-waltz-florida-special-primaries.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/28/business/starbucks-earnings.html
 **Israel Is Urged to Reverse Course on Palestinian Aid Agency Ban**\
 `Diplomats at the United Nations Security Council said planned restrictions on the agency, UNRWA, would imperil Palestinians. Only the U.S. sides with Israel.`\
 https://nytimes.com/2025/01/28/world/middleeast/unrwa-israel-un.html
-
-**White House Press Secretary Makes Steely and Unflinching Debut**\
-`Karoline Leavitt used her first briefing in the role to warn veteran reporters that they were increasingly irrelevant.`\
-https://nytimes.com/2025/01/28/us/politics/karoline-leavitt-debut.html
 
