@@ -1,3 +1,11 @@
+**Is Going After Government Always Good Politics?**\
+`President Trump is betting that Americans will not care if he upends institutions most have lost faith in.`\
+https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
+
+**2026 World Cup matches could be subject to ‘dangerous heat’, study says**\
+`Heat was an issue at the 2024 Copa America in the U.S., with Uruguay's Ronald Araujo reported feeling 'dizzy' during a game.`\
+https://nytimes.com/athletic/6094317/2025/01/29/world-cup-2026-heat-kick-off-times/
+
 **Stop Feeling Stunned and Wounded, Liberals. It’s Time to Fight Back.**\
 `Americans alarmed by President Trump’s agenda must reunite and recalibrate.`\
 https://nytimes.com/2025/01/29/opinion/democrats-trump-resistance.html
