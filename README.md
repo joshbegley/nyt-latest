@@ -1,3 +1,15 @@
+**Lurking Inside an Asteroid: Life’s Ingredients**\
+`Scientists studying samples that NASA collected from the asteroid Bennu found a wide assortment of organic molecules that shed light on how life arose.`\
+https://nytimes.com/2025/01/29/science/nasa-bennu-asteroid-molecules.html
+
+**A Lush Chicken Curry for Lunar New Year**\
+`Serve this Singaporean chicken curry with nasi biryani or draped over steamed rice; either way, it’s a stunning meal.`\
+https://nytimes.com/2025/01/29/dining/a-lush-chicken-curry-for-lunar-new-year.html
+
+**7 Big Questions About Cancer, Answered**\
+`Can pollution cause it? What about inflammation? And how do tumors spread? Here’s what scientists are learning about this complex disease.`\
+https://nytimes.com/2025/01/29/well/7-big-questions-about-cancer-answered.html
+
 **Addiction and trauma are the forces that shaped Kennedy’s life.**\
 `By Sheryl Gay Stolberg, Susanne Craig and Rebecca Davis O’Brien`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/addiction-and-trauma-are-the-forces-that-shaped-kennedys-life
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/29/books/william-e-leuchtenburg-dead.html
 **Elias Pettersson trade watch: 10 destinations and what the Canucks could get back**\
 `Elias Pettersson could be the odd man out in Vancouver. What does he bring, where could he land and what does Vancouver need?`\
 https://nytimes.com/athletic/6096332/2025/01/29/canucks-elias-pettersson-trade/
-
-**Who Is Liang Wenfeng, the Founder of A.I. Start-Up DeepSeek?**\
-`The Chinese company DeepSeek seemed to have come out of nowhere this week when it upturned markets. Here’s what to know about the engineer who started it.`\
-https://nytimes.com/2025/01/29/business/deepseek-china-liang-wenfeng.html
-
-**Victor Wembanyama was already a basketball phenom at 15 — and the Spurs took notice**\
-`"It's very possible that he'll be the face of basketball. Not just NBA basketball, but world basketball," said Pacers coach Rick Carlisle. `\
-https://nytimes.com/athletic/6080517/2025/01/29/victor-wembanyama-wemby-spurs-france-nba/
-
-**Kennedy was paid over $2 million for legal referrals against vaccine makers**\
-`By Christina Jewett`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-merck-hpv-cases
 
