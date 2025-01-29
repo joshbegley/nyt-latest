@@ -6,9 +6,9 @@ https://nytimes.com/2025/01/29/briefing/trump-spending-hostages.html
 `In China’s economic downturn, food-delivery workers toiling under unforgiving rules and dwindling pay say they don’t see a future.`\
 https://nytimes.com/interactive/2025/01/29/world/asia/china-delivery-driver.html
 
-**The new transportation secretary’s first move was to seek a rollback of Biden’s fuel economy standards.**\
-`By Mark Walker`\
-https://nytimes.com/2025/01/28/us/politics/the-new-transportation-secretarys-first-move-was-to-seek-a-rollback-of-bidens-fuel-economy-standards.html
+**Transportation Secretary Seeks Rollback of Biden’s Fuel Economy Standards**\
+`The order is the latest Trump administration effort against Biden-era initiatives that intended to promote electric vehicles and reduce greenhouse gas emissions.`\
+https://nytimes.com/2025/01/28/us/politics/trump-fuel-economy-standards-rollback.html
 
 **Wrexham 2 Stevenage 3: A wobble or a worry? Striker search to step up?**\
 `Wrexham lost more ground on the top two and manager Phil Parkinson was furious - how will they respond on the pitch and in transfer market?`\

@@ -1,3 +1,7 @@
+**Transportation Secretary Seeks Rollback of Biden’s Fuel Economy Standards**\
+`The order is the latest Trump administration effort against Biden-era initiatives that intended to promote electric vehicles and reduce greenhouse gas emissions.`\
+https://nytimes.com/2025/01/28/us/politics/trump-fuel-economy-standards-rollback.html
+
 **Wednesday Briefing**\
 `Confusion in the U.S. after a Trump spending freeze.`\
 https://nytimes.com/2025/01/29/briefing/trump-spending-hostages.html
