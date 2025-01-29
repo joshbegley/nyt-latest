@@ -1,3 +1,11 @@
+**The White House Pulled Back Its Spending Freeze**\
+`Also, Menendez was sentenced to 11 years in prison. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/01/29/briefing/white-house-freeze-menendez-sentence.html
+
+**Stuck on What to Get for Valentine’s Day? Here Are Some Unexpected Gift Ideas.**\
+`Glass portraits, rebellious perfumes and more recommendations from T Magazine.`\
+https://nytimes.com/2025/01/29/t-magazine/unique-valentines-day-gift-ideas.html
+
 **Inside the Chaotic Rollout of Trump’s Federal Funding Freeze**\
 `The order that froze trillions of dollars of federal grants and loans was published without vetting by key officials in the White House.`\
 https://nytimes.com/2025/01/29/us/politics/trump-funding-freeze-rollout.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/nyregion/gilgo-beach-murders-dna-evidence.html
 **The Briefing: Brest 0 Real Madrid 3 - Rodrygo and Vazquez show versatility, Tchouameni struggles again**\
 `Real Madrid finished the first stage of this season's Champions League with a comfortable win - but must now face the playoff round`\
 https://nytimes.com/athletic/6094554/2025/01/29/brest-0-real-madrid-3-rodrygo-vazquez/
-
-**Reds to add left-handed reliever Taylor Rogers in trade with Giants: Sources**\
-`Rogers will add to a Reds bullpen that already has left-handers Brent Suter and Sam Moll, as well as non-roster invitee Alex Young.`\
-https://nytimes.com/athletic/6098079/2025/01/29/reds-giants-taylor-rogers-trade/
-
-**Bob Menendez Plans to Appeal After Being Sentenced to 11 Years in Prison**\
-`Former New Jersey Senator Bob Menendez called his trial a “political witch hunt” and claimed he was innocent.`\
-https://nytimes.com/video/us/politics/100000009957746/robert-menendez-sentencing.html
 
