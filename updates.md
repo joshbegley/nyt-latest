@@ -1,3 +1,11 @@
+**Wrexham 2 Stevenage 3: A wobble or a worry? Striker search to step up?**\
+`Wrexham lost more ground on the top two and manager Phil Parkinson was furious - how will they respond on the pitch and in transfer market?`\
+https://nytimes.com/athletic/6093847/2025/01/29/wrexham-stevenage-phil-parkinson-transfers/
+
+**Arsenal's list of misfortunes is long enough to derail a season. And yet…**\
+`Despite plenty of things not going according to plan, Arsenal are still in a position to compete on multiple fronts this season`\
+https://nytimes.com/athletic/6094434/2025/01/29/arsenals-list-of-misfortunes-is-long-enough-to-derail-a-season-and-yet/
+
 **Why are Brighton struggling so much at home, and what can they do to fix it?**\
 `Their creaking form at the Amex is destined to define the strength of Brighton's Europe aspirations...`\
 https://nytimes.com/athletic/6086344/2025/01/29/brighton-home-form/
