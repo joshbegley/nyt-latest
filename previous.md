@@ -1,3 +1,7 @@
+**Kennedy would oversee a vast portfolio including vaccines, food safety and Medicare and Medicaid.**\
+`By Hank Sanders, Sara Ruberg and Christina Jewett`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-would-oversee-a-vast-portfolio-including-vaccines-food-safety-and-medicare-and-medicaid
+
 **Here’s the latest.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-n
 **Patrick Dorgu - His position, strengths, weaknesses and what he'd bring to Man Utd**\
 `Patrick Dorgu is a potential solution to Amorim's wing-back problem - but the emphasis is on his potential`\
 https://nytimes.com/athletic/6073035/2025/01/29/patrick-dorgu-manchester-united-transfers-signing-strengths/
-
-**Frontier Airlines Offers to Buy Spirit Airlines, Again**\
-`Spirit, which filed for bankruptcy protection in November after a federal court blocked its acquisition by JetBlue, says it has rejected the latest Frontier offer for being too low.`\
-https://nytimes.com/2025/01/29/business/frontier-spirit-airlines-merger.html
 

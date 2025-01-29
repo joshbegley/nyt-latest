@@ -1,3 +1,7 @@
+**Kennedy would oversee a vast portfolio including vaccines, food safety and Medicare and Medicaid.**\
+`By Hank Sanders, Sara Ruberg and Christina Jewett`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-would-oversee-a-vast-portfolio-including-vaccines-food-safety-and-medicare-and-medicaid
+
 **Here’s the latest.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/heres-the-latest
