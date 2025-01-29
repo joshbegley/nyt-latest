@@ -1,3 +1,7 @@
+**Waiving Saad may be start of more Blues moves, but what can Armstrong do?**\
+`The Blues' 5-2 loss to the Vancouver Canucks was the team's third in a row and was a signal that roster changes need to be made.`\
+https://nytimes.com/athletic/6095104/2025/01/28/blues-doug-armstrong-moves-saad-plans/
+
 **Fireworks and Family Feasts Kick Off Year of the Snake**\
 `More than a billion people around the world are celebrating the Lunar New Year.`\
 https://nytimes.com/2025/01/28/world/asia/lunar-new-year-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/28/nyregion/murder-hire-hit-man-new-york.html
 **Transgender Americans say Trump’s orders are even worse than feared.**\
 `Three executive orders, including a push to end transition treatments for minors, have left advocates for trans people reeling.`\
 https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/transgender-americans-say-trump-orders-are-even-worse-than-feared
-
-**Practicing for When the Bombs Fall in ‘A Knock on the Roof’**\
-`In a new solo play about ordinary people under bombardment in Gaza, a woman rehearses how she would escape her building if Israeli forces were to strike.`\
-https://nytimes.com/2025/01/28/theater/a-knock-on-the-roof-review.html
 
