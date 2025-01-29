@@ -43,6 +43,11 @@ https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-sco
 `\
 https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-score/
 
+**A poor start, missed opportunities and a game that got out of hand: Rangers takeaways**\
+`After dropping their second straight game, the Rangers have little room for error at this point in the season.
+`\
+https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-score/
+
 **Bedard dazzles, Slaggert energizes as Blackhawks' youth movement continues**\
 `The Blackhawks are looking ever younger on the ice, including in a 4-1 win over the Lightning Tuesday night.`\
 https://nytimes.com/athletic/6096148/2025/01/28/blackhawks-youth-movement-slaggert-bedard-soderblom-lightning/
