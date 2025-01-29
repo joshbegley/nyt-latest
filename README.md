@@ -10,7 +10,7 @@ https://nytimes.com/2025/01/29/us/mcdowell-county-wildfire.html
 `Analysis of a frenetic 'Battle of Britain' which saw Villa prevail and book their place in the Champions League's knockout phase`\
 https://nytimes.com/athletic/6097221/2025/01/29/aston-villa-celtic-duran-watkins-rogers/
 
-**The Briefing:**\
+**The Briefing: Manchester City 3 Club Brugge 1 - Comeback win sends City into play-off with Bayern or Real Madrid**\
 `Sam Lee and Thom Harris break down the key moments from Wednesday's Champions League game`\
 https://nytimes.com/athletic/6093937/2025/01/29/manchester-city-club-brugge-champions-league-result-analysis/
 
