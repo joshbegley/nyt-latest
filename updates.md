@@ -1,3 +1,7 @@
+**Michael Kosta Is More Than Happy to Be Protected by Trans Soldiers**\
+`The “Daily Show” host took issue with the latest Trump ban: “I think we should be grateful to anyone who’s willing to put their life on the line so I don’t have to.”`\
+https://nytimes.com/2025/01/29/arts/television/michael-kosta-transgender-military.html
+
 **Food-Shaped Furniture**\
 `Would you want to decorate your home or room with a strawberry table or a burger stool?`\
 https://nytimes.com/2025/01/29/learning/food-shaped-furniture.html
