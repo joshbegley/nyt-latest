@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6095955/2025/01/29/sf-giants-jp-martinez-pitching-o
 `The Chargers improved around the margins last offseason but GM Joe Hortiz will have the money to make a splash in free agency in 2025.`\
 https://nytimes.com/athletic/6095545/2025/01/29/chargers-salary-cap-aggressive-offseason/
 
-**What to Know About Trump’s Federal Worker Payout Plan**\
-`The Office of Personnel Management offered payouts to roughly two million civilian employees, as President Trump seeks to reshape the federal government. Here are details of the plan.`\
+**What to Know About Trump’s Plan to Slash the Federal Work Force**\
+`The Office of Personnel Management sought to entice civilian federal employees to resign, as President Trump seeks to reshape the U.S. government. Here are details of the plan.`\
 https://nytimes.com/2025/01/29/us/politics/trump-federal-workers-buyout.html
 
 **Top U.S. Envoy Visits Israel in Show of Support for Gaza Cease-Fire**\
