@@ -1,3 +1,19 @@
+**Farage Says He Talked to Musk Last Week. Relationship is ‘Fine.’**\
+`Three weeks after a rift, the head of the populist Reform U.K. party said Elon Musk remains open to a donation that could shake up British politics.`\
+https://nytimes.com/2025/01/29/world/europe/farage-musk-uk-politics.html
+
+**As Establishment Warms to Trump, Elite Law Firm Takes On His Appeal**\
+`The involvement of Sullivan & Cromwell in the appeal of President Trump’s criminal conviction underscored how New York’s legal power players have moved toward Mr. Trump.`\
+https://nytimes.com/2025/01/29/nyregion/trump-criminal-conviction-appeal.html
+
+**Fact-Checking Kennedy’s Health Claims in His Confirmation Hearing**\
+`Robert F. Kennedy Jr., the nominee to lead the Department of Health and Human Services, made a number of disputed claims.`\
+https://nytimes.com/2025/01/29/health/rfk-jr-health-fact-check-obesity-covid.html
+
+**Tigers ink righty reliever Tommy Kahnle to one-year deal: Sources**\
+`Last season, Kahnle, 35, had a 2.11 ERA for the New York Yankees, and gives the Tigers a needed swing-and-miss option.`\
+https://nytimes.com/athletic/6097371/2025/01/29/detroit-tigers-tommy-kahnle-deal/
+
 **The freeze had caused mass confusion as groups checked whether their federal funding was affected.**\
 `The freeze caused outrage after it interrupted the Medicaid health care system and sent schools, hospitals and nonprofits scrambling to understand if they had lost their federal support.`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-freeze-grants
