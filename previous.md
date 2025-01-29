@@ -1,3 +1,7 @@
+**How the Bills will use loss to Chiefs to help shape offseason roster decisions**\
+`The Bills' deficiencies were on full display thanks to the Chiefs exposing them.`\
+https://nytimes.com/athletic/6097505/2025/01/29/bills-chiefs-offseason-roster-free-agents/
+
 **Rebel Leader Who Overthrew al-Assad is Declared Syria’s President**\
 `The new leadership of the country said the rebel coalition leader, Ahmed al-Shara, would serve as president during a transitional period.`\
 https://nytimes.com/2025/01/29/world/middleeast/syria-leader-al-shara-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/stephan-thernstrom-dead.html
 **Blues' Brandon Saad unclaimed on waivers, assigned to AHL**\
 `Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
 https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-waivers-clears/
-
-**Mexico’s Sheinbaum Questions Whether U.S. Tariffs Will Really Be Imposed**\
-`“We don’t think it’s going to happen really,” she said during her daily morning news conference on Wednesday, just days before Trump’s threatened tariffs might begin. “And if it happens, we also have our plan.”`\
-https://nytimes.com/2025/01/29/us/politics/mexico-president-sheinbaum-trump-tariffs.html
 

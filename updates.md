@@ -1,3 +1,7 @@
+**How the Bills will use loss to Chiefs to help shape offseason roster decisions**\
+`The Bills' deficiencies were on full display thanks to the Chiefs exposing them.`\
+https://nytimes.com/athletic/6097505/2025/01/29/bills-chiefs-offseason-roster-free-agents/
+
 **Rebel Leader Who Overthrew al-Assad is Declared Syria’s President**\
 `The new leadership of the country said the rebel coalition leader, Ahmed al-Shara, would serve as president during a transitional period.`\
 https://nytimes.com/2025/01/29/world/middleeast/syria-leader-al-shara-government.html
