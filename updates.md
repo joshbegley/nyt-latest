@@ -1,3 +1,11 @@
+**The White House Pulled Back Its Spending Freeze**\
+`Also, Menendez was sentenced to 11 years in prison. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/01/29/briefing/white-house-freeze-menendez-sentence.html
+
+**Stuck on What to Get for Valentine’s Day? Here Are Some Unexpected Gift Ideas.**\
+`Glass portraits, rebellious perfumes and more recommendations from T Magazine.`\
+https://nytimes.com/2025/01/29/t-magazine/unique-valentines-day-gift-ideas.html
+
 **Reds to add left-handed reliever Taylor Rogers in trade with Giants: Sources**\
 `Rogers will add to a Reds bullpen that already has left-handers Brent Suter and Sam Moll, as well as non-roster invitee Alex Young.`\
 https://nytimes.com/athletic/6098079/2025/01/29/reds-giants-taylor-rogers-trade/
