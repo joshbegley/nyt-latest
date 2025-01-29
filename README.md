@@ -1,3 +1,15 @@
+**Mark Daigneault and first-place Thunder practice being present: 'Be where our feet are'**\
+`What Oklahoma City calls a "0-0 mentality" is drilled into its members. That process has resulted in the team owning the NBA's best record.`\
+https://nytimes.com/athletic/6084483/2025/01/29/mark-daigneault-thunder-nba-standings/
+
+**Man United reach broad agreement to sign Dorgu from Lecce**\
+`Manchester United have reached a broad agreement with Lecce for the transfer of Patrick Dorgu for €30million (£25.`\
+https://nytimes.com/athletic/6086282/2025/01/29/patrick-dorgu-manchester-united-transfer/
+
+**A Tropical, Chewy Lunar New Year Dessert**\
+`The writer and curator Su Wu’s version of tang yuan reflects her family’s history and her life in Mexico City.`\
+https://nytimes.com/2025/01/29/t-magazine/tang-yuan-dessert-recipe.html
+
 **Three Countries Officially Quit Major West African ECOWAS Alliance**\
 `Burkina Faso, Mali and Niger accused the bloc of having double standards in punishing their military juntas. Negotiations failed to change their minds.`\
 https://nytimes.com/2025/01/29/world/africa/ecowas-burkina-faso-mali-niger.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6094433/2025/01/29/oilers-bruins-2025-trade-deadlin
 **Making sense of Liam Coen's dramatic flip from Bucs OC to Jags head coach**\
 `Coen took an offer of "Ben Johnson money" plus the power to choose his own general manager in Jacksonville.`\
 https://nytimes.com/athletic/6095078/2025/01/29/scoop-city-liam-coen-jaguars-head-coach-buccaneers/
-
-**The Athletic FC: Brest's Euro fairytale, Boniface/Duran transfer option, rare Lasso card**\
-`Today in TAFC: Brest's incredible rise to the Champions League, the Boniface/Duran transfer saga, and the very rare Lasso trading card....`\
-https://nytimes.com/athletic/6096485/2025/01/29/brest-champions-league-duran-transfer-lasso-card/
-
-**Freezing the Government**\
-`We cover how President Trump is trying to reshape the government.`\
-https://nytimes.com/2025/01/29/briefing/donald-trump-federal-funding.html
-
-**Britain, in Push for Faster Growth, Backs Major Heathrow Expansion**\
-`The country’s top finance official supported adding a third runway to the London hub, a decision that has been held up for decades, and other measures intended to strengthen economic growth.`\
-https://nytimes.com/2025/01/29/business/uk-economy-growth-rachel-reeves.html
 
