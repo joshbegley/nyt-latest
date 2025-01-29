@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6096417/2025/01/29/alyssa-gisele-thompson-angel-cit
 https://nytimes.com/2025/01/29/science/nasa-bennu-asteroid-molecules.html
 
 **A Lush Chicken Curry for Lunar New Year**\
-`Serve this Singaporean chicken curry with nasi biryani or draped over steamed rice; either way, it’s a stunning meal.`\
+`Serve this  deliciously savory dish with nasi biryani or draped over steamed rice; either way, it’s a stunning meal.`\
 https://nytimes.com/2025/01/29/dining/a-lush-chicken-curry-for-lunar-new-year.html
 
 **7 Big Questions About Cancer, Answered**\

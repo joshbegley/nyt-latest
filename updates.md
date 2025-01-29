@@ -1,3 +1,7 @@
+**A Lush Chicken Curry for Lunar New Year**\
+`Serve this  deliciously savory dish with nasi biryani or draped over steamed rice; either way, it’s a stunning meal.`\
+https://nytimes.com/2025/01/29/dining/a-lush-chicken-curry-for-lunar-new-year.html
+
 **A Journey Through Toxic Fumes That’s a Breath of Fresh Air**\
 `Each boss in Ender Magnolia: Bloom in the Mist is more creatively imagined than the last.`\
 https://nytimes.com/2025/01/29/arts/ender-magnolia-bloom-in-the-mist-review.html
