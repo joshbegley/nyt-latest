@@ -31,7 +31,7 @@ https://nytimes.com/2025/01/29/style/marital-intervention.html
 https://nytimes.com/athletic/6096480/2025/01/29/carli-lloyd-the-soccer-tournament/
 
 **Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
-`The Championship club are under fire for rejecting a fan petition to retire No 8 shirt in honour of their late former player`\
+`Yorkshire club are under fire for rejecting a fan petition to retire women's team's No 8 shirt in honour of their late former player`\
 https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
 
 **Van de Ven in contention for Spurs return, Maddison out for around three weeks**\
