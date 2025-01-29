@@ -1,3 +1,7 @@
+**A Journey Through Toxic Fumes That’s a Breath of Fresh Air**\
+`Each boss in Ender Magnolia: Bloom in the Mist is more creatively imagined than the last.`\
+https://nytimes.com/2025/01/29/arts/ender-magnolia-bloom-in-the-mist-review.html
+
 **Sisters Alyssa and Gisele Thompson agree Angel City contract extensions**\
 `Alyssa Thompson and Gisele Thompson have agreed contract extensions at Angel City through to 2028.`\
 https://nytimes.com/athletic/6096417/2025/01/29/alyssa-gisele-thompson-angel-city-contracts/
