@@ -1,3 +1,11 @@
+**Trust in health agencies that Kennedy would oversee is in decline.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-confirmation-child-vaccinations
+
+**Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
+`The Championship club are under fire for rejecting a fan petition to retire No 8 shirt in honour of their late former player`\
+https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
+
 **Kennedy would oversee a vast portfolio including vaccines, food safety and Medicare and Medicaid.**\
 `By Hank Sanders, Sara Ruberg and Christina Jewett`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-would-oversee-a-vast-portfolio-including-vaccines-food-safety-and-medicare-and-medicaid
