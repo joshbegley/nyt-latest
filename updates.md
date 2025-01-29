@@ -1,3 +1,7 @@
+**Prime Tire: An F1 playoff system what-if; Inside driver development programs**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6097523/2025/01/29/formula-one-nascar-playoffs-prime-tire/
+
 **A (Sort-Of) Bolognese Fast and Easy Enough for Hard Nights**\
 `This hearty, reviving recipe from Genevieve Ko isn’t just quick and budget-friendly, it’s full of deep, rich flavors.`\
 https://nytimes.com/2025/01/29/dining/quick-sort-of-bolognese-recipe.html

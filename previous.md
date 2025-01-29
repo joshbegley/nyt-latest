@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6097593/2025/01/29/broncos-mailbag-submit-questions
 
 **Prime Tire: An F1 playoff system what-if; Inside driver development programs**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6097523/2025/01/29/a-formula-one-playoff-system-what-if-plus-inside-driver-development-programs/
+https://nytimes.com/athletic/6097523/2025/01/29/formula-one-nascar-playoffs-prime-tire/
 
 **Kennedy signals White House support for Medicare drug price negotiation.**\
 `By Margot Sanger-Katz`\
