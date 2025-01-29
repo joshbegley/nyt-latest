@@ -1,3 +1,7 @@
+**Hamas Is Expected to Release 8 Israeli and Thai Hostages**\
+`The release planned for Thursday would be the third so far as Israel and Hamas observe a six-week truce, part of a multiphase agreement that mediators hope will end the war in Gaza.`\
+https://nytimes.com/2025/01/29/world/middleeast/israel-hamas-gaza-hostages.html
+
 **Kennedy says too many children take A.D.H.D. medications, while inflating his figures.**\
 `By Ellen Barry`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-too-many-children-take-adhd-medications-while-inflating-his-figures
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/tulsi-gabbard-confirmation-edward-sno
 **Submit your Guardians questions for Zack Meisel's mailbag**\
 `In two weeks, Cleveland Guardians pitchers and catchers will report to the team&#8217;s spring training camp in Goodyear, Ariz.`\
 https://nytimes.com/athletic/6097215/2025/01/29/submit-your-guardians-questions-for-zack-meisels-mailbag/
-
-**MLS Sunday Night Soccer to be introduced in 2025**\
-`Major League Soccer will debut a new Sunday night primetime matchup in 2025 as part of the league’s push to expand its coverage.`\
-https://nytimes.com/athletic/6097264/2025/01/29/mls-sunday-night-soccer/
 
