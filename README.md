@@ -1,6 +1,6 @@
 **Canada's Buchanan set for Villarreal loan move**\
 `Villarreal are working to finalise a deal to sign Canada international Tajon Buchanan on loan from Inter Milan.`\
-https://nytimes.com/athletic/6095644/2025/01/29/canadas-tajon-buchanan-set-for-villarreal-loan-move/
+https://nytimes.com/athletic/6095644/2025/01/29/tajon-buchanan-canada-villarreal-inter/
 
 **Citizenship by Birthright? By Bloodline? Migration Is Complicating Both.**\
 `In a world where people are more mobile than ever, nations are struggling to recalibrate who can be a citizen.`\
