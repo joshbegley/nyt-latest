@@ -1,3 +1,15 @@
+**The F.D.A. Upgraded a Recall of Some Lay’s Potato Chips. Here’s What to Know.**\
+`The Food and Drug Administration is using its most severe notice in a recall of more than 6,000 bags of chips in two states because of “undeclared milk.”`\
+https://nytimes.com/2025/01/29/business/frito-lay-potato-chips-recall.html
+
+**William E. Leuchtenburg, Scholar of F.D.R. and the Presidency, Dies at 102**\
+`His writings, which stretched across eight decades, helped Americans understand a president who transformed the office and shaped the postwar years.`\
+https://nytimes.com/2025/01/29/books/william-e-leuchtenburg-dead.html
+
+**Elias Pettersson trade watch: 10 destinations and what the Canucks could get back**\
+`Elias Pettersson could be the odd man out in Vancouver. What does he bring, where could he land and what does Vancouver need?`\
+https://nytimes.com/athletic/6096332/2025/01/29/canucks-elias-pettersson-trade/
+
 **Who Is Liang Wenfeng, the Founder of A.I. Start-Up DeepSeek?**\
 `The Chinese company DeepSeek seemed to have come out of nowhere this week when it upturned markets. Here’s what to know about the engineer who started it.`\
 https://nytimes.com/2025/01/29/business/deepseek-china-liang-wenfeng.html
