@@ -1,3 +1,11 @@
+**Is Going After Government Always Good Politics?**\
+`President Trump is betting that Americans will not care if he upends institutions most have lost faith in.`\
+https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
+
+**2026 World Cup matches could be subject to ‘dangerous heat’, study says**\
+`Heat was an issue at the 2024 Copa America in the U.S., with Uruguay's Ronald Araujo reported feeling 'dizzy' during a game.`\
+https://nytimes.com/athletic/6094317/2025/01/29/world-cup-2026-heat-kick-off-times/
+
 **Stop Feeling Stunned and Wounded, Liberals. It’s Time to Fight Back.**\
 `Americans alarmed by President Trump’s agenda must reunite and recalibrate.`\
 https://nytimes.com/2025/01/29/opinion/democrats-trump-resistance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6098308/2025/01/29/john-cook-retires-nebraska-volle
 **Trump’s Retribution Continues With Removal of General Milley’s Security Detail**\
 `Early in his first administration, President Trump noted the general’s “brilliance and fortitude.” And then the president got angry.`\
 https://nytimes.com/2025/01/29/us/politics/mark-milley-security-trump.html
-
-**Federal Judge Says He Will Block Trump’s Attempt to Defund ‘Woke’**\
-`“I’m worried about the effect to the people,” said the federal judge about disruptions to federal grants that sent shock waves across the country.`\
-https://nytimes.com/2025/01/29/us/politics/trump-anti-woke-funding.html
-
-**Champions League odds: Liverpool favoured ahead of Arsenal, Real, Barca after league phase**\
-`Liverpool ended the league phase of the Champions League top of the table and is the favourite in the odds to lift the trophy.`\
-https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-favoured-ahead-of-arsenal-real-madrid-barcelona/
 

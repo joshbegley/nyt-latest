@@ -1,3 +1,7 @@
+**Stop Feeling Stunned and Wounded, Liberals. It’s Time to Fight Back.**\
+`Americans alarmed by President Trump’s agenda must reunite and recalibrate.`\
+https://nytimes.com/2025/01/29/opinion/democrats-trump-resistance.html
+
 **Astronomers Are Keeping an Eye on This Asteroid’s Odds of Hitting Earth**\
 `Researchers say there’s a 1.3 percent chance that the space rock 2024 YR4 could strike our planet — but not until December 2032.`\
 https://nytimes.com/2025/01/29/science/asteroid-2024-yr4-earth.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/trump-anti-woke-funding.html
 **Champions League odds: Liverpool favoured ahead of Arsenal, Real, Barca after league phase**\
 `Liverpool ended the league phase of the Champions League top of the table and is the favourite in the odds to lift the trophy.`\
 https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-favoured-ahead-of-arsenal-real-madrid-barcelona/
-
-**Iris Cummings Critchell, 104, Dies; Olympic Swimmer Turned Aviator**\
-`The last survivor of the American team that competed in Hitler’s 1936 Games in Berlin, she went on to become a wartime pilot and an aeronautics instructor.`\
-https://nytimes.com/2025/01/29/sports/iris-cummings-critchell-dead.html
 
