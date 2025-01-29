@@ -1,3 +1,7 @@
+**Gerrard set to leave role as head coach of Saudi club Al Ettifaq**\
+`Steven Gerrard is set to leave his role as head coach of Saudi Arabian club Al Ettifaq.`\
+https://nytimes.com/athletic/5887908/2025/01/29/steven-gerrard-exit-saudi-al-ettifaq/
+
 **What the Fed’s Rate Policy Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/01/29/business/interest-rates-consumers-savings-loans.html

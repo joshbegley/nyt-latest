@@ -1,7 +1,3 @@
-**Gerrard set to leave role as head coach of Saudi club Al Ettifaq**\
-`Steven Gerrard is set to leave his role as head coach of Saudi Arabian club Al Ettifaq.`\
-https://nytimes.com/athletic/5887908/2025/01/29/steven-gerrard-exit-saudi-al-ettifaq/
-
 **What the Fed’s Rate Policy Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/01/29/business/interest-rates-consumers-savings-loans.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/29/movies/dog-man-review.html
 **Man Utd interested in potential loan move for Bayern's Tel**\
 `Manchester United are interested in a potential move for Bayern Munich forward Mathys Tel, should the 19-year-old be made available to leave on loan before the transfer window closes.`\
 https://nytimes.com/athletic/6060673/2025/01/29/mathys-tel-manchester-united-transfer/
+
+**Kennedy’s positions on abortion have shifted.**\
+`By Amy Schoenfeld Walker`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jrs-positions-on-abortion-have-shifted
 
