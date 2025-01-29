@@ -1,3 +1,7 @@
+**Bedard dazzles, Slaggert energizes as Blackhawks' youth movement continues**\
+`The Blackhawks are looking ever younger on the ice, including in a 4-1 win over the Lightning Tuesday night.`\
+https://nytimes.com/athletic/6096148/2025/01/28/blackhawks-youth-movement-slaggert-bedard-soderblom-lightning/
+
 **Which Federal Programs Are Under Scrutiny? The Budget Office Named 2,600 of Them.**\
 `The Trump administration ordered temporary freezes in funding for programs spanning virtually every part of the government. Here’s the full list.`\
 https://nytimes.com/interactive/2025/01/28/upshot/federal-programs-funding-trump-omb.html

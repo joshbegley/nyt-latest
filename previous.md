@@ -1,3 +1,7 @@
+**Bedard dazzles, Slaggert energizes as Blackhawks' youth movement continues**\
+`The Blackhawks are looking ever younger on the ice, including in a 4-1 win over the Lightning Tuesday night.`\
+https://nytimes.com/athletic/6096148/2025/01/28/blackhawks-youth-movement-slaggert-bedard-soderblom-lightning/
+
 **Which Federal Programs Are Under Scrutiny? The Budget Office Named 2,600 of Them.**\
 `The Trump administration ordered temporary freezes in funding for programs spanning virtually every part of the government. Here’s the full list.`\
 https://nytimes.com/interactive/2025/01/28/upshot/federal-programs-funding-trump-omb.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-ph
 **Scheffler details 'stupid' kitchen accident that delayed his start to 2025**\
 `After injuring himself while making ravioli on Christmas, top-ranked player makes belated PGA Tour return this week at Pebble Beach Pro-Am.`\
 https://nytimes.com/athletic/6095904/2025/01/28/scottie-scheffler-hand-injury-update-ravioli/
-
-**Elon Musk Suggests SpaceX Will Accelerate Return of NASA Astronauts**\
-`SpaceX is scheduled to bring home two astronauts who have been on the International Space Station since June. Mr. Musk said President Trump had asked for that to occur “as soon as possible.”`\
-https://nytimes.com/2025/01/28/science/musk-spacex-trump-nasa.html
 
