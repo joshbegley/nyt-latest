@@ -1,3 +1,7 @@
+**Kennedy’s Fate Rests in Hands of a Small Group of Republicans**\
+`To be confirmed as health secretary, Robert F. Kennedy Jr. can afford to lose no more than three Republican votes if all Democrats are united in their opposition to him.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-senate-vote.html
+
 **Warriors trade intel: What we're hearing about Jimmy Butler, Zach LaVine and more**\
 `As the clock ticks toward the deadline, the Warriors have floated a protected first-rounder as a sweetener in potential deals.`\
 https://nytimes.com/athletic/6096150/2025/01/29/nba-trade-intel-warriors-jimmy-butler/

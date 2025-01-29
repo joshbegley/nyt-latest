@@ -18,7 +18,7 @@ https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/democra
 `‘What the White House has done is it has created another crisis,’ said Lisa Rice, president and chief executive of the National Fair Housing Alliance.`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/funding-portals-reopen-for-programs-used-by-fair-housing-agencies
 
-**Kennedy’s Fate Rests In Hands of a Small Group of Republicans**\
+**Kennedy’s Fate Rests in Hands of a Small Group of Republicans**\
 `To be confirmed as health secretary, Robert F. Kennedy Jr. can afford to lose no more than three Republican votes if all Democrats are united in their opposition to him.`\
 https://nytimes.com/2025/01/29/us/politics/rfk-jr-senate-vote.html
 
