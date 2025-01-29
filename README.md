@@ -1,3 +1,7 @@
+**Rebel Leader Who Overthrew al-Assad is Declared Syria’s President**\
+`The new leadership of the country said the rebel coalition leader, Ahmed al-Shara, would serve as president during a transitional period.`\
+https://nytimes.com/2025/01/29/world/middleeast/syria-leader-al-shara-government.html
+
 **Attention Letter Writers: Have You Connected With Other Times Readers?**\
 `With a letter to the editor, readers can share their thoughts on articles. They can also build community with other readers. Have you developed friendships with others who have had their letters published?`\
 https://nytimes.com/2025/01/29/insider/attention-letter-writers-have-you-connected-with-other-times-readers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-waivers-clear
 **Mexico’s Sheinbaum Questions Whether U.S. Tariffs Will Really Be Imposed**\
 `“We don’t think it’s going to happen really,” she said during her daily morning news conference on Wednesday, just days before Trump’s threatened tariffs might begin. “And if it happens, we also have our plan.”`\
 https://nytimes.com/2025/01/29/us/politics/mexico-president-sheinbaum-trump-tariffs.html
-
-**Kennedy raised questions about rising rates of food allergies. What’s driving the increase?**\
-`By Katie Mogg`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-raised-questions-about-rising-rates-of-food-allergies-whats-driving-the-increase
 
