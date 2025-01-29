@@ -36,5 +36,5 @@ https://nytimes.com/2025/01/29/business/howard-lutnick-greenland.html
 
 **Meta Gave Away Its A.I. Crown Jewels. DeepSeek Vindicated Its Strategy.**\
 `The Silicon Valley giant was criticized for giving away its core A.I. technology two years ago for anyone to use. Now that bet is having an impact.`\
-https://nytimes.com/2025/01/29/technology/meta-gave-away-its-ai-crown-jewels-deepseek-vindicated-its-strategy.html
+https://nytimes.com/2025/01/29/technology/meta-deepseek-ai-open-source.html
 
