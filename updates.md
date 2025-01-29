@@ -1,3 +1,7 @@
+**The Pulse: Another NBA star on the move?**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6094487/2025/01/29/deaaron-fox-kings-trade-the-pulse/
+
 **Shaw returns to Man Utd full training after latest injury layoff**\
 `Luke Shaw has returned to Manchester United full training for the first time since December.`\
 https://nytimes.com/athletic/6096517/2025/01/29/manchester-united-team-news-luke-shaw-injury/
