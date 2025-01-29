@@ -1,3 +1,15 @@
+**Pentagon Allows ICE to Use Colorado Military Base to Detain Migrants**\
+`The decision to allow law enforcement officers to use facilities at Buckley Space Force Base in Aurora, Colo., plunges the U.S. military deeper into President Trump’s order to secure the southwestern border.`\
+https://nytimes.com/2025/01/28/us/politics/ice-deportations-colorado-base.html
+
+**Starbucks Reports Weak Earnings as It Tries to Woo Back Customers**\
+`Traffic is down, but improving. “Much of our work is just beginning,” said Brian Niccol, the chief executive.`\
+https://nytimes.com/2025/01/28/business/starbucks-earnings.html
+
+**Israel Is Urged to Reverse Course on Palestinian Aid Agency Ban**\
+`Diplomats at the United Nations Security Council said planned restrictions on the agency, UNRWA, would imperil Palestinians. Only the U.S. sides with Israel.`\
+https://nytimes.com/2025/01/28/world/middleeast/unrwa-israel-un.html
+
 **White House Press Secretary Makes Steely and Unflinching Debut**\
 `Karoline Leavitt used her first briefing in the role to warn veteran reporters that they were increasingly irrelevant.`\
 https://nytimes.com/2025/01/28/us/politics/karoline-leavitt-debut.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/28/movies/barry-michael-cooper-dead.html
 **Giants GM Joe Schoen on QB prospect Shedeur Sanders: "He's a great kid"**\
 `Schoen goes long on his meeting with Sanders, the Senior Bowl as a building ground for talent, and Mike Kafka's potential departure.`\
 https://nytimes.com/athletic/6095340/2025/01/28/giants-joe-schoen-shedeur-sanders-senior-bowl/
-
-**Democrats find a voice in opposition to Trump’s funding halt.**\
-`By Lisa Lerer and Reid J. Epstein`\
-https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/democrats-find-a-voice-in-opposition-to-trumps-funding-halt
-
-**Padres agree to re-sign catcher Elias Díaz: Sources**\
-`The San Diego Padres are on the verge of handing out their first major-league free-agent contract of the offseason.`\
-https://nytimes.com/athletic/6095723/2025/01/28/padres-sign-elias-diaz-sources/
-
-**U.S. Halt to Foreign Aid Cripples Programs Worldwide**\
-`Many of the frozen programs are aimed at alleviating disease and malnutrition, but even security programs with U.S. funding are shutting down.`\
-https://nytimes.com/2025/01/28/us/politics/trump-rubio-foreign-aid.html
 

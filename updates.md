@@ -1,3 +1,15 @@
+**Pentagon Allows ICE to Use Colorado Military Base to Detain Migrants**\
+`The decision to allow law enforcement officers to use facilities at Buckley Space Force Base in Aurora, Colo., plunges the U.S. military deeper into President Trump’s order to secure the southwestern border.`\
+https://nytimes.com/2025/01/28/us/politics/ice-deportations-colorado-base.html
+
+**Starbucks Reports Weak Earnings as It Tries to Woo Back Customers**\
+`Traffic is down, but improving. “Much of our work is just beginning,” said Brian Niccol, the chief executive.`\
+https://nytimes.com/2025/01/28/business/starbucks-earnings.html
+
+**Israel Is Urged to Reverse Course on Palestinian Aid Agency Ban**\
+`Diplomats at the United Nations Security Council said planned restrictions on the agency, UNRWA, would imperil Palestinians. Only the U.S. sides with Israel.`\
+https://nytimes.com/2025/01/28/world/middleeast/unrwa-israel-un.html
+
 **White House Press Secretary Makes Steely and Unflinching Debut**\
 `Karoline Leavitt used her first briefing in the role to warn veteran reporters that they were increasingly irrelevant.`\
 https://nytimes.com/2025/01/28/us/politics/karoline-leavitt-debut.html
