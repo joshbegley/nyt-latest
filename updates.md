@@ -1,3 +1,7 @@
+**The freeze had caused mass confusion as groups checked whether their federal funding was affected.**\
+`The freeze caused outrage after it interrupted the Medicaid health care system and sent schools, hospitals and nonprofits scrambling to understand if they had lost their federal support.`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-freeze-grants
+
 **Hamas Is Expected to Release 8 Israeli and Thai Hostages**\
 `The release planned for Thursday would be the third so far as Israel and Hamas observe a six-week truce, part of a multiphase agreement that mediators hope will end the war in Gaza.`\
 https://nytimes.com/2025/01/29/world/middleeast/israel-hamas-gaza-hostages.html
