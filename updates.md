@@ -1,3 +1,7 @@
+**Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
+`The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
+https://nytimes.com/2025/01/29/technology/microsoft-earnings-stock.html
+
 **Five under-the-radar San Francisco Giants prospects to follow in 2025**\
 `Players range from an older prospect the Giants got from the independent leagues to a splashy international signing who fell off the radar.`\
 https://nytimes.com/athletic/6095624/2025/01/29/sf-giants-underrated-prospects-2025/
