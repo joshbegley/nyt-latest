@@ -1,3 +1,7 @@
+**Van de Ven in contention for Spurs return, Maddison out for around three weeks**\
+`Ange Postecoglou says Micky van de Ven could return for Tottenham in Thursday&#8217;s Europa League tie against Elfsborg, while James Maddison is expected to be sidelined for between two and three with a calf injury.`\
+https://nytimes.com/athletic/6096547/2025/01/29/tottenham-injuries-maddison-van-de-ven/
+
 **Democrats to Question Commerce Nominee’s Web of Financial Interests**\
 `Howard Lutnick, the wealthy financier Trump has picked to lead the Commerce Department, is set to be questioned by the Senate in a nomination hearing Wednesday.`\
 https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-nominees-web-of-financial-interests.html

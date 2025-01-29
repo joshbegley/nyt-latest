@@ -1,3 +1,7 @@
+**Van de Ven in contention for Spurs return, Maddison out for around three weeks**\
+`Ange Postecoglou says Micky van de Ven could return for Tottenham in Thursday&#8217;s Europa League tie against Elfsborg, while James Maddison is expected to be sidelined for between two and three with a calf injury.`\
+https://nytimes.com/athletic/6096547/2025/01/29/tottenham-injuries-maddison-van-de-ven/
+
 **Democrats to Question Commerce Nominee’s Web of Financial Interests**\
 `Howard Lutnick, the wealthy financier Trump has picked to lead the Commerce Department, is set to be questioned by the Senate in a nomination hearing Wednesday.`\
 https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-nominees-web-of-financial-interests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095545/2025/01/29/chargers-salary-cap-aggressive-o
 **What to Know About Trump’s Plan to Slash the Federal Work Force**\
 `The Office of Personnel Management sought to entice civilian federal employees to resign, as President Trump seeks to reshape the U.S. government. Here are details of the plan.`\
 https://nytimes.com/2025/01/29/us/politics/trump-federal-workers-buyout.html
-
-**Top U.S. Envoy Visits Israel in Show of Support for Gaza Cease-Fire**\
-`Steven Witkoff, who played an important role in brokering the truce between Israel and Hamas, was expected to meet with Israel’s prime minister and to visit Gaza.`\
-https://nytimes.com/2025/01/29/world/middleeast/israel-gaza-witkoff-visit.html
 
