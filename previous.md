@@ -1,3 +1,7 @@
+**Republicans to Watch During Kennedy’s Confirmation Hearings**\
+`With most Democrats likely to vote against him, Robert F. Kennedy Jr.’s bid for health secretary will come down whether he can win over skeptics in President Trump’s party.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-republicans-mcconnell.html
+
 **Trust in health agencies that Kennedy would oversee is in decline.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-confirmation-child-vaccinations
@@ -27,14 +31,10 @@ https://nytimes.com/2025/01/29/style/marital-intervention.html
 https://nytimes.com/athletic/6096480/2025/01/29/carli-lloyd-the-soccer-tournament/
 
 **Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
-`The Championship club are under fire for rejecting a fan petition to retire No 8 shirt in honour of their late former player`\
+`Yorkshire club are under fire for rejecting a fan petition to retire women's team's No 8 shirt in honour of their late former player`\
 https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
 
 **Van de Ven in contention for Spurs return, Maddison out for around three weeks**\
 `Ange Postecoglou says Micky van de Ven could return for Tottenham in Thursday&#8217;s Europa League tie against Elfsborg, while James Maddison is expected to be sidelined for between two and three with a calf injury.`\
 https://nytimes.com/athletic/6096547/2025/01/29/tottenham-injuries-maddison-van-de-ven/
-
-**Democrats to Question Commerce Nominee’s Web of Financial Interests**\
-`Howard Lutnick, the wealthy financier Trump has picked to lead the Commerce Department, is set to be questioned by the Senate in a nomination hearing Wednesday.`\
-https://nytimes.com/2025/01/29/business/economy/democrats-to-question-commerce-nominees-web-of-financial-interests.html
 

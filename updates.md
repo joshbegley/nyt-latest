@@ -1,3 +1,11 @@
+**Republicans to Watch During Kennedy’s Confirmation Hearings**\
+`With most Democrats likely to vote against him, Robert F. Kennedy Jr.’s bid for health secretary will come down whether he can win over skeptics in President Trump’s party.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-republicans-mcconnell.html
+
+**Sheffield United labelled "disrespectful" after deciding not to retire Maddy Cusack shirt**\
+`Yorkshire club are under fire for rejecting a fan petition to retire women's team's No 8 shirt in honour of their late former player`\
+https://nytimes.com/athletic/6089117/2025/01/29/sheffield-united-maddy-cusack-shirt-retire/
+
 **Trust in health agencies that Kennedy would oversee is in decline.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-confirmation-child-vaccinations
