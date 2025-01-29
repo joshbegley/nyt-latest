@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6097139/2025/01/29/nfl-media-session-takeaways-raid
 `Neymar has reached an agreement to rejoin boyhood club Santos on a six-month contract after leaving Al Hilal.`\
 https://nytimes.com/athletic/5891198/2025/01/29/neymar-santos-transfer-contract/
 
-**Kennedy appears unfamiliar with key aspects of Medicare and Medicaid.**\
-`By Sarah Kliff and Reed Abelson`\
+**R.F.K. Jr. Appears Unfamiliar With Key Elements of Medicare and Medicaid**\
+`In testimony to the Senate Finance Committee, Mr. Kennedy seemed to confuse the two government programs that cover more than 150 million Americans.`\
 https://nytimes.com/2025/01/29/health/medicaid-medicare-rfk-jr.html
 

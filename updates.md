@@ -1,3 +1,7 @@
+**R.F.K. Jr. Appears Unfamiliar With Key Elements of Medicare and Medicaid**\
+`In testimony to the Senate Finance Committee, Mr. Kennedy seemed to confuse the two government programs that cover more than 150 million Americans.`\
+https://nytimes.com/2025/01/29/health/medicaid-medicare-rfk-jr.html
+
 **Kennedy appears unfamiliar with key aspects of Medicare and Medicaid.**\
 `By Sarah Kliff and Reed Abelson`\
 https://nytimes.com/2025/01/29/health/medicaid-medicare-rfk-jr.html
