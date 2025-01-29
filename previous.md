@@ -1,3 +1,19 @@
+**Why are Brighton struggling so much at home, and what can they do to fix it?**\
+`Their creaking form at the Amex is destined to define the strength of Brighton's Europe aspirations...`\
+https://nytimes.com/athletic/6086344/2025/01/29/brighton-home-form/
+
+**Why Chelsea won't sign a Sanchez replacement - but it might be time to look at Jorgensen**\
+`Robert Sanchez made a notable error against Manchester City at the weekend`\
+https://nytimes.com/athletic/6094140/2025/01/29/chelsea-robert-sanchez-goalkeeper-analysis/
+
+**Forest don't need to overreact to 5-0 defeat - but could do with one versatile addition before the deadline**\
+`Brentford forward Wissa's ability to play all along the front line could be the signing Nuno needs to keep the season on track`\
+https://nytimes.com/athletic/6094252/2025/01/29/forest-winter-window-one-clever-addition/
+
+**Endo is becoming a Liverpool cult hero despite hardly ever starting**\
+`The midfielder hasn't started a Premier League game this season but is Arne Slot's go-to substitute when he needs to see out a result`\
+https://nytimes.com/athletic/6092397/2025/01/29/wataru-endo-liverpool-fans/
+
 **The miracle of Brest, a club a world apart from Champions League opponents Real Madrid**\
 `Despite no European pedigree and limited resources, the French club are above Real Madrid, Man City and PSG in the table with one game to go`\
 https://nytimes.com/athletic/6093105/2025/01/29/the-miracle-of-brest-a-club-a-world-apart-from-champions-league-opponents-real-madrid/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6094343/2025/01/29/champions-league-projections-mat
 **Quote of the Day: The Speaker Asserts His Dependence**\
 `Quotation of the Day for Wednesday, January 29, 2025.`\
 https://nytimes.com/2025/01/29/pageoneplus/quote-of-the-day-the-speaker-asserts-his-dependence.html
-
-**Citizen Scientists Reclaim Japan’s Nuclear Disaster Zone**\
-`Armed with measuring devices, groups of citizens are embracing science to monitor radioactive fallout — and regain control of lives upended by the 2011 meltdowns in Fukushima.`\
-https://nytimes.com/2025/01/29/world/asia/citizen-scientists-japan-fukushima.html
-
-**American Children’s Reading Skills Reach New Lows**\
-`With little post-pandemic recovery, experts wonder if screen time and school absence are among the causes.`\
-https://nytimes.com/2025/01/29/us/reading-skills-naep.html
-
-**Man City vs Brugge: Odds, prediction, how to watch as City fight for Champions League lives**\
-`Manchester City take on Brugge in the final league phase match in the Champions League. City must win to stay alive in the competition.`\
-https://nytimes.com/athletic/6094871/2025/01/29/manchester-city-brugge-odds-prediction-how-to-watch-champions-league/
-
-**Why I Joined: Football Manager, Wes Hoolahan and creative data storytelling**\
-`Conor O'Neill, our new data and tactics writer at The Athletic, explains why he joined and his journey so far`\
-https://nytimes.com/athletic/6094190/2025/01/29/why-i-joined-the-athletic-conor-oneill/
 

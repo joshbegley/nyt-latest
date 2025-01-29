@@ -1,3 +1,19 @@
+**Why are Brighton struggling so much at home, and what can they do to fix it?**\
+`Their creaking form at the Amex is destined to define the strength of Brighton's Europe aspirations...`\
+https://nytimes.com/athletic/6086344/2025/01/29/brighton-home-form/
+
+**Why Chelsea won't sign a Sanchez replacement - but it might be time to look at Jorgensen**\
+`Robert Sanchez made a notable error against Manchester City at the weekend`\
+https://nytimes.com/athletic/6094140/2025/01/29/chelsea-robert-sanchez-goalkeeper-analysis/
+
+**Forest don't need to overreact to 5-0 defeat - but could do with one versatile addition before the deadline**\
+`Brentford forward Wissa's ability to play all along the front line could be the signing Nuno needs to keep the season on track`\
+https://nytimes.com/athletic/6094252/2025/01/29/forest-winter-window-one-clever-addition/
+
+**Endo is becoming a Liverpool cult hero despite hardly ever starting**\
+`The midfielder hasn't started a Premier League game this season but is Arne Slot's go-to substitute when he needs to see out a result`\
+https://nytimes.com/athletic/6092397/2025/01/29/wataru-endo-liverpool-fans/
+
 **The miracle of Brest, a club a world apart from Champions League opponents Real Madrid**\
 `Despite no European pedigree and limited resources, the French club are above Real Madrid, Man City and PSG in the table with one game to go`\
 https://nytimes.com/athletic/6093105/2025/01/29/the-miracle-of-brest-a-club-a-world-apart-from-champions-league-opponents-real-madrid/
