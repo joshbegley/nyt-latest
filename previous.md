@@ -1,3 +1,23 @@
+**Ryne Stanek, Mets agree to 1-year deal: Source**\
+`The Mets and right-hander Ryne Stanek reached an agreement Wednesday on a one-year contract, league sources confirmed.`\
+https://nytimes.com/athletic/6097261/2025/01/29/ryne-stanek-mets-contract/
+
+**Trump’s Tariffs Scramble Fed’s Interest Rate Calculus**\
+`Economists predict that the Trump administration’s trade policies could push up prices for consumers, making it harder for Fed officials to cut rates.`\
+https://nytimes.com/2025/01/29/business/trumps-tariffs-scramble-feds-interest-rate-calculus.html
+
+**Kennedy sought to stop Covid vaccinations 6 months after rollout.**\
+`By Christina Jewett`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-sought-to-stop-covid-vaccinations-6-months-after-rollout
+
+**Caitlin Clark effect: Iowa generated more than $3.2 million in ticket sales in 2023-24**\
+`Iowa welcomes Clark back to Carver-Hawkeye Arena on Sunday for her jersey retirement ceremony against No. 4 USC.`\
+https://nytimes.com/athletic/6097170/2025/01/29/caitlin-clark-basketball-ticket-sales-iowa-hawkeyes/
+
+**Yes, abortion pills are safe. Here’s what studies have shown.**\
+`By Amy Schoenfeld Walker`\
+https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/yes-abortion-pills-are-safe-heres-what-studies-have-shown
+
 **Gerrard set to leave role as head coach of Saudi club Al Ettifaq**\
 `Steven Gerrard is set to leave his role as head coach of Saudi Arabian club Al Ettifaq.`\
 https://nytimes.com/athletic/5887908/2025/01/29/steven-gerrard-exit-saudi-al-ettifaq/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/01/29/business/fed-interest-rates
 **As Trump Targets Universities, Schools Plan a Counteroffensive**\
 `Universities are hiring lobbyists connected to Republicans and opening offices in Washington to argue their causes amid threats to funding.`\
 https://nytimes.com/2025/01/29/us/trump-targets-universities-schools-plan-counteroffensive.html
-
-**Good Luck, Babes!**\
-`The Times critic Wesley Morris on the eight songs duking it out for Record of the Year.`\
-https://nytimes.com/2025/01/29/podcasts/2025-grammys.html
-
-**Buendia joins Leverkusen on loan, signs new Villa contract**\
-`Bayer Leverkusen have completed the loan signing of Emi Buendia from Aston Villa.`\
-https://nytimes.com/athletic/6096644/2025/01/29/emi-buendia-leverkusen-loan/
-
-**FCSB or Steaua Bucharest: Who are Manchester United's Europa League opponents?**\
-`The argument over who owns the true history of Romania’s most successful club - and with it the 1986 European Cup - continues to rage`\
-https://nytimes.com/athletic/6096595/2025/01/29/fcsb-steaua-bucharest-manchester-united-becali/
-
-**‘Dog Man’ Review: Best Friends Forever**\
-`A police officer and a dog get fused into one crime-fighter in this antic, enjoyable adaptation of Dav Pilkey’s comic series.`\
-https://nytimes.com/2025/01/29/movies/dog-man-review.html
-
-**Man Utd interested in potential loan move for Bayern's Tel**\
-`Manchester United are interested in a potential move for Bayern Munich forward Mathys Tel, should the 19-year-old be made available to leave on loan before the transfer window closes.`\
-https://nytimes.com/athletic/6060673/2025/01/29/mathys-tel-manchester-united-transfer/
 
