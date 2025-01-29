@@ -1,3 +1,7 @@
+**Transgender Americans say Trump’s orders are even worse than feared.**\
+`Three executive orders, including a push to end transition treatments for minors, have left advocates for trans people reeling.`\
+https://nytimes.com/live/2025/01/28/us/trump-news-executive-orders/transgender-americans-say-trump-orders-are-even-worse-than-feared
+
 **Practicing for When the Bombs Fall in ‘A Knock on the Roof’**\
 `In a new solo play about ordinary people under bombardment in Gaza, a woman rehearses how she would escape her building if Israeli forces were to strike.`\
 https://nytimes.com/2025/01/28/theater/a-knock-on-the-roof-review.html
