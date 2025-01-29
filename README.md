@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6096150/2025/01/29/nba-trade-intel-warriors-jimmy-b
 
 **Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
 `The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
-https://nytimes.com/2025/01/29/technology/microsoft-continues-to-spend-big-on-ai-as-profit-grows-10.html
+https://nytimes.com/2025/01/29/technology/microsoft-earnings-stock.html
 
 **Man Utd a 'better team' with Rashford, says Amorim: 'We need goals'**\
 `Ruben Amorim has said Manchester United are &#8220;a better team&#8221; with Marcus Rashford and that they need to score more goals.`\
