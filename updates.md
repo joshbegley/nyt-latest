@@ -1,3 +1,7 @@
+**The Justice Dept. seeks to have criminal charges dismissed against a former Republican representative.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/the-justice-dept-seeks-to-have-criminal-charges-dismissed-against-a-former-republican-representative
+
 **Blues, Brandon Saad agree to mutual contract termination**\
 `Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
 https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-contract-termination/
