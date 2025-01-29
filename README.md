@@ -1,3 +1,7 @@
+**Blues, Brandon Saad agree to mutual contract termination**\
+`Over the past four seasons, Saad has played 274 games for the Blues and is tied for the third-most goals on the team (76).`\
+https://nytimes.com/athletic/6097535/2025/01/29/blues-brandon-saad-contract-termination/
+
 **Elon Musk’s Downplaying of Germany’s Nazi Past**\
 `Readers discuss the Auschwitz anniversary and a Musk speech. Also: Threats against Dr. Fauci; resign, or else; police use of tasers; aging women; an invitation to letter writers.`\
 https://nytimes.com/2025/01/29/opinion/elon-musk-germany-nazi-past.html
@@ -24,7 +28,7 @@ https://nytimes.com/2025/01/29/us/ken-burns-on-william-e-leuchtenburg.html
 
 **DeSantis Says He Will Veto Immigration Bill in Clash With Lawmakers**\
 `The veto pledge capped a dramatic few days in which Republican legislators publicly criticized Gov. Ron DeSantis and portrayed themselves as truer allies of President Trump.`\
-https://nytimes.com/2025/01/29/us/desantis-says-he-will-veto-immigration-bill-in-clash-with-lawmakers.html
+https://nytimes.com/2025/01/29/us/desantis-veto-immigration-bill.html
 
 **The weirdest and silliest Super Bowl 2025 prop bets: Will Kelce propose to Swift?**\
 `There are plenty of goofy bets relating to the Super Bowl, from a Travis Kelce proposal to Taylor Swift to tears during the national anthem.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097463/2025/01/29/weirdest-silliest-super-bowl-202
 **Kennedy says processed foods are driving chronic disease. Here’s what the science shows.**\
 `By Alice Callahan`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-processed-foods-are-driving-chronic-disease-heres-what-the-science-shows
-
-**‘Picnic at Hanging Rock’: A Classic Disappearing Act Reappears**\
-`Anointed Australia’s greatest movie by the country’s film institute, “Hanging Rock,” in a new restoration, opens Friday at the IFC Center.`\
-https://nytimes.com/2025/01/29/movies/picnic-at-hanging-rock-restoration.html
 
