@@ -1,3 +1,11 @@
+**Notre Dame hiring Chris Ash as defensive coordinator: Source**\
+`Chris Ash, a former Rutgers head coach who spent the past four years in the NFL, will be Notre Dame's new defensive coordinator.`\
+https://nytimes.com/athletic/6097759/2025/01/29/chris-ash-notre-dame-defensive-coordinator/
+
+**Caitlin Clark will not participate in NBA All-Star Weekend 3-point challenge**\
+`Clark wants her first 3-point contest to be at the WNBA All-Star festivities in Indianapolis this summer.`\
+https://nytimes.com/athletic/6097690/2025/01/29/caitlin-clark-nba-three-point-contest-wnba/
+
 **The Justice Dept. seeks to have criminal charges dismissed against a former Republican representative.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/the-justice-dept-seeks-to-have-criminal-charges-dismissed-against-a-former-republican-representative
