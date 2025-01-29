@@ -1,3 +1,7 @@
+**Hamas Is Expected to Release 8 Israeli and Thai Hostages**\
+`The release planned for Thursday would be the third so far as Israel and Hamas observe a six-week truce, part of a multiphase agreement that mediators hope will end the war in Gaza.`\
+https://nytimes.com/2025/01/29/world/middleeast/israel-hamas-gaza-hostages.html
+
 **Kennedy says too many children take A.D.H.D. medications, while inflating his figures.**\
 `By Ellen Barry`\
 https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says-too-many-children-take-adhd-medications-while-inflating-his-figures
