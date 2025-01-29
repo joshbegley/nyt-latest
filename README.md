@@ -1,3 +1,7 @@
+**Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
+`The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
+https://nytimes.com/2025/01/29/technology/microsoft-continues-to-spend-big-on-ai-as-profit-grows-10.html
+
 **Man Utd a 'better team' with Rashford, says Amorim: 'We need goals'**\
 `Ruben Amorim has said Manchester United are &#8220;a better team&#8221; with Marcus Rashford and that they need to score more goals.`\
 https://nytimes.com/athletic/6097829/2025/01/29/marcus-rashford-manchester-united-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/briefing/trump-funding-reversal-india-stampede-ha
 **How Menendez Destroyed His Legacy With Gold Bars and a Halal Hustle**\
 `The former New Jersey senator was sentenced to 11 years in prison after being convicted of bribery and corruption.`\
 https://nytimes.com/2025/01/29/nyregion/robert-menendez-senate-corruption-legacy.html
-
-**Defying Legal Limits, Trump Firings Set Up Tests That Could Expand His Power**\
-`The prospect of legal challenges to President Trump’s purges may be a feature, not a bug, for adherents of sweeping presidential authority.`\
-https://nytimes.com/2025/01/29/us/politics/trump-firings-officials-legal-test.html
 
