@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/29/wnba-2025-free-agency-tracker-best-players/
+
 **Buendia joins Leverkusen on loan, signs new Villa contract**\
 `Bayer Leverkusen have completed the loan signing of Emi Buendia from Aston Villa.`\
 https://nytimes.com/athletic/6096644/2025/01/29/emi-buendia-leverkusen-loan/
