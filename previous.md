@@ -1,3 +1,8 @@
+**A poor start, missed opportunities and a game that got out of hand: Rangers takeaways**\
+`After dropping their second straight game, the Rangers have little room for error at this point in the season.
+`\
+https://nytimes.com/athletic/6096153/2025/01/28/rangers-hurricanes-takeaways-score/
+
 **Bedard dazzles, Slaggert energizes as Blackhawks' youth movement continues**\
 `The Blackhawks are looking ever younger on the ice, including in a 4-1 win over the Lightning Tuesday night.`\
 https://nytimes.com/athletic/6096148/2025/01/28/blackhawks-youth-movement-slaggert-bedard-soderblom-lightning/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/01/28/us/politics/trump-iron-dome.html
 **Brittney Griner agrees to 1-year deal with Dream**\
 `Griner entered the offseason as the second-longest tenured WNBA player with one team, having spent her entire career in Phoenix.`\
 https://nytimes.com/athletic/6095972/2025/01/28/brittney-griner-atlanta-dream-phoenix-mercury-wnba/
-
-**Scheffler details 'stupid' kitchen accident that delayed his start to 2025**\
-`After injuring himself while making ravioli on Christmas, top-ranked player makes belated PGA Tour return this week at Pebble Beach Pro-Am.`\
-https://nytimes.com/athletic/6095904/2025/01/28/scottie-scheffler-hand-injury-update-ravioli/
 
