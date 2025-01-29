@@ -1,3 +1,7 @@
+**Word of the Day: adulation**\
+`This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/29/learning/word-of-the-day-adulation.html
+
 **Kliff Kingsbury to stay with Commanders, Mike McCarthy out for Saints' vacancy**\
 `Kingsbury staying in Washington isn't a surprise for the NFC conference runner-ups.`\
 https://nytimes.com/athletic/6096298/2025/01/29/kliff-kingsbury-mike-mccarthy-saints-head-coach-withdrawal/
