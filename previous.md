@@ -1,3 +1,11 @@
+**Office of Management and Budget Spreadsheet of 2,600 Federal Programs Under Review**\
+`The White House’s Office of Management and Budget sent this document to government agencies listing about 2,600 programs that were under review.`\
+https://nytimes.com/interactive/2025/01/29/upshot/trump-omb-spreadsheet.html
+
+**NBA trade deadline preview: Fantasy implications of potential Fox, Butler deals and more**\
+`Eric Wong looks at the top players who may be dealt ahead of the NBA trade deadline and the fantasy ramifications of those potential moves.`\
+https://nytimes.com/athletic/6097109/2025/01/29/fantasy-basketball-trade-deadline-preview-jimmy-butler-deaaron-fox/
+
 **Farage Says He Talked to Musk Last Week. Relationship is ‘Fine.’**\
 `Three weeks after a rift, the head of the populist Reform U.K. party said Elon Musk remains open to a donation that could shake up British politics.`\
 https://nytimes.com/2025/01/29/world/europe/farage-musk-uk-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/kennedy-says
 **New Harvey Weinstein Sex Crimes Trial Is Set for April 15**\
 `The disgraced movie mogul asked for his trial to be accelerated, calling Rikers Island a “hellhole.” He faces three sex-crime charges.`\
 https://nytimes.com/2025/01/29/nyregion/weinstein-sex-charge-trial-date.html
-
-**What Kennedy has said about weight loss drugs and the obesity epidemic.**\
-`By Gina Kolata`\
-https://nytimes.com/live/2025/01/29/us/rfk-jr-health-senate-hearing/rfk-jr-weight-loss-obesity
-
-**Higher-for-Longer Interest Rates Mean More Expensive Federal Debt**\
-`The Fed’s key rate has a bearing on the sustainability of public borrowing, which is heading to striking levels.`\
-https://nytimes.com/2025/01/29/business/government-debt-deficits-interest-rates.html
 

@@ -1,3 +1,11 @@
+**Office of Management and Budget Spreadsheet of 2,600 Federal Programs Under Review**\
+`The White House’s Office of Management and Budget sent this document to government agencies listing about 2,600 programs that were under review.`\
+https://nytimes.com/interactive/2025/01/29/upshot/trump-omb-spreadsheet.html
+
+**NBA trade deadline preview: Fantasy implications of potential Fox, Butler deals and more**\
+`Eric Wong looks at the top players who may be dealt ahead of the NBA trade deadline and the fantasy ramifications of those potential moves.`\
+https://nytimes.com/athletic/6097109/2025/01/29/fantasy-basketball-trade-deadline-preview-jimmy-butler-deaaron-fox/
+
 **Farage Says He Talked to Musk Last Week. Relationship is ‘Fine.’**\
 `Three weeks after a rift, the head of the populist Reform U.K. party said Elon Musk remains open to a donation that could shake up British politics.`\
 https://nytimes.com/2025/01/29/world/europe/farage-musk-uk-politics.html
