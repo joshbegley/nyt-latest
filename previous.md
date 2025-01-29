@@ -1,3 +1,11 @@
+**‘Open the Door, Open the Door!’: How Dozens Fled an Inferno on a Plane**\
+`A month after the deadliest aviation disaster on South Korean soil, a fire destroyed another passenger jet in the country.`\
+https://nytimes.com/2025/01/29/world/asia/south-korea-busan-airplane-fire.html
+
+**14 Convicted in Death of Girl for Depriving Her of Insulin**\
+`The parents of Elizabeth Rose Struhs, who died in 2022, were part of a small religious sect in Australia that believed that medical care went against their faith.`\
+https://nytimes.com/2025/01/29/world/australia/struhs-sect-conviction-insulin.html
+
 **Shadows of Musk in the Government’s Buyouts Plan**\
 `President Trump’s chief cost-cutter cheered an effort to persuade federal workers to quit — in a fashion that closely resembles a purge at Twitter.`\
 https://nytimes.com/2025/01/29/business/dealbook/musk-trump-federal-buyouts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6086282/2025/01/29/patrick-dorgu-manchester-united-
 **A Tropical, Chewy Lunar New Year Dessert**\
 `The writer and curator Su Wu’s version of tang yuan reflects her family’s history and her life in Mexico City.`\
 https://nytimes.com/2025/01/29/t-magazine/tang-yuan-dessert-recipe.html
-
-**Three Countries Officially Quit Major West African ECOWAS Alliance**\
-`Burkina Faso, Mali and Niger accused the bloc of having double standards in punishing their military juntas. Negotiations failed to change their minds.`\
-https://nytimes.com/2025/01/29/world/africa/ecowas-burkina-faso-mali-niger.html
-
-**It’s Cold Outside! Warm Up With a Hot Romance Novel.**\
-`Our columnist on three spicy new releases.`\
-https://nytimes.com/2025/01/29/books/review/new-romance-books.html
 
