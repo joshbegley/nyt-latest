@@ -1,3 +1,15 @@
+**Mark Daigneault and first-place Thunder practice being present: 'Be where our feet are'**\
+`What Oklahoma City calls a "0-0 mentality" is drilled into its members. That process has resulted in the team owning the NBA's best record.`\
+https://nytimes.com/athletic/6084483/2025/01/29/mark-daigneault-thunder-nba-standings/
+
+**Man United reach broad agreement to sign Dorgu from Lecce**\
+`Manchester United have reached a broad agreement with Lecce for the transfer of Patrick Dorgu for €30million (£25.`\
+https://nytimes.com/athletic/6086282/2025/01/29/patrick-dorgu-manchester-united-transfer/
+
+**A Tropical, Chewy Lunar New Year Dessert**\
+`The writer and curator Su Wu’s version of tang yuan reflects her family’s history and her life in Mexico City.`\
+https://nytimes.com/2025/01/29/t-magazine/tang-yuan-dessert-recipe.html
+
 **Three Countries Officially Quit Major West African ECOWAS Alliance**\
 `Burkina Faso, Mali and Niger accused the bloc of having double standards in punishing their military juntas. Negotiations failed to change their minds.`\
 https://nytimes.com/2025/01/29/world/africa/ecowas-burkina-faso-mali-niger.html
