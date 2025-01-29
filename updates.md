@@ -1,3 +1,15 @@
+**Champions League odds: Liverpool favoured ahead of Arsenal, Real, Barca after league phase**\
+`Liverpool ended the league phase of the Champions League top of the table and is the favourite in the odds to lift the trophy.`\
+https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-favoured-ahead-of-arsenal-real-madrid-barcelona/
+
+**Iris Cummings Critchell, 104, Dies; Swimmer Turned Prominent Aviator**\
+`The last survivor of the American team that competed in the 1936 Olympics in Berlin, she went on to forge a career as an influential aeronautics instructor.`\
+https://nytimes.com/2025/01/29/sports/iris-cummings-critchell-dead.html
+
+**Courtney Vandersloot agrees to 1-year deal with Chicago Sky**\
+`Vandersloot had free-agent interest from several teams, but only met with Chicago, Golden State and Seattle, league sources said.`\
+https://nytimes.com/athletic/6098304/2025/01/29/courtney-vandersloot-wnba-free-agency-chicago-sky/
+
 **Bernie Sanders Questions R.F.K. Jr. About His Stance on Vaccines**\
 `Senator Bernie Sanders, Independent of Vermont, asked Robert F. Kennedy Jr. to disavow baby onesies with anti-vaccination slogans. The clothes are sold by a nonprofit Mr. Kennedy co-founded.`\
 https://nytimes.com/video/us/politics/100000009957725/rfk-jr-confirmation-hearing-sanders.html

@@ -2,8 +2,8 @@
 `Liverpool ended the league phase of the Champions League top of the table and is the favourite in the odds to lift the trophy.`\
 https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-favoured-ahead-of-arsenal-real-madrid-barcelona/
 
-**Iris Cummings Critchell, 104, Dies; Swimmer Turned Prominent Aviator**\
-`The last survivor of the American team that competed in the 1936 Olympics in Berlin, she went on to forge a career as an influential aeronautics instructor.`\
+**Iris Cummings Critchell, 104, Dies; Olympic Swimmer Turned Aviator**\
+`The last survivor of the American team that competed in Hitler’s 1936 Games in Berlin, she went on to forge a career as an influential aeronautics instructor.`\
 https://nytimes.com/2025/01/29/sports/iris-cummings-critchell-dead.html
 
 **Courtney Vandersloot agrees to 1-year deal with Chicago Sky**\

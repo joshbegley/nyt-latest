@@ -1,3 +1,15 @@
+**Champions League odds: Liverpool favoured ahead of Arsenal, Real, Barca after league phase**\
+`Liverpool ended the league phase of the Champions League top of the table and is the favourite in the odds to lift the trophy.`\
+https://nytimes.com/athletic/6098084/2025/01/29/champions-league-odds-liverpool-favoured-ahead-of-arsenal-real-madrid-barcelona/
+
+**Iris Cummings Critchell, 104, Dies; Swimmer Turned Prominent Aviator**\
+`The last survivor of the American team that competed in the 1936 Olympics in Berlin, she went on to forge a career as an influential aeronautics instructor.`\
+https://nytimes.com/2025/01/29/sports/iris-cummings-critchell-dead.html
+
+**Courtney Vandersloot agrees to 1-year deal with Chicago Sky**\
+`Vandersloot had free-agent interest from several teams, but only met with Chicago, Golden State and Seattle, league sources said.`\
+https://nytimes.com/athletic/6098304/2025/01/29/courtney-vandersloot-wnba-free-agency-chicago-sky/
+
 **Bernie Sanders Questions R.F.K. Jr. About His Stance on Vaccines**\
 `Senator Bernie Sanders, Independent of Vermont, asked Robert F. Kennedy Jr. to disavow baby onesies with anti-vaccination slogans. The clothes are sold by a nonprofit Mr. Kennedy co-founded.`\
 https://nytimes.com/video/us/politics/100000009957725/rfk-jr-confirmation-hearing-sanders.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/29/us/usps-employee-guilty-sports-memorabilia-theft.
 **Should the Leafs make a run at acquiring Brandon Saad?**\
 `There’s a strong argument to be made that Toronto should be interested in the 32-year-old veteran winger.`\
 https://nytimes.com/athletic/6097921/2025/01/29/blues-brandon-saad-maple-leafs/
-
-**What name will the Utah Hockey Club use? Explaining the 3 under consideration**\
-`SALT LAKE CITY, Utah — And then there were three.`\
-https://nytimes.com/athletic/6097754/2025/01/29/utah-hockey-club-name-change-mammoth-wasatch/
-
-**Utah Hockey Club strikes out on Yeti moniker, puts 3 names up to fan vote**\
-`SALT LAKE CITY — Yeti, long considered the favorite to become the Utah Hockey Club&#8217;s team name, is out.`\
-https://nytimes.com/athletic/6097701/2025/01/29/utah-hockey-team-name-yeti-mammoth-wasatch/
-
-**Gilgo Beach Killing Suspect Moves to Have Key DNA Evidence Thrown Out**\
-`The suspect’s lawyer has also called for the case against his client, Rex Heuermann, to be split into five trials. On Wednesday, the judge agreed to hold hearings to consider both requests.`\
-https://nytimes.com/2025/01/29/nyregion/gilgo-beach-murders-dna-evidence.html
 
