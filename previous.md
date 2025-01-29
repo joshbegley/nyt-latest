@@ -1,3 +1,11 @@
+**U.S. Open to start on Sunday in 2025 with 15 days of main-draw play**\
+`It becomes the third Grand Slam tournament to start on a Sunday.`\
+https://nytimes.com/athletic/6097916/2025/01/29/us-open-2025-start-date-sunday-schedule/
+
+**Man City's Kelly 'accepts future not at this club'; 'I want to be happy again'**\
+`Manchester City winger Chloe Kelly has said she &#8220;accepts her future is not at this club&#8221; beyond the expiration of her contract in June and said her mental wellbeing has been adversely impacted after being &#8220;dictated to whom I can and can&#8217;t join&#8221;.`\
+https://nytimes.com/athletic/6097972/2025/01/29/chloe-kelly-manchester-city-future/
+
 **Meta Agrees to Pay Trump $25 Million to Settle His Lawsuit**\
 `President Trump had sued Meta and other tech firms in 2021, arguing that he had been wrongfully censored by them. Meta also reported a 21 percent increase in quarterly revenue.`\
 https://nytimes.com/2025/01/29/technology/meta-trump-lawsuit-settlement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/climate/lee-zeldin-epa-confirmation.html
 **Warriors trade intel: What we're hearing about Jimmy Butler, Zach LaVine and more**\
 `As the clock ticks toward the deadline, the Warriors have floated a protected first-rounder as a sweetener in potential deals.`\
 https://nytimes.com/athletic/6096150/2025/01/29/nba-trade-intel-warriors-jimmy-butler/
-
-**Microsoft Continues to Spend Big on A.I. as Profit Grows 10%**\
-`The tech giant’s revenue was up 12 percent to $69.6 billion, but investors are showing their nerves after a long boom for tech stocks.`\
-https://nytimes.com/2025/01/29/technology/microsoft-earnings-stock.html
-
-**Man Utd a 'better team' with Rashford, says Amorim: 'We need goals'**\
-`Ruben Amorim has said Manchester United are &#8220;a better team&#8221; with Marcus Rashford and that they need to score more goals.`\
-https://nytimes.com/athletic/6097829/2025/01/29/marcus-rashford-manchester-united-amorim/
 

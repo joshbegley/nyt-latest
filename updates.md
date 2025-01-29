@@ -1,3 +1,11 @@
+**U.S. Open to start on Sunday in 2025 with 15 days of main-draw play**\
+`It becomes the third Grand Slam tournament to start on a Sunday.`\
+https://nytimes.com/athletic/6097916/2025/01/29/us-open-2025-start-date-sunday-schedule/
+
+**Man City's Kelly 'accepts future not at this club'; 'I want to be happy again'**\
+`Manchester City winger Chloe Kelly has said she &#8220;accepts her future is not at this club&#8221; beyond the expiration of her contract in June and said her mental wellbeing has been adversely impacted after being &#8220;dictated to whom I can and can&#8217;t join&#8221;.`\
+https://nytimes.com/athletic/6097972/2025/01/29/chloe-kelly-manchester-city-future/
+
 **Meta Agrees to Pay Trump $25 Million to Settle His Lawsuit**\
 `President Trump had sued Meta and other tech firms in 2021, arguing that he had been wrongfully censored by them. Meta also reported a 21 percent increase in quarterly revenue.`\
 https://nytimes.com/2025/01/29/technology/meta-trump-lawsuit-settlement.html
