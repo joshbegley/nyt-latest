@@ -1,3 +1,15 @@
+**Trump Administration Shakes Up Senior F.B.I. Ranks**\
+`Top officials have been told to retire or be fired in the coming days, fueling fear within the agency that has been the target of President Trump and Kash Patel, his nominee to be F.B.I. director.`\
+https://nytimes.com/2025/01/30/us/politics/trump-fbi-firing.html
+
+**What I'm hearing on De'Aaron Fox's future and the Kings**\
+`As the trade deadline nears, one league source says more than half of the league’s teams have inquired about the 27-year-old Kings’ star.`\
+https://nytimes.com/athletic/6101397/2025/01/30/deaaron-fox-trade-rumors-kings-spurs-jimmy-butler/
+
+**All 67 People Died in a Midair Crash Near Washington**\
+`Also, a hostage release in Gaza descended into chaos. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/30/briefing/washington-dc-plane-crash-bill-gates-memoir.html
+
 **Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
 `According to an investigative report, six massage therapists who worked with Tucker between 2012 and 2016 accused him of misbehavior.`\
 https://nytimes.com/athletic/6101074/2025/01/30/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
 **How to Watch FireAid, the Star-Studded Benefit for Los Angeles**\
 `The concert, featuring Billie Eilish, Olivia Rodrigo and so many stars that it will fill two arenas, will be carried on major streaming platforms.`\
 https://nytimes.com/2025/01/30/arts/music/fireaid-los-angeles-concert.html
-
-**Trump Dissolves Arts Committee Previously Restored by Biden**\
-`The disbanding of the President’s Committee on the Arts and the Humanities came amid a flurry of executive orders touching on art, culture and history.`\
-https://nytimes.com/2025/01/30/arts/trump-arts-committee-disband.html
-
-**Blue Jays agree to 1-year deal with 40-year-old Max Scherzer: Source**\
-`There is little left for Scherzer to prove or achieve, but a full productive season in his 18th year would be another feather in the cap.`\
-https://nytimes.com/athletic/6052538/2025/01/30/max-scherzer-contract-blue-jays-mlb-free-agency/
-
-**Trump’s Actions Receive Mixed Reviews, but So Far More Approve Than Disapprove**\
-`President Trump’s decision to pardon Jan. 6 rioters is deeply unpopular, though he has a slightly positive approval rating so far.`\
-https://nytimes.com/2025/01/30/us/politics/trump-approval-polls.html
 
