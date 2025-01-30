@@ -1,40 +1,40 @@
-**Tyler Herro has become Heat's stable foundation as Jimmy Butler drama has shaken Miami's core**\
-`Amidst franchise turmoil, the fifth-year guard is an All-Star candidate, eliciting bold comparisons. `\
-https://nytimes.com/athletic/6093423/2025/01/30/miami-heat-tyler-herro-player-trade/
+**The crash occurred in one of the United States’ most complex airspaces.**\
+`In the claustrophobic skies around Washington D.C., domestic flights, military helicopters and other aircraft are often flying around each other in congested airspace.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-occurred-in-one-of-the-united-states-most-complex-airspaces
 
-**Stanway set for lengthy injury absence after knee surgery**\
-`Bayern Munich and England midfielder Georgia Stanway has undergone surgery after suffering a serious knee injury.`\
-https://nytimes.com/athletic/6097282/2025/01/30/georgia-stanway-injury-england-women-bayern-munich/
+**Sam Darnold's free-agent options: Which teams make the most sense and why?**\
+`The Vikings could bring back the 27-year-old, but other teams will likely be interested, too. Here's who could be in the market for the QB.`\
+https://nytimes.com/athletic/6097894/2025/01/30/sam-darnold-vikings-free-agency/
 
-**Listen: The Good News About a Bad G.P.A.**\
-`How important are your high school grades for your future?`\
-https://nytimes.com/2025/01/30/learning/listen-the-good-news-about-a-bad-gpa.html
+**Knicks at the NBA trade deadline: Why I think New York does something**\
+`It doesn't feel like the Knicks have any tricks up their sleeve with the NBA's Feb. 6 trade deadline nearing.`\
+https://nytimes.com/athletic/6097103/2025/01/30/knicks-trade-deadline-nba/
 
-**Yankees top pitching prospect Chase Hampton finally healthy, 'ready to rock'**\
-`Said Hampton: "In reality, I just want to go out there and just be excellent."`\
-https://nytimes.com/athletic/6098255/2025/01/30/yankees-chase-hampton-update/
+**Manchester United live Q&A: Laurie Whitwell answers your questions**\
+`Pose your questions and our club correspondent Laurie Whitwell will answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6096489/2025/01/30/manchester-united-questions-transfers-amorim/
 
-**In Thailand, an anxious vigil continues for hostages half a world away.**\
-`Five families hoped that their loved ones were finally being released from Gaza after 15 months as hostages.`\
-https://nytimes.com/2025/01/30/world/middleeast/thai-hostages-gaza.html
+**For late-round picks trying to crack the NHL, all you need is a chip and a chance**\
+`Many players drafted in the sixth or seventh round never pan out. But those who do often have a grinder's mentality and a hunger to stay.`\
+https://nytimes.com/athletic/6097280/2025/01/30/nhl-late-round-draft-picks/
 
-**Patriots offseason predictions: Can they get Tee Higgins, Ronnie Stanley in free agency?**\
-`No team has better resources to improve its roster than the Patriots, who own the No. 4 pick in the draft and have lots of salary-cap space.`\
-https://nytimes.com/athletic/6097092/2025/01/30/patriots-offseason-predictions-tee-higgins-ronnie-stanley/
+**Should the Flyers be interested in acquiring J.T. Miller? What could a trade look like?**\
+`The Flyers need a high-end center and Miller qualifies as just that. Should they call Vancouver and maybe take a swing?`\
+https://nytimes.com/athletic/6097901/2025/01/30/flyers-canucks-jt-miller-trade/
 
-**As a Kid, Bill Gates Sneaked Out His Window at Night — to Write Code**\
-`A new memoir by the tech mogul recounts a boyhood steeped in old-fashioned, analog pastimes as well as precocious feats of coding.`\
-https://nytimes.com/2025/01/30/books/review/source-code-bill-gates.html
+**ESPN's Adam Schefter: 'I love to feel the energy of something that is not familiar'**\
+`Schefter opens up to The Athletic's Andrew Marchand about his role, side work he loves doing and his future as a reporter.`\
+https://nytimes.com/athletic/6098091/2025/01/30/adam-schefter-espn-nfl-reporter-ben-johnson-chicago-bears-adrian-wojnarowski/
 
-**Trump Wants Universities to Crack Down on Antisemitism. Many Already Have.**\
-`An executive order signed this week would push colleges and universities to combat antisemitism specifically by monitoring and reporting international students.`\
-https://nytimes.com/2025/01/30/us/trump-executive-order-antisemitism.html
+**What does the Red Wings' surge mean for their trade deadline approach?**\
+`The Red Wings aren't shaping up as an obvious buyer or seller at this year's deadline. But can they use it to look ahead to next season?`\
+https://nytimes.com/athletic/6098205/2025/01/30/red-wings-trade-deadline-buy-sell-2025/
 
-**Does Trump’s Cabinet Look Like a Meritocracy to You?**\
-`Affirmative action for MAGA isn’t an upgrade over D.E.I.`\
-https://nytimes.com/2025/01/30/opinion/trump-dei-hegseth.html
+**Will the Cubs continue to expand the Houston-to-Chicago pipeline?**\
+`So far this winter, the Cubs have added two key members of the Astros, Kyle Tucker and Ryan Pressly, both via trade with Houston.`\
+https://nytimes.com/athletic/6098290/2025/01/30/chicago-cubs-houston-astros-pipeline/
 
-**Trump’s Foreign Aid Freeze Causes Fear of H.I.V. Resurgence in Africa**\
-`Patients and health care advocates said the abrupt decision to halt U.S. funding for a lifesaving H.I.V. program led to widespread confusion. The backtracking didn’t help.`\
-https://nytimes.com/2025/01/30/world/africa/africa-trump-hiv-pepfar-aid.html
+**A Plane Crash Near Washington, and 3 Contentious Senate Hearings**\
+`Plus, the latest hostage and prisoner release.`\
+https://nytimes.com/2025/01/30/podcasts/the-headlines/plane-crash-kennedy-hostages.html
 
