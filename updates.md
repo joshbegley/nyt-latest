@@ -1,3 +1,15 @@
+**Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
+`Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kirill Kaprizov.`\
+https://nytimes.com/athletic/6098759/2025/01/29/wild-gustavsson-fourth-line-maple-leafs/
+
+**Work on a Sub**\
+`Joe Marquez’s puzzle is a commentary on the uncertainties of life.`\
+https://nytimes.com/2025/01/29/crosswords/daily-puzzle-2025-01-30.html
+
+**Here is the latest on the crash.**\
+`The airport said on social media that`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/plane-crash-reagan-airport-washington-dc
+
 **Monica Wright Rogers hired as GM of WNBA's Toronto expansion team**\
 `Wright Rogers, most recently assistant general manager for the Mercury, won two titles with the Lynx during her playing career.`\
 https://nytimes.com/athletic/6098760/2025/01/29/wnba-toronto-general-manager-monica-wright-rogers/
