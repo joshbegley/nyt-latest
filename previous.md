@@ -1,3 +1,7 @@
+**What Kennedy Said About Antidepressants**\
+`A senator at Robert F. Kennedy Jr’s confirmation hearing questioned him about his false suggestions that antidepressants were partly responsible for the rise in school shootings. Christina Caron, a New York Times Well reporter who covers mental health, looks at the controversy.`\
+https://nytimes.com/video/well/100000009957776/what-kennedy-said-about-antidepressants.html
+
 **Gabbard’s Hearing Turns Tense Over Snowden Questions**\
 `Tulsi Gabbard, President Trump’s nominee for director of national intelligence, refused to fully denounce the 2013 leaks by Edward J. Snowden, eliciting concern from both parties.`\
 https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-confirmation-hearing-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6101263/2025/01/30/lance-lynn-closer-free-agent/
 **'It's a kick in the face': Brandon Beane, Sean McDermott close Bills season, offer glimpse of future**\
 `Brandon Beane spoke about help at key positions in need and a Josh Allen contract extension.`\
 https://nytimes.com/athletic/6101147/2025/01/30/bills-sean-mcdermott-brandon-beane-josh-allen-contract/
-
-**4 Takeaways From Tulsi Gabbard’s Confirmation Hearing**\
-`President Trump’s choice to serve as the director of national intelligence faced tough questions from senators in both parties.`\
-https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-senate-hearing-takeaways.html
 
