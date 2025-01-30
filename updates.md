@@ -1,3 +1,7 @@
+**How Wojciech Szczesny ousted Inaki Pena to become Flick's Barcelona goalkeeper**\
+`After coming out of retirement, the experienced Szczesny has become Hansi Flick's main Ter Stegen replacement`\
+https://nytimes.com/athletic/6098821/2025/01/30/barcelona-wojciech-szczesny-inaki-pena/
+
 **What makes Pistons guard Cade Cunningham an NBA All-Star this season?**\
 `Cunningham believes he should be in San Francisco playing with the best of the best on Feb. 16.`\
 https://nytimes.com/athletic/6096287/2025/01/30/cade-cunninhgam-pistons-nba-all-star/
