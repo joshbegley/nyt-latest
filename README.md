@@ -1,5 +1,9 @@
+**Powerful Storm System Set to Drench Northern California**\
+`San Francisco could see as much as six inches of rain over the next week as a moisture-packed storm known as an atmospheric river works its way south from the Pacific Northwest.`\
+https://nytimes.com/2025/01/30/weather/atmospheric-river-rain-california.html
+
 **Abuse at N.Y.C. Day Care Was ‘Parent’s Worst Nightmare,’ Prosecutor Says**\
-`A husband and wife are charged with beating, dropping and throwing children as young as 11 months. One child’s surgically implanted hearing devices were knocked loose.`\
+`A husband and wife who ran a day care in Queens are charged with beating, dropping and throwing children as young as 11 months. One child’s hearing implants were knocked loose.`\
 https://nytimes.com/2025/01/30/nyregion/queens-day-care-abuse-charges.html
 
 **Muhammad Deif, Hamas Military Commander in Gaza, Is Dead**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/congress-approv
 **Heat Today: Tyler Herro has been an All-Star for Heat, no matter how the voting goes**\
 `No matter whether Tyler Herro is selected as an NBA All-Star this season, his teammates have taken notice of leap`\
 https://nytimes.com/athletic/6100347/2025/01/30/tyler-herro-bam-adebayo-heat-all-star-heat-nba/
-
-**A 1961 air disaster shook the figure skating world.**\
-`By Christine Hauser`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-1961-air-disaster-shook-the-figure-skating-world
 
