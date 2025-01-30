@@ -1,7 +1,3 @@
-**Comatose and Washed Up, 1,000 Endangered Sea Turtles Are Rescued in Florida**\
-`The reptiles, an endangered species, were incapacitated when the water temperature plummeted after a rare winter storm hit the Panhandle last week.`\
-https://nytimes.com/2025/01/30/us/florida-sea-turtle-rescues.html
-
 **For the Army, the crash is the latest in a string of helicopter accidents.**\
 `Over the past two years, at least 18 people have died in incidents. The Army has cited a combination of factors, including lack of experience and equipment failures.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/for-the-army-the-crash-is-the-latest-in-a-string-of-helicopter-accidents
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6101505/2025/01/30/nba-all-star-reserve-roster-vict
 **Marianne Faithfull: A Life in Pictures**\
 `The singer and actress, who embodied the Swinging Sixties and performed for decades afterward, exuded an effortless cool.`\
 https://nytimes.com/2025/01/30/arts/marianne-faithfull-a-life-in-pictures.html
+
+**F.D.A. Approves Drug to Treat Pain Without Opioid Effects**\
+`The drug, Journavx by Vertex Pharmaceuticals, blocks pain signals to the brain, making it nonaddictive.`\
+https://nytimes.com/2025/01/30/health/fda-journavx-suzetrigine-vertex-opioids.html
 
