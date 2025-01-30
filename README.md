@@ -1,3 +1,11 @@
+**Can this QB be the first drafted into the NFL without playing a snap at a US school?**\
+`Taylor Elgersma is trying to become the first player to get drafted into the NFL without playing a snap at an American college.`\
+https://nytimes.com/athletic/6098834/2025/01/30/senior-bowl-canadian-quarterback-taylor-elgersma/
+
+**Pedri signs new Barcelona contract until 2030**\
+`Barcelona midfielder Pedri has signed a new contract with the club until 2030.`\
+https://nytimes.com/athletic/6094057/2025/01/30/pedri-barcelona-contract-new/
+
 **What We Know About Ahmed al-Shara, Syria’s Interim President**\
 `The rebel chief who led the overthrow of the longtime dictator Bashar al-Assad has been declared the head of government for a transitional period.`\
 https://nytimes.com/2025/01/30/world/europe/syria-president-ahmed-al-shara.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6099098/2025/01/30/cowboys-will-mcclay-contract-ext
 **Chiefs vs. Eagles Super Bowl at the Superdome: How does the venue change the game**\
 `Does the Super Bowl venue benefit either team? Plus, New Orleans lore and Taylor Swift connections.`\
 https://nytimes.com/athletic/6094516/2025/01/30/super-bowl-venue-caesars-superdome-chiefs-eagles/
-
-**Liverpool have had a Champions League cash bonanza - will FSG start spending it?**\
-`Liverpool have made huge sums from European competition but that will increase expectations around transfers`\
-https://nytimes.com/athletic/6097239/2025/01/30/liverpool-fsg-transfer-spending/
-
-**Trump’s F.B.I. Pick to Face Questions Over Promise to Pursue Enemies**\
-`Mr. Patel’s enemies list and vow to exact a campaign of retribution loom over his hearing to lead the F.B.I.`\
-https://nytimes.com/2025/01/30/us/politics/kash-patel-confirmation-hearing.html
 
