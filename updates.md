@@ -1,3 +1,7 @@
+**Tulsi Gabbard’s career has been marked by rapid ideological swings.**\
+`By Elizabeth Williamson and Charles Homans`\
+https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbards-career-has-been-marked-by-rapid-ideological-swings
+
 **Team Sweden names Victor Hedman captain for 4 Nations Face-Off**\
 `The Lightning captain and two-time Stanley Cup champion will lead his country into the international best-on-best tournament in February.`\
 https://nytimes.com/athletic/6099855/2025/01/30/victor-hedman-captain-sweden-4-nations/
