@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/heres-the-latest
+
+**Live Updates: After Rough Testimony, R.F.K. Jr. Aims to Win Over Skeptics**\
+`Robert F. Kennedy Jr. will appear Thursday morning before the Senate health committee for a second confirmation hearing. Lawmakers will likely question him about his shifting beliefs on vaccines and abortion.`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health
+
+**Arsenal complete signing of USWNT's Nighswonger**\
+`Arsenal have completed the signing of USWNT defender Jenna Nighswonger from Gotham FC.`\
+https://nytimes.com/athletic/6099607/2025/01/30/jenna-nighswonger-arsenal-transfer/
+
+**What to Do in New York City in February**\
+`Looking for something to do in New York? Catch Margaret Cho’s “sons” at Joe’s Pub, groove to 070 Shake or watch collections of animated shorts at the BAMkids Film Festival.`\
+https://nytimes.com/2025/01/30/arts/what-to-do-in-new-york-city-in-february.html
+
 **Trump Kicks Congress to the Curb, With Little Protest From Republicans**\
 `The administration is showing it doesn’t view the House and Senate as equal partners. So far, Republicans, who hold both majorities, are accepting their new status.`\
 https://nytimes.com/2025/01/30/us/politics/trump-congress-republicans.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/30/business/europe-central-bank-interest-rates-econo
 **Browns keeping close eye on top QB prospects at Senior Bowl practices**\
 `Cleveland head coach Kevin Stefanski and GM Andrew Berry know they must get it right at the game's most important position. `\
 https://nytimes.com/athletic/6098770/2025/01/30/browns-quarterback-senior-bowl-nfl-draft/
-
-**Kash Patel has criticized the F.B.I. and its work.**\
-`By Charlie Savage`\
-https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/kash-patel-has-criticized-the-fbi-and-its-work
-
-**F.B.I. Nominee Live Updates: Kash Patel to Face Senators at Confirmation Hearing**\
-`President Trump’s choice of a staunch loyalist to lead the bureau upends the post-Watergate tradition of picking nonpartisan directors. Mr. Patel’s enemies list and his vow to exact a campaign of retribution loom over the hearing.`\
-https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing
-
-**U.S., Russian figure skaters among those on flight that crashed in Washington, D.C.**\
-`Officials said Thursday they did not believe anyone survived the crash.`\
-https://nytimes.com/athletic/6099497/2025/01/30/us-russian-figure-skaters-dc-plane-crash/
-
-**What is Niko Kovac walking in to at Borussia Dortmund?**\
-`The appointment of the Croatian represents a break from the norm at the Westfalenstadion but it might be the shock treatment this club needs`\
-https://nytimes.com/athletic/6099491/2025/01/30/dortmund-kovac-mislintat-ricken-kehl/
 
