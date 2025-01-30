@@ -1,3 +1,7 @@
+**Ramos in talks with Monterrey**\
+`Sergio Ramos is in talks with Monterrey over a possible move to the Mexican club but as yet no formal proposal has been received.`\
+https://nytimes.com/athletic/6099622/2025/01/30/sergio-ramos-monterrey-talks/
+
 **In Thailand, a faraway vigil for hostages ends in happy tears.**\
 `By Hannah Beech and Muktita Suhartono`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/in-thailand-a-faraway-vigil-for-hostages-ends-in-happy-tears
