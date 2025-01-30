@@ -1,3 +1,11 @@
+**Patel Has Promised Drastic Changes at the F.B.I.**\
+`Some of the shifts, including gutting the bureau’s headquarters, are already underway.`\
+https://nytimes.com/2025/01/30/us/politics/patel-fbi-changes.html
+
+**Friends returning from a hunting trip were among the passengers.**\
+`By Julie Bosman`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/friends-returning-from-a-hunting-trip-were-among-the-passengers
+
 **Teenagers on Their Hopes and Fears for a Second Trump Administration**\
 `We asked students, “What are you thinking and feeling as President Trump returns to power?”`\
 https://nytimes.com/2025/01/30/learning/teenagers-on-their-hopes-and-fears-for-a-second-trump-administration.html

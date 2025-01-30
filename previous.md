@@ -1,3 +1,11 @@
+**Patel Has Promised Drastic Changes at the F.B.I.**\
+`Some of the shifts, including gutting the bureau’s headquarters, are already underway.`\
+https://nytimes.com/2025/01/30/us/politics/patel-fbi-changes.html
+
+**Friends returning from a hunting trip were among the passengers.**\
+`By Julie Bosman`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/friends-returning-from-a-hunting-trip-were-among-the-passengers
+
 **Teenagers on Their Hopes and Fears for a Second Trump Administration**\
 `We asked students, “What are you thinking and feeling as President Trump returns to power?”`\
 https://nytimes.com/2025/01/30/learning/teenagers-on-their-hopes-and-fears-for-a-second-trump-administration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6100652/2025/01/30/terry-rozier-betting-investigati
 **Judge Orders Border Patrol Shooting Suspect Held Without Bail**\
 `At a hearing and in court filings, a federal prosecutor in Vermont cited connections between the defendant, Teresa Youngblut, and people linked to other murder investigations.`\
 https://nytimes.com/2025/01/30/us/border-patrol-shooting-suspect-bail.html
-
-**Nashville group submits bid for WNBA expansion team 'Tennessee Summitt'**\
-`News of the Nashville bid comes in the midst of a growth period in the WNBA, which intends to expand to 16 teams by 2028.`\
-https://nytimes.com/athletic/6100756/2025/01/30/wnba-expansion-nashville-tennessee-summitt/
-
-**Internal Emails Offer Glimpse Into Early Days of Trump Election Inquiry**\
-`The messages showed that F.B.I. investigators took normal bureaucratic steps and precautions when opening an extraordinarily sensitive inquiry into Mr. Trump’s attempts to overturn the 2020 election.`\
-https://nytimes.com/2025/01/30/us/politics/fbi-emails-trump-2020-election.html
 
