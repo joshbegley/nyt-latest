@@ -1,3 +1,11 @@
+**Longtime MLB starter Lance Lynn draws interest as a potential closer**\
+`The 37-year-old free-agent ranks sixth in the majors in innings pitched since 2011. `\
+https://nytimes.com/athletic/6101263/2025/01/30/lance-lynn-closer-free-agent/
+
+**'It's a kick in the face': Brandon Beane, Sean McDermott close Bills season, offer glimpse of future**\
+`Brandon Beane spoke about help at key positions in need and a Josh Allen contract extension.`\
+https://nytimes.com/athletic/6101147/2025/01/30/bills-sean-mcdermott-brandon-beane-josh-allen-contract/
+
 **4 Takeaways From Tulsi Gabbard’s Confirmation Hearing**\
 `President Trump’s choice to serve as the director of national intelligence faced tough questions from senators in both parties.`\
 https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-senate-hearing-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/health/loretta-ford-dead.html
 **Man City accept Kelly loan offer from Arsenal**\
 `Manchester City have accepted a loan offer from Arsenal for winger Chloe Kelly but no move has yet been finalised.`\
 https://nytimes.com/athletic/6099460/2025/01/30/chloe-kelly-man-united-city-transfer/
-
-**Elon Musk’s Next Target: Government Buildings**\
-`The tech billionaire and top Trump ally visited the General Services Administration, which appears to be a key part of his crusade to cut the cost of government buildings.`\
-https://nytimes.com/2025/01/30/us/politics/elon-musk-general-services-administration.html
-
-**Kash Patel Dodges 2020 Election Question**\
-`Kash Patel, the nominee for Director of the F.B.I., repeatedly refused to say that former President Biden won the election in 2020.`\
-https://nytimes.com/video/us/politics/100000009960085/patel-confirmation-fbi-biden-2020.html
 
