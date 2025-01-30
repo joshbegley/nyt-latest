@@ -1,3 +1,11 @@
+**Potter: Bowen could return for Chelsea game**\
+`West Ham United head coach Graham Potter says Jarrod Bowen could feature in Monday&#8217;s Premier League fixture against Chelsea.`\
+https://nytimes.com/athletic/6100079/2025/01/30/jarrod-bowen-injury-return-west-ham/
+
+**Canucks trade tiers: Who's untouchable? Who could move before deadline?**\
+`The Canucks are one of the NHL's most fascinating wild cards ahead of the 2025 trade deadline.`\
+https://nytimes.com/athletic/6099214/2025/01/30/canucks-trade-tiers-miller-pettersson/
+
 **Patel sees ‘deep state’ plotters in government, and some good in QAnon.**\
 `Kash Patel’s public comments on the QAnon conspiracy theory suggests he sees its adherents more as an audience to be courted rather than an ideology to follow.`\
 https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/patel-sees-deep-state-plotters-in-government-and-some-good-in-qanon
