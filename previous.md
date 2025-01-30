@@ -1,3 +1,31 @@
+**Diverging From the Fed, E.C.B. Cuts Interest Rates as Growth Stagnates**\
+`The European Central Bank’s reduction, the fifth consecutive cut since last summer, came a day after the U.S. Federal Reserve held interest rates.`\
+https://nytimes.com/2025/01/30/business/europe-central-bank-interest-rates-economy.html
+
+**Browns keeping close eye on top QB prospects at Senior Bowl practices**\
+`Cleveland head coach Kevin Stefanski and GM Andrew Berry know they must get it right at the game's most important position. `\
+https://nytimes.com/athletic/6098770/2025/01/30/browns-quarterback-senior-bowl-nfl-draft/
+
+**Kash Patel has criticized the F.B.I. and its work.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/kash-patel-has-criticized-the-fbi-and-its-work
+
+**F.B.I. Nominee Live Updates: Kash Patel to Face Senators at Confirmation Hearing**\
+`President Trump’s choice of a staunch loyalist to lead the bureau upends the post-Watergate tradition of picking nonpartisan directors. Mr. Patel’s enemies list and his vow to exact a campaign of retribution loom over the hearing.`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing
+
+**U.S., Russian figure skaters among those on flight that crashed in Washington, D.C.**\
+`Officials said Thursday they did not believe anyone survived the crash.`\
+https://nytimes.com/athletic/6099497/2025/01/30/us-russian-figure-skaters-dc-plane-crash/
+
+**What is Niko Kovac walking in to at Borussia Dortmund?**\
+`The appointment of the Croatian represents a break from the norm at the Westfalenstadion but it might be the shock treatment this club needs`\
+https://nytimes.com/athletic/6099491/2025/01/30/dortmund-kovac-mislintat-ricken-kehl/
+
+**How the Plane and Helicopter Collided in Washington: Maps and Graphics**\
+`An American Airlines jet and a U.S. Army helicopter plunged into the Potomac River after a midair collision Wednesday night near Reagan National Airport outside Washington, D.C.`\
+https://nytimes.com/interactive/2025/01/30/us/washington-dc-plane-crash-helicopter-maps-photos.html
+
 **Can this QB be the first drafted into the NFL without playing a snap at a US school?**\
 `Taylor Elgersma is trying to become the first player to get drafted into the NFL without playing a snap at an American college.`\
 https://nytimes.com/athletic/6098834/2025/01/30/senior-bowl-canadian-quarterback-taylor-elgersma/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6094057/2025/01/30/pedri-barcelona-contract-new/
 **What We Know About Ahmed al-Shara, Syria’s Interim President**\
 `The rebel chief who led the overthrow of the longtime dictator Bashar al-Assad has been declared the head of government for a transitional period.`\
 https://nytimes.com/2025/01/30/world/europe/syria-president-ahmed-al-shara.html
-
-**U.S. Economy Finished the Year on Strong Note, but Faces Hurdles**\
-`Gross domestic product grew by 2.3 percent in the fourth quarter, capping a more robust year than expected. Policy uncertainty clouds the outlook.`\
-https://nytimes.com/2025/01/30/business/economy/economy-gdp-q4.html
-
-**Arsenal optimistic Raya will be fit for Man City game**\
-`Arsenal are optimistic that David Raya will be available for selection against Manchester City on Sunday.`\
-https://nytimes.com/athletic/6099570/2025/01/30/david-raya-injury-arsenal-manchester-city/
-
-**A.I. Giants Double Down on Spending, Even as DeepSeek Looms**\
-`Both Meta and Microsoft committed to huge investments in artificial intelligence, despite new Chinese software outperforming American rivals at a lower cost.`\
-https://nytimes.com/2025/01/30/business/dealbook/meta-microsoft-ai-spending-deepseek.html
-
-**Chelsea agree deal for Walsh signing from Barcelona**\
-`Chelsea have agreed a deal with Barcelona for the signing of England midfielder Keira Walsh.`\
-https://nytimes.com/athletic/6099251/2025/01/30/keira-walsh-chelsea-transfer/
-
-**Angels roster projection 1.0: How will Los Angeles build upon its 63-99 team?**\
-`Apart from the addition of free-agent lefty Yusei Kikuchi, the Angels' roster will look similar to last year's.`\
-https://nytimes.com/athletic/6098082/2025/01/30/los-angeles-angels-roster-projection-2025/
-
-**'Best is yet to come': Why Cowboys, VP Will McClay agreed to contract extension**\
-`Will McClay has been praised over the years for his ability to get everyone on the same page from the front office to scouts to coaches.`\
-https://nytimes.com/athletic/6099098/2025/01/30/cowboys-will-mcclay-contract-extension-jerry-jones/
-
-**Chiefs vs. Eagles Super Bowl at the Superdome: How does the venue change the game**\
-`Does the Super Bowl venue benefit either team? Plus, New Orleans lore and Taylor Swift connections.`\
-https://nytimes.com/athletic/6094516/2025/01/30/super-bowl-venue-caesars-superdome-chiefs-eagles/
 
