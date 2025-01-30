@@ -1,3 +1,11 @@
+**U.S. Funding Freeze Threatens Security at ISIS Camps in Syria**\
+`A halt in foreign aid may undermine American organizations’ support for forces that guard the two largest camps holding Islamic State members and their families.`\
+https://nytimes.com/2025/01/30/world/middleeast/us-funding-freeze-isis-camps-syria.html
+
+**The crash is the most serious air disaster involving a commercial jet in the U.S. since 2009.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-appears-to-be-the-most-serious-air-disaster-involving-a-commercial-jet-in-the-us-since-2009
+
 **Now in College, Luddite Teens Still Don’t Want Your Likes**\
 `Three years after starting a club meant to fight social media’s grip on young people, many original members are holding firm and gaining new converts.`\
 https://nytimes.com/2025/01/30/style/luddite-teens-reunion.html
