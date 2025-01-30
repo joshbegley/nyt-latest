@@ -1,5 +1,5 @@
 **NFL data shows significant decrease in concussions in '24**\
-`Data from the dynamic kickoff showed an increase in the kickoffs returned yet the same amount of concussions as there were in 2023.`\
+`Concussions were down 17 percent from 2023 and were the lowest on record since the league started tracking data in 2015.`\
 https://nytimes.com/athletic/6101296/2025/01/30/nfl-concussions-data-2024-season/
 
 **Appeals Court Strikes Down Federal Ban on Handgun Sales to Teenagers**\
