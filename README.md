@@ -1,3 +1,7 @@
+**In India, Concerns of Cover-Up After Stampede at Massive Hindu Festival**\
+`The late release of casualty figures at the gathering of millions of people was seen as shielding the political fortunes of a local leader with national aspirations.`\
+https://nytimes.com/2025/01/30/world/asia/kumbh-stampede-yogi-coverup.html
+
 **Hall of Fame mailbag: Stark on closers' cases plus King Félix, Pedroia, Edmonds and Rose**\
 `Did Billy Wagner's election just kick open the door for Kenley Jansen and Craig Kimbrel (and possibly Aroldis Chapman, too)?`\
 https://nytimes.com/athletic/6099337/2025/01/30/hall-of-fame-king-felix-pedroia-edmonds-rose/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/world/asia/japan-sinkhole-driver-rescue.html
 **Golf is leisurely, but does the PGA Tour have to be this slow?**\
 `When a respected voice called out tour pros amid a 5 1/2-hour round last week, everyone was listening.`\
 https://nytimes.com/athletic/6098597/2025/01/30/pga-tour-golf-slow-play/
-
-**Koreen: 10 Raptors-related thoughts on winning too much, tanking and the trade deadline**\
-`Losing isn't the only thing in a rebuilt. It is, however, an important thing.`\
-https://nytimes.com/athletic/6095813/2025/01/30/raptors-thoughts-tanking-nba-trade-deadline/
 
