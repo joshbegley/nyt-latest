@@ -1,3 +1,11 @@
+**Members of both parties have indicated they could ask tough questions.**\
+`President Trump’s pick to be the director of national intelligence is expected to say she will prioritize ending the “politicization” of intelligence.`\
+https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbard-confirmation-hearing
+
+**Here’s the latest on the hearing.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/heres-the-latest-on-the-hearing
+
 **Team Finland names Aleksander Barkov captain for 4 Nations Face-Off**\
 `Barkov leads all active Finnish players in career points with 753 in 779 NHL games and captained the Panthers to the Stanley Cup in 2024.`\
 https://nytimes.com/athletic/6099066/2025/01/30/aleksander-barkov-captain-finland-4-nations/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/arts/what-to-do-in-new-york-city-in-february.html
 **Trump Kicks Congress to the Curb, With Little Protest From Republicans**\
 `The administration is showing it doesn’t view the House and Senate as equal partners. So far, Republicans, who hold both majorities, are accepting their new status.`\
 https://nytimes.com/2025/01/30/us/politics/trump-congress-republicans.html
-
-**Kash Patel Has Made Money off His Ties to Trump**\
-`The F.B.I. nominee has not only cast his political lot with the president, he has also used the connection to the Trump brand, Truth Social and other Trump-linked entities as a significant source of income over the past several years.`\
-https://nytimes.com/2025/01/30/us/politics/kash-patel-money-trump.html
-
-**How Patrick Mahomes and the Chiefs are doing it, again**\
-`On the "Scoop City" podcast, breaking down an unprecedented run for Patrick Mahomes and the Chiefs.`\
-https://nytimes.com/athletic/6095840/2025/01/30/kansas-city-chiefs-three-peat-dynasty-run/
 
