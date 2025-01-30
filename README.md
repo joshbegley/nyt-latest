@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6101074/2025/01/30/justin-tucker-inappropriate-sexu
 `Mr. Chopra, long a target of criticism by Republican lawmakers and banks, has not yet been forced out. “I swore an oath to a five-year term,” he said this week.`\
 https://nytimes.com/2025/01/30/business/trump-rohit-chopra-cfpb.html
 
-**Wasatch out, Outlaws back in the mix as Utah Hockey Club continues march to a permanent nickname**\
+**Wasatch out, Outlaws back in the mix as Utah looks for permanent nickname**\
 `The Utah NHL organization announced the change Thursday after conducting fan voting inside Delta Center during Wednesday’s home game.`\
 https://nytimes.com/athletic/6101460/2025/01/30/utah-hockey-nhl-outlaws-wasatch/
 
