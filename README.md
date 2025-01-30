@@ -1,3 +1,7 @@
+**The release in Khan Younis descended into chaos.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/the-release-in-khan-younis-descended-into-chaos
+
 **U.S. Sues to Block Tech Deal in First Antitrust Action of Trump Term**\
 `The challenge to Hewlett Packard Enterprise’s acquisition of Juniper Networks came as many in corporate America had expected a lighter touch under a new administration.`\
 https://nytimes.com/2025/01/30/business/dealbook/hpe-juniper-deal-blocked.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/patel
 **George Tice, ‘Bard of New Jersey’ With a Camera, Dies at 86**\
 `He found beauty in the prosaic: bars, phone booths, hamburger joints, barber shops — first in a downtrodden Paterson, then throughout the state and beyond.`\
 https://nytimes.com/2025/01/30/arts/george-tice-dead.html
-
-**Fact-Checking Health Claims in Kennedy’s 2nd Day of Confirmation Hearings**\
-`Robert F. Kennedy Jr., the nominee to lead the Department of Health and Human Services, made disputed claims before the Senate Committee on Health, Education, Labor and Pensions.`\
-https://nytimes.com/2025/01/30/us/politics/rfk-jr-health-claims-fact-check-confirmation-hearing-day-2.html
 
