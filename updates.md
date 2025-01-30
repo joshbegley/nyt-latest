@@ -1,3 +1,7 @@
+**Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
+`The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
+https://nytimes.com/2025/01/30/us/politics/jet-pilot-plane-crash-runway.html
+
 **Barcelona request Montjuic extension for Clasico amid Camp Nou delay**\
 `Barcelona have asked for an extension to play El Clasico at the Estadi Olimpic Lluis Companys with the stadium now unlikely to host a Rolling Stones concert on the same weekend as the La Liga match against Real Madrid.`\
 https://nytimes.com/athletic/6100192/2025/01/30/barcelona-montjuic-camp-nou-return/

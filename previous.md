@@ -24,7 +24,7 @@ https://nytimes.com/2025/01/30/business/media/npr-pbs-fcc-investigation.html
 
 **Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
 `The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
-https://nytimes.com/2025/01/30/us/politics/fatal-crash-runway.html
+https://nytimes.com/2025/01/30/us/politics/jet-pilot-plane-crash-runway.html
 
 **Super Bowl 59 odds, pick: Chiefs hold steady as 1.5-point favorites in rematch with Eagles**\
 `The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\

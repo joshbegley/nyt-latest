@@ -1,3 +1,19 @@
+**Chelsea's Wiley close to Watford loan**\
+`Watford are close to concluding a loan deal for Chelsea left-back Caleb Wiley.`\
+https://nytimes.com/athletic/6100686/2025/01/30/caleb-wiley-chelsea-watford-transfer/
+
+**Staffing was ‘not normal’ at airport tower, according to a preliminary F.A.A. report.**\
+`By Sydney Ember and Emily Steel`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/staffing-was-not-normal-at-airport-tower-according-to-a-preliminary-faa-report
+
+**For Russians on the Crashed Jet, Skating Led to a Life Together**\
+`A Boston skating club confirmed that Yevgeniya Shishkova, 52, and Vadim Naumov, 55, were on the plane that crashed after colliding with a military helicopter.`\
+https://nytimes.com/2025/01/30/world/europe/russian-figure-skaters-dc-plane-crash-vadim-naumov-yevgeniya-shishkova.html
+
+**Two Russian Skating Stars Killed in Aircraft Crash Near Washington**\
+`Yevgeniya Shishkova and Vadim Naumov, coaches for the Skating Club of Boston and skating champions, were among those killed after an American Airlines plane crashed after colliding with a military helicopter.`\
+https://nytimes.com/video/us/100000009959376/figure-skating-potomac-river-plane-crash.html
+
 **Barcelona request Montjuic extension for Clasico amid Camp Nou delay**\
 `Barcelona have asked for an extension to play El Clasico at the Estadi Olimpic Lluis Companys with the stadium now unlikely to host a Rolling Stones concert on the same weekend as the La Liga match against Real Madrid.`\
 https://nytimes.com/athletic/6100192/2025/01/30/barcelona-montjuic-camp-nou-return/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6099558/2025/01/30/dominic-calvert-lewin-everton-co
 **F.C.C. Chair Orders Investigation Into NPR and PBS Stations**\
 `Brendan Carr, the chairman of the Federal Communications Commission, recently expressed concern about NPR and PBS’s sponsorships.`\
 https://nytimes.com/2025/01/30/business/media/npr-pbs-fcc-investigation.html
-
-**Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
-`The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
-https://nytimes.com/2025/01/30/us/politics/jet-pilot-plane-crash-runway.html
-
-**Super Bowl 59 odds, pick: Chiefs hold steady as 1.5-point favorites in rematch with Eagles**\
-`The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
-https://nytimes.com/athletic/6084432/2025/01/30/super-bowl-59-odds-line-chiefs-eagles/
-
-**Zakaria Zubeidi, Militant Who Briefly Escaped Israeli Prison, Is Among Released Palestinians**\
-`Mr. Zubeidi, who was also once a theater director, stunned Israelis and Palestinians alike when he and others broke out of jail in 2021.`\
-https://nytimes.com/2025/01/30/world/middleeast/zakaria-zubeidi-release-israel-hamas.html
-
-**They Don’t Know I Threw This Party Just for the Food**\
-`As in: crispy stuffed mushrooms with harissa and apricots, a samosa-ish party wreath and lots and lots of dumplings.`\
-https://nytimes.com/2025/01/30/dining/they-dont-know-i-threw-this-party-just-for-the-food.html
 
