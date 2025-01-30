@@ -1,3 +1,11 @@
+**The Reason Army Helicopters Train in Washington’s Busy Skies**\
+`The service is often responsible for ferrying lawmakers and other V.I.P.’s across the area, and near Reagan National Airport.`\
+https://nytimes.com/2025/01/30/us/politics/army-helicopter-crash.html
+
+**Dick Button, Figure Skating Champion and Commentator, Dies at 95**\
+`He won an Emmy for his enthusiastic and sometimes acerbic analysis on sportscasts, but before that he made history as a two-time Olympic gold medalist.`\
+https://nytimes.com/2025/01/30/sports/dick-button-dead.html
+
 **Trump Administration Shakes Up Senior F.B.I. Ranks**\
 `Top officials have been told to retire or be fired in the coming days, fueling fear within the agency that has been the target of President Trump and Kash Patel, his nominee to be F.B.I. director.`\
 https://nytimes.com/2025/01/30/us/politics/trump-fbi-firing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.ht
 **3 Are Arrested in Dutch Museum Heist**\
 `The police said they had yet to recover the golden helmet of Cotofenesti, a prized artifact from Romania, and other artifacts stolen from the Drents Museum in the Netherlands over the weekend.`\
 https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
-
-**A Skating Club in Massachusetts Gathered to Grieve Members Killed in Plane Crash**\
-`Among those seeking comfort in the close-knit skating community were two Olympians, Nancy Kerrigan and Dr. Tenley Albright, and a former national champion, Paul George.`\
-https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
-
-**How to Watch FireAid, the Star-Studded Benefit for Los Angeles**\
-`The concert, featuring Billie Eilish, Olivia Rodrigo and so many stars that it will fill two arenas, will be carried on major streaming platforms.`\
-https://nytimes.com/2025/01/30/arts/music/fireaid-los-angeles-concert.html
 
