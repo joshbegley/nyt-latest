@@ -1,3 +1,7 @@
+**Kennedy startles senators with his lack of knowledge on health agencies.**\
+`By Sarah Kliff`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/kennedy-startles-senators-with-his-lack-of-knowledge-on-health-agencies
+
 **Senator rebukes Kennedy for comments on vaccine doses for Black people.**\
 `By Nina Agrawal`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/senator-rebukes-kennedy-for-comments-on-vaccine-doses-for-black-people
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/fbi-emails-trump-2020-election.html
 **Caitlin Clark, Indiana Fever to play exhibition game at Iowa in May**\
 `The Fever will take on the Brazilian National Team at Carver-Hawkeye Arena on May 4.`\
 https://nytimes.com/athletic/6100614/2025/01/30/caitlin-clark-indiana-fever-exhibition-game-iowa/
-
-**Marianne Faithfull, a Pop Star Turned Survivor, Is Dead at 78**\
-`A fresh-voiced singer and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times before emerging triumphant.`\
-https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
 
