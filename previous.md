@@ -1,3 +1,7 @@
+**Gilgeous-Alexander hits 50 points for second time in 4 games in loss vs. Warriors**\
+`The only two such showings of the guard's career came within a week of each other.`\
+https://nytimes.com/athletic/6099087/2025/01/30/shai-gilgeous-alexander-50-point-game/
+
 **With changes on the horizon, Max Verstappen’s Red Bull future nears a crossroads**\
 `Though only 27 and under contract with Red Bull until 2028, Verstappen has said he is closer to the end of his career than the beginning`\
 https://nytimes.com/athletic/6094256/2025/01/30/max-verstappen-red-bull-f1-2025-season-crossroads/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096384/2025/01/30/how-jacob-murphy-and-alexander-i
 **Crystal Palace, ambition and the quandary over risk versus reward**\
 `The Londoners are part of the furniture after 12 years as a Premier League club, so why is there grumbling discontent at Selhurst Park?`\
 https://nytimes.com/athletic/6089419/2025/01/30/crystal-palace-parish-ambition-selhurst-premier-league/
-
-**Why has Sheffield United's leadership treated Maddy Cusack's memory so callously?**\
-`The club's behaviour since the death of one of their most popular women's players beggars belief - and raises serious questions`\
-https://nytimes.com/athletic/6096415/2025/01/30/maddy-cusack-sheffield-united-memory/
 
