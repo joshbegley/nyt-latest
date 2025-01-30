@@ -1,3 +1,11 @@
+**Gabbard’s Hearing Turns Tense Over Snowden Questions**\
+`Tulsi Gabbard, President Trump’s nominee for director of national intelligence, refused to fully denounce the 2013 leaks by Edward J. Snowden, eliciting concern from both parties.`\
+https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-confirmation-hearing-intelligence.html
+
+**Rebecca Yarros’ ‘Onyx Storm’ is the Fastest-Selling Adult Novel in 20 Years**\
+`The book, the third in a series, has sold 2.7 million copies in its first week, and provided yet another example of the romantasy genre’s staying power.`\
+https://nytimes.com/2025/01/30/books/rebecca-yarros-onyx-storm.html
+
 **Three New Bakeries for the Flakiest Croissants**\
 `Challah croissants, strawberry croissants, pig in a Bed (Stuy) croissants and more baked good goodness.`\
 https://nytimes.com/2025/01/30/dining/three-new-bakeries-for-the-flakiest-croissants.html
