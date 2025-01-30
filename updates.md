@@ -1,3 +1,7 @@
+**Champions League Briefing: 18 matches, 64 goals, and plenty of drama**\
+`Our writers pick 10 talking points from the final day of the league phase of the Champions League, as 18 games were played simultaneously`\
+https://nytimes.com/athletic/6098193/2025/01/29/champions-league-talking-points-analysis/
+
 **15-Year-Old Is Killed in Shooting at Brooklyn Apartment Complex**\
 `The teenager, Heath Campbell, was shot in the head, the police said. Another boy, 16, who has not been identified, was shot in the shoulder and was in stable condition.`\
 https://nytimes.com/2025/01/29/nyregion/nyc-shooting-15-year-old-killed.html
