@@ -1,3 +1,7 @@
+**Small Plane Crashes in Potomac River Near Washington**\
+`Officials said the plane went down in the river near Reagan Airport. The airport said emergency crews were responding to an “aircraft incident.”`\
+https://nytimes.com/2025/01/29/us/plane-crash-washington-dc-reagan-airport.html
+
 **Silicon Valley Deal Maker to Join Commerce Dept.**\
 `Michael Grimes, a top banker at Morgan Stanley, would become the latest leading tech figure to join the Trump administration, as a senior official at the Commerce Department.`\
 https://nytimes.com/2025/01/29/us/politics/grimes-commerce-dept.html
