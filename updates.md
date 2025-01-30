@@ -1,3 +1,19 @@
+**Trump Dissolves Arts Committee Previously Restored by Biden**\
+`The disbanding of the President’s Committee on the Arts and the Humanities came amid a flurry of executive orders touching on art, culture and history.`\
+https://nytimes.com/2025/01/30/arts/trump-arts-committee-disband.html
+
+**Blue Jays agree to 1-year deal with 40-year-old Max Scherzer: Source**\
+`There is little left for Scherzer to prove or achieve, but a full productive season in his 18th year would be another feather in the cap.`\
+https://nytimes.com/athletic/6052538/2025/01/30/max-scherzer-contract-blue-jays-mlb-free-agency/
+
+**Trump’s Actions Receive Mixed Reviews, but So Far More Approve Than Disapprove**\
+`President Trump’s decision to pardon Jan. 6 rioters is deeply unpopular, though he has a slightly positive approval rating so far.`\
+https://nytimes.com/2025/01/30/us/politics/trump-approval-polls.html
+
+**Gabbard Refuses to Call Snowden a Traitor During Confirmation Hearing**\
+`Tulsi Gabbard, President Trump’s nominee for director of national intelligence, was repeatedly asked during her confirmation hearing whether Edward Snowden was a traitor for leaking classified information.`\
+https://nytimes.com/video/us/politics/100000009960249/tulsi-gabbard-confirmation-snowden.html
+
 **The Briefing: Tottenham 3 Elfsborg 0 - Youngsters shine after Dragusin injury blow**\
 `The major talking points dissected from the final game in the league phase of the Europa League`\
 https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/

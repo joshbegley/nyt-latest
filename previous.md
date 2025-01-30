@@ -1,3 +1,19 @@
+**Trump Dissolves Arts Committee Previously Restored by Biden**\
+`The disbanding of the President’s Committee on the Arts and the Humanities came amid a flurry of executive orders touching on art, culture and history.`\
+https://nytimes.com/2025/01/30/arts/trump-arts-committee-disband.html
+
+**Blue Jays agree to 1-year deal with 40-year-old Max Scherzer: Source**\
+`There is little left for Scherzer to prove or achieve, but a full productive season in his 18th year would be another feather in the cap.`\
+https://nytimes.com/athletic/6052538/2025/01/30/max-scherzer-contract-blue-jays-mlb-free-agency/
+
+**Trump’s Actions Receive Mixed Reviews, but So Far More Approve Than Disapprove**\
+`President Trump’s decision to pardon Jan. 6 rioters is deeply unpopular, though he has a slightly positive approval rating so far.`\
+https://nytimes.com/2025/01/30/us/politics/trump-approval-polls.html
+
+**Gabbard Refuses to Call Snowden a Traitor During Confirmation Hearing**\
+`Tulsi Gabbard, President Trump’s nominee for director of national intelligence, was repeatedly asked during her confirmation hearing whether Edward Snowden was a traitor for leaking classified information.`\
+https://nytimes.com/video/us/politics/100000009960249/tulsi-gabbard-confirmation-snowden.html
+
 **New Sex Trafficking Indictment of Sean Combs Lists Two More Victims**\
 `Federal prosecutors filed an amended list of charges against the music mogul on Thursday and said he had coerced two additional women into sex acts.`\
 https://nytimes.com/2025/01/30/arts/music/sean-combs-diddy-superseding-indictment.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/30/technology/apple-quarterly-earnings-profit.html
 **Kennedy Says He Will Not Keep Fees From HPV Vaccine Litigation**\
 `Senators had objected to the financial conflict posed by Robert F. Kennedy Jr.’s decision to retain a financial stake in lawsuits against a major drug company. It remains unclear whether any proceeds would be redirected.`\
 https://nytimes.com/2025/01/30/health/rfk-jr-hpv-vaccine-lawsuits-fees.html
-
-**An N.H.L. Team Quickly Moved to Utah. Renaming It Is Taking Longer.**\
-`The Utah Hockey Club is searching for a new name, but it’s skated into a marketplace crowded with trademarks.`\
-https://nytimes.com/2025/01/30/sports/nhl-utah-hockey-club-yeti.html
-
-**The Six Principles of Stupidity**\
-`I define stupidity as ignoring the question: What would happen next? By that definition, the Trump administration has produced volleys of it.`\
-https://nytimes.com/2025/01/30/opinion/trump-executive-orders.html
-
-**FCSB 0 Manchester United 2 - Has Mainoo found his role? Have United finally got boring?**\
-`Analysis of Manchester United's Europa League win`\
-https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlights/
-
-**The Briefing: Tottenham 3 Elfsborg 0 - Youngsters shine after Dragusin injury blow**\
-`The major talking points dissected from the final game in the league phase of the Europa League`\
-https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/
 
