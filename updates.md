@@ -1,3 +1,19 @@
+**Marianne Faithfull, Chanteuse of Survival, Is Dead at 78**\
+`A feather-voiced pop star and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times but emerged triumphant.`\
+https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
+
+**Naming of New Syrian President Is Met With Some Wariness at Home**\
+`While some Syrians celebrated Ahmed al-Shara as head of state, others questioned how the decision to elevate the rebel leader was made.`\
+https://nytimes.com/2025/01/30/world/ahmed-al-shara-syria-president.html
+
+**Canada names Sidney Crosby captain for 4 Nations: Why he was the pick and notable omissions**\
+`Crosby also wore the "C" at the 2014 Sochi Games and 2016 World Cup. Canada is 45-5-0 in games when he has worn its sweater overall.`\
+https://nytimes.com/athletic/6100731/2025/01/30/sidney-crosby-captain-canada-4-nations/
+
+**U.S. airlines, including American, rely on smaller partners for many flights.**\
+`Some are independent companies that fly for major airlines. PSA Airlines Inc., the American Airlines subsidiary involved in the midair collision and crash in Washington, is owned by the airline.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/us-airlines-including-american-rely-on-smaller-partners-for-many-flights
+
 **Edward Snowden Emerges as Biggest Flashpoint in Gabbard Hearing**\
 `Tulsi Gabbard, the nominee for director of national intelligence, repeatedly avoided joining senators in calling Mr. Snowden a traitor.`\
 https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-edward-snowden.html
