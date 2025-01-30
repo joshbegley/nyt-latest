@@ -1,3 +1,11 @@
+**What next for Dominic Calvert-Lewin and Everton?**\
+`The striker's latest injury setback provides a headache to David Moyes, the club and, with his contract up this summer, Calvert-Lewin`\
+https://nytimes.com/athletic/6099558/2025/01/30/dominic-calvert-lewin-everton-contract/
+
+**F.C.C. Chair Orders Investigation Into NPR and PBS Stations**\
+`Brendan Carr, the chairman of the Federal Communications Commission, recently expressed concern about NPR and PBS’s sponsorships.`\
+https://nytimes.com/2025/01/30/business/media/npr-pbs-fcc-investigation.html
+
 **Stanway's injury comes as a huge blow for England and Bayern**\
 `The midfielder has been pivotal during Sarina Wiegman's time in charge. England will struggle to find someone who can do what she does`\
 https://nytimes.com/athletic/6100180/2025/01/30/georgia-stanway-england-bayern-injury/

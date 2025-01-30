@@ -1,3 +1,11 @@
+**What next for Dominic Calvert-Lewin and Everton?**\
+`The striker's latest injury setback provides a headache to David Moyes, the club and, with his contract up this summer, Calvert-Lewin`\
+https://nytimes.com/athletic/6099558/2025/01/30/dominic-calvert-lewin-everton-contract/
+
+**F.C.C. Chair Orders Investigation Into NPR and PBS Stations**\
+`Brendan Carr, the chairman of the Federal Communications Commission, recently expressed concern about NPR and PBS’s sponsorships.`\
+https://nytimes.com/2025/01/30/business/media/npr-pbs-fcc-investigation.html
+
 **Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
 `The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
 https://nytimes.com/2025/01/30/us/politics/fatal-crash-runway.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6096851/2025/01/30/orel-mangala-acl-calvert-lewin-i
 **Déjà Vu: Elon Musk Takes His Twitter Takeover Tactics to Washington**\
 `Federal agencies have offered exits to millions of employees and tested the prowess of engineers — just like when Elon Musk bought Twitter. The similarities have been uncanny.`\
 https://nytimes.com/2025/01/30/technology/musk-doge-x-playbook.html
-
-**Two Republican senators clash over the facts about vaccines.**\
-`By Sheryl Gay Stolberg, Apoorva Mandavilli, Ellen Barry and Sara Ruberg`\
-https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/two-republican-senators-clash-over-the-facts-about-vaccines
-
-**‘Mo’ Review: An International Hustle**\
-`The second season of the Netflix comedy begins with its title character stuck in immigration purgatory in Mexico.`\
-https://nytimes.com/2025/01/30/arts/television/mo-review-netflix.html
 
