@@ -1,3 +1,7 @@
+**The Problem with Mistaking Costumes for Clothes**\
+`Assessing Alessandro Michele’s couture debut for Valentino. Plus, Armani Privè and Chanel keep things moving and Gaurav Gupta surprises.`\
+https://nytimes.com/2025/01/30/style/valentino-couture-alessandro-michele-chanel-armani.html
+
 **Colbert Says RFK Jr. Is Not Even Qualified to Work at Jamba Juice**\
 `Stephen Colbert reveled in an anecdote about Trump’s health secretary nominee blending baby chickens and mice to feed his pet hawks.`\
 https://nytimes.com/2025/01/30/arts/television/late-night-rfk-confirmation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/crosswords/spelling-bee-forum.html
 **A Way of Sharing Solar Power’s Benefits Is Thriving. Trump May End It.**\
 `Community solar projects allow subscribers to benefit from the renewable energy source even without installing solar panels.`\
 https://nytimes.com/2025/01/30/nyregion/trump-solar-power-renewable-energy.html
-
-**At Quinceañeros, a Changing Culture Emerges**\
-`For centuries, only young Latinas had quinceañeras. A reporter set out to learn why more boys are having coming-of-age celebrations, called quinceañeros.`\
-https://nytimes.com/2025/01/30/reader-center/quincenearo-for-boys.html
 
