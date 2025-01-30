@@ -1,3 +1,7 @@
+**Read Your Way Through New York City**\
+`We asked 10 writers — including Hernan Diaz, Jennifer Egan and Casey McQuiston — to recommend books that capture their particular slice of life in New York.`\
+https://nytimes.com/interactive/2025/01/30/books/new-york-city-books.html
+
 **Longtime MLB starter Lance Lynn draws interest as a potential closer**\
 `The 37-year-old free-agent ranks sixth in the majors in innings pitched since 2011. `\
 https://nytimes.com/athletic/6101263/2025/01/30/lance-lynn-closer-free-agent/
