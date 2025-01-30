@@ -1,3 +1,15 @@
+**FCSB 0 Manchester United 2 - Has Mainoo found his role? Have United finally got boring?**\
+`Analysis of Manchester United's Europa League win`\
+https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlights/
+
+**The Briefing: Tottenham 3-0 Elfsborg - Youngsters shine after Dragusin injury blow**\
+`The major talking points dissected from the final game in the league phase of the Europa League`\
+https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/
+
+**Flights Resumed at Reagan National, but the Day Hardly Felt Normal**\
+`The terminals were nearly empty as morning began, they came to life by early afternoon.`\
+https://nytimes.com/2025/01/30/us/reagan-national-scene.html
+
 **Both American Airlines Pilots Were Avid Fliers**\
 `Both the captain, Jonathan J. Campos, 34, and co-pilot, Sam Lilley, 28, had been flying for years, according to family and friends.`\
 https://nytimes.com/2025/01/30/us/american-airlines-crew-members-plane-crash.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/arts/television/asura-netflix-hirokazu-kore-eda.h
 **Starbucks and Union Agree to Mediation in Quest for Contract**\
 `A labor agreement, covering more than 500 U.S. stores, would be the company’s first. Talks stalled last year over wages.`\
 https://nytimes.com/2025/01/30/business/starbucks-workers-united-union-mediation.html
-
-**‘Oh My God, That’s a Plane’: Witnesses to Crash Recount Their Astonishment**\
-`Some who saw the collision were still trying to process what happened.`\
-https://nytimes.com/2025/01/30/us/oh-my-god-thats-a-plane-witnesses-to-crash-recount-their-astonishment.html
-
-**Read Your Way Through New York City**\
-`We asked 10 writers — including Hernan Diaz, Jennifer Egan and Casey McQuiston — to recommend books that capture their particular slice of life in New York.`\
-https://nytimes.com/interactive/2025/01/30/books/new-york-city-books.html
-
-**Longtime MLB starter Lance Lynn draws interest as a potential closer**\
-`The 37-year-old free-agent ranks sixth in the majors in innings pitched since 2011. `\
-https://nytimes.com/athletic/6101263/2025/01/30/lance-lynn-closer-free-agent/
 
