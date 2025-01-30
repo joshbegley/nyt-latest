@@ -1,3 +1,7 @@
+**In Tense Call, Governors Push Schumer to Fight Harder Against Trump**\
+`On a call with Senator Chuck Schumer, the minority leader, six Democratic governors pushed him to slow down the confirmation of President Trump’s nominees and to do more to block his agenda.`\
+https://nytimes.com/2025/01/29/us/politics/chuck-schumer-trump-agenda-cabinet.html
+
 **Potentially dangerous airplane incidents have occurred at an alarming rate, a Times investigation found.**\
 `By Sydney Ember and Emily Steel`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/potentially-dangerous-airplane-incidents-have-occurred-at-an-alarming-rate-a-times-investigation-found
