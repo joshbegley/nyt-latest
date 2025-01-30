@@ -1,3 +1,7 @@
+**Monica Wright Rogers hired as GM of WNBA's Toronto expansion team**\
+`Wright Rogers, most recently assistant general manager for the Mercury, won two titles with the Lynx during her playing career.`\
+https://nytimes.com/athletic/6098760/2025/01/29/wnba-toronto-general-manager-monica-wright-rogers/
+
 **Small Plane Crashes in Potomac River Near Washington**\
 `Officials said the plane went down in the river near Reagan Airport. The airport said emergency crews were responding to an “aircraft incident.”`\
 https://nytimes.com/2025/01/29/us/plane-crash-reagan-airport-washington-dc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098193/2025/01/29/champions-league-talking-points-
 **15-Year-Old Is Killed in Shooting at Brooklyn Apartment Complex**\
 `The teenager, Heath Campbell, was shot in the head, the police said. Another boy, 16, who has not been identified, was shot in the shoulder and was in stable condition.`\
 https://nytimes.com/2025/01/29/nyregion/nyc-shooting-15-year-old-killed.html
-
-**Carlos Estévez, Royals agree to 2-year deal**\
-`Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
-https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
 
