@@ -1,3 +1,7 @@
+**Rescue Teams Shift to Victim Recovery in Frigid Potomac River**\
+`A commercial jet carrying 64 people and an Army helicopter with a three-member crew onboard collided in midair on Wednesday near Washington, D.C. Officials said at a news conference on Thursday morning that no one had survived the crash.`\
+https://nytimes.com/video/us/100000009959461/dc-plane-crash.html
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/01/30/books/review/7-new-books-we-recommend-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/opinion/musk-zuckerberg-trump.html
 **Even Progressives Now Worry About the Federal Debt**\
 `Long a focus of conservatives, the level of public borrowing is starting to concern left-leaning economists. Proposed remedies still differ radically.`\
 https://nytimes.com/2025/01/30/business/economy/federal-debt-worries.html
-
-**‘Love Me’ Review: A Romance Six Billion Years in the Making**\
-`Kristen Stewart and Steven Yeun star in a marvelously inventive sci-fi romance that spans eons yet pokes at a simple question.`\
-https://nytimes.com/2025/01/30/movies/love-me-review.html
 
