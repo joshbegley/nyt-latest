@@ -1,3 +1,11 @@
+**Live Updates: Plane Crashes Near Washington After Colliding With Army Helicopter**\
+`The American Airlines flight from Wichita, Kan., plunged into the Potomac River, the F.A.A. said. An Army official said it collided with a Black Hawk helicopter.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
+
+**Here is the latest on the crash.**\
+`By Hank Sanders`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/plane-crash-reagan-airport-washington-dc
+
 **Hornets' LaMelo Ball out at least 1 week with left ankle sprain**\
 `Charlotte has four games over the next week, and sits in 14th place in the Eastern Conference at 12-32.`\
 https://nytimes.com/athletic/6098877/2025/01/29/lamelo-ball-hornets-out-ankle-injury/
