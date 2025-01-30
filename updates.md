@@ -1,3 +1,15 @@
+**Monaco want to sign former Liverpool captain Henderson from Ajax**\
+`Monaco want to sign former Liverpool captain Jordan Henderson from Ajax.`\
+https://nytimes.com/athletic/6099579/2025/01/30/henderson-transfer-monaco-ajax-liverpool/
+
+**Thompson: Warriors' glue guys put on a show (and perhaps a fitting farewell) against Thunder**\
+`Andrew Wiggins, Kevon Looney and Gary Payton II made the Chase Center feel like old times Wednesday night. Was it their last hurrah?`\
+https://nytimes.com/athletic/6099510/2025/01/30/golden-state-warriors-looney-wiggins-payton-trade-deadline/
+
+**Team Sweden names Victor Hedman captain for 4 Nations: Why he was the pick and notable omission**\
+`The Lightning captain and two-time Stanley Cup champion will lead his country into the international best-on-best tournament in February.`\
+https://nytimes.com/athletic/6099855/2025/01/30/victor-hedman-captain-sweden-4-nations/
+
 **Tulsi Gabbard’s career has been marked by rapid ideological swings.**\
 `By Elizabeth Williamson and Charles Homans`\
 https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbards-career-has-been-marked-by-rapid-ideological-swings

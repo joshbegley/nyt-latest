@@ -1,3 +1,15 @@
+**Monaco want to sign former Liverpool captain Henderson from Ajax**\
+`Monaco want to sign former Liverpool captain Jordan Henderson from Ajax.`\
+https://nytimes.com/athletic/6099579/2025/01/30/henderson-transfer-monaco-ajax-liverpool/
+
+**Thompson: Warriors' glue guys put on a show (and perhaps a fitting farewell) against Thunder**\
+`Andrew Wiggins, Kevon Looney and Gary Payton II made the Chase Center feel like old times Wednesday night. Was it their last hurrah?`\
+https://nytimes.com/athletic/6099510/2025/01/30/golden-state-warriors-looney-wiggins-payton-trade-deadline/
+
+**Team Sweden names Victor Hedman captain for 4 Nations: Why he was the pick and notable omission**\
+`The Lightning captain and two-time Stanley Cup champion will lead his country into the international best-on-best tournament in February.`\
+https://nytimes.com/athletic/6099855/2025/01/30/victor-hedman-captain-sweden-4-nations/
+
 **How the Mile High City became the NWSL's 16th club**\
 `From grassroots efforts led by former player Jordan Angeli to a record-setting expansion fee, here's how NWSL ended up in the Mile High City`\
 https://nytimes.com/athletic/6098847/2025/01/30/nwsl-denver-new-team-club-soccer/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/gabbar
 **A standard Senate questionnaire illuminates Patel’s early years.**\
 `In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
 https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/a-standard-senate-questionnaire-illuminates-patels-early-years
-
-**Eeny Meeny Miny Mo, Catch a Pterosaur by Its Neck**\
-`A puncture in the fossilized neck of a winged reptile that flew with the dinosaurs suggests the creature became a feast for a crocodile ancestor.`\
-https://nytimes.com/2025/01/30/science/pterosaur-fossil-bite-croc.html
-
-**Hermansen available for Leicester again after injury absence**\
-`Leicester City should have their No 1 Mads Hermansen back from injury for the trip to Everton on Saturday.`\
-https://nytimes.com/athletic/6099726/2025/01/30/mads-hermansen-leicester-injury/
-
-**Tulsi Gabbard’s career has been marked by rapid ideological swings.**\
-`By Elizabeth Williamson and Charles Homans`\
-https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbards-career-has-been-marked-by-rapid-ideological-swings
 
