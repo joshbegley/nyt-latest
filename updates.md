@@ -1,3 +1,7 @@
+**The Pulse: Active team still needs a nickname**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6098870/2025/01/30/utah-hockey-club-nickname-the-pulse/
+
 **NBA Lookahead: Predicting De'Aaron Fox's potential fit with 5 trade options**\
 `Plus, the best games of the weekend — and remembering Magic Johnson's return to the court.`\
 https://nytimes.com/athletic/6090121/2025/01/30/deaaron-fox-trade-deadline-kings-spurs-pistons-lakers-magic-rockets-nba/

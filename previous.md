@@ -1,3 +1,7 @@
+**The Pulse: Active team still needs a nickname**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6098870/2025/01/30/utah-hockey-club-nickname-the-pulse/
+
 **NBA Lookahead: Predicting De'Aaron Fox's potential fit with 5 trade options**\
 `Plus, the best games of the weekend — and remembering Magic Johnson's return to the court.`\
 https://nytimes.com/athletic/6090121/2025/01/30/deaaron-fox-trade-deadline-kings-spurs-pistons-lakers-magic-rockets-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098337/2025/01/30/duke-unc-rivalry-game-mailbag/
 **The crash occurred in one of the United States’ most complex airspaces.**\
 `In the claustrophobic skies around Washington D.C., domestic flights, military helicopters and other aircraft are often flying around each other in congested airspace.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-occurred-in-one-of-the-united-states-most-complex-airspaces
-
-**Sam Darnold's free-agent options: Which teams make the most sense and why?**\
-`The Vikings could bring back the 27-year-old, but other teams will likely be interested, too. Here's who could be in the market for the QB.`\
-https://nytimes.com/athletic/6097894/2025/01/30/sam-darnold-vikings-free-agency/
 
