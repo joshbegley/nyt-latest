@@ -1,5 +1,5 @@
 **Marianne Faithfull, Chanteuse of Survival, Is Dead at 78**\
-`A feather-voiced pop star and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times but emerged triumphant.`\
+`A fresh-voiced pop star and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times before emerging triumphant.`\
 https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
 
 **Naming of New Syrian President Is Met With Some Wariness at Home**\
