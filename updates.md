@@ -1,3 +1,7 @@
+**NBA Lookahead: Predicting De'Aaron Fox's potential fit with 5 trade options**\
+`Plus, the best games of the weekend — and remembering Magic Johnson's return to the court.`\
+https://nytimes.com/athletic/6090121/2025/01/30/deaaron-fox-trade-deadline-kings-spurs-pistons-lakers-magic-rockets-nba/
+
 **What Will Israel’s Ban of a U.N. Aid Agency Mean for Palestinians?**\
 `Legislation that goes into effect on Thursday bars UNRWA from operating in the country. That will affect aid delivery to Gaza and beyond.`\
 https://nytimes.com/2025/01/30/world/middleeast/israel-ban-unrwa-palestinians.html
