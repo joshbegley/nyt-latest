@@ -1,3 +1,7 @@
+**The Curious Power of Tarot Cards to Explain and Reveal**\
+`A new exhibition in London traces the evolution of tarot from Renaissance Italy to the present day, with the card designs shifting to reflect the times.`\
+https://nytimes.com/2025/01/30/arts/design/tarot-exhibition-london-warburg-institute.html
+
 **82,150 Gallons of Paint Later, a Blue Man Group Farewell**\
 `Over 34 years, the show gave Fred Armisen a drumming gig, “Arrested Development” a hilarious story line and more. Now the cultural sensation comes to an end in New York.`\
 https://nytimes.com/2025/01/30/theater/blue-man-group-new-york-closing-off-broadway.html
