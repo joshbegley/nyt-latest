@@ -1,3 +1,7 @@
+**Small Plane Crashes in Potomac River Near Washington**\
+`Officials said the plane went down in the river near Reagan Airport. The airport said emergency crews were responding to an “aircraft incident.”`\
+https://nytimes.com/2025/01/29/us/plane-crash-washington-dc-reagan-airport.html
+
 **Resignation Push Deepens Worries About Effect on Government Services**\
 `The Trump administration’s effort to get federal workers to leave their posts could lead to an exodus of experienced employees, some warned.`\
 https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/nyregion/nyc-shooting-15-year-old-killed.html
 **Carlos Estévez, Royals agree to 2-year deal**\
 `Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
 https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
-
-**Trump Says U.S. Will Hold Migrants at Guantánamo**\
-`The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
-https://nytimes.com/2025/01/29/us/politics/trump-migrants-guantanamo.html
 
