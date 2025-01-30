@@ -1,3 +1,11 @@
+**Hornets' LaMelo Ball out at least 1 week with left ankle sprain**\
+`Charlotte has four games over the next week, and sits in 14th place in the Eastern Conference at 12-32.`\
+https://nytimes.com/athletic/6098877/2025/01/29/lamelo-ball-hornets-out-ankle-injury/
+
+**Live Updates: Plane Crashes Near Washington**\
+`An American Airlines flight from Wichita, Kan., collided midair with a helicopter while approaching Reagan Airport and plunged into the Potomac River, the F.A.A. said.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
+
 **Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
 `Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kirill Kaprizov.`\
 https://nytimes.com/athletic/6098759/2025/01/29/wild-gustavsson-fourth-line-maple-leafs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/trump-colombia-deportations-security.
 **Reds add more playoff experience with acquisition of veteran lefty Taylor Rogers**\
 `The Reds have added five established major leaguers from outside the organization to their roster and four were in the postseason last year.`\
 https://nytimes.com/athletic/6098659/2025/01/29/reds-taylor-rogers-trade-analysis/
-
-**Jets to hire former NFL head coach Steve Wilks as defensive coordinator**\
-`Wilks brings a greater level of experience to first-time head coach Aaron Glenn.`\
-https://nytimes.com/athletic/6098474/2025/01/29/steve-wilks-jets-defensive-coordinator/
-
-**Why Trump Wants Kash Patel to Lead the F.B.I.**\
-`Kash Patel is an unconventional pick to run the F.B.I. Devlin Barrett, a reporter for The New York Times, explains why President Trump wants Patel to lead the organization.`\
-https://nytimes.com/video/us/politics/100000009954637/why-trump-wants-kash-patel-to-lead-the-fbi.html
 
