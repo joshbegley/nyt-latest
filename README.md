@@ -1,3 +1,15 @@
+**Sanders and Kennedy trade heated barbs on vaccines and health care.**\
+`By Sheryl Gay Stolberg, Sara Ruberg and Apoorva Mandavilli`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/sanders-and-kennedy-trade-heated-barbs-on-vaccines-and-health-care
+
+**Is the HPV Vaccine Safe? Yes, Despite Kennedy’s Criticisms**\
+`During his second day of confirmation hearings, Robert F. Kennedy Jr. declined to disavow comments he had made disparaging the vaccine as unsafe.`\
+https://nytimes.com/2025/01/30/health/hpv-vaccine-rfk.html
+
+**Is now the time to buy Auburn and Duke to win the national championship?**\
+`Duke and Auburn are favorites to come out on top of March Madness. When's the best time to wager that they'll win it all? `\
+https://nytimes.com/athletic/6099921/2025/01/30/auburn-duke-national-championship-march-madness-2025-odds/
+
 **Wolfgang Zwiener, Waiter Who Built a Steakhouse Empire, Dies at 85**\
 `After years of waiting tables at Peter Luger in Brooklyn, he opened Wolfgang’s Steakhouse in Manhattan, the first of 35 restaurants around the world.`\
 https://nytimes.com/2025/01/30/dining/wolfgang-zwiener-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/hassan-rfk-cerebral-palsy.html
 **Hassan Slams Kennedy for Sowing Doubts on Vaccines and Autism**\
 `Senator Maggie Hassan, Democrat of New Hampshire, assailed Robert F. Kennedy Jr. and Republicans for asserting that science around autism and vaccines wasn’t settled.`\
 https://nytimes.com/video/us/politics/100000009959790/kennedy-hassan-vaccines-confirmation-hearing.html
-
-**Three Great Documentaries to Stream**\
-`This month’s films include portraits of the actress Jean Seberg and the director David Lynch, plus one of the year’s Oscar nominees.`\
-https://nytimes.com/2025/01/30/movies/great-documentaries-streaming.html
-
-**Mikaela Shiffrin finishes 10th in World Cup slalom return; 100th win still on hold**\
-`In her first World Cup race since November, Mikaela Shiffrin finished 10th in a slalom that will serve as a world championships tune-up.`\
-https://nytimes.com/athletic/6096739/2025/01/30/mikaela-shiffrin-world-cup-skiing-slalom-return-france/
-
-**Patel Has Promised Drastic Changes at the F.B.I.**\
-`Some of the shifts, including gutting the bureau’s headquarters, are already underway.`\
-https://nytimes.com/2025/01/30/us/politics/patel-fbi-changes.html
 
