@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Passive play, lack of energy lead to another losing streak**\
+`A Nylander goal in the third period wasn't enough offence to lift the Leafs above the Wild.`\
+https://nytimes.com/athletic/6098934/2025/01/29/maple-leafs-report-cards-woll-nylander-wild/
+
 **Live Updates: Plane Crashes Near Washington After Colliding With Army Helicopter**\
 `The American Airlines flight from Wichita, Kan., plunged into the Potomac River, the F.A.A. said. An Army official said it collided with a Black Hawk helicopter.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
