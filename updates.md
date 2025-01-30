@@ -1,3 +1,11 @@
+**Foe of Congestion Pricing Expected to Head Key Transit Agency**\
+`Marc Molinaro, a former Republican congressman, would steer the Federal Transit Administration, which supports mass transit systems nationwide.`\
+https://nytimes.com/2025/01/30/nyregion/congestion-pricing-marc-molinaro.html
+
+**Congress approved more flights at Reagan despite warnings of danger.**\
+`Last year, lawmakers authorized an additional five round-trip flights despite an outcry from Maryland and Virginia senators, who warned that delays, cancellations and accidents would increase.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/congress-approved-more-flights-at-reagan-despite-warnings-of-danger
+
 **Is now the time to buy Auburn or Duke to win the national championship?**\
 `Duke and Auburn are favorites to come out on top of March Madness. When's the best time to wager that they'll win it all? `\
 https://nytimes.com/athletic/6099921/2025/01/30/auburn-duke-national-championship-march-madness-2025-odds/
