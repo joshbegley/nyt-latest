@@ -1,3 +1,11 @@
+**Here’s the latest on the hostage and prisoner exchange.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
+
+**'Natural, aggressive, confident' - Nwaneri is a teenager who continues to step up**\
+`Mikel Artera wants new signings for Arsenal's frontline - in Nwaneri he has a player for his short, medium and long-term ambitions`\
+https://nytimes.com/athletic/6098468/2025/01/30/arsenal-ethan-nwaneri-teenager-girona/
+
 **Eighteen Champions League games, one unusual assignment: watch every match (in five-minute segments)**\
 `How do you follow all 18 games on 'Matchday Mayhem'? Come up with a running order and watch a bit of every game, of course`\
 https://nytimes.com/athletic/6095469/2025/01/30/watching-every-champions-league-match/
