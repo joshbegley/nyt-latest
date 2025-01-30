@@ -1,3 +1,7 @@
+**Figure Skaters Among Passengers on Crashed Jet**\
+`Members of the U.S. figure skating community were traveling on the commercial jet that collided with a military helicopter outside Washington. They were returning from a skate camp in Kansas.`\
+https://nytimes.com/2025/01/30/us/figure-skaters-dc-plane-crash.html
+
 **The Problem with Mistaking Costumes for Clothes**\
 `Assessing Alessandro Michele’s couture debut for Valentino. Plus, Armani Privè and Chanel keep things moving and Gaurav Gupta surprises.`\
 https://nytimes.com/2025/01/30/style/valentino-couture-alessandro-michele-chanel-armani.html
