@@ -1,3 +1,11 @@
+**Hornets' LaMelo Ball out at least 1 week with left ankle sprain**\
+`Charlotte has four games over the next week, and sits in 14th place in the Eastern Conference at 12-32.`\
+https://nytimes.com/athletic/6098877/2025/01/29/lamelo-ball-hornets-out-ankle-injury/
+
+**Live Updates: Plane Crashes Near Washington**\
+`An American Airlines flight from Wichita, Kan., collided midair with a helicopter while approaching Reagan Airport and plunged into the Potomac River, the F.A.A. said.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
+
 **Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
 `Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kirill Kaprizov.`\
 https://nytimes.com/athletic/6098759/2025/01/29/wild-gustavsson-fourth-line-maple-leafs/
