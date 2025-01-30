@@ -1,3 +1,15 @@
+**Edward Snowden Emerges as Biggest Flashpoint in Gabbard Hearing**\
+`Tulsi Gabbard, the nominee for director of national intelligence, repeatedly avoided joining senators in calling Mr. Snowden a traitor.`\
+https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-edward-snowden.html
+
+**Villa interested in Felix and Asensio**\
+`Marco Asensio and Joao Felix are among the list of options Aston Villa are considering as they aim to recruit an attacker this window.`\
+https://nytimes.com/athletic/6100338/2025/01/30/asensio-felix-villa-transfers/
+
+**Father Slays New York Girl, 14, in TikTok ‘Honor Killing’**\
+`After being lured to Pakistan, Hira Anwar was fatally shot by her father and an uncle over online posts that her parents believed were immodest, the police said.`\
+https://nytimes.com/2025/01/30/world/asia/pakistan-new-york-honor-killing.html
+
 **Chelsea's Wiley close to Watford loan**\
 `Watford are close to concluding a loan deal for Chelsea left-back Caleb Wiley.`\
 https://nytimes.com/athletic/6100686/2025/01/30/caleb-wiley-chelsea-watford-transfer/

@@ -1,3 +1,15 @@
+**Edward Snowden Emerges as Biggest Flashpoint in Gabbard Hearing**\
+`Tulsi Gabbard, the nominee for director of national intelligence, repeatedly avoided joining senators in calling Mr. Snowden a traitor.`\
+https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-edward-snowden.html
+
+**Villa interested in Felix and Asensio**\
+`Marco Asensio and Joao Felix are among the list of options Aston Villa are considering as they aim to recruit an attacker this window.`\
+https://nytimes.com/athletic/6100338/2025/01/30/asensio-felix-villa-transfers/
+
+**Father Slays New York Girl, 14, in TikTok ‘Honor Killing’**\
+`After being lured to Pakistan, Hira Anwar was fatally shot by her father and an uncle over online posts that her parents believed were immodest, the police said.`\
+https://nytimes.com/2025/01/30/world/asia/pakistan-new-york-honor-killing.html
+
 **Chelsea's Wiley close to Watford loan**\
 `Watford are close to concluding a loan deal for Chelsea left-back Caleb Wiley.`\
 https://nytimes.com/athletic/6100686/2025/01/30/caleb-wiley-chelsea-watford-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/patel-2020-election.html
 **Taylor Hall on Blackhawks: 'I was happy to be traded'**\
 `Hall's tone in Carolina is not bitter, but relieved — and more than anything, excited.`\
 https://nytimes.com/athletic/6100562/2025/01/30/taylor-hall-blackhawks-trade-hurricanes/
-
-**Watch: How did Kawhi Leonard get back to 'complete basketball' so quickly? (Watch)**\
-`The Athletic NBA Daily discuss what a healthy Kawhi Leonard could mean for the Los Angeles Clippers going forward.`\
-https://nytimes.com/athletic/6100311/2025/01/30/nba-daily-kawhi-leonard-clippers-complete-basketball/
-
-**What next for Dominic Calvert-Lewin and Everton?**\
-`The striker's latest injury setback provides a headache to David Moyes, the club and, with his contract up this summer, Calvert-Lewin`\
-https://nytimes.com/athletic/6099558/2025/01/30/dominic-calvert-lewin-everton-contract/
-
-**F.C.C. Chair Orders Investigation Into NPR and PBS Stations**\
-`Brendan Carr, the chairman of the Federal Communications Commission, recently expressed concern about NPR and PBS’s sponsorships.`\
-https://nytimes.com/2025/01/30/business/media/npr-pbs-fcc-investigation.html
 
