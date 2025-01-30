@@ -1,3 +1,11 @@
+**Longtime MLB starter Lance Lynn draws interest as a potential closer**\
+`The 37-year-old free-agent ranks sixth in the majors in innings pitched since 2011. `\
+https://nytimes.com/athletic/6101263/2025/01/30/lance-lynn-closer-free-agent/
+
+**'It's a kick in the face': Brandon Beane, Sean McDermott close Bills season, offer glimpse of future**\
+`Brandon Beane spoke about help at key positions in need and a Josh Allen contract extension.`\
+https://nytimes.com/athletic/6101147/2025/01/30/bills-sean-mcdermott-brandon-beane-josh-allen-contract/
+
 **4 Takeaways From Tulsi Gabbard’s Confirmation Hearing**\
 `President Trump’s choice to serve as the director of national intelligence faced tough questions from senators in both parties.`\
 https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-senate-hearing-takeaways.html
