@@ -1,5 +1,5 @@
-**Fourth line hustles, Gustavsson back to his best in win over Leafs: Wild takeaways**\
-`Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kaprizov.`\
+**Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
+`Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kirill Kaprizov.`\
 https://nytimes.com/athletic/6098759/2025/01/29/wild-gustavsson-fourth-line-maple-leafs/
 
 **Work on a Sub**\
