@@ -1,3 +1,7 @@
+**Kennedy startles senators with his lack of knowledge on health agencies.**\
+`By Sarah Kliff`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/kennedy-startles-senators-with-his-lack-of-knowledge-on-health-agencies
+
 **Senator rebukes Kennedy for comments on vaccine doses for Black people.**\
 `By Nina Agrawal`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/senator-rebukes-kennedy-for-comments-on-vaccine-doses-for-black-people
