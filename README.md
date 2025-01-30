@@ -34,7 +34,7 @@ https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/the-
 `The challenge to Hewlett Packard Enterprise’s acquisition of Juniper Networks came as many in corporate America had expected a lighter touch under a new administration.`\
 https://nytimes.com/2025/01/30/business/dealbook/hpe-juniper-deal-blocked.html
 
-**Trump Blames D.E.I. and Biden for Crash Under His Watch**\
+**President Blames D.E.I. and Biden for Crash Under Trump’s Watch**\
 `President Trump’s remarks, suggesting without evidence that diversity in hiring and other Biden administration policies somehow caused the disaster, reflected his instinct to immediately frame major events through his political or ideological lens.`\
 https://nytimes.com/2025/01/30/us/politics/trump-plane-crash-dei-faa-diversity.html
 
