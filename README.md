@@ -1,3 +1,7 @@
+**Eeny Meeny Miny Mo, Catch a Pterosaur by Its Neck**\
+`A puncture in the fossilized neck of a winged reptile that flew with the dinosaurs suggests the creature became a feast for a crocodile ancestor.`\
+https://nytimes.com/2025/01/30/science/pterosaur-fossil-bite-croc.html
+
 **Hermansen available for Leicester again after injury absence**\
 `Leicester City should have their No 1 Mads Hermansen back from injury for the trip to Everton on Saturday.`\
 https://nytimes.com/athletic/6099726/2025/01/30/mads-hermansen-leicester-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099066/2025/01/30/aleksander-barkov-captain-finlan
 **Ramos in talks with Monterrey**\
 `Sergio Ramos is in talks with Monterrey over a possible move to the Mexican club but as yet no formal proposal has been received.`\
 https://nytimes.com/athletic/6099622/2025/01/30/sergio-ramos-monterrey-talks/
-
-**In Thailand, a faraway vigil for hostages ends in happy tears.**\
-`By Hannah Beech and Muktita Suhartono`\
-https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/in-thailand-a-faraway-vigil-for-hostages-ends-in-happy-tears
 
