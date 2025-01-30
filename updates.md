@@ -1,3 +1,7 @@
+**What Will Israel’s Ban of a U.N. Aid Agency Mean for Palestinians?**\
+`Legislation that goes into effect on Thursday bars UNRWA from operating in the country. That will affect aid delivery to Gaza and beyond.`\
+https://nytimes.com/2025/01/30/world/middleeast/israel-ban-unrwa-palestinians.html
+
 **West Ham have offer for USMNT's Pepi rejected by PSV**\
 `West Ham United&#8217;s proposal to sign PSV striker Ricardo Pepi has been rejected.`\
 https://nytimes.com/athletic/6099243/2025/01/30/ricardo-pepi-west-ham-transfer/
