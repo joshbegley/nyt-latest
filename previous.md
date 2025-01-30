@@ -1,3 +1,19 @@
+**NFL data shows significant decrease in concussions in '24**\
+`Concussions were down 17 percent from 2023 and were the lowest on record since the league started tracking data in 2015.`\
+https://nytimes.com/athletic/6101296/2025/01/30/nfl-concussions-data-2024-season/
+
+**Appeals Court Strikes Down Federal Ban on Handgun Sales to Teenagers**\
+`The ruling by the U.S. Court of Appeals for the Fifth Circuit applied the Supreme Court’s “historical tradition” test.`\
+https://nytimes.com/2025/01/30/us/appeals-court-strikes-down-ban-handguns-teenagers.html
+
+**Trump Misleads on D.E.I. Policies in Blaming Biden for Plane Crash**\
+`There is no evidence that diversity efforts played a role in the crash, and his statements disregarded his own administration’s hiring policies.`\
+https://nytimes.com/2025/01/30/us/trump-dei-plane-crash-fact-check.html
+
+**Ranking the biggest NBA All-Star snubs: Trae Young, Kyrie Irving and more**\
+`A razor-thin margin, or even just pure preference, is what separates the All-Stars from the snubs.`\
+https://nytimes.com/athletic/6097439/2025/01/30/nba-all-star-game-biggest-snubs-2025/
+
 **Tennessee Lawmakers, Mirroring Trump Agenda, Pass Bills on Immigration and School Vouchers**\
 `The legislature’s Republican supermajority left little room for debate, pushing through millions of dollars and sprawling policy changes in a special session that lasted just four days.`\
 https://nytimes.com/2025/01/30/us/politics/tennessee-immigration-school-vouchers.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/30/health/fda-journavx-suzetrigine-vertex-opioids.ht
 **What Caused the Crash Into the Potomac? For Trump, It Was Diversity.**\
 `In a briefing that recalled his most extreme first term remarks, President Trump said without any evidence that diversity initiatives caused the midair collision.`\
 https://nytimes.com/2025/01/30/us/politics/plane-crash-trump-diversity.html
-
-**Dani Busboom Kelly is right for Nebraska, which is not doomed to repeat old mistakes**\
-`Nebraska knows a few things about a homecoming hire. But that's no reason to distrust Busboom Kelly.`\
-https://nytimes.com/athletic/6101444/2025/01/30/nebraska-volleyball-dani-busboom-kelly-john-cook-retirement/
-
-**A Flag on Mars? Maybe Not So Soon.**\
-`Orbital dynamics show that President Trump’s pledge to land astronauts on Mars couldn’t happen until 2029 at the earliest.`\
-https://nytimes.com/interactive/2025/01/30/science/mars-landing-trump.html
-
-**Immigrant Communities in Hiding: ‘People Think ICE Is Everywhere’**\
-`Schools, churches and shops are feeling the chilling effect of the fear of deportation. One minister said fewer congregants were showing up for services.`\
-https://nytimes.com/2025/01/30/us/immigrant-communities-hiding-ice.html
-
-**What we know about the figure skaters who were on the airplane that crashed in Washington, D.C.**\
-`Six of the passengers on the plane were associated with The Skating Club of Boston.`\
-https://nytimes.com/athletic/6101020/2025/01/30/figure-skaters-dc-plane-crash-what-we-know/
 
