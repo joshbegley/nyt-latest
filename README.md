@@ -1,3 +1,31 @@
+**Shrine Bowl takeaways: Which 2025 NFL Draft prospects have raised their stock?**\
+`The Athletic draft experts Dane Brugler and Nick Baumgardner were in attendance throughout the week. What moved the needle for them?`\
+https://nytimes.com/athletic/6096793/2025/01/30/nfl-draft-2025-shrine-bowl-highlights-jordan-phillips/
+
+**Possible Jets trade targets: Which top forwards would be that elusive perfect fit?**\
+`After the Mikko Rantanen trade, anything seems possible. Let's break down who the Jets might target to upgrade their forward corps.`\
+https://nytimes.com/athletic/6095155/2025/01/30/winnipeg-jets-trade-targets-forwards/
+
+**Why Manchester United signing a running coach makes sense - even if it wasn't Amorim's call**\
+`Man Utd's new consultant coach won't make the players significantly faster, but will improve their mechanics, efficiency and resilience`\
+https://nytimes.com/athletic/6097733/2025/01/30/harry-marra-manchester-united-explained/
+
+**‘Green and Gold’ Review: Betting the Farm on Football Games**\
+`Craig T. Nelson plays a stubborn farmer in Wisconsin whose devotion to the Green Bay Packers could save his business.`\
+https://nytimes.com/2025/01/30/movies/green-and-gold-review.html
+
+**‘Marcello Mio’ Review: All About My Father**\
+`Chiara Mastroianni enacts a warped sort of paternal cosplay in this French farce, also starring her mother, Catherine Deneuve.`\
+https://nytimes.com/2025/01/30/movies/marcello-mio-review.html
+
+**The Athletic FC: Champions League fallout explained, Duran on cusp of £65m Saudi move, £21m Pepi bid**\
+`Today in TAFC: We look at what happens now after the Champions League action. Plus: Duran set for Saudi move, who are Man Utd's opponents?`\
+https://nytimes.com/athletic/6099334/2025/01/30/champions-league-fallout-duran-saudi-65m/
+
+**Rescuers in Japan Try to Reach Driver Trapped in Sinkhole for Days**\
+`Emergency workers have been hampered by unstable ground since Tuesday, when a truck and its driver were swallowed north of Tokyo.`\
+https://nytimes.com/2025/01/30/world/asia/japan-sinkhole-driver-rescue.html
+
 **Golf is leisurely, but does the PGA Tour have to be this slow?**\
 `When a respected voice called out tour pros amid a 5 1/2-hour round last week, everyone was listening.`\
 https://nytimes.com/athletic/6098597/2025/01/30/pga-tour-golf-slow-play/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6095813/2025/01/30/raptors-thoughts-tanking-nba-tra
 **The R.F.K. Jr. Effect**\
 `We explore Kennedy’s contentious confirmation hearing. But first, we cover breaking news on a plane crash in Washington D.C.`\
 https://nytimes.com/2025/01/30/briefing/plane-crash-washington-robert-f-kennedy-jr.html
-
-**The Pulse: Active team still needs a nickname**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6098870/2025/01/30/utah-hockey-club-nickname-the-pulse/
-
-**NBA Lookahead: Predicting De'Aaron Fox's potential fit with 5 trade options**\
-`Plus, the best games of the weekend — and remembering Magic Johnson's return to the court.`\
-https://nytimes.com/athletic/6090121/2025/01/30/deaaron-fox-trade-deadline-kings-spurs-pistons-lakers-magic-rockets-nba/
-
-**What Will Israel’s Ban of a U.N. Aid Agency Mean for Palestinians?**\
-`Legislation that goes into effect on Thursday bars UNRWA from operating in the country. That will affect aid delivery to Gaza and beyond.`\
-https://nytimes.com/2025/01/30/world/middleeast/israel-ban-unrwa-palestinians.html
-
-**West Ham have offer for USMNT's Pepi rejected by PSV**\
-`West Ham United&#8217;s proposal to sign PSV striker Ricardo Pepi has been rejected.`\
-https://nytimes.com/athletic/6099243/2025/01/30/ricardo-pepi-west-ham-transfer/
-
-**Man Who Burned a Quran in Stockholm Is Killed**\
-`Salwan Momika, an Iraqi immigrant in Sweden, set off enormous protests when he burned a Quran in 2023. He had been scheduled to appear in court on Thursday.`\
-https://nytimes.com/2025/01/30/world/europe/salwan-momika-quran-sweden-killed.html
-
-**Liverpool's Bajcetic to terminate Red Bull Salzburg loan and join Las Palmas**\
-`Liverpool and Red Bull Salzburg have agreed to terminate Stefan Bajcetic&#8217;s loan spell with the Spanish midfielder set to join Las Palmas for the rest of the season.`\
-https://nytimes.com/athletic/6099359/2025/01/30/liverpool-bajcetic-transfer-loan-las-palmas-salzburg/
-
-**Bears Senior Bowl mock draft: Grey Zabel among the standout linemen in Mobile**\
-`This exercise focused on players who stood out in Mobile and included a mock trade with the Seahawks just to make it more interesting.`\
-https://nytimes.com/athletic/6098660/2025/01/30/bears-senior-bowl-mock-draft/
 
