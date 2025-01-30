@@ -1,3 +1,11 @@
+**What We Know About Ahmed al-Shara, Syria’s Interim President**\
+`The rebel chief who led the overthrow of the longtime dictator Bashar al-Assad has been declared the head of government for a transitional period.`\
+https://nytimes.com/2025/01/30/world/europe/syria-president-ahmed-al-shara.html
+
+**U.S. Economy Finished the Year on Strong Note, but Faces Hurdles**\
+`Gross domestic product grew by 2.3 percent in the fourth quarter, capping a more robust year than expected. Policy uncertainty clouds the outlook.`\
+https://nytimes.com/2025/01/30/business/economy/economy-gdp-q4.html
+
 **Arsenal optimistic Raya will be fit for Man City game**\
 `Arsenal are optimistic that David Raya will be available for selection against Manchester City on Sunday.`\
 https://nytimes.com/athletic/6099570/2025/01/30/david-raya-injury-arsenal-manchester-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6097239/2025/01/30/liverpool-fsg-transfer-spending/
 **Trump’s F.B.I. Pick to Face Questions Over Promise to Pursue Enemies**\
 `Mr. Patel’s enemies list and vow to exact a campaign of retribution loom over his hearing to lead the F.B.I.`\
 https://nytimes.com/2025/01/30/us/politics/kash-patel-confirmation-hearing.html
-
-**Leeds make loan offer for Southampton's Archer**\
-`Leeds United have made an approach to loan Cameron Archer from Southampton and hope a deal can be done before Monday’s transfer deadline.`\
-https://nytimes.com/athletic/6099433/2025/01/30/cameron-archer-leeds-transfer-southampton/
-
-**Is Watkins the type of forward Arsenal should be looking at?**\
-`What profile would Arsenal fans be getting in Watkins if the club managed to land him? How suited is the fit?`\
-https://nytimes.com/athletic/6099279/2025/01/30/ollie-watkins-arsenal-tacitcal-transfers/
 
