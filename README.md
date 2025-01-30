@@ -1,3 +1,19 @@
+**Three New Bakeries for the Flakiest Croissants**\
+`Challah croissants, strawberry croissants, pig in a Bed (Stuy) croissants and more baked good goodness.`\
+https://nytimes.com/2025/01/30/dining/three-new-bakeries-for-the-flakiest-croissants.html
+
+**‘Asura’ Is a First-Class Domestic Drama**\
+`Written and directed by the Japanese filmmaker Hirokazu Kore-eda (“Shoplifters”), this Netflix series is so good it makes other shows look bad.`\
+https://nytimes.com/2025/01/30/arts/television/asura-netflix-hirokazu-kore-eda.html
+
+**Starbucks and Union Agree to Mediation in Quest for Contract**\
+`A labor agreement, covering more than 500 U.S. stores, would be the company’s first. Talks stalled last year over wages.`\
+https://nytimes.com/2025/01/30/business/starbucks-workers-united-union-mediation.html
+
+**‘Oh My God, That’s a Plane’: Witnesses to Crash Recount Their Astonishment**\
+`Some who saw the collision were still trying to process what happened.`\
+https://nytimes.com/2025/01/30/us/oh-my-god-thats-a-plane-witnesses-to-crash-recount-their-astonishment.html
+
 **Read Your Way Through New York City**\
 `We asked 10 writers — including Hernan Diaz, Jennifer Egan and Casey McQuiston — to recommend books that capture their particular slice of life in New York.`\
 https://nytimes.com/interactive/2025/01/30/books/new-york-city-books.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-senate-hearing.html
 **Friday Briefing: 67 Dead in Washington Air Collision**\
 `Plus, Beyoncé vs. Swift at the Grammys.`\
 https://nytimes.com/2025/01/30/briefing/washington-air-crash-hamas-hostages-senate-hearings.html
-
-**Powerful Storm System Set to Drench Northern California**\
-`San Francisco could see as much as six inches of rain over the next week as a moisture-packed storm known as an atmospheric river works its way south from the Pacific Northwest.`\
-https://nytimes.com/2025/01/30/weather/atmospheric-river-rain-california.html
-
-**Abuse at N.Y.C. Day Care Was ‘Parent’s Worst Nightmare,’ Prosecutor Says**\
-`A husband and wife who ran a day care in Queens are charged with beating, dropping and throwing children as young as 11 months. One child’s hearing implants were knocked loose.`\
-https://nytimes.com/2025/01/30/nyregion/queens-day-care-abuse-charges.html
-
-**Muhammad Deif, Hamas Military Commander in Gaza, Is Dead**\
-`Mr. Deif was assassinated in an Israeli strike on southern Gaza on July 13, Israel said. He was one of the most senior Hamas leaders inside the territory and one of Israel’s most-wanted militants.`\
-https://nytimes.com/2025/01/30/obituaries/muhammad-deif-hamas-dead.html
-
-**Loretta Ford, ‘Mother’ of the Nurse Practitioner Field, Dies at 104**\
-`She transformed nursing by making it an area of clinical practice and research and recasting nurses as colleagues of doctors, not assistants.`\
-https://nytimes.com/2025/01/30/health/loretta-ford-dead.html
 
