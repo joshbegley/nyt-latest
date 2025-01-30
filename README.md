@@ -1,3 +1,19 @@
+**U.S. Sues to Block Tech Deal in First Antitrust Action of Trump Term**\
+`The challenge to Hewlett Packard Enterprise’s acquisition of Juniper Networks came as many in corporate America had expected a lighter touch under a new administration.`\
+https://nytimes.com/2025/01/30/business/dealbook/hpe-juniper-deal-blocked.html
+
+**Trump Seeks, Without Evidence, to Blame D.E.I. and Democrats for the Crash**\
+`President Trump’s remarks, suggesting that diversity in hiring and other Biden administration policies somehow caused the disaster, reflected his instinct to immediately frame major events through his political or ideological lens.`\
+https://nytimes.com/2025/01/30/us/politics/trump-plane-crash-dei-faa-diversity.html
+
+**Israeli Hostages Released in a Chaotic Handover in Southern Gaza**\
+`Palestinian militants released a total of eight Israeli and Thai hostages, and Israel released 110 Palestinian prisoners, in a chaotic third round of exchanges between the two sides as per the cease-fire agreement.`\
+https://nytimes.com/video/world/middleeast/100000009958904/israeli-hostages-palestinian-prisoner-ceasefire-hamas.html
+
+**The Beauty and the Risk**\
+`Soumya Karlamangla, who covers California based in San Francisco, explores how the fires are reshaping her view of her home state.`\
+https://nytimes.com/2025/01/30/us/wildfires-beauty-risk.html
+
 **Rescue Teams Shift to Victim Recovery in Frigid Potomac River**\
 `A commercial jet carrying 64 people and an Army helicopter with a three-member crew onboard collided in midair on Wednesday near Washington, D.C. Officials said at a news conference on Thursday morning that no one had survived the crash.`\
 https://nytimes.com/video/us/100000009959461/dc-plane-crash.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/30/arts/george-tice-dead.html
 **Fact-Checking Health Claims in Kennedy’s 2nd Day of Confirmation Hearings**\
 `Robert F. Kennedy Jr., the nominee to lead the Department of Health and Human Services, made disputed claims before the Senate Committee on Health, Education, Labor and Pensions.`\
 https://nytimes.com/2025/01/30/us/politics/rfk-jr-health-claims-fact-check-confirmation-hearing-day-2.html
-
-**MLS, Liga MX announce Leagues Cup overhaul: How new tournament will work**\
-`The revamp comes after the 2024 Leagues Cup dipped in popularity following a successful launch in 2023.`\
-https://nytimes.com/athletic/6099861/2025/01/30/leagues-cup-mls-liga-mx-format-how/
-
-**Barcelona are brilliant in attack but shaky at the back. How far can it take them?**\
-`Barca's 2-2 draw with Atalanta showed their Champions League campaign in microcosm. Flick has plenty of food for thought`\
-https://nytimes.com/athletic/6099692/2025/01/30/barcelona-champions-league-attack-defence/
-
-**Why Do Elon Musk and Mark Zuckerberg Begrudge Their Brains?**\
-`Blunt language and brute force are the currencies of the MAGA moment.`\
-https://nytimes.com/2025/01/30/opinion/musk-zuckerberg-trump.html
-
-**Even Progressives Now Worry About the Federal Debt**\
-`Long a focus of conservatives, the level of public borrowing is starting to concern left-leaning economists. Proposed remedies still differ radically.`\
-https://nytimes.com/2025/01/30/business/economy/federal-debt-worries.html
 
