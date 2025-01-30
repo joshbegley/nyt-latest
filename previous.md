@@ -1,3 +1,11 @@
+**Kristaps Porziņģis blames luck for some of Celtics' issues, but it's more than that**\
+`The Celtics need to execute better, especially during fourth-quarter possessions. They also need to sharpen up on offense and defense.`\
+https://nytimes.com/athletic/6098986/2025/01/30/celtics-luck-kristaps-porzingis/
+
+**Badgers CB sues NCAA for additional eligibility as he pursues NIL profits**\
+`Fourqurean claims his two-year run at a Division II program should not count because it unfairly limited his ability to make NIL profits.`\
+https://nytimes.com/athletic/6098880/2025/01/30/wisconsin-nyzier-fourqurean-ncaa-lawsuit/
+
 **43 Years Ago, a Plane Crash on the Potomac Left 78 People Dead**\
 `A Boeing 737 crashed into a bridge over the river on Jan. 13, 1982, just after taking off from Washington National Airport in a snowstorm.`\
 https://nytimes.com/2025/01/30/us/potomac-plane-crash-1980s.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6096800/2025/01/30/premier-league-transfer-window-s
 **Thursday Briefing**\
 `President Trump’s reversal on a spending freeze.`\
 https://nytimes.com/2025/01/30/briefing/freeze-trump-plane-crash.html
-
-**A U.K. Teen Became Fixated on Extreme Violence. But Was It Terrorism?**\
-`Axel Rudakubana, who killed three girls in a stabbing spree at a dance class, was obsessed with violence but had no known ideology. His case has led to calls for a rethink of counterterror strategy.`\
-https://nytimes.com/2025/01/30/world/europe/southport-terrorism-prevent-violence-rudakubana.html
-
-**Quote of the Day: Migration Is Muddling the Rules of Citizenship**\
-`Quotation of the Day for Thursday, January 30, 2025.`\
-https://nytimes.com/2025/01/30/pageoneplus/quote-of-the-day-migration-is-muddling-the-rules-of-citizenship.html
 
