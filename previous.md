@@ -1,4 +1,12 @@
-**Members of a storied Massachusetts skating club gathered to grieve**\
+**Will Beyoncé or Chappell Roan Win Big at the Grammys? Our Predictions.**\
+`Stars like Taylor Swift and Kendrick Lamar are also up for major awards on Sunday. We previewed the big categories (and made our personal picks).`\
+https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.html
+
+**3 Are Arrested in Dutch Museum Heist**\
+`The police said they had yet to recover the golden helmet of Cotofenesti, a prized artifact from Romania, and other artifacts stolen from the Drents Museum in the Netherlands over the weekend.`\
+https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
+
+**Members of a storied Massachusetts skating club gathered to grieve.**\
 `By Jenna Russell`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/members-of-a-storied-massachusetts-skating-club-gathered-to-grieve
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/arts/music/sean-combs-diddy-superseding-indictmen
 **Mark Zuckerberg Defends Embrace of Trump Administration in Meta Employee Meeting**\
 `In a meeting with Meta employees on Thursday, Mr. Zuckerberg also defended recent changes to the company’s online speech policies and ending its diversity initiatives.`\
 https://nytimes.com/2025/01/30/technology/mark-zuckerberg-meta-trump.html
-
-**Israel Frees Palestinian Prisoners After Chaotic Hostage Handover**\
-`Hamas freed three Israelis and five Thai nationals in exchange for more than 100 Palestinians. But the militant group struggled to control crowds, prompting a delay.`\
-https://nytimes.com/2025/01/30/world/middleeast/israel-hostages-prisoners-hamas.html
-
-**Palestinians Gather in West Bank to Welcome Prisoners Released by Israel**\
-`Throngs of people eagerly waited on Thursday for more than 100 Palestinian prisoners who were released from Israel in exchange for hostages held in Gaza.`\
-https://nytimes.com/2025/01/30/world/middleeast/palestinians-gather-west-bank-welcome-prisoners.html
 

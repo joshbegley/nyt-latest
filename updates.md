@@ -1,3 +1,15 @@
+**Will Beyoncé or Chappell Roan Win Big at the Grammys? Our Predictions.**\
+`Stars like Taylor Swift and Kendrick Lamar are also up for major awards on Sunday. We previewed the big categories (and made our personal picks).`\
+https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.html
+
+**3 Are Arrested in Dutch Museum Heist**\
+`The police said they had yet to recover the golden helmet of Cotofenesti, a prized artifact from Romania, and other artifacts stolen from the Drents Museum in the Netherlands over the weekend.`\
+https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
+
+**Members of a storied Massachusetts skating club gathered to grieve.**\
+`By Jenna Russell`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/members-of-a-storied-massachusetts-skating-club-gathered-to-grieve
+
 **Members of a storied Massachusetts skating club gathered to grieve**\
 `By Jenna Russell`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/members-of-a-storied-massachusetts-skating-club-gathered-to-grieve
