@@ -1,3 +1,7 @@
+**For the Army, the crash is the latest in a string of helicopter accidents.**\
+`Over the past two years, at least 18 people have died in incidents. The Army has cited a combination of factors, including lack of experience and equipment failures.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/for-the-army-the-crash-is-the-latest-in-a-string-of-helicopter-accidents
+
 **NFL data shows significant decrease in concussions in '24**\
 `Concussions were down 17 percent from 2023 and were the lowest on record since the league started tracking data in 2015.`\
 https://nytimes.com/athletic/6101296/2025/01/30/nfl-concussions-data-2024-season/
