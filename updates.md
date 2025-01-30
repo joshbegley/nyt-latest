@@ -1,3 +1,7 @@
+**15-Year-Old Is Killed in Shooting at Brooklyn Apartment Complex**\
+`The teenager, Heath Campbell, was shot in the head, the police said. Another boy, 16, who has not been identified, was shot in the shoulder and was in stable condition.`\
+https://nytimes.com/2025/01/29/nyregion/nyc-shooting-15-year-old-killed.html
+
 **Carlos Estévez, Royals agree to 2-year deal**\
 `Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
 https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/

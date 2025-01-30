@@ -1,3 +1,7 @@
+**15-Year-Old Is Killed in Shooting at Brooklyn Apartment Complex**\
+`The teenager, Heath Campbell, was shot in the head, the police said. Another boy, 16, who has not been identified, was shot in the shoulder and was in stable condition.`\
+https://nytimes.com/2025/01/29/nyregion/nyc-shooting-15-year-old-killed.html
+
 **Carlos Estévez, Royals agree to 2-year deal**\
 `Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
 https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098266/2025/01/29/detroit-tigers-tommy-kahnle-bull
 **Is Going After Government Always Good Politics?**\
 `President Trump is betting that Americans will not care if he upends institutions most have lost faith in.`\
 https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
-
-**2026 World Cup matches could be subject to ‘dangerous heat’, study says**\
-`Heat was an issue at the 2024 Copa America in the U.S., with Uruguay's Ronald Araujo reported feeling 'dizzy' during a game.`\
-https://nytimes.com/athletic/6094317/2025/01/29/world-cup-2026-heat-kick-off-times/
 
