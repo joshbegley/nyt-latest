@@ -1,4 +1,12 @@
-**Wasatch out, Outlaws back in the mix as Utah Hockey Club continues march to a permanent nickname**\
+**Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
+`According to an investigative report, six massage therapists who worked with Tucker between 2012 and 2016 accused him of misbehavior.`\
+https://nytimes.com/athletic/6101074/2025/01/30/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
+
+**He Expected Trump to Fire Him, but Rohit Chopra Still Has His Job**\
+`Mr. Chopra, long a target of criticism by Republican lawmakers and banks, has not yet been forced out. “I swore an oath to a five-year term,” he said this week.`\
+https://nytimes.com/2025/01/30/business/trump-rohit-chopra-cfpb.html
+
+**Wasatch out, Outlaws back in the mix as Utah looks for permanent nickname**\
 `The Utah NHL organization announced the change Thursday after conducting fan voting inside Delta Center during Wednesday’s home game.`\
 https://nytimes.com/athletic/6101460/2025/01/30/utah-hockey-nhl-outlaws-wasatch/
 
@@ -10,8 +18,8 @@ https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.ht
 `The police said they had yet to recover the golden helmet of Cotofenesti, a prized artifact from Romania, and other artifacts stolen from the Drents Museum in the Netherlands over the weekend.`\
 https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
 
-**Members of a storied Massachusetts skating club gathered to grieve.**\
-`By Jenna Russell`\
+**A Skating Club in Massachusetts Gathered to Grieve Members Killed in Plane Crash**\
+`Among those seeking comfort in the close-knit skating community were two Olympians, Nancy Kerrigan and Dr. Tenley Albright, and a former national champion, Paul George.`\
 https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
 
 **How to Watch FireAid, the Star-Studded Benefit for Los Angeles**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6052538/2025/01/30/max-scherzer-contract-blue-jays-
 **Trump’s Actions Receive Mixed Reviews, but So Far More Approve Than Disapprove**\
 `President Trump’s decision to pardon Jan. 6 rioters is deeply unpopular, though he has a slightly positive approval rating so far.`\
 https://nytimes.com/2025/01/30/us/politics/trump-approval-polls.html
-
-**Gabbard Refuses to Call Snowden a Traitor During Confirmation Hearing**\
-`Tulsi Gabbard, President Trump’s nominee for director of national intelligence, was repeatedly asked during her confirmation hearing whether Edward Snowden was a traitor for leaking classified information.`\
-https://nytimes.com/video/us/politics/100000009960249/tulsi-gabbard-confirmation-snowden.html
-
-**New Sex Trafficking Indictment of Sean Combs Lists Two More Victims**\
-`Federal prosecutors filed an amended list of charges against the music mogul on Thursday and said he had coerced two additional women into sex acts.`\
-https://nytimes.com/2025/01/30/arts/music/sean-combs-diddy-superseding-indictment.html
 

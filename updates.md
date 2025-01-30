@@ -1,3 +1,19 @@
+**Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
+`According to an investigative report, six massage therapists who worked with Tucker between 2012 and 2016 accused him of misbehavior.`\
+https://nytimes.com/athletic/6101074/2025/01/30/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
+
+**He Expected Trump to Fire Him, but Rohit Chopra Still Has His Job**\
+`Mr. Chopra, long a target of criticism by Republican lawmakers and banks, has not yet been forced out. “I swore an oath to a five-year term,” he said this week.`\
+https://nytimes.com/2025/01/30/business/trump-rohit-chopra-cfpb.html
+
+**Wasatch out, Outlaws back in the mix as Utah looks for permanent nickname**\
+`The Utah NHL organization announced the change Thursday after conducting fan voting inside Delta Center during Wednesday’s home game.`\
+https://nytimes.com/athletic/6101460/2025/01/30/utah-hockey-nhl-outlaws-wasatch/
+
+**A Skating Club in Massachusetts Gathered to Grieve Members Killed in Plane Crash**\
+`Among those seeking comfort in the close-knit skating community were two Olympians, Nancy Kerrigan and Dr. Tenley Albright, and a former national champion, Paul George.`\
+https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
+
 **Wasatch out, Outlaws back in the mix as Utah Hockey Club continues march to a permanent nickname**\
 `The Utah NHL organization announced the change Thursday after conducting fan voting inside Delta Center during Wednesday’s home game.`\
 https://nytimes.com/athletic/6101460/2025/01/30/utah-hockey-nhl-outlaws-wasatch/
