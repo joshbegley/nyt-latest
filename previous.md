@@ -1,4 +1,24 @@
-**The Bounce: 4 reasons why the NBA doesn't need 10-minute quarters**\
+**Team Sweden names Victor Hedman captain for 4 Nations Face-Off**\
+`The Lightning captain and two-time Stanley Cup champion will lead his country into the international best-on-best tournament in February.`\
+https://nytimes.com/athletic/6099855/2025/01/30/victor-hedman-captain-sweden-4-nations/
+
+**How the Mile High City became the NWSL's 16th club**\
+`From grassroots efforts led by former player Jordan Angeli to a record-setting expansion fee, here's how NWSL ended up in the Mile High City`\
+https://nytimes.com/athletic/6098847/2025/01/30/nwsl-denver-new-team-club-soccer/
+
+**Almiron rejoins Atlanta United from Newcastle**\
+`Atlanta United has completed the signing of Miguel Almiron from Newcastle United.`\
+https://nytimes.com/athletic/6066060/2025/01/30/miguel-almiron-atlanta-transfer/
+
+**NWSL confirms award of 16th team franchise to Denver**\
+`The franchise, which has yet to be named, will become the first women’s professional team in a major national league in the city.`\
+https://nytimes.com/athletic/6099853/2025/01/30/denver-nwsl-franchise-expansion/
+
+**Penguins Today: Vintage Sidney Crosby and a family reunion**\
+`Crosby's legendary backhand stole the show yet again last night in Utah.`\
+https://nytimes.com/athletic/6099923/2025/01/30/penguins-today-sidney-crosby-highlight/
+
+**The Bounce: Why NBA doesn't need 10-minute quarters; All-Star reserve picks**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6099539/2025/01/30/adam-silver-commissioner-nba-all-star-reserves-the-bounce/
 
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/30/science/pterosaur-fossil-bite-croc.html
 **Hermansen available for Leicester again after injury absence**\
 `Leicester City should have their No 1 Mads Hermansen back from injury for the trip to Everton on Saturday.`\
 https://nytimes.com/athletic/6099726/2025/01/30/mads-hermansen-leicester-injury/
-
-**Tulsi Gabbard’s career has been marked by rapid ideological swings.**\
-`By Elizabeth Williamson and Charles Homans`\
-https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbards-career-has-been-marked-by-rapid-ideological-swings
-
-**Public crusades led to private windfalls for Kennedy.**\
-`By Susanne Craig`\
-https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/public-crusades-led-to-private-windfalls-for-kennedy
-
-**Patel’s Loyalty to Trump May Have Helped Guarantee Him the Nomination**\
-`Kash Patel exhibited unflinching fealty during Donald Trump’s four years out of office, standing by him during the grim days after the F.B.I. search of the president’s Florida estate in 2022.`\
-https://nytimes.com/2025/01/30/us/politics/kash-patel-trump-loyalty.html
-
-**Nottingham Forest remain without Hudson-Odoi, Sangare set for to return**\
-`Nottingham Forest will continue to be without Callum Hudson-Odoi when they face Brighton &amp; Hove Albion at the City Ground on Saturday.`\
-https://nytimes.com/athletic/6099785/2025/01/30/callum-hudson-odoi-nottingham-forest-injury-update/
-
-**Members of both parties have indicated they could ask tough questions.**\
-`President Trump’s pick to be the director of national intelligence is expected to say she will prioritize ending the “politicization” of intelligence.`\
-https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbard-confirmation-hearing
 
