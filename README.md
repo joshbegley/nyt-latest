@@ -1,3 +1,7 @@
+**Carlos Estévez, Royals agree to 2-year deal**\
+`Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
+https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
+
 **Trump Says U.S. Will Hold Migrants at Guantánamo**\
 `The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
 https://nytimes.com/2025/01/29/us/politics/trump-migrants-guantanamo.html
@@ -10,7 +14,7 @@ https://nytimes.com/interactive/2025/01/29/business/energy-environment/eaton-fir
 `The Giants will save $6 million by trading Rogers but aren't expected to spend that money on external additions this offseason.`\
 https://nytimes.com/athletic/6098444/2025/01/29/sf-giants-payroll-taylor-rogers-trade/
 
-**5 Takeaways From Robert F. Kennedy’s First Confirmation Hearing**\
+**5 Takeaways From Kennedy’s First Confirmation Hearing**\
 `Mr. Kennedy appears to have most Republicans behind him as he seeks the job of health secretary, though he couldn’t escape his past stances on vaccines and abortion.`\
 https://nytimes.com/2025/01/29/us/politics/rfk-jr-confirmation-hearing-takeaways.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
 **2026 World Cup matches could be subject to ‘dangerous heat’, study says**\
 `Heat was an issue at the 2024 Copa America in the U.S., with Uruguay's Ronald Araujo reported feeling 'dizzy' during a game.`\
 https://nytimes.com/athletic/6094317/2025/01/29/world-cup-2026-heat-kick-off-times/
-
-**Stop Feeling Stunned and Wounded, Liberals. It’s Time to Fight Back.**\
-`Americans alarmed by President Trump’s agenda must reunite and recalibrate.`\
-https://nytimes.com/2025/01/29/opinion/democrats-trump-resistance.html
 
