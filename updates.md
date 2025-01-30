@@ -1,3 +1,11 @@
+**Brighton's Mitoma subject of €65m approach from Al Nassr**\
+`Saudi Pro League club Al Nassr have approached Brighton &amp; Hove Albion with a formal offer to recruit winger Kaoru Mitoma.`\
+https://nytimes.com/athletic/6100316/2025/01/30/kaoru-mitoma-al-nassr-brighton-transfer/
+
+**Trump Administration Considers Halting Congestion Pricing**\
+`The New York City tolling program began on Jan. 5 after defying obstacles for decades. A move to stop it would likely touch off a legal battle between the state and federal government.`\
+https://nytimes.com/2025/01/30/nyregion/nyc-trump-congestion-pricing.html
+
 **The Curious Power of Tarot Cards to Explain and Reveal**\
 `A new exhibition in London traces the evolution of tarot from Renaissance Italy to the present day, with the card designs shifting to reflect the times.`\
 https://nytimes.com/2025/01/30/arts/design/tarot-exhibition-london-warburg-institute.html

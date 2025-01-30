@@ -1,3 +1,11 @@
+**Brighton's Mitoma subject of €65m approach from Al Nassr**\
+`Saudi Pro League club Al Nassr have approached Brighton &amp; Hove Albion with a formal offer to recruit winger Kaoru Mitoma.`\
+https://nytimes.com/athletic/6100316/2025/01/30/kaoru-mitoma-al-nassr-brighton-transfer/
+
+**Trump Administration Considers Halting Congestion Pricing**\
+`The New York City tolling program began on Jan. 5 after defying obstacles for decades. A move to stop it would likely touch off a legal battle between the state and federal government.`\
+https://nytimes.com/2025/01/30/nyregion/nyc-trump-congestion-pricing.html
+
 **The Curious Power of Tarot Cards to Explain and Reveal**\
 `A new exhibition in London traces the evolution of tarot from Renaissance Italy to the present day, with the card designs shifting to reflect the times.`\
 https://nytimes.com/2025/01/30/arts/design/tarot-exhibition-london-warburg-institute.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/world/middleeast/us-funding-freeze-isis-camps-syr
 **Now in College, Luddite Teens Still Don’t Want Your Likes**\
 `Three years after starting a club meant to fight social media’s grip on young people, many original members are holding firm and gaining new converts.`\
 https://nytimes.com/2025/01/30/style/luddite-teens-reunion.html
-
-**Scoop City: Weighing in on unsolved mysteries of the 2025 NFL Draft**\
-`Inside: We&#8217;re looking at the Saints&#8217; coaching prospects, considering NFL Draft questions and pondering our first pair of Super Bowl prop bets.`\
-https://nytimes.com/athletic/6100128/2025/01/30/2025-nfl-draft-preview-questions-quarterback-travis-hunter-scoop-city/
-
-**Bye-bye 'Wor Miggy' - Newcastle's frustrating finisher, but beloved grafter**\
-`The Paraguayan winger has completed his move to Atlanta United but will always be appreciated on Tyneside`\
-https://nytimes.com/athletic/6066507/2025/01/30/miguel-almiron-newcastle-atlanta-transfer/
 
