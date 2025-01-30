@@ -1,3 +1,7 @@
+**In Tense Call, Governors Push Schumer to Fight Harder Against Trump**\
+`On a call with Senator Chuck Schumer, the minority leader, six Democratic governors pushed him to slow down the confirmation of President Trump’s nominees and to do more to block his agenda.`\
+https://nytimes.com/2025/01/29/us/politics/chuck-schumer-trump-agenda-cabinet.html
+
 **Potentially dangerous airplane incidents have occurred at an alarming rate, a Times investigation found.**\
 `By Sydney Ember and Emily Steel`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/potentially-dangerous-airplane-incidents-have-occurred-at-an-alarming-rate-a-times-investigation-found
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098877/2025/01/29/lamelo-ball-hornets-out-ankle-in
 **Live Updates: Plane Crashes Near Washington After Colliding With Army Helicopter**\
 `The American Airlines flight from Wichita, Kan., plunged into the Potomac River, the F.A.A. said. An Army official said it collided with a Black Hawk helicopter.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
-
-**Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
-`Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kirill Kaprizov.`\
-https://nytimes.com/athletic/6098759/2025/01/29/wild-gustavsson-fourth-line-maple-leafs/
 

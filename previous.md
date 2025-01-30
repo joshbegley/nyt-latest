@@ -1,8 +1,24 @@
+**Potentially dangerous airplane incidents have occurred at an alarming rate, a Times investigation found.**\
+`By Sydney Ember and Emily Steel`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/potentially-dangerous-airplane-incidents-have-occurred-at-an-alarming-rate-a-times-investigation-found
+
+**How the Wild took coach John Hynes' call-out to heart and responded**\
+`From back-to-back loses to back-to-back wins, the Wild are looking like themselves again after a complete team effort vs. the Maple Leafs.`\
+https://nytimes.com/athletic/6098942/2025/01/29/wild-maple-leafs-john-hynes/
+
+**Patrick Graham returning as Raiders' defensive coordinator**\
+`Graham has been the Raiders’ DC since 2022, but his contract expired at the end of this season.`\
+https://nytimes.com/athletic/6097011/2025/01/29/patrick-graham-raiders-defensive-coordinator-return/
+
+**Crowds Gathered to Watch Rescue Boats Working on the Dark River.**\
+`People paused to observe the scene from the airport and from cars  along a highway next to the river.`\
+https://nytimes.com/2025/01/29/us/plane-crash-rescuers-rescue-watching.html
+
 **Federal Agencies Ordered to End Initiatives That Support ‘Gender Ideology’**\
 `The directive was another step in the Trump administration’s campaign to root out “woke” ideology from the federal government.`\
 https://nytimes.com/2025/01/29/us/politics/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology.html
 
-**Brandon Saad’s shocking decision to walk away from $5.4 million is best-case scenario for Blues**\
+**Brandon Saad's shocking decision to walk away from $5.4 million is Blues' best-case scenario**\
 `Saad would've made $5.4 million had he reported to the Blues' AHL affiliate. Instead, he's walking away from it to become an NHL free agent.`\
 https://nytimes.com/athletic/6098294/2025/01/29/blues-brandon-saad-contract-nhl-free-agent/
 
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
 **Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
 `Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kirill Kaprizov.`\
 https://nytimes.com/athletic/6098759/2025/01/29/wild-gustavsson-fourth-line-maple-leafs/
-
-**Work on a Sub**\
-`Joe Marquez’s puzzle is a commentary on the uncertainties of life.`\
-https://nytimes.com/2025/01/29/crosswords/daily-puzzle-2025-01-30.html
-
-**Monica Wright Rogers hired as GM of WNBA's Toronto expansion team**\
-`Wright Rogers, most recently assistant general manager for the Mercury, won two titles with the Lynx during her playing career.`\
-https://nytimes.com/athletic/6098760/2025/01/29/wnba-toronto-general-manager-monica-wright-rogers/
-
-**Here is the latest on the crash.**\
-`By Hank Sanders and Chris Cameron`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/plane-crash-reagan-airport-washington-dc
-
-**Resignation Push Deepens Worries About Effect on Government Services**\
-`The Trump administration’s effort to get federal workers to leave their posts could lead to an exodus of experienced employees, some warned.`\
-https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
 
