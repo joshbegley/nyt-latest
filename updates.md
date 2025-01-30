@@ -1,3 +1,15 @@
+**Tyler Herro has become Heat's stable foundation as Jimmy Butler drama has shaken Miami's core**\
+`Amidst franchise turmoil, the fifth-year guard is an All-Star candidate, eliciting bold comparisons. `\
+https://nytimes.com/athletic/6093423/2025/01/30/miami-heat-tyler-herro-player-trade/
+
+**Stanway set for lengthy injury absence after knee surgery**\
+`Bayern Munich and England midfielder Georgia Stanway has undergone surgery after suffering a serious knee injury.`\
+https://nytimes.com/athletic/6097282/2025/01/30/georgia-stanway-injury-england-women-bayern-munich/
+
+**Listen: The Good News About a Bad G.P.A.**\
+`How important are your high school grades for your future?`\
+https://nytimes.com/2025/01/30/learning/listen-the-good-news-about-a-bad-gpa.html
+
 **Yankees top pitching prospect Chase Hampton finally healthy, 'ready to rock'**\
 `Said Hampton: "In reality, I just want to go out there and just be excellent."`\
 https://nytimes.com/athletic/6098255/2025/01/30/yankees-chase-hampton-update/
