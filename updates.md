@@ -1,3 +1,7 @@
+**Should the Sharks trade Mikael Granlund? Which teams might be interested?**\
+`Granlund has been rejuvenated and could be a solid add for a contending team seeking center depth.`\
+https://nytimes.com/athletic/6099303/2025/01/30/sharks-granlund-trade-contract/
+
 **U.S. Funding Freeze Threatens Security at ISIS Camps in Syria**\
 `A halt in foreign aid may undermine American organizations’ support for forces that guard the two largest camps holding Islamic State members and their families.`\
 https://nytimes.com/2025/01/30/world/middleeast/us-funding-freeze-isis-camps-syria.html

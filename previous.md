@@ -1,3 +1,7 @@
+**Should the Sharks trade Mikael Granlund? Which teams might be interested?**\
+`Granlund has been rejuvenated and could be a solid add for a contending team seeking center depth.`\
+https://nytimes.com/athletic/6099303/2025/01/30/sharks-granlund-trade-contract/
+
 **U.S. Funding Freeze Threatens Security at ISIS Camps in Syria**\
 `A halt in foreign aid may undermine American organizations’ support for forces that guard the two largest camps holding Islamic State members and their families.`\
 https://nytimes.com/2025/01/30/world/middleeast/us-funding-freeze-isis-camps-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-appea
 **The Windup: Catch up on busy MLB relievers market**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6100103/2025/01/30/mlb-relief-pitchers-free-agency-the-windup/
-
-**Potter: Bowen could return for Chelsea game**\
-`West Ham United head coach Graham Potter says Jarrod Bowen could feature in Monday&#8217;s Premier League fixture against Chelsea.`\
-https://nytimes.com/athletic/6100079/2025/01/30/jarrod-bowen-injury-return-west-ham/
 
