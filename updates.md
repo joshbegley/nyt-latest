@@ -1,3 +1,7 @@
+**The Windup: Catch up on busy MLB relievers market**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6100103/2025/01/30/mlb-relief-pitchers-free-agency-the-windup/
+
 **Potter: Bowen could return for Chelsea game**\
 `West Ham United head coach Graham Potter says Jarrod Bowen could feature in Monday&#8217;s Premier League fixture against Chelsea.`\
 https://nytimes.com/athletic/6100079/2025/01/30/jarrod-bowen-injury-return-west-ham/
