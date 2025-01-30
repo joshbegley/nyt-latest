@@ -1,3 +1,11 @@
+**Crowds gathered to watch rescue boats working on the dark river.**\
+`By Minho Kim, Chris Cameron, Linda Qiu and Tim Balk`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/crowds-gathered-to-watch-rescue-boats-working-on-the-dark-river
+
+**Federal agencies ordered to end initiatives that support ‘gender ideology.’**\
+`By Erica L. Green`\
+https://nytimes.com/2025/01/29/us/politics/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology.html
+
 **Federal agencies ordered to end initiatives that support ‘gender ideology.’**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology
