@@ -1,3 +1,7 @@
+**Nashville group submits bid for WNBA expansion team 'Tennessee Summitt'**\
+`News of the Nashville bid comes in the midst of a growth period in the WNBA, which intends to expand to 16 teams by 2028.`\
+https://nytimes.com/athletic/6100756/2025/01/30/wnba-expansion-nashville-tennessee-summitt/
+
 **Internal Emails Offer Glimpse Into Early Days of Trump Election Inquiry**\
 `The messages showed that F.B.I. investigators took normal bureaucratic steps and precautions when opening an extraordinarily sensitive inquiry into Mr. Trump’s attempts to overturn the 2020 election.`\
 https://nytimes.com/2025/01/30/us/politics/fbi-emails-trump-2020-election.html
