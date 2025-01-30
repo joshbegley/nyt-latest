@@ -1,3 +1,7 @@
+**Hall of Fame mailbag: Stark on closers' cases plus King Félix, Pedroia, Edmonds and Rose**\
+`Did Billy Wagner's election just kick open the door for Kenley Jansen and Craig Kimbrel (and possibly Aroldis Chapman, too)?`\
+https://nytimes.com/athletic/6099337/2025/01/30/hall-of-fame-king-felix-pedroia-edmonds-rose/
+
 **Shrine Bowl takeaways: Which 2025 NFL Draft prospects have raised their stock?**\
 `The Athletic draft experts Dane Brugler and Nick Baumgardner were in attendance throughout the week. What moved the needle for them?`\
 https://nytimes.com/athletic/6096793/2025/01/30/nfl-draft-2025-shrine-bowl-highlights-jordan-phillips/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098597/2025/01/30/pga-tour-golf-slow-play/
 **Koreen: 10 Raptors-related thoughts on winning too much, tanking and the trade deadline**\
 `Losing isn't the only thing in a rebuilt. It is, however, an important thing.`\
 https://nytimes.com/athletic/6095813/2025/01/30/raptors-thoughts-tanking-nba-trade-deadline/
-
-**The R.F.K. Jr. Effect**\
-`We explore Kennedy’s contentious confirmation hearing. But first, we cover breaking news on a plane crash in Washington D.C.`\
-https://nytimes.com/2025/01/30/briefing/plane-crash-washington-robert-f-kennedy-jr.html
 

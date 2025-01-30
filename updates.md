@@ -1,3 +1,7 @@
+**Hall of Fame mailbag: Stark on closers' cases plus King Félix, Pedroia, Edmonds and Rose**\
+`Did Billy Wagner's election just kick open the door for Kenley Jansen and Craig Kimbrel (and possibly Aroldis Chapman, too)?`\
+https://nytimes.com/athletic/6099337/2025/01/30/hall-of-fame-king-felix-pedroia-edmonds-rose/
+
 **Shrine Bowl takeaways: Which 2025 NFL Draft prospects have raised their stock?**\
 `The Athletic draft experts Dane Brugler and Nick Baumgardner were in attendance throughout the week. What moved the needle for them?`\
 https://nytimes.com/athletic/6096793/2025/01/30/nfl-draft-2025-shrine-bowl-highlights-jordan-phillips/
