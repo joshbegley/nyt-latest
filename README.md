@@ -1,5 +1,5 @@
-**Monaco interested in signing former Liverpool captain Henderson from Ajax**\
-`Monaco are interested in a deal to sign former Liverpool captain Jordan Henderson from Ajax.`\
+**Monaco want to sign former Liverpool captain Henderson from Ajax**\
+`Monaco want to sign former Liverpool captain Jordan Henderson from Ajax.`\
 https://nytimes.com/athletic/6099579/2025/01/30/henderson-transfer-monaco-ajax-liverpool/
 
 **Thompson: Warriors' glue guys put on a show (and perhaps a fitting farewell) against Thunder**\
