@@ -1,3 +1,7 @@
+**Kyiv Mayor Feuds With Zelensky in Schism Over Martial Law**\
+`The mayor, Vitali Klitschko, who has had a tense relationship with President Volodymyr Zelensky, accused him of trying to usurp the powers of elected officials in the capital.`\
+https://nytimes.com/2025/01/30/world/europe/zelensky-klitschko-ukraine-martial-law.html
+
 **Monaco want to sign former Liverpool captain Henderson from Ajax**\
 `Monaco want to sign former Liverpool captain Jordan Henderson from Ajax.`\
 https://nytimes.com/athletic/6099579/2025/01/30/henderson-transfer-monaco-ajax-liverpool/
