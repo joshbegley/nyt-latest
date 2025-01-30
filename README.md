@@ -1,4 +1,4 @@
-**Kristaps Porziņģis blames luck for some of Celtics' issues, but it's more than that**\
+**Kristaps Porziņģis blames bad luck for some of Celtics' issues, but it's more than that**\
 `The Celtics need to execute better, especially during fourth-quarter possessions. They also need to sharpen up on offense and defense.`\
 https://nytimes.com/athletic/6098986/2025/01/30/celtics-luck-kristaps-porzingis/
 
