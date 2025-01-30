@@ -1,3 +1,11 @@
+**Uncertainty gripped the future of Duran and Watkins - Rogers stepped forward**\
+`Duran is heading for Al-Nassr, Arsenal have bid for Watkins - despite the build-up Villa held their nerve to claim place in round of 16`\
+https://nytimes.com/athletic/6096742/2025/01/30/duran-watkins-transfers-rogers-aston-villa/
+
+**Federico Chiesa finally looks ready to make his mark at Liverpool**\
+`Chiesa's 90-minute display against PSV was the most accomplished of a strong of promising cameos in 2025 - he looks up to speed at last`\
+https://nytimes.com/athletic/6098576/2025/01/30/federico-chiesa-liverpool-psv/
+
 **Gilgeous-Alexander hits 50 points for second time in 4 games in loss vs. Warriors**\
 `The only two such showings of the guard's career came within a week of each other.`\
 https://nytimes.com/athletic/6099087/2025/01/30/shai-gilgeous-alexander-50-point-game/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/us/potomac-plane-crash-1980s.html
 **Are Amorim's methods working at Manchester United?**\
 `Amorim's United feels like a pencil sketch of a grander planned work - there are signs of progress but huge improvements are needed`\
 https://nytimes.com/athletic/6091063/2025/01/30/ruben-amorim-manchester-united-methods-working/
-
-**Provide and conquer: How Murphy and Isak became the Premier League's deadliest duo**\
-`How the Newcastle pair's partnership is working so effectively`\
-https://nytimes.com/athletic/6096384/2025/01/30/how-jacob-murphy-and-alexander-isak-became-the-premier-leagues-deadliest-duo/
-
-**Crystal Palace, ambition and the quandary over risk versus reward**\
-`The Londoners are part of the furniture after 12 years as a Premier League club, so why is there grumbling discontent at Selhurst Park?`\
-https://nytimes.com/athletic/6089419/2025/01/30/crystal-palace-parish-ambition-selhurst-premier-league/
 
