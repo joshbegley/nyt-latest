@@ -1,3 +1,11 @@
+**Can this QB be the first drafted into the NFL without playing a snap at a US school?**\
+`Taylor Elgersma is trying to become the first player to get drafted into the NFL without playing a snap at an American college.`\
+https://nytimes.com/athletic/6098834/2025/01/30/senior-bowl-canadian-quarterback-taylor-elgersma/
+
+**Pedri signs new Barcelona contract until 2030**\
+`Barcelona midfielder Pedri has signed a new contract with the club until 2030.`\
+https://nytimes.com/athletic/6094057/2025/01/30/pedri-barcelona-contract-new/
+
 **What We Know About Ahmed al-Shara, Syria’s Interim President**\
 `The rebel chief who led the overthrow of the longtime dictator Bashar al-Assad has been declared the head of government for a transitional period.`\
 https://nytimes.com/2025/01/30/world/europe/syria-president-ahmed-al-shara.html
