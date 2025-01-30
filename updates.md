@@ -1,3 +1,11 @@
+**Victor Wembanyama headlines NBA All-Star reserves: Who else made the cut?**\
+`Six reserves are first-time All Stars.`\
+https://nytimes.com/athletic/6101505/2025/01/30/nba-all-star-reserve-roster-victor-wembanyama/
+
+**Marianne Faithfull: A Life in Pictures**\
+`The singer and actress, who embodied the Swinging Sixties and performed for decades afterward, exuded an effortless cool.`\
+https://nytimes.com/2025/01/30/arts/marianne-faithfull-a-life-in-pictures.html
+
 **F.D.A. Approves Drug to Treat Pain Without Opioid Effects**\
 `The drug, Journavx by Vertex Pharmaceuticals, blocks pain signals to the brain, making it nonaddictive.`\
 https://nytimes.com/2025/01/30/health/fda-journavx-suzetrigine-vertex-opioids.html

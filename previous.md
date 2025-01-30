@@ -1,3 +1,11 @@
+**Victor Wembanyama headlines NBA All-Star reserves: Who else made the cut?**\
+`Six reserves are first-time All Stars.`\
+https://nytimes.com/athletic/6101505/2025/01/30/nba-all-star-reserve-roster-victor-wembanyama/
+
+**Marianne Faithfull: A Life in Pictures**\
+`The singer and actress, who embodied the Swinging Sixties and performed for decades afterward, exuded an effortless cool.`\
+https://nytimes.com/2025/01/30/arts/marianne-faithfull-a-life-in-pictures.html
+
 **F.D.A. Approves Drug to Treat Pain Without Opioid Effects**\
 `The drug, Journavx by Vertex Pharmaceuticals, blocks pain signals to the brain, making it nonaddictive.`\
 https://nytimes.com/2025/01/30/health/fda-journavx-suzetrigine-vertex-opioids.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/army-helicopter-crash.html
 **Dick Button, Figure Skating Champion and Commentator, Dies at 95**\
 `He won an Emmy for his enthusiastic and sometimes acerbic analysis on sportscasts, but before that he made history as a two-time Olympic gold medalist.`\
 https://nytimes.com/2025/01/30/sports/dick-button-dead.html
-
-**Trump Administration Shakes Up Senior F.B.I. Ranks**\
-`Top officials have been told to retire or be fired in the coming days, fueling fear within the agency that has been the target of President Trump and Kash Patel, his nominee to be F.B.I. director.`\
-https://nytimes.com/2025/01/30/us/politics/trump-fbi-firing.html
-
-**What I'm hearing on De'Aaron Fox's future and the Kings**\
-`As the trade deadline nears, one league source says more than half of the league’s teams have inquired about the 27-year-old Kings’ star.`\
-https://nytimes.com/athletic/6101397/2025/01/30/deaaron-fox-trade-rumors-kings-spurs-jimmy-butler/
 
