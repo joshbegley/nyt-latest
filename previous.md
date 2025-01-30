@@ -15,7 +15,7 @@ https://nytimes.com/2025/01/30/world/middleeast/zakaria-zubeidi-release-israel-h
 https://nytimes.com/2025/01/30/dining/they-dont-know-i-threw-this-party-just-for-the-food.html
 
 **Stanway's injury comes as a huge blow for England and Bayern**\
-`The midfielder has been pivotal during Sarina Wiegman's time in charge and England will struggle to find someone who can do what she does`\
+`The midfielder has been pivotal during Sarina Wiegman's time in charge. England will struggle to find someone who can do what she does`\
 https://nytimes.com/athletic/6100180/2025/01/30/georgia-stanway-england-bayern-injury/
 
 **Trump’s Reversal of a Federal Funding Freeze**\

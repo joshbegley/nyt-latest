@@ -1,3 +1,7 @@
+**Stanway's injury comes as a huge blow for England and Bayern**\
+`The midfielder has been pivotal during Sarina Wiegman's time in charge. England will struggle to find someone who can do what she does`\
+https://nytimes.com/athletic/6100180/2025/01/30/georgia-stanway-england-bayern-injury/
+
 **Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
 `The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
 https://nytimes.com/2025/01/30/us/politics/fatal-crash-runway.html
