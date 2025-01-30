@@ -4,7 +4,7 @@ https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
 
 **A Silicon Valley deal maker is set to join the Trump administration.**\
 `Michael Grimes, a top banker at Morgan Stanley, would become the latest leading tech figure to join the administration, as a senior official at the Commerce Department.`\
-https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/a-silicon-valley-deal-maker-is-set-to-join-the-trump-administration
+https://nytimes.com/2025/01/29/us/politics/a-silicon-valley-deal-maker-is-set-to-join-the-trump-administration.html
 
 **Far From Colombia, Trump’s Measures Caused Chaos at Airports**\
 `The Trump administration had added extra inspections for passengers from Colombia at U.S. ports of entry as part of a pressure campaign on the country’s president. The effects lingered into Wednesday.`\
