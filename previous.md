@@ -1,3 +1,7 @@
+**Teenagers on Their Hopes and Fears for a Second Trump Administration**\
+`We asked students, “What are you thinking and feeling as President Trump returns to power?”`\
+https://nytimes.com/2025/01/30/learning/teenagers-on-their-hopes-and-fears-for-a-second-trump-administration.html
+
 **Kennedy startles senators with his lack of knowledge on health agencies.**\
 `By Sarah Kliff`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/kennedy-startles-senators-with-his-lack-of-knowledge-on-health-agencies
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100756/2025/01/30/wnba-expansion-nashville-tenness
 **Internal Emails Offer Glimpse Into Early Days of Trump Election Inquiry**\
 `The messages showed that F.B.I. investigators took normal bureaucratic steps and precautions when opening an extraordinarily sensitive inquiry into Mr. Trump’s attempts to overturn the 2020 election.`\
 https://nytimes.com/2025/01/30/us/politics/fbi-emails-trump-2020-election.html
-
-**Caitlin Clark, Indiana Fever to play exhibition game at Iowa in May**\
-`The Fever will take on the Brazilian National Team at Carver-Hawkeye Arena on May 4.`\
-https://nytimes.com/athletic/6100614/2025/01/30/caitlin-clark-indiana-fever-exhibition-game-iowa/
 

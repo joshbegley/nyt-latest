@@ -1,3 +1,7 @@
+**Teenagers on Their Hopes and Fears for a Second Trump Administration**\
+`We asked students, “What are you thinking and feeling as President Trump returns to power?”`\
+https://nytimes.com/2025/01/30/learning/teenagers-on-their-hopes-and-fears-for-a-second-trump-administration.html
+
 **Kennedy startles senators with his lack of knowledge on health agencies.**\
 `By Sarah Kliff`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/kennedy-startles-senators-with-his-lack-of-knowledge-on-health-agencies
