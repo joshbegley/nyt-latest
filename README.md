@@ -1,3 +1,7 @@
+**Both American Airlines Pilots Were Avid Fliers**\
+`Both the captain, Jonathan J. Campos, 34, and co-pilot, Sam Lilley, 28, had been flying for years, according to family and friends.`\
+https://nytimes.com/2025/01/30/us/american-airlines-crew-members-plane-crash.html
+
 **What Kennedy Said About Antidepressants**\
 `A senator at Robert F. Kennedy Jr’s confirmation hearing questioned him about his false suggestions that antidepressants were partly responsible for the rise in school shootings. Christina Caron, a New York Times Well reporter who covers mental health, looks at the controversy.`\
 https://nytimes.com/video/well/100000009957776/what-kennedy-said-about-antidepressants.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/30/books/new-york-city-books.html
 **Longtime MLB starter Lance Lynn draws interest as a potential closer**\
 `The 37-year-old free-agent ranks sixth in the majors in innings pitched since 2011. `\
 https://nytimes.com/athletic/6101263/2025/01/30/lance-lynn-closer-free-agent/
-
-**'It's a kick in the face': Brandon Beane, Sean McDermott close Bills season, offer glimpse of future**\
-`Brandon Beane spoke about help at key positions in need and a Josh Allen contract extension.`\
-https://nytimes.com/athletic/6101147/2025/01/30/bills-sean-mcdermott-brandon-beane-josh-allen-contract/
 
