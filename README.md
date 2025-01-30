@@ -1,3 +1,7 @@
+**Champions League Briefing: 18 matches, 64 goals, and plenty of drama**\
+`Our writers pick 10 talking points from the final day of the league phase of the Champions League, as 18 games were played simultaneously`\
+https://nytimes.com/athletic/6098193/2025/01/29/champions-league-talking-points-analysis/
+
 **15-Year-Old Is Killed in Shooting at Brooklyn Apartment Complex**\
 `The teenager, Heath Campbell, was shot in the head, the police said. Another boy, 16, who has not been identified, was shot in the shoulder and was in stable condition.`\
 https://nytimes.com/2025/01/29/nyregion/nyc-shooting-15-year-old-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/trump-holiday-mlk-black-history-dei.h
 **How Tommy Kahnle fits the Tigers' bullpen: Pros, cons and what could be next**\
 `The Tigers signed relief pitcher Kahnle to a one-year deal worth $7.75 million, adding another piece to their bullpen puzzle. `\
 https://nytimes.com/athletic/6098266/2025/01/29/detroit-tigers-tommy-kahnle-bullpen-fit/
-
-**Is Going After Government Always Good Politics?**\
-`President Trump is betting that Americans will not care if he upends institutions most have lost faith in.`\
-https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
 
