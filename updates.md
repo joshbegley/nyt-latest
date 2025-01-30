@@ -1,3 +1,7 @@
+**Who are the makers of the two aircraft that collided?**\
+`Following the collision,`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/black-hawk-helicopter-plane-crash
+
 **What to Know About the Plane and Helicopter Crash Near Washington**\
 `American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan National Airport.`\
 https://nytimes.com/2025/01/30/us/plane-crash-dc-helicopter-reagan-airport.html
