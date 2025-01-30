@@ -1,3 +1,19 @@
+**Chelsea's Wiley close to Watford loan**\
+`Watford are close to concluding a loan deal for Chelsea left-back Caleb Wiley.`\
+https://nytimes.com/athletic/6100686/2025/01/30/caleb-wiley-chelsea-watford-transfer/
+
+**Staffing was ‘not normal’ at airport tower, according to a preliminary F.A.A. report.**\
+`By Sydney Ember and Emily Steel`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/staffing-was-not-normal-at-airport-tower-according-to-a-preliminary-faa-report
+
+**For Russians on the Crashed Jet, Skating Led to a Life Together**\
+`A Boston skating club confirmed that Yevgeniya Shishkova, 52, and Vadim Naumov, 55, were on the plane that crashed after colliding with a military helicopter.`\
+https://nytimes.com/2025/01/30/world/europe/russian-figure-skaters-dc-plane-crash-vadim-naumov-yevgeniya-shishkova.html
+
+**Two Russian Skating Stars Killed in Aircraft Crash Near Washington**\
+`Yevgeniya Shishkova and Vadim Naumov, coaches for the Skating Club of Boston and skating champions, were among those killed after an American Airlines plane crashed after colliding with a military helicopter.`\
+https://nytimes.com/video/us/100000009959376/figure-skating-potomac-river-plane-crash.html
+
 **Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
 `The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
 https://nytimes.com/2025/01/30/us/politics/jet-pilot-plane-crash-runway.html
