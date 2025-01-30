@@ -1,3 +1,7 @@
+**What we know about the figure skaters who were on the airplane that crashed in Washington, D.C.**\
+`Six of the passengers on the plane were associated with The Skating Club of Boston.`\
+https://nytimes.com/athletic/6101020/2025/01/30/figure-skaters-dc-plane-crash-what-we-know/
+
 **The Reason Army Helicopters Train in Washington’s Busy Skies**\
 `The service is often responsible for ferrying lawmakers and other V.I.P.’s across the area, and near Reagan National Airport.`\
 https://nytimes.com/2025/01/30/us/politics/army-helicopter-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6101460/2025/01/30/utah-hockey-nhl-outlaws-wasatch/
 **Will Beyoncé or Chappell Roan Win Big at the Grammys? Our Predictions.**\
 `Stars like Taylor Swift and Kendrick Lamar are also up for major awards on Sunday. We previewed the big categories (and made our personal picks).`\
 https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.html
-
-**3 Are Arrested in Dutch Museum Heist**\
-`The police said they had yet to recover the golden helmet of Cotofenesti, a prized artifact from Romania, and other artifacts stolen from the Drents Museum in the Netherlands over the weekend.`\
-https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
 

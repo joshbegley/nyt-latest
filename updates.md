@@ -1,3 +1,7 @@
+**What we know about the figure skaters who were on the airplane that crashed in Washington, D.C.**\
+`Six of the passengers on the plane were associated with The Skating Club of Boston.`\
+https://nytimes.com/athletic/6101020/2025/01/30/figure-skaters-dc-plane-crash-what-we-know/
+
 **The Reason Army Helicopters Train in Washington’s Busy Skies**\
 `The service is often responsible for ferrying lawmakers and other V.I.P.’s across the area, and near Reagan National Airport.`\
 https://nytimes.com/2025/01/30/us/politics/army-helicopter-crash.html
