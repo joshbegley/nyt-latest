@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
 
 **Members of a storied Massachusetts skating club gathered to grieve.**\
 `By Jenna Russell`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/members-of-a-storied-massachusetts-skating-club-gathered-to-grieve
+https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
 
 **How to Watch FireAid, the Star-Studded Benefit for Los Angeles**\
 `The concert, featuring Billie Eilish, Olivia Rodrigo and so many stars that it will fill two arenas, will be carried on major streaming platforms.`\
