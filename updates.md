@@ -1,3 +1,11 @@
+**Patel sees ‘deep state’ plotters in government, and some good in QAnon.**\
+`Kash Patel’s public comments on the QAnon conspiracy theory suggests he sees its adherents more as an audience to be courted rather than an ideology to follow.`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/patel-sees-deep-state-plotters-in-government-and-some-good-in-qanon
+
+**What to Eat and Drink for a Good Night’s Sleep**\
+`Tart cherry juice? Kiwi? Experts are still untangling how certain foods and diets may affect our sleep.`\
+https://nytimes.com/2025/01/30/well/eat/foods-and-drinks-for-better-sleep.html
+
 **Kyiv Mayor Feuds With Zelensky in Schism Over Martial Law**\
 `The mayor, Vitali Klitschko, who has had a tense relationship with President Volodymyr Zelensky, accused him of trying to usurp the powers of elected officials in the capital.`\
 https://nytimes.com/2025/01/30/world/europe/zelensky-klitschko-ukraine-martial-law.html
