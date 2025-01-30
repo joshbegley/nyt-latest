@@ -1,3 +1,7 @@
+**Ramos in talks with Monterrey**\
+`Sergio Ramos is in talks with Monterrey over a possible move to the Mexican club but as yet no formal proposal has been received.`\
+https://nytimes.com/athletic/6099622/2025/01/30/sergio-ramos-monterrey-talks/
+
 **In Thailand, a faraway vigil for hostages ends in happy tears.**\
 `By Hannah Beech and Muktita Suhartono`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/in-thailand-a-faraway-vigil-for-hostages-ends-in-happy-tears
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095840/2025/01/30/kansas-city-chiefs-three-peat-dy
 **Passenger Jet and Army Helicopter Collide Near Washington, D.C.: A Timeline**\
 `Here is a look at how the crash unfolded on Wednesday night.`\
 https://nytimes.com/2025/01/30/us/washington-dc-plane-helicopter-crash-timeline.html
-
-**Diverging From the Fed, E.C.B. Cuts Interest Rates as Growth Stagnates**\
-`The European Central Bank’s reduction, the fifth consecutive cut since last summer, came a day after the U.S. Federal Reserve held interest rates.`\
-https://nytimes.com/2025/01/30/business/europe-central-bank-interest-rates-economy.html
 
