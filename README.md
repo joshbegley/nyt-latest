@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Passive play, lack of energy lead to another losing streak**\
+`A Nylander goal in the third period wasn't enough offence to lift the Leafs above the Wild.`\
+https://nytimes.com/athletic/6098934/2025/01/29/maple-leafs-report-cards-woll-nylander-wild/
+
 **Hornets' LaMelo Ball out at least 1 week with left ankle sprain**\
 `Charlotte has four games over the next week, and sits in 14th place in the Eastern Conference at 12-32.`\
 https://nytimes.com/athletic/6098877/2025/01/29/lamelo-ball-hornets-out-ankle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/morgan-stanley-grimes-trump-commerce.
 **Far From Colombia, Trump’s Measures Caused Chaos at Airports**\
 `The Trump administration had added extra inspections for passengers from Colombia at U.S. ports of entry as part of a pressure campaign on the country’s president. The effects lingered into Wednesday.`\
 https://nytimes.com/2025/01/29/us/politics/trump-colombia-deportations-security.html
-
-**Reds add more playoff experience with acquisition of veteran lefty Taylor Rogers**\
-`The Reds have added five established major leaguers from outside the organization to their roster and four were in the postseason last year.`\
-https://nytimes.com/athletic/6098659/2025/01/29/reds-taylor-rogers-trade-analysis/
 
