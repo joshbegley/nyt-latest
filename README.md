@@ -1,8 +1,12 @@
+**Windy conditions and bitterly cold river water are complicating rescue efforts.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/windy-conditions-and-bitterly-cold-river-water-are-complicating-rescue-efforts
+
 **How Wojciech Szczesny ousted Inaki Pena to become Barcelona's back-up goalkeeper**\
 `After coming out of retirement, the experienced Szczesny has become Hansi Flick's main Ter Stegen replacement`\
 https://nytimes.com/athletic/6098821/2025/01/30/barcelona-wojciech-szczesny-inaki-pena/
 
-**Figure Skaters Among Passengers on Crashed Jet**\
+**U.S. and Russian Figure Skaters Among Passengers on Crashed Jet**\
 `Members of the U.S. figure skating community were traveling on the commercial jet that collided with a military helicopter outside Washington. They were returning from a skate camp in Kansas.`\
 https://nytimes.com/2025/01/30/us/figure-skaters-dc-plane-crash.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/nyregion/immigration-raids-nyc-ice.html
 **Forget the Punchline. It’s the Setup to These Jokes That’s Tricky.**\
 `Ronny Chieng, Gary Gulman and other comics are experimenting with long buildups that can be audacious … when they work.`\
 https://nytimes.com/2025/01/30/arts/television/comedy-ronny-chieng-gary-gulman-hannah-einbinder.html
-
-**A Fish Farm Offered 40,000 Pounds of Salmon for Free. There Was a Catch.**\
-`When an upstate New York salmon farm went out of business, nonprofits had days to find a way to catch, refrigerate and clean more than 13,000 fish.`\
-https://nytimes.com/2025/01/30/nyregion/localcoho-salmon-donations-live-fish.html
 
