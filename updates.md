@@ -1,3 +1,7 @@
+**Eeny Meeny Miny Mo, Catch a Pterosaur by Its Neck**\
+`A puncture in the fossilized neck of a winged reptile that flew with the dinosaurs suggests the creature became a feast for a crocodile ancestor.`\
+https://nytimes.com/2025/01/30/science/pterosaur-fossil-bite-croc.html
+
 **Hermansen available for Leicester again after injury absence**\
 `Leicester City should have their No 1 Mads Hermansen back from injury for the trip to Everton on Saturday.`\
 https://nytimes.com/athletic/6099726/2025/01/30/mads-hermansen-leicester-injury/
