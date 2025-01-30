@@ -1,3 +1,7 @@
+**Why Trump Wants Kash Patel to Lead the F.B.I.**\
+`Kash Patel is an unconventional pick to run the F.B.I. Devlin Barrett, a reporter for The New York Times, explains why President Trump wants Patel to lead the organization.`\
+https://nytimes.com/video/us/politics/100000009954637/why-trump-wants-kash-patel-to-lead-the-fbi.html
+
 **Champions League Briefing: 18 matches, 64 goals, and plenty of drama**\
 `Our writers pick 10 talking points from the final day of the league phase of the Champions League, as 18 games were played simultaneously`\
 https://nytimes.com/athletic/6098193/2025/01/29/champions-league-talking-points-analysis/
