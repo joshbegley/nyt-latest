@@ -1,3 +1,7 @@
+**Gabbard is an unorthodox choice to oversee the country’s vast intelligence community.**\
+`By Elizabeth Williamson and Charles Homans`\
+https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/gabbard-is-an-unorthodox-choice-to-oversee-the-countrys-vast-intelligence-community
+
 **A standard Senate questionnaire illuminates Patel’s early years.**\
 `In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
 https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/a-standard-senate-questionnaire-illuminates-patels-early-years
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-
 **Here’s the latest on the hearing.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/heres-the-latest-on-the-hearing
-
-**Team Finland names Aleksander Barkov captain for 4 Nations Face-Off**\
-`Barkov leads all active Finnish players in career points with 753 in 779 NHL games and captained the Panthers to the Stanley Cup in 2024.`\
-https://nytimes.com/athletic/6099066/2025/01/30/aleksander-barkov-captain-finland-4-nations/
 
