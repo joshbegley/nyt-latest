@@ -1,3 +1,15 @@
+**Trump Administration Shakes Up Senior F.B.I. Ranks**\
+`Top officials have been told to retire or be fired in the coming days, fueling fear within the agency that has been the target of President Trump and Kash Patel, his nominee to be F.B.I. director.`\
+https://nytimes.com/2025/01/30/us/politics/trump-fbi-firing.html
+
+**What I'm hearing on De'Aaron Fox's future and the Kings**\
+`As the trade deadline nears, one league source says more than half of the league’s teams have inquired about the 27-year-old Kings’ star.`\
+https://nytimes.com/athletic/6101397/2025/01/30/deaaron-fox-trade-rumors-kings-spurs-jimmy-butler/
+
+**All 67 People Died in a Midair Crash Near Washington**\
+`Also, a hostage release in Gaza descended into chaos. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/01/30/briefing/washington-dc-plane-crash-bill-gates-memoir.html
+
 **Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
 `According to an investigative report, six massage therapists who worked with Tucker between 2012 and 2016 accused him of misbehavior.`\
 https://nytimes.com/athletic/6101074/2025/01/30/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
