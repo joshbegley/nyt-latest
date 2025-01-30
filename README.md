@@ -1,3 +1,7 @@
+**Jets to hire former NFL head coach Steve Wilks as defensive coordinator**\
+`Wilks brings a greater level of experience to first-time head coach Aaron Glenn.`\
+https://nytimes.com/athletic/6098474/2025/01/29/steve-wilks-jets-defensive-coordinator/
+
 **Why Trump Wants Kash Patel to Lead the F.B.I.**\
 `Kash Patel is an unconventional pick to run the F.B.I. Devlin Barrett, a reporter for The New York Times, explains why President Trump wants Patel to lead the organization.`\
 https://nytimes.com/video/us/politics/100000009954637/why-trump-wants-kash-patel-to-lead-the-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/rfk-jr-confirmation-hearing-takeaways
 **Trump Signs Order to Promote ‘Patriotic Education’ in the Classroom**\
 `The executive order was among several the president signed meant to steer American schools and universities to adopt Republican priorities, such as restricting how schools discuss racism and gender issues.`\
 https://nytimes.com/2025/01/29/us/politics/trump-executive-orders-schools-antisemitism-race-gender.html
-
-**Defense Agency Pauses Celebrations of Martin Luther King’s Birthday, Women’s History Month and Others**\
-`The Pentagon joined the scramble by federal agencies trying to conform to President Trump’s war on diversity programs.`\
-https://nytimes.com/2025/01/29/us/politics/trump-holiday-mlk-black-history-dei.html
 
