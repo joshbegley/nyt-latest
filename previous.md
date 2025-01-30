@@ -1,3 +1,7 @@
+**F.D.A. Approves Drug to Treat Pain Without Opioid Effects**\
+`The drug, Journavx by Vertex Pharmaceuticals, blocks pain signals to the brain, making it nonaddictive.`\
+https://nytimes.com/2025/01/30/health/fda-journavx-suzetrigine-vertex-opioids.html
+
 **What Caused the Crash Into the Potomac? For Trump, It Was Diversity.**\
 `In a briefing that recalled his most extreme first term remarks, President Trump said without any evidence that diversity initiatives caused the midair collision.`\
 https://nytimes.com/2025/01/30/us/politics/plane-crash-trump-diversity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/trump-fbi-firing.html
 **What I'm hearing on De'Aaron Fox's future and the Kings**\
 `As the trade deadline nears, one league source says more than half of the league’s teams have inquired about the 27-year-old Kings’ star.`\
 https://nytimes.com/athletic/6101397/2025/01/30/deaaron-fox-trade-rumors-kings-spurs-jimmy-butler/
-
-**All 67 People Died in a Midair Crash Near Washington**\
-`Also, a hostage release in Gaza descended into chaos. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/01/30/briefing/washington-dc-plane-crash-bill-gates-memoir.html
 

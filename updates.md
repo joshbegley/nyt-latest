@@ -1,3 +1,7 @@
+**F.D.A. Approves Drug to Treat Pain Without Opioid Effects**\
+`The drug, Journavx by Vertex Pharmaceuticals, blocks pain signals to the brain, making it nonaddictive.`\
+https://nytimes.com/2025/01/30/health/fda-journavx-suzetrigine-vertex-opioids.html
+
 **What Caused the Crash Into the Potomac? For Trump, It Was Diversity.**\
 `In a briefing that recalled his most extreme first term remarks, President Trump said without any evidence that diversity initiatives caused the midair collision.`\
 https://nytimes.com/2025/01/30/us/politics/plane-crash-trump-diversity.html
