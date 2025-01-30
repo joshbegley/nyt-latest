@@ -1,3 +1,7 @@
+**Here’s the latest on the hostage and prisoner exchange.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
+
 **Eighteen Champions League games, one unusual assignment: watch every match (in five-minute segments)**\
 `How do you follow all 18 games on 'Matchday Mayhem'? Come up with a running order and watch a bit of every game, of course`\
 https://nytimes.com/athletic/6095469/2025/01/30/watching-every-champions-league-match/
@@ -14,6 +18,10 @@ https://nytimes.com/2025/01/30/learning/word-of-the-day-limbic.html
 `Chiesa's 90-minute display against PSV was the most accomplished of a strong of promising cameos in 2025 - he looks up to speed at last`\
 https://nytimes.com/athletic/6098576/2025/01/30/federico-chiesa-liverpool-psv/
 
+**'Natural, aggressive, confident' - Nwaneri is a teenager who continues to step up**\
+`Mikel Artera wants new signings for Arsenal's frontline - in Nwaneri he has a player for his short, medium and long-term ambitions`\
+https://nytimes.com/athletic/6098468/2025/01/30/arsenal-ethan-nwaneri-teenager-girona/
+
 **Gilgeous-Alexander hits 50 points for second time in 4 games in loss vs. Warriors**\
 `The only two such showings of the guard's career came within a week of each other.`\
 https://nytimes.com/athletic/6099087/2025/01/30/shai-gilgeous-alexander-50-point-game/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-trump-cabinet.html
 **What to Know About the Plane and Helicopter Crash Near Washington**\
 `American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan National Airport.`\
 https://nytimes.com/2025/01/30/us/plane-crash-dc-helicopter-reagan-airport.html
-
-**Kristaps Porziņģis blames bad luck for some of Celtics' issues, but it's more than that**\
-`The Celtics need to execute better, especially during fourth-quarter possessions. They also need to sharpen up on offense and defense.`\
-https://nytimes.com/athletic/6098986/2025/01/30/celtics-luck-kristaps-porzingis/
-
-**Badgers CB sues NCAA for additional eligibility as he pursues NIL profits**\
-`Fourqurean claims his two-year run at a Division II program should not count because it unfairly limited his ability to make NIL profits.`\
-https://nytimes.com/athletic/6098880/2025/01/30/wisconsin-nyzier-fourqurean-ncaa-lawsuit/
 
