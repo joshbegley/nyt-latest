@@ -1,3 +1,15 @@
+**4 Takeaways From Tulsi Gabbard’s Confirmation Hearing**\
+`President Trump’s choice to serve as the director of national intelligence faced tough questions from senators in both parties.`\
+https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-senate-hearing-takeaways.html
+
+**‘She Speaks for Millions’: Best and Worst Moments From Tulsi Gabbard’s Confirmation Hearing**\
+`Eight Opinion writers weigh in on whether she’s up to the job of director of national intelligence.`\
+https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-senate-hearing.html
+
+**Friday Briefing: 67 Dead in Washington Air Collision**\
+`Plus, Beyoncé vs. Swift at the Grammys.`\
+https://nytimes.com/2025/01/30/briefing/washington-air-crash-hamas-hostages-senate-hearings.html
+
 **Powerful Storm System Set to Drench Northern California**\
 `San Francisco could see as much as six inches of rain over the next week as a moisture-packed storm known as an atmospheric river works its way south from the Pacific Northwest.`\
 https://nytimes.com/2025/01/30/weather/atmospheric-river-rain-california.html
