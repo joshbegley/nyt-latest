@@ -1,3 +1,15 @@
+**Are Amorim's methods working at Manchester United?**\
+`Amorim's United feels like a pencil sketch of a grander planned work - there are signs of progress but huge improvements are needed`\
+https://nytimes.com/athletic/6091063/2025/01/30/ruben-amorim-manchester-united-methods-working/
+
+**Provide and conquer: How Murphy and Isak became the Premier League's deadliest duo**\
+`How the Newcastle pair's partnership is working so effectively`\
+https://nytimes.com/athletic/6096384/2025/01/30/how-jacob-murphy-and-alexander-isak-became-the-premier-leagues-deadliest-duo/
+
+**Crystal Palace, ambition and the quandary over risk versus reward**\
+`The Londoners are part of the furniture after 12 years as a Premier League club, so why is there grumbling discontent at Selhurst Park?`\
+https://nytimes.com/athletic/6089419/2025/01/30/crystal-palace-parish-ambition-selhurst-premier-league/
+
 **Why has Sheffield United's leadership treated Maddy Cusack's memory so callously?**\
 `The club's behaviour since the death of one of their most popular women's players beggars belief - and raises serious questions`\
 https://nytimes.com/athletic/6096415/2025/01/30/maddy-cusack-sheffield-united-memory/
