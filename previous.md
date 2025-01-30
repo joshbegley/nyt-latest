@@ -1,3 +1,7 @@
+**A Closer Look at 3 Israeli Hostages Released Thursday**\
+`Hamas released eight hostages, including three Israelis and five Thais, as part of a hostage-for-prisoner exchange.`\
+https://nytimes.com/2025/01/30/world/middleeast/israeli-hostages-released-arbel-yehud-agam-berger-gadi-moses.html
+
 **In India, Concerns of Cover-Up After Stampede at Massive Hindu Festival**\
 `The late release of casualty figures at the gathering of millions of people was seen as shielding the political fortunes of a local leader with national aspirations.`\
 https://nytimes.com/2025/01/30/world/asia/kumbh-stampede-yogi-coverup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099334/2025/01/30/champions-league-fallout-duran-s
 **Rescuers in Japan Try to Reach Driver Trapped in Sinkhole for Days**\
 `Emergency workers have been hampered by unstable ground since Tuesday, when a truck and its driver were swallowed north of Tokyo.`\
 https://nytimes.com/2025/01/30/world/asia/japan-sinkhole-driver-rescue.html
-
-**Golf is leisurely, but does the PGA Tour have to be this slow?**\
-`When a respected voice called out tour pros amid a 5 1/2-hour round last week, everyone was listening.`\
-https://nytimes.com/athletic/6098597/2025/01/30/pga-tour-golf-slow-play/
 

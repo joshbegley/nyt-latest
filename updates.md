@@ -1,3 +1,7 @@
+**A Closer Look at 3 Israeli Hostages Released Thursday**\
+`Hamas released eight hostages, including three Israelis and five Thais, as part of a hostage-for-prisoner exchange.`\
+https://nytimes.com/2025/01/30/world/middleeast/israeli-hostages-released-arbel-yehud-agam-berger-gadi-moses.html
+
 **In India, Concerns of Cover-Up After Stampede at Massive Hindu Festival**\
 `The late release of casualty figures at the gathering of millions of people was seen as shielding the political fortunes of a local leader with national aspirations.`\
 https://nytimes.com/2025/01/30/world/asia/kumbh-stampede-yogi-coverup.html
