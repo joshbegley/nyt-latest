@@ -1,3 +1,35 @@
+**Kawhi Leonard understands why San Antonio boos him, shows Spurs he is still him**\
+`"It's just because of the player I am, you know what I mean, and what I've done here," Leonard said.`\
+https://nytimes.com/athletic/6099135/2025/01/30/clippers-spurs-kawhi-leonard/
+
+**If Charges Are Dropped, Could Adams Campaign Get New Life?**\
+`The mayoral race has been thrown into uncertainty by  news that the Trump administration was considering dropping the charges against Eric Adams.`\
+https://nytimes.com/2025/01/30/nyregion/adams-trump-charges-.html
+
+**Inside the N.Y.C. Immigration Crackdown: Show of Force Yields 39 Arrests**\
+`ICE agents conducted roundups in New York City, and a day later, local authorities announced their own gang takedown. In immigrant neighborhoods, fear was palpable.`\
+https://nytimes.com/2025/01/30/nyregion/immigration-raids-nyc-ice.html
+
+**Forget the Punchline. It’s the Setup to These Jokes That’s Tricky.**\
+`Ronny Chieng, Gary Gulman and other comics are experimenting with long buildups that can be audacious … when they work.`\
+https://nytimes.com/2025/01/30/arts/television/comedy-ronny-chieng-gary-gulman-hannah-einbinder.html
+
+**A Fish Farm Offered 40,000 Pounds of Salmon for Free. There Was a Catch.**\
+`When an upstate New York salmon farm went out of business, nonprofits had days to find a way to catch, refrigerate and clean more than 13,000 fish.`\
+https://nytimes.com/2025/01/30/nyregion/localcoho-salmon-donations-live-fish.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/30/crosswords/spelling-bee-forum.html
+
+**A Way of Sharing Solar Power’s Benefits Is Thriving. Trump May End It.**\
+`Community solar projects allow subscribers to benefit from the renewable energy source even without installing solar panels.`\
+https://nytimes.com/2025/01/30/nyregion/trump-solar-power-renewable-energy.html
+
+**At Quinceañeros, a Changing Culture Emerges**\
+`For centuries, only young Latinas had quinceañeras. A reporter set out to learn why more boys are having coming-of-age celebrations, called quinceañeros.`\
+https://nytimes.com/2025/01/30/reader-center/quincenearo-for-boys.html
+
 **Here’s the latest on the hostage and prisoner exchange.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
@@ -5,36 +37,4 @@ https://nytimes.com/live/2025/world/israel-hamas-hostage-release-gaza/heres-the-
 **Eighteen Champions League games, one unusual assignment: watch every match (in five-minute segments)**\
 `How do you follow all 18 games on 'Matchday Mayhem'? Come up with a running order and watch a bit of every game, of course`\
 https://nytimes.com/athletic/6095469/2025/01/30/watching-every-champions-league-match/
-
-**Who are the makers of the two aircraft that collided?**\
-`Following the collision,`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/black-hawk-helicopter-plane-crash
-
-**Word of the Day: limbic**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/30/learning/word-of-the-day-limbic.html
-
-**Federico Chiesa finally looks ready to make his mark at Liverpool**\
-`Chiesa's 90-minute display against PSV was the most accomplished of a strong of promising cameos in 2025 - he looks up to speed at last`\
-https://nytimes.com/athletic/6098576/2025/01/30/federico-chiesa-liverpool-psv/
-
-**'Natural, aggressive, confident' - Nwaneri is a teenager who continues to step up**\
-`Mikel Artera wants new signings for Arsenal's frontline - in Nwaneri he has a player for his short, medium and long-term ambitions`\
-https://nytimes.com/athletic/6098468/2025/01/30/arsenal-ethan-nwaneri-teenager-girona/
-
-**Gilgeous-Alexander hits 50 points for second time in 4 games in loss vs. Warriors**\
-`The only two such showings of the guard's career came within a week of each other.`\
-https://nytimes.com/athletic/6099087/2025/01/30/shai-gilgeous-alexander-50-point-game/
-
-**With changes on the horizon, Max Verstappen’s Red Bull future nears a crossroads**\
-`Though only 27 and under contract with Red Bull until 2028, Verstappen has said he is closer to the end of his career than the beginning`\
-https://nytimes.com/athletic/6094256/2025/01/30/max-verstappen-red-bull-f1-2025-season-crossroads/
-
-**Tulsi Gabbard Fits Right Into Trump’s Vision for America**\
-`Perhaps none of President Trump’s picks for his new cabinet embody his worldview better than former Representative Tulsi Gabbard.`\
-https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-trump-cabinet.html
-
-**What to Know About the Plane and Helicopter Crash Near Washington**\
-`American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan National Airport.`\
-https://nytimes.com/2025/01/30/us/plane-crash-dc-helicopter-reagan-airport.html
 
