@@ -1,3 +1,15 @@
+**Bears Senior Bowl mock draft: Grey Zabel among the standout linemen in Mobile**\
+`This exercise focused on players who stood out in Mobile and included a mock trade with the Seahawks just to make it more interesting.`\
+https://nytimes.com/athletic/6098660/2025/01/30/bears-senior-bowl-mock-draft/
+
+**Rising star Amen Thompson embraces 'how to be a dog' with Rockets**\
+`Thompson talks to Kelly Iko about his mindset, his impact and what he's learning from Dillon Brooks and Fred VanVleet. `\
+https://nytimes.com/athletic/6097869/2025/01/30/rockets-amen-thompson-stats-news-interview-nba/
+
+**Who's on UNC's coaching list? Duke's successful succession, X-factors for the game: Mailbag**\
+`With Duke and UNC trending in opposite directions, you had questions before the first meeting of the rivals this season on Saturday.`\
+https://nytimes.com/athletic/6098337/2025/01/30/duke-unc-rivalry-game-mailbag/
+
 **The crash occurred in one of the United States’ most complex airspaces.**\
 `In the claustrophobic skies around Washington D.C., domestic flights, military helicopters and other aircraft are often flying around each other in congested airspace.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-occurred-in-one-of-the-united-states-most-complex-airspaces
