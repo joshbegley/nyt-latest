@@ -1,3 +1,7 @@
+**Wolfgang Zwiener, Waiter Who Built a Steakhouse Empire, Dies at 85**\
+`After years of waiting tables at Peter Luger in Brooklyn, he opened Wolfgang’s Steakhouse in Manhattan, the first of 35 restaurants around the world.`\
+https://nytimes.com/2025/01/30/dining/wolfgang-zwiener-dead.html
+
 **The collision signals ‘multiple failures,’ a veteran Black Hawk pilot says.**\
 `During his time`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-collision-signals-multiple-failures-a-veteran-black-hawk-pilot-says
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096739/2025/01/30/mikaela-shiffrin-world-cup-skiin
 **Patel Has Promised Drastic Changes at the F.B.I.**\
 `Some of the shifts, including gutting the bureau’s headquarters, are already underway.`\
 https://nytimes.com/2025/01/30/us/politics/patel-fbi-changes.html
-
-**Friends returning from a hunting trip were among the passengers.**\
-`By Julie Bosman`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/friends-returning-from-a-hunting-trip-were-among-the-passengers
 
