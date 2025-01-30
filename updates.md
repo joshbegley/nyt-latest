@@ -1,3 +1,15 @@
+**West Ham have offer for USMNT's Pepi rejected by PSV**\
+`West Ham United&#8217;s proposal to sign PSV striker Ricardo Pepi has been rejected.`\
+https://nytimes.com/athletic/6099243/2025/01/30/ricardo-pepi-west-ham-transfer/
+
+**Man Who Burned a Quran in Stockholm Is Killed**\
+`Salwan Momika, an Iraqi immigrant in Sweden, set off enormous protests when he burned a Quran in 2023. He had been scheduled to appear in court on Thursday.`\
+https://nytimes.com/2025/01/30/world/europe/salwan-momika-quran-sweden-killed.html
+
+**Liverpool's Bajcetic to terminate Red Bull Salzburg loan and join Las Palmas**\
+`Liverpool and Red Bull Salzburg have agreed to terminate Stefan Bajcetic&#8217;s loan spell with the Spanish midfielder set to join Las Palmas for the rest of the season.`\
+https://nytimes.com/athletic/6099359/2025/01/30/liverpool-bajcetic-transfer-loan-las-palmas-salzburg/
+
 **Bears Senior Bowl mock draft: Grey Zabel among the standout linemen in Mobile**\
 `This exercise focused on players who stood out in Mobile and included a mock trade with the Seahawks just to make it more interesting.`\
 https://nytimes.com/athletic/6098660/2025/01/30/bears-senior-bowl-mock-draft/

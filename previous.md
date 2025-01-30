@@ -1,3 +1,15 @@
+**West Ham have offer for USMNT's Pepi rejected by PSV**\
+`West Ham United&#8217;s proposal to sign PSV striker Ricardo Pepi has been rejected.`\
+https://nytimes.com/athletic/6099243/2025/01/30/ricardo-pepi-west-ham-transfer/
+
+**Man Who Burned a Quran in Stockholm Is Killed**\
+`Salwan Momika, an Iraqi immigrant in Sweden, set off enormous protests when he burned a Quran in 2023. He had been scheduled to appear in court on Thursday.`\
+https://nytimes.com/2025/01/30/world/europe/salwan-momika-quran-sweden-killed.html
+
+**Liverpool's Bajcetic to terminate Red Bull Salzburg loan and join Las Palmas**\
+`Liverpool and Red Bull Salzburg have agreed to terminate Stefan Bajcetic&#8217;s loan spell with the Spanish midfielder set to join Las Palmas for the rest of the season.`\
+https://nytimes.com/athletic/6099359/2025/01/30/liverpool-bajcetic-transfer-loan-las-palmas-salzburg/
+
 **Bears Senior Bowl mock draft: Grey Zabel among the standout linemen in Mobile**\
 `This exercise focused on players who stood out in Mobile and included a mock trade with the Seahawks just to make it more interesting.`\
 https://nytimes.com/athletic/6098660/2025/01/30/bears-senior-bowl-mock-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6097103/2025/01/30/knicks-trade-deadline-nba/
 **Manchester United live Q&A: Laurie Whitwell answers your questions**\
 `Pose your questions and our club correspondent Laurie Whitwell will answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
 https://nytimes.com/athletic/6096489/2025/01/30/manchester-united-questions-transfers-amorim/
-
-**For late-round picks trying to crack the NHL, all you need is a chip and a chance**\
-`Many players drafted in the sixth or seventh round never pan out. But those who do often have a grinder's mentality and a hunger to stay.`\
-https://nytimes.com/athletic/6097280/2025/01/30/nhl-late-round-draft-picks/
-
-**Should the Flyers be interested in acquiring J.T. Miller? What could a trade look like?**\
-`The Flyers need a high-end center and Miller qualifies as just that. Should they call Vancouver and maybe take a swing?`\
-https://nytimes.com/athletic/6097901/2025/01/30/flyers-canucks-jt-miller-trade/
-
-**ESPN's Adam Schefter: 'I love to feel the energy of something that is not familiar'**\
-`Schefter opens up to The Athletic's Andrew Marchand about his role, side work he loves doing and his future as a reporter.`\
-https://nytimes.com/athletic/6098091/2025/01/30/adam-schefter-espn-nfl-reporter-ben-johnson-chicago-bears-adrian-wojnarowski/
 
