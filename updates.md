@@ -1,3 +1,7 @@
+**Arsenal optimistic Raya will be fit for Man City game**\
+`Arsenal are optimistic that David Raya will be available for selection against Manchester City on Sunday.`\
+https://nytimes.com/athletic/6099570/2025/01/30/david-raya-injury-arsenal-manchester-city/
+
 **A.I. Giants Double Down on Spending, Even as DeepSeek Looms**\
 `Both Meta and Microsoft committed to huge investments in artificial intelligence, despite new Chinese software outperforming American rivals at a lower cost.`\
 https://nytimes.com/2025/01/30/business/dealbook/meta-microsoft-ai-spending-deepseek.html
