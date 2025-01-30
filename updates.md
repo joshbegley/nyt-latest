@@ -1,3 +1,7 @@
+**In Thailand, a faraway vigil for hostages ends in happy tears.**\
+`By Hannah Beech and Muktita Suhartono`\
+https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/in-thailand-a-faraway-vigil-for-hostages-ends-in-happy-tears
+
 **Here’s the latest.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/heres-the-latest

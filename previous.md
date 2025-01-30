@@ -1,3 +1,7 @@
+**In Thailand, a faraway vigil for hostages ends in happy tears.**\
+`By Hannah Beech and Muktita Suhartono`\
+https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/in-thailand-a-faraway-vigil-for-hostages-ends-in-happy-tears
+
 **Here’s the latest.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/us/washington-dc-plane-helicopter-crash-timeline.
 **Diverging From the Fed, E.C.B. Cuts Interest Rates as Growth Stagnates**\
 `The European Central Bank’s reduction, the fifth consecutive cut since last summer, came a day after the U.S. Federal Reserve held interest rates.`\
 https://nytimes.com/2025/01/30/business/europe-central-bank-interest-rates-economy.html
-
-**Browns keeping close eye on top QB prospects at Senior Bowl practices**\
-`Cleveland head coach Kevin Stefanski and GM Andrew Berry know they must get it right at the game's most important position. `\
-https://nytimes.com/athletic/6098770/2025/01/30/browns-quarterback-senior-bowl-nfl-draft/
 
