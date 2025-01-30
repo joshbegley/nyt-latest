@@ -1,3 +1,11 @@
+**Uncertainty gripped the future of Duran and Watkins - Rogers stepped forward**\
+`Duran is heading for Al-Nassr, Arsenal have bid for Watkins - despite the build-up Villa held their nerve to claim place in round of 16`\
+https://nytimes.com/athletic/6096742/2025/01/30/duran-watkins-transfers-rogers-aston-villa/
+
+**Federico Chiesa finally looks ready to make his mark at Liverpool**\
+`Chiesa's 90-minute display against PSV was the most accomplished of a strong of promising cameos in 2025 - he looks up to speed at last`\
+https://nytimes.com/athletic/6098576/2025/01/30/federico-chiesa-liverpool-psv/
+
 **Gilgeous-Alexander hits 50 points for second time in 4 games in loss vs. Warriors**\
 `The only two such showings of the guard's career came within a week of each other.`\
 https://nytimes.com/athletic/6099087/2025/01/30/shai-gilgeous-alexander-50-point-game/
