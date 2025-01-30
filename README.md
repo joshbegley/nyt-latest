@@ -1,3 +1,7 @@
+**Yankees top pitching prospect Chase Hampton finally healthy, 'ready to rock'**\
+`Said Hampton: "In reality, I just want to go out there and just be excellent."`\
+https://nytimes.com/athletic/6098255/2025/01/30/yankees-chase-hampton-update/
+
 **In Thailand, an anxious vigil continues for hostages half a world away.**\
 `Five families hoped that their loved ones were finally being released from Gaza after 15 months as hostages.`\
 https://nytimes.com/2025/01/30/world/middleeast/thai-hostages-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/01/30/realestate/columbus-ohio-homes-sale.h
 **With Sweeping Executive Orders, Trump Tests Local Control of Schools**\
 `The orders seek to encourage “patriotic education” and restrict discussions about racism and gender by threatening to withdraw federal funding. But schools are often resistant to change.`\
 https://nytimes.com/2025/01/30/us/trump-executive-orders-local-control-schools.html
-
-**The Law Is Not Fully Trump’s Yet**\
-`The legal system is not so easily dismissed.`\
-https://nytimes.com/2025/01/30/opinion/trump-law-control-authoritarian.html
 
