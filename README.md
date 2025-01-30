@@ -1,3 +1,7 @@
+**The Windup: Catch up on busy MLB relievers market**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6100103/2025/01/30/mlb-relief-pitchers-free-agency-the-windup/
+
 **Potter: Bowen could return for Chelsea game**\
 `West Ham United head coach Graham Potter says Jarrod Bowen could feature in Monday&#8217;s Premier League fixture against Chelsea.`\
 https://nytimes.com/athletic/6100079/2025/01/30/jarrod-bowen-injury-return-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099855/2025/01/30/victor-hedman-captain-sweden-4-n
 **How the Mile High City became the NWSL's 16th club**\
 `From grassroots efforts led by former player Jordan Angeli to a record-setting expansion fee, here's how NWSL ended up in the Mile High City`\
 https://nytimes.com/athletic/6098847/2025/01/30/nwsl-denver-new-team-club-soccer/
-
-**Almiron rejoins Atlanta United from Newcastle**\
-`Atlanta United has completed the signing of Miguel Almiron from Newcastle United.`\
-https://nytimes.com/athletic/6066060/2025/01/30/miguel-almiron-atlanta-transfer/
 
