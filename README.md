@@ -1,6 +1,6 @@
 **Federal agencies ordered to end initiatives that support ‘gender ideology.’**\
 `By Erica L. Green`\
-https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology
+https://nytimes.com/2025/01/29/us/politics/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology.html
 
 **Brandon Saad’s shocking decision to walk away from $5.4 million is best-case scenario for Blues**\
 `Saad would've made $5.4 million had he reported to the Blues' AHL affiliate. Instead, he's walking away from it to become an NHL free agent.`\
