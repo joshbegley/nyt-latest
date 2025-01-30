@@ -1,3 +1,15 @@
+**Golf is leisurely, but does the PGA Tour have to be this slow?**\
+`When a respected voice called out tour pros amid a 5 1/2-hour round last week, everyone was listening.`\
+https://nytimes.com/athletic/6098597/2025/01/30/pga-tour-golf-slow-play/
+
+**Koreen: 10 Raptors-related thoughts on winning too much, tanking and the trade deadline**\
+`Losing isn't the only thing in a rebuilt. It is, however, an important thing.`\
+https://nytimes.com/athletic/6095813/2025/01/30/raptors-thoughts-tanking-nba-trade-deadline/
+
+**The R.F.K. Jr. Effect**\
+`We explore Kennedy’s contentious confirmation hearing. But first, we cover breaking news on a plane crash in Washington D.C.`\
+https://nytimes.com/2025/01/30/briefing/plane-crash-washington-robert-f-kennedy-jr.html
+
 **The Pulse: Active team still needs a nickname**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6098870/2025/01/30/utah-hockey-club-nickname-the-pulse/
