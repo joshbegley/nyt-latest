@@ -1,3 +1,15 @@
+**Internal Emails Offer Glimpse Into Early Days of Trump Election Inquiry**\
+`The messages showed that F.B.I. investigators took normal bureaucratic steps and precautions when opening an extraordinarily sensitive inquiry into Mr. Trump’s attempts to overturn the 2020 election.`\
+https://nytimes.com/2025/01/30/us/politics/fbi-emails-trump-2020-election.html
+
+**Caitlin Clark, Indiana Fever to play exhibition game at Iowa in May**\
+`The Fever will take on the Brazilian National Team at Carver-Hawkeye Arena on May 4.`\
+https://nytimes.com/athletic/6100614/2025/01/30/caitlin-clark-indiana-fever-exhibition-game-iowa/
+
+**Naming of New Syrian President Is Met With Some Wariness at Home**\
+`While some Syrians celebrated Ahmed al-Shara as head of state, others questioned how the decision to elevate the rebel leader was made.`\
+https://nytimes.com/2025/01/30/world/asia/ahmed-al-shara-syria-president.html
+
 **Marianne Faithfull, Chanteuse of Survival, Is Dead at 78**\
 `A fresh-voiced pop star and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times before emerging triumphant.`\
 https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
