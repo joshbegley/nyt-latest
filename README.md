@@ -1,3 +1,7 @@
+**Kyiv Mayor Feuds With Zelensky in Schism Over Martial Law**\
+`The mayor, Vitali Klitschko, who has had a tense relationship with President Volodymyr Zelensky, accused him of trying to usurp the powers of elected officials in the capital.`\
+https://nytimes.com/2025/01/30/world/europe/zelensky-klitschko-ukraine-martial-law.html
+
 **Monaco want to sign former Liverpool captain Henderson from Ajax**\
 `Monaco want to sign former Liverpool captain Jordan Henderson from Ajax.`\
 https://nytimes.com/athletic/6099579/2025/01/30/henderson-transfer-monaco-ajax-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099539/2025/01/30/adam-silver-commissioner-nba-all
 **Gabbard is an unorthodox choice to oversee the country’s vast intelligence community.**\
 `By Elizabeth Williamson and Charles Homans`\
 https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/gabbard-is-an-unorthodox-choice-to-oversee-the-countrys-vast-intelligence-community
-
-**A standard Senate questionnaire illuminates Patel’s early years.**\
-`In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
-https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/a-standard-senate-questionnaire-illuminates-patels-early-years
 
