@@ -1,3 +1,19 @@
+**Barcelona request Montjuic extension for Clasico amid Camp Nou delay**\
+`Barcelona have asked for an extension to play El Clasico at the Estadi Olimpic Lluis Companys with the stadium now unlikely to host a Rolling Stones concert on the same weekend as the La Liga match against Real Madrid.`\
+https://nytimes.com/athletic/6100192/2025/01/30/barcelona-montjuic-camp-nou-return/
+
+**Patel Repeatedly Dodges Question of Whether Biden Won the 2020 Election**\
+`Under three minutes of questioning from Senator Peter Welch, a Vermont Democrat, Kash Patel conceded only that Joe Biden was “certified” as the president.`\
+https://nytimes.com/2025/01/30/us/politics/patel-2020-election.html
+
+**Taylor Hall on Blackhawks: 'I was happy to be traded'**\
+`Hall's tone in Carolina is not bitter, but relieved — and more than anything, excited.`\
+https://nytimes.com/athletic/6100562/2025/01/30/taylor-hall-blackhawks-trade-hurricanes/
+
+**Watch: How did Kawhi Leonard get back to 'complete basketball' so quickly? (Watch)**\
+`The Athletic NBA Daily discuss what a healthy Kawhi Leonard could mean for the Los Angeles Clippers going forward.`\
+https://nytimes.com/athletic/6100311/2025/01/30/nba-daily-kawhi-leonard-clippers-complete-basketball/
+
 **What next for Dominic Calvert-Lewin and Everton?**\
 `The striker's latest injury setback provides a headache to David Moyes, the club and, with his contract up this summer, Calvert-Lewin`\
 https://nytimes.com/athletic/6099558/2025/01/30/dominic-calvert-lewin-everton-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/30/world/middleeast/zakaria-zubeidi-release-israel-h
 **They Don’t Know I Threw This Party Just for the Food**\
 `As in: crispy stuffed mushrooms with harissa and apricots, a samosa-ish party wreath and lots and lots of dumplings.`\
 https://nytimes.com/2025/01/30/dining/they-dont-know-i-threw-this-party-just-for-the-food.html
-
-**Stanway's injury comes as a huge blow for England and Bayern**\
-`The midfielder has been pivotal during Sarina Wiegman's time in charge. England will struggle to find someone who can do what she does`\
-https://nytimes.com/athletic/6100180/2025/01/30/georgia-stanway-england-bayern-injury/
-
-**Trump’s Reversal of a Federal Funding Freeze**\
-`Readers discuss the harms it would have caused and view it as a sign of incompetence. Also: D.E.I. at NASA; dementia cases; against deportations.`\
-https://nytimes.com/2025/01/30/opinion/trump-federal-funding-freeze.html
-
-**Everton's Mangala out for season with ACL injury, DCL to miss 'a number of weeks'**\
-`Everton midfielder Orel Mangala has sustained an anterior cruciate ligament (ACL) injury and is expected to miss the rest of the season, while striker Dominic Calvert-Lewin is set to miss a number of weeks with a hamstring injury.`\
-https://nytimes.com/athletic/6096851/2025/01/30/orel-mangala-acl-calvert-lewin-injury-everton/
-
-**Déjà Vu: Elon Musk Takes His Twitter Takeover Tactics to Washington**\
-`Federal agencies have offered exits to millions of employees and tested the prowess of engineers — just like when Elon Musk bought Twitter. The similarities have been uncanny.`\
-https://nytimes.com/2025/01/30/technology/musk-doge-x-playbook.html
 
