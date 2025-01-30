@@ -1,3 +1,7 @@
+**A.I. Giants Double Down on Spending, Even as DeepSeek Looms**\
+`Both Meta and Microsoft committed to huge investments in artificial intelligence, despite new Chinese software outperforming American rivals at a lower cost.`\
+https://nytimes.com/2025/01/30/business/dealbook/meta-microsoft-ai-spending-deepseek.html
+
 **Chelsea agree deal for Walsh signing from Barcelona**\
 `Chelsea have agreed a deal with Barcelona for the signing of England midfielder Keira Walsh.`\
 https://nytimes.com/athletic/6099251/2025/01/30/keira-walsh-chelsea-transfer/
