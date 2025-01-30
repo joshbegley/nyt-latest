@@ -1,3 +1,15 @@
+**FCSB 0 Manchester United 2 - Has Mainoo found his role? Have United finally got boring?**\
+`Analysis of Manchester United's Europa League win`\
+https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlights/
+
+**The Briefing: Tottenham 3-0 Elfsborg - Youngsters shine after Dragusin injury blow**\
+`The major talking points dissected from the final game in the league phase of the Europa League`\
+https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/
+
+**Flights Resumed at Reagan National, but the Day Hardly Felt Normal**\
+`The terminals were nearly empty as morning began, but they came to life by early afternoon.`\
+https://nytimes.com/2025/01/30/us/reagan-national-scene.html
+
 **Both American Airlines Pilots Were Avid Fliers**\
 `Both the captain, Jonathan J. Campos, 34, and co-pilot, Sam Lilley, 28, had been flying for years, according to family and friends.`\
 https://nytimes.com/2025/01/30/us/american-airlines-crew-members-plane-crash.html
