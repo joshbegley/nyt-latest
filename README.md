@@ -1,3 +1,11 @@
+**Hermansen available for Leicester again after injury absence**\
+`Leicester City should have their No 1 Mads Hermansen back from injury for the trip to Everton on Saturday.`\
+https://nytimes.com/athletic/6099726/2025/01/30/mads-hermansen-leicester-injury/
+
+**Tulsi Gabbard’s career has been marked by rapid ideological swings.**\
+`By Elizabeth Williamson and Charles Homans`\
+https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbards-career-has-been-marked-by-rapid-ideological-swings
+
 **Public crusades led to private windfalls for Kennedy.**\
 `By Susanne Craig`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/public-crusades-led-to-private-windfalls-for-kennedy
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6099622/2025/01/30/sergio-ramos-monterrey-talks/
 **In Thailand, a faraway vigil for hostages ends in happy tears.**\
 `By Hannah Beech and Muktita Suhartono`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/in-thailand-a-faraway-vigil-for-hostages-ends-in-happy-tears
-
-**Here’s the latest.**\
-`By Noah Weiland`\
-https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/heres-the-latest
-
-**Live Updates: After Rough Testimony, R.F.K. Jr. Aims to Win Over Skeptics**\
-`Robert F. Kennedy Jr. will appear Thursday morning before the Senate health committee for a second confirmation hearing. Lawmakers will likely question him about his shifting beliefs on vaccines and abortion.`\
-https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health
 
