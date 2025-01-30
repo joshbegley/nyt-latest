@@ -1,7 +1,3 @@
-**In Tense Call, Governors Push Schumer to Fight Harder Against Trump**\
-`On a call with Senator Chuck Schumer, the minority leader, six Democratic governors pushed him to slow down the confirmation of President Trump’s nominees and to do more to block his agenda.`\
-https://nytimes.com/2025/01/29/us/politics/chuck-schumer-trump-agenda-cabinet.html
-
 **Potentially dangerous airplane incidents have occurred at an alarming rate, a Times investigation found.**\
 `By Sydney Ember and Emily Steel`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/potentially-dangerous-airplane-incidents-have-occurred-at-an-alarming-rate-a-times-investigation-found
@@ -22,7 +18,7 @@ https://nytimes.com/2025/01/29/us/plane-crash-rescuers-rescue-watching.html
 `The directive was another step in the Trump administration’s campaign to root out “woke” ideology from the federal government.`\
 https://nytimes.com/2025/01/29/us/politics/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology.html
 
-**Brandon Saad’s shocking decision to walk away from $5.4 million is best-case scenario for Blues**\
+**Brandon Saad's shocking decision to walk away from $5.4 million is Blues' best-case scenario**\
 `Saad would've made $5.4 million had he reported to the Blues' AHL affiliate. Instead, he's walking away from it to become an NHL free agent.`\
 https://nytimes.com/athletic/6098294/2025/01/29/blues-brandon-saad-contract-nhl-free-agent/
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6098877/2025/01/29/lamelo-ball-hornets-out-ankle-in
 **Live Updates: Plane Crashes Near Washington After Colliding With Army Helicopter**\
 `The American Airlines flight from Wichita, Kan., plunged into the Potomac River, the F.A.A. said. An Army official said it collided with a Black Hawk helicopter.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
+
+**Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
+`Facing another month-plus without their star forward, the Wild set the blueprint for how to win without Kirill Kaprizov.`\
+https://nytimes.com/athletic/6098759/2025/01/29/wild-gustavsson-fourth-line-maple-leafs/
 
