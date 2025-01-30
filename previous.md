@@ -1,3 +1,7 @@
+**Chelsea agree deal for Walsh signing from Barcelona**\
+`Chelsea have agreed a deal with Barcelona for the signing of England midfielder Keira Walsh.`\
+https://nytimes.com/athletic/6099251/2025/01/30/keira-walsh-chelsea-transfer/
+
 **Angels roster projection 1.0: How will Los Angeles build upon its 63-99 team?**\
 `Apart from the addition of free-agent lefty Yusei Kikuchi, the Angels' roster will look similar to last year's.`\
 https://nytimes.com/athletic/6098082/2025/01/30/los-angeles-angels-roster-projection-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/world/middleeast/israeli-hostages-released-arbel-
 **In India, Concerns of Cover-Up After Stampede at Massive Hindu Festival**\
 `The late release of casualty figures at the gathering of millions of people was seen as shielding the political fortunes of a local leader with national aspirations.`\
 https://nytimes.com/2025/01/30/world/asia/kumbh-stampede-yogi-coverup.html
-
-**Hall of Fame mailbag: Stark on closers' cases plus King Félix, Pedroia, Edmonds and Rose**\
-`Did Billy Wagner's election just kick open the door for Kenley Jansen and Craig Kimbrel (and possibly Aroldis Chapman, too)?`\
-https://nytimes.com/athletic/6099337/2025/01/30/hall-of-fame-king-felix-pedroia-edmonds-rose/
 

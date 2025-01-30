@@ -1,3 +1,7 @@
+**Chelsea agree deal for Walsh signing from Barcelona**\
+`Chelsea have agreed a deal with Barcelona for the signing of England midfielder Keira Walsh.`\
+https://nytimes.com/athletic/6099251/2025/01/30/keira-walsh-chelsea-transfer/
+
 **Angels roster projection 1.0: How will Los Angeles build upon its 63-99 team?**\
 `Apart from the addition of free-agent lefty Yusei Kikuchi, the Angels' roster will look similar to last year's.`\
 https://nytimes.com/athletic/6098082/2025/01/30/los-angeles-angels-roster-projection-2025/
