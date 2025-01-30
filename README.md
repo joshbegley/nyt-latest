@@ -1,3 +1,7 @@
+**Nashville group submits bid for WNBA expansion team 'Tennessee Summit'**\
+`News of the Nashville bid comes in the midst of a growth period in the WNBA, which intends to expand to 16 teams by 2028.`\
+https://nytimes.com/athletic/6100756/2025/01/30/wnba-expansion-nashville-tennessee-summit/
+
 **Internal Emails Offer Glimpse Into Early Days of Trump Election Inquiry**\
 `The messages showed that F.B.I. investigators took normal bureaucratic steps and precautions when opening an extraordinarily sensitive inquiry into Mr. Trump’s attempts to overturn the 2020 election.`\
 https://nytimes.com/2025/01/30/us/politics/fbi-emails-trump-2020-election.html
@@ -12,7 +16,7 @@ https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
 
 **Naming of New Syrian President Is Met With Some Wariness at Home**\
 `While some Syrians celebrated Ahmed al-Shara as head of state, others questioned how the decision to elevate the rebel leader was made.`\
-https://nytimes.com/2025/01/30/world/ahmed-al-shara-syria-president.html
+https://nytimes.com/2025/01/30/world/asia/ahmed-al-shara-syria-president.html
 
 **Canada names Sidney Crosby captain for 4 Nations: Why he was the pick and notable omissions**\
 `Crosby also wore the "C" at the 2014 Sochi Games and 2016 World Cup. Canada is 45-5-0 in games when he has worn its sweater overall.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100338/2025/01/30/asensio-felix-villa-transfers/
 **Father Slays New York Girl, 14, in TikTok ‘Honor Killing’**\
 `After being lured to Pakistan, Hira Anwar was fatally shot by her father and an uncle over online posts that her parents believed were immodest, the police said.`\
 https://nytimes.com/2025/01/30/world/asia/pakistan-new-york-honor-killing.html
-
-**Chelsea's Wiley close to Watford loan**\
-`Watford are close to concluding a loan deal for Chelsea left-back Caleb Wiley.`\
-https://nytimes.com/athletic/6100686/2025/01/30/caleb-wiley-chelsea-watford-transfer/
 
