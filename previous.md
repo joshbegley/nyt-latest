@@ -1,3 +1,15 @@
+**Is the HPV Vaccine Safe? Yes, Despite Kennedy’s Criticisms**\
+`During his second day of confirmation hearings, Robert F. Kennedy Jr. declined to disavow comments he had made disparaging the vaccine as unsafe.`\
+https://nytimes.com/2025/01/30/health/hpv-vaccine-rfk.html
+
+**There was nothing unusual about the aircrafts’ flight paths before they collided, officials say.**\
+`Officials said there was no breakdown in communication between the Army helicopter, the American Airlines plane or local air traffic control towers before the crash.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/there-was-nothing-unusual-about-the-aircrafts-flight-paths-before-they-collided-officials-say
+
+**Senators chastise Kennedy for promoting false vaccine links to autism.**\
+`Studies have shown`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/disproved-link-vaccines-autism
+
 **Should the Sharks trade Mikael Granlund? Which teams might be interested?**\
 `Granlund has been rejuvenated and could be a solid add for a contending team seeking center depth.`\
 https://nytimes.com/athletic/6099303/2025/01/30/sharks-granlund-trade-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/dining/a-pasta-cheat-code-for-speed-run-dinners.h
 **A secretive sect has played a key role in Tulsi Gabbard’s life.**\
 `By Elizabeth Williamson and Charles Homans`\
 https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/a-secretive-sect-has-played-a-key-role-in-tulsi-gabbards-life
-
-**Patel’s Enemies List Is Expected to Be a Flashpoint**\
-`The list has generated unease inside the bureau given the mass firings at the Justice Department in recent days.`\
-https://nytimes.com/2025/01/30/us/politics/patels-enemies-list.html
-
-**The crash is the most serious air disaster involving a commercial jet in the U.S. since 2009.**\
-`By Claire Moses`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-appears-to-be-the-most-serious-air-disaster-involving-a-commercial-jet-in-the-us-since-2009
-
-**The Windup: Catch up on busy MLB relievers market**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6100103/2025/01/30/mlb-relief-pitchers-free-agency-the-windup/
 

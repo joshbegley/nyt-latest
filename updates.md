@@ -1,3 +1,15 @@
+**Is the HPV Vaccine Safe? Yes, Despite Kennedy’s Criticisms**\
+`During his second day of confirmation hearings, Robert F. Kennedy Jr. declined to disavow comments he had made disparaging the vaccine as unsafe.`\
+https://nytimes.com/2025/01/30/health/hpv-vaccine-rfk.html
+
+**There was nothing unusual about the aircrafts’ flight paths before they collided, officials say.**\
+`Officials said there was no breakdown in communication between the Army helicopter, the American Airlines plane or local air traffic control towers before the crash.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/there-was-nothing-unusual-about-the-aircrafts-flight-paths-before-they-collided-officials-say
+
+**Senators chastise Kennedy for promoting false vaccine links to autism.**\
+`Studies have shown`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/disproved-link-vaccines-autism
+
 **Should the Sharks trade Mikael Granlund? Which teams might be interested?**\
 `Granlund has been rejuvenated and could be a solid add for a contending team seeking center depth.`\
 https://nytimes.com/athletic/6099303/2025/01/30/sharks-granlund-trade-contract/
