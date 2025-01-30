@@ -1,3 +1,35 @@
+**New Sex Trafficking Indictment of Sean Combs Lists Two More Victims**\
+`Federal prosecutors filed an amended list of charges against the music mogul on Thursday and said he had coerced two additional women into sex acts.`\
+https://nytimes.com/2025/01/30/arts/music/sean-combs-diddy-superseding-indictment.html
+
+**Mark Zuckerberg Defends Embrace of Trump Administration in Meta Employee Meeting**\
+`In a meeting with Meta employees on Thursday, Mr. Zuckerberg also defended recent changes to the company’s online speech policies and ending its diversity initiatives.`\
+https://nytimes.com/2025/01/30/technology/mark-zuckerberg-meta-trump.html
+
+**Israel Frees Palestinian Prisoners After Chaotic Hostage Handover**\
+`Hamas freed three Israelis and five Thai nationals in exchange for more than 100 Palestinians. But the militant group struggled to control crowds, prompting a delay.`\
+https://nytimes.com/2025/01/30/world/middleeast/israel-hostages-prisoners-hamas.html
+
+**Palestinians Gather in West Bank to Welcome Prisoners Released by Israel**\
+`Throngs of people eagerly waited on Thursday for more than 100 Palestinian prisoners who were released from Israel in exchange for hostages held in Gaza.`\
+https://nytimes.com/2025/01/30/world/middleeast/palestinians-gather-west-bank-welcome-prisoners.html
+
+**Apple’s Revenue Increases 4 Percent Despite Slowing iPhone Sales**\
+`The tech giant’s sales of apps and services helped profit grow 7 percent from a year ago, even as the company contended with slumping sales in China.`\
+https://nytimes.com/2025/01/30/technology/apple-quarterly-earnings-profit.html
+
+**Kennedy Says He Will Not Keep Fees From HPV Vaccine Litigation**\
+`Senators had objected to the financial conflict posed by Robert F. Kennedy Jr.’s decision to retain a financial stake in lawsuits against a major drug company. It remains unclear whether any proceeds would be redirected.`\
+https://nytimes.com/2025/01/30/health/rfk-jr-hpv-vaccine-lawsuits-fees.html
+
+**An N.H.L. Team Quickly Moved to Utah. Renaming It Is Taking Longer.**\
+`The Utah Hockey Club is searching for a new name, but it’s skated into a marketplace crowded with trademarks.`\
+https://nytimes.com/2025/01/30/sports/nhl-utah-hockey-club-yeti.html
+
+**The Six Principles of Stupidity**\
+`I define stupidity as ignoring the question: What would happen next? By that definition, the Trump administration has produced volleys of it.`\
+https://nytimes.com/2025/01/30/opinion/trump-executive-orders.html
+
 **FCSB 0 Manchester United 2 - Has Mainoo found his role? Have United finally got boring?**\
 `Analysis of Manchester United's Europa League win`\
 https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlights/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlight
 **The Briefing: Tottenham 3 Elfsborg 0 - Youngsters shine after Dragusin injury blow**\
 `The major talking points dissected from the final game in the league phase of the Europa League`\
 https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/
-
-**Flights Resumed at Reagan National, but the Day Hardly Felt Normal**\
-`The terminals were nearly empty as morning began, but they came to life by early afternoon.`\
-https://nytimes.com/2025/01/30/us/reagan-national-scene.html
-
-**Both American Airlines Pilots Were Longtime Fliers**\
-`Both the captain, Jonathan J. Campos, 34, and co-pilot, Sam Lilley, 28, had been flying for years, according to family and friends.`\
-https://nytimes.com/2025/01/30/us/american-airlines-crew-members-plane-crash.html
-
-**What Kennedy Said About Antidepressants**\
-`A senator at Robert F. Kennedy Jr’s confirmation hearing questioned him about his false suggestions that antidepressants were partly responsible for the rise in school shootings. Christina Caron, a New York Times Well reporter who covers mental health, looks at the controversy.`\
-https://nytimes.com/video/well/100000009957776/what-kennedy-said-about-antidepressants.html
-
-**Gabbard’s Hearing Turns Tense Over Snowden Questions**\
-`Tulsi Gabbard, President Trump’s nominee for director of national intelligence, refused to fully denounce the 2013 leaks by Edward J. Snowden, eliciting concern from both parties.`\
-https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-confirmation-hearing-intelligence.html
-
-**Rebecca Yarros’ ‘Onyx Storm’ is the Fastest-Selling Adult Novel in 20 Years**\
-`The book, the third in a series, has sold 2.7 million copies in its first week, and provided yet another example of the romantasy genre’s staying power.`\
-https://nytimes.com/2025/01/30/books/rebecca-yarros-onyx-storm.html
-
-**Three New Bakeries for the Flakiest Croissants**\
-`Challah croissants, strawberry croissants, pig in a Bed (Stuy) croissants and more baked good goodness.`\
-https://nytimes.com/2025/01/30/dining/three-new-bakeries-for-the-flakiest-croissants.html
-
-**‘Asura’ Is a First-Class Domestic Drama**\
-`Written and directed by the Japanese filmmaker Hirokazu Kore-eda (“Shoplifters”), this Netflix series is so good it makes other shows look bad.`\
-https://nytimes.com/2025/01/30/arts/television/asura-netflix-hirokazu-kore-eda.html
-
-**Starbucks and Union Agree to Mediation in Quest for Contract**\
-`A labor agreement, covering more than 500 U.S. stores, would be the company’s first. Talks stalled last year over wages.`\
-https://nytimes.com/2025/01/30/business/starbucks-workers-united-union-mediation.html
 
