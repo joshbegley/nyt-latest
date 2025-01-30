@@ -1,3 +1,7 @@
+**Arsenal optimistic Raya will be fit for Man City game**\
+`Arsenal are optimistic that David Raya will be available for selection against Manchester City on Sunday.`\
+https://nytimes.com/athletic/6099570/2025/01/30/david-raya-injury-arsenal-manchester-city/
+
 **A.I. Giants Double Down on Spending, Even as DeepSeek Looms**\
 `Both Meta and Microsoft committed to huge investments in artificial intelligence, despite new Chinese software outperforming American rivals at a lower cost.`\
 https://nytimes.com/2025/01/30/business/dealbook/meta-microsoft-ai-spending-deepseek.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099433/2025/01/30/cameron-archer-leeds-transfer-so
 **Is Watkins the type of forward Arsenal should be looking at?**\
 `What profile would Arsenal fans be getting in Watkins if the club managed to land him? How suited is the fit?`\
 https://nytimes.com/athletic/6099279/2025/01/30/ollie-watkins-arsenal-tacitcal-transfers/
-
-**A Closer Look at 3 Israeli Hostages Released Thursday**\
-`Hamas released eight hostages, including three Israelis and five Thais, as part of a hostage-for-prisoner exchange.`\
-https://nytimes.com/2025/01/30/world/middleeast/israeli-hostages-released-arbel-yehud-agam-berger-gadi-moses.html
 
