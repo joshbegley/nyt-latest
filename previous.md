@@ -1,3 +1,11 @@
+**Resignation Push Deepens Worries About Effect on Government Services**\
+`The Trump administration’s effort to get federal workers to leave their posts could lead to an exodus of experienced employees, some warned.`\
+https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
+
+**A Silicon Valley deal maker is set to join the Trump administration.**\
+`Michael Grimes, a top banker at Morgan Stanley, would become the latest leading tech figure to join the administration, as a senior official at the Commerce Department.`\
+https://nytimes.com/2025/01/29/us/politics/a-silicon-valley-deal-maker-is-set-to-join-the-trump-administration.html
+
 **Far From Colombia, Trump’s Measures Caused Chaos at Airports**\
 `The Trump administration had added extra inspections for passengers from Colombia at U.S. ports of entry as part of a pressure campaign on the country’s president. The effects lingered into Wednesday.`\
 https://nytimes.com/2025/01/29/us/politics/trump-colombia-deportations-security.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
 **Trump Says U.S. Will Hold Migrants at Guantánamo**\
 `The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
 https://nytimes.com/2025/01/29/us/politics/trump-migrants-guantanamo.html
-
-**New Data Shows Major Electrical Disruption Ahead of Eaton Fire**\
-`A private lab found evidence of two massive electrical faults in the Eaton Canyon area just before a fire erupted there and spread through much of Altadena, Calif.`\
-https://nytimes.com/interactive/2025/01/29/business/energy-environment/eaton-fire-electrical-faults-southern-california-edison.html
-
-**Giants are unlikely to reinvest savings after shipping Taylor Rogers to Reds**\
-`The Giants will save $6 million by trading Rogers but aren't expected to spend that money on external additions this offseason.`\
-https://nytimes.com/athletic/6098444/2025/01/29/sf-giants-payroll-taylor-rogers-trade/
 
