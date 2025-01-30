@@ -1,3 +1,11 @@
+**Tennessee Lawmakers, Mirroring Trump Agenda, Pass Bills on Immigration and School Vouchers**\
+`The legislature’s Republican supermajority left little room for debate, pushing through millions of dollars and sprawling policy changes in a special session that lasted just four days.`\
+https://nytimes.com/2025/01/30/us/politics/tennessee-immigration-school-vouchers.html
+
+**Doug Burgum Is Confirmed by Senate as Interior Secretary**\
+`The former governor of North Dakota is promoting President Trump’s “energy dominance” agenda and wants more oil, gas and mining on public lands.`\
+https://nytimes.com/2025/01/30/climate/doug-burgum-interior-secretary.html
+
 **Victor Wembanyama headlines NBA All-Star reserves: Who else made the cut?**\
 `Six reserves are first-time All Stars.`\
 https://nytimes.com/athletic/6101505/2025/01/30/nba-all-star-reserve-roster-victor-wembanyama/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/us/immigrant-communities-hiding-ice.html
 **What we know about the figure skaters who were on the airplane that crashed in Washington, D.C.**\
 `Six of the passengers on the plane were associated with The Skating Club of Boston.`\
 https://nytimes.com/athletic/6101020/2025/01/30/figure-skaters-dc-plane-crash-what-we-know/
-
-**The Reason Army Helicopters Train in Washington’s Busy Skies**\
-`The service is often responsible for ferrying lawmakers and other V.I.P.’s across the area, and near Reagan National Airport.`\
-https://nytimes.com/2025/01/30/us/politics/army-helicopter-crash.html
-
-**Dick Button, Figure Skating Champion and Commentator, Dies at 95**\
-`He won an Emmy for his enthusiastic and sometimes acerbic analysis on sportscasts, but before that he made history as a two-time Olympic gold medalist.`\
-https://nytimes.com/2025/01/30/sports/dick-button-dead.html
 

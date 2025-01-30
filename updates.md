@@ -1,3 +1,11 @@
+**Tennessee Lawmakers, Mirroring Trump Agenda, Pass Bills on Immigration and School Vouchers**\
+`The legislature’s Republican supermajority left little room for debate, pushing through millions of dollars and sprawling policy changes in a special session that lasted just four days.`\
+https://nytimes.com/2025/01/30/us/politics/tennessee-immigration-school-vouchers.html
+
+**Doug Burgum Is Confirmed by Senate as Interior Secretary**\
+`The former governor of North Dakota is promoting President Trump’s “energy dominance” agenda and wants more oil, gas and mining on public lands.`\
+https://nytimes.com/2025/01/30/climate/doug-burgum-interior-secretary.html
+
 **Victor Wembanyama headlines NBA All-Star reserves: Who else made the cut?**\
 `Six reserves are first-time All Stars.`\
 https://nytimes.com/athletic/6101505/2025/01/30/nba-all-star-reserve-roster-victor-wembanyama/
