@@ -1,3 +1,7 @@
+**Team Finland names Aleksander Barkov captain for 4 Nations Face-Off**\
+`Barkov leads all active Finnish players in career points with 753 in 779 NHL games and captained the Panthers to the Stanley Cup in 2024.`\
+https://nytimes.com/athletic/6099066/2025/01/30/aleksander-barkov-captain-finland-4-nations/
+
 **Ramos in talks with Monterrey**\
 `Sergio Ramos is in talks with Monterrey over a possible move to the Mexican club but as yet no formal proposal has been received.`\
 https://nytimes.com/athletic/6099622/2025/01/30/sergio-ramos-monterrey-talks/
