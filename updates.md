@@ -1,3 +1,11 @@
+**Carlos Estévez, Royals agree to 2-year deal**\
+`Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
+https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
+
+**5 Takeaways From Kennedy’s First Confirmation Hearing**\
+`Mr. Kennedy appears to have most Republicans behind him as he seeks the job of health secretary, though he couldn’t escape his past stances on vaccines and abortion.`\
+https://nytimes.com/2025/01/29/us/politics/rfk-jr-confirmation-hearing-takeaways.html
+
 **Trump Says U.S. Will Hold Migrants at Guantánamo**\
 `The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
 https://nytimes.com/2025/01/29/us/politics/trump-migrants-guantanamo.html
