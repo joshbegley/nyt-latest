@@ -1,3 +1,11 @@
+**Members of a storied Massachusetts skating club gathered to grieve**\
+`By Jenna Russell`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/members-of-a-storied-massachusetts-skating-club-gathered-to-grieve
+
+**How to Watch FireAid, the Star-Studded Benefit for Los Angeles**\
+`The concert, featuring Billie Eilish, Olivia Rodrigo and so many stars that it will fill two arenas, will be carried on major streaming platforms.`\
+https://nytimes.com/2025/01/30/arts/music/fireaid-los-angeles-concert.html
+
 **Trump Dissolves Arts Committee Previously Restored by Biden**\
 `The disbanding of the President’s Committee on the Arts and the Humanities came amid a flurry of executive orders touching on art, culture and history.`\
 https://nytimes.com/2025/01/30/arts/trump-arts-committee-disband.html
