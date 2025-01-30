@@ -1,3 +1,7 @@
+**82,150 Gallons of Paint Later, a Blue Man Group Farewell**\
+`Over 34 years, the show gave Fred Armisen a drumming gig, “Arrested Development” a hilarious story line and more. Now the cultural sensation comes to an end in New York.`\
+https://nytimes.com/2025/01/30/theater/blue-man-group-new-york-closing-off-broadway.html
+
 **Is the HPV Vaccine Safe? Yes, Despite Kennedy’s Criticisms**\
 `During his second day of confirmation hearings, Robert F. Kennedy Jr. declined to disavow comments he had made disparaging the vaccine as unsafe.`\
 https://nytimes.com/2025/01/30/health/hpv-vaccine-rfk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6066507/2025/01/30/miguel-almiron-newcastle-atlanta
 **A Pasta Cheat Code for Speed-Run Dinners**\
 `Lidey Heuck’s five-star recipe for pasta with spicy sausage, broccoli rabe and chickpeas is a brilliant template for satisfying meals.`\
 https://nytimes.com/2025/01/30/dining/a-pasta-cheat-code-for-speed-run-dinners.html
-
-**A secretive sect has played a key role in Tulsi Gabbard’s life.**\
-`By Elizabeth Williamson and Charles Homans`\
-https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/a-secretive-sect-has-played-a-key-role-in-tulsi-gabbards-life
 
