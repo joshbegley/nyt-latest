@@ -1,3 +1,7 @@
+**Carlos Estévez, Royals agree to 2-year deal**\
+`Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
+https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
+
 **Trump Says U.S. Will Hold Migrants at Guantánamo**\
 `The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
 https://nytimes.com/2025/01/29/us/politics/trump-says-us-will-hold-migrants-at-guantanamo.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/01/29/us/politics/trump-executive-orders-schools-antise
 https://nytimes.com/2025/01/29/us/politics/trump-holiday-mlk-black-history-dei.html
 
 **How Tommy Kahnle fits the Tigers' bullpen: Pros, cons and what could be next**\
-`The Tigers signed relief pitcher Tommy Kahnle to a one-year deal worth $7.75 million, adding another piece to their bullpen puzzle. `\
+`The Tigers signed relief pitcher Kahnle to a one-year deal worth $7.75 million, adding another piece to their bullpen puzzle. `\
 https://nytimes.com/athletic/6098266/2025/01/29/detroit-tigers-tommy-kahnle-bullpen-fit/
 
 **Is Going After Government Always Good Politics?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
 **2026 World Cup matches could be subject to ‘dangerous heat’, study says**\
 `Heat was an issue at the 2024 Copa America in the U.S., with Uruguay's Ronald Araujo reported feeling 'dizzy' during a game.`\
 https://nytimes.com/athletic/6094317/2025/01/29/world-cup-2026-heat-kick-off-times/
-
-**Stop Feeling Stunned and Wounded, Liberals. It’s Time to Fight Back.**\
-`Americans alarmed by President Trump’s agenda must reunite and recalibrate.`\
-https://nytimes.com/2025/01/29/opinion/democrats-trump-resistance.html
 
