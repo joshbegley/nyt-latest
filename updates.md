@@ -1,3 +1,7 @@
+**What Caused the Crash Into the Potomac? For Trump, It Was Diversity.**\
+`In a briefing that recalled his most extreme first term remarks, President Trump said without any evidence that diversity initiatives caused the midair collision.`\
+https://nytimes.com/2025/01/30/us/politics/plane-crash-trump-diversity.html
+
 **Dani Busboom Kelly is right for Nebraska, which is not doomed to repeat old mistakes**\
 `Nebraska knows a few things about a homecoming hire. But that's no reason to distrust Busboom Kelly.`\
 https://nytimes.com/athletic/6101444/2025/01/30/nebraska-volleyball-dani-busboom-kelly-john-cook-retirement/

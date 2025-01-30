@@ -1,3 +1,7 @@
+**What Caused the Crash Into the Potomac? For Trump, It Was Diversity.**\
+`In a briefing that recalled his most extreme first term remarks, President Trump said without any evidence that diversity initiatives caused the midair collision.`\
+https://nytimes.com/2025/01/30/us/politics/plane-crash-trump-diversity.html
+
 **Dani Busboom Kelly is right for Nebraska, which is not doomed to repeat old mistakes**\
 `Nebraska knows a few things about a homecoming hire. But that's no reason to distrust Busboom Kelly.`\
 https://nytimes.com/athletic/6101444/2025/01/30/nebraska-volleyball-dani-busboom-kelly-john-cook-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6101397/2025/01/30/deaaron-fox-trade-rumors-kings-s
 **All 67 People Died in a Midair Crash Near Washington**\
 `Also, a hostage release in Gaza descended into chaos. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/01/30/briefing/washington-dc-plane-crash-bill-gates-memoir.html
-
-**Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
-`According to an investigative report, six massage therapists who worked with Tucker between 2012 and 2016 accused him of misbehavior.`\
-https://nytimes.com/athletic/6101074/2025/01/30/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
 
