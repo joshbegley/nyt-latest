@@ -2,7 +2,7 @@
 `Marc Molinaro, a former Republican congressman, would steer the Federal Transit Administration, which supports mass transit systems nationwide.`\
 https://nytimes.com/2025/01/30/nyregion/congestion-pricing-marc-molinaro.html
 
-**Congress approved more flights at Reagan despite warnings of danger**\
+**Congress approved more flights at Reagan despite warnings of danger.**\
 `Last year, lawmakers authorized an additional five round-trip flights despite an outcry from Maryland and Virginia senators, who warned that delays, cancellations and accidents would increase.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/congress-approved-more-flights-at-reagan-despite-warnings-of-danger
 
