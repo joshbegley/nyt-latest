@@ -1,3 +1,11 @@
+**An internal F.B.I. memo about potential Catholic extremists has been a talking point on the right.**\
+`By Devlin Barrett, Adam Goldman and Glenn Thrush`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/an-internal-fbi-memo-about-potential-catholic-extremists-has-been-a-talking-point-on-the-right
+
+**Everything we know about Penguins ownership's investor search**\
+`Fenway Sports Group's move to add investors to the Penguins isn't uncommon, but it is complicated. Here's what it all means.`\
+https://nytimes.com/athletic/6100274/2025/01/30/penguins-fenway-sports-group-investors-faq/
+
 **The release in Khan Younis descended into chaos.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/the-release-in-khan-younis-descended-into-chaos
