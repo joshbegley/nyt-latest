@@ -1,3 +1,7 @@
+**Is Going After Government Always Good Politics?**\
+`President Trump is betting that Americans will not care if he upends institutions most have lost faith in.`\
+https://nytimes.com/2025/01/29/us/politics/trump-government-democrats.html
+
 **Champions League Briefing: 18 matches, 64 goals, and plenty of drama**\
 `Our writers pick 10 talking points from the final day of the league phase of the Champions League, as 18 games were played simultaneously`\
 https://nytimes.com/athletic/6098193/2025/01/29/champions-league-talking-points-analysis/
