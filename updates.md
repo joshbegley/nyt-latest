@@ -1,3 +1,7 @@
+**Every Crash Has Tragic Lesson, Says Pilot Famed for Hudson Landing**\
+`Chesley B. Sullenberger III said though flying was safer than ever, Wednesday’s crash showed the need for constant vigilance and learning from past errors.`\
+https://nytimes.com/2025/01/30/us/plane-crash-potomac-lessons-sully.html
+
 **Here’s the latest on the hostage and prisoner exchange.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange

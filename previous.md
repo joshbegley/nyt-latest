@@ -1,3 +1,7 @@
+**Every Crash Has Tragic Lesson, Says Pilot Famed for Hudson Landing**\
+`Chesley B. Sullenberger III said though flying was safer than ever, Wednesday’s crash showed the need for constant vigilance and learning from past errors.`\
+https://nytimes.com/2025/01/30/us/plane-crash-potomac-lessons-sully.html
+
 **Kawhi Leonard understands why San Antonio boos him, shows Spurs he is still him**\
 `"It's just because of the player I am, you know what I mean, and what I've done here," Leonard said.`\
 https://nytimes.com/athletic/6099135/2025/01/30/clippers-spurs-kawhi-leonard/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/reader-center/quincenearo-for-boys.html
 **Here’s the latest on the hostage and prisoner exchange.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
-
-**Eighteen Champions League games, one unusual assignment: watch every match (in five-minute segments)**\
-`How do you follow all 18 games on 'Matchday Mayhem'? Come up with a running order and watch a bit of every game, of course`\
-https://nytimes.com/athletic/6095469/2025/01/30/watching-every-champions-league-match/
 
