@@ -1,3 +1,19 @@
+**Trump Kicks Congress to the Curb, With Little Protest From Republicans**\
+`The administration is showing it doesn’t view the House and Senate as equal partners. So far, Republicans, who hold both majorities, are accepting their new status.`\
+https://nytimes.com/2025/01/30/us/politics/trump-congress-republicans.html
+
+**Kash Patel Has Made Money off His Ties to Trump**\
+`The F.B.I. nominee has not only cast his political lot with the president, he has also used the connection to the Trump brand, Truth Social and other Trump-linked entities as a significant source of income over the past several years.`\
+https://nytimes.com/2025/01/30/us/politics/kash-patel-money-trump.html
+
+**How Patrick Mahomes and the Chiefs are doing it, again**\
+`On the "Scoop City" podcast, breaking down an unprecedented run for Patrick Mahomes and the Chiefs.`\
+https://nytimes.com/athletic/6095840/2025/01/30/kansas-city-chiefs-three-peat-dynasty-run/
+
+**Passenger Jet and Army Helicopter Collide Near Washington, D.C.: A Timeline**\
+`Here is a look at how the crash unfolded on Wednesday night.`\
+https://nytimes.com/2025/01/30/us/washington-dc-plane-helicopter-crash-timeline.html
+
 **Diverging From the Fed, E.C.B. Cuts Interest Rates as Growth Stagnates**\
 `The European Central Bank’s reduction, the fifth consecutive cut since last summer, came a day after the U.S. Federal Reserve held interest rates.`\
 https://nytimes.com/2025/01/30/business/europe-central-bank-interest-rates-economy.html

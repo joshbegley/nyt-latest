@@ -1,3 +1,19 @@
+**Trump Kicks Congress to the Curb, With Little Protest From Republicans**\
+`The administration is showing it doesn’t view the House and Senate as equal partners. So far, Republicans, who hold both majorities, are accepting their new status.`\
+https://nytimes.com/2025/01/30/us/politics/trump-congress-republicans.html
+
+**Kash Patel Has Made Money off His Ties to Trump**\
+`The F.B.I. nominee has not only cast his political lot with the president, he has also used the connection to the Trump brand, Truth Social and other Trump-linked entities as a significant source of income over the past several years.`\
+https://nytimes.com/2025/01/30/us/politics/kash-patel-money-trump.html
+
+**How Patrick Mahomes and the Chiefs are doing it, again**\
+`On the "Scoop City" podcast, breaking down an unprecedented run for Patrick Mahomes and the Chiefs.`\
+https://nytimes.com/athletic/6095840/2025/01/30/kansas-city-chiefs-three-peat-dynasty-run/
+
+**Passenger Jet and Army Helicopter Collide Near Washington, D.C.: A Timeline**\
+`Here is a look at how the crash unfolded on Wednesday night.`\
+https://nytimes.com/2025/01/30/us/washington-dc-plane-helicopter-crash-timeline.html
+
 **Diverging From the Fed, E.C.B. Cuts Interest Rates as Growth Stagnates**\
 `The European Central Bank’s reduction, the fifth consecutive cut since last summer, came a day after the U.S. Federal Reserve held interest rates.`\
 https://nytimes.com/2025/01/30/business/europe-central-bank-interest-rates-economy.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6099497/2025/01/30/us-russian-figure-skaters-dc-pla
 **What is Niko Kovac walking in to at Borussia Dortmund?**\
 `The appointment of the Croatian represents a break from the norm at the Westfalenstadion but it might be the shock treatment this club needs`\
 https://nytimes.com/athletic/6099491/2025/01/30/dortmund-kovac-mislintat-ricken-kehl/
-
-**How the Plane and Helicopter Collided in Washington: Maps and Graphics**\
-`An American Airlines jet and a U.S. Army helicopter plunged into the Potomac River after a midair collision Wednesday night near Reagan National Airport outside Washington, D.C.`\
-https://nytimes.com/interactive/2025/01/30/us/washington-dc-plane-crash-helicopter-maps-photos.html
-
-**Can this QB be the first drafted into the NFL without playing a snap at a US school?**\
-`Taylor Elgersma is trying to become the first player to get drafted into the NFL without playing a snap at an American college.`\
-https://nytimes.com/athletic/6098834/2025/01/30/senior-bowl-canadian-quarterback-taylor-elgersma/
-
-**Pedri signs new Barcelona contract until 2030**\
-`Barcelona midfielder Pedri has signed a new contract with the club until 2030.`\
-https://nytimes.com/athletic/6094057/2025/01/30/pedri-barcelona-contract-new/
-
-**What We Know About Ahmed al-Shara, Syria’s Interim President**\
-`The rebel chief who led the overthrow of the longtime dictator Bashar al-Assad has been declared the head of government for a transitional period.`\
-https://nytimes.com/2025/01/30/world/europe/syria-president-ahmed-al-shara.html
 
