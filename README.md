@@ -1,3 +1,7 @@
+**Team Sweden names Victor Hedman captain for 4 Nations Face-Off**\
+`The Lightning captain and two-time Stanley Cup champion will lead his country into the international best-on-best tournament in February.`\
+https://nytimes.com/athletic/6099855/2025/01/30/victor-hedman-captain-sweden-4-nations/
+
 **How the Mile High City became the NWSL's 16th club**\
 `From grassroots efforts led by former player Jordan Angeli to a record-setting expansion fee, here's how NWSL ended up in the Mile High City`\
 https://nytimes.com/athletic/6098847/2025/01/30/nwsl-denver-new-team-club-soccer/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6099853/2025/01/30/denver-nwsl-franchise-expansion/
 `Crosby's legendary backhand stole the show yet again last night in Utah.`\
 https://nytimes.com/athletic/6099923/2025/01/30/penguins-today-sidney-crosby-highlight/
 
-**The Bounce: Adam Silver floats idea of 10-minute quarters. Here's why NBA doesn't need it**\
+**The Bounce: Why NBA doesn't need 10-minute quarters; All-Star reserve picks**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6099539/2025/01/30/adam-silver-commissioner-nba-all-star-reserves-the-bounce/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/science/pterosaur-fossil-bite-croc.html
 **Hermansen available for Leicester again after injury absence**\
 `Leicester City should have their No 1 Mads Hermansen back from injury for the trip to Everton on Saturday.`\
 https://nytimes.com/athletic/6099726/2025/01/30/mads-hermansen-leicester-injury/
-
-**Tulsi Gabbard’s career has been marked by rapid ideological swings.**\
-`By Elizabeth Williamson and Charles Homans`\
-https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbards-career-has-been-marked-by-rapid-ideological-swings
 
