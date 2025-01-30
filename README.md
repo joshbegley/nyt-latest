@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlight
 https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/
 
 **Flights Resumed at Reagan National, but the Day Hardly Felt Normal**\
-`The terminals were nearly empty as morning began, they came to life by early afternoon.`\
+`The terminals were nearly empty as morning began, but they came to life by early afternoon.`\
 https://nytimes.com/2025/01/30/us/reagan-national-scene.html
 
 **Both American Airlines Pilots Were Avid Fliers**\
