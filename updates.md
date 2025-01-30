@@ -1,3 +1,7 @@
+**In Thailand, an anxious vigil continues for hostages half a world away.**\
+`Five families hoped that their loved ones were finally being released from Gaza after 15 months as hostages.`\
+https://nytimes.com/2025/01/30/world/middleeast/thai-hostages-gaza.html
+
 **Patriots offseason predictions: Can they get Tee Higgins, Ronnie Stanley in free agency?**\
 `No team has better resources to improve its roster than the Patriots, who own the No. 4 pick in the draft and have lots of salary-cap space.`\
 https://nytimes.com/athletic/6097092/2025/01/30/patriots-offseason-predictions-tee-higgins-ronnie-stanley/
