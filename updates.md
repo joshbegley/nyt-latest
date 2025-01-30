@@ -1,3 +1,7 @@
+**A 1961 air disaster shook the figure skating world.**\
+`By Christine Hauser`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-1961-air-disaster-shook-the-figure-skating-world
+
 **Sanders and Kennedy trade heated barbs on vaccines and health care.**\
 `By Sheryl Gay Stolberg, Sara Ruberg and Apoorva Mandavilli`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/sanders-and-kennedy-trade-heated-barbs-on-vaccines-and-health-care

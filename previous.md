@@ -1,3 +1,7 @@
+**A 1961 air disaster shook the figure skating world.**\
+`By Christine Hauser`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-1961-air-disaster-shook-the-figure-skating-world
+
 **Sanders and Kennedy trade heated barbs on vaccines and health care.**\
 `By Sheryl Gay Stolberg, Sara Ruberg and Apoorva Mandavilli`\
 https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/sanders-and-kennedy-trade-heated-barbs-on-vaccines-and-health-care
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/learning/whats-going-on-in-this-picture-feb-3-202
 **Hassan, Choking Up, Assails Kennedy for His History of Questioning Vaccines**\
 `Senator Maggie Hassan, while questioning President Trump’s nominee to lead the Department of Health and Human Services, disclosed that she is the mother of a 36-year-old man with cerebral palsy.`\
 https://nytimes.com/2025/01/30/us/politics/hassan-rfk-cerebral-palsy.html
-
-**Hassan Slams Kennedy for Sowing Doubts on Vaccines and Autism**\
-`Senator Maggie Hassan, Democrat of New Hampshire, assailed Robert F. Kennedy Jr. and Republicans for asserting that science around autism and vaccines wasn’t settled.`\
-https://nytimes.com/video/us/politics/100000009959790/kennedy-hassan-vaccines-confirmation-hearing.html
 
