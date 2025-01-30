@@ -1,3 +1,7 @@
+**Congress approved more flights at Reagan despite warnings of danger**\
+`Last year, lawmakers authorized an additional five round-trip flights despite an outcry from Maryland and Virginia senators, who warned that delays, cancellations and accidents would increase.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/congress-approved-more-flights-at-reagan-despite-warnings-of-danger
+
 **Heat Today: Tyler Herro has been an All-Star for Heat, no matter how the voting goes**\
 `No matter whether Tyler Herro is selected as an NBA All-Star this season, his teammates have taken notice of leap`\
 https://nytimes.com/athletic/6100347/2025/01/30/tyler-herro-bam-adebayo-heat-all-star-heat-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098276/2025/01/30/college-basketball-what-to-watch
 **What’s Going On in This Graph? | Feb. 5, 2025**\
 `What do you notice about partisan control of the newly elected state legislatures and governorships in the United States? What do you wonder?`\
 https://nytimes.com/2025/01/30/learning/whats-going-on-in-this-graph-feb-5-2025.html
-
-**What’s Going On in This Picture? | Feb. 3, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/01/30/learning/whats-going-on-in-this-picture-feb-3-2025.html
 

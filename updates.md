@@ -1,3 +1,7 @@
+**Is now the time to buy Auburn or Duke to win the national championship?**\
+`Duke and Auburn are favorites to come out on top of March Madness. When's the best time to wager that they'll win it all? `\
+https://nytimes.com/athletic/6099921/2025/01/30/auburn-duke-national-championship-march-madness-2025-odds/
+
 **Heat Today: Tyler Herro has been an All-Star for Heat, no matter how the voting goes**\
 `No matter whether Tyler Herro is selected as an NBA All-Star this season, his teammates have taken notice of leap`\
 https://nytimes.com/athletic/6100347/2025/01/30/tyler-herro-bam-adebayo-heat-all-star-heat-nba/
