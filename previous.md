@@ -2,10 +2,6 @@
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/30/learning/word-of-the-day-limbic.html
 
-**Uncertainty gripped the future of Duran and Watkins - Rogers stepped forward**\
-`Duran is heading for Al-Nassr, Arsenal have bid for Watkins - despite the build-up Villa held their nerve to claim place in round of 16`\
-https://nytimes.com/athletic/6096742/2025/01/30/duran-watkins-transfers-rogers-aston-villa/
-
 **Federico Chiesa finally looks ready to make his mark at Liverpool**\
 `Chiesa's 90-minute display against PSV was the most accomplished of a strong of promising cameos in 2025 - he looks up to speed at last`\
 https://nytimes.com/athletic/6098576/2025/01/30/federico-chiesa-liverpool-psv/
@@ -23,7 +19,7 @@ https://nytimes.com/athletic/6094256/2025/01/30/max-verstappen-red-bull-f1-2025-
 https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-trump-cabinet.html
 
 **What to Know About the Plane and Helicopter Crash Near Washington**\
-`American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan Airport.`\
+`American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan National Airport.`\
 https://nytimes.com/2025/01/30/us/plane-crash-dc-helicopter-reagan-airport.html
 
 **Kristaps Porziņģis blames bad luck for some of Celtics' issues, but it's more than that**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6098880/2025/01/30/wisconsin-nyzier-fourqurean-ncaa
 **43 Years Ago, a Plane Crash on the Potomac Left 78 People Dead**\
 `A Boeing 737 crashed into a bridge over the river on Jan. 13, 1982, just after taking off from Washington National Airport in a snowstorm.`\
 https://nytimes.com/2025/01/30/us/potomac-plane-crash-1980s.html
+
+**Are Amorim's methods working at Manchester United?**\
+`Amorim's United feels like a pencil sketch of a grander planned work - there are signs of progress but huge improvements are needed`\
+https://nytimes.com/athletic/6091063/2025/01/30/ruben-amorim-manchester-united-methods-working/
 

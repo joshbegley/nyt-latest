@@ -1,3 +1,11 @@
+**What to Know About the Plane and Helicopter Crash Near Washington**\
+`American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan National Airport.`\
+https://nytimes.com/2025/01/30/us/plane-crash-dc-helicopter-reagan-airport.html
+
+**Are Amorim's methods working at Manchester United?**\
+`Amorim's United feels like a pencil sketch of a grander planned work - there are signs of progress but huge improvements are needed`\
+https://nytimes.com/athletic/6091063/2025/01/30/ruben-amorim-manchester-united-methods-working/
+
 **Word of the Day: limbic**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/30/learning/word-of-the-day-limbic.html
