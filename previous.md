@@ -1,3 +1,7 @@
+**Eighteen Champions League games, one unusual assignment: watch every match (in five-minute segments)**\
+`How do you follow all 18 games on 'Matchday Mayhem'? Come up with a running order and watch a bit of every game, of course`\
+https://nytimes.com/athletic/6095469/2025/01/30/watching-every-champions-league-match/
+
 **Who are the makers of the two aircraft that collided?**\
 `Following the collision,`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/black-hawk-helicopter-plane-crash
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098986/2025/01/30/celtics-luck-kristaps-porzingis/
 **Badgers CB sues NCAA for additional eligibility as he pursues NIL profits**\
 `Fourqurean claims his two-year run at a Division II program should not count because it unfairly limited his ability to make NIL profits.`\
 https://nytimes.com/athletic/6098880/2025/01/30/wisconsin-nyzier-fourqurean-ncaa-lawsuit/
-
-**43 Years Ago, a Plane Crash on the Potomac Left 78 People Dead**\
-`A Boeing 737 crashed into a bridge over the river on Jan. 13, 1982, just after taking off from Washington National Airport in a snowstorm.`\
-https://nytimes.com/2025/01/30/us/potomac-plane-crash-1980s.html
 

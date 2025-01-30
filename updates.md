@@ -1,3 +1,7 @@
+**Eighteen Champions League games, one unusual assignment: watch every match (in five-minute segments)**\
+`How do you follow all 18 games on 'Matchday Mayhem'? Come up with a running order and watch a bit of every game, of course`\
+https://nytimes.com/athletic/6095469/2025/01/30/watching-every-champions-league-match/
+
 **Who are the makers of the two aircraft that collided?**\
 `Following the collision,`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/black-hawk-helicopter-plane-crash
