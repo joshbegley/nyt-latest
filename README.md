@@ -1,3 +1,7 @@
+**Friday Briefing: 67 Dead in Washington Air Collision**\
+`Plus, Beyoncé vs. Swift at the Grammys.`\
+https://nytimes.com/2025/01/30/briefing/washington-air-crash-hamas-hostages-senate-hearings.html
+
 **Powerful Storm System Set to Drench Northern California**\
 `San Francisco could see as much as six inches of rain over the next week as a moisture-packed storm known as an atmospheric river works its way south from the Pacific Northwest.`\
 https://nytimes.com/2025/01/30/weather/atmospheric-river-rain-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/nyregion/congestion-pricing-marc-molinaro.html
 **Congress approved more flights at Reagan despite warnings of danger.**\
 `Last year, lawmakers authorized an additional five round-trip flights despite an outcry from Maryland and Virginia senators, who warned that delays, cancellations and accidents would increase.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/congress-approved-more-flights-at-reagan-despite-warnings-of-danger
-
-**Heat Today: Tyler Herro has been an All-Star for Heat, no matter how the voting goes**\
-`No matter whether Tyler Herro is selected as an NBA All-Star this season, his teammates have taken notice of leap`\
-https://nytimes.com/athletic/6100347/2025/01/30/tyler-herro-bam-adebayo-heat-all-star-heat-nba/
 
