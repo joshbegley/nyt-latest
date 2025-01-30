@@ -1,3 +1,7 @@
+**Team Finland names Aleksander Barkov captain for 4 Nations Face-Off**\
+`Barkov leads all active Finnish players in career points with 753 in 779 NHL games and captained the Panthers to the Stanley Cup in 2024.`\
+https://nytimes.com/athletic/6099066/2025/01/30/aleksander-barkov-captain-finland-4-nations/
+
 **Ramos in talks with Monterrey**\
 `Sergio Ramos is in talks with Monterrey over a possible move to the Mexican club but as yet no formal proposal has been received.`\
 https://nytimes.com/athletic/6099622/2025/01/30/sergio-ramos-monterrey-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/kash-patel-money-trump.html
 **How Patrick Mahomes and the Chiefs are doing it, again**\
 `On the "Scoop City" podcast, breaking down an unprecedented run for Patrick Mahomes and the Chiefs.`\
 https://nytimes.com/athletic/6095840/2025/01/30/kansas-city-chiefs-three-peat-dynasty-run/
-
-**Passenger Jet and Army Helicopter Collide Near Washington, D.C.: A Timeline**\
-`Here is a look at how the crash unfolded on Wednesday night.`\
-https://nytimes.com/2025/01/30/us/washington-dc-plane-helicopter-crash-timeline.html
 
