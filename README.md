@@ -18,8 +18,8 @@ https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.ht
 `The police said they had yet to recover the golden helmet of Cotofenesti, a prized artifact from Romania, and other artifacts stolen from the Drents Museum in the Netherlands over the weekend.`\
 https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
 
-**Members of a storied Massachusetts skating club gathered to grieve.**\
-`By Jenna Russell`\
+**A Skating Club in Massachusetts Gathered to Grieve Members Killed in Plane Crash**\
+`Among those seeking comfort in the close-knit skating community were two Olympians, Nancy Kerrigan and Dr. Tenley Albright, and a former national champion, Paul George.`\
 https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
 
 **How to Watch FireAid, the Star-Studded Benefit for Los Angeles**\
