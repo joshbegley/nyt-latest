@@ -1,3 +1,7 @@
+**Silicon Valley Deal Maker to Join Commerce Dept.**\
+`Michael Grimes, a top banker at Morgan Stanley, would become the latest leading tech figure to join the Trump administration, as a senior official at the Commerce Department.`\
+https://nytimes.com/2025/01/29/us/politics/grimes-commerce-dept.html
+
 **Resignation Push Deepens Worries About Effect on Government Services**\
 `The Trump administration’s effort to get federal workers to leave their posts could lead to an exodus of experienced employees, some warned.`\
 https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
