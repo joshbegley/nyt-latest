@@ -1,3 +1,7 @@
+**How Wojciech Szczesny ousted Inaki Pena to become Barcelona's back-up goalkeeper**\
+`After coming out of retirement, the experienced Szczesny has become Hansi Flick's main Ter Stegen replacement`\
+https://nytimes.com/athletic/6098821/2025/01/30/barcelona-wojciech-szczesny-inaki-pena/
+
 **Figure Skaters Among Passengers on Crashed Jet**\
 `Members of the U.S. figure skating community were traveling on the commercial jet that collided with a military helicopter outside Washington. They were returning from a skate camp in Kansas.`\
 https://nytimes.com/2025/01/30/us/figure-skaters-dc-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/arts/television/comedy-ronny-chieng-gary-gulman-h
 **A Fish Farm Offered 40,000 Pounds of Salmon for Free. There Was a Catch.**\
 `When an upstate New York salmon farm went out of business, nonprofits had days to find a way to catch, refrigerate and clean more than 13,000 fish.`\
 https://nytimes.com/2025/01/30/nyregion/localcoho-salmon-donations-live-fish.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/30/crosswords/spelling-bee-forum.html
 
