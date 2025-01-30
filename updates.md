@@ -1,3 +1,7 @@
+**Heat Today: Tyler Herro has been an All-Star for Heat, no matter how the voting goes**\
+`No matter whether Tyler Herro is selected as an NBA All-Star this season, his teammates have taken notice of leap`\
+https://nytimes.com/athletic/6100347/2025/01/30/tyler-herro-bam-adebayo-heat-all-star-heat-nba/
+
 **A 1961 air disaster shook the figure skating world.**\
 `By Christine Hauser`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-1961-air-disaster-shook-the-figure-skating-world

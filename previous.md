@@ -1,3 +1,7 @@
+**Heat Today: Tyler Herro has been an All-Star for Heat, no matter how the voting goes**\
+`No matter whether Tyler Herro is selected as an NBA All-Star this season, his teammates have taken notice of leap`\
+https://nytimes.com/athletic/6100347/2025/01/30/tyler-herro-bam-adebayo-heat-all-star-heat-nba/
+
 **A 1961 air disaster shook the figure skating world.**\
 `By Christine Hauser`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-1961-air-disaster-shook-the-figure-skating-world
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/learning/whats-going-on-in-this-graph-feb-5-2025.
 **What’s Going On in This Picture? | Feb. 3, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/01/30/learning/whats-going-on-in-this-picture-feb-3-2025.html
-
-**Hassan, Choking Up, Assails Kennedy for His History of Questioning Vaccines**\
-`Senator Maggie Hassan, while questioning President Trump’s nominee to lead the Department of Health and Human Services, disclosed that she is the mother of a 36-year-old man with cerebral palsy.`\
-https://nytimes.com/2025/01/30/us/politics/hassan-rfk-cerebral-palsy.html
 
