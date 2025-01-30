@@ -1,3 +1,15 @@
+**Tyler Herro has become Heat's stable foundation as Jimmy Butler drama has shaken Miami's core**\
+`Amidst franchise turmoil, the fifth-year guard is an All-Star candidate, eliciting bold comparisons. `\
+https://nytimes.com/athletic/6093423/2025/01/30/miami-heat-tyler-herro-player-trade/
+
+**Stanway set for lengthy injury absence after knee surgery**\
+`Bayern Munich and England midfielder Georgia Stanway has undergone surgery after suffering a serious knee injury.`\
+https://nytimes.com/athletic/6097282/2025/01/30/georgia-stanway-injury-england-women-bayern-munich/
+
+**Listen: The Good News About a Bad G.P.A.**\
+`How important are your high school grades for your future?`\
+https://nytimes.com/2025/01/30/learning/listen-the-good-news-about-a-bad-gpa.html
+
 **Yankees top pitching prospect Chase Hampton finally healthy, 'ready to rock'**\
 `Said Hampton: "In reality, I just want to go out there and just be excellent."`\
 https://nytimes.com/athletic/6098255/2025/01/30/yankees-chase-hampton-update/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/opinion/trump-dei-hegseth.html
 **Trump’s Foreign Aid Freeze Causes Fear of H.I.V. Resurgence in Africa**\
 `Patients and health care advocates said the abrupt decision to halt U.S. funding for a lifesaving H.I.V. program led to widespread confusion. The backtracking didn’t help.`\
 https://nytimes.com/2025/01/30/world/africa/africa-trump-hiv-pepfar-aid.html
-
-**Three Contentious Trump Nominees Will Appear Before the Senate**\
-`Robert F. Kennedy Jr., Kash Patel and Tulsi Gabbard, three of President Trump’s high-profile picks, on Thursday will make their cases for confirmation.`\
-https://nytimes.com/2025/01/30/us/politics/trump-rfk-patel-gabbard-confirmation-hearings.html
-
-**Buying a House Sight-Unseen Is Hard Enough. They Did It From 10 Time Zones Away.**\
-`After a year of living in Japan, a couple returned to Columbus, Ohio, to find a new three-bedroom house. Would $400,000 be enough?`\
-https://nytimes.com/interactive/2025/01/30/realestate/columbus-ohio-homes-sale.html
-
-**With Sweeping Executive Orders, Trump Tests Local Control of Schools**\
-`The orders seek to encourage “patriotic education” and restrict discussions about racism and gender by threatening to withdraw federal funding. But schools are often resistant to change.`\
-https://nytimes.com/2025/01/30/us/trump-executive-orders-local-control-schools.html
 
