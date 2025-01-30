@@ -1,3 +1,11 @@
+**Patel’s loyalty to Trump has been a flashpoint in his confirmation hearing.**\
+`During President Trump’s first term, demanding personal loyalty didn’t always work; stocking top jobs with loyalists is the tack now. At the F.B.I., this entails bucking its institutional history.`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/patels-loyalty-to-trump-has-been-a-flashpoint-in-his-confirmation-hearing
+
+**George Tice, ‘Bard of New Jersey’ With a Camera, Dies at 86**\
+`He found beauty in the prosaic: bars, phone booths, hamburger joints, barber shops — first in a downtrodden Paterson, then throughout the state and beyond.`\
+https://nytimes.com/2025/01/30/arts/george-tice-dead.html
+
 **Fact-Checking Health Claims in Kennedy’s 2nd Day of Confirmation Hearings**\
 `Robert F. Kennedy Jr., the nominee to lead the Department of Health and Human Services, made disputed claims before the Senate Committee on Health, Education, Labor and Pensions.`\
 https://nytimes.com/2025/01/30/us/politics/rfk-jr-health-claims-fact-check-confirmation-hearing-day-2.html

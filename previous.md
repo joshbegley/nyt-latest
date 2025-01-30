@@ -1,3 +1,11 @@
+**Patel’s loyalty to Trump has been a flashpoint in his confirmation hearing.**\
+`During President Trump’s first term, demanding personal loyalty didn’t always work; stocking top jobs with loyalists is the tack now. At the F.B.I., this entails bucking its institutional history.`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/patels-loyalty-to-trump-has-been-a-flashpoint-in-his-confirmation-hearing
+
+**George Tice, ‘Bard of New Jersey’ With a Camera, Dies at 86**\
+`He found beauty in the prosaic: bars, phone booths, hamburger joints, barber shops — first in a downtrodden Paterson, then throughout the state and beyond.`\
+https://nytimes.com/2025/01/30/arts/george-tice-dead.html
+
 **Fact-Checking Health Claims in Kennedy’s 2nd Day of Confirmation Hearings**\
 `Robert F. Kennedy Jr., the nominee to lead the Department of Health and Human Services, made disputed claims before the Senate Committee on Health, Education, Labor and Pensions.`\
 https://nytimes.com/2025/01/30/us/politics/rfk-jr-health-claims-fact-check-confirmation-hearing-day-2.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6100316/2025/01/30/kaoru-mitoma-al-nassr-brighton-t
 **Trump Administration Considers Halting Congestion Pricing**\
 `The New York City tolling program began on Jan. 5 after defying obstacles for decades. A move to stop it would likely touch off a legal battle between the state and federal government.`\
 https://nytimes.com/2025/01/30/nyregion/nyc-trump-congestion-pricing.html
-
-**The Curious Power of Tarot Cards to Explain and Reveal**\
-`A new exhibition in London traces the evolution of tarot from Renaissance Italy to the present day, with the card designs shifting to reflect the times.`\
-https://nytimes.com/2025/01/30/arts/design/tarot-exhibition-london-warburg-institute.html
-
-**82,150 Gallons of Paint Later, a Blue Man Group Farewell**\
-`Over 34 years, the show gave Fred Armisen a drumming gig, “Arrested Development” a hilarious story line and more. Now the cultural sensation comes to an end in New York.`\
-https://nytimes.com/2025/01/30/theater/blue-man-group-new-york-closing-off-broadway.html
 
