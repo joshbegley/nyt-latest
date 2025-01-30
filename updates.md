@@ -1,3 +1,11 @@
+**Here is the latest on the crash.**\
+`By Hank Sanders and Chris Cameron`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/plane-crash-reagan-airport-washington-dc
+
+**Resignation Push Deepens Worries About Effect on Government Services**\
+`The Trump administration’s effort to get federal workers to leave their posts could lead to an exodus of experienced employees, some warned.`\
+https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
+
 **Crowds gathered to watch rescue boats working on the dark river.**\
 `By Minho Kim, Chris Cameron, Linda Qiu and Tim Balk`\
 https://nytimes.com/2025/01/29/us/crowds-gathered-to-watch-rescue-boats-working-on-the-dark-river.html
