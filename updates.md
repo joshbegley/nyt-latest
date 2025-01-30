@@ -1,3 +1,15 @@
+**A secretive sect has played a key role in Tulsi Gabbard’s life.**\
+`By Elizabeth Williamson and Charles Homans`\
+https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/a-secretive-sect-has-played-a-key-role-in-tulsi-gabbards-life
+
+**Patel’s Enemies List Is Expected to Be a Flashpoint**\
+`The list has generated unease inside the bureau given the mass firings at the Justice Department in recent days.`\
+https://nytimes.com/2025/01/30/us/politics/patels-enemies-list.html
+
+**The crash appears to be the most serious air disaster involving a commercial jet in the U.S. since 2009.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-appears-to-be-the-most-serious-air-disaster-involving-a-commercial-jet-in-the-us-since-2009
+
 **The Windup: Catch up on busy MLB relievers market**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6100103/2025/01/30/mlb-relief-pitchers-free-agency-the-windup/

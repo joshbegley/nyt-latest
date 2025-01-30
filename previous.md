@@ -1,3 +1,15 @@
+**A secretive sect has played a key role in Tulsi Gabbard’s life.**\
+`By Elizabeth Williamson and Charles Homans`\
+https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/a-secretive-sect-has-played-a-key-role-in-tulsi-gabbards-life
+
+**Patel’s Enemies List Is Expected to Be a Flashpoint**\
+`The list has generated unease inside the bureau given the mass firings at the Justice Department in recent days.`\
+https://nytimes.com/2025/01/30/us/politics/patels-enemies-list.html
+
+**The crash appears to be the most serious air disaster involving a commercial jet in the U.S. since 2009.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-appears-to-be-the-most-serious-air-disaster-involving-a-commercial-jet-in-the-us-since-2009
+
 **The Windup: Catch up on busy MLB relievers market**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6100103/2025/01/30/mlb-relief-pitchers-free-agency-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/world/europe/zelensky-klitschko-ukraine-martial-l
 **Monaco want to sign former Liverpool captain Henderson from Ajax**\
 `Monaco want to sign former Liverpool captain Jordan Henderson from Ajax.`\
 https://nytimes.com/athletic/6099579/2025/01/30/henderson-transfer-monaco-ajax-liverpool/
-
-**Thompson: Warriors' glue guys put on a show (and perhaps a fitting farewell) against Thunder**\
-`Andrew Wiggins, Kevon Looney and Gary Payton II made the Chase Center feel like old times Wednesday night. Was it their last hurrah?`\
-https://nytimes.com/athletic/6099510/2025/01/30/golden-state-warriors-looney-wiggins-payton-trade-deadline/
-
-**Team Sweden names Victor Hedman captain for 4 Nations: Why he was the pick and notable omission**\
-`The Lightning captain and two-time Stanley Cup champion will lead his country into the international best-on-best tournament in February.`\
-https://nytimes.com/athletic/6099855/2025/01/30/victor-hedman-captain-sweden-4-nations/
-
-**How the Mile High City became the NWSL's 16th club**\
-`From grassroots efforts led by former player Jordan Angeli to a record-setting expansion fee, here's how NWSL ended up in the Mile High City`\
-https://nytimes.com/athletic/6098847/2025/01/30/nwsl-denver-new-team-club-soccer/
 
