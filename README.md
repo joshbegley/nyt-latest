@@ -14,7 +14,7 @@ https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/sander
 `During his second day of confirmation hearings, Robert F. Kennedy Jr. declined to disavow comments he had made disparaging the vaccine as unsafe.`\
 https://nytimes.com/2025/01/30/health/hpv-vaccine-rfk.html
 
-**Is now the time to buy Auburn and Duke to win the national championship?**\
+**Is now the time to buy Auburn or Duke to win the national championship?**\
 `Duke and Auburn are favorites to come out on top of March Madness. When's the best time to wager that they'll win it all? `\
 https://nytimes.com/athletic/6099921/2025/01/30/auburn-duke-national-championship-march-madness-2025-odds/
 
