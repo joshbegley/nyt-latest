@@ -1,3 +1,11 @@
+**Far From Colombia, Trump’s Measures Caused Chaos at Airports**\
+`The Trump administration had added extra inspections for passengers from Colombia at U.S. ports of entry as part of a pressure campaign on the country’s president. The effects lingered into Wednesday.`\
+https://nytimes.com/2025/01/29/us/politics/trump-colombia-deportations-security.html
+
+**Reds add more playoff experience with acquisition of veteran lefty Taylor Rogers**\
+`The Reds have added five established major leaguers from outside the organization to their roster and four were in the postseason last year.`\
+https://nytimes.com/athletic/6098659/2025/01/29/reds-taylor-rogers-trade-analysis/
+
 **Jets to hire former NFL head coach Steve Wilks as defensive coordinator**\
 `Wilks brings a greater level of experience to first-time head coach Aaron Glenn.`\
 https://nytimes.com/athletic/6098474/2025/01/29/steve-wilks-jets-defensive-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/01/29/business/energy-environment/eaton-fir
 **Giants are unlikely to reinvest savings after shipping Taylor Rogers to Reds**\
 `The Giants will save $6 million by trading Rogers but aren't expected to spend that money on external additions this offseason.`\
 https://nytimes.com/athletic/6098444/2025/01/29/sf-giants-payroll-taylor-rogers-trade/
-
-**5 Takeaways From Kennedy’s First Confirmation Hearing**\
-`Mr. Kennedy appears to have most Republicans behind him as he seeks the job of health secretary, though he couldn’t escape his past stances on vaccines and abortion.`\
-https://nytimes.com/2025/01/29/us/politics/rfk-jr-confirmation-hearing-takeaways.html
-
-**Trump Signs Order to Promote ‘Patriotic Education’ in the Classroom**\
-`The executive order was among several the president signed meant to steer American schools and universities to adopt Republican priorities, such as restricting how schools discuss racism and gender issues.`\
-https://nytimes.com/2025/01/29/us/politics/trump-executive-orders-schools-antisemitism-race-gender.html
 
