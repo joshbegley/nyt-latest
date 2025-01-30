@@ -1,3 +1,11 @@
+**Federal agencies ordered to end initiatives that support ‘gender ideology.’**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology
+
+**Brandon Saad’s shocking decision to walk away from $5.4 million is best-case scenario for Blues**\
+`Saad would've made $5.4 million had he reported to the Blues' AHL affiliate. Instead, he's walking away from it to become an NHL free agent.`\
+https://nytimes.com/athletic/6098294/2025/01/29/blues-brandon-saad-contract-nhl-free-agent/
+
 **Maple Leafs report cards: Passive play, lack of energy lead to another losing streak**\
 `A William Nylander goal in the third period wasn't enough offence to lift the Leafs above the Wild.`\
 https://nytimes.com/athletic/6098934/2025/01/29/maple-leafs-report-cards-woll-nylander-wild/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/plane-crash-rea
 **Resignation Push Deepens Worries About Effect on Government Services**\
 `The Trump administration’s effort to get federal workers to leave their posts could lead to an exodus of experienced employees, some warned.`\
 https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
-
-**Silicon Valley Deal Maker to Join Commerce Dept.**\
-`Michael Grimes, a top banker at Morgan Stanley, would become the latest leading tech figure to join the Trump administration, as a senior official at the Commerce Department.`\
-https://nytimes.com/2025/01/29/us/politics/morgan-stanley-grimes-trump-commerce.html
-
-**Far From Colombia, Trump’s Measures Caused Chaos at Airports**\
-`The Trump administration had added extra inspections for passengers from Colombia at U.S. ports of entry as part of a pressure campaign on the country’s president. The effects lingered into Wednesday.`\
-https://nytimes.com/2025/01/29/us/politics/trump-colombia-deportations-security.html
 
