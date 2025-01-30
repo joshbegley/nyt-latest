@@ -1,3 +1,15 @@
+**Are Amorim's methods working at Manchester United?**\
+`Amorim's United feels like a pencil sketch of a grander planned work - there are signs of progress but huge improvements are needed`\
+https://nytimes.com/athletic/6091063/2025/01/30/ruben-amorim-manchester-united-methods-working/
+
+**Provide and conquer: How Murphy and Isak became the Premier League's deadliest duo**\
+`How the Newcastle pair's partnership is working so effectively`\
+https://nytimes.com/athletic/6096384/2025/01/30/how-jacob-murphy-and-alexander-isak-became-the-premier-leagues-deadliest-duo/
+
+**Crystal Palace, ambition and the quandary over risk versus reward**\
+`The Londoners are part of the furniture after 12 years as a Premier League club, so why is there grumbling discontent at Selhurst Park?`\
+https://nytimes.com/athletic/6089419/2025/01/30/crystal-palace-parish-ambition-selhurst-premier-league/
+
 **Why has Sheffield United's leadership treated Maddy Cusack's memory so callously?**\
 `The club's behaviour since the death of one of their most popular women's players beggars belief - and raises serious questions`\
 https://nytimes.com/athletic/6096415/2025/01/30/maddy-cusack-sheffield-united-memory/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/pageoneplus/quote-of-the-day-migration-is-muddlin
 **Surging Canucks win third in a row despite off-ice discord: 3 takeaways**\
 `The Canucks hadn't won three in a row since early November.`\
 https://nytimes.com/athletic/6098966/2025/01/30/canucks-win-streak-demko-hoglander-predators/
-
-**In Tense Call, Governors Push Schumer to Fight Harder Against Trump**\
-`On a call with Senator Chuck Schumer, the minority leader, six Democratic governors pushed him to slow down the confirmation of President Trump’s nominees and to do more to block his agenda.`\
-https://nytimes.com/2025/01/29/us/politics/chuck-schumer-trump-agenda-cabinet.html
-
-**Potentially dangerous airplane incidents have occurred at an alarming rate, a Times investigation found.**\
-`By Sydney Ember and Emily Steel`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/potentially-dangerous-airplane-incidents-have-occurred-at-an-alarming-rate-a-times-investigation-found
-
-**How the Wild took coach John Hynes' callout to heart and responded**\
-`From back-to-back losses to back-to-back wins, the Wild are looking like themselves again after a complete team effort vs. the Maple Leafs.`\
-https://nytimes.com/athletic/6098942/2025/01/29/wild-maple-leafs-john-hynes/
 
