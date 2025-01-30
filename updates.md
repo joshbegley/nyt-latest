@@ -1,3 +1,7 @@
+**How the Wild took coach John Hynes' callout to heart and responded**\
+`From back-to-back losses to back-to-back wins, the Wild are looking like themselves again after a complete team effort vs. the Maple Leafs.`\
+https://nytimes.com/athletic/6098942/2025/01/29/wild-maple-leafs-john-hynes/
+
 **In Tense Call, Governors Push Schumer to Fight Harder Against Trump**\
 `On a call with Senator Chuck Schumer, the minority leader, six Democratic governors pushed him to slow down the confirmation of President Trump’s nominees and to do more to block his agenda.`\
 https://nytimes.com/2025/01/29/us/politics/chuck-schumer-trump-agenda-cabinet.html

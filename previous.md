@@ -6,8 +6,8 @@ https://nytimes.com/2025/01/29/us/politics/chuck-schumer-trump-agenda-cabinet.ht
 `By Sydney Ember and Emily Steel`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/potentially-dangerous-airplane-incidents-have-occurred-at-an-alarming-rate-a-times-investigation-found
 
-**How the Wild took coach John Hynes' call-out to heart and responded**\
-`From back-to-back loses to back-to-back wins, the Wild are looking like themselves again after a complete team effort vs. the Maple Leafs.`\
+**How the Wild took coach John Hynes' callout to heart and responded**\
+`From back-to-back losses to back-to-back wins, the Wild are looking like themselves again after a complete team effort vs. the Maple Leafs.`\
 https://nytimes.com/athletic/6098942/2025/01/29/wild-maple-leafs-john-hynes/
 
 **Patrick Graham returning as Raiders' defensive coordinator**\
