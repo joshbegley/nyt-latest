@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 3 Elfsborg 0 - Youngsters shine after Dragusin injury blow**\
+`The major talking points dissected from the final game in the league phase of the Europa League`\
+https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/
+
 **Gabbard Refuses to Call Snowden a Traitor During Confirmation Hearing**\
 `Tulsi Gabbard, President Trump’s nominee for director of national intelligence, was repeatedly asked during her confirmation hearing whether Edward Snowden was a traitor for leaking classified information.`\
 https://nytimes.com/video/us/politics/100000009960249/tulsi-gabbard-confirmation-snowden.html
