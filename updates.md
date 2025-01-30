@@ -1,3 +1,7 @@
+**Is now the time to buy Auburn or Duke to win the national championship?**\
+`Duke and Auburn are favorites to come out on top of March Madness. Is now the best time to wager on them to win it all? `\
+https://nytimes.com/athletic/6099921/2025/01/30/auburn-duke-national-championship-march-madness-2025-odds/
+
 **Foe of Congestion Pricing Expected to Head Key Transit Agency**\
 `Marc Molinaro, a former Republican congressman, would steer the Federal Transit Administration, which supports mass transit systems nationwide.`\
 https://nytimes.com/2025/01/30/nyregion/congestion-pricing-marc-molinaro.html
