@@ -1,3 +1,11 @@
+**Wasatch out, Outlaws back in the mix as Utah Hockey Club continues march to a permanent nickname**\
+`The Utah NHL organization announced the change Thursday after conducting fan voting inside Delta Center during Wednesday’s home game.`\
+https://nytimes.com/athletic/6101460/2025/01/30/utah-hockey-nhl-outlaws-wasatch/
+
+**Members of a storied Massachusetts skating club gathered to grieve.**\
+`By Jenna Russell`\
+https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
+
 **Will Beyoncé or Chappell Roan Win Big at the Grammys? Our Predictions.**\
 `Stars like Taylor Swift and Kendrick Lamar are also up for major awards on Sunday. We previewed the big categories (and made our personal picks).`\
 https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.html

@@ -1,3 +1,7 @@
+**Wasatch out, Outlaws back in the mix as Utah Hockey Club continues march to a permanent nickname**\
+`The Utah NHL organization announced the change Thursday after conducting fan voting inside Delta Center during Wednesday’s home game.`\
+https://nytimes.com/athletic/6101460/2025/01/30/utah-hockey-nhl-outlaws-wasatch/
+
 **Will Beyoncé or Chappell Roan Win Big at the Grammys? Our Predictions.**\
 `Stars like Taylor Swift and Kendrick Lamar are also up for major awards on Sunday. We previewed the big categories (and made our personal picks).`\
 https://nytimes.com/2025/01/30/arts/music/beyonce-grammys-predictions-popcast.html
@@ -8,7 +12,7 @@ https://nytimes.com/2025/01/30/world/europe/art-heist-cotofenesti-arrests.html
 
 **Members of a storied Massachusetts skating club gathered to grieve.**\
 `By Jenna Russell`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/members-of-a-storied-massachusetts-skating-club-gathered-to-grieve
+https://nytimes.com/2025/01/30/us/skating-club-boston-plane-crash.html
 
 **How to Watch FireAid, the Star-Studded Benefit for Los Angeles**\
 `The concert, featuring Billie Eilish, Olivia Rodrigo and so many stars that it will fill two arenas, will be carried on major streaming platforms.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009960249/tulsi-gabbard-confirmation
 **New Sex Trafficking Indictment of Sean Combs Lists Two More Victims**\
 `Federal prosecutors filed an amended list of charges against the music mogul on Thursday and said he had coerced two additional women into sex acts.`\
 https://nytimes.com/2025/01/30/arts/music/sean-combs-diddy-superseding-indictment.html
-
-**Mark Zuckerberg Defends Embrace of Trump Administration in Meta Employee Meeting**\
-`In a meeting with Meta employees on Thursday, Mr. Zuckerberg also defended recent changes to the company’s online speech policies and ending its diversity initiatives.`\
-https://nytimes.com/2025/01/30/technology/mark-zuckerberg-meta-trump.html
 
