@@ -1,3 +1,7 @@
+**NBA Lookahead: Predicting De'Aaron Fox's potential fit with 5 trade options**\
+`Plus, the best games of the weekend — and remembering Magic Johnson's return to the court.`\
+https://nytimes.com/athletic/6090121/2025/01/30/deaaron-fox-trade-deadline-kings-spurs-pistons-lakers-magic-rockets-nba/
+
 **What Will Israel’s Ban of a U.N. Aid Agency Mean for Palestinians?**\
 `Legislation that goes into effect on Thursday bars UNRWA from operating in the country. That will affect aid delivery to Gaza and beyond.`\
 https://nytimes.com/2025/01/30/world/middleeast/israel-ban-unrwa-palestinians.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-occur
 **Sam Darnold's free-agent options: Which teams make the most sense and why?**\
 `The Vikings could bring back the 27-year-old, but other teams will likely be interested, too. Here's who could be in the market for the QB.`\
 https://nytimes.com/athletic/6097894/2025/01/30/sam-darnold-vikings-free-agency/
-
-**Knicks at the NBA trade deadline: Why I think New York does something**\
-`It doesn't feel like the Knicks have any tricks up their sleeve with the NBA's Feb. 6 trade deadline nearing.`\
-https://nytimes.com/athletic/6097103/2025/01/30/knicks-trade-deadline-nba/
 
