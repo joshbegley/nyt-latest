@@ -1,3 +1,19 @@
+**Rick Pitino urges UK fans to welcome back John Calipari with standing ovation**\
+`John Calipari and his Arkansas Razorbacks visit Kentucky, where he spent 15 seasons and won a national title, on Saturday. `\
+https://nytimes.com/athletic/6100853/2025/01/30/kentucky-mens-basketball-pitino-calipari/
+
+**Blackstone Still Bullish on A.I. Data Centers Despite DeepSeek**\
+`Blackstone, a major global investor in data centers that run A.I. systems, expects use of the technology to rise as the cost of computing power falls.`\
+https://nytimes.com/2025/01/30/business/blackstone-ai-quarterly-report-deepseek.html
+
+**NBAer Terry Rozier under federal investigation for illegal gambling scheme**\
+`The game, and performance, under scrutiny was on March 23, 2023 when Rozier was still with the Charlotte Hornets.`\
+https://nytimes.com/athletic/6100652/2025/01/30/terry-rozier-betting-investigation-nba/
+
+**Judge Orders Border Patrol Shooting Suspect Held Without Bail**\
+`At a hearing and in court filings, a federal prosecutor in Vermont cited connections between the defendant, Teresa Youngblut, and people linked to other murder investigations.`\
+https://nytimes.com/2025/01/30/us/border-patrol-shooting-suspect-bail.html
+
 **Nashville group submits bid for WNBA expansion team 'Tennessee Summitt'**\
 `News of the Nashville bid comes in the midst of a growth period in the WNBA, which intends to expand to 16 teams by 2028.`\
 https://nytimes.com/athletic/6100756/2025/01/30/wnba-expansion-nashville-tennessee-summitt/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/30/world/asia/ahmed-al-shara-syria-president.html
 **Canada names Sidney Crosby captain for 4 Nations: Why he was the pick and notable omissions**\
 `Crosby also wore the "C" at the 2014 Sochi Games and 2016 World Cup. Canada is 45-5-0 in games when he has worn its sweater overall.`\
 https://nytimes.com/athletic/6100731/2025/01/30/sidney-crosby-captain-canada-4-nations/
-
-**U.S. airlines, including American, rely on smaller partners for many flights.**\
-`Some are independent companies that fly for major airlines. PSA Airlines Inc., the American Airlines subsidiary involved in the midair collision and crash in Washington, is owned by the airline.`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/us-airlines-including-american-rely-on-smaller-partners-for-many-flights
-
-**Edward Snowden Emerges as Biggest Flashpoint in Gabbard Hearing**\
-`Tulsi Gabbard, the nominee for director of national intelligence, repeatedly avoided joining senators in calling Mr. Snowden a traitor.`\
-https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-edward-snowden.html
-
-**Villa interested in Felix and Asensio**\
-`Marco Asensio and Joao Felix are among the list of options Aston Villa are considering as they aim to recruit an attacker this window.`\
-https://nytimes.com/athletic/6100338/2025/01/30/asensio-felix-villa-transfers/
-
-**Father Slays New York Girl, 14, in TikTok ‘Honor Killing’**\
-`After being lured to Pakistan, Hira Anwar was fatally shot by her father and an uncle over online posts that her parents believed were immodest, the police said.`\
-https://nytimes.com/2025/01/30/world/asia/pakistan-new-york-honor-killing.html
 
