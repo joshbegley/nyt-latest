@@ -1,3 +1,15 @@
+**Federal agencies ordered to end initiatives that support ‘gender ideology.’**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/01/29/us/trump-federal-freeze-funding-news/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology
+
+**Brandon Saad’s shocking decision to walk away from $5.4 million is best-case scenario for Blues**\
+`Saad would've made $5.4 million had he reported to the Blues' AHL affiliate. Instead, he's walking away from it to become an NHL free agent.`\
+https://nytimes.com/athletic/6098294/2025/01/29/blues-brandon-saad-contract-nhl-free-agent/
+
+**Maple Leafs report cards: Passive play, lack of energy lead to another losing streak**\
+`A William Nylander goal in the third period wasn't enough offence to lift the Leafs above the Wild.`\
+https://nytimes.com/athletic/6098934/2025/01/29/maple-leafs-report-cards-woll-nylander-wild/
+
 **Maple Leafs report cards: Passive play, lack of energy lead to another losing streak**\
 `A Nylander goal in the third period wasn't enough offence to lift the Leafs above the Wild.`\
 https://nytimes.com/athletic/6098934/2025/01/29/maple-leafs-report-cards-woll-nylander-wild/
