@@ -1,3 +1,7 @@
+**Tottenham in Tel talks with Bayern Munich**\
+`Tottenham Hotspur are in discussions with Bayern Munich over the permanent transfer of forward Mathys Tel.`\
+https://nytimes.com/athletic/6099344/2025/01/30/mathys-tel-tottenham-transfer/
+
 **An internal F.B.I. memo about potential Catholic extremists has been a talking point on the right.**\
 `By Devlin Barrett, Adam Goldman and Glenn Thrush`\
 https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/an-internal-fbi-memo-about-potential-catholic-extremists-has-been-a-talking-point-on-the-right
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009959461/dc-plane-crash.html
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/01/30/books/review/7-new-books-we-recommend-this-week.html
-
-**SoftBank Said to Be in Talks to Invest as Much as $25 Billion in OpenAI**\
-`A new investment from the Japanese conglomerate would be separate from the $100 billion tied to a project announced at the White House last week.`\
-https://nytimes.com/2025/01/30/technology/softbank-openai-ai-investment.html
 

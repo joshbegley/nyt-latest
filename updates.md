@@ -1,3 +1,7 @@
+**Tottenham in Tel talks with Bayern Munich**\
+`Tottenham Hotspur are in discussions with Bayern Munich over the permanent transfer of forward Mathys Tel.`\
+https://nytimes.com/athletic/6099344/2025/01/30/mathys-tel-tottenham-transfer/
+
 **An internal F.B.I. memo about potential Catholic extremists has been a talking point on the right.**\
 `By Devlin Barrett, Adam Goldman and Glenn Thrush`\
 https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/an-internal-fbi-memo-about-potential-catholic-extremists-has-been-a-talking-point-on-the-right
