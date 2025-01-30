@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6096287/2025/01/30/cade-cunninhgam-pistons-nba-all-
 `By Claire Moses`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/windy-conditions-and-bitterly-cold-river-water-are-complicating-rescue-efforts
 
-**How Wojciech Szczesny ousted Inaki Pena to become Barcelona's back-up goalkeeper**\
+**How Wojciech Szczesny ousted Inaki Pena to become Flick's Barcelona goalkeeper**\
 `After coming out of retirement, the experienced Szczesny has become Hansi Flick's main Ter Stegen replacement`\
 https://nytimes.com/athletic/6098821/2025/01/30/barcelona-wojciech-szczesny-inaki-pena/
 
