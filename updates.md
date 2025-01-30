@@ -1,3 +1,7 @@
+**President Blames D.E.I. and Biden for Crash Under Trump’s Watch**\
+`President Trump’s remarks, suggesting without evidence that diversity in hiring and other Biden administration policies somehow caused the disaster, reflected his instinct to immediately frame major events through his political or ideological lens.`\
+https://nytimes.com/2025/01/30/us/politics/trump-plane-crash-dei-faa-diversity.html
+
 **Patel Invoked the Fifth Amendment in a Case Tied to Trump**\
 `Kash Patel invoked his right not to incriminate himself before a grand jury examining whether Donald Trump mishandled national security secrets.`\
 https://nytimes.com/2025/01/30/us/politics/patel-took-fifth-amendment.html
