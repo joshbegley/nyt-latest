@@ -1,3 +1,7 @@
+**Colbert Says RFK Jr. Is Not Even Qualified to Work at Jamba Juice**\
+`Stephen Colbert reveled in an anecdote about Trump’s health secretary nominee blending baby chickens and mice to feed his pet hawks.`\
+https://nytimes.com/2025/01/30/arts/television/late-night-rfk-confirmation.html
+
 **Every Crash Has Tragic Lesson, Says Pilot Famed for Hudson Landing**\
 `Chesley B. Sullenberger III said though flying was safer than ever, Wednesday’s crash showed the need for constant vigilance and learning from past errors.`\
 https://nytimes.com/2025/01/30/us/plane-crash-potomac-lessons-sully.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/nyregion/trump-solar-power-renewable-energy.html
 **At Quinceañeros, a Changing Culture Emerges**\
 `For centuries, only young Latinas had quinceañeras. A reporter set out to learn why more boys are having coming-of-age celebrations, called quinceañeros.`\
 https://nytimes.com/2025/01/30/reader-center/quincenearo-for-boys.html
-
-**Here’s the latest on the hostage and prisoner exchange.**\
-`By Aaron Boxerman and Adam Rasgon`\
-https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
 

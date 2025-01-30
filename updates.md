@@ -1,3 +1,7 @@
+**Colbert Says RFK Jr. Is Not Even Qualified to Work at Jamba Juice**\
+`Stephen Colbert reveled in an anecdote about Trump’s health secretary nominee blending baby chickens and mice to feed his pet hawks.`\
+https://nytimes.com/2025/01/30/arts/television/late-night-rfk-confirmation.html
+
 **Here’s the latest on the hostage and prisoner exchange.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
