@@ -1,3 +1,11 @@
+**Gabbard’s Hearing Turns Tense Over Snowden Questions**\
+`Tulsi Gabbard, President Trump’s nominee for director of national intelligence, refused to fully denounce the 2013 leaks by Edward J. Snowden, eliciting concern from both parties.`\
+https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-confirmation-hearing-intelligence.html
+
+**Rebecca Yarros’ ‘Onyx Storm’ is the Fastest-Selling Adult Novel in 20 Years**\
+`The book, the third in a series, has sold 2.7 million copies in its first week, and provided yet another example of the romantasy genre’s staying power.`\
+https://nytimes.com/2025/01/30/books/rebecca-yarros-onyx-storm.html
+
 **Three New Bakeries for the Flakiest Croissants**\
 `Challah croissants, strawberry croissants, pig in a Bed (Stuy) croissants and more baked good goodness.`\
 https://nytimes.com/2025/01/30/dining/three-new-bakeries-for-the-flakiest-croissants.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6101147/2025/01/30/bills-sean-mcdermott-brandon-bea
 **4 Takeaways From Tulsi Gabbard’s Confirmation Hearing**\
 `President Trump’s choice to serve as the director of national intelligence faced tough questions from senators in both parties.`\
 https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-senate-hearing-takeaways.html
-
-**‘She Speaks for Millions’: Best and Worst Moments From Tulsi Gabbard’s Confirmation Hearing**\
-`Eight Opinion writers weigh in on whether she’s up to the job of director of national intelligence.`\
-https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-senate-hearing.html
-
-**Friday Briefing: 67 Dead in Washington Air Collision**\
-`Plus, Beyoncé vs. Swift at the Grammys.`\
-https://nytimes.com/2025/01/30/briefing/washington-air-crash-hamas-hostages-senate-hearings.html
 
