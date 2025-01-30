@@ -2,8 +2,8 @@
 `Charlotte has four games over the next week, and sits in 14th place in the Eastern Conference at 12-32.`\
 https://nytimes.com/athletic/6098877/2025/01/29/lamelo-ball-hornets-out-ankle-injury/
 
-**Live Updates: Plane Crashes Near Washington**\
-`An American Airlines flight from Wichita, Kan., collided midair with a helicopter while approaching Reagan Airport and plunged into the Potomac River, the F.A.A. said.`\
+**Live Updates: Plane Crashes Near Washington After Colliding With Army Helicopter**\
+`The American Airlines flight from Wichita, Kan., plunged into the Potomac River, the F.A.A. said. An Army official said it collided with a Black Hawk helicopter.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc
 
 **Fourth line hustles, Filip Gustavsson back to his best in win over Leafs: Wild takeaways**\
@@ -19,7 +19,7 @@ https://nytimes.com/2025/01/29/crosswords/daily-puzzle-2025-01-30.html
 https://nytimes.com/athletic/6098760/2025/01/29/wnba-toronto-general-manager-monica-wright-rogers/
 
 **Here is the latest on the crash.**\
-`The airport said on social media that`\
+`By Hank Sanders`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/plane-crash-reagan-airport-washington-dc
 
 **Resignation Push Deepens Worries About Effect on Government Services**\
