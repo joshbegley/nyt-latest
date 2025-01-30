@@ -1,3 +1,15 @@
+**What makes Pistons guard Cade Cunningham an NBA All-Star this season?**\
+`Cunningham believes he should be in San Francisco playing with the best of the best on Feb. 16.`\
+https://nytimes.com/athletic/6096287/2025/01/30/cade-cunninhgam-pistons-nba-all-star/
+
+**Windy conditions and bitterly cold river water are complicating rescue efforts.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/windy-conditions-and-bitterly-cold-river-water-are-complicating-rescue-efforts
+
+**U.S. and Russian Figure Skaters Among Passengers on Crashed Jet**\
+`Members of the U.S. figure skating community were traveling on the commercial jet that collided with a military helicopter outside Washington. They were returning from a skate camp in Kansas.`\
+https://nytimes.com/2025/01/30/us/figure-skaters-dc-plane-crash.html
+
 **How Wojciech Szczesny ousted Inaki Pena to become Barcelona's back-up goalkeeper**\
 `After coming out of retirement, the experienced Szczesny has become Hansi Flick's main Ter Stegen replacement`\
 https://nytimes.com/athletic/6098821/2025/01/30/barcelona-wojciech-szczesny-inaki-pena/
