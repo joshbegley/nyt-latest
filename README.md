@@ -1,3 +1,7 @@
+**The Curious Power of Tarot Cards to Explain and Reveal**\
+`A new exhibition in London traces the evolution of tarot from Renaissance Italy to the present day, with the card designs shifting to reflect the times.`\
+https://nytimes.com/2025/01/30/arts/design/tarot-exhibition-london-warburg-institute.html
+
 **82,150 Gallons of Paint Later, a Blue Man Group Farewell**\
 `Over 34 years, the show gave Fred Armisen a drumming gig, “Arrested Development” a hilarious story line and more. Now the cultural sensation comes to an end in New York.`\
 https://nytimes.com/2025/01/30/theater/blue-man-group-new-york-closing-off-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100128/2025/01/30/2025-nfl-draft-preview-questions
 **Bye-bye 'Wor Miggy' - Newcastle's frustrating finisher, but beloved grafter**\
 `The Paraguayan winger has completed his move to Atlanta United but will always be appreciated on Tyneside`\
 https://nytimes.com/athletic/6066507/2025/01/30/miguel-almiron-newcastle-atlanta-transfer/
-
-**A Pasta Cheat Code for Speed-Run Dinners**\
-`Lidey Heuck’s five-star recipe for pasta with spicy sausage, broccoli rabe and chickpeas is a brilliant template for satisfying meals.`\
-https://nytimes.com/2025/01/30/dining/a-pasta-cheat-code-for-speed-run-dinners.html
 
