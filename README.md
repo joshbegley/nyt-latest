@@ -1,3 +1,7 @@
+**What makes Pistons guard Cade Cunningham an NBA All-Star this season?**\
+`Cunningham believes he should be in San Francisco playing with the best of the best on Feb. 16.`\
+https://nytimes.com/athletic/6096287/2025/01/30/cade-cunninhgam-pistons-nba-all-star/
+
 **Windy conditions and bitterly cold river water are complicating rescue efforts.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/windy-conditions-and-bitterly-cold-river-water-are-complicating-rescue-efforts
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/nyregion/adams-trump-charges-.html
 **Inside the N.Y.C. Immigration Crackdown: Show of Force Yields 39 Arrests**\
 `ICE agents conducted roundups in New York City, and a day later, local authorities announced their own gang takedown. In immigrant neighborhoods, fear was palpable.`\
 https://nytimes.com/2025/01/30/nyregion/immigration-raids-nyc-ice.html
-
-**Forget the Punchline. It’s the Setup to These Jokes That’s Tricky.**\
-`Ronny Chieng, Gary Gulman and other comics are experimenting with long buildups that can be audacious … when they work.`\
-https://nytimes.com/2025/01/30/arts/television/comedy-ronny-chieng-gary-gulman-hannah-einbinder.html
 
