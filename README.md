@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6094256/2025/01/30/max-verstappen-red-bull-f1-2025-
 https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-trump-cabinet.html
 
 **What to Know About the Plane and Helicopter Crash Near Washington**\
-`American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan Airport.`\
+`American Eagle Flight 5342 crashed into the Potomac River after colliding with an Army helicopter while approaching Reagan National Airport.`\
 https://nytimes.com/2025/01/30/us/plane-crash-dc-helicopter-reagan-airport.html
 
 **Kristaps Porziņģis blames bad luck for some of Celtics' issues, but it's more than that**\
