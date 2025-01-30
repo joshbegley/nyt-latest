@@ -1,3 +1,7 @@
+**Here’s the latest on the hostage and prisoner exchange.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
+
 **Kawhi Leonard understands why San Antonio boos him, shows Spurs he is still him**\
 `"It's just because of the player I am, you know what I mean, and what I've done here," Leonard said.`\
 https://nytimes.com/athletic/6099135/2025/01/30/clippers-spurs-kawhi-leonard/

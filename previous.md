@@ -32,7 +32,7 @@ https://nytimes.com/2025/01/30/reader-center/quincenearo-for-boys.html
 
 **Here’s the latest on the hostage and prisoner exchange.**\
 `By Aaron Boxerman`\
-https://nytimes.com/live/2025/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
+https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
 
 **Eighteen Champions League games, one unusual assignment: watch every match (in five-minute segments)**\
 `How do you follow all 18 games on 'Matchday Mayhem'? Come up with a running order and watch a bit of every game, of course`\
