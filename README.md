@@ -1,3 +1,7 @@
+**What Will Israel’s Ban of a U.N. Aid Agency Mean for Palestinians?**\
+`Legislation that goes into effect on Thursday bars UNRWA from operating in the country. That will affect aid delivery to Gaza and beyond.`\
+https://nytimes.com/2025/01/30/world/middleeast/israel-ban-unrwa-palestinians.html
+
 **West Ham have offer for USMNT's Pepi rejected by PSV**\
 `West Ham United&#8217;s proposal to sign PSV striker Ricardo Pepi has been rejected.`\
 https://nytimes.com/athletic/6099243/2025/01/30/ricardo-pepi-west-ham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097894/2025/01/30/sam-darnold-vikings-free-agency/
 **Knicks at the NBA trade deadline: Why I think New York does something**\
 `It doesn't feel like the Knicks have any tricks up their sleeve with the NBA's Feb. 6 trade deadline nearing.`\
 https://nytimes.com/athletic/6097103/2025/01/30/knicks-trade-deadline-nba/
-
-**Manchester United live Q&A: Laurie Whitwell answers your questions**\
-`Pose your questions and our club correspondent Laurie Whitwell will answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
-https://nytimes.com/athletic/6096489/2025/01/30/manchester-united-questions-transfers-amorim/
 
