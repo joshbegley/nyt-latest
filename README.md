@@ -1,3 +1,7 @@
+**Gabbard Refuses to Call Snowden a Traitor During Confirmation Hearing**\
+`Tulsi Gabbard, President Trump’s nominee for director of national intelligence, was repeatedly asked during her confirmation hearing whether Edward Snowden was a traitor for leaking classified information.`\
+https://nytimes.com/video/us/politics/100000009960249/tulsi-gabbard-confirmation-snowden.html
+
 **New Sex Trafficking Indictment of Sean Combs Lists Two More Victims**\
 `Federal prosecutors filed an amended list of charges against the music mogul on Thursday and said he had coerced two additional women into sex acts.`\
 https://nytimes.com/2025/01/30/arts/music/sean-combs-diddy-superseding-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/opinion/trump-executive-orders.html
 **FCSB 0 Manchester United 2 - Has Mainoo found his role? Have United finally got boring?**\
 `Analysis of Manchester United's Europa League win`\
 https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlights/
-
-**The Briefing: Tottenham 3 Elfsborg 0 - Youngsters shine after Dragusin injury blow**\
-`The major talking points dissected from the final game in the league phase of the Europa League`\
-https://nytimes.com/athletic/6094427/2025/01/30/tottenham-elfsborg-europa-league-scarlett-ajayi/
 
