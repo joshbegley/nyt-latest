@@ -1,3 +1,15 @@
+**Dani Busboom Kelly is right for Nebraska, which is not doomed to repeat old mistakes**\
+`Nebraska knows a few things about a homecoming hire. But that's no reason to distrust Busboom Kelly.`\
+https://nytimes.com/athletic/6101444/2025/01/30/nebraska-volleyball-dani-busboom-kelly-john-cook-retirement/
+
+**A Flag on Mars? Maybe Not So Soon.**\
+`Orbital dynamics show that President Trump’s pledge to land astronauts on Mars couldn’t happen until 2029 at the earliest.`\
+https://nytimes.com/interactive/2025/01/30/science/mars-landing-trump.html
+
+**Immigrant Communities in Hiding: ‘People Think ICE Is Everywhere’**\
+`Schools, churches and shops are feeling the chilling effect of the fear of deportation. One minister said fewer congregants were showing up for services.`\
+https://nytimes.com/2025/01/30/us/immigrant-communities-hiding-ice.html
+
 **What we know about the figure skaters who were on the airplane that crashed in Washington, D.C.**\
 `Six of the passengers on the plane were associated with The Skating Club of Boston.`\
 https://nytimes.com/athletic/6101020/2025/01/30/figure-skaters-dc-plane-crash-what-we-know/
