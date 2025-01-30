@@ -1,3 +1,7 @@
+**The Bounce: 4 reasons why the NBA doesn't need 10-minute quarters**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6099539/2025/01/30/adam-silver-commissioner-nba-all-star-reserves-the-bounce/
+
 **Gabbard is an unorthodox choice to oversee the country’s vast intelligence community.**\
 `By Elizabeth Williamson and Charles Homans`\
 https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/gabbard-is-an-unorthodox-choice-to-oversee-the-countrys-vast-intelligence-community

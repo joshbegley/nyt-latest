@@ -1,3 +1,7 @@
+**The Bounce: 4 reasons why the NBA doesn't need 10-minute quarters**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6099539/2025/01/30/adam-silver-commissioner-nba-all-star-reserves-the-bounce/
+
 **Gabbard is an unorthodox choice to oversee the country’s vast intelligence community.**\
 `By Elizabeth Williamson and Charles Homans`\
 https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/gabbard-is-an-unorthodox-choice-to-oversee-the-countrys-vast-intelligence-community
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099785/2025/01/30/callum-hudson-odoi-nottingham-fo
 **Members of both parties have indicated they could ask tough questions.**\
 `President Trump’s pick to be the director of national intelligence is expected to say she will prioritize ending the “politicization” of intelligence.`\
 https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/tulsi-gabbard-confirmation-hearing
-
-**Here’s the latest on the hearing.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/heres-the-latest-on-the-hearing
 
