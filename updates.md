@@ -1,3 +1,11 @@
+**Even Progressives Now Worry About the Federal Debt**\
+`Long a focus of conservatives, the level of public borrowing is starting to concern left-leaning economists. Proposed remedies still differ radically.`\
+https://nytimes.com/2025/01/30/business/economy/federal-debt-worries.html
+
+**‘Love Me’ Review: A Romance Six Billion Years in the Making**\
+`Kristen Stewart and Steven Yeun star in a marvelously inventive sci-fi romance that spans eons yet pokes at a simple question.`\
+https://nytimes.com/2025/01/30/movies/love-me-review.html
+
 **Brighton's Mitoma subject of €65m approach from Al Nassr**\
 `Saudi Pro League club Al Nassr have approached Brighton &amp; Hove Albion with a formal offer to recruit winger Kaoru Mitoma.`\
 https://nytimes.com/athletic/6100316/2025/01/30/kaoru-mitoma-al-nassr-brighton-transfer/
