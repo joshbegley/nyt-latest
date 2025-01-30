@@ -1,3 +1,11 @@
+**Trump Says U.S. Will Hold Migrants at Guantánamo**\
+`The president suggested 30,000 migrants could be housed on the base. It is unclear how the plan will take shape.`\
+https://nytimes.com/2025/01/29/us/politics/trump-migrants-guantanamo.html
+
+**Stop Feeling Stunned and Wounded, Liberals. It’s Time to Fight Back.**\
+`Americans alarmed by President Trump’s agenda must reunite and recalibrate.`\
+https://nytimes.com/2025/01/29/opinion/democrats-trump-resistance.html
+
 **Carlos Estévez, Royals agree to 2-year deal**\
 `Estévez is coming off a two-year, $13.5 million contract he signed with the Angels in December 2022.`\
 https://nytimes.com/athletic/6098553/2025/01/29/carlos-estevez-royals-contract/
