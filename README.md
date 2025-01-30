@@ -1,3 +1,7 @@
+**43 Years Ago, a Plane Crash on the Potomac Left 78 People Dead**\
+`A Boeing 737 crashed into a bridge over the river on Jan. 13, 1982, just after taking off from Washington National Airport in a snowstorm.`\
+https://nytimes.com/2025/01/30/us/potomac-plane-crash-1980s.html
+
 **Are Amorim's methods working at Manchester United?**\
 `Amorim's United feels like a pencil sketch of a grander planned work - there are signs of progress but huge improvements are needed`\
 https://nytimes.com/athletic/6091063/2025/01/30/ruben-amorim-manchester-united-methods-working/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/world/europe/southport-terrorism-prevent-violence
 **Quote of the Day: Migration Is Muddling the Rules of Citizenship**\
 `Quotation of the Day for Thursday, January 30, 2025.`\
 https://nytimes.com/2025/01/30/pageoneplus/quote-of-the-day-migration-is-muddling-the-rules-of-citizenship.html
-
-**Surging Canucks win third in a row despite off-ice discord: 3 takeaways**\
-`The Canucks hadn't won three in a row since early November.`\
-https://nytimes.com/athletic/6098966/2025/01/30/canucks-win-streak-demko-hoglander-predators/
 
