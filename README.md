@@ -1,3 +1,11 @@
+**4 Takeaways From Tulsi Gabbard’s Confirmation Hearing**\
+`President Trump’s choice to serve as the director of national intelligence faced tough questions from senators in both parties.`\
+https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-senate-hearing-takeaways.html
+
+**‘She Speaks for Millions’: Best and Worst Moments From Tulsi Gabbard’s Confirmation Hearing**\
+`Eight Opinion writers weigh in on whether she’s up to the job of director of national intelligence.`\
+https://nytimes.com/2025/01/30/opinion/tulsi-gabbard-senate-hearing.html
+
 **Friday Briefing: 67 Dead in Washington Air Collision**\
 `Plus, Beyoncé vs. Swift at the Grammys.`\
 https://nytimes.com/2025/01/30/briefing/washington-air-crash-hamas-hostages-senate-hearings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/elon-musk-general-services-administra
 **Kash Patel Dodges 2020 Election Question**\
 `Kash Patel, the nominee for Director of the F.B.I., repeatedly refused to say that former President Biden won the election in 2020.`\
 https://nytimes.com/video/us/politics/100000009960085/patel-confirmation-fbi-biden-2020.html
-
-**Foe of Congestion Pricing Expected to Head Key Transit Agency**\
-`Marc Molinaro, a former Republican congressman, would steer the Federal Transit Administration, which supports mass transit systems nationwide.`\
-https://nytimes.com/2025/01/30/nyregion/congestion-pricing-marc-molinaro.html
-
-**Congress approved more flights at Reagan despite warnings of danger.**\
-`Last year, lawmakers authorized an additional five round-trip flights despite an outcry from Maryland and Virginia senators, who warned that delays, cancellations and accidents would increase.`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/congress-approved-more-flights-at-reagan-despite-warnings-of-danger
 
