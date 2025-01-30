@@ -1,3 +1,7 @@
+**Word of the Day: limbic**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/30/learning/word-of-the-day-limbic.html
+
 **Uncertainty gripped the future of Duran and Watkins - Rogers stepped forward**\
 `Duran is heading for Al-Nassr, Arsenal have bid for Watkins - despite the build-up Villa held their nerve to claim place in round of 16`\
 https://nytimes.com/athletic/6096742/2025/01/30/duran-watkins-transfers-rogers-aston-villa/
