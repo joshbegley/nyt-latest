@@ -1,7 +1,3 @@
-**Crowds gathered to watch rescue boats working on the dark river.**\
-`By Minho Kim, Chris Cameron, Linda Qiu and Tim Balk`\
-https://nytimes.com/2025/01/29/us/crowds-gathered-to-watch-rescue-boats-working-on-the-dark-river.html
-
 **Federal Agencies Ordered to End Initiatives That Support ‘Gender Ideology’**\
 `The directive was another step in the Trump administration’s campaign to root out “woke” ideology from the federal government.`\
 https://nytimes.com/2025/01/29/us/politics/federal-agencies-ordered-to-end-initiatives-that-support-gender-ideology.html
@@ -35,6 +31,10 @@ https://nytimes.com/2025/01/29/crosswords/daily-puzzle-2025-01-30.html
 https://nytimes.com/athletic/6098760/2025/01/29/wnba-toronto-general-manager-monica-wright-rogers/
 
 **Here is the latest on the crash.**\
-`By Hank Sanders`\
+`By Hank Sanders and Chris Cameron`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/plane-crash-reagan-airport-washington-dc
+
+**Resignation Push Deepens Worries About Effect on Government Services**\
+`The Trump administration’s effort to get federal workers to leave their posts could lead to an exodus of experienced employees, some warned.`\
+https://nytimes.com/2025/01/29/us/politics/federal-workforce-resignations.html
 
