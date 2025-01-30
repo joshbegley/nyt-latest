@@ -1,40 +1,40 @@
-**Patel Invoked the Fifth Amendment in a Case Tied to Trump**\
-`Kash Patel invoked his right not to incriminate himself before a grand jury examining whether Donald Trump mishandled national security secrets.`\
-https://nytimes.com/2025/01/30/us/politics/patel-took-fifth-amendment.html
+**Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
+`The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
+https://nytimes.com/2025/01/30/us/politics/fatal-crash-runway.html
 
-**Review: In Justin Peck’s New Dance, Air, Earth and Self-Help**\
-`“Mystic Familiar,” a New York City Ballet premiere, has a score by the musician Dan Deacon and some all-too-familiar sentiments.`\
-https://nytimes.com/2025/01/30/arts/dance/review-justin-peck-mystic-familiar-new-york-city-ballet.html
+**Super Bowl 59 odds, pick: Chiefs hold steady as 1.5-point favorites in rematch with Eagles**\
+`The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
+https://nytimes.com/athletic/6084432/2025/01/30/super-bowl-59-odds-line-chiefs-eagles/
 
-**Nickeil Alexander-Walker's grit propels Timberwolves to a throwback win over Suns**\
-`Alexander-Walker was all over the place in Phoenix, and it meant everything to a team that was trying to find an identity.`\
-https://nytimes.com/athletic/6100146/2025/01/30/nickeil-alexander-walker-timberwolves-suns/
+**Zakaria Zubeidi, Militant Who Briefly Escaped Israeli Prison, Is Among Released Palestinians**\
+`Mr. Zubeidi, who was also once a theater director, stunned Israelis and Palestinians alike when he and others broke out of jail in 2021.`\
+https://nytimes.com/2025/01/30/world/middleeast/zakaria-zubeidi-release-israel-hamas.html
 
-**Tierney to stay at Arsenal for rest of season before joining Celtic in summer**\
-`Kieran Tierney will spend the rest of the season at Arsenal before joining Celtic in the summer after agreeing a pre-contract deal with the Scottish club.`\
-https://nytimes.com/athletic/6006062/2025/01/30/arsenal-transfer-news-tierney-celtic/
+**They Don’t Know I Threw This Party Just for the Food**\
+`As in: crispy stuffed mushrooms with harissa and apricots, a samosa-ish party wreath and lots and lots of dumplings.`\
+https://nytimes.com/2025/01/30/dining/they-dont-know-i-threw-this-party-just-for-the-food.html
 
-**Tottenham in Tel talks with Bayern Munich**\
-`Tottenham Hotspur are in discussions with Bayern Munich over the permanent transfer of forward Mathys Tel.`\
-https://nytimes.com/athletic/6099344/2025/01/30/mathys-tel-tottenham-transfer/
+**Stanway's injury comes as a huge blow for England and Bayern**\
+`The midfielder has been pivotal during Sarina Wiegman's time in charge and England will struggle to find someone who can do what she does`\
+https://nytimes.com/athletic/6100180/2025/01/30/georgia-stanway-england-bayern-injury/
 
-**An internal F.B.I. memo about potential Catholic extremists has been a talking point on the right.**\
-`By Devlin Barrett, Adam Goldman and Glenn Thrush`\
-https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/an-internal-fbi-memo-about-potential-catholic-extremists-has-been-a-talking-point-on-the-right
+**Trump’s Reversal of a Federal Funding Freeze**\
+`Readers discuss the harms it would have caused and view it as a sign of incompetence. Also: D.E.I. at NASA; dementia cases; against deportations.`\
+https://nytimes.com/2025/01/30/opinion/trump-federal-funding-freeze.html
 
-**Everything we know about Penguins ownership's investor search**\
-`Fenway Sports Group's move to add investors to the Penguins isn't uncommon, but it is complicated. Here's what it all means.`\
-https://nytimes.com/athletic/6100274/2025/01/30/penguins-fenway-sports-group-investors-faq/
+**Everton's Mangala out for season with ACL injury, DCL to miss 'a number of weeks'**\
+`Everton midfielder Orel Mangala has sustained an anterior cruciate ligament (ACL) injury and is expected to miss the rest of the season, while striker Dominic Calvert-Lewin is set to miss a number of weeks with a hamstring injury.`\
+https://nytimes.com/athletic/6096851/2025/01/30/orel-mangala-acl-calvert-lewin-injury-everton/
 
-**The release in Khan Younis descended into chaos.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/the-release-in-khan-younis-descended-into-chaos
+**Déjà Vu: Elon Musk Takes His Twitter Takeover Tactics to Washington**\
+`Federal agencies have offered exits to millions of employees and tested the prowess of engineers — just like when Elon Musk bought Twitter. The similarities have been uncanny.`\
+https://nytimes.com/2025/01/30/technology/musk-doge-x-playbook.html
 
-**U.S. Sues to Block Tech Deal in First Antitrust Action of Trump Term**\
-`The challenge to Hewlett Packard Enterprise’s acquisition of Juniper Networks came as many in corporate America had expected a lighter touch under a new administration.`\
-https://nytimes.com/2025/01/30/business/dealbook/hpe-juniper-deal-blocked.html
+**Two Republican senators clash over the facts about vaccines.**\
+`By Sheryl Gay Stolberg, Apoorva Mandavilli, Ellen Barry and Sara Ruberg`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/two-republican-senators-clash-over-the-facts-about-vaccines
 
-**President Blames D.E.I. and Biden for Crash Under Trump’s Watch**\
-`President Trump’s remarks, suggesting without evidence that diversity in hiring and other Biden administration policies somehow caused the disaster, reflected his instinct to immediately frame major events through his political or ideological lens.`\
-https://nytimes.com/2025/01/30/us/politics/trump-plane-crash-dei-faa-diversity.html
+**‘Mo’ Review: An International Hustle**\
+`The second season of the Netflix comedy begins with its title character stuck in immigration purgatory in Mexico.`\
+https://nytimes.com/2025/01/30/arts/television/mo-review-netflix.html
 
