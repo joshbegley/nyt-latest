@@ -1,3 +1,7 @@
+**Shortly Before Fatal Crash, Jet Pilot Was Asked to Change Runways**\
+`The plane had been cleared to land on Reagan National Airport’s main runway. But in the final moments of the flight, air traffic control asked the pilot to land on a separate, intersecting runway.`\
+https://nytimes.com/2025/01/30/us/politics/fatal-crash-runway.html
+
 **Super Bowl 59 odds, pick: Chiefs hold steady as 1.5-point favorites in rematch with Eagles**\
 `The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
 https://nytimes.com/athletic/6084432/2025/01/30/super-bowl-59-odds-line-chiefs-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/two-re
 **‘Mo’ Review: An International Hustle**\
 `The second season of the Netflix comedy begins with its title character stuck in immigration purgatory in Mexico.`\
 https://nytimes.com/2025/01/30/arts/television/mo-review-netflix.html
-
-**Team USA names Auston Matthews captain for 4 Nations: Why he was the pick and notable omissions**\
-`Matthews, 27, led the NHL with 69 goals last season and won the Hart Trophy in 2021-22, when he scored 106 points in 73 games.`\
-https://nytimes.com/athletic/6100228/2025/01/30/auston-matthews-captain-united-states-4-nations/
 
