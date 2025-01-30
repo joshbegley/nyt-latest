@@ -1,3 +1,7 @@
+**A standard Senate questionnaire illuminates Patel’s early years.**\
+`In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/a-standard-senate-questionnaire-illuminates-patels-early-years
+
 **Eeny Meeny Miny Mo, Catch a Pterosaur by Its Neck**\
 `A puncture in the fossilized neck of a winged reptile that flew with the dinosaurs suggests the creature became a feast for a crocodile ancestor.`\
 https://nytimes.com/2025/01/30/science/pterosaur-fossil-bite-croc.html

@@ -1,3 +1,7 @@
+**A standard Senate questionnaire illuminates Patel’s early years.**\
+`In the form, Kash Patel said he had participated in an American Bar Association program that promotes diversity. He also played down his role in the Benghazi investigation.`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/a-standard-senate-questionnaire-illuminates-patels-early-years
+
 **Eeny Meeny Miny Mo, Catch a Pterosaur by Its Neck**\
 `A puncture in the fossilized neck of a winged reptile that flew with the dinosaurs suggests the creature became a feast for a crocodile ancestor.`\
 https://nytimes.com/2025/01/30/science/pterosaur-fossil-bite-croc.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/30/us/tulsi-gabbard-confirmation-hearing/heres-
 **Team Finland names Aleksander Barkov captain for 4 Nations Face-Off**\
 `Barkov leads all active Finnish players in career points with 753 in 779 NHL games and captained the Panthers to the Stanley Cup in 2024.`\
 https://nytimes.com/athletic/6099066/2025/01/30/aleksander-barkov-captain-finland-4-nations/
-
-**Ramos in talks with Monterrey**\
-`Sergio Ramos is in talks with Monterrey over a possible move to the Mexican club but as yet no formal proposal has been received.`\
-https://nytimes.com/athletic/6099622/2025/01/30/sergio-ramos-monterrey-talks/
 
