@@ -1,3 +1,11 @@
+**An internal F.B.I. memo about potential Catholic extremists has been a talking point on the right.**\
+`By Devlin Barrett, Adam Goldman and Glenn Thrush`\
+https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/an-internal-fbi-memo-about-potential-catholic-extremists-has-been-a-talking-point-on-the-right
+
+**Everything we know about Penguins ownership's investor search**\
+`Fenway Sports Group's move to add investors to the Penguins isn't uncommon, but it is complicated. Here's what it all means.`\
+https://nytimes.com/athletic/6100274/2025/01/30/penguins-fenway-sports-group-investors-faq/
+
 **The release in Khan Younis descended into chaos.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/the-release-in-khan-younis-descended-into-chaos
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/books/review/7-new-books-we-recommend-this-week.h
 **SoftBank Said to Be in Talks to Invest as Much as $25 Billion in OpenAI**\
 `A new investment from the Japanese conglomerate would be separate from the $100 billion tied to a project announced at the White House last week.`\
 https://nytimes.com/2025/01/30/technology/softbank-openai-ai-investment.html
-
-**Patel’s loyalty to Trump has been a flashpoint in his confirmation hearing.**\
-`During President Trump’s first term, demanding personal loyalty didn’t always work; stocking top jobs with loyalists is the tack now. At the F.B.I., this entails bucking its institutional history.`\
-https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/patels-loyalty-to-trump-has-been-a-flashpoint-in-his-confirmation-hearing
-
-**George Tice, ‘Bard of New Jersey’ With a Camera, Dies at 86**\
-`He found beauty in the prosaic: bars, phone booths, hamburger joints, barber shops — first in a downtrodden Paterson, then throughout the state and beyond.`\
-https://nytimes.com/2025/01/30/arts/george-tice-dead.html
 
