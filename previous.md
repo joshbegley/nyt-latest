@@ -1,40 +1,40 @@
-**What makes Pistons guard Cade Cunningham an NBA All-Star this season?**\
-`Cunningham believes he should be in San Francisco playing with the best of the best on Feb. 16.`\
-https://nytimes.com/athletic/6096287/2025/01/30/cade-cunninhgam-pistons-nba-all-star/
+**Judith Bernstein at 82 Comes Back Swinging**\
+`Unrelenting, unrepenting, the artist who made a name for herself with huge drawings of hairy phallic screws presents a world of work with exuberant energy over 60 years.`\
+https://nytimes.com/2025/01/30/arts/design/judith-bernstein-artist-kasmin-gallery.html
 
-**Windy conditions and bitterly cold river water are complicating rescue efforts.**\
-`By Claire Moses`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/windy-conditions-and-bitterly-cold-river-water-are-complicating-rescue-efforts
+**Pothole No. 500,000 Has Been Filled**\
+`The city’s transportation commissioner headed to Brooklyn for some work in the streets to mark an Adams administration milestone.`\
+https://nytimes.com/2025/01/30/nyregion/potholes-brooklyn-transportation-commissioner.html
 
-**How Wojciech Szczesny ousted Inaki Pena to become Flick's Barcelona goalkeeper**\
-`After coming out of retirement, the experienced Szczesny has become Hansi Flick's main Ter Stegen replacement`\
-https://nytimes.com/athletic/6098821/2025/01/30/barcelona-wojciech-szczesny-inaki-pena/
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom in Chappaqua, N.Y., and a five-bedroom in Redding, Conn.`\
+https://nytimes.com/2025/01/30/realestate/housing-market-near-nyc.html
 
-**U.S. and Russian Figure Skaters Among Passengers on Crashed Jet**\
-`Members of the U.S. figure skating community were traveling on the commercial jet that collided with a military helicopter outside Washington. They were returning from a skate camp in Kansas.`\
-https://nytimes.com/2025/01/30/us/figure-skaters-dc-plane-crash.html
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in Midtown East, Hell’s Kitchen and Howard Beach.`\
+https://nytimes.com/2025/01/30/realestate/homes-for-sale-in-manhattan-and-queens.html
 
-**The Problem with Mistaking Costumes for Clothes**\
-`Assessing Alessandro Michele’s couture debut for Valentino. Plus, Armani Privè and Chanel keep things moving and Gaurav Gupta surprises.`\
-https://nytimes.com/2025/01/30/style/valentino-couture-alessandro-michele-chanel-armani.html
+**Maureen Dowd on Trump the Narcissist, Act II**\
+`The columnist sits down with Patrick Healy to discuss the enduring appeal of President Trump.`\
+https://nytimes.com/2025/01/30/opinion/trump-power-narcissism.html
 
-**Colbert Says RFK Jr. Is Not Even Qualified to Work at Jamba Juice**\
-`Stephen Colbert reveled in an anecdote about Trump’s health secretary nominee blending baby chickens and mice to feed his pet hawks.`\
-https://nytimes.com/2025/01/30/arts/television/late-night-rfk-confirmation.html
+**‘Performing for an Audience of One’: Three Opinion Writers on Kennedy’s Confirmation Hearing**\
+`Opinion writers discuss issues from vaccines to Medicaid.`\
+https://nytimes.com/2025/01/30/opinion/rfk-jr-robert-kennedy-confirmation-hearing.html
 
-**Every Crash Has Tragic Lesson, Says Pilot Famed for Hudson Landing**\
-`Chesley B. Sullenberger III said though flying was safer than ever, Wednesday’s crash showed the need for constant vigilance and learning from past errors.`\
-https://nytimes.com/2025/01/30/us/plane-crash-potomac-lessons-sully.html
+**Americans Feel Isolated. Imani Perry Wants to Help Them Connect.**\
+`Perry took on misconceptions about the South (and won the National Book Award) with “South to America.” In “Black in Blues” she continues to challenge perceptions, using the color blue to examine notions of Blackness.`\
+https://nytimes.com/2025/01/30/books/booksupdate/imani-perry-black-in-blues.html
 
-**Kawhi Leonard understands why San Antonio boos him, shows Spurs he is still him**\
-`"It's just because of the player I am, you know what I mean, and what I've done here," Leonard said.`\
-https://nytimes.com/athletic/6099135/2025/01/30/clippers-spurs-kawhi-leonard/
+**New York City’s Noisiest Neighborhoods**\
+`Last year, New Yorkers called in more than 750,000 noise complaints. Incredibly, nearly 10 percent of them came from one area.`\
+https://nytimes.com/2025/01/30/realestate/new-york-citys-noisiest-neighborhoods.html
 
-**If Charges Are Dropped, Could Adams Campaign Get New Life?**\
-`The mayoral race has been thrown into uncertainty by  news that the Trump administration was considering dropping the charges against Eric Adams.`\
-https://nytimes.com/2025/01/30/nyregion/adams-trump-charges-.html
+**Bill Gates Isn’t Like Those Other Tech Billionaires**\
+`The Microsoft co-founder and philanthropist is taking a break from the future to examine his past — and mulling where the billionaires now fit in.`\
+https://nytimes.com/2025/01/30/technology/bill-gates-tech-billionaires-memoir.html
 
-**Inside the N.Y.C. Immigration Crackdown: Show of Force Yields 39 Arrests**\
-`ICE agents conducted roundups in New York City, and a day later, local authorities announced their own gang takedown. In immigrant neighborhoods, fear was palpable.`\
-https://nytimes.com/2025/01/30/nyregion/immigration-raids-nyc-ice.html
+**How Kash Patel’s Charity Aided Trump, and Patel Himself**\
+`The nominee for F.B.I. director made his nonprofit into a publicity machine, selling his children’s book, his clothing brand and his image as Donald Trump’s ultimate loyalist.`\
+https://nytimes.com/2025/01/30/us/politics/kash-patel-charity.html
 
