@@ -1,3 +1,11 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/01/30/books/review/7-new-books-we-recommend-this-week.html
+
+**SoftBank Said to Be in Talks to Invest as Much as $25 Billion in OpenAI**\
+`A new investment from the Japanese conglomerate would be separate from the $100 billion tied to a project announced at the White House last week.`\
+https://nytimes.com/2025/01/30/technology/softbank-openai-ai-investment.html
+
 **Patel’s loyalty to Trump has been a flashpoint in his confirmation hearing.**\
 `During President Trump’s first term, demanding personal loyalty didn’t always work; stocking top jobs with loyalists is the tack now. At the F.B.I., this entails bucking its institutional history.`\
 https://nytimes.com/live/2025/01/30/us/kash-patel-fbi-confirmation-hearing/patels-loyalty-to-trump-has-been-a-flashpoint-in-his-confirmation-hearing
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/business/economy/federal-debt-worries.html
 **‘Love Me’ Review: A Romance Six Billion Years in the Making**\
 `Kristen Stewart and Steven Yeun star in a marvelously inventive sci-fi romance that spans eons yet pokes at a simple question.`\
 https://nytimes.com/2025/01/30/movies/love-me-review.html
-
-**Brighton's Mitoma subject of €65m approach from Al Nassr**\
-`Saudi Pro League club Al Nassr have approached Brighton &amp; Hove Albion with a formal offer to recruit winger Kaoru Mitoma.`\
-https://nytimes.com/athletic/6100316/2025/01/30/kaoru-mitoma-al-nassr-brighton-transfer/
-
-**Trump Administration Considers Halting Congestion Pricing**\
-`The New York City tolling program began on Jan. 5 after defying obstacles for decades. A move to stop it would likely touch off a legal battle between the state and federal government.`\
-https://nytimes.com/2025/01/30/nyregion/nyc-trump-congestion-pricing.html
 
