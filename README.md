@@ -35,6 +35,6 @@ https://nytimes.com/2025/01/30/nyregion/trump-solar-power-renewable-energy.html
 https://nytimes.com/2025/01/30/reader-center/quincenearo-for-boys.html
 
 **Here’s the latest on the hostage and prisoner exchange.**\
-`By Aaron Boxerman`\
+`By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2025/01/30/world/israel-hamas-hostage-release-gaza/heres-the-latest-on-the-hostage-and-prisoner-exchange
 
