@@ -1,3 +1,7 @@
+**Jets to hire former NFL head coach Steve Wilks as defensive coordinator**\
+`Wilks brings a greater level of experience to first-time head coach Aaron Glenn.`\
+https://nytimes.com/athletic/6098474/2025/01/29/steve-wilks-jets-defensive-coordinator/
+
 **Why Trump Wants Kash Patel to Lead the F.B.I.**\
 `Kash Patel is an unconventional pick to run the F.B.I. Devlin Barrett, a reporter for The New York Times, explains why President Trump wants Patel to lead the organization.`\
 https://nytimes.com/video/us/politics/100000009954637/why-trump-wants-kash-patel-to-lead-the-fbi.html
