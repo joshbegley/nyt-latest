@@ -1,15 +1,3 @@
-**Kennedy Says He Will Not Keep Fees from HPV Vaccine Litigation**\
-`Senators had objected to the financial conflict posed by Robert F. Kennedy Jr.’s decision to retain a financial stake in lawsuits against a major drug company. It remains unclear whether any proceeds would be redirected.`\
-https://nytimes.com/2025/01/30/health/rfk-jr-hpv-vaccine-lawsuits-fees.html
-
-**An N.H.L. Team Quickly Moved to Utah. Renaming It Is Taking Longer.**\
-`The Utah Hockey Club is searching for a new name, but it’s skated into a marketplace crowded with trademarks.`\
-https://nytimes.com/2025/01/30/sports/nhl-utah-hockey-club-yeti.html
-
-**The Six Principles of Stupidity**\
-`I define stupidity as ignoring the question: What would happen next? By that definition, the Trump administration has produced volleys of it.`\
-https://nytimes.com/2025/01/30/opinion/trump-executive-orders.html
-
 **FCSB 0 Manchester United 2 - Has Mainoo found his role? Have United finally got boring?**\
 `Analysis of Manchester United's Europa League win`\
 https://nytimes.com/athletic/6094428/2025/01/30/fcsb-manchester-united-highlights/
@@ -37,4 +25,16 @@ https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-confirmation-hearing-in
 **Rebecca Yarros’ ‘Onyx Storm’ is the Fastest-Selling Adult Novel in 20 Years**\
 `The book, the third in a series, has sold 2.7 million copies in its first week, and provided yet another example of the romantasy genre’s staying power.`\
 https://nytimes.com/2025/01/30/books/rebecca-yarros-onyx-storm.html
+
+**Three New Bakeries for the Flakiest Croissants**\
+`Challah croissants, strawberry croissants, pig in a Bed (Stuy) croissants and more baked good goodness.`\
+https://nytimes.com/2025/01/30/dining/three-new-bakeries-for-the-flakiest-croissants.html
+
+**‘Asura’ Is a First-Class Domestic Drama**\
+`Written and directed by the Japanese filmmaker Hirokazu Kore-eda (“Shoplifters”), this Netflix series is so good it makes other shows look bad.`\
+https://nytimes.com/2025/01/30/arts/television/asura-netflix-hirokazu-kore-eda.html
+
+**Starbucks and Union Agree to Mediation in Quest for Contract**\
+`A labor agreement, covering more than 500 U.S. stores, would be the company’s first. Talks stalled last year over wages.`\
+https://nytimes.com/2025/01/30/business/starbucks-workers-united-union-mediation.html
 
