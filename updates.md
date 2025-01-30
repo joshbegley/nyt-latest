@@ -1,3 +1,19 @@
+**Fact-Checking Health Claims in Kennedy’s 2nd Day of Confirmation Hearings**\
+`Robert F. Kennedy Jr., the nominee to lead the Department of Health and Human Services, made disputed claims before the Senate Committee on Health, Education, Labor and Pensions.`\
+https://nytimes.com/2025/01/30/us/politics/rfk-jr-health-claims-fact-check-confirmation-hearing-day-2.html
+
+**MLS, Liga MX announce Leagues Cup overhaul: How new tournament will work**\
+`The revamp comes after the 2024 Leagues Cup dipped in popularity following a successful launch in 2023.`\
+https://nytimes.com/athletic/6099861/2025/01/30/leagues-cup-mls-liga-mx-format-how/
+
+**Barcelona are brilliant in attack but shaky at the back. How far can it take them?**\
+`Barca's 2-2 draw with Atalanta showed their Champions League campaign in microcosm. Flick has plenty of food for thought`\
+https://nytimes.com/athletic/6099692/2025/01/30/barcelona-champions-league-attack-defence/
+
+**Why Do Elon Musk and Mark Zuckerberg Begrudge Their Brains?**\
+`Blunt language and brute force are the currencies of the MAGA moment.`\
+https://nytimes.com/2025/01/30/opinion/musk-zuckerberg-trump.html
+
 **Even Progressives Now Worry About the Federal Debt**\
 `Long a focus of conservatives, the level of public borrowing is starting to concern left-leaning economists. Proposed remedies still differ radically.`\
 https://nytimes.com/2025/01/30/business/economy/federal-debt-worries.html
