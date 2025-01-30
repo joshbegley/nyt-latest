@@ -1,3 +1,11 @@
+**Even Progressives Now Worry About the Federal Debt**\
+`Long a focus of conservatives, the level of public borrowing is starting to concern left-leaning economists. Proposed remedies still differ radically.`\
+https://nytimes.com/2025/01/30/business/economy/federal-debt-worries.html
+
+**‘Love Me’ Review: A Romance Six Billion Years in the Making**\
+`Kristen Stewart and Steven Yeun star in a marvelously inventive sci-fi romance that spans eons yet pokes at a simple question.`\
+https://nytimes.com/2025/01/30/movies/love-me-review.html
+
 **Brighton's Mitoma subject of €65m approach from Al Nassr**\
 `Saudi Pro League club Al Nassr have approached Brighton &amp; Hove Albion with a formal offer to recruit winger Kaoru Mitoma.`\
 https://nytimes.com/athletic/6100316/2025/01/30/kaoru-mitoma-al-nassr-brighton-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/dispro
 **Should the Sharks trade Mikael Granlund? Which teams might be interested?**\
 `Granlund has been rejuvenated and could be a solid add for a contending team seeking center depth.`\
 https://nytimes.com/athletic/6099303/2025/01/30/sharks-granlund-trade-contract/
-
-**U.S. Funding Freeze Threatens Security at ISIS Camps in Syria**\
-`A halt in foreign aid may undermine American organizations’ support for forces that guard the two largest camps holding Islamic State members and their families.`\
-https://nytimes.com/2025/01/30/world/middleeast/us-funding-freeze-isis-camps-syria.html
-
-**Now in College, Luddite Teens Still Don’t Want Your Likes**\
-`Three years after starting a club meant to fight social media’s grip on young people, many original members are holding firm and gaining new converts.`\
-https://nytimes.com/2025/01/30/style/luddite-teens-reunion.html
 
