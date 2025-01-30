@@ -1,3 +1,19 @@
+**Marianne Faithfull, Chanteuse of Survival, Is Dead at 78**\
+`A feather-voiced pop star and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times but emerged triumphant.`\
+https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
+
+**Naming of New Syrian President Is Met With Some Wariness at Home**\
+`While some Syrians celebrated Ahmed al-Shara as head of state, others questioned how the decision to elevate the rebel leader was made.`\
+https://nytimes.com/2025/01/30/world/ahmed-al-shara-syria-president.html
+
+**Canada names Sidney Crosby captain for 4 Nations: Why he was the pick and notable omissions**\
+`Crosby also wore the "C" at the 2014 Sochi Games and 2016 World Cup. Canada is 45-5-0 in games when he has worn its sweater overall.`\
+https://nytimes.com/athletic/6100731/2025/01/30/sidney-crosby-captain-canada-4-nations/
+
+**U.S. airlines, including American, rely on smaller partners for many flights.**\
+`Some are independent companies that fly for major airlines. PSA Airlines Inc., the American Airlines subsidiary involved in the midair collision and crash in Washington, is owned by the airline.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/us-airlines-including-american-rely-on-smaller-partners-for-many-flights
+
 **Edward Snowden Emerges as Biggest Flashpoint in Gabbard Hearing**\
 `Tulsi Gabbard, the nominee for director of national intelligence, repeatedly avoided joining senators in calling Mr. Snowden a traitor.`\
 https://nytimes.com/2025/01/30/us/politics/tulsi-gabbard-edward-snowden.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/staffing-was-no
 **For Russians on the Crashed Jet, Skating Led to a Life Together**\
 `A Boston skating club confirmed that Yevgeniya Shishkova, 52, and Vadim Naumov, 55, were on the plane that crashed after colliding with a military helicopter.`\
 https://nytimes.com/2025/01/30/world/europe/russian-figure-skaters-dc-plane-crash-vadim-naumov-yevgeniya-shishkova.html
-
-**Two Russian Skating Stars Killed in Aircraft Crash Near Washington**\
-`Yevgeniya Shishkova and Vadim Naumov, coaches for the Skating Club of Boston and skating champions, were among those killed after an American Airlines plane crashed after colliding with a military helicopter.`\
-https://nytimes.com/video/us/100000009959376/figure-skating-potomac-river-plane-crash.html
-
-**Barcelona request Montjuic extension for Clasico amid Camp Nou delay**\
-`Barcelona have asked for an extension to play El Clasico at the Estadi Olimpic Lluis Companys with the stadium now unlikely to host a Rolling Stones concert on the same weekend as the La Liga match against Real Madrid.`\
-https://nytimes.com/athletic/6100192/2025/01/30/barcelona-montjuic-camp-nou-return/
-
-**Patel Repeatedly Dodges Question of Whether Biden Won the 2020 Election**\
-`Under three minutes of questioning from Senator Peter Welch, a Vermont Democrat, Kash Patel conceded only that Joe Biden was “certified” as the president.`\
-https://nytimes.com/2025/01/30/us/politics/patel-2020-election.html
-
-**Taylor Hall on Blackhawks: 'I was happy to be traded'**\
-`Hall's tone in Carolina is not bitter, but relieved — and more than anything, excited.`\
-https://nytimes.com/athletic/6100562/2025/01/30/taylor-hall-blackhawks-trade-hurricanes/
 
