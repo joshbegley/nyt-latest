@@ -1,3 +1,15 @@
+**Bears Senior Bowl mock draft: Grey Zabel among the standout linemen in Mobile**\
+`This exercise focused on players who stood out in Mobile and included a mock trade with the Seahawks just to make it more interesting.`\
+https://nytimes.com/athletic/6098660/2025/01/30/bears-senior-bowl-mock-draft/
+
+**Rising star Amen Thompson embraces 'how to be a dog' with Rockets**\
+`Thompson talks to Kelly Iko about his mindset, his impact and what he's learning from Dillon Brooks and Fred VanVleet. `\
+https://nytimes.com/athletic/6097869/2025/01/30/rockets-amen-thompson-stats-news-interview-nba/
+
+**Who's on UNC's coaching list? Duke's successful succession, X-factors for the game: Mailbag**\
+`With Duke and UNC trending in opposite directions, you had questions before the first meeting of the rivals this season on Saturday.`\
+https://nytimes.com/athletic/6098337/2025/01/30/duke-unc-rivalry-game-mailbag/
+
 **The crash occurred in one of the United States’ most complex airspaces.**\
 `In the claustrophobic skies around Washington D.C., domestic flights, military helicopters and other aircraft are often flying around each other in congested airspace.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/the-crash-occurred-in-one-of-the-united-states-most-complex-airspaces
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6097901/2025/01/30/flyers-canucks-jt-miller-trade/
 **ESPN's Adam Schefter: 'I love to feel the energy of something that is not familiar'**\
 `Schefter opens up to The Athletic's Andrew Marchand about his role, side work he loves doing and his future as a reporter.`\
 https://nytimes.com/athletic/6098091/2025/01/30/adam-schefter-espn-nfl-reporter-ben-johnson-chicago-bears-adrian-wojnarowski/
-
-**What does the Red Wings' surge mean for their trade deadline approach?**\
-`The Red Wings aren't shaping up as an obvious buyer or seller at this year's deadline. But can they use it to look ahead to next season?`\
-https://nytimes.com/athletic/6098205/2025/01/30/red-wings-trade-deadline-buy-sell-2025/
-
-**Will the Cubs continue to expand the Houston-to-Chicago pipeline?**\
-`So far this winter, the Cubs have added two key members of the Astros, Kyle Tucker and Ryan Pressly, both via trade with Houston.`\
-https://nytimes.com/athletic/6098290/2025/01/30/chicago-cubs-houston-astros-pipeline/
-
-**A Plane Crash Near Washington, and 3 Contentious Senate Hearings**\
-`Plus, the latest hostage and prisoner release.`\
-https://nytimes.com/2025/01/30/podcasts/the-headlines/plane-crash-kennedy-hostages.html
 
