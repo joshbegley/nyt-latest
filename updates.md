@@ -1,3 +1,15 @@
+**Senator rebukes Kennedy for comments on vaccine doses for Black people.**\
+`By Nina Agrawal`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/senator-rebukes-kennedy-for-comments-on-vaccine-doses-for-black-people
+
+**Trump’s First Two Weeks Have Thrown U.S. Climate Spending Into Chaos**\
+`Executive orders and announcements by President Trump have put billions of dollars in U.S. climate commitments into question.`\
+https://nytimes.com/2025/01/30/climate/trump-climage-change-united-states-spending.html
+
+**Marianne Faithfull, a Pop Star Turned Survivor, Is Dead at 78**\
+`A fresh-voiced singer and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times before emerging triumphant.`\
+https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
+
 **Rick Pitino urges UK fans to welcome back John Calipari with standing ovation**\
 `John Calipari and his Arkansas Razorbacks visit Kentucky, where he spent 15 seasons and won a national title, on Saturday. `\
 https://nytimes.com/athletic/6100853/2025/01/30/kentucky-mens-basketball-pitino-calipari/

@@ -1,3 +1,11 @@
+**Senator rebukes Kennedy for comments on vaccine doses for Black people.**\
+`By Nina Agrawal`\
+https://nytimes.com/live/2025/01/30/us/rfk-jr-confirmation-hearing-health/senator-rebukes-kennedy-for-comments-on-vaccine-doses-for-black-people
+
+**Trump’s First Two Weeks Have Thrown U.S. Climate Spending Into Chaos**\
+`Executive orders and announcements by President Trump have put billions of dollars in U.S. climate commitments into question.`\
+https://nytimes.com/2025/01/30/climate/trump-climage-change-united-states-spending.html
+
 **Rick Pitino urges UK fans to welcome back John Calipari with standing ovation**\
 `John Calipari and his Arkansas Razorbacks visit Kentucky, where he spent 15 seasons and won a national title, on Saturday. `\
 https://nytimes.com/athletic/6100853/2025/01/30/kentucky-mens-basketball-pitino-calipari/
@@ -26,15 +34,7 @@ https://nytimes.com/2025/01/30/us/politics/fbi-emails-trump-2020-election.html
 `The Fever will take on the Brazilian National Team at Carver-Hawkeye Arena on May 4.`\
 https://nytimes.com/athletic/6100614/2025/01/30/caitlin-clark-indiana-fever-exhibition-game-iowa/
 
-**Marianne Faithfull, Chanteuse of Survival, Is Dead at 78**\
-`A fresh-voiced pop star and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times before emerging triumphant.`\
+**Marianne Faithfull, a Pop Star Turned Survivor, Is Dead at 78**\
+`A fresh-voiced singer and Mick Jagger’s muse in the 1960s, she went on to experience more than her share of hard times before emerging triumphant.`\
 https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-dead.html
-
-**Naming of New Syrian President Is Met With Some Wariness at Home**\
-`While some Syrians celebrated Ahmed al-Shara as head of state, others questioned how the decision to elevate the rebel leader was made.`\
-https://nytimes.com/2025/01/30/world/asia/ahmed-al-shara-syria-president.html
-
-**Canada names Sidney Crosby captain for 4 Nations: Why he was the pick and notable omissions**\
-`Crosby also wore the "C" at the 2014 Sochi Games and 2016 World Cup. Canada is 45-5-0 in games when he has worn its sweater overall.`\
-https://nytimes.com/athletic/6100731/2025/01/30/sidney-crosby-captain-canada-4-nations/
 
