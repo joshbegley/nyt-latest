@@ -1,3 +1,7 @@
+**Word of the Day: limbic**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/30/learning/word-of-the-day-limbic.html
+
 **Uncertainty gripped the future of Duran and Watkins - Rogers stepped forward**\
 `Duran is heading for Al-Nassr, Arsenal have bid for Watkins - despite the build-up Villa held their nerve to claim place in round of 16`\
 https://nytimes.com/athletic/6096742/2025/01/30/duran-watkins-transfers-rogers-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098880/2025/01/30/wisconsin-nyzier-fourqurean-ncaa
 **43 Years Ago, a Plane Crash on the Potomac Left 78 People Dead**\
 `A Boeing 737 crashed into a bridge over the river on Jan. 13, 1982, just after taking off from Washington National Airport in a snowstorm.`\
 https://nytimes.com/2025/01/30/us/potomac-plane-crash-1980s.html
-
-**Are Amorim's methods working at Manchester United?**\
-`Amorim's United feels like a pencil sketch of a grander planned work - there are signs of progress but huge improvements are needed`\
-https://nytimes.com/athletic/6091063/2025/01/30/ruben-amorim-manchester-united-methods-working/
 
