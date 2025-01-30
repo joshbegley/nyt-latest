@@ -1,3 +1,11 @@
+**Far From Colombia, Trump’s Measures Caused Chaos at Airports**\
+`The Trump administration had added extra inspections for passengers from Colombia at U.S. ports of entry as part of a pressure campaign on the country’s president. The effects lingered into Wednesday.`\
+https://nytimes.com/2025/01/29/us/politics/trump-colombia-deportations-security.html
+
+**Reds add more playoff experience with acquisition of veteran lefty Taylor Rogers**\
+`The Reds have added five established major leaguers from outside the organization to their roster and four were in the postseason last year.`\
+https://nytimes.com/athletic/6098659/2025/01/29/reds-taylor-rogers-trade-analysis/
+
 **Jets to hire former NFL head coach Steve Wilks as defensive coordinator**\
 `Wilks brings a greater level of experience to first-time head coach Aaron Glenn.`\
 https://nytimes.com/athletic/6098474/2025/01/29/steve-wilks-jets-defensive-coordinator/
