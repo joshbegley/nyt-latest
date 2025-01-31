@@ -1,3 +1,11 @@
+**Nowhere to Hide From Trump’s Tariffs**\
+`President Trump’s long-promised trade war could start as soon as Saturday, leaving companies scrambling for a workaround for their global supply chains.`\
+https://nytimes.com/2025/01/31/business/dealbook/trumps-tariffs-colombia.html
+
+**La Liga wins El Clasico trademark court case against Madrid and Barcelona**\
+`La Liga has won a court battle over the commercial rights to the term &#8220;El Clasico&#8221; against Real Madrid and Barcelona, the two clubs who play in the fixture.`\
+https://nytimes.com/athletic/6102485/2025/01/31/el-clasico-trademark-barcelona-real-madrid/
+
 **Champions League play-off draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
 `Our writers assess the key talking points from the Champions League play-off draw`\
 https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
