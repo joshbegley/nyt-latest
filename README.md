@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2025/01/30/us/politics/burgum-senate-confirmatio
 
 **Marianne Faithfull Made an Art of Upending Expectations**\
 `The singer, who died on Thursday at 78, spent decades in the spotlight exercising a very specific and subversive power.`\
-https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-upending-expectations.html
+https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-singer-career.html
 
 **Comatose and Washed Up, 1,000 Endangered Sea Turtles Are Rescued in Florida**\
 `The reptiles, an endangered species, were incapacitated when the water temperature plummeted after a rare winter storm hit the Panhandle last week.`\
