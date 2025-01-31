@@ -1,3 +1,19 @@
+**Has Your Nonprofit Been Affected by Federal Funding Cuts? We Want to Hear From You.**\
+`The Trump administration is slashing federal grants. The New York Times wants to talk to nonprofits that have lost funding — or fear they might.`\
+https://nytimes.com/2025/01/31/us/politics/nonprofit-trump-callout.html
+
+**Health Officials Struggle to Comply With D.E.I. and Gender Orders**\
+`Vague federal directives have led to frantic action, and perhaps overreaction, before a Friday deadline.`\
+https://nytimes.com/2025/01/31/health/trump-cdc-dei-gender.html
+
+**Italian Judges Again Block Meloni’s Plan to Hold Asylum Seekers in Albania**\
+`It was the third ruling against the policy of Prime Minister Giorgia Meloni’s right-wing government by a court, which ruled against the transfers pending a review next month by an E.U. court.`\
+https://nytimes.com/2025/01/31/world/europe/italy-immigrants-albania.html
+
+**Tel indicates to Tottenham he intends to stay at Bayern Munich**\
+`Mathys Tel indicated to Tottenham Hotspur that he intends to stay at Bayern Munich and reassess his future in the summer, despite agreements being reached for him to join the north London club and interest from a host of others teams.`\
+https://nytimes.com/athletic/6103657/2025/01/31/mathys-tel-bayern-munich-future-tottenham/
+
 **The Army has identified two of the three helicopter pilots who died in the crash.**\
 `Citing her family’s request for privacy, the Army took the unusual step of not releasing the third aviator’s name.`\
 https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/the-army-has-identified-two-of-the-three-helicopter-pilots-who-died-in-the-crash
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6103703/2025/01/31/nhl-salary-cap-revenue-sharing/
 **How fans can make sense (or nonsense) out of the Giants trading Taylor Rogers**\
 `The reasoning behind the Rogers deal doesn't seem that straightforward. Here are a few theories why they made the move.`\
 https://nytimes.com/athletic/6101959/2025/01/31/sf-giants-taylor-rogers-trade-analysis/
-
-**Padres avoid arbitration with Michael King, slightly easing payroll crunch**\
-`The agreement extends the Padres’ streak of never having gone to an arbitration hearing in A.J. Preller’s tenure as general manager.`\
-https://nytimes.com/athletic/6103729/2025/01/31/san-diego-padres-michael-king-arbitration/
-
-**Meta Said to Explore Incorporating in a Different State**\
-`The owner of Facebook and Instagram is incorporated in Delaware, but is considering a change. Its corporate headquarters would remain in Silicon Valley, people with knowledge of the matter said.`\
-https://nytimes.com/2025/01/31/technology/meta-incorporation-delaware.html
-
-**Book Club: Let’s Talk About Alan Hollinghurst’s ‘Our Evenings’**\
-`This sweeping novel about the life, loves, struggles and triumphs of a queer English Burmese actor is the topic of our January book club discussion.`\
-https://nytimes.com/2025/01/31/books/review/book-club-lets-talk-about-alan-hollinghursts-our-evenings.html
-
-**The Retirement Maneuver More People Should Be Making**\
-`Roth conversion is often a smart choice. Don’t let the tax bill scare you.`\
-https://nytimes.com/2025/01/31/opinion/retirement-roth-conversion.html
 
