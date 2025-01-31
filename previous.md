@@ -1,4 +1,12 @@
-**NHL salary cap to jump from $88 million to $113.5 million over next 3 seasons**\
+**Remembering the Way It Was**\
+`Orlando Mayorquín, a California native who has been covering the wildfires, reflects on the Palisades that lives on only in memories.`\
+https://nytimes.com/2025/01/31/us/wildfires-palisades-memories.html
+
+**Brandon Hughes returning to Cubs on a minor-league deal: Sources (DON'T PUBLISH YET)**\
+`Back in 2022, Hughes posted a 3.12 ERA in 57 appearances for a rebuilding team, including eight saves.`\
+https://nytimes.com/athletic/6101345/2025/01/31/brandon-hughes-chicago-cubs-deal/
+
+**Salary cap to jump from $88 million to $113.5 million over next 3 seasons**\
 `The league told teams Friday that the cap will increase to $95.5 million in 2025-26, $104 million in 2026-27 and $113.5 million in 2027-28.`\
 https://nytimes.com/athletic/6103283/2025/01/31/nhl-salary-cap-rising/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6101303/2025/01/31/neymar-santos-transfer-return/
 **Where’s the Compassion? Trump’s Use of the Crash to Attack D.E.I.**\
 `Readers are horrified that the president used the tragedy to attack diversity policies. Also: Robert F. Kennedy Jr.’s nomination testimony.`\
 https://nytimes.com/2025/01/31/opinion/dc-crash-trump-diversity.html
-
-**Fantasy trends and hidden gems: Add Barrett Hayton with Dylan Guenther's return and more**\
-`Ahead of the NHL's 4 Nations Face-Off, Shayna Goldman discusses Barrett Hayton's upgrade with Dylan Guenther's return and much more. `\
-https://nytimes.com/athletic/6102011/2025/01/31/fantasy-trends-and-hidden-gems-week-18/
-
-**How are Connor McDavid and Leon Draisaitl trending ahead of the stretch run?**\
-`Draisaitl looks like a strong candidate for the Hart Trophy and McDavid is delivering a mountain of offence.`\
-https://nytimes.com/athletic/6099847/2025/01/31/oilers-mcdavid-draisaitl-minutes/
 

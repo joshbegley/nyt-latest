@@ -1,3 +1,15 @@
+**Remembering the Way It Was**\
+`Orlando Mayorquín, a California native who has been covering the wildfires, reflects on the Palisades that lives on only in memories.`\
+https://nytimes.com/2025/01/31/us/wildfires-palisades-memories.html
+
+**Brandon Hughes returning to Cubs on a minor-league deal: Sources (DON'T PUBLISH YET)**\
+`Back in 2022, Hughes posted a 3.12 ERA in 57 appearances for a rebuilding team, including eight saves.`\
+https://nytimes.com/athletic/6101345/2025/01/31/brandon-hughes-chicago-cubs-deal/
+
+**Salary cap to jump from $88 million to $113.5 million over next 3 seasons**\
+`The league told teams Friday that the cap will increase to $95.5 million in 2025-26, $104 million in 2026-27 and $113.5 million in 2027-28.`\
+https://nytimes.com/athletic/6103283/2025/01/31/nhl-salary-cap-rising/
+
 **NHL salary cap to jump from $88 million to $113.5 million over next 3 seasons**\
 `The league told teams Friday that the cap will increase to $95.5 million in 2025-26, $104 million in 2026-27 and $113.5 million in 2027-28.`\
 https://nytimes.com/athletic/6103283/2025/01/31/nhl-salary-cap-rising/
