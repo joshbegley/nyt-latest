@@ -1,3 +1,7 @@
+**‘Crash, Crash, Crash!’: Audio Reveals History of Close Calls at Reagan Airport**\
+`As investigators continue to try to determine the cause of Wednesday’s plane collision in Washington, D.C., control tower audio from Reagan National Airport reveals a history of safety issues, airspace congestion and near misses.`\
+https://nytimes.com/video/us/100000009959220/dc-plane-crash-reagan-airport-safety-issues.html
+
 **Brighton sign defender Cashin from Derby**\
 `Brighton &amp; Hove Albion have completed the signing of defender Eiran Cashin from Derby County.`\
 https://nytimes.com/athletic/6104157/2025/01/31/eiran-cashin-brighton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/upshot/sanctuary-cities-trump-transportation-fund
 **With Trump Unbound, It’s a Tale of Two Strategies for Democrats in Congress**\
 `President Trump’s blizzard of actions elicited two very different responses from Senate and House Democrats — one media-saturating and one restrained — reflecting a debate on how best to respond.`\
 https://nytimes.com/2025/01/31/us/politics/trump-democrats-response.html
-
-**F.A.A. Restricts Helicopter Flights in Reagan National Airspace**\
-`The agency’s decision, made shortly after Wednesday’s deadly collision, was framed by the transportation secretary as an important step toward enhancing safety.`\
-https://nytimes.com/2025/01/31/business/faa-restricts-helicopter-flights-in-reagan-national-airspace.html
 
