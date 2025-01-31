@@ -1,3 +1,11 @@
+**New York Doctor Indicted in Louisiana for Sending Abortion Pills There**\
+`The case opens a new front in the battle between states that ban abortion and states that support providing abortion anywhere in the country.`\
+https://nytimes.com/2025/01/31/health/abortion-louisiana-new-york-prosecution-shield-law.html
+
+**Settlement reached in suit against NCAA on NIL recruiting inducements**\
+`Terms of the agreement were not released and will not impact the ongoing House settlement.`\
+https://nytimes.com/athletic/6104215/2025/01/31/settlement-tennessee-virginia-nil-ncaa/
+
 **285 of 313 Air Traffic Control Facilities Are Understaffed**\
 `Persistent staff shortages have raised safety concerns. At many facilities, staffing is so low that at least a quarter of the work force is missing.`\
 https://nytimes.com/2025/01/31/business/air-traffic-controllers-understaffed.html
