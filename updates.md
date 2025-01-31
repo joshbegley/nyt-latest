@@ -1,3 +1,11 @@
+**Why Liverpool and Kerkez would make sense as a summer transfer**\
+`Arne Slot needs more options at left-back and the Bournemouth youngster seems to tick every box`\
+https://nytimes.com/athletic/6098768/2025/01/31/liverpool-milos-kerkez-transfer/
+
+**Celebrating five years of Jarrod Bowen and Tomas Soucek: Two modern-day West Ham heroes**\
+`West Ham's electric forward and midfield force of nature both celebrated their five-year anniversaries at the club this week`\
+https://nytimes.com/athletic/6096483/2025/01/31/jarrod-bowen-tomas-soucek-west-ham/
+
 **Do Forest need a Plan B?**\
 `After the 5-0 defeat at Bournemouth, it could be argued that Forest need to tweak their approach to secure European football next season`\
 https://nytimes.com/athletic/6099998/2025/01/31/nottingha-forest-plan-b-counter-attack/
