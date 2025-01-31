@@ -1,3 +1,11 @@
+**The Athletic FC: El Ghazi on sacking for social media post, City face Real Madrid in CL**\
+`Today's Athletic FC newsletter...`\
+https://nytimes.com/athletic/6102495/2025/01/31/el-ghazi-man-city-real-madrid-champions-league/
+
+**Champions League play-offs draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
+`Our writers assess the key talking points from the Champions League play-off draw`\
+https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
+
 **Nowhere to Hide From Trump’s Tariffs**\
 `President Trump’s long-promised trade war could start as soon as Saturday, leaving companies scrambling for a workaround for their global supply chains.`\
 https://nytimes.com/2025/01/31/business/dealbook/trumps-tariffs-colombia.html
