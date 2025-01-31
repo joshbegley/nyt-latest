@@ -1,3 +1,15 @@
+**The Skater Who Stuck a Triple Axel Before Boarding the Flight**\
+`Cory Haynos was among several budding figure-skating stars who died in the plane crash near Reagan National Airport.`\
+https://nytimes.com/2025/01/30/us/cory-haynos-figure-skater-plane-crash.html
+
+**Appeals Court Refuses to Reinstate Confession in U.S.S. Cole Case**\
+`The decision was a blow to prosecutors pursuing the longest-running death-penalty case in the military commission system.`\
+https://nytimes.com/2025/01/30/us/politics/appeal-confession-uss-cole.html
+
+**Senators owner responds to fan backlash after Quebec City announcement**\
+`Andlauer says he didn't realize how much "scar tissue" had been left with the fan base because of relocation talk in previous years.`\
+https://nytimes.com/athletic/6100656/2025/01/30/ottawa-senators-quebec-city-michael-andlauer/
+
 **Helicopter in Crash Near Washington Might Have Been Flying Higher Than Approved**\
 `The Army Black Hawk also might have been outside of its flight path when it collided with a commercial passenger jet at Reagan National Airport on Wednesday night.`\
 https://nytimes.com/2025/01/30/us/army-helicopter-dc-plane-crash.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6101815/2025/01/30/jorge-polanco-mariners-astros/
 **Listen to the Air Traffic Control Audio in the Moments Around the Collision**\
 `The audio indicates that air traffic controllers tried to warn the Army helicopter about a nearby Canadair Regional Jet.`\
 https://nytimes.com/2025/01/30/us/air-traffic-audio-dc-plane-crash.html
-
-**Guatemalan Man Pleads Guilty to 2 Murder Counts in Las Vegas Stabbing Spree**\
-`Yoni Barrios, an unauthorized immigrant whose unprovoked attack on eight people in 2022 drew attention from Donald J. Trump, will serve life in prison without the possibility of parole.`\
-https://nytimes.com/2025/01/30/us/las-vegas-stabbings-guilty-plea.html
-
-**BBC Report Describes ‘Unacceptable Behavior’ by Russell Brand**\
-`An internal investigation by the broadcaster examined eight complaints involving Brand when he was a radio presenter.`\
-https://nytimes.com/2025/01/30/arts/russell-brand-bbc-investigation.html
-
-**How helicopters, planes and air traffic controllers navigate tight D.C. airspace.**\
-`More than 800 flights take off or land daily at Reagan National Airport, and scores of helicopters pass through the same area.`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/reagan-airport-plane-helicopter-air-traffic
 
