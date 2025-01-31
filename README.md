@@ -1,5 +1,5 @@
 **Gavi signs new Barcelona contract until 2030**\
-`Barcelona midfielder Gavi has signed a new contract until 20230.`\
+`Barcelona midfielder Gavi has signed a new contract until 2030.`\
 https://nytimes.com/athletic/6099457/2025/01/31/barcelona-gavi-new-contract-update/
 
 **The Fed’s Preferred Inflation Measure Ticked Up Slightly in December**\
