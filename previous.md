@@ -1,4 +1,8 @@
-**NHL trade grades: Flames bet on upside, Flyers hope for short-term Kuzmenko spark**\
+**Ricardo Pepi is an injury doubt for Champions League, Nations League**\
+`Pepi's knee issue presents injury blow for PSV and the USMNT`\
+https://nytimes.com/athletic/6102213/2025/01/31/ricardo-pepi-injury-psv-liverpool/
+
+**NHL trade grades: Flames bet on upside, Flyers hope for short-term Andrei Kuzmenko spark**\
 `The Flames made a cheap upgrade in their pursuit of a playoff spot, but will Kuzmenko contribute for Philadelphia?`\
 https://nytimes.com/athletic/6102209/2025/01/31/nhl-trade-grades-flames-flyers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100798/2025/01/31/leeds-have-allowed-far-fewer-sho
 **Is Ruud van Nistelrooy finally making positive progress at Leicester?**\
 `The numbers suggest change is happening`\
 https://nytimes.com/athletic/6100040/2025/01/31/is-ruud-van-nistelrooy-finally-making-positive-progress-at-leicester/
-
-**Until Saturday: Playoff or bust for Brian Kelly?**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6102080/2025/01/31/kelly-lsu-knowles-penn-state-until-saturday/
 

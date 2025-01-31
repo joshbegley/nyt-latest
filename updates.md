@@ -1,3 +1,11 @@
+**Ricardo Pepi is an injury doubt for Champions League, Nations League**\
+`Pepi's knee issue presents injury blow for PSV and the USMNT`\
+https://nytimes.com/athletic/6102213/2025/01/31/ricardo-pepi-injury-psv-liverpool/
+
+**NHL trade grades: Flames bet on upside, Flyers hope for short-term Andrei Kuzmenko spark**\
+`The Flames made a cheap upgrade in their pursuit of a playoff spot, but will Kuzmenko contribute for Philadelphia?`\
+https://nytimes.com/athletic/6102209/2025/01/31/nhl-trade-grades-flames-flyers/
+
 **NHL trade grades: Flames bet on upside, Flyers hope for short-term Kuzmenko spark**\
 `The Flames made a cheap upgrade in their pursuit of a playoff spot, but will Kuzmenko contribute for Philadelphia?`\
 https://nytimes.com/athletic/6102209/2025/01/31/nhl-trade-grades-flames-flyers/
