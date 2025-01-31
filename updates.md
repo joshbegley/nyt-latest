@@ -1,3 +1,7 @@
+**How helicopters, planes and air traffic controllers navigate tight D.C. airspace.**\
+`More than 800 flights take off or land daily at Reagan National Airport, and scores of helicopters pass through the same area.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/reagan-airport-plane-helicopter-air-traffic
+
 **How Helicopters, Planes and Air Traffic Controllers Navigate Tight D.C. Airspace**\
 `More than 800 flights take off or land daily at Reagan National Airport, and scores of helicopters pass through the same area.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/reagan-airport-plane-helicopter-air-traffic
