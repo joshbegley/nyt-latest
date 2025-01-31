@@ -1,3 +1,23 @@
+**Talented but temperamental: Duran's Villa spell has been eventful - €77m was too good to refuse**\
+`Villa manager Emery was heavily invested in making the Colombia a world-class talent - but a transfer had felt inevitable for months`\
+https://nytimes.com/athletic/6099276/2025/01/31/jhon-duran-aston-villa-saudi-transfer/
+
+**Duran completes move from Villa to Al Nassr**\
+`Jhon Duran has completed his move from Aston Villa to Saudi Pro League side Al Nassr.`\
+https://nytimes.com/athletic/6099208/2025/01/31/jhon-duran-al-nassr-aston-villa-transfer/
+
+**Sundance Gives Top Honor to ‘Atropia,’ a Comedy About Playing War**\
+`Like many of the independent films that premiered at this muted edition of Sundance, “Atropia” has not yet sold to a distributor.`\
+https://nytimes.com/2025/01/31/movies/sundance-film-festival-winners-list.html
+
+**Pistons’ Stewart suspended 1 game after accruing 6 flagrant foul points**\
+`The Pistons will be without Stewart for Friday evening's matchup against the Dallas Mavericks.`\
+https://nytimes.com/athletic/6103397/2025/01/31/pistons-isaiah-stewart-suspended-flagrant-fouls/
+
+**The Weeknd’s Gloomy but Glittering Pop, and 9 More New Songs**\
+`Hear tracks by Alison Krauss & Union Station, Sleigh Bells, Jupiter & Okwess and others.`\
+https://nytimes.com/2025/01/31/arts/music/playlist-weeknd-jennie-dominic-fike.html
+
 **The Climate Fix: Africa’s Solar Revolution**\
 `In announcing a $35 billion program to bring inexpensive solar power to some 300 million Africans, officials left out two words: climate change.`\
 https://nytimes.com/2025/01/31/climate/the-climate-fix-africas-solar-revolution.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/01/31/business/media/chuck-todd-is-leaving-nbc.html
 **At Sundance, a Sense of Uprooting Onscreen and Off**\
 `As it searches for a new home beyond Park City, Utah, the film festival showcases a neo-western, a promising comedic debut and two unsettling documentaries.`\
 https://nytimes.com/2025/01/31/movies/sundance-film-festival-alabama-solution-blknws.html
-
-**The Secret to Summery Desserts in Winter**\
-`Two easy jam-filled desserts satisfy the craving for bright, bold berries when they’re far from their peak.`\
-https://nytimes.com/2025/01/31/dining/winter-jam-dessert-recipes.html
-
-**Flamengo say Everton have agreed loan deal for midfielder Alcaraz**\
-`The deal, Flamengo say, includes an option to buy if certain conditions are met.`\
-https://nytimes.com/athletic/6103411/2025/01/31/carlos-alcaraz-everton-transfer-flamengo/
-
-**FPL: Double Gameweek 25 announced - Who will play twice? What chip should I use?**\
-`Unexpected fixture announcements mean we're set for back-to-back double gameweeks - and that should change your chip strategy`\
-https://nytimes.com/athletic/6102754/2025/01/31/fantasy-premier-league-double-gameweek-25-tips/
-
-**After Fleeing Violence in Guatemala, Their Child Was Killed in a U.S. School**\
-`A week after a 16-year-old was shot at her high school in Nashville, her parents made the wrenching decision to send her body back to Guatemala.`\
-https://nytimes.com/2025/01/31/us/politics/gun-violence-immigrant-family-nashville.html
-
-**A Trump envoy will meet Venezuela’s Maduro, and Rubio heads to the Panama Canal.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2025/01/30/us/president-trump-news/a-trump-envoy-will-meet-venezuelas-maduro-and-rubio-heads-to-the-panama-canal
 
