@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-c
 `The broadcaster had declined previous requests by the Trump campaign to release the unedited transcript of an interview with Vice President Kamala Harris.`\
 https://nytimes.com/2025/01/31/business/media/trump-harris-60-minutes-fcc.html
 
-**WNBA team in Philadelphia? 76ers ownership group submits official bid**\
+**WNBA team in Philadelphia, Houston? Bids submitted for expansion franchises**\
 `The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
 https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
 
