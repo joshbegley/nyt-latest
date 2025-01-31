@@ -1,3 +1,15 @@
+**Former Liverpool captain Henderson to stay at Ajax despite Monaco interest**\
+`Former Liverpool captain Jordan Henderson will stay at Ajax despite an approach from Monaco.`\
+https://nytimes.com/athletic/6102367/2025/01/31/henderson-monaco-ajax-transfer-update-liverpool/
+
+**Trump Administration Plans to Scrutinize F.B.I. Agents for Possible Purge**\
+`The move to enact the plan comes just one day after Kash Patel, President Trump’s pick to lead the F.B.I., testified before Congress that the bureau would not be targeted for political reasons.`\
+https://nytimes.com/2025/01/31/us/politics/trump-fbi-agents.html
+
+**Heavy Rain and Floods Sweep Hawaii’s Big Island and Maui**\
+`Flash flood warnings and several inches of rain fell across parts of the chain of islands as part of a storm system moving southeast.`\
+https://nytimes.com/2025/01/31/us/maui-rain-flooding-hawaii.html
+
 **How fans can make sense (or nonsense) out of the Giants trading Taylor Rogers**\
 `The reasoning behind the Rogers deal doesn't seem that straightforward. Here are a few theories why they made the move.`\
 https://nytimes.com/athletic/6101959/2025/01/31/sf-giants-taylor-rogers-trade-analysis/
