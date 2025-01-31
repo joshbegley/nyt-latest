@@ -1,3 +1,15 @@
+**Navy SEAL Whose Lacrosse Workout Left Tufts Players Hospitalized Is Called Unqualified**\
+`The session, which left nine players hospitalized, was run by a person who lacked credentials, a review commissioned by the university found.`\
+https://nytimes.com/2025/01/31/us/tufts-lacrosse-navy-seal.html
+
+**Federal Judge Orders White House to Keep Money Flowing to 22 States**\
+`A court in Rhode Island issued a temporary restraining order to block Trump’s directive to defund programs he considers to be “woke.”`\
+https://nytimes.com/2025/01/31/us/trump-freeze-blocked.html
+
+**Mets agree with infielder Nick Madrigal on 1-year deal: Sources**\
+`Madrigal is set to compete for a role along with Brett Baty, Luisangel Acuña and Ronny Mauricio, among others.`\
+https://nytimes.com/athletic/6104125/2025/01/31/mets-nick-madrigal-contract/
+
 **Trump Raises New Threat to Sanctuary Cities: Blocking Transportation Dollars**\
 `A new order revives an old battle about how much an administration is allowed to coerce cities and states by withholding money.`\
 https://nytimes.com/2025/01/31/upshot/sanctuary-cities-trump-transportation-funds.html

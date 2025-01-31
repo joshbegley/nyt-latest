@@ -1,3 +1,15 @@
+**Navy SEAL Whose Lacrosse Workout Left Tufts Players Hospitalized Is Called Unqualified**\
+`The session, which left nine players hospitalized, was run by a person who lacked credentials, a review commissioned by the university found.`\
+https://nytimes.com/2025/01/31/us/tufts-lacrosse-navy-seal.html
+
+**Federal Judge Orders White House to Keep Money Flowing to 22 States**\
+`A court in Rhode Island issued a temporary restraining order to block Trump’s directive to defund programs he considers to be “woke.”`\
+https://nytimes.com/2025/01/31/us/trump-freeze-blocked.html
+
+**Mets agree with infielder Nick Madrigal on 1-year deal: Sources**\
+`Madrigal is set to compete for a role along with Brett Baty, Luisangel Acuña and Ronny Mauricio, among others.`\
+https://nytimes.com/athletic/6104125/2025/01/31/mets-nick-madrigal-contract/
+
 **Trump Raises New Threat to Sanctuary Cities: Blocking Transportation Dollars**\
 `A new order revives an old battle about how much an administration is allowed to coerce cities and states by withholding money.`\
 https://nytimes.com/2025/01/31/upshot/sanctuary-cities-trump-transportation-funds.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6103967/2025/01/31/jets-tanner-engstrand-offensive-
 **Army Withholds Identity of Helicopter Pilot Killed in Crash**\
 `The names of two male crew members were released, but the family of the third aviator requested privacy.`\
 https://nytimes.com/2025/01/31/us/politics/army-helicopter-crew.html
-
-**U.S. Considers Sending Israel 24,000 Assault Rifles Held Back Under Biden**\
-`Democratic lawmakers had expressed concerns to Secretary of State Antony J. Blinken about the rifles possibly going to settler militias or being misused by the police.`\
-https://nytimes.com/2025/01/31/us/politics/us-israel-assault-rifles.html
-
-**Stars' Miro Heiskanen to see specialist but expected back by playoffs**\
-`Stars GM Jim Nill on the star defenseman: "As we sit here today, I anticipate him being available sometime during the regular season."`\
-https://nytimes.com/athletic/6104087/2025/01/31/stars-miro-heiskanen-injury/
-
-**Federal Workers Ordered to Remove Gender Identity From Email Signatures**\
-`The instructions to employees aimed to fulfill orders from the Trump administration, which told agency heads to remove all references to gender identity from official materials by 5 p.m. Friday.`\
-https://nytimes.com/2025/01/31/us/politics/trump-pronouns.html
 
