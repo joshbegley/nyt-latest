@@ -1,3 +1,15 @@
+**Helicopter in Crash Near Washington Might Have Been Flying Higher Than Approved**\
+`The Army Black Hawk also might have been outside of its flight path when it collided with a commercial passenger jet at Reagan National Airport on Wednesday night.`\
+https://nytimes.com/2025/01/30/us/army-helicopter-dc-plane-crash.html
+
+**President Trump’s blaming of diversity programs for the crash has sparked a backlash.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/president-trumps-blaming-of-diversity-programs-for-the-crash-has-sparked-a-backlash
+
+**How a New Law Makes Deportations Easier**\
+`The Laken Riley Act is the first law President Trump has signed since coming into office. Zolan Kanno-Youngs, a New York Times White House correspondent, explains how it will make deportations easier.`\
+https://nytimes.com/video/us/politics/100000009961242/how-a-law-makes-deportations-easier.html
+
 **Takeaways From Day 2 of Kennedy’s Confirmation Hearings**\
 `Robert F. Kennedy, President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
 https://nytimes.com/2025/01/30/us/politics/rfk-jr-confirmation-takeaways.html
