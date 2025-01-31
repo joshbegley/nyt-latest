@@ -1,3 +1,11 @@
+**Amorim: Garnacho has 'changed in everything' since being dropped**\
+`Alejandro Garnacho has &#8220;changed in everything&#8221; since being dropped for Manchester United&#8217;s derby victory last month, says Ruben Amorim, who added he wants academy graduates like him to play a part in the club&#8217;s future.`\
+https://nytimes.com/athletic/6102456/2025/01/31/alejandro-garnacho-man-utd-amorim/
+
+**That Art Piece on Your Coffee Table? It’ll Get You High.**\
+`Cannabis paraphernalia is joining the world of home décor. Here are some of the most interesting new designs and designers.`\
+https://nytimes.com/2025/01/31/realestate/cannabis-marijuana-decor-design.html
+
 **Harper: Bring the stars back to the NBA dunk contest**\
 `Are you excited about the possibility of a Mac McClung three-point? Didn't think so.`\
 https://nytimes.com/athletic/6098000/2025/01/31/nba-dunk-contest-disappointing-mac-mcclung/
