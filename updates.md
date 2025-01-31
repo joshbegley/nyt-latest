@@ -1,3 +1,7 @@
+**This Josephine Baker Oral History Has Never Been Published Here. Now We Know Why.**\
+`“Fearless and Free,” recorded between 1926 and 1949, is full of heroism, glamour, righteous anger — and things you wish you could unsee.`\
+https://nytimes.com/2025/01/31/books/review/josephine-baker-fearless-and-free.html
+
 **N.T.S.B. Investigates Washington Plane Crash: What to Know**\
 `The National Transportation Safety Board is an independent federal agency tasked with examining serious transport-related accidents.`\
 https://nytimes.com/2025/01/31/us/washington-dc-plane-crash-ntsb-investigation.html

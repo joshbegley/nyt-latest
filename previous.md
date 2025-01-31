@@ -1,3 +1,7 @@
+**This Josephine Baker Oral History Has Never Been Published Here. Now We Know Why.**\
+`“Fearless and Free,” recorded between 1926 and 1949, is full of heroism, glamour, righteous anger — and things you wish you could unsee.`\
+https://nytimes.com/2025/01/31/books/review/josephine-baker-fearless-and-free.html
+
 **N.T.S.B. Investigates Washington Plane Crash: What to Know**\
 `The National Transportation Safety Board is an independent federal agency tasked with examining serious transport-related accidents.`\
 https://nytimes.com/2025/01/31/us/washington-dc-plane-crash-ntsb-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099457/2025/01/31/barcelona-gavi-new-contract-upda
 **The Fed’s Preferred Inflation Measure Ticked Up Slightly in December**\
 `The central bank needs to see further progress on inflation or weakness in the labor market to resume interest rate cuts.`\
 https://nytimes.com/2025/01/31/business/fed-inflation-economy.html
-
-**Amorim: Garnacho has 'changed in everything' since being dropped**\
-`Alejandro Garnacho has &#8220;changed in everything&#8221; since being dropped for Manchester United&#8217;s derby victory last month, says Ruben Amorim, who added he wants academy graduates like him to play a part in the club&#8217;s future.`\
-https://nytimes.com/athletic/6102456/2025/01/31/alejandro-garnacho-man-utd-amorim/
 
