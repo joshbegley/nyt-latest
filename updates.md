@@ -1,3 +1,11 @@
+**Marianne Faithfull Made an Art of Upending Expectations**\
+`The singer, who died on Thursday at 78, spent decades in the spotlight exercising a very specific and subversive power.`\
+https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-upending-expectations.html
+
+**Comatose and Washed Up, 1,000 Endangered Sea Turtles Are Rescued in Florida**\
+`The reptiles, an endangered species, were incapacitated when the water temperature plummeted after a rare winter storm hit the Panhandle last week.`\
+https://nytimes.com/2025/01/30/us/florida-sea-turtle-rescues.html
+
 **For the Army, the crash is the latest in a string of helicopter accidents.**\
 `Over the past two years, at least 18 people have died in incidents. The Army has cited a combination of factors, including lack of experience and equipment failures.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/for-the-army-the-crash-is-the-latest-in-a-string-of-helicopter-accidents
