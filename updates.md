@@ -1,3 +1,7 @@
+**Word of the Day: obsolescence**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/31/learning/word-of-the-day-obsolescence.html
+
 **Is Kobbie Mainoo better suited to thrive as a Manchester United No 10?**\
 `Ruben Amorim suggested the youngster had been 'struggling a lot defending as a midfielder' and thrust him into a more advanced role at FCSB`\
 https://nytimes.com/athletic/6102075/2025/01/31/mainoo-manchester-united-amorim-europa-fcsb-10/

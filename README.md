@@ -1,3 +1,7 @@
+**Anwar El Ghazi - the footballer sacked over Israel-Gaza social media posts who won in court**\
+`El Ghazi is rebuilding his career after winning a court case over his sacking by Mainz for comments he wrote about the Israel-Gaza conflict`\
+https://nytimes.com/athletic/6006016/2025/01/31/anwar-el-ghazi-interview/
+
 **Word of the Day: obsolescence**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/31/learning/word-of-the-day-obsolescence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6098768/2025/01/31/liverpool-milos-kerkez-transfer/
 **Celebrating five years of Jarrod Bowen and Tomas Soucek: Two modern-day West Ham heroes**\
 `West Ham's electric forward and midfield force of nature both celebrated their five-year anniversaries at the club this week`\
 https://nytimes.com/athletic/6096483/2025/01/31/jarrod-bowen-tomas-soucek-west-ham/
-
-**Do Forest need a Plan B?**\
-`After the 5-0 defeat at Bournemouth, it could be argued that Forest need to tweak their approach to secure European football next season`\
-https://nytimes.com/athletic/6099998/2025/01/31/nottingha-forest-plan-b-counter-attack/
 
