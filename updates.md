@@ -1,3 +1,15 @@
+**Vanderbilt's Mikayla Blakes breaks freshman record with 53-point outing**\
+`The total is also the highest single-game mark for any player in SEC history.`\
+https://nytimes.com/athletic/6101939/2025/01/30/mikayla-blakes-vanderbilt-womens-basketball-freshman-scoring-record/
+
+**Wanders Around a Terminal**\
+`Adrian Johnson opens our solving weekend.`\
+https://nytimes.com/2025/01/30/crosswords/daily-puzzle-2025-01-31.html
+
+**Marc-Andre Fleury delivers vintage performance on special night: 3 Wild takeaways**\
+`The future Hall of Famer earned his 76th career shutout playing in his final game at the Bell Centre.`\
+https://nytimes.com/athletic/6101872/2025/01/30/wild-marc-andre-fleury-canadiens/
+
 **Takeaways From Day 2 of Kennedy’s Confirmation Hearings**\
 `Robert F. Kennedy Jr., President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
 https://nytimes.com/2025/01/30/us/politics/rfk-jr-confirmation-takeaways.html
