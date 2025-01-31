@@ -1,3 +1,11 @@
+**Barry Goldberg, Who Backed Dylan When He Went Electric, Dies at 83**\
+`He played keyboards with a host of rock luminaries, but perhaps his most memorable performance was as part of the band that shocked the 1965 Newport Folk Festival.`\
+https://nytimes.com/2025/01/31/arts/music/barry-goldberg-dead.html
+
+**What the salary cap increase could mean for Bedard's next Blackhawks deal**\
+`Bedard's new contract will begin in 2026-27, when the salary cap will be $104 million. How will the negotiatons be handled on each side?`\
+https://nytimes.com/athletic/6103895/2025/01/31/nhl-salary-cap-connor-bedard-contract/
+
 **What to Know About Collision Avoidance Systems on Planes**\
 `Commercial planes have technology that helps prevent crashes — but it has limitations, which was highlighted by the accident in Washington.`\
 https://nytimes.com/2025/01/31/business/washington-crash-tcas.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/us/maui-rain-flooding-hawaii.html
 **Has Your Nonprofit Been Affected by Federal Funding Cuts? We Want to Hear From You.**\
 `The Trump administration is slashing federal grants. The New York Times wants to talk to nonprofits that have lost funding — or fear they might.`\
 https://nytimes.com/2025/01/31/us/politics/nonprofit-trump-callout.html
-
-**Health Officials Struggle to Comply With D.E.I. and Gender Orders**\
-`Vague federal directives have led to frantic action, and perhaps overreaction, before a Friday deadline.`\
-https://nytimes.com/2025/01/31/health/trump-cdc-dei-gender.html
-
-**Italian Judges Again Block Meloni’s Plan to Hold Asylum Seekers in Albania**\
-`It was the third ruling against the policy of Prime Minister Giorgia Meloni’s right-wing government by a court, which ruled against the transfers pending a review next month by an E.U. court.`\
-https://nytimes.com/2025/01/31/world/europe/italy-immigrants-albania.html
 
