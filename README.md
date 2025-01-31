@@ -1,3 +1,7 @@
+**Prosecutors push back on Ippei Mizuhara leniency push in Ohtani fraud case**\
+`Prosecutors stayed firm on their request for a five-year sentence for Mizuhara, who is asking for 18 months in prison. `\
+https://nytimes.com/athletic/6102050/2025/01/30/ippei-mizuhara-fraud-shohei-ohtani-leniency/
+
 **Dick Button, Olympic legend and figure skating commentator, dies at 95**\
 `Two-time Olympic gold medalist and five-time world champ was also an influential broadcaster for more than five decades.`\
 https://nytimes.com/athletic/6101898/2025/01/30/dick-button-olympic-legend-and-figure-skating-commentator-dies-at-95/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/us/cory-haynos-figure-skater-plane-crash.html
 **Appeals Court Refuses to Reinstate Confession in U.S.S. Cole Case**\
 `The decision was a blow to prosecutors pursuing the longest-running death-penalty case in the military commission system.`\
 https://nytimes.com/2025/01/30/us/politics/appeal-confession-uss-cole.html
-
-**Senators owner responds to fan backlash after Quebec City announcement**\
-`Andlauer says he didn't realize how much "scar tissue" had been left with the fan base because of relocation talk in previous years.`\
-https://nytimes.com/athletic/6100656/2025/01/30/ottawa-senators-quebec-city-michael-andlauer/
 
