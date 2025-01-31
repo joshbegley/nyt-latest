@@ -1,4 +1,4 @@
-**The treasury official who oversees payments resigns suddenly.**\
+**The Treasury official who oversees payments resigns suddenly.**\
 `Elon Musk has deployed engineers to Treasury to find a way to shut down payments unilaterally.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/the-treasury-official-who-oversees-payments-resigns-suddenly
 
@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6102949/2025/01/31/sam-smith-wrexham-record-transfe
 
 **The World Economy Awaits Trump’s First Round of Tariffs**\
 `Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
-https://nytimes.com/2025/01/31/business/economy/trump-tariffs.html
+https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-tariffs
 
 **Gaza’s Border Crossing With Egypt Reopens to Let Sick and Wounded Leave**\
 `The Rafah crossing has been shuttered for over eight months before as part of the cease-fire agreement between Israel and Hamas.`\
