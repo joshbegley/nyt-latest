@@ -1,3 +1,19 @@
+**German Opposition Gambles With Far-Right on Immigration, and Loses**\
+`Friedrich Merz and his Christian Democrats broke a political taboo by working with the hard-right Alternative for Germany to toughen rules on immigration. It did not pay off.`\
+https://nytimes.com/2025/01/31/world/europe/germany-friedrich-merz-immigration.html
+
+**Scoop City: Five what-ifs for 2025**\
+`Inside: Three great stories to read, two prop bets and some big what-ifs for 2025.`\
+https://nytimes.com/athletic/6103251/2025/01/31/five-2025-what-ifs-nfl-scoop-city/
+
+**Santos confirm Neymar's return**\
+`The 32-year-old was a free agent after terminating his contract with Saudi Arabian side Al Hilal.`\
+https://nytimes.com/athletic/6101303/2025/01/31/neymar-santos-transfer-return/
+
+**Where’s the Compassion? Trump’s Use of the Crash to Attack D.E.I.**\
+`Readers are horrified that the president used the tragedy to attack diversity policies. Also: Robert F. Kennedy Jr.’s nomination testimony.`\
+https://nytimes.com/2025/01/31/opinion/dc-crash-trump-diversity.html
+
 **Fantasy trends and hidden gems: Add Barrett Hayton with Dylan Guenther's return and more**\
 `Ahead of the NHL's 4 Nations Face-Off, Shayna Goldman discusses Barrett Hayton's upgrade with Dylan Guenther's return and much more. `\
 https://nytimes.com/athletic/6102011/2025/01/31/fantasy-trends-and-hidden-gems-week-18/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/31/realestate/rentals-in-and-near-los-angeles.html
 **NHL Power Rankings: The race at the top gets tighter, Senators make a charge**\
 `The Capitals are holding on to the No. 1 spot despite an average week but it's getting crowded at the top of the rankings.`\
 https://nytimes.com/athletic/6102941/2025/01/31/nhl-power-rankings-24/
-
-**Takashi Murakami’s Beloved, Trippy Louis Vuitton Bags Are Back**\
-`The brand has updated its 2003 collaboration with the Japanese artist.`\
-https://nytimes.com/2025/01/31/t-magazine/takashi-murakami-louis-vuitton-bag.html
-
-**The Orchestra of St. Luke’s Turns 50, as Nimble and Free as Ever**\
-`The ensemble, a New York original, keeps its players busy with work off the beaten path, whether Schubert rarities or “The Lord of the Rings.”`\
-https://nytimes.com/2025/01/31/arts/music/st-lukes-orchestra-carnegie-classical-music.html
-
-**DeepSeek’s Answers Include Chinese Propaganda, Researchers Say**\
-`Since the Chinese company’s chatbot surged in popularity, researchers have documented how its answers reflect China’s view of the world. Some of its responses amplify propaganda Beijing uses to discredit critics.`\
-https://nytimes.com/2025/01/31/technology/deepseek-chinese-propaganda.html
-
-**No Rush to Get Goods Into U.S. Ahead of Possible Tariffs**\
-`Experts say the freight system could handle an increase in imports from Canada and Mexico, but there is little sign of a significant increase.`\
-https://nytimes.com/2025/01/31/business/economy/tariffs-canada-mexico-logistics.html
 
