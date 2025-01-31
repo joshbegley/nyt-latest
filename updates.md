@@ -1,3 +1,19 @@
+**A Trump envoy will meet Venezuela’s Maduro, and Rubio heads to the Panama Canal.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/a-trump-envoy-will-meet-venezuelas-maduro-and-rubio-heads-to-the-panama-canal
+
+**Before Crash, an Alarming Pattern of Near-Misses Between Planes**\
+`Understaffing, poor working conditions and outdated technology have for years strained the system that keeps planes from crashing into each other.`\
+https://nytimes.com/2025/01/31/us/plane-crash-near-misses-airlines.html
+
+**Adidas unveils 2025 Club World Cup ball: 'The design pays homage to the United States'**\
+`The first edition of the expanded tournament will take place in the U.S. this summer.`\
+https://nytimes.com/athletic/6103288/2025/01/31/club-world-cup-ball-design-adidas/
+
+**A Terrible Silence**\
+`There’s a haunting echo between the plane crash on Wednesday and the one 43 years ago in Washington.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/air-florida-wichita-plane-crash-washington
+
 **Remembering the Way It Was**\
 `Orlando Mayorquín, a California native who has been covering the wildfires, reflects on the Palisades that lives on only in memories.`\
 https://nytimes.com/2025/01/31/us/wildfires-palisades-memories.html
