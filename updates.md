@@ -1,3 +1,7 @@
+**Takeaways From Day 2 of Kennedy’s Confirmation Hearings**\
+`Robert F. Kennedy, President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
+https://nytimes.com/2025/01/30/us/politics/rfk-jr-confirmation-takeaways.html
+
 **Paramount in Settlement Talks With Trump Over ‘60 Minutes’ Lawsuit**\
 `A settlement, if reached, would be an extraordinary concession by a major U.S. media company to a sitting president.`\
 https://nytimes.com/2025/01/30/business/media/paramount-trump-cbs-news-settlement.html
