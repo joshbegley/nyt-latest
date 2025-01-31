@@ -1,3 +1,7 @@
+**Norway Seizes Russian-Crewed Ship Suspected of Cutting an Undersea Cable**\
+`The authorities said they believed the vessel may have been involved in damaging the cable, the latest act of apparent sabotage in the Baltic Sea.`\
+https://nytimes.com/2025/01/31/world/europe/norway-russia-ship-baltic-undersea-cable.html
+
 **The Athletic FC: El Ghazi on sacking for social media post, City face Real Madrid in CL**\
 `Today's Athletic FC newsletter...`\
 https://nytimes.com/athletic/6102495/2025/01/31/el-ghazi-man-city-real-madrid-champions-league/
