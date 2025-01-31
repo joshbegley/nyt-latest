@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6102110/2025/01/30/bruins-elias-lindholm-offense-poitras-jets/
 
 **Is Connor Bedard getting a fair shake from the refs? Nick Foligno doesn't think so**\
-`"We have star players, too, that don’t seem to be protected as well as some of the other teams’ stars," Blackhawks captain Foligno said.`\
+`"We have star players, too, that don't seem to be protected as well as some of the other teams' stars," Blackhawks captain Foligno said.`\
 https://nytimes.com/athletic/6102069/2025/01/30/blackhawks-connor-bedard-nick-foligno/
 
 **Tell Us How Tariffs on Goods From China Will Affect Your Business**\
