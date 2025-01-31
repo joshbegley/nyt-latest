@@ -1,3 +1,7 @@
+**The Athletic FC: El Ghazi on sacking for social media post, City face Real Madrid in CL**\
+`Today's Athletic FC newsletter...`\
+https://nytimes.com/athletic/6102495/2025/01/31/el-ghazi-man-city-real-madrid-champions-league/
+
 **Nowhere to Hide From Trump’s Tariffs**\
 `President Trump’s long-promised trade war could start as soon as Saturday, leaving companies scrambling for a workaround for their global supply chains.`\
 https://nytimes.com/2025/01/31/business/dealbook/trumps-tariffs-colombia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102460/2025/01/31/wimbledon-tennis-schedule-grand-
 **What we're hearing about NHL players' priorities in upcoming CBA talks**\
 `The Athletic spoke to Walsh as well as players around the league ahead of a new round of CBA talks between the NHLPA and NHL.`\
 https://nytimes.com/athletic/6101151/2025/01/31/nhl-players-marty-walsh-cba-talks/
-
-**The Athletic’s Friday football quiz question #40**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6102436/2025/01/31/the-athletics-friday-football-quiz-question-40/
 
