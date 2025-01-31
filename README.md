@@ -1,3 +1,7 @@
+**Takeaways From Day 2 of Kennedy’s Confirmation Hearings**\
+`Robert F. Kennedy, President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
+https://nytimes.com/2025/01/30/us/politics/rfk-jr-confirmation-takeaways.html
+
 **Paramount in Settlement Talks With Trump Over ‘60 Minutes’ Lawsuit**\
 `A settlement, if reached, would be an extraordinary concession by a major U.S. media company to a sitting president.`\
 https://nytimes.com/2025/01/30/business/media/paramount-trump-cbs-news-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009961011/dc-plane-helicopter-crash.html
 **Eagles open practice window for DE Brandon Graham: 'I know the risk'**\
 `Graham suffered torn triceps in Week 12 and was thought to be done for the year, but he's trying to return for Super Bowl LIX. `\
 https://nytimes.com/athletic/6100482/2025/01/30/eagles-brandon-graham-practice-window-super-bowl/
-
-**How Each Senator Voted to Confirm Doug Burgum as Interior Secretary**\
-`The Senate voted 79 to 18 to confirm Mr. Burgum, a former governor of North Dakota, as the next interior secretary.`\
-https://nytimes.com/interactive/2025/01/30/us/politics/burgum-senate-confirmation-vote.html
 
