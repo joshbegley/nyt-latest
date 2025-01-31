@@ -1,3 +1,11 @@
+**Is Kobbie Mainoo better suited to thrive as a Manchester United No 10?**\
+`Ruben Amorim suggested the youngster had been 'struggling a lot defending as a midfielder' and thrust him into a more advanced role at FCSB`\
+https://nytimes.com/athletic/6102075/2025/01/31/mainoo-manchester-united-amorim-europa-fcsb-10/
+
+**Late Night Notes Trump’s Flagship Bugbear: D.E.I.**\
+`“Damn you, diversity initiatives! Why are you responsible for every historical tragedy?” Michael Kosta said on Thursday.`\
+https://nytimes.com/2025/01/31/arts/television/late-night-trump-dei.html
+
 **Ricardo Pepi ruled out with knee injury, may miss Nations League: Source**\
 `Pepi's knee issue presents injury blow for PSV and the USMNT`\
 https://nytimes.com/athletic/6102213/2025/01/31/ricardo-pepi-injury-psv-liverpool/

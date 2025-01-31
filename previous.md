@@ -1,3 +1,11 @@
+**Is Kobbie Mainoo better suited to thrive as a Manchester United No 10?**\
+`Ruben Amorim suggested the youngster had been 'struggling a lot defending as a midfielder' and thrust him into a more advanced role at FCSB`\
+https://nytimes.com/athletic/6102075/2025/01/31/mainoo-manchester-united-amorim-europa-fcsb-10/
+
+**Late Night Notes Trump’s Flagship Bugbear: D.E.I.**\
+`“Damn you, diversity initiatives! Why are you responsible for every historical tragedy?” Michael Kosta said on Thursday.`\
+https://nytimes.com/2025/01/31/arts/television/late-night-trump-dei.html
+
 **Ricardo Pepi ruled out with knee injury, may miss Nations League: Source**\
 `Pepi's knee issue presents injury blow for PSV and the USMNT`\
 https://nytimes.com/athletic/6102213/2025/01/31/ricardo-pepi-injury-psv-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6099998/2025/01/31/nottingha-forest-plan-b-counter-
 **Enzo Maresca, in-game management and exploring why Chelsea fade so often**\
 `The Londoners' games are following an all-too familiar course, but are their second-half toils down to fatigue or coaching inflexibility?`\
 https://nytimes.com/athletic/6100464/2025/01/31/maresca-chelsea-substitutions-ingame-management-fatigue/
-
-**Leeds have allowed far fewer shots than Burnley - their defence deserves more credit**\
-`Daniel Farke has tightened things up at the back and it's working, even if the recognition hasn't come`\
-https://nytimes.com/athletic/6100798/2025/01/31/leeds-have-allowed-far-fewer-shots-than-burnley-their-defence-deserves-more-credit/
-
-**Is Ruud van Nistelrooy finally making positive progress at Leicester?**\
-`The numbers suggest change is happening`\
-https://nytimes.com/athletic/6100040/2025/01/31/is-ruud-van-nistelrooy-finally-making-positive-progress-at-leicester/
 
