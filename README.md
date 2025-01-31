@@ -35,6 +35,6 @@ https://nytimes.com/2025/01/31/opinion/retirement-roth-conversion.html
 https://nytimes.com/2025/01/31/t-magazine/best-retro-sneakers.html
 
 **Why a trade for Dylan Cease seems unlikely right now for Mets**\
-`The price tag for Cease could evolve, but sources said the Mets are hesitant about the current potential acquisition cost.`\
+`The price tag for Cease could evolve, but sources said the current potential acquisition cost presents a hurdle for the Mets.`\
 https://nytimes.com/athletic/6103619/2025/01/31/mets-dylan-cease-trade-unlikely/
 
