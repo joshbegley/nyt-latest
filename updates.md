@@ -1,3 +1,7 @@
+**Nebraska upsets No. 18 Illinois to tally third win over ranked team**\
+`It is the third loss in four games for Illinois.`\
+https://nytimes.com/athletic/6102126/2025/01/30/nebraska-illinois-mens-basketball-upset/
+
 **An Elias Lindholm offensive outburst, of all things, goes to waste**\
 `Lindholm had a hand in both Bruins goals, but the Jets exploded in the third period to deny Boston a win.`\
 https://nytimes.com/athletic/6102110/2025/01/30/bruins-elias-lindholm-offense-poitras-jets/
