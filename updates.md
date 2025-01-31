@@ -1,3 +1,11 @@
+**What to Know About Collision Avoidance Systems on Planes**\
+`Commercial planes have technology that helps prevent crashes — but it has limitations, which was highlighted by the accident in Washington.`\
+https://nytimes.com/2025/01/31/business/washington-crash-tcas.html
+
+**WNBA team in Philadelphia? 76ers ownership group submits official bid**\
+`The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
+https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
+
 **WNBA team in Philadelphia, Houston? Bids submitted for expansion franchises**\
 `The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
 https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
