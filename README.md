@@ -1,3 +1,7 @@
+**See Lucy Run, 3.2 Million Years Ago**\
+`Our early human ancestor was capable of running, if slowly, a new study finds.`\
+https://nytimes.com/2025/01/31/science/running-afarensis-lucy.html
+
 **Emery says Watkins is 'happy to stay' at Villa despite Arsenal interest**\
 `Unai Emery says Ollie Watkins is happy to stay at Aston Villa, ruling out a potential departure this window.`\
 https://nytimes.com/athletic/6102687/2025/01/31/aston-villa-unai-emery-ollie-watkins/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/business/stock-market-ai-federal-reserve-immigrat
 **Listen: Has Raheem Sterling already started his last game for Arsenal?**\
 `On the latest episode of Handbrake Off, we discuss Raheem Sterling's struggles at Arsenal.`\
 https://nytimes.com/athletic/6100830/2025/01/31/handbrake-off-raheem-sterling/
-
-**Gavi signs new Barcelona contract until 2030**\
-`Barcelona midfielder Gavi has signed a new contract until 2030.`\
-https://nytimes.com/athletic/6099457/2025/01/31/barcelona-gavi-new-contract-update/
 
