@@ -28,7 +28,7 @@ https://nytimes.com/2025/01/31/podcasts/the-headlines/plane-crash-washington-tru
 
 **What We Know About the Plane Crash**\
 `A passenger jet collided with an Army helicopter near Washington D.C. What went wrong?`\
-https://nytimes.com/2025/01/31/podcasts/the-daily/what-we-know-about-the-plane-crash.html
+https://nytimes.com/2025/01/31/podcasts/the-daily/plane-crash-washington-dc.html
 
 **D.J. Reed, Haason Reddick, and Jets' 10 best free agents**\
 `The list also includes a breakout defensive star and two veteran offensive linemen.`\
