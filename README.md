@@ -1,40 +1,40 @@
-**A Goth Band’s Journey From Screams to Whispers**\
-`Before its members went into exile, IC3PEAK was one of the most notorious musical acts in Russia. Now, it’s pivoting to a more gentle sound.`\
-https://nytimes.com/2025/01/31/arts/music/ic3peak-coming-home.html
+**West's Top 3 teams have every move at their disposal. Is it time to push any chips in?**\
+`Oklahoma City, Houston and Memphis are young teams with large asset pools, but going "all-in" at the wrong time could backfire.`\
+https://nytimes.com/athletic/6100069/2025/01/31/nba-trade-deadline-rockets-grizzlies-thunder/
 
-**Here is the latest on the crash.**\
-`By Mark Walker, Sydney Ember, Emily Steel and Qasim Nauman`\
-https://nytimes.com/live/2025/01/31/us/dc-plane-crash/here-is-the-latest-on-the-crash
+**Arsenal live Q&A: Our club correspondent Art de Roche answers your questions**\
+`So get your questions in now for Art and he will be with you between 4pm and 5pm GMT (11am to 12pm ET) to answer as many as he can`\
+https://nytimes.com/athletic/6100268/2025/01/31/arsenal-transfers-injuries-arteta/
 
-**Live Updates: Divers Scour Potomac as Investigators Seek Answers in Deadly Air Crash**\
-`Among the questions is whether an Army helicopter deviated from its approved flight path before it collided with a passenger jet near Washington. An initial report found that the air traffic controller on duty was doing a job usually handled by two people.`\
-https://nytimes.com/live/2025/01/31/us/dc-plane-crash
+**What I'm hearing on the Penguins' goaltender of the future, Kyle Dubas and the trade deadline**\
+`Here's latest intel on the Penguins, the trade deadline and what to expect as we approach March 7.`\
+https://nytimes.com/athletic/6087847/2025/01/31/penguins-nhl-trade-deadline-sergei-murashov/
 
-**Hamas Names 3 Hostages It Says Will Be Freed This Weekend**\
-`Keith Siegel, an American-Israeli, will be released along with Yarden Bibas and Ofer Kalderon in exchange for scores of Palestinians being held in Israeli prisons, the group said.`\
-https://nytimes.com/2025/01/31/world/middleeast/hamas-hostages-israel-prisoners-release.html
+**In quarterback-driven NFL, winning the turnover battle is no longer best path to victory**\
+`Whoever wins the turnover battle wins the game, right? Not necessarily. As Ben Johnson says, QB success gives teams a better chance.`\
+https://nytimes.com/athletic/6098937/2025/01/31/chiefs-eagles-quarterbacks-super-bowl-success/
 
-**Leroux: How midlevel exception deals may affect present and future trade deadlines**\
-`The CBA's apron structure limits certain transactions, but this wrinkle opens up some possibilities that didn't exist before.`\
-https://nytimes.com/athletic/6097621/2025/01/31/nba-trade-deadline-midlevel-exception-analysis/
+**DGB Grab Bag: Offseason winners and losers, 4 Nations request and happier times in Vancouver**\
+`Remembering a truly great moment in Canucks history, a request for 4 Nations arena operations staff and more.`\
+https://nytimes.com/athletic/6100948/2025/01/31/nhl-offseason-grades-4-nations-canucks/
 
-**NBA trade deadline narratives I'm watching: Pacers' future, Cavs' conundrum and more**\
-`In Indiana and elsewhere, teams are checking their books and keeping an eye on their tax situations.`\
-https://nytimes.com/athletic/6101443/2025/01/31/nba-trade-deadline-trends-pacers-luxury-tax/
+**Morgan Rielly is struggling. How do the Maple Leafs get him going?**\
+`Here's four ways the Leafs could snap Rielly out of one of his worst funks in a Maple Leafs sweater.`\
+https://nytimes.com/athletic/6100842/2025/01/31/morgan-rielly-maple-leafs-struggle-fixes/
 
-**Which Senior Bowl participants could be on Browns' radar come April?**\
-`Projecting players from the Senior Bowl Cleveland could consider taking once the NFL Draft arrives.  `\
-https://nytimes.com/athletic/6101458/2025/01/31/browns-senior-bowl-2025-mock-draft/
+**Plane Crash Clues, and a New Way to Treat Pain**\
+`Plus, 82,000 gallons of blue paint.`\
+https://nytimes.com/2025/01/31/podcasts/the-headlines/plane-crash-washington-trump-opioids.html
 
-**Super Bowl or Senior Citizen Bowl? Older coaches are having a moment in the NFL**\
-`The Super Bowl coaching staffs feature five coaches in their 60s, including Andy Reid, the oldest head coach in the NFL in 2024.`\
-https://nytimes.com/athletic/6097726/2025/01/31/super-bowl-nfl-older-coaches-andy-reid/
+**What We Know About the Plane Crash**\
+`A passenger jet collided with an Army helicopter near Washington D.C. What went wrong?`\
+https://nytimes.com/2025/01/31/podcasts/the-daily/what-we-know-about-the-plane-crash.html
 
-**Arsenal target Nypan expected to stay at Rosenborg until end of season**\
-`Arsenal transfer target Sverre Nypan is expected to stay at Rosenborg until the end of the season.`\
-https://nytimes.com/athletic/6035335/2025/01/31/arsenal-transfers-sverre-nypan-stays/
+**D.J. Reed, Haason Reddick, and Jets' 10 best free agents**\
+`The list also includes a breakout defensive star and two veteran offensive linemen.`\
+https://nytimes.com/athletic/6100095/2025/01/31/new-york-jets-10-best-free-agents-dj-reed-haason-reddick/
 
-**Ohio State mailbag: How will Ryan Day handle all the changes in 2025?**\
-`Answering your questions about Ohio State's national title run and what's next with Jim Knowles and a long list of seniors leaving.`\
-https://nytimes.com/athletic/6100420/2025/01/31/ohio-state-ryan-day-2025-defensive-coordinator/
+**Wordle Review No. 1,323**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Feb. 1, 2025.`\
+https://nytimes.com/2025/01/31/crosswords/wordle-review-1323.html
 
