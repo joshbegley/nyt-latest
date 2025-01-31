@@ -2,7 +2,7 @@
 `Rashford is one of several options Villa are considering, including Chelsea's Joao Felix and PSG's Marco Asensio.`\
 https://nytimes.com/athletic/6046469/2025/01/31/marcus-rashford-aston-villa-transfer-manchester-united/
 
-**Hamas to Free Israeli Father, But Fates of His Wife and Children Unknown**\
+**Hamas to Free Israeli Father, but Fates of His Wife and Children Unknown**\
 `Hamas said it will release the hostage Yarden Bibas, 35, on Saturday. His wife and children were also taken captive on Oct. 7, 2023, but may not have survived.`\
 https://nytimes.com/2025/01/31/world/middleeast/israel-hostage-release-hamas-yarden-bibas.html
 
