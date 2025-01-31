@@ -1,3 +1,7 @@
+**Do Forest need a Plan B?**\
+`After the 5-0 defeat at Bournemouth, it could be argued that Forest need to tweak their approach to secure European football next season`\
+https://nytimes.com/athletic/6099998/2025/01/31/nottingha-forest-plan-b-counter-attack/
+
 **Enzo Maresca, in-game management and exploring why Chelsea fade so often**\
 `The Londoners' games are following an all-too familiar course, but are their second-half toils down to fatigue or coaching inflexibility?`\
 https://nytimes.com/athletic/6100464/2025/01/31/maresca-chelsea-substitutions-ingame-management-fatigue/

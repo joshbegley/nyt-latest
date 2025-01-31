@@ -1,3 +1,7 @@
+**Do Forest need a Plan B?**\
+`After the 5-0 defeat at Bournemouth, it could be argued that Forest need to tweak their approach to secure European football next season`\
+https://nytimes.com/athletic/6099998/2025/01/31/nottingha-forest-plan-b-counter-attack/
+
 **Enzo Maresca, in-game management and exploring why Chelsea fade so often**\
 `The Londoners' games are following an all-too familiar course, but are their second-half toils down to fatigue or coaching inflexibility?`\
 https://nytimes.com/athletic/6100464/2025/01/31/maresca-chelsea-substitutions-ingame-management-fatigue/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100255/2025/01/31/can-mikel-artetas-arsenal-regath
 **How Bournemouth became the Premier League's best team to watch - and worst to play against**\
 `How the division's smallest club took a risk, backed their talented head coach, recruited smartly and refined their style`\
 https://nytimes.com/athletic/6090877/2025/01/31/bournemouth-iraola-tactics-premier-league-analysis/
-
-**The secrets of Europe's best defence - and JJ Watt's (small) part in building it**\
-`How Burnley became impenetrable`\
-https://nytimes.com/athletic/6099669/2025/01/31/burnley-the-secrets-of-europes-best-defence-and-jj-watts-small-part-in-building-it/
 
