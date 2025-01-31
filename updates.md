@@ -1,3 +1,15 @@
+**Watch: Bills' existentialism, rooting for the Chiefs and more in the TAFS mailbag**\
+`It's mailbag time on TAFS: Is it fine to root for a Chiefs win?`\
+https://nytimes.com/athletic/6102494/2025/01/31/athletic-football-show-mailbag-chiefs-bills/
+
+**USWNT's Dunn joins PSG after leaving Gotham FC**\
+`USWNT midfielder Crystal Dunn has completed a move to Paris Saint-Germain after mutually departing Gotham FC.`\
+https://nytimes.com/athletic/6101347/2025/01/31/crystal-dunn-uswnt-psg-transfer/
+
+**The World Economy Awaits Trump’s First Round of Tariffs**\
+`Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-tariffs-canada-mexico-china
+
 **Official Email Urges Federal Workers to Find More Productive Jobs**\
 `On Thursday, vast numbers of the government work force received an “F.A.Q.s” e-mail on how to leave their “lower productivity jobs” in government for more productive ones in business.`\
 https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html

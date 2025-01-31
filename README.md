@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6102494/2025/01/31/athletic-football-show-mailbag-c
 https://nytimes.com/athletic/6101347/2025/01/31/crystal-dunn-uswnt-psg-transfer/
 
 **Official Email Urges Federal Workers to Find More Productive Jobs**\
-`On Thursday, vast numbers of the government work force received an “F.A.Q.s” e-mail on how to leave their “lower productivity jobs” in government for more productive ones in business.`\
+`The message reiterated an offer for a chance to take a second job or travel to a “dream destination” and remain on the federal payroll for months. But questions remain about whether that would be legal.`\
 https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html
 
 **Six players set to return for Spurs over next 10 days, says Postecoglou**\
