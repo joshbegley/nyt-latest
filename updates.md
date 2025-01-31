@@ -1,3 +1,15 @@
+**The Climate Fix: Africa’s Solar Revolution**\
+`In announcing a $35 billion program to bring inexpensive solar power to some 300 million Africans, officials left out two words: climate change.`\
+https://nytimes.com/2025/01/31/climate/the-climate-fix-africas-solar-revolution.html
+
+**Kennedy Says He Will Give HPV Vaccine Lawsuit Proceeds to His Son**\
+`Robert F. Kennedy Jr. also disclosed that he had reached at least one settlement agreement with a company or individual that has accused him of “misconduct or inappropriate behavior.”`\
+https://nytimes.com/2025/01/31/health/rfk-jr-financial-stake-hpv-lawsuits-ethics-confirmation.html
+
+**Challenging How Germany Remembers the 1972 Olympics Attack**\
+`With tensions running high over the war in Gaza, a new opera and a movie are looking back on the moment when Israeli athletes were murdered at the Munich Games.`\
+https://nytimes.com/2025/01/31/arts/music/echo-72-opera-september-5.html
+
 **Chuck Todd Is Leaving NBC**\
 `A longtime major figure of NBC and MSNBC’s political coverage, Mr. Todd became less omnipresent in recent years.`\
 https://nytimes.com/2025/01/31/business/media/chuck-todd-is-leaving-nbc.html

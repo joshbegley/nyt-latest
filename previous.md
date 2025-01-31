@@ -1,3 +1,15 @@
+**The Climate Fix: Africa’s Solar Revolution**\
+`In announcing a $35 billion program to bring inexpensive solar power to some 300 million Africans, officials left out two words: climate change.`\
+https://nytimes.com/2025/01/31/climate/the-climate-fix-africas-solar-revolution.html
+
+**Kennedy Says He Will Give HPV Vaccine Lawsuit Proceeds to His Son**\
+`Robert F. Kennedy Jr. also disclosed that he had reached at least one settlement agreement with a company or individual that has accused him of “misconduct or inappropriate behavior.”`\
+https://nytimes.com/2025/01/31/health/rfk-jr-financial-stake-hpv-lawsuits-ethics-confirmation.html
+
+**Challenging How Germany Remembers the 1972 Olympics Attack**\
+`With tensions running high over the war in Gaza, a new opera and a movie are looking back on the moment when Israeli athletes were murdered at the Munich Games.`\
+https://nytimes.com/2025/01/31/arts/music/echo-72-opera-september-5.html
+
 **Chuck Todd Is Leaving NBC**\
 `A longtime major figure of NBC and MSNBC’s political coverage, Mr. Todd became less omnipresent in recent years.`\
 https://nytimes.com/2025/01/31/business/media/chuck-todd-is-leaving-nbc.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/31/us/politics/gun-violence-immigrant-family-nashvil
 **A Trump envoy will meet Venezuela’s Maduro, and Rubio heads to the Panama Canal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/a-trump-envoy-will-meet-venezuelas-maduro-and-rubio-heads-to-the-panama-canal
-
-**Before Crash, an Alarming Pattern of Near-Misses Between Planes**\
-`Understaffing, poor working conditions and outdated technology have for years strained the system that keeps planes from crashing into each other.`\
-https://nytimes.com/2025/01/31/us/plane-crash-near-misses-airlines.html
-
-**Adidas unveils 2025 Club World Cup ball: 'The design pays homage to the United States'**\
-`The first edition of the expanded tournament will take place in the U.S. this summer.`\
-https://nytimes.com/athletic/6103288/2025/01/31/club-world-cup-ball-design-adidas/
-
-**A Terrible Silence**\
-`There’s a haunting echo between the plane crash on Wednesday and the one 43 years ago in Washington.`\
-https://nytimes.com/live/2025/01/27/opinion/thepoint/air-florida-wichita-plane-crash-washington
 
