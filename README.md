@@ -1,3 +1,7 @@
+**The World Economy Awaits Trump’s First Round of Tariffs**\
+`Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
+https://nytimes.com/2025/01/31/business/economy/trump-tariffs.html
+
 **Gaza’s Border Crossing With Egypt Reopens to Let Sick and Wounded Leave**\
 `The Rafah crossing has been shuttered for over eight months before as part of the cease-fire agreement between Israel and Hamas.`\
 https://nytimes.com/2025/01/31/world/middleeast/rafah-crossing-gaza-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102687/2025/01/31/aston-villa-unai-emery-ollie-wat
 **This Josephine Baker Oral History Has Never Been Published Here. Now We Know Why.**\
 `“Fearless and Free,” recorded between 1926 and 1949, is full of heroism, glamour, righteous anger — and things you wish you could unsee.`\
 https://nytimes.com/2025/01/31/books/review/josephine-baker-fearless-and-free.html
-
-**N.T.S.B. Investigates Washington Plane Crash: What to Know**\
-`The National Transportation Safety Board is an independent federal agency tasked with examining serious transport-related accidents.`\
-https://nytimes.com/2025/01/31/us/washington-dc-plane-crash-ntsb-investigation.html
 
