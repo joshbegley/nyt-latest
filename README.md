@@ -1,3 +1,7 @@
+**Is Connor Bedard getting a fair shake from the refs? Nick Foligno doesn't think so**\
+`"We have star players, too, that don’t seem to be protected as well as some of the other teams’ stars," Blackhawks captain Foligno said.`\
+https://nytimes.com/athletic/6102069/2025/01/30/blackhawks-connor-bedard-nick-foligno/
+
 **Tell Us How Tariffs on Goods From China Will Affect Your Business**\
 `The New York Times wants to talk to business owners about President Trump’s plan to impose additional duties on imports from China.`\
 https://nytimes.com/2025/01/30/business/china-tariffs-callout-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-supervisor-al
 **Second Sinkhole Hampers Rescue of Truck Driver in Japan**\
 `As rescue efforts were underway for the 74-year-old man stuck in a sinkhole, another one opened up.`\
 https://nytimes.com/video/world/asia/100000009961268/japan-sinkhole-truck-yashio.html
-
-**The Skater Who Stuck a Triple Axel Before Boarding the Flight**\
-`Cory Haynos was among several budding figure-skating stars who died in the plane crash near Reagan National Airport.`\
-https://nytimes.com/2025/01/30/us/cory-haynos-figure-skater-plane-crash.html
 
