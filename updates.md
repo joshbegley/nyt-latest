@@ -1,3 +1,11 @@
+**Can Mikel Arteta take the last step? The answer will define his Arsenal reign**\
+`After seemingly regressing this season, the fear is of an era defined by near-misses`\
+https://nytimes.com/athletic/6100255/2025/01/31/can-mikel-artetas-arsenal-regather-to-take-that-final-hardest-step/
+
+**How Bournemouth became the Premier League's best team to watch - and worst to play against**\
+`How the division's smallest club took a risk, backed their talented head coach, recruited smartly and refined their style`\
+https://nytimes.com/athletic/6090877/2025/01/31/bournemouth-iraola-tactics-premier-league-analysis/
+
 **The secrets of Europe's best defence - and JJ Watt's (small) part in building it**\
 `How Burnley became impenetrable`\
 https://nytimes.com/athletic/6099669/2025/01/31/burnley-the-secrets-of-europes-best-defence-and-jj-watts-small-part-in-building-it/

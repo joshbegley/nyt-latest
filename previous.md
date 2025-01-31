@@ -1,3 +1,11 @@
+**Can Mikel Arteta take the last step? The answer will define his Arsenal reign**\
+`After seemingly regressing this season, the fear is of an era defined by near-misses`\
+https://nytimes.com/athletic/6100255/2025/01/31/can-mikel-artetas-arsenal-regather-to-take-that-final-hardest-step/
+
+**How Bournemouth became the Premier League's best team to watch - and worst to play against**\
+`How the division's smallest club took a risk, backed their talented head coach, recruited smartly and refined their style`\
+https://nytimes.com/athletic/6090877/2025/01/31/bournemouth-iraola-tactics-premier-league-analysis/
+
 **The secrets of Europe's best defence - and JJ Watt's (small) part in building it**\
 `How Burnley became impenetrable`\
 https://nytimes.com/athletic/6099669/2025/01/31/burnley-the-secrets-of-europes-best-defence-and-jj-watts-small-part-in-building-it/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/style/modern-love-long-covid-please-find-someone-
 **Escaping the ‘Demoralizing’ New York Dating Scene**\
 `When they met on a dating app nearly six years ago, Allegra Hanlon and Tommy Fitzpatrick were both feeling exhausted by the disappointing cycle of meeting new potential love interests.`\
 https://nytimes.com/2025/01/31/style/allegra-hanlon-tommy-fitzpatrick-wedding.html
-
-**Politics Was on the Agenda at City Hall. Dating Waited.**\
-`Emma Barash met Mitchell Schwartz when she brought a sensitive issue to his attention while they worked at New York City Hall.`\
-https://nytimes.com/2025/01/31/style/emma-barash-mitchell-schwartz-wedding.html
-
-**She Ordered an Uber and Found Her Future Husband**\
-`Both Kristen Grennan and Guga Robakidze felt an immediate attraction to each other when he drove her home after a night out with friends.`\
-https://nytimes.com/2025/01/31/style/kristen-grennan-guga-robakidze-wedding.html
 
