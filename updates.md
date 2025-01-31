@@ -1,3 +1,7 @@
+**Rationalizing the Ryan Brasier decision in the crowded Dodgers bullpen**\
+`Dodgers GM Brandon Gomes called it a "difficult decision" to part with Brasier after the team signed Kirby Yates.`\
+https://nytimes.com/athletic/6104165/2025/01/31/dodgers-ryan-brasier-designated-for-assignment/
+
 **Nonprofits Dread Attempts to Scrutinize Diversity Initiatives**\
 `Multiple groups said that a government email address created for reports of attempts to thwart the Trump administration’s crackdown was used to sign up for their newsletters.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/nonprofits-dread-attempts-to-scrutinize-diversity-initiatives
