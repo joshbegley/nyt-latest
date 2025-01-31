@@ -1,3 +1,15 @@
+**Top Justice Department Officials Meet Lawyers in Adams Case**\
+`Senior officials in Washington were meeting with prosecutors and defense lawyers representing Mayor Eric Adams to discuss dropping the corruption case against him.`\
+https://nytimes.com/2025/01/31/nyregion/adams-trump-justice-meeting.html
+
+**An Unforgettable Style Paragon in Voice, Outlook and Image**\
+`Marianne Faithfull, who died on Thursday at 78, “seemed to touch all the moments,” helping define the look of the 1960s with an influence that is still seen today.`\
+https://nytimes.com/2025/01/31/style/marianne-faithfull-style-influence.html
+
+**Meet the Grammys’ Best New Artist Nominees**\
+`Hear all eight acts, including Raye, Doechii and Sabrina Carpenter.`\
+https://nytimes.com/2025/01/31/arts/music/amplifier-newsletter-grammys-best-new-artist.html
+
 **Kash Patel as F.B.I. Director Could ‘Destabilize the Whole System’**\
 `Michelle Cottle and Garrett Graff sit down to discuss one of the “most dangerous” Trump appointees.`\
 https://nytimes.com/2025/01/31/opinion/kash-patel-fbi-hoover.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6103284/2025/01/31/western-oregon-womens-basketball
 **Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
 `Acquiring Cease would boost the Twins' chances of winning the AL Central but also send a message to fans as the team begins a new TV era.`\
 https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
-
-**'Beyond disgusted': Dana White blasts Bryce Mitchell's praise for Hitler**\
-`Mitchell, speaking on the first episode of his podcast, called Hitler "a good guy."`\
-https://nytimes.com/athletic/6102901/2025/01/31/ufc-bryce-mitchell-hitler-comments-dana-white/
-
-**Talented but temperamental: Duran's Villa spell has been eventful - €77m was too good to refuse**\
-`Villa manager Emery was heavily invested in making the Colombia a world-class talent - but a transfer had felt inevitable for months`\
-https://nytimes.com/athletic/6099276/2025/01/31/jhon-duran-aston-villa-saudi-transfer/
-
-**Duran completes move from Villa to Al Nassr**\
-`Jhon Duran has completed his move from Aston Villa to Saudi Pro League side Al Nassr.`\
-https://nytimes.com/athletic/6099208/2025/01/31/jhon-duran-al-nassr-aston-villa-transfer/
 

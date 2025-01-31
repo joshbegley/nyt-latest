@@ -1,3 +1,7 @@
+**Does Humanity Have a Future?**\
+`In search of a ‘Golden Path’ through the age of A.I.`\
+https://nytimes.com/2025/01/31/opinion/andreessen-bannon.html
+
 **Top Justice Department Officials Meet Lawyers in Adams Case**\
 `Senior officials in Washington were meeting with prosecutors and defense lawyers representing Mayor Eric Adams to discuss dropping the corruption case against him.`\
 https://nytimes.com/2025/01/31/nyregion/adams-trump-justice-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/us/politics/elizabeth-warren-trump-policy.html
 **Western Oregon women's basketball players allege abuse, sue for $28 million**\
 `Players say they were forced to practice while injured and faced harsh treatment from two coaches.`\
 https://nytimes.com/athletic/6103284/2025/01/31/western-oregon-womens-basketball-lawsuit/
-
-**Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
-`Acquiring Cease would boost the Twins' chances of winning the AL Central but also send a message to fans as the team begins a new TV era.`\
-https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
 
