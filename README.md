@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6102949/2025/01/31/sam-smith-wrexham-record-transfe
 
 **The World Economy Awaits Trump’s First Round of Tariffs**\
 `Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
-https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-tariffs
+https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-tariffs-canada-mexico-china
 
