@@ -31,7 +31,7 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/president-trump
 https://nytimes.com/video/us/politics/100000009961242/how-a-law-makes-deportations-easier.html
 
 **Takeaways From Day 2 of Kennedy’s Confirmation Hearings**\
-`Robert F. Kennedy, President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
+`Robert F. Kennedy Jr., President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
 https://nytimes.com/2025/01/30/us/politics/rfk-jr-confirmation-takeaways.html
 
 **Paramount in Settlement Talks With Trump Over ‘60 Minutes’ Lawsuit**\
