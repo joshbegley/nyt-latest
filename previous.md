@@ -34,7 +34,7 @@ https://nytimes.com/2025/01/31/podcasts/fka-twigs-bends-pop-to-her-will.html
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/01/31/briefing/trump-rfk-jr-plane-crash-deepseek.html
 
-**How to Hang Anything on Your Wall**\
-`It can be scary to drill holes in the wall. For the first entry in our new D.I.Y. series, we’ll show you how to mount a television, or whatever you want.`\
-https://nytimes.com/2025/01/31/realestate/how-to-hang-anything-on-your-wall.html
+**Luke Fickell pressure meter entering Year 3 at Wisconsin: Badgers mailbag**\
+`Fickell is 12-13 in his first two full seasons. What are his best wins? And where does the program stand in recruiting?`\
+https://nytimes.com/athletic/6101138/2025/01/31/wisconsin-college-football-basketball-luke-fickell/
 

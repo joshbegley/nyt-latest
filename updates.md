@@ -1,3 +1,7 @@
+**Luke Fickell pressure meter entering Year 3 at Wisconsin: Badgers mailbag**\
+`Fickell is 12-13 in his first two full seasons. What are his best wins? And where does the program stand in recruiting?`\
+https://nytimes.com/athletic/6101138/2025/01/31/wisconsin-college-football-basketball-luke-fickell/
+
 **Trump’s Deportations Only Work if Countries Agree to Take Their Citizens Back**\
 `Sending people to another country requires bilateral negotiations and diplomatic strong arming.`\
 https://nytimes.com/2025/01/31/world/trumps-deportations-only-work-if-countries-agree-to-take-their-citizens-back.html
