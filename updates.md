@@ -1,3 +1,7 @@
+**Official Email Urges Federal Workers to Find More Productive Jobs**\
+`On Thursday, vast numbers of the government work force received an “F.A.Q.s” e-mail on how to leave their “lower productivity jobs” in government for more productive ones in business.`\
+https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html
+
 **Official Email Tells Federal Workers to Find More Productive Jobs**\
 `On Thursday, vast numbers of the government work force received an “F.A.Q.s” e-mail on how to leave their “lower productivity jobs” in government for more productive ones in business.`\
 https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html
