@@ -1,3 +1,7 @@
+**Nebraska upsets No. 18 Illinois to tally third win over ranked team**\
+`It is the third loss in four games for Illinois.`\
+https://nytimes.com/athletic/6102126/2025/01/30/nebraska-illinois-mens-basketball-upset/
+
 **An Elias Lindholm offensive outburst, of all things, goes to waste**\
 `Lindholm had a hand in both Bruins goals, but the Jets exploded in the third period to deny Boston a win.`\
 https://nytimes.com/athletic/6102110/2025/01/30/bruins-elias-lindholm-offense-poitras-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/30/crosswords/daily-puzzle-2025-01-31.html
 **Marc-Andre Fleury delivers vintage performance on special night: 3 Wild takeaways**\
 `The future Hall of Famer earned his 76th career shutout playing in his final game at the Bell Centre.`\
 https://nytimes.com/athletic/6101872/2025/01/30/wild-marc-andre-fleury-canadiens/
-
-**A supervisor allowed an air traffic controller to leave before the crash.**\
-`Dual duties of handling helicopter and plane traffic were handed to one person on Wednesday night before a Black Hawk collided with a regional jet.`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-supervisor-allowed-an-air-traffic-controller-to-leave-before-the-crash
 
