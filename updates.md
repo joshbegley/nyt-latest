@@ -1,3 +1,11 @@
+**Arsenal target Nypan expected to stay at Rosenborg until end of season**\
+`Arsenal transfer target Sverre Nypan is expected to stay at Rosenborg until the end of the season.`\
+https://nytimes.com/athletic/6035335/2025/01/31/arsenal-transfers-sverre-nypan-stays/
+
+**Ohio State mailbag: How will Ryan Day handle all the changes in 2025?**\
+`Answering your questions about Ohio State's national title run and what's next with Jim Knowles and a long list of seniors leaving.`\
+https://nytimes.com/athletic/6100420/2025/01/31/ohio-state-ryan-day-2025-defensive-coordinator/
+
 **Luke Fickell pressure meter entering Year 3 at Wisconsin: Badgers mailbag**\
 `Fickell is 12-13 in his first two full seasons. What are his best wins? And where does the program stand in recruiting?`\
 https://nytimes.com/athletic/6101138/2025/01/31/wisconsin-college-football-basketball-luke-fickell/

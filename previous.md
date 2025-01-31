@@ -1,3 +1,11 @@
+**Arsenal target Nypan expected to stay at Rosenborg until end of season**\
+`Arsenal transfer target Sverre Nypan is expected to stay at Rosenborg until the end of the season.`\
+https://nytimes.com/athletic/6035335/2025/01/31/arsenal-transfers-sverre-nypan-stays/
+
+**Ohio State mailbag: How will Ryan Day handle all the changes in 2025?**\
+`Answering your questions about Ohio State's national title run and what's next with Jim Knowles and a long list of seniors leaving.`\
+https://nytimes.com/athletic/6100420/2025/01/31/ohio-state-ryan-day-2025-defensive-coordinator/
+
 **Trump’s Deportations Only Work if Countries Agree to Take Their Citizens Back**\
 `Sending people to another country requires bilateral negotiations and diplomatic strong arming.`\
 https://nytimes.com/2025/01/31/world/trumps-deportations-only-work-if-countries-agree-to-take-their-citizens-back.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/world/americas/trump-military-deportation-flights
 **FKA twigs Bends Pop to Her Will**\
 `Our chief pop critic reviews the shape-shifting artist’s new album, “Eusexua.”`\
 https://nytimes.com/2025/01/31/podcasts/fka-twigs-bends-pop-to-her-will.html
-
-**The New York Times News Quiz, Jan. 31, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/01/31/briefing/trump-rfk-jr-plane-crash-deepseek.html
-
-**Luke Fickell pressure meter entering Year 3 at Wisconsin: Badgers mailbag**\
-`Fickell is 12-13 in his first two full seasons. What are his best wins? And where does the program stand in recruiting?`\
-https://nytimes.com/athletic/6101138/2025/01/31/wisconsin-college-football-basketball-luke-fickell/
 
