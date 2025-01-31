@@ -1,3 +1,11 @@
+**The secrets of Europe's best defence - and JJ Watt's (small) part in building it**\
+`How Burnley became impenetrable`\
+https://nytimes.com/athletic/6099669/2025/01/31/burnley-the-secrets-of-europes-best-defence-and-jj-watts-small-part-in-building-it/
+
+**LinkedIn: The social media platform footballers are turning to for recruitment and self-expression**\
+`For plenty of football players, LinkedIn is the social media platform of choice when it comes to expressing themselves without fear of abuse`\
+https://nytimes.com/athletic/6085815/2025/01/31/football-linkedin-soccer-recruitment-transfers/
+
 **Kremlin Chokes YouTube Service, but Russians Find Ways Around It**\
 `The Kremlin is trying to cripple YouTube in Russia, internet experts say, pushing some people to state-controlled domestic alternatives. But many Russians have found workarounds.`\
 https://nytimes.com/2025/01/31/world/europe/russia-youtube.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/style/emma-barash-mitchell-schwartz-wedding.html
 **She Ordered an Uber and Found Her Future Husband**\
 `Both Kristen Grennan and Guga Robakidze felt an immediate attraction to each other when he drove her home after a night out with friends.`\
 https://nytimes.com/2025/01/31/style/kristen-grennan-guga-robakidze-wedding.html
-
-**U.S. Says Sheriff Could Face Prosecution for Releasing Immigrant**\
-`The Justice Department called for an investigation of a sheriff in Ithaca, N.Y., who had released an undocumented man who was later arrested by federal agents.`\
-https://nytimes.com/2025/01/30/nyregion/ny-sheriff-ithaca-immigration.html
-
-**Nebraska upsets No. 18 Illinois to tally third win over ranked team**\
-`It is the third loss in four games for Illinois.`\
-https://nytimes.com/athletic/6102126/2025/01/30/nebraska-illinois-mens-basketball-upset/
 
