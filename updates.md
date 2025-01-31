@@ -1,3 +1,15 @@
+**Torino reach agreement with Chelsea for Casadei**\
+`Torino have reached an agreement with Chelsea for the signing of midfielder Cesare Casadei.`\
+https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-chelsea/
+
+**CBS News Set to Hand Over Transcript of ‘60 Minutes’ Interview to F.C.C.**\
+`The broadcaster had declined previous requests by the Trump campaign to release the unedited transcript of an interview with Vice President Kamala Harris.`\
+https://nytimes.com/2025/01/31/business/media/trump-harris-60-minutes-fcc.html
+
+**WNBA team in Philadelphia? 76ers ownership group submits official bid**\
+`The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
+https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
+
 **Former Liverpool captain Henderson to stay at Ajax despite Monaco interest**\
 `Former Liverpool captain Jordan Henderson will stay at Ajax despite an approach from Monaco.`\
 https://nytimes.com/athletic/6102367/2025/01/31/henderson-monaco-ajax-transfer-update-liverpool/

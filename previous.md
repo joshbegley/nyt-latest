@@ -1,3 +1,15 @@
+**Torino reach agreement with Chelsea for Casadei**\
+`Torino have reached an agreement with Chelsea for the signing of midfielder Cesare Casadei.`\
+https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-chelsea/
+
+**CBS News Set to Hand Over Transcript of ‘60 Minutes’ Interview to F.C.C.**\
+`The broadcaster had declined previous requests by the Trump campaign to release the unedited transcript of an interview with Vice President Kamala Harris.`\
+https://nytimes.com/2025/01/31/business/media/trump-harris-60-minutes-fcc.html
+
+**WNBA team in Philadelphia? 76ers ownership group submits official bid**\
+`The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
+https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
+
 **Former Liverpool captain Henderson to stay at Ajax despite Monaco interest**\
 `Former Liverpool captain Jordan Henderson will stay at Ajax despite an approach from Monaco.`\
 https://nytimes.com/athletic/6102367/2025/01/31/henderson-monaco-ajax-transfer-update-liverpool/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/31/world/europe/italy-immigrants-albania.html
 **Tel indicates to Tottenham he intends to stay at Bayern Munich**\
 `Mathys Tel indicated to Tottenham Hotspur that he intends to stay at Bayern Munich and reassess his future in the summer, despite agreements being reached for him to join the north London club and interest from a host of others teams.`\
 https://nytimes.com/athletic/6103657/2025/01/31/mathys-tel-bayern-munich-future-tottenham/
-
-**The Army has identified two of the three helicopter crew members who died in the crash.**\
-`Citing her family’s request for privacy, the Army took the unusual step of not releasing the third aviator’s name.`\
-https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/the-army-has-identified-two-of-the-three-helicopter-pilots-who-died-in-the-crash
-
-**What Will Win Album of the Year at the Grammys?**\
-`Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, break down the many converging narratives indicating that Beyoncé’s “Cowboy Carter” could be primed to win the Grammy Award for album of the year.`\
-https://nytimes.com/video/podcasts/100000009955123/beyonce-grammys-cowboy-carter.html
-
-**What adding Brandon Saad could mean for the Vegas Golden Knights**\
-`Saad gives Vegas a proven winner and is a solid addition at a reasonable cap hit.`\
-https://nytimes.com/athletic/6103800/2025/01/31/brandon-saad-vegas-golden-knights/
 
