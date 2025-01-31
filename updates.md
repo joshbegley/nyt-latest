@@ -1,3 +1,11 @@
+**The secrets of Europe's best defence - and JJ Watt's (small) part in building it**\
+`How Burnley became impenetrable`\
+https://nytimes.com/athletic/6099669/2025/01/31/burnley-the-secrets-of-europes-best-defence-and-jj-watts-small-part-in-building-it/
+
+**LinkedIn: The social media platform footballers are turning to for recruitment and self-expression**\
+`For plenty of football players, LinkedIn is the social media platform of choice when it comes to expressing themselves without fear of abuse`\
+https://nytimes.com/athletic/6085815/2025/01/31/football-linkedin-soccer-recruitment-transfers/
+
 **Kremlin Chokes YouTube Service, but Russians Find Ways Around It**\
 `The Kremlin is trying to cripple YouTube in Russia, internet experts say, pushing some people to state-controlled domestic alternatives. But many Russians have found workarounds.`\
 https://nytimes.com/2025/01/31/world/europe/russia-youtube.html
