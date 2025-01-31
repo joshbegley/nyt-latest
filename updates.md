@@ -1,3 +1,7 @@
+**A Goth Band’s Journey From Screams to Whispers**\
+`Before its members went into exile, IC3PEAK was one of the most notorious musical acts in Russia. Now, it’s pivoting to a more gentle sound.`\
+https://nytimes.com/2025/01/31/arts/music/ic3peak-coming-home.html
+
 **Here is the latest on the crash.**\
 `By Mark Walker, Sydney Ember, Emily Steel and Qasim Nauman`\
 https://nytimes.com/live/2025/01/31/us/dc-plane-crash/here-is-the-latest-on-the-crash

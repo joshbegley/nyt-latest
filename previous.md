@@ -1,3 +1,7 @@
+**A Goth Band’s Journey From Screams to Whispers**\
+`Before its members went into exile, IC3PEAK was one of the most notorious musical acts in Russia. Now, it’s pivoting to a more gentle sound.`\
+https://nytimes.com/2025/01/31/arts/music/ic3peak-coming-home.html
+
 **Here is the latest on the crash.**\
 `By Mark Walker, Sydney Ember, Emily Steel and Qasim Nauman`\
 https://nytimes.com/live/2025/01/31/us/dc-plane-crash/here-is-the-latest-on-the-crash
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6035335/2025/01/31/arsenal-transfers-sverre-nypan-s
 **Ohio State mailbag: How will Ryan Day handle all the changes in 2025?**\
 `Answering your questions about Ohio State's national title run and what's next with Jim Knowles and a long list of seniors leaving.`\
 https://nytimes.com/athletic/6100420/2025/01/31/ohio-state-ryan-day-2025-defensive-coordinator/
-
-**Trump’s Deportations Only Work if Countries Agree to Take Their Citizens Back**\
-`Sending people to another country requires bilateral negotiations and diplomatic strong arming.`\
-https://nytimes.com/2025/01/31/world/trumps-deportations-only-work-if-countries-agree-to-take-their-citizens-back.html
 
