@@ -1,8 +1,16 @@
+**Trump Raises New Threat to Sanctuary Cities: Blocking Transportation Dollars**\
+`A new order revives an old battle about how much an administration is allowed to coerce cities and states by withholding money.`\
+https://nytimes.com/2025/01/31/upshot/sanctuary-cities-trump-transportation-funds.html
+
+**With Trump Unbound, It’s a Tale of Two Strategies for Democrats in Congress**\
+`President Trump’s blizzard of actions elicited two very different responses from Senate and House Democrats — one media-saturating and one restrained — reflecting a debate on how best to respond.`\
+https://nytimes.com/2025/01/31/us/politics/trump-democrats-response.html
+
 **F.A.A. Restricts Helicopter Flights in Reagan National Airspace**\
 `The agency’s decision, made shortly after Wednesday’s deadly collision, was framed by the transportation secretary as an important step toward enhancing safety.`\
 https://nytimes.com/2025/01/31/business/faa-restricts-helicopter-flights-in-reagan-national-airspace.html
 
-**Saints hone in on Kellen Moore, tell other candidates they are moving on**\
+**Saints home in on Kellen Moore, tell other candidates they are moving on**\
 `Moore is one of only three candidates known to have taken multiple interviews with New Orleans.`\
 https://nytimes.com/athletic/6103925/2025/01/31/saints-head-coach-candidates-kellen-moore/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6104087/2025/01/31/stars-miro-heiskanen-injury/
 **Federal Workers Ordered to Remove Gender Identity From Email Signatures**\
 `The instructions to employees aimed to fulfill orders from the Trump administration, which told agency heads to remove all references to gender identity from official materials by 5 p.m. Friday.`\
 https://nytimes.com/2025/01/31/us/politics/trump-pronouns.html
-
-**Heat Today: Tyler Herro's teammates, coaches share joy in his All-Star nod**\
-`Now that he knows he'll be in San Francisco, the sixth-year guard has another plan in mind: the All-Star Weekend 3-point contest.`\
-https://nytimes.com/athletic/6103646/2025/01/31/tyler-herro-nba-all-star-heat/
-
-**Barry Goldberg, Who Backed Dylan When He Went Electric, Dies at 83**\
-`He played keyboards with a host of rock luminaries, but perhaps his most memorable performance was as part of the band that shocked the 1965 Newport Folk Festival.`\
-https://nytimes.com/2025/01/31/arts/music/barry-goldberg-dead.html
 
