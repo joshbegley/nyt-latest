@@ -1,3 +1,7 @@
+**U.S. Says Sheriff Could Face Prosecution for Releasing Immigrant**\
+`The Justice Department called for an investigation of a sheriff in Ithaca, N.Y., who had released an undocumented man who was later arrested by federal agents.`\
+https://nytimes.com/2025/01/30/nyregion/ny-sheriff-ithaca-immigration.html
+
 **Nebraska upsets No. 18 Illinois to tally third win over ranked team**\
 `It is the third loss in four games for Illinois.`\
 https://nytimes.com/athletic/6102126/2025/01/30/nebraska-illinois-mens-basketball-upset/
