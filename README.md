@@ -1,3 +1,23 @@
+**Karla Sofía Gascón Apologizes for Social Media Posts**\
+`The Oscar-nominated actress, who plays a cartel leader in “Emilia Pérez,” was criticized for derogatory comments about Muslims, George Floyd and China.`\
+https://nytimes.com/2025/01/31/movies/karla-sofia-gascon-apology-netflix.html
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 1/31 at 2:00 p.m. ET**\
+`Submit your questions for Eno Sarris' live baseball chat. `\
+https://nytimes.com/athletic/6103563/2025/01/31/eno-sarris-live-baseball-chat-1-31/
+
+**These California Olives Are Unique and Delicious. They May Already Be Gone.**\
+`Dramatic climate events and crop shortages have Graber, a century-old family company, facing permanent closure.`\
+https://nytimes.com/2025/01/31/dining/graber-california-olives.html
+
+**Once a Trump Foil, Warren Seeks Collaboration on Policy**\
+`As Democrats reel from defeat, Senator Elizabeth Warren, the Massachusetts progressive, preaches focus and accountability.`\
+https://nytimes.com/2025/01/31/us/politics/elizabeth-warren-trump-policy.html
+
+**Western Oregon women's basketball players allege abuse, sue for $28 million**\
+`Players say they were forced to practice while injured and faced harsh treatment from two coaches.`\
+https://nytimes.com/athletic/6103284/2025/01/31/western-oregon-womens-basketball-lawsuit/
+
 **Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
 `Acquiring Cease would boost the Twins' chances of winning the AL Central but also send a message to fans as the team begins a new TV era.`\
 https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6099208/2025/01/31/jhon-duran-al-nassr-aston-villa-
 **Sundance Gives Top Honor to ‘Atropia,’ a Comedy About Playing War**\
 `Like many of the independent films that premiered at this muted edition of Sundance, “Atropia” has not yet sold to a distributor.`\
 https://nytimes.com/2025/01/31/movies/sundance-film-festival-winners-list.html
-
-**Pistons’ Stewart suspended 1 game after accruing 6 flagrant foul points**\
-`The Pistons will be without Stewart for Friday evening's matchup against the Dallas Mavericks.`\
-https://nytimes.com/athletic/6103397/2025/01/31/pistons-isaiah-stewart-suspended-flagrant-fouls/
-
-**The Weeknd’s Gloomy but Glittering Pop, and 9 More New Songs**\
-`Hear tracks by Alison Krauss & Union Station, Sleigh Bells, Jupiter & Okwess and others.`\
-https://nytimes.com/2025/01/31/arts/music/playlist-weeknd-jennie-dominic-fike.html
-
-**The Climate Fix: Africa’s Solar Revolution**\
-`In announcing a $35 billion program to bring inexpensive solar power to some 300 million Africans, officials left out two words: climate change.`\
-https://nytimes.com/2025/01/31/climate/the-climate-fix-africas-solar-revolution.html
-
-**Kennedy Says He Will Give HPV Vaccine Lawsuit Proceeds to His Son**\
-`Robert F. Kennedy Jr. also disclosed that he had reached at least one settlement agreement with a company or individual that has accused him of “misconduct or inappropriate behavior.”`\
-https://nytimes.com/2025/01/31/health/rfk-jr-financial-stake-hpv-lawsuits-ethics-confirmation.html
-
-**Challenging How Germany Remembers the 1972 Olympics Attack**\
-`With tensions running high over the war in Gaza, a new opera and a movie are looking back on the moment when Israeli athletes were murdered at the Munich Games.`\
-https://nytimes.com/2025/01/31/arts/music/echo-72-opera-september-5.html
 
