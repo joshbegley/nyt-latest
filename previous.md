@@ -1,3 +1,35 @@
+**Kremlin Chokes YouTube Service, but Russians Find Ways Around It**\
+`The Kremlin is trying to cripple YouTube in Russia, internet experts say, pushing some people to state-controlled domestic alternatives. But many Russians have found workarounds.`\
+https://nytimes.com/2025/01/31/world/europe/russia-youtube.html
+
+**Quote of the Day: Yanking of Critical Aid for H.I.V. Drugs Sows Fear of Surge in Africa**\
+`Quotation of the Day for Friday, January 31, 2025.`\
+https://nytimes.com/2025/01/31/pageoneplus/quote-of-the-day-yanking-of-critical-aid-for-hiv-drugs-sows-fear-of-surge-in-africa.html
+
+**Tesla and Chinese Carmakers Could See Windfall From E.U. Emissions Rules**\
+`European carmakers are urging Brussels to ease regulations to help them avoid buying carbon credits from rivals at increasingly high prices.`\
+https://nytimes.com/2025/01/31/business/tesla-chinese-carmakers-europe-emissions.html
+
+**Washington Crash Renews Concerns About Air Safety Lapses**\
+`Clues emerging from the moments before an Army helicopter collided with a passenger jet suggest breakdowns in the system meant to help aircraft land safely at the busy Reagan National Airport.`\
+https://nytimes.com/2025/01/31/business/dc-plane-helicopter-crash-cause.html
+
+**I Love You. Please Find Someone Else.**\
+`“In sickness and in health” may sound romantic — until you’re sidelined with a chronic illness.`\
+https://nytimes.com/2025/01/31/style/modern-love-long-covid-please-find-someone-else.html
+
+**Escaping the ‘Demoralizing’ New York Dating Scene**\
+`When they met on a dating app nearly six years ago, Allegra Hanlon and Tommy Fitzpatrick were both feeling exhausted by the disappointing cycle of meeting new potential love interests.`\
+https://nytimes.com/2025/01/31/style/allegra-hanlon-tommy-fitzpatrick-wedding.html
+
+**Politics Was on the Agenda at City Hall. Dating Waited.**\
+`Emma Barash met Mitchell Schwartz when she brought a sensitive issue to his attention while they worked at New York City Hall.`\
+https://nytimes.com/2025/01/31/style/emma-barash-mitchell-schwartz-wedding.html
+
+**She Ordered an Uber and Found Her Future Husband**\
+`Both Kristen Grennan and Guga Robakidze felt an immediate attraction to each other when he drove her home after a night out with friends.`\
+https://nytimes.com/2025/01/31/style/kristen-grennan-guga-robakidze-wedding.html
+
 **U.S. Says Sheriff Could Face Prosecution for Releasing Immigrant**\
 `The Justice Department called for an investigation of a sheriff in Ithaca, N.Y., who had released an undocumented man who was later arrested by federal agents.`\
 https://nytimes.com/2025/01/30/nyregion/ny-sheriff-ithaca-immigration.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/01/30/nyregion/ny-sheriff-ithaca-immigration.html
 **Nebraska upsets No. 18 Illinois to tally third win over ranked team**\
 `It is the third loss in four games for Illinois.`\
 https://nytimes.com/athletic/6102126/2025/01/30/nebraska-illinois-mens-basketball-upset/
-
-**An Elias Lindholm offensive outburst, of all things, goes to waste**\
-`Lindholm had a hand in both Bruins goals, but the Jets exploded in the third period to deny Boston a win.`\
-https://nytimes.com/athletic/6102110/2025/01/30/bruins-elias-lindholm-offense-poitras-jets/
-
-**Is Connor Bedard getting a fair shake from the refs? Nick Foligno doesn't think so**\
-`"We have star players, too, that don't seem to be protected as well as some of the other teams' stars," Blackhawks captain Foligno said.`\
-https://nytimes.com/athletic/6102069/2025/01/30/blackhawks-connor-bedard-nick-foligno/
-
-**Tell Us How Tariffs on Goods From China Will Affect Your Business**\
-`The New York Times wants to talk to business owners about President Trump’s plan to impose additional duties on imports from China.`\
-https://nytimes.com/2025/01/30/business/china-tariffs-callout-trump.html
-
-**Prosecutors counter Ippei Mizuhara argument for leniency in Ohtani fraud case**\
-`Prosecutors stayed firm on their request for a five-year sentence for Mizuhara, who is asking for 18 months in prison. `\
-https://nytimes.com/athletic/6102050/2025/01/30/ippei-mizuhara-fraud-shohei-ohtani-leniency/
-
-**Dick Button, Olympic legend and figure skating commentator, dies at 95**\
-`The two-time Olympic gold medalist and five-time world champ was also an influential broadcaster for more than five decades.`\
-https://nytimes.com/athletic/6101898/2025/01/30/dick-button-olympic-legend-and-figure-skating-commentator-dies-at-95/
-
-**North Korean Troops No Longer Seen on Front Lines Fighting Ukraine**\
-`North Korea sent its best troops to aid Russia in its war against Ukraine. But after months of suffering severe losses, they have been taken off the front line.`\
-https://nytimes.com/2025/01/30/world/europe/north-korea-troops-ukraine-russia.html
-
-**Vanderbilt's Mikayla Blakes breaks freshman record with 53-point outing**\
-`The total is also the highest single-game mark for any player in SEC history.`\
-https://nytimes.com/athletic/6101939/2025/01/30/mikayla-blakes-vanderbilt-womens-basketball-freshman-scoring-record/
-
-**Wanders Around a Terminal**\
-`Adrian Johnson opens our solving weekend.`\
-https://nytimes.com/2025/01/30/crosswords/daily-puzzle-2025-01-31.html
 
