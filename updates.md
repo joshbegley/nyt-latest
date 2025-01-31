@@ -1,3 +1,15 @@
+**'That's the fun part': Chiefs relish pulling off trick plays in their biggest games**\
+`The Chiefs have pulled off a trick play in each of their Super Bowl wins. What do Andy Reid and company have up their sleeves this time?`\
+https://nytimes.com/athletic/6101725/2025/01/31/chiefs-trick-plays-super-bowl/
+
+**What we learned from the Bears' new coordinators under Ben Johnson**\
+`The Bears introduced Johnson's three coordinators Thursday: Dennis Allen, Declan Doyle and holdover Richard Hightower.`\
+https://nytimes.com/athletic/6101426/2025/01/31/bears-new-coordinators-dennis-allen-declan-doyle/
+
+**Court Vision: What does muted UNC-Duke meeting mean? SEC tiers of trust**\
+`Which teams are truly proving themselves in the jumbled SEC league standings? Love for Ace Bailey. Who is your coach of the year?`\
+https://nytimes.com/athletic/6101538/2025/01/31/unc-duke-mens-college-basketball-sec/
+
 **West's Top 3 teams have every move at their disposal. Is it time to push any chips in?**\
 `Oklahoma City, Houston and Memphis are young teams with large asset pools, but going "all-in" at the wrong time could backfire.`\
 https://nytimes.com/athletic/6100069/2025/01/31/nba-trade-deadline-rockets-grizzlies-thunder/
