@@ -1,3 +1,7 @@
+**Maresca yet to decide whether Sanchez will start against West Ham on Monday**\
+`Enzo Maresca is going to leave it late before deciding whether to start Robert Sanchez in goal in Chelsea’s game against West Ham on Monday night.`\
+https://nytimes.com/athletic/6102508/2025/01/31/chelsea-sanchez-maresca-west-ham/
+
 **Jota, Nunez, Gomez in contention for Bournemouth trip**\
 `Diogo Jota, Darwin Nunez and Joe Gomez are in contention to return to Liverpool&#8217;s squad for Saturday&#8217;s Premier League game against Bournemouth.`\
 https://nytimes.com/athletic/6102511/2025/01/31/liverpool-team-news-jota-nunez-gomez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102415/2025/01/31/chloe-kelly-arsenal-man-city-ins
 **Zion Williamson's improved defense has been obvious in his return from injury**\
 `Williamson's explosiveness has always been evident on offense, but now it is showing up on the other end. `\
 https://nytimes.com/athletic/6101783/2025/01/31/pelicans-zion-williamson-defense-nba/
-
-**'That's the fun part': Chiefs relish pulling off trick plays in their biggest games**\
-`The Chiefs have pulled off a trick play in each of their Super Bowl wins. What do Andy Reid and company have up their sleeves this time?`\
-https://nytimes.com/athletic/6101725/2025/01/31/chiefs-trick-plays-super-bowl/
 
