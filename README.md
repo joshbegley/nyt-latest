@@ -1,3 +1,15 @@
+**'That's the fun part': Chiefs relish pulling off trick plays in their biggest games**\
+`The Chiefs have pulled off a trick play in each of their Super Bowl wins. What do Andy Reid and company have up their sleeves this time?`\
+https://nytimes.com/athletic/6101725/2025/01/31/chiefs-trick-plays-super-bowl/
+
+**What we learned from the Bears' new coordinators under Ben Johnson**\
+`The Bears introduced Johnson's three coordinators Thursday: Dennis Allen, Declan Doyle and holdover Richard Hightower.`\
+https://nytimes.com/athletic/6101426/2025/01/31/bears-new-coordinators-dennis-allen-declan-doyle/
+
+**Court Vision: What does muted UNC-Duke meeting mean? SEC tiers of trust**\
+`Which teams are truly proving themselves in the jumbled SEC league standings? Love for Ace Bailey. Who is your coach of the year?`\
+https://nytimes.com/athletic/6101538/2025/01/31/unc-duke-mens-college-basketball-sec/
+
 **West's Top 3 teams have every move at their disposal. Is it time to push any chips in?**\
 `Oklahoma City, Houston and Memphis are young teams with large asset pools, but going "all-in" at the wrong time could backfire.`\
 https://nytimes.com/athletic/6100069/2025/01/31/nba-trade-deadline-rockets-grizzlies-thunder/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6100842/2025/01/31/morgan-rielly-maple-leafs-strugg
 **Plane Crash Clues, and a New Way to Treat Pain**\
 `Plus, 82,000 gallons of blue paint.`\
 https://nytimes.com/2025/01/31/podcasts/the-headlines/plane-crash-washington-trump-opioids.html
-
-**What We Know About the Plane Crash**\
-`A passenger jet collided with an Army helicopter near Washington D.C. What went wrong?`\
-https://nytimes.com/2025/01/31/podcasts/the-daily/plane-crash-washington-dc.html
-
-**D.J. Reed, Haason Reddick, and Jets' 10 best free agents**\
-`The list also includes a breakout defensive star and two veteran offensive linemen.`\
-https://nytimes.com/athletic/6100095/2025/01/31/new-york-jets-10-best-free-agents-dj-reed-haason-reddick/
-
-**Wordle Review No. 1,323**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Feb. 1, 2025.`\
-https://nytimes.com/2025/01/31/crosswords/wordle-review-1323.html
 
