@@ -1,3 +1,19 @@
+**NHL salary cap to jump from $88 million to $113.5 million over next 3 seasons**\
+`The league told teams Friday that the cap will increase to $95.5 million in 2025-26, $104 million in 2026-27 and $113.5 million in 2027-28.`\
+https://nytimes.com/athletic/6103283/2025/01/31/nhl-salary-cap-rising/
+
+**Inside Naomi Girma's move to Chelsea**\
+`As Girma’s profile rose in the U.S. and the international game, the Wave’s technical staff realized they would struggle to afford her.`\
+https://nytimes.com/athletic/6102609/2025/01/31/naomi-girma-chelsea-deal/
+
+**Wrexham make another forward signing with addition of Burnley's Rodriguez**\
+`Wrexham have completed the signing of Burnley striker Jay Rodriguez, the second addition to the club&#8217;s forward ranks today.`\
+https://nytimes.com/athletic/6103124/2025/01/31/jay-rodriguez-wrexham-transfer/
+
+**Villa's Manas handed two-game ban, Newcastle's Tindall avoids sanction**\
+`Manas and Tindall were earlier charged with 'improper conduct' after being sent off following a melee in the St James' Park tunnel`\
+https://nytimes.com/athletic/6049267/2025/01/31/newcastle-aston-villa-tindall-manas/
+
 **German Opposition Gambles With Far-Right on Immigration, and Loses**\
 `Friedrich Merz and his Christian Democrats broke a political taboo by working with the hard-right Alternative for Germany to toughen rules on immigration. It did not pay off.`\
 https://nytimes.com/2025/01/31/world/europe/germany-friedrich-merz-immigration.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6102011/2025/01/31/fantasy-trends-and-hidden-gems-w
 **How are Connor McDavid and Leon Draisaitl trending ahead of the stretch run?**\
 `Draisaitl looks like a strong candidate for the Hart Trophy and McDavid is delivering a mountain of offence.`\
 https://nytimes.com/athletic/6099847/2025/01/31/oilers-mcdavid-draisaitl-minutes/
-
-**Villa considering Rashford move**\
-`Rashford is one of several options Villa are considering, including Chelsea's Joao Felix and PSG's Marco Asensio.`\
-https://nytimes.com/athletic/6046469/2025/01/31/marcus-rashford-aston-villa-transfer-manchester-united/
-
-**Hamas to Free Israeli Father, but Fates of His Wife and Children Unknown**\
-`Hamas said it will release the hostage Yarden Bibas, 35, on Saturday. His wife and children were also taken captive on Oct. 7, 2023, but may not have survived.`\
-https://nytimes.com/2025/01/31/world/middleeast/israel-hostage-release-hamas-yarden-bibas.html
-
-**$3,500 Rentals in and Near Los Angeles**\
-`A loft in Long Beach, a Spanish-Style house in La Quinta and a condominium unit in a Baldwin Park building designated as a landmark.`\
-https://nytimes.com/2025/01/31/realestate/rentals-in-and-near-los-angeles.html
-
-**NHL Power Rankings: The race at the top gets tighter, Senators make a charge**\
-`The Capitals are holding on to the No. 1 spot despite an average week but it's getting crowded at the top of the rankings.`\
-https://nytimes.com/athletic/6102941/2025/01/31/nhl-power-rankings-24/
 
