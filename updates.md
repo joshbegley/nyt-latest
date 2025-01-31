@@ -1,3 +1,11 @@
+**Once a Trump Foil, Warren Seeks Collaboration on Policy**\
+`As Democrats reel from defeat, Senator Elizabeth Warren, the Massachusetts progressive, preaches focus and accountability.`\
+https://nytimes.com/2025/01/31/us/politics/elizabeth-warren-trump-policy.html
+
+**Western Oregon women's basketball players allege abuse, sue for $28 million**\
+`Players say they were forced to practice while injured and faced harsh treatment from two coaches.`\
+https://nytimes.com/athletic/6103284/2025/01/31/western-oregon-womens-basketball-lawsuit/
+
 **Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
 `Acquiring Cease would boost the Twins' chances of winning the AL Central, but also send a message to fans as the team begins a new TV era.`\
 https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
