@@ -1,3 +1,15 @@
+**Former host Julie Stewart-Binks sues Fox, says FS1 executive sexually assaulted her**\
+`She alleges executive vice president Charlie Dixon sexually assaulted her in 2016 after a meeting to discuss her Super Bowl assignment.`\
+https://nytimes.com/athletic/6100307/2025/01/31/julie-stewart-binks-fox-fs1-lawsuit/
+
+**Julie Stewart-Binks on a career derailed by alleged sexual assault: 'What could my life have been?'**\
+`About a month after the alleged incident involving executive Charlie Dixon, she was informed her contract would not be renewed.`\
+https://nytimes.com/athletic/6100204/2025/01/31/julie-stewart-binks-sexual-assault-lawsuit-fox-career/
+
+**The Pulse: All hail the dad bod**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6100444/2025/01/31/figure-skaters-crash-washington-dc-the-pulse/
+
 **Lille agree deal to sign Akpom on loan from Ajax**\
 `Lille have reached an agreement with Ajax to sign Chuba Akpom on loan with an option to buy.`\
 https://nytimes.com/athletic/6102469/2025/01/31/chuba-akpom-transfer-ajax-lille/

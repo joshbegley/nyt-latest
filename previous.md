@@ -1,3 +1,15 @@
+**Former host Julie Stewart-Binks sues Fox, says FS1 executive sexually assaulted her**\
+`She alleges executive vice president Charlie Dixon sexually assaulted her in 2016 after a meeting to discuss her Super Bowl assignment.`\
+https://nytimes.com/athletic/6100307/2025/01/31/julie-stewart-binks-fox-fs1-lawsuit/
+
+**Julie Stewart-Binks on a career derailed by alleged sexual assault: 'What could my life have been?'**\
+`About a month after the alleged incident involving executive Charlie Dixon, she was informed her contract would not be renewed.`\
+https://nytimes.com/athletic/6100204/2025/01/31/julie-stewart-binks-sexual-assault-lawsuit-fox-career/
+
+**The Pulse: All hail the dad bod**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6100444/2025/01/31/figure-skaters-crash-washington-dc-the-pulse/
+
 **Lille agree deal to sign Akpom on loan from Ajax**\
 `Lille have reached an agreement with Ajax to sign Chuba Akpom on loan with an option to buy.`\
 https://nytimes.com/athletic/6102469/2025/01/31/chuba-akpom-transfer-ajax-lille/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6101538/2025/01/31/unc-duke-mens-college-basketball
 **West's Top 3 teams have every move at their disposal. Is it time to push any chips in?**\
 `Oklahoma City, Houston and Memphis are young teams with large asset pools, but going "all-in" at the wrong time could backfire.`\
 https://nytimes.com/athletic/6100069/2025/01/31/nba-trade-deadline-rockets-grizzlies-thunder/
-
-**Arsenal live Q&A: Our club correspondent Art de Roche answers your questions**\
-`So get your questions in now for Art and he will be with you between 4pm and 5pm GMT (11am to 12pm ET) to answer as many as he can`\
-https://nytimes.com/athletic/6100268/2025/01/31/arsenal-transfers-injuries-arteta/
-
-**What I'm hearing on the Penguins' goaltender of the future, Kyle Dubas and the trade deadline**\
-`Here's latest intel on the Penguins, the trade deadline and what to expect as we approach March 7.`\
-https://nytimes.com/athletic/6087847/2025/01/31/penguins-nhl-trade-deadline-sergei-murashov/
-
-**In quarterback-driven NFL, winning the turnover battle is no longer best path to victory**\
-`Whoever wins the turnover battle wins the game, right? Not necessarily. As Ben Johnson says, QB success gives teams a better chance.`\
-https://nytimes.com/athletic/6098937/2025/01/31/chiefs-eagles-quarterbacks-super-bowl-success/
 
