@@ -1,3 +1,7 @@
+**Brandon Hughes returning to Cubs on a minor-league deal: Sources**\
+`Back in 2022, Hughes posted a 3.12 ERA in 57 appearances for a rebuilding team, including eight saves.`\
+https://nytimes.com/athletic/6101345/2025/01/31/brandon-hughes-chicago-cubs-deal/
+
 **A Trump envoy will meet Venezuela’s Maduro, and Rubio heads to the Panama Canal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/a-trump-envoy-will-meet-venezuelas-maduro-and-rubio-heads-to-the-panama-canal
