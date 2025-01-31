@@ -1,3 +1,11 @@
+**The Army has identified two of the three helicopter pilots who died in the crash.**\
+`Citing her family’s request for privacy, the Army took the unusual step of not releasing the third aviator’s name.`\
+https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/the-army-has-identified-two-of-the-three-helicopter-pilots-who-died-in-the-crash
+
+**What Will Win Album of the Year at the Grammys?**\
+`Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, break down the many converging narratives indicating that Beyoncé’s “Cowboy Carter” is primed to win the Grammy Award for album of the year.`\
+https://nytimes.com/video/podcasts/100000009955123/beyonce-grammys-cowboy-carter.html
+
 **What adding Brandon Saad could mean for the Vegas Golden Knights**\
 `Saad gives Vegas a proven winner and is a solid addition at a reasonable cap hit.`\
 https://nytimes.com/athletic/6103800/2025/01/31/brandon-saad-vegas-golden-knights/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/books/review/book-club-lets-talk-about-alan-holli
 **The Retirement Maneuver More People Should Be Making**\
 `Roth conversion is often a smart choice. Don’t let the tax bill scare you.`\
 https://nytimes.com/2025/01/31/opinion/retirement-roth-conversion.html
-
-**The Best Retro Sneakers to Buy Now**\
-`Our pick of the season’s vintage-inspired running shoes.`\
-https://nytimes.com/2025/01/31/t-magazine/best-retro-sneakers.html
-
-**Why a trade for Dylan Cease seems unlikely right now for Mets**\
-`The price tag for Cease could evolve, but sources said the current potential acquisition cost presents a hurdle for the Mets.`\
-https://nytimes.com/athletic/6103619/2025/01/31/mets-dylan-cease-trade-unlikely/
 

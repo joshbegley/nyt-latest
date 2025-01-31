@@ -1,3 +1,11 @@
+**The Army has identified two of the three helicopter pilots who died in the crash.**\
+`Citing her family’s request for privacy, the Army took the unusual step of not releasing the third aviator’s name.`\
+https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/the-army-has-identified-two-of-the-three-helicopter-pilots-who-died-in-the-crash
+
+**What Will Win Album of the Year at the Grammys?**\
+`Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, break down the many converging narratives indicating that Beyoncé’s “Cowboy Carter” is primed to win the Grammy Award for album of the year.`\
+https://nytimes.com/video/podcasts/100000009955123/beyonce-grammys-cowboy-carter.html
+
 **What adding Brandon Saad could mean for the Vegas Golden Knights**\
 `Saad gives Vegas a proven winner and is a solid addition at a reasonable cap hit.`\
 https://nytimes.com/athletic/6103800/2025/01/31/brandon-saad-vegas-golden-knights/
