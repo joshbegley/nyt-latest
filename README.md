@@ -1,7 +1,3 @@
-**Flamengo say Everton have agreed loan deal for midfielder Alcaraz**\
-`Flamengo say they have agreed a deal to send Carlos Alcaraz on loan to Everton.`\
-https://nytimes.com/athletic/6103411/2025/01/31/carlos-alcaraz-everton-transfer-flamengo/
-
 **FPL: Double Gameweek 25 announced - Who will play twice? What chip should I use?**\
 `Unexpected fixture announcements mean we're set for back-to-back double gameweeks - and that should change your chip strategy`\
 https://nytimes.com/athletic/6102754/2025/01/31/fantasy-premier-league-double-gameweek-25-tips/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6101345/2025/01/31/brandon-hughes-chicago-cubs-deal
 **Salary cap to jump from $88 million to $113.5 million over next 3 seasons**\
 `The league told teams Friday that the cap will increase to $95.5 million in 2025-26, $104 million in 2026-27 and $113.5 million in 2027-28.`\
 https://nytimes.com/athletic/6103283/2025/01/31/nhl-salary-cap-rising/
+
+**Inside Naomi Girma's move to Chelsea**\
+`As Girma’s profile rose in the U.S. and the international game, the Wave’s technical staff realized they would struggle to afford her.`\
+https://nytimes.com/athletic/6102609/2025/01/31/naomi-girma-chelsea-deal/
 
