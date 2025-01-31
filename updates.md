@@ -1,3 +1,7 @@
+**Flames trade Kuzmenko, Pelletier and picks to Flyers for Frost, Farabee**\
+`The Calgary Flames traded wingers Andrei Kuzmenko and Jakob Pelletier, plus second- and seventh-round draft picks, to the Philadelphia Flyers on Thursday night for center Morgan Frost and winger Joel Farabee.`\
+https://nytimes.com/athletic/6102174/2025/01/31/flyers-flames-trade-frost-kuzmenko/
+
 **Why Liverpool and Kerkez would make sense as a summer transfer**\
 `Arne Slot needs more options at left-back and the Bournemouth youngster seems to tick every box`\
 https://nytimes.com/athletic/6098768/2025/01/31/liverpool-milos-kerkez-transfer/
