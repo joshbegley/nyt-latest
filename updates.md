@@ -1,3 +1,7 @@
+**How fans can make sense (or nonsense) out of the Giants trading Taylor Rogers**\
+`The reasoning behind the Rogers deal doesn't seem that straightforward. Here are a few theories why they made the move.`\
+https://nytimes.com/athletic/6101959/2025/01/31/sf-giants-taylor-rogers-trade-analysis/
+
 **Heavy Rain and Floods Sweep Hawaii’s Big Island and Maui**\
 `Flash flood warnings and several inches of rain fell across parts of the chain of islands as part of a storm system moving southeast.`\
 https://nytimes.com/2025/01/31/us/maui-rain-flooding-hawaii.html
