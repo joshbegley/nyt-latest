@@ -18,7 +18,7 @@ https://nytimes.com/2025/01/31/business/dealbook/kalshi-prediction-market-broker
 `Gonzaga opened the season No. 6 but is now unranked and dropped two games in a row in January. But is it figuring things out in time?`\
 https://nytimes.com/athletic/6100980/2025/01/31/gonzaga-mens-basketball-ncaa-tournament/
 
-**Champions League play-off draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
+**Champions League play-offs draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
 `Our writers assess the key talking points from the Champions League play-off draw`\
 https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
 
