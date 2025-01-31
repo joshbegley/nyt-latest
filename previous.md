@@ -1,40 +1,40 @@
-**Maresca yet to decide whether Sanchez will start against West Ham on Monday**\
-`Enzo Maresca is going to leave it late before deciding whether to start Robert Sanchez in goal in Chelsea’s game against West Ham on Monday night.`\
-https://nytimes.com/athletic/6102508/2025/01/31/chelsea-sanchez-maresca-west-ham/
+**Blues trade tiers: In wake of Brandon Saad's departure, who may be on the move next?**\
+`The Athletic divides the Blues' 23-man roster into seven trade-tier categories.`\
+https://nytimes.com/athletic/6097360/2025/01/31/st-louis-blues-trade-tiers-saad-nhl/
 
-**Jota, Nunez, Gomez in contention for Bournemouth trip**\
-`Diogo Jota, Darwin Nunez and Joe Gomez are in contention to return to Liverpool&#8217;s squad for Saturday&#8217;s Premier League game against Bournemouth.`\
-https://nytimes.com/athletic/6102511/2025/01/31/liverpool-team-news-jota-nunez-gomez/
+**Broncos mailbag: Could Tee Higgins be worth an aggressive free-agency approach?**\
+`Plus, a look at some under-the-radar needs the Broncos have as they try to build a contending roster in 2025 and beyond.`\
+https://nytimes.com/athletic/6100386/2025/01/31/broncos-mailbag-free-agency-draft/
 
-**Trump Tariffs Could Hurt Oil Companies and Increase Gas Prices**\
-`Some oil refineries will probably struggle to replace imported crude oil if President Trump imposes 25 percent tariffs on products from Canada and Mexico.`\
-https://nytimes.com/2025/01/31/business/energy-environment/trumps-tariffs-oil-gas-prices.html
+**Tim Henman: Wimbledon appetite for 15-day Grand Slam is 'zero'**\
+`Tim Henman, a member of the All England Lawn Tennis Club (AELTC) board, has characterized the appetite for a 15-day tournament at Wimbledon as “zero.`\
+https://nytimes.com/athletic/6102460/2025/01/31/wimbledon-tennis-schedule-grand-slam-15-days-tim-henman/
 
-**A Conflict in Congo**\
-`Critical minerals factor into the fight.`\
-https://nytimes.com/2025/01/31/briefing/a-conflict-in-the-congo.html
+**What we're hearing about NHL players' priorities in upcoming CBA talks**\
+`The Athletic spoke to Walsh as well as players around the league ahead of a new round of CBA talks between the NHLPA and NHL.`\
+https://nytimes.com/athletic/6101151/2025/01/31/nhl-players-marty-walsh-cba-talks/
 
-**Former host Julie Stewart-Binks sues Fox, says FS1 executive sexually assaulted her**\
-`She alleges executive vice president Charlie Dixon sexually assaulted her in 2016 after a meeting to discuss her Super Bowl assignment.`\
-https://nytimes.com/athletic/6100307/2025/01/31/julie-stewart-binks-fox-fs1-lawsuit/
+**The Athletic’s Friday football quiz question #40**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6102436/2025/01/31/the-athletics-friday-football-quiz-question-40/
 
-**Julie Stewart-Binks on a career derailed by alleged sexual assault: 'What could my life have been?'**\
-`About a month after the alleged incident involving executive Charlie Dixon, she was informed her contract would not be renewed.`\
-https://nytimes.com/athletic/6100204/2025/01/31/julie-stewart-binks-sexual-assault-lawsuit-fox-career/
+**Premier League clubs shouldn't be looking for the new Erling Haaland**\
+`A host of Premier League sides are currently in the market for new forwards, but is the league's top scorer really the man to emulate?`\
+https://nytimes.com/athletic/6099453/2025/01/31/premier-league-clubs-like-arsenal-shouldnt-be-looking-for-the-new-erling-haaland/
 
-**The Pulse: All hail the dad bod**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6100444/2025/01/31/figure-skaters-crash-washington-dc-the-pulse/
+**FPL live Q&A: FPL Gameweek 24 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 24 Q&A between 4pm and 5pm GMT`\
+https://nytimes.com/athletic/6099275/2025/01/31/fantasy-premier-league-advice-gw24-tips/
 
-**Lille agree deal to sign Akpom on loan from Ajax**\
-`Lille have reached an agreement with Ajax to sign Chuba Akpom on loan with an option to buy.`\
-https://nytimes.com/athletic/6102469/2025/01/31/chuba-akpom-transfer-ajax-lille/
+**John Klingberg's debut, Jeff Skinner's role, Noah Philp's usage: 3 Oilers takeaways**\
+`Thursday was one of those days when the Oilers didn't have their best stuff, could have won but didn't and at least came away with a point.`\
+https://nytimes.com/athletic/6102323/2025/01/31/oilers-loss-red-wings-john-klingberg-jeff-skinner/
 
-**Kelly accuses Man City of trying to 'assassinate my character' after Arsenal move**\
-`Chloe Kelly has accused Manchester City trying to &#8220;assassinate my character&#8221; following her deadline day move to Arsenal.`\
-https://nytimes.com/athletic/6102415/2025/01/31/chloe-kelly-arsenal-man-city-instagram/
+**Padres legal dispute: Experts weigh in on case, what could happen next**\
+`We spoke with legal experts about the Seidler case, a potentially key point of disagreement between the two sides, and what might be next.`\
+https://nytimes.com/athletic/6102012/2025/01/31/padres-legal-dispute-explainer-sheel-matt-bob-seidler/
 
-**Zion Williamson's improved defense has been obvious in his return from injury**\
-`Williamson's explosiveness has always been evident on offense, but now it is showing up on the other end. `\
-https://nytimes.com/athletic/6101783/2025/01/31/pelicans-zion-williamson-defense-nba/
+**DeepSeek Deep Dive + Hands-On With Operator + Hot Mess Express!**\
+`“DeepSeek is a really odd duck.”`\
+https://nytimes.com/2025/01/31/podcasts/hardfork-deepseek-china.html
 
