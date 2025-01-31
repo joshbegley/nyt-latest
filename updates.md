@@ -1,3 +1,11 @@
+**Super Bowl 59 odds, picks: Chiefs hold as 1.5-point favorites in rematch with Eagles**\
+`The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
+https://nytimes.com/athletic/6084432/2025/01/31/super-bowl-59-odds-line-chiefs-eagles/
+
+**Chelsea confirm Walsh signing from Barcelona**\
+`Chelsea have completed the signing of Keira Walsh from Barcelona.`\
+https://nytimes.com/athletic/6102425/2025/01/31/chelsea-transfer-news-keira-walsh/
+
 **Beneath Trump’s Chaotic Spending Freeze: An Idea That Crosses Party Lines**\
 `There is a long, bipartisan history of attempts to rein in spending and address concerns about government inefficiencies, though the parties have grown increasingly divided about what to cut.`\
 https://nytimes.com/2025/01/31/us/politics/trump-spending-freeze-debt-workforce.html
