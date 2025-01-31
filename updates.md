@@ -1,3 +1,7 @@
+**Does Humanity Have a Future?**\
+`In search of a ‘Golden Path’ through the age of A.I.`\
+https://nytimes.com/2025/01/31/opinion/andreessen-bannon.html
+
 **Top Justice Department Officials Meet Lawyers in Adams Case**\
 `Senior officials in Washington were meeting with prosecutors and defense lawyers representing Mayor Eric Adams to discuss dropping the corruption case against him.`\
 https://nytimes.com/2025/01/31/nyregion/adams-trump-justice-meeting.html
