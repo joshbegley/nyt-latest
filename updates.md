@@ -1,3 +1,7 @@
+**Heat Today: Tyler Herro's teammates, coaches share joy in his All-Star nod**\
+`Now that he knows he'll be in San Francisco, the sixth-year guard has another plan in mind: the All-Star Weekend 3-point contest.`\
+https://nytimes.com/athletic/6103646/2025/01/31/tyler-herro-nba-all-star-heat/
+
 **Barry Goldberg, Who Backed Dylan When He Went Electric, Dies at 83**\
 `He played keyboards with a host of rock luminaries, but perhaps his most memorable performance was as part of the band that shocked the 1965 Newport Folk Festival.`\
 https://nytimes.com/2025/01/31/arts/music/barry-goldberg-dead.html
