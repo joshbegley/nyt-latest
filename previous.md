@@ -1,3 +1,7 @@
+**Man United exploring summer move for Sporting's Quenda**\
+`Manchester United are exploring a deal to sign winger Geovany Quenda from Sporting CP in the summer.`\
+https://nytimes.com/athletic/6102523/2025/01/31/manchester-united-transfers-geovany-quenda/
+
 **Norway Seizes Russian-Crewed Ship Suspected of Cutting an Undersea Cable**\
 `The authorities said they believed the vessel may have been involved in damaging the cable, the latest act of apparent sabotage in the Baltic Sea.`\
 https://nytimes.com/2025/01/31/world/europe/norway-russia-ship-baltic-undersea-cable.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097360/2025/01/31/st-louis-blues-trade-tiers-saad-
 **Broncos mailbag: Could Tee Higgins be worth an aggressive free-agency approach?**\
 `Plus, a look at some under-the-radar needs the Broncos have as they try to build a contending roster in 2025 and beyond.`\
 https://nytimes.com/athletic/6100386/2025/01/31/broncos-mailbag-free-agency-draft/
-
-**Tim Henman: Wimbledon appetite for 15-day Grand Slam is 'zero'**\
-`Tim Henman, a member of the All England Lawn Tennis Club (AELTC) board, has characterized the appetite for a 15-day tournament at Wimbledon as “zero.`\
-https://nytimes.com/athletic/6102460/2025/01/31/wimbledon-tennis-schedule-grand-slam-15-days-tim-henman/
 

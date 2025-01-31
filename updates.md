@@ -1,3 +1,7 @@
+**Man United exploring summer move for Sporting's Quenda**\
+`Manchester United are exploring a deal to sign winger Geovany Quenda from Sporting CP in the summer.`\
+https://nytimes.com/athletic/6102523/2025/01/31/manchester-united-transfers-geovany-quenda/
+
 **Norway Seizes Russian-Crewed Ship Suspected of Cutting an Undersea Cable**\
 `The authorities said they believed the vessel may have been involved in damaging the cable, the latest act of apparent sabotage in the Baltic Sea.`\
 https://nytimes.com/2025/01/31/world/europe/norway-russia-ship-baltic-undersea-cable.html
