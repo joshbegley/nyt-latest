@@ -1,3 +1,7 @@
+**Kash Patel as F.B.I. Director Could ‘Destabilize the Whole System’**\
+`Michelle Cottle and Garrett Graff sit down to discuss one of the “most dangerous” Trump appointees.`\
+https://nytimes.com/2025/01/31/opinion/kash-patel-fbi-hoover.html
+
 **Karla Sofía Gascón Apologizes for Social Media Posts**\
 `The Oscar-nominated actress, who plays a cartel leader in “Emilia Pérez,” was criticized for derogatory comments about Muslims, George Floyd and China.`\
 https://nytimes.com/2025/01/31/movies/karla-sofia-gascon-apology-netflix.html

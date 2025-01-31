@@ -1,3 +1,7 @@
+**Kash Patel as F.B.I. Director Could ‘Destabilize the Whole System’**\
+`Michelle Cottle and Garrett Graff sit down to discuss one of the “most dangerous” Trump appointees.`\
+https://nytimes.com/2025/01/31/opinion/kash-patel-fbi-hoover.html
+
 **Karla Sofía Gascón Apologizes for Social Media Posts**\
 `The Oscar-nominated actress, who plays a cartel leader in “Emilia Pérez,” was criticized for derogatory comments about Muslims, George Floyd and China.`\
 https://nytimes.com/2025/01/31/movies/karla-sofia-gascon-apology-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099276/2025/01/31/jhon-duran-aston-villa-saudi-tra
 **Duran completes move from Villa to Al Nassr**\
 `Jhon Duran has completed his move from Aston Villa to Saudi Pro League side Al Nassr.`\
 https://nytimes.com/athletic/6099208/2025/01/31/jhon-duran-al-nassr-aston-villa-transfer/
-
-**Sundance Gives Top Honor to ‘Atropia,’ a Comedy About Playing War**\
-`Like many of the independent films that premiered at this muted edition of Sundance, “Atropia” has not yet sold to a distributor.`\
-https://nytimes.com/2025/01/31/movies/sundance-film-festival-winners-list.html
 
