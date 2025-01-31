@@ -1,3 +1,15 @@
+**Lille agree deal to sign Akpom on loan from Ajax**\
+`Lille have reached an agreement with Ajax to sign Chuba Akpom on loan with an option to buy.`\
+https://nytimes.com/athletic/6102469/2025/01/31/chuba-akpom-transfer-ajax-lille/
+
+**Kelly accuses Man City of trying to 'assassinate my character' after Arsenal move**\
+`Chloe Kelly has accused Manchester City trying to &#8220;assassinate my character&#8221; following her deadline day move to Arsenal.`\
+https://nytimes.com/athletic/6102415/2025/01/31/chloe-kelly-arsenal-man-city-instagram/
+
+**Zion Williamson's improved defense has been obvious in his return from injury**\
+`Williamson's explosiveness has always been evident on offense, but now it is showing up on the other end. `\
+https://nytimes.com/athletic/6101783/2025/01/31/pelicans-zion-williamson-defense-nba/
+
 **'That's the fun part': Chiefs relish pulling off trick plays in their biggest games**\
 `The Chiefs have pulled off a trick play in each of their Super Bowl wins. What do Andy Reid and company have up their sleeves this time?`\
 https://nytimes.com/athletic/6101725/2025/01/31/chiefs-trick-plays-super-bowl/
