@@ -1,3 +1,19 @@
+**NHL salary cap to jump from $88 million to $113.5 million over next 3 seasons**\
+`The league told teams Friday that the cap will increase to $95.5 million in 2025-26, $104 million in 2026-27 and $113.5 million in 2027-28.`\
+https://nytimes.com/athletic/6103283/2025/01/31/nhl-salary-cap-rising/
+
+**Inside Naomi Girma's move to Chelsea**\
+`As Girma’s profile rose in the U.S. and the international game, the Wave’s technical staff realized they would struggle to afford her.`\
+https://nytimes.com/athletic/6102609/2025/01/31/naomi-girma-chelsea-deal/
+
+**Wrexham make another forward signing with addition of Burnley's Rodriguez**\
+`Wrexham have completed the signing of Burnley striker Jay Rodriguez, the second addition to the club&#8217;s forward ranks today.`\
+https://nytimes.com/athletic/6103124/2025/01/31/jay-rodriguez-wrexham-transfer/
+
+**Villa's Manas handed two-game ban, Newcastle's Tindall avoids sanction**\
+`Manas and Tindall were earlier charged with 'improper conduct' after being sent off following a melee in the St James' Park tunnel`\
+https://nytimes.com/athletic/6049267/2025/01/31/newcastle-aston-villa-tindall-manas/
+
 **German Opposition Gambles With Far-Right on Immigration, and Loses**\
 `Friedrich Merz and his Christian Democrats broke a political taboo by working with the hard-right Alternative for Germany to toughen rules on immigration. It did not pay off.`\
 https://nytimes.com/2025/01/31/world/europe/germany-friedrich-merz-immigration.html
