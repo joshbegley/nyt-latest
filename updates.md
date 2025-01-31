@@ -1,3 +1,7 @@
+**Chuck Todd Is Leaving NBC**\
+`A longtime major figure of NBC and MSNBC’s political coverage, Mr. Todd became less omnipresent in recent years.`\
+https://nytimes.com/2025/01/31/business/media/chuck-todd-is-leaving-nbc.html
+
 **At Sundance, a Sense of Uprooting Onscreen and Off**\
 `As it searches for a new home beyond Park City, Utah, the film festival showcases a neo-western, a promising comedic debut and two unsettling documentaries.`\
 https://nytimes.com/2025/01/31/movies/sundance-film-festival-alabama-solution-blknws.html
