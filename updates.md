@@ -1,3 +1,15 @@
+**Here is the latest on the crash.**\
+`By Mark Walker, Sydney Ember, Emily Steel and Qasim Nauman`\
+https://nytimes.com/live/2025/01/31/us/dc-plane-crash/here-is-the-latest-on-the-crash
+
+**Live Updates: Divers Scour Potomac as Investigators Seek Answers in Deadly Air Crash**\
+`Among the questions is whether an Army helicopter deviated from its approved flight path before it collided with a passenger jet near Washington. An initial report found that the air traffic controller on duty was doing a job usually handled by two people.`\
+https://nytimes.com/live/2025/01/31/us/dc-plane-crash
+
+**Hamas Names 3 Hostages It Says Will Be Freed This Weekend**\
+`Keith Siegel, an American-Israeli, will be released along with Yarden Bibas and Ofer Kalderon in exchange for scores of Palestinians being held in Israeli prisons, the group said.`\
+https://nytimes.com/2025/01/31/world/middleeast/hamas-hostages-israel-prisoners-release.html
+
 **Leroux: How midlevel exception deals may affect present and future trade deadlines**\
 `The CBA's apron structure limits certain transactions, but this wrinkle opens up some possibilities that didn't exist before.`\
 https://nytimes.com/athletic/6097621/2025/01/31/nba-trade-deadline-midlevel-exception-analysis/
