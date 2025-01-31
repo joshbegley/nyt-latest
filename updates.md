@@ -1,3 +1,19 @@
+**The World Economy Awaits Trump’s First Round of Tariffs**\
+`Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
+https://nytimes.com/2025/01/31/business/economy/trump-tariffs.html
+
+**Gaza’s Border Crossing With Egypt Reopens to Let Sick and Wounded Leave**\
+`The Rafah crossing has been shuttered for over eight months before as part of the cease-fire agreement between Israel and Hamas.`\
+https://nytimes.com/2025/01/31/world/middleeast/rafah-crossing-gaza-israel.html
+
+**NHL execs on Canucks’ big dilemmas: Trade Miller or Pettersson? Boeser and Demko’s futures?**\
+`The Athletic spoke to three NHL team executives —two current and one former — to get their thoughts on the hot-button topics in Vancouver.`\
+https://nytimes.com/athletic/6101674/2025/01/31/nhl-canucks-miller-pettersson-dysfunction/
+
+**James Carlos Blake, Novelist of Outlaw Life, Is Dead at 81**\
+`His savage fiction, set in the U.S.-Mexico borderlands, demonstrated his belief that “violence is the most elemental truth of life.”`\
+https://nytimes.com/2025/01/31/books/james-carlos-blake-dead.html
+
 **New Group Aims to Help Justice Dept. Employees Alarmed by Trump**\
 `The group, Justice Connection, intends to support employees who say they are facing professional and ethical crises under the new administration. It is likely to come under attack from Trump allies.`\
 https://nytimes.com/2025/01/31/us/politics/trump-justice-department.html

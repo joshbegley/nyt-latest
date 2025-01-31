@@ -1,3 +1,19 @@
+**The World Economy Awaits Trump’s First Round of Tariffs**\
+`Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
+https://nytimes.com/2025/01/31/business/economy/trump-tariffs.html
+
+**Gaza’s Border Crossing With Egypt Reopens to Let Sick and Wounded Leave**\
+`The Rafah crossing has been shuttered for over eight months before as part of the cease-fire agreement between Israel and Hamas.`\
+https://nytimes.com/2025/01/31/world/middleeast/rafah-crossing-gaza-israel.html
+
+**NHL execs on Canucks’ big dilemmas: Trade Miller or Pettersson? Boeser and Demko’s futures?**\
+`The Athletic spoke to three NHL team executives —two current and one former — to get their thoughts on the hot-button topics in Vancouver.`\
+https://nytimes.com/athletic/6101674/2025/01/31/nhl-canucks-miller-pettersson-dysfunction/
+
+**James Carlos Blake, Novelist of Outlaw Life, Is Dead at 81**\
+`His savage fiction, set in the U.S.-Mexico borderlands, demonstrated his belief that “violence is the most elemental truth of life.”`\
+https://nytimes.com/2025/01/31/books/james-carlos-blake-dead.html
+
 **New Group Aims to Help Justice Dept. Employees Alarmed by Trump**\
 `The group, Justice Connection, intends to support employees who say they are facing professional and ethical crises under the new administration. It is likely to come under attack from Trump allies.`\
 https://nytimes.com/2025/01/31/us/politics/trump-justice-department.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6102687/2025/01/31/aston-villa-unai-emery-ollie-wat
 **This Josephine Baker Oral History Has Never Been Published Here. Now We Know Why.**\
 `“Fearless and Free,” recorded between 1926 and 1949, is full of heroism, glamour, righteous anger — and things you wish you could unsee.`\
 https://nytimes.com/2025/01/31/books/review/josephine-baker-fearless-and-free.html
-
-**N.T.S.B. Investigates Washington Plane Crash: What to Know**\
-`The National Transportation Safety Board is an independent federal agency tasked with examining serious transport-related accidents.`\
-https://nytimes.com/2025/01/31/us/washington-dc-plane-crash-ntsb-investigation.html
-
-**Trump 2.0 Arrives in Force**\
-`Two weeks into Trump’s second term, Maggie Haberman, Jonathan Swan and Charlie Savage help us understand the overarching goals of Trump and his team, and make sense of the moment.`\
-https://nytimes.com/video/podcasts/the-daily/100000009957178/trump-2-0-arrives-in-force.html
-
-**Trump 2.0 Arrives in Force**\
-`Watch or listen to our political round table.`\
-https://nytimes.com/2025/01/31/podcasts/the-daily/trump-guantanamo-confirmation-rfk.html
-
-**Trump 2.0 Arrives in Force**\
-`In 2024, Maggie Haberman, Jonathan Swan and Charlie Savage told Daily listeners what a Trump term might look like. Now that we are two weeks into that reality, the same reporters discuss how things are shaping up.`\
-https://nytimes.com/video/podcasts/the-daily/100000009957175/trump-2-0-arrives-in-force.html
 
