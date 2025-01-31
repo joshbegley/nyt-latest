@@ -1,3 +1,11 @@
+**New Group Aims to Help Justice Dept. Employees Alarmed by Trump**\
+`The group, Justice Connection, intends to support employees who say they are facing professional and ethical crises under the new administration. It is likely to come under attack from Trump allies.`\
+https://nytimes.com/2025/01/31/us/politics/trump-justice-department.html
+
+**Eze out of Man Utd trip but Wharton set for return**\
+`Palace manager Oliver Glasner also confirmed that Chadi Riad and Cheick Doucoure have suffered serious injuries.`\
+https://nytimes.com/athletic/6102774/2025/01/31/crystal-palace-team-news-eze-wharton/
+
 **Row Z: Neymar makes friends for life, Adkins turns to Abraham Lincoln and Duran's dreams**\
 `Our weekly round-up of soccer's sillier side is something of a Saudi Pro League special, plus a dose of WPL Premier Division refereeing`\
 https://nytimes.com/athletic/6102470/2025/01/31/neymar-abraham-lincoln-adkins-gerrard-duran-row-z/
