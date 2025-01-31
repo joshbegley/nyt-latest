@@ -1,3 +1,7 @@
+**Flamengo say Everton have agreed loan deal for midfielder Alcaraz**\
+`The deal, Flamengo say, includes an option to buy if certain conditions are met.`\
+https://nytimes.com/athletic/6103411/2025/01/31/carlos-alcaraz-everton-transfer-flamengo/
+
 **FPL: Double Gameweek 25 announced - Who will play twice? What chip should I use?**\
 `Unexpected fixture announcements mean we're set for back-to-back double gameweeks - and that should change your chip strategy`\
 https://nytimes.com/athletic/6102754/2025/01/31/fantasy-premier-league-double-gameweek-25-tips/
