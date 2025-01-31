@@ -1,4 +1,4 @@
-**Official Email Tells Federal Workers to Find More Productive Jobs in the Private Sector**\
+**Official Email Tells Federal Workers to Find More Productive Jobs**\
 `On Thursday, vast numbers of the government work force received an “F.A.Q.s” e-mail on how to leave their “lower productivity jobs” in government for more productive ones in business.`\
 https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html
 
@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6102949/2025/01/31/sam-smith-wrexham-record-transfe
 `Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-tariffs
 
-**Gaza’s Border Crossing With Egypt Reopens to Let Sick and Wounded Leave**\
-`The Rafah crossing has been shuttered for over eight months before as part of the cease-fire agreement between Israel and Hamas.`\
+**Gaza’s Border Crossing With Egypt Reopening to Let Sick and Wounded Leave**\
+`The Rafah crossing has been shuttered for over eight months.`\
 https://nytimes.com/2025/01/31/world/middleeast/rafah-crossing-gaza-israel.html
 
 **NHL execs on Canucks’ big dilemmas: Trade Miller or Pettersson? Boeser and Demko’s futures?**\
