@@ -1,3 +1,19 @@
+**Leroux: How midlevel exception deals may affect present and future trade deadlines**\
+`The CBA's apron structure limits certain transactions, but this wrinkle opens up some possibilities that didn't exist before.`\
+https://nytimes.com/athletic/6097621/2025/01/31/nba-trade-deadline-midlevel-exception-analysis/
+
+**NBA trade deadline narratives I'm watching: Pacers' future, Cavs' conundrum and more**\
+`In Indiana and elsewhere, teams are checking their books and keeping an eye on their tax situations.`\
+https://nytimes.com/athletic/6101443/2025/01/31/nba-trade-deadline-trends-pacers-luxury-tax/
+
+**Which Senior Bowl participants could be on Browns' radar come April?**\
+`Projecting players from the Senior Bowl Cleveland could consider taking once the NFL Draft arrives.  `\
+https://nytimes.com/athletic/6101458/2025/01/31/browns-senior-bowl-2025-mock-draft/
+
+**Super Bowl or Senior Citizen Bowl? Older coaches are having a moment in the NFL**\
+`The Super Bowl coaching staffs feature five coaches in their 60s, including Andy Reid, the oldest head coach in the NFL in 2024.`\
+https://nytimes.com/athletic/6097726/2025/01/31/super-bowl-nfl-older-coaches-andy-reid/
+
 **Arsenal target Nypan expected to stay at Rosenborg until end of season**\
 `Arsenal transfer target Sverre Nypan is expected to stay at Rosenborg until the end of the season.`\
 https://nytimes.com/athletic/6035335/2025/01/31/arsenal-transfers-sverre-nypan-stays/
