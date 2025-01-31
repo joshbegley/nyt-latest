@@ -1,4 +1,4 @@
-**The treasury official who oversees payments resigns suddenly.**\
+**The Treasury official who oversees payments resigns suddenly.**\
 `Elon Musk has deployed engineers to Treasury to find a way to shut down payments unilaterally.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/the-treasury-official-who-oversees-payments-resigns-suddenly
 
