@@ -1,3 +1,7 @@
+**Chuck Todd Is Leaving NBC**\
+`A longtime major figure of NBC and MSNBC’s political coverage, Mr. Todd became less omnipresent in recent years.`\
+https://nytimes.com/2025/01/31/business/media/chuck-todd-is-leaving-nbc.html
+
 **At Sundance, a Sense of Uprooting Onscreen and Off**\
 `As it searches for a new home beyond Park City, Utah, the film festival showcases a neo-western, a promising comedic debut and two unsettling documentaries.`\
 https://nytimes.com/2025/01/31/movies/sundance-film-festival-alabama-solution-blknws.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6103288/2025/01/31/club-world-cup-ball-design-adida
 **A Terrible Silence**\
 `There’s a haunting echo between the plane crash on Wednesday and the one 43 years ago in Washington.`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/air-florida-wichita-plane-crash-washington
-
-**Remembering the Way It Was**\
-`Orlando Mayorquín, a California native who has been covering the wildfires, reflects on the Palisades that lives on only in memories.`\
-https://nytimes.com/2025/01/31/us/wildfires-palisades-memories.html
 
