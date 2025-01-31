@@ -1,3 +1,19 @@
+**A Trump envoy will meet Venezuela’s Maduro, and Rubio heads to the Panama Canal.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/a-trump-envoy-will-meet-venezuelas-maduro-and-rubio-heads-to-the-panama-canal
+
+**Before Crash, an Alarming Pattern of Near-Misses Between Planes**\
+`Understaffing, poor working conditions and outdated technology have for years strained the system that keeps planes from crashing into each other.`\
+https://nytimes.com/2025/01/31/us/plane-crash-near-misses-airlines.html
+
+**Adidas unveils 2025 Club World Cup ball: 'The design pays homage to the United States'**\
+`The first edition of the expanded tournament will take place in the U.S. this summer.`\
+https://nytimes.com/athletic/6103288/2025/01/31/club-world-cup-ball-design-adidas/
+
+**A Terrible Silence**\
+`There’s a haunting echo between the plane crash on Wednesday and the one 43 years ago in Washington.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/air-florida-wichita-plane-crash-washington
+
 **Remembering the Way It Was**\
 `Orlando Mayorquín, a California native who has been covering the wildfires, reflects on the Palisades that lives on only in memories.`\
 https://nytimes.com/2025/01/31/us/wildfires-palisades-memories.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6103124/2025/01/31/jay-rodriguez-wrexham-transfer/
 **Villa's Manas handed two-game ban, Newcastle's Tindall avoids sanction**\
 `Manas and Tindall were earlier charged with 'improper conduct' after being sent off following a melee in the St James' Park tunnel`\
 https://nytimes.com/athletic/6049267/2025/01/31/newcastle-aston-villa-tindall-manas/
-
-**German Opposition Gambles With Far-Right on Immigration, and Loses**\
-`Friedrich Merz and his Christian Democrats broke a political taboo by working with the hard-right Alternative for Germany to toughen rules on immigration. It did not pay off.`\
-https://nytimes.com/2025/01/31/world/europe/germany-friedrich-merz-immigration.html
-
-**Scoop City: Five what-ifs for 2025**\
-`Inside: Three great stories to read, two prop bets and some big what-ifs for 2025.`\
-https://nytimes.com/athletic/6103251/2025/01/31/five-2025-what-ifs-nfl-scoop-city/
-
-**Santos confirm Neymar's return**\
-`The 32-year-old was a free agent after terminating his contract with Saudi Arabian side Al Hilal.`\
-https://nytimes.com/athletic/6101303/2025/01/31/neymar-santos-transfer-return/
-
-**Where’s the Compassion? Trump’s Use of the Crash to Attack D.E.I.**\
-`Readers are horrified that the president used the tragedy to attack diversity policies. Also: Robert F. Kennedy Jr.’s nomination testimony.`\
-https://nytimes.com/2025/01/31/opinion/dc-crash-trump-diversity.html
 
