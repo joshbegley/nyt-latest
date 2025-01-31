@@ -1,3 +1,7 @@
+**‘Crash, Crash, Crash!’: Audio Reveals History of Close Calls at Reagan Airport**\
+`As investigators continue to try to determine the cause of Wednesday’s plane collision in Washington, D.C., control tower audio from Reagan National Airport reveals a history of safety issues, airspace congestion and near misses.`\
+https://nytimes.com/video/us/100000009959220/dc-plane-crash-reagan-airport-safety-issues.html
+
 **Brighton sign defender Cashin from Derby**\
 `Brighton &amp; Hove Albion have completed the signing of defender Eiran Cashin from Derby County.`\
 https://nytimes.com/athletic/6104157/2025/01/31/eiran-cashin-brighton-transfer/

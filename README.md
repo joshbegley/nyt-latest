@@ -1,3 +1,11 @@
+**Nonprofits Dread Attempts to Scrutinize Diversity Initiatives**\
+`Multiple groups said that a government email address created for reports of attempts to thwart the Trump administration’s crackdown was used to sign up for their newsletters.`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/nonprofits-dread-attempts-to-scrutinize-diversity-initiatives
+
+**Rationalizing the Ryan Brasier decision in the crowded Dodgers bullpen**\
+`Dodgers GM Brandon Gomes called it a "difficult decision" to part with Ryan Brasier after the team signed Kirby Yates.`\
+https://nytimes.com/athletic/6104165/2025/01/31/dodgers-ryan-brasier-designated-for-assignment/
+
 **‘Crash, Crash, Crash!’: Audio Reveals History of Close Calls at Reagan Airport**\
 `As investigators continue to try to determine the cause of Wednesday’s plane collision in Washington, D.C., control tower audio from Reagan National Airport reveals a history of safety issues, airspace congestion and near misses.`\
 https://nytimes.com/video/us/100000009959220/dc-plane-crash-reagan-airport-safety-issues.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/us/trump-freeze-blocked.html
 **Mets agree with infielder Nick Madrigal on 1-year deal: Sources**\
 `Madrigal is set to compete for a role along with Brett Baty, Luisangel Acuña and Ronny Mauricio, among others.`\
 https://nytimes.com/athletic/6104125/2025/01/31/mets-nick-madrigal-contract/
-
-**Trump Raises New Threat to Sanctuary Cities: Blocking Transportation Dollars**\
-`A new order revives an old battle about how much an administration is allowed to coerce cities and states by withholding money.`\
-https://nytimes.com/2025/01/31/upshot/sanctuary-cities-trump-transportation-funds.html
-
-**With Trump Unbound, It’s a Tale of Two Strategies for Democrats in Congress**\
-`President Trump’s blizzard of actions elicited two very different responses from Senate and House Democrats — one media-saturating and one restrained — reflecting a debate on how best to respond.`\
-https://nytimes.com/2025/01/31/us/politics/trump-democrats-response.html
 
