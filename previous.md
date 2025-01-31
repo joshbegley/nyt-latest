@@ -1,3 +1,11 @@
+**Education Dept. Tells Schools to Change Sexual Misconduct Rules**\
+`The guidance bolsters the rights of students accused of sexual misconduct and scraps Biden-era rules extending protections to L.G.B.T.Q. students.`\
+https://nytimes.com/2025/01/31/us/politics/education-dept-tells-schools-to-change-sexual-misconduct-rules.html
+
+**This Carnivore Turned Up in Egypt After Vanishing 5,000 Years Ago**\
+`When a scientist received a video of a spotted hyena in the southern part of his country, he thought someone was playing a trick on him.`\
+https://nytimes.com/2025/01/31/science/spotted-hyena-egypt.html
+
 **Does Humanity Have a Future?**\
 `In search of a ‘Golden Path’ through the age of A.I.`\
 https://nytimes.com/2025/01/31/opinion/andreessen-bannon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6103563/2025/01/31/eno-sarris-live-baseball-chat-1-
 **These California Olives Are Unique and Delicious. They May Already Be Gone.**\
 `Dramatic climate events and crop shortages have Graber, a century-old family company, facing permanent closure.`\
 https://nytimes.com/2025/01/31/dining/graber-california-olives.html
-
-**Once a Trump Foil, Warren Seeks Collaboration on Policy**\
-`As Democrats reel from defeat, Senator Elizabeth Warren, the Massachusetts progressive, preaches focus and accountability.`\
-https://nytimes.com/2025/01/31/us/politics/elizabeth-warren-trump-policy.html
-
-**Western Oregon women's basketball players allege abuse, sue for $28 million**\
-`Players say they were forced to practice while injured and faced harsh treatment from two coaches.`\
-https://nytimes.com/athletic/6103284/2025/01/31/western-oregon-womens-basketball-lawsuit/
 

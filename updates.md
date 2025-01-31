@@ -1,3 +1,11 @@
+**Education Dept. Tells Schools to Change Sexual Misconduct Rules**\
+`The guidance bolsters the rights of students accused of sexual misconduct and scraps Biden-era rules extending protections to L.G.B.T.Q. students.`\
+https://nytimes.com/2025/01/31/us/politics/education-dept-tells-schools-to-change-sexual-misconduct-rules.html
+
+**This Carnivore Turned Up in Egypt After Vanishing 5,000 Years Ago**\
+`When a scientist received a video of a spotted hyena in the southern part of his country, he thought someone was playing a trick on him.`\
+https://nytimes.com/2025/01/31/science/spotted-hyena-egypt.html
+
 **Does Humanity Have a Future?**\
 `In search of a ‘Golden Path’ through the age of A.I.`\
 https://nytimes.com/2025/01/31/opinion/andreessen-bannon.html
