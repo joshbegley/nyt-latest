@@ -1,3 +1,7 @@
+**At Sundance, a Sense of Uprooting Onscreen and Off**\
+`As it searches for a new home beyond Park City, Utah, the film festival showcases a neo-western, a promising comedic debut and two unsettling documentaries.`\
+https://nytimes.com/2025/01/31/movies/sundance-film-festival-alabama-solution-blknws.html
+
 **The Secret to Summery Desserts in Winter**\
 `Two easy jam-filled desserts satisfy the craving for bright, bold berries when they’re far from their peak.`\
 https://nytimes.com/2025/01/31/dining/winter-jam-dessert-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/27/opinion/thepoint/air-florida-wichita-plane-c
 **Remembering the Way It Was**\
 `Orlando Mayorquín, a California native who has been covering the wildfires, reflects on the Palisades that lives on only in memories.`\
 https://nytimes.com/2025/01/31/us/wildfires-palisades-memories.html
-
-**Brandon Hughes returning to Cubs on a minor-league deal: Source**\
-`Back in 2022, Hughes posted a 3.12 ERA in 57 appearances for a rebuilding team, including eight saves.`\
-https://nytimes.com/athletic/6101345/2025/01/31/brandon-hughes-chicago-cubs-deal/
 

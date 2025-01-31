@@ -1,3 +1,7 @@
+**At Sundance, a Sense of Uprooting Onscreen and Off**\
+`As it searches for a new home beyond Park City, Utah, the film festival showcases a neo-western, a promising comedic debut and two unsettling documentaries.`\
+https://nytimes.com/2025/01/31/movies/sundance-film-festival-alabama-solution-blknws.html
+
 **The Secret to Summery Desserts in Winter**\
 `Two easy jam-filled desserts satisfy the craving for bright, bold berries when they’re far from their peak.`\
 https://nytimes.com/2025/01/31/dining/winter-jam-dessert-recipes.html
