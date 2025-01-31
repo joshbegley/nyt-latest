@@ -1,3 +1,15 @@
+**The Skater Who Stuck a Triple Axel Before Boarding the Flight**\
+`Cory Haynos was among several budding figure-skating stars who died in the plane crash near Reagan National Airport.`\
+https://nytimes.com/2025/01/30/us/cory-haynos-figure-skater-plane-crash.html
+
+**Appeals Court Refuses to Reinstate Confession in U.S.S. Cole Case**\
+`The decision was a blow to prosecutors pursuing the longest-running death-penalty case in the military commission system.`\
+https://nytimes.com/2025/01/30/us/politics/appeal-confession-uss-cole.html
+
+**Senators owner responds to fan backlash after Quebec City announcement**\
+`Andlauer says he didn't realize how much "scar tissue" had been left with the fan base because of relocation talk in previous years.`\
+https://nytimes.com/athletic/6100656/2025/01/30/ottawa-senators-quebec-city-michael-andlauer/
+
 **Helicopter in Crash Near Washington Might Have Been Flying Higher Than Approved**\
 `The Army Black Hawk also might have been outside of its flight path when it collided with a commercial passenger jet at Reagan National Airport on Wednesday night.`\
 https://nytimes.com/2025/01/30/us/army-helicopter-dc-plane-crash.html
