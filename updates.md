@@ -1,3 +1,15 @@
+**An Elias Lindholm offensive outburst, of all things, goes to waste**\
+`Lindholm had a hand in both Bruins goals, but the Jets exploded in the third period to deny Boston a win.`\
+https://nytimes.com/athletic/6102110/2025/01/30/bruins-elias-lindholm-offense-poitras-jets/
+
+**Is Connor Bedard getting a fair shake from the refs? Nick Foligno doesn't think so**\
+`"We have star players, too, that don't seem to be protected as well as some of the other teams' stars," Blackhawks captain Foligno said.`\
+https://nytimes.com/athletic/6102069/2025/01/30/blackhawks-connor-bedard-nick-foligno/
+
+**Prosecutors counter Ippei Mizuhara argument for leniency in Ohtani fraud case**\
+`Prosecutors stayed firm on their request for a five-year sentence for Mizuhara, who is asking for 18 months in prison. `\
+https://nytimes.com/athletic/6102050/2025/01/30/ippei-mizuhara-fraud-shohei-ohtani-leniency/
+
 **Is Connor Bedard getting a fair shake from the refs? Nick Foligno doesn't think so**\
 `"We have star players, too, that don’t seem to be protected as well as some of the other teams’ stars," Blackhawks captain Foligno said.`\
 https://nytimes.com/athletic/6102069/2025/01/30/blackhawks-connor-bedard-nick-foligno/
