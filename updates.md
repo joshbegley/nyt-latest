@@ -1,3 +1,7 @@
+**Takeaways From Day 2 of Kennedy’s Confirmation Hearings**\
+`Robert F. Kennedy Jr., President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
+https://nytimes.com/2025/01/30/us/politics/rfk-jr-confirmation-takeaways.html
+
 **A supervisor allowed an air traffic controller to leave before the crash.**\
 `Dual duties of handling helicopter and plane traffic were handed to one person on Wednesday night before a Black Hawk collided with a regional jet.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-supervisor-allowed-an-air-traffic-controller-to-leave-before-the-crash
