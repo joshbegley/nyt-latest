@@ -1,3 +1,7 @@
+**Norway Seizes Russian-Crewed Ship Suspected of Cutting an Undersea Cable**\
+`The authorities said they believed the vessel may have been involved in damaging the cable, the latest act of apparent sabotage in the Baltic Sea.`\
+https://nytimes.com/2025/01/31/world/europe/norway-russia-ship-baltic-undersea-cable.html
+
 **The Athletic FC: El Ghazi on sacking for social media post, City face Real Madrid in CL**\
 `Today's Athletic FC newsletter...`\
 https://nytimes.com/athletic/6102495/2025/01/31/el-ghazi-man-city-real-madrid-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100386/2025/01/31/broncos-mailbag-free-agency-draf
 **Tim Henman: Wimbledon appetite for 15-day Grand Slam is 'zero'**\
 `Tim Henman, a member of the All England Lawn Tennis Club (AELTC) board, has characterized the appetite for a 15-day tournament at Wimbledon as “zero.`\
 https://nytimes.com/athletic/6102460/2025/01/31/wimbledon-tennis-schedule-grand-slam-15-days-tim-henman/
-
-**What we're hearing about NHL players' priorities in upcoming CBA talks**\
-`The Athletic spoke to Walsh as well as players around the league ahead of a new round of CBA talks between the NHLPA and NHL.`\
-https://nytimes.com/athletic/6101151/2025/01/31/nhl-players-marty-walsh-cba-talks/
 
