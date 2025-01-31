@@ -1,3 +1,7 @@
+**Is Connor Bedard getting a fair shake from the refs? Nick Foligno doesn't think so**\
+`"We have star players, too, that don’t seem to be protected as well as some of the other teams’ stars," Blackhawks captain Foligno said.`\
+https://nytimes.com/athletic/6102069/2025/01/30/blackhawks-connor-bedard-nick-foligno/
+
 **Tell Us How Tariffs on Goods From China Will Affect Your Business**\
 `The New York Times wants to talk to business owners about President Trump’s plan to impose additional duties on imports from China.`\
 https://nytimes.com/2025/01/30/business/china-tariffs-callout-trump.html
