@@ -1,3 +1,7 @@
+**Word of the Day: obsolescence**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/01/31/learning/word-of-the-day-obsolescence.html
+
 **Is Kobbie Mainoo better suited to thrive as a Manchester United No 10?**\
 `Ruben Amorim suggested the youngster had been 'struggling a lot defending as a midfielder' and thrust him into a more advanced role at FCSB`\
 https://nytimes.com/athletic/6102075/2025/01/31/mainoo-manchester-united-amorim-europa-fcsb-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096483/2025/01/31/jarrod-bowen-tomas-soucek-west-h
 **Do Forest need a Plan B?**\
 `After the 5-0 defeat at Bournemouth, it could be argued that Forest need to tweak their approach to secure European football next season`\
 https://nytimes.com/athletic/6099998/2025/01/31/nottingha-forest-plan-b-counter-attack/
-
-**Enzo Maresca, in-game management and exploring why Chelsea fade so often**\
-`The Londoners' games are following an all-too familiar course, but are their second-half toils down to fatigue or coaching inflexibility?`\
-https://nytimes.com/athletic/6100464/2025/01/31/maresca-chelsea-substitutions-ingame-management-fatigue/
 
