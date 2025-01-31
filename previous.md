@@ -1,3 +1,11 @@
+**Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
+`Acquiring Cease would boost the Twins' chances of winning the AL Central, but also send a message to fans as the team begins a new TV era.`\
+https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
+
+**'Beyond disgusted': Dana White blasts Bryce Mitchell's praise for Hitler**\
+`Mitchell, speaking on the first episode of his podcast, called Hitler "a good guy."`\
+https://nytimes.com/athletic/6102901/2025/01/31/ufc-bryce-mitchell-hitler-comments-dana-white/
+
 **Talented but temperamental: Duran's Villa spell has been eventful - €77m was too good to refuse**\
 `Villa manager Emery was heavily invested in making the Colombia a world-class talent - but a transfer had felt inevitable for months`\
 https://nytimes.com/athletic/6099276/2025/01/31/jhon-duran-aston-villa-saudi-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/health/rfk-jr-financial-stake-hpv-lawsuits-ethics
 **Challenging How Germany Remembers the 1972 Olympics Attack**\
 `With tensions running high over the war in Gaza, a new opera and a movie are looking back on the moment when Israeli athletes were murdered at the Munich Games.`\
 https://nytimes.com/2025/01/31/arts/music/echo-72-opera-september-5.html
-
-**Chuck Todd Is Leaving NBC**\
-`A longtime major figure of NBC and MSNBC’s political coverage, Mr. Todd became less omnipresent in recent years.`\
-https://nytimes.com/2025/01/31/business/media/chuck-todd-nbc.html
-
-**At Sundance, a Sense of Uprooting Onscreen and Off**\
-`As it searches for a new home beyond Park City, Utah, the film festival showcases a neo-western, a promising comedic debut and two unsettling documentaries.`\
-https://nytimes.com/2025/01/31/movies/sundance-film-festival-alabama-solution-blknws.html
 

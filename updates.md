@@ -1,3 +1,11 @@
+**Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
+`Acquiring Cease would boost the Twins' chances of winning the AL Central, but also send a message to fans as the team begins a new TV era.`\
+https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
+
+**'Beyond disgusted': Dana White blasts Bryce Mitchell's praise for Hitler**\
+`Mitchell, speaking on the first episode of his podcast, called Hitler "a good guy."`\
+https://nytimes.com/athletic/6102901/2025/01/31/ufc-bryce-mitchell-hitler-comments-dana-white/
+
 **Chuck Todd Is Leaving NBC**\
 `A longtime major figure of NBC and MSNBC’s political coverage, Mr. Todd became less omnipresent in recent years.`\
 https://nytimes.com/2025/01/31/business/media/chuck-todd-nbc.html
