@@ -1,3 +1,7 @@
+**Chuck Todd Is Leaving NBC**\
+`A longtime major figure of NBC and MSNBC’s political coverage, Mr. Todd became less omnipresent in recent years.`\
+https://nytimes.com/2025/01/31/business/media/chuck-todd-nbc.html
+
 **Talented but temperamental: Duran's Villa spell has been eventful - €77m was too good to refuse**\
 `Villa manager Emery was heavily invested in making the Colombia a world-class talent - but a transfer had felt inevitable for months`\
 https://nytimes.com/athletic/6099276/2025/01/31/jhon-duran-aston-villa-saudi-transfer/
