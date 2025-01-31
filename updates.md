@@ -1,3 +1,11 @@
+**A supervisor allowed an air traffic controller to leave before the crash.**\
+`Dual duties of handling helicopter and plane traffic were handed to one person on Wednesday night before a Black Hawk collided with a regional jet.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-supervisor-allowed-an-air-traffic-controller-to-leave-before-the-crash
+
+**Second Sinkhole Hampers Rescue of Truck Driver in Japan**\
+`As rescue efforts were underway for the 74-year-old man stuck in a sinkhole, another one opened up.`\
+https://nytimes.com/video/world/asia/100000009961268/japan-sinkhole-truck-yashio.html
+
 **The Skater Who Stuck a Triple Axel Before Boarding the Flight**\
 `Cory Haynos was among several budding figure-skating stars who died in the plane crash near Reagan National Airport.`\
 https://nytimes.com/2025/01/30/us/cory-haynos-figure-skater-plane-crash.html
