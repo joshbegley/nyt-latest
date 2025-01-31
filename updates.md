@@ -1,3 +1,7 @@
+**Woman Pardoned in Jan. 6 Case Gets 10-Year Sentence in Drunken-Driving Death**\
+`Prosecutors said the woman was intoxicated when she crashed into another car in Missouri, killing a passenger, on Jan. 5, 2022, a year after she joined the mob that stormed the U.S. Capitol.`\
+https://nytimes.com/2025/01/31/us/missouri-woman-drunk-driving-death-jan-6.html
+
 **Super Bowl 59 odds, picks: Chiefs hold as 1.5-point favorites in rematch with Eagles**\
 `The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
 https://nytimes.com/athletic/6084432/2025/01/31/super-bowl-59-odds-line-chiefs-eagles/
