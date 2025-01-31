@@ -1,3 +1,7 @@
+**Former MVP Nneka Ogwumike re-signs with Seattle Storm**\
+`Ogwumike signed in Seattle as a free agent in 2024.`\
+https://nytimes.com/athletic/6104263/2025/01/31/nneka-ogwumike-seattle-storm-contract-wnba/
+
 **Phyllis Dalton, Oscar-Winning Costume Designer for Historical Epics, Dies at 99**\
 `A look back at some of her most celebrated works, including “Doctor Zhivago,” “The Princess Bride” and “Lawrence of Arabia.”`\
 https://nytimes.com/2025/01/31/movies/phyllis-dalton-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009959220/dc-plane-crash-reagan-airport-safet
 **Brighton sign defender Cashin from Derby**\
 `Brighton &amp; Hove Albion have completed the signing of defender Eiran Cashin from Derby County.`\
 https://nytimes.com/athletic/6104157/2025/01/31/eiran-cashin-brighton-transfer/
-
-**What skyrocketing NHL salary cap means for Maple Leafs, Mitch Marner, John Tavares and free agency**\
-`How well Toronto navigates this paradigm shift will play a big part in determining just how long its core's contention window stays open.`\
-https://nytimes.com/athletic/6103609/2025/01/31/nhl-salary-cap-maple-leafs-marner/
 

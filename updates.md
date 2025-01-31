@@ -1,3 +1,7 @@
+**Former MVP Nneka Ogwumike re-signs with Seattle Storm**\
+`Ogwumike signed in Seattle as a free agent in 2024.`\
+https://nytimes.com/athletic/6104263/2025/01/31/nneka-ogwumike-seattle-storm-contract-wnba/
+
 **Phyllis Dalton, Oscar-Winning Costume Designer for Historical Epics, Dies at 99**\
 `A look back at some of her most celebrated works, including “Doctor Zhivago,” “The Princess Bride” and “Lawrence of Arabia.”`\
 https://nytimes.com/2025/01/31/movies/phyllis-dalton-dead.html
