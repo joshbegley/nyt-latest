@@ -1,3 +1,15 @@
+**Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
+`Acquiring Cease would boost the Twins' chances of winning the AL Central but also send a message to fans as the team begins a new TV era.`\
+https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
+
+**Kennedy Says He Will Give HPV Vaccine Lawsuit Proceeds to His Son**\
+`Robert F. Kennedy Jr. also disclosed that he had reached at least one settlement agreement with a company or individual that has accused him of “misconduct or inappropriate behavior.”`\
+https://nytimes.com/2025/01/31/health/rfk-jr-financial-stake-hpv-lawsuits-ethics-confirmation.html
+
+**Challenging How Germany Remembers the 1972 Olympics Attack**\
+`With tensions running high over the war in Gaza, a new opera and a movie are looking back on the moment when Israeli athletes were murdered at the Munich Games.`\
+https://nytimes.com/2025/01/31/arts/music/echo-72-opera-september-5.html
+
 **Once a Trump Foil, Warren Seeks Collaboration on Policy**\
 `As Democrats reel from defeat, Senator Elizabeth Warren, the Massachusetts progressive, preaches focus and accountability.`\
 https://nytimes.com/2025/01/31/us/politics/elizabeth-warren-trump-policy.html
