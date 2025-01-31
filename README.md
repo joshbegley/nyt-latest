@@ -1,3 +1,7 @@
+**Gavi signs new Barcelona contract until 2030**\
+`Barcelona midfielder Gavi has signed a new contract until 20230.`\
+https://nytimes.com/athletic/6099457/2025/01/31/barcelona-gavi-new-contract-update/
+
 **The Fed’s Preferred Inflation Measure Ticked Up Slightly in December**\
 `The central bank needs to see further progress on inflation or weakness in the labor market to resume interest rate cuts.`\
 https://nytimes.com/2025/01/31/business/fed-inflation-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/world/europe/norway-russia-ship-baltic-undersea-c
 **The Athletic FC: El Ghazi on sacking for social media post, City face Real Madrid in CL**\
 `Today's Athletic FC newsletter...`\
 https://nytimes.com/athletic/6102495/2025/01/31/el-ghazi-man-city-real-madrid-champions-league/
-
-**Nowhere to Hide From Trump’s Tariffs**\
-`President Trump’s long-promised trade war could start as soon as Saturday, leaving companies scrambling for a workaround for their global supply chains.`\
-https://nytimes.com/2025/01/31/business/dealbook/trumps-tariffs-colombia.html
 
