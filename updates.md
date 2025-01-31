@@ -1,3 +1,7 @@
+**How Pam Shriver's Grand Slam trophies, stolen during the LA wildfires, were found**\
+`Shriver had trophies from two majors stolen during the Palisades fire in Los Angeles.`\
+https://nytimes.com/athletic/6100800/2025/01/31/pam-shriver-grand-slam-trophies-stolen-found-la-wildfires/
+
 **Dog and Microphones**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/01/31/learning/dog-and-microphones.html
