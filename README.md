@@ -1,3 +1,7 @@
+**Row Z: Neymar makes friends for life, Adkins turns to Abraham Lincoln and Duran's dreams**\
+`Our weekly round-up of soccer's sillier side is something of a Saudi Pro League special, plus a dose of WPL Premier Division refereeing`\
+https://nytimes.com/athletic/6102470/2025/01/31/neymar-abraham-lincoln-adkins-gerrard-duran-row-z/
+
 **See Lucy Run, 3.2 Million Years Ago**\
 `Our early human ancestor was capable of running, if slowly, a new study finds.`\
 https://nytimes.com/2025/01/31/science/running-afarensis-lucy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/your-money/i-bonds-tax-refund.html
 **The Fed Is Sitting on the Sidelines, but for How Long?**\
 `The relative calm in the markets may not survive upheaval in the A.I. sector and a deluge of disruptive Trump policies, our columnist says.`\
 https://nytimes.com/2025/01/31/business/stock-market-ai-federal-reserve-immigration.html
-
-**Listen: Has Raheem Sterling already started his last game for Arsenal?**\
-`On the latest episode of Handbrake Off, we discuss Raheem Sterling's struggles at Arsenal.`\
-https://nytimes.com/athletic/6100830/2025/01/31/handbrake-off-raheem-sterling/
 
