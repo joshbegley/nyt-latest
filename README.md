@@ -1,3 +1,27 @@
+**Dog and Microphones**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/01/31/learning/dog-and-microphones.html
+
+**On Sunday, the Grammys Hope to Hit the Right Note**\
+`Our music industry correspondent talks about what he’ll be watching, and what may look different, at this year’s music awards.`\
+https://nytimes.com/2025/01/31/reader-center/grammy-coverage.html
+
+**Dior Men’s Designer Departs, Leaving Unanswered Questions**\
+`The exit of Kim Jones, the label’s creative director since 2018, was abrupt but not unexpected.`\
+https://nytimes.com/2025/01/31/style/dior-mens-designer-departs-leaving-unanswered-questions.html
+
+**What Mass Deportations Would Do to New York City’s Economy**\
+`Major industries like construction, child care and restaurants rely heavily on undocumented workers, who would be hard to replace, economists and employers say.`\
+https://nytimes.com/2025/01/31/nyregion/nyc-mass-deportations-economy.html
+
+**A Newspaper’s Fight With a Trump-Aligned Local Official Heads to Court**\
+`Newsday plans to sue Bruce Blakeman, the executive of Nassau County, N.Y., after he made The New York Post the government’s official publication.`\
+https://nytimes.com/2025/01/31/nyregion/newsday-suing-blakeman-nassau-county.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/31/crosswords/spelling-bee-forum.html
+
 **Cole Sillinger's first career OT goal ends Blue Jackets' 'boring' win in Vegas**\
 `Sillinger's goal gave the Blue Jackets a 2-1 victory over the Golden Knights. `\
 https://nytimes.com/athletic/6102272/2025/01/31/cole-sillinger-overtime-goal-blue-jackets-win-vegas/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/01/31/learning/word-of-the-day-obsolescence.html
 **Is Kobbie Mainoo better suited to thrive as a Manchester United No 10?**\
 `Ruben Amorim suggested the youngster had been 'struggling a lot defending as a midfielder' and thrust him into a more advanced role at FCSB`\
 https://nytimes.com/athletic/6102075/2025/01/31/mainoo-manchester-united-amorim-europa-fcsb-10/
-
-**Late Night Notes Trump’s Flagship Bugbear: D.E.I.**\
-`“Damn you, diversity initiatives! Why are you responsible for every historical tragedy?” Michael Kosta said on Thursday.`\
-https://nytimes.com/2025/01/31/arts/television/late-night-trump-dei.html
-
-**Ricardo Pepi ruled out with knee injury, may miss Nations League: Source**\
-`Pepi's knee issue presents injury blow for PSV and the USMNT`\
-https://nytimes.com/athletic/6102213/2025/01/31/ricardo-pepi-injury-psv-liverpool/
-
-**NHL trade grades: Flames bet on upside, Flyers hope for short-term Andrei Kuzmenko spark**\
-`The Flames made a cheap upgrade in their pursuit of a playoff spot, but will Kuzmenko contribute for Philadelphia?`\
-https://nytimes.com/athletic/6102209/2025/01/31/nhl-trade-grades-flames-flyers/
-
-**'It's poetry': Inside Marc-Andre Fleury's magical Montreal swan song**\
-`Fleury shut out the Canadiens in his final game in his home province of Quebec, earning a standing ovation lasting over two minutes.`\
-https://nytimes.com/athletic/6102104/2025/01/31/marc-andre-fleury-montreal-swan-song-wild-canadiens/
-
-**Flames trade Kuzmenko, Pelletier and picks to Flyers for Frost, Farabee**\
-`The Calgary Flames traded wingers Andrei Kuzmenko and Jakob Pelletier, plus second- and seventh-round draft picks, to the Philadelphia Flyers on Thursday night for center Morgan Frost and winger Joel Farabee.`\
-https://nytimes.com/athletic/6102174/2025/01/31/flyers-flames-trade-frost-kuzmenko/
-
-**Why Liverpool and Kerkez would make sense as a summer transfer**\
-`Arne Slot needs more options at left-back and the Bournemouth youngster seems to tick every box`\
-https://nytimes.com/athletic/6098768/2025/01/31/liverpool-milos-kerkez-transfer/
 
