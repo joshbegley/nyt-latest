@@ -1,3 +1,7 @@
+**Official Email Urges Federal Workers to Find More Productive Jobs**\
+`The message reiterated an offer for a chance to take a second job or travel to a “dream destination” and remain on the federal payroll for months. But questions remain about whether that would be legal.`\
+https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html
+
 **Watch: Bills' existentialism, rooting for the Chiefs and more in the TAFS mailbag**\
 `It's mailbag time on TAFS: Is it fine to root for a Chiefs win?`\
 https://nytimes.com/athletic/6102494/2025/01/31/athletic-football-show-mailbag-chiefs-bills/

@@ -1,3 +1,11 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 24?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6095275/2025/01/31/premier-league-predicted-lineups-gameweek-24/
+
+**Chili Gumbo, Banana Pancakes and Salty-Sweet Trail Mix**\
+`Labor in the kitchen can be as restorative as napping or meditation. It’s how I like to spend my free time.`\
+https://nytimes.com/2025/01/31/dining/chili-gumbo-banana-pancakes-trail-mix.html
+
 **Watch: Bills' existentialism, rooting for the Chiefs and more in the TAFS mailbag**\
 `It's mailbag time on TAFS: Is it fine to root for a Chiefs win?`\
 https://nytimes.com/athletic/6102494/2025/01/31/athletic-football-show-mailbag-chiefs-bills/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/01/30/us/president-trump-news/the-treasury-officia
 **The Bounce: Victor Wembanyama earns NBA All-Star nod as rosters revealed. Who got snubbed?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6102604/2025/01/31/victor-wembanyama-spurs-nba-all-star-trade-deadline-the-bounce/
-
-**Wrexham sign Reading striker Smith in club record transfer**\
-`Wrexham have broken their transfer record to sign Reading striker Sam Smith.`\
-https://nytimes.com/athletic/6102949/2025/01/31/sam-smith-wrexham-record-transfer/
-
-**The World Economy Awaits Trump’s First Round of Tariffs**\
-`Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
-https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-tariffs-canada-mexico-china
 
