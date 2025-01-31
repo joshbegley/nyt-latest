@@ -1,3 +1,7 @@
+**Trump Plans Steep Tariffs on Canada, Mexico and China**\
+`Also, Hamas said it would free an American hostage. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/01/31/briefing/trump-tariffs-mexico-canada-china-dc-crash-investigation.html
+
 **Navy SEAL Whose Lacrosse Workout Left Tufts Players Hospitalized Is Called Unqualified**\
 `The session, which left nine players hospitalized, was run by a person who lacked credentials, a review commissioned by the university found.`\
 https://nytimes.com/2025/01/31/us/tufts-lacrosse-navy-seal.html
