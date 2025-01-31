@@ -1,3 +1,15 @@
+**How Helicopters, Planes and Air Traffic Controllers Navigate Tight D.C. Airspace**\
+`More than 800 flights take off or land daily at Reagan National Airport, and scores of helicopters pass through the same area.`\
+https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/reagan-airport-plane-helicopter-air-traffic
+
+**What We Know About the Victims**\
+`World-class figure skaters, hunting buddies and flight crews were among those who perished.`\
+https://nytimes.com/2025/01/30/us/plane-crash-victims-washington-dc.html
+
+**Recovery Crews Search for Bodies of Victims After Deadly Plane Crash**\
+`A passenger jet and an Army helicopter crashed near Ronald Reagan National Airport on Wednesday evening. There were no survivors.`\
+https://nytimes.com/video/us/100000009961011/dc-plane-helicopter-crash.html
+
 **Marianne Faithfull Made an Art of Upending Expectations**\
 `The singer, who died on Thursday at 78, spent decades in the spotlight exercising a very specific and subversive power.`\
 https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-singer-career.html
