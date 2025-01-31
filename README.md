@@ -1,3 +1,7 @@
+**BBC Report Describes ‘Unacceptable Behavior’ by Russell Brand**\
+`An internal investigation by the broadcaster examined eight complaints involving Brand when he was a radio presenter.`\
+https://nytimes.com/2025/01/30/arts/russell-brand-bbc-investigation.html
+
 **How helicopters, planes and air traffic controllers navigate tight D.C. airspace.**\
 `More than 800 flights take off or land daily at Reagan National Airport, and scores of helicopters pass through the same area.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/reagan-airport-plane-helicopter-air-traffic
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/for-the-army-th
 **NFL data shows significant decrease in concussions in '24**\
 `Concussions were down 17 percent from 2023 and were the lowest on record since the league started tracking data in 2015.`\
 https://nytimes.com/athletic/6101296/2025/01/30/nfl-concussions-data-2024-season/
-
-**Appeals Court Strikes Down Federal Ban on Handgun Sales to Teenagers**\
-`The ruling by the U.S. Court of Appeals for the Fifth Circuit applied the Supreme Court’s “historical tradition” test.`\
-https://nytimes.com/2025/01/30/us/appeals-court-strikes-down-ban-handguns-teenagers.html
 
