@@ -1,3 +1,7 @@
+**285 of 313 Air Traffic Control Facilities Are Understaffed**\
+`Persistent staff shortages have raised safety concerns. At many facilities, staffing is so low that at least a quarter of the work force is missing.`\
+https://nytimes.com/2025/01/31/business/air-traffic-controllers-understaffed.html
+
 **50 Things We Say Now, Thanks to ‘S.N.L.’**\
 `Since “Saturday Night Live” began, the show has introduced catchphrases that wind up in our own conversations. Isn’t that special?`\
 https://nytimes.com/interactive/2025/01/31/arts/television/-saturday-night-live-skit-catchphrases-quotes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/briefing/trump-tariffs-mexico-canada-china-dc-cra
 **Navy SEAL Whose Lacrosse Workout Left Tufts Players Hospitalized Is Called Unqualified**\
 `The session, which left nine players hospitalized, was run by a person who lacked credentials, a review commissioned by the university found.`\
 https://nytimes.com/2025/01/31/us/tufts-lacrosse-navy-seal.html
-
-**Federal Judge Orders White House to Keep Money Flowing to 22 States**\
-`A court in Rhode Island issued a temporary restraining order to block Trump’s directive to defund programs he considers to be “woke.”`\
-https://nytimes.com/2025/01/31/us/trump-freeze-blocked.html
 
