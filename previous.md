@@ -1,3 +1,11 @@
+**DeepSeek’s Answers Include Chinese Propaganda, Researchers Say**\
+`Since the Chinese company’s chatbot surged in popularity, researchers have documented how its answers reflect China’s view of the world. Some of its responses amplify propaganda Beijing uses to discredit critics.`\
+https://nytimes.com/2025/01/31/technology/deepseek-chinese-propaganda.html
+
+**No Rush to Get Goods Into U.S. Ahead of Possible Tariffs**\
+`Experts say the freight system could handle an increase in imports from Canada and Mexico, but there is little sign of a significant increase.`\
+https://nytimes.com/2025/01/31/business/economy/tariffs-canada-mexico-logistics.html
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 24?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6095275/2025/01/31/premier-league-predicted-lineups-gameweek-24/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/books/review/orbital-samantha-harvey-book-club.ht
 **"Smell it?": The Rock leads new era of WWE trading cards**\
 `The WWE is reaching new audiences and Topps is hoping to reach new collectors with a new approach to WWE cards `\
 https://nytimes.com/athletic/6101673/2025/01/31/wwe-topps-chrome-wrestling-cards/
-
-**The Treasury official who oversees payments resigns suddenly.**\
-`Elon Musk has deployed engineers to Treasury to find a way to shut down payments unilaterally.`\
-https://nytimes.com/live/2025/01/30/us/president-trump-news/the-treasury-official-who-oversees-payments-resigns-suddenly
-
-**The Bounce: Victor Wembanyama earns NBA All-Star nod as rosters revealed. Who got snubbed?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6102604/2025/01/31/victor-wembanyama-spurs-nba-all-star-trade-deadline-the-bounce/
 
