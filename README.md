@@ -1,3 +1,7 @@
+**NHL trade grades: Flames bet on upside, Flyers hope for short-term Kuzmenko spark**\
+`The Flames made a cheap upgrade in their pursuit of a playoff spot, but will Kuzmenko contribute for Philadelphia?`\
+https://nytimes.com/athletic/6102209/2025/01/31/nhl-trade-grades-flames-flyers/
+
 **'It's poetry': Inside Marc-Andre Fleury's magical Montreal swan song**\
 `Fleury shut out the Canadiens in his final game in his home province of Quebec, earning a standing ovation lasting over two minutes.`\
 https://nytimes.com/athletic/6102104/2025/01/31/marc-andre-fleury-montreal-swan-song-wild-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100040/2025/01/31/is-ruud-van-nistelrooy-finally-m
 **Until Saturday: Playoff or bust for Brian Kelly?**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6102080/2025/01/31/kelly-lsu-knowles-penn-state-until-saturday/
-
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/01/31/briefing/plane-crash-gaza-rfk.html
 
