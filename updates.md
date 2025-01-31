@@ -1,3 +1,7 @@
+**Prosecutors push back on Ippei Mizuhara leniency push in Ohtani fraud case**\
+`Prosecutors stayed firm on their request for a five-year sentence for Mizuhara, who is asking for 18 months in prison. `\
+https://nytimes.com/athletic/6102050/2025/01/30/ippei-mizuhara-fraud-shohei-ohtani-leniency/
+
 **Dick Button, Olympic legend and figure skating commentator, dies at 95**\
 `Two-time Olympic gold medalist and five-time world champ was also an influential broadcaster for more than five decades.`\
 https://nytimes.com/athletic/6101898/2025/01/30/dick-button-olympic-legend-and-figure-skating-commentator-dies-at-95/
