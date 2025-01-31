@@ -1,3 +1,15 @@
+**LeBrun: Will skyrocketing NHL salary cap lead to a new era of haves and have-nots?**\
+`The big question after Friday's announcement: How many teams actually have the financial budget to max out at a cap over $100 million?`\
+https://nytimes.com/athletic/6103703/2025/01/31/nhl-salary-cap-revenue-sharing/
+
+**How fans can make sense (or nonsense) out of the Giants trading Taylor Rogers**\
+`The reasoning behind the Rogers deal doesn't seem that straightforward. Here are a few theories why they made the move.`\
+https://nytimes.com/athletic/6101959/2025/01/31/sf-giants-taylor-rogers-trade-analysis/
+
+**Padres avoid arbitration with Michael King, slightly easing payroll crunch**\
+`The agreement extends the Padres’ streak of never having gone to an arbitration hearing in A.J. Preller’s tenure as general manager.`\
+https://nytimes.com/athletic/6103729/2025/01/31/san-diego-padres-michael-king-arbitration/
+
 **Meta Said to Explore Incorporating in a Different State**\
 `The owner of Facebook and Instagram is incorporated in Delaware, but is considering a change. Its corporate headquarters would remain in Silicon Valley, people with knowledge of the matter said.`\
 https://nytimes.com/2025/01/31/technology/meta-incorporation-delaware.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/31/us/missouri-woman-drunk-driving-death-jan-6.html
 **Super Bowl 59 odds, picks: Chiefs hold as 1.5-point favorites in rematch with Eagles**\
 `The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
 https://nytimes.com/athletic/6084432/2025/01/31/super-bowl-59-odds-line-chiefs-eagles/
-
-**Chelsea confirm Walsh signing from Barcelona**\
-`Chelsea have completed the signing of Keira Walsh from Barcelona.`\
-https://nytimes.com/athletic/6102425/2025/01/31/chelsea-transfer-news-keira-walsh/
-
-**Beneath Trump’s Chaotic Spending Freeze: An Idea That Crosses Party Lines**\
-`There is a long, bipartisan history of attempts to rein in spending and address concerns about government inefficiencies, though the parties have grown increasingly divided about what to cut.`\
-https://nytimes.com/2025/01/31/us/politics/trump-spending-freeze-debt-workforce.html
-
-**Airline Pilots Previously Reported Close Calls With Helicopters Near Reagan Airport**\
-`A database of aviation safety issues details two startling incidents, one in 2024 and one in 2022.`\
-https://nytimes.com/2025/01/31/business/reagan-airport-planes-helicopters-close-calls.html
 
