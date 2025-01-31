@@ -1,3 +1,7 @@
+**Phyllis Dalton, Oscar-Winning Costume Designer for Historical Epics, Dies at 99**\
+`A look back at some of her most celebrated works, including “Doctor Zhivago,” “The Princess Bride” and “Lawrence of Arabia.”`\
+https://nytimes.com/2025/01/31/movies/phyllis-dalton-dead.html
+
 **New York Doctor Indicted in Louisiana for Sending Abortion Pills There**\
 `The case opens a new front in the battle between states that ban abortion and states that support providing abortion anywhere in the country.`\
 https://nytimes.com/2025/01/31/health/abortion-louisiana-new-york-prosecution-shield-law.html
