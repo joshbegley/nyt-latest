@@ -1,3 +1,15 @@
+**Heavy Rain and Floods Sweep Hawaii’s Big Island and Maui**\
+`Flash flood warnings and several inches of rain fell across parts of the chain of islands as part of a storm system moving southeast.`\
+https://nytimes.com/2025/01/31/us/maui-rain-flooding-hawaii.html
+
+**The Army has identified two of the three helicopter crew members who died in the crash.**\
+`Citing her family’s request for privacy, the Army took the unusual step of not releasing the third aviator’s name.`\
+https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/the-army-has-identified-two-of-the-three-helicopter-pilots-who-died-in-the-crash
+
+**What Will Win Album of the Year at the Grammys?**\
+`Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, break down the many converging narratives indicating that Beyoncé’s “Cowboy Carter” could be primed to win the Grammy Award for album of the year.`\
+https://nytimes.com/video/podcasts/100000009955123/beyonce-grammys-cowboy-carter.html
+
 **Has Your Nonprofit Been Affected by Federal Funding Cuts? We Want to Hear From You.**\
 `The Trump administration is slashing federal grants. The New York Times wants to talk to nonprofits that have lost funding — or fear they might.`\
 https://nytimes.com/2025/01/31/us/politics/nonprofit-trump-callout.html
