@@ -1,3 +1,7 @@
+**Belgium Forms a Government After 7 Months of Squabbling**\
+`The country’s tense negotiations hinged on taxing and social spending — and they highlight issues facing Europe, and Western democracies, as a whole.`\
+https://nytimes.com/2025/01/31/world/europe/belgium-government-new-flemish-alliance.html
+
 **Trump Plans Steep Tariffs on Canada, Mexico and China**\
 `Also, Hamas said it would free an American hostage. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/01/31/briefing/trump-tariffs-mexico-canada-china-dc-crash-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6103925/2025/01/31/saints-head-coach-candidates-kel
 **Man City exploring deal for Porto's Gonzalez**\
 `Manchester City are exploring a move for Porto midfielder Nico Gonzalez.`\
 https://nytimes.com/athletic/6103518/2025/01/31/man-city-transfers-nico-gonzalez/
-
-**Jets hire Lions assistant Engstrand as OC: Source**\
-`Engstrand, 42, joins New York after a five-year run in Detroit.`\
-https://nytimes.com/athletic/6103967/2025/01/31/jets-tanner-engstrand-offensive-coordinator/
 
