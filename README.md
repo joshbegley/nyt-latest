@@ -1,3 +1,7 @@
+**Villa considering Rashford move**\
+`Rashford is one of several options Villa are considering, including Chelsea's Joao Felix and PSG's Marco Asensio.`\
+https://nytimes.com/athletic/6046469/2025/01/31/marcus-rashford-aston-villa-transfer-manchester-united/
+
 **Hamas to Free Israeli Father, But Fates of His Wife and Children Unknown**\
 `Hamas said it will release the hostage Yarden Bibas, 35, on Saturday. His wife and children were also taken captive on Oct. 7, 2023, but may not have survived.`\
 https://nytimes.com/2025/01/31/world/middleeast/israel-hostage-release-hamas-yarden-bibas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/dining/chili-gumbo-banana-pancakes-trail-mix.html
 **Watch: Bills' existentialism, rooting for the Chiefs and more in the TAFS mailbag**\
 `It's mailbag time on TAFS: Is it fine to root for a Chiefs win?`\
 https://nytimes.com/athletic/6102494/2025/01/31/athletic-football-show-mailbag-chiefs-bills/
-
-**USWNT's Dunn joins PSG after leaving Gotham FC**\
-`USWNT midfielder Crystal Dunn has completed a move to Paris Saint-Germain after mutually departing Gotham FC.`\
-https://nytimes.com/athletic/6101347/2025/01/31/crystal-dunn-uswnt-psg-transfer/
 
