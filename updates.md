@@ -1,3 +1,7 @@
+**Marianne Faithfull Made an Art of Upending Expectations**\
+`The singer, who died on Thursday at 78, spent decades in the spotlight exercising a very specific and subversive power.`\
+https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-singer-career.html
+
 **Eagles open practice window for DE Brandon Graham: 'I know the risk'**\
 `Graham suffered torn triceps in Week 12 and was thought to be done for the year, but he's trying to return for Super Bowl LIX. `\
 https://nytimes.com/athletic/6100482/2025/01/30/eagles-brandon-graham-practice-window-super-bowl/
