@@ -1,4 +1,4 @@
-**Ricardo Pepi is an injury doubt for Champions League, Nations League**\
+**Ricardo Pepi ruled out with knee injury, may miss Nations League: Source**\
 `Pepi's knee issue presents injury blow for PSV and the USMNT`\
 https://nytimes.com/athletic/6102213/2025/01/31/ricardo-pepi-injury-psv-liverpool/
 
