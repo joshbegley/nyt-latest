@@ -1,3 +1,7 @@
+**Reagan Airport Had a Number of Close Calls in Recent Years**\
+`Internal government reports and public databases highlight several instances in which planes narrowly escaped collisions with each other or helicopters.`\
+https://nytimes.com/2025/01/31/business/reagan-airport-close-calls.html
+
 **Former MVP Nneka Ogwumike re-signs with Seattle Storm**\
 `Ogwumike signed in Seattle as a free agent in 2024.`\
 https://nytimes.com/athletic/6104263/2025/01/31/nneka-ogwumike-seattle-storm-contract-wnba/
