@@ -1,3 +1,7 @@
+**Emery says Watkins is 'happy to stay' at Villa despite Arsenal interest**\
+`Unai Emery says Ollie Watkins is happy to stay at Aston Villa, ruling out a potential departure this window.`\
+https://nytimes.com/athletic/6102687/2025/01/31/aston-villa-unai-emery-ollie-watkins/
+
 **This Josephine Baker Oral History Has Never Been Published Here. Now We Know Why.**\
 `“Fearless and Free,” recorded between 1926 and 1949, is full of heroism, glamour, righteous anger — and things you wish you could unsee.`\
 https://nytimes.com/2025/01/31/books/review/josephine-baker-fearless-and-free.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100830/2025/01/31/handbrake-off-raheem-sterling/
 **Gavi signs new Barcelona contract until 2030**\
 `Barcelona midfielder Gavi has signed a new contract until 2030.`\
 https://nytimes.com/athletic/6099457/2025/01/31/barcelona-gavi-new-contract-update/
-
-**The Fed’s Preferred Inflation Measure Ticked Up Slightly in December**\
-`The central bank needs to see further progress on inflation or weakness in the labor market to resume interest rate cuts.`\
-https://nytimes.com/2025/01/31/business/fed-inflation-economy.html
 
