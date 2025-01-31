@@ -1,3 +1,11 @@
+**Trump Tariffs Could Hurt Oil Companies and Increase Gas Prices**\
+`Some oil refineries will probably struggle to replace imported crude oil if President Trump imposes 25 percent tariffs on products from Canada and Mexico.`\
+https://nytimes.com/2025/01/31/business/energy-environment/trumps-tariffs-oil-gas-prices.html
+
+**A Conflict in Congo**\
+`Critical minerals factor into the fight.`\
+https://nytimes.com/2025/01/31/briefing/a-conflict-in-the-congo.html
+
 **Former host Julie Stewart-Binks sues Fox, says FS1 executive sexually assaulted her**\
 `She alleges executive vice president Charlie Dixon sexually assaulted her in 2016 after a meeting to discuss her Super Bowl assignment.`\
 https://nytimes.com/athletic/6100307/2025/01/31/julie-stewart-binks-fox-fs1-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6101725/2025/01/31/chiefs-trick-plays-super-bowl/
 **What we learned from the Bears' new coordinators under Ben Johnson**\
 `The Bears introduced Johnson's three coordinators Thursday: Dennis Allen, Declan Doyle and holdover Richard Hightower.`\
 https://nytimes.com/athletic/6101426/2025/01/31/bears-new-coordinators-dennis-allen-declan-doyle/
-
-**Court Vision: What does muted UNC-Duke meeting mean? SEC tiers of trust**\
-`Which teams are truly proving themselves in the jumbled SEC league standings? Love for Ace Bailey. Who is your coach of the year?`\
-https://nytimes.com/athletic/6101538/2025/01/31/unc-duke-mens-college-basketball-sec/
-
-**West's Top 3 teams have every move at their disposal. Is it time to push any chips in?**\
-`Oklahoma City, Houston and Memphis are young teams with large asset pools, but going "all-in" at the wrong time could backfire.`\
-https://nytimes.com/athletic/6100069/2025/01/31/nba-trade-deadline-rockets-grizzlies-thunder/
 

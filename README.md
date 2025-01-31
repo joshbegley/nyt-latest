@@ -1,3 +1,7 @@
+**Jota, Nunez, Gomez in contention for Bournemouth trip**\
+`Diogo Jota, Darwin Nunez and Joe Gomez are in contention to return to Liverpool&#8217;s squad for Saturday&#8217;s Premier League game against Bournemouth.`\
+https://nytimes.com/athletic/6102511/2025/01/31/liverpool-team-news-jota-nunez-gomez/
+
 **Trump Tariffs Could Hurt Oil Companies and Increase Gas Prices**\
 `Some oil refineries will probably struggle to replace imported crude oil if President Trump imposes 25 percent tariffs on products from Canada and Mexico.`\
 https://nytimes.com/2025/01/31/business/energy-environment/trumps-tariffs-oil-gas-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6101783/2025/01/31/pelicans-zion-williamson-defense
 **'That's the fun part': Chiefs relish pulling off trick plays in their biggest games**\
 `The Chiefs have pulled off a trick play in each of their Super Bowl wins. What do Andy Reid and company have up their sleeves this time?`\
 https://nytimes.com/athletic/6101725/2025/01/31/chiefs-trick-plays-super-bowl/
-
-**What we learned from the Bears' new coordinators under Ben Johnson**\
-`The Bears introduced Johnson's three coordinators Thursday: Dennis Allen, Declan Doyle and holdover Richard Hightower.`\
-https://nytimes.com/athletic/6101426/2025/01/31/bears-new-coordinators-dennis-allen-declan-doyle/
 

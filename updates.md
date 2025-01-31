@@ -1,3 +1,11 @@
+**Trump Tariffs Could Hurt Oil Companies and Increase Gas Prices**\
+`Some oil refineries will probably struggle to replace imported crude oil if President Trump imposes 25 percent tariffs on products from Canada and Mexico.`\
+https://nytimes.com/2025/01/31/business/energy-environment/trumps-tariffs-oil-gas-prices.html
+
+**A Conflict in Congo**\
+`Critical minerals factor into the fight.`\
+https://nytimes.com/2025/01/31/briefing/a-conflict-in-the-congo.html
+
 **Former host Julie Stewart-Binks sues Fox, says FS1 executive sexually assaulted her**\
 `She alleges executive vice president Charlie Dixon sexually assaulted her in 2016 after a meeting to discuss her Super Bowl assignment.`\
 https://nytimes.com/athletic/6100307/2025/01/31/julie-stewart-binks-fox-fs1-lawsuit/
