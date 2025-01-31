@@ -1,3 +1,7 @@
+**Top Justice Department Officials Meet Prosecutors in Adams Case**\
+`Senior officials in Washington were meeting with Manhattan prosecutors and defense lawyers representing Mayor Eric Adams to discuss dropping the corruption case against him.`\
+https://nytimes.com/2025/01/31/nyregion/adams-trump-justice-meeting.html
+
 **Education Dept. Tells Schools to Change Sexual Misconduct Rules**\
 `The guidance bolsters the rights of students accused of sexual misconduct and scraps Biden-era rules extending protections to L.G.B.T.Q. students.`\
 https://nytimes.com/2025/01/31/us/politics/education-dept-tells-schools-to-change-sexual-misconduct-rules.html
