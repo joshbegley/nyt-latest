@@ -1,3 +1,11 @@
+**New York Doctor Indicted in Louisiana for Sending Abortion Pills There**\
+`The case opens a new front in the battle between states that ban abortion and states that support providing abortion anywhere in the country.`\
+https://nytimes.com/2025/01/31/health/abortion-louisiana-new-york-prosecution-shield-law.html
+
+**Settlement reached in suit against NCAA on NIL recruiting inducements**\
+`Terms of the agreement were not released and will not impact the ongoing House settlement.`\
+https://nytimes.com/athletic/6104215/2025/01/31/settlement-tennessee-virginia-nil-ncaa/
+
 **285 of 313 Air Traffic Control Facilities Are Understaffed**\
 `Persistent staff shortages have raised safety concerns. At many facilities, staffing is so low that at least a quarter of the work force is missing.`\
 https://nytimes.com/2025/01/31/business/air-traffic-controllers-understaffed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6103609/2025/01/31/nhl-salary-cap-maple-leafs-marne
 **Belgium Forms a Government After 7 Months of Squabbling**\
 `The country’s tense negotiations hinged on taxing and social spending — and they highlight issues facing Europe, and Western democracies, as a whole.`\
 https://nytimes.com/2025/01/31/world/europe/belgium-government-new-flemish-alliance.html
-
-**Trump Plans Steep Tariffs on Canada, Mexico and China**\
-`Also, Hamas said it would free an American hostage. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/01/31/briefing/trump-tariffs-mexico-canada-china-dc-crash-investigation.html
-
-**Navy SEAL Whose Lacrosse Workout Left Tufts Players Hospitalized Is Called Unqualified**\
-`The session, which left nine players hospitalized, was run by a person who lacked credentials, a review commissioned by the university found.`\
-https://nytimes.com/2025/01/31/us/tufts-lacrosse-navy-seal.html
 
