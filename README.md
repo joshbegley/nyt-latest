@@ -1,3 +1,11 @@
+**Dick Button, Olympic legend and figure skating commentator, dies at 95**\
+`Two-time Olympic gold medalist and five-time world champ was also an influential broadcaster for more than five decades.`\
+https://nytimes.com/athletic/6101898/2025/01/30/dick-button-olympic-legend-and-figure-skating-commentator-dies-at-95/
+
+**North Korean Troops No Longer Seen on Front Lines Fighting Ukraine**\
+`North Korea sent its best troops to aid Russia in its war against Ukraine. But after months of suffering severe losses, they have been taken off the front line.`\
+https://nytimes.com/2025/01/30/world/europe/north-korea-troops-ukraine-russia.html
+
 **Vanderbilt's Mikayla Blakes breaks freshman record with 53-point outing**\
 `The total is also the highest single-game mark for any player in SEC history.`\
 https://nytimes.com/athletic/6101939/2025/01/30/mikayla-blakes-vanderbilt-womens-basketball-freshman-scoring-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/30/us/politics/appeal-confession-uss-cole.html
 **Senators owner responds to fan backlash after Quebec City announcement**\
 `Andlauer says he didn't realize how much "scar tissue" had been left with the fan base because of relocation talk in previous years.`\
 https://nytimes.com/athletic/6100656/2025/01/30/ottawa-senators-quebec-city-michael-andlauer/
-
-**Helicopter in Crash Near Washington Might Have Been Flying Higher Than Approved**\
-`The Army Black Hawk also might have been outside of its flight path when it collided with a commercial passenger jet at Reagan National Airport on Wednesday night.`\
-https://nytimes.com/2025/01/30/us/army-helicopter-dc-plane-crash.html
-
-**President Trump’s blaming of diversity programs for the crash has sparked a backlash.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/president-trumps-blaming-of-diversity-programs-for-the-crash-has-sparked-a-backlash
 
