@@ -1,3 +1,11 @@
+**New Group Aims to Help Justice Dept. Employees Alarmed by Trump**\
+`The group, Justice Connection, intends to support employees who say they are facing professional and ethical crises under the new administration. It is likely to come under attack from Trump allies.`\
+https://nytimes.com/2025/01/31/us/politics/trump-justice-department.html
+
+**Eze out of Man Utd trip but Wharton set for return**\
+`Palace manager Oliver Glasner also confirmed that Chadi Riad and Cheick Doucoure have suffered serious injuries.`\
+https://nytimes.com/athletic/6102774/2025/01/31/crystal-palace-team-news-eze-wharton/
+
 **Row Z: Neymar makes friends for life, Adkins turns to Abraham Lincoln and Duran's dreams**\
 `Our weekly round-up of soccer's sillier side is something of a Saudi Pro League special, plus a dose of WPL Premier Division refereeing`\
 https://nytimes.com/athletic/6102470/2025/01/31/neymar-abraham-lincoln-adkins-gerrard-duran-row-z/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/podcasts/the-daily/trump-guantanamo-confirmation-
 **Trump 2.0 Arrives in Force**\
 `In 2024, Maggie Haberman, Jonathan Swan and Charlie Savage told Daily listeners what a Trump term might look like. Now that we are two weeks into that reality, the same reporters discuss how things are shaping up.`\
 https://nytimes.com/video/podcasts/the-daily/100000009957175/trump-2-0-arrives-in-force.html
-
-**You Can No Longer Buy Paper Inflation Bonds With Your Tax Refund**\
-`The Treasury Department has also eliminated the option of buying as much as $5,000 in extra inflation bonds, beyond the $10,000 annual limit.`\
-https://nytimes.com/2025/01/31/your-money/i-bonds-tax-refund.html
-
-**The Fed Is Sitting on the Sidelines, but for How Long?**\
-`The relative calm in the markets may not survive upheaval in the A.I. sector and a deluge of disruptive Trump policies, our columnist says.`\
-https://nytimes.com/2025/01/31/business/stock-market-ai-federal-reserve-immigration.html
 
