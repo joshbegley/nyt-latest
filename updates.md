@@ -1,3 +1,19 @@
+**F.A.A. Restricts Helicopter Flights in Reagan National Airspace**\
+`The agency’s decision, made shortly after Wednesday’s deadly collision, was framed by the transportation secretary as an important step toward enhancing safety.`\
+https://nytimes.com/2025/01/31/business/faa-restricts-helicopter-flights-in-reagan-national-airspace.html
+
+**Saints hone in on Kellen Moore, tell other candidates they are moving on**\
+`Moore is one of only three candidates known to have taken multiple interviews with New Orleans.`\
+https://nytimes.com/athletic/6103925/2025/01/31/saints-head-coach-candidates-kellen-moore/
+
+**Man City exploring deal for Porto's Gonzalez**\
+`Manchester City are exploring a move for Porto midfielder Nico Gonzalez.`\
+https://nytimes.com/athletic/6103518/2025/01/31/man-city-transfers-nico-gonzalez/
+
+**Army Withholds Identity of Helicopter Pilot Killed in Crash**\
+`The names of two male crew members were released, but the family of the third aviator requested privacy.`\
+https://nytimes.com/2025/01/31/us/politics/army-helicopter-crew.html
+
 **Jets hire Lions assistant Engstrand as OC: Source**\
 `Engstrand, 42, joins New York after a five-year run in Detroit.`\
 https://nytimes.com/athletic/6103967/2025/01/31/jets-tanner-engstrand-offensive-coordinator/

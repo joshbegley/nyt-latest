@@ -1,9 +1,21 @@
+**F.A.A. Restricts Helicopter Flights in Reagan National Airspace**\
+`The agency’s decision, made shortly after Wednesday’s deadly collision, was framed by the transportation secretary as an important step toward enhancing safety.`\
+https://nytimes.com/2025/01/31/business/faa-restricts-helicopter-flights-in-reagan-national-airspace.html
+
+**Saints hone in on Kellen Moore, tell other candidates they are moving on**\
+`Moore is one of only three candidates known to have taken multiple interviews with New Orleans.`\
+https://nytimes.com/athletic/6103925/2025/01/31/saints-head-coach-candidates-kellen-moore/
+
+**Man City exploring deal for Porto's Gonzalez**\
+`Manchester City are exploring a move for Porto midfielder Nico Gonzalez.`\
+https://nytimes.com/athletic/6103518/2025/01/31/man-city-transfers-nico-gonzalez/
+
 **Jets hire Lions assistant Engstrand as OC: Source**\
 `Engstrand, 42, joins New York after a five-year run in Detroit.`\
 https://nytimes.com/athletic/6103967/2025/01/31/jets-tanner-engstrand-offensive-coordinator/
 
-**Army Withholds Identity of 3rd Aviator Killed in Crash**\
-`The names of two male crew members were released, but the female pilot’s family requested privacy.`\
+**Army Withholds Identity of Helicopter Pilot Killed in Crash**\
+`The names of two male crew members were released, but the family of the third aviator requested privacy.`\
 https://nytimes.com/2025/01/31/us/politics/army-helicopter-crew.html
 
 **U.S. Considers Sending Israel 24,000 Assault Rifles Held Back Under Biden**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6103646/2025/01/31/tyler-herro-nba-all-star-heat/
 **Barry Goldberg, Who Backed Dylan When He Went Electric, Dies at 83**\
 `He played keyboards with a host of rock luminaries, but perhaps his most memorable performance was as part of the band that shocked the 1965 Newport Folk Festival.`\
 https://nytimes.com/2025/01/31/arts/music/barry-goldberg-dead.html
-
-**What the salary cap increase could mean for Bedard's next Blackhawks deal**\
-`Bedard's new contract will begin in 2026-27, when the salary cap will be $104 million. How will the negotiatons be handled on each side?`\
-https://nytimes.com/athletic/6103895/2025/01/31/nhl-salary-cap-connor-bedard-contract/
-
-**What to Know About Collision Avoidance Systems on Planes**\
-`Commercial planes have technology that helps prevent crashes — but it has limitations, which was highlighted by the accident in Washington.`\
-https://nytimes.com/2025/01/31/business/washington-crash-tcas.html
-
-**Torino reach agreement with Chelsea for Casadei**\
-`Torino have reached an agreement with Chelsea for the signing of midfielder Cesare Casadei.`\
-https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-chelsea/
 
