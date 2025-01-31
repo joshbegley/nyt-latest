@@ -1,3 +1,11 @@
+**The Fed’s Preferred Inflation Measure Ticked Up Slightly in December**\
+`The central bank needs to see further progress on inflation or weakness in the labor market to resume interest rate cuts.`\
+https://nytimes.com/2025/01/31/business/fed-inflation-economy.html
+
+**Harper: Bring the stars back to the NBA dunk contest**\
+`Are you excited about the possibility of a Mac McClung three-peat? Didn't think so.`\
+https://nytimes.com/athletic/6098000/2025/01/31/nba-dunk-contest-disappointing-mac-mcclung/
+
 **Amorim: Garnacho has 'changed in everything' since being dropped**\
 `Alejandro Garnacho has &#8220;changed in everything&#8221; since being dropped for Manchester United&#8217;s derby victory last month, says Ruben Amorim, who added he wants academy graduates like him to play a part in the club&#8217;s future.`\
 https://nytimes.com/athletic/6102456/2025/01/31/alejandro-garnacho-man-utd-amorim/

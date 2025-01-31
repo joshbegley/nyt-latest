@@ -1,3 +1,7 @@
+**The Fed’s Preferred Inflation Measure Ticked Up Slightly in December**\
+`The central bank needs to see further progress on inflation or weakness in the labor market to resume interest rate cuts.`\
+https://nytimes.com/2025/01/31/business/fed-inflation-economy.html
+
 **Amorim: Garnacho has 'changed in everything' since being dropped**\
 `Alejandro Garnacho has &#8220;changed in everything&#8221; since being dropped for Manchester United&#8217;s derby victory last month, says Ruben Amorim, who added he wants academy graduates like him to play a part in the club&#8217;s future.`\
 https://nytimes.com/athletic/6102456/2025/01/31/alejandro-garnacho-man-utd-amorim/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6102456/2025/01/31/alejandro-garnacho-man-utd-amori
 https://nytimes.com/2025/01/31/realestate/cannabis-marijuana-decor-design.html
 
 **Harper: Bring the stars back to the NBA dunk contest**\
-`Are you excited about the possibility of a Mac McClung three-point? Didn't think so.`\
+`Are you excited about the possibility of a Mac McClung three-peat? Didn't think so.`\
 https://nytimes.com/athletic/6098000/2025/01/31/nba-dunk-contest-disappointing-mac-mcclung/
 
 **NHL trade board 5.0: Where the market stands after the Rantanen blockbuster**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102495/2025/01/31/el-ghazi-man-city-real-madrid-ch
 **Nowhere to Hide From Trump’s Tariffs**\
 `President Trump’s long-promised trade war could start as soon as Saturday, leaving companies scrambling for a workaround for their global supply chains.`\
 https://nytimes.com/2025/01/31/business/dealbook/trumps-tariffs-colombia.html
-
-**La Liga wins El Clasico trademark court case against Madrid and Barcelona**\
-`La Liga has won a court battle over the commercial rights to the term &#8220;El Clasico&#8221; against Real Madrid and Barcelona, the two clubs who play in the fixture.`\
-https://nytimes.com/athletic/6102485/2025/01/31/el-clasico-trademark-barcelona-real-madrid/
 
