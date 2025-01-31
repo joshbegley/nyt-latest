@@ -1,3 +1,11 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 24?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6095275/2025/01/31/premier-league-predicted-lineups-gameweek-24/
+
+**Chili Gumbo, Banana Pancakes and Salty-Sweet Trail Mix**\
+`Labor in the kitchen can be as restorative as napping or meditation. It’s how I like to spend my free time.`\
+https://nytimes.com/2025/01/31/dining/chili-gumbo-banana-pancakes-trail-mix.html
+
 **Official Email Urges Federal Workers to Find More Productive Jobs**\
 `The message reiterated an offer for a chance to take a second job or travel to a “dream destination” and remain on the federal payroll for months. But questions remain about whether that would be legal.`\
 https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html
