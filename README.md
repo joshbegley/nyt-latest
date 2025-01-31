@@ -1,3 +1,15 @@
+**Lille agree deal to sign Akpom on loan from Ajax**\
+`Lille have reached an agreement with Ajax to sign Chuba Akpom on loan with an option to buy.`\
+https://nytimes.com/athletic/6102469/2025/01/31/chuba-akpom-transfer-ajax-lille/
+
+**Kelly accuses Man City of trying to 'assassinate my character' after Arsenal move**\
+`Chloe Kelly has accused Manchester City trying to &#8220;assassinate my character&#8221; following her deadline day move to Arsenal.`\
+https://nytimes.com/athletic/6102415/2025/01/31/chloe-kelly-arsenal-man-city-instagram/
+
+**Zion Williamson's improved defense has been obvious in his return from injury**\
+`Williamson's explosiveness has always been evident on offense, but now it is showing up on the other end. `\
+https://nytimes.com/athletic/6101783/2025/01/31/pelicans-zion-williamson-defense-nba/
+
 **'That's the fun part': Chiefs relish pulling off trick plays in their biggest games**\
 `The Chiefs have pulled off a trick play in each of their Super Bowl wins. What do Andy Reid and company have up their sleeves this time?`\
 https://nytimes.com/athletic/6101725/2025/01/31/chiefs-trick-plays-super-bowl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6087847/2025/01/31/penguins-nhl-trade-deadline-serg
 **In quarterback-driven NFL, winning the turnover battle is no longer best path to victory**\
 `Whoever wins the turnover battle wins the game, right? Not necessarily. As Ben Johnson says, QB success gives teams a better chance.`\
 https://nytimes.com/athletic/6098937/2025/01/31/chiefs-eagles-quarterbacks-super-bowl-success/
-
-**DGB Grab Bag: Offseason winners and losers, 4 Nations request and happier times in Vancouver**\
-`Remembering a truly great moment in Canucks history, a request for 4 Nations arena operations staff and more.`\
-https://nytimes.com/athletic/6100948/2025/01/31/nhl-offseason-grades-4-nations-canucks/
-
-**Morgan Rielly is struggling. How do the Maple Leafs get him going?**\
-`Here's four ways the Leafs could snap Rielly out of one of his worst funks in a Maple Leafs sweater.`\
-https://nytimes.com/athletic/6100842/2025/01/31/morgan-rielly-maple-leafs-struggle-fixes/
-
-**Plane Crash Clues, and a New Way to Treat Pain**\
-`Plus, 82,000 gallons of blue paint.`\
-https://nytimes.com/2025/01/31/podcasts/the-headlines/plane-crash-washington-trump-opioids.html
 
