@@ -1,3 +1,11 @@
+**Jets hire Lions assistant Engstrand as OC: Source**\
+`Engstrand, 42, joins New York after a five-year run in Detroit.`\
+https://nytimes.com/athletic/6103967/2025/01/31/jets-tanner-engstrand-offensive-coordinator/
+
+**Army Withholds Identity of 3rd Aviator Killed in Crash**\
+`The names of two male crew members were released, but the female pilot’s family requested privacy.`\
+https://nytimes.com/2025/01/31/us/politics/army-helicopter-crew.html
+
 **U.S. Considers Sending Israel 24,000 Assault Rifles Held Back Under Biden**\
 `Democratic lawmakers had expressed concerns to Secretary of State Antony J. Blinken about the rifles possibly going to settler militias or being misused by the police.`\
 https://nytimes.com/2025/01/31/us/politics/us-israel-assault-rifles.html

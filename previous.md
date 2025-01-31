@@ -1,3 +1,11 @@
+**Jets hire Lions assistant Engstrand as OC: Source**\
+`Engstrand, 42, joins New York after a five-year run in Detroit.`\
+https://nytimes.com/athletic/6103967/2025/01/31/jets-tanner-engstrand-offensive-coordinator/
+
+**Army Withholds Identity of 3rd Aviator Killed in Crash**\
+`The names of two male crew members were released, but the female pilot’s family requested privacy.`\
+https://nytimes.com/2025/01/31/us/politics/army-helicopter-crew.html
+
 **U.S. Considers Sending Israel 24,000 Assault Rifles Held Back Under Biden**\
 `Democratic lawmakers had expressed concerns to Secretary of State Antony J. Blinken about the rifles possibly going to settler militias or being misused by the police.`\
 https://nytimes.com/2025/01/31/us/politics/us-israel-assault-rifles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/business/washington-crash-tcas.html
 **Torino reach agreement with Chelsea for Casadei**\
 `Torino have reached an agreement with Chelsea for the signing of midfielder Cesare Casadei.`\
 https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-chelsea/
-
-**CBS News Set to Hand Over Transcript of ‘60 Minutes’ Interview to F.C.C.**\
-`The broadcaster had declined previous requests by the Trump campaign to release the unedited transcript of an interview with Vice President Kamala Harris.`\
-https://nytimes.com/2025/01/31/business/media/trump-harris-60-minutes-fcc.html
-
-**WNBA team in Philadelphia? 76ers ownership group submits official bid**\
-`The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
-https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
 
