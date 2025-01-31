@@ -1,7 +1,3 @@
-**Federal Workers Ordered to Remove Gender Identity From Email Signatures**\
-`The instructions to employees aimed to fulfill orders from the Trump administration, which told agency heads to remove all references to gender identity from official materials by 5 p.m. Friday.`\
-https://nytimes.com/2025/01/31/us/politics/trump-pronouns.html
-
 **Heat Today: Tyler Herro's teammates, coaches share joy in his All-Star nod**\
 `Now that he knows he'll be in San Francisco, the sixth-year guard has another plan in mind: the All-Star Weekend 3-point contest.`\
 https://nytimes.com/athletic/6103646/2025/01/31/tyler-herro-nba-all-star-heat/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6102367/2025/01/31/henderson-monaco-ajax-transfer-u
 **Trump Administration Plans to Scrutinize F.B.I. Agents for Possible Purge**\
 `The move to enact the plan comes just one day after Kash Patel, President Trump’s pick to lead the F.B.I., testified before Congress that the bureau would not be targeted for political reasons.`\
 https://nytimes.com/2025/01/31/us/politics/trump-fbi-agents.html
+
+**Heavy Rain and Floods Sweep Hawaii’s Big Island and Maui**\
+`Flash flood warnings and several inches of rain fell across parts of the chain of islands as part of a storm system moving southeast.`\
+https://nytimes.com/2025/01/31/us/maui-rain-flooding-hawaii.html
 
