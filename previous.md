@@ -1,3 +1,7 @@
+**Meta Said to Explore Moving Where It Is Incorporated**\
+`The owner of Facebook and Instagram is incorporated in Delaware, but is considering a change. Its corporate headquarters would remain in Silicon Valley, people with knowledge of the matter said.`\
+https://nytimes.com/2025/01/31/technology/meta-incorporation-delaware.html
+
 **Book Club: Let’s Talk About Alan Hollinghurst’s ‘Our Evenings’**\
 `This sweeping novel about the life, loves, struggles and triumphs of a queer English Burmese actor is the topic of our January book club discussion.`\
 https://nytimes.com/2025/01/31/books/review/book-club-lets-talk-about-alan-hollinghursts-our-evenings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/us/politics/trump-spending-freeze-debt-workforce.
 **Airline Pilots Previously Reported Close Calls With Helicopters Near Reagan Airport**\
 `A database of aviation safety issues details two startling incidents, one in 2024 and one in 2022.`\
 https://nytimes.com/2025/01/31/business/reagan-airport-planes-helicopters-close-calls.html
-
-**Father Seeks $7 Million for Food Poisoning Deaths in Dominican Republic**\
-`A Canadian family of four fell ill after eating at an all-inclusive resort’s buffet in late 2023, leading to the deaths of the mother and oldest son.`\
-https://nytimes.com/2025/01/31/travel/dominican-republic-resort-food-poisoning-deaths-lawsuit.html
 
