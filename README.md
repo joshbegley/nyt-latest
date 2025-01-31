@@ -1,3 +1,7 @@
+**How Pam Shriver's Grand Slam trophies, stolen during the LA wildfires, were found**\
+`Shriver had trophies from two majors stolen during the Palisades fire in Los Angeles.`\
+https://nytimes.com/athletic/6100800/2025/01/31/pam-shriver-grand-slam-trophies-stolen-found-la-wildfires/
+
 **Dog and Microphones**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/01/31/learning/dog-and-microphones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006016/2025/01/31/anwar-el-ghazi-interview/
 **Word of the Day: obsolescence**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/31/learning/word-of-the-day-obsolescence.html
-
-**Is Kobbie Mainoo better suited to thrive as a Manchester United No 10?**\
-`Ruben Amorim suggested the youngster had been 'struggling a lot defending as a midfielder' and thrust him into a more advanced role at FCSB`\
-https://nytimes.com/athletic/6102075/2025/01/31/mainoo-manchester-united-amorim-europa-fcsb-10/
 
