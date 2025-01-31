@@ -1,40 +1,40 @@
-**How Pam Shriver's Grand Slam trophies, stolen during the LA wildfires, were found**\
-`Shriver had trophies from two majors stolen during the Palisades fire in Los Angeles.`\
-https://nytimes.com/athletic/6100800/2025/01/31/pam-shriver-grand-slam-trophies-stolen-found-la-wildfires/
+**Trump’s Deportations Only Work if Countries Agree to Take Their Citizens Back**\
+`Sending people to another country requires bilateral negotiations and diplomatic strong arming.`\
+https://nytimes.com/2025/01/31/world/trumps-deportations-only-work-if-countries-agree-to-take-their-citizens-back.html
 
-**Dog and Microphones**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/01/31/learning/dog-and-microphones.html
+**Migration Is Remaking Our World — and We Don’t Yet Understand It**\
+`The global population is shifting in ways we don’t yet comprehend.`\
+https://nytimes.com/2025/01/31/opinion/migration-population-series.html
 
-**On Sunday, the Grammys Hope to Hit the Right Note**\
-`Our music industry correspondent talks about what he’ll be watching, and what may look different, at this year’s music awards.`\
-https://nytimes.com/2025/01/31/reader-center/grammy-coverage.html
+**3 Lessons for Living Well, From the Dying**\
+`Hospice workers share their insights.`\
+https://nytimes.com/2025/01/31/well/hospice-patients-advice.html
 
-**Dior Men’s Designer Departs, Leaving Unanswered Questions**\
-`The exit of Kim Jones, the label’s creative director since 2018, was abrupt but not unexpected.`\
-https://nytimes.com/2025/01/31/style/dior-mens-designer-departs-leaving-unanswered-questions.html
+**Musk Lawyer Tries to Build a Powerhouse Firm With a Billionaire Client**\
+`Donors with ties to Elon Musk have grown in prominence in the Republican Party since Donald J. Trump’s victory. The same is true for those in the legal world, like Mr. Musk’s lawyer, Chris Gober.`\
+https://nytimes.com/2025/01/31/us/politics/musk-trump-lawyer.html
 
-**What Mass Deportations Would Do to New York City’s Economy**\
-`Major industries like construction, child care and restaurants rely heavily on undocumented workers, who would be hard to replace, economists and employers say.`\
-https://nytimes.com/2025/01/31/nyregion/nyc-mass-deportations-economy.html
+**High Inflation Sows Debate About New Fed Playbook for Tariffs**\
+`Fresh tariffs amid high inflation are making the Fed’s job uniquely difficult and feeding uncertainty about what to expect for interest rates this year.`\
+https://nytimes.com/2025/01/31/us/politics/fed-tariffs-inflation-canada-mexico.html
 
-**A Newspaper’s Fight With a Trump-Aligned Local Official Heads to Court**\
-`Newsday plans to sue Bruce Blakeman, the executive of Nassau County, N.Y., after he made The New York Post the government’s official publication.`\
-https://nytimes.com/2025/01/31/nyregion/newsday-suing-blakeman-nassau-county.html
+**From Anguish to Aggression: Trump Goes on Offense After Midair Collision**\
+`President Trump at moments of national tragedy has always been more comfortable finding fault than providing comfort or expressing empathy.`\
+https://nytimes.com/2025/01/31/us/politics/from-anguish-to-aggression-trump-goes-on-offense-after-midair-collision.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/31/crosswords/spelling-bee-forum.html
+**What to Know About Trump’s Military Deportation Flights**\
+`The president authorized the military to assist in deportations. The planes triggered a crisis between the United States and Colombia, and prompted questions. Here’s what to know.`\
+https://nytimes.com/2025/01/31/world/americas/trump-military-deportation-flights.html
 
-**Cole Sillinger's first career OT goal ends Blue Jackets' 'boring' win in Vegas**\
-`Sillinger's goal gave the Blue Jackets a 2-1 victory over the Golden Knights. `\
-https://nytimes.com/athletic/6102272/2025/01/31/cole-sillinger-overtime-goal-blue-jackets-win-vegas/
+**FKA twigs Bends Pop to Her Will**\
+`Our chief pop critic reviews the shape-shifting artist’s new album, “Eusexua.”`\
+https://nytimes.com/2025/01/31/podcasts/fka-twigs-bends-pop-to-her-will.html
 
-**Anwar El Ghazi - the footballer sacked over Israel-Gaza social media posts who won in court**\
-`El Ghazi is rebuilding his career after winning a court case over his sacking by Mainz for comments he wrote about the Israel-Gaza conflict`\
-https://nytimes.com/athletic/6006016/2025/01/31/anwar-el-ghazi-interview/
+**The New York Times News Quiz, Jan. 31, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/01/31/briefing/trump-rfk-jr-plane-crash-deepseek.html
 
-**Word of the Day: obsolescence**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/01/31/learning/word-of-the-day-obsolescence.html
+**How to Hang Anything on Your Wall**\
+`It can be scary to drill holes in the wall. For the first entry in our new D.I.Y. series, we’ll show you how to mount a television, or whatever you want.`\
+https://nytimes.com/2025/01/31/realestate/how-to-hang-anything-on-your-wall.html
 
