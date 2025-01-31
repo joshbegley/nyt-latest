@@ -1,3 +1,11 @@
+**FPL: Double Gameweek 25 announced - Who will play twice? What chip should I use?**\
+`Unexpected fixture announcements mean we're set for back-to-back double gameweeks - and that should change your chip strategy`\
+https://nytimes.com/athletic/6102754/2025/01/31/fantasy-premier-league-double-gameweek-25-tips/
+
+**After Fleeing Violence in Guatemala, Their Child Was Killed in a U.S. School**\
+`A week after a 16-year-old was shot at her high school in Nashville, her parents made the wrenching decision to send her body back to Guatemala.`\
+https://nytimes.com/2025/01/31/us/politics/gun-violence-immigrant-family-nashville.html
+
 **Brandon Hughes returning to Cubs on a minor-league deal: Source**\
 `Back in 2022, Hughes posted a 3.12 ERA in 57 appearances for a rebuilding team, including eight saves.`\
 https://nytimes.com/athletic/6101345/2025/01/31/brandon-hughes-chicago-cubs-deal/

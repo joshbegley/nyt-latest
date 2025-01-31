@@ -1,3 +1,11 @@
+**FPL: Double Gameweek 25 announced - Who will play twice? What chip should I use?**\
+`Unexpected fixture announcements mean we're set for back-to-back double gameweeks - and that should change your chip strategy`\
+https://nytimes.com/athletic/6102754/2025/01/31/fantasy-premier-league-double-gameweek-25-tips/
+
+**After Fleeing Violence in Guatemala, Their Child Was Killed in a U.S. School**\
+`A week after a 16-year-old was shot at her high school in Nashville, her parents made the wrenching decision to send her body back to Guatemala.`\
+https://nytimes.com/2025/01/31/us/politics/gun-violence-immigrant-family-nashville.html
+
 **A Trump envoy will meet Venezuela’s Maduro, and Rubio heads to the Panama Canal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/a-trump-envoy-will-meet-venezuelas-maduro-and-rubio-heads-to-the-panama-canal
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6103283/2025/01/31/nhl-salary-cap-rising/
 **Inside Naomi Girma's move to Chelsea**\
 `As Girma’s profile rose in the U.S. and the international game, the Wave’s technical staff realized they would struggle to afford her.`\
 https://nytimes.com/athletic/6102609/2025/01/31/naomi-girma-chelsea-deal/
-
-**Wrexham make another forward signing with addition of Burnley's Rodriguez**\
-`Wrexham have completed the signing of Burnley striker Jay Rodriguez, the second addition to the club&#8217;s forward ranks today.`\
-https://nytimes.com/athletic/6103124/2025/01/31/jay-rodriguez-wrexham-transfer/
-
-**Villa's Manas handed two-game ban, Newcastle's Tindall avoids sanction**\
-`Manas and Tindall were earlier charged with 'improper conduct' after being sent off following a melee in the St James' Park tunnel`\
-https://nytimes.com/athletic/6049267/2025/01/31/newcastle-aston-villa-tindall-manas/
 
