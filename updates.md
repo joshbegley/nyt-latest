@@ -1,3 +1,15 @@
+**LeBrun: Will skyrocketing NHL salary cap lead to a new era of haves and have-nots?**\
+`The big question after Friday's announcement: How many teams actually have the financial budget to max out at a cap over $100 million?`\
+https://nytimes.com/athletic/6103703/2025/01/31/nhl-salary-cap-revenue-sharing/
+
+**How fans can make sense (or nonsense) out of the Giants trading Taylor Rogers**\
+`The reasoning behind the Rogers deal doesn't seem that straightforward. Here are a few theories why they made the move.`\
+https://nytimes.com/athletic/6101959/2025/01/31/sf-giants-taylor-rogers-trade-analysis/
+
+**Padres avoid arbitration with Michael King, slightly easing payroll crunch**\
+`The agreement extends the Padres’ streak of never having gone to an arbitration hearing in A.J. Preller’s tenure as general manager.`\
+https://nytimes.com/athletic/6103729/2025/01/31/san-diego-padres-michael-king-arbitration/
+
 **Meta Said to Explore Incorporating in a Different State**\
 `The owner of Facebook and Instagram is incorporated in Delaware, but is considering a change. Its corporate headquarters would remain in Silicon Valley, people with knowledge of the matter said.`\
 https://nytimes.com/2025/01/31/technology/meta-incorporation-delaware.html
