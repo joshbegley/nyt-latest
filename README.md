@@ -1,3 +1,19 @@
+**Leroux: How midlevel exception deals may affect present and future trade deadlines**\
+`The CBA's apron structure limits certain transactions, but this wrinkle opens up some possibilities that didn't exist before.`\
+https://nytimes.com/athletic/6097621/2025/01/31/nba-trade-deadline-midlevel-exception-analysis/
+
+**NBA trade deadline narratives I'm watching: Pacers' future, Cavs' conundrum and more**\
+`In Indiana and elsewhere, teams are checking their books and keeping an eye on their tax situations.`\
+https://nytimes.com/athletic/6101443/2025/01/31/nba-trade-deadline-trends-pacers-luxury-tax/
+
+**Which Senior Bowl participants could be on Browns' radar come April?**\
+`Projecting players from the Senior Bowl Cleveland could consider taking once the NFL Draft arrives.  `\
+https://nytimes.com/athletic/6101458/2025/01/31/browns-senior-bowl-2025-mock-draft/
+
+**Super Bowl or Senior Citizen Bowl? Older coaches are having a moment in the NFL**\
+`The Super Bowl coaching staffs feature five coaches in their 60s, including Andy Reid, the oldest head coach in the NFL in 2024.`\
+https://nytimes.com/athletic/6097726/2025/01/31/super-bowl-nfl-older-coaches-andy-reid/
+
 **Arsenal target Nypan expected to stay at Rosenborg until end of season**\
 `Arsenal transfer target Sverre Nypan is expected to stay at Rosenborg until the end of the season.`\
 https://nytimes.com/athletic/6035335/2025/01/31/arsenal-transfers-sverre-nypan-stays/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/31/well/hospice-patients-advice.html
 **Musk Lawyer Tries to Build a Powerhouse Firm With a Billionaire Client**\
 `Donors with ties to Elon Musk have grown in prominence in the Republican Party since Donald J. Trump’s victory. The same is true for those in the legal world, like Mr. Musk’s lawyer, Chris Gober.`\
 https://nytimes.com/2025/01/31/us/politics/musk-trump-lawyer.html
-
-**High Inflation Sows Debate About New Fed Playbook for Tariffs**\
-`Fresh tariffs amid high inflation are making the Fed’s job uniquely difficult and feeding uncertainty about what to expect for interest rates this year.`\
-https://nytimes.com/2025/01/31/us/politics/fed-tariffs-inflation-canada-mexico.html
-
-**From Anguish to Aggression: Trump Goes on Offense After Midair Collision**\
-`President Trump at moments of national tragedy has always been more comfortable finding fault than providing comfort or expressing empathy.`\
-https://nytimes.com/2025/01/31/us/politics/from-anguish-to-aggression-trump-goes-on-offense-after-midair-collision.html
-
-**What to Know About Trump’s Military Deportation Flights**\
-`The president authorized the military to assist in deportations. The planes triggered a crisis between the United States and Colombia, and prompted questions. Here’s what to know.`\
-https://nytimes.com/2025/01/31/world/americas/trump-military-deportation-flights.html
-
-**FKA twigs Bends Pop to Her Will**\
-`Our chief pop critic reviews the shape-shifting artist’s new album, “Eusexua.”`\
-https://nytimes.com/2025/01/31/podcasts/fka-twigs-bends-pop-to-her-will.html
 
