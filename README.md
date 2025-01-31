@@ -1,3 +1,7 @@
+**Flames trade Kuzmenko, Pelletier and picks to Flyers for Frost, Farabee**\
+`The Calgary Flames traded wingers Andrei Kuzmenko and Jakob Pelletier, plus second- and seventh-round draft picks, to the Philadelphia Flyers on Thursday night for center Morgan Frost and winger Joel Farabee.`\
+https://nytimes.com/athletic/6102174/2025/01/31/flyers-flames-trade-frost-kuzmenko/
+
 **Why Liverpool and Kerkez would make sense as a summer transfer**\
 `Arne Slot needs more options at left-back and the Bournemouth youngster seems to tick every box`\
 https://nytimes.com/athletic/6098768/2025/01/31/liverpool-milos-kerkez-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/briefing/plane-crash-gaza-rfk.html
 **How to succeed in Fantasy Premier League's first double gameweek of the season - a debate**\
 `From the best chip to use to Everton’s smart differentials, Holly Shand and Abdul Rehman debate the ultimate strategies for Gameweek 24`\
 https://nytimes.com/athletic/6099318/2025/01/31/fantasy-premier-league-double-gameweek-24-strategy/
-
-**Man City's Premier League charges - exploring what their past cases and evidence reveals**\
-`Exploring evidence from previous cases Manchester City have faced to explain the charges being deliberated over in the Premier League trial`\
-https://nytimes.com/athletic/5925048/2025/01/31/manchester-city-premier-league-charges-evidence/
 
