@@ -1,3 +1,19 @@
+**Official Email Tells Federal Workers to Find More Productive Jobs in the Private Sector**\
+`On Thursday, vast numbers of the government work force received an “F.A.Q.s” e-mail on how to leave their “lower productivity jobs” in government for more productive ones in business.`\
+https://nytimes.com/2025/01/31/us/politics/federal-workers-opm.html
+
+**Six players set to return for Spurs over next 10 days, says Postecoglou**\
+`Tottenham Hotspur have been handed a huge boost as six key players are due to return from long-term injuries over the next fortnight.`\
+https://nytimes.com/athletic/6102922/2025/01/31/ange-postecoglou-tottenham-injury-returns/
+
+**Book Club: Read ‘Orbital,’ by Samantha Harvey, With the Book Review**\
+`In February, the Book Review Book Club will read and discuss “Orbital,” a Booker Prize-winning novel following six people living and working on a space station above Earth.`\
+https://nytimes.com/2025/01/31/books/review/orbital-samantha-harvey-book-club.html
+
+**"Smell it?": The Rock leads new era of WWE trading cards**\
+`The WWE is reaching new audiences and Topps is hoping to reach new collectors with a new approach to WWE cards `\
+https://nytimes.com/athletic/6101673/2025/01/31/wwe-topps-chrome-wrestling-cards/
+
 **The Treasury official who oversees payments resigns suddenly.**\
 `Elon Musk has deployed engineers to Treasury to find a way to shut down payments unilaterally.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/the-treasury-official-who-oversees-payments-resigns-suddenly
