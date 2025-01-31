@@ -1,3 +1,7 @@
+**50 Things We Say Now, Thanks to ‘S.N.L.’**\
+`Since “Saturday Night Live” began, the show has introduced catchphrases that wind up in our own conversations. Isn’t that special?`\
+https://nytimes.com/interactive/2025/01/31/arts/television/-saturday-night-live-skit-catchphrases-quotes.html
+
 **Nonprofits Dread Attempts to Scrutinize Diversity Initiatives**\
 `Multiple groups said that a government email address created for reports of attempts to thwart the Trump administration’s crackdown was used to sign up for their newsletters.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/nonprofits-dread-attempts-to-scrutinize-diversity-initiatives
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/us/tufts-lacrosse-navy-seal.html
 **Federal Judge Orders White House to Keep Money Flowing to 22 States**\
 `A court in Rhode Island issued a temporary restraining order to block Trump’s directive to defund programs he considers to be “woke.”`\
 https://nytimes.com/2025/01/31/us/trump-freeze-blocked.html
-
-**Mets agree with infielder Nick Madrigal on 1-year deal: Sources**\
-`Madrigal is set to compete for a role along with Brett Baty, Luisangel Acuña and Ronny Mauricio, among others.`\
-https://nytimes.com/athletic/6104125/2025/01/31/mets-nick-madrigal-contract/
 

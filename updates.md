@@ -1,3 +1,7 @@
+**50 Things We Say Now, Thanks to ‘S.N.L.’**\
+`Since “Saturday Night Live” began, the show has introduced catchphrases that wind up in our own conversations. Isn’t that special?`\
+https://nytimes.com/interactive/2025/01/31/arts/television/-saturday-night-live-skit-catchphrases-quotes.html
+
 **Rationalizing the Ryan Brasier decision in the crowded Dodgers bullpen**\
 `Dodgers GM Brandon Gomes called it a "difficult decision" to part with Brasier after the team signed Kirby Yates.`\
 https://nytimes.com/athletic/6104165/2025/01/31/dodgers-ryan-brasier-designated-for-assignment/
