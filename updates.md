@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About Alan Hollinghurst’s ‘Our Evenings’**\
+`This sweeping novel about the life, loves, struggles and triumphs of a queer English Burmese actor is the topic of our January book club discussion.`\
+https://nytimes.com/2025/01/31/books/review/book-club-lets-talk-about-alan-hollinghursts-our-evenings.html
+
 **The Retirement Maneuver More People Should Be Making**\
 `Roth conversion is often a smart choice. Don’t let the tax bill scare you.`\
 https://nytimes.com/2025/01/31/opinion/retirement-roth-conversion.html

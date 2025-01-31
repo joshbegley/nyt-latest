@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About Alan Hollinghurst’s ‘Our Evenings’**\
+`This sweeping novel about the life, loves, struggles and triumphs of a queer English Burmese actor is the topic of our January book club discussion.`\
+https://nytimes.com/2025/01/31/books/review/book-club-lets-talk-about-alan-hollinghursts-our-evenings.html
+
 **The Retirement Maneuver More People Should Be Making**\
 `Roth conversion is often a smart choice. Don’t let the tax bill scare you.`\
 https://nytimes.com/2025/01/31/opinion/retirement-roth-conversion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/business/reagan-airport-planes-helicopters-close-
 **Father Seeks $7 Million for Food Poisoning Deaths in Dominican Republic**\
 `A Canadian family of four fell ill after eating at an all-inclusive resort’s buffet in late 2023, leading to the deaths of the mother and oldest son.`\
 https://nytimes.com/2025/01/31/travel/dominican-republic-resort-food-poisoning-deaths-lawsuit.html
-
-**Virginia Pilot Responds After She Is Falsely Targeted Over Black Hawk Crash**\
-`Jo Ellis, a National Guard pilot who is transgender, was falsely identified as the captain of the crashed military helicopter in thousands of social media posts.`\
-https://nytimes.com/2025/01/31/us/virginia-pilot-black-hawk-helicopter-crash.html
 
