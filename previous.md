@@ -1,3 +1,11 @@
+**Brighton sign defender Cashin from Derby**\
+`Brighton &amp; Hove Albion have completed the signing of defender Eiran Cashin from Derby County.`\
+https://nytimes.com/athletic/6104157/2025/01/31/eiran-cashin-brighton-transfer/
+
+**What skyrocketing NHL salary cap means for Maple Leafs, Mitch Marner, John Tavares and free agency**\
+`How well Toronto navigates this paradigm shift will play a big part in determining just how long its core's contention window stays open.`\
+https://nytimes.com/athletic/6103609/2025/01/31/nhl-salary-cap-maple-leafs-marner/
+
 **Belgium Forms a Government After 7 Months of Squabbling**\
 `The country’s tense negotiations hinged on taxing and social spending — and they highlight issues facing Europe, and Western democracies, as a whole.`\
 https://nytimes.com/2025/01/31/world/europe/belgium-government-new-flemish-alliance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/us/politics/trump-democrats-response.html
 **F.A.A. Restricts Helicopter Flights in Reagan National Airspace**\
 `The agency’s decision, made shortly after Wednesday’s deadly collision, was framed by the transportation secretary as an important step toward enhancing safety.`\
 https://nytimes.com/2025/01/31/business/faa-restricts-helicopter-flights-in-reagan-national-airspace.html
-
-**Saints home in on Kellen Moore, tell other candidates they are moving on**\
-`Moore is one of only three candidates known to have taken multiple interviews with New Orleans.`\
-https://nytimes.com/athletic/6103925/2025/01/31/saints-head-coach-candidates-kellen-moore/
-
-**Man City exploring deal for Porto's Gonzalez**\
-`Manchester City are exploring a move for Porto midfielder Nico Gonzalez.`\
-https://nytimes.com/athletic/6103518/2025/01/31/man-city-transfers-nico-gonzalez/
 

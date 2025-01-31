@@ -1,3 +1,11 @@
+**Brighton sign defender Cashin from Derby**\
+`Brighton &amp; Hove Albion have completed the signing of defender Eiran Cashin from Derby County.`\
+https://nytimes.com/athletic/6104157/2025/01/31/eiran-cashin-brighton-transfer/
+
+**What skyrocketing NHL salary cap means for Maple Leafs, Mitch Marner, John Tavares and free agency**\
+`How well Toronto navigates this paradigm shift will play a big part in determining just how long its core's contention window stays open.`\
+https://nytimes.com/athletic/6103609/2025/01/31/nhl-salary-cap-maple-leafs-marner/
+
 **Belgium Forms a Government After 7 Months of Squabbling**\
 `The country’s tense negotiations hinged on taxing and social spending — and they highlight issues facing Europe, and Western democracies, as a whole.`\
 https://nytimes.com/2025/01/31/world/europe/belgium-government-new-flemish-alliance.html
