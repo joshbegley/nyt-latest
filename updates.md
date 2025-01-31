@@ -1,3 +1,11 @@
+**Takashi Murakami’s Beloved, Trippy Louis Vuitton Bags Are Back**\
+`The brand has updated its 2003 collaboration with the Japanese artist.`\
+https://nytimes.com/2025/01/31/t-magazine/takashi-murakami-louis-vuitton-bag.html
+
+**The Orchestra of St. Luke’s Turns 50, as Nimble and Free as Ever**\
+`The ensemble, a New York original, keeps its players busy with work off the beaten path, whether Schubert rarities or “The Lord of the Rings.”`\
+https://nytimes.com/2025/01/31/arts/music/st-lukes-orchestra-carnegie-classical-music.html
+
 **DeepSeek’s Answers Include Chinese Propaganda, Researchers Say**\
 `Since the Chinese company’s chatbot surged in popularity, researchers have documented how its answers reflect China’s view of the world. Some of its responses amplify propaganda Beijing uses to discredit critics.`\
 https://nytimes.com/2025/01/31/technology/deepseek-chinese-propaganda.html
