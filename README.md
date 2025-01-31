@@ -1,3 +1,11 @@
+**Why Liverpool and Kerkez would make sense as a summer transfer**\
+`Arne Slot needs more options at left-back and the Bournemouth youngster seems to tick every box`\
+https://nytimes.com/athletic/6098768/2025/01/31/liverpool-milos-kerkez-transfer/
+
+**Celebrating five years of Jarrod Bowen and Tomas Soucek: Two modern-day West Ham heroes**\
+`West Ham's electric forward and midfield force of nature both celebrated their five-year anniversaries at the club this week`\
+https://nytimes.com/athletic/6096483/2025/01/31/jarrod-bowen-tomas-soucek-west-ham/
+
 **Do Forest need a Plan B?**\
 `After the 5-0 defeat at Bournemouth, it could be argued that Forest need to tweak their approach to secure European football next season`\
 https://nytimes.com/athletic/6099998/2025/01/31/nottingha-forest-plan-b-counter-attack/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6099318/2025/01/31/fantasy-premier-league-double-ga
 **Man City's Premier League charges - exploring what their past cases and evidence reveals**\
 `Exploring evidence from previous cases Manchester City have faced to explain the charges being deliberated over in the Premier League trial`\
 https://nytimes.com/athletic/5925048/2025/01/31/manchester-city-premier-league-charges-evidence/
-
-**Can Mikel Arteta take the last step? The answer will define his Arsenal reign**\
-`After seemingly regressing this season, the fear is of an era defined by near-misses`\
-https://nytimes.com/athletic/6100255/2025/01/31/can-mikel-artetas-arsenal-regather-to-take-that-final-hardest-step/
-
-**How Bournemouth became the Premier League's best team to watch - and worst to play against**\
-`How the division's smallest club took a risk, backed their talented head coach, recruited smartly and refined their style`\
-https://nytimes.com/athletic/6090877/2025/01/31/bournemouth-iraola-tactics-premier-league-analysis/
 
