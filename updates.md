@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems: Add Barrett Hayton with Dylan Guenther's return and more**\
+`Ahead of the NHL's 4 Nations Face-Off, Shayna Goldman discusses Barrett Hayton's upgrade with Dylan Guenther's return and much more. `\
+https://nytimes.com/athletic/6102011/2025/01/31/fantasy-trends-and-hidden-gems-week-18/
+
+**NHL Power Rankings: The race at the top gets tighter, Senators make a charge**\
+`The Capitals are holding on to the No. 1 spot despite an average week but it's getting crowded at the top of the rankings.`\
+https://nytimes.com/athletic/6102941/2025/01/31/nhl-power-rankings-24/
+
 **How are Connor McDavid and Leon Draisaitl trending ahead of the stretch run?**\
 `Draisaitl looks like a strong candidate for the Hart Trophy and McDavid is delivering a mountain of offence.`\
 https://nytimes.com/athletic/6099847/2025/01/31/oilers-mcdavid-draisaitl-minutes/
