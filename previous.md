@@ -1,3 +1,15 @@
+**U.S. Considers Sending Israel 24,000 Assault Rifles Held Back Under Biden**\
+`Democratic lawmakers had expressed concerns to Secretary of State Antony J. Blinken about the rifles possibly going to settler militias or being misused by the police.`\
+https://nytimes.com/2025/01/31/us/politics/us-israel-assault-rifles.html
+
+**Stars' Miro Heiskanen to see specialist but expected back by playoffs**\
+`Stars GM Jim Nill on the star defenseman: "As we sit here today, I anticipate him being available sometime during the regular season."`\
+https://nytimes.com/athletic/6104087/2025/01/31/stars-miro-heiskanen-injury/
+
+**Federal Workers Ordered to Remove Gender Identity From Email Signatures**\
+`The instructions to employees aimed to fulfill orders from the Trump administration, which told agency heads to remove all references to gender identity from official materials by 5 p.m. Friday.`\
+https://nytimes.com/2025/01/31/us/politics/trump-pronouns.html
+
 **Heat Today: Tyler Herro's teammates, coaches share joy in his All-Star nod**\
 `Now that he knows he'll be in San Francisco, the sixth-year guard has another plan in mind: the All-Star Weekend 3-point contest.`\
 https://nytimes.com/athletic/6103646/2025/01/31/tyler-herro-nba-all-star-heat/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/31/business/media/trump-harris-60-minutes-fcc.html
 **WNBA team in Philadelphia? 76ers ownership group submits official bid**\
 `The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
 https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
-
-**Former Liverpool captain Henderson to stay at Ajax despite Monaco interest**\
-`Former Liverpool captain Jordan Henderson will stay at Ajax despite an approach from Monaco.`\
-https://nytimes.com/athletic/6102367/2025/01/31/henderson-monaco-ajax-transfer-update-liverpool/
-
-**Trump Administration Plans to Scrutinize F.B.I. Agents for Possible Purge**\
-`The move to enact the plan comes just one day after Kash Patel, President Trump’s pick to lead the F.B.I., testified before Congress that the bureau would not be targeted for political reasons.`\
-https://nytimes.com/2025/01/31/us/politics/trump-fbi-agents.html
-
-**Heavy Rain and Floods Sweep Hawaii’s Big Island and Maui**\
-`Flash flood warnings and several inches of rain fell across parts of the chain of islands as part of a storm system moving southeast.`\
-https://nytimes.com/2025/01/31/us/maui-rain-flooding-hawaii.html
 

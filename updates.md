@@ -1,3 +1,15 @@
+**U.S. Considers Sending Israel 24,000 Assault Rifles Held Back Under Biden**\
+`Democratic lawmakers had expressed concerns to Secretary of State Antony J. Blinken about the rifles possibly going to settler militias or being misused by the police.`\
+https://nytimes.com/2025/01/31/us/politics/us-israel-assault-rifles.html
+
+**Stars' Miro Heiskanen to see specialist but expected back by playoffs**\
+`Stars GM Jim Nill on the star defenseman: "As we sit here today, I anticipate him being available sometime during the regular season."`\
+https://nytimes.com/athletic/6104087/2025/01/31/stars-miro-heiskanen-injury/
+
+**Federal Workers Ordered to Remove Gender Identity From Email Signatures**\
+`The instructions to employees aimed to fulfill orders from the Trump administration, which told agency heads to remove all references to gender identity from official materials by 5 p.m. Friday.`\
+https://nytimes.com/2025/01/31/us/politics/trump-pronouns.html
+
 **Heat Today: Tyler Herro's teammates, coaches share joy in his All-Star nod**\
 `Now that he knows he'll be in San Francisco, the sixth-year guard has another plan in mind: the All-Star Weekend 3-point contest.`\
 https://nytimes.com/athletic/6103646/2025/01/31/tyler-herro-nba-all-star-heat/
