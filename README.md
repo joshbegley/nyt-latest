@@ -1,3 +1,11 @@
+**Amorim: Garnacho has 'changed in everything' since being dropped**\
+`Alejandro Garnacho has &#8220;changed in everything&#8221; since being dropped for Manchester United&#8217;s derby victory last month, says Ruben Amorim, who added he wants academy graduates like him to play a part in the club&#8217;s future.`\
+https://nytimes.com/athletic/6102456/2025/01/31/alejandro-garnacho-man-utd-amorim/
+
+**That Art Piece on Your Coffee Table? It’ll Get You High.**\
+`Cannabis paraphernalia is joining the world of home décor. Here are some of the most interesting new designs and designers.`\
+https://nytimes.com/2025/01/31/realestate/cannabis-marijuana-decor-design.html
+
 **Harper: Bring the stars back to the NBA dunk contest**\
 `Are you excited about the possibility of a Mac McClung three-point? Didn't think so.`\
 https://nytimes.com/athletic/6098000/2025/01/31/nba-dunk-contest-disappointing-mac-mcclung/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/business/dealbook/trumps-tariffs-colombia.html
 **La Liga wins El Clasico trademark court case against Madrid and Barcelona**\
 `La Liga has won a court battle over the commercial rights to the term &#8220;El Clasico&#8221; against Real Madrid and Barcelona, the two clubs who play in the fixture.`\
 https://nytimes.com/athletic/6102485/2025/01/31/el-clasico-trademark-barcelona-real-madrid/
-
-**Kalshi, an Online Prediction Market, Will Open Its Bets to Brokerages**\
-`The platform, which recently hired Donald Trump Jr. as an adviser, is seeking to tap Wall Street to expand its potential customer base.`\
-https://nytimes.com/2025/01/31/business/dealbook/kalshi-prediction-market-brokerages.html
-
-**Gonzaga has been a Sweet 16 shoo-in for years. Is this the season that changes?**\
-`Gonzaga opened the season No. 6 but is now unranked and dropped two games in a row in January. But is it figuring things out in time?`\
-https://nytimes.com/athletic/6100980/2025/01/31/gonzaga-mens-basketball-ncaa-tournament/
 
