@@ -1,3 +1,7 @@
+**Champions League play-off draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
+`Our writers assess the key talking points from the Champions Legaue play-off draw`\
+https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
+
 **Blues trade tiers: In wake of Brandon Saad's departure, who may be on the move next?**\
 `The Athletic divides the Blues' 23-man roster into seven trade-tier categories.`\
 https://nytimes.com/athletic/6097360/2025/01/31/st-louis-blues-trade-tiers-saad-nhl/

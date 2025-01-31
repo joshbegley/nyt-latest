@@ -1,3 +1,7 @@
+**Champions League play-off draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
+`Our writers assess the key talking points from the Champions Legaue play-off draw`\
+https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
+
 **Blues trade tiers: In wake of Brandon Saad's departure, who may be on the move next?**\
 `The Athletic divides the Blues' 23-man roster into seven trade-tier categories.`\
 https://nytimes.com/athletic/6097360/2025/01/31/st-louis-blues-trade-tiers-saad-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102323/2025/01/31/oilers-loss-red-wings-john-kling
 **Padres legal dispute: Experts weigh in on case, what could happen next**\
 `We spoke with legal experts about the Seidler case, a potentially key point of disagreement between the two sides, and what might be next.`\
 https://nytimes.com/athletic/6102012/2025/01/31/padres-legal-dispute-explainer-sheel-matt-bob-seidler/
-
-**DeepSeek Deep Dive + Hands-On With Operator + Hot Mess Express!**\
-`“DeepSeek is a really odd duck.”`\
-https://nytimes.com/2025/01/31/podcasts/hardfork-deepseek-china.html
 
