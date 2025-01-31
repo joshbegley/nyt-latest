@@ -1,3 +1,11 @@
+**Once a Trump Foil, Warren Seeks Collaboration on Policy**\
+`As Democrats reel from defeat, Senator Elizabeth Warren, the Massachusetts progressive, preaches focus and accountability.`\
+https://nytimes.com/2025/01/31/us/politics/elizabeth-warren-trump-policy.html
+
+**Western Oregon women's basketball players allege abuse, sue for $28 million**\
+`Players say they were forced to practice while injured and faced harsh treatment from two coaches.`\
+https://nytimes.com/athletic/6103284/2025/01/31/western-oregon-womens-basketball-lawsuit/
+
 **Hayes: Trading for Dylan Cease would give Twins much-needed star power**\
 `Acquiring Cease would boost the Twins' chances of winning the AL Central, but also send a message to fans as the team begins a new TV era.`\
 https://nytimes.com/athletic/6102377/2025/01/31/dylan-cease-trade-twins-tv-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/arts/music/playlist-weeknd-jennie-dominic-fike.ht
 **The Climate Fix: Africa’s Solar Revolution**\
 `In announcing a $35 billion program to bring inexpensive solar power to some 300 million Africans, officials left out two words: climate change.`\
 https://nytimes.com/2025/01/31/climate/the-climate-fix-africas-solar-revolution.html
-
-**Kennedy Says He Will Give HPV Vaccine Lawsuit Proceeds to His Son**\
-`Robert F. Kennedy Jr. also disclosed that he had reached at least one settlement agreement with a company or individual that has accused him of “misconduct or inappropriate behavior.”`\
-https://nytimes.com/2025/01/31/health/rfk-jr-financial-stake-hpv-lawsuits-ethics-confirmation.html
-
-**Challenging How Germany Remembers the 1972 Olympics Attack**\
-`With tensions running high over the war in Gaza, a new opera and a movie are looking back on the moment when Israeli athletes were murdered at the Munich Games.`\
-https://nytimes.com/2025/01/31/arts/music/echo-72-opera-september-5.html
 
