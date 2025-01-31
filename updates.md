@@ -1,3 +1,7 @@
+**WNBA team in Philadelphia, Houston? Bids submitted for expansion franchises**\
+`The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
+https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
+
 **Torino reach agreement with Chelsea for Casadei**\
 `Torino have reached an agreement with Chelsea for the signing of midfielder Cesare Casadei.`\
 https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-chelsea/

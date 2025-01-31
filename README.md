@@ -1,3 +1,7 @@
+**What to Know About Collision Avoidance Systems on Planes**\
+`Commercial planes have technology that helps prevent crashes — but it has limitations, which was highlighted by the accident in Washington.`\
+https://nytimes.com/2025/01/31/business/washington-crash-tcas.html
+
 **Torino reach agreement with Chelsea for Casadei**\
 `Torino have reached an agreement with Chelsea for the signing of midfielder Cesare Casadei.`\
 https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-chelsea/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6046411/2025/01/31/cesare-casadei-transfer-torino-c
 `The broadcaster had declined previous requests by the Trump campaign to release the unedited transcript of an interview with Vice President Kamala Harris.`\
 https://nytimes.com/2025/01/31/business/media/trump-harris-60-minutes-fcc.html
 
-**WNBA team in Philadelphia, Houston? Bids submitted for expansion franchises**\
+**WNBA team in Philadelphia? 76ers ownership group submits official bid**\
 `The Sixers will be the principal investors and there are plans for other partners if the bid is successful.`\
 https://nytimes.com/athletic/6103922/2025/01/31/wnba-philadelphia-expansion-team-bid/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/health/trump-cdc-dei-gender.html
 **Italian Judges Again Block Meloni’s Plan to Hold Asylum Seekers in Albania**\
 `It was the third ruling against the policy of Prime Minister Giorgia Meloni’s right-wing government by a court, which ruled against the transfers pending a review next month by an E.U. court.`\
 https://nytimes.com/2025/01/31/world/europe/italy-immigrants-albania.html
-
-**Tel indicates to Tottenham he intends to stay at Bayern Munich**\
-`Mathys Tel indicated to Tottenham Hotspur that he intends to stay at Bayern Munich and reassess his future in the summer, despite agreements being reached for him to join the north London club and interest from a host of others teams.`\
-https://nytimes.com/athletic/6103657/2025/01/31/mathys-tel-bayern-munich-future-tottenham/
 
