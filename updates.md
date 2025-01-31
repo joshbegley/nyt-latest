@@ -1,3 +1,7 @@
+**Anwar El Ghazi - the footballer sacked over Israel-Gaza social media posts who won in court**\
+`El Ghazi is rebuilding his career after winning a court case over his sacking by Mainz for comments he wrote about the Israel-Gaza conflict`\
+https://nytimes.com/athletic/6006016/2025/01/31/anwar-el-ghazi-interview/
+
 **Word of the Day: obsolescence**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/01/31/learning/word-of-the-day-obsolescence.html
