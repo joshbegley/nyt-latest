@@ -1,7 +1,3 @@
-**How to watch the 2025 Pro Bowl, Sunday's skills show and flag football game**\
-`The 2025 Pro Bowl Games conclude Sunday with a skills challenge and a 7-on-7 flag football scrimmage. Read here for how to watch the action.`\
-https://nytimes.com/athletic/6101820/2025/01/31/nfl-pro-bowl-how-to-watch-preview/
-
 **Man United exploring summer move for Sporting's Quenda**\
 `Manchester United are exploring a deal to sign winger Geovany Quenda from Sporting CP in the summer.`\
 https://nytimes.com/athletic/6102523/2025/01/31/manchester-united-transfers-geovany-quenda/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
 **Blues trade tiers: In wake of Brandon Saad's departure, who may be on the move next?**\
 `The Athletic divides the Blues' 23-man roster into seven trade-tier categories.`\
 https://nytimes.com/athletic/6097360/2025/01/31/st-louis-blues-trade-tiers-saad-nhl/
+
+**Broncos mailbag: Could Tee Higgins be worth an aggressive free-agency approach?**\
+`Plus, a look at some under-the-radar needs the Broncos have as they try to build a contending roster in 2025 and beyond.`\
+https://nytimes.com/athletic/6100386/2025/01/31/broncos-mailbag-free-agency-draft/
 
