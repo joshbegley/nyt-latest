@@ -1,3 +1,15 @@
+**The treasury official who oversees payments resigns suddenly.**\
+`Elon Musk has deployed engineers to Treasury to find a way to shut down payments unilaterally.`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/the-treasury-official-who-oversees-payments-resigns-suddenly
+
+**The Bounce: Victor Wembanyama earns NBA All-Star nod as rosters revealed. Who got snubbed?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6102604/2025/01/31/victor-wembanyama-spurs-nba-all-star-trade-deadline-the-bounce/
+
+**Wrexham sign Reading striker Smith in club record transfer**\
+`Wrexham have broken their transfer record to sign Reading striker Sam Smith.`\
+https://nytimes.com/athletic/6102949/2025/01/31/sam-smith-wrexham-record-transfer/
+
 **The World Economy Awaits Trump’s First Round of Tariffs**\
 `Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
 https://nytimes.com/2025/01/31/business/economy/trump-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6102774/2025/01/31/crystal-palace-team-news-eze-wha
 **Row Z: Neymar makes friends for life, Adkins turns to Abraham Lincoln and Duran's dreams**\
 `Our weekly round-up of soccer's sillier side is something of a Saudi Pro League special, plus a dose of WPL Premier Division refereeing`\
 https://nytimes.com/athletic/6102470/2025/01/31/neymar-abraham-lincoln-adkins-gerrard-duran-row-z/
-
-**See Lucy Run, 3.2 Million Years Ago**\
-`Our early human ancestor was capable of running, if slowly, a new study finds.`\
-https://nytimes.com/2025/01/31/science/running-afarensis-lucy.html
-
-**Emery says Watkins is 'happy to stay' at Villa despite Arsenal interest**\
-`Unai Emery says Ollie Watkins is happy to stay at Aston Villa, ruling out a potential departure this window.`\
-https://nytimes.com/athletic/6102687/2025/01/31/aston-villa-unai-emery-ollie-watkins/
-
-**This Josephine Baker Oral History Has Never Been Published Here. Now We Know Why.**\
-`“Fearless and Free,” recorded between 1926 and 1949, is full of heroism, glamour, righteous anger — and things you wish you could unsee.`\
-https://nytimes.com/2025/01/31/books/review/josephine-baker-fearless-and-free.html
 
