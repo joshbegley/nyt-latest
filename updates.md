@@ -1,3 +1,15 @@
+**The Retirement Maneuver More People Should Be Making**\
+`Roth conversion is often a smart choice. Don’t let the tax bill scare you.`\
+https://nytimes.com/2025/01/31/opinion/retirement-roth-conversion.html
+
+**The Best Retro Sneakers to Buy Now**\
+`Our pick of the season’s vintage-inspired running shoes.`\
+https://nytimes.com/2025/01/31/t-magazine/best-retro-sneakers.html
+
+**Why a trade for Dylan Cease seems unlikely right now for Mets**\
+`The price tag for Cease could evolve, but sources said the Mets are hesitant about the current potential acquisition cost.`\
+https://nytimes.com/athletic/6103619/2025/01/31/mets-dylan-cease-trade-unlikely/
+
 **Woman Pardoned in Jan. 6 Case Gets 10-Year Sentence in Drunken-Driving Death**\
 `Prosecutors said the woman was intoxicated when she crashed into another car in Missouri, killing a passenger, on Jan. 5, 2022, a year after she joined the mob that stormed the U.S. Capitol.`\
 https://nytimes.com/2025/01/31/us/missouri-woman-drunk-driving-death-jan-6.html
