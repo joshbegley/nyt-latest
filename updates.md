@@ -1,3 +1,7 @@
+**Cole Sillinger's first career OT goal ends Blue Jackets' 'boring' win in Vegas**\
+`Sillinger's goal gave the Blue Jackets a 2-1 victory over the Golden Knights. `\
+https://nytimes.com/athletic/6102272/2025/01/31/cole-sillinger-overtime-goal-blue-jackets-win-vegas/
+
 **Anwar El Ghazi - the footballer sacked over Israel-Gaza social media posts who won in court**\
 `El Ghazi is rebuilding his career after winning a court case over his sacking by Mainz for comments he wrote about the Israel-Gaza conflict`\
 https://nytimes.com/athletic/6006016/2025/01/31/anwar-el-ghazi-interview/

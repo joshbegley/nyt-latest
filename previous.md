@@ -1,3 +1,7 @@
+**Cole Sillinger's first career OT goal ends Blue Jackets' 'boring' win in Vegas**\
+`Sillinger's goal gave the Blue Jackets a 2-1 victory over the Golden Knights. `\
+https://nytimes.com/athletic/6102272/2025/01/31/cole-sillinger-overtime-goal-blue-jackets-win-vegas/
+
 **Anwar El Ghazi - the footballer sacked over Israel-Gaza social media posts who won in court**\
 `El Ghazi is rebuilding his career after winning a court case over his sacking by Mainz for comments he wrote about the Israel-Gaza conflict`\
 https://nytimes.com/athletic/6006016/2025/01/31/anwar-el-ghazi-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102174/2025/01/31/flyers-flames-trade-frost-kuzmen
 **Why Liverpool and Kerkez would make sense as a summer transfer**\
 `Arne Slot needs more options at left-back and the Bournemouth youngster seems to tick every box`\
 https://nytimes.com/athletic/6098768/2025/01/31/liverpool-milos-kerkez-transfer/
-
-**Celebrating five years of Jarrod Bowen and Tomas Soucek: Two modern-day West Ham heroes**\
-`West Ham's electric forward and midfield force of nature both celebrated their five-year anniversaries at the club this week`\
-https://nytimes.com/athletic/6096483/2025/01/31/jarrod-bowen-tomas-soucek-west-ham/
 
