@@ -1,3 +1,7 @@
+**Paramount in Settlement Talks With Trump Over ‘60 Minutes’ Lawsuit**\
+`A settlement, if reached, would be an extraordinary concession by a major U.S. media company to a sitting president.`\
+https://nytimes.com/2025/01/30/business/media/paramount-trump-cbs-news-settlement.html
+
 **Astros target Jorge Polanco re-signs with Mariners: Sources**\
 `Polanco's one-year, $7.75 million deal with Seattle provides some clarity during the waning days of the Alex Bregman sweepstakes.`\
 https://nytimes.com/athletic/6101815/2025/01/30/jorge-polanco-mariners-astros/
