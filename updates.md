@@ -1,3 +1,5 @@
+
+
 **Flamengo say Everton have agreed loan deal for midfielder Alcaraz**\
 `The deal, Flamengo say, includes an option to buy if certain conditions are met.`\
 https://nytimes.com/athletic/6103411/2025/01/31/carlos-alcaraz-everton-transfer-flamengo/
