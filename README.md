@@ -1,3 +1,7 @@
+**Reagan Airport Had a Number of Close Calls in Recent Years**\
+`Internal government reports and public databases highlight several instances in which planes narrowly escaped collisions with each other or helicopters.`\
+https://nytimes.com/2025/01/31/business/reagan-airport-close-calls.html
+
 **Former MVP Nneka Ogwumike re-signs with Seattle Storm**\
 `Ogwumike signed in Seattle as a free agent in 2024.`\
 https://nytimes.com/athletic/6104263/2025/01/31/nneka-ogwumike-seattle-storm-contract-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104165/2025/01/31/dodgers-ryan-brasier-designated-
 **‘Crash, Crash, Crash!’: Audio Reveals History of Close Calls at Reagan Airport**\
 `As investigators continue to try to determine the cause of Wednesday’s plane collision in Washington, D.C., control tower audio from Reagan National Airport reveals a history of safety issues, airspace congestion and near misses.`\
 https://nytimes.com/video/us/100000009959220/dc-plane-crash-reagan-airport-safety-issues.html
-
-**Brighton sign defender Cashin from Derby**\
-`Brighton &amp; Hove Albion have completed the signing of defender Eiran Cashin from Derby County.`\
-https://nytimes.com/athletic/6104157/2025/01/31/eiran-cashin-brighton-transfer/
 
