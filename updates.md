@@ -1,3 +1,7 @@
+**Champions League play-off draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
+`Our writers assess the key talking points from the Champions League play-off draw`\
+https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
+
 **Kalshi, an Online Prediction Market, Will Open Its Bets to Brokerages**\
 `The platform, which recently hired Donald Trump Jr. as an adviser, is seeking to tap Wall Street to expand its potential customer base.`\
 https://nytimes.com/2025/01/31/business/dealbook/kalshi-prediction-market-brokerages.html

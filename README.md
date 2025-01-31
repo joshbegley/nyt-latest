@@ -1,3 +1,11 @@
+**Nowhere to Hide From Trump’s Tariffs**\
+`President Trump’s long-promised trade war could start as soon as Saturday, leaving companies scrambling for a workaround for their global supply chains.`\
+https://nytimes.com/2025/01/31/business/dealbook/trumps-tariffs-colombia.html
+
+**La Liga wins El Clasico trademark court case against Madrid and Barcelona**\
+`La Liga has won a court battle over the commercial rights to the term &#8220;El Clasico&#8221; against Real Madrid and Barcelona, the two clubs who play in the fixture.`\
+https://nytimes.com/athletic/6102485/2025/01/31/el-clasico-trademark-barcelona-real-madrid/
+
 **Kalshi, an Online Prediction Market, Will Open Its Bets to Brokerages**\
 `The platform, which recently hired Donald Trump Jr. as an adviser, is seeking to tap Wall Street to expand its potential customer base.`\
 https://nytimes.com/2025/01/31/business/dealbook/kalshi-prediction-market-brokerages.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6101151/2025/01/31/nhl-players-marty-walsh-cba-talk
 **The Athletic’s Friday football quiz question #40**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6102436/2025/01/31/the-athletics-friday-football-quiz-question-40/
-
-**Premier League clubs shouldn't be looking for the new Erling Haaland**\
-`A host of Premier League sides are currently in the market for new forwards, but is the league's top scorer really the man to emulate?`\
-https://nytimes.com/athletic/6099453/2025/01/31/premier-league-clubs-like-arsenal-shouldnt-be-looking-for-the-new-erling-haaland/
-
-**FPL live Q&A: FPL Gameweek 24 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 24 Q&A between 4pm and 5pm GMT`\
-https://nytimes.com/athletic/6099275/2025/01/31/fantasy-premier-league-advice-gw24-tips/
 

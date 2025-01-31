@@ -7,7 +7,7 @@ https://nytimes.com/2025/01/31/business/dealbook/kalshi-prediction-market-broker
 https://nytimes.com/athletic/6100980/2025/01/31/gonzaga-mens-basketball-ncaa-tournament/
 
 **Champions League play-off draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
-`Our writers assess the key talking points from the Champions Legaue play-off draw`\
+`Our writers assess the key talking points from the Champions League play-off draw`\
 https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
 
 **Blues trade tiers: In wake of Brandon Saad's departure, who may be on the move next?**\
