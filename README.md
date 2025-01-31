@@ -1,6 +1,14 @@
+**Father Seeks $7 Million for Food Poisoning Deaths in Dominican Republic**\
+`A Canadian family of four fell ill after eating at an all-inclusive resort’s buffet in late 2023, leading to the deaths of the mother and oldest son.`\
+https://nytimes.com/2025/01/31/travel/dominican-republic-resort-food-poisoning-deaths-lawsuit.html
+
+**Virginia Pilot Responds After She Is Falsely Targeted Over Black Hawk Crash**\
+`Jo Ellis, a National Guard pilot who is transgender, was falsely identified as the captain of the crashed military helicopter in thousands of social media posts.`\
+https://nytimes.com/2025/01/31/us/virginia-pilot-black-hawk-helicopter-crash.html
+
 **Education Dept. Tells Schools to Change Sexual Misconduct Rules**\
 `The guidance bolsters the rights of students accused of sexual misconduct and scraps Biden-era rules extending protections to L.G.B.T.Q. students.`\
-https://nytimes.com/2025/01/31/us/politics/education-dept-tells-schools-to-change-sexual-misconduct-rules.html
+https://nytimes.com/2025/01/31/us/politics/education-dept-title-ix-sexual-misconduct.html
 
 **This Carnivore Turned Up in Egypt After Vanishing 5,000 Years Ago**\
 `When a scientist received a video of a spotted hyena in the southern part of his country, he thought someone was playing a trick on him.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/opinion/kash-patel-fbi-hoover.html
 **Karla Sofía Gascón Apologizes for Social Media Posts**\
 `The Oscar-nominated actress, who plays a cartel leader in “Emilia Pérez,” was criticized for derogatory comments about Muslims, George Floyd and China.`\
 https://nytimes.com/2025/01/31/movies/karla-sofia-gascon-apology-netflix.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 1/31 at 2:00 p.m. ET**\
-`Submit your questions for Eno Sarris' live baseball chat. `\
-https://nytimes.com/athletic/6103563/2025/01/31/eno-sarris-live-baseball-chat-1-31/
-
-**These California Olives Are Unique and Delicious. They May Already Be Gone.**\
-`Dramatic climate events and crop shortages have Graber, a century-old family company, facing permanent closure.`\
-https://nytimes.com/2025/01/31/dining/graber-california-olives.html
 
