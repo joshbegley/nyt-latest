@@ -1,3 +1,7 @@
+**Paramount in Settlement Talks With Trump Over ‘60 Minutes’ Lawsuit**\
+`A settlement, if reached, would be an extraordinary concession by a major U.S. media company to a sitting president.`\
+https://nytimes.com/2025/01/30/business/media/paramount-trump-cbs-news-settlement.html
+
 **Astros target Jorge Polanco re-signs with Mariners: Sources**\
 `Polanco's one-year, $7.75 million deal with Seattle provides some clarity during the waning days of the Alex Bregman sweepstakes.`\
 https://nytimes.com/athletic/6101815/2025/01/30/jorge-polanco-mariners-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100482/2025/01/30/eagles-brandon-graham-practice-w
 **How Each Senator Voted to Confirm Doug Burgum as Interior Secretary**\
 `The Senate voted 79 to 18 to confirm Mr. Burgum, a former governor of North Dakota, as the next interior secretary.`\
 https://nytimes.com/interactive/2025/01/30/us/politics/burgum-senate-confirmation-vote.html
-
-**Marianne Faithfull Made an Art of Upending Expectations**\
-`The singer, who died on Thursday at 78, spent decades in the spotlight exercising a very specific and subversive power.`\
-https://nytimes.com/2025/01/30/arts/music/marianne-faithfull-singer-career.html
 
