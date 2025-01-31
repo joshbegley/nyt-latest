@@ -1,3 +1,7 @@
+**Harper: Bring the stars back to the NBA dunk contest**\
+`Are you excited about the possibility of a Mac McClung three-point? Didn't think so.`\
+https://nytimes.com/athletic/6098000/2025/01/31/nba-dunk-contest-disappointing-mac-mcclung/
+
 **NHL trade board 5.0: Where the market stands after the Rantanen blockbuster**\
 `The tremors from the Mikko Rantanen blockbuster were still echoing around the league when another bomb dropped in Vancouver this week.`\
 https://nytimes.com/athletic/6101354/2025/01/31/nhl-trade-board-cozens-miller-gibson-pettersson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/business/dealbook/kalshi-prediction-market-broker
 **Gonzaga has been a Sweet 16 shoo-in for years. Is this the season that changes?**\
 `Gonzaga opened the season No. 6 but is now unranked and dropped two games in a row in January. But is it figuring things out in time?`\
 https://nytimes.com/athletic/6100980/2025/01/31/gonzaga-mens-basketball-ncaa-tournament/
-
-**Champions League play-offs draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
-`Our writers assess the key talking points from the Champions League play-off draw`\
-https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
 
