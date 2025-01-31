@@ -1,3 +1,15 @@
+**The treasury official who oversees payments resigns suddenly.**\
+`Elon Musk has deployed engineers to Treasury to find a way to shut down payments unilaterally.`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/the-treasury-official-who-oversees-payments-resigns-suddenly
+
+**The Bounce: Victor Wembanyama earns NBA All-Star nod as rosters revealed. Who got snubbed?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6102604/2025/01/31/victor-wembanyama-spurs-nba-all-star-trade-deadline-the-bounce/
+
+**Wrexham sign Reading striker Smith in club record transfer**\
+`Wrexham have broken their transfer record to sign Reading striker Sam Smith.`\
+https://nytimes.com/athletic/6102949/2025/01/31/sam-smith-wrexham-record-transfer/
+
 **The World Economy Awaits Trump’s First Round of Tariffs**\
 `Economists, policymakers and investors are bracing for a trade war that has been brewing since Election Day.`\
 https://nytimes.com/2025/01/31/business/economy/trump-tariffs.html
