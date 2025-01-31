@@ -1,3 +1,7 @@
+**How are Connor McDavid and Leon Draisaitl trending ahead of the stretch run?**\
+`Draisaitl looks like a strong candidate for the Hart Trophy and McDavid is delivering a mountain of offence.`\
+https://nytimes.com/athletic/6099847/2025/01/31/oilers-mcdavid-draisaitl-minutes/
+
 **Villa considering Rashford move**\
 `Rashford is one of several options Villa are considering, including Chelsea's Joao Felix and PSG's Marco Asensio.`\
 https://nytimes.com/athletic/6046469/2025/01/31/marcus-rashford-aston-villa-transfer-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095275/2025/01/31/premier-league-predicted-lineups
 **Chili Gumbo, Banana Pancakes and Salty-Sweet Trail Mix**\
 `Labor in the kitchen can be as restorative as napping or meditation. It’s how I like to spend my free time.`\
 https://nytimes.com/2025/01/31/dining/chili-gumbo-banana-pancakes-trail-mix.html
-
-**Watch: Bills' existentialism, rooting for the Chiefs and more in the TAFS mailbag**\
-`It's mailbag time on TAFS: Is it fine to root for a Chiefs win?`\
-https://nytimes.com/athletic/6102494/2025/01/31/athletic-football-show-mailbag-chiefs-bills/
 

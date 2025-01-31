@@ -1,3 +1,7 @@
+**How are Connor McDavid and Leon Draisaitl trending ahead of the stretch run?**\
+`Draisaitl looks like a strong candidate for the Hart Trophy and McDavid is delivering a mountain of offence.`\
+https://nytimes.com/athletic/6099847/2025/01/31/oilers-mcdavid-draisaitl-minutes/
+
 **Hamas to Free Israeli Father, but Fates of His Wife and Children Unknown**\
 `Hamas said it will release the hostage Yarden Bibas, 35, on Saturday. His wife and children were also taken captive on Oct. 7, 2023, but may not have survived.`\
 https://nytimes.com/2025/01/31/world/middleeast/israel-hostage-release-hamas-yarden-bibas.html
