@@ -1,3 +1,7 @@
+**Meta Said to Explore Incorporating in a Different State**\
+`The owner of Facebook and Instagram is incorporated in Delaware, but is considering a change. Its corporate headquarters would remain in Silicon Valley, people with knowledge of the matter said.`\
+https://nytimes.com/2025/01/31/technology/meta-incorporation-delaware.html
+
 **Meta Said to Explore Moving Where It Is Incorporated**\
 `The owner of Facebook and Instagram is incorporated in Delaware, but is considering a change. Its corporate headquarters would remain in Silicon Valley, people with knowledge of the matter said.`\
 https://nytimes.com/2025/01/31/technology/meta-incorporation-delaware.html
