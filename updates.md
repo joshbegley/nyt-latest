@@ -1,3 +1,11 @@
+**Kalshi, an Online Prediction Market, Will Open Its Bets to Brokerages**\
+`The platform, which recently hired Donald Trump Jr. as an adviser, is seeking to tap Wall Street to expand its potential customer base.`\
+https://nytimes.com/2025/01/31/business/dealbook/kalshi-prediction-market-brokerages.html
+
+**Gonzaga has been a Sweet 16 shoo-in for years. Is this the season that changes?**\
+`Gonzaga opened the season No. 6 but is now unranked and dropped two games in a row in January. But is it figuring things out in time?`\
+https://nytimes.com/athletic/6100980/2025/01/31/gonzaga-mens-basketball-ncaa-tournament/
+
 **Champions League play-off draw analysed: Man City face Real Madrid, relief for Bayern, Milan and Juventus**\
 `Our writers assess the key talking points from the Champions Legaue play-off draw`\
 https://nytimes.com/athletic/6102474/2025/01/31/champions-league-play-off-draw/
