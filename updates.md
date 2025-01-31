@@ -1,3 +1,11 @@
+**NHL trade board 5.0: Where the market stands after the Rantanen blockbuster**\
+`The tremors from the Mikko Rantanen blockbuster were still echoing around the league when another bomb dropped in Vancouver this week.`\
+https://nytimes.com/athletic/6101354/2025/01/31/nhl-trade-board-cozens-miller-gibson-pettersson/
+
+**How to watch the 2025 Pro Bowl, Sunday's skills show and flag football game**\
+`The 2025 Pro Bowl Games conclude Sunday with a skills challenge and a 7-on-7 flag football scrimmage. Read here for how to watch the action.`\
+https://nytimes.com/athletic/6101820/2025/01/31/nfl-pro-bowl-how-to-watch-preview/
+
 **Man United exploring summer move for Sporting's Quenda**\
 `Manchester United are exploring a deal to sign winger Geovany Quenda from Sporting CP in the summer.`\
 https://nytimes.com/athletic/6102523/2025/01/31/manchester-united-transfers-geovany-quenda/
