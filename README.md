@@ -3,7 +3,7 @@
 https://nytimes.com/live/2025/01/30/us/president-trump-news/nonprofits-dread-attempts-to-scrutinize-diversity-initiatives
 
 **Rationalizing the Ryan Brasier decision in the crowded Dodgers bullpen**\
-`Dodgers GM Brandon Gomes called it a "difficult decision" to part with Ryan Brasier after the team signed Kirby Yates.`\
+`Dodgers GM Brandon Gomes called it a "difficult decision" to part with Brasier after the team signed Kirby Yates.`\
 https://nytimes.com/athletic/6104165/2025/01/31/dodgers-ryan-brasier-designated-for-assignment/
 
 **‘Crash, Crash, Crash!’: Audio Reveals History of Close Calls at Reagan Airport**\
