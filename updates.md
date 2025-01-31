@@ -1,3 +1,11 @@
+**Dick Button, Olympic legend and figure skating commentator, dies at 95**\
+`Two-time Olympic gold medalist and five-time world champ was also an influential broadcaster for more than five decades.`\
+https://nytimes.com/athletic/6101898/2025/01/30/dick-button-olympic-legend-and-figure-skating-commentator-dies-at-95/
+
+**North Korean Troops No Longer Seen on Front Lines Fighting Ukraine**\
+`North Korea sent its best troops to aid Russia in its war against Ukraine. But after months of suffering severe losses, they have been taken off the front line.`\
+https://nytimes.com/2025/01/30/world/europe/north-korea-troops-ukraine-russia.html
+
 **Vanderbilt's Mikayla Blakes breaks freshman record with 53-point outing**\
 `The total is also the highest single-game mark for any player in SEC history.`\
 https://nytimes.com/athletic/6101939/2025/01/30/mikayla-blakes-vanderbilt-womens-basketball-freshman-scoring-record/
