@@ -1,4 +1,4 @@
-**NHL trade grades: Flames bet on upside, Flyers hope for short-term Kuzmenko spark**\
+**NHL trade grades: Flames bet on upside, Flyers hope for short-term Andrei Kuzmenko spark**\
 `The Flames made a cheap upgrade in their pursuit of a playoff spot, but will Kuzmenko contribute for Philadelphia?`\
 https://nytimes.com/athletic/6102209/2025/01/31/nhl-trade-grades-flames-flyers/
 

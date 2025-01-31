@@ -1,3 +1,7 @@
+**NHL trade grades: Flames bet on upside, Flyers hope for short-term Kuzmenko spark**\
+`The Flames made a cheap upgrade in their pursuit of a playoff spot, but will Kuzmenko contribute for Philadelphia?`\
+https://nytimes.com/athletic/6102209/2025/01/31/nhl-trade-grades-flames-flyers/
+
 **'It's poetry': Inside Marc-Andre Fleury's magical Montreal swan song**\
 `Fleury shut out the Canadiens in his final game in his home province of Quebec, earning a standing ovation lasting over two minutes.`\
 https://nytimes.com/athletic/6102104/2025/01/31/marc-andre-fleury-montreal-swan-song-wild-canadiens/
