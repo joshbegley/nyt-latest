@@ -1,3 +1,15 @@
+**Villa considering Rashford move**\
+`Rashford is one of several options Villa are considering, including Chelsea's Joao Felix and PSG's Marco Asensio.`\
+https://nytimes.com/athletic/6046469/2025/01/31/marcus-rashford-aston-villa-transfer-manchester-united/
+
+**Hamas to Free Israeli Father, But Fates of His Wife and Children Unknown**\
+`Hamas said it will release the hostage Yarden Bibas, 35, on Saturday. His wife and children were also taken captive on Oct. 7, 2023, but may not have survived.`\
+https://nytimes.com/2025/01/31/world/middleeast/israel-hostage-release-hamas-yarden-bibas.html
+
+**$3,500 Rentals in and Near Los Angeles**\
+`A loft in Long Beach, a Spanish-Style house in La Quinta and a condominium unit in a Baldwin Park building designated as a landmark.`\
+https://nytimes.com/2025/01/31/realestate/rentals-in-and-near-los-angeles.html
+
 **Takashi Murakami’s Beloved, Trippy Louis Vuitton Bags Are Back**\
 `The brand has updated its 2003 collaboration with the Japanese artist.`\
 https://nytimes.com/2025/01/31/t-magazine/takashi-murakami-louis-vuitton-bag.html
