@@ -1,3 +1,7 @@
+**'It's poetry': Inside Marc-Andre Fleury's magical Montreal swan song**\
+`Fleury shut out the Canadiens in his final game in his home province of Quebec, earning a standing ovation lasting over two minutes.`\
+https://nytimes.com/athletic/6102104/2025/01/31/marc-andre-fleury-montreal-swan-song-wild-canadiens/
+
 **Flames trade Kuzmenko, Pelletier and picks to Flyers for Frost, Farabee**\
 `The Calgary Flames traded wingers Andrei Kuzmenko and Jakob Pelletier, plus second- and seventh-round draft picks, to the Philadelphia Flyers on Thursday night for center Morgan Frost and winger Joel Farabee.`\
 https://nytimes.com/athletic/6102174/2025/01/31/flyers-flames-trade-frost-kuzmenko/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102080/2025/01/31/kelly-lsu-knowles-penn-state-unt
 **Friday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/01/31/briefing/plane-crash-gaza-rfk.html
-
-**How to succeed in Fantasy Premier League's first double gameweek of the season - a debate**\
-`From the best chip to use to Everton’s smart differentials, Holly Shand and Abdul Rehman debate the ultimate strategies for Gameweek 24`\
-https://nytimes.com/athletic/6099318/2025/01/31/fantasy-premier-league-double-gameweek-24-strategy/
 
