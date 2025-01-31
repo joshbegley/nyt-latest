@@ -1,3 +1,11 @@
+**What adding Brandon Saad could mean for the Vegas Golden Knights**\
+`Saad gives Vegas a proven winner and is a solid addition at a reasonable cap hit.`\
+https://nytimes.com/athletic/6103800/2025/01/31/brandon-saad-vegas-golden-knights/
+
+**Brighton's Barco close to Strasbourg loan move with obligation to buy**\
+`Brighton &amp; Hove Albion full-back Valentin Barco is close to joining Strasbourg on loan with an obligation to buy.`\
+https://nytimes.com/athletic/6103733/2025/01/31/valentin-barco-brighton-strasbourg/
+
 **LeBrun: Will skyrocketing NHL salary cap lead to a new era of haves and have-nots?**\
 `The big question after Friday's announcement: How many teams actually have the financial budget to max out at a cap over $100 million?`\
 https://nytimes.com/athletic/6103703/2025/01/31/nhl-salary-cap-revenue-sharing/
@@ -27,14 +35,6 @@ https://nytimes.com/2025/01/31/opinion/retirement-roth-conversion.html
 https://nytimes.com/2025/01/31/t-magazine/best-retro-sneakers.html
 
 **Why a trade for Dylan Cease seems unlikely right now for Mets**\
-`The price tag for Cease could evolve, but sources said the Mets are hesitant about the current potential acquisition cost.`\
+`The price tag for Cease could evolve, but sources said the current potential acquisition cost presents a hurdle for the Mets.`\
 https://nytimes.com/athletic/6103619/2025/01/31/mets-dylan-cease-trade-unlikely/
-
-**Woman Pardoned in Jan. 6 Case Gets 10-Year Sentence in Drunken-Driving Death**\
-`Prosecutors said the woman was intoxicated when she crashed into another car in Missouri, killing a passenger, on Jan. 5, 2022, a year after she joined the mob that stormed the U.S. Capitol.`\
-https://nytimes.com/2025/01/31/us/missouri-woman-drunk-driving-death-jan-6.html
-
-**Super Bowl 59 odds, picks: Chiefs hold as 1.5-point favorites in rematch with Eagles**\
-`The Chiefs opened as 1.5-point favorites against the Eagles for the Super Bowl, setting fans up for a rematch of Super Bowl 57. `\
-https://nytimes.com/athletic/6084432/2025/01/31/super-bowl-59-odds-line-chiefs-eagles/
 
