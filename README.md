@@ -1,3 +1,15 @@
+**Vanderbilt's Mikayla Blakes breaks freshman record with 53-point outing**\
+`The total is also the highest single-game mark for any player in SEC history.`\
+https://nytimes.com/athletic/6101939/2025/01/30/mikayla-blakes-vanderbilt-womens-basketball-freshman-scoring-record/
+
+**Wanders Around a Terminal**\
+`Adrian Johnson opens our solving weekend.`\
+https://nytimes.com/2025/01/30/crosswords/daily-puzzle-2025-01-31.html
+
+**Marc-Andre Fleury delivers vintage performance on special night: 3 Wild takeaways**\
+`The future Hall of Famer earned his 76th career shutout playing in his final game at the Bell Centre.`\
+https://nytimes.com/athletic/6101872/2025/01/30/wild-marc-andre-fleury-canadiens/
+
 **A supervisor allowed an air traffic controller to leave before the crash.**\
 `Dual duties of handling helicopter and plane traffic were handed to one person on Wednesday night before a Black Hawk collided with a regional jet.`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/a-supervisor-allowed-an-air-traffic-controller-to-leave-before-the-crash
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/30/us/army-helicopter-dc-plane-crash.html
 **President Trump’s blaming of diversity programs for the crash has sparked a backlash.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/01/29/us/plane-crash-washington-dc/president-trumps-blaming-of-diversity-programs-for-the-crash-has-sparked-a-backlash
-
-**How a New Law Makes Deportations Easier**\
-`The Laken Riley Act is the first law President Trump has signed since coming into office. Zolan Kanno-Youngs, a New York Times White House correspondent, explains how it will make deportations easier.`\
-https://nytimes.com/video/us/politics/100000009961242/how-a-law-makes-deportations-easier.html
-
-**Takeaways From Day 2 of Kennedy’s Confirmation Hearings**\
-`Robert F. Kennedy Jr., President Trump’s nominee for health secretary, vigorously defended his views on vaccines, and a key senator still has clear doubts.`\
-https://nytimes.com/2025/01/30/us/politics/rfk-jr-confirmation-takeaways.html
-
-**Paramount in Settlement Talks With Trump Over ‘60 Minutes’ Lawsuit**\
-`A settlement, if reached, would be an extraordinary concession by a major U.S. media company to a sitting president.`\
-https://nytimes.com/2025/01/30/business/media/paramount-trump-cbs-news-settlement.html
 
