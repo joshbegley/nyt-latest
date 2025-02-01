@@ -1,3 +1,7 @@
+**Former Georgia 5-star OL emerges at Senior Bowl**\
+`Clay Webb, who left football amid playing time and a lawsuit, hopes to deliver at the Senior Bowl. `\
+https://nytimes.com/athletic/6104243/2025/02/01/clay-webb-jacksonville-state-senior-bowl/
+
 **Hurzeler apologises to Brighton supporters after 7-0 thrashing by Forest**\
 `Head coach Fabian Hurzeler has apologised to supporters for Brighton &amp; Hove Albion&#8217;s heaviest league defeat for 67 years at Nottingham Forest.`\
 https://nytimes.com/athletic/6104918/2025/02/01/brighton-forest-result-goals-fabian-hurzeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6071891/2025/02/01/tyrell-malacia-benfica-mancheste
 **A Movie About a Murderous Sex Robot Explains Dating**\
 `Single women don’t want to be emotional support drones, and that’s how they see their role in marriage.`\
 https://nytimes.com/2025/02/01/opinion/companion-sex-robot-marriage.html
-
-**Overlooked No More: Annie Easley, Who Helped Take Spaceflight to New Heights**\
-`She broke barriers at NASA and contributed to its earliest space missions as a rocket scientist, mathematician and computer programmer.`\
-https://nytimes.com/2025/02/01/obituaries/annie-easley-overlooked.html
 
