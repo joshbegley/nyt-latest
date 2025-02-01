@@ -1,3 +1,15 @@
+**At the final candidate forum before the vote, Democrats opt not to look back.**\
+`By Jess Bidgood`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-forum-before-the-vote-democrats-opt-not-to-look-back
+
+**Here is the latest on the race.**\
+`By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news/here-is-the-latest-on-the-race
+
+**Live Updates: Democrats Face Off as They Choose a New Party Leader**\
+`The 448 members of the Democratic National Committee are set to vote on a new chair. The winner will help lead a demoralized party split over its future and its response to President Trump.`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news
+
 **Wings acquire DiJonai Carrington in trade with rebuilding Sun: Reports**\
 `Carrington, 27, was a restricted free agent and the Sun had the ability to match any offer sheet with another team`\
 https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnba-trade-rumors/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/01/opinion/trump-dei-diversity-meritocracy.html
 **Overnight Oats for Not-Morning People**\
 `Alarm snoozers deserve a good breakfast, too.`\
 https://nytimes.com/2025/02/01/dining/overnight-oats-breakfast-recipe.html
-
-**Nuno hails Forest reaction in 7-0 win as 'beyond expectations'**\
-`Nuno Espirito Santo says the response from his Nottingham Forest players was &#8220;beyond our expectations&#8221; as they bounced back from a 5-0 defeat at Bournemouth by securing their biggest top flight win in more than three decades.`\
-https://nytimes.com/athletic/6104976/2025/02/01/nottingham-forest-brighton-result-players-reaction/
-
-**Arab Nations Reject Trump’s Suggestion to ‘Clean Out’ Gaza**\
-`President Trump has suggested that Gazans should be evacuated from the devastated enclave and taken in by Jordan and Egypt.`\
-https://nytimes.com/2025/02/01/world/middleeast/arab-nations-reject-trump-evacuate-gaza.html
-
-**Szczesny 'number one' for Barcelona - Flick**\
-`Barcelona head coach Hansi Flick has confirmed that Wojciech Szczesny is his No 1 goalkeeper.`\
-https://nytimes.com/athletic/6104920/2025/02/01/wojciech-szczesny-barcelona-goalkeeper/
 
