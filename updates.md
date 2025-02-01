@@ -1,3 +1,11 @@
+**Trump Moves to Invalidate Recent Labor Agreements With Federal Workers**\
+`The order is aimed at “last-minute, lame-duck” agreements signed by the Biden administration, a White House memo says.`\
+https://nytimes.com/2025/01/31/us/politics/trump-federal-labor-contracts.html
+
+**Two D.C. lawyers were among the dead, including one going home to celebrate her birthday.**\
+`By Jack Healy`\
+https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/two-dc-lawyers-were-among-the-dead-including-one-going-home-to-celebrate-her-birthday
+
 **Cowboys, new HC Schottenheimer tap Cardinals OL coach Adams as OC**\
 `The 41-year-old Adams joins Dallas with hopes of reviving the club's disappointing rushing offense.`\
 https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-klayton-adams/

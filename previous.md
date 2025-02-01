@@ -1,3 +1,11 @@
+**Trump Moves to Invalidate Recent Labor Agreements With Federal Workers**\
+`The order is aimed at “last-minute, lame-duck” agreements signed by the Biden administration, a White House memo says.`\
+https://nytimes.com/2025/01/31/us/politics/trump-federal-labor-contracts.html
+
+**Two D.C. lawyers were among the dead, including one going home to celebrate her birthday.**\
+`By Jack Healy`\
+https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/two-dc-lawyers-were-among-the-dead-including-one-going-home-to-celebrate-her-birthday
+
 **Cowboys, new HC Schottenheimer tap Cardinals OL coach Adams as OC**\
 `The 41-year-old Adams joins Dallas with hopes of reviving the club's disappointing rushing offense.`\
 https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-klayton-adams/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/movies/phyllis-dalton-dead.html
 **New York Doctor Indicted in Louisiana for Sending Abortion Pills There**\
 `The case opens a new front in the battle between states that ban abortion and states that support providing abortion anywhere in the country.`\
 https://nytimes.com/2025/01/31/health/abortion-louisiana-new-york-prosecution-shield-law.html
-
-**Settlement reached in suit against NCAA on NIL recruiting inducements**\
-`Terms of the agreement were not released and will not impact the ongoing House settlement.`\
-https://nytimes.com/athletic/6104215/2025/01/31/settlement-tennessee-virginia-nil-ncaa/
-
-**285 of 313 Air Traffic Control Facilities Are Understaffed**\
-`Persistent staff shortages have raised safety concerns. At many facilities, staffing is so low that at least a quarter of the work force is missing.`\
-https://nytimes.com/2025/01/31/business/air-traffic-controllers-understaffed.html
 
