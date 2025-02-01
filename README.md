@@ -1,3 +1,7 @@
+**Trump Administration Fires Consumer Bureau Chief**\
+`Rohit Chopra, who led the Consumer Financial Protection Bureau, was known for his aggressive enforcement and expansion of consumer protection laws.`\
+https://nytimes.com/2025/02/01/business/cfpb-rohit-chopra.html
+
 **Palace express interest Chilwell loan from Chelsea**\
 `Crystal Palace have expressed an interest to sign Ben Chilwell on loan from Chelsea for the rest of the season.`\
 https://nytimes.com/athletic/6104839/2025/02/01/chelsea-transfers-ben-chilwell-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104778/2025/02/01/everton-transfers-maren-mjelde/
 **Steve Kerr before Warriors' loss: Not in position to stand pat at NBA trade deadline**\
 `"It's pretty clear where I stand," Steph Curry said, "trying to make the necessary adjustments to try to win."`\
 https://nytimes.com/athletic/6104516/2025/02/01/steve-kerr-warriors-nba-trade-deadline/
-
-**Winnipeg Jets trade targets: Which defencemen could cement Stanley Cup contender status?**\
-`Well in advance of the deadline, it's time to explore all kinds of options to upgrade Winnipeg's defence corps.`\
-https://nytimes.com/athletic/6100767/2025/02/01/winnipeg-jets-trade-targets-defencemen/
 
