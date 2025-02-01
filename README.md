@@ -1,3 +1,11 @@
+**End Appears Near for U.S. Aid Agency, Democratic Lawmakers Say**\
+`A sense of crisis among aid groups was growing as U.S.A.I.D.’s website went dark.`\
+https://nytimes.com/2025/02/01/us/us-aid-agency-trump.html
+
+**After trade with Flames, Flyers' best path forward might be bottoming out this season**\
+`GM Daniel Briere said the trade that sent Morgan Frost and Joel Farabee to Calgary shouldn't be viewed as a proverbial punt on 2024-25.`\
+https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-farabee-trade/
+
 **Newcastle's Kelly set for Juventus loan move**\
 `Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
 https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/business/media/pentagon-press-corps.html
 **This Is How Much the U.S. Imports From China, Canada and Mexico**\
 `Mexico, China and Canada account for more than a third of the products imported to or bought from the United States.`\
 https://nytimes.com/interactive/2025/02/01/business/economy/mexico-china-canada-imports-tariffs.html
-
-**Nebraska, Matt Rhule plan to scratch Huskers' spring game**\
-`Thirty-one players from the Nebraska roster left for the transfer portal after 2024, including 12 who have landed at other Power 4 programs`\
-https://nytimes.com/athletic/6105684/2025/02/01/nebraska-matt-rhule-football-spring-game/
-
-**Marc-Andre Fleury reflects on magical Montreal night and post-career plans: 'We’ll see'**\
-`Teammate Filip Gustavsson is far from the only one trying to convince Fleury not to retire after this season, which is still his plan.`\
-https://nytimes.com/athletic/6105532/2025/02/01/wild-canadiens-marc-andre-fleury-retirement/
 
