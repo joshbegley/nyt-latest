@@ -1,3 +1,7 @@
+**Villa close to agreeing loan for Marcus Rashford**\
+`Aston Villa are close to agreeing a deal to sign Marcus Rashford on loan from Manchester United.`\
+https://nytimes.com/athletic/6103384/2025/02/01/marcus-rashford-aston-villa-transfer/
+
 **American-Israeli Hostage Is Released Under Truce Deal**\
 `Keith Siegel was abducted along with his wife in the October 2023 Hamas-led attack. His wife was freed in a previous cease-fire.`\
 https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-keith-siegel-hostage-release.html
