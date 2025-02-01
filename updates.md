@@ -1,3 +1,7 @@
+**Renewed Resolve**\
+`On the first day of February, consider a monthly intention-setting ritual, even if you think you don’t have a minute to spare.`\
+https://nytimes.com/2025/02/01/briefing/renewed-resolve.html
+
 **Islanders fan survey results: No playoffs, trade Nelson, fire Lamoriello — and a full rebuild?**\
 `Nearly half of Islanders fans believe it's time for a full rebuild — and nearly 90 percent don't want Lou Lamoriello to be the one to do it.`\
 https://nytimes.com/athletic/6094321/2025/02/01/islanders-fan-survey-results-rebuild/

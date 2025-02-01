@@ -1,3 +1,7 @@
+**Renewed Resolve**\
+`On the first day of February, consider a monthly intention-setting ritual, even if you think you don’t have a minute to spare.`\
+https://nytimes.com/2025/02/01/briefing/renewed-resolve.html
+
 **Islanders fan survey results: No playoffs, trade Nelson, fire Lamoriello — and a full rebuild?**\
 `Nearly half of Islanders fans believe it's time for a full rebuild — and nearly 90 percent don't want Lou Lamoriello to be the one to do it.`\
 https://nytimes.com/athletic/6094321/2025/02/01/islanders-fan-survey-results-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102963/2025/02/01/amen-thompson-jamal-murray-nba-s
 **Digital Drugs Have Us Hooked. Dr. Anna Lembke Sees a Way Out.**\
 `Dr. Anna Lembke Sees a Way Out.`\
 https://nytimes.com/2025/02/01/magazine/anna-lembke-interview.html
-
-**High Immigration Arrest Figures Under Trump Come With Few Details**\
-`Specifics of detainments have been scarce, leaving it unclear whether the criminals being targeted make up a significant share of those being captured.`\
-https://nytimes.com/interactive/2025/02/01/us/politics/ice-arrests-trump-immigration.html
 
