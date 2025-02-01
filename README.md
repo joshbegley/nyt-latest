@@ -1,3 +1,7 @@
+**Canada has little ability to effectively strike back with its own tariffs.**\
+`By Ian Austen`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-has-little-ability-to-effectively-strike-back-with-its-own-tariffs
+
 **Bored by Nikola Jokić? His teammates aren't. 'Hard to deny his greatness'**\
 `Jokić is having one of his best seasons, but he isn't considered MVP favorite. We're witnessing greatness. Should everyone recognize it?`\
 https://nytimes.com/athletic/6104973/2025/02/01/nikola-jokic-nuggets-teammates-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104696/2025/02/01/giannis-wembanyama-chris-paul-bu
 **Horst Köhler, Former German President and I.M.F. Leader, Dies at 81**\
 `He held the ceremonial post of German president after a finance-focused career. Shortly into his second term, he became the first German president in four decades to resign.`\
 https://nytimes.com/2025/02/01/world/europe/germany-horst-kohler-dead.html
-
-**N.Y. Hospital Stops Treating 2 Children After Trump’s Trans Care Order**\
-`The hospital canceled their appointments the same week an executive order from President Trump threatened to punish doctors and hospitals for offering gender-affirming care.`\
-https://nytimes.com/2025/02/01/nyregion/nyu-langone-hospital-trans-care-youth.html
 
