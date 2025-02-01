@@ -1,10 +1,18 @@
+**More Than a Dozen Prosecutors at Washington U.S. Attorney’s Office Are Dismissed**\
+`Those informed of their dismissals had been hired to investigate the Jan. 6 riot as the office struggled to manage what became the largest prosecution in the department’s history.`\
+https://nytimes.com/2025/01/31/us/politics/prosecutors-us-attorneys-office-trump-firings.html
+
+**Mercury acquiring Satou Sabally from Wings in 3-team deal**\
+`Sabally spent her entire five-season career with the Wings after the franchise selected her with the No. 2 pick in the 2020 WNBA Draft.`\
+https://nytimes.com/athletic/6104315/2025/01/31/satou-sabally-mercury-wings-fever-trade-wnba/
+
 **Before signing Carlos Estévez, Royals pursued Anthony Santander**\
 `Kansas City quickly pivoted after missing out on the free-agent outfielder earlier this week. `\
 https://nytimes.com/athletic/6104170/2025/01/31/royals-anthony-santander-blue-jays/
 
-**U.S. military planes deliver deportees to Honduras.**\
+**U.S. Military Planes Deliver Deportees to Honduras**\
 `President Xiomara Castro previously warned that she would oust the American military from Honduras if President Trump pursued aggressive deportations.`\
-https://nytimes.com/live/2025/01/30/us/president-trump-news/us-military-planes-deliver-deportees-to-honduras
+https://nytimes.com/2025/01/31/us/politics/us-military-planes-deliver-deportees-to-honduras.html
 
 **Canucks trade J.T. Miller to Rangers for Filip Chytil, Victor Mancini**\
 `The Rangers drafted Miller with the No. 15 pick in the 2011 NHL Draft.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
 **Don’t Look Back**\
 `A political reckoning? Not at the Democratic National Committee.`\
 https://nytimes.com/2025/01/31/us/politics/dnc-chair-election.html
-
-**Small Plane Crashes Near Philadelphia Mall**\
-`A Learjet 55 crashed around 6:30 p.m. near the Roosevelt Mall after leaving Northeast Philadelphia Airport, officials said.`\
-https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
-
-**Reagan Airport Had a Number of Close Calls in Recent Years**\
-`Internal government reports and public databases highlight several instances in which planes narrowly escaped collisions with each other or helicopters.`\
-https://nytimes.com/2025/01/31/business/reagan-airport-close-calls.html
 

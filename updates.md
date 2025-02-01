@@ -1,3 +1,15 @@
+**More Than a Dozen Prosecutors at Washington U.S. Attorney’s Office Are Dismissed**\
+`Those informed of their dismissals had been hired to investigate the Jan. 6 riot as the office struggled to manage what became the largest prosecution in the department’s history.`\
+https://nytimes.com/2025/01/31/us/politics/prosecutors-us-attorneys-office-trump-firings.html
+
+**Mercury acquiring Satou Sabally from Wings in 3-team deal**\
+`Sabally spent her entire five-season career with the Wings after the franchise selected her with the No. 2 pick in the 2020 WNBA Draft.`\
+https://nytimes.com/athletic/6104315/2025/01/31/satou-sabally-mercury-wings-fever-trade-wnba/
+
+**U.S. Military Planes Deliver Deportees to Honduras**\
+`President Xiomara Castro previously warned that she would oust the American military from Honduras if President Trump pursued aggressive deportations.`\
+https://nytimes.com/2025/01/31/us/politics/us-military-planes-deliver-deportees-to-honduras.html
+
 **Small Plane Crashes Near Philadelphia Mall**\
 `A Learjet 55 crashed around 6:30 p.m. near the Roosevelt Mall after leaving Northeast Philadelphia Airport, officials said.`\
 https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
