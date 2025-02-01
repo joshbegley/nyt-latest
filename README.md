@@ -1,3 +1,7 @@
+**NHL trade grades: Canucks finally send J.T. Miller to Rangers in big swing for both teams**\
+`Miller is the standout piece in what's a high-risk, high-reward trade for the Canucks and the Rangers.`\
+https://nytimes.com/athletic/6104270/2025/01/31/nhl-trade-grades-canucks-rangers-jt-miller/
+
 **More Than a Dozen Prosecutors at Washington U.S. Attorney’s Office Are Dismissed**\
 `Those informed of their dismissals had been hired to investigate the Jan. 6 riot as the office struggled to manage what became the largest prosecution in the department’s history.`\
 https://nytimes.com/2025/01/31/us/politics/prosecutors-us-attorneys-office-trump-firings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-kla
 **How the D.C. Plane Crash Shattered Wichita’s Big Dreams of Skating and Flight**\
 `The city had tried for years to host the U.S. Figure Skating Championships, and to get a direct flight to the northeast.`\
 https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
-
-**Don’t Look Back**\
-`A political reckoning? Not at the Democratic National Committee.`\
-https://nytimes.com/2025/01/31/us/politics/dnc-chair-election.html
 
