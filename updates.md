@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
 
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
 **Trump Administration to Remove 4 Major News Outlets From Pentagon Office Space**\
 `The New York Times, NBC News, NPR and Politico will be replaced by outlets including the right-wing site Breitbart News as part of a “new annual media rotation,” a spokesman said.`\
 https://nytimes.com/2025/02/01/business/media/pentagon-press-corps.html
