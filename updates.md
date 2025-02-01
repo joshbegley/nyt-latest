@@ -1,3 +1,7 @@
+**U.S. Military Planes Deliver Deportees to Honduras**\
+`President Xiomara Castro previously warned that she could oust the American military from Honduras if President Trump pursued aggressive deportations.`\
+https://nytimes.com/2025/01/31/us/politics/us-military-planes-deportees-honduras.html
+
 **More Than a Dozen Prosecutors at Washington U.S. Attorney’s Office Are Dismissed**\
 `Those informed of their dismissals had been hired to investigate the Jan. 6 riot as the office struggled to manage what became the largest prosecution in the department’s history.`\
 https://nytimes.com/2025/01/31/us/politics/prosecutors-us-attorneys-office-trump-firings.html

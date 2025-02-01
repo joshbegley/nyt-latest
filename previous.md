@@ -11,8 +11,8 @@ https://nytimes.com/athletic/6104315/2025/01/31/satou-sabally-mercury-wings-feve
 https://nytimes.com/athletic/6104170/2025/01/31/royals-anthony-santander-blue-jays/
 
 **U.S. Military Planes Deliver Deportees to Honduras**\
-`President Xiomara Castro previously warned that she would oust the American military from Honduras if President Trump pursued aggressive deportations.`\
-https://nytimes.com/2025/01/31/us/politics/us-military-planes-deliver-deportees-to-honduras.html
+`President Xiomara Castro previously warned that she could oust the American military from Honduras if President Trump pursued aggressive deportations.`\
+https://nytimes.com/2025/01/31/us/politics/us-military-planes-deportees-honduras.html
 
 **Canucks trade J.T. Miller to Rangers for Filip Chytil, Victor Mancini**\
 `The Rangers drafted Miller with the No. 15 pick in the 2011 NHL Draft.`\
