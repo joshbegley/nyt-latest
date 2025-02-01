@@ -1,3 +1,7 @@
+**Cowboys’ Brian Schottenheimer selects Klayton Adams as OC**\
+`Adams, the former Cardinals offensive line coach, won't call plays but will be tasked with reviving the club's rushing attack.`\
+https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-klayton-adams/
+
 **Trump Moves to Invalidate Recent Labor Agreements With Federal Workers**\
 `The order is aimed at “last-minute, lame-duck” agreements signed by the Biden administration, a White House memo says.`\
 https://nytimes.com/2025/01/31/us/politics/trump-federal-labor-contracts.html
