@@ -1,3 +1,7 @@
+**White House P.R. Campaign Aims to Show Trump Making Good on Immigration Promise**\
+`The government is releasing photos and videos to promote President Trump’s immigration agenda, including footage of troops at the border and close-up shots of shackled immigrants.`\
+https://nytimes.com/2025/02/01/us/politics/trump-immigration.html
+
 **Villa's Iling-Junior to join Middlesbrough after recall from Bologna loan**\
 `Samuel Iling-Junior is set to join Middlesbrough after being recalled from his season-long loan at Bologna.`\
 https://nytimes.com/athletic/6105422/2025/02/01/aston-villa-transfers-iling-junior-middlesbrough/
