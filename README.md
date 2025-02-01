@@ -1,3 +1,7 @@
+**Man United complete Ayden Heaven signing from Arsenal**\
+`Manchester United have completed the signing of teenage defender Ayden Heaven from Arsenal.`\
+https://nytimes.com/athletic/6084205/2025/02/01/ayden-heaven-arsenal-manchester-united/
+
 **Renewed Resolve**\
 `On the first day of February, consider a monthly intention-setting ritual, even if you think you don’t have a minute to spare.`\
 https://nytimes.com/2025/02/01/briefing/renewed-resolve.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6103370/2025/02/01/notre-dame-football-marcus-freem
 **Hollinger: Keep an eye on these 10 players in the second half of the season**\
 `These guys aren't on the trade market or in awards races, but they've stepped up their games enough to warrant watching down the stretch.`\
 https://nytimes.com/athletic/6102963/2025/02/01/amen-thompson-jamal-murray-nba-second-half/
-
-**Digital Drugs Have Us Hooked. Dr. Anna Lembke Sees a Way Out.**\
-`Dr. Anna Lembke Sees a Way Out.`\
-https://nytimes.com/2025/02/01/magazine/anna-lembke-interview.html
 
