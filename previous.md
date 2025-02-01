@@ -1,7 +1,3 @@
-**How the D.C. Plane Crash Shattered Wichita’s Big Dreams of Skating and Flight**\
-`The city had tried for years to host the U.S. Figure Skating Championships, and to get a direct flight to the northeast.`\
-https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
-
 **Don’t Look Back**\
 `A political reckoning? Not at the Democratic National Committee.`\
 https://nytimes.com/2025/01/31/us/politics/dnc-chair-election.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/01/31/business/air-traffic-controllers-understaffed.htm
 **50 Things We Say Now, Thanks to ‘S.N.L.’**\
 `Since “Saturday Night Live” began, the show has introduced catchphrases that wind up in our own conversations. Isn’t that special?`\
 https://nytimes.com/interactive/2025/01/31/arts/television/-saturday-night-live-skit-catchphrases-quotes.html
+
+**Nonprofits Dread Attempts to Scrutinize Diversity Initiatives**\
+`Multiple groups said that a government email address created for reports of attempts to thwart the Trump administration’s crackdown was used to sign up for their newsletters.`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/nonprofits-dread-attempts-to-scrutinize-diversity-initiatives
 
