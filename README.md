@@ -3,9 +3,9 @@
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
-**Trump envoy leaves Venezuela with 6 Americans detained by the government.**\
-`By Genevieve Glatsky`\
-https://nytimes.com/2025/01/31/us/politics/trump-envoy-leaves-venezuela-with-6-americans-detained-by-the-government.html
+**Venezuela Frees 6 Americans After Visit by Trump Envoy**\
+`Richard Grenell, the envoy for special missions, said he was flying home with the detainees after he met with President Nicolás Maduro.`\
+https://nytimes.com/2025/01/31/us/politics/us-prisoners-venezuela.html
 
 **Boy, 8, Is Fatally Shot in Newark, Officials Say**\
 `A man wounded by gunfire was found several blocks from where the child was killed around the same time, but officials declined to say whether the shootings were related.`\
