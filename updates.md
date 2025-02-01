@@ -1,3 +1,11 @@
+**Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
+`His departure leaves the defending national champion Buckeyes with two coaching vacancies after DC Jim Knowles left to go to Penn State.`\
+https://nytimes.com/athletic/6105018/2025/02/01/ohio-state-offensive-line-coach-arizona-cardinals/
+
+**What's next for the Canucks after trading J.T. Miller? 10 thoughts on a pair of blockbusters**\
+`The Canucks remade their roster on the fly Friday and charted a new path forward for the franchise.`\
+https://nytimes.com/athletic/6104609/2025/02/01/canucks-trade-jt-miller-pettersson/
+
 **Suzanne Massie, ‘Reagan’s Window on the Soviet Union,’ Dies at 94**\
 `An author of books on Russia who spoke the language, she had no diplomatic experience but formed an unlikely bond with the president.`\
 https://nytimes.com/2025/02/01/us/politics/suzanne-massie-dead.html
