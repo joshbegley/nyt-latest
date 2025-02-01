@@ -1,3 +1,7 @@
+**Canada, Mexico and China Brace for Trump’s Tariffs**\
+`White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
+https://nytimes.com/2025/02/01/us/politics/canada-mexico-china-trump-tariffs.html
+
 **Jaune Quick-to-See Smith, Artist With an Indigenous Focus, Dies at 85**\
 `She began with modestly scaled abstract drawings and paintings but became best known for large works featuring collage and items evoking Native stereotypes.`\
 https://nytimes.com/2025/02/01/arts/jaune-quick-to-see-smith-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/hamas-tight
 **Villa close to agreeing loan for Marcus Rashford**\
 `Aston Villa are close to agreeing a deal to sign Marcus Rashford on loan from Manchester United.`\
 https://nytimes.com/athletic/6103384/2025/02/01/marcus-rashford-aston-villa-transfer/
-
-**American-Israeli Hostage Is Released Under Truce Deal**\
-`Keith Siegel was abducted along with his wife in the October 2023 Hamas-led attack. His wife was freed in a previous cease-fire.`\
-https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-keith-siegel-hostage-release.html
 
