@@ -1,3 +1,7 @@
+**NHL trade grades: Canucks finally send J.T. Miller to Rangers in big swing for both teams**\
+`Miller is the standout piece in what's a high-risk, high-reward trade for the Canucks and the Rangers.`\
+https://nytimes.com/athletic/6104270/2025/01/31/nhl-trade-grades-canucks-rangers-jt-miller/
+
 **U.S. Military Planes Deliver Deportees to Honduras**\
 `President Xiomara Castro previously warned that she could oust the American military from Honduras if President Trump pursued aggressive deportations.`\
 https://nytimes.com/2025/01/31/us/politics/us-military-planes-deportees-honduras.html
