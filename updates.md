@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
 
+**Elon Musk’s Team Now Has Full Access to Treasury’s Payments System**\
+`Treasury Secretary Scott Bessent gave Mr. Musk’s representatives at the so-called Department of Government Efficiency a powerful tool to monitor and potentially limit government spending.`\
+https://nytimes.com/2025/02/01/us/politics/elon-musk-doge-federal-payments-system.html
+
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
 **Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
 `Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
 `\
