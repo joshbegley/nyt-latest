@@ -1,3 +1,11 @@
+**What to know about the latest hostage and prisoner releases.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/what-to-know-about-the-latest-hostage-and-prisoner-releases
+
+**Live Updates: Hamas Expected to Release 3 More Hostages in Exchange With Israel**\
+`In return, Israel is set to release about 90 Palestinian prisoners, according to a Hamas-linked prisoners’ information center. The previous handover descended into chaos.`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages
+
 **The Los Angeles Wildfires Are Fully Contained**\
 `The Palisades and Eaton fires, two of the deadliest and most destructive wildfires in California history, reached 100 percent containment more than three weeks after they began.`\
 https://nytimes.com/2025/02/01/us/los-angeles-fire-contained.html
