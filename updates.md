@@ -1,3 +1,7 @@
+**Steve Kerr before Warriors' loss: Not in position to stand pat at NBA trade deadline**\
+`"It's pretty clear where I stand," Steph Curry said, "trying to make the necessary adjustments to try to win."`\
+https://nytimes.com/athletic/6104516/2025/02/01/steve-kerr-warriors-nba-trade-deadline/
+
 **A Movie About a Murderous Sex Robot Explains Dating**\
 `Single women don’t want to be emotional support drones, and that’s how they see their role in marriage.`\
 https://nytimes.com/2025/02/01/opinion/companion-sex-robot-marriage.html
