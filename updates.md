@@ -1,3 +1,7 @@
+**Tennessee stuns Florida without Zakai Zeigler; Walter Clayton Jr. hurt but returns**\
+`The Vols were down two starters — and had only seven scholarship players available — but manged to dominate Florida in Knoxville. `\
+https://nytimes.com/athletic/6105454/2025/02/01/tennessee-florida-zakai-zeigler-walter-clayton-injury/
+
 **Clippers trade Tucker to Jazz, avoid luxury tax line ahead of deadline**\
 `The deal allows the Clippers to save $6 million, get under the first apron of the luxury tax and have an alternative at backup center.`\
 https://nytimes.com/athletic/6105284/2025/02/01/clippers-jazz-trade-pj-tucker/
