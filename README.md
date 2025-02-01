@@ -7,8 +7,8 @@ https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson
 `Hurley said he has a vote for all-conference honors and suggested that he will not be voting for Arizona's Caleb Love. `\
 https://nytimes.com/athletic/6105633/2025/02/01/arizona-state-bobby-hurley-arizona-caleb-love/
 
-**Danso pulls out of Wolves move, Spurs to explore deal for Lens defender**\
-`Kevin Danso has pulled out of a loan move to Wolverhampton Wanderers at the last moment and Tottenham Hotspur are now exploring a deal to sign the centre-back from Lens.`\
+**Tottenham reach agreement to sign Lens' Danso in permanent deal**\
+`Tottenham Hotspur have reached an agreement with Lens to sign defender Kevin Danso in a permanent transfer.`\
 https://nytimes.com/athletic/6105554/2025/02/01/tottenham-kevin-danso-transfer-wolves/
 
 **Rivals for Canada’s top job agree on one thing: hitting back against Trump’s tariffs.**\
