@@ -1,3 +1,15 @@
+**Sabres, Jiri Kulich deliver badly needed win on Rob Ray's special night in Buffalo**\
+`The former NHL enforcer was inducted into the Sabres Hall of Fame before Buffalo's 4-3 win over Nashville. `\
+https://nytimes.com/athletic/6104552/2025/02/01/sabres-jiri-kulich-rob-ray/
+
+**Who is football's worst transfer ever? From Neymar and Antony to Coutinho and Hazard**\
+`Neymar and Antony were expensive mistakes for their last clubs — but who else fits into the "worst-ever" bracket?`\
+https://nytimes.com/athletic/6102516/2025/02/01/transfer-worst-ever-neymar-antony/
+
+**Chelsea are the WSL's big spenders. Why are other teams not doing the same?**\
+`The champions continue to improve their squad despite their lead at the top of the WSL - and their spending stands apart from other clubs`\
+https://nytimes.com/athletic/6102946/2025/02/01/chelsea-wsl-spending/
+
 **The revamped Champions League: A success or a Super League devoid of jeopardy?**\
 `The usual suspects qualified at least for the play-offs to reach the last 16, with the new format posing more questions than answers`\
 https://nytimes.com/athletic/6099795/2025/02/01/ucl-champions-league-uefa-jeopardy/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6103978/2025/02/01/florida-tennessee-how-to-watch-p
 **Why Is Violence Flaring Up in Mineral-Rich Congo?**\
 `Rebels backed by Rwanda are seizing huge tracts of the Democratic Republic of Congo.`\
 https://nytimes.com/video/world/africa/100000009956762/east-congo-conflict-explained.html
-
-**Quote of the Day: A Farm’s Offer — 40,000 Pounds of Free Salmon**\
-`Quotation of the Day for Saturday, February 1, 2025.`\
-https://nytimes.com/2025/01/31/pageoneplus/quote-of-the-day-a-farms-offer-40000-pounds-of-free-salmon.html
-
-**Trump Officials Release Water That Experts Say Will Serve Little Use**\
-`Local officials and experts said the water the U.S. Army Corps of Engineers began sending downstream on Friday could have been helpful to farmers later this year. President Trump, in an apparent reference to the move, called it a “victory.”`\
-https://nytimes.com/2025/01/31/us/trump-water-california-central-valley.html
-
-**Why Canucks struggled in first game of post-J.T. Miller era: 3 takeaways**\
-`It was obvious the Canucks — who traded Miller shortly before the puck dropped — were playing short-handed in their 5-3 loss to Dallas.`\
-https://nytimes.com/athletic/6104514/2025/01/31/canucks-jt-miller-trade-stars/
 
