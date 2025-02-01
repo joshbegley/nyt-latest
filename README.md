@@ -1,3 +1,7 @@
+**Who Is Ken Martin, the New Leader of the D.N.C.?**\
+`Democrats elected a Midwesterner and behind-the-scenes operator to take charge of a party still reeling from defeat.`\
+https://nytimes.com/2025/02/01/us/politics/ken-martin-dnc.html
+
 **Alexander-Arnold to undergo muscle injury scan after Liverpool win at Bournemouth**\
 `Trent Alexander-Arnold will undergo a scan to determine the extent of the damage sustained after he limped out of Liverpool’s 2-0 win at Bournemouth.`\
 https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-update-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096592/2025/02/01/liverpool-bournemouth-premier-le
 **The Briefing — Newcastle 1 Fulham 2: Too much focus on Arsenal?**\
 `Newcastle fell to a 2-1 loss against Fulham on Saturday afternoon`\
 https://nytimes.com/athletic/6096610/2025/02/01/newcastle-fulham-result-report-analysis-premier-league/
-
-**At the final candidate forum before the vote, Democrats opt not to look back.**\
-`By Jess Bidgood`\
-https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-forum-before-the-vote-democrats-opt-not-to-look-back
 
