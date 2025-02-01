@@ -1,3 +1,7 @@
+**A Closer Look at 3 Hostages Released Saturday**\
+`Hamas released the three men as part of a staggered hostage-for-prisoner exchange under a 42-day cease-fire deal that went into effect last month.`\
+https://nytimes.com/2025/02/01/world/middleeast/a-closer-look-at-3-hostages-released-saturday.html
+
 **Penguins trade Marcus Pettersson to Canucks**\
 `Pettersson was an attractive candidate ahead of the trade deadline as a pending unrestricted free agent.`\
 https://nytimes.com/athletic/6091788/2025/02/01/marcus-pettersson-penguins-team-nhl-trade-deadline/
