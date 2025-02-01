@@ -1,3 +1,24 @@
+**This Is How Much the U.S. Imports From China, Canada and Mexico**\
+`Mexico, China and Canada account for more than a third of the products imported to or bought from the United States.`\
+https://nytimes.com/interactive/2025/02/01/business/economy/mexico-china-canada-imports-tariffs.html
+
+**Nebraska, Matt Rhule plan to scratch Huskers' spring game**\
+`Thirty-one players from the Nebraska roster left for the transfer portal after 2024, including 12 who have landed at other Power 4 programs`\
+https://nytimes.com/athletic/6105684/2025/02/01/nebraska-matt-rhule-football-spring-game/
+
+**Marc-Andre Fleury reflects on magical Montreal night and post-career plans: 'We’ll see'**\
+`Teammate Filip Gustavsson is far from the only one trying to convince Fleury not to retire after this season, which is still his plan.`\
+https://nytimes.com/athletic/6105532/2025/02/01/wild-canadiens-marc-andre-fleury-retirement/
+
+**Villa agree to sign Asensio on loan from PSG**\
+`Aston Villa have agreed a deal to sign Marco Asensio on loan from Paris Saint-Germain.`\
+https://nytimes.com/athletic/6105163/2025/02/01/aston-villa-marco-asensio-psg-loan-transfer/
+
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
 **Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
 `Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
 `\
