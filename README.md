@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/01/us/los-angeles-fire-contained.html
 
 **NHL trade grades: Canucks pay Penguins steep price for Marcus Pettersson, Drew O'Connor**\
-`It’s a lot for the Canucks to part with for two rentals but their need on defense was that glaring.`\
+`It’s a lot for the Canucks to part with for two rentals, but their need on defense was that glaring.`\
 https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguins-marcus-pettersson/
 
 **Criss-Crossing Routes in D.C. Airspace Leave Little Room for Error**\
