@@ -1,3 +1,11 @@
+**Winnipeg Jets trade targets: Which defencemen could cement Stanley Cup contender status?**\
+`Well in advance of the deadline, it's time to explore all kinds of options to upgrade Winnipeg's defence corps.`\
+https://nytimes.com/athletic/6100767/2025/02/01/winnipeg-jets-trade-targets-defencemen/
+
+**An Unconventional Plan for Fixing the Federal Budget**\
+`The Apollo C.E.O. Marc Rowan has championed a model that doesn’t fit within party lines.`\
+https://nytimes.com/2025/02/01/business/dealbook/an-unconventional-plan-for-fixing-the-federal-budget.html
+
 **2 Novels for People Who Really, Really Love Cats**\
 `Rachel Ingalls’s lion god; Haruki Murakami’s cat whisperer.`\
 https://nytimes.com/2025/02/01/books/review/read-like-wind-recommendations-cat-novels.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/opinion/trump-fired-accountability.html
 **I Quit the Patriarchy and Rescued My Marriage**\
 `A functioning partnership requires an equitable division of the workload of maintaining a family.`\
 https://nytimes.com/2025/02/01/opinion/marriage-men-women-patriarchy.html
-
-**I Gave Up My Smartphone for a Dumbphone. You Can, Too.**\
-`The pleasures and freedoms of an old-fashioned flip phone.`\
-https://nytimes.com/2025/02/01/opinion/how-quit-smartphone-addiction.html
-
-**The Moral and Strategic Case for Taking in the Afghan Refugees**\
-`Trump is Breaking at Least 1600 Promises and Upending That Many Lives.`\
-https://nytimes.com/2025/02/01/opinion/afghanistan-refugees-us.html
 
