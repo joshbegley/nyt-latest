@@ -1,3 +1,7 @@
+**Canucks trade J.T. Miller to Rangers for Filip Chytil, Victor Mancini**\
+`The Rangers drafted Miller with the No. 15 pick in the 2011 NHL Draft.`\
+https://nytimes.com/athletic/6080999/2025/01/31/jt-miller-filip-chytil-canucks-rangers-trade/
+
 **Trump Moves to Invalidate Recent Labor Agreements With Federal Workers**\
 `The order is aimed at “last-minute, lame-duck” agreements signed by the Biden administration, a White House memo says.`\
 https://nytimes.com/2025/01/31/us/politics/trump-federal-labor-contracts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104263/2025/01/31/nneka-ogwumike-seattle-storm-con
 **Phyllis Dalton, Oscar-Winning Costume Designer for Historical Epics, Dies at 99**\
 `A look back at some of her most celebrated works, including “Doctor Zhivago,” “The Princess Bride” and “Lawrence of Arabia.”`\
 https://nytimes.com/2025/01/31/movies/phyllis-dalton-dead.html
-
-**New York Doctor Indicted in Louisiana for Sending Abortion Pills There**\
-`The case opens a new front in the battle between states that ban abortion and states that support providing abortion anywhere in the country.`\
-https://nytimes.com/2025/01/31/health/abortion-louisiana-new-york-prosecution-shield-law.html
 

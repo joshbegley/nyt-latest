@@ -1,3 +1,7 @@
+**Canucks trade J.T. Miller to Rangers for Filip Chytil, Victor Mancini**\
+`The Rangers drafted Miller with the No. 15 pick in the 2011 NHL Draft.`\
+https://nytimes.com/athletic/6080999/2025/01/31/jt-miller-filip-chytil-canucks-rangers-trade/
+
 **Cowboys’ Brian Schottenheimer selects Klayton Adams as OC**\
 `Adams, the former Cardinals offensive line coach, won't call plays but will be tasked with reviving the club's rushing attack.`\
 https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-klayton-adams/
