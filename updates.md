@@ -1,3 +1,7 @@
+**Can Notre Dame keep winning big? 'This has to be the new normal'**\
+`Athletic director Pete Bevacqua believes Notre Dame has found the right kind of football alignment with Freeman at the center.`\
+https://nytimes.com/athletic/6103370/2025/02/01/notre-dame-football-marcus-freeman-pete-bevacqua/
+
 **Hollinger: Keep an eye on these 10 players in the second half of the season**\
 `These guys aren't on the trade market or in awards races, but they've stepped up their games enough to warrant watching down the stretch.`\
 https://nytimes.com/athletic/6102963/2025/02/01/amen-thompson-jamal-murray-nba-second-half/
