@@ -1,3 +1,7 @@
+**Clippers trade Tucker to Jazz, avoid luxury tax line ahead of deadline**\
+`The deal allows the Clippers to save $6 million, get under the first apron of the luxury tax and have an alternative at backup center.`\
+https://nytimes.com/athletic/6105284/2025/02/01/clippers-jazz-trade-pj-tucker/
+
 **White House P.R. Campaign Aims to Show Trump Making Good on Immigration Promise**\
 `The government is releasing photos and videos to promote President Trump’s immigration agenda, including footage of troops at the border and close-up shots of shackled immigrants.`\
 https://nytimes.com/2025/02/01/us/politics/trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/us/politics/ken-martin-dnc.html
 **Alexander-Arnold to undergo injury scan after Liverpool win at Bournemouth**\
 `Trent Alexander-Arnold will undergo a scan to determine the extent of the damage sustained after he limped out of Liverpool’s 2-0 win at Bournemouth.`\
 https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-update-liverpool/
-
-**Health Programs Shutter Around the World After Trump Pauses Foreign Aid**\
-`Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
-https://nytimes.com/2025/02/01/health/trump-aid-malaria-tuberculosis-hiv.html
 

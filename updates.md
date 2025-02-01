@@ -1,3 +1,7 @@
+**Clippers trade Tucker to Jazz, avoid luxury tax line ahead of deadline**\
+`The deal allows the Clippers to save $6 million, get under the first apron of the luxury tax and have an alternative at backup center.`\
+https://nytimes.com/athletic/6105284/2025/02/01/clippers-jazz-trade-pj-tucker/
+
 **White House P.R. Campaign Aims to Show Trump Making Good on Immigration Promise**\
 `The government is releasing photos and videos to promote President Trump’s immigration agenda, including footage of troops at the border and close-up shots of shackled immigrants.`\
 https://nytimes.com/2025/02/01/us/politics/trump-immigration.html
