@@ -1,3 +1,7 @@
+**Penguins trade Marcus Pettersson to Canucks**\
+`Pettersson was an attractive candidate ahead of the trade deadline as a pending unrestricted free agent.`\
+https://nytimes.com/athletic/6091788/2025/02/01/marcus-pettersson-penguins-team-nhl-trade-deadline/
+
 **Live Updates: Hamas Releases 3 More Hostages in Exchange With Israel**\
 `The handovers appeared to go relatively smoothly, unlike the previous one, which descended into chaos. In return, Israel is set to release Palestinian prisoners.`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages
