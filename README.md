@@ -1,3 +1,11 @@
+**Don’t Look Back**\
+`A political reckoning? Not at the Democratic National Committee.`\
+https://nytimes.com/2025/01/31/us/politics/dnc-chair-election.html
+
+**Learjet Crashes Near Philadelphia Mall**\
+`A Learjet 55 with two aboard crashed around 6:30 p.m. near the Roosevelt Mall after leaving the Northeast Philadelphia Airport, officials said. There was no word on casualties.`\
+https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
+
 **Reagan Airport Had a Number of Close Calls in Recent Years**\
 `Internal government reports and public databases highlight several instances in which planes narrowly escaped collisions with each other or helicopters.`\
 https://nytimes.com/2025/01/31/business/reagan-airport-close-calls.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/01/31/arts/television/-saturday-night-live-
 **Nonprofits Dread Attempts to Scrutinize Diversity Initiatives**\
 `Multiple groups said that a government email address created for reports of attempts to thwart the Trump administration’s crackdown was used to sign up for their newsletters.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/nonprofits-dread-attempts-to-scrutinize-diversity-initiatives
-
-**Rationalizing the Ryan Brasier decision in the crowded Dodgers bullpen**\
-`Dodgers GM Brandon Gomes called it a "difficult decision" to part with Brasier after the team signed Kirby Yates.`\
-https://nytimes.com/athletic/6104165/2025/01/31/dodgers-ryan-brasier-designated-for-assignment/
-
-**‘Crash, Crash, Crash!’: Audio Reveals History of Close Calls at Reagan Airport**\
-`As investigators continue to try to determine the cause of Wednesday’s plane collision in Washington, D.C., control tower audio from Reagan National Airport reveals a history of safety issues, airspace congestion and near misses.`\
-https://nytimes.com/video/us/100000009959220/dc-plane-crash-reagan-airport-safety-issues.html
 
