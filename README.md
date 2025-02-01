@@ -1,3 +1,7 @@
+**Plane Crash That Killed at Least 7 Leaves Philadelphia Neighborhood Shaken**\
+`Residents of Northeast Philadelphia looked on in disbelief after the crash on Friday night that also injured at least 19 people on the ground.`\
+https://nytimes.com/2025/02/01/us/philadelphia-plane-crash.html
+
 **Trump Orders Airstrikes Against Islamic State in Somalia**\
 `Defense Secretary Pete Hegseth said that “multiple operatives” had been killed in remote mountains in the country’s north.`\
 https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105264/2025/02/01/nhl-trade-grades-stars-sharks-gr
 **Canada has little ability to effectively strike back with its own tariffs.**\
 `By Ian Austen`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-has-little-ability-to-effectively-strike-back-with-its-own-tariffs
-
-**Bored by Nikola Jokić? His teammates aren't. 'Hard to deny his greatness'**\
-`Jokić is having one of his best seasons, but he isn't considered MVP favorite. We're witnessing greatness. Should everyone recognize it?`\
-https://nytimes.com/athletic/6104973/2025/02/01/nikola-jokic-nuggets-teammates-nba/
 
