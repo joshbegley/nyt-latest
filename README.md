@@ -1,3 +1,7 @@
+**Tennessee stuns Florida without Zakai Zeigler; Walter Clayton Jr. hurt but returns**\
+`The Vols were down two starters — and had only seven scholarship players available — but manged to dominate Florida in Knoxville. `\
+https://nytimes.com/athletic/6105454/2025/02/01/tennessee-florida-zakai-zeigler-walter-clayton-injury/
+
 **Clippers trade Tucker to Jazz, avoid luxury tax line ahead of deadline**\
 `The deal allows the Clippers to save $6 million, get under the first apron of the luxury tax and have an alternative at backup center.`\
 https://nytimes.com/athletic/6105284/2025/02/01/clippers-jazz-trade-pj-tucker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105310/2025/02/01/penguins-trade-rebuild/
 **Who Is Ken Martin, the New Leader of the D.N.C.?**\
 `Democrats elected a Midwesterner and behind-the-scenes operator to take charge of a party still reeling from defeat.`\
 https://nytimes.com/2025/02/01/us/politics/ken-martin-dnc.html
-
-**Alexander-Arnold to undergo injury scan after Liverpool win at Bournemouth**\
-`Trent Alexander-Arnold will undergo a scan to determine the extent of the damage sustained after he limped out of Liverpool’s 2-0 win at Bournemouth.`\
-https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-update-liverpool/
 
