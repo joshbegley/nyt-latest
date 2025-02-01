@@ -1,4 +1,8 @@
 **Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
+`His departure leaves the defending national champion Buckeyes with two coaching vacancies after DC Jim Knowles left for Penn State.`\
+https://nytimes.com/athletic/6105018/2025/02/01/ohio-state-offensive-line-coach-arizona-cardinals/
+
+**Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
 `His departure leaves the defending national champion Buckeyes with two coaching vacancies after DC Jim Knowles left to go to Penn State.`\
 https://nytimes.com/athletic/6105018/2025/02/01/ohio-state-offensive-line-coach-arizona-cardinals/
 
