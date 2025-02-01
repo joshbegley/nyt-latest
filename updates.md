@@ -1,3 +1,15 @@
+**‘Mythic Quest’ Is Only the Start of Her Real-Life Journey**\
+`Season 4 of the Apple series has Charlotte Nicdao’s character branching out in new directions. The actress is doing likewise, including as a director.`\
+https://nytimes.com/2025/02/01/arts/television/mythic-quest-charlotte-nicdao.html
+
+**Trump Administration Fires Consumer Bureau Chief**\
+`Rohit Chopra, who led the Consumer Financial Protection Bureau, was known for his aggressive enforcement and expansion of consumer protection laws.`\
+https://nytimes.com/2025/02/01/business/cfpb-rohit-chopra.html
+
+**The president is expected to impose steep levies on an array of goods.**\
+`White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-mexico-china-trump-tariffs
+
 **Palace express interest Chilwell loan from Chelsea**\
 `Crystal Palace have expressed an interest to sign Ben Chilwell on loan from Chelsea for the rest of the season.`\
 https://nytimes.com/athletic/6104839/2025/02/01/chelsea-transfers-ben-chilwell-crystal-palace/
