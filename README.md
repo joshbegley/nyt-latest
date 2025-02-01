@@ -1,3 +1,7 @@
+**USC upsets No. 7 Michigan State, keeps Tom Izzo one win behind behind Bob Knight**\
+`This is the Spartans’ first loss outside of Quad 1, but they also have just two wins over teams that would be safely in the field today.`\
+https://nytimes.com/athletic/6105856/2025/02/01/usc-michigan-state-tom-izzo-big-ten/
+
 **Mexico faces a devastating economic blow from the tariffs.**\
 `Mexico relies heavily on exports to the United States, making its economy especially vulnerable to the new tariffs imposed by President Trump.`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/mexico-faces-a-devastating-economic-blow-from-the-tariffs
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
 **Israel and Hamas Exchange 3 Hostages and More Than 180 Prisoners**\
 `In highly staged ceremonies, Hamas freed three people held captive over the last 15 months. Keeping to its part of the cease-fire deal, Israel released 183 Palestinians held in jails.`\
 https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-hostages-gaza.html
-
-**Two-for-One Special**\
-`Derrick Niederman’s 14th Sunday puzzle is marvelous, from A to Z.`\
-https://nytimes.com/2025/02/01/crosswords/daily-puzzle-2025-02-02.html
 
