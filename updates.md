@@ -1,3 +1,15 @@
+**Sabres, Jiri Kulich deliver badly needed win on Rob Ray's special night in Buffalo**\
+`The former NHL enforcer was inducted into the Sabres Hall of Fame before Buffalo's 4-3 win over Nashville. `\
+https://nytimes.com/athletic/6104552/2025/02/01/sabres-jiri-kulich-rob-ray/
+
+**Who is football's worst transfer ever? From Neymar and Antony to Coutinho and Hazard**\
+`Neymar and Antony were expensive mistakes for their last clubs — but who else fits into the "worst-ever" bracket?`\
+https://nytimes.com/athletic/6102516/2025/02/01/transfer-worst-ever-neymar-antony/
+
+**Chelsea are the WSL's big spenders. Why are other teams not doing the same?**\
+`The champions continue to improve their squad despite their lead at the top of the WSL - and their spending stands apart from other clubs`\
+https://nytimes.com/athletic/6102946/2025/02/01/chelsea-wsl-spending/
+
 **The revamped Champions League: A success or a Super League devoid of jeopardy?**\
 `The usual suspects qualified at least for the play-offs to reach the last 16, with the new format posing more questions than answers`\
 https://nytimes.com/athletic/6099795/2025/02/01/ucl-champions-league-uefa-jeopardy/
