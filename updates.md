@@ -1,3 +1,16 @@
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
+**Tottenham reach agreement to sign Lens' Danso in permanent deal**\
+`Tottenham Hotspur have reached an agreement with Lens to sign defender Kevin Danso in a permanent transfer.`\
+https://nytimes.com/athletic/6105554/2025/02/01/tottenham-kevin-danso-transfer-wolves/
+
+**Elon Musk’s team has gotten access to the Treasury Department’s payments system.**\
+`By Andrew Duehren, Maggie Haberman, Theodore Schleifer and Alan Rappeport`\
+https://nytimes.com/2025/02/01/us/politics/elon-musk-doge-federal-payments-system.html
+
 **Arizona State's Bobby Hurley pulls team off court, says Arizona won with 'no class'**\
 `Hurley said he has a vote for all-conference honors and suggested that he will not be voting for Arizona's Caleb Love. `\
 https://nytimes.com/athletic/6105633/2025/02/01/arizona-state-bobby-hurley-arizona-caleb-love/
