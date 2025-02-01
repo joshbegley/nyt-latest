@@ -1,3 +1,7 @@
+**Hyperbaric Chamber Explosion Kills 5-Year-Old Boy**\
+`The boy was receiving medical treatment at a Michigan medical center when the chamber exploded on Friday, the authorities said. His mother was also injured.`\
+https://nytimes.com/2025/02/01/us/boy-killed-hyperbaric-chamber-explosion-michigan.html
+
 **Bears expected to hire Eric Bieniemy as RBs coach**\
 `Bienemy overlapped with Bears GM Ryan Poles while with the Chiefs and with president/CEO Kevin Warren during his time coaching in Minnesota.`\
 https://nytimes.com/athletic/6105763/2025/02/01/eric-bieniemy-nfl-bears-rb-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-
 **Newcastle's Kelly expected to make Juventus loan move**\
 `Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
 https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
-
-**Here’s What to Know About Trump’s Tariffs**\
-`Canada, Mexico and China account for more than a third of the products brought into the United States. Tariffs could lead to higher prices for consumers.`\
-https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
 
