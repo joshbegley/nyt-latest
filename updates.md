@@ -1,3 +1,43 @@
+**Amy Klobuchar on How Democrats Can Combat America’s ‘Hot Mess of Division’**\
+`The Minnesota moderate has thoughts on how her party can move forward.`\
+https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.html
+
+**If Kennedy Is Blind to Science, Why Entrust Him With Our Health?**\
+`When we face some risk of a bird flu pandemic, do we want to entrust our health to a man who has fought lifesaving vaccines?`\
+https://nytimes.com/2025/02/01/opinion/rfk-kennedy-vaccines.html
+
+**Trump’s Test of the Constitution**\
+`Two weeks in, the president is quickly moving to eliminate tools of accountability.`\
+https://nytimes.com/2025/02/01/opinion/trump-fired-accountability.html
+
+**I Quit the Patriarchy and Rescued My Marriage**\
+`A functioning partnership requires an equitable division of the workload of maintaining a family.`\
+https://nytimes.com/2025/02/01/opinion/marriage-men-women-patriarchy.html
+
+**I Gave Up My Smartphone for a Dumbphone. You Can, Too.**\
+`The pleasures and freedoms of an old-fashioned flip phone.`\
+https://nytimes.com/2025/02/01/opinion/how-quit-smartphone-addiction.html
+
+**The Moral and Strategic Case for Taking in the Afghan Refugees**\
+`Trump is Breaking at Least 1600 Promises and Upending That Many Lives.`\
+https://nytimes.com/2025/02/01/opinion/afghanistan-refugees-us.html
+
+**The Targeting of Migrants**\
+`Readers object to President Trump’s harsh line against immigrants, regardless of their status.`\
+https://nytimes.com/2025/02/01/opinion/migrants-immigration-trump.html
+
+**Hear from the 11-year-old who hit the Skenes Debut Patch and his family**\
+`After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
+https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
+
+**How to Choose a Religion**\
+`A religious quest can still be a rational undertaking — not a leap into pure mystery.`\
+https://nytimes.com/2025/02/01/opinion/religion-faith-choose.html
+
+**Inside the J.T. Miller trade: After 3 years, how the Rangers finally got their guy**\
+`If you take the long view, all the way back to February of 2022, then J.T. Miller to the New York Rangers appears inevitable.`\
+https://nytimes.com/athletic/6104478/2025/02/01/rangers-canucks-jt-miller-trade-insider/
+
 **Man United complete Ayden Heaven signing from Arsenal**\
 `Manchester United have completed the signing of teenage defender Ayden Heaven from Arsenal.`\
 https://nytimes.com/athletic/6084205/2025/02/01/ayden-heaven-arsenal-manchester-united/

@@ -1,40 +1,40 @@
-**Man United complete Ayden Heaven signing from Arsenal**\
-`Manchester United have completed the signing of teenage defender Ayden Heaven from Arsenal.`\
-https://nytimes.com/athletic/6084205/2025/02/01/ayden-heaven-arsenal-manchester-united/
+**Amy Klobuchar on How Democrats Can Combat America’s ‘Hot Mess of Division’**\
+`The Minnesota moderate has thoughts on how her party can move forward.`\
+https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.html
 
-**Renewed Resolve**\
-`On the first day of February, consider a monthly intention-setting ritual, even if you think you don’t have a minute to spare.`\
-https://nytimes.com/2025/02/01/briefing/renewed-resolve.html
+**If Kennedy Is Blind to Science, Why Entrust Him With Our Health?**\
+`When we face some risk of a bird flu pandemic, do we want to entrust our health to a man who has fought lifesaving vaccines?`\
+https://nytimes.com/2025/02/01/opinion/rfk-kennedy-vaccines.html
 
-**Islanders fan survey results: No playoffs, trade Nelson, fire Lamoriello — and a full rebuild?**\
-`Nearly half of Islanders fans believe it's time for a full rebuild — and nearly 90 percent don't want Lou Lamoriello to be the one to do it.`\
-https://nytimes.com/athletic/6094321/2025/02/01/islanders-fan-survey-results-rebuild/
+**Trump’s Test of the Constitution**\
+`Two weeks in, the president is quickly moving to eliminate tools of accountability.`\
+https://nytimes.com/2025/02/01/opinion/trump-fired-accountability.html
 
-**The mystery of the funniest Maple Leaf: How Connor Dewar won over his teammates**\
-`It takes a while for the real Connor Dewar to come out. But when he does? "Just pure entertainment all the time."`\
-https://nytimes.com/athletic/6096985/2025/02/01/maple-leafs-connor-dewar-nhl/
+**I Quit the Patriarchy and Rescued My Marriage**\
+`A functioning partnership requires an equitable division of the workload of maintaining a family.`\
+https://nytimes.com/2025/02/01/opinion/marriage-men-women-patriarchy.html
 
-**Trump’s Tariffs Would Reverse Decades of Integration Between U.S. and Mexico**\
-`Ties between the United States and Mexico have deepened over 30 years of free trade, creating both benefits and irritants.`\
-https://nytimes.com/2025/02/01/us/politics/trumps-tariffs-us-mexico.html
+**I Gave Up My Smartphone for a Dumbphone. You Can, Too.**\
+`The pleasures and freedoms of an old-fashioned flip phone.`\
+https://nytimes.com/2025/02/01/opinion/how-quit-smartphone-addiction.html
 
-**Canada’s Auto Industry Capital Braces for Trump Tariffs**\
-`Windsor, Ontario, right across the border from Detroit, has close ties to the United States but now faces exceptional economic disruption.`\
-https://nytimes.com/2025/02/01/world/canada/canada-trump-tariffs-windsor.html
+**The Moral and Strategic Case for Taking in the Afghan Refugees**\
+`Trump is Breaking at Least 1600 Promises and Upending That Many Lives.`\
+https://nytimes.com/2025/02/01/opinion/afghanistan-refugees-us.html
 
-**Wordle Review No. 1,324**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 2, 2025.`\
-https://nytimes.com/2025/02/01/crosswords/wordle-review-1324.html
+**The Targeting of Migrants**\
+`Readers object to President Trump’s harsh line against immigrants, regardless of their status.`\
+https://nytimes.com/2025/02/01/opinion/migrants-immigration-trump.html
 
-**Connections Companion No. 602**\
-`Scroll down for hints and conversation about the puzzle for Feb. 2, 2025.`\
-https://nytimes.com/2025/02/01/crosswords/connections-companion-602.html
+**Hear from the 11-year-old who hit the Skenes Debut Patch and his family**\
+`After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
+https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
 
-**Can Notre Dame keep winning big? 'This has to be the new normal'**\
-`Athletic director Pete Bevacqua believes Notre Dame has found the right kind of football alignment with Freeman at the center.`\
-https://nytimes.com/athletic/6103370/2025/02/01/notre-dame-football-marcus-freeman-pete-bevacqua/
+**How to Choose a Religion**\
+`A religious quest can still be a rational undertaking — not a leap into pure mystery.`\
+https://nytimes.com/2025/02/01/opinion/religion-faith-choose.html
 
-**Hollinger: Keep an eye on these 10 players in the second half of the season**\
-`These guys aren't on the trade market or in awards races, but they've stepped up their games enough to warrant watching down the stretch.`\
-https://nytimes.com/athletic/6102963/2025/02/01/amen-thompson-jamal-murray-nba-second-half/
+**Inside the J.T. Miller trade: After 3 years, how the Rangers finally got their guy**\
+`If you take the long view, all the way back to February of 2022, then J.T. Miller to the New York Rangers appears inevitable.`\
+https://nytimes.com/athletic/6104478/2025/02/01/rangers-canucks-jt-miller-trade-insider/
 
