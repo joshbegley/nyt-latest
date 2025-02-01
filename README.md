@@ -12,7 +12,7 @@ https://nytimes.com/2025/01/31/us/politics/us-prisoners-venezuela.html
 https://nytimes.com/2025/01/31/nyregion/shooting-boy-killed-newark-nj.html
 
 **Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
-`Critics said the president’s remarks after the crash cause damage to an already underrepresented segment of the work force.`\
+`Critics said the president’s remarks after the crash caused damage to an already underrepresented segment of the work force.`\
 https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
 
 **Acquiring J.T. Miller is Rangers GM Chris Drury's biggest move yet**\
