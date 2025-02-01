@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6104537/2025/02/01/blue-jackets-beat-utah-in-overti
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/what-to-know-about-the-latest-hostage-and-prisoner-releases
 
-**Live Updates: Hamas Releases 2 More Hostages in Exchange With Israel**\
-`The handover took only a few minutes, unlike the previous one, which descended into chaos. The militant group is expected to release one more today, and in return, Israel is set to release Palestinian prisoners.`\
+**Live Updates: Hamas Releases 3 More Hostages in Exchange With Israel**\
+`The handovers appeared to go relatively smoothly, unlike the previous one, which descended into chaos. In return, Israel is set to release Palestinian prisoners.`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages
 
 **The Los Angeles Wildfires Are Fully Contained**\
