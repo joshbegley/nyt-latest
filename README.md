@@ -1,3 +1,7 @@
+**'We're building moving forward': Jim Rutherford explains why Canucks traded for Marcus Pettersson**\
+`Rutherford isn't sure if his Canucks are good enough to be contenders, but he's sure they needed Pettersson from the Penguins.`\
+https://nytimes.com/athletic/6104567/2025/02/01/canucks-penguins-marcus-pettersson-trade/
+
 **Tottenham beware: Why Brentford are so difficult to play against**\
 `Brentford spend more time in organised defensive blocks than any other Premier League team - Spurs will have their work cut out on Sunday`\
 https://nytimes.com/athletic/6102968/2025/02/01/tottenham-hotspur-brentford-analysis-block/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102946/2025/02/01/chelsea-wsl-spending/
 **The revamped Champions League: A success or a Super League devoid of jeopardy?**\
 `The usual suspects qualified at least for the play-offs to reach the last 16, with the new format posing more questions than answers`\
 https://nytimes.com/athletic/6099795/2025/02/01/ucl-champions-league-uefa-jeopardy/
-
-**Can Forest and Chelsea credit a high squad turnover for improved fortunes?**\
-`Nottingham Forest and Chelsea have bucked expectations over the last few seasons, seeing success with significant player trading`\
-https://nytimes.com/athletic/6102590/2025/02/01/nottingham-forest-chelsea-squad/
 
