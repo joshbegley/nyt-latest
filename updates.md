@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **No. 1 Penn State wrestling thumps No. 2 Iowa for fourth straight time**\
 `Penn State’s wrestling dynasty continues to romp, even against elite competition.`\
 https://nytimes.com/athletic/6104442/2025/01/31/penn-state-iowa-mens-wrestling-dual-results-analysis/
