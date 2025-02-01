@@ -1,6 +1,6 @@
 **A Closer Look at 3 Hostages Released Saturday**\
 `Hamas released the three men as part of a staggered hostage-for-prisoner exchange under a 42-day cease-fire deal that went into effect last month.`\
-https://nytimes.com/2025/02/01/world/middleeast/a-closer-look-at-3-hostages-released-saturday.html
+https://nytimes.com/2025/02/01/world/middleeast/israeli-hostages-hamas-saturday.html
 
 **Black Voters Helped Elect Eric Adams Mayor. Now They May Back Cuomo.**\
 `Mr. Adams and former Gov. Andrew M. Cuomo have both been popular with Black voters, setting up a potential showdown that could decide the Democratic mayoral primary in New York City.`\
