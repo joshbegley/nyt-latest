@@ -1,3 +1,11 @@
+**NHL trade grades: Canucks pay Penguins steep price for Marcus Pettersson, Drew O'Connor**\
+`It’s a lot for the Canucks to part with for two rentals but their need on defense was that glaring.`\
+https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguins-marcus-pettersson/
+
+**Criss-Crossing Routes in D.C. Airspace Leave Little Room for Error**\
+`Planes assigned to land at Reagan’s Runway 33 must fly just above a route that is busy with helicopters.`\
+https://nytimes.com/interactive/2025/02/01/us/dca-air-traffic-plane-crash.html
+
 **'We're building moving forward': Jim Rutherford explains why Canucks traded for Marcus Pettersson**\
 `Rutherford isn't sure whether his Canucks are good enough to be contenders, but he's sure they needed Pettersson from the Penguins.`\
 https://nytimes.com/athletic/6104567/2025/02/01/canucks-penguins-marcus-pettersson-trade/

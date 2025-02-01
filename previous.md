@@ -1,3 +1,11 @@
+**NHL trade grades: Canucks pay Penguins steep price for Marcus Pettersson, Drew O'Connor**\
+`It’s a lot for the Canucks to part with for two rentals but their need on defense was that glaring.`\
+https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguins-marcus-pettersson/
+
+**Criss-Crossing Routes in D.C. Airspace Leave Little Room for Error**\
+`Planes assigned to land at Reagan’s Runway 33 must fly just above a route that is busy with helicopters.`\
+https://nytimes.com/interactive/2025/02/01/us/dca-air-traffic-plane-crash.html
+
 **Penguins trade Marcus Pettersson to Canucks**\
 `Pettersson was an attractive candidate ahead of the trade deadline as a pending unrestricted free agent.`\
 https://nytimes.com/athletic/6091788/2025/02/01/marcus-pettersson-penguins-team-nhl-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6096581/2025/02/01/leicester-helicopter-crash-inque
 **Sabres, Jiri Kulich deliver badly needed win on Rob Ray's special night in Buffalo**\
 `The former NHL enforcer was inducted into the Sabres Hall of Fame before Buffalo's 4-3 win over Nashville. `\
 https://nytimes.com/athletic/6104552/2025/02/01/sabres-jiri-kulich-rob-ray/
-
-**Who is football's worst transfer ever? From Neymar and Antony to Coutinho and Hazard**\
-`Neymar and Antony were expensive mistakes for their last clubs — but who else fits into the "worst-ever" bracket?`\
-https://nytimes.com/athletic/6102516/2025/02/01/transfer-worst-ever-neymar-antony/
-
-**Chelsea are the WSL's big spenders. Why are other teams not doing the same?**\
-`The champions continue to improve their squad despite their lead at the top of the WSL - and their spending stands apart from other clubs`\
-https://nytimes.com/athletic/6102946/2025/02/01/chelsea-wsl-spending/
 
