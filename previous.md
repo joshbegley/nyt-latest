@@ -1,3 +1,7 @@
+**Blackhawks' Frank Nazar remains unflappable through the ups and downs of rookie season**\
+`Whether it's receiving critique or getting bumped from the top line, Nazar's resiliency and confidence are rare for a rookie in the NHL.`\
+https://nytimes.com/athletic/6105756/2025/02/01/blackhawks-rookie-frank-nazar/
+
 **To Trump, Tariffs Are Not a Means but an End**\
 `Many presidents use tariffs to force negotiations. But for President Trump, they are the point, a source of revenue as he pursues a Gilded Age vision.`\
 https://nytimes.com/2025/02/01/us/politics/trump-tariffs-goal.html
@@ -14,12 +18,12 @@ https://nytimes.com/2025/02/01/us/us-aid-agency-trump.html
 `GM Daniel Briere said the trade that sent Morgan Frost and Joel Farabee to Calgary shouldn't be viewed as a proverbial punt on 2024-25.`\
 https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-farabee-trade/
 
-**Newcastle's Kelly set for Juventus loan move**\
+**Newcastle's Kelly expected to make Juventus loan move**\
 `Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
 https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
 
 **Here’s What to Know About Trump’s Tariffs**\
-`More than a third of the goods and services imported to or bought from the United States are linked to Canada, Mexico and China. Tariffs could lead to higher prices for consumers.`\
+`Canada, Mexico and China account for more than a third of the products brought into the United States. Tariffs could lead to higher prices for consumers.`\
 https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
 
 **Israel and Hamas Exchange 3 Hostages and More Than 180 Prisoners**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/crosswords/daily-puzzle-2025-02-02.html
 **Rudiger to be assessed after injury in Espanyol defeat**\
 `Real Madrid defender Antonio Rudiger will undergo assessment after picking up an injury during the defeat to Espanyol on Saturday.`\
 https://nytimes.com/athletic/6105723/2025/02/01/antonio-rudiger-injury-real-madrid/
-
-**Storms Could Bring Up to 15 Inches of Rain to Parts of Northern California**\
-`Atmospheric river conditions could bring multiple feet of snow to the northern Sierra Nevada. Other areas face a risk of flooding as the ground becomes increasingly saturated.`\
-https://nytimes.com/2025/02/01/weather/california-rain-flooding.html
 

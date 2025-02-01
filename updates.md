@@ -1,3 +1,15 @@
+**Blackhawks' Frank Nazar remains unflappable through the ups and downs of rookie season**\
+`Whether it's receiving critique or getting bumped from the top line, Nazar's resiliency and confidence are rare for a rookie in the NHL.`\
+https://nytimes.com/athletic/6105756/2025/02/01/blackhawks-rookie-frank-nazar/
+
+**Newcastle's Kelly expected to make Juventus loan move**\
+`Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
+https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
+
+**Here’s What to Know About Trump’s Tariffs**\
+`Canada, Mexico and China account for more than a third of the products brought into the United States. Tariffs could lead to higher prices for consumers.`\
+https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
+
 **To Trump, Tariffs Are Not a Means but an End**\
 `Many presidents use tariffs to force negotiations. But for President Trump, they are the point, a source of revenue as he pursues a Gilded Age vision.`\
 https://nytimes.com/2025/02/01/us/politics/trump-tariffs-goal.html
