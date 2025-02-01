@@ -1,3 +1,15 @@
+**At the final candidate forum before the vote, Democrats opt not to look back.**\
+`By Jess Bidgood`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-forum-before-the-vote-democrats-opt-not-to-look-back
+
+**Here is the latest on the race.**\
+`By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news/here-is-the-latest-on-the-race
+
+**Live Updates: Democrats Face Off as They Choose a New Party Leader**\
+`The 448 members of the Democratic National Committee are set to vote on a new chair. The winner will help lead a demoralized party split over its future and its response to President Trump.`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news
+
 **Wings acquire DiJonai Carrington in trade with rebuilding Sun: Reports**\
 `Carrington, 27, was a restricted free agent and the Sun had the ability to match any offer sheet with another team`\
 https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnba-trade-rumors/
