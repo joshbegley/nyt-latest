@@ -1,3 +1,7 @@
+**Everton working on deal to sign former Chelsea defender Mjelde**\
+`Everton are working on a deal to sign former Chelsea defender Maren Mjelde on a free transfer following the season-ending knee injury sustained by club captain Megan Finnigan.`\
+https://nytimes.com/athletic/6104778/2025/02/01/everton-transfers-maren-mjelde/
+
 **Steve Kerr prior to Warriors' loss: Not in position to stand pat at NBA trade deadline**\
 `"It's pretty clear where I stand," Steph Curry said, "trying to make the necessary adjustments to try to win."`\
 https://nytimes.com/athletic/6104516/2025/02/01/steve-kerr-warriors-nba-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.h
 **If Kennedy Is Blind to Science, Why Entrust Him With Our Health?**\
 `When we face some risk of a bird flu pandemic, do we want to entrust our health to a man who has fought lifesaving vaccines?`\
 https://nytimes.com/2025/02/01/opinion/rfk-kennedy-vaccines.html
-
-**Trump’s Test of the Constitution**\
-`Two weeks in, the president is quickly moving to eliminate tools of accountability.`\
-https://nytimes.com/2025/02/01/opinion/trump-fired-accountability.html
 
