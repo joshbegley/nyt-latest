@@ -2,7 +2,7 @@
 `On Thursday`\
 https://nytimes.com/2025/01/31/us/disabled-workers-express-fear-and-dismay-after-trumps-claims-about-the-faa.html
 
-**Acquiring J.T. Miller is Rangers GM Chris Drury’s biggest move yet**\
+**Acquiring J.T. Miller is Rangers GM Chris Drury's biggest move yet**\
 `Drury took his most dramatic step yet in making this Rangers roster his own by acquiring Miller in Friday's blockbuster trade.`\
 https://nytimes.com/athletic/6104332/2025/01/31/rangers-canucks-jt-miller-trade-drury/
 

@@ -1,3 +1,11 @@
+**Disabled workers express fear and dismay after Trump’s claims about the F.A.A.**\
+`On Thursday`\
+https://nytimes.com/2025/01/31/us/disabled-workers-express-fear-and-dismay-after-trumps-claims-about-the-faa.html
+
+**Acquiring J.T. Miller is Rangers GM Chris Drury’s biggest move yet**\
+`Drury took his most dramatic step yet in making this Rangers roster his own by acquiring Miller in Friday's blockbuster trade.`\
+https://nytimes.com/athletic/6104332/2025/01/31/rangers-canucks-jt-miller-trade-drury/
+
 **NHL trade grades: Canucks finally send J.T. Miller to Rangers in big swing for both teams**\
 `Miller is the standout piece in what's a high-risk, high-reward trade for the Canucks and the Rangers.`\
 https://nytimes.com/athletic/6104270/2025/01/31/nhl-trade-grades-canucks-rangers-jt-miller/

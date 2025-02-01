@@ -1,3 +1,11 @@
+**Disabled workers express fear and dismay after Trump’s claims about the F.A.A.**\
+`On Thursday`\
+https://nytimes.com/2025/01/31/us/disabled-workers-express-fear-and-dismay-after-trumps-claims-about-the-faa.html
+
+**Acquiring J.T. Miller is Rangers GM Chris Drury’s biggest move yet**\
+`Drury took his most dramatic step yet in making this Rangers roster his own by acquiring Miller in Friday's blockbuster trade.`\
+https://nytimes.com/athletic/6104332/2025/01/31/rangers-canucks-jt-miller-trade-drury/
+
 **NHL trade grades: Canucks finally send J.T. Miller to Rangers in big swing for both teams**\
 `Miller is the standout piece in what's a high-risk, high-reward trade for the Canucks and the Rangers.`\
 https://nytimes.com/athletic/6104270/2025/01/31/nhl-trade-grades-canucks-rangers-jt-miller/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/us/politics/trump-federal-labor-contracts.html
 **Two D.C. lawyers were among the dead, including one going home to celebrate her birthday.**\
 `By Jack Healy`\
 https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/two-dc-lawyers-were-among-the-dead-including-one-going-home-to-celebrate-her-birthday
-
-**Cowboys’ Brian Schottenheimer selects Klayton Adams as OC**\
-`Adams, the former Cardinals offensive line coach, won't call plays but will be tasked with reviving the club's rushing attack.`\
-https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-klayton-adams/
-
-**How the D.C. Plane Crash Shattered Wichita’s Big Dreams of Skating and Flight**\
-`The city had tried for years to host the U.S. Figure Skating Championships, and to get a direct flight to the northeast.`\
-https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
 
