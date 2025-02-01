@@ -1,3 +1,11 @@
+**Jaune Quick-to-See Smith, Artist With an Indigenous Focus, Dies at 85**\
+`She began with modestly scaled abstract drawings and paintings but became best known for large works featuring collage and items evoking Native stereotypes.`\
+https://nytimes.com/2025/02/01/arts/jaune-quick-to-see-smith-dead.html
+
+**Cade Cunningham shows 'great understanding of the moment' in win**\
+`Where on the floor is the All-Star guard best at scoring? "Wherever the space is at that I can get my shot off," Cunningham said.`\
+https://nytimes.com/athletic/6104616/2025/02/01/pistons-cade-cunningham-moment-mavericks/
+
 **Everton working on deal to sign former Chelsea defender Mjelde**\
 `Everton are working on a deal to sign former Chelsea defender Maren Mjelde on a free transfer following the season-ending knee injury sustained by club captain Megan Finnigan.`\
 https://nytimes.com/athletic/6104778/2025/02/01/everton-transfers-maren-mjelde/
