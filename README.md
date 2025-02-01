@@ -1,3 +1,11 @@
+**Bucks' blowout loss to Spurs ends frustrating trip, exposes frontcourt depth issues**\
+`Not having backup big Bobby Portis, who was out because of personal reasons, strained the Bucks' frontcourt on their four-game road trip.`\
+https://nytimes.com/athletic/6104696/2025/02/01/giannis-wembanyama-chris-paul-bucks-spurs/
+
+**Horst Köhler, Former German President and I.M.F. Leader, Dies at 81**\
+`He held the ceremonial post of German president after a finance-focused career. Shortly into his second term, he became the first German president in four decades to resign.`\
+https://nytimes.com/2025/02/01/world/europe/germany-horst-kohler-dead.html
+
 **N.Y. Hospital Stops Treating 2 Children After Trump’s Trans Care Order**\
 `The hospital canceled their appointments the same week an executive order from President Trump threatened to punish doctors and hospitals for offering gender-affirming care.`\
 https://nytimes.com/2025/02/01/nyregion/nyu-langone-hospital-trans-care-youth.html
@@ -22,19 +30,11 @@ https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-for
 `By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/here-is-the-latest-on-the-race
 
-**Live Updates: Democrats Face Off as They Choose a New Party Leader**\
-`The 448 members of the Democratic National Committee are set to vote on a new chair. The winner will help lead a demoralized party split over its future and its response to President Trump.`\
+**Live Updates: Democrats Elect Ken Martin, a Party Insider, to Lead the D.N.C.**\
+`The Democratic National Committee chose Mr. Martin, the leader of the Minnesota Democrats, to help oversee a demoralized national party split over its future and its response to President Trump.`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news
 
 **Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
 `On Saturday, The Banner reported three more massage therapists had accused Tucker of misconduct, raising the total accusers to nine women.`\
 https://nytimes.com/athletic/6101074/2025/02/01/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
-
-**Wings acquire DiJonai Carrington in trade with rebuilding Sun: Reports**\
-`Carrington, 27, was a restricted free agent and the Sun had the ability to match any offer sheet with another team`\
-https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnba-trade-rumors/
-
-**Medical Plane Crash in Philadelphia Kills 7**\
-`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when it crashed near a shopping center, killing all on board. On the ground, one person was killed and several others were injured, officials said.`\
-https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
 
