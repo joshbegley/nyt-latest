@@ -1,3 +1,11 @@
+**The Briefing: Bournemouth 0 Liverpool 2: Salah reaches 20 goals (again), Alexander-Arnold's injury and a midfield tweak**\
+`Salah struck twice to help Liverpool defeat one of the Premier League's most in-form sides. Our writers analyse the talking points`\
+https://nytimes.com/athletic/6096592/2025/02/01/liverpool-bournemouth-premier-league-salah-goals/
+
+**The Briefing — Newcastle 1 Fulham 2: Too much focus on Arsenal?**\
+`Newcastle fell to a 2-1 loss against Fulham on Saturday afternoon`\
+https://nytimes.com/athletic/6096610/2025/02/01/newcastle-fulham-result-report-analysis-premier-league/
+
 **At the final candidate forum before the vote, Democrats opt not to look back.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-forum-before-the-vote-democrats-opt-not-to-look-back
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6105018/2025/02/01/ohio-state-offensive-line-coach-
 **What's next for the Canucks after trading J.T. Miller? 10 thoughts on a pair of blockbusters**\
 `The Canucks remade their roster on the fly Friday and charted a new path forward for the franchise.`\
 https://nytimes.com/athletic/6104609/2025/02/01/canucks-trade-jt-miller-pettersson/
-
-**Suzanne Massie, ‘Reagan’s Window on the Soviet Union,’ Dies at 94**\
-`An author of books on Russia who spoke the language, she had no diplomatic experience but formed an unlikely bond with the president.`\
-https://nytimes.com/2025/02/01/us/politics/suzanne-massie-dead.html
-
-**Don’t Fall for Trump’s D.E.I. Dodge**\
-`The president doesn’t care about merit.`\
-https://nytimes.com/2025/02/01/opinion/trump-dei-diversity-meritocracy.html
 

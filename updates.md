@@ -1,3 +1,11 @@
+**The Briefing: Bournemouth 0 Liverpool 2: Salah reaches 20 goals (again), Alexander-Arnold's injury and a midfield tweak**\
+`Salah struck twice to help Liverpool defeat one of the Premier League's most in-form sides. Our writers analyse the talking points`\
+https://nytimes.com/athletic/6096592/2025/02/01/liverpool-bournemouth-premier-league-salah-goals/
+
+**The Briefing — Newcastle 1 Fulham 2: Too much focus on Arsenal?**\
+`Newcastle fell to a 2-1 loss against Fulham on Saturday afternoon`\
+https://nytimes.com/athletic/6096610/2025/02/01/newcastle-fulham-result-report-analysis-premier-league/
+
 **Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
 `On Saturday, The Banner reported three more massage therapists had accused Tucker of misconduct, raising the total accusers to nine women.`\
 https://nytimes.com/athletic/6101074/2025/02/01/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
