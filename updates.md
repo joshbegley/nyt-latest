@@ -1,3 +1,7 @@
+**Wounded Gazans Begin to Leave for Egypt Through Reopened Rafah Crossing**\
+`The border point had been closed after Israel invaded the southern city of Rafah in May but is opening again as part of the cease-fire agreement between Israel and Hamas.`\
+https://nytimes.com/2025/02/01/world/middleeast/rafah-crossing-gaza-wounded-egypt.html
+
 **Steep levies are expected on an array of goods.**\
 `White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-mexico-china-trump-tariffs
