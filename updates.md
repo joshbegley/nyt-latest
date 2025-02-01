@@ -1,3 +1,7 @@
+**Before signing Carlos Estévez, Royals pursued Anthony Santander**\
+`Kansas City quickly pivoted after missing out on the free-agent outfielder earlier this week. `\
+https://nytimes.com/athletic/6104170/2025/01/31/royals-anthony-santander-blue-jays/
+
 **U.S. military planes deliver deportees to Honduras.**\
 `President Xiomara Castro previously warned that she would oust the American military from Honduras if President Trump pursued aggressive deportations.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/us-military-planes-deliver-deportees-to-honduras
