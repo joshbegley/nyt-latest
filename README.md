@@ -1,3 +1,7 @@
+**Man United senior performance analyst to leave for Besiktas role with Solskjaer**\
+`Tom Green, a senior performance analyst at Manchester United, is set to leave the club to take up a similar but more senior role at Besiktas under Ole Gunnar Solskjaer.`\
+https://nytimes.com/athletic/6105516/2025/02/01/manchester-united-tom-green-besiktas-solskjaer/
+
 **Tennessee stuns Florida without Zakai Zeigler; Walter Clayton Jr. hurt but returns**\
 `The Vols were down two starters — and had only seven scholarship players available — but manged to dominate Florida in Knoxville. `\
 https://nytimes.com/athletic/6105454/2025/02/01/tennessee-florida-zakai-zeigler-walter-clayton-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105142/2025/02/01/dejounte-murray-injury-achilles-
 **Dubas won't say rebuild, but Penguins' 'mission' is about the future**\
 `Development is emerging as a theme in another lost season for the Penguins. It's about the future, no matter what you or Dubas calls it.`\
 https://nytimes.com/athletic/6105310/2025/02/01/penguins-trade-rebuild/
-
-**Who Is Ken Martin, the New Leader of the D.N.C.?**\
-`Democrats elected a Midwesterner and behind-the-scenes operator to take charge of a party still reeling from defeat.`\
-https://nytimes.com/2025/02/01/us/politics/ken-martin-dnc.html
 
