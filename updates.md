@@ -1,3 +1,7 @@
+**Digital Drugs Have Us Hooked. Dr. Anna Lembke Sees a Way Out.**\
+`Dr. Anna Lembke Sees a Way Out.`\
+https://nytimes.com/2025/02/01/magazine/anna-lembke-interview.html
+
 **High Immigration Arrest Figures Under Trump Come With Few Details**\
 `Specifics of detainments have been scarce, leaving it unclear whether the criminals being targeted make up a significant share of those being captured.`\
 https://nytimes.com/interactive/2025/02/01/us/politics/ice-arrests-trump-immigration.html

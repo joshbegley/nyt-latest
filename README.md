@@ -1,3 +1,7 @@
+**Hollinger: Keep an eye on these 10 players in the second half of the season**\
+`These guys aren't on the trade market or in awards races, but they've stepped up their games enough to warrant watching down the stretch.`\
+https://nytimes.com/athletic/6102963/2025/02/01/amen-thompson-jamal-murray-nba-second-half/
+
 **Digital Drugs Have Us Hooked. Dr. Anna Lembke Sees a Way Out.**\
 `Dr. Anna Lembke Sees a Way Out.`\
 https://nytimes.com/2025/02/01/magazine/anna-lembke-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/style/more-than-just-a-beanie.html
 **Trump’s Halt on Climate Spending Freezes Jobs and Stalls Projects**\
 `The pause affects billions of dollars and is delaying home repairs, factory construction and other projects, many in states that voted Republican.`\
 https://nytimes.com/2025/02/01/climate/trump-ira-climate-spending-halt-jobs-construction.html
-
-**The Propaganda Behind Trump’s Immigration Crackdown**\
-`A far-reaching propaganda effort on immigration is being coordinated at the highest levels inside the White House. Michael D. Shear, a White House correspondent for The New York Times, explains what its goals are.`\
-https://nytimes.com/video/us/politics/100000009959961/00-vid-rv-immigration-propaganda.html
 
