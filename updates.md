@@ -1,3 +1,7 @@
+**Man United's Malacia in negotiations over Benfica loan**\
+`Manchester United are in negotiations with Benfica over a loan for Tyrell Malacia.`\
+https://nytimes.com/athletic/6071891/2025/02/01/tyrell-malacia-benfica-manchester-united-transfers/
+
 **Steve Kerr before Warriors' loss: Not in position to stand pat at NBA trade deadline**\
 `"It's pretty clear where I stand," Steph Curry said, "trying to make the necessary adjustments to try to win."`\
 https://nytimes.com/athletic/6104516/2025/02/01/steve-kerr-warriors-nba-trade-deadline/

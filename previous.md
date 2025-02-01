@@ -1,3 +1,7 @@
+**Man United's Malacia in negotiations over Benfica loan**\
+`Manchester United are in negotiations with Benfica over a loan for Tyrell Malacia.`\
+https://nytimes.com/athletic/6071891/2025/02/01/tyrell-malacia-benfica-manchester-united-transfers/
+
 **A Movie About a Murderous Sex Robot Explains Dating**\
 `Single women don’t want to be emotional support drones, and that’s how they see their role in marriage.`\
 https://nytimes.com/2025/02/01/opinion/companion-sex-robot-marriage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100767/2025/02/01/winnipeg-jets-trade-targets-defe
 **An Unconventional Plan for Fixing the Federal Budget**\
 `The Apollo C.E.O. Marc Rowan has championed a model that doesn’t fit within party lines.`\
 https://nytimes.com/2025/02/01/business/dealbook/an-unconventional-plan-for-fixing-the-federal-budget.html
-
-**2 Novels for People Who Really, Really Love Cats**\
-`Rachel Ingalls’s lion god; Haruki Murakami’s cat whisperer.`\
-https://nytimes.com/2025/02/01/books/review/read-like-wind-recommendations-cat-novels.html
 
