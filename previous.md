@@ -1,3 +1,7 @@
+**NHL trade grades: Stars land Mikael Granlund and Cody Ceci. Was the price too high?**\
+`Stars acquire Mikael Granlund and Cody Ceci from Sharks for a pair of draft picks. How did the GMs do?`\
+https://nytimes.com/athletic/6105264/2025/02/01/nhl-trade-grades-stars-sharks-granlund-ceci/
+
 **Canada has little ability to effectively strike back with its own tariffs.**\
 `By Ian Austen`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-has-little-ability-to-effectively-strike-back-with-its-own-tariffs
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
 **Bucks' blowout loss to Spurs ends frustrating trip, exposes frontcourt depth issues**\
 `Not having backup big Bobby Portis, who was out because of personal reasons, strained the Bucks' frontcourt on their four-game road trip.`\
 https://nytimes.com/athletic/6104696/2025/02/01/giannis-wembanyama-chris-paul-bucks-spurs/
-
-**Horst Köhler, Former German President and I.M.F. Leader, Dies at 81**\
-`He held the ceremonial post of German president after a finance-focused career. Shortly into his second term, he became the first German president in four decades to resign.`\
-https://nytimes.com/2025/02/01/world/europe/germany-horst-kohler-dead.html
 

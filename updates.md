@@ -1,3 +1,7 @@
+**NHL trade grades: Stars land Mikael Granlund and Cody Ceci. Was the price too high?**\
+`Stars acquire Mikael Granlund and Cody Ceci from Sharks for a pair of draft picks. How did the GMs do?`\
+https://nytimes.com/athletic/6105264/2025/02/01/nhl-trade-grades-stars-sharks-granlund-ceci/
+
 **Canada has little ability to effectively strike back with its own tariffs.**\
 `By Ian Austen`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-has-little-ability-to-effectively-strike-back-with-its-own-tariffs
