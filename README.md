@@ -10,12 +10,16 @@ https://nytimes.com/live/2025/02/01/us/dnc-chair-news/here-is-the-latest-on-the-
 `The 448 members of the Democratic National Committee are set to vote on a new chair. The winner will help lead a demoralized party split over its future and its response to President Trump.`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news
 
+**Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
+`On Saturday, The Banner reported three more massage therapists had accused Tucker of misconduct, raising the total accusers to nine women.`\
+https://nytimes.com/athletic/6101074/2025/02/01/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
+
 **Wings acquire DiJonai Carrington in trade with rebuilding Sun: Reports**\
 `Carrington, 27, was a restricted free agent and the Sun had the ability to match any offer sheet with another team`\
 https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnba-trade-rumors/
 
 **Medical Plane Crash in Philadelphia Kills 7**\
-`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center. One person was killed on the ground and multiple people were injured, officials said.`\
+`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center. On the ground, one person was killed and several others were injured, officials said.`\
 https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
 
 **Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/us/politics/suzanne-massie-dead.html
 **Don’t Fall for Trump’s D.E.I. Dodge**\
 `The president doesn’t care about merit.`\
 https://nytimes.com/2025/02/01/opinion/trump-dei-diversity-meritocracy.html
-
-**Overnight Oats for Not-Morning People**\
-`Alarm snoozers deserve a good breakfast, too.`\
-https://nytimes.com/2025/02/01/dining/overnight-oats-breakfast-recipe.html
 
