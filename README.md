@@ -1,3 +1,7 @@
+**Bears expected to hire Eric Bieniemy as RBs coach**\
+`Bienemy overlapped with Bears GM Ryan Poles while with the Chiefs and with president/CEO Kevin Warren during his time coaching in Minnesota.`\
+https://nytimes.com/athletic/6105763/2025/02/01/eric-bieniemy-nfl-bears-rb-coach/
+
 **USC upsets No. 7 Michigan State, keeps Tom Izzo one win behind Bob Knight**\
 `This is the Spartans’ first loss outside of Quad 1, but they also have just two wins over teams that would be safely in the field today.`\
 https://nytimes.com/athletic/6105856/2025/02/01/usc-michigan-state-tom-izzo-big-ten/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-t
 **Here’s What to Know About Trump’s Tariffs**\
 `Canada, Mexico and China account for more than a third of the products brought into the United States. Tariffs could lead to higher prices for consumers.`\
 https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
-
-**Israel and Hamas Exchange 3 Hostages and More Than 180 Prisoners**\
-`In highly staged ceremonies, Hamas freed three people held captive over the last 15 months. Keeping to its part of the cease-fire deal, Israel released 183 Palestinians held in jails.`\
-https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-hostages-gaza.html
 
