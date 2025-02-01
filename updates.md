@@ -1,3 +1,19 @@
+**Black Voters Helped Elect Eric Adams Mayor. Now They May Back Cuomo.**\
+`Mr. Adams and former Gov. Andrew M. Cuomo have both been popular with Black voters, setting up a potential showdown that could decide the Democratic mayoral primary in New York City.`\
+https://nytimes.com/2025/02/01/nyregion/adams-cuomo-black-voters.html
+
+**A Storied Newspaper Prepares to Print Its Own Obituary**\
+`The Star-Ledger, New Jersey’s longtime paper of record, will publish its final edition on Sunday and become an online-only news outlet.`\
+https://nytimes.com/2025/02/01/nyregion/new-jersey-star-ledger-prints-final-edition.html
+
+**How an Emergency Veterinarian Spends Her Sundays**\
+`Dr. Carly Fox doesn’t need an alarm for a day of pancakes with her children, cats falling out of windows and red-light therapy.`\
+https://nytimes.com/2025/02/01/nyregion/carly-fox-veterinarian.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/01/crosswords/spelling-bee-forum.html
+
 **Blue Jackets rally with 2 third-period goals before beating Utah in overtime**\
 `This is shaping up to be a magical season for the Blue Jackets and Zach Werenski.`\
 https://nytimes.com/athletic/6104537/2025/02/01/blue-jackets-beat-utah-in-overtime/
