@@ -1,3 +1,11 @@
+**Why Is Violence Flaring Up in Mineral-Rich Congo?**\
+`Rebels backed by Rwanda are seizing huge tracts of the Democratic Republic of Congo.`\
+https://nytimes.com/video/world/africa/100000009956762/east-congo-conflict-explained.html
+
+**Quote of the Day: A Farm’s Offer — 40,000 Pounds of Free Salmon**\
+`Quotation of the Day for Saturday, February 1, 2025.`\
+https://nytimes.com/2025/01/31/pageoneplus/quote-of-the-day-a-farms-offer-40000-pounds-of-free-salmon.html
+
 **Trump Officials Release Water That Experts Say Will Serve Little Use**\
 `Local officials and experts said the water the U.S. Army Corps of Engineers began sending downstream on Friday could have been helpful to farmers later this year. President Trump, in an apparent reference to the move, called it a “victory.”`\
 https://nytimes.com/2025/01/31/us/trump-water-california-central-valley.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-be
 **Venezuela Frees 6 Americans After Visit by Trump Envoy**\
 `Richard Grenell, the envoy for special missions, said he was flying home with the detainees after he met with President Nicolás Maduro.`\
 https://nytimes.com/2025/01/31/us/politics/us-prisoners-venezuela.html
-
-**Boy, 8, Is Fatally Shot in Newark, Officials Say**\
-`A man wounded by gunfire was found several blocks from where the child was killed around the same time, but officials declined to say whether the shootings were related.`\
-https://nytimes.com/2025/01/31/nyregion/shooting-boy-killed-newark-nj.html
-
-**Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
-`Critics said the president’s remarks after the crash caused damage to an already underrepresented segment of the work force.`\
-https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
 
