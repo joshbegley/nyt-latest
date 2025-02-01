@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson
 `\
 https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
 
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
 **Kansas State shocks Iowa State, ending Cyclones' 29-game home winning streak**\
 `Iowa State, who was without starting injured wing Milan Momcilovic for the sixth straight game, has now lost three of five and two straight`\
 https://nytimes.com/athletic/6105634/2025/02/01/kansas-state-iowa-state-home-winning-streak/
