@@ -1,4 +1,4 @@
-**Why Canucks struggled in their first game of the post-J.T. Miller era: 3 takeaways**\
+**Why Canucks struggled in first game of post-J.T. Miller era: 3 takeaways**\
 `It was obvious the Canucks — who traded Miller shortly before the puck dropped — were playing short-handed in their 5-3 loss to Dallas.`\
 https://nytimes.com/athletic/6104514/2025/01/31/canucks-jt-miller-trade-stars/
 
