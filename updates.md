@@ -1,3 +1,15 @@
+**How the D.C. Plane Crash Shattered Wichita’s Big Dreams of Skating and Flight**\
+`The city had tried for years to host the U.S. Figure Skating Championships, and to get a direct flight to the northeast.`\
+https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
+
+**Don’t Look Back**\
+`A political reckoning? Not at the Democratic National Committee.`\
+https://nytimes.com/2025/01/31/us/politics/dnc-chair-election.html
+
+**Learjet Crashes Near Philadelphia Mall**\
+`A Learjet 55 with two aboard crashed around 6:30 p.m. near the Roosevelt Mall after leaving the Northeast Philadelphia Airport, officials said. There was no word on casualties.`\
+https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
+
 **Reagan Airport Had a Number of Close Calls in Recent Years**\
 `Internal government reports and public databases highlight several instances in which planes narrowly escaped collisions with each other or helicopters.`\
 https://nytimes.com/2025/01/31/business/reagan-airport-close-calls.html
