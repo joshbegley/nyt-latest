@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-up
 `Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
 https://nytimes.com/2025/02/01/health/malaria-tb-hiv-trump-aid-pause-.html
 
-**Democrats Choose a Political Operator From Minnesota as Their Next Leader**\
+**Democrats choose a political operator from Minnesota as their next leader.**\
 `Ken Martin, a well-connected state party chair, will take over the Democratic National Committee as the party searches for ways to win back power.`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
 
