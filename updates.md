@@ -1,3 +1,19 @@
+**Newcastle's Kelly set for Juventus loan move**\
+`Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
+https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
+
+**Here’s What to Know About Trump’s Tariffs**\
+`More than a third of the goods and services imported to or bought from the United States are linked to Canada, Mexico and China. Tariffs could lead to higher prices for consumers.`\
+https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
+
+**Israel and Hamas Exchange 3 Hostages and More Than 180 Prisoners**\
+`In highly staged ceremonies, Hamas freed three people held captive over the last 15 months. Keeping to its part of the cease-fire deal, Israel released 183 Palestinians held in jails.`\
+https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-hostages-gaza.html
+
+**Two-for-One Special**\
+`Derrick Niederman’s 14th Sunday puzzle is marvelous, from A to Z.`\
+https://nytimes.com/2025/02/01/crosswords/daily-puzzle-2025-02-02.html
+
 **Rudiger to be assessed after injury in Espanyol defeat**\
 `Real Madrid defender Antonio Rudiger will undergo assessment after picking up an injury during the defeat to Espanyol on Saturday.`\
 https://nytimes.com/athletic/6105723/2025/02/01/antonio-rudiger-injury-real-madrid/
