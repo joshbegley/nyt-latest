@@ -1,3 +1,11 @@
+**Health Programs Shutter Around the World After Trump Pauses Foreign Aid**\
+`Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
+https://nytimes.com/2025/02/01/health/malaria-tb-hiv-trump-aid-pause-.html
+
+**Democrats Choose a Political Operator From Minnesota as Their Next Leader**\
+`Ken Martin, a well-connected state party chair, will take over the Democratic National Committee as the party searches for ways to win back power.`\
+https://nytimes.com/2025/02/01/us/politics/dnc-chair-pick.html
+
 **Here is the latest on the race.**\
 `By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
 https://nytimes.com/2025/02/01/us/politics/here-is-the-latest-on-the-race.html

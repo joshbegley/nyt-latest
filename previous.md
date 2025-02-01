@@ -1,3 +1,11 @@
+**Health Programs Shutter Around the World After Trump Pauses Foreign Aid**\
+`Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
+https://nytimes.com/2025/02/01/health/malaria-tb-hiv-trump-aid-pause-.html
+
+**Democrats Choose a Political Operator From Minnesota as Their Next Leader**\
+`Ken Martin, a well-connected state party chair, will take over the Democratic National Committee as the party searches for ways to win back power.`\
+https://nytimes.com/2025/02/01/us/politics/dnc-chair-pick.html
+
 **Bucks' blowout loss to Spurs ends frustrating trip, exposes frontcourt depth issues**\
 `Not having backup big Bobby Portis, who was out because of personal reasons, strained the Bucks' frontcourt on their four-game road trip.`\
 https://nytimes.com/athletic/6104696/2025/02/01/giannis-wembanyama-chris-paul-bucks-spurs/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-for
 **Here is the latest on the race.**\
 `By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
 https://nytimes.com/2025/02/01/us/politics/here-is-the-latest-on-the-race.html
-
-**Live Updates: Democrats Elect Ken Martin, a Party Insider, to Lead the D.N.C.**\
-`The Democratic National Committee chose Mr. Martin, the leader of the Minnesota Democrats, to help oversee a demoralized national party split over its future and its response to President Trump.`\
-https://nytimes.com/live/2025/02/01/us/dnc-chair-news
-
-**Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
-`On Saturday, The Banner reported three more massage therapists had accused Tucker of misconduct, raising the total accusers to nine women.`\
-https://nytimes.com/athletic/6101074/2025/02/01/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
 
