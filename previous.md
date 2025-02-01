@@ -1,3 +1,7 @@
+**F.D.A. Upgrades Recall of Some Chocolate Snacks to Highest Risk Level**\
+`The agency warned that the products, made by Cal Yee Farm, could have potentially serious or even deadly consequences because the packages were mislabeled. No illnesses have been reported.`\
+https://nytimes.com/2025/02/01/health/fda-recalls-chocolate-cal-yee.html
+
 **Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
 `Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/01/us/politics/elon-musk-doge-federal-payments-syste
 **Man United senior performance analyst to leave for Besiktas role with Solskjaer**\
 `Tom Green, a senior performance analyst at Manchester United, is set to leave the club to take up a similar but more senior role at Besiktas under Ole Gunnar Solskjaer.`\
 https://nytimes.com/athletic/6105516/2025/02/01/manchester-united-tom-green-besiktas-solskjaer/
-
-**Tennessee stuns Florida without Zakai Zeigler; Walter Clayton Jr. hurt but returns**\
-`The Vols were down two starters — and had only seven scholarship players available — but manged to dominate Florida in Knoxville. `\
-https://nytimes.com/athletic/6105454/2025/02/01/tennessee-florida-zakai-zeigler-walter-clayton-injury/
 
