@@ -1,3 +1,7 @@
+**Palace express interest Chilwell loan from Chelsea**\
+`Crystal Palace have expressed an interest to sign Ben Chilwell on loan from Chelsea for the rest of the season.`\
+https://nytimes.com/athletic/6104839/2025/02/01/chelsea-transfers-ben-chilwell-crystal-palace/
+
 **Man United's Malacia in negotiations over Benfica loan**\
 `Manchester United are in negotiations with Benfica over a loan for Tyrell Malacia.`\
 https://nytimes.com/athletic/6071891/2025/02/01/tyrell-malacia-benfica-manchester-united-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104516/2025/02/01/steve-kerr-warriors-nba-trade-de
 **Winnipeg Jets trade targets: Which defencemen could cement Stanley Cup contender status?**\
 `Well in advance of the deadline, it's time to explore all kinds of options to upgrade Winnipeg's defence corps.`\
 https://nytimes.com/athletic/6100767/2025/02/01/winnipeg-jets-trade-targets-defencemen/
-
-**An Unconventional Plan for Fixing the Federal Budget**\
-`The Apollo C.E.O. Marc Rowan has championed a model that doesn’t fit within party lines.`\
-https://nytimes.com/2025/02/01/business/dealbook/an-unconventional-plan-for-fixing-the-federal-budget.html
 
