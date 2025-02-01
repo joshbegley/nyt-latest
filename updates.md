@@ -1,3 +1,7 @@
+**Hamas tightly controlled the latest hostage handovers.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/hamas-tightly-controlled-the-latest-hostage-handovers
+
 **Villa close to agreeing loan for Marcus Rashford**\
 `Aston Villa are close to agreeing a deal to sign Marcus Rashford on loan from Manchester United.`\
 https://nytimes.com/athletic/6103384/2025/02/01/marcus-rashford-aston-villa-transfer/
