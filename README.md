@@ -1,3 +1,7 @@
+**Before signing Carlos Estévez, Royals pursued Anthony Santander**\
+`Kansas City quickly pivoted after missing out on the free-agent outfielder earlier this week. `\
+https://nytimes.com/athletic/6104170/2025/01/31/royals-anthony-santander-blue-jays/
+
 **U.S. military planes deliver deportees to Honduras.**\
 `President Xiomara Castro previously warned that she would oust the American military from Honduras if President Trump pursued aggressive deportations.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/us-military-planes-deliver-deportees-to-honduras
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
 **Reagan Airport Had a Number of Close Calls in Recent Years**\
 `Internal government reports and public databases highlight several instances in which planes narrowly escaped collisions with each other or helicopters.`\
 https://nytimes.com/2025/01/31/business/reagan-airport-close-calls.html
-
-**Former MVP Nneka Ogwumike re-signs with Seattle Storm**\
-`Ogwumike signed in Seattle as a free agent in 2024.`\
-https://nytimes.com/athletic/6104263/2025/01/31/nneka-ogwumike-seattle-storm-contract-wnba/
 
