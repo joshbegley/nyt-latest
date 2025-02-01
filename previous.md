@@ -1,3 +1,7 @@
+**No. 1 Penn State wrestling thumps No. 2 Iowa for fourth straight time**\
+`Penn State’s wrestling dynasty continues to romp, even against elite competition.`\
+https://nytimes.com/athletic/6104442/2025/01/31/penn-state-iowa-mens-wrestling-dual-results-analysis/
+
 **Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\
@@ -12,7 +16,7 @@ https://nytimes.com/2025/01/31/us/politics/us-prisoners-venezuela.html
 https://nytimes.com/2025/01/31/nyregion/shooting-boy-killed-newark-nj.html
 
 **Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
-`Critics said the president’s remarks after the crash cause damage to an already underrepresented segment of the work force.`\
+`Critics said the president’s remarks after the crash caused damage to an already underrepresented segment of the work force.`\
 https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
 
 **Acquiring J.T. Miller is Rangers GM Chris Drury's biggest move yet**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6104315/2025/01/31/satou-sabally-mercury-wings-feve
 **Before signing Carlos Estévez, Royals pursued Anthony Santander**\
 `Kansas City quickly pivoted after missing out on the free-agent outfielder earlier this week. `\
 https://nytimes.com/athletic/6104170/2025/01/31/royals-anthony-santander-blue-jays/
-
-**U.S. Military Planes Deliver Deportees to Honduras**\
-`President Xiomara Castro previously warned that she could oust the American military from Honduras if President Trump pursued aggressive deportations.`\
-https://nytimes.com/2025/01/31/us/politics/us-military-planes-deportees-honduras.html
 

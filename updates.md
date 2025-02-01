@@ -1,3 +1,16 @@
+**No. 1 Penn State wrestling thumps No. 2 Iowa for fourth straight time**\
+`Penn State’s wrestling dynasty continues to romp, even against elite competition.`\
+https://nytimes.com/athletic/6104442/2025/01/31/penn-state-iowa-mens-wrestling-dual-results-analysis/
+
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
+**Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
+`Critics said the president’s remarks after the crash caused damage to an already underrepresented segment of the work force.`\
+https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
+
 **Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\
