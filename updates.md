@@ -1,3 +1,11 @@
+**Suzanne Massie, ‘Reagan’s Window on the Soviet Union,’ Dies at 94**\
+`An author of books on Russia who spoke the language, she had no diplomatic experience but formed an unlikely bond with the president.`\
+https://nytimes.com/2025/02/01/us/politics/suzanne-massie-dead.html
+
+**Arab Nations Reject Trump’s Suggestion to ‘Clean Out’ Gaza**\
+`President Trump has suggested that Gazans should be evacuated from the devastated enclave and taken in by Jordan and Egypt.`\
+https://nytimes.com/2025/02/01/world/middleeast/arab-nations-reject-trump-evacuate-gaza.html
+
 **Don’t Fall for Trump’s D.E.I. Dodge**\
 `The president doesn’t care about merit.`\
 https://nytimes.com/2025/02/01/opinion/trump-dei-diversity-meritocracy.html

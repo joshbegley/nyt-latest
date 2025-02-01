@@ -1,3 +1,7 @@
+**Suzanne Massie, ‘Reagan’s Window on the Soviet Union,’ Dies at 94**\
+`An author of books on Russia who spoke the language, she had no diplomatic experience but formed an unlikely bond with the president.`\
+https://nytimes.com/2025/02/01/us/politics/suzanne-massie-dead.html
+
 **Don’t Fall for Trump’s D.E.I. Dodge**\
 `The president doesn’t care about merit.`\
 https://nytimes.com/2025/02/01/opinion/trump-dei-diversity-meritocracy.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/02/01/dining/overnight-oats-breakfast-recipe.html
 https://nytimes.com/athletic/6104976/2025/02/01/nottingham-forest-brighton-result-players-reaction/
 
 **Arab Nations Reject Trump’s Suggestion to ‘Clean Out’ Gaza**\
-`President Trump has said that Gazans should be evacuated from the devastated enclave en masse and taken in by Jordan and Egypt.`\
+`President Trump has suggested that Gazans should be evacuated from the devastated enclave and taken in by Jordan and Egypt.`\
 https://nytimes.com/2025/02/01/world/middleeast/arab-nations-reject-trump-evacuate-gaza.html
 
 **Szczesny 'number one' for Barcelona - Flick**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/released-pa
 **Wounded Gazans Begin to Leave for Egypt Through Reopened Rafah Crossing**\
 `The border point had been closed after Israel invaded the southern city of Rafah in May but is opening again as part of the cease-fire agreement between Israel and Hamas.`\
 https://nytimes.com/2025/02/01/world/middleeast/rafah-crossing-gaza-wounded-egypt.html
-
-**Marcus Rashford at Manchester United. What happened?**\
-`The England striker is one of United's highest earners but has been absent during a crucial period and is now set to leave on loan. Why?`\
-https://nytimes.com/athletic/6035672/2025/02/01/marcus-rashford-manchester-united-missing/
 
