@@ -1,3 +1,7 @@
+**Cunha set to agree new contract at Wolves**\
+`Matheus Cunha is set to agree a new four-and-a-half year contract at Wolverhampton Wanderers, ending speculation about his immediate future.`\
+https://nytimes.com/athletic/6038425/2025/02/01/wolves-matheus-cunha-contract-new/
+
 **Plane Crash That Killed at Least 7 Leaves Philadelphia Neighborhood Shaken**\
 `Residents of Northeast Philadelphia looked on in disbelief after the crash on Friday night that also injured at least 19 people on the ground.`\
 https://nytimes.com/2025/02/01/us/philadelphia-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105422/2025/02/01/aston-villa-transfers-iling-juni
 **NHL trade grades: Stars land Mikael Granlund and Cody Ceci. Was the price too high?**\
 `Stars acquire Mikael Granlund and Cody Ceci from Sharks for a pair of draft picks. How did the GMs do?`\
 https://nytimes.com/athletic/6105264/2025/02/01/nhl-trade-grades-stars-sharks-granlund-ceci/
-
-**Canada has little ability to effectively strike back with its own tariffs.**\
-`By Ian Austen`\
-https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-has-little-ability-to-effectively-strike-back-with-its-own-tariffs
 

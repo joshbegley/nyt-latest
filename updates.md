@@ -1,3 +1,7 @@
+**Cunha set to agree new contract at Wolves**\
+`Matheus Cunha is set to agree a new four-and-a-half year contract at Wolverhampton Wanderers, ending speculation about his immediate future.`\
+https://nytimes.com/athletic/6038425/2025/02/01/wolves-matheus-cunha-contract-new/
+
 **Plane Crash That Killed at Least 7 Leaves Philadelphia Neighborhood Shaken**\
 `Residents of Northeast Philadelphia looked on in disbelief after the crash on Friday night that also injured at least 19 people on the ground.`\
 https://nytimes.com/2025/02/01/us/philadelphia-plane-crash.html

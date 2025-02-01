@@ -1,3 +1,11 @@
+**Danso pulls out of Wolves move, Spurs to explore deal for Lens defender**\
+`Kevin Danso has pulled out of a loan move to Wolverhampton Wanderers at the last moment and Tottenham Hotspur are now exploring a deal to sign the centre-back from Lens.`\
+https://nytimes.com/athletic/6105554/2025/02/01/tottenham-kevin-danso-transfer-wolves/
+
+**Rivals for Canada’s top job agree on one thing: hitting back against Trump’s tariffs.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/rivals-for-canadas-top-job-agree-on-one-thing-hitting-back-against-trumps-tariffs
+
 **Cunha set to agree new contract at Wolves**\
 `Matheus Cunha is set to agree a new four-and-a-half year contract at Wolverhampton Wanderers, ending speculation about his immediate future.`\
 https://nytimes.com/athletic/6038425/2025/02/01/wolves-matheus-cunha-contract-new/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6105284/2025/02/01/clippers-jazz-trade-pj-tucker/
 **White House P.R. Campaign Aims to Show Trump Making Good on Immigration Promise**\
 `The government is releasing photos and videos to promote President Trump’s immigration agenda, including footage of troops at the border and close-up shots of shackled immigrants.`\
 https://nytimes.com/2025/02/01/us/politics/trump-immigration.html
-
-**Villa's Iling-Junior to join Middlesbrough after recall from Bologna loan**\
-`Samuel Iling-Junior is set to join Middlesbrough after being recalled from his season-long loan at Bologna.`\
-https://nytimes.com/athletic/6105422/2025/02/01/aston-villa-transfers-iling-junior-middlesbrough/
-
-**NHL trade grades: Stars land Mikael Granlund and Cody Ceci. Was the price too high?**\
-`Stars acquire Mikael Granlund and Cody Ceci from Sharks for a pair of draft picks. How did the GMs do?`\
-https://nytimes.com/athletic/6105264/2025/02/01/nhl-trade-grades-stars-sharks-granlund-ceci/
 
