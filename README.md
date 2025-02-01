@@ -1,3 +1,11 @@
+**Don’t Fall for Trump’s D.E.I. Dodge**\
+`The president doesn’t care about merit.`\
+https://nytimes.com/2025/02/01/opinion/trump-dei-diversity-meritocracy.html
+
+**Overnight Oats for Not-Morning People**\
+`Alarm snoozers deserve a good breakfast, too.`\
+https://nytimes.com/2025/02/01/dining/overnight-oats-breakfast-recipe.html
+
 **Nuno hails Forest reaction in 7-0 win as 'beyond expectations'**\
 `Nuno Espirito Santo says the response from his Nottingham Forest players was &#8220;beyond our expectations&#8221; as they bounced back from a 5-0 defeat at Bournemouth by securing their biggest top flight win in more than three decades.`\
 https://nytimes.com/athletic/6104976/2025/02/01/nottingham-forest-brighton-result-players-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/world/middleeast/rafah-crossing-gaza-wounded-egyp
 **Marcus Rashford at Manchester United. What happened?**\
 `The England striker is one of United's highest earners but has been absent during a crucial period and is now set to leave on loan. Why?`\
 https://nytimes.com/athletic/6035672/2025/02/01/marcus-rashford-manchester-united-missing/
-
-**‘Mythic Quest’ Is Only the Start of Her Real-Life Journey**\
-`Season 4 of the Apple series has Charlotte Nicdao’s character branching out in new directions. The actress is doing likewise, including as a director.`\
-https://nytimes.com/2025/02/01/arts/television/mythic-quest-charlotte-nicdao.html
-
-**Trump Administration Fires Consumer Bureau Chief**\
-`Rohit Chopra, who led the Consumer Financial Protection Bureau, was known for his aggressive enforcement and expansion of consumer protection laws.`\
-https://nytimes.com/2025/02/01/business/cfpb-rohit-chopra.html
 
