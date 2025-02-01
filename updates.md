@@ -1,3 +1,7 @@
+**Stars acquiring Mikael Granlund and Cody Ceci in trade with Sharks: Sources**\
+`The Stars needed reinforcements with Miro Heiskanen, Nils Lundkvist, Tyler Seguin and Mason Marchment out.`\
+https://nytimes.com/athletic/6105202/2025/02/01/stars-sharks-granlund-ceci-trade/
+
 **Medical Plane Crash in Philadelphia Kills 7**\
 `The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when it crashed near a shopping center, killing all on board. On the ground, one person was killed and several others were injured, officials said.`\
 https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html

@@ -1,3 +1,7 @@
+**Stars acquiring Mikael Granlund and Cody Ceci in trade with Sharks: Sources**\
+`The Stars needed reinforcements with Miro Heiskanen, Nils Lundkvist, Tyler Seguin and Mason Marchment out.`\
+https://nytimes.com/athletic/6105202/2025/02/01/stars-sharks-granlund-ceci-trade/
+
 **The Briefing: Bournemouth 0 Liverpool 2: Salah reaches 20 goals (again), Alexander-Arnold's injury and a midfield tweak**\
 `Salah struck twice to help Liverpool defeat one of the Premier League's most in-form sides. Our writers analyse the talking points`\
 https://nytimes.com/athletic/6096592/2025/02/01/liverpool-bournemouth-premier-league-salah-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.ht
 **Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
 `His departure leaves the defending national champion Buckeyes with two coaching vacancies after DC Jim Knowles left for Penn State.`\
 https://nytimes.com/athletic/6105018/2025/02/01/ohio-state-offensive-line-coach-arizona-cardinals/
-
-**What's next for the Canucks after trading J.T. Miller? 10 thoughts on a pair of blockbusters**\
-`The Canucks remade their roster on the fly Friday and charted a new path forward for the franchise.`\
-https://nytimes.com/athletic/6104609/2025/02/01/canucks-trade-jt-miller-pettersson/
 
