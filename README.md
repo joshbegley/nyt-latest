@@ -1,3 +1,8 @@
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
 **Arizona State's Bobby Hurley pulls team off court, says Arizona won with 'no class'**\
 `Hurley said he has a vote for all-conference honors and suggested that he will not be voting for Arizona's Caleb Love. `\
 https://nytimes.com/athletic/6105633/2025/02/01/arizona-state-bobby-hurley-arizona-caleb-love/
@@ -24,7 +29,7 @@ https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
 
 **Elon Musk’s team has gotten access to the Treasury Department’s payments system.**\
 `By Andrew Duehren, Maggie Haberman, Theodore Schleifer and Alan Rappeport`\
-https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/treasury-department-payments-system
+https://nytimes.com/2025/02/01/us/politics/elon-musk-doge-federal-payments-system.html
 
 **Man United senior performance analyst to leave for Besiktas role with Solskjaer**\
 `Tom Green, a senior performance analyst at Manchester United, is set to leave the club to take up a similar but more senior role at Besiktas under Ole Gunnar Solskjaer.`\
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6105516/2025/02/01/manchester-united-tom-green-besi
 **Tennessee stuns Florida without Zakai Zeigler; Walter Clayton Jr. hurt but returns**\
 `The Vols were down two starters — and had only seven scholarship players available — but manged to dominate Florida in Knoxville. `\
 https://nytimes.com/athletic/6105454/2025/02/01/tennessee-florida-zakai-zeigler-walter-clayton-injury/
-
-**Clippers trade Tucker to Jazz, avoid luxury tax line ahead of deadline**\
-`The deal allows the Clippers to save $6 million, get under the first apron of the luxury tax and have an alternative at backup center.`\
-https://nytimes.com/athletic/6105284/2025/02/01/clippers-jazz-trade-pj-tucker/
 
