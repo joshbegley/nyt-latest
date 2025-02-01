@@ -1,3 +1,15 @@
+**Tottenham beware: Why Brentford are so difficult to play against**\
+`Brentford spend more time in organised defensive blocks than any other Premier League team - Spurs will have their work cut out on Sunday`\
+https://nytimes.com/athletic/6102968/2025/02/01/tottenham-hotspur-brentford-analysis-block/
+
+**Kieran Morgan - released by Spurs, on fire at QPR: 'I put too much effort in to stop'**\
+`The teenage midfielder has shaken off last year's Tottenham disappointment to become one of the best young players in the Championship`\
+https://nytimes.com/athletic/6095277/2025/02/01/kieran-morgan-released-by-spurs-on-fire-at-qpr/
+
+**Marmoush's runs in behind can unlock City's ponderous attack - but will Guardiola embrace it?**\
+`The manager might need to learn to embrace what the Egyptian offers`\
+https://nytimes.com/athletic/6099378/2025/02/01/marmoushs-runs-in-behind-can-unlock-citys-ponderous-attack-but-will-guardiola-embrace-it/
+
 **The Arsenal-Man City rivalry: fear, loathing and a shifting of power?**\
 `If Arsenal are to prove themselves, it is still Manchester City — because it has always been City — that they must overcome`\
 https://nytimes.com/athletic/6102886/2025/02/01/arsenal-man-city-rivalry-premier-league/

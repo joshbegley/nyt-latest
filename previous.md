@@ -1,3 +1,15 @@
+**Tottenham beware: Why Brentford are so difficult to play against**\
+`Brentford spend more time in organised defensive blocks than any other Premier League team - Spurs will have their work cut out on Sunday`\
+https://nytimes.com/athletic/6102968/2025/02/01/tottenham-hotspur-brentford-analysis-block/
+
+**Kieran Morgan - released by Spurs, on fire at QPR: 'I put too much effort in to stop'**\
+`The teenage midfielder has shaken off last year's Tottenham disappointment to become one of the best young players in the Championship`\
+https://nytimes.com/athletic/6095277/2025/02/01/kieran-morgan-released-by-spurs-on-fire-at-qpr/
+
+**Marmoush's runs in behind can unlock City's ponderous attack - but will Guardiola embrace it?**\
+`The manager might need to learn to embrace what the Egyptian offers`\
+https://nytimes.com/athletic/6099378/2025/02/01/marmoushs-runs-in-behind-can-unlock-citys-ponderous-attack-but-will-guardiola-embrace-it/
+
 **The Arsenal-Man City rivalry: fear, loathing and a shifting of power?**\
 `If Arsenal are to prove themselves, it is still Manchester City — because it has always been City — that they must overcome`\
 https://nytimes.com/athletic/6102886/2025/02/01/arsenal-man-city-rivalry-premier-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6099795/2025/02/01/ucl-champions-league-uefa-jeopar
 **Can Forest and Chelsea credit a high squad turnover for improved fortunes?**\
 `Nottingham Forest and Chelsea have bucked expectations over the last few seasons, seeing success with significant player trading`\
 https://nytimes.com/athletic/6102590/2025/02/01/nottingham-forest-chelsea-squad/
-
-**Moo Deng, the Toddler Hippopotamus, Is Still a Star**\
-`The pygmy hippopotamus, now 6 months old, is Thailand’s biggest celebrity, and the crowds keep flocking. What explains her charm?`\
-https://nytimes.com/2025/02/01/world/asia/moo-deng-thailand-zoo.html
-
-**Want a Million Dollars? Get Busy Deciphering This Ancient Script.**\
-`A prize offered by an Indian state leader is intended to shed light on a Bronze Age civilization — and settle a cultural battle.`\
-https://nytimes.com/2025/02/01/world/asia/india-indus-script-prize.html
-
-**Bournemouth vs Liverpool odds, predictions: Reds look to go nine points clear of Arsenal**\
-`Liverpool take on Bournemouth at the Vitality Stadium. The Reds are looking to strengthen their chokehold atop the Premier League table.`\
-https://nytimes.com/athletic/6100638/2025/02/01/bournemouth-liverpool-odds-predictions/
 
