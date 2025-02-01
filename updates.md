@@ -1,3 +1,11 @@
+**The Los Angeles Wildfires Are Fully Contained**\
+`The Palisades and Eaton fires, two of the deadliest and most destructive wildfires in California history, reached 100 percent containment more than three weeks after they began.`\
+https://nytimes.com/2025/02/01/us/los-angeles-fire-contained.html
+
+**NHL trade grades: Canucks pay Penguins steep price for Marcus Pettersson, Drew O'Connor**\
+`It’s a lot for the Canucks to part with for two rentals, but their need on defense was that glaring.`\
+https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguins-marcus-pettersson/
+
 **NHL trade grades: Canucks pay Penguins steep price for Marcus Pettersson, Drew O'Connor**\
 `It’s a lot for the Canucks to part with for two rentals but their need on defense was that glaring.`\
 https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguins-marcus-pettersson/

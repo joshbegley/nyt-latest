@@ -1,5 +1,9 @@
+**The Los Angeles Wildfires Are Fully Contained**\
+`The Palisades and Eaton fires, two of the deadliest and most destructive wildfires in California history, reached 100 percent containment more than three weeks after they began.`\
+https://nytimes.com/2025/02/01/us/los-angeles-fire-contained.html
+
 **NHL trade grades: Canucks pay Penguins steep price for Marcus Pettersson, Drew O'Connor**\
-`It’s a lot for the Canucks to part with for two rentals but their need on defense was that glaring.`\
+`It’s a lot for the Canucks to part with for two rentals, but their need on defense was that glaring.`\
 https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguins-marcus-pettersson/
 
 **Criss-Crossing Routes in D.C. Airspace Leave Little Room for Error**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102886/2025/02/01/arsenal-man-city-rivalry-premier
 **'I live with the guilt of not doing more' - The Leicester City helicopter tragedy and the stories of those affected**\
 `There were the five victims and their families, but also witnesses whose lives have all been changed by the events of October 27, 2018`\
 https://nytimes.com/athletic/6096581/2025/02/01/leicester-helicopter-crash-inquest/
-
-**Sabres, Jiri Kulich deliver badly needed win on Rob Ray's special night in Buffalo**\
-`The former NHL enforcer was inducted into the Sabres Hall of Fame before Buffalo's 4-3 win over Nashville. `\
-https://nytimes.com/athletic/6104552/2025/02/01/sabres-jiri-kulich-rob-ray/
 
