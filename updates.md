@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **U.S. Military Planes Deliver Deportees to Honduras**\
 `President Xiomara Castro previously warned that she could oust the American military from Honduras if President Trump pursued aggressive deportations.`\
 https://nytimes.com/2025/01/31/us/politics/us-military-planes-deportees-honduras.html
