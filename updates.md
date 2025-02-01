@@ -1,3 +1,11 @@
+**U.S. military planes deliver deportees to Honduras.**\
+`President Xiomara Castro previously warned that she would oust the American military from Honduras if President Trump pursued aggressive deportations.`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/us-military-planes-deliver-deportees-to-honduras
+
+**Small Plane With 2 Aboard Crashes Near Philadelphia Mall**\
+`A Learjet 55 with two aboard crashed around 6:30 p.m. near the Roosevelt Mall after leaving Northeast Philadelphia Airport, officials said.`\
+https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
+
 **Canucks trade J.T. Miller to Rangers for Filip Chytil, Victor Mancini**\
 `The Rangers drafted Miller with the No. 15 pick in the 2011 NHL Draft.`\
 https://nytimes.com/athletic/6080999/2025/01/31/jt-miller-filip-chytil-canucks-rangers-trade/

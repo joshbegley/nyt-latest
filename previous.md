@@ -1,3 +1,7 @@
+**U.S. military planes deliver deportees to Honduras.**\
+`President Xiomara Castro previously warned that she would oust the American military from Honduras if President Trump pursued aggressive deportations.`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/us-military-planes-deliver-deportees-to-honduras
+
 **Canucks trade J.T. Miller to Rangers for Filip Chytil, Victor Mancini**\
 `The Rangers drafted Miller with the No. 15 pick in the 2011 NHL Draft.`\
 https://nytimes.com/athletic/6080999/2025/01/31/jt-miller-filip-chytil-canucks-rangers-trade/
@@ -22,8 +26,8 @@ https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
 `A political reckoning? Not at the Democratic National Committee.`\
 https://nytimes.com/2025/01/31/us/politics/dnc-chair-election.html
 
-**Learjet Crashes Near Philadelphia Mall**\
-`A Learjet 55 with two aboard crashed around 6:30 p.m. near the Roosevelt Mall after leaving the Northeast Philadelphia Airport, officials said. There was no word on casualties.`\
+**Small Plane With 2 Aboard Crashes Near Philadelphia Mall**\
+`A Learjet 55 with two aboard crashed around 6:30 p.m. near the Roosevelt Mall after leaving Northeast Philadelphia Airport, officials said.`\
 https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
 
 **Reagan Airport Had a Number of Close Calls in Recent Years**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/31/business/reagan-airport-close-calls.html
 **Former MVP Nneka Ogwumike re-signs with Seattle Storm**\
 `Ogwumike signed in Seattle as a free agent in 2024.`\
 https://nytimes.com/athletic/6104263/2025/01/31/nneka-ogwumike-seattle-storm-contract-wnba/
-
-**Phyllis Dalton, Oscar-Winning Costume Designer for Historical Epics, Dies at 99**\
-`A look back at some of her most celebrated works, including “Doctor Zhivago,” “The Princess Bride” and “Lawrence of Arabia.”`\
-https://nytimes.com/2025/01/31/movies/phyllis-dalton-dead.html
 
