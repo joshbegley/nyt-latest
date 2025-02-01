@@ -1,3 +1,7 @@
+**Dubas won't say rebuild, but Penguins' 'mission' is about the future**\
+`Development is emerging as a theme in another lost season for the Penguins. It's about the future, no matter what you or Dubas calls it.`\
+https://nytimes.com/athletic/6105310/2025/02/01/penguins-trade-rebuild/
+
 **Who Is Ken Martin, the New Leader of the D.N.C.?**\
 `Democrats elected a Midwesterner and behind-the-scenes operator to take charge of a party still reeling from defeat.`\
 https://nytimes.com/2025/02/01/us/politics/ken-martin-dnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105202/2025/02/01/stars-sharks-granlund-ceci-trade
 **The Briefing: Bournemouth 0 Liverpool 2: Salah reaches 20 goals (again), Alexander-Arnold's injury and a midfield tweak**\
 `Salah struck twice to help Liverpool defeat one of the Premier League's most in-form sides. Our writers analyse the talking points`\
 https://nytimes.com/athletic/6096592/2025/02/01/liverpool-bournemouth-premier-league-salah-goals/
-
-**The Briefing — Newcastle 1 Fulham 2: Too much focus on Arsenal?**\
-`Newcastle fell to a 2-1 loss against Fulham on Saturday afternoon`\
-https://nytimes.com/athletic/6096610/2025/02/01/newcastle-fulham-result-report-analysis-premier-league/
 
