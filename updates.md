@@ -1,3 +1,7 @@
+**Here is the latest on the race.**\
+`By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
+https://nytimes.com/2025/02/01/us/politics/here-is-the-latest-on-the-race.html
+
 **Bucks' blowout loss to Spurs ends frustrating trip, exposes frontcourt depth issues**\
 `Not having backup big Bobby Portis, who was out because of personal reasons, strained the Bucks' frontcourt on their four-game road trip.`\
 https://nytimes.com/athletic/6104696/2025/02/01/giannis-wembanyama-chris-paul-bucks-spurs/

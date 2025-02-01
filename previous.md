@@ -28,7 +28,7 @@ https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-for
 
 **Here is the latest on the race.**\
 `By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
-https://nytimes.com/live/2025/02/01/us/dnc-chair-news/here-is-the-latest-on-the-race
+https://nytimes.com/2025/02/01/us/politics/here-is-the-latest-on-the-race.html
 
 **Live Updates: Democrats Elect Ken Martin, a Party Insider, to Lead the D.N.C.**\
 `The Democratic National Committee chose Mr. Martin, the leader of the Minnesota Democrats, to help oversee a demoralized national party split over its future and its response to President Trump.`\
