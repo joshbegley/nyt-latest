@@ -1,3 +1,7 @@
+**Arizona State's Bobby Hurley pulls team off court, says Arizona won with 'no class'**\
+`Hurley says he has a vote for all-conference honors and suggested that he will not be voting for Arizona's Caleb Love. `\
+https://nytimes.com/athletic/6105633/2025/02/01/arizona-states-bobby-hurley-arizona-state/
+
 **Danso pulls out of Wolves move, Spurs to explore deal for Lens defender**\
 `Kevin Danso has pulled out of a loan move to Wolverhampton Wanderers at the last moment and Tottenham Hotspur are now exploring a deal to sign the centre-back from Lens.`\
 https://nytimes.com/athletic/6105554/2025/02/01/tottenham-kevin-danso-transfer-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105454/2025/02/01/tennessee-florida-zakai-zeigler-
 **Clippers trade Tucker to Jazz, avoid luxury tax line ahead of deadline**\
 `The deal allows the Clippers to save $6 million, get under the first apron of the luxury tax and have an alternative at backup center.`\
 https://nytimes.com/athletic/6105284/2025/02/01/clippers-jazz-trade-pj-tucker/
-
-**White House P.R. Campaign Aims to Show Trump Making Good on Immigration Promise**\
-`The government is releasing photos and videos to promote President Trump’s immigration agenda, including footage of troops at the border and close-up shots of shackled immigrants.`\
-https://nytimes.com/2025/02/01/us/politics/trump-immigration.html
 
