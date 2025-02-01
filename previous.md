@@ -1,3 +1,7 @@
+**C.D.C. scientists ordered to withdraw studies that use terms such as ‘L.G.B.T.’ or ‘pregnant people.’**\
+`By Apoorva Mandavilli`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/trump-gender-research
+
 **Jack Bech catches winning TD in Senior Bowl, honors late brother**\
 `Bech, wearing a No. 7 jersey for his late brother, was named the Senior Bowl MVP.`\
 https://nytimes.com/athletic/6105804/2025/02/01/tcu-jack-tiger-bech-senior-bowl-new-orleans/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/president-trump-canadi
 **End Appears Near for U.S. Aid Agency, Democratic Lawmakers Say**\
 `A sense of crisis among aid groups was growing as U.S.A.I.D.’s website went dark.`\
 https://nytimes.com/2025/02/01/us/us-aid-agency-trump.html
-
-**After trade with Flames, Flyers' best path might be bottoming out this season**\
-`GM Daniel Briere said the trade that sent Morgan Frost and Joel Farabee to Calgary shouldn't be viewed as a proverbial punt on 2024-25.`\
-https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-farabee-trade/
 

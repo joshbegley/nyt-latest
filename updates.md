@@ -1,3 +1,7 @@
+**C.D.C. scientists ordered to withdraw studies that use terms such as ‘L.G.B.T.’ or ‘pregnant people.’**\
+`By Apoorva Mandavilli`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/trump-gender-research
+
 **Jack Bech catches winning TD in Senior Bowl, honors late brother**\
 `Bech, wearing a No. 7 jersey for his late brother, was named the Senior Bowl MVP.`\
 https://nytimes.com/athletic/6105804/2025/02/01/tcu-jack-tiger-bech-senior-bowl-new-orleans/
