@@ -1,3 +1,7 @@
+**American-Israeli Hostage Is Released Under Truce Deal**\
+`Keith Siegel was abducted along with his wife in the October 2023 Hamas-led attack. His wife was freed in a previous cease-fire.`\
+https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-keith-siegel-hostage-release.html
+
 **Amy Klobuchar on How Democrats Can Combat America’s ‘Hot Mess of Division’**\
 `The Minnesota moderate has thoughts on how her party can move forward.`\
 https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-youn
 **How to Choose a Religion**\
 `A religious quest can still be a rational undertaking — not a leap into pure mystery.`\
 https://nytimes.com/2025/02/01/opinion/religion-faith-choose.html
-
-**Inside the J.T. Miller trade: After 3 years, how the Rangers finally got their guy**\
-`If you take the long view, all the way back to February of 2022, then J.T. Miller to the New York Rangers appears inevitable.`\
-https://nytimes.com/athletic/6104478/2025/02/01/rangers-canucks-jt-miller-trade-insider/
 

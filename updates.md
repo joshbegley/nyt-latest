@@ -1,3 +1,7 @@
+**American-Israeli Hostage Is Released Under Truce Deal**\
+`Keith Siegel was abducted along with his wife in the October 2023 Hamas-led attack. His wife was freed in a previous cease-fire.`\
+https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-keith-siegel-hostage-release.html
+
 **Exclusive: Hear from the family that found the Paul Skenes MLB Debut Patch card**\
 `After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
 https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
