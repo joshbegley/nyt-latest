@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-
 https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
 
 **Here’s What to Know About Trump’s Tariffs**\
-`More than a third of the goods and services imported to or bought from the United States are linked to Canada, Mexico and China. Tariffs could lead to higher prices for consumers.`\
+`Canada, Mexico and China account for more than a third of the products brought into the United States. Tariffs could lead to higher prices for consumers.`\
 https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
 
 **Israel and Hamas Exchange 3 Hostages and More Than 180 Prisoners**\
