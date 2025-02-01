@@ -1,3 +1,19 @@
+**Bored by Nikola Jokić? His teammates aren't. 'Hard to deny his greatness'**\
+`Jokić is having one of his best seasons, but he isn't considered MVP favorite. We're witnessing greatness. Should everyone recognize it?`\
+https://nytimes.com/athletic/6104973/2025/02/01/nikola-jokic-nuggets-teammates-nba/
+
+**Dejounte Murray's Achilles injury is devastating for him and the Pelicans**\
+`The guard's injury brings up several questions for the franchise ahead of both the trade deadline and a critical offseason. `\
+https://nytimes.com/athletic/6105142/2025/02/01/dejounte-murray-injury-achilles-pelicans-nba/
+
+**Alexander-Arnold to undergo injury scan after Liverpool win at Bournemouth**\
+`Trent Alexander-Arnold will undergo a scan to determine the extent of the damage sustained after he limped out of Liverpool’s 2-0 win at Bournemouth.`\
+https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-update-liverpool/
+
+**Health Programs Shutter Around the World After Trump Pauses Foreign Aid**\
+`Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
+https://nytimes.com/2025/02/01/health/trump-aid-malaria-tuberculosis-hiv.html
+
 **Dubas won't say rebuild, but Penguins' 'mission' is about the future**\
 `Development is emerging as a theme in another lost season for the Penguins. It's about the future, no matter what you or Dubas calls it.`\
 https://nytimes.com/athletic/6105310/2025/02/01/penguins-trade-rebuild/
