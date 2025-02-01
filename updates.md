@@ -1,3 +1,11 @@
+**Danso pulls out of Wolves move, Spurs to explore deal for Lens defender**\
+`Kevin Danso has pulled out of a loan move to Wolverhampton Wanderers at the last moment and Tottenham Hotspur are now exploring a deal to sign the centre-back from Lens.`\
+https://nytimes.com/athletic/6105554/2025/02/01/tottenham-kevin-danso-transfer-wolves/
+
+**Rivals for Canada’s top job agree on one thing: hitting back against Trump’s tariffs.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/rivals-for-canadas-top-job-agree-on-one-thing-hitting-back-against-trumps-tariffs
+
 **Cunha set to agree new contract at Wolves**\
 `Matheus Cunha is set to agree a new four-and-a-half year contract at Wolverhampton Wanderers, ending speculation about his immediate future.`\
 https://nytimes.com/athletic/6038425/2025/02/01/wolves-matheus-cunha-contract-new/
