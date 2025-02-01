@@ -1,3 +1,7 @@
+**Democrats choose a political operator from Minnesota as their next leader.**\
+`Ken Martin, a well-connected state party chair, took over the Democratic National Committee as the party searches for ways to win back power.`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
+
 **Bored by Nikola Jokić? His teammates aren't. 'Hard to deny his greatness'**\
 `Jokić is having one of his best seasons, but he isn't considered MVP favorite. We're witnessing greatness. Should everyone recognize it?`\
 https://nytimes.com/athletic/6104973/2025/02/01/nikola-jokic-nuggets-teammates-nba/

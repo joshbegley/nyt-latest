@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-up
 https://nytimes.com/2025/02/01/health/trump-aid-malaria-tuberculosis-hiv.html
 
 **Democrats choose a political operator from Minnesota as their next leader.**\
-`Ken Martin, a well-connected state party chair, will take over the Democratic National Committee as the party searches for ways to win back power.`\
+`Ken Martin, a well-connected state party chair, took over the Democratic National Committee as the party searches for ways to win back power.`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
 
 **Bucks' blowout loss to Spurs ends frustrating trip, exposes frontcourt depth issues**\
