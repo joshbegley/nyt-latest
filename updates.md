@@ -1,3 +1,16 @@
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
+**Trump envoy leaves Venezuela with 6 Americans detained by the government.**\
+`By Genevieve Glatsky`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-envoy-leaves-venezuela-with-6-americans-detained-by-the-government
+
+**Boy, 8, Is Fatally Shot in Newark, Officials Say**\
+`A man wounded by gunfire was found several blocks from where the child was killed around the same time, but officials declined to say whether the shootings were related.`\
+https://nytimes.com/2025/01/31/nyregion/shooting-boy-killed-newark-nj.html
+
 **Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
 `Critics said the president’s remarks after the crash cause damage to an already underrepresented segment of the work force.`\
 https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
