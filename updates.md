@@ -1,3 +1,7 @@
+**Plane Crash That Killed at Least 7 Leaves Philadelphia Neighborhood Shaken**\
+`Residents of Northeast Philadelphia looked on in disbelief after the crash on Friday night that also injured at least 19 people on the ground.`\
+https://nytimes.com/2025/02/01/us/philadelphia-plane-crash.html
+
 **Trump Orders Airstrikes Against Islamic State in Somalia**\
 `Defense Secretary Pete Hegseth said that “multiple operatives” had been killed in remote mountains in the country’s north.`\
 https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
