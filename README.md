@@ -1,3 +1,7 @@
+**Dejounte Murray sustains season-ending Achilles tear in loss vs. Celtics**\
+`The loss of Murray only adds one more devastating injury to a Pelicans season that’s been flooded with them.`\
+https://nytimes.com/athletic/6104488/2025/01/31/dejounte-murray-pelicans-achilles-injury-season-ending/
+
 **Pseudoscientific Bodily Emanations**\
 `Kate Chin Park and Rafael Musa’s puzzle rewards an eye for detail.`\
 https://nytimes.com/2025/01/31/crosswords/daily-puzzle-2025-02-01.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6104332/2025/01/31/rangers-canucks-jt-miller-trade-
 **NHL trade grades: Canucks finally send J.T. Miller to Rangers in big swing for both teams**\
 `Miller is the standout piece in what's a high-risk, high-reward trade for the Canucks and the Rangers.`\
 https://nytimes.com/athletic/6104270/2025/01/31/nhl-trade-grades-canucks-rangers-jt-miller/
-
-**More Than a Dozen Prosecutors at Washington U.S. Attorney’s Office Are Dismissed**\
-`Those informed of their dismissals had been hired to investigate the Jan. 6 riot as the office struggled to manage what became the largest prosecution in the department’s history.`\
-https://nytimes.com/2025/01/31/us/politics/prosecutors-us-attorneys-office-trump-firings.html
 
