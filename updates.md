@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **Why Canucks struggled in first game of post-J.T. Miller era: 3 takeaways**\
 `It was obvious the Canucks — who traded Miller shortly before the puck dropped — were playing short-handed in their 5-3 loss to Dallas.`\
 https://nytimes.com/athletic/6104514/2025/01/31/canucks-jt-miller-trade-stars/
