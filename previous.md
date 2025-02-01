@@ -26,7 +26,7 @@ https://nytimes.com/2025/02/01/opinion/afghanistan-refugees-us.html
 `Readers object to President Trump’s harsh line against immigrants, regardless of their status.`\
 https://nytimes.com/2025/02/01/opinion/migrants-immigration-trump.html
 
-**Hear from the 11-year-old who hit the Skenes Debut Patch and his family**\
+**Hear from the family that found the Paul Skenes Debut Patch**\
 `After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
 https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
 

@@ -1,3 +1,7 @@
+**Hear from the family that found the Paul Skenes Debut Patch**\
+`After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
+https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
+
 **Amy Klobuchar on How Democrats Can Combat America’s ‘Hot Mess of Division’**\
 `The Minnesota moderate has thoughts on how her party can move forward.`\
 https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.html
