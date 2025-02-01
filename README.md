@@ -1,7 +1,3 @@
-**N.Y. Hospital Stops Treating 2 Children After Trump’s Trans Care Order**\
-`The hospital canceled their appointments the same week an executive order from President Trump threatened to punish doctors and hospitals for offering gender-affirming care.`\
-https://nytimes.com/2025/02/01/nyregion/nyu-langone-hospital-trans-care-youth.html
-
 **Stars acquire Mikael Granlund, Cody Ceci: How the trade helps Dallas, and what's next for Sharks**\
 `The Stars needed reinforcements with Miro Heiskanen, Nils Lundkvist, Tyler Seguin and Mason Marchment out.`\
 https://nytimes.com/athletic/6105202/2025/02/01/stars-sharks-granlund-ceci-trade/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnb
 **Medical Plane Crash in Philadelphia Kills 7**\
 `The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when it crashed near a shopping center, killing all on board. On the ground, one person was killed and several others were injured, officials said.`\
 https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
+
+**Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
+`His departure leaves the defending national champion Buckeyes with two coaching vacancies after DC Jim Knowles left for Penn State.`\
+https://nytimes.com/athletic/6105018/2025/02/01/ohio-state-offensive-line-coach-arizona-cardinals/
 
