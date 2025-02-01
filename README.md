@@ -1,3 +1,7 @@
+**Why Trump Is Imposing Tariffs on Mexico**\
+`Mr. Trump is trying use tariffs to force Mexico to better guard its border with the United States, but Mexican officials say the tariffs will only hurt both countries.`\
+https://nytimes.com/2025/02/01/world/americas/trump-mexico-tariffs.html
+
 **Kansas State shocks Iowa State, ending Cyclones' 29-game home winning streak**\
 `Iowa State, who was without starting injured wing Milan Momcilovic for the sixth straight game, has now lost three of five and two straight`\
 https://nytimes.com/athletic/6105634/2025/02/01/kansas-state-iowa-state-home-winning-streak/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6038425/2025/02/01/wolves-matheus-cunha-contract-ne
 **Plane Crash That Killed at Least 7 Leaves Philadelphia Neighborhood Shaken**\
 `Residents of Northeast Philadelphia looked on in disbelief after the crash on Friday night that also injured at least 19 people on the ground.`\
 https://nytimes.com/2025/02/01/us/philadelphia-plane-crash.html
-
-**Trump Orders Airstrikes Against Islamic State in Somalia**\
-`Defense Secretary Pete Hegseth said that “multiple operatives” had been killed in remote mountains in the country’s north.`\
-https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
 
