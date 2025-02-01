@@ -1,3 +1,7 @@
+**Canada has little ability to effectively strike back with its own tariffs.**\
+`By Ian Austen`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-has-little-ability-to-effectively-strike-back-with-its-own-tariffs
+
 **Democrats choose a political operator from Minnesota as their next leader.**\
 `Ken Martin, a well-connected state party chair, took over the Democratic National Committee as the party searches for ways to win back power.`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
