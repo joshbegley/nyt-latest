@@ -1,3 +1,7 @@
+**Trump Orders Airstrikes Against Islamic State in Somalia**\
+`Defense Secretary Pete Hegseth said that “multiple operatives” had been killed in remote mountains in the country’s north.`\
+https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
+
 **Elon Musk’s team has gotten access to the Treasury Department’s payments system.**\
 `By Andrew Duehren, Maggie Haberman, Theodore Schleifer and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/treasury-department-payments-system
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-has-little-abil
 **Bored by Nikola Jokić? His teammates aren't. 'Hard to deny his greatness'**\
 `Jokić is having one of his best seasons, but he isn't considered MVP favorite. We're witnessing greatness. Should everyone recognize it?`\
 https://nytimes.com/athletic/6104973/2025/02/01/nikola-jokic-nuggets-teammates-nba/
-
-**Dejounte Murray's Achilles injury is devastating for him and the Pelicans**\
-`The guard's injury brings up several questions for the franchise ahead of both the trade deadline and a critical offseason. `\
-https://nytimes.com/athletic/6105142/2025/02/01/dejounte-murray-injury-achilles-pelicans-nba/
 

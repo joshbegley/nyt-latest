@@ -1,3 +1,7 @@
+**Trump Orders Airstrikes Against Islamic State in Somalia**\
+`Defense Secretary Pete Hegseth said that “multiple operatives” had been killed in remote mountains in the country’s north.`\
+https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
+
 **Elon Musk’s team has gotten access to the Treasury Department’s payments system.**\
 `By Andrew Duehren, Maggie Haberman, Theodore Schleifer and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/treasury-department-payments-system
