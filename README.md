@@ -1,6 +1,6 @@
 **Arizona State's Bobby Hurley pulls team off court, says Arizona won with 'no class'**\
-`Hurley says he has a vote for all-conference honors and suggested that he will not be voting for Arizona's Caleb Love. `\
-https://nytimes.com/athletic/6105633/2025/02/01/arizona-states-bobby-hurley-arizona-state/
+`Hurley said he has a vote for all-conference honors and suggested that he will not be voting for Arizona's Caleb Love. `\
+https://nytimes.com/athletic/6105633/2025/02/01/arizona-state-bobby-hurley-arizona-caleb-love/
 
 **Danso pulls out of Wolves move, Spurs to explore deal for Lens defender**\
 `Kevin Danso has pulled out of a loan move to Wolverhampton Wanderers at the last moment and Tottenham Hotspur are now exploring a deal to sign the centre-back from Lens.`\
