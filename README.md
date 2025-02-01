@@ -1,3 +1,7 @@
+**Hamas tightly controlled the latest hostage handovers.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/hamas-tightly-controlled-the-latest-hostage-handovers
+
 **Villa close to agreeing loan for Marcus Rashford**\
 `Aston Villa are close to agreeing a deal to sign Marcus Rashford on loan from Manchester United.`\
 https://nytimes.com/athletic/6103384/2025/02/01/marcus-rashford-aston-villa-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/opinion/afghanistan-refugees-us.html
 **The Targeting of Migrants**\
 `Readers object to President Trump’s harsh line against immigrants, regardless of their status.`\
 https://nytimes.com/2025/02/01/opinion/migrants-immigration-trump.html
-
-**Exclusive: Hear from the family that found the Paul Skenes MLB Debut Patch card**\
-`After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
-https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
 
