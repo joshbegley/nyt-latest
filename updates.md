@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **Trump envoy leaves Venezuela with 6 Americans detained by the government.**\
 `By Genevieve Glatsky`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-envoy-leaves-venezuela-with-6-americans-detained-by-the-government
