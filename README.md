@@ -1,3 +1,7 @@
+**Rubio Heads to Panama, With Canal in His Sights**\
+`On his first trip as secretary of state, Marco Rubio will also visit four other Latin American countries and press immigration issues.`\
+https://nytimes.com/2025/02/01/us/politics/rubio-panama-canal-trump.html
+
 **F.D.A. Upgrades Recall of Some Chocolate Snacks to Highest Risk Level**\
 `The agency warned that the products, made by Cal Yee Farm, could have potentially serious or even deadly consequences because the packages were mislabeled. No illnesses have been reported.`\
 https://nytimes.com/2025/02/01/health/fda-recalls-chocolate-cal-yee.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
 **Elon Musk’s Team Now Has Full Access to Treasury’s Payments System**\
 `Treasury Secretary Scott Bessent gave Mr. Musk’s representatives at the so-called Department of Government Efficiency a powerful tool to monitor and potentially limit government spending.`\
 https://nytimes.com/2025/02/01/us/politics/elon-musk-doge-federal-payments-system.html
-
-**Man United senior performance analyst to leave for Besiktas role with Solskjaer**\
-`Tom Green, a senior performance analyst at Manchester United, is set to leave the club to take up a similar but more senior role at Besiktas under Ole Gunnar Solskjaer.`\
-https://nytimes.com/athletic/6105516/2025/02/01/manchester-united-tom-green-besiktas-solskjaer/
 

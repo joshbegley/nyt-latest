@@ -1,3 +1,8 @@
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
 **F.D.A. Upgrades Recall of Some Chocolate Snacks to Highest Risk Level**\
 `The agency warned that the products, made by Cal Yee Farm, could have potentially serious or even deadly consequences because the packages were mislabeled. No illnesses have been reported.`\
 https://nytimes.com/2025/02/01/health/fda-recalls-chocolate-cal-yee.html
