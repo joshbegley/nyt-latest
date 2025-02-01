@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6103384/2025/02/01/marcus-rashford-aston-villa-tran
 `Keith Siegel was abducted along with his wife in the October 2023 Hamas-led attack. His wife was freed in a previous cease-fire.`\
 https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-keith-siegel-hostage-release.html
 
-**Amy Klobuchar on How Democrats Can Combat America’s ‘Hot Mess of Division’**\
+**The Truth About Democrats, According to Amy Klobuchar**\
 `The Minnesota moderate has thoughts on how her party can move forward.`\
 https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.html
 
