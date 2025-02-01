@@ -1,3 +1,20 @@
+**Pseudoscientific Bodily Emanations**\
+`Kate Chin Park and Rafael Musa’s puzzle rewards an eye for detail.`\
+https://nytimes.com/2025/01/31/crosswords/daily-puzzle-2025-02-01.html
+
+**Drance: Why the Canucks' J.T. Miller trade looks good now — and could get even better**\
+`While Friday's blockbuster might not be a conventional win, it's an unqualified one for Vancouver.`\
+https://nytimes.com/athletic/6104318/2025/01/31/canucks-jt-miller-trade-drance/
+
+**No. 1 Penn State wrestling thumps No. 2 Iowa for fourth straight time**\
+`Penn State’s wrestling dynasty continues to romp, even against elite competition.`\
+https://nytimes.com/athletic/6104442/2025/01/31/penn-state-iowa-mens-wrestling-dual-results-analysis/
+
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\

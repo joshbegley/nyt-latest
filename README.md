@@ -1,15 +1,3 @@
-**Pseudoscientific Bodily Emanations**\
-`Kate Chin Park and Rafael Musa’s puzzle rewards an eye for detail.`\
-https://nytimes.com/2025/01/31/crosswords/daily-puzzle-2025-02-01.html
-
-**Drance: Why the Canucks' J.T. Miller trade looks good now — and could get even better**\
-`While Friday's blockbuster might not be a conventional win, it's an unqualified one for Vancouver.`\
-https://nytimes.com/athletic/6104318/2025/01/31/canucks-jt-miller-trade-drance/
-
-**No. 1 Penn State wrestling thumps No. 2 Iowa for fourth straight time**\
-`Penn State’s wrestling dynasty continues to romp, even against elite competition.`\
-https://nytimes.com/athletic/6104442/2025/01/31/penn-state-iowa-mens-wrestling-dual-results-analysis/
-
 **Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\
@@ -38,4 +26,16 @@ https://nytimes.com/athletic/6104270/2025/01/31/nhl-trade-grades-canucks-rangers
 **More Than a Dozen Prosecutors at Washington U.S. Attorney’s Office Are Dismissed**\
 `Those informed of their dismissals had been hired to investigate the Jan. 6 riot as the office struggled to manage what became the largest prosecution in the department’s history.`\
 https://nytimes.com/2025/01/31/us/politics/prosecutors-us-attorneys-office-trump-firings.html
+
+**Mercury acquiring Satou Sabally from Wings in 3-team deal**\
+`Sabally spent her entire five-season career with the Wings after the franchise selected her with the No. 2 pick in the 2020 WNBA Draft.`\
+https://nytimes.com/athletic/6104315/2025/01/31/satou-sabally-mercury-wings-fever-trade-wnba/
+
+**Before signing Carlos Estévez, Royals pursued Anthony Santander**\
+`Kansas City quickly pivoted after missing out on the free-agent outfielder earlier this week. `\
+https://nytimes.com/athletic/6104170/2025/01/31/royals-anthony-santander-blue-jays/
+
+**U.S. Military Planes Deliver Deportees to Honduras**\
+`President Xiomara Castro previously warned that she could oust the American military from Honduras if President Trump pursued aggressive deportations.`\
+https://nytimes.com/2025/01/31/us/politics/us-military-planes-deportees-honduras.html
 
