@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **Trump Officials Release Water That Experts Say Will Serve Little Use**\
 `Local officials and experts said the water the U.S. Army Corps of Engineers began sending downstream on Friday could have been helpful to farmers later this year. President Trump, in an apparent reference to the move, called it a “victory.”`\
 https://nytimes.com/2025/01/31/us/trump-water-california-central-valley.html
