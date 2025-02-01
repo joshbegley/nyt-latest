@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6091788/2025/02/01/marcus-pettersson-penguins-team-nhl-trade-deadline/
 
 **'We're building moving forward': Jim Rutherford explains why Canucks traded for Marcus Pettersson**\
-`Rutherford isn't sure if his Canucks are good enough to be contenders, but he's sure they needed Pettersson from the Penguins.`\
+`Rutherford isn't sure whether his Canucks are good enough to be contenders, but he's sure they needed Pettersson from the Penguins.`\
 https://nytimes.com/athletic/6104567/2025/02/01/canucks-penguins-marcus-pettersson-trade/
 
 **Tottenham beware: Why Brentford are so difficult to play against**\
