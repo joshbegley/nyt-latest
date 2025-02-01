@@ -1,3 +1,11 @@
+**Jaune Quick-to-See Smith, Artist With an Indigenous Focus, Dies at 85**\
+`She began with modestly scaled abstract drawings and paintings but became best known for large works featuring collage and items evoking Native stereotypes.`\
+https://nytimes.com/2025/02/01/arts/jaune-quick-to-see-smith-dead.html
+
+**Cade Cunningham shows 'great understanding of the moment' in win**\
+`Where on the floor is the All-Star guard best at scoring? "Wherever the space is at that I can get my shot off," Cunningham said.`\
+https://nytimes.com/athletic/6104616/2025/02/01/pistons-cade-cunningham-moment-mavericks/
+
 **Everton working on deal to sign former Chelsea defender Mjelde**\
 `Everton are working on a deal to sign former Chelsea defender Maren Mjelde on a free transfer following the season-ending knee injury sustained by club captain Megan Finnigan.`\
 https://nytimes.com/athletic/6104778/2025/02/01/everton-transfers-maren-mjelde/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6103384/2025/02/01/marcus-rashford-aston-villa-tran
 **American-Israeli Hostage Is Released Under Truce Deal**\
 `Keith Siegel was abducted along with his wife in the October 2023 Hamas-led attack. His wife was freed in a previous cease-fire.`\
 https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-keith-siegel-hostage-release.html
-
-**The Truth About Democrats, According to Amy Klobuchar**\
-`The Minnesota moderate has thoughts on how her party can move forward.`\
-https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.html
-
-**If Kennedy Is Blind to Science, Why Entrust Him With Our Health?**\
-`When we face some risk of a bird flu pandemic, do we want to entrust our health to a man who has fought lifesaving vaccines?`\
-https://nytimes.com/2025/02/01/opinion/rfk-kennedy-vaccines.html
 
