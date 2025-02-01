@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6105310/2025/02/01/penguins-trade-rebuild/
 `Democrats elected a Midwesterner and behind-the-scenes operator to take charge of a party still reeling from defeat.`\
 https://nytimes.com/2025/02/01/us/politics/ken-martin-dnc.html
 
-**Alexander-Arnold to undergo muscle injury scan after Liverpool win at Bournemouth**\
+**Alexander-Arnold to undergo injury scan after Liverpool win at Bournemouth**\
 `Trent Alexander-Arnold will undergo a scan to determine the extent of the damage sustained after he limped out of Liverpool’s 2-0 win at Bournemouth.`\
 https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-update-liverpool/
 
