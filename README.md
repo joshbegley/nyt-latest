@@ -1,40 +1,40 @@
-**Melissa Rauch May Cry at Your Curtain Call**\
-`The “Night Court” star loves community theater and the “distilled joy” of watching people who perform just for fun.`\
-https://nytimes.com/2025/02/01/arts/television/melissa-rauch-night-court.html
+**High Immigration Arrest Figures Under Trump Come With Few Details**\
+`Specifics of detainments have been scarce, leaving it unclear whether the criminals being targeted make up a significant share of those being captured.`\
+https://nytimes.com/interactive/2025/02/01/us/politics/ice-arrests-trump-immigration.html
 
-**The Noblewoman Marooned on an Island for Loving the Wrong Man**\
-`Allegra Goodman’s novel “Isola” tells the story of a 16th-century Frenchwoman’s extraordinary fight for survival.`\
-https://nytimes.com/2025/02/01/books/review/allegra-goodman-isola.html
+**Life After a Rebel Takeover**\
+`For those living in Goma, which has been captured by Rwanda-backed rebels, there is little water, little food and much uncertainty.`\
+https://nytimes.com/2025/02/01/world/africa/life-after-a-rebel-takeover.html
 
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Max, Apple TV+ and More in February**\
-`The third seasons of “Yellowjackets” and “The White Lotus” arrive, along with “Clean Slate” and “Win or Lose.”`\
-https://nytimes.com/2025/02/01/arts/television/february-streaming-movies-shows.html
+**A Boy, His Parents and a Sudden Void in Fairfax**\
+`Kaiyan Mao and Yu Zhou “were always there” as their son pursued his figure skating dreams. On Wednesday, the family flew together from Wichita to Washington.`\
+https://nytimes.com/2025/02/01/us/dc-plane-crash-skater-family.html
 
-**Ethics Pledges by Trump Cabinet Draw Questions and Skepticism**\
-`Publicly released agreements show the vast wealth of President Trump’s cabinet picks and the uncharacteristically large list of potential conflicts of interest with which they enter office.`\
-https://nytimes.com/2025/02/01/us/politics/ethics-trump-zinke-bondi-lutnick-rfk.html
+**Restored Anti-Fascism Mural by Philip Guston Unveiled in Mexico**\
+`In 1934, two young artists drove from Los Angeles in a beat-up car to Mexico, to create a powerful artwork about repression. It was concealed — and then forgotten.`\
+https://nytimes.com/2025/02/01/arts/design/philip-guston-mural-mexico.html
 
-**How to Watch the 2025 Grammys**\
-`A guide to everything you need to know for the 67th annual awards on Sunday night.`\
-https://nytimes.com/2025/02/01/arts/music/how-to-watch-the-2025-grammys.html
+**Amid Trump’s Anti-Diversity Effort, Black History Month Takes on New Meaning**\
+`Feb. 1 marks the first day of Black History Month, and suddenly the study of the Black experience may feel like an act of defiance.`\
+https://nytimes.com/2025/02/01/us/trump-black-history-month.html
 
-**Eerie Light Haunts a Southern Town. It May Come From Under the Earth.**\
-`A seismologist thinks natural phenomena could explain the Summerville Light and other mysteries around a South Carolina locale.`\
-https://nytimes.com/2025/02/01/science/earthquake-lights-summerville-ghost.html
+**Democrats Are Choosing Their Next Leader. Here’s What to Watch.**\
+`Party insiders are gathering to elect the next chair of the Democratic National Committee, who will help steer the party forward after its crushing 2024 defeats.`\
+https://nytimes.com/2025/02/01/us/politics/dnc-election-what-to-watch.html
 
-**When Nigerian Schoolgirls Are Abducted, a Father Unravels**\
-`In Julie Iromuanya’s novel “A Season of Light,” a Nigerian American family in Florida experiences aftershocks from their father’s trauma during the Biafran War.`\
-https://nytimes.com/2025/02/01/books/review/a-season-of-light-julie-iromuanya.html
+**More Than Just a Beanie**\
+`Worn by celebrities like Frank Ocean and Timothée Chalamet, the Arc’teryx toque isn’t only being used to keep heads warm.`\
+https://nytimes.com/2025/02/01/style/more-than-just-a-beanie.html
 
-**She Was Chosen to Help Rebuild Notre-Dame. Then Fire Hit Her Adopted City, Too.**\
-`Claire Tabouret, an artist in Los Angeles, was chosen to create new stained glass windows for the Paris cathedral. She never expected fires to shatter her sense of safety in California.`\
-https://nytimes.com/2025/02/01/arts/design/notre-dame-stained-glass.html
+**Trump’s Halt on Climate Spending Freezes Jobs and Stalls Projects**\
+`The pause affects billions of dollars and is delaying home repairs, factory construction and other projects, many in states that voted Republican.`\
+https://nytimes.com/2025/02/01/climate/trump-ira-climate-spending-halt-jobs-construction.html
 
-**If Patrick Bateman Were a 19th-Century English Governess**\
-`Virginia Feito’s relentlessly gory novel “Victorian Psycho” announces its narrator’s grisly intentions from the start.`\
-https://nytimes.com/2025/02/01/books/review/victorian-psycho-virginia-feito.html
+**The Propaganda Behind Trump’s Immigration Crackdown**\
+`A far-reaching propaganda effort on immigration is being coordinated at the highest levels inside the White House. Michael D. Shear, a White House correspondent for The New York Times, explains what its goals are.`\
+https://nytimes.com/video/us/politics/100000009959961/00-vid-rv-immigration-propaganda.html
 
-**Dynamic Black Marching Bands Are Super Bowl Stalwarts**\
-`H.B.C.U. bands have been part of the festivities since the first halftime show. This year, Southern University’s “Human Jukebox” will perform before the national anthem.`\
-https://nytimes.com/2025/02/01/arts/music/super-bowl-hbcu-marching-band.html
+**Karen Bass Was Elected for Her Experience. Right Now, L.A. Wants More.**\
+`Ms. Bass, a longtime state and federal lawmaker, was seen as a pragmatic leader before the fires. But many Los Angeles residents are looking for something bolder at the moment.`\
+https://nytimes.com/2025/02/01/us/los-angeles-mayor-karen-bass.html
 
