@@ -108,6 +108,11 @@ https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **Pseudoscientific Bodily Emanations**\
 `Kate Chin Park and Rafael Musa’s puzzle rewards an eye for detail.`\
 https://nytimes.com/2025/01/31/crosswords/daily-puzzle-2025-02-01.html
