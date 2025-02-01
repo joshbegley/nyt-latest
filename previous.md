@@ -1,3 +1,11 @@
+**A Movie About a Murderous Sex Robot Explains Dating**\
+`Single women don’t want to be emotional support drones, and that’s how they see their role in marriage.`\
+https://nytimes.com/2025/02/01/opinion/companion-sex-robot-marriage.html
+
+**Overlooked No More: Annie Easley, Who Helped Take Spaceflight to New Heights**\
+`She broke barriers at NASA and contributed to its earliest space missions as a rocket scientist, mathematician and computer programmer.`\
+https://nytimes.com/2025/02/01/obituaries/annie-easley-overlooked.html
+
 **Canada, Mexico and China Brace for Trump’s Tariffs**\
 `White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
 https://nytimes.com/2025/02/01/us/politics/canada-mexico-china-trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/business/dealbook/an-unconventional-plan-for-fixi
 **2 Novels for People Who Really, Really Love Cats**\
 `Rachel Ingalls’s lion god; Haruki Murakami’s cat whisperer.`\
 https://nytimes.com/2025/02/01/books/review/read-like-wind-recommendations-cat-novels.html
-
-**Hamas tightly controlled the latest hostage handovers.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/hamas-tightly-controlled-the-latest-hostage-handovers
-
-**Villa close to agreeing loan for Marcus Rashford**\
-`Aston Villa are close to agreeing a deal to sign Marcus Rashford on loan from Manchester United.`\
-https://nytimes.com/athletic/6103384/2025/02/01/marcus-rashford-aston-villa-transfer/
 
