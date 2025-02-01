@@ -1,3 +1,11 @@
+**What to know about the latest hostage and prisoner releases.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/what-to-know-about-the-latest-hostage-and-prisoner-releases
+
+**Live Updates: Hamas Expected to Release 3 More Hostages in Exchange With Israel**\
+`In return, Israel is set to release about 90 Palestinian prisoners, according to a Hamas-linked prisoners’ information center. The previous handover descended into chaos.`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages
+
 **The Los Angeles Wildfires Are Fully Contained**\
 `The Palisades and Eaton fires, two of the deadliest and most destructive wildfires in California history, reached 100 percent containment more than three weeks after they began.`\
 https://nytimes.com/2025/02/01/us/los-angeles-fire-contained.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6095277/2025/02/01/kieran-morgan-released-by-spurs-
 **Marmoush's runs in behind can unlock City's ponderous attack - but will Guardiola embrace it?**\
 `The manager might need to learn to embrace what the Egyptian offers`\
 https://nytimes.com/athletic/6099378/2025/02/01/marmoushs-runs-in-behind-can-unlock-citys-ponderous-attack-but-will-guardiola-embrace-it/
-
-**The Arsenal-Man City rivalry: fear, loathing and a shifting of power?**\
-`If Arsenal are to prove themselves, it is still Manchester City — because it has always been City — that they must overcome`\
-https://nytimes.com/athletic/6102886/2025/02/01/arsenal-man-city-rivalry-premier-league/
-
-**'I live with the guilt of not doing more' - The Leicester City helicopter tragedy and the stories of those affected**\
-`There were the five victims and their families, but also witnesses whose lives have all been changed by the events of October 27, 2018`\
-https://nytimes.com/athletic/6096581/2025/02/01/leicester-helicopter-crash-inquest/
 
