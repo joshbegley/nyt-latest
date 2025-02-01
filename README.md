@@ -1,3 +1,7 @@
+**Digital Drugs Have Us Hooked. Dr. Anna Lembke Sees a Way Out.**\
+`Dr. Anna Lembke Sees a Way Out.`\
+https://nytimes.com/2025/02/01/magazine/anna-lembke-interview.html
+
 **High Immigration Arrest Figures Under Trump Come With Few Details**\
 `Specifics of detainments have been scarce, leaving it unclear whether the criminals being targeted make up a significant share of those being captured.`\
 https://nytimes.com/interactive/2025/02/01/us/politics/ice-arrests-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/climate/trump-ira-climate-spending-halt-jobs-cons
 **The Propaganda Behind Trump’s Immigration Crackdown**\
 `A far-reaching propaganda effort on immigration is being coordinated at the highest levels inside the White House. Michael D. Shear, a White House correspondent for The New York Times, explains what its goals are.`\
 https://nytimes.com/video/us/politics/100000009959961/00-vid-rv-immigration-propaganda.html
-
-**Karen Bass Was Elected for Her Experience. Right Now, L.A. Wants More.**\
-`Ms. Bass, a longtime state and federal lawmaker, was seen as a pragmatic leader before the fires. But many Los Angeles residents are looking for something bolder at the moment.`\
-https://nytimes.com/2025/02/01/us/los-angeles-mayor-karen-bass.html
 
