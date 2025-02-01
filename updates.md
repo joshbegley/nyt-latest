@@ -1,3 +1,15 @@
+**To Trump, Tariffs Are Not a Means but an End**\
+`Many presidents use tariffs to force negotiations. But for President Trump, they are the point, a source of revenue as he pursues a Gilded Age vision.`\
+https://nytimes.com/2025/02/01/us/politics/trump-tariffs-goal.html
+
+**President Trump has spared Canadian oil from the steepest tariffs.**\
+`By Rebecca F. Elliott`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/president-trump-canadian-oil-tariffs
+
+**After trade with Flames, Flyers' best path might be bottoming out this season**\
+`GM Daniel Briere said the trade that sent Morgan Frost and Joel Farabee to Calgary shouldn't be viewed as a proverbial punt on 2024-25.`\
+https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-farabee-trade/
+
 **End Appears Near for U.S. Aid Agency, Democratic Lawmakers Say**\
 `A sense of crisis among aid groups was growing as U.S.A.I.D.’s website went dark.`\
 https://nytimes.com/2025/02/01/us/us-aid-agency-trump.html
