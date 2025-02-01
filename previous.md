@@ -1,3 +1,19 @@
+**Nuno hails Forest reaction in 7-0 win as 'beyond expectations'**\
+`Nuno Espirito Santo says the response from his Nottingham Forest players was &#8220;beyond our expectations&#8221; as they bounced back from a 5-0 defeat at Bournemouth by securing their biggest top flight win in more than three decades.`\
+https://nytimes.com/athletic/6104976/2025/02/01/nottingham-forest-brighton-result-players-reaction/
+
+**Arab Nations Reject Trump’s Suggestion to ‘Clean Out’ Gaza**\
+`President Trump has said that Gazans should be evacuated from the devastated enclave en masse and taken in by Jordan and Egypt.`\
+https://nytimes.com/2025/02/01/world/middleeast/arab-nations-reject-trump-evacuate-gaza.html
+
+**Szczesny 'number one' for Barcelona - Flick**\
+`Barcelona head coach Hansi Flick has confirmed that Wojciech Szczesny is his No 1 goalkeeper.`\
+https://nytimes.com/athletic/6104920/2025/02/01/wojciech-szczesny-barcelona-goalkeeper/
+
+**Former Georgia 5-star OL emerges at Senior Bowl**\
+`Clay Webb, who left football amid playing time and a lawsuit, hopes to deliver at the Senior Bowl. `\
+https://nytimes.com/athletic/6104243/2025/02/01/clay-webb-jacksonville-state-senior-bowl/
+
 **Hurzeler apologises to Brighton supporters after 7-0 thrashing by Forest**\
 `Head coach Fabian Hurzeler has apologised to supporters for Brighton &amp; Hove Albion&#8217;s heaviest league defeat for 67 years at Nottingham Forest.`\
 https://nytimes.com/athletic/6104918/2025/02/01/brighton-forest-result-goals-fabian-hurzeler/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/01/arts/television/mythic-quest-charlotte-nicdao.htm
 **Trump Administration Fires Consumer Bureau Chief**\
 `Rohit Chopra, who led the Consumer Financial Protection Bureau, was known for his aggressive enforcement and expansion of consumer protection laws.`\
 https://nytimes.com/2025/02/01/business/cfpb-rohit-chopra.html
-
-**Palace express interest Chilwell loan from Chelsea**\
-`Crystal Palace have expressed an interest to sign Ben Chilwell on loan from Chelsea for the rest of the season.`\
-https://nytimes.com/athletic/6104839/2025/02/01/chelsea-transfers-ben-chilwell-crystal-palace/
-
-**Man United's Malacia in negotiations over Benfica loan**\
-`Manchester United are in negotiations with Benfica over a loan for Tyrell Malacia.`\
-https://nytimes.com/athletic/6071891/2025/02/01/tyrell-malacia-benfica-manchester-united-transfers/
-
-**A Movie About a Murderous Sex Robot Explains Dating**\
-`Single women don’t want to be emotional support drones, and that’s how they see their role in marriage.`\
-https://nytimes.com/2025/02/01/opinion/companion-sex-robot-marriage.html
-
-**Overlooked No More: Annie Easley, Who Helped Take Spaceflight to New Heights**\
-`She broke barriers at NASA and contributed to its earliest space missions as a rocket scientist, mathematician and computer programmer.`\
-https://nytimes.com/2025/02/01/obituaries/annie-easley-overlooked.html
 
