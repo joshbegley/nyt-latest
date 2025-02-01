@@ -1,8 +1,8 @@
-**Disabled workers express fear and dismay after Trump’s claims about the F.A.A.**\
-`On Thursday`\
-https://nytimes.com/2025/01/31/us/disabled-workers-express-fear-and-dismay-after-trumps-claims-about-the-faa.html
+**Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
+`Critics said the president’s remarks after the crash cause damage to an already underrepresented segment of the work force.`\
+https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
 
-**Acquiring J.T. Miller is Rangers GM Chris Drury’s biggest move yet**\
+**Acquiring J.T. Miller is Rangers GM Chris Drury's biggest move yet**\
 `Drury took his most dramatic step yet in making this Rangers roster his own by acquiring Miller in Friday's blockbuster trade.`\
 https://nytimes.com/athletic/6104332/2025/01/31/rangers-canucks-jt-miller-trade-drury/
 
