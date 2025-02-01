@@ -1,3 +1,11 @@
+**Trump envoy leaves Venezuela with 6 Americans detained by the government.**\
+`By Genevieve Glatsky`\
+https://nytimes.com/live/2025/01/30/us/president-trump-news/trump-envoy-leaves-venezuela-with-6-americans-detained-by-the-government
+
+**Boy, 8, Is Fatally Shot in Newark, Officials Say**\
+`A man wounded by gunfire was found several blocks from where the child was killed around the same time, but officials declined to say whether the shootings were related.`\
+https://nytimes.com/2025/01/31/nyregion/shooting-boy-killed-newark-nj.html
+
 **Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
 `Critics said the president’s remarks after the crash cause damage to an already underrepresented segment of the work force.`\
 https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/31/us/politics/us-military-planes-deportees-honduras
 **Canucks trade J.T. Miller to Rangers for Filip Chytil, Victor Mancini**\
 `The Rangers drafted Miller with the No. 15 pick in the 2011 NHL Draft.`\
 https://nytimes.com/athletic/6080999/2025/01/31/jt-miller-filip-chytil-canucks-rangers-trade/
-
-**Trump Moves to Invalidate Recent Labor Agreements With Federal Workers**\
-`The order is aimed at “last-minute, lame-duck” agreements signed by the Biden administration, a White House memo says.`\
-https://nytimes.com/2025/01/31/us/politics/trump-federal-labor-contracts.html
-
-**Two D.C. lawyers were among the dead, including one going home to celebrate her birthday.**\
-`By Jack Healy`\
-https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/two-dc-lawyers-were-among-the-dead-including-one-going-home-to-celebrate-her-birthday
 
