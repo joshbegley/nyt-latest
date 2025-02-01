@@ -1,3 +1,11 @@
+**Cowboys, new HC Schottenheimer tap Cardinals OL coach Adams as OC**\
+`The 41-year-old Adams joins Dallas with hopes of reviving the club's disappointing rushing offense.`\
+https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-klayton-adams/
+
+**How the D.C. Plane Crash Shattered Wichita’s Big Dreams of Skating and Flight**\
+`The city had tried for years to host the U.S. Figure Skating Championships, and to get a direct flight to the northeast.`\
+https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
+
 **Nonprofits Dread Attempts to Scrutinize Diversity Initiatives**\
 `Multiple groups said that a government email address created for reports of attempts to thwart the Trump administration’s crackdown was used to sign up for their newsletters.`\
 https://nytimes.com/live/2025/01/30/us/president-trump-news/nonprofits-dread-attempts-to-scrutinize-diversity-initiatives
