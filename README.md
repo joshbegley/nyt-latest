@@ -1,5 +1,5 @@
 **Trump Officials Release Water That Experts Say Will Serve Little Use**\
-`Local officials and experts said the water the U.S. Army Corps of Engineers began sending downstream on Friday could have been helpful later this year. President Trump, in an apparent reference to the move, called it a “victory.”`\
+`Local officials and experts said the water the U.S. Army Corps of Engineers began sending downstream on Friday could have been helpful to farmers later this year. President Trump, in an apparent reference to the move, called it a “victory.”`\
 https://nytimes.com/2025/01/31/us/trump-water-california-central-valley.html
 
 **Why Canucks struggled in first game of post-J.T. Miller era: 3 takeaways**\
