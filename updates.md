@@ -1,3 +1,11 @@
+**Released Palestinian prisoners are greeted with tears and joy.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/released-palestinian-prisoners-are-greeted-with-tears-and-joy
+
+**Marcus Rashford at Manchester United. What happened?**\
+`The England striker is one of United's highest earners but has been absent during a crucial period and is now set to leave on loan. Why?`\
+https://nytimes.com/athletic/6035672/2025/02/01/marcus-rashford-manchester-united-missing/
+
 **Wounded Gazans Begin to Leave for Egypt Through Reopened Rafah Crossing**\
 `The border point had been closed after Israel invaded the southern city of Rafah in May but is opening again as part of the cease-fire agreement between Israel and Hamas.`\
 https://nytimes.com/2025/02/01/world/middleeast/rafah-crossing-gaza-wounded-egypt.html
