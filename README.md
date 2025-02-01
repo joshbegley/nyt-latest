@@ -1,4 +1,4 @@
-**USC upsets No. 7 Michigan State, keeps Tom Izzo one win behind behind Bob Knight**\
+**USC upsets No. 7 Michigan State, keeps Tom Izzo one win behind Bob Knight**\
 `This is the Spartans’ first loss outside of Quad 1, but they also have just two wins over teams that would be safely in the field today.`\
 https://nytimes.com/athletic/6105856/2025/02/01/usc-michigan-state-tom-izzo-big-ten/
 
