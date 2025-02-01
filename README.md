@@ -27,8 +27,8 @@ https://nytimes.com/2025/02/01/us/philadelphia-plane-crash.html
 `Defense Secretary Pete Hegseth said that “multiple operatives” had been killed in remote mountains in the country’s north.`\
 https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
 
-**Elon Musk’s team has gotten access to the Treasury Department’s payments system.**\
-`By Andrew Duehren, Maggie Haberman, Theodore Schleifer and Alan Rappeport`\
+**Elon Musk’s Team Now Has Full Access to Treasury’s Payments System**\
+`Treasury Secretary Scott Bessent gave Mr. Musk’s representatives at the so-called Department of Government Efficiency a powerful tool to monitor and potentially limit government spending.`\
 https://nytimes.com/2025/02/01/us/politics/elon-musk-doge-federal-payments-system.html
 
 **Man United senior performance analyst to leave for Besiktas role with Solskjaer**\
