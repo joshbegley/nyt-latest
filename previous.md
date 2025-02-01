@@ -1,3 +1,11 @@
+**Rudiger to be assessed after injury in Espanyol defeat**\
+`Real Madrid defender Antonio Rudiger will undergo assessment after picking up an injury during the defeat to Espanyol on Saturday.`\
+https://nytimes.com/athletic/6105723/2025/02/01/antonio-rudiger-injury-real-madrid/
+
+**Storms Could Bring Up to 15 Inches of Rain to Parts of Northern California**\
+`Atmospheric river conditions could bring multiple feet of snow to the northern Sierra Nevada. Other areas face a risk of flooding as the ground becomes increasingly saturated.`\
+https://nytimes.com/2025/02/01/weather/california-rain-flooding.html
+
 **Trump Administration to Remove 4 Major News Outlets From Pentagon Office Space**\
 `The New York Times, NBC News, NPR and Politico will be replaced by outlets including the right-wing site Breitbart News as part of a “new annual media rotation,” a spokesman said.`\
 https://nytimes.com/2025/02/01/business/media/pentagon-press-corps.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6105634/2025/02/01/kansas-state-iowa-state-home-win
 **Rubio Heads to Panama, With Canal in His Sights**\
 `On his first trip as secretary of state, Marco Rubio will also visit four other Latin American countries and press immigration issues.`\
 https://nytimes.com/2025/02/01/us/politics/rubio-panama-canal-trump.html
-
-**F.D.A. Upgrades Recall of Some Chocolate Snacks to Highest Risk Level**\
-`The agency warned that the products, made by Cal Yee Farm, could have potentially serious or even deadly consequences because the packages were mislabeled. No illnesses have been reported.`\
-https://nytimes.com/2025/02/01/health/fda-recalls-chocolate-cal-yee.html
-
-**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
-`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
-`\
-https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
 

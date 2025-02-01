@@ -1,3 +1,11 @@
+**Rudiger to be assessed after injury in Espanyol defeat**\
+`Real Madrid defender Antonio Rudiger will undergo assessment after picking up an injury during the defeat to Espanyol on Saturday.`\
+https://nytimes.com/athletic/6105723/2025/02/01/antonio-rudiger-injury-real-madrid/
+
+**Storms Could Bring Up to 15 Inches of Rain to Parts of Northern California**\
+`Atmospheric river conditions could bring multiple feet of snow to the northern Sierra Nevada. Other areas face a risk of flooding as the ground becomes increasingly saturated.`\
+https://nytimes.com/2025/02/01/weather/california-rain-flooding.html
+
 **Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
 `Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
 `\
