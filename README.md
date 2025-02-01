@@ -10,7 +10,7 @@ https://nytimes.com/2025/02/01/world/europe/germany-horst-kohler-dead.html
 `The hospital canceled their appointments the same week an executive order from President Trump threatened to punish doctors and hospitals for offering gender-affirming care.`\
 https://nytimes.com/2025/02/01/nyregion/nyu-langone-hospital-trans-care-youth.html
 
-**Stars acquire Mikael Granlund, Cody Ceci: How the trade helps Dallas, and what's next for Sharks**\
+**Stars acquire Mikael Granlund, Cody Ceci in trade with Sharks**\
 `The Stars needed reinforcements with Miro Heiskanen, Nils Lundkvist, Tyler Seguin and Mason Marchment out.`\
 https://nytimes.com/athletic/6105202/2025/02/01/stars-sharks-granlund-ceci-trade/
 
