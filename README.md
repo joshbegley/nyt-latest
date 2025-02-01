@@ -1,3 +1,7 @@
+**Villa's Iling-Junior to join Middlesbrough after recall from Bologna loan**\
+`Samuel Iling-Junior is set to join Middlesbrough after being recalled from his season-long loan at Bologna.`\
+https://nytimes.com/athletic/6105422/2025/02/01/aston-villa-transfers-iling-junior-middlesbrough/
+
 **NHL trade grades: Stars land Mikael Granlund and Cody Ceci. Was the price too high?**\
 `Stars acquire Mikael Granlund and Cody Ceci from Sharks for a pair of draft picks. How did the GMs do?`\
 https://nytimes.com/athletic/6105264/2025/02/01/nhl-trade-grades-stars-sharks-granlund-ceci/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/health/trump-aid-malaria-tuberculosis-hiv.html
 **Democrats choose a political operator from Minnesota as their next leader.**\
 `Ken Martin, a well-connected state party chair, took over the Democratic National Committee as the party searches for ways to win back power.`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
-
-**Bucks' blowout loss to Spurs ends frustrating trip, exposes frontcourt depth issues**\
-`Not having backup big Bobby Portis, who was out because of personal reasons, strained the Bucks' frontcourt on their four-game road trip.`\
-https://nytimes.com/athletic/6104696/2025/02/01/giannis-wembanyama-chris-paul-bucks-spurs/
 
