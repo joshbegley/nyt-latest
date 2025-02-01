@@ -1,3 +1,7 @@
+**A Closer Look at 3 Hostages Released Saturday**\
+`Hamas released the three men as part of a staggered hostage-for-prisoner exchange under a 42-day cease-fire deal that went into effect last month.`\
+https://nytimes.com/2025/02/01/world/middleeast/a-closer-look-at-3-hostages-released-saturday.html
+
 **Black Voters Helped Elect Eric Adams Mayor. Now They May Back Cuomo.**\
 `Mr. Adams and former Gov. Andrew M. Cuomo have both been popular with Black voters, setting up a potential showdown that could decide the Democratic mayoral primary in New York City.`\
 https://nytimes.com/2025/02/01/nyregion/adams-cuomo-black-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguin
 **Criss-Crossing Routes in D.C. Airspace Leave Little Room for Error**\
 `Planes assigned to land at Reagan’s Runway 33 must fly just above a route that is busy with helicopters.`\
 https://nytimes.com/interactive/2025/02/01/us/dca-air-traffic-plane-crash.html
-
-**Penguins trade Marcus Pettersson to Canucks**\
-`Pettersson was an attractive candidate ahead of the trade deadline as a pending unrestricted free agent.`\
-https://nytimes.com/athletic/6091788/2025/02/01/marcus-pettersson-penguins-team-nhl-trade-deadline/
 
