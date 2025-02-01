@@ -1,3 +1,19 @@
+**Newcastle's Kelly set for Juventus loan move**\
+`Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
+https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
+
+**Here’s What to Know About Trump’s Tariffs**\
+`More than a third of the goods and services imported to or bought from the United States are linked to Canada, Mexico and China. Tariffs could lead to higher prices for consumers.`\
+https://nytimes.com/2025/02/01/business/trump-tariffs-canada-mexico-china.html
+
+**Israel and Hamas Exchange 3 Hostages and More Than 180 Prisoners**\
+`In highly staged ceremonies, Hamas freed three people held captive over the last 15 months. Keeping to its part of the cease-fire deal, Israel released 183 Palestinians held in jails.`\
+https://nytimes.com/2025/02/01/world/middleeast/israel-hamas-hostages-gaza.html
+
+**Two-for-One Special**\
+`Derrick Niederman’s 14th Sunday puzzle is marvelous, from A to Z.`\
+https://nytimes.com/2025/02/01/crosswords/daily-puzzle-2025-02-02.html
+
 **Rudiger to be assessed after injury in Espanyol defeat**\
 `Real Madrid defender Antonio Rudiger will undergo assessment after picking up an injury during the defeat to Espanyol on Saturday.`\
 https://nytimes.com/athletic/6105723/2025/02/01/antonio-rudiger-injury-real-madrid/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6105684/2025/02/01/nebraska-matt-rhule-football-spr
 **Marc-Andre Fleury reflects on magical Montreal night and post-career plans: 'We’ll see'**\
 `Teammate Filip Gustavsson is far from the only one trying to convince Fleury not to retire after this season, which is still his plan.`\
 https://nytimes.com/athletic/6105532/2025/02/01/wild-canadiens-marc-andre-fleury-retirement/
-
-**Villa agree to sign Asensio on loan from PSG**\
-`Aston Villa have agreed a deal to sign Marco Asensio on loan from Paris Saint-Germain.`\
-https://nytimes.com/athletic/6105163/2025/02/01/aston-villa-marco-asensio-psg-loan-transfer/
-
-**Why Trump Is Imposing Tariffs on Mexico**\
-`Mr. Trump is trying use tariffs to force Mexico to better guard its border with the United States, but Mexican officials say the tariffs will only hurt both countries.`\
-https://nytimes.com/2025/02/01/world/americas/trump-mexico-tariffs.html
-
-**Kansas State shocks Iowa State, ending Cyclones' 29-game home winning streak**\
-`Iowa State, who was without starting injured wing Milan Momcilovic for the sixth straight game, has now lost three of five and two straight`\
-https://nytimes.com/athletic/6105634/2025/02/01/kansas-state-iowa-state-home-winning-streak/
-
-**Rubio Heads to Panama, With Canal in His Sights**\
-`On his first trip as secretary of state, Marco Rubio will also visit four other Latin American countries and press immigration issues.`\
-https://nytimes.com/2025/02/01/us/politics/rubio-panama-canal-trump.html
 
