@@ -1,3 +1,11 @@
+**End Appears Near for U.S. Aid Agency, Democratic Lawmakers Say**\
+`A sense of crisis among aid groups was growing as U.S.A.I.D.’s website went dark.`\
+https://nytimes.com/2025/02/01/us/us-aid-agency-trump.html
+
+**After trade with Flames, Flyers' best path forward might be bottoming out this season**\
+`GM Daniel Briere said the trade that sent Morgan Frost and Joel Farabee to Calgary shouldn't be viewed as a proverbial punt on 2024-25.`\
+https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-farabee-trade/
+
 **Newcastle's Kelly set for Juventus loan move**\
 `Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
 https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
