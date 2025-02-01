@@ -1,3 +1,7 @@
+**Why Canucks struggled in their first game of the post-J.T. Miller era: 3 takeaways**\
+`It was obvious the Canucks — who traded Miller shortly before the puck dropped — were playing short-handed in their 5-3 loss to Dallas.`\
+https://nytimes.com/athletic/6104514/2025/01/31/canucks-jt-miller-trade-stars/
+
 **Dejounte Murray sustains season-ending Achilles tear in loss vs. Celtics**\
 `The loss of Murray only adds one more devastating injury to a Pelicans season that’s been flooded with them.`\
 https://nytimes.com/athletic/6104488/2025/01/31/dejounte-murray-pelicans-achilles-injury-season-ending/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
 **Acquiring J.T. Miller is Rangers GM Chris Drury's biggest move yet**\
 `Drury took his most dramatic step yet in making this Rangers roster his own by acquiring Miller in Friday's blockbuster trade.`\
 https://nytimes.com/athletic/6104332/2025/01/31/rangers-canucks-jt-miller-trade-drury/
-
-**NHL trade grades: Canucks finally send J.T. Miller to Rangers in big swing for both teams**\
-`Miller is the standout piece in what's a high-risk, high-reward trade for the Canucks and the Rangers.`\
-https://nytimes.com/athletic/6104270/2025/01/31/nhl-trade-grades-canucks-rangers-jt-miller/
 
