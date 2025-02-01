@@ -1,3 +1,7 @@
+**2 Novels for People Who Really, Really Love Cats**\
+`Rachel Ingalls’s lion god; Haruki Murakami’s cat whisperer.`\
+https://nytimes.com/2025/02/01/books/review/read-like-wind-recommendations-cat-novels.html
+
 **Hamas tightly controlled the latest hostage handovers.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/hamas-tightly-controlled-the-latest-hostage-handovers
