@@ -1,3 +1,7 @@
+**Small Plane Crashes Near Philadelphia Mall**\
+`A Learjet 55 crashed around 6:30 p.m. near the Roosevelt Mall after leaving Northeast Philadelphia Airport, officials said.`\
+https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
+
 **Before signing Carlos Estévez, Royals pursued Anthony Santander**\
 `Kansas City quickly pivoted after missing out on the free-agent outfielder earlier this week. `\
 https://nytimes.com/athletic/6104170/2025/01/31/royals-anthony-santander-blue-jays/

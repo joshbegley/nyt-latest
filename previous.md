@@ -30,8 +30,8 @@ https://nytimes.com/2025/01/31/us/wichita-figure-skaters-plane-crash.html
 `A political reckoning? Not at the Democratic National Committee.`\
 https://nytimes.com/2025/01/31/us/politics/dnc-chair-election.html
 
-**Small Plane With 2 Aboard Crashes Near Philadelphia Mall**\
-`A Learjet 55 with two aboard crashed around 6:30 p.m. near the Roosevelt Mall after leaving Northeast Philadelphia Airport, officials said.`\
+**Small Plane Crashes Near Philadelphia Mall**\
+`A Learjet 55 crashed around 6:30 p.m. near the Roosevelt Mall after leaving Northeast Philadelphia Airport, officials said.`\
 https://nytimes.com/2025/01/31/us/plane-crash-philadelphia-roosevelt-mall.html
 
 **Reagan Airport Had a Number of Close Calls in Recent Years**\
