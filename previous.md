@@ -22,7 +22,7 @@ https://nytimes.com/2025/02/01/opinion/companion-sex-robot-marriage.html
 `She broke barriers at NASA and contributed to its earliest space missions as a rocket scientist, mathematician and computer programmer.`\
 https://nytimes.com/2025/02/01/obituaries/annie-easley-overlooked.html
 
-**The president is expected to impose steep levies on an array of goods.**\
+**Steep levies are expected on an array of goods.**\
 `White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-mexico-china-trump-tariffs
 

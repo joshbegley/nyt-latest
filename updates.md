@@ -1,3 +1,7 @@
+**Steep levies are expected on an array of goods.**\
+`White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-mexico-china-trump-tariffs
+
 **‘Mythic Quest’ Is Only the Start of Her Real-Life Journey**\
 `Season 4 of the Apple series has Charlotte Nicdao’s character branching out in new directions. The actress is doing likewise, including as a director.`\
 https://nytimes.com/2025/02/01/arts/television/mythic-quest-charlotte-nicdao.html
