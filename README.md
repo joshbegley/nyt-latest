@@ -1,3 +1,7 @@
+**Trump Administration to Remove 4 Major News Outlets From Pentagon Office Space**\
+`The New York Times, NBC News, NPR and Politico will be replaced by outlets including the right-wing site Breitbart News as part of a “new annual media rotation,” a spokesman said.`\
+https://nytimes.com/2025/02/01/business/media/pentagon-press-corps.html
+
 **This Is How Much the U.S. Imports From China, Canada and Mexico**\
 `Mexico, China and Canada account for more than a third of the products imported to or bought from the United States.`\
 https://nytimes.com/interactive/2025/02/01/business/economy/mexico-china-canada-imports-tariffs.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/01/health/fda-recalls-chocolate-cal-yee.html
 `Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
 `\
 https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
-
-**Arizona State's Bobby Hurley pulls team off court, says Arizona won with 'no class'**\
-`Hurley said he has a vote for all-conference honors and suggested that he will not be voting for Arizona's Caleb Love. `\
-https://nytimes.com/athletic/6105633/2025/02/01/arizona-state-bobby-hurley-arizona-caleb-love/
 
