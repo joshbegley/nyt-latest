@@ -1,3 +1,7 @@
+**Trump Officials Release Water That Experts Say Will Serve Little Use**\
+`Local officials and experts said the water the U.S. Army Corps of Engineers began sending downstream on Friday could have been helpful later this year. President Trump, in an apparent reference to the move, called it a “victory.”`\
+https://nytimes.com/2025/01/31/us/trump-water-california-central-valley.html
+
 **Why Canucks struggled in first game of post-J.T. Miller era: 3 takeaways**\
 `It was obvious the Canucks — who traded Miller shortly before the puck dropped — were playing short-handed in their 5-3 loss to Dallas.`\
 https://nytimes.com/athletic/6104514/2025/01/31/canucks-jt-miller-trade-stars/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/01/31/nyregion/shooting-boy-killed-newark-nj.html
 **Disabled Workers Express Fear and Dismay After Trump’s Claims About the F.A.A.**\
 `Critics said the president’s remarks after the crash caused damage to an already underrepresented segment of the work force.`\
 https://nytimes.com/2025/01/31/us/trump-faa-disabled-workers.html
-
-**Acquiring J.T. Miller is Rangers GM Chris Drury's biggest move yet**\
-`Drury took his most dramatic step yet in making this Rangers roster his own by acquiring Miller in Friday's blockbuster trade.`\
-https://nytimes.com/athletic/6104332/2025/01/31/rangers-canucks-jt-miller-trade-drury/
 
