@@ -1,3 +1,7 @@
+**Kansas State shocks Iowa State, ending Cyclones' 29-game home winning streak**\
+`Iowa State, who was without starting injured wing Milan Momcilovic for the sixth straight game, has now lost three of five and two straight`\
+https://nytimes.com/athletic/6105634/2025/02/01/kansas-state-iowa-state-home-winning-streak/
+
 **Rubio Heads to Panama, With Canal in His Sights**\
 `On his first trip as secretary of state, Marco Rubio will also visit four other Latin American countries and press immigration issues.`\
 https://nytimes.com/2025/02/01/us/politics/rubio-panama-canal-trump.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/01/us/philadelphia-plane-crash.html
 **Trump Orders Airstrikes Against Islamic State in Somalia**\
 `Defense Secretary Pete Hegseth said that “multiple operatives” had been killed in remote mountains in the country’s north.`\
 https://nytimes.com/2025/02/01/us/politics/trump-airstrikes-isis-somalia.html
-
-**Elon Musk’s Team Now Has Full Access to Treasury’s Payments System**\
-`Treasury Secretary Scott Bessent gave Mr. Musk’s representatives at the so-called Department of Government Efficiency a powerful tool to monitor and potentially limit government spending.`\
-https://nytimes.com/2025/02/01/us/politics/elon-musk-doge-federal-payments-system.html
 
