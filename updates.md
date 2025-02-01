@@ -1,3 +1,7 @@
+**Exclusive: Hear from the family that found the Paul Skenes MLB Debut Patch card**\
+`After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
+https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
+
 **Hear from the family that found the Paul Skenes Debut Patch**\
 `After announcing the end to a months-long search, conspiracy theories took hold as collectors were left with unanswered questions `\
 https://nytimes.com/athletic/6104328/2025/02/01/paul-skenes-mlb-debut-patch-young-collector/
