@@ -1,3 +1,7 @@
+**Blackhawks' Frank Nazar remains unflappable through the ups and downs of rookie season**\
+`Whether it's receiving critique or getting bumped from the top line, Nazar's resiliency and confidence are rare for a rookie in the NHL.`\
+https://nytimes.com/athletic/6105756/2025/02/01/blackhawks-rookie-frank-nazar/
+
 **To Trump, Tariffs Are Not a Means but an End**\
 `Many presidents use tariffs to force negotiations. But for President Trump, they are the point, a source of revenue as he pursues a Gilded Age vision.`\
 https://nytimes.com/2025/02/01/us/politics/trump-tariffs-goal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/crosswords/daily-puzzle-2025-02-02.html
 **Rudiger to be assessed after injury in Espanyol defeat**\
 `Real Madrid defender Antonio Rudiger will undergo assessment after picking up an injury during the defeat to Espanyol on Saturday.`\
 https://nytimes.com/athletic/6105723/2025/02/01/antonio-rudiger-injury-real-madrid/
-
-**Storms Could Bring Up to 15 Inches of Rain to Parts of Northern California**\
-`Atmospheric river conditions could bring multiple feet of snow to the northern Sierra Nevada. Other areas face a risk of flooding as the ground becomes increasingly saturated.`\
-https://nytimes.com/2025/02/01/weather/california-rain-flooding.html
 
