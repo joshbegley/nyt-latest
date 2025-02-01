@@ -1,3 +1,7 @@
+**Everton working on deal to sign former Chelsea defender Mjelde**\
+`Everton are working on a deal to sign former Chelsea defender Maren Mjelde on a free transfer following the season-ending knee injury sustained by club captain Megan Finnigan.`\
+https://nytimes.com/athletic/6104778/2025/02/01/everton-transfers-maren-mjelde/
+
 **The Truth About Democrats, According to Amy Klobuchar**\
 `The Minnesota moderate has thoughts on how her party can move forward.`\
 https://nytimes.com/2025/02/01/opinion/amy-klobuchar-interview-democrats-trump.html
