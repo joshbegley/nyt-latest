@@ -1,3 +1,7 @@
+**Medical Plane Crash in Philadelphia Kills 7**\
+`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center. One person was killed on the ground and multiple people were injured, officials said.`\
+https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
+
 **At the final candidate forum before the vote, Democrats opt not to look back.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-forum-before-the-vote-democrats-opt-not-to-look-back

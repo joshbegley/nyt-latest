@@ -15,7 +15,7 @@ https://nytimes.com/live/2025/02/01/us/dnc-chair-news
 https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnba-trade-rumors/
 
 **Medical Plane Crash in Philadelphia Kills 7**\
-`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center.`\
+`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center. One person was killed on the ground and multiple people were injured, officials said.`\
 https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
 
 **Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
