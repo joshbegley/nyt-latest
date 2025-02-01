@@ -1,3 +1,7 @@
+**Steve Kerr prior to Warriors' loss: Not in position to stand pat at NBA trade deadline**\
+`"It's pretty clear where I stand," Steph Curry said, "trying to make the necessary adjustments to try to win."`\
+https://nytimes.com/athletic/6104516/2025/02/01/steve-kerr-warriors-nba-trade-deadline/
+
 **Winnipeg Jets trade targets: Which defencemen could cement Stanley Cup contender status?**\
 `Well in advance of the deadline, it's time to explore all kinds of options to upgrade Winnipeg's defence corps.`\
 https://nytimes.com/athletic/6100767/2025/02/01/winnipeg-jets-trade-targets-defencemen/

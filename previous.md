@@ -1,3 +1,7 @@
+**Steve Kerr prior to Warriors' loss: Not in position to stand pat at NBA trade deadline**\
+`"It's pretty clear where I stand," Steph Curry said, "trying to make the necessary adjustments to try to win."`\
+https://nytimes.com/athletic/6104516/2025/02/01/steve-kerr-warriors-nba-trade-deadline/
+
 **Winnipeg Jets trade targets: Which defencemen could cement Stanley Cup contender status?**\
 `Well in advance of the deadline, it's time to explore all kinds of options to upgrade Winnipeg's defence corps.`\
 https://nytimes.com/athletic/6100767/2025/02/01/winnipeg-jets-trade-targets-defencemen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/opinion/rfk-kennedy-vaccines.html
 **Trump’s Test of the Constitution**\
 `Two weeks in, the president is quickly moving to eliminate tools of accountability.`\
 https://nytimes.com/2025/02/01/opinion/trump-fired-accountability.html
-
-**I Quit the Patriarchy and Rescued My Marriage**\
-`A functioning partnership requires an equitable division of the workload of maintaining a family.`\
-https://nytimes.com/2025/02/01/opinion/marriage-men-women-patriarchy.html
 
