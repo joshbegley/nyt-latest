@@ -1,3 +1,7 @@
+**Jack Bech catches winning TD in Senior Bowl, honors late brother**\
+`Bech, wearing a No. 7 jersey for his late brother, was named the Senior Bowl MVP.`\
+https://nytimes.com/athletic/6105804/2025/02/01/tcu-jack-tiger-bech-senior-bowl-new-orleans/
+
 **Hyperbaric Chamber Explosion Kills 5-Year-Old Boy**\
 `The boy was receiving medical treatment at a Michigan medical center when the chamber exploded on Friday, the authorities said. His mother was also injured.`\
 https://nytimes.com/2025/02/01/us/boy-killed-hyperbaric-chamber-explosion-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/us/us-aid-agency-trump.html
 **After trade with Flames, Flyers' best path might be bottoming out this season**\
 `GM Daniel Briere said the trade that sent Morgan Frost and Joel Farabee to Calgary shouldn't be viewed as a proverbial punt on 2024-25.`\
 https://nytimes.com/athletic/6105555/2025/02/01/flyers-flames-morgan-frost-joel-farabee-trade/
-
-**Newcastle's Kelly expected to make Juventus loan move**\
-`Lloyd Kelly is expected to join Juventus before the end of the transfer window less than eight months after signing for Newcastle United.`\
-https://nytimes.com/athletic/6105768/2025/02/01/lloyd-kelly-juventus-newcastle-transfer/
 
