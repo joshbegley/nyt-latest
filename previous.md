@@ -1,3 +1,11 @@
+**The Arsenal-Man City rivalry: fear, loathing and a shifting of power?**\
+`If Arsenal are to prove themselves, it is still Manchester City — because it has always been City — that they must overcome`\
+https://nytimes.com/athletic/6102886/2025/02/01/arsenal-man-city-rivalry-premier-league/
+
+**'I live with the guilt of not doing more' - The Leicester City helicopter tragedy and the stories of those affected**\
+`There were the five victims and their families, but also witnesses whose lives have all been changed by the events of October 27, 2018`\
+https://nytimes.com/athletic/6096581/2025/02/01/leicester-helicopter-crash-inquest/
+
 **Sabres, Jiri Kulich deliver badly needed win on Rob Ray's special night in Buffalo**\
 `The former NHL enforcer was inducted into the Sabres Hall of Fame before Buffalo's 4-3 win over Nashville. `\
 https://nytimes.com/athletic/6104552/2025/02/01/sabres-jiri-kulich-rob-ray/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/world/asia/india-indus-script-prize.html
 **Bournemouth vs Liverpool odds, predictions: Reds look to go nine points clear of Arsenal**\
 `Liverpool take on Bournemouth at the Vitality Stadium. The Reds are looking to strengthen their chokehold atop the Premier League table.`\
 https://nytimes.com/athletic/6100638/2025/02/01/bournemouth-liverpool-odds-predictions/
-
-**Florida at Tennessee men's basketball: Storylines and watch info for top-10 SEC tilt**\
-`The only top-10 matchup of the weekend and a rad way to start off our Saturday. Florida and Tennessee, the sequel!`\
-https://nytimes.com/athletic/6103978/2025/02/01/florida-tennessee-how-to-watch-preview/
-
-**Why Is Violence Flaring Up in Mineral-Rich Congo?**\
-`Rebels backed by Rwanda are seizing huge tracts of the Democratic Republic of Congo.`\
-https://nytimes.com/video/world/africa/100000009956762/east-congo-conflict-explained.html
 
