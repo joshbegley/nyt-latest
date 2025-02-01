@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **Venezuela Frees 6 Americans After Visit by Trump Envoy**\
 `Richard Grenell, the envoy for special missions, said he was flying home with the detainees after he met with President Nicolás Maduro.`\
 https://nytimes.com/2025/01/31/us/politics/us-prisoners-venezuela.html
