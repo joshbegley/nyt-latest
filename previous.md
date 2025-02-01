@@ -1,9 +1,13 @@
+**Blue Jackets rally with 2 third-period goals before beating Utah in overtime**\
+`This is shaping up to be a magical season for the Blue Jackets and Zach Werenski.`\
+https://nytimes.com/athletic/6104537/2025/02/01/blue-jackets-beat-utah-in-overtime/
+
 **What to know about the latest hostage and prisoner releases.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/what-to-know-about-the-latest-hostage-and-prisoner-releases
 
-**Live Updates: Hamas Expected to Release 3 More Hostages in Exchange With Israel**\
-`In return, Israel is set to release about 90 Palestinian prisoners, according to a Hamas-linked prisoners’ information center. The previous handover descended into chaos.`\
+**Live Updates: Hamas Releases 2 More Hostages in Exchange With Israel**\
+`The handover took only a few minutes, unlike the previous one, which descended into chaos. The militant group is expected to release one more today, and in return, Israel is set to release Palestinian prisoners.`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages
 
 **The Los Angeles Wildfires Are Fully Contained**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102968/2025/02/01/tottenham-hotspur-brentford-anal
 **Kieran Morgan - released by Spurs, on fire at QPR: 'I put too much effort in to stop'**\
 `The teenage midfielder has shaken off last year's Tottenham disappointment to become one of the best young players in the Championship`\
 https://nytimes.com/athletic/6095277/2025/02/01/kieran-morgan-released-by-spurs-on-fire-at-qpr/
-
-**Marmoush's runs in behind can unlock City's ponderous attack - but will Guardiola embrace it?**\
-`The manager might need to learn to embrace what the Egyptian offers`\
-https://nytimes.com/athletic/6099378/2025/02/01/marmoushs-runs-in-behind-can-unlock-citys-ponderous-attack-but-will-guardiola-embrace-it/
 
