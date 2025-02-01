@@ -6,8 +6,8 @@ https://nytimes.com/2025/01/31/us/politics/trump-federal-labor-contracts.html
 `By Jack Healy`\
 https://nytimes.com/live/2025/01/31/us/dc-plane-crash-potomac-river/two-dc-lawyers-were-among-the-dead-including-one-going-home-to-celebrate-her-birthday
 
-**Cowboys, new HC Schottenheimer tap Cardinals OL coach Adams as OC**\
-`The 41-year-old Adams joins Dallas with hopes of reviving the club's disappointing rushing offense.`\
+**Cowboys’ Brian Schottenheimer selects Klayton Adams as OC**\
+`Adams, the former Cardinals offensive line coach, won't call plays but will be tasked with reviving the club's rushing attack.`\
 https://nytimes.com/athletic/6104257/2025/01/31/cowboys-brian-schottenheimer-klayton-adams/
 
 **How the D.C. Plane Crash Shattered Wichita’s Big Dreams of Skating and Flight**\
