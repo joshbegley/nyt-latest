@@ -1,3 +1,7 @@
+**Canada, Mexico and China Brace for Trump’s Tariffs**\
+`White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
+https://nytimes.com/2025/02/01/us/politics/canada-mexico-china-trump-tariffs.html
+
 **Jaune Quick-to-See Smith, Artist With an Indigenous Focus, Dies at 85**\
 `She began with modestly scaled abstract drawings and paintings but became best known for large works featuring collage and items evoking Native stereotypes.`\
 https://nytimes.com/2025/02/01/arts/jaune-quick-to-see-smith-dead.html
