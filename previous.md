@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6101074/2025/02/01/justin-tucker-inappropriate-sexu
 https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnba-trade-rumors/
 
 **Medical Plane Crash in Philadelphia Kills 7**\
-`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center. On the ground, one person was killed and several others were injured, officials said.`\
+`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when it crashed near a shopping center, killing all on board. On the ground, one person was killed and several others were injured, officials said.`\
 https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
 
 **Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\

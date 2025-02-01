@@ -1,3 +1,7 @@
+**Medical Plane Crash in Philadelphia Kills 7**\
+`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when it crashed near a shopping center, killing all on board. On the ground, one person was killed and several others were injured, officials said.`\
+https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
+
 **The Briefing: Bournemouth 0 Liverpool 2: Salah reaches 20 goals (again), Alexander-Arnold's injury and a midfield tweak**\
 `Salah struck twice to help Liverpool defeat one of the Premier League's most in-form sides. Our writers analyse the talking points`\
 https://nytimes.com/athletic/6096592/2025/02/01/liverpool-bournemouth-premier-league-salah-goals/
