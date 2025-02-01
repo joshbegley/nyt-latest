@@ -1,3 +1,11 @@
+**Ravens’ Justin Tucker denies report of sexually inappropriate behavior**\
+`On Saturday, The Banner reported three more massage therapists had accused Tucker of misconduct, raising the total accusers to nine women.`\
+https://nytimes.com/athletic/6101074/2025/02/01/justin-tucker-inappropriate-sexual-behavior-massage-allegations/
+
+**Medical Plane Crash in Philadelphia Kills 7**\
+`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center. On the ground, one person was killed and several others were injured, officials said.`\
+https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
+
 **Medical Plane Crash in Philadelphia Kills 7**\
 `The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center. One person was killed on the ground and multiple people were injured, officials said.`\
 https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
