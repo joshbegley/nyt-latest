@@ -1,3 +1,16 @@
+**Why Is Violence Flaring Up in Mineral-Rich Congo?**\
+`Rebels backed by Rwanda are seizing huge tracts of the Democratic Republic of Congo.`\
+https://nytimes.com/video/world/africa/100000009956762/east-congo-conflict-explained.html
+
+**Quote of the Day: A Farm’s Offer — 40,000 Pounds of Free Salmon**\
+`Quotation of the Day for Saturday, February 1, 2025.`\
+https://nytimes.com/2025/01/31/pageoneplus/quote-of-the-day-a-farms-offer-40000-pounds-of-free-salmon.html
+
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/01/31/wnba-2025-free-agency-tracker-best-players/
+
 **Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\
