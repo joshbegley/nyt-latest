@@ -1,3 +1,11 @@
+**Wings acquire DiJonai Carrington in trade with rebuilding Sun: Reports**\
+`Carrington, 27, was a restricted free agent and the Sun had the ability to match any offer sheet with another team`\
+https://nytimes.com/athletic/6104896/2025/02/01/connecticut-sun-dallas-wings-wnba-trade-rumors/
+
+**Medical Plane Crash in Philadelphia Kills 7**\
+`The Learjet was carrying a pediatric patient and five others from Philadelphia to Mexico when the plane crashed near a shopping center.`\
+https://nytimes.com/video/us/100000009964463/medical-plane-crash-philadelphia.html
+
 **Ohio State OL coach Justin Frye leaving for job with Arizona Cardinals**\
 `His departure leaves the defending national champion Buckeyes with two coaching vacancies after DC Jim Knowles left for Penn State.`\
 https://nytimes.com/athletic/6105018/2025/02/01/ohio-state-offensive-line-coach-arizona-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/world/middleeast/arab-nations-reject-trump-evacua
 **Szczesny 'number one' for Barcelona - Flick**\
 `Barcelona head coach Hansi Flick has confirmed that Wojciech Szczesny is his No 1 goalkeeper.`\
 https://nytimes.com/athletic/6104920/2025/02/01/wojciech-szczesny-barcelona-goalkeeper/
-
-**Former Georgia 5-star OL emerges at Senior Bowl**\
-`Clay Webb, who left football amid playing time and a lawsuit, hopes to deliver at the Senior Bowl. `\
-https://nytimes.com/athletic/6104243/2025/02/01/clay-webb-jacksonville-state-senior-bowl/
-
-**Hurzeler apologises to Brighton supporters after 7-0 thrashing by Forest**\
-`Head coach Fabian Hurzeler has apologised to supporters for Brighton &amp; Hove Albion&#8217;s heaviest league defeat for 67 years at Nottingham Forest.`\
-https://nytimes.com/athletic/6104918/2025/02/01/brighton-forest-result-goals-fabian-hurzeler/
 
