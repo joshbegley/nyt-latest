@@ -22,10 +22,6 @@ https://nytimes.com/athletic/6104537/2025/02/01/blue-jackets-beat-utah-in-overti
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/what-to-know-about-the-latest-hostage-and-prisoner-releases
 
-**Live Updates: Hamas Releases 3 More Hostages in Exchange With Israel**\
-`The handovers appeared to go relatively smoothly, unlike the previous one, which descended into chaos. In return, Israel is set to release Palestinian prisoners.`\
-https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages
-
 **The Los Angeles Wildfires Are Fully Contained**\
 `The Palisades and Eaton fires, two of the deadliest and most destructive wildfires in California history, reached 100 percent containment more than three weeks after they began.`\
 https://nytimes.com/2025/02/01/us/los-angeles-fire-contained.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguin
 **Criss-Crossing Routes in D.C. Airspace Leave Little Room for Error**\
 `Planes assigned to land at Reagan’s Runway 33 must fly just above a route that is busy with helicopters.`\
 https://nytimes.com/interactive/2025/02/01/us/dca-air-traffic-plane-crash.html
+
+**Penguins trade Marcus Pettersson to Canucks**\
+`Pettersson was an attractive candidate ahead of the trade deadline as a pending unrestricted free agent.`\
+https://nytimes.com/athletic/6091788/2025/02/01/marcus-pettersson-penguins-team-nhl-trade-deadline/
 

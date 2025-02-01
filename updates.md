@@ -1,3 +1,7 @@
+**Live Updates: Hamas Releases 3 More Hostages in Exchange With Israel**\
+`The handovers appeared to go relatively smoothly, unlike the previous one, which descended into chaos. In return, Israel is set to release Palestinian prisoners.`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages
+
 **Black Voters Helped Elect Eric Adams Mayor. Now They May Back Cuomo.**\
 `Mr. Adams and former Gov. Andrew M. Cuomo have both been popular with Black voters, setting up a potential showdown that could decide the Democratic mayoral primary in New York City.`\
 https://nytimes.com/2025/02/01/nyregion/adams-cuomo-black-voters.html
