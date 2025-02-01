@@ -1,3 +1,7 @@
+**Mexico faces a devastating economic blow from the tariffs.**\
+`Mexico relies heavily on exports to the United States, making its economy especially vulnerable to the new tariffs imposed by President Trump.`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/mexico-faces-a-devastating-economic-blow-from-the-tariffs
+
 **Blackhawks' Frank Nazar remains unflappable through the ups and downs of rookie season**\
 `Whether it's receiving critique or getting bumped from the top line, Nazar's resiliency and confidence are rare for a rookie in the NHL.`\
 https://nytimes.com/athletic/6105756/2025/02/01/blackhawks-rookie-frank-nazar/
