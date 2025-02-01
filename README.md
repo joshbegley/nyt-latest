@@ -1,3 +1,7 @@
+**Wounded Gazans Begin to Leave for Egypt Through Reopened Rafah Crossing**\
+`The border point had been closed after Israel invaded the southern city of Rafah in May but is opening again as part of the cease-fire agreement between Israel and Hamas.`\
+https://nytimes.com/2025/02/01/world/middleeast/rafah-crossing-gaza-wounded-egypt.html
+
 **‘Mythic Quest’ Is Only the Start of Her Real-Life Journey**\
 `Season 4 of the Apple series has Charlotte Nicdao’s character branching out in new directions. The actress is doing likewise, including as a director.`\
 https://nytimes.com/2025/02/01/arts/television/mythic-quest-charlotte-nicdao.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/arts/jaune-quick-to-see-smith-dead.html
 **Cade Cunningham shows 'great understanding of the moment' in win**\
 `Where on the floor is the All-Star guard best at scoring? "Wherever the space is at that I can get my shot off," Cunningham said.`\
 https://nytimes.com/athletic/6104616/2025/02/01/pistons-cade-cunningham-moment-mavericks/
-
-**Everton working on deal to sign former Chelsea defender Mjelde**\
-`Everton are working on a deal to sign former Chelsea defender Maren Mjelde on a free transfer following the season-ending knee injury sustained by club captain Megan Finnigan.`\
-https://nytimes.com/athletic/6104778/2025/02/01/everton-transfers-maren-mjelde/
 
