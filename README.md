@@ -1,6 +1,14 @@
+**Released Palestinian prisoners are greeted with tears and joy.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/released-palestinian-prisoners-are-greeted-with-tears-and-joy
+
 **Wounded Gazans Begin to Leave for Egypt Through Reopened Rafah Crossing**\
 `The border point had been closed after Israel invaded the southern city of Rafah in May but is opening again as part of the cease-fire agreement between Israel and Hamas.`\
 https://nytimes.com/2025/02/01/world/middleeast/rafah-crossing-gaza-wounded-egypt.html
+
+**Marcus Rashford at Manchester United. What happened?**\
+`The England striker is one of United's highest earners but has been absent during a crucial period and is now set to leave on loan. Why?`\
+https://nytimes.com/athletic/6035672/2025/02/01/marcus-rashford-manchester-united-missing/
 
 **‘Mythic Quest’ Is Only the Start of Her Real-Life Journey**\
 `Season 4 of the Apple series has Charlotte Nicdao’s character branching out in new directions. The actress is doing likewise, including as a director.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/obituaries/annie-easley-overlooked.html
 **Steep levies are expected on an array of goods.**\
 `White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-mexico-china-trump-tariffs
-
-**Jaune Quick-to-See Smith, Artist With an Indigenous Focus, Dies at 85**\
-`She began with modestly scaled abstract drawings and paintings but became best known for large works featuring collage and items evoking Native stereotypes.`\
-https://nytimes.com/2025/02/01/arts/jaune-quick-to-see-smith-dead.html
-
-**Cade Cunningham shows 'great understanding of the moment' in win**\
-`Where on the floor is the All-Star guard best at scoring? "Wherever the space is at that I can get my shot off," Cunningham said.`\
-https://nytimes.com/athletic/6104616/2025/02/01/pistons-cade-cunningham-moment-mavericks/
 
