@@ -1,10 +1,14 @@
+**Alexander-Arnold to undergo muscle injury scan after Liverpool win at Bournemouth**\
+`Trent Alexander-Arnold will undergo a scan to determine the extent of the damage sustained after he limped out of Liverpool’s 2-0 win at Bournemouth.`\
+https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-update-liverpool/
+
 **Health Programs Shutter Around the World After Trump Pauses Foreign Aid**\
 `Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
 https://nytimes.com/2025/02/01/health/malaria-tb-hiv-trump-aid-pause-.html
 
 **Democrats Choose a Political Operator From Minnesota as Their Next Leader**\
 `Ken Martin, a well-connected state party chair, will take over the Democratic National Committee as the party searches for ways to win back power.`\
-https://nytimes.com/2025/02/01/us/politics/dnc-chair-pick.html
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
 
 **Bucks' blowout loss to Spurs ends frustrating trip, exposes frontcourt depth issues**\
 `Not having backup big Bobby Portis, who was out because of personal reasons, strained the Bucks' frontcourt on their four-game road trip.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096610/2025/02/01/newcastle-fulham-result-report-a
 **At the final candidate forum before the vote, Democrats opt not to look back.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2025/02/01/us/dnc-chair-news/at-the-final-candidate-forum-before-the-vote-democrats-opt-not-to-look-back
-
-**Here is the latest on the race.**\
-`By Katie Glueck, Reid J. Epstein and Shane Goldmacher`\
-https://nytimes.com/2025/02/01/us/politics/here-is-the-latest-on-the-race.html
 

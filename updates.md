@@ -1,3 +1,11 @@
+**Alexander-Arnold to undergo muscle injury scan after Liverpool win at Bournemouth**\
+`Trent Alexander-Arnold will undergo a scan to determine the extent of the damage sustained after he limped out of Liverpool’s 2-0 win at Bournemouth.`\
+https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-update-liverpool/
+
+**Democrats Choose a Political Operator From Minnesota as Their Next Leader**\
+`Ken Martin, a well-connected state party chair, will take over the Democratic National Committee as the party searches for ways to win back power.`\
+https://nytimes.com/live/2025/02/01/us/dnc-chair-news/dnc-chair-pick
+
 **Health Programs Shutter Around the World After Trump Pauses Foreign Aid**\
 `Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
 https://nytimes.com/2025/02/01/health/malaria-tb-hiv-trump-aid-pause-.html
