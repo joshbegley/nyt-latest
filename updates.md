@@ -1,3 +1,7 @@
+**Elon Musk’s team has gotten access to the Treasury Department’s payments system.**\
+`By Andrew Duehren, Maggie Haberman, Theodore Schleifer and Alan Rappeport`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/treasury-department-payments-system
+
 **Man United senior performance analyst to leave for Besiktas role with Solskjaer**\
 `Tom Green, a senior performance analyst at Manchester United, is set to leave the club to take up a similar but more senior role at Besiktas under Ole Gunnar Solskjaer.`\
 https://nytimes.com/athletic/6105516/2025/02/01/manchester-united-tom-green-besiktas-solskjaer/

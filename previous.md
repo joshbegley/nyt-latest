@@ -1,3 +1,7 @@
+**Elon Musk’s team has gotten access to the Treasury Department’s payments system.**\
+`By Andrew Duehren, Maggie Haberman, Theodore Schleifer and Alan Rappeport`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/treasury-department-payments-system
+
 **Man United senior performance analyst to leave for Besiktas role with Solskjaer**\
 `Tom Green, a senior performance analyst at Manchester United, is set to leave the club to take up a similar but more senior role at Besiktas under Ole Gunnar Solskjaer.`\
 https://nytimes.com/athletic/6105516/2025/02/01/manchester-united-tom-green-besiktas-solskjaer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104973/2025/02/01/nikola-jokic-nuggets-teammates-n
 **Dejounte Murray's Achilles injury is devastating for him and the Pelicans**\
 `The guard's injury brings up several questions for the franchise ahead of both the trade deadline and a critical offseason. `\
 https://nytimes.com/athletic/6105142/2025/02/01/dejounte-murray-injury-achilles-pelicans-nba/
-
-**Dubas won't say rebuild, but Penguins' 'mission' is about the future**\
-`Development is emerging as a theme in another lost season for the Penguins. It's about the future, no matter what you or Dubas calls it.`\
-https://nytimes.com/athletic/6105310/2025/02/01/penguins-trade-rebuild/
 
