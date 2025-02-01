@@ -1,3 +1,11 @@
+**Bored by Nikola Jokić? His teammates aren't. 'Hard to deny his greatness'**\
+`Jokić is having one of his best seasons, but he isn't considered MVP favorite. We're witnessing greatness. Should everyone recognize it?`\
+https://nytimes.com/athletic/6104973/2025/02/01/nikola-jokic-nuggets-teammates-nba/
+
+**Dejounte Murray's Achilles injury is devastating for him and the Pelicans**\
+`The guard's injury brings up several questions for the franchise ahead of both the trade deadline and a critical offseason. `\
+https://nytimes.com/athletic/6105142/2025/02/01/dejounte-murray-injury-achilles-pelicans-nba/
+
 **Dubas won't say rebuild, but Penguins' 'mission' is about the future**\
 `Development is emerging as a theme in another lost season for the Penguins. It's about the future, no matter what you or Dubas calls it.`\
 https://nytimes.com/athletic/6105310/2025/02/01/penguins-trade-rebuild/
@@ -12,7 +20,7 @@ https://nytimes.com/athletic/6105282/2025/02/01/trent-alexander-arnold-injury-up
 
 **Health Programs Shutter Around the World After Trump Pauses Foreign Aid**\
 `Lifesaving treatment and prevention programs for tuberculosis, malaria, H.I.V. and other diseases cannot access funds to continue work.`\
-https://nytimes.com/2025/02/01/health/malaria-tb-hiv-trump-aid-pause-.html
+https://nytimes.com/2025/02/01/health/trump-aid-malaria-tuberculosis-hiv.html
 
 **Democrats choose a political operator from Minnesota as their next leader.**\
 `Ken Martin, a well-connected state party chair, will take over the Democratic National Committee as the party searches for ways to win back power.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/01/world/europe/germany-horst-kohler-dead.html
 **N.Y. Hospital Stops Treating 2 Children After Trump’s Trans Care Order**\
 `The hospital canceled their appointments the same week an executive order from President Trump threatened to punish doctors and hospitals for offering gender-affirming care.`\
 https://nytimes.com/2025/02/01/nyregion/nyu-langone-hospital-trans-care-youth.html
-
-**Stars acquire Mikael Granlund, Cody Ceci in trade with Sharks**\
-`The Stars needed reinforcements with Miro Heiskanen, Nils Lundkvist, Tyler Seguin and Mason Marchment out.`\
-https://nytimes.com/athletic/6105202/2025/02/01/stars-sharks-granlund-ceci-trade/
-
-**The Briefing: Bournemouth 0 Liverpool 2: Salah reaches 20 goals (again), Alexander-Arnold's injury and a midfield tweak**\
-`Salah struck twice to help Liverpool defeat one of the Premier League's most in-form sides. Our writers analyse the talking points`\
-https://nytimes.com/athletic/6096592/2025/02/01/liverpool-bournemouth-premier-league-salah-goals/
 
