@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson
 `\
 https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
 
+**Yohe: Kyle Dubas stopped trying to please everyone and the Penguins are better because of it**\
+`Dubas has realized it's time to build for the future and his ability to add young assets and draft picks is impressive.
+`\
+https://nytimes.com/athletic/6105333/2025/02/01/penguins-trade-marcus-pettersson-drew-oconnor/
+
 **Tottenham reach agreement to sign Lens' Danso in permanent deal**\
 `Tottenham Hotspur have reached an agreement with Lens to sign defender Kevin Danso in a permanent transfer.`\
 https://nytimes.com/athletic/6105554/2025/02/01/tottenham-kevin-danso-transfer-wolves/
