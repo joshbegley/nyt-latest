@@ -1,3 +1,7 @@
+**Hurzeler apologises to Brighton supporters after 7-0 thrashing by Forest**\
+`Head coach Fabian Hurzeler has apologised to supporters for Brighton &amp; Hove Albion&#8217;s heaviest league defeat for 67 years at Nottingham Forest.`\
+https://nytimes.com/athletic/6104918/2025/02/01/brighton-forest-result-goals-fabian-hurzeler/
+
 **Released Palestinian prisoners are greeted with tears and joy.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/released-palestinian-prisoners-are-greeted-with-tears-and-joy
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/opinion/companion-sex-robot-marriage.html
 **Overlooked No More: Annie Easley, Who Helped Take Spaceflight to New Heights**\
 `She broke barriers at NASA and contributed to its earliest space missions as a rocket scientist, mathematician and computer programmer.`\
 https://nytimes.com/2025/02/01/obituaries/annie-easley-overlooked.html
-
-**Steep levies are expected on an array of goods.**\
-`White House officials said the president would impose steep levies on Saturday as punishment for the countries allowing drugs and migrants into the United States.`\
-https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/canada-mexico-china-trump-tariffs
 

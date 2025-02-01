@@ -1,3 +1,7 @@
+**Hurzeler apologises to Brighton supporters after 7-0 thrashing by Forest**\
+`Head coach Fabian Hurzeler has apologised to supporters for Brighton &amp; Hove Albion&#8217;s heaviest league defeat for 67 years at Nottingham Forest.`\
+https://nytimes.com/athletic/6104918/2025/02/01/brighton-forest-result-goals-fabian-hurzeler/
+
 **Released Palestinian prisoners are greeted with tears and joy.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/01/world/israel-hamas-gaza-hostages/released-palestinian-prisoners-are-greeted-with-tears-and-joy
