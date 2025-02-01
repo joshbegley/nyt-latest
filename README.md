@@ -1,3 +1,19 @@
+**Black Voters Helped Elect Eric Adams Mayor. Now They May Back Cuomo.**\
+`Mr. Adams and former Gov. Andrew M. Cuomo have both been popular with Black voters, setting up a potential showdown that could decide the Democratic mayoral primary in New York City.`\
+https://nytimes.com/2025/02/01/nyregion/adams-cuomo-black-voters.html
+
+**A Storied Newspaper Prepares to Print Its Own Obituary**\
+`The Star-Ledger, New Jersey’s longtime paper of record, will publish its final edition on Sunday and become an online-only news outlet.`\
+https://nytimes.com/2025/02/01/nyregion/new-jersey-star-ledger-prints-final-edition.html
+
+**How an Emergency Veterinarian Spends Her Sundays**\
+`Dr. Carly Fox doesn’t need an alarm for a day of pancakes with her children, cats falling out of windows and red-light therapy.`\
+https://nytimes.com/2025/02/01/nyregion/carly-fox-veterinarian.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/01/crosswords/spelling-bee-forum.html
+
 **Blue Jackets rally with 2 third-period goals before beating Utah in overtime**\
 `This is shaping up to be a magical season for the Blue Jackets and Zach Werenski.`\
 https://nytimes.com/athletic/6104537/2025/02/01/blue-jackets-beat-utah-in-overtime/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6104561/2025/02/01/nhl-trade-grades-canucks-penguin
 **Criss-Crossing Routes in D.C. Airspace Leave Little Room for Error**\
 `Planes assigned to land at Reagan’s Runway 33 must fly just above a route that is busy with helicopters.`\
 https://nytimes.com/interactive/2025/02/01/us/dca-air-traffic-plane-crash.html
-
-**Penguins trade Marcus Pettersson to Canucks**\
-`Pettersson was an attractive candidate ahead of the trade deadline as a pending unrestricted free agent.`\
-https://nytimes.com/athletic/6091788/2025/02/01/marcus-pettersson-penguins-team-nhl-trade-deadline/
-
-**'We're building moving forward': Jim Rutherford explains why Canucks traded for Marcus Pettersson**\
-`Rutherford isn't sure whether his Canucks are good enough to be contenders, but he's sure they needed Pettersson from the Penguins.`\
-https://nytimes.com/athletic/6104567/2025/02/01/canucks-penguins-marcus-pettersson-trade/
-
-**Tottenham beware: Why Brentford are so difficult to play against**\
-`Brentford spend more time in organised defensive blocks than any other Premier League team - Spurs will have their work cut out on Sunday`\
-https://nytimes.com/athletic/6102968/2025/02/01/tottenham-hotspur-brentford-analysis-block/
-
-**Kieran Morgan - released by Spurs, on fire at QPR: 'I put too much effort in to stop'**\
-`The teenage midfielder has shaken off last year's Tottenham disappointment to become one of the best young players in the Championship`\
-https://nytimes.com/athletic/6095277/2025/02/01/kieran-morgan-released-by-spurs-on-fire-at-qpr/
 
