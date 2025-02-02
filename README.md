@@ -1,3 +1,11 @@
+**Young Women Are Transforming Pop. Now They’re Taking On the Grammys.**\
+`A close-up look at Sabrina Carpenter, Charli XCX, Billie Eilish and Chappell Roan — and their loyal fans.`\
+https://nytimes.com/card/2025/02/02/arts/music/billie-eilish-charli-xcx-chappell-roan-sabrina-carpenter
+
+**Newcastle support Willock after 'appalling' racist abuse**\
+`Newcastle United have spoken out in support of Joe Willock after the midfielder was subjected to racist abuse online after Saturday&#8217;s Premier League defeat by Fulham.`\
+https://nytimes.com/athletic/6106448/2025/02/02/joe-willock-racism-instagram-newcastle/
+
 **Spurs sign Danso from Lens on loan before permanent transfer**\
 `Tottenham Hotspur have completed the signing of central defender Kevin Danso from Lens.`\
 https://nytimes.com/athletic/6101030/2025/02/02/tottenham-transfers-kevin-danso/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/02/insider/the-marks-of-a-good-lunch.html
 **The South Bronx Has a Pollution Issue. Congestion Pricing May Worsen It.**\
 `Preliminary data from the first few weeks of New York City’s tolling plan show a possible uptick in traffic in the neighborhood.`\
 https://nytimes.com/2025/02/02/nyregion/congestion-pricing-air.html
-
-**‘A Well-Dressed Man Sitting Across From Me Was Drawing With a Pencil’**\
-`A swap on the subway in the Bronx, a nightly ritual in Chelsea and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/02/02/nyregion/metropolitan-diary.html
-
-**Two Families and One Moment in Time, Long Before Flames Hit L.A.**\
-`As fires spread in Los Angeles, a reporter found a surprising, decades-old link between his father and a couple he would come to write about.`\
-https://nytimes.com/2025/02/02/reader-center/burl-toler.html
 
