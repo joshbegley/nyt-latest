@@ -1,3 +1,11 @@
+**Rickey Henderson hailed by baseball legends, Oakland fans in stirring celebration**\
+`The celebration of life for the legendary leadoff man was an exhilarating affair: "He was a legend here in Oakland, California."`\
+https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-life-oakland/
+
+**Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
+`Lesnar's name was not included in the original lawsuit, and the 47-year-old is not listed as a defendant in the amended lawsuit.`\
+https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
+
 **Texas Tech stuns Houston, overcomes ejections to coach and star player**\
 `It was Texas Tech’s first win this season over a team in the current AP Top 25 and ended Houston’s nation-best 32-game home winning streak.`\
 https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
