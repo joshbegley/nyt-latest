@@ -1,3 +1,19 @@
+**Seven factors that explain Brighton's humiliating 7-0 defeat to Nottingham Forest**\
+`Saturday's loss at the City Ground was Brighton's heaviest in a league game since the opening day of the 1958-59 season`\
+https://nytimes.com/athletic/6104857/2025/02/02/brighton-forest-seven-factors-explain-result/
+
+**What do Chelsea need to do to instigate a return to form?**\
+`Enzo Maresca's side have won only once in the league since mid-December, but there are changes he could make to kickstart an upturn`\
+https://nytimes.com/athletic/6099538/2025/02/02/chelsea-maresca-form-west-ham/
+
+**Michael Carrick and his 'bittersweet' season at Middlesbrough**\
+`Boro go into the Tees-Wear derby on Monday night with their season yet to ignite and home form an ongoing concern`\
+https://nytimes.com/athletic/6103207/2025/02/02/carrick-middlesbrough-gibson-championship-promotion/
+
+**From 0-5 to 7-0: How a rampaging Nottingham Forest proved they belong in the Premier League's top four**\
+`Nuno Espirito Santo said that his side would be 'perfect' against Brighton - he was not wrong`\
+https://nytimes.com/athletic/6105476/2025/02/02/nottingham-forest-brighton-seven-goals/
+
 **What is the biggest win in Premier League history?**\
 `Nottingham Forest thrashed Brighton 7-0 on Saturday — but that's not enough to even get into the top 10 for biggest margins of victory...`\
 https://nytimes.com/athletic/6104882/2025/02/02/biggest-win-premier-league-history-victory/
