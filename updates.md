@@ -1,3 +1,15 @@
+**The White House said it would measure fentanyl seizures before lifting tariffs.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/the-white-house-said-it-would-measure-fentanyl-seizures-before-lifting-tariffs
+
+**Mavs trading Luka Dončić fits team’s vision and culture, Nico Harrison says**\
+`“There are levels to it, and there are people that fit the culture and there’s people that come in and add to the culture,” Harrison said.`\
+https://nytimes.com/athletic/6107232/2025/02/02/luka-doncic-mavericks-lakers-jason-kidd-nico-harrison/
+
+**Trudeau Announces Retaliatory Tariffs Against the U.S.**\
+`Prime Minister Justin Trudeau of Canada laid out plans to impose more than $100 billion in retaliatory tariffs against the United States, and made clear that Canada was doing so reluctantly.`\
+https://nytimes.com/video/world/canada/100000009965423/canada-trudeau-retaliatory-tariffs.html
+
 **Security Official at Aid Agency Put on Leave After Denying Access to Musk Team**\
 `Workers at the U.S. Agency for International Development are bracing for a loss of its independent status and sweeping layoffs as President Trump continues slashing foreign aid.`\
 https://nytimes.com/2025/02/02/us/politics/usaid-official-leave-musk.html
