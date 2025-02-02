@@ -1,3 +1,7 @@
+**“I Feel Like a Superhero.” Hope Lives Amid Gaza’s Rubble.**\
+`Amid the devastation of Gaza, we now can at least look for some purpose beyond mere survival.`\
+https://nytimes.com/2025/02/02/opinion/gaza-israel-cease-fire-hope.html
+
 **Why Ottawa's win over Minnesota was its most dominant of the season: 4 takeaways**\
 `Ottawa dominated every period with its offence and defence, got better goaltending, won more faceoffs and made fewer mistakes Saturday.`\
 https://nytimes.com/athletic/6106037/2025/02/02/ottawa-senators-minnesota-wild-takeaways/
