@@ -1,3 +1,7 @@
+**Man United complete signing of Dorgu from Lecce**\
+`Manchester United have completed the signing of Patrick Dorgu from Lecce.`\
+https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-transfer-confirmed/
+
 **Five pressing topics for NFL commissioner Roger Goodell to address at Super Bowl**\
 `Goodell can likely expect questions Monday about progress on an 18-game season, the state of officiating, rules changes and more.`\
 https://nytimes.com/athletic/6103740/2025/02/02/nfl-commissioner-roger-goodell-2025-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/opinion/trump-panama-greenland-foreign-policy.htm
 **Connections Companion No. 603**\
 `Scroll down for hints and conversation about the puzzle for Monday, Feb. 3, 2025.`\
 https://nytimes.com/2025/02/02/crosswords/connections-companion-603.html
-
-**Pronman: 7 top prospects who could be traded ahead of the deadline**\
-`Highlighting top prospects, including quite a few first-round picks in recent years, who contenders could move in the coming weeks.`\
-https://nytimes.com/athletic/6103082/2025/02/02/nhl-trade-deadline-prospects-2025/
 

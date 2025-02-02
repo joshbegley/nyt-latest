@@ -1,3 +1,7 @@
+**Man United complete signing of Dorgu from Lecce**\
+`Manchester United have completed the signing of Patrick Dorgu from Lecce.`\
+https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-transfer-confirmed/
+
 **Five pressing topics for NFL commissioner Roger Goodell to address at Super Bowl**\
 `Goodell can likely expect questions Monday about progress on an 18-game season, the state of officiating, rules changes and more.`\
 https://nytimes.com/athletic/6103740/2025/02/02/nfl-commissioner-roger-goodell-2025-super-bowl/
