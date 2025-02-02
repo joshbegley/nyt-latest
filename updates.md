@@ -1,3 +1,7 @@
+**Crews Move Closer to Recovering All Bodies in D.C. Crash**\
+`Remains of 55 of the 67 victims have been recovered, officials said on Sunday as they prepared to lift the wreckage of the jet out of the Potomac River on Monday.`\
+https://nytimes.com/2025/02/02/us/dc-plane-crash-washington-helicopter.html
+
 **3 Mexican Sectors Most Affected by U.S. Tariffs, and How the Country Could Respond**\
 `President Trump’s tariffs will have major effects on Mexico’s auto industry, agriculture and energy, but the country has some means for responding.`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/mexico-economy-trump-tariffs

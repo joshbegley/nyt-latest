@@ -1,3 +1,7 @@
+**Crews Move Closer to Recovering All Bodies in D.C. Crash**\
+`Remains of 55 of the 67 victims have been recovered, officials said on Sunday as they prepared to lift the wreckage of the jet out of the Potomac River on Monday.`\
+https://nytimes.com/2025/02/02/us/dc-plane-crash-washington-helicopter.html
+
 **3 Mexican Sectors Most Affected by U.S. Tariffs, and How the Country Could Respond**\
 `President Trump’s tariffs will have major effects on Mexico’s auto industry, agriculture and energy, but the country has some means for responding.`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/mexico-economy-trump-tariffs
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6107460/2025/02/02/caitlin-clark-iowa-jersey-retire
 **Grammys Photos: All the Looks From the 2025 Red Carpet**\
 `See what nominees and performers for the 67th Grammy Awards, including Chappell Roan, Kacey Musgraves and Brittany Howard, wore to arrive for the ceremony.`\
 https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html
-
-**With wildfires blazing, the Grammys decided the show should go on.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/los-angeles-fires-grammys-2025
 
