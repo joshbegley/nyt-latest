@@ -1,40 +1,40 @@
-**Netanyahu Heads to Washington at a Critical Juncture for Mideast**\
-`Israel’s prime minister is expected to meet with President Trump later this week to discuss the future of Gaza and broader regional issues.`\
-https://nytimes.com/2025/02/02/world/europe/netanyahu-trump-israel-washington.html
+**Five pressing topics for NFL commissioner Roger Goodell to address at Super Bowl**\
+`Goodell can likely expect questions Monday about progress on an 18-game season, the state of officiating, rules changes and more.`\
+https://nytimes.com/athletic/6103740/2025/02/02/nfl-commissioner-roger-goodell-2025-super-bowl/
 
-**Looking to calm your nerves? Here are 4 tips from Super Bowl champions**\
-`The tools Super Bowl champions used to cope with pressure can be applied to a job interview, a class presentation or any big moment in life.`\
-https://nytimes.com/athletic/6103463/2025/02/02/looking-to-calm-your-nerves-here-are-4-tips-from-super-bowl-champions/
+**Beyoncé Is America. Give Her the Grammy.**\
+`Her album “Cowboy Carter” deserves to win album of the year but not for the reasons you think.`\
+https://nytimes.com/2025/02/02/opinion/beyonce-grammys-cowboy-carter.html
 
-**Russia, Seeking to Salvage Military Bases, Goes Hat in Hand to Syria**\
-`The arrival of the first top Russian diplomat in Damascus since Bashar al-Assad’s fall kicks off negotiations over the fate of Moscow’s bases in Syria.`\
-https://nytimes.com/2025/02/02/world/europe/russia-syria-bases.html
+**Don’t Believe Him**\
+`Look closely at the first two weeks of Donald Trump’s second term and you’ll see something very different than what he wants you to see.`\
+https://nytimes.com/2025/02/02/opinion/ezra-klein-podcast-trump-column-read.html
 
-**‘We Have No Coherent Message’: Democrats Struggle to Oppose Trump**\
-`More than 50 interviews with Democratic leaders revealed a party struggling to decide what it believes in, what issues to prioritize and how to confront an aggressive right-wing administration.`\
-https://nytimes.com/2025/02/02/us/politics/democrats-trump.html
+**Kash Patel Is a Warning Shot**\
+`Senators, take heed.`\
+https://nytimes.com/2025/02/02/opinion/kash-patel-trump-fbi.html
 
-**Matthew Knies just scratching the surface of what he can become for Maple Leafs**\
-`Knies, at age 22, is on pace for 31 goals and more than 50 points this season.`\
-https://nytimes.com/athletic/6106160/2025/02/02/matthew-knies-maple-leafs-oilers/
+**Wordle Review No. 1,325**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 3, 2025.`\
+https://nytimes.com/2025/02/02/crosswords/wordle-review-1325.html
 
-**Celtics at 76ers: How to watch as Eastern Conference rivals meet in Philly**\
-`The Boston Celtics and Philadelphia 76ers have been rivals for most of the NBA's existence. They play each other Sunday.`\
-https://nytimes.com/athletic/6103710/2025/02/02/celtics-76ers-how-to-watch-preview-embiid-tatum-brown-george-maxey-nba/
+**The Sunday Read: ‘Chronic Pain Is a Hidden Epidemic. It’s Time for a Revolution.’**\
+`As many as two billion people suffer from it. Can science finally offer relief?`\
+https://nytimes.com/2025/02/02/podcasts/the-daily/chronic-pain.html
 
-**Many Americans Say the Democratic Party Does Not Share Their Priorities**\
-`A poll from The New York Times and Ipsos found that Americans believe abortion, L.G.B.T.Q. issues and climate change concern Democrats more than the cost of living.`\
-https://nytimes.com/2025/02/02/us/democrats-ipsos-poll-abortion-lgbt.html
+**The Republicans’ Choice: Tax Cuts for the Rich or Health Care for Americans**\
+`Proposed cuts would be catastrophic to Americans’ access to care.`\
+https://nytimes.com/2025/02/02/opinion/medicaid-tax-cuts-republicans.html
 
-**This Republican Senator Says Trump Needs to Hear Dissent. Will He Speak Up?**\
-`Senator John Curtis prides himself on collaborating with people who disagree with him. But with a Republican trifecta in place, it’s not clear whether Mitt Romney’s successor will follow in his footsteps.`\
-https://nytimes.com/2025/02/02/us/this-republican-senator-says-trump-needs-to-hear-dissent-will-he-speak-up.html
+**Isolationist? Nationalist? No, Trump Is Something Else Entirely.**\
+`Inside the lost tradition in American foregin policy that explains the president’s overseas obsessions.`\
+https://nytimes.com/2025/02/02/opinion/trump-panama-greenland-foreign-policy.html
 
-**2025 NHL prospect pool rankings: No. 7 Utah Hockey Club**\
-`Utah arrived from Arizona with a decent prospect pool and added to it with an 11-pick 2024 draft class.`\
-https://nytimes.com/athletic/6089648/2025/02/02/utah-nhl-prospects-rankings-2025/
+**Connections Companion No. 603**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 3, 2025.`\
+https://nytimes.com/2025/02/02/crosswords/connections-companion-603.html
 
-**Trump Favors Blunt Force in Dealing With Foreign Allies and Enemies Alike**\
-`With Canada, Mexico, China, Colombia and the Middle East, President Trump has wasted no time threatening to use American might to force recalcitrant countries to back down and do what he wants.`\
-https://nytimes.com/2025/02/02/us/politics/trump-tariffs-migrants-power.html
+**Pronman: 7 top prospects who could be traded ahead of the deadline**\
+`Highlighting top prospects, including quite a few first-round picks in recent years, who contenders could move in the coming weeks.`\
+https://nytimes.com/athletic/6103082/2025/02/02/nhl-trade-deadline-prospects-2025/
 
