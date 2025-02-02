@@ -1,3 +1,7 @@
+**Karen Pryor, Guru of Positive Reinforcement, Is Dead at 92**\
+`She was so successful at training dolphins that she began applying the same techniques to other creatures, including dogs — and humans.`\
+https://nytimes.com/2025/02/02/us/karen-pryor-dead.html
+
 **From liquor to dishwashers, Canada details U.S. goods it will hit with tariffs.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/from-liquor-to-dishwashers-canada-details-us-goods-it-will-hit-with-tariffs
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/politics/usaid-official-leave-musk.html
 **Houston Flight Evacuated Before Takeoff Because of Engine Fire, Video Shows**\
 `A video on social media showed smoke and flames coming from one of the engines of a United Airlines flight headed for LaGuardia Airport in New York.`\
 https://nytimes.com/2025/02/02/us/united-airlines-houston-engine-fire.html
-
-**From Groceries to Cars, Tariffs Could Raise Prices for U.S. Consumers**\
-`President Trump’s new tariffs on goods from Canada, Mexico and China are likely to result in higher prices for lots of products, including computers, tequila and gas.`\
-https://nytimes.com/2025/02/02/business/tariffs-prices-consumers.html
 
