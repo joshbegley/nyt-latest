@@ -1,3 +1,7 @@
+**Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
+`Grant identifies Lesnar as the man who McMahon offered to have sex with Grant in 2021.`\
+https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
+
 **Why Matt Poitras’ offensive development is a leading factor in the Bruins’ retool**\
 `The fact the 20-year-old center flashes skills as an offensive driver is a good thing for the Bruins.`\
 https://nytimes.com/athletic/6105913/2025/02/01/bruins-matt-poitras-retool/
