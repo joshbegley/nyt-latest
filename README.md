@@ -1,3 +1,7 @@
+**Bobby Witt Jr. for Mike Trout? Jacob deGrom for Paul Skenes? The Luka Dončić trade in baseball terms**\
+`We thought we’d lean into our experience covering the NBA and MLB, and imagine the baseball equivalent of the Dončić-Davis trade.`\
+https://nytimes.com/athletic/6107800/2025/02/02/luka-doncic-trade-in-baseball-terms/
+
 **Mouse’s Bigger Cousin**\
 `Jack Scherban takes us to the playground.`\
 https://nytimes.com/2025/02/02/crosswords/daily-puzzle-2025-02-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/02/us/trump-tariffs/across-sectors-business-and
 **Rashford completes Villa loan**\
 `Villa hold an option to make Rashford's move permanent for £40million ($49.5m) in the summer.`\
 https://nytimes.com/athletic/6105124/2025/02/02/marcus-rashford-villa-transfer-manchester-united/
-
-**The Jimmy Butler breakdown: Analyzing how the next major NBA trade domino could fall**\
-`Here is a look at four teams in the running for Jimmy Butler, how a deal with each could happen and what obstacles are in the way.`\
-https://nytimes.com/athletic/6106103/2025/02/02/jimmy-butler-trade-destinations-warriors-bucks-sixers-suns/
 
