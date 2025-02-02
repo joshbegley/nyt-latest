@@ -22,6 +22,10 @@ https://nytimes.com/2025/02/02/nyregion/metropolitan-diary.html
 `As fires spread in Los Angeles, a reporter found a surprising, decades-old link between his father and a couple he would come to write about.`\
 https://nytimes.com/2025/02/02/reader-center/burl-toler.html
 
+**Jhon Duran: An MLS triumph, not just soccer's hot topic and an $80M man**\
+`From MLS to Saudi-league millions took Duran less than two years.`\
+https://nytimes.com/athletic/6101169/2025/02/02/jhon-duran-aston-villa-mls-chicago/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/02/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106272/2025/02/02/luka-doncic-trade-anthony-davis-
 **It Was the Big One. Just Not the One L.A. Was Expecting.**\
 `Officials across the Los Angeles area had plenty of warning that a deadly confluence of wind and drought was coming. A bad fire was likely. Did they do enough to get ready?`\
 https://nytimes.com/2025/02/02/us/la-wildfires-palisades-eaton-preparations.html
-
-**Why Is This C.E.O. Bragging About Replacing Humans With A.I.?**\
-`Most large employers play down the likelihood that bots will take our jobs. Then there’s Klarna, a darling of tech investors.`\
-https://nytimes.com/2025/02/02/business/why-is-this-ceo-bragging-about-replacing-humans-with-ai.html
 
