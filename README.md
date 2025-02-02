@@ -1,3 +1,7 @@
+**Who Pays for Tariffs? Here’s What You Need to Know.**\
+`President Trump has insisted that his new tariffs on America’s largest trading partners will not increase prices for Americans. But a review of how they work suggests that is not the case`\
+https://nytimes.com/2025/02/02/business/economy/trump-tariffs-what-to-know.html
+
 **J.T. Miller, Elias Pettersson, Kyle Dubas and the winners and losers from the Canucks' big trades**\
 `The two separate trades included 10 players and a fascinating, volatile future asset changing teams twice.`\
 https://nytimes.com/athletic/6106337/2025/02/02/nhl-trades-elias-pettersson-jt-miller-kyle-dubas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106584/2025/02/02/kevin-danso-to-tottenham-transfe
 **Southampton's Amo-Ameyaw set to sign for Strasbourg**\
 `English talent Samuel Amo-Ameyaw is set to sign for Strasbourg from Southampton after an agreement was reached between the clubs and with the 18-year-old over personal terms.`\
 https://nytimes.com/athletic/6106761/2025/02/02/southampton-transfers-amo-ameyaw-strasbourg/
-
-**Fever add All-Star DeWanna Bonner in free agency: Reports**\
-`Bonner, who averaged 15 points and 6 rebounds per game last season with the Connecticut Sun, will reunite with coach Stephanie White.`\
-https://nytimes.com/athletic/6106757/2025/02/02/indiana-fever-dewanna-bonner-free-agency/
 
