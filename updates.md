@@ -1,3 +1,11 @@
+**How Luka trade affected NBA title odds: Lakers surge, Mavs drop; Celtics, Thunder on top**\
+`The Lakers' title odds moved significantly after the Luka Doncic trade from Dallas, but Boston and Oklahoma City are still the favorites.`\
+https://nytimes.com/athletic/6107007/2025/02/02/luka-doncic-trade-nba-title-odds-lakers-mavs-celtics/
+
+**Tariffs: Aiming at Mexico, Hitting Ourselves**\
+`There are many reasons to regret Trump’s latest experiment with tariffs, but let’s take prices and migration.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/tariffs-mexico-cars-avocados-immigration
+
 **Soler interview: 'I saw the manager had confidence in me… that's very important'**\
 `The Spanish midfielder on the move to London, adapting to life under Graham Potter and what his long-term future might hold`\
 https://nytimes.com/athletic/6105992/2025/02/02/carlos-soler-interview-west-ham/

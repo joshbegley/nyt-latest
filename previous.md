@@ -1,3 +1,11 @@
+**How Luka trade affected NBA title odds: Lakers surge, Mavs drop; Celtics, Thunder on top**\
+`The Lakers' title odds moved significantly after the Luka Doncic trade from Dallas, but Boston and Oklahoma City are still the favorites.`\
+https://nytimes.com/athletic/6107007/2025/02/02/luka-doncic-trade-nba-title-odds-lakers-mavs-celtics/
+
+**Tariffs: Aiming at Mexico, Hitting Ourselves**\
+`There are many reasons to regret Trump’s latest experiment with tariffs, but let’s take prices and migration.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/tariffs-mexico-cars-avocados-immigration
+
 **Soler interview: 'I saw the manager had confidence in me… that's very important'**\
 `The Spanish midfielder on the move to London, adapting to life under Graham Potter and what his long-term future might hold`\
 https://nytimes.com/athletic/6105992/2025/02/02/carlos-soler-interview-west-ham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6106935/2025/02/02/manchester-united-martinez-injur
 **Lowetide: How have the Oilers improved their draft and development strategy?**\
 `Here are some signs to look for if you're still worried about the Oilers' draft practices.`\
 https://nytimes.com/athletic/6104851/2025/02/02/edmonton-oilers-nhl-draft-tweeners/
-
-**Thousands of U.S. Government Web Pages Have Been Taken Down Since Friday**\
-`Federal agencies moved to satisfy Trump’s orders to remove topics like diversity initiatives and “gender ideology.”`\
-https://nytimes.com/2025/02/02/upshot/trump-government-websites-missing-pages.html
-
-**Who Pays for Tariffs? Here’s What You Need to Know.**\
-`President Trump has insisted that his new tariffs on America’s largest trading partners will not increase prices for Americans. But a review of how they work suggests that is not the case.`\
-https://nytimes.com/2025/02/02/business/economy/trump-tariffs-what-to-know.html
 
