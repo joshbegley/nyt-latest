@@ -1,3 +1,11 @@
+**Mavs trading Luka Dončić fits team’s vision and culture, Nico Harrison says**\
+`“There are levels to it, and there are people that fit the culture and there’s people that come in and add to the culture,” Harrison said.`\
+https://nytimes.com/athletic/6107232/2025/02/02/luka-doncic-mavericks-lakers-jason-kidd-nico-harrison/
+
+**Trudeau Announces Retaliatory Tariffs Against the U.S.**\
+`Prime Minister Justin Trudeau of Canada laid out plans to impose more than $100 billion in retaliatory tariffs against the United States, and made clear that Canada was doing so reluctantly.`\
+https://nytimes.com/video/world/canada/100000009965423/canada-trudeau-retaliatory-tariffs.html
+
 **What Is the International Emergency Economic Powers Act?**\
 `President Trump said he was using powers granted under the law to impose tariffs on the United States’ largest trading partners.`\
 https://nytimes.com/2025/02/02/us/politics/trump-tariffs-ieepa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/02/sports/baseball/fay-vincent-dead.html
 **Plane and Aircraft Tug Vehicle Collide in Chicago, Critically Injuring Driver**\
 `The wing of an Air Wisconsin plane struck the vehicle, which was trying to cross a taxiway at Chicago O’Hare International Airport, officials said.`\
 https://nytimes.com/2025/02/02/us/chicago-ohare-airport-tug-plane-collision.html
-
-**Vance and Duffy Echo Trump in Blaming D.E.I. for Crash Near Washington**\
-`The vice president and transportation secretary claimed on Sunday that diversity hiring efforts had affected staffing levels among air traffic controllers.`\
-https://nytimes.com/2025/02/02/us/politics/vance-duffy-trump-dei-crash.html
-
-**Top F.B.I. Agent in New York Vows to ‘Dig In’ After Removals at Agency**\
-`James E. Dennehy, the highly respected leader of the largest and most important field office in the bureau, said the F.B.I. was in a “battle of our own.”`\
-https://nytimes.com/2025/02/02/us/politics/fbi-new-york-email-trump.html
 
