@@ -1,3 +1,11 @@
+**Bobby Witt Jr. for Mike Trout? Jacob deGrom for Paul Skenes? The Luka Dončić trade in baseball terms**\
+`We thought we’d lean into our experience covering the NBA and MLB, and imagine the baseball equivalent of the Dončić-Davis trade.`\
+https://nytimes.com/athletic/6107800/2025/02/02/luka-doncic-trade-in-baseball-terms/
+
+**Grammys Photos: All the Looks From the 2025 Red Carpet**\
+`See what nominees and performers for the 67th Grammy Awards, including Chappell Roan, Kacey Musgraves and Brittany Howard, wore to arrive for the ceremony.`\
+https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html
+
 **Mouse’s Bigger Cousin**\
 `Jack Scherban takes us to the playground.`\
 https://nytimes.com/2025/02/02/crosswords/daily-puzzle-2025-02-03.html
