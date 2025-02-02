@@ -1,3 +1,19 @@
+**Seven factors that explain Brighton's humiliating 7-0 defeat to Nottingham Forest**\
+`Saturday's loss at the City Ground was Brighton's heaviest in a league game since the opening day of the 1958-59 season`\
+https://nytimes.com/athletic/6104857/2025/02/02/brighton-forest-seven-factors-explain-result/
+
+**What do Chelsea need to do to instigate a return to form?**\
+`Enzo Maresca's side have won only once in the league since mid-December, but there are changes he could make to kickstart an upturn`\
+https://nytimes.com/athletic/6099538/2025/02/02/chelsea-maresca-form-west-ham/
+
+**Michael Carrick and his 'bittersweet' season at Middlesbrough**\
+`Boro go into the Tees-Wear derby on Monday night with their season yet to ignite and home form an ongoing concern`\
+https://nytimes.com/athletic/6103207/2025/02/02/carrick-middlesbrough-gibson-championship-promotion/
+
+**From 0-5 to 7-0: How a rampaging Nottingham Forest proved they belong in the Premier League's top four**\
+`Nuno Espirito Santo said that his side would be 'perfect' against Brighton - he was not wrong`\
+https://nytimes.com/athletic/6105476/2025/02/02/nottingham-forest-brighton-seven-goals/
+
 **What is the biggest win in Premier League history?**\
 `Nottingham Forest thrashed Brighton 7-0 on Saturday — but that's not enough to even get into the top 10 for biggest margins of victory...`\
 https://nytimes.com/athletic/6104882/2025/02/02/biggest-win-premier-league-history-victory/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6102810/2025/02/02/transfer-window-derangement-synd
 **After a fiery first meeting this season, what can we expect from Arsenal vs Man City?**\
 `The game at the Etihad earlier this season resulted in new levels of bad blood between the clubs, so what can we expect this time?`\
 https://nytimes.com/athletic/6102433/2025/02/02/arsenal-man-city-rivalry/
-
-**De Zerbi has improved Marseille - but is that enough for him or them?**\
-`The Italian was once one of the Premier League's most coveted coaches but is now trying to achieve a fiendishly difficult task in Ligue 1`\
-https://nytimes.com/athletic/6099673/2025/02/02/roberto-de-zerbi-marseille-ligue-1/
-
-**Bayern Munich's Mathys Tel is a shot-machine with plenty of raw edges to iron out**\
-`Tel has attracted plenty of interest in this transfer window - we analyse the 19-year-old's strengths and weaknesses`\
-https://nytimes.com/athletic/6103484/2025/02/02/mathys-tel-bayern-munich-tactical-profile/
-
-**Trudeau Details Canada’s Retaliation Plans in Emotional Rebuke of Trump Tariffs**\
-`Even as Canada’s prime minister announced more than $100 billion in retaliatory tariffs, he made clear that he was imposing them reluctantly.`\
-https://nytimes.com/2025/02/02/us/politics/canada-trump-tariffs.html
-
-**Trump’s Tariffs Put China in a Difficult Spot**\
-`China chose swift retaliation for trade measures in the first Trump administration, but that led to an upward spiral of trade measures and much broader tariffs.`\
-https://nytimes.com/2025/02/02/business/trump-tariffs-china.html
 
