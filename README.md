@@ -1,3 +1,7 @@
+**From liquor to dishwashers, Canada details U.S. goods it will hit with tariffs.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/from-liquor-to-dishwashers-canada-details-us-goods-it-will-hit-with-tariffs
+
 **Former baseball commissioner Fay Vincent dies at 86**\
 `Vincent presided over MLB for three years as the league's commissioner.`\
 https://nytimes.com/athletic/5937951/2025/02/02/fay-vincent-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/united-airlines-houston-engine-fire.html
 **From Groceries to Cars, Tariffs Could Raise Prices for U.S. Consumers**\
 `President Trump’s new tariffs on goods from Canada, Mexico and China are likely to result in higher prices for lots of products, including computers, tequila and gas.`\
 https://nytimes.com/2025/02/02/business/tariffs-prices-consumers.html
-
-**U.A.W. president backs use of tariffs to protect jobs, but not for other policy aims.**\
-`By Neal E. Boudette`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/uaw-shawn-fain-tariffs-trump
 
