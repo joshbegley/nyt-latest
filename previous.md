@@ -1,3 +1,7 @@
+**Real Madrid slip up against Espanyol: Injury blow for Rudiger and anger over Romero's tackle on Mbappe**\
+`Madrid were furious with the refereeing as they lost to Espanyol, with the winning goal scored by a player they feel should have seen red`\
+https://nytimes.com/athletic/6105920/2025/02/02/real-madrid-mbappe-romero-tackle-rudiger-injury-referees/
+
 **Trump’s Tariffs May Complicate Efforts to Tame Inflation**\
 `Federal Reserve officials are closely watching the levies, given the expectation that such policies could lead to higher prices.`\
 https://nytimes.com/2025/02/02/us/politics/fed-trump-tariffs-interest-rates-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/world/europe/ukraine-russia-civilians-killed.html
 **The Best New Artists**\
 `Who to watch for at tonight’s Grammy Awards.`\
 https://nytimes.com/2025/02/02/briefing/the-best-new-artists.html
-
-**Rashford undergoing Villa medical ahead of loan from Man United**\
-`Marcus Rashford is undergoing a medical ahead of completing his loan move to Aston Villa from Manchester United.`\
-https://nytimes.com/athletic/6106583/2025/02/02/marcus-rashford-aston-villa-transfer-loan/
 
