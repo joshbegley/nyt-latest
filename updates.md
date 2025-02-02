@@ -1,3 +1,11 @@
+**Many Republicans Stay Quiet as Trump Orders Hefty Tariffs**\
+`Senator Rand Paul of Kentucky was among the few Republicans to voice opposition to the tariffs that would take effect on Tuesday.`\
+https://nytimes.com/2025/02/02/us/politics/republicans-trump-tariffs.html
+
+**Canada’s auto industry, long entwined with the United States, could be hit hard.**\
+`By Ian Austen`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/canadas-auto-industry-long-entwined-with-the-united-states-could-be-hit-hard
+
 **Amorim: Martinez injury a 'serious situation'**\
 `The defender was forced to leave Old Trafford on a stretcher during Sunday's Premier League defeat by Crystal Palace.`\
 https://nytimes.com/athletic/6106935/2025/02/02/manchester-united-martinez-injury-update/
