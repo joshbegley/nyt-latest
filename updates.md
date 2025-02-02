@@ -1,3 +1,7 @@
+**Newcastle reach agreement for Kelly loan to Juventus**\
+`Newcastle United have reached agreement for defender Lloyd Kelly to move to Juventus on loan with an obligation to buy.`\
+https://nytimes.com/athletic/6093947/2025/02/02/newcastle-transfers-lloyd-kelly/
+
 **The Challenges of Health Care for the Elderly**\
 `Readers respond to a column by Pamela Paul. Also: Mark Zuckerberg’s cowardice; a plan for Midtown Manhattan; a fighting spirit.`\
 https://nytimes.com/2025/02/02/opinion/health-care-elderly.html
