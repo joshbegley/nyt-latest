@@ -1,3 +1,7 @@
+**Pitch of Passenger Jet Turned Upward Just Before Deadly Collision**\
+`Transportation safety investigators are seeking to determine if the pilots of the American Airlines plane detected danger just before the midair crash with a helicopter.`\
+https://nytimes.com/2025/02/01/us/politics/american-airlines-crash-ntsb.html
+
 **C.D.C. scientists ordered to withdraw studies that use terms such as ‘L.G.B.T.’ or ‘pregnant people.’**\
 `By Apoorva Mandavilli`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/trump-gender-research

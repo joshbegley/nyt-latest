@@ -1,3 +1,7 @@
+**Pitch of Passenger Jet Turned Upward Just Before Deadly Collision**\
+`Transportation safety investigators are seeking to determine if the pilots of the American Airlines plane detected danger just before the midair crash with a helicopter.`\
+https://nytimes.com/2025/02/01/us/politics/american-airlines-crash-ntsb.html
+
 **C.D.C. scientists ordered to withdraw studies that use terms such as ‘L.G.B.T.’ or ‘pregnant people.’**\
 `By Apoorva Mandavilli`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/trump-gender-research
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/us/politics/trump-tariffs-goal.html
 **President Trump has spared Canadian oil from the steepest tariffs.**\
 `By Rebecca F. Elliott`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/president-trump-canadian-oil-tariffs
-
-**End Appears Near for U.S. Aid Agency, Democratic Lawmakers Say**\
-`A sense of crisis among aid groups was growing as U.S.A.I.D.’s website went dark.`\
-https://nytimes.com/2025/02/01/us/us-aid-agency-trump.html
 
