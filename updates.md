@@ -1,3 +1,7 @@
+**Forest set for warm weather training camp in Dubai**\
+`Nottingham Forest’s squad will fly out to Dubai for a warm weather training camp on Sunday.`\
+https://nytimes.com/athletic/6105547/2025/02/02/nottingham-forest-dubai-training-camp/
+
 **Jhon Duran: An MLS triumph, not just soccer's hot topic and an $80M man**\
 `From MLS to Saudi-league millions took Duran less than two years.`\
 https://nytimes.com/athletic/6101169/2025/02/02/jhon-duran-aston-villa-mls-chicago/

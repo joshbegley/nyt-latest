@@ -1,3 +1,7 @@
+**Forest set for warm weather training camp in Dubai**\
+`Nottingham Forest’s squad will fly out to Dubai for a warm weather training camp on Sunday.`\
+https://nytimes.com/athletic/6105547/2025/02/02/nottingham-forest-dubai-training-camp/
+
 **‘Sovereign’ Status of Manhattan Federal Prosecutor Hangs in the Balance**\
 `If Danielle R. Sassoon, the interim U.S. attorney, agrees to drop the prosecution of Mayor Eric Adams, the decision could threaten the reputation of a famously independent office.`\
 https://nytimes.com/2025/02/02/nyregion/eric-adams-charges-southern-district.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/crosswords/spelling-bee-forum.html
 **Hollinger: Why Mavs are taking huge risk by sending Luka Dončić to L.A.**\
 `This was a no-brainer for the Lakers. In Dallas, it's fair to wonder what the future holds.`\
 https://nytimes.com/athletic/6106272/2025/02/02/luka-doncic-trade-anthony-davis-lakers-hollinger/
-
-**It Was the Big One. Just Not the One L.A. Was Expecting.**\
-`Officials across the Los Angeles area had plenty of warning that a deadly confluence of wind and drought was coming. A bad fire was likely. Did they do enough to get ready?`\
-https://nytimes.com/2025/02/02/us/la-wildfires-palisades-eaton-preparations.html
 
