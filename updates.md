@@ -1,3 +1,7 @@
+**Amick: In Luka deal, Lakers swing for future 'alpha' they didn't believe they had**\
+`Sources say recent public complaints caused frustration all the way to the top of the Lakers franchise. Will Dončić quell the waters?`\
+https://nytimes.com/athletic/6106343/2025/02/02/luka-doncic-trade-lakers-anthony-davis-alpha/
+
 **Forest set for warm weather training camp in Dubai**\
 `Nottingham Forest’s squad will fly out to Dubai for a warm weather training camp on Sunday.`\
 https://nytimes.com/athletic/6105547/2025/02/02/nottingham-forest-dubai-training-camp/

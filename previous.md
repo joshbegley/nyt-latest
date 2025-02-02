@@ -1,3 +1,7 @@
+**Amick: In Luka deal, Lakers swing for future 'alpha' they didn't believe they had**\
+`Sources say recent public complaints caused frustration all the way to the top of the Lakers franchise. Will Dončić quell the waters?`\
+https://nytimes.com/athletic/6106343/2025/02/02/luka-doncic-trade-lakers-anthony-davis-alpha/
+
 **Forest set for warm weather training camp in Dubai**\
 `Nottingham Forest’s squad will fly out to Dubai for a warm weather training camp on Sunday.`\
 https://nytimes.com/athletic/6105547/2025/02/02/nottingham-forest-dubai-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6101169/2025/02/02/jhon-duran-aston-villa-mls-chica
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/02/crosswords/spelling-bee-forum.html
-
-**Hollinger: Why Mavs are taking huge risk by sending Luka Dončić to L.A.**\
-`This was a no-brainer for the Lakers. In Dallas, it's fair to wonder what the future holds.`\
-https://nytimes.com/athletic/6106272/2025/02/02/luka-doncic-trade-anthony-davis-lakers-hollinger/
 
