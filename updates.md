@@ -1,3 +1,19 @@
+**Mouse’s Bigger Cousin**\
+`Jack Scherban takes us to the playground.`\
+https://nytimes.com/2025/02/02/crosswords/daily-puzzle-2025-02-03.html
+
+**Who might break a record? Billie Eilish, Bruno Mars and Taylor Swift.**\
+`By Hank Shteamer`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/grammys-record-swift-eilish-mars
+
+**Iowa retires Caitlin Clark's jersey following upset of No. 4 USC**\
+`NCAA's all-time leading scorer "grateful and fortunate" after watching her No. 22 raised to the rafters.`\
+https://nytimes.com/athletic/6107460/2025/02/02/caitlin-clark-iowa-jersey-retirement/
+
+**Grammys Photos: All the Looks From the 2025 Red Carpet**\
+`See what nominees and performers for the 67th Grammy Awards wore to arrive for the ceremony.`\
+https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html
+
 **Trade spin: How does the pairing of Luka and LeBron impact fantasy basketball?**\
 `Stan Son breaks down the new fantasy basketball dynamics at play for the Mavericks and Lakers after their blockbuster trade.`\
 https://nytimes.com/athletic/6107498/2025/02/02/luka-lebron-anthony-davis-trade-fantasy-basketball-trade/

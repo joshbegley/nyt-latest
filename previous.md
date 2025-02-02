@@ -1,3 +1,19 @@
+**Mouse’s Bigger Cousin**\
+`Jack Scherban takes us to the playground.`\
+https://nytimes.com/2025/02/02/crosswords/daily-puzzle-2025-02-03.html
+
+**Who might break a record? Billie Eilish, Bruno Mars and Taylor Swift.**\
+`By Hank Shteamer`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/grammys-record-swift-eilish-mars
+
+**Iowa retires Caitlin Clark's jersey following upset of No. 4 USC**\
+`NCAA's all-time leading scorer "grateful and fortunate" after watching her No. 22 raised to the rafters.`\
+https://nytimes.com/athletic/6107460/2025/02/02/caitlin-clark-iowa-jersey-retirement/
+
+**Grammys Photos: All the Looks From the 2025 Red Carpet**\
+`See what nominees and performers for the 67th Grammy Awards wore to arrive for the ceremony.`\
+https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html
+
 **With wildfires blazing, the Grammys decided the show should go on.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/los-angeles-fires-grammys-2025
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6105124/2025/02/02/marcus-rashford-villa-transfer-m
 **The Jimmy Butler breakdown: Analyzing how the next major NBA trade domino could fall**\
 `Here is a look at four teams in the running for Jimmy Butler, how a deal with each could happen and what obstacles are in the way.`\
 https://nytimes.com/athletic/6106103/2025/02/02/jimmy-butler-trade-destinations-warriors-bucks-sixers-suns/
-
-**Who’s nominated and who’s performing?**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/whos-nominated-and-whos-performing
-
-**Trade War Heats Up After Trump Orders Tariffs and Canada Retaliates**\
-`Amid warnings of price increases, Canada moved quickly to retaliate, China said it had planned countermeasures, and Mexico said it would soon unveil its response.`\
-https://nytimes.com/2025/02/02/world/us-tariffs-canada-china-mexico.html
-
-**Army Identifies Helicopter Pilot Killed in Crash**\
-`Capt. Rebecca M. Lobach’s family issued a statement that described her many achievements in the service.`\
-https://nytimes.com/2025/02/02/us/politics/army-pilot-helicopter-crash.html
-
-**Trade spin: How does the pairing of Luka and LeBron impact fantasy basketball?**\
-`Stan Son breaks down the new fantasy basketball dynamics at play for the Mavericks and Lakers after their blockbuster trade.`\
-https://nytimes.com/athletic/6107498/2025/02/02/luka-lebron-anthony-davis-trade-fantasy-basketball-trade/
 
