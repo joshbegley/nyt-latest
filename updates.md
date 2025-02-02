@@ -1,3 +1,7 @@
+**Security Official at Aid Agency Put on Leave After Denying Access to Musk Team**\
+`Workers at the U.S. Agency for International Development are bracing for a loss of its independent status and sweeping layoffs as President Trump continues slashing foreign aid.`\
+https://nytimes.com/2025/02/02/us/politics/usaid-official-leave-musk.html
+
 **What Is the International Emergency Economic Powers Act?**\
 `President Trump said he was using powers granted under the law to impose tariffs on the United States’ largest trading partners.`\
 https://nytimes.com/2025/02/02/us/politics/trump-tariffs-ieepa.html
