@@ -58,6 +58,11 @@ https://nytimes.com/athletic/6106052/2025/02/01/maple-leafs-oilers-grades-analys
 `\
 https://nytimes.com/athletic/6106052/2025/02/01/maple-leafs-oilers-grades-analysis/
 
+**Maple Leafs report cards: Joseph Woll, special teams help Toronto hang on**\
+`Matthew Knies and John Tavares returned to the lineup, and Woll made 45 saves as Toronto broke a three-game losing streak in Edmonton.
+`\
+https://nytimes.com/athletic/6106052/2025/02/01/maple-leafs-oilers-grades-analysis/
+
 **China Assails Trump Tariffs and Threatens ‘Countermeasures’**\
 `China’s Ministry of Commerce said it would file a legal case at the World Trade Organization, but signaled it still wanted a stable relationship with the U.S.`\
 https://nytimes.com/2025/02/01/us/politics/china-trump-tariffs.html
