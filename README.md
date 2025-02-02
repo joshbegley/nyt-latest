@@ -1,3 +1,7 @@
+**What Is the International Emergency Economic Powers Act?**\
+`President Trump said he was using powers granted under the law to impose tariffs on the United States’ largest trading partners.`\
+https://nytimes.com/2025/02/02/us/politics/trump-tariffs-ieepa.html
+
 **Rescuers Search for Survivors After Missile Strike in Ukraine**\
 `Ukrainian officials said at least 14 people were killed in Poltava, Ukraine, after a Russian missile hit a residential building in the city, which is nearly 150 miles from the front lines.`\
 https://nytimes.com/video/world/europe/100000009965641/ukraine-russia-missile-poltava.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/politics/vance-duffy-trump-dei-crash.html
 **Top F.B.I. Agent in New York Vows to ‘Dig In’ After Removals at Agency**\
 `James E. Dennehy, the highly respected leader of the largest and most important field office in the bureau, said the F.B.I. was in a “battle of our own.”`\
 https://nytimes.com/2025/02/02/us/politics/fbi-new-york-email-trump.html
-
-**The Briefing: Lewis-Skelly's moment, Nwaneri's magic and so many City errors**\
-`Our writers analyse the key talking points as Arsenal thrashed the reigning champions at the Emirates`\
-https://nytimes.com/athletic/6097469/2025/02/02/arsenal-manchester-city-premier-league-lewis-skelly-nwaneri-haaland/
 
