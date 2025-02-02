@@ -1,3 +1,7 @@
+**How did Mavs go from NBA Finals to trading Luka Dončić under than a year?**\
+`Time will tell if Dallas can actually be a contender again without one of the brightest offensive talents in NBA history.`\
+https://nytimes.com/athletic/6106419/2025/02/02/mavericks-reasons-luka-doncic-anthony-davis-trade-nba/
+
 **Salah's future and whether it's breaking records or Saudi Arabia**\
 `Salah must be looking at his Premier League legacy. Is he ready to walk away from the big stage when he's performing at such a high level?`\
 https://nytimes.com/athletic/6105917/2025/02/02/mohamed-salah-liverpool-future-records/
