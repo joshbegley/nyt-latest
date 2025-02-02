@@ -35,6 +35,6 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/grammys-record-swift-eilis
 https://nytimes.com/athletic/6107460/2025/02/02/caitlin-clark-iowa-jersey-retirement/
 
 **Grammys Photos: All the Looks From the 2025 Red Carpet**\
-`See what nominees and performers for the 67th Grammy Awards, including Chappell Roan, Kacey Musgraves and Brittany Howard, wore to arrive for the ceremony.`\
+`See what nominees and guests for the 67th Grammy Awards, including Sabrina Carpenter, Chappell Roan and Ye, wore to arrive for the ceremony.`\
 https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html
 
