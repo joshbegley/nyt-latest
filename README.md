@@ -1,3 +1,7 @@
+**Security Official at Aid Agency Put on Leave After Denying Access to Musk Team**\
+`Workers at the U.S. Agency for International Development are bracing for a loss of its independent status and sweeping layoffs as President Trump continues slashing foreign aid.`\
+https://nytimes.com/2025/02/02/us/politics/security-official-at-aid-agency-put-on-leave-after-denying-access-to-musk-team.html
+
 **Houston Flight Evacuated Before Takeoff Because of Engine Fire, Video Shows**\
 `A video on social media showed smoke and flames coming from one of the engines of a United Airlines flight headed for LaGuardia Airport in New York.`\
 https://nytimes.com/2025/02/02/us/united-airlines-houston-engine-fire.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/02/02/us/chicago-ohare-airport-tug-plane-collision.html
 https://nytimes.com/2025/02/02/us/politics/vance-duffy-trump-dei-crash.html
 
 **Top F.B.I. Agent in New York Vows to ‘Dig In’ After Removals at Agency**\
-`James E. Dennehy, the highly-respected leader of the largest and most important field office in the bureau, said the F.B.I. was in a “battle of our own.”`\
+`James E. Dennehy, the highly respected leader of the largest and most important field office in the bureau, said the F.B.I. was in a “battle of our own.”`\
 https://nytimes.com/2025/02/02/us/politics/fbi-new-york-email-trump.html
 
 **The Briefing: Lewis-Skelly's moment, Nwaneri's magic and so many City errors**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097469/2025/02/02/arsenal-manchester-city-premier-
 **Blue Jackets Sunday Gathering: Behind Dean Evason's passionate post-win punches**\
 `Some of the best punches this season have been thrown on the Blue Jackets' bench as the final horn sounds on a Columbus win.`\
 https://nytimes.com/athletic/6104894/2025/02/02/blue-jackets-dean-evason-win/
-
-**How Luka trade affected NBA title odds: Lakers surge, Mavs drop; Celtics, Thunder on top**\
-`The Lakers' title odds moved significantly after the Luka Doncic trade from Dallas, but Boston and Oklahoma City are still the favorites.`\
-https://nytimes.com/athletic/6107007/2025/02/02/luka-doncic-trade-nba-title-odds-lakers-mavs-celtics/
 
