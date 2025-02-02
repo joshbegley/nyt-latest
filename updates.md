@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6106052/2025/02/01/maple-leafs-oilers-grades-analys
 `\
 https://nytimes.com/athletic/6106052/2025/02/01/maple-leafs-oilers-grades-analysis/
 
+**Maple Leafs report cards: Joseph Woll, special teams help Toronto hang on**\
+`Matthew Knies and John Tavares returned to the lineup, and Woll made 45 saves as Toronto broke a three-game losing streak in Edmonton.
+`\
+https://nytimes.com/athletic/6106052/2025/02/01/maple-leafs-oilers-grades-analysis/
+
 **How yet another sluggish start buried Oilers in loss to Maple Leafs**\
 `The Oilers buried themselves in a hole after allowing three goals to the Maple Leafs in the first period of a 4-3 loss.`\
 https://nytimes.com/athletic/6106129/2025/02/01/oilers-maple-leafs-score-loss/
