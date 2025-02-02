@@ -1,3 +1,7 @@
+**Trump Tariffs Threaten to Upend Global Economic Order**\
+`The invoking of national security to unravel trade agreements could scramble the international trading system in China’s favor.`\
+https://nytimes.com/2025/02/02/us/politics/trump-tariffs-global-economic-order.html
+
 **Michael Katz, 85, Dies; Wrote About Boxing With Passion and Humor**\
 `Writing for The New York Times and The Daily News, he was known for his combative style and relished tweaking the powerful people in the sport.`\
 https://nytimes.com/2025/02/02/sports/michael-katz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/canada/100000009965423/canada-trudeau-retaliator
 **What Is the International Emergency Economic Powers Act?**\
 `President Trump said he was using powers granted under the law to impose tariffs on the United States’ largest trading partners.`\
 https://nytimes.com/2025/02/02/us/politics/trump-tariffs-ieepa.html
-
-**Rescuers Search for Survivors After Missile Strike in Ukraine**\
-`Ukrainian officials said at least 14 people were killed in Poltava, Ukraine, after a Russian missile hit a residential building in the city, which is nearly 150 miles from the front lines.`\
-https://nytimes.com/video/world/europe/100000009965641/ukraine-russia-missile-poltava.html
 
