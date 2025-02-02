@@ -1,40 +1,40 @@
-**Young Women Are Transforming Pop. Now They’re Taking On the Grammys.**\
-`A close-up look at Sabrina Carpenter, Charli XCX, Billie Eilish and Chappell Roan — and their loyal fans.`\
-https://nytimes.com/card/2025/02/02/arts/music/billie-eilish-charli-xcx-chappell-roan-sabrina-carpenter
+**‘We Have No Coherent Message’: Democrats Struggle to Oppose Trump**\
+`More than 50 interviews with Democratic leaders revealed a party struggling to decide what it believes in, what issues to prioritize and how to confront an aggressive right-wing administration.`\
+https://nytimes.com/2025/02/02/us/politics/democrats-trump.html
 
-**Newcastle support Willock after 'appalling' racist abuse**\
-`Newcastle United have spoken out in support of Joe Willock after the midfielder was subjected to racist abuse online after Saturday&#8217;s Premier League defeat by Fulham.`\
-https://nytimes.com/athletic/6106448/2025/02/02/joe-willock-racism-instagram-newcastle/
+**Many Americans Say the Democratic Party Does Not Share Their Priorities**\
+`A poll from The New York Times and Ipsos found that Americans believe abortion, L.G.B.T.Q. issues and climate change concern Democrats more than the cost of living.`\
+https://nytimes.com/2025/02/02/us/democrats-ipsos-poll-abortion-lgbt.html
 
-**Spurs sign Danso from Lens on loan before permanent transfer**\
-`Tottenham Hotspur have completed the signing of central defender Kevin Danso from Lens.`\
-https://nytimes.com/athletic/6101030/2025/02/02/tottenham-transfers-kevin-danso/
+**This Republican Senator Says Trump Needs to Hear Dissent. Will He Speak Up?**\
+`Senator John Curtis prides himself on collaborating with people who disagree with him. But with a Republican trifecta in place, it’s not clear whether Mitt Romney’s successor will follow in his footsteps.`\
+https://nytimes.com/2025/02/02/us/this-republican-senator-says-trump-needs-to-hear-dissent-will-he-speak-up.html
 
-**West Ham reach agreement for Ferguson loan from Brighton**\
-`West Ham United have reached an agreement to sign Brighton &amp; Hove Albion striker Evan Ferguson on loan.`\
-https://nytimes.com/athletic/6096479/2025/02/02/west-ham-evan-ferguson-transfer-loan/
+**Trump Favors Blunt Force in Dealing With Foreign Allies and Enemies Alike**\
+`With Canada, Mexico, China, Colombia and the Middle East, President Trump has wasted no time threatening to use American might to force recalcitrant countries to back down and do what he wants.`\
+https://nytimes.com/2025/02/02/us/politics/trump-tariffs-migrants-power.html
 
-**Amick: In Luka-AD deal, Lakers swing for future 'alpha' they didn't believe they had**\
-`Sources say recent public complaints caused frustration all the way to the top of the Lakers franchise. Will Dončić quell the waters?`\
-https://nytimes.com/athletic/6106343/2025/02/02/luka-doncic-trade-lakers-anthony-davis-alpha/
+**How Weight-Loss Drugs Can Upend a Marriage**\
+`Doctors warn about their physical side effects, but they can also have unexpected effects on intimacy.`\
+https://nytimes.com/2025/02/02/magazine/weight-loss-side-effects-sex-ozempic.html
 
-**Forest set for warm weather training camp in Dubai**\
-`Nottingham Forest’s squad will fly out to Dubai for a warm weather training camp on Sunday.`\
-https://nytimes.com/athletic/6105547/2025/02/02/nottingham-forest-dubai-training-camp/
+**Syria’s New Interim President Travels to Saudi Arabia for First Foreign Visit**\
+`Ahmed al-Shara’s trip to Riyadh, where he spent his childhood, offers clues about his vision for a post-Assad Syria.`\
+https://nytimes.com/2025/02/02/world/middleeast/syria-saudi-arabia-interim-president-visit.html
 
-**‘Sovereign’ Status of Manhattan Federal Prosecutor Hangs in the Balance**\
-`If Danielle R. Sassoon, the interim U.S. attorney, agrees to drop the prosecution of Mayor Eric Adams, the decision could threaten the reputation of a famously independent office.`\
-https://nytimes.com/2025/02/02/nyregion/eric-adams-charges-southern-district.html
+**N.Y.U. Dorm Is Retrofitted to Be Sustainable**\
+`The university spent $7 million to transform the building to limit energy usage and costs, and boost the satisfaction of students.`\
+https://nytimes.com/2025/02/02/realestate/nyu-dorm-is-retrofitted-to-be-sustainable.html
 
-**The Wardrobe for a Storybook Life**\
-`A fairy-tale quality connected much of the fashion at couture week in Paris.`\
-https://nytimes.com/2025/02/02/style/paris-couture-fashion-week.html
+**Grieving the End of a Literary Couple’s Globetrotting Life**\
+`In “Memorial Days,” Geraldine Brooks retreats to an island off Australia hoping to pick up the pieces after the sudden death of her husband.`\
+https://nytimes.com/2025/02/02/books/review/memorial-days-geraldine-brooks.html
 
-**The Marks of a Good Lunch**\
-`Beginning in 1924, prominent guests of the publisher autographed leather-bound books during their visits to The Times’s headquarters.`\
-https://nytimes.com/2025/02/02/insider/the-marks-of-a-good-lunch.html
+**Why Banks May Be Hoping You’re Not Paying Attention**\
+`They have no fiduciary duty in many cases and can profit from customers’ confusion. But where’s the line between unsavory and illegal?`\
+https://nytimes.com/2025/02/02/upshot/capital-one-savings-interest.html
 
-**The South Bronx Has a Pollution Issue. Congestion Pricing May Worsen It.**\
-`Preliminary data from the first few weeks of New York City’s tolling plan show a possible uptick in traffic in the neighborhood.`\
-https://nytimes.com/2025/02/02/nyregion/congestion-pricing-air.html
+**Old Prisons Are Being Converted Into Stylish Apartments (Really)**\
+`The number of incarcerated people nationwide has declined, and almost 200 correctional facilities have closed in the past 20 years. The sites are being repurposed.`\
+https://nytimes.com/2025/02/02/business/prison-conversion-housing.html
 
