@@ -1,3 +1,7 @@
+**Social media stunned as Lakers trade Anthony Davis to Mavericks for Luka Dončić **\
+`The sports world reacted as the Lakers and Mavericks made a trade no one could have expected. `\
+https://nytimes.com/athletic/6106266/2025/02/02/luka-doncic-anthony-davis-lakers-mavericks-social-media/
+
 **Duke's blowout over UNC shows Tobacco Road rivals are moving in opposite directions**\
 `Losing a rivalry game is one thing. Getting blown out is rarer, but it happens. But getting tripled up in the first half? "They whupped us."`\
 https://nytimes.com/athletic/6106242/2025/02/02/duke-blows-out-unc/

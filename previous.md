@@ -1,3 +1,7 @@
+**Social media stunned as Lakers trade Anthony Davis to Mavericks for Luka Dončić **\
+`The sports world reacted as the Lakers and Mavericks made a trade no one could have expected. `\
+https://nytimes.com/athletic/6106266/2025/02/02/luka-doncic-anthony-davis-lakers-mavericks-social-media/
+
 **Duke's blowout over UNC shows Tobacco Road rivals are moving in opposite directions**\
 `Losing a rivalry game is one thing. Getting blown out is rarer, but it happens. But getting tripled up in the first half? "They whupped us."`\
 https://nytimes.com/athletic/6106242/2025/02/02/duke-blows-out-unc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099538/2025/02/02/chelsea-maresca-form-west-ham/
 **Michael Carrick and his 'bittersweet' season at Middlesbrough**\
 `Boro go into the Tees-Wear derby on Monday night with their season yet to ignite and home form an ongoing concern`\
 https://nytimes.com/athletic/6103207/2025/02/02/carrick-middlesbrough-gibson-championship-promotion/
-
-**From 0-5 to 7-0: How a rampaging Nottingham Forest proved they belong in the Premier League's top four**\
-`Nuno Espirito Santo said that his side would be 'perfect' against Brighton - he was not wrong`\
-https://nytimes.com/athletic/6105476/2025/02/02/nottingham-forest-brighton-seven-goals/
 
