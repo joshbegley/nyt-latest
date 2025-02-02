@@ -1,3 +1,7 @@
+**Jaden Smith Wears a Castle on the 2025 Grammys Red Carpet**\
+`The headpiece, which itself was turning heads Sunday night, was sculpted by the designer Dora Abodi.`\
+https://nytimes.com/2025/02/02/arts/music/jaden-smith-castle-grammys.html
+
 **OpenAI Unveils A.I. Tool That Can Do Research Online**\
 `The tool, called Deep Research, arrives days after OpenAI released another one, which shops for groceries and books restaurant reservations.`\
 https://nytimes.com/2025/02/02/technology/openai-deep-research-tool.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6107870/2025/02/02/sabres-devils-tage-thompson-stef
 https://nytimes.com/athletic/6107929/2025/02/02/james-ward-prowse-west-ham-forest/
 
 **10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
-`Summary`\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/02/02/us/hunters-in-the-snow.html
 
 **With most celebrations canceled, two Grammy parties carry on.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/02/us/trump-tariffs/mexico-economy-trump-tariff
 **Kendrick Lamar’s ‘Not Like Us’ could become the rare rap song to win big.**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-not-like-us-grammys-2025
-
-**Raiders hiring Ohio State OC Chip Kelly in same role**\
-`In his lone season with the Buckeyes, Kelly helped lead them to a victory in the 2024 College Football Playoff National Championship`\
-https://nytimes.com/athletic/6107799/2025/02/02/chip-kelly-raiders-offensive-coordinator-ohio-state-nfl/
 
