@@ -1,3 +1,7 @@
+**Millicent Dillon, Chronicler of Jane and Paul Bowles, Dies at 99**\
+`A novelist and short-story writer, she devoted years to a nonfiction project examining of the lives of two eccentric authors who spent decades in Morocco.`\
+https://nytimes.com/2025/02/02/books/millicent-dillon-dead.html
+
 **South Carolina retires A'ja Wilson's jersey: ‘I’m super blessed’**\
 `Wilson has had a bronze statue outside of Colonial Life Arena since 2021, and fans will now also be able to see her jersey in the rafters`\
 https://nytimes.com/athletic/6106894/2025/02/02/south-carolina-aja-wilson-jersey-retirement-auburn/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/dining/bacon-egg-cheese-kimchi-sandwich.html
 **The Briefing: Brentford 0 Spurs 2 - relief for Postecoglou, Spence's importance and Danso's arrival**\
 `Jay Harris and Jack Pitt-Brooke analyse the key talking points from Tottenham's much-needed victory at Brentford`\
 https://nytimes.com/athletic/6096757/2025/02/02/brentford-tottenham-hotspur-premier-league-analysis/
-
-**Mikey Lewis, Saint Mary's freshman and prodigal Oakland hooper, returns home**\
-`Oakland basketball star Mikey Lewis got what he wanted from his journey. As fate would have it, that journey brought him home.`\
-https://nytimes.com/athletic/6106509/2025/02/02/saint-marys-mikey-lewis-oakland-basketball/
 
