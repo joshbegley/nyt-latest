@@ -1,8 +1,12 @@
+**What is the biggest win in Premier League history?**\
+`Nottingham Forest thrashed Brighton 7-0 on Saturday — but that's not enough to even get into the top 10 for biggest margins of victory...`\
+https://nytimes.com/athletic/6104882/2025/02/02/biggest-win-premier-league-history-victory/
+
 **Emery is an expert at rejuvenating footballers' careers - can he do it with Rashford?**\
 `Aston Villa view Rashford as a multi-faceted attacker - this is how he might fit into their starting XI `\
 https://nytimes.com/athletic/6105417/2025/02/02/marcus-rashford-aston-villa-emery-tactics/
 
-**Wild embarrassed after getting routed by Senators as Ryan Hartman faces possible suspension: 4 takeaways**\
+**Wild embarrassed after rout by Senators, Ryan Hartman faces possible suspension: 4 takeaways**\
 `The veteran forward received a five-minute match penalty for intent to injure after shoving Tim Stützle’s head into the ice after a faceoff.`\
 https://nytimes.com/athletic/6106122/2025/02/02/wild-senators-ryan-hartman-penalty-suspension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/politics/canada-trump-tariffs.html
 **Trump’s Tariffs Put China in a Difficult Spot**\
 `China chose swift retaliation for trade measures in the first Trump administration, but that led to an upward spiral of trade measures and much broader tariffs.`\
 https://nytimes.com/2025/02/02/business/trump-tariffs-china.html
-
-**The Divine, the Digital and the Political at Humanity’s Largest Gathering**\
-`The Maha Kumbh Mela, a Hindu festival in India that is drawing hundreds of millions of pilgrims, is a powerful marketing tool for Prime Minister Narendra Modi and his allies.`\
-https://nytimes.com/2025/02/02/world/asia/india-maha-kumbh-mela.html
 
