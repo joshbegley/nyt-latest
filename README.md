@@ -1,3 +1,7 @@
+**Newcastle reach agreement for Kelly loan to Juventus**\
+`Newcastle have reached agreement for defender Lloyd Kelly to move to Juventus on loan with an obligation to buy.`\
+https://nytimes.com/athletic/6093947/2025/02/02/newcastle-transfers-lloyd-kelly/
+
 **The Challenges of Health Care for the Elderly**\
 `Readers respond to a column by Pamela Paul. Also: Mark Zuckerberg’s cowardice; a plan for Midtown Manhattan; a fighting spirit.`\
 https://nytimes.com/2025/02/02/opinion/health-care-elderly.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106583/2025/02/02/marcus-rashford-aston-villa-tran
 **Luis Rubiales: The man at the centre of a football scandal that stunned the world**\
 `A profile of the man who overshadowed Spain's historic Women's World Cup win and is standing trial for alleged sexual assault and coercion`\
 https://nytimes.com/athletic/6099437/2025/02/02/luis-rubiales-profile-trial-hermoso-world-cup/
-
-**24 hours with Wrexham: One record fee, two statement signings and three points in the promotion race**\
-`Phil Parkinson chucked Sam Smith and Jay Rodriguez into Wrexham's starting XI to play Crawley — and was rewarded with a win `\
-https://nytimes.com/athletic/6104732/2025/02/02/crawley-wrexham-sam-smith-jay-rodriguez/
 
