@@ -1,3 +1,7 @@
+**Looking to calm your nerves? Here are 4 tips from Super Bowl champions**\
+`The tools Super Bowl champions used to cope with pressure can be applied to a job interview, a class presentation or any big moment in life.`\
+https://nytimes.com/athletic/6103463/2025/02/02/looking-to-calm-your-nerves-here-are-4-tips-from-super-bowl-champions/
+
 **Russia, Seeking to Salvage Military Bases, Goes Hat in Hand to Syria**\
 `The arrival of the first top Russian diplomat in Damascus since Bashar al-Assad’s fall kicks off negotiations over the fate of Moscow’s bases in Syria.`\
 https://nytimes.com/2025/02/02/world/europe/russia-syria-bases.html
