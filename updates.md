@@ -1,3 +1,19 @@
+**LeBron James not intending on waiving no-trade clause after Dončić deal**\
+`James, 40, has a no-trade clause in the two-year, $101.4 million contract he signed with the Lakers last summer.`\
+https://nytimes.com/athletic/6107493/2025/02/02/lebron-james-no-trade-clause-lakers-luka-doncic/
+
+**Monday Briefing: Trump Ends Protections for Venezuelans**\
+`Plus, a lobster war in Nova Scotia.`\
+https://nytimes.com/2025/02/02/briefing/trump-venezuela-syria-saudis-ukraine-civilians.html
+
+**As Cuomo Considers Bid for Mayor, His Allies Prepare a Super PAC**\
+`Former Gov. Andrew Cuomo has not entered the race for mayor of New York City. But private planning suggests he is laying the groundwork to do so.`\
+https://nytimes.com/2025/02/02/nyregion/cuomo-super-pac-mayor.html
+
+**Canadian fans boo U.S. anthem ahead of Raptors-Clippers game**\
+`Canadians are displeased with the actions of U.S. President Donald Trump, who placed 25-percent tariffs on Canada on Saturday.`\
+https://nytimes.com/athletic/6107484/2025/02/02/raptors-fans-boo-us-national-anthem-clippers-toronto/
+
 **Trump Tariffs Threaten to Upend Global Economic Order**\
 `The invoking of national security to unravel trade agreements could scramble the international trading system in China’s favor.`\
 https://nytimes.com/2025/02/02/us/politics/trump-tariffs-global-economic-order.html
