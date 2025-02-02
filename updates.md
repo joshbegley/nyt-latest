@@ -1,3 +1,11 @@
+**The Best New Artists**\
+`Who to watch for at tonight’s Grammy Awards.`\
+https://nytimes.com/2025/02/02/briefing/the-best-new-artists.html
+
+**Rashford undergoing Villa medical ahead of loan from Man United**\
+`Marcus Rashford is undergoing a medical ahead of completing his loan move to Aston Villa from Manchester United.`\
+https://nytimes.com/athletic/6106583/2025/02/02/marcus-rashford-aston-villa-transfer-loan/
+
 **Luis Rubiales: The man at the centre of a football scandal that stunned the world**\
 `A profile of the man who overshadowed Spain's historic Women's World Cup win and is standing trial for alleged sexual assault and coercion`\
 https://nytimes.com/athletic/6099437/2025/02/02/luis-rubiales-profile-trial-hermoso-world-cup/
