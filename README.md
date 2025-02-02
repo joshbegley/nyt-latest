@@ -1,3 +1,7 @@
+**John Calipari's return to Kentucky results in boos and an unexpected victory**\
+`Arkansas, loser of six of its previous seven entering the game, refused to let down its coach in his return to Big Blue Nation.`\
+https://nytimes.com/athletic/6106265/2025/02/02/john-calipari-kentucky-homecoming-arkansas/
+
 **Social media stunned as Lakers trade Anthony Davis to Mavericks for Luka Dončić **\
 `The sports world reacted as the Lakers and Mavericks made a trade no one could have expected. `\
 https://nytimes.com/athletic/6106266/2025/02/02/luka-doncic-anthony-davis-lakers-mavericks-social-media/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104857/2025/02/02/brighton-forest-seven-factors-ex
 **What do Chelsea need to do to instigate a return to form?**\
 `Enzo Maresca's side have won only once in the league since mid-December, but there are changes he could make to kickstart an upturn`\
 https://nytimes.com/athletic/6099538/2025/02/02/chelsea-maresca-form-west-ham/
-
-**Michael Carrick and his 'bittersweet' season at Middlesbrough**\
-`Boro go into the Tees-Wear derby on Monday night with their season yet to ignite and home form an ongoing concern`\
-https://nytimes.com/athletic/6103207/2025/02/02/carrick-middlesbrough-gibson-championship-promotion/
 
