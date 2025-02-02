@@ -1,3 +1,19 @@
+**3 Mexican Sectors Most Affected by U.S. Tariffs, and How the Country Could Respond**\
+`President Trump’s tariffs will have major effects on Mexico’s auto industry, agriculture and energy, but the country has some means for responding.`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/mexico-economy-trump-tariffs
+
+**Kendrick Lamar’s ‘Not Like Us’ could become the rare rap song to win big.**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-not-like-us-grammys-2025
+
+**Raiders hiring Ohio State OC Chip Kelly in same role**\
+`In his lone season with the Buckeyes, Kelly helped lead them to a victory in the 2024 College Football Playoff National Championship`\
+https://nytimes.com/athletic/6107799/2025/02/02/chip-kelly-raiders-offensive-coordinator-ohio-state-nfl/
+
+**Rory McIlroy wins at Pebble Beach for 27th PGA Tour victory**\
+`McIlroy shot a final-round 66 at an iconic course he's never won at before during his career.`\
+https://nytimes.com/athletic/6107744/2025/02/02/rory-mcilroy-pebble-beach-pga-tour-win/
+
 **Bobby Witt Jr. for Mike Trout? Jacob deGrom for Paul Skenes? The Luka Dončić trade in baseball terms**\
 `We thought we’d lean into our experience covering the NBA and MLB, and imagine the baseball equivalent of the Dončić-Davis trade.`\
 https://nytimes.com/athletic/6107800/2025/02/02/luka-doncic-trade-in-baseball-terms/
