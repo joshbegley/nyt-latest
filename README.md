@@ -1,3 +1,15 @@
+**Chelsea's Chukwuemeka joining Dortmund on loan**\
+`Chukwuemeka, 21, has not featured in the Premier League for Chelsea this season and has only started one match in the Conference League.`\
+https://nytimes.com/athletic/6063465/2025/02/02/chelsea-transfers-chukwuemeka-dortmund/
+
+**Grammys 2025: Winners List**\
+`An updating rundown of the artists, albums, songs and videos that took home trophies at the 67th annual awards.`\
+https://nytimes.com/2025/02/02/admin/test.html
+
+**Serbian State Media Shift Tune in Coverage of Huge Protests, Testing Leader**\
+`State TV had previously largely ignored the demonstrations against President Aleksandar Vucic, but now it is putting a spotlight on the rallies.`\
+https://nytimes.com/2025/02/02/world/europe/protests-serbia-president.html
+
 **LeBron James not intending on waiving no-trade clause after Dončić deal**\
 `James, 40, has a no-trade clause in the two-year, $101.4 million contract he signed with the Lakers last summer.`\
 https://nytimes.com/athletic/6107493/2025/02/02/lebron-james-no-trade-clause-lakers-luka-doncic/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/02/sports/michael-katz-dead.html
 **Canada published a long list of U.S. goods to be covered by its own tariffs.**\
 `By Matina Stevis-Gridneff and Ian Austen`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/canada-published-a-long-list-of-us-goods-to-be-covered-by-its-own-tariffs
-
-**Karen Pryor, Guru of Positive Reinforcement, Is Dead at 92**\
-`She was so successful at training dolphins that she began applying the same techniques to other creatures, including dogs — and humans.`\
-https://nytimes.com/2025/02/02/us/karen-pryor-dead.html
-
-**From liquor to dishwashers, Canada details U.S. goods it will hit with tariffs.**\
-`By Matina Stevis-Gridneff`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/from-liquor-to-dishwashers-canada-details-us-goods-it-will-hit-with-tariffs
-
-**Former baseball commissioner Fay Vincent dies at 86**\
-`Vincent presided over MLB for three years as the league's commissioner.`\
-https://nytimes.com/athletic/5937951/2025/02/02/fay-vincent-obituary/
 
