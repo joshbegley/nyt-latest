@@ -1,3 +1,7 @@
+**Why Matt Poitras’ offensive development is a leading factor in the Bruins’ retool**\
+`The fact the 20-year-old center flashes skills as an offensive driver is a good thing for the Bruins.`\
+https://nytimes.com/athletic/6105913/2025/02/01/bruins-matt-poitras-retool/
+
 **'A thousand reasons' for J.T. Miller to come to New York, be part of new Rangers core**\
 `Miller lost in his Rangers debut despite scoring two goals, but his main focus is on getting New York back into the playoff picture.`\
 https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
