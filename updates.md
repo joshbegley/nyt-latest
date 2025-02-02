@@ -1,3 +1,7 @@
+**Vance and Duffy Echo Trump in Blaming D.E.I. for Crash Near Washington**\
+`The vice president and transportation secretary claimed on Sunday that diversity hiring efforts had affected staffing levels among air traffic controllers.`\
+https://nytimes.com/2025/02/02/us/politics/vance-duffy-trump-dei-crash.html
+
 **Top F.B.I. Agent in New York Vows to ‘Dig In’ After Removals at Agency**\
 `James E. Dennehy, the highly-respected leader of the largest and most important field office in the bureau, said the F.B.I. was in a “battle of our own.”`\
 https://nytimes.com/2025/02/02/us/politics/fbi-new-york-email-trump.html
