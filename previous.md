@@ -1,3 +1,7 @@
+**After Luka Dončić trade, Lakers suddenly well-positioned for post-LeBron James era**\
+`In the short term, the Lakers' roster is probably worse and might need some additional bolstering. But the future looks bright in Hollywood.`\
+https://nytimes.com/athletic/6106365/2025/02/02/luka-doncic-lebron-james-lakers-trade-nba/
+
 **Ukraine Says at Least 18 Civilians Are Killed in Strikes**\
 `At least 14 people were killed in the city of Poltava, Ukrainian officials said, blaming Russia. Four people were killed in Sudzha, a Russian town held by Ukraine, in a strike both countries blamed on each other.`\
 https://nytimes.com/2025/02/02/world/europe/ukraine-russia-civilians-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6073035/2025/02/02/patrick-dorgu-manchester-united-
 **Five pressing topics for NFL commissioner Roger Goodell to address at Super Bowl**\
 `Goodell can likely expect questions Monday about progress on an 18-game season, the state of officiating, rules changes and more.`\
 https://nytimes.com/athletic/6103740/2025/02/02/nfl-commissioner-roger-goodell-2025-super-bowl/
-
-**Beyoncé Is America. Give Her the Grammy.**\
-`Her album “Cowboy Carter” deserves to win album of the year but not for the reasons you think.`\
-https://nytimes.com/2025/02/02/opinion/beyonce-grammys-cowboy-carter.html
 

@@ -1,3 +1,7 @@
+**After Luka Dončić trade, Lakers suddenly well-positioned for post-LeBron James era**\
+`In the short term, the Lakers' roster is probably worse and might need some additional bolstering. But the future looks bright in Hollywood.`\
+https://nytimes.com/athletic/6106365/2025/02/02/luka-doncic-lebron-james-lakers-trade-nba/
+
 **Ukraine Says at Least 18 Civilians Are Killed in Strikes**\
 `At least 14 people were killed in the city of Poltava, Ukrainian officials said, blaming Russia. Four people were killed in Sudzha, a Russian town held by Ukraine, in a strike both countries blamed on each other.`\
 https://nytimes.com/2025/02/02/world/europe/ukraine-russia-civilians-killed.html

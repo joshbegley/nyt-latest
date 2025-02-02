@@ -1,3 +1,7 @@
+**Salah's future and whether it's breaking records or Saudi Arabia**\
+`Salah must be looking at his Premier League legacy. Is he ready to walk away from the big stage when he's performing at such a high level?`\
+https://nytimes.com/athletic/6105917/2025/02/02/mohamed-salah-liverpool-future-records/
+
 **After Luka Dončić trade, Lakers suddenly well-positioned for post-LeBron James era**\
 `In the short term, the Lakers' roster is probably worse and might need some additional bolstering. But the future looks bright in Hollywood.`\
 https://nytimes.com/athletic/6106365/2025/02/02/luka-doncic-lebron-james-lakers-trade-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-
 **Patrick Dorgu joins Man United - His strengths, weaknesses and what he can bring to Amorim's side**\
 `Patrick Dorgu has completed his move to Manchester United and is a potential solution to Amorim's wing-back problem`\
 https://nytimes.com/athletic/6073035/2025/02/02/patrick-dorgu-manchester-united-transfers-signing-strengths/
-
-**Five pressing topics for NFL commissioner Roger Goodell to address at Super Bowl**\
-`Goodell can likely expect questions Monday about progress on an 18-game season, the state of officiating, rules changes and more.`\
-https://nytimes.com/athletic/6103740/2025/02/02/nfl-commissioner-roger-goodell-2025-super-bowl/
 
