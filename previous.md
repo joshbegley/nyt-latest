@@ -1,8 +1,12 @@
+**U.S. claims cartels have an ‘alliance’ with Mexico’s government.**\
+`Justifying the tariffs, the Trump administration contended that Mexico’s government affords “safe havens” to cartels. Mexico’s president vigorously rejected this claim.`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/us-claims-cartels-have-an-alliance-with-mexicos-government
+
 **There were 'a thousand reasons' for J.T. Miller to come to New York and be part of new Rangers core**\
 `Miller lost in his Rangers debut despite scoring two goals, but his main focus is on getting New York back into the playoff picture.`\
 https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
 
-**Trump’s Canada and Mexico Tariffs Could Hurt Some Carmakers**\
+**Trump’s Canada and Mexico Tariffs Could Hurt Carmakers**\
 `General Motors and a few other companies make as much as 40 percent of their North American cars and trucks in Canada and Mexico, leaving them vulnerable to tariffs.`\
 https://nytimes.com/2025/02/01/business/economy/tariffs-trump-automakers-canada-mexico.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105856/2025/02/01/usc-michigan-state-tom-izzo-big-
 **Mexico faces a devastating economic blow from the tariffs.**\
 `Mexico relies heavily on exports to the United States, making its economy especially vulnerable to the new tariffs imposed by President Trump.`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/mexico-faces-a-devastating-economic-blow-from-the-tariffs
-
-**Blackhawks' Frank Nazar remains unflappable through the ups and downs of rookie season**\
-`Whether it's receiving critique or getting bumped from the top line, Nazar's resiliency and confidence are rare for a rookie in the NHL.`\
-https://nytimes.com/athletic/6105756/2025/02/01/blackhawks-rookie-frank-nazar/
 
