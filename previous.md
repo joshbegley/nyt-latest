@@ -1,3 +1,11 @@
+**Here’s what to know.**\
+`By Matina Stevis-Gridneff, Mike Ives, Ana Swanson and Alan Rappeport`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
+
+**Rory McIlroy and a Sunday at Pebble Beach, where it all feels possible**\
+`An afternoon of PGA Tour viewing in tough conditions was always going to be good, but McIlroy's bogey-free 7-under 65 made it theater.`\
+https://nytimes.com/athletic/6105753/2025/02/01/rory-mcilroy-pebble-beach/
+
 **Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
 `Grant identifies Lesnar as the man who McMahon offered to have sex with Grant in 2021.`\
 https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/trump-gender-research
 **Jack Bech catches winning TD in Senior Bowl, honors late brother**\
 `Bech, wearing a No. 7 jersey for his late brother, was named the Senior Bowl MVP.`\
 https://nytimes.com/athletic/6105804/2025/02/01/tcu-jack-tiger-bech-senior-bowl-new-orleans/
-
-**Hyperbaric Chamber Explosion Kills 5-Year-Old Boy**\
-`The boy was receiving medical treatment at a Michigan medical center when the chamber exploded on Friday, the authorities said. His mother was also injured.`\
-https://nytimes.com/2025/02/01/us/boy-killed-hyperbaric-chamber-explosion-michigan.html
-
-**Bears expected to hire Eric Bieniemy as RBs coach**\
-`Bienemy overlapped with Bears GM Ryan Poles while with the Chiefs and with president/CEO Kevin Warren during his time coaching in Minnesota.`\
-https://nytimes.com/athletic/6105763/2025/02/01/eric-bieniemy-nfl-bears-rb-coach/
 
