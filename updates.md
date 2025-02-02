@@ -1,3 +1,7 @@
+**Former baseball commissioner Fay Vincent dies at 86**\
+`Vincent presided over MLB for three years as the league's commissioner.`\
+https://nytimes.com/athletic/5937951/2025/02/02/fay-vincent-obituary/
+
 **The White House said it would measure fentanyl seizures before lifting tariffs.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/the-white-house-said-it-would-measure-fentanyl-seizures-before-lifting-tariffs

@@ -1,3 +1,7 @@
+**Former baseball commissioner Fay Vincent dies at 86**\
+`Vincent presided over MLB for three years as the league's commissioner.`\
+https://nytimes.com/athletic/5937951/2025/02/02/fay-vincent-obituary/
+
 **The White House said it would measure fentanyl seizures before lifting tariffs.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/the-white-house-said-it-would-measure-fentanyl-seizures-before-lifting-tariffs
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/business/tariffs-prices-consumers.html
 **U.A.W. president backs use of tariffs to protect jobs, but not for other policy aims.**\
 `By Neal E. Boudette`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/uaw-shawn-fain-tariffs-trump
-
-**Fay Vincent, Baseball Commissioner in a Stormy Era, Dies at 86**\
-`He presided in a period of union strife, the emergence of steroid use, the banning of Pete Rose and an earthquake that rattled a World Series.`\
-https://nytimes.com/2025/02/02/sports/baseball/fay-vincent-dead.html
 
