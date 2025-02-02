@@ -1,4 +1,4 @@
-**Mavericks trade Luka Dončić to Lakers for Anthony Davis in NBA blockbuster**\
+**Luka Dončić to Lakers from Mavericks for Anthony Davis in NBA blockbuster**\
 `The Mavs will receive Max Christie and a 2029 first-round pick, while the Lakers get Maxi Kleber and Markieff Morris in the multi-team deal.`\
 https://nytimes.com/athletic/6106196/2025/02/02/luka-doncic-trade-lakers-anthony-davis-mavericks/
 
