@@ -1,3 +1,7 @@
+**Trump’s Tariffs May Complicate Efforts to Tame Inflation**\
+`Federal Reserve officials are closely watching the levies, given the expectation that such policies could lead to higher prices.`\
+https://nytimes.com/2025/02/02/us/politics/fed-trump-tariffs-interest-rates-inflation.html
+
 **Newcastle reach agreement for Kelly loan to Juventus**\
 `Newcastle United have reached agreement for defender Lloyd Kelly to move to Juventus on loan with an obligation to buy.`\
 https://nytimes.com/athletic/6093947/2025/02/02/newcastle-transfers-lloyd-kelly/
