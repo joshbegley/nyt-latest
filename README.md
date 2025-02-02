@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6107929/2025/02/02/james-ward-prowse-west-ham-fores
 
 **10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/02/02/upshot/hunters-in-the-snow.html
+https://nytimes.com/interactive/2025/02/02/upshot/ten-minute-challenge-hunters.html
 
 **With most celebrations canceled, two Grammy parties carry on.**\
 `Joni Mitchell performed at Clive Davis’s annual gala on Saturday night.`\
