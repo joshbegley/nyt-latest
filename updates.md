@@ -1,3 +1,7 @@
+**From liquor to dishwashers, Canada details U.S. goods it will hit with tariffs.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/from-liquor-to-dishwashers-canada-details-us-goods-it-will-hit-with-tariffs
+
 **Former baseball commissioner Fay Vincent dies at 86**\
 `Vincent presided over MLB for three years as the league's commissioner.`\
 https://nytimes.com/athletic/5937951/2025/02/02/fay-vincent-obituary/
