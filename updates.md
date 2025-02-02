@@ -1,3 +1,7 @@
+**Karen Pryor, Guru of Positive Reinforcement, Is Dead at 92**\
+`She was so successful at training dolphins that she began applying the same techniques to other creatures, including dogs — and humans.`\
+https://nytimes.com/2025/02/02/us/karen-pryor-dead.html
+
 **From liquor to dishwashers, Canada details U.S. goods it will hit with tariffs.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/from-liquor-to-dishwashers-canada-details-us-goods-it-will-hit-with-tariffs
