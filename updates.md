@@ -1,3 +1,7 @@
+**Duke's blowout over UNC shows Tobacco Road rivals are moving in opposite directions**\
+`Losing a rivalry game is one thing. Getting blown out is rarer, but it happens. But getting tripled up in the first half? "They whupped us."`\
+https://nytimes.com/athletic/6106242/2025/02/02/duke-blows-out-unc/
+
 **Luka Dončić, Anthony Davis trade grades: How will Lakers, Mavericks, Jazz fare after blockbuster trade**\
 `In a stunning move the Dallas Mavericks have traded Luka Dončić to the Lakers. `\
 https://nytimes.com/athletic/6106197/2025/02/02/luca-doncic-trade-lakers-anthony-davis-mavericks-grades/
