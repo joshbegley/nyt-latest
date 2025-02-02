@@ -1,3 +1,7 @@
+**Ukraine Says at Least 18 Civilians Are Killed in Strikes**\
+`At least 14 people were killed in the city of Poltava, Ukrainian officials said, blaming Russia. Four people were killed in Sudzha, a Russian town held by Ukraine, in a strike both countries blamed on each other.`\
+https://nytimes.com/2025/02/02/world/europe/ukraine-russia-civilians-killed.html
+
 **The Best New Artists**\
 `Who to watch for at tonight’s Grammy Awards.`\
 https://nytimes.com/2025/02/02/briefing/the-best-new-artists.html

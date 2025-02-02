@@ -1,3 +1,7 @@
+**Ukraine Says at Least 18 Civilians Are Killed in Strikes**\
+`At least 14 people were killed in the city of Poltava, Ukrainian officials said, blaming Russia. Four people were killed in Sudzha, a Russian town held by Ukraine, in a strike both countries blamed on each other.`\
+https://nytimes.com/2025/02/02/world/europe/ukraine-russia-civilians-killed.html
+
 **The Best New Artists**\
 `Who to watch for at tonight’s Grammy Awards.`\
 https://nytimes.com/2025/02/02/briefing/the-best-new-artists.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6103740/2025/02/02/nfl-commissioner-roger-goodell-2
 **Beyoncé Is America. Give Her the Grammy.**\
 `Her album “Cowboy Carter” deserves to win album of the year but not for the reasons you think.`\
 https://nytimes.com/2025/02/02/opinion/beyonce-grammys-cowboy-carter.html
-
-**Don’t Believe Him**\
-`Look closely at the first two weeks of Donald Trump’s second term and you’ll see something very different than what he wants you to see.`\
-https://nytimes.com/2025/02/02/opinion/ezra-klein-podcast-trump-column-read.html
 
