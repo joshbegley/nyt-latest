@@ -1,3 +1,7 @@
+**Netanyahu Heads to Washington at a Critical Juncture for Mideast**\
+`Israel’s prime minister is expected to meet with President Trump later this week to discuss the future of Gaza and broader regional issues.`\
+https://nytimes.com/2025/02/02/world/europe/netanyahu-trump-israel-washington.html
+
 **Looking to calm your nerves? Here are 4 tips from Super Bowl champions**\
 `The tools Super Bowl champions used to cope with pressure can be applied to a job interview, a class presentation or any big moment in life.`\
 https://nytimes.com/athletic/6103463/2025/02/02/looking-to-calm-your-nerves-here-are-4-tips-from-super-bowl-champions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089648/2025/02/02/utah-nhl-prospects-rankings-2025
 **Trump Favors Blunt Force in Dealing With Foreign Allies and Enemies Alike**\
 `With Canada, Mexico, China, Colombia and the Middle East, President Trump has wasted no time threatening to use American might to force recalcitrant countries to back down and do what he wants.`\
 https://nytimes.com/2025/02/02/us/politics/trump-tariffs-migrants-power.html
-
-**Grizzlies at Bucks: How to watch, odds for game featuring three All-Stars**\
-`Sunday's NBA weekend finale gives us three All-Stars in Giannis Antetokounmpo, Damian Lillard and Jaren Jackson Jr.`\
-https://nytimes.com/athletic/6103587/2025/02/02/grizzlies-bucks-how-to-watch-odds-preview-all-star-ja-morant-giannis-lillard/
 
