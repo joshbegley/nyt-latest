@@ -1,3 +1,15 @@
+**Kevin Danso to Tottenham Hotspur: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at Kevin Danso's move to Tottenham Hotspur`\
+https://nytimes.com/athletic/6106584/2025/02/02/kevin-danso-to-tottenham-transfer-ratings/
+
+**Southampton's Amo-Ameyaw set to sign for Strasbourg**\
+`English talent Samuel Amo-Ameyaw is set to sign for Strasbourg from Southampton after an agreement was reached between the clubs and with the 18-year-old over personal terms.`\
+https://nytimes.com/athletic/6106761/2025/02/02/southampton-transfers-amo-ameyaw-strasbourg/
+
+**Fever add All-Star DeWanna Bonner in free agency: Reports**\
+`Bonner, who averaged 15 points and 6 rebounds per game last season with the Connecticut Sun, will reunite with coach Stephanie White.`\
+https://nytimes.com/athletic/6106757/2025/02/02/indiana-fever-dewanna-bonner-free-agency/
+
 **Real Madrid slip up against Espanyol: Injury blow for Rudiger and anger over Romero's tackle on Mbappe**\
 `Madrid were furious with the refereeing as they lost to Espanyol, with the winning goal scored by a player they feel should have seen red`\
 https://nytimes.com/athletic/6105920/2025/02/02/real-madrid-mbappe-romero-tackle-rudiger-injury-referees/
