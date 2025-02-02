@@ -1,3 +1,7 @@
+**Lowetide: How have the Oilers improved their draft and development strategy?**\
+`Here are some signs to look for if you're still worried about the Oilers' draft practices.`\
+https://nytimes.com/athletic/6104851/2025/02/02/edmonton-oilers-nhl-draft-tweeners/
+
 **Thousands of U.S. Government Web Pages Have Been Taken Down Since Friday**\
 `Federal agencies moved to satisfy Trump’s orders to remove topics like diversity initiatives and “gender ideology.”`\
 https://nytimes.com/2025/02/02/upshot/trump-government-websites-missing-pages.html

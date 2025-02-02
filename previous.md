@@ -1,3 +1,7 @@
+**Lowetide: How have the Oilers improved their draft and development strategy?**\
+`Here are some signs to look for if you're still worried about the Oilers' draft practices.`\
+https://nytimes.com/athletic/6104851/2025/02/02/edmonton-oilers-nhl-draft-tweeners/
+
 **Thousands of U.S. Government Web Pages Have Been Taken Down Since Friday**\
 `Federal agencies moved to satisfy Trump’s orders to remove topics like diversity initiatives and “gender ideology.”`\
 https://nytimes.com/2025/02/02/upshot/trump-government-websites-missing-pages.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104705/2025/02/02/patrick-dorgu-to-manchester-unit
 **USMNT's Pepi signs PSV contract extension through 2030**\
 `Pepi had been the subject of a transfer bid from West Ham United earlier this month.`\
 https://nytimes.com/athletic/6106818/2025/02/02/ricardo-pepi-psv-contract-usmnt/
-
-**Kevin Danso to Tottenham Hotspur: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we look at Kevin Danso's move to Tottenham Hotspur`\
-https://nytimes.com/athletic/6106584/2025/02/02/kevin-danso-to-tottenham-transfer-ratings/
 
