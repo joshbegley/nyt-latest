@@ -1,3 +1,7 @@
+**Grammys 2025: Winners List**\
+`An updating rundown of the artists, albums, songs and videos that took home trophies at the 67th annual awards.`\
+https://nytimes.com/2025/02/02/arts/music/grammys-2025-winners-list.html
+
 **Chelsea's Chukwuemeka joining Dortmund on loan**\
 `Chukwuemeka, 21, has not featured in the Premier League for Chelsea this season and has only started one match in the Conference League.`\
 https://nytimes.com/athletic/6063465/2025/02/02/chelsea-transfers-chukwuemeka-dortmund/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/politics/trump-tariffs-global-economic-order.h
 **Michael Katz, 85, Dies; Wrote About Boxing With Passion and Humor**\
 `Writing for The New York Times and The Daily News, he was known for his combative style and relished tweaking the powerful people in the sport.`\
 https://nytimes.com/2025/02/02/sports/michael-katz-dead.html
-
-**Canada published a long list of U.S. goods to be covered by its own tariffs.**\
-`By Matina Stevis-Gridneff and Ian Austen`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/canada-published-a-long-list-of-us-goods-to-be-covered-by-its-own-tariffs
 
