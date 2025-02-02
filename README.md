@@ -1,3 +1,7 @@
+**Thousands of U.S. Government Web Pages Have Been Taken Down Since Friday**\
+`Federal agencies moved to satisfy Trump’s orders to remove topics like diversity initiatives and “gender ideology.”`\
+https://nytimes.com/2025/02/02/upshot/trump-government-websites-missing-pages.html
+
 **Who Pays for Tariffs? Here’s What You Need to Know.**\
 `President Trump has insisted that his new tariffs on America’s largest trading partners will not increase prices for Americans. But a review of how they work suggests that is not the case.`\
 https://nytimes.com/2025/02/02/business/economy/trump-tariffs-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106818/2025/02/02/ricardo-pepi-psv-contract-usmnt/
 **Kevin Danso to Tottenham Hotspur: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we look at Kevin Danso's move to Tottenham Hotspur`\
 https://nytimes.com/athletic/6106584/2025/02/02/kevin-danso-to-tottenham-transfer-ratings/
-
-**Southampton's Amo-Ameyaw set to sign for Strasbourg**\
-`English talent Samuel Amo-Ameyaw is set to sign for Strasbourg from Southampton after an agreement was reached between the clubs and with the 18-year-old over personal terms.`\
-https://nytimes.com/athletic/6106761/2025/02/02/southampton-transfers-amo-ameyaw-strasbourg/
 
