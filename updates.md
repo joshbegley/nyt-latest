@@ -1,3 +1,7 @@
+**Amorim: Martinez injury a 'serious situation'**\
+`The defender was forced to leave Old Trafford on a stretcher during Sunday's Premier League defeat by Crystal Palace.`\
+https://nytimes.com/athletic/6106935/2025/02/02/manchester-united-martinez-injury-update/
+
 **Millicent Dillon, Chronicler of Jane and Paul Bowles, Dies at 99**\
 `A novelist and short-story writer, she devoted years to a nonfiction project examining of the lives of two eccentric authors who spent decades in Morocco.`\
 https://nytimes.com/2025/02/02/books/millicent-dillon-dead.html

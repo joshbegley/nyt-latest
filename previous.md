@@ -7,7 +7,7 @@ https://nytimes.com/2025/02/02/books/millicent-dillon-dead.html
 https://nytimes.com/athletic/6106894/2025/02/02/south-carolina-aja-wilson-jersey-retirement-auburn/
 
 **Amorim: Martinez injury a 'serious situation'**\
-`Manchester United head coach Ruben Amorim is concerned about Lisandro Martinez&#8217;s injury after the defender was forced to leave the field on a stretcher during Sunday&#8217;s Premier League defeat by Crystal Palace.`\
+`The defender was forced to leave Old Trafford on a stretcher during Sunday's Premier League defeat by Crystal Palace.`\
 https://nytimes.com/athletic/6106935/2025/02/02/manchester-united-martinez-injury-update/
 
 **Lowetide: How have the Oilers improved their draft and development strategy?**\
