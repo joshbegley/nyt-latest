@@ -1,3 +1,7 @@
+**Rickey Henderson hailed by baseball legends, Oakland fans in stirring celebration**\
+`The celebration of life for the legendary leadoff man was an exhilarating affair: "He was a legend here in Oakland, California."`\
+https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-life-oakland/
+
 **Texas Tech stuns Houston, overcomes ejections to coach and star player**\
 `It was Texas Tech’s first win this season over a team in the current AP Top 25 and ended Houston’s nation-best 32-game home winning streak.`\
 https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
 **Trump’s Canada and Mexico Tariffs Could Hurt Carmakers**\
 `General Motors and a few other companies make as much as 40 percent of their North American cars and trucks in Canada and Mexico, leaving them vulnerable to tariffs.`\
 https://nytimes.com/2025/02/01/business/economy/tariffs-trump-automakers-canada-mexico.html
-
-**Pitch of Passenger Jet Turned Upward Just Before Deadly Collision**\
-`Transportation safety investigators are seeking to determine if the pilots of the American Airlines plane detected danger just before the midair crash with a helicopter.`\
-https://nytimes.com/2025/02/01/us/politics/american-airlines-crash-ntsb.html
 
