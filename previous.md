@@ -1,3 +1,27 @@
+**Rashford completes Villa loan**\
+`Villa hold an option to make Rashford's move permanent for £40million ($49.5m) in the summer.`\
+https://nytimes.com/athletic/6105124/2025/02/02/marcus-rashford-villa-transfer-manchester-united/
+
+**Grammy Awards Live Updates: After L.A. Fires, the Music Industry Gathers to Honor Top Artists**\
+`Beyoncé, Charli XCX, Post Malone, Kendrick Lamar, Billie Eilish, Sabrina Carpenter, Chappell Roan and Taylor Swift are among the nominees at a ceremony being held as L.A. works to recover from devastating wildfires.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025
+
+**The Jimmy Butler breakdown: Analyzing how the next major NBA trade domino could fall**\
+`Here is a look at four teams in the running for Jimmy Butler, how a deal with each could happen and what obstacles are in the way.`\
+https://nytimes.com/athletic/6106103/2025/02/02/jimmy-butler-trade-destinations-warriors-bucks-sixers-suns/
+
+**Who’s nominated and who’s performing?**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/whos-nominated-and-whos-performing
+
+**Trade War Heats Up After Trump Orders Tariffs and Canada Retaliates**\
+`Amid warnings of price increases, Canada moved quickly to retaliate, China said it had planned countermeasures, and Mexico said it would soon unveil its response.`\
+https://nytimes.com/2025/02/02/world/us-tariffs-canada-china-mexico.html
+
+**Army Identifies Helicopter Pilot Killed in Crash**\
+`Capt. Rebecca M. Lobach’s family issued a statement that described her many achievements in the service.`\
+https://nytimes.com/2025/02/02/us/politics/army-pilot-helicopter-crash.html
+
 **Trade spin: How does the pairing of Luka and LeBron impact fantasy basketball?**\
 `Stan Son breaks down the new fantasy basketball dynamics at play for the Mavericks and Lakers after their blockbuster trade.`\
 https://nytimes.com/athletic/6107498/2025/02/02/luka-lebron-anthony-davis-trade-fantasy-basketball-trade/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6063465/2025/02/02/chelsea-transfers-chukwuemeka-do
 **Grammys 2025: Winners List**\
 `An updating rundown of the artists, albums, songs and videos that took home trophies at the 67th annual awards.`\
 https://nytimes.com/2025/02/02/admin/test.html
-
-**Serbian State Media Shift Tune in Coverage of Huge Protests, Testing Leader**\
-`State TV had previously largely ignored the demonstrations against President Aleksandar Vucic, but now it is putting a spotlight on the rallies.`\
-https://nytimes.com/2025/02/02/world/europe/protests-serbia-president.html
-
-**LeBron James not intending to waiving no-trade clause after Dončić deal**\
-`James, 40, has a no-trade clause in the two-year, $101.4 million contract he signed with the Lakers last summer.`\
-https://nytimes.com/athletic/6107493/2025/02/02/lebron-james-no-trade-clause-lakers-luka-doncic/
-
-**Monday Briefing: Trump Ends Protections for Venezuelans**\
-`Plus, a lobster war in Nova Scotia.`\
-https://nytimes.com/2025/02/02/briefing/trump-venezuela-syria-saudis-ukraine-civilians.html
-
-**As Cuomo Considers Bid for Mayor, His Allies Prepare a Super PAC**\
-`Former Gov. Andrew Cuomo has not entered the race for mayor of New York City. But private planning suggests he is laying the groundwork to do so.`\
-https://nytimes.com/2025/02/02/nyregion/cuomo-super-pac-mayor.html
-
-**Canadian fans boo U.S. anthem ahead of Raptors-Clippers game**\
-`Canadians are displeased with the actions of U.S. President Donald Trump, who placed 25-percent tariffs on Canada on Saturday.`\
-https://nytimes.com/athletic/6107484/2025/02/02/raptors-fans-boo-us-national-anthem-clippers-toronto/
-
-**Trump Tariffs Threaten to Upend Global Economic Order**\
-`The invoking of national security to unravel trade agreements could scramble the international trading system in China’s favor.`\
-https://nytimes.com/2025/02/02/us/politics/trump-tariffs-global-economic-order.html
 
