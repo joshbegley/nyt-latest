@@ -1,3 +1,7 @@
+**Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
+`Manny Machado on Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
+https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
+
 **Celebrating spending, Shohei Ohtani's rehab and more: Takeaways from 'Dodgerfest'**\
 `Dodgers manager Dave Roberts said Ohtani could make his pitching debut for the team in May.`\
 https://nytimes.com/athletic/6106016/2025/02/01/dodgers-shohei-ohtani-pitching-debut/
