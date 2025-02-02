@@ -1,3 +1,7 @@
+**How did Mavs go from NBA Finals to trading Luka Dončić in under a year?**\
+`Time will tell if Dallas can actually be a contender again without one of the brightest offensive talents in NBA history.`\
+https://nytimes.com/athletic/6106419/2025/02/02/mavericks-reasons-luka-doncic-anthony-davis-trade-nba/
+
 **Man United complete signing of Dorgu from Lecce**\
 `Manchester United have completed the signing of Patrick Dorgu from Lecce.`\
 https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-transfer-confirmed/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/podcasts/the-daily/chronic-pain.html
 **The Republicans’ Choice: Tax Cuts for the Rich or Health Care for Americans**\
 `Proposed cuts would be catastrophic to Americans’ access to care.`\
 https://nytimes.com/2025/02/02/opinion/medicaid-tax-cuts-republicans.html
-
-**Isolationist? Nationalist? No, Trump Is Something Else Entirely.**\
-`Inside the lost tradition in American foregin policy that explains the president’s overseas obsessions.`\
-https://nytimes.com/2025/02/02/opinion/trump-panama-greenland-foreign-policy.html
 

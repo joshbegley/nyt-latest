@@ -1,3 +1,7 @@
+**How did Mavs go from NBA Finals to trading Luka Dončić in under a year?**\
+`Time will tell if Dallas can actually be a contender again without one of the brightest offensive talents in NBA history.`\
+https://nytimes.com/athletic/6106419/2025/02/02/mavericks-reasons-luka-doncic-anthony-davis-trade-nba/
+
 **Patrick Dorgu joins Man United - His strengths, weaknesses and what he can bring to Amorim's side**\
 `Patrick Dorgu has completed his move to Manchester United and is a potential solution to Amorim's wing-back problem`\
 https://nytimes.com/athletic/6073035/2025/02/02/patrick-dorgu-manchester-united-transfers-signing-strengths/
