@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000009965641/ukraine-russia-missile-po
 
 **Security Official at Aid Agency Put on Leave After Denying Access to Musk Team**\
 `Workers at the U.S. Agency for International Development are bracing for a loss of its independent status and sweeping layoffs as President Trump continues slashing foreign aid.`\
-https://nytimes.com/2025/02/02/us/politics/security-official-at-aid-agency-put-on-leave-after-denying-access-to-musk-team.html
+https://nytimes.com/2025/02/02/us/politics/usaid-official-leave-musk.html
 
 **Houston Flight Evacuated Before Takeoff Because of Engine Fire, Video Shows**\
 `A video on social media showed smoke and flames coming from one of the engines of a United Airlines flight headed for LaGuardia Airport in New York.`\
