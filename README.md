@@ -1,3 +1,7 @@
+**With wildfires blazing, the Grammys decided the show should go on.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/los-angeles-fires-grammys-2025
+
 **Here’s the latest.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/world/us-tariffs-canada-china-mexico.html
 **Army Identifies Helicopter Pilot Killed in Crash**\
 `Capt. Rebecca M. Lobach’s family issued a statement that described her many achievements in the service.`\
 https://nytimes.com/2025/02/02/us/politics/army-pilot-helicopter-crash.html
-
-**Trade spin: How does the pairing of Luka and LeBron impact fantasy basketball?**\
-`Stan Son breaks down the new fantasy basketball dynamics at play for the Mavericks and Lakers after their blockbuster trade.`\
-https://nytimes.com/athletic/6107498/2025/02/02/luka-lebron-anthony-davis-trade-fantasy-basketball-trade/
 
