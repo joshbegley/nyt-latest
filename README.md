@@ -1,3 +1,7 @@
+**Canada’s auto industry, long entwined with the United States, could be hit hard.**\
+`By Ian Austen`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/canadas-auto-industry-long-entwined-with-the-united-states-could-be-hit-hard
+
 **Millicent Dillon, Chronicler of Jane and Paul Bowles, Dies at 99**\
 `A novelist and short-story writer, she devoted years to a nonfiction project examining of the lives of two eccentric authors who spent decades in Morocco.`\
 https://nytimes.com/2025/02/02/books/millicent-dillon-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097419/2025/02/02/manchester-united-mainoo-amorim-
 **Bacon, Egg, Cheese and Kimchi**\
 `It’s a great sandwich for a host of reasons, namely the crunch of the fiery kimchi against the softness of the scrambled eggs and cheese.`\
 https://nytimes.com/2025/02/02/dining/bacon-egg-cheese-kimchi-sandwich.html
-
-**The Briefing: Brentford 0 Spurs 2 - relief for Postecoglou, Spence's importance and Danso's arrival**\
-`Jay Harris and Jack Pitt-Brooke analyse the key talking points from Tottenham's much-needed victory at Brentford`\
-https://nytimes.com/athletic/6096757/2025/02/02/brentford-tottenham-hotspur-premier-league-analysis/
 
