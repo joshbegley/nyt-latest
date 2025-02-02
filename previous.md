@@ -18,7 +18,7 @@ https://nytimes.com/2025/02/02/admin/test.html
 `State TV had previously largely ignored the demonstrations against President Aleksandar Vucic, but now it is putting a spotlight on the rallies.`\
 https://nytimes.com/2025/02/02/world/europe/protests-serbia-president.html
 
-**LeBron James not intending on waiving no-trade clause after Dončić deal**\
+**LeBron James not intending to waiving no-trade clause after Dončić deal**\
 `James, 40, has a no-trade clause in the two-year, $101.4 million contract he signed with the Lakers last summer.`\
 https://nytimes.com/athletic/6107493/2025/02/02/lebron-james-no-trade-clause-lakers-luka-doncic/
 

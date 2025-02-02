@@ -1,3 +1,7 @@
+**LeBron James not intending to waiving no-trade clause after Dončić deal**\
+`James, 40, has a no-trade clause in the two-year, $101.4 million contract he signed with the Lakers last summer.`\
+https://nytimes.com/athletic/6107493/2025/02/02/lebron-james-no-trade-clause-lakers-luka-doncic/
+
 **Trade spin: How does the pairing of Luka and LeBron impact fantasy basketball?**\
 `Stan Son breaks down the new fantasy basketball dynamics at play for the Mavericks and Lakers after their blockbuster trade.`\
 https://nytimes.com/athletic/6107498/2025/02/02/luka-lebron-anthony-davis-trade-fantasy-basketball-trade/
