@@ -1,3 +1,7 @@
+**Jhon Duran: An MLS triumph, not just soccer's hot topic and an $80M man**\
+`From MLS to Saudi-league millions took Duran less than two years.`\
+https://nytimes.com/athletic/6101169/2025/02/02/jhon-duran-aston-villa-mls-chicago/
+
 **‘Sovereign’ Status of Manhattan Federal Prosecutor Hangs in the Balance**\
 `If Danielle R. Sassoon, the interim U.S. attorney, agrees to drop the prosecution of Mayor Eric Adams, the decision could threaten the reputation of a famously independent office.`\
 https://nytimes.com/2025/02/02/nyregion/eric-adams-charges-southern-district.html
