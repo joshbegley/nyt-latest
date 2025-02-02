@@ -1,3 +1,15 @@
+**J.T. Miller, Elias Pettersson, Kyle Dubas and the winners and losers from the Canucks' big trades**\
+`The two separate trades included 10 players and a fascinating, volatile future asset changing teams twice.`\
+https://nytimes.com/athletic/6106337/2025/02/02/nhl-trades-elias-pettersson-jt-miller-kyle-dubas/
+
+**The Briefing: Man Utd 0 Palace 2: Mainoo experiment, Martinez injury and a seventh home defeat**\
+`We take a look at the talking points from another loss at Old Trafford for Manchester United.`\
+https://nytimes.com/athletic/6097419/2025/02/02/manchester-united-mainoo-amorim-martinez/
+
+**Bacon, Egg, Cheese and Kimchi**\
+`It’s a great sandwich for a host of reasons, namely the crunch of the fiery kimchi against the softness of the scrambled eggs and cheese.`\
+https://nytimes.com/2025/02/02/dining/bacon-egg-cheese-kimchi-sandwich.html
+
 **Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\
