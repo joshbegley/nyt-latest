@@ -1,5 +1,5 @@
 **Newcastle reach agreement for Kelly loan to Juventus**\
-`Newcastle have reached agreement for defender Lloyd Kelly to move to Juventus on loan with an obligation to buy.`\
+`Newcastle United have reached agreement for defender Lloyd Kelly to move to Juventus on loan with an obligation to buy.`\
 https://nytimes.com/athletic/6093947/2025/02/02/newcastle-transfers-lloyd-kelly/
 
 **The Challenges of Health Care for the Elderly**\
