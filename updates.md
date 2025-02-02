@@ -1,3 +1,11 @@
+**Texas Tech stuns Houston, overcomes ejections to coach and star player**\
+`It was Texas Tech’s first win this season over a team in the current AP Top 25 and ended Houston’s nation-best 32-game home winning streak.`\
+https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
+
+**Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
+`The suit claims Vince McMahon used Grant "as a sexual pawn to entice world-famous wrestling talent and to keep Brock Lesnar under contract."`\
+https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
+
 **Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
 `Manny Machado on Roki Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
 https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
