@@ -1,3 +1,7 @@
+**Spurs sign Danso from Lens on loan before permanent transfer**\
+`Tottenham Hotspur have completed the signing of central defender Kevin Danso from Lens.`\
+https://nytimes.com/athletic/6101030/2025/02/02/tottenham-transfers-kevin-danso/
+
 **West Ham reach agreement for Ferguson loan from Brighton**\
 `West Ham United have reached an agreement to sign Brighton &amp; Hove Albion striker Evan Ferguson on loan.`\
 https://nytimes.com/athletic/6096479/2025/02/02/west-ham-evan-ferguson-transfer-loan/
