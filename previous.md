@@ -1,41 +1,40 @@
-**How yet another sluggish start buried Oilers in loss to Maple Leafs**\
-`The Oilers buried themselves in a hole after allowing three goals to the Maple Leafs in the first period of a 4-3 loss.`\
-https://nytimes.com/athletic/6106129/2025/02/01/oilers-maple-leafs-score-loss/
+**Emery is an expert at rejuvenating footballers' careers - can he do it with Rashford?**\
+`Aston Villa view Rashford as a multi-faceted attacker - this is how he might fit into their starting XI `\
+https://nytimes.com/athletic/6105417/2025/02/02/marcus-rashford-aston-villa-emery-tactics/
 
-**Maple Leafs report cards: Joseph Woll, special teams help Toronto hang on**\
-`Matthew Knies and John Tavares returned to the lineup, and Woll made 45 saves as Toronto broke a three-game losing streak in Edmonton.
-`\
-https://nytimes.com/athletic/6106052/2025/02/01/maple-leafs-oilers-grades-analysis/
+**Wild embarrassed after getting routed by Senators as Ryan Hartman faces possible suspension: 4 takeaways**\
+`The veteran forward received a five-minute match penalty for intent to injure after shoving Tim Stützle’s head into the ice after a faceoff.`\
+https://nytimes.com/athletic/6106122/2025/02/02/wild-senators-ryan-hartman-penalty-suspension/
 
-**China Assails Trump Tariffs and Threatens ‘Countermeasures’**\
-`China’s Ministry of Commerce said it would file a legal case at the World Trade Organization, but signaled it still wanted a stable relationship with the U.S.`\
-https://nytimes.com/2025/02/01/us/politics/china-trump-tariffs.html
+**The Luis Rubiales trial explained: The kiss, the fallout, the accused and the key witnesses**\
+`The trial involves the ex-president of the Spain football federation and one of the stars of the Spain women's team that won 2023 World Cup`\
+https://nytimes.com/athletic/6102773/2025/02/02/rubiales-trial-hermoso-explained/
 
-**Education Officials Placed on Leave in Trump’s Sprawling Effort to Curb D.E.I.**\
-`Letters sent to employees who said they had only a minimal connection to diversity or equity efforts on Friday informed them that they had been suspended.`\
-https://nytimes.com/2025/02/01/us/politics/trump-dei-education-department.html
+**Last 48 Hours Of A Transfer Window Derangement Syndrome - a brief guide**\
+`Tim Spiers on why common sense goes missing in the final few days of a transfer window`\
+https://nytimes.com/athletic/6102810/2025/02/02/transfer-window-derangement-syndrome-brief-guide/
 
-**UConn upsets Marquette men’s basketball on the road**\
-`UConn shot 65 percent in the second half en route to a 77-69 win over a Big East rival.`\
-https://nytimes.com/athletic/6106071/2025/02/01/uconn-marquette-upset-basketball-result/
+**After a fiery first meeting this season, what can we expect from Arsenal vs Man City?**\
+`The game at the Etihad earlier this season resulted in new levels of bad blood between the clubs, so what can we expect this time?`\
+https://nytimes.com/athletic/6102433/2025/02/02/arsenal-man-city-rivalry/
 
-**Angel Reese becomes first player ejected in Unrivaled history**\
-`Reese received back-to-back technical fouls before the ejection, a first for the new women's 3x3 basketball league.`\
-https://nytimes.com/athletic/6106026/2025/02/01/angel-reese-ejection-unrivaled/
+**De Zerbi has improved Marseille - but is that enough for him or them?**\
+`The Italian was once one of the Premier League's most coveted coaches but is now trying to achieve a fiendishly difficult task in Ligue 1`\
+https://nytimes.com/athletic/6099673/2025/02/02/roberto-de-zerbi-marseille-ligue-1/
 
-**Celebrating spending, Shohei Ohtani's rehab and more: Takeaways from 'Dodgerfest'**\
-`Dodgers manager Dave Roberts said Ohtani could make his pitching debut for the team in May.`\
-https://nytimes.com/athletic/6106016/2025/02/01/dodgers-shohei-ohtani-pitching-debut/
+**Bayern Munich's Mathys Tel is a shot-machine with plenty of raw edges to iron out**\
+`Tel has attracted plenty of interest in this transfer window - we analyse the 19-year-old's strengths and weaknesses`\
+https://nytimes.com/athletic/6103484/2025/02/02/mathys-tel-bayern-munich-tactical-profile/
 
-**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
-`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
-https://nytimes.com/athletic/6083468/2025/02/01/ovechkin-goals-record-wayne-gretzky-stats/
+**Trudeau Details Canada’s Retaliation Plans in Emotional Rebuke of Trump Tariffs**\
+`Even as Canada’s prime minister announced more than $100 billion in retaliatory tariffs, he made clear that he was imposing them reluctantly.`\
+https://nytimes.com/2025/02/02/us/politics/canada-trump-tariffs.html
 
-**Rickey Henderson hailed by baseball legends, Oakland fans in stirring celebration**\
-`The celebration of life for the legendary leadoff man was an exhilarating affair: "He was a legend here in Oakland, California."`\
-https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-life-oakland/
+**Trump’s Tariffs Put China in a Difficult Spot**\
+`China chose swift retaliation for trade measures in the first Trump administration, but that led to an upward spiral of trade measures and much broader tariffs.`\
+https://nytimes.com/2025/02/02/business/trump-tariffs-china.html
 
-**Texas Tech stuns Houston, overcomes ejections to coach and star player**\
-`It was Texas Tech’s first win this season over a team in the current AP Top 25 and ended Houston’s nation-best 32-game home winning streak.`\
-https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
+**The Divine, the Digital and the Political at Humanity’s Largest Gathering**\
+`The Maha Kumbh Mela, a Hindu festival in India that is drawing hundreds of millions of pilgrims, is a powerful marketing tool for Prime Minister Narendra Modi and his allies.`\
+https://nytimes.com/2025/02/02/world/asia/india-maha-kumbh-mela.html
 
