@@ -1,3 +1,7 @@
+**Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
+`Manny Machado on Roki Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
+https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
+
 **Here’s what to know.**\
 `By Matina Stevis-Gridneff, Mike Ives, Ana Swanson and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/us/politics/american-airlines-crash-ntsb.html
 **C.D.C. scientists ordered to withdraw studies that use terms such as ‘L.G.B.T.’ or ‘pregnant people.’**\
 `By Apoorva Mandavilli`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/trump-gender-research
-
-**Jack Bech catches winning TD in Senior Bowl, honors late brother**\
-`Bech, wearing a No. 7 jersey for his late brother, was named the Senior Bowl MVP.`\
-https://nytimes.com/athletic/6105804/2025/02/01/tcu-jack-tiger-bech-senior-bowl-new-orleans/
 

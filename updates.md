@@ -1,3 +1,7 @@
+**Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
+`Manny Machado on Roki Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
+https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
+
 **Here’s what to know.**\
 `By Matina Stevis-Gridneff, Mike Ives, Ana Swanson and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
