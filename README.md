@@ -1,3 +1,7 @@
+**With most celebrations canceled, two Grammy parties carry on.**\
+`Joni Mitchell performed at Clive Davis’s annual gala on Saturday night.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/with-most-celebrations-canceled-two-grammy-parties-carry-on
+
 **Crews Move Closer to Recovering All Bodies in D.C. Crash**\
 `Remains of 55 of the 67 victims have been recovered, officials said on Sunday as they prepared to lift the wreckage of the jet out of the Potomac River on Monday.`\
 https://nytimes.com/2025/02/02/us/dc-plane-crash-washington-helicopter.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/grammys-record-swift-eilis
 **Iowa retires Caitlin Clark's jersey following upset of No. 4 USC**\
 `NCAA's all-time leading scorer "grateful and fortunate" after watching her No. 22 raised to the rafters.`\
 https://nytimes.com/athletic/6107460/2025/02/02/caitlin-clark-iowa-jersey-retirement/
-
-**Grammys Photos: All the Looks From the 2025 Red Carpet**\
-`See what nominees and guests for the 67th Grammy Awards, including Sabrina Carpenter, Chappell Roan and Ye, wore to arrive for the ceremony.`\
-https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html
 
