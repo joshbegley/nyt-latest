@@ -1,3 +1,11 @@
+**Young Women Are Transforming Pop. Now They’re Taking On the Grammys.**\
+`A close-up look at Sabrina Carpenter, Charli XCX, Billie Eilish and Chappell Roan — and their loyal fans.`\
+https://nytimes.com/card/2025/02/02/arts/music/billie-eilish-charli-xcx-chappell-roan-sabrina-carpenter
+
+**Newcastle support Willock after 'appalling' racist abuse**\
+`Newcastle United have spoken out in support of Joe Willock after the midfielder was subjected to racist abuse online after Saturday&#8217;s Premier League defeat by Fulham.`\
+https://nytimes.com/athletic/6106448/2025/02/02/joe-willock-racism-instagram-newcastle/
+
 **Spurs sign Danso from Lens on loan before permanent transfer**\
 `Tottenham Hotspur have completed the signing of central defender Kevin Danso from Lens.`\
 https://nytimes.com/athletic/6101030/2025/02/02/tottenham-transfers-kevin-danso/
