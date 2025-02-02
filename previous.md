@@ -1,3 +1,7 @@
+**Trump Administration Revokes Protections for Venezuelans in the U.S.**\
+`The decision to revoke Temporary Protected Status signals that President Trump will continue to dismantle a program that aims to protect migrants from potentially dangerous countries.`\
+https://nytimes.com/2025/02/02/us/politics/trump-venezuela-temporary-protected-status.html
+
 **Many Republicans Stay Quiet as Trump Orders Hefty Tariffs**\
 `Senator Rand Paul of Kentucky was among the few Republicans to voice opposition to the tariffs that would take effect on Tuesday.`\
 https://nytimes.com/2025/02/02/us/politics/republicans-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/business/economy/trump-tariffs-what-to-know.html
 **J.T. Miller, Elias Pettersson, Kyle Dubas and the winners and losers from the Canucks' big trades**\
 `The two separate trades included 10 players and a fascinating, volatile future asset changing teams twice.`\
 https://nytimes.com/athletic/6106337/2025/02/02/nhl-trades-elias-pettersson-jt-miller-kyle-dubas/
-
-**The Briefing: Man Utd 0 Palace 2: Mainoo experiment, Martinez injury and a seventh home defeat**\
-`We take a look at the talking points from another loss at Old Trafford for Manchester United.`\
-https://nytimes.com/athletic/6097419/2025/02/02/manchester-united-mainoo-amorim-martinez/
 

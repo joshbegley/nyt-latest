@@ -1,3 +1,7 @@
+**Trump Administration Revokes Protections for Venezuelans in the U.S.**\
+`The decision to revoke Temporary Protected Status signals that President Trump will continue to dismantle a program that aims to protect migrants from potentially dangerous countries.`\
+https://nytimes.com/2025/02/02/us/politics/trump-venezuela-temporary-protected-status.html
+
 **Many Republicans Stay Quiet as Trump Orders Hefty Tariffs**\
 `Senator Rand Paul of Kentucky was among the few Republicans to voice opposition to the tariffs that would take effect on Tuesday.`\
 https://nytimes.com/2025/02/02/us/politics/republicans-trump-tariffs.html
