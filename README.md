@@ -1,3 +1,7 @@
+**Texas Tech stuns Houston, overcomes ejections to coach and star player**\
+`It was Texas Tech’s first win this season over a team in the current AP Top 25 and ended Houston’s nation-best 32-game home winning streak.`\
+https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
+
 **Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
 `Manny Machado on Roki Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
 https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
@@ -11,7 +15,7 @@ https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
 https://nytimes.com/athletic/6105753/2025/02/01/rory-mcilroy-pebble-beach/
 
 **Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
-`Grant identifies Lesnar as the man who McMahon offered to have sex with Grant in 2021.`\
+`The suit claims Vince McMahon used Grant "as a sexual pawn to entice world-famous wrestling talent and to keep Brock Lesnar under contract."`\
 https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
 
 **Why Matt Poitras’ offensive development is a leading factor in the Bruins’ retool**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/01/business/economy/tariffs-trump-automakers-canada-
 **Pitch of Passenger Jet Turned Upward Just Before Deadly Collision**\
 `Transportation safety investigators are seeking to determine if the pilots of the American Airlines plane detected danger just before the midair crash with a helicopter.`\
 https://nytimes.com/2025/02/01/us/politics/american-airlines-crash-ntsb.html
-
-**C.D.C. scientists ordered to withdraw studies that use terms such as ‘L.G.B.T.’ or ‘pregnant people.’**\
-`By Apoorva Mandavilli`\
-https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/trump-gender-research
 
