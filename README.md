@@ -1,3 +1,7 @@
+**Mikey Lewis, Saint Mary's freshman and prodigal Oakland hooper, returns home**\
+`Oakland basketball star Mikey Lewis got what he wanted from his journey. As fate would have it, that journey brought him home.`\
+https://nytimes.com/athletic/6106509/2025/02/02/saint-marys-mikey-lewis-oakland-basketball/
+
 **Patrick Dorgu to Manchester United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we look at Patrick Dorgu's move to Manchester United.`\
 https://nytimes.com/athletic/6104705/2025/02/02/patrick-dorgu-to-manchester-united-the-athletic-500-transfer-ratings/
@@ -18,6 +22,11 @@ https://nytimes.com/athletic/6106761/2025/02/02/southampton-transfers-amo-ameyaw
 `Bonner, who averaged 15 points and 6 rebounds per game last season with the Connecticut Sun, will reunite with coach Stephanie White.`\
 https://nytimes.com/athletic/6106757/2025/02/02/indiana-fever-dewanna-bonner-free-agency/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/02/02/wnba-2025-free-agency-tracker-best-players/
+
 **Real Madrid slip up against Espanyol: Injury blow for Rudiger and anger over Romero's tackle on Mbappe**\
 `Madrid were furious with the refereeing as they lost to Espanyol, with the winning goal scored by a player they feel should have seen red`\
 https://nytimes.com/athletic/6105920/2025/02/02/real-madrid-mbappe-romero-tackle-rudiger-injury-referees/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/02/02/us/politics/fed-trump-tariffs-interest-rates-infl
 **Newcastle reach agreement for Kelly loan to Juventus**\
 `Newcastle United have reached agreement for defender Lloyd Kelly to move to Juventus on loan with an obligation to buy.`\
 https://nytimes.com/athletic/6093947/2025/02/02/newcastle-transfers-lloyd-kelly/
-
-**The Challenges of Health Care for the Elderly**\
-`Readers respond to a column by Pamela Paul. Also: Mark Zuckerberg’s cowardice; a plan for Midtown Manhattan; a fighting spirit.`\
-https://nytimes.com/2025/02/02/opinion/health-care-elderly.html
-
-**The Robot Doctor Will See You Now**\
-`Research suggests physicians are undervaluing how artificial intelligence can improve medical care.`\
-https://nytimes.com/2025/02/02/opinion/ai-doctors-medicine.html
 
