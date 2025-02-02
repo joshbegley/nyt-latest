@@ -1,3 +1,7 @@
+**Angel Reese becomes first player ejected in Unrivaled history**\
+`Reese received back-to-back technical fouls before the ejection, a first for the new women's 3x3 basketball league.`\
+https://nytimes.com/athletic/6106026/2025/02/01/angel-reese-ejection-unrivaled/
+
 **Celebrating spending, Shohei Ohtani's rehab and more: Takeaways from 'Dodgerfest'**\
 `Dodgers manager Dave Roberts said Ohtani could make his pitching debut for the team in May.`\
 https://nytimes.com/athletic/6106016/2025/02/01/dodgers-shohei-ohtani-pitching-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-m
 **Why Matt Poitras’ offensive development is a leading factor in the Bruins’ retool**\
 `The fact the 20-year-old center flashes skills as an offensive driver is a good thing for the Bruins.`\
 https://nytimes.com/athletic/6105913/2025/02/01/bruins-matt-poitras-retool/
-
-**U.S. claims cartels have an ‘alliance’ with Mexico’s government.**\
-`Justifying the tariffs, the Trump administration contended that Mexico’s government affords “safe havens” to cartels. Mexico’s president vigorously rejected this claim.`\
-https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/us-claims-cartels-have-an-alliance-with-mexicos-government
 
