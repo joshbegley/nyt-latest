@@ -1,3 +1,7 @@
+**Celebrating spending, Shohei Ohtani's rehab and more: Takeaways from 'Dodgerfest'**\
+`Dodgers manager Dave Roberts said Ohtani could make his pitching debut for the team in May.`\
+https://nytimes.com/athletic/6106016/2025/02/01/dodgers-shohei-ohtani-pitching-debut/
+
 **How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
 `We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
 https://nytimes.com/athletic/6083468/2025/02/01/ovechkin-goals-record-wayne-gretzky-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105913/2025/02/01/bruins-matt-poitras-retool/
 **U.S. claims cartels have an ‘alliance’ with Mexico’s government.**\
 `Justifying the tariffs, the Trump administration contended that Mexico’s government affords “safe havens” to cartels. Mexico’s president vigorously rejected this claim.`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/us-claims-cartels-have-an-alliance-with-mexicos-government
-
-**'A thousand reasons' for J.T. Miller to come to New York, be part of new Rangers core**\
-`Miller lost in his Rangers debut despite scoring two goals, but his main focus is on getting New York back into the playoff picture.`\
-https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
 

@@ -1,3 +1,7 @@
+**Celebrating spending, Shohei Ohtani's rehab and more: Takeaways from 'Dodgerfest'**\
+`Dodgers manager Dave Roberts said Ohtani could make his pitching debut for the team in May.`\
+https://nytimes.com/athletic/6106016/2025/02/01/dodgers-shohei-ohtani-pitching-debut/
+
 **Here’s what to know.**\
 `By Matina Stevis-Gridneff, Mike Ives, Emiliano Rodríguez Mega, Ana Swanson and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
