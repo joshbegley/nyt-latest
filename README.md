@@ -1,3 +1,7 @@
+**Tariffs: Aiming at Mexico, Hitting Ourselves**\
+`There are many reasons to regret Trump’s latest experiment with tariffs, but let’s take prices and migration.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/tariffs-mexico-cars-avocados-immigration
+
 **Soler interview: 'I saw the manager had confidence in me… that's very important'**\
 `The Spanish midfielder on the move to London, adapting to life under Graham Potter and what his long-term future might hold`\
 https://nytimes.com/athletic/6105992/2025/02/02/carlos-soler-interview-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104851/2025/02/02/edmonton-oilers-nhl-draft-tweene
 **Thousands of U.S. Government Web Pages Have Been Taken Down Since Friday**\
 `Federal agencies moved to satisfy Trump’s orders to remove topics like diversity initiatives and “gender ideology.”`\
 https://nytimes.com/2025/02/02/upshot/trump-government-websites-missing-pages.html
-
-**Who Pays for Tariffs? Here’s What You Need to Know.**\
-`President Trump has insisted that his new tariffs on America’s largest trading partners will not increase prices for Americans. But a review of how they work suggests that is not the case.`\
-https://nytimes.com/2025/02/02/business/economy/trump-tariffs-what-to-know.html
 
