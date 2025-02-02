@@ -1,3 +1,11 @@
+**The Challenges of Health Care for the Elderly**\
+`Readers respond to a column by Pamela Paul. Also: Mark Zuckerberg’s cowardice; a plan for Midtown Manhattan; a fighting spirit.`\
+https://nytimes.com/2025/02/02/opinion/health-care-elderly.html
+
+**The Robot Doctor Will See You Now**\
+`Research suggests physicians are undervaluing how artificial intelligence can improve medical care.`\
+https://nytimes.com/2025/02/02/opinion/ai-doctors-medicine.html
+
 **The Pulse: New "most stunning trade in NBA history"**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6106685/2025/02/02/luka-doncic-anthony-davis-trade-the-pulse/

@@ -1,3 +1,11 @@
+**The Challenges of Health Care for the Elderly**\
+`Readers respond to a column by Pamela Paul. Also: Mark Zuckerberg’s cowardice; a plan for Midtown Manhattan; a fighting spirit.`\
+https://nytimes.com/2025/02/02/opinion/health-care-elderly.html
+
+**The Robot Doctor Will See You Now**\
+`Research suggests physicians are undervaluing how artificial intelligence can improve medical care.`\
+https://nytimes.com/2025/02/02/opinion/ai-doctors-medicine.html
+
 **The Pulse: New "most stunning trade in NBA history"**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6106685/2025/02/02/luka-doncic-anthony-davis-trade-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6099437/2025/02/02/luis-rubiales-profile-trial-herm
 **24 hours with Wrexham: One record fee, two statement signings and three points in the promotion race**\
 `Phil Parkinson chucked Sam Smith and Jay Rodriguez into Wrexham's starting XI to play Crawley — and was rewarded with a win `\
 https://nytimes.com/athletic/6104732/2025/02/02/crawley-wrexham-sam-smith-jay-rodriguez/
-
-**How did Mavs go from NBA Finals to trading Luka Dončić under than a year?**\
-`Time will tell if Dallas can actually be a contender again without one of the brightest offensive talents in NBA history.`\
-https://nytimes.com/athletic/6106419/2025/02/02/mavericks-reasons-luka-doncic-anthony-davis-trade-nba/
-
-**Man United complete signing of Dorgu from Lecce**\
-`Manchester United have completed the signing of Patrick Dorgu from Lecce.`\
-https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-transfer-confirmed/
 
