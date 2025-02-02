@@ -2,7 +2,7 @@
 `Justifying the tariffs, the Trump administration contended that Mexico’s government affords “safe havens” to cartels. Mexico’s president vigorously rejected this claim.`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/us-claims-cartels-have-an-alliance-with-mexicos-government
 
-**There were 'a thousand reasons' for J.T. Miller to come to New York and be part of new Rangers core**\
+**'A thousand reasons' for J.T. Miller to come to New York, be part of new Rangers core**\
 `Miller lost in his Rangers debut despite scoring two goals, but his main focus is on getting New York back into the playoff picture.`\
 https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
 
