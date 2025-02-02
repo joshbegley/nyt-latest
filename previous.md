@@ -1,3 +1,7 @@
+**There were 'a thousand reasons' for J.T. Miller to come to New York and be part of new Rangers core**\
+`Miller lost in his Rangers debut despite scoring two goals, but his main focus is on getting New York back into the playoff picture.`\
+https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
+
 **Trump’s Canada and Mexico Tariffs Could Hurt Some Carmakers**\
 `General Motors and a few other companies make as much as 40 percent of their North American cars and trucks in Canada and Mexico, leaving them vulnerable to tariffs.`\
 https://nytimes.com/2025/02/01/business/economy/tariffs-trump-automakers-canada-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/mexico-faces-a-devasta
 **Blackhawks' Frank Nazar remains unflappable through the ups and downs of rookie season**\
 `Whether it's receiving critique or getting bumped from the top line, Nazar's resiliency and confidence are rare for a rookie in the NHL.`\
 https://nytimes.com/athletic/6105756/2025/02/01/blackhawks-rookie-frank-nazar/
-
-**To Trump, Tariffs Are Not a Means but an End**\
-`Many presidents use tariffs to force negotiations. But for President Trump, they are the point, a source of revenue as he pursues a Gilded Age vision.`\
-https://nytimes.com/2025/02/01/us/politics/trump-tariffs-goal.html
 

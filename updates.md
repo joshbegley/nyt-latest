@@ -1,3 +1,7 @@
+**There were 'a thousand reasons' for J.T. Miller to come to New York and be part of new Rangers core**\
+`Miller lost in his Rangers debut despite scoring two goals, but his main focus is on getting New York back into the playoff picture.`\
+https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
+
 **Trump’s Canada and Mexico Tariffs Could Hurt Some Carmakers**\
 `General Motors and a few other companies make as much as 40 percent of their North American cars and trucks in Canada and Mexico, leaving them vulnerable to tariffs.`\
 https://nytimes.com/2025/02/01/business/economy/tariffs-trump-automakers-canada-mexico.html
