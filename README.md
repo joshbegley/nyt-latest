@@ -1,3 +1,7 @@
+**“I Feel Like a Superhero.” Hope Lives Amid Gaza’s Rubble.**\
+`Amid the devastation of Gaza, we now can at least look for some purpose beyond mere survival.`\
+https://nytimes.com/2025/02/02/opinion/gaza-israel-cease-fire-hope.html
+
 **Why Ottawa's win over Minnesota was its most dominant of the season: 4 takeaways**\
 `Ottawa dominated every period with its offence and defence, got better goaltending, won more faceoffs and made fewer mistakes Saturday.`\
 https://nytimes.com/athletic/6106037/2025/02/02/ottawa-senators-minnesota-wild-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104882/2025/02/02/biggest-win-premier-league-histo
 **Emery is an expert at rejuvenating footballers' careers - can he do it with Rashford?**\
 `Aston Villa view Rashford as a multi-faceted attacker - this is how he might fit into their starting XI `\
 https://nytimes.com/athletic/6105417/2025/02/02/marcus-rashford-aston-villa-emery-tactics/
-
-**Wild embarrassed after rout by Senators, Ryan Hartman faces possible suspension: 4 takeaways**\
-`The veteran forward received a five-minute match penalty for intent to injure after shoving Tim Stützle’s head into the ice after a faceoff.`\
-https://nytimes.com/athletic/6106122/2025/02/02/wild-senators-ryan-hartman-penalty-suspension/
 
