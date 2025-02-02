@@ -1,3 +1,11 @@
+**From Groceries to Cars, Tariffs Could Raise Prices for U.S. Consumers**\
+`President Trump’s new tariffs on goods from Canada, Mexico and China are likely to result in higher prices for lots of products, including computers, tequila and gas.`\
+https://nytimes.com/2025/02/02/business/tariffs-prices-consumers.html
+
+**U.A.W. president backs use of tariffs to protect jobs, but not for other policy aims.**\
+`By Neal E. Boudette`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/uaw-shawn-fain-tariffs-trump
+
 **Fay Vincent, Baseball Commissioner in a Stormy Era, Dies at 86**\
 `He presided in a period of union strife, the emergence of steroid use, the banning of Pete Rose and an earthquake that rattled a World Series.`\
 https://nytimes.com/2025/02/02/sports/baseball/fay-vincent-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6107007/2025/02/02/luka-doncic-trade-nba-title-odds
 **Tariffs: Aiming at Mexico, Hitting Ourselves**\
 `There are many reasons to regret Trump’s latest experiment with tariffs, but let’s take prices and migration.`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/tariffs-mexico-cars-avocados-immigration
-
-**Soler interview: 'I saw the manager had confidence in me… that's very important'**\
-`The Spanish midfielder on the move to London, adapting to life under Graham Potter and what his long-term future might hold`\
-https://nytimes.com/athletic/6105992/2025/02/02/carlos-soler-interview-west-ham/
-
-**Trump Administration Revokes Protections for Venezuelans in the U.S.**\
-`The decision to revoke Temporary Protected Status signals that President Trump will continue to dismantle a program that aims to protect migrants from potentially dangerous countries.`\
-https://nytimes.com/2025/02/02/us/politics/trump-venezuela-temporary-protected-status.html
 

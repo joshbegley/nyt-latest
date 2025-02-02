@@ -1,3 +1,11 @@
+**From Groceries to Cars, Tariffs Could Raise Prices for U.S. Consumers**\
+`President Trump’s new tariffs on goods from Canada, Mexico and China are likely to result in higher prices for lots of products, including computers, tequila and gas.`\
+https://nytimes.com/2025/02/02/business/tariffs-prices-consumers.html
+
+**U.A.W. president backs use of tariffs to protect jobs, but not for other policy aims.**\
+`By Neal E. Boudette`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/uaw-shawn-fain-tariffs-trump
+
 **Fay Vincent, Baseball Commissioner in a Stormy Era, Dies at 86**\
 `He presided in a period of union strife, the emergence of steroid use, the banning of Pete Rose and an earthquake that rattled a World Series.`\
 https://nytimes.com/2025/02/02/sports/baseball/fay-vincent-dead.html
