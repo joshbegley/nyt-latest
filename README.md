@@ -1,7 +1,3 @@
-**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
-`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
-https://nytimes.com/athletic/6083468/2025/02/01/ovechkin-goals-record-wayne-gretzky-stats/
-
 **Rickey Henderson hailed by baseball legends, Oakland fans in stirring celebration**\
 `The celebration of life for the legendary leadoff man was an exhilarating affair: "He was a legend here in Oakland, California."`\
 https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-life-oakland/
@@ -15,7 +11,7 @@ https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-
 https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
 
 **Here’s what to know.**\
-`By Matina Stevis-Gridneff, Mike Ives, Ana Swanson and Alan Rappeport`\
+`By Matina Stevis-Gridneff, Mike Ives, Emiliano Rodríguez Mega, Ana Swanson and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
 
 **Rory McIlroy and a Sunday at Pebble Beach, where it all feels possible**\
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/us-claims-cartels-have
 **'A thousand reasons' for J.T. Miller to come to New York, be part of new Rangers core**\
 `Miller lost in his Rangers debut despite scoring two goals, but his main focus is on getting New York back into the playoff picture.`\
 https://nytimes.com/athletic/6105847/2025/02/01/rangers-jt-miller-trade-debut/
+
+**Trump’s Canada and Mexico Tariffs Could Hurt Carmakers**\
+`General Motors and a few other companies make as much as 40 percent of their North American cars and trucks in Canada and Mexico, leaving them vulnerable to tariffs.`\
+https://nytimes.com/2025/02/01/business/economy/tariffs-trump-automakers-canada-mexico.html
 

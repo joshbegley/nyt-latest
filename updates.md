@@ -1,3 +1,7 @@
+**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
+`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
+https://nytimes.com/athletic/6083468/2025/02/01/ovechkin-goals-record-wayne-gretzky-stats/
+
 **Rickey Henderson hailed by baseball legends, Oakland fans in stirring celebration**\
 `The celebration of life for the legendary leadoff man was an exhilarating affair: "He was a legend here in Oakland, California."`\
 https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-life-oakland/
