@@ -1,3 +1,11 @@
+**Michael Katz, 85, Dies; Wrote About Boxing With Passion and Humor**\
+`Writing for The New York Times and The Daily News, he was known for his combative style and relished tweaking the powerful people in the sport.`\
+https://nytimes.com/2025/02/02/sports/michael-katz-dead.html
+
+**Canada published a long list of U.S. goods to be covered by its own tariffs.**\
+`By Matina Stevis-Gridneff and Ian Austen`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/canada-published-a-long-list-of-us-goods-to-be-covered-by-its-own-tariffs
+
 **Karen Pryor, Guru of Positive Reinforcement, Is Dead at 92**\
 `She was so successful at training dolphins that she began applying the same techniques to other creatures, including dogs — and humans.`\
 https://nytimes.com/2025/02/02/us/karen-pryor-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/02/us/politics/trump-tariffs-ieepa.html
 **Rescuers Search for Survivors After Missile Strike in Ukraine**\
 `Ukrainian officials said at least 14 people were killed in Poltava, Ukraine, after a Russian missile hit a residential building in the city, which is nearly 150 miles from the front lines.`\
 https://nytimes.com/video/world/europe/100000009965641/ukraine-russia-missile-poltava.html
-
-**Security Official at Aid Agency Put on Leave After Denying Access to Musk Team**\
-`Workers at the U.S. Agency for International Development are bracing for a loss of its independent status and sweeping layoffs as President Trump continues slashing foreign aid.`\
-https://nytimes.com/2025/02/02/us/politics/usaid-official-leave-musk.html
-
-**Houston Flight Evacuated Before Takeoff Because of Engine Fire, Video Shows**\
-`A video on social media showed smoke and flames coming from one of the engines of a United Airlines flight headed for LaGuardia Airport in New York.`\
-https://nytimes.com/2025/02/02/us/united-airlines-houston-engine-fire.html
 
