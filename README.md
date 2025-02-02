@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-
 https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
 
 **Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
-`Manny Machado on Roki Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
+`Manny Machado on Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
 https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
 
 **Here’s what to know.**\
