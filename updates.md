@@ -1,3 +1,7 @@
+**Soler interview: 'I saw the manager had confidence in me… that's very important'**\
+`The Spanish midfielder on the move to London, adapting to life under Graham Potter and what his long-term future might hold`\
+https://nytimes.com/athletic/6105992/2025/02/02/carlos-soler-interview-west-ham/
+
 **Trump Administration Revokes Protections for Venezuelans in the U.S.**\
 `The decision to revoke Temporary Protected Status signals that President Trump will continue to dismantle a program that aims to protect migrants from potentially dangerous countries.`\
 https://nytimes.com/2025/02/02/us/politics/trump-venezuela-temporary-protected-status.html
