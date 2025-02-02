@@ -1,7 +1,3 @@
-**Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
-`Grant identifies Lesnar as the man who McMahon offered to have sex with Grant in 2021.`\
-https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
-
 **Why Matt Poitras’ offensive development is a leading factor in the Bruins’ retool**\
 `The fact the 20-year-old center flashes skills as an offensive driver is a good thing for the Bruins.`\
 https://nytimes.com/athletic/6105913/2025/02/01/bruins-matt-poitras-retool/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/01/us/boy-killed-hyperbaric-chamber-explosion-michig
 **Bears expected to hire Eric Bieniemy as RBs coach**\
 `Bienemy overlapped with Bears GM Ryan Poles while with the Chiefs and with president/CEO Kevin Warren during his time coaching in Minnesota.`\
 https://nytimes.com/athletic/6105763/2025/02/01/eric-bieniemy-nfl-bears-rb-coach/
+
+**USC upsets No. 7 Michigan State, keeps Tom Izzo one win behind Bob Knight**\
+`This is the Spartans’ first loss outside of Quad 1, but they also have just two wins over teams that would be safely in the field today.`\
+https://nytimes.com/athletic/6105856/2025/02/01/usc-michigan-state-tom-izzo-big-ten/
 
