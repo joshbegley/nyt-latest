@@ -1,3 +1,7 @@
+**Thousands of U.S. Government Web Pages Have Been Taken Down Since Friday**\
+`Federal agencies moved to satisfy Trump’s orders to remove topics like diversity initiatives and “gender ideology.”`\
+https://nytimes.com/2025/02/02/upshot/trump-government-websites-missing-pages.html
+
 **Who Pays for Tariffs? Here’s What You Need to Know.**\
 `President Trump has insisted that his new tariffs on America’s largest trading partners will not increase prices for Americans. But a review of how they work suggests that is not the case.`\
 https://nytimes.com/2025/02/02/business/economy/trump-tariffs-what-to-know.html
