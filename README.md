@@ -1,3 +1,7 @@
+**Spurs sign Danso from Lens on loan before permanent transfer**\
+`Tottenham Hotspur have completed the signing of central defender Kevin Danso from Lens.`\
+https://nytimes.com/athletic/6101030/2025/02/02/tottenham-transfers-kevin-danso/
+
 **West Ham reach agreement for Ferguson loan from Brighton**\
 `West Ham United have reached an agreement to sign Brighton &amp; Hove Albion striker Evan Ferguson on loan.`\
 https://nytimes.com/athletic/6096479/2025/02/02/west-ham-evan-ferguson-transfer-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/nyregion/metropolitan-diary.html
 **Two Families and One Moment in Time, Long Before Flames Hit L.A.**\
 `As fires spread in Los Angeles, a reporter found a surprising, decades-old link between his father and a couple he would come to write about.`\
 https://nytimes.com/2025/02/02/reader-center/burl-toler.html
-
-**Jhon Duran: An MLS triumph, not just soccer's hot topic and an $80M man**\
-`From MLS to Saudi-league millions took Duran less than two years.`\
-https://nytimes.com/athletic/6101169/2025/02/02/jhon-duran-aston-villa-mls-chicago/
 

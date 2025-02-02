@@ -1,5 +1,9 @@
 **West Ham reach agreement for Ferguson loan from Brighton**\
 `West Ham United have reached an agreement to sign Brighton &amp; Hove Albion striker Evan Ferguson on loan.`\
+https://nytimes.com/athletic/6096479/2025/02/02/west-ham-evan-ferguson-transfer-loan/
+
+**West Ham reach agreement for Ferguson loan from Brighton**\
+`West Ham United have reached an agreement to sign Brighton &amp; Hove Albion striker Evan Ferguson on loan.`\
 https://nytimes.com/athletic/6096479/2025/02/02/west-ham-evan-ferguson-transfer/
 
 **Amick: In Luka-AD deal, Lakers swing for future 'alpha' they didn't believe they had**\
