@@ -1,3 +1,11 @@
+**What is the biggest win in Premier League history?**\
+`Nottingham Forest thrashed Brighton 7-0 on Saturday — but that's not enough to even get into the top 10 for biggest margins of victory...`\
+https://nytimes.com/athletic/6104882/2025/02/02/biggest-win-premier-league-history-victory/
+
+**Wild embarrassed after rout by Senators, Ryan Hartman faces possible suspension: 4 takeaways**\
+`The veteran forward received a five-minute match penalty for intent to injure after shoving Tim Stützle’s head into the ice after a faceoff.`\
+https://nytimes.com/athletic/6106122/2025/02/02/wild-senators-ryan-hartman-penalty-suspension/
+
 **Emery is an expert at rejuvenating footballers' careers - can he do it with Rashford?**\
 `Aston Villa view Rashford as a multi-faceted attacker - this is how he might fit into their starting XI `\
 https://nytimes.com/athletic/6105417/2025/02/02/marcus-rashford-aston-villa-emery-tactics/
