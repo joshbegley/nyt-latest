@@ -1,3 +1,7 @@
+**How yet another sluggish start buried Oilers in loss to Maple Leafs**\
+`The Oilers buried themselves in a hole after allowing three goals to the Maple Leafs in the first period of a 4-3 loss.`\
+https://nytimes.com/athletic/6106129/2025/02/01/oilers-maple-leafs-score-loss/
+
 **Maple Leafs report cards: Joseph Woll, special teams help Toronto hang on**\
 `Matthew Knies and John Tavares returned to the lineup, and Woll made 45 saves as Toronto broke a three-game losing streak in Edmonton.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-
 **Texas Tech stuns Houston, overcomes ejections to coach and star player**\
 `It was Texas Tech’s first win this season over a team in the current AP Top 25 and ended Houston’s nation-best 32-game home winning streak.`\
 https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
-
-**Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
-`Manny Machado on Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
-https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
 
