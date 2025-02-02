@@ -1,40 +1,40 @@
-**John Calipari's return to Kentucky results in boos and an unexpected victory**\
-`Arkansas, loser of six of its previous seven entering the game, refused to let down its coach in his return to Big Blue Nation.`\
-https://nytimes.com/athletic/6106265/2025/02/02/john-calipari-kentucky-homecoming-arkansas/
+**‘Sovereign’ Status of Manhattan Federal Prosecutor Hangs in the Balance**\
+`If Danielle R. Sassoon, the interim U.S. attorney, agrees to drop the prosecution of Mayor Eric Adams, the decision could threaten the reputation of a famously independent office.`\
+https://nytimes.com/2025/02/02/nyregion/eric-adams-charges-southern-district.html
 
-**Social media stunned as Lakers trade Anthony Davis to Mavericks for Luka Dončić **\
-`The sports world reacted as the Lakers and Mavericks made a trade no one could have expected. `\
-https://nytimes.com/athletic/6106266/2025/02/02/luka-doncic-anthony-davis-lakers-mavericks-social-media/
+**The Wardrobe for a Storybook Life**\
+`A fairy-tale quality connected much of the fashion at couture week in Paris.`\
+https://nytimes.com/2025/02/02/style/paris-couture-fashion-week.html
 
-**Duke's blowout over UNC shows Tobacco Road rivals are moving in opposite directions**\
-`Losing a rivalry game is one thing. Getting blown out is rarer, but it happens. But getting tripled up in the first half? "They whupped us."`\
-https://nytimes.com/athletic/6106242/2025/02/02/duke-blows-out-unc/
+**The Marks of a Good Lunch**\
+`Beginning in 1924, prominent guests of the publisher autographed leather-bound books during their visits to The Times’s headquarters.`\
+https://nytimes.com/2025/02/02/insider/the-marks-of-a-good-lunch.html
 
-**Luka Dončić, Anthony Davis trade grades: How will Lakers, Mavericks, Jazz fare after blockbuster trade**\
-`In a stunning move the Dallas Mavericks have traded Luka Dončić to the Lakers. `\
-https://nytimes.com/athletic/6106197/2025/02/02/luca-doncic-trade-lakers-anthony-davis-mavericks-grades/
+**The South Bronx Has a Pollution Issue. Congestion Pricing May Worsen It.**\
+`Preliminary data from the first few weeks of New York City’s tolling plan show a possible uptick in traffic in the neighborhood.`\
+https://nytimes.com/2025/02/02/nyregion/congestion-pricing-air.html
 
-**“I Feel Like a Superhero.” Hope Lives Amid Gaza’s Rubble.**\
-`Amid the devastation of Gaza, we now can at least look for some purpose beyond mere survival.`\
-https://nytimes.com/2025/02/02/opinion/gaza-israel-cease-fire-hope.html
+**‘A Well-Dressed Man Sitting Across From Me Was Drawing With a Pencil’**\
+`A swap on the subway in the Bronx, a nightly ritual in Chelsea and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/02/02/nyregion/metropolitan-diary.html
 
-**Why Ottawa's win over Minnesota was its most dominant of the season: 4 takeaways**\
-`Ottawa dominated every period with its offence and defence, got better goaltending, won more faceoffs and made fewer mistakes Saturday.`\
-https://nytimes.com/athletic/6106037/2025/02/02/ottawa-senators-minnesota-wild-takeaways/
+**Two Families and One Moment in Time, Long Before Flames Hit L.A.**\
+`As fires spread in Los Angeles, a reporter found a surprising, decades-old link between his father and a couple he would come to write about.`\
+https://nytimes.com/2025/02/02/reader-center/burl-toler.html
 
-**F.A.A.’s Main Warning System for Pilots Is Down, U.S. Official Says**\
-`Transportation Secretary Sean Duffy said the Federal Aviation Administration was using a backup system while it worked to address the problem.`\
-https://nytimes.com/2025/02/02/us/notam-outage-faa-alerts.html
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/02/crosswords/spelling-bee-forum.html
 
-**Luka Dončić to Lakers from Mavericks for Anthony Davis in NBA blockbuster**\
-`The Mavs will receive Max Christie and a 2029 first-round pick, while the Lakers get Maxi Kleber and Markieff Morris in the multi-team deal.`\
-https://nytimes.com/athletic/6106196/2025/02/02/luka-doncic-trade-lakers-anthony-davis-mavericks/
+**Hollinger: Why Mavs are taking huge risk by sending Luka Dončić to L.A.**\
+`This was a no-brainer for the Lakers. In Dallas, it's fair to wonder what the future holds.`\
+https://nytimes.com/athletic/6106272/2025/02/02/luka-doncic-trade-anthony-davis-lakers-hollinger/
 
-**Seven factors that explain Brighton's humiliating 7-0 defeat to Nottingham Forest**\
-`Saturday's loss at the City Ground was Brighton's heaviest in a league game since the opening day of the 1958-59 season`\
-https://nytimes.com/athletic/6104857/2025/02/02/brighton-forest-seven-factors-explain-result/
+**It Was the Big One. Just Not the One L.A. Was Expecting.**\
+`Officials across the Los Angeles area had plenty of warning that a deadly confluence of wind and drought was coming. A bad fire was likely. Did they do enough to get ready?`\
+https://nytimes.com/2025/02/02/us/la-wildfires-palisades-eaton-preparations.html
 
-**What do Chelsea need to do to instigate a return to form?**\
-`Enzo Maresca's side have won only once in the league since mid-December, but there are changes he could make to kickstart an upturn`\
-https://nytimes.com/athletic/6099538/2025/02/02/chelsea-maresca-form-west-ham/
+**Why Is This C.E.O. Bragging About Replacing Humans With A.I.?**\
+`Most large employers play down the likelihood that bots will take our jobs. Then there’s Klarna, a darling of tech investors.`\
+https://nytimes.com/2025/02/02/business/why-is-this-ceo-bragging-about-replacing-humans-with-ai.html
 
