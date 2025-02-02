@@ -1,3 +1,7 @@
+**Mavericks trade Luka Dončić to Lakers for Anthony Davis in NBA blockbuster**\
+`The Mavs will receive Max Christie and a 2029 first-round pick, while the Lakers get Maxi Kleber and Markieff Morris in the multi-team deal.`\
+https://nytimes.com/athletic/6106196/2025/02/02/luka-doncic-trade-lakers-anthony-davis-mavericks/
+
 **Seven factors that explain Brighton's humiliating 7-0 defeat to Nottingham Forest**\
 `Saturday's loss at the City Ground was Brighton's heaviest in a league game since the opening day of the 1958-59 season`\
 https://nytimes.com/athletic/6104857/2025/02/02/brighton-forest-seven-factors-explain-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102773/2025/02/02/rubiales-trial-hermoso-explained
 **Last 48 Hours Of A Transfer Window Derangement Syndrome - a brief guide**\
 `Tim Spiers on why common sense goes missing in the final few days of a transfer window`\
 https://nytimes.com/athletic/6102810/2025/02/02/transfer-window-derangement-syndrome-brief-guide/
-
-**After a fiery first meeting this season, what can we expect from Arsenal vs Man City?**\
-`The game at the Etihad earlier this season resulted in new levels of bad blood between the clubs, so what can we expect this time?`\
-https://nytimes.com/athletic/6102433/2025/02/02/arsenal-man-city-rivalry/
 
