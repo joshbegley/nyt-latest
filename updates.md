@@ -1,3 +1,7 @@
+**The Pulse: New "most stunning trade in NBA history"**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6106685/2025/02/02/luka-doncic-anthony-davis-trade-the-pulse/
+
 **How did Mavs go from NBA Finals to trading Luka Dončić under than a year?**\
 `Time will tell if Dallas can actually be a contender again without one of the brightest offensive talents in NBA history.`\
 https://nytimes.com/athletic/6106419/2025/02/02/mavericks-reasons-luka-doncic-anthony-davis-trade-nba/

@@ -1,3 +1,7 @@
+**The Pulse: New "most stunning trade in NBA history"**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6106685/2025/02/02/luka-doncic-anthony-davis-trade-the-pulse/
+
 **Salah's future and whether it's breaking records or Saudi Arabia**\
 `Salah must be looking at his Premier League legacy. Is he ready to walk away from the big stage when he's performing at such a high level?`\
 https://nytimes.com/athletic/6105917/2025/02/02/mohamed-salah-liverpool-future-records/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106419/2025/02/02/mavericks-reasons-luka-doncic-an
 **Man United complete signing of Dorgu from Lecce**\
 `Manchester United have completed the signing of Patrick Dorgu from Lecce.`\
 https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-transfer-confirmed/
-
-**Patrick Dorgu joins Man United - His strengths, weaknesses and what he can bring to Amorim's side**\
-`Patrick Dorgu has completed his move to Manchester United and is a potential solution to Amorim's wing-back problem`\
-https://nytimes.com/athletic/6073035/2025/02/02/patrick-dorgu-manchester-united-transfers-signing-strengths/
 
