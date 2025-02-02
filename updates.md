@@ -1,3 +1,7 @@
+**Trade spin: How does the pairing of Luka and LeBron impact fantasy basketball?**\
+`Stan Son breaks down the new fantasy basketball dynamics at play for the Mavericks and Lakers after their blockbuster trade.`\
+https://nytimes.com/athletic/6107498/2025/02/02/luka-lebron-anthony-davis-trade-fantasy-basketball-trade/
+
 **Grammys 2025: Winners List**\
 `An updating rundown of the artists, albums, songs and videos that took home trophies at the 67th annual awards.`\
 https://nytimes.com/2025/02/02/arts/music/grammys-2025-winners-list.html
