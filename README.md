@@ -1,3 +1,23 @@
+**Trump’s Tariffs Put China in a Difficult Spot**\
+`China chose swift retaliation for trade measures in the first Trump administration, but that led to an upward spiral of trade measures and much broader tariffs.`\
+https://nytimes.com/2025/02/02/business/trump-tariffs-china.html
+
+**The Divine, the Digital and the Political at Humanity’s Largest Gathering**\
+`The Maha Kumbh Mela, a Hindu festival in India that is drawing hundreds of millions of pilgrims, is a powerful marketing tool for Prime Minister Narendra Modi and his allies.`\
+https://nytimes.com/2025/02/02/world/asia/india-maha-kumbh-mela.html
+
+**DeepSeek Is a Win for China in the A.I. Race. Will the Party Stifle It?**\
+`DeepSeek’s success embodies China’s ambitions in artificial intelligence. But it could also threaten the grip on power the nation’s leaders hold.`\
+https://nytimes.com/2025/02/02/world/asia/deepseek-is-a-win-for-china-in-the-ai-race-will-the-party-stifle-it.html
+
+**Arsenal vs Manchester City odds and predictions: Can Gunners trim the gap to Liverpool?**\
+`Arsenal host Manchester City at the Emirates. The Gunners are looking to close the gap to league-leaders Liverpool.`\
+https://nytimes.com/athletic/6102620/2025/02/02/arsenal-manchester-city-odds-predictions/
+
+**Brentford vs Tottenham odds and predictions: Can Spurs stop the rot with a win?**\
+`Tottenham face Brentford at the Gtech Community Stadium. Spurs are hoping to save their season, and manager, with a much-needed win. `\
+https://nytimes.com/athletic/6100692/2025/02/02/brentford-tottenham-odds-predictions/
+
 **How yet another sluggish start buried Oilers in loss to Maple Leafs**\
 `The Oilers buried themselves in a hole after allowing three goals to the Maple Leafs in the first period of a 4-3 loss.`\
 https://nytimes.com/athletic/6106129/2025/02/01/oilers-maple-leafs-score-loss/
@@ -18,24 +38,4 @@ https://nytimes.com/2025/02/01/us/politics/trump-dei-education-department.html
 **UConn upsets Marquette men’s basketball on the road**\
 `UConn shot 65 percent in the second half en route to a 77-69 win over a Big East rival.`\
 https://nytimes.com/athletic/6106071/2025/02/01/uconn-marquette-upset-basketball-result/
-
-**Angel Reese becomes first player ejected in Unrivaled history**\
-`Reese received back-to-back technical fouls before the ejection, a first for the new women's 3x3 basketball league.`\
-https://nytimes.com/athletic/6106026/2025/02/01/angel-reese-ejection-unrivaled/
-
-**Celebrating spending, Shohei Ohtani's rehab and more: Takeaways from 'Dodgerfest'**\
-`Dodgers manager Dave Roberts said Ohtani could make his pitching debut for the team in May.`\
-https://nytimes.com/athletic/6106016/2025/02/01/dodgers-shohei-ohtani-pitching-debut/
-
-**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
-`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
-https://nytimes.com/athletic/6083468/2025/02/01/ovechkin-goals-record-wayne-gretzky-stats/
-
-**Rickey Henderson hailed by baseball legends, Oakland fans in stirring celebration**\
-`The celebration of life for the legendary leadoff man was an exhilarating affair: "He was a legend here in Oakland, California."`\
-https://nytimes.com/athletic/6105951/2025/02/01/rickey-henderson-celebration-of-life-oakland/
-
-**Texas Tech stuns Houston, overcomes ejections to coach and star player**\
-`It was Texas Tech’s first win this season over a team in the current AP Top 25 and ended Houston’s nation-best 32-game home winning streak.`\
-https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-12/
 
