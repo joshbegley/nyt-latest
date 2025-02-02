@@ -1,3 +1,7 @@
+**Kendrick Lamar wins 3 early Grammys for ‘Not Like Us.’**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-early-grammys-for-not-like-us
+
 **10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/02/02/upshot/ten-minute-challenge-hunters.html

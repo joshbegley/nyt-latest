@@ -1,3 +1,7 @@
+**Kendrick Lamar wins 3 early Grammys for ‘Not Like Us.’**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-early-grammys-for-not-like-us
+
 **Jaden Smith Wears a Castle on the 2025 Grammys Red Carpet**\
 `The headpiece, which itself was turning heads Sunday night, was sculpted by the designer Dora Abodi.`\
 https://nytimes.com/2025/02/02/arts/music/jaden-smith-castle-grammys.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/dc-plane-crash-washington-helicopter.html
 **3 Mexican Sectors Most Affected by U.S. Tariffs, and How the Country Could Respond**\
 `President Trump’s tariffs will have major effects on Mexico’s auto industry, agriculture and energy, but the country has some means for responding.`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/mexico-economy-trump-tariffs
-
-**Kendrick Lamar’s ‘Not Like Us’ could become the rare rap song to win big.**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-not-like-us-grammys-2025
 
