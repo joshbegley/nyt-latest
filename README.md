@@ -1,3 +1,19 @@
+**3 Mexican Sectors Most Affected by U.S. Tariffs, and How the Country Could Respond**\
+`President Trump’s tariffs will have major effects on Mexico’s auto industry, agriculture and energy, but the country has some means for responding.`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/mexico-economy-trump-tariffs
+
+**Kendrick Lamar’s ‘Not Like Us’ could become the rare rap song to win big.**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-not-like-us-grammys-2025
+
+**Raiders hiring Ohio State OC Chip Kelly in same role**\
+`In his lone season with the Buckeyes, Kelly helped lead them to a victory in the 2024 College Football Playoff National Championship`\
+https://nytimes.com/athletic/6107799/2025/02/02/chip-kelly-raiders-offensive-coordinator-ohio-state-nfl/
+
+**Rory McIlroy wins at Pebble Beach for 27th PGA Tour victory**\
+`McIlroy shot a final-round 66 at an iconic course he's never won at before during his career.`\
+https://nytimes.com/athletic/6107744/2025/02/02/rory-mcilroy-pebble-beach-pga-tour-win/
+
 **Bobby Witt Jr. for Mike Trout? Jacob deGrom for Paul Skenes? The Luka Dončić trade in baseball terms**\
 `We thought we’d lean into our experience covering the NBA and MLB, and imagine the baseball equivalent of the Dončić-Davis trade.`\
 https://nytimes.com/athletic/6107800/2025/02/02/luka-doncic-trade-in-baseball-terms/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html
 **With wildfires blazing, the Grammys decided the show should go on.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/los-angeles-fires-grammys-2025
-
-**Here’s the latest.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/heres-the-latest
-
-**Jimmy Carter wins a posthumous Grammy.**\
-`By Marc Tracy`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/jimmy-carter-grammy-awards-2025
-
-**Across sectors, business and labor groups push back against Trump’s tariffs.**\
-`By Danielle Kaye`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/across-sectors-business-and-labor-groups-push-back-against-trumps-tariffs
-
-**Rashford completes Villa loan**\
-`Villa hold an option to make Rashford's move permanent for £40million ($49.5m) in the summer.`\
-https://nytimes.com/athletic/6105124/2025/02/02/marcus-rashford-villa-transfer-manchester-united/
 
