@@ -1,3 +1,7 @@
+**Angel Reese becomes first player ejected in Unrivaled history**\
+`Reese received back-to-back technical fouls before the ejection, a first for the new women's 3x3 basketball league.`\
+https://nytimes.com/athletic/6106026/2025/02/01/angel-reese-ejection-unrivaled/
+
 **Padres notes: Roki Sasaki and other FanFest absences, trade rumor talk, positional returns**\
 `Manny Machado on Sasaki: “I think he had his mind set already (on) where he was going. That’s just my opinion.”`\
 https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
