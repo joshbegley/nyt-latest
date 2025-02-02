@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6105986/2025/02/01/texas-tech-houston-ejection-big-
 https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absences-trade-rumors/
 
 **Here’s what to know.**\
-`By Matina Stevis-Gridneff, Mike Ives, Ana Swanson and Alan Rappeport`\
+`By Matina Stevis-Gridneff, Mike Ives, Emiliano Rodríguez Mega, Ana Swanson and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
 
 **Rory McIlroy and a Sunday at Pebble Beach, where it all feels possible**\

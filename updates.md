@@ -1,3 +1,7 @@
+**Here’s what to know.**\
+`By Matina Stevis-Gridneff, Mike Ives, Emiliano Rodríguez Mega, Ana Swanson and Alan Rappeport`\
+https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
+
 **How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
 `We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
 https://nytimes.com/athletic/6083468/2025/02/01/ovechkin-goals-record-wayne-gretzky-stats/
