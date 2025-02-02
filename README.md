@@ -1,3 +1,11 @@
+**The Briefing: Man Utd 0 Palace 2: Mainoo experiment, Martinez injury and a seventh home defeat**\
+`We take a look at the talking points from another loss at Old Trafford for Manchester United.`\
+https://nytimes.com/athletic/6097419/2025/02/02/manchester-united-mainoo-amorim-martinez/
+
+**Bacon, Egg, Cheese and Kimchi**\
+`It’s a great sandwich for a host of reasons, namely the crunch of the fiery kimchi against the softness of the scrambled eggs and cheese.`\
+https://nytimes.com/2025/02/02/dining/bacon-egg-cheese-kimchi-sandwich.html
+
 **The Briefing: Brentford 0 Spurs 2 - relief for Postecoglou, Spence's importance and Danso's arrival**\
 `Jay Harris and Jack Pitt-Brooke analyse the key talking points from Tottenham's much-needed victory at Brentford`\
 https://nytimes.com/athletic/6096757/2025/02/02/brentford-tottenham-hotspur-premier-league-analysis/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6106757/2025/02/02/indiana-fever-dewanna-bonner-fre
 `Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
 `\
 https://nytimes.com/athletic/6080892/2025/02/02/wnba-2025-free-agency-tracker-best-players/
-
-**Real Madrid slip up against Espanyol: Injury blow for Rudiger and anger over Romero's tackle on Mbappe**\
-`Madrid were furious with the refereeing as they lost to Espanyol, with the winning goal scored by a player they feel should have seen red`\
-https://nytimes.com/athletic/6105920/2025/02/02/real-madrid-mbappe-romero-tackle-rudiger-injury-referees/
-
-**Trump’s Tariffs May Complicate Efforts to Tame Inflation**\
-`Federal Reserve officials are closely watching the levies, given the expectation that such policies could lead to higher prices.`\
-https://nytimes.com/2025/02/02/us/politics/fed-trump-tariffs-interest-rates-inflation.html
 
