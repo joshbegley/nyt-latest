@@ -1,3 +1,7 @@
+**Trump Tariffs Threaten to Upend Global Economic Order**\
+`The invoking of national security to unravel trade agreements could scramble the international trading system in China’s favor.`\
+https://nytimes.com/2025/02/02/us/politics/trump-tariffs-global-economic-order.html
+
 **Michael Katz, 85, Dies; Wrote About Boxing With Passion and Humor**\
 `Writing for The New York Times and The Daily News, he was known for his combative style and relished tweaking the powerful people in the sport.`\
 https://nytimes.com/2025/02/02/sports/michael-katz-dead.html
