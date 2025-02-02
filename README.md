@@ -1,3 +1,7 @@
+**F.A.A.’s Main Warning System for Pilots Is Down, U.S. Official Says**\
+`Transportation Secretary Sean Duffy said the Federal Aviation Administration was using a backup system while it worked to address the problem.`\
+https://nytimes.com/2025/02/02/us/notam-outage-faa-alerts.html
+
 **Luka Dončić to Lakers from Mavericks for Anthony Davis in NBA blockbuster**\
 `The Mavs will receive Max Christie and a 2029 first-round pick, while the Lakers get Maxi Kleber and Markieff Morris in the multi-team deal.`\
 https://nytimes.com/athletic/6106196/2025/02/02/luka-doncic-trade-lakers-anthony-davis-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106122/2025/02/02/wild-senators-ryan-hartman-penal
 **The Luis Rubiales trial explained: The kiss, the fallout, the accused and the key witnesses**\
 `The trial involves the ex-president of the Spain football federation and one of the stars of the Spain women's team that won 2023 World Cup`\
 https://nytimes.com/athletic/6102773/2025/02/02/rubiales-trial-hermoso-explained/
-
-**Last 48 Hours Of A Transfer Window Derangement Syndrome - a brief guide**\
-`Tim Spiers on why common sense goes missing in the final few days of a transfer window`\
-https://nytimes.com/athletic/6102810/2025/02/02/transfer-window-derangement-syndrome-brief-guide/
 
