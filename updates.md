@@ -1,3 +1,11 @@
+**Jaden Smith Wears a Castle on the 2025 Grammys Red Carpet**\
+`The headpiece, which itself was turning heads Sunday night, was sculpted by the designer Dora Abodi.`\
+https://nytimes.com/2025/02/02/arts/music/jaden-smith-castle-grammys.html
+
+**10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/02/02/us/hunters-in-the-snow.html
+
 **OpenAI Unveils A.I. Tool That Can Do Research Online**\
 `The tool, called Deep Research, arrives days after OpenAI released another one, which shops for groceries and books restaurant reservations.`\
 https://nytimes.com/2025/02/02/technology/openai-deep-research-tool.html
