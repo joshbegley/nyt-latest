@@ -1,3 +1,7 @@
+**Luka Dončić, Anthony Davis trade grades: How will Lakers, Mavericks, Jazz fare after blockbuster trade**\
+`In a stunning move the Dallas Mavericks have traded Luka Dončić to the Lakers. `\
+https://nytimes.com/athletic/6106197/2025/02/02/luca-doncic-trade-lakers-anthony-davis-mavericks-grades/
+
 **“I Feel Like a Superhero.” Hope Lives Amid Gaza’s Rubble.**\
 `Amid the devastation of Gaza, we now can at least look for some purpose beyond mere survival.`\
 https://nytimes.com/2025/02/02/opinion/gaza-israel-cease-fire-hope.html

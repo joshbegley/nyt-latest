@@ -1,3 +1,7 @@
+**Luka Dončić, Anthony Davis trade grades: How will Lakers, Mavericks, Jazz fare after blockbuster trade**\
+`In a stunning move the Dallas Mavericks have traded Luka Dončić to the Lakers. `\
+https://nytimes.com/athletic/6106197/2025/02/02/luca-doncic-trade-lakers-anthony-davis-mavericks-grades/
+
 **“I Feel Like a Superhero.” Hope Lives Amid Gaza’s Rubble.**\
 `Amid the devastation of Gaza, we now can at least look for some purpose beyond mere survival.`\
 https://nytimes.com/2025/02/02/opinion/gaza-israel-cease-fire-hope.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105476/2025/02/02/nottingham-forest-brighton-seven
 **What is the biggest win in Premier League history?**\
 `Nottingham Forest thrashed Brighton 7-0 on Saturday — but that's not enough to even get into the top 10 for biggest margins of victory...`\
 https://nytimes.com/athletic/6104882/2025/02/02/biggest-win-premier-league-history-victory/
-
-**Emery is an expert at rejuvenating footballers' careers - can he do it with Rashford?**\
-`Aston Villa view Rashford as a multi-faceted attacker - this is how he might fit into their starting XI `\
-https://nytimes.com/athletic/6105417/2025/02/02/marcus-rashford-aston-villa-emery-tactics/
 
