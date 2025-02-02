@@ -1,3 +1,7 @@
+**Houston Flight Evacuated Before Takeoff Because of Engine Fire, Video Shows**\
+`A video on social media showed smoke and flames coming from one of the engines of a United Airlines flight headed for LaGuardia Airport in New York.`\
+https://nytimes.com/2025/02/02/us/united-airlines-houston-engine-fire.html
+
 **From Groceries to Cars, Tariffs Could Raise Prices for U.S. Consumers**\
 `President Trump’s new tariffs on goods from Canada, Mexico and China are likely to result in higher prices for lots of products, including computers, tequila and gas.`\
 https://nytimes.com/2025/02/02/business/tariffs-prices-consumers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104894/2025/02/02/blue-jackets-dean-evason-win/
 **How Luka trade affected NBA title odds: Lakers surge, Mavs drop; Celtics, Thunder on top**\
 `The Lakers' title odds moved significantly after the Luka Doncic trade from Dallas, but Boston and Oklahoma City are still the favorites.`\
 https://nytimes.com/athletic/6107007/2025/02/02/luka-doncic-trade-nba-title-odds-lakers-mavs-celtics/
-
-**Tariffs: Aiming at Mexico, Hitting Ourselves**\
-`There are many reasons to regret Trump’s latest experiment with tariffs, but let’s take prices and migration.`\
-https://nytimes.com/live/2025/01/27/opinion/thepoint/tariffs-mexico-cars-avocados-immigration
 
