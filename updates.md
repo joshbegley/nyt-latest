@@ -1,3 +1,7 @@
+**F.A.A.’s Main Warning System for Pilots Is Down, U.S. Official Says**\
+`Transportation Secretary Sean Duffy said the Federal Aviation Administration was using a backup system while it worked to address the problem.`\
+https://nytimes.com/2025/02/02/us/notam-outage-faa-alerts.html
+
 **Luka Dončić to Lakers from Mavericks for Anthony Davis in NBA blockbuster**\
 `The Mavs will receive Max Christie and a 2029 first-round pick, while the Lakers get Maxi Kleber and Markieff Morris in the multi-team deal.`\
 https://nytimes.com/athletic/6106196/2025/02/02/luka-doncic-trade-lakers-anthony-davis-mavericks/
