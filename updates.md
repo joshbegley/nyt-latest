@@ -1,3 +1,7 @@
+**Patrick Dorgu joins Man United - His strengths, weaknesses and what he can bring to Amorim's side**\
+`Patrick Dorgu has completed his move to Manchester United and is a potential solution to Amorim's wing-back problem`\
+https://nytimes.com/athletic/6073035/2025/02/02/patrick-dorgu-manchester-united-transfers-signing-strengths/
+
 **Man United complete signing of Dorgu from Lecce**\
 `Manchester United have completed the signing of Patrick Dorgu from Lecce.`\
 https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-transfer-confirmed/

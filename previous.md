@@ -2,6 +2,10 @@
 `Manchester United have completed the signing of Patrick Dorgu from Lecce.`\
 https://nytimes.com/athletic/6097125/2025/02/02/patrick-dorgu-manchester-united-transfer-confirmed/
 
+**Patrick Dorgu joins Man United - His strengths, weaknesses and what he can bring to Amorim's side**\
+`Patrick Dorgu has completed his move to Manchester United and is a potential solution to Amorim's wing-back problem`\
+https://nytimes.com/athletic/6073035/2025/02/02/patrick-dorgu-manchester-united-transfers-signing-strengths/
+
 **Five pressing topics for NFL commissioner Roger Goodell to address at Super Bowl**\
 `Goodell can likely expect questions Monday about progress on an 18-game season, the state of officiating, rules changes and more.`\
 https://nytimes.com/athletic/6103740/2025/02/02/nfl-commissioner-roger-goodell-2025-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/opinion/medicaid-tax-cuts-republicans.html
 **Isolationist? Nationalist? No, Trump Is Something Else Entirely.**\
 `Inside the lost tradition in American foregin policy that explains the president’s overseas obsessions.`\
 https://nytimes.com/2025/02/02/opinion/trump-panama-greenland-foreign-policy.html
-
-**Connections Companion No. 603**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 3, 2025.`\
-https://nytimes.com/2025/02/02/crosswords/connections-companion-603.html
 
