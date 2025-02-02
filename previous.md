@@ -1,3 +1,7 @@
+**Why Ottawa's win over Minnesota was its most dominant of the season: 4 takeaways**\
+`Ottawa dominated every period with its offence and defence, got better goaltending, won more faceoffs and made fewer mistakes Saturday.`\
+https://nytimes.com/athletic/6106037/2025/02/02/ottawa-senators-minnesota-wild-takeaways/
+
 **F.A.A.’s Main Warning System for Pilots Is Down, U.S. Official Says**\
 `Transportation Secretary Sean Duffy said the Federal Aviation Administration was using a backup system while it worked to address the problem.`\
 https://nytimes.com/2025/02/02/us/notam-outage-faa-alerts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105417/2025/02/02/marcus-rashford-aston-villa-emer
 **Wild embarrassed after rout by Senators, Ryan Hartman faces possible suspension: 4 takeaways**\
 `The veteran forward received a five-minute match penalty for intent to injure after shoving Tim Stützle’s head into the ice after a faceoff.`\
 https://nytimes.com/athletic/6106122/2025/02/02/wild-senators-ryan-hartman-penalty-suspension/
-
-**The Luis Rubiales trial explained: The kiss, the fallout, the accused and the key witnesses**\
-`The trial involves the ex-president of the Spain football federation and one of the stars of the Spain women's team that won 2023 World Cup`\
-https://nytimes.com/athletic/6102773/2025/02/02/rubiales-trial-hermoso-explained/
 

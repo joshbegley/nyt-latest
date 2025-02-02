@@ -1,3 +1,7 @@
+**Why Ottawa's win over Minnesota was its most dominant of the season: 4 takeaways**\
+`Ottawa dominated every period with its offence and defence, got better goaltending, won more faceoffs and made fewer mistakes Saturday.`\
+https://nytimes.com/athletic/6106037/2025/02/02/ottawa-senators-minnesota-wild-takeaways/
+
 **F.A.A.’s Main Warning System for Pilots Is Down, U.S. Official Says**\
 `Transportation Secretary Sean Duffy said the Federal Aviation Administration was using a backup system while it worked to address the problem.`\
 https://nytimes.com/2025/02/02/us/notam-outage-faa-alerts.html
