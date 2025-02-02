@@ -1,3 +1,7 @@
+**Plane and Aircraft Tug Vehicle Collide in Chicago, Critically Injuring Driver**\
+`The wing of an Air Wisconsin plane struck the vehicle, which was trying to cross a taxiway at Chicago O’Hare International Airport, officials said.`\
+https://nytimes.com/2025/02/02/us/chicago-ohare-airport-tug-plane-collision.html
+
 **Vance and Duffy Echo Trump in Blaming D.E.I. for Crash Near Washington**\
 `The vice president and transportation secretary claimed on Sunday that diversity hiring efforts had affected staffing levels among air traffic controllers.`\
 https://nytimes.com/2025/02/02/us/politics/vance-duffy-trump-dei-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/politics/trump-venezuela-temporary-protected-s
 **Many Republicans Stay Quiet as Trump Orders Hefty Tariffs**\
 `Senator Rand Paul of Kentucky was among the few Republicans to voice opposition to the tariffs that would take effect on Tuesday.`\
 https://nytimes.com/2025/02/02/us/politics/republicans-trump-tariffs.html
-
-**Canada’s auto industry, long entwined with the United States, could be hit hard.**\
-`By Ian Austen`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/canadas-auto-industry-long-entwined-with-the-united-states-could-be-hit-hard
 
