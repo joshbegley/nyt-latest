@@ -1,3 +1,11 @@
+**Luis Rubiales: The man at the centre of a football scandal that stunned the world**\
+`A profile of the man who overshadowed Spain's historic Women's World Cup win and is standing trial for alleged sexual assault and coercion`\
+https://nytimes.com/athletic/6099437/2025/02/02/luis-rubiales-profile-trial-hermoso-world-cup/
+
+**24 hours with Wrexham: One record fee, two statement signings and three points in the promotion race**\
+`Phil Parkinson chucked Sam Smith and Jay Rodriguez into Wrexham's starting XI to play Crawley — and was rewarded with a win `\
+https://nytimes.com/athletic/6104732/2025/02/02/crawley-wrexham-sam-smith-jay-rodriguez/
+
 **How did Mavs go from NBA Finals to trading Luka Dončić in under a year?**\
 `Time will tell if Dallas can actually be a contender again without one of the brightest offensive talents in NBA history.`\
 https://nytimes.com/athletic/6106419/2025/02/02/mavericks-reasons-luka-doncic-anthony-davis-trade-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/02/opinion/kash-patel-trump-fbi.html
 **Wordle Review No. 1,325**\
 `Scroll down for hints and conversation about the puzzle for Monday, Feb. 3, 2025.`\
 https://nytimes.com/2025/02/02/crosswords/wordle-review-1325.html
-
-**The Sunday Read: ‘Chronic Pain Is a Hidden Epidemic. It’s Time for a Revolution.’**\
-`As many as two billion people suffer from it. Can science finally offer relief?`\
-https://nytimes.com/2025/02/02/podcasts/the-daily/chronic-pain.html
-
-**The Republicans’ Choice: Tax Cuts for the Rich or Health Care for Americans**\
-`Proposed cuts would be catastrophic to Americans’ access to care.`\
-https://nytimes.com/2025/02/02/opinion/medicaid-tax-cuts-republicans.html
 
