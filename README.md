@@ -1,3 +1,7 @@
+**The White House said it would measure fentanyl seizures before lifting tariffs.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/the-white-house-said-it-would-measure-fentanyl-seizures-before-lifting-tariffs
+
 **Mavs trading Luka Dončić fits team’s vision and culture, Nico Harrison says**\
 `“There are levels to it, and there are people that fit the culture and there’s people that come in and add to the culture,” Harrison said.`\
 https://nytimes.com/athletic/6107232/2025/02/02/luka-doncic-mavericks-lakers-jason-kidd-nico-harrison/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/02/us/trump-tariffs/uaw-shawn-fain-tariffs-trum
 **Fay Vincent, Baseball Commissioner in a Stormy Era, Dies at 86**\
 `He presided in a period of union strife, the emergence of steroid use, the banning of Pete Rose and an earthquake that rattled a World Series.`\
 https://nytimes.com/2025/02/02/sports/baseball/fay-vincent-dead.html
-
-**Plane and Aircraft Tug Vehicle Collide in Chicago, Critically Injuring Driver**\
-`The wing of an Air Wisconsin plane struck the vehicle, which was trying to cross a taxiway at Chicago O’Hare International Airport, officials said.`\
-https://nytimes.com/2025/02/02/us/chicago-ohare-airport-tug-plane-collision.html
 
