@@ -1,3 +1,7 @@
+**The Jimmy Butler breakdown: Analyzing how the next major NBA trade domino could fall**\
+`Here is a look at four teams in the running for Jimmy Butler, how a deal with each could happen and what obstacles are in the way.`\
+https://nytimes.com/athletic/6106103/2025/02/02/jimmy-butler-trade-destinations-warriors-bucks-sixers-suns/
+
 **Who’s nominated and who’s performing?**\
 `By Annie Aguiar`\
 https://nytimes.com/2025/02/02/arts/music/whos-nominated-and-whos-performing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/world/europe/protests-serbia-president.html
 **LeBron James not intending to waiving no-trade clause after Dončić deal**\
 `James, 40, has a no-trade clause in the two-year, $101.4 million contract he signed with the Lakers last summer.`\
 https://nytimes.com/athletic/6107493/2025/02/02/lebron-james-no-trade-clause-lakers-luka-doncic/
-
-**Monday Briefing: Trump Ends Protections for Venezuelans**\
-`Plus, a lobster war in Nova Scotia.`\
-https://nytimes.com/2025/02/02/briefing/trump-venezuela-syria-saudis-ukraine-civilians.html
 
