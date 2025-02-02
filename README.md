@@ -15,7 +15,7 @@ https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
 https://nytimes.com/athletic/6105753/2025/02/01/rory-mcilroy-pebble-beach/
 
 **Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
-`The suit claims Vince McMahon used Grant "as a sexual pawn to entice world-famous wrestling talent and to keep Brock Lesnar under contract."`\
+`Lesnar's name was not included in the original lawsuit, and the 47-year-old is not listed as a defendant in the amended lawsuit.`\
 https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
 
 **Why Matt Poitras’ offensive development is a leading factor in the Bruins’ retool**\
