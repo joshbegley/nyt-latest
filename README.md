@@ -1,3 +1,7 @@
+**Duke's blowout over UNC shows Tobacco Road rivals are moving in opposite directions**\
+`Losing a rivalry game is one thing. Getting blown out is rarer, but it happens. But getting tripled up in the first half? "They whupped us."`\
+https://nytimes.com/athletic/6106242/2025/02/02/duke-blows-out-unc/
+
 **Luka Dončić, Anthony Davis trade grades: How will Lakers, Mavericks, Jazz fare after blockbuster trade**\
 `In a stunning move the Dallas Mavericks have traded Luka Dončić to the Lakers. `\
 https://nytimes.com/athletic/6106197/2025/02/02/luca-doncic-trade-lakers-anthony-davis-mavericks-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6103207/2025/02/02/carrick-middlesbrough-gibson-cha
 **From 0-5 to 7-0: How a rampaging Nottingham Forest proved they belong in the Premier League's top four**\
 `Nuno Espirito Santo said that his side would be 'perfect' against Brighton - he was not wrong`\
 https://nytimes.com/athletic/6105476/2025/02/02/nottingham-forest-brighton-seven-goals/
-
-**What is the biggest win in Premier League history?**\
-`Nottingham Forest thrashed Brighton 7-0 on Saturday — but that's not enough to even get into the top 10 for biggest margins of victory...`\
-https://nytimes.com/athletic/6104882/2025/02/02/biggest-win-premier-league-history-victory/
 
