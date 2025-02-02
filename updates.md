@@ -1,3 +1,11 @@
+**Millicent Dillon, Chronicler of Jane and Paul Bowles, Dies at 99**\
+`A novelist and short-story writer, she devoted years to a nonfiction project examining of the lives of two eccentric authors who spent decades in Morocco.`\
+https://nytimes.com/2025/02/02/books/millicent-dillon-dead.html
+
+**South Carolina retires A'ja Wilson's jersey: ‘I’m super blessed’**\
+`Wilson has had a bronze statue outside of Colonial Life Arena since 2021, and fans will now also be able to see her jersey in the rafters`\
+https://nytimes.com/athletic/6106894/2025/02/02/south-carolina-aja-wilson-jersey-retirement-auburn/
+
 **Amorim: Martinez injury a 'serious situation'**\
 `Manchester United head coach Ruben Amorim is concerned about Lisandro Martinez&#8217;s injury after the defender was forced to leave the field on a stretcher during Sunday&#8217;s Premier League defeat by Crystal Palace.`\
 https://nytimes.com/athletic/6106935/2025/02/02/manchester-united-martinez-injury-update/
