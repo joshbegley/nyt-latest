@@ -1,4 +1,4 @@
-**Top F.B.I. Agent in New York Sends Defiant Email After Removals**\
+**Top F.B.I. Agent in New York Vows to ‘Dig In’ After Removals at Agency**\
 `James E. Dennehy, the highly-respected leader of the largest and most important field office in the bureau, said the F.B.I. was in a “battle of our own.”`\
 https://nytimes.com/2025/02/02/us/politics/fbi-new-york-email-trump.html
 
