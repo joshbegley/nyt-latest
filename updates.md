@@ -1,3 +1,11 @@
+**Michael Katz, 85, Dies; Wrote About Boxing With Passion and Humor**\
+`Writing for The New York Times and The Daily News, he was known for his combative style and relished tweaking the powerful people in the sport.`\
+https://nytimes.com/2025/02/02/sports/michael-katz-dead.html
+
+**Canada published a long list of U.S. goods to be covered by its own tariffs.**\
+`By Matina Stevis-Gridneff and Ian Austen`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/canada-published-a-long-list-of-us-goods-to-be-covered-by-its-own-tariffs
+
 **Karen Pryor, Guru of Positive Reinforcement, Is Dead at 92**\
 `She was so successful at training dolphins that she began applying the same techniques to other creatures, including dogs — and humans.`\
 https://nytimes.com/2025/02/02/us/karen-pryor-dead.html
