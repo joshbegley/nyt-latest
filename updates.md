@@ -1,3 +1,11 @@
+**Patrick Dorgu to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at Patrick Dorgu's move to Manchester United.`\
+https://nytimes.com/athletic/6104705/2025/02/02/patrick-dorgu-to-manchester-united-the-athletic-500-transfer-ratings/
+
+**USMNT's Pepi signs PSV contract extension through 2030**\
+`Pepi had been the subject of a transfer bid from West Ham United earlier this month.`\
+https://nytimes.com/athletic/6106818/2025/02/02/ricardo-pepi-psv-contract-usmnt/
+
 **Kevin Danso to Tottenham Hotspur: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we look at Kevin Danso's move to Tottenham Hotspur`\
 https://nytimes.com/athletic/6106584/2025/02/02/kevin-danso-to-tottenham-transfer-ratings/

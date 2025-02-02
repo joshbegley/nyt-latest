@@ -1,3 +1,11 @@
+**Patrick Dorgu to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at Patrick Dorgu's move to Manchester United.`\
+https://nytimes.com/athletic/6104705/2025/02/02/patrick-dorgu-to-manchester-united-the-athletic-500-transfer-ratings/
+
+**USMNT's Pepi signs PSV contract extension through 2030**\
+`Pepi had been the subject of a transfer bid from West Ham United earlier this month.`\
+https://nytimes.com/athletic/6106818/2025/02/02/ricardo-pepi-psv-contract-usmnt/
+
 **Kevin Danso to Tottenham Hotspur: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we look at Kevin Danso's move to Tottenham Hotspur`\
 https://nytimes.com/athletic/6106584/2025/02/02/kevin-danso-to-tottenham-transfer-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/02/opinion/health-care-elderly.html
 **The Robot Doctor Will See You Now**\
 `Research suggests physicians are undervaluing how artificial intelligence can improve medical care.`\
 https://nytimes.com/2025/02/02/opinion/ai-doctors-medicine.html
-
-**The Pulse: New "most stunning trade in NBA history"**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6106685/2025/02/02/luka-doncic-anthony-davis-trade-the-pulse/
-
-**Salah's future and whether it's breaking records or Saudi Arabia**\
-`Salah must be looking at his Premier League legacy. Is he ready to walk away from the big stage when he's performing at such a high level?`\
-https://nytimes.com/athletic/6105917/2025/02/02/mohamed-salah-liverpool-future-records/
 
