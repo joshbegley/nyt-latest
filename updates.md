@@ -1,5 +1,9 @@
 **10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/02/02/upshot/ten-minute-challenge-hunters.html
+
+**10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/02/02/upshot/hunters-in-the-snow.html
 
 **Jaden Smith Wears a Castle on the 2025 Grammys Red Carpet**\
