@@ -1,3 +1,7 @@
+**J.T. Miller, Elias Pettersson, Kyle Dubas and the winners and losers from the Canucks' big trades**\
+`The two separate trades included 10 players and a fascinating, volatile future asset changing teams twice.`\
+https://nytimes.com/athletic/6106337/2025/02/02/nhl-trades-elias-pettersson-jt-miller-kyle-dubas/
+
 **The Briefing: Man Utd 0 Palace 2: Mainoo experiment, Martinez injury and a seventh home defeat**\
 `We take a look at the talking points from another loss at Old Trafford for Manchester United.`\
 https://nytimes.com/athletic/6097419/2025/02/02/manchester-united-mainoo-amorim-martinez/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6106761/2025/02/02/southampton-transfers-amo-ameyaw
 **Fever add All-Star DeWanna Bonner in free agency: Reports**\
 `Bonner, who averaged 15 points and 6 rebounds per game last season with the Connecticut Sun, will reunite with coach Stephanie White.`\
 https://nytimes.com/athletic/6106757/2025/02/02/indiana-fever-dewanna-bonner-free-agency/
-
-**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
-`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
-`\
-https://nytimes.com/athletic/6080892/2025/02/02/wnba-2025-free-agency-tracker-best-players/
 
