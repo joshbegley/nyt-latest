@@ -1,3 +1,7 @@
+**The Briefing: Brentford 0 Spurs 2 - relief for Postecoglou, Spence's importance and Danso's arrival**\
+`Jay Harris and Jack Pitt-Brooke analyse the key talking points from Tottenham's much-needed victory at Brentford`\
+https://nytimes.com/athletic/6096757/2025/02/02/brentford-tottenham-hotspur-premier-league-analysis/
+
 **Mikey Lewis, Saint Mary's freshman and prodigal Oakland hooper, returns home**\
 `Oakland basketball star Mikey Lewis got what he wanted from his journey. As fate would have it, that journey brought him home.`\
 https://nytimes.com/athletic/6106509/2025/02/02/saint-marys-mikey-lewis-oakland-basketball/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6105920/2025/02/02/real-madrid-mbappe-romero-tackle
 **Trump’s Tariffs May Complicate Efforts to Tame Inflation**\
 `Federal Reserve officials are closely watching the levies, given the expectation that such policies could lead to higher prices.`\
 https://nytimes.com/2025/02/02/us/politics/fed-trump-tariffs-interest-rates-inflation.html
-
-**Newcastle reach agreement for Kelly loan to Juventus**\
-`Newcastle United have reached agreement for defender Lloyd Kelly to move to Juventus on loan with an obligation to buy.`\
-https://nytimes.com/athletic/6093947/2025/02/02/newcastle-transfers-lloyd-kelly/
 
