@@ -1,3 +1,7 @@
+**Who Pays for Tariffs? Here’s What You Need to Know.**\
+`President Trump has insisted that his new tariffs on America’s largest trading partners will not increase prices for Americans. But a review of how they work suggests that is not the case`\
+https://nytimes.com/2025/02/02/business/economy/trump-tariffs-what-to-know.html
+
 **J.T. Miller, Elias Pettersson, Kyle Dubas and the winners and losers from the Canucks' big trades**\
 `The two separate trades included 10 players and a fascinating, volatile future asset changing teams twice.`\
 https://nytimes.com/athletic/6106337/2025/02/02/nhl-trades-elias-pettersson-jt-miller-kyle-dubas/
