@@ -1,3 +1,7 @@
+**UConn upsets Marquette men’s basketball on the road**\
+`UConn shot 65 percent in the second half en route to a 77-69 win over a Big East rival.`\
+https://nytimes.com/athletic/6106071/2025/02/01/uconn-marquette-upset-basketball-result/
+
 **Angel Reese becomes first player ejected in Unrivaled history**\
 `Reese received back-to-back technical fouls before the ejection, a first for the new women's 3x3 basketball league.`\
 https://nytimes.com/athletic/6106026/2025/02/01/angel-reese-ejection-unrivaled/
