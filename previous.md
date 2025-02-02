@@ -1,3 +1,11 @@
+**China Assails Trump Tariffs and Threatens ‘Countermeasures’**\
+`China’s Ministry of Commerce said it would file a legal case at the World Trade Organization, but signaled it still wanted a stable relationship with the U.S.`\
+https://nytimes.com/2025/02/01/us/politics/china-trump-tariffs.html
+
+**Education Officials Placed on Leave in Trump’s Sprawling Effort to Curb D.E.I.**\
+`Letters sent to employees who said they had only a minimal connection to diversity or equity efforts on Friday informed them that they had been suspended.`\
+https://nytimes.com/2025/02/01/us/politics/trump-dei-education-department.html
+
 **UConn upsets Marquette men’s basketball on the road**\
 `UConn shot 65 percent in the second half en route to a 77-69 win over a Big East rival.`\
 https://nytimes.com/athletic/6106071/2025/02/01/uconn-marquette-upset-basketball-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6105981/2025/02/01/padres-roki-sasaki-fanfest-absen
 **Here’s what to know.**\
 `By Matina Stevis-Gridneff, Mike Ives, Emiliano Rodríguez Mega, Ana Swanson and Alan Rappeport`\
 https://nytimes.com/live/2025/02/01/us/trump-tariffs-news/heres-what-to-know
-
-**Rory McIlroy and a Sunday at Pebble Beach, where it all feels possible**\
-`An afternoon of PGA Tour viewing in tough conditions was always going to be good, but McIlroy's bogey-free 7-under 65 made it theater.`\
-https://nytimes.com/athletic/6105753/2025/02/01/rory-mcilroy-pebble-beach/
-
-**Brock Lesnar named in sex trafficking lawsuit filed against McMahon, WWE**\
-`Lesnar's name was not included in the original lawsuit, and the 47-year-old is not listed as a defendant in the amended lawsuit.`\
-https://nytimes.com/athletic/6105612/2025/02/01/brock-lesnar-wwe-lawsuit-vince-mcmahon/
 

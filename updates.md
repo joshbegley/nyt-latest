@@ -1,3 +1,11 @@
+**China Assails Trump Tariffs and Threatens ‘Countermeasures’**\
+`China’s Ministry of Commerce said it would file a legal case at the World Trade Organization, but signaled it still wanted a stable relationship with the U.S.`\
+https://nytimes.com/2025/02/01/us/politics/china-trump-tariffs.html
+
+**Education Officials Placed on Leave in Trump’s Sprawling Effort to Curb D.E.I.**\
+`Letters sent to employees who said they had only a minimal connection to diversity or equity efforts on Friday informed them that they had been suspended.`\
+https://nytimes.com/2025/02/01/us/politics/trump-dei-education-department.html
+
 **UConn upsets Marquette men’s basketball on the road**\
 `UConn shot 65 percent in the second half en route to a 77-69 win over a Big East rival.`\
 https://nytimes.com/athletic/6106071/2025/02/01/uconn-marquette-upset-basketball-result/
