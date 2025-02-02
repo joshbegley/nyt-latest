@@ -1,3 +1,7 @@
+**John Calipari's return to Kentucky results in boos and an unexpected victory**\
+`Arkansas, loser of six of its previous seven entering the game, refused to let down its coach in his return to Big Blue Nation.`\
+https://nytimes.com/athletic/6106265/2025/02/02/john-calipari-kentucky-homecoming-arkansas/
+
 **Social media stunned as Lakers trade Anthony Davis to Mavericks for Luka Dončić **\
 `The sports world reacted as the Lakers and Mavericks made a trade no one could have expected. `\
 https://nytimes.com/athletic/6106266/2025/02/02/luka-doncic-anthony-davis-lakers-mavericks-social-media/
