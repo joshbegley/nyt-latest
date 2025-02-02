@@ -1,3 +1,7 @@
+**Amorim: Martinez injury a 'serious situation'**\
+`Manchester United head coach Ruben Amorim is concerned about Lisandro Martinez&#8217;s injury after the defender was forced to leave the field on a stretcher during Sunday&#8217;s Premier League defeat by Crystal Palace.`\
+https://nytimes.com/athletic/6106935/2025/02/02/manchester-united-martinez-injury-update/
+
 **Lowetide: How have the Oilers improved their draft and development strategy?**\
 `Here are some signs to look for if you're still worried about the Oilers' draft practices.`\
 https://nytimes.com/athletic/6104851/2025/02/02/edmonton-oilers-nhl-draft-tweeners/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106509/2025/02/02/saint-marys-mikey-lewis-oakland-
 **Patrick Dorgu to Manchester United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we look at Patrick Dorgu's move to Manchester United.`\
 https://nytimes.com/athletic/6104705/2025/02/02/patrick-dorgu-to-manchester-united-the-athletic-500-transfer-ratings/
-
-**USMNT's Pepi signs PSV contract extension through 2030**\
-`Pepi had been the subject of a transfer bid from West Ham United earlier this month.`\
-https://nytimes.com/athletic/6106818/2025/02/02/ricardo-pepi-psv-contract-usmnt/
 

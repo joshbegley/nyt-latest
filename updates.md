@@ -1,3 +1,7 @@
+**Amorim: Martinez injury a 'serious situation'**\
+`Manchester United head coach Ruben Amorim is concerned about Lisandro Martinez&#8217;s injury after the defender was forced to leave the field on a stretcher during Sunday&#8217;s Premier League defeat by Crystal Palace.`\
+https://nytimes.com/athletic/6106935/2025/02/02/manchester-united-martinez-injury-update/
+
 **Lowetide: How have the Oilers improved their draft and development strategy?**\
 `Here are some signs to look for if you're still worried about the Oilers' draft practices.`\
 https://nytimes.com/athletic/6104851/2025/02/02/edmonton-oilers-nhl-draft-tweeners/
