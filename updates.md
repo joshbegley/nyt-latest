@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6080892/2025/02/02/wnba-2025-free-agency-tracker-be
 `\
 https://nytimes.com/athletic/6080892/2025/02/02/wnba-2025-free-agency-tracker-best-players/
 
+**Grading and analyzing every WNBA free agency signing: Brittney Griner, Kelsey Plum, Alyssa Thomas on the move**\
+`Follow this tracker, where you'll find news and analysis of moves that could reshape the league.
+`\
+https://nytimes.com/athletic/6080892/2025/02/02/wnba-2025-free-agency-tracker-best-players/
+
 **The Briefing: Brentford 0 Spurs 2 - relief for Postecoglou, Spence's importance and Danso's arrival**\
 `Jay Harris and Jack Pitt-Brooke analyse the key talking points from Tottenham's much-needed victory at Brentford`\
 https://nytimes.com/athletic/6096757/2025/02/02/brentford-tottenham-hotspur-premier-league-analysis/
