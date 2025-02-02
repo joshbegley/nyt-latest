@@ -1,3 +1,15 @@
+**Monday Briefing: Trump Ends Protections for Venezuelans**\
+`Plus, a lobster war in Nova Scotia.`\
+https://nytimes.com/2025/02/02/briefing/trump-venezuela-syria-saudis-ukraine-civilians.html
+
+**As Cuomo Considers Bid for Mayor, His Allies Prepare a Super PAC**\
+`Former Gov. Andrew Cuomo has not entered the race for mayor of New York City. But private planning suggests he is laying the groundwork to do so.`\
+https://nytimes.com/2025/02/02/nyregion/cuomo-super-pac-mayor.html
+
+**Canadian fans boo U.S. anthem ahead of Raptors-Clippers game**\
+`Canadians are displeased with the actions of U.S. President Donald Trump, who placed 25-percent tariffs on Canada on Saturday.`\
+https://nytimes.com/athletic/6107484/2025/02/02/raptors-fans-boo-us-national-anthem-clippers-toronto/
+
 **Trump Tariffs Threaten to Upend Global Economic Order**\
 `The invoking of national security to unravel trade agreements could scramble the international trading system in China’s favor.`\
 https://nytimes.com/2025/02/02/us/politics/trump-tariffs-global-economic-order.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5937951/2025/02/02/fay-vincent-obituary/
 **The White House said it would measure fentanyl seizures before lifting tariffs.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/the-white-house-said-it-would-measure-fentanyl-seizures-before-lifting-tariffs
-
-**Mavs trading Luka Dončić fits team’s vision and culture, Nico Harrison says**\
-`“There are levels to it, and there are people that fit the culture and there’s people that come in and add to the culture,” Harrison said.`\
-https://nytimes.com/athletic/6107232/2025/02/02/luka-doncic-mavericks-lakers-jason-kidd-nico-harrison/
-
-**Trudeau Announces Retaliatory Tariffs Against the U.S.**\
-`Prime Minister Justin Trudeau of Canada laid out plans to impose more than $100 billion in retaliatory tariffs against the United States, and made clear that Canada was doing so reluctantly.`\
-https://nytimes.com/video/world/canada/100000009965423/canada-trudeau-retaliatory-tariffs.html
-
-**What Is the International Emergency Economic Powers Act?**\
-`President Trump said he was using powers granted under the law to impose tariffs on the United States’ largest trading partners.`\
-https://nytimes.com/2025/02/02/us/politics/trump-tariffs-ieepa.html
 
