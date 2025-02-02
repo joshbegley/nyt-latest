@@ -1,3 +1,7 @@
+**With most celebrations canceled, two Grammy parties carry on.**\
+`Joni Mitchell performed at Clive Davis’s annual gala on Saturday night.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/with-most-celebrations-canceled-two-grammy-parties-carry-on
+
 **Grammys Photos: All the Looks From the 2025 Red Carpet**\
 `See what nominees and guests for the 67th Grammy Awards, including Sabrina Carpenter, Chappell Roan and Ye, wore to arrive for the ceremony.`\
 https://nytimes.com/2025/02/02/style/grammys-red-carpet-2025-photos.html

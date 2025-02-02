@@ -1,3 +1,23 @@
+**OpenAI Unveils A.I. Tool That Can Do Research Online**\
+`The tool, called Deep Research, arrives days after OpenAI released another one, which shops for groceries and books restaurant reservations.`\
+https://nytimes.com/2025/02/02/technology/openai-deep-research-tool.html
+
+**Minneapolis Settles With Woman Who Says Derek Chauvin Knelt on Her Back**\
+`The $600,000 settlement is the latest in a series of lawsuits alleging excessive force by Mr. Chauvin, the former police officer convicted of murdering George Floyd.`\
+https://nytimes.com/2025/02/02/us/minneapolis-settlement-derek-chauvin-lawsuit.html
+
+**'Our response is we won': Why Sabres didn't retaliate after high hit on Tage Thompson**\
+`The Sabres didn't instigate anything following Stefan Noesen's high hit to Tage Thompson's head but ultimately defeated the Devils 4-3.`\
+https://nytimes.com/athletic/6107870/2025/02/02/sabres-devils-tage-thompson-stefan-noesen-hit/
+
+**West Ham recalling Ward-Prowse from Forest loan**\
+`Ward-Prowse, 30, has started only five Premier League games for Forest and was left out of the squad for Saturday's win over Brighton.`\
+https://nytimes.com/athletic/6107929/2025/02/02/james-ward-prowse-west-ham-forest/
+
+**10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
+`Summary`\
+https://nytimes.com/interactive/2025/02/02/us/hunters-in-the-snow.html
+
 **With most celebrations canceled, two Grammy parties carry on.**\
 `Joni Mitchell performed at Clive Davis’s annual gala on Saturday night.`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/with-most-celebrations-canceled-two-grammy-parties-carry-on
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-not-like-us
 **Raiders hiring Ohio State OC Chip Kelly in same role**\
 `In his lone season with the Buckeyes, Kelly helped lead them to a victory in the 2024 College Football Playoff National Championship`\
 https://nytimes.com/athletic/6107799/2025/02/02/chip-kelly-raiders-offensive-coordinator-ohio-state-nfl/
-
-**Rory McIlroy wins at Pebble Beach for 27th PGA Tour victory**\
-`McIlroy shot a final-round 66 at an iconic course he's never won at before during his career.`\
-https://nytimes.com/athletic/6107744/2025/02/02/rory-mcilroy-pebble-beach-pga-tour-win/
-
-**Bobby Witt Jr. for Mike Trout? Jacob deGrom for Paul Skenes? The Luka Dončić trade in baseball terms**\
-`We thought we’d lean into our experience covering the NBA and MLB, and imagine the baseball equivalent of the Dončić-Davis trade.`\
-https://nytimes.com/athletic/6107800/2025/02/02/luka-doncic-trade-in-baseball-terms/
-
-**Mouse’s Bigger Cousin**\
-`Jack Scherban takes us to the playground.`\
-https://nytimes.com/2025/02/02/crosswords/daily-puzzle-2025-02-03.html
-
-**Who might break a record? Billie Eilish, Bruno Mars and Taylor Swift.**\
-`By Hank Shteamer`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/grammys-record-swift-eilish-mars
-
-**Iowa retires Caitlin Clark's jersey following upset of No. 4 USC**\
-`NCAA's all-time leading scorer "grateful and fortunate" after watching her No. 22 raised to the rafters.`\
-https://nytimes.com/athletic/6107460/2025/02/02/caitlin-clark-iowa-jersey-retirement/
 
