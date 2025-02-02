@@ -18,8 +18,8 @@ https://nytimes.com/live/2025/02/02/us/trump-tariffs/across-sectors-business-and
 `Villa hold an option to make Rashford's move permanent for £40million ($49.5m) in the summer.`\
 https://nytimes.com/athletic/6105124/2025/02/02/marcus-rashford-villa-transfer-manchester-united/
 
-**Grammy Awards Live Updates: After L.A. Fires, the Music Industry Gathers to Honor Top Artists**\
-`Beyoncé, Charli XCX, Post Malone, Kendrick Lamar, Billie Eilish, Sabrina Carpenter, Chappell Roan and Taylor Swift are among the nominees at a ceremony being held as L.A. works to recover from devastating wildfires.`\
+**Grammy Awards Live Updates: Kendrick Lamar, Charli XCX and Beyoncé Win Early Awards**\
+`The music industry gathered in Los Angeles to honor top artists as the city works to recover from devastating wildfires.`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025
 
 **The Jimmy Butler breakdown: Analyzing how the next major NBA trade domino could fall**\
