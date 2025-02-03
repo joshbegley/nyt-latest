@@ -1,3 +1,7 @@
+**Relief efforts after the California wildfires are woven into the ceremony.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/relief-efforts-after-the-california-wildfires-are-woven-into-the-ceremony
+
 **Luka Dončić to Lakers is 'shocking' to Mavericks, but they have plans to push forward**\
 `"You don't even have the emotions to describe it," Quentin Grimes said of Dončić, who was traded Saturday.`\
 https://nytimes.com/athletic/6108035/2025/02/02/luka-doncic-mavericks-lakers-nba-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/arts/music/beyonce-best-country-album-grammys-202
 **Quote of the Day: Forget Pokémon, Here’s the New Big Small Thing**\
 `Quotation of the Day for Sunday, February 2, 2025.`\
 https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres-the-new-big-small-thing.html
-
-**De'Aaron Fox to Spurs, Zach LaVine to Kings in multi-team deal**\
-`The Kings only reached the postseason once during Fox's time with the franchise.`\
-https://nytimes.com/athletic/6086726/2025/02/02/deaaron-fox-zach-lavine-spurs-bulls-kings-trade-nba/
 
