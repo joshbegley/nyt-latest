@@ -1,3 +1,7 @@
+**Nkunku to stay at Chelsea; Felix could leave on loan**\
+`Nkunku has been subject of a lot of interest this month, including from Bayern Munich and Manchester United.`\
+https://nytimes.com/athletic/6061319/2025/02/03/chelsea-transfers-nkunku-felix/
+
 **WSL Briefing: Advantage Man United over City, a team who can defend versus one who cannot**\
 `Despite United’s manager wanting his team to go and attack, their success this season has been predicated largely on defensive solidity`\
 https://nytimes.com/athletic/6107975/2025/02/03/manchester-united-city-chelsea-bompastor-skinner-wsl-briefing/
