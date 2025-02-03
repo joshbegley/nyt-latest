@@ -1,5 +1,5 @@
 **Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
-`Investigators have yet to determine whether the two pilots of an Army helicopter were wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
+`Investigators have yet to determine whether the crew of an Army helicopter was wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
 https://nytimes.com/2025/02/03/us/politics/why-are-investigators-focused-on-night-vision-goggles-in-the-deadly-midair-crash.html
 
 **MLB fires umpire Pat Hoberg for sharing betting accounts**\
