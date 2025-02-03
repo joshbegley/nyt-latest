@@ -1,3 +1,11 @@
+**Top ‘60 Minutes’ Producer Says He Will Not Apologize to Trump**\
+`Bill Owens, the show’s executive producer, addressed his staff as CBS’s parent company, Paramount, pursues a legal settlement with the president.`\
+https://nytimes.com/2025/02/03/business/media/cbs-news-60-minutes-trump.html
+
+**Inside Musk’s Aggressive Incursion Into the Federal Government**\
+`The billionaire is creating major upheaval as his team sweeps through agencies, in what has been an extraordinary flexing of power by a private individual.`\
+https://nytimes.com/2025/02/03/us/politics/musk-federal-government.html
+
 **Trump Calls for Wealth Fund in Executive Order**\
 `It is unclear how the United States, which already spends more money than it collects in taxes, would finance such a fund.`\
 https://nytimes.com/2025/02/03/us/politics/sovereign-wealth-fund-trump.html
