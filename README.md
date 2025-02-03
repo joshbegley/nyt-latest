@@ -1,3 +1,7 @@
+**Chelsea agree loan deal for Chilwell to join Palace**\
+`Chilwell has only played once for Chelsea this season and Enzo Maresca said in August it would be 'better' for him to leave.`\
+https://nytimes.com/athletic/6069082/2025/02/03/chelsea-transfer-news-chilwell-crystal-palace/
+
 **Morata joins Galatasaray on loan from Milan**\
 `Alvaro Morata has joined Galatasaray on loan from Milan.`\
 https://nytimes.com/athletic/6100027/2025/02/03/alvaro-morata-galatasaray-transfer-milan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/opinion/poland-europe-radoslaw-sikorski.html
 **Was this the moment for Daniel Farke’s Leeds?**\
 `The 7-0 drubbing on Saturday brought back memories of the last victory by that scoreline, in 1972, and how important it was for that side.`\
 https://nytimes.com/athletic/6105478/2025/02/03/leeds-cardiff-farke-seven/
-
-**Questions remain over Pereira's midfield despite Bellegarde stepping up**\
-`As the transfer window entered its final hours, Wolves were still chasing midfield additions while Lemina's future remains uncertain`\
-https://nytimes.com/athletic/6105932/2025/02/03/wolves-bellegarde-pereira-villa/
 
