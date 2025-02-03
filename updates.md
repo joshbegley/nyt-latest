@@ -1,3 +1,11 @@
+**With Luka Dončić trade, NBA again proves it does drama better than anyone**\
+`So many claim they're done watching this league. In moments like this past weekend, they always seem to come back.`\
+https://nytimes.com/athletic/6109090/2025/02/03/luka-doncic-trade-nba-ratings-mavericks-lakers/
+
+**Tariffs Could Raise New Yorkers’ High Electric Bills Even Higher**\
+`It is unclear by how much, but experts said that a tariff of 10 percent or more would add costs that would be passed on to consumers to some extent.`\
+https://nytimes.com/2025/02/03/us/tariffs-canada-ny-electric-bills.html
+
 **Trump Urges Trading Ukraine’s Rare Earth Minerals for More U.S. Aid**\
 `Ukraine has already emphasized that by supporting its war effort, the U.S. could get access to the country’s wealth of critical minerals like lithium and uranium.`\
 https://nytimes.com/2025/02/03/world/europe/trump-ukraine-rare-earth-minerals.html
