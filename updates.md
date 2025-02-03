@@ -1,3 +1,11 @@
+**F.B.I. agents group urges lawmakers to intervene over threat of a purge.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/fbi-agents-group-urges-lawmakers-to-intervene-over-threat-of-a-purge
+
+**A.C.L.U. Sues to Stop Trump’s Closure of Border to Asylum Seekers**\
+`The lawsuit argues that Mr. Trump’s executive order limiting asylum access violates U.S. law.`\
+https://nytimes.com/2025/02/03/us/politics/border-closed-lawsuit-aclu.html
+
 **The Briefing: Chelsea 2 West Ham 1 - Palmer's lucky winner, Sanchez dropped and centre-back shuffling**\
 `Simon Johnson breaks down the main talking points from Chelsea's 2-1 win over West Ham United`\
 https://nytimes.com/athletic/6103598/2025/02/03/chelsea-2-west-ham-1-neto-palmer-sanchez/
