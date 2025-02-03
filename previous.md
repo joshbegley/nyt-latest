@@ -1,3 +1,7 @@
+**Quote of the Day: Forget Pokémon, Here’s the New Big Small Thing**\
+`Quotation of the Day for Sunday, February 2, 2025.`\
+https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres-the-new-big-small-thing.html
+
 **De'Aaron Fox to Spurs, Bulls' Zach LaVine to Kings in multi-team deal**\
 `The Kings only reached the postseason once during Fox's time with the franchise.`\
 https://nytimes.com/athletic/6086726/2025/02/02/deaaron-fox-zach-lavine-spurs-bulls-kings-trade-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/arts/music/taylor-swift-grammy-awards.html
 **Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
 `Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
 https://nytimes.com/2025/03/02/us/politics/trump-tariffs-windsor-canada.html
-
-**Global Markets Brace for Fallout From Trump Tariffs**\
-`Shares in Japanese and South Korean manufacturers tumbled on concern that tariffs will hurt trade in North America, where they have major investments in factories.`\
-https://nytimes.com/2025/02/02/business/stocks-trump-tariffs.html
 

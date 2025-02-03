@@ -1,3 +1,7 @@
+**Quote of the Day: Forget Pokémon, Here’s the New Big Small Thing**\
+`Quotation of the Day for Sunday, February 2, 2025.`\
+https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres-the-new-big-small-thing.html
+
 **De'Aaron Fox to Spurs, Bulls' Zach LaVine to Kings in multi-team deal**\
 `The Kings only reached the postseason once during Fox's time with the franchise.`\
 https://nytimes.com/athletic/6086726/2025/02/02/deaaron-fox-zach-lavine-spurs-bulls-kings-trade-nba/
