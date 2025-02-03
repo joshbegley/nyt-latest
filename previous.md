@@ -1,3 +1,7 @@
+**De'Aaron Fox to Spurs, Bulls' Zach LaVine to Kings in multi-team deal**\
+`The Kings only reached the postseason once during Fox's time with the franchise.`\
+https://nytimes.com/athletic/6086726/2025/02/02/deaaron-fox-zach-lavine-spurs-bulls-kings-trade-nba/
+
 **Surprised by the Luka-AD trade? NBA executives were, too**\
 `"Shocking" and "stunning" were just a couple of ways league execs described the deal to The Athletic on Sunday.`\
 https://nytimes.com/athletic/6106257/2025/02/02/luka-doncic-anthony-davis-trade-nba-executives/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/02/us/politics/trump-tariffs-windsor-canada.html
 **Global Markets Brace for Fallout From Trump Tariffs**\
 `Shares in Japanese and South Korean manufacturers tumbled on concern that tariffs will hurt trade in North America, where they have major investments in factories.`\
 https://nytimes.com/2025/02/02/business/stocks-trump-tariffs.html
-
-**Groundhog Day**\
-`Stuck in a loop, trying to find a way out.`\
-https://nytimes.com/2025/02/02/podcasts/groundhog-day-this-american-life-nyt-audio.html
 
