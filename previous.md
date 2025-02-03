@@ -1,3 +1,7 @@
+**E.P.A. Tells More Than 1,000 They Could Be Fired ‘Immediately’**\
+`A spokeswoman for Lee Zeldin, the new head of the agency, said the goal was to create an “effective and efficient” federal work force.`\
+https://nytimes.com/2025/02/03/climate/trump-epa-workers-zeldin.html
+
 **Mercedes streamliner driven by F1 great Manuel Fangio sells for record $52m**\
 `The Mercedes streamliner was driven by F1 greats Juan Manuel Fangio and Sterling Moss in 1955`\
 https://nytimes.com/athletic/6108632/2025/02/03/mercedes-streamliner-f1-auction-52m-record-fangio-moss/
@@ -21,10 +25,6 @@ https://nytimes.com/athletic/6103484/2025/02/03/mathys-tel-bayern-munich-tactica
 **Here are the latest developments.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/here-are-the-latest-developments
-
-**Live Updates: Mexico Is Set to Announce Response to Trump’s Tariffs**\
-`Worries of a wider trade war sent stock markets in Asia and Europe down on Monday, following President Trump’s order to impose tariffs on Canada, China and Mexico.`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs
 
 **Man City close to agreement to sign Porto's Gonzalez**\
 `The 23-year-old is capable of playing in both the No. 6 and No. 8 positions.`\

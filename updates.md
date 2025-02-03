@@ -1,3 +1,7 @@
+**E.P.A. Tells More Than 1,000 They Could Be Fired ‘Immediately’**\
+`A spokeswoman for Lee Zeldin, the new head of the agency, said the goal was to create an “effective and efficient” federal work force.`\
+https://nytimes.com/2025/02/03/climate/trump-epa-workers-zeldin.html
+
 **Mercedes streamliner driven by F1 great Manuel Fangio sells for record $52m**\
 `The Mercedes streamliner was driven by F1 greats Juan Manuel Fangio and Sterling Moss in 1955`\
 https://nytimes.com/athletic/6108632/2025/02/03/mercedes-streamliner-f1-auction-52m-record-fangio-moss/
