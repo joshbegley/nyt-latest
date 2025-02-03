@@ -1,3 +1,7 @@
+**For China, Trump’s Moves Bring Pain, but Also Potential Gains**\
+`President Trump’s tariffs hurt China, but his other actions have alienated U.S. allies, giving Beijing an opening to strengthen its global standing.`\
+https://nytimes.com/2025/02/03/world/asia/china-trump-foreign-aid.html
+
 **Chelsea agree loan deal for Chilwell to join Palace**\
 `Chilwell has only played once for Chelsea this season and Enzo Maresca said in August it would be 'better' for him to leave.`\
 https://nytimes.com/athletic/6069082/2025/02/03/chelsea-transfer-news-chilwell-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/arts/television/super-bowl-lix-tv-this-week.html
 **I’m the Foreign Minister of Poland. Europe Has Got the Message.**\
 `As some allies grow weary of American power, Americans seem to be growing weary of their allies.`\
 https://nytimes.com/2025/02/03/opinion/poland-europe-radoslaw-sikorski.html
-
-**Was this the moment for Daniel Farke’s Leeds?**\
-`The 7-0 drubbing on Saturday brought back memories of the last victory by that scoreline, in 1972, and how important it was for that side.`\
-https://nytimes.com/athletic/6105478/2025/02/03/leeds-cardiff-farke-seven/
 
