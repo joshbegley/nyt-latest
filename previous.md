@@ -1,3 +1,19 @@
+**Contemporary composers were front and center in the classical field.**\
+`By Javier C. Hernández`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/contemporary-composers-were-front-and-center-in-the-classical-field
+
+**‘Hell’s Kitchen’ wins Grammy for best musical theater album.**\
+`The musical, based on the life of Alicia Keys and featuring her music, is running on Broadway and begins a national tour this fall.`\
+https://nytimes.com/2025/02/02/theater/musical-theater-album-grammy.html
+
+**Ryan Grubb reunites with Kalen DeBoer, takes Alabama OC job: Source**\
+`DeBoer and Grubb built high-powered offenses together at previous stops, including Washington and Fresno State.`\
+https://nytimes.com/athletic/6107971/2025/02/02/alabama-hires-ryan-grubb-as-oc-reuniting-him-with-kalen-deboer-source/
+
+**Marion Wiesel, Translator, Strategist and Wife of Elie Wiesel, Dies at 94**\
+`A fellow survivor, she was a literary and political adviser who helped her husband gain recognition as a singular moral authority on the Holocaust.`\
+https://nytimes.com/2025/02/02/obituaries/marion-wiesel.html
+
 **Kendrick Lamar wins 3 early Grammys for ‘Not Like Us.’**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-early-grammys-for-not-like-us
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6107870/2025/02/02/sabres-devils-tage-thompson-stef
 **West Ham recalling Ward-Prowse from Forest loan**\
 `Ward-Prowse, 30, has started only five Premier League games for Forest and was left out of the squad for Saturday's win over Brighton.`\
 https://nytimes.com/athletic/6107929/2025/02/02/james-ward-prowse-west-ham-forest/
-
-**10-Minute Challenge: Bruegel’s ‘Hunters in the Snow’**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/02/02/upshot/ten-minute-challenge-hunters.html
-
-**With most celebrations canceled, two Grammy parties carry on.**\
-`Joni Mitchell performed at Clive Davis’s annual gala on Saturday night.`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/with-most-celebrations-canceled-two-grammy-parties-carry-on
-
-**Crews Move Closer to Recovering All Bodies in D.C. Crash**\
-`Remains of 55 of the 67 victims have been recovered, officials said on Sunday as they prepared to lift the wreckage of the jet out of the Potomac River on Monday.`\
-https://nytimes.com/2025/02/02/us/dc-plane-crash-washington-helicopter.html
-
-**3 Mexican Sectors Most Affected by U.S. Tariffs, and How the Country Could Respond**\
-`President Trump’s tariffs will have major effects on Mexico’s auto industry, agriculture and energy, but the country has some means for responding.`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/mexico-economy-trump-tariffs
 

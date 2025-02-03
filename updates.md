@@ -1,3 +1,19 @@
+**Contemporary composers were front and center in the classical field.**\
+`By Javier C. Hernández`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/contemporary-composers-were-front-and-center-in-the-classical-field
+
+**‘Hell’s Kitchen’ wins Grammy for best musical theater album.**\
+`The musical, based on the life of Alicia Keys and featuring her music, is running on Broadway and begins a national tour this fall.`\
+https://nytimes.com/2025/02/02/theater/musical-theater-album-grammy.html
+
+**Ryan Grubb reunites with Kalen DeBoer, takes Alabama OC job: Source**\
+`DeBoer and Grubb built high-powered offenses together at previous stops, including Washington and Fresno State.`\
+https://nytimes.com/athletic/6107971/2025/02/02/alabama-hires-ryan-grubb-as-oc-reuniting-him-with-kalen-deboer-source/
+
+**Marion Wiesel, Translator, Strategist and Wife of Elie Wiesel, Dies at 94**\
+`A fellow survivor, she was a literary and political adviser who helped her husband gain recognition as a singular moral authority on the Holocaust.`\
+https://nytimes.com/2025/02/02/obituaries/marion-wiesel.html
+
 **Kendrick Lamar wins 3 early Grammys for ‘Not Like Us.’**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-early-grammys-for-not-like-us
