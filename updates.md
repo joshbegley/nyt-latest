@@ -1,3 +1,19 @@
+**Pacific Coast Highway Reopens Nearly 4 Weeks After Devastating Fire**\
+`The stretch of the highway along the Pacific Ocean between Santa Monica and Malibu reopened to regular traffic. Some local officials believe it is too soon.`\
+https://nytimes.com/2025/02/03/us/pch-highway-reopen-los-angeles.html
+
+**Marco Asensio to Aston Villa: The Athletic 500 transfer ratings**\
+`We rate Marco Asensio's loan move to Aston Villa as part of The Athletic's Transfer 500 series`\
+https://nytimes.com/athletic/6108865/2025/02/03/marco-asensio-to-aston-villa-the-athletic-500-transfer-ratings/
+
+**Downpours, Road Closures and Mountain Snow: Enduring a Week of Powerful Storms**\
+`Skiers may delight in the snow forecast, but the latest in a series of atmospheric rivers threatens to bring flooding and mudslides to California.`\
+https://nytimes.com/2025/02/03/weather/california-rain-flooding-atmospheric-river.html
+
+**Villa complete Asensio loan signing from PSG**\
+`Asensio registered two goals and four assists in 16 games for PSG this season.`\
+https://nytimes.com/athletic/6106843/2025/02/03/marco-asensio-aston-villa-loan-transfer/
+
 **A Magazine With a Taste for Provocation (and a Cult Following)**\
 `Wherever it goes, Heavy Traffic draws a stylish, contrarian crowd.`\
 https://nytimes.com/2025/02/03/style/heavy-traffic-magazine.html
