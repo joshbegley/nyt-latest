@@ -1,3 +1,15 @@
+**A Daring Rescue Under a Subway Train Leads to an Emotional Reunion**\
+`Joseph Lynskey was shoved into the path of an oncoming train and survived. On Monday, he thanked the firefighters who rescued him.`\
+https://nytimes.com/2025/02/03/nyregion/joseph-lynskey-subway-firefighters.html
+
+**The University of California Increased Diversity. Now It’s Being Sued.**\
+`The state’s elite campuses, prohibited from using race-based admissions for decades, are now admitting more Black and Hispanic students. A new group is suing, arguing the university system is cheating.`\
+https://nytimes.com/2025/02/03/us/affirmative-action-california.html
+
+**Musk Allies Discuss Deploying A.I. to Find Budget Savings**\
+`A top official at the General Services Administration said artificial intelligence could be used to identify waste and redundancies in federal contracts.`\
+https://nytimes.com/2025/02/03/technology/musk-allies-ai-government.html
+
 **Mexico Managed to Stave Off Trump’s Tariffs. Now What?**\
 `Mexico managed to temporarily avoid President Trump’s threatened 25 percent tariffs by making promises on border security, but it is unclear if the country can fulfill its pledge.`\
 https://nytimes.com/2025/02/03/world/americas/mexico-tariffs-trump.html
