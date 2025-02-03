@@ -1,3 +1,11 @@
+**Everton sign Alcaraz from Flamengo**\
+`The loan move also contains an obligation to buy providing Alcaraz, 22, makes an undisclosed number of league starts.`\
+https://nytimes.com/athletic/6108547/2025/02/03/carlos-alcaraz-everton-transfer/
+
+**Trump Is Running America the Way America Ran Iraq**\
+`He and his team are treating the government like hostile territory to be conquered.`\
+https://nytimes.com/2025/02/03/opinion/trump-musk-iraq-takeover.html
+
 **Here’s what Mexico and Canada have agreed to do to delay U.S. tariffs.**\
 `By Emiliano Rodríguez Mega and Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/heres-what-mexico-and-canada-have-agreed-to-do-to-delay-us-tariffs
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6110997/2025/02/03/knicks-og-anunoby-foot-injury-sp
 **Top ‘60 Minutes’ Producer Says He Will Not Apologize Over Trump Lawsuit**\
 `Bill Owens, the show’s executive producer, addressed his staff as CBS’s parent company, Paramount, pursues a legal settlement with the president.`\
 https://nytimes.com/2025/02/03/business/media/cbs-news-60-minutes-trump.html
-
-**Inside Musk’s Aggressive Incursion Into the Federal Government**\
-`The billionaire is creating major upheaval as his team sweeps through agencies, in what has been an extraordinary flexing of power by a private individual.`\
-https://nytimes.com/2025/02/03/us/politics/musk-federal-government.html
-
-**Trump Calls for Wealth Fund in Executive Order**\
-`It is unclear how the United States, which already spends more money than it collects in taxes, would finance such a fund.`\
-https://nytimes.com/2025/02/03/us/politics/sovereign-wealth-fund-trump.html
 

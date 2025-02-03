@@ -1,3 +1,11 @@
+**Everton sign Alcaraz from Flamengo**\
+`The loan move also contains an obligation to buy providing Alcaraz, 22, makes an undisclosed number of league starts.`\
+https://nytimes.com/athletic/6108547/2025/02/03/carlos-alcaraz-everton-transfer/
+
+**Trump Is Running America the Way America Ran Iraq**\
+`He and his team are treating the government like hostile territory to be conquered.`\
+https://nytimes.com/2025/02/03/opinion/trump-musk-iraq-takeover.html
+
 **Here’s what Mexico and Canada have agreed to do to delay U.S. tariffs.**\
 `By Emiliano Rodríguez Mega and Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/heres-what-mexico-and-canada-have-agreed-to-do-to-delay-us-tariffs
