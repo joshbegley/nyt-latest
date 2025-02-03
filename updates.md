@@ -1,3 +1,11 @@
+**Super Bowl LIX, Plus 9 Things to Watch on TV This Week**\
+`The Philadelphia Eagles and Kansas City Chiefs will face off, after the much anticipated Puppy Bowl XXI.`\
+https://nytimes.com/2025/02/03/arts/television/super-bowl-lix-tv-this-week.html
+
+**I’m the Foreign Minister of Poland. Europe Has Got the Message.**\
+`As some allies grow weary of American power, Americans seem to be growing weary of their allies.`\
+https://nytimes.com/2025/02/03/opinion/poland-europe-radoslaw-sikorski.html
+
 **Was this the moment for Daniel Farke’s Leeds?**\
 `The 7-0 drubbing on Saturday brought back memories of the last victory by that scoreline, in 1972, and how important it was for that side.`\
 https://nytimes.com/athletic/6105478/2025/02/03/leeds-cardiff-farke-seven/

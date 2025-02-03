@@ -1,3 +1,11 @@
+**Super Bowl LIX, Plus 9 Things to Watch on TV This Week**\
+`The Philadelphia Eagles and Kansas City Chiefs will face off, after the much anticipated Puppy Bowl XXI.`\
+https://nytimes.com/2025/02/03/arts/television/super-bowl-lix-tv-this-week.html
+
+**I’m the Foreign Minister of Poland. Europe Has Got the Message.**\
+`As some allies grow weary of American power, Americans seem to be growing weary of their allies.`\
+https://nytimes.com/2025/02/03/opinion/poland-europe-radoslaw-sikorski.html
+
 **Was this the moment for Daniel Farke’s Leeds?**\
 `The 7-0 drubbing on Saturday brought back memories of the last victory by that scoreline, in 1972, and how important it was for that side.`\
 https://nytimes.com/athletic/6105478/2025/02/03/leeds-cardiff-farke-seven/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6103159/2025/02/03/tottenham-brentford-ugly-win/
 **Leicester spending is unlikely, so Van Nistelrooy must solve their defensive issues from within**\
 `Ruud van Nistelrooy expected more reinforcements to arrive in the winter window but faces trying to stave off relegation with what he has`\
 https://nytimes.com/athletic/6106471/2025/02/03/leicester-defensive-issues-january-transfers/
-
-**The latest serving of Moyes magic: A Premier League record for Goodison and two goals for Beto**\
-`Everton finally have some much-needed breathing space which should ensure they bow out from Goodison on a high`\
-https://nytimes.com/athletic/6105545/2025/02/03/everton-beto-goodison-park-record-leicester/
-
-**Arsenal's humiliation of Man City after years of torment was more than revenge. It was glorious**\
-`After many near-misses, agonising late goals and simmering ill-feeling, Mikel Arteta's side's thrashing of the champions felt truly special`\
-https://nytimes.com/athletic/6107516/2025/02/03/arsenal-man-city-revenge/
 
