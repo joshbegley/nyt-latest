@@ -1,3 +1,19 @@
+**Hiker Found Dead at Zion National Park in Utah After Apparent Fall**\
+`The body of the 37-year-old man, who had been visiting the park with his mother, was found on a popular trail on Sunday, the authorities said.`\
+https://nytimes.com/2025/02/03/us/hiker-death-zion-national-park.html
+
+**Tuesday Briefing: A Tariff Deal With Mexico**\
+`Plus, the best and worst moments at the Grammys.`\
+https://nytimes.com/2025/02/03/briefing/mexico-tariff-delay-iran-weapon-moscow-bomb.html
+
+**What Is U.S.A.I.D., and Why Do Trump and Musk Want to Close It?**\
+`The agency’s funding accounts for a tiny portion of the federal budget, but its structure may have made it an easy target for Trump-era cost-cutting.`\
+https://nytimes.com/2025/02/03/us/politics/usaid-foreign-aid-musk.html
+
+**Texans hire Rams TE coach Nick Caley as OC**\
+`Caley replaces Bobby Slowik and takes over an offense led by quarterback C.J. Stroud and wide receiver Nico Collins. `\
+https://nytimes.com/athletic/6110383/2025/02/03/texans-nick-caley-hire-offensive-coordinator/
+
 **Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
 `Investigators have yet to determine whether the crew of an Army helicopter was wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
 https://nytimes.com/2025/02/03/us/politics/why-are-investigators-focused-on-night-vision-goggles-in-the-deadly-midair-crash.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/white-house-spending-freeze-omb-judge
 **Republicans Cheer Trump Tariffs as Their Voters Brace for Pain**\
 `G.O.P. lawmakers, including those on the House Agriculture Committee, praised the plan for tariffs on Canada, Mexico and China despite the financial damage a trade war could unleash on American farmers.`\
 https://nytimes.com/2025/02/03/us/republicans-trump-tariffs.html
-
-**N.Y. Moves to Shield Doctors Who Send Abortion Pills to States With Bans**\
-`Gov. Kathy Hochul signed a bill meant to protect medical practitioners in New York who prescribe and send abortion pills out of state.`\
-https://nytimes.com/2025/02/03/nyregion/ny-abortion-pills-hochul-law.html
-
-**Iowa State at Kansas men's basketball: How to watch, odds after Jayhawks' recent stunners**\
-`Iowa State just lost its 29-game home winning streak. Kansas endured its biggest blown lead in program history. Which team will get right?`\
-https://nytimes.com/athletic/6109941/2025/02/03/iowa-state-kansas-how-to-watch-odds-preview-otzelberger-self-big-12/
-
-**Jimmy Butler? Kevin Durant? The latest on the Warriors' pursuit of a star**\
-`The Warriors missed out on Zach LaVine, but still have bigger fish in mind. That could include a possible reunion with Kevin Durant.`\
-https://nytimes.com/athletic/6109480/2025/02/03/warriors-trade-rumors-jimmy-butler-kevin-durant/
-
-**Leonard Hamilton resigning as Florida State men's hoops coach after season**\
-`FSU coach's 434 wins over 22-plus seasons are the most in program history and the fifth-most ever in the ACC.`\
-https://nytimes.com/athletic/6110272/2025/02/03/leonard-hamilton-resigning-florida-state-basketball-coach/
 
