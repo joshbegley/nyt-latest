@@ -1,3 +1,7 @@
+**Greenberg: Zach LaVine era is over, but the Bulls' malaise continues**\
+`The Bulls have moved LaVine to Sacramento, but what's next for Chicago?`\
+https://nytimes.com/athletic/6109176/2025/02/03/zach-lavine-bulls-nba-rebuild/
+
 **Hollinger: Superstar deals show tough decisions teams face in new CBA realm**\
 `Is the era of teams simply paying their stars whatever it takes coming to an end?`\
 https://nytimes.com/athletic/6108350/2025/02/03/luka-doncic-trade-deaaron-fox-nba-collective-bargaining-agreement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108514/2025/02/03/la-kings-trade-targets-forwards-
 **Lowetide: Ranking Oilers GM Stan Bowman's best moves in his first 6 months**\
 `Bowman's first big transaction of his inaugural season in Edmonton probably comes at the deadline.`\
 https://nytimes.com/athletic/6107228/2025/02/03/oilers-transactions-stan-bowman-ranking/
-
-**Milan reach verbal agreement for Joao Felix loan from Chelsea**\
-`Milan are set to cover the 25-year-old’s full salary as part of the straight loan deal, which will also include a loan fee package.`\
-https://nytimes.com/athletic/6094003/2025/02/03/joao-felix-chelsea-loan-milan/
 
