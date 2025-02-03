@@ -1,3 +1,23 @@
+**Mercedes streamliner driven by F1 great Manuel Fangio sells for record $52m**\
+`The Mercedes streamliner was driven by F1 greats Juan Manuel Fangio and Sterling Moss in 1955`\
+https://nytimes.com/athletic/6108632/2025/02/03/mercedes-streamliner-f1-auction-52m-record-fangio-moss/
+
+**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
+`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
+https://nytimes.com/athletic/6100448/2025/02/03/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
+
+**Beyoncé, Grammy Underdog No More**\
+`After nearly 20 years and 99 nominations, the star’s album of the year win for “Cowboy Carter” ends a confounding chapter in the awards’ history.`\
+https://nytimes.com/2025/02/03/arts/music/beyonce-grammys-cowboy-carter.html
+
+**Tottenham close to deal for Tel loan from Bayern**\
+`Tel had previously indicated that he wished to stay at Bayern.`\
+https://nytimes.com/athletic/6101373/2025/02/03/mathys-tel-tottenham-bayern-transfer/
+
+**Bayern Munich's Mathys Tel is a shot machine with plenty of raw edges to iron out**\
+`Tel has attracted plenty of interest in this transfer window - we analyse the 19-year-old's strengths and weaknesses`\
+https://nytimes.com/athletic/6103484/2025/02/03/mathys-tel-bayern-munich-tactical-profile/
+
 **Here are the latest developments.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/here-are-the-latest-developments
