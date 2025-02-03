@@ -1,3 +1,7 @@
+**Man City complete Nico Gonzalez signing from Porto**\
+`Manchester City have completed the signing of Nico Gonzalez from Porto.`\
+https://nytimes.com/athletic/6108862/2025/02/03/nico-gonzalez-manchester-city-transfer-porto/
+
 **Willian rejoining Fulham on deal until end of season**\
 `Willian previously scored 10 goals in 67 games over a two-year spell at the west London club.`\
 https://nytimes.com/athletic/6083805/2025/02/03/willian-fulham-transfer-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/democracy-human-rights-fired.html
 **She Cooked Dinner for 30. Then She Danced With a Lion.**\
 `In New York, the stylist and store owner Beverly Nguyen welcomed the year of the snake by treating her friends to a meal full of traditions.`\
 https://nytimes.com/2025/02/03/t-magazine/beverly-nguyen-lunar-new-year.html
-
-**F.B.I. agents group urges lawmakers to intervene over threat of a purge.**\
-`By Devlin Barrett`\
-https://nytimes.com/live/2025/02/03/us/trump-usaid-news/fbi-agents-group-urges-lawmakers-to-intervene-over-threat-of-a-purge
 
