@@ -1,3 +1,11 @@
+**Trump Calls for Wealth Fund in Executive Order**\
+`It is unclear how the United States, which already spends more money than it collects in taxes, would finance such a fund.`\
+https://nytimes.com/2025/02/03/us/politics/sovereign-wealth-fund-trump.html
+
+**Mathys Tel to Tottenham Hotspur: The Athletic 500 transfer ratings**\
+`Tottenham Hotspur have signed Mathys Tel on loan from Bayern Munich until the end of the season`\
+https://nytimes.com/athletic/6109657/2025/02/03/mathys-tel-tottenham-hotspur-transfer-analysis/
+
 **State Farm Seeks an Urgent Increase in California Rates After Fires**\
 `The company asked state regulators to approve a 22 percent increase on average.`\
 https://nytimes.com/2025/02/03/us/state-farm-california-rate-increase.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6108862/2025/02/03/nico-gonzalez-manchester-city-tr
 **Willian rejoining Fulham on deal until end of season**\
 `Willian previously scored 10 goals in 67 games over a two-year spell at the west London club.`\
 https://nytimes.com/athletic/6083805/2025/02/03/willian-fulham-transfer-contract/
-
-**Submit questions for Mike DeFabo's Steelers mailbag**\
-`The Steelers are in full offseason mode, with questions about free agency and the draft looming. What's on your mind?`\
-https://nytimes.com/athletic/6110807/2025/02/03/submit-questions-for-mike-defabos-steelers-mailbag/
-
-**Canada Also Gets 30-Day Tariff Reprieve After Fresh Fentanyl Pledges**\
-`Prime Minister Justin Trudeau in a call with President Trump pledged to beef up border security with more personnel and technology and address the trafficking of fentanyl.`\
-https://nytimes.com/2025/02/03/world/americas/canada-tariffs-trump-deal.html
 
