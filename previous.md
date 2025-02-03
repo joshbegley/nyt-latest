@@ -1,3 +1,7 @@
+**Standoff at Ukrainian Agency Disrupts Arms Contracts, Suppliers Say**\
+`Ukrainian defense companies say they cannot sign new contracts or receive payment — potentially jeopardizing future supplies to already struggling troops.`\
+https://nytimes.com/2025/02/03/world/europe/ukraine-arms-contracts-payment-disruptions-army.html
+
 **Watch: Does the Luka Dončić deal signal the end of the player empowerment era?**\
 `The Dallas Mavericks shocked the entire NBA by trading Luka Dončić to the Los Angeles Lakers, The Athletic NBA Daily discuss the trade.`\
 https://nytimes.com/athletic/6108565/2025/02/03/nba-daily-doncic-laker-empowerment-era/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102853/2025/02/03/super-bowl-59-touchdown-prop-bet
 **Pro-Russia Ukrainian Is Killed in Moscow Blast, Russian Media Says**\
 `Armen Sarkisyan, the founder of a separatist battalion fighting in eastern Ukraine, died after an explosion in an apartment complex, according to reports citing the Russian authorities.`\
 https://nytimes.com/2025/02/03/world/europe/pro-russia-leader-ukraine-killed-moscow.html
-
-**Greece Prepares for Quake as Hundreds of Tremors Shake Islands**\
-`Emergency services were deployed in readiness and schools were closed after more than 200 temblors struck in the Aegean, near Santorini, within 48 hours.`\
-https://nytimes.com/2025/02/03/world/europe/greece-earthquake-islands-santorini.html
 
