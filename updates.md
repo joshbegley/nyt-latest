@@ -1,3 +1,15 @@
+**Guantánamo Bay Prepares for President Trump’s Migrant Surge**\
+`About 200 Marines and soldiers arrived over the weekend as the base faces its most drastic changes since the Pentagon opened a prison there after the Sept. 11 attacks.`\
+https://nytimes.com/2025/02/03/us/politics/guantanamo-trump-migrants.html
+
+**O’Reilly to stay at Man City despite interest from Chelsea**\
+`Nico O’Reilly is to stay at Manchester City despite strong interest from Chelsea in a deadline day transfer.`\
+https://nytimes.com/athletic/6107003/2025/02/03/chelsea-nico-oreilly-transfer-man-city/
+
+**Trump’s Trade Move Could Increase Costs for Many Online Goods**\
+`President Trump’s tariff measures included a significant change to trade rules that could increase costs for many products bought online, including on Amazon, Shein and Temu.`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-loophole-china
+
 **Aircraft Wreckage Is Recovered From Potomac River**\
 `Recovery teams worked to pull parts of an American Airlines jet and a U.S. Army helicopter out of the Potomac River on Monday.`\
 https://nytimes.com/video/us/100000009966691/aircraft-wreckage-is-recovered-from-potomac-river.html

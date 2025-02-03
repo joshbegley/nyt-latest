@@ -1,3 +1,7 @@
+**Neuer extends Bayern contract through to 2026, beyond 40th birthday**\
+`Manuel Neuer has signed a one-year contract extension at Bayern Munich through to 2026.`\
+https://nytimes.com/athletic/6109429/2025/02/03/manuel-neuer-bayern-munich-contract-length-new/
+
 **Guantánamo Bay Prepares for President Trump’s Migrant Surge**\
 `About 200 Marines and soldiers arrived over the weekend as the base faces its most drastic changes since the Pentagon opened a prison there after the Sept. 11 attacks.`\
 https://nytimes.com/2025/02/03/us/politics/guantanamo-trump-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108159/2025/02/03/jalen-duren-aggression-pistons-b
 **Greenberg: Zach LaVine era is over, but the Bulls' malaise continues**\
 `The Bulls have moved LaVine to Sacramento, but what's next for Chicago?`\
 https://nytimes.com/athletic/6109176/2025/02/03/zach-lavine-bulls-nba-rebuild/
-
-**Hollinger: Superstar deals show tough decisions teams face in new CBA realm**\
-`Is the era of teams simply paying their stars whatever it takes coming to an end?`\
-https://nytimes.com/athletic/6108350/2025/02/03/luka-doncic-trade-deaaron-fox-nba-collective-bargaining-agreement/
 

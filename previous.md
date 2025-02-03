@@ -1,3 +1,15 @@
+**Guantánamo Bay Prepares for President Trump’s Migrant Surge**\
+`About 200 Marines and soldiers arrived over the weekend as the base faces its most drastic changes since the Pentagon opened a prison there after the Sept. 11 attacks.`\
+https://nytimes.com/2025/02/03/us/politics/guantanamo-trump-migrants.html
+
+**O’Reilly to stay at Man City despite interest from Chelsea**\
+`Nico O’Reilly is to stay at Manchester City despite strong interest from Chelsea in a deadline day transfer.`\
+https://nytimes.com/athletic/6107003/2025/02/03/chelsea-nico-oreilly-transfer-man-city/
+
+**Trump’s Trade Move Could Increase Costs for Many Online Goods**\
+`President Trump’s tariff measures included a significant change to trade rules that could increase costs for many products bought online, including on Amazon, Shein and Temu.`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-loophole-china
+
 **Aircraft Wreckage Is Recovered From Potomac River**\
 `Recovery teams worked to pull parts of an American Airlines jet and a U.S. Army helicopter out of the Potomac River on Monday.`\
 https://nytimes.com/video/us/100000009966691/aircraft-wreckage-is-recovered-from-potomac-river.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6109176/2025/02/03/zach-lavine-bulls-nba-rebuild/
 **Hollinger: Superstar deals show tough decisions teams face in new CBA realm**\
 `Is the era of teams simply paying their stars whatever it takes coming to an end?`\
 https://nytimes.com/athletic/6108350/2025/02/03/luka-doncic-trade-deaaron-fox-nba-collective-bargaining-agreement/
-
-**Crews Lift First Wreckage From D.C. Plane Crash Out of Potomac**\
-`A crane began removing the fuselage of the American Airlines jet that crashed into the Potomac River last week after colliding with an Army helicopter.`\
-https://nytimes.com/2025/02/03/us/dc-plane-crash-potomac-river-wreckage.html
-
-**Mike Ekeler returning to Nebraska to coach Cornhuskers special teams: Source**\
-`Ekeler coached at Nebraska from 2008 through 2010 under Bo Pelini and was part of two teams that played in the Big 12 Championship Game.`\
-https://nytimes.com/athletic/6109339/2025/02/03/mike-ekeler-nebraska-specia-teams-matt-rhule/
-
-**Senate Intelligence Committee Will Vote on Tulsi Gabbard’s Nomination on Tuesday, Officials Say**\
-`Democrats are united in opposition to her serving as the director of national intelligence. A single Republican no vote would complicate her confirmation by the full Senate.`\
-https://nytimes.com/2025/02/03/us/politics/tulsi-gabbard-senate-intelligence-committee-vote.html
 
