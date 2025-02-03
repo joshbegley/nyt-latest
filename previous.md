@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/here-are-the-latest-developments
+
+**Live Updates: Mexico Is Set to Announce Response to Trump’s Tariffs**\
+`Worries of a wider trade war sent stock markets in Asia and Europe down on Monday, following President Trump’s order to impose tariffs on Canada, China and Mexico.`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs
+
+**Man City close to agreement to sign Porto's Gonzalez**\
+`The 23-year-old is capable of playing in both the No. 6 and No. 8 positions.`\
+https://nytimes.com/athletic/6109138/2025/02/03/man-city-transfers-nico-gonzalez-agreement/
+
 **Football is 11 versus 11. On Saturday, a Dutch team played with 12 and it has caused chaos**\
 `Heerenveen faced a team of 12 for part of a 2-2 draw against Fortuna Sittard - and now the Dutch FA is asking IFAB what to do about it...`\
 https://nytimes.com/athletic/6107069/2025/02/03/fortuna-12-players-van-persie-heerenveen-ifab/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6108518/2025/02/03/canadiens-patrik-laine-kirby-dac
 **Hope Solo on her return to soccer: 'It’s hard as hell, I’m sore, but I’ll be competitive'**\
 `The former USWNT goalkeeper returns to action in the The Soccer Tournament in June and will confront some of her former teammates`\
 https://nytimes.com/athletic/6108503/2025/02/03/hope-solo-uswnt-tst-return-interview/
-
-**The Grammy Looks Bring a Welcome Hit of Joy**\
-`Sometimes a red carpet is just a marketing opportunity, but sometimes it’s a statement of faith.`\
-https://nytimes.com/2025/02/03/style/grammys-red-carpet.html
-
-**NBA Rewind: Luka Dončić trade is just the latest superstar coup by the Lakers**\
-`The Dončić deal was stunning in every way — except maybe his destination. What else is in store before Thursday's trade deadline?`\
-https://nytimes.com/athletic/6102302/2025/02/03/nba-rewind-luka-doncic-trade-deadline-lakers/
-
-**Beyoncé Announces Cowboy Carter Tour**\
-`The pop superstar, whose latest release, “Cowboy Carter,” won album of the year at the Grammys on Sunday night, will perform 22 dates starting in April.`\
-https://nytimes.com/2025/02/03/arts/music/beyonce-cowboy-carter-tour.html
 
