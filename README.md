@@ -1,3 +1,11 @@
+**F.B.I. agents group urges lawmakers to intervene over threat of a purge.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/fbi-agents-group-urges-lawmakers-to-intervene-over-threat-of-a-purge
+
+**A.C.L.U. Sues to Stop Trump’s Closure of Border to Asylum Seekers**\
+`The lawsuit argues that Mr. Trump’s executive order limiting asylum access violates U.S. law.`\
+https://nytimes.com/2025/02/03/us/politics/border-closed-lawsuit-aclu.html
+
 **The Briefing: Chelsea 2 West Ham 1 - Palmer's lucky winner, Sanchez dropped and centre-back shuffling**\
 `Simon Johnson breaks down the main talking points from Chelsea's 2-1 win over West Ham United`\
 https://nytimes.com/athletic/6103598/2025/02/03/chelsea-2-west-ham-1-neto-palmer-sanchez/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109090/2025/02/03/luka-doncic-trade-nba-ratings-ma
 **Trump Urges Trading Ukraine’s Rare Earth Minerals for More U.S. Aid**\
 `Ukraine has already emphasized that by supporting its war effort, the U.S. could get access to the country’s wealth of critical minerals like lithium and uranium.`\
 https://nytimes.com/2025/02/03/world/europe/trump-ukraine-rare-earth-minerals.html
-
-**Tariffs Could Raise New Yorkers’ High Electric Bills Even Higher**\
-`It is unclear by how much, but experts said that a tariff of 10 percent or more would add costs that would be passed on to consumers to some extent.`\
-https://nytimes.com/2025/02/03/us/tariffs-canada-ny-electric-bills.html
-
-**Hiker Found Dead at Zion National Park in Utah After Apparent Fall**\
-`The body of the 37-year-old man, who had been visiting the park with his mother, was found on a popular trail on Sunday, the authorities said.`\
-https://nytimes.com/2025/02/03/us/hiker-death-zion-national-park.html
 
