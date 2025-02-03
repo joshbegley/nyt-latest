@@ -1,3 +1,7 @@
+**Looking in the Wreckage for the Building My Dad Designed**\
+`Alyce McFadden, a Los Angeles native who helped cover the wildfires, searches for the condo complex her father helped create four decades ago.`\
+https://nytimes.com/2025/02/03/us/wildfires-building-father-designed.html
+
 **AP Top 25: Auburn, Duke remain 1-2 as Texas Tech makes a big move**\
 `The Tigers (20-1 overall, 8-0 in SEC play) remain a unanimous No. 1 after dispatching LSU and Ole Miss on the road since the last poll.`\
 https://nytimes.com/athletic/6109431/2025/02/03/ap-top-25-mens-basketball-rankings-duke-auburn-uconn/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/arts/design/jaune-quick-to-see-smith-appraisal.ht
 **In Canada, a budding campaign to boycott American products at the grocery store.**\
 `Videos appealing to Canadian patriotism are flooding social media, offering consumers tips on how to avoid purchasing American products.`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/in-canada-a-budding-campaign-to-boycott-american-products-at-the-grocery-store
-
-**Jaguars hire Tony Boselli as EVP of football operations**\
-`Boselli is a former All-Pro who holds the distinction of being the first ever Jaguars draft pick in 1995.`\
-https://nytimes.com/athletic/6109595/2025/02/03/jaguars-hire-tony-boselli/
 
