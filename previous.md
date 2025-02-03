@@ -1,3 +1,7 @@
+**Tennis Briefing: Jannik Sinner is a YouTuber and the Davis Cup brings drama**\
+`The world No. 1 joined the tennis vloggers as an innocuous weekend of Davis Cup qualifiers ignited.`\
+https://nytimes.com/athletic/6107532/2025/02/03/jannik-sinner-youtube-channel-tennis/
+
 **Dodger Details: Tyler Glasnow's comeback and other notes from 'Dodgerfest'**\
 `Dodgers hope to tap into Michael Conforto's vintage form; Tommy Edman explains his smooth contract negotiations.`\
 https://nytimes.com/athletic/6107807/2025/02/03/dodgers-tyler-glasnow-michael-conforto/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6107868/2025/02/03/nhl-weekend-rankings-jt-miller-t
 **FPL: What we learned from Gameweek 24 - it's time to plan for Double Gameweek 25**\
 `Abdul Rehman analyses the main talking points from Gameweek 24 (so far) in Fantasy Premier League`\
 https://nytimes.com/athletic/6107640/2025/02/03/fantasy-premier-league-gameweek-24-alexander-arnold-watkins-isak/
-
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`Post your questions below and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
-https://nytimes.com/athletic/6108755/2025/02/03/inside-newcastle-transfers-howe/
 

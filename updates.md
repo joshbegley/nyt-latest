@@ -1,3 +1,7 @@
+**Tennis Briefing: Jannik Sinner is a YouTuber and the Davis Cup brings drama**\
+`The world No. 1 joined the tennis vloggers as an innocuous weekend of Davis Cup qualifiers ignited.`\
+https://nytimes.com/athletic/6107532/2025/02/03/jannik-sinner-youtube-channel-tennis/
+
 **Dodger Details: Tyler Glasnow's comeback and other notes from 'Dodgerfest'**\
 `Dodgers hope to tap into Michael Conforto's vintage form; Tommy Edman explains his smooth contract negotiations.`\
 https://nytimes.com/athletic/6107807/2025/02/03/dodgers-tyler-glasnow-michael-conforto/
