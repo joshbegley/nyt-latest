@@ -1,3 +1,19 @@
+**Democrats spotlight the impact of Trump’s funding pause.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/democrats-spotlight-the-impact-of-trumps-funding-pause
+
+**NASL failed to prove USSF and MLS conspired against it, jury decides**\
+`The North American Soccer League failed to prove in court that the U.`\
+https://nytimes.com/athletic/6110245/2025/02/03/nasl-ussf-mls-lawsuit-verdict/
+
+**Judge Says She Will Further Block White House Spending Freeze**\
+`The statement, along with a similar order from Friday, amounted to a rebuke of the move as an overreach that likely lacked legitimate authority.`\
+https://nytimes.com/2025/02/03/us/politics/white-house-spending-freeze-omb-judge.html
+
+**Republicans Cheer Trump Tariffs as Their Voters Brace for Pain**\
+`G.O.P. lawmakers, including those on the House Agriculture Committee, praised the plan for tariffs on Canada, Mexico and China despite the financial damage a trade war could unleash on American farmers.`\
+https://nytimes.com/2025/02/03/us/republicans-trump-tariffs.html
+
 **Hochul Moves to Shield N.Y. Doctors Who Send Abortion Pills Out of State**\
 `Gov. Kathy Hochul signed a bill meant to protect medical practitioners who prescribe and send abortion pills to states that ban abortion.`\
 https://nytimes.com/2025/02/03/nyregion/ny-abortion-pills-hochul-law.html
