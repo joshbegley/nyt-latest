@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Huge cap news, more blockbuster trades and oh yeah, games**\
+`Off-ice moves continue to shake up the NHL with a second straight Friday blockbuster and an upcoming rise to the salary cap.`\
+https://nytimes.com/athletic/6107868/2025/02/03/nhl-weekend-rankings-jt-miller-trade-salary-cap/
+
 **FPL: What we learned from Gameweek 24 - it's time to plan for Double Gameweek 25**\
 `Abdul Rehman analyses the main talking points from Gameweek 24 (so far) in Fantasy Premier League`\
 https://nytimes.com/athletic/6107640/2025/02/03/fantasy-premier-league-gameweek-24-alexander-arnold-watkins-isak/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/business/new-orleans-saints-catholic-church-abuse
 **What boxes do the Jets need to check at the trade deadline? Catching up with Kevin Cheveldayoff**\
 `The Jets have the look — and place in the standings — of a true Cup contender. What are they looking to do to bolster their run?`\
 https://nytimes.com/athletic/6107499/2025/02/03/jets-trade-deadline-plans-cheveldayoff/
-
-**Who Will Govern Postwar Gaza? Four Competing Models Are Emerging.**\
-`Hamas still controls most of the enclave, but Israel holds some key areas. International oversight could also be expanded, while the Palestinian Authority has presented itself as another alternative.`\
-https://nytimes.com/2025/02/03/world/middleeast/gaza-post-war-israel-hamas-palestinian-authority.html
 
