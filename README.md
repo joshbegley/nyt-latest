@@ -1,5 +1,5 @@
-**Free-agent starter Jack Flaherty returns to Tigers on 2-year deal**\
-`For the 29-year-old Flaherty, it’s a payday that seemed likely from his time as an ascendant young starter with the St. Louis Cardinals.`\
+**Free-agent starter Jack Flaherty returns to Tigers on 2-year deal: Source**\
+`Flaherty's deal includes a $10 million player option for 2026 that could rise to $20 million if he makes 15 starts in 2025.`\
 https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
 
 **From Patrick Mahomes to Lil Wayne, celebs had much to say about the Luka Dončić trade**\
