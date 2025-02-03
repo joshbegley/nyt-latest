@@ -1,3 +1,11 @@
+**Hochul Moves to Shield N.Y. Doctors Who Send Abortion Pills Out of State**\
+`Gov. Kathy Hochul signed a bill meant to protect medical practitioners who prescribe and send abortion pills to states that ban abortion.`\
+https://nytimes.com/2025/02/03/nyregion/ny-abortion-pills-hochul-law.html
+
+**Iowa State at Kansas men's basketball: How to watch, odds after Jayhawks' recent stunners**\
+`Iowa State just lost its 29-game home winning streak. Kansas endured its biggest blown lead in program history. Which team will get right?`\
+https://nytimes.com/athletic/6109941/2025/02/03/iowa-state-kansas-how-to-watch-odds-preview-otzelberger-self-big-12/
+
 **Jimmy Butler? Kevin Durant? The latest on the Warriors' pursuit of a star**\
 `The Warriors missed out on Zach LaVine, but still have bigger fish in mind. That could include a possible reunion with Kevin Durant.`\
 https://nytimes.com/athletic/6109480/2025/02/03/warriors-trade-rumors-jimmy-butler-kevin-durant/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6063614/2025/02/03/axel-disasi-chelsea-transfer/
 **After Tariff Fight With Canada and Mexico, Trump’s Next Target Is Europe**\
 `The president’s threats to slap duties on goods imported from the European Union are part of a pattern of directing the harshest penalties at the United States’ closest allies.`\
 https://nytimes.com/2025/02/03/business/economy/trump-tariffs-european-union.html
-
-**Jake Oettinger on Jonathan Quick's legacy, J.T. Miller trade ripples and more: Rangers observations**\
-`Also, Mika Zibanejad on moving to the wing and what picking up Erik Brännström means for Zac Jones.`\
-https://nytimes.com/athletic/6110039/2025/02/03/rangers-observations-oettinger-quick-miller-trade/
-
-**Goodbye, for Now**\
-`After three and a half years, my newsletter is wrapping up.`\
-https://nytimes.com/2025/02/03/opinion/goodbye-for-now.html
 
