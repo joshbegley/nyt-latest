@@ -1,3 +1,7 @@
+**Groundhog Day**\
+`Stuck in a loop, trying to find a way out.`\
+https://nytimes.com/2025/02/02/podcasts/groundhog-day-this-american-life-nyt-audio.html
+
 **Lawyers for Justice Dept. employees threaten to sue, saying dismissals violate the law.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/lawyers-justice-dept-firing

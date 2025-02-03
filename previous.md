@@ -1,3 +1,7 @@
+**Groundhog Day**\
+`Stuck in a loop, trying to find a way out.`\
+https://nytimes.com/2025/02/02/podcasts/groundhog-day-this-american-life-nyt-audio.html
+
 **Lawyers for Justice Dept. employees threaten to sue, saying dismissals violate the law.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/lawyers-justice-dept-firing
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/technology/openai-deep-research-tool.html
 **Minneapolis Settles With Woman Who Says Derek Chauvin Knelt on Her Back**\
 `The $600,000 settlement is the latest in a series of lawsuits alleging excessive force by Mr. Chauvin, the former police officer convicted of murdering George Floyd.`\
 https://nytimes.com/2025/02/02/us/minneapolis-settlement-derek-chauvin-lawsuit.html
-
-**'Our response is we won': Why Sabres didn't retaliate after high hit on Tage Thompson**\
-`The Sabres didn't instigate anything following Stefan Noesen's high hit to Tage Thompson's head but ultimately defeated the Devils 4-3.`\
-https://nytimes.com/athletic/6107870/2025/02/02/sabres-devils-tage-thompson-stefan-noesen-hit/
 
