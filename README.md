@@ -1,3 +1,11 @@
+**Willian rejoining Fulham on deal until end of season**\
+`Willian previously scored 10 goals in 67 games over a two-year spell at the west London club.`\
+https://nytimes.com/athletic/6083805/2025/02/03/willian-fulham-transfer-contract/
+
+**Submit questions for Mike DeFabo's Steelers mailbag**\
+`The Steelers are in full offseason mode, with questions about free agency and the draft looming. What's on your mind?`\
+https://nytimes.com/athletic/6110807/2025/02/03/submit-questions-for-mike-defabos-steelers-mailbag/
+
 **Canada Also Gets 30-Day Tariff Reprieve After Fresh Fentanyl Pledges**\
 `Prime Minister Justin Trudeau in a call with President Trump pledged to beef up border security with more personnel and technology and address the trafficking of fentanyl.`\
 https://nytimes.com/2025/02/03/world/americas/canada-tariffs-trump-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/03/t-magazine/beverly-nguyen-lunar-new-year.html
 **F.B.I. agents group urges lawmakers to intervene over threat of a purge.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/02/03/us/trump-usaid-news/fbi-agents-group-urges-lawmakers-to-intervene-over-threat-of-a-purge
-
-**A.C.L.U. Sues to Stop Trump’s Closure of Border to Asylum Seekers**\
-`The lawsuit argues that Mr. Trump’s executive order limiting asylum access violates U.S. law.`\
-https://nytimes.com/2025/02/03/us/politics/border-closed-lawsuit-aclu.html
-
-**The Briefing: Chelsea 2 West Ham 1 - Palmer's lucky winner, Sanchez dropped and centre-back shuffling**\
-`Simon Johnson breaks down the main talking points from Chelsea's 2-1 win over West Ham United`\
-https://nytimes.com/athletic/6103598/2025/02/03/chelsea-2-west-ham-1-neto-palmer-sanchez/
 
