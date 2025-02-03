@@ -1,4 +1,4 @@
-**Canada Also Gets 30-day Tariff Reprieve After Fresh Fentanyl Pledges**\
+**Canada Also Gets 30-Day Tariff Reprieve After Fresh Fentanyl Pledges**\
 `Prime Minister Justin Trudeau in a call with President Trump pledged to beef up border security with more personnel and technology and address the trafficking of fentanyl.`\
 https://nytimes.com/2025/02/03/world/americas/canada-tariffs-trump-deal.html
 

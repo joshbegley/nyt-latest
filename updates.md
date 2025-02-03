@@ -1,3 +1,11 @@
+**Canada Also Gets 30-day Tariff Reprieve After Fresh Fentanyl Pledges**\
+`Prime Minister Justin Trudeau in a call with President Trump pledged to beef up border security with more personnel and technology and address the trafficking of fentanyl.`\
+https://nytimes.com/2025/02/03/world/americas/canada-tariffs-trump-deal.html
+
+**Albania and Serbia set to be confirmed as co-hosts for 2027 Under-21 Euros**\
+`The two federations, with the backing of their governments and UEFA, are determined to improve relations between the countries.`\
+https://nytimes.com/athletic/6109859/2025/02/03/serbia-albania-euros-uefa/
+
 **At an embattled aid agency, concern turns into defiance overnight.**\
 `By Aishvarya Kavi and Ephrat Livni`\
 https://nytimes.com/live/2025/02/03/us/trump-usaid-news/at-an-embattled-aid-agency-concern-turns-into-defiance-overnight
