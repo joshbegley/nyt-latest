@@ -1,3 +1,7 @@
+**Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
+`Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/trump-tariffs-windsor-canada
+
 **Global Markets Brace for Fallout From Trump Tariffs**\
 `Shares in Japanese and South Korean manufacturers tumbled on concern that tariffs will hurt trade in North America, where they have major investments in factories.`\
 https://nytimes.com/2025/02/02/business/stocks-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-earl
 **Jaden Smith Wears a Castle on the 2025 Grammys Red Carpet**\
 `The headpiece, which itself was turning heads Sunday night, was sculpted by the designer Dora Abodi.`\
 https://nytimes.com/2025/02/02/arts/music/jaden-smith-castle-grammys.html
-
-**OpenAI Unveils A.I. Tool That Can Do Research Online**\
-`The tool, called Deep Research, arrives days after OpenAI released another one, which shops for groceries and books restaurant reservations.`\
-https://nytimes.com/2025/02/02/technology/openai-deep-research-tool.html
 
