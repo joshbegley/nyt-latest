@@ -1,3 +1,27 @@
+**Review: An Affectionate Golden Age Schpoof in ‘Schmigadoon!’**\
+`The Apple TV+ series comes to the stage of the Kennedy Center with its snark and affection for classic Broadway musicals intact.`\
+https://nytimes.com/2025/02/03/theater/schmigadoon-review-kennedy-center.html
+
+**Fed official urges patience amid tariff uncertainty.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/fed-official-urges-patience-amid-tariff-uncertainty
+
+**Inside the top-secret negotiations that made Luka Dončić a Laker**\
+`Even mentioning details to the superstars' agents would risk info becoming public, which the Mavs thought was especially flammable.`\
+https://nytimes.com/athletic/6108360/2025/02/03/luka-doncic-nba-trade-negotiations-lakers-mavericks/
+
+**‘Gender Ideology’ Ban Is Already Harming Health, Experts Say**\
+`Documents purged from government websites include guidelines for safe contraception and information on racial inequities in health care.`\
+https://nytimes.com/2025/02/03/health/trump-gender-ideology-research.html
+
+**$500M trial nears end as US Soccer and MLS defend $500M NASL lawsuit**\
+`The antitrust trial has offered a deep dive into the convoluted world of American soccer`\
+https://nytimes.com/athletic/6109394/2025/02/03/mls-nasl-trial-garber/
+
+**USMNT Player Tracker: Robinson irrepressible, Pepi extends and Pochettino to lean on Celtic duo?**\
+`Our weekly roundup of the U.S. contingent's contributions across Europe also takes in the Milan derby and a notable shutout at Old Trafford`\
+https://nytimes.com/athletic/6108658/2025/02/03/usmnt-robinson-trusty-carter-vickers-pepi-tracker/
+
 **Scoop City: NFL equivalent of NBA's blockbuster Dončić deal?**\
 `Inside: The NFL version of the most shocking trade in NBA history, the Eagles&#8217; historic offseason, insights from the Senior Bowl and Kellen Moore in New Orleans.`\
 https://nytimes.com/athletic/6109555/2025/02/03/nfl-equivalent-of-nba-blockbuster-doncic-trade-scoop-city/
