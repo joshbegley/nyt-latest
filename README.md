@@ -10,7 +10,7 @@ https://nytimes.com/2025/02/03/opinion/trump-tariffs-canada-mexico.html
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6109788/2025/02/03/max-scherzer-blue-jays-the-windup/
 
-**N.Y.P.D. Supervisors Fail to Rein in Illegal Searches, Monitor Says**\
+**Illegal N.Y.P.D. Stop-and-Frisk Tactics Continue Unchecked, Monitor Says**\
 `Anti-crime units are still stopping and frisking too many people unlawfully, according to a new report that comes months before a mayoral election in which public safety may be a pivotal issue.`\
 https://nytimes.com/2025/02/03/nyregion/nypd-stop-and-frisk-monitor.html
 
