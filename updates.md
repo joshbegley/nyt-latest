@@ -1,3 +1,7 @@
+**Milan reach verbal agreement for Joao Felix loan from Chelsea**\
+`Milan are set to cover the 25-year-old’s full salary as part of the straight loan deal, which will also include a loan fee package.`\
+https://nytimes.com/athletic/6094003/2025/02/03/joao-felix-chelsea-loan-milan/
+
 **What's next for the Jazz after helping facilitate Mavericks-Lakers blockbuster?**\
 `Utah was involved in two trades on Saturday, including the Luka Dončić-Anthony Davis stunner. Will any Jazz vets be on the move now?`\
 https://nytimes.com/athletic/6108438/2025/02/03/whats-next-for-the-jazz-after-helping-facilitate-mavericks-lakers-blockbuster/
