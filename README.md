@@ -1,3 +1,19 @@
+**Monday Briefing**\
+`The prospect of a North American trade war.`\
+https://nytimes.com/2025/02/03/briefing/trade-war-israel-europe.html
+
+**The anatomy of a transfer - as told by those who make a deal happen**\
+`There are seven key roles involved in a footballer transfer - we spoke to people in each of those positions to find out how a move happens`\
+https://nytimes.com/athletic/6049183/2025/02/03/anatomy-of-a-transfer/
+
+**What deadline-day transfers could still happen before the winter window shuts?**\
+`This is the state of play among Premier League clubs as the window draws to a close. There are plenty of players who could be on the move...`\
+https://nytimes.com/athletic/6106673/2025/02/03/transfer-deadline-day-moves/
+
+**This is Jenni Hermoso - record goalscorer, serial swearer and an icon of Spanish sport**\
+`Hermoso will testify on day one of the Rubiales trial. Spain's all-time top scorer is once again front and centre, ready to fight her corner`\
+https://nytimes.com/athletic/6094310/2025/02/03/jenni-hermoso-rubiales-trial-profile-spain/
+
 **Lamine Yamal and his 14 seconds of Messi-like magic**\
 `Barcelona beat Alaves 1-0 but all anyone was talking about was Yamal's unbelievable dribble in the first half. We broke it down...`\
 https://nytimes.com/athletic/6107522/2025/02/03/lamine-yamal-dribble-barcelona-alaves/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6106422/2025/02/03/slot-liverpool-gravenberch-tacti
 **Beyoncé Finally Wins Album of the Year With ‘Cowboy Carter’**\
 `The superstar is the first Black woman to take the prize this century, and the fourth in Grammy history. It was her fifth nomination for the show’s top award.`\
 https://nytimes.com/2025/02/02/arts/music/beyonce-album-of-the-year-grammys.html
-
-**Three Years After Ukraine Invasion, Europe Still Deals With Energy Crisis**\
-`To wean itself off Russian natural gas, Europe has found new sources of energy, including imports from the United States. But high costs are straining the economy.`\
-https://nytimes.com/2025/02/03/business/ukraine-russia-energy-europe.html
-
-**Quote of the Day: A Community Is Trying to Take Its Slopes Back**\
-`Quotation of the Day for Monday, February 3, 2025.`\
-https://nytimes.com/2025/02/03/pageoneplus/quote-of-the-day-a-community-is-trying-to-take-its-slopes-back.html
-
-**With Trump’s Backing Uncertain, Europe Scrambles to Shore Up Its Own Defenses**\
-`European leaders will gather Monday to plot a rough path forward on defense. Wavering support from President Trump is likely to drive the debate.`\
-https://nytimes.com/2025/02/03/world/europe/europe-trump-defense-budgets.html
-
-**Weeks into Trump’s second term, several artists alluded to politics onstage.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/weeks-into-trumps-second-term-several-artists-alluded-to-politics-onstage
 
