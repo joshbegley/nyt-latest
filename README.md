@@ -1,5 +1,13 @@
-**Canada is in a perilous spot after Trump cut tariff deal with Mexico.**\
-`By Matina Stevis-Gridneff`\
+**Scoop City: NFL equivalent of NBA's blockbuster Dončić deal?**\
+`Inside: The NFL version of the most shocking trade in NBA history, the Eagles&#8217; historic offseason, insights from the Senior Bowl and Kellen Moore in New Orleans.`\
+https://nytimes.com/athletic/6109555/2025/02/03/nfl-equivalent-of-nba-blockbuster-doncic-trade-scoop-city/
+
+**Evan Ferguson to West Ham United: The Athletic 500 transfer ratings**\
+`Evan Ferguson has joined West Ham United on loan for the rest of the season`\
+https://nytimes.com/athletic/6109433/2025/02/03/evan-ferguson-to-west-ham-united-the-athletic-500-transfer-ratings/
+
+**Canada in Perilous Position After Trump Cuts Tariff Deal With Mexico**\
+`Some Canadian politicians previously suggested tossing Mexico from a three-nation trade agreement with the United States.`\
 https://nytimes.com/2025/02/03/us/trump-trudeau-canada-tariffs.html
 
 **N.Y. Attorney General Warns Hospitals Against Canceling Transgender Care**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109429/2025/02/03/manuel-neuer-bayern-munich-contr
 **Guantánamo Bay Prepares for President Trump’s Migrant Surge**\
 `About 200 Marines and soldiers arrived over the weekend as the base faces its most drastic changes since the Pentagon opened a prison there after the Sept. 11 attacks.`\
 https://nytimes.com/2025/02/03/us/politics/guantanamo-trump-migrants.html
-
-**O’Reilly to stay at Man City despite interest from Chelsea**\
-`Nico O’Reilly is to stay at Manchester City despite strong interest from Chelsea in a deadline day transfer.`\
-https://nytimes.com/athletic/6107003/2025/02/03/chelsea-nico-oreilly-transfer-man-city/
-
-**Trump’s Trade Move Could Increase Costs for Many Online Goods**\
-`President Trump’s tariff measures included a significant change to trade rules that could increase costs for many products bought online, including on Amazon, Shein and Temu.`\
-https://nytimes.com/2025/02/03/us/politics/trump-tariffs-shein-temu-loophole.html
 
