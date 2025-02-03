@@ -1,3 +1,11 @@
+**Trump Urges Trading Ukraine’s Rare Earth Minerals for More U.S. Aid**\
+`Ukraine has already emphasized that by supporting its war effort, the U.S. could get access to the country’s wealth of critical minerals like lithium and uranium.`\
+https://nytimes.com/2025/02/03/world/europe/trump-ukraine-rare-earth-minerals.html
+
+**New Yorkers’ Already-High Electric Bills Could Get Even Higher**\
+`It is unclear by how much, but experts said that a tariff of 10 percent or more would add costs that would be passed on to consumers to some extent.`\
+https://nytimes.com/2025/02/03/us/tariffs-canada-ny-electric-bills.html
+
 **Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
 `Investigators have yet to determine whether the crew of an Army helicopter was wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
 https://nytimes.com/2025/02/03/us/politics/dc-plane-crash-night-vision-goggles.html
