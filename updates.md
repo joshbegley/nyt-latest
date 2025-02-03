@@ -1,3 +1,15 @@
+**Watch: Does the Luka Dončić deal signal the end of the player empowerment era?**\
+`The Dallas Mavericks shocked the entire NBA by trading Luka Dončić to the Los Angeles Lakers, The Athletic NBA Daily discuss the trade.`\
+https://nytimes.com/athletic/6108565/2025/02/03/nba-daily-doncic-laker-empowerment-era/
+
+**Kings potential trade targets: 8 forwards who could help a scuffling offense**\
+`The Kings' offense cratered in January. Is it time for GM Rob Blake to bring in some outside help for the playoff push?`\
+https://nytimes.com/athletic/6108514/2025/02/03/la-kings-trade-targets-forwards-nhl/
+
+**Lowetide: Ranking Oilers GM Stan Bowman's best moves in his first 6 months**\
+`Bowman's first big transaction of his inaugural season in Edmonton probably comes at the deadline.`\
+https://nytimes.com/athletic/6107228/2025/02/03/oilers-transactions-stan-bowman-ranking/
+
 **Milan reach verbal agreement for Joao Felix loan from Chelsea**\
 `Milan are set to cover the 25-year-old’s full salary as part of the straight loan deal, which will also include a loan fee package.`\
 https://nytimes.com/athletic/6094003/2025/02/03/joao-felix-chelsea-loan-milan/
