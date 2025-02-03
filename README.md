@@ -1,3 +1,7 @@
+**Nkunku to stay at Chelsea; Felix could leave on loan**\
+`Nkunku has been subject of a lot of interest this month, including from Bayern Munich and Manchester United.`\
+https://nytimes.com/athletic/6061319/2025/02/03/chelsea-transfers-nkunku-felix/
+
 **WSL Briefing: Advantage Man United over City, a team who can defend versus one who cannot**\
 `Despite United’s manager wanting his team to go and attack, their success this season has been predicated largely on defensive solidity`\
 https://nytimes.com/athletic/6107975/2025/02/03/manchester-united-city-chelsea-bompastor-skinner-wsl-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108743/2025/02/03/daniel-cummings-celtic-west-ham-
 **European Leaders on Alert After Trump Says E.U. Will ‘Definitely’ Face Tariffs**\
 `President Trump’s threats are carrying more weight after his moves against Canada, Mexico and China. Europe has been preparing for the possibility of a trade war for months.`\
 https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html
-
-**Do the Bills need a 'desperate' move to break through?**\
-`GM Brandon Beane doesn't expect the Bills to be big spenders in free agency. But should they follow the Eagles' lead?`\
-https://nytimes.com/athletic/6107528/2025/02/03/bills-playoffs-brandon-beane-josh-allen/
 
