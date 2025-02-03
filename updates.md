@@ -1,3 +1,7 @@
+**Tottenham's Dragusin suffers ACL injury, expected to miss rest of season**\
+`Tottenham Hotspur defender Radu Dragusin is expected to miss the rest of the 2024-25 season after injuring the anterior cruciate ligament (ACL) in his right knee during last week&#8217;s Europa League game against Elfsborg.`\
+https://nytimes.com/athletic/6108843/2025/02/03/radu-dragusin-acl-injury-tottenham/
+
 **Pacific Coast Highway Reopens Nearly 4 Weeks After Devastating Fire**\
 `The stretch of the highway along the Pacific Ocean between Santa Monica and Malibu reopened to regular traffic. Some local officials believe it is too soon.`\
 https://nytimes.com/2025/02/03/us/pch-highway-reopen-los-angeles.html
