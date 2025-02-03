@@ -1,3 +1,11 @@
+**Man City attempting to complete move for Porto's Gonzalez**\
+`Manchester City are attempting to complete a deadline day move for Porto midfielder Nico Gonzalez.`\
+https://nytimes.com/athletic/6104691/2025/02/03/nico-gonzalez-manchester-city-transfer/
+
+**Musk Says Trump Wants to Shut Down U.S. Foreign Aid Agency**\
+`President Trump has stopped short of saying the U.S. Agency for International Development should be closed. Elon Musk’s comments added to the questions surrounding its future.`\
+https://nytimes.com/2025/02/03/us/politics/elon-musk-trump-usaid-agency.html
+
 **Browns QB tracker: What to make of Tyler Shough, Jaxson Dart and Jalen Milroe**\
 `We look at how each QB performed at the Senior Bowl and what key Browns figures had to say about three of the draft's top passers.`\
 https://nytimes.com/athletic/6107117/2025/02/03/browns-quarterback-tracker-senior-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6105523/2025/02/03/raptors-nba-trade-deadline-2025/
 **Panthers big board: Draft options at No. 8 for much-needed defensive help (or receiver)**\
 `Who could fit nicely for the Panthers if they keep the No. 8 pick in the upcoming NFL Draft?`\
 https://nytimes.com/athletic/6104160/2025/02/03/carolina-panthers-draft-big-board-first-round-defense/
-
-**Why Charles Omenihu’s ‘full circle’ year has helped the Chiefs reach Super Bowl**\
-`Since Omenihu returned in late November, Kansas City's starters have recorded 28 sacks and 64 quarterback hits over 7 games.`\
-https://nytimes.com/athletic/6107889/2025/02/03/charles-omenihu-chiefs-super-bowl/
-
-**Cade Klubnik, Drew Allar, Kevin Jennings and re-ranking the QB class of 2022**\
-`Only three of the top 20 quarterbacks in the 247Sports Composite have started more than 15 games at the Power 4 level.`\
-https://nytimes.com/athletic/6106827/2025/02/03/cade-klubnik-drew-aller-kevin-jennings-class-2022-quarterbacks/
 
