@@ -1,3 +1,11 @@
+**Mexico and Canada Reach Last-Minute Deal With Trump to Avert Trade War**\
+`President Trump agreed to delay tariffs on Mexico and Canada for a month after both countries pledged to do more to block drugs and migrants.`\
+https://nytimes.com/2025/02/03/business/canada-mexico-tariffs-trump.html
+
+**Trump Delayed Tariffs Against Canada and Mexico**\
+`Also, aid agency staff members were shut out of their offices. Here’s the latest at the end of Monday`\
+https://nytimes.com/2025/02/03/briefing/trump-tariffs-canada-mexico-usaid-musk-rubio.html
+
 **Man City complete Nico Gonzalez signing from Porto**\
 `Manchester City have completed the signing of Nico Gonzalez from Porto.`\
 https://nytimes.com/athletic/6108862/2025/02/03/nico-gonzalez-manchester-city-transfer-porto/
