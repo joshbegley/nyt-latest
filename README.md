@@ -1,5 +1,5 @@
 **Milan reach verbal agreement for Joao Felix loan from Chelsea**\
-`Milan have reached a verbal agreement for the loan signing of Joao Felix from Chelsea.`\
+`Milan are set to cover the 25-year-old’s full salary as part of the straight loan deal, which will also include a loan fee package.`\
 https://nytimes.com/athletic/6094003/2025/02/03/joao-felix-chelsea-loan-milan/
 
 **What's next for the Jazz after helping facilitate Mavericks-Lakers blockbuster?**\
