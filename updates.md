@@ -1,3 +1,15 @@
+**Canada is in a perilous spot after Trump cut tariff deal with Mexico.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/canada-is-in-a-perilous-spot-after-trump-cut-tariff-deal-with-mexico
+
+**N.Y. Attorney General Warns Hospitals Against Canceling Transgender Care**\
+`A White House executive order last week threatened to pull federal funding from hospitals that provide gender-affirming care. But not providing the care could violate state law, Letitia James said in a letter on Monday.`\
+https://nytimes.com/2025/02/03/nyregion/ny-attorney-general-transgender-care.html
+
+**Trump names Scott Bessent, the Treasury secretary, to lead the consumer bureau.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-scott-bessent-the-treasury-secretary-to-lead-the-consumer-bureau
+
 **Marcus Pettersson's next contract, Filip Chytil's breakout potential and more**\
 `The Canucks are expected to open extension talks with Marcus Pettersson's camp this week.`\
 https://nytimes.com/athletic/6108456/2025/02/03/canucks-marcus-pettersson-contract-filip-chytil/
