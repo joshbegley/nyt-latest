@@ -1,3 +1,19 @@
+**Monday Briefing**\
+`The prospect of a North American trade war.`\
+https://nytimes.com/2025/02/03/briefing/trade-war-israel-europe.html
+
+**The anatomy of a transfer - as told by those who make a deal happen**\
+`There are seven key roles involved in a footballer transfer - we spoke to people in each of those positions to find out how a move happens`\
+https://nytimes.com/athletic/6049183/2025/02/03/anatomy-of-a-transfer/
+
+**What deadline-day transfers could still happen before the winter window shuts?**\
+`This is the state of play among Premier League clubs as the window draws to a close. There are plenty of players who could be on the move...`\
+https://nytimes.com/athletic/6106673/2025/02/03/transfer-deadline-day-moves/
+
+**This is Jenni Hermoso - record goalscorer, serial swearer and an icon of Spanish sport**\
+`Hermoso will testify on day one of the Rubiales trial. Spain's all-time top scorer is once again front and centre, ready to fight her corner`\
+https://nytimes.com/athletic/6094310/2025/02/03/jenni-hermoso-rubiales-trial-profile-spain/
+
 **Lamine Yamal and his 14 seconds of Messi-like magic**\
 `Barcelona beat Alaves 1-0 but all anyone was talking about was Yamal's unbelievable dribble in the first half. We broke it down...`\
 https://nytimes.com/athletic/6107522/2025/02/03/lamine-yamal-dribble-barcelona-alaves/
