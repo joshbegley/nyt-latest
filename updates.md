@@ -1,3 +1,11 @@
+**Jonathan Quick earns praise following long-awaited win No. 400: Rangers takeaways**\
+`Quick became the 15th goalie in NHL history to reach 400 career wins and is the first American to hit the milestone.`\
+https://nytimes.com/athletic/6108300/2025/02/02/jonathan-quick-400-wins-rangers-golden-knights/
+
+**Kendrick Lamar’s ‘Not Like Us’ Wins Record and Song of the Year**\
+`The Drake diss is the second rap song to win in these prestigious categories and won all five Grammys for which it was nominated.`\
+https://nytimes.com/2025/02/02/arts/music/kendrick-lamar-not-like-us-record-of-the-year.html
+
 **Kendrick Lamar’s ‘Not Like Us’ Wins Record and Song of the Year**\
 `The star M.C.’s Drake diss is the second rap song to win these categories, two of the Grammys’ top honors.`\
 https://nytimes.com/2025/02/02/arts/music/kendrick-lamar-not-like-us-record-of-the-year.html

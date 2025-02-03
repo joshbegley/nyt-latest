@@ -1,3 +1,7 @@
+**Jonathan Quick earns praise following long-awaited win No. 400: Rangers takeaways**\
+`Quick became the 15th goalie in NHL history to reach 400 career wins and is the first American to hit the milestone.`\
+https://nytimes.com/athletic/6108300/2025/02/02/jonathan-quick-400-wins-rangers-golden-knights/
+
 **Beyoncé could finally get her album of the year win.**\
 `By Hank Shteamer and Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/beyonce-album-of-the-year-grammys-2025
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6108028/2025/02/02/canucks-chytil-marcus-pettersson
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/taylor-swift-loses-record-of-the-year-grammys
 
 **Kendrick Lamar’s ‘Not Like Us’ Wins Record and Song of the Year**\
-`The star M.C.’s Drake diss is the second rap song to win these categories, two of the Grammys’ top honors.`\
+`The Drake diss is the second rap song to win in these prestigious categories and won all five Grammys for which it was nominated.`\
 https://nytimes.com/2025/02/02/arts/music/kendrick-lamar-not-like-us-record-of-the-year.html
 
 **Stevie Wonder and Janelle Monáe lead a tribute to Quincy Jones.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/will-smith-introduces-trib
 **Free-agent starter Jack Flaherty returns to Tigers on 2-year deal: Source**\
 `Flaherty's deal includes a $10 million player option for 2026 that could rise to $20 million if he makes 15 starts in 2025.`\
 https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
-
-**From Patrick Mahomes to Lil Wayne, celebs had much to say about the Luka Dončić trade**\
-`Celebrities took to social media to offer their opinions on one of the biggest trades across sports — not just pro basketball — in years.`\
-https://nytimes.com/athletic/6107451/2025/02/02/luka-doncic-lakers-celebrities-social-media/
 
