@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/03/crosswords/spelling-bee-forum.html
+
 **NASA Astronaut Recruitment Faces Trump’s Moves Against D.E.I.**\
 `The government space agency has vocally promoted diversity and inclusion for decades, even during the first Trump administration.`\
 https://nytimes.com/2025/02/03/science/nasa-astronauts-dei-trump.html
