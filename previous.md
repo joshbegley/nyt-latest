@@ -1,3 +1,7 @@
+**The Bounce: With Luka Dončić and De'Aaron Fox on the move, it's time for big-trade FAQs**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6109087/2025/02/03/luka-doncic-lakers-mavericks-deaaron-fox-spurs-kings-nba-trade-deadline-the-bounce/
+
 **Neuer extends Bayern contract through to 2026, beyond 40th birthday**\
 `Manuel Neuer has signed a one-year contract extension at Bayern Munich through to 2026.`\
 https://nytimes.com/athletic/6109429/2025/02/03/manuel-neuer-bayern-munich-contract-length-new/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/usaid-trump-musk.html
 **Jalen Duren shows increased offensive aggression in Pistons win**\
 `"We're just building, we're still waking people up," Jalen Duren said after helping the Pistons defeat the Bulls. `\
 https://nytimes.com/athletic/6108159/2025/02/03/jalen-duren-aggression-pistons-bullls/
-
-**Greenberg: Zach LaVine era is over, but the Bulls' malaise continues**\
-`The Bulls have moved LaVine to Sacramento, but what's next for Chicago?`\
-https://nytimes.com/athletic/6109176/2025/02/03/zach-lavine-bulls-nba-rebuild/
 

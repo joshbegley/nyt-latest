@@ -1,3 +1,7 @@
+**The Bounce: With Luka Dončić and De'Aaron Fox on the move, it's time for big-trade FAQs**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6109087/2025/02/03/luka-doncic-lakers-mavericks-deaaron-fox-spurs-kings-nba-trade-deadline-the-bounce/
+
 **Trump’s Trade Move Could Increase Costs for Many Online Goods**\
 `President Trump’s tariff measures included a significant change to trade rules that could increase costs for many products bought online, including on Amazon, Shein and Temu.`\
 https://nytimes.com/2025/02/03/us/politics/trump-tariffs-shein-temu-loophole.html
