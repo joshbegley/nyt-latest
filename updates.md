@@ -1,3 +1,11 @@
+**Chris Wright Is Confirmed to Be Secretary of Energy**\
+`The former fracking executive said in confirmation hearings that his top priority would be to “unleash” American energy production.`\
+https://nytimes.com/2025/02/03/climate/chris-wright-energy-secretary.html
+
+**Knicks: Anunoby's injury is a sprain, but timing on return is unclear**\
+`Tom Thibodeau said that OG Anunoby is day-to-day and that his availability will be dependent upon "how he responds to treatment."`\
+https://nytimes.com/athletic/6110997/2025/02/03/knicks-og-anunoby-foot-injury-sprain/
+
 **Top ‘60 Minutes’ Producer Says He Will Not Apologize to Trump**\
 `Bill Owens, the show’s executive producer, addressed his staff as CBS’s parent company, Paramount, pursues a legal settlement with the president.`\
 https://nytimes.com/2025/02/03/business/media/cbs-news-60-minutes-trump.html
