@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Huge cap news, more blockbuster trades and oh yeah, games**\
+`Off-ice moves continue to shake up the NHL with a second straight Friday blockbuster and an upcoming rise to the salary cap.`\
+https://nytimes.com/athletic/6107868/2025/02/03/nhl-weekend-rankings-jt-miller-trade-salary-cap/
+
 **FPL: What we learned from Gameweek 24 - it's time to plan for Double Gameweek 25**\
 `Abdul Rehman analyses the main talking points from Gameweek 24 (so far) in Fantasy Premier League`\
 https://nytimes.com/athletic/6107640/2025/02/03/fantasy-premier-league-gameweek-24-alexander-arnold-watkins-isak/
