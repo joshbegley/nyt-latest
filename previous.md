@@ -1,3 +1,27 @@
+**'Speechless': Kristaps Porziņģis, Celtics react to the Luka Dončić trade to Lakers**\
+`"If Luka can get traded, then anybody can," Celtics forward and Dallas native Jordan Walsh said.`\
+https://nytimes.com/athletic/6107893/2025/02/02/celtics-kristaps-porzingis-luka-doncic-trade-lakers/
+
+**Corrections: Feb. 2, 2025**\
+`Corrections that appeared in print on Sunday, Feb. 2, 2025.`\
+https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-2-2025.html
+
+**Corrections: Feb. 1, 2025**\
+`Corrections that appeared in print on Saturday, Feb. 1, 2025.`\
+https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-1-2025.html
+
+**Billie Eilish brings a love letter to Los Angeles to the Grammy stage.**\
+`The pop star’s performance of “Birds of a Feather” put a spotlight on her childhood in areas devastated by the recent wildfires.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/billie-eilish-2025-grammys
+
+**Rope-Skipping Pro Uses Jump Rope in Icy Pond Rescue**\
+`David Fisher, a professional rope jumper and performer, was honored by Westfield, Ind., on Monday after using a jump rope to rescue a teenager who had fallen through an icy pond.`\
+https://nytimes.com/2025/02/02/us/jump-rope-rescue-indiana-pond.html
+
+**Taylor Swift Hasn’t Won Record or Song of the Year Grammys. Yet.**\
+`Despite earning 14 Grammys to date, the singer-songwriter has struck out in two big categories.`\
+https://nytimes.com/2025/02/02/arts/music/taylor-swift-grammy-awards.html
+
 **Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
 `Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/trump-tariffs-windsor-canada
@@ -13,28 +37,4 @@ https://nytimes.com/2025/02/02/podcasts/groundhog-day-this-american-life-nyt-aud
 **Lawyers for Justice Dept. employees threaten to sue, saying dismissals violate the law.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/02/02/us/trump-tariffs/lawyers-justice-dept-firing
-
-**Contemporary composers were front and center in the classical field.**\
-`By Javier C. Hernández`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/contemporary-composers-were-front-and-center-in-the-classical-field
-
-**‘Hell’s Kitchen’ Wins Grammy for Best Musical Theater Album**\
-`The musical, based on the life of Alicia Keys and featuring her music, is running on Broadway and begins a national tour this fall.`\
-https://nytimes.com/2025/02/02/theater/musical-theater-album-grammy.html
-
-**Ryan Grubb reunites with Kalen DeBoer, takes Alabama OC job: Source**\
-`DeBoer and Grubb built high-powered offenses together at previous stops, including Washington and Fresno State.`\
-https://nytimes.com/athletic/6107971/2025/02/02/alabama-hires-ryan-grubb-as-oc-reuniting-him-with-kalen-deboer-source/
-
-**Marion Wiesel, Translator, Strategist and Wife of Elie Wiesel, Dies at 94**\
-`A fellow survivor, she was a literary and political adviser who helped her husband gain recognition as a singular moral authority on the Holocaust.`\
-https://nytimes.com/2025/02/02/obituaries/marion-wiesel.html
-
-**Kendrick Lamar wins three early Grammys for ‘Not Like Us.’**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-early-grammys-for-not-like-us
-
-**Jaden Smith Wears a Castle on the 2025 Grammys Red Carpet**\
-`The headpiece, which itself was turning heads Sunday night, was sculpted by the designer Dora Abodi.`\
-https://nytimes.com/2025/02/02/arts/music/jaden-smith-castle-grammys.html
 
