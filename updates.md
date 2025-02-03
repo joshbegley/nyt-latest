@@ -1,3 +1,11 @@
+**Was this the moment for Daniel Farke’s Leeds?**\
+`The 7-0 drubbing on Saturday brought back memories of the last victory by that scoreline, in 1972, and how important it was for that side.`\
+https://nytimes.com/athletic/6105478/2025/02/03/leeds-cardiff-farke-seven/
+
+**Questions remain over Pereira's midfield despite Bellegarde stepping up**\
+`As the transfer window entered its final hours, Wolves were still chasing midfield additions while Lemina's future remains uncertain`\
+https://nytimes.com/athletic/6105932/2025/02/03/wolves-bellegarde-pereira-villa/
+
 **City needed a new midfielder six weeks ago. Now it's deadline day and they still need one**\
 `It was City's one wish for this window, yet instead they have strengthened elsewhere, while their midfield has looked weaker and weaker`\
 https://nytimes.com/athletic/6107246/2025/02/03/man-city-transfers-midfield-nico-gonzalez/
