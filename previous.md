@@ -1,3 +1,7 @@
+**Goodbye, for Now**\
+`After three and a half years, my newsletter is wrapping up.`\
+https://nytimes.com/2025/02/03/opinion/goodbye-for-now.html
+
 **DHS: No specific credible terrorist threats surrounding Super Bowl**\
 `NFL head of security Cathy Lanier said the league has reviewed the Jan.1 incident and security surrounding a terrorist attack.`\
 https://nytimes.com/athletic/6109729/2025/02/03/super-bowl-lix-safety-new-orleans-nfl-security/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109925/2025/02/03/washington-commanders-nickname-j
 **Automakers get a reprieve but brace for further turmoil.**\
 `A pause in tariffs on Mexico at least temporarily averted disruptions to supply chains that would have forced carmakers to raise prices on som`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-auto-mexico-canada
-
-**Real Madrid file formal complaint about refereeing system after Espanyol defeat**\
-`Real Madrid have filed a formal complaint to the Spanish Football Federation (RFEF) asking for the “immediate submission of VAR audio” related to two decisions in their 1-0 defeat by Espanyol.`\
-https://nytimes.com/athletic/6109869/2025/02/03/real-madrid-complaint-espanyol-mbappe-vinicius-rfef/
 

@@ -1,3 +1,7 @@
+**Goodbye, for Now**\
+`After three and a half years, my newsletter is wrapping up.`\
+https://nytimes.com/2025/02/03/opinion/goodbye-for-now.html
+
 **DHS: No specific credible terrorist threats surrounding Super Bowl**\
 `NFL head of security Cathy Lanier said the league has reviewed the Jan.1 incident and security surrounding a terrorist attack.`\
 https://nytimes.com/athletic/6109729/2025/02/03/super-bowl-lix-safety-new-orleans-nfl-security/
