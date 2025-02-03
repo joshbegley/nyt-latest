@@ -1,3 +1,7 @@
+**Trump’s Tariffs: ‘Economic Warfare’**\
+`Readers respond to President Trump’s moves. Also: Elon Musk’s growing power; childhood vaccines; Israel’s right to exist; democracy imperiled.`\
+https://nytimes.com/2025/02/03/opinion/trump-tariffs-canada-mexico.html
+
 **The Windup: What Scherzer brings to Toronto**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6109788/2025/02/03/max-scherzer-blue-jays-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106626/2025/02/03/eagles-super-bowl-roster-howie-r
 **Sam Kerr repeatedly called police officer 'stupid and white', court told as trial begins**\
 `Chelsea striker Sam Kerr repeatedly called a police officer ‘f****** stupid and white’ inside a police station after a night out, a court heard on Monday.`\
 https://nytimes.com/athletic/6109467/2025/02/03/sam-kerr-trial/
-
-**Review: An Affectionate Golden Age Schpoof in ‘Schmigadoon!’**\
-`The Apple TV+ series comes to the stage of the Kennedy Center with its snark and affection for classic Broadway musicals intact.`\
-https://nytimes.com/2025/02/03/theater/schmigadoon-review-kennedy-center.html
 

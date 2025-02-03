@@ -1,3 +1,7 @@
+**Trump’s Tariffs: ‘Economic Warfare’**\
+`Readers respond to President Trump’s moves. Also: Elon Musk’s growing power; childhood vaccines; Israel’s right to exist; democracy imperiled.`\
+https://nytimes.com/2025/02/03/opinion/trump-tariffs-canada-mexico.html
+
 **The Windup: What Scherzer brings to Toronto**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6109788/2025/02/03/max-scherzer-blue-jays-the-windup/
