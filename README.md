@@ -1,3 +1,11 @@
+**Aircraft Wreckage Is Recovered From Potomac River**\
+`Recovery teams worked to pull parts of an American Airlines jet and a U.S. Army helicopter out of the Potomac River on Monday.`\
+https://nytimes.com/video/us/100000009966691/aircraft-wreckage-is-recovered-from-potomac-river.html
+
+**Mexico striker Gimenez completes Milan move**\
+`Gimenez has signed a deal with Milan until 2029 having scored 16 goals in 19 games for Feyenoord this season.`\
+https://nytimes.com/athletic/6109395/2025/02/03/santiago-gimenez-transfer-milan/
+
 **There’s No Such Thing as Too Much Garlic**\
 `At least not in roasted cauliflower soup, garlic bread, brussels sprouts Caesar salad and Eric Kim’s braised chicken with 20 (!) cloves of garlic.`\
 https://nytimes.com/2025/02/03/dining/garlic-chicken-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109339/2025/02/03/mike-ekeler-nebraska-specia-team
 **Senate Intelligence Committee Will Vote on Tulsi Gabbard’s Nomination on Tuesday, Officials Say**\
 `Democrats are united in opposition to her serving as the director of national intelligence. A single Republican no vote would complicate her confirmation by the full Senate.`\
 https://nytimes.com/2025/02/03/us/politics/tulsi-gabbard-senate-intelligence-committee-vote.html
-
-**Cowboys Today: Why Herschel Walker trade doesn't come close in absurdity to Luka Dončiċ trade**\
-`The Cowboys got a lot for Herschel Walker in 1989. The Mavericks trading away Luka Dončiċ was big, too, but different in many ways.`\
-https://nytimes.com/athletic/6108459/2025/02/03/cowboys-today-herschel-walker-trade-luka-doncic/
-
-**Standoff at Ukrainian Agency Disrupts Arms Contracts, Suppliers Say**\
-`Ukrainian defense companies say they cannot sign new contracts or receive payment — potentially jeopardizing future supplies to already struggling troops.`\
-https://nytimes.com/2025/02/03/world/europe/ukraine-arms-contracts-payment-disruptions-army.html
 
