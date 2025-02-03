@@ -1,3 +1,11 @@
+**Was this the moment for Daniel Farke’s Leeds?**\
+`The 7-0 drubbing on Saturday brought back memories of the last victory by that scoreline, in 1972, and how important it was for that side.`\
+https://nytimes.com/athletic/6105478/2025/02/03/leeds-cardiff-farke-seven/
+
+**Questions remain over Pereira's midfield despite Bellegarde stepping up**\
+`As the transfer window entered its final hours, Wolves were still chasing midfield additions while Lemina's future remains uncertain`\
+https://nytimes.com/athletic/6105932/2025/02/03/wolves-bellegarde-pereira-villa/
+
 **City needed a new midfielder six weeks ago. Now it's deadline day and they still need one**\
 `It was City's one wish for this window, yet instead they have strengthened elsewhere, while their midfield has looked weaker and weaker`\
 https://nytimes.com/athletic/6107246/2025/02/03/man-city-transfers-midfield-nico-gonzalez/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6105545/2025/02/03/everton-beto-goodison-park-recor
 **Arsenal's humiliation of Man City after years of torment was more than revenge. It was glorious**\
 `After many near-misses, agonising late goals and simmering ill-feeling, Mikel Arteta's side's thrashing of the champions felt truly special`\
 https://nytimes.com/athletic/6107516/2025/02/03/arsenal-man-city-revenge/
-
-**It is time for Palace to give Mateta what he so richly deserves - a new contract**\
-`After his brace at Old Trafford to beat Manchester United, it is more apparent than ever that the club need to offer the forward fresh terms`\
-https://nytimes.com/athletic/6096406/2025/02/03/mateta-palace-new-contract/
-
-**Newcastle gamble on not gambling in transfer market**\
-`Newcastle have previously decided to twist in the transfer market, but sticking, as they are now, also comes with peril`\
-https://nytimes.com/athletic/6105459/2025/02/03/newcastle-gamble-on-not-gambling-in-transfer-market/
 
