@@ -1,3 +1,11 @@
+**Crew's Cucho Hernandez close to Real Betis transfer**\
+`Hernandez, 25, finished second behind Lionel Messi in the voting for MLS MVP for the 2024 season.`\
+https://nytimes.com/athletic/6109728/2025/02/03/cucho-hernandez-betis-crew-transfer-mls/
+
+**Illegal N.Y.P.D. Stop-and-Frisk Tactics Continue Unchecked, Monitor Says**\
+`Anti-crime units are still stopping and frisking too many people unlawfully, according to a new report that comes months before a mayoral election in which public safety may be a pivotal issue.`\
+https://nytimes.com/2025/02/03/nyregion/nypd-stop-and-frisk-monitor.html
+
 **Trump’s Tariffs: ‘Economic Warfare’**\
 `Readers respond to President Trump’s moves. Also: Elon Musk’s growing power; childhood vaccines; Israel’s right to exist; democracy imperiled.`\
 https://nytimes.com/2025/02/03/opinion/trump-tariffs-canada-mexico.html

@@ -1,3 +1,7 @@
+**Crew's Cucho Hernandez close to Real Betis transfer**\
+`Hernandez, 25, finished second behind Lionel Messi in the voting for MLS MVP for the 2024 season.`\
+https://nytimes.com/athletic/6109728/2025/02/03/cucho-hernandez-betis-crew-transfer-mls/
+
 **Trump’s Tariffs: ‘Economic Warfare’**\
 `Readers respond to President Trump’s moves. Also: Elon Musk’s growing power; childhood vaccines; Israel’s right to exist; democracy imperiled.`\
 https://nytimes.com/2025/02/03/opinion/trump-tariffs-canada-mexico.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/02/03/opinion/trump-tariffs-canada-mexico.html
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6109788/2025/02/03/max-scherzer-blue-jays-the-windup/
 
-**N.Y.P.D. Supervisors Fail to Rein in Illegal Searches, Monitor Says**\
+**Illegal N.Y.P.D. Stop-and-Frisk Tactics Continue Unchecked, Monitor Says**\
 `Anti-crime units are still stopping and frisking too many people unlawfully, according to a new report that comes months before a mayoral election in which public safety may be a pivotal issue.`\
 https://nytimes.com/2025/02/03/nyregion/nypd-stop-and-frisk-monitor.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/arts/music/review-opera-die-tote-stadt-the-anonym
 **How Howie Roseman rebuilt the Eagles in two years to return to the Super Bowl**\
 `The task will once again be to beat the Chiefs.`\
 https://nytimes.com/athletic/6106626/2025/02/03/eagles-super-bowl-roster-howie-roseman-general-manager/
-
-**Sam Kerr repeatedly called police officer 'stupid and white', court told as trial begins**\
-`Chelsea striker Sam Kerr repeatedly called a police officer ‘f****** stupid and white’ inside a police station after a night out, a court heard on Monday.`\
-https://nytimes.com/athletic/6109467/2025/02/03/sam-kerr-trial/
 
