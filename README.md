@@ -1,3 +1,7 @@
+**In Canada, a budding campaign to boycott American products at the grocery store.**\
+`Videos appealing to Canadian patriotism are flooding social media, offering consumers tips on how to avoid purchasing American products.`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/in-canada-a-budding-campaign-to-boycott-american-products-at-the-grocery-store
+
 **Jaguars hire Tony Boselli as EVP of football operations**\
 `Boselli is a former All-Pro who holds the distinction of being the first ever Jaguars draft pick in 1995.`\
 https://nytimes.com/athletic/6109595/2025/02/03/jaguars-hire-tony-boselli/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108360/2025/02/03/luka-doncic-nba-trade-negotiatio
 **‘Gender Ideology’ Ban Is Already Harming Health, Experts Say**\
 `Documents purged from government websites include guidelines for safe contraception and information on racial inequities in health care.`\
 https://nytimes.com/2025/02/03/health/trump-gender-ideology-research.html
-
-**$500M trial nears end as US Soccer and MLS defend $500M NASL lawsuit**\
-`The antitrust trial has offered a deep dive into the convoluted world of American soccer`\
-https://nytimes.com/athletic/6109394/2025/02/03/mls-nasl-trial-garber/
 
