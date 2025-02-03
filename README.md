@@ -1,3 +1,15 @@
+**Mexico Reaches Deal With Trump Administration to Delay Tariffs**\
+`President Claudia Sheinbaum of Mexico struck a deal to get at least a temporary reprieve from the 25 percent tariffs the Trump administration had planned to implement on Tuesday.`\
+https://nytimes.com/video/world/americas/100000009967057/trump-mexico-tariffs.html
+
+**Aston Villa agree deal to sign Axel Disasi on loan from Chelsea**\
+`Aston Villa have agreed a deal to sign Chelsea defender Axel Disasi on loan for the rest of the season.`\
+https://nytimes.com/athletic/6063614/2025/02/03/axel-disasi-chelsea-transfer/
+
+**After Tariff Fight With Canada and Mexico, Trump’s Next Target Is Europe**\
+`The president’s threats to slap duties on goods imported from the European Union is part of a pattern of directing the harshest penalties at the United States’ closest allies.`\
+https://nytimes.com/2025/02/03/business/economy/trump-tariffs-european-union.html
+
 **Jake Oettinger on Jonathan Quick's legacy, J.T. Miller trade ripples and more: Rangers observations**\
 `Also, Mika Zibanejad on moving to the wing and what picking up Erik Brännström means for Zac Jones.`\
 https://nytimes.com/athletic/6110039/2025/02/03/rangers-observations-oettinger-quick-miller-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6109626/2025/02/03/bam-adebayo-stats-miami-heat-nba
 **MLS cash market off to swift start with Joveljic and McGlynn trades**\
 `Both deals carry serious implications for the Western Conference as MLS moves into a new world of player transfers`\
 https://nytimes.com/athletic/6109750/2025/02/03/mls-joveljic-mcglynn-trades/
-
-**Yankees sign starting pitcher Carlos Carrasco to minor-league deal**\
-`Carrasco, 37, was 3-10 with a 5.64 ERA in 21 starts for the Cleveland Guardians in 2024.`\
-https://nytimes.com/athletic/6110021/2025/02/03/yankees-carlos-carrasco-free-agent/
-
-**Listen: Is Djed Spence making himself undroppable at Tottenham?**\
-`The Totally Football Show discus why Tottenham Hotspur full-back Djed Spence is sometimes misunderstood`\
-https://nytimes.com/athletic/6109742/2025/02/03/totally-football-show-djed-spence-tottenham/
-
-**Washington owner Josh Harris says Commanders will remain team's nickname**\
-`“I think it's now being embraced by our team, by our culture, by our coaching staff,” Harris said Monday. `\
-https://nytimes.com/athletic/6109925/2025/02/03/washington-commanders-nickname-josh-harris/
 
