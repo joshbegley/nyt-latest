@@ -1,3 +1,15 @@
+**Car Bomb in Northern Syria Kills at Least 15**\
+`The blast, which detonated next to a truck carrying agricultural workers, underscored the challenges faced by the country’s interim president.`\
+https://nytimes.com/2025/02/03/world/middleeast/syria-bombing-explosion-manbij.html
+
+**Can Her Daughter’s Wedding, and a Cat, Revive Her Own Marriage?**\
+`In Anne Tyler’s new novel, a socially inept mother faces hurdles in her personal, professional and family lives.`\
+https://nytimes.com/2025/02/03/books/review/anne-tyler-three-days-in-june.html
+
+**The Pulse: Another NBA blockbuster**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6108365/2025/02/03/deaaron-fox-luka-doncic-nba-trade-the-pulse/
+
 **Nkunku to stay at Chelsea; Felix could leave on loan**\
 `Nkunku has been subject of a lot of interest this month, including from Bayern Munich and Manchester United.`\
 https://nytimes.com/athletic/6061319/2025/02/03/chelsea-transfers-nkunku-felix/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6108121/2025/02/03/pwhl-power-rankings-january-vict
 **A Looming Trade War**\
 `We explain the potential impacts of Trump’s tariffs.`\
 https://nytimes.com/2025/02/03/briefing/a-looming-trade-war.html
-
-**The Athletic FC: Arsenal vs City beef, transfer latest, Yamal genius, 12 players on a team**\
-`In today's TAFC: We analyse the growing grudge between Arsenal and Manchester City, bring you the transfer latest, and praise Yamal's genius`\
-https://nytimes.com/athletic/6108667/2025/02/03/arsenal-city-beef-transfer-dealine-day-latest/
-
-**Cummings set to stay at Celtic in winter window as fresh West Ham bid rejected**\
-`Daniel Cummings is expected to remain at Celtic in the winter transfer window after the Scottish champions rejected an improved offer from West Ham United.`\
-https://nytimes.com/athletic/6108743/2025/02/03/daniel-cummings-celtic-west-ham-transfer/
-
-**European Leaders on Alert After Trump Says E.U. Will ‘Definitely’ Face Tariffs**\
-`President Trump’s threats are carrying more weight after his moves against Canada, Mexico and China. Europe has been preparing for the possibility of a trade war for months.`\
-https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html
 
