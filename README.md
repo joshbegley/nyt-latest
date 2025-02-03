@@ -1,3 +1,7 @@
+**Will Smith introduces tribute to Quincy Jones.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/will-smith-introduces-tribute-to-quincy-jones
+
 **Free-agent starter Jack Flaherty returns to Tigers on 2-year deal: Source**\
 `Flaherty's deal includes a $10 million player option for 2026 that could rise to $20 million if he makes 15 starts in 2025.`\
 https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/doechii-brings-her-theatri
 **Chappell Roan Wins the Grammy for Best New Artist**\
 `The 26-year-old pop star capped a year of breakout success with one of the ceremony’s biggest awards and a candid criticism of the music industry.`\
 https://nytimes.com/2025/02/02/arts/music/chappell-roan-best-new-artist-grammys.html
-
-**Caitlin Clark returned to Iowa for her jersey retirement. Then the Hawkeyes put on a show**\
-`Fans in Iowa celebrated Clark for her jersey retirement but also lauded USC's JuJu Watkins. `\
-https://nytimes.com/athletic/6108118/2025/02/02/caitlin-clark-jersey-retirement-iowa-usc/
 
