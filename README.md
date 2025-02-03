@@ -1,3 +1,7 @@
+**Milan undone at the last and left lamenting a result that sums up their season**\
+`Inter left it late to reimpose some order on the Derby della Madonnina but do not be deceived: a chasm has opened up between these two teams`\
+https://nytimes.com/athletic/6107856/2025/02/03/milan-inter-madonnina-inzaghi-conceicao-vrij/
+
 **Word of the Day: mollify**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/03/learning/word-of-the-day-mollify.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6102455/2025/02/03/brighton-kaoru-mitoma-saudi-arab
 **'Circle of trust', small tweaks and forensic analysis - how Maresca copes with being on a poor run**\
 `The Chelsea head coach endured a tough period at Leicester a year ago and there are things we can learn from how he handed that`\
 https://nytimes.com/athletic/6104771/2025/02/03/enzo-maresca-bad-run-chelsea/
-
-**Tottenham won ugly at Brentford - in its own way, it was a statement victory**\
-`Gritty, canny and efficient — against Brentford, Spurs came up with the kind of performance they have desperately needed`\
-https://nytimes.com/athletic/6103159/2025/02/03/tottenham-brentford-ugly-win/
 
