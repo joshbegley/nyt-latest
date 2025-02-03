@@ -1,3 +1,7 @@
+**Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
+`Investigators have yet to determine whether the two pilots of an Army helicopter were wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
+https://nytimes.com/2025/02/03/us/politics/why-are-investigators-focused-on-night-vision-goggles-in-the-deadly-midair-crash.html
+
 **MLB fires umpire Pat Hoberg for sharing betting accounts**\
 `Hoberg can apply for reinstatement in spring training 2026 at the earliest.`\
 https://nytimes.com/athletic/6110394/2025/02/03/mlb-umpire-fired-pat-hoberg-gambling/

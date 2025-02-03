@@ -1,3 +1,7 @@
+**Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
+`Investigators have yet to determine whether the two pilots of an Army helicopter were wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
+https://nytimes.com/2025/02/03/us/politics/why-are-investigators-focused-on-night-vision-goggles-in-the-deadly-midair-crash.html
+
 **MLB fires umpire Pat Hoberg for sharing betting accounts**\
 `Hoberg can apply for reinstatement in spring training 2026 at the earliest.`\
 https://nytimes.com/athletic/6110394/2025/02/03/mlb-umpire-fired-pat-hoberg-gambling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109480/2025/02/03/warriors-trade-rumors-jimmy-butl
 **Leonard Hamilton resigning as Florida State men's hoops coach after season**\
 `FSU coach's 434 wins over 22-plus seasons are the most in program history and the fifth-most ever in the ACC.`\
 https://nytimes.com/athletic/6110272/2025/02/03/leonard-hamilton-resigning-florida-state-basketball-coach/
-
-**As Trump Wields the Power of the U.S. Economy, He Threatens to Diminish It**\
-`The president is right that the economy is a powerful lever against other countries. But how much will his tactics erode it?`\
-https://nytimes.com/2025/02/03/us/politics/trump-economy-threats.html
 
