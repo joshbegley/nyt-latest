@@ -1,3 +1,11 @@
+**Man City attempting to complete move for Porto's Gonzalez**\
+`Manchester City are attempting to complete a deadline day move for Porto midfielder Nico Gonzalez.`\
+https://nytimes.com/athletic/6104691/2025/02/03/nico-gonzalez-manchester-city-transfer/
+
+**Musk Says Trump Wants to Shut Down U.S. Foreign Aid Agency**\
+`President Trump has stopped short of saying the U.S. Agency for International Development should be closed. Elon Musk’s comments added to the questions surrounding its future.`\
+https://nytimes.com/2025/02/03/us/politics/elon-musk-trump-usaid-agency.html
+
 **Browns QB tracker: What to make of Tyler Shough, Jaxson Dart and Jalen Milroe**\
 `We look at how each QB performed at the Senior Bowl and what key Browns figures had to say about three of the draft's top passers.`\
 https://nytimes.com/athletic/6107117/2025/02/03/browns-quarterback-tracker-senior-bowl/
