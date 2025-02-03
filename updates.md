@@ -1,3 +1,15 @@
+**Scoop City: NFL equivalent of NBA's blockbuster Dončić deal?**\
+`Inside: The NFL version of the most shocking trade in NBA history, the Eagles&#8217; historic offseason, insights from the Senior Bowl and Kellen Moore in New Orleans.`\
+https://nytimes.com/athletic/6109555/2025/02/03/nfl-equivalent-of-nba-blockbuster-doncic-trade-scoop-city/
+
+**Evan Ferguson to West Ham United: The Athletic 500 transfer ratings**\
+`Evan Ferguson has joined West Ham United on loan for the rest of the season`\
+https://nytimes.com/athletic/6109433/2025/02/03/evan-ferguson-to-west-ham-united-the-athletic-500-transfer-ratings/
+
+**Canada in Perilous Position After Trump Cuts Tariff Deal With Mexico**\
+`Some Canadian politicians previously suggested tossing Mexico from a three-nation trade agreement with the United States.`\
+https://nytimes.com/2025/02/03/us/trump-trudeau-canada-tariffs.html
+
 **Canada is in a perilous spot after Trump cut tariff deal with Mexico.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/2025/02/03/us/trump-trudeau-canada-tariffs.html
