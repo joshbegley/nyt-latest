@@ -1,3 +1,11 @@
+**MLB fires umpire Pat Hoberg for sharing betting accounts**\
+`Hoberg can apply for reinstatement in spring training 2026 at the earliest.`\
+https://nytimes.com/athletic/6110394/2025/02/03/mlb-umpire-fired-pat-hoberg-gambling/
+
+**N.Y. Moves to Shield Doctors Who Send Abortion Pills to States With Bans**\
+`Gov. Kathy Hochul signed a bill meant to protect medical practitioners in New York who prescribe and send abortion pills out of state.`\
+https://nytimes.com/2025/02/03/nyregion/ny-abortion-pills-hochul-law.html
+
 **Democrats spotlight the impact of Trump’s funding pause.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2025/02/03/us/trump-usaid-news/democrats-spotlight-the-impact-of-trumps-funding-pause

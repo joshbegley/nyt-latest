@@ -1,3 +1,7 @@
+**MLB fires umpire Pat Hoberg for sharing betting accounts**\
+`Hoberg can apply for reinstatement in spring training 2026 at the earliest.`\
+https://nytimes.com/athletic/6110394/2025/02/03/mlb-umpire-fired-pat-hoberg-gambling/
+
 **Democrats spotlight the impact of Trump’s funding pause.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2025/02/03/us/trump-usaid-news/democrats-spotlight-the-impact-of-trumps-funding-pause
@@ -14,8 +18,8 @@ https://nytimes.com/2025/02/03/us/politics/white-house-spending-freeze-omb-judge
 `G.O.P. lawmakers, including those on the House Agriculture Committee, praised the plan for tariffs on Canada, Mexico and China despite the financial damage a trade war could unleash on American farmers.`\
 https://nytimes.com/2025/02/03/us/republicans-trump-tariffs.html
 
-**Hochul Moves to Shield N.Y. Doctors Who Send Abortion Pills Out of State**\
-`Gov. Kathy Hochul signed a bill meant to protect medical practitioners who prescribe and send abortion pills to states that ban abortion.`\
+**N.Y. Moves to Shield Doctors Who Send Abortion Pills to States With Bans**\
+`Gov. Kathy Hochul signed a bill meant to protect medical practitioners in New York who prescribe and send abortion pills out of state.`\
 https://nytimes.com/2025/02/03/nyregion/ny-abortion-pills-hochul-law.html
 
 **Iowa State at Kansas men's basketball: How to watch, odds after Jayhawks' recent stunners**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6110272/2025/02/03/leonard-hamilton-resigning-flori
 **As Trump Wields the Power of the U.S. Economy, He Threatens to Diminish It**\
 `The president is right that the economy is a powerful lever against other countries. But how much will his tactics erode it?`\
 https://nytimes.com/2025/02/03/us/politics/trump-economy-threats.html
-
-**Iran Is Developing Plans for Faster, Cruder Weapon, U.S. Concludes**\
-`As Prime Minister Benjamin Netanyahu of Israel prepares to meet with President Trump, the question of whether to strike Iran’s facilities or negotiate with Tehran appears certain to be under debate.`\
-https://nytimes.com/2025/02/03/us/politics/iran-nuclear-weapon.html
 
