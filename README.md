@@ -1,3 +1,11 @@
+**Heat Today: Bam Adebayo fills the necessary voids for the Heat, whatever they may be**\
+`Forget scoring — the two-time Olympic gold medalist continues to do a bit of everything for his team. `\
+https://nytimes.com/athletic/6109626/2025/02/03/bam-adebayo-stats-miami-heat-nba/
+
+**MLS cash market off to swift start with Joveljic and McGlynn trades**\
+`Both deals carry serious implications for the Western Conference as MLS moves into a new world of player transfers`\
+https://nytimes.com/athletic/6109750/2025/02/03/mls-joveljic-mcglynn-trades/
+
 **Yankees sign starting pitcher Carlos Carrasco to minor-league deal**\
 `Carrasco, 37, was 3-10 with a 5.64 ERA in 21 starts for the Cleveland Guardians in 2024.`\
 https://nytimes.com/athletic/6110021/2025/02/03/yankees-carlos-carrasco-free-agent/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/03/us/pch-highway-reopen-los-angeles.html
 **Marco Asensio to Aston Villa: The Athletic 500 transfer ratings**\
 `We rate Marco Asensio's loan move to Aston Villa as part of The Athletic's Transfer 500 series`\
 https://nytimes.com/athletic/6108865/2025/02/03/marco-asensio-to-aston-villa-the-athletic-500-transfer-ratings/
-
-**Downpours, Road Closures and Mountain Snow: Enduring a Week of Powerful Storms**\
-`Skiers may delight in the snow forecast, but the latest in a series of atmospheric rivers threatens to bring flooding and mudslides to California.`\
-https://nytimes.com/2025/02/03/weather/california-rain-flooding-atmospheric-river.html
-
-**Villa complete Asensio loan signing from PSG**\
-`Asensio registered two goals and four assists in 16 games for PSG this season.`\
-https://nytimes.com/athletic/6106843/2025/02/03/marco-asensio-aston-villa-loan-transfer/
 
