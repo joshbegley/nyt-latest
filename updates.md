@@ -1,3 +1,11 @@
+**Corrections: Feb. 2, 2025**\
+`Corrections that appeared in print on Sunday, Feb. 2, 2025.`\
+https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-2-2025.html
+
+**Corrections: Feb. 1, 2025**\
+`Corrections that appeared in print on Saturday, Feb. 1, 2025.`\
+https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-1-2025.html
+
 **Doechii brings her theatrical flair to the Grammys.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/doechii-brings-her-theatrical-flair-to-the-grammys
