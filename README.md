@@ -1,3 +1,7 @@
+**Kelly, Miedema and the encouragement of WSL fans putting players first**\
+`The women's footballing world has rallied around Kelly following her claims Manchester City have mistreated her and it is heartening to see`\
+https://nytimes.com/athletic/6106689/2025/02/03/kelly-miedema-wsl-manchester-city-arsenal/
+
 **Robert Lewandowski, Blackburn and the volcano - and five other transfers that didn't quite happen**\
 `A few lessons in not counting transfer chickens before they've hatched - or at least before the paperwork's been faxed`\
 https://nytimes.com/athletic/6099520/2025/02/03/robert-lewandowski-blackburn-and-the-volcano-and-five-other-transfers-that-didnt-quite-happen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/style/grammys-2025-red-carpet.html
 **Charli XCX brings ‘Brat’ to the stage.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/charli-xcx-brings-brat-to-the-stage
-
-**Jonathan Quick earns praise following long-awaited win No. 400: Rangers takeaways**\
-`Quick became the 15th goalie in NHL history to reach 400 career wins and is the first American to hit the milestone.`\
-https://nytimes.com/athletic/6108300/2025/02/02/jonathan-quick-400-wins-rangers-golden-knights/
 
