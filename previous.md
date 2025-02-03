@@ -1,40 +1,40 @@
-**Jonathan Quick earns praise following long-awaited win No. 400: Rangers takeaways**\
-`Quick became the 15th goalie in NHL history to reach 400 career wins and is the first American to hit the milestone.`\
-https://nytimes.com/athletic/6108300/2025/02/02/jonathan-quick-400-wins-rangers-golden-knights/
+**Kelly, Miedema and the encouragement of WSL fans putting players first**\
+`The women's footballing world has rallied around Kelly following her claims Manchester City have mistreated her and it is heartening to see`\
+https://nytimes.com/athletic/6106689/2025/02/03/kelly-miedema-wsl-manchester-city-arsenal/
 
-**Beyoncé could finally get her album of the year win.**\
-`By Hank Shteamer and Ben Sisario`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/beyonce-album-of-the-year-grammys-2025
+**Robert Lewandowski, Blackburn and the volcano - and five other transfers that didn't quite happen**\
+`A few lessons in not counting transfer chickens before they've hatched - or at least before the paperwork's been faxed`\
+https://nytimes.com/athletic/6099520/2025/02/03/robert-lewandowski-blackburn-and-the-volcano-and-five-other-transfers-that-didnt-quite-happen/
 
-**How Filip Chytil and Marcus Pettersson impressed in Canucks debuts: 3 takeaways**\
-`The Canucks fell to Detroit in overtime, but three debutants made excellent first impressions in Vancouver.`\
-https://nytimes.com/athletic/6108028/2025/02/02/canucks-chytil-marcus-pettersson-debuts-red-wings/
+**Arne Slot's tactical tweak of Ryan Gravenberch's role and why it was needed**\
+`Slot has made Liverpool more unpredictable and is unafraid to adjust their style to the demands of a given game - here was the latest`\
+https://nytimes.com/athletic/6106422/2025/02/03/slot-liverpool-gravenberch-tactical-tweak/
 
-**Taylor Swift’s record of the year drought continues.**\
-`Her Post Malone duet “Fortnight” fell to Kendrick Lamar’s “Not Like Us,” which means the superstar still has yet to win one of the Grammys’ top prizes.`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/taylor-swift-loses-record-of-the-year-grammys
+**Beyoncé Finally Wins Album of the Year With ‘Cowboy Carter’**\
+`The superstar is the first Black woman to take the prize this century, and the fourth in Grammy history. It was her fifth nomination for the show’s top award.`\
+https://nytimes.com/2025/02/02/arts/music/beyonce-album-of-the-year-grammys.html
 
-**Kendrick Lamar’s ‘Not Like Us’ Wins Record and Song of the Year**\
-`The Drake diss is the second rap song to win in these prestigious categories and won all five Grammys for which it was nominated.`\
-https://nytimes.com/2025/02/02/arts/music/kendrick-lamar-not-like-us-record-of-the-year.html
+**Three Years After Ukraine Invasion, Europe Still Deals With Energy Crisis**\
+`To wean itself off Russian natural gas, Europe has found new sources of energy, including imports from the United States. But high costs are straining the economy.`\
+https://nytimes.com/2025/02/03/business/ukraine-russia-energy-europe.html
 
-**Stevie Wonder and Janelle Monáe lead a tribute to Quincy Jones.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/stevie-wonder-and-janelle-monae-lead-a-tribute-to-quincy-jones
+**Quote of the Day: A Community Is Trying to Take Its Slopes Back**\
+`Quotation of the Day for Monday, February 3, 2025.`\
+https://nytimes.com/2025/02/03/pageoneplus/quote-of-the-day-a-community-is-trying-to-take-its-slopes-back.html
 
-**Blue Jackets lose two crucial players, fume over officiating in loss to Stars**\
-`Columbus' 3-game win streak came to an end against Dallas, with the status of several Blue Jackets in question after the game.`\
-https://nytimes.com/athletic/6108178/2025/02/02/blue-jackets-injuries-evason-officiating-stars/
+**With Trump’s Backing Uncertain, Europe Scrambles to Shore Up Its Own Defenses**\
+`European leaders will gather Monday to plot a rough path forward on defense. Wavering support from President Trump is likely to drive the debate.`\
+https://nytimes.com/2025/02/03/world/europe/europe-trump-defense-budgets.html
 
-**De'Aaron Fox-Zach LaVine trade grades: Reunion in Sacramento; Wemby gets running mate**\
-`As De'Aaron Fox joins forces with Victor Wembanyama, and Zach LaVine heads to Sacramento, Zach Harper grades the NBA's newest blockbuster`\
-https://nytimes.com/athletic/6108052/2025/02/02/deaaron-fox-spurs-zach-lavine-kings-bulls-nba-trade-deadline/
+**Weeks into Trump’s second term, several artists alluded to politics onstage.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/weeks-into-trumps-second-term-several-artists-alluded-to-politics-onstage
 
-**Will Smith introduces tribute to Quincy Jones.**\
+**15 Unforgettable Looks at the Grammys**\
+`Painterly gowns, wedding dresses, nude body stockings and more.`\
+https://nytimes.com/2025/02/02/style/grammys-2025-red-carpet.html
+
+**Charli XCX brings ‘Brat’ to the stage.**\
 `By Marc Tracy`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/will-smith-introduces-tribute-to-quincy-jones
-
-**Free-agent starter Jack Flaherty returns to Tigers on 2-year deal: Source**\
-`Flaherty's deal includes a $10 million player option for 2026 that could rise to $20 million if he makes 15 starts in 2025.`\
-https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/charli-xcx-brings-brat-to-the-stage
 
