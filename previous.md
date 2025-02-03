@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 2 West Ham 1 - Palmer's lucky winner, Sanchez dropped and centre-back shuffling**\
+`Simon Johnson breaks down the main talking points from Chelsea's 2-1 win over West Ham United`\
+https://nytimes.com/athletic/6103598/2025/02/03/chelsea-2-west-ham-1-neto-palmer-sanchez/
+
+**Canadian ‘Pirate’ Stole Millions in Cryptocurrency, U.S. Prosecutors Say**\
+`Andean Medjedovic, a former graduate student, is on the run.`\
+https://nytimes.com/2025/02/03/nyregion/cryptocurrency-hacker-theft-charges.html
+
 **Latte Lath expected to complete Atlanta move from Middlesbrough**\
 `The 26-year-old forward is expected to join the MLS club for a fee in the region of $22-24m plus add-ons.`\
 https://nytimes.com/athletic/6056300/2025/02/03/emmanuel-latte-lath-transfer-atlanta-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/03/us/tariffs-canada-ny-electric-bills.html
 **Hiker Found Dead at Zion National Park in Utah After Apparent Fall**\
 `The body of the 37-year-old man, who had been visiting the park with his mother, was found on a popular trail on Sunday, the authorities said.`\
 https://nytimes.com/2025/02/03/us/hiker-death-zion-national-park.html
-
-**Tuesday Briefing: A Tariff Deal With Mexico**\
-`Plus, the best and worst moments at the Grammys.`\
-https://nytimes.com/2025/02/03/briefing/mexico-tariff-delay-iran-weapon-moscow-bomb.html
-
-**What Is U.S.A.I.D., and Why Do Trump and Musk Want to Close It?**\
-`The agency’s funding accounts for a tiny portion of the federal budget, but its structure may have made it an easy target for Trump-era cost-cutting.`\
-https://nytimes.com/2025/02/03/us/politics/usaid-foreign-aid-musk.html
 
