@@ -1,3 +1,7 @@
+**Hope Solo on her return to soccer: 'It’s hard as hell, I’m sore, but I’ll be competitive'**\
+`The USWNT's greatest-ever goalkeeper returns to action in the The Soccer Tournament in June and will confront some of her former teammates`\
+https://nytimes.com/athletic/6108503/2025/02/03/hope-solo-uswnt-tst-return-interview/
+
 **The Grammy Looks Bring a Welcome Hit of Joy**\
 `Sometimes a red carpet is just a marketing opportunity, but sometimes it’s a statement of faith.`\
 https://nytimes.com/2025/02/03/style/grammys-red-carpet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108054/2025/02/03/sf-giants-sacramento/
 **Angels fan survey: How do you feel about the franchise heading into 2025?**\
 `Let us know your thoughts on the Angels by answering our questions. `\
 https://nytimes.com/athletic/6107618/2025/02/03/angels-fan-survey/
-
-**Weighing the Fallout From Trump’s Looming Trade War**\
-`Business groups, economists and even some Republicans cautioned that new tariffs on goods from Canada, Mexico and China could undercut U.S. industry and the economy.`\
-https://nytimes.com/2025/02/03/business/dealbook/trump-tariffs-canada-mexico-china.html
 
