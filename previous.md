@@ -1,3 +1,27 @@
+**What's next for the Jazz after helping facilitate Mavericks-Lakers blockbuster?**\
+`Utah was involved in two trades on Saturday, including the Luka Dončić-Anthony Davis stunner. Will any Jazz vets be on the move now?`\
+https://nytimes.com/athletic/6108438/2025/02/03/whats-next-for-the-jazz-after-helping-facilitate-mavericks-lakers-blockbuster/
+
+**Spain’s Ex-Soccer Chief Goes on Trial Over Forced Kiss of Star Player**\
+`Luis Rubiales kissed Jennifer Hermoso on the lips after the country’s national team won the 2023 Women’s World Cup. On Monday, she testified against him and other former officials.`\
+https://nytimes.com/2025/02/03/world/europe/spain-soccer-rubiales-trial-hermoso-world-cup-kiss.html
+
+**Penguins Today: Crosby, Malkin are reasons to watch as playoff hopes fade**\
+`Sidney Crosby and Evgeni Malkin are still a big a reason for Penguins fans to care about the rest of the regular season.`\
+https://nytimes.com/athletic/6109166/2025/02/03/penguins-today-crosby-malkin-watch/
+
+**Super Bowl 59 touchdown prop bets: Saquon Barkley rules the board**\
+`Barkley leads the touchdown props market, but who else has some value?`\
+https://nytimes.com/athletic/6102853/2025/02/03/super-bowl-59-touchdown-prop-bets-saquon-barkley-travis-kelce-jalen-hurts-lead-the-board/
+
+**Pro-Russia Ukrainian Is Killed in Moscow Blast, Russian Media Says**\
+`Armen Sarkisyan, the founder of a separatist battalion fighting in eastern Ukraine, died after an explosion in an apartment complex, according to reports citing the Russian authorities.`\
+https://nytimes.com/2025/02/03/world/europe/pro-russia-leader-ukraine-killed-moscow.html
+
+**Greece Prepares for Quake as Hundreds of Tremors Shake Islands**\
+`Emergency services were deployed in readiness and schools were closed after more than 200 temblors struck in the Aegean, near Santorini, within 48 hours.`\
+https://nytimes.com/2025/02/03/world/europe/greece-earthquake-islands-santorini.html
+
 **E.P.A. Tells More Than 1,000 They Could Be Fired ‘Immediately’**\
 `A spokeswoman for Lee Zeldin, the new head of the agency, said the goal was to create an “effective and efficient” federal work force.`\
 https://nytimes.com/2025/02/03/climate/trump-epa-workers-zeldin.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6100448/2025/02/03/super-bowl-2025-betting-eagles-c
 **Beyoncé, Grammy Underdog No More**\
 `After nearly 20 years and 99 nominations, the star’s album of the year win for “Cowboy Carter” ends a confounding chapter in the awards’ history.`\
 https://nytimes.com/2025/02/03/arts/music/beyonce-grammys-cowboy-carter.html
-
-**Tottenham close to deal for Tel loan from Bayern**\
-`Tel had previously indicated that he wished to stay at Bayern.`\
-https://nytimes.com/athletic/6101373/2025/02/03/mathys-tel-tottenham-bayern-transfer/
-
-**Bayern Munich's Mathys Tel is a shot machine with plenty of raw edges to iron out**\
-`Tel has attracted plenty of interest in this transfer window - we analyse the 19-year-old's strengths and weaknesses`\
-https://nytimes.com/athletic/6103484/2025/02/03/mathys-tel-bayern-munich-tactical-profile/
-
-**Here are the latest developments.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs/here-are-the-latest-developments
-
-**Man City close to agreement to sign Porto's Gonzalez**\
-`The 23-year-old is capable of playing in both the No. 6 and No. 8 positions.`\
-https://nytimes.com/athletic/6109138/2025/02/03/man-city-transfers-nico-gonzalez-agreement/
-
-**Football is 11 versus 11. On Saturday, a Dutch team played with 12 and it has caused chaos**\
-`Heerenveen faced a team of 12 for part of a 2-2 draw against Fortuna Sittard - and now the Dutch FA is asking IFAB what to do about it...`\
-https://nytimes.com/athletic/6107069/2025/02/03/fortuna-12-players-van-persie-heerenveen-ifab/
-
-**How Arsenal's unconventional use of Rice, Lewis-Skelly and Trossard helped them beat Man City**\
-`Arsenal have often been overly-reliant on their right side combinations but against City it was interchanges on the left that proved crucial`\
-https://nytimes.com/athletic/6108674/2025/02/03/arsenal-tactics-manchester-city-rice-lewis-skelly-trossard/
 
