@@ -1,3 +1,7 @@
+**Beyoncé’s ‘Cowboy Carter’ Wins Grammy for Best Country Album**\
+`Beyoncé, who was nominated for 11 awards, also won for best country duo/group performance for the song “II Most Wanted.”`\
+https://nytimes.com/2025/02/02/arts/music/beyonce-best-country-album-grammys-2025.html
+
 **Quote of the Day: Forget Pokémon, Here’s the New Big Small Thing**\
 `Quotation of the Day for Sunday, February 2, 2025.`\
 https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres-the-new-big-small-thing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/jump-rope-rescue-indiana-pond.html
 **Taylor Swift Hasn’t Won Record or Song of the Year Grammys. Yet.**\
 `Despite earning 14 Grammys to date, the singer-songwriter has struck out in two big categories.`\
 https://nytimes.com/2025/02/02/arts/music/taylor-swift-grammy-awards.html
-
-**Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
-`Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
-https://nytimes.com/2025/03/02/world/americas/trump-tariffs-windsor-canada.html
 
