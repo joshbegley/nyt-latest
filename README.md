@@ -1,11 +1,3 @@
-**Nico Gonzalez to Manchester City: The Athletic 500 transfer ratings**\
-`Manchester City have confirmed the permanent signing of Nico Gonzalez from Porto`\
-https://nytimes.com/athletic/6110929/2025/02/03/nico-gonzalez-manchester-city-transfer-analysis/
-
-**Mexico Managed to Stave off Trump’s Tariffs. Now What?**\
-`Mexico managed to temporarily avoid President Trump’s threatened 25 percent tariffs by making promises on border security, but it is unclear if the country can fulfill its pledge.`\
-https://nytimes.com/2025/02/03/world/americas/mexico-tariffs-trump.html
-
 **Chris Wright Is Confirmed to Be Secretary of Energy**\
 `The former fracking executive said in confirmation hearings that his top priority would be to “unleash” American energy production.`\
 https://nytimes.com/2025/02/03/climate/chris-wright-energy-secretary.html
@@ -14,7 +6,7 @@ https://nytimes.com/2025/02/03/climate/chris-wright-energy-secretary.html
 `Tom Thibodeau said that OG Anunoby is day-to-day and that his availability will be dependent upon "how he responds to treatment."`\
 https://nytimes.com/athletic/6110997/2025/02/03/knicks-og-anunoby-foot-injury-sprain/
 
-**Top ‘60 Minutes’ Producer Says He Will Not Apologize to Trump**\
+**Top ‘60 Minutes’ Producer Says He Will Not Apologize Over Trump Lawsuit**\
 `Bill Owens, the show’s executive producer, addressed his staff as CBS’s parent company, Paramount, pursues a legal settlement with the president.`\
 https://nytimes.com/2025/02/03/business/media/cbs-news-60-minutes-trump.html
 
@@ -37,4 +29,12 @@ https://nytimes.com/2025/02/03/us/state-farm-california-rate-increase.html
 **Tottenham confirm Tel signing**\
 `Manchester United and Chelsea had previously been interested in Tel, who has one assist in 14 games for Bayern Munich this season.`\
 https://nytimes.com/athletic/6109285/2025/02/03/mathys-tel-tottenham-loan/
+
+**Fox Sports executive accused in lawsuits of sexual battery placed on leave**\
+`Charlie Dixon, a co-defendant in two lawsuits filed last month, has been with Fox Sports since 2015.`\
+https://nytimes.com/athletic/6110324/2025/02/03/fox-sports-lawsuit-fs1-julie-stewart-binks/
+
+**Trading Myles Garrett is Browns' best path to speed up — and embrace — a rebuild**\
+`With his coordinated and calculated trade request, Garrett has made his decision. And the Browns need to embrace theirs.`\
+https://nytimes.com/athletic/6110496/2025/02/03/browns-myles-garrett-trade-request-rebuild/
 
