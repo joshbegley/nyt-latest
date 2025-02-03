@@ -1,3 +1,19 @@
+**Latte Lath expected to complete Atlanta move from Middlesbrough**\
+`The 26-year-old forward is expected to join the MLS club for a fee in the region of $22-24m plus add-ons.`\
+https://nytimes.com/athletic/6056300/2025/02/03/emmanuel-latte-lath-transfer-atlanta-united/
+
+**Transportation Secretary Says ‘No Early Retirement’ for Air Traffic Controllers**\
+`The new secretary of transportation, Sean Duffy, appeared to walk back an enticement to retire, saying F.A.A. safety workers were exempt from the offer for federal workers.`\
+https://nytimes.com/2025/02/03/us/politics/faa-air-traffic-controllers-early-retirement.html
+
+**Hermoso tells court she received death threats after Rubiales kiss following World Cup final**\
+`The Spain forward was the first witness in the trial against Luis Rubiales and spoke of the impact the incident has had on her life`\
+https://nytimes.com/athletic/6109457/2025/02/03/rubiales-trial-sexual-assault-hermoso/
+
+**Luka Dončić basketball cards: What his Lakers move means**\
+`The trade was a shock that delivered an instant boost to Dončić's trading card values`\
+https://nytimes.com/athletic/6108346/2025/02/03/luka-doncic-lakers-rookie-cards/
+
 **With Luka Dončić trade, NBA again proves it does drama better than anyone**\
 `So many claim they're done watching this league. In moments like this past weekend, they always seem to come back.`\
 https://nytimes.com/athletic/6109090/2025/02/03/luka-doncic-trade-nba-ratings-mavericks-lakers/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/03/briefing/mexico-tariff-delay-iran-weapon-moscow-b
 **What Is U.S.A.I.D., and Why Do Trump and Musk Want to Close It?**\
 `The agency’s funding accounts for a tiny portion of the federal budget, but its structure may have made it an easy target for Trump-era cost-cutting.`\
 https://nytimes.com/2025/02/03/us/politics/usaid-foreign-aid-musk.html
-
-**Texans hire Rams TE coach Nick Caley as OC**\
-`Caley replaces Bobby Slowik and takes over an offense led by quarterback C.J. Stroud and wide receiver Nico Collins. `\
-https://nytimes.com/athletic/6110383/2025/02/03/texans-nick-caley-hire-offensive-coordinator/
-
-**Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
-`Investigators have yet to determine whether the crew of an Army helicopter was wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
-https://nytimes.com/2025/02/03/us/politics/dc-plane-crash-night-vision-goggles.html
-
-**MLB fires umpire Pat Hoberg for sharing betting accounts**\
-`Hoberg can apply for reinstatement in spring training 2026 at the earliest.`\
-https://nytimes.com/athletic/6110394/2025/02/03/mlb-umpire-fired-pat-hoberg-gambling/
-
-**Democrats spotlight the impact of Trump’s funding pause.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2025/02/03/us/trump-usaid-news/democrats-spotlight-the-impact-of-trumps-funding-pause
 

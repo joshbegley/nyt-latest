@@ -1,3 +1,19 @@
+**Latte Lath expected to complete Atlanta move from Middlesbrough**\
+`The 26-year-old forward is expected to join the MLS club for a fee in the region of $22-24m plus add-ons.`\
+https://nytimes.com/athletic/6056300/2025/02/03/emmanuel-latte-lath-transfer-atlanta-united/
+
+**Transportation Secretary Says ‘No Early Retirement’ for Air Traffic Controllers**\
+`The new secretary of transportation, Sean Duffy, appeared to walk back an enticement to retire, saying F.A.A. safety workers were exempt from the offer for federal workers.`\
+https://nytimes.com/2025/02/03/us/politics/faa-air-traffic-controllers-early-retirement.html
+
+**Hermoso tells court she received death threats after Rubiales kiss following World Cup final**\
+`The Spain forward was the first witness in the trial against Luis Rubiales and spoke of the impact the incident has had on her life`\
+https://nytimes.com/athletic/6109457/2025/02/03/rubiales-trial-sexual-assault-hermoso/
+
+**Luka Dončić basketball cards: What his Lakers move means**\
+`The trade was a shock that delivered an instant boost to Dončić's trading card values`\
+https://nytimes.com/athletic/6108346/2025/02/03/luka-doncic-lakers-rookie-cards/
+
 **With Luka Dončić trade, NBA again proves it does drama better than anyone**\
 `So many claim they're done watching this league. In moments like this past weekend, they always seem to come back.`\
 https://nytimes.com/athletic/6109090/2025/02/03/luka-doncic-trade-nba-ratings-mavericks-lakers/
