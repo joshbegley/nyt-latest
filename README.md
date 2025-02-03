@@ -1,3 +1,31 @@
+**City needed a new midfielder six weeks ago. Now it's deadline day and they still need one**\
+`It was City's one wish for this window, yet instead they have strengthened elsewhere, while their midfield has looked weaker and weaker`\
+https://nytimes.com/athletic/6107246/2025/02/03/man-city-transfers-midfield-nico-gonzalez/
+
+**An excessive over-analysis of Nottingham Forest's 7-0 win against Brighton**\
+`If you can't analyse a team's biggest Premier League win in frankly unnecessary detail, when can you do it?`\
+https://nytimes.com/athletic/6107107/2025/02/03/nottingham-forest-brighton-over-analysis/
+
+**Brighton rejected two Saudi bids for Mitoma - why and what could happen next?**\
+`Brighton turned down two significant bids from Saudi Arabia for the Japan international at the end of last week`\
+https://nytimes.com/athletic/6102455/2025/02/03/brighton-kaoru-mitoma-saudi-arabia/
+
+**'Circle of trust', small tweaks and forensic analysis - how Maresca copes with being on a poor run**\
+`The Chelsea head coach endured a tough period at Leicester a year ago and there are things we can learn from how he handed that`\
+https://nytimes.com/athletic/6104771/2025/02/03/enzo-maresca-bad-run-chelsea/
+
+**Tottenham won ugly at Brentford - in its own way, it was a statement victory**\
+`Gritty, canny and efficient — against Brentford, Spurs came up with the kind of performance they have desperately needed`\
+https://nytimes.com/athletic/6103159/2025/02/03/tottenham-brentford-ugly-win/
+
+**Leicester spending is unlikely, so Van Nistelrooy must solve their defensive issues from within**\
+`Ruud van Nistelrooy expected more reinforcements to arrive in the winter window but faces trying to stave off relegation with what he has`\
+https://nytimes.com/athletic/6106471/2025/02/03/leicester-defensive-issues-january-transfers/
+
+**The latest serving of Moyes magic: A Premier League record for Goodison and two goals for Beto**\
+`Everton finally have some much-needed breathing space which should ensure they bow out from Goodison on a high`\
+https://nytimes.com/athletic/6105545/2025/02/03/everton-beto-goodison-park-record-leicester/
+
 **Arsenal's humiliation of Man City after years of torment was more than revenge. It was glorious**\
 `After many near-misses, agonising late goals and simmering ill-feeling, Mikel Arteta's side's thrashing of the champions felt truly special`\
 https://nytimes.com/athletic/6107516/2025/02/03/arsenal-man-city-revenge/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6096406/2025/02/03/mateta-palace-new-contract/
 **Newcastle gamble on not gambling in transfer market**\
 `Newcastle have previously decided to twist in the transfer market, but sticking, as they are now, also comes with peril`\
 https://nytimes.com/athletic/6105459/2025/02/03/newcastle-gamble-on-not-gambling-in-transfer-market/
-
-**Mainoo as a false nine? A strange experiment that highlighted Man Utd's flaws**\
-`The midfielder's selection up front raised eyebrows. What does it say about Ruben Amorim's faith in Rasmus Hojlund and Joshua Zirkzee?`\
-https://nytimes.com/athletic/6107784/2025/02/03/kobbie-mainoo-false-nine-man-utd/
-
-**Monday Briefing**\
-`The prospect of a North American trade war.`\
-https://nytimes.com/2025/02/03/briefing/trade-war-israel-europe.html
-
-**The Briefing: Arsenal 'humble' City, Amorim's cry for help and... hello, deadline day**\
-`The standout game of the Premier League weekend delivered, but what did this round of matches mean for Monday's transfer deadline?`\
-https://nytimes.com/athletic/6107458/2025/02/03/the-briefing-arsenal-man-city-amorim-deadline-day/
-
-**The anatomy of a transfer - as told by those who make a deal happen**\
-`There are seven key roles involved in a footballer transfer - we spoke to people in each of those positions to find out how a move happens`\
-https://nytimes.com/athletic/6049183/2025/02/03/anatomy-of-a-transfer/
-
-**What deadline-day transfers could still happen before the winter window shuts?**\
-`This is the state of play among Premier League clubs as the window draws to a close. There are plenty of players who could be on the move...`\
-https://nytimes.com/athletic/6106673/2025/02/03/transfer-deadline-day-moves/
-
-**This is Jenni Hermoso - record goalscorer, serial swearer and an icon of Spanish sport**\
-`Hermoso will testify on day one of the Rubiales trial. Spain's all-time top scorer is once again front and centre, ready to fight her corner`\
-https://nytimes.com/athletic/6094310/2025/02/03/jenni-hermoso-rubiales-trial-profile-spain/
-
-**Lamine Yamal and his 14 seconds of Messi-like magic**\
-`Barcelona beat Alaves 1-0 but all anyone was talking about was Yamal's unbelievable dribble in the first half. We broke it down...`\
-https://nytimes.com/athletic/6107522/2025/02/03/lamine-yamal-dribble-barcelona-alaves/
 
