@@ -1,40 +1,40 @@
-**South Africa Fires Back at Trump’s False Claim of Land Seizures**\
-`President Cyril Ramaphosa of South Africa said that his country had not seized land. Ownership of land in the country has been a contentious issue for generations.`\
-https://nytimes.com/2025/02/03/us/politics/south-africa-ramaphosa-trump-land-us-aid.html
+**Trump Intensifies Threats to Hit Europe With Tariffs**\
+`President Trump said late Sunday that European nations would “definitely” be hit with tariffs. His moves against Canada and Mexico have European officials on alert.`\
+https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html
 
-**Luka Dončić, Kareem, Shaq and others: Ranking the NBA's all-time greatest trades**\
-`The Dončić trade ranks among the greatest in NBA history. Here are some of the league's best ever reported.`\
-https://nytimes.com/athletic/6107319/2025/02/03/luka-doncic-nba-trade-rankings-kareem-shaq-wilt/
+**Do the Bills need a 'desperate' move to break through?**\
+`GM Brandon Beane doesn't expect the Bills to be big spenders in free agency. But should they follow the Eagles' lead?`\
+https://nytimes.com/athletic/6107528/2025/02/03/bills-playoffs-brandon-beane-josh-allen/
 
-**Nottingham Forest close to signing Reading defender Bindon**\
-`Nottingham Forest are close to signing New Zealand international Tyler Bindon from Reading.`\
-https://nytimes.com/athletic/6108627/2025/02/03/tyler-bindon-nottingham-forest-transfer/
+**A New Leader for the Canaries of Global Disaster**\
+`Alexandra Bell is bringing more than a decade of experience in nuclear policy to the organization that sets the Doomsday Clock.`\
+https://nytimes.com/2025/02/03/science/bulletin-of-the-atomic-scientists-alexandra-bell.html
 
-**Man City attempting to complete move for Porto's Gonzalez**\
-`Manchester City are attempting to complete a deadline day move for Porto midfielder Nico Gonzalez.`\
-https://nytimes.com/athletic/6104691/2025/02/03/nico-gonzalez-manchester-city-transfer/
+**Blackhawks power rankings: Bedard's consistency, Donato's trade value, Messier's complaint**\
+`Plus Seth Jones' rebound since "the infamous Calgary game," Nick Lardis' OHL goal streak and more.`\
+https://nytimes.com/athletic/6106078/2025/02/03/blackhawks-bedard-donato-trade-messier-nhl/
 
-**Musk Says Trump Wants to Shut Down U.S. Foreign Aid Agency**\
-`President Trump has stopped short of saying the U.S. Agency for International Development should be closed. Elon Musk’s comments added to the questions surrounding its future.`\
-https://nytimes.com/2025/02/03/us/politics/elon-musk-trump-usaid-agency.html
+**Packers draft big board: 15 enticing first-round prospects at positions of need**\
+`The Packers hold the No. 23 pick in the NFL Draft. The last time they picked 23rd, they won the Super Bowl the next season.`\
+https://nytimes.com/athletic/6107101/2025/02/03/packers-draft-big-board-2025/
 
-**Browns QB tracker: What to make of Tyler Shough, Jaxson Dart and Jalen Milroe**\
-`We look at how each QB performed at the Senior Bowl and what key Browns figures had to say about three of the draft's top passers.`\
-https://nytimes.com/athletic/6107117/2025/02/03/browns-quarterback-tracker-senior-bowl/
+**Penguins trade tiers: The most and least likely to be dealt**\
+`Let's rank the Penguins by their likeliness to be dealt before the March 7 NHL trade deadline. `\
+https://nytimes.com/athletic/6087883/2025/02/03/penguins-nhl-trade-deadline-tiers/
 
-**Ravens big board: First-round options at several positions, including OL and DL**\
-`Taking a look at arguably Baltimore's four biggest needs in early February and who could be available when it's on the clock in April. `\
-https://nytimes.com/athletic/6104563/2025/02/03/ravens-nfl-draft-big-board-2025/
+**Best offseason ever? Where Eagles (and Chiefs) rank among Super Bowl teams: Sando's Pick Six**\
+`The Eagles have always spent under Jeffrey Lurie, but this season was different. Plus, why time might not be on Patrick Mahomes' side.`\
+https://nytimes.com/athletic/6090156/2025/02/03/eagles-chiefs-super-bowl-howie-roseman/
 
-**Super Bowl week top storylines: Chiefs' shot at history, Saquon Barkley ... and NFL refs**\
-`As the NFL descends on New Orleans for Super Bowl LIX between the Chiefs and Eagles, seven topics that should dominate discussion.`\
-https://nytimes.com/athletic/6100460/2025/02/03/super-bowl-2025-chiefs-eagles-top-storylines/
+**Red Wings are in a playoff spot: 5 thoughts as win streak hits 6 games**\
+`With an overtime win in Vancouver and a successful western Canada swing, the Red Wings are firmly back in the Eastern Conference race.`\
+https://nytimes.com/athletic/6108341/2025/02/03/red-wings-playoff-spot-vancouver-canucks/
 
-**Crystal Palace reject Guehi offer from Tottenham**\
-`Spurs and other clubs are expected to try again for the England international in the summer.`\
-https://nytimes.com/athletic/6043881/2025/02/03/marc-guehi-tottenham-transfer-palace/
+**Wild insider: How the rising salary cap could affect Kirill Kaprizov, Marco Rossi**\
+`Bill Guerin said it's too soon to know exactly the impact the rising cap will have, but what could it mean for the Wild's spending?`\
+https://nytimes.com/athletic/6107250/2025/02/03/wild-nhl-salary-cap-kaprizov-rossi/
 
-**Bengals' Trey Hendrickson quandary: Will NFL's sack champ be traded, extended?**\
-`The All-Pro's stellar performance, his age and the need to pay expensive offensive stars make for a complicated situation in Cincinnati.`\
-https://nytimes.com/athletic/6103891/2025/02/03/bengals-trey-hendrickson-future/
+**China Challenges Silicon Valley for A.I. Dominance**\
+`DeepSeek, a Chinese start-up with a new A.I. model, threatens to upend the world of artificial intelligence.`\
+https://nytimes.com/2025/02/03/podcasts/the-daily/china-ai-deepseek.html
 
