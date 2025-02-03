@@ -1,3 +1,15 @@
+**The Windup: What Scherzer brings to Toronto**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6109788/2025/02/03/max-scherzer-blue-jays-the-windup/
+
+**N.Y.P.D. Supervisors Fail to Rein in Illegal Searches, Monitor Says**\
+`Anti-crime units are still stopping and frisking too many people unlawfully, according to a new report that comes months before a mayoral election in which public safety may be a pivotal issue.`\
+https://nytimes.com/2025/02/03/nyregion/nypd-stop-and-frisk-monitor.html
+
+**Jaune Quick-to-See Smith Wanted to Be the Rule, Not the Exception**\
+`The artist, who died at 85, used Indigenous imagery like the canoe and the buffalo the way Warhol used soup cans.`\
+https://nytimes.com/2025/02/03/arts/design/jaune-quick-to-see-smith-appraisal.html
+
 **In Canada, a budding campaign to boycott American products at the grocery store.**\
 `Videos appealing to Canadian patriotism are flooding social media, offering consumers tips on how to avoid purchasing American products.`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/in-canada-a-budding-campaign-to-boycott-american-products-at-the-grocery-store
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6109467/2025/02/03/sam-kerr-trial/
 **Review: An Affectionate Golden Age Schpoof in ‘Schmigadoon!’**\
 `The Apple TV+ series comes to the stage of the Kennedy Center with its snark and affection for classic Broadway musicals intact.`\
 https://nytimes.com/2025/02/03/theater/schmigadoon-review-kennedy-center.html
-
-**Fed official urges patience amid tariff uncertainty.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs/fed-official-urges-patience-amid-tariff-uncertainty
-
-**Inside the top-secret negotiations that made Luka Dončić a Laker**\
-`Even mentioning details to the superstars' agents would risk info becoming public, which the Mavs thought was especially flammable.`\
-https://nytimes.com/athletic/6108360/2025/02/03/luka-doncic-nba-trade-negotiations-lakers-mavericks/
-
-**‘Gender Ideology’ Ban Is Already Harming Health, Experts Say**\
-`Documents purged from government websites include guidelines for safe contraception and information on racial inequities in health care.`\
-https://nytimes.com/2025/02/03/health/trump-gender-ideology-research.html
 
