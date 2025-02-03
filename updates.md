@@ -1,3 +1,7 @@
+**Morata joins Galatasaray on loan from Milan**\
+`Alvaro Morata has joined Galatasaray on loan from Milan.`\
+https://nytimes.com/athletic/6100027/2025/02/03/alvaro-morata-galatasaray-transfer-milan/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/03/crosswords/spelling-bee-forum.html
