@@ -1,3 +1,15 @@
+**Mike Ekeler returning to Nebraska to coach Cornhuskers special teams: Source**\
+`Ekeler coached at Nebraska from 2008 through 2010 under Bo Pelini and was part of two teams that played in the Big 12 Championship Game.`\
+https://nytimes.com/athletic/6109339/2025/02/03/mike-ekeler-nebraska-specia-teams-matt-rhule/
+
+**Senate Intelligence Committee Will Vote on Tulsi Gabbard’s Nomination on Tuesday, Officials Say**\
+`Democrats are united in opposition to her serving as the director of national intelligence. A single Republican no vote would complicate her confirmation by the full Senate.`\
+https://nytimes.com/2025/02/03/us/politics/senate-intelligence-committee-will-vote-on-tulsi-gabbards-nomination-on-tuesday-officials-say.html
+
+**Cowboys Today: Why Herschel Walker trade doesn't come close in absurdity to Luka Dončiċ trade**\
+`The Cowboys got a lot for Herschel Walker in 1989. The Mavericks trading away Luka Dončiċ was big, too, but different in many ways.`\
+https://nytimes.com/athletic/6108459/2025/02/03/cowboys-today-herschel-walker-trade-luka-doncic/
+
 **Standoff at Ukrainian Agency Disrupts Arms Contracts, Suppliers Say**\
 `Ukrainian defense companies say they cannot sign new contracts or receive payment — potentially jeopardizing future supplies to already struggling troops.`\
 https://nytimes.com/2025/02/03/world/europe/ukraine-arms-contracts-payment-disruptions-army.html

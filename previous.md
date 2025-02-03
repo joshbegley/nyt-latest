@@ -1,3 +1,15 @@
+**Mike Ekeler returning to Nebraska to coach Cornhuskers special teams: Source**\
+`Ekeler coached at Nebraska from 2008 through 2010 under Bo Pelini and was part of two teams that played in the Big 12 Championship Game.`\
+https://nytimes.com/athletic/6109339/2025/02/03/mike-ekeler-nebraska-specia-teams-matt-rhule/
+
+**Senate Intelligence Committee Will Vote on Tulsi Gabbard’s Nomination on Tuesday, Officials Say**\
+`Democrats are united in opposition to her serving as the director of national intelligence. A single Republican no vote would complicate her confirmation by the full Senate.`\
+https://nytimes.com/2025/02/03/us/politics/senate-intelligence-committee-will-vote-on-tulsi-gabbards-nomination-on-tuesday-officials-say.html
+
+**Cowboys Today: Why Herschel Walker trade doesn't come close in absurdity to Luka Dončiċ trade**\
+`The Cowboys got a lot for Herschel Walker in 1989. The Mavericks trading away Luka Dončiċ was big, too, but different in many ways.`\
+https://nytimes.com/athletic/6108459/2025/02/03/cowboys-today-herschel-walker-trade-luka-doncic/
+
 **Standoff at Ukrainian Agency Disrupts Arms Contracts, Suppliers Say**\
 `Ukrainian defense companies say they cannot sign new contracts or receive payment — potentially jeopardizing future supplies to already struggling troops.`\
 https://nytimes.com/2025/02/03/world/europe/ukraine-arms-contracts-payment-disruptions-army.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6108438/2025/02/03/whats-next-for-the-jazz-after-he
 **Spain’s Ex-Soccer Chief Goes on Trial Over Forced Kiss of Star Player**\
 `Luis Rubiales kissed Jennifer Hermoso on the lips after the country’s national team won the 2023 Women’s World Cup. On Monday, she testified against him and other former officials.`\
 https://nytimes.com/2025/02/03/world/europe/spain-soccer-rubiales-trial-hermoso-world-cup-kiss.html
-
-**Penguins Today: Crosby, Malkin are reasons to watch as playoff hopes fade**\
-`Sidney Crosby and Evgeni Malkin are still a big a reason for Penguins fans to care about the rest of the regular season.`\
-https://nytimes.com/athletic/6109166/2025/02/03/penguins-today-crosby-malkin-watch/
-
-**Super Bowl 59 touchdown prop bets: Saquon Barkley rules the board**\
-`Barkley leads the touchdown props market, but who else has some value?`\
-https://nytimes.com/athletic/6102853/2025/02/03/super-bowl-59-touchdown-prop-bets-saquon-barkley-travis-kelce-jalen-hurts-lead-the-board/
-
-**Pro-Russia Ukrainian Is Killed in Moscow Blast, Russian Media Says**\
-`Armen Sarkisyan, the founder of a separatist battalion fighting in eastern Ukraine, died after an explosion in an apartment complex, according to reports citing the Russian authorities.`\
-https://nytimes.com/2025/02/03/world/europe/pro-russia-leader-ukraine-killed-moscow.html
 
