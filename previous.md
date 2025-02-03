@@ -6,7 +6,7 @@ https://nytimes.com/2025/02/03/climate/chris-wright-energy-secretary.html
 `Tom Thibodeau said that OG Anunoby is day-to-day and that his availability will be dependent upon "how he responds to treatment."`\
 https://nytimes.com/athletic/6110997/2025/02/03/knicks-og-anunoby-foot-injury-sprain/
 
-**Top ‘60 Minutes’ Producer Says He Will Not Apologize to Trump**\
+**Top ‘60 Minutes’ Producer Says He Will Not Apologize Over Trump Lawsuit**\
 `Bill Owens, the show’s executive producer, addressed his staff as CBS’s parent company, Paramount, pursues a legal settlement with the president.`\
 https://nytimes.com/2025/02/03/business/media/cbs-news-60-minutes-trump.html
 
