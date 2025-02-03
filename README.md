@@ -1,3 +1,7 @@
+**E.P.A. Tells More Than 1,000 They Could Be Fired ‘Immediately’**\
+`A spokeswoman for Lee Zeldin, the new head of the agency, said the goal was to create an “effective and efficient” federal work force.`\
+https://nytimes.com/2025/02/03/climate/trump-epa-workers-zeldin.html
+
 **Mercedes streamliner driven by F1 great Manuel Fangio sells for record $52m**\
 `The Mercedes streamliner was driven by F1 greats Juan Manuel Fangio and Sterling Moss in 1955`\
 https://nytimes.com/athletic/6108632/2025/02/03/mercedes-streamliner-f1-auction-52m-record-fangio-moss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109138/2025/02/03/man-city-transfers-nico-gonzalez
 **Football is 11 versus 11. On Saturday, a Dutch team played with 12 and it has caused chaos**\
 `Heerenveen faced a team of 12 for part of a 2-2 draw against Fortuna Sittard - and now the Dutch FA is asking IFAB what to do about it...`\
 https://nytimes.com/athletic/6107069/2025/02/03/fortuna-12-players-van-persie-heerenveen-ifab/
-
-**How Arsenal's unconventional use of Rice, Lewis-Skelly and Trossard helped them beat Man City**\
-`Arsenal have often been overly-reliant on their right side combinations but against City it was interchanges on the left that proved crucial`\
-https://nytimes.com/athletic/6108674/2025/02/03/arsenal-tactics-manchester-city-rice-lewis-skelly-trossard/
 
