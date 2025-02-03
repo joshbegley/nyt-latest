@@ -1,3 +1,11 @@
+**Former Tottenham winger Edwards joins Burnley from Sporting CP**\
+`Former Tottenham Hotspur winger Marcus Edwards has joined Burnley from Sporting CP.`\
+https://nytimes.com/athletic/6102729/2025/02/03/marcus-edwards-burnley-transfer/
+
+**Raptors need to be patient and stick to rebuilding plan at NBA trade deadline**\
+`The Raptors need to worry about the opportunities in front of them now and then worry about the big picture in the summer. `\
+https://nytimes.com/athletic/6105523/2025/02/03/raptors-nba-trade-deadline-2025/
+
 **Panthers big board: Draft options at No. 8 for much-needed defensive help (or receiver)**\
 `Who could fit nicely for the Panthers if they keep the No. 8 pick in the upcoming NFL Draft?`\
 https://nytimes.com/athletic/6104160/2025/02/03/carolina-panthers-draft-big-board-first-round-defense/
@@ -14,6 +22,10 @@ https://nytimes.com/athletic/6106827/2025/02/03/cade-klubnik-drew-aller-kevin-je
 `Nebraska's head coach met with the media for the first time since the Pinstripe Bowl in December. `\
 https://nytimes.com/athletic/6107529/2025/02/03/nebraska-matt-rhule-spring-game-special-teams/
 
+**Ranking 10 outside free agents the Falcons should pursue, plus a wild card**\
+`The Falcons need help at edge rusher and cornerback. This list of free agents is a good place to start looking.`\
+https://nytimes.com/athletic/6101021/2025/02/03/falcons-outside-free-agent-rankings/
+
 **Best and Worst Moments From the 2025 Grammys**\
 `Doechii and Chappell Roan brought dramatic performances and heartfelt speeches, new artists stole the spotlight and men took a back seat at the 67th annual awards.`\
 https://nytimes.com/2025/02/03/arts/music/grammys-2025-best-worst-moments.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/warren-bessent-treasury-musk-doge.htm
 **A Presidency That’s Off the Rails. It Took Only Two Weeks.**\
 `But we’ve underestimated Trump’s political strength many times before.`\
 https://nytimes.com/2025/02/03/opinion/trump-kennedy-patel-gabbard.html
-
-**As Trump Attacks Diversity, a Racist Undercurrent Surfaces**\
-`President Trump has promised a “colorblind and merit-based” society, while also equating diversity with incompetence.`\
-https://nytimes.com/2025/02/03/us/politics/trump-diversity-racism.html
-
-**I’m Happily Married. I Just Want to Sleep With Another Man Before I Die.**\
-`The magazine’s Ethicist columnist on the fear of missing out and “carnal reciprocity.”`\
-https://nytimes.com/2025/02/03/magazine/married-escorts-climax-ethics.html
-
-**Panama Canal Fees Have Become a Flashpoint. Here’s Why They’ve Risen.**\
-`President Trump says the canal authority is overcharging. Recent increases are attributed in part to drought, maintenance investments and demand.`\
-https://nytimes.com/2025/02/03/business/economy/panama-canal-fees.html
 

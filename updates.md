@@ -1,3 +1,15 @@
+**Former Tottenham winger Edwards joins Burnley from Sporting CP**\
+`Former Tottenham Hotspur winger Marcus Edwards has joined Burnley from Sporting CP.`\
+https://nytimes.com/athletic/6102729/2025/02/03/marcus-edwards-burnley-transfer/
+
+**Raptors need to be patient and stick to rebuilding plan at NBA trade deadline**\
+`The Raptors need to worry about the opportunities in front of them now and then worry about the big picture in the summer. `\
+https://nytimes.com/athletic/6105523/2025/02/03/raptors-nba-trade-deadline-2025/
+
+**Ranking 10 outside free agents the Falcons should pursue, plus a wild card**\
+`The Falcons need help at edge rusher and cornerback. This list of free agents is a good place to start looking.`\
+https://nytimes.com/athletic/6101021/2025/02/03/falcons-outside-free-agent-rankings/
+
 **Panthers big board: Draft options at No. 8 for much-needed defensive help (or receiver)**\
 `Who could fit nicely for the Panthers if they keep the No. 8 pick in the upcoming NFL Draft?`\
 https://nytimes.com/athletic/6104160/2025/02/03/carolina-panthers-draft-big-board-first-round-defense/
