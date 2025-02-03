@@ -1,3 +1,15 @@
+**A Daring Rescue Under a Subway Train Leads to an Emotional Reunion**\
+`Joseph Lynskey was shoved into the path of an oncoming train and survived. On Monday, he thanked the firefighters who rescued him.`\
+https://nytimes.com/2025/02/03/nyregion/joseph-lynskey-subway-firefighters.html
+
+**The University of California Increased Diversity. Now It’s Being Sued.**\
+`The state’s elite campuses, prohibited from using race-based admissions for decades, are now admitting more Black and Hispanic students. A new group is suing, arguing the university system is cheating.`\
+https://nytimes.com/2025/02/03/us/affirmative-action-california.html
+
+**Musk Allies Discuss Deploying A.I. to Find Budget Savings**\
+`A top official at the General Services Administration said artificial intelligence could be used to identify waste and redundancies in federal contracts.`\
+https://nytimes.com/2025/02/03/technology/musk-allies-ai-government.html
+
 **Everton sign Alcaraz from Flamengo**\
 `The loan move also contains an obligation to buy providing Alcaraz, 22, makes an undisclosed number of league starts.`\
 https://nytimes.com/athletic/6108547/2025/02/03/carlos-alcaraz-everton-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6110929/2025/02/03/nico-gonzalez-manchester-city-tr
 **Mexico Managed to Stave Off Trump’s Tariffs. Now What?**\
 `Mexico managed to temporarily avoid President Trump’s threatened 25 percent tariffs by making promises on border security, but it is unclear if the country can fulfill its pledge.`\
 https://nytimes.com/2025/02/03/world/americas/mexico-tariffs-trump.html
-
-**Chris Wright Is Confirmed to Be Secretary of Energy**\
-`The former fracking executive said in confirmation hearings that his top priority would be to “unleash” American energy production.`\
-https://nytimes.com/2025/02/03/climate/chris-wright-energy-secretary.html
-
-**Knicks: Anunoby's injury is a sprain, but timing on return is unclear**\
-`Tom Thibodeau said that OG Anunoby is day-to-day and that his availability will be dependent upon "how he responds to treatment."`\
-https://nytimes.com/athletic/6110997/2025/02/03/knicks-og-anunoby-foot-injury-sprain/
-
-**Top ‘60 Minutes’ Producer Says He Will Not Apologize Over Trump Lawsuit**\
-`Bill Owens, the show’s executive producer, addressed his staff as CBS’s parent company, Paramount, pursues a legal settlement with the president.`\
-https://nytimes.com/2025/02/03/business/media/cbs-news-60-minutes-trump.html
 
