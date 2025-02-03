@@ -1,3 +1,7 @@
+**Tottenham's Dragusin suffers ACL injury, expected to miss rest of season**\
+`Tottenham Hotspur defender Radu Dragusin is expected to miss the rest of the 2024-25 season after injuring the anterior cruciate ligament (ACL) in his right knee during last week&#8217;s Europa League game against Elfsborg.`\
+https://nytimes.com/athletic/6108843/2025/02/03/radu-dragusin-acl-injury-tottenham/
+
 **Pacific Coast Highway Reopens Nearly 4 Weeks After Devastating Fire**\
 `The stretch of the highway along the Pacific Ocean between Santa Monica and Malibu reopened to regular traffic. Some local officials believe it is too soon.`\
 https://nytimes.com/2025/02/03/us/pch-highway-reopen-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109368/2025/02/03/athletic-football-show-brock-pur
 **NASCAR garage talk: What I heard and saw at the Clash at Bowman Gray Stadium**\
 `The future of the Clash, a surprisingly good run at Bowman Gray Stadium and more chatter from Sunday's exhibition race.`\
 https://nytimes.com/athletic/6109228/2025/02/03/nascar-bowman-gray-stadium-clash-what-i-heard/
-
-**Crew's Cucho Hernandez close to Real Betis transfer**\
-`Hernandez, 25, finished second behind Lionel Messi in the voting for MLS MVP for the 2024 season.`\
-https://nytimes.com/athletic/6109728/2025/02/03/cucho-hernandez-betis-crew-transfer-mls/
 
