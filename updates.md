@@ -1,3 +1,7 @@
+**Will Smith introduces tribute to Quincy Jones.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/will-smith-introduces-tribute-to-quincy-jones
+
 **Free-agent starter Jack Flaherty returns to Tigers on 2-year deal: Source**\
 `Flaherty's deal includes a $10 million player option for 2026 that could rise to $20 million if he makes 15 starts in 2025.`\
 https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
