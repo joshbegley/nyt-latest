@@ -1,3 +1,19 @@
+**State Farm Seeks an Urgent Increase in California Rates After Fires**\
+`The company asked state regulators to approve a 22 percent increase on average.`\
+https://nytimes.com/2025/02/03/us/state-farm-california-rate-increase.html
+
+**Tottenham confirm Tel signing**\
+`Manchester United and Chelsea had previously been interested in Tel, who has one assist in 14 games for Bayern Munich this season.`\
+https://nytimes.com/athletic/6109285/2025/02/03/mathys-tel-tottenham-loan/
+
+**Fox Sports executive accused in lawsuits of sexual battery placed on leave**\
+`Charlie Dixon, a co-defendant in two lawsuits filed last month, has been with Fox Sports since 2015.`\
+https://nytimes.com/athletic/6110324/2025/02/03/fox-sports-lawsuit-fs1-julie-stewart-binks/
+
+**Trading Myles Garrett is Browns' best path to speed up — and embrace — a rebuild**\
+`With his coordinated and calculated trade request, Garrett has made his decision. And the Browns need to embrace theirs.`\
+https://nytimes.com/athletic/6110496/2025/02/03/browns-myles-garrett-trade-request-rebuild/
+
 **Mexico and Canada Reach Last-Minute Deal With Trump to Avert Trade War**\
 `President Trump agreed to delay tariffs on Mexico and Canada for a month after both countries pledged to do more to block drugs and migrants.`\
 https://nytimes.com/2025/02/03/business/canada-mexico-tariffs-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6110807/2025/02/03/submit-questions-for-mike-defabo
 **Canada Also Gets 30-Day Tariff Reprieve After Fresh Fentanyl Pledges**\
 `Prime Minister Justin Trudeau in a call with President Trump pledged to beef up border security with more personnel and technology and address the trafficking of fentanyl.`\
 https://nytimes.com/2025/02/03/world/americas/canada-tariffs-trump-deal.html
-
-**Albania and Serbia set to be confirmed as co-hosts for 2027 Under-21 Euros**\
-`The two federations, with the backing of their governments and UEFA, are determined to improve relations between the countries.`\
-https://nytimes.com/athletic/6109859/2025/02/03/serbia-albania-euros-uefa/
-
-**At an embattled aid agency, concern turns into defiance overnight.**\
-`By Aishvarya Kavi and Ephrat Livni`\
-https://nytimes.com/live/2025/02/03/us/trump-usaid-news/at-an-embattled-aid-agency-concern-turns-into-defiance-overnight
-
-**Sheffield United sign Crystal Palace defender Holding on loan**\
-`Sheffield United have completed the signing of defender Rob Holding from Crystal Palace on loan until the end of the season.`\
-https://nytimes.com/athletic/6110756/2025/02/03/rob-holding-sheffield-united-crystal-palace-transfer/
-
-**Merle Louise Simon, a Sondheim Mainstay, Is Dead at 90**\
-`She originated roles in four of his Broadway musicals between 1959 and 1987, and won a Drama Desk Award for her performance in “Sweeney Todd.”`\
-https://nytimes.com/2025/02/03/theater/merle-louise-simon-dead.html
 
