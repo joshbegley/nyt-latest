@@ -1,3 +1,7 @@
+**Word of the Day: mollify**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/03/learning/word-of-the-day-mollify.html
+
 **Super Bowl LIX, Plus 9 Things to Watch on TV This Week**\
 `The Philadelphia Eagles and Kansas City Chiefs will face off, after the much anticipated Puppy Bowl XXI.`\
 https://nytimes.com/2025/02/03/arts/television/super-bowl-lix-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6104771/2025/02/03/enzo-maresca-bad-run-chelsea/
 **Tottenham won ugly at Brentford - in its own way, it was a statement victory**\
 `Gritty, canny and efficient — against Brentford, Spurs came up with the kind of performance they have desperately needed`\
 https://nytimes.com/athletic/6103159/2025/02/03/tottenham-brentford-ugly-win/
-
-**Leicester spending is unlikely, so Van Nistelrooy must solve their defensive issues from within**\
-`Ruud van Nistelrooy expected more reinforcements to arrive in the winter window but faces trying to stave off relegation with what he has`\
-https://nytimes.com/athletic/6106471/2025/02/03/leicester-defensive-issues-january-transfers/
 
