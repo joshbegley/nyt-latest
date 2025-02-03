@@ -1,3 +1,7 @@
+**At an embattled aid agency, concern turns into defiance overnight.**\
+`By Aishvarya Kavi and Ephrat Livni`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/at-an-embattled-aid-agency-concern-turns-into-defiance-overnight
+
 **Sheffield United sign Crystal Palace defender Holding on loan**\
 `Sheffield United have completed the signing of defender Rob Holding from Crystal Palace on loan until the end of the season.`\
 https://nytimes.com/athletic/6110756/2025/02/03/rob-holding-sheffield-united-crystal-palace-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/nyregion/cryptocurrency-hacker-theft-charges.html
 **Latte Lath expected to complete Atlanta move from Middlesbrough for MLS record fee**\
 `The 26-year-old forward is expected to join the MLS club for a fee in the region of $22-24m plus add-ons.`\
 https://nytimes.com/athletic/6056300/2025/02/03/emmanuel-latte-lath-transfer-atlanta-united/
-
-**Transportation Secretary Says ‘No Early Retirement’ for Air Traffic Controllers**\
-`The new secretary of transportation, Sean Duffy, appeared to walk back an enticement to retire, saying F.A.A. safety workers were exempt from the offer for federal workers.`\
-https://nytimes.com/2025/02/03/us/politics/faa-air-traffic-controllers-early-retirement.html
 

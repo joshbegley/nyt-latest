@@ -1,3 +1,7 @@
+**At an embattled aid agency, concern turns into defiance overnight.**\
+`By Aishvarya Kavi and Ephrat Livni`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/at-an-embattled-aid-agency-concern-turns-into-defiance-overnight
+
 **Sheffield United sign Crystal Palace defender Holding on loan**\
 `Sheffield United have completed the signing of defender Rob Holding from Crystal Palace on loan until the end of the season.`\
 https://nytimes.com/athletic/6110756/2025/02/03/rob-holding-sheffield-united-crystal-palace-transfer/
