@@ -1,3 +1,7 @@
+**Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
+`Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
+https://nytimes.com/2025/03/02/world/americas/trump-tariffs-windsor-canada.html
+
 **Quote of the Day: Forget Pokémon, Here’s the New Big Small Thing**\
 `Quotation of the Day for Sunday, February 2, 2025.`\
 https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres-the-new-big-small-thing.html

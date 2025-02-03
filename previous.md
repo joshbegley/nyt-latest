@@ -36,5 +36,5 @@ https://nytimes.com/2025/02/02/arts/music/taylor-swift-grammy-awards.html
 
 **Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
 `Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
-https://nytimes.com/2025/03/02/us/politics/trump-tariffs-windsor-canada.html
+https://nytimes.com/2025/03/02/world/americas/trump-tariffs-windsor-canada.html
 
