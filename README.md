@@ -26,10 +26,6 @@ https://nytimes.com/athletic/6103484/2025/02/03/mathys-tel-bayern-munich-tactica
 `By The New York Times`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/here-are-the-latest-developments
 
-**Live Updates: Stocks Fall Around the Globe as Trump Tariffs Fuel Trade War Fears**\
-`U.S. shares fell at the opening bell, following drops in Asian and European markets. Mexico’s president was expected to announce her response to the tariffs President Trump ordered on her country, as well as on Canada and China.`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs
-
 **Man City close to agreement to sign Porto's Gonzalez**\
 `The 23-year-old is capable of playing in both the No. 6 and No. 8 positions.`\
 https://nytimes.com/athletic/6109138/2025/02/03/man-city-transfers-nico-gonzalez-agreement/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6109138/2025/02/03/man-city-transfers-nico-gonzalez
 **Football is 11 versus 11. On Saturday, a Dutch team played with 12 and it has caused chaos**\
 `Heerenveen faced a team of 12 for part of a 2-2 draw against Fortuna Sittard - and now the Dutch FA is asking IFAB what to do about it...`\
 https://nytimes.com/athletic/6107069/2025/02/03/fortuna-12-players-van-persie-heerenveen-ifab/
+
+**How Arsenal's unconventional use of Rice, Lewis-Skelly and Trossard helped them beat Man City**\
+`Arsenal have often been overly-reliant on their right side combinations but against City it was interchanges on the left that proved crucial`\
+https://nytimes.com/athletic/6108674/2025/02/03/arsenal-tactics-manchester-city-rice-lewis-skelly-trossard/
 
