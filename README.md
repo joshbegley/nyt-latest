@@ -11,7 +11,7 @@ https://nytimes.com/2025/02/03/briefing/mexico-tariff-delay-iran-weapon-moscow-b
 https://nytimes.com/2025/02/03/us/politics/usaid-foreign-aid-musk.html
 
 **Texans hire Rams TE coach Nick Caley as OC**\
-`Caley replaces Bobby Slowik and will inherit a group led by quarterback C.J. Stroud and wide receiver Nico Collins. `\
+`Caley replaces Bobby Slowik and takes over an offense led by quarterback C.J. Stroud and wide receiver Nico Collins. `\
 https://nytimes.com/athletic/6110383/2025/02/03/texans-nick-caley-hire-offensive-coordinator/
 
 **Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
