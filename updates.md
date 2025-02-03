@@ -1,3 +1,15 @@
+**DHS: No specific credible terrorist threats surrounding Super Bowl**\
+`NFL head of security Cathy Lanier said the league has reviewed the Jan.1 incident and security surrounding a terrorist attack.`\
+https://nytimes.com/athletic/6109729/2025/02/03/super-bowl-lix-safety-new-orleans-nfl-security/
+
+**Five Highlights From the Sundance Film Festival**\
+`The movies and performances most likely to make an impact in the year ahead, including an ode to 1970s New York and Josh O’Connor going full cowboy.`\
+https://nytimes.com/2025/02/03/t-magazine/sundance-film-festival-standout-moments-movies-performances.html
+
+**F.D.A. Approves Studies of Pig Organ Transplants for Kidney Patients**\
+`The research offers hope to tens of thousands of patients with kidney failure who are on a long waiting list for an organ transplant.`\
+https://nytimes.com/2025/02/03/health/pig-kidney-transplants-clinical-trials.html
+
 **Heat Today: Bam Adebayo fills the necessary voids for the Heat, whatever they may be**\
 `Forget scoring — the two-time Olympic gold medalist continues to do a bit of everything for his team. `\
 https://nytimes.com/athletic/6109626/2025/02/03/bam-adebayo-stats-miami-heat-nba/
