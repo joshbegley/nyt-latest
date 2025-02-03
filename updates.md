@@ -1,3 +1,11 @@
+**Trump Calls for Wealth Fund in Executive Order**\
+`It is unclear how the United States, which already spends more money than it collects in taxes, would finance such a fund.`\
+https://nytimes.com/2025/02/03/us/politics/sovereign-wealth-fund-trump.html
+
+**Mathys Tel to Tottenham Hotspur: The Athletic 500 transfer ratings**\
+`Tottenham Hotspur have signed Mathys Tel on loan from Bayern Munich until the end of the season`\
+https://nytimes.com/athletic/6109657/2025/02/03/mathys-tel-tottenham-hotspur-transfer-analysis/
+
 **State Farm Seeks an Urgent Increase in California Rates After Fires**\
 `The company asked state regulators to approve a 22 percent increase on average.`\
 https://nytimes.com/2025/02/03/us/state-farm-california-rate-increase.html
