@@ -1,3 +1,7 @@
+**The Grammy Looks Bring a Welcome Hit of Joy**\
+`Sometimes a red carpet is just a marketing opportunity, but sometimes it’s a statement of faith.`\
+https://nytimes.com/2025/02/03/style/grammys-red-carpet.html
+
 **NBA Rewind: Luka Dončić trade is just the latest superstar coup by the Lakers**\
 `The Dončić deal was stunning in every way — except maybe his destination. What else is in store before Thursday's trade deadline?`\
 https://nytimes.com/athletic/6102302/2025/02/03/nba-rewind-luka-doncic-trade-deadline-lakers/
