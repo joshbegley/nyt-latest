@@ -1,3 +1,11 @@
+**Aircraft Wreckage Is Recovered From Potomac River**\
+`Recovery teams worked to pull parts of an American Airlines jet and a U.S. Army helicopter out of the Potomac River on Monday.`\
+https://nytimes.com/video/us/100000009966691/aircraft-wreckage-is-recovered-from-potomac-river.html
+
+**Mexico striker Gimenez completes Milan move**\
+`Gimenez has signed a deal with Milan until 2029 having scored 16 goals in 19 games for Feyenoord this season.`\
+https://nytimes.com/athletic/6109395/2025/02/03/santiago-gimenez-transfer-milan/
+
 **There’s No Such Thing as Too Much Garlic**\
 `At least not in roasted cauliflower soup, garlic bread, brussels sprouts Caesar salad and Eric Kim’s braised chicken with 20 (!) cloves of garlic.`\
 https://nytimes.com/2025/02/03/dining/garlic-chicken-recipe.html
