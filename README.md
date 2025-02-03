@@ -1,3 +1,15 @@
+**There’s No Such Thing as Too Much Garlic**\
+`At least not in roasted cauliflower soup, garlic bread, brussels sprouts Caesar salad and Eric Kim’s braised chicken with 20 (!) cloves of garlic.`\
+https://nytimes.com/2025/02/03/dining/garlic-chicken-recipe.html
+
+**Aid Agency Staff Told to Stay Home After Musk Says Trump Wants to Close It**\
+`The U.S. Agency for International Development is in crisis as workers report being locked out, adding to the growing sense that President Trump will dismantle the government’s lead humanitarian aid agency.`\
+https://nytimes.com/2025/02/03/us/politics/usaid-trump-musk.html
+
+**Jalen Duren shows increased offensive aggression in Pistons win**\
+`"We're just building, we're still waking people up," Jalen Duren said after helping the Pistons defeat the Bulls. `\
+https://nytimes.com/athletic/6108159/2025/02/03/jalen-duren-aggression-pistons-bullls/
+
 **Greenberg: Zach LaVine era is over, but the Bulls' malaise continues**\
 `The Bulls have moved LaVine to Sacramento, but what's next for Chicago?`\
 https://nytimes.com/athletic/6109176/2025/02/03/zach-lavine-bulls-nba-rebuild/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6108459/2025/02/03/cowboys-today-herschel-walker-tr
 **Standoff at Ukrainian Agency Disrupts Arms Contracts, Suppliers Say**\
 `Ukrainian defense companies say they cannot sign new contracts or receive payment — potentially jeopardizing future supplies to already struggling troops.`\
 https://nytimes.com/2025/02/03/world/europe/ukraine-arms-contracts-payment-disruptions-army.html
-
-**Watch: Does the Luka Dončić deal signal the end of the player empowerment era?**\
-`The Dallas Mavericks shocked the entire NBA by trading Luka Dončić to the Los Angeles Lakers, The Athletic NBA Daily discuss the trade.`\
-https://nytimes.com/athletic/6108565/2025/02/03/nba-daily-doncic-laker-empowerment-era/
-
-**Kings potential trade targets: 8 forwards who could help a scuffling offense**\
-`The Kings' offense cratered in January. Is it time for GM Rob Blake to bring in some outside help for the playoff push?`\
-https://nytimes.com/athletic/6108514/2025/02/03/la-kings-trade-targets-forwards-nhl/
-
-**Lowetide: Ranking Oilers GM Stan Bowman's best moves in his first 6 months**\
-`Bowman's first big transaction of his inaugural season in Edmonton probably comes at the deadline.`\
-https://nytimes.com/athletic/6107228/2025/02/03/oilers-transactions-stan-bowman-ranking/
 
