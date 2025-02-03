@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6108028/2025/02/02/canucks-chytil-marcus-pettersson
 `Her Post Malone duet “Fortnight” fell to Kendrick Lamar’s “Not Like Us,” which means the superstar still has yet to win one of the Grammys’ top prizes.`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/taylor-swift-loses-record-of-the-year-grammys
 
-**Kendrick Lamar’s ‘Not Like Us’ Wins Record of the Year**\
-`The star M.C.’s Drake diss is the second rap song to win this category, one of the Grammys’ top honors.`\
+**Kendrick Lamar’s ‘Not Like Us’ Wins Record and Song of the Year**\
+`The star M.C.’s Drake diss is the second rap song to win these categories, two of the Grammys’ top honors.`\
 https://nytimes.com/2025/02/02/arts/music/kendrick-lamar-not-like-us-record-of-the-year.html
 
 **Stevie Wonder and Janelle Monáe lead a tribute to Quincy Jones.**\
