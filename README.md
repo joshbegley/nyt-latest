@@ -1,3 +1,15 @@
+**Watch: Does the Luka Dončić deal signal the end of the player empowerment era?**\
+`The Dallas Mavericks shocked the entire NBA by trading Luka Dončić to the Los Angeles Lakers, The Athletic NBA Daily discuss the trade.`\
+https://nytimes.com/athletic/6108565/2025/02/03/nba-daily-doncic-laker-empowerment-era/
+
+**Kings potential trade targets: 8 forwards who could help a scuffling offense**\
+`The Kings' offense cratered in January. Is it time for GM Rob Blake to bring in some outside help for the playoff push?`\
+https://nytimes.com/athletic/6108514/2025/02/03/la-kings-trade-targets-forwards-nhl/
+
+**Lowetide: Ranking Oilers GM Stan Bowman's best moves in his first 6 months**\
+`Bowman's first big transaction of his inaugural season in Edmonton probably comes at the deadline.`\
+https://nytimes.com/athletic/6107228/2025/02/03/oilers-transactions-stan-bowman-ranking/
+
 **Milan reach verbal agreement for Joao Felix loan from Chelsea**\
 `Milan are set to cover the 25-year-old’s full salary as part of the straight loan deal, which will also include a loan fee package.`\
 https://nytimes.com/athletic/6094003/2025/02/03/joao-felix-chelsea-loan-milan/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/03/world/europe/pro-russia-leader-ukraine-killed-mos
 **Greece Prepares for Quake as Hundreds of Tremors Shake Islands**\
 `Emergency services were deployed in readiness and schools were closed after more than 200 temblors struck in the Aegean, near Santorini, within 48 hours.`\
 https://nytimes.com/2025/02/03/world/europe/greece-earthquake-islands-santorini.html
-
-**E.P.A. Tells More Than 1,000 They Could Be Fired ‘Immediately’**\
-`A spokeswoman for Lee Zeldin, the new head of the agency, said the goal was to create an “effective and efficient” federal work force.`\
-https://nytimes.com/2025/02/03/climate/trump-epa-workers-zeldin.html
-
-**Mercedes streamliner driven by F1 great Manuel Fangio sells for record $52m**\
-`The Mercedes streamliner was driven by F1 greats Juan Manuel Fangio and Sterling Moss in 1955`\
-https://nytimes.com/athletic/6108632/2025/02/03/mercedes-streamliner-f1-auction-52m-record-fangio-moss/
-
-**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
-`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
-https://nytimes.com/athletic/6100448/2025/02/03/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
 
