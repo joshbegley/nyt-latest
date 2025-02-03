@@ -1,3 +1,23 @@
+**Arsenal's humiliation of Man City after years of torment was more than revenge. It was glorious**\
+`After many near-misses, agonising late goals and simmering ill-feeling, Mikel Arteta's side's thrashing of the champions felt truly special`\
+https://nytimes.com/athletic/6107516/2025/02/03/arsenal-man-city-revenge/
+
+**It is time for Palace to give Mateta what he so richly deserves - a new contract**\
+`After his brace at Old Trafford to beat Manchester United, it is more apparent than ever that the club need to offer the forward fresh terms`\
+https://nytimes.com/athletic/6096406/2025/02/03/mateta-palace-new-contract/
+
+**Newcastle gamble on not gambling in transfer market**\
+`Newcastle have previously decided to twist in the transfer market, but sticking, as they are now, also comes with peril`\
+https://nytimes.com/athletic/6105459/2025/02/03/newcastle-gamble-on-not-gambling-in-transfer-market/
+
+**Mainoo as a false nine? A strange experiment that highlighted Man Utd's flaws**\
+`The midfielder's selection up front raised eyebrows. What does it say about Ruben Amorim's faith in Rasmus Hojlund and Joshua Zirkzee?`\
+https://nytimes.com/athletic/6107784/2025/02/03/kobbie-mainoo-false-nine-man-utd/
+
+**The Briefing: Arsenal 'humble' City, Amorim's cry for help and... hello, deadline day**\
+`The standout game of the Premier League weekend delivered, but what did this round of matches mean for Monday's transfer deadline?`\
+https://nytimes.com/athletic/6107458/2025/02/03/the-briefing-arsenal-man-city-amorim-deadline-day/
+
 **Monday Briefing**\
 `The prospect of a North American trade war.`\
 https://nytimes.com/2025/02/03/briefing/trade-war-israel-europe.html
