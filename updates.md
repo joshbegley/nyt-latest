@@ -1,3 +1,7 @@
+**Milan undone at the last and left lamenting a result that sums up their season**\
+`Inter left it late to reimpose some order on the Derby della Madonnina but do not be deceived: a chasm has opened up between these two teams`\
+https://nytimes.com/athletic/6107856/2025/02/03/milan-inter-madonnina-inzaghi-conceicao-vrij/
+
 **Word of the Day: mollify**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/03/learning/word-of-the-day-mollify.html
