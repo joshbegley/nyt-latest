@@ -1,3 +1,11 @@
+**Beyoncé Announces Cowboy Carter Tour**\
+`The pop superstar, whose latest release, “Cowboy Carter,” won album of the year at the Grammys on Sunday night, will perform 22 dates starting in April.`\
+https://nytimes.com/2025/02/03/arts/music/beyonce-cowboy-carter-tour.html
+
+**Blue Jackets top goal scorer Kirill Marchenko suffers broken jaw in loss to Stars: Source**\
+`It's the latest big blow for a Blue Jackets lineup that has been riddled with injuries all season.`\
+https://nytimes.com/athletic/6108983/2025/02/03/blue-jackets-kirill-marchenko-injury-stars-nhl/
+
 **Tennis Briefing: Jannik Sinner is a YouTuber and the Davis Cup brings drama**\
 `The world No. 1 joined the tennis vloggers as an innocuous weekend of Davis Cup qualifiers ignited.`\
 https://nytimes.com/athletic/6107532/2025/02/03/jannik-sinner-davis-cup-halep-tennis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/03/world/europe/france-metoo-ruggia.html
 **Marcus Rashford to Aston Villa: The Athletic 500 transfer ratings**\
 `We rate England forward Rashford's loan move to Villa Park as part of the Transfer 500 series`\
 https://nytimes.com/athletic/6108721/2025/02/03/marcus-rashford-to-aston-villa-the-athletic-500-transfer-ratings/
-
-**Weekend NHL rankings: Huge cap news, more blockbuster trades and oh yeah, games**\
-`Off-ice moves continue to shake up the NHL with a second straight Friday blockbuster and an upcoming rise to the salary cap.`\
-https://nytimes.com/athletic/6107868/2025/02/03/nhl-weekend-rankings-jt-miller-trade-salary-cap/
-
-**FPL: What we learned from Gameweek 24 - it's time to plan for Double Gameweek 25**\
-`Abdul Rehman analyses the main talking points from Gameweek 24 (so far) in Fantasy Premier League`\
-https://nytimes.com/athletic/6107640/2025/02/03/fantasy-premier-league-gameweek-24-alexander-arnold-watkins-isak/
 
