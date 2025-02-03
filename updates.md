@@ -1,3 +1,7 @@
+**A Looming Trade War**\
+`We explain the potential impacts of Trump’s tariffs.`\
+https://nytimes.com/2025/02/03/briefing/a-looming-trade-war.html
+
 **European Leaders on Alert After Trump Says E.U. Will ‘Definitely’ Face Tariffs**\
 `President Trump’s threats are carrying more weight after his moves against Canada, Mexico and China. Europe has been preparing for the possibility of a trade war for months.`\
 https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html

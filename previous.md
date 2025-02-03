@@ -1,3 +1,7 @@
+**A Looming Trade War**\
+`We explain the potential impacts of Trump’s tariffs.`\
+https://nytimes.com/2025/02/03/briefing/a-looming-trade-war.html
+
 **The Athletic FC: Arsenal vs City beef, transfer latest, Yamal genius, 12 players on a team**\
 `In today's TAFC: We analyse the growing grudge between Arsenal and Manchester City, bring you the transfer latest, and praise Yamal's genius`\
 https://nytimes.com/athletic/6108667/2025/02/03/arsenal-city-beef-transfer-dealine-day-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087883/2025/02/03/penguins-nhl-trade-deadline-tier
 **Best offseason ever? Where Eagles (and Chiefs) rank among Super Bowl teams: Sando's Pick Six**\
 `The Eagles have always spent under Jeffrey Lurie, but this season was different. Plus, why time might not be on Patrick Mahomes' side.`\
 https://nytimes.com/athletic/6090156/2025/02/03/eagles-chiefs-super-bowl-howie-roseman/
-
-**Red Wings are in a playoff spot: 5 thoughts as win streak hits 6 games**\
-`With an overtime win in Vancouver and a successful western Canada swing, the Red Wings are firmly back in the Eastern Conference race.`\
-https://nytimes.com/athletic/6108341/2025/02/03/red-wings-playoff-spot-vancouver-canucks/
 
