@@ -1,3 +1,15 @@
+**Jeffries Works With N.Y. Democrats to Weaken G.O.P. Control of the House**\
+`New York lawmakers may give Gov. Kathy Hochul more time to schedule special elections, a move backed by the House Democratic leader that could keep a key seat vacant for months.`\
+https://nytimes.com/2025/02/03/nyregion/jeffries-stefanik-house-ny.html
+
+**Nico Gonzalez to Manchester City: The Athletic 500 transfer ratings**\
+`Manchester City have confirmed the permanent signing of Nico Gonzalez from Porto`\
+https://nytimes.com/athletic/6110929/2025/02/03/nico-gonzalez-manchester-city-transfer-analysis/
+
+**Mexico Managed to Stave off Trump’s Tariffs. Now What?**\
+`Mexico managed to temporarily avoid President Trump’s threatened 25 percent tariffs by making promises on border security, but it is unclear if the country can fulfill its pledge.`\
+https://nytimes.com/2025/02/03/world/americas/mexico-tariffs-trump.html
+
 **Top ‘60 Minutes’ Producer Says He Will Not Apologize Over Trump Lawsuit**\
 `Bill Owens, the show’s executive producer, addressed his staff as CBS’s parent company, Paramount, pursues a legal settlement with the president.`\
 https://nytimes.com/2025/02/03/business/media/cbs-news-60-minutes-trump.html
