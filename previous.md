@@ -1,3 +1,7 @@
+**Here’s what Mexico and Canada have agreed to do to delay U.S. tariffs.**\
+`By Emiliano Rodríguez Mega and Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/heres-what-mexico-and-canada-have-agreed-to-do-to-delay-us-tariffs
+
 **Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
 `Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/6111087/2025/02/03/nhl-mailbag-4-nations-trade-rules-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/musk-federal-government.html
 **Trump Calls for Wealth Fund in Executive Order**\
 `It is unclear how the United States, which already spends more money than it collects in taxes, would finance such a fund.`\
 https://nytimes.com/2025/02/03/us/politics/sovereign-wealth-fund-trump.html
-
-**Mathys Tel to Tottenham Hotspur: The Athletic 500 transfer ratings**\
-`Tottenham Hotspur have signed Mathys Tel on loan from Bayern Munich until the end of the season`\
-https://nytimes.com/athletic/6109657/2025/02/03/mathys-tel-tottenham-hotspur-transfer-analysis/
 
