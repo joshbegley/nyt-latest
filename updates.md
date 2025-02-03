@@ -1,3 +1,7 @@
+**Cummings set to stay at Celtic in winter window as fresh West Ham bid rejected**\
+`Daniel Cummings is expected to remain at Celtic in the winter transfer window after the Scottish champions rejected an improved offer from West Ham United.`\
+https://nytimes.com/athletic/6108743/2025/02/03/daniel-cummings-celtic-west-ham-transfer/
+
 **Trump Intensifies Threats to Hit Europe With Tariffs**\
 `President Trump said late Sunday that European nations would “definitely” be hit with tariffs. His moves against Canada and Mexico have European officials on alert.`\
 https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html

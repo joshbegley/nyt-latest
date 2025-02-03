@@ -1,3 +1,7 @@
+**Cummings set to stay at Celtic in winter window as fresh West Ham bid rejected**\
+`Daniel Cummings is expected to remain at Celtic in the winter transfer window after the Scottish champions rejected an improved offer from West Ham United.`\
+https://nytimes.com/athletic/6108743/2025/02/03/daniel-cummings-celtic-west-ham-transfer/
+
 **Trump Intensifies Threats to Hit Europe With Tariffs**\
 `President Trump said late Sunday that European nations would “definitely” be hit with tariffs. His moves against Canada and Mexico have European officials on alert.`\
 https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108341/2025/02/03/red-wings-playoff-spot-vancouver
 **Wild insider: How the rising salary cap could affect Kirill Kaprizov, Marco Rossi**\
 `Bill Guerin said it's too soon to know exactly the impact the rising cap will have, but what could it mean for the Wild's spending?`\
 https://nytimes.com/athletic/6107250/2025/02/03/wild-nhl-salary-cap-kaprizov-rossi/
-
-**China Challenges Silicon Valley for A.I. Dominance**\
-`DeepSeek, a Chinese start-up with a new A.I. model, threatens to upend the world of artificial intelligence.`\
-https://nytimes.com/2025/02/03/podcasts/the-daily/china-ai-deepseek.html
 
