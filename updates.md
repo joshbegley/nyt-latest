@@ -1,3 +1,7 @@
+**Man City complete Nico Gonzalez signing from Porto**\
+`Manchester City have completed the signing of Nico Gonzalez from Porto.`\
+https://nytimes.com/athletic/6108862/2025/02/03/nico-gonzalez-manchester-city-transfer-porto/
+
 **Willian rejoining Fulham on deal until end of season**\
 `Willian previously scored 10 goals in 67 games over a two-year spell at the west London club.`\
 https://nytimes.com/athletic/6083805/2025/02/03/willian-fulham-transfer-contract/
