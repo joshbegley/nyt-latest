@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6107003/2025/02/03/chelsea-nico-oreilly-transfer-ma
 
 **Trump’s Trade Move Could Increase Costs for Many Online Goods**\
 `President Trump’s tariff measures included a significant change to trade rules that could increase costs for many products bought online, including on Amazon, Shein and Temu.`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-loophole-china
+https://nytimes.com/2025/02/03/us/politics/trump-tariffs-shein-temu-loophole.html
 
 **Aircraft Wreckage Is Recovered From Potomac River**\
 `Recovery teams worked to pull parts of an American Airlines jet and a U.S. Army helicopter out of the Potomac River on Monday.`\

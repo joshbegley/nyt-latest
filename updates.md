@@ -1,3 +1,7 @@
+**Trump’s Trade Move Could Increase Costs for Many Online Goods**\
+`President Trump’s tariff measures included a significant change to trade rules that could increase costs for many products bought online, including on Amazon, Shein and Temu.`\
+https://nytimes.com/2025/02/03/us/politics/trump-tariffs-shein-temu-loophole.html
+
 **Neuer extends Bayern contract through to 2026, beyond 40th birthday**\
 `Manuel Neuer has signed a one-year contract extension at Bayern Munich through to 2026.`\
 https://nytimes.com/athletic/6109429/2025/02/03/manuel-neuer-bayern-munich-contract-length-new/
