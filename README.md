@@ -7,7 +7,7 @@ https://nytimes.com/video/world/americas/100000009967057/trump-mexico-tariffs.ht
 https://nytimes.com/athletic/6063614/2025/02/03/axel-disasi-chelsea-transfer/
 
 **After Tariff Fight With Canada and Mexico, Trump’s Next Target Is Europe**\
-`The president’s threats to slap duties on goods imported from the European Union is part of a pattern of directing the harshest penalties at the United States’ closest allies.`\
+`The president’s threats to slap duties on goods imported from the European Union are part of a pattern of directing the harshest penalties at the United States’ closest allies.`\
 https://nytimes.com/2025/02/03/business/economy/trump-tariffs-european-union.html
 
 **Jake Oettinger on Jonathan Quick's legacy, J.T. Miller trade ripples and more: Rangers observations**\
