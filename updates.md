@@ -1,3 +1,7 @@
+**Crystal Palace reject Guehi offer from Tottenham**\
+`Spurs and other clubs are expected to try again for the England international in the summer.`\
+https://nytimes.com/athletic/6043881/2025/02/03/marc-guehi-tottenham-transfer-palace/
+
 **Bengals' Trey Hendrickson quandary: Will NFL's sack champ be traded, extended?**\
 `The All-Pro's stellar performance, his age and the need to pay expensive offensive stars make for a complicated situation in Cincinnati.`\
 https://nytimes.com/athletic/6103891/2025/02/03/bengals-trey-hendrickson-future/
