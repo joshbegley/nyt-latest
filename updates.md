@@ -1,3 +1,23 @@
+**WSL Briefing: Advantage Man United over City, a team who can defend versus one who cannot**\
+`Despite United’s manager wanting his team to go and attack, their success this season has been predicated largely on defensive solidity`\
+https://nytimes.com/athletic/6107975/2025/02/03/manchester-united-city-chelsea-bompastor-skinner-wsl-briefing/
+
+**How N.F.L.’s Saints Helped Catholic Church Address a Sex-Abuse Scandal**\
+`A trove of emails shows the team’s leadership using their influence in New Orleans to aid the archdiocese, including writing talking points for media interviews.`\
+https://nytimes.com/2025/02/03/business/new-orleans-saints-catholic-church-abuse.html
+
+**What boxes do the Jets need to check at the trade deadline? Catching up with Kevin Cheveldayoff**\
+`The Jets have the look — and place in the standings — of a true Cup contender. What are they looking to do to bolster their run?`\
+https://nytimes.com/athletic/6107499/2025/02/03/jets-trade-deadline-plans-cheveldayoff/
+
+**Who Will Govern Postwar Gaza? Four Competing Models Are Emerging.**\
+`Hamas still controls most of the enclave, but Israel holds some key areas. International oversight could also be expanded, while the Palestinian Authority has presented itself as another alternative.`\
+https://nytimes.com/2025/02/03/world/middleeast/gaza-post-war-israel-hamas-palestinian-authority.html
+
+**PWHL Power Rankings: Victoire surge to the top, debating Fleet vs. Sceptres**\
+`With no games this week due to the Rivalry Series, let's check in on how the league evolved over January.`\
+https://nytimes.com/athletic/6108121/2025/02/03/pwhl-power-rankings-january-victoire-fleet-sceptres/
+
 **A Looming Trade War**\
 `We explain the potential impacts of Trump’s tariffs.`\
 https://nytimes.com/2025/02/03/briefing/a-looming-trade-war.html
