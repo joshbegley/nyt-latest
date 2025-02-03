@@ -1,3 +1,7 @@
+**Kendrick Lamar’s ‘Not Like Us’ Wins Record and Song of the Year**\
+`The star M.C.’s Drake diss is the second rap song to win these categories, two of the Grammys’ top honors.`\
+https://nytimes.com/2025/02/02/arts/music/kendrick-lamar-not-like-us-record-of-the-year.html
+
 **Beyoncé could finally get her album of the year win.**\
 `By Hank Shteamer and Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/beyonce-album-of-the-year-grammys-2025
