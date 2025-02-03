@@ -1,3 +1,15 @@
+**There’s No Such Thing as Too Much Garlic**\
+`At least not in roasted cauliflower soup, garlic bread, brussels sprouts Caesar salad and Eric Kim’s braised chicken with 20 (!) cloves of garlic.`\
+https://nytimes.com/2025/02/03/dining/garlic-chicken-recipe.html
+
+**Aid Agency Staff Told to Stay Home After Musk Says Trump Wants to Close It**\
+`The U.S. Agency for International Development is in crisis as workers report being locked out, adding to the growing sense that President Trump will dismantle the government’s lead humanitarian aid agency.`\
+https://nytimes.com/2025/02/03/us/politics/usaid-trump-musk.html
+
+**Jalen Duren shows increased offensive aggression in Pistons win**\
+`"We're just building, we're still waking people up," Jalen Duren said after helping the Pistons defeat the Bulls. `\
+https://nytimes.com/athletic/6108159/2025/02/03/jalen-duren-aggression-pistons-bullls/
+
 **Greenberg: Zach LaVine era is over, but the Bulls' malaise continues**\
 `The Bulls have moved LaVine to Sacramento, but what's next for Chicago?`\
 https://nytimes.com/athletic/6109176/2025/02/03/zach-lavine-bulls-nba-rebuild/
