@@ -1,3 +1,15 @@
+**Taylor Swift’s record of the year drought continues.**\
+`Her Post Malone duet “Fortnight” fell to Kendrick Lamar’s “Not Like Us,” which means the superstar still has yet to win one of the Grammys’ top prizes.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/taylor-swift-loses-record-of-the-year-grammys
+
+**Kendrick Lamar’s ‘Not Like Us’ wins record of the year.**\
+`The star M.C.’s Drake diss is the second rap song to win this category, one of the Grammys’ top honors.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamars-not-like-us-wins-record-of-the-year
+
+**Stevie Wonder and Janelle Monáe lead a tribute to Quincy Jones.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/stevie-wonder-and-janelle-monae-lead-a-tribute-to-quincy-jones
+
 **Blue Jackets lose two crucial players, fume over officiating in loss to Dallas**\
 `Columbus' three-game win streak came to an end against the Stars with several Blue Jackets' status in question after the game.`\
 https://nytimes.com/athletic/6108178/2025/02/02/blue-jackets-injuries-evason-officiating-stars/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/02/world/americas/marco-rubio-panama.html
 **Nebraska upsets Oregon 77-71 for fourth win over top-25 team**\
 `The Huskers pulled off their second straight win over a ranked team Sunday after upsetting No. 18 Illinois just three days ago.`\
 https://nytimes.com/athletic/6108235/2025/02/02/nebraska-oregon-mens-basketball-results/
-
-**Relief efforts after the California wildfires are woven into the ceremony.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/relief-efforts-after-the-california-wildfires-are-woven-into-the-ceremony
-
-**Luka Dončić to Lakers is 'shocking' to Mavericks, but they have plans to push forward**\
-`"You don't even have the emotions to describe it," Quentin Grimes said of Dončić, who was traded Saturday.`\
-https://nytimes.com/athletic/6108035/2025/02/02/luka-doncic-mavericks-lakers-nba-trade/
-
-**Chappell Roan calls out record labels after Grammy win.**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-calls-out-record-labels-after-winning-best-new-artist
 

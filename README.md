@@ -1,3 +1,7 @@
+**How Filip Chytil and Marcus Pettersson impressed in Canucks debuts: 3 takeaways**\
+`The Canucks fell to Detroit in overtime, but three debutants made excellent first impressions in Vancouver.`\
+https://nytimes.com/athletic/6108028/2025/02/02/canucks-chytil-marcus-pettersson-debuts-red-wings/
+
 **Taylor Swift’s record of the year drought continues.**\
 `Her Post Malone duet “Fortnight” fell to Kendrick Lamar’s “Not Like Us,” which means the superstar still has yet to win one of the Grammys’ top prizes.`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/taylor-swift-loses-record-of-the-year-grammys
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6107451/2025/02/02/luka-doncic-lakers-celebrities-s
 **In Panama, Rubio Says China Threatens Canal, Demanding ‘Immediate’ Action**\
 `Secretary of State Marco Rubio told the country’s president that the United States could take unspecified steps to “protect its rights,” according to the State Department.`\
 https://nytimes.com/2025/02/02/world/americas/marco-rubio-panama.html
-
-**Nebraska upsets Oregon 77-71 for fourth win over top-25 team**\
-`The Huskers pulled off their second straight win over a ranked team Sunday after upsetting No. 18 Illinois just three days ago.`\
-https://nytimes.com/athletic/6108235/2025/02/02/nebraska-oregon-mens-basketball-results/
 

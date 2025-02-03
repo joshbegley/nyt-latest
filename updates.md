@@ -1,3 +1,15 @@
+**Taylor Swift’s record of the year drought continues.**\
+`Her Post Malone duet “Fortnight” fell to Kendrick Lamar’s “Not Like Us,” which means the superstar still has yet to win one of the Grammys’ top prizes.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/taylor-swift-loses-record-of-the-year-grammys
+
+**Kendrick Lamar’s ‘Not Like Us’ wins record of the year.**\
+`The star M.C.’s Drake diss is the second rap song to win this category, one of the Grammys’ top honors.`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamars-not-like-us-wins-record-of-the-year
+
+**Stevie Wonder and Janelle Monáe lead a tribute to Quincy Jones.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/stevie-wonder-and-janelle-monae-lead-a-tribute-to-quincy-jones
+
 **Blue Jackets lose two crucial players, fume over officiating in loss to Dallas**\
 `Columbus' three-game win streak came to an end against the Stars with several Blue Jackets' status in question after the game.`\
 https://nytimes.com/athletic/6108178/2025/02/02/blue-jackets-injuries-evason-officiating-stars/
