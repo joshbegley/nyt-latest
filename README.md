@@ -1,3 +1,11 @@
+**Chappell Roan brings her ‘Pink Pony Club’ to the Grammy stage.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-brings-her-pink-pony-club-to-the-grammy-stage
+
+**Beyoncé’s ‘Cowboy Carter’ Wins Grammy for Best Country Album**\
+`Beyoncé, who was nominated for 11 awards, also won for best country duo/group performance for the song “II Most Wanted.”`\
+https://nytimes.com/2025/02/02/arts/music/beyonce-best-country-album-grammys-2025.html
+
 **Quote of the Day: Forget Pokémon, Here’s the New Big Small Thing**\
 `Quotation of the Day for Sunday, February 2, 2025.`\
 https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres-the-new-big-small-thing.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/billie-eilish-2025-grammys
 **Rope-Skipping Pro Uses Jump Rope in Icy Pond Rescue**\
 `David Fisher, a professional rope jumper and performer, was honored by Westfield, Ind., on Monday after using a jump rope to rescue a teenager who had fallen through an icy pond.`\
 https://nytimes.com/2025/02/02/us/jump-rope-rescue-indiana-pond.html
-
-**Taylor Swift Hasn’t Won Record or Song of the Year Grammys. Yet.**\
-`Despite earning 14 Grammys to date, the singer-songwriter has struck out in two big categories.`\
-https://nytimes.com/2025/02/02/arts/music/taylor-swift-grammy-awards.html
-
-**Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
-`Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
-https://nytimes.com/2025/03/02/world/americas/trump-tariffs-windsor-canada.html
 
