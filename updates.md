@@ -1,3 +1,11 @@
+**Surprised by the Luka-AD trade? NBA executives were, too**\
+`"Shocking" and "stunning" were just a couple of ways league execs described the deal to The Athletic on Sunday.`\
+https://nytimes.com/athletic/6106257/2025/02/02/luka-doncic-anthony-davis-trade-nba-executives/
+
+**Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
+`Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
+https://nytimes.com/2025/03/02/us/politics/trump-tariffs-windsor-canada.html
+
 **'Speechless': Kristaps Porziņģis, Celtics react to the Luka Dončić trade to Lakers**\
 `"If Luka can get traded, then anybody can," Celtics forward and Dallas native Jordan Walsh said.`\
 https://nytimes.com/athletic/6107893/2025/02/02/celtics-kristaps-porzingis-luka-doncic-trade-lakers/
