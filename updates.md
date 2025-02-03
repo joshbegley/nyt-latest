@@ -1,3 +1,7 @@
+**Mexico Managed to Stave Off Trump’s Tariffs. Now What?**\
+`Mexico managed to temporarily avoid President Trump’s threatened 25 percent tariffs by making promises on border security, but it is unclear if the country can fulfill its pledge.`\
+https://nytimes.com/2025/02/03/world/americas/mexico-tariffs-trump.html
+
 **Everton sign Alcaraz from Flamengo**\
 `The loan move also contains an obligation to buy providing Alcaraz, 22, makes an undisclosed number of league starts.`\
 https://nytimes.com/athletic/6108547/2025/02/03/carlos-alcaraz-everton-transfer/
