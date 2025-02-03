@@ -1,3 +1,7 @@
+**French Court Convicts Film Director in Big #MeToo Case**\
+`Christophe Ruggia was accused of sexually assaulting the actress Adèle Haenel when she was a minor.`\
+https://nytimes.com/2025/02/03/world/europe/france-metoo-ruggia.html
+
 **Marcus Rashford to Aston Villa: The Athletic 500 transfer ratings**\
 `We rate Marcus Rashford's move to Villa Park as part of the Transfer 500 series`\
 https://nytimes.com/athletic/6108721/2025/02/03/marcus-rashford-to-aston-villa-the-athletic-500-transfer-ratings/

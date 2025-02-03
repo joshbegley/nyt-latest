@@ -1,3 +1,7 @@
+**French Court Convicts Film Director in Big #MeToo Case**\
+`Christophe Ruggia was accused of sexually assaulting the actress Adèle Haenel when she was a minor.`\
+https://nytimes.com/2025/02/03/world/europe/france-metoo-ruggia.html
+
 **Marcus Rashford to Aston Villa: The Athletic 500 transfer ratings**\
 `We rate Marcus Rashford's move to Villa Park as part of the Transfer 500 series`\
 https://nytimes.com/athletic/6108721/2025/02/03/marcus-rashford-to-aston-villa-the-athletic-500-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6061319/2025/02/03/chelsea-transfers-nkunku-felix/
 **WSL Briefing: Advantage Man United over City, a team who can defend versus one who cannot**\
 `Despite United’s manager wanting his team to go and attack, their success this season has been predicated largely on defensive solidity`\
 https://nytimes.com/athletic/6107975/2025/02/03/manchester-united-city-chelsea-bompastor-skinner-wsl-briefing/
-
-**How N.F.L.’s Saints Helped Catholic Church Address a Sex-Abuse Scandal**\
-`A trove of emails shows the team’s leadership using their influence in New Orleans to aid the archdiocese, including writing talking points for media interviews.`\
-https://nytimes.com/2025/02/03/business/new-orleans-saints-catholic-church-abuse.html
 
