@@ -1,3 +1,11 @@
+**How Howie Roseman rebuilt the Eagles in two years to return to the Super Bowl**\
+`The task will once again be to beat the Chiefs.`\
+https://nytimes.com/athletic/6106626/2025/02/03/eagles-super-bowl-roster-howie-roseman-general-manager/
+
+**Sam Kerr repeatedly called police officer 'stupid and white', court told as trial begins**\
+`Chelsea striker Sam Kerr repeatedly called a police officer ‘f****** stupid and white’ inside a police station after a night out, a court heard on Monday.`\
+https://nytimes.com/athletic/6109467/2025/02/03/sam-kerr-trial/
+
 **Review: An Affectionate Golden Age Schpoof in ‘Schmigadoon!’**\
 `The Apple TV+ series comes to the stage of the Kennedy Center with its snark and affection for classic Broadway musicals intact.`\
 https://nytimes.com/2025/02/03/theater/schmigadoon-review-kennedy-center.html
