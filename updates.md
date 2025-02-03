@@ -1,3 +1,11 @@
+**Chappell Roan brings her ‘Pink Pony Club’ to the Grammy stage.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-brings-her-pink-pony-club-to-the-grammy-stage
+
+**Beyoncé’s ‘Cowboy Carter’ Wins Grammy for Best Country Album**\
+`Beyoncé, who was nominated for 11 awards, also won for best country duo/group performance for the song “II Most Wanted.”`\
+https://nytimes.com/2025/02/02/arts/music/beyonce-best-country-album-grammys-2025.html
+
 **De'Aaron Fox to Spurs, Zach LaVine to Kings in multi-team deal**\
 `The Kings only reached the postseason once during Fox's time with the franchise.`\
 https://nytimes.com/athletic/6086726/2025/02/02/deaaron-fox-zach-lavine-spurs-bulls-kings-trade-nba/
