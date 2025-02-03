@@ -1,10 +1,14 @@
+**Crews Lift First Wreckage From D.C. Plane Crash Out of Potomac**\
+`A crane began removing the fuselage of the American Airlines jet that crashed into the Potomac River last week after colliding with an Army helicopter.`\
+https://nytimes.com/2025/02/03/us/dc-plane-crash-potomac-river-wreckage.html
+
 **Mike Ekeler returning to Nebraska to coach Cornhuskers special teams: Source**\
 `Ekeler coached at Nebraska from 2008 through 2010 under Bo Pelini and was part of two teams that played in the Big 12 Championship Game.`\
 https://nytimes.com/athletic/6109339/2025/02/03/mike-ekeler-nebraska-specia-teams-matt-rhule/
 
 **Senate Intelligence Committee Will Vote on Tulsi Gabbard’s Nomination on Tuesday, Officials Say**\
 `Democrats are united in opposition to her serving as the director of national intelligence. A single Republican no vote would complicate her confirmation by the full Senate.`\
-https://nytimes.com/2025/02/03/us/politics/senate-intelligence-committee-will-vote-on-tulsi-gabbards-nomination-on-tuesday-officials-say.html
+https://nytimes.com/2025/02/03/us/politics/tulsi-gabbard-senate-intelligence-committee-vote.html
 
 **Cowboys Today: Why Herschel Walker trade doesn't come close in absurdity to Luka Dončiċ trade**\
 `The Cowboys got a lot for Herschel Walker in 1989. The Mavericks trading away Luka Dončiċ was big, too, but different in many ways.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6094003/2025/02/03/joao-felix-chelsea-loan-milan/
 **What's next for the Jazz after helping facilitate Mavericks-Lakers blockbuster?**\
 `Utah was involved in two trades on Saturday, including the Luka Dončić-Anthony Davis stunner. Will any Jazz vets be on the move now?`\
 https://nytimes.com/athletic/6108438/2025/02/03/whats-next-for-the-jazz-after-helping-facilitate-mavericks-lakers-blockbuster/
-
-**Spain’s Ex-Soccer Chief Goes on Trial Over Forced Kiss of Star Player**\
-`Luis Rubiales kissed Jennifer Hermoso on the lips after the country’s national team won the 2023 Women’s World Cup. On Monday, she testified against him and other former officials.`\
-https://nytimes.com/2025/02/03/world/europe/spain-soccer-rubiales-trial-hermoso-world-cup-kiss.html
 

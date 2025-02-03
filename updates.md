@@ -1,3 +1,11 @@
+**Crews Lift First Wreckage From D.C. Plane Crash Out of Potomac**\
+`A crane began removing the fuselage of the American Airlines jet that crashed into the Potomac River last week after colliding with an Army helicopter.`\
+https://nytimes.com/2025/02/03/us/dc-plane-crash-potomac-river-wreckage.html
+
+**Senate Intelligence Committee Will Vote on Tulsi Gabbard’s Nomination on Tuesday, Officials Say**\
+`Democrats are united in opposition to her serving as the director of national intelligence. A single Republican no vote would complicate her confirmation by the full Senate.`\
+https://nytimes.com/2025/02/03/us/politics/tulsi-gabbard-senate-intelligence-committee-vote.html
+
 **Mike Ekeler returning to Nebraska to coach Cornhuskers special teams: Source**\
 `Ekeler coached at Nebraska from 2008 through 2010 under Bo Pelini and was part of two teams that played in the Big 12 Championship Game.`\
 https://nytimes.com/athletic/6109339/2025/02/03/mike-ekeler-nebraska-specia-teams-matt-rhule/
