@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Huge cap news, more blockbuster trades and oh yeah, games**\
+`Off-ice moves continue to shake up the NHL with a second straight Friday blockbuster and an upcoming rise to the salary cap.`\
+https://nytimes.com/athletic/6107868/2025/02/03/nhl-weekend-rankings-jt-miller-trade-salary-cap/
+
 **Beyoncé Announces Cowboy Carter Tour**\
 `The pop superstar, whose latest release, “Cowboy Carter,” won album of the year at the Grammys on Sunday night, will perform 22 dates starting in April.`\
 https://nytimes.com/2025/02/03/arts/music/beyonce-cowboy-carter-tour.html
