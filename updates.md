@@ -1,3 +1,11 @@
+**Hochul Moves to Shield N.Y. Doctors Who Send Abortion Pills Out of State**\
+`Gov. Kathy Hochul signed a bill meant to protect medical practitioners who prescribe and send abortion pills to states that ban abortion.`\
+https://nytimes.com/2025/02/03/nyregion/ny-abortion-pills-hochul-law.html
+
+**Iowa State at Kansas men's basketball: How to watch, odds after Jayhawks' recent stunners**\
+`Iowa State just lost its 29-game home winning streak. Kansas endured its biggest blown lead in program history. Which team will get right?`\
+https://nytimes.com/athletic/6109941/2025/02/03/iowa-state-kansas-how-to-watch-odds-preview-otzelberger-self-big-12/
+
 **Jimmy Butler? Kevin Durant? The latest on the Warriors' pursuit of a star**\
 `The Warriors missed out on Zach LaVine, but still have bigger fish in mind. That could include a possible reunion with Kevin Durant.`\
 https://nytimes.com/athletic/6109480/2025/02/03/warriors-trade-rumors-jimmy-butler-kevin-durant/
