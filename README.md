@@ -1,3 +1,7 @@
+**AP Top 25: Auburn, Duke remain 1-2 as Texas Tech makes a big move**\
+`The Tigers (20-1 overall, 8-0 in SEC play) remain a unanimous No. 1 after dispatching LSU and Ole Miss on the road since the last poll.`\
+https://nytimes.com/athletic/6109431/2025/02/03/ap-top-25-mens-basketball-rankings-duke-auburn-uconn/
+
 **Listen: Is Brock Purdy going to reset the market?**\
 `Dianna Russini and Robert Mays discuss Brock Purdy's possible contract extension with the San Francisco 49ers.`\
 https://nytimes.com/athletic/6109368/2025/02/03/athletic-football-show-brock-purdy-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/03/us/trump-tariffs/in-canada-a-budding-campaig
 **Jaguars hire Tony Boselli as EVP of football operations**\
 `Boselli is a former All-Pro who holds the distinction of being the first ever Jaguars draft pick in 1995.`\
 https://nytimes.com/athletic/6109595/2025/02/03/jaguars-hire-tony-boselli/
-
-**Super Bowl 59: The 5 most entertaining player props for Chiefs vs. Eagles**\
-`There are tons of prop bets you can place on the Super Bowl. Here are five types of fun ones to keep you entertained throughout the game.`\
-https://nytimes.com/athletic/6103210/2025/02/03/super-bowl-59-most-entertaining-player-props/
 
