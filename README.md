@@ -1,3 +1,7 @@
+**The Grammy Looks Bring a Welcome Hit of Joy**\
+`Sometimes a red carpet is just a marketing opportunity, but sometimes it’s a statement of faith.`\
+https://nytimes.com/2025/02/03/style/grammys-red-carpet.html
+
 **NBA Rewind: Luka Dončić trade is just the latest superstar coup by the Lakers**\
 `The Dončić deal was stunning in every way — except maybe his destination. What else is in store before Thursday's trade deadline?`\
 https://nytimes.com/athletic/6102302/2025/02/03/nba-rewind-luka-doncic-trade-deadline-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6107618/2025/02/03/angels-fan-survey/
 **Weighing the Fallout From Trump’s Looming Trade War**\
 `Business groups, economists and even some Republicans cautioned that new tariffs on goods from Canada, Mexico and China could undercut U.S. industry and the economy.`\
 https://nytimes.com/2025/02/03/business/dealbook/trump-tariffs-canada-mexico-china.html
-
-**French Court Convicts Film Director in Big #MeToo Case**\
-`Christophe Ruggia was accused of sexually assaulting the actress Adèle Haenel when she was a minor.`\
-https://nytimes.com/2025/02/03/world/europe/france-metoo-ruggia.html
 
