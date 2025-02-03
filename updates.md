@@ -1,3 +1,7 @@
+**Looking in the Wreckage for the Building My Dad Designed**\
+`Alyce McFadden, a Los Angeles native who helped cover the wildfires, searches for the condo complex her father helped create four decades ago.`\
+https://nytimes.com/2025/02/03/us/wildfires-building-father-designed.html
+
 **AP Top 25: Auburn, Duke remain 1-2 as Texas Tech makes a big move**\
 `The Tigers (20-1 overall, 8-0 in SEC play) remain a unanimous No. 1 after dispatching LSU and Ole Miss on the road since the last poll.`\
 https://nytimes.com/athletic/6109431/2025/02/03/ap-top-25-mens-basketball-rankings-duke-auburn-uconn/

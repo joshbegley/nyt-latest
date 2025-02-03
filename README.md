@@ -1,3 +1,7 @@
+**A Magazine With a Taste for Provocation (and a Cult Following)**\
+`Wherever it goes, Heavy Traffic draws a stylish, contrarian crowd.`\
+https://nytimes.com/2025/02/03/style/heavy-traffic-magazine.html
+
 **Looking in the Wreckage for the Building My Dad Designed**\
 `Alyce McFadden, a Los Angeles native who helped cover the wildfires, searches for the condo complex her father helped create four decades ago.`\
 https://nytimes.com/2025/02/03/us/wildfires-building-father-designed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/nyregion/nypd-stop-and-frisk-monitor.html
 **Jaune Quick-to-See Smith Wanted to Be the Rule, Not the Exception**\
 `The artist, who died at 85, used Indigenous imagery like the canoe and the buffalo the way Warhol used soup cans.`\
 https://nytimes.com/2025/02/03/arts/design/jaune-quick-to-see-smith-appraisal.html
-
-**In Canada, a budding campaign to boycott American products at the grocery store.**\
-`Videos appealing to Canadian patriotism are flooding social media, offering consumers tips on how to avoid purchasing American products.`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs/in-canada-a-budding-campaign-to-boycott-american-products-at-the-grocery-store
 
