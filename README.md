@@ -4,7 +4,7 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/contemporary-composers-wer
 
 **‘Hell’s Kitchen’ wins Grammy for best musical theater album.**\
 `The musical, based on the life of Alicia Keys and featuring her music, is running on Broadway and begins a national tour this fall.`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/musical-theater-album-grammy
+https://nytimes.com/2025/02/02/theater/musical-theater-album-grammy.html
 
 **Ryan Grubb reunites with Kalen DeBoer, takes Alabama OC job: Source**\
 `DeBoer and Grubb built high-powered offenses together at previous stops, including Washington and Fresno State.`\
