@@ -1,3 +1,7 @@
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6111087/2025/02/03/nhl-mailbag-4-nations-trade-rules-nhl/
+
 **Jeffries Works With N.Y. Democrats to Weaken G.O.P. Control of the House**\
 `New York lawmakers may give Gov. Kathy Hochul more time to schedule special elections, a move backed by the House Democratic leader that could keep a key seat vacant for months.`\
 https://nytimes.com/2025/02/03/nyregion/jeffries-stefanik-house-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/sovereign-wealth-fund-trump.html
 **Mathys Tel to Tottenham Hotspur: The Athletic 500 transfer ratings**\
 `Tottenham Hotspur have signed Mathys Tel on loan from Bayern Munich until the end of the season`\
 https://nytimes.com/athletic/6109657/2025/02/03/mathys-tel-tottenham-hotspur-transfer-analysis/
-
-**State Farm Seeks an Urgent Increase in California Rates After Fires**\
-`The company asked state regulators to approve a 22 percent increase on average.`\
-https://nytimes.com/2025/02/03/us/state-farm-california-rate-increase.html
 
