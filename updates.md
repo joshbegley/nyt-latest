@@ -1,3 +1,7 @@
+**Chelsea agree loan deal for Chilwell to join Palace**\
+`Chilwell has only played once for Chelsea this season and Enzo Maresca said in August it would be 'better' for him to leave.`\
+https://nytimes.com/athletic/6069082/2025/02/03/chelsea-transfer-news-chilwell-crystal-palace/
+
 **Morata joins Galatasaray on loan from Milan**\
 `Alvaro Morata has joined Galatasaray on loan from Milan.`\
 https://nytimes.com/athletic/6100027/2025/02/03/alvaro-morata-galatasaray-transfer-milan/
