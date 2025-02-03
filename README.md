@@ -1,3 +1,7 @@
+**Milan reach verbal agreement for Joao Felix loan from Chelsea**\
+`Milan have reached a verbal agreement for the loan signing of Joao Felix from Chelsea.`\
+https://nytimes.com/athletic/6094003/2025/02/03/joao-felix-chelsea-loan-milan/
+
 **What's next for the Jazz after helping facilitate Mavericks-Lakers blockbuster?**\
 `Utah was involved in two trades on Saturday, including the Luka Dončić-Anthony Davis stunner. Will any Jazz vets be on the move now?`\
 https://nytimes.com/athletic/6108438/2025/02/03/whats-next-for-the-jazz-after-helping-facilitate-mavericks-lakers-blockbuster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108632/2025/02/03/mercedes-streamliner-f1-auction-
 **Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
 `Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
 https://nytimes.com/athletic/6100448/2025/02/03/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
-
-**Beyoncé, Grammy Underdog No More**\
-`After nearly 20 years and 99 nominations, the star’s album of the year win for “Cowboy Carter” ends a confounding chapter in the awards’ history.`\
-https://nytimes.com/2025/02/03/arts/music/beyonce-grammys-cowboy-carter.html
 
