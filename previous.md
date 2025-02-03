@@ -2,7 +2,7 @@
 `By Javier C. Hernández`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/contemporary-composers-were-front-and-center-in-the-classical-field
 
-**‘Hell’s Kitchen’ wins Grammy for best musical theater album.**\
+**‘Hell’s Kitchen’ Wins Grammy for Best Musical Theater Album**\
 `The musical, based on the life of Alicia Keys and featuring her music, is running on Broadway and begins a national tour this fall.`\
 https://nytimes.com/2025/02/02/theater/musical-theater-album-grammy.html
 
