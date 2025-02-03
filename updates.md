@@ -1,5 +1,9 @@
 **Canada is in a perilous spot after Trump cut tariff deal with Mexico.**\
 `By Matina Stevis-Gridneff`\
+https://nytimes.com/2025/02/03/us/trump-trudeau-canada-tariffs.html
+
+**Canada is in a perilous spot after Trump cut tariff deal with Mexico.**\
+`By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/02/03/us/trump-tariffs/canada-is-in-a-perilous-spot-after-trump-cut-tariff-deal-with-mexico
 
 **N.Y. Attorney General Warns Hospitals Against Canceling Transgender Care**\

@@ -1,6 +1,6 @@
 **Canada is in a perilous spot after Trump cut tariff deal with Mexico.**\
 `By Matina Stevis-Gridneff`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs/canada-is-in-a-perilous-spot-after-trump-cut-tariff-deal-with-mexico
+https://nytimes.com/2025/02/03/us/trump-trudeau-canada-tariffs.html
 
 **N.Y. Attorney General Warns Hospitals Against Canceling Transgender Care**\
 `A White House executive order last week threatened to pull federal funding from hospitals that provide gender-affirming care. But not providing the care could violate state law, Letitia James said in a letter on Monday.`\
