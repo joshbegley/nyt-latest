@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6108667/2025/02/03/arsenal-city-beef-transfer-deali
 `Daniel Cummings is expected to remain at Celtic in the winter transfer window after the Scottish champions rejected an improved offer from West Ham United.`\
 https://nytimes.com/athletic/6108743/2025/02/03/daniel-cummings-celtic-west-ham-transfer/
 
-**Trump Intensifies Threats to Hit Europe With Tariffs**\
-`President Trump said late Sunday that European nations would “definitely” be hit with tariffs. His moves against Canada and Mexico have European officials on alert.`\
+**European Leaders on Alert After Trump Says E.U. Will ‘Definitely’ Face Tariffs**\
+`President Trump’s threats are carrying more weight after his moves against Canada, Mexico and China. Europe has been preparing for the possibility of a trade war for months.`\
 https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html
 
 **Do the Bills need a 'desperate' move to break through?**\

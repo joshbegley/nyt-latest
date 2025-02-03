@@ -1,3 +1,7 @@
+**The Athletic FC: Arsenal vs City beef, transfer latest, Yamal genius, 12 players on a team**\
+`In today's TAFC: We analyse the growing grudge between Arsenal and Manchester City, bring you the transfer latest, and praise Yamal's genius`\
+https://nytimes.com/athletic/6108667/2025/02/03/arsenal-city-beef-transfer-dealine-day-latest/
+
 **Cummings set to stay at Celtic in winter window as fresh West Ham bid rejected**\
 `Daniel Cummings is expected to remain at Celtic in the winter transfer window after the Scottish champions rejected an improved offer from West Ham United.`\
 https://nytimes.com/athletic/6108743/2025/02/03/daniel-cummings-celtic-west-ham-transfer/
