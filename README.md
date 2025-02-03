@@ -1,3 +1,11 @@
+**Listen: Is Brock Purdy going to reset the market?**\
+`Dianna Russini and Robert Mays discuss Brock Purdy's possible contract extension with the San Francisco 49ers.`\
+https://nytimes.com/athletic/6109368/2025/02/03/athletic-football-show-brock-purdy-contract/
+
+**NASCAR garage talk: What I heard and saw at the Clash at Bowman Gray Stadium**\
+`The future of the Clash, a surprisingly good run at Bowman Gray Stadium and more chatter from Sunday's exhibition race.`\
+https://nytimes.com/athletic/6109228/2025/02/03/nascar-bowman-gray-stadium-clash-what-i-heard/
+
 **Crew's Cucho Hernandez close to Real Betis transfer**\
 `Hernandez, 25, finished second behind Lionel Messi in the voting for MLS MVP for the 2024 season.`\
 https://nytimes.com/athletic/6109728/2025/02/03/cucho-hernandez-betis-crew-transfer-mls/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109595/2025/02/03/jaguars-hire-tony-boselli/
 **Super Bowl 59: The 5 most entertaining player props for Chiefs vs. Eagles**\
 `There are tons of prop bets you can place on the Super Bowl. Here are five types of fun ones to keep you entertained throughout the game.`\
 https://nytimes.com/athletic/6103210/2025/02/03/super-bowl-59-most-entertaining-player-props/
-
-**Review: Two Operas Come Knocking on the Canon’s Door**\
-`Rarities that deserve their place in opera returned to stages last week: “Die Tote Stadt,” in Boston, and “L’Amant Anonyme,” in Philadelphia.`\
-https://nytimes.com/2025/02/03/arts/music/review-opera-die-tote-stadt-the-anonymous-lover.html
-
-**How Howie Roseman rebuilt the Eagles in two years to return to the Super Bowl**\
-`The task will once again be to beat the Chiefs.`\
-https://nytimes.com/athletic/6106626/2025/02/03/eagles-super-bowl-roster-howie-roseman-general-manager/
 
