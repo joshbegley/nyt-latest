@@ -1,3 +1,15 @@
+**South Africa Fires Back at Trump’s False Claim of Land Seizures**\
+`President Cyril Ramaphosa of South Africa said that his country had not seized land. Ownership of land in the country has been a contentious issue for generations.`\
+https://nytimes.com/2025/02/03/us/politics/south-africa-ramaphosa-trump-land-us-aid.html
+
+**Luka Dončić, Kareem, Shaq and others: Ranking the NBA's all-time greatest trades**\
+`The Dončić trade ranks among the greatest in NBA history. Here are some of the league's best ever reported.`\
+https://nytimes.com/athletic/6107319/2025/02/03/luka-doncic-nba-trade-rankings-kareem-shaq-wilt/
+
+**Nottingham Forest close to signing Reading defender Bindon**\
+`Nottingham Forest are close to signing New Zealand international Tyler Bindon from Reading.`\
+https://nytimes.com/athletic/6108627/2025/02/03/tyler-bindon-nottingham-forest-transfer/
+
 **Man City attempting to complete move for Porto's Gonzalez**\
 `Manchester City are attempting to complete a deadline day move for Porto midfielder Nico Gonzalez.`\
 https://nytimes.com/athletic/6104691/2025/02/03/nico-gonzalez-manchester-city-transfer/
