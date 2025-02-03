@@ -1,5 +1,5 @@
 **Caitlin Clark returned to Iowa for her jersey retirement. Then the Hawkeyes put on a show**\
-`Fans in Iowa celebrated Clark for her jersey retirement, but also lauded USC's JuJu Watkins. `\
+`Fans in Iowa celebrated Clark for her jersey retirement but also lauded USC's JuJu Watkins. `\
 https://nytimes.com/athletic/6108118/2025/02/02/caitlin-clark-jersey-retirement-iowa-usc/
 
 **What Did Ye’s Wife Wear to the Grammys? Not Much.**\
