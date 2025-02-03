@@ -1,3 +1,7 @@
+**De'Aaron Fox to Spurs, Zach LaVine to Kings in multi-team deal**\
+`The Kings only reached the postseason once during Fox's time with the franchise.`\
+https://nytimes.com/athletic/6086726/2025/02/02/deaaron-fox-zach-lavine-spurs-bulls-kings-trade-nba/
+
 **Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
 `Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
 https://nytimes.com/2025/03/02/world/americas/trump-tariffs-windsor-canada.html
