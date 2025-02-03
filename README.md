@@ -1,3 +1,7 @@
+**Morata joins Galatasaray on loan from Milan**\
+`Alvaro Morata has joined Galatasaray on loan from Milan.`\
+https://nytimes.com/athletic/6100027/2025/02/03/alvaro-morata-galatasaray-transfer-milan/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/03/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6105478/2025/02/03/leeds-cardiff-farke-seven/
 **Questions remain over Pereira's midfield despite Bellegarde stepping up**\
 `As the transfer window entered its final hours, Wolves were still chasing midfield additions while Lemina's future remains uncertain`\
 https://nytimes.com/athletic/6105932/2025/02/03/wolves-bellegarde-pereira-villa/
-
-**City needed a new midfielder six weeks ago. Now it's deadline day and they still need one**\
-`It was City's one wish for this window, yet instead they have strengthened elsewhere, while their midfield has looked weaker and weaker`\
-https://nytimes.com/athletic/6107246/2025/02/03/man-city-transfers-midfield-nico-gonzalez/
 
