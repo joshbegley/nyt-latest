@@ -1,8 +1,12 @@
+**DHS: No specific credible terrorist threats surrounding Super Bowl**\
+`NFL head of security Cathy Lanier said the league has reviewed the Jan.1 incident and security surrounding a terrorist attack.`\
+https://nytimes.com/athletic/6109729/2025/02/03/super-bowl-lix-safety-new-orleans-nfl-security/
+
 **Five Highlights From the Sundance Film Festival**\
 `The movies and performances most likely to make an impact in the year ahead, including an ode to 1970s New York and Josh O’Connor going full cowboy.`\
 https://nytimes.com/2025/02/03/t-magazine/sundance-film-festival-standout-moments-movies-performances.html
 
-**FDA Approves Studies of Pig Organ Transplants for Kidney Patients**\
+**F.D.A. Approves Studies of Pig Organ Transplants for Kidney Patients**\
 `The research offers hope to tens of thousands of patients with kidney failure who are on a long waiting list for an organ transplant.`\
 https://nytimes.com/2025/02/03/health/pig-kidney-transplants-clinical-trials.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-auto-mexico-c
 **Real Madrid file formal complaint about refereeing system after Espanyol defeat**\
 `Real Madrid have filed a formal complaint to the Spanish Football Federation (RFEF) asking for the “immediate submission of VAR audio” related to two decisions in their 1-0 defeat by Espanyol.`\
 https://nytimes.com/athletic/6109869/2025/02/03/real-madrid-complaint-espanyol-mbappe-vinicius-rfef/
-
-**Tottenham's Dragusin suffers ACL injury, expected to miss rest of season**\
-`Tottenham Hotspur defender Radu Dragusin is expected to miss the rest of the 2024-25 season after injuring the anterior cruciate ligament (ACL) in his right knee during last week&#8217;s Europa League game against Elfsborg.`\
-https://nytimes.com/athletic/6108843/2025/02/03/radu-dragusin-acl-injury-tottenham/
 
