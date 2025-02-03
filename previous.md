@@ -1,40 +1,40 @@
-**For China, Trump’s Moves Bring Pain, but Also Potential Gains**\
-`President Trump’s tariffs hurt China, but his other actions have alienated U.S. allies, giving Beijing an opening to strengthen its global standing.`\
-https://nytimes.com/2025/02/03/world/asia/china-trump-foreign-aid.html
+**Best and Worst Moments From the 2025 Grammys**\
+`Doechii and Chappell Roan brought dramatic performances and heartfelt speeches, new artists stole the spotlight and men took a back seat at the 67th annual awards.`\
+https://nytimes.com/2025/02/03/arts/music/grammys-2025-best-worst-moments.html
 
-**Chelsea agree loan deal for Chilwell to join Palace**\
-`Chilwell has only played once for Chelsea this season and Enzo Maresca said in August it would be 'better' for him to leave.`\
-https://nytimes.com/athletic/6069082/2025/02/03/chelsea-transfer-news-chilwell-crystal-palace/
+**Warren Questions Bessent Over Musk Access to Treasury Payment System**\
+`In a letter to the Treasury secretary, the Democratic senator warned against meddling with a system that processes trillions of dollars of transactions.`\
+https://nytimes.com/2025/02/03/us/politics/warren-bessent-treasury-musk-doge.html
 
-**Morata joins Galatasaray on loan from Milan**\
-`The former Chelsea, Real Madrid and Juventus striker joins on an initial loan.`\
-https://nytimes.com/athletic/6100027/2025/02/03/alvaro-morata-galatasaray-transfer-milan/
+**A Presidency That’s Off the Rails. It Took Only Two Weeks.**\
+`But we’ve underestimated Trump’s political strength many times before.`\
+https://nytimes.com/2025/02/03/opinion/trump-kennedy-patel-gabbard.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/03/crosswords/spelling-bee-forum.html
+**As Trump Attacks Diversity, a Racist Undercurrent Surfaces**\
+`President Trump has promised a “colorblind and merit-based” society, while also equating diversity with incompetence.`\
+https://nytimes.com/2025/02/03/us/politics/trump-diversity-racism.html
 
-**NASA Astronaut Recruitment Faces Trump’s Moves Against D.E.I.**\
-`The government space agency has vocally promoted diversity and inclusion for decades, even during the first Trump administration.`\
-https://nytimes.com/2025/02/03/science/nasa-astronauts-dei-trump.html
+**I’m Happily Married. I Just Want to Sleep With Another Man Before I Die.**\
+`The magazine’s Ethicist columnist on the fear of missing out and “carnal reciprocity.”`\
+https://nytimes.com/2025/02/03/magazine/married-escorts-climax-ethics.html
 
-**Brighton set to sign striker Tzimas from Nurnberg**\
-`Brighton &amp; Hove Albion are set to complete the signing of striker Stefanos Tzimas from FC Nurnberg.`\
-https://nytimes.com/athletic/6108490/2025/02/03/stefanos-tzimas-brighton-transfer/
+**Panama Canal Fees Have Become a Flashpoint. Here’s Why They’ve Risen.**\
+`President Trump says the canal authority is overcharging. Recent increases are attributed in part to drought, maintenance investments and demand.`\
+https://nytimes.com/2025/02/03/business/economy/panama-canal-fees.html
 
-**Milan undone at the last and left lamenting a result that sums up their season**\
-`Inter left it late to reimpose some order on the Derby della Madonnina but do not be deceived: a chasm has opened up between these two teams`\
-https://nytimes.com/athletic/6107856/2025/02/03/milan-inter-madonnina-inzaghi-conceicao-vrij/
+**What Would You Do to Make New York City More Affordable?**\
+`Readers shared their thoughts on how to address the affordability crisis. Here are nine ideas.`\
+https://nytimes.com/2025/02/03/nyregion/what-would-you-do-to-make-new-york-city-more-affordable.html
 
-**Word of the Day: mollify**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/03/learning/word-of-the-day-mollify.html
+**How to Break Public Schools: A Republican Playbook**\
+`The Tennessee General Assembly has never cared whether its constituents support the laws it passes, and it doesn’t care now. We are on our own.`\
+https://nytimes.com/2025/02/03/opinion/nashville-guns-public-schools.html
 
-**Super Bowl LIX, Plus 9 Things to Watch on TV This Week**\
-`The Philadelphia Eagles and Kansas City Chiefs will face off, after the much anticipated Puppy Bowl XXI.`\
-https://nytimes.com/2025/02/03/arts/television/super-bowl-lix-tv-this-week.html
+**That Giant Sucking Sound? It’s Climate Change Devouring Your Home’s Value.**\
+`A new analysis predicts an extraordinary reversal in housing fortunes for Americans.`\
+https://nytimes.com/2025/02/03/opinion/home-values-insurance-climate.html
 
-**I’m the Foreign Minister of Poland. Europe Has Got the Message.**\
-`As some allies grow weary of American power, Americans seem to be growing weary of their allies.`\
-https://nytimes.com/2025/02/03/opinion/poland-europe-radoslaw-sikorski.html
+**What Should I Wear to Protest an Unspoken Dress Code?**\
+`A reader asks how to push back against the resurgence of traditional dressing. Our critic discusses the history of rebellion through clothing and how to make a true “fashion statement.”`\
+https://nytimes.com/2025/02/03/style/fashion-protest-trump.html
 
