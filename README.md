@@ -22,7 +22,7 @@ https://nytimes.com/2025/02/03/nyregion/jeffries-stefanik-house-ny.html
 `Manchester City have confirmed the permanent signing of Nico Gonzalez from Porto`\
 https://nytimes.com/athletic/6110929/2025/02/03/nico-gonzalez-manchester-city-transfer-analysis/
 
-**Mexico Managed to Stave off Trump’s Tariffs. Now What?**\
+**Mexico Managed to Stave Off Trump’s Tariffs. Now What?**\
 `Mexico managed to temporarily avoid President Trump’s threatened 25 percent tariffs by making promises on border security, but it is unclear if the country can fulfill its pledge.`\
 https://nytimes.com/2025/02/03/world/americas/mexico-tariffs-trump.html
 
