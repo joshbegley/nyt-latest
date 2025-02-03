@@ -1,3 +1,7 @@
+**From Patrick Mahomes to Lil Wayne, celebs had much to say about the Luka Dončić trade**\
+`Celebrities took to social media to offer their opinions on one of the biggest trades across sports — not just pro basketball — in years.`\
+https://nytimes.com/athletic/6107451/2025/02/02/luka-doncic-lakers-celebrities-social-media/
+
 **Free-agent starter Jack Flaherty returns to Tigers on 2-year deal**\
 `For the 29-year-old Flaherty, it’s a payday that seemed likely from his time as an ascendant young starter with the St. Louis Cardinals.`\
 https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
