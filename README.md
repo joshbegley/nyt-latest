@@ -1,3 +1,11 @@
+**FPL: What we learned from Gameweek 24 - it's time to plan for Double Gameweek 25**\
+`Abdul Rehman analyses the main talking points from Gameweek 24 (so far) in Fantasy Premier League`\
+https://nytimes.com/athletic/6107640/2025/02/03/fantasy-premier-league-gameweek-24-alexander-arnold-watkins-isak/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions below and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6108755/2025/02/03/inside-newcastle-transfers-howe/
+
 **Car Bomb in Northern Syria Kills at Least 15**\
 `The blast, which detonated next to a truck carrying agricultural workers, underscored the challenges faced by the country’s interim president.`\
 https://nytimes.com/2025/02/03/world/middleeast/syria-bombing-explosion-manbij.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6107499/2025/02/03/jets-trade-deadline-plans-chevel
 **Who Will Govern Postwar Gaza? Four Competing Models Are Emerging.**\
 `Hamas still controls most of the enclave, but Israel holds some key areas. International oversight could also be expanded, while the Palestinian Authority has presented itself as another alternative.`\
 https://nytimes.com/2025/02/03/world/middleeast/gaza-post-war-israel-hamas-palestinian-authority.html
-
-**PWHL Power Rankings: Victoire surge to the top, debating Fleet vs. Sceptres**\
-`With no games this week due to the Rivalry Series, let's check in on how the league evolved over January.`\
-https://nytimes.com/athletic/6108121/2025/02/03/pwhl-power-rankings-january-victoire-fleet-sceptres/
-
-**A Looming Trade War**\
-`We explain the potential impacts of Trump’s tariffs.`\
-https://nytimes.com/2025/02/03/briefing/a-looming-trade-war.html
 
