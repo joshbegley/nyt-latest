@@ -1,4 +1,4 @@
-**Shocked by the Luka-AD trade? NBA executives were, too**\
+**Surprised by the Luka-AD trade? NBA executives were, too**\
 `"Shocking" and "stunning" were just a couple of ways league execs described the deal to The Athletic on Sunday.`\
 https://nytimes.com/athletic/6106257/2025/02/02/luka-doncic-anthony-davis-trade-nba-executives/
 
