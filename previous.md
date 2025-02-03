@@ -1,3 +1,23 @@
+**Yankees sign starting pitcher Carlos Carrasco to minor-league deal**\
+`Carrasco, 37, was 3-10 with a 5.64 ERA in 21 starts for the Cleveland Guardians in 2024.`\
+https://nytimes.com/athletic/6110021/2025/02/03/yankees-carlos-carrasco-free-agent/
+
+**Listen: Is Djed Spence making himself undroppable at Tottenham?**\
+`The Totally Football Show discus why Tottenham Hotspur full-back Djed Spence is sometimes misunderstood`\
+https://nytimes.com/athletic/6109742/2025/02/03/totally-football-show-djed-spence-tottenham/
+
+**Washington owner Josh Harris says Commanders will remain team's nickname**\
+`“I think it's now being embraced by our team, by our culture, by our coaching staff,” Harris said Monday. `\
+https://nytimes.com/athletic/6109925/2025/02/03/washington-commanders-nickname-josh-harris/
+
+**Automakers get a reprieve but brace for further turmoil.**\
+`A pause in tariffs on Mexico at least temporarily averted disruptions to supply chains that would have forced carmakers to raise prices on som`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-auto-mexico-canada
+
+**Real Madrid file formal complaint about refereeing system after Espanyol defeat**\
+`Real Madrid have filed a formal complaint to the Spanish Football Federation (RFEF) asking for the “immediate submission of VAR audio” related to two decisions in their 1-0 defeat by Espanyol.`\
+https://nytimes.com/athletic/6109869/2025/02/03/real-madrid-complaint-espanyol-mbappe-vinicius-rfef/
+
 **Tottenham's Dragusin suffers ACL injury, expected to miss rest of season**\
 `Tottenham Hotspur defender Radu Dragusin is expected to miss the rest of the 2024-25 season after injuring the anterior cruciate ligament (ACL) in his right knee during last week&#8217;s Europa League game against Elfsborg.`\
 https://nytimes.com/athletic/6108843/2025/02/03/radu-dragusin-acl-injury-tottenham/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/03/weather/california-rain-flooding-atmospheric-rive
 **Villa complete Asensio loan signing from PSG**\
 `Asensio registered two goals and four assists in 16 games for PSG this season.`\
 https://nytimes.com/athletic/6106843/2025/02/03/marco-asensio-aston-villa-loan-transfer/
-
-**A Magazine With a Taste for Provocation (and a Cult Following)**\
-`Wherever it goes, Heavy Traffic draws a stylish, contrarian crowd.`\
-https://nytimes.com/2025/02/03/style/heavy-traffic-magazine.html
-
-**Looking in the Wreckage for the Building My Dad Designed**\
-`Alyce McFadden, a Los Angeles native who helped cover the wildfires, searches for the condo complex her father helped create four decades ago.`\
-https://nytimes.com/2025/02/03/us/wildfires-building-father-designed.html
-
-**AP Top 25: Auburn, Duke remain 1-2 as Texas Tech makes a big move**\
-`The Tigers (20-1 overall, 8-0 in SEC play) remain a unanimous No. 1 after dispatching LSU and Ole Miss on the road since the last poll.`\
-https://nytimes.com/athletic/6109431/2025/02/03/ap-top-25-mens-basketball-rankings-duke-auburn-uconn/
-
-**Listen: Is Brock Purdy going to reset the market?**\
-`Dianna Russini and Robert Mays discuss Brock Purdy's possible contract extension with the San Francisco 49ers.`\
-https://nytimes.com/athletic/6109368/2025/02/03/athletic-football-show-brock-purdy-contract/
-
-**NASCAR garage talk: What I heard and saw at the Clash at Bowman Gray Stadium**\
-`The future of the Clash, a surprisingly good run at Bowman Gray Stadium and more chatter from Sunday's exhibition race.`\
-https://nytimes.com/athletic/6109228/2025/02/03/nascar-bowman-gray-stadium-clash-what-i-heard/
 

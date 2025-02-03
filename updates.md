@@ -1,3 +1,23 @@
+**Yankees sign starting pitcher Carlos Carrasco to minor-league deal**\
+`Carrasco, 37, was 3-10 with a 5.64 ERA in 21 starts for the Cleveland Guardians in 2024.`\
+https://nytimes.com/athletic/6110021/2025/02/03/yankees-carlos-carrasco-free-agent/
+
+**Listen: Is Djed Spence making himself undroppable at Tottenham?**\
+`The Totally Football Show discus why Tottenham Hotspur full-back Djed Spence is sometimes misunderstood`\
+https://nytimes.com/athletic/6109742/2025/02/03/totally-football-show-djed-spence-tottenham/
+
+**Washington owner Josh Harris says Commanders will remain team's nickname**\
+`“I think it's now being embraced by our team, by our culture, by our coaching staff,” Harris said Monday. `\
+https://nytimes.com/athletic/6109925/2025/02/03/washington-commanders-nickname-josh-harris/
+
+**Automakers get a reprieve but brace for further turmoil.**\
+`A pause in tariffs on Mexico at least temporarily averted disruptions to supply chains that would have forced carmakers to raise prices on som`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-auto-mexico-canada
+
+**Real Madrid file formal complaint about refereeing system after Espanyol defeat**\
+`Real Madrid have filed a formal complaint to the Spanish Football Federation (RFEF) asking for the “immediate submission of VAR audio” related to two decisions in their 1-0 defeat by Espanyol.`\
+https://nytimes.com/athletic/6109869/2025/02/03/real-madrid-complaint-espanyol-mbappe-vinicius-rfef/
+
 **Tottenham's Dragusin suffers ACL injury, expected to miss rest of season**\
 `Tottenham Hotspur defender Radu Dragusin is expected to miss the rest of the 2024-25 season after injuring the anterior cruciate ligament (ACL) in his right knee during last week&#8217;s Europa League game against Elfsborg.`\
 https://nytimes.com/athletic/6108843/2025/02/03/radu-dragusin-acl-injury-tottenham/
