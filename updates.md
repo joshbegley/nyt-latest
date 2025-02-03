@@ -1,3 +1,19 @@
+**Luka Dončić to Lakers is 'shocking' to Mavericks, but they have plans to push forward**\
+`"You don't even have the emotions to describe it," Quentin Grimes said of Dončić, who was traded Saturday.`\
+https://nytimes.com/athletic/6108035/2025/02/02/luka-doncic-mavericks-lakers-nba-trade/
+
+**Chappell Roan calls out record labels after Grammy win.**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-calls-out-record-labels-after-winning-best-new-artist
+
+**Doechii brings her theatrical flair to the Grammys.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/doechii-brings-her-theatrical-flair-to-the-grammys
+
+**Chappell Roan Wins the Grammy for Best New Artist**\
+`The 26-year-old pop star capped a year of breakout success with one of the ceremony’s biggest awards and a candid criticism of the music industry.`\
+https://nytimes.com/2025/02/02/arts/music/chappell-roan-best-new-artist-grammys.html
+
 **Corrections: Feb. 2, 2025**\
 `Corrections that appeared in print on Sunday, Feb. 2, 2025.`\
 https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-2-2025.html
