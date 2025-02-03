@@ -7,7 +7,7 @@ https://nytimes.com/2025/02/03/world/asia/china-trump-foreign-aid.html
 https://nytimes.com/athletic/6069082/2025/02/03/chelsea-transfer-news-chilwell-crystal-palace/
 
 **Morata joins Galatasaray on loan from Milan**\
-`Alvaro Morata has joined Galatasaray on loan from Milan.`\
+`The former Chelsea, Real Madrid and Juventus striker joins on an initial loan.`\
 https://nytimes.com/athletic/6100027/2025/02/03/alvaro-morata-galatasaray-transfer-milan/
 
 **Spelling Bee Forum**\
