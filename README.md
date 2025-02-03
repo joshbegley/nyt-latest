@@ -14,8 +14,8 @@ https://nytimes.com/2025/02/03/us/politics/white-house-spending-freeze-omb-judge
 `G.O.P. lawmakers, including those on the House Agriculture Committee, praised the plan for tariffs on Canada, Mexico and China despite the financial damage a trade war could unleash on American farmers.`\
 https://nytimes.com/2025/02/03/us/republicans-trump-tariffs.html
 
-**Hochul Moves to Shield N.Y. Doctors Who Send Abortion Pills Out of State**\
-`Gov. Kathy Hochul signed a bill meant to protect medical practitioners who prescribe and send abortion pills to states that ban abortion.`\
+**N.Y. Moves to Shield Doctors Who Send Abortion Pills to States With Bans**\
+`Gov. Kathy Hochul signed a bill meant to protect medical practitioners in New York who prescribe and send abortion pills out of state.`\
 https://nytimes.com/2025/02/03/nyregion/ny-abortion-pills-hochul-law.html
 
 **Iowa State at Kansas men's basketball: How to watch, odds after Jayhawks' recent stunners**\
