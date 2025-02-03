@@ -1,3 +1,7 @@
+**NASA Astronaut Recruitment Faces Trump’s Moves Against D.E.I.**\
+`The government space agency has vocally promoted diversity and inclusion for decades, even during the first Trump administration.`\
+https://nytimes.com/2025/02/03/science/nasa-astronauts-dei-trump.html
+
 **Brighton set to sign striker Tzimas from Nurnberg**\
 `Brighton &amp; Hove Albion are set to complete the signing of striker Stefanos Tzimas from FC Nurnberg.`\
 https://nytimes.com/athletic/6108490/2025/02/03/stefanos-tzimas-brighton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6107246/2025/02/03/man-city-transfers-midfield-nico
 **An excessive over-analysis of Nottingham Forest's 7-0 win against Brighton**\
 `If you can't analyse a team's biggest Premier League win in frankly unnecessary detail, when can you do it?`\
 https://nytimes.com/athletic/6107107/2025/02/03/nottingham-forest-brighton-over-analysis/
-
-**Brighton rejected two Saudi bids for Mitoma - why and what could happen next?**\
-`Brighton turned down two significant bids from Saudi Arabia for the Japan international at the end of last week`\
-https://nytimes.com/athletic/6102455/2025/02/03/brighton-kaoru-mitoma-saudi-arabia/
 
