@@ -1,3 +1,7 @@
+**Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
+`Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/trump-tariffs-windsor-canada
+
 **Global Markets Brace for Fallout From Trump Tariffs**\
 `Shares in Japanese and South Korean manufacturers tumbled on concern that tariffs will hurt trade in North America, where they have major investments in factories.`\
 https://nytimes.com/2025/02/02/business/stocks-trump-tariffs.html
