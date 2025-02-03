@@ -1,3 +1,7 @@
+**Brighton set to sign striker Tzimas from Nurnberg**\
+`Brighton &amp; Hove Albion are set to complete the signing of striker Stefanos Tzimas from FC Nurnberg.`\
+https://nytimes.com/athletic/6108490/2025/02/03/stefanos-tzimas-brighton-transfer/
+
 **Milan undone at the last and left lamenting a result that sums up their season**\
 `Inter left it late to reimpose some order on the Derby della Madonnina but do not be deceived: a chasm has opened up between these two teams`\
 https://nytimes.com/athletic/6107856/2025/02/03/milan-inter-madonnina-inzaghi-conceicao-vrij/

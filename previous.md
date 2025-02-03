@@ -1,3 +1,7 @@
+**Brighton set to sign striker Tzimas from Nurnberg**\
+`Brighton &amp; Hove Albion are set to complete the signing of striker Stefanos Tzimas from FC Nurnberg.`\
+https://nytimes.com/athletic/6108490/2025/02/03/stefanos-tzimas-brighton-transfer/
+
 **Milan undone at the last and left lamenting a result that sums up their season**\
 `Inter left it late to reimpose some order on the Derby della Madonnina but do not be deceived: a chasm has opened up between these two teams`\
 https://nytimes.com/athletic/6107856/2025/02/03/milan-inter-madonnina-inzaghi-conceicao-vrij/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6107107/2025/02/03/nottingham-forest-brighton-over-
 **Brighton rejected two Saudi bids for Mitoma - why and what could happen next?**\
 `Brighton turned down two significant bids from Saudi Arabia for the Japan international at the end of last week`\
 https://nytimes.com/athletic/6102455/2025/02/03/brighton-kaoru-mitoma-saudi-arabia/
-
-**'Circle of trust', small tweaks and forensic analysis - how Maresca copes with being on a poor run**\
-`The Chelsea head coach endured a tough period at Leicester a year ago and there are things we can learn from how he handed that`\
-https://nytimes.com/athletic/6104771/2025/02/03/enzo-maresca-bad-run-chelsea/
 
