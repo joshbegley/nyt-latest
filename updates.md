@@ -1,3 +1,7 @@
+**AP Top 25: Auburn, Duke remain 1-2 as Texas Tech makes a big move**\
+`The Tigers (20-1 overall, 8-0 in SEC play) remain a unanimous No. 1 after dispatching LSU and Ole Miss on the road since the last poll.`\
+https://nytimes.com/athletic/6109431/2025/02/03/ap-top-25-mens-basketball-rankings-duke-auburn-uconn/
+
 **Listen: Is Brock Purdy going to reset the market?**\
 `Dianna Russini and Robert Mays discuss Brock Purdy's possible contract extension with the San Francisco 49ers.`\
 https://nytimes.com/athletic/6109368/2025/02/03/athletic-football-show-brock-purdy-contract/
