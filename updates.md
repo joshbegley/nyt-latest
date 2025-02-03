@@ -1,3 +1,7 @@
+**Marcus Rashford to Aston Villa: The Athletic 500 transfer ratings**\
+`We rate Marcus Rashford's move to Villa Park as part of the Transfer 500 series`\
+https://nytimes.com/athletic/6108721/2025/02/03/marcus-rashford-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **Weekend NHL rankings: Huge cap news, more blockbuster trades and oh yeah, games**\
 `Off-ice moves continue to shake up the NHL with a second straight Friday blockbuster and an upcoming rise to the salary cap.`\
 https://nytimes.com/athletic/6107868/2025/02/03/nhl-weekend-rankings-jt-miller-trade-salary-cap/
