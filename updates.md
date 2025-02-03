@@ -1,3 +1,7 @@
+**Jimmy Butler? Kevin Durant? The latest on the Warriors' pursuit of a star**\
+`The Warriors missed out on Zach LaVine, but still have bigger fish in mind. That could include a possible reunion with Kevin Durant.`\
+https://nytimes.com/athletic/6109480/2025/02/03/warriors-trade-rumors-jimmy-butler-kevin-durant/
+
 **Leonard Hamilton resigning as Florida State men's hoops coach after season**\
 `FSU coach's 434 wins over 22-plus seasons are the most in program history and the fifth-most ever in the ACC.`\
 https://nytimes.com/athletic/6110272/2025/02/03/leonard-hamilton-resigning-florida-state-basketball-coach/
