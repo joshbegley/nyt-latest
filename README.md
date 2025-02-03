@@ -1,3 +1,15 @@
+**Canada is in a perilous spot after Trump cut tariff deal with Mexico.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/02/03/us/trump-tariffs/canada-is-in-a-perilous-spot-after-trump-cut-tariff-deal-with-mexico
+
+**N.Y. Attorney General Warns Hospitals Against Canceling Transgender Care**\
+`A White House executive order last week threatened to pull federal funding from hospitals that provide gender-affirming care. But not providing the care could violate state law, Letitia James said in a letter on Monday.`\
+https://nytimes.com/2025/02/03/nyregion/ny-attorney-general-transgender-care.html
+
+**Trump names Scott Bessent, the Treasury secretary, to lead the consumer bureau.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-scott-bessent-the-treasury-secretary-to-lead-the-consumer-bureau
+
 **Marcus Pettersson's next contract, Filip Chytil's breakout potential and more**\
 `The Canucks are expected to open extension talks with Marcus Pettersson's camp this week.`\
 https://nytimes.com/athletic/6108456/2025/02/03/canucks-marcus-pettersson-contract-filip-chytil/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6107003/2025/02/03/chelsea-nico-oreilly-transfer-ma
 **Trump’s Trade Move Could Increase Costs for Many Online Goods**\
 `President Trump’s tariff measures included a significant change to trade rules that could increase costs for many products bought online, including on Amazon, Shein and Temu.`\
 https://nytimes.com/2025/02/03/us/politics/trump-tariffs-shein-temu-loophole.html
-
-**Aircraft Wreckage Is Recovered From Potomac River**\
-`Recovery teams worked to pull parts of an American Airlines jet and a U.S. Army helicopter out of the Potomac River on Monday.`\
-https://nytimes.com/video/us/100000009966691/aircraft-wreckage-is-recovered-from-potomac-river.html
-
-**Mexico striker Gimenez completes Milan move**\
-`Gimenez has signed a deal with Milan until 2029 having scored 16 goals in 19 games for Feyenoord this season.`\
-https://nytimes.com/athletic/6109395/2025/02/03/santiago-gimenez-transfer-milan/
-
-**There’s No Such Thing as Too Much Garlic**\
-`At least not in roasted cauliflower soup, garlic bread, brussels sprouts Caesar salad and Eric Kim’s braised chicken with 20 (!) cloves of garlic.`\
-https://nytimes.com/2025/02/03/dining/garlic-chicken-recipe.html
 
