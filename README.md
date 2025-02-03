@@ -1,3 +1,11 @@
+**Lamine Yamal and his 14 seconds of Messi-like magic**\
+`Barcelona beat Alaves 1-0 but all anyone was talking about was Yamal's unbelievable dribble in the first half. We broke it down...`\
+https://nytimes.com/athletic/6107522/2025/02/03/lamine-yamal-dribble-barcelona-alaves/
+
+**How Gerrard's Saudi adventure turned sour - and what does his future hold?**\
+`The Liverpool legend was committed to the Al Ettifaq project but grew frustrated at spending restrictions and slumping results`\
+https://nytimes.com/athletic/6102998/2025/02/03/steven-gerrard-saudi-sack-al-ettifaq-why/
+
 **Kelly, Miedema and the encouragement of WSL fans putting players first**\
 `The women's footballing world has rallied around Kelly following her claims Manchester City have mistreated her and it is heartening to see`\
 https://nytimes.com/athletic/6106689/2025/02/03/kelly-miedema-wsl-manchester-city-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/03/world/europe/europe-trump-defense-budgets.html
 **Weeks into Trump’s second term, several artists alluded to politics onstage.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/weeks-into-trumps-second-term-several-artists-alluded-to-politics-onstage
-
-**15 Unforgettable Looks at the Grammys**\
-`Painterly gowns, wedding dresses, nude body stockings and more.`\
-https://nytimes.com/2025/02/02/style/grammys-2025-red-carpet.html
-
-**Charli XCX brings ‘Brat’ to the stage.**\
-`By Marc Tracy`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/charli-xcx-brings-brat-to-the-stage
 
