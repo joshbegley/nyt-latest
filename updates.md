@@ -1,3 +1,11 @@
+**Listen: Is Brock Purdy going to reset the market?**\
+`Dianna Russini and Robert Mays discuss Brock Purdy's possible contract extension with the San Francisco 49ers.`\
+https://nytimes.com/athletic/6109368/2025/02/03/athletic-football-show-brock-purdy-contract/
+
+**NASCAR garage talk: What I heard and saw at the Clash at Bowman Gray Stadium**\
+`The future of the Clash, a surprisingly good run at Bowman Gray Stadium and more chatter from Sunday's exhibition race.`\
+https://nytimes.com/athletic/6109228/2025/02/03/nascar-bowman-gray-stadium-clash-what-i-heard/
+
 **Crew's Cucho Hernandez close to Real Betis transfer**\
 `Hernandez, 25, finished second behind Lionel Messi in the voting for MLS MVP for the 2024 season.`\
 https://nytimes.com/athletic/6109728/2025/02/03/cucho-hernandez-betis-crew-transfer-mls/
