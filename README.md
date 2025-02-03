@@ -1,3 +1,19 @@
+**Luka Dončić to Lakers is 'shocking' to Mavericks, but they have plans to push forward**\
+`"You don't even have the emotions to describe it," Quentin Grimes said of Dončić, who was traded Saturday.`\
+https://nytimes.com/athletic/6108035/2025/02/02/luka-doncic-mavericks-lakers-nba-trade/
+
+**Chappell Roan calls out record labels after Grammy win.**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-calls-out-record-labels-after-winning-best-new-artist
+
+**Doechii brings her theatrical flair to the Grammys.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/doechii-brings-her-theatrical-flair-to-the-grammys
+
+**Chappell Roan Wins the Grammy for Best New Artist**\
+`The 26-year-old pop star capped a year of breakout success with one of the ceremony’s biggest awards and a candid criticism of the music industry.`\
+https://nytimes.com/2025/02/02/arts/music/chappell-roan-best-new-artist-grammys.html
+
 **Caitlin Clark returned to Iowa for her jersey retirement. Then the Hawkeyes put on a show**\
 `Fans in Iowa celebrated Clark for her jersey retirement but also lauded USC's JuJu Watkins. `\
 https://nytimes.com/athletic/6108118/2025/02/02/caitlin-clark-jersey-retirement-iowa-usc/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres
 **De'Aaron Fox to Spurs, Zach LaVine to Kings in multi-team deal**\
 `The Kings only reached the postseason once during Fox's time with the franchise.`\
 https://nytimes.com/athletic/6086726/2025/02/02/deaaron-fox-zach-lavine-spurs-bulls-kings-trade-nba/
-
-**Surprised by the Luka-AD trade? NBA executives were, too**\
-`"Shocking" and "stunning" were just a couple of ways league execs described the deal to The Athletic on Sunday.`\
-https://nytimes.com/athletic/6106257/2025/02/02/luka-doncic-anthony-davis-trade-nba-executives/
-
-**'Speechless': Kristaps Porziņģis, Celtics react to the Luka Dončić trade to Lakers**\
-`"If Luka can get traded, then anybody can," Celtics forward and Dallas native Jordan Walsh said.`\
-https://nytimes.com/athletic/6107893/2025/02/02/celtics-kristaps-porzingis-luka-doncic-trade-lakers/
-
-**Corrections: Feb. 2, 2025**\
-`Corrections that appeared in print on Sunday, Feb. 2, 2025.`\
-https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-2-2025.html
-
-**Corrections: Feb. 1, 2025**\
-`Corrections that appeared in print on Saturday, Feb. 1, 2025.`\
-https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-1-2025.html
 
