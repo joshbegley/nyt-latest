@@ -1,3 +1,11 @@
+**Marcus Pettersson's next contract, Filip Chytil's breakout potential and more**\
+`The Canucks are expected to open extension talks with Marcus Pettersson's camp this week.`\
+https://nytimes.com/athletic/6108456/2025/02/03/canucks-marcus-pettersson-contract-filip-chytil/
+
+**Myles Garrett formally requests trade from Cleveland Browns**\
+`The request comes a week after Browns general manager Andrew Berry said at the Senior Bowl that Cleveland would not be trading Garrett.`\
+https://nytimes.com/athletic/6109461/2025/02/03/myles-garrett-trade-request-browns-contract-nfl/
+
 **The Bounce: With Luka Dončić and De'Aaron Fox on the move, it's time for big-trade FAQs**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6109087/2025/02/03/luka-doncic-lakers-mavericks-deaaron-fox-spurs-kings-nba-trade-deadline-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109395/2025/02/03/santiago-gimenez-transfer-milan/
 **There’s No Such Thing as Too Much Garlic**\
 `At least not in roasted cauliflower soup, garlic bread, brussels sprouts Caesar salad and Eric Kim’s braised chicken with 20 (!) cloves of garlic.`\
 https://nytimes.com/2025/02/03/dining/garlic-chicken-recipe.html
-
-**Aid Agency Staff Told to Stay Home After Musk Says Trump Wants to Close It**\
-`The U.S. Agency for International Development is in crisis as workers report being locked out, adding to the growing sense that President Trump will dismantle the government’s lead humanitarian aid agency.`\
-https://nytimes.com/2025/02/03/us/politics/usaid-trump-musk.html
-
-**Jalen Duren shows increased offensive aggression in Pistons win**\
-`"We're just building, we're still waking people up," Jalen Duren said after helping the Pistons defeat the Bulls. `\
-https://nytimes.com/athletic/6108159/2025/02/03/jalen-duren-aggression-pistons-bullls/
 

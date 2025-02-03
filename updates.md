@@ -1,3 +1,11 @@
+**Marcus Pettersson's next contract, Filip Chytil's breakout potential and more**\
+`The Canucks are expected to open extension talks with Marcus Pettersson's camp this week.`\
+https://nytimes.com/athletic/6108456/2025/02/03/canucks-marcus-pettersson-contract-filip-chytil/
+
+**Myles Garrett formally requests trade from Cleveland Browns**\
+`The request comes a week after Browns general manager Andrew Berry said at the Senior Bowl that Cleveland would not be trading Garrett.`\
+https://nytimes.com/athletic/6109461/2025/02/03/myles-garrett-trade-request-browns-contract-nfl/
+
 **The Bounce: With Luka Dončić and De'Aaron Fox on the move, it's time for big-trade FAQs**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6109087/2025/02/03/luka-doncic-lakers-mavericks-deaaron-fox-spurs-kings-nba-trade-deadline-the-bounce/
