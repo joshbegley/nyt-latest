@@ -1,3 +1,7 @@
+**Global Markets Brace for Fallout From Trump Tariffs**\
+`Shares in Japanese and South Korean manufacturers tumbled on concern that tariffs will hurt trade in North America, where they have major investments in factories.`\
+https://nytimes.com/2025/02/02/business/stocks-trump-tariffs.html
+
 **Groundhog Day**\
 `Stuck in a loop, trying to find a way out.`\
 https://nytimes.com/2025/02/02/podcasts/groundhog-day-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/arts/music/jaden-smith-castle-grammys.html
 **OpenAI Unveils A.I. Tool That Can Do Research Online**\
 `The tool, called Deep Research, arrives days after OpenAI released another one, which shops for groceries and books restaurant reservations.`\
 https://nytimes.com/2025/02/02/technology/openai-deep-research-tool.html
-
-**Minneapolis Settles With Woman Who Says Derek Chauvin Knelt on Her Back**\
-`The $600,000 settlement is the latest in a series of lawsuits alleging excessive force by Mr. Chauvin, the former police officer convicted of murdering George Floyd.`\
-https://nytimes.com/2025/02/02/us/minneapolis-settlement-derek-chauvin-lawsuit.html
 
