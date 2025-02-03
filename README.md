@@ -1,3 +1,7 @@
+**Yankees sign starting pitcher Carlos Carrasco to minor-league deal**\
+`Carrasco, 37, was 3-10 with a 5.64 ERA in 21 starts for the Cleveland Guardians in 2024.`\
+https://nytimes.com/athletic/6110021/2025/02/03/yankees-carlos-carrasco-free-agent/
+
 **Listen: Is Djed Spence making himself undroppable at Tottenham?**\
 `The Totally Football Show discus why Tottenham Hotspur full-back Djed Spence is sometimes misunderstood`\
 https://nytimes.com/athletic/6109742/2025/02/03/totally-football-show-djed-spence-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/weather/california-rain-flooding-atmospheric-rive
 **Villa complete Asensio loan signing from PSG**\
 `Asensio registered two goals and four assists in 16 games for PSG this season.`\
 https://nytimes.com/athletic/6106843/2025/02/03/marco-asensio-aston-villa-loan-transfer/
-
-**A Magazine With a Taste for Provocation (and a Cult Following)**\
-`Wherever it goes, Heavy Traffic draws a stylish, contrarian crowd.`\
-https://nytimes.com/2025/02/03/style/heavy-traffic-magazine.html
 
