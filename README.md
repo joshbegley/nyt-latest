@@ -1,3 +1,7 @@
+**Lawyers for Justice Dept. employees threaten to sue, saying dismissals violate the law.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/lawyers-justice-dept-firing
+
 **Contemporary composers were front and center in the classical field.**\
 `By Javier C. Hernández`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/contemporary-composers-were-front-and-center-in-the-classical-field
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6107971/2025/02/02/alabama-hires-ryan-grubb-as-oc-r
 `A fellow survivor, she was a literary and political adviser who helped her husband gain recognition as a singular moral authority on the Holocaust.`\
 https://nytimes.com/2025/02/02/obituaries/marion-wiesel.html
 
-**Kendrick Lamar wins 3 early Grammys for ‘Not Like Us.’**\
+**Kendrick Lamar wins three early Grammys for ‘Not Like Us.’**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-early-grammys-for-not-like-us
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/us/minneapolis-settlement-derek-chauvin-lawsuit.h
 **'Our response is we won': Why Sabres didn't retaliate after high hit on Tage Thompson**\
 `The Sabres didn't instigate anything following Stefan Noesen's high hit to Tage Thompson's head but ultimately defeated the Devils 4-3.`\
 https://nytimes.com/athletic/6107870/2025/02/02/sabres-devils-tage-thompson-stefan-noesen-hit/
-
-**West Ham recalling Ward-Prowse from Forest loan**\
-`Ward-Prowse, 30, has started only five Premier League games for Forest and was left out of the squad for Saturday's win over Brighton.`\
-https://nytimes.com/athletic/6107929/2025/02/02/james-ward-prowse-west-ham-forest/
 
