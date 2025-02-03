@@ -1,3 +1,7 @@
+**Global Markets Brace for Fallout From Trump Tariffs**\
+`Shares in Japanese and South Korean manufacturers tumbled on concern that tariffs will hurt trade in North America, where they have major investments in factories.`\
+https://nytimes.com/2025/02/02/business/stocks-trump-tariffs.html
+
 **Groundhog Day**\
 `Stuck in a loop, trying to find a way out.`\
 https://nytimes.com/2025/02/02/podcasts/groundhog-day-this-american-life-nyt-audio.html
