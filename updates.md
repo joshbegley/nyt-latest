@@ -1,3 +1,19 @@
+**Free-agent starter Jack Flaherty returns to Tigers on 2-year deal**\
+`For the 29-year-old Flaherty, it’s a payday that seemed likely from his time as an ascendant young starter with the St. Louis Cardinals.`\
+https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
+
+**From Patrick Mahomes to Lil Wayne, celebs had much to say about the Luka Dončić trade**\
+`Celebrities took to social media to offer their opinions on one of the biggest trades across sports — not just pro basketball — in years.`\
+https://nytimes.com/athletic/6107451/2025/02/02/luka-to-the-lakers-had-celebrities-talking-im-happy-and-miserable-at-the-same-time/
+
+**In Panama, Rubio Says China Threatens Canal, Demanding ‘Immediate’ Action**\
+`Secretary of State Marco Rubio told the country’s president that the United States could take unspecified steps to “protect its rights,” according to the State Department.`\
+https://nytimes.com/2025/02/02/world/americas/marco-rubio-panama.html
+
+**Nebraska upsets Oregon 77-71 for fourth win over top-25 team**\
+`The Huskers pulled off their second straight win over a ranked team Sunday after upsetting No. 18 Illinois just three days ago.`\
+https://nytimes.com/athletic/6108235/2025/02/02/nebraska-oregon-mens-basketball-results/
+
 **Relief efforts after the California wildfires are woven into the ceremony.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/relief-efforts-after-the-california-wildfires-are-woven-into-the-ceremony

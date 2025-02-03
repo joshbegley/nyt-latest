@@ -1,3 +1,19 @@
+**Free-agent starter Jack Flaherty returns to Tigers on 2-year deal**\
+`For the 29-year-old Flaherty, it’s a payday that seemed likely from his time as an ascendant young starter with the St. Louis Cardinals.`\
+https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-mlb-free-agency/
+
+**From Patrick Mahomes to Lil Wayne, celebs had much to say about the Luka Dončić trade**\
+`Celebrities took to social media to offer their opinions on one of the biggest trades across sports — not just pro basketball — in years.`\
+https://nytimes.com/athletic/6107451/2025/02/02/luka-to-the-lakers-had-celebrities-talking-im-happy-and-miserable-at-the-same-time/
+
+**In Panama, Rubio Says China Threatens Canal, Demanding ‘Immediate’ Action**\
+`Secretary of State Marco Rubio told the country’s president that the United States could take unspecified steps to “protect its rights,” according to the State Department.`\
+https://nytimes.com/2025/02/02/world/americas/marco-rubio-panama.html
+
+**Nebraska upsets Oregon 77-71 for fourth win over top-25 team**\
+`The Huskers pulled off their second straight win over a ranked team Sunday after upsetting No. 18 Illinois just three days ago.`\
+https://nytimes.com/athletic/6108235/2025/02/02/nebraska-oregon-mens-basketball-results/
+
 **Relief efforts after the California wildfires are woven into the ceremony.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/relief-efforts-after-the-california-wildfires-are-woven-into-the-ceremony
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/02/arts/music/chappell-roan-best-new-artist-grammys.
 **Caitlin Clark returned to Iowa for her jersey retirement. Then the Hawkeyes put on a show**\
 `Fans in Iowa celebrated Clark for her jersey retirement but also lauded USC's JuJu Watkins. `\
 https://nytimes.com/athletic/6108118/2025/02/02/caitlin-clark-jersey-retirement-iowa-usc/
-
-**What Did Ye’s Wife Wear to the Grammys? Not Much.**\
-`Bianca Censori, who has become known for her provocative looks, took the concept of showing skin to another level.`\
-https://nytimes.com/2025/02/02/style/bianca-censori-kanye-grammys.html
-
-**Chappell Roan brings her ‘Pink Pony Club’ to the Grammy stage.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-brings-her-pink-pony-club-to-the-grammy-stage
-
-**Beyoncé’s ‘Cowboy Carter’ Wins Grammy for Best Country Album**\
-`Beyoncé, who was nominated for 11 awards, also won for best country duo/group performance for the song “II Most Wanted.”`\
-https://nytimes.com/2025/02/02/arts/music/beyonce-best-country-album-grammys-2025.html
-
-**Quote of the Day: Forget Pokémon, Here’s the New Big Small Thing**\
-`Quotation of the Day for Sunday, February 2, 2025.`\
-https://nytimes.com/2025/02/02/pageoneplus/quote-of-the-day-forget-pokemon-heres-the-new-big-small-thing.html
 
