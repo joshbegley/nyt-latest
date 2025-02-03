@@ -1,3 +1,7 @@
+**Marcus Rashford to Aston Villa: The Athletic 500 transfer ratings**\
+`We rate Marcus Rashford's move to Villa Park as part of the Transfer 500 series`\
+https://nytimes.com/athletic/6108721/2025/02/03/marcus-rashford-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **Weekend NHL rankings: Huge cap news, more blockbuster trades and oh yeah, games**\
 `Off-ice moves continue to shake up the NHL with a second straight Friday blockbuster and an upcoming rise to the salary cap.`\
 https://nytimes.com/athletic/6107868/2025/02/03/nhl-weekend-rankings-jt-miller-trade-salary-cap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6107975/2025/02/03/manchester-united-city-chelsea-b
 **How N.F.L.’s Saints Helped Catholic Church Address a Sex-Abuse Scandal**\
 `A trove of emails shows the team’s leadership using their influence in New Orleans to aid the archdiocese, including writing talking points for media interviews.`\
 https://nytimes.com/2025/02/03/business/new-orleans-saints-catholic-church-abuse.html
-
-**What boxes do the Jets need to check at the trade deadline? Catching up with Kevin Cheveldayoff**\
-`The Jets have the look — and place in the standings — of a true Cup contender. What are they looking to do to bolster their run?`\
-https://nytimes.com/athletic/6107499/2025/02/03/jets-trade-deadline-plans-cheveldayoff/
 
