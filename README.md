@@ -18,8 +18,8 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/billie-eilish-2025-grammys
 `David Fisher, a professional rope jumper and performer, was honored by Westfield, Ind., on Monday after using a jump rope to rescue a teenager who had fallen through an icy pond.`\
 https://nytimes.com/2025/02/02/us/jump-rope-rescue-indiana-pond.html
 
-**Taylor Swift hasn’t won record or song of the year Grammys — yet.**\
-`By Hank Shteamer`\
+**Taylor Swift Hasn’t Won Record or Song of the Year Grammys. Yet.**\
+`Despite earning 14 Grammys to date, the singer-songwriter has struck out in two big categories.`\
 https://nytimes.com/2025/02/02/arts/music/taylor-swift-grammy-awards.html
 
 **Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
