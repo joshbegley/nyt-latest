@@ -1,3 +1,11 @@
+**Trump Urges Trading Ukraine’s Rare Earth Minerals for More U.S. Aid**\
+`Ukraine has already emphasized that by supporting its war effort, the U.S. could get access to the country’s wealth of critical minerals like lithium and uranium.`\
+https://nytimes.com/2025/02/03/world/europe/trump-ukraine-rare-earth-minerals.html
+
+**New Yorkers’ Already-High Electric Bills Could Get Even Higher**\
+`It is unclear by how much, but experts said that a tariff of 10 percent or more would add costs that would be passed on to consumers to some extent.`\
+https://nytimes.com/2025/02/03/us/tariffs-canada-ny-electric-bills.html
+
 **Hiker Found Dead at Zion National Park in Utah After Apparent Fall**\
 `The body of the 37-year-old man, who had been visiting the park with his mother, was found on a popular trail on Sunday, the authorities said.`\
 https://nytimes.com/2025/02/03/us/hiker-death-zion-national-park.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/03/us/trump-usaid-news/democrats-spotlight-the-
 **NASL failed to prove USSF and MLS conspired against it, jury decides**\
 `The North American Soccer League failed to prove in court that the U.`\
 https://nytimes.com/athletic/6110245/2025/02/03/nasl-ussf-mls-lawsuit-verdict/
-
-**Judge Says She Will Further Block White House Spending Freeze**\
-`The statement, along with a similar order from Friday, amounted to a rebuke of the move as an overreach that likely lacked legitimate authority.`\
-https://nytimes.com/2025/02/03/us/politics/white-house-spending-freeze-omb-judge.html
-
-**Republicans Cheer Trump Tariffs as Their Voters Brace for Pain**\
-`G.O.P. lawmakers, including those on the House Agriculture Committee, praised the plan for tariffs on Canada, Mexico and China despite the financial damage a trade war could unleash on American farmers.`\
-https://nytimes.com/2025/02/03/us/republicans-trump-tariffs.html
 
