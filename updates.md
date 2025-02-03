@@ -1,3 +1,7 @@
+**How Filip Chytil and Marcus Pettersson impressed in Canucks debuts: 3 takeaways**\
+`The Canucks fell to Detroit in overtime, but three debutants made excellent first impressions in Vancouver.`\
+https://nytimes.com/athletic/6108028/2025/02/02/canucks-chytil-marcus-pettersson-debuts-red-wings/
+
 **Taylor Swift’s record of the year drought continues.**\
 `Her Post Malone duet “Fortnight” fell to Kendrick Lamar’s “Not Like Us,” which means the superstar still has yet to win one of the Grammys’ top prizes.`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/taylor-swift-loses-record-of-the-year-grammys
