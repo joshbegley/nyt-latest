@@ -1,3 +1,7 @@
+**Hope Solo on her return to soccer: 'It’s hard as hell, I’m sore, but I’ll be competitive'**\
+`The USWNT's greatest-ever goalkeeper returns to action in the The Soccer Tournament in June and will confront some of her former teammates`\
+https://nytimes.com/athletic/6108503/2025/02/03/hope-solo-uswnt-tst-return-interview/
+
 **The Grammy Looks Bring a Welcome Hit of Joy**\
 `Sometimes a red carpet is just a marketing opportunity, but sometimes it’s a statement of faith.`\
 https://nytimes.com/2025/02/03/style/grammys-red-carpet.html
