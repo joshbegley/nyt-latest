@@ -1,5 +1,13 @@
 **Tennis Briefing: Jannik Sinner is a YouTuber and the Davis Cup brings drama**\
 `The world No. 1 joined the tennis vloggers as an innocuous weekend of Davis Cup qualifiers ignited.`\
+https://nytimes.com/athletic/6107532/2025/02/03/jannik-sinner-davis-cup-halep-tennis/
+
+**Marcus Rashford to Aston Villa: The Athletic 500 transfer ratings**\
+`We rate England forward Rashford's loan move to Villa Park as part of the Transfer 500 series`\
+https://nytimes.com/athletic/6108721/2025/02/03/marcus-rashford-to-aston-villa-the-athletic-500-transfer-ratings/
+
+**Tennis Briefing: Jannik Sinner is a YouTuber and the Davis Cup brings drama**\
+`The world No. 1 joined the tennis vloggers as an innocuous weekend of Davis Cup qualifiers ignited.`\
 https://nytimes.com/athletic/6107532/2025/02/03/jannik-sinner-youtube-channel-tennis/
 
 **Dodger Details: Tyler Glasnow's comeback and other notes from 'Dodgerfest'**\
