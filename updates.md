@@ -1,3 +1,7 @@
+**Word of the Day: mollify**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/03/learning/word-of-the-day-mollify.html
+
 **Super Bowl LIX, Plus 9 Things to Watch on TV This Week**\
 `The Philadelphia Eagles and Kansas City Chiefs will face off, after the much anticipated Puppy Bowl XXI.`\
 https://nytimes.com/2025/02/03/arts/television/super-bowl-lix-tv-this-week.html
