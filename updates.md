@@ -1,3 +1,7 @@
+**Jake Oettinger on Jonathan Quick's legacy, J.T. Miller trade ripples and more: Rangers observations**\
+`Also, Mika Zibanejad on moving to the wing and what picking up Erik Brännström means for Zac Jones.`\
+https://nytimes.com/athletic/6110039/2025/02/03/rangers-observations-oettinger-quick-miller-trade/
+
 **Goodbye, for Now**\
 `After three and a half years, my newsletter is wrapping up.`\
 https://nytimes.com/2025/02/03/opinion/goodbye-for-now.html

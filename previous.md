@@ -1,3 +1,7 @@
+**Jake Oettinger on Jonathan Quick's legacy, J.T. Miller trade ripples and more: Rangers observations**\
+`Also, Mika Zibanejad on moving to the wing and what picking up Erik Brännström means for Zac Jones.`\
+https://nytimes.com/athletic/6110039/2025/02/03/rangers-observations-oettinger-quick-miller-trade/
+
 **Goodbye, for Now**\
 `After three and a half years, my newsletter is wrapping up.`\
 https://nytimes.com/2025/02/03/opinion/goodbye-for-now.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109742/2025/02/03/totally-football-show-djed-spenc
 **Washington owner Josh Harris says Commanders will remain team's nickname**\
 `“I think it's now being embraced by our team, by our culture, by our coaching staff,” Harris said Monday. `\
 https://nytimes.com/athletic/6109925/2025/02/03/washington-commanders-nickname-josh-harris/
-
-**Automakers get a reprieve but brace for further turmoil.**\
-`A pause in tariffs on Mexico at least temporarily averted disruptions to supply chains that would have forced carmakers to raise prices on som`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs/trump-tariffs-auto-mexico-canada
 
