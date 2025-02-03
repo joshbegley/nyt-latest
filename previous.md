@@ -1,3 +1,7 @@
+**Blue Jackets lose two crucial players, fume over officiating in loss to Dallas**\
+`Columbus' three-game win streak came to an end against the Stars with several Blue Jackets' status in question after the game.`\
+https://nytimes.com/athletic/6108178/2025/02/02/blue-jackets-injuries-evason-officiating-stars/
+
 **De'Aaron Fox-Zach LaVine trade grades: Reunion in Sacramento; Wemby gets running mate**\
 `As De'Aaron Fox joins forces with Victor Wembanyama, and Zach LaVine heads to Sacramento, Zach Harper grades the NBA's newest blockbuster`\
 https://nytimes.com/athletic/6108052/2025/02/02/deaaron-fox-spurs-zach-lavine-kings-bulls-nba-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108035/2025/02/02/luka-doncic-mavericks-lakers-nba
 **Chappell Roan calls out record labels after Grammy win.**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-calls-out-record-labels-after-winning-best-new-artist
-
-**Doechii brings her theatrical flair to the Grammys.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/doechii-brings-her-theatrical-flair-to-the-grammys
 

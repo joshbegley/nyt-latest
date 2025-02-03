@@ -1,3 +1,7 @@
+**Blue Jackets lose two crucial players, fume over officiating in loss to Dallas**\
+`Columbus' three-game win streak came to an end against the Stars with several Blue Jackets' status in question after the game.`\
+https://nytimes.com/athletic/6108178/2025/02/02/blue-jackets-injuries-evason-officiating-stars/
+
 **De'Aaron Fox-Zach LaVine trade grades: Reunion in Sacramento; Wemby gets running mate**\
 `As De'Aaron Fox joins forces with Victor Wembanyama, and Zach LaVine heads to Sacramento, Zach Harper grades the NBA's newest blockbuster`\
 https://nytimes.com/athletic/6108052/2025/02/02/deaaron-fox-spurs-zach-lavine-kings-bulls-nba-trade-deadline/
