@@ -1,3 +1,7 @@
+**Why Are Investigators Focused on Night-Vision Goggles in the Deadly Midair Crash?**\
+`Investigators have yet to determine whether the crew of an Army helicopter was wearing the devices when the Black Hawk crashed into a civilian airliner last week.`\
+https://nytimes.com/2025/02/03/us/politics/dc-plane-crash-night-vision-goggles.html
+
 **Hiker Found Dead at Zion National Park in Utah After Apparent Fall**\
 `The body of the 37-year-old man, who had been visiting the park with his mother, was found on a popular trail on Sunday, the authorities said.`\
 https://nytimes.com/2025/02/03/us/hiker-death-zion-national-park.html
