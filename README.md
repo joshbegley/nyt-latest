@@ -1,3 +1,11 @@
+**Caitlin Clark returned to Iowa for her jersey retirement. Then the Hawkeyes put on a show**\
+`Fans in Iowa celebrated Clark for her jersey retirement, but also lauded USC's JuJu Watkins. `\
+https://nytimes.com/athletic/6108118/2025/02/02/caitlin-clark-jersey-retirement-iowa-usc/
+
+**What Did Ye’s Wife Wear to the Grammys? Not Much.**\
+`Bianca Censori, who has become known for her provocative looks, took the concept of showing skin to another level.`\
+https://nytimes.com/2025/02/02/style/bianca-censori-kanye-grammys.html
+
 **Chappell Roan brings her ‘Pink Pony Club’ to the Grammy stage.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/chappell-roan-brings-her-pink-pony-club-to-the-grammy-stage
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-2-2025.html
 **Corrections: Feb. 1, 2025**\
 `Corrections that appeared in print on Saturday, Feb. 1, 2025.`\
 https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-1-2025.html
-
-**Billie Eilish brings a love letter to Los Angeles to the Grammy stage.**\
-`The pop star’s performance of “Birds of a Feather” put a spotlight on her childhood in areas devastated by the recent wildfires.`\
-https://nytimes.com/live/2025/02/02/arts/grammys-2025/billie-eilish-2025-grammys
-
-**Rope-Skipping Pro Uses Jump Rope in Icy Pond Rescue**\
-`David Fisher, a professional rope jumper and performer, was honored by Westfield, Ind., on Monday after using a jump rope to rescue a teenager who had fallen through an icy pond.`\
-https://nytimes.com/2025/02/02/us/jump-rope-rescue-indiana-pond.html
 
