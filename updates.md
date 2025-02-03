@@ -1,3 +1,7 @@
+**Hollinger: Superstar deals show tough decisions teams face in new CBA realm**\
+`Is the era of teams simply paying their stars whatever it takes coming to an end?`\
+https://nytimes.com/athletic/6108350/2025/02/03/luka-doncic-trade-deaaron-fox-nba-collective-bargaining-agreement/
+
 **Crews Lift First Wreckage From D.C. Plane Crash Out of Potomac**\
 `A crane began removing the fuselage of the American Airlines jet that crashed into the Potomac River last week after colliding with an Army helicopter.`\
 https://nytimes.com/2025/02/03/us/dc-plane-crash-potomac-river-wreckage.html
