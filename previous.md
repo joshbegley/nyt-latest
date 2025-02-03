@@ -1,3 +1,7 @@
+**Beyoncé could finally get her album of the year win.**\
+`By Hank Shteamer and Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/beyonce-album-of-the-year-grammys-2025
+
 **How Filip Chytil and Marcus Pettersson impressed in Canucks debuts: 3 takeaways**\
 `The Canucks fell to Detroit in overtime, but three debutants made excellent first impressions in Vancouver.`\
 https://nytimes.com/athletic/6108028/2025/02/02/canucks-chytil-marcus-pettersson-debuts-red-wings/
@@ -14,8 +18,8 @@ https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamars-not-like-u
 `By Ben Sisario`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/stevie-wonder-and-janelle-monae-lead-a-tribute-to-quincy-jones
 
-**Blue Jackets lose two crucial players, fume over officiating in loss to Dallas**\
-`Columbus' three-game win streak came to an end against the Stars with several Blue Jackets' status in question after the game.`\
+**Blue Jackets lose two crucial players, fume over officiating in loss to Stars**\
+`Columbus' 3-game win streak came to an end against Dallas, with the status of several Blue Jackets in question after the game.`\
 https://nytimes.com/athletic/6108178/2025/02/02/blue-jackets-injuries-evason-officiating-stars/
 
 **De'Aaron Fox-Zach LaVine trade grades: Reunion in Sacramento; Wemby gets running mate**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932755/2025/02/02/jack-flaherty-contract-tigers-ml
 **From Patrick Mahomes to Lil Wayne, celebs had much to say about the Luka Dončić trade**\
 `Celebrities took to social media to offer their opinions on one of the biggest trades across sports — not just pro basketball — in years.`\
 https://nytimes.com/athletic/6107451/2025/02/02/luka-doncic-lakers-celebrities-social-media/
-
-**In Panama, Rubio Says China Threatens Canal, Demanding ‘Immediate’ Action**\
-`Secretary of State Marco Rubio told the country’s president that the United States could take unspecified steps to “protect its rights,” according to the State Department.`\
-https://nytimes.com/2025/02/02/world/americas/marco-rubio-panama.html
 

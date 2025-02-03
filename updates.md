@@ -1,3 +1,11 @@
+**Beyoncé could finally get her album of the year win.**\
+`By Hank Shteamer and Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/beyonce-album-of-the-year-grammys-2025
+
+**Blue Jackets lose two crucial players, fume over officiating in loss to Stars**\
+`Columbus' 3-game win streak came to an end against Dallas, with the status of several Blue Jackets in question after the game.`\
+https://nytimes.com/athletic/6108178/2025/02/02/blue-jackets-injuries-evason-officiating-stars/
+
 **How Filip Chytil and Marcus Pettersson impressed in Canucks debuts: 3 takeaways**\
 `The Canucks fell to Detroit in overtime, but three debutants made excellent first impressions in Vancouver.`\
 https://nytimes.com/athletic/6108028/2025/02/02/canucks-chytil-marcus-pettersson-debuts-red-wings/
