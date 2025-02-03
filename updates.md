@@ -1,3 +1,11 @@
+**Lawyers for Justice Dept. employees threaten to sue, saying dismissals violate the law.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/02/02/us/trump-tariffs/lawyers-justice-dept-firing
+
+**Kendrick Lamar wins three early Grammys for ‘Not Like Us.’**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/kendrick-lamar-wins-3-early-grammys-for-not-like-us
+
 **‘Hell’s Kitchen’ Wins Grammy for Best Musical Theater Album**\
 `The musical, based on the life of Alicia Keys and featuring her music, is running on Broadway and begins a national tour this fall.`\
 https://nytimes.com/2025/02/02/theater/musical-theater-album-grammy.html
