@@ -1,3 +1,11 @@
+**For China, Trump’s Moves Bring Pain, but Also Potential Gains**\
+`President Trump’s tariffs hurt China, but his other actions have alienated U.S. allies, giving Beijing an opening to strengthen its global standing.`\
+https://nytimes.com/2025/02/03/world/asia/china-trump-foreign-aid.html
+
+**Morata joins Galatasaray on loan from Milan**\
+`The former Chelsea, Real Madrid and Juventus striker joins on an initial loan.`\
+https://nytimes.com/athletic/6100027/2025/02/03/alvaro-morata-galatasaray-transfer-milan/
+
 **Chelsea agree loan deal for Chilwell to join Palace**\
 `Chilwell has only played once for Chelsea this season and Enzo Maresca said in August it would be 'better' for him to leave.`\
 https://nytimes.com/athletic/6069082/2025/02/03/chelsea-transfer-news-chilwell-crystal-palace/
