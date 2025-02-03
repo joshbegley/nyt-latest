@@ -1,3 +1,7 @@
+**De'Aaron Fox-Zach LaVine trade grades: Reunion in Sacramento; Wemby gets running mate**\
+`As De'Aaron Fox joins forces with Victor Wembanyama, and Zach LaVine heads to Sacramento, Zach Harper grades the NBA's newest blockbuster`\
+https://nytimes.com/athletic/6108052/2025/02/02/deaaron-fox-spurs-zach-lavine-kings-bulls-nba-trade-deadline/
+
 **Will Smith introduces tribute to Quincy Jones.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2025/02/02/arts/grammys-2025/will-smith-introduces-tribute-to-quincy-jones
