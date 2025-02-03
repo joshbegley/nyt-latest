@@ -1,3 +1,7 @@
+**Shocked by the Luka-AD trade? NBA executives were, too**\
+`"Shocking" and "stunning" were just a couple of ways league execs described the deal to The Athletic on Sunday.`\
+https://nytimes.com/athletic/6106257/2025/02/02/luka-doncic-anthony-davis-trade-nba-executives/
+
 **'Speechless': Kristaps Porziņģis, Celtics react to the Luka Dončić trade to Lakers**\
 `"If Luka can get traded, then anybody can," Celtics forward and Dallas native Jordan Walsh said.`\
 https://nytimes.com/athletic/6107893/2025/02/02/celtics-kristaps-porzingis-luka-doncic-trade-lakers/
@@ -24,7 +28,7 @@ https://nytimes.com/2025/02/02/arts/music/taylor-swift-grammy-awards.html
 
 **Across Border From Detroit, Bafflement and Anger Over U.S. Tariffs**\
 `Windsor, the heart of Canada’s auto industry, had been on the upswing. Now people feel betrayed by a neighbor, fearing that factories will close.`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/trump-tariffs-windsor-canada
+https://nytimes.com/2025/03/02/us/politics/trump-tariffs-windsor-canada.html
 
 **Global Markets Brace for Fallout From Trump Tariffs**\
 `Shares in Japanese and South Korean manufacturers tumbled on concern that tariffs will hurt trade in North America, where they have major investments in factories.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/02/business/stocks-trump-tariffs.html
 **Groundhog Day**\
 `Stuck in a loop, trying to find a way out.`\
 https://nytimes.com/2025/02/02/podcasts/groundhog-day-this-american-life-nyt-audio.html
-
-**Lawyers for Justice Dept. employees threaten to sue, saying dismissals violate the law.**\
-`By Charlie Savage`\
-https://nytimes.com/live/2025/02/02/us/trump-tariffs/lawyers-justice-dept-firing
 
