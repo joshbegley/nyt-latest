@@ -1,3 +1,19 @@
+**Pacific Coast Highway Reopens Nearly 4 Weeks After Devastating Fire**\
+`The stretch of the highway along the Pacific Ocean between Santa Monica and Malibu reopened to regular traffic. Some local officials believe it is too soon.`\
+https://nytimes.com/2025/02/03/us/pch-highway-reopen-los-angeles.html
+
+**Marco Asensio to Aston Villa: The Athletic 500 transfer ratings**\
+`We rate Marco Asensio's loan move to Aston Villa as part of The Athletic's Transfer 500 series`\
+https://nytimes.com/athletic/6108865/2025/02/03/marco-asensio-to-aston-villa-the-athletic-500-transfer-ratings/
+
+**Downpours, Road Closures and Mountain Snow: Enduring a Week of Powerful Storms**\
+`Skiers may delight in the snow forecast, but the latest in a series of atmospheric rivers threatens to bring flooding and mudslides to California.`\
+https://nytimes.com/2025/02/03/weather/california-rain-flooding-atmospheric-river.html
+
+**Villa complete Asensio loan signing from PSG**\
+`Asensio registered two goals and four assists in 16 games for PSG this season.`\
+https://nytimes.com/athletic/6106843/2025/02/03/marco-asensio-aston-villa-loan-transfer/
+
 **A Magazine With a Taste for Provocation (and a Cult Following)**\
 `Wherever it goes, Heavy Traffic draws a stylish, contrarian crowd.`\
 https://nytimes.com/2025/02/03/style/heavy-traffic-magazine.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6109228/2025/02/03/nascar-bowman-gray-stadium-clash
 **Crew's Cucho Hernandez close to Real Betis transfer**\
 `Hernandez, 25, finished second behind Lionel Messi in the voting for MLS MVP for the 2024 season.`\
 https://nytimes.com/athletic/6109728/2025/02/03/cucho-hernandez-betis-crew-transfer-mls/
-
-**Trump’s Tariffs: ‘Economic Warfare’**\
-`Readers respond to President Trump’s moves. Also: Elon Musk’s growing power; childhood vaccines; Israel’s right to exist; democracy imperiled.`\
-https://nytimes.com/2025/02/03/opinion/trump-tariffs-canada-mexico.html
-
-**The Windup: What Scherzer brings to Toronto**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6109788/2025/02/03/max-scherzer-blue-jays-the-windup/
-
-**Illegal N.Y.P.D. Stop-and-Frisk Tactics Continue Unchecked, Monitor Says**\
-`Anti-crime units are still stopping and frisking too many people unlawfully, according to a new report that comes months before a mayoral election in which public safety may be a pivotal issue.`\
-https://nytimes.com/2025/02/03/nyregion/nypd-stop-and-frisk-monitor.html
-
-**Jaune Quick-to-See Smith Wanted to Be the Rule, Not the Exception**\
-`The artist, who died at 85, used Indigenous imagery like the canoe and the buffalo the way Warhol used soup cans.`\
-https://nytimes.com/2025/02/03/arts/design/jaune-quick-to-see-smith-appraisal.html
 

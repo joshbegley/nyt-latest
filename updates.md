@@ -1,3 +1,7 @@
+**A Magazine With a Taste for Provocation (and a Cult Following)**\
+`Wherever it goes, Heavy Traffic draws a stylish, contrarian crowd.`\
+https://nytimes.com/2025/02/03/style/heavy-traffic-magazine.html
+
 **Looking in the Wreckage for the Building My Dad Designed**\
 `Alyce McFadden, a Los Angeles native who helped cover the wildfires, searches for the condo complex her father helped create four decades ago.`\
 https://nytimes.com/2025/02/03/us/wildfires-building-father-designed.html
