@@ -1,3 +1,11 @@
+**Doechii brings her theatrical flair to the Grammys.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/doechii-brings-her-theatrical-flair-to-the-grammys
+
+**Chappell Roan Wins the Grammy for Best New Artist**\
+`The 26-year-old pop star capped a year of breakout success with one of the ceremony’s biggest awards and a candid criticism of the music industry.`\
+https://nytimes.com/2025/02/02/arts/music/chappell-roan-best-new-artist-grammys.html
+
 **Caitlin Clark returned to Iowa for her jersey retirement. Then the Hawkeyes put on a show**\
 `Fans in Iowa celebrated Clark for her jersey retirement but also lauded USC's JuJu Watkins. `\
 https://nytimes.com/athletic/6108118/2025/02/02/caitlin-clark-jersey-retirement-iowa-usc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6106257/2025/02/02/luka-doncic-anthony-davis-trade-
 **'Speechless': Kristaps Porziņģis, Celtics react to the Luka Dončić trade to Lakers**\
 `"If Luka can get traded, then anybody can," Celtics forward and Dallas native Jordan Walsh said.`\
 https://nytimes.com/athletic/6107893/2025/02/02/celtics-kristaps-porzingis-luka-doncic-trade-lakers/
-
-**Corrections: Feb. 2, 2025**\
-`Corrections that appeared in print on Sunday, Feb. 2, 2025.`\
-https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-2-2025.html
-
-**Corrections: Feb. 1, 2025**\
-`Corrections that appeared in print on Saturday, Feb. 1, 2025.`\
-https://nytimes.com/2025/02/02/pageoneplus/corrections-feb-1-2025.html
 
