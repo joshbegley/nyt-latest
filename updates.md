@@ -1,3 +1,7 @@
+**European Leaders on Alert After Trump Says E.U. Will ‘Definitely’ Face Tariffs**\
+`President Trump’s threats are carrying more weight after his moves against Canada, Mexico and China. Europe has been preparing for the possibility of a trade war for months.`\
+https://nytimes.com/2025/02/03/us/politics/trump-tariffs-european-union.html
+
 **The Athletic FC: Arsenal vs City beef, transfer latest, Yamal genius, 12 players on a team**\
 `In today's TAFC: We analyse the growing grudge between Arsenal and Manchester City, bring you the transfer latest, and praise Yamal's genius`\
 https://nytimes.com/athletic/6108667/2025/02/03/arsenal-city-beef-transfer-dealine-day-latest/
