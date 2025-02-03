@@ -1,3 +1,11 @@
+**Leonard Hamilton resigning as Florida State men's hoops coach after season**\
+`FSU coach's 434 wins over 22-plus seasons are the most in program history and the fifth-most ever in the ACC.`\
+https://nytimes.com/athletic/6110272/2025/02/03/leonard-hamilton-resigning-florida-state-basketball-coach/
+
+**As Trump Wields the Power of the U.S. Economy, He Threatens to Diminish It**\
+`The president is right that the economy is a powerful lever against other countries. But how much will his tactics erode it?`\
+https://nytimes.com/2025/02/03/us/politics/trump-economy-threats.html
+
 **Iran Is Developing Plans for Faster, Cruder Weapon, U.S. Concludes**\
 `As Prime Minister Benjamin Netanyahu of Israel prepares to meet with President Trump, the question of whether to strike Iran’s facilities or negotiate with Tehran appears certain to be under debate.`\
 https://nytimes.com/2025/02/03/us/politics/iran-nuclear-weapon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/03/opinion/goodbye-for-now.html
 **DHS: No specific credible terrorist threats surrounding Super Bowl**\
 `NFL head of security Cathy Lanier said the league has reviewed the Jan.1 incident and security surrounding a terrorist attack.`\
 https://nytimes.com/athletic/6109729/2025/02/03/super-bowl-lix-safety-new-orleans-nfl-security/
-
-**Five Highlights From the Sundance Film Festival**\
-`The movies and performances most likely to make an impact in the year ahead, including an ode to 1970s New York and Josh O’Connor going full cowboy.`\
-https://nytimes.com/2025/02/03/t-magazine/sundance-film-festival-standout-moments-movies-performances.html
-
-**F.D.A. Approves Studies of Pig Organ Transplants for Kidney Patients**\
-`The research offers hope to tens of thousands of patients with kidney failure who are on a long waiting list for an organ transplant.`\
-https://nytimes.com/2025/02/03/health/pig-kidney-transplants-clinical-trials.html
 

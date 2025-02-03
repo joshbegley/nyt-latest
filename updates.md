@@ -1,3 +1,11 @@
+**Iran Is Developing Plans for Faster, Cruder Weapon, U.S. Concludes**\
+`As Prime Minister Benjamin Netanyahu of Israel prepares to meet with President Trump, the question of whether to strike Iran’s facilities or negotiate with Tehran appears certain to be under debate.`\
+https://nytimes.com/2025/02/03/us/politics/iran-nuclear-weapon.html
+
+**Judge Seeks to Limit Lawyer Commentary on Lively-Baldoni Suits**\
+`In the case’s first public hearing, a federal judge ordered the actors’ lawyers to limit their statements outside court filings and hearings.`\
+https://nytimes.com/2025/02/03/arts/blake-lively-justin-baldoni-lawyers.html
+
 **Mexico Reaches Deal With Trump Administration to Delay Tariffs**\
 `President Claudia Sheinbaum of Mexico struck a deal to get at least a temporary reprieve from the 25 percent tariffs the Trump administration had planned to implement on Tuesday.`\
 https://nytimes.com/video/world/americas/100000009967057/trump-mexico-tariffs.html
