@@ -1,3 +1,11 @@
+**How Howie Roseman rebuilt the Eagles in two years to return to the Super Bowl**\
+`The task will once again be to beat the Chiefs.`\
+https://nytimes.com/athletic/6106626/2025/02/03/eagles-super-bowl-roster-howie-roseman-general-manager/
+
+**Sam Kerr repeatedly called police officer 'stupid and white', court told as trial begins**\
+`Chelsea striker Sam Kerr repeatedly called a police officer ‘f****** stupid and white’ inside a police station after a night out, a court heard on Monday.`\
+https://nytimes.com/athletic/6109467/2025/02/03/sam-kerr-trial/
+
 **Review: An Affectionate Golden Age Schpoof in ‘Schmigadoon!’**\
 `The Apple TV+ series comes to the stage of the Kennedy Center with its snark and affection for classic Broadway musicals intact.`\
 https://nytimes.com/2025/02/03/theater/schmigadoon-review-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6108658/2025/02/03/usmnt-robinson-trusty-carter-vic
 **Evan Ferguson to West Ham United: The Athletic 500 transfer ratings**\
 `Evan Ferguson has joined West Ham United on loan for the rest of the season`\
 https://nytimes.com/athletic/6109433/2025/02/03/evan-ferguson-to-west-ham-united-the-athletic-500-transfer-ratings/
-
-**Canada in Perilous Position After Trump Cuts Tariff Deal With Mexico**\
-`Some Canadian politicians previously suggested tossing Mexico from a three-nation trade agreement with the United States.`\
-https://nytimes.com/2025/02/03/us/trump-trudeau-canada-tariffs.html
-
-**N.Y. Attorney General Warns Hospitals Against Canceling Transgender Care**\
-`A White House executive order last week threatened to pull federal funding from hospitals that provide gender-affirming care. But not providing the care could violate state law, Letitia James said in a letter on Monday.`\
-https://nytimes.com/2025/02/03/nyregion/ny-attorney-general-transgender-care.html
 
