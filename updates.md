@@ -1,3 +1,7 @@
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6111087/2025/02/03/nhl-mailbag-4-nations-trade-rules-nhl/
+
 **Jeffries Works With N.Y. Democrats to Weaken G.O.P. Control of the House**\
 `New York lawmakers may give Gov. Kathy Hochul more time to schedule special elections, a move backed by the House Democratic leader that could keep a key seat vacant for months.`\
 https://nytimes.com/2025/02/03/nyregion/jeffries-stefanik-house-ny.html
