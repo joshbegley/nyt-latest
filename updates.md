@@ -1,3 +1,7 @@
+**Greenberg: Zach LaVine era is over, but the Bulls' malaise continues**\
+`The Bulls have moved LaVine to Sacramento, but what's next for Chicago?`\
+https://nytimes.com/athletic/6109176/2025/02/03/zach-lavine-bulls-nba-rebuild/
+
 **Hollinger: Superstar deals show tough decisions teams face in new CBA realm**\
 `Is the era of teams simply paying their stars whatever it takes coming to an end?`\
 https://nytimes.com/athletic/6108350/2025/02/03/luka-doncic-trade-deaaron-fox-nba-collective-bargaining-agreement/
