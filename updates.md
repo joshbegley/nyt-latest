@@ -1,3 +1,7 @@
+**Relief efforts after the California wildfires are woven into the ceremony.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2025/02/02/arts/grammys-2025/relief-efforts-after-the-california-wildfires-are-woven-into-the-ceremony
+
 **Luka Dončić to Lakers is 'shocking' to Mavericks, but they have plans to push forward**\
 `"You don't even have the emotions to describe it," Quentin Grimes said of Dončić, who was traded Saturday.`\
 https://nytimes.com/athletic/6108035/2025/02/02/luka-doncic-mavericks-lakers-nba-trade/
