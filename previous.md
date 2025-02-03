@@ -1,5 +1,9 @@
+**Bengals' Trey Hendrickson quandary: Will NFL's sack champ be traded, extended?**\
+`The All-Pro's stellar performance, his age and the need to pay expensive offensive stars make for a complicated situation in Cincinnati.`\
+https://nytimes.com/athletic/6103891/2025/02/03/bengals-trey-hendrickson-future/
+
 **Former Tottenham winger Edwards joins Burnley from Sporting CP**\
-`Former Tottenham Hotspur winger Marcus Edwards has joined Burnley from Sporting CP.`\
+`The 26-year-old is Burnley's fourth addition of the January window.`\
 https://nytimes.com/athletic/6102729/2025/02/03/marcus-edwards-burnley-transfer/
 
 **Raptors need to be patient and stick to rebuilding plan at NBA trade deadline**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/arts/music/grammys-2025-best-worst-moments.html
 **Warren Questions Bessent Over Musk Access to Treasury Payment System**\
 `In a letter to the Treasury secretary, the Democratic senator warned against meddling with a system that processes trillions of dollars of transactions.`\
 https://nytimes.com/2025/02/03/us/politics/warren-bessent-treasury-musk-doge.html
-
-**A Presidency That’s Off the Rails. It Took Only Two Weeks.**\
-`But we’ve underestimated Trump’s political strength many times before.`\
-https://nytimes.com/2025/02/03/opinion/trump-kennedy-patel-gabbard.html
 

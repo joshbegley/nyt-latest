@@ -1,3 +1,11 @@
+**Bengals' Trey Hendrickson quandary: Will NFL's sack champ be traded, extended?**\
+`The All-Pro's stellar performance, his age and the need to pay expensive offensive stars make for a complicated situation in Cincinnati.`\
+https://nytimes.com/athletic/6103891/2025/02/03/bengals-trey-hendrickson-future/
+
+**Former Tottenham winger Edwards joins Burnley from Sporting CP**\
+`The 26-year-old is Burnley's fourth addition of the January window.`\
+https://nytimes.com/athletic/6102729/2025/02/03/marcus-edwards-burnley-transfer/
+
 **Former Tottenham winger Edwards joins Burnley from Sporting CP**\
 `Former Tottenham Hotspur winger Marcus Edwards has joined Burnley from Sporting CP.`\
 https://nytimes.com/athletic/6102729/2025/02/03/marcus-edwards-burnley-transfer/
