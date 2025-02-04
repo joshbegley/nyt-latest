@@ -1,4 +1,8 @@
 **Forest confirm loan signing of Ndala from City**\
+`The deal brings the 18-year-old to the City Ground until the summer with a view to a permanent transfer.`\
+https://nytimes.com/athletic/6110865/2025/02/04/nottingham-forest-loan-joel-ndala-manchester-city/
+
+**Forest confirm loan signing of Ndala from City**\
 `The deal brings the 18-year-old to the County Ground until the summer with a view to a permanent transfer.`\
 https://nytimes.com/athletic/6110865/2025/02/04/nottingham-forest-loan-joel-ndala-manchester-city/
 
