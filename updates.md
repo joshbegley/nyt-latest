@@ -1,3 +1,11 @@
+**NFL to remove 'End Racism' messaging in end zone ahead of Super Bowl: Sources**\
+`"Choose Love" and "It Takes All of Us" will be stenciled onto the back of the end zones at the Caesars Superdome.`\
+https://nytimes.com/athletic/6112317/2025/02/04/nfl-end-racism-super-bowl-dei-trump/
+
+**Wrexham's transfer window reviewed: A £1m signing and an ex-England striker bolster promotion tilt**\
+`Sam Smith and Jay Rodriguez headlined Wrexham's January business as Phil Parkinson's squad got a shot in the arm`\
+https://nytimes.com/athletic/6108741/2025/02/04/wrexham-january-transfer-window-smith-rodriguez-longman/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>High-profile coordinators keep coming and going. Who&#8217;s leaving for the NFL next?</p>
 <p>Leave your questions here. Please include your city.</p>
