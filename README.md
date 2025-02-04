@@ -1,3 +1,11 @@
+**Shopping for Arms? Ukraine May Soon Be Your Best Bet.**\
+`The country should not be just a buyer of weapons but a supplier, thanks to its spirit of innovation.`\
+https://nytimes.com/2025/02/04/opinion/ukraine-russia-weapons-drones.html
+
+**Population Transfers Sanctioned by America? It’s on the Table.**\
+`President Trump’s plan for Palestinians is folly — and dangerous.`\
+https://nytimes.com/2025/02/04/opinion/israel-trump-netanyahu-gaza.html
+
 **Chiefs Super Bowl media night: The Travis Kelce experience, embracing villainy and more**\
 `DeAndre Hopkins opens up about the end of his time in Tennessee that led him to Kansas City, and Patrick Mahomes talks about that bad spike.`\
 https://nytimes.com/athletic/6111539/2025/02/04/chiefs-super-bowl-media-night-travis-kelce-patrick-mahomes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6099684/2025/02/04/newcastle-january-transfer-windo
 **Key transfer questions answered: Did Spurs do enough? Arsenal striker search? Man Utd plan?**\
 `Deadline day has come and gone — with a series of questions left behind. We've answered the key ones across all clubs`\
 https://nytimes.com/athletic/6108914/2025/02/04/transfer-window-latest-analysis-arsenal-manchester-united/
-
-**Why did Liverpool not sign anyone in this winter's transfer window?**\
-`Fans demanding Anfield's powerbrokers sign from a position of strength were disappointed but this squad are being backed to finish the job`\
-https://nytimes.com/athletic/6108909/2025/02/04/liverpool-january-transfer-window-no-signings/
-
-**Trump Ratchets Up Tariffs on China, Drawing Swift Response From Beijing**\
-`A 10 percent tariff on Chinese products took effect on Tuesday, and China announced retaliatory measures, including tariffs and investigations of U.S. companies.`\
-https://nytimes.com/2025/02/04/business/economy/trump-tariffs-china.html
 
