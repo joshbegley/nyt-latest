@@ -1,3 +1,11 @@
+**Patriots Owner’s Son Challenges Michelle Wu for Mayor of Boston**\
+`Josh Kraft, a political newcomer who is running as a Democrat, said his top priority was addressing the city’s housing crisis.`\
+https://nytimes.com/2025/02/04/us/boston-mayor-josh-kraft-michelle-wu.html
+
+**Kultida Woods, Mother of Tiger Woods, Dies at 80**\
+`In announcing her death, Mr. Woods spoke of her sacrifices and support throughout his life and career.`\
+https://nytimes.com/2025/02/04/sports/kultida-woods-dead-tiger-woods-mom.html
+
 **Surveillance Video Shows Brawl in New Mexico Courtroom**\
 `The uncle of a 23-year-old victim attacked the defendant, who was charged with murder in the shooting of his ex-girlfriend.`\
 https://nytimes.com/video/us/100000009969445/albuquerque-courtroom-fight-video.html
