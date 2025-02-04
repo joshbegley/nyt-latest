@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>High-profile coordinators keep coming and going. Who&#8217;s leaving for the NFL next?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6111214/2025/02/04/submit-a-question-for-stewart-mandels-college-football-mailbag-291/
+
 **The Closed Door Battle to Lead the Olympics**\
 `In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
 https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html

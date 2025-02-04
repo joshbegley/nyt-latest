@@ -2,6 +2,12 @@
 `In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
 https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
 
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>High-profile coordinators keep coming and going. Who&#8217;s leaving for the NFL next?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6111214/2025/02/04/submit-a-question-for-stewart-mandels-college-football-mailbag-291/
+
 **A Trump. A Dead Duck. And an Uproar in Italy.**\
 `A video shows Donald Trump Jr. sitting in hunting gear beside a dead protected bird. Italian lawmakers want answers.`\
 https://nytimes.com/2025/02/04/world/europe/donald-trump-jr-duck-hunting-italy.html
@@ -33,8 +39,4 @@ https://nytimes.com/2025/02/04/us/politics/bill-cassidy-senator-rfk-jr.html
 **Grammy Awards Audience Drops 9%**\
 `The awards show drew 15.4 million people this year, down from nearly 17 million last year.`\
 https://nytimes.com/2025/02/04/business/media/grammy-awards-ratings.html
-
-**Charles Barkley won't join NBC or Amazon, still talking with TNT and ESPN**\
-`"I'm hoping this thing comes together and I can stay with TNT and ESPN," Barkley said on "The Steam Room" podcast.`\
-https://nytimes.com/athletic/6112348/2025/02/04/charles-barkley-nbc-amazon-deals-nba/
 
