@@ -1,3 +1,7 @@
+**Adams Went to Albany to Ask for Funding. He Ended Up in the Hot Seat.**\
+`Some lawmakers, including two who are facing the mayor in the June Democratic primary in New York City, challenged his credibility and accomplishments.`\
+https://nytimes.com/2025/02/04/nyregion/adams-albany-mayor-election.html
+
 **Show Tunes and Martinis at a Party for Michael Kors**\
 `Alan Cumming, Katie Holmes and Iman were among the celebrities who gathered at Café Carlyle in Manhattan to toast the designer’s new flagship store.`\
 https://nytimes.com/2025/02/04/style/show-tunes-and-martinis-at-a-party-for-michael-kors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/business/waffle-house-egg-surcharge.html
 **Sabres' lack of response after Tage Thompson injury 'won't happen again'**\
 `The Sabres missed an opportunity on Sunday to stick up for their star player in a meaningful way.`\
 https://nytimes.com/athletic/6113067/2025/02/04/tage-thompson-injury-sabres-response/
-
-**Democrats protest Trump’s unilateral moves, with little means to stop him.**\
-`Out of power in Congress, Democrats have toiled to find a way to thwart President Trump’s efforts to steer around Congress on spending and policy. With no Republican backing, there’s not much they can do.`\
-https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/trump-senate-democrats-protest
 
