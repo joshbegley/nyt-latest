@@ -1,3 +1,7 @@
+**Why West Ham and Graham Potter need Evan Ferguson - and the striker needs them**\
+`The Ireland international has joined on loan for the rest of the season craving game time and should thrive under a familiar coaching setup`\
+https://nytimes.com/athletic/6109520/2025/02/04/west-ham-ferguson-potter-brighton-loan/
+
 **El Salvador’s President Offers to Accept Criminals From U.S. for a Fee**\
 `Secretary of State Marco Rubio praised President Nayib Bukele’s “unprecedented, extraordinary” proposal to accept any convicted criminal deported by the United States.`\
 https://nytimes.com/2025/02/04/us/politics/el-salvador-prisons-marco-rubio.html
