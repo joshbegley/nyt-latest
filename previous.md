@@ -1,3 +1,11 @@
+**Europe Has a Message for Americans: Tariffs on Us Would Hurt You, Too**\
+`Officials have made it clear that with jobs and companies dependent on the relationship between the United States and Europe, both sides would lose in a trade war.`\
+https://nytimes.com/2025/02/04/us/europe-trump-tariffs-us-impact.html
+
+**Don’t Let the A.I. Optimists Fool You**\
+`Readers are wary of what profiteers and governments will do with this technology. Also: Withdrawing from the W.H.O.; L.A. fires; acts of resistance.`\
+https://nytimes.com/2025/02/04/opinion/artificial-intelligence-ai.html
+
 **PepsiCo Adding Healthier Snacks as Consumers Shun Salt and Fat**\
 `Rising consumer demand for fewer empty calories is pushing the snack and beverage giant to offer options with less sodium, fat and artificial ingredients.`\
 https://nytimes.com/2025/02/04/business/pepsico-earnings-salty-snacks.html
@@ -31,12 +39,4 @@ https://nytimes.com/2025/02/04/arts/music/anna-netrebko-us-opera-putin.html
 **‘Not Like Us’ Reinvented Kendrick Lamar. Is the Super Bowl Ready for It?**\
 `After sweeping the Grammys on Sunday, Lamar’s ubiquitous Drake diss could be the centerpiece of the halftime show. That, it bears mentioning, is pretty strange.`\
 https://nytimes.com/2025/02/04/arts/music/kendrick-lamar-super-bowl-not-like-us.html
-
-**A curse on the Bills was lifted, and the truth behind it is stranger than fiction**\
-`The curse originated in an episode of "The X-Files."`\
-https://nytimes.com/athletic/6108718/2025/02/04/buffalo-bills-smoking-man-x-files-curse-super-bowl/
-
-**Crevette Is a French Excursion for the Lord’s and Dame Team**\
-`The chef Paul Carmichael opens Bar Kabawa with Momofuku, Lulla’s offers Venezuelan baked goods and more restaurant news.`\
-https://nytimes.com/2025/02/04/dining/nyc-restaurant-news.html
 

@@ -1,3 +1,11 @@
+**Europe Has a Message for Americans: Tariffs on Us Would Hurt You, Too**\
+`Officials have made it clear that with jobs and companies dependent on the relationship between the United States and Europe, both sides would lose in a trade war.`\
+https://nytimes.com/2025/02/04/us/europe-trump-tariffs-us-impact.html
+
+**Don’t Let the A.I. Optimists Fool You**\
+`Readers are wary of what profiteers and governments will do with this technology. Also: Withdrawing from the W.H.O.; L.A. fires; acts of resistance.`\
+https://nytimes.com/2025/02/04/opinion/artificial-intelligence-ai.html
+
 **PepsiCo Adding Healthier Snacks as Consumers Shun Salt and Fat**\
 `Rising consumer demand for fewer empty calories is pushing the snack and beverage giant to offer options with less sodium, fat and artificial ingredients.`\
 https://nytimes.com/2025/02/04/business/pepsico-earnings-salty-snacks.html
