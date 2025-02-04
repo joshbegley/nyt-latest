@@ -1,3 +1,7 @@
+**Trump names a loyalist to be C.I.A. deputy director.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-a-loyalist-to-be-cia-deputy-director
+
 **A Daring Rescue Under a Subway Train Leads to an Emotional Reunion**\
 `Joseph Lynskey was shoved into the path of an oncoming train and survived. On Monday, he thanked the firefighters who rescued him.`\
 https://nytimes.com/2025/02/03/nyregion/joseph-lynskey-subway-firefighters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/nyregion/jeffries-stefanik-house-ny.html
 **Nico Gonzalez to Manchester City: The Athletic 500 transfer ratings**\
 `Manchester City have confirmed the permanent signing of Nico Gonzalez from Porto`\
 https://nytimes.com/athletic/6110929/2025/02/03/nico-gonzalez-manchester-city-transfer-analysis/
-
-**Mexico Managed to Stave Off Trump’s Tariffs. Now What?**\
-`Mexico managed to temporarily avoid President Trump’s threatened 25 percent tariffs by making promises on border security, but it is unclear if the country can fulfill its pledge.`\
-https://nytimes.com/2025/02/03/world/americas/mexico-tariffs-trump.html
 
