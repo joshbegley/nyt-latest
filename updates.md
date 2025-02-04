@@ -1,3 +1,7 @@
+**Cooper Kupp says the Rams told the star receiver they are going to trade him**\
+`Drafted in 2017, Kupp won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs in the Rams' Super Bowl season.`\
+https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>High-profile coordinators keep coming and going. Who&#8217;s leaving for the NFL next?</p>
 <p>Leave your questions here. Please include your city.</p>

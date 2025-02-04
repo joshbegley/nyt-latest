@@ -5,7 +5,7 @@
 https://nytimes.com/athletic/6111214/2025/02/03/submit-a-question-for-stewart-mandels-college-football-mailbag-291/
 
 **Cooper Kupp says the Rams told the star receiver they are going to trade him**\
-`The Rams drafted Kupp in 2017 and he won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs.`\
+`Drafted in 2017, Kupp won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs in the Rams' Super Bowl season.`\
 https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
 
 **Fay Vincent’s final warning to MLB: 'Gambling always leads to corruption'**\
