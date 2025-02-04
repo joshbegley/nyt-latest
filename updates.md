@@ -1,3 +1,11 @@
+**The Athletic FC: City's late £50m deal, top transfers in window, Hermoso 'received death threats'**\
+`Today in TAFC: Man City's late £50m splash, the best deals reviewed, Hermoso says she received death threats after Rubiales kiss`\
+https://nytimes.com/athletic/6111912/2025/02/04/citys-late-50m-deal-top-transfers-hermoso-received-death-threats-after-rubiales-kiss/
+
+**Medical Experts Raise Grave Doubts Over Conviction of ‘Killer Nurse’ Lucy Letby**\
+`After assessing the cases of 17 babies at the heart of the British nurse’s murder trials, a panel of specialists said that they had found no evidence that Ms. Letby had murdered anyone.`\
+https://nytimes.com/2025/02/04/world/europe/lucy-letby-nurse-uk-shoo-lee.html
+
 **The Pulse: Another superstar on the move?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6109800/2025/02/04/myles-garrett-trade-request-the-pulse/
