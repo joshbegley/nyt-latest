@@ -1,7 +1,3 @@
-**PepsiCo Adding Healthier Snacks as Consumers Shun Salt and Fat**\
-`Rising consumer demand for fewer empty calories is pushing the snack and beverage giant to offer options with less sodium, fat and artificial ingredients.`\
-https://nytimes.com/2025/02/04/business/pepsico-earnings-salty-snacks.html
-
 **NFL to remove 'End Racism' messaging in end zone ahead of Super Bowl: Sources**\
 `"Choose Love" and "It Takes All of Us" will be stenciled onto the back of the end zones at the Caesars Superdome.`\
 https://nytimes.com/athletic/6112317/2025/02/04/nfl-end-racism-super-bowl-dei-trump/
@@ -39,4 +35,8 @@ https://nytimes.com/athletic/6108718/2025/02/04/buffalo-bills-smoking-man-x-file
 **Crevette Is a French Excursion for the Lord’s and Dame Team**\
 `The chef Paul Carmichael opens Bar Kabawa with Momofuku, Lulla’s offers Venezuelan baked goods and more restaurant news.`\
 https://nytimes.com/2025/02/04/dining/nyc-restaurant-news.html
+
+**Chelsea confirm signing of Amougou from Saint-Etienne**\
+`Amougou, who has made 17 appearances in Ligue 1 this season, has moved to Chelsea for a fee in the region of £12.5m on an 8-year contract.`\
+https://nytimes.com/athletic/6109419/2025/02/04/chelsea-saint-etienne-amougou-transfer/
 
