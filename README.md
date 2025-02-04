@@ -1,3 +1,11 @@
+**What Streak Would You Like to Attempt?**\
+`Is there a goal you’d like to pursue by doing something every day for weeks or even months in a row? What do you think might happen as a result?`\
+https://nytimes.com/2025/02/04/learning/what-streak-would-you-like-to-attempt.html
+
+**Weekly Student New Quiz: Plane Crash, A.I. Breakthrough, N.B.A.**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/02/04/learning/04StudentNewsQuiz.html
+
 **Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
 `The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
 https://nytimes.com/athletic/6109370/2025/02/04/chiefs-prop-bets-super-bowl-59/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6112029/2025/02/04/liverpool-alexander-arnold-injur
 **The Athletic FC: City's late £50m deal, top transfers in window, Hermoso 'received death threats'**\
 `Today in TAFC: Man City's late £50m splash, the best deals reviewed, Hermoso says she received death threats after Rubiales kiss`\
 https://nytimes.com/athletic/6111912/2025/02/04/citys-late-50m-deal-top-transfers-hermoso-received-death-threats-after-rubiales-kiss/
-
-**Top Doctors Raise Grave Doubts Over Conviction of ‘Killer Nurse’ Lucy Letby**\
-`After assessing the cases of 17 babies cited at her original trial, a panel of world-renowned specialists said that they had found no evidence that Ms. Letby had murdered anyone.`\
-https://nytimes.com/2025/02/04/world/europe/lucy-letby-nurse-uk-appeal-evidence.html
-
-**The Pulse: Another superstar on the move?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/6109800/2025/02/04/myles-garrett-trade-request-the-pulse/
 
