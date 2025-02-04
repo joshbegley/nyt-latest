@@ -1,3 +1,7 @@
+**USMNT's Cardoso signs Betis contract extension to 2030**\
+`USMNT midfielder Johnny Cardoso has signed a contract extension at Real Betis through to 2030.`\
+https://nytimes.com/athletic/6112098/2025/02/04/johnny-cardoso-betis-contract-usmnt/
+
 **Joao Felix completes Milan loan move from Chelsea**\
 `Felix joins Milan on a straight loan deal without a buy option, which will also include a loan fee package worth €5.5million.`\
 https://nytimes.com/athletic/6110559/2025/02/04/joao-felix-milan-loan-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/world/middleeast/syria-turkey-al-shara-erdogan.ht
 **With NBA trade deadline near, Bulls are keeping their word and gutting the roster**\
 `LaVine did what he could in Chicago, but trading him was a move that many thought needed to be made. What's next for the Bulls?`\
 https://nytimes.com/athletic/6111522/2025/02/04/bulls-nba-trade-deadline-zach-lavine/
-
-**What Streak Would You Like to Attempt?**\
-`Is there a goal you’d like to pursue by doing something every day for weeks or even months in a row? What do you think might happen as a result?`\
-https://nytimes.com/2025/02/04/learning/what-streak-would-you-like-to-attempt.html
 
