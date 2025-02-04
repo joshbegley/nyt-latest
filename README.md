@@ -1,3 +1,15 @@
+**The 10 most shocking college sports transactions — no Luka for AD, but lots of fleeing coaches**\
+`College athletes do switch teams, quite a lot lately, but the shocking moves at this level involve coaches leaving one job for another.`\
+https://nytimes.com/athletic/6111276/2025/02/04/shocking-college-coaching-moves/
+
+**How different will Michigan's offense be? Breaking down the 2025 roster**\
+`Where Michigan's offense stands after the portal window, with several transfers and 2025 recruits poised to make an instant impact.`\
+https://nytimes.com/athletic/6109577/2025/02/04/michigan-football-roster-2025-offense/
+
+**2025 college baseball preseason All-Americans: ACC, SEC lead the way with most selections**\
+`The SEC should be the top conference in 2025, but the ACC features more proven star power. `\
+https://nytimes.com/athletic/6097043/2025/02/04/college-baseball-2025-all-americans-sec-acc/
+
 **Patriots free agents: Ranking their top 10 players expected to be available**\
 `With NFL free agency quickly approaching, it's jarring to see who could be headed elsewhere despite the Patriots' on-field woes.`\
 https://nytimes.com/athletic/6108980/2025/02/04/patriots-nfl-free-agent-rankings/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/trump-president-washington-dc.html
 **These Settlements With Trump Are Weakening Press Freedoms**\
 `Media institutions and technology companies are offering obscene sums of money to settle feeble or frivolous lawsuits.`\
 https://nytimes.com/2025/02/04/opinion/trump-media-lawsuit-freedom.html
-
-**A.I. Is Coming for Hank Azaria’s ‘Simpsons’ Voices**\
-`Soon enough, artificial intelligence may be able to recreate the sounds — but there will be something missing.`\
-https://nytimes.com/interactive/2025/02/04/opinion/simpsons-hank-azaria-voice-acting-AI.html
-
-**Too Busy Blurbing Books to Write One**\
-`For the novelist Rebecca Makkai, writing blurbs had become nearly a full-time job. She explains why blurbs matter — and why she’s taking a break.`\
-https://nytimes.com/2025/02/04/books/review/simon-and-schuster-blurbs-books.html
-
-**Fed Official Pushes Back on Pre-emptive Policy Moves**\
-`Mary C. Daly, the president of the Federal Reserve Bank of San Francisco, said the central bank needed to assess the “scope, magnitude and timing” of President Trump’s policies.`\
-https://nytimes.com/2025/02/04/business/mary-daly-federal-reserve-trump.html
 
