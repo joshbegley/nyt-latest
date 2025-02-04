@@ -1,3 +1,7 @@
+**Democrats Challenge Musk’s Efforts to Dismantle U.S.A.I.D.**\
+`In front of the headquarters of the government’s largest humanitarian aid agency, Democratic lawmakers joined protesters to speak out against the drastic changes to U.S.A.I.D.`\
+https://nytimes.com/video/us/politics/100000009968608/usaid-elon-musk-trump-democrats.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/04/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109656/2025/02/04/manchester-city-transfer-window-
 **With the window shut and wantaway players out, Enzo Maresca can breathe easy**\
 `Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
 https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
-
-**Aston Villa's transfer window: Emery's Rashford wish, Disasi beats deadline, Duran's exit**\
-`Villa's window has been turbulent and eye-opening — it has ended with high-profile arrivals and notable exits from Unai Emery's squad`\
-https://nytimes.com/athletic/6042120/2025/02/04/aston-villa-transfer-window-rashford-disasi-duran/
 
