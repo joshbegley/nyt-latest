@@ -1,3 +1,7 @@
+**Forest confirm loan signing of Ndala from City**\
+`The deal brings the 18-year-old to the County Ground until the summer with a view to a permanent transfer.`\
+https://nytimes.com/athletic/6110865/2025/02/04/nottingham-forest-loan-joel-ndala-manchester-city/
+
 **With the window shut and wantaway players out, Enzo Maresca can breathe easy**\
 `Maresca disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
 https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
