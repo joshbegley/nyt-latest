@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6111912/2025/02/04/citys-late-50m-deal-top-transfer
 
 **Medical Experts Raise Grave Doubts Over Conviction of ‘Killer Nurse’ Lucy Letby**\
 `After assessing the cases of 17 babies at the heart of the British nurse’s murder trials, a panel of specialists said that they had found no evidence that Ms. Letby had murdered anyone.`\
-https://nytimes.com/2025/02/04/world/europe/lucy-letby-nurse-uk-shoo-lee.html
+https://nytimes.com/2025/02/04/world/europe/lucy-letby-nurse-uk-appeal-evidence.html
 
 **The Pulse: Another superstar on the move?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
