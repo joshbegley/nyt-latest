@@ -1,3 +1,11 @@
+**Richard Williamson, Renegade Priest and Holocaust Denier, Dies at 84**\
+`Ordained as a bishop by a traditionalist sect, he was excommunicated then reinstated by the Vatican, but was undone by his antisemitic views.`\
+https://nytimes.com/2025/02/04/world/europe/richard-williamson-dead.html
+
+**Dončić shocked when told of trade: 'I had to check if it was April 1st'**\
+`"I was almost asleep, so when I got a call, I had to check if it was April first," Dončić said about learning he was traded to the Lakers.`\
+https://nytimes.com/athletic/6113396/2025/02/04/luka-doncic-trade-injury-intro-news-conference-lakers/
+
 **Watch: What other moves could the Lakers make before the trade deadline?**\
 `The Athletic NBA Daily discuss what further moves the Lakers need to make before Thursday's trade deadline.`\
 https://nytimes.com/athletic/6113030/2025/02/04/nba-daily-lakers-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/us/trump-tariffs-china-consumer-costs.html
 **The Newest, Biggest Investment Fund: The United States Government?**\
 `Sovereign wealth funds invest state or government money. They’re typically created from budget surpluses or revenues from oil or other commodities.`\
 https://nytimes.com/2025/02/04/business/trump-sovereign-wealth-fund.html
-
-**Mt. Rushmore and a Third Term: G.O.P. Lawmakers Rush to Flatter Trump**\
-`A competition of sorts has broken out to see who can be the most pro-Trump member of Congress.`\
-https://nytimes.com/2025/02/04/us/politics/gop-lawmakers-trump.html
-
-**Trump Rehires Neil Jacobs, Former NOAA Chief Involved in ‘Sharpiegate’**\
-`A respected atmospheric scientist, Dr. Jacobs was found to have violated NOAA’s code of ethics in 2019.`\
-https://nytimes.com/2025/02/04/climate/trump-neil-jacobs-noaa-sharpiegate.html
 
