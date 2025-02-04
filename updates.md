@@ -1,3 +1,7 @@
+**Who Is Bill Cassidy, the Republican Whose Support Is Crucial for Kennedy?**\
+`Senator Bill Cassidy, a Republican doctor, had deep misgivings about Robert F. Kennedy Jr.’s nomination for health secretary, citing his views on vaccines. But in a key committee session, he voted yes.`\
+https://nytimes.com/2025/02/04/us/politics/bill-cassidy-senator-rfk-jr.html
+
 **Grammy Awards Audience Drops 9%**\
 `The awards show drew 15.4 million people this year, down from nearly 17 million last year.`\
 https://nytimes.com/2025/02/04/business/media/grammy-awards-ratings.html

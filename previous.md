@@ -1,3 +1,7 @@
+**Who Is Bill Cassidy, the Republican Whose Support Is Crucial for Kennedy?**\
+`Senator Bill Cassidy, a Republican doctor, had deep misgivings about Robert F. Kennedy Jr.’s nomination for health secretary, citing his views on vaccines. But in a key committee session, he voted yes.`\
+https://nytimes.com/2025/02/04/us/politics/bill-cassidy-senator-rfk-jr.html
+
 **Grammy Awards Audience Drops 9%**\
 `The awards show drew 15.4 million people this year, down from nearly 17 million last year.`\
 https://nytimes.com/2025/02/04/business/media/grammy-awards-ratings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/dining/this-superfast-bolognese-has-a-secret-ingr
 **Jenna Nighswonger: Arsenal's USWNT recruit on her European dream, olimpicos and idolising Rooney**\
 `Trading Gotham for the WSL is somewhat close enough to Nighswonger realising a childhood dream of playing for Manchester United's men team`\
 https://nytimes.com/athletic/6109434/2025/02/04/jenna-nighswonger-arsenal-interview/
-
-**What to Expect From the Rain in California**\
-`Powerful storms this week are elevating the risk of flooding from San Francisco to the north and bringing rain to areas burned by last month’s wildfires around Los Angeles.`\
-https://nytimes.com/2025/02/04/weather/los-angeles-rain-california-san-francisco.html
 
