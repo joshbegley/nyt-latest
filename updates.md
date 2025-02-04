@@ -1,3 +1,19 @@
+**Surveillance Video Shows Brawl in New Mexico Courtroom**\
+`The uncle of a 23-year-old victim attacked the defendant, who was charged with murder in the shooting of his ex-girlfriend.`\
+https://nytimes.com/video/us/100000009969445/albuquerque-courtroom-fight-video.html
+
+**What’s at Stake for Google in China?**\
+`China said it had started an antitrust investigation of Google, which works with Chinese companies on smartphones and advertising outside the country.`\
+https://nytimes.com/2025/02/04/technology/china-google-antitrust-investigation.html
+
+**Alonzo Davis, 82, Whose L.A. Gallery Became a Hub for Black Art, Dies**\
+`An accomplished artist himself, he and his brother created one of the few showcases in the U.S. for an emerging generation of Black artists in the late 1960s.`\
+https://nytimes.com/2025/02/04/arts/alonzo-davis-dead.html
+
+**N.Y.C. Suburb Deploys Detectives to Aid Trump’s Deportation Crackdown**\
+`Nassau County, on Long Island, becomes the second county in New York State to join a federal program that uses local law enforcement officers as ICE agents.`\
+https://nytimes.com/2025/02/04/nyregion/ice-deportation-nassau-blakeman.html
+
 **Falcons QB Kirk Cousins now says injury affected his late-season play**\
 `Cousins says he suffered a shoulder injury in Week 10 against the Saints and never returned to full strength afterward.`\
 https://nytimes.com/athletic/6112955/2025/02/04/falcons-kirk-cousins-shoulder-injury/

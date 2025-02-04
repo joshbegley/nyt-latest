@@ -1,3 +1,19 @@
+**Surveillance Video Shows Brawl in New Mexico Courtroom**\
+`The uncle of a 23-year-old victim attacked the defendant, who was charged with murder in the shooting of his ex-girlfriend.`\
+https://nytimes.com/video/us/100000009969445/albuquerque-courtroom-fight-video.html
+
+**What’s at Stake for Google in China?**\
+`China said it had started an antitrust investigation of Google, which works with Chinese companies on smartphones and advertising outside the country.`\
+https://nytimes.com/2025/02/04/technology/china-google-antitrust-investigation.html
+
+**Alonzo Davis, 82, Whose L.A. Gallery Became a Hub for Black Art, Dies**\
+`An accomplished artist himself, he and his brother created one of the few showcases in the U.S. for an emerging generation of Black artists in the late 1960s.`\
+https://nytimes.com/2025/02/04/arts/alonzo-davis-dead.html
+
+**N.Y.C. Suburb Deploys Detectives to Aid Trump’s Deportation Crackdown**\
+`Nassau County, on Long Island, becomes the second county in New York State to join a federal program that uses local law enforcement officers as ICE agents.`\
+https://nytimes.com/2025/02/04/nyregion/ice-deportation-nassau-blakeman.html
+
 **Falcons QB Kirk Cousins now says injury affected his late-season play**\
 `Cousins says he suffered a shoulder injury in Week 10 against the Saints and never returned to full strength afterward.`\
 https://nytimes.com/athletic/6112955/2025/02/04/falcons-kirk-cousins-shoulder-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6112894/2025/02/04/big-12-football-schedule-2025-ma
 **Greenland, Eyeing Trump, Bans Foreign Political Funding**\
 `The law, billed as an effort “to safeguard Greenland’s political integrity,” came ahead of parliamentary elections.`\
 https://nytimes.com/2025/02/04/world/europe/greenland-trump-political-funding.html
-
-**Scoop City: Garrett, Kupp and Stafford could move**\
-`Inside: Potential landing spots for Myles Garrett and Cooper Kupp, plus Tom Brady&#8217;s current rookie season and two more Super Bowl props.`\
-https://nytimes.com/athletic/6113018/2025/02/04/myles-garrett-cooper-kupp-nfl-trades-scoop-city/
-
-**Trump Wants to Know Why U.S. Cars Are Rare in Germany. Here Are a Few Reasons.**\
-`German cars are popular in the United States, but U.S. cars are not as prevalent on German roads. One reason: tiny European streets and parking spots.`\
-https://nytimes.com/2025/02/04/business/trump-germany-cars-tariffs.html
-
-**Two-time All-Pro safety Micah Hyde retiring from NFL after 11 seasons**\
-`Hyde defied the odds as a 2013 fifth-round draft pick, logging over 600 tackles and 24 interceptions in his professional career.`\
-https://nytimes.com/athletic/6112838/2025/02/04/micah-hyde-retiring-nfl-bills-packers/
-
-**Kultida Woods, mother of Tiger Woods, dies at 80**\
-`Kultida a pivotal a force in Tiger’s life as he rose from junior golfer to 15-time major champion.`\
-https://nytimes.com/athletic/6112905/2025/02/04/kultida-woods-death-tiger/
 

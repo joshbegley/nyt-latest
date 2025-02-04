@@ -1,3 +1,11 @@
+**Patriots Owner’s Son Challenges Michelle Wu for Mayor of Boston**\
+`Josh Kraft, a political newcomer who is running as a Democrat, said his top priority was addressing the city’s housing crisis.`\
+https://nytimes.com/2025/02/04/us/boston-mayor-josh-kraft-michelle-wu.html
+
+**Kultida Woods, Mother of Tiger Woods, Dies at 80**\
+`In announcing her death, Mr. Woods spoke of her sacrifices and support throughout his life and career.`\
+https://nytimes.com/2025/02/04/sports/kultida-woods-dead-tiger-woods-mom.html
+
 **Surveillance Video Shows Brawl in New Mexico Courtroom**\
 `The uncle of a 23-year-old victim attacked the defendant, who was charged with murder in the shooting of his ex-girlfriend.`\
 https://nytimes.com/video/us/100000009969445/albuquerque-courtroom-fight-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/us/new-mexico-courtroom-fight.html
 **Anthony Davis 'very excited' to play alongside Kyrie Irving with Mavericks**\
 `Davis, 31, and Irving, 32, will be the foundational pieces of a Mavericks team that believes it can compete for championships.`\
 https://nytimes.com/athletic/6112918/2025/02/04/nba-trade-news-luka-doncic-anthony-davis-lakers/
-
-**A breakdown as Big 12 unveils 2025 football schedule**\
-`The Big 12's schedule features Farmageddon in Ireland, Kansas-Missouri reigniting and more. The Athletic has a full schedule breakdown.`\
-https://nytimes.com/athletic/6112894/2025/02/04/big-12-football-schedule-2025-matchups-dates/
-
-**Greenland, Eyeing Trump, Bans Foreign Political Funding**\
-`The law, billed as an effort “to safeguard Greenland’s political integrity,” came ahead of parliamentary elections.`\
-https://nytimes.com/2025/02/04/world/europe/greenland-trump-political-funding.html
 
