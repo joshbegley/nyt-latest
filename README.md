@@ -1,3 +1,7 @@
+**Watch: What other moves could the Lakers make before the trade deadline?**\
+`The Athletic NBA Daily discuss what further moves the Lakers need to make before Thursday's trade deadline.`\
+https://nytimes.com/athletic/6113030/2025/02/04/nba-daily-lakers-trade-deadline/
+
 **Here are the 2024 Puzzle Mania Contest Winners**\
 `Plus, the answer grid for the 50 x 50 Super Mega crossword.`\
 https://nytimes.com/2025/02/04/crosswords/2024-puzzle-mania-winners.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/gop-lawmakers-trump.html
 **Trump Rehires Neil Jacobs, Former NOAA Chief Involved in ‘Sharpiegate’**\
 `A respected atmospheric scientist, Dr. Jacobs was found to have violated NOAA’s code of ethics in 2019.`\
 https://nytimes.com/2025/02/04/climate/trump-neil-jacobs-noaa-sharpiegate.html
-
-**Wisconsin football program loses GM Max Stienecker to USC**\
-`Stienecker, 24, was instrumental in helping build Wisconsin’s last two recruiting classes under head coach Luke Fickell.`\
-https://nytimes.com/athletic/6113334/2025/02/04/wisconsin-football-program-loses-gm-max-stienecker-to-usc/
 
