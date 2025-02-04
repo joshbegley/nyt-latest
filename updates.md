@@ -1,3 +1,15 @@
+**Wolves' transfer window: £42m of under-the-radar acquisitions and Lemina set to leave**\
+`The three players brought in are relative unknowns but they may be enough to keep Wolves from the drop`\
+https://nytimes.com/athletic/6110296/2025/02/04/wolves-transfer-window-review/
+
+**Tuesday Briefing**\
+`Deals to avert a North American trade war.`\
+https://nytimes.com/2025/02/04/briefing/tariffs-trump-iran-nuclear.html
+
+**Newcastle's transfer window reviewed: PSR constraints (again), £20m for Kelly and summer impact**\
+`Another window has passed without Newcastle strengthening their first team, so where does it leave Eddie Howe and his squad?`\
+https://nytimes.com/athletic/6099684/2025/02/04/newcastle-january-transfer-window-review/
+
 **Key transfer questions answered: Did Spurs do enough? Arsenal striker search? Man Utd plan?**\
 `Deadline day has come and gone — with a series of questions left behind. We've answered the key ones across all clubs`\
 https://nytimes.com/athletic/6108914/2025/02/04/transfer-window-latest-analysis-arsenal-manchester-united/
