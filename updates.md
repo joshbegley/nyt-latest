@@ -1,3 +1,7 @@
+**U.S. Set to Fly Migrants to Guantánamo**\
+`The decision to send migrants from the United States to Guantánamo Bay is a change in how the country handles people it deports.`\
+https://nytimes.com/2025/02/04/us/politics/migrants-guantanamo-trump.html
+
 **A 525-Pound Bear Found a Crawl Space That Was Jussst Right**\
 `An Altadena, Calif., resident came home after being displaced by the Eaton fire to find a large black bear still hanging out underneath his property.`\
 https://nytimes.com/2025/02/04/us/bear-crawl-space-eaton-fires.html

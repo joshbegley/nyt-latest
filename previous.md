@@ -1,3 +1,7 @@
+**U.S. Set to Fly Migrants to Guantánamo**\
+`The decision to send migrants from the United States to Guantánamo Bay is a change in how the country handles people it deports.`\
+https://nytimes.com/2025/02/04/us/politics/migrants-guantanamo-trump.html
+
 **A 525-Pound Bear Found a Crawl Space That Was Jussst Right**\
 `An Altadena, Calif., resident came home after being displaced by the Eaton fire to find a large black bear still hanging out underneath his property.`\
 https://nytimes.com/2025/02/04/us/bear-crawl-space-eaton-fires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/business/pepsico-earnings-salty-snacks.html
 **NFL to remove 'End Racism' messaging in end zone ahead of Super Bowl: Sources**\
 `"Choose Love" and "It Takes All of Us" will be stenciled onto the back of the end zones at the Caesars Superdome.`\
 https://nytimes.com/athletic/6112317/2025/02/04/nfl-end-racism-super-bowl-dei-trump/
-
-**Wrexham's transfer window reviewed: A £1m signing and an ex-England striker bolster promotion tilt**\
-`Sam Smith and Jay Rodriguez headlined Wrexham's January business as Phil Parkinson's squad got a shot in the arm`\
-https://nytimes.com/athletic/6108741/2025/02/04/wrexham-january-transfer-window-smith-rodriguez-longman/
 
