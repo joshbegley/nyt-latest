@@ -1,3 +1,15 @@
+**Who wants Brandon Ingram? What about Jock Landale? Evaluating Southwest Division trade ideas**\
+`Here's an opportunity to put on a general manager's hat to see how many trades make sense and which teams would say no. `\
+https://nytimes.com/athletic/6107280/2025/02/04/brandon-ingram-nba-trade-ideas/
+
+**Ranking the Bears' top unrestricted free agents: Will Teven Jenkins, Keenan Allen return?**\
+`The Bears' list of free agents worth re-signing in 2025 isn't long. Who will the new coaching staff value?`\
+https://nytimes.com/athletic/6109526/2025/02/04/bears-2025-unrestricted-free-agents-ranking/
+
+**Viana leaves Sporting ahead of joining Man City as director of football**\
+`Viana was initially due to leave the Portuguese club at the end of the 2024-25 season, but has now brought that date forward.`\
+https://nytimes.com/athletic/6111920/2025/02/04/hugo-viana-manchester-city-director/
+
 **Inside Musk’s Government Takeover, and Frantic Tariff Negotiations**\
 `Plus, “Onyx Storm” smashes onto shelves.`\
 https://nytimes.com/2025/02/04/podcasts/the-headlines/elon-musks-government-tariff-canada-mexico.html
