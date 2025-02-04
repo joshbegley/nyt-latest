@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>High-profile coordinators keep coming and going. Who&#8217;s leaving for the NFL next?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6111214/2025/02/03/submit-a-question-for-stewart-mandels-college-football-mailbag-291/
+
 **Cooper Kupp says the Rams told the star receiver they are going to trade him**\
 `The Rams drafted Kupp in 2017 and he won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs.`\
 https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
@@ -33,8 +39,4 @@ https://nytimes.com/2025/02/03/technology/musk-allies-ai-government.html
 **Everton sign Alcaraz from Flamengo**\
 `The loan move also contains an obligation to buy providing Alcaraz, 22, makes an undisclosed number of league starts.`\
 https://nytimes.com/athletic/6108547/2025/02/03/carlos-alcaraz-everton-transfer/
-
-**Trump Is Running America the Way America Ran Iraq**\
-`He and his team are treating the government like hostile territory to be conquered.`\
-https://nytimes.com/2025/02/03/opinion/trump-musk-iraq-takeover.html
 
