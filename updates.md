@@ -1,3 +1,7 @@
+**Where Trump’s Trade Fight Could Go Next**\
+`New tariffs on Chinese imports are on, even as Canada and Mexico won a reprieve. Could the European Union be next? And how is the president defining victory?`\
+https://nytimes.com/2025/02/04/business/dealbook/trump-trade-china-european-union.html
+
 **Liverpool defender Alexander-Arnold avoids serious injury**\
 `Alexander-Arnold came off with 20 minutes to go at Bournemouth on Saturday after pulling up with discomfort in his thigh.`\
 https://nytimes.com/athletic/6112029/2025/02/04/liverpool-alexander-arnold-injury-update/
