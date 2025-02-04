@@ -1,3 +1,7 @@
+**Conditions May Have Stymied Black Hawk Crew Before Fatal Crash**\
+`The Army pilots were juggling dark skies, low altitude, a busy airspace and a cockpit without certain traffic detectors before the helicopter’s midair crash with a regional passenger jet.`\
+https://nytimes.com/2025/02/04/us/politics/plane-helicopter-crash-reagan-airport.html
+
 **Gene Barge, R&B Saxophonist Who Played on Landmark Hits, Dies at 98**\
 `Known as Daddy G, he recorded with Jackie Wilson, Chuck Willis and others, but he was best known for the Gary U.S. Bonds smash “Quarter to Three.”`\
 https://nytimes.com/2025/02/04/arts/music/gene-barge-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/nyregion/joe-burrow-home-burglary-charges.html
 **Samuel Butler, Lawyer Who Helped Create Corporate Giants, Dies at 94**\
 `Leading the elite Wall Street firm Cravath, he became a go-to adviser on mergers and acquisitions — “all the big deals that were going on in the ’80s and ’90s.”`\
 https://nytimes.com/2025/02/04/business/dealbook/samuel-butler-dead.html
-
-**Proposal Calls for Restoring Tulsa Massacre Neighborhood**\
-`If approved, the plan would provide cash payments, a new hospital and the potential returning of land to descendants of the victims.`\
-https://nytimes.com/2025/02/04/us/tulsa-massacre-reparations.html
 
