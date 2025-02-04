@@ -1,3 +1,7 @@
+**A Wealthy and Unhappy Nation**\
+`What a new study found about America.`\
+https://nytimes.com/2025/02/04/briefing/a-wealthy-and-unhappy-nation.html
+
 **2025 NHL trade deadline perfect fits: Proposals for Brock Nelson, Ryan O'Reilly and more**\
 `It's an unusual year for midseason trades in the NHL. Let's pick some ideal destinations for names still on the board.`\
 https://nytimes.com/athletic/6107818/2025/02/04/2025-nhl-trade-deadline-perfect-fits/
