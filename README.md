@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6108914/2025/02/04/transfer-window-latest-analysis-
 `Fans demanding Anfield's powerbrokers sign from a position of strength were disappointed but this squad are being backed to finish the job`\
 https://nytimes.com/athletic/6108909/2025/02/04/liverpool-january-transfer-window-no-signings/
 
-**Trump Ratchets Up Tariffs on China, While Canada and Mexico Get Reprieve**\
-`A 10 percent tariff on Chinese products took effect just after midnight Tuesday, and it remains to be seen if Mr. Trump will strike a deal to remove them.`\
+**Trump Ratchets Up Tariffs on China, Drawing Swift Response From Beijing**\
+`A 10 percent tariff on Chinese products took effect on Tuesday, and China announced retaliatory measures, including tariffs and investigations of U.S. companies.`\
 https://nytimes.com/2025/02/04/business/economy/trump-tariffs-china.html
 
 **The transfer windows that are still open now the Premier League's has shut**\
