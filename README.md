@@ -1,3 +1,7 @@
+**El Salvador’s President Offers to Accept Criminals From U.S. for a Fee**\
+`Secretary of State Marco Rubio praised President Nayib Bukele’s “unprecedented, extraordinary” proposal to accept any convicted criminal deported by the United States.`\
+https://nytimes.com/2025/02/04/us/politics/el-salvador-prisons-marco-rubio.html
+
 **Shopping for Arms? Ukraine May Soon Be Your Best Bet.**\
 `The country should not be just a buyer of weapons but a supplier, thanks to its spirit of innovation.`\
 https://nytimes.com/2025/02/04/opinion/ukraine-russia-weapons-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/briefing/tariffs-trump-iran-nuclear.html
 **Newcastle's transfer window reviewed: PSR constraints (again), £20m for Kelly and summer impact**\
 `Another window has passed without Newcastle strengthening their first team, so where does it leave Eddie Howe and his squad?`\
 https://nytimes.com/athletic/6099684/2025/02/04/newcastle-january-transfer-window-review/
-
-**Key transfer questions answered: Did Spurs do enough? Arsenal striker search? Man Utd plan?**\
-`Deadline day has come and gone — with a series of questions left behind. We've answered the key ones across all clubs`\
-https://nytimes.com/athletic/6108914/2025/02/04/transfer-window-latest-analysis-arsenal-manchester-united/
 
