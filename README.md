@@ -19,7 +19,7 @@ https://nytimes.com/2025/02/04/us/trump-mexico-tariff-negotiations.html
 https://nytimes.com/athletic/6109504/2025/02/04/eagles-prop-bets-super-bowl-59/
 
 **USMNT's Cardoso signs Betis contract extension to 2030**\
-`USMNT midfielder Johnny Cardoso has signed a contract extension at Real Betis through to 2030.`\
+`Cardoso,  apped 18 times by the U.S., has added a further 12 months onto his existing contract at the Seville-based club.`\
 https://nytimes.com/athletic/6112098/2025/02/04/johnny-cardoso-betis-contract-usmnt/
 
 **Joao Felix completes Milan loan move from Chelsea**\
