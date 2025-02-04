@@ -1,3 +1,11 @@
+**Patriots free agents: Ranking their top 10 players expected to be available**\
+`With NFL free agency quickly approaching, it's jarring to see who could be headed elsewhere despite the Patriots' on-field woes.`\
+https://nytimes.com/athletic/6108980/2025/02/04/patriots-nfl-free-agent-rankings/
+
+**Myles Garrett trade proposals: 10 teams that would make sense for Browns All-Pro**\
+`Now that Garrett has formally requested a trade, what would it take for Cleveland to deal the reigning Defensive Player of the Year? `\
+https://nytimes.com/athletic/6110306/2025/02/04/myles-garrett-trade-proposals-browns-bills-commanders/
+
 **Trump and Netanyahu Meeting Is Expected to Focus on Gaza Cease-Fire**\
 `The president will welcome the Israeli prime minister to the White House for his first in-person meeting with another world leader since returning to power.`\
 https://nytimes.com/2025/02/04/us/politics/trump-netanyahu-meeting-israel-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/books/review/simon-and-schuster-blurbs-books.html
 **Fed Official Pushes Back on Pre-emptive Policy Moves**\
 `Mary C. Daly, the president of the Federal Reserve Bank of San Francisco, said the central bank needed to assess the “scope, magnitude and timing” of President Trump’s policies.`\
 https://nytimes.com/2025/02/04/business/mary-daly-federal-reserve-trump.html
-
-**Kennedy’s Nomination for Health Secretary Faces Critical Test**\
-`The Senate Finance Committee is voting Tuesday on whether to move Robert F. Kennedy Jr.’s nomination forward. All eyes are on Senator Bill Cassidy, a G.O.P. doctor uneasy with Mr. Kennedy’s vaccine views.`\
-https://nytimes.com/2025/02/04/us/politics/rfk-jr-senate-vote-finance-committee.html
-
-**‘Trump’s Thomas Cromwell’ Is Waiting in the Wings**\
-`Russell Vought views American politics as a life-or-death struggle between the God-fearing right and a malevolent, secular left.`\
-https://nytimes.com/2025/02/04/opinion/trump-vought-omb-government.html
 

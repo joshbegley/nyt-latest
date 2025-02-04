@@ -1,3 +1,11 @@
+**Patriots free agents: Ranking their top 10 players expected to be available**\
+`With NFL free agency quickly approaching, it's jarring to see who could be headed elsewhere despite the Patriots' on-field woes.`\
+https://nytimes.com/athletic/6108980/2025/02/04/patriots-nfl-free-agent-rankings/
+
+**Myles Garrett trade proposals: 10 teams that would make sense for Browns All-Pro**\
+`Now that Garrett has formally requested a trade, what would it take for Cleveland to deal the reigning Defensive Player of the Year? `\
+https://nytimes.com/athletic/6110306/2025/02/04/myles-garrett-trade-proposals-browns-bills-commanders/
+
 **Trump and Netanyahu Meeting Is Expected to Focus on Gaza Cease-Fire**\
 `The president will welcome the Israeli prime minister to the White House for his first in-person meeting with another world leader since returning to power.`\
 https://nytimes.com/2025/02/04/us/politics/trump-netanyahu-meeting-israel-gaza.html
