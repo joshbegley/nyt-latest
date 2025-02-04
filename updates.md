@@ -1,3 +1,11 @@
+**Proposal Calls for Restoring Tulsa Massacre Neighborhood**\
+`If approved, the plan would provide cash payments, a new hospital and the potential returning of land to descendants of the victims.`\
+https://nytimes.com/2025/02/04/us/tulsa-massacre-reparations.html
+
+**Collector Sues David Geffen to Reclaim a Sculpture Worth Millions**\
+`In court papers, the collector says an adviser, without authorization, schemed to sell a Giacometti sculpture he bought for $78 million to the entertainment mogul.`\
+https://nytimes.com/2025/02/04/arts/david-geffen-giacometti-sculpture.html
+
 **L.A. Faces Pressure From Wealthy Residents as Pacific Palisades Rebuilds**\
 `The neighborhood is likely to grow more expensive and exclusive as millionaire Angelenos demand a fast-track recovery.`\
 https://nytimes.com/2025/02/04/realestate/la-fires-pacific-palisades-rebuilding.html
