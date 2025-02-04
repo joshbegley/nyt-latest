@@ -1,3 +1,23 @@
+**How Beyoncé Finally Won Her Elusive Grammy**\
+`The Recording Academy has worked to reshape its voting pool, but the triumph of “Cowboy Carter” as album of the year can’t be traced to any one factor.`\
+https://nytimes.com/2025/02/04/arts/music/beyonce-album-of-the-year-grammy.html
+
+**City make 44% of the spend and second-highest outlay ever: The Premier League winter window analysed**\
+`The winter transfer window is now closed for Premier League clubs and we have taken a look at the key takeaways from the past month`\
+https://nytimes.com/athletic/6111744/2025/02/04/transfer-window-analysed-premier-league/
+
+**‘Accidental’ F.B.I. Chief Builds a Following as Agency’s Defender**\
+`Brian Driscoll was accidentally catapulted into the acting director’s chair on Jan. 20 and has defended the bureau from the potential of mass firings, inspiring memes and satirical clips.`\
+https://nytimes.com/2025/02/04/us/politics/fbi-director-brian-driscoll-trump-justice-department.html
+
+**This Superfast Bolognese Has a Secret Ingredient**\
+`Genevieve Ko’s clever new recipe uses a pantry standby to add deep, complex flavor to a dinner that comes together in just over 30 minutes.`\
+https://nytimes.com/2025/02/04/dining/this-superfast-bolognese-has-a-secret-ingredient.html
+
+**Jenna Nighswonger: Arsenal's USWNT recruit on her European dream, olimpicos and idolising Rooney**\
+`Trading Gotham for the WSL is somewhat close enough to Nighswonger realising a childhood dream of playing for Manchester United's men team`\
+https://nytimes.com/athletic/6109434/2025/02/04/jenna-nighswonger-arsenal-interview/
+
 **What to Expect From the Rain in California**\
 `Powerful storms this week are elevating the risk of flooding from San Francisco to the north and bringing rain to areas burned by last month’s wildfires around Los Angeles.`\
 https://nytimes.com/2025/02/04/weather/los-angeles-rain-california-san-francisco.html
@@ -17,20 +37,4 @@ https://nytimes.com/athletic/6101678/2025/02/04/danny-coulombe-contract-twins-ml
 **Lawsuit Accuses Neil Gaiman of Sexual Assault Facilitated by His Wife**\
 `Scarlett Pavlovich, who accused Mr. Gaiman of rape and assault in a report last month, said in the suit that his wife had played a role in “procuring and presenting” her.`\
 https://nytimes.com/2025/02/04/books/neil-gaiman-lawsuit-sexual-abuse.html
-
-**What to watch this week in the NBA: All eyes on Spurs, Lakers, Mavs and Kings after trades**\
-`Behold, the weirdest week in professional basketball! There are some interesting matchups surrounding Thursday's trade deadline.`\
-https://nytimes.com/athletic/6111080/2025/02/04/nba-how-to-watch-celtics-knicks-lakers-mavericks-thunder-spurs-trade-deadline/
-
-**Teenager Known for Lifesaving Skills Is Killed in Shark Attack in Australia**\
-`Charlize Zmuda, 17, died after being bitten by a shark off Woorim Beach, a popular spot in Queensland, on Monday afternoon.`\
-https://nytimes.com/2025/02/04/world/australia/australia-shark-attack-girl-killed.html
-
-**Was a Guantánamo Confession Voluntary? A Judge Will Soon Decide.**\
-`The 9/11 case is at a crossroads in the long running challenge over whether a key confession is tainted by C.I.A. torture`\
-https://nytimes.com/2025/02/04/us/politics/guantanamo-sept-11-trial-confession.html
-
-**NBA Power Rankings: Trades shaking the league like a Polaroid picture**\
-`The Thunder and Cavs remain on top, but who knows what the Association's pecking order will look like after Thursday?`\
-https://nytimes.com/athletic/6111975/2025/02/04/nba-power-rankings-grizzlies-mavericks-lakers-knicks/
 
