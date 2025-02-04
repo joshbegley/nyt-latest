@@ -1,3 +1,7 @@
+**Grammy Awards Audience Drops 9%**\
+`The awards show drew 15.4 million people this year, down from nearly 17 million last year.`\
+https://nytimes.com/2025/02/04/business/media/grammy-awards-ratings.html
+
 **Charles Barkley won't join NBC or Amazon, still talking with TNT and ESPN**\
 `"I'm hoping this thing comes together and I can stay with TNT and ESPN," Barkley said on "The Steam Room" podcast.`\
 https://nytimes.com/athletic/6112348/2025/02/04/charles-barkley-nbc-amazon-deals-nba/
