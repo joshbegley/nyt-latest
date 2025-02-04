@@ -1,3 +1,15 @@
+**The 10 most shocking college sports transactions — no Luka for AD, but lots of fleeing coaches**\
+`College athletes do switch teams, quite a lot lately, but the shocking moves at this level involve coaches leaving one job for another.`\
+https://nytimes.com/athletic/6111276/2025/02/04/shocking-college-coaching-moves/
+
+**How different will Michigan's offense be? Breaking down the 2025 roster**\
+`Where Michigan's offense stands after the portal window, with several transfers and 2025 recruits poised to make an instant impact.`\
+https://nytimes.com/athletic/6109577/2025/02/04/michigan-football-roster-2025-offense/
+
+**2025 college baseball preseason All-Americans: ACC, SEC lead the way with most selections**\
+`The SEC should be the top conference in 2025, but the ACC features more proven star power. `\
+https://nytimes.com/athletic/6097043/2025/02/04/college-baseball-2025-all-americans-sec-acc/
+
 **Patriots free agents: Ranking their top 10 players expected to be available**\
 `With NFL free agency quickly approaching, it's jarring to see who could be headed elsewhere despite the Patriots' on-field woes.`\
 https://nytimes.com/athletic/6108980/2025/02/04/patriots-nfl-free-agent-rankings/
