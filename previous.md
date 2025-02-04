@@ -1,3 +1,7 @@
+**Word of the Day: arboretum**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/04/learning/word-of-the-day-arboretum.html
+
 **Why West Ham and Graham Potter need Evan Ferguson - and the striker needs them**\
 `The Ireland international has joined on loan for the rest of the season craving game time and should thrive under a familiar coaching setup`\
 https://nytimes.com/athletic/6109520/2025/02/04/west-ham-ferguson-potter-brighton-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6110296/2025/02/04/wolves-transfer-window-review/
 **Brighton's transfer window: Cashin, Ferguson and two trademark summer deals part of busy January**\
 `Has Brighton's transfer window been a success? Given the nature of their recruitment, only time will tell...`\
 https://nytimes.com/athletic/6108625/2025/02/04/brightons-transfer-window-reviewed-once-again-bloom-and-co-take-a-longer-term-view/
-
-**Tuesday Briefing**\
-`Deals to avert a North American trade war.`\
-https://nytimes.com/2025/02/04/briefing/tariffs-trump-iran-nuclear.html
 

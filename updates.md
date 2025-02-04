@@ -1,3 +1,7 @@
+**Word of the Day: arboretum**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/04/learning/word-of-the-day-arboretum.html
+
 **Why West Ham and Graham Potter need Evan Ferguson - and the striker needs them**\
 `The Ireland international has joined on loan for the rest of the season craving game time and should thrive under a familiar coaching setup`\
 https://nytimes.com/athletic/6109520/2025/02/04/west-ham-ferguson-potter-brighton-loan/
