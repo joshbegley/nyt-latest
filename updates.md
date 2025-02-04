@@ -1,3 +1,7 @@
+**Defense Secretary Vows to Use Thousands of Active-Duty Troops to Secure Border**\
+`Defense Secretary Pete Hegseth and Thomas D. Homan, President Trump’s border czar, toured areas near Mexico.`\
+https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html
+
 **Defense Secretary Vows to Use Thousands of Active-Duty Troops to Protect Border**\
 `Defense Secretary Pete Hegseth and Thomas D. Homan, President Trump’s border czar, toured areas near Mexico.`\
 https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html
