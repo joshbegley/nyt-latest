@@ -1,3 +1,7 @@
+**What Does Trump Really Want From Canada and Mexico?**\
+`President Trump’s demands on the United States’ neighbors are difficult to measure. That allows him to declare victory when he sees fit.`\
+https://nytimes.com/2025/02/03/us/politics/trump-canada-mexico.html
+
 **The Lives Cut Short by the D.C. Plane Crash**\
 `They were from all over — Kansas, Washington, D.C. and the surrounding area, and as far away as the Philippines.`\
 https://nytimes.com/interactive/2025/02/03/us/dc-plane-crash-victims.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6111114/2025/02/03/fay-vincent-mlb-commissioner-gam
 **Roger Goodell on state of NFL: Refs, 18-game schedule, Tom Brady, more**\
 `NFL commissioner expressed his bullishness on the league as he addressed a number of hot topics in a pre-Super Bowl media conference.`\
 https://nytimes.com/athletic/6110786/2025/02/03/roger-goodell-super-bowl-news-conference-nfl/
-
-**Why Scapegoating Works for Trump**\
-`It helps him explain away complex problems and pull a coalition together.`\
-https://nytimes.com/2025/02/03/us/politics/trump-blame-politics.html
 
