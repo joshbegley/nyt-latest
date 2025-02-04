@@ -1,3 +1,11 @@
+**We still don't know who didn't vote for Ichiro after BBWAA releases ballots**\
+`A total of 394 voters submitted their ballots. Of those, 321 were made public Tuesday. But the Ichiro dissenter's ballot wasn't one of them.`\
+https://nytimes.com/athletic/6112460/2025/02/04/ichiro-suzuki-vote-mlb-baseball-hall-of-fame/
+
+**Arteta 'disappointed' in Arsenal transfer window: 'We haven't achieved our intention'**\
+`Mikel Arteta has admitted that Arsenal were &#8220;disappointed&#8221; not to sign anyone in the winter transfer window, but felt the need to remain ‘disciplined’ in how they acted.`\
+https://nytimes.com/athletic/6112508/2025/02/04/arsenal-transfer-january-window-mikel-arteta/
+
 **Twins to sign reliever Danny Coulombe to 1-year deal: Sources**\
 `The Twins have finally agreed to sign a major-league free agent, reuniting with the lefty on a one-year deal, according to league sources.`\
 https://nytimes.com/athletic/6101678/2025/02/04/danny-coulombe-contract-twins-mlb-free-agency/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6111975/2025/02/04/nba-power-rankings-grizzlies-mav
 **Xfinity ending title sponsorship of NASCAR's second-tier series**\
 `Xfinity has served as the entitlement sponsor for the Xfinity Series since 2015.`\
 https://nytimes.com/athletic/6112249/2025/02/04/nascar-xfinity-sponsorship-change/
-
-**Mexico Deploys 10,000 National Guard Members to U.S. Border: What to Know**\
-`President Claudia Sheinbaum’s government said the National Guard members had redeployed to 18 cities and towns along the U.S.-Mexico border as part of a deal to delay U.S. tariffs.`\
-https://nytimes.com/2025/02/04/world/americas/mexico-troops-border-deal-trump.html
-
-**Trump Orders Could Drain Millions From Universities, but Few Protest Openly**\
-`Efforts by the administration to cut diversity efforts and foreign aid have upended campuses. But many university leaders seem wary of provoking a president who has glorified retribution.`\
-https://nytimes.com/2025/02/04/us/trump-executive-orders-universities.html
 
