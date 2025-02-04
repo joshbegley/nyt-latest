@@ -1,3 +1,7 @@
+**Falcons QB Kirk Cousins now says injury affected his late-season play**\
+`Cousins says he suffered a shoulder injury in Week 10 against the Saints and never returned to full strength afterward.`\
+https://nytimes.com/athletic/6112955/2025/02/04/falcons-kirk-cousins-shoulder-injury/
+
 **Mavericks acquire Caleb Martin from 76ers: Source**\
 `The 29-year-old Martin, best known for his 2023 playoff heroics, now joins a revamped Mavericks team led by Anthony Davis and Kyrie Irving.`\
 https://nytimes.com/athletic/6113029/2025/02/04/caleb-martin-mavericks-trade-quentin-grimes/
