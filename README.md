@@ -1,3 +1,7 @@
+**A little Hollywood flash helps Chiefs' offense heat up for the Super Bowl**\
+`How Andy Reid and company are coaching up their Super Bowl rookies, and a look at two Chiefs-Eagles battles in the trenches.`\
+https://nytimes.com/athletic/6113572/2025/02/04/chiefs-super-bowl-marquise-brown/
+
 **Why We (Still) Think the Grammys Are Good Now**\
 `Big wins for Beyoncé, Kendrick Lamar and Chappell Roan. Standout performances from Doechii and Sabrina Carpenter. A conversation about why the 2025 awards worked.`\
 https://nytimes.com/2025/02/04/arts/music/popcast-grammys.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/business/sec-crypto-task-force.html
 **Man Utd's Malacia completes loan move to PSV**\
 `The deal for Malacia also includes an option to buy for the Dutch side.`\
 https://nytimes.com/athletic/6105179/2025/02/04/tyrell-malacia-psv-loan-manchester-united/
-
-**After full circle move, can DC Jim Knowles unlock Penn State's championship potential?**\
-`Knowles was introduced as Penn State's defensive coordinator on Tuesday, one week after he left Ohio State to take the job.`\
-https://nytimes.com/athletic/6113749/2025/02/04/jim-knowles-penn-state-introduction-defensive-coordinator/
 
