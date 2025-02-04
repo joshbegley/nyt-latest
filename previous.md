@@ -1,3 +1,7 @@
+**Howe 'very reluctant' to lose Kelly; exit wasn't 'necessarily' his decision**\
+`Kelly has joined Juventus on loan with an obligation to buy after signing for Newcastle in the summer.`\
+https://nytimes.com/athletic/6111871/2025/02/04/newcastle-lloyd-kelly-juventus-transfer/
+
 **The U.S. Economy Is Racing Ahead. Almost Everything Else Is Falling Behind.**\
 `The gap between Americans’ prosperity and quality of life has grown since the 1990s.`\
 https://nytimes.com/2025/02/04/briefing/the-us-economy-is-racing-ahead-almost-everything-else-is-falling-behind.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6110306/2025/02/04/myles-garrett-trade-proposals-br
 **Trump and Netanyahu Meeting Is Expected to Focus on Gaza Cease-Fire**\
 `The president will welcome the Israeli prime minister to the White House for his first in-person meeting with another world leader since returning to power.`\
 https://nytimes.com/2025/02/04/us/politics/trump-netanyahu-meeting-israel-gaza.html
-
-**E.P.A. Demotes Career Employees Overseeing Science, Enforcement and More**\
-`A spokeswoman for the agency said the change was “common practice.” Others said it injects partisanship into jobs that have always been neutral.`\
-https://nytimes.com/2025/02/04/climate/epa-demotes-career-employees-overseeing-science-enforcement-and-more.html
 
