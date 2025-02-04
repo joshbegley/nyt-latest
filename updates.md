@@ -1,3 +1,7 @@
+**Chiefs Super Bowl media night: The Travis Kelce experience, embracing villainy and more**\
+`DeAndre Hopkins opens up about the end of his time in Tennessee that led him to Kansas City, and Patrick Mahomes talks about that bad spike.`\
+https://nytimes.com/athletic/6111539/2025/02/04/chiefs-super-bowl-media-night-travis-kelce-patrick-mahomes/
+
 **Leicester's transfer window reviewed: A new right-back, but PSR constraints leave them vulnerable**\
 `One arrival isn't sufficient to give them great confidence of Premier League survival`\
 https://nytimes.com/athletic/6109165/2025/02/04/leicesters-transfer-window-reviewed-a-new-right-back-but-psr-constraints-leave-them-vulnerable/

@@ -1,3 +1,7 @@
+**Chiefs Super Bowl media night: The Travis Kelce experience, embracing villainy and more**\
+`DeAndre Hopkins opens up about the end of his time in Tennessee that led him to Kansas City, and Patrick Mahomes talks about that bad spike.`\
+https://nytimes.com/athletic/6111539/2025/02/04/chiefs-super-bowl-media-night-travis-kelce-patrick-mahomes/
+
 **Leicester's transfer window reviewed: A new right-back, but PSR constraints leave them vulnerable**\
 `One arrival isn't sufficient to give them great confidence of Premier League survival`\
 https://nytimes.com/athletic/6109165/2025/02/04/leicesters-transfer-window-reviewed-a-new-right-back-but-psr-constraints-leave-them-vulnerable/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6108909/2025/02/04/liverpool-january-transfer-windo
 **Trump Ratchets Up Tariffs on China, Drawing Swift Response From Beijing**\
 `A 10 percent tariff on Chinese products took effect on Tuesday, and China announced retaliatory measures, including tariffs and investigations of U.S. companies.`\
 https://nytimes.com/2025/02/04/business/economy/trump-tariffs-china.html
-
-**The transfer windows that are still open now the Premier League's has shut**\
-`Players who want away and clubs needing to sell can still look to Turkey, MLS and Portugal now the window has shut for much of Europe`\
-https://nytimes.com/athletic/6109502/2025/02/04/which-transfer-windows-still-open/
 
