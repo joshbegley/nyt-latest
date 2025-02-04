@@ -1,3 +1,7 @@
+**Corrections: Feb. 4, 2025**\
+`Corrections that appeared in print on Tuesday, Feb. 4, 2025.`\
+https://nytimes.com/2025/02/03/pageoneplus/corrections-feb-4-2025.html
+
 **Unions Sue to Block Musk’s Access to Treasury Payment Data**\
 `The suit was the latest effort by unions representing federal workers to push back against Trump administration directives aimed at undermining the federal bureaucracy.`\
 https://nytimes.com/2025/02/03/us/politics/elon-musk-treasury-payment-data.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/03/us/politics/trump-blame-politics.html
 **Trump names a loyalist to be C.I.A. deputy director.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-a-loyalist-to-be-cia-deputy-director
-
-**A Daring Rescue Under a Subway Train Leads to an Emotional Reunion**\
-`Joseph Lynskey was shoved into the path of an oncoming train and survived. On Monday, he thanked the firefighters who rescued him.`\
-https://nytimes.com/2025/02/03/nyregion/joseph-lynskey-subway-firefighters.html
 
