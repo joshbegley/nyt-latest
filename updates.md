@@ -1,3 +1,7 @@
+**Show Tunes and Martinis at a Party for Michael Kors**\
+`Alan Cumming, Katie Holmes and Iman were among the celebrities who gathered at Café Carlyle in Manhattan to toast the designer’s new flagship store.`\
+https://nytimes.com/2025/02/04/style/michael-kors-party.html
+
 **Adams Went to Albany to Ask for Funding. He Ended Up in the Hot Seat.**\
 `Some lawmakers, including two who are facing the mayor in the June Democratic primary in New York City, challenged his credibility and accomplishments.`\
 https://nytimes.com/2025/02/04/nyregion/adams-albany-mayor-election.html
