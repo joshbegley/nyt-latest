@@ -1,3 +1,7 @@
+**L.A. Faces Pressure From Wealthy Residents as Pacific Palisades Rebuilds**\
+`The neighborhood is likely to grow more expensive and exclusive as millionaire Angelenos demand a fast-track recovery.`\
+https://nytimes.com/2025/02/04/realestate/la-fires-pacific-palisades-rebuilding.html
+
 **A little Hollywood flash helps Chiefs' offense heat up for the Super Bowl**\
 `How Andy Reid and company are coaching up their Super Bowl rookies, and a look at two Chiefs-Eagles battles in the trenches.`\
 https://nytimes.com/athletic/6113572/2025/02/04/chiefs-super-bowl-marquise-brown/

@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/04/briefing/trump-netanyahu-white-house-china-us-tar
 `The engagement is the latest sign of the billionaire’s expanding influence across the government, which already stretches into more than half a dozen agencies.`\
 https://nytimes.com/2025/02/04/us/politics/musk-education-department.html
 
-**L.A. Faces Pressure From Wealthy Residents as the Pacific Palisades Rebuilds**\
+**L.A. Faces Pressure From Wealthy Residents as Pacific Palisades Rebuilds**\
 `The neighborhood is likely to grow more expensive and exclusive as millionaire Angelenos demand a fast-track recovery.`\
 https://nytimes.com/2025/02/04/realestate/la-fires-pacific-palisades-rebuilding.html
 
