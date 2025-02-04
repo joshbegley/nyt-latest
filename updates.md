@@ -1,3 +1,11 @@
+**A 525-Pound Bear Found a Crawl Space That Was Jussst Right**\
+`An Altadena, Calif., resident came home after being displaced by the Eaton fire to find a large black bear still hanging out underneath his property.`\
+https://nytimes.com/2025/02/04/us/bear-crawl-space-eaton-fires.html
+
+**At Least 10 Are Killed at School Shooting in Sweden**\
+`The shooting took place at a school for adult education in the city of Orebro on Tuesday. An official said he did not think it was a terrorist attack.`\
+https://nytimes.com/2025/02/04/world/europe/sweden-school-shooting.html
+
 **At Least 10 Are Killed at School Shooting in Sweden**\
 `The shooting took place at a school for adult education in the city of Orebro on Tuesday. An official said they did not think it was a terrorist attack.`\
 https://nytimes.com/2025/02/04/world/europe/sweden-school-shooting.html

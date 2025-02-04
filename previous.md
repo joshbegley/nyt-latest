@@ -1,5 +1,9 @@
+**A 525-Pound Bear Found a Crawl Space That Was Jussst Right**\
+`An Altadena, Calif., resident came home after being displaced by the Eaton fire to find a large black bear still hanging out underneath his property.`\
+https://nytimes.com/2025/02/04/us/bear-crawl-space-eaton-fires.html
+
 **At Least 10 Are Killed at School Shooting in Sweden**\
-`The shooting took place at a school for adult education in the city of Orebro on Tuesday. An official said they did not think it was a terrorist attack.`\
+`The shooting took place at a school for adult education in the city of Orebro on Tuesday. An official said he did not think it was a terrorist attack.`\
 https://nytimes.com/2025/02/04/world/europe/sweden-school-shooting.html
 
 **U.S.A.I.D. Workers Brace for Agency’s Dismantling**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112317/2025/02/04/nfl-end-racism-super-bowl-dei-tr
 **Wrexham's transfer window reviewed: A £1m signing and an ex-England striker bolster promotion tilt**\
 `Sam Smith and Jay Rodriguez headlined Wrexham's January business as Phil Parkinson's squad got a shot in the arm`\
 https://nytimes.com/athletic/6108741/2025/02/04/wrexham-january-transfer-window-smith-rodriguez-longman/
-
-**The Closed-Door Battle to Lead the Olympics**\
-`In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
-https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
 
