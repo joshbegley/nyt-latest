@@ -1,3 +1,15 @@
+**Messi's Barcelona locker bids surpass Cristiano Ronaldo's Real Madrid locker sale**\
+`Can Messi's locker surpass the record sale for a locker set by Kobe Bryant's? `\
+https://nytimes.com/athletic/6112452/2025/02/04/messi-ronaldo-lockers-barcelona-real-madrid/
+
+**Quentin Grimes-Caleb Martin trade grades: Mavs keep dealing; Sixers get younger**\
+`Grimes is joining his fourth team in four seasons while Martin brings added playoff experience to Dallas.`\
+https://nytimes.com/athletic/6113004/2025/02/04/quentin-grimes-caleb-martin-trade-grades/
+
+**What Are Book Blurbs, and How Much Do They Matter in Publishing?**\
+`An announcement from Simon & Schuster’s publisher left the literary community wondering whether blurbs, the little snippets of praise on a book jacket, are all they’re cracked up to be.`\
+https://nytimes.com/2025/02/04/books/what-are-blurbs-books.html
+
 **Spain coach De la Fuente testifies on second day of Rubiales trial**\
 `De la Fuente gave testimony on the second day of Rubiales' trial for the alleged sexual assault and coercion of Jenni Hermoso`\
 https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-trial/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/us/boston-mayor-josh-kraft-michelle-wu.html
 **Kultida Woods, Mother of Tiger Woods, Dies at 80**\
 `In announcing her death, Mr. Woods spoke of her sacrifices and support throughout his life and career.`\
 https://nytimes.com/2025/02/04/sports/kultida-woods-dead-tiger-woods-mom.html
-
-**Surveillance Video Shows Brawl in New Mexico Courtroom**\
-`The uncle of a 23-year-old victim attacked the defendant, who was charged with murder in the shooting of his ex-girlfriend.`\
-https://nytimes.com/video/us/100000009969445/albuquerque-courtroom-fight-video.html
-
-**What’s at Stake for Google in China?**\
-`China said it had started an antitrust investigation of Google, which works with Chinese companies on smartphones and advertising outside the country.`\
-https://nytimes.com/2025/02/04/technology/china-google-antitrust-investigation.html
-
-**Alonzo Davis, 82, Whose L.A. Gallery Became a Hub for Black Art, Dies**\
-`An accomplished artist himself, he and his brother created one of the few showcases in the U.S. for an emerging generation of Black artists in the late 1960s.`\
-https://nytimes.com/2025/02/04/arts/alonzo-davis-dead.html
 

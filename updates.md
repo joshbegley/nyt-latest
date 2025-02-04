@@ -1,3 +1,15 @@
+**Messi's Barcelona locker bids surpass Cristiano Ronaldo's Real Madrid locker sale**\
+`Can Messi's locker surpass the record sale for a locker set by Kobe Bryant's? `\
+https://nytimes.com/athletic/6112452/2025/02/04/messi-ronaldo-lockers-barcelona-real-madrid/
+
+**Quentin Grimes-Caleb Martin trade grades: Mavs keep dealing; Sixers get younger**\
+`Grimes is joining his fourth team in four seasons while Martin brings added playoff experience to Dallas.`\
+https://nytimes.com/athletic/6113004/2025/02/04/quentin-grimes-caleb-martin-trade-grades/
+
+**What Are Book Blurbs, and How Much Do They Matter in Publishing?**\
+`An announcement from Simon & Schuster’s publisher left the literary community wondering whether blurbs, the little snippets of praise on a book jacket, are all they’re cracked up to be.`\
+https://nytimes.com/2025/02/04/books/what-are-blurbs-books.html
+
 **F.B.I. Agents Ask Court to Bar Trump Team From Disclosing Their Names**\
 `Employees who participated in Jan. 6 investigations contend in two lawsuits that they believe the administration intends to reveal their identities, endangering them and their families.`\
 https://nytimes.com/2025/02/04/us/politics/fbi-names-trump-jan-6-lawsuit.html
