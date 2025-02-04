@@ -1,3 +1,19 @@
+**Leeds transfer window review: No new faces but a squad that should maintain promotion push**\
+`Leeds' winter window was as quiet as they come. Daniel Farke's squad isn't perfect but it should have enough quality if injuries don't bite`\
+https://nytimes.com/athletic/6111054/2025/02/04/leeds-transfer-window-review-archer-joseph/
+
+**Dodgy WiFi, empanadas and an owner in the bath - the Milan hotel where Serie A convenes for deadline day**\
+`Sporting directors and agents descend upon the northern Italian city on the final day of the window to thrash out late deals face to face`\
+https://nytimes.com/athletic/6110749/2025/02/04/milan-hotel-transfers-gallia-sheraton/
+
+**Everton's transfer window: Alcaraz arrives but Moyes and TFG show patience after stunning start**\
+`In the wake of a takeover and a managerial change, Everton hope they have enough quality to avoid relegation ahead of a busy off-season`\
+https://nytimes.com/athletic/6109649/2025/02/04/everton-transfer-window-alcaraz-moyes-tfg/
+
+**Trump Promised a Cap on Credit Card Interest Rates. Here’s His Chance.**\
+`Senators Bernie Sanders and Josh Hawley say they will propose a 10 percent limit on credit card interest rates.`\
+https://nytimes.com/2025/02/04/business/credit-card-interest-cap.html
+
 **A Wealthy and Unhappy Nation**\
 `What a new study found about America.`\
 https://nytimes.com/2025/02/04/briefing/a-wealthy-and-unhappy-nation.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6109526/2025/02/04/bears-2025-unrestricted-free-age
 **Viana leaves Sporting ahead of joining Man City as director of football**\
 `Viana was initially due to leave the Portuguese club at the end of the 2024-25 season, but has now brought that date forward.`\
 https://nytimes.com/athletic/6111920/2025/02/04/hugo-viana-manchester-city-director/
-
-**Inside Musk’s Government Takeover, and Frantic Tariff Negotiations**\
-`Plus, “Onyx Storm” smashes onto shelves.`\
-https://nytimes.com/2025/02/04/podcasts/the-headlines/elon-musks-government-tariff-canada-mexico.html
-
-**Vikings NFL Draft big board: 12 enticing first-round prospects at positions of need**\
-`What could the Vikings be looking for with pick No. 24 in the first round of the draft? How about some help on the interior of the lines?`\
-https://nytimes.com/athletic/6110285/2025/02/04/vikings-nfl-draft-big-board-first-round/
-
-**Ranking the Knicks' best assets as NBA trade deadline nears**\
-`Let's shed some light on how valuable each Knicks player/draft pick is to the organization and how they're valued around the league.`\
-https://nytimes.com/athletic/6111044/2025/02/04/nba-trade-deadline-knicks-assets/
-
-**Blues power rankings: Doug Armstrong's hardball, Jimmy Snuggerud's points, Jim Montgomery's process**\
-`In the inaugural edition of the Blues power rankings, we do a vibe check on 10 items involving the team.`\
-https://nytimes.com/athletic/6109439/2025/02/04/blues-power-rankings-armstrong-snuggerud-montgomery/
 
