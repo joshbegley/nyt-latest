@@ -1,3 +1,15 @@
+**How North America Averted a Trade War, for Now**\
+`Mexico and Canada persuaded President Trump to delay a threatened 25 percent tariff, hours before it was scheduled to bite.`\
+https://nytimes.com/2025/02/04/podcasts/the-daily/canada-mexico-tariff-trade.html
+
+**Connections Companion No. 605**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Feb. 5, 2025.`\
+https://nytimes.com/2025/02/04/crosswords/connections-companion-605.html
+
+**Wordle Review No. 1,327**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Feb. 5, 2025.`\
+https://nytimes.com/2025/02/04/crosswords/wordle-review-1327.html
+
 **West Ham technical director Steidten leaves club**\
 `West Ham United technical director Tim Steidten has left the club, it has been announced.`\
 https://nytimes.com/athletic/6093902/2025/02/04/west-ham-tim-steidten-leaves-club/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6111276/2025/02/04/shocking-college-coaching-moves/
 **How different will Michigan's offense be? Breaking down the 2025 roster**\
 `Where Michigan's offense stands after the portal window, with several transfers and 2025 recruits poised to make an instant impact.`\
 https://nytimes.com/athletic/6109577/2025/02/04/michigan-football-roster-2025-offense/
-
-**2025 college baseball preseason All-Americans: ACC, SEC lead the way with most selections**\
-`The SEC should be the top conference in 2025, but the ACC features more proven star power. `\
-https://nytimes.com/athletic/6097043/2025/02/04/college-baseball-2025-all-americans-sec-acc/
-
-**Patriots free agents: Ranking their top 10 players expected to be available**\
-`With NFL free agency quickly approaching, it's jarring to see who could be headed elsewhere despite the Patriots' on-field woes.`\
-https://nytimes.com/athletic/6108980/2025/02/04/patriots-nfl-free-agent-rankings/
-
-**Myles Garrett trade proposals: 10 teams that would make sense for Browns All-Pro**\
-`Now that Garrett has formally requested a trade, what would it take for Cleveland to deal the reigning Defensive Player of the Year? `\
-https://nytimes.com/athletic/6110306/2025/02/04/myles-garrett-trade-proposals-browns-bills-commanders/
 
