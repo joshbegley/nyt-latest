@@ -1,3 +1,7 @@
+**After full circle move, can DC Jim Knowles unlock Penn State's championship potential?**\
+`Knowles was introduced as Penn State's defensive coordinator on Tuesday, one week after he left Ohio State to take the job.`\
+https://nytimes.com/athletic/6113749/2025/02/04/jim-knowles-penn-state-introduction-defensive-coordinator/
+
 **How to Host a Cozy Winter Meal**\
 `For the colder months, we’re revisiting our favorite cheery candlelit gatherings and sharing tips from expert hosts.`\
 https://nytimes.com/2025/02/04/t-magazine/cozy-winter-meals-inspiration.html
