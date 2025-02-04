@@ -1,3 +1,7 @@
+**What we're hearing about potential Washington Wizards trade deadline deals**\
+`Kyle Kuzma and Jonas Valančiūnas are among the players Washington could trade before Thursday's deadline. `\
+https://nytimes.com/athletic/6111411/2025/02/04/washington-wizards-nba-trade-deadline-intel-kyle-kuzma/
+
 **What you need to know about the Bucks' one big number: Trade deadline primer**\
 `It will be difficult for the Bucks, who have salary cap restraints, to make a big splash before the Feb. 6 trade deadline.`\
 https://nytimes.com/athletic/6092589/2025/02/04/bucks-trade-deadline-primer/

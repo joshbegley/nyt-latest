@@ -1,3 +1,7 @@
+**What we're hearing about potential Washington Wizards trade deadline deals**\
+`Kyle Kuzma and Jonas Valančiūnas are among the players Washington could trade before Thursday's deadline. `\
+https://nytimes.com/athletic/6111411/2025/02/04/washington-wizards-nba-trade-deadline-intel-kyle-kuzma/
+
 **What you need to know about the Bucks' one big number: Trade deadline primer**\
 `It will be difficult for the Bucks, who have salary cap restraints, to make a big splash before the Feb. 6 trade deadline.`\
 https://nytimes.com/athletic/6092589/2025/02/04/bucks-trade-deadline-primer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109370/2025/02/04/chiefs-prop-bets-super-bowl-59/
 **Ranking the Raiders' free agents: Tre'von Moehrig, Robert Spillane should be in demand**\
 `The Raiders have several key defensive players up for new contracts. With Patrick Graham returning, how many will they re-sign? `\
 https://nytimes.com/athletic/6110976/2025/02/04/raiders-2025-free-agents-moehrig-spillane/
-
-**Brighton hope West Ham loan revives Evan Ferguson after niggling injuries and fractured form**\
-`The young Irishman has been reunited with Graham Potter, the head coach who handed him his Premier League debut, at the London Stadium`\
-https://nytimes.com/athletic/6099259/2025/02/04/brighton-ferguson-west-ham-loan-potter/
 
