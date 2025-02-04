@@ -1,3 +1,11 @@
+**Crevette Is a French Excursion for the Lord’s and Dame Team**\
+`The chef Paul Carmichael opens Bar Kabawa with Momofuku, Lulla’s offers Venezuelan baked goods and more restaurant news.`\
+https://nytimes.com/2025/02/04/dining/nyc-restaurant-news.html
+
+**Chelsea confirm signing of Amougou from Saint-Etienne**\
+`Amougou, who has made 17 appearances in Ligue 1 this season, has moved to Chelsea for a fee in the region of £12.5m on an 8-year contract.`\
+https://nytimes.com/athletic/6109419/2025/02/04/chelsea-saint-etienne-amougou-transfer/
+
 **Who Is Bill Cassidy, the Republican Whose Support Is Crucial for Kennedy?**\
 `Senator Bill Cassidy, a Republican doctor, had deep misgivings about Robert F. Kennedy Jr.’s nomination for health secretary, citing his views on vaccines. But in a key committee session, he voted yes.`\
 https://nytimes.com/2025/02/04/us/politics/bill-cassidy-senator-rfk-jr.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6111744/2025/02/04/transfer-window-analysed-premier
 **‘Accidental’ F.B.I. Chief Builds a Following as Agency’s Defender**\
 `Brian Driscoll was accidentally catapulted into the acting director’s chair on Jan. 20 and has defended the bureau from the potential of mass firings, inspiring memes and satirical clips.`\
 https://nytimes.com/2025/02/04/us/politics/fbi-director-brian-driscoll-trump-justice-department.html
-
-**This Superfast Bolognese Has a Secret Ingredient**\
-`Genevieve Ko’s clever new recipe uses a pantry standby to add deep, complex flavor to a dinner that comes together in just over 30 minutes.`\
-https://nytimes.com/2025/02/04/dining/this-superfast-bolognese-has-a-secret-ingredient.html
-
-**Jenna Nighswonger: Arsenal's USWNT recruit on her European dream, olimpicos and idolising Rooney**\
-`Trading Gotham for the WSL is somewhat close enough to Nighswonger realising a childhood dream of playing for Manchester United's men team`\
-https://nytimes.com/athletic/6109434/2025/02/04/jenna-nighswonger-arsenal-interview/
 
