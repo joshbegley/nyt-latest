@@ -1,3 +1,15 @@
+**How North America Averted a Trade War, for Now**\
+`Mexico and Canada persuaded President Trump to delay a threatened 25 percent tariff, hours before it was scheduled to bite.`\
+https://nytimes.com/2025/02/04/podcasts/the-daily/canada-mexico-tariff-trade.html
+
+**Connections Companion No. 605**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Feb. 5, 2025.`\
+https://nytimes.com/2025/02/04/crosswords/connections-companion-605.html
+
+**Wordle Review No. 1,327**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Feb. 5, 2025.`\
+https://nytimes.com/2025/02/04/crosswords/wordle-review-1327.html
+
 **West Ham technical director Steidten leaves club**\
 `West Ham United technical director Tim Steidten has left the club, it has been announced.`\
 https://nytimes.com/athletic/6093902/2025/02/04/west-ham-tim-steidten-leaves-club/
