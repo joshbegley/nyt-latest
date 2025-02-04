@@ -1,3 +1,11 @@
+**The Athletic FC: City's late £50m deal, top transfers in window, Hermoso 'received death threats'**\
+`Today in TAFC: Man City's late £50m splash, the best deals reviewed, Hermoso says she received death threats after Rubiales kiss`\
+https://nytimes.com/athletic/6111912/2025/02/04/citys-late-50m-deal-top-transfers-hermoso-received-death-threats-after-rubiales-kiss/
+
+**Medical Experts Raise Grave Doubts Over Conviction of ‘Killer Nurse’ Lucy Letby**\
+`After assessing the cases of 17 babies at the heart of the British nurse’s murder trials, a panel of specialists said that they had found no evidence that Ms. Letby had murdered anyone.`\
+https://nytimes.com/2025/02/04/world/europe/lucy-letby-nurse-uk-shoo-lee.html
+
 **The Pulse: Another superstar on the move?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6109800/2025/02/04/myles-garrett-trade-request-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109649/2025/02/04/everton-transfer-window-alcaraz-
 **Trump Promised a Cap on Credit Card Interest Rates. Here’s His Chance.**\
 `Senators Bernie Sanders and Josh Hawley say they will propose a 10 percent limit on credit card interest rates.`\
 https://nytimes.com/2025/02/04/business/credit-card-interest-cap.html
-
-**A Wealthy and Unhappy Nation**\
-`What a new study found about America.`\
-https://nytimes.com/2025/02/04/briefing/a-wealthy-and-unhappy-nation.html
-
-**2025 NHL trade deadline perfect fits: Proposals for Brock Nelson, Ryan O'Reilly and more**\
-`It's an unusual year for midseason trades in the NHL. Let's pick some ideal destinations for names still on the board.`\
-https://nytimes.com/athletic/6107818/2025/02/04/2025-nhl-trade-deadline-perfect-fits/
 
