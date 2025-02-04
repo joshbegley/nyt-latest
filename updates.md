@@ -1,3 +1,19 @@
+**Mavericks acquire Caleb Martin from 76ers: Source**\
+`The 29-year-old Martin, best known for his 2023 playoff heroics, now joins a revamped Mavericks team led by Anthony Davis and Kyrie Irving.`\
+https://nytimes.com/athletic/6113029/2025/02/04/caleb-martin-mavericks-trade-quentin-grimes/
+
+**Courtroom Brawl Erupts in New Mexico Murder Case**\
+`The victim’s uncle leaped over a barrier and attacked the defendant during a routine hearing in Albuquerque last week. The episode was captured on video.`\
+https://nytimes.com/2025/02/04/us/new-mexico-courtroom-fight.html
+
+**Anthony Davis 'very excited' to play alongside Kyrie Irving with Mavericks**\
+`Davis, 31, and Irving, 32, will be the foundational pieces of a Mavericks team that believes it can compete for championships.`\
+https://nytimes.com/athletic/6112918/2025/02/04/nba-trade-news-luka-doncic-anthony-davis-lakers/
+
+**A breakdown as Big 12 unveils 2025 football schedule**\
+`The Big 12's schedule features Farmageddon in Ireland, Kansas-Missouri reigniting and more. The Athletic has a full schedule breakdown.`\
+https://nytimes.com/athletic/6112894/2025/02/04/big-12-football-schedule-2025-matchups-dates/
+
 **Greenland, Eyeing Trump, Bans Foreign Political Funding**\
 `The law, billed as an effort “to safeguard Greenland’s political integrity,” came ahead of parliamentary elections.`\
 https://nytimes.com/2025/02/04/world/europe/greenland-trump-political-funding.html
