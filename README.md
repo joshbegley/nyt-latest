@@ -1,3 +1,7 @@
+**Joao Felix completes Milan loan move from Chelsea**\
+`Felix joins Milan on a straight loan deal without a buy option, which will also include a loan fee package worth €5.5million.`\
+https://nytimes.com/athletic/6110559/2025/02/04/joao-felix-milan-loan-chelsea/
+
 **Ensembles That Showcase an Eye for Detail**\
 `Thoughtfully chosen layers gave two outfits distinct sensibilities.`\
 https://nytimes.com/2025/02/04/style/street-style-winter-layers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6111522/2025/02/04/bulls-nba-trade-deadline-zach-la
 **What Streak Would You Like to Attempt?**\
 `Is there a goal you’d like to pursue by doing something every day for weeks or even months in a row? What do you think might happen as a result?`\
 https://nytimes.com/2025/02/04/learning/what-streak-would-you-like-to-attempt.html
-
-**Weekly Student New Quiz: Plane Crash, A.I. Breakthrough, N.B.A.**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/02/04/learning/04StudentNewsQuiz.html
 
