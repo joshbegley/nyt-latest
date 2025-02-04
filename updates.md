@@ -1,3 +1,19 @@
+**F.B.I. agents involved in Jan. 6 cases are asking a court to bar the Trump team from disclosing their identities.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/fbi-agents-involved-in-jan-6-cases-are-asking-a-court-to-bar-the-trump-team-from-disclosing-their-identities
+
+**Astros to retire Billy Wagner's No. 13**\
+`Wagner's number will be retired during a series against the Baltimore Orioles from Aug. 15-17.`\
+https://nytimes.com/athletic/6113056/2025/02/04/houston-atros-billy-wagner-number-retirement/
+
+**Tim Hill, Yankees agree to 1-year deal: Source**\
+`The lefty reliever had a 2.05 ERA in 35 games with the Yankees last season after joining the team in June. `\
+https://nytimes.com/athletic/6113025/2025/02/04/tim-hill-yankees-mlb-free-agency-contract/
+
+**The Artist Alonzo Davis’s Life and Work in Pictures**\
+`In the 1960s, he built the Brockman Gallery, a vital venue for Black artists in Los Angeles. Here are glimpses into his life, art and legacy.`\
+https://nytimes.com/2025/02/04/arts/alonzo-davis-photos.html
+
 **Patriots Owner’s Son Challenges Michelle Wu for Mayor of Boston**\
 `Josh Kraft, a political newcomer who is running as a Democrat, said his top priority was addressing the city’s housing crisis.`\
 https://nytimes.com/2025/02/04/us/boston-mayor-josh-kraft-michelle-wu.html
