@@ -1,3 +1,7 @@
+**2025 NHL trade deadline perfect fits: Proposals for Brock Nelson, Ryan O'Reilly and more**\
+`It's an unusual year for midseason trades in the NHL. Let's pick some ideal destinations for names still on the board.`\
+https://nytimes.com/athletic/6107818/2025/02/04/2025-nhl-trade-deadline-perfect-fits/
+
 **Who says no? Evaluating Brandon Ingram trade scenarios as clock ticks toward deadline**\
 `Will the Pelicans be able to get something back for the pending free agent, or will his future be determined in the summer?`\
 https://nytimes.com/athletic/6110913/2025/02/04/brandon-ingram-trade-deadline-pelicans-nba/
