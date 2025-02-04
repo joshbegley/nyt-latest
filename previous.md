@@ -1,3 +1,7 @@
+**Spain coach De la Fuente testifies on second day of Rubiales trial**\
+`De la Fuente gave testimony on the second day of Rubiales' trial for the alleged sexual assault and coercion of Jenni Hermoso`\
+https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-trial/
+
 **F.B.I. agents involved in Jan. 6 cases are asking a court to bar the Trump team from disclosing their identities.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/fbi-agents-involved-in-jan-6-cases-are-asking-a-court-to-bar-the-trump-team-from-disclosing-their-identities
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/technology/china-google-antitrust-investigation.h
 **Alonzo Davis, 82, Whose L.A. Gallery Became a Hub for Black Art, Dies**\
 `An accomplished artist himself, he and his brother created one of the few showcases in the U.S. for an emerging generation of Black artists in the late 1960s.`\
 https://nytimes.com/2025/02/04/arts/alonzo-davis-dead.html
-
-**N.Y.C. Suburb Deploys Detectives to Aid Trump’s Deportation Crackdown**\
-`Nassau County, on Long Island, becomes the second county in New York State to join a federal program that uses local law enforcement officers as ICE agents.`\
-https://nytimes.com/2025/02/04/nyregion/ice-deportation-nassau-blakeman.html
 
