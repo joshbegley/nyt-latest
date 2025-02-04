@@ -1,3 +1,7 @@
+**A little Hollywood flash helps Chiefs' offense heat up for the Super Bowl**\
+`How Andy Reid and company are coaching up their Super Bowl rookies, and a look at two Chiefs-Eagles battles in the trenches.`\
+https://nytimes.com/athletic/6113572/2025/02/04/chiefs-super-bowl-marquise-brown/
+
 **Why We (Still) Think the Grammys Are Good Now**\
 `Big wins for Beyoncé, Kendrick Lamar and Chappell Roan. Standout performances from Doechii and Sabrina Carpenter. A conversation about why the 2025 awards worked.`\
 https://nytimes.com/2025/02/04/arts/music/popcast-grammys.html
