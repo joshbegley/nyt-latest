@@ -1,3 +1,15 @@
+**How Trump’s Trade War Could Affect Climate Change**\
+`President Trump’s tariffs could threaten supply chains in the renewable energy industry and disrupt oil and gas markets.`\
+https://nytimes.com/2025/02/04/climate/how-trumps-trade-war-could-affect-climate-change.html
+
+**Trudeau and Sheinbaum Took Different Routes to Win a Tariff Reprieve**\
+`The Canadian and Mexican leaders negotiated with President Trump in diverging ways. In the end, they both secured an outcome they could present as victories back home.`\
+https://nytimes.com/2025/02/04/world/canada/mexico-canada-trump-tariff-deals.html
+
+**Senate Panel Approves Gabbard’s Nomination**\
+`The full Senate will vote on President Trump’s pick to be the director of national intelligence. She was one of the most contentious cabinet choices.`\
+https://nytimes.com/2025/02/04/us/politics/tulsi-gabbard-confirmation-senate.html
+
 **F.B.I. Agents Ask Court to Bar Trump Team From Disclosing Their Names**\
 `Employees who participated in the Jan. 6 investigations contended in two lawsuits that they believed the administration intended to reveal their identities, endangering them and their families.`\
 https://nytimes.com/2025/02/04/us/politics/fbi-names-trump-jan-6-lawsuit.html
