@@ -1,3 +1,15 @@
+**Mt. Rushmore and a Third Term: G.O.P. Lawmakers Rush to Flatter Trump**\
+`A competition of sorts has broken out to see who can be the most pro-Trump member of Congress.`\
+https://nytimes.com/2025/02/04/us/politics/gop-lawmakers-trump.html
+
+**Trump Rehires Neil Jacobs, Former NOAA Chief Involved in ‘Sharpiegate’**\
+`A respected atmospheric scientist, Dr. Jacobs was found to have violated NOAA’s code of ethics in 2019.`\
+https://nytimes.com/2025/02/04/climate/trump-neil-jacobs-noaa-sharpiegate.html
+
+**Wisconsin football program loses GM Max Stienecker to USC**\
+`Stienecker, 24, was instrumental in helping build Wisconsin’s last two recruiting classes under head coach Luke Fickell.`\
+https://nytimes.com/athletic/6113334/2025/02/04/wisconsin-football-program-loses-gm-max-stienecker-to-usc/
+
 **Elon Musk’s X Becomes Weapon in Government Cost Cutting**\
 `The billionaire has used the social media site to boast of victories, lash out at enemies and conduct polls for the initiative he calls the Department of Government Efficiency.`\
 https://nytimes.com/2025/02/04/technology/elon-musk-x-doge.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6112452/2025/02/04/messi-ronaldo-lockers-barcelona-
 **Quentin Grimes-Caleb Martin trade grades: Mavs keep dealing; Sixers get younger**\
 `Grimes is joining his fourth team in four seasons while Martin brings added playoff experience to Dallas.`\
 https://nytimes.com/athletic/6113004/2025/02/04/quentin-grimes-caleb-martin-trade-grades/
-
-**What Are Book Blurbs, and How Much Do They Matter in Publishing?**\
-`An announcement from Simon & Schuster’s publisher left the literary community wondering whether blurbs, the little snippets of praise on a book jacket, are all they’re cracked up to be.`\
-https://nytimes.com/2025/02/04/books/what-are-blurbs-books.html
-
-**Spain coach De la Fuente testifies on second day of Rubiales trial**\
-`De la Fuente gave testimony on the second day of Rubiales' trial for the alleged sexual assault and coercion of Jenni Hermoso`\
-https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-trial/
-
-**F.B.I. Agents Ask Court to Bar Trump Team From Disclosing Their Names**\
-`Employees who participated in the Jan. 6 investigations contended in two lawsuits that they believed the administration intended to reveal their identities, endangering them and their families.`\
-https://nytimes.com/2025/02/04/us/politics/fbi-names-trump-jan-6-lawsuit.html
 

@@ -1,3 +1,15 @@
+**Mt. Rushmore and a Third Term: G.O.P. Lawmakers Rush to Flatter Trump**\
+`A competition of sorts has broken out to see who can be the most pro-Trump member of Congress.`\
+https://nytimes.com/2025/02/04/us/politics/gop-lawmakers-trump.html
+
+**Trump Rehires Neil Jacobs, Former NOAA Chief Involved in ‘Sharpiegate’**\
+`A respected atmospheric scientist, Dr. Jacobs was found to have violated NOAA’s code of ethics in 2019.`\
+https://nytimes.com/2025/02/04/climate/trump-neil-jacobs-noaa-sharpiegate.html
+
+**Wisconsin football program loses GM Max Stienecker to USC**\
+`Stienecker, 24, was instrumental in helping build Wisconsin’s last two recruiting classes under head coach Luke Fickell.`\
+https://nytimes.com/athletic/6113334/2025/02/04/wisconsin-football-program-loses-gm-max-stienecker-to-usc/
+
 **Elon Musk’s X Becomes Weapon in Government Cost Cutting**\
 `The billionaire has used the social media site to boast of victories, lash out at enemies and conduct polls for the initiative he calls the Department of Government Efficiency.`\
 https://nytimes.com/2025/02/04/technology/elon-musk-x-doge.html
