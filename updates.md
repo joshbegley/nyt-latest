@@ -1,3 +1,7 @@
+**Prosecutors Charge Man Said to Be Tied to Robbery of N.F.L. Quarterback**\
+`The home of Joe Burrow of the Cincinnati Bengals was burglarized in December. The authorities said a man detained in Manhattan was part of a related fencing operation.`\
+https://nytimes.com/2025/02/04/nyregion/joe-burrow-home-burglary-charges.html
+
 **Conditions May Have Stymied Black Hawk Crew Before Fatal Crash**\
 `The Army pilots were juggling dark skies, low altitude, a busy airspace and a cockpit without certain traffic detectors before the helicopter’s midair crash with a regional passenger jet.`\
 https://nytimes.com/2025/02/04/us/politics/plane-helicopter-crash-reagan-airport.html
