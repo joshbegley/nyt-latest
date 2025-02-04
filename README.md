@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By Ana Swanson, Chris Buckley, Alan Rappeport and Qasim Nauman`\
+https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/here-are-the-latest-developments
+
+**How a Sale of TikTok Would Work and Who Might Buy It**\
+`A new law says TikTok must be sold to a non-Chinese owner or face a ban in the United States. President Trump has thrown out a lot of options for a potential sale.`\
+https://nytimes.com/2025/02/04/business/media/tiktok-sale-who-could-buy.html
+
+**Alaba suffers injury, Madrid could be without senior centre-backs against Atletico**\
+`The 32-year-old Austria international only returned to action in January after 399 days out injured with an ACL injury.`\
+https://nytimes.com/athletic/6111887/2025/02/04/david-alaba-injury-real-madrid/
+
 **Leeds transfer window review: No new faces but a squad that should maintain promotion push**\
 `Leeds' winter window was as quiet as they come. Daniel Farke's squad isn't perfect but it should have enough quality if injuries don't bite`\
 https://nytimes.com/athletic/6111054/2025/02/04/leeds-transfer-window-review-archer-joseph/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6107818/2025/02/04/2025-nhl-trade-deadline-perfect-
 **Who says no? Evaluating Brandon Ingram trade scenarios as clock ticks toward deadline**\
 `Will the Pelicans be able to get something back for the pending free agent, or will his future be determined in the summer?`\
 https://nytimes.com/athletic/6110913/2025/02/04/brandon-ingram-trade-deadline-pelicans-nba/
-
-**Who wants Brandon Ingram? What about Jock Landale? Evaluating Southwest Division trade ideas**\
-`Here's an opportunity to put on a general manager's hat to see how many trades make sense and which teams would say no. `\
-https://nytimes.com/athletic/6107280/2025/02/04/brandon-ingram-nba-trade-ideas/
-
-**Ranking the Bears' top unrestricted free agents: Will Teven Jenkins, Keenan Allen return?**\
-`The Bears' list of free agents worth re-signing in 2025 isn't long. Who will the new coaching staff value?`\
-https://nytimes.com/athletic/6109526/2025/02/04/bears-2025-unrestricted-free-agents-ranking/
-
-**Viana leaves Sporting ahead of joining Man City as director of football**\
-`Viana was initially due to leave the Portuguese club at the end of the 2024-25 season, but has now brought that date forward.`\
-https://nytimes.com/athletic/6111920/2025/02/04/hugo-viana-manchester-city-director/
 
