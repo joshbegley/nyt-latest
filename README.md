@@ -1,3 +1,7 @@
+**Lawsuit Accuses Neil Gaiman of Sexual Assault Facilitated by His Wife**\
+`Scarlett Pavlovich, who accused Mr. Gaiman of rape and assault in a report last month, said in the suit that his wife had played a role in “procuring and presenting” her.`\
+https://nytimes.com/2025/02/04/books/neil-gaiman-lawsuit-sexual-abuse.html
+
 **What to watch this week in the NBA: All eyes on Spurs, Lakers, Mavs and Kings after trades**\
 `Behold, the weirdest week in professional basketball! There are some interesting matchups surrounding Thursday's trade deadline.`\
 https://nytimes.com/athletic/6111080/2025/02/04/nba-how-to-watch-celtics-knicks-lakers-mavericks-thunder-spurs-trade-deadline/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6111975/2025/02/04/nba-power-rankings-grizzlies-mav
 https://nytimes.com/athletic/6112249/2025/02/04/nascar-xfinity-sponsorship-change/
 
 **Mexico Deploys 10,000 National Guard Members to U.S. Border: What to Know**\
-`President Claudia Sheinbaum’s government said the National Guard members had redeployed to more than 20 cities and towns along the U.S.-Mexico border as part of a deal to delay U.S. tariffs.`\
+`President Claudia Sheinbaum’s government said the National Guard members had redeployed to 18 cities and towns along the U.S.-Mexico border as part of a deal to delay U.S. tariffs.`\
 https://nytimes.com/2025/02/04/world/americas/mexico-troops-border-deal-trump.html
 
 **Trump Orders Could Drain Millions From Universities, but Few Protest Openly**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/04/us/trump-executive-orders-universities.html
 **Davies agrees new Bayern Munich contract**\
 `The 24-year-old left-back was heavily pursued by Real Madrid and clubs in the Premier League.`\
 https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-contract-new/
-
-**Stocks settle after a turbulent day, as Wall Street weighs tariffs on China.**\
-`By Danielle Kaye and Joe Rennison`\
-https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/stocks-settle-after-a-turbulent-day-as-wall-street-weighs-tariffs-on-china
 
