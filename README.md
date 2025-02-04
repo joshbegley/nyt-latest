@@ -1,3 +1,11 @@
+**Proposal Calls for Restoring Tulsa Massacre Neighborhood**\
+`If approved, the plan would provide cash payments, a new hospital and the potential returning of land to descendants of the victims.`\
+https://nytimes.com/2025/02/04/us/tulsa-massacre-reparations.html
+
+**Collector Sues David Geffen to Reclaim a Sculpture Worth Millions**\
+`In court papers, the collector says an adviser, without authorization, schemed to sell a Giacometti sculpture he bought for $78 million to the entertainment mogul.`\
+https://nytimes.com/2025/02/04/arts/david-geffen-giacometti-sculpture.html
+
 **A little Hollywood flash helps Chiefs' offense heat up for the Super Bowl**\
 `How Andy Reid and company are coaching up their Super Bowl rookies, and a look at two Chiefs-Eagles battles in the trenches.`\
 https://nytimes.com/athletic/6113572/2025/02/04/chiefs-super-bowl-marquise-brown/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6113330/2025/02/04/super-bowl-lix-eagles-notebook-r
 **Newsom Heads to Washington to Meet With Trump**\
 `Gov. Gavin Newsom, the Democratic governor of California, has tried to cooperate with President Trump as he seeks federal aid for wildfire relief.`\
 https://nytimes.com/2025/02/04/us/politics/newsom-trump-la-fire-aid-water.html
-
-**S.E.C. Moves to Scale Back Its Crypto Enforcement Efforts**\
-`Some in a special unit of 50 lawyers and staff members that had been assigned to regulate cryptocurrency are being reassigned in the agency.`\
-https://nytimes.com/2025/02/04/business/sec-crypto-task-force.html
-
-**Man Utd's Malacia completes loan move to PSV**\
-`The deal for Malacia also includes an option to buy for the Dutch side.`\
-https://nytimes.com/athletic/6105179/2025/02/04/tyrell-malacia-psv-loan-manchester-united/
 
