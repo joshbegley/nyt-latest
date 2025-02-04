@@ -1,3 +1,7 @@
+**Gene Barge, R&B Saxophonist Who Played on Landmark Hits, Dies at 98**\
+`Known as Daddy G, he recorded with Jackie Wilson, Chuck Willis and others, but he was best known for the Gary U.S. Bonds smash “Quarter to Three.”`\
+https://nytimes.com/2025/02/04/arts/music/gene-barge-dead.html
+
 **National League clubs write to EFL asking for third promotion spot to League Two**\
 `"Rick Parry has often said that ‘the EFL should look down as well as up’, so we’d now like that to happen,” said the National League chair.`\
 https://nytimes.com/athletic/6113114/2025/02/04/national-league-efl-3up-promotion/
