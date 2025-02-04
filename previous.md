@@ -1,3 +1,35 @@
+**Inside Musk’s Government Takeover, and Frantic Tariff Negotiations**\
+`Plus, “Onyx Storm” smashes onto shelves.`\
+https://nytimes.com/2025/02/04/podcasts/the-headlines/elon-musks-government-tariff-canada-mexico.html
+
+**Vikings NFL Draft big board: 12 enticing first-round prospects at positions of need**\
+`What could the Vikings be looking for with pick No. 24 in the first round of the draft? How about some help on the interior of the lines?`\
+https://nytimes.com/athletic/6110285/2025/02/04/vikings-nfl-draft-big-board-first-round/
+
+**Ranking the Knicks' best assets as NBA trade deadline nears**\
+`Let's shed some light on how valuable each Knicks player/draft pick is to the organization and how they're valued around the league.`\
+https://nytimes.com/athletic/6111044/2025/02/04/nba-trade-deadline-knicks-assets/
+
+**Blues power rankings: Doug Armstrong's hardball, Jimmy Snuggerud's points, Jim Montgomery's process**\
+`In the inaugural edition of the Blues power rankings, we do a vibe check on 10 items involving the team.`\
+https://nytimes.com/athletic/6109439/2025/02/04/blues-power-rankings-armstrong-snuggerud-montgomery/
+
+**How much do you know about the Super Bowl? Prove it with this quiz**\
+`Test your knowledge of the iconic U.S. tradition that is the NFL's championship game, including the game and all the pageantry around it.`\
+https://nytimes.com/athletic/6109845/2025/02/04/super-bowl-quiz-chiefs-eagles-nfl-trivia/
+
+**Inside Eagles-Chiefs Super Bowl matchup: What to watch when Philly has the ball**\
+`How well Kansas City can accomplish the tall task of containing Saquon Barkley could determine who takes home the Lombardi Trophy.`\
+https://nytimes.com/athletic/6108132/2025/02/04/chiefs-eagles-super-bowl-film-what-to-watch/
+
+**The Aaron Glenn Effect: A hero's return, and a new hope for the New York Jets**\
+`Team alumni — particularly those who played alongside Glenn — sense something special is about to happen.`\
+https://nytimes.com/athletic/6106866/2025/02/04/aaron-glenn-former-teammates-new-york-jets-head-coach/
+
+**'We're just idiots, I guess': How Alec Martinez, Alex Vlasic bonded as Blackhawks**\
+`From their senses of humor to hockey habits, a 14-year age difference hasn't stopped the Chicago defensemen from striking up a friendship.`\
+https://nytimes.com/athletic/6111115/2025/02/04/alec-martinez-blackhawks-alex-vlasic-mentor-friendship/
+
 **How North America Averted a Trade War, for Now**\
 `Mexico and Canada persuaded President Trump to delay a threatened 25 percent tariff, hours before it was scheduled to bite.`\
 https://nytimes.com/2025/02/04/podcasts/the-daily/canada-mexico-tariff-trade.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/02/04/podcasts/the-daily/canada-mexico-tariff-trade.htm
 **Connections Companion No. 605**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Feb. 5, 2025.`\
 https://nytimes.com/2025/02/04/crosswords/connections-companion-605.html
-
-**Wordle Review No. 1,327**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Feb. 5, 2025.`\
-https://nytimes.com/2025/02/04/crosswords/wordle-review-1327.html
-
-**West Ham technical director Steidten leaves club**\
-`West Ham United technical director Tim Steidten has left the club, it has been announced.`\
-https://nytimes.com/athletic/6093902/2025/02/04/west-ham-tim-steidten-leaves-club/
-
-**Howe 'very reluctant' to lose Kelly; exit wasn't 'necessarily' his decision**\
-`Kelly has joined Juventus on loan with an obligation to buy after signing for Newcastle in the summer.`\
-https://nytimes.com/athletic/6111871/2025/02/04/newcastle-lloyd-kelly-juventus-transfer/
-
-**The U.S. Economy Is Racing Ahead. Almost Everything Else Is Falling Behind.**\
-`The gap between Americans’ prosperity and quality of life has grown since the 1990s.`\
-https://nytimes.com/2025/02/04/briefing/the-us-economy-is-racing-ahead-almost-everything-else-is-falling-behind.html
-
-**Bengals free agent rankings: Tee Higgins headlines list of intriguing pieces**\
-`Higgins is on many teams' wishlists while B.J. Hill, Mike Hilton and Mike Gesicki are among those who will generate interest.`\
-https://nytimes.com/athletic/6110575/2025/02/04/bengals-free-agent-rankings-2025/
-
-**My top 10 moments from covering Ohio State's national championship run**\
-`Jack Sawyer's fumble return touchdown against Texas is an obvious choice for No. 1, but Ohio State had plenty of other memorable moments.`\
-https://nytimes.com/athletic/6109249/2025/02/04/ohio-state-national-championship-best-moments/
-
-**The 10 most shocking college sports transactions — no Luka for AD, but lots of fleeing coaches**\
-`College athletes do switch teams, quite a lot lately, but the shocking moves at this level involve coaches leaving one job for another.`\
-https://nytimes.com/athletic/6111276/2025/02/04/shocking-college-coaching-moves/
-
-**How different will Michigan's offense be? Breaking down the 2025 roster**\
-`Where Michigan's offense stands after the portal window, with several transfers and 2025 recruits poised to make an instant impact.`\
-https://nytimes.com/athletic/6109577/2025/02/04/michigan-football-roster-2025-offense/
 
