@@ -1,3 +1,11 @@
+**S.E.C. Moves to Scale Back Its Crypto Enforcement Efforts**\
+`Some in a special unit of 50 lawyers and staff members that had been assigned to regulate cryptocurrency are being reassigned in the agency.`\
+https://nytimes.com/2025/02/04/business/sec-crypto-task-force.html
+
+**Man Utd's Malacia completes loan move to PSV**\
+`The deal for Malacia also includes an option to buy for the Dutch side.`\
+https://nytimes.com/athletic/6105179/2025/02/04/tyrell-malacia-psv-loan-manchester-united/
+
 **After full circle move, can DC Jim Knowles unlock Penn State's championship potential?**\
 `Knowles was introduced as Penn State's defensive coordinator on Tuesday, one week after he left Ohio State to take the job.`\
 https://nytimes.com/athletic/6113749/2025/02/04/jim-knowles-penn-state-introduction-defensive-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6113561/2025/02/04/changes-premier-league-referees-
 **Trump’s Attempt to Freeze Grant Funding Leaves Nonprofits Reeling**\
 `Some groups said their funding was still blocked, even after the freeze had been rescinded. Others saw their money reinstated but worried about future cuts.`\
 https://nytimes.com/2025/02/04/us/politics/grant-funding-freeze-nonprofits.html
-
-**Trump Restores ‘Maximum Pressure’ Campaign on Iran in Executive Order**\
-`The president used a visit from Israel’s prime minister as the moment to ramp up a campaign intended to persuade Iran to give up its nuclear campaign.`\
-https://nytimes.com/2025/02/04/us/politics/trump-iran-executive-order.html
-
-**NCAA’s $2.8 billion settlement faces objections before final approval**\
-`Schools and conferences are already moving on plans to implement revenue sharing, with some already starting to sign athletes to agreements.`\
-https://nytimes.com/athletic/6113424/2025/02/04/ncaa-settlement-house-revenue-sharing/
 

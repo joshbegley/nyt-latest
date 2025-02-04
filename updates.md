@@ -1,3 +1,11 @@
+**S.E.C. Moves to Scale Back Its Crypto Enforcement Efforts**\
+`Some in a special unit of 50 lawyers and staff members that had been assigned to regulate cryptocurrency are being reassigned in the agency.`\
+https://nytimes.com/2025/02/04/business/sec-crypto-task-force.html
+
+**Man Utd's Malacia completes loan move to PSV**\
+`The deal for Malacia also includes an option to buy for the Dutch side.`\
+https://nytimes.com/athletic/6105179/2025/02/04/tyrell-malacia-psv-loan-manchester-united/
+
 **After full circle move, can DC Jim Knowles unlock Penn State's championship potential?**\
 `Knowles was introduced as Penn State's defensive coordinator on Tuesday, one week after he left Ohio State to take the job.`\
 https://nytimes.com/athletic/6113749/2025/02/04/jim-knowles-penn-state-introduction-defensive-coordinator/
