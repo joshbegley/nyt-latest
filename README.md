@@ -1,3 +1,7 @@
+**Show Tunes and Martinis at a Party for Michael Kors**\
+`Alan Cumming, Katie Holmes and Iman were among the celebrities who gathered at Café Carlyle in Manhattan to toast the designer’s new flagship store.`\
+https://nytimes.com/2025/02/04/style/show-tunes-and-martinis-at-a-party-for-michael-kors.html
+
 **The Latest Trend Among the L.A. Elite: Launching Your Own Rebuilding Initiative**\
 `Power brokers in Los Angeles believe that side efforts are necessary to rebuild after the wildfires. They just can’t settle on which one.`\
 https://nytimes.com/2025/02/04/us/la-fires-leader-power-rebuild.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6113067/2025/02/04/tage-thompson-injury-sabres-resp
 **Democrats protest Trump’s unilateral moves, with little means to stop him.**\
 `Out of power in Congress, Democrats have toiled to find a way to thwart President Trump’s efforts to steer around Congress on spending and policy. With no Republican backing, there’s not much they can do.`\
 https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/trump-senate-democrats-protest
-
-**Small-Business Owners Say Tariffs Will Squeeze Them, and Their Customers**\
-`Consumer electronics, electrical equipment, and textiles and apparel are among the top categories of goods imported into the United States from China.`\
-https://nytimes.com/2025/02/04/us/trump-tariffs-china-consumer-costs.html
 
