@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By Ana Swanson, Chris Buckley, Alan Rappeport and Qasim Nauman`\
+https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/here-are-the-latest-developments
+
+**How a Sale of TikTok Would Work and Who Might Buy It**\
+`A new law says TikTok must be sold to a non-Chinese owner or face a ban in the United States. President Trump has thrown out a lot of options for a potential sale.`\
+https://nytimes.com/2025/02/04/business/media/tiktok-sale-who-could-buy.html
+
+**Alaba suffers injury, Madrid expected to be without senior centre-backs against Atletico**\
+`The 32-year-old Austria international only returned to action in January after 399 days out injured with an ACL injury.`\
+https://nytimes.com/athletic/6111887/2025/02/04/david-alaba-injury-real-madrid/
+
 **Leeds transfer window review: No new faces but a squad that should maintain promotion push**\
 `Leeds' winter window was as quiet as they come. Daniel Farke's squad isn't perfect but it should have enough quality if injuries don't bite`\
 https://nytimes.com/athletic/6111054/2025/02/04/leeds-transfer-window-review-archer-joseph/
