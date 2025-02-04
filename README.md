@@ -1,3 +1,7 @@
+**After full circle move, can DC Jim Knowles unlock Penn State's championship potential?**\
+`Knowles was introduced as Penn State's defensive coordinator on Tuesday, one week after he left Ohio State to take the job.`\
+https://nytimes.com/athletic/6113749/2025/02/04/jim-knowles-penn-state-introduction-defensive-coordinator/
+
 **How to Host a Cozy Winter Meal**\
 `For the colder months, we’re revisiting our favorite cheery candlelit gatherings and sharing tips from expert hosts.`\
 https://nytimes.com/2025/02/04/t-magazine/cozy-winter-meals-inspiration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/trump-iran-executive-order.html
 **NCAA’s $2.8 billion settlement faces objections before final approval**\
 `Schools and conferences are already moving on plans to implement revenue sharing, with some already starting to sign athletes to agreements.`\
 https://nytimes.com/athletic/6113424/2025/02/04/ncaa-settlement-house-revenue-sharing/
-
-**A Fitting Dress Code for the 2025 Met Gala: ‘Tailored for You’**\
-`The Metropolitan Museum of Art also announced a new batch of co-hosts for its splashy fashion fund-raiser including Simone Biles, Ayo Edebiri, Usher and Doechii.`\
-https://nytimes.com/2025/02/04/style/met-gala-dress-code-dandyism.html
 
