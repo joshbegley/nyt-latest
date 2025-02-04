@@ -1,3 +1,7 @@
+**Twins to sign reliever Danny Coulombe to 1-year deal: Sources**\
+`The Twins have finally agreed to sign a major-league free agent, reuniting with the lefty on a one-year deal, according to league sources.`\
+https://nytimes.com/athletic/6101678/2025/02/04/danny-coulombe-contract-twins-mlb-free-agency/
+
 **Lawsuit Accuses Neil Gaiman of Sexual Assault Facilitated by His Wife**\
 `Scarlett Pavlovich, who accused Mr. Gaiman of rape and assault in a report last month, said in the suit that his wife had played a role in “procuring and presenting” her.`\
 https://nytimes.com/2025/02/04/books/neil-gaiman-lawsuit-sexual-abuse.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/04/world/americas/mexico-troops-border-deal-trump.ht
 **Trump Orders Could Drain Millions From Universities, but Few Protest Openly**\
 `Efforts by the administration to cut diversity efforts and foreign aid have upended campuses. But many university leaders seem wary of provoking a president who has glorified retribution.`\
 https://nytimes.com/2025/02/04/us/trump-executive-orders-universities.html
-
-**Davies agrees new Bayern Munich contract**\
-`The 24-year-old left-back was heavily pursued by Real Madrid and clubs in the Premier League.`\
-https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-contract-new/
 

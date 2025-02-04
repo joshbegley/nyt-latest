@@ -1,3 +1,7 @@
+**Twins to sign reliever Danny Coulombe to 1-year deal: Sources**\
+`The Twins have finally agreed to sign a major-league free agent, reuniting with the lefty on a one-year deal, according to league sources.`\
+https://nytimes.com/athletic/6101678/2025/02/04/danny-coulombe-contract-twins-mlb-free-agency/
+
 **Lawsuit Accuses Neil Gaiman of Sexual Assault Facilitated by His Wife**\
 `Scarlett Pavlovich, who accused Mr. Gaiman of rape and assault in a report last month, said in the suit that his wife had played a role in “procuring and presenting” her.`\
 https://nytimes.com/2025/02/04/books/neil-gaiman-lawsuit-sexual-abuse.html
