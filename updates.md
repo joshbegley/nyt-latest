@@ -1,3 +1,11 @@
+**We still don't know who didn't vote for Ichiro after BBWAA releases ballots**\
+`A total of 394 voters submitted their ballots. Of those, 321 were made public Tuesday. But the Ichiro dissenter's ballot wasn't one of them.`\
+https://nytimes.com/athletic/6112460/2025/02/04/ichiro-suzuki-vote-mlb-baseball-hall-of-fame/
+
+**Arteta 'disappointed' in Arsenal transfer window: 'We haven't achieved our intention'**\
+`Mikel Arteta has admitted that Arsenal were &#8220;disappointed&#8221; not to sign anyone in the winter transfer window, but felt the need to remain ‘disciplined’ in how they acted.`\
+https://nytimes.com/athletic/6112508/2025/02/04/arsenal-transfer-january-window-mikel-arteta/
+
 **Twins to sign reliever Danny Coulombe to 1-year deal: Sources**\
 `The Twins have finally agreed to sign a major-league free agent, reuniting with the lefty on a one-year deal, according to league sources.`\
 https://nytimes.com/athletic/6101678/2025/02/04/danny-coulombe-contract-twins-mlb-free-agency/
