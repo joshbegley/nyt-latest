@@ -1,3 +1,23 @@
+**The Closed Door Battle to Lead the Olympics**\
+`In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
+https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
+
+**A Trump. A Dead Duck. And an Uproar in Italy.**\
+`A video shows Donald Trump Jr. sitting in hunting gear beside a dead protected bird. Italian lawmakers want answers.`\
+https://nytimes.com/2025/02/04/world/europe/donald-trump-jr-duck-hunting-italy.html
+
+**At a Gilded Florida Resort, Anna Netrebko Tries U.S. Comeback**\
+`The Russian singer, shunned over her past support of Vladimir V. Putin, made her first American appearance since 2019 at a gala for Palm Beach Opera.`\
+https://nytimes.com/2025/02/04/arts/music/anna-netrebko-us-opera-putin.html
+
+**‘Not Like Us’ Reinvented Kendrick Lamar. Is the Super Bowl Ready for It?**\
+`After sweeping the Grammys on Sunday, Lamar’s ubiquitous Drake diss could be the centerpiece of the halftime show. That, it bears mentioning, is pretty strange.`\
+https://nytimes.com/2025/02/04/arts/music/kendrick-lamar-super-bowl-not-like-us.html
+
+**A curse on the Bills was lifted, and the truth behind it is stranger than fiction**\
+`The curse originated in an episode of "The X-Files."`\
+https://nytimes.com/athletic/6108718/2025/02/04/buffalo-bills-smoking-man-x-files-curse-super-bowl/
+
 **Crevette Is a French Excursion for the Lord’s and Dame Team**\
 `The chef Paul Carmichael opens Bar Kabawa with Momofuku, Lulla’s offers Venezuelan baked goods and more restaurant news.`\
 https://nytimes.com/2025/02/04/dining/nyc-restaurant-news.html
