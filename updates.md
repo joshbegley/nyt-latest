@@ -1,3 +1,11 @@
+**What Streak Would You Like to Attempt?**\
+`Is there a goal you’d like to pursue by doing something every day for weeks or even months in a row? What do you think might happen as a result?`\
+https://nytimes.com/2025/02/04/learning/what-streak-would-you-like-to-attempt.html
+
+**Weekly Student New Quiz: Plane Crash, A.I. Breakthrough, N.B.A.**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/02/04/learning/04StudentNewsQuiz.html
+
 **Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
 `The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
 https://nytimes.com/athletic/6109370/2025/02/04/chiefs-prop-bets-super-bowl-59/
