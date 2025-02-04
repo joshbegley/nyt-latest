@@ -18,7 +18,7 @@ https://nytimes.com/2025/02/04/us/la-fires-leader-power-rebuild.html
 `Ordained as a bishop by a traditionalist sect, he was excommunicated then reinstated by the Vatican, but was undone by his antisemitic views.`\
 https://nytimes.com/2025/02/04/world/europe/richard-williamson-dead.html
 
-**Dončić shocked when told of trade: 'I had to check if it was April 1st'**\
+**Dončić shocked when told of trade: 'I had to check if it was April 1'**\
 `"I was almost asleep, so when I got a call, I had to check if it was April first," Dončić said about learning he was traded to the Lakers.`\
 https://nytimes.com/athletic/6113396/2025/02/04/luka-doncic-trade-injury-intro-news-conference-lakers/
 

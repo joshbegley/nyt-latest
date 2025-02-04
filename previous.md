@@ -1,3 +1,7 @@
+**G.O.P. Senators Choose Consent**\
+`Despite reservations, Republicans are falling in line behind President Trump’s contentious top administration picks, signaling a broader retreat from challenging him.`\
+https://nytimes.com/2025/02/04/us/politics/trump-cabinet-confirmations-gop-senators.html
+
 **Adams Went to Albany to Ask for Funding. He Ended Up in the Hot Seat.**\
 `Some lawmakers, including two who are facing the mayor in the June Democratic primary in New York City, challenged his credibility and accomplishments.`\
 https://nytimes.com/2025/02/04/nyregion/adams-albany-mayor-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6113118/2025/02/04/national-signing-day-until-satur
 **Want Eggs With Your Breakfast? Pay a Surcharge, Waffle House Says.**\
 `The restaurant chain, which serves breakfast all day, said it was adding the temporary 50-cent surcharge because the bird flu has caused a shortage in the egg supply.`\
 https://nytimes.com/2025/02/04/business/waffle-house-egg-surcharge.html
-
-**Sabres' lack of response after Tage Thompson injury 'won't happen again'**\
-`The Sabres missed an opportunity on Sunday to stick up for their star player in a meaningful way.`\
-https://nytimes.com/athletic/6113067/2025/02/04/tage-thompson-injury-sabres-response/
 

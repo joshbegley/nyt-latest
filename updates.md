@@ -1,3 +1,7 @@
+**G.O.P. Senators Choose Consent**\
+`Despite reservations, Republicans are falling in line behind President Trump’s contentious top administration picks, signaling a broader retreat from challenging him.`\
+https://nytimes.com/2025/02/04/us/politics/trump-cabinet-confirmations-gop-senators.html
+
 **Show Tunes and Martinis at a Party for Michael Kors**\
 `Alan Cumming, Katie Holmes and Iman were among the celebrities who gathered at Café Carlyle in Manhattan to toast the designer’s new flagship store.`\
 https://nytimes.com/2025/02/04/style/michael-kors-party.html
