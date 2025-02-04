@@ -1,3 +1,15 @@
+**Charles Barkley won't join NBC or Amazon, still talking with TNT and ESPN**\
+`"I'm hoping this thing comes together and I can stay with TNT and ESPN," Barkley said on "The Steam Room" podcast.`\
+https://nytimes.com/athletic/6112348/2025/02/04/charles-barkley-nbc-amazon-deals-nba/
+
+**One Scene of Devastation, Evoking Another**\
+`Adam Nagourney, a former Los Angeles bureau chief, writes about the disasters that left scars on Los Angeles and New York City.`\
+https://nytimes.com/2025/02/04/us/wildfires-destruction-sept-11.html
+
+**Matthew Tkachuk 'completely jacked' for 4 Nations: 'This is not an All-Star Game'**\
+`Tkachuk hasn't worn a Team USA sweater since 2016 and says "I can promise you the players will be engaged" for the best-on-best event.`\
+https://nytimes.com/athletic/6110823/2025/02/04/matthew-tkachuk-4-nations-excitement/
+
 **How Beyoncé Finally Won Her Elusive Grammy**\
 `The Recording Academy has worked to reshape its voting pool, but the triumph of “Cowboy Carter” as album of the year can’t be traced to any one factor.`\
 https://nytimes.com/2025/02/04/arts/music/beyonce-album-of-the-year-grammy.html

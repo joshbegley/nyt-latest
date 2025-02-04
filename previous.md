@@ -1,3 +1,15 @@
+**Charles Barkley won't join NBC or Amazon, still talking with TNT and ESPN**\
+`"I'm hoping this thing comes together and I can stay with TNT and ESPN," Barkley said on "The Steam Room" podcast.`\
+https://nytimes.com/athletic/6112348/2025/02/04/charles-barkley-nbc-amazon-deals-nba/
+
+**One Scene of Devastation, Evoking Another**\
+`Adam Nagourney, a former Los Angeles bureau chief, writes about the disasters that left scars on Los Angeles and New York City.`\
+https://nytimes.com/2025/02/04/us/wildfires-destruction-sept-11.html
+
+**Matthew Tkachuk 'completely jacked' for 4 Nations: 'This is not an All-Star Game'**\
+`Tkachuk hasn't worn a Team USA sweater since 2016 and says "I can promise you the players will be engaged" for the best-on-best event.`\
+https://nytimes.com/athletic/6110823/2025/02/04/matthew-tkachuk-4-nations-excitement/
+
 **How Beyoncé Finally Won Her Elusive Grammy**\
 `The Recording Academy has worked to reshape its voting pool, but the triumph of “Cowboy Carter” as album of the year can’t be traced to any one factor.`\
 https://nytimes.com/2025/02/04/arts/music/beyonce-album-of-the-year-grammy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/weather/los-angeles-rain-california-san-francisco
 **We still don't know who didn't vote for Ichiro after BBWAA releases ballots**\
 `A total of 394 voters submitted their ballots. Of those, 321 were made public Tuesday. But the Ichiro dissenter's ballot wasn't one of them.`\
 https://nytimes.com/athletic/6112460/2025/02/04/ichiro-suzuki-vote-mlb-baseball-hall-of-fame/
-
-**Arteta 'disappointed' in Arsenal transfer window: 'We haven't achieved our intention'**\
-`Mikel Arteta has admitted that Arsenal were &#8220;disappointed&#8221; not to sign anyone in the winter transfer window, but felt the need to remain ‘disciplined’ in how they acted.`\
-https://nytimes.com/athletic/6112508/2025/02/04/arsenal-transfer-january-window-mikel-arteta/
-
-**Twins to sign reliever Danny Coulombe to 1-year deal: Sources**\
-`The Twins have finally agreed to sign a major-league free agent, reuniting with the lefty on a one-year deal, according to league sources.`\
-https://nytimes.com/athletic/6101678/2025/02/04/danny-coulombe-contract-twins-mlb-free-agency/
-
-**Lawsuit Accuses Neil Gaiman of Sexual Assault Facilitated by His Wife**\
-`Scarlett Pavlovich, who accused Mr. Gaiman of rape and assault in a report last month, said in the suit that his wife had played a role in “procuring and presenting” her.`\
-https://nytimes.com/2025/02/04/books/neil-gaiman-lawsuit-sexual-abuse.html
 
