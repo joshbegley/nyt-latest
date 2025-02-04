@@ -1,3 +1,7 @@
+**Unions Sue to Block Musk’s Access to Treasury Payment Data**\
+`The suit was the latest effort by unions representing federal workers to push back against Trump administration directives aimed at undermining the federal bureaucracy.`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/unions-sue-to-block-musks-access-to-treasury-payment-data
+
 **Defense Secretary Vows to Use Thousands of Active-Duty Troops to Secure Border**\
 `Defense Secretary Pete Hegseth and Thomas D. Homan, President Trump’s border czar, toured areas near Mexico.`\
 https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html

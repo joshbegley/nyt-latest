@@ -1,3 +1,7 @@
+**Unions Sue to Block Musk’s Access to Treasury Payment Data**\
+`The suit was the latest effort by unions representing federal workers to push back against Trump administration directives aimed at undermining the federal bureaucracy.`\
+https://nytimes.com/live/2025/02/03/us/trump-usaid-news/unions-sue-to-block-musks-access-to-treasury-payment-data
+
 **Defense Secretary Vows to Use Thousands of Active-Duty Troops to Secure Border**\
 `Defense Secretary Pete Hegseth and Thomas D. Homan, President Trump’s border czar, toured areas near Mexico.`\
 https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html
@@ -35,8 +39,4 @@ https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-a-loyalist-t
 **A Daring Rescue Under a Subway Train Leads to an Emotional Reunion**\
 `Joseph Lynskey was shoved into the path of an oncoming train and survived. On Monday, he thanked the firefighters who rescued him.`\
 https://nytimes.com/2025/02/03/nyregion/joseph-lynskey-subway-firefighters.html
-
-**The University of California Increased Diversity. Now It’s Being Sued.**\
-`The state’s elite campuses, prohibited from using race-based admissions for decades, are now admitting more Black and Hispanic students. A new group is suing, arguing the university system is cheating.`\
-https://nytimes.com/2025/02/03/us/affirmative-action-california.html
 
