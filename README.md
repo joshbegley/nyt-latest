@@ -1,3 +1,15 @@
+**NFL refs: Questions about integrity 'insulting and preposterous'**\
+`NFL Referees Association executive director Scott Green called the commissioner's defense of officials' integrity "spot on."`\
+https://nytimes.com/athletic/6113531/2025/02/04/chiefs-referees-officials-roger-goodell-response/
+
+**West Bank? No, Judea and Samaria, Some Republicans Say.**\
+`President Trump’s return has emboldened supporters of Israeli annexation of the occupied territory who want to mandate the use of language reflecting that view. Opponents of annexation say the term reflects a political agenda.`\
+https://nytimes.com/2025/02/04/world/middleeast/west-bank-annexation-republicans.html
+
+**Is This the End of Pax Americana?**\
+`We should aim to be a great power, not a big one.`\
+https://nytimes.com/2025/02/04/opinion/trump-foreign-policy-power-tariffs.html
+
 **Planned changes to Premier League officiating: In-stadium VAR announcements and semi-automated offsides**\
 `In-stadium VAR announcements, semi-automated offsides, and tackling time-wasting are all on the agenda...`\
 https://nytimes.com/athletic/6113561/2025/02/04/changes-premier-league-referees-var/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/science/moon-canyons.html
 **Simona Halep retires from tennis**\
 `Halep, 33, had struggled to regain her best form after being suspended in October 2022 for testing positive for a banned substance.`\
 https://nytimes.com/athletic/6113615/2025/02/04/simona-halep-retires-tennis/
-
-**Wednesday Briefing: China Hits Back Against U.S. Tariffs**\
-`Plus, the women reinventing Sri Lankan politics.`\
-https://nytimes.com/2025/02/04/briefing/china-tariffs-trump-netanyahu-sweden-shooting.html
-
-**Trump Says Palestinians Have ‘No Alternative’ But to Leave Gaza**\
-`President Trump said he wanted Palestinians in Gaza to be relocated to a new area.`\
-https://nytimes.com/video/us/politics/100000009969978/trump-palestinians-gaza-israel.html
-
-**Alphabet Revenue Disappoints Investors on Weak Cloud Sales**\
-`The internet giant reported sales that narrowly missed Wall Street’s estimates and worried investors about the company’s A.I. business.`\
-https://nytimes.com/2025/02/04/technology/alphabet-google-earnings.html
 
