@@ -1,3 +1,7 @@
+**The Newest, Biggest Investment Fund: The United States Government?**\
+`Sovereign wealth funds invest state or government money. They’re typically created from budget surpluses or revenues from oil or other commodities.`\
+https://nytimes.com/2025/02/04/business/trump-sovereign-wealth-fund.html
+
 **Mt. Rushmore and a Third Term: G.O.P. Lawmakers Rush to Flatter Trump**\
 `A competition of sorts has broken out to see who can be the most pro-Trump member of Congress.`\
 https://nytimes.com/2025/02/04/us/politics/gop-lawmakers-trump.html

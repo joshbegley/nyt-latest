@@ -1,3 +1,7 @@
+**The Newest, Biggest Investment Fund: The United States Government?**\
+`Sovereign wealth funds invest state or government money. They’re typically created from budget surpluses or revenues from oil or other commodities.`\
+https://nytimes.com/2025/02/04/business/trump-sovereign-wealth-fund.html
+
 **Mt. Rushmore and a Third Term: G.O.P. Lawmakers Rush to Flatter Trump**\
 `A competition of sorts has broken out to see who can be the most pro-Trump member of Congress.`\
 https://nytimes.com/2025/02/04/us/politics/gop-lawmakers-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/tulsi-gabbard-confirmation-senate.htm
 **Messi's Barcelona locker bids surpass Cristiano Ronaldo's Real Madrid locker sale**\
 `Can Messi's locker surpass the record sale for a locker set by Kobe Bryant's? `\
 https://nytimes.com/athletic/6112452/2025/02/04/messi-ronaldo-lockers-barcelona-real-madrid/
-
-**Quentin Grimes-Caleb Martin trade grades: Mavs keep dealing; Sixers get younger**\
-`Grimes is joining his fourth team in four seasons while Martin brings added playoff experience to Dallas.`\
-https://nytimes.com/athletic/6113004/2025/02/04/quentin-grimes-caleb-martin-trade-grades/
 
