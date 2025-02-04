@@ -1,5 +1,5 @@
 **Cooper Kupp says the Rams told the star receiver they are going to trade him**\
-`The Rams drafted Cooper Kupp in 2017 and he won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs.`\
+`The Rams drafted Kupp in 2017 and he won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs.`\
 https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
 
 **Fay Vincent’s final warning to MLB: 'Gambling always leads to corruption'**\
