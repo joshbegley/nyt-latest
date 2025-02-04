@@ -1,3 +1,11 @@
+**Davies agrees new Bayern Munich contract**\
+`Alphonso Davies has committed his future to Bayern Munich by agreeing a new four-and-a-half-year contract, which will keep him at the Allianz Arena until the summer of 2030.`\
+https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-contract-new/
+
+**USMNT's Cardoso signs Betis contract extension to 2030**\
+`Cardoso,  apped 18 times by the U.S., has added a further 12 months onto his existing contract at the Seville-based club.`\
+https://nytimes.com/athletic/6112098/2025/02/04/johnny-cardoso-betis-contract-usmnt/
+
 **Stocks settle after a turbulent day, as Wall Street weighs tariffs on China.**\
 `By Danielle Kaye and Joe Rennison`\
 https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/stocks-settle-after-a-turbulent-day-as-wall-street-weighs-tariffs-on-china

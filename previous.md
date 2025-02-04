@@ -1,3 +1,7 @@
+**Davies agrees new Bayern Munich contract**\
+`Alphonso Davies has committed his future to Bayern Munich by agreeing a new four-and-a-half-year contract, which will keep him at the Allianz Arena until the summer of 2030.`\
+https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-contract-new/
+
 **Stocks settle after a turbulent day, as Wall Street weighs tariffs on China.**\
 `By Danielle Kaye and Joe Rennison`\
 https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/stocks-settle-after-a-turbulent-day-as-wall-street-weighs-tariffs-on-china
@@ -15,7 +19,7 @@ https://nytimes.com/2025/02/04/us/trump-mexico-tariff-negotiations.html
 https://nytimes.com/athletic/6109504/2025/02/04/eagles-prop-bets-super-bowl-59/
 
 **USMNT's Cardoso signs Betis contract extension to 2030**\
-`USMNT midfielder Johnny Cardoso has signed a contract extension at Real Betis through to 2030.`\
+`Cardoso,  apped 18 times by the U.S., has added a further 12 months onto his existing contract at the Seville-based club.`\
 https://nytimes.com/athletic/6112098/2025/02/04/johnny-cardoso-betis-contract-usmnt/
 
 **Joao Felix completes Milan loan move from Chelsea**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6111505/2025/02/04/nascar-clash-future-bowman-gray-
 **What we're hearing about potential Washington Wizards trade deadline deals**\
 `Kyle Kuzma and Jonas Valančiūnas are among the players Washington could trade before Thursday's deadline. `\
 https://nytimes.com/athletic/6111411/2025/02/04/washington-wizards-nba-trade-deadline-intel-kyle-kuzma/
-
-**What you need to know about the Bucks' one big number: Trade deadline primer**\
-`It will be difficult for the Bucks, who have salary cap restraints, to make a big splash before the Feb. 6 trade deadline.`\
-https://nytimes.com/athletic/6092589/2025/02/04/bucks-trade-deadline-primer/
 
