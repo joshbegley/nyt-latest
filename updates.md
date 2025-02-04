@@ -1,3 +1,7 @@
+**The Closed-Door Battle to Lead the Olympics**\
+`In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
+https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
+
 **No 'Brady Rules' in NOLA: Tom Brady can attend Super Bowl production meetings**\
 `Brady will still be barred from attending Chiefs and Eagles practices before the Super Bowl.`\
 https://nytimes.com/athletic/6112681/2025/02/04/super-bowl-tom-brady-broadcaster-pregame/
