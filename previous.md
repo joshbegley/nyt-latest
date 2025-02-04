@@ -1,3 +1,15 @@
+**A Fitting Dress Code for the 2025 Met Gala: ‘Tailored for You’**\
+`The Metropolitan Museum of Art also announced a new batch of co-hosts for its splashy fashion fund-raiser including Simone Biles, Ayo Edebiri, Usher and Doechii.`\
+https://nytimes.com/2025/02/04/style/met-gala-dress-code-dandyism.html
+
+**Grand Canyons on the Moon Were Made in a Matter of Minutes**\
+`Scientists proposed an explanation for the formation of Vallis Schrödinger and Vallis Planck near the lunar south pole, which are each about the size of Earth’s Grand Canyon.`\
+https://nytimes.com/2025/02/04/science/moon-canyons.html
+
+**Simona Halep retires from tennis**\
+`Halep, 33, had struggled to regain her best form after being suspended in October 2022 for testing positive for a banned substance.`\
+https://nytimes.com/athletic/6113615/2025/02/04/simona-halep-retires-tennis/
+
 **Wednesday Briefing: China Hits Back Against U.S. Tariffs**\
 `Plus, the women reinventing Sri Lankan politics.`\
 https://nytimes.com/2025/02/04/briefing/china-tariffs-trump-netanyahu-sweden-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/nyregion/adams-albany-mayor-election.html
 **Show Tunes and Martinis at a Party for Michael Kors**\
 `Alan Cumming, Katie Holmes and Iman were among the celebrities who gathered at Café Carlyle in Manhattan to toast the designer’s new flagship store.`\
 https://nytimes.com/2025/02/04/style/michael-kors-party.html
-
-**The Latest Trend Among the L.A. Elite: Launching Your Own Rebuilding Initiative**\
-`Power brokers in Los Angeles believe that side efforts are necessary to rebuild after the wildfires. They just can’t settle on which one.`\
-https://nytimes.com/2025/02/04/us/la-fires-leader-power-rebuild.html
-
-**Richard Williamson, Renegade Priest and Holocaust Denier, Dies at 84**\
-`Ordained as a bishop by a traditionalist sect, he was excommunicated then reinstated by the Vatican, but was undone by his antisemitic views.`\
-https://nytimes.com/2025/02/04/world/europe/richard-williamson-dead.html
-
-**Dončić shocked when told of trade: 'I had to check if it was April 1'**\
-`"I was almost asleep, so when I got a call, I had to check if it was April first," Dončić said about learning he was traded to the Lakers.`\
-https://nytimes.com/athletic/6113396/2025/02/04/luka-doncic-trade-injury-intro-news-conference-lakers/
 

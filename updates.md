@@ -1,3 +1,15 @@
+**A Fitting Dress Code for the 2025 Met Gala: ‘Tailored for You’**\
+`The Metropolitan Museum of Art also announced a new batch of co-hosts for its splashy fashion fund-raiser including Simone Biles, Ayo Edebiri, Usher and Doechii.`\
+https://nytimes.com/2025/02/04/style/met-gala-dress-code-dandyism.html
+
+**Grand Canyons on the Moon Were Made in a Matter of Minutes**\
+`Scientists proposed an explanation for the formation of Vallis Schrödinger and Vallis Planck near the lunar south pole, which are each about the size of Earth’s Grand Canyon.`\
+https://nytimes.com/2025/02/04/science/moon-canyons.html
+
+**Simona Halep retires from tennis**\
+`Halep, 33, had struggled to regain her best form after being suspended in October 2022 for testing positive for a banned substance.`\
+https://nytimes.com/athletic/6113615/2025/02/04/simona-halep-retires-tennis/
+
 **Wednesday Briefing: China Hits Back Against U.S. Tariffs**\
 `Plus, the women reinventing Sri Lankan politics.`\
 https://nytimes.com/2025/02/04/briefing/china-tariffs-trump-netanyahu-sweden-shooting.html
