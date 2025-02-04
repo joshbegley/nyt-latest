@@ -1,3 +1,7 @@
+**Planned changes to Premier League officiating: In-stadium VAR announcements and semi-automated offsides**\
+`In-stadium VAR announcements, semi-automated offsides, and tackling time-wasting are all on the agenda...`\
+https://nytimes.com/athletic/6113561/2025/02/04/changes-premier-league-referees-var/
+
 **Trump’s Attempt to Freeze Grant Funding Leaves Nonprofits Reeling**\
 `Some groups said their funding was still blocked, even after the freeze had been rescinded. Others saw their money reinstated but worried about future cuts.`\
 https://nytimes.com/2025/02/04/us/politics/grant-funding-freeze-nonprofits.html
