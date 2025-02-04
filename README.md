@@ -1,5 +1,9 @@
+**Trump Orders Could Drain Millions From Universities, but Few Protest Openly**\
+`Efforts by the administration to cut diversity efforts and foreign aid have upended campuses. But many university leaders seem wary of provoking a president who has glorified retribution.`\
+https://nytimes.com/2025/02/04/us/trump-executive-orders-universities.html
+
 **Davies agrees new Bayern Munich contract**\
-`Alphonso Davies has committed his future to Bayern Munich by agreeing a new four-and-a-half-year contract, which will keep him at the Allianz Arena until the summer of 2030.`\
+`The 24-year-old left-back was heavily pursued by Real Madrid and clubs in the Premier League.`\
 https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-contract-new/
 
 **Stocks settle after a turbulent day, as Wall Street weighs tariffs on China.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/style/street-style-winter-layers.html
 **Where should NASCAR take the Clash? After Bowman Gray success, decision looms**\
 `The Clash got a jolt of energy at the North Carolina short track. Will it return in 2026, or will NASCAR look elsewhere?`\
 https://nytimes.com/athletic/6111505/2025/02/04/nascar-clash-future-bowman-gray-brazil-international/
-
-**What we're hearing about potential Washington Wizards trade deadline deals**\
-`Kyle Kuzma and Jonas Valančiūnas are among the players Washington could trade before Thursday's deadline. `\
-https://nytimes.com/athletic/6111411/2025/02/04/washington-wizards-nba-trade-deadline-intel-kyle-kuzma/
 
