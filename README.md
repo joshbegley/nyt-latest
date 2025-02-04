@@ -1,3 +1,7 @@
+**Planned changes to Premier League officiating: In-stadium VAR announcements and semi-automated offsides**\
+`In-stadium VAR announcements, semi-automated offsides, and tackling time-wasting are all on the agenda...`\
+https://nytimes.com/athletic/6113561/2025/02/04/changes-premier-league-referees-var/
+
 **Trump’s Attempt to Freeze Grant Funding Leaves Nonprofits Reeling**\
 `Some groups said their funding was still blocked, even after the freeze had been rescinded. Others saw their money reinstated but worried about future cuts.`\
 https://nytimes.com/2025/02/04/us/politics/grant-funding-freeze-nonprofits.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009969978/trump-palestinians-gaza-is
 **Alphabet Revenue Disappoints Investors on Weak Cloud Sales**\
 `The internet giant reported sales that narrowly missed Wall Street’s estimates and worried investors about the company’s A.I. business.`\
 https://nytimes.com/2025/02/04/technology/alphabet-google-earnings.html
-
-**Final Remains Recovered From Plane Crash Over the Potomac**\
-`Officials in Washington said they had recovered 67 sets of remains. There were 64 people on the jet, and three crew members on the Army helicopter that collided with it.`\
-https://nytimes.com/2025/02/04/us/potomac-plane-bodies-recovered.html
 
