@@ -1,3 +1,11 @@
+**Trump Orders Could Drain Millions From Universities, but Few Protest Openly**\
+`Efforts by the administration to cut diversity efforts and foreign aid have upended campuses. But many university leaders seem wary of provoking a president who has glorified retribution.`\
+https://nytimes.com/2025/02/04/us/trump-executive-orders-universities.html
+
+**Davies agrees new Bayern Munich contract**\
+`The 24-year-old left-back was heavily pursued by Real Madrid and clubs in the Premier League.`\
+https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-contract-new/
+
 **Davies agrees new Bayern Munich contract**\
 `Alphonso Davies has committed his future to Bayern Munich by agreeing a new four-and-a-half-year contract, which will keep him at the Allianz Arena until the summer of 2030.`\
 https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-contract-new/
