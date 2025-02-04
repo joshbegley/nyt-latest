@@ -1,3 +1,11 @@
+**What to watch this week in the NBA: All eyes on Spurs, Lakers, Mavs and Kings after trades**\
+`Behold, the weirdest week in professional basketball! There are some interesting matchups surrounding Thursday's trade deadline.`\
+https://nytimes.com/athletic/6111080/2025/02/04/nba-how-to-watch-celtics-knicks-lakers-mavericks-thunder-spurs-trade-deadline/
+
+**Teenager Known for Lifesaving Skills Is Killed in Shark Attack in Australia**\
+`Charlize Zmuda, 17, died after being bitten by a shark off Woorim Beach, a popular spot in Queensland, on Monday afternoon.`\
+https://nytimes.com/2025/02/04/world/australia/australia-shark-attack-girl-killed.html
+
 **Was a Guantánamo Confession Voluntary? A Judge Will Soon Decide.**\
 `The 9/11 case is at a crossroads in the long running challenge over whether a key confession is tainted by C.I.A. torture`\
 https://nytimes.com/2025/02/04/us/politics/guantanamo-sept-11-trial-confession.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6072853/2025/02/04/alphonso-davies-bayern-munich-co
 **Stocks settle after a turbulent day, as Wall Street weighs tariffs on China.**\
 `By Danielle Kaye and Joe Rennison`\
 https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/stocks-settle-after-a-turbulent-day-as-wall-street-weighs-tariffs-on-china
-
-**As Israel Expands West Bank Operation, Two Soldiers Are Killed**\
-`Israel’s military said this week that its campaign targeting militants, which local Palestinians have called one of the most destructive in recent memory, was moving eastward.`\
-https://nytimes.com/2025/02/04/world/middleeast/israel-west-bank-raid.html
-
-**How Mexico’s President Avoided U.S. Tariffs, for Now**\
-`President Claudia Sheinbaum’s abilities to deal with a major crisis were on full display as President Trump’s tariffs on Mexican goods were paused for a month.`\
-https://nytimes.com/2025/02/04/us/trump-mexico-tariff-negotiations.html
 
