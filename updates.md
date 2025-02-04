@@ -1,3 +1,11 @@
+**Lawsuit Accuses Neil Gaiman of Sexual Assault Facilitated by His Wife**\
+`Scarlett Pavlovich, who accused Mr. Gaiman of rape and assault in a report last month, said in the suit that his wife had played a role in “procuring and presenting” her.`\
+https://nytimes.com/2025/02/04/books/neil-gaiman-lawsuit-sexual-abuse.html
+
+**Mexico Deploys 10,000 National Guard Members to U.S. Border: What to Know**\
+`President Claudia Sheinbaum’s government said the National Guard members had redeployed to 18 cities and towns along the U.S.-Mexico border as part of a deal to delay U.S. tariffs.`\
+https://nytimes.com/2025/02/04/world/americas/mexico-troops-border-deal-trump.html
+
 **What to watch this week in the NBA: All eyes on Spurs, Lakers, Mavs and Kings after trades**\
 `Behold, the weirdest week in professional basketball! There are some interesting matchups surrounding Thursday's trade deadline.`\
 https://nytimes.com/athletic/6111080/2025/02/04/nba-how-to-watch-celtics-knicks-lakers-mavericks-thunder-spurs-trade-deadline/
