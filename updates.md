@@ -1,3 +1,11 @@
+**Crevette Is a French Excursion for the Lord’s and Dame Team**\
+`The chef Paul Carmichael opens Bar Kabawa with Momofuku, Lulla’s offers Venezuelan baked goods and more restaurant news.`\
+https://nytimes.com/2025/02/04/dining/nyc-restaurant-news.html
+
+**Chelsea confirm signing of Amougou from Saint-Etienne**\
+`Amougou, who has made 17 appearances in Ligue 1 this season, has moved to Chelsea for a fee in the region of £12.5m on an 8-year contract.`\
+https://nytimes.com/athletic/6109419/2025/02/04/chelsea-saint-etienne-amougou-transfer/
+
 **Who Is Bill Cassidy, the Republican Whose Support Is Crucial for Kennedy?**\
 `Senator Bill Cassidy, a Republican doctor, had deep misgivings about Robert F. Kennedy Jr.’s nomination for health secretary, citing his views on vaccines. But in a key committee session, he voted yes.`\
 https://nytimes.com/2025/02/04/us/politics/bill-cassidy-senator-rfk-jr.html
