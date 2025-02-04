@@ -2,9 +2,9 @@
 `De la Fuente gave testimony on the second day of Rubiales' trial for the alleged sexual assault and coercion of Jenni Hermoso`\
 https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-trial/
 
-**F.B.I. agents involved in Jan. 6 cases are asking a court to bar the Trump team from disclosing their identities.**\
-`By Charlie Savage`\
-https://nytimes.com/2025/02/04/us/politics/fbi-agents-involved-in-jan-6-cases-are-asking-a-court-to-bar-the-trump-team-from-disclosing-their-identities.html
+**F.B.I. Agents Ask Court to Bar Trump Team From Disclosing Their Names**\
+`Employees who participated in Jan. 6 investigations contend in two lawsuits that they believe the administration intends to reveal their identities, endangering them and their families.`\
+https://nytimes.com/2025/02/04/us/politics/fbi-names-trump-jan-6-lawsuit.html
 
 **Astros to retire Billy Wagner's No. 13**\
 `Wagner's number will be retired during a series against the Baltimore Orioles from Aug. 15-17.`\
