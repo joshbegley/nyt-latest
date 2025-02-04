@@ -1,3 +1,15 @@
+**Wednesday Briefing: China Hits Back Against U.S. Tariffs**\
+`Plus, the women reinventing Sri Lankan politics.`\
+https://nytimes.com/2025/02/04/briefing/china-tariffs-trump-netanyahu-sweden-shooting.html
+
+**Trump Says Palestinians Have ‘No Alternative’ But to Leave Gaza**\
+`President Trump said he wanted Palestinians in Gaza to be relocated to a new area.`\
+https://nytimes.com/video/us/politics/100000009969978/trump-palestinians-gaza-israel.html
+
+**Alphabet Revenue Disappoints Investors on Weak Cloud Sales**\
+`The internet giant reported sales that narrowly missed Wall Street’s estimates and worried investors about the company’s A.I. business.`\
+https://nytimes.com/2025/02/04/technology/alphabet-google-earnings.html
+
 **Final Remains Recovered From Plane Crash Over the Potomac**\
 `Officials in Washington said they had recovered 67 sets of remains. There were 64 people on the jet, and three crew members on the Army helicopter that collided with it.`\
 https://nytimes.com/2025/02/04/us/potomac-plane-bodies-recovered.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/world/europe/richard-williamson-dead.html
 **Dončić shocked when told of trade: 'I had to check if it was April 1'**\
 `"I was almost asleep, so when I got a call, I had to check if it was April first," Dončić said about learning he was traded to the Lakers.`\
 https://nytimes.com/athletic/6113396/2025/02/04/luka-doncic-trade-injury-intro-news-conference-lakers/
-
-**Watch: What other moves could the Lakers make before the trade deadline?**\
-`The Athletic NBA Daily discuss what further moves the Lakers need to make before Thursday's trade deadline.`\
-https://nytimes.com/athletic/6113030/2025/02/04/nba-daily-lakers-trade-deadline/
-
-**Here are the 2024 Puzzle Mania Contest Winners**\
-`Plus, the answer grid for the 50 x 50 Super Mega crossword.`\
-https://nytimes.com/2025/02/04/crosswords/2024-puzzle-mania-winners.html
-
-**Until Saturday: Signing day is almost here, plus re-ranking 2022's QBs**\
-`Welcome to Until Saturday, the five-star college football newsletter: National signing day returns on Wednesday.`\
-https://nytimes.com/athletic/6113118/2025/02/04/national-signing-day-until-saturday/
 

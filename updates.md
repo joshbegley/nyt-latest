@@ -1,3 +1,15 @@
+**Wednesday Briefing: China Hits Back Against U.S. Tariffs**\
+`Plus, the women reinventing Sri Lankan politics.`\
+https://nytimes.com/2025/02/04/briefing/china-tariffs-trump-netanyahu-sweden-shooting.html
+
+**Trump Says Palestinians Have ‘No Alternative’ But to Leave Gaza**\
+`President Trump said he wanted Palestinians in Gaza to be relocated to a new area.`\
+https://nytimes.com/video/us/politics/100000009969978/trump-palestinians-gaza-israel.html
+
+**Alphabet Revenue Disappoints Investors on Weak Cloud Sales**\
+`The internet giant reported sales that narrowly missed Wall Street’s estimates and worried investors about the company’s A.I. business.`\
+https://nytimes.com/2025/02/04/technology/alphabet-google-earnings.html
+
 **Final Remains Recovered From Plane Crash Over the Potomac**\
 `Officials in Washington said they had recovered 67 sets of remains. There were 64 people on the jet, and three crew members on the Army helicopter that collided with it.`\
 https://nytimes.com/2025/02/04/us/potomac-plane-bodies-recovered.html
