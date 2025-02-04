@@ -1,3 +1,7 @@
+**Here are the 2024 Puzzle Mania Contest Winners**\
+`Plus, the answer grid for the 50 x 50 Super Mega crossword.`\
+https://nytimes.com/2025/02/04/crosswords/2024-puzzle-mania-winners.html
+
 **Until Saturday: Signing day is almost here, plus re-ranking 2022's QBs**\
 `Welcome to Until Saturday, the five-star college football newsletter: National signing day returns on Wednesday.`\
 https://nytimes.com/athletic/6113118/2025/02/04/national-signing-day-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/climate/trump-neil-jacobs-noaa-sharpiegate.html
 **Wisconsin football program loses GM Max Stienecker to USC**\
 `Stienecker, 24, was instrumental in helping build Wisconsin’s last two recruiting classes under head coach Luke Fickell.`\
 https://nytimes.com/athletic/6113334/2025/02/04/wisconsin-football-program-loses-gm-max-stienecker-to-usc/
-
-**Elon Musk’s X Becomes Weapon in Government Cost Cutting**\
-`The billionaire has used the social media site to boast of victories, lash out at enemies and conduct polls for the initiative he calls the Department of Government Efficiency.`\
-https://nytimes.com/2025/02/04/technology/elon-musk-x-doge.html
 
