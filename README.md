@@ -1,3 +1,7 @@
+**Liverpool defender Alexander-Arnold avoids serious injury**\
+`Alexander-Arnold came off with 20 minutes to go at Bournemouth on Saturday after pulling up with discomfort in his thigh.`\
+https://nytimes.com/athletic/6112029/2025/02/04/liverpool-alexander-arnold-injury-update/
+
 **The Athletic FC: City's late £50m deal, top transfers in window, Hermoso 'received death threats'**\
 `Today in TAFC: Man City's late £50m splash, the best deals reviewed, Hermoso says she received death threats after Rubiales kiss`\
 https://nytimes.com/athletic/6111912/2025/02/04/citys-late-50m-deal-top-transfers-hermoso-received-death-threats-after-rubiales-kiss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6110749/2025/02/04/milan-hotel-transfers-gallia-she
 **Everton's transfer window: Alcaraz arrives but Moyes and TFG show patience after stunning start**\
 `In the wake of a takeover and a managerial change, Everton hope they have enough quality to avoid relegation ahead of a busy off-season`\
 https://nytimes.com/athletic/6109649/2025/02/04/everton-transfer-window-alcaraz-moyes-tfg/
-
-**Trump Promised a Cap on Credit Card Interest Rates. Here’s His Chance.**\
-`Senators Bernie Sanders and Josh Hawley say they will propose a 10 percent limit on credit card interest rates.`\
-https://nytimes.com/2025/02/04/business/credit-card-interest-cap.html
 
