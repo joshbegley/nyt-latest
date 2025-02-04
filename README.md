@@ -1,3 +1,7 @@
+**Chiefs owner Clark Hunt says Andy Reid will be back next season: 'I know for a fact'**\
+`Reid is fourth all-time in wins among head coaches and has reached the second-most Super Bowls of any head coach.`\
+https://nytimes.com/athletic/6111438/2025/02/03/chiefs-clark-hunt-andy-reid-retirement-super-bowl-comments/
+
 **Roger Goodell lauds Saints' transparency on connection to archdiocese**\
 `Multiple reports revealed franchise members' support of Catholic Church in wake of abuse scandal.`\
 https://nytimes.com/athletic/6109606/2025/02/03/saints-emails-catholic-church-priests-sex-abuse-scandal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/elon-musk-treasury-payment-data.html
 **Defense Secretary Vows to Use Thousands of Active-Duty Troops to Secure Border**\
 `Defense Secretary Pete Hegseth and Thomas D. Homan, President Trump’s border czar, toured areas near Mexico.`\
 https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html
-
-**Full Time: Explaining the Luis Rubiales trial**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/6111212/2025/02/03/luis-rubiales-naomi-girma-record-full-time/
 
