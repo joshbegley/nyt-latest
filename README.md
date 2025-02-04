@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6113665/2025/02/04/kevin-durant-trade-rumors-suns-w
 `The notice came as the Trump administration pushes to shrink the work force, giving civil servants until Thursday to decide whether to resign.`\
 https://nytimes.com/2025/02/04/us/politics/gsa-staff-cuts-trump.html
 
-**Prosecutors Charge Man They Say Is Tied to Robbery of N.F.L. Quarterback**\
+**Prosecutors Charge Man Said to Be Tied to Robbery of N.F.L. Quarterback**\
 `The home of Joe Burrow of the Cincinnati Bengals was burglarized in December. The authorities said a man detained in Manhattan was part of a related fencing operation.`\
 https://nytimes.com/2025/02/04/nyregion/joe-burrow-home-burglary-charges.html
 
