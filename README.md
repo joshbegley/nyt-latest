@@ -1,3 +1,11 @@
+**How to Host a Cozy Winter Meal**\
+`For the colder months, we’re revisiting our favorite cheery candlelit gatherings and sharing tips from expert hosts.`\
+https://nytimes.com/2025/02/04/t-magazine/cozy-winter-meals-inspiration.html
+
+**The Aga Khan IV, Leader of the Ismaili Muslims, Dies at 88**\
+`At the age of 20, he inherited the reins of a Shia Muslim lineage and used his entrepreneurship to become one of the world’s wealthiest hereditary rulers.`\
+https://nytimes.com/2025/02/04/obituaries/the-aga-khan-iv-dead.html
+
 **NFL refs: Questions about integrity 'insulting and preposterous'**\
 `NFL Referees Association executive director Scott Green called the commissioner's defense of officials' integrity "spot on."`\
 https://nytimes.com/athletic/6113531/2025/02/04/chiefs-referees-officials-roger-goodell-response/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6113424/2025/02/04/ncaa-settlement-house-revenue-sh
 **A Fitting Dress Code for the 2025 Met Gala: ‘Tailored for You’**\
 `The Metropolitan Museum of Art also announced a new batch of co-hosts for its splashy fashion fund-raiser including Simone Biles, Ayo Edebiri, Usher and Doechii.`\
 https://nytimes.com/2025/02/04/style/met-gala-dress-code-dandyism.html
-
-**Grand Canyons on the Moon Were Made in a Matter of Minutes**\
-`Scientists proposed an explanation for the formation of Vallis Schrödinger and Vallis Planck near the lunar south pole, which are each about the size of Earth’s Grand Canyon.`\
-https://nytimes.com/2025/02/04/science/moon-canyons.html
-
-**Simona Halep retires from tennis**\
-`Halep, 33, had struggled to regain her best form after being suspended in October 2022 for testing positive for a banned substance.`\
-https://nytimes.com/athletic/6113615/2025/02/04/simona-halep-retires-tennis/
 
