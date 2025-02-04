@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6109872/2025/02/04/manchester-united-transfers-rash
 https://nytimes.com/athletic/6109656/2025/02/04/manchester-city-transfer-window-review/
 
 **With the window shut and wantaway players out, Enzo Maresca can breathe easy**\
-`Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
+`Maresca disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
 https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
 

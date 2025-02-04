@@ -1,3 +1,7 @@
+**With the window shut and wantaway players out, Enzo Maresca can breathe easy**\
+`Maresca disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
+https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
+
 **Democrats Challenge Musk’s Efforts to Dismantle U.S.A.I.D.**\
 `In front of the headquarters of the government’s largest humanitarian aid agency, Democratic lawmakers joined protesters to speak out against the drastic changes to U.S.A.I.D.`\
 https://nytimes.com/video/us/politics/100000009968608/usaid-elon-musk-trump-democrats.html
