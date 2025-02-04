@@ -1,3 +1,11 @@
+**Until Saturday: Signing day is almost here, plus re-ranking 2022's QBs**\
+`Welcome to Until Saturday, the five-star college football newsletter: National signing day returns on Wednesday.`\
+https://nytimes.com/athletic/6113118/2025/02/04/national-signing-day-until-saturday/
+
+**Want Eggs With Your Breakfast? Pay a Surcharge, Waffle House Says.**\
+`The restaurant chain, which serves breakfast all day, said it was adding the temporary 50-cent surcharge because the bird flu has caused a shortage in the egg supply.`\
+https://nytimes.com/2025/02/04/business/waffle-house-egg-surcharge.html
+
 **Want Eggs With Your Breakfast? Pay a Surcharge, Waffle House Says.**\
 `The restaurant chain, serves breakfast all day, said it was adding the temporary 50-cent surcharge because the bird flu has caused a shortage in the egg supply.`\
 https://nytimes.com/2025/02/04/business/waffle-house-egg-surcharge.html
