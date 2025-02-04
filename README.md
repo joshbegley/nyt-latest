@@ -1,3 +1,7 @@
+**Where should NASCAR take the Clash? After Bowman Gray success, decision looms**\
+`The Clash got a jolt of energy at the North Carolina short track. Will it return in 2026, or will NASCAR look elsewhere?`\
+https://nytimes.com/athletic/6111505/2025/02/04/nascar-clash-future-bowman-gray-brazil-international/
+
 **What we're hearing about potential Washington Wizards trade deadline deals**\
 `Kyle Kuzma and Jonas Valančiūnas are among the players Washington could trade before Thursday's deadline. `\
 https://nytimes.com/athletic/6111411/2025/02/04/washington-wizards-nba-trade-deadline-intel-kyle-kuzma/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/04/learning/04StudentNewsQuiz.html
 **Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
 `The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
 https://nytimes.com/athletic/6109370/2025/02/04/chiefs-prop-bets-super-bowl-59/
-
-**Ranking the Raiders' free agents: Tre'von Moehrig, Robert Spillane should be in demand**\
-`The Raiders have several key defensive players up for new contracts. With Patrick Graham returning, how many will they re-sign? `\
-https://nytimes.com/athletic/6110976/2025/02/04/raiders-2025-free-agents-moehrig-spillane/
 
