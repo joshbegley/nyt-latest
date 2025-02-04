@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6111887/2025/02/04/david-alaba-injury-real-madrid/
 https://nytimes.com/athletic/6111054/2025/02/04/leeds-transfer-window-review-archer-joseph/
 
 **Dodgy WiFi, empanadas and an owner in the bath - the Milan hotel where Serie A convenes for deadline day**\
-`Sporting directors and agents descend upon the northern Italian city on the final day of the window to thrash out late deals face to face`\
+`Sporting directors and agents descend on the northern Italian city on the final day of each window to thrash out late deals face to face`\
 https://nytimes.com/athletic/6110749/2025/02/04/milan-hotel-transfers-gallia-sheraton/
 
 **Everton's transfer window: Alcaraz arrives but Moyes and TFG show patience after stunning start**\
