@@ -1,3 +1,7 @@
+**Democrats Challenge Musk’s Efforts to Dismantle U.S.A.I.D.**\
+`In front of the headquarters of the government’s largest humanitarian aid agency, Democratic lawmakers joined protesters to speak out against the drastic changes to U.S.A.I.D.`\
+https://nytimes.com/video/us/politics/100000009968608/usaid-elon-musk-trump-democrats.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/04/crosswords/spelling-bee-forum.html
