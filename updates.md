@@ -1,3 +1,7 @@
+**Liverpool defender Alexander-Arnold avoids serious injury**\
+`Alexander-Arnold came off with 20 minutes to go at Bournemouth on Saturday after pulling up with discomfort in his thigh.`\
+https://nytimes.com/athletic/6112029/2025/02/04/liverpool-alexander-arnold-injury-update/
+
 **Medical Experts Raise Grave Doubts Over Conviction of ‘Killer Nurse’ Lucy Letby**\
 `After assessing the cases of 17 babies at the heart of the British nurse’s murder trials, a panel of specialists said that they had found no evidence that Ms. Letby had murdered anyone.`\
 https://nytimes.com/2025/02/04/world/europe/lucy-letby-nurse-uk-appeal-evidence.html
