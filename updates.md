@@ -1,3 +1,7 @@
+**With the window shut and wantaway players out, Enzo Maresca can breathe easy**\
+`Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
+https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
+
 **Inside Arsenal's transfer window: Arteta's Watkins enthusiasm, late Morata interest and Nypan talks**\
 `A late pivot to focus on the forward line led to an opportunistic attempt to sign Ollie Watkins and discussions over Alvaro Morata`\
 https://nytimes.com/athletic/6109947/2025/02/04/arsenal-transfer-window-watkins-morata-nypan/
