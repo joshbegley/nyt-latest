@@ -1,3 +1,7 @@
+**Key transfer questions answered: Did Spurs do enough? Arsenal striker search? Man Utd plan?**\
+`Deadline day has come and gone — with a series of questions left behind. We've answered the key ones across all clubs`\
+https://nytimes.com/athletic/6108914/2025/02/04/transfer-window-latest-analysis-arsenal-manchester-united/
+
 **Why did Liverpool not sign anyone in this winter's transfer window?**\
 `Fans demanding Anfield's powerbrokers sign from a position of strength were disappointed but this squad are being backed to finish the job`\
 https://nytimes.com/athletic/6108909/2025/02/04/liverpool-january-transfer-window-no-signings/

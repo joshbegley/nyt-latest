@@ -1,3 +1,7 @@
+**Key transfer questions answered: Did Spurs do enough? Arsenal striker search? Man Utd plan?**\
+`Deadline day has come and gone — with a series of questions left behind. We've answered the key ones across all clubs`\
+https://nytimes.com/athletic/6108914/2025/02/04/transfer-window-latest-analysis-arsenal-manchester-united/
+
 **Why did Liverpool not sign anyone in this winter's transfer window?**\
 `Fans demanding Anfield's powerbrokers sign from a position of strength were disappointed but this squad are being backed to finish the job`\
 https://nytimes.com/athletic/6108909/2025/02/04/liverpool-january-transfer-window-no-signings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6111347/2025/02/03/eagles-super-bowl-media-night-br
 **Don't Believe Him**\
 `Look closely at the first two weeks of Donald Trump’s second term and you’ll see something very different than what he wants you to see.`\
 https://nytimes.com/video/opinion/100000009968320/dont-believe-him.html
-
-**Proud Boys Lose Control of Their Name to a Black Church They Vandalized**\
-`A judge awarded the trademarked name and symbols to a Washington church to help satisfy a $2.8 million judgment against the far-right group.`\
-https://nytimes.com/2025/02/03/us/politics/proud-boys.html
 
