@@ -1,3 +1,15 @@
+**Valley of the Dystopian Dolls**\
+`Marc Jacobs brings inflation, and courage, to the runway.`\
+https://nytimes.com/2025/02/04/style/marc-jacobs-spring-2025.html
+
+**New Syrian Leader to Meet Erdogan in Turkey**\
+`It’s the first meeting of Syria’s interim president, Ahmed al-Shara, and President Recep Tayyip Erdogan. Turkey has military posts in Syria and hosts millions of Syrian refugees.`\
+https://nytimes.com/2025/02/04/world/middleeast/syria-turkey-al-shara-erdogan.html
+
+**With NBA trade deadline near, Bulls are keeping their word and gutting the roster**\
+`LaVine did what he could in Chicago, but trading him was a move that many thought needed to be made. What's next for the Bulls?`\
+https://nytimes.com/athletic/6111522/2025/02/04/bulls-nba-trade-deadline-zach-lavine/
+
 **What Streak Would You Like to Attempt?**\
 `Is there a goal you’d like to pursue by doing something every day for weeks or even months in a row? What do you think might happen as a result?`\
 https://nytimes.com/2025/02/04/learning/what-streak-would-you-like-to-attempt.html
