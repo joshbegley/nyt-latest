@@ -1,3 +1,7 @@
+**Defense Secretary Vows to Use Thousands of Active-Duty Troops to Protect Border**\
+`Defense Secretary Pete Hegseth and Thomas D. Homan, President Trump’s border czar, toured areas near Mexico.`\
+https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html
+
 **Full Time: Explaining the Luis Rubiales trial**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6111212/2025/02/03/luis-rubiales-naomi-girma-record-full-time/
