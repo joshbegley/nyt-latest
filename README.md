@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6109827/2025/02/04/sf-giants-2025-stat-regressions/
 
 **How Trump’s Trade War Could Affect Climate Change**\
 `President Trump’s tariffs could threaten supply chains in the renewable energy industry and disrupt oil and gas markets.`\
-https://nytimes.com/2025/02/04/climate/how-trumps-trade-war-could-affect-climate-change.html
+https://nytimes.com/2025/02/04/climate/trump-trade-climate-change.html
 
 **Trudeau and Sheinbaum Took Different Routes to Win a Tariff Reprieve**\
 `The Canadian and Mexican leaders negotiated with President Trump in diverging ways. In the end, they both secured an outcome they could present as victories back home.`\
