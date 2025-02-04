@@ -1,3 +1,7 @@
+**Chiefs owner Clark Hunt says Andy Reid will be back next season: 'I know for a fact'**\
+`Reid is fourth all-time in wins among head coaches and has reached the second-most Super Bowls of any head coach.`\
+https://nytimes.com/athletic/6111438/2025/02/03/chiefs-clark-hunt-andy-reid-retirement-super-bowl-comments/
+
 **Roger Goodell lauds Saints' transparency on connection to archdiocese**\
 `Multiple reports revealed franchise members' support of Catholic Church in wake of abuse scandal.`\
 https://nytimes.com/athletic/6109606/2025/02/03/saints-emails-catholic-church-priests-sex-abuse-scandal/
