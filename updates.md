@@ -1,3 +1,7 @@
+**Watch: What other moves could the Lakers make before the trade deadline?**\
+`The Athletic NBA Daily discuss what further moves the Lakers need to make before Thursday's trade deadline.`\
+https://nytimes.com/athletic/6113030/2025/02/04/nba-daily-lakers-trade-deadline/
+
 **Here are the 2024 Puzzle Mania Contest Winners**\
 `Plus, the answer grid for the 50 x 50 Super Mega crossword.`\
 https://nytimes.com/2025/02/04/crosswords/2024-puzzle-mania-winners.html
