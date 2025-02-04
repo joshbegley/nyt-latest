@@ -1,3 +1,7 @@
+**The Latest Trend Among the L.A. Elite: Launching Your Own Rebuilding Initiative**\
+`Power brokers in Los Angeles believe that side efforts are necessary to rebuild after the wildfires. They just can’t settle on which one.`\
+https://nytimes.com/2025/02/04/us/la-fires-leader-power-rebuild.html
+
 **Richard Williamson, Renegade Priest and Holocaust Denier, Dies at 84**\
 `Ordained as a bishop by a traditionalist sect, he was excommunicated then reinstated by the Vatican, but was undone by his antisemitic views.`\
 https://nytimes.com/2025/02/04/world/europe/richard-williamson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/trump
 **Small-Business Owners Say Tariffs Will Squeeze Them, and Their Customers**\
 `Consumer electronics, electrical equipment, and textiles and apparel are among the top categories of goods imported into the United States from China.`\
 https://nytimes.com/2025/02/04/us/trump-tariffs-china-consumer-costs.html
-
-**The Newest, Biggest Investment Fund: The United States Government?**\
-`Sovereign wealth funds invest state or government money. They’re typically created from budget surpluses or revenues from oil or other commodities.`\
-https://nytimes.com/2025/02/04/business/trump-sovereign-wealth-fund.html
 
