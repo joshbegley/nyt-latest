@@ -27,7 +27,7 @@ https://nytimes.com/2025/02/04/us/politics/migrants-guantanamo-trump.html
 https://nytimes.com/2025/02/04/us/bear-crawl-space-eaton-fires.html
 
 **At Least 10 Are Killed at School Shooting in Sweden**\
-`The shooting took place at a school for adult education in the city of Orebro on Tuesday. An official said he did not think it was a terrorist attack.`\
+`The shooting took place at a center for adult education in the city of Orebro on Tuesday. The police said they believed that the shooter was among the wounded in the attack.`\
 https://nytimes.com/2025/02/04/world/europe/sweden-school-shooting.html
 
 **U.S.A.I.D. Workers Brace for Agency’s Dismantling**\
