@@ -1,3 +1,11 @@
+**How to Host a Cozy Winter Meal**\
+`For the colder months, we’re revisiting our favorite cheery candlelit gatherings and sharing tips from expert hosts.`\
+https://nytimes.com/2025/02/04/t-magazine/cozy-winter-meals-inspiration.html
+
+**The Aga Khan IV, Leader of the Ismaili Muslims, Dies at 88**\
+`At the age of 20, he inherited the reins of a Shia Muslim lineage and used his entrepreneurship to become one of the world’s wealthiest hereditary rulers.`\
+https://nytimes.com/2025/02/04/obituaries/the-aga-khan-iv-dead.html
+
 **NFL refs: Questions about integrity 'insulting and preposterous'**\
 `NFL Referees Association executive director Scott Green called the commissioner's defense of officials' integrity "spot on."`\
 https://nytimes.com/athletic/6113531/2025/02/04/chiefs-referees-officials-roger-goodell-response/
