@@ -1,3 +1,15 @@
+**Valley of the Dystopian Dolls**\
+`Marc Jacobs brings inflation, and courage, to the runway.`\
+https://nytimes.com/2025/02/04/style/marc-jacobs-spring-2025.html
+
+**New Syrian Leader to Meet Erdogan in Turkey**\
+`It’s the first meeting of Syria’s interim president, Ahmed al-Shara, and President Recep Tayyip Erdogan. Turkey has military posts in Syria and hosts millions of Syrian refugees.`\
+https://nytimes.com/2025/02/04/world/middleeast/syria-turkey-al-shara-erdogan.html
+
+**With NBA trade deadline near, Bulls are keeping their word and gutting the roster**\
+`LaVine did what he could in Chicago, but trading him was a move that many thought needed to be made. What's next for the Bulls?`\
+https://nytimes.com/athletic/6111522/2025/02/04/bulls-nba-trade-deadline-zach-lavine/
+
 **What Streak Would You Like to Attempt?**\
 `Is there a goal you’d like to pursue by doing something every day for weeks or even months in a row? What do you think might happen as a result?`\
 https://nytimes.com/2025/02/04/learning/what-streak-would-you-like-to-attempt.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6111260/2025/02/04/myles-garrett-browns-trade-nfl-d
 **Ranking the Chargers' unrestricted free agents: Why a Khalil Mack return makes sense**\
 `The Chargers have 27 pending unrestricted free agents on their roster after going heavy on bargain one-year deals last offseason.`\
 https://nytimes.com/athletic/6110916/2025/02/04/chargers-2025-free-agent-rankings/
-
-**Where Trump’s Trade Fight Could Go Next**\
-`New tariffs on Chinese imports are on, even as Canada and Mexico won a reprieve. Could the European Union be next? And how is the president defining victory?`\
-https://nytimes.com/2025/02/04/business/dealbook/trump-trade-china-european-union.html
-
-**Liverpool defender Alexander-Arnold avoids serious injury**\
-`Alexander-Arnold came off with 20 minutes to go at Bournemouth on Saturday after pulling up with discomfort in his thigh.`\
-https://nytimes.com/athletic/6112029/2025/02/04/liverpool-alexander-arnold-injury-update/
-
-**The Athletic FC: City's late £50m deal, top transfers in window, Hermoso 'received death threats'**\
-`Today in TAFC: Man City's late £50m splash, the best deals reviewed, Hermoso says she received death threats after Rubiales kiss`\
-https://nytimes.com/athletic/6111912/2025/02/04/citys-late-50m-deal-top-transfers-hermoso-received-death-threats-after-rubiales-kiss/
 
