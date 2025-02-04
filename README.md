@@ -1,3 +1,7 @@
+**Where Trump’s Trade Fight Could Go Next**\
+`New tariffs on Chinese imports are on, even as Canada and Mexico won a reprieve. Could the European Union be next? And how is the president defining victory?`\
+https://nytimes.com/2025/02/04/business/dealbook/trump-trade-china-european-union.html
+
 **Liverpool defender Alexander-Arnold avoids serious injury**\
 `Alexander-Arnold came off with 20 minutes to go at Bournemouth on Saturday after pulling up with discomfort in his thigh.`\
 https://nytimes.com/athletic/6112029/2025/02/04/liverpool-alexander-arnold-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6111054/2025/02/04/leeds-transfer-window-review-arc
 **Dodgy WiFi, empanadas and an owner in the bath - the Milan hotel where Serie A convenes for deadline day**\
 `Sporting directors and agents descend on the northern Italian city on the final day of each window to thrash out late deals face to face`\
 https://nytimes.com/athletic/6110749/2025/02/04/milan-hotel-transfers-gallia-sheraton/
-
-**Everton's transfer window: Alcaraz arrives but Moyes and TFG show patience after stunning start**\
-`In the wake of a takeover and a managerial change, Everton hope they have enough quality to avoid relegation ahead of a busy off-season`\
-https://nytimes.com/athletic/6109649/2025/02/04/everton-transfer-window-alcaraz-moyes-tfg/
 
