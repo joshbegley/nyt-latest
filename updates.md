@@ -1,3 +1,7 @@
+**Joao Felix completes Milan loan move from Chelsea**\
+`Felix joins Milan on a straight loan deal without a buy option, which will also include a loan fee package worth €5.5million.`\
+https://nytimes.com/athletic/6110559/2025/02/04/joao-felix-milan-loan-chelsea/
+
 **Ensembles That Showcase an Eye for Detail**\
 `Thoughtfully chosen layers gave two outfits distinct sensibilities.`\
 https://nytimes.com/2025/02/04/style/street-style-winter-layers.html
