@@ -1,3 +1,7 @@
+**Full Time: Explaining the Luis Rubiales trial**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6111212/2025/02/03/luis-rubiales-naomi-girma-record-full-time/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>High-profile coordinators keep coming and going. Who&#8217;s leaving for the NFL next?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/03/us/affirmative-action-california.html
 **Musk Allies Discuss Deploying A.I. to Find Budget Savings**\
 `A top official at the General Services Administration said artificial intelligence could be used to identify waste and redundancies in federal contracts.`\
 https://nytimes.com/2025/02/03/technology/musk-allies-ai-government.html
-
-**Everton sign Alcaraz from Flamengo**\
-`The loan move also contains an obligation to buy providing Alcaraz, 22, makes an undisclosed number of league starts.`\
-https://nytimes.com/athletic/6108547/2025/02/03/carlos-alcaraz-everton-transfer/
 

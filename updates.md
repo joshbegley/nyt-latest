@@ -1,3 +1,7 @@
+**Full Time: Explaining the Luis Rubiales trial**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6111212/2025/02/03/luis-rubiales-naomi-girma-record-full-time/
+
 **Cooper Kupp says the Rams told the star receiver they are going to trade him**\
 `Drafted in 2017, Kupp won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs in the Rams' Super Bowl season.`\
 https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
