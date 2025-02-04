@@ -1,3 +1,7 @@
+**Manchester City's transfer window: Four signings to reinvigorate the squad as captain Kyle Walker departs**\
+`City were uncharacteristically busy in the winter window as they try and alleviate the impact of a poor season but also build for the future`\
+https://nytimes.com/athletic/6109656/2025/02/04/manchester-city-transfer-window-review/
+
 **Enzo Maresca can breathe easy now that the transfer window is over**\
 `Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
 https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/

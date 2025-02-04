@@ -1,3 +1,7 @@
+**Manchester City's transfer window: Four signings to reinvigorate the squad as captain Kyle Walker departs**\
+`City were uncharacteristically busy in the winter window as they try and alleviate the impact of a poor season but also build for the future`\
+https://nytimes.com/athletic/6109656/2025/02/04/manchester-city-transfer-window-review/
+
 **Enzo Maresca can breathe easy now that the transfer window is over**\
 `Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
 https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6111539/2025/02/04/chiefs-super-bowl-media-night-tr
 **Leicester's transfer window reviewed: A new right-back, but PSR constraints leave them vulnerable**\
 `One arrival isn't sufficient to give them great confidence of Premier League survival`\
 https://nytimes.com/athletic/6109165/2025/02/04/leicesters-transfer-window-reviewed-a-new-right-back-but-psr-constraints-leave-them-vulnerable/
-
-**Tottenham's transfer window reviewed: A whirlwind ending solves a few problems**\
-`The last few days of the transfer window were a whirlwind for Tottenham Hotspur. The Athletic takes a deep breath and makes an assessment...`\
-https://nytimes.com/athletic/6108966/2025/02/04/tottenhams-transfer-window-tel-danso-kinsky/
 
