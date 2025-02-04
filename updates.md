@@ -1,3 +1,23 @@
+**Stocks settle after a turbulent day, as Wall Street weighs tariffs on China.**\
+`By Danielle Kaye and Joe Rennison`\
+https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/stocks-settle-after-a-turbulent-day-as-wall-street-weighs-tariffs-on-china
+
+**As Israel Expands West Bank Operation, Two Soldiers Are Killed**\
+`Israel’s military said this week that its campaign targeting militants, which local Palestinians have called one of the most destructive in recent memory, was moving eastward.`\
+https://nytimes.com/2025/02/04/world/middleeast/israel-west-bank-raid.html
+
+**How Mexico’s President Avoided U.S. Tariffs, for Now**\
+`President Claudia Sheinbaum’s abilities to deal with a major crisis were on full display as President Trump’s tariffs on Mexican goods were paused for a month.`\
+https://nytimes.com/2025/02/04/us/trump-mexico-tariff-negotiations.html
+
+**Eagles Super Bowl player props: Will Saquon Barkley go off? Will Hurts reach 10 carries?**\
+`Scott Phillips breaks down the player props for the big names on Philadelphia's offense and how the matchup with Kansas City could play out.`\
+https://nytimes.com/athletic/6109504/2025/02/04/eagles-prop-bets-super-bowl-59/
+
+**USMNT's Cardoso signs Betis contract extension to 2030**\
+`USMNT midfielder Johnny Cardoso has signed a contract extension at Real Betis through to 2030.`\
+https://nytimes.com/athletic/6112098/2025/02/04/johnny-cardoso-betis-contract-usmnt/
+
 **Joao Felix completes Milan loan move from Chelsea**\
 `Felix joins Milan on a straight loan deal without a buy option, which will also include a loan fee package worth €5.5million.`\
 https://nytimes.com/athletic/6110559/2025/02/04/joao-felix-milan-loan-chelsea/
