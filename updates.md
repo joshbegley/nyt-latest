@@ -1,3 +1,7 @@
+**Here are the 2024 Puzzle Mania Contest Winners**\
+`Plus, the answer grid for the 50 x 50 Super Mega crossword.`\
+https://nytimes.com/2025/02/04/crosswords/2024-puzzle-mania-winners.html
+
 **Until Saturday: Signing day is almost here, plus re-ranking 2022's QBs**\
 `Welcome to Until Saturday, the five-star college football newsletter: National signing day returns on Wednesday.`\
 https://nytimes.com/athletic/6113118/2025/02/04/national-signing-day-until-saturday/
