@@ -1,3 +1,7 @@
+**The Closed Door Battle to Lead the Olympics**\
+`In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
+https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
+
 **A Trump. A Dead Duck. And an Uproar in Italy.**\
 `A video shows Donald Trump Jr. sitting in hunting gear beside a dead protected bird. Italian lawmakers want answers.`\
 https://nytimes.com/2025/02/04/world/europe/donald-trump-jr-duck-hunting-italy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/business/media/grammy-awards-ratings.html
 **Charles Barkley won't join NBC or Amazon, still talking with TNT and ESPN**\
 `"I'm hoping this thing comes together and I can stay with TNT and ESPN," Barkley said on "The Steam Room" podcast.`\
 https://nytimes.com/athletic/6112348/2025/02/04/charles-barkley-nbc-amazon-deals-nba/
-
-**One Scene of Devastation, Evoking Another**\
-`Adam Nagourney, a former Los Angeles bureau chief, writes about the disasters that left scars on Los Angeles and New York City.`\
-https://nytimes.com/2025/02/04/us/wildfires-destruction-sept-11.html
 
