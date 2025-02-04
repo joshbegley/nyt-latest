@@ -1,3 +1,19 @@
+**Cooper Kupp says the Rams told the star receiver they are going to trade him**\
+`The Rams drafted Kupp in 2017 and he won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs.`\
+https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
+
+**Fay Vincent’s final warning to MLB: 'Gambling always leads to corruption'**\
+`The former commissioner, who died Sunday at 86, spoke of his strong opposition to sports betting in a November interview with The Athletic.`\
+https://nytimes.com/athletic/6111114/2025/02/03/fay-vincent-mlb-commissioner-gambling/
+
+**Roger Goodell on state of NFL: Refs, 18-game schedule, Tom Brady, more**\
+`NFL commissioner expressed his bullishness on the league as he addressed a number of hot topics in a pre-Super Bowl media conference.`\
+https://nytimes.com/athletic/6110786/2025/02/03/roger-goodell-super-bowl-news-conference-nfl/
+
+**Why Scapegoating Works for Trump**\
+`It helps him explain away complex problems and pull a coalition together.`\
+https://nytimes.com/2025/02/03/us/politics/trump-blame-politics.html
+
 **Trump names a loyalist to be C.I.A. deputy director.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-a-loyalist-to-be-cia-deputy-director
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6108547/2025/02/03/carlos-alcaraz-everton-transfer/
 **Trump Is Running America the Way America Ran Iraq**\
 `He and his team are treating the government like hostile territory to be conquered.`\
 https://nytimes.com/2025/02/03/opinion/trump-musk-iraq-takeover.html
-
-**Here’s what Mexico and Canada have agreed to do to delay U.S. tariffs.**\
-`By Emiliano Rodríguez Mega and Matina Stevis-Gridneff`\
-https://nytimes.com/live/2025/02/03/us/trump-tariffs/heres-what-mexico-and-canada-have-agreed-to-do-to-delay-us-tariffs
-
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6111087/2025/02/03/nhl-mailbag-4-nations-trade-rules-nhl/
-
-**Jeffries Works With N.Y. Democrats to Weaken G.O.P. Control of the House**\
-`New York lawmakers may give Gov. Kathy Hochul more time to schedule special elections, a move backed by the House Democratic leader that could keep a key seat vacant for months.`\
-https://nytimes.com/2025/02/03/nyregion/jeffries-stefanik-house-ny.html
-
-**Nico Gonzalez to Manchester City: The Athletic 500 transfer ratings**\
-`Manchester City have confirmed the permanent signing of Nico Gonzalez from Porto`\
-https://nytimes.com/athletic/6110929/2025/02/03/nico-gonzalez-manchester-city-transfer-analysis/
 

@@ -1,3 +1,19 @@
+**Cooper Kupp says the Rams told the star receiver they are going to trade him**\
+`The Rams drafted Kupp in 2017 and he won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs.`\
+https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
+
+**Fay Vincent’s final warning to MLB: 'Gambling always leads to corruption'**\
+`The former commissioner, who died Sunday at 86, spoke of his strong opposition to sports betting in a November interview with The Athletic.`\
+https://nytimes.com/athletic/6111114/2025/02/03/fay-vincent-mlb-commissioner-gambling/
+
+**Roger Goodell on state of NFL: Refs, 18-game schedule, Tom Brady, more**\
+`NFL commissioner expressed his bullishness on the league as he addressed a number of hot topics in a pre-Super Bowl media conference.`\
+https://nytimes.com/athletic/6110786/2025/02/03/roger-goodell-super-bowl-news-conference-nfl/
+
+**Why Scapegoating Works for Trump**\
+`It helps him explain away complex problems and pull a coalition together.`\
+https://nytimes.com/2025/02/03/us/politics/trump-blame-politics.html
+
 **Trump names a loyalist to be C.I.A. deputy director.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-a-loyalist-to-be-cia-deputy-director
