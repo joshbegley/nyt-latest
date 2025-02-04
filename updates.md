@@ -1,3 +1,7 @@
+**El Salvador’s President Offers to Accept Criminals From U.S. for a Fee**\
+`Secretary of State Marco Rubio praised President Nayib Bukele’s “unprecedented, extraordinary” proposal to accept any convicted criminal deported by the United States.`\
+https://nytimes.com/2025/02/04/us/politics/el-salvador-prisons-marco-rubio.html
+
 **Shopping for Arms? Ukraine May Soon Be Your Best Bet.**\
 `The country should not be just a buyer of weapons but a supplier, thanks to its spirit of innovation.`\
 https://nytimes.com/2025/02/04/opinion/ukraine-russia-weapons-drones.html
