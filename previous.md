@@ -1,40 +1,40 @@
-**‘Like a Horror Movie’: Gazans Return Home After Cease-Fire**\
-`Two young Gazans, Aya Ehab Zaid and Abed Alaziz Hunaif, embarked on a long journey to return to their homes after nearly 16 months of war in Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009942543/gaza-ceasefire-return-home.html
+**Trump and Netanyahu Meeting Is Expected to Focus on Gaza Cease-Fire**\
+`The president will welcome the Israeli prime minister to the White House for his first in-person meeting with another world leader since returning to power.`\
+https://nytimes.com/2025/02/04/us/politics/trump-netanyahu-meeting-israel-gaza.html
 
-**NBA trade deadline rewind: Breaking down 2024's moves, one year later**\
-`With the benefit of hindsight, let's examine the 2024 deadline and see how good, bad or unnecessary those moves really were.`\
-https://nytimes.com/athletic/6023718/2025/02/04/nba-trade-rewind-og-anunoby-pascal-siakam/
+**E.P.A. Demotes Career Employees Overseeing Science, Enforcement and More**\
+`A spokeswoman for the agency said the change was “common practice.” Others said it injects partisanship into jobs that have always been neutral.`\
+https://nytimes.com/2025/02/04/climate/epa-demotes-career-employees-overseeing-science-enforcement-and-more.html
 
-**Forest confirm loan signing of Ndala from City**\
-`The deal brings the 18-year-old to the City Ground until the summer with a view to a permanent transfer.`\
-https://nytimes.com/athletic/6110865/2025/02/04/nottingham-forest-loan-joel-ndala-manchester-city/
+**I Have Erectile Dysfunction. Do I Have to Disclose This Before Sex?**\
+`The magazine’s Ethicist columnist on awkward admissions and whether to make restitution for participating in transactional relationships.`\
+https://nytimes.com/2025/02/04/magazine/erectile-dysfunction-sugar-daddy-ethics.html
 
-**Democrats Challenge Musk’s Efforts to Dismantle U.S.A.I.D.**\
-`In front of the headquarters of the government’s largest humanitarian aid agency, Democratic lawmakers joined protesters to speak out against the drastic changes to U.S.A.I.D.`\
-https://nytimes.com/video/us/politics/100000009968608/usaid-elon-musk-trump-democrats.html
+**Trump Riles Washington as He Tries to Overthrow the Existing Order**\
+`The new president has left virtually no corner of the nation’s capital untouched in a wide-ranging effort to tear down the federal government and refashion it to his liking.`\
+https://nytimes.com/2025/02/04/us/politics/trump-president-washington-dc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/04/crosswords/spelling-bee-forum.html
+**These Settlements With Trump Are Weakening Press Freedoms**\
+`Media institutions and technology companies are offering obscene sums of money to settle feeble or frivolous lawsuits.`\
+https://nytimes.com/2025/02/04/opinion/trump-media-lawsuit-freedom.html
 
-**Job Training Exists for Students With Disabilities. Many Never Get It.**\
-`Washington makes money available to the states to help young people with disabilities enter the work force. New Jersey has the worst record of helping connect families with such help.`\
-https://nytimes.com/2025/02/04/nyregion/job-training-exists-for-students-with-disabilities-many-never-get-it.html
+**A.I. Is Coming for Hank Azaria’s ‘Simpsons’ Voices**\
+`Soon enough, artificial intelligence may be able to recreate the sounds — but there will be something missing.`\
+https://nytimes.com/interactive/2025/02/04/opinion/simpsons-hank-azaria-voice-acting-AI.html
 
-**How an Activist Group Helped Torpedo MDMA Therapy**\
-`The fallout from the F.D.A.’s rejection of a new treatment for PTSD worries researchers and experts who fear other psychedelic drugs in the pipeline could be jeopardized.`\
-https://nytimes.com/2025/02/04/health/fda-mdma-psychedelic-therapy-psymposia.html
+**Too Busy Blurbing Books to Write One**\
+`For the novelist Rebecca Makkai, writing blurbs had become nearly a full-time job. She explains why blurbs matter — and why she’s taking a break.`\
+https://nytimes.com/2025/02/04/books/review/simon-and-schuster-blurbs-books.html
 
-**Officers Flee as N.Y.P.D. Confronts Its Billion-Dollar Overtime Problem**\
-`The Police Department has already blown through its overtime budget halfway through the fiscal year as departures rise and the agency struggles to recruit.`\
-https://nytimes.com/2025/02/04/nyregion/nypd-overtime-hiring.html
+**Fed Official Pushes Back on Pre-emptive Policy Moves**\
+`Mary C. Daly, the president of the Federal Reserve Bank of San Francisco, said the central bank needed to assess the “scope, magnitude and timing” of President Trump’s policies.`\
+https://nytimes.com/2025/02/04/business/mary-daly-federal-reserve-trump.html
 
-**Late Night Weighs In on the ‘World’s Dumbest Trade War’**\
-`Jimmy Kimmel thinks President Trump decided not to impose tariffs on Mexico because he saw the guacamole bill for his Super Bowl party.`\
-https://nytimes.com/2025/02/04/arts/television/late-night-trump-trade-war.html
+**Kennedy’s Nomination for Health Secretary Faces Critical Test**\
+`The Senate Finance Committee is voting Tuesday on whether to move Robert F. Kennedy Jr.’s nomination forward. All eyes are on Senator Bill Cassidy, a G.O.P. doctor uneasy with Mr. Kennedy’s vaccine views.`\
+https://nytimes.com/2025/02/04/us/politics/rfk-jr-senate-vote-finance-committee.html
 
-**Inside Arsenal's transfer window: Arteta's Watkins enthusiasm, late Morata interest and Nypan talks**\
-`A late pivot to focus on the forward line led to an opportunistic attempt to sign Ollie Watkins and discussions over Alvaro Morata`\
-https://nytimes.com/athletic/6109947/2025/02/04/arsenal-transfer-window-watkins-morata-nypan/
+**‘Trump’s Thomas Cromwell’ Is Waiting in the Wings**\
+`Russell Vought views American politics as a life-or-death struggle between the God-fearing right and a malevolent, secular left.`\
+https://nytimes.com/2025/02/04/opinion/trump-vought-omb-government.html
 
