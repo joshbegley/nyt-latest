@@ -1,3 +1,11 @@
+**Enzo Maresca can breathe easy now that the transfer window is over**\
+`Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
+https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
+
+**Aston Villa's transfer window: Emery's Rashford wish, Disasi beats deadline, Duran's exit**\
+`Villa's window has been turbulent and eye-opening — it has ended with high-profile arrivals and notable exits from Unai Emery's squad`\
+https://nytimes.com/athletic/6042120/2025/02/04/aston-villa-transfer-window-rashford-disasi-duran/
+
 **Word of the Day: arboretum**\
 `This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/04/learning/word-of-the-day-arboretum.html
