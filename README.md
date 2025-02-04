@@ -1,3 +1,7 @@
+**Who says no? Evaluating Brandon Ingram trade scenarios as clock ticks toward deadline**\
+`Will the Pelicans be able to get something back for the pending free agent, or will his future be determined in the summer?`\
+https://nytimes.com/athletic/6110913/2025/02/04/brandon-ingram-trade-deadline-pelicans-nba/
+
 **Who wants Brandon Ingram? What about Jock Landale? Evaluating Southwest Division trade ideas**\
 `Here's an opportunity to put on a general manager's hat to see how many trades make sense and which teams would say no. `\
 https://nytimes.com/athletic/6107280/2025/02/04/brandon-ingram-nba-trade-ideas/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6111044/2025/02/04/nba-trade-deadline-knicks-assets
 `In the inaugural edition of the Blues power rankings, we do a vibe check on 10 items involving the team.`\
 https://nytimes.com/athletic/6109439/2025/02/04/blues-power-rankings-armstrong-snuggerud-montgomery/
 
+**Alex Palmer to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at goalkeeper Palmer's move to Ipswich from West Bromwich Albion of the Championship`\
+https://nytimes.com/athletic/6111038/2025/02/04/alex-palmer-ipswich-town-transfer-rating/
+
 **How much do you know about the Super Bowl? Prove it with this quiz**\
 `Test your knowledge of the iconic U.S. tradition that is the NFL's championship game, including the game and all the pageantry around it.`\
 https://nytimes.com/athletic/6109845/2025/02/04/super-bowl-quiz-chiefs-eagles-nfl-trivia/
-
-**Inside Eagles-Chiefs Super Bowl matchup: What to watch when Philly has the ball**\
-`How well Kansas City can accomplish the tall task of containing Saquon Barkley could determine who takes home the Lombardi Trophy.`\
-https://nytimes.com/athletic/6108132/2025/02/04/chiefs-eagles-super-bowl-film-what-to-watch/
-
-**The Aaron Glenn Effect: A hero's return, and a new hope for the New York Jets**\
-`Team alumni — particularly those who played alongside Glenn — sense something special is about to happen.`\
-https://nytimes.com/athletic/6106866/2025/02/04/aaron-glenn-former-teammates-new-york-jets-head-coach/
 
