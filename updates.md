@@ -1,3 +1,11 @@
+**National League clubs write to EFL asking for third promotion spot to League Two**\
+`"Rick Parry has often said that ‘the EFL should look down as well as up’, so we’d now like that to happen,” said the National League chair.`\
+https://nytimes.com/athletic/6113114/2025/02/04/national-league-efl-3up-promotion/
+
+**Don & Elon’s Excellent Adventure? Only China Is Laughing.**\
+`The president’s impulsive tariffs are a symptom of a deeper challenge to U.S. manufacturing.`\
+https://nytimes.com/2025/02/04/opinion/trump-tariffs-china-evs.html
+
 **Treasury Defends Musk Team’s Access to Federal Payment System**\
 `The department said that no payments would be interrupted and that it was conducting a review of the integrity of the system.`\
 https://nytimes.com/2025/02/04/us/politics/elon-musk-federal-payments.html
