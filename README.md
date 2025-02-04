@@ -1,7 +1,3 @@
-**Messi's Barcelona locker bids surpass Cristiano Ronaldo's Real Madrid locker sale**\
-`Can Messi's locker surpass the record sale for a locker set by Kobe Bryant's? `\
-https://nytimes.com/athletic/6112452/2025/02/04/messi-ronaldo-lockers-barcelona-real-madrid/
-
 **Quentin Grimes-Caleb Martin trade grades: Mavs keep dealing; Sixers get younger**\
 `Grimes is joining his fourth team in four seasons while Martin brings added playoff experience to Dallas.`\
 https://nytimes.com/athletic/6113004/2025/02/04/quentin-grimes-caleb-martin-trade-grades/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/04/us/boston-mayor-josh-kraft-michelle-wu.html
 **Kultida Woods, Mother of Tiger Woods, Dies at 80**\
 `In announcing her death, Mr. Woods spoke of her sacrifices and support throughout his life and career.`\
 https://nytimes.com/2025/02/04/sports/kultida-woods-dead-tiger-woods-mom.html
+
+**Surveillance Video Shows Brawl in New Mexico Courtroom**\
+`The uncle of a 23-year-old victim attacked the defendant, who was charged with murder in the shooting of his ex-girlfriend.`\
+https://nytimes.com/video/us/100000009969445/albuquerque-courtroom-fight-video.html
 
