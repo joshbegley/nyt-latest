@@ -1,3 +1,11 @@
+**How Trump’s Trade War Could Affect Climate Change**\
+`President Trump’s tariffs could threaten supply chains in the renewable energy industry and disrupt oil and gas markets.`\
+https://nytimes.com/2025/02/04/climate/trump-trade-climate-change.html
+
+**Gabbard had one of the most difficult confirmation hearings of any of Trump’s nominees.**\
+`The full Senate will vote on President Trump’s pick to be the director of national intelligence. She was one of the most contentious cabinet choices.`\
+https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/tulsi-gabbard-confirmation-senate
+
 **The Newest, Biggest Investment Fund: The United States Government?**\
 `Sovereign wealth funds invest state or government money. They’re typically created from budget surpluses or revenues from oil or other commodities.`\
 https://nytimes.com/2025/02/04/business/trump-sovereign-wealth-fund.html
