@@ -1,3 +1,11 @@
+**Elon Musk’s X Becomes Weapon in Government Cost Cutting**\
+`The billionaire has used the social media site to boast of victories, lash out at enemies and conduct polls for the initiative he calls the Department of Government Efficiency.`\
+https://nytimes.com/2025/02/04/technology/elon-musk-x-doge.html
+
+**Three Giants stats that are due for a negative regression and how they should prepare**\
+`Heliot Ramos, Tyler Fitzgerald and the Giants' propensity for getting on base to start an inning are due for regressions.`\
+https://nytimes.com/athletic/6109827/2025/02/04/sf-giants-2025-stat-regressions/
+
 **How Trump’s Trade War Could Affect Climate Change**\
 `President Trump’s tariffs could threaten supply chains in the renewable energy industry and disrupt oil and gas markets.`\
 https://nytimes.com/2025/02/04/climate/how-trumps-trade-war-could-affect-climate-change.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-
 **F.B.I. Agents Ask Court to Bar Trump Team From Disclosing Their Names**\
 `Employees who participated in the Jan. 6 investigations contended in two lawsuits that they believed the administration intended to reveal their identities, endangering them and their families.`\
 https://nytimes.com/2025/02/04/us/politics/fbi-names-trump-jan-6-lawsuit.html
-
-**Astros to retire Billy Wagner's No. 13**\
-`Wagner's number will be retired during a series against the Baltimore Orioles from Aug. 15-17.`\
-https://nytimes.com/athletic/6113056/2025/02/04/houston-atros-billy-wagner-number-retirement/
-
-**Tim Hill, Yankees agree to 1-year deal: Source**\
-`The lefty reliever had a 2.05 ERA in 35 games with the Yankees last season after joining the team in June. `\
-https://nytimes.com/athletic/6113025/2025/02/04/tim-hill-yankees-mlb-free-agency-contract/
 
