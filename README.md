@@ -1,3 +1,11 @@
+**Enzo Maresca can breathe easy now that the transfer window is over**\
+`Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
+https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/
+
+**Aston Villa's transfer window: Emery's Rashford wish, Disasi beats deadline, Duran's exit**\
+`Villa's window has been turbulent and eye-opening — it has ended with high-profile arrivals and notable exits from Unai Emery's squad`\
+https://nytimes.com/athletic/6042120/2025/02/04/aston-villa-transfer-window-rashford-disasi-duran/
+
 **Word of the Day: arboretum**\
 `This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/04/learning/word-of-the-day-arboretum.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109165/2025/02/04/leicesters-transfer-window-revie
 **Tottenham's transfer window reviewed: A whirlwind ending solves a few problems**\
 `The last few days of the transfer window were a whirlwind for Tottenham Hotspur. The Athletic takes a deep breath and makes an assessment...`\
 https://nytimes.com/athletic/6108966/2025/02/04/tottenhams-transfer-window-tel-danso-kinsky/
-
-**Wolves' transfer window: £42m of under-the-radar acquisitions and Lemina set to leave**\
-`The three players brought in are relative unknowns but they may be enough to keep Wolves from the drop`\
-https://nytimes.com/athletic/6110296/2025/02/04/wolves-transfer-window-review/
-
-**Brighton's transfer window: Cashin, Ferguson and two trademark summer deals part of busy January**\
-`Has Brighton's transfer window been a success? Given the nature of their recruitment, only time will tell...`\
-https://nytimes.com/athletic/6108625/2025/02/04/brightons-transfer-window-reviewed-once-again-bloom-and-co-take-a-longer-term-view/
 
