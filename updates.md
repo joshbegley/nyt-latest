@@ -1,3 +1,7 @@
+**Roger Goodell lauds Saints' transparency on connection to archdiocese**\
+`Associated Press story revealed franchise members' support of Catholic Church in wake of abuse scandal.`\
+https://nytimes.com/athletic/6109606/2025/02/03/saints-emails-catholic-church-priests-sex-abuse-scandal/
+
 **Ryan Hartman suspended 10 games: What it means for him and the Wild**\
 `The winger had a hearing with the league after being assessed a match penalty for pushing Tim Stützle’s face into the ice after a faceoff.`\
 https://nytimes.com/athletic/6109851/2025/02/03/ryan-hartman-suspension-wild/

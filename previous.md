@@ -1,3 +1,7 @@
+**Roger Goodell lauds Saints' transparency on connection to archdiocese**\
+`Associated Press story revealed franchise members' support of Catholic Church in wake of abuse scandal.`\
+https://nytimes.com/athletic/6109606/2025/02/03/saints-emails-catholic-church-priests-sex-abuse-scandal/
+
 **Ryan Hartman suspended 10 games: What it means for him and the Wild**\
 `The winger had a hearing with the league after being assessed a match penalty for pushing Tim Stützle’s face into the ice after a faceoff.`\
 https://nytimes.com/athletic/6109851/2025/02/03/ryan-hartman-suspension-wild/
@@ -33,10 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html
 **Full Time: Explaining the Luis Rubiales trial**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6111212/2025/02/03/luis-rubiales-naomi-girma-record-full-time/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>High-profile coordinators keep coming and going. Who&#8217;s leaving for the NFL next?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6111214/2025/02/03/submit-a-question-for-stewart-mandels-college-football-mailbag-291/
 
