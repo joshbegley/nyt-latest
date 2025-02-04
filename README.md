@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6112317/2025/02/04/nfl-end-racism-super-bowl-dei-tr
 `Sam Smith and Jay Rodriguez headlined Wrexham's January business as Phil Parkinson's squad got a shot in the arm`\
 https://nytimes.com/athletic/6108741/2025/02/04/wrexham-january-transfer-window-smith-rodriguez-longman/
 
-**The Closed Door Battle to Lead the Olympics**\
+**The Closed-Door Battle to Lead the Olympics**\
 `In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
 https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
 
