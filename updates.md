@@ -1,3 +1,11 @@
+**What you need to know about the Bucks' one big number: Trade deadline primer**\
+`It will be difficult for the Bucks, who have salary cap restraints, to make a big splash before the Feb. 6 trade deadline.`\
+https://nytimes.com/athletic/6092589/2025/02/04/bucks-trade-deadline-primer/
+
+**Kansas fans questioned Bill Self. He responded by shutting down ISU**\
+`Self's consistency has probably spoiled the fan base, but after rare calls for a lineup change, KJ Adams Jr. proved his coach right again.`\
+https://nytimes.com/athletic/6111722/2025/02/04/kansas-iowa-state-kj-adams-bill-self/
+
 **Valley of the Dystopian Dolls**\
 `Marc Jacobs brings inflation, and courage, to the runway.`\
 https://nytimes.com/2025/02/04/style/marc-jacobs-spring-2025.html

@@ -1,3 +1,11 @@
+**What you need to know about the Bucks' one big number: Trade deadline primer**\
+`It will be difficult for the Bucks, who have salary cap restraints, to make a big splash before the Feb. 6 trade deadline.`\
+https://nytimes.com/athletic/6092589/2025/02/04/bucks-trade-deadline-primer/
+
+**Kansas fans questioned Bill Self. He responded by shutting down ISU**\
+`Self's consistency has probably spoiled the fan base, but after rare calls for a lineup change, KJ Adams Jr. proved his coach right again.`\
+https://nytimes.com/athletic/6111722/2025/02/04/kansas-iowa-state-kj-adams-bill-self/
+
 **Valley of the Dystopian Dolls**\
 `Marc Jacobs brings inflation, and courage, to the runway.`\
 https://nytimes.com/2025/02/04/style/marc-jacobs-spring-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6110976/2025/02/04/raiders-2025-free-agents-moehrig
 **Brighton hope West Ham loan revives Evan Ferguson after niggling injuries and fractured form**\
 `The young Irishman has been reunited with Graham Potter, the head coach who handed him his Premier League debut, at the London Stadium`\
 https://nytimes.com/athletic/6099259/2025/02/04/brighton-ferguson-west-ham-loan-potter/
-
-**NFL insiders gauge Myles Garrett's trade value; could Browns net 2 first-round picks?**\
-`For the Browns, trading Garrett would be a major challenge on many fronts. Ultimately, however, it might be the best thing for them.`\
-https://nytimes.com/athletic/6111260/2025/02/04/myles-garrett-browns-trade-nfl-draft-picks/
-
-**Ranking the Chargers' unrestricted free agents: Why a Khalil Mack return makes sense**\
-`The Chargers have 27 pending unrestricted free agents on their roster after going heavy on bargain one-year deals last offseason.`\
-https://nytimes.com/athletic/6110916/2025/02/04/chargers-2025-free-agent-rankings/
 
