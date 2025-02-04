@@ -1,3 +1,11 @@
+**Why We (Still) Think the Grammys Are Good Now**\
+`Big wins for Beyoncé, Kendrick Lamar and Chappell Roan. Standout performances from Doechii and Sabrina Carpenter. A conversation about why the 2025 awards worked.`\
+https://nytimes.com/2025/02/04/arts/music/popcast-grammys.html
+
+**Trump Said Palestinians Should Leave Gaza**\
+`Also, China swiftly countered Trump’s tariffs. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/02/04/briefing/trump-netanyahu-white-house-china-us-tariffs.html
+
 **Musk Team Scrutinizes Education Department Operations**\
 `The engagement is the latest sign of the billionaire’s expanding influence across the government, which already stretches into more than half a dozen agencies.`\
 https://nytimes.com/2025/02/04/us/politics/musk-education-department.html

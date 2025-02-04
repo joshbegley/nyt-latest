@@ -1,3 +1,11 @@
+**Why We (Still) Think the Grammys Are Good Now**\
+`Big wins for Beyoncé, Kendrick Lamar and Chappell Roan. Standout performances from Doechii and Sabrina Carpenter. A conversation about why the 2025 awards worked.`\
+https://nytimes.com/2025/02/04/arts/music/popcast-grammys.html
+
+**Trump Said Palestinians Should Leave Gaza**\
+`Also, China swiftly countered Trump’s tariffs. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/02/04/briefing/trump-netanyahu-white-house-china-us-tariffs.html
+
 **Musk Team Scrutinizes Education Department Operations**\
 `The engagement is the latest sign of the billionaire’s expanding influence across the government, which already stretches into more than half a dozen agencies.`\
 https://nytimes.com/2025/02/04/us/politics/musk-education-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6105179/2025/02/04/tyrell-malacia-psv-loan-manchest
 **After full circle move, can DC Jim Knowles unlock Penn State's championship potential?**\
 `Knowles was introduced as Penn State's defensive coordinator on Tuesday, one week after he left Ohio State to take the job.`\
 https://nytimes.com/athletic/6113749/2025/02/04/jim-knowles-penn-state-introduction-defensive-coordinator/
-
-**How to Host a Cozy Winter Meal**\
-`For the colder months, we’re revisiting our favorite cheery candlelit gatherings and sharing tips from expert hosts.`\
-https://nytimes.com/2025/02/04/t-magazine/cozy-winter-meals-inspiration.html
-
-**The Aga Khan IV, Leader of the Ismaili Muslims, Dies at 88**\
-`At the age of 20, he inherited the reins of a Shia Muslim lineage and used his entrepreneurship to become one of the world’s wealthiest hereditary rulers.`\
-https://nytimes.com/2025/02/04/obituaries/the-aga-khan-iv-dead.html
 
