@@ -1,3 +1,11 @@
+**Who says no? Evaluating Brandon Ingram trade scenarios as clock ticks toward deadline**\
+`Will the Pelicans be able to get something back for the pending free agent, or will his future be determined in the summer?`\
+https://nytimes.com/athletic/6110913/2025/02/04/brandon-ingram-trade-deadline-pelicans-nba/
+
+**Alex Palmer to Ipswich Town: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we look at goalkeeper Palmer's move to Ipswich from West Bromwich Albion of the Championship`\
+https://nytimes.com/athletic/6111038/2025/02/04/alex-palmer-ipswich-town-transfer-rating/
+
 **Who wants Brandon Ingram? What about Jock Landale? Evaluating Southwest Division trade ideas**\
 `Here's an opportunity to put on a general manager's hat to see how many trades make sense and which teams would say no. `\
 https://nytimes.com/athletic/6107280/2025/02/04/brandon-ingram-nba-trade-ideas/
