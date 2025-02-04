@@ -1,5 +1,9 @@
+**Until Saturday: Signing day is almost here, plus re-ranking 2022's QBs**\
+`Welcome to Until Saturday, the five-star college football newsletter: National signing day returns on Wednesday.`\
+https://nytimes.com/athletic/6113118/2025/02/04/national-signing-day-until-saturday/
+
 **Want Eggs With Your Breakfast? Pay a Surcharge, Waffle House Says.**\
-`The restaurant chain, serves breakfast all day, said it was adding the temporary 50-cent surcharge because the bird flu has caused a shortage in the egg supply.`\
+`The restaurant chain, which serves breakfast all day, said it was adding the temporary 50-cent surcharge because the bird flu has caused a shortage in the egg supply.`\
 https://nytimes.com/2025/02/04/business/waffle-house-egg-surcharge.html
 
 **Sabres' lack of response after Tage Thompson injury 'won't happen again'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6113334/2025/02/04/wisconsin-football-program-loses
 **Elon Musk’s X Becomes Weapon in Government Cost Cutting**\
 `The billionaire has used the social media site to boast of victories, lash out at enemies and conduct polls for the initiative he calls the Department of Government Efficiency.`\
 https://nytimes.com/2025/02/04/technology/elon-musk-x-doge.html
-
-**Three Giants stats that are due for a negative regression and how they should prepare**\
-`Heliot Ramos, Tyler Fitzgerald and the Giants' propensity for getting on base to start an inning are due for regressions.`\
-https://nytimes.com/athletic/6109827/2025/02/04/sf-giants-2025-stat-regressions/
 
