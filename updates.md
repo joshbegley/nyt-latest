@@ -1,3 +1,7 @@
+**F.B.I. agents involved in Jan. 6 cases are asking a court to bar the Trump team from disclosing their identities.**\
+`Employees who participated in Jan. 6 investigations contend in two lawsuits that they believe the administration intends to reveal their identities, endangering them and their families.`\
+https://nytimes.com/2025/02/04/us/politics/fbi-names-trump-jan-6-lawsuit.html
+
 **Messi's Barcelona locker bids surpass Cristiano Ronaldo's Real Madrid locker sale**\
 `Can Messi's locker surpass the record sale for a locker set by Kobe Bryant's? `\
 https://nytimes.com/athletic/6112452/2025/02/04/messi-ronaldo-lockers-barcelona-real-madrid/
