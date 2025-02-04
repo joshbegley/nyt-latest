@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/04/crosswords/spelling-bee-forum.html
+
+**Job Training Exists for Students With Disabilities. Many Never Get It.**\
+`Washington makes money available to the states to help young people with disabilities enter the work force. New Jersey has the worst record of helping connect families with such help.`\
+https://nytimes.com/2025/02/04/nyregion/job-training-exists-for-students-with-disabilities-many-never-get-it.html
+
+**How an Activist Group Helped Torpedo MDMA Therapy**\
+`The fallout from the F.D.A.’s rejection of a new treatment for PTSD worries researchers and experts who fear other psychedelic drugs in the pipeline could be jeopardized.`\
+https://nytimes.com/2025/02/04/health/fda-mdma-psychedelic-therapy-psymposia.html
+
+**Officers Flee as N.Y.P.D. Confronts Its Billion-Dollar Overtime Problem**\
+`The Police Department has already blown through its overtime budget halfway through the fiscal year as departures rise and the agency struggles to recruit.`\
+https://nytimes.com/2025/02/04/nyregion/nypd-overtime-hiring.html
+
 **Late Night Weighs In on the ‘World’s Dumbest Trade War’**\
 `Jimmy Kimmel thinks President Trump decided not to impose tariffs on Mexico because he saw the guacamole bill for his Super Bowl party.`\
 https://nytimes.com/2025/02/04/arts/television/late-night-trump-trade-war.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-wi
 **Aston Villa's transfer window: Emery's Rashford wish, Disasi beats deadline, Duran's exit**\
 `Villa's window has been turbulent and eye-opening — it has ended with high-profile arrivals and notable exits from Unai Emery's squad`\
 https://nytimes.com/athletic/6042120/2025/02/04/aston-villa-transfer-window-rashford-disasi-duran/
-
-**Word of the Day: arboretum**\
-`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/04/learning/word-of-the-day-arboretum.html
-
-**Why West Ham and Graham Potter need Evan Ferguson - and the striker needs them**\
-`The Ireland international has joined on loan for the rest of the season craving game time and should thrive under a familiar coaching setup`\
-https://nytimes.com/athletic/6109520/2025/02/04/west-ham-ferguson-potter-brighton-loan/
-
-**El Salvador’s President Offers to Accept Criminals From U.S. for a Fee**\
-`Secretary of State Marco Rubio praised President Nayib Bukele’s “unprecedented, extraordinary” proposal to accept any convicted criminal deported by the United States.`\
-https://nytimes.com/2025/02/04/us/politics/el-salvador-prisons-marco-rubio.html
-
-**Shopping for Arms? Ukraine May Soon Be Your Best Bet.**\
-`The country should not be just a buyer of weapons but a supplier, thanks to its spirit of innovation.`\
-https://nytimes.com/2025/02/04/opinion/ukraine-russia-weapons-drones.html
 

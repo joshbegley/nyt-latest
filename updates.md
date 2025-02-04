@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/04/crosswords/spelling-bee-forum.html
+
+**Job Training Exists for Students With Disabilities. Many Never Get It.**\
+`Washington makes money available to the states to help young people with disabilities enter the work force. New Jersey has the worst record of helping connect families with such help.`\
+https://nytimes.com/2025/02/04/nyregion/job-training-exists-for-students-with-disabilities-many-never-get-it.html
+
+**How an Activist Group Helped Torpedo MDMA Therapy**\
+`The fallout from the F.D.A.’s rejection of a new treatment for PTSD worries researchers and experts who fear other psychedelic drugs in the pipeline could be jeopardized.`\
+https://nytimes.com/2025/02/04/health/fda-mdma-psychedelic-therapy-psymposia.html
+
+**Officers Flee as N.Y.P.D. Confronts Its Billion-Dollar Overtime Problem**\
+`The Police Department has already blown through its overtime budget halfway through the fiscal year as departures rise and the agency struggles to recruit.`\
+https://nytimes.com/2025/02/04/nyregion/nypd-overtime-hiring.html
+
 **Late Night Weighs In on the ‘World’s Dumbest Trade War’**\
 `Jimmy Kimmel thinks President Trump decided not to impose tariffs on Mexico because he saw the guacamole bill for his Super Bowl party.`\
 https://nytimes.com/2025/02/04/arts/television/late-night-trump-trade-war.html
