@@ -1,3 +1,7 @@
+**A Wealthy and Unhappy Nation**\
+`What a new study found about America.`\
+https://nytimes.com/2025/02/04/briefing/a-wealthy-and-unhappy-nation.html
+
 **2025 NHL trade deadline perfect fits: Proposals for Brock Nelson, Ryan O'Reilly and more**\
 `It's an unusual year for midseason trades in the NHL. Let's pick some ideal destinations for names still on the board.`\
 https://nytimes.com/athletic/6107818/2025/02/04/2025-nhl-trade-deadline-perfect-fits/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6111044/2025/02/04/nba-trade-deadline-knicks-assets
 **Blues power rankings: Doug Armstrong's hardball, Jimmy Snuggerud's points, Jim Montgomery's process**\
 `In the inaugural edition of the Blues power rankings, we do a vibe check on 10 items involving the team.`\
 https://nytimes.com/athletic/6109439/2025/02/04/blues-power-rankings-armstrong-snuggerud-montgomery/
-
-**Alex Palmer to Ipswich Town: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we look at goalkeeper Palmer's move to Ipswich from West Bromwich Albion of the Championship`\
-https://nytimes.com/athletic/6111038/2025/02/04/alex-palmer-ipswich-town-transfer-rating/
 
