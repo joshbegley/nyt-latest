@@ -1,3 +1,19 @@
+**A Trump. A Dead Duck. And an Uproar in Italy.**\
+`A video shows Donald Trump Jr. sitting in hunting gear beside a dead protected bird. Italian lawmakers want answers.`\
+https://nytimes.com/2025/02/04/world/europe/donald-trump-jr-duck-hunting-italy.html
+
+**At a Gilded Florida Resort, Anna Netrebko Tries U.S. Comeback**\
+`The Russian singer, shunned over her past support of Vladimir V. Putin, made her first American appearance since 2019 at a gala for Palm Beach Opera.`\
+https://nytimes.com/2025/02/04/arts/music/anna-netrebko-us-opera-putin.html
+
+**‘Not Like Us’ Reinvented Kendrick Lamar. Is the Super Bowl Ready for It?**\
+`After sweeping the Grammys on Sunday, Lamar’s ubiquitous Drake diss could be the centerpiece of the halftime show. That, it bears mentioning, is pretty strange.`\
+https://nytimes.com/2025/02/04/arts/music/kendrick-lamar-super-bowl-not-like-us.html
+
+**A curse on the Bills was lifted, and the truth behind it is stranger than fiction**\
+`The curse originated in an episode of "The X-Files."`\
+https://nytimes.com/athletic/6108718/2025/02/04/buffalo-bills-smoking-man-x-files-curse-super-bowl/
+
 **Crevette Is a French Excursion for the Lord’s and Dame Team**\
 `The chef Paul Carmichael opens Bar Kabawa with Momofuku, Lulla’s offers Venezuelan baked goods and more restaurant news.`\
 https://nytimes.com/2025/02/04/dining/nyc-restaurant-news.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6112348/2025/02/04/charles-barkley-nbc-amazon-deals
 **One Scene of Devastation, Evoking Another**\
 `Adam Nagourney, a former Los Angeles bureau chief, writes about the disasters that left scars on Los Angeles and New York City.`\
 https://nytimes.com/2025/02/04/us/wildfires-destruction-sept-11.html
-
-**Matthew Tkachuk 'completely jacked' for 4 Nations: 'This is not an All-Star Game'**\
-`Tkachuk hasn't worn a Team USA sweater since 2016 and says "I can promise you the players will be engaged" for the best-on-best event.`\
-https://nytimes.com/athletic/6110823/2025/02/04/matthew-tkachuk-4-nations-excitement/
-
-**How Beyoncé Finally Won Her Elusive Grammy**\
-`The Recording Academy has worked to reshape its voting pool, but the triumph of “Cowboy Carter” as album of the year can’t be traced to any one factor.`\
-https://nytimes.com/2025/02/04/arts/music/beyonce-album-of-the-year-grammy.html
-
-**City make 44% of the spend and second-highest outlay ever: The Premier League winter window analysed**\
-`The winter transfer window is now closed for Premier League clubs and we have taken a look at the key takeaways from the past month`\
-https://nytimes.com/athletic/6111744/2025/02/04/transfer-window-analysed-premier-league/
-
-**‘Accidental’ F.B.I. Chief Builds a Following as Agency’s Defender**\
-`Brian Driscoll was accidentally catapulted into the acting director’s chair on Jan. 20 and has defended the bureau from the potential of mass firings, inspiring memes and satirical clips.`\
-https://nytimes.com/2025/02/04/us/politics/fbi-director-brian-driscoll-trump-justice-department.html
 
