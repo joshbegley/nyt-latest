@@ -1,3 +1,7 @@
+**PepsiCo Adding Healthier Snacks as Consumers Shun Salt and Fat**\
+`Rising consumer demand for fewer empty calories is pushing the snack and beverage giant to offer options with less sodium, fat and artificial ingredients.`\
+https://nytimes.com/2025/02/04/business/pepsico-earnings-salty-snacks.html
+
 **NFL to remove 'End Racism' messaging in end zone ahead of Super Bowl: Sources**\
 `"Choose Love" and "It Takes All of Us" will be stenciled onto the back of the end zones at the Caesars Superdome.`\
 https://nytimes.com/athletic/6112317/2025/02/04/nfl-end-racism-super-bowl-dei-trump/
