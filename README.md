@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/04/opinion/trump-tariffs-china-evs.html
 `The department said that no payments would be interrupted and that it was conducting a review of the integrity of the system.`\
 https://nytimes.com/2025/02/04/us/politics/elon-musk-federal-payments.html
 
-**Relative of Ozempic Failed to Treat Parkinson’s Disease in a Trial**\
+**Drug Similar to Ozempic Failed to Treat Parkinson’s Disease in a Trial**\
 `The study may suggest that other researchers should be less optimistic about the prospects for treating a range of other conditions with newer weight-loss drugs.`\
 https://nytimes.com/2025/02/04/health/parkinsons-disease-exenatide-byetta.html
 
