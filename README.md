@@ -1,3 +1,7 @@
+**No 'Brady Rules' in NOLA: Tom Brady can attend Super Bowl production meetings**\
+`Brady will still be barred from attending Chiefs and Eagles practices before the Super Bowl.`\
+https://nytimes.com/athletic/6112681/2025/02/04/super-bowl-tom-brady-broadcaster-pregame/
+
 **Europe Has a Message for Americans: Tariffs on Us Would Hurt You, Too**\
 `Officials have made it clear that with jobs and companies dependent on the relationship between the United States and Europe, both sides would lose in a trade war.`\
 https://nytimes.com/2025/02/04/us/europe-trump-tariffs-us-impact.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/04/world/europe/donald-trump-jr-duck-hunting-italy.h
 **At a Gilded Florida Resort, Anna Netrebko Tries U.S. Comeback**\
 `The Russian singer, shunned over her past support of Vladimir V. Putin, made her first American appearance since 2019 at a gala for Palm Beach Opera.`\
 https://nytimes.com/2025/02/04/arts/music/anna-netrebko-us-opera-putin.html
-
-**‘Not Like Us’ Reinvented Kendrick Lamar. Is the Super Bowl Ready for It?**\
-`After sweeping the Grammys on Sunday, Lamar’s ubiquitous Drake diss could be the centerpiece of the halftime show. That, it bears mentioning, is pretty strange.`\
-https://nytimes.com/2025/02/04/arts/music/kendrick-lamar-super-bowl-not-like-us.html
 
