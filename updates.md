@@ -1,3 +1,11 @@
+**Shopping for Arms? Ukraine May Soon Be Your Best Bet.**\
+`The country should not be just a buyer of weapons but a supplier, thanks to its spirit of innovation.`\
+https://nytimes.com/2025/02/04/opinion/ukraine-russia-weapons-drones.html
+
+**Population Transfers Sanctioned by America? It’s on the Table.**\
+`President Trump’s plan for Palestinians is folly — and dangerous.`\
+https://nytimes.com/2025/02/04/opinion/israel-trump-netanyahu-gaza.html
+
 **Chiefs Super Bowl media night: The Travis Kelce experience, embracing villainy and more**\
 `DeAndre Hopkins opens up about the end of his time in Tennessee that led him to Kansas City, and Patrick Mahomes talks about that bad spike.`\
 https://nytimes.com/athletic/6111539/2025/02/04/chiefs-super-bowl-media-night-travis-kelce-patrick-mahomes/
