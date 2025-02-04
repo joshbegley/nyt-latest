@@ -1,3 +1,7 @@
+**Ensembles That Showcase an Eye for Detail**\
+`Thoughtfully chosen layers gave two outfits distinct sensibilities.`\
+https://nytimes.com/2025/02/04/style/ensembles-that-showcase-an-eye-for-detail.html
+
 **Where should NASCAR take the Clash? After Bowman Gray success, decision looms**\
 `The Clash got a jolt of energy at the North Carolina short track. Will it return in 2026, or will NASCAR look elsewhere?`\
 https://nytimes.com/athletic/6111505/2025/02/04/nascar-clash-future-bowman-gray-brazil-international/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/learning/what-streak-would-you-like-to-attempt.ht
 **Weekly Student New Quiz: Plane Crash, A.I. Breakthrough, N.B.A.**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/02/04/learning/04StudentNewsQuiz.html
-
-**Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
-`The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
-https://nytimes.com/athletic/6109370/2025/02/04/chiefs-prop-bets-super-bowl-59/
 

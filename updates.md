@@ -1,3 +1,7 @@
+**Ensembles That Showcase an Eye for Detail**\
+`Thoughtfully chosen layers gave two outfits distinct sensibilities.`\
+https://nytimes.com/2025/02/04/style/ensembles-that-showcase-an-eye-for-detail.html
+
 **Where should NASCAR take the Clash? After Bowman Gray success, decision looms**\
 `The Clash got a jolt of energy at the North Carolina short track. Will it return in 2026, or will NASCAR look elsewhere?`\
 https://nytimes.com/athletic/6111505/2025/02/04/nascar-clash-future-bowman-gray-brazil-international/
