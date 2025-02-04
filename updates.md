@@ -1,3 +1,7 @@
+**West Ham technical director Steidten leaves club**\
+`West Ham United technical director Tim Steidten has left the club, it has been announced.`\
+https://nytimes.com/athletic/6093902/2025/02/04/west-ham-tim-steidten-leaves-club/
+
 **Howe 'very reluctant' to lose Kelly; exit wasn't 'necessarily' his decision**\
 `Kelly has joined Juventus on loan with an obligation to buy after signing for Newcastle in the summer.`\
 https://nytimes.com/athletic/6111871/2025/02/04/newcastle-lloyd-kelly-juventus-transfer/
