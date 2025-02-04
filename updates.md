@@ -1,3 +1,15 @@
+**At Least 10 Are Killed at School Shooting in Sweden**\
+`The shooting took place at a school for adult education in the city of Orebro on Tuesday. An official said they did not think it was a terrorist attack.`\
+https://nytimes.com/2025/02/04/world/europe/sweden-school-shooting.html
+
+**U.S.A.I.D. Workers Brace for Agency’s Dismantling**\
+`Democrats denounced the Trump administration for what they said was an illegal power grab. Leading Republicans welcomed the moves.`\
+https://nytimes.com/2025/02/04/us/usaid-musk-trump-rubio-cuts.html
+
+**What does the Twins' bullpen picture look like after landing lefty Danny Coulombe?**\
+`Coulombe, who previously pitched for the Twins from 2020-22, adds a much-needed lefty option to a deep bullpen dominated by righties.`\
+https://nytimes.com/athletic/6111546/2025/02/04/twins-bullpen-danny-coulombe-signing/
+
 **The Closed-Door Battle to Lead the Olympics**\
 `In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
 https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
