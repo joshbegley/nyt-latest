@@ -15,7 +15,7 @@ https://nytimes.com/2025/02/04/books/what-are-blurbs-books.html
 https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-trial/
 
 **F.B.I. Agents Ask Court to Bar Trump Team From Disclosing Their Names**\
-`Employees who participated in Jan. 6 investigations contend in two lawsuits that they believe the administration intends to reveal their identities, endangering them and their families.`\
+`Employees who participated in the Jan. 6 investigations contended in two lawsuits that they believed the administration intended to reveal their identities, endangering them and their families.`\
 https://nytimes.com/2025/02/04/us/politics/fbi-names-trump-jan-6-lawsuit.html
 
 **Astros to retire Billy Wagner's No. 13**\
