@@ -1,3 +1,7 @@
+**Falcons QB Kirk Cousins now says injury affected his late-season play**\
+`Cousins says he suffered a shoulder injury in Week 10 against the Saints and never returned to full strength afterward.`\
+https://nytimes.com/athletic/6112955/2025/02/04/falcons-kirk-cousins-shoulder-injury/
+
 **Mavericks acquire Caleb Martin from 76ers: Source**\
 `The 29-year-old Martin, best known for his 2023 playoff heroics, now joins a revamped Mavericks team led by Anthony Davis and Kyrie Irving.`\
 https://nytimes.com/athletic/6113029/2025/02/04/caleb-martin-mavericks-trade-quentin-grimes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112838/2025/02/04/micah-hyde-retiring-nfl-bills-pa
 **Kultida Woods, mother of Tiger Woods, dies at 80**\
 `Kultida a pivotal a force in Tiger’s life as he rose from junior golfer to 15-time major champion.`\
 https://nytimes.com/athletic/6112905/2025/02/04/kultida-woods-death-tiger/
-
-**U.S. Set to Fly Migrants to Guantánamo**\
-`The decision to send migrants from the United States to Guantánamo Bay is a change in how the country handles people it deports.`\
-https://nytimes.com/2025/02/04/us/politics/migrants-guantanamo-trump.html
 
