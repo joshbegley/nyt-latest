@@ -1,3 +1,19 @@
+**F.B.I. agents involved in Jan. 6 cases are asking a court to bar the Trump team from disclosing their identities.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/fbi-agents-involved-in-jan-6-cases-are-asking-a-court-to-bar-the-trump-team-from-disclosing-their-identities
+
+**Astros to retire Billy Wagner's No. 13**\
+`Wagner's number will be retired during a series against the Baltimore Orioles from Aug. 15-17.`\
+https://nytimes.com/athletic/6113056/2025/02/04/houston-atros-billy-wagner-number-retirement/
+
+**Tim Hill, Yankees agree to 1-year deal: Source**\
+`The lefty reliever had a 2.05 ERA in 35 games with the Yankees last season after joining the team in June. `\
+https://nytimes.com/athletic/6113025/2025/02/04/tim-hill-yankees-mlb-free-agency-contract/
+
+**The Artist Alonzo Davis’s Life and Work in Pictures**\
+`In the 1960s, he built the Brockman Gallery, a vital venue for Black artists in Los Angeles. Here are glimpses into his life, art and legacy.`\
+https://nytimes.com/2025/02/04/arts/alonzo-davis-photos.html
+
 **Patriots Owner’s Son Challenges Michelle Wu for Mayor of Boston**\
 `Josh Kraft, a political newcomer who is running as a Democrat, said his top priority was addressing the city’s housing crisis.`\
 https://nytimes.com/2025/02/04/us/boston-mayor-josh-kraft-michelle-wu.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/04/arts/alonzo-davis-dead.html
 **N.Y.C. Suburb Deploys Detectives to Aid Trump’s Deportation Crackdown**\
 `Nassau County, on Long Island, becomes the second county in New York State to join a federal program that uses local law enforcement officers as ICE agents.`\
 https://nytimes.com/2025/02/04/nyregion/ice-deportation-nassau-blakeman.html
-
-**Falcons QB Kirk Cousins now says injury affected his late-season play**\
-`Cousins says he suffered a shoulder injury in Week 10 against the Saints and never returned to full strength afterward.`\
-https://nytimes.com/athletic/6112955/2025/02/04/falcons-kirk-cousins-shoulder-injury/
-
-**Mavericks acquire Caleb Martin from 76ers: Source**\
-`The 29-year-old Martin, best known for his 2023 playoff heroics, now joins a revamped Mavericks team led by Anthony Davis and Kyrie Irving.`\
-https://nytimes.com/athletic/6113029/2025/02/04/caleb-martin-mavericks-trade-quentin-grimes/
-
-**Courtroom Brawl Erupts in New Mexico Murder Case**\
-`The victim’s uncle leaped over a barrier and attacked the defendant during a routine hearing in Albuquerque last week. The episode was captured on video.`\
-https://nytimes.com/2025/02/04/us/new-mexico-courtroom-fight.html
-
-**Anthony Davis 'very excited' to play alongside Kyrie Irving with Mavericks**\
-`Davis, 31, and Irving, 32, will be the foundational pieces of a Mavericks team that believes it can compete for championships.`\
-https://nytimes.com/athletic/6112918/2025/02/04/nba-trade-news-luka-doncic-anthony-davis-lakers/
 
