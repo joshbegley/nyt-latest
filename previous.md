@@ -1,3 +1,11 @@
+**Don't Believe Him**\
+`Look closely at the first two weeks of Donald Trump’s second term and you’ll see something very different than what he wants you to see.`\
+https://nytimes.com/video/opinion/100000009968320/dont-believe-him.html
+
+**Proud Boys Lose Control of Their Name to a Black Church They Vandalized**\
+`A judge awarded the trademarked name and symbols to a Washington church to help satisfy a $2.8 million judgment against the far-right group.`\
+https://nytimes.com/2025/02/03/us/politics/proud-boys.html
+
 **Chiefs owner Clark Hunt says Andy Reid will be back next season: 'I know for a fact'**\
 `Reid is fourth all-time in wins among head coaches and has reached the second-most Super Bowls of any head coach.`\
 https://nytimes.com/athletic/6111438/2025/02/03/chiefs-clark-hunt-andy-reid-retirement-super-bowl-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/02/03/us/dc-plane-crash-victims.html
 **Corrections: Feb. 4, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 4, 2025.`\
 https://nytimes.com/2025/02/03/pageoneplus/corrections-feb-4-2025.html
-
-**Unions Sue to Block Musk’s Access to Treasury Payment Data**\
-`The suit was the latest effort by unions representing federal workers to push back against Trump administration directives aimed at undermining the federal bureaucracy.`\
-https://nytimes.com/2025/02/03/us/politics/elon-musk-treasury-payment-data.html
-
-**Defense Secretary Vows to Use Thousands of Active-Duty Troops to Secure Border**\
-`Defense Secretary Pete Hegseth and Thomas D. Homan, President Trump’s border czar, toured areas near Mexico.`\
-https://nytimes.com/2025/02/03/us/politics/defense-secretary-hegseth-border.html
 
