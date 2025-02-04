@@ -1,3 +1,15 @@
+**Ryan Hartman suspended 10 games: What it means for him and the Wild**\
+`The winger had a hearing with the league after being assessed a match penalty for pushing Tim Stützle’s face into the ice after a faceoff.`\
+https://nytimes.com/athletic/6109851/2025/02/03/ryan-hartman-suspension-wild/
+
+**Eagles' Saquon Barkley to Giants fans: 'There is nothing but love'**\
+`Barkley spent his first six seasons with the Giants before signing a three-year contract with the Eagles in free agency in 2024.`\
+https://nytimes.com/athletic/6111346/2025/02/03/eagles-saquon-barkley-giants-fans-super-bowl/
+
+**Blue Feeling**\
+`Adam Aaronson gets us all turned around.`\
+https://nytimes.com/2025/02/03/crosswords/daily-puzzle-2025-02-04.html
+
 **What Does Trump Really Want From Canada and Mexico?**\
 `President Trump’s demands on the United States’ neighbors are difficult to measure. That allows him to declare victory when he sees fit.`\
 https://nytimes.com/2025/02/03/us/politics/trump-canada-mexico.html
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6111212/2025/02/03/luis-rubiales-naomi-girma-record
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6111214/2025/02/03/submit-a-question-for-stewart-mandels-college-football-mailbag-291/
-
-**Cooper Kupp says the Rams told the star receiver they are going to trade him**\
-`Drafted in 2017, Kupp won the triple crown of receiving in 2021 with 145 receptions, 1,947 yards and 16 TDs in the Rams' Super Bowl season.`\
-https://nytimes.com/athletic/6111146/2025/02/03/cooper-kupp-trade-rams-exploring-nfl/
-
-**Fay Vincent’s final warning to MLB: 'Gambling always leads to corruption'**\
-`The former commissioner, who died Sunday at 86, spoke of his strong opposition to sports betting in a November interview with The Athletic.`\
-https://nytimes.com/athletic/6111114/2025/02/03/fay-vincent-mlb-commissioner-gambling/
-
-**Roger Goodell on state of NFL: Refs, 18-game schedule, Tom Brady, more**\
-`NFL commissioner expressed his bullishness on the league as he addressed a number of hot topics in a pre-Super Bowl media conference.`\
-https://nytimes.com/athletic/6110786/2025/02/03/roger-goodell-super-bowl-news-conference-nfl/
 

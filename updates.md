@@ -1,3 +1,15 @@
+**Ryan Hartman suspended 10 games: What it means for him and the Wild**\
+`The winger had a hearing with the league after being assessed a match penalty for pushing Tim Stützle’s face into the ice after a faceoff.`\
+https://nytimes.com/athletic/6109851/2025/02/03/ryan-hartman-suspension-wild/
+
+**Eagles' Saquon Barkley to Giants fans: 'There is nothing but love'**\
+`Barkley spent his first six seasons with the Giants before signing a three-year contract with the Eagles in free agency in 2024.`\
+https://nytimes.com/athletic/6111346/2025/02/03/eagles-saquon-barkley-giants-fans-super-bowl/
+
+**Blue Feeling**\
+`Adam Aaronson gets us all turned around.`\
+https://nytimes.com/2025/02/03/crosswords/daily-puzzle-2025-02-04.html
+
 **What Does Trump Really Want From Canada and Mexico?**\
 `President Trump’s demands on the United States’ neighbors are difficult to measure. That allows him to declare victory when he sees fit.`\
 https://nytimes.com/2025/02/03/us/politics/trump-canada-mexico.html
