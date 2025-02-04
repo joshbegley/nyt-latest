@@ -1,3 +1,15 @@
+**NFL refs: Questions about integrity 'insulting and preposterous'**\
+`NFL Referees Association executive director Scott Green called the commissioner's defense of officials' integrity "spot on."`\
+https://nytimes.com/athletic/6113531/2025/02/04/chiefs-referees-officials-roger-goodell-response/
+
+**West Bank? No, Judea and Samaria, Some Republicans Say.**\
+`President Trump’s return has emboldened supporters of Israeli annexation of the occupied territory who want to mandate the use of language reflecting that view. Opponents of annexation say the term reflects a political agenda.`\
+https://nytimes.com/2025/02/04/world/middleeast/west-bank-annexation-republicans.html
+
+**Is This the End of Pax Americana?**\
+`We should aim to be a great power, not a big one.`\
+https://nytimes.com/2025/02/04/opinion/trump-foreign-policy-power-tariffs.html
+
 **Planned changes to Premier League officiating: In-stadium VAR announcements and semi-automated offsides**\
 `In-stadium VAR announcements, semi-automated offsides, and tackling time-wasting are all on the agenda...`\
 https://nytimes.com/athletic/6113561/2025/02/04/changes-premier-league-referees-var/
