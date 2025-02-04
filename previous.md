@@ -1,3 +1,7 @@
+**Treasury Defends Musk Team’s Access to Federal Payment System**\
+`The department said that no payments would be interrupted and that it was conducting a review of the integrity of the system.`\
+https://nytimes.com/2025/02/04/us/politics/elon-musk-federal-payments.html
+
 **Relative of Ozempic Failed to Treat Parkinson’s Disease in a Trial**\
 `The study may suggest that other researchers should be less optimistic about the prospects for treating a range of other conditions with newer weight-loss drugs.`\
 https://nytimes.com/2025/02/04/health/parkinsons-disease-exenatide-byetta.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6113572/2025/02/04/chiefs-super-bowl-marquise-brown
 **Why We (Still) Think the Grammys Are Good Now**\
 `Big wins for Beyoncé, Kendrick Lamar and Chappell Roan. Standout performances from Doechii and Sabrina Carpenter. A conversation about why the 2025 awards worked.`\
 https://nytimes.com/2025/02/04/arts/music/popcast-grammys.html
-
-**Trump Said Palestinians Should Leave Gaza**\
-`Also, China swiftly countered Trump’s tariffs. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/02/04/briefing/trump-netanyahu-white-house-china-us-tariffs.html
 
