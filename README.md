@@ -1,3 +1,15 @@
+**Trump’s Attempt to Freeze Grant Funding Leaves Nonprofits Reeling**\
+`Some groups said their funding was still blocked, even after the freeze had been rescinded. Others saw their money reinstated but worried about future cuts.`\
+https://nytimes.com/2025/02/04/us/politics/grant-funding-freeze-nonprofits.html
+
+**Trump Restores ‘Maximum Pressure’ Campaign on Iran in Executive Order**\
+`The president used a visit from Israel’s prime minister as the moment to ramp up a campaign intended to persuade Iran to give up its nuclear campaign.`\
+https://nytimes.com/2025/02/04/us/politics/trump-iran-executive-order.html
+
+**NCAA’s $2.8 billion settlement faces objections before final approval**\
+`Schools and conferences are already moving on plans to implement revenue sharing, with some already starting to sign athletes to agreements.`\
+https://nytimes.com/athletic/6113424/2025/02/04/ncaa-settlement-house-revenue-sharing/
+
 **A Fitting Dress Code for the 2025 Met Gala: ‘Tailored for You’**\
 `The Metropolitan Museum of Art also announced a new batch of co-hosts for its splashy fashion fund-raiser including Simone Biles, Ayo Edebiri, Usher and Doechii.`\
 https://nytimes.com/2025/02/04/style/met-gala-dress-code-dandyism.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/technology/alphabet-google-earnings.html
 **Final Remains Recovered From Plane Crash Over the Potomac**\
 `Officials in Washington said they had recovered 67 sets of remains. There were 64 people on the jet, and three crew members on the Army helicopter that collided with it.`\
 https://nytimes.com/2025/02/04/us/potomac-plane-bodies-recovered.html
-
-**G.O.P. Senators Choose Consent**\
-`Despite reservations, Republicans are falling in line behind President Trump’s contentious top administration picks, signaling a broader retreat from challenging him.`\
-https://nytimes.com/2025/02/04/us/politics/trump-cabinet-confirmations-gop-senators.html
-
-**Adams Went to Albany to Ask for Funding. He Ended Up in the Hot Seat.**\
-`Some lawmakers, including two who are facing the mayor in the June Democratic primary in New York City, challenged his credibility and accomplishments.`\
-https://nytimes.com/2025/02/04/nyregion/adams-albany-mayor-election.html
-
-**Show Tunes and Martinis at a Party for Michael Kors**\
-`Alan Cumming, Katie Holmes and Iman were among the celebrities who gathered at Café Carlyle in Manhattan to toast the designer’s new flagship store.`\
-https://nytimes.com/2025/02/04/style/michael-kors-party.html
 
