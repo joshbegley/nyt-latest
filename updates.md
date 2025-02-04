@@ -1,3 +1,7 @@
+**No 'Brady Rules' in NOLA: Tom Brady can attend Super Bowl production meetings**\
+`Brady will still be barred from attending Chiefs and Eagles practices before the Super Bowl.`\
+https://nytimes.com/athletic/6112681/2025/02/04/super-bowl-tom-brady-broadcaster-pregame/
+
 **Europe Has a Message for Americans: Tariffs on Us Would Hurt You, Too**\
 `Officials have made it clear that with jobs and companies dependent on the relationship between the United States and Europe, both sides would lose in a trade war.`\
 https://nytimes.com/2025/02/04/us/europe-trump-tariffs-us-impact.html
