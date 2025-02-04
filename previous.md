@@ -1,3 +1,7 @@
+**Eagles Super Bowl media night: Brandon Graham slips, Kellen Moore on Saints**\
+`Plus, Jake Elliott addresses his struggles, and the Eagles receivers rise to the occasion.`\
+https://nytimes.com/athletic/6111347/2025/02/03/eagles-super-bowl-media-night-brandon-graham-kellen-moore/
+
 **Don't Believe Him**\
 `Look closely at the first two weeks of Donald Trump’s second term and you’ll see something very different than what he wants you to see.`\
 https://nytimes.com/video/opinion/100000009968320/dont-believe-him.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/03/us/politics/trump-canada-mexico.html
 **The Lives Cut Short by the D.C. Plane Crash**\
 `They were from all over — Kansas, Washington, D.C. and the surrounding area, and as far away as the Philippines.`\
 https://nytimes.com/interactive/2025/02/03/us/dc-plane-crash-victims.html
-
-**Corrections: Feb. 4, 2025**\
-`Corrections that appeared in print on Tuesday, Feb. 4, 2025.`\
-https://nytimes.com/2025/02/03/pageoneplus/corrections-feb-4-2025.html
 
