@@ -1,3 +1,7 @@
+**Two-time All-Pro safety Micah Hyde retiring from NFL after 11 seasons**\
+`Hyde defied the odds as a 2013 fifth-round draft pick, logging over 600 tackles and 24 interceptions in his professional career.`\
+https://nytimes.com/athletic/6112838/2025/02/04/micah-hyde-retiring-nfl-bills-packers/
+
 **Kultida Woods, mother of Tiger Woods, dies at 80**\
 `Kultida a pivotal a force in Tiger’s life as he rose from junior golfer to 15-time major champion.`\
 https://nytimes.com/athletic/6112905/2025/02/04/kultida-woods-death-tiger/
