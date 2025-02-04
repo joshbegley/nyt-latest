@@ -1,3 +1,15 @@
+**Why did Liverpool not sign anyone in this winter's transfer window?**\
+`Fans demanding Anfield's powerbrokers sign from a position of strength were disappointed but this squad are being backed to finish the job`\
+https://nytimes.com/athletic/6108909/2025/02/04/liverpool-january-transfer-window-no-signings/
+
+**Trump Ratchets Up Tariffs on China, While Canada and Mexico Get Reprieve**\
+`A 10 percent tariff on Chinese products took effect just after midnight Tuesday, and it remains to be seen if Mr. Trump will strike a deal to remove them.`\
+https://nytimes.com/2025/02/04/business/economy/trump-tariffs-china.html
+
+**The transfer windows that are still open now the Premier League's has shut**\
+`Players who want away and clubs needing to sell can still look to Turkey, MLS and Portugal now the window has shut for much of Europe`\
+https://nytimes.com/athletic/6109502/2025/02/04/which-transfer-windows-still-open/
+
 **How Chloe Kelly's deadline day loan from City to Arsenal happened**\
 `Kelly returns to Arsenal after claiming City tried to "assassinate" her character. It is now time for her to prove she can bounce back`\
 https://nytimes.com/athletic/6107221/2025/02/04/chloe-kelly-arsenal-manchester-city-loan/

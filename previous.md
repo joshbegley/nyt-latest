@@ -1,3 +1,15 @@
+**Why did Liverpool not sign anyone in this winter's transfer window?**\
+`Fans demanding Anfield's powerbrokers sign from a position of strength were disappointed but this squad are being backed to finish the job`\
+https://nytimes.com/athletic/6108909/2025/02/04/liverpool-january-transfer-window-no-signings/
+
+**Trump Ratchets Up Tariffs on China, While Canada and Mexico Get Reprieve**\
+`A 10 percent tariff on Chinese products took effect just after midnight Tuesday, and it remains to be seen if Mr. Trump will strike a deal to remove them.`\
+https://nytimes.com/2025/02/04/business/economy/trump-tariffs-china.html
+
+**The transfer windows that are still open now the Premier League's has shut**\
+`Players who want away and clubs needing to sell can still look to Turkey, MLS and Portugal now the window has shut for much of Europe`\
+https://nytimes.com/athletic/6109502/2025/02/04/which-transfer-windows-still-open/
+
 **How Chloe Kelly's deadline day loan from City to Arsenal happened**\
 `Kelly returns to Arsenal after claiming City tried to "assassinate" her character. It is now time for her to prove she can bounce back`\
 https://nytimes.com/athletic/6107221/2025/02/04/chloe-kelly-arsenal-manchester-city-loan/
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000009968320/dont-believe-him.html
 **Proud Boys Lose Control of Their Name to a Black Church They Vandalized**\
 `A judge awarded the trademarked name and symbols to a Washington church to help satisfy a $2.8 million judgment against the far-right group.`\
 https://nytimes.com/2025/02/03/us/politics/proud-boys.html
-
-**Chiefs owner Clark Hunt says Andy Reid will be back next season: 'I know for a fact'**\
-`Reid is fourth all-time in wins among head coaches and has reached the second-most Super Bowls of any head coach.`\
-https://nytimes.com/athletic/6111438/2025/02/03/chiefs-clark-hunt-andy-reid-retirement-super-bowl-comments/
-
-**Roger Goodell lauds Saints' transparency on connection to archdiocese**\
-`Multiple reports revealed franchise members' support of Catholic Church in wake of abuse scandal.`\
-https://nytimes.com/athletic/6109606/2025/02/03/saints-emails-catholic-church-priests-sex-abuse-scandal/
-
-**Ryan Hartman suspended 10 games: What it means for him and the Wild**\
-`The winger had a hearing with the league after being assessed a match penalty for pushing Tim Stützle’s face into the ice after a faceoff.`\
-https://nytimes.com/athletic/6109851/2025/02/03/ryan-hartman-suspension-wild/
 
