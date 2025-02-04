@@ -1,3 +1,23 @@
+**Musk Team Scrutinizes Education Department Operations**\
+`The engagement is the latest sign of the billionaire’s expanding influence across the government, which already stretches into more than half a dozen agencies.`\
+https://nytimes.com/2025/02/04/us/politics/musk-education-department.html
+
+**L.A. Faces Pressure From Wealthy Residents as the Pacific Palisades Rebuilds**\
+`The neighborhood is likely to grow more expensive and exclusive as millionaire Angelenos demand a fast-track recovery.`\
+https://nytimes.com/2025/02/04/realestate/la-fires-pacific-palisades-rebuilding.html
+
+**Armed 15-Year-Old Who Demanded Plane at Arkansas Airport Is Arrested**\
+`A pilot retrieved a gun and disarmed the suspect before officers arrived at the regional airport in Texarkana, Ark.`\
+https://nytimes.com/2025/02/04/us/minor-arrested-texarkana-airport-gun.html
+
+**A DB's dream to make Mahomes interceptions a reality, Zack Baun's homecoming**\
+`Plus, an Eagles star switches agents ahead of a new contract negotiation.`\
+https://nytimes.com/athletic/6113330/2025/02/04/super-bowl-lix-eagles-notebook-reed-blankenship-zack-baun/
+
+**Newsom Heads to Washington to Meet With Trump**\
+`Gov. Gavin Newsom, the Democratic governor of California, has tried to cooperate with President Trump as he seeks federal aid for wildfire relief.`\
+https://nytimes.com/2025/02/04/us/politics/newsom-trump-la-fire-aid-water.html
+
 **S.E.C. Moves to Scale Back Its Crypto Enforcement Efforts**\
 `Some in a special unit of 50 lawyers and staff members that had been assigned to regulate cryptocurrency are being reassigned in the agency.`\
 https://nytimes.com/2025/02/04/business/sec-crypto-task-force.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/04/t-magazine/cozy-winter-meals-inspiration.html
 **The Aga Khan IV, Leader of the Ismaili Muslims, Dies at 88**\
 `At the age of 20, he inherited the reins of a Shia Muslim lineage and used his entrepreneurship to become one of the world’s wealthiest hereditary rulers.`\
 https://nytimes.com/2025/02/04/obituaries/the-aga-khan-iv-dead.html
-
-**NFL refs: Questions about integrity 'insulting and preposterous'**\
-`NFL Referees Association executive director Scott Green called the commissioner's defense of officials' integrity "spot on."`\
-https://nytimes.com/athletic/6113531/2025/02/04/chiefs-referees-officials-roger-goodell-response/
-
-**West Bank? No, Judea and Samaria, Some Republicans Say.**\
-`President Trump’s return has emboldened supporters of Israeli annexation of the occupied territory who want to mandate the use of language reflecting that view. Opponents of annexation say the term reflects a political agenda.`\
-https://nytimes.com/2025/02/04/world/middleeast/west-bank-annexation-republicans.html
-
-**Is This the End of Pax Americana?**\
-`We should aim to be a great power, not a big one.`\
-https://nytimes.com/2025/02/04/opinion/trump-foreign-policy-power-tariffs.html
-
-**Planned changes to Premier League officiating: In-stadium VAR announcements and semi-automated offsides**\
-`In-stadium VAR announcements, semi-automated offsides, and tackling time-wasting are all on the agenda...`\
-https://nytimes.com/athletic/6113561/2025/02/04/changes-premier-league-referees-var/
-
-**Trump’s Attempt to Freeze Grant Funding Leaves Nonprofits Reeling**\
-`Some groups said their funding was still blocked, even after the freeze had been rescinded. Others saw their money reinstated but worried about future cuts.`\
-https://nytimes.com/2025/02/04/us/politics/grant-funding-freeze-nonprofits.html
 
