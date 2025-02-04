@@ -1,3 +1,11 @@
+**NFL to remove 'End Racism' messaging in end zone ahead of Super Bowl: Sources**\
+`"Choose Love" and "It Takes All of Us" will be stenciled onto the back of the end zones at the Caesars Superdome.`\
+https://nytimes.com/athletic/6112317/2025/02/04/nfl-end-racism-super-bowl-dei-trump/
+
+**Wrexham's transfer window reviewed: A £1m signing and an ex-England striker bolster promotion tilt**\
+`Sam Smith and Jay Rodriguez headlined Wrexham's January business as Phil Parkinson's squad got a shot in the arm`\
+https://nytimes.com/athletic/6108741/2025/02/04/wrexham-january-transfer-window-smith-rodriguez-longman/
+
 **The Closed Door Battle to Lead the Olympics**\
 `In perhaps the quirkiest election in sports, seven officials are vying for the powerful position of president of the International Olympic Committee.`\
 https://nytimes.com/2025/02/04/business/international-olympic-committee-presidential-election.html
@@ -31,12 +39,4 @@ https://nytimes.com/2025/02/04/dining/nyc-restaurant-news.html
 **Chelsea confirm signing of Amougou from Saint-Etienne**\
 `Amougou, who has made 17 appearances in Ligue 1 this season, has moved to Chelsea for a fee in the region of £12.5m on an 8-year contract.`\
 https://nytimes.com/athletic/6109419/2025/02/04/chelsea-saint-etienne-amougou-transfer/
-
-**Who Is Bill Cassidy, the Republican Whose Support Is Crucial for Kennedy?**\
-`Senator Bill Cassidy, a Republican doctor, had deep misgivings about Robert F. Kennedy Jr.’s nomination for health secretary, citing his views on vaccines. But in a key committee session, he voted yes.`\
-https://nytimes.com/2025/02/04/us/politics/bill-cassidy-senator-rfk-jr.html
-
-**Grammy Awards Audience Drops 9%**\
-`The awards show drew 15.4 million people this year, down from nearly 17 million last year.`\
-https://nytimes.com/2025/02/04/business/media/grammy-awards-ratings.html
 
