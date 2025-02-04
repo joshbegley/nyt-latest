@@ -6,7 +6,7 @@ https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/here-are-the-latest-de
 `A new law says TikTok must be sold to a non-Chinese owner or face a ban in the United States. President Trump has thrown out a lot of options for a potential sale.`\
 https://nytimes.com/2025/02/04/business/media/tiktok-sale-who-could-buy.html
 
-**Alaba suffers injury, Madrid could be without senior centre-backs against Atletico**\
+**Alaba suffers injury, Madrid expected to be without senior centre-backs against Atletico**\
 `The 32-year-old Austria international only returned to action in January after 399 days out injured with an ACL injury.`\
 https://nytimes.com/athletic/6111887/2025/02/04/david-alaba-injury-real-madrid/
 
