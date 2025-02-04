@@ -1,3 +1,7 @@
+**Kultida Woods, mother of Tiger Woods, dies at 80**\
+`Kultida a pivotal a force in Tiger’s life as he rose from junior golfer to 15-time major champion.`\
+https://nytimes.com/athletic/6112905/2025/02/04/kultida-woods-death-tiger/
+
 **U.S. Set to Fly Migrants to Guantánamo**\
 `The decision to send migrants from the United States to Guantánamo Bay is a change in how the country handles people it deports.`\
 https://nytimes.com/2025/02/04/us/politics/migrants-guantanamo-trump.html
