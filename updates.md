@@ -1,3 +1,11 @@
+**Want Eggs With Your Breakfast? Pay a Surcharge, Waffle House Says.**\
+`The restaurant chain, serves breakfast all day, said it was adding the temporary 50-cent surcharge because the bird flu has caused a shortage in the egg supply.`\
+https://nytimes.com/2025/02/04/business/waffle-house-egg-surcharge.html
+
+**Sabres' lack of response after Tage Thompson injury 'won't happen again'**\
+`The Sabres missed an opportunity on Sunday to stick up for their star player in a meaningful way.`\
+https://nytimes.com/athletic/6113067/2025/02/04/tage-thompson-injury-sabres-response/
+
 **Democrats protest Trump’s unilateral moves, with little means to stop him.**\
 `Out of power in Congress, Democrats have toiled to find a way to thwart President Trump’s efforts to steer around Congress on spending and policy. With no Republican backing, there’s not much they can do.`\
 https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/trump-senate-democrats-protest

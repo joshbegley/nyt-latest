@@ -1,3 +1,11 @@
+**Want Eggs With Your Breakfast? Pay a Surcharge, Waffle House Says.**\
+`The restaurant chain, serves breakfast all day, said it was adding the temporary 50-cent surcharge because the bird flu has caused a shortage in the egg supply.`\
+https://nytimes.com/2025/02/04/business/waffle-house-egg-surcharge.html
+
+**Sabres' lack of response after Tage Thompson injury 'won't happen again'**\
+`The Sabres missed an opportunity on Sunday to stick up for their star player in a meaningful way.`\
+https://nytimes.com/athletic/6113067/2025/02/04/tage-thompson-injury-sabres-response/
+
 **Democrats protest Trump’s unilateral moves, with little means to stop him.**\
 `Out of power in Congress, Democrats have toiled to find a way to thwart President Trump’s efforts to steer around Congress on spending and policy. With no Republican backing, there’s not much they can do.`\
 https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/trump-senate-democrats-protest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/technology/elon-musk-x-doge.html
 **Three Giants stats that are due for a negative regression and how they should prepare**\
 `Heliot Ramos, Tyler Fitzgerald and the Giants' propensity for getting on base to start an inning are due for regressions.`\
 https://nytimes.com/athletic/6109827/2025/02/04/sf-giants-2025-stat-regressions/
-
-**How Trump’s Trade War Could Affect Climate Change**\
-`President Trump’s tariffs could threaten supply chains in the renewable energy industry and disrupt oil and gas markets.`\
-https://nytimes.com/2025/02/04/climate/trump-trade-climate-change.html
-
-**Trudeau and Sheinbaum Took Different Routes to Win a Tariff Reprieve**\
-`The Canadian and Mexican leaders negotiated with President Trump in diverging ways. In the end, they both secured an outcome they could present as victories back home.`\
-https://nytimes.com/2025/02/04/world/canada/mexico-canada-trump-tariff-deals.html
 
