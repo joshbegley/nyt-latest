@@ -1,3 +1,7 @@
+**The Pulse: Another superstar on the move?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6109800/2025/02/04/myles-garrett-trade-request-the-pulse/
+
 **Here are the latest developments.**\
 `By Ana Swanson, Chris Buckley, Alan Rappeport and Qasim Nauman`\
 https://nytimes.com/live/2025/02/04/us/trump-tariffs-news/here-are-the-latest-developments
