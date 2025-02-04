@@ -1,3 +1,19 @@
+**Who's in on Kevin Durant? What we're hearing as trade deadline nears**\
+`Yes, the Warriors are trying to find a way to land the 36-year-old superstar, but they aren't alone.`\
+https://nytimes.com/athletic/6113665/2025/02/04/kevin-durant-trade-rumors-suns-warriors-nba/
+
+**General Services Administration Workers Warned of Impending Staff Cuts**\
+`The notice came as the Trump administration pushes to shrink the work force, giving civil servants until Thursday to decide whether to resign.`\
+https://nytimes.com/2025/02/04/us/politics/gsa-staff-cuts-trump.html
+
+**Prosecutors Charge Man They Say Is Tied to Robbery of N.F.L. Quarterback**\
+`The home of Joe Burrow of the Cincinnati Bengals was burglarized in December. The authorities said a man detained in Manhattan was part of a related fencing operation.`\
+https://nytimes.com/2025/02/04/nyregion/joe-burrow-home-burglary-charges.html
+
+**Samuel Butler, Lawyer Who Helped Create Corporate Giants, Dies at 94**\
+`Leading the elite Wall Street firm Cravath, he became a go-to adviser on mergers and acquisitions — “all the big deals that were going on in the ’80s and ’90s.”`\
+https://nytimes.com/2025/02/04/business/dealbook/samuel-butler-dead.html
+
 **Proposal Calls for Restoring Tulsa Massacre Neighborhood**\
 `If approved, the plan would provide cash payments, a new hospital and the potential returning of land to descendants of the victims.`\
 https://nytimes.com/2025/02/04/us/tulsa-massacre-reparations.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/04/briefing/trump-netanyahu-white-house-china-us-tar
 **Musk Team Scrutinizes Education Department Operations**\
 `The engagement is the latest sign of the billionaire’s expanding influence across the government, which already stretches into more than half a dozen agencies.`\
 https://nytimes.com/2025/02/04/us/politics/musk-education-department.html
-
-**L.A. Faces Pressure From Wealthy Residents as Pacific Palisades Rebuilds**\
-`The neighborhood is likely to grow more expensive and exclusive as millionaire Angelenos demand a fast-track recovery.`\
-https://nytimes.com/2025/02/04/realestate/la-fires-pacific-palisades-rebuilding.html
-
-**Armed 15-Year-Old Who Demanded Plane at Arkansas Airport Is Arrested**\
-`A pilot retrieved a gun and disarmed the suspect before officers arrived at the regional airport in Texarkana, Ark.`\
-https://nytimes.com/2025/02/04/us/minor-arrested-texarkana-airport-gun.html
-
-**A DB's dream to make Mahomes interceptions a reality, Zack Baun's homecoming**\
-`Plus, an Eagles star switches agents ahead of a new contract negotiation.`\
-https://nytimes.com/athletic/6113330/2025/02/04/super-bowl-lix-eagles-notebook-reed-blankenship-zack-baun/
-
-**Newsom Heads to Washington to Meet With Trump**\
-`Gov. Gavin Newsom, the Democratic governor of California, has tried to cooperate with President Trump as he seeks federal aid for wildfire relief.`\
-https://nytimes.com/2025/02/04/us/politics/newsom-trump-la-fire-aid-water.html
 
