@@ -1,3 +1,11 @@
+**Medical Experts Raise Grave Doubts Over Conviction of ‘Killer Nurse’ Lucy Letby**\
+`After assessing the cases of 17 babies at the heart of the British nurse’s murder trials, a panel of specialists said that they had found no evidence that Ms. Letby had murdered anyone.`\
+https://nytimes.com/2025/02/04/world/europe/lucy-letby-nurse-uk-appeal-evidence.html
+
+**Dodgy WiFi, empanadas and an owner in the bath - the Milan hotel where Serie A convenes for deadline day**\
+`Sporting directors and agents descend on the northern Italian city on the final day of each window to thrash out late deals face to face`\
+https://nytimes.com/athletic/6110749/2025/02/04/milan-hotel-transfers-gallia-sheraton/
+
 **The Athletic FC: City's late £50m deal, top transfers in window, Hermoso 'received death threats'**\
 `Today in TAFC: Man City's late £50m splash, the best deals reviewed, Hermoso says she received death threats after Rubiales kiss`\
 https://nytimes.com/athletic/6111912/2025/02/04/citys-late-50m-deal-top-transfers-hermoso-received-death-threats-after-rubiales-kiss/
