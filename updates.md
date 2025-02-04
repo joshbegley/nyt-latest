@@ -1,3 +1,7 @@
+**NBA trade deadline rewind: Breaking down 2024's moves, one year later**\
+`With the benefit of hindsight, let's examine the 2024 deadline and see how good, bad or unnecessary those moves really were.`\
+https://nytimes.com/athletic/6023718/2025/02/04/nba-trade-rewind-og-anunoby-pascal-siakam/
+
 **Forest confirm loan signing of Ndala from City**\
 `The deal brings the 18-year-old to the City Ground until the summer with a view to a permanent transfer.`\
 https://nytimes.com/athletic/6110865/2025/02/04/nottingham-forest-loan-joel-ndala-manchester-city/

@@ -1,3 +1,7 @@
+**NBA trade deadline rewind: Breaking down 2024's moves, one year later**\
+`With the benefit of hindsight, let's examine the 2024 deadline and see how good, bad or unnecessary those moves really were.`\
+https://nytimes.com/athletic/6023718/2025/02/04/nba-trade-rewind-og-anunoby-pascal-siakam/
+
 **Forest confirm loan signing of Ndala from City**\
 `The deal brings the 18-year-old to the City Ground until the summer with a view to a permanent transfer.`\
 https://nytimes.com/athletic/6110865/2025/02/04/nottingham-forest-loan-joel-ndala-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109947/2025/02/04/arsenal-transfer-window-watkins-
 **Inside Man Utd's transfer window: Rashford wages ask, summer target, Tel fee, no Pogba talks**\
 `Why Manchester United let Rashford leave without signing attacking replacements and what their summer plans are now`\
 https://nytimes.com/athletic/6109872/2025/02/04/manchester-united-transfers-rashford-tel-pogba/
-
-**Manchester City's transfer window: Four signings to reinvigorate the squad as captain Kyle Walker departs**\
-`City were uncharacteristically busy in the winter window as they try and alleviate the impact of a poor season but also build for the future`\
-https://nytimes.com/athletic/6109656/2025/02/04/manchester-city-transfer-window-review/
 
