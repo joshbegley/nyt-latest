@@ -1,3 +1,15 @@
+**The U.S. Economy Is Racing Ahead. Almost Everything Else Is Falling Behind.**\
+`The gap between Americans’ prosperity and quality of life has grown since the 1990s.`\
+https://nytimes.com/2025/02/04/briefing/the-us-economy-is-racing-ahead-almost-everything-else-is-falling-behind.html
+
+**Bengals free agent rankings: Tee Higgins headlines list of intriguing pieces**\
+`Higgins is on many teams' wishlists while B.J. Hill, Mike Hilton and Mike Gesicki are among those who will generate interest.`\
+https://nytimes.com/athletic/6110575/2025/02/04/bengals-free-agent-rankings-2025/
+
+**My top 10 moments from covering Ohio State's national championship run**\
+`Jack Sawyer's fumble return touchdown against Texas is an obvious choice for No. 1, but Ohio State had plenty of other memorable moments.`\
+https://nytimes.com/athletic/6109249/2025/02/04/ohio-state-national-championship-best-moments/
+
 **The 10 most shocking college sports transactions — no Luka for AD, but lots of fleeing coaches**\
 `College athletes do switch teams, quite a lot lately, but the shocking moves at this level involve coaches leaving one job for another.`\
 https://nytimes.com/athletic/6111276/2025/02/04/shocking-college-coaching-moves/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/trump-netanyahu-meeting-israel-gaza.h
 **E.P.A. Demotes Career Employees Overseeing Science, Enforcement and More**\
 `A spokeswoman for the agency said the change was “common practice.” Others said it injects partisanship into jobs that have always been neutral.`\
 https://nytimes.com/2025/02/04/climate/epa-demotes-career-employees-overseeing-science-enforcement-and-more.html
-
-**I Have Erectile Dysfunction. Do I Have to Disclose This Before Sex?**\
-`The magazine’s Ethicist columnist on awkward admissions and whether to make restitution for participating in transactional relationships.`\
-https://nytimes.com/2025/02/04/magazine/erectile-dysfunction-sugar-daddy-ethics.html
-
-**Trump Riles Washington as He Tries to Overthrow the Existing Order**\
-`The new president has left virtually no corner of the nation’s capital untouched in a wide-ranging effort to tear down the federal government and refashion it to his liking.`\
-https://nytimes.com/2025/02/04/us/politics/trump-president-washington-dc.html
-
-**These Settlements With Trump Are Weakening Press Freedoms**\
-`Media institutions and technology companies are offering obscene sums of money to settle feeble or frivolous lawsuits.`\
-https://nytimes.com/2025/02/04/opinion/trump-media-lawsuit-freedom.html
 
