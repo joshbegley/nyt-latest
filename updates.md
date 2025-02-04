@@ -1,3 +1,7 @@
+**Where should NASCAR take the Clash? After Bowman Gray success, decision looms**\
+`The Clash got a jolt of energy at the North Carolina short track. Will it return in 2026, or will NASCAR look elsewhere?`\
+https://nytimes.com/athletic/6111505/2025/02/04/nascar-clash-future-bowman-gray-brazil-international/
+
 **What we're hearing about potential Washington Wizards trade deadline deals**\
 `Kyle Kuzma and Jonas Valančiūnas are among the players Washington could trade before Thursday's deadline. `\
 https://nytimes.com/athletic/6111411/2025/02/04/washington-wizards-nba-trade-deadline-intel-kyle-kuzma/
