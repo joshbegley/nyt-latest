@@ -1,3 +1,11 @@
+**Democrats protest Trump’s unilateral moves, with little means to stop him.**\
+`Out of power in Congress, Democrats have toiled to find a way to thwart President Trump’s efforts to steer around Congress on spending and policy. With no Republican backing, there’s not much they can do.`\
+https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/trump-senate-democrats-protest
+
+**Small-Business Owners Say Tariffs Will Squeeze Them, and Their Customers**\
+`Consumer electronics, electrical equipment, and textiles and apparel are among the top categories of goods imported into the United States from China.`\
+https://nytimes.com/2025/02/04/us/trump-tariffs-china-consumer-costs.html
+
 **How Trump’s Trade War Could Affect Climate Change**\
 `President Trump’s tariffs could threaten supply chains in the renewable energy industry and disrupt oil and gas markets.`\
 https://nytimes.com/2025/02/04/climate/trump-trade-climate-change.html

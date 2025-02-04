@@ -1,3 +1,11 @@
+**Democrats protest Trump’s unilateral moves, with little means to stop him.**\
+`Out of power in Congress, Democrats have toiled to find a way to thwart President Trump’s efforts to steer around Congress on spending and policy. With no Republican backing, there’s not much they can do.`\
+https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/trump-senate-democrats-protest
+
+**Small-Business Owners Say Tariffs Will Squeeze Them, and Their Customers**\
+`Consumer electronics, electrical equipment, and textiles and apparel are among the top categories of goods imported into the United States from China.`\
+https://nytimes.com/2025/02/04/us/trump-tariffs-china-consumer-costs.html
+
 **The Newest, Biggest Investment Fund: The United States Government?**\
 `Sovereign wealth funds invest state or government money. They’re typically created from budget surpluses or revenues from oil or other commodities.`\
 https://nytimes.com/2025/02/04/business/trump-sovereign-wealth-fund.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/climate/trump-trade-climate-change.html
 **Trudeau and Sheinbaum Took Different Routes to Win a Tariff Reprieve**\
 `The Canadian and Mexican leaders negotiated with President Trump in diverging ways. In the end, they both secured an outcome they could present as victories back home.`\
 https://nytimes.com/2025/02/04/world/canada/mexico-canada-trump-tariff-deals.html
-
-**Gabbard had one of the most difficult confirmation hearings of any of Trump’s nominees.**\
-`The full Senate will vote on President Trump’s pick to be the director of national intelligence. She was one of the most contentious cabinet choices.`\
-https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/tulsi-gabbard-confirmation-senate
-
-**Messi's Barcelona locker bids surpass Cristiano Ronaldo's Real Madrid locker sale**\
-`Can Messi's locker surpass the record sale for a locker set by Kobe Bryant's? `\
-https://nytimes.com/athletic/6112452/2025/02/04/messi-ronaldo-lockers-barcelona-real-madrid/
 
