@@ -1,3 +1,7 @@
+**The Lives Cut Short by the D.C. Plane Crash**\
+`They were from all over — Kansas, Washington, D.C. and the surrounding area, and as far away as the Philippines.`\
+https://nytimes.com/interactive/2025/02/03/us/dc-plane-crash-victims.html
+
 **Corrections: Feb. 4, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 4, 2025.`\
 https://nytimes.com/2025/02/03/pageoneplus/corrections-feb-4-2025.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6110786/2025/02/03/roger-goodell-super-bowl-news-co
 **Why Scapegoating Works for Trump**\
 `It helps him explain away complex problems and pull a coalition together.`\
 https://nytimes.com/2025/02/03/us/politics/trump-blame-politics.html
-
-**Trump names a loyalist to be C.I.A. deputy director.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2025/02/03/us/trump-usaid-news/trump-names-a-loyalist-to-be-cia-deputy-director
 
