@@ -1,3 +1,11 @@
+**National League clubs write to EFL asking for third promotion spot to League Two**\
+`"Rick Parry has often said that ‘the EFL should look down as well as up’, so we’d now like that to happen,” said the National League chair.`\
+https://nytimes.com/athletic/6113114/2025/02/04/national-league-efl-3up-promotion/
+
+**Don & Elon’s Excellent Adventure? Only China Is Laughing.**\
+`The president’s impulsive tariffs are a symptom of a deeper challenge to U.S. manufacturing.`\
+https://nytimes.com/2025/02/04/opinion/trump-tariffs-china-evs.html
+
 **Treasury Defends Musk Team’s Access to Federal Payment System**\
 `The department said that no payments would be interrupted and that it was conducting a review of the integrity of the system.`\
 https://nytimes.com/2025/02/04/us/politics/elon-musk-federal-payments.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/us/tulsa-massacre-reparations.html
 **Collector Sues David Geffen to Reclaim a Sculpture Worth Millions**\
 `In court papers, the collector says an adviser, without authorization, schemed to sell a Giacometti sculpture he bought for $78 million to the entertainment mogul.`\
 https://nytimes.com/2025/02/04/arts/david-geffen-giacometti-sculpture.html
-
-**A little Hollywood flash helps Chiefs' offense heat up for the Super Bowl**\
-`How Andy Reid and company are coaching up their Super Bowl rookies, and a look at two Chiefs-Eagles battles in the trenches.`\
-https://nytimes.com/athletic/6113572/2025/02/04/chiefs-super-bowl-marquise-brown/
-
-**Why We (Still) Think the Grammys Are Good Now**\
-`Big wins for Beyoncé, Kendrick Lamar and Chappell Roan. Standout performances from Doechii and Sabrina Carpenter. A conversation about why the 2025 awards worked.`\
-https://nytimes.com/2025/02/04/arts/music/popcast-grammys.html
 
