@@ -1,3 +1,7 @@
+**‘Like a Horror Movie’: Gazans Return Home After Cease-Fire**\
+`Two young Gazans, Aya Ehab Zaid and Abed Alaziz Hunaif, embarked on a long journey to return to their homes after nearly 16 months of war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009942543/gaza-ceasefire-return-home.html
+
 **NBA trade deadline rewind: Breaking down 2024's moves, one year later**\
 `With the benefit of hindsight, let's examine the 2024 deadline and see how good, bad or unnecessary those moves really were.`\
 https://nytimes.com/athletic/6023718/2025/02/04/nba-trade-rewind-og-anunoby-pascal-siakam/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/arts/television/late-night-trump-trade-war.html
 **Inside Arsenal's transfer window: Arteta's Watkins enthusiasm, late Morata interest and Nypan talks**\
 `A late pivot to focus on the forward line led to an opportunistic attempt to sign Ollie Watkins and discussions over Alvaro Morata`\
 https://nytimes.com/athletic/6109947/2025/02/04/arsenal-transfer-window-watkins-morata-nypan/
-
-**Inside Man Utd's transfer window: Rashford wages ask, summer target, Tel fee, no Pogba talks**\
-`Why Manchester United let Rashford leave without signing attacking replacements and what their summer plans are now`\
-https://nytimes.com/athletic/6109872/2025/02/04/manchester-united-transfers-rashford-tel-pogba/
 

@@ -1,3 +1,7 @@
+**‘Like a Horror Movie’: Gazans Return Home After Cease-Fire**\
+`Two young Gazans, Aya Ehab Zaid and Abed Alaziz Hunaif, embarked on a long journey to return to their homes after nearly 16 months of war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009942543/gaza-ceasefire-return-home.html
+
 **NBA trade deadline rewind: Breaking down 2024's moves, one year later**\
 `With the benefit of hindsight, let's examine the 2024 deadline and see how good, bad or unnecessary those moves really were.`\
 https://nytimes.com/athletic/6023718/2025/02/04/nba-trade-rewind-og-anunoby-pascal-siakam/
