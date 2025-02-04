@@ -1,3 +1,7 @@
+**Late Night Weighs In on the ‘World’s Dumbest Trade War’**\
+`Jimmy Kimmel thinks President Trump decided not to impose tariffs on Mexico because he saw the guacamole bill for his Super Bowl party.`\
+https://nytimes.com/2025/02/04/arts/television/late-night-trump-trade-war.html
+
 **With the window shut and wantaway players out, Enzo Maresca can breathe easy**\
 `Maresca found disliked the distractions the transfer window brought but will be satisfied with the way Chelsea trimmed their squad`\
 https://nytimes.com/athletic/6111228/2025/02/04/chelsea-enzo-maresca-transfer-window-felix-chilwell/

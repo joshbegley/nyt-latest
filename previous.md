@@ -1,3 +1,7 @@
+**Late Night Weighs In on the ‘World’s Dumbest Trade War’**\
+`Jimmy Kimmel thinks President Trump decided not to impose tariffs on Mexico because he saw the guacamole bill for his Super Bowl party.`\
+https://nytimes.com/2025/02/04/arts/television/late-night-trump-trade-war.html
+
 **Inside Arsenal's transfer window: Arteta's Watkins enthusiasm, late Morata interest and Nypan talks**\
 `A late pivot to focus on the forward line led to an opportunistic attempt to sign Ollie Watkins and discussions over Alvaro Morata`\
 https://nytimes.com/athletic/6109947/2025/02/04/arsenal-transfer-window-watkins-morata-nypan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/el-salvador-prisons-marco-rubio.html
 **Shopping for Arms? Ukraine May Soon Be Your Best Bet.**\
 `The country should not be just a buyer of weapons but a supplier, thanks to its spirit of innovation.`\
 https://nytimes.com/2025/02/04/opinion/ukraine-russia-weapons-drones.html
-
-**Population Transfers Sanctioned by America? It’s on the Table.**\
-`President Trump’s plan for Palestinians is folly — and dangerous.`\
-https://nytimes.com/2025/02/04/opinion/israel-trump-netanyahu-gaza.html
 
