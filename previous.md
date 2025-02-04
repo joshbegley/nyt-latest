@@ -1,3 +1,19 @@
+**How Chloe Kelly's deadline day loan from City to Arsenal happened**\
+`Kelly returns to Arsenal after claiming City tried to "assassinate" her character. It is now time for her to prove she can bounce back`\
+https://nytimes.com/athletic/6107221/2025/02/04/chloe-kelly-arsenal-manchester-city-loan/
+
+**Where a Strongman Failed, Women Are Now Fueling a Democratic Revival**\
+`A leftist movement in Sri Lanka that took power after an economic collapse is seizing a rare opportunity to rally more women into politics.`\
+https://nytimes.com/2025/02/04/world/asia/sri-lanka-politics-women.html
+
+**Australia’s Top Conservative Follows Trump’s Playbook, Up to a Point**\
+`Peter Dutton, who wants to be prime minister, has been taking aim at “wokeness.” But Australia’s electorate isn’t America’s, and there are lines he won’t cross.`\
+https://nytimes.com/2025/02/04/world/australia/peter-dutton-australia-election-trump.html
+
+**Quote of the Day: G.O.P. Senator Who Pushes Back Says Dissent Will Make Trump Better**\
+`Quotation of the Day for Tuesday, February 4, 2025`\
+https://nytimes.com/2025/02/03/pageoneplus/quote-of-the-day-gop-senator-who-pushes-back-says-dissent-will-make-trump-better.html
+
 **Eagles Super Bowl media night: Brandon Graham slips, Kellen Moore on Saints**\
 `Plus, Jake Elliott addresses his struggles, and the Eagles receivers rise to the occasion.`\
 https://nytimes.com/athletic/6111347/2025/02/03/eagles-super-bowl-media-night-brandon-graham-kellen-moore/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6109606/2025/02/03/saints-emails-catholic-church-pr
 **Ryan Hartman suspended 10 games: What it means for him and the Wild**\
 `The winger had a hearing with the league after being assessed a match penalty for pushing Tim Stützle’s face into the ice after a faceoff.`\
 https://nytimes.com/athletic/6109851/2025/02/03/ryan-hartman-suspension-wild/
-
-**Eagles' Saquon Barkley to Giants fans: 'There is nothing but love'**\
-`Barkley spent his first six seasons with the Giants before signing a three-year contract with the Eagles in free agency in 2024.`\
-https://nytimes.com/athletic/6111346/2025/02/03/eagles-saquon-barkley-giants-fans-super-bowl/
-
-**Blue Feeling**\
-`Adam Aaronson gets us all turned around.`\
-https://nytimes.com/2025/02/03/crosswords/daily-puzzle-2025-02-04.html
-
-**What Does Trump Really Want From Canada and Mexico?**\
-`President Trump’s demands on the United States’ neighbors are difficult to measure. That allows him to declare victory when he sees fit.`\
-https://nytimes.com/2025/02/03/us/politics/trump-canada-mexico.html
-
-**The Lives Cut Short by the D.C. Plane Crash**\
-`They were from all over — Kansas, Washington, D.C. and the surrounding area, and as far away as the Philippines.`\
-https://nytimes.com/interactive/2025/02/03/us/dc-plane-crash-victims.html
 

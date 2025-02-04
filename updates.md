@@ -1,3 +1,19 @@
+**How Chloe Kelly's deadline day loan from City to Arsenal happened**\
+`Kelly returns to Arsenal after claiming City tried to "assassinate" her character. It is now time for her to prove she can bounce back`\
+https://nytimes.com/athletic/6107221/2025/02/04/chloe-kelly-arsenal-manchester-city-loan/
+
+**Where a Strongman Failed, Women Are Now Fueling a Democratic Revival**\
+`A leftist movement in Sri Lanka that took power after an economic collapse is seizing a rare opportunity to rally more women into politics.`\
+https://nytimes.com/2025/02/04/world/asia/sri-lanka-politics-women.html
+
+**Australia’s Top Conservative Follows Trump’s Playbook, Up to a Point**\
+`Peter Dutton, who wants to be prime minister, has been taking aim at “wokeness.” But Australia’s electorate isn’t America’s, and there are lines he won’t cross.`\
+https://nytimes.com/2025/02/04/world/australia/peter-dutton-australia-election-trump.html
+
+**Quote of the Day: G.O.P. Senator Who Pushes Back Says Dissent Will Make Trump Better**\
+`Quotation of the Day for Tuesday, February 4, 2025`\
+https://nytimes.com/2025/02/03/pageoneplus/quote-of-the-day-gop-senator-who-pushes-back-says-dissent-will-make-trump-better.html
+
 **Eagles Super Bowl media night: Brandon Graham slips, Kellen Moore on Saints**\
 `Plus, Jake Elliott addresses his struggles, and the Eagles receivers rise to the occasion.`\
 https://nytimes.com/athletic/6111347/2025/02/03/eagles-super-bowl-media-night-brandon-graham-kellen-moore/
