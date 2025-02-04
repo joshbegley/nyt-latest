@@ -1,3 +1,15 @@
+**Trump’s Attempt to Freeze Grant Funding Leaves Nonprofits Reeling**\
+`Some groups said their funding was still blocked, even after the freeze had been rescinded. Others saw their money reinstated but worried about future cuts.`\
+https://nytimes.com/2025/02/04/us/politics/grant-funding-freeze-nonprofits.html
+
+**Trump Restores ‘Maximum Pressure’ Campaign on Iran in Executive Order**\
+`The president used a visit from Israel’s prime minister as the moment to ramp up a campaign intended to persuade Iran to give up its nuclear campaign.`\
+https://nytimes.com/2025/02/04/us/politics/trump-iran-executive-order.html
+
+**NCAA’s $2.8 billion settlement faces objections before final approval**\
+`Schools and conferences are already moving on plans to implement revenue sharing, with some already starting to sign athletes to agreements.`\
+https://nytimes.com/athletic/6113424/2025/02/04/ncaa-settlement-house-revenue-sharing/
+
 **A Fitting Dress Code for the 2025 Met Gala: ‘Tailored for You’**\
 `The Metropolitan Museum of Art also announced a new batch of co-hosts for its splashy fashion fund-raiser including Simone Biles, Ayo Edebiri, Usher and Doechii.`\
 https://nytimes.com/2025/02/04/style/met-gala-dress-code-dandyism.html
