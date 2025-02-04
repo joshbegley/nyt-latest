@@ -1,3 +1,7 @@
+**What to Expect From the Rain in California**\
+`Powerful storms this week are elevating the risk of flooding from San Francisco to the north and bringing rain to areas burned by last month’s wildfires around Los Angeles.`\
+https://nytimes.com/2025/02/04/weather/los-angeles-rain-california-san-francisco.html
+
 **We still don't know who didn't vote for Ichiro after BBWAA releases ballots**\
 `A total of 394 voters submitted their ballots. Of those, 321 were made public Tuesday. But the Ichiro dissenter's ballot wasn't one of them.`\
 https://nytimes.com/athletic/6112460/2025/02/04/ichiro-suzuki-vote-mlb-baseball-hall-of-fame/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/04/us/politics/guantanamo-sept-11-trial-confession.h
 **NBA Power Rankings: Trades shaking the league like a Polaroid picture**\
 `The Thunder and Cavs remain on top, but who knows what the Association's pecking order will look like after Thursday?`\
 https://nytimes.com/athletic/6111975/2025/02/04/nba-power-rankings-grizzlies-mavericks-lakers-knicks/
-
-**Xfinity ending title sponsorship of NASCAR's second-tier series**\
-`Xfinity has served as the entitlement sponsor for the Xfinity Series since 2015.`\
-https://nytimes.com/athletic/6112249/2025/02/04/nascar-xfinity-sponsorship-change/
 
