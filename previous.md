@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-
 
 **F.B.I. agents involved in Jan. 6 cases are asking a court to bar the Trump team from disclosing their identities.**\
 `By Charlie Savage`\
-https://nytimes.com/live/2025/02/04/us/trump-administration-rfk-jr-gabbard/fbi-agents-involved-in-jan-6-cases-are-asking-a-court-to-bar-the-trump-team-from-disclosing-their-identities
+https://nytimes.com/2025/02/04/us/politics/fbi-agents-involved-in-jan-6-cases-are-asking-a-court-to-bar-the-trump-team-from-disclosing-their-identities.html
 
 **Astros to retire Billy Wagner's No. 13**\
 `Wagner's number will be retired during a series against the Baltimore Orioles from Aug. 15-17.`\

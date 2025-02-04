@@ -1,3 +1,7 @@
+**F.B.I. agents involved in Jan. 6 cases are asking a court to bar the Trump team from disclosing their identities.**\
+`By Charlie Savage`\
+https://nytimes.com/2025/02/04/us/politics/fbi-agents-involved-in-jan-6-cases-are-asking-a-court-to-bar-the-trump-team-from-disclosing-their-identities.html
+
 **Spain coach De la Fuente testifies on second day of Rubiales trial**\
 `De la Fuente gave testimony on the second day of Rubiales' trial for the alleged sexual assault and coercion of Jenni Hermoso`\
 https://nytimes.com/athletic/6112756/2025/02/04/luis-de-la-fuente-luis-rubiales-trial/
