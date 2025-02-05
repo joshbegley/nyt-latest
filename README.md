@@ -1,3 +1,15 @@
+**Colin Cowherd signs Nick Wright's podcast away from Fox Sports**\
+`Cowherd and Wright are the two biggest draws on Fox Sports’ cable channel, FS1, and will continue to do their weekday shows on TV.`\
+https://nytimes.com/athletic/6115443/2025/02/05/colin-cowherd-nick-wright-podcast-deal/
+
+**Puzzle Mania Super Mega Crossword Answers**\
+`Here are the answers to the 50 x 50 Super Mega Crossword.`\
+https://nytimes.com/interactive/2025/02/05/crosswords/answer-key-super-mega.html
+
+**Manhunt in Brussels After Masked Men Open Fire Outside Metro Station**\
+`The authorities said no injuries had been reported, but two metro stations were closed on Wednesday after the shooting.`\
+https://nytimes.com/2025/02/05/world/europe/brussels-metro-shooting-belgium.html
+
 **Trump Proposal Puts Egypt and Jordan in an Impossible Position**\
 `The countries are among the top recipients of American military aid, but forcing Palestinians out of their remaining territory could destabilize the entire region.`\
 https://nytimes.com/2025/02/05/world/middleeast/egypt-jordan-gaza-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/us/covid-pandemic-changes.html
 **‘It Was My School’: Sweden Shooting Site Was at Heart of a Diverse Community**\
 `One day after the killings at an adult educational center, some gathered to lay flowers and come to grips with the violence.`\
 https://nytimes.com/2025/02/05/world/europe/sweden-mass-shooting-community.html
-
-**What the Black Hawk Pilots Could See, Just Before the Crash**\
-`A 3-D model created by The Times visualizes the helicopter pilots’ field of view minutes before a fatal crash with a jet in Washington.`\
-https://nytimes.com/interactive/2025/02/05/us/dc-crash-helicopter-black-hawk-pilots.html
-
-**Super Bowl Gatorade shower odds, predictions: Purple going for a 3-peat just like the Chiefs**\
-`The Chiefs are going for a 3-peat in the Super Bowl, but so is purple as the color for the Gatorade shower for the winning coach.`\
-https://nytimes.com/athletic/6110668/2025/02/05/super-bowl-gatorade-shower-odds-predictions/
-
-**A.F.L.-C.I.O. Pushes Back on Elon Musk’s Campaign Against Federal Workers**\
-`The campaign by the nation’s largest federation of unions is called the Department of People Who Work for a Living, a play on Mr. Musk’s Department of Government Efficiency.`\
-https://nytimes.com/2025/02/05/us/politics/afl-cio-federal-workers-musk-doge.html
 
