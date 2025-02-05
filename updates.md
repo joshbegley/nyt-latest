@@ -1,3 +1,11 @@
+**Thursday Briefing: An Uproar Over Trump’s Gaza Plan**\
+`Plus, drink (and sleep) in a British pub.`\
+https://nytimes.com/2025/02/05/briefing/trump-gaza-goma-deaths-nissan-honda.html
+
+**Paul Plishka, Prolific Soloist at the Met, Dies at 83**\
+`Known for his liquid bass tones and flawless diction, he appeared in 88 roles, many of them comic, over 1,672 performances at the Metropolitan Opera.`\
+https://nytimes.com/2025/02/05/arts/music/paul-plishka-dead.html
+
 **100,000 Eggs Are Stolen in Pennsylvania Amid Shortage**\
 `The theft of the eggs, which the authorities said were worth $40,000, comes as grocery shoppers across the country are facing empty shelves and higher prices for eggs.`\
 https://nytimes.com/2025/02/05/us/eggs-stolen-pennsylvania-shortage.html
