@@ -1,3 +1,11 @@
+**Braves spring guide: 28 notes for 28 pitchers, from Anderson to Strider to Waldrep**\
+`How close Strider gets to his previous dominant form could go a long way toward determining the Braves’ fortunes.`\
+https://nytimes.com/athletic/6111935/2025/02/05/braves-spring-guide-28-notes-for-28-pitchers-from-anderson-to-strider-to-waldrep/
+
+**Mets spring guide: 36 thoughts for 36 pitchers, from Adcock to Manaea to Zuber**\
+`The Mets' thrived last year behind some unexpected pitching contributions. Which hurlers could surprise in 2025?`\
+https://nytimes.com/athletic/6113834/2025/02/05/mets-spring-guide-36-thoughts-for-36-pitchers-from-adcock-to-manaea-to-zuber/
+
 **Slot happy with Liverpool squad depth after no January transfer signings**\
 `Trent Alexander-Arnold, who has a minor thigh problem, is the only Liverpool player currently unavailable.`\
 https://nytimes.com/athletic/6114854/2025/02/05/arne-slot-liverpool-transfer-news-signings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6101457/2025/02/05/cowboys-unrestricted-free-agents
 **What I’m seeing: Nylander’s Rocket chances, Rielly's aggression**\
 `Nylander’s second career hat trick in Calgary on Tuesday nudged him up to 33 goals on the year — in only 53 games.`\
 https://nytimes.com/athletic/6114685/2025/02/05/william-nylanders-rocket-chances-morgan-rielly/
-
-**Trump’s Actions Are Defying Legal Limits**\
-`See examples of actions by President Trump and his administration that appear to constitute legal violations.`\
-https://nytimes.com/interactive/2025/02/05/us/trump-agenda-defying-law.html
-
-**A Super Bowl Preview, Minus the Football**\
-`A look at the musical acts, the famous fans, the commercials and all of the other things surrounding the N.F.L.’s signature event.`\
-https://nytimes.com/2025/02/05/style/super-bowl-watch-music-ads.html
 
