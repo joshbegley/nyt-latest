@@ -1,6 +1,14 @@
-**Elon Musk says his efficiency team will tackle F.A.A. technology.**\
+**Browns' Myles Garrett gives first interview since announcing trade request**\
+`Garrett acknowledged that "it's always for me been about contending for championships ... and that's all I'm asking for."`\
+https://nytimes.com/athletic/6116575/2025/02/05/myles-garrett-cleveland-browns-trade-request-interview/
+
+**Martinelli set for scan on suspected hamstring injury**\
+`The 23-year-old forward was forced off in the 37th minute at St James' Park after going down clutching the back of his thigh.`\
+https://nytimes.com/athletic/6116865/2025/02/05/gabriel-martinelli-arsenal-injury-update/
+
+**Elon Musk Says His Efficiency Team Will Tackle F.A.A. Technology**\
 `His announcement comes after an outage last week to a the primary system that provides pilots safety alerts in real time.`\
-https://nytimes.com/live/2025/02/05/us/trump-news/elon-musk-doge-faa
+https://nytimes.com/2025/02/05/us/politics/elon-musk-doge-faa.html
 
 **Schumer Urged Democrats to Oppose Trump Nominees in Protest of His Policies**\
 `The Senate minority leader had initially said he would not lean on his colleagues to reflexively oppose every nominee, but changed his stance after the president’s actions generated heavy pressure from the left.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/technology/google-diversity-goals-dei-trump.html
 **Japan Airlines Plane Clips Delta Plane at Seattle-Tacoma Airport**\
 `No one was injured, but a passenger on one of the planes described “violent shaking” and a “really loud crunching sound.”`\
 https://nytimes.com/2025/02/05/us/delta-japan-airlines-collision-seattle-airport.html
-
-**Milan-Cortina Winter Olympics 'about taking the sport to its people' - Team GB chief**\
-`The curling gold medalists believes the 2026 Games will be a mix of the Winter Olympics' past and future. `\
-https://nytimes.com/athletic/6116495/2025/02/05/milan-cortina-winter-olympics-eve-muirhead/
-
-**Postecoglou on Tel signing: 'I didn't bring him here for six months'**\
-`Tel joined Spurs from Bayern Munich on loan with a €55m option to buy on deadline day.`\
-https://nytimes.com/athletic/6115503/2025/02/05/mathys-tel-tottenham-future-postecoglou/
 

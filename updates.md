@@ -1,3 +1,15 @@
+**Browns' Myles Garrett gives first interview since announcing trade request**\
+`Garrett acknowledged that "it's always for me been about contending for championships ... and that's all I'm asking for."`\
+https://nytimes.com/athletic/6116575/2025/02/05/myles-garrett-cleveland-browns-trade-request-interview/
+
+**Martinelli set for scan on suspected hamstring injury**\
+`The 23-year-old forward was forced off in the 37th minute at St James' Park after going down clutching the back of his thigh.`\
+https://nytimes.com/athletic/6116865/2025/02/05/gabriel-martinelli-arsenal-injury-update/
+
+**Elon Musk Says His Efficiency Team Will Tackle F.A.A. Technology**\
+`His announcement comes after an outage last week to a the primary system that provides pilots safety alerts in real time.`\
+https://nytimes.com/2025/02/05/us/politics/elon-musk-doge-faa.html
+
 **Elon Musk says his efficiency team will tackle F.A.A. technology.**\
 `His announcement comes after an outage last week to a the primary system that provides pilots safety alerts in real time.`\
 https://nytimes.com/live/2025/02/05/us/trump-news/elon-musk-doge-faa
