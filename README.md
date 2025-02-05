@@ -1,3 +1,7 @@
+**Several Injured in Shooting at Warehouse in Central Ohio**\
+`The suspect in the shooting in New Albany, near Columbus, was no longer in the area and several were hospitalized, the authorities said.`\
+https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
+
 **With Nick Leddy back, will Blues move any veteran defensemen before the NHL trade deadline?**\
 `Leddy, Ryan Suter and Justin Faulk are all possibilities to be traded if the Blues think they're out of the playoff mix. `\
 https://nytimes.com/athletic/6114303/2025/02/05/nick-leddy-back-blues-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112176/2025/02/05/liverpool-injuries-prevention/
 **'Dreamer' Diego Leon is Manchester United's new, raw, daring left-back**\
 `"I invite you to dream. I'm a dreamer, too," Diego Leon says of his incredible rise that has now taken him to Manchester United`\
 https://nytimes.com/athletic/6009562/2025/02/05/manchester-united-diego-leon-who-is-he/
-
-**Chelsea's winter window highlighted issues with summer 2024, and aims for summer 2025**\
-`It will be Chelsea’s most important signings of 2023, rather than 2024, who will determine the outcome of Maresca’s push for the top four`\
-https://nytimes.com/athletic/6113906/2025/02/05/chelseas-winter-window-highlighted-issues-with-summer-2024-and-aims-for-summer-2025/
 
