@@ -1,3 +1,7 @@
+**Beating Death of Shackled N.Y. Inmate Is Ruled a Homicide, Governor Says**\
+`Gov. Kathy Hochul of New York said the autopsy results in the death of Robert Brooks, who was beaten by prison guards, should prompt the swift filing of criminal charges.`\
+https://nytimes.com/2025/02/05/nyregion/robert-brooks-homicide-ruling.html
+
 **My Farewell Column**\
 `Growing into myself as a writer — and doing it in front of and for all of you — has been one of the great honors of my life.`\
 https://nytimes.com/2025/02/05/opinion/writing-journalism-coming-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-protests-50501-project-2025.htm
 **Jonas Valančiūnas trade grades: Kings make waves in limited big-man market**\
 `Sacramento already sent its point guard to San Antonio; now it's shoring up its frontcourt. But is it needed?`\
 https://nytimes.com/athletic/6116782/2025/02/05/jonas-valanciunas-trade-grades-kings/
-
-**Browns' Myles Garrett gives first interview since announcing trade request**\
-`Garrett acknowledged that "it's always for me been about contending for championships ... and that's all I'm asking for."`\
-https://nytimes.com/athletic/6116575/2025/02/05/myles-garrett-cleveland-browns-trade-request-interview/
 

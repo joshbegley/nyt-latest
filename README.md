@@ -1,3 +1,7 @@
+**Kings to acquire Jonas Valančiūnas from Wizards for 2028, 2029 draft picks**\
+`Valančiūnas, 32, brings Sacramento plenty of rim protection rebounding and the ability to stretch the floor.`\
+https://nytimes.com/athletic/6117030/2025/02/05/kings-wizards-jonas-valanciunas-nba-trade/
+
 **Beating Death of Shackled N.Y. Inmate Is Ruled a Homicide, Governor Says**\
 `Gov. Kathy Hochul of New York said the autopsy results in the death of Robert Brooks, who was beaten by prison guards, should prompt the swift filing of criminal charges.`\
 https://nytimes.com/2025/02/05/nyregion/robert-brooks-homicide-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6116980/2025/02/05/joelinton-injury-update-newcastl
 **Thousands Protest Trump Policies Across the U.S.**\
 `In a grass-roots effort to kick off a national movement, organizers encouraged those opposed to President Trump’s actions on immigration, transgender rights and more to gather at state capitals and city halls.`\
 https://nytimes.com/2025/02/05/us/politics/trump-protests-50501-project-2025.html
-
-**Jonas Valančiūnas trade grades: Kings make waves in limited big-man market**\
-`Sacramento already sent its point guard to San Antonio; now it's shoring up its frontcourt. But is it needed?`\
-https://nytimes.com/athletic/6116782/2025/02/05/jonas-valanciunas-trade-grades-kings/
 

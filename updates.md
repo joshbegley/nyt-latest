@@ -1,3 +1,7 @@
+**Beating Death of Shackled N.Y. Inmate Is Ruled a Homicide, Governor Says**\
+`Gov. Kathy Hochul of New York said the autopsy results in the death of Robert Brooks, who was beaten by prison guards, should prompt the swift filing of criminal charges.`\
+https://nytimes.com/2025/02/05/nyregion/robert-brooks-homicide-ruling.html
+
 **My Farewell Column**\
 `Growing into myself as a writer — and doing it in front of and for all of you — has been one of the great honors of my life.`\
 https://nytimes.com/2025/02/05/opinion/writing-journalism-coming-out.html
