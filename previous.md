@@ -1,3 +1,15 @@
+**Pro-Trump Media Sees Nothing but ‘Winning’**\
+`Among an array of right-wing personalities and media outlets, the president can do no wrong.`\
+https://nytimes.com/2025/02/05/technology/trump-media-right-wing.html
+
+**A Composer Turns Down the Tempo, and Turns Up the Complexity**\
+`Lisa Streich, an artist on the rise who has found success in Europe, is having a rare American showcase this week in New York.`\
+https://nytimes.com/2025/02/05/arts/music/lisa-streich-music.html
+
+**The Next Aga Khan Is Named**\
+`Prince Rahim, the new leader of the Ismaili Muslims, was named as the successor of his father, who died at 88.`\
+https://nytimes.com/2025/02/05/world/europe/prince-rahim-aga-khan-ismaili-muslims.html
+
 **Premier League 'would deal with' goal celebrations that 'cross into mockery or criticism'**\
 `Everton’s Iliman Ndiaye received a yellow card for his 'seagull' celebration against Brighton on January 25.`\
 https://nytimes.com/athletic/6115567/2025/02/05/premier-league-referee-celebrations/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/world/europe/rudakubana-program-report.html
 **Novo Nordisk Annual Sales Jump on Higher Demand for Obesity Drugs**\
 `The Danish maker of Ozempic and Wegovy reported a 25 percent increase in sales to $40.6 billion, but said it expected slower growth this year.`\
 https://nytimes.com/2025/02/05/business/novo-nordisk-earnings-ozempic-wegovy.html
-
-**Trump’s Plan for the Cartels Isn’t Tough Enough**\
-`Trump misunderstands the cartels. His plan to take them on is not tough enough.`\
-https://nytimes.com/2025/02/05/opinion/trump-sheinbaum-cartels-mexico.html
-
-**Bands, fireworks, cannons: What we know about the Blue Jackets' outdoor game**\
-`The stadium entrance figures to be a highlight when the Blue Jackets play the Red Wings at Ohio Stadium.`\
-https://nytimes.com/athletic/6113532/2025/02/05/blue-jackets-outdoor-ohio-stadium/
-
-**My Father Was a Conservative Evangelical Pastor. Then I Came Out.**\
-`How did my dad go from hating homosexuality to imploding his church by embracing me? His journal entries show how he changed his mind.`\
-https://nytimes.com/interactive/2025/02/05/opinion/coming-out-evangelical-pastor.html
 
