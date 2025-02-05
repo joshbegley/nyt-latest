@@ -1,3 +1,7 @@
+**Daniel Penny Is Hired by Venture Capital Firm Whose Founder Backed Trump**\
+`Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, will work for Andreessen Horowitz. Before the killing, he had been an architecture student.`\
+https://nytimes.com/2025/02/04/nyregion/daniel-penny-hired-andreessen-horowitz.html
+
 **Prosecutors Charge Man Said to Be Tied to Robbery of N.F.L. Quarterback**\
 `The home of Joe Burrow of the Cincinnati Bengals was burglarized in December. The authorities said a man detained in Manhattan was part of a related fencing operation.`\
 https://nytimes.com/2025/02/04/nyregion/joe-burrow-home-burglary-charges.html
