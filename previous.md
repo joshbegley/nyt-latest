@@ -1,3 +1,15 @@
+**Harry Stewart Jr. Dies at 100; One of Last Tuskegee Airmen to See Combat**\
+`His boyhood dream to be an adventurous pilot was fulfilled thanks to World War II. But, as a civilian, racial prejudice kept him out of the cockpit.`\
+https://nytimes.com/2025/02/05/us/harry-stewart-jr-dead.html
+
+**How YouTube Is Changing American Gun Culture**\
+`Influencers known as guntubers are delving into the world of firearms, showing viewers everything from how to shoot to how to modify an AR-15.`\
+https://nytimes.com/2025/02/05/us/gun-youtube-firearm-videos.html
+
+**Stephen Petronio Is Disbanding His Dance Company**\
+`The company, founded in 1984, has struggled with finances since the pandemic.`\
+https://nytimes.com/2025/02/05/arts/dance/stephen-petronio-dance-company-disbanding.html
+
 **Pro-Trump Media Sees Nothing but ‘Winning’**\
 `Among an array of right-wing personalities and media outlets, the president can do no wrong.`\
 https://nytimes.com/2025/02/05/technology/trump-media-right-wing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/sports/horse-racing/shergar-horse-kidnapping-aga-
 **Judge Blocks Trump’s Birthright Citizenship Order Nationwide**\
 `The nationwide injunction, from a Maryland case, is more permanent than last month's restraining order from a judge in Seattle.`\
 https://nytimes.com/2025/02/05/us/trump-birthright-citizenship.html
-
-**'My confidence right now is high': Bulls rookie Matas Buzelis looks to build on perfect night**\
-`As the Bulls face an uphill battle with a rebuild, Buzelis provided a glimmer of hope at the United Center on Tuesday night.`\
-https://nytimes.com/athletic/6115078/2025/02/05/matas-buzelis-bulls-heat/
-
-**U.K. Counterterror Program Prematurely Closed Case on Teen Killer, Report Says**\
-`Axel Rudakubana, who murdered three girls in a stabbing spree last year, had been referred to Britain’s counterterror program, Prevent, three times before his attack last July.`\
-https://nytimes.com/2025/02/05/world/europe/rudakubana-program-report.html
-
-**Novo Nordisk Annual Sales Jump on Higher Demand for Obesity Drugs**\
-`The Danish maker of Ozempic and Wegovy reported a 25 percent increase in sales to $40.6 billion, but said it expected slower growth this year.`\
-https://nytimes.com/2025/02/05/business/novo-nordisk-earnings-ozempic-wegovy.html
 
