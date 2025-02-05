@@ -1,3 +1,11 @@
+**Trump Proposes a U.S. Takeover of Gaza**\
+`President Trump suggested on Tuesday that the United States take over Gaza and that all Palestinians there — some two million people — should leave.`\
+https://nytimes.com/video/us/politics/100000009970495/us-gaza-takeover-trump.html
+
+**A Legal Counteroffensive to Beat Back Trump’s Government Purges**\
+`A raft of new lawsuits contend that President Trump and Elon Musk are breaking the law to ransack the F.B.I. and other federal agencies. The courts will now decide.`\
+https://nytimes.com/2025/02/04/us/doge-lawsuits-trump-elon-musk.html
+
 **Trump Signs Executive Order Calling for Review of U.S. Funding and Ties to U.N.**\
 `The move cast uncertainty on the leadership role of the United States in the global body. The president also withdrew from the U.N.’s Human Rights Council and stopped funding UNRWA.`\
 https://nytimes.com/2025/02/04/us/politics/trump-united-nations-unrwa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/opinion/trump-tariffs-china-evs.html
 **Treasury Defends Musk Team’s Access to Federal Payment System**\
 `The department said that no payments would be interrupted and that it was conducting a review of the integrity of the system.`\
 https://nytimes.com/2025/02/04/us/politics/elon-musk-federal-payments.html
-
-**Drug Similar to Ozempic Failed to Treat Parkinson’s Disease in a Trial**\
-`The study may suggest that other researchers should be less optimistic about the prospects for treating a range of other conditions with newer weight-loss drugs.`\
-https://nytimes.com/2025/02/04/health/parkinsons-disease-exenatide-byetta.html
-
-**Who's in on Kevin Durant? What we're hearing as trade deadline nears**\
-`Yes, the Warriors are trying to find a way to land the 36-year-old superstar, but they aren't alone.`\
-https://nytimes.com/athletic/6113665/2025/02/04/kevin-durant-trade-rumors-suns-warriors-nba/
 
