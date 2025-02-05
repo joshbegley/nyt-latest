@@ -43,6 +43,11 @@ https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-t
 `\
 https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
 
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
+
 **Cardinals spring guide: 33 thoughts for 33 pitchers, from Bedell to Pallante to Thompson**\
 `Several prospects are on the rise and the Cardinals are about to find out which ones are ready for the big-league fire.`\
 https://nytimes.com/athletic/6113528/2025/02/05/cardinals-spring-training-pitchers/
