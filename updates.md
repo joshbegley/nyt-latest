@@ -1,3 +1,11 @@
+**Braves spring guide: 28 notes for 28 pitchers, from Anderson to Strider to Waldrep**\
+`How close Strider gets to his previous dominant form could go a long way toward determining the Braves’ fortunes.`\
+https://nytimes.com/athletic/6111935/2025/02/05/braves-spring-guide-28-notes-for-28-pitchers-from-anderson-to-strider-to-waldrep/
+
+**Mets spring guide: 36 thoughts for 36 pitchers, from Adcock to Manaea to Zuber**\
+`The Mets' thrived last year behind some unexpected pitching contributions. Which hurlers could surprise in 2025?`\
+https://nytimes.com/athletic/6113834/2025/02/05/mets-spring-guide-36-thoughts-for-36-pitchers-from-adcock-to-manaea-to-zuber/
+
 **Slot happy with Liverpool squad depth after no January transfer signings**\
 `Trent Alexander-Arnold, who has a minor thigh problem, is the only Liverpool player currently unavailable.`\
 https://nytimes.com/athletic/6114854/2025/02/05/arne-slot-liverpool-transfer-news-signings/
