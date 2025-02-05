@@ -1,3 +1,19 @@
+**Van de Ven to miss Carabao Cup tie against Liverpool with injury**\
+`Postecoglou confirmed centre-back is out, but new signings Kevin Danso and Mathys Tel are available.`\
+https://nytimes.com/athletic/6111856/2025/02/05/micky-van-de-ven-injury-spurs/
+
+**25 Years Ago, Joan Didion Kept a Diary. It’s About to Become Public.**\
+`The notes, taken after meetings with her psychiatrist, will be published in April as a book, “Notes to John.” They provide a raw account of her life, her work and her complex relationship with her daughter.`\
+https://nytimes.com/2025/02/05/books/new-book-joan-didion-notes-to-john.html
+
+**My Toddler Son Likes to Wear Dresses. Can He Wear One to My Sister’s Wedding?**\
+`A mother wants to respect her 2½-year-old’s preference for dressing like his older sister, but she worries that letting him do so would bother the bridal couple.`\
+https://nytimes.com/2025/02/05/style/toddler-gender-specific-clothing.html
+
+**LeBron James talks Luka Dončić-Anthony Davis trade: 'I ain’t never seen this one'**\
+`"I'm committed to the Lakers," James said after a win over the Clippers. "It's my job to make it as seamless as possible."`\
+https://nytimes.com/athletic/6114836/2025/02/05/lebron-james-luka-doncic-anthony-davis-trade/
+
 **Could the Trade Fight Take a Bite Out of Apple?**\
 `A news report says that Beijing is weighing an inquiry into the iPhone maker, underscoring Chinas options in fighting against President Trump’s tariff threat.`\
 https://nytimes.com/2025/02/05/business/dealbook/apple-trump-china-trade-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6112358/2025/02/05/athletic-fc-podcast-nwaneri-lewi
 **Dodgers spring guide: 41 thoughts for 41 pitchers, from Banda to Sasaki to Yates**\
 `From high-priced stars to Rule 5 draft picks, the Dodgers assembled a deep staff after learning there's no such thing as too many pitchers. `\
 https://nytimes.com/athletic/6110072/2025/02/05/dodgers-spring-training-pitching/
-
-**Super Bowl national anthem betting: How long will Jon Batiste sing?**\
-`The New Orleans native should bring rich musicality and innovation to the anthem. The over-under is set at 120.5 seconds.`\
-https://nytimes.com/athletic/6103181/2025/02/05/super-bowl-national-anthem-betting-jon-batiste/
-
-**Angels spring guide: 35 thoughts for 35 pitchers heading to camp**\
-`Facts about every Angels pitcher heading to Arizona, including new arrivals Yusei Kikuchi and Kyle Hendricks.`\
-https://nytimes.com/athletic/6110286/2025/02/05/angels-spring-training-pitchers-guide/
-
-**Trump’s Gaza Takeover Would Violate International Law, Experts Say**\
-`Forcing Palestinians to leave the enclave would be “a straightforward crime against humanity,” an Oxford professor said. It would be a further violation to take over the territory.`\
-https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-takeover-illegal.html
-
-**Trump’s Gaza Plan Is Unworkable, Analysts Say. Does He Really Mean It?**\
-`President Trump’s proposal to transfer millions of people out of Gaza was hailed by the Israeli right and condemned by Palestinians. Some experts say it may be a negotiating tactic.`\
-https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-plan.html
 
