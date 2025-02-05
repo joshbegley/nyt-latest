@@ -1,3 +1,7 @@
+**Mirroring Trump, Milei Pulls Argentina From W.H.O.**\
+`President Javier Milei has sought to align Argentina with President Trump, even if it means breaking with previous allies and partners.`\
+https://nytimes.com/2025/02/05/world/americas/argentina-who-withdrawal-trump.html
+
 **The Blue Devils Made Me Do It**\
 `What I learned at my first-ever Duke-U.N.C. basketball game.`\
 https://nytimes.com/2025/02/05/opinion/blue-devils-tar-heels.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114924/2025/02/05/athletic-football-show-eagles-su
 **Tiny Love Stories: ‘A Mini Breakdown in a Walmart Bathroom’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/02/05/style/tiny-modern-love-stories-a-mini-breakdown-in-a-walmart-bathroom.html
-
-**Wild claim veteran forward Vinnie Hinostroza off waivers from Nashville: Why?**\
-`Vinnie Hinostroza, a veteran winger who has played 387 games over 10 NHL seasons, was claimed from the Nashville Predators.`\
-https://nytimes.com/athletic/6116309/2025/02/05/wild-vinnie-hinostroza-waivers/
 

@@ -1,3 +1,7 @@
+**Mirroring Trump, Milei Pulls Argentina From W.H.O.**\
+`President Javier Milei has sought to align Argentina with President Trump, even if it means breaking with previous allies and partners.`\
+https://nytimes.com/2025/02/05/world/americas/argentina-who-withdrawal-trump.html
+
 **The Blue Devils Made Me Do It**\
 `What I learned at my first-ever Duke-U.N.C. basketball game.`\
 https://nytimes.com/2025/02/05/opinion/blue-devils-tar-heels.html
