@@ -1,3 +1,7 @@
+**Slot happy with Liverpool squad depth after no January transfer signings**\
+`Trent Alexander-Arnold, who has a minor thigh problem, is the only Liverpool player currently unavailable.`\
+https://nytimes.com/athletic/6114854/2025/02/05/arne-slot-liverpool-transfer-news-signings/
+
 **Philippines’ Vice President Is Impeached, Deepening Political Turmoil**\
 `A conviction would hamper the political ambitions of Sara Duterte, who has said that she would like to succeed President Ferdinand R. Marcos Jr.`\
 https://nytimes.com/2025/02/05/world/asia/philippines-vice-president-duterte-impeached.html
