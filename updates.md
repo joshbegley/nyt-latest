@@ -1,3 +1,11 @@
+**Could the Trade Fight Take a Bite Out of Apple?**\
+`A news report says that Beijing is weighing an inquiry into the iPhone maker, underscoring Chinas options in fighting against President Trump’s tariff threat.`\
+https://nytimes.com/2025/02/05/business/dealbook/apple-trump-china-trade-tariffs.html
+
+**'Hard to comprehend': Eagles' defensive rookie duo on surreal journey to Super Bowl**\
+`The Eagles couldn't believe they ended up with Quinyon Mitchell and Cooper DeJean in the draft.`\
+https://nytimes.com/athletic/6112438/2025/02/05/eagles-superbowl-rookies-quinyon-mitchell-cooper-dejean/
+
 **Trump’s Gaza proposal comes as Israel and Hamas prepare to hold more cease-fire talks.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trumps-gaza-proposal-comes-as-israel-and-hamas-prepare-to-hold-more-cease-fire-talks

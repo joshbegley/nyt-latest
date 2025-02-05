@@ -1,3 +1,11 @@
+**Could the Trade Fight Take a Bite Out of Apple?**\
+`A news report says that Beijing is weighing an inquiry into the iPhone maker, underscoring Chinas options in fighting against President Trump’s tariff threat.`\
+https://nytimes.com/2025/02/05/business/dealbook/apple-trump-china-trade-tariffs.html
+
+**'Hard to comprehend': Eagles' defensive rookie duo on surreal journey to Super Bowl**\
+`The Eagles couldn't believe they ended up with Quinyon Mitchell and Cooper DeJean in the draft.`\
+https://nytimes.com/athletic/6112438/2025/02/05/eagles-superbowl-rookies-quinyon-mitchell-cooper-dejean/
+
 **Trump’s Gaza proposal comes as Israel and Hamas prepare to hold more cease-fire talks.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trumps-gaza-proposal-comes-as-israel-and-hamas-prepare-to-hold-more-cease-fire-talks
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-takeover-illegal.html
 **Trump’s Gaza Plan Is Unworkable, Analysts Say. Does He Really Mean It?**\
 `President Trump’s proposal to transfer millions of people out of Gaza was hailed by the Israeli right and condemned by Palestinians. Some experts say it may be a negotiating tactic.`\
 https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-plan.html
-
-**Honda and Nissan Merger Talks in Peril**\
-`Two of Japan’s largest automakers have been in talks to combine their operations to form one of the world’s biggest car groups.`\
-https://nytimes.com/2025/02/05/business/honda-nissan-merger.html
-
-**New York Times Reports 350,000 Additional Digital Subscribers**\
-`Adjusted operating profit for the fourth quarter increased 10.7 percent from a year earlier, to $170.5 million, the company said.`\
-https://nytimes.com/2025/02/05/business/media/new-york-times-q4-2024-earnings.html
 
