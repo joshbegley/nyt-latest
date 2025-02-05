@@ -1,3 +1,11 @@
+**‘You want to deflate the other team’: A Swayman shutout signals a playoff path**\
+`Jeremy Swayman and Matt Poitras kept the momentum rolling for the Bruins in a 3-0 win.`\
+https://nytimes.com/athletic/6114450/2025/02/04/bruins-jeremy-swayman-shutout-poitras-wild/
+
+**Trump’s Proposal to ‘Take Over’ Gaza Sparks Immediate Rebukes**\
+`President Trump’s suggestion was denounced in the Middle East, Washington and beyond.`\
+https://nytimes.com/2025/02/04/world/middleeast/trump-gaza-take-over-reactions.html
+
 **Judge Blocks Trump Effort to Move Trans Women to Men’s Prisons**\
 `A temporary restraining order blocked the administration from transferring transgender women and from ending gender-transition treatment for prisoners.`\
 https://nytimes.com/2025/02/04/us/trans-women-prisons-executive-order-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/learning/will-you-be-watching-super-bowl-lix.html
 **Favorite Sports Team**\
 `Who is yours?`\
 https://nytimes.com/2025/02/04/learning/favorite-sports-team.html
-
-**Trump Says He Would Jail Americans in El Salvador ‘in a Heartbeat’**\
-`The proposal is almost certainly illegal, experts said, but President Trump’s eagerness to entertain it showed his willingness to embrace extreme measures to demonstrate he is tough on crime.`\
-https://nytimes.com/2025/02/04/us/politics/trump-el-salvador-americans-jail.html
-
-**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
-`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
-https://nytimes.com/athletic/6083468/2025/02/04/ovechkin-goals-record-wayne-gretzky-stats/
 
