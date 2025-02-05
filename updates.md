@@ -1,3 +1,7 @@
+**Levy and Lange's late rush to give Postecoglou's Spurs squad the 'help' they needed**\
+`Tottenham coach Ange Postecoglou made it clear his squad needed strengthening in the winter window — he certainly had to be patient...`\
+https://nytimes.com/athletic/6112448/2025/02/05/tottenham-transfers-levy-lange-tel-danso/
+
 **Several Injured in Shooting at Warehouse in Central Ohio**\
 `The suspect in the shooting in New Albany, near Columbus, was no longer in the area and several were hospitalized, the authorities said.`\
 https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
