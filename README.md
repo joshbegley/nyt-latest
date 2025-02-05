@@ -1,3 +1,7 @@
+**What to Know About the Trump Family’s Deals in the Middle East**\
+`The region has become a hot spot for the family’s business. Jared Kushner, the president’s son-in-law, noted last year that “Gaza’s waterfront property could be very valuable.”`\
+https://nytimes.com/2025/02/05/us/politics/trump-gaza-middle-east.html
+
 **Rams to host NFL's first regular season game in Australia in 2026**\
 `The game will be one of several of the NFL’s growing number of regular season games to be played internationally over the next few seasons.`\
 https://nytimes.com/athletic/6116676/2025/02/05/los-angeles-rams-nfl-australia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-order-transgender-athletes-wome
 **Tom Brady looks back on Fox work, Raiders role ahead of Super Bowl**\
 `"I think the mistakes that I have made and I have made plenty, I have learned from all of them," Brady said.`\
 https://nytimes.com/athletic/6116452/2025/02/05/tom-brady-fox-analyst-raiders-super-bowl/
-
-**Thursday Briefing: An Uproar Over Trump’s Gaza Plan**\
-`Plus, drink (and sleep) in a British pub.`\
-https://nytimes.com/2025/02/05/briefing/trump-gaza-goma-deaths-nissan-honda.html
 
