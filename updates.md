@@ -1,3 +1,7 @@
+**Federal Ruling Says State Courts Should Decide North Carolina Election Case**\
+`Three counts found an incumbent Democrat won a State Supreme Court race. But the Republican candidate is trying to nullify more than 60,000 votes.`\
+https://nytimes.com/2025/02/04/us/north-carolina-supreme-court-race-ruling.html
+
 **Trump Proposes a U.S. Takeover of Gaza**\
 `President Trump suggested on Tuesday that the United States take over Gaza and that all Palestinians there — some two million people — should leave.`\
 https://nytimes.com/video/us/politics/100000009970495/us-gaza-takeover-trump.html
