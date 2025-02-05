@@ -1,3 +1,7 @@
+**Are You Stockpiling Food Items in Response to Tariff Concerns? We Want to Hear From You.**\
+`We’re interested in hearing from readers about the items they’re buying in bulk to get ahead of anticipated price hikes on imported goods.`\
+https://nytimes.com/2025/02/05/dining/food-tariff-reader-call-out.html
+
 **Rams' Puka Nacua on Cooper Kupp trade talks: 'Too fresh to think about'**\
 `Rams WR discusses the impact Kupp has on the field and in the locker room, and how that would be missed if he is traded.`\
 https://nytimes.com/athletic/6116182/2025/02/05/puka-nacua-rams-trade-cooper-kupp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6116198/2025/02/05/harrison-bader-contract-twins-ml
 **These Are the Major Obstacles to Trump’s Gaza Plan**\
 `Experts say a proposal to move all Palestinians out of Gaza and remake it as a U.S. territory would be time-consuming, extraordinarily costly and probably a violation of international law.`\
 https://nytimes.com/2025/02/05/world/europe/trump-gaza-explainer.html
-
-**Nassau County’s Armed Volunteer Force Faces Lawsuit From Democrats**\
-`Executive Bruce Blakeman’s corps is “an authoritarian power grab in the heart of suburban America,” said a lawyer representing county lawmakers.`\
-https://nytimes.com/2025/02/05/nyregion/nassau-county-blakeman-armed-force-suit.html
 
