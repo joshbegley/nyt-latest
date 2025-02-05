@@ -1,3 +1,7 @@
+**Judge Blocks Trump Effort to Move Trans Women to Men’s Prisons**\
+`A temporary restraining order blocked the administration from transferring transgender women and from ending gender-transition treatment for prisoners.`\
+https://nytimes.com/2025/02/04/us/trans-women-prisons-executive-order-ruling.html
+
 **U.S. Postal Service Halts Parcel Service From China as Trump’s Trade Curbs Begin**\
 `The U.S. has been importing about three million parcels a day with little customs inspection, raising concerns about the ease of sending fentanyl.`\
 https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
