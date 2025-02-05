@@ -1,3 +1,7 @@
+**After a long stretch of inconsistent play, the Celtics have finally built some momentum**\
+`"I think we know we're capable of this," Kristaps Porziņģis said after Boston closed out its three-game trip with a win over Cleveland.`\
+https://nytimes.com/athletic/6114604/2025/02/05/celtics-cavs-building-momentum/
+
 **UCLA keeps rolling with upset over No. 9 Michigan State**\
 `It's UCLA’s third consecutive win against a ranked team, too.`\
 https://nytimes.com/athletic/6114616/2025/02/05/ucla-michigan-state-mens-basketball-results-analysis/

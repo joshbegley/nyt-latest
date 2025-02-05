@@ -1,3 +1,7 @@
+**After a long stretch of inconsistent play, the Celtics have finally built some momentum**\
+`"I think we know we're capable of this," Kristaps Porziņģis said after Boston closed out its three-game trip with a win over Cleveland.`\
+https://nytimes.com/athletic/6114604/2025/02/05/celtics-cavs-building-momentum/
+
 **UCLA keeps rolling with upset over No. 9 Michigan State**\
 `It's UCLA’s third consecutive win against a ranked team, too.`\
 https://nytimes.com/athletic/6114616/2025/02/05/ucla-michigan-state-mens-basketball-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112173/2025/02/05/newcastle-arsenal-carabao-cup-se
 **Analysing Nico Gonzalez: A player built to play alongside Rodri at City, not replace him**\
 `The box-to-box Spaniard will add much-needed quality and physicality to Pep Guardiola's team  `\
 https://nytimes.com/athletic/6112484/2025/02/05/nico-gonzalez-manchester-city-profile-analysis/
-
-**Inside Steidten's West Ham exit: Signing mistakes, managerial issues and relief at leaving**\
-`Technical director Steidten has left West Ham after a difficult 18 months - here's the behind-the-scenes story of that time`\
-https://nytimes.com/athletic/6082958/2025/02/05/west-ham-tim-steidten-exit/
 
