@@ -1,3 +1,7 @@
+**MoneyCall: What's 'success' for Fox's $375M man?**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6114631/2025/02/05/tom-brady-super-bowl-broadcast-moneycall-newsletter/
+
 **Van de Ven to miss Carabao Cup tie against Liverpool with injury**\
 `Postecoglou confirmed centre-back is out, but new signings Kevin Danso and Mathys Tel are available.`\
 https://nytimes.com/athletic/6111856/2025/02/05/micky-van-de-ven-injury-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6115003/2025/02/05/brighton-clement-bischoff-transf
 **Watch: Why Lewis-Skelly and Nwaneri's breakthrough shows Arteta's evolution as manager**\
 `The Athletic FC Podcast discuss Arsenal's exciting teenage talents Myles Lewis-Skelly and Ethan Nwaneri`\
 https://nytimes.com/athletic/6112358/2025/02/05/athletic-fc-podcast-nwaneri-lewis-skelly/
-
-**Dodgers spring guide: 41 thoughts for 41 pitchers, from Banda to Sasaki to Yates**\
-`From high-priced stars to Rule 5 draft picks, the Dodgers assembled a deep staff after learning there's no such thing as too many pitchers. `\
-https://nytimes.com/athletic/6110072/2025/02/05/dodgers-spring-training-pitching/
 
