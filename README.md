@@ -11,7 +11,7 @@ https://nytimes.com/live/2025/02/05/us/trump-news/kenyan-commander-says-us-suppo
 https://nytimes.com/2025/02/05/us/politics/trump-security-mark-esper.html
 
 **Penguins' Sidney Crosby being evaluated for upper-body injury**\
-`CRANBERRY TOWNSHIP, Pa.`\
+`Crosby left the game Tuesday night when his left arm was pinned between the Devils’ Luke Hughes and Erik Haula.`\
 https://nytimes.com/athletic/6115992/2025/02/05/penguins-sidney-crosby-injury/
 
 **‘Riviera’ in Gaza and Aid Agency Assault Capture Trump’s Vision of U.S. Power**\
