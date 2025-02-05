@@ -1,3 +1,7 @@
+**West Point Disbands Clubs for Women and Minorities After Trump Orders**\
+`The military academy ordered the closure of a dozen clubs for students affiliated with its Diversity, Equity and Inclusion office.`\
+https://nytimes.com/2025/02/05/us/west-point-clubs-women-minorities.html
+
 **ASAP Rocky’s Trial Style Scrambles the Signals**\
 `Fans could be forgiven for mistaking the rapper’s court appearances for fashion shoots.`\
 https://nytimes.com/2025/02/05/style/asap-rocky-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover.html
 **Valérie André, Daring French Army Copter Pilot, Dies at 102**\
 `She was the first woman to fly rescue missions in a combat zone, in Indochina and Algeria. She was also the first Frenchwoman to become an army general.`\
 https://nytimes.com/2025/02/05/world/europe/valerie-andre-dead.html
-
-**Joelinton out for 'weeks not months' with knee injury - Howe**\
-`The 28-year-old was withdrawn in the second half of his side’s defeat to Fulham and missed the Carabao Cup semi-final win over Arsenal.`\
-https://nytimes.com/athletic/6116980/2025/02/05/joelinton-injury-update-newcastle/
 
