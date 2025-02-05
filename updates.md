@@ -1,3 +1,7 @@
+**ASAP Rocky’s Trial Style Scrambles the Signals**\
+`Fans could be forgiven for mistaking the rapper’s court appearances for fashion shoots.`\
+https://nytimes.com/2025/02/05/style/asap-rocky-trial.html
+
 **Kings to acquire Jonas Valančiūnas from Wizards for 2028, 2029 draft picks**\
 `Valančiūnas, 32, brings Sacramento plenty of rim protection rebounding and the ability to stretch the floor.`\
 https://nytimes.com/athletic/6117030/2025/02/05/kings-wizards-jonas-valanciunas-nba-trade/
