@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Nylander's hat trick helps Toronto sweep Alberta**\
+`The Leafs allowed two five-on-three goals but scored four in the second period to pick up their second win of their trip.`\
+https://nytimes.com/athletic/6114609/2025/02/05/maple-leafs-report-cards-nylander-hat-trick-flames/
+
 **How Liverpool are preventing injuries: Longer sessions, less intensity and smart subs**\
 `This time last year, Liverpool were gripped by an injury crisis; this year, they are virtually at full strength. What's changed?`\
 https://nytimes.com/athletic/6112176/2025/02/05/liverpool-injuries-prevention/
