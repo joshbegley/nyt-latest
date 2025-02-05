@@ -1,3 +1,15 @@
+**Colin Cowherd signs Nick Wright's podcast away from Fox Sports**\
+`Cowherd and Wright are the two biggest draws on Fox Sports’ cable channel, FS1, and will continue to do their weekday shows on TV.`\
+https://nytimes.com/athletic/6115443/2025/02/05/colin-cowherd-nick-wright-podcast-deal/
+
+**Puzzle Mania Super Mega Crossword Answers**\
+`Here are the answers to the 50 x 50 Super Mega Crossword.`\
+https://nytimes.com/interactive/2025/02/05/crosswords/answer-key-super-mega.html
+
+**Manhunt in Brussels After Masked Men Open Fire Outside Metro Station**\
+`The authorities said no injuries had been reported, but two metro stations were closed on Wednesday after the shooting.`\
+https://nytimes.com/2025/02/05/world/europe/brussels-metro-shooting-belgium.html
+
 **Trump Proposal Puts Egypt and Jordan in an Impossible Position**\
 `The countries are among the top recipients of American military aid, but forcing Palestinians out of their remaining territory could destabilize the entire region.`\
 https://nytimes.com/2025/02/05/world/middleeast/egypt-jordan-gaza-trump.html
