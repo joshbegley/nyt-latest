@@ -1,3 +1,11 @@
+**Jayden Daniels on playing with poise, Kliff Kingsbury, and his favorite plays from his rookie year**\
+`Plus, what advice the Commanders QB would give the Chiefs when it comes to facing the Eagles defense.`\
+https://nytimes.com/athletic/6116201/2025/02/05/jayden-daniels-washington-commanders-interview/
+
+**This Isn’t Reform. It’s Sabotage.**\
+`Musk and Trump are launching a frontal assault on the concept of democratic governance`\
+https://nytimes.com/2025/02/05/opinion/trump-musk-government.html
+
 **Trump officials walk back plan to take over Gaza.**\
 `President Trump often makes comments that go beyond what his aides wish and sometimes they try to walk them back. But the only statements that really matter are Mr. Trump’s.`\
 https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trump-officials-walk-back-plan-to-take-over-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/books/romance-books.html
 **Classic Romance Novels: A Starter Pack**\
 `These vintage books introduce the archetypes, settings and lavishly bonkers sensibility that are the hallmarks of great romance.`\
 https://nytimes.com/interactive/2025/02/05/books/romance-books-love.html
-
-**Federal Employees Protest Musk’s ‘Fork in the Road’ Offer With Spoon Emojis**\
-`The cutlery icons were deployed in an online chat during a meeting with the former Tesla employee taking over the tech-focused arm of the General Services Administration.`\
-https://nytimes.com/2025/02/05/us/politics/federal-employees-musk-protest-spoon.html
-
-**Twins to sign speedy veteran Harrison Bader to bolster outfield: Sources**\
-`The deal is worth $6.25 million guaranteed plus up to $2 million in performance bonuses, according to major-league sources. `\
-https://nytimes.com/athletic/6116198/2025/02/05/harrison-bader-contract-twins-mlb-free-agency/
 
