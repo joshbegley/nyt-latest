@@ -1,3 +1,15 @@
+**In Gaza and Jerusalem, People React to Trump’s Proposal for Palestinians**\
+`A day after President Trump proposed that the United States take over Gaza, many Palestinians said they were committed to staying in the enclave despite the widespread devastation. In Jerusalem, some residents reacted with surprise and enthusiasm to the proposal.`\
+https://nytimes.com/video/world/middleeast/100000009970943/in-gaza-and-jerusalem-people-react-to-trumps-proposal-for-palestinians.html
+
+**The Bounce: Will Kevin Durant be dealt by NBA trade deadline?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6115015/2025/02/05/kevin-durant-suns-jimmy-butler-heat-luka-doncic-anthony-davis-lakers-mavericks-nba-trade-deadline-the-bounce/
+
+**Vecenie: After Luka Dončić trade, Lakers should be thinking about summer 2026**\
+`The Dončić deal positions the Lakers extremely well for the future — especially when a bumper crop of stars might become available.`\
+https://nytimes.com/athletic/6108702/2025/02/05/lakers-trades-free-agents-cap-space-doncic-2026/
+
 **Colin Cowherd signs Nick Wright's podcast away from Fox Sports**\
 `Cowherd and Wright are the two biggest draws on Fox Sports’ cable channel, FS1, and will continue to do their weekday shows on TV.`\
 https://nytimes.com/athletic/6115443/2025/02/05/colin-cowherd-nick-wright-podcast-deal/
