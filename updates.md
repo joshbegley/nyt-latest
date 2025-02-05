@@ -1,3 +1,7 @@
+**Trump Says He Would Jail Americans in El Salvador ‘in a Heartbeat’**\
+`The proposal is almost certainly illegal, experts said, but President Trump’s eagerness to entertain it showed his willingness to embrace extreme measures to demonstrate he is tough on crime.`\
+https://nytimes.com/2025/02/04/us/politics/trump-el-salvador-americans-jail.html
+
 **‘The Antiquities’ Review: Relics of Late Human Life in 12 Exhibits**\
 `According to Jordan Harrison’s museum piece of a play, we are long extinct by 2240. But the future has kept our Betamaxes.`\
 https://nytimes.com/2025/02/04/theater/the-antiquities-review-ai.html
