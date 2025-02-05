@@ -1,3 +1,7 @@
+**Trump Signs Executive Order Calling for Review of U.S. Funding and Ties to U.N.**\
+`The move cast uncertainty on the leadership role of the United States in the global body. The president also withdrew from the U.N.’s Human Rights Council and stopped funding UNRWA.`\
+https://nytimes.com/2025/02/04/us/politics/trump-united-nations-unrwa.html
+
 **Bondi Confirmed as Attorney General**\
 `The quick confirmation highlighted the new administration’s focus on controlling and changing the Justice Department.`\
 https://nytimes.com/2025/02/04/us/politics/pam-bondi-attorney-general-confirmation.html
