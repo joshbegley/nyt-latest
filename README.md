@@ -1,3 +1,11 @@
+**Inside Trump’s Hastily Written Proposal to ‘Own’ Gaza**\
+`Although the president had been talking about the idea for weeks, there had been no meetings on the subject, and senior members of his government were taken by surprise.`\
+https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover.html
+
+**Valérie André, Daring French Army Copter Pilot, Dies at 102**\
+`She was the first woman to fly rescue missions in a combat zone, in Indochina and Algeria. She was also the first Frenchwoman to become an army general.`\
+https://nytimes.com/2025/02/05/world/europe/valerie-andre-dead.html
+
 **Joelinton out for 'weeks not months' with knee injury - Howe**\
 `The 28-year-old was withdrawn in the second half of his side’s defeat to Fulham and missed the Carabao Cup semi-final win over Arsenal.`\
 https://nytimes.com/athletic/6116980/2025/02/05/joelinton-injury-update-newcastle/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/chuck-schumer-democrats-trump-nominee
 **AC Milan advances to Coppa Italia semi on rare quiet night from Pulisic**\
 `The win was crucial for Milan, who have slipped to eighth in the Serie A table and fell into the playoff round of the Champions League.`\
 https://nytimes.com/athletic/6116759/2025/02/05/ac-milan-pulisic-musah-advance-coppa-italia-semifinal/
-
-**Trump Officials Tried to Walk Back His Plan to Take Over Gaza**\
-`Also, the government is eyeing deeper work force cuts. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/02/05/briefing/trump-gaza-plan-soften-egg-prices-waffle-house.html
-
-**The Best Movies and TV Shows Coming to Netflix in February**\
-`This month’s new arrivals include an insightful docudrama about a fraudulent wellness blogger and a rare TV role for Robert De Niro.`\
-https://nytimes.com/2025/02/05/arts/television/netflix-new-february.html
 
